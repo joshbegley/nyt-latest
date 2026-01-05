@@ -1,3 +1,11 @@
+**Remembering Latif Ayodele and Sina Ghami - and what they meant to Anthony Joshua**\
+`The former world heavyweight champion did not just lose two trusted colleagues in Nigeria last week - but two dear friends`\
+https://nytimes.com/athletic/6940015/2026/01/05/latif-ayodele-sina-ghami-anthony-joshua/
+
+**Word of the Day: didactic**\
+`This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/05/learning/word-of-the-day-didactic.html
+
 **‘The Pitt,’ Plus 10 Things to Watch on TV This Week**\
 `The series, set in a Pittsburgh emergency room and starring Noah Wyle, returns. And a new group of players enter a castle in Scotland for “The Traitors.”`\
 https://nytimes.com/2026/01/05/arts/television/pitt-traitors-antiques-roadshow.html
