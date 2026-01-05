@@ -1,3 +1,15 @@
+**Commanders end brutal season with moment of joy for three veteran players**\
+`Bobby Wagner, Josh Johnson and Von Miller reached significant milestones to cap a tough season in Washington.`\
+https://nytimes.com/athletic/6939191/2026/01/04/commanders-bobby-wagner-josh-johnson-von-miller/
+
+**Patriots' magical season rolls on, but do they need a playoff win to cap it?**\
+`Coach Mike Vrabel and QB Drake Maye have sparked the Patriots' turnaround this season. They'll face the Chargers on wild-card weekend.`\
+https://nytimes.com/athletic/6940995/2026/01/04/patriots-dolphins-mike-vrabel-drake-maye-playoffs/
+
+**Rested Chargers turn 'focus and attention' to wild-card matchup with Patriots**\
+`The Chargers defense delivered a spirited effort Sunday despite playing without its top four players.`\
+https://nytimes.com/athletic/6941210/2026/01/04/chargers-nfl-playoffs-patriots-wild-card/
+
 **Was it Travis Kelce's last game? Inside the Chiefs' locker room after his 2025 finale**\
 `Was that really Kelce's final NFL game? One Chiefs teammate and close friend isn't convinced.`\
 https://nytimes.com/athletic/6939812/2026/01/04/chiefs-travis-kelce-last-game-2025/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6933542/2026/01/04/brendan-sorsby-texas-tech-transf
 **DeVonta Smith's legacy did not need another 1,000-yard season. He got it anyway**\
 `Smith said he wanted to play, even when the risk of injury was there.`\
 https://nytimes.com/athletic/6940034/2026/01/04/devonta-smith-1000-yard-season-legacy/
-
-**Ravens star safety Kyle Hamilton ruled out vs. Steelers with concussion**\
-`Hamilton collided with teammate Alohi Gilman and both were evaluated for a concussion. Gilman returned; Hamilton was ruled out.`\
-https://nytimes.com/athletic/6941094/2026/01/04/kyle-hamilton-injury-safety-ravens-steelers/
-
-**J.J. McCarthy's early exit in Week 18 win underscores Vikings' uncertain future at QB**\
-`The Vikings got a little bit of everything from McCarthy on Sunday — the good and the bad. But it's still not clear what they have.`\
-https://nytimes.com/athletic/6940700/2026/01/04/jj-mccarthy-vikings-packers-qb-future/
-
-**Venezuela’s acting president calls for dialogue and ‘coexistence’ with the U.S.**\
-`By Frances Robles`\
-https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/venezuelas-acting-president-calls-for-dialogue-and-coexistence-with-the-us
 

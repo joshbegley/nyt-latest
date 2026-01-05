@@ -1,3 +1,15 @@
+**Commanders end brutal season with moment of joy for three veteran players**\
+`Bobby Wagner, Josh Johnson and Von Miller reached significant milestones to cap a tough season in Washington.`\
+https://nytimes.com/athletic/6939191/2026/01/04/commanders-bobby-wagner-josh-johnson-von-miller/
+
+**Patriots' magical season rolls on, but do they need a playoff win to cap it?**\
+`Coach Mike Vrabel and QB Drake Maye have sparked the Patriots' turnaround this season. They'll face the Chargers on wild-card weekend.`\
+https://nytimes.com/athletic/6940995/2026/01/04/patriots-dolphins-mike-vrabel-drake-maye-playoffs/
+
+**Rested Chargers turn 'focus and attention' to wild-card matchup with Patriots**\
+`The Chargers defense delivered a spirited effort Sunday despite playing without its top four players.`\
+https://nytimes.com/athletic/6941210/2026/01/04/chargers-nfl-playoffs-patriots-wild-card/
+
 **Was it Travis Kelce's last game? Inside the Chiefs' locker room after his 2025 finale**\
 `Was that really Kelce's final NFL game? One Chiefs teammate and close friend isn't convinced.`\
 https://nytimes.com/athletic/6939812/2026/01/04/chiefs-travis-kelce-last-game-2025/
