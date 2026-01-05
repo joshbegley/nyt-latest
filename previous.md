@@ -1,3 +1,11 @@
+**How to watch Iowa vs. Northwestern women's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Northwestern Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6943225/2026/01/05/iowa-vs-northwestern-stream-how-to-watch-jan-5/
+
+**How to watch USC vs. Michigan State men's basketball: Time, TV, streaming**\
+`Find out how to watch the USC Trojans play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6943222/2026/01/05/usc-vs-michigan-state-stream-how-to-watch-jan-5/
+
 **Philip Rivers says NFL coaching jobs not on his radar, but he's open to the possibility**\
 `“There’s nothing concrete with that,” Rivers told reporters. “This past month has taught me, you’re open to obviously anything.”`\
 https://nytimes.com/athletic/6942995/2026/01/05/philip-rivers-nfl-coaching-opportunities/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/05/world/americas/congress-venezuela-maduro.html
 **Facing Protests and Economic Crisis, Iran Offers Citizens Monthly Payments**\
 `The plan to give Iranians roughly $7 a month is the latest in a string of steps aimed at alleviating economic pressures. Critics say the payments cannot reverse the severity of the crisis.`\
 https://nytimes.com/2026/01/05/world/europe/iran-protests-payments.html
-
-**Penguins put Egor Zamula on waivers, plan to terminate his contract**\
-`Zamula will become an unrestricted free agent if he goes unclaimed by 2 p.m. ET on Tuesday.`\
-https://nytimes.com/athletic/6943054/2026/01/05/penguins-egor-zamula-contract-termination/
-
-**Maduro, Yanked Into the U.S. Justice System, Says He Was Kidnapped**\
-`“I’m innocent. I’m not guilty. I am a decent man,” the captured Venezuelan president told a judge in Manhattan federal court. “I am still president of my country.”`\
-https://nytimes.com/2026/01/05/world/americas/maduro-us-court-arraignment-kidnapped.html
 

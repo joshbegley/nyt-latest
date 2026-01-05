@@ -1,3 +1,11 @@
+**How to watch Iowa vs. Northwestern women's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Northwestern Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6943225/2026/01/05/iowa-vs-northwestern-stream-how-to-watch-jan-5/
+
+**How to watch USC vs. Michigan State men's basketball: Time, TV, streaming**\
+`Find out how to watch the USC Trojans play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6943222/2026/01/05/usc-vs-michigan-state-stream-how-to-watch-jan-5/
+
 **Philip Rivers says NFL coaching jobs not on his radar, but he's open to the possibility**\
 `“There’s nothing concrete with that,” Rivers told reporters. “This past month has taught me, you’re open to obviously anything.”`\
 https://nytimes.com/athletic/6942995/2026/01/05/philip-rivers-nfl-coaching-opportunities/
