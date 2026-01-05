@@ -1,3 +1,7 @@
+**Chelsea owners know what to expect by hiring from within, but only results will win doubters around**\
+`U21s coach McFarlane stepped in for the draw against City - but fans have been critical of the possible hiring of Strasbourg's Liam Rosenior`\
+https://nytimes.com/athletic/6941397/2026/01/05/chelsea-rosenior-maresca-successor/
+
 **Gunmen Raid Villages in Nigeria After U.S. Christmas Airstrike**\
 `Gunmen launched a deadly attack in Nigeria, in which dozens were killed and others abducted, officials said. The assault on civilians comes on the heels of U.S. strikes in the region on Christmas Day.`\
 https://nytimes.com/video/world/africa/100000010623975/nigeria-us-strikes-muslims.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6931898/2026/01/05/nfl-playoff-chances-matchups-sup
 **UW-River Falls upsets North Central for DIII title as Kaleb Blaha breaks Joe Burrow's record**\
 `The Falcons quarterback broke the former LSU star's record for total yards in a season to lead the upset victory.`\
 https://nytimes.com/athletic/6941257/2026/01/05/kaleb-blaha-joe-burrows-ncaa-stagg-bowl/
-
-**Brennan Johnson played well but Newcastle loss shows Crystal Palace need more signings**\
-`Record buy Brennan Johnson is direct and scores goals, but Oliver Glasner will still expect further new arrivals imminently`\
-https://nytimes.com/athletic/6934183/2026/01/05/crystal-palace-signings-newcastle-loss-analysis/
 
