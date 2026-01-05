@@ -1,3 +1,15 @@
+**The Bounce: Is Jaylen Brown officially a superstar? Plus, an epic John Calipari rant**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6942447/2026/01/05/jaylen-brown-celtics-john-calipari-nba-the-bounce/
+
+**4 Easy Ways to Eat More Fiber**\
+`Most Americans aren’t getting enough, but experts say these simple changes can help.`\
+https://nytimes.com/2026/01/05/well/eat/tips-for-getting-more-fiber.html
+
+**The Windup: Why are Japanese stars signing odd deals?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6942506/2026/01/05/japanese-players-deals-the-windup/
+
 **Why I ‘Bricked’ My Phone**\
 `When writer Elissa Sanci set out to try the Brick for an article (boss’s orders), it wasn’t her first time trying to wean herself off her phone. But this device was different, and surprisingly effective.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010624596/why-i-bricked-my-phone.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/01/05/espanol/venezuela-nicolas-maduro-juicio-trum
 **Newcastle contact police after Willock threats and abuse**\
 `Newcastle have called on social-media companies, and in particular Meta, to take swift action.`\
 https://nytimes.com/athletic/6942510/2026/01/05/newcastle-joe-willock-online-abuse-threats/
-
-**Charvarius Ward Sr. mulling retirement after suffering 3 concussions in 2025**\
-`The Colts acquired Ward in free agency last offseason. `\
-https://nytimes.com/athletic/6942471/2026/01/05/charvarius-ward-retirement-concussions/
-
-**Wilfried Nancy sacked by Celtic after 33 days in charge**\
-`Nancy was appointed on a two-and-a-half-year deal by the Scottish champions on December 3, joining from MLS side Columbus Crew.`\
-https://nytimes.com/athletic/6899248/2026/01/05/celtic-manager-nancy-sacked/
-
-**Bengals keeping coach Zac Taylor, de facto GM Duke Tobin**\
-`The Bengals were 6-11 this season and missed the playoffs for the third straight year.`\
-https://nytimes.com/athletic/6942444/2026/01/05/bengals-keeping-zac-taylor-duke-tobin/
 

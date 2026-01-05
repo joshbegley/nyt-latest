@@ -1,3 +1,15 @@
+**The Bounce: Is Jaylen Brown officially a superstar? Plus, an epic John Calipari rant**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6942447/2026/01/05/jaylen-brown-celtics-john-calipari-nba-the-bounce/
+
+**4 Easy Ways to Eat More Fiber**\
+`Most Americans aren’t getting enough, but experts say these simple changes can help.`\
+https://nytimes.com/2026/01/05/well/eat/tips-for-getting-more-fiber.html
+
+**The Windup: Why are Japanese stars signing odd deals?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6942506/2026/01/05/japanese-players-deals-the-windup/
+
 **Why I ‘Bricked’ My Phone**\
 `When writer Elissa Sanci set out to try the Brick for an article (boss’s orders), it wasn’t her first time trying to wean herself off her phone. But this device was different, and surprisingly effective.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010624596/why-i-bricked-my-phone.html

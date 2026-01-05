@@ -1,3 +1,11 @@
+**NBA Power Rankings: Celtics, Rockets are contenders; New Year's resolutions for all**\
+`Better health? All-Star recognition? Roster revamp? Here's what all 30 teams should aim for in 2026.`\
+https://nytimes.com/athletic/6942150/2026/01/05/nba-power-rankings-celtics-rockets-lakers-knicks/
+
+**Tottenham's Kudus likely to miss Bournemouth game with leg injury**\
+`The Ghana international was substituted in the 19th minute of Tottenham’s 1-1 draw against Sunderland on Sunday after going down injured.`\
+https://nytimes.com/athletic/6942528/2026/01/05/tottenham-mohammed-kudus-injury-update/
+
 **The Bounce: Is Jaylen Brown officially a superstar? Plus, an epic John Calipari rant**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6942447/2026/01/05/jaylen-brown-celtics-john-calipari-nba-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6940251/2026/01/05/ny-giants-joe-schoen-retianed-ge
 **Esto es lo más reciente**\
 `By Benjamin Weiser, William K. Rashbaum, Annie Karni and Hurubie Meko`\
 https://nytimes.com/live/2026/01/05/espanol/venezuela-nicolas-maduro-juicio-trump/venezuela-nicolas-maduro-que-pasa
-
-**En vivo: Maduro llega al tribunal en Nueva York y Trump intensifica amenazas a la región**\
-`Nicolás Maduro, el líder venezolano derrocado, y su esposa serán procesados por tráfico de drogas y otros cargos. El presidente Trump sugirió que podría tomar medidas contra otros países, incluidos Colombia y México.`\
-https://nytimes.com/live/2026/01/05/espanol/venezuela-nicolas-maduro-juicio-trump
-
-**Newcastle contact police after Willock threats and abuse**\
-`Newcastle have called on social-media companies, and in particular Meta, to take swift action.`\
-https://nytimes.com/athletic/6942510/2026/01/05/newcastle-joe-willock-online-abuse-threats/
 
