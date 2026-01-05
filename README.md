@@ -11,7 +11,7 @@ https://nytimes.com/video/smarter-living/100000010624835/this-organizer-reclaims
 https://nytimes.com/2026/01/05/world/europe/eva-schloss-dead.html
 
 **Cardinals fire Jonathan Gannon after 3 seasons, no playoff appearances: Source**\
-`The Cardinals were pegged as a breakout team entering Gannon's third season. They never got close. `\
+`The Cardinals were pegged as a likely breakout team entering Gannon's third season. They never got close. `\
 https://nytimes.com/athletic/6883060/2026/01/05/jonathan-gannon-fired-cardinals-nfl/
 
 **Why Ruben Amorim's devotion to 3-4-3 made his Man United spell feel doomed from the start**\
