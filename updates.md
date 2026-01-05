@@ -1,3 +1,7 @@
+**Venezuela’s acting president calls for dialogue and ‘coexistence’ with the U.S.**\
+`By Frances Robles`\
+https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/venezuelas-acting-president-calls-for-dialogue-and-coexistence-with-the-us
+
 **Commanders' 2026 offseason guide: Biggest needs, draft capital, financials and more**\
 `As the page flips to 2026, here’s a quick guide to the Commanders' next few months.`\
 https://nytimes.com/athletic/6940800/2026/01/04/commanders-offseason-guide-free-agents-draft-picks-2026/

@@ -1,3 +1,7 @@
+**Venezuela’s acting president calls for dialogue and ‘coexistence’ with the U.S.**\
+`By Frances Robles`\
+https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/venezuelas-acting-president-calls-for-dialogue-and-coexistence-with-the-us
+
 **Commanders' 2026 offseason guide: Biggest needs, draft capital, financials and more**\
 `As the page flips to 2026, here’s a quick guide to the Commanders' next few months.`\
 https://nytimes.com/athletic/6940800/2026/01/04/commanders-offseason-guide-free-agents-draft-picks-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6871719/2026/01/04/falcons-fire-raheem-morris-coach
 **Giants owners demanded improvement and didn't get it, so Joe Schoen's fate should be clear**\
 `The bar to make progress was incredibly low after a three-win season, but the roster built by Schoen still could barely clear it.`\
 https://nytimes.com/athletic/6936547/2026/01/04/ny-giants-joe-shoen-john-mara-fired/
-
-**Joe Burrow sets stage for 2026 as pressure mounts in Bengals’ playoff drought**\
-`The defense needs closers and the front office must address that in the draft and free agency.`\
-https://nytimes.com/athletic/6940623/2026/01/04/bengals-joe-burrow-playoff-drought-browns/
 
