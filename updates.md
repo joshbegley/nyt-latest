@@ -1,3 +1,11 @@
+**JD Vance’s Ohio Home Is Targeted in Vandalism Attack**\
+`U.S. Secret Service agents detained a man early Monday after the vice president’s home in Cincinnati was damaged. No injuries were reported.`\
+https://nytimes.com/2026/01/05/us/jd-vance-home-damage-cincinnati-arrest.html
+
+**Browns fire coach Kevin Stefanski after 6 seasons**\
+`Stefanski was named NFL Coach of the Year in 2020 and 2023, but the team failed to find a long-term answer at QB during his tenure. `\
+https://nytimes.com/athletic/6812748/2026/01/05/browns-fire-kevin-stefanski-nfl/
+
 **Tim Walz to Drop Bid for Third Term and Amy Klobuchar May Run Instead**\
 `Mr. Walz and Ms. Klobuchar met Sunday in Minnesota, where he informed her of his plans and she confirmed her interest in running to replace him.`\
 https://nytimes.com/2026/01/05/us/walz-governor-fraud-klobuchar.html
