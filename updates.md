@@ -1,3 +1,15 @@
+**Cuba says 32 of its citizens were killed in Venezuela, including military personnel.**\
+`By Jack Nicas`\
+https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/cuba-says-32-of-its-citizens-were-killed-in-venezuela-including-military-personnel
+
+**After ugly loss, Bears head into the playoffs with an aggravated edge**\
+`A remarkable regular season ended on a sour note for the Bears, presenting a demanding resetting process as the playoffs arrive.`\
+https://nytimes.com/athletic/6941010/2026/01/04/bears-enter-playoffs-after-ugly-loss/
+
+**DeVonta Smith's legacy did not need another 1,000-yard season. He got it anyway**\
+`Smith said he wanted to play, even when the risk of injury was there.`\
+https://nytimes.com/athletic/6940034/2026/01/04/devonta-smith-1000-yard-season-legacy/
+
 **Brendan Sorsby, top QB in transfer portal, headed to Texas Tech: Sources**\
 `Sorsby, a redshirt junior with one year of eligibility remaining, is expected to arrive with a hefty price tag.`\
 https://nytimes.com/athletic/6933542/2026/01/04/brendan-sorsby-texas-tech-transfer-portal-quarterback/

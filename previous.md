@@ -1,8 +1,16 @@
+**Cuba says 32 of its citizens were killed in Venezuela, including military personnel.**\
+`By Jack Nicas`\
+https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/cuba-says-32-of-its-citizens-were-killed-in-venezuela-including-military-personnel
+
+**After ugly loss, Bears head into the playoffs with an aggravated edge**\
+`A remarkable regular season ended on a sour note for the Bears, presenting a demanding resetting process as the playoffs arrive.`\
+https://nytimes.com/athletic/6941010/2026/01/04/bears-enter-playoffs-after-ugly-loss/
+
 **Brendan Sorsby, top QB in transfer portal, headed to Texas Tech: Sources**\
 `Sorsby, a redshirt junior with one year of eligibility remaining, is expected to arrive with a hefty price tag.`\
 https://nytimes.com/athletic/6933542/2026/01/04/brendan-sorsby-texas-tech-transfer-portal-quarterback/
 
-**DeVonta Smith's legacy did not need another 1,000-yard season. He got it anyway.**\
+**DeVonta Smith's legacy did not need another 1,000-yard season. He got it anyway**\
 `Smith said he wanted to play, even when the risk of injury was there.`\
 https://nytimes.com/athletic/6940034/2026/01/04/devonta-smith-1000-yard-season-legacy/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6940942/2026/01/04/raiders-pete-carroll-future-hot-
 **Greta Myers got DQ'd at U.S. speed skating trials. Then she got a second chance**\
 `Myers made contact with Brittany Bowe in their 1,500-meter heat Sunday at U.S. trials, prompting a DQ. Then she made the most of a redo.`\
 https://nytimes.com/athletic/6940689/2026/01/04/greta-myers-us-olympics-speed-skating-dq-1500/
-
-**If Browns, Kevin Stefanski are parting ways, he'll be leaving a lot of bad things behind**\
-`The Browns' strange win Sunday left them sixth in April's NFL Draft and muddied a rumored separation between the team and its coach.`\
-https://nytimes.com/athletic/6940480/2026/01/04/kevin-stefanski-browns-bengals-season-finale/
-
-**Welcome to the 5-Day Brain Health Challenge**\
-`It’s never too early or too late to start healthy brain habits. Today, test your knowledge with a pop quiz.`\
-https://nytimes.com/interactive/2026/well/brain-health-challenge-quiz.html
 

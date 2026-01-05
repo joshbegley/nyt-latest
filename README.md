@@ -1,3 +1,11 @@
+**Bears back their way into No. 2 seed, but are playing like a playoff 1-and-done**\
+`Chicago will host Green Bay in the first round on Saturday night, but two losses and two bad defensive performances in a row are concerning.`\
+https://nytimes.com/athletic/6940977/2026/01/04/bears-lions-nfl-playoffs-no-2-seed/
+
+**Broncos aren't a perfect No. 1 seed, but can reach Super Bowl in wide-open field**\
+`The Broncos have their flaws, but they have also shown an ability to overcome them time and again. It earned them the No. 1 seed Sunday.`\
+https://nytimes.com/athletic/6941079/2026/01/04/broncos-chargers-afc-playoffs-no-1-seed/
+
 **Cuba says 32 of its citizens were killed in Venezuela, including military personnel.**\
 `By Jack Nicas`\
 https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/cuba-says-32-of-its-citizens-were-killed-in-venezuela-including-military-personnel
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/venezuelas-a
 **Commanders' 2026 offseason guide: Biggest needs, draft capital, financials and more**\
 `As the page flips to 2026, here’s a quick guide to the Commanders' next few months.`\
 https://nytimes.com/athletic/6940800/2026/01/04/commanders-offseason-guide-free-agents-draft-picks-2026/
-
-**Raiders coach Pete Carroll says 'of course' he'd like to return next season**\
-`Carroll's Raiders went 3-14 this season, by far the worst of his 19 years as an NFL head coach.`\
-https://nytimes.com/athletic/6940942/2026/01/04/raiders-pete-carroll-future-hot-seat/
-
-**Greta Myers got DQ'd at U.S. speed skating trials. Then she got a second chance**\
-`Myers made contact with Brittany Bowe in their 1,500-meter heat Sunday at U.S. trials, prompting a DQ. Then she made the most of a redo.`\
-https://nytimes.com/athletic/6940689/2026/01/04/greta-myers-us-olympics-speed-skating-dq-1500/
 
