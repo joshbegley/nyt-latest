@@ -1,3 +1,11 @@
+**Bengals' Zac Taylor upset about delay after Myles Garrett set NFL sack record**\
+`Taylor said officials never mentioned in their pregame meeting that the game clock would pause if Garrett broke the record.`\
+https://nytimes.com/athletic/6940397/2026/01/04/zac-taylor-myles-garrett-delay-nfl-sack-record/
+
+**Seahawks, OT Charles Cross agree to multiyear extension: Source**\
+`Reported four-year, $104.4 million deal would be the largest contract for a non-quarterback in Seahawks history.`\
+https://nytimes.com/athletic/6940469/2026/01/04/seahawks-charles-cross-contract-extension-4-years/
+
 **So, Your House Is Stinky. Here’s How to Fix It. **\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/so-your-house-is-stinky-heres-how-to-fix-it-
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/04/us/winter-storms-drought-california.html
 **Venezuela’s defense minister calls U.S. operation an ‘act of profound malice.’**\
 `By Jack Nicas and Talya Minsberg`\
 https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/venezuelas-defense-minister-calls-us-operation-an-act-of-profound-malice
-
-**Home With a Dome**\
-`Lynn Lempel helps our minds wander.`\
-https://nytimes.com/2026/01/04/crosswords/daily-puzzle-2026-01-05.html
-
-**Critics Choice Awards 2026: The Complete Winners List**\
-`“Sinners” led the nominations tally with 17 going into the ceremony, followed by “One Battle After Another” with 14.`\
-https://nytimes.com/2026/01/04/movies/critics-choice-awards-winners-complete-list.html
 

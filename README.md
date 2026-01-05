@@ -1,3 +1,7 @@
+**Losing record or not, NFC South-champion Panthers has a nice ring to it**\
+`Despite an 8-9 finish, Carolina wins the NFC South for the first time since 2015 and will host a home playoff game vs. the Rams.`\
+https://nytimes.com/athletic/6940476/2026/01/04/carolina-panthers-nfc-south-champions-playoffs/
+
 **Bengals' Zac Taylor upset about delay after Myles Garrett set NFL sack record**\
 `Taylor said officials never mentioned in their pregame meeting that the game clock would pause if Garrett broke the record.`\
 https://nytimes.com/athletic/6940397/2026/01/04/zac-taylor-myles-garrett-delay-nfl-sack-record/
@@ -10,8 +14,8 @@ https://nytimes.com/athletic/6940469/2026/01/04/seahawks-charles-cross-contract-
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/so-your-house-is-stinky-heres-how-to-fix-it-
 
-**After four straight Falcons wins, what's next? The answer could be up to Matt Ryan**\
-`The Falcons won their fourth straight game on Sunday, but head coach Raheem Morris doesn't know if it's enough to save his job.`\
+**After 4 straight Falcons wins, what's next? The answer could be up to Matt Ryan**\
+`The Falcons won their fourth straight game Sunday, but head coach Raheem Morris doesn't know if it's enough to save his job.`\
 https://nytimes.com/athletic/6940377/2026/01/04/matt-ryan-falcons-saints-raheem-morris-terry-fontenot/
 
 **Edmundo González, regarded as the winner of the 2024 vote, says he is president of Venezuela.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6940242/2026/01/04/packers-playoffs-matt-lafleur-vi
 **Winter Storms Ease Drought in California, for Now**\
 `Experts say that it’s too early to tell what will happen during the rest of the state’s rainy season, but that extreme drought is unlikely.`\
 https://nytimes.com/2026/01/04/us/winter-storms-drought-california.html
-
-**Venezuela’s defense minister calls U.S. operation an ‘act of profound malice.’**\
-`By Jack Nicas and Talya Minsberg`\
-https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/venezuelas-defense-minister-calls-us-operation-an-act-of-profound-malice
 
