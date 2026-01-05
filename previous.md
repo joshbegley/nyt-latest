@@ -1,5 +1,5 @@
 **Giants will pick No. 5 in the 2026 NFL Draft**\
-`The Giants' win over the Cowboys lost them the No. 2 overall pick in April's 2026 draft.`\
+`The Giants' win over the Cowboys lost them a top two pick in April's 2026 draft.`\
 https://nytimes.com/athletic/6940456/2026/01/04/ny-giants-nfl-draft-pick-spot/
 
 **Maduro’s Capture Shows Trump’s Goal to Dominate the Americas**\
