@@ -1,3 +1,7 @@
+**Updated 2026 NFL Draft order: Raiders at No. 1; Jets, Giants both finish in top 5**\
+`The Raiders clinched the No. 1 pick in April's draft, and they'll be followed by the Jets, Cardinals, Titans and Giants in the first five.`\
+https://nytimes.com/athletic/6938320/2026/01/04/nfl-draft-order-2026-round-1-raiders-jets-giants/
+
 **Blackhawks continue to defy expectations with another improbable but deserved win**\
 `Tyler Bertuzzi's hat trick goal in overtime sent the suddenly surging Blackhawks past the Golden Knights for seven points in four games.`\
 https://nytimes.com/athletic/6941122/2026/01/04/blackhawks-defy-expectations-bertuzzi-hat-trick/

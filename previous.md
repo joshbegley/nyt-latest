@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6941206/2026/01/04/bucks-giannis-winning-streak-tar
 https://nytimes.com/athletic/6941023/2026/01/04/ravens-steelers-score-result-takeaways-afc-north-title/
 
 **Updated 2026 NFL Draft order: Raiders at No. 1; Jets, Giants both finish in top 5**\
-`The Raiders have clinched the No. 1 pick in April's draft, and they'll be followed by the Jets, Cardinals, Titans and Giants in the order`\
+`The Raiders clinched the No. 1 pick in April's draft, and they'll be followed by the Jets, Cardinals, Titans and Giants in the first five.`\
 https://nytimes.com/athletic/6938320/2026/01/04/nfl-draft-order-2026-round-1-raiders-jets-giants/
 
 **Trump Suggests U.S. Could Take Action Against More Countries**\
