@@ -1,3 +1,15 @@
+**Trump’s Harshest Republican Critics? Members Headed for the Exits.**\
+`It turns out that few things liberate Republicans to speak their minds about President Trump like the fact that they are departing Congress.`\
+https://nytimes.com/article/trump-republican-critics-lawmakers-exit.html
+
+**NBA Power Rankings: Celtics, Rockets are contenders; New Year's resolutions for all**\
+`Better health? All-Star recognition? Roster revamp? Here's what all 30 teams should aim for in 2026.`\
+https://nytimes.com/athletic/6942150/2026/01/05/nba-power-rankings-celtics-rockets-lakers-knicks/
+
+**Tottenham's Kudus likely to miss Bournemouth game with leg injury**\
+`The Ghana international was substituted in the 19th minute of Tottenham’s 1-1 draw against Sunderland on Sunday after going down injured.`\
+https://nytimes.com/athletic/6942528/2026/01/05/tottenham-mohammed-kudus-injury-update/
+
 **The Bounce: Is Jaylen Brown officially a superstar? Plus, an epic John Calipari rant**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6942447/2026/01/05/jaylen-brown-celtics-john-calipari-nba-the-bounce/
