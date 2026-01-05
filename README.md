@@ -1,3 +1,7 @@
+**What to Know About the New Childhood Vaccine Schedule**\
+`The U.S. federal government slashed the number of diseases that all children are advised to be vaccinated against to 11 from 17.`\
+https://nytimes.com/2026/01/05/well/childhood-vaccine-schedule-cdc-changes.html
+
 **David R. Young, 89, Is Dead; Nixon Aide Steered the Watergate ‘Plumbers’**\
 `He took part in White House machinations to stop damning leaks of classified information and directed the break-in at the Democrats’ headquarters that undid a presidency.`\
 https://nytimes.com/2026/01/05/us/david-r-young-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/05/us/trump-venezuela-drug-cartel-de-los-soles.html
 **Vote on 17 Ways That Mayor Mamdani Could Improve New York**\
 `More housing and public toilets. Fewer trucks. We canvassed dozens of experts on ideas for making the built city more livable. What do you think?`\
 https://nytimes.com/interactive/2026/01/05/arts/design/mamdani-how-to-improve-new-york-vote.html
-
-**Rosenior travels to Strasbourg, closing in on Chelsea head coach role**\
-`Under-21s coach Calum McFarlane will take charge of Chelsea for their league game at Fulham on Wednesday.`\
-https://nytimes.com/athletic/6943306/2026/01/05/liam-rosenior-strasbourg-travel-chelsea-head-coach/
 
