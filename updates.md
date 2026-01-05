@@ -1,3 +1,5 @@
+
+
 **New Car Sales Are Rising Thanks to Purchases by the Well-Off**\
 `A larger proportion of new cars are being bought by affluent Americans as prices and interest rates for auto loans climb, analysts said.`\
 https://nytimes.com/2026/01/05/business/new-car-sales.html
