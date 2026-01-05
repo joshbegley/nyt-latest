@@ -1,3 +1,7 @@
+**David R. Young, 89, Is Dead; Nixon Aide Steered the Watergate ‘Plumbers’**\
+`He took part in White House machinations to stop damning leaks of classified information and directed the break-in at the Democrats’ headquarters that undid a presidency.`\
+https://nytimes.com/2026/01/05/us/david-r-young-dead.html
+
 **Minneapolis-Area Hotel Accused of Turning Away Immigration Agents**\
 `As the U.S. ramps up deportation efforts in Minnesota, the Department of Homeland Security claimed on social media that a Hampton Inn had canceled agents’ bookings.`\
 https://nytimes.com/2026/01/05/travel/hilton-hotel-reservations-minneapolis-minnesota-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/01/05/arts/design/mamdani-how-to-improve-ne
 **Rosenior travels to Strasbourg, closing in on Chelsea head coach role**\
 `Under-21s coach Calum McFarlane will take charge of Chelsea for their league game at Fulham on Wednesday.`\
 https://nytimes.com/athletic/6943306/2026/01/05/liam-rosenior-strasbourg-travel-chelsea-head-coach/
-
-**Why Joe Schoen is so confident Giants will attract top head-coach candidates**\
-`Schoen believes the Giants will be attractive to top coach candidates, in large part due to the presence of QB Jaxson Dart. `\
-https://nytimes.com/athletic/6943235/2026/01/05/giants-gm-joe-schoen-head-coach-search/
 

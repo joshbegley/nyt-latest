@@ -1,3 +1,7 @@
+**David R. Young, 89, Is Dead; Nixon Aide Steered the Watergate ‘Plumbers’**\
+`He took part in White House machinations to stop damning leaks of classified information and directed the break-in at the Democrats’ headquarters that undid a presidency.`\
+https://nytimes.com/2026/01/05/us/david-r-young-dead.html
+
 **Minneapolis-Area Hotel Accused of Turning Away Immigration Agents**\
 `As the U.S. ramps up deportation efforts in Minnesota, the Department of Homeland Security claimed on social media that a Hampton Inn had canceled agents’ bookings.`\
 https://nytimes.com/2026/01/05/travel/hilton-hotel-reservations-minneapolis-minnesota-immigration.html
