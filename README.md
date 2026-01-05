@@ -1,3 +1,11 @@
+**Blackhawks continue to defy expectations with another improbable but deserved win**\
+`Tyler Bertuzzi's hat trick goal in overtime sent the suddenly surging Blackhawks past the Golden Knights for seven points in four games.`\
+https://nytimes.com/athletic/6941122/2026/01/04/blackhawks-defy-expectations-bertuzzi-hat-trick/
+
+**Giannis Antetokounmpo, Bucks beating bad opponents, but still stacking wins**\
+`Antetokounmpo led the Bucks with 37 points and 11 rebounds in 31 minutes, the most minutes he has played since getting back on the floor.`\
+https://nytimes.com/athletic/6941206/2026/01/04/bucks-giannis-winning-streak-targets-kings/
+
 **Steelers win AFC North, eliminate Ravens with Aaron Rodgers-led rally**\
 `The Steelers will host the Texans in a wild-card game next week on "Monday Night Football." `\
 https://nytimes.com/athletic/6941023/2026/01/04/ravens-steelers-score-result-takeaways-afc-north-title/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6939812/2026/01/04/chiefs-travis-kelce-last-game-20
 **Bears back their way into No. 2 seed, but are playing like a playoff 1-and-done**\
 `Chicago will host Green Bay in the first round on Saturday night, but two losses and two bad defensive performances in a row are concerning.`\
 https://nytimes.com/athletic/6940977/2026/01/04/bears-lions-nfl-playoffs-no-2-seed/
-
-**Broncos aren't a perfect No. 1 seed, but can reach Super Bowl in wide-open field**\
-`The Broncos have their flaws, but they have also shown an ability to overcome them time and again. It earned them the No. 1 seed Sunday.`\
-https://nytimes.com/athletic/6941079/2026/01/04/broncos-chargers-afc-playoffs-no-1-seed/
-
-**Cuba Says 32 of Its Citizens Died in Venezuela, Including Military Personnel**\
-`President Miguel Díaz-Canel said the casualties were from Cuba’s armed forces or interior ministry. The country is a longstanding ally of Venezuela.`\
-https://nytimes.com/2026/01/04/world/americas/cubans-killed-venezuela.html
 
