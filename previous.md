@@ -1,3 +1,11 @@
+**Dolphins QB Tua Tagovailoa open to a fresh start with a new team**\
+`Tagovailoa threw a career-high 15 interceptions in 2025. He was benched in favor of Quinn Ewers late in the season.`\
+https://nytimes.com/athletic/6943183/2026/01/05/dolphins-tua-tagovailoa-fresh-start-offseason-miami/
+
+**Rob Hunt has been out since Week 2, but Panthers could get him back for matchup vs. Rams**\
+`The Panthers opened Hunt's practice window Dec. 24 and he's been working toward a potential return since his Week 2 injury. `\
+https://nytimes.com/athletic/6942905/2026/01/05/panthers-playoffs-rams-injury-update-rob-hunt/
+
 **Corporation for Public Broadcasting Votes to Shut Down**\
 `Executives debated whether to allow the corporation to lie dormant after federal funding ended last year, but decided against it.`\
 https://nytimes.com/2026/01/05/business/media/corporation-for-public-broadcasting.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6943285/2026/01/05/jazz-vs-trail-blazers-stream-how
 **How to watch Kraken vs. Flames: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6943282/2026/01/05/kraken-vs-flames-stream-how-to-watch-jan-5/
-
-**How to watch Warriors vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6943280/2026/01/05/warriors-vs-clippers-stream-how-to-watch-jan-5/
-
-**How to watch Hornets vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6943273/2026/01/05/hornets-vs-thunder-stream-how-to-watch-jan-5/
 

@@ -1,3 +1,11 @@
+**Dolphins QB Tua Tagovailoa open to a fresh start with a new team**\
+`Tagovailoa threw a career-high 15 interceptions in 2025. He was benched in favor of Quinn Ewers late in the season.`\
+https://nytimes.com/athletic/6943183/2026/01/05/dolphins-tua-tagovailoa-fresh-start-offseason-miami/
+
+**Rob Hunt has been out since Week 2, but Panthers could get him back for matchup vs. Rams**\
+`The Panthers opened Hunt's practice window Dec. 24 and he's been working toward a potential return since his Week 2 injury. `\
+https://nytimes.com/athletic/6942905/2026/01/05/panthers-playoffs-rams-injury-update-rob-hunt/
+
 **Corporation for Public Broadcasting Votes to Shut Down**\
 `Executives debated whether to allow the corporation to lie dormant after federal funding ended last year, but decided against it.`\
 https://nytimes.com/2026/01/05/business/media/corporation-for-public-broadcasting.html
