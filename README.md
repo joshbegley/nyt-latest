@@ -1,5 +1,5 @@
 **Chelsea owners know what to expect by hiring from within, but only results will win doubters around**\
-`U21s coach McFarlane stepped in for the draw against City - but fans have been critical of the possible hiring of Strasbourg's Liam Rosenior`\
+`Calum McFarlane stepped in for the draw against City - but fans have been critical of the possible hiring of Strasbourg's Liam Rosenior`\
 https://nytimes.com/athletic/6941397/2026/01/05/chelsea-rosenior-maresca-successor/
 
 **Gunmen Raid Villages in Nigeria After U.S. Christmas Airstrike**\
