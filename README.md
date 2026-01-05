@@ -1,5 +1,17 @@
+**USMNT Player Tracker: Aaronson and McKennie on target, Campbell secures switch**\
+`It was a busy weekend for a selection of U.S. players in Europe, with goals scored and moves secured. Welcome to the USMNT Player Tracker`\
+https://nytimes.com/athletic/6942184/2026/01/05/usmnt-tracker-aaronson-mckennie-juventus-leeds/
+
+**How to watch Minnesota vs. Michigan women's basketball: Time, TV, streaming**\
+`Find out how to watch the Minnesota Golden Gophers play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6942642/2026/01/05/minnesota-vs-michigan-stream-how-to-watch-jan-5/
+
+**How to watch Nebraska vs. Ohio State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6942640/2026/01/05/nebraska-vs-ohio-state-stream-how-to-watch-jan-5/
+
 **Hegseth Starts Proceedings Against Sen. Mark Kelly Over His Remarks**\
-`Defense Secretary Pete Hegseth blasted the senator for his “seditious” remarks. Mr. Kelly said he had done nothing wrong and cited similar comments by Mr. Hegseth.`\
+`Defense Secretary Pete Hegseth blasted the senator for “seditious” remarks. Mr. Kelly said he had done nothing wrong and cited similar comments by Mr. Hegseth.`\
 https://nytimes.com/2026/01/05/us/politics/hegseth-mark-kelly.html
 
 **NFL wild-card odds: 4 games with close spreads including 2 toss-ups**\
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/05/opinion/trumps-venezuela-oil-chevron-inflation.ht
 **Let’s Take a Peek in the Pantry**\
 `Salmon and cherry tomato curry, blackened chicken breasts and vegetarian skillet chili put pantry and spice drawer staples to work.`\
 https://nytimes.com/2026/01/05/dining/lets-take-a-peek-in-the-pantry.html
-
-**Trump’s Harshest Republican Critics? Members Headed for the Exits.**\
-`It turns out that few things liberate Republicans to speak their minds about President Trump like the fact that they are departing Congress.`\
-https://nytimes.com/article/trump-republican-critics-lawmakers-exit.html
-
-**NBA Power Rankings: Celtics, Rockets are contenders; New Year's resolutions for all**\
-`Better health? All-Star recognition? Roster revamp? Here's what all 30 teams should aim for in 2026.`\
-https://nytimes.com/athletic/6942150/2026/01/05/nba-power-rankings-celtics-rockets-lakers-knicks/
-
-**Tottenham's Kudus likely to miss Bournemouth game with leg injury**\
-`The Ghana international was substituted in the 19th minute of Tottenham’s 1-1 draw against Sunderland on Sunday after going down injured.`\
-https://nytimes.com/athletic/6942528/2026/01/05/tottenham-mohammed-kudus-injury-update/
 
