@@ -1,3 +1,7 @@
+**Sanctioned Oil Tankers Flee Venezuela in Defiance of U.S. Blockade**\
+`The ships are using deceptive tactics as part of a seemingly coordinated attempt to bypass American naval forces in the region.`\
+https://nytimes.com/2026/01/05/world/americas/oil-tankers-venezuela-blockade.html
+
 **O'Neil in talks to become Strasbourg head coach as Rosenior nears Chelsea move**\
 `If O’Neil is appointed Strasbourg head coach, it will be the first time he has coached outside of England.`\
 https://nytimes.com/athletic/6941658/2026/01/05/chelsea-strasbourg-oneil-talks-rosenior/
