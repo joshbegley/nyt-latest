@@ -1,5 +1,5 @@
 **Greta Myers got DQed at U.S. speed skating trials. Then she got a second chance**\
-`Myers made contact with Brittany Bowe in their 1,500-meter heat Sunday at U.S. trials, prompting a DQ. Then she made the most of a redo try.`\
+`Myers made contact with Brittany Bowe in their 1,500-meter heat Sunday at U.S. trials, prompting a DQ. Then she made the most of a redo.`\
 https://nytimes.com/athletic/6940689/2026/01/04/greta-myers-us-olympics-speed-skating-dq-1500/
 
 **If Browns, Kevin Stefanski are parting ways, he'll be leaving a lot of bad things behind**\
