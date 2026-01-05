@@ -1,4 +1,12 @@
 **Greta Myers got DQed at U.S. speed skating trials. Then she got a second chance**\
+`Myers made contact with Brittany Bowe in their 1,500-meter heat Sunday at U.S. trials, prompting a DQ. Then she made the most of a redo.`\
+https://nytimes.com/athletic/6940689/2026/01/04/greta-myers-us-olympics-speed-skating-dq-1500/
+
+**Falcons fire head coach Raheem Morris, general manager Terry Fontenot**\
+`The Falcons fired Morris and Fontenot after the team's season-ending win. The franchise now has eight consecutive losing campaigns.`\
+https://nytimes.com/athletic/6871719/2026/01/04/falcons-fire-raheem-morris-coach-terry-fontenot-gm/
+
+**Greta Myers got DQed at U.S. speed skating trials. Then she got a second chance**\
 `Myers made contact with Brittany Bowe in their 1,500-meter heat Sunday at U.S. trials, prompting a DQ. Then she made the most of a redo try.`\
 https://nytimes.com/athletic/6940689/2026/01/04/greta-myers-us-olympics-speed-skating-dq-1500/
 
