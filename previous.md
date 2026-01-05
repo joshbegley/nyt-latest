@@ -1,3 +1,7 @@
+**Maduro Is the Latest High-Profile Client for His Lawyer, Barry Pollack**\
+`Mr. Pollack has also represented Julian Assange and an official of Enron.`\
+https://nytimes.com/2026/01/05/world/americas/barry-pollack-maduro-lawyer-assange.html
+
 **Justice Dept. Drops Claim That Venezuela’s ‘Cartel de los Soles’ Is an Actual Group**\
 `Last year, before capturing President Nicolás Maduro, the Trump administration designated a Venezuelan slang term for drug corruption in the military as a terrorist organization and said he led it.`\
 https://nytimes.com/2026/01/05/us/trump-venezuela-drug-cartel-de-los-soles.html
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6943192/2026/01/05/nuno-espirito-santo-west-ham-poo
 `His simple statement in federal court was aimed directly at contradictions in the Trump administration’s actions in the Caribbean.`\
 https://nytimes.com/2026/01/05/world/americas/maduro-court-appearance-pow.html
 
-**In 2019, an official said, Moscow offered to swap U.S. control of Venezuela for Russian free rein in Ukraine.**\
-`By Neil MacFarquhar`\
-https://nytimes.com/2026/01/06/world/americas/in-2019-an-official-said-moscow-offered-to-swap-us-control-of-venezuela-for-russian-free-rein-in-ukraine.html
+**Russia Once Offered U.S. Control of Venezuela for Free Rein in Ukraine**\
+`The exchange offer was recounted at the time in congressional testimony by Fiona Hill, who ran Russian and European affairs on the National Security Council during the first Trump administration.`\
+https://nytimes.com/2026/01/06/world/americas/russia-us-venezuela-ukraine.html
 
 **Entering the Antarctic Sea Ice, and a New World**\
 `After 10 days with only the open ocean and the occasional iceberg at our sides, sailing into the sea ice felt like crossing into a whole new realm.`\
 https://nytimes.com/2026/01/05/climate/antarctica-expedition-sea-ice.html
-
-**Chevron’s Risky Bet to Stay in Venezuela May Now Give It an Advantage**\
-`The second-largest U.S. oil company, which kept pumping oil in the country after others left, could find it relatively easy to expand its operations if the political conditions there improve.`\
-https://nytimes.com/2026/01/05/business/energy-environment/venezuela-chevron-trump-oil.html
 

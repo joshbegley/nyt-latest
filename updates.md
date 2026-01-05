@@ -1,3 +1,11 @@
+**Maduro Is the Latest High-Profile Client for His Lawyer, Barry Pollack**\
+`Mr. Pollack has also represented Julian Assange and an official of Enron.`\
+https://nytimes.com/2026/01/05/world/americas/barry-pollack-maduro-lawyer-assange.html
+
+**Russia Once Offered U.S. Control of Venezuela for Free Rein in Ukraine**\
+`The exchange offer was recounted at the time in congressional testimony by Fiona Hill, who ran Russian and European affairs on the National Security Council during the first Trump administration.`\
+https://nytimes.com/2026/01/06/world/americas/russia-us-venezuela-ukraine.html
+
 **Justice Dept. Drops Claim That Venezuela’s ‘Cartel de los Soles’ Is an Actual Group**\
 `Last year, before capturing President Nicolás Maduro, the Trump administration designated a Venezuelan slang term for drug corruption in the military as a terrorist organization and said he led it.`\
 https://nytimes.com/2026/01/05/us/trump-venezuela-drug-cartel-de-los-soles.html
