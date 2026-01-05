@@ -1,3 +1,7 @@
+**This Isn’t Regime Change. It’s Extortion.**\
+`To understand what’s unfolding in Venezuela, you have to look to the mob, not traditional foreign policy doctrines.`\
+https://nytimes.com/2026/01/05/opinion/trump-venezuela-regime-change.html
+
 **Salah is enjoying a rare dose of tranquillity with Egypt at the Africa Cup of Nations**\
 `The Pharaohs have had organisational issues at previous tournaments but this time all is set up for them to succeed on the pitch`\
 https://nytimes.com/athletic/6943045/2026/01/05/mohamed-salah-egypt-afcon-morocco/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6942814/2026/01/05/darren-fletcher-manchester-unite
 **Kennedy Scales Back the Number of Vaccines Recommended for Children**\
 `Federal health officials now recommend that children be routinely inoculated against 11 diseases, not 17, citing standards in other wealthy nations.`\
 https://nytimes.com/2026/01/05/health/children-vaccines-cdc-kennedy.html
-
-**Milwaukee Bucks president Peter Feigin transitioning out of role**\
-`Peter Feigin will help with the transition as Josh Glessing takes over as president and begins overseeing the Bucks' business operations.`\
-https://nytimes.com/athletic/6942952/2026/01/05/milwaukee-bucks-president-peter-feigin/
 
