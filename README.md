@@ -1,3 +1,7 @@
+**When Fashion Designers and Financiers Need a Suit, They Go to Him**\
+`At just 32, Ralph Fitzgerald, a raffish Brit with the look of a Guy Ritchie character, has become the tailor to movie stars, financial executives and Marc Jacobs.`\
+https://nytimes.com/2026/01/05/style/ralph-fitzgerald-bespoke-suits-manhattan.html
+
 **One Sleep Habit Experts Wish You Would Adopt**\
 `Working this overlooked practice into your sleep routine could have real benefits for your health.`\
 https://nytimes.com/2026/01/05/well/health-benefits-sleep-consistency.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6942338/2026/01/05/falcons-matt-ryan-arthur-blank-c
 https://nytimes.com/2026/01/05/us/jd-vance-home-damage-cincinnati-arrest.html
 
 **Tim Walz Drops Bid for Third Term and Amy Klobuchar May Run Instead**\
-`Mr. Walz and Ms. Klobuchar met Sunday in Minnesota, where he informed her of his plans and she confirmed her interest in running to replace him.`\
+`Mr. Walz and Ms. Klobuchar met on Sunday in Minnesota, where he informed her of his plans and she confirmed her interest in running to succeed him as governor.`\
 https://nytimes.com/2026/01/05/us/walz-governor-fraud-klobuchar.html
 
 **Browns fire coach Kevin Stefanski after 6 seasons**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6939913/2026/01/05/dallas-turner-vikings-packers-sa
 **Inside Barcelona: Ake, Cancelo transfer links — will they take advantage of Christensen's injury?**\
 `Christensen's long-term knee injury could force Barcelona into the market for a defender`\
 https://nytimes.com/athletic/6942151/2026/01/05/inside-barcelona-ake-cancelo-christensen-transfers/
-
-**The Pulse: The NFL playoff bracket is set**\
-`The Athletic has live coverage of Bears vs.`\
-https://nytimes.com/athletic/6939473/2026/01/05/nfl-playoff-bracket-the-pulse/
 
