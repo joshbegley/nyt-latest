@@ -1,3 +1,7 @@
+**A preview of The Athletic’s live coverage this week**\
+`The Athletic's live coverage this week includes the start of the NFL playoffs and the semifinals of the College Football Playoff.`\
+https://nytimes.com/athletic/6939906/2026/01/05/nfl-playoffs-cfp-afcon/
+
 **Projecting each NFL playoff team’s odds to win Super Bowl, with wild-card matchup analysis**\
 `The Broncos and Seahawks have next week off, but 12 NFL wild-card teams will be fighting to keep their Super Bowl dreams alive.`\
 https://nytimes.com/athletic/6931898/2026/01/05/nfl-playoff-chances-matchups-super-bowl-odds/
@@ -9,6 +13,10 @@ https://nytimes.com/athletic/6941257/2026/01/05/kaleb-blaha-joe-burrows-ncaa-sta
 **Brennan Johnson played well but Newcastle loss shows Crystal Palace need more signings**\
 `Record buy Brennan Johnson is direct and scores goals, but Oliver Glasner will still expect further new arrivals imminently`\
 https://nytimes.com/athletic/6934183/2026/01/05/crystal-palace-signings-newcastle-loss-analysis/
+
+**Creativity, leadership, experience: Why Brighton signing Pascal Gross makes sense**\
+`During his second spell at Brighton, Pascal Gross will add much-needed creativity to the midfield and will be a plus in the dressing room`\
+https://nytimes.com/athletic/6937105/2026/01/05/pascal-gross-brighton-burnley-analysis/
 
 **Leeds should start looking up, not down**\
 `Daniel Farke's team do not look like a side in relegation trouble and should feel optimistic about the second half of the season`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6935623/2026/01/05/sam-smith-kieffer-moore-wrexham-
 **The Briefing: Is Amorim to blame for Man Utd's dysfunction? Could Nuno make unwanted history?**\
 `Oliver Kay analyses the main talking points from the weekend, including managerial turbulence at more than one Premier League club`\
 https://nytimes.com/athletic/6938896/2026/01/05/the-briefing-amorim-nuno-manchester-city/
-
-**Amorim's position at Manchester United is feeling increasingly untenable**\
-`Taking aim at your paymasters is a dangerous game for a manager with a poor overall record`\
-https://nytimes.com/athletic/6940070/2026/01/05/ruben-amorim-manchester-united-position-untenable/
-
-**Manchester City have a stability Chelsea can only dream of. But for how long?**\
-`The two teams met on Sunday but there was a fascinating subplot involving City's manager and Chelsea's former head coach`\
-https://nytimes.com/athletic/6940090/2026/01/05/manchester-city-chelsea-guardiola-maresca/
 
