@@ -22,9 +22,9 @@ https://nytimes.com/athletic/6940977/2026/01/04/bears-lions-nfl-playoffs-no-2-se
 `The Broncos have their flaws, but they have also shown an ability to overcome them time and again. It earned them the No. 1 seed Sunday.`\
 https://nytimes.com/athletic/6941079/2026/01/04/broncos-chargers-afc-playoffs-no-1-seed/
 
-**Cuba says 32 of its citizens were killed in Venezuela, including military personnel.**\
-`By Jack Nicas`\
-https://nytimes.com/2026/01/04/world/cuba-says-32-of-its-citizens-were-killed-in-venezuela-including-military-personnel.html
+**Cuba Says 32 of Its Citizens Died in Venezuela, Including Military Personnel**\
+`President Miguel Díaz-Canel said the casualties were from Cuba’s armed forces or interior ministry. The country is a longstanding ally of Venezuela.`\
+https://nytimes.com/2026/01/04/world/americas/cubans-killed-venezuela.html
 
 **After ugly loss, Bears head into the playoffs with an aggravated edge**\
 `A remarkable regular season ended on a sour note for the Bears, presenting a demanding resetting process as the playoffs arrive.`\

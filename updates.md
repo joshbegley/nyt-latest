@@ -1,3 +1,7 @@
+**Cuba Says 32 of Its Citizens Died in Venezuela, Including Military Personnel**\
+`President Miguel Díaz-Canel said the casualties were from Cuba’s armed forces or interior ministry. The country is a longstanding ally of Venezuela.`\
+https://nytimes.com/2026/01/04/world/americas/cubans-killed-venezuela.html
+
 **Commanders end brutal season with moment of joy for three veteran players**\
 `Bobby Wagner, Josh Johnson and Von Miller reached significant milestones to cap a tough season in Washington.`\
 https://nytimes.com/athletic/6939191/2026/01/04/commanders-bobby-wagner-josh-johnson-von-miller/
