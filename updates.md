@@ -1,3 +1,11 @@
+**So, Your House Is Stinky. Here’s How to Fix It. **\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/so-your-house-is-stinky-heres-how-to-fix-it-
+
+**After four straight Falcons wins, what's next? The answer could be up to Matt Ryan**\
+`The Falcons won their fourth straight game on Sunday, but head coach Raheem Morris doesn't know if it's enough to save his job.`\
+https://nytimes.com/athletic/6940377/2026/01/04/matt-ryan-falcons-saints-raheem-morris-terry-fontenot/
+
 **Edmundo González, regarded as the winner of the 2024 vote, says he is president of Venezuela.**\
 `The`\
 https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/edmundo-gonzalez-regarded-as-the-winner-of-the-2024-vote-says-he-is-president-of-venezuela
