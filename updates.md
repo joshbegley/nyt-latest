@@ -1,3 +1,7 @@
+**How Maduro’s Capture Could Reshape the Global Order**\
+`The U.S. seizure of Venezuela’s president has governments, executives and investors bracing for wide-reaching business and geopolitical fallout.`\
+https://nytimes.com/2026/01/05/business/dealbook/venezuela-trump-oil-global-order.html
+
 **Inside Real Madrid: Gonzalo hat-trick eases pressure on Alonso with all eyes on Supercopa**\
 `Our reporters on the latest at Madrid, including how a spate of recent injuries is seen within the club and proposed ownership model changes`\
 https://nytimes.com/athletic/6942102/2026/01/05/inside-real-madrid-gonzalo-garcia-xabi-alonso/
