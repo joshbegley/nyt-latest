@@ -1,3 +1,7 @@
+**Who Is Delcy Rodríguez?**\
+`Ms. Rodríguez, who is leading Venezuela after the U.S. captured Nicolás Maduro, established a reputation as a shrewd operator guiding the country’s economy.`\
+https://nytimes.com/2026/01/05/world/americas/venezuela-president-delcy-rodriguez.html
+
 **Gustavo Petro reprueba las amenazas de Trump contra Colombia**\
 `El presidente colombiano pidió a su pueblo que lo defienda “de cualquier acto violento ilegítimo”. Su ministro de Defensa subrayó que continuaba la cooperación en seguridad con Washington.`\
 https://nytimes.com/2026/01/05/espanol/america-latina/petro-trump-colombia.html
