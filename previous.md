@@ -1,3 +1,15 @@
+**'He cares about the club': What Fletcher will offer Man Utd as interim manager**\
+`The Scot served Old Trafford superbly as a player and feels the natural fit to steady the club in a turbulent week`\
+https://nytimes.com/athletic/6942814/2026/01/05/darren-fletcher-manchester-united-interim-manager/
+
+**Kennedy Scales Back the Number of Vaccines Recommended for Children**\
+`Federal health officials now recommend that children be routinely inoculated against 11 diseases, not 17, citing standards in other wealthy nations.`\
+https://nytimes.com/2026/01/05/health/children-vaccines-cdc-kennedy.html
+
+**Milwaukee Bucks president Peter Feigin transitioning out of role**\
+`Peter Feigin will help with the transition as Josh Glessing takes over as president and begins overseeing the Bucks' business operations.`\
+https://nytimes.com/athletic/6942952/2026/01/05/milwaukee-bucks-president-peter-feigin/
+
 **Scotland set to create bank holiday in honour of first men's World Cup appearance in 28 years**\
 `The bank holiday would fall on June 15, one day after their first group-stage game against Haiti. `\
 https://nytimes.com/athletic/6942955/2026/01/05/scotland-world-cup-bank-holiday/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/05/business/oil-stocks-venezuela.html
 **The Best Movies and TV Shows Coming to Disney+, Amazon, HBO Max, Peacock and More in January**\
 `“The Pitt” Season 2, “Star Trek: Starfleet Academy,” “The Beauty,” “Wonder Man,” “Shrinking” Season 3 and more arrive.`\
 https://nytimes.com/2026/01/05/arts/television/movies-tv-shows-january-2026-streaming.html
-
-**‘One Battle After Another’ Takes Best Picture at Critics Choice Awards**\
-`“One Battle After Another” claimed its first televised trophies on Sunday, earning the best-picture prize and two more. Timothée Chalamet and Jessie Buckley took home major acting awards.`\
-https://nytimes.com/video/arts/television/100000010624361/one-battle-after-another-takes-best-picture-at-critics-choice-awards.html
-
-**Cusack inquest adjourned, Sheff Utd deny lawyers' claims of 'totally unacceptable' delays**\
-`A six-day inquest into the 27-year-old's death was due to begin on Monday but a new provisional date has been set for June 29.`\
-https://nytimes.com/athletic/6942527/2026/01/05/maddy-cusack-sheffield-united-delay-inquest/
-
-**Kenny Minchey is just the start for Nebraska in a whirlwind portal season: 5 thoughts**\
-`Minchey is the early favorite to win the job and start against Ohio on Sept. 5, but he'll face competition from TJ Lateef.`\
-https://nytimes.com/athletic/6942782/2026/01/05/nebraska-transfer-portal-kenny-minchey-matt-rhule/
 

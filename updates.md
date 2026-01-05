@@ -1,3 +1,15 @@
+**'He cares about the club': What Fletcher will offer Man Utd as interim manager**\
+`The Scot served Old Trafford superbly as a player and feels the natural fit to steady the club in a turbulent week`\
+https://nytimes.com/athletic/6942814/2026/01/05/darren-fletcher-manchester-united-interim-manager/
+
+**Kennedy Scales Back the Number of Vaccines Recommended for Children**\
+`Federal health officials now recommend that children be routinely inoculated against 11 diseases, not 17, citing standards in other wealthy nations.`\
+https://nytimes.com/2026/01/05/health/children-vaccines-cdc-kennedy.html
+
+**Milwaukee Bucks president Peter Feigin transitioning out of role**\
+`Peter Feigin will help with the transition as Josh Glessing takes over as president and begins overseeing the Bucks' business operations.`\
+https://nytimes.com/athletic/6942952/2026/01/05/milwaukee-bucks-president-peter-feigin/
+
 **Scotland set to create bank holiday in honour of first men's World Cup appearance in 28 years**\
 `The bank holiday would fall on June 15, one day after their first group-stage game against Haiti. `\
 https://nytimes.com/athletic/6942955/2026/01/05/scotland-world-cup-bank-holiday/
