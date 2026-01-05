@@ -1,3 +1,27 @@
+**UW-River Falls upsets North Central for DIII title as Kaleb Blaha breaks Joe Burrow's record**\
+`The quarterback led the Falcons to a shocking championship victory in the school's first playoffs in nearly 30 years.`\
+https://nytimes.com/athletic/6941257/2026/01/05/kaleb-blaha-joe-burrows-ncaa-stagg-bowl/
+
+**Brennan Johnson played well but Newcastle loss shows Crystal Palace need more signings**\
+`Record buy Brennan Johnson is direct and scores goals, but Oliver Glasner will still expect further new arrivals imminently`\
+https://nytimes.com/athletic/6934183/2026/01/05/crystal-palace-signings-newcastle-loss-analysis/
+
+**Leeds should start looking up, not down**\
+`Daniel Farke's team do not look like a side in relegation trouble and should feel optimistic about the second half of the season`\
+https://nytimes.com/athletic/6939472/2026/01/05/leeds-premier-league-relegation-safety/
+
+**The 'incredible' Lewis Miley deserves to start against Leeds. But where?**\
+`Eddie Howe still considers the teenager a midfielder, but he's shown his worth at full-back too`\
+https://nytimes.com/athletic/6938826/2026/01/05/the-incredible-lewis-miley-deserves-to-start-against-leeds-but-where/
+
+**Everton need recruits if their stop-start season is to take off. But will they get them?**\
+`David Moyes' side have been very inconsistent and perhaps only a foray in the January transfer window will see their fortunes improve`\
+https://nytimes.com/athletic/6939734/2026/01/05/everton-premier-league-january-transfer-window/
+
+**Sam Smith has filled Wrexham's Kieffer Moore-shaped hole with two superb all-round displays**\
+`Fears that the injury to the Welsh club's talisman could derail their play-off bid have been eased by his impressive replacement`\
+https://nytimes.com/athletic/6935623/2026/01/05/sam-smith-kieffer-moore-wrexham-championship/
+
 **The Briefing: Is Amorim to blame for Man Utd's dysfunction? Could Nuno make unwanted history?**\
 `Oliver Kay analyses the main talking points from the weekend, including managerial turbulence at more than one Premier League club`\
 https://nytimes.com/athletic/6938896/2026/01/05/the-briefing-amorim-nuno-manchester-city/

@@ -1,5 +1,9 @@
+**Projecting each NFL playoff team’s odds to win Super Bowl, with wild-card matchup analysis**\
+`The Broncos and Seahawks have next week off, but 12 NFL wild-card teams will be fighting to keep their Super Bowl dreams alive.`\
+https://nytimes.com/athletic/6931898/2026/01/05/nfl-playoff-chances-matchups-super-bowl-odds/
+
 **UW-River Falls upsets North Central for DIII title as Kaleb Blaha breaks Joe Burrow's record**\
-`The quarterback led the Falcons to a shocking championship victory in the school's first playoffs in nearly 30 years.`\
+`The Falcons quarterback broke the former LSU star's record for total yards in a season to lead the upset victory.`\
 https://nytimes.com/athletic/6941257/2026/01/05/kaleb-blaha-joe-burrows-ncaa-stagg-bowl/
 
 **Brennan Johnson played well but Newcastle loss shows Crystal Palace need more signings**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6940070/2026/01/05/ruben-amorim-manchester-united-p
 **Manchester City have a stability Chelsea can only dream of. But for how long?**\
 `The two teams met on Sunday but there was a fascinating subplot involving City's manager and Chelsea's former head coach`\
 https://nytimes.com/athletic/6940090/2026/01/05/manchester-city-chelsea-guardiola-maresca/
-
-**Holographic players, LED walls and virtual seating: Welcome to the future of football stadiums**\
-`If this is currently the era of football stadia 3.0, where could architects go in the next 20 years?`\
-https://nytimes.com/athletic/6904251/2026/01/05/football-stadiums-future/
 
