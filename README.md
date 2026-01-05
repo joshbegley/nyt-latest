@@ -1,3 +1,15 @@
+**Maduro’s Arraignment Begins as U.N. and Protesters Speak Out**\
+`As Nicolás Maduro, the ousted leader of Venezuela and his wife faced charges in a federal court in Lower Manhattan on Monday, protesters and global leaders responded with mixed thoughts.`\
+https://nytimes.com/video/world/americas/100000010624516/venezuela-react-maduro-arraignment.html
+
+**Cardinals' firing of Jonathan Gannon says more about them than the head coach**\
+`At most places, a coaching change provides relief, the ending of one sour chapter and the fresh start of another. That's not the case here.`\
+https://nytimes.com/athletic/6943463/2026/01/05/cardinals-jonathan-gannon-fired-arizona-nfl/
+
+**A Revival of Venezuela’s Oil Industry Poses a Challenge for Canada**\
+`The two countries both produce heavy oil, which is difficult to refine, and have relied historically on American refineries to buy it.`\
+https://nytimes.com/2026/01/05/world/americas/venezuela-oil-industry-canada.html
+
 **What to Know About the New Childhood Vaccine Schedule**\
 `The U.S. federal government slashed the number of diseases that all children are advised to be vaccinated against to 11 from 17.`\
 https://nytimes.com/2026/01/05/well/childhood-vaccine-schedule-cdc-changes.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/05/us/politics/trump-democrats-gop-midterms-venezuel
 **Maduro Pleads Not Guilty**\
 `Also, health officials scaled back the number of vaccines recommended for children. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2026/01/05/briefing/maduro-pleads-not-guilty.html
-
-**Maduro Is the Latest High-Profile Client for His Lawyer, Barry Pollack**\
-`Mr. Pollack has also represented Julian Assange and an official of Enron.`\
-https://nytimes.com/2026/01/05/world/americas/barry-pollack-maduro-lawyer-assange.html
-
-**Justice Dept. Drops Claim That Venezuela’s ‘Cartel de los Soles’ Is an Actual Group**\
-`Last year, before capturing President Nicolás Maduro, the Trump administration designated a Venezuelan slang term for drug corruption in the military as a terrorist organization and said he led it.`\
-https://nytimes.com/2026/01/05/us/trump-venezuela-drug-cartel-de-los-soles.html
-
-**Vote on 17 Ways That Mayor Mamdani Could Improve New York**\
-`More housing and public toilets. Fewer trucks. We canvassed dozens of experts on ideas for making the built city more livable. What do you think?`\
-https://nytimes.com/interactive/2026/01/05/arts/design/mamdani-how-to-improve-new-york-vote.html
 

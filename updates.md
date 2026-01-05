@@ -1,3 +1,7 @@
+**What to Know About the New Childhood Vaccine Schedule**\
+`The U.S. federal government slashed the number of diseases that all children are advised to be vaccinated against to 11 from 17.`\
+https://nytimes.com/2026/01/05/well/childhood-vaccine-schedule-cdc-changes.html
+
 **David R. Young, 89, Is Dead; Nixon Aide Steered the Watergate ‘Plumbers’**\
 `He took part in White House machinations to stop damning leaks of classified information and directed the break-in at the Democrats’ headquarters that undid a presidency.`\
 https://nytimes.com/2026/01/05/us/david-r-young-dead.html
