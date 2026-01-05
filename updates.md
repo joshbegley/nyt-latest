@@ -1,3 +1,11 @@
+**Astros owner Jim Crane won't commit to retaining Dana Brown, Joe Espada after 2026 season**\
+`“We’ll go through this year like we always do, evaluate and make a decision at the end of the year,” Crane said of Brown and Espada.`\
+https://nytimes.com/athletic/6943210/2026/01/05/astros-owner-jim-crane-dana-brown-joe-espada/
+
+**The Briefing: Nigeria 4 Mozambique 0 - can anyone stop Osimhen and co? How vital is Iwobi?**\
+`Our writers analyse the main talking points from Nigeria's Africa Cup of Nations last-16 victory`\
+https://nytimes.com/athletic/6943136/2026/01/05/nigeria-mozambique-afcon-analysis/
+
 **49ers LBs reeling with injuries, Fred Warner not yet ready to return**\
 `The 49ers lost another linebacker and could be down two more. Meanwhile, Trent Williams' and Ricky Pearsall's statuses are to be determined.`\
 https://nytimes.com/athletic/6943215/2026/01/05/49ers-injuries-fred-warner-tatum-bethune-trent-williams/
