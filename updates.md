@@ -1,3 +1,19 @@
+**Guardiola says ‘it doesn’t look good’ on Gvardiol, Dias injuries**\
+`Both players were substituted in the second half of City’s 1-1 draw with Chelsea on Sunday.`\
+https://nytimes.com/athletic/6941918/2026/01/05/manchester-city-dias-gvardiol-injuries/
+
+**Amorim had grand ideas for Manchester United. The reality was simply grim**\
+`The virtues of United's first ever 'head coach' quickly turned to vices in a tenure that failed to live up to expectations`\
+https://nytimes.com/athletic/6320716/2026/01/05/ruben-amorim-manchester-united-fired-why/
+
+**Tina Brown Thinks the Über-Rich Have It Coming**\
+`Tina Brown, the longtime editor and chronicler of the elite, says she’s liberated and is letting it rip.`\
+https://nytimes.com/video/podcasts/100000010624223/tina-brown-thinks-the-uber-rich-have-it-coming.html
+
+**10 Are Convicted of Cyberbullying France’s First Lady**\
+`The defendants made false claims about Brigitte Macron, the wife of President Emmanuel Macron of France.`\
+https://nytimes.com/2026/01/05/world/europe/france-brigitte-macron-cyberbullying-trial-owens.html
+
 **10 Convicted of Cyberbullying France’s First Lady**\
 `The defendants made false claims about Brigitte Macron, the wife of President Emmanuel Macron of France.`\
 https://nytimes.com/2026/01/05/world/europe/france-brigitte-macron-cyberbullying-trial-owens.html

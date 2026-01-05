@@ -1,4 +1,16 @@
-**10 Convicted of Cyberbullying France’s First Lady**\
+**Guardiola says ‘it doesn’t look good’ on Gvardiol, Dias injuries**\
+`Both players were substituted in the second half of City’s 1-1 draw with Chelsea on Sunday.`\
+https://nytimes.com/athletic/6941918/2026/01/05/manchester-city-dias-gvardiol-injuries/
+
+**Amorim had grand ideas for Manchester United. The reality was simply grim**\
+`The virtues of United's first ever 'head coach' quickly turned to vices in a tenure that failed to live up to expectations`\
+https://nytimes.com/athletic/6320716/2026/01/05/ruben-amorim-manchester-united-fired-why/
+
+**Tina Brown Thinks the Über-Rich Have It Coming**\
+`Tina Brown, the longtime editor and chronicler of the elite, says she’s liberated and is letting it rip.`\
+https://nytimes.com/video/podcasts/100000010624223/tina-brown-thinks-the-uber-rich-have-it-coming.html
+
+**10 Are Convicted of Cyberbullying France’s First Lady**\
 `The defendants made false claims about Brigitte Macron, the wife of President Emmanuel Macron of France.`\
 https://nytimes.com/2026/01/05/world/europe/france-brigitte-macron-cyberbullying-trial-owens.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6941851/2026/01/05/falcons-fire-raheem-morris-win-s
 **Seahawks the Super Bowl favorite? Who wins wide-open AFC playoff race? Pick Six**\
 `The stage is set for the most unpredictable playoffs in years, especially in the AFC. Coaches and execs helped us break down the field.`\
 https://nytimes.com/athletic/6923819/2026/01/05/nfl-playoffs-afc-nfc-seahawks-patriots-bills-broncos/
-
-**The Jets' season was miserable, but Aaron Glenn is staying. Who will return with him?**\
-`An early look at how the 2026 Jets might begin to take shape.`\
-https://nytimes.com/athletic/6941508/2026/01/05/new-york-jets-aaron-glenn-returning-players/
-
-**Mike Tomlin's Steelers get their Ravens redemption — and a shot in the wide-open playoffs**\
-`It was a wild win — with the post-game locker-room scene to match — on Sunday night in Pittsburgh.`\
-https://nytimes.com/athletic/6941716/2026/01/05/pittsburgh-steelers-mike-tomlin-ravens-win-playoffs/
-
-**Bills' Highmark Stadium farewell a picture-perfect, uniquely Buffalo celebration**\
-`Bills fans, legends and players all soaked up the scene in Orchard Park.`\
-https://nytimes.com/athletic/6941272/2026/01/05/bills-highmark-stadium-farewell-game-jets/
 
