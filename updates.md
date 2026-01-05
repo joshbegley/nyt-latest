@@ -1,3 +1,7 @@
+**Fierce Storm Expected to Wallop Hawaiian Islands**\
+`Strong winds will make travel difficult on Monday, and forecasters warned of more than half a foot of snow on some mountains.`\
+https://nytimes.com/2026/01/05/weather/hawaii-storm-rain-forecast.html
+
 **Scoop City: Final playoff picture and draft order takeaways**\
 `A first-look at the 2026 playoff picture, plus NFL Draft order, team needs and coaches to watch on Black Monday`\
 https://nytimes.com/athletic/6942808/2026/01/05/nfl-playoff-bracket-draft-order-2026-seahawks-raiders/
