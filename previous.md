@@ -1,3 +1,7 @@
+**J.J. McCarthy's early exit in Week 18 win underscores Vikings' uncertain future at QB**\
+`The Vikings got a little bit of everything from McCarthy on Sunday — the good and the bad. But it's still not clear what they have.`\
+https://nytimes.com/athletic/6940700/2026/01/04/jj-mccarthy-vikings-packers-qb-future/
+
 **Venezuela’s acting president calls for dialogue and ‘coexistence’ with the U.S.**\
 `By Frances Robles`\
 https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/venezuelas-acting-president-calls-for-dialogue-and-coexistence-with-the-us
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6940845/2026/01/04/oregon-vs-indiana-stream-how-to-
 **Falcons fire head coach Raheem Morris, general manager Terry Fontenot**\
 `The Falcons fired Morris and Fontenot after the team's season-ending win. The franchise now has eight consecutive losing campaigns.`\
 https://nytimes.com/athletic/6871719/2026/01/04/falcons-fire-raheem-morris-coach-terry-fontenot-gm/
-
-**Giants owners demanded improvement and didn't get it, so Joe Schoen's fate should be clear**\
-`The bar to make progress was incredibly low after a three-win season, but the roster built by Schoen still could barely clear it.`\
-https://nytimes.com/athletic/6936547/2026/01/04/ny-giants-joe-shoen-john-mara-fired/
 
