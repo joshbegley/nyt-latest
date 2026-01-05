@@ -1,3 +1,11 @@
+**The Best Movies and TV Shows Coming to Disney+, Amazon, HBO Max, Peacock and More in January**\
+`“The Pitt” Season 2, “Star Trek: Starfleet Academy,” “The Beauty,” “Wonder Man,” “Shrinking” Season 3 and more arrive.`\
+https://nytimes.com/2026/01/05/arts/television/movies-tv-shows-january-2026-streaming.html
+
+**‘One Battle After Another’ Takes Best Picture at Critics Choice Awards**\
+`“One Battle After Another” claimed its first televised trophies on Sunday, earning the best-picture prize and two more. Timothée Chalamet and Jessie Buckley took home major acting awards.`\
+https://nytimes.com/video/arts/television/100000010624361/one-battle-after-another-takes-best-picture-at-critics-choice-awards.html
+
 **Cusack inquest adjourned, Sheff Utd deny lawyers' claims of 'totally unacceptable' delays**\
 `A six-day inquest into the 27-year-old's death was due to begin on Monday but a new provisional date has been set for June 29.`\
 https://nytimes.com/athletic/6942527/2026/01/05/maddy-cusack-sheffield-united-delay-inquest/
