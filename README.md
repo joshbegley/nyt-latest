@@ -1,3 +1,7 @@
+**Giants owners demanded improvement and didn't get it, so Joe Schoen’s fate should be clear**\
+`The bar to make progress was incredibly low after a three-win season, but the roster built by Schoen still could barely clear it.`\
+https://nytimes.com/athletic/6936547/2026/01/04/ny-giants-joe-shoen-john-mara-fired/
+
 **Joe Burrow sets stage for 2026 as pressure mounts in Bengals’ playoff drought**\
 `The defense needs closers and the front office must address that in the draft and free agency.`\
 https://nytimes.com/athletic/6940623/2026/01/04/bengals-joe-burrow-playoff-drought-browns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6940374/2026/01/04/lions-bears-score-result-takeawa
 **Buffalo gets one last win in Highmark Stadium: Bills-Jets takeaways**\
 `The Bills will travel to play the Jacksonville Jaguars in the first round of the playoffs.`\
 https://nytimes.com/athletic/6940369/2026/01/04/jets-bills-score-result-takeaways-nfl-week-18/
-
-**10-Minute Challenge: An Artist in Greenland**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://nytimes.com/interactive/2026/01/04/upshot/ten-minute-challenge-greenland.html
 

@@ -1,3 +1,7 @@
+**Joe Burrow sets stage for 2026 as pressure mounts in Bengals’ playoff drought**\
+`The defense needs closers and the front office must address that in the draft and free agency.`\
+https://nytimes.com/athletic/6940623/2026/01/04/bengals-joe-burrow-playoff-drought-browns/
+
 **True to form, Blue Jackets choke away late lead in frustrating OT loss to Penguins**\
 `For the third straight game against the Penguins this season, the Blue Jackets blew a late lead to fall in extra time.`\
 https://nytimes.com/athletic/6940370/2026/01/04/blue-jackets-late-lead-loss-penguins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6940369/2026/01/04/jets-bills-score-result-takeaway
 **10-Minute Challenge: An Artist in Greenland**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2026/01/04/upshot/ten-minute-challenge-greenland.html
-
-**Trump’s Move for Regime Change in Venezuela Threatens a New MAGA Rift**\
-`Some Republicans are asking how Mr. Trump’s military intervention in Venezuela squares with his past pledges to avoid foreign entanglements and nation building.`\
-https://nytimes.com/2026/01/04/us/politics/trump-republicans-venezuela.html
 

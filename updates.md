@@ -1,3 +1,7 @@
+**Joe Burrow sets stage for 2026 as pressure mounts in Bengals’ playoff drought**\
+`The defense needs closers and the front office must address that in the draft and free agency.`\
+https://nytimes.com/athletic/6940623/2026/01/04/bengals-joe-burrow-playoff-drought-browns/
+
 **True to form, Blue Jackets choke away late lead in frustrating OT loss to Penguins**\
 `For the third straight game against the Penguins this season, the Blue Jackets blew a late lead to fall in extra time.`\
 https://nytimes.com/athletic/6940370/2026/01/04/blue-jackets-late-lead-loss-penguins/
