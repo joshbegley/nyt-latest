@@ -1,40 +1,40 @@
-**Ruben Amorim sacked by Manchester United**\
-`Former midfielder and current Under-18s coach Darren Fletcher is set to take charge on an interim basis.`\
-https://nytimes.com/athletic/6594285/2026/01/05/ruben-amorim-sacked-manchester-united/
+**Gunboat Diplomacy Is Back. What Could Go Wrong?**\
+`The high cost of forgetting what world war is really like.`\
+https://nytimes.com/2026/01/05/opinion/trump-venezuela-maduro-clausewitz-aquinas.html
 
-**Steelers Clinch N.F.L. Playoffs Behind Aaron Rodgers’s Late Rally**\
-`The Pittsburgh Steelers won a division title for the first time since 2020 and kept the Baltimore Ravens from making the playoffs for the first time since 2021.`\
-https://nytimes.com/video/sports/football/100000010624217/steelers-clinch-nfl-playoffs-behind-aaron-rodgerss-late-rally.html
+**Ask The Morning: Trump and Venezuela**\
+`What are your questions about the U.S. invasion? We will answer then in a newsletter.`\
+https://nytimes.com/2026/01/05/briefing/ask-the-morning-trump-and-venezuela.html
 
-**Sanctioned Oil Tankers Flee Venezuela in Defiance of U.S. Blockade**\
-`The ships are using deceptive tactics as part of a seemingly coordinated attempt to bypass American naval forces in the region.`\
-https://nytimes.com/2026/01/05/world/americas/oil-tankers-venezuela-blockade.html
+**The Danger of Trump’s Flamboyant Violence**\
+`Abandoning restraint, the president is growing reckless.`\
+https://nytimes.com/2026/01/05/opinion/trump-venezuela-force-risk.html
 
-**Maduro and His Wife to Appear in Court on Monday**\
-`Nicolás Maduro, the Venezuelan president who was captured by U.S. forces, is scheduled to appear in federal court in Manhattan on Monday with his wife, Cilia Flores. Both are accused of conspiring to import cocaine.`\
-https://nytimes.com/video/world/americas/100000010623934/maduro-trial-nyc-sdny.html
+**After Venezuela, Trump Says Cuba Is ‘Ready to Fall’**\
+`The capture of Nicolás Maduro is a devastating blow to the alliance between Venezuela and Cuba. Many wonder if the island nation will be targeted next.`\
+https://nytimes.com/2026/01/05/world/americas/trump-venezuela-cuba.html
 
-**Hochul to Press for New Safeguards to Protect Children Online**\
-`In her upcoming State of the State address, Gov. Kathy Hochul will propose that the default setting for online platforms should ban viewing or messaging minors.`\
-https://nytimes.com/2026/01/05/nyregion/hocul-social-media-children-protections.html
+**Returning Home No Longer Seems Out of Reach for Venezuelans in Florida**\
+`The American seizure of Venezuela’s leader, Nicolás Maduro, has instilled hope for change among some immigrants.`\
+https://nytimes.com/2026/01/05/us/returning-home-no-longer-seems-out-of-reach-for-venezuelans-in-florida.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/05/crosswords/spelling-bee-forum.html
+**After Venezuela, Trump Offers Hints About What Could Be Next**\
+`President Trump’s comments about Greenland, Colombia and Cuba offered a glimpse of how emboldened he feels after the quick capture of Nicolás Maduro.`\
+https://nytimes.com/2026/01/05/us/politics/trump-venezuela-monroe-doctrine.html
 
-**Chelsea owners know what to expect by hiring from within, but only results will win doubters over**\
-`Calum McFarlane stepped in for the draw against City - but fans have been critical of the possible hiring of Strasbourg's Liam Rosenior`\
-https://nytimes.com/athletic/6941397/2026/01/05/chelsea-rosenior-maresca-successor/
+**Who Is Venezuela’s New Interim Leader?**\
+`Who is Delcy Rodríguez, Venezuela’s interim leader? Anatoly Kurmanaev, a reporter covering Venezuela, describes what we know.`\
+https://nytimes.com/video/world/americas/100000010623381/venezuela-new-leader-delcy-rodriguez.html
 
-**Gunmen Raid Villages in Nigeria After U.S. Christmas Airstrike**\
-`Gunmen launched a deadly attack in Nigeria, in which dozens were killed and others abducted, officials said. The assault on civilians comes on the heels of U.S. strikes in the region on Christmas Day.`\
-https://nytimes.com/video/world/africa/100000010623975/nigeria-us-strikes-muslims.html
+**Supreme Court Increasingly Favors the Rich, Economists Say**\
+`A new study found that the court’s Republican appointees voted for the wealthier side in cases 70 percent of the time in 2022, up from 45 percent in 1953.`\
+https://nytimes.com/2026/01/05/us/politics/supreme-court-study-rich-poor.html
 
-**The Ashes Briefing: Head leads Australia's breakneck reply, a Root masterclass, and the series' worst dismissal?**\
-`Australia have made significant in-roads into England's first-innings 384 as Head enjoyed himself in the final session of day two at the SCG`\
-https://nytimes.com/athletic/6940230/2026/01/05/root-head-australia-england-smith-ashes-briefing/
+**Reviving Venezuela’s Flow of Oil Will Not Come Easily or Cheaply**\
+`It will take years and billions in investment to revitalize Venezuela’s oil industry, and energy producers will likely be cautious before stepping in.`\
+https://nytimes.com/2026/01/05/business/energy-environment/venezuela-oil-us-chevron.html
 
-**Remembering Latif Ayodele and Sina Ghami – and what they meant to Anthony Joshua**\
-`The former world heavyweight champion did not just lose two trusted colleagues in Nigeria last week – but two dear friends`\
-https://nytimes.com/athletic/6940015/2026/01/05/latif-ayodele-sina-ghami-anthony-joshua/
+**Trial Begins for Former Officer Over Response to School Shooting in Uvalde**\
+`Families of the victims and survivors of the 2022 elementary school shooting in Texas are expected to testify.`\
+https://nytimes.com/2026/01/05/us/politics/uvalde-school-shooting-trial-robb.html
 
