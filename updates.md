@@ -1,3 +1,15 @@
+**Maduro’s Arraignment Begins as U.N. and Protesters Speak Out**\
+`As Nicolás Maduro, the ousted leader of Venezuela and his wife faced charges in a federal court in Lower Manhattan on Monday, protesters and global leaders responded with mixed thoughts.`\
+https://nytimes.com/video/world/americas/100000010624516/venezuela-react-maduro-arraignment.html
+
+**Cardinals' firing of Jonathan Gannon says more about them than the head coach**\
+`At most places, a coaching change provides relief, the ending of one sour chapter and the fresh start of another. That's not the case here.`\
+https://nytimes.com/athletic/6943463/2026/01/05/cardinals-jonathan-gannon-fired-arizona-nfl/
+
+**A Revival of Venezuela’s Oil Industry Poses a Challenge for Canada**\
+`The two countries both produce heavy oil, which is difficult to refine, and have relied historically on American refineries to buy it.`\
+https://nytimes.com/2026/01/05/world/americas/venezuela-oil-industry-canada.html
+
 **What to Know About the New Childhood Vaccine Schedule**\
 `The U.S. federal government slashed the number of diseases that all children are advised to be vaccinated against to 11 from 17.`\
 https://nytimes.com/2026/01/05/well/childhood-vaccine-schedule-cdc-changes.html
