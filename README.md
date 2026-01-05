@@ -1,3 +1,11 @@
+**Mamdani and Hochul Unite to Cheer Congestion Pricing on Anniversary**\
+`The tolling program, which charges motorists to enter Manhattan’s busiest streets, had a largely successful first year after a delayed start.`\
+https://nytimes.com/2026/01/05/nyregion/nyc-congestion-pricing-anniversary-mamdani-hochul.html
+
+**Indiana's Rose Bowl win over Alabama draws record 23.9 million viewers**\
+`Matchup sets a CFP mark in the 12-team era, drawing the most viewers since the 2023 championship game.`\
+https://nytimes.com/athletic/6943667/2026/01/05/rose-bowl-record-viewers-indiana-alabama/
+
 **Maduro’s Arraignment Begins as U.N. and Protesters Speak Out**\
 `As Nicolás Maduro, the ousted leader of Venezuela and his wife faced charges in a federal court in Lower Manhattan on Monday, protesters and global leaders responded with mixed thoughts.`\
 https://nytimes.com/video/world/americas/100000010624516/venezuela-react-maduro-arraignment.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6943471/2026/01/05/mike-mcdaniel-dolphins-coach-fut
 **Nvidia Details New A.I. Chips and Autonomous Car Project With Mercedes**\
 `At the CES conference, Jensen Huang, the company’s chief executive, said the more efficient and powerful chip would begin shipping later this year.`\
 https://nytimes.com/2026/01/05/technology/nvidia-chips-mercedes.html
-
-**Six Big Political Questions for 2026**\
-`A wildly important midterm year is off to a chaotic start, with a raid in Venezuela, an uneasy economy and more. Here’s what we’re curious about.`\
-https://nytimes.com/2026/01/05/us/politics/trump-democrats-gop-midterms-venezuela-economy.html
-
-**Maduro Pleads Not Guilty**\
-`Also, health officials scaled back the number of vaccines recommended for children. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2026/01/05/briefing/maduro-pleads-not-guilty.html
 
