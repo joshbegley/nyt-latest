@@ -1,3 +1,19 @@
+**How to watch Mammoth vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6942670/2026/01/05/mammoth-vs-rangers-stream-how-to-watch-jan-5/
+
+**How to watch Ducks vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6942668/2026/01/05/ducks-vs-capitals-stream-how-to-watch-jan-5/
+
+**Raiders fire Pete Carroll after miserable first season in Las Vegas: Source**\
+`The Raiders' next hire will be their fifth full-time coach since 2021.`\
+https://nytimes.com/athletic/6871066/2026/01/05/pete-carroll-fired-raiders-coach-nfl/
+
+**After Venezuela, Trump Says U.S. Needs Control of Greenland**\
+`President Trump, doubling down on the assertion that the United States is “in charge” of Venezuela following Saturday’s military raid, threatened other countries and reiterated his desire to acquire Greenland.`\
+https://nytimes.com/video/world/100000010624395/trump-greenland-venezuela.html
+
 **USMNT Player Tracker: Aaronson and McKennie on target, Campbell secures switch**\
 `It was a busy weekend for a selection of U.S. players in Europe, with goals scored and moves secured. Welcome to the USMNT Player Tracker`\
 https://nytimes.com/athletic/6942184/2026/01/05/usmnt-tracker-aaronson-mckennie-juventus-leeds/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6942325/2026/01/05/nfl-wild-card-week-odds-rams-pac
 **Should You Buy a Vintage Bread Maker?**\
 `Bread machines are easy to come by at the thrift store or on eBay, but is it actually smart to buy one secondhand? We ordered a Welbilt ABM 100-3 — a model popular in the ’80s — to see how it stood up to more modern machines (spoiler alert: not too well).`\
 https://nytimes.com/video/smarter-living/100000010624666/should-you-buy-a-vintage-bread-maker.html
-
-**NBA Rewind: Hawks, Mavs among teams with tough decisions before the trade deadline**\
-`We're one month away from the trade deadline, which means some teams have to face some hard truths. Plus, who's hot and not in the league.`\
-https://nytimes.com/athletic/6938259/2026/01/05/nba-rewind-trade-deadline-hawks-mavericks-trae-young/
-
-**Manchester City's failure to capitalise on runs in behind Chelsea defence cost them victory**\
-`Manchester City lack control of matches this season under Pep Guardiola - which means they must score their chances when they arrive`\
-https://nytimes.com/athletic/6941772/2026/01/05/man-city-chelsea-premier-league-tactics/
-
-**The Dubious Promise of Venezuela’s Oil**\
-`Producers seem uninterested and consumers might not notice`\
-https://nytimes.com/2026/01/05/opinion/trumps-venezuela-oil-chevron-inflation.html
-
-**Let’s Take a Peek in the Pantry**\
-`Salmon and cherry tomato curry, blackened chicken breasts and vegetarian skillet chili put pantry and spice drawer staples to work.`\
-https://nytimes.com/2026/01/05/dining/lets-take-a-peek-in-the-pantry.html
 
