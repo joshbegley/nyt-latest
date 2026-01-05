@@ -1,3 +1,37 @@
+**The Briefing: Is Amorim to blame for Man Utd's dysfunction? Could Nuno make unwanted history?**\
+`Oliver Kay analyses the main talking points from the weekend, including managerial turbulence at more than one Premier League club`\
+https://nytimes.com/athletic/6938896/2026/01/05/the-briefing-amorim-nuno-manchester-city/
+
+**Amorim's position at Manchester United is feeling increasingly untenable**\
+`Taking aim at your paymasters is a dangerous game for a manager with a poor overall record`\
+https://nytimes.com/athletic/6940070/2026/01/05/ruben-amorim-manchester-united-position-untenable/
+
+**Manchester City have a stability Chelsea can only dream of. But for how long?**\
+`The two teams met on Sunday but there was a fascinating subplot involving City's manager and Chelsea's former head coach`\
+https://nytimes.com/athletic/6940090/2026/01/05/manchester-city-chelsea-guardiola-maresca/
+
+**Holographic players, LED walls and virtual seating: Welcome to the future of football stadiums**\
+`If this is currently the era of football stadia 3.0, where could architects go in the next 20 years?`\
+https://nytimes.com/athletic/6904251/2026/01/05/football-stadiums-future/
+
+**Liverpool are a team grappling with an identity crisis**\
+`Arne Slot's side are unbeaten in nine league games, but that sequence is deeply deceptive given there is so little fluency to their play`\
+https://nytimes.com/athletic/6939045/2026/01/05/liverpool-slot-identity-crisis/
+
+**Does Thomas Frank have English football's hardest job?**\
+`Tottenham have the trappings of a top club but the players simply cannot match them`\
+https://nytimes.com/athletic/6939777/2026/01/05/thomas-frank-tottenham-hardest-job/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>There&#8217;s a lot going on this week. Do you want to check in on the portal, the CFP semifinals or the demise of the SEC?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6941385/2026/01/05/submit-a-question-for-stewart-mandels-college-football-mailbag-330/
+
+**AFCON bids farewell to South Africa and Hugo Broos - the perceived villain of the piece**\
+`The 73-year-old head coach has been at the centre of controversy throughout the tournament but watches his side eliminated by Cameroon`\
+https://nytimes.com/athletic/6940448/2026/01/05/south-africa-hugo-broos-afcon-cameroon/
+
 **The intersection of football and sex work: ‘Stick to OnlyFans!’**\
 `Soccer has become a key part of some sex workers online brands, but some say it can come with drawbacks.`\
 https://nytimes.com/athletic/6925109/2026/01/05/football-onlyfans-sex-workers-discuss-experiences/
@@ -5,36 +39,4 @@ https://nytimes.com/athletic/6925109/2026/01/05/football-onlyfans-sex-workers-di
 **World Juniors: Czechia eliminates Canada again, will meet Sweden in final**\
 `The stage is set for the medal games at the 2026 World Juniors following Sunday's two excellent semifinals.`\
 https://nytimes.com/athletic/6937607/2026/01/05/world-juniors-canada-czechia-sweden-2026/
-
-**After U.S. Strikes on Christmas, Fear Grips Muslims in Rural Nigeria**\
-`A small town set amid a smattering of baobab trees is grappling with the aftermath of a bombing ordered by President Trump.`\
-https://nytimes.com/2026/01/05/world/africa/nigeria-us-strikes-muslims.html
-
-**Quote of the Day: Humbled Is the Hand That Holds Hickory**\
-`Quotation of the Day for Monday, January 5, 2026.`\
-https://nytimes.com/2026/01/05/pageoneplus/quote-of-the-day-humbled-is-the-hand-that-holds-hickory.html
-
-**No Corrections: Jan. 5, 2026**\
-`No corrections appeared in print on Monday, Jan. 5, 2026.`\
-https://nytimes.com/2026/01/05/pageoneplus/no-corrections-jan-5-2026.html
-
-**Connections: Sports Edition Coach: Hints for Jan. 5, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6941175/2026/01/05/connections-sports-edition-hints-for-jan-5-2026/
-
-**Blackhawks continue to defy expectations with another improbable but deserved win**\
-`Tyler Bertuzzi's hat trick goal in overtime sent the suddenly surging Blackhawks past the Golden Knights for seven points in four games.`\
-https://nytimes.com/athletic/6941122/2026/01/04/blackhawks-defy-expectations-bertuzzi-hat-trick/
-
-**Giannis Antetokounmpo, Bucks beating bad opponents, but still stacking wins**\
-`Antetokounmpo led the Bucks with 37 points and 11 rebounds in 31 minutes, the most minutes he has played since getting back on the floor.`\
-https://nytimes.com/athletic/6941206/2026/01/04/bucks-giannis-winning-streak-targets-kings/
-
-**Steelers win AFC North, eliminate Ravens behind Aaron Rodgers-led rally, Loop's missed kick: Takeaways**\
-`The Steelers will host the Texans in a wild-card game next week on "Monday Night Football." `\
-https://nytimes.com/athletic/6941023/2026/01/04/ravens-steelers-score-result-takeaways-afc-north-title/
-
-**Updated 2026 NFL Draft order: Raiders at No. 1; Jets, Giants both finish in top 5**\
-`The Raiders clinched the No. 1 pick in April's draft, and they'll be followed by the Jets, Cardinals, Titans and Giants in the first five.`\
-https://nytimes.com/athletic/6938320/2026/01/04/nfl-draft-order-2026-round-1-raiders-jets-giants/
 
