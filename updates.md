@@ -1,3 +1,7 @@
+**The Aftermath of Trump’s Raid on Venezuela**\
+`Readers worry about the repercussions and a resurfacing of “America’s imperialist past.”`\
+https://nytimes.com/2026/01/05/opinion/letters/venezuela-trump-maduro.html
+
 **This Organizer Reclaims Counter Space**\
 `When you have a small kitchen, finding space for a plethora of tools and equipment can feel like a frustrating game of Tetris.`\
 https://nytimes.com/video/smarter-living/100000010624835/this-organizer-reclaims-counter-space.html
