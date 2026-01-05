@@ -1,3 +1,11 @@
+**Maduro and His Wife to Appear in Court on Monday**\
+`Nicolás Maduro, the Venezuelan president who was captured by U.S. forces, is scheduled to appear in federal court in Manhattan on Monday with his wife, Cilia Flores. Both are accused of conspiring to import cocaine.`\
+https://nytimes.com/video/world/americas/100000010623934/maduro-trial-nyc-sdny.html
+
+**Chelsea owners know what to expect by hiring from within, but only results will win doubters over**\
+`Calum McFarlane stepped in for the draw against City - but fans have been critical of the possible hiring of Strasbourg's Liam Rosenior`\
+https://nytimes.com/athletic/6941397/2026/01/05/chelsea-rosenior-maresca-successor/
+
 **Hochul to Press for New Safeguards to Protect Children Online**\
 `In her upcoming State of the State address, Gov. Kathy Hochul will propose that the default setting for online platforms should ban viewing or messaging minors.`\
 https://nytimes.com/2026/01/05/nyregion/hocul-social-media-children-protections.html
