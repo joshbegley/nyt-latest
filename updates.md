@@ -1,3 +1,19 @@
+**USMNT Player Tracker: Aaronson and McKennie on target, Campbell secures switch**\
+`It was a busy weekend for a selection of U.S. players in Europe, with goals scored and moves secured. Welcome to the USMNT Player Tracker`\
+https://nytimes.com/athletic/6942184/2026/01/05/usmnt-tracker-aaronson-mckennie-juventus-leeds/
+
+**How to watch Minnesota vs. Michigan women's basketball: Time, TV, streaming**\
+`Find out how to watch the Minnesota Golden Gophers play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6942642/2026/01/05/minnesota-vs-michigan-stream-how-to-watch-jan-5/
+
+**How to watch Nebraska vs. Ohio State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6942640/2026/01/05/nebraska-vs-ohio-state-stream-how-to-watch-jan-5/
+
+**Hegseth Starts Proceedings Against Sen. Mark Kelly Over His Remarks**\
+`Defense Secretary Pete Hegseth blasted the senator for “seditious” remarks. Mr. Kelly said he had done nothing wrong and cited similar comments by Mr. Hegseth.`\
+https://nytimes.com/2026/01/05/us/politics/hegseth-mark-kelly.html
+
 **NFL wild-card odds: 4 games with close spreads including 2 toss-ups**\
 `The first round of the NFL playoffs features several tight matchups in the odds, and one major favorite.`\
 https://nytimes.com/athletic/6942325/2026/01/05/nfl-wild-card-week-odds-rams-packers-bears/
