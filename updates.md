@@ -1,3 +1,7 @@
+**This Isn’t Regime Change. It’s Extortion.**\
+`To understand what’s unfolding in Venezuela, you have to look to the mob, not traditional foreign policy doctrines.`\
+https://nytimes.com/2026/01/05/opinion/trump-venezuela-regime-change.html
+
 **Salah is enjoying a rare dose of tranquillity with Egypt at the Africa Cup of Nations**\
 `The Pharaohs have had organisational issues at previous tournaments but this time all is set up for them to succeed on the pitch`\
 https://nytimes.com/athletic/6943045/2026/01/05/mohamed-salah-egypt-afcon-morocco/
