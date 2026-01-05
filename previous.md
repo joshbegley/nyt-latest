@@ -1,40 +1,40 @@
-**United fans: What are your thoughts on Amorim's sacking? What's next?**\
-`Ruben Amorim has been sacked after 14 months at Old Trafford - what are your views on his tenure, and what happens next?`\
-https://nytimes.com/athletic/6941877/2026/01/05/man-united-fans-amorim-sacked/
+**10 Convicted of Cyberbullying France’s First Lady**\
+`The defendants made false claims about Brigitte Macron, the wife of President Emmanuel Macron of France.`\
+https://nytimes.com/2026/01/05/world/europe/france-brigitte-macron-cyberbullying-trial-owens.html
 
-**Arsenal Women complete signing of defender Holmberg from Hammarby IF**\
-`The 19-year-old right-back, who will wear the number 31 shirt at Arsenal, has signed a long-term contract.`\
-https://nytimes.com/athletic/6941765/2026/01/05/arsenal-women-transfer-news-holmberg/
+**Myles Garrett earned the sack king title. How does his record season compare across eras?**\
+`Myles Garrett finished the 2023 regular season with more sacks than the entire 49ers team.`\
+https://nytimes.com/athletic/6941832/2026/01/05/myles-garrett-sack-record-browns/
 
-**Gunboat Diplomacy Is Back. What Could Go Wrong?**\
-`The high cost of forgetting what world war is really like.`\
-https://nytimes.com/2026/01/05/opinion/trump-venezuela-maduro-clausewitz-aquinas.html
+**Tommy Pham makes his case for MLB's next big metric: He calls it PhamGraphs**\
+`Pham proposes a statistical system that would account for how often a hitter faces high-leverage relievers and how defenders cope with wind.`\
+https://nytimes.com/athletic/6940461/2026/01/05/mlb-free-agency-metrics-tommy-pham/
 
-**Ask The Morning: Trump and Venezuela**\
-`What are your questions about the U.S. invasion? We will answer then in a newsletter.`\
-https://nytimes.com/2026/01/05/briefing/ask-the-morning-trump-and-venezuela.html
+**The Jets and Aaron Glenn's defense made the wrong kind of history**\
+`As a player, Aaron Glenn had an interception in 13 consecutive seasons. As a first-year head coach, his team went a full season without one.`\
+https://nytimes.com/athletic/6941807/2026/01/05/jets-interceptions-defense-aaron-glenn/
 
-**The Danger of Trump’s Flamboyant Violence**\
-`Abandoning restraint, the president is growing reckless.`\
-https://nytimes.com/2026/01/05/opinion/trump-venezuela-force-risk.html
+**What we learned in NFL Week 18: Steelers qualify for wide-open playoffs in instant classic**\
+`While the Steelers prepare for a wild-card matchup with the Texans, the Ravens will limp into an offseason facing huge questions.`\
+https://nytimes.com/athletic/6940743/2026/01/05/nfl-week-18-takeaways-steelers-ravens-aaron-rodgers/
 
-**After Venezuela, Trump Says Cuba Is ‘Ready to Fall’**\
-`The capture of Nicolás Maduro is a devastating blow to the alliance between Venezuela and Cuba. Many wonder if the island nation will be targeted next.`\
-https://nytimes.com/2026/01/05/world/americas/trump-venezuela-cuba.html
+**The Falcons fired Raheem Morris amid a 4-game win streak. Yes, that's quite rare**\
+`Atlanta fired GM Terry Fontenot after five seasons without a winning record. Morris, out after only two, might have been collateral damage.`\
+https://nytimes.com/athletic/6941851/2026/01/05/falcons-fire-raheem-morris-win-streak/
 
-**Returning Home No Longer Seems Out of Reach for Venezuelans in Florida**\
-`The American seizure of Venezuela’s leader, Nicolás Maduro, has instilled hope for change among some immigrants.`\
-https://nytimes.com/2026/01/05/us/returning-home-no-longer-seems-out-of-reach-for-venezuelans-in-florida.html
+**Seahawks the Super Bowl favorite? Who wins wide-open AFC playoff race? Pick Six**\
+`The stage is set for the most unpredictable playoffs in years, especially in the AFC. Coaches and execs helped us break down the field.`\
+https://nytimes.com/athletic/6923819/2026/01/05/nfl-playoffs-afc-nfc-seahawks-patriots-bills-broncos/
 
-**After Venezuela, Trump Offers Hints About What Could Be Next**\
-`President Trump’s comments about Greenland, Colombia and Cuba offered a glimpse of how emboldened he feels after the quick capture of Nicolás Maduro.`\
-https://nytimes.com/2026/01/05/us/politics/trump-venezuela-monroe-doctrine.html
+**The Jets' season was miserable, but Aaron Glenn is staying. Who will return with him?**\
+`An early look at how the 2026 Jets might begin to take shape.`\
+https://nytimes.com/athletic/6941508/2026/01/05/new-york-jets-aaron-glenn-returning-players/
 
-**Who Is Venezuela’s New Interim Leader?**\
-`Who is Delcy Rodríguez, Venezuela’s interim leader? Anatoly Kurmanaev, a reporter covering Venezuela, describes what we know.`\
-https://nytimes.com/video/world/americas/100000010623381/venezuela-new-leader-delcy-rodriguez.html
+**Mike Tomlin's Steelers get their Ravens redemption — and a shot in the wide-open playoffs**\
+`It was a wild win — with the post-game locker-room scene to match — on Sunday night in Pittsburgh.`\
+https://nytimes.com/athletic/6941716/2026/01/05/pittsburgh-steelers-mike-tomlin-ravens-win-playoffs/
 
-**Supreme Court Increasingly Favors the Rich, Economists Say**\
-`A new study found that the court’s Republican appointees voted for the wealthier side in cases 70 percent of the time in 2022, up from 45 percent in 1953.`\
-https://nytimes.com/2026/01/05/us/politics/supreme-court-study-rich-poor.html
+**Bills' Highmark Stadium farewell a picture-perfect, uniquely Buffalo celebration**\
+`Bills fans, legends and players all soaked up the scene in Orchard Park.`\
+https://nytimes.com/athletic/6941272/2026/01/05/bills-highmark-stadium-farewell-game-jets/
 

@@ -1,3 +1,43 @@
+**10 Convicted of Cyberbullying France’s First Lady**\
+`The defendants made false claims about Brigitte Macron, the wife of President Emmanuel Macron of France.`\
+https://nytimes.com/2026/01/05/world/europe/france-brigitte-macron-cyberbullying-trial-owens.html
+
+**Myles Garrett earned the sack king title. How does his record season compare across eras?**\
+`Myles Garrett finished the 2023 regular season with more sacks than the entire 49ers team.`\
+https://nytimes.com/athletic/6941832/2026/01/05/myles-garrett-sack-record-browns/
+
+**Tommy Pham makes his case for MLB's next big metric: He calls it PhamGraphs**\
+`Pham proposes a statistical system that would account for how often a hitter faces high-leverage relievers and how defenders cope with wind.`\
+https://nytimes.com/athletic/6940461/2026/01/05/mlb-free-agency-metrics-tommy-pham/
+
+**The Jets and Aaron Glenn's defense made the wrong kind of history**\
+`As a player, Aaron Glenn had an interception in 13 consecutive seasons. As a first-year head coach, his team went a full season without one.`\
+https://nytimes.com/athletic/6941807/2026/01/05/jets-interceptions-defense-aaron-glenn/
+
+**What we learned in NFL Week 18: Steelers qualify for wide-open playoffs in instant classic**\
+`While the Steelers prepare for a wild-card matchup with the Texans, the Ravens will limp into an offseason facing huge questions.`\
+https://nytimes.com/athletic/6940743/2026/01/05/nfl-week-18-takeaways-steelers-ravens-aaron-rodgers/
+
+**The Falcons fired Raheem Morris amid a 4-game win streak. Yes, that's quite rare**\
+`Atlanta fired GM Terry Fontenot after five seasons without a winning record. Morris, out after only two, might have been collateral damage.`\
+https://nytimes.com/athletic/6941851/2026/01/05/falcons-fire-raheem-morris-win-streak/
+
+**Seahawks the Super Bowl favorite? Who wins wide-open AFC playoff race? Pick Six**\
+`The stage is set for the most unpredictable playoffs in years, especially in the AFC. Coaches and execs helped us break down the field.`\
+https://nytimes.com/athletic/6923819/2026/01/05/nfl-playoffs-afc-nfc-seahawks-patriots-bills-broncos/
+
+**The Jets' season was miserable, but Aaron Glenn is staying. Who will return with him?**\
+`An early look at how the 2026 Jets might begin to take shape.`\
+https://nytimes.com/athletic/6941508/2026/01/05/new-york-jets-aaron-glenn-returning-players/
+
+**Mike Tomlin's Steelers get their Ravens redemption — and a shot in the wide-open playoffs**\
+`It was a wild win — with the post-game locker-room scene to match — on Sunday night in Pittsburgh.`\
+https://nytimes.com/athletic/6941716/2026/01/05/pittsburgh-steelers-mike-tomlin-ravens-win-playoffs/
+
+**Bills' Highmark Stadium farewell a picture-perfect, uniquely Buffalo celebration**\
+`Bills fans, legends and players all soaked up the scene in Orchard Park.`\
+https://nytimes.com/athletic/6941272/2026/01/05/bills-highmark-stadium-farewell-game-jets/
+
 **United fans: What are your thoughts on Amorim's sacking? What's next?**\
 `Ruben Amorim has been sacked after 14 months at Old Trafford - what are your views on his tenure, and what happens next?`\
 https://nytimes.com/athletic/6941877/2026/01/05/man-united-fans-amorim-sacked/
