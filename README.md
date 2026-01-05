@@ -1,3 +1,7 @@
+**How Maduro’s Capture Could Reshape the Global Order**\
+`The U.S. seizure of Venezuela’s president has governments, executives and investors bracing for wide-reaching business and geopolitical fallout.`\
+https://nytimes.com/2026/01/05/business/dealbook/venezuela-trump-oil-global-order.html
+
 **Inside Real Madrid: Gonzalo hat-trick eases pressure on Alonso with all eyes on Supercopa**\
 `Our reporters on the latest at Madrid, including how a spate of recent injuries is seen within the club and proposed ownership model changes`\
 https://nytimes.com/athletic/6942102/2026/01/05/inside-real-madrid-gonzalo-garcia-xabi-alonso/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6942033/2026/01/05/ruben-amorim-man-united-press-co
 **Man City's Echeverri finalising loan move to Girona**\
 `The 20-year-old had his season-long loan at Bayer Leverkusen cut short in December after making just three starts for the Bundesliga club.`\
 https://nytimes.com/athletic/6903367/2026/01/05/man-city-transfer-news-girona-echeverri/
-
-**How to shape your Fantasy Premier League team after Gameweek 21**\
-`From Arsenal’s varied attack to Ruben Amorim leaving Manchester United, these important takeaways should guide your FPL plans`\
-https://nytimes.com/athletic/6940199/2026/01/05/fantasy-premier-league-tips-fpl-gameweek-21/
 

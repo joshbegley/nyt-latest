@@ -1,3 +1,11 @@
+**Inside Real Madrid: Gonzalo hat-trick eases pressure on Alonso with all eyes on Supercopa**\
+`Our reporters on the latest at Madrid, including how a spate of recent injuries is seen within the club and proposed ownership model changes`\
+https://nytimes.com/athletic/6942102/2026/01/05/inside-real-madrid-gonzalo-garcia-xabi-alonso/
+
+**Next Manchester United manager favourites: Maresca and Southgate are front runners**\
+`Who will be the next Manchester United manager following the departure of Ruben Amorim?`\
+https://nytimes.com/athletic/6941959/2026/01/05/manchester-united-future-manager-odds-enzo-maresca-gareth-southgate/
+
 **Next Manchester United manager odds, favourites, predictions and analysis**\
 `Who will be the next Manchester United manager following the departure of Ruben Amorim?`\
 https://nytimes.com/athletic/6941959/2026/01/05/manchester-united-future-manager-odds-enzo-maresca-gareth-southgate/
