@@ -1,3 +1,15 @@
+**Maduro Says He Is a Prisoner of War, Not a Defendant. The Words Matter.**\
+`His simple statement in federal court was aimed directly at contradictions in the Trump administration’s actions in the Caribbean.`\
+https://nytimes.com/2026/01/05/world/americas/maduro-court-appearance-pow.html
+
+**In 2019, an official said, Moscow offered to swap U.S. control of Venezuela for Russian free rein in Ukraine.**\
+`By Neil MacFarquhar`\
+https://nytimes.com/live/2026/01/05/world/venezuela-maduro-trump/in-2019-an-official-said-moscow-offered-to-swap-us-control-of-venezuela-for-russian-free-rein-in-ukraine
+
+**Checo Pérez says being Max Verstappen's teammate at Red Bull was F1's 'worst job'**\
+`Sergio Pérez calls being Max Verstappen’s teammate at Red Bull the worst job in F1, reflecting on the intense pressure he faced.`\
+https://nytimes.com/athletic/6943415/2026/01/05/checo-perez-max-verstappen-red-bull-f1-worst-job/
+
 **Entering the Antarctic Sea Ice, and a New World**\
 `After 10 days with only the open ocean and the occasional iceberg at our sides, sailing into the sea ice felt like crossing into a whole new realm.`\
 https://nytimes.com/2026/01/05/climate/antarctica-expedition-sea-ice.html
