@@ -1,3 +1,7 @@
+**Sanctioned Oil Tankers Flee Venezuela in Defiance of U.S. Blockade**\
+`The ships are using deceptive tactics as part of a seemingly coordinated attempt to bypass American naval forces in the region.`\
+https://nytimes.com/2026/01/05/world/americas/oil-tankers-venezuela-blockade.html
+
 **Maduro and His Wife to Appear in Court on Monday**\
 `Nicolás Maduro, the Venezuelan president who was captured by U.S. forces, is scheduled to appear in federal court in Manhattan on Monday with his wife, Cilia Flores. Both are accused of conspiring to import cocaine.`\
 https://nytimes.com/video/world/americas/100000010623934/maduro-trial-nyc-sdny.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/05/learning/word-of-the-day-didactic.html
 **O'Neil in talks to become Strasbourg head coach as Rosenior nears Chelsea move**\
 `If O’Neil is appointed Strasbourg head coach, it will be the first time he has coached outside of England.`\
 https://nytimes.com/athletic/6941658/2026/01/05/chelsea-strasbourg-oneil-talks-rosenior/
-
-**‘The Pitt,’ Plus 10 Things to Watch on TV This Week**\
-`The series, set in a Pittsburgh emergency room and starring Noah Wyle, returns. And a new group of players enter a castle in Scotland for “The Traitors.”`\
-https://nytimes.com/2026/01/05/arts/television/pitt-traitors-antiques-roadshow.html
 

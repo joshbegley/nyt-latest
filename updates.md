@@ -1,3 +1,7 @@
+**O'Neil in talks to become Strasbourg head coach as Rosenior nears Chelsea move**\
+`If O’Neil is appointed Strasbourg head coach, it will be the first time he has coached outside of England.`\
+https://nytimes.com/athletic/6941658/2026/01/05/chelsea-strasbourg-oneil-talks-rosenior/
+
 **Maduro and His Wife to Appear in Court on Monday**\
 `Nicolás Maduro, the Venezuelan president who was captured by U.S. forces, is scheduled to appear in federal court in Manhattan on Monday with his wife, Cilia Flores. Both are accused of conspiring to import cocaine.`\
 https://nytimes.com/video/world/americas/100000010623934/maduro-trial-nyc-sdny.html
