@@ -1,3 +1,11 @@
+**Greta Myers got DQed at U.S. speed skating trials. Then she got a second chance**\
+`Myers made contact with Brittany Bowe in their 1,500-meter heat Sunday at U.S. trials, prompting a DQ. Then she made the most of a redo try.`\
+https://nytimes.com/athletic/6940689/2026/01/04/greta-myers-us-olympics-speed-skating-dq-1500/
+
+**If Browns, Kevin Stefanski are parting ways, he'll be leaving a lot of bad things behind**\
+`The Browns' strange win Sunday left them sixth in April's NFL Draft and muddied a rumored separation between the team and its coach.`\
+https://nytimes.com/athletic/6940480/2026/01/04/kevin-stefanski-browns-bengals-season-finale/
+
 **Welcome to the 5-Day Brain Health Challenge**\
 `It’s never too early or too late to start healthy brain habits. Today, test your knowledge with a pop quiz.`\
 https://nytimes.com/interactive/2026/well/brain-health-challenge-quiz.html
@@ -11,10 +19,10 @@ https://nytimes.com/athletic/6940598/2026/01/04/gabriel-landeskog-avalanche-inju
 https://nytimes.com/athletic/6940845/2026/01/04/oregon-vs-indiana-stream-how-to-watch-jan-9/
 
 **Falcons fire head coach Raheem Morris, general manager Terry Fontenot: Source**\
-`The Falcons fired Morris and Fontenot after the team's season-ending Week 18 win. The franchise now has eight consecutive losing campaigns.`\
+`The Falcons fired Morris and Fontenot after the team's season-ending win. The franchise now has eight consecutive losing campaigns.`\
 https://nytimes.com/athletic/6871719/2026/01/04/falcons-fire-raheem-morris-coach-terry-fontenot-gm/
 
-**Giants owners demanded improvement and didn't get it, so Joe Schoen’s fate should be clear**\
+**Giants owners demanded improvement and didn't get it, so Joe Schoen's fate should be clear**\
 `The bar to make progress was incredibly low after a three-win season, but the roster built by Schoen still could barely clear it.`\
 https://nytimes.com/athletic/6936547/2026/01/04/ny-giants-joe-shoen-john-mara-fired/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6940370/2026/01/04/blue-jackets-late-lead-loss-peng
 **Broncos-Chargers takeaways: Denver earns top seed, Chargers fall to No. 7 seed**\
 `Denver earned a first-round bye, while the Chargers will play the Patriots in the first round.`\
 https://nytimes.com/athletic/6940308/2026/01/04/chargers-broncos-score-result-takeaways-nfl-week-18/
-
-**A Test for Venezuela’s New Leader: Solidifying Power, but Pleasing Trump**\
-`Delcy Rodríguez is the torchbearer of a government whose revolutionary roots are in disarray. She must appease constituencies who loathe U.S. meddling while fielding Washington’s demands.`\
-https://nytimes.com/2026/01/04/world/americas/delcy-rodriguez-venezuela.html
-
-**Eagles-Commanders takeaways: Philadelphia opts for rest before playoffs, falls to Washington**\
-`The Eagles lost an opportunity to secure the No. 2 seed in the NFC, and they’re now preparing to host the 49ers in the playoffs.`\
-https://nytimes.com/athletic/6939870/2026/01/04/commanders-eagles-score-result-takeaways-nfc-seeds/
 
