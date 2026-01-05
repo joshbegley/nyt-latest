@@ -1,3 +1,7 @@
+**New Car Sales Are Rising Thanks to Purchases by the Well-Off**\
+`A larger proportion of new cars are being bought by affluent Americans as prices and interest rates for auto loans climb, analysts said.`\
+https://nytimes.com/2026/01/05/business/new-car-sales.html
+
 **Who Is Delcy Rodríguez?**\
 `Ms. Rodríguez, who is leading Venezuela after the U.S. captured Nicolás Maduro, established a reputation as a shrewd operator guiding the country’s economy.`\
 https://nytimes.com/2026/01/05/world/americas/venezuela-president-delcy-rodriguez.html
