@@ -1,3 +1,15 @@
+**Scoop City: Final playoff picture and draft order takeaways**\
+`A first-look at the 2026 playoff picture, plus NFL Draft order, team needs and coaches to watch on Black Monday`\
+https://nytimes.com/athletic/6942808/2026/01/05/nfl-playoff-bracket-draft-order-2026-seahawks-raiders/
+
+**Novak Djokovic withdraws from Adelaide International, will not play Australian Open warmup**\
+`The 24-time Grand Slam champion said he is “not quite physically ready to compete” at the event.`\
+https://nytimes.com/athletic/6942793/2026/01/05/tennis-novak-djokovic-australian-open-warmup-out/
+
+**Cardinals fire Jonathan Gannon after 3 seasons, no playoff appearances: Source**\
+`General manager Monti Ossenfort will remain in place and conduct the search for a new head coach.`\
+https://nytimes.com/athletic/6883060/2026/01/05/jonathan-gannon-fired-cardinals-nfl/
+
 **The Aftermath of Trump’s Raid on Venezuela**\
 `Readers worry about the repercussions and a resurfacing of “America’s imperialist past.”`\
 https://nytimes.com/2026/01/05/opinion/letters/venezuela-trump-maduro.html
