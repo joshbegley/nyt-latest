@@ -1,3 +1,15 @@
+**Venezuela Raid Turns Travelers’ Caribbean Getaways Into Ordeals**\
+`Mass flight cancellations during peak holiday travel season have forced travelers to miss school and work and to spend thousands on extended tropical vacations.`\
+https://nytimes.com/2026/01/05/travel/venezuela-caribbean-stranded-travelers.html
+
+**Detained American Is Held by Venezuelan Counterintelligence**\
+`The location of James Luckey-Lange of New York City, who went missing in Venezuela in early December, was previously unknown.`\
+https://nytimes.com/2026/01/05/world/americas/james-luckey-lange-american-detained-venezuela-counterintelligence.html
+
+**Oil Stocks Rally as Investors Bet on Return to Venezuela**\
+`The energy sector of the S&P 500 rose 2.9 percent on Monday, lifting the broader market.`\
+https://nytimes.com/2026/01/05/business/oil-stocks-venezuela.html
+
 **The Best Movies and TV Shows Coming to Disney+, Amazon, HBO Max, Peacock and More in January**\
 `“The Pitt” Season 2, “Star Trek: Starfleet Academy,” “The Beauty,” “Wonder Man,” “Shrinking” Season 3 and more arrive.`\
 https://nytimes.com/2026/01/05/arts/television/movies-tv-shows-january-2026-streaming.html
