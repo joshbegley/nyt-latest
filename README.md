@@ -1,3 +1,7 @@
+**Joe Buck had to conceal a black eye during ESPN's Seahawks-49ers broadcast**\
+`Joe Buck overcame a novel problem — with help from an ESPN makeup artist — before Saturday's NFC West showdown.`\
+https://nytimes.com/athletic/6942926/2026/01/05/espn-joe-buck-black-eye-seahawks-49ers/
+
 **Venezuela Raid Turns Travelers’ Caribbean Getaways Into Ordeals**\
 `Mass flight cancellations during peak holiday travel season have forced travelers to miss school and work and to spend thousands on extended tropical vacations.`\
 https://nytimes.com/2026/01/05/travel/venezuela-caribbean-stranded-travelers.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6942782/2026/01/05/nebraska-transfer-portal-kenny-m
 **What to Know About Trump’s Desire to Take Over Greenland**\
 `President Trump has reiterated his interest in annexing Denmark’s semiautonomous territory, saying it is vital for America’s national security.`\
 https://nytimes.com/2026/01/05/world/europe/trump-greenland-why.html
-
-**Influential Canadian junior hockey executive David Branch dies at 77**\
-`Branch is credited with helping modernize junior hockey in Canada.`\
-https://nytimes.com/athletic/6942721/2026/01/05/david-branch-canada-junior-hockey-death/
 
