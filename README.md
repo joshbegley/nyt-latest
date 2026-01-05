@@ -1,3 +1,11 @@
+**Commanders' 2026 offseason guide: Biggest needs, draft capital, financials and more**\
+`As the page flips to 2026, here’s a quick guide to the Commanders' next few months.`\
+https://nytimes.com/athletic/6940800/2026/01/04/commanders-offseason-guide-free-agents-draft-picks-2026/
+
+**Raiders coach Pete Carroll says 'of course' he'd like to return next season**\
+`Carroll's Raiders went 3-14 this season, by far the worst of his 19 years as an NFL head coach.`\
+https://nytimes.com/athletic/6940942/2026/01/04/raiders-pete-carroll-future-hot-seat/
+
 **Greta Myers got DQ'd at U.S. speed skating trials. Then she got a second chance**\
 `Myers made contact with Brittany Bowe in their 1,500-meter heat Sunday at U.S. trials, prompting a DQ. Then she made the most of a redo.`\
 https://nytimes.com/athletic/6940689/2026/01/04/greta-myers-us-olympics-speed-skating-dq-1500/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6936547/2026/01/04/ny-giants-joe-shoen-john-mara-fi
 **Joe Burrow sets stage for 2026 as pressure mounts in Bengals’ playoff drought**\
 `The defense needs closers and the front office must address that in the draft and free agency.`\
 https://nytimes.com/athletic/6940623/2026/01/04/bengals-joe-burrow-playoff-drought-browns/
-
-**True to form, Blue Jackets choke away late lead in frustrating OT loss to Penguins**\
-`For the third straight game against the Penguins this season, the Blue Jackets blew a late lead to fall in extra time.`\
-https://nytimes.com/athletic/6940370/2026/01/04/blue-jackets-late-lead-loss-penguins/
-
-**Broncos-Chargers takeaways: Denver earns top seed, Chargers fall to No. 7 seed**\
-`Denver earned a first-round bye, while the Chargers will play the Patriots in the first round.`\
-https://nytimes.com/athletic/6940308/2026/01/04/chargers-broncos-score-result-takeaways-nfl-week-18/
 
