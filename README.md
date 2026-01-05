@@ -1,3 +1,7 @@
+**New Car Sales Are Rising Thanks to Purchases by the Well-Off**\
+`A larger proportion of new cars are being bought by affluent Americans as prices and interest rates for auto loans climb, analysts said.`\
+https://nytimes.com/2026/01/05/business/new-car-sales.html
+
 **Who Is Delcy Rodríguez?**\
 `Ms. Rodríguez, who is leading Venezuela after the U.S. captured Nicolás Maduro, established a reputation as a shrewd operator guiding the country’s economy.`\
 https://nytimes.com/2026/01/05/world/americas/venezuela-president-delcy-rodriguez.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/100000010624395/trump-greenland-venezuela.html
 **USMNT Player Tracker: Aaronson and McKennie on target, Campbell secures switch**\
 `It was a busy weekend for a selection of U.S. players in Europe, with goals scored and moves secured. Welcome to the USMNT Player Tracker`\
 https://nytimes.com/athletic/6942184/2026/01/05/usmnt-tracker-aaronson-mckennie-juventus-leeds/
-
-**How to watch Minnesota vs. Michigan women's basketball: Time, TV, streaming**\
-`Find out how to watch the Minnesota Golden Gophers play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6942642/2026/01/05/minnesota-vs-michigan-stream-how-to-watch-jan-5/
 
