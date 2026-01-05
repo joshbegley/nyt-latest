@@ -6,8 +6,8 @@ https://nytimes.com/video/world/africa/100000010623975/nigeria-us-strikes-muslim
 `Australia have made significant in-roads into England's first-innings 384 as Head enjoyed himself in the final session of day two at the SCG`\
 https://nytimes.com/athletic/6940230/2026/01/05/root-head-australia-england-smith-ashes-briefing/
 
-**Remembering Latif Ayodele and Sina Ghami - and what they meant to Anthony Joshua**\
-`The former world heavyweight champion did not just lose two trusted colleagues in Nigeria last week - but two dear friends`\
+**Remembering Latif Ayodele and Sina Ghami – and what they meant to Anthony Joshua**\
+`The former world heavyweight champion did not just lose two trusted colleagues in Nigeria last week – but two dear friends`\
 https://nytimes.com/athletic/6940015/2026/01/05/latif-ayodele-sina-ghami-anthony-joshua/
 
 **Word of the Day: didactic**\

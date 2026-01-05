@@ -1,3 +1,11 @@
+**Gunmen Raid Villages in Nigeria After U.S. Christmas Airstrike**\
+`Gunmen launched a deadly attack in Nigeria, in which dozens were killed and others abducted, officials said. The assault on civilians comes on the heels of U.S. strikes in the region on Christmas Day.`\
+https://nytimes.com/video/world/africa/100000010623975/nigeria-us-strikes-muslims.html
+
+**The Ashes Briefing: Head leads Australia's breakneck reply, a Root masterclass, and the series' worst dismissal?**\
+`Australia have made significant in-roads into England's first-innings 384 as Head enjoyed himself in the final session of day two at the SCG`\
+https://nytimes.com/athletic/6940230/2026/01/05/root-head-australia-england-smith-ashes-briefing/
+
 **Remembering Latif Ayodele and Sina Ghami - and what they meant to Anthony Joshua**\
 `The former world heavyweight champion did not just lose two trusted colleagues in Nigeria last week - but two dear friends`\
 https://nytimes.com/athletic/6940015/2026/01/05/latif-ayodele-sina-ghami-anthony-joshua/

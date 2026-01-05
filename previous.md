@@ -1,3 +1,11 @@
+**Gunmen Raid Villages in Nigeria After U.S. Christmas Airstrike**\
+`Gunmen launched a deadly attack in Nigeria, in which dozens were killed and others abducted, officials said. The assault on civilians comes on the heels of U.S. strikes in the region on Christmas Day.`\
+https://nytimes.com/video/world/africa/100000010623975/nigeria-us-strikes-muslims.html
+
+**The Ashes Briefing: Head leads Australia's breakneck reply, a Root masterclass, and the series' worst dismissal?**\
+`Australia have made significant in-roads into England's first-innings 384 as Head enjoyed himself in the final session of day two at the SCG`\
+https://nytimes.com/athletic/6940230/2026/01/05/root-head-australia-england-smith-ashes-briefing/
+
 **Remembering Latif Ayodele and Sina Ghami - and what they meant to Anthony Joshua**\
 `The former world heavyweight champion did not just lose two trusted colleagues in Nigeria last week - but two dear friends`\
 https://nytimes.com/athletic/6940015/2026/01/05/latif-ayodele-sina-ghami-anthony-joshua/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6941257/2026/01/05/kaleb-blaha-joe-burrows-ncaa-sta
 **Brennan Johnson played well but Newcastle loss shows Crystal Palace need more signings**\
 `Record buy Brennan Johnson is direct and scores goals, but Oliver Glasner will still expect further new arrivals imminently`\
 https://nytimes.com/athletic/6934183/2026/01/05/crystal-palace-signings-newcastle-loss-analysis/
-
-**Creativity, leadership, experience: Why Brighton signing Pascal Gross makes sense**\
-`During his second spell at Brighton, Pascal Gross will add much-needed creativity to the midfield and will be a plus in the dressing room`\
-https://nytimes.com/athletic/6937105/2026/01/05/pascal-gross-brighton-burnley-analysis/
-
-**Leeds should start looking up, not down**\
-`Daniel Farke's team do not look like a side in relegation trouble and should feel optimistic about the second half of the season`\
-https://nytimes.com/athletic/6939472/2026/01/05/leeds-premier-league-relegation-safety/
 
