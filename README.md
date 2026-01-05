@@ -1,3 +1,7 @@
+**'I think he can be a great player': Rudy Gobert is impressed by countryman Alex Sarr**\
+`Gobert and the Timberwolves dominated Sarr and the Wizards on Sunday. But Gobert predicted that Sarr can have a great future. `\
+https://nytimes.com/athletic/6941266/2026/01/05/rudy-gobert-alex-sarr/
+
 **How to watch the FCS national championship game between Illinois State and Montana State**\
 `The FCS playoffs conclude with unseeded Illinois State meeting No. 2 Montana State for the first time — and with a title on the line.`\
 https://nytimes.com/athletic/6936623/2026/01/05/fcs-national-championship-illinois-state-montana-state-tv-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6939383/2026/01/05/flyers-dan-vladar-owen-tippett-t
 **Bruins at NHL halfway point: Nastier? Yes. Playoff team? Not yet**\
 `This is general manager Don Sweeney’s vision and first-year coach Marco Sturm’s mandate for 2025-26.`\
 https://nytimes.com/athletic/6939778/2026/01/05/bruins-nastier-yes-playoff-team-not-yet/
-
-**How much do college football transfers earn in the NIL and revenue-sharing era?**\
-`Quarterbacks are at the top of the pay scale, but offensive tackles and defensive linemen also cost a premium. `\
-https://nytimes.com/athletic/6939168/2026/01/05/transfer-portal-nil-revenue-sharing-pay/
 
