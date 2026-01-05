@@ -1,4 +1,4 @@
-**Next Manchester United manager odds, favourites, predictions and analysis**\
+**Next Manchester United manager favourites: Maresca and Southgate are front runners**\
 `Who will be the next Manchester United manager following the departure of Ruben Amorim?`\
 https://nytimes.com/athletic/6941959/2026/01/05/manchester-united-future-manager-odds-enzo-maresca-gareth-southgate/
 
