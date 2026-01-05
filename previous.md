@@ -1,3 +1,7 @@
+**Kenny Minchey is just the start for Nebraska in a whirlwind portal season: 5 thoughts**\
+`Minchey is the early favorite to win the job and start against Ohio on Sept. 5, but he'll face competition from TJ Lateef.`\
+https://nytimes.com/athletic/6942782/2026/01/05/nebraska-transfer-portal-kenny-minchey-matt-rhule/
+
 **What to Know About Trump’s Desire to Take Over Greenland**\
 `President Trump has reiterated his interest in annexing Denmark’s semiautonomous territory, saying it is vital for America’s national security.`\
 https://nytimes.com/2026/01/05/world/europe/trump-greenland-why.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/smarter-living/100000010624835/this-organizer-reclaims
 **Eva Schloss, Anne Frank’s Stepsister and Auschwitz Survivor, Dies at 96**\
 `Ms. Schloss, who was sent to Auschwitz as a teenager, dedicated her life to educating people about her experiences and the dangers of prejudice.`\
 https://nytimes.com/2026/01/05/world/europe/eva-schloss-dead.html
-
-**Cardinals fire Jonathan Gannon after 3 seasons, no playoff appearances: Source**\
-`General manager Monti Ossenfort will remain in place and conduct the search for a new head coach.`\
-https://nytimes.com/athletic/6883060/2026/01/05/jonathan-gannon-fired-cardinals-nfl/
 

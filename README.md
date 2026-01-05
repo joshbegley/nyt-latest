@@ -1,3 +1,7 @@
+**Cusack inquest adjourned, Sheff Utd deny lawyers' claims of 'totally unacceptable' delays**\
+`A six-day inquest into the 27-year-old's death was due to begin on Monday but a new provisional date has been set for June 29.`\
+https://nytimes.com/athletic/6942527/2026/01/05/maddy-cusack-sheffield-united-delay-inquest/
+
 **Kenny Minchey is just the start for Nebraska in a whirlwind portal season: 5 thoughts**\
 `Minchey is the early favorite to win the job and start against Ohio on Sept. 5, but he'll face competition from TJ Lateef.`\
 https://nytimes.com/athletic/6942782/2026/01/05/nebraska-transfer-portal-kenny-minchey-matt-rhule/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/05/opinion/letters/venezuela-trump-maduro.html
 **This Organizer Reclaims Counter Space**\
 `When you have a small kitchen, finding space for a plethora of tools and equipment can feel like a frustrating game of Tetris.`\
 https://nytimes.com/video/smarter-living/100000010624835/this-organizer-reclaims-counter-space.html
-
-**Eva Schloss, Anne Frank’s Stepsister and Auschwitz Survivor, Dies at 96**\
-`Ms. Schloss, who was sent to Auschwitz as a teenager, dedicated her life to educating people about her experiences and the dangers of prejudice.`\
-https://nytimes.com/2026/01/05/world/europe/eva-schloss-dead.html
 

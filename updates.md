@@ -1,3 +1,7 @@
+**Kenny Minchey is just the start for Nebraska in a whirlwind portal season: 5 thoughts**\
+`Minchey is the early favorite to win the job and start against Ohio on Sept. 5, but he'll face competition from TJ Lateef.`\
+https://nytimes.com/athletic/6942782/2026/01/05/nebraska-transfer-portal-kenny-minchey-matt-rhule/
+
 **What to Know About Trump’s Desire to Take Over Greenland**\
 `President Trump has reiterated his interest in annexing Denmark’s semiautonomous territory, saying it is vital for America’s national security.`\
 https://nytimes.com/2026/01/05/world/europe/trump-greenland-why.html
