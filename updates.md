@@ -1,3 +1,7 @@
+**Is This MAGA Foreign Policy or Something Else Entirely?**\
+`M. Gessen and David French on why the ends do not justify the means in Venezuela.`\
+https://nytimes.com/2026/01/05/opinion/trump-maduro-capture-venezuela.html
+
 **Astros owner Jim Crane won't commit to retaining Dana Brown, Joe Espada after 2026 season**\
 `“We’ll go through this year like we always do, evaluate and make a decision at the end of the year,” Crane said of Brown and Espada.`\
 https://nytimes.com/athletic/6943210/2026/01/05/astros-owner-jim-crane-dana-brown-joe-espada/
