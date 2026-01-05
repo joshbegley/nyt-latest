@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6940308/2026/01/04/chargers-broncos-score-result-ta
 `Delcy Rodríguez is the torchbearer of a government whose revolutionary roots are in disarray. She must appease constituencies who loathe U.S. meddling while fielding Washington’s demands.`\
 https://nytimes.com/2026/01/04/world/americas/delcy-rodriguez-venezuela.html
 
-**Eagles-Commanders takeaways: Philadelphia opts for rest, falls to Washington**\
+**Eagles-Commanders takeaways: Philadelphia opts for rest before playoffs, falls to Washington**\
 `The Eagles lost an opportunity to secure the No. 2 seed in the NFC, and they’re now preparing to host the 49ers in the playoffs.`\
 https://nytimes.com/athletic/6939870/2026/01/04/commanders-eagles-score-result-takeaways-nfc-seeds/
 
