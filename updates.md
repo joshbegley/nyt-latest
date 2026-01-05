@@ -1,3 +1,11 @@
+**Commanders' 2026 offseason guide: Biggest needs, draft capital, financials and more**\
+`As the page flips to 2026, here’s a quick guide to the Commanders' next few months.`\
+https://nytimes.com/athletic/6940800/2026/01/04/commanders-offseason-guide-free-agents-draft-picks-2026/
+
+**Raiders coach Pete Carroll says 'of course' he'd like to return next season**\
+`Carroll's Raiders went 3-14 this season, by far the worst of his 19 years as an NFL head coach.`\
+https://nytimes.com/athletic/6940942/2026/01/04/raiders-pete-carroll-future-hot-seat/
+
 **Greta Myers got DQ'd at U.S. speed skating trials. Then she got a second chance**\
 `Myers made contact with Brittany Bowe in their 1,500-meter heat Sunday at U.S. trials, prompting a DQ. Then she made the most of a redo.`\
 https://nytimes.com/athletic/6940689/2026/01/04/greta-myers-us-olympics-speed-skating-dq-1500/
