@@ -1,4 +1,12 @@
-**Bengals keeping coach Zac Taylor, de-facto GM Duke Tobin**\
+**Charvarius Ward Sr. mulling retirement after suffering 3 concussions in 2025**\
+`The Colts acquired Ward in free agency last offseason. `\
+https://nytimes.com/athletic/6942471/2026/01/05/charvarius-ward-retirement-concussions/
+
+**Wilfried Nancy sacked by Celtic after 33 days in charge**\
+`Nancy was appointed on a two-and-a-half-year deal by the Scottish champions on December 3, joining from MLS side Columbus Crew.`\
+https://nytimes.com/athletic/6899248/2026/01/05/celtic-manager-nancy-sacked/
+
+**Bengals keeping coach Zac Taylor, de facto GM Duke Tobin**\
 `The Bengals were 6-11 this season and missed the playoffs for the third straight year.`\
 https://nytimes.com/athletic/6942444/2026/01/05/bengals-keeping-zac-taylor-duke-tobin/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/05/style/ralph-fitzgerald-bespoke-suits-manhattan.ht
 **One Sleep Habit Experts Wish You Would Adopt**\
 `Working this overlooked practice into your sleep routine could have real benefits for your health.`\
 https://nytimes.com/2026/01/05/well/health-benefits-sleep-consistency.html
-
-**Falcons to hire 'president of football' — perhaps Matt Ryan? — to oversee GM, head coach**\
-`In a letter to his team's fans, Falcons owner Arthur Blank wrote that he will be hiring a president of football. Will it be ex-QB Matt Ryan?`\
-https://nytimes.com/athletic/6942338/2026/01/05/falcons-matt-ryan-arthur-blank-coach-gm-fired/
-
-**JD Vance’s Ohio Home Is Targeted in Vandalism Attack**\
-`U.S. Secret Service agents detained a man early Monday after the vice president’s home in Cincinnati was damaged. No injuries were reported.`\
-https://nytimes.com/2026/01/05/us/jd-vance-home-damage-cincinnati-arrest.html
 
