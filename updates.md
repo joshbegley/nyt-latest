@@ -1,3 +1,15 @@
+**Farewell Ruben Amorim, we’ll miss your bizarre media conferences**\
+`Managers are usually very good at deflecting - but Amorim is among the easiest to get a quote out of that the Premier League has ever seen`\
+https://nytimes.com/athletic/6942033/2026/01/05/ruben-amorim-man-united-press-conference/
+
+**Man City's Echeverri finalising loan move to Girona**\
+`The 20-year-old had his season-long loan at Bayer Leverkusen cut short in December after making just three starts for the Bundesliga club.`\
+https://nytimes.com/athletic/6903367/2026/01/05/man-city-transfer-news-girona-echeverri/
+
+**How to shape your Fantasy Premier League team after Gameweek 21**\
+`From Arsenal’s varied attack to Ruben Amorim leaving Manchester United, these important takeaways should guide your FPL plans`\
+https://nytimes.com/athletic/6940199/2026/01/05/fantasy-premier-league-tips-fpl-gameweek-21/
+
 **Denmark Tells Trump to ‘Stop the Threats’ About Greenland**\
 `The Danish prime minister told President Trump to back down after he repeated his threat to acquire Greenland in the wake of the U.S. military raid in Venezuela.`\
 https://nytimes.com/2026/01/05/world/europe/trump-greenland-denmark.html
