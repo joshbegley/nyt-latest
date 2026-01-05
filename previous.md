@@ -1,40 +1,40 @@
-**Ahn Sung Ki, Towering Figure in South Korean Film, Dies at 74**\
-`Mr. Ahn, who made his onscreen debut as a 5-year-old, appeared in more than 180 films. President Lee Jae-myung said he “left a great footprint in Korean film history.”`\
-https://nytimes.com/2026/01/05/world/asia/ahn-sung-ki-dead.html
+**'I think he can be a great player': Rudy Gobert is impressed by countryman Alex Sarr**\
+`Gobert and the Timberwolves dominated Sarr and the Wizards on Sunday. But Gobert predicted that Sarr can have a great future. `\
+https://nytimes.com/athletic/6941266/2026/01/05/rudy-gobert-alex-sarr/
 
-**China Needed Oil. Venezuela Needed Cash. Their Deal Faces a Turning Point.**\
-`Beijing has lent billions to Caracas in recent decades, and the fate of money it is owed is in question after the ouster of Venezuela’s leader.`\
-https://nytimes.com/2026/01/05/business/venezuela-oil-china-deal.html
+**How to watch the FCS national championship game between Illinois State and Montana State**\
+`The FCS playoffs conclude with unseeded Illinois State meeting No. 2 Montana State for the first time — and with a title on the line.`\
+https://nytimes.com/athletic/6936623/2026/01/05/fcs-national-championship-illinois-state-montana-state-tv-2026/
 
-**Bears defense gets exposed again. Can they fix it for playoff meeting with Packers?**\
-`The Bears have allowed the second-most explosive plays in the NFL season, a major weakness as they enter the playoffs.`\
-https://nytimes.com/athletic/6941127/2026/01/05/bears-defense-exposed-nfl-playoffs/
+**Jamie Smith and Jake Weatherald: A tale of two batters under pressure**\
+`England's wicketkeeper and Australia's opener both suffered on day two at the SCG, with each having endured a difficult series`\
+https://nytimes.com/athletic/6941387/2026/01/05/smith-weatherald-england-australia-pressure/
 
-**The Lions wanted this last one and got it — now, the tough decisions begin**\
-`The prideful Lions weren't going to just roll over against the Bears, it's not in their nature. They played to win.`\
-https://nytimes.com/athletic/6941317/2026/01/05/lions-beat-bears-nfc-north-offseason/
+**Wild insider: Lots of faith in Jiricek, Kaprizov handicaps the Olympics and more**\
+`Plus: fourth-round pick Aron Kiviharju's exploits at the World Juniors with Finland and how playing pro is helping his development.`\
+https://nytimes.com/athletic/6939597/2026/01/05/wild-jiricek-world-juniors-kiviharju-olympics/
 
-**Tennis in 2026 mailbag: The Alcaraz vs. Sinner rivalry, WTA Slam winners and more**\
-`The Athletic's tennis team answer your questions as the 2026 tennis season begins.`\
-https://nytimes.com/athletic/6900368/2026/01/05/tennis-2026-players-matches/
+**Manchester City’s late stumble came as no surprise. Their regulars are running on reserve**\
+`After 20 Premier League games, are we seeing the cost of Guardiola asking the same City players to make such frequent visits to the well?`\
+https://nytimes.com/athletic/6941753/2026/01/05/manchester-city-chelsea-premier-league-analysis/
 
-**In 'devastating' loss to Steelers, Ravens reminded this just wasn't their year**\
-`A challenging season for Baltimore ended in excruciating fashion. Now the team is left to ponder all the changes that will inevitably occur.`\
-https://nytimes.com/athletic/6941649/2026/01/05/ravens-loss-steelers-afc-north-title/
+**Transfer portal buzz: QB dominoes falling, what we're hearing after the first weekend**\
+`Quarterback Brendan Sorsby's commitment to Texas Tech on Sunday night capped a wild weekend of portal activity. `\
+https://nytimes.com/athletic/6941050/2026/01/05/transfer-portal-updates-brendan-sorsby-sam-leavitt/
 
-**Maple Leafs after 41: How did injuries affect Toronto's first half?**\
-`The Leafs have yet to play a single game this season with a fully healthy lineup, but how bad do they have it relative to opponents?`\
-https://nytimes.com/athletic/6939864/2026/01/05/maple-leafs-first-half-injuries-analysis/
+**If Lane Kiffin understands the big picture, Ole Miss will have all its coaches on Thursday**\
+`We don’t need sworn statements from the six coaches in question to know they want to see things through with Ole Miss.`\
+https://nytimes.com/athletic/6939880/2026/01/05/lane-kiffin-big-picture-ole-miss-coaches/
 
-**Mike Brown used to babysit J.B. Bickerstaff. Now the coaches are atop the East**\
-`Babysitting matured into a mentor-mentee relationship, and more than 30 years later, the two bond over hoops and ... Jelly Roll.`\
-https://nytimes.com/athletic/6937828/2026/01/05/mike-brown-knicks-jb-bickerstaff-pistons-babysitting-jelly-roll/
+**Monday Morning Leafs Report: How Matthews can improve his complicated legacy**\
+`For all of Auston Matthews' many accomplishments in a Maple Leafs sweater, he needs something else to truly become the greatest Leaf.`\
+https://nytimes.com/athletic/6939528/2026/01/05/maple-leafs-matthews-legacy-playoffs/
 
-**The Athletic's men's basketball Top 25: Michigan's dominance is breaking Vegas**\
-`Plus: How Purdue's Braden Smith makes passing magic and why SMU and Villanova are the newest teams in our ranking.`\
-https://nytimes.com/athletic/6940573/2026/01/05/college-basketball-top-25-mens-michigan-arizona-purdue/
+**Flyers mailbag, part 2: Is Vladar the answer? Should the club try to land a center?**\
+`If Vlad is able to maintain his level of play, the Flyers could potentially work on a contract extension with him this summer.`\
+https://nytimes.com/athletic/6939383/2026/01/05/flyers-dan-vladar-owen-tippett-trade-rumors/
 
-**Where the Cubs, Yankees, Blue Jays and more teams stand as MLB's offseason moves into January**\
-`The new year is upon us. The baseball offseason is entering its third month. And unfinished business abounds.`\
-https://nytimes.com/athletic/6941044/2026/01/05/mlb-offseason-latest-yankees-dodgers-mets-red-sox-blue-jays/
+**Bruins at NHL halfway point: Nastier? Yes. Playoff team? Not yet**\
+`This is general manager Don Sweeney’s vision and first-year coach Marco Sturm’s mandate for 2025-26.`\
+https://nytimes.com/athletic/6939778/2026/01/05/bruins-nastier-yes-playoff-team-not-yet/
 
