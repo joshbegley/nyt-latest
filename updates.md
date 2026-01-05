@@ -1,3 +1,11 @@
+**13 Unforgettable Looks at the Critics Choice Awards**\
+`Saturated colors, sculptural silhouettes, doses of whiplash and more.`\
+https://nytimes.com/2026/01/05/style/critics-choice-awards-looks-fashion.html
+
+**Nuno Espirito Santo says West Ham's poor form keeps him up at night**\
+`The relegation-threatened side are on a nine-game winless run and could be seven points from safety if they lose on Tuesday.`\
+https://nytimes.com/athletic/6943192/2026/01/05/nuno-espirito-santo-west-ham-poor-form/
+
 **Maduro Says He Is a Prisoner of War, Not a Defendant. The Words Matter.**\
 `His simple statement in federal court was aimed directly at contradictions in the Trump administration’s actions in the Caribbean.`\
 https://nytimes.com/2026/01/05/world/americas/maduro-court-appearance-pow.html
