@@ -1,3 +1,7 @@
+**Maduro Says He Is a Prisoner of War, Not a Defendant. The Words Matter.**\
+`His simple statement in federal court was aimed directly at contradictions in the Trump administration’s actions in the Caribbean.`\
+https://nytimes.com/2026/01/05/world/americas/maduro-court-appearance-pow.html
+
 **In 2019, an official said, Moscow offered to swap U.S. control of Venezuela for Russian free rein in Ukraine.**\
 `By Neil MacFarquhar`\
 https://nytimes.com/live/2026/01/05/world/venezuela-maduro-trump/in-2019-an-official-said-moscow-offered-to-swap-us-control-of-venezuela-for-russian-free-rein-in-ukraine
@@ -10,7 +14,7 @@ https://nytimes.com/2026/01/05/climate/antarctica-expedition-sea-ice.html
 `The second-largest U.S. oil company, which kept pumping oil in the country after others left, could find it relatively easy to expand its operations if the political conditions there improve.`\
 https://nytimes.com/2026/01/05/business/energy-environment/venezuela-chevron-trump-oil.html
 
-**Checo Pérez says being Max Verstappen’s teammate at Red Bull was F1’s 'worst job'**\
+**Checo Pérez says being Max Verstappen's teammate at Red Bull was F1's 'worst job'**\
 `Sergio Pérez calls being Max Verstappen’s teammate at Red Bull the worst job in F1, reflecting on the intense pressure he faced.`\
 https://nytimes.com/athletic/6943415/2026/01/05/checo-perez-max-verstappen-red-bull-f1-worst-job/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6943167/2026/01/05/kevin-stefanski-fired-andrew-ber
 **Sabres notes: Doan wants to be in Buffalo 'a long time,' Zucker returns and more**\
 `Doan, who has 27 points in 40 games, is in the final year of his contract before becoming a restricted free agent.`\
 https://nytimes.com/athletic/6943331/2026/01/05/sabres-josh-doan-contract-jason-zucker-lineup/
-
-**The Robot Cars Have Come for the Kids**\
-`Because families have complicated schedules.`\
-https://nytimes.com/2026/01/05/us/waymo-kids-los-angeles.html
 
