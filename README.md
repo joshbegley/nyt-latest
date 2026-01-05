@@ -1,3 +1,7 @@
+**Global Ripples From Venezuela**\
+`It’s only been days since the U.S. raid, but it already feels like the world is living in a new reality. China and Russia are watching.`\
+https://nytimes.com/2026/01/05/world/venezuela-global-implications-trump-maduro-iran.html
+
 **Is This MAGA Foreign Policy or Something Else Entirely?**\
 `M. Gessen and David French on why the ends do not justify the means in Venezuela.`\
 https://nytimes.com/2026/01/05/opinion/trump-maduro-capture-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/05/business/media/corporation-for-public-broadcastin
 **Venezuela’s ‘Dirtiest’ Oil and the Environment: Three Things to Know**\
 `Most of the reserves in the country are extra-heavy oil that’s tough to extract and generates more greenhouse gases.`\
 https://nytimes.com/2026/01/05/climate/venezuela-dirty-oil.html
-
-**Super Bowl odds: Who can knock on Rams, Broncos door?**\
-`Seattle and Denver are the top seeds, but the Rams are still a force in Super Bowl odds. See who else stacks up.`\
-https://nytimes.com/athletic/6942912/2026/01/05/super-bowl-odds-seahawks-rams-broncos/
 
