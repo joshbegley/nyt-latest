@@ -1,3 +1,7 @@
+**The Aftermath of Trump’s Raid on Venezuela**\
+`Readers worry about the repercussions and a resurfacing of “America’s imperialist past.”`\
+https://nytimes.com/2026/01/05/opinion/letters/venezuela-trump-maduro.html
+
 **This Organizer Reclaims Counter Space**\
 `When you have a small kitchen, finding space for a plethora of tools and equipment can feel like a frustrating game of Tetris.`\
 https://nytimes.com/video/smarter-living/100000010624835/this-organizer-reclaims-counter-space.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/05/world/americas/venezuela-president-delcy-rodrigue
 **Gustavo Petro reprueba las amenazas de Trump contra Colombia**\
 `El presidente colombiano pidió a su pueblo que lo defienda “de cualquier acto violento ilegítimo”. Su ministro de Defensa subrayó que continuaba la cooperación en seguridad con Washington.`\
 https://nytimes.com/2026/01/05/espanol/america-latina/petro-trump-colombia.html
-
-**Blues sign winger Alexey Toropchenko to 2-year extension**\
-`The 26-year-old mostly occupies a fourth-line role, but coach Jim Montgomery has shown he's comfortable moving him up the lineup in a pinch.`\
-https://nytimes.com/athletic/6942634/2026/01/05/blues-alexey-toropchenko-extension/
 
