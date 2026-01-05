@@ -1,3 +1,11 @@
+**Inside Barcelona: Ake, Cancelo transfer links — will they take advantage of Christensen's injury?**\
+`Christensen's long-term knee injury could force Barcelona into the market for a defender`\
+https://nytimes.com/athletic/6942151/2026/01/05/inside-barcelona-ake-cancelo-christensen-transfers/
+
+**The Pulse: The NFL playoff bracket is set**\
+`The Athletic has live coverage of Bears vs.`\
+https://nytimes.com/athletic/6939473/2026/01/05/nfl-playoff-bracket-the-pulse/
+
 **How Maduro’s Capture Could Reshape the Global Order**\
 `The U.S. seizure of Venezuela’s president has governments, executives and investors bracing for wide-reaching business and geopolitical fallout.`\
 https://nytimes.com/2026/01/05/business/dealbook/venezuela-trump-oil-global-order.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6942017/2026/01/05/callum-wilson-west-ham-exit/
 **West Ham complete deal for Lazio striker Castellanos**\
 `The 27-year-old has signed a four-and-a-half-year contract with the option for an additional year.`\
 https://nytimes.com/athletic/6937289/2026/01/05/west-ham-sign-valentin-castellanos/
-
-**Farewell Ruben Amorim, we’ll miss your bizarre media conferences**\
-`Managers are usually very good at deflecting, but Amorim is among the easiest to get a quote out of that the Premier League has ever seen`\
-https://nytimes.com/athletic/6942033/2026/01/05/ruben-amorim-man-united-press-conference/
-
-**Man City's Echeverri finalising loan move to Girona**\
-`The 20-year-old had his season-long loan at Bayer Leverkusen cut short in December after making just three starts for the Bundesliga club.`\
-https://nytimes.com/athletic/6903367/2026/01/05/man-city-transfer-news-girona-echeverri/
 

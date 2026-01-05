@@ -1,3 +1,11 @@
+**Inside Barcelona: Ake, Cancelo transfer links — will they take advantage of Christensen's injury?**\
+`Christensen's long-term knee injury could force Barcelona into the market for a defender`\
+https://nytimes.com/athletic/6942151/2026/01/05/inside-barcelona-ake-cancelo-christensen-transfers/
+
+**The Pulse: The NFL playoff bracket is set**\
+`The Athletic has live coverage of Bears vs.`\
+https://nytimes.com/athletic/6939473/2026/01/05/nfl-playoff-bracket-the-pulse/
+
 **How Maduro’s Capture Could Reshape the Global Order**\
 `The U.S. seizure of Venezuela’s president has governments, executives and investors bracing for wide-reaching business and geopolitical fallout.`\
 https://nytimes.com/2026/01/05/business/dealbook/venezuela-trump-oil-global-order.html
