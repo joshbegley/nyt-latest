@@ -1,3 +1,11 @@
+**Checo Pérez says being Max Verstappen’s teammate at Red Bull was F1’s 'worst job'**\
+`Sergio Pérez calls being Max Verstappen’s teammate at Red Bull the worst job in F1, reflecting on the intense pressure he faced.`\
+https://nytimes.com/athletic/6943415/2026/01/05/checo-perez-says-being-max-verstappens-teammate-at-red-bull-was-f1s-worst-job/
+
+**Broncos playoff mailbag: Submit questions for beat writer Nick Kosmider**\
+`Let us know what's on your mind as Denver heads into the playoffs as the AFC's top seed.`\
+https://nytimes.com/athletic/6943527/2026/01/05/broncos-playoff-mailbag-submit-questions/
+
 **For Many Jan. 6 Rioters, a Pardon From Trump Wasn’t Enough**\
 `Some pardoned rioters have been rearrested. Others returned to the poverty and mental health challenges. And many became consumed by resentment and demands for payback.`\
 https://nytimes.com/2026/01/05/us/politics/trump-jan-6-pardons-rioters.html
@@ -23,18 +31,10 @@ https://nytimes.com/2026/01/05/us/waymo-kids-los-angeles.html
 https://nytimes.com/2026/01/05/world/venezuela-global-implications-trump-maduro-iran.html
 
 **Is This MAGA Foreign Policy or Something Else Entirely?**\
-`M. Gessen and David French on why the ends do not justify the means in Venezuela.`\
+`David French and M. Gessen on why the ends do not justify the means in Venezuela.`\
 https://nytimes.com/2026/01/05/opinion/trump-maduro-capture-venezuela.html
 
 **Astros owner Jim Crane won't commit to retaining Dana Brown, Joe Espada after 2026 season**\
 `“We’ll go through this year like we always do, evaluate and make a decision at the end of the year,” Crane said of Brown and Espada.`\
 https://nytimes.com/athletic/6943210/2026/01/05/astros-owner-jim-crane-dana-brown-joe-espada/
-
-**The Briefing: Nigeria 4 Mozambique 0 - can anyone stop Osimhen and co? How vital is Iwobi?**\
-`Our writers analyse the main talking points from Nigeria's Africa Cup of Nations last-16 victory`\
-https://nytimes.com/athletic/6943136/2026/01/05/nigeria-mozambique-afcon-analysis/
-
-**49ers LBs reeling with injuries, Fred Warner not yet ready to return**\
-`The 49ers lost another linebacker and could be down two more. Meanwhile, Trent Williams' and Ricky Pearsall's statuses are to be determined.`\
-https://nytimes.com/athletic/6943215/2026/01/05/49ers-injuries-fred-warner-tatum-bethune-trent-williams/
 
