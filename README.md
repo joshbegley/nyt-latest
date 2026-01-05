@@ -14,7 +14,7 @@ https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/cuba-says-32
 `A remarkable regular season ended on a sour note for the Bears, presenting a demanding resetting process as the playoffs arrive.`\
 https://nytimes.com/athletic/6941010/2026/01/04/bears-enter-playoffs-after-ugly-loss/
 
-**Brendan Sorsby, top QB in transfer portal, headed to Texas Tech: Sources**\
+**Brendan Sorsby, top QB in transfer portal, headed to Texas Tech**\
 `Sorsby, a redshirt junior with one year of eligibility remaining, is expected to arrive with a hefty price tag.`\
 https://nytimes.com/athletic/6933542/2026/01/04/brendan-sorsby-texas-tech-transfer-portal-quarterback/
 
