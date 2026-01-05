@@ -1,3 +1,15 @@
+**Brendan Sorsby, top QB in transfer portal, headed to Texas Tech: Sources**\
+`Sorsby, a redshirt junior with one year of eligibility remaining, is expected to arrive with a hefty price tag.`\
+https://nytimes.com/athletic/6933542/2026/01/04/brendan-sorsby-texas-tech-transfer-portal-quarterback/
+
+**DeVonta Smith's legacy did not need another 1,000-yard season. He got it anyway.**\
+`Smith said he wanted to play, even when the risk of injury was there.`\
+https://nytimes.com/athletic/6940034/2026/01/04/devonta-smith-1000-yard-season-legacy/
+
+**Ravens star safety Kyle Hamilton ruled out vs. Steelers with concussion**\
+`Hamilton collided with teammate Alohi Gilman and both were evaluated for a concussion. Gilman returned; Hamilton was ruled out.`\
+https://nytimes.com/athletic/6941094/2026/01/04/kyle-hamilton-injury-safety-ravens-steelers/
+
 **Ravens' star safety Kyle Hamilton ruled out vs. Steelers with concussion**\
 `Hamilton collided with teammate Alohi Gilman and both were evaluated for a concussion. Gilman returned; Hamilton was ruled out.`\
 https://nytimes.com/athletic/6941094/2026/01/04/kyle-hamilton-injury-safety-ravens-steelers/
