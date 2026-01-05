@@ -1,3 +1,7 @@
+**Philip Rivers says NFL coaching jobs not on his radar, but he's open to the possibility**\
+`“There’s nothing concrete with that,” Rivers told reporters. “This past month has taught me, you’re open to obviously anything.”`\
+https://nytimes.com/athletic/6942995/2026/01/05/philip-rivers-nfl-coaching-opportunities/
+
 **Thousands in Berlin Go Days Without Power and Cell Service After Cables Are Set on Fire**\
 `A far-left group took responsibility, saying it was targeting the energy industry. Officials predicted it would take until Thursday to re-establish power in all areas.`\
 https://nytimes.com/2026/01/05/world/europe/berlin-power-failure-fire.html
