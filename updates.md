@@ -1,3 +1,19 @@
+**Greta Myers got DQed at U.S. speed skating trials. Then she got a second chance**\
+`Myers made contact with Brittany Bowe in their 1,500-meter heat Sunday at U.S. trials, prompting a DQ. Then she made the most of a redo try.`\
+https://nytimes.com/athletic/6940689/2026/01/04/greta-myers-us-olympics-speed-skating-dq-1500/
+
+**If Browns, Kevin Stefanski are parting ways, he'll be leaving a lot of bad things behind**\
+`The Browns' strange win Sunday left them sixth in April's NFL Draft and muddied a rumored separation between the team and its coach.`\
+https://nytimes.com/athletic/6940480/2026/01/04/kevin-stefanski-browns-bengals-season-finale/
+
+**Falcons fire head coach Raheem Morris, general manager Terry Fontenot: Source**\
+`The Falcons fired Morris and Fontenot after the team's season-ending win. The franchise now has eight consecutive losing campaigns.`\
+https://nytimes.com/athletic/6871719/2026/01/04/falcons-fire-raheem-morris-coach-terry-fontenot-gm/
+
+**Giants owners demanded improvement and didn't get it, so Joe Schoen's fate should be clear**\
+`The bar to make progress was incredibly low after a three-win season, but the roster built by Schoen still could barely clear it.`\
+https://nytimes.com/athletic/6936547/2026/01/04/ny-giants-joe-shoen-john-mara-fired/
+
 **Broncos-Chargers takeaways: Denver earns top seed, Chargers fall to No. 7 seed**\
 `Denver earned a first-round bye, while the Chargers will play the Patriots in the first round.`\
 https://nytimes.com/athletic/6940308/2026/01/04/chargers-broncos-score-result-takeaways-nfl-week-18/
