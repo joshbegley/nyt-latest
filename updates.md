@@ -1,3 +1,19 @@
+**Checo Pérez says being Max Verstappen’s teammate at Red Bull was F1’s 'worst job'**\
+`Sergio Pérez calls being Max Verstappen’s teammate at Red Bull the worst job in F1, reflecting on the intense pressure he faced.`\
+https://nytimes.com/athletic/6943415/2026/01/05/checo-perez-says-being-max-verstappens-teammate-at-red-bull-was-f1s-worst-job/
+
+**Broncos playoff mailbag: Submit questions for beat writer Nick Kosmider**\
+`Let us know what's on your mind as Denver heads into the playoffs as the AFC's top seed.`\
+https://nytimes.com/athletic/6943527/2026/01/05/broncos-playoff-mailbag-submit-questions/
+
+**For Many Jan. 6 Rioters, a Pardon From Trump Wasn’t Enough**\
+`Some pardoned rioters have been rearrested. Others returned to the poverty and mental health challenges. And many became consumed by resentment and demands for payback.`\
+https://nytimes.com/2026/01/05/us/politics/trump-jan-6-pardons-rioters.html
+
+**Is This MAGA Foreign Policy or Something Else Entirely?**\
+`David French and M. Gessen on why the ends do not justify the means in Venezuela.`\
+https://nytimes.com/2026/01/05/opinion/trump-maduro-capture-venezuela.html
+
 **At the U.N., Even Allies Condemn U.S. Action in Venezuela**\
 `The deputy French U.N. ambassador said it chipped “away at the very foundation of international order.”`\
 https://nytimes.com/2026/01/05/world/americas/un-security-council.html
