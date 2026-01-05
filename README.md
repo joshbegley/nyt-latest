@@ -10,10 +10,6 @@ https://nytimes.com/2026/01/05/nyregion/hocul-social-media-children-protections.
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/01/05/crosswords/spelling-bee-forum.html
 
-**O'Neil in talks to become Strasbourg head coach as Rosenior nears Chelsea move**\
-`If O’Neil is appointed Strasbourg head coach, it will be the first time he has coached outside of England.`\
-https://nytimes.com/athletic/6941658/2026/01/05/chelsea-strasbourg-oneil-talks-rosenior/
-
 **Chelsea owners know what to expect by hiring from within, but only results will win doubters over**\
 `Calum McFarlane stepped in for the draw against City - but fans have been critical of the possible hiring of Strasbourg's Liam Rosenior`\
 https://nytimes.com/athletic/6941397/2026/01/05/chelsea-rosenior-maresca-successor/
@@ -33,6 +29,10 @@ https://nytimes.com/athletic/6940015/2026/01/05/latif-ayodele-sina-ghami-anthony
 **Word of the Day: didactic**\
 `This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/05/learning/word-of-the-day-didactic.html
+
+**O'Neil in talks to become Strasbourg head coach as Rosenior nears Chelsea move**\
+`If O’Neil is appointed Strasbourg head coach, it will be the first time he has coached outside of England.`\
+https://nytimes.com/athletic/6941658/2026/01/05/chelsea-strasbourg-oneil-talks-rosenior/
 
 **‘The Pitt,’ Plus 10 Things to Watch on TV This Week**\
 `The series, set in a Pittsburgh emergency room and starring Noah Wyle, returns. And a new group of players enter a castle in Scotland for “The Traitors.”`\
