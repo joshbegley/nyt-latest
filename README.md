@@ -1,3 +1,7 @@
+**NFL playoff schedule: Where things stand with Steelers-Ravens set to decide AFC North**\
+`The wild-card round of the NFL playoffs begins with two games Saturday followed by three Sunday and the finale on Monday night.`\
+https://nytimes.com/athletic/6938288/2026/01/04/nfl-playoff-schedule-2026/
+
 **Losing record or not, NFC South-champion Panthers has a nice ring to it**\
 `Despite an 8-9 finish, Carolina wins the NFC South for the first time since 2015 and will host a home playoff game vs. the Rams.`\
 https://nytimes.com/athletic/6940476/2026/01/04/carolina-panthers-nfc-south-champions-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/04/obituaries/robert-heide-dead.html
 **Packers enter playoffs losing 4 straight, but Matt LaFleur emphasizes 'clean slate'**\
 `The Packers are reeling entering the postseason, but they'll have a chance to turn their fortunes around next weekend.`\
 https://nytimes.com/athletic/6940242/2026/01/04/packers-playoffs-matt-lafleur-vikings/
-
-**Winter Storms Ease Drought in California, for Now**\
-`Experts say that it’s too early to tell what will happen during the rest of the state’s rainy season, but that extreme drought is unlikely.`\
-https://nytimes.com/2026/01/04/us/winter-storms-drought-california.html
 
