@@ -1,3 +1,7 @@
+**In 2019, an official said, Moscow offered to swap U.S. control of Venezuela for Russian free rein in Ukraine.**\
+`By Neil MacFarquhar`\
+https://nytimes.com/live/2026/01/05/world/venezuela-maduro-trump/in-2019-an-official-said-moscow-offered-to-swap-us-control-of-venezuela-for-russian-free-rein-in-ukraine
+
 **Entering the Antarctic Sea Ice, and a New World**\
 `After 10 days with only the open ocean and the occasional iceberg at our sides, sailing into the sea ice felt like crossing into a whole new realm.`\
 https://nytimes.com/2026/01/05/climate/antarctica-expedition-sea-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6943331/2026/01/05/sabres-josh-doan-contract-jason-
 **The Robot Cars Have Come for the Kids**\
 `Because families have complicated schedules.`\
 https://nytimes.com/2026/01/05/us/waymo-kids-los-angeles.html
-
-**Global Ripples From Venezuela**\
-`It’s only been days since the U.S. raid, but it already feels like the world is living in a new reality. China and Russia are watching.`\
-https://nytimes.com/2026/01/05/world/venezuela-global-implications-trump-maduro-iran.html
 
