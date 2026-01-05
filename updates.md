@@ -1,3 +1,11 @@
+**Hochul to Press for New Safeguards to Protect Children Online**\
+`In her upcoming State of the State address, Gov. Kathy Hochul will propose that the default setting for online platforms should ban viewing or messaging minors.`\
+https://nytimes.com/2026/01/05/nyregion/hocul-social-media-children-protections.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/05/crosswords/spelling-bee-forum.html
+
 **Chelsea owners know what to expect by hiring from within, but only results will win doubters around**\
 `Calum McFarlane stepped in for the draw against City - but fans have been critical of the possible hiring of Strasbourg's Liam Rosenior`\
 https://nytimes.com/athletic/6941397/2026/01/05/chelsea-rosenior-maresca-successor/
