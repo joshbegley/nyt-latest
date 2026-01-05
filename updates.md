@@ -1,3 +1,19 @@
+**Salah is enjoying a rare dose of tranquillity with Egypt at the Africa Cup of Nations**\
+`The Pharaohs have had organisational issues at previous tournaments but this time all is set up for them to succeed on the pitch`\
+https://nytimes.com/athletic/6943045/2026/01/05/mohamed-salah-egypt-afcon-morocco/
+
+**UNC changing QBs for Bill Belichick's Year 2 as Lopez transfers, Edwards commits**\
+`Lopez, who was believed to be making around $2 million at UNC in 2025, will look to join his third team in three seasons.`\
+https://nytimes.com/athletic/6943090/2026/01/05/unc-football-gio-lopez-transfer-bill-belichick-billy-edwards/
+
+**Arsenal drop all-white kit from anti-knife crime campaign**\
+`The No More Red strip was worn in their past four FA Cup third round ties.`\
+https://nytimes.com/athletic/6942766/2026/01/05/arsenal-white-kit-knife-crime-fa-cup/
+
+**Maduro, Yanked Into the U.S. Justice System, Says He Was Kidnapped**\
+`“I’m innocent. I’m not guilty. I am a decent man,” the captured Venezuelan president told a judge in Manhattan federal court. “I am still president of my country.”`\
+https://nytimes.com/2026/01/05/world/americas/maduro-us-court-arraignment-kidnapped.html
+
 **Trump Officials to Brief Top Lawmakers on Maduro Raid**\
 `The briefing for congressional leaders and the top members of the intelligence, defense and foreign policy panels will come two days after the military operation.`\
 https://nytimes.com/2026/01/05/world/americas/congress-venezuela-maduro.html
