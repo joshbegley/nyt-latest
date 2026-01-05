@@ -1,3 +1,7 @@
+**Minneapolis-Area Hotel Accused of Turning Away Immigration Agents**\
+`As the U.S. ramps up deportation efforts in Minnesota, the Department of Homeland Security claimed on social media that a Hampton Inn had canceled agents’ bookings.`\
+https://nytimes.com/2026/01/05/travel/hilton-hotel-reservations-minneapolis-minnesota-immigration.html
+
 **Mike McDaniel on Dolphins future: 'I am the coach ... until told otherwise'**\
 `The Dolphins finished 7-10, dropping McDaniel to 35-33 overall since he took over as Miami's head coach four years ago.`\
 https://nytimes.com/athletic/6943471/2026/01/05/mike-mcdaniel-dolphins-coach-future/
