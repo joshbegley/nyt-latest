@@ -1,3 +1,7 @@
+**10-Minute Challenge: An Artist in Greenland**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2026/01/04/upshot/ten-minute-challenge-greenland.html
+
 **Trump’s Move for Regime Change in Venezuela Threatens a New MAGA Rift**\
 `Some Republicans are asking how Mr. Trump’s military intervention in Venezuela squares with his past pledges to avoid foreign entanglements and nation building.`\
 https://nytimes.com/2026/01/04/us/politics/trump-republicans-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6940456/2026/01/04/ny-giants-nfl-draft-pick-spot/
 **Maduro’s Capture Shows Trump’s Goal to Dominate the Americas**\
 `Latin America was already struggling with how to handle President Trump’s interventions in the region. Then he attacked Venezuela.`\
 https://nytimes.com/2026/01/04/world/americas/trump-latin-america-venezuela.html
-
-**NFL playoff schedule: Where things stand with Steelers-Ravens set to decide AFC North**\
-`The wild-card round of the NFL playoffs begins with two games Saturday followed by three Sunday and the finale on Monday night.`\
-https://nytimes.com/athletic/6938288/2026/01/04/nfl-playoff-schedule-2026/
 
