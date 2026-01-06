@@ -1,3 +1,11 @@
+**Why are Colts running it back? Owner believes first-half success was sign of what's to come**\
+`Carlie Irsay-Gordon: "Even though we didn't get the results we expected, I'm confident in what we're building and how we're building it.”`\
+https://nytimes.com/athletic/6944145/2026/01/05/colts-chris-ballard-carlie-irsay-gordon-shane-steichen-run-it-back/
+
+**James Dolan: Knicks' current roster is good enough to win title this season**\
+`Dolan believes “this is the team” and that the 12 current players on the roster are good enough to win it all.`\
+https://nytimes.com/athletic/6944016/2026/01/05/james-dolan-knicks-comments-nba-thibodeau/
+
 **Alabama lands No. 1 RB in portal: Can Hollywood Smothers fix Tide's run game?**\
 `Alabama failed to reach 30 rushing yards in any of its final three games of the 2025-26 season.`\
 https://nytimes.com/athletic/6944116/2026/01/05/alabama-hollywood-smothers-transfer-portal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6943821/2026/01/05/commanders-offseason-questions-d
 **Cuban Deaths in U.S. Venezuela Strikes Confirm Ties Between Countries**\
 `The Maduro regime was long propped up by Cuba’s armed forces and intelligence agencies. Many Cubans were reported killed in the American military action.`\
 https://nytimes.com/2026/01/05/world/americas/venezuela-cuba-us-strikes.html
-
-**Venezuela’s Legislators Offer Scorn as Trump Demands Obedience**\
-`The convening of the National Assembly made it clear that Maduro loyalists remain entrenched across Venezuelan institutions after decades of purges and crackdowns on dissent.`\
-https://nytimes.com/2026/01/05/world/americas/trump-venezuela-us-control.html
-
-**Day 2: The Best Foods for Your Brain**\
-`Today, we’ll show you how to eat more of them.`\
-https://nytimes.com/interactive/2026/well/brain-health-mind-diet-recipes.html
 
