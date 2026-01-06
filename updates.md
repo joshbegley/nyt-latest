@@ -1,3 +1,7 @@
+**Can Venezuela’s New Leader Keep the U.S. Happy and Her Elites in Line?**\
+`As the country’s status quo abruptly shifts, experts say maintaining a coalition is crucial for political survival.`\
+https://nytimes.com/2026/01/06/world/can-venezuelanew-leader-keep-the-us-happy-and-her-elites-in-line.html
+
 **What makes Chargers' Justin Herbert the most 'mentally tough dude of all time'**\
 `“There’s something in his competitive fire,” coach Jim Harbaugh said earlier this season, “it motivates him even more.”`\
 https://nytimes.com/athletic/6943851/2026/01/06/chargers-justin-herbert-mentally-tough-nfl-playoffs/

@@ -1,3 +1,7 @@
+**The Rush to Profit From Maduro’s Capture**\
+`Trump administration officials are pushing American companies to quickly start investing in Venezuela. But energy giants have some major concerns.`\
+https://nytimes.com/2026/01/06/business/dealbook/venezuela-trump-oil-chevron.html
+
 **What makes Chargers' Justin Herbert the most 'mentally tough dude of all time'**\
 `“There’s something in his competitive fire,” coach Jim Harbaugh said earlier this season, “it motivates him even more.”`\
 https://nytimes.com/athletic/6943851/2026/01/06/chargers-justin-herbert-mentally-tough-nfl-playoffs/
@@ -8,11 +12,11 @@ https://nytimes.com/live/2026/01/06/us/trump-news
 
 **Can Venezuela’s New Leader Keep the U.S. Happy and Her Elites in Line?**\
 `As the country’s status quo abruptly shifts, experts say maintaining a coalition is crucial for political survival.`\
-https://nytimes.com/2026/01/06/world/can-venezuelanew-leader-keep-the-us-happy-and-her-elites-in-line.html
+https://nytimes.com/2026/01/06/world/americas/venezuela-leader-elites.html
 
 **Paris Opera Takes On a Noted Conductor, Aiming to Expand Its Symphonic Offerings**\
 `Semyon Bychkov will be the musical director for a period when the opera’s performance spaces are under renovation. It’s a chance to add symphonic seasons like at La Scala.`\
-https://nytimes.com/2026/01/06/arts/paris-opera-semyon-bychkov.html
+https://nytimes.com/2026/01/06/arts/music/paris-opera-semyon-bychkov.html
 
 **Do You Ever Feel Pressure to Be Perfect?**\
 `A guest essayist argues that perfectionism is “stunting our society.” Do you agree?`\
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/meraas/meraas-ad-post-campaign/how-dubai-design-dis
 **What Venezuela Wants**\
 `We take a deeper look at the evolving situation in Venezuela.`\
 https://nytimes.com/2026/01/06/briefing/what-venezuela-wants.html
-
-**Strasbourg fans say Rosenior's Chelsea move 'humiliating', call for club president's exit**\
-`Both clubs are owned by the BlueCo consortium and have had 12 player transfers take place between them since the takeover in summer 2023. `\
-https://nytimes.com/athletic/6944885/2026/01/06/strasbourg-protests-chelsea-liam-rosenior-manager/
 

@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6943851/2026/01/06/chargers-justin-herbert-mentally
 ``\
 https://nytimes.com/live/2026/01/06/us/trump-news
 
-**Can VenezuelaNew Leader Keep the U.S. Happy and Her Elites in Line?**\
+**Can Venezuela’s New Leader Keep the U.S. Happy and Her Elites in Line?**\
 `As the country’s status quo abruptly shifts, experts say maintaining a coalition is crucial for political survival.`\
 https://nytimes.com/2026/01/06/world/can-venezuelanew-leader-keep-the-us-happy-and-her-elites-in-line.html
 
