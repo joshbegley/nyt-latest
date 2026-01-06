@@ -1,3 +1,7 @@
+**Outside the Courthouse: Flags, Chants and Venezuelans’ Quiet Pain**\
+`A demonstration outside the building where Nicolás Maduro was arraigned was a ritual of New York public protest, but one that sprang from personal wounds inflicted a continent away.`\
+https://nytimes.com/2026/01/05/world/americas/maduro-new-york-arraignment-venezuela-protest.html
+
 **Flyers sign Christian Dvorak to 5-year, $25.75 million contract extension**\
 `The Flyers locked up their current top-line center, who would have been a hot commodity on the trade market.`\
 https://nytimes.com/athletic/6944061/2026/01/05/christian-dvorak-flyers-contract-extension/
