@@ -1,3 +1,7 @@
+**'I'm 100 per cent here' - Howe stresses Newcastle commitment**\
+`After more than four years in position, Howe is now the fourth-longest serving manager in the Premier League.`\
+https://nytimes.com/athletic/6944816/2026/01/06/eddie-howe-newcastle-manager-future/
+
 **There Is a Sickness Eating Away at American Democracy**\
 `Jan. 6 is a symptom. Elite impunity is the cause.`\
 https://nytimes.com/2026/01/06/opinion/trump-jan-6-jefferson-davis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/06/nyregion/a-very-new-york-kind-of-honor.html
 **Facing Challenge From Lander, Dan Goldman Prepares to Defend His Seat**\
 `Mr. Goldman, a Democrat from New York City, faces a stiff primary battle that could turn on Gaza and how to fight President Trump.`\
 https://nytimes.com/2026/01/06/nyregion/dan-goldman-congress-brad-lander.html
-
-**A New Yorker Falls for an L.A. Bungalow**\
-`An architect who wanted a bicoastal life took on a 1,000-square-foot second home built below street level in Silver Lake.`\
-https://nytimes.com/2026/01/06/realestate/los-angeles-bungalow.html
 

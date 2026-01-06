@@ -1,3 +1,7 @@
+**'I'm 100 per cent here' - Howe stresses Newcastle commitment**\
+`After more than four years in position, Howe is now the fourth-longest serving manager in the Premier League.`\
+https://nytimes.com/athletic/6944816/2026/01/06/eddie-howe-newcastle-manager-future/
+
 **There Is a Sickness Eating Away at American Democracy**\
 `Jan. 6 is a symptom. Elite impunity is the cause.`\
 https://nytimes.com/2026/01/06/opinion/trump-jan-6-jefferson-davis.html

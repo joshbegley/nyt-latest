@@ -1,40 +1,40 @@
-**'I'm 100 per cent here' - Howe stresses Newcastle commitment**\
-`After more than four years in position, Howe is now the fourth-longest serving manager in the Premier League.`\
-https://nytimes.com/athletic/6944816/2026/01/06/eddie-howe-newcastle-manager-future/
+**NFL Power Rankings: Seahawks, Patriots remain 1-2, Texans on rise with playoffs on tap**\
+`This week's power rankings look ahead to what's next for all 32 teams — especially those that missed the playoffs.`\
+https://nytimes.com/athletic/6942267/2026/01/06/nfl-power-rankings-playoffs-seahawks-patriots-texans-whats-next/
 
-**There Is a Sickness Eating Away at American Democracy**\
-`Jan. 6 is a symptom. Elite impunity is the cause.`\
-https://nytimes.com/2026/01/06/opinion/trump-jan-6-jefferson-davis.html
+**Aaron Glenn has the trust of the Jets players. Now he wants it from fans**\
+`Glenn promised the Jets would be a team the fans would be proud of, but there's not much for them to hang their hats on after a 3-14 season.`\
+https://nytimes.com/athletic/6944135/2026/01/06/aaron-glenn-first-season-new-york-jets-rebuild/
 
-**Trump Is Pushing a Culture War That Knows No Bounds**\
-`The president is deploying his domineering tactics in unexpected places.`\
-https://nytimes.com/2026/01/06/opinion/trump-presidential-power-nonprofits-ngos.html
+**Behind Carlie Irsay-Gordon’s decision to give Colts GM Chris Ballard one last shot**\
+`Irsay-Gordon believes the architect of the Colts’ disappointing present still has it in him to design a better future.`\
+https://nytimes.com/athletic/6943605/2026/01/06/colts-chris-ballard-shane-steichen-safe-carlie-irsay-gordon/
 
-**Tim Walz’s 17-Month Roller Coaster: A Sudden Rise, Then a ‘Tough Fight’**\
-`Mr. Walz drew national notice when Kamala Harris chose him as her running mate. A fraud scandal derailed his bid for re-election as Minnesota’s governor.`\
-https://nytimes.com/2026/01/06/us/tim-walz-governor-minnesota.html
+**What's next for MLB and Venezuela? Officials assess impact on upcoming season, WBC**\
+`Given the uncertainty, conversations with baseball officials revealed lingering unease about a nation that plays a vital role in MLB.`\
+https://nytimes.com/athletic/6944233/2026/01/06/mlb-venezuela-world-baseball-classic-impact/
 
-**All-Cash Deals Dominated Manhattan’s Real Estate Market in 2025**\
-`Buyers paying in cash accounted for 64 percent of co-op and condo sales last year, edging out hopeful buyers needing mortgages.`\
-https://nytimes.com/2026/01/06/realestate/manhattan-cash-home-buyers.html
+**Can hit TV show 'Heated Rivalry' change hockey culture?**\
+`The show has taken over pop culture and is opening up conversations about a complex topic within hockey.`\
+https://nytimes.com/athletic/6936576/2026/01/06/heated-rivalry-nhl-hockey-culture-change/
 
-**Being American Means Never Having to Learn From History**\
-`Trump’s increasing belligerence abroad should raise alarm about more than the fate of Venezuela.`\
-https://nytimes.com/2026/01/06/opinion/venezuela-american-history-trump.html
+**Final NFL QB stock report: Due respect to Matthew Stafford, but Drake Maye is rightful MVP**\
+`The rankings are set: Maye and Stafford finished 1-2, but what about the rest? Who was the biggest riser of the season? The biggest faller?`\
+https://nytimes.com/athletic/6943100/2026/01/06/nfl-qb-stock-report-rankings-drake-maye/
 
-**What Trump Wants in Venezuela**\
-`The journalist Jonathan Blitzer explains the various interests and factions at play in the Trump administration’s strike against Venezuela.`\
-https://nytimes.com/2026/01/06/opinion/ezra-klein-podcast-jonathan-blitzer.html
+**How Nick Sirianni studied Warriors coach Steve Kerr to celebrate 'joy' amid scrutiny**\
+`The NBA coach is an inspiration for Sirianni even though the two have never met.`\
+https://nytimes.com/athletic/6942872/2026/01/06/eagles-coach-nick-sirianni-joy-warriors-coach-steve-kerr/
 
-**We Are Entering a Deadly Era of Conflict**\
-`As states disregard limits on the lawful use of force, this may be just the beginning of a slide into frequent war.`\
-https://nytimes.com/2026/01/06/opinion/peace-conflict-war.html
+**The All-Free Agent team: Building the best squad out of what's on the market right now**\
+`Some top players have signed, but many big names are still on the market. Looking at where this class remains deep, and where it's shallow.`\
+https://nytimes.com/athletic/6943629/2026/01/06/mlb-all-free-agent-team-market-signings/
 
-**A ‘Very New York’ Kind of Honor**\
-`A business improvement district in Manhattan will pay tribute to the television personality Andy Cohen in an unusual way.`\
-https://nytimes.com/2026/01/06/nyregion/a-very-new-york-kind-of-honor.html
+**The New York Times International Edition in Print for Wednesday, Jan. 7, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/06/todays-new-york-times-international-edition
 
-**Facing Challenge From Lander, Dan Goldman Prepares to Defend His Seat**\
-`Mr. Goldman, a Democrat from New York City, faces a stiff primary battle that could turn on Gaza and how to fight President Trump.`\
-https://nytimes.com/2026/01/06/nyregion/dan-goldman-congress-brad-lander.html
+**Mason sacked as West Brom head coach after seven months in charge**\
+`The 34-year-old leaves the club 18th in the Championship having won just four of their last 16 matches.`\
+https://nytimes.com/athletic/6884365/2026/01/06/ryan-mason-west-brom-sacked/
 
