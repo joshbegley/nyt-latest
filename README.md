@@ -1,3 +1,15 @@
+**Kevin Durant says game-winner vs. Suns meant more: 'I didn’t want to leave'**\
+`The 15-time All-Star said the win against his former team carried extra weight after being "kicked out."`\
+https://nytimes.com/athletic/6945156/2026/01/06/kevin-durant-suns-rockets-comments-nba/
+
+**Doug LaMalfa, Republican Congressman, Dies at 65**\
+`Mr. LaMalfa had represented a district in northeastern California since 2013.`\
+https://nytimes.com/2026/01/06/us/politics/doug-lamalfa-dead.html
+
+**Will unintended consequences ruin this year's MVP vote, All-NBA teams?**\
+`Plus: Get ready, salary-cap nerds: A fun contract deadline arrives later this week.`\
+https://nytimes.com/athletic/6942978/2026/01/06/nba-65-game-rule-awards-consequences/
+
 **Chicago Stars unveil plans for NWSL performance center, completion set for 2027**\
 `The project will break ground in the spring, with a tentative completion date of 2027, marking a major milestone for the NWSL franchise.`\
 https://nytimes.com/athletic/6943980/2026/01/06/chicago-stars-nwsl-performance-center-alyssa-naeher/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/01/06/espanol/venezuela-trump-nicolas-maduro/esto-
 **En vivo: Trump prevé una mayor participación de EE. UU. en Venezuela**\
 `El presidente Trump declaró a NBC News que Estados Unidos debe “cuidar al país hasta que se recupere” antes de que se puedan celebrar elecciones, y nombró a un grupo de funcionarios estadounidenses para supervisar lo que sigue.`\
 https://nytimes.com/live/2026/01/06/espanol/venezuela-trump-nicolas-maduro
-
-**Machado Says She Plans to Return to Venezuela ‘as Soon as Possible’**\
-`María Corina Machado, Venezuela’s opposition leader, said she was planning to return to the country after the United States’ capture of Nicolás Maduro. President Trump has refused to back her as Venezuela’s next leader.`\
-https://nytimes.com/video/world/americas/100000010626659/machado-trump-venezuela-us.html
-
-**European Leaders Meet for Latest Round of Ukraine Talks**\
-`The discussions, also attended by top U.S. negotiators and other allies of Ukraine, are intended to make progress on European commitments to postwar security if a cease-fire is reached.`\
-https://nytimes.com/2026/01/06/world/europe/ukraine-talks-europe.html
-
-**NASCAR commissioner Steve Phelps resigning after fallout from trial and texts**\
-`The longtime NASCAR executive will leave his role at the end of this month in the wake of the antitrust lawsuit that rattled the sport.`\
-https://nytimes.com/athletic/6945158/2026/01/06/nascar-steve-phelps-resigns-commissioner-leadership-racing/
 
