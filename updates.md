@@ -1,3 +1,15 @@
+**Nvidia Shows Off New A.I. Chip at CES**\
+`At the annual tech conference, CES, Nvidia showed off a new A.I. chip, known as Vera Rubin, which is more efficient and powerful than previous generations of chips.`\
+https://nytimes.com/video/us/100000010626065/nvidia-chips-mercedes.html
+
+**Turmoil and toxicity: How Amorim's Man Utd reign fell apart**\
+`The Portuguese coach arrived to huge fanfare but his tenure ended after bust-ups with executives over tactics, transfers and results `\
+https://nytimes.com/athletic/6942339/2026/01/06/ruben-amorim-sacked-manchester-united-inside-story/
+
+**FPL live Q&A: Gameweek 21 advice from Ben Dinnery**\
+`Ben Dinnery of premierinjuries.com is on hand to offer his expert advice to give you the best chance of success ahead of the mid-week games`\
+https://nytimes.com/athletic/6942737/2026/01/06/fantasy-premier-league-live-qa-gameweek-21-advice-tips/
+
 **The Ashes Briefing: Australia grind England down in the Sydney sun as Smith joins the party**\
 `The home side have amassed an imposing lead with wickets still in hand as their captain and Travis Head scored hundreds on Jane McGrath Day`\
 https://nytimes.com/athletic/6943612/2026/01/06/australia-england-smith-head-ashes-briefing/
