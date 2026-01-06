@@ -1,3 +1,7 @@
+**Egor Zamula signs with Blue Jackets after waivers, contract termination**\
+`Zamula signed a one-year deal to help a short-handed Columbus blue line.`\
+https://nytimes.com/athletic/6946980/2026/01/06/egor-zamula-contract-blue-jackets/
+
 **LaMalfa’s Death Further Depletes House G.O.P. Majority**\
 `The California Republican’s sudden passing, on the same day that Representative Marjorie Taylor Greene’s resignation took effect, made the party’s House math even trickier.`\
 https://nytimes.com/2026/01/06/us/politics/doug-lamalfa-house-republican-majority.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/06/us/georgia-special-election-marjorie-taylor-green
 **Europe Rallies for Greenland as Trump’s Threats Continue**\
 `The show of solidarity comes as President Trump, emboldened by his capture of Nicolás Maduro from Venezuela, has suggested he could take action against other countries.`\
 https://nytimes.com/2026/01/06/world/americas/greenland-europe-trump-threats.html
-
-**The other vulgar bat knob card: Jim Nettles' 1990 Pacific #126**\
-`From 1989 to 1990 there was a strange number of profane bat knobs making it onto baseball cards.`\
-https://nytimes.com/athletic/6945936/2026/01/06/jim-nettles-error-card-bat-knob/
 

@@ -1,3 +1,7 @@
+**Egor Zamula signs with Blue Jackets after waivers, contract termination**\
+`Zamula signed a one-year deal to help a short-handed Columbus blue line.`\
+https://nytimes.com/athletic/6946980/2026/01/06/egor-zamula-contract-blue-jackets/
+
 **LaMalfa’s Death Further Depletes House G.O.P. Majority**\
 `The California Republican’s sudden passing, on the same day that Representative Marjorie Taylor Greene’s resignation took effect, made the party’s House math even trickier.`\
 https://nytimes.com/2026/01/06/us/politics/doug-lamalfa-house-republican-majority.html
