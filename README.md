@@ -1,3 +1,7 @@
+**Tamaleria La Madrina, Hampton Chutney and More Restaurant Openings**\
+`Feast on tamales and dosas in the first week of 2026.`\
+https://nytimes.com/2026/01/06/dining/nyc-restaurant-news.html
+
 **What Will Our Homes Look Like in 2026?**\
 `Experts are predicting a return to craft and focus on individuality.`\
 https://nytimes.com/2026/01/06/realestate/home-decor-trend-predictions-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6945792/2026/01/06/magic-vs-wizards-stream-how-to-w
 **Venezuelan Opposition Leader Will Publish a Book in the U.S.**\
 `“The Freedom Manifesto,” by María Corina Machado, will lay out the Nobel laureate’s vision for a “new era,” its publisher said.`\
 https://nytimes.com/2026/01/06/books/venezuelan-opposition-leader-book.html
-
-**How to watch Michigan vs. Penn State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan Wolverines play the Penn State Nittany Lions, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6945783/2026/01/06/michigan-vs-penn-state-stream-how-to-watch-jan-6/
 
