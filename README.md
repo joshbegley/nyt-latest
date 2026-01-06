@@ -1,3 +1,11 @@
+**Turmoil and toxicity: How Amorim's Man Utd reign fell apart**\
+`The Portuguese coach arrived to huge fanfare but his tenure ended after bust-ups with executives over tactics, transfers and results `\
+https://nytimes.com/athletic/6942339/2026/01/06/ruben-amorim-sacked-manchester-united-inside-story/
+
+**FPL live Q&A: Gameweek 21 advice from Ben Dinnery**\
+`Ben Dinnery of premierinjuries.com is on hand to offer his expert advice to give you the best chance of success ahead of the mid-week games`\
+https://nytimes.com/athletic/6942737/2026/01/06/fantasy-premier-league-live-qa-gameweek-21-advice-tips/
+
 **The Ashes Briefing: Australia grind England down in the Sydney sun as Smith joins the party**\
 `The home side have amassed an imposing lead with wickets still in hand as their captain and Travis Head scored hundreds on Jane McGrath Day`\
 https://nytimes.com/athletic/6943612/2026/01/06/australia-england-smith-head-ashes-briefing/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6944559/2026/01/06/steve-kerr-ejected-warriors-clip
 **Yasin Ayari: 'I know how good I am. I know that people around me know how good I am'**\
 `A natural-born footballer, Ayari has ridden the bumps to strut his stuff in the toughest league in the world`\
 https://nytimes.com/athletic/6893920/2026/01/06/yasin-ayari-brighton-hurzeler-coventry-blackburn/
-
-**West Ham vs Forest: Where does Nuno stand? Why has form dipped under Dyche?**\
-`Both managers have been struggling for results recently as their teams meet at the London Stadium. Our writers discuss the talking points`\
-https://nytimes.com/athletic/6942250/2026/01/06/west-ham-nottingham-forest-nuno-dyche/
-
-**Maduro’s Gesture Was Not Just a Peace Sign**\
-`The captured authoritarian leader flashed a symbol that many took to be a defiant peace sign. Loyal lawmakers repeated the gesture at a session in Caracas.`\
-https://nytimes.com/2026/01/06/world/americas/maduro-gesture-peace-sign.html
 
