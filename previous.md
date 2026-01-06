@@ -1,3 +1,7 @@
+**The Ashes Briefing: Australia grind England down in the Sydney sun as Smith joins the party**\
+`The home side have amassed an imposing lead with wickets still in hand as their captain and Travis Head scored hundreds on Jane McGrath Day`\
+https://nytimes.com/athletic/6943612/2026/01/06/australia-england-smith-head-ashes-briefing/
+
 **Word of the Day: abrogate**\
 `This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/06/learning/word-of-the-day-abrogate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6942250/2026/01/06/west-ham-nottingham-forest-nuno-
 **Maduro’s Gesture Was Not Just a Peace Sign**\
 `The captured authoritarian leader flashed a symbol that many took to be a defiant peace sign. Loyal lawmakers repeated the gesture at a session in Caracas.`\
 https://nytimes.com/2026/01/06/world/americas/maduro-gesture-peace-sign.html
-
-**Ratcliffe must own INEOS' error with Amorim - and fix the mess it created**\
-`The United minority owner's recent insistence his head coach needed three years to prove himself was exposed as a fallacy`\
-https://nytimes.com/athletic/6943026/2026/01/06/ratcliffe-ineos-amorim-manchester-united-sack/
 

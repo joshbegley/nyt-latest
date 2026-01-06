@@ -1,3 +1,7 @@
+**The Ashes Briefing: Australia grind England down in the Sydney sun as Smith joins the party**\
+`The home side have amassed an imposing lead with wickets still in hand as their captain and Travis Head scored hundreds on Jane McGrath Day`\
+https://nytimes.com/athletic/6943612/2026/01/06/australia-england-smith-head-ashes-briefing/
+
 **Word of the Day: abrogate**\
 `This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/06/learning/word-of-the-day-abrogate.html
