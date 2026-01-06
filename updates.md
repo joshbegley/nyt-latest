@@ -1,3 +1,19 @@
+**Venezuelan Leaders Project Independence**\
+`Also, Europe discusses postwar plans for Ukraine. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/01/06/briefing/venezuelan-leaders-project-independence.html
+
+**Mamdani Takes the Bite Out of ‘the Bump,’ Paving Over Hated Road Hazard**\
+`The small but symbolic gesture, at the foot of the Williamsburg Bridge, signals more ambitious street redesign plans from the new mayor.`\
+https://nytimes.com/2026/01/06/nyregion/mamdani-pothole-williamsburg-bridge-bump.html
+
+**Brad Marchand vs. Maple Leafs: Truth beyond the trolling in latest comments**\
+`Marchand opened the wound, confirming he almost signed with Toronto and saying it's "unfortunate the fans ran (Mitch) Marner out of town."`\
+https://nytimes.com/athletic/6947640/2026/01/06/brad-marchand-maple-leafs-comments/
+
+**‘It’s Hurting Minnesotans’: Tim Walz Says He Ended Run to Shield Residents From Trump**\
+`“I don’t think any governor in history has had to fight a war against the federal government every single day,” Gov. Walz said after ending his re-election bid.`\
+https://nytimes.com/2026/01/06/us/tim-walz-minnesota-fraud-trump.html
+
 **Brad Marchand vs. the Maple Leafs: Truth beyond the trolling in latest comments**\
 `Marchand opened the wound, confirming he almost signed with Toronto and saying it's "unfortunate the fans ran (Mitch) Marner out of town."`\
 https://nytimes.com/athletic/6947640/2026/01/06/brad-marchand-maple-leafs-comments/
