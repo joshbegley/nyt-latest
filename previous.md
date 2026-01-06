@@ -1,3 +1,15 @@
+**Czechia, Latvia, France unveil Olympic men's hockey rosters: Players to watch, X-factors, keys to success**\
+`David Pastrňák is a big reason to keep an eye on Czechia when the tournament begins in February.`\
+https://nytimes.com/athletic/6943491/2026/01/06/czechia-latvia-france-olympics-mens-hockey-roster/
+
+**What to Know About Maduro’s Arraignment**\
+`Our criminal justice reporter Jonah E. Bromwich describes the scene as Nicolás Maduro, the captive president of Venezuela, pleaded not guilty in federal court in Manhattan, and what is set to happen next.`\
+https://nytimes.com/video/world/americas/100000010623912/what-to-know-about-maduros-arraignment.html
+
+**A Jan. 6 Rioter Returned to the Capitol Seeking Forgiveness**\
+`Pamela Hemphill, who said she rejected President Trump’s pardon for her role in the Jan. 6, 2021, attack, apologized to a Capitol Police officer who was assaulted during the mayhem.`\
+https://nytimes.com/2026/01/06/us/politics/jan-6-rioter-seeks-forgiveness.html
+
 **Solskjaer holds talks over Manchester United caretaker role**\
 `The Norwegian previously managed United for a nearly three-year spell between December 2018 and November 2021.`\
 https://nytimes.com/athletic/6942100/2026/01/06/manchester-united-manager-next-solskjaer/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6943544/2026/01/06/penguins-nhl-trade-deadline-play
 **Tamaleria La Madrina, Hampton Chutney and More Restaurant Openings**\
 `Feast on tamales and dosas in the first week of 2026.`\
 https://nytimes.com/2026/01/06/dining/nyc-restaurant-news.html
-
-**What Will Our Homes Look Like in 2026?**\
-`Experts are predicting a return to craft and focus on individuality.`\
-https://nytimes.com/2026/01/06/realestate/home-decor-trend-predictions-2026.html
-
-**How to watch Canucks vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6945806/2026/01/06/canucks-vs-sabres-stream-how-to-watch-jan-6/
-
-**How to watch Cavaliers vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6945804/2026/01/06/cavaliers-vs-pacers-stream-how-to-watch-jan-6/
 

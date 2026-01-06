@@ -1,3 +1,11 @@
+**What’s Your Reaction to the U.S. Military Operation in Venezuela?**\
+`U.S. forces carried out an audacious raid on Venezuela’s capital, seizing President Nicolás Maduro and his wife. President Trump said the United States would “run” the country.`\
+https://nytimes.com/2026/01/06/learning/whats-your-reaction-to-the-us-military-operation-in-venezuela.html
+
+**Teaching About the U.S. Military Operation in Venezuela**\
+`U.S. forces carried out an audacious raid in Venezuela, seizing its president, Nicolás Maduro. We invite students to explore what happened and share their reactions.`\
+https://nytimes.com/2026/01/06/learning/lesson-plans/teaching-about-the-us-military-operation-in-venezuela.html
+
 **Czechia, Latvia, France unveil Olympic men's hockey rosters: Players to watch, X-factors, keys to success**\
 `David Pastrňák is a big reason to keep an eye on Czechia when the tournament begins in February.`\
 https://nytimes.com/athletic/6943491/2026/01/06/czechia-latvia-france-olympics-mens-hockey-roster/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/06/style/maduro-nike-tech-sweatsuit-meme.html
 **'If it works out, I will be happy' - Barca's Flick hopeful of Cancelo deal**\
 `Flick said Cancelo, 31, was a good short-term solution for Barca but insisted the deal was not yet complete.`\
 https://nytimes.com/athletic/6945802/2026/01/06/hansi-flick-barcelona-joao-cancelo-transfer/
-
-**What I'm hearing about the Penguins' appetite for trades, playoff race, new owners**\
-`The Penguins figure to be heavily involved in the trade market now and into the summer. Here's why.`\
-https://nytimes.com/athletic/6943544/2026/01/06/penguins-nhl-trade-deadline-playoffs/
-
-**Tamaleria La Madrina, Hampton Chutney and More Restaurant Openings**\
-`Feast on tamales and dosas in the first week of 2026.`\
-https://nytimes.com/2026/01/06/dining/nyc-restaurant-news.html
 

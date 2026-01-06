@@ -1,3 +1,15 @@
+**Czechia, Latvia, France unveil Olympic men's hockey rosters: Players to watch, X-factors, keys to success**\
+`David Pastrňák is a big reason to keep an eye on Czechia when the tournament begins in February.`\
+https://nytimes.com/athletic/6943491/2026/01/06/czechia-latvia-france-olympics-mens-hockey-roster/
+
+**What to Know About Maduro’s Arraignment**\
+`Our criminal justice reporter Jonah E. Bromwich describes the scene as Nicolás Maduro, the captive president of Venezuela, pleaded not guilty in federal court in Manhattan, and what is set to happen next.`\
+https://nytimes.com/video/world/americas/100000010623912/what-to-know-about-maduros-arraignment.html
+
+**A Jan. 6 Rioter Returned to the Capitol Seeking Forgiveness**\
+`Pamela Hemphill, who said she rejected President Trump’s pardon for her role in the Jan. 6, 2021, attack, apologized to a Capitol Police officer who was assaulted during the mayhem.`\
+https://nytimes.com/2026/01/06/us/politics/jan-6-rioter-seeks-forgiveness.html
+
 **Solskjaer holds talks over Manchester United caretaker role**\
 `The Norwegian previously managed United for a nearly three-year spell between December 2018 and November 2021.`\
 https://nytimes.com/athletic/6942100/2026/01/06/manchester-united-manager-next-solskjaer/
