@@ -1,3 +1,15 @@
+**Venezuelan Opposition Leader Will Publish a Book in the U.S.**\
+`“The Freedom Manifesto,” by María Corina Machado, will lay out the Nobel laureate’s vision for a “new era,” its publisher said.`\
+https://nytimes.com/2026/01/06/books/venezuelan-opposition-leader-book.html
+
+**How to watch Michigan vs. Penn State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Penn State Nittany Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6945783/2026/01/06/michigan-vs-penn-state-stream-how-to-watch-jan-6/
+
+**Homeland Security Steps Up Enforcement in Minneapolis**\
+`Kristi Noem, the homeland security secretary, posted a video showing an immigration arrest being made as part of the administration’s announced crackdown.`\
+https://nytimes.com/2026/01/06/us/politics/homeland-security-minneapolis-immigration.html
+
 **How to watch Duke vs. Louisville men's basketball: Time, TV, streaming**\
 `Find out how to watch the Duke Blue Devils play the Louisville Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6945776/2026/01/06/duke-vs-louisville-stream-how-to-watch-jan-6/

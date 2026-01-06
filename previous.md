@@ -1,3 +1,15 @@
+**Venezuelan Opposition Leader Will Publish a Book in the U.S.**\
+`“The Freedom Manifesto,” by María Corina Machado, will lay out the Nobel laureate’s vision for a “new era,” its publisher said.`\
+https://nytimes.com/2026/01/06/books/venezuelan-opposition-leader-book.html
+
+**How to watch Michigan vs. Penn State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Penn State Nittany Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6945783/2026/01/06/michigan-vs-penn-state-stream-how-to-watch-jan-6/
+
+**Homeland Security Steps Up Enforcement in Minneapolis**\
+`Kristi Noem, the homeland security secretary, posted a video showing an immigration arrest being made as part of the administration’s announced crackdown.`\
+https://nytimes.com/2026/01/06/us/politics/homeland-security-minneapolis-immigration.html
+
 **How to watch Duke vs. Louisville men's basketball: Time, TV, streaming**\
 `Find out how to watch the Duke Blue Devils play the Louisville Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6945776/2026/01/06/duke-vs-louisville-stream-how-to-watch-jan-6/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6944626/2026/01/06/canucks-kiefer-sherwood-trade-dr
 **Canada reveals Jan. camp squad; A World Cup send-off friendly materializes**\
 `The off-calendar camp allows Jesse Marsch to get a wider look at his player pool, but the World Cup remains the chief focus`\
 https://nytimes.com/athletic/6943999/2026/01/06/canada-january-roster-world-cup-send-off-uzbekistan/
-
-**Dispelling 9 Myths About Women’s Health**\
-`When it comes to heart health, immunity, reproductive health and more, misconceptions abound.`\
-https://nytimes.com/2026/01/06/well/womens-health-myths.html
-
-**Five Weeknight Dishes for 2026**\
-`Spicy chicken thighs and mushrooms, seared tofu with kimchi and turkey chili start the year with flavor and ease.`\
-https://nytimes.com/2026/01/06/dining/five-weeknight-dishes-for-2026.html
-
-**Yang, Esse set for Coventry loan moves**\
-`The two players are set to join the Championship leaders for the second half of the season.`\
-https://nytimes.com/athletic/6945576/2026/01/06/yang-min-hyeok-romain-esse-coventry-loan/
 
