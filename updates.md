@@ -1,3 +1,11 @@
+**What Trump Wants in Venezuela**\
+`The journalist Jonathan Blitzer explains the various interests and factions at play in the Trump administration’s strike against Venezuela.`\
+https://nytimes.com/video/opinion/100000010624474/what-trump-wants-in-venezuela.html
+
+**NFL overreactions: Panthers are a safe bet as big underdog**\
+`Toby Mergler gives his picks for this weekend's NFL wild-card playoff round.`\
+https://nytimes.com/athletic/6945142/2026/01/06/nfl-overreactions-wild-card-panthers-underdogs/
+
 **Skiers Make Mountaintop Tribute to Swiss Fire Victims**\
 `Hundreds of skiers gathered in Crans-Montana, Switzerland, to honor the 40 people killed and more than 100 injured in a New Years’s Day fire at a bar. The town’s mayor said the bar had not been inspected in several years.`\
 https://nytimes.com/video/world/europe/100000010626590/swiss-ski-fire-tribute-heart.html
