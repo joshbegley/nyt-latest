@@ -1,3 +1,7 @@
+**Trump’s Post About Slain Minnesota Lawmaker Dismays Her Children**\
+`The son and daughter of Melissa and Mark Hortman have asked the president to remove a social media post promoting a conspiracy theory about the assassination.`\
+https://nytimes.com/2026/01/05/us/trump-social-hortman-conspiracy-theory.html
+
 **Outside the Courthouse: Flags, Chants and Venezuelans’ Quiet Pain**\
 `A demonstration outside the building where Nicolás Maduro was arraigned was a ritual of New York public protest, but one that sprang from personal wounds inflicted a continent away.`\
 https://nytimes.com/2026/01/05/world/americas/maduro-new-york-arraignment-venezuela-protest.html
