@@ -1,3 +1,11 @@
+**How the 50th pick helped the Clippers upset the Warriors in front of Snoop Dogg**\
+`Kobe Sanders scored a career-high 20 points as the Clippers improved to 7-1 in their last eight games.`\
+https://nytimes.com/athletic/6944754/2026/01/06/kobe-sanders-clippers-upset-warriors/
+
+**South Florida QB Byrum Brown transferring to Auburn, following coach Alex Golesh**\
+`Brown was the only player in the nation to top 3,000 yards passing and 1,000 yards rushing 2025.`\
+https://nytimes.com/athletic/6945291/2026/01/06/byrum-brown-transfer-auburn-south-florida-quarterback/
+
 **Kevin Durant says game-winner vs. Suns meant more: 'I didn’t want to leave'**\
 `The 15-time All-Star said the win against his former team carried extra weight after being "kicked out."`\
 https://nytimes.com/athletic/6945156/2026/01/06/kevin-durant-suns-rockets-comments-nba/

@@ -1,9 +1,13 @@
+**Can You Optimize Love?**\
+`A group of tech executives, app developers and Silicon Valley philosophers is seeking to streamline the messy matters of the heart.`\
+https://nytimes.com/2026/01/06/style/love-symposium-artificial-intelligence-keeper.html
+
 **How the 50th pick helped the Clippers upset the Warriors in front of Snoop Dogg**\
 `Kobe Sanders scored a career-high 20 points as the Clippers improved to 7-1 in their last eight games.`\
 https://nytimes.com/athletic/6944754/2026/01/06/kobe-sanders-clippers-upset-warriors/
 
 **South Florida QB Byrum Brown transferring to Auburn, following coach Alex Golesh**\
-`Brown was the only player in the nation to top 3,000 yards passing and 1,000 yards rushing 2025.`\
+`Brown was the only player in the nation to top 3,000 yards passing and 1,000 yards rushing in 2025.`\
 https://nytimes.com/athletic/6945291/2026/01/06/byrum-brown-transfer-auburn-south-florida-quarterback/
 
 **Kevin Durant says game-winner vs. Suns meant more: 'I didn’t want to leave'**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/06/movies/bela-tarr-death.html
 **Glasner says 'it makes no sense' to discuss Man Utd vacancy**\
 `The Austrian's Crystal Palace contract expires at the end of this season.`\
 https://nytimes.com/athletic/6945043/2026/01/06/oliver-glasner-palace-man-utd/
-
-**Will Welch to Leave GQ After 7 Years as Its Top Editor**\
-`Mr. Welch worked to move the men’s magazine away from what he called “manly-man tropes.” His next role will be with Pharrell, the men’s designer of Louis Vuitton.`\
-https://nytimes.com/2026/01/06/business/media/will-welch-gq-editor-departure.html
 

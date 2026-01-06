@@ -1,3 +1,11 @@
+**How the 50th pick helped the Clippers upset the Warriors in front of Snoop Dogg**\
+`Kobe Sanders scored a career-high 20 points as the Clippers improved to 7-1 in their last eight games.`\
+https://nytimes.com/athletic/6944754/2026/01/06/kobe-sanders-clippers-upset-warriors/
+
+**South Florida QB Byrum Brown transferring to Auburn, following coach Alex Golesh**\
+`Brown was the only player in the nation to top 3,000 yards passing and 1,000 yards rushing 2025.`\
+https://nytimes.com/athletic/6945291/2026/01/06/byrum-brown-transfer-auburn-south-florida-quarterback/
+
 **Kevin Durant says game-winner vs. Suns meant more: 'I didn’t want to leave'**\
 `The 15-time All-Star said the win against his former team carried extra weight after being "kicked out."`\
 https://nytimes.com/athletic/6945156/2026/01/06/kevin-durant-suns-rockets-comments-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6945043/2026/01/06/oliver-glasner-palace-man-utd/
 **Will Welch to Leave GQ After 7 Years as Its Top Editor**\
 `Mr. Welch worked to move the men’s magazine away from what he called “manly-man tropes.” His next role will be with Pharrell, the men’s designer of Louis Vuitton.`\
 https://nytimes.com/2026/01/06/business/media/will-welch-gq-editor-departure.html
-
-**Esto es lo más reciente**\
-`By Qasim Nauman and Francesca Regalado`\
-https://nytimes.com/live/2026/01/06/espanol/venezuela-trump-nicolas-maduro/esto-es-lo-mas-reciente
-
-**En vivo: Trump prevé una mayor participación de EE. UU. en Venezuela**\
-`El presidente Trump declaró a NBC News que Estados Unidos debe “cuidar al país hasta que se recupere” antes de que se puedan celebrar elecciones, y nombró a un grupo de funcionarios estadounidenses para supervisar lo que sigue.`\
-https://nytimes.com/live/2026/01/06/espanol/venezuela-trump-nicolas-maduro
 
