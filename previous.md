@@ -1,3 +1,7 @@
+**Where the Blue Jays stand with Bo Bichette and Kyle Tucker**\
+`Toronto has increased their efforts to recruit Kyle Tucker, but a reunion with Bo Bichette appears increasingly unlikely.`\
+https://nytimes.com/athletic/6947549/2026/01/06/blue-jays-bo-bichette-kyle-tucker/
+
 **Rosa von Praunheim, 83, Dies; Broke Ground Capturing German Gay Life**\
 `His first feature-length movie, in 1971, was called his country’s “Stonewall moment,” for jump-starting a gay-rights movement. He became a leading voice of it.`\
 https://nytimes.com/2026/01/06/movies/rosa-von-praunheim-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6947640/2026/01/06/brad-marchand-maple-leafs-commen
 **‘It’s Hurting Minnesotans’: Tim Walz Says He Ended Run to Shield Residents From Trump**\
 `“I don’t think any governor in history has had to fight a war against the federal government every single day,” Gov. Walz said after ending his re-election bid.`\
 https://nytimes.com/2026/01/06/us/tim-walz-minnesota-fraud-trump.html
-
-**Fire Ravages Los Angeles Motel That Played Supporting Role in Films**\
-`A city commission had just voted to consider the site of the old Hollywood Center Motel, which has long been vacant, for landmark status.`\
-https://nytimes.com/2026/01/06/us/hollywood-center-motel-fire-california.html
 
