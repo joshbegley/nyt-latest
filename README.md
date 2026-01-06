@@ -1,3 +1,11 @@
+**Skiers Make Mountaintop Tribute to Swiss Fire Victims**\
+`Hundreds of skiers gathered in Crans-Montana, Switzerland, to honor the 40 people killed and more than 100 injured in a New Years’s Day fire at a bar. The town’s mayor said the bar had not been inspected in several years.`\
+https://nytimes.com/video/world/europe/100000010626590/swiss-ski-fire-tribute-heart.html
+
+**Fighting Through the Ice**\
+`The sea ice changed completely over the course of a few hours, from disconnected floes to a vast, snow-covered plain.`\
+https://nytimes.com/2026/01/06/climate/antarctica-navigating-sea-ice.html
+
 **Until Saturday: From walk-on to $7.5M in 365 days**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6946116/2026/01/06/transfer-portal-drew-mestemaker-until-saturday/
@@ -29,8 +37,4 @@ https://nytimes.com/video/world/americas/100000010623912/what-to-know-about-madu
 **A Jan. 6 Rioter Returned to the Capitol Seeking Forgiveness**\
 `Pamela Hemphill, who said she rejected President Trump’s pardon for her role in the Jan. 6, 2021, attack, apologized to a Capitol Police officer who was assaulted during the mayhem.`\
 https://nytimes.com/2026/01/06/us/politics/jan-6-rioter-seeks-forgiveness.html
-
-**Solskjaer holds talks over Manchester United caretaker role**\
-`The Norwegian previously managed United for a nearly three-year spell between December 2018 and November 2021.`\
-https://nytimes.com/athletic/6942100/2026/01/06/manchester-united-manager-next-solskjaer/
 

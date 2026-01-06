@@ -1,3 +1,7 @@
+**Until Saturday: From walk-on to $7.5M in 365 days**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6946116/2026/01/06/transfer-portal-drew-mestemaker-until-saturday/
+
 **Recalling the Horrors of Jan. 6**\
 `Readers respond to an essay by Representative Jamie Raskin and to an editorial. Also: Risky changes in vaccine policy; a new Kennedy Center.`\
 https://nytimes.com/2026/01/06/opinion/jan-6-anniversary.html
