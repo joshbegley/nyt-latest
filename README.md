@@ -1,7 +1,3 @@
-**Evans to return to Man United on Fletcher's coaching staff**\
-`The 37-year-old spent six months as United's head of loans and pathways after ending his playing career last summer.`\
-https://nytimes.com/athletic/6944785/2026/01/06/jonny-evans-manchester-united-coach-return/
-
 **Jordan Stolz, Erin Jackson headline U.S. Olympic speed skating team**\
 `With Stolz and Jackson leading the way, the Americans could be poised for their strongest Olympic performance in years.`\
 https://nytimes.com/athletic/6944605/2026/01/06/us-olympics-speed-skating-team-jordan-stolz-erin-jackson/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6944806/2026/01/06/ruben-dias-manchester-city-injur
 **New York Times Case Against Pentagon Will Move Quickly**\
 `The lawsuit, over the Defense Department’s new rules for journalists, is headed for oral arguments in March.`\
 https://nytimes.com/2026/01/06/business/media/new-york-times-pentagon-lawsuit.html
+
+**How Dubai Design District Is Rethinking Waterfront Living for a Creative City**\
+`Meraas, a member of Dubai Holding Real Estate, has unveiled an expanded residential masterplan for Dubai.`\
+https://nytimes.com/paidpost/meraas/meraas-ad-post-campaign/how-dubai-design-district-is-rethinking-waterfront-living-for-a-creative-city.html
 
