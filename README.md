@@ -1,3 +1,7 @@
+**New York Times Case Against Pentagon Will Move Quickly**\
+`The lawsuit, over the Defense Department’s new rules for journalists, is headed for oral arguments in March.`\
+https://nytimes.com/2026/01/06/business/media/new-york-times-pentagon-lawsuit.html
+
 **How Dubai Design District Is Rethinking Waterfront Living for a Creative City**\
 `Meraas, a member of Dubai Holding Real Estate, has unveiled an expanded residential masterplan for Dubai.`\
 https://nytimes.com/paidpost/meraas/meraas-ad-post-campaign/how-dubai-design-district-is-rethinking-waterfront-living-for-a-creative-city.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6943696/2026/01/06/wnba-womens-basketball-2026-pred
 **Ego, power, control: Why it matters if you're called manager or head coach**\
 `There are currently 14 head coaches in the Premier League, with the rest managers - but what's the difference and why is it so important...?`\
 https://nytimes.com/athletic/6941836/2026/01/06/manager-or-head-coach/
-
-**Wild's second straight game chasing the Kings proves too much: Takeaways**\
-`Minnesota, on the road since Dec. 27, is running low on energy on the back end of its trip out west.`\
-https://nytimes.com/athletic/6944320/2026/01/06/second-straight-chasing-kings-takeaways/
 

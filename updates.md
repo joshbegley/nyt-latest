@@ -1,3 +1,7 @@
+**How Dubai Design District Is Rethinking Waterfront Living for a Creative City**\
+`Meraas, a member of Dubai Holding Real Estate, has unveiled an expanded residential masterplan for Dubai.`\
+https://nytimes.com/paidpost/meraas/meraas-ad-post-campaign/how-dubai-design-district-is-rethinking-waterfront-living-for-a-creative-city.html
+
 **What Venezuela Wants**\
 `We take a deeper look at the evolving situation in Venezuela.`\
 https://nytimes.com/2026/01/06/briefing/what-venezuela-wants.html
