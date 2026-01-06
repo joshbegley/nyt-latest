@@ -1,3 +1,7 @@
+**What I'm hearing about the Penguins' appetite for trades, playoff race, new owners**\
+`The Penguins figure to be heavily involved in the trade market now and into the summer. Here's why.`\
+https://nytimes.com/athletic/6943544/2026/01/06/penguins-nhl-trade-deadline-playoffs/
+
 **Tamaleria La Madrina, Hampton Chutney and More Restaurant Openings**\
 `Feast on tamales and dosas in the first week of 2026.`\
 https://nytimes.com/2026/01/06/dining/nyc-restaurant-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6945794/2026/01/06/stars-vs-hurricanes-stream-how-t
 **How to watch Magic vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6945792/2026/01/06/magic-vs-wizards-stream-how-to-watch-jan-6/
-
-**Venezuelan Opposition Leader Will Publish a Book in the U.S.**\
-`“The Freedom Manifesto,” by María Corina Machado, will lay out the Nobel laureate’s vision for a “new era,” its publisher said.`\
-https://nytimes.com/2026/01/06/books/venezuelan-opposition-leader-book.html
 

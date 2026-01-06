@@ -1,3 +1,7 @@
+**What I'm hearing about the Penguins' appetite for trades, playoff race, new owners**\
+`The Penguins figure to be heavily involved in the trade market now and into the summer. Here's why.`\
+https://nytimes.com/athletic/6943544/2026/01/06/penguins-nhl-trade-deadline-playoffs/
+
 **Tamaleria La Madrina, Hampton Chutney and More Restaurant Openings**\
 `Feast on tamales and dosas in the first week of 2026.`\
 https://nytimes.com/2026/01/06/dining/nyc-restaurant-news.html
