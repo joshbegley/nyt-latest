@@ -1,3 +1,19 @@
+**Steve Sheetz, Who Popularized Convenience Stores as a C.E.O., Dies at 77**\
+`Sheetz, a family-owned company that started with a single convenience store in Altoona, Pa., has more than 800 locations in seven states.`\
+https://nytimes.com/2026/01/05/obituaries/steve-sheetz-dead.html
+
+**How to watch Packers at Bears: Wild Card Round Time, TV, streaming**\
+`Find out how to watch the Green Bay Packers play the Chicago Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6944025/2026/01/05/packers-vs-bears-stream-how-to-watch-jan-10/
+
+**For the disappointing and disappointed Commanders, 'hard decisions have to be made'**\
+`Washington Commanders coach Dan Quinn and general manager Adam Peters acknowledged the obvious: Changes will be and need to be made.`\
+https://nytimes.com/athletic/6943821/2026/01/05/commanders-offseason-questions-dan-quinn/
+
+**The C.I.A. assessed Venezuela’s future without Maduro ahead of the U.S. operation.**\
+`The assessment aided President Trump and other officials in concluding that Delcy Rodriguez, then Venezuela’s vice president, was Nicolás Maduro’s best short-term successor, according to people briefed on the matter.`\
+https://nytimes.com/live/2026/01/05/world/venezuela-maduro-trump/venezuela-without-maduro-cia-intel-report
+
 **Cuban Deaths in U.S. Venezuela Strikes Confirm Ties Between Countries**\
 `The Maduro regime was long propped up by Cuba’s armed forces and intelligence agencies. Many Cubans were reported killed in the American military action.`\
 https://nytimes.com/2026/01/05/world/americas/venezuela-cuba-us-strikes.html
