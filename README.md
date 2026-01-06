@@ -1,3 +1,19 @@
+**Trae Young potential trade spots: Clippers? Wizards? Plus, four that don't line up**\
+`Atlanta seems ready to move on from the Trae Young era. Which teams make realistic trade partners — and which ones don't?`\
+https://nytimes.com/athletic/6943798/2026/01/06/nba-trade-trae-young-clippers-wizards-future/
+
+**Two-Tone Loafers and a Silver Crucifix**\
+`Eye-catching shoes and jewelry brought personality to wintry attire.`\
+https://nytimes.com/2026/01/06/style/street-style-look-two-tone-loafers.html
+
+**Leicester in talks to appoint Southampton's Goldie as technical director**\
+`The Championship club have held talks with the 40-year-old who was made director of group talent strategy at Sports Republic last year.`\
+https://nytimes.com/athletic/6945003/2026/01/06/leicester-city-transfers-director-southampton/
+
+**Evans to return to Man United on Fletcher's coaching staff**\
+`The 37-year-old spent six months as United's head of loans and pathways after ending his playing career last summer.`\
+https://nytimes.com/athletic/6944785/2026/01/06/jonny-evans-manchester-united-coach-return/
+
 **Jordan Stolz, Erin Jackson headline U.S. Olympic speed skating team**\
 `With Stolz and Jackson leading the way, the Americans could be poised for their strongest Olympic performance in years.`\
 https://nytimes.com/athletic/6944605/2026/01/06/us-olympics-speed-skating-team-jordan-stolz-erin-jackson/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/06/world/americas/venezuela-leader-elites.html
 **Paris Opera Takes On a Noted Conductor, Aiming to Expand Its Symphonic Offerings**\
 `Semyon Bychkov will be the musical director for a period when the opera’s performance spaces are under renovation. It’s a chance to add symphonic seasons like at La Scala.`\
 https://nytimes.com/2026/01/06/arts/music/paris-opera-semyon-bychkov.html
-
-**Do You Ever Feel Pressure to Be Perfect?**\
-`A guest essayist argues that perfectionism is “stunting our society.” Do you agree?`\
-https://nytimes.com/2026/01/06/learning/do-you-ever-feel-pressure-to-be-perfect.html
-
-**Manchester City's Dias set for up to six weeks out with hamstring injury**\
-`Dias sustained the injury during the draw with Chelsea and Pep Guardiola confirmed the expected injury timeframe on Tuesday.`\
-https://nytimes.com/athletic/6944806/2026/01/06/ruben-dias-manchester-city-injury-update/
-
-**New York Times Case Against Pentagon Will Move Quickly**\
-`The lawsuit, over the Defense Department’s new rules for journalists, is headed for oral arguments in March.`\
-https://nytimes.com/2026/01/06/business/media/new-york-times-pentagon-lawsuit.html
-
-**How Dubai Design District Is Rethinking Waterfront Living for a Creative City**\
-`Meraas, a member of Dubai Holding Real Estate, has unveiled an expanded residential masterplan for Dubai.`\
-https://nytimes.com/paidpost/meraas/meraas-ad-post-campaign/how-dubai-design-district-is-rethinking-waterfront-living-for-a-creative-city.html
 
