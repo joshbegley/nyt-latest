@@ -1,3 +1,11 @@
+**Mamdani Targets Junk Fees and Hidden Charges in Two Executive Orders**\
+`Trying to protect consumers by going after deceptive business practices has been an early focus of the new mayor’s administration.`\
+https://nytimes.com/2026/01/05/nyregion/mamdani-affordability-consumer-protections.html
+
+**Buccaneers' Todd Bowles makes case to return, points to 3 NFC South titles**\
+`Bowles said he had yet to meet with Tampa Bay ownership on Monday, but a meeting with the Glazer family is scheduled for this week.`\
+https://nytimes.com/athletic/6943498/2026/01/05/todd-bowles-buccaneers-coaching-future/
+
 **Rangers' James Dolan reiterates faith in Chris Drury in first interview since 2023**\
 `Asked directly if he still has trust in Drury, Dolan responded with a firm “yes.”`\
 https://nytimes.com/athletic/6943731/2026/01/05/rangers-james-dolan-chris-drury/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/05/well/childhood-vaccine-schedule-cdc-changes.html
 **David R. Young, 89, Is Dead; Nixon Aide Steered the Watergate ‘Plumbers’**\
 `He took part in White House machinations to stop damning leaks of classified information and directed the break-in at the Democrats’ headquarters that undid a presidency.`\
 https://nytimes.com/2026/01/05/us/david-r-young-dead.html
-
-**Minneapolis-Area Hotel Accused of Turning Away Immigration Agents**\
-`As the U.S. ramps up deportation efforts in Minnesota, the Department of Homeland Security claimed on social media that a Hampton Inn had canceled agents’ bookings.`\
-https://nytimes.com/2026/01/05/travel/hilton-hotel-reservations-minneapolis-minnesota-immigration.html
-
-**Mike McDaniel on Dolphins future: 'I am the coach ... until told otherwise'**\
-`The Dolphins finished 7-10, dropping McDaniel to 35-33 overall since he took over as Miami's head coach four years ago.`\
-https://nytimes.com/athletic/6943471/2026/01/05/mike-mcdaniel-dolphins-coach-future/
 
