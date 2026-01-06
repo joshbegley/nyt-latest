@@ -1,3 +1,7 @@
+**Trump’s Post About Slain Minnesota Lawmaker Dismays Her Children**\
+`The son and daughter of Melissa and Mark Hortman have asked the president to remove a social media post promoting a conspiracy theory about the assassination.`\
+https://nytimes.com/2026/01/05/us/trump-social-hortman-conspiracy-theory.html
+
 **Outside the Courthouse: Flags, Chants and Venezuelans’ Quiet Pain**\
 `A demonstration outside the building where Nicolás Maduro was arraigned was a ritual of New York public protest, but one that sprang from personal wounds inflicted a continent away.`\
 https://nytimes.com/2026/01/05/world/americas/maduro-new-york-arraignment-venezuela-protest.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/well/brain-health-mind-diet-recipes.html
 **A.I. Images of Maduro Spread Rapidly, Despite Safeguards**\
 `Deepfakes of Venezuela’s ousted president, Nicolás Maduro, flooded the internet after his capture, in a new collision of breaking news and artificial intelligence.`\
 https://nytimes.com/2026/01/05/technology/nicolas-maduro-ai-images-deepfakes.html
-
-**Trump’s Foray Into Venezuela Could Embolden Russia’s and China’s Own Aggression**\
-`While both countries were allied with Nicolás Maduro, the U.S. attack could give them justification to use force in other spheres, analysts said.`\
-https://nytimes.com/2026/01/05/world/europe/trump-venezuela-china-russia.html
 
