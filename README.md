@@ -1,3 +1,7 @@
+**White House Posts False Jan. 6 Narrative on Riot’s 5th Anniversary**\
+`A new web page on the official White House site blames the Capitol Police and Democrats for the pro-Trump mob riot, absolving the president of responsibility and calling participants “innocent.”`\
+https://nytimes.com/2026/01/06/us/politics/trump-white-house-jan-6-website.html
+
 **A's denied 'Las Vegas Athletics' and 'Vegas Athletics' trademarks again**\
 `The trademark office ruled the Athletics did not have the necessary "acquired distinctiveness."`\
 https://nytimes.com/athletic/6946884/2026/01/06/as-denied-las-vegas-athletics-and-vegas-athletics-trademarks-again/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6946653/2026/01/06/bears-caleb-williams-packers-nfl
 **Matt LaFleur expects to have RT Zach Tom back for Packers' wild-card game vs. Bears**\
 `Tom has been out after injuring his knee in Week 15, but should be back to give Green Bay a playoff boost.`\
 https://nytimes.com/athletic/6946973/2026/01/06/zach-tom-packers-wild-card-bears/
-
-**Former Manchester United boss Ten Hag to return to FC Twente**\
-`Ten Hag, 55, was dismissed as Leverkusen coach after just three games in charge in September, having been sacked by United in October 2024.`\
-https://nytimes.com/athletic/6946877/2026/01/06/erik-ten-hag-fc-twente-technical-director/
 
