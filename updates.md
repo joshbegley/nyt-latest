@@ -1,3 +1,11 @@
+**How to Stay Warm This Winter**\
+`Elevated takes on cold-weather essentials to get you through the season.`\
+https://nytimes.com/2026/01/06/t-magazine/how-to-stay-warm-winter-cold.html
+
+**Rangers place goaltender Igor Shesterkin on injured reserve, Adam Fox on LTIR**\
+`Both injuries apparently came in Monday's overtime loss to Utah.`\
+https://nytimes.com/athletic/6943934/2026/01/06/rangers-igor-shesterkin-injury-adam-fox-ltir/
+
 **Trump’s Venezuela Attack Feels Very 1980s**\
 `The Trump administration’s key motivations for deposing Venezuela’s President Nicolás Maduro don’t track, argues the Opinion columnist Ezra Klein. In the U.S., cocaine isn’t the big drug problem, foreign oil isn’t the big energy need and socialism isn’t the big ideological threat.`\
 https://nytimes.com/video/opinion/100000010624483/trumps-venezuela-attack-feels-very-1980s.html

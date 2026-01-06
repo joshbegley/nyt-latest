@@ -1,3 +1,11 @@
+**How to Stay Warm This Winter**\
+`Elevated takes on cold-weather essentials to get you through the season.`\
+https://nytimes.com/2026/01/06/t-magazine/how-to-stay-warm-winter-cold.html
+
+**Rangers place goaltender Igor Shesterkin on injured reserve, Adam Fox on LTIR**\
+`Both injuries apparently came in Monday's overtime loss to Utah.`\
+https://nytimes.com/athletic/6943934/2026/01/06/rangers-igor-shesterkin-injury-adam-fox-ltir/
+
 **Trump’s Venezuela Attack Feels Very 1980s**\
 `The Trump administration’s key motivations for deposing Venezuela’s President Nicolás Maduro don’t track, argues the Opinion columnist Ezra Klein. In the U.S., cocaine isn’t the big drug problem, foreign oil isn’t the big energy need and socialism isn’t the big ideological threat.`\
 https://nytimes.com/video/opinion/100000010624483/trumps-venezuela-attack-feels-very-1980s.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/06/t-magazine/luxury-train-travel-scenic.html
 **Mickey Rourke Declines $100,000 in Donations After His Eviction**\
 `Rourke’s landlord said in court documents that the actor owed nearly $60,000 in rent. Rourke said he had declined to pay rent after the home became uninhabitable.`\
 https://nytimes.com/2026/01/06/movies/mickey-rourke-eviction-gofundme.html
-
-**Three Views on What 2026 Might Bring**\
-`Our reporters on the ground tells us what they’re watching in Ukraine, the Middle East and China.`\
-https://nytimes.com/2026/01/06/world/looking-ahead-2026-ukraine-middle-east-china.html
-
-**Falcons restructure Kirk Cousins' contract, will likely release him by March: Source**\
-`The Falcons have agreed to restructure Kirk Cousins' contract, essentially guaranteeing the QB will be released this offseason.`\
-https://nytimes.com/athletic/6946922/2026/01/06/kirk-cousins-falcons-contract-restructure-free-agent/
 
