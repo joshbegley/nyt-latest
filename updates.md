@@ -1,3 +1,11 @@
+**European Leaders Meet for Latest Round of Ukraine Talks**\
+`The discussions, also attended by top U.S. negotiators and other allies of Ukraine, are intended to make progress on European commitments to postwar security if a cease-fire is reached.`\
+https://nytimes.com/2026/01/06/world/europe/ukraine-talks-europe.html
+
+**NASCAR commissioner Steve Phelps resigning after fallout from trial and texts**\
+`The longtime NASCAR executive will leave his role at the end of this month in the wake of the antitrust lawsuit that rattled the sport.`\
+https://nytimes.com/athletic/6945158/2026/01/06/nascar-steve-phelps-resigns-commissioner-leadership-racing/
+
 **Scottie Barnes and Jalen Johnson: two sides of the same multi-skilled coin**\
 `Teams are known to place bets on athletic, 6-foot-8 forwards. In their fifth seasons, Barnes and Johnson are showing why.`\
 https://nytimes.com/athletic/6944329/2026/01/06/jalen-johnson-hawks-trae-young-scottie-barnes-raptors/
