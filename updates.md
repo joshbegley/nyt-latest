@@ -1,3 +1,15 @@
+**Five Years On, Trump Keeps Pushing Jan. 6 Conspiracies**\
+`President Trump is still sowing doubt about the integrity of America’s elections. The claims could affect this year’s midterms.`\
+https://nytimes.com/2026/01/06/us/trump-impeachment-election-conspiracies.html
+
+**The Unanswered Questions About Venezuela’s Environmental Future**\
+`The Trump administration has made no secret that it covets Venezuela’s oil reserves. What happens next could have serious implications for the planet.`\
+https://nytimes.com/2026/01/06/climate/the-unanswered-questions-about-venezuelas-environmental-future.html
+
+**Does the World Need More Oil From Venezuela?**\
+`The country could, eventually, attract investment and re-emerge as a force in the oil markets, but many analysts are concerned about an oversupply.`\
+https://nytimes.com/2026/01/06/business/venezuela-oil-supply.html
+
 **AIG’s Chief Is Stepping Down in Latest Executive Reshuffling**\
 `The announcement that Peter Zaffino would step down as chief executive in June and become executive chairman sent the insurer’s stock tumbling.`\
 https://nytimes.com/2026/01/06/business/peter-zuffino-aig-corporate-changes.html
