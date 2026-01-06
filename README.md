@@ -1,3 +1,7 @@
+**Alabama lands No. 1 RB in portal: Can Hollywood Smothers fix Tide's run game?**\
+`Alabama failed to reach 30 rushing yards in any of its final three games of the 2025-26 season.`\
+https://nytimes.com/athletic/6944116/2026/01/05/alabama-hollywood-smothers-transfer-portal/
+
 **Trump’s Post About Slain Minnesota Lawmaker Dismays Her Children**\
 `The son and daughter of Melissa and Mark Hortman have asked the president to remove a social media post promoting a conspiracy theory about the assassination.`\
 https://nytimes.com/2026/01/05/us/trump-social-hortman-conspiracy-theory.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/05/world/americas/trump-venezuela-us-control.html
 **Day 2: The Best Foods for Your Brain**\
 `Today, we’ll show you how to eat more of them.`\
 https://nytimes.com/interactive/2026/well/brain-health-mind-diet-recipes.html
-
-**A.I. Images of Maduro Spread Rapidly, Despite Safeguards**\
-`Deepfakes of Venezuela’s ousted president, Nicolás Maduro, flooded the internet after his capture, in a new collision of breaking news and artificial intelligence.`\
-https://nytimes.com/2026/01/05/technology/nicolas-maduro-ai-images-deepfakes.html
 
