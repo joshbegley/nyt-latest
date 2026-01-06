@@ -1,3 +1,7 @@
+**The Pulse: A massive women’s hoops inflection point**\
+`The Athletic has live coverage of Bears vs.`\
+https://nytimes.com/athletic/6943375/2026/01/06/wnba-unrivaled-project-b-the-pulse/
+
 **From Cole Kmet to C.J. Gardner-Johnson, how the 2025 Bears were built**\
 `The 2025 NFC North champion Bears' roster construction began in 2020. Here's a chronological look at how the team was built.`\
 https://nytimes.com/athletic/6943659/2026/01/06/how-2025-bears-were-built/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6943428/2026/01/06/nhl-awards-watch-seider-mackinno
 **The Giants have 5 starting pitchers after signing Tyler Mahle. They need 1 more**\
 `The Giants have signed two free-agent starters but that accounts, realistically, for 1.25 to 1.75-worth of rotation spots.`\
 https://nytimes.com/athletic/6943365/2026/01/06/sf-giants-starting-rotation-needs/
-
-**CFP quarterback confidential: Just how good are the 4 QBs still standing?**\
-`We spoke to coaches and staffers across the country for their candid thoughts on the passers we’ll be watching when the semis kick off.`\
-https://nytimes.com/athletic/6944159/2026/01/06/college-football-playoff-quarterbacks-scouting-reports/
 
