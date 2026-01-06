@@ -1,3 +1,7 @@
+**Chicago Stars unveil plans for NWSL performance center, completion set for 2027**\
+`The project will break ground in the spring, with a tentative completion date of 2027, marking a major milestone for the NWSL franchise.`\
+https://nytimes.com/athletic/6943980/2026/01/06/chicago-stars-nwsl-performance-center-alyssa-naeher/
+
 **Villa's Mings, Torres in contention to return vs. Palace**\
 `Emery confirmed both centre-backs were "close" to returning but a final decision would be made after Tuesday's training session.`\
 https://nytimes.com/athletic/6945191/2026/01/06/tyrone-mings-pau-torres-aston-villa-injury-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/06/world/europe/ukraine-talks-europe.html
 **NASCAR commissioner Steve Phelps resigning after fallout from trial and texts**\
 `The longtime NASCAR executive will leave his role at the end of this month in the wake of the antitrust lawsuit that rattled the sport.`\
 https://nytimes.com/athletic/6945158/2026/01/06/nascar-steve-phelps-resigns-commissioner-leadership-racing/
-
-**Scottie Barnes and Jalen Johnson: two sides of the same multi-skilled coin**\
-`Teams are known to place bets on athletic, 6-foot-8 forwards. In their fifth seasons, Barnes and Johnson are showing why.`\
-https://nytimes.com/athletic/6944329/2026/01/06/jalen-johnson-hawks-trae-young-scottie-barnes-raptors/
 

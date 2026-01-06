@@ -1,3 +1,7 @@
+**Villa's Mings, Torres in contention to return vs. Palace**\
+`Emery confirmed both centre-backs were "close" to returning but a final decision would be made after Tuesday's training session.`\
+https://nytimes.com/athletic/6945191/2026/01/06/tyrone-mings-pau-torres-aston-villa-injury-news/
+
 **Bela Tarr, Titan of Slow-Moving Cinema, Dies at 70**\
 `The master Hungarian filmmaker’s movies included “Satantango” and “Werckmeister Harmonies.”`\
 https://nytimes.com/2026/01/06/movies/bela-tarr-death.html
