@@ -1,5 +1,9 @@
+**Europe Rallies for Greenland as Trump’s Threats Continue**\
+`The show of solidarity comes as President Trump, emboldened by his capture of Nicolás Maduro from Venezuela, has suggested he could take action against other countries.`\
+https://nytimes.com/2026/01/06/world/americas/greenland-europe-trump-threats.html
+
 **The other vulgar bat knob card: Jim Nettles' 1990 Pacific #126**\
-`From 1989 to 1990 there was a strange number of profane bat knobs making it onto baseball cards. `\
+`From 1989 to 1990 there was a strange number of profane bat knobs making it onto baseball cards.`\
 https://nytimes.com/athletic/6945936/2026/01/06/jim-nettles-error-card-bat-knob/
 
 **Four candidates to replace Matt Eberflus as Cowboys defensive coordinator**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6946802/2026/01/06/lakers-vs-pelicans-stream-how-to
 **Funeral Held for Woman Killed in U.S. Strikes on Venezuela**\
 `The family of Rosa González held her funeral on Monday in Catia La Mar, Venezuela. Ms. González, 80, died from her injuries after U.S. airstrikes hit a three-story apartment complex early Saturday.`\
 https://nytimes.com/video/world/americas/100000010627172/venezuela-funeral-air-strikes-death.html
-
-**How to watch Spurs vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6946796/2026/01/06/spurs-vs-grizzlies-stream-how-to-watch-jan-6/
 
