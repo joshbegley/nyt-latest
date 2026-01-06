@@ -1,3 +1,7 @@
+**Bryce Underwood announces he's returning to Michigan**\
+`Nation's top prospect decides to play for new Wolverines coach Kyle Whittingham.`\
+https://nytimes.com/athletic/6944142/2026/01/05/bryce-underwood-announces-hes-returning-to-michigan-under-new-coach-kyle-whittingham/
+
 **An Homage to Our Last Sunsets**\
 `A trip to Antarctica at this time of year means a month of no darkness. Our climate reporter Raymond Zhong reflects on one of the last sunsets that he and our photographer Chang W. Lee will experience for some time.`\
 https://nytimes.com/video/climate/100000010625788/an-homage-to-our-last-sunsets.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6944061/2026/01/05/christian-dvorak-flyers-contract
 **Steve Sheetz, Who Popularized Convenience Stores as a C.E.O., Dies at 77**\
 `Sheetz, a family-owned company that started with a single convenience store in Altoona, Pa., has more than 800 locations in seven states.`\
 https://nytimes.com/2026/01/05/obituaries/steve-sheetz-dead.html
-
-**How to watch Packers at Bears: Wild Card Round Time, TV, streaming**\
-`Find out how to watch the Green Bay Packers play the Chicago Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6944025/2026/01/05/packers-vs-bears-stream-how-to-watch-jan-10/
 

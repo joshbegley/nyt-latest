@@ -1,3 +1,7 @@
+**Bryce Underwood announces he's returning to Michigan**\
+`Nation's top prospect decides to play for new Wolverines coach Kyle Whittingham.`\
+https://nytimes.com/athletic/6944142/2026/01/05/bryce-underwood-announces-hes-returning-to-michigan-under-new-coach-kyle-whittingham/
+
 **An Homage to Our Last Sunsets**\
 `A trip to Antarctica at this time of year means a month of no darkness. Our climate reporter Raymond Zhong reflects on one of the last sunsets that he and our photographer Chang W. Lee will experience for some time.`\
 https://nytimes.com/video/climate/100000010625788/an-homage-to-our-last-sunsets.html
