@@ -1,3 +1,11 @@
+**Victor Osimhen, Ademola Lookman and the on-field squabble that threatens to disrupt Nigerian unity**\
+`The pair clashed just after the hour mark against Mozambique with Osimhen signalling to the bench that he wanted to come off`\
+https://nytimes.com/athletic/6944033/2026/01/06/osimhen-lookman-nigeria-mozambique/
+
+**Yasin Ayari: 'I know how good I am. I know that people around me know how good I am'**\
+`A natural-born footballer, Ayari has ridden the bumps to strut his stuff in the toughest league in the world`\
+https://nytimes.com/athletic/6893920/2026/01/06/yasin-ayari-brighton-hurzeler-coventry-blackburn/
+
 **West Ham vs Forest: Where does Nuno stand? Why has form dipped under Dyche?**\
 `Both managers have been struggling for results recently as their teams meet at the London Stadium. Our writers discuss the talking points`\
 https://nytimes.com/athletic/6942250/2026/01/06/west-ham-nottingham-forest-nuno-dyche/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6942084/2026/01/06/serie-a-briefing-fiorentina-mois
 **Declan Rice is Arsenal's all-action hero. He can be England's too**\
 `Rice has been a driving force for Arsenal. Thomas Tuchel can rely on the midfielder to perform a similar role with England at the World Cup`\
 https://nytimes.com/athletic/6942212/2026/01/06/declan-rice-arsenal-england-world-cup/
-
-**Venezuela’s Machado Praises Trump in Fox News Interview**\
-`María Corina Machado, the Venezuelan opposition leader, offered to share her Nobel Peace Prize with President Trump. He has refused to back her.`\
-https://nytimes.com/2026/01/06/world/americas/machado-trump-fox-news.html
-
-**Amorim's Manchester United tenure in numbers: Unwanted records and unwelcome firsts**\
-`The Portuguese managed fewer wins than Moyes, despite being in charge for 12 more games, just one of the damning statistics from his reign`\
-https://nytimes.com/athletic/6942123/2026/01/06/ruben-amorim-manchester-united-numbers/
 

@@ -1,3 +1,19 @@
+**West Ham vs Forest: Where does Nuno stand? Why has form dipped under Dyche?**\
+`Both managers have been struggling for results recently as their teams meet at the London Stadium. Our writers discuss the talking points`\
+https://nytimes.com/athletic/6942250/2026/01/06/west-ham-nottingham-forest-nuno-dyche/
+
+**Maduro’s Gesture Was Not Just a Peace Sign**\
+`The captured authoritarian leader flashed a symbol that many took to be a defiant peace sign. Loyal lawmakers repeated the gesture at a session in Caracas.`\
+https://nytimes.com/2026/01/06/world/americas/maduro-gesture-peace-sign.html
+
+**Ratcliffe must own INEOS' error with Amorim - and fix the mess it's created**\
+`The United minority owner's recent insistence his head coach needed three years to prove himself was exposed as a fallacy`\
+https://nytimes.com/athletic/6943026/2026/01/06/ratcliffe-ineos-amorim-manchester-united-sack/
+
+**Nikola Jokić-less Nuggets beat Joel Embiid-led 76ers in surprising overtime victory**\
+`Against a relatively healthy Sixers team, Denver's deep bench saw an opportunity and took advantage of it.`\
+https://nytimes.com/athletic/6944483/2026/01/06/nuggets-beat-76ers-without-nikola-jokic/
+
 **The Alternative Premier League Table: No 21 – Defence-splitting through balls**\
 `It's one of the most aesthetically-pleasing passes in football – but which Premier League teams are good at making them?`\
 https://nytimes.com/athletic/6942270/2026/01/06/alternative-premier-league-table-through-balls/
