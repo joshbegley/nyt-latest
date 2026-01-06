@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Qasim Nauman and Francesca Regalado`\
+https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/heres-the-latest
+
+**Live Updates: Venezuela Isn’t Ready for Elections, Trump Says**\
+`President Trump told NBC News that the United States must first “nurse the country back to health,” and named a group of U.S. officials to oversee the next steps.`\
+https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump
+
 **NFL Power Rankings: Seahawks, Patriots remain 1-2, Texans on rise with playoffs on tap**\
 `This week's power rankings look ahead to what's next for all 32 teams — especially those that missed the playoffs.`\
 https://nytimes.com/athletic/6942267/2026/01/06/nfl-power-rankings-playoffs-seahawks-patriots-texans-whats-next/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6942872/2026/01/06/eagles-coach-nick-sirianni-joy-w
 **The All-Free Agent team: Building the best squad out of what's on the market right now**\
 `Some top players have signed, but many big names are still on the market. Looking at where this class remains deep, and where it's shallow.`\
 https://nytimes.com/athletic/6943629/2026/01/06/mlb-all-free-agent-team-market-signings/
-
-**The New York Times International Edition in Print for Wednesday, Jan. 7, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/01/06/todays-new-york-times-international-edition
-
-**Mason sacked as West Brom head coach after seven months in charge**\
-`The 34-year-old leaves the club 18th in the Championship having won just four of their last 16 matches.`\
-https://nytimes.com/athletic/6884365/2026/01/06/ryan-mason-west-brom-sacked/
 

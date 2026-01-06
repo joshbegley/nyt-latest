@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Qasim Nauman and Francesca Regalado`\
+https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/heres-the-latest
+
+**Live Updates: Venezuela Isn’t Ready for Elections, Trump Says**\
+`President Trump told NBC News that the United States must first “nurse the country back to health,” and named a group of U.S. officials to oversee the next steps.`\
+https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump
+
 **NFL Power Rankings: Seahawks, Patriots remain 1-2, Texans on rise with playoffs on tap**\
 `This week's power rankings look ahead to what's next for all 32 teams — especially those that missed the playoffs.`\
 https://nytimes.com/athletic/6942267/2026/01/06/nfl-power-rankings-playoffs-seahawks-patriots-texans-whats-next/

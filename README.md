@@ -1,3 +1,11 @@
+**Rosenior's tactical style: Flexible formations, central progression, energetic pressing**\
+`Liam Rosenior is Chelsea's new head coach. So what do we know about how he likes his teams to play?`\
+https://nytimes.com/athletic/6935749/2026/01/06/liam-rosenior-tactical-style-chelsea/
+
+**Australian Open announces record prize money amid player pressure on Grand Slams**\
+`Various groups are exerting pressure on the biggest tournaments in the sport over the proportion of revenues that they receive.`\
+https://nytimes.com/athletic/6944796/2026/01/06/tennis-prize-money-australian-open-grand-slams/
+
 **Here’s the latest.**\
 `By Qasim Nauman and Francesca Regalado`\
 https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6936576/2026/01/06/heated-rivalry-nhl-hockey-cultur
 **Final NFL QB stock report: Due respect to Matthew Stafford, but Drake Maye is rightful MVP**\
 `The rankings are set: Maye and Stafford finished 1-2, but what about the rest? Who was the biggest riser of the season? The biggest faller?`\
 https://nytimes.com/athletic/6943100/2026/01/06/nfl-qb-stock-report-rankings-drake-maye/
-
-**How Nick Sirianni studied Warriors coach Steve Kerr to celebrate 'joy' amid scrutiny**\
-`The NBA coach is an inspiration for Sirianni even though the two have never met.`\
-https://nytimes.com/athletic/6942872/2026/01/06/eagles-coach-nick-sirianni-joy-warriors-coach-steve-kerr/
-
-**The All-Free Agent team: Building the best squad out of what's on the market right now**\
-`Some top players have signed, but many big names are still on the market. Looking at where this class remains deep, and where it's shallow.`\
-https://nytimes.com/athletic/6943629/2026/01/06/mlb-all-free-agent-team-market-signings/
 
