@@ -1,3 +1,5 @@
+
+
 **Paris Opera Takes On a Noted Conductor, Aiming to Expand Its Symphonic Offerings**\
 `Semyon Bychkov will be the musical director for a period when the opera’s performance spaces are under renovation. It’s a chance to add symphonic seasons like at La Scala.`\
 https://nytimes.com/2026/01/06/arts/paris-opera-semyon-bychkov.html
