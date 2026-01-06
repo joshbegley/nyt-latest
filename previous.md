@@ -1,3 +1,7 @@
+**Suspect in Brown and M.I.T. Killings Discussed Attacks in Videos, Officials Say**\
+`Claudio Neves Valente, who is accused of killing two students at Brown and an M.I.T. professor, left rambling descriptions of the shootings.`\
+https://nytimes.com/2026/01/06/us/brown-mit-shootings-videos.html
+
 **Ravens' John Harbaugh fired after 18 seasons**\
 `Hired in 2008, Harbaugh was only the Ravens' third head coach in their 30-year existence. `\
 https://nytimes.com/athletic/6926231/2026/01/06/ravens-john-harbaugh-fired/
@@ -18,7 +22,7 @@ https://nytimes.com/2026/01/06/world/americas/venezeula-remaining-leadership-pro
 `But taking Venezuela’s oil while leaving the regime in place weren’t among them.`\
 https://nytimes.com/2026/01/06/opinion/maduro-venezuela-oil.html
 
-**Trinidad Chambliss to return to Ole Miss in 2026, pending eligibility waiver: Source**\
+**Trinidad Chambliss to return to Ole Miss in 2026, pending eligibility waiver**\
 `Chambliss enrolled at Ferris State in 2021 but did not play in either of his first two seasons with the Division II powerhouse.`\
 https://nytimes.com/athletic/6942392/2026/01/06/trinidad-chambliss-ole-miss-ncaa-eligibility-waiver/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/06/t-magazine/how-to-stay-warm-winter-cold.html
 **Rangers place Adam Fox on LTIR, Igor Shesterkin on IR**\
 `Both injuries apparently came in Monday's overtime loss to Utah.`\
 https://nytimes.com/athletic/6943934/2026/01/06/rangers-igor-shesterkin-injury-adam-fox-ltir/
-
-**Trump’s Venezuela Attack Feels Very 1980s**\
-`The Trump administration’s key motivations for deposing Venezuela’s President Nicolás Maduro don’t track, argues the Opinion columnist Ezra Klein. In the U.S., cocaine isn’t the big drug problem, foreign oil isn’t the big energy need and socialism isn’t the big ideological threat.`\
-https://nytimes.com/video/opinion/100000010624483/trumps-venezuela-attack-feels-very-1980s.html
 

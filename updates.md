@@ -1,3 +1,11 @@
+**Suspect in Brown and M.I.T. Killings Discussed Attacks in Videos, Officials Say**\
+`Claudio Neves Valente, who is accused of killing two students at Brown and an M.I.T. professor, left rambling descriptions of the shootings.`\
+https://nytimes.com/2026/01/06/us/brown-mit-shootings-videos.html
+
+**Trinidad Chambliss to return to Ole Miss in 2026, pending eligibility waiver**\
+`Chambliss enrolled at Ferris State in 2021 but did not play in either of his first two seasons with the Division II powerhouse.`\
+https://nytimes.com/athletic/6942392/2026/01/06/trinidad-chambliss-ole-miss-ncaa-eligibility-waiver/
+
 **Ravens' John Harbaugh fired after 18 seasons**\
 `Hired in 2008, Harbaugh was only the Ravens' third head coach in their 30-year existence. `\
 https://nytimes.com/athletic/6926231/2026/01/06/ravens-john-harbaugh-fired/

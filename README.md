@@ -1,3 +1,7 @@
+**Judge Orders Trump Loyalist to Explain Why She Has Kept U.S. Attorney Title**\
+`The ruling was the most robust effort to date to press the prosecutor, Lindsey Halligan, on why she has continued to serve as the U.S. attorney, despite an order throwing out her appointment.`\
+https://nytimes.com/2026/01/06/us/politics/lindsey-halligan-virginia-federal-judge.html
+
 **Suspect in Brown and M.I.T. Killings Discussed Attacks in Videos, Officials Say**\
 `Claudio Neves Valente, who is accused of killing two students at Brown and an M.I.T. professor, left rambling descriptions of the shootings.`\
 https://nytimes.com/2026/01/06/us/brown-mit-shootings-videos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/06/world/americas/caribbean-dominica-antigua-asylum-
 **How to Stay Warm This Winter**\
 `Elevated takes on cold-weather essentials to get you through the season.`\
 https://nytimes.com/2026/01/06/t-magazine/how-to-stay-warm-winter-cold.html
-
-**Rangers place Adam Fox on LTIR, Igor Shesterkin on IR**\
-`Both injuries apparently came in Monday's overtime loss to Utah.`\
-https://nytimes.com/athletic/6943934/2026/01/06/rangers-igor-shesterkin-injury-adam-fox-ltir/
 
