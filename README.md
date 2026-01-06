@@ -1,3 +1,7 @@
+**Nvidia Shows Off New A.I. Chip at CES**\
+`At the annual tech conference, CES, Nvidia showed off a new A.I. chip, known as Vera Rubin, which is more efficient and powerful than previous generations of chips.`\
+https://nytimes.com/video/us/100000010626065/nvidia-chips-mercedes.html
+
 **Turmoil and toxicity: How Amorim's Man Utd reign fell apart**\
 `The Portuguese coach arrived to huge fanfare but his tenure ended after bust-ups with executives over tactics, transfers and results `\
 https://nytimes.com/athletic/6942339/2026/01/06/ruben-amorim-sacked-manchester-united-inside-story/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/01/06/todays-new-york-times
 **Steve Kerr ejected from Warriors-Clippers game after arguing with officials**\
 `After continuing to yell for another few seconds, the Warriors coach turned around and walked back to the locker room.`\
 https://nytimes.com/athletic/6944559/2026/01/06/steve-kerr-ejected-warriors-clippers-game-arguing-officials/
-
-**Yasin Ayari: 'I know how good I am. I know that people around me know how good I am'**\
-`A natural-born footballer, Ayari has ridden the bumps to strut his stuff in the toughest league in the world`\
-https://nytimes.com/athletic/6893920/2026/01/06/yasin-ayari-brighton-hurzeler-coventry-blackburn/
 
