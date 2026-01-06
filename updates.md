@@ -1,3 +1,15 @@
+**Cuban Deaths in U.S. Venezuela Strikes Confirm Ties Between Countries**\
+`The Maduro regime was long propped up by Cuba’s armed forces and intelligence agencies. Many Cubans were reported killed in the American military action.`\
+https://nytimes.com/2026/01/05/world/americas/venezuela-cuba-us-strikes.html
+
+**Venezuela’s Legislators Offer Scorn as Trump Demands Obedience**\
+`The convening of the National Assembly made it clear that Maduro loyalists remain entrenched across Venezuelan institutions after decades of purges and crackdowns on dissent.`\
+https://nytimes.com/2026/01/05/world/americas/trump-venezuela-us-control.html
+
+**Day 2: The Best Foods for Your Brain**\
+`Today, we’ll show you how to eat more of them.`\
+https://nytimes.com/interactive/2026/well/brain-health-mind-diet-recipes.html
+
 **A.I. Images of Maduro Spread Rapidly, Despite Safeguards**\
 `Deepfakes of Venezuela’s ousted president, Nicolás Maduro, flooded the internet after his capture, in a new collision of breaking news and artificial intelligence.`\
 https://nytimes.com/2026/01/05/technology/nicolas-maduro-ai-images-deepfakes.html

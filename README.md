@@ -1,3 +1,11 @@
+**How to watch Packers at Bears: Wild Card Round Time, TV, streaming**\
+`Find out how to watch the Green Bay Packers play the Chicago Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6944025/2026/01/05/packers-vs-bears-stream-how-to-watch-jan-10/
+
+**For the disappointing and disappointed Commanders, 'hard decisions have to be made'**\
+`Washington Commanders coach Dan Quinn and general manager Adam Peters acknowledged the obvious: Changes will be and need to be made.`\
+https://nytimes.com/athletic/6943821/2026/01/05/commanders-offseason-questions-dan-quinn/
+
 **Cuban Deaths in U.S. Venezuela Strikes Confirm Ties Between Countries**\
 `The Maduro regime was long propped up by Cuba’s armed forces and intelligence agencies. Many Cubans were reported killed in the American military action.`\
 https://nytimes.com/2026/01/05/world/americas/venezuela-cuba-us-strikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/01/05/world/venezuela-maduro-trump/venezuela-witho
 **Why Trump Refused to Back Venezuela’s Machado: Fears of Chaos, and Fraying Ties**\
 `U.S. intelligence suggested María Corina Machado, Venezuela’s opposition leader, would struggle to lead the government. But her relationship with Trump officials had been souring for months.`\
 https://nytimes.com/2026/01/05/us/politics/trump-venezuela-machado.html
-
-**Venezuela Detained and Deported Members of the Foreign Press**\
-`Military officers detained 14 members of the news media during a National Assembly session. All were released after officials searched their phones. One was deported from the country.`\
-https://nytimes.com/2026/01/05/world/americas/venezuela-journalists-detained.html
-
-**Tatsuya Imai is the Astros' first major splash in Asia. He will not be the last.**\
-`After introducing Imai, Houston's owner is "laser-focused" on signing more players from what he called a "kind of untapped" market.`\
-https://nytimes.com/athletic/6943840/2026/01/05/tatsuya-imai-astros-jim-crane-asia/
 
