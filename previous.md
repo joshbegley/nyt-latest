@@ -1,8 +1,12 @@
+**Nuno expects West Ham backing after crushing defeat to Forest**\
+`The Portuguese saw his side fall seven points adrift of safety after 2-1 home defeat to fellow strugglers`\
+https://nytimes.com/athletic/6947482/2026/01/06/nuno-espirito-santo-west-ham-backing/
+
 **Where the Blue Jays stand with Bo Bichette and Kyle Tucker**\
-`Toronto has increased their efforts to recruit Kyle Tucker, but a reunion with Bo Bichette appears increasingly unlikely.`\
+`Toronto has increased its efforts to recruit Tucker, but a reunion with Bichette appears increasingly unlikely.`\
 https://nytimes.com/athletic/6947549/2026/01/06/blue-jays-bo-bichette-kyle-tucker/
 
-**Rosa von Praunheim, 83, Dies; Broke Ground Capturing German Gay Life**\
+**Rosa von Praunheim, 83, Dies; Captured Gay Life in Germany on Film**\
 `His first feature-length movie, in 1971, was called his country’s “Stonewall moment,” for jump-starting a gay-rights movement. He became a leading voice of it.`\
 https://nytimes.com/2026/01/06/movies/rosa-von-praunheim-dead.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/06/nyregion/mamdani-pothole-williamsburg-bridge-bump
 **Brad Marchand vs. Maple Leafs: Truth beyond the trolling in latest comments**\
 `Marchand opened the wound, confirming he almost signed with Toronto and saying it's "unfortunate the fans ran (Mitch) Marner out of town."`\
 https://nytimes.com/athletic/6947640/2026/01/06/brad-marchand-maple-leafs-comments/
-
-**‘It’s Hurting Minnesotans’: Tim Walz Says He Ended Run to Shield Residents From Trump**\
-`“I don’t think any governor in history has had to fight a war against the federal government every single day,” Gov. Walz said after ending his re-election bid.`\
-https://nytimes.com/2026/01/06/us/tim-walz-minnesota-fraud-trump.html
 
