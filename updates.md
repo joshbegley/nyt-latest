@@ -1,3 +1,7 @@
+**Machado Says She Plans to Return to Venezuela ‘as Soon as Possible’**\
+`María Corina Machado, Venezuela’s opposition leader, said she was planning to return to the country after the United States’ capture of Nicolás Maduro. President Trump has refused to back her as Venezuela’s next leader.`\
+https://nytimes.com/video/world/americas/100000010626659/machado-trump-venezuela-us.html
+
 **European Leaders Meet for Latest Round of Ukraine Talks**\
 `The discussions, also attended by top U.S. negotiators and other allies of Ukraine, are intended to make progress on European commitments to postwar security if a cease-fire is reached.`\
 https://nytimes.com/2026/01/06/world/europe/ukraine-talks-europe.html

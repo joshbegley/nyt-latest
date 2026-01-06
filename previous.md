@@ -1,3 +1,7 @@
+**Machado Says She Plans to Return to Venezuela ‘as Soon as Possible’**\
+`María Corina Machado, Venezuela’s opposition leader, said she was planning to return to the country after the United States’ capture of Nicolás Maduro. President Trump has refused to back her as Venezuela’s next leader.`\
+https://nytimes.com/video/world/americas/100000010626659/machado-trump-venezuela-us.html
+
 **European Leaders Meet for Latest Round of Ukraine Talks**\
 `The discussions, also attended by top U.S. negotiators and other allies of Ukraine, are intended to make progress on European commitments to postwar security if a cease-fire is reached.`\
 https://nytimes.com/2026/01/06/world/europe/ukraine-talks-europe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/06/style/street-style-look-two-tone-loafers.html
 **Leicester in talks to appoint Southampton's Goldie as technical director**\
 `The Championship club have held talks with the 40-year-old who was made director of group talent strategy at Sports Republic last year.`\
 https://nytimes.com/athletic/6945003/2026/01/06/leicester-city-transfers-director-southampton/
-
-**Evans to return to Man United on Fletcher's coaching staff**\
-`The 37-year-old spent six months as United's head of loans and pathways after ending his playing career last summer.`\
-https://nytimes.com/athletic/6944785/2026/01/06/jonny-evans-manchester-united-coach-return/
 
