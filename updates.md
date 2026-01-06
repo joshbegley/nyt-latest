@@ -1,3 +1,11 @@
+**What you need to know about the NFL head coach interview timeline and the Rooney Rule**\
+`A breakdown of the league's policies governing when teams can schedule interviews with coaches from other NFL teams.`\
+https://nytimes.com/athletic/6946139/2026/01/06/nfl-coach-hiring-process-timeline-rules/
+
+**Murders in New York City Fell 20% in 2025, Though Reported Rapes Rose**\
+`Police Commissioner Jessica Tisch and Mayor Zohran Mamdani announced the numbers on Tuesday. Officials attributed the rise in rapes in part to a change in the state definition of sexual assault.`\
+https://nytimes.com/2026/01/06/nyregion/new-york-city-crime-statistics.html
+
 **Georgia Schedules Special Election for Marjorie Taylor Greene’s Seat**\
 `The election on March 10, or a runoff in April, will determine who serves out the remainder of Ms. Greene’s term after her unexpected resignation from Congress.`\
 https://nytimes.com/2026/01/06/us/georgia-special-election-marjorie-taylor-greene.html

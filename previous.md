@@ -1,3 +1,11 @@
+**What you need to know about the NFL head coach interview timeline and the Rooney Rule**\
+`A breakdown of the league's policies governing when teams can schedule interviews with coaches from other NFL teams.`\
+https://nytimes.com/athletic/6946139/2026/01/06/nfl-coach-hiring-process-timeline-rules/
+
+**Murders in New York City Fell 20% in 2025, Though Reported Rapes Rose**\
+`Police Commissioner Jessica Tisch and Mayor Zohran Mamdani announced the numbers on Tuesday. Officials attributed the rise in rapes in part to a change in the state definition of sexual assault.`\
+https://nytimes.com/2026/01/06/nyregion/new-york-city-crime-statistics.html
+
 **Georgia Schedules Special Election for Marjorie Taylor Greene’s Seat**\
 `The election on March 10, or a runoff in April, will determine who serves out the remainder of Ms. Greene’s term after her unexpected resignation from Congress.`\
 https://nytimes.com/2026/01/06/us/georgia-special-election-marjorie-taylor-greene.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/06/us/politics/democrats-jan-6-milestone-trump.html
 **How to watch Mavericks vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6946815/2026/01/06/mavericks-vs-kings-stream-how-to-watch-jan-6/
-
-**How to watch Blue Jackets vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6946810/2026/01/06/blue-jackets-vs-sharks-stream-how-to-watch-jan-6/
-
-**How to watch Lakers vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6946802/2026/01/06/lakers-vs-pelicans-stream-how-to-watch-jan-6/
 

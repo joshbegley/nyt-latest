@@ -1,3 +1,11 @@
+**Former Manchester United boss Ten Hag to return to FC Twente**\
+`Ten Hag, 55, was dismissed as Leverkusen coach after just three games in charge in September, having been sacked by United in October 2024.`\
+https://nytimes.com/athletic/6946877/2026/01/06/erik-ten-hag-fc-twente-technical-director/
+
+**49ers mailbag: What’s the best head-coaching fit for Robert Saleh?**\
+`Among this week's questions: With Dre Greenlaw gone, which 49ers player is most likely to get into a scrap with Big Dom on Sunday?`\
+https://nytimes.com/athletic/6946633/2026/01/06/49ers-robert-saleh-head-coaching-jobs/
+
 **What you need to know about the NFL head coach interview timeline and the Rooney Rule**\
 `A breakdown of the league's policies governing when teams can schedule interviews with coaches from other NFL teams.`\
 https://nytimes.com/athletic/6946139/2026/01/06/nfl-coach-hiring-process-timeline-rules/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6946827/2026/01/06/heat-vs-timberwolves-stream-how-
 **How to watch Predators vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6946824/2026/01/06/predators-vs-oilers-stream-how-to-watch-jan-6/
-
-**Democrats Commemorate Jan. 6, Highlighting Trump’s Role**\
-`On Capitol Hill, Democrats spent the fifth anniversary of the riot forcefully rebutting the president’s attempts to rewrite the history of the attack, as he stepped up his false claims.`\
-https://nytimes.com/2026/01/06/us/politics/democrats-jan-6-milestone-trump.html
-
-**How to watch Mavericks vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6946815/2026/01/06/mavericks-vs-kings-stream-how-to-watch-jan-6/
 
