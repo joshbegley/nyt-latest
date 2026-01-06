@@ -1,3 +1,11 @@
+**Readers Pick the Songs That Defined Their 2025**\
+`Stories behind tracks by Fontaines D.C., Beyoncé, Nina Simone and more.`\
+https://nytimes.com/2026/01/06/arts/music/readers-songs-2025.html
+
+**Fighting Through the Ice, Without a Horizon as a Guide**\
+`The sea ice changed completely over the course of a few hours, from disconnected floes to a vast, snow-covered plain.`\
+https://nytimes.com/2026/01/06/climate/antarctica-navigating-sea-ice.html
+
 **Clayton Kershaw is top studio target for NBC's MLB coverage: Sources**\
 `Joey Votto is another ex-star that networks are high on this offseason.`\
 https://nytimes.com/athletic/6946207/2026/01/06/clayton-kershaw-nbc-peacock-mlb/
