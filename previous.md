@@ -1,3 +1,7 @@
+**Health Dept. to Freeze $10 Billion in Funding to 5 Democratic States**\
+`The funding pause could jeopardize child care and other programs that serve hundreds of thousands of households in California, Colorado, Illinois, Minnesota and New York.`\
+https://nytimes.com/2026/01/06/us/politics/child-care-funding-cuts-trump.html
+
 **Jamie Raskin: Jan. 6 Never Ended**\
 `Five years after Jan. 6, 2021, we are still caught up in a struggle over the meaning of that day.`\
 https://nytimes.com/2026/01/06/opinion/jamie-raskin-jan-6-anniversary.html
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6942250/2026/01/06/west-ham-nottingham-forest-nuno-
 `The captured authoritarian leader flashed a symbol that many took to be a defiant peace sign. Loyal lawmakers repeated the gesture at a session in Caracas.`\
 https://nytimes.com/2026/01/06/world/americas/maduro-gesture-peace-sign.html
 
-**Ratcliffe must own INEOS' error with Amorim - and fix the mess it's created**\
+**Ratcliffe must own INEOS' error with Amorim - and fix the mess it created**\
 `The United minority owner's recent insistence his head coach needed three years to prove himself was exposed as a fallacy`\
 https://nytimes.com/athletic/6943026/2026/01/06/ratcliffe-ineos-amorim-manchester-united-sack/
 
 **Nikola Jokić-less Nuggets beat Joel Embiid-led 76ers in surprising overtime victory**\
 `Against a relatively healthy Sixers team, Denver's deep bench saw an opportunity and took advantage of it.`\
 https://nytimes.com/athletic/6944483/2026/01/06/nuggets-beat-76ers-without-nikola-jokic/
-
-**The Alternative Premier League Table: No 21 – Defence-splitting through balls**\
-`It's one of the most aesthetically-pleasing passes in football – but which Premier League teams are good at making them?`\
-https://nytimes.com/athletic/6942270/2026/01/06/alternative-premier-league-table-through-balls/
 

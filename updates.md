@@ -1,3 +1,11 @@
+**Health Dept. to Freeze $10 Billion in Funding to 5 Democratic States**\
+`The funding pause could jeopardize child care and other programs that serve hundreds of thousands of households in California, Colorado, Illinois, Minnesota and New York.`\
+https://nytimes.com/2026/01/06/us/politics/child-care-funding-cuts-trump.html
+
+**Ratcliffe must own INEOS' error with Amorim - and fix the mess it created**\
+`The United minority owner's recent insistence his head coach needed three years to prove himself was exposed as a fallacy`\
+https://nytimes.com/athletic/6943026/2026/01/06/ratcliffe-ineos-amorim-manchester-united-sack/
+
 **Jamie Raskin: Jan. 6 Never Ended**\
 `Five years after Jan. 6, 2021, we are still caught up in a struggle over the meaning of that day.`\
 https://nytimes.com/2026/01/06/opinion/jamie-raskin-jan-6-anniversary.html
