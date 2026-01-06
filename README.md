@@ -1,4 +1,20 @@
-**Spurs' Yang, Palace's Esse set to join Coventry on loan**\
+**How the Canucks can maximize their return in a Kiefer Sherwood trade**\
+`Finding a way to get a first-round pick or equivalent value for Sherwood is a significant test for the Canucks.`\
+https://nytimes.com/athletic/6944626/2026/01/06/canucks-kiefer-sherwood-trade-draft-picks/
+
+**Canada reveals Jan. camp squad; A World Cup send-off friendly materializes**\
+`The off-calendar camp allows Jesse Marsch to get a wider look at his player pool, but the World Cup remains the chief focus`\
+https://nytimes.com/athletic/6943999/2026/01/06/canada-january-roster-world-cup-send-off-uzbekistan/
+
+**Dispelling 9 Myths About Women’s Health**\
+`When it comes to heart health, immunity, reproductive health and more, misconceptions abound.`\
+https://nytimes.com/2026/01/06/well/womens-health-myths.html
+
+**Five Weeknight Dishes for 2026**\
+`Spicy chicken thighs and mushrooms, seared tofu with kimchi and turkey chili start the year with flavor and ease.`\
+https://nytimes.com/2026/01/06/dining/five-weeknight-dishes-for-2026.html
+
+**Yang, Esse set for Coventry loan moves**\
 `The two players are set to join the Championship leaders for the second half of the season.`\
 https://nytimes.com/athletic/6945576/2026/01/06/yang-min-hyeok-romain-esse-coventry-loan/
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6945546/2026/01/06/michigan-football-basketball-whi
 **Can You Optimize Love?**\
 `A group of tech executives, app developers and Silicon Valley philosophers is seeking to streamline the messy matters of the heart.`\
 https://nytimes.com/2026/01/06/style/love-symposium-artificial-intelligence-keeper.html
-
-**How the 50th pick helped the Clippers upset the Warriors in front of Snoop Dogg**\
-`Kobe Sanders scored a career-high 20 points as the Clippers improved to 7-1 in their last eight games.`\
-https://nytimes.com/athletic/6944754/2026/01/06/kobe-sanders-clippers-upset-warriors/
-
-**South Florida QB Byrum Brown transferring to Auburn, following coach Alex Golesh**\
-`Brown was the only player in the nation to top 3,000 yards passing and 1,000 yards rushing in 2025.`\
-https://nytimes.com/athletic/6945291/2026/01/06/byrum-brown-transfer-auburn-south-florida-quarterback/
-
-**Kevin Durant says game-winner vs. Suns meant more: 'I didn’t want to leave'**\
-`The 15-time All-Star said the win against his former team carried extra weight after being "kicked out."`\
-https://nytimes.com/athletic/6945156/2026/01/06/kevin-durant-suns-rockets-comments-nba/
-
-**Doug LaMalfa, Republican Congressman, Dies at 65**\
-`Mr. LaMalfa had represented a district in northeastern California since 2013.`\
-https://nytimes.com/2026/01/06/us/politics/doug-lamalfa-dead.html
 
