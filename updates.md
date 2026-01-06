@@ -1,3 +1,11 @@
+**Victor Osimhen, Ademola Lookman and the on-field squabble that threatens to disrupt Nigerian unity**\
+`The pair clashed just after the hour mark against Mozambique with Osimhen signalling to the bench that he wanted to come off`\
+https://nytimes.com/athletic/6944033/2026/01/06/osimhen-lookman-nigeria-mozambique/
+
+**Yasin Ayari: 'I know how good I am. I know that people around me know how good I am'**\
+`A natural-born footballer, Ayari has ridden the bumps to strut his stuff in the toughest league in the world`\
+https://nytimes.com/athletic/6893920/2026/01/06/yasin-ayari-brighton-hurzeler-coventry-blackburn/
+
 **West Ham vs Forest: Where does Nuno stand? Why has form dipped under Dyche?**\
 `Both managers have been struggling for results recently as their teams meet at the London Stadium. Our writers discuss the talking points`\
 https://nytimes.com/athletic/6942250/2026/01/06/west-ham-nottingham-forest-nuno-dyche/
