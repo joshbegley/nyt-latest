@@ -1,3 +1,15 @@
+**Cea Weaver Has Long Been a Firebrand. Mamdani Is Standing by Her.**\
+`Ms. Weaver, a longtime tenant advocate who was appointed to a high-profile role in Mayor Zohran Mamdani’s administration, is facing criticism for past comments on homeownership.`\
+https://nytimes.com/2026/01/06/nyregion/cea-weaver-mamdani-tweets.html
+
+**Wintry Conditions Cause Hundreds of Flight Cancellations in Amsterdam**\
+`One of Europe’s major travel hubs canceled hundreds of flights this week after days of accumulated ice and snow. More winter weather is expected across Northern Europe through Wednesday.`\
+https://nytimes.com/video/world/europe/100000010627995/amsterdam-airport-snow-flight-cancelations.html
+
+**Justice Dept. Memo Approved Military Incursion Into Venezuela as Lawful**\
+`Lawmakers were informed that the Office of Legal Counsel said Mr. Trump could lawfully order military strikes inside Venezuelan territory and a commando raid to capture President Nicolás Maduro.`\
+https://nytimes.com/2026/01/06/us/politics/justice-dept-memo-venezuela.html
+
 **Palace could sell Guehi this month if 'threshold' met - Glasner**\
 `Manchester City are weighing up whether to move for Guehi this month after injuries to defenders Josko Gvardiol and Ruben Dias.R`\
 https://nytimes.com/athletic/6947890/2026/01/06/marc-guehi-manchester-city-transfer-crystal-palace/
@@ -26,16 +38,4 @@ https://nytimes.com/2026/01/06/movies/rosa-von-praunheim-dead.html
 **Latin American countries condemn the U.S. at Organization of American States meeting.**\
 `By James Wagner`\
 https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/latin-american-countries-condemn-the-us-at-a-organization-of-american-states-meeting
-
-**Michigan City to Pay $3.25 Million After Woman Was Mistakenly Declared Dead**\
-`Timesha Beauchamp, 20, was found alive at a funeral home after she had been pronounced dead during a medical episode in Southfield, Mich. She died weeks later.`\
-https://nytimes.com/2026/01/06/us/woman-found-alive-body-bag-settlement.html
-
-**While Canadiens’ present looks bright, Hughes remains focused on a brighter future**\
-`The Canadiens are young and talented and firmly in playoff position, but the talent they still have coming is top of mind for their GM. `\
-https://nytimes.com/athletic/6947588/2026/01/06/canadiens-hughes-prospects-rebuild-hutson-kapanen/
-
-**Hilton Drops Bookings for Hotel Accused of Turning Away Immigration Agents**\
-`The hotel giant said it took “immediate action” against a Hampton Inn near Minneapolis after a video showed a worker declining Department of Homeland Security reservations.`\
-https://nytimes.com/2026/01/06/travel/hilton-hampton-inn-dhs.html
 

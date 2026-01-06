@@ -1,3 +1,16 @@
+**Palace could sell Guehi this month if 'threshold' met - Glasner**\
+`Manchester City are weighing up whether to move for Guehi this month after injuries to defenders Josko Gvardiol and Ruben Dias.R`\
+https://nytimes.com/athletic/6947890/2026/01/06/marc-guehi-manchester-city-transfer-crystal-palace/
+
+**A Luxury Kyoto Hotel Pays Homage to Its Cultural Ancestor **\
+`The Imperial Hotel Kyoto will open in spring 2026, housed in a restored cultural gem that has been painstakingly preserved using modern methods.
+`\
+https://nytimes.com/paidpost/imperial-hotel/imperial-hotel/a-luxury-kyoto-hotel-pays-homage-to-its-cultural-ancestor.html
+
+**America Is Bad at Accountability**\
+`“The United States has a problem with elite impunity,” says the Opinion columnist Jamelle Bouie, as he looks back on the five years since the Jan. 6 attack on the Capitol.`\
+https://nytimes.com/video/opinion/100000010627706/america-is-bad-at-accountability.html
+
 **Nuno expects West Ham backing after crushing defeat to Forest**\
 `The Portuguese saw his side fall seven points adrift of safety after 2-1 home defeat to fellow strugglers`\
 https://nytimes.com/athletic/6947482/2026/01/06/nuno-espirito-santo-west-ham-backing/
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/6947588/2026/01/06/canadiens-hughes-prospects-rebui
 **Hilton Drops Bookings for Hotel Accused of Turning Away Immigration Agents**\
 `The hotel giant said it took “immediate action” against a Hampton Inn near Minneapolis after a video showed a worker declining Department of Homeland Security reservations.`\
 https://nytimes.com/2026/01/06/travel/hilton-hampton-inn-dhs.html
-
-**Venezuelan Leaders Project Independence**\
-`Also, Europe discusses postwar plans for Ukraine. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2026/01/06/briefing/venezuelan-leaders-project-independence.html
-
-**Mamdani Takes the Bite Out of ‘the Bump,’ Paving Over Hated Road Hazard**\
-`The small but symbolic gesture, at the foot of the Williamsburg Bridge, signals more ambitious street redesign plans from the new mayor.`\
-https://nytimes.com/2026/01/06/nyregion/mamdani-pothole-williamsburg-bridge-bump.html
-
-**Brad Marchand vs. Maple Leafs: Truth beyond the trolling in latest comments**\
-`Marchand opened the wound, confirming he almost signed with Toronto and saying it's "unfortunate the fans ran (Mitch) Marner out of town."`\
-https://nytimes.com/athletic/6947640/2026/01/06/brad-marchand-maple-leafs-comments/
 
