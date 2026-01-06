@@ -1,3 +1,7 @@
+**Word of the Day: abrogate**\
+`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/06/learning/word-of-the-day-abrogate.html
+
 **Stephen Colbert Doubts Trump’s Ability to Run Two Countries at Once**\
 `“The Late Show” host said the president couldn’t possibly run two nations, because “he can’t even run.”`\
 https://nytimes.com/2026/01/06/arts/television/stephen-colbert-trump-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/06/world/americas/maduro-gesture-peace-sign.html
 **Ratcliffe must own INEOS' error with Amorim - and fix the mess it created**\
 `The United minority owner's recent insistence his head coach needed three years to prove himself was exposed as a fallacy`\
 https://nytimes.com/athletic/6943026/2026/01/06/ratcliffe-ineos-amorim-manchester-united-sack/
-
-**Nikola Jokić-less Nuggets beat Joel Embiid-led 76ers in surprising overtime victory**\
-`Against a relatively healthy Sixers team, Denver's deep bench saw an opportunity and took advantage of it.`\
-https://nytimes.com/athletic/6944483/2026/01/06/nuggets-beat-76ers-without-nikola-jokic/
 
