@@ -1,3 +1,7 @@
+**The Transfer DealSheet: The latest on your club's transfer window plans**\
+`This is your weekly guide to the latest from the January transfer window`\
+https://nytimes.com/athletic/6942022/2026/01/06/transfer-latest-man-utd-arsenal-liverpool-real-madrid-antoine-semenyo/
+
 **Nvidia Shows Off New A.I. Chip at CES**\
 `At the annual tech conference, CES, Nvidia showed off a new A.I. chip, known as Vera Rubin, which is more efficient and powerful than previous generations of chips.`\
 https://nytimes.com/video/us/100000010626065/nvidia-chips-mercedes.html

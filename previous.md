@@ -10,6 +10,10 @@ https://nytimes.com/athletic/6942339/2026/01/06/ruben-amorim-sacked-manchester-u
 `Ben Dinnery of premierinjuries.com is on hand to offer his expert advice to give you the best chance of success ahead of the mid-week games`\
 https://nytimes.com/athletic/6942737/2026/01/06/fantasy-premier-league-live-qa-gameweek-21-advice-tips/
 
+**The Transfer DealSheet: The latest on your club's transfer window plans**\
+`This is your weekly guide to the latest from the January transfer window`\
+https://nytimes.com/athletic/6942022/2026/01/06/transfer-latest-man-utd-arsenal-liverpool-real-madrid-antoine-semenyo/
+
 **The Ashes Briefing: Australia grind England down in the Sydney sun as Smith joins the party**\
 `The home side have amassed an imposing lead with wickets still in hand as their captain and Travis Head scored hundreds on Jane McGrath Day`\
 https://nytimes.com/athletic/6943612/2026/01/06/australia-england-smith-head-ashes-briefing/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/06/opinion/jamie-raskin-jan-6-anniversary.html
 **The New York Times in Print for Tuesday, Jan. 6, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/06/todays-new-york-times
-
-**Steve Kerr ejected from Warriors-Clippers game after arguing with officials**\
-`After continuing to yell for another few seconds, the Warriors coach turned around and walked back to the locker room.`\
-https://nytimes.com/athletic/6944559/2026/01/06/steve-kerr-ejected-warriors-clippers-game-arguing-officials/
 
