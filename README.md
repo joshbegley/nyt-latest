@@ -1,40 +1,40 @@
-**Rosenior's tactical style: Flexible formations, central progression, energetic pressing**\
-`Liam Rosenior is Chelsea's new head coach. So what do we know about how he likes his teams to play?`\
-https://nytimes.com/athletic/6935749/2026/01/06/liam-rosenior-tactical-style-chelsea/
+**Shesterkin injury could force Rangers to face trade deadline reality: 8 thoughts**\
+`General manager Chris Drury, fresh off receiving vocal support from owner James Dolan, may have no choice in strategy for March 6.`\
+https://nytimes.com/athletic/6944361/2026/01/06/rangers-shesterkin-injury-drury-trade-deadline-mammoth/
 
-**Australian Open announces record prize money amid player pressure on Grand Slams**\
-`Various groups are exerting pressure on the biggest tournaments in the sport over the proportion of revenues they receive.`\
-https://nytimes.com/athletic/6944796/2026/01/06/tennis-prize-money-australian-open-grand-slams/
+**What we learned: Dan Campbell plans 'deep dive' before making decisions**\
+`Will Dan Campbell continue calling plays? Will he make any staff changes? What will the Lions do with their pending free agents?`\
+https://nytimes.com/athletic/6943891/2026/01/06/lions-season-review-dan-campbell-decisions/
 
-**Here’s the latest.**\
-`By Qasim Nauman and Francesca Regalado`\
-https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/heres-the-latest
+**Justin Jefferson’s maturity in working with J.J. McCarthy shouldn't be taken for granted**\
+`Despite an often-frustrating season together, Jefferson has shown his commitment to making things work with the Vikings' young quarterback.`\
+https://nytimes.com/athletic/6943411/2026/01/06/justin-jefferson-jj-mccarthy-vikings-offseason/
 
-**Live Updates: Venezuela Isn’t Ready for Elections, Trump Says**\
-`President Trump told NBC News that the United States must first “nurse the country back to health,” and named a group of U.S. officials to oversee the next steps.`\
-https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump
+**Want to win a college football title? Stop trying to find the next Nick Saban**\
+`We're still learning a lot about the modern era of college football. The coaches in the Playoff are another intriguing footnote. `\
+https://nytimes.com/athletic/6943191/2026/01/06/college-football-playoff-coaches-cignetti-golding-lanning-cristobal/
 
-**NFL Power Rankings: Seahawks, Patriots remain 1-2, Texans on rise with playoffs on tap**\
-`This week's power rankings look ahead to what's next for all 32 teams — especially those that missed the playoffs.`\
-https://nytimes.com/athletic/6942267/2026/01/06/nfl-power-rankings-playoffs-seahawks-patriots-texans-whats-next/
+**Why keeping Zac Taylor, Duke Tobin is the right move, even if fans hate it: Dehner Jr.**\
+`Cincinnati ownership is banking that positive continuity and learning from mistakes are the best path back to winning.`\
+https://nytimes.com/athletic/6943790/2026/01/06/bengals-zac-taylor-duke-tobin-mike-brown/
 
-**Aaron Glenn has the trust of the Jets players. Now he wants it from fans**\
-`Glenn promised the Jets would be a team the fans would be proud of, but there's not much for them to hang their hats on after a 3-14 season.`\
-https://nytimes.com/athletic/6944135/2026/01/06/aaron-glenn-first-season-new-york-jets-rebuild/
+**What does it take to end a record playoff drought? How Sabres can follow NHL's Panthers, NFL's Bills**\
+`This current group of Sabres players is trying to stop Buffalo's playoff drought from reaching 15 seasons.`\
+https://nytimes.com/athletic/6936143/2026/01/06/sabres-standings-playoff-drought-buffalo-bills-florida-panthers/
 
-**Behind Carlie Irsay-Gordon’s decision to give Colts GM Chris Ballard one last shot**\
-`Irsay-Gordon believes the architect of the Colts’ disappointing present still has it in him to design a better future.`\
-https://nytimes.com/athletic/6943605/2026/01/06/colts-chris-ballard-shane-steichen-safe-carlie-irsay-gordon/
+**NHL Awards watch: Why Seider is challenging Makar for the Norris**\
+`As we hit the midpoint of the season, almost every race has become a genuine competition, including a surprise front-runner for the Selke.`\
+https://nytimes.com/athletic/6943428/2026/01/06/nhl-awards-watch-seider-mackinnon-coyle/
 
-**What's next for MLB and Venezuela? Officials assess impact on upcoming season, WBC**\
-`Given the uncertainty, conversations with baseball officials revealed lingering unease about a nation that plays a vital role in MLB.`\
-https://nytimes.com/athletic/6944233/2026/01/06/mlb-venezuela-world-baseball-classic-impact/
+**The Giants have 5 starting pitchers after signing Tyler Mahle. They need 1 more**\
+`The Giants have signed two free-agent starters but that accounts, realistically, for 1.25 to 1.75-worth of rotation spots.`\
+https://nytimes.com/athletic/6943365/2026/01/06/sf-giants-starting-rotation-needs/
 
-**Can hit TV show 'Heated Rivalry' change hockey culture?**\
-`The show has taken over pop culture and is opening up conversations about a complex topic within hockey.`\
-https://nytimes.com/athletic/6936576/2026/01/06/heated-rivalry-nhl-hockey-culture-change/
+**CFP quarterback confidential: Just how good are the 4 QBs still standing?**\
+`We spoke to coaches and staffers across the country for their candid thoughts on the passers we’ll be watching when the semis kick off.`\
+https://nytimes.com/athletic/6944159/2026/01/06/college-football-playoff-quarterbacks-scouting-reports/
 
-**Final NFL QB stock report: Due respect to Matthew Stafford, but Drake Maye is rightful MVP**\
-`The rankings are set: Maye and Stafford finished 1-2, but what about the rest? Who was the biggest riser of the season? The biggest faller?`\
-https://nytimes.com/athletic/6943100/2026/01/06/nfl-qb-stock-report-rankings-drake-maye/
+**NASCAR 2026 predictions: Playoff peace (sort of), a busy Silly Season, and more**\
+`A new playoff format will please some (but definitely not all), a lot of drivers will be rumored on the move, and more predictions for 2026.`\
+https://nytimes.com/athletic/6893985/2026/01/06/nascar-2026-predictions-playoffs-silly-season-f1/
 

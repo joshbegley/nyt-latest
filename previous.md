@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6935749/2026/01/06/liam-rosenior-tactical-style-chelsea/
 
 **Australian Open announces record prize money amid player pressure on Grand Slams**\
-`Various groups are exerting pressure on the biggest tournaments in the sport over the proportion of revenues that they receive.`\
+`Various groups are exerting pressure on the biggest tournaments in the sport over the proportion of revenues they receive.`\
 https://nytimes.com/athletic/6944796/2026/01/06/tennis-prize-money-australian-open-grand-slams/
 
 **Here’s the latest.**\
