@@ -1,3 +1,15 @@
+**What Venezuela Wants**\
+`We take a deeper look at the evolving situation in Venezuela.`\
+https://nytimes.com/2026/01/06/briefing/what-venezuela-wants.html
+
+**Strasbourg fans say Rosenior's Chelsea move 'humiliating', call for club president's exit**\
+`Both clubs are owned by the BlueCo consortium and have had 12 player transfers take place between them since the takeover in summer 2023. `\
+https://nytimes.com/athletic/6944885/2026/01/06/strasbourg-protests-chelsea-liam-rosenior-manager/
+
+**Ohio State portal priorities: Where can transfers help the Buckeyes make a deeper CFP run?**\
+`Ohio State is looking for a mix of starting-caliber players and depth in the transfer portal. These are the positions to watch.`\
+https://nytimes.com/athletic/6943194/2026/01/06/ohio-state-transfer-portal-needs-2026/
+
 **Pistons send message to Knicks, NBA: They're the team to beat in the East**\
 `Despite missing two starters, Detroit blew out New York on Monday on the second night of a back-to-back. `\
 https://nytimes.com/athletic/6944494/2026/01/06/pistons-beat-knicks-cade-cunningham-nba/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6944320/2026/01/06/second-straight-chasing-kings-ta
 **Guardians 2026 roster projection 1.0: Reinforced bullpen, stagnant offense await spring**\
 `Cleveland's lineup ranked 28th in runs last year and hasn't been touched, while the bullpen that posted the third-best ERA was restocked.`\
 https://nytimes.com/athletic/6943127/2026/01/06/cleveland-guardians-2026-roster-projection/
-
-**Liverpool's failure to replace the pace and skill of Luis Diaz is blunting their attack**\
-`Arne Slot's side have lacked creativity and goal-threat, and are clearly missing a player who has the pace and skill to beat defenders`\
-https://nytimes.com/athletic/6943019/2026/01/06/liverpool-failure-replace-luis-diaz-blunt-attack/
-
-**Blackhawks insider: Could too much AHL time be bad for Kevin Korchinski?**\
-`Also: Levshunov's best game, Dickinson's injury bug, a national anthem reunion and more.`\
-https://nytimes.com/athletic/6942956/2026/01/06/blackhawks-kevin-korchinski-nhl-ahl-time/
-
-**The secret behind TGL's most successful golf holes? Brilliant design minds getting weird**\
-`"When you're a songwriter, you know that you have a special song that's out there? I knew that Stinger was special.”`\
-https://nytimes.com/athletic/6943900/2026/01/06/tgl-golf-hole-design-hanse-piza/
 
