@@ -1,3 +1,11 @@
+**World Juniors standouts and disappointments: How did the top prospects play?**\
+`There are plenty of things to take away from this tournament, particularly how 2026 prospects Gavin McKenna and Ivar Stenberg performed.`\
+https://nytimes.com/athletic/6942588/2026/01/05/world-juniors-gavin-mckenna-ivar-stenberg-top-prospects/
+
+**Montana State wins first FCS title since 1984 over upstart Illinois State, in an overtime thriller**\
+`The first FCS championship game to be played in Nashville was a huge success in the revamped home of the Vanderbilt Commodores.`\
+https://nytimes.com/athletic/6944161/2026/01/05/montana-state-illinois-state-fcs-national-championship/
+
 **Sweden holds off Czechia to win first World Junior gold since 2012**\
 `The Swedes, so often a silver medalist at the World Juniors, finally have another gold medal moment.`\
 https://nytimes.com/athletic/6942616/2026/01/05/sweden-world-juniors-gold-czechia-canada/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/travel/places-to-travel-destinations-2026.h
 **Bob Pulford, 4-time Stanley Cup winner and longtime NHL coach/GM, dies at 89**\
 `Pulford won all four Stanley Cups with the Maple Leafs before earning a Jack Adams with the Kings and running the Blackhawks for 30 years.`\
 https://nytimes.com/athletic/6944251/2026/01/05/bob-pulford-obituary-nhl-maple-leafs/
-
-**Bryce Underwood announces he's returning to Michigan**\
-`Nation's top prospect decides to play for new Wolverines coach Kyle Whittingham.`\
-https://nytimes.com/athletic/6944142/2026/01/05/bryce-underwood-announces-hes-returning-to-michigan-under-new-coach-kyle-whittingham/
-
-**An Homage to Our Last Sunsets**\
-`A trip to Antarctica at this time of year means a month of no darkness. Our climate reporter Raymond Zhong reflects on one of the last sunsets that he and our photographer Chang W. Lee will experience for some time.`\
-https://nytimes.com/video/climate/100000010625788/an-homage-to-our-last-sunsets.html
 
