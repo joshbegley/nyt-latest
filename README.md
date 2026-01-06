@@ -1,3 +1,15 @@
+**Anxiety. Relief. Uncertainty. For N.Y.C. Venezuelans, Emotions Collide.**\
+`Many celebrated the seizure of Nicolás Maduro. Others were clouded by uncertainty. And some wondered if they might find a path back to their homeland.`\
+https://nytimes.com/2026/01/06/nyregion/venezuelan-immigrants-nyc-maduro.html
+
+**Health Tips**\
+`What ideas do you have for feeling your best, both physically and mentally?`\
+https://nytimes.com/2026/01/06/learning/health-tips.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/06/crosswords/spelling-bee-forum.html
+
 **Nvidia Shows Off New A.I. Chip at CES**\
 `At the annual tech conference, CES, Nvidia showed off a new A.I. chip, known as Vera Rubin, which is more efficient and powerful than previous generations of chips.`\
 https://nytimes.com/video/us/100000010626065/nvidia-chips-mercedes.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/06/learning/word-of-the-day-abrogate.html
 **Stephen Colbert Doubts Trump’s Ability to Run Two Countries at Once**\
 `“The Late Show” host said the president couldn’t possibly run two nations, because “he can’t even run.”`\
 https://nytimes.com/2026/01/06/arts/television/stephen-colbert-trump-venezuela.html
-
-**Health Dept. to Freeze $10 Billion in Funding to 5 Democratic States**\
-`The funding pause could jeopardize child care and other programs that serve hundreds of thousands of households in California, Colorado, Illinois, Minnesota and New York.`\
-https://nytimes.com/2026/01/06/us/politics/child-care-funding-cuts-trump.html
-
-**Jamie Raskin: Jan. 6 Never Ended**\
-`Five years after Jan. 6, 2021, we are still caught up in a struggle over the meaning of that day.`\
-https://nytimes.com/2026/01/06/opinion/jamie-raskin-jan-6-anniversary.html
-
-**The New York Times in Print for Tuesday, Jan. 6, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/01/06/todays-new-york-times
 
