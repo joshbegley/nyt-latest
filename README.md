@@ -1,3 +1,15 @@
+**Cuban Deaths in U.S. Venezuela Strikes Confirm Ties Between Countries**\
+`The Maduro regime was long propped up by Cuba’s armed forces and intelligence agencies. Many Cubans were reported killed in the American military action.`\
+https://nytimes.com/2026/01/05/world/americas/venezuela-cuba-us-strikes.html
+
+**Venezuela’s Legislators Offer Scorn as Trump Demands Obedience**\
+`The convening of the National Assembly made it clear that Maduro loyalists remain entrenched across Venezuelan institutions after decades of purges and crackdowns on dissent.`\
+https://nytimes.com/2026/01/05/world/americas/trump-venezuela-us-control.html
+
+**Day 2: The Best Foods for Your Brain**\
+`Today, we’ll show you how to eat more of them.`\
+https://nytimes.com/interactive/2026/well/brain-health-mind-diet-recipes.html
+
 **A.I. Images of Maduro Spread Rapidly, Despite Safeguards**\
 `Deepfakes of Venezuela’s ousted president, Nicolás Maduro, flooded the internet after his capture, in a new collision of breaking news and artificial intelligence.`\
 https://nytimes.com/2026/01/05/technology/nicolas-maduro-ai-images-deepfakes.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/05/world/americas/venezuela-journalists-detained.htm
 **Tatsuya Imai is the Astros' first major splash in Asia. He will not be the last.**\
 `After introducing Imai, Houston's owner is "laser-focused" on signing more players from what he called a "kind of untapped" market.`\
 https://nytimes.com/athletic/6943840/2026/01/05/tatsuya-imai-astros-jim-crane-asia/
-
-**Appeals Court Upholds Prohibition on Trump’s Medical Research Cuts**\
-`The ruling on Monday upheld a lower court’s judgment in April that the Trump administration could not drastically slash funding from the National Institutes of Health.`\
-https://nytimes.com/2026/01/05/us/politics/trump-nih-grant-cuts-court.html
-
-**Trump Was Right to Oust Maduro**\
-`President Trump made a bold decision, and it was a stunning success.`\
-https://nytimes.com/2026/01/05/opinion/international-world/trump-maduro-oust-raid.html
-
-**Trading for Dillon Brooks? Suns owner says don't even ask**\
-`Phoenix is off to a surprising 21-14 start this season under first-year head coach Jordan Ott, and Brooks has been a big reason why.`\
-https://nytimes.com/athletic/6943743/2026/01/05/suns-dillon-brooks-matt-ishbia-trade-asks/
 

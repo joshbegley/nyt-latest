@@ -1,3 +1,7 @@
+**A.I. Images of Maduro Spread Rapidly, Despite Safeguards**\
+`Deepfakes of Venezuela’s ousted president, Nicolás Maduro, flooded the internet after his capture, in a new collision of breaking news and artificial intelligence.`\
+https://nytimes.com/2026/01/05/technology/nicolas-maduro-ai-images-deepfakes.html
+
 **Trump’s Foray Into Venezuela Could Embolden Russia’s and China’s Own Aggression**\
 `While both countries were allied with Nicolás Maduro, the U.S. attack could give them justification to use force in other spheres, analysts said.`\
 https://nytimes.com/2026/01/05/world/europe/trump-venezuela-china-russia.html
