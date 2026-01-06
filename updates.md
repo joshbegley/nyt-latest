@@ -1,3 +1,7 @@
+**Notre Dame QB transfer Kenny Minchey flips from Nebraska to Kentucky: Reports**\
+`Minchey was set to fill a key hole for Nebraska after the portal entry of 22-game starter Dylan Raiola.`\
+https://nytimes.com/athletic/6944278/2026/01/05/notre-dame-kenny-minchey-flips-nebraska-kentucky/
+
 **Snoop Dogg broadcasts Warriors-Clippers game: 'Everybody was a Snoop fan growing up'**\
 `Snoop's presence was evident prior to the start of Monday's game.`\
 https://nytimes.com/athletic/6944292/2026/01/05/warriors-clippers-snoop-dogg-broadcast/
