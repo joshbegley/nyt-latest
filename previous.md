@@ -1,4 +1,4 @@
-**Why are Colts running it back? Owner believes first-half success was sign of what's to come**\
+**Why are Colts running it back? Owner believes first-half success is sign of what's to come**\
 `Carlie Irsay-Gordon: "Even though we didn't get the results we expected, I'm confident in what we're building and how we're building it.”`\
 https://nytimes.com/athletic/6944145/2026/01/05/colts-chris-ballard-carlie-irsay-gordon-shane-steichen-run-it-back/
 

@@ -1,3 +1,11 @@
+**An Homage to Our Last Sunsets**\
+`A trip to Antarctica at this time of year means a month of no darkness. Our climate reporter Raymond Zhong reflects on one of the last sunsets that he and our photographer Chang W. Lee will experience for some time.`\
+https://nytimes.com/video/climate/100000010625788/an-homage-to-our-last-sunsets.html
+
+**Map: 5.7-Magnitude Earthquake Shakes Japan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/01/05/world/asia/earthquake-tracker-japan-nytivu6f.html
+
 **Why are Colts running it back? Owner believes first-half success is sign of what's to come**\
 `Carlie Irsay-Gordon: "Even though we didn't get the results we expected, I'm confident in what we're building and how we're building it.”`\
 https://nytimes.com/athletic/6944145/2026/01/05/colts-chris-ballard-carlie-irsay-gordon-shane-steichen-run-it-back/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/05/obituaries/steve-sheetz-dead.html
 **How to watch Packers at Bears: Wild Card Round Time, TV, streaming**\
 `Find out how to watch the Green Bay Packers play the Chicago Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6944025/2026/01/05/packers-vs-bears-stream-how-to-watch-jan-10/
-
-**For the disappointing and disappointed Commanders, 'hard decisions have to be made'**\
-`Washington Commanders coach Dan Quinn and general manager Adam Peters acknowledged the obvious: Changes will be and need to be made.`\
-https://nytimes.com/athletic/6943821/2026/01/05/commanders-offseason-questions-dan-quinn/
-
-**Cuban Deaths in U.S. Venezuela Strikes Confirm Ties Between Countries**\
-`The Maduro regime was long propped up by Cuba’s armed forces and intelligence agencies. Many Cubans were reported killed in the American military action.`\
-https://nytimes.com/2026/01/05/world/americas/venezuela-cuba-us-strikes.html
 
