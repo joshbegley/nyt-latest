@@ -1,3 +1,7 @@
+**Georgia Schedules Special Election for Marjorie Taylor Greene’s Seat**\
+`The election on March 10, or a runoff in April, will determine who serves out the remainder of Ms. Greene’s term after her unexpected resignation from Congress.`\
+https://nytimes.com/2026/01/06/us/georgia-special-election-marjorie-taylor-greene.html
+
 **Europe Rallies for Greenland as Trump’s Threats Continue**\
 `The show of solidarity comes as President Trump, emboldened by his capture of Nicolás Maduro from Venezuela, has suggested he could take action against other countries.`\
 https://nytimes.com/2026/01/06/world/americas/greenland-europe-trump-threats.html
