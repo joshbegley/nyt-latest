@@ -1,3 +1,11 @@
+**Manchester City's Dias set for up to six weeks out with hamstring injury**\
+`Dias sustained the injury during the draw with Chelsea and Pep Guardiola confirmed the expected injury timeframe on Tuesday.`\
+https://nytimes.com/athletic/6944806/2026/01/06/ruben-dias-manchester-city-injury-update/
+
+**New York Times Case Against Pentagon Will Move Quickly**\
+`The lawsuit, over the Defense Department’s new rules for journalists, is headed for oral arguments in March.`\
+https://nytimes.com/2026/01/06/business/media/new-york-times-pentagon-lawsuit.html
+
 **How Dubai Design District Is Rethinking Waterfront Living for a Creative City**\
 `Meraas, a member of Dubai Holding Real Estate, has unveiled an expanded residential masterplan for Dubai.`\
 https://nytimes.com/paidpost/meraas/meraas-ad-post-campaign/how-dubai-design-district-is-rethinking-waterfront-living-for-a-creative-city.html
