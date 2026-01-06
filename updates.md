@@ -1,3 +1,11 @@
+**While Canadiens’ present looks bright, Hughes remains focused on a brighter future**\
+`The Canadiens are young and talented and firmly in playoff position, but the talent they still have coming is top of mind for their GM. `\
+https://nytimes.com/athletic/6947588/2026/01/06/canadiens-hughes-prospects-rebuild-hutson-kapanen/
+
+**Hilton Drops Bookings for Hotel Accused of Turning Away Immigration Agents**\
+`The hotel giant said it took “immediate action” against a Hampton Inn near Minneapolis after a video showed a worker declining Department of Homeland Security reservations.`\
+https://nytimes.com/2026/01/06/travel/hilton-hampton-inn-dhs.html
+
 **Venezuelan Leaders Project Independence**\
 `Also, Europe discusses postwar plans for Ukraine. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2026/01/06/briefing/venezuelan-leaders-project-independence.html

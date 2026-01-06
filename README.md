@@ -1,3 +1,11 @@
+**Latin American countries condemn the U.S. at Organization of American States meeting.**\
+`By James Wagner`\
+https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/latin-american-countries-condemn-the-us-at-a-organization-of-american-states-meeting
+
+**Michigan City to Pay $3.25 Million After Woman Was Mistakenly Declared Dead**\
+`Timesha Beauchamp, 20, was found alive at a funeral home after she had been pronounced dead during a medical episode in Southfield, Mich. She died weeks later.`\
+https://nytimes.com/2026/01/06/us/woman-found-alive-body-bag-settlement.html
+
 **While Canadiens’ present looks bright, Hughes remains focused on a brighter future**\
 `The Canadiens are young and talented and firmly in playoff position, but the talent they still have coming is top of mind for their GM. `\
 https://nytimes.com/athletic/6947588/2026/01/06/canadiens-hughes-prospects-rebuild-hutson-kapanen/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/06/us/hollywood-center-motel-fire-california.html
 **Ex-Turning Point Leader Gets Probation After Forging Voters’ Names**\
 `Austin Smith resigned from the group founded by Charlie Kirk and suspended his bid for re-election to the Arizona House in 2024.`\
 https://nytimes.com/2026/01/06/us/austin-smith-forgery-turning-point-arizona.html
-
-**Rubio Tells Lawmakers Trump Wants to Buy Greenland**\
-`President Trump has said since his first term that he wants to acquire Greenland, and he asked aides for an updated plan on Monday. European leaders rejected the president’s assertions.`\
-https://nytimes.com/2026/01/06/us/politics/rubio-trump-greenland.html
-
-**The Trump administration covets Venezuela’s oil reserves, and the implications for the planet could be serious.**\
-`By David Gelles`\
-https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/the-trump-administration-covets-venezuelas-oil-reserves-and-the-implications-for-the-planet-could-be-serious
 

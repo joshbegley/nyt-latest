@@ -1,3 +1,11 @@
+**While Canadiens’ present looks bright, Hughes remains focused on a brighter future**\
+`The Canadiens are young and talented and firmly in playoff position, but the talent they still have coming is top of mind for their GM. `\
+https://nytimes.com/athletic/6947588/2026/01/06/canadiens-hughes-prospects-rebuild-hutson-kapanen/
+
+**Hilton Drops Bookings for Hotel Accused of Turning Away Immigration Agents**\
+`The hotel giant said it took “immediate action” against a Hampton Inn near Minneapolis after a video showed a worker declining Department of Homeland Security reservations.`\
+https://nytimes.com/2026/01/06/travel/hilton-hampton-inn-dhs.html
+
 **Venezuelan Leaders Project Independence**\
 `Also, Europe discusses postwar plans for Ukraine. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2026/01/06/briefing/venezuelan-leaders-project-independence.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/06/us/politics/rubio-trump-greenland.html
 **The Trump administration covets Venezuela’s oil reserves, and the implications for the planet could be serious.**\
 `By David Gelles`\
 https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/the-trump-administration-covets-venezuelas-oil-reserves-and-the-implications-for-the-planet-could-be-serious
-
-**Analysing Fletcher's Man Utd manifesto: Tactics, Neville criticisms and Ferguson's blessing**\
-`The new interim manager's inaugural press conference shed light on his likely approach at Burnley on Wednesday`\
-https://nytimes.com/athletic/6946862/2026/01/06/darren-fletcher-manchester-united-tactics-neville-ferguson/
-
-**Fletcher 'asked for Ferguson's blessing' before taking United job**\
-`"I don't like to make any major decisions or things without speaking to Sir Alex," Fletcher said on Tuesday.`\
-https://nytimes.com/athletic/6944905/2026/01/06/darren-fletcher-sir-alex-ferguson-manchester-united/
 
