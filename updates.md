@@ -1,3 +1,11 @@
+**An Homage to Our Last Sunsets**\
+`A trip to Antarctica at this time of year means a month of no darkness. Our climate reporter Raymond Zhong reflects on one of the last sunsets that he and our photographer Chang W. Lee will experience for some time.`\
+https://nytimes.com/video/climate/100000010625788/an-homage-to-our-last-sunsets.html
+
+**Map: 5.7-Magnitude Earthquake Shakes Japan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/01/05/world/asia/earthquake-tracker-japan-nytivu6f.html
+
 **Why are Colts running it back? Owner believes first-half success is sign of what's to come**\
 `Carlie Irsay-Gordon: "Even though we didn't get the results we expected, I'm confident in what we're building and how we're building it.”`\
 https://nytimes.com/athletic/6944145/2026/01/05/colts-chris-ballard-carlie-irsay-gordon-shane-steichen-run-it-back/
