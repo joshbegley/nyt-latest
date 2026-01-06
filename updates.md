@@ -1,3 +1,7 @@
+**The Pulse: A massive women’s hoops inflection point**\
+`The Athletic has live coverage of Bears vs.`\
+https://nytimes.com/athletic/6943375/2026/01/06/wnba-unrivaled-project-b-the-pulse/
+
 **From Cole Kmet to C.J. Gardner-Johnson, how the 2025 Bears were built**\
 `The 2025 NFC North champion Bears' roster construction began in 2020. Here's a chronological look at how the team was built.`\
 https://nytimes.com/athletic/6943659/2026/01/06/how-2025-bears-were-built/
