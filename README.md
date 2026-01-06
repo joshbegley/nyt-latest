@@ -1,3 +1,11 @@
+**European Leaders Meet for Latest Round of Ukraine Talks**\
+`The discussions, also attended by top U.S. negotiators and other allies of Ukraine, are intended to make progress on European commitments to postwar security if a cease-fire is reached.`\
+https://nytimes.com/2026/01/06/world/europe/ukraine-talks-europe.html
+
+**NASCAR commissioner Steve Phelps resigning after fallout from trial and texts**\
+`The longtime NASCAR executive will leave his role at the end of this month in the wake of the antitrust lawsuit that rattled the sport.`\
+https://nytimes.com/athletic/6945158/2026/01/06/nascar-steve-phelps-resigns-commissioner-leadership-racing/
+
 **Scottie Barnes and Jalen Johnson: two sides of the same multi-skilled coin**\
 `Teams are known to place bets on athletic, 6-foot-8 forwards. In their fifth seasons, Barnes and Johnson are showing why.`\
 https://nytimes.com/athletic/6944329/2026/01/06/jalen-johnson-hawks-trae-young-scottie-barnes-raptors/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6945003/2026/01/06/leicester-city-transfers-directo
 **Evans to return to Man United on Fletcher's coaching staff**\
 `The 37-year-old spent six months as United's head of loans and pathways after ending his playing career last summer.`\
 https://nytimes.com/athletic/6944785/2026/01/06/jonny-evans-manchester-united-coach-return/
-
-**Jordan Stolz, Erin Jackson headline U.S. Olympic speed skating team**\
-`With Stolz and Jackson leading the way, the Americans could be poised for their strongest Olympic performance in years.`\
-https://nytimes.com/athletic/6944605/2026/01/06/us-olympics-speed-skating-team-jordan-stolz-erin-jackson/
-
-**The Rush to Profit From Maduro’s Capture**\
-`Trump administration officials are pushing American companies to quickly start investing in Venezuela. But energy giants have some major concerns.`\
-https://nytimes.com/2026/01/06/business/dealbook/venezuela-trump-oil-chevron.html
 

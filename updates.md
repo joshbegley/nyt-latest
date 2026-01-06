@@ -1,3 +1,11 @@
+**Scottie Barnes and Jalen Johnson: two sides of the same multi-skilled coin**\
+`Teams are known to place bets on athletic, 6-foot-8 forwards. In their fifth seasons, Barnes and Johnson are showing why.`\
+https://nytimes.com/athletic/6944329/2026/01/06/jalen-johnson-hawks-trae-young-scottie-barnes-raptors/
+
+**Trae Young potential trade spots: Clippers? Wizards? Plus, 4 that don't line up**\
+`Atlanta seems ready to move on from the Trae Young era. Which teams make realistic trade partners — and which ones don't?`\
+https://nytimes.com/athletic/6943798/2026/01/06/nba-trade-trae-young-clippers-wizards-future/
+
 **Cowboys fire Matt Eberflus, search for another defensive coordinator begins: Source**\
 `The Cowboys had one of the league's worst defenses in Brian Schottenheimer's first season as head coach.`\
 https://nytimes.com/athletic/6933799/2026/01/06/matt-eberflus-fired-cowboys/
