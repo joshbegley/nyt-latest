@@ -1,3 +1,7 @@
+**How Dubai Design District Is Rethinking Waterfront Living for a Creative City**\
+`Meraas, a member of Dubai Holding Real Estate, has unveiled an expanded residential masterplan for Dubai.`\
+https://nytimes.com/paidpost/meraas/meraas-ad-post-campaign/how-dubai-design-district-is-rethinking-waterfront-living-for-a-creative-city.html
+
 **What Venezuela Wants**\
 `We take a deeper look at the evolving situation in Venezuela.`\
 https://nytimes.com/2026/01/06/briefing/what-venezuela-wants.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6941836/2026/01/06/manager-or-head-coach/
 **Wild's second straight game chasing the Kings proves too much: Takeaways**\
 `Minnesota, on the road since Dec. 27, is running low on energy on the back end of its trip out west.`\
 https://nytimes.com/athletic/6944320/2026/01/06/second-straight-chasing-kings-takeaways/
-
-**Guardians 2026 roster projection 1.0: Reinforced bullpen, stagnant offense await spring**\
-`Cleveland's lineup ranked 28th in runs last year and hasn't been touched, while the bullpen that posted the third-best ERA was restocked.`\
-https://nytimes.com/athletic/6943127/2026/01/06/cleveland-guardians-2026-roster-projection/
 
