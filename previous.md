@@ -1,3 +1,7 @@
+**Recalling the Horrors of Jan. 6**\
+`Readers respond to an essay by Representative Jamie Raskin and to an editorial. Also: Risky changes in vaccine policy; a new Kennedy Center.`\
+https://nytimes.com/2026/01/06/opinion/jan-6-anniversary.html
+
 **NFL MVP odds flip back to Stafford over Maye. Who you got?**\
 `The final MVP race came down to two. Here's why it was a really weird year.`\
 https://nytimes.com/athletic/6945289/2026/01/06/nfl-mvp-odds-stafford-maye-2/
@@ -26,11 +30,7 @@ https://nytimes.com/2026/01/06/us/politics/jan-6-rioter-seeks-forgiveness.html
 `The Norwegian previously managed United for a nearly three-year spell between December 2018 and November 2021.`\
 https://nytimes.com/athletic/6942100/2026/01/06/manchester-united-manager-next-solskjaer/
 
-**In major shakeup, Commanders part ways with OC Kliff Kingsbury and DC Joe Whitt Jr.**\
+**In major shakeup, Commanders part ways with coordinators Kliff Kingsbury, Joe Whitt Jr.**\
 `After finishing 5-12, the Commanders are making major changes on both sides of the ball.`\
 https://nytimes.com/athletic/6944595/2026/01/06/commanders-kliff-kingsbury-joe-whitt-coordinators/
-
-**The Sweatsuit Was Bound to Become a Meme**\
-`When President Trump shared an unverified photo of Nicolás Maduro in U.S. custody, a corner of the internet followed a familiar playbook for newsmaking images: Talk about the clothes.`\
-https://nytimes.com/2026/01/06/style/maduro-nike-tech-sweatsuit-meme.html
 

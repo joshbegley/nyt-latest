@@ -1,3 +1,11 @@
+**Recalling the Horrors of Jan. 6**\
+`Readers respond to an essay by Representative Jamie Raskin and to an editorial. Also: Risky changes in vaccine policy; a new Kennedy Center.`\
+https://nytimes.com/2026/01/06/opinion/jan-6-anniversary.html
+
+**In major shakeup, Commanders part ways with coordinators Kliff Kingsbury, Joe Whitt Jr.**\
+`After finishing 5-12, the Commanders are making major changes on both sides of the ball.`\
+https://nytimes.com/athletic/6944595/2026/01/06/commanders-kliff-kingsbury-joe-whitt-coordinators/
+
 **NFL MVP odds flip back to Stafford over Maye. Who you got?**\
 `The final MVP race came down to two. Here's why it was a really weird year.`\
 https://nytimes.com/athletic/6945289/2026/01/06/nfl-mvp-odds-stafford-maye-2/

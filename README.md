@@ -1,3 +1,7 @@
+**Until Saturday: From walk-on to $7.5M in 365 days**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6946116/2026/01/06/transfer-portal-drew-mestemaker-until-saturday/
+
 **Recalling the Horrors of Jan. 6**\
 `Readers respond to an essay by Representative Jamie Raskin and to an editorial. Also: Risky changes in vaccine policy; a new Kennedy Center.`\
 https://nytimes.com/2026/01/06/opinion/jan-6-anniversary.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/06/us/politics/jan-6-rioter-seeks-forgiveness.html
 **Solskjaer holds talks over Manchester United caretaker role**\
 `The Norwegian previously managed United for a nearly three-year spell between December 2018 and November 2021.`\
 https://nytimes.com/athletic/6942100/2026/01/06/manchester-united-manager-next-solskjaer/
-
-**In major shakeup, Commanders part ways with coordinators Kliff Kingsbury, Joe Whitt Jr.**\
-`After finishing 5-12, the Commanders are making major changes on both sides of the ball.`\
-https://nytimes.com/athletic/6944595/2026/01/06/commanders-kliff-kingsbury-joe-whitt-coordinators/
 
