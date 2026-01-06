@@ -1,3 +1,15 @@
+**How to watch Duke vs. Louisville men's basketball: Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6945776/2026/01/06/duke-vs-louisville-stream-how-to-watch-jan-6/
+
+**How to watch Georgia vs. Florida men's basketball: Time, TV, streaming**\
+`Find out how to watch the Georgia Bulldogs play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6945773/2026/01/06/georgia-vs-florida-stream-how-to-watch-jan-6/
+
+**Honoring Roberta Flack’s Legacy, Despite Bias in Music**\
+`The luminary musician Roberta Flack was not in the 2004 edition of “The Rolling Stone Album Guide.” But on this episode of “Cannonball,” Wesley Morris, the host, makes the case for why she would be in an edition released today.`\
+https://nytimes.com/video/podcasts/100000010617258/honoring-roberta-flacks-legacy-despite-bias-in-music.html
+
 **The Story Behind Roberta Flack’s First Big Hit**\
 `In Roberta Flack’s song “The First Time Ever I Saw Your Face,” Black love is “rendered as a thing of the cosmos,” Daphne A. Brooks, a critic and scholar, says on “Cannonball.” What made the song famous is a different story.`\
 https://nytimes.com/video/podcasts/100000010617508/the-story-behind-roberta-flacks-first-big-hit.html
