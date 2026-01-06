@@ -1,3 +1,11 @@
+**What Trump Wants in Venezuela**\
+`The journalist Jonathan Blitzer explains the various interests and factions at play in the Trump administration’s strike against Venezuela.`\
+https://nytimes.com/video/opinion/100000010624474/what-trump-wants-in-venezuela.html
+
+**NFL overreactions: Panthers are a safe bet as big underdog**\
+`Toby Mergler gives his picks for this weekend's NFL wild-card playoff round.`\
+https://nytimes.com/athletic/6945142/2026/01/06/nfl-overreactions-wild-card-panthers-underdogs/
+
 **Skiers Make Mountaintop Tribute to Swiss Fire Victims**\
 `Hundreds of skiers gathered in Crans-Montana, Switzerland, to honor the 40 people killed and more than 100 injured in a New Years’s Day fire at a bar. The town’s mayor said the bar had not been inspected in several years.`\
 https://nytimes.com/video/world/europe/100000010626590/swiss-ski-fire-tribute-heart.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/06/learning/lesson-plans/teaching-about-the-us-milit
 **Czechia, Latvia, France unveil Olympic men's hockey rosters: Players to watch, X-factors, keys to success**\
 `David Pastrňák is a big reason to keep an eye on Czechia when the tournament begins in February.`\
 https://nytimes.com/athletic/6943491/2026/01/06/czechia-latvia-france-olympics-mens-hockey-roster/
-
-**What to Know About Maduro’s Arraignment**\
-`Our criminal justice reporter Jonah E. Bromwich describes the scene as Nicolás Maduro, the captive president of Venezuela, pleaded not guilty in federal court in Manhattan, and what is set to happen next.`\
-https://nytimes.com/video/world/americas/100000010623912/what-to-know-about-maduros-arraignment.html
-
-**A Jan. 6 Rioter Returned to the Capitol Seeking Forgiveness**\
-`Pamela Hemphill, who said she rejected President Trump’s pardon for her role in the Jan. 6, 2021, attack, apologized to a Capitol Police officer who was assaulted during the mayhem.`\
-https://nytimes.com/2026/01/06/us/politics/jan-6-rioter-seeks-forgiveness.html
 
