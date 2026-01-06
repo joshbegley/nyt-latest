@@ -1,3 +1,7 @@
+**Ravens again fail to live up to expectations. What does it mean for John Harbaugh?**\
+`Ravens decision-makers have to contemplate why a team that often looks dominant during the regular season becomes unreliable in January. `\
+https://nytimes.com/athletic/6943680/2026/01/05/ravens-john-harbaugh-expectations-season-ends/
+
 **How to watch Rams at Panthers: Wild Card Round Time, TV, streaming**\
 `Find out how to watch the Los Angeles Rams play the Carolina Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6943859/2026/01/05/rams-vs-panthers-stream-how-to-watch-jan-10/

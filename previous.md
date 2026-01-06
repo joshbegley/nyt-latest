@@ -1,3 +1,7 @@
+**Ravens again fail to live up to expectations. What does it mean for John Harbaugh?**\
+`Ravens decision-makers have to contemplate why a team that often looks dominant during the regular season becomes unreliable in January. `\
+https://nytimes.com/athletic/6943680/2026/01/05/ravens-john-harbaugh-expectations-season-ends/
+
 **How to watch Rams at Panthers: Wild Card Round Time, TV, streaming**\
 `Find out how to watch the Los Angeles Rams play the Carolina Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6943859/2026/01/05/rams-vs-panthers-stream-how-to-watch-jan-10/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6943463/2026/01/05/cardinals-jonathan-gannon-fired-
 **A Revival of Venezuela’s Oil Industry Poses a Challenge for Canada**\
 `The two countries both produce heavy oil, which is difficult to refine, and have relied historically on American refineries to buy it.`\
 https://nytimes.com/2026/01/05/world/americas/venezuela-oil-industry-canada.html
-
-**What to Know About the New Childhood Vaccine Schedule**\
-`The U.S. federal government slashed the number of diseases that all children are advised to be vaccinated against to 11 from 17.`\
-https://nytimes.com/2026/01/05/well/childhood-vaccine-schedule-cdc-changes.html
 
