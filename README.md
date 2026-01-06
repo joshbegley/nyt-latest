@@ -1,3 +1,7 @@
+**A.I. Images of Maduro Spread Rapidly, Despite Safeguards**\
+`Deepfakes of Venezuela’s ousted president, Nicolás Maduro, flooded the internet after his capture, in a new collision of breaking news and artificial intelligence.`\
+https://nytimes.com/2026/01/05/technology/nicolas-maduro-ai-images-deepfakes.html
+
 **Trump’s Foray Into Venezuela Could Embolden Russia’s and China’s Own Aggression**\
 `While both countries were allied with Nicolás Maduro, the U.S. attack could give them justification to use force in other spheres, analysts said.`\
 https://nytimes.com/2026/01/05/world/europe/trump-venezuela-china-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/05/opinion/international-world/trump-maduro-oust-rai
 **Trading for Dillon Brooks? Suns owner says don't even ask**\
 `Phoenix is off to a surprising 21-14 start this season under first-year head coach Jordan Ott, and Brooks has been a big reason why.`\
 https://nytimes.com/athletic/6943743/2026/01/05/suns-dillon-brooks-matt-ishbia-trade-asks/
-
-**Trae Young, Hawks working to find trade destination for 4-time NBA All-Star**\
-`The Hawks’ choice not to give Young a long-term contract extension this summer opened the door for all of this chatter.`\
-https://nytimes.com/athletic/6943604/2026/01/05/trae-young-hawks-trade-deal-search/
 

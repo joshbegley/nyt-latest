@@ -1,3 +1,19 @@
+**Trump’s Foray Into Venezuela Could Embolden Russia’s and China’s Own Aggression**\
+`While both countries were allied with Nicolás Maduro, the U.S. attack could give them justification to use force in other spheres, analysts said.`\
+https://nytimes.com/2026/01/05/world/europe/trump-venezuela-china-russia.html
+
+**Rangers' Igor Shesterkin leaves game vs. Mammoth with apparent lower-body injury**\
+`Shesterkin had to be helped off the ice and into the locker room with about seven minutes left in the first period.`\
+https://nytimes.com/athletic/6943935/2026/01/05/igor-shesterkin-injury-rangers-mammoth/
+
+**C.I.A. Assessed Venezuela’s Future Without Maduro Ahead of U.S. Operation**\
+`The assessment aided President Trump and other officials in concluding that Delcy Rodriguez, then Venezuela’s vice president, was Nicolás Maduro’s best short-term successor, according to people briefed on the matter.`\
+https://nytimes.com/live/2026/01/05/world/venezuela-maduro-trump/venezuela-without-maduro-cia-intel-report
+
+**Trae Young, Hawks working to find trade destination for 4-time NBA All-Star**\
+`The Hawks’ choice not to give Young a long-term contract extension this summer opened the door for all of this chatter.`\
+https://nytimes.com/athletic/6943604/2026/01/05/trae-young-hawks-trade-deal-search/
+
 **Why Trump Refused to Back Venezuela’s Machado: Fears of Chaos, and Fraying Ties**\
 `U.S. intelligence suggested María Corina Machado, Venezuela’s opposition leader, would struggle to lead the government. But her relationship with Trump officials had been souring for months.`\
 https://nytimes.com/2026/01/05/us/politics/trump-venezuela-machado.html
