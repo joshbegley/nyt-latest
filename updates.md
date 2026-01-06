@@ -1,3 +1,7 @@
+**Alabama lands No. 1 RB in portal: Can Hollywood Smothers fix Tide's run game?**\
+`Alabama failed to reach 30 rushing yards in any of its final three games of the 2025-26 season.`\
+https://nytimes.com/athletic/6944116/2026/01/05/alabama-hollywood-smothers-transfer-portal/
+
 **Trump’s Post About Slain Minnesota Lawmaker Dismays Her Children**\
 `The son and daughter of Melissa and Mark Hortman have asked the president to remove a social media post promoting a conspiracy theory about the assassination.`\
 https://nytimes.com/2026/01/05/us/trump-social-hortman-conspiracy-theory.html
