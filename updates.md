@@ -1,3 +1,11 @@
+**Ex-Turning Point Leader Gets Probation After Forging Voters’ Names**\
+`Austin Smith resigned from the group founded by Charlie Kirk and suspended his bid for re-election to the Arizona House in 2024.`\
+https://nytimes.com/2026/01/06/us/austin-smith-forgery-turning-point-arizona.html
+
+**Rubio Tells Lawmakers Trump Wants to Buy Greenland**\
+`President Trump has said since his first term that he wants to acquire Greenland, and he asked aides for an updated plan on Monday. European leaders rejected the president’s assertions.`\
+https://nytimes.com/2026/01/06/us/politics/rubio-trump-greenland.html
+
 **Rubio Told Lawmakers Trump Wants to Buy Greenland**\
 `President Trump has said since his first term that he wants to acquire Greenland, and he asked aides for an updated plan on Monday. European leaders rejected the president’s assertions.`\
 https://nytimes.com/2026/01/06/us/politics/rubio-trump-greenland.html
