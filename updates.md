@@ -1,3 +1,15 @@
+**Brad Marchand vs. the Maple Leafs: Truth beyond the trolling in latest comments**\
+`Marchand opened the wound, confirming he almost signed with Toronto and saying it's "unfortunate the fans ran (Mitch) Marner out of town."`\
+https://nytimes.com/athletic/6947640/2026/01/06/brad-marchand-maple-leafs-comments/
+
+**‘It’s Hurting Minnesotans’: Tim Walz Says He Ended Run to Shield Residents from Trump**\
+`“I don’t think any governor in history has had to fight a war against the federal government every single day,” Gov. Walz said after ending his re-election bid.`\
+https://nytimes.com/2026/01/06/us/tim-walz-minnesota-fraud-trump.html
+
+**Fire Ravages Los Angeles Motel That Played Supporting Role in Films**\
+`A city commission had just voted to consider the site of the old Hollywood Center Motel, which has long been vacant, for landmark status.`\
+https://nytimes.com/2026/01/06/us/hollywood-center-motel-fire-california.html
+
 **Ex-Turning Point Leader Gets Probation After Forging Voters’ Names**\
 `Austin Smith resigned from the group founded by Charlie Kirk and suspended his bid for re-election to the Arizona House in 2024.`\
 https://nytimes.com/2026/01/06/us/austin-smith-forgery-turning-point-arizona.html

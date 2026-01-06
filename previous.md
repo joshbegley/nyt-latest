@@ -1,3 +1,15 @@
+**Brad Marchand vs. the Maple Leafs: Truth beyond the trolling in latest comments**\
+`Marchand opened the wound, confirming he almost signed with Toronto and saying it's "unfortunate the fans ran (Mitch) Marner out of town."`\
+https://nytimes.com/athletic/6947640/2026/01/06/brad-marchand-maple-leafs-comments/
+
+**‘It’s Hurting Minnesotans’: Tim Walz Says He Ended Run to Shield Residents from Trump**\
+`“I don’t think any governor in history has had to fight a war against the federal government every single day,” Gov. Walz said after ending his re-election bid.`\
+https://nytimes.com/2026/01/06/us/tim-walz-minnesota-fraud-trump.html
+
+**Fire Ravages Los Angeles Motel That Played Supporting Role in Films**\
+`A city commission had just voted to consider the site of the old Hollywood Center Motel, which has long been vacant, for landmark status.`\
+https://nytimes.com/2026/01/06/us/hollywood-center-motel-fire-california.html
+
 **Ex-Turning Point Leader Gets Probation After Forging Voters’ Names**\
 `Austin Smith resigned from the group founded by Charlie Kirk and suspended his bid for re-election to the Arizona House in 2024.`\
 https://nytimes.com/2026/01/06/us/austin-smith-forgery-turning-point-arizona.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/06/us/politics/lindsey-halligan-virginia-federal-jud
 **Suspect in Brown and M.I.T. Killings Discussed Attacks in Videos, Officials Say**\
 `Claudio Neves Valente, who is accused of killing two students at Brown and an M.I.T. professor, left rambling descriptions of the shootings.`\
 https://nytimes.com/2026/01/06/us/brown-mit-shootings-videos.html
-
-**Ravens' John Harbaugh fired after 18 seasons**\
-`Hired in 2008, Harbaugh was only the Ravens' third head coach in their 30-year existence. `\
-https://nytimes.com/athletic/6926231/2026/01/06/ravens-john-harbaugh-fired/
-
-**‘Greenland Belongs to Its People,’ European Lawmakers Say**\
-`European leaders and Greenland residents respond to President Trump’s renewed threats to seize Greenland.`\
-https://nytimes.com/video/world/europe/100000010627753/greenland-europe-reacts-to-trump.html
-
-**Lions fire John Morton after one season as offensive coordinator**\
-`Lions coach Dan Campbell took over play-calling responsibilities from John Morton in Week 10 and never gave them back.`\
-https://nytimes.com/athletic/6942499/2026/01/06/john-morton-fired-lions/
 
