@@ -1,3 +1,7 @@
+**Eagles LB Nakobe Dean expecting to return from injury vs. 49ers**\
+`Dean missed most of the playoffs last season with a devastating knee injury. `\
+https://nytimes.com/athletic/6946013/2026/01/06/nakobe-dean-return-injury-eagles-49ers/
+
 **What Trump Wants in Venezuela**\
 `The journalist Jonathan Blitzer explains the various interests and factions at play in the Trump administration’s strike against Venezuela.`\
 https://nytimes.com/video/opinion/100000010624474/what-trump-wants-in-venezuela.html
