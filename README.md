@@ -1,36 +1,40 @@
+**Tiger Woods, Rory McIlroy launching WTGL women's golf league next winter**\
+`The WTGL will be a separate league from TGL, featuring teams of prominent female golfers.`\
+https://nytimes.com/athletic/6946367/2026/01/06/wtgl-launch-lpga-indoor-golf/
+
+**Rubio Helped Oust Maduro. Running Venezuela May Prove Trickier.**\
+`The secretary of state helped steer President Trump to attacking Venezuela and seizing Nicolás Maduro, and now aims to force the country to give U.S. companies access to its oil.`\
+https://nytimes.com/2026/01/06/us/politics/rubio-venezuela-future.html
+
+**Virginia State Legislature Special Election Results**\
+`Get live results from the 2026 Virginia special state legislature elections.`\
+https://nytimes.com/interactive/2026/01/06/us/elections/results-virginia-special-election.html
+
+**Arkansas Special Primary Election Results**\
+`Get live results from the 2026 Arkansas special primary elections.`\
+https://nytimes.com/interactive/2026/01/06/us/elections/results-arkansas-special-primary.html
+
+**Maduro Invokes Prisoner-of-War Status, Echoing Panama’s Noriega**\
+`The argument worked for Manuel Antonio Noriega, who wore a uniform at trial and received special P.O.W. privileges after his conviction.`\
+https://nytimes.com/2026/01/06/us/politics/maduro-prisoner-of-war-noriega.html
+
+**Playing for the enemy: Ex-Texas WR Livingstone commits to rival Oklahoma**\
+`Livingstone, Arch Manning’s roommate at Texas, hauled in 29 catches for 516 yards and six touchdowns in his second season with the program.`\
+https://nytimes.com/athletic/6946399/2026/01/06/texas-parker-livingstone-transfer-oklahoma/
+
+**Connecticut State House District 25 Special Election Results**\
+`Get live results from the 2026 Connecticut special election.`\
+https://nytimes.com/interactive/2026/01/06/us/elections/results-connecticut-state-house-district-25-special.html
+
+**Georgia State House District 23 Special Election Results**\
+`Get live results from the 2026 Georgia special election.`\
+https://nytimes.com/interactive/2026/01/06/us/elections/results-georgia-state-house-district-23-special.html
+
+**South Carolina State House District 98 Special Election Results**\
+`Get live results from the 2026 South Carolina special election.`\
+https://nytimes.com/interactive/2026/01/06/us/elections/results-south-carolina-state-house-district-98-special.html
+
 **Five Years On, Trump Keeps Pushing Jan. 6 Conspiracies**\
 `President Trump is still sowing doubt about the integrity of America’s elections. The claims could affect this year’s midterms.`\
 https://nytimes.com/2026/01/06/us/trump-impeachment-election-conspiracies.html
-
-**The Unanswered Questions About Venezuela’s Environmental Future**\
-`The Trump administration has made no secret that it covets Venezuela’s oil reserves. What happens next could have serious implications for the planet.`\
-https://nytimes.com/2026/01/06/climate/the-unanswered-questions-about-venezuelas-environmental-future.html
-
-**Does the World Need More Oil From Venezuela?**\
-`The country could, eventually, attract investment and re-emerge as a force in the oil markets, but many analysts are concerned about an oversupply.`\
-https://nytimes.com/2026/01/06/business/venezuela-oil-supply.html
-
-**AIG’s Chief Is Stepping Down in Latest Executive Reshuffling**\
-`The announcement that Peter Zaffino would step down as chief executive in June and become executive chairman sent the insurer’s stock tumbling.`\
-https://nytimes.com/2026/01/06/business/peter-zuffino-aig-corporate-changes.html
-
-**Caltech, a Science Powerhouse, Hires a Communicator as Its New President**\
-`Ray Jayawardhana, the incoming president, is an astrophysicist, but leaders at the California Institute of Technology also praised his credentials as a communicator at a time when science is under attack.`\
-https://nytimes.com/2026/01/06/us/caltech-jayawardhana-new-president.html
-
-**Readers Pick the Songs That Defined Their 2025**\
-`Stories behind tracks by Fontaines D.C., Beyoncé, Nina Simone and more.`\
-https://nytimes.com/2026/01/06/arts/music/readers-songs-2025.html
-
-**Clayton Kershaw is top studio target for NBC's MLB coverage: Sources**\
-`Joey Votto is another ex-star that networks are high on this offseason.`\
-https://nytimes.com/athletic/6946207/2026/01/06/clayton-kershaw-nbc-peacock-mlb/
-
-**After a Bitterly Cold Start to the Year, U.K. Faces More Snow This Week**\
-`Forecasters warned that Storm Goretti could bring significant travel disruptions.`\
-https://nytimes.com/2026/01/06/weather/storm-goretti-uk-forecast.html
-
-**Iran Says It’s Investigating Violence at Weekend Protests**\
-`Rights groups accuse security forces of killing protesters and storming a hospital in the province of Ilam. State media claimed that some protesters were armed.`\
-https://nytimes.com/2026/01/06/world/middleeast/iran-protests-violence.html
 
