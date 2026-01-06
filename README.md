@@ -1,3 +1,19 @@
+**West Ham vs Forest: Where does Nuno stand? Why has form dipped under Dyche?**\
+`Both managers have been struggling for results recently as their teams meet at the London Stadium. Our writers discuss the talking points`\
+https://nytimes.com/athletic/6942250/2026/01/06/west-ham-nottingham-forest-nuno-dyche/
+
+**Maduro’s Gesture Was Not Just a Peace Sign**\
+`The captured authoritarian leader flashed a symbol that many took to be a defiant peace sign. Loyal lawmakers repeated the gesture at a session in Caracas.`\
+https://nytimes.com/2026/01/06/world/americas/maduro-gesture-peace-sign.html
+
+**Ratcliffe must own INEOS' error with Amorim - and fix the mess it's created**\
+`The United minority owner's recent insistence his head coach needed three years to prove himself was exposed as a fallacy`\
+https://nytimes.com/athletic/6943026/2026/01/06/ratcliffe-ineos-amorim-manchester-united-sack/
+
+**Nikola Jokić-less Nuggets beat Joel Embiid-led 76ers in surprising overtime victory**\
+`Against a relatively healthy Sixers team, Denver's deep bench saw an opportunity and took advantage of it.`\
+https://nytimes.com/athletic/6944483/2026/01/06/nuggets-beat-76ers-without-nikola-jokic/
+
 **The Alternative Premier League Table: No 21 – Defence-splitting through balls**\
 `It's one of the most aesthetically-pleasing passes in football – but which Premier League teams are good at making them?`\
 https://nytimes.com/athletic/6942270/2026/01/06/alternative-premier-league-table-through-balls/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/06/world/americas/machado-trump-fox-news.html
 **Amorim's Manchester United tenure in numbers: Unwanted records and unwelcome firsts**\
 `The Portuguese managed fewer wins than Moyes, despite being in charge for 12 more games, just one of the damning statistics from his reign`\
 https://nytimes.com/athletic/6942123/2026/01/06/ruben-amorim-manchester-united-numbers/
-
-**Venezuela Braces for Economic Collapse From U.S. Blockade**\
-`Venezuela could lose the bulk of its export revenues this year if the U.S. blockade stays in place, according to internal government estimates, a scenario that would set off a humanitarian crisis.`\
-https://nytimes.com/2026/01/06/world/americas/venezuela-us-blockade-economy-oil.html
-
-**Quote of the Day: Giving Shelter Dogs a Day in the Sun, and a Second Chance**\
-`Quotation of the Day for Tuesday, January 6, 2026.`\
-https://nytimes.com/2026/01/06/pageoneplus/quote-of-the-day-giving-shelter-dogs-a-day-in-the-sun-and-a-second-chance.html
-
-**Zelensky’s Assessment Darkens as Europeans Gather to Talk Peace**\
-`With Russia still seen as unlikely to stop fighting, the Ukrainian leader’s tone has shifted from upbeat to cautionary.`\
-https://nytimes.com/2026/01/06/world/europe/ukraine-peace-talks-coalition-of-the-willing.html
-
-**2025 NFL playoffs fantasy football rankings, formats, projections, strategies**\
-`Jake Ciely offers ways for managers to continue enjoying fantasy football during the NFL playoffs and his postseason player rankings.`\
-https://nytimes.com/athletic/6939868/2026/01/06/fantasy-football-nfl-playoffs-rankings-projections/
 
