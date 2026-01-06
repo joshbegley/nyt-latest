@@ -1,3 +1,23 @@
+**The Alternative Premier League Table: No 21 – Defence-splitting through balls**\
+`It's one of the most aesthetically-pleasing passes in football – but which Premier League teams are good at making them?`\
+https://nytimes.com/athletic/6942270/2026/01/06/alternative-premier-league-table-through-balls/
+
+**Premier League predictions: Arsenal vs Liverpool, West Ham vs Forest and rest of matchday 21**\
+`Who's leading after MD20? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 21?`\
+https://nytimes.com/athletic/6942104/2026/01/06/premier-league-predictions-matchday-21/
+
+**Serie A briefing: Fiorentina find form, Jonathan David still stutters - does he need lucky lentils?**\
+`Fiorentina are finally off the foot of the table after a second win. Plus: Juve's striker is still Canada Dry, and the title race shapes up`\
+https://nytimes.com/athletic/6942084/2026/01/06/serie-a-briefing-fiorentina-moise-kean-jonathan-david-lentils/
+
+**Declan Rice is Arsenal's all-action hero. He can be England's too**\
+`Rice has been a driving force for Arsenal. Thomas Tuchel can rely on the midfielder to perform a similar role with England at the World Cup`\
+https://nytimes.com/athletic/6942212/2026/01/06/declan-rice-arsenal-england-world-cup/
+
+**Venezuela’s Machado Praises Trump in Fox News Interview**\
+`María Corina Machado, the Venezuelan opposition leader, offered to share her Nobel Peace Prize with President Trump. He has refused to back her.`\
+https://nytimes.com/2026/01/06/world/americas/machado-trump-fox-news.html
+
 **Amorim's Manchester United tenure in numbers: Unwanted records and unwelcome firsts**\
 `The Portuguese managed fewer wins than Moyes, despite being in charge for 12 more games, just one of the damning statistics from his reign`\
 https://nytimes.com/athletic/6942123/2026/01/06/ruben-amorim-manchester-united-numbers/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/06/world/europe/ukraine-peace-talks-coalition-of-the
 **2025 NFL playoffs fantasy football rankings, formats, projections, strategies**\
 `Jake Ciely offers ways for managers to continue enjoying fantasy football during the NFL playoffs and his postseason player rankings.`\
 https://nytimes.com/athletic/6939868/2026/01/06/fantasy-football-nfl-playoffs-rankings-projections/
-
-**Connections: Sports Edition Coach: Hints for Jan. 6, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6943529/2026/01/06/connections-sports-edition-hints-for-jan-6-2026/
-
-**In China, a Debate About Political Power Ignites After Maduro’s Capture**\
-`The reactions online revealed a Chinese society divided: Some saw what happened in Venezuela as a playbook for seizing Taiwan, while others warned about ideological rigidity.`\
-https://nytimes.com/2026/01/06/business/venezuela-china-maduro.html
-
-**Corrections: Jan. 6, 2026**\
-`Corrections that appeared in print on Tuesday, Jan. 6, 2026.`\
-https://nytimes.com/2026/01/06/pageoneplus/corrections-jan-6-2026.html
-
-**At Refugee Camps, Most Birthdays Fall on New Year’s**\
-`When an exodus of Rohingya fled to Bangladesh a decade ago, the United Nations recorded many of their birthdays as Jan. 1. The date serves as a reminder of a lost identity.`\
-https://nytimes.com/2026/01/06/world/asia/rohingya-refugees-birthdays.html
-
-**Thunder's upset loss to Hornets marks sixth loss in last 12 games**\
-`Monday’s defeat was the  second time the defending NBA champions have lost back-to-back games.`\
-https://nytimes.com/athletic/6944326/2026/01/05/hornets-beat-thunder-score-takeaways/
 
