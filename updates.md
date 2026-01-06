@@ -1,3 +1,7 @@
+**How to watch Rams at Panthers: Wild Card Round Time, TV, streaming**\
+`Find out how to watch the Los Angeles Rams play the Carolina Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6943859/2026/01/05/rams-vs-panthers-stream-how-to-watch-jan-10/
+
 **Mamdani Targets Junk Fees and Hidden Charges in Two Executive Orders**\
 `Trying to protect consumers by going after deceptive business practices has been an early focus of the new mayor’s administration.`\
 https://nytimes.com/2026/01/05/nyregion/mamdani-affordability-consumer-protections.html
