@@ -1,3 +1,19 @@
+**Trae Young potential trade spots: Clippers? Wizards? Plus, four that don't line up**\
+`Atlanta seems ready to move on from the Trae Young era. Which teams make realistic trade partners — and which ones don't?`\
+https://nytimes.com/athletic/6943798/2026/01/06/nba-trade-trae-young-clippers-wizards-future/
+
+**Two-Tone Loafers and a Silver Crucifix**\
+`Eye-catching shoes and jewelry brought personality to wintry attire.`\
+https://nytimes.com/2026/01/06/style/street-style-look-two-tone-loafers.html
+
+**Leicester in talks to appoint Southampton's Goldie as technical director**\
+`The Championship club have held talks with the 40-year-old who was made director of group talent strategy at Sports Republic last year.`\
+https://nytimes.com/athletic/6945003/2026/01/06/leicester-city-transfers-director-southampton/
+
+**Evans to return to Man United on Fletcher's coaching staff**\
+`The 37-year-old spent six months as United's head of loans and pathways after ending his playing career last summer.`\
+https://nytimes.com/athletic/6944785/2026/01/06/jonny-evans-manchester-united-coach-return/
+
 **Jordan Stolz, Erin Jackson headline U.S. Olympic speed skating team**\
 `With Stolz and Jackson leading the way, the Americans could be poised for their strongest Olympic performance in years.`\
 https://nytimes.com/athletic/6944605/2026/01/06/us-olympics-speed-skating-team-jordan-stolz-erin-jackson/
