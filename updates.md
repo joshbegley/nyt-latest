@@ -1,3 +1,11 @@
+**After a Bitterly Cold Start to the Year, U.K. Faces More Snow This Week**\
+`Forecasters warned that Storm Goretti could bring significant travel disruptions.`\
+https://nytimes.com/2026/01/06/weather/storm-goretti-uk-forecast.html
+
+**Iran Says It’s Investigating Violence at Weekend Protests**\
+`Rights groups accuse security forces of killing protesters and storming a hospital in the province of Ilam. State media claimed that some protesters were armed.`\
+https://nytimes.com/2026/01/06/world/middleeast/iran-protests-violence.html
+
 **Eagles LB Nakobe Dean expecting to return from injury vs. 49ers**\
 `Dean missed most of the playoffs last season with a devastating knee injury. `\
 https://nytimes.com/athletic/6946013/2026/01/06/nakobe-dean-return-injury-eagles-49ers/
