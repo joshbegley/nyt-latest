@@ -1,3 +1,7 @@
+**Tamaleria La Madrina, Hampton Chutney and More Restaurant Openings**\
+`Feast on tamales and dosas in the first week of 2026.`\
+https://nytimes.com/2026/01/06/dining/nyc-restaurant-news.html
+
 **What Will Our Homes Look Like in 2026?**\
 `Experts are predicting a return to craft and focus on individuality.`\
 https://nytimes.com/2026/01/06/realestate/home-decor-trend-predictions-2026.html
