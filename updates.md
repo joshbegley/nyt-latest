@@ -1,3 +1,7 @@
+**Rangers place Adam Fox on LTIR, Igor Shesterkin on IR**\
+`Both injuries apparently came in Monday's overtime loss to Utah.`\
+https://nytimes.com/athletic/6943934/2026/01/06/rangers-igor-shesterkin-injury-adam-fox-ltir/
+
 **How to Stay Warm This Winter**\
 `Elevated takes on cold-weather essentials to get you through the season.`\
 https://nytimes.com/2026/01/06/t-magazine/how-to-stay-warm-winter-cold.html
