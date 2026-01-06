@@ -1,3 +1,15 @@
+**Anxiety. Relief. Uncertainty. For N.Y.C. Venezuelans, Emotions Collide.**\
+`Many celebrated the seizure of Nicolás Maduro. Others were clouded by uncertainty. And some wondered if they might find a path back to their homeland.`\
+https://nytimes.com/2026/01/06/nyregion/venezuelan-immigrants-nyc-maduro.html
+
+**Health Tips**\
+`What ideas do you have for feeling your best, both physically and mentally?`\
+https://nytimes.com/2026/01/06/learning/health-tips.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/06/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet: The latest on your club's transfer window plans**\
 `This is your weekly guide to the latest from the January transfer window`\
 https://nytimes.com/athletic/6942022/2026/01/06/transfer-latest-man-utd-arsenal-liverpool-real-madrid-antoine-semenyo/
