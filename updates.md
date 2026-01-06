@@ -1,3 +1,7 @@
+**Flyers sign Christian Dvorak to 5-year, $25.75 million contract extension**\
+`The Flyers locked up their current top-line center, who would have been a hot commodity on the trade market.`\
+https://nytimes.com/athletic/6944061/2026/01/05/christian-dvorak-flyers-contract-extension/
+
 **Steve Sheetz, Who Popularized Convenience Stores as a C.E.O., Dies at 77**\
 `Sheetz, a family-owned company that started with a single convenience store in Altoona, Pa., has more than 800 locations in seven states.`\
 https://nytimes.com/2026/01/05/obituaries/steve-sheetz-dead.html
