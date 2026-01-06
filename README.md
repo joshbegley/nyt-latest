@@ -1,3 +1,7 @@
+**Flyers sign Christian Dvorak to 5-year, $25.75 million contract extension**\
+`The Flyers locked up their current top-line center, who would have been a hot commodity on the trade market.`\
+https://nytimes.com/athletic/6944061/2026/01/05/christian-dvorak-flyers-contract-extension/
+
 **Steve Sheetz, Who Popularized Convenience Stores as a C.E.O., Dies at 77**\
 `Sheetz, a family-owned company that started with a single convenience store in Altoona, Pa., has more than 800 locations in seven states.`\
 https://nytimes.com/2026/01/05/obituaries/steve-sheetz-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/05/world/europe/trump-venezuela-china-russia.html
 **Rangers' Igor Shesterkin leaves game vs. Mammoth with apparent lower-body injury**\
 `Shesterkin had to be helped off the ice and into the locker room with about seven minutes left in the first period.`\
 https://nytimes.com/athletic/6943935/2026/01/05/igor-shesterkin-injury-rangers-mammoth/
-
-**The C.I.A. assessed Venezuela’s future without Maduro ahead of the U.S. operation.**\
-`The assessment aided President Trump and other officials in concluding that Delcy Rodriguez, then Venezuela’s vice president, was Nicolás Maduro’s best short-term successor, according to people briefed on the matter.`\
-https://nytimes.com/live/2026/01/05/world/venezuela-maduro-trump/venezuela-without-maduro-cia-intel-report
 
