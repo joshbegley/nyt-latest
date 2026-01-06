@@ -1,40 +1,40 @@
-**How to watch Oregon vs. USC women's basketball: Time, TV, streaming**\
-`Find out how to watch the Oregon Ducks play the USC Trojans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6946733/2026/01/06/oregon-vs-usc-stream-how-to-watch-jan-6/
+**The other vulgar bat knob card: Jim Nettles' 1990 Pacific #126**\
+`From 1989 to 1990 there was a strange number of profane bat knobs making it onto baseball cards. `\
+https://nytimes.com/athletic/6945936/2026/01/06/jim-nettles-error-card-bat-knob/
 
-**How to watch Bills at Jaguars: Wild Card Round Time, TV, streaming**\
-`Find out how to watch the Buffalo Bills play the Jacksonville Jaguars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6946728/2026/01/06/bills-vs-jaguars-stream-how-to-watch-jan-11/
+**Four candidates to replace Matt Eberflus as Cowboys defensive coordinator**\
+`History points to the Cowboys hiring a defensive coordinator who has head-coaching experience.`\
+https://nytimes.com/athletic/6946625/2026/01/06/cowboys-defensive-coordinator-search-candidates/
 
-**The 92-Year-Old Judge in the Maduro Case Must Step Aside**\
-`There is no simple procedural mechanism for lawyers, or the public, to challenge the fitness of judges.`\
-https://nytimes.com/2026/01/06/opinion/maduro-judge-hellerstein-age.html
+**How to watch Heat vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946827/2026/01/06/heat-vs-timberwolves-stream-how-to-watch-jan-6/
 
-**How to watch Iowa vs. Minnesota men's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa Hawkeyes play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6946689/2026/01/06/iowa-vs-minnesota-stream-how-to-watch-jan-6/
+**How to watch Predators vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946824/2026/01/06/predators-vs-oilers-stream-how-to-watch-jan-6/
 
-**How to watch Texas vs. Tennessee men's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Longhorns play the Tennessee Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6946686/2026/01/06/texas-vs-tennessee-stream-how-to-watch-jan-6/
+**Democrats Commemorate Jan. 6, Highlighting Trump’s Role**\
+`On Capitol Hill, Democrats spent the fifth anniversary of the riot forcefully rebutting the president’s attempts to rewrite the history of the attack, as he stepped up his false claims.`\
+https://nytimes.com/2026/01/06/us/politics/democrats-jan-6-milestone-trump.html
 
-**How to watch TCU vs. Kansas men's basketball: Time, TV, streaming**\
-`Find out how to watch the TCU Horned Frogs play the Kansas Jayhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6946680/2026/01/06/tcu-vs-kansas-stream-how-to-watch-jan-6/
+**How to watch Mavericks vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946815/2026/01/06/mavericks-vs-kings-stream-how-to-watch-jan-6/
 
-**How to watch Texas Tech vs. Houston men's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Tech Red Raiders play the Houston Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6946677/2026/01/06/texas-tech-vs-houston-stream-how-to-watch-jan-6/
+**How to watch Blue Jackets vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946810/2026/01/06/blue-jackets-vs-sharks-stream-how-to-watch-jan-6/
 
-**Chelsea fan survey: 90 per cent not confident in club's owners**\
-`The vote, which got nearly 4,000 responses, closed after Liam Rosenior arrived in London ahead of replacing Enzo Maresca as head coach`\
-https://nytimes.com/athletic/6946191/2026/01/06/chelsea-fans-no-confidence-hierarchy/
+**How to watch Lakers vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946802/2026/01/06/lakers-vs-pelicans-stream-how-to-watch-jan-6/
 
-**Blackhawks' Bedard disappointed not to make Olympics, puts onus on himself**\
-`The 20-year-old center was left off Team Canada's roster, and he is taking it in stride.`\
-https://nytimes.com/athletic/6946007/2026/01/06/connor-bedard-team-canada-olympics/
+**Funeral Held for Woman Killed in U.S. Strikes on Venezuela**\
+`The family of Rosa González held her funeral on Monday in Catia La Mar, Venezuela. Ms. González, 80, died from her injuries after U.S. airstrikes hit a three-story apartment complex early Saturday.`\
+https://nytimes.com/video/world/americas/100000010627172/venezuela-funeral-air-strikes-death.html
 
-**Tiger Woods, Rory McIlroy launching WTGL women's golf league next winter**\
-`The WTGL will be a separate league from TGL, featuring teams of prominent female golfers.`\
-https://nytimes.com/athletic/6946367/2026/01/06/wtgl-launch-lpga-indoor-golf/
+**How to watch Spurs vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946796/2026/01/06/spurs-vs-grizzlies-stream-how-to-watch-jan-6/
 
