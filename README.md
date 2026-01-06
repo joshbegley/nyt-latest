@@ -1,5 +1,25 @@
+**The 92-Year-Old Judge in the Maduro Case Must Step Aside**\
+`There is no simple procedural mechanism for lawyers, or the public, to challenge the fitness of judges.`\
+https://nytimes.com/2026/01/06/opinion/maduro-judge-hellerstein-age.html
+
+**How to watch Iowa vs. Minnesota men's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946689/2026/01/06/iowa-vs-minnesota-stream-how-to-watch-jan-6/
+
+**How to watch Texas vs. Tennessee men's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946686/2026/01/06/texas-vs-tennessee-stream-how-to-watch-jan-6/
+
+**How to watch TCU vs. Kansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the TCU Horned Frogs play the Kansas Jayhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946680/2026/01/06/tcu-vs-kansas-stream-how-to-watch-jan-6/
+
+**How to watch Texas Tech vs. Houston men's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Red Raiders play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946677/2026/01/06/texas-tech-vs-houston-stream-how-to-watch-jan-6/
+
 **Chelsea fan survey: 90 per cent not confident in club's owners**\
-`The vote closed after Liam Rosenior arrived in London ahead of replacing Enzo Maresca as head coach, and got nearly 4,000 responses.`\
+`The vote, which got nearly 4,000 responses, closed after Liam Rosenior arrived in London ahead of replacing Enzo Maresca as head coach`\
 https://nytimes.com/athletic/6946191/2026/01/06/chelsea-fans-no-confidence-hierarchy/
 
 **Blackhawks' Bedard disappointed not to make Olympics, puts onus on himself**\
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/06/us/politics/rubio-venezuela-future.html
 **Virginia State Legislature Special Election Results**\
 `Get live results from the 2026 Virginia special state legislature elections.`\
 https://nytimes.com/interactive/2026/01/06/us/elections/results-virginia-special-election.html
-
-**Arkansas Special Primary Election Results**\
-`Get live results from the 2026 Arkansas special primary elections.`\
-https://nytimes.com/interactive/2026/01/06/us/elections/results-arkansas-special-primary.html
-
-**Maduro Invokes Prisoner-of-War Status, Echoing Panama’s Noriega**\
-`The argument worked for Manuel Antonio Noriega, who wore a uniform at trial and received special P.O.W. privileges after his conviction.`\
-https://nytimes.com/2026/01/06/us/politics/maduro-prisoner-of-war-noriega.html
-
-**Playing for the enemy: Ex-Texas WR Livingstone commits to rival Oklahoma**\
-`Livingstone, Arch Manning’s roommate at Texas, hauled in 29 catches for 516 yards and six touchdowns in his second season with the program.`\
-https://nytimes.com/athletic/6946399/2026/01/06/texas-parker-livingstone-transfer-oklahoma/
-
-**Connecticut State House District 25 Special Election Results**\
-`Get live results from the 2026 Connecticut special election.`\
-https://nytimes.com/interactive/2026/01/06/us/elections/results-connecticut-state-house-district-25-special.html
-
-**Georgia State House District 23 Special Election Results**\
-`Get live results from the 2026 Georgia special election.`\
-https://nytimes.com/interactive/2026/01/06/us/elections/results-georgia-state-house-district-23-special.html
 
