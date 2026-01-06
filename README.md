@@ -1,14 +1,18 @@
+**Rubio Told Lawmakers Trump Wants to Buy Greenland**\
+`President Trump has said since his first term that he wants to acquire Greenland, and he asked aides for an updated plan on Monday. European leaders rejected the president’s assertions.`\
+https://nytimes.com/2026/01/06/us/politics/rubio-trump-greenland.html
+
 **The Trump administration covets Venezuela’s oil reserves, and the implications for the planet could be serious.**\
 `By David Gelles`\
 https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/the-trump-administration-covets-venezuelas-oil-reserves-and-the-implications-for-the-planet-could-be-serious
 
-**Fletcher 'asked for Ferguson's blessing' before taking United job**\
-`"I don't like to make any major decisions or things without speaking to Sir Alex," Fletcher said on Tuesday.`\
-https://nytimes.com/athletic/6944905/2026/01/06/darren-fletcher-sir-alex-ferguson-manchester-united/
-
 **Analysing Fletcher's Man Utd manifesto: Tactics, Neville criticisms and Ferguson's blessing**\
 `The new interim manager's inaugural press conference shed light on his likely approach at Burnley on Wednesday`\
 https://nytimes.com/athletic/6946862/2026/01/06/darren-fletcher-manchester-united-tactics-neville-ferguson/
+
+**Fletcher 'asked for Ferguson's blessing' before taking United job**\
+`"I don't like to make any major decisions or things without speaking to Sir Alex," Fletcher said on Tuesday.`\
+https://nytimes.com/athletic/6944905/2026/01/06/darren-fletcher-sir-alex-ferguson-manchester-united/
 
 **Judge Orders Trump Loyalist to Explain Why She Has Kept U.S. Attorney Title**\
 `The ruling was the most robust effort to date to press the prosecutor, Lindsey Halligan, on why she has continued to serve as the U.S. attorney, despite an order throwing out her appointment.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6942499/2026/01/06/john-morton-fired-lions/
 **The Players to Know in Venezuela’s Leadership**\
 `Since President Trump deposed Nicolás Maduro, his entrenched web of loyalists has appeared to remain intact. Here’s a look at some of the most influential.`\
 https://nytimes.com/2026/01/06/world/americas/venezeula-remaining-leadership-profiles.html
-
-**There Were Good Reasons to Depose Maduro**\
-`But taking Venezuela’s oil while leaving the regime in place weren’t among them.`\
-https://nytimes.com/2026/01/06/opinion/maduro-venezuela-oil.html
 
