@@ -1,3 +1,7 @@
+**Caltech, a Science Powerhouse, Hires a Communicator as Its New President**\
+`Ray Jayawardhana, the incoming president, is an astrophysicist, but leaders at the California Institute of Technology also praised his credentials as a communicator at a time when science is under attack.`\
+https://nytimes.com/2026/01/06/us/caltech-jayawardhana-new-president.html
+
 **Readers Pick the Songs That Defined Their 2025**\
 `Stories behind tracks by Fontaines D.C., Beyoncé, Nina Simone and more.`\
 https://nytimes.com/2026/01/06/arts/music/readers-songs-2025.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6945142/2026/01/06/nfl-overreactions-wild-card-pant
 **Skiers Make Mountaintop Tribute to Swiss Fire Victims**\
 `Hundreds of skiers gathered in Crans-Montana, Switzerland, to honor the 40 people killed and more than 100 injured in a New Years’s Day fire at a bar. The town’s mayor said the bar had not been inspected in several years.`\
 https://nytimes.com/video/world/europe/100000010626590/swiss-ski-fire-tribute-heart.html
-
-**Fighting Through the Ice, Without a Horizon as a Guide**\
-`The sea ice changed completely over the course of a few hours, from disconnected floes to a vast, snow-covered plain.`\
-https://nytimes.com/2026/01/06/climate/antarctica-navigating-sea-ice.html
 

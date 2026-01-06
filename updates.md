@@ -1,3 +1,7 @@
+**Caltech, a Science Powerhouse, Hires a Communicator as Its New President**\
+`Ray Jayawardhana, the incoming president, is an astrophysicist, but leaders at the California Institute of Technology also praised his credentials as a communicator at a time when science is under attack.`\
+https://nytimes.com/2026/01/06/us/caltech-jayawardhana-new-president.html
+
 **Readers Pick the Songs That Defined Their 2025**\
 `Stories behind tracks by Fontaines D.C., Beyoncé, Nina Simone and more.`\
 https://nytimes.com/2026/01/06/arts/music/readers-songs-2025.html
