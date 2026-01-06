@@ -1,3 +1,7 @@
+**Rosenior 'verbally agrees' to become Chelsea head coach**\
+`Rosenior called his 18 months with Strasbourg "the best of my professional career".`\
+https://nytimes.com/athletic/6941800/2026/01/06/liam-rosenior-verbally-agrees-to-become-new-chelsea-head-coach/
+
 **Anxiety. Relief. Uncertainty. For N.Y.C. Venezuelans, Emotions Collide.**\
 `Many celebrated the seizure of Nicolás Maduro. Others were clouded by uncertainty. And some wondered if they might find a path back to their homeland.`\
 https://nytimes.com/2026/01/06/nyregion/venezuelan-immigrants-nyc-maduro.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6943612/2026/01/06/australia-england-smith-head-ash
 **Word of the Day: abrogate**\
 `This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/06/learning/word-of-the-day-abrogate.html
-
-**Stephen Colbert Doubts Trump’s Ability to Run Two Countries at Once**\
-`“The Late Show” host said the president couldn’t possibly run two nations, because “he can’t even run.”`\
-https://nytimes.com/2026/01/06/arts/television/stephen-colbert-trump-venezuela.html
 
