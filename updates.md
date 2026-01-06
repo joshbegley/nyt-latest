@@ -1,3 +1,11 @@
+**Thunder's upset loss to Hornets marks sixth loss in last 12 games**\
+`Monday’s defeat was the  second time the defending NBA champions have lost back-to-back games.`\
+https://nytimes.com/athletic/6944326/2026/01/05/hornets-beat-thunder-score-takeaways/
+
+**Full Time: We planned your women’s soccer year**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6944429/2026/01/05/womens-soccer-2026-schedule-full-time/
+
 **World Juniors standouts and disappointments: How did the top prospects play?**\
 `There are plenty of things to take away from this tournament, particularly how 2026 prospects Gavin McKenna and Ivar Stenberg performed.`\
 https://nytimes.com/athletic/6942588/2026/01/05/world-juniors-gavin-mckenna-ivar-stenberg-top-prospects/
