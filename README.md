@@ -1,3 +1,15 @@
+**How to watch Duke vs. Louisville men's basketball: Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6945776/2026/01/06/duke-vs-louisville-stream-how-to-watch-jan-6/
+
+**How to watch Georgia vs. Florida men's basketball: Time, TV, streaming**\
+`Find out how to watch the Georgia Bulldogs play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6945773/2026/01/06/georgia-vs-florida-stream-how-to-watch-jan-6/
+
+**Honoring Roberta Flack’s Legacy, Despite Bias in Music**\
+`The luminary musician Roberta Flack was not in the 2004 edition of “The Rolling Stone Album Guide.” But on this episode of “Cannonball,” Wesley Morris, the host, makes the case for why she would be in an edition released today.`\
+https://nytimes.com/video/podcasts/100000010617258/honoring-roberta-flacks-legacy-despite-bias-in-music.html
+
 **The Story Behind Roberta Flack’s First Big Hit**\
 `In Roberta Flack’s song “The First Time Ever I Saw Your Face,” Black love is “rendered as a thing of the cosmos,” Daphne A. Brooks, a critic and scholar, says on “Cannonball.” What made the song famous is a different story.`\
 https://nytimes.com/video/podcasts/100000010617508/the-story-behind-roberta-flacks-first-big-hit.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/06/dining/five-weeknight-dishes-for-2026.html
 **Yang, Esse set for Coventry loan moves**\
 `The two players are set to join the Championship leaders for the second half of the season.`\
 https://nytimes.com/athletic/6945576/2026/01/06/yang-min-hyeok-romain-esse-coventry-loan/
-
-**Tom Izzo 'ticked off' with former MSU player Paul Davis after ejection**\
-`Izzo's 750th win was overshadowed by the interaction between Davis and a referee.`\
-https://nytimes.com/athletic/6945130/2026/01/06/tom-izzo-michigan-state-paul-davis-ejection/
-
-**Are these roller-coaster NHL teams for real?**\
-`Plus: We need to talk about the Western Conference.`\
-https://nytimes.com/athletic/6945419/2026/01/06/nhl-roller-coaster-teams-red-light/
-
-**The Bounce: Trae Young's tricky trade market, and his tumultuous Hawks timeline**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6945579/2026/01/06/trae-young-trade-nba-the-bounce/
 

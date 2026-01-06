@@ -1,3 +1,11 @@
+**The Story Behind Roberta Flack’s First Big Hit**\
+`In Roberta Flack’s song “The First Time Ever I Saw Your Face,” Black love is “rendered as a thing of the cosmos,” Daphne A. Brooks, a critic and scholar, says on “Cannonball.” What made the song famous is a different story.`\
+https://nytimes.com/video/podcasts/100000010617508/the-story-behind-roberta-flacks-first-big-hit.html
+
+**The Quiet Power of Roberta Flack**\
+`Wesley Morris, a critic for The New York Times, says there’s a secret power within Roberta Flack’s “Killing Me Softly With His Song”: a rest. He dissects that bit of musical silence on his show, “Cannonball.”`\
+https://nytimes.com/video/podcasts/100000010620555/the-quiet-power-of-roberta-flack.html
+
 **How the Canucks can maximize their return in a Kiefer Sherwood trade**\
 `Finding a way to get a first-round pick or equivalent value for Sherwood is a significant test for the Canucks.`\
 https://nytimes.com/athletic/6944626/2026/01/06/canucks-kiefer-sherwood-trade-draft-picks/

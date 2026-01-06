@@ -1,3 +1,11 @@
+**The Story Behind Roberta Flack’s First Big Hit**\
+`In Roberta Flack’s song “The First Time Ever I Saw Your Face,” Black love is “rendered as a thing of the cosmos,” Daphne A. Brooks, a critic and scholar, says on “Cannonball.” What made the song famous is a different story.`\
+https://nytimes.com/video/podcasts/100000010617508/the-story-behind-roberta-flacks-first-big-hit.html
+
+**The Quiet Power of Roberta Flack**\
+`Wesley Morris, a critic for The New York Times, says there’s a secret power within Roberta Flack’s “Killing Me Softly With His Song”: a rest. He dissects that bit of musical silence on his show, “Cannonball.”`\
+https://nytimes.com/video/podcasts/100000010620555/the-quiet-power-of-roberta-flack.html
+
 **How the Canucks can maximize their return in a Kiefer Sherwood trade**\
 `Finding a way to get a first-round pick or equivalent value for Sherwood is a significant test for the Canucks.`\
 https://nytimes.com/athletic/6944626/2026/01/06/canucks-kiefer-sherwood-trade-draft-picks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6945419/2026/01/06/nhl-roller-coaster-teams-red-lig
 **The Bounce: Trae Young's tricky trade market, and his tumultuous Hawks timeline**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6945579/2026/01/06/trae-young-trade-nba-the-bounce/
-
-**Submit your Michigan Wolverines questions for Austin Meek’s mailbag**\
-`What's on your mind as the Kyle Whittingham era begins and the men's basketball team takes aim at a national title run?`\
-https://nytimes.com/athletic/6945546/2026/01/06/michigan-football-basketball-whittingham-mailbag-questions/
-
-**Can You Optimize Love?**\
-`A group of tech executives, app developers and Silicon Valley philosophers is seeking to streamline the messy matters of the heart.`\
-https://nytimes.com/2026/01/06/style/love-symposium-artificial-intelligence-keeper.html
 
