@@ -1,3 +1,15 @@
+**Five Years On, Trump Keeps Pushing Jan. 6 Conspiracies**\
+`President Trump is still sowing doubt about the integrity of America’s elections. The claims could affect this year’s midterms.`\
+https://nytimes.com/2026/01/06/us/trump-impeachment-election-conspiracies.html
+
+**The Unanswered Questions About Venezuela’s Environmental Future**\
+`The Trump administration has made no secret that it covets Venezuela’s oil reserves. What happens next could have serious implications for the planet.`\
+https://nytimes.com/2026/01/06/climate/the-unanswered-questions-about-venezuelas-environmental-future.html
+
+**Does the World Need More Oil From Venezuela?**\
+`The country could, eventually, attract investment and re-emerge as a force in the oil markets, but many analysts are concerned about an oversupply.`\
+https://nytimes.com/2026/01/06/business/venezuela-oil-supply.html
+
 **AIG’s Chief Is Stepping Down in Latest Executive Reshuffling**\
 `The announcement that Peter Zaffino would step down as chief executive in June and become executive chairman sent the insurer’s stock tumbling.`\
 https://nytimes.com/2026/01/06/business/peter-zuffino-aig-corporate-changes.html
@@ -21,16 +33,4 @@ https://nytimes.com/2026/01/06/weather/storm-goretti-uk-forecast.html
 **Iran Says It’s Investigating Violence at Weekend Protests**\
 `Rights groups accuse security forces of killing protesters and storming a hospital in the province of Ilam. State media claimed that some protesters were armed.`\
 https://nytimes.com/2026/01/06/world/middleeast/iran-protests-violence.html
-
-**Eagles LB Nakobe Dean expecting to return from injury vs. 49ers**\
-`Dean missed most of the playoffs last season with a devastating knee injury. `\
-https://nytimes.com/athletic/6946013/2026/01/06/nakobe-dean-return-injury-eagles-49ers/
-
-**What Trump Wants in Venezuela**\
-`The journalist Jonathan Blitzer explains the various interests and factions at play in the Trump administration’s strike against Venezuela.`\
-https://nytimes.com/video/opinion/100000010624474/what-trump-wants-in-venezuela.html
-
-**NFL overreactions: Panthers are a safe bet as big underdog**\
-`Toby Mergler gives his picks for this weekend's NFL wild-card playoff round.`\
-https://nytimes.com/athletic/6945142/2026/01/06/nfl-overreactions-wild-card-panthers-underdogs/
 
