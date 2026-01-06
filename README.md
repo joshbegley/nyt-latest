@@ -1,3 +1,11 @@
+**Why Trump Refused to Back Venezuela’s Machado: Fears of Chaos, and Fraying Ties**\
+`U.S. intelligence suggested María Corina Machado, Venezuela’s opposition leader, would struggle to lead the government. But her relationship with Trump officials had been souring for months.`\
+https://nytimes.com/2026/01/05/us/politics/trump-venezuela-machado.html
+
+**Venezuela Detained and Deported Members of the Foreign Press**\
+`Military officers detained 14 members of the news media during a National Assembly session. All were released after officials searched their phones. One was deported from the country.`\
+https://nytimes.com/2026/01/05/world/americas/venezuela-journalists-detained.html
+
 **Tatsuya Imai is the Astros' first major splash in Asia. He will not be the last.**\
 `After introducing Imai, Houston's owner is "laser-focused" on signing more players from what he called a "kind of untapped" market.`\
 https://nytimes.com/athletic/6943840/2026/01/05/tatsuya-imai-astros-jim-crane-asia/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6943680/2026/01/05/ravens-john-harbaugh-expectation
 **How to watch Rams at Panthers: Wild Card Round Time, TV, streaming**\
 `Find out how to watch the Los Angeles Rams play the Carolina Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6943859/2026/01/05/rams-vs-panthers-stream-how-to-watch-jan-10/
-
-**Mamdani Targets Junk Fees and Hidden Charges in Two Executive Orders**\
-`Trying to protect consumers by going after deceptive business practices has been an early focus of the new mayor’s administration.`\
-https://nytimes.com/2026/01/05/nyregion/mamdani-affordability-consumer-protections.html
-
-**Buccaneers' Todd Bowles makes case to return, points to 3 NFC South titles**\
-`Bowles said he had yet to meet with Tampa Bay ownership on Monday, but a meeting with the Glazer family is scheduled for this week.`\
-https://nytimes.com/athletic/6943498/2026/01/05/todd-bowles-buccaneers-coaching-future/
 
