@@ -1,3 +1,7 @@
+**What Will Our Homes Look Like in 2026?**\
+`Experts are predicting a return to craft and focus on individuality.`\
+https://nytimes.com/2026/01/06/realestate/home-decor-trend-predictions-2026.html
+
 **How to watch Canucks vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6945806/2026/01/06/canucks-vs-sabres-stream-how-to-watch-jan-6/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/06/books/venezuelan-opposition-leader-book.html
 **How to watch Michigan vs. Penn State men's basketball: Time, TV, streaming**\
 `Find out how to watch the Michigan Wolverines play the Penn State Nittany Lions, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6945783/2026/01/06/michigan-vs-penn-state-stream-how-to-watch-jan-6/
-
-**Homeland Security Steps Up Enforcement in Minneapolis**\
-`Kristi Noem, the homeland security secretary, posted a video showing an immigration arrest being made as part of the administration’s announced crackdown.`\
-https://nytimes.com/2026/01/06/us/politics/homeland-security-minneapolis-immigration.html
 
