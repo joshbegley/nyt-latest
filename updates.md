@@ -1,3 +1,19 @@
+**Jordan Stolz, Erin Jackson headline U.S. Olympic speed skating team**\
+`With Stolz and Jackson leading the way, the Americans could be poised for their strongest Olympic performance in years.`\
+https://nytimes.com/athletic/6944605/2026/01/06/us-olympics-speed-skating-team-jordan-stolz-erin-jackson/
+
+**The Rush to Profit From Maduro’s Capture**\
+`Trump administration officials are pushing American companies to quickly start investing in Venezuela. But energy giants have some major concerns.`\
+https://nytimes.com/2026/01/06/business/dealbook/venezuela-trump-oil-chevron.html
+
+**Can Venezuela’s New Leader Keep the U.S. Happy and Her Elites in Line?**\
+`As the country’s status quo abruptly shifts, experts say maintaining a coalition is crucial for political survival.`\
+https://nytimes.com/2026/01/06/world/americas/venezuela-leader-elites.html
+
+**Paris Opera Takes On a Noted Conductor, Aiming to Expand Its Symphonic Offerings**\
+`Semyon Bychkov will be the musical director for a period when the opera’s performance spaces are under renovation. It’s a chance to add symphonic seasons like at La Scala.`\
+https://nytimes.com/2026/01/06/arts/music/paris-opera-semyon-bychkov.html
+
 **Can Venezuela’s New Leader Keep the U.S. Happy and Her Elites in Line?**\
 `As the country’s status quo abruptly shifts, experts say maintaining a coalition is crucial for political survival.`\
 https://nytimes.com/2026/01/06/world/can-venezuelanew-leader-keep-the-us-happy-and-her-elites-in-line.html
