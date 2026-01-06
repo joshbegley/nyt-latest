@@ -1,3 +1,15 @@
+**Cowboys fire Matt Eberflus, search for another defensive coordinator begins: Source**\
+`The Cowboys had one of the league's worst defenses in Brian Schottenheimer's first season as head coach.`\
+https://nytimes.com/athletic/6933799/2026/01/06/matt-eberflus-fired-cowboys/
+
+**Gee-West joins Lidl-Trek on three-year deal after IPT transfer saga**\
+`The climber sent his previous cycling team a notice of termination due to “serious concerns from a safety and personal-belief standpoint".`\
+https://nytimes.com/athletic/6945154/2026/01/06/derek-gee-west-cycling-transfer-lidl-trek-ipt/
+
+**Syria and Israel Revive Security Talks Mediated by the U.S.**\
+`The talks, in Paris, are the latest effort to reduce tensions between two longstanding enemies. A deal would help both curry favor with the Trump administration.`\
+https://nytimes.com/2026/01/06/world/middleeast/syria-israel-us-talks-paris.html
+
 **Trae Young potential trade spots: Clippers? Wizards? Plus, four that don't line up**\
 `Atlanta seems ready to move on from the Trae Young era. Which teams make realistic trade partners — and which ones don't?`\
 https://nytimes.com/athletic/6943798/2026/01/06/nba-trade-trae-young-clippers-wizards-future/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/06/business/dealbook/venezuela-trump-oil-chevron.htm
 **What makes Chargers' Justin Herbert the most 'mentally tough dude of all time'**\
 `“There’s something in his competitive fire,” coach Jim Harbaugh said earlier this season, “it motivates him even more.”`\
 https://nytimes.com/athletic/6943851/2026/01/06/chargers-justin-herbert-mentally-tough-nfl-playoffs/
-
-**Trump Administration Live Updates: U.S. Marks Fifth Anniversary of Jan. 6 Attack**\
-``\
-https://nytimes.com/live/2026/01/06/us/trump-news
-
-**Can Venezuela’s New Leader Keep the U.S. Happy and Her Elites in Line?**\
-`As the country’s status quo abruptly shifts, experts say maintaining a coalition is crucial for political survival.`\
-https://nytimes.com/2026/01/06/world/americas/venezuela-leader-elites.html
-
-**Paris Opera Takes On a Noted Conductor, Aiming to Expand Its Symphonic Offerings**\
-`Semyon Bychkov will be the musical director for a period when the opera’s performance spaces are under renovation. It’s a chance to add symphonic seasons like at La Scala.`\
-https://nytimes.com/2026/01/06/arts/music/paris-opera-semyon-bychkov.html
 
