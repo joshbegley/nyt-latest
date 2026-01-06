@@ -1,3 +1,7 @@
+**How to watch Rams at Panthers: Wild Card Round Time, TV, streaming**\
+`Find out how to watch the Los Angeles Rams play the Carolina Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6943859/2026/01/05/rams-vs-panthers-stream-how-to-watch-jan-10/
+
 **Mamdani Targets Junk Fees and Hidden Charges in Two Executive Orders**\
 `Trying to protect consumers by going after deceptive business practices has been an early focus of the new mayor’s administration.`\
 https://nytimes.com/2026/01/05/nyregion/mamdani-affordability-consumer-protections.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/05/world/americas/venezuela-oil-industry-canada.html
 **What to Know About the New Childhood Vaccine Schedule**\
 `The U.S. federal government slashed the number of diseases that all children are advised to be vaccinated against to 11 from 17.`\
 https://nytimes.com/2026/01/05/well/childhood-vaccine-schedule-cdc-changes.html
-
-**David R. Young, 89, Is Dead; Nixon Aide Steered the Watergate ‘Plumbers’**\
-`He took part in White House machinations to stop damning leaks of classified information and directed the break-in at the Democrats’ headquarters that undid a presidency.`\
-https://nytimes.com/2026/01/05/us/david-r-young-dead.html
 
