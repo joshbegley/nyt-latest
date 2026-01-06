@@ -1,8 +1,16 @@
+**Why Israel Is Divided Over How to Investigate Oct. 7 Failures**\
+`Prime Minister Benjamin Netanyahu has proposed a commission with members chosen in a way that departs from existing law.`\
+https://nytimes.com/2026/01/06/world/middleeast/israel-october-7-commission.html
+
+**Walz Drops Re-Election Bid as Minnesota Fraud Scandal Grows**\
+`Governor Tim Walz of Minnesota abandoned his re-election bid to focus on handling a scandal over fraud in social service programs that grew under his administration.`\
+https://nytimes.com/video/us/politics/100000010626077/tim-walz-governor-minnesota.html
+
 **How the ‘Donroe Doctrine’ Reinforces Xi’s Vision of Power in Asia**\
 `The U.S. assault on Venezuela points to a world where big powers seek to call the shots in their regions, an idea Beijing knows well.`\
 https://nytimes.com/2026/01/06/world/asia/venezuela-china-trump-taiwan.html
 
-**Rosenior 'verbally agrees' to become Chelsea head coach**\
+**Rosenior confirms he has agreed to be Chelsea's next head coach**\
 `Rosenior called his 18 months with Strasbourg "the best of my professional career".`\
 https://nytimes.com/athletic/6941800/2026/01/06/liam-rosenior-verbally-agrees-to-become-new-chelsea-head-coach/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6942339/2026/01/06/ruben-amorim-sacked-manchester-u
 **FPL live Q&A: Gameweek 21 advice from Ben Dinnery**\
 `Ben Dinnery of premierinjuries.com is on hand to offer his expert advice to give you the best chance of success ahead of the mid-week games`\
 https://nytimes.com/athletic/6942737/2026/01/06/fantasy-premier-league-live-qa-gameweek-21-advice-tips/
-
-**The Transfer DealSheet: The latest on your club's transfer window plans**\
-`This is your weekly guide to the latest from the January transfer window`\
-https://nytimes.com/athletic/6942022/2026/01/06/transfer-latest-man-utd-arsenal-liverpool-real-madrid-antoine-semenyo/
-
-**The Ashes Briefing: Australia grind England down in the Sydney sun as Smith joins the party**\
-`The home side have amassed an imposing lead with wickets still in hand as their captain and Travis Head scored hundreds on Jane McGrath Day`\
-https://nytimes.com/athletic/6943612/2026/01/06/australia-england-smith-head-ashes-briefing/
 

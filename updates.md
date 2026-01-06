@@ -1,3 +1,7 @@
+**How the ‘Donroe Doctrine’ Reinforces Xi’s Vision of Power in Asia**\
+`The U.S. assault on Venezuela points to a world where big powers seek to call the shots in their regions, an idea Beijing knows well.`\
+https://nytimes.com/2026/01/06/world/asia/venezuela-china-trump-taiwan.html
+
 **Rosenior 'verbally agrees' to become Chelsea head coach**\
 `Rosenior called his 18 months with Strasbourg "the best of my professional career".`\
 https://nytimes.com/athletic/6941800/2026/01/06/liam-rosenior-verbally-agrees-to-become-new-chelsea-head-coach/
