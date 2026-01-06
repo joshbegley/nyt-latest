@@ -1,3 +1,11 @@
+**Why are Colts running it back? Owner believes first-half success was sign of what's to come**\
+`Carlie Irsay-Gordon: "Even though we didn't get the results we expected, I'm confident in what we're building and how we're building it.”`\
+https://nytimes.com/athletic/6944145/2026/01/05/colts-chris-ballard-carlie-irsay-gordon-shane-steichen-run-it-back/
+
+**James Dolan: Knicks' current roster is good enough to win title this season**\
+`Dolan believes “this is the team” and that the 12 current players on the roster are good enough to win it all.`\
+https://nytimes.com/athletic/6944016/2026/01/05/james-dolan-knicks-comments-nba-thibodeau/
+
 **Alabama lands No. 1 RB in portal: Can Hollywood Smothers fix Tide's run game?**\
 `Alabama failed to reach 30 rushing yards in any of its final three games of the 2025-26 season.`\
 https://nytimes.com/athletic/6944116/2026/01/05/alabama-hollywood-smothers-transfer-portal/
