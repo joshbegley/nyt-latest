@@ -1,4 +1,8 @@
-**Rubio Told Lawmakers Trump Wants to Buy Greenland**\
+**Ex-Turning Point Leader Gets Probation After Forging Voters’ Names**\
+`Austin Smith resigned from the group founded by Charlie Kirk and suspended his bid for re-election to the Arizona House in 2024.`\
+https://nytimes.com/2026/01/06/us/austin-smith-forgery-turning-point-arizona.html
+
+**Rubio Tells Lawmakers Trump Wants to Buy Greenland**\
 `President Trump has said since his first term that he wants to acquire Greenland, and he asked aides for an updated plan on Monday. European leaders rejected the president’s assertions.`\
 https://nytimes.com/2026/01/06/us/politics/rubio-trump-greenland.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010627753/greenland-europe-reacts-t
 **Lions fire John Morton after one season as offensive coordinator**\
 `Lions coach Dan Campbell took over play-calling responsibilities from John Morton in Week 10 and never gave them back.`\
 https://nytimes.com/athletic/6942499/2026/01/06/john-morton-fired-lions/
-
-**The Players to Know in Venezuela’s Leadership**\
-`Since President Trump deposed Nicolás Maduro, his entrenched web of loyalists has appeared to remain intact. Here’s a look at some of the most influential.`\
-https://nytimes.com/2026/01/06/world/americas/venezeula-remaining-leadership-profiles.html
 
