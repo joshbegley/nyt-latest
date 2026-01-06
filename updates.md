@@ -1,3 +1,11 @@
+**Sweden holds off Czechia to win first World Junior gold since 2012**\
+`The Swedes, so often a silver medalist at the World Juniors, finally have another gold medal moment.`\
+https://nytimes.com/athletic/6942616/2026/01/05/sweden-world-juniors-gold-czechia-canada/
+
+**Stephen Miller Asserts U.S. Has Right to Take Greenland**\
+`In a CNN interview, the top Trump aide also echoed the president’s intent to run Venezuela as he laid out a case for the United States’ controlling weaker states by flexing its military might.`\
+https://nytimes.com/2026/01/05/us/politics/stephen-miller-greenland-venezuela.html
+
 **Splendid Serve**\
 `One way or another, you’ll solve Paul Coulter’s crossword.`\
 https://nytimes.com/2026/01/05/crosswords/daily-puzzle-2025-01-06.html
