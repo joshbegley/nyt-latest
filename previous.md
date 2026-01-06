@@ -1,3 +1,7 @@
+**AIG’s Chief Is Stepping Down in Latest Executive Reshuffling**\
+`The announcement that Peter Zaffino would step down as chief executive in June and become executive chairman sent the insurer’s stock tumbling.`\
+https://nytimes.com/2026/01/06/business/peter-zuffino-aig-corporate-changes.html
+
 **Caltech, a Science Powerhouse, Hires a Communicator as Its New President**\
 `Ray Jayawardhana, the incoming president, is an astrophysicist, but leaders at the California Institute of Technology also praised his credentials as a communicator at a time when science is under attack.`\
 https://nytimes.com/2026/01/06/us/caltech-jayawardhana-new-president.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/opinion/100000010624474/what-trump-wants-in-venezuela.
 **NFL overreactions: Panthers are a safe bet as big underdog**\
 `Toby Mergler gives his picks for this weekend's NFL wild-card playoff round.`\
 https://nytimes.com/athletic/6945142/2026/01/06/nfl-overreactions-wild-card-panthers-underdogs/
-
-**Skiers Make Mountaintop Tribute to Swiss Fire Victims**\
-`Hundreds of skiers gathered in Crans-Montana, Switzerland, to honor the 40 people killed and more than 100 injured in a New Years’s Day fire at a bar. The town’s mayor said the bar had not been inspected in several years.`\
-https://nytimes.com/video/world/europe/100000010626590/swiss-ski-fire-tribute-heart.html
 

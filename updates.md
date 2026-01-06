@@ -1,3 +1,7 @@
+**AIG’s Chief Is Stepping Down in Latest Executive Reshuffling**\
+`The announcement that Peter Zaffino would step down as chief executive in June and become executive chairman sent the insurer’s stock tumbling.`\
+https://nytimes.com/2026/01/06/business/peter-zuffino-aig-corporate-changes.html
+
 **Caltech, a Science Powerhouse, Hires a Communicator as Its New President**\
 `Ray Jayawardhana, the incoming president, is an astrophysicist, but leaders at the California Institute of Technology also praised his credentials as a communicator at a time when science is under attack.`\
 https://nytimes.com/2026/01/06/us/caltech-jayawardhana-new-president.html
