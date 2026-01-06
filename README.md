@@ -1,3 +1,7 @@
+**Steve Sheetz, Who Popularized Convenience Stores as a C.E.O., Dies at 77**\
+`Sheetz, a family-owned company that started with a single convenience store in Altoona, Pa., has more than 800 locations in seven states.`\
+https://nytimes.com/2026/01/05/obituaries/steve-sheetz-dead.html
+
 **How to watch Packers at Bears: Wild Card Round Time, TV, streaming**\
 `Find out how to watch the Green Bay Packers play the Chicago Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6944025/2026/01/05/packers-vs-bears-stream-how-to-watch-jan-10/
@@ -30,11 +34,7 @@ https://nytimes.com/2026/01/05/world/europe/trump-venezuela-china-russia.html
 `Shesterkin had to be helped off the ice and into the locker room with about seven minutes left in the first period.`\
 https://nytimes.com/athletic/6943935/2026/01/05/igor-shesterkin-injury-rangers-mammoth/
 
-**C.I.A. Assessed Venezuela’s Future Without Maduro Ahead of U.S. Operation**\
+**The C.I.A. assessed Venezuela’s future without Maduro ahead of the U.S. operation.**\
 `The assessment aided President Trump and other officials in concluding that Delcy Rodriguez, then Venezuela’s vice president, was Nicolás Maduro’s best short-term successor, according to people briefed on the matter.`\
 https://nytimes.com/live/2026/01/05/world/venezuela-maduro-trump/venezuela-without-maduro-cia-intel-report
-
-**Why Trump Refused to Back Venezuela’s Machado: Fears of Chaos, and Fraying Ties**\
-`U.S. intelligence suggested María Corina Machado, Venezuela’s opposition leader, would struggle to lead the government. But her relationship with Trump officials had been souring for months.`\
-https://nytimes.com/2026/01/05/us/politics/trump-venezuela-machado.html
 
