@@ -1,3 +1,7 @@
+**The Alternative Premier League Table: No 21 – Defence-splitting through balls**\
+`It's one of the most aesthetically-pleasing passes in football – but which Premier League teams are good at making them?`\
+https://nytimes.com/athletic/6942270/2026/01/06/alternative-premier-league-table-through-balls/
+
 **Health Dept. to Freeze $10 Billion in Funding to 5 Democratic States**\
 `The funding pause could jeopardize child care and other programs that serve hundreds of thousands of households in California, Colorado, Illinois, Minnesota and New York.`\
 https://nytimes.com/2026/01/06/us/politics/child-care-funding-cuts-trump.html

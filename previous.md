@@ -14,10 +14,6 @@ https://nytimes.com/issue/todayspaper/2026/01/06/todays-new-york-times
 `After continuing to yell for another few seconds, the Warriors coach turned around and walked back to the locker room.`\
 https://nytimes.com/athletic/6944559/2026/01/06/steve-kerr-ejected-warriors-clippers-game-arguing-officials/
 
-**Victor Osimhen, Ademola Lookman and the on-field squabble that threatens to disrupt Nigerian unity**\
-`The pair clashed just after the hour mark against Mozambique with Osimhen signalling to the bench that he wanted to come off`\
-https://nytimes.com/athletic/6944033/2026/01/06/osimhen-lookman-nigeria-mozambique/
-
 **Yasin Ayari: 'I know how good I am. I know that people around me know how good I am'**\
 `A natural-born footballer, Ayari has ridden the bumps to strut his stuff in the toughest league in the world`\
 https://nytimes.com/athletic/6893920/2026/01/06/yasin-ayari-brighton-hurzeler-coventry-blackburn/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6943026/2026/01/06/ratcliffe-ineos-amorim-mancheste
 **Nikola Jokić-less Nuggets beat Joel Embiid-led 76ers in surprising overtime victory**\
 `Against a relatively healthy Sixers team, Denver's deep bench saw an opportunity and took advantage of it.`\
 https://nytimes.com/athletic/6944483/2026/01/06/nuggets-beat-76ers-without-nikola-jokic/
+
+**The Alternative Premier League Table: No 21 – Defence-splitting through balls**\
+`It's one of the most aesthetically-pleasing passes in football – but which Premier League teams are good at making them?`\
+https://nytimes.com/athletic/6942270/2026/01/06/alternative-premier-league-table-through-balls/
 
