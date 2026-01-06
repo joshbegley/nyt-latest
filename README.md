@@ -1,3 +1,7 @@
+**Manchester City's Dias set for up to six weeks out with hamstring injury**\
+`Dias sustained the injury during the draw with Chelsea and Pep Guardiola confirmed the expected injury timeframe on Tuesday.`\
+https://nytimes.com/athletic/6944806/2026/01/06/ruben-dias-manchester-city-injury-update/
+
 **New York Times Case Against Pentagon Will Move Quickly**\
 `The lawsuit, over the Defense Department’s new rules for journalists, is headed for oral arguments in March.`\
 https://nytimes.com/2026/01/06/business/media/new-york-times-pentagon-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6944554/2026/01/06/steve-smith-australia-ashes-brad
 **Paige Bueckers as WNBA MVP, UConn goes undefeated and more 2026 women's basketball predictions**\
 `Will UConn repeat as champs? Will Paige Bueckers or perhaps Caitlin Clark win MVP? Our experts make bold picks for the new year.`\
 https://nytimes.com/athletic/6943696/2026/01/06/wnba-womens-basketball-2026-predictions/
-
-**Ego, power, control: Why it matters if you're called manager or head coach**\
-`There are currently 14 head coaches in the Premier League, with the rest managers - but what's the difference and why is it so important...?`\
-https://nytimes.com/athletic/6941836/2026/01/06/manager-or-head-coach/
 
