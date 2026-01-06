@@ -1,3 +1,7 @@
+**52 Places to Go in 2026**\
+`Our list for the new year features an eclipse, a revolution and a tiger reserve. What’s on yours?`\
+https://nytimes.com/interactive/2026/travel/places-to-travel-destinations-2026.html
+
 **Bob Pulford, 4-time Stanley Cup winner and longtime NHL coach/GM, dies at 89**\
 `Pulford won all four Stanley Cups with the Maple Leafs before earning a Jack Adams with the Kings and running the Blackhawks for 30 years.`\
 https://nytimes.com/athletic/6944251/2026/01/05/bob-pulford-obituary-nhl-maple-leafs/
