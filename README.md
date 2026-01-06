@@ -1,3 +1,7 @@
+**Solskjaer holds talks over Manchester United caretaker role**\
+`The Norwegian previously managed United for a nearly three-year spell between December 2018 and November 2021.`\
+https://nytimes.com/athletic/6942100/2026/01/06/manchester-united-manager-next-solskjaer/
+
 **In major shakeup, Commanders part ways with OC Kliff Kingsbury and DC Joe Whitt Jr.**\
 `After finishing 5-12, the Commanders are making major changes on both sides of the ball.`\
 https://nytimes.com/athletic/6944595/2026/01/06/commanders-kliff-kingsbury-joe-whitt-coordinators/
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/6945806/2026/01/06/canucks-vs-sabres-stream-how-to-
 **How to watch Cavaliers vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6945804/2026/01/06/cavaliers-vs-pacers-stream-how-to-watch-jan-6/
-
-**How to watch Ducks vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6945801/2026/01/06/ducks-vs-flyers-stream-how-to-watch-jan-6/
-
-**How to watch Avalanche vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6945798/2026/01/06/avalanche-vs-lightning-stream-how-to-watch-jan-6/
 
