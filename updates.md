@@ -1,3 +1,19 @@
+**Are Trains Now the Most Luxurious Way to Travel?**\
+`From Angola to Turkmenistan, sumptuously outfitted railroad cars are taking passengers on over-the-top journeys back in time.`\
+https://nytimes.com/2026/01/06/t-magazine/luxury-train-travel-scenic.html
+
+**Mickey Rourke Declines $100,000 in Donations After His Eviction**\
+`Rourke’s landlord said in court documents that the actor owed nearly $60,000 in rent. Rourke said he had declined to pay rent after the home became uninhabitable.`\
+https://nytimes.com/2026/01/06/movies/mickey-rourke-eviction-gofundme.html
+
+**Three Views on What 2026 Might Bring**\
+`Our reporters on the ground tells us what they’re watching in Ukraine, the Middle East and China.`\
+https://nytimes.com/2026/01/06/world/looking-ahead-2026-ukraine-middle-east-china.html
+
+**Falcons restructure Kirk Cousins' contract, will likely release him by March: Source**\
+`The Falcons have agreed to restructure the contract of Kirk Cousins, essentially guaranteeing the QB will be released this offseason.`\
+https://nytimes.com/athletic/6946922/2026/01/06/kirk-cousins-falcons-contract-restructure-free-agent/
+
 **Egor Zamula signs with Blue Jackets after waivers, contract termination**\
 `Zamula signed a one-year deal to help a short-handed Columbus blue line.`\
 https://nytimes.com/athletic/6946980/2026/01/06/egor-zamula-contract-blue-jackets/
