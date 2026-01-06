@@ -1,3 +1,7 @@
+**Notre Dame QB transfer Kenny Minchey flips from Nebraska to Kentucky: Reports**\
+`Minchey was set to fill a key hole for Nebraska after the portal entry of 22-game starter Dylan Raiola.`\
+https://nytimes.com/athletic/6944278/2026/01/05/notre-dame-kenny-minchey-flips-nebraska-kentucky/
+
 **Snoop Dogg broadcasts Warriors-Clippers game: 'Everybody was a Snoop fan growing up'**\
 `Snoop's presence was evident prior to the start of Monday's game.`\
 https://nytimes.com/athletic/6944292/2026/01/05/warriors-clippers-snoop-dogg-broadcast/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6944145/2026/01/05/colts-chris-ballard-carlie-irsay
 **James Dolan: Knicks' current roster is good enough to win title this season**\
 `Dolan believes “this is the team” and that the 12 current players on the roster are good enough to win it all.`\
 https://nytimes.com/athletic/6944016/2026/01/05/james-dolan-knicks-comments-nba-thibodeau/
-
-**Alabama lands No. 1 RB in portal: Can Hollywood Smothers fix Tide's run game?**\
-`Alabama failed to reach 30 rushing yards in any of its final three games of the 2025-26 season.`\
-https://nytimes.com/athletic/6944116/2026/01/05/alabama-hollywood-smothers-transfer-portal/
 

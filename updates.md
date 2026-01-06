@@ -1,3 +1,11 @@
+**Snoop Dogg broadcasts Warriors-Clippers game: 'Everybody was a Snoop fan growing up'**\
+`Snoop's presence was evident prior to the start of Monday's game.`\
+https://nytimes.com/athletic/6944292/2026/01/05/warriors-clippers-snoop-dogg-broadcast/
+
+**Giants might be done with rotation additions after taking a risk on Tyler Mahle**\
+`San Francisco has added guys with recent injury histories but is feeling good about their five-man rotation.`\
+https://nytimes.com/athletic/6943239/2026/01/05/giants-might-be-done-with-rotation-additions-after-taking-a-risk-on-tyler-mahle/
+
 **52 Places to Go in 2026**\
 `Our list for the new year features an eclipse, a revolution and a tiger reserve. What’s on yours?`\
 https://nytimes.com/interactive/2026/travel/places-to-travel-destinations-2026.html

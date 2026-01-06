@@ -1,3 +1,11 @@
+**Snoop Dogg broadcasts Warriors-Clippers game: 'Everybody was a Snoop fan growing up'**\
+`Snoop's presence was evident prior to the start of Monday's game.`\
+https://nytimes.com/athletic/6944292/2026/01/05/warriors-clippers-snoop-dogg-broadcast/
+
+**Giants might be done with rotation additions after taking a risk on Tyler Mahle**\
+`San Francisco has added guys with recent injury histories but is feeling good about their five-man rotation.`\
+https://nytimes.com/athletic/6943239/2026/01/05/giants-might-be-done-with-rotation-additions-after-taking-a-risk-on-tyler-mahle/
+
 **52 Places to Go in 2026**\
 `Our list for the new year features an eclipse, a revolution and a tiger reserve. What’s on yours?`\
 https://nytimes.com/interactive/2026/travel/places-to-travel-destinations-2026.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6944016/2026/01/05/james-dolan-knicks-comments-nba-
 **Alabama lands No. 1 RB in portal: Can Hollywood Smothers fix Tide's run game?**\
 `Alabama failed to reach 30 rushing yards in any of its final three games of the 2025-26 season.`\
 https://nytimes.com/athletic/6944116/2026/01/05/alabama-hollywood-smothers-transfer-portal/
-
-**Trump’s Post About Slain Minnesota Lawmaker Dismays Her Children**\
-`The son and daughter of Melissa and Mark Hortman have asked the president to remove a social media post promoting a conspiracy theory about the assassination.`\
-https://nytimes.com/2026/01/05/us/trump-social-hortman-conspiracy-theory.html
-
-**Outside the Courthouse: Flags, Chants and Venezuelans’ Quiet Pain**\
-`A demonstration outside the building where Nicolás Maduro was arraigned was a ritual of New York public protest, but one that sprang from personal wounds inflicted a continent away.`\
-https://nytimes.com/2026/01/05/world/americas/maduro-new-york-arraignment-venezuela-protest.html
 
