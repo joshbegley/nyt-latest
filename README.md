@@ -1,3 +1,7 @@
+**Villa's Mings, Torres in contention to return vs. Palace**\
+`Emery confirmed both centre-backs were "close" to returning but a final decision would be made after Tuesday's training session.`\
+https://nytimes.com/athletic/6945191/2026/01/06/tyrone-mings-pau-torres-aston-villa-injury-news/
+
 **Bela Tarr, Titan of Slow-Moving Cinema, Dies at 70**\
 `The master Hungarian filmmaker’s movies included “Satantango” and “Werckmeister Harmonies.”`\
 https://nytimes.com/2026/01/06/movies/bela-tarr-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6945158/2026/01/06/nascar-steve-phelps-resigns-comm
 **Scottie Barnes and Jalen Johnson: two sides of the same multi-skilled coin**\
 `Teams are known to place bets on athletic, 6-foot-8 forwards. In their fifth seasons, Barnes and Johnson are showing why.`\
 https://nytimes.com/athletic/6944329/2026/01/06/jalen-johnson-hawks-trae-young-scottie-barnes-raptors/
-
-**Cowboys fire Matt Eberflus, search for another defensive coordinator begins: Source**\
-`The Cowboys had one of the league's worst defenses in Brian Schottenheimer's first season as head coach.`\
-https://nytimes.com/athletic/6933799/2026/01/06/matt-eberflus-fired-cowboys/
 

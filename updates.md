@@ -1,3 +1,23 @@
+**Bela Tarr, Titan of Slow-Moving Cinema, Dies at 70**\
+`The master Hungarian filmmaker’s movies included “Satantango” and “Werckmeister Harmonies.”`\
+https://nytimes.com/2026/01/06/movies/bela-tarr-death.html
+
+**Glasner says 'it makes no sense' to discuss Man Utd vacancy**\
+`The Austrian's Crystal Palace contract expires at the end of this season.`\
+https://nytimes.com/athletic/6945043/2026/01/06/oliver-glasner-palace-man-utd/
+
+**Will Welch to Leave GQ After 7 Years as Its Top Editor**\
+`Mr. Welch worked to move the men’s magazine away from what he called “manly-man tropes.” His next role will be with Pharrell, the men’s designer of Louis Vuitton.`\
+https://nytimes.com/2026/01/06/business/media/will-welch-gq-editor-departure.html
+
+**Esto es lo más reciente**\
+`By Qasim Nauman and Francesca Regalado`\
+https://nytimes.com/live/2026/01/06/espanol/venezuela-trump-nicolas-maduro/esto-es-lo-mas-reciente
+
+**En vivo: Trump prevé una mayor participación de EE. UU. en Venezuela**\
+`El presidente Trump declaró a NBC News que Estados Unidos debe “cuidar al país hasta que se recupere” antes de que se puedan celebrar elecciones, y nombró a un grupo de funcionarios estadounidenses para supervisar lo que sigue.`\
+https://nytimes.com/live/2026/01/06/espanol/venezuela-trump-nicolas-maduro
+
 **Machado Says She Plans to Return to Venezuela ‘as Soon as Possible’**\
 `María Corina Machado, Venezuela’s opposition leader, said she was planning to return to the country after the United States’ capture of Nicolás Maduro. President Trump has refused to back her as Venezuela’s next leader.`\
 https://nytimes.com/video/world/americas/100000010626659/machado-trump-venezuela-us.html
