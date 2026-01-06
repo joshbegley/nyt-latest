@@ -1,3 +1,11 @@
+**Rosenior's tactical style: Flexible formations, central progression, energetic pressing**\
+`Liam Rosenior is Chelsea's new head coach. So what do we know about how he likes his teams to play?`\
+https://nytimes.com/athletic/6935749/2026/01/06/liam-rosenior-tactical-style-chelsea/
+
+**Australian Open announces record prize money amid player pressure on Grand Slams**\
+`Various groups are exerting pressure on the biggest tournaments in the sport over the proportion of revenues that they receive.`\
+https://nytimes.com/athletic/6944796/2026/01/06/tennis-prize-money-australian-open-grand-slams/
+
 **Here’s the latest.**\
 `By Qasim Nauman and Francesca Regalado`\
 https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/heres-the-latest
