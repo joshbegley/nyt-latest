@@ -1,3 +1,7 @@
+**Steve Kerr ejected from Warriors-Clippers game after arguing with officials**\
+`After continuing to yell for another few seconds, the Warriors coach turned around and walked back to the locker room.`\
+https://nytimes.com/athletic/6944559/2026/01/06/steve-kerr-ejected-warriors-clippers-game-arguing-officials/
+
 **Victor Osimhen, Ademola Lookman and the on-field squabble that threatens to disrupt Nigerian unity**\
 `The pair clashed just after the hour mark against Mozambique with Osimhen signalling to the bench that he wanted to come off`\
 https://nytimes.com/athletic/6944033/2026/01/06/osimhen-lookman-nigeria-mozambique/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6942104/2026/01/06/premier-league-predictions-match
 **Serie A briefing: Fiorentina find form, Jonathan David still stutters - does he need lucky lentils?**\
 `Fiorentina are finally off the foot of the table after a second win. Plus: Juve's striker is still Canada Dry, and the title race shapes up`\
 https://nytimes.com/athletic/6942084/2026/01/06/serie-a-briefing-fiorentina-moise-kean-jonathan-david-lentils/
-
-**Declan Rice is Arsenal's all-action hero. He can be England's too**\
-`Rice has been a driving force for Arsenal. Thomas Tuchel can rely on the midfielder to perform a similar role with England at the World Cup`\
-https://nytimes.com/athletic/6942212/2026/01/06/declan-rice-arsenal-england-world-cup/
 

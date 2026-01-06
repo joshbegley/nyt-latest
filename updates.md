@@ -1,3 +1,7 @@
+**Steve Kerr ejected from Warriors-Clippers game after arguing with officials**\
+`After continuing to yell for another few seconds, the Warriors coach turned around and walked back to the locker room.`\
+https://nytimes.com/athletic/6944559/2026/01/06/steve-kerr-ejected-warriors-clippers-game-arguing-officials/
+
 **Victor Osimhen, Ademola Lookman and the on-field squabble that threatens to disrupt Nigerian unity**\
 `The pair clashed just after the hour mark against Mozambique with Osimhen signalling to the bench that he wanted to come off`\
 https://nytimes.com/athletic/6944033/2026/01/06/osimhen-lookman-nigeria-mozambique/
