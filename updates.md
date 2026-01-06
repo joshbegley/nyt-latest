@@ -1,3 +1,11 @@
+**Word of the Day: abrogate**\
+`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/06/learning/word-of-the-day-abrogate.html
+
+**Stephen Colbert Doubts Trump’s Ability to Run Two Countries at Once**\
+`“The Late Show” host said the president couldn’t possibly run two nations, because “he can’t even run.”`\
+https://nytimes.com/2026/01/06/arts/television/stephen-colbert-trump-venezuela.html
+
 **The Alternative Premier League Table: No 21 – Defence-splitting through balls**\
 `It's one of the most aesthetically-pleasing passes in football – but which Premier League teams are good at making them?`\
 https://nytimes.com/athletic/6942270/2026/01/06/alternative-premier-league-table-through-balls/
