@@ -1,3 +1,23 @@
+**Lions fire John Morton after one season as offensive coordinator**\
+`Lions coach Dan Campbell took over play-calling responsibilities from John Morton in Week 10 and never gave them back.`\
+https://nytimes.com/athletic/6942499/2026/01/06/john-morton-fired-lions/
+
+**The Players to Know in Venezeula’s Leadership**\
+`Since President Trump deposed Nicolás Maduro, his entrenched web of loyalists has appeared to remain intact. Here’s a look at some of the most influential.`\
+https://nytimes.com/2026/01/06/world/americas/venezeula-remaining-leadership-profiles.html
+
+**There Were Good Reasons to Depose Maduro**\
+`But taking Venezuela’s oil while leaving the regime in place weren’t among them.`\
+https://nytimes.com/2026/01/06/opinion/maduro-venezuela-oil.html
+
+**Trinidad Chambliss to return to Ole Miss in 2026, pending eligibility waiver: Source**\
+`Chambliss enrolled at Ferris State in 2021 but did not play in either of his first two seasons with the Division II powerhouse.`\
+https://nytimes.com/athletic/6942392/2026/01/06/trinidad-chambliss-ole-miss-ncaa-eligibility-waiver/
+
+**2 Caribbean Nations Agree to Host People Seeking Asylum in U.S.**\
+`The island nations of Dominica, and Antigua and Barbuda, recently targeted by Washington, said they had reached deals to receive asylum seekers turned away by the U.S.`\
+https://nytimes.com/2026/01/06/world/americas/caribbean-dominica-antigua-asylum-seekers.html
+
 **How to Stay Warm This Winter**\
 `Elevated takes on cold-weather essentials to get you through the season.`\
 https://nytimes.com/2026/01/06/t-magazine/how-to-stay-warm-winter-cold.html
@@ -17,20 +37,4 @@ https://nytimes.com/2026/01/06/technology/xai-elon-musk-funding.html
 **Israel Tells Doctors Without Borders to End Its Work in Gaza**\
 `The move against the medical aid group enforces policies limiting criticism of Israel’s conduct in the war and requiring personal details about Gazan employees.`\
 https://nytimes.com/2026/01/06/world/middleeast/israel-bars-doctors-without-borders-gaza.html
-
-**White House Posts False Jan. 6 Narrative on Riot’s 5th Anniversary**\
-`A new web page on the official White House site blames the Capitol Police and Democrats for the pro-Trump mob riot, absolving the president of responsibility and calling participants “innocent.”`\
-https://nytimes.com/2026/01/06/us/politics/trump-white-house-jan-6-website.html
-
-**A's denied 'Las Vegas Athletics' and 'Vegas Athletics' trademarks again**\
-`The trademark office ruled the Athletics did not have the necessary "acquired distinctiveness."`\
-https://nytimes.com/athletic/6946884/2026/01/06/as-denied-las-vegas-athletics-and-vegas-athletics-trademarks-again/
-
-**Are Trains Now the Most Luxurious Way to Travel?**\
-`From Angola to Turkmenistan, sumptuously outfitted railroad cars are taking passengers on over-the-top journeys back in time.`\
-https://nytimes.com/2026/01/06/t-magazine/luxury-train-travel-scenic.html
-
-**Mickey Rourke Declines $100,000 in Donations After His Eviction**\
-`Rourke’s landlord said in court documents that the actor owed nearly $60,000 in rent. Rourke said he had declined to pay rent after the home became uninhabitable.`\
-https://nytimes.com/2026/01/06/movies/mickey-rourke-eviction-gofundme.html
 
