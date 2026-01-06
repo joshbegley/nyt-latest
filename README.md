@@ -1,3 +1,11 @@
+**Jamie Raskin: Jan. 6 Never Ended**\
+`Five years after Jan. 6, 2021, we are still caught up in a struggle over the meaning of that day.`\
+https://nytimes.com/2026/01/06/opinion/jamie-raskin-jan-6-anniversary.html
+
+**The New York Times in Print for Tuesday, Jan. 6, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/06/todays-new-york-times
+
 **Steve Kerr ejected from Warriors-Clippers game after arguing with officials**\
 `After continuing to yell for another few seconds, the Warriors coach turned around and walked back to the locker room.`\
 https://nytimes.com/athletic/6944559/2026/01/06/steve-kerr-ejected-warriors-clippers-game-arguing-officials/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6944483/2026/01/06/nuggets-beat-76ers-without-nikol
 **The Alternative Premier League Table: No 21 – Defence-splitting through balls**\
 `It's one of the most aesthetically-pleasing passes in football – but which Premier League teams are good at making them?`\
 https://nytimes.com/athletic/6942270/2026/01/06/alternative-premier-league-table-through-balls/
-
-**Premier League predictions: Arsenal vs Liverpool, West Ham vs Forest and rest of matchday 21**\
-`Who's leading after MD20? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 21?`\
-https://nytimes.com/athletic/6942104/2026/01/06/premier-league-predictions-matchday-21/
-
-**Serie A briefing: Fiorentina find form, Jonathan David still stutters - does he need lucky lentils?**\
-`Fiorentina are finally off the foot of the table after a second win. Plus: Juve's striker is still Canada Dry, and the title race shapes up`\
-https://nytimes.com/athletic/6942084/2026/01/06/serie-a-briefing-fiorentina-moise-kean-jonathan-david-lentils/
 
