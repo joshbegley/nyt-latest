@@ -1,3 +1,11 @@
+**How to watch Oregon vs. USC women's basketball: Time, TV, streaming**\
+`Find out how to watch the Oregon Ducks play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946733/2026/01/06/oregon-vs-usc-stream-how-to-watch-jan-6/
+
+**How to watch Bills at Jaguars: Wild Card Round Time, TV, streaming**\
+`Find out how to watch the Buffalo Bills play the Jacksonville Jaguars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946728/2026/01/06/bills-vs-jaguars-stream-how-to-watch-jan-11/
+
 **The 92-Year-Old Judge in the Maduro Case Must Step Aside**\
 `There is no simple procedural mechanism for lawyers, or the public, to challenge the fitness of judges.`\
 https://nytimes.com/2026/01/06/opinion/maduro-judge-hellerstein-age.html
