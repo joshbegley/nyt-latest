@@ -1,3 +1,7 @@
+**Do You Ever Feel Pressure to Be Perfect?**\
+`A guest essayist argues that perfectionism is “stunting our society.” Do you agree?`\
+https://nytimes.com/2026/01/06/learning/do-you-ever-feel-pressure-to-be-perfect.html
+
 **Manchester City's Dias set for up to six weeks out with hamstring injury**\
 `Dias sustained the injury during the draw with Chelsea and Pep Guardiola confirmed the expected injury timeframe on Tuesday.`\
 https://nytimes.com/athletic/6944806/2026/01/06/ruben-dias-manchester-city-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6943442/2026/01/06/phillies-notes-j-t-realmuto-bull
 **How Steve Smith went from leg-spin prospect to the most prolific Ashes run scorer since Don Bradman**\
 `Australia's stand-in captain was untouchable on day three in Sydney, easing his way to a 13th Test century against England and 37th overall`\
 https://nytimes.com/athletic/6944554/2026/01/06/steve-smith-australia-ashes-bradman/
-
-**Paige Bueckers as WNBA MVP, UConn goes undefeated and more 2026 women's basketball predictions**\
-`Will UConn repeat as champs? Will Paige Bueckers or perhaps Caitlin Clark win MVP? Our experts make bold picks for the new year.`\
-https://nytimes.com/athletic/6943696/2026/01/06/wnba-womens-basketball-2026-predictions/
 

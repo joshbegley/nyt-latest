@@ -1,3 +1,7 @@
+**Do You Ever Feel Pressure to Be Perfect?**\
+`A guest essayist argues that perfectionism is “stunting our society.” Do you agree?`\
+https://nytimes.com/2026/01/06/learning/do-you-ever-feel-pressure-to-be-perfect.html
+
 **Manchester City's Dias set for up to six weeks out with hamstring injury**\
 `Dias sustained the injury during the draw with Chelsea and Pep Guardiola confirmed the expected injury timeframe on Tuesday.`\
 https://nytimes.com/athletic/6944806/2026/01/06/ruben-dias-manchester-city-injury-update/
