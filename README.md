@@ -26,7 +26,7 @@ https://nytimes.com/2026/01/05/us/politics/stephen-miller-greenland-venezuela.ht
 `One way or another, you’ll solve Paul Coulter’s crossword.`\
 https://nytimes.com/2026/01/05/crosswords/daily-puzzle-2025-01-06.html
 
-**Notre Dame QB transfer Kenny Minchey flips from Nebraska to Kentucky: Source**\
+**Notre Dame QB transfer Kenny Minchey flips from Nebraska to Kentucky: Sources**\
 `Minchey was set to fill a key hole for Nebraska after the portal entry of 22-game starter Dylan Raiola.`\
 https://nytimes.com/athletic/6944278/2026/01/05/notre-dame-kenny-minchey-flips-nebraska-kentucky/
 
