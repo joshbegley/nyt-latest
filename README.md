@@ -1,3 +1,15 @@
+**In major shakeup, Commanders part ways with OC Kliff Kingsbury and DC Joe Whitt Jr.**\
+`After finishing 5-12, the Commanders are making major changes on both sides of the ball.`\
+https://nytimes.com/athletic/6944595/2026/01/06/commanders-kliff-kingsbury-joe-whitt-coordinators/
+
+**The Sweatsuit Was Bound to Become a Meme**\
+`When President Trump shared an unverified photo of Nicolás Maduro in U.S. custody, a corner of the internet followed a familiar playbook for newsmaking images: Talk about the clothes.`\
+https://nytimes.com/2026/01/06/style/maduro-nike-tech-sweatsuit-meme.html
+
+**'If it works out, I will be happy' - Barca's Flick hopeful of Cancelo deal**\
+`Flick said Cancelo, 31, was a good short-term solution for Barca but insisted the deal was not yet complete.`\
+https://nytimes.com/athletic/6945802/2026/01/06/hansi-flick-barcelona-joao-cancelo-transfer/
+
 **What I'm hearing about the Penguins' appetite for trades, playoff race, new owners**\
 `The Penguins figure to be heavily involved in the trade market now and into the summer. Here's why.`\
 https://nytimes.com/athletic/6943544/2026/01/06/penguins-nhl-trade-deadline-playoffs/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6945801/2026/01/06/ducks-vs-flyers-stream-how-to-wa
 **How to watch Avalanche vs. Lightning: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6945798/2026/01/06/avalanche-vs-lightning-stream-how-to-watch-jan-6/
-
-**Texas Is Sued Over Investigations Into Teachers’ Speech After Charlie Kirk’s Death**\
-`The lawsuit challenges a conservative effort to punish those who criticized Mr. Kirk in the aftermath of his killing.`\
-https://nytimes.com/2026/01/06/us/american-federation-teachers-charlie-kirk-lawsuit.html
-
-**How to watch Stars vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6945794/2026/01/06/stars-vs-hurricanes-stream-how-to-watch-jan-6/
-
-**How to watch Magic vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6945792/2026/01/06/magic-vs-wizards-stream-how-to-watch-jan-6/
 
