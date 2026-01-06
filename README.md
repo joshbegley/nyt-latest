@@ -1,3 +1,7 @@
+**Pistons send message to Knicks, NBA: They're the team to beat in the East**\
+`Despite missing two starters, Detroit blew out New York on Monday on the second night of a back-to-back. `\
+https://nytimes.com/athletic/6944494/2026/01/06/pistons-beat-knicks-cade-cunningham-nba/
+
 **Phillies notes: J.T. Realmuto standoff, bullpen adds, another righty bat?**\
 `It's still believed the Phillies and Realmuto will find common ground. But the club has explored contingencies via trade and free agency. `\
 https://nytimes.com/athletic/6943442/2026/01/06/phillies-notes-j-t-realmuto-bullpen-righty-bat/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6942956/2026/01/06/blackhawks-kevin-korchinski-nhl-
 **The secret behind TGL's most successful golf holes? Brilliant design minds getting weird**\
 `"When you're a songwriter, you know that you have a special song that's out there? I knew that Stinger was special.”`\
 https://nytimes.com/athletic/6943900/2026/01/06/tgl-golf-hole-design-hanse-piza/
-
-**Mirtle: What is this Maple Leafs team, really, as they pass the halfway point?**\
-`The Leafs are on the upswing of late, but the challenge will be proving this level of performance is here to stay to make a playoff spot.`\
-https://nytimes.com/athletic/6941410/2026/01/06/maple-leafs-second-half-performance-playoffs/
 
