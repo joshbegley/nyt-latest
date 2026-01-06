@@ -1,3 +1,7 @@
+**Bob Pulford, 4-time Stanley Cup winner and longtime NHL coach/GM, dies at 89**\
+`Pulford won all four Stanley Cups with the Maple Leafs before earning a Jack Adams with the Kings and running the Blackhawks for 30 years.`\
+https://nytimes.com/athletic/6944251/2026/01/05/bob-pulford-obituary-nhl-maple-leafs/
+
 **Bryce Underwood announces he's returning to Michigan**\
 `Nation's top prospect decides to play for new Wolverines coach Kyle Whittingham.`\
 https://nytimes.com/athletic/6944142/2026/01/05/bryce-underwood-announces-hes-returning-to-michigan-under-new-coach-kyle-whittingham/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/05/world/americas/maduro-new-york-arraignment-venezu
 **Flyers sign Christian Dvorak to 5-year, $25.75 million contract extension**\
 `The Flyers locked up their current top-line center, who would have been a hot commodity on the trade market.`\
 https://nytimes.com/athletic/6944061/2026/01/05/christian-dvorak-flyers-contract-extension/
-
-**Steve Sheetz, Who Popularized Convenience Stores as a C.E.O., Dies at 77**\
-`Sheetz, a family-owned company that started with a single convenience store in Altoona, Pa., has more than 800 locations in seven states.`\
-https://nytimes.com/2026/01/05/obituaries/steve-sheetz-dead.html
 

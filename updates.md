@@ -1,3 +1,7 @@
+**Bob Pulford, 4-time Stanley Cup winner and longtime NHL coach/GM, dies at 89**\
+`Pulford won all four Stanley Cups with the Maple Leafs before earning a Jack Adams with the Kings and running the Blackhawks for 30 years.`\
+https://nytimes.com/athletic/6944251/2026/01/05/bob-pulford-obituary-nhl-maple-leafs/
+
 **Bryce Underwood announces he's returning to Michigan**\
 `Nation's top prospect decides to play for new Wolverines coach Kyle Whittingham.`\
 https://nytimes.com/athletic/6944142/2026/01/05/bryce-underwood-announces-hes-returning-to-michigan-under-new-coach-kyle-whittingham/
