@@ -1,3 +1,11 @@
+**Jamie Raskin: Jan. 6 Never Ended**\
+`Five years after Jan. 6, 2021, we are still caught up in a struggle over the meaning of that day.`\
+https://nytimes.com/2026/01/06/opinion/jamie-raskin-jan-6-anniversary.html
+
+**The New York Times in Print for Tuesday, Jan. 6, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/06/todays-new-york-times
+
 **Steve Kerr ejected from Warriors-Clippers game after arguing with officials**\
 `After continuing to yell for another few seconds, the Warriors coach turned around and walked back to the locker room.`\
 https://nytimes.com/athletic/6944559/2026/01/06/steve-kerr-ejected-warriors-clippers-game-arguing-officials/
