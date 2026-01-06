@@ -1,3 +1,7 @@
+**Solskjaer holds talks over Manchester United caretaker role**\
+`The Norwegian previously managed United for a nearly three-year spell between December 2018 and November 2021.`\
+https://nytimes.com/athletic/6942100/2026/01/06/manchester-united-manager-next-solskjaer/
+
 **In major shakeup, Commanders part ways with OC Kliff Kingsbury and DC Joe Whitt Jr.**\
 `After finishing 5-12, the Commanders are making major changes on both sides of the ball.`\
 https://nytimes.com/athletic/6944595/2026/01/06/commanders-kliff-kingsbury-joe-whitt-coordinators/
