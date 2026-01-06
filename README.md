@@ -1,3 +1,7 @@
+**Jordan Stolz, Erin Jackson headline U.S. Olympic speed skating team**\
+`With Stolz and Jackson leading the way, the Americans could be poised for their strongest Olympic performance in years.`\
+https://nytimes.com/athletic/6944605/2026/01/06/us-olympics-speed-skating-team-jordan-stolz-erin-jackson/
+
 **The Rush to Profit From Maduro’s Capture**\
 `Trump administration officials are pushing American companies to quickly start investing in Venezuela. But energy giants have some major concerns.`\
 https://nytimes.com/2026/01/06/business/dealbook/venezuela-trump-oil-chevron.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/06/business/media/new-york-times-pentagon-lawsuit.ht
 **How Dubai Design District Is Rethinking Waterfront Living for a Creative City**\
 `Meraas, a member of Dubai Holding Real Estate, has unveiled an expanded residential masterplan for Dubai.`\
 https://nytimes.com/paidpost/meraas/meraas-ad-post-campaign/how-dubai-design-district-is-rethinking-waterfront-living-for-a-creative-city.html
-
-**What Venezuela Wants**\
-`We take a deeper look at the evolving situation in Venezuela.`\
-https://nytimes.com/2026/01/06/briefing/what-venezuela-wants.html
 
