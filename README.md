@@ -1,10 +1,9 @@
 **World Juniors standouts and disappointments: How did the top prospects play?**\
-`Even without true elite statistical performers or a team that truly took control, there's still plenty to take away from the tournament.
-`\
+`There are plenty of things to take away from this tournament, particularly how 2026 prospects Gavin McKenna and Ivar Stenberg performed.`\
 https://nytimes.com/athletic/6942588/2026/01/05/world-juniors-gavin-mckenna-ivar-stenberg-top-prospects/
 
 **Montana State wins first FCS title since 1984 over upstart Illinois State, in an overtime thriller**\
-`he first FCS championship game to be played in Nashville was a huge success in the revamped home of the Vanderbilt Commodores.`\
+`The first FCS championship game to be played in Nashville was a huge success in the revamped home of the Vanderbilt Commodores.`\
 https://nytimes.com/athletic/6944161/2026/01/05/montana-state-illinois-state-fcs-national-championship/
 
 **Sweden holds off Czechia to win first World Junior gold since 2012**\
