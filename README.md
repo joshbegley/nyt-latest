@@ -1,3 +1,15 @@
+**Trump’s Foray Into Venezuela Could Embolden Russia’s and China’s Own Aggression**\
+`While both countries were allied with Nicolás Maduro, the U.S. attack could give them justification to use force in other spheres, analysts said.`\
+https://nytimes.com/2026/01/05/world/europe/trump-venezuela-china-russia.html
+
+**Rangers' Igor Shesterkin leaves game vs. Mammoth with apparent lower-body injury**\
+`Shesterkin had to be helped off the ice and into the locker room with about seven minutes left in the first period.`\
+https://nytimes.com/athletic/6943935/2026/01/05/igor-shesterkin-injury-rangers-mammoth/
+
+**C.I.A. Assessed Venezuela’s Future Without Maduro Ahead of U.S. Operation**\
+`The assessment aided President Trump and other officials in concluding that Delcy Rodriguez, then Venezuela’s vice president, was Nicolás Maduro’s best short-term successor, according to people briefed on the matter.`\
+https://nytimes.com/live/2026/01/05/world/venezuela-maduro-trump/venezuela-without-maduro-cia-intel-report
+
 **Why Trump Refused to Back Venezuela’s Machado: Fears of Chaos, and Fraying Ties**\
 `U.S. intelligence suggested María Corina Machado, Venezuela’s opposition leader, would struggle to lead the government. But her relationship with Trump officials had been souring for months.`\
 https://nytimes.com/2026/01/05/us/politics/trump-venezuela-machado.html
@@ -22,19 +34,7 @@ https://nytimes.com/2026/01/05/opinion/international-world/trump-maduro-oust-rai
 `Phoenix is off to a surprising 21-14 start this season under first-year head coach Jordan Ott, and Brooks has been a big reason why.`\
 https://nytimes.com/athletic/6943743/2026/01/05/suns-dillon-brooks-matt-ishbia-trade-asks/
 
-**Trae Young, Hawks working to find trade destination for four-time NBA All-Star**\
+**Trae Young, Hawks working to find trade destination for 4-time NBA All-Star**\
 `The Hawks’ choice not to give Young a long-term contract extension this summer opened the door for all of this chatter.`\
 https://nytimes.com/athletic/6943604/2026/01/05/trae-young-hawks-trade-deal-search/
-
-**Mamdani Chooses a Bernie Sanders Aide as His Communications Director**\
-`Anna Bahr, who leads communications for the Vermont senator and worked on his presidential campaign, is the latest appointee to a high-profile role in the Mamdani administration.`\
-https://nytimes.com/2026/01/05/nyregion/mamdani-anna-bahr-bernie-sanders.html
-
-**Ravens again fail to live up to expectations. What does it mean for John Harbaugh?**\
-`Ravens decision-makers have to contemplate why a team that often looks dominant during the regular season becomes unreliable in January. `\
-https://nytimes.com/athletic/6943680/2026/01/05/ravens-john-harbaugh-expectations-season-ends/
-
-**How to watch Rams at Panthers: Wild Card Round Time, TV, streaming**\
-`Find out how to watch the Los Angeles Rams play the Carolina Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6943859/2026/01/05/rams-vs-panthers-stream-how-to-watch-jan-10/
 
