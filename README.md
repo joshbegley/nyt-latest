@@ -1,3 +1,7 @@
+**Submit your Michigan Wolverines questions for Austin Meek’s mailbag**\
+`What's on your mind as the Kyle Whittingham era begins and the men's basketball team takes aim at a national title run?`\
+https://nytimes.com/athletic/6945546/2026/01/06/michigan-football-basketball-whittingham-mailbag-questions/
+
 **Can You Optimize Love?**\
 `A group of tech executives, app developers and Silicon Valley philosophers is seeking to streamline the messy matters of the heart.`\
 https://nytimes.com/2026/01/06/style/love-symposium-artificial-intelligence-keeper.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6945191/2026/01/06/tyrone-mings-pau-torres-aston-vi
 **Bela Tarr, Titan of Slow-Moving Cinema, Dies at 70**\
 `The master Hungarian filmmaker’s movies included “Satantango” and “Werckmeister Harmonies.”`\
 https://nytimes.com/2026/01/06/movies/bela-tarr-death.html
-
-**Glasner says 'it makes no sense' to discuss Man Utd vacancy**\
-`The Austrian's Crystal Palace contract expires at the end of this season.`\
-https://nytimes.com/athletic/6945043/2026/01/06/oliver-glasner-palace-man-utd/
 
