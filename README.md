@@ -1,3 +1,7 @@
+**Tatsuya Imai is the Astros' first major splash in Asia. He will not be the last.**\
+`After introducing Imai, Houston's owner is "laser-focused" on signing more players from what he called a "kind of untapped" market.`\
+https://nytimes.com/athletic/6943840/2026/01/05/tatsuya-imai-astros-jim-crane-asia/
+
 **Appeals Court Upholds Prohibition on Trump’s Medical Research Cuts**\
 `The ruling on Monday upheld a lower court’s judgment in April that the Trump administration could not drastically slash funding from the National Institutes of Health.`\
 https://nytimes.com/2026/01/05/us/politics/trump-nih-grant-cuts-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/05/nyregion/mamdani-affordability-consumer-protectio
 **Buccaneers' Todd Bowles makes case to return, points to 3 NFC South titles**\
 `Bowles said he had yet to meet with Tampa Bay ownership on Monday, but a meeting with the Glazer family is scheduled for this week.`\
 https://nytimes.com/athletic/6943498/2026/01/05/todd-bowles-buccaneers-coaching-future/
-
-**Rangers' James Dolan reiterates faith in Chris Drury in first interview since 2023**\
-`Asked directly if he still has trust in Drury, Dolan responded with a firm “yes.”`\
-https://nytimes.com/athletic/6943731/2026/01/05/rangers-james-dolan-chris-drury/
 
