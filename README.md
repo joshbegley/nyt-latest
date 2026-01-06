@@ -1,3 +1,7 @@
+**Paris Opera Takes On a Noted Conductor, Aiming to Expand Its Symphonic Offerings**\
+`Semyon Bychkov will be the musical director for a period when the opera’s performance spaces are under renovation. It’s a chance to add symphonic seasons like at La Scala.`\
+https://nytimes.com/2026/01/06/arts/paris-opera-semyon-bychkov.html
+
 **Do You Ever Feel Pressure to Be Perfect?**\
 `A guest essayist argues that perfectionism is “stunting our society.” Do you agree?`\
 https://nytimes.com/2026/01/06/learning/do-you-ever-feel-pressure-to-be-perfect.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6944494/2026/01/06/pistons-beat-knicks-cade-cunning
 **Phillies notes: J.T. Realmuto standoff, bullpen adds, another righty bat?**\
 `It's still believed the Phillies and Realmuto will find common ground. But the club has explored contingencies via trade and free agency. `\
 https://nytimes.com/athletic/6943442/2026/01/06/phillies-notes-j-t-realmuto-bullpen-righty-bat/
-
-**How Steve Smith went from leg-spin prospect to the most prolific Ashes run scorer since Don Bradman**\
-`Australia's stand-in captain was untouchable on day three in Sydney, easing his way to a 13th Test century against England and 37th overall`\
-https://nytimes.com/athletic/6944554/2026/01/06/steve-smith-australia-ashes-bradman/
 
