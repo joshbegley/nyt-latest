@@ -1,3 +1,11 @@
+**How to watch Oregon vs. USC women's basketball: Time, TV, streaming**\
+`Find out how to watch the Oregon Ducks play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946733/2026/01/06/oregon-vs-usc-stream-how-to-watch-jan-6/
+
+**How to watch Bills at Jaguars: Wild Card Round Time, TV, streaming**\
+`Find out how to watch the Buffalo Bills play the Jacksonville Jaguars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946728/2026/01/06/bills-vs-jaguars-stream-how-to-watch-jan-11/
+
 **The 92-Year-Old Judge in the Maduro Case Must Step Aside**\
 `There is no simple procedural mechanism for lawyers, or the public, to challenge the fitness of judges.`\
 https://nytimes.com/2026/01/06/opinion/maduro-judge-hellerstein-age.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6946007/2026/01/06/connor-bedard-team-canada-olympi
 **Tiger Woods, Rory McIlroy launching WTGL women's golf league next winter**\
 `The WTGL will be a separate league from TGL, featuring teams of prominent female golfers.`\
 https://nytimes.com/athletic/6946367/2026/01/06/wtgl-launch-lpga-indoor-golf/
-
-**Rubio Helped Oust Maduro. Running Venezuela May Prove Trickier.**\
-`The secretary of state helped steer President Trump to attacking Venezuela and seizing Nicolás Maduro, and now aims to force the country to give U.S. companies access to its oil.`\
-https://nytimes.com/2026/01/06/us/politics/rubio-venezuela-future.html
-
-**Virginia State Legislature Special Election Results**\
-`Get live results from the 2026 Virginia special state legislature elections.`\
-https://nytimes.com/interactive/2026/01/06/us/elections/results-virginia-special-election.html
 
