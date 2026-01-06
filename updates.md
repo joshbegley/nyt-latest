@@ -1,3 +1,7 @@
+**Clayton Kershaw is top studio target for NBC's MLB coverage: Sources**\
+`Joey Votto is another ex-star that networks are high on this offseason.`\
+https://nytimes.com/athletic/6946207/2026/01/06/clayton-kershaw-nbc-peacock-mlb/
+
 **After a Bitterly Cold Start to the Year, U.K. Faces More Snow This Week**\
 `Forecasters warned that Storm Goretti could bring significant travel disruptions.`\
 https://nytimes.com/2026/01/06/weather/storm-goretti-uk-forecast.html
