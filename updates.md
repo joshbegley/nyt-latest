@@ -1,3 +1,15 @@
+**Why Israel Is Divided Over How to Investigate Oct. 7 Failures**\
+`Prime Minister Benjamin Netanyahu has proposed a commission with members chosen in a way that departs from existing law.`\
+https://nytimes.com/2026/01/06/world/middleeast/israel-october-7-commission.html
+
+**Walz Drops Re-Election Bid as Minnesota Fraud Scandal Grows**\
+`Governor Tim Walz of Minnesota abandoned his re-election bid to focus on handling a scandal over fraud in social service programs that grew under his administration.`\
+https://nytimes.com/video/us/politics/100000010626077/tim-walz-governor-minnesota.html
+
+**Rosenior confirms he has agreed to be Chelsea's next head coach**\
+`Rosenior called his 18 months with Strasbourg "the best of my professional career".`\
+https://nytimes.com/athletic/6941800/2026/01/06/liam-rosenior-verbally-agrees-to-become-new-chelsea-head-coach/
+
 **How the ‘Donroe Doctrine’ Reinforces Xi’s Vision of Power in Asia**\
 `The U.S. assault on Venezuela points to a world where big powers seek to call the shots in their regions, an idea Beijing knows well.`\
 https://nytimes.com/2026/01/06/world/asia/venezuela-china-trump-taiwan.html
