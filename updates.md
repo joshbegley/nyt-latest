@@ -1,3 +1,7 @@
+**Hurzeler says he wants Milner to stay at Brighton beyond end of the season**\
+`Milner agreed a new one year-deal with Brighton last summer through to June 2026.`\
+https://nytimes.com/athletic/6944929/2026/01/06/james-milner-brighton-future-fabian-hurzeler/
+
 **Novak Djokovic, the great tennis disruptor, has taken his next stand**\
 `Djokovic's leaving the PTPA may mean little for its aim to reform tennis, but it signals another shift in his status within the sport.`\
 https://nytimes.com/athletic/6943641/2026/01/06/novak-djokovic-tennis-ptpa-lawsuit/

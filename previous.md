@@ -1,3 +1,7 @@
+**Hurzeler says he wants Milner to stay at Brighton beyond end of the season**\
+`Milner agreed a new one year-deal with Brighton last summer through to June 2026.`\
+https://nytimes.com/athletic/6944929/2026/01/06/james-milner-brighton-future-fabian-hurzeler/
+
 **Novak Djokovic, the great tennis disruptor, has taken his next stand**\
 `Djokovic's leaving the PTPA may mean little for its aim to reform tennis, but it signals another shift in his status within the sport.`\
 https://nytimes.com/athletic/6943641/2026/01/06/novak-djokovic-tennis-ptpa-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6943659/2026/01/06/how-2025-bears-were-built/
 **Shesterkin injury could force Rangers to face trade deadline reality: 8 thoughts**\
 `General manager Chris Drury, fresh off receiving vocal support from owner James Dolan, may have no choice in strategy for March 6.`\
 https://nytimes.com/athletic/6944361/2026/01/06/rangers-shesterkin-injury-drury-trade-deadline-mammoth/
-
-**What we learned: Dan Campbell plans 'deep dive' before making decisions**\
-`Will Dan Campbell continue calling plays? Will he make any staff changes? What will the Lions do with their pending free agents?`\
-https://nytimes.com/athletic/6943891/2026/01/06/lions-season-review-dan-campbell-decisions/
 
