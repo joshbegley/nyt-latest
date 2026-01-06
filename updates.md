@@ -1,3 +1,7 @@
+**Chicago Stars unveil plans for NWSL performance center, completion set for 2027**\
+`The project will break ground in the spring, with a tentative completion date of 2027, marking a major milestone for the NWSL franchise.`\
+https://nytimes.com/athletic/6943980/2026/01/06/chicago-stars-nwsl-performance-center-alyssa-naeher/
+
 **Villa's Mings, Torres in contention to return vs. Palace**\
 `Emery confirmed both centre-backs were "close" to returning but a final decision would be made after Tuesday's training session.`\
 https://nytimes.com/athletic/6945191/2026/01/06/tyrone-mings-pau-torres-aston-villa-injury-news/
