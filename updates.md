@@ -1,3 +1,15 @@
+**White House Posts False Jan. 6 Narrative on Riot’s 5th Anniversary**\
+`A new web page on the official White House site blames the Capitol Police and Democrats for the pro-Trump mob riot, absolving the president of responsibility and calling participants “innocent.”`\
+https://nytimes.com/2026/01/06/us/politics/trump-white-house-jan-6-website.html
+
+**A's denied 'Las Vegas Athletics' and 'Vegas Athletics' trademarks again**\
+`The trademark office ruled the Athletics did not have the necessary "acquired distinctiveness."`\
+https://nytimes.com/athletic/6946884/2026/01/06/as-denied-las-vegas-athletics-and-vegas-athletics-trademarks-again/
+
+**Falcons restructure Kirk Cousins' contract, will likely release him by March: Source**\
+`The Falcons have agreed to restructure Kirk Cousins' contract, essentially guaranteeing the QB will be released this offseason.`\
+https://nytimes.com/athletic/6946922/2026/01/06/kirk-cousins-falcons-contract-restructure-free-agent/
+
 **Are Trains Now the Most Luxurious Way to Travel?**\
 `From Angola to Turkmenistan, sumptuously outfitted railroad cars are taking passengers on over-the-top journeys back in time.`\
 https://nytimes.com/2026/01/06/t-magazine/luxury-train-travel-scenic.html

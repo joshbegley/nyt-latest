@@ -1,3 +1,11 @@
+**White House Posts False Jan. 6 Narrative on Riot’s 5th Anniversary**\
+`A new web page on the official White House site blames the Capitol Police and Democrats for the pro-Trump mob riot, absolving the president of responsibility and calling participants “innocent.”`\
+https://nytimes.com/2026/01/06/us/politics/trump-white-house-jan-6-website.html
+
+**A's denied 'Las Vegas Athletics' and 'Vegas Athletics' trademarks again**\
+`The trademark office ruled the Athletics did not have the necessary "acquired distinctiveness."`\
+https://nytimes.com/athletic/6946884/2026/01/06/as-denied-las-vegas-athletics-and-vegas-athletics-trademarks-again/
+
 **Are Trains Now the Most Luxurious Way to Travel?**\
 `From Angola to Turkmenistan, sumptuously outfitted railroad cars are taking passengers on over-the-top journeys back in time.`\
 https://nytimes.com/2026/01/06/t-magazine/luxury-train-travel-scenic.html
@@ -11,7 +19,7 @@ https://nytimes.com/2026/01/06/movies/mickey-rourke-eviction-gofundme.html
 https://nytimes.com/2026/01/06/world/looking-ahead-2026-ukraine-middle-east-china.html
 
 **Falcons restructure Kirk Cousins' contract, will likely release him by March: Source**\
-`The Falcons have agreed to restructure the contract of Kirk Cousins, essentially guaranteeing the QB will be released this offseason.`\
+`The Falcons have agreed to restructure Kirk Cousins' contract, essentially guaranteeing the QB will be released this offseason.`\
 https://nytimes.com/athletic/6946922/2026/01/06/kirk-cousins-falcons-contract-restructure-free-agent/
 
 **Egor Zamula signs with Blue Jackets after waivers, contract termination**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6946653/2026/01/06/bears-caleb-williams-packers-nfl
 **Matt LaFleur expects to have RT Zach Tom back for Packers' wild-card game vs. Bears**\
 `Tom has been out after injuring his knee in Week 15, but should be back to give Green Bay a playoff boost.`\
 https://nytimes.com/athletic/6946973/2026/01/06/zach-tom-packers-wild-card-bears/
-
-**Former Manchester United boss Ten Hag to return to FC Twente**\
-`Ten Hag, 55, was dismissed as Leverkusen coach after just three games in charge in September, having been sacked by United in October 2024.`\
-https://nytimes.com/athletic/6946877/2026/01/06/erik-ten-hag-fc-twente-technical-director/
-
-**49ers mailbag: What’s the best head-coaching fit for Robert Saleh?**\
-`Among this week's questions: With Dre Greenlaw gone, which 49ers player is most likely to get into a scrap with Big Dom on Sunday?`\
-https://nytimes.com/athletic/6946633/2026/01/06/49ers-robert-saleh-head-coaching-jobs/
 

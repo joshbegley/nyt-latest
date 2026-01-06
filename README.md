@@ -34,7 +34,3 @@ https://nytimes.com/2026/01/06/us/politics/doug-lamalfa-house-republican-majorit
 `Expectations for Williams against the Packers on Saturday night is one of four stage-setting storylines addressed within.`\
 https://nytimes.com/athletic/6946653/2026/01/06/bears-caleb-williams-packers-nfl-playoffs/
 
-**Matt LaFleur expects to have RT Zach Tom back for Packers' wild-card game vs. Bears**\
-`Tom has been out after injuring his knee in Week 15, but should be back to give Green Bay a playoff boost.`\
-https://nytimes.com/athletic/6946973/2026/01/06/zach-tom-packers-wild-card-bears/
-
