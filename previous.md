@@ -1,3 +1,7 @@
+**NFL MVP odds flip back to Stafford over Maye. Who you got?**\
+`The final MVP race came down to two. Here's why it was a really weird year.`\
+https://nytimes.com/athletic/6945289/2026/01/06/nfl-mvp-odds-stafford-maye-2/
+
 **What’s Your Reaction to the U.S. Military Operation in Venezuela?**\
 `U.S. forces carried out an audacious raid on Venezuela’s capital, seizing President Nicolás Maduro and his wife. President Trump said the United States would “run” the country.`\
 https://nytimes.com/2026/01/06/learning/whats-your-reaction-to-the-us-military-operation-in-venezuela.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6944595/2026/01/06/commanders-kliff-kingsbury-joe-w
 **The Sweatsuit Was Bound to Become a Meme**\
 `When President Trump shared an unverified photo of Nicolás Maduro in U.S. custody, a corner of the internet followed a familiar playbook for newsmaking images: Talk about the clothes.`\
 https://nytimes.com/2026/01/06/style/maduro-nike-tech-sweatsuit-meme.html
-
-**'If it works out, I will be happy' - Barca's Flick hopeful of Cancelo deal**\
-`Flick said Cancelo, 31, was a good short-term solution for Barca but insisted the deal was not yet complete.`\
-https://nytimes.com/athletic/6945802/2026/01/06/hansi-flick-barcelona-joao-cancelo-transfer/
 

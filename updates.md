@@ -1,3 +1,7 @@
+**NFL MVP odds flip back to Stafford over Maye. Who you got?**\
+`The final MVP race came down to two. Here's why it was a really weird year.`\
+https://nytimes.com/athletic/6945289/2026/01/06/nfl-mvp-odds-stafford-maye-2/
+
 **What’s Your Reaction to the U.S. Military Operation in Venezuela?**\
 `U.S. forces carried out an audacious raid on Venezuela’s capital, seizing President Nicolás Maduro and his wife. President Trump said the United States would “run” the country.`\
 https://nytimes.com/2026/01/06/learning/whats-your-reaction-to-the-us-military-operation-in-venezuela.html
