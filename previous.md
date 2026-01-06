@@ -1,4 +1,4 @@
-**Notre Dame QB transfer Kenny Minchey flips from Nebraska to Kentucky: Reports**\
+**Notre Dame QB transfer Kenny Minchey flips from Nebraska to Kentucky: Source**\
 `Minchey was set to fill a key hole for Nebraska after the portal entry of 22-game starter Dylan Raiola.`\
 https://nytimes.com/athletic/6944278/2026/01/05/notre-dame-kenny-minchey-flips-nebraska-kentucky/
 
