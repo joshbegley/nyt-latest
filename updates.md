@@ -1,3 +1,7 @@
+**Rosenior 'verbally agrees' to become Chelsea head coach**\
+`Rosenior called his 18 months with Strasbourg "the best of my professional career".`\
+https://nytimes.com/athletic/6941800/2026/01/06/liam-rosenior-verbally-agrees-to-become-new-chelsea-head-coach/
+
 **Anxiety. Relief. Uncertainty. For N.Y.C. Venezuelans, Emotions Collide.**\
 `Many celebrated the seizure of Nicolás Maduro. Others were clouded by uncertainty. And some wondered if they might find a path back to their homeland.`\
 https://nytimes.com/2026/01/06/nyregion/venezuelan-immigrants-nyc-maduro.html
