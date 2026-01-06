@@ -1,3 +1,7 @@
+**Rosa von Praunheim, 83, Dies; Broke Ground Capturing German Gay Life**\
+`His first feature-length movie, in 1971, was called his country’s “Stonewall moment,” for jump-starting a gay-rights movement. He became a leading voice of it.`\
+https://nytimes.com/2026/01/06/movies/rosa-von-praunheim-dead.html
+
 **Latin American countries condemn the U.S. at Organization of American States meeting.**\
 `By James Wagner`\
 https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/latin-american-countries-condemn-the-us-at-a-organization-of-american-states-meeting
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/06/us/tim-walz-minnesota-fraud-trump.html
 **Fire Ravages Los Angeles Motel That Played Supporting Role in Films**\
 `A city commission had just voted to consider the site of the old Hollywood Center Motel, which has long been vacant, for landmark status.`\
 https://nytimes.com/2026/01/06/us/hollywood-center-motel-fire-california.html
-
-**Ex-Turning Point Leader Gets Probation After Forging Voters’ Names**\
-`Austin Smith resigned from the group founded by Charlie Kirk and suspended his bid for re-election to the Arizona House in 2024.`\
-https://nytimes.com/2026/01/06/us/austin-smith-forgery-turning-point-arizona.html
 

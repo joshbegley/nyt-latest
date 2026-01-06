@@ -1,3 +1,7 @@
+**Rosa von Praunheim, 83, Dies; Broke Ground Capturing German Gay Life**\
+`His first feature-length movie, in 1971, was called his country’s “Stonewall moment,” for jump-starting a gay-rights movement. He became a leading voice of it.`\
+https://nytimes.com/2026/01/06/movies/rosa-von-praunheim-dead.html
+
 **Latin American countries condemn the U.S. at Organization of American States meeting.**\
 `By James Wagner`\
 https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/latin-american-countries-condemn-the-us-at-a-organization-of-american-states-meeting
