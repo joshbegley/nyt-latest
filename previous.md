@@ -1,3 +1,11 @@
+**Elon Musk’s xAI Raises $20 Billion**\
+`The funding is part of an A.I. frenzy, as investors aggressively plow enormous sums into fast-growing start-ups at sky-high valuations.`\
+https://nytimes.com/2026/01/06/technology/xai-elon-musk-funding.html
+
+**Israel Tells Doctors Without Borders to End Its Work in Gaza**\
+`The move against the medical aid group enforces policies limiting criticism of Israel’s conduct in the war and requiring personal details about Gazan employees.`\
+https://nytimes.com/2026/01/06/world/middleeast/israel-bars-doctors-without-borders-gaza.html
+
 **White House Posts False Jan. 6 Narrative on Riot’s 5th Anniversary**\
 `A new web page on the official White House site blames the Capitol Police and Democrats for the pro-Trump mob riot, absolving the president of responsibility and calling participants “innocent.”`\
 https://nytimes.com/2026/01/06/us/politics/trump-white-house-jan-6-website.html
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/6946922/2026/01/06/kirk-cousins-falcons-contract-re
 **Egor Zamula signs with Blue Jackets after waivers, contract termination**\
 `Zamula signed a one-year deal to help a short-handed Columbus blue line.`\
 https://nytimes.com/athletic/6946980/2026/01/06/egor-zamula-contract-blue-jackets/
-
-**LaMalfa’s Death Further Depletes House G.O.P. Majority**\
-`The California Republican’s sudden passing, on the same day that Representative Marjorie Taylor Greene’s resignation took effect, made the party’s House math even trickier.`\
-https://nytimes.com/2026/01/06/us/politics/doug-lamalfa-house-republican-majority.html
-
-**How will Caleb Williams fare in his first playoffs? Bears feel he's 'built for these moments'**\
-`Expectations for Williams against the Packers on Saturday night is one of four stage-setting storylines addressed within.`\
-https://nytimes.com/athletic/6946653/2026/01/06/bears-caleb-williams-packers-nfl-playoffs/
-
-**Matt LaFleur expects to have RT Zach Tom back for Packers' wild-card game vs. Bears**\
-`Tom has been out after injuring his knee in Week 15, but should be back to give Green Bay a playoff boost.`\
-https://nytimes.com/athletic/6946973/2026/01/06/zach-tom-packers-wild-card-bears/
 

@@ -1,3 +1,11 @@
+**Elon Musk’s xAI Raises $20 Billion**\
+`The funding is part of an A.I. frenzy, as investors aggressively plow enormous sums into fast-growing start-ups at sky-high valuations.`\
+https://nytimes.com/2026/01/06/technology/xai-elon-musk-funding.html
+
+**Israel Tells Doctors Without Borders to End Its Work in Gaza**\
+`The move against the medical aid group enforces policies limiting criticism of Israel’s conduct in the war and requiring personal details about Gazan employees.`\
+https://nytimes.com/2026/01/06/world/middleeast/israel-bars-doctors-without-borders-gaza.html
+
 **White House Posts False Jan. 6 Narrative on Riot’s 5th Anniversary**\
 `A new web page on the official White House site blames the Capitol Police and Democrats for the pro-Trump mob riot, absolving the president of responsibility and calling participants “innocent.”`\
 https://nytimes.com/2026/01/06/us/politics/trump-white-house-jan-6-website.html
