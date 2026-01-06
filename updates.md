@@ -1,3 +1,11 @@
+**Mamdani Targets Junk Fees and Hidden Charges in Two Executive Orders**\
+`Trying to protect consumers by going after deceptive business practices has been an early focus of the new mayor’s administration.`\
+https://nytimes.com/2026/01/05/nyregion/mamdani-affordability-consumer-protections.html
+
+**Buccaneers' Todd Bowles makes case to return, points to 3 NFC South titles**\
+`Bowles said he had yet to meet with Tampa Bay ownership on Monday, but a meeting with the Glazer family is scheduled for this week.`\
+https://nytimes.com/athletic/6943498/2026/01/05/todd-bowles-buccaneers-coaching-future/
+
 **Rangers' James Dolan reiterates faith in Chris Drury in first interview since 2023**\
 `Asked directly if he still has trust in Drury, Dolan responded with a firm “yes.”`\
 https://nytimes.com/athletic/6943731/2026/01/05/rangers-james-dolan-chris-drury/
