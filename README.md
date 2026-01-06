@@ -1,40 +1,40 @@
-**Damon Wilson, Missouri DE in legal dispute with Georgia, to re-enter transfer portal**\
-`His decision to enter is intriguing given his ongoing legal dispute with Georgia over his exit from that program last year.`\
-https://nytimes.com/athletic/6946649/2026/01/06/damon-wilson-transfer-missouri-georgia/
+**The other vulgar bat knob card: Jim Nettles' 1990 Pacific #126**\
+`From 1989 to 1990 there was a strange number of profane bat knobs making it onto baseball cards. `\
+https://nytimes.com/athletic/6945936/2026/01/06/jim-nettles-error-card-bat-knob/
 
-**How to watch Golden Knights vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6946777/2026/01/06/golden-knights-vs-jets-stream-how-to-watch-jan-6/
+**Four candidates to replace Matt Eberflus as Cowboys defensive coordinator**\
+`History points to the Cowboys hiring a defensive coordinator who has head-coaching experience.`\
+https://nytimes.com/athletic/6946625/2026/01/06/cowboys-defensive-coordinator-search-candidates/
 
-**How to watch Bruins vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6946775/2026/01/06/bruins-vs-kraken-stream-how-to-watch-jan-6/
+**How to watch Heat vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946827/2026/01/06/heat-vs-timberwolves-stream-how-to-watch-jan-6/
 
-**Arkansas Special Primary Election Results**\
-`Get live results from the 2026 Arkansas special primary elections.`\
-https://nytimes.com/interactive/2026/01/06/us/elections/results-arkansas-special-primary.html
+**How to watch Predators vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946824/2026/01/06/predators-vs-oilers-stream-how-to-watch-jan-6/
 
-**Virginia State Legislature Special Election Results**\
-`Get live results from the 2026 Virginia special state legislature elections.`\
-https://nytimes.com/interactive/2026/01/06/us/elections/results-virginia-special-election.html
+**Democrats Commemorate Jan. 6, Highlighting Trump’s Role**\
+`On Capitol Hill, Democrats spent the fifth anniversary of the riot forcefully rebutting the president’s attempts to rewrite the history of the attack, as he stepped up his false claims.`\
+https://nytimes.com/2026/01/06/us/politics/democrats-jan-6-milestone-trump.html
 
-**Winter Weather Snarls Travel Across Northern Europe**\
-`Ice and cold disrupted airports and caused car accidents on Tuesday. More snow is expected in Amsterdam and Brussels on Wednesday.`\
-https://nytimes.com/2026/01/06/world/europe/amsterdam-paris-travel-delays-weather.html
+**How to watch Mavericks vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946815/2026/01/06/mavericks-vs-kings-stream-how-to-watch-jan-6/
 
-**How to watch Oregon vs. USC women's basketball: Time, TV, streaming**\
-`Find out how to watch the Oregon Ducks play the USC Trojans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6946733/2026/01/06/oregon-vs-usc-stream-how-to-watch-jan-6/
+**How to watch Blue Jackets vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946810/2026/01/06/blue-jackets-vs-sharks-stream-how-to-watch-jan-6/
 
-**Georgia State House District 23 Special Election Results**\
-`Get live results from the 2026 Georgia special election.`\
-https://nytimes.com/interactive/2026/01/06/us/elections/results-georgia-state-house-district-23-special.html
+**How to watch Lakers vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946802/2026/01/06/lakers-vs-pelicans-stream-how-to-watch-jan-6/
 
-**Connecticut State House District 25 Special Election Results**\
-`Get live results from the 2026 Connecticut special election.`\
-https://nytimes.com/interactive/2026/01/06/us/elections/results-connecticut-state-house-district-25-special.html
+**Funeral Held for Woman Killed in U.S. Strikes on Venezuela**\
+`The family of Rosa González held her funeral on Monday in Catia La Mar, Venezuela. Ms. González, 80, died from her injuries after U.S. airstrikes hit a three-story apartment complex early Saturday.`\
+https://nytimes.com/video/world/americas/100000010627172/venezuela-funeral-air-strikes-death.html
 
-**South Carolina State House District 98 Special Election Results**\
-`Get live results from the 2026 South Carolina special election.`\
-https://nytimes.com/interactive/2026/01/06/us/elections/results-south-carolina-state-house-district-98-special.html
+**How to watch Spurs vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6946796/2026/01/06/spurs-vs-grizzlies-stream-how-to-watch-jan-6/
 
