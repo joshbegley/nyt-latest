@@ -1,3 +1,15 @@
+**In major shakeup, Commanders part ways with OC Kliff Kingsbury and DC Joe Whitt Jr.**\
+`After finishing 5-12, the Commanders are making major changes on both sides of the ball.`\
+https://nytimes.com/athletic/6944595/2026/01/06/commanders-kliff-kingsbury-joe-whitt-coordinators/
+
+**The Sweatsuit Was Bound to Become a Meme**\
+`When President Trump shared an unverified photo of Nicolás Maduro in U.S. custody, a corner of the internet followed a familiar playbook for newsmaking images: Talk about the clothes.`\
+https://nytimes.com/2026/01/06/style/maduro-nike-tech-sweatsuit-meme.html
+
+**'If it works out, I will be happy' - Barca's Flick hopeful of Cancelo deal**\
+`Flick said Cancelo, 31, was a good short-term solution for Barca but insisted the deal was not yet complete.`\
+https://nytimes.com/athletic/6945802/2026/01/06/hansi-flick-barcelona-joao-cancelo-transfer/
+
 **What I'm hearing about the Penguins' appetite for trades, playoff race, new owners**\
 `The Penguins figure to be heavily involved in the trade market now and into the summer. Here's why.`\
 https://nytimes.com/athletic/6943544/2026/01/06/penguins-nhl-trade-deadline-playoffs/
