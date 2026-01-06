@@ -1,3 +1,15 @@
+**Tom Izzo 'ticked off' with former MSU player Paul Davis after ejection**\
+`Tom Izzo's 750th win was overshadowed by the interaction between Davis and a referee.`\
+https://nytimes.com/athletic/6945130/2026/01/06/tom-izzo-michigan-state-paul-davis-ejection/
+
+**Are these roller-coaster NHL teams for real?**\
+`Plus: We need to talk about the Western Conference.`\
+https://nytimes.com/athletic/6945419/2026/01/06/nhl-roller-coaster-teams-red-light/
+
+**The Bounce: Trae Young's tricky trade market, and his tumultuous Hawks timeline**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6945579/2026/01/06/trae-young-trade-nba-the-bounce/
+
 **Submit your Michigan Wolverines questions for Austin Meek’s mailbag**\
 `What's on your mind as the Kyle Whittingham era begins and the men's basketball team takes aim at a national title run?`\
 https://nytimes.com/athletic/6945546/2026/01/06/michigan-football-basketball-whittingham-mailbag-questions/

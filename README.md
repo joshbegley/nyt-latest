@@ -1,5 +1,9 @@
+**Spurs' Yang, Palace's Esse set to join Coventry on loan**\
+`The two players are set to join the Championship leaders for the second half of the season.`\
+https://nytimes.com/athletic/6945576/2026/01/06/yang-min-hyeok-romain-esse-coventry-loan/
+
 **Tom Izzo 'ticked off' with former MSU player Paul Davis after ejection**\
-`Tom Izzo's 750th win was overshadowed by the interaction between Davis and a referee.`\
+`Izzo's 750th win was overshadowed by the interaction between Davis and a referee.`\
 https://nytimes.com/athletic/6945130/2026/01/06/tom-izzo-michigan-state-paul-davis-ejection/
 
 **Are these roller-coaster NHL teams for real?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6945156/2026/01/06/kevin-durant-suns-rockets-commen
 **Doug LaMalfa, Republican Congressman, Dies at 65**\
 `Mr. LaMalfa had represented a district in northeastern California since 2013.`\
 https://nytimes.com/2026/01/06/us/politics/doug-lamalfa-dead.html
-
-**Will unintended consequences ruin this year's MVP vote, All-NBA teams?**\
-`Plus: Get ready, salary-cap nerds: A fun contract deadline arrives later this week.`\
-https://nytimes.com/athletic/6942978/2026/01/06/nba-65-game-rule-awards-consequences/
 
