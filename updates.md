@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘Either a Good Omen or a Nightmare’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/01/07/style/tiny-modern-love-stories-either-a-good-omen-or-a-nightmare.html
+
+**Trump Officials Flip Food Pyramid With New Dietary Guidelines**\
+`The Trump administration released new dietary guidelines on Wednesday that flipped the food pyramid on its head, putting steak, cheese and whole milk near the top.`\
+https://nytimes.com/video/us/100000010630469/trump-officials-flip-food-pyramid-with-new-dietary-guidelines.html
+
 **How Venezuela Is Already Rattling One Republican Primary**\
 `Most Republicans are on board with Trump’s aggression. Not Thomas Massie.`\
 https://nytimes.com/2026/01/07/us/politics/venezuela-massie-republican-primary-kentucky.html
