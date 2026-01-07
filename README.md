@@ -1,3 +1,15 @@
+**Under the Gaze of a Japanese Castle, the Art of Holding Space**\
+`Mindful luxury meets artistic inspiration at a new hotel facing Nagoya Castle, with spaces that hold tradition and modernity in balance.`\
+https://nytimes.com/paidpost/espacio-hakone/under-the-gaze-of-a-japanese-castle-the-art-of-holding-space.html
+
+**Entering the Frozen Continent**\
+`As the icebreaker heads into the sea ice zone around Antarctica, penguins and seals start to appear. The lead scientist on the vessel teaches our climate reporter, Raymond Zhong, to identify different kinds of sea ice.`\
+https://nytimes.com/video/climate/100000010625443/entering-the-frozen-continent.html
+
+**Mamdani Issues Executive Orders on Homeless Shelters and City Jails**\
+`Mayor Zohran Mamdani directed city agencies to make plans to comply with rules governing health and safety at the facilities, and said they must work to end solitary confinement.`\
+https://nytimes.com/2026/01/06/nyregion/mamdani-rikers-solitary-confinement.html
+
 **How to watch 49ers at Eagles: Wild Card Round Time, TV, streaming**\
 `Find out how to watch the San Francisco 49ers play the Philadelphia Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6947987/2026/01/06/49ers-vs-eagles-stream-how-to-watch-jan-11/
@@ -26,17 +38,4 @@ https://nytimes.com/video/world/europe/100000010627995/amsterdam-airport-snow-fl
 **Justice Dept. Memo Approved Military Incursion Into Venezuela as Lawful**\
 `The specifics of the memo are unclear. But Attorney General Pam Bondi told lawmakers in briefings this week that the administration would share the document with them.`\
 https://nytimes.com/2026/01/06/us/politics/justice-dept-memo-venezuela.html
-
-**Palace could sell Guehi this month if 'threshold' met - Glasner**\
-`Manchester City are weighing up whether to move for Guehi this month after injuries to defenders Josko Gvardiol and Ruben Dias.R`\
-https://nytimes.com/athletic/6947890/2026/01/06/marc-guehi-manchester-city-transfer-crystal-palace/
-
-**A Luxury Kyoto Hotel Pays Homage to Its Cultural Ancestor **\
-`The Imperial Hotel Kyoto will open in spring 2026, housed in a restored cultural gem that has been painstakingly preserved using modern methods.
-`\
-https://nytimes.com/paidpost/imperial-hotel/imperial-hotel/a-luxury-kyoto-hotel-pays-homage-to-its-cultural-ancestor.html
-
-**America Is Bad at Accountability**\
-`“The United States has a problem with elite impunity,” says the Opinion columnist Jamelle Bouie, as he looks back on the five years since the Jan. 6 attack on the Capitol.`\
-https://nytimes.com/video/opinion/100000010627706/america-is-bad-at-accountability.html
 
