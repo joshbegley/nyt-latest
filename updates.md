@@ -1,3 +1,7 @@
+**Is that frazil, grease or shuga? How to identify sea ice.**\
+`(No description)`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/is-that-frazil-grease-or-shuga-how-to-identify-sea-ice
+
 **Federal Agent Shoots Woman Amid Minneapolis Crackdown**\
 `Her condition was not immediately known. Gov. Tim Walz asked for calm.`\
 https://nytimes.com/2026/01/07/us/shooting-immigration-minneapolis.html

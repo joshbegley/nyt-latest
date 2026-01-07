@@ -1,3 +1,7 @@
+**Submit your questions for our next Giants Mailbagg!**\
+`<p>The Giants have made incremental changes to their roster this offseason.`\
+https://nytimes.com/athletic/6950314/2026/01/07/sf-giants-mailbagg-question-submissions/
+
 **Is that frazil, grease or shuga? How to identify sea ice.**\
 `(No description)`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/is-that-frazil-grease-or-shuga-how-to-identify-sea-ice
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010628981/tourists-stranded-yem
 **A Canada collision course? USMNT's many potential World Cup knockout scenarios**\
 `The vast number of World Cup knockout round permutations includes a fascinating potential duel between two of the co-hosts`\
 https://nytimes.com/athletic/6948519/2026/01/07/usmnt-2026-world-cup-knockout-round-opponents-scenarios/
-
-**Do You Always Need to Shampoo Twice?**\
-`Do you really need to double-shampoo? Here’s the verdict.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010599573/do-you-always-need-to-shampoo-twice.html
 
