@@ -1,3 +1,7 @@
+**Pacers lose franchise-record 13th straight, leaving coach stuck one win shy of 1,000**\
+`The Pacers are on pace for a 13-win season, which would tie the 1998-99 Bulls for the fewest by a team that made the previous finals.`\
+https://nytimes.com/athletic/6947629/2026/01/06/pacers-loss-record-13-straight-cavaliers/
+
 **Washington has 'no intention' to release QB who signed deal but entered transfer portal**\
 `Washington has no intention of releasing Williams from the contract he signed on Jan. 2, a program source told The Athletic.`\
 https://nytimes.com/athletic/6948295/2026/01/06/washington-qb-demond-williams-transfer-portal-contract/
