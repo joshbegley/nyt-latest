@@ -1,3 +1,15 @@
+**John Harbaugh's tenure in Baltimore is over. Ravens felt it was time for something new**\
+`There are several reasons Baltimore hasn't gotten over the hump recently. But ultimately, Harbaugh and his staff must bear responsibility.`\
+https://nytimes.com/athletic/6948144/2026/01/07/john-harbaugh-fired-ravens-new-coach/
+
+**Should Staten Island and the East Village Share a House District?**\
+`A court dispute over the lines of the 11th Congressional District represents one of New York Democrats’ few hopes of drawing maps in their favor for the 2026 midterms.`\
+https://nytimes.com/2026/01/07/nyregion/new-york-congressional-redistricting-democrats-republicans.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/07/crosswords/spelling-bee-forum.html
+
 **The Ashes Briefing: Bethell offers glimpse of England's future to delay Australia's victory charge**\
 `The tourists lead by 119 runs going into the final day with only two wickets in hand, but their new No 3 is still there on 142 not out`\
 https://nytimes.com/athletic/6947360/2026/01/07/england-bethell-australia-boland-ashes-briefing/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6942027/2026/01/07/its-613-days-since-stefan-bajcet
 **Is Mathys Tel finally about to get a run of matches in his favoured position?**\
 `Since joining Spurs, the young forward has felt slightly out of place - could this be the chance to stake his claim?`\
 https://nytimes.com/athletic/6945322/2026/01/07/is-mathys-tel-finally-about-to-get-a-run-of-matches-in-his-favoured-position/
-
-**Raul Jimenez and why you shouldn't judge centre-forwards on goals alone**\
-`The Fulham striker has become one of the Premier League's most impressive link-up players `\
-https://nytimes.com/athletic/6945161/2026/01/07/raul-jimenez-fulham-attacking-contributions/
-
-**Who should Manchester United appoint as their next permanent manager?**\
-`Analysing who the data suggests United's ideal permanent head coach might be - plus, a group of our writers make their choices`\
-https://nytimes.com/athletic/6944833/2026/01/07/man-utd-next-manager-permanent-appointment/
-
-**Russia Sends Naval Vessel to Escort Oil Tanker U.S. Is Pursuing**\
-`The development deepens the confrontation over the tanker formerly known as the Bella 1, which the United States wants to seize but which Russia has sought to protect.`\
-https://nytimes.com/2026/01/06/world/americas/russia-tanker-bella.html
 
