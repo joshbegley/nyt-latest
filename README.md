@@ -1,3 +1,27 @@
+**How to watch Jazz vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6951478/2026/01/07/jazz-vs-thunder-stream-how-to-watch-jan-7/
+
+**How to watch Lakers vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6951473/2026/01/07/lakers-vs-spurs-stream-how-to-watch-jan-7/
+
+**How to watch Cal vs. Virginia men's basketball: Time, TV, streaming**\
+`Find out how to watch the California Golden Bears play the Virginia Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6951467/2026/01/07/cal-vs-virginia-stream-how-to-watch-jan-7/
+
+**How to watch Oklahoma State vs. TCU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Oklahoma State Cowgirls play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6951455/2026/01/07/oklahoma-state-vs-tcu-stream-how-to-watch-jan-7/
+
+**How to watch Clippers vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6951449/2026/01/07/clippers-vs-knicks-stream-how-to-watch-jan-7/
+
+**How to watch Iowa State vs. Baylor men's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6951445/2026/01/07/iowa-state-vs-baylor-stream-how-to-watch-jan-7/
+
 **How to watch Washington vs. Purdue men's basketball: Time, TV, streaming**\
 `Find out how to watch the Washington Huskies play the Purdue Boilermakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6951436/2026/01/07/washington-vs-purdue-stream-how-to-watch-jan-7/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6951420/2026/01/07/arizona-state-vs-byu-stream-how-
 **Fantasy basketball hot topics of the week: Replacing Jokic, 3 key Denver pickups and more**\
 `Stan Son applies a fantasy lens to the latest news around the league, including Nikola Jokic's injury, Kevin Durant's usage and more. `\
 https://nytimes.com/athletic/6950944/2026/01/07/fantasy-basketball-hot-topics-nikola-jokic-injury/
-
-**Coordinator candidates to watch as the Commanders start their search**\
-`Coach Dan Quinn has dropped hints, some more subtle than others, about the traits he wants in his next play callers.`\
-https://nytimes.com/athletic/6950743/2026/01/07/commanders-offensive-defensive-coordinator-candidates/
-
-**Trump’s Voters Are Discovering What ‘America First’ Really Means**\
-`Whether or not the Venezuelan raid was advisable, it was Trumpian.`\
-https://nytimes.com/2026/01/07/opinion/trump-venezuela-america-first.html
-
-**It’s Not Going to Be Trump’s Economy Anymore**\
-`Will anyone be in charge?`\
-https://nytimes.com/2026/01/07/opinion/trump-economy-inflation-tariffs.html
-
-**Democrats Seek Answers About Oil Industry’s Knowledge of Venezuela Operation**\
-`Democrats demanded information from seven top U.S. oil companies about any meetings with the Trump administration regarding plans to control Venezuela’s oil industry.`\
-https://nytimes.com/2026/01/07/climate/democrats-oil-companies-venezuela.html
-
-**College football parity, for those who can afford it: MoneyCall**\
-`The latest edition of The Athletic's free weekly sports-business cheat sheet.`\
-https://nytimes.com/athletic/6951114/2026/01/07/cfp-playoff-indiana-ole-miss-moneycall/
-
-**Pittsburgh Post-Gazette Announces It Will Cease Operations**\
-`The family-owned company that operates the newspaper cited mounting losses and labor constraints. A final edition is expected on Sunday, May 3.`\
-https://nytimes.com/2026/01/07/business/media/pittsburgh-post-gazette-closing.html
 
