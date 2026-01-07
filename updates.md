@@ -1,3 +1,7 @@
+**Rudy Gobert rises again for the suddenly surging Minnesota Timberwolves**\
+`At 33 years old and in his 13th year in the league, the Timberwolves' center is playing as well as he has ever played.`\
+https://nytimes.com/athletic/6948130/2026/01/07/rudy-gobert-surging-timberwolves/
+
 **From Metcalf's miracle to Garrett's record: The NFL season's best plays, week by week**\
 `Here are our NFL plays of the year, with one selection from all 18 regular-season weeks.`\
 https://nytimes.com/athletic/6943126/2026/01/07/nfl-best-plays-touchdowns-catches-2025-season/
