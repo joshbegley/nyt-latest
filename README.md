@@ -1,3 +1,11 @@
+**The Briefing: Manchester City 1 Brighton 1 — How did young centre-backs get on? Why can't City take control?**\
+`Manchester City's title bid faltered once again with a third draw in a row, this time against Brighton`\
+https://nytimes.com/athletic/6937567/2026/01/07/manchester-city-brighton-briefing-premier-league/
+
+**Texas A&M, Under New Curriculum Limits, Warns Professor Not to Teach Plato**\
+`The university is reviewing courses under new rules restricting teaching about race and gender. Administrators told a philosophy professor to cut some lessons on Plato to comply.`\
+https://nytimes.com/2026/01/07/us/tamu-plato-race-gender.html
+
 **Lawmakers Split After Classified Briefings on Venezuela**\
 `Republicans praised what they characterized as a narrow and well-executed plan, while Democrats expressed alarm, warning that the mission was vaguely defined.`\
 https://nytimes.com/2026/01/07/us/politics/venezuela-briefing-congress-rubio.html
@@ -7,7 +15,7 @@ https://nytimes.com/2026/01/07/us/politics/venezuela-briefing-congress-rubio.htm
 https://nytimes.com/athletic/6951658/2026/01/07/sf-giants-zac-gallen-free-agent-fit/
 
 **The Briefing: Fulham 2 Chelsea 1 - What was Cucurella thinking? Where does this leave them? Level of fan unrest?**\
-`Our writers break down the talking points from Chelsea's defeat to Fulham at Craven Cottage.`\
+`Our writers break down the talking points from Chelsea's defeat to Fulham at Craven Cottage`\
 https://nytimes.com/athletic/6937566/2026/01/07/fulham-chelsea-cucurella-delap/
 
 **Mamdani Names Lawyer Who Fought N.Y.C. Agencies to Human Rights Post**\
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6951674/2026/01/07/john-harbaughs-fired-baltimore-r
 **What’s in Our Queue? Slay the Spire and More**\
 `Text by Kevin Draper`\
 https://nytimes.com/card/2026/01/07/arts/editors-recommendations-spire
-
-**Videos Show Federal Agent Shooting Motorist in Minneapolis**\
-`Clips analyzed by The Times show the moments immediately before and after a woman was fatally shot.`\
-https://nytimes.com/2026/01/07/us/videos-ice-shooting-woman-minneapolis.html
-
-**All Eyes on the U.S. in 2026**\
-`Our reporters in Washington tell us what they’re watching from the Trump administration.`\
-https://nytimes.com/2026/01/07/world/us-trump-venezuela-2026.html
 
