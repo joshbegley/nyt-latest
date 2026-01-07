@@ -1,3 +1,7 @@
+**Washington has 'no intention' to release QB who signed deal but entered transfer portal anyway**\
+`Washington has no intention of releasing Williams from the contract he signed on Jan. 2, a program source told The Athletic.`\
+https://nytimes.com/athletic/6948295/2026/01/06/washington-qb-demond-williams-transfer-portal-contract/
+
 **FEMA Staff Bracing for Dismissal of 1,000 Disaster Workers**\
 `The job cuts expected this month are part of a plan by the Homeland Security secretary, Kristi Noem, to remake the agency.`\
 https://nytimes.com/2026/01/06/climate/fema-staff-cuts-1000-workers.html
