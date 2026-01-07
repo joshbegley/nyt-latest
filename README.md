@@ -1,3 +1,15 @@
+**Jerry Jones: Cowboys will do some 'dramatic things' to improve team**\
+`The Cowboys missed the postseason for the second consecutive year. Jones says he's prepared to "bust the budget" to get better.`\
+https://nytimes.com/athletic/6951248/2026/01/07/jerry-jones-cowboys-owner-super-bowl-titles/
+
+**Why the NWSL Players Association opposes the league's High Impact Player rule**\
+`NWSLPA executive director says arbitration will "take some time".`\
+https://nytimes.com/athletic/6948716/2026/01/07/nwsl-players-association-high-impact-player-not-roster-classification/
+
+**Which coaching candidate could Ravens hire to replace John Harbaugh?**\
+`Baltimore is searching for a new head coach for the first time since 2008. Which candidate on the market would be a suitable replacement?`\
+https://nytimes.com/athletic/6950869/2026/01/07/ravens-coaching-candidates-john-harbaugh-fired-belichick-flores/
+
 **Eagles' Lane Johnson returns to practice ahead of playoff game vs. 49ers**\
 `It's a positive sign that the five-time All-Pro tackle is on pace to return for Philadelphia's postseason opener Sunday.`\
 https://nytimes.com/athletic/6951335/2026/01/07/lane-johnson-eagles-injury-update-status-playoffs-49ers/
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/6951538/2026/01/07/magic-vs-nets-stream-how-to-watc
 **How to watch Bucks vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6951535/2026/01/07/bucks-vs-warriors-stream-how-to-watch-jan-7/
-
-**How to watch Senators vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6951528/2026/01/07/senators-vs-mammoth-stream-how-to-watch-jan-7/
-
-**How to watch Arkansas vs. Ole Miss men's basketball: Time, TV, streaming**\
-`Find out how to watch the Arkansas Razorbacks play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6951526/2026/01/07/arkansas-vs-ole-miss-stream-how-to-watch-jan-7/
 
