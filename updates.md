@@ -1,3 +1,15 @@
+**The New York Times in Print for Wednesday, Jan. 7, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/07/todays-new-york-times
+
+**I May Be Free, but the Belarusian People Are Not**\
+`The world must not stop supporting dissidents in Belarus despite the release of some from prison.`\
+https://nytimes.com/2026/01/07/opinion/ales-bialiatski-belarus-lukashenko.html
+
+**Nuno Espirito Santo, Nottingham Forest and a lingering sense of regret**\
+`The beleaguered West Ham manager watched his team lose to his former club Nottingham Forest, the team he took into European competition`\
+https://nytimes.com/athletic/6940004/2026/01/07/nuno-west-ham-forest-edu-marinakis-regret/
+
 **The rise of Morgan Rogers: From the Championship to one of Europe's best No 10s**\
 `Aston Villa star will be, if not already, one of Europe's top attacking midfielders and may be only scratching the surface of his talent`\
 https://nytimes.com/athletic/6921814/2026/01/07/morgan-rogers-aston-villa-spectacular-rise/

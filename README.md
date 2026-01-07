@@ -1,3 +1,7 @@
+**LeBron James says he needs to fit in around Luka Dončić as duo's chemistry grows**\
+`This was the kind of performance coach J.J. Redick can reference as the Lakers figure out how to use their best players this season.`\
+https://nytimes.com/athletic/6948653/2026/01/07/lebron-james-luka-doncic-chemistry-grows/
+
 **The New York Times in Print for Wednesday, Jan. 7, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/07/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6940004/2026/01/07/nuno-west-ham-forest-edu-marinak
 **What the Supercopa means to Barcelona and Real Madrid... and why it's played in Saudi Arabia**\
 `A tournament which is often criticised for off-pitch reasons has become a barometer by which to measure Spain's big two at midseason`\
 https://nytimes.com/athletic/6945629/2026/01/07/barcelona-real-madrid-supercopa-saudi-arabia/
-
-**Arsenal's Martin Zubimendi and the side of his game that went under the radar**\
-`Before his arrival in north London this summer, most of the talk around the Spaniard centred on what he would offer Arsenal in possession`\
-https://nytimes.com/athletic/6942125/2026/01/07/martin-zubimendi-arsenal-defensive-analysis/
 
