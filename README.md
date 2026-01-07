@@ -1,3 +1,7 @@
+**College football parity, for those who can afford it: MoneyCall**\
+`The latest edition of The Athletic's free weekly sports-business cheat sheet.`\
+https://nytimes.com/athletic/6951114/2026/01/07/cfp-playoff-indiana-ole-miss-moneycall/
+
 **Pittsburgh Post-Gazette Announces It Will Cease Operations**\
 `The family-owned company that operates the newspaper cited mounting losses and labor constraints. A final edition is expected on Sunday, May 3.`\
 https://nytimes.com/2026/01/07/business/media/pittsburgh-post-gazette-closing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6950906/2026/01/07/f1-launch-season-2026-prime-tire
 **Scientists Discover Oldest Poison, on 60,000-Year-Old Arrows**\
 `Residues on arrow tips found in South Africa hint at how far back in history humans have been using poison for survival.`\
 https://nytimes.com/2026/01/07/science/poison-arrows-south-africa.html
-
-**Philip Yancey, Prominent Christian Author, Admits to Extramarital Affair**\
-`He said he would retire from writing and public speaking.`\
-https://nytimes.com/2026/01/07/us/philip-yancey-affair.html
 
