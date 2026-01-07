@@ -1,3 +1,19 @@
+**Trump’s Voters Are Discovering What ‘America First’ Really Means**\
+`Whether or not the Venezuelan raid was advisable, it was Trumpian.`\
+https://nytimes.com/2026/01/07/opinion/trump-venezuela-america-first.html
+
+**It’s Not Going to Be Trump’s Economy Anymore**\
+`Will anyone be in charge?`\
+https://nytimes.com/2026/01/07/opinion/trump-economy-inflation-tariffs.html
+
+**Democrats Seek Answers About Oil Industry’s Knowledge of Venezuela Operation**\
+`Democrats demanded information from seven top U.S. oil companies about any meetings with the Trump administration regarding plans to control Venezuela’s oil industry.`\
+https://nytimes.com/2026/01/07/climate/democrats-oil-companies-venezuela.html
+
+**College football parity, for those who can afford it: MoneyCall**\
+`The latest edition of The Athletic's free weekly sports-business cheat sheet.`\
+https://nytimes.com/athletic/6951114/2026/01/07/cfp-playoff-indiana-ole-miss-moneycall/
+
 **Pittsburgh Post-Gazette Announces It Will Cease Operations**\
 `The family-owned company that operates the newspaper cited mounting losses and labor constraints. A final edition is expected on Sunday, May 3.`\
 https://nytimes.com/2026/01/07/business/media/pittsburgh-post-gazette-closing.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6950708/2026/01/07/ny-rangers-kiefer-sherwood-trade
 **Rubio Lays Out Long-Term U.S. Involvement in Venezuela**\
 `The secretary of state told lawmakers the administration has a three-phase plan for Venezuela after ousting its leader, including seizing oil and controlling the proceeds.`\
 https://nytimes.com/2026/01/07/us/politics/us-venezuela-plan-rubio.html
-
-**How The Times Is Drawing on Over a Century of Reporting in Venezuela**\
-`The New York Times has been on the ground in the country since at least the 1880s, through celebration, suffering and political turmoil.`\
-https://nytimes.com/2026/01/07/insider/venezuela-new-york-times.html
-
-**Prime Tire: Welcome to F1 launch season!**\
-`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
-https://nytimes.com/athletic/6950906/2026/01/07/f1-launch-season-2026-prime-tire/
-
-**Scientists Discover Oldest Poison, on 60,000-Year-Old Arrows**\
-`Residues on arrow tips found in South Africa hint at how far back in history humans have been using poison for survival.`\
-https://nytimes.com/2026/01/07/science/poison-arrows-south-africa.html
-
-**Philip Yancey, Prominent Christian Author, Admits to Extramarital Affair**\
-`He said he would retire from writing and public speaking.`\
-https://nytimes.com/2026/01/07/us/philip-yancey-affair.html
 
