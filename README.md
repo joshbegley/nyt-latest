@@ -1,3 +1,7 @@
+**Bruce Crawford, Arts-Loving Adman Who Led the Met Opera, Dies at 96**\
+`He helped build the ad agency BBDO International into a powerhouse before channeling his passion for opera into managing the Met and revitalizing Lincoln Center.`\
+https://nytimes.com/2026/01/07/arts/music/bruce-crawford-dead.html
+
 **Keep Pounding with Cam Newton? It could happen at Panthers' playoff game vs. Rams**\
 `Carolina greats Greg Olsen, Jordan Gross and Ryan Kalil have hit the team's trademark drum before games this season.`\
 https://nytimes.com/athletic/6950721/2026/01/07/cam-newton-panthers-keep-pounding-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/07/us/politics/trump-minnesota-fraud.html
 **Jules Bianchi’s last go-kart stolen from family home**\
 `Bianchi died on July 17, 2015, aged 25, due to injuries sustained in a crash during the 2014 Japanese Grand Prix nine months prior.`\
 https://nytimes.com/athletic/6950654/2026/01/07/jules-bianchi-karts-stolen-f1/
-
-**Trump officials threaten to expand a crackdown on fraud in Minnesota to other Democratic-run states.**\
-`By Madeleine Ngo`\
-https://nytimes.com/live/2026/01/07/us/trump-news/trump-officials-threaten-to-expand-a-crackdown-on-fraud-in-minnesota-to-other-democratic-run-states
 
