@@ -1,3 +1,7 @@
+**Buy Greenland? Take It? An Old Pact Already Gives Trump a Free Hand.**\
+`Analysts say the Cold War agreement allows the president to increase the American military presence almost at will.`\
+https://nytimes.com/2026/01/07/world/europe/trump-greenland-denmark-us-defense-pact.html
+
 **Ronny Chieng Remarks on Trump ‘DoorDash-ing’ Maduro to Brooklyn**\
 `“The Daily Show” host quipped that after a surprise capture, Nicolás Maduro “will face justice in the best legal system in the world that we illegally kidnapped him to.”`\
 https://nytimes.com/2026/01/07/arts/television/ronny-chieng-trump-maduro-brooklyn.html
