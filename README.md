@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6950271/2026/01/07/pga-america-ceo-derek-sprague-st
 `Readers discuss comments by Stephen Miller about U.S. power and by the Danish prime minister about NATO. Also: Deaths on subway tracks.`\
 https://nytimes.com/2026/01/07/opinion/stephen-miller-greenland.html
 
-**Federal Agent Shoots Woman Amid Minneapolis Crackdown**\
+**Live Updates: Federal Agent Shoots Woman Amid Minneapolis Crackdown**\
 `The person was killed, federal authorities said. Gov. Tim Walz asked for calm as protesters gathered.`\
 https://nytimes.com/live/2026/01/07/us/minnesota-shooting-ice
 
