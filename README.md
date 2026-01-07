@@ -1,3 +1,7 @@
+**Ex-UNLV QB Anthony Colandrea signs with Nebraska after Kenny Minchey flips**\
+`Colandrea was the 2025 Mountain West offensive player of the year, throwing for 3,459 yards and 23 touchdowns. `\
+https://nytimes.com/athletic/6948070/2026/01/06/anthony-colandrea-unlv-nebraska-kenny-minchey/
+
 **N.Y.C. Child Care Programs Brace for Cuts After Federal Funding Freeze**\
 `The Trump administration said it was placing a hold on $10 billion in subsidies across five states, including New York.`\
 https://nytimes.com/2026/01/06/nyregion/nyc-child-care-programs-trump-funding-freeze.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/well/brain-health-exercise-workout.html
 **Lenny Dykstra charged with drug possession, awaits preliminary hearing**\
 `Dykstra was arrested Friday on suspicion of possessing narcotics and narcotic-related equipment but was not taken into custody, per police.`\
 https://nytimes.com/athletic/6947297/2026/01/06/lenny-dykstra-charges-drugs-mlb-mets-phillies/
-
-**At home in Venezuela, a Giants prospect details the uncertainty in his country**\
-`Giants prospect Jesús Rodríguez says that life in Caracas is now calm and he hopes to be in the U.S. for spring training next month.`\
-https://nytimes.com/athletic/6946955/2026/01/06/giants-jesus-rodriguez-venezuela-uncertainty/
 

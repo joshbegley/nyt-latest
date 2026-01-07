@@ -1,3 +1,7 @@
+**N.Y.C. Child Care Programs Brace for Cuts After Federal Funding Freeze**\
+`The Trump administration said it was placing a hold on $10 billion in subsidies across five states, including New York.`\
+https://nytimes.com/2026/01/06/nyregion/nyc-child-care-programs-trump-funding-freeze.html
+
 **An emergency order from the Venezuelan government appears to criminalize support for the U.S. attack.**\
 `By Maria Abi-Habib and Emiliano Rodríguez Mega`\
 https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/venezuela-decree-maduro-support

@@ -1,3 +1,7 @@
+**N.Y.C. Child Care Programs Brace for Cuts After Federal Funding Freeze**\
+`The Trump administration said it was placing a hold on $10 billion in subsidies across five states, including New York.`\
+https://nytimes.com/2026/01/06/nyregion/nyc-child-care-programs-trump-funding-freeze.html
+
 **An emergency order from the Venezuelan government appears to criminalize support for the U.S. attack.**\
 `By Maria Abi-Habib and Emiliano Rodríguez Mega`\
 https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/venezuela-decree-maduro-support
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6947297/2026/01/06/lenny-dykstra-charges-drugs-mlb-
 **At home in Venezuela, a Giants prospect details the uncertainty in his country**\
 `Giants prospect Jesús Rodríguez says that life in Caracas is now calm and he hopes to be in the U.S. for spring training next month.`\
 https://nytimes.com/athletic/6946955/2026/01/06/giants-jesus-rodriguez-venezuela-uncertainty/
-
-**Iconic vs. Novel: An Alternative Journey to Japan’s Historical Heartland**\
-`Japan’s popular attractions are world famous for good reason. Adventurous visitors curious to discover the less familiar, however, can ride the rails for an unforgettable cultural exploration of the western Kansai region, without the crowds. 
-`\
-https://nytimes.com/paidpost/kintetsu-railway/kintetsu-railway/iconic-vs-novel-an-alternative-journey-to-japans-historical-heartland.html
 
