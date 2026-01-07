@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Jan. 7, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/07/todays-new-york-times
+
+**I May Be Free, but the Belarusian People Are Not**\
+`The world must not stop supporting dissidents in Belarus despite the release of some from prison.`\
+https://nytimes.com/2026/01/07/opinion/ales-bialiatski-belarus-lukashenko.html
+
 **It's 613 days since Bajcetic played for Liverpool. What's going on?**\
 `The midfielder is rehabbing again after yet another injury setback. His future at Liverpool seems far from certain`\
 https://nytimes.com/athletic/6942027/2026/01/07/its-613-days-since-stefan-bajcetic-played-for-liverpool-whats-going-on/
