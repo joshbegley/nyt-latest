@@ -1,3 +1,7 @@
+**How to watch 49ers at Eagles: Wild Card Round Time, TV, streaming**\
+`Find out how to watch the San Francisco 49ers play the Philadelphia Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6947987/2026/01/06/49ers-vs-eagles-stream-how-to-watch-jan-11/
+
 **Aldrich Ames, C.I.A. Turncoat Who Helped the Soviets, Dies at 84**\
 `As chief of the counterintelligence branch of the C.I.A.’s Soviet division, he had access to some of the nation’s deepest secrets. He had been serving life without parole since 1994.`\
 https://nytimes.com/2026/01/06/obituaries/aldrich-ames-dead.html
@@ -20,7 +24,7 @@ https://nytimes.com/2026/01/06/nyregion/cea-weaver-mamdani-tweets.html
 https://nytimes.com/video/world/europe/100000010627995/amsterdam-airport-snow-flight-cancelations.html
 
 **Justice Dept. Memo Approved Military Incursion Into Venezuela as Lawful**\
-`Lawmakers were informed that the Office of Legal Counsel said Mr. Trump could lawfully order military strikes inside Venezuelan territory and a commando raid to capture President Nicolás Maduro.`\
+`The specifics of the memo are unclear. But Attorney General Pam Bondi told lawmakers in briefings this week that the administration would share the document with them.`\
 https://nytimes.com/2026/01/06/us/politics/justice-dept-memo-venezuela.html
 
 **Palace could sell Guehi this month if 'threshold' met - Glasner**\
@@ -35,8 +39,4 @@ https://nytimes.com/paidpost/imperial-hotel/imperial-hotel/a-luxury-kyoto-hotel-
 **America Is Bad at Accountability**\
 `“The United States has a problem with elite impunity,” says the Opinion columnist Jamelle Bouie, as he looks back on the five years since the Jan. 6 attack on the Capitol.`\
 https://nytimes.com/video/opinion/100000010627706/america-is-bad-at-accountability.html
-
-**Nuno expects West Ham backing after crushing defeat to Forest**\
-`The Portuguese saw his side fall seven points adrift of safety after 2-1 home defeat to fellow strugglers`\
-https://nytimes.com/athletic/6947482/2026/01/06/nuno-espirito-santo-west-ham-backing/
 

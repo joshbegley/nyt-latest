@@ -1,3 +1,7 @@
+**Aldrich Ames, C.I.A. Turncoat Who Helped the Soviets, Dies at 84**\
+`As chief of the counterintelligence branch of the C.I.A.’s Soviet division, he had access to some of the nation’s deepest secrets. He had been serving life without parole since 1994.`\
+https://nytimes.com/2026/01/06/obituaries/aldrich-ames-dead.html
+
 **Stephen Miller Offers a Strongman’s View of the World**\
 `President Trump’s trusted adviser is casting his hard-right gaze abroad, saying the world must be governed by “force.”`\
 https://nytimes.com/2026/01/06/us/politics/stephen-miller-foreign-policy.html

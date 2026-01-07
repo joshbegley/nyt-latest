@@ -1,3 +1,7 @@
+**Aldrich Ames, C.I.A. Turncoat Who Helped the Soviets, Dies at 84**\
+`As chief of the counterintelligence branch of the C.I.A.’s Soviet division, he had access to some of the nation’s deepest secrets. He had been serving life without parole since 1994.`\
+https://nytimes.com/2026/01/06/obituaries/aldrich-ames-dead.html
+
 **Stephen Miller Offers a Strongman’s View of the World**\
 `President Trump’s trusted adviser is casting his hard-right gaze abroad, saying the world must be governed by “force.”`\
 https://nytimes.com/2026/01/06/us/politics/stephen-miller-foreign-policy.html
@@ -35,8 +39,4 @@ https://nytimes.com/video/opinion/100000010627706/america-is-bad-at-accountabili
 **Nuno expects West Ham backing after crushing defeat to Forest**\
 `The Portuguese saw his side fall seven points adrift of safety after 2-1 home defeat to fellow strugglers`\
 https://nytimes.com/athletic/6947482/2026/01/06/nuno-espirito-santo-west-ham-backing/
-
-**Where the Blue Jays stand with Bo Bichette and Kyle Tucker**\
-`Toronto has increased its efforts to recruit Tucker, but a reunion with Bichette appears increasingly unlikely.`\
-https://nytimes.com/athletic/6947549/2026/01/06/blue-jays-bo-bichette-kyle-tucker/
 
