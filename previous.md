@@ -1,3 +1,7 @@
+**Ubben: The CFP semis prove the old path to winning a title is no longer the only way**\
+`There used to be only one path to the top of college football. But the blueprint is changing.`\
+https://nytimes.com/athletic/6949240/2026/01/07/college-football-playoff-semifinalists-talent-rankings/
+
 **Yemeni Separatist Defies Saudi Demand, and Strike Follows**\
 `Southern Yemen has been engulfed in a proxy conflict that pits two U.S. allies, Saudi Arabia and the United Arab Emirates, against each other.`\
 https://nytimes.com/2026/01/07/world/middleeast/yemen-separatist-leader-zubaidi-saudi-arabia-uae.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6945525/2026/01/07/cristian-espinoza-nashville-sc-m
 **My Older Relatives Hurt Younger Ones With Their Blunt Advice. What Can I Do?**\
 `A reader is troubled by the sharp-edged advice being meted out to younger relatives but reluctant to get involved in the conflicts.`\
 https://nytimes.com/2026/01/07/style/hurtful-unsolicited-advice-family.html
-
-**College basketball mailbag: Which top team is most vulnerable to an upset in March?**\
-`Plus: Who's for real in the Big East, and should Miami (Ohio) be ranked?`\
-https://nytimes.com/athletic/6949116/2026/01/07/college-basketball-mailbag-michigan-purdue-big-east/
 

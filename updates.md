@@ -1,3 +1,7 @@
+**Ubben: The CFP semis prove the old path to winning a title is no longer the only way**\
+`There used to be only one path to the top of college football. But the blueprint is changing.`\
+https://nytimes.com/athletic/6949240/2026/01/07/college-football-playoff-semifinalists-talent-rankings/
+
 **Yemeni Separatist Defies Saudi Demand, and Strike Follows**\
 `Southern Yemen has been engulfed in a proxy conflict that pits two U.S. allies, Saudi Arabia and the United Arab Emirates, against each other.`\
 https://nytimes.com/2026/01/07/world/middleeast/yemen-separatist-leader-zubaidi-saudi-arabia-uae.html
