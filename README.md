@@ -1,3 +1,15 @@
+**Beyond Minnesota, Social Media Fuels False Rumors of Fraud Among Somalis**\
+`The Ohio governor is once again trying to counter misinformation about immigrants, more than a year after baseless claims that Haitians in Springfield were eating pets.`\
+https://nytimes.com/2026/01/07/us/ohio-child-care-fraud.html
+
+**Venezuelans in U.S. Share Hopes for Returning Home**\
+`For some Venezuelans living in the U.S., the American government’s seizure and removal of Venezuela’s leader, Nicolás Maduro, has given them the hope of one day returning home.`\
+https://nytimes.com/video/us/100000010623609/venezuelans-in-us-share-hopes-for-returning-home.html
+
+**Utah Mammoth to host 2027 Winter Classic vs. Colorado Avalanche**\
+`Rice-Eccles Stadium will be the fourth college football stadium to stage the Winter Classic.`\
+https://nytimes.com/athletic/6950682/2026/01/07/nhl-winter-classic-utah-2027/
+
 **Tottenham's Frank says he didn't notice using Arsenal-branded cup**\
 `Arsenal were the last team to play away at Bournemouth's Vitality Stadium, where Spurs lost 3-2 on Wednesday.`\
 https://nytimes.com/athletic/6952136/2026/01/07/thomas-frank-tottenham-arsenal-cup/
@@ -21,16 +33,4 @@ https://nytimes.com/2026/01/07/world/americas/ghost-fleet-ships.html
 **Man Accused of Stealing Billions in Crypto Scam Is Captured Abroad**\
 `Chen Zhi faces an indictment in federal court in Brooklyn on charges of swindling millions of dollars from Americans as part of a global cryptocurrency scam.`\
 https://nytimes.com/2026/01/07/nyregion/chen-zhi-scam-arrest-bitcoin.html
-
-**The U.S. Seized Two Oil Tankers**\
-`Also, an ICE agent fatally shot a woman in Minneapolis. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2026/01/07/briefing/us-oil-tankers-venezuela.html
-
-**Google and Character.AI to Settle Lawsuit Over Teenager’s Death**\
-`The settlement came in the case of a 14-year-old in Florida who had killed himself after developing a relationship with an A.I. chatbot.`\
-https://nytimes.com/2026/01/07/technology/google-characterai-teenager-lawsuit.html
-
-**Mikel Arteta expects a 'great version' of Eberechi Eze in coming months - where could he use him?**\
-`Eze has not featured in the past four games, but the Arsenal manager insists the midfielder will be important in second half of the season`\
-https://nytimes.com/athletic/6949685/2026/01/07/eberechi-eze-arsenal-arteta/
 
