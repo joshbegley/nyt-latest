@@ -1,3 +1,15 @@
+**AHL, players' union reach tentative deal on new collective bargaining agreement**\
+`The CBA must still be ratified by the PHPA’s membership and approved by the AHL’s board of governors.`\
+https://nytimes.com/athletic/6951356/2026/01/07/ahl-labour-agreement-collective-union/
+
+**The Angels saved millions with Rendon's restructured contract. Will they spend it in 2026?**\
+`The Angels haven't increased spending despite the money freed up by restructuring Rendon's contract and that might be the plan.`\
+https://nytimes.com/athletic/6951352/2026/01/07/angels-anthony-rendon-contract-savings-spending/
+
+**Anthropic Said to Be in Talks to Raise Funding at a $350 Billion Valuation**\
+`The artificial intelligence start-up, which competes with OpenAI, is aiming to raise around $10 billion amid talk of a potential initial public offering.`\
+https://nytimes.com/2026/01/07/technology/anthropic-funding-valuation.html
+
 **Todd Bowles returning as Buccaneers head coach: Source**\
 `Bowles will return for a fifth season after the Buccaneers missed the playoffs for the first time in his four-year tenure.`\
 https://nytimes.com/athletic/6951395/2026/01/07/todd-bowles-bucs-coach-status-returning/
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010629255/syria-aleppo-citizens
 **NFL playoff quarterbacks by highest football card sale: The surprising leader**\
 `Quarterbacks are king in the football card world, but most playoff-bound QBs haven't inspired confidence among collectors`\
 https://nytimes.com/athletic/6949926/2026/01/07/quarterback-card-values-herbert-maye/
-
-**How to watch Rockets vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6951557/2026/01/07/rockets-vs-trail-blazers-stream-how-to-watch-jan-7/
-
-**How to watch Pelicans vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6951542/2026/01/07/pelicans-vs-hawks-stream-how-to-watch-jan-7/
-
-**How to watch Magic vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6951538/2026/01/07/magic-vs-nets-stream-how-to-watch-jan-7/
 
