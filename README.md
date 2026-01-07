@@ -1,3 +1,7 @@
+**Videos Show Federal Agent Shooting Motorist in Minneapolis**\
+`Clips reviewed by The Times show the moments immediately before and after a woman was fatally shot.`\
+https://nytimes.com/2026/01/07/us/videos-ice-shooting-woman-minneapolis.html
+
 **All Eyes on the U.S. in 2026**\
 `Our reporters in Washington tell us what they’re watching from the Trump administration.`\
 https://nytimes.com/2026/01/07/world/us-trump-venezuela-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6950869/2026/01/07/ravens-coaching-candidates-john-
 **Eagles' Lane Johnson returns to practice ahead of playoff game vs. 49ers**\
 `It's a positive sign that the five-time All-Pro tackle is on pace to return for Philadelphia's postseason opener Sunday.`\
 https://nytimes.com/athletic/6951335/2026/01/07/lane-johnson-eagles-injury-update-status-playoffs-49ers/
-
-**Residents Flee As Fighting In Aleppo Reignites**\
-`Several people have been killed in fighting between Syrian government forces and a Kurdish-led militia, the Syrian Democratic Forces, in Aleppo, Syria, after two days of clashes. Efforts to integrate the S.D.F. into the national military appear to have stalled.`\
-https://nytimes.com/video/world/middleeast/100000010629255/syria-aleppo-citizens-flee.html
 

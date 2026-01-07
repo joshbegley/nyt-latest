@@ -1,3 +1,11 @@
+**All Eyes on the U.S. in 2026**\
+`Our reporters in Washington tell us what they’re watching from the Trump administration.`\
+https://nytimes.com/2026/01/07/world/us-trump-venezuela-2026.html
+
+**Angels saved millions with Rendon's restructured contract. Will they spend it in 2026?**\
+`The Angels haven't increased spending despite the money freed up by restructuring Rendon's contract and that might be the plan.`\
+https://nytimes.com/athletic/6951352/2026/01/07/angels-anthony-rendon-contract-savings-spending/
+
 **AHL, players' union reach tentative deal on new collective bargaining agreement**\
 `The CBA must still be ratified by the PHPA’s membership and approved by the AHL’s board of governors.`\
 https://nytimes.com/athletic/6951356/2026/01/07/ahl-labour-agreement-collective-union/

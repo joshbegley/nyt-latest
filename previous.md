@@ -1,8 +1,12 @@
+**All Eyes on the U.S. in 2026**\
+`Our reporters in Washington tell us what they’re watching from the Trump administration.`\
+https://nytimes.com/2026/01/07/world/us-trump-venezuela-2026.html
+
 **AHL, players' union reach tentative deal on new collective bargaining agreement**\
 `The CBA must still be ratified by the PHPA’s membership and approved by the AHL’s board of governors.`\
 https://nytimes.com/athletic/6951356/2026/01/07/ahl-labour-agreement-collective-union/
 
-**The Angels saved millions with Rendon's restructured contract. Will they spend it in 2026?**\
+**Angels saved millions with Rendon's restructured contract. Will they spend it in 2026?**\
 `The Angels haven't increased spending despite the money freed up by restructuring Rendon's contract and that might be the plan.`\
 https://nytimes.com/athletic/6951352/2026/01/07/angels-anthony-rendon-contract-savings-spending/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6951335/2026/01/07/lane-johnson-eagles-injury-updat
 **Residents Flee As Fighting In Aleppo Reignites**\
 `Several people have been killed in fighting between Syrian government forces and a Kurdish-led militia, the Syrian Democratic Forces, in Aleppo, Syria, after two days of clashes. Efforts to integrate the S.D.F. into the national military appear to have stalled.`\
 https://nytimes.com/video/world/middleeast/100000010629255/syria-aleppo-citizens-flee.html
-
-**NFL playoff quarterbacks by highest football card sale: The surprising leader**\
-`Quarterbacks are king in the football card world, but most playoff-bound QBs haven't inspired confidence among collectors`\
-https://nytimes.com/athletic/6949926/2026/01/07/quarterback-card-values-herbert-maye/
 
