@@ -1,3 +1,15 @@
+**Federal Agent Shoots Woman Amid Minneapolis Crackdown**\
+`Her condition was not immediately known. Gov. Tim Walz asked for calm.`\
+https://nytimes.com/2026/01/07/us/shooting-immigration-minneapolis.html
+
+**What We Know (So Far) About Taylor Swift and Travis Kelce’s Wedding**\
+`The couple has revealed very little about their wedding plans, but that hasn’t stopped fans from parsing podcast comments, photos and lyrics for clues about when, where and how they might say “I do.”`\
+https://nytimes.com/article/taylor-swift-travis-kelce-wedding-details.html
+
+**Do I Have to Tell My New Boyfriend About My Past Infidelity?**\
+`He knows I started seeing someone as my marriage was deteriorating, but I have not admitted the full truth.`\
+https://nytimes.com/2026/01/07/magazine/past-infidelity-ethics.html
+
 **The First Meme of 2026 Is About Not Explaining Yourself. And Buttons.**\
 `A TikTok user’s esoteric comment created a confusing viral moment.`\
 https://nytimes.com/2026/01/07/style/365-buttons-meme-tiktok.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010599573/do-you-alway
 **How to watch Bulls vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6950123/2026/01/07/bulls-vs-pistons-stream-how-to-watch-jan-7/
-
-**In Rome, They Call Him ‘Maestro’**\
-`Abel Ferrara, an icon of down-and-dirty New York cinema who has a key role in ‘Marty Supreme,’ tells the story of his wild career in a frank memoir.`\
-https://nytimes.com/2026/01/07/style/in-rome-they-call-him-maestro.html
-
-**Our Favorite Home Libraries**\
-`From Connecticut to Cairo, reading spots that will seem like paradise to book- and design-lovers alike.`\
-https://nytimes.com/2026/01/07/t-magazine/best-home-library-design.html
-
-**How to watch Nuggets vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6950098/2026/01/07/nuggets-vs-celtics-stream-how-to-watch-jan-7/
 
