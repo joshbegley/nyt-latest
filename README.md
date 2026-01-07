@@ -1,3 +1,11 @@
+**U.S., Cementing Control on Venezuelan Oil, Seizes Russian-Flagged Tanker**\
+`The vessel was one of two taken into American custody as the Trump administration said it was executing a “deal to take all the oil.”`\
+https://nytimes.com/2026/01/07/world/americas/venezuela-us-oil.html
+
+**A Future for Confession**\
+`The sacrament of penance’s 21st-century allure.`\
+https://nytimes.com/2026/01/07/opinion/confession-catholic-knives-out.html
+
 **A Close Call for U.S. Commandos and an Emboldened Trump**\
 `As a damaged U.S. helicopter struggled to stay aloft over Venezuela’s capital, the success of the entire operation hung in the balance.`\
 https://nytimes.com/2026/01/07/us/politics/trump-venezuela-helicopter.html
@@ -21,16 +29,4 @@ https://nytimes.com/2026/01/07/world/americas/trump-greenland-senate-republicans
 **Trump Wants to Bar Wall St. Investors From Buying Single-Family Homes**\
 `The president said he wanted Congress to stop big investors from buying the houses, which has driven up rents and set obstacles for first-time buyers in some markets.`\
 https://nytimes.com/2026/01/07/business/trump-wall-street-investors-homes.html
-
-**The Briefing: Manchester City 1 Brighton 1 - how did their young centre-backs get on? Why can't City take control?**\
-`Manchester City's title bid faltered once again with a third draw in a row, this time against Brighton`\
-https://nytimes.com/athletic/6937567/2026/01/07/manchester-city-brighton-briefing-premier-league/
-
-**Texas A&M, Under New Curriculum Limits, Warns Professor Not to Teach Plato**\
-`The university is reviewing courses under new rules restricting teaching about race and gender. Administrators told a philosophy professor to cut some lessons on Plato to comply.`\
-https://nytimes.com/2026/01/07/us/tamu-plato-race-gender.html
-
-**Lawmakers Split After Classified Briefings on Venezuela**\
-`Republicans praised what they characterized as a narrow and well-executed plan, while Democrats expressed alarm, warning that the mission was vaguely defined.`\
-https://nytimes.com/2026/01/07/us/politics/venezuela-briefing-congress-rubio.html
 
