@@ -1,3 +1,7 @@
+**Sources: Inter Miami closing on deal to keep playoff star Allende**\
+`Allende, 26, set an MLS record for goals in a single postseason as Miami won MLS Cup.`\
+https://nytimes.com/athletic/6948112/2026/01/06/inter-miami-tadeo-allende-deal/
+
 **Jets' Haydn Fleury stretchered off ice after getting shoved into end boards**\
 `Fleury was shoved to the ice by Golden Knights winger Keegan Kolesar after sending a breakout pass and slid backward into the end boards.`\
 https://nytimes.com/athletic/6948225/2026/01/06/winnipeg-jets-haydn-fleury-stretchered-injury/
