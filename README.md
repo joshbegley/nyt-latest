@@ -1,3 +1,7 @@
+**Day 3: Try a Brain-Boosting Workout**\
+`To strengthen your brain, exercise is essential. Today, we’ll help you find a new routine.`\
+https://nytimes.com/interactive/2026/well/brain-health-exercise-workout.html
+
 **Lenny Dykstra charged with drug possession, awaits preliminary hearing**\
 `Dykstra was arrested Friday on suspicion of possessing narcotics and narcotic-related equipment but was not taken into custody, per police.`\
 https://nytimes.com/athletic/6947297/2026/01/06/lenny-dykstra-charges-drugs-mlb-mets-phillies/
@@ -36,8 +40,4 @@ https://nytimes.com/paidpost/tcvb/traverse-tokyo-and-beyond-saitama-and-yamanash
 **Fate of 350,000 Haitians at Stake as Court Weighs Temporary Protected Status**\
 `A federal judge questioned whether the Trump administration appropriately reviewed safety conditions in Haiti before ending protections for people from the Caribbean nation.`\
 https://nytimes.com/2026/01/06/us/haiti-temporary-protected-status-trump.html
-
-**U.S. Pressures Venezuela to Expel Official Advisers From China, Cuba, Iran and Russia, Officials Say**\
-`Secretary of State Marco Rubio was said to have listed the Trump administration’s demands to Venezuela’s new leader, Delcy Rodríguez, in a classified meeting Monday with senior congressional leaders.`\
-https://nytimes.com/2026/01/06/world/americas/us-venezuela-cuba-russia-china-iran.html
 

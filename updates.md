@@ -1,3 +1,11 @@
+**Lenny Dykstra charged with drug possession, awaits preliminary hearing**\
+`Dykstra was arrested Friday on suspicion of possessing narcotics and narcotic-related equipment but was not taken into custody, per police.`\
+https://nytimes.com/athletic/6947297/2026/01/06/lenny-dykstra-charges-drugs-mlb-mets-phillies/
+
+**At home in Venezuela, a Giants prospect details the uncertainty in his country**\
+`Giants prospect Jesús Rodríguez says that life in Caracas is now calm and he hopes to be in the U.S. for spring training next month.`\
+https://nytimes.com/athletic/6946955/2026/01/06/giants-jesus-rodriguez-venezuela-uncertainty/
+
 **Q&A: Giants prospect discusses the scene in Venezuela in wake of attack**\
 `Giants prospect Jesús Rodríguez says that life in Caracas is now calm and he hopes to be in the U.S. for spring training next month.`\
 https://nytimes.com/athletic/6946955/2026/01/06/qa-giants-prospect-discusses-the-scene-in-venezuela-in-wake-of-attack/
