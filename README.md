@@ -1,3 +1,11 @@
+**Pete Golding shares Ole Miss' coaching plan for Fiesta Bowl**\
+`Running backs coach Kevin Smith and offensive coordinator Charlie Weis Jr. will be with the team in Arizona for Thursday's game vs. Miami.`\
+https://nytimes.com/athletic/6950048/2026/01/07/ole-miss-assistant-coaches-pete-golding-lane-kiffin-fiesta-bowl/
+
+**Tourists on Remote Yemeni Island Are Caught in Escalating Conflict**\
+`Around 600 foreigners have been stranded on the remote Yemeni island of Socotra after the government halted flights amid an escalating conflict with separatists on the mainland.`\
+https://nytimes.com/video/world/middleeast/100000010628981/tourists-stranded-yemen-island.html
+
 **A Canada collision course? USMNT's many potential World Cup knockout scenarios**\
 `The vast number of World Cup knockout round permutations includes a fascinating potential duel between two of the co-hosts`\
 https://nytimes.com/athletic/6948519/2026/01/07/usmnt-2026-world-cup-knockout-round-opponents-scenarios/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6950094/2026/01/07/wizards-vs-76ers-stream-how-to-w
 **How to watch Stars vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6950091/2026/01/07/stars-vs-capitals-stream-how-to-watch-jan-7/
-
-**The Spectacle of Trump’s Venezuela Strike**\
-`The Trump administration’s operation to capture Nicolás Maduro was as much a spectacle as it was a military operation. On “The Ezra Klein Show,” the Opinion columnist Ezra Klein and the journalist Jonathan Blitzer discuss what President Trump’s show of force signals.`\
-https://nytimes.com/video/opinion/100000010624484/the-spectacle-of-trumps-venezuela-strike.html
-
-**How to watch Raptors vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6950088/2026/01/07/raptors-vs-hornets-stream-how-to-watch-jan-7/
 

@@ -1,3 +1,11 @@
+**A Canada collision course? USMNT's many potential World Cup knockout scenarios**\
+`The vast number of World Cup knockout round permutations includes a fascinating potential duel between two of the co-hosts`\
+https://nytimes.com/athletic/6948519/2026/01/07/usmnt-2026-world-cup-knockout-round-opponents-scenarios/
+
+**Do You Always Need to Shampoo Twice?**\
+`Do you really need to double-shampoo? Here’s the verdict.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010599573/do-you-always-need-to-shampoo-twice.html
+
 **How to watch Bulls vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6950123/2026/01/07/bulls-vs-pistons-stream-how-to-watch-jan-7/
