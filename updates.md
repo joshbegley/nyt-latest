@@ -1,3 +1,19 @@
+**Kevin Keegan, Newcastle and Liverpool legend, diagnosed with cancer**\
+`The former England manager's family confirmed the diagnosis in a statement on Wednesday.`\
+https://nytimes.com/athletic/6950796/2026/01/07/kevin-keegan-cancer-newcastle-liverpool/
+
+**Depleted and Distracted, Justice Dept. Staff Fear Losing Focus on Potential Threats**\
+`Rank-and-file prosecutors and agents have expressed serious concern that a hobbled work force hurts the government’s ability to identify and stop terrorist plots, cyberattacks, mass violence and fraud.`\
+https://nytimes.com/2026/01/07/nyregion/justice-department-threats-cyberattacks-terrorism.html
+
+**Submit your Ohio State football questions for Cameron Teague Robinson’s mailbag**\
+`What's on your mind about the Buckeyes after an early College Football Playoff exit?`\
+https://nytimes.com/athletic/6950784/2026/01/07/ohio-state-football-mailbag-questions-portal-playoff/
+
+**Watch Live: Updates on Fatal Shooting Amid Minneapolis ICE Crackdown**\
+`The woman was killed in a car by federal officials, the authorities said. Gov. Tim Walz asked for calm as protesters gathered at the site of the shooting.`\
+https://nytimes.com/live/2026/01/07/us/minnesota-shooting-ice
+
 **Julie Menin Is Elected New York City Council Speaker**\
 `Ms. Menin, a centrist Democrat, said she would investigate bad actors in business and city agencies and played down areas of difference with Mayor Zohran Mamdani.`\
 https://nytimes.com/2026/01/07/nyregion/julie-menin-nyc-council-speaker.html
