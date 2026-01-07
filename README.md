@@ -1,3 +1,7 @@
+**Is John Harbaugh the Giants' dream hire at head coach? Breaking down each known candidate**\
+`With help from The Athletic's beat writers, we examine the candidates the Giants are bringing in for interviews to be their next head coach.`\
+https://nytimes.com/athletic/6948299/2026/01/07/ny-giants-head-coach-candidates-list-john-harbaugh-kevin-stefanski/
+
 **Mandel's Mailbag: Is the SEC slipping? Can Indiana actually sustain this success?**\
 `Did the transfer portal and NIL change the sport for the better? Can Texas Tech take a jump with Brendan Sorsby? `\
 https://nytimes.com/athletic/6947990/2026/01/07/mandel-mailbag-sec-nil-indiana-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6944342/2026/01/07/nfl-gm-candidates-falcons-dolphi
 **Yankees vs. Cody Bellinger: A look at each side's case**\
 `Talks are ongoing, but the Yankees and Cody Bellinger don't appear close to reaching an agreement on a new contract. So what's the hold up? `\
 https://nytimes.com/athletic/6948100/2026/01/07/yankees-cody-bellinger-negotations/
-
-**Can Bears get off to a fast start vs. Packers? They can't afford to play catch-up**\
-`The Bears can't rely on what they've done in the past. They desperately need to score points early, and Caleb Williams must be accurate."`\
-https://nytimes.com/athletic/6948294/2026/01/07/bears-packers-nfl-playoffs-fast-start/
 
