@@ -1,3 +1,7 @@
+**Lowetide: Why Kasperi Kapanen is a welcome addition to the Oilers lineup**\
+`Kapanen had been out since mid-October with an injury and played on the second line on Tuesday night.`\
+https://nytimes.com/athletic/6943971/2026/01/07/oilers-kasperi-kapanen-lineup-stats/
+
 **U.S. Seizes Oil Tanker, Raising Tensions With Russia**\
 `The ship had been eluding the Coast Guard after being stopped in the Caribbean on its way to pick up oil in Venezuela.`\
 https://nytimes.com/2026/01/07/us/politics/us-russia-oil-tanker.html
@@ -31,10 +35,6 @@ https://nytimes.com/athletic/6949189/2026/01/07/auburn-texas-am-basketball-contr
 https://nytimes.com/athletic/6946420/2026/01/07/ben-johnson-bears-year-one-coach-playoffs/
 
 **Ubben: The CFP semis prove the old path to winning a title is no longer the only way**\
-`There used to be only one path to the top of college football. But the blueprint is changing.`\
+`There used to be only one path to the top of college football. However, the blueprint is changing.`\
 https://nytimes.com/athletic/6949240/2026/01/07/college-football-playoff-semifinalists-talent-rankings/
-
-**Yemeni Separatist Defies Saudi Demand, and Strike Follows**\
-`Southern Yemen has been engulfed in a proxy conflict that pits two U.S. allies, Saudi Arabia and the United Arab Emirates, against each other.`\
-https://nytimes.com/2026/01/07/world/middleeast/yemen-separatist-leader-zubaidi-saudi-arabia-uae.html
 
