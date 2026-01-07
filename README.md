@@ -1,3 +1,11 @@
+**Is Mathys Tel finally about to get a run of matches in his favoured position?**\
+`Since joining Spurs, the young forward has felt slightly out of place - could this be the chance to stake his claim?`\
+https://nytimes.com/athletic/6945322/2026/01/07/is-mathys-tel-finally-about-to-get-a-run-of-matches-in-his-favoured-position/
+
+**Raul Jimenez and why you shouldn't judge centre-forwards on goals alone**\
+`The Fulham striker has become one of the Premier League's most impressive link-up players `\
+https://nytimes.com/athletic/6945161/2026/01/07/raul-jimenez-fulham-attacking-contributions/
+
 **Who should Manchester United appoint as their next permanent manager?**\
 `Analysing who the data suggests United's ideal permanent head coach might be - plus, a group of our writers make their choices`\
 https://nytimes.com/athletic/6944833/2026/01/07/man-utd-next-manager-permanent-appointment/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6942659/2026/01/07/liam-rosenior-chelsea-profile/
 **Wrexham have FA Cup giant killings in their DNA - and Forest should be well aware**\
 `Beating Sean Dyche's men on Friday probably wouldn't rank with some of the Welsh club's most shocking wins in this competition`\
 https://nytimes.com/athletic/6941796/2026/01/07/wrexham-fa-cup-history/
-
-**Brentford's striker succession planning is a lesson for all Premier League clubs**\
-`Igor Thiago is just the latest forward to score plenty of goals for the west London side. It is not a coincidence`\
-https://nytimes.com/athletic/6944915/2026/01/07/igor-thiago-brentford-striker-succession-planning/
-
-**Quote of the Day: Every Apron Tells a Story at a Tiny Museum**\
-`Quotation of the Day for Wednesday, January 7, 2026`\
-https://nytimes.com/2026/01/07/pageoneplus/quote-of-the-day-every-apron-tells-a-story-at-a-tiny-museum.html
 
