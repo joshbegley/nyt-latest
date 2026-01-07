@@ -1,3 +1,15 @@
+**John Harbaugh's tenure in Baltimore is over. Ravens felt it was time for something new**\
+`There are several reasons Baltimore hasn't gotten over the hump recently. But ultimately, Harbaugh and his staff must bear responsibility.`\
+https://nytimes.com/athletic/6948144/2026/01/07/john-harbaugh-fired-ravens-new-coach/
+
+**Should Staten Island and the East Village Share a House District?**\
+`A court dispute over the lines of the 11th Congressional District represents one of New York Democrats’ few hopes of drawing maps in their favor for the 2026 midterms.`\
+https://nytimes.com/2026/01/07/nyregion/new-york-congressional-redistricting-democrats-republicans.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/07/crosswords/spelling-bee-forum.html
+
 **The Ashes Briefing: Bethell offers glimpse of England's future to delay Australia's victory charge**\
 `The tourists lead by 119 runs going into the final day with only two wickets in hand, but their new No 3 is still there on 142 not out`\
 https://nytimes.com/athletic/6947360/2026/01/07/england-bethell-australia-boland-ashes-briefing/
