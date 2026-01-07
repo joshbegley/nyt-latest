@@ -1,3 +1,7 @@
+**Videos Show Federal Agent Shooting Motorist in Minneapolis**\
+`Clips reviewed by The Times show the moments immediately before and after a woman was fatally shot.`\
+https://nytimes.com/2026/01/07/us/videos-ice-shooting-woman-minneapolis.html
+
 **All Eyes on the U.S. in 2026**\
 `Our reporters in Washington tell us what they’re watching from the Trump administration.`\
 https://nytimes.com/2026/01/07/world/us-trump-venezuela-2026.html
