@@ -1,3 +1,11 @@
+**Eagles' Lane Johnson returns to practice ahead of playoff game vs. 49ers**\
+`It's a positive sign that the five-time All-Pro tackle is on pace to return for Philadelphia's postseason opener Sunday.`\
+https://nytimes.com/athletic/6951335/2026/01/07/lane-johnson-eagles-injury-update-status-playoffs-49ers/
+
+**Residents Flee As Fighting In Aleppo Reignites**\
+`Several people have been killed in fighting between Syrian government forces and a Kurdish-led militia, the Syrian Democratic Forces, in Aleppo, Syria, after two days of clashes. Efforts to integrate the S.D.F. into the national military appear to have stalled.`\
+https://nytimes.com/video/world/middleeast/100000010629255/syria-aleppo-citizens-flee.html
+
 **NFL playoff quarterbacks by highest football card sale: The surprising leader**\
 `Quarterbacks are king in the football card world, but most playoff-bound QBs haven't inspired confidence among collectors`\
 https://nytimes.com/athletic/6949926/2026/01/07/quarterback-card-values-herbert-maye/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6951528/2026/01/07/senators-vs-mammoth-stream-how-t
 **How to watch Arkansas vs. Ole Miss men's basketball: Time, TV, streaming**\
 `Find out how to watch the Arkansas Razorbacks play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6951526/2026/01/07/arkansas-vs-ole-miss-stream-how-to-watch-jan-7/
-
-**Best landing spots for Jim Harbaugh? Why Giants are at the top, Raiders at the bottom**\
-`The Giants might be the favorites, but how would Harbaugh fit in Atlanta, Cleveland, Tennessee, Arizona and Las Vegas? `\
-https://nytimes.com/athletic/6950683/2026/01/07/john-harbaugh-next-head-coach-job-openings-fits/
-
-**How to watch Sharks vs. Kings: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6951520/2026/01/07/sharks-vs-kings-stream-how-to-watch-jan-7/
 
