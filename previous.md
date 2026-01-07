@@ -1,3 +1,23 @@
+**Five Dodgers questions amid a slow offseason (and a big move to come?)**\
+`Kyle Tucker, Bo Bichette and Cody Bellinger are among the intriguing names as the Dodgers look to bolster their chances of another title.`\
+https://nytimes.com/athletic/6948210/2026/01/07/dodgers-offseason-mlb-trade-free-agency/
+
+**Sources: Nashville SC signs top MLS free agent Espinoza to elevate attack**\
+`Espinoza will link up with two of the most productive attacking talents in MLS to boost Nashville's chances in 2026`\
+https://nytimes.com/athletic/6945525/2026/01/07/cristian-espinoza-nashville-sc-mls-free-agent/
+
+**My Older Relatives Hurt Younger Ones With Their Blunt Advice. What Can I Do?**\
+`A reader is troubled by the sharp-edged advice being meted out to younger relatives but reluctant to get involved in the conflicts.`\
+https://nytimes.com/2026/01/07/style/hurtful-unsolicited-advice-family.html
+
+**College basketball mailbag: Which top team is most vulnerable to an upset in March?**\
+`Plus: Who's for real in the Big East, and should Miami (Ohio) be ranked?`\
+https://nytimes.com/athletic/6949116/2026/01/07/college-basketball-mailbag-michigan-purdue-big-east/
+
+**Hundreds of Tourists on Yemeni Island Caught Up in Saudi-U.A.E. Rift**\
+`Around 600 foreigners have been stranded on Socotra as clashes on mainland Yemen halted flights, turning the nature sanctuary and tourist spot into a geopolitical trap.`\
+https://nytimes.com/2026/01/07/world/middleeast/yemen-socotra-flights-tourists.html
+
 **Maduro Is Gone, but Repression in Venezuela Has Intensified**\
 `Security forces have boarded buses, searched phones and interrogated people, looking for evidence that they welcomed the capture of Nicolás Maduro.`\
 https://nytimes.com/2026/01/07/world/americas/venezuela-repression.html
@@ -17,24 +37,4 @@ https://nytimes.com/video/dining/100000010626897/crispy-halloumi-with-tomatoes-a
 **Cheesy Gnocchi With Corn and Pesto**\
 `Tasty and effortless, store-bought gnocchi offers a much-needed shortcut for busy weeknight dinners. You can bypass boiling a pot of water for the gnocchi, and instead simply give them a quick sear over high heat, which creates perfectly crispy edges.`\
 https://nytimes.com/video/dining/100000010626895/cheesy-gnocchi-with-corn-and-pesto.html
-
-**What A.I. Tech is Overhyped or Underhyped?**\
-`Sam Rodriques, a founder of the artificial intelligence science lab FutureHouse, shares his thoughts on what A.I. and tech lives up to the hype in a game with Kevin Roose and Casey Newton of the “Hard Fork” podcast.`\
-https://nytimes.com/video/podcasts/100000010626762/what-ai-tech-is-overhyped-or-underhyped.html
-
-**The Most Interesting and Rare Collectibles at Goldin Auctions**\
-`Ken Goldin, the star of the Netflix series “King of Collectibles,” shows The Athletic’s Larry Holder some of Goldin Auctions’s most interesting and rare memorabilia, including a Babe Ruth bat and Lionel Messi jersey.`\
-https://nytimes.com/video/the-athletic/100000010626756/the-most-interesting-and-rare-collectibles-at-goldin-auctions.html
-
-**Why Trump’s Greenland Strategy Has the World on Edge**\
-`The president is again focused on acquiring the mineral-rich island. But lack of clarity about his goals and tactics is weighing on political and business leaders.`\
-https://nytimes.com/2026/01/07/business/dealbook/buy-invade-trump-greenland.html
-
-**Rudy Gobert rises again for the suddenly surging Minnesota Timberwolves**\
-`At 33 years old and in his 13th year in the league, the Timberwolves' center is playing as well as he has ever played.`\
-https://nytimes.com/athletic/6948130/2026/01/07/rudy-gobert-surging-timberwolves/
-
-**From Metcalf's miracle to Garrett's record: The NFL season's best plays, week by week**\
-`Here are our NFL plays of the year, with one selection from all 18 regular-season weeks.`\
-https://nytimes.com/athletic/6943126/2026/01/07/nfl-best-plays-touchdowns-catches-2025-season/
 
