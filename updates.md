@@ -1,3 +1,15 @@
+**Silicon Valley Plots Against Ro Khanna After His Mockery Over a Wealth Tax**\
+`It’s hard right now to be a progressive Democrat in the heart of America’s tech industry.`\
+https://nytimes.com/2026/01/07/us/politics/ro-khanna-california-wealth-tax.html
+
+**Cubs set to acquire Edward Cabrera from Marlins in trade: Source**\
+`The Cubs have long believed that Cabrera, a right-handed starting pitcher, is only scratching the surface of his potential.`\
+https://nytimes.com/athletic/6950352/2026/01/07/cubs-edward-cabrera-marlins-trade/
+
+**Former Tottenham forward Martin Chivers dies aged 80**\
+`Chivers is Tottenham's fourth-highest goalscorer of all time with 174 goals.`\
+https://nytimes.com/athletic/6950170/2026/01/07/tottenham-martin-chivers-death/
+
 **New Dietary Guidelines Abandon Longstanding Advice on Alcohol**\
 `Now the government’s recommendation is to “limit” drinking, without specifying safe amounts for men and women. The guidelines no longer warn of risks like cancer.`\
 https://nytimes.com/2026/01/07/health/dietary-guidelines-alcohol.html
