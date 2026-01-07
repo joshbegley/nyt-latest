@@ -1,3 +1,7 @@
+**The Ashes Briefing: Bethell offers glimpse of England's future to delay Australia's victory charge**\
+`The tourists lead by 119 runs going into the final day with only two wickets in hand, but their new No 3 is still there on 142 not out`\
+https://nytimes.com/athletic/6947360/2026/01/07/england-bethell-australia-boland-ashes-briefing/
+
 **Word of the Day: homily**\
 `This word has appeared in 64 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/07/learning/word-of-the-day-homily.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6944833/2026/01/07/man-utd-next-manager-permanent-a
 **Russia Sends Naval Vessel to Escort Oil Tanker U.S. Is Pursuing**\
 `The development deepens the confrontation over the tanker formerly known as the Bella 1, which the United States wants to seize but which Russia has sought to protect.`\
 https://nytimes.com/2026/01/06/world/americas/russia-tanker-bella.html
-
-**Nuno Espirito Santo, Nottingham Forest and a lingering sense of regret**\
-`The beleaguered West Ham manager watched his team lose to his former club Nottingham Forest, the team he took into European competition`\
-https://nytimes.com/athletic/6940004/2026/01/07/nuno-west-ham-forest-edu-marinakis-regret/
 

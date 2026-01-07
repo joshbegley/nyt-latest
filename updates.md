@@ -1,3 +1,7 @@
+**The Ashes Briefing: Bethell offers glimpse of England's future to delay Australia's victory charge**\
+`The tourists lead by 119 runs going into the final day with only two wickets in hand, but their new No 3 is still there on 142 not out`\
+https://nytimes.com/athletic/6947360/2026/01/07/england-bethell-australia-boland-ashes-briefing/
+
 **Word of the Day: homily**\
 `This word has appeared in 64 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/07/learning/word-of-the-day-homily.html
