@@ -1,3 +1,11 @@
+**Former Texas WR Jordan Shipley hospitalized after ranch accident**\
+`Shipley was an All-American for the Longhorns in their 13-1 season in 2009.`\
+https://nytimes.com/athletic/6948509/2026/01/06/jordan-shipley-hospitalized-ranch-injury/
+
+**Map: 6.4-Magnitude Earthquake Shakes the Philippine Sea**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/01/06/world/asia/earthquake-tracker-philippine-sea-nytbz4oh.html
+
 **Pacers lose franchise-record 13th straight, leaving coach stuck one win shy of 1,000**\
 `The Pacers are on pace for a 13-win season, which would tie the 1998-99 Bulls for the fewest by a team that made the previous finals.`\
 https://nytimes.com/athletic/6947629/2026/01/06/pacers-loss-record-13-straight-cavaliers/
