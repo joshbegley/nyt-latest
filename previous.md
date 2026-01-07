@@ -1,3 +1,7 @@
+**Ronny Chieng Remarks on Trump ‘DoorDash-ing’ Maduro to Brooklyn**\
+`“The Daily Show” host quipped that after a surprise capture, Nicolás Maduro “will face justice in the best legal system in the world that we illegally kidnapped him to.”`\
+https://nytimes.com/2026/01/07/arts/television/ronny-chieng-trump-maduro-brooklyn.html
+
 **NBA Draft Top 100: Has Darryn Peterson's stock dropped?**\
 `There's a lot to praise about the top three, but in total, this looks like one of the best draft classes of the last decade.`\
 https://nytimes.com/athletic/6928271/2026/01/07/nba-draft-top-100-prospects-dybantsa-boozer-peterson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6948919/2026/01/07/hugo-ekitike-injury-liverpool-ar
 **Displaced Palestinians in Egypt Await Reopening of Gaza Border**\
 `Tens of thousands of Palestinians in Egypt face an uncertain future as they navigate obstacles to staying in the country and returning home to Gaza. The New York Times spoke to a family that remains separated despite a truce in the territory.`\
 https://nytimes.com/video/world/middleeast/100000010590402/palestinians-egypt-gaza-border.html
-
-**What went wrong for the Chiefs in 2025 — and the biggest regrets from a lost year**\
-`The Chiefs' 6-11 record didn't match up with their underlying statistics. Here are the reasons for that — and the team's path ahead.`\
-https://nytimes.com/athletic/6945787/2026/01/07/chiefs-what-went-wrong-2025/
 

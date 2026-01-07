@@ -1,3 +1,7 @@
+**Ronny Chieng Remarks on Trump ‘DoorDash-ing’ Maduro to Brooklyn**\
+`“The Daily Show” host quipped that after a surprise capture, Nicolás Maduro “will face justice in the best legal system in the world that we illegally kidnapped him to.”`\
+https://nytimes.com/2026/01/07/arts/television/ronny-chieng-trump-maduro-brooklyn.html
+
 **NBA Draft Top 100: Has Darryn Peterson's stock dropped?**\
 `There's a lot to praise about the top three, but in total, this looks like one of the best draft classes of the last decade.`\
 https://nytimes.com/athletic/6928271/2026/01/07/nba-draft-top-100-prospects-dybantsa-boozer-peterson/

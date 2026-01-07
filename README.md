@@ -1,3 +1,7 @@
+**Buy Greenland? Take It? An Old Pact Already Gives Trump a Free Hand.**\
+`Analysts say the Cold War agreement allows the president to increase the American military presence almost at will.`\
+https://nytimes.com/2026/01/07/world/europe/trump-greenland-denmark-us-defense-pact.html
+
 **Ronny Chieng Remarks on Trump ‘DoorDash-ing’ Maduro to Brooklyn**\
 `“The Daily Show” host quipped that after a surprise capture, Nicolás Maduro “will face justice in the best legal system in the world that we illegally kidnapped him to.”`\
 https://nytimes.com/2026/01/07/arts/television/ronny-chieng-trump-maduro-brooklyn.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6948950/2026/01/07/kylian-mbappe-real-madrid-injury
 **Slot: Liverpool's Ekitike a doubt to face Arsenal**\
 `The French striker missed Sunday's 2-2 draw at Fulham due to a minor hamstring problem.`\
 https://nytimes.com/athletic/6948919/2026/01/07/hugo-ekitike-injury-liverpool-arsenal-team-news/
-
-**Displaced Palestinians in Egypt Await Reopening of Gaza Border**\
-`Tens of thousands of Palestinians in Egypt face an uncertain future as they navigate obstacles to staying in the country and returning home to Gaza. The New York Times spoke to a family that remains separated despite a truce in the territory.`\
-https://nytimes.com/video/world/middleeast/100000010590402/palestinians-egypt-gaza-border.html
 
