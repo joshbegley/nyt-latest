@@ -1,3 +1,11 @@
+**How to watch Bulls vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6950123/2026/01/07/bulls-vs-pistons-stream-how-to-watch-jan-7/
+
+**In Rome, They Call Him ‘Maestro’**\
+`Abel Ferrara, an icon of down-and-dirty New York cinema who has a key role in ‘Marty Supreme,’ tells the story of his wild career in a frank memoir.`\
+https://nytimes.com/2026/01/07/style/in-rome-they-call-him-maestro.html
+
 **Our Favorite Home Libraries**\
 `From Connecticut to Cairo, reading spots that will seem like paradise to book- and design-lovers alike.`\
 https://nytimes.com/2026/01/07/t-magazine/best-home-library-design.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6949575/2026/01/07/john-harbaugh-betting-odds-favor
 **Kennedy Flips Food Pyramid to Emphasize Red Meat and Whole Milk**\
 `The Trump administration released new dietary guidelines on Wednesday, pushing Americans to prioritize protein and cut back on added sugars and processed foods.`\
 https://nytimes.com/2026/01/07/well/rfk-jr-food-pyramid-nutrition-guidelines-protein.html
-
-**Tuesday turned into revenge night in the NHL**\
-`Scoring goals is great, but scoring goals against your former team? Even better.`\
-https://nytimes.com/athletic/6949277/2026/01/07/nhl-revenge-goals-zegras-gauthier-rantanen-stankoven/
-
-**How to watch Iowa State vs. Cincinnati women's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa State Cyclones play the Cincinnati Bearcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6950054/2026/01/07/iowa-state-vs-cincinnati-stream-how-to-watch-jan-7/
 
