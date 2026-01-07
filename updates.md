@@ -1,3 +1,27 @@
+**Why Trump Is Fixated on Venezuelan Oil**\
+`Venezuela has roughly 17 percent of the world’s known oil reserves, but it produces only about 1 percent of the crude oil the world is using. Our energy reporter Rebecca F. Elliott explains.`\
+https://nytimes.com/video/world/americas/100000010624752/why-trump-is-fixated-on-venezuelan-oil.html
+
+**Dyche: Forest pushing to sign new striker as Kalimuendo nears loan exit**\
+`Kalimuendo, the £26million summer signing from Rennes, was in Germany on Wednesday for a medical with Eintracht Frankfurt.`\
+https://nytimes.com/athletic/6950585/2026/01/07/sean-dyche-nottingham-forest-transfer-kalimuendo/
+
+**PGA of America CEO Derek Sprague steps down to help care for family**\
+`Sprague came under fire at the Ryder Cup for not immediately reacting after Rory McIlroy and other golfers were verbally abused.`\
+https://nytimes.com/athletic/6950271/2026/01/07/pga-america-ceo-derek-sprague-stepping-down/
+
+**U.S. Threats to Take Over Greenland**\
+`Readers discuss comments by Stephen Miller about U.S. power and by the Danish prime minister about NATO. Also: Deaths on subway tracks.`\
+https://nytimes.com/2026/01/07/opinion/stephen-miller-greenland.html
+
+**Federal Agent Shoots Woman Amid Minneapolis Crackdown**\
+`The person was killed, federal authorities said. Gov. Tim Walz asked for calm as protesters gathered.`\
+https://nytimes.com/live/2026/01/07/us/minnesota-shooting-ice
+
+**Nick Reiner’s Lawyer Removes Himself From Murder Case**\
+`The announcement delayed the arraignment of Mr. Reiner, who is accused of killing his parents last month.`\
+https://nytimes.com/2026/01/07/movies/nick-reiner-lawyer-alan-jackson.html
+
 **Nick Reiner’s Lawyer Plans to Remove Himself From Murder Case**\
 `The decision is expected to delay the arraignment of Mr. Reiner, who is accused of killing his parents last month.`\
 https://nytimes.com/2026/01/07/movies/nick-reiner-lawyer-alan-jackson.html
