@@ -1,3 +1,7 @@
+**The shooting occurred less than a mile from where George Floyd was killed.**\
+`By Sonia A. Rao`\
+https://nytimes.com/live/2026/01/07/us/minnesota-shooting-ice/the-shooting-occurred-less-than-a-mile-from-where-george-floyd-was-killed
+
 **Bruce Crawford, Arts-Loving Adman Who Led the Met Opera, Dies at 96**\
 `He helped build the ad agency BBDO International into a powerhouse before channeling his passion for opera into managing the Met and revitalizing Lincoln Center.`\
 https://nytimes.com/2026/01/07/arts/music/bruce-crawford-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/07/us/philip-yancey-affair.html
 **Trump Deepens Scrutiny of Minnesota, a Potential Model for Other Blue States**\
 `The White House is intensifying and broadening its probes into fraud in states led by prominent Democrats.`\
 https://nytimes.com/2026/01/07/us/politics/trump-minnesota-fraud.html
-
-**Jules Bianchi’s last go-kart stolen from family home**\
-`Bianchi died on July 17, 2015, aged 25, due to injuries sustained in a crash during the 2014 Japanese Grand Prix nine months prior.`\
-https://nytimes.com/athletic/6950654/2026/01/07/jules-bianchi-karts-stolen-f1/
 

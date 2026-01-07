@@ -1,3 +1,7 @@
+**The shooting occurred less than a mile from where George Floyd was killed.**\
+`By Sonia A. Rao`\
+https://nytimes.com/live/2026/01/07/us/minnesota-shooting-ice/the-shooting-occurred-less-than-a-mile-from-where-george-floyd-was-killed
+
 **Bruce Crawford, Arts-Loving Adman Who Led the Met Opera, Dies at 96**\
 `He helped build the ad agency BBDO International into a powerhouse before channeling his passion for opera into managing the Met and revitalizing Lincoln Center.`\
 https://nytimes.com/2026/01/07/arts/music/bruce-crawford-dead.html
