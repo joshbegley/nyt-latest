@@ -26,7 +26,7 @@ https://nytimes.com/2026/01/07/us/ice-shootings-minneapolis-other-cities.html
 `By The New York Times`\
 https://nytimes.com/live/2026/01/07/world/venezuela-us-trump/amid-heavy-security-a-tentative-return-of-street-life-in-caracas
 
-**The Briefing: Burnley 2 Manchester United 2 - What did Fletcher change? Some familiar frailties? Sesko's best display so far?**\
+**The Briefing: Burnley 2 Manchester United 2 — What did Fletcher change? Some familiar frailties? Sesko's best display so far?**\
 `Analysis of Manchester United's first game since the departure of Ruben Amorim on Monday`\
 https://nytimes.com/athletic/6937582/2026/01/07/burnley-manchester-united-premier-league-analysis/
 

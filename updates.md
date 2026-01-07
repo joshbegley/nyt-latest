@@ -1,3 +1,11 @@
+**Man Accused of Stealing Billions in Crypto Scam Is Captured Abroad**\
+`Chen Zhi faces an indictment in federal court in Brooklyn on charges of swindling millions of dollars from Americans as part of a global cryptocurrency scam.`\
+https://nytimes.com/2026/01/07/nyregion/chen-zhi-scam-arrest-bitcoin.html
+
+**The U.S. Seized Two Oil Tankers**\
+`Also, an ICE agent fatally shot a woman in Minneapolis. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2026/01/07/briefing/us-oil-tankers-venezuela.html
+
 **Google and Character.AI to Settle Lawsuit Over Teenager’s Death**\
 `The settlement came in the case of a 14-year-old in Florida who had killed himself after developing a relationship with an A.I. chatbot.`\
 https://nytimes.com/2026/01/07/technology/google-characterai-teenager-lawsuit.html
