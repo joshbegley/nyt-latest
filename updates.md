@@ -1,3 +1,15 @@
+**Tottenham's Frank says he didn't notice using Arsenal-branded cup**\
+`Arsenal were the last team to play away at Bournemouth's Vitality Stadium, where Spurs lost 3-2 on Wednesday.`\
+https://nytimes.com/athletic/6952136/2026/01/07/thomas-frank-tottenham-arsenal-cup/
+
+**The U.S. Seizes Two Oil Tankers With Ties to Venezuela**\
+`On Wednesday, the United States seized two oil tankers, including a Russian-flagged ship. Secretary of State Marco Rubio also outlined a plan for Venezuela’s near future.`\
+https://nytimes.com/video/us/politics/100000010630064/venezuela-oil-tankers.html
+
+**Trump Pulls Out of Global Climate Treaty**\
+`The action could make it more difficult for a future administration to rejoin the Paris climate accord, the agreement among most nations to fight climate change.`\
+https://nytimes.com/2026/01/07/climate/trump-un-climate-treaty.html
+
 **Trump Pulls Out of Global Climate Treaty**\
 `The action could make it more difficult for a future administration to rejoin the Paris climate accord, the agreement among most nations to fight climate change.`\
 https://nytimes.com/2026/01/07/climate/trump-pulls-out-of-global-climate-treaty.html
