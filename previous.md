@@ -1,3 +1,7 @@
+**Why Kyle Whittingham will (and won't) succeed at Michigan**\
+`Whittingham’s hiring has been greeted with enthusiasm, but it’s also worth being clear-eyed about the challenges he’ll face in Ann Arbor.`\
+https://nytimes.com/athletic/6946830/2026/01/07/kyle-whittingham-michigan-football-underwood-coaches/
+
 **What we're hearing about a potential Anthony Davis trade ahead of NBA deadline**\
 `With Dallas struggling to hold down a Play-In spot, will the team look to deal its star big man before the Feb. 5 trade deadline?`\
 https://nytimes.com/athletic/6948820/2026/01/07/anthony-davis-mavericks-nba-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6948294/2026/01/07/bears-packers-nfl-playoffs-fast-
 **Mainoo wins? Yoro loses? How Amorim's exit affects Man Utd's squad**\
 `Analysing how the Portuguese's exit could help — or hinder — United's players`\
 https://nytimes.com/athletic/6946102/2026/01/07/kobbie-mainoo-manchester-united-squad-amorim/
-
-**Why Sam Darnold's quiet performance could be a good sign for Seattle: Quick Outs Week 18**\
-`The Seahawks rode their defense to a win in San Francisco. Plus, will the Bills-Jaguars winner be the AFC's Super Bowl favorite?`\
-https://nytimes.com/athletic/6945134/2026/01/07/sam-darnold-seahawks-49ers-playoffs-quick-outs/
 

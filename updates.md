@@ -1,3 +1,7 @@
+**Why Kyle Whittingham will (and won't) succeed at Michigan**\
+`Whittingham’s hiring has been greeted with enthusiasm, but it’s also worth being clear-eyed about the challenges he’ll face in Ann Arbor.`\
+https://nytimes.com/athletic/6946830/2026/01/07/kyle-whittingham-michigan-football-underwood-coaches/
+
 **What we're hearing about a potential Anthony Davis trade ahead of NBA deadline**\
 `With Dallas struggling to hold down a Play-In spot, will the team look to deal its star big man before the Feb. 5 trade deadline?`\
 https://nytimes.com/athletic/6948820/2026/01/07/anthony-davis-mavericks-nba-trade-deadline/
