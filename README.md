@@ -1,3 +1,7 @@
+**O'Neil appointed Strasbourg head coach**\
+`The 42-year-old's appointment at the Ligue 1 side follows Liam Rosenior's move to Chelsea earlier this week.`\
+https://nytimes.com/athletic/6942227/2026/01/07/gary-oneil-strasbourg-manager/
+
 **Tell Us: What’s the Most Romantic Thing You’ve Ever Seen?**\
 `We may include your story in an episode of the “Modern Love” podcast.`\
 https://nytimes.com/2026/01/07/podcasts/tell-us-whats-the-most-romantic-thing-youve-ever-seen.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010624613/the-case-for-real-regime-chang
 **One Year After the Fires: Los Angeles Tries to Heal**\
 `After wildfires destroyed much of Altadena and Pacific Palisades, residents are struggling with how to move forward and who is to blame.`\
 https://nytimes.com/2026/01/07/us/la-fires-palisades-eaton-altadena.html
-
-**A Portrait That Was the ‘Instagram of Its Time’**\
-`Charles Edwards painted his interpretations of canvases by Anthony van Dyck for the Metropolitan Opera’s production of “I Puritani.” Then he visited the Met Museum to see the original.`\
-https://nytimes.com/2026/01/07/nyregion/i-puritani-met-opera-paintings.html
 
