@@ -1,3 +1,7 @@
+**Mandel's Mailbag: Is the SEC slipping? Can Indiana actually sustain this success?**\
+`Did the transfer portal and NIL change the sport for the better? Can Texas Tech take a jump with Brendan Sorsby? `\
+https://nytimes.com/athletic/6947990/2026/01/07/mandel-mailbag-sec-nil-indiana-playoff/
+
 **Why Kyle Whittingham will (and won't) succeed at Michigan**\
 `Whittingham’s hiring has been greeted with enthusiasm, but it’s also worth being clear-eyed about the challenges he’ll face in Ann Arbor.`\
 https://nytimes.com/athletic/6946830/2026/01/07/kyle-whittingham-michigan-football-underwood-coaches/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6948100/2026/01/07/yankees-cody-bellinger-negotatio
 **Can Bears get off to a fast start vs. Packers? They can't afford to play catch-up**\
 `The Bears can't rely on what they've done in the past. They desperately need to score points early, and Caleb Williams must be accurate."`\
 https://nytimes.com/athletic/6948294/2026/01/07/bears-packers-nfl-playoffs-fast-start/
-
-**Mainoo wins? Yoro loses? How Amorim's exit affects Man Utd's squad**\
-`Analysing how the Portuguese's exit could help — or hinder — United's players`\
-https://nytimes.com/athletic/6946102/2026/01/07/kobbie-mainoo-manchester-united-squad-amorim/
 
