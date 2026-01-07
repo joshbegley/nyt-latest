@@ -1,3 +1,11 @@
+**The Pulse: A new Olympic superstar?**\
+`The Athletic has live coverage of Bears vs.`\
+https://nytimes.com/athletic/6947248/2026/01/07/the-olympics-already-have-a-possible-superstar-plus-a-shock-nfl-dismissal/
+
+**Real Madrid not ruling out Mbappe return for Supercopa de Espana final**\
+`Mbappe is sidelined due to a sprain in his left knee and remains in Madrid while he works on his recovery.`\
+https://nytimes.com/athletic/6948950/2026/01/07/kylian-mbappe-real-madrid-injury-return-news/
+
 **Slot: Liverpool's Ekitike a doubt to face Arsenal**\
 `The French striker missed Sunday's 2-2 draw at Fulham due to a minor hamstring problem.`\
 https://nytimes.com/athletic/6948919/2026/01/07/hugo-ekitike-injury-liverpool-arsenal-team-news/
