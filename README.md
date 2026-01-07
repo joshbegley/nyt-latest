@@ -1,6 +1,10 @@
-**Q&A: Giants prospect discusses the scene in Venezuela in wake of attack**\
+**Lenny Dykstra charged with drug possession, awaits preliminary hearing**\
+`Dykstra was arrested Friday on suspicion of possessing narcotics and narcotic-related equipment but was not taken into custody, per police.`\
+https://nytimes.com/athletic/6947297/2026/01/06/lenny-dykstra-charges-drugs-mlb-mets-phillies/
+
+**At home in Venezuela, a Giants prospect details the uncertainty in his country**\
 `Giants prospect Jesús Rodríguez says that life in Caracas is now calm and he hopes to be in the U.S. for spring training next month.`\
-https://nytimes.com/athletic/6946955/2026/01/06/qa-giants-prospect-discusses-the-scene-in-venezuela-in-wake-of-attack/
+https://nytimes.com/athletic/6946955/2026/01/06/giants-jesus-rodriguez-venezuela-uncertainty/
 
 **Iconic vs. Novel: An Alternative Journey to Japan’s Historical Heartland**\
 `Japan’s popular attractions are world famous for good reason. Adventurous visitors curious to discover the less familiar, however, can ride the rails for an unforgettable cultural exploration of the western Kansai region, without the crowds. 
@@ -36,9 +40,4 @@ https://nytimes.com/2026/01/06/us/haiti-temporary-protected-status-trump.html
 **U.S. Pressures Venezuela to Expel Official Advisers From China, Cuba, Iran and Russia, Officials Say**\
 `Secretary of State Marco Rubio was said to have listed the Trump administration’s demands to Venezuela’s new leader, Delcy Rodríguez, in a classified meeting Monday with senior congressional leaders.`\
 https://nytimes.com/2026/01/06/world/americas/us-venezuela-cuba-russia-china-iran.html
-
-**Traverse Tokyo and Beyond: Chiba and Kanagawa for Culture Vultures **\
-`Tokyo is a spectacular city in its own right, but traveling farther afield to its neighboring prefectures of Chiba and Kanagawa offers pristine Japanese scenery, art and cultural delights, too. 
-`\
-https://nytimes.com/paidpost/tcvb/traverse-tokyo-and-beyond-chiba-and-kanagawa-for-culture-vultures.html
 
