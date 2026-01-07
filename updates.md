@@ -1,3 +1,7 @@
+**Word of the Day: homily**\
+`This word has appeared in 64 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/07/learning/word-of-the-day-homily.html
+
 **LeBron James says he needs to fit in around Luka Dončić as duo's chemistry grows**\
 `This was the kind of performance coach J.J. Redick can reference as the Lakers figure out how to use their best players this season.`\
 https://nytimes.com/athletic/6948653/2026/01/07/lebron-james-luka-doncic-chemistry-grows/

@@ -1,14 +1,18 @@
+**Word of the Day: homily**\
+`This word has appeared in 64 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/07/learning/word-of-the-day-homily.html
+
 **LeBron James says he needs to fit in around Luka Dončić as duo's chemistry grows**\
 `This was the kind of performance coach J.J. Redick can reference as the Lakers figure out how to use their best players this season.`\
 https://nytimes.com/athletic/6948653/2026/01/07/lebron-james-luka-doncic-chemistry-grows/
 
-**The New York Times in Print for Wednesday, Jan. 7, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/01/07/todays-new-york-times
-
 **I May Be Free, but the Belarusian People Are Not**\
 `The world must not stop supporting dissidents in Belarus despite the release of some from prison.`\
 https://nytimes.com/2026/01/07/opinion/ales-bialiatski-belarus-lukashenko.html
+
+**The New York Times in Print for Wednesday, Jan. 7, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/07/todays-new-york-times
 
 **It's 613 days since Bajcetic played for Liverpool. What's going on?**\
 `The midfielder is rehabbing again after yet another injury setback. His future at Liverpool seems far from certain`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/06/world/americas/russia-tanker-bella.html
 **Nuno Espirito Santo, Nottingham Forest and a lingering sense of regret**\
 `The beleaguered West Ham manager watched his team lose to his former club Nottingham Forest, the team he took into European competition`\
 https://nytimes.com/athletic/6940004/2026/01/07/nuno-west-ham-forest-edu-marinakis-regret/
-
-**What the Supercopa means to Barcelona and Real Madrid... and why it's played in Saudi Arabia**\
-`A tournament which is often criticised for off-pitch reasons has become a barometer by which to measure Spain's big two at midseason`\
-https://nytimes.com/athletic/6945629/2026/01/07/barcelona-real-madrid-supercopa-saudi-arabia/
 
