@@ -1,3 +1,19 @@
+**Quote of the Day: Every Apron Tells a Story at a Tiny Museum**\
+`Quotation of the Day for Wednesday, January 7, 2026`\
+https://nytimes.com/2026/01/07/pageoneplus/quote-of-the-day-every-apron-tells-a-story-at-a-tiny-museum.html
+
+**Connections: Sports Edition Coach: Hints for Jan. 7, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6945157/2026/01/07/connections-sports-edition-hints-for-jan-7-2026/
+
+**China Sells the World on Its Duty-Free Island, Amid a $1 Trillion Trade Surplus**\
+`Policies meant to lure importers to Hainan, a resort island off China’s coast, signal an opening up, Beijing says. One expert calls it a “bait and switch.”`\
+https://nytimes.com/2026/01/07/business/china-hainan-island-duty-free.html
+
+**Corrections: Jan. 7, 2026**\
+`Corrections that appeared in print on Wednesday, Jan. 7, 2026.`\
+https://nytimes.com/2026/01/06/pageoneplus/corrections-jan-7-2026.html
+
 **Former Texas WR Jordan Shipley hospitalized after ranch accident**\
 `Shipley was an All-American for the Longhorns in their 13-1 season in 2009.`\
 https://nytimes.com/athletic/6948509/2026/01/06/jordan-shipley-hospitalized-ranch-injury/
@@ -21,21 +37,4 @@ https://nytimes.com/2026/01/06/crosswords/daily-puzzle-2026-01-07.html
 **Pacers lose franchise-record 13th straight, leaving coach stuck one win shy of 1,000**\
 `The Pacers are on pace for a 13-win season, which would tie the 1998-99 Bulls for the fewest by a team that made the previous finals.`\
 https://nytimes.com/athletic/6947629/2026/01/06/pacers-loss-record-13-straight-cavaliers/
-
-**Béla Fleck Withdraws From Kennedy Center Concerts**\
-`“Performing there has become charged and political,” the 18-time Grammy winner said.`\
-https://nytimes.com/2026/01/06/arts/music/bela-fleck-kennedy-center-orchestra.html
-
-**Jets' Haydn Fleury stretchered off ice after getting shoved into end boards**\
-`Fleury was shoved to the ice by Golden Knights winger Keegan Kolesar after sending a breakout pass and slid backward into the end boards.`\
-https://nytimes.com/athletic/6948225/2026/01/06/winnipeg-jets-haydn-fleury-stretchered-injury/
-
-**Giants, Jung Hoo Lee tour South Korea, where they hope to build nation of fans**\
-`Giants officials have let MLB know that if the world tour program returns to South Korea, they'd love to be part of it.`\
-https://nytimes.com/athletic/6948078/2026/01/06/giants-south-korea-jung-hoo-lee-fans/
-
-**Motorsports, Mountain and More: The Perks of Staying at the Foot of Japan’s Highest Peak**\
-`In the shadow of Mount Fuji lies a paradise for speed demons and an activity-packed five-day adventure.
-`\
-https://nytimes.com/paidpost/fuji-speedway-hotel/fuji-speedway-hotel/motorsports-mountain-and-more-the-perks-of-staying-at-the-foot-of-japans-highest-peak.html
 
