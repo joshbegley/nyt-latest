@@ -1,3 +1,15 @@
+**Google and Character.AI to Settle Lawsuit Over Teenager’s Death**\
+`The settlement came in the case of a 14-year-old in Florida who had killed himself after developing a relationship with an A.I. chatbot.`\
+https://nytimes.com/2026/01/07/technology/google-characterai-teenager-lawsuit.html
+
+**Mikel Arteta expects a 'great version' of Eberechi Eze in coming months - where could he use him?**\
+`Eze has not featured in the past four games, but the Arsenal manager insists the midfielder will be important in second half of the season`\
+https://nytimes.com/athletic/6949685/2026/01/07/eberechi-eze-arsenal-arteta/
+
+**Newcastle 4 Leeds 3 - Keegan celebrated in Premier League classic, barnstorming Barnes, Thiaw's torment**\
+`Our writers break down the talking points from a breathless classic on Tyneside`\
+https://nytimes.com/athletic/6937583/2026/01/07/newcastle-4-leeds-3-keegan-barnes-thiaw-premier-league-analysis/
+
 **Deadly Minneapolis Encounter Is the 9th ICE Shooting Since September**\
 `All those targeted in the shootings were fired on while in their vehicles.`\
 https://nytimes.com/2026/01/07/us/ice-shootings-minneapolis-other-cities.html
@@ -17,12 +29,4 @@ https://nytimes.com/2026/01/07/climate/antarctica-thwaites-glacier.html
 **Horns, Whistles and Then Gunfire on a Minneapolis Street**\
 `A man opened his door to discover a tableau of deadly violence after a federal agent fatally shot a woman.`\
 https://nytimes.com/2026/01/07/us/minneapolis-ice-shooting-witness.html
-
-**Cubs boost their formidable rotation, acquiring Edward Cabrera from Marlins: MLB Trade Grades**\
-`There’s a lot for the Cubs to like about Cabrera, from his 94-mph changeup to his devastating curveball and slider to his improved walk rate`\
-https://nytimes.com/athletic/6951312/2026/01/07/cubs-marlins-edward-cabrera-trade-grades/
-
-**U.S., Cementing Control on Venezuelan Oil, Seizes Russian-Flagged Tanker**\
-`The vessel was one of two taken into American custody as the Trump administration said it was executing a “deal to take all the oil.”`\
-https://nytimes.com/2026/01/07/world/americas/venezuela-us-oil.html
 
