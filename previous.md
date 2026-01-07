@@ -1,3 +1,27 @@
+**Eagles' Lane Johnson returns to practice ahead of playoff game vs. 49ers**\
+`It's a positive sign that the five-time All-Pro tackle is on pace to return for Philadelphia's postseason opener Sunday.`\
+https://nytimes.com/athletic/6951335/2026/01/07/lane-johnson-eagles-injury-update-status-playoffs-49ers/
+
+**Residents Flee As Fighting In Aleppo Reignites**\
+`Several people have been killed in fighting between Syrian government forces and a Kurdish-led militia, the Syrian Democratic Forces, in Aleppo, Syria, after two days of clashes. Efforts to integrate the S.D.F. into the national military appear to have stalled.`\
+https://nytimes.com/video/world/middleeast/100000010629255/syria-aleppo-citizens-flee.html
+
+**NFL playoff quarterbacks by highest football card sale: The surprising leader**\
+`Quarterbacks are king in the football card world, but most playoff-bound QBs haven't inspired confidence among collectors`\
+https://nytimes.com/athletic/6949926/2026/01/07/quarterback-card-values-herbert-maye/
+
+**How to watch Rockets vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6951557/2026/01/07/rockets-vs-trail-blazers-stream-how-to-watch-jan-7/
+
+**How to watch Pelicans vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6951542/2026/01/07/pelicans-vs-hawks-stream-how-to-watch-jan-7/
+
+**How to watch Magic vs. Nets: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6951538/2026/01/07/magic-vs-nets-stream-how-to-watch-jan-7/
+
 **How to watch Bucks vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6951535/2026/01/07/bucks-vs-warriors-stream-how-to-watch-jan-7/
@@ -9,28 +33,4 @@ https://nytimes.com/athletic/6951528/2026/01/07/senators-vs-mammoth-stream-how-t
 **How to watch Arkansas vs. Ole Miss men's basketball: Time, TV, streaming**\
 `Find out how to watch the Arkansas Razorbacks play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6951526/2026/01/07/arkansas-vs-ole-miss-stream-how-to-watch-jan-7/
-
-**Best landing spots for Jim Harbaugh? Why Giants are at the top, Raiders at the bottom**\
-`The Giants might be the favorites, but how would Harbaugh fit in Atlanta, Cleveland, Tennessee, Arizona and Las Vegas? `\
-https://nytimes.com/athletic/6950683/2026/01/07/john-harbaugh-next-head-coach-job-openings-fits/
-
-**How to watch Sharks vs. Kings: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6951520/2026/01/07/sharks-vs-kings-stream-how-to-watch-jan-7/
-
-**How to watch SMU vs. Clemson men's basketball: Time, TV, streaming**\
-`Find out how to watch the SMU Mustangs play the Clemson Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6951519/2026/01/07/smu-vs-clemson-stream-how-to-watch-jan-7/
-
-**How to watch Flames vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6951512/2026/01/07/flames-vs-canadiens-stream-how-to-watch-jan-7/
-
-**How to watch Kansas State vs. Arizona men's basketball: Time, TV, streaming**\
-`Find out how to watch the Kansas State Wildcats play the Arizona Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6951508/2026/01/07/kansas-state-vs-arizona-stream-how-to-watch-jan-7/
-
-**How to watch Alabama vs. Vanderbilt men's basketball: Time, TV, streaming**\
-`Find out how to watch the Alabama Crimson Tide play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6951494/2026/01/07/alabama-vs-vanderbilt-stream-how-to-watch-jan-7/
 
