@@ -1,3 +1,7 @@
+**U.S. to Control Venezuela Oil Sales ‘Indefinitely,’ Energy Secretary Says**\
+`Chris Wright said the Trump administration was in “active dialogue” with Venezuela’s government about the plan.`\
+https://nytimes.com/2026/01/07/business/energy-environment/us-venezuela-oil-control.html
+
 **Five Dodgers questions amid a slow offseason (and a big move to come?)**\
 `Kyle Tucker, Bo Bichette and Cody Bellinger are among the intriguing names as the Dodgers look to bolster their chances of another title.`\
 https://nytimes.com/athletic/6948210/2026/01/07/dodgers-offseason-mlb-trade-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010626899/french-lentil-salad.html
 **Crispy Halloumi With Tomatoes and White Beans**\
 `This vibrant vegetarian dish combines savory broiled halloumi, juicy cherry tomatoes and creamy white beans for a satisfying one-pan meal. When broiled, the halloumi becomes golden and crispy on the outside while staying soft and chewy on the inside, adding a deliciously hearty texture to each bite.`\
 https://nytimes.com/video/dining/100000010626897/crispy-halloumi-with-tomatoes-and-white-beans.html
-
-**Cheesy Gnocchi With Corn and Pesto**\
-`Tasty and effortless, store-bought gnocchi offers a much-needed shortcut for busy weeknight dinners. You can bypass boiling a pot of water for the gnocchi, and instead simply give them a quick sear over high heat, which creates perfectly crispy edges.`\
-https://nytimes.com/video/dining/100000010626895/cheesy-gnocchi-with-corn-and-pesto.html
 

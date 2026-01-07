@@ -1,3 +1,7 @@
+**What's going on with Lane Kiffin's search for a starting quarterback at LSU?**\
+`Could Washington's Demond Williams Jr., who was once committed to Kiffin at Ole Miss, end up in Baton Rouge? `\
+https://nytimes.com/athletic/6949190/2026/01/07/lane-kiffin-lsu-quarterback-demond-williams-sam-leavitt/
+
 **U.S. to Control Venezuela Oil Sales ‘Indefinitely,’ Energy Secretary Says**\
 `Chris Wright said the Trump administration was in “active dialogue” with Venezuela’s government about the plan.`\
 https://nytimes.com/2026/01/07/business/energy-environment/us-venezuela-oil-control.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/americas/100000010628629/venezuela-maduro-rally-
 **French Lentil Salad**\
 `Bright with flavor, dynamic and crisp with a combination of roots and chicory, and fresh with major herb appeal, this is a hearty, friendly, anytime lentil salad that will work well with any grocery or farmers’ market haul.`\
 https://nytimes.com/video/dining/100000010626899/french-lentil-salad.html
-
-**Crispy Halloumi With Tomatoes and White Beans**\
-`This vibrant vegetarian dish combines savory broiled halloumi, juicy cherry tomatoes and creamy white beans for a satisfying one-pan meal. When broiled, the halloumi becomes golden and crispy on the outside while staying soft and chewy on the inside, adding a deliciously hearty texture to each bite.`\
-https://nytimes.com/video/dining/100000010626897/crispy-halloumi-with-tomatoes-and-white-beans.html
 

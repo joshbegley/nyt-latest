@@ -1,3 +1,7 @@
+**U.S. to Control Venezuela Oil Sales ‘Indefinitely,’ Energy Secretary Says**\
+`Chris Wright said the Trump administration was in “active dialogue” with Venezuela’s government about the plan.`\
+https://nytimes.com/2026/01/07/business/energy-environment/us-venezuela-oil-control.html
+
 **Five Dodgers questions amid a slow offseason (and a big move to come?)**\
 `Kyle Tucker, Bo Bichette and Cody Bellinger are among the intriguing names as the Dodgers look to bolster their chances of another title.`\
 https://nytimes.com/athletic/6948210/2026/01/07/dodgers-offseason-mlb-trade-free-agency/
