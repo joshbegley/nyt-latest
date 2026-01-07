@@ -1,40 +1,36 @@
-**How to watch Washington vs. Purdue men's basketball: Time, TV, streaming**\
-`Find out how to watch the Washington Huskies play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6951436/2026/01/07/washington-vs-purdue-stream-how-to-watch-jan-7/
+**How to watch Bucks vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6951535/2026/01/07/bucks-vs-warriors-stream-how-to-watch-jan-7/
 
-**How to watch St. John's vs. UConn women's basketball: Time, TV, streaming**\
-`Find out how to watch the St. John's Red Storm play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6951430/2026/01/07/st-john-s-vs-uconn-stream-how-to-watch-jan-7/
+**How to watch Senators vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6951528/2026/01/07/senators-vs-mammoth-stream-how-to-watch-jan-7/
 
-**How to watch Arizona State vs. BYU men's basketball: Time, TV, streaming**\
-`Find out how to watch the Arizona State Sun Devils play the BYU Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6951420/2026/01/07/arizona-state-vs-byu-stream-how-to-watch-jan-7/
+**How to watch Arkansas vs. Ole Miss men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arkansas Razorbacks play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6951526/2026/01/07/arkansas-vs-ole-miss-stream-how-to-watch-jan-7/
 
-**Fantasy basketball hot topics of the week: Replacing Jokic, 3 key Denver pickups and more**\
-`Stan Son applies a fantasy lens to the latest news around the league, including Nikola Jokic's injury, Kevin Durant's usage and more. `\
-https://nytimes.com/athletic/6950944/2026/01/07/fantasy-basketball-hot-topics-nikola-jokic-injury/
+**Best landing spots for Jim Harbaugh? Why Giants are at the top, Raiders at the bottom**\
+`The Giants might be the favorites, but how would Harbaugh fit in Atlanta, Cleveland, Tennessee, Arizona and Las Vegas? `\
+https://nytimes.com/athletic/6950683/2026/01/07/john-harbaugh-next-head-coach-job-openings-fits/
 
-**Coordinator candidates to watch as the Commanders start their search**\
-`Coach Dan Quinn has dropped hints, some more subtle than others, about the traits he wants in his next play callers.`\
-https://nytimes.com/athletic/6950743/2026/01/07/commanders-offensive-defensive-coordinator-candidates/
+**How to watch Sharks vs. Kings: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6951520/2026/01/07/sharks-vs-kings-stream-how-to-watch-jan-7/
 
-**Trump’s Voters Are Discovering What ‘America First’ Really Means**\
-`Whether or not the Venezuelan raid was advisable, it was Trumpian.`\
-https://nytimes.com/2026/01/07/opinion/trump-venezuela-america-first.html
+**How to watch SMU vs. Clemson men's basketball: Time, TV, streaming**\
+`Find out how to watch the SMU Mustangs play the Clemson Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6951519/2026/01/07/smu-vs-clemson-stream-how-to-watch-jan-7/
 
-**It’s Not Going to Be Trump’s Economy Anymore**\
-`Will anyone be in charge?`\
-https://nytimes.com/2026/01/07/opinion/trump-economy-inflation-tariffs.html
+**How to watch Flames vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6951512/2026/01/07/flames-vs-canadiens-stream-how-to-watch-jan-7/
 
-**Democrats Seek Answers About Oil Industry’s Knowledge of Venezuela Operation**\
-`Democrats demanded information from seven top U.S. oil companies about any meetings with the Trump administration regarding plans to control Venezuela’s oil industry.`\
-https://nytimes.com/2026/01/07/climate/democrats-oil-companies-venezuela.html
+**How to watch Kansas State vs. Arizona men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas State Wildcats play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6951508/2026/01/07/kansas-state-vs-arizona-stream-how-to-watch-jan-7/
 
-**College football parity, for those who can afford it: MoneyCall**\
-`The latest edition of The Athletic's free weekly sports-business cheat sheet.`\
-https://nytimes.com/athletic/6951114/2026/01/07/cfp-playoff-indiana-ole-miss-moneycall/
-
-**Pittsburgh Post-Gazette Announces It Will Cease Operations**\
-`The family-owned company that operates the newspaper cited mounting losses and labor constraints. A final edition is expected on Sunday, May 3.`\
-https://nytimes.com/2026/01/07/business/media/pittsburgh-post-gazette-closing.html
+**How to watch Alabama vs. Vanderbilt men's basketball: Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6951494/2026/01/07/alabama-vs-vanderbilt-stream-how-to-watch-jan-7/
 
