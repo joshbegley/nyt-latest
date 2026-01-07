@@ -1,3 +1,27 @@
+**NFL wild-card confidence picks: Jacksonville's surge to continue against Buffalo**\
+`KC Joyner gives his straight-up and against-the-spread picks for this weekend's NFL wild-card playoff games.`\
+https://nytimes.com/athletic/6948554/2026/01/07/nfl-wild-card-confidence-picks-jacksonville-buffalo/
+
+**Moroccan Cave Fossils Yield a Possible Missing Link in Human Evolution**\
+`Jawbones and other remains, similar to specimens found in Europe, were dated to 773,000 years and help close a gap in Africa’s fossil record of human origins.`\
+https://nytimes.com/2026/01/07/science/morocco-fossils-human-evolution.html
+
+**Travis Kelce says he'd return for another season if 'my body can heal up'**\
+`Kelce has spent his entire 13-year NFL career with the Chiefs, who missed the playoffs this season.`\
+https://nytimes.com/athletic/6949607/2026/01/07/travis-kelce-future-chiefs-return/
+
+**U.S. to play Canada, Colombia, and Argentina at 2026 SheBelieves Cup**\
+`The tournament will take place between March 1-7. Two games each will be played in Nashville, Columbus and Harrison.`\
+https://nytimes.com/athletic/6949004/2026/01/07/united-states-shebelieves-cup-2026-fixtures/
+
+**Yes, Soup for You**\
+`Spicy black bean soup, French onion white bean soup, Italian wedding soup with turkey meatballs — the options are endless (and delicious).`\
+https://nytimes.com/2026/01/07/dining/yes-soup-for-you.html
+
+**Want to Accomplish More This Year? These Books Can Help.**\
+`We asked psychologists, researchers and executive coaches for their top recommendations.`\
+https://nytimes.com/2026/01/07/well/mind/productivity-books.html
+
 **Trump’s Venezuela Moves Pose a Challenge for G.O.P. in Congress**\
 `Republicans have cheered the raid that ousted Nicolás Maduro but toiled to square their longstanding views with President Trump’s unclear and rapidly evolving strategy.`\
 https://nytimes.com/2026/01/07/us/politics/trump-venezuela-congress-republicans.html
@@ -6,35 +30,11 @@ https://nytimes.com/2026/01/07/us/politics/trump-venezuela-congress-republicans.
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6949713/2026/01/07/kevin-durant-rockets-suns-victor-wembanyama-nba-the-bounce/
 
-**En vivo: EE. UU. intercepta un buque petrolero con bandera de Rusia**\
-`La embarcación había estado navegando por el océano Atlántico entre Islandia y el Reino Unido. Su destino era desconocido.`\
+**En vivo: EE. UU. intercepta 2 petroleros, uno de ellos con bandera de Rusia**\
+`El ejército estadounidense interceptó un petrolero con bandera rusa como parte de su campaña de presión contra Venezuela. También detuvo un segundo barco en el Caribe.`\
 https://nytimes.com/live/2026/01/07/espanol/venezuela-trump-juicio-maduro
 
 **NFL head coach and GM openings: Who are candidates to fill the positions?**\
 `The coaching and GM carousel began in earnest with the conclusion of the regular season. Here are names to watch to fill the roles.`\
 https://nytimes.com/athletic/6947104/2026/01/07/nfl-general-manager-coach-openings-candidates/
-
-**Lowetide: Why Kasperi Kapanen is a welcome addition to the Oilers lineup**\
-`Kapanen had been out since mid-October with an injury and played on the second line on Tuesday night.`\
-https://nytimes.com/athletic/6943971/2026/01/07/oilers-kasperi-kapanen-lineup-stats/
-
-**U.S. Seizes Oil Tanker, Raising Tensions With Russia**\
-`The ship had been eluding the Coast Guard after being stopped on its way to pick up oil in Venezuela. U.S. forces also boarded another tanker in international waters near the Caribbean.`\
-https://nytimes.com/2026/01/07/us/politics/us-russia-oil-tanker.html
-
-**Our last sunset, for a while.**\
-`(No description)`\
-https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/sunsets
-
-**Alaska Airlines to Buy 110 Boeing Planes as It Seeks to Expand**\
-`Alaska’s order, its largest ever, follows its acquisition of Hawaiian Airlines and is part of its plan to expand, including overseas.`\
-https://nytimes.com/2026/01/07/business/alaska-airlines-boeing-planes.html
-
-**Clashes Between Syrian Government and Kurdish-Led Militia Restart After Deaths**\
-`Fighting in the city of Aleppo resumed as talks to integrate the Kurdish-led Syrian Democratic Forces into the national military appear to have stalled.`\
-https://nytimes.com/2026/01/07/world/middleeast/syria-aleppo-clashes-kurdish-forces.html
-
-**G.O.P. Congressman: Trump Needs to Change Course on Venezuela**\
-`A Republican House member argues that the Maduro raid was good — but the operation’s success still hangs in the balance.`\
-https://nytimes.com/2026/01/07/opinion/trump-venezuela-plan-maduro.html
 
