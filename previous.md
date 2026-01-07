@@ -1,10 +1,26 @@
+**Trump officials threaten to expand a crackdown on fraud in Minnesota to other Democratic-run states.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2026/01/07/us/trump-news/trump-officials-threaten-to-expand-a-crackdown-on-fraud-in-minnesota-to-other-democratic-run-states
+
+**2026 SAG Actors Award Nominations List:**\
+`“One Battle After Another” and “Sinners” lead, while Timothée Chalamet and Ariana Grande also scored nods. Cynthia Erivo and the stars of “Jay Kelly” were left out.`\
+https://nytimes.com/2026/01/07/movies/actor-award-sag-nominations-list.html
+
+**Many Local Officials Call for Federal Forces to Leave Minneapolis**\
+`Minneapolis leaders condemned the immigration crackdown, as federal officials defended the operation.`\
+https://nytimes.com/2026/01/07/us/minneapolis-shooting-reaction-immigration-frey.html
+
+**Ohio State stars Carnell Tate, Caleb Downs declare for 2026 NFL Draft**\
+`Both prospects could be top-10 picks in the upcoming draft.`\
+https://nytimes.com/athletic/6950622/2026/01/07/nfl-draft-2026-caleb-downs-carnell-tate-declare/
+
 **Kevin Keegan, Newcastle and Liverpool legend, diagnosed with cancer**\
 `The former England manager's family confirmed the diagnosis in a statement on Wednesday.`\
 https://nytimes.com/athletic/6950796/2026/01/07/kevin-keegan-cancer-newcastle-liverpool/
 
 **Depleted and Distracted, Justice Dept. Staff Fear Losing Focus on Potential Threats**\
 `Rank-and-file prosecutors and agents have expressed serious concern that a hobbled work force hurts the government’s ability to identify and stop terrorist plots, cyberattacks, mass violence and fraud.`\
-https://nytimes.com/2026/01/07/nyregion/justice-department-threats-cyberattacks-terrorism.html
+https://nytimes.com/2026/01/07/us/justice-department-threats-cyberattacks-terrorism.html
 
 **Submit your Ohio State football questions for Cameron Teague Robinson’s mailbag**\
 `What's on your mind about the Buckeyes after an early College Football Playoff exit?`\
@@ -21,20 +37,4 @@ https://nytimes.com/video/world/americas/100000010624752/why-trump-is-fixated-on
 **Dyche: Forest pushing to sign new striker as Kalimuendo nears loan exit**\
 `Kalimuendo, the £26million summer signing from Rennes, was in Germany on Wednesday for a medical with Eintracht Frankfurt.`\
 https://nytimes.com/athletic/6950585/2026/01/07/sean-dyche-nottingham-forest-transfer-kalimuendo/
-
-**PGA of America CEO Derek Sprague steps down to help care for family**\
-`Sprague came under fire at the Ryder Cup for not immediately reacting after Rory McIlroy and other golfers were verbally abused.`\
-https://nytimes.com/athletic/6950271/2026/01/07/pga-america-ceo-derek-sprague-stepping-down/
-
-**U.S. Threats to Take Over Greenland**\
-`Readers discuss comments by Stephen Miller about U.S. power and by the Danish prime minister about NATO. Also: Deaths on subway tracks.`\
-https://nytimes.com/2026/01/07/opinion/stephen-miller-greenland.html
-
-**Watch Live: Updates on Fatal Shooting Amid Minneapolis ICE Crackdown**\
-`The woman was killed in a car by federal officials, the authorities said. Gov. Tim Walz asked for calm as protesters gathered at the site of the shooting.`\
-https://nytimes.com/live/2026/01/07/us/minnesota-shooting-ice
-
-**Nick Reiner’s Lawyer Removes Himself From Murder Case**\
-`The announcement delayed the arraignment of Mr. Reiner, who is accused of killing his parents last month.`\
-https://nytimes.com/2026/01/07/movies/nick-reiner-lawyer-alan-jackson.html
 

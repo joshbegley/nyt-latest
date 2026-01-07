@@ -1,3 +1,11 @@
+**Trump Deepens Scrutiny of Minnesota, a Potential Model for Other Blue States**\
+`The White House is intensifying and broadening its probes into fraud in states led by prominent Democrats.`\
+https://nytimes.com/2026/01/07/us/politics/trump-deepens-scrutiny-of-minnesota-a-potential-model-for-other-blue-states.html
+
+**Jules Bianchi’s last go-kart stolen from family home**\
+`Bianchi died on July 17, 2015, aged 25, due to injuries sustained in a crash during the 2014 Japanese Grand Prix nine months prior.`\
+https://nytimes.com/athletic/6950654/2026/01/07/jules-bianchi-karts-stolen-f1/
+
 **Trump officials threaten to expand a crackdown on fraud in Minnesota to other Democratic-run states.**\
 `By Madeleine Ngo`\
 https://nytimes.com/live/2026/01/07/us/trump-news/trump-officials-threaten-to-expand-a-crackdown-on-fraud-in-minnesota-to-other-democratic-run-states
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6950784/2026/01/07/ohio-state-football-mailbag-ques
 **Julie Menin Is Elected New York City Council Speaker**\
 `Ms. Menin, a centrist Democrat, said she would investigate bad actors in business and city agencies and played down areas of difference with Mayor Zohran Mamdani.`\
 https://nytimes.com/2026/01/07/nyregion/julie-menin-nyc-council-speaker.html
-
-**Why Trump Is Fixated on Venezuelan Oil**\
-`Venezuela has roughly 17 percent of the world’s known oil reserves, but it produces only about 1 percent of the crude oil the world is using. Our energy reporter Rebecca F. Elliott explains.`\
-https://nytimes.com/video/world/americas/100000010624752/why-trump-is-fixated-on-venezuelan-oil.html
-
-**Dyche: Forest pushing to sign new striker as Kalimuendo nears loan exit**\
-`Kalimuendo, the £26million summer signing from Rennes, was in Germany on Wednesday for a medical with Eintracht Frankfurt.`\
-https://nytimes.com/athletic/6950585/2026/01/07/sean-dyche-nottingham-forest-transfer-kalimuendo/
 
