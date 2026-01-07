@@ -27,7 +27,7 @@ https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/venezuela-de
 `Federal health officials upended the immunization schedule for American children this week. These are the diseases affected.`\
 https://nytimes.com/2026/01/06/well/cdc-vaccine-schedule-recommendations.html
 
-**Inter Miami closing on deal to keep star winger Tadeo Allende: Sources**\
+**Sources: Inter Miami closing on deal to keep playoff star Allende**\
 `Allende, 26, set an MLS record for goals in a single postseason as Miami won MLS Cup.`\
 https://nytimes.com/athletic/6948112/2026/01/06/inter-miami-tadeo-allende-deal/
 
