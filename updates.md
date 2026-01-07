@@ -1,3 +1,7 @@
+**Former Tottenham forward Martin Chivers dies at 80**\
+`Chivers is Tottenham's fourth-highest goalscorer of all time with 174 goals.`\
+https://nytimes.com/athletic/6950170/2026/01/07/tottenham-martin-chivers-death/
+
 **South Florida Takes Center Stage in U.S. Politics After Maduro’s Capture**\
 `The region, which has long wielded influence on issues involving Latin America and the Caribbean, has now cemented a role as a global power player.`\
 https://nytimes.com/2026/01/07/us/florida-maduro-venezuela-trump.html
