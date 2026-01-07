@@ -1,3 +1,7 @@
+**Most Lawyers in the Manhattan U.S. Attorney’s Office Are on Epstein Duty**\
+`The Justice Department has dedicated scores of lawyers, including more than 125 from the Southern District of New York, to reviewing over two million documents in the prominent case.`\
+https://nytimes.com/2026/01/07/nyregion/epstein-files-redactions.html
+
 **Why Trump Is Fixated on Venezuelan Oil**\
 `Venezuela has roughly 17 percent of the world’s known oil reserves, but it produces only about 1 percent of the crude oil the world is using. Our energy reporter Rebecca F. Elliott explains.`\
 https://nytimes.com/video/world/americas/100000010624752/why-trump-is-fixated-on-venezuelan-oil.html

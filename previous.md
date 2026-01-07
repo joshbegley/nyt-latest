@@ -30,7 +30,7 @@ https://nytimes.com/2026/01/07/us/politics/ro-khanna-california-wealth-tax.html
 `Now the government’s recommendation is to “limit” drinking, without specifying safe amounts for men and women. The guidelines no longer warn of risks like cancer.`\
 https://nytimes.com/2026/01/07/health/dietary-guidelines-alcohol.html
 
-**Hundreds of Lawyers Are Spending Their Days Redacting the Epstein Files**\
+**Most Lawyers in the Manhattan U.S. Attorney’s Office Are on Epstein Duty**\
 `The Justice Department has dedicated scores of lawyers, including more than 125 from the Southern District of New York, to reviewing over two million documents in the prominent case.`\
 https://nytimes.com/2026/01/07/nyregion/epstein-files-redactions.html
 
