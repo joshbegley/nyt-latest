@@ -1,3 +1,8 @@
+**Motorsports, Mountain and More: The Perks of Staying at the Foot of Japan’s Highest Peak**\
+`In the shadow of Mount Fuji lies a paradise for speed demons and an activity-packed five-day adventure.
+`\
+https://nytimes.com/paidpost/fuji-speedway-hotel/fuji-speedway-hotel/motorsports-mountain-and-more-the-perks-of-staying-at-the-foot-of-japans-highest-peak.html
+
 **Ex-UNLV QB Anthony Colandrea signs with Nebraska after Kenny Minchey flips**\
 `Colandrea was the 2025 Mountain West offensive player of the year, throwing for 3,459 yards and 23 touchdowns. `\
 https://nytimes.com/athletic/6948070/2026/01/06/anthony-colandrea-unlv-nebraska-kenny-minchey/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6948073/2026/01/06/ranking-six-nfl-head-coaching-op
 **Day 3: Try a Brain-Boosting Workout**\
 `To strengthen your brain, exercise is essential. Today, we’ll help you find a new routine.`\
 https://nytimes.com/interactive/2026/well/brain-health-exercise-workout.html
-
-**Lenny Dykstra charged with drug possession, awaits preliminary hearing**\
-`Dykstra was arrested Friday on suspicion of possessing narcotics and narcotic-related equipment but was not taken into custody, per police.`\
-https://nytimes.com/athletic/6947297/2026/01/06/lenny-dykstra-charges-drugs-mlb-mets-phillies/
 

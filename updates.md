@@ -1,3 +1,8 @@
+**Motorsports, Mountain and More: The Perks of Staying at the Foot of Japan’s Highest Peak**\
+`In the shadow of Mount Fuji lies a paradise for speed demons and an activity-packed five-day adventure.
+`\
+https://nytimes.com/paidpost/fuji-speedway-hotel/fuji-speedway-hotel/motorsports-mountain-and-more-the-perks-of-staying-at-the-foot-of-japans-highest-peak.html
+
 **Ex-UNLV QB Anthony Colandrea signs with Nebraska after Kenny Minchey flips**\
 `Colandrea was the 2025 Mountain West offensive player of the year, throwing for 3,459 yards and 23 touchdowns. `\
 https://nytimes.com/athletic/6948070/2026/01/06/anthony-colandrea-unlv-nebraska-kenny-minchey/
