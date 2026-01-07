@@ -1,3 +1,27 @@
+**An emergency order from the Venezuelan government appears to criminalize support for the U.S. attack.**\
+`By Maria Abi-Habib and Emiliano Rodríguez Mega`\
+https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/venezuela-decree-maduro-support
+
+**What to Know About the Vaccines Cut From C.D.C. Recommendations**\
+`Federal health officials upended the immunization schedule for American children this week. These are the diseases affected.`\
+https://nytimes.com/2026/01/06/well/cdc-vaccine-schedule-recommendations.html
+
+**Inter Miami closing on deal to keep star winger Tadeo Allende: Sources**\
+`Allende, 26, set an MLS record for goals in a single postseason as Miami won MLS Cup.`\
+https://nytimes.com/athletic/6948112/2026/01/06/inter-miami-tadeo-allende-deal/
+
+**How to watch Chargers at Patriots: Wild Card Round Time, TV, streaming**\
+`Find out how to watch the Los Angeles Chargers play the New England Patriots, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6948143/2026/01/06/chargers-vs-patriots-stream-how-to-watch-jan-11/
+
+**Michael Reagan, Son of President Reagan, Dies at 80**\
+`Mr. Reagan, who was adopted by Ronald Reagan and his first wife, Jane Wyman, had cancer, according to a statement.`\
+https://nytimes.com/2026/01/06/obituaries/michael-reagan-dead.html
+
+**Scoop City: Ranking six head coaching openings, excluding Baltimore**\
+`A quick ode to Myles Garrett's season before ranking the six head coach openings, from Atlanta to New York, excluding the Ravens`\
+https://nytimes.com/athletic/6948073/2026/01/06/ranking-six-nfl-head-coaching-openings-titans-giants-raiders/
+
 **Day 3: Try a Brain-Boosting Workout**\
 `To strengthen your brain, exercise is essential. Today, we’ll help you find a new routine.`\
 https://nytimes.com/interactive/2026/well/brain-health-exercise-workout.html
@@ -14,30 +38,4 @@ https://nytimes.com/athletic/6946955/2026/01/06/giants-jesus-rodriguez-venezuela
 `Japan’s popular attractions are world famous for good reason. Adventurous visitors curious to discover the less familiar, however, can ride the rails for an unforgettable cultural exploration of the western Kansai region, without the crowds. 
 `\
 https://nytimes.com/paidpost/kintetsu-railway/kintetsu-railway/iconic-vs-novel-an-alternative-journey-to-japans-historical-heartland.html
-
-**Cuba’s Long-Suffering Economy Is Now in ‘Free Fall’**\
-`With widespread power outages, medicine shortages and rising food prices, experts say Cuba’s economy has never been worse, with the crisis coming just as the supply of Venezuelan oil is threatened.`\
-https://nytimes.com/2026/01/06/world/americas/cuba-economy-venezuela-oil.html
-
-**Pardoned Jan. 6 Rioters Rally and Demand More from Trump**\
-`The “J6ers,” as they refer to themselves, praised President Trump but called for more action from his administration, including financial restitution and prison reform.`\
-https://nytimes.com/2026/01/06/us/politics/jan-6-march-rally.html
-
-**After John Harbaugh's firing, who are NFL's longest-tenured head coaches?**\
-`John Harbaugh is out in Baltimore. So which NFL coaches have the longest tenures at their current posting?`\
-https://nytimes.com/athletic/6947942/2026/01/06/john-harbaugh-firing-nfl-longest-tenured-head-coaches/
-
-** A Sojourn for the Senses in Ise-Shima**\
-`A train trip to Japan’s Ise-Shima peninsula promises an immersive, sensorial experience from start to finish. Here’s what travelers can expect to feel, see, taste, smell and hear throughout their journey.
-`\
-https://nytimes.com/paidpost/kintetsu-railway/-a-sojourn-for-the-senses-in-ise-shima.html
-
-**Traverse Tokyo and Beyond: Saitama and Yamanashi for Nature Lovers**\
-`Explore Japan’s outdoor, religion and sake culture in a region of stunning natural beauty and centuries-old traditions.
-`\
-https://nytimes.com/paidpost/tcvb/traverse-tokyo-and-beyond-saitama-and-yamanashi-for-nature-lovers.html
-
-**Fate of 350,000 Haitians at Stake as Court Weighs Temporary Protected Status**\
-`A federal judge questioned whether the Trump administration appropriately reviewed safety conditions in Haiti before ending protections for people from the Caribbean nation.`\
-https://nytimes.com/2026/01/06/us/haiti-temporary-protected-status-trump.html
 
