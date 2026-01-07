@@ -1,3 +1,15 @@
+**Jerry Jones: Cowboys will do some 'dramatic things' to improve team**\
+`The Cowboys missed the postseason for the second consecutive year. Jones says he's prepared to "bust the budget" to get better.`\
+https://nytimes.com/athletic/6951248/2026/01/07/jerry-jones-cowboys-owner-super-bowl-titles/
+
+**Why the NWSL Players Association opposes the league's High Impact Player rule**\
+`NWSLPA executive director says arbitration will "take some time".`\
+https://nytimes.com/athletic/6948716/2026/01/07/nwsl-players-association-high-impact-player-not-roster-classification/
+
+**Which coaching candidate could Ravens hire to replace John Harbaugh?**\
+`Baltimore is searching for a new head coach for the first time since 2008. Which candidate on the market would be a suitable replacement?`\
+https://nytimes.com/athletic/6950869/2026/01/07/ravens-coaching-candidates-john-harbaugh-fired-belichick-flores/
+
 **Eagles' Lane Johnson returns to practice ahead of playoff game vs. 49ers**\
 `It's a positive sign that the five-time All-Pro tackle is on pace to return for Philadelphia's postseason opener Sunday.`\
 https://nytimes.com/athletic/6951335/2026/01/07/lane-johnson-eagles-injury-update-status-playoffs-49ers/

@@ -1,4 +1,8 @@
-**Jerry Jones: Cowboys will do some 'dramatic things' to improve team**\
+**Todd Bowles returning as Buccaneers head coach: Source**\
+`Bowles will return for a fifth season after the Buccaneers missed the playoffs for the first time in his four-year tenure.`\
+https://nytimes.com/athletic/6951395/2026/01/07/todd-bowles-bucs-coach-status-returning/
+
+**Jerry Jones says goal is to win more Super Bowls than any owner: 'I got work to do'**\
 `The Cowboys missed the postseason for the second consecutive year. Jones says he's prepared to "bust the budget" to get better.`\
 https://nytimes.com/athletic/6951248/2026/01/07/jerry-jones-cowboys-owner-super-bowl-titles/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6951542/2026/01/07/pelicans-vs-hawks-stream-how-to-
 **How to watch Magic vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6951538/2026/01/07/magic-vs-nets-stream-how-to-watch-jan-7/
-
-**How to watch Bucks vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6951535/2026/01/07/bucks-vs-warriors-stream-how-to-watch-jan-7/
 
