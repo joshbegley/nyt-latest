@@ -1,3 +1,7 @@
+**FEMA Staff Bracing for Dismissal of 1,000 Disaster Workers**\
+`The job cuts expected this month are part of a plan by the Homeland Security secretary, Kristi Noem, to remake the agency.`\
+https://nytimes.com/2026/01/06/climate/fema-staff-cuts-1000-workers.html
+
 **Washington has 'no intention' to release QB who signed deal but entered transfer portal anyway**\
 `Washington has no intention of releasing Williams from the contract he signed on Jan. 2, a source told The Athletic.`\
 https://nytimes.com/athletic/6948295/2026/01/06/washington-qb-demond-williams-transfer-portal-contract/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6948070/2026/01/06/anthony-colandrea-unlv-nebraska-
 **N.Y.C. Child Care Programs Brace for Cuts After Federal Funding Freeze**\
 `The Trump administration said it was placing a hold on $10 billion in subsidies across five states, including New York.`\
 https://nytimes.com/2026/01/06/nyregion/nyc-child-care-programs-trump-funding-freeze.html
-
-**An emergency order from the Venezuelan government appears to criminalize support for the U.S. attack.**\
-`By Maria Abi-Habib and Emiliano Rodríguez Mega`\
-https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/venezuela-decree-maduro-support
 
