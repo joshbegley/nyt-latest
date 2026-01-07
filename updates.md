@@ -1,3 +1,11 @@
+**The ICE Shooting Came During an Operation Focused on Somali Immigrants**\
+`Federal immigration officials have stepped up enforcement activity in Minnesota amid a fraud scandal there that includes many people of Somali origin.`\
+https://nytimes.com/2026/01/07/us/ice-minneapolis-somalis-immigration.html
+
+**What to make of the Mets' interest in Kyle Tucker**\
+`The Mets, Dodgers and Blue Jays are among Tucker’s options, league sources confirmed.`\
+https://nytimes.com/athletic/6951582/2026/01/07/mets-kyle-tucker-mlb-free-agency/
+
 **Tiny Love Stories: ‘Either a Good Omen or a Nightmare’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2026/01/07/style/tiny-modern-love-stories-either-a-good-omen-or-a-nightmare.html
