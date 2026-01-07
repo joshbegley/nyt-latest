@@ -1,3 +1,11 @@
+**U.S. Seizes Oil Tanker, Raising Tensions With Russia**\
+`The ship had been eluding the Coast Guard after being stopped in the Caribbean on its way to pick up oil in Venezuela.`\
+https://nytimes.com/2026/01/07/us/politics/us-russia-oil-tanker.html
+
+**Our last sunset, for a while.**\
+`(No description)`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/sunsets
+
 **Alaska Airlines to Buy 110 Boeing Planes as It Seeks to Expand**\
 `Alaska’s order, its largest ever, follows its acquisition of Hawaiian Airlines and is part of its plan to expand, including overseas.`\
 https://nytimes.com/2026/01/07/business/alaska-airlines-boeing-planes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6949240/2026/01/07/college-football-playoff-semifin
 **Yemeni Separatist Defies Saudi Demand, and Strike Follows**\
 `Southern Yemen has been engulfed in a proxy conflict that pits two U.S. allies, Saudi Arabia and the United Arab Emirates, against each other.`\
 https://nytimes.com/2026/01/07/world/middleeast/yemen-separatist-leader-zubaidi-saudi-arabia-uae.html
-
-**As Charlie Kirk’s Turning Point Pushes Into High Schools, Dissension Follows**\
-`Since Mr. Kirk’s death, chapters of his organization’s affiliate for teenagers have more than doubled in number, aided by politicians who have said they won’t tolerate opposition.`\
-https://nytimes.com/2026/01/07/us/politics/charlie-kirk-turning-point-usa-high-schools.html
-
-**Arteta hopeful Arsenal's Havertz will return for Liverpool clash**\
-`Havertz returned to the bench for the first time since August last Tuesday but missed the trip to Bournemouth on Saturday.`\
-https://nytimes.com/athletic/6949236/2026/01/07/arsenal-liverpool-team-news-havertz-calafiori-mosquera/
 
