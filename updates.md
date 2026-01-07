@@ -1,3 +1,11 @@
+**Maduro Is Gone, but Repression in Venezuela Has Intensified**\
+`Security forces have boarded buses, searched phones and interrogated people, looking for evidence that they welcomed the capture of Nicolás Maduro.`\
+https://nytimes.com/2026/01/07/world/americas/venezuela-repression.html
+
+**Loyalists Rally for Maduro as Venezuela Cracks Down on Critics**\
+`As a crowd in Caracas demanded Nicolás Maduro’s release, security forces hunted for any sign that Venezuelans were celebrating his capture.`\
+https://nytimes.com/video/world/americas/100000010628629/venezuela-maduro-rally-crackdown.html
+
 **French Lentil Salad**\
 `Bright with flavor, dynamic and crisp with a combination of roots and chicory, and fresh with major herb appeal, this is a hearty, friendly, anytime lentil salad that will work well with any grocery or farmers’ market haul.`\
 https://nytimes.com/video/dining/100000010626899/french-lentil-salad.html
