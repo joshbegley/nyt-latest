@@ -1,3 +1,7 @@
+**Q&A: Giants prospect discusses the scene in Venezuela in wake of attack**\
+`Giants prospect Jesús Rodríguez says that life in Caracas is now calm and he hopes to be in the U.S. for spring training next month.`\
+https://nytimes.com/athletic/6946955/2026/01/06/qa-giants-prospect-discusses-the-scene-in-venezuela-in-wake-of-attack/
+
 **Iconic vs. Novel: An Alternative Journey to Japan’s Historical Heartland**\
 `Japan’s popular attractions are world famous for good reason. Adventurous visitors curious to discover the less familiar, however, can ride the rails for an unforgettable cultural exploration of the western Kansai region, without the crowds. 
 `\
@@ -37,8 +41,4 @@ https://nytimes.com/2026/01/06/world/americas/us-venezuela-cuba-russia-china-ira
 `Tokyo is a spectacular city in its own right, but traveling farther afield to its neighboring prefectures of Chiba and Kanagawa offers pristine Japanese scenery, art and cultural delights, too. 
 `\
 https://nytimes.com/paidpost/tcvb/traverse-tokyo-and-beyond-chiba-and-kanagawa-for-culture-vultures.html
-
-**Under the Gaze of a Japanese Castle, the Art of Holding Space**\
-`Mindful luxury meets artistic inspiration at a new hotel facing Nagoya Castle, with spaces that hold tradition and modernity in balance.`\
-https://nytimes.com/paidpost/espacio-hakone/under-the-gaze-of-a-japanese-castle-the-art-of-holding-space.html
 

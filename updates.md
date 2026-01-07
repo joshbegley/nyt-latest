@@ -1,3 +1,7 @@
+**Q&A: Giants prospect discusses the scene in Venezuela in wake of attack**\
+`Giants prospect Jesús Rodríguez says that life in Caracas is now calm and he hopes to be in the U.S. for spring training next month.`\
+https://nytimes.com/athletic/6946955/2026/01/06/qa-giants-prospect-discusses-the-scene-in-venezuela-in-wake-of-attack/
+
 **Iconic vs. Novel: An Alternative Journey to Japan’s Historical Heartland**\
 `Japan’s popular attractions are world famous for good reason. Adventurous visitors curious to discover the less familiar, however, can ride the rails for an unforgettable cultural exploration of the western Kansai region, without the crowds. 
 `\
