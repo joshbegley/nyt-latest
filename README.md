@@ -1,3 +1,7 @@
+**Béla Fleck Withdraws From Kennedy Center Concerts**\
+`“Performing there has become charged and political,” the 19-time Grammy winner said.`\
+https://nytimes.com/2026/01/06/arts/music/bela-fleck-kennedy-center-orchestra.html
+
 **Jets' Haydn Fleury stretchered off ice after getting shoved into end boards**\
 `Fleury was shoved to the ice by Golden Knights winger Keegan Kolesar after sending a breakout pass and slid backward into the end boards.`\
 https://nytimes.com/athletic/6948225/2026/01/06/winnipeg-jets-haydn-fleury-stretchered-injury/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6948112/2026/01/06/inter-miami-tadeo-allende-deal/
 **How to watch Chargers at Patriots: Wild Card Round Time, TV, streaming**\
 `Find out how to watch the Los Angeles Chargers play the New England Patriots, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6948143/2026/01/06/chargers-vs-patriots-stream-how-to-watch-jan-11/
-
-**Michael Reagan, a Son of President Reagan Who Fought for Right-Wing Causes, Dies at 80**\
-`Mr. Reagan, who was the son of Ronald Reagan and his first wife, Jane Wyman, built on his father’s conservative legacy with a radio talk show and columns on right-wing sites like Newsmax.`\
-https://nytimes.com/2026/01/06/obituaries/michael-reagan-dead.html
 
