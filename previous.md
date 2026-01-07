@@ -1,3 +1,19 @@
+**South Florida Takes Center Stage in U.S. Politics After Maduro’s Capture**\
+`The region, which has long wielded influence on issues involving Latin America and the Caribbean, has now cemented a role as a global power player.`\
+https://nytimes.com/2026/01/07/us/florida-maduro-venezuela-trump.html
+
+**FIFA to use AI to improve offside calls at World Cup**\
+`"AI-enabled 3D avatars" will be used to track players "during fast or obscured movements" and improve offside calls, FIFA said.`\
+https://nytimes.com/athletic/6949920/2026/01/07/fifa-ai-offside-world-cup/
+
+**Oil Firms Say Venezuela Owes Them Billions, Complicating Trump’s Plan**\
+`Companies like Exxon Mobil and ConocoPhillips say that Venezuela owes them billions of dollars for confiscating their assets two decades ago.`\
+https://nytimes.com/2026/01/07/business/energy-environment/trump-venezuela-oil-exxon-mobil-conocophillips.html
+
+**Submit your questions for our next Giants Mailbagg!**\
+`<p>The Giants have made incremental changes to their roster this offseason.`\
+https://nytimes.com/athletic/6950314/2026/01/07/sf-giants-mailbagg-question-submissions/
+
 **Is that frazil, grease or shuga? How to identify sea ice.**\
 `(No description)`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/is-that-frazil-grease-or-shuga-how-to-identify-sea-ice
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/07/style/365-buttons-meme-tiktok.html
 **Former USMNT midfielder Armas named Kansas City Current head coach**\
 `Armas has been out of management since he departed the Colorado Rapids in November.`\
 https://nytimes.com/athletic/6950040/2026/01/07/chris-armas-kansas-city-current/
-
-**Pete Golding shares Ole Miss' coaching plan for Fiesta Bowl**\
-`Running backs coach Kevin Smith and offensive coordinator Charlie Weis Jr. will be with the team in Arizona for Thursday's game vs. Miami.`\
-https://nytimes.com/athletic/6950048/2026/01/07/ole-miss-assistant-coaches-pete-golding-lane-kiffin-fiesta-bowl/
-
-**Tourists on Remote Yemeni Island Are Caught in Escalating Conflict**\
-`Around 600 foreigners have been stranded on the remote Yemeni island of Socotra after the government halted flights amid an escalating conflict with separatists on the mainland.`\
-https://nytimes.com/video/world/middleeast/100000010628981/tourists-stranded-yemen-island.html
-
-**A Canada collision course? USMNT's many potential World Cup knockout scenarios**\
-`The vast number of World Cup knockout round permutations includes a fascinating potential duel between two of the co-hosts`\
-https://nytimes.com/athletic/6948519/2026/01/07/usmnt-2026-world-cup-knockout-round-opponents-scenarios/
-
-**Do You Always Need to Shampoo Twice?**\
-`Do you really need to double-shampoo? Here’s the verdict.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010599573/do-you-always-need-to-shampoo-twice.html
 

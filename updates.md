@@ -1,3 +1,19 @@
+**South Florida Takes Center Stage in U.S. Politics After Maduro’s Capture**\
+`The region, which has long wielded influence on issues involving Latin America and the Caribbean, has now cemented a role as a global power player.`\
+https://nytimes.com/2026/01/07/us/florida-maduro-venezuela-trump.html
+
+**FIFA to use AI to improve offside calls at World Cup**\
+`"AI-enabled 3D avatars" will be used to track players "during fast or obscured movements" and improve offside calls, FIFA said.`\
+https://nytimes.com/athletic/6949920/2026/01/07/fifa-ai-offside-world-cup/
+
+**Oil Firms Say Venezuela Owes Them Billions, Complicating Trump’s Plan**\
+`Companies like Exxon Mobil and ConocoPhillips say that Venezuela owes them billions of dollars for confiscating their assets two decades ago.`\
+https://nytimes.com/2026/01/07/business/energy-environment/trump-venezuela-oil-exxon-mobil-conocophillips.html
+
+**Submit your questions for our next Giants Mailbagg!**\
+`<p>The Giants have made incremental changes to their roster this offseason.`\
+https://nytimes.com/athletic/6950314/2026/01/07/sf-giants-mailbagg-question-submissions/
+
 **Is that frazil, grease or shuga? How to identify sea ice.**\
 `(No description)`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/is-that-frazil-grease-or-shuga-how-to-identify-sea-ice
