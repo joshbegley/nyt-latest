@@ -1,3 +1,7 @@
+**An emergency order from the Venezuelan government appears to criminalize support for the U.S. attack.**\
+`By Maria Abi-Habib and Emiliano Rodríguez Mega`\
+https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/venezuela-decree-maduro-support
+
 **What to Know About the Vaccines Cut From C.D.C. Recommendations**\
 `Federal health officials upended the immunization schedule for American children this week. These are the diseases affected.`\
 https://nytimes.com/2026/01/06/well/cdc-vaccine-schedule-recommendations.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6946955/2026/01/06/giants-jesus-rodriguez-venezuela
 `Japan’s popular attractions are world famous for good reason. Adventurous visitors curious to discover the less familiar, however, can ride the rails for an unforgettable cultural exploration of the western Kansai region, without the crowds. 
 `\
 https://nytimes.com/paidpost/kintetsu-railway/kintetsu-railway/iconic-vs-novel-an-alternative-journey-to-japans-historical-heartland.html
-
-**Cuba’s Long-Suffering Economy Is Now in ‘Free Fall’**\
-`With widespread power outages, medicine shortages and rising food prices, experts say Cuba’s economy has never been worse, with the crisis coming just as the supply of Venezuelan oil is threatened.`\
-https://nytimes.com/2026/01/06/world/americas/cuba-economy-venezuela-oil.html
 
