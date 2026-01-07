@@ -1,3 +1,11 @@
+**What question would you like answered about how transfers work?**\
+`Tell us what you have always wanted to know about the transfer business and we will put your question to key figures in the game`\
+https://nytimes.com/athletic/6945556/2026/01/07/transfer-indow-questions-answered/
+
+**Giants must now win their biggest game of the year — the wild fight for John Harbaugh**\
+`The Giants were working on meeting with Harbaugh as early as this weekend, as many other NFL teams are also lining up to talk to him.`\
+https://nytimes.com/athletic/6948576/2026/01/07/john-harbaugh-giants-coaching-search/
+
 **John Harbaugh's tenure in Baltimore is over. Ravens felt it was time for something new**\
 `There are several reasons Baltimore hasn't gotten over the hump recently. But ultimately, Harbaugh and his staff must bear responsibility.`\
 https://nytimes.com/athletic/6948144/2026/01/07/john-harbaugh-fired-ravens-new-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/07/opinion/ales-bialiatski-belarus-lukashenko.html
 **The New York Times in Print for Wednesday, Jan. 7, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/07/todays-new-york-times
-
-**It's 613 days since Bajcetic played for Liverpool. What's going on?**\
-`The midfielder is rehabbing again after yet another injury setback. His future at Liverpool seems far from certain`\
-https://nytimes.com/athletic/6942027/2026/01/07/its-613-days-since-stefan-bajcetic-played-for-liverpool-whats-going-on/
-
-**Is Mathys Tel finally about to get a run of matches in his favoured position?**\
-`Since joining Spurs, the young forward has felt slightly out of place - could this be the chance to stake his claim?`\
-https://nytimes.com/athletic/6945322/2026/01/07/is-mathys-tel-finally-about-to-get-a-run-of-matches-in-his-favoured-position/
 
