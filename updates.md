@@ -1,3 +1,7 @@
+**It's 613 days since Bajcetic played for Liverpool. What's going on?**\
+`The midfielder is rehabbing again after yet another injury setback. His future at Liverpool seems far from certain`\
+https://nytimes.com/athletic/6942027/2026/01/07/its-613-days-since-stefan-bajcetic-played-for-liverpool-whats-going-on/
+
 **What question would you like answered about how transfers work?**\
 `Tell us what you have always wanted to know about the transfer business and we will put your question to key figures in the game`\
 https://nytimes.com/athletic/6945556/2026/01/07/transfer-indow-questions-answered/
