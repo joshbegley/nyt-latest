@@ -1,3 +1,7 @@
+**The Briefing: Burnley 2 Manchester United 2 — What did Fletcher change? Some familiar frailties? Sesko's best display so far?**\
+`Analysis of Manchester United's first game since the departure of Ruben Amorim on Monday`\
+https://nytimes.com/athletic/6937582/2026/01/07/burnley-manchester-united-premier-league-analysis/
+
 **Man Accused of Stealing Billions in Crypto Scam Is Captured Abroad**\
 `Chen Zhi faces an indictment in federal court in Brooklyn on charges of swindling millions of dollars from Americans as part of a global cryptocurrency scam.`\
 https://nytimes.com/2026/01/07/nyregion/chen-zhi-scam-arrest-bitcoin.html

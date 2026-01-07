@@ -1,3 +1,15 @@
+**Trump Pulls Out of Global Climate Treaty**\
+`The action could make it more difficult for a future administration to rejoin the Paris climate accord, the agreement among most nations to fight climate change.`\
+https://nytimes.com/2026/01/07/climate/trump-pulls-out-of-global-climate-treaty.html
+
+**For Theater in January, the Under the Radar Festival Reigns Supreme**\
+`Several festivals run across New York this month, but none are as big and eclectic as Under the Radar, founded in 2005. Here are our picks for what to see.`\
+https://nytimes.com/2026/01/07/theater/under-the-radar-festival.html
+
+**What Are ‘Ghost Fleet’ Ships?**\
+`Also known as “dark fleet” or “shadow fleet” ships, the vessels use murky tactics to transport oil in violation of sanctions.`\
+https://nytimes.com/2026/01/07/world/americas/ghost-fleet-ships.html
+
 **Man Accused of Stealing Billions in Crypto Scam Is Captured Abroad**\
 `Chen Zhi faces an indictment in federal court in Brooklyn on charges of swindling millions of dollars from Americans as part of a global cryptocurrency scam.`\
 https://nytimes.com/2026/01/07/nyregion/chen-zhi-scam-arrest-bitcoin.html
@@ -21,12 +33,4 @@ https://nytimes.com/athletic/6937583/2026/01/07/newcastle-4-leeds-3-keegan-barne
 **Deadly Minneapolis Encounter Is the 9th ICE Shooting Since September**\
 `All those targeted in the shootings were fired on while in their vehicles.`\
 https://nytimes.com/2026/01/07/us/ice-shootings-minneapolis-other-cities.html
-
-**Amid heavy security, a tentative return of street life in Caracas.**\
-`By The New York Times`\
-https://nytimes.com/live/2026/01/07/world/venezuela-us-trump/amid-heavy-security-a-tentative-return-of-street-life-in-caracas
-
-**The Briefing: Burnley 2 Manchester United 2 — What did Fletcher change? Some familiar frailties? Sesko's best display so far?**\
-`Analysis of Manchester United's first game since the departure of Ruben Amorim on Monday`\
-https://nytimes.com/athletic/6937582/2026/01/07/burnley-manchester-united-premier-league-analysis/
 
