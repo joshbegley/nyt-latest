@@ -1,3 +1,11 @@
+**Is Mathys Tel finally about to get a run of matches in his favoured position?**\
+`Since joining Spurs, the young forward has felt slightly out of place - could this be the chance to stake his claim?`\
+https://nytimes.com/athletic/6945322/2026/01/07/is-mathys-tel-finally-about-to-get-a-run-of-matches-in-his-favoured-position/
+
+**Raul Jimenez and why you shouldn't judge centre-forwards on goals alone**\
+`The Fulham striker has become one of the Premier League's most impressive link-up players `\
+https://nytimes.com/athletic/6945161/2026/01/07/raul-jimenez-fulham-attacking-contributions/
+
 **Who should Manchester United appoint as their next permanent manager?**\
 `Analysing who the data suggests United's ideal permanent head coach might be - plus, a group of our writers make their choices`\
 https://nytimes.com/athletic/6944833/2026/01/07/man-utd-next-manager-permanent-appointment/
