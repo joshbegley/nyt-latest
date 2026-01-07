@@ -1,3 +1,7 @@
+**From Metcalf's miracle to Garrett's record: The NFL season's best plays, week by week**\
+`Here are our NFL plays of the year, with one selection from all 18 regular-season weeks.`\
+https://nytimes.com/athletic/6943126/2026/01/07/nfl-best-plays-touchdowns-catches-2025-season/
+
 **Trump Administration Live Updates: Rubio Says President Wants to Buy Greenland**\
 ``\
 https://nytimes.com/live/2026/01/07/us/trump-greenland-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6948820/2026/01/07/anthony-davis-mavericks-nba-trad
 **'I like being an owner' - Lionel Messi speaks on future career plans**\
 `In October, the 38-year-old Argentina international signed a new three-year contract at Inter Miami through to 2028.`\
 https://nytimes.com/athletic/6948987/2026/01/07/lionel-messi-news-club-owner/
-
-**Warner Bros. Board Rebuffs Paramount’s Latest Buyout Offer**\
-`The board said the blockbuster deal it reached with Netflix last month posed less risk.`\
-https://nytimes.com/2026/01/07/business/media/warner-bros-paramount-netflix.html
 
