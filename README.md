@@ -1,3 +1,7 @@
+**Rudy Gobert rises again for the suddenly surging Minnesota Timberwolves**\
+`At 33 years old and in his 13th year in the league, the Timberwolves' center is playing as well as he has ever played.`\
+https://nytimes.com/athletic/6948130/2026/01/07/rudy-gobert-surging-timberwolves/
+
 **From Metcalf's miracle to Garrett's record: The NFL season's best plays, week by week**\
 `Here are our NFL plays of the year, with one selection from all 18 regular-season weeks.`\
 https://nytimes.com/athletic/6943126/2026/01/07/nfl-best-plays-touchdowns-catches-2025-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6946830/2026/01/07/kyle-whittingham-michigan-footba
 **What we're hearing about a potential Anthony Davis trade ahead of NBA deadline**\
 `With Dallas struggling to hold down a Play-In spot, will the team look to deal its star big man before the Feb. 5 trade deadline?`\
 https://nytimes.com/athletic/6948820/2026/01/07/anthony-davis-mavericks-nba-trade-deadline/
-
-**'I like being an owner' - Lionel Messi speaks on future career plans**\
-`In October, the 38-year-old Argentina international signed a new three-year contract at Inter Miami through to 2028.`\
-https://nytimes.com/athletic/6948987/2026/01/07/lionel-messi-news-club-owner/
 
