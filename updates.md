@@ -1,3 +1,11 @@
+**Washington has 'no intention' to release QB who signed deal but entered transfer portal anyway**\
+`Washington has no intention of releasing Williams from the contract he signed on Jan. 2, a source told The Athletic.`\
+https://nytimes.com/athletic/6948295/2026/01/06/washington-qb-demond-williams-transfer-portal-contract/
+
+**Pacers lose team-record 13th straight as struggles continue**\
+`The Pacers are on pace for a 13-win season, which would tie the 1998-99 Bulls for the fewest by a team that made the previous finals.`\
+https://nytimes.com/athletic/6947629/2026/01/06/pacers-loss-record-13-straight-cavaliers/
+
 **Washington QB Demond Williams Jr. enters portal after signing deal to return**\
 `Washington has no intention of releasing Williams from the contract he signed on Jan. 2, a source told The Athletic.`\
 https://nytimes.com/athletic/6948295/2026/01/06/washington-qb-demond-williams-transfer-portal-contract/
