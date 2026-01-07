@@ -1,3 +1,7 @@
+**The Briefing: Manchester City 1 Brighton 1 - how did their young centre-backs get on? Why can't City take control?**\
+`Manchester City's title bid faltered once again with a third draw in a row, this time against Brighton`\
+https://nytimes.com/athletic/6937567/2026/01/07/manchester-city-brighton-briefing-premier-league/
+
 **A Close Call for U.S. Commandos and an Emboldened Trump**\
 `As a damaged U.S. helicopter struggled to stay aloft over Venezuela’s capital, the success of the entire operation hung in the balance.`\
 https://nytimes.com/2026/01/07/us/politics/trump-venezuela-helicopter.html
