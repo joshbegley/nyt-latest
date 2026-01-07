@@ -1,3 +1,15 @@
+**Federal Agent Shoots Woman Amid Minneapolis Crackdown**\
+`Her condition was not immediately known. Gov. Tim Walz asked for calm.`\
+https://nytimes.com/2026/01/07/us/shooting-immigration-minneapolis.html
+
+**What We Know (So Far) About Taylor Swift and Travis Kelce’s Wedding**\
+`The couple has revealed very little about their wedding plans, but that hasn’t stopped fans from parsing podcast comments, photos and lyrics for clues about when, where and how they might say “I do.”`\
+https://nytimes.com/article/taylor-swift-travis-kelce-wedding-details.html
+
+**Do I Have to Tell My New Boyfriend About My Past Infidelity?**\
+`He knows I started seeing someone as my marriage was deteriorating, but I have not admitted the full truth.`\
+https://nytimes.com/2026/01/07/magazine/past-infidelity-ethics.html
+
 **The First Meme of 2026 Is About Not Explaining Yourself. And Buttons.**\
 `A TikTok user’s esoteric comment created a confusing viral moment.`\
 https://nytimes.com/2026/01/07/style/365-buttons-meme-tiktok.html
