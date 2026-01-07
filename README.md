@@ -1,3 +1,11 @@
+**How Venezuela Is Already Rattling One Republican Primary**\
+`Most Republicans are on board with Trump’s aggression. Not Thomas Massie.`\
+https://nytimes.com/2026/01/07/us/politics/venezuela-massie-republican-primary-kentucky.html
+
+**Fletcher says he will lead Man Utd against Brighton on Sunday**\
+`United's interim head coach said director of football Jason Wilcox and chief executive Omar Berrada have asked him to take the game.`\
+https://nytimes.com/athletic/6952328/2026/01/07/darren-fletcher-man-utd-manager-next/
+
 **What to make of the Mets' interest in Kyle Tucker**\
 `The Mets, Dodgers and Blue Jays and are among Tucker’s options, league sources confirmed.`\
 https://nytimes.com/athletic/6951582/2026/01/07/mets-kyle-tucker-mlb-free-agency/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6950682/2026/01/07/nhl-winter-classic-utah-2027/
 **Tottenham's Frank says he didn't notice using Arsenal-branded cup**\
 `Arsenal were the last team to play away at Bournemouth's Vitality Stadium, where Spurs lost 3-2 on Wednesday.`\
 https://nytimes.com/athletic/6952136/2026/01/07/thomas-frank-tottenham-arsenal-cup/
-
-**The U.S. Seizes Two Oil Tankers With Ties to Venezuela**\
-`On Wednesday, the United States seized two oil tankers, including a Russian-flagged ship. Secretary of State Marco Rubio also outlined a plan for Venezuela’s near future.`\
-https://nytimes.com/video/us/politics/100000010630064/venezuela-oil-tankers.html
-
-**Trump Pulls Out of Global Climate Treaty**\
-`The action could make it more difficult for a future administration to rejoin the Paris climate accord, the agreement among most nations to fight climate change.`\
-https://nytimes.com/2026/01/07/climate/trump-un-climate-treaty.html
 
