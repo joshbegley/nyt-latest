@@ -1,3 +1,15 @@
+**A Close Call for U.S. Commandos and an Emboldened Trump**\
+`As a damaged U.S. helicopter struggled to stay aloft over Venezuela’s capital, the success of the entire operation hung in the balance.`\
+https://nytimes.com/2026/01/07/us/politics/trump-venezuela-helicopter.html
+
+**With Demond Williams Jr. in limbo, Washington hosts QB Beau Pribula on visit**\
+`The Huskies' quick pivot to find their next QB comes five days after Williams signed a contract with Washington to remain with the program.`\
+https://nytimes.com/athletic/6951801/2026/01/07/beau-pribula-demond-williams-washington-quarterback/
+
+**Trump’s Claim to Venezuelan Oil Money Draws Scrutiny in Congress**\
+`Democrats say the president cannot take money from the proceeds of seized oil and control it himself, calling it a ‘slush fund’ that would fly in the face of the Constitution.`\
+https://nytimes.com/2026/01/07/us/politics/congress-trump-venezuela-oil-constitution.html
+
 **The Briefing: Bournemouth 3 Tottenham 2 - Palhinha's stunner, Spurs lose control, penalty controversy**\
 `Tottenham suffer defeat at Bournemouth despite going ahead in the fifth minute after a promising start`\
 https://nytimes.com/athletic/6937565/2026/01/07/bournemouth-3-tottenham-2-briefing-palhinha-goal/

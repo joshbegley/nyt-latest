@@ -1,3 +1,15 @@
+**A Close Call for U.S. Commandos and an Emboldened Trump**\
+`As a damaged U.S. helicopter struggled to stay aloft over Venezuela’s capital, the success of the entire operation hung in the balance.`\
+https://nytimes.com/2026/01/07/us/politics/trump-venezuela-helicopter.html
+
+**With Demond Williams Jr. in limbo, Washington hosts QB Beau Pribula on visit**\
+`The Huskies' quick pivot to find their next QB comes five days after Williams signed a contract with Washington to remain with the program.`\
+https://nytimes.com/athletic/6951801/2026/01/07/beau-pribula-demond-williams-washington-quarterback/
+
+**Trump’s Claim to Venezuelan Oil Money Draws Scrutiny in Congress**\
+`Democrats say the president cannot take money from the proceeds of seized oil and control it himself, calling it a ‘slush fund’ that would fly in the face of the Constitution.`\
+https://nytimes.com/2026/01/07/us/politics/congress-trump-venezuela-oil-constitution.html
+
 **The Briefing: Bournemouth 3 Tottenham 2 - Palhinha's stunner, Spurs lose control, penalty controversy**\
 `Tottenham suffer defeat at Bournemouth despite going ahead in the fifth minute after a promising start`\
 https://nytimes.com/athletic/6937565/2026/01/07/bournemouth-3-tottenham-2-briefing-palhinha-goal/
@@ -21,16 +33,4 @@ https://nytimes.com/2026/01/07/us/tamu-plato-race-gender.html
 **Lawmakers Split After Classified Briefings on Venezuela**\
 `Republicans praised what they characterized as a narrow and well-executed plan, while Democrats expressed alarm, warning that the mission was vaguely defined.`\
 https://nytimes.com/2026/01/07/us/politics/venezuela-briefing-congress-rubio.html
-
-**San Francisco Giants free-agent profile: Zac Gallen, RHP**\
-`Gallen has always made a lot of sense for the Giants but there are reasons they might want to wait before jumping in that pool.`\
-https://nytimes.com/athletic/6951658/2026/01/07/sf-giants-zac-gallen-free-agent-fit/
-
-**The Briefing: Fulham 2 Chelsea 1 - What was Cucurella thinking? Where does this leave them? Level of fan unrest?**\
-`Our writers break down the talking points from Chelsea's defeat to Fulham at Craven Cottage`\
-https://nytimes.com/athletic/6937566/2026/01/07/fulham-chelsea-cucurella-delap/
-
-**Mamdani Names Lawyer Who Fought N.Y.C. Agencies to Human Rights Post**\
-`Christine Clarke, who will lead the Commission on Human Rights, has worked on discrimination lawsuits against the city’s public housing authority and Police Department.`\
-https://nytimes.com/2026/01/07/nyregion/mamdani-christine-clarke-human-rights.html
 
