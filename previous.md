@@ -1,3 +1,27 @@
+**French Lentil Salad**\
+`Bright with flavor, dynamic and crisp with a combination of roots and chicory, and fresh with major herb appeal, this is a hearty, friendly, anytime lentil salad that will work well with any grocery or farmers’ market haul.`\
+https://nytimes.com/video/dining/100000010626899/french-lentil-salad.html
+
+**Crispy Halloumi With Tomatoes and White Beans**\
+`This vibrant vegetarian dish combines savory broiled halloumi, juicy cherry tomatoes and creamy white beans for a satisfying one-pan meal. When broiled, the halloumi becomes golden and crispy on the outside while staying soft and chewy on the inside, adding a deliciously hearty texture to each bite.`\
+https://nytimes.com/video/dining/100000010626897/crispy-halloumi-with-tomatoes-and-white-beans.html
+
+**Cheesy Gnocchi With Corn and Pesto**\
+`Tasty and effortless, store-bought gnocchi offers a much-needed shortcut for busy weeknight dinners. You can bypass boiling a pot of water for the gnocchi, and instead simply give them a quick sear over high heat, which creates perfectly crispy edges.`\
+https://nytimes.com/video/dining/100000010626895/cheesy-gnocchi-with-corn-and-pesto.html
+
+**What A.I. Tech is Overhyped or Underhyped?**\
+`Sam Rodriques, a founder of the artificial intelligence science lab FutureHouse, shares his thoughts on what A.I. and tech lives up to the hype in a game with Kevin Roose and Casey Newton of the “Hard Fork” podcast.`\
+https://nytimes.com/video/podcasts/100000010626762/what-ai-tech-is-overhyped-or-underhyped.html
+
+**The Most Interesting and Rare Collectibles at Goldin Auctions**\
+`Ken Goldin, the star of the Netflix series “King of Collectibles,” shows The Athletic’s Larry Holder some of Goldin Auctions’s most interesting and rare memorabilia, including a Babe Ruth bat and Lionel Messi jersey.`\
+https://nytimes.com/video/the-athletic/100000010626756/the-most-interesting-and-rare-collectibles-at-goldin-auctions.html
+
+**Why Trump’s Greenland Strategy Has the World on Edge**\
+`The president is again focused on acquiring the mineral-rich island. But lack of clarity about his goals and tactics is weighing on political and business leaders.`\
+https://nytimes.com/2026/01/07/business/dealbook/buy-invade-trump-greenland.html
+
 **Rudy Gobert rises again for the suddenly surging Minnesota Timberwolves**\
 `At 33 years old and in his 13th year in the league, the Timberwolves' center is playing as well as he has ever played.`\
 https://nytimes.com/athletic/6948130/2026/01/07/rudy-gobert-surging-timberwolves/
@@ -13,28 +37,4 @@ https://nytimes.com/live/2026/01/07/us/trump-greenland-news
 **U.S. Appeals Court Won’t Take Up Case to Resurrect 9/11 Plea Deal**\
 `The decision removes a chance for the defendants to resolve the long-running case with the death penalty taken off the table. Instead, pretrial hearings are likely to resume.`\
 https://nytimes.com/2026/01/07/us/politics/appeals-court-sept-11-plea-deal.html
-
-**The Madrid derby and a crucial Premier League title clash: Three big games to watch out**\
-`The Supercopa and England's top flight could provide some thrilling contests this week`\
-https://nytimes.com/athletic/6948867/2026/01/07/premier-league-supercopa-games-to-watch/
-
-**Reshuffle at Ukraine’s Intelligence Agencies Draws Criticism**\
-`Some ask whether the shake-up risks disrupting the agencies’ operations and is political in nature.`\
-https://nytimes.com/2026/01/07/world/europe/ukraine-spy-agencies.html
-
-**Is John Harbaugh the Giants' dream hire at head coach? Breaking down each known candidate**\
-`With help from The Athletic's beat writers, we examine the candidates the Giants are bringing in for interviews to be their next head coach.`\
-https://nytimes.com/athletic/6948299/2026/01/07/ny-giants-head-coach-candidates-list-john-harbaugh-kevin-stefanski/
-
-**Mandel's Mailbag: Is the SEC slipping? Can Indiana actually sustain this success?**\
-`Did the transfer portal and NIL change the sport for the better? Can Texas Tech take a jump with Brendan Sorsby? `\
-https://nytimes.com/athletic/6947990/2026/01/07/mandel-mailbag-sec-nil-indiana-playoff/
-
-**Why Kyle Whittingham will (and won't) succeed at Michigan**\
-`Whittingham’s hiring has been greeted with enthusiasm, but it’s also worth being clear-eyed about the challenges he’ll face in Ann Arbor.`\
-https://nytimes.com/athletic/6946830/2026/01/07/kyle-whittingham-michigan-football-underwood-coaches/
-
-**What we're hearing about a potential Anthony Davis trade ahead of NBA deadline**\
-`With Dallas struggling to hold down a Play-In spot, will the team look to deal its star big man before the Feb. 5 trade deadline?`\
-https://nytimes.com/athletic/6948820/2026/01/07/anthony-davis-mavericks-nba-trade-deadline/
 

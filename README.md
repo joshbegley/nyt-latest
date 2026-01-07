@@ -1,3 +1,11 @@
+**Maduro Is Gone, but Repression in Venezuela Has Intensified**\
+`Security forces have boarded buses, searched phones and interrogated people, looking for evidence that they welcomed the capture of Nicolás Maduro.`\
+https://nytimes.com/2026/01/07/world/americas/venezuela-repression.html
+
+**Loyalists Rally for Maduro as Venezuela Cracks Down on Critics**\
+`As a crowd in Caracas demanded Nicolás Maduro’s release, security forces hunted for any sign that Venezuelans were celebrating his capture.`\
+https://nytimes.com/video/world/americas/100000010628629/venezuela-maduro-rally-crackdown.html
+
 **French Lentil Salad**\
 `Bright with flavor, dynamic and crisp with a combination of roots and chicory, and fresh with major herb appeal, this is a hearty, friendly, anytime lentil salad that will work well with any grocery or farmers’ market haul.`\
 https://nytimes.com/video/dining/100000010626899/french-lentil-salad.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6948130/2026/01/07/rudy-gobert-surging-timberwolves
 **From Metcalf's miracle to Garrett's record: The NFL season's best plays, week by week**\
 `Here are our NFL plays of the year, with one selection from all 18 regular-season weeks.`\
 https://nytimes.com/athletic/6943126/2026/01/07/nfl-best-plays-touchdowns-catches-2025-season/
-
-**Trump Administration Live Updates: Rubio Says President Wants to Buy Greenland**\
-``\
-https://nytimes.com/live/2026/01/07/us/trump-greenland-news
-
-**U.S. Appeals Court Won’t Take Up Case to Resurrect 9/11 Plea Deal**\
-`The decision removes a chance for the defendants to resolve the long-running case with the death penalty taken off the table. Instead, pretrial hearings are likely to resume.`\
-https://nytimes.com/2026/01/07/us/politics/appeals-court-sept-11-plea-deal.html
 
