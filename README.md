@@ -1,3 +1,11 @@
+**Former Texas WR Jordan Shipley hospitalized after ranch accident**\
+`Shipley was an All-American for the Longhorns in their 13-1 season in 2009.`\
+https://nytimes.com/athletic/6948509/2026/01/06/jordan-shipley-hospitalized-ranch-injury/
+
+**Map: 6.4-Magnitude Earthquake Shakes the Philippine Sea**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/01/06/world/asia/earthquake-tracker-philippine-sea-nytbz4oh.html
+
 **FEMA Staff Bracing for Dismissal of 1,000 Disaster Workers**\
 `The job cuts expected this month are part of a plan by the Homeland Security secretary, Kristi Noem, to remake the agency.`\
 https://nytimes.com/2026/01/06/climate/fema-staff-cuts-1000-workers.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6948078/2026/01/06/giants-south-korea-jung-hoo-lee-
 `In the shadow of Mount Fuji lies a paradise for speed demons and an activity-packed five-day adventure.
 `\
 https://nytimes.com/paidpost/fuji-speedway-hotel/fuji-speedway-hotel/motorsports-mountain-and-more-the-perks-of-staying-at-the-foot-of-japans-highest-peak.html
-
-**Ex-UNLV QB Anthony Colandrea signs with Nebraska after Kenny Minchey flips**\
-`Colandrea was the 2025 Mountain West offensive player of the year, throwing for 3,459 yards and 23 touchdowns. `\
-https://nytimes.com/athletic/6948070/2026/01/06/anthony-colandrea-unlv-nebraska-kenny-minchey/
-
-**N.Y.C. Child Care Programs Brace for Cuts After Federal Funding Freeze**\
-`The Trump administration said it was placing a hold on $10 billion in subsidies across five states, including New York.`\
-https://nytimes.com/2026/01/06/nyregion/nyc-child-care-programs-trump-funding-freeze.html
 
