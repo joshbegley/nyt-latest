@@ -1,3 +1,11 @@
+**Pete Golding shares Ole Miss' coaching plan for Fiesta Bowl**\
+`Running backs coach Kevin Smith and offensive coordinator Charlie Weis Jr. will be with the team in Arizona for Thursday's game vs. Miami.`\
+https://nytimes.com/athletic/6950048/2026/01/07/ole-miss-assistant-coaches-pete-golding-lane-kiffin-fiesta-bowl/
+
+**Tourists on Remote Yemeni Island Are Caught in Escalating Conflict**\
+`Around 600 foreigners have been stranded on the remote Yemeni island of Socotra after the government halted flights amid an escalating conflict with separatists on the mainland.`\
+https://nytimes.com/video/world/middleeast/100000010628981/tourists-stranded-yemen-island.html
+
 **A Canada collision course? USMNT's many potential World Cup knockout scenarios**\
 `The vast number of World Cup knockout round permutations includes a fascinating potential duel between two of the co-hosts`\
 https://nytimes.com/athletic/6948519/2026/01/07/usmnt-2026-world-cup-knockout-round-opponents-scenarios/
