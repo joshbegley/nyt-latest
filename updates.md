@@ -1,3 +1,7 @@
+**What's going on with Lane Kiffin's search for a starting quarterback at LSU?**\
+`Could Washington's Demond Williams Jr., who was once committed to Kiffin at Ole Miss, end up in Baton Rouge? `\
+https://nytimes.com/athletic/6949190/2026/01/07/lane-kiffin-lsu-quarterback-demond-williams-sam-leavitt/
+
 **U.S. to Control Venezuela Oil Sales ‘Indefinitely,’ Energy Secretary Says**\
 `Chris Wright said the Trump administration was in “active dialogue” with Venezuela’s government about the plan.`\
 https://nytimes.com/2026/01/07/business/energy-environment/us-venezuela-oil-control.html
