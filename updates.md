@@ -1,3 +1,12 @@
+**Stephen Miller Offers a Strongman’s View of the World**\
+`President Trump’s trusted adviser is casting his hard-right gaze abroad, saying the world must be governed by “force.”`\
+https://nytimes.com/2026/01/06/us/politics/stephen-miller-foreign-policy.html
+
+**A Traveler’s Guide to Enjoying Japan, Mindfully**\
+`Much of Japan’s appeal lies in its quiet precision and elegant understatement. Here’s how visitors can respect that rhythm and explore with minimal impact, through tailor-made experiences that take them deep into the living culture. 
+`\
+https://nytimes.com/paidpost/xperisus-byfood/xperisus-byfood/a-travelers-guide-to-enjoying-japan-mindfully.html
+
 **Cea Weaver Has Long Been a Firebrand. Mamdani Is Standing by Her.**\
 `Ms. Weaver, a longtime tenant advocate who was appointed to a high-profile role in Mayor Zohran Mamdani’s administration, is facing criticism for past comments on homeownership.`\
 https://nytimes.com/2026/01/06/nyregion/cea-weaver-mamdani-tweets.html
