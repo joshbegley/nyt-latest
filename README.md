@@ -1,3 +1,7 @@
+**Tell Us: What’s the Most Romantic Thing You’ve Ever Seen?**\
+`We may include your story in an episode of the “Modern Love” podcast.`\
+https://nytimes.com/2026/01/07/podcasts/tell-us-whats-the-most-romantic-thing-youve-ever-seen.html
+
 **China’s Threat to Block Rare Earths Has Put Japan on High Alert**\
 `Tokyo is concerned at signs that Beijing may be laying the groundwork to restrict access to the metals vital to manufacturing.`\
 https://nytimes.com/2026/01/07/business/china-japan-rare-earths.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/07/us/la-fires-palisades-eaton-altadena.html
 **A Portrait That Was the ‘Instagram of Its Time’**\
 `Charles Edwards painted his interpretations of canvases by Anthony van Dyck for the Metropolitan Opera’s production of “I Puritani.” Then he visited the Met Museum to see the original.`\
 https://nytimes.com/2026/01/07/nyregion/i-puritani-met-opera-paintings.html
-
-**‘Hands in the Air, Butts on the Ground’: Kes Heads to Lincoln Center**\
-`The band from Trinidad and Tobago will headline the Unity Jazz Festival this week, bringing “a sense of joy” and its genre-blending sound.`\
-https://nytimes.com/2026/01/07/arts/music/kes-jazz-at-lincoln-center-unity-festival.html
 

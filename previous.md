@@ -1,40 +1,40 @@
-**RFEF considering moving Supercopa away from Saudi Arabia for 2027 tournament**\
-`Saudi Arabia has a contract to host the event until 2029, but the Gulf nation is hosting next year's Asian Cup in January.`\
-https://nytimes.com/athletic/6948797/2026/01/07/spain-super-cup-saudi-arabia/
+**China’s Threat to Block Rare Earths Has Put Japan on High Alert**\
+`Tokyo is concerned at signs that Beijing may be laying the groundwork to restrict access to the metals vital to manufacturing.`\
+https://nytimes.com/2026/01/07/business/china-japan-rare-earths.html
 
-**Giants must now win their biggest game of the year — the wild fight for John Harbaugh**\
-`The Giants were working on meeting with Harbaugh as early as this weekend, as many other NFL teams are also lining up to talk to him.`\
-https://nytimes.com/athletic/6948576/2026/01/07/john-harbaugh-giants-coaching-search/
+**The secret to the Patriots’ turnaround? It's not just Mike Vrabel's coaching acumen**\
+`The first-year coach has used a combination of caring, attitude and "aggressive honesty" in leading New England back to the playoffs.`\
+https://nytimes.com/athletic/6943557/2026/01/07/mike-vrabel-patriots-playoff-turnaround/
 
-**John Harbaugh's tenure in Baltimore is over. Ravens felt it was time for something new**\
-`There are several reasons Baltimore hasn't gotten over the hump recently. But ultimately, Harbaugh and his staff must bear responsibility.`\
-https://nytimes.com/athletic/6948144/2026/01/07/john-harbaugh-fired-ravens-new-coach/
+**The Case for Real Regime Change in Venezuela**\
+`The former envoy Elliott Abrams says the administration should push harder.`\
+https://nytimes.com/2026/01/07/opinion/interesting-times-elliott-abrams.html
 
-**Should Staten Island and the East Village Share a House District?**\
-`A court dispute over the lines of the 11th Congressional District represents one of New York Democrats’ few hopes of drawing maps in their favor for the 2026 midterms.`\
-https://nytimes.com/2026/01/07/nyregion/new-york-congressional-redistricting-democrats-republicans.html
+**‘Stranger Things’ Finale**\
+`The enormously popular Netflix series has ended. Were you a fan?`\
+https://nytimes.com/2026/01/07/learning/stranger-things-finale.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/07/crosswords/spelling-bee-forum.html
+**Minnesota’s Fraud Should Be a Wake-Up Call for Democrats**\
+`The specter of welfare fraud haunted Democrats under Reagan. It could do so again.`\
+https://nytimes.com/2026/01/07/opinion/minnesota-welfare-fraud-democrats.html
 
-**The Ashes Briefing: Bethell offers glimpse of England's future to delay Australia's victory charge**\
-`The tourists lead by 119 runs going into the final day with only two wickets in hand, but their new No 3 is still there on 142 not out`\
-https://nytimes.com/athletic/6947360/2026/01/07/england-bethell-australia-boland-ashes-briefing/
+**Can Timothée Chalamet Break This Oscar Curse?**\
+`The best actor Oscar almost never goes to young men, though the 30-year-old has his best chance yet with “Marty Supreme.”`\
+https://nytimes.com/2026/01/07/movies/timothee-chalamet-michael-b-jordan-oscar-curse.html
 
-**Word of the Day: homily**\
-`This word has appeared in 64 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/01/07/learning/word-of-the-day-homily.html
+**The Case for Real Regime Change in Venezuela**\
+`The former envoy Elliott Abrams says the administration should push harder.`\
+https://nytimes.com/video/opinion/100000010624613/the-case-for-real-regime-change-in-venezuela.html
 
-**LeBron James says he needs to fit in around Luka Dončić as duo's chemistry grows**\
-`This was the kind of performance coach J.J. Redick can reference as the Lakers figure out how to use their best players this season.`\
-https://nytimes.com/athletic/6948653/2026/01/07/lebron-james-luka-doncic-chemistry-grows/
+**One Year After the Fires: Los Angeles Tries to Heal**\
+`After wildfires destroyed much of Altadena and Pacific Palisades, residents are struggling with how to move forward and who is to blame.`\
+https://nytimes.com/2026/01/07/us/la-fires-palisades-eaton-altadena.html
 
-**I May Be Free, but the Belarusian People Are Not**\
-`The world must not stop supporting dissidents in Belarus despite the release of some from prison.`\
-https://nytimes.com/2026/01/07/opinion/ales-bialiatski-belarus-lukashenko.html
+**A Portrait That Was the ‘Instagram of Its Time’**\
+`Charles Edwards painted his interpretations of canvases by Anthony van Dyck for the Metropolitan Opera’s production of “I Puritani.” Then he visited the Met Museum to see the original.`\
+https://nytimes.com/2026/01/07/nyregion/i-puritani-met-opera-paintings.html
 
-**The New York Times in Print for Wednesday, Jan. 7, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/01/07/todays-new-york-times
+**‘Hands in the Air, Butts on the Ground’: Kes Heads to Lincoln Center**\
+`The band from Trinidad and Tobago will headline the Unity Jazz Festival this week, bringing “a sense of joy” and its genre-blending sound.`\
+https://nytimes.com/2026/01/07/arts/music/kes-jazz-at-lincoln-center-unity-festival.html
 
