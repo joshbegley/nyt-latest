@@ -1,5 +1,9 @@
+**Jets' Haydn Fleury stretchered off ice after getting shoved into end boards**\
+`Fleury was shoved to the ice by Golden Knights winger Keegan Kolesar after sending a breakout pass and slid backward into the end boards.`\
+https://nytimes.com/athletic/6948225/2026/01/06/winnipeg-jets-haydn-fleury-stretchered-injury/
+
 **Giants, Jung Hoo Lee tour South Korea, where they hope to build nation of fans**\
-`Giants officials have let MLB know that if the world tour program returns to Korea, they'd love to be part of it.`\
+`Giants officials have let MLB know that if the world tour program returns to South Korea, they'd love to be part of it.`\
 https://nytimes.com/athletic/6948078/2026/01/06/giants-south-korea-jung-hoo-lee-fans/
 
 **Motorsports, Mountain and More: The Perks of Staying at the Foot of Japan’s Highest Peak**\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6948143/2026/01/06/chargers-vs-patriots-stream-how-
 **Michael Reagan, Son of President Reagan, Dies at 80**\
 `Mr. Reagan, who was adopted by Ronald Reagan and his first wife, Jane Wyman, had cancer, according to a statement.`\
 https://nytimes.com/2026/01/06/obituaries/michael-reagan-dead.html
-
-**Scoop City: Ranking six head coaching openings, excluding Baltimore**\
-`A quick ode to Myles Garrett's season before ranking the six head coach openings, from Atlanta to New York, excluding the Ravens`\
-https://nytimes.com/athletic/6948073/2026/01/06/ranking-six-nfl-head-coaching-openings-titans-giants-raiders/
 
