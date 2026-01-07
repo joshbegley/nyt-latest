@@ -1,3 +1,7 @@
+**Alabama QB Ty Simpson declares for 2026 NFL Draft**\
+`Simpson completed 12 of 16 passes for just 67 yards in his final college game, a blowout Rose Bowl loss to Indiana.`\
+https://nytimes.com/athletic/6929891/2026/01/07/ty-simpson-nfl-draft-alabama/
+
 **NFL wild-card confidence picks: Jacksonville's surge to continue against Buffalo**\
 `KC Joyner gives his straight-up and against-the-spread picks for this weekend's NFL wild-card playoff games.`\
 https://nytimes.com/athletic/6948554/2026/01/07/nfl-wild-card-confidence-picks-jacksonville-buffalo/

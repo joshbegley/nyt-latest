@@ -1,3 +1,7 @@
+**Alabama QB Ty Simpson declares for 2026 NFL Draft**\
+`Simpson completed 12 of 16 passes for just 67 yards in his final college game, a blowout Rose Bowl loss to Indiana.`\
+https://nytimes.com/athletic/6929891/2026/01/07/ty-simpson-nfl-draft-alabama/
+
 **NFL wild-card confidence picks: Jacksonville's surge to continue against Buffalo**\
 `KC Joyner gives his straight-up and against-the-spread picks for this weekend's NFL wild-card playoff games.`\
 https://nytimes.com/athletic/6948554/2026/01/07/nfl-wild-card-confidence-picks-jacksonville-buffalo/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6949713/2026/01/07/kevin-durant-rockets-suns-victor
 **En vivo: EE. UU. intercepta 2 petroleros, uno de ellos con bandera de Rusia**\
 `El ejército estadounidense interceptó un petrolero con bandera rusa como parte de su campaña de presión contra Venezuela. También detuvo un segundo barco en el Caribe.`\
 https://nytimes.com/live/2026/01/07/espanol/venezuela-trump-juicio-maduro
-
-**NFL head coach and GM openings: Who are candidates to fill the positions?**\
-`The coaching and GM carousel began in earnest with the conclusion of the regular season. Here are names to watch to fill the roles.`\
-https://nytimes.com/athletic/6947104/2026/01/07/nfl-general-manager-coach-openings-candidates/
 
