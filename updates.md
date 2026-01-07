@@ -1,3 +1,19 @@
+**Lowetide: Why Kasperi Kapanen is a welcome addition to the Oilers lineup**\
+`Kapanen had been out since mid-October with an injury and played on the second line on Tuesday night.`\
+https://nytimes.com/athletic/6943971/2026/01/07/oilers-kasperi-kapanen-lineup-stats/
+
+**U.S. Seizes Oil Tanker, Raising Tensions With Russia**\
+`The ship had been eluding the Coast Guard after being stopped in the Caribbean on its way to pick up oil in Venezuela.`\
+https://nytimes.com/2026/01/07/us/politics/us-russia-oil-tanker.html
+
+**Our last sunset, for a while.**\
+`(No description)`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/sunsets
+
+**Ubben: The CFP semis prove the old path to winning a title is no longer the only way**\
+`There used to be only one path to the top of college football. However, the blueprint is changing.`\
+https://nytimes.com/athletic/6949240/2026/01/07/college-football-playoff-semifinalists-talent-rankings/
+
 **Alaska Airlines to Buy 110 Boeing Planes as It Seeks to Expand**\
 `Alaska’s order, its largest ever, follows its acquisition of Hawaiian Airlines and is part of its plan to expand, including overseas.`\
 https://nytimes.com/2026/01/07/business/alaska-airlines-boeing-planes.html
