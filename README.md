@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Jan. 7, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/07/todays-new-york-times
+
+**I May Be Free, but the Belarusian People Are Not**\
+`The world must not stop supporting dissidents in Belarus despite the release of some from prison.`\
+https://nytimes.com/2026/01/07/opinion/ales-bialiatski-belarus-lukashenko.html
+
 **It's 613 days since Bajcetic played for Liverpool. What's going on?**\
 `The midfielder is rehabbing again after yet another injury setback. His future at Liverpool seems far from certain`\
 https://nytimes.com/athletic/6942027/2026/01/07/its-613-days-since-stefan-bajcetic-played-for-liverpool-whats-going-on/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6945629/2026/01/07/barcelona-real-madrid-supercopa-
 **Arsenal's Martin Zubimendi and the side of his game that went under the radar**\
 `Before his arrival in north London this summer, most of the talk around the Spaniard centred on what he would offer Arsenal in possession`\
 https://nytimes.com/athletic/6942125/2026/01/07/martin-zubimendi-arsenal-defensive-analysis/
-
-**The rise of Morgan Rogers: From the Championship to one of Europe's best No 10s**\
-`Aston Villa star will be, if not already, one of Europe's top attacking midfielders and may be only scratching the surface of his talent`\
-https://nytimes.com/athletic/6921814/2026/01/07/morgan-rogers-aston-villa-spectacular-rise/
-
-**The making of Liam Rosenior, the head coach: 'He had a light. He was different'**\
-`Those who have worked with Chelsea's new boss explain how he got to this point - and the type of approach he will bring`\
-https://nytimes.com/athletic/6942659/2026/01/07/liam-rosenior-chelsea-profile/
 
