@@ -1,3 +1,7 @@
+**Keep Pounding with Cam Newton? It could happen at Panthers' playoff game vs. Rams**\
+`Carolina greats Greg Olsen, Jordan Gross and Ryan Kalil have hit the team's trademark drum before games this season.`\
+https://nytimes.com/athletic/6950721/2026/01/07/cam-newton-panthers-keep-pounding-playoffs/
+
 **Rangers exploring Kiefer Sherwood trade, but injuries could change equation**\
 `The clock is ticking, with January shaping up to be a crucial month that could alter the direction of the franchise.`\
 https://nytimes.com/athletic/6950708/2026/01/07/ny-rangers-kiefer-sherwood-trade-rumors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6950654/2026/01/07/jules-bianchi-karts-stolen-f1/
 **Trump officials threaten to expand a crackdown on fraud in Minnesota to other Democratic-run states.**\
 `By Madeleine Ngo`\
 https://nytimes.com/live/2026/01/07/us/trump-news/trump-officials-threaten-to-expand-a-crackdown-on-fraud-in-minnesota-to-other-democratic-run-states
-
-**2026 SAG Actors Award Nominations List:**\
-`“One Battle After Another” and “Sinners” lead, while Timothée Chalamet and Ariana Grande also scored nods. Cynthia Erivo and the stars of “Jay Kelly” were left out.`\
-https://nytimes.com/2026/01/07/movies/actor-award-sag-nominations-list.html
 

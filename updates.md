@@ -1,3 +1,11 @@
+**Rangers exploring Kiefer Sherwood trade, but injuries could change equation**\
+`The clock is ticking, with January shaping up to be a crucial month that could alter the direction of the franchise.`\
+https://nytimes.com/athletic/6950708/2026/01/07/ny-rangers-kiefer-sherwood-trade-rumors/
+
+**Rubio Lays Out Long-Term U.S. Involvement in Venezuela**\
+`The secretary of state told lawmakers the administration has a three-phase plan for Venezuela after ousting its leader, including seizing oil and controlling the proceeds.`\
+https://nytimes.com/2026/01/07/us/politics/us-venezuela-plan-rubio.html
+
 **How The Times Is Drawing on Over a Century of Reporting in Venezuela**\
 `The New York Times has been on the ground in the country since at least the 1880s, through celebration, suffering and political turmoil.`\
 https://nytimes.com/2026/01/07/insider/venezuela-new-york-times.html

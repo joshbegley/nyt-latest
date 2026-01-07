@@ -1,3 +1,11 @@
+**Rangers exploring Kiefer Sherwood trade, but injuries could change equation**\
+`The clock is ticking, with January shaping up to be a crucial month that could alter the direction of the franchise.`\
+https://nytimes.com/athletic/6950708/2026/01/07/ny-rangers-kiefer-sherwood-trade-rumors/
+
+**Rubio Lays Out Long-Term U.S. Involvement in Venezuela**\
+`The secretary of state told lawmakers the administration has a three-phase plan for Venezuela after ousting its leader, including seizing oil and controlling the proceeds.`\
+https://nytimes.com/2026/01/07/us/politics/us-venezuela-plan-rubio.html
+
 **How The Times Is Drawing on Over a Century of Reporting in Venezuela**\
 `The New York Times has been on the ground in the country since at least the 1880s, through celebration, suffering and political turmoil.`\
 https://nytimes.com/2026/01/07/insider/venezuela-new-york-times.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/01/07/us/trump-news/trump-officials-threaten-to-ex
 **2026 SAG Actors Award Nominations List:**\
 `“One Battle After Another” and “Sinners” lead, while Timothée Chalamet and Ariana Grande also scored nods. Cynthia Erivo and the stars of “Jay Kelly” were left out.`\
 https://nytimes.com/2026/01/07/movies/actor-award-sag-nominations-list.html
-
-**Many Local Officials Call for Federal Forces to Leave Minneapolis**\
-`Minneapolis leaders condemned the immigration crackdown, as federal officials defended the operation.`\
-https://nytimes.com/2026/01/07/us/minneapolis-shooting-reaction-immigration-frey.html
-
-**Ohio State stars Carnell Tate, Caleb Downs declare for 2026 NFL Draft**\
-`Both prospects could be top-10 picks in the upcoming draft.`\
-https://nytimes.com/athletic/6950622/2026/01/07/nfl-draft-2026-caleb-downs-carnell-tate-declare/
 
