@@ -1,3 +1,11 @@
+**Auburn fans throw objects on court after potential game-winner vs. Texas A&M is called off**\
+`Refs get objects thrown at them after controversial call at the end of Auburn and Texas A&M basketball game `\
+https://nytimes.com/athletic/6949189/2026/01/07/auburn-texas-am-basketball-controversial-ending/
+
+**Bears coach Ben Johnson awakened a ‘sleeping giant.’ Now he wants much more**\
+`With a division title in hand and a playoff opportunity waiting, Johnson has enlivened Chicago with his fiery leadership style.`\
+https://nytimes.com/athletic/6946420/2026/01/07/ben-johnson-bears-year-one-coach-playoffs/
+
 **Ubben: The CFP semis prove the old path to winning a title is no longer the only way**\
 `There used to be only one path to the top of college football. But the blueprint is changing.`\
 https://nytimes.com/athletic/6949240/2026/01/07/college-football-playoff-semifinalists-talent-rankings/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/07/business/energy-environment/us-venezuela-oil-cont
 **Five Dodgers questions amid a slow offseason (and a big move to come?)**\
 `Kyle Tucker, Bo Bichette and Cody Bellinger are among the intriguing names as the Dodgers look to bolster their chances of another title.`\
 https://nytimes.com/athletic/6948210/2026/01/07/dodgers-offseason-mlb-trade-free-agency/
-
-**Sources: Nashville SC signs top MLS free agent Espinoza to elevate attack**\
-`Espinoza will link up with two of the most productive attacking talents in MLS to boost Nashville's chances in 2026`\
-https://nytimes.com/athletic/6945525/2026/01/07/cristian-espinoza-nashville-sc-mls-free-agent/
-
-**My Older Relatives Hurt Younger Ones With Their Blunt Advice. What Can I Do?**\
-`A reader is troubled by the sharp-edged advice being meted out to younger relatives but reluctant to get involved in the conflicts.`\
-https://nytimes.com/2026/01/07/style/hurtful-unsolicited-advice-family.html
 
