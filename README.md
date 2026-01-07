@@ -1,3 +1,7 @@
+**RFEF considering moving Supercopa away from Saudi Arabia for 2027 tournament**\
+`Saudi Arabia has a contract to host the event until 2029, but the Gulf nation is hosting next year's Asian Cup in January.`\
+https://nytimes.com/athletic/6948797/2026/01/07/spain-super-cup-saudi-arabia/
+
 **Giants must now win their biggest game of the year — the wild fight for John Harbaugh**\
 `The Giants were working on meeting with Harbaugh as early as this weekend, as many other NFL teams are also lining up to talk to him.`\
 https://nytimes.com/athletic/6948576/2026/01/07/john-harbaugh-giants-coaching-search/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/07/opinion/ales-bialiatski-belarus-lukashenko.html
 **The New York Times in Print for Wednesday, Jan. 7, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/07/todays-new-york-times
-
-**It's 613 days since Bajcetic played for Liverpool. What's going on?**\
-`The midfielder is rehabbing again after yet another injury setback. His future at Liverpool seems far from certain`\
-https://nytimes.com/athletic/6942027/2026/01/07/its-613-days-since-stefan-bajcetic-played-for-liverpool-whats-going-on/
 
