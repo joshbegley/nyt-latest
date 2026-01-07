@@ -1,3 +1,7 @@
+**The ICE Shooting Came During an Operation Focused on Somali Immigrants**\
+`Federal immigration officials have stepped up enforcement activity in Minnesota amid a fraud scandal there that includes many people of Somali origin.`\
+https://nytimes.com/2026/01/07/us/ice-minneapolis-somalis-immigration.html
+
 **Tiny Love Stories: ‘Either a Good Omen or a Nightmare’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2026/01/07/style/tiny-modern-love-stories-either-a-good-omen-or-a-nightmare.html
@@ -15,7 +19,7 @@ https://nytimes.com/2026/01/07/us/politics/venezuela-massie-republican-primary-k
 https://nytimes.com/athletic/6952328/2026/01/07/darren-fletcher-man-utd-manager-next/
 
 **What to make of the Mets' interest in Kyle Tucker**\
-`The Mets, Dodgers and Blue Jays and are among Tucker’s options, league sources confirmed.`\
+`The Mets, Dodgers and Blue Jays are among Tucker’s options, league sources confirmed.`\
 https://nytimes.com/athletic/6951582/2026/01/07/mets-kyle-tucker-mlb-free-agency/
 
 **Jim Harbaugh, NFL react to Ravens' firing of John Harbaugh: 'Best coach I know'**\
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/07/us/motorist-shootings-vehicle-weapon.html
 **Beyond Minnesota, Social Media Fuels False Rumors of Fraud Among Somalis**\
 `The Ohio governor is once again trying to counter misinformation about immigrants, more than a year after baseless claims that Haitians in Springfield were eating pets.`\
 https://nytimes.com/2026/01/07/us/ohio-child-care-fraud.html
-
-**Venezuelans in U.S. Share Hopes for Returning Home**\
-`For some Venezuelans living in the U.S., the American government’s seizure and removal of Venezuela’s leader, Nicolás Maduro, has given them the hope of one day returning home.`\
-https://nytimes.com/video/us/100000010623609/venezuelans-in-us-share-hopes-for-returning-home.html
 
