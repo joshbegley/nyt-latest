@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Stanley Reed, Chris Cameron, James Wagner and Francesca Regalado`\
+https://nytimes.com/live/2026/01/07/world/venezuela-us-trump/heres-the-latest
+
+**Live Updates: Trump Says Venezuela Will Send Oil to U.S.**\
+`If confirmed, the move would be the start of President Trump’s plan to exploit the country’s vast reserves after U.S. forces captured President Nicolás Maduro.`\
+https://nytimes.com/live/2026/01/07/world/venezuela-us-trump
+
 **The DK Metcalf effect: His impact for the Steelers — even when he doesn't get the ball**\
 `The receiver returns for the playoffs after serving a two-game suspension to finish the regular season.`\
 https://nytimes.com/athletic/6948087/2026/01/07/pittsburgh-steelers-dk-metcalf-return-suspension-impact/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6942227/2026/01/07/gary-oneil-strasbourg-manager/
 **Tell Us: What’s the Most Romantic Thing You’ve Ever Seen?**\
 `We may include your story in an episode of the “Modern Love” podcast.`\
 https://nytimes.com/2026/01/07/podcasts/tell-us-whats-the-most-romantic-thing-youve-ever-seen.html
-
-**China’s Threat to Block Rare Earths Has Put Japan on High Alert**\
-`Tokyo is concerned at signs that Beijing may be laying the groundwork to restrict access to the metals vital to manufacturing.`\
-https://nytimes.com/2026/01/07/business/china-japan-rare-earths.html
-
-**The secret to the Patriots’ turnaround? It's not just Mike Vrabel's coaching acumen**\
-`The first-year coach has used a combination of caring, attitude and "aggressive honesty" in leading New England back to the playoffs.`\
-https://nytimes.com/athletic/6943557/2026/01/07/mike-vrabel-patriots-playoff-turnaround/
 

@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Stanley Reed, Chris Cameron, James Wagner and Francesca Regalado`\
+https://nytimes.com/live/2026/01/07/world/venezuela-us-trump/heres-the-latest
+
+**Live Updates: Trump Says Venezuela Will Send Oil to U.S.**\
+`If confirmed, the move would be the start of President Trump’s plan to exploit the country’s vast reserves after U.S. forces captured President Nicolás Maduro.`\
+https://nytimes.com/live/2026/01/07/world/venezuela-us-trump
+
 **The DK Metcalf effect: His impact for the Steelers — even when he doesn't get the ball**\
 `The receiver returns for the playoffs after serving a two-game suspension to finish the regular season.`\
 https://nytimes.com/athletic/6948087/2026/01/07/pittsburgh-steelers-dk-metcalf-return-suspension-impact/
