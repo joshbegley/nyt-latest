@@ -1,3 +1,7 @@
+**The Bounce: Was Kevin Durant 'scapegoated' by Suns? Plus, a wild Wemby feet feat**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6949713/2026/01/07/kevin-durant-rockets-suns-victor-wembanyama-nba-the-bounce/
+
 **En vivo: EE. UU. intercepta un buque petrolero con bandera de Rusia**\
 `La embarcación había estado navegando por el océano Atlántico entre Islandia y el Reino Unido. Su destino era desconocido.`\
 https://nytimes.com/live/2026/01/07/espanol/venezuela-trump-juicio-maduro
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/07/opinion/trump-venezuela-plan-maduro.html
 **Steven Adams overcame career-threatening injuries. He's now pivotal to Rockets' identity**\
 `At 32, Adams is still relentless in the paint. Houston Rockets coach Udoka even described him as “spry and youthful.”`\
 https://nytimes.com/athletic/6948679/2026/01/07/steven-adams-rockets-nba-injury-sengun-durant/
-
-**Auburn fans throw objects on court after potential game-winner vs. Texas A&M is called off**\
-`Refs get objects thrown at them after controversial call at the end of Auburn and Texas A&M basketball game `\
-https://nytimes.com/athletic/6949189/2026/01/07/auburn-texas-am-basketball-controversial-ending/
 

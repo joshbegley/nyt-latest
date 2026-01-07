@@ -1,9 +1,17 @@
+**En vivo: EE. UU. intercepta un buque petrolero con bandera de Rusia**\
+`La embarcación había estado navegando por el océano Atlántico entre Islandia y el Reino Unido. Su destino era desconocido.`\
+https://nytimes.com/live/2026/01/07/espanol/venezuela-trump-juicio-maduro
+
+**NFL head coach and GM openings: Who are candidates to fill the positions?**\
+`The coaching and GM carousel began in earnest with the conclusion of the regular season. Here are names to watch to fill the roles.`\
+https://nytimes.com/athletic/6947104/2026/01/07/nfl-general-manager-coach-openings-candidates/
+
 **Lowetide: Why Kasperi Kapanen is a welcome addition to the Oilers lineup**\
 `Kapanen had been out since mid-October with an injury and played on the second line on Tuesday night.`\
 https://nytimes.com/athletic/6943971/2026/01/07/oilers-kasperi-kapanen-lineup-stats/
 
 **U.S. Seizes Oil Tanker, Raising Tensions With Russia**\
-`The ship had been eluding the Coast Guard after being stopped in the Caribbean on its way to pick up oil in Venezuela.`\
+`The ship had been eluding the Coast Guard after being stopped on its way to pick up oil in Venezuela. U.S. forces also boarded another tanker in international waters near the Caribbean.`\
 https://nytimes.com/2026/01/07/us/politics/us-russia-oil-tanker.html
 
 **Our last sunset, for a while.**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6948679/2026/01/07/steven-adams-rockets-nba-injury-
 **Auburn fans throw objects on court after potential game-winner vs. Texas A&M is called off**\
 `Refs get objects thrown at them after controversial call at the end of Auburn and Texas A&M basketball game `\
 https://nytimes.com/athletic/6949189/2026/01/07/auburn-texas-am-basketball-controversial-ending/
-
-**Bears coach Ben Johnson awakened a ‘sleeping giant.’ Now he wants much more**\
-`With a division title in hand and a playoff opportunity waiting, Johnson has enlivened Chicago with his fiery leadership style.`\
-https://nytimes.com/athletic/6946420/2026/01/07/ben-johnson-bears-year-one-coach-playoffs/
-
-**Ubben: The CFP semis prove the old path to winning a title is no longer the only way**\
-`There used to be only one path to the top of college football. However, the blueprint is changing.`\
-https://nytimes.com/athletic/6949240/2026/01/07/college-football-playoff-semifinalists-talent-rankings/
 

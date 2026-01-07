@@ -1,3 +1,15 @@
+**En vivo: EE. UU. intercepta un buque petrolero con bandera de Rusia**\
+`La embarcación había estado navegando por el océano Atlántico entre Islandia y el Reino Unido. Su destino era desconocido.`\
+https://nytimes.com/live/2026/01/07/espanol/venezuela-trump-juicio-maduro
+
+**NFL head coach and GM openings: Who are candidates to fill the positions?**\
+`The coaching and GM carousel began in earnest with the conclusion of the regular season. Here are names to watch to fill the roles.`\
+https://nytimes.com/athletic/6947104/2026/01/07/nfl-general-manager-coach-openings-candidates/
+
+**U.S. Seizes Oil Tanker, Raising Tensions With Russia**\
+`The ship had been eluding the Coast Guard after being stopped on its way to pick up oil in Venezuela. U.S. forces also boarded another tanker in international waters near the Caribbean.`\
+https://nytimes.com/2026/01/07/us/politics/us-russia-oil-tanker.html
+
 **Lowetide: Why Kasperi Kapanen is a welcome addition to the Oilers lineup**\
 `Kapanen had been out since mid-October with an injury and played on the second line on Tuesday night.`\
 https://nytimes.com/athletic/6943971/2026/01/07/oilers-kasperi-kapanen-lineup-stats/
