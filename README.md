@@ -1,3 +1,7 @@
+**Real Madrid not ruling out Mbappe return for Supercopa de Espana final**\
+`Mbappe is sidelined due to a sprain in his left knee and remains in Madrid while he works on his recovery.`\
+https://nytimes.com/athletic/6948950/2026/01/07/kylian-mbappe-real-madrid-injury-return-news/
+
 **Slot: Liverpool's Ekitike a doubt to face Arsenal**\
 `The French striker missed Sunday's 2-2 draw at Fulham due to a minor hamstring problem.`\
 https://nytimes.com/athletic/6948919/2026/01/07/hugo-ekitike-injury-liverpool-arsenal-team-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6946328/2026/01/07/commanders-future-adam-peters-da
 **Brittany Bowe, U.S. speed skating's North Star, is ready for her Olympic finale**\
 `Heading to her fourth and final Olympics, Bowe has become both mentor and medal contender for Team USA.`\
 https://nytimes.com/athletic/6947947/2026/01/07/brittany-bowe-olympics-speed-skating-birthday/
-
-**Can Packers' underwhelming special teams avoid another playoff disaster?**\
-`Veteran special teams coordinator Rich Bisaccia is working with a short-handed group entering the wild-card round Saturday night.`\
-https://nytimes.com/athletic/6947917/2026/01/07/packers-special-teams-playoffs-rich-bisaccia/
 
