@@ -35,7 +35,7 @@ https://nytimes.com/athletic/6948112/2026/01/06/inter-miami-tadeo-allende-deal/
 `Find out how to watch the Los Angeles Chargers play the New England Patriots, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6948143/2026/01/06/chargers-vs-patriots-stream-how-to-watch-jan-11/
 
-**Michael Reagan, Son of President Reagan, Dies at 80**\
-`Mr. Reagan, who was adopted by Ronald Reagan and his first wife, Jane Wyman, had cancer, according to a statement.`\
+**Michael Reagan, a Son of President Reagan Who Fought for Right-Wing Causes, Dies at 80**\
+`Mr. Reagan, who was the son of Ronald Reagan and his first wife, Jane Wyman, built on his father’s conservative legacy with a radio talk show and columns on right-wing sites like Newsmax.`\
 https://nytimes.com/2026/01/06/obituaries/michael-reagan-dead.html
 

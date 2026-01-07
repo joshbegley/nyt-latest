@@ -1,3 +1,7 @@
+**Michael Reagan, a Son of President Reagan Who Fought for Right-Wing Causes, Dies at 80**\
+`Mr. Reagan, who was the son of Ronald Reagan and his first wife, Jane Wyman, built on his father’s conservative legacy with a radio talk show and columns on right-wing sites like Newsmax.`\
+https://nytimes.com/2026/01/06/obituaries/michael-reagan-dead.html
+
 **Sources: Inter Miami closing on deal to keep playoff star Allende**\
 `Allende, 26, set an MLS record for goals in a single postseason as Miami won MLS Cup.`\
 https://nytimes.com/athletic/6948112/2026/01/06/inter-miami-tadeo-allende-deal/
