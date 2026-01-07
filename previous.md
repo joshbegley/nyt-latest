@@ -1,3 +1,11 @@
+**Horns, Whistles and Then Gunfire on a Minneapolis Street**\
+`A man opened his door to discover a tableau of deadly violence after a federal agent fatally shot a woman.`\
+https://nytimes.com/2026/01/07/us/minneapolis-ice-shooting-witness.html
+
+**Cubs boost their formidable rotation, acquiring Edward Cabrera from Marlins: MLB Trade Grades**\
+`There’s a lot for the Cubs to like about Cabrera, from his 94-mph changeup to his devastating curveball and slider to his improved walk rate`\
+https://nytimes.com/athletic/6951312/2026/01/07/cubs-marlins-edward-cabrera-trade-grades/
+
 **U.S., Cementing Control on Venezuelan Oil, Seizes Russian-Flagged Tanker**\
 `The vessel was one of two taken into American custody as the Trump administration said it was executing a “deal to take all the oil.”`\
 https://nytimes.com/2026/01/07/world/americas/venezuela-us-oil.html
@@ -21,12 +29,4 @@ https://nytimes.com/2026/01/07/us/politics/congress-trump-venezuela-oil-constitu
 **The Briefing: Bournemouth 3 Tottenham 2 - Palhinha's stunner, Spurs lose control, penalty controversy**\
 `Tottenham suffer defeat at Bournemouth despite going ahead in the fifth minute after a promising start`\
 https://nytimes.com/athletic/6937565/2026/01/07/bournemouth-3-tottenham-2-briefing-palhinha-goal/
-
-**Senate Republicans Push Back on Trump’s Aspirations to Seize Greenland**\
-`Opposition was stacking up to the United States buying the semiautonomous island or taking it by force.`\
-https://nytimes.com/2026/01/07/world/americas/trump-greenland-senate-republicans.html
-
-**Trump Wants to Bar Wall St. Investors From Buying Single-Family Homes**\
-`The president said he wanted Congress to stop big investors from buying the houses, which has driven up rents and set obstacles for first-time buyers in some markets.`\
-https://nytimes.com/2026/01/07/business/trump-wall-street-investors-homes.html
 

@@ -1,3 +1,11 @@
+**Horns, Whistles and Then Gunfire on a Minneapolis Street**\
+`A man opened his door to discover a tableau of deadly violence after a federal agent fatally shot a woman.`\
+https://nytimes.com/2026/01/07/us/minneapolis-ice-shooting-witness.html
+
+**Cubs boost their formidable rotation, acquiring Edward Cabrera from Marlins: MLB Trade Grades**\
+`There’s a lot for the Cubs to like about Cabrera, from his 94-mph changeup to his devastating curveball and slider to his improved walk rate`\
+https://nytimes.com/athletic/6951312/2026/01/07/cubs-marlins-edward-cabrera-trade-grades/
+
 **U.S., Cementing Control on Venezuelan Oil, Seizes Russian-Flagged Tanker**\
 `The vessel was one of two taken into American custody as the Trump administration said it was executing a “deal to take all the oil.”`\
 https://nytimes.com/2026/01/07/world/americas/venezuela-us-oil.html
