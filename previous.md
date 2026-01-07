@@ -1,3 +1,15 @@
+**U.S. Appeals Court Won’t Take Up Case to Resurrect 9/11 Plea Deal**\
+`The decision removes a chance for the defendants to resolve the long-running case with the death penalty taken off the table. Instead, pretrial hearings are likely to resume.`\
+https://nytimes.com/2026/01/07/us/politics/appeals-court-sept-11-plea-deal.html
+
+**The Madrid derby and a crucial Premier League title clash: Three big games to watch out**\
+`The Supercopa and England's top flight could provide some thrilling contests this week`\
+https://nytimes.com/athletic/6948867/2026/01/07/premier-league-supercopa-games-to-watch/
+
+**Reshuffle at Ukraine’s Intelligence Agencies Draws Criticism**\
+`Some ask whether the shake-up risks disrupting the agencies’ operations and is political in nature.`\
+https://nytimes.com/2026/01/07/world/europe/ukraine-spy-agencies.html
+
 **Is John Harbaugh the Giants' dream hire at head coach? Breaking down each known candidate**\
 `With help from The Athletic's beat writers, we examine the candidates the Giants are bringing in for interviews to be their next head coach.`\
 https://nytimes.com/athletic/6948299/2026/01/07/ny-giants-head-coach-candidates-list-john-harbaugh-kevin-stefanski/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/07/business/media/warner-bros-paramount-netflix.html
 **The Law of the Jungle**\
 `We ask where America’s new foreign policy might take us — and the world.`\
 https://nytimes.com/2026/01/07/briefing/the-law-of-the-jungle.html
-
-**Japan — Behind the Veil Season 2**\
-` Back for Season 2, this series continues to feature, Japan’s hidden gems.`\
-https://nytimes.com/paidpost/japan-travel-series/japan-behind-the-veil-season-2.html
-
-**Far too many names to know for the NFL's current (and future) GM openings**\
-`What to know about the candidates competing for the Dolphins' and Falcons' GM jobs — and some of their highly respected NFL peers.`\
-https://nytimes.com/athletic/6944342/2026/01/07/nfl-gm-candidates-falcons-dolphins/
-
-**Yankees vs. Cody Bellinger: A look at each side's case**\
-`Talks are ongoing, but the Yankees and Cody Bellinger don't appear close to reaching an agreement on a new contract. So what's the hold up? `\
-https://nytimes.com/athletic/6948100/2026/01/07/yankees-cody-bellinger-negotations/
 
