@@ -1,3 +1,11 @@
+**U.S., Cementing Control on Venezuelan Oil, Seizes Russian-Flagged Tanker**\
+`The vessel was one of two taken into American custody as the Trump administration said it was executing a “deal to take all the oil.”`\
+https://nytimes.com/2026/01/07/world/americas/venezuela-us-oil.html
+
+**A Future for Confession**\
+`The sacrament of penance’s 21st-century allure.`\
+https://nytimes.com/2026/01/07/opinion/confession-catholic-knives-out.html
+
 **The Briefing: Manchester City 1 Brighton 1 - how did their young centre-backs get on? Why can't City take control?**\
 `Manchester City's title bid faltered once again with a third draw in a row, this time against Brighton`\
 https://nytimes.com/athletic/6937567/2026/01/07/manchester-city-brighton-briefing-premier-league/
