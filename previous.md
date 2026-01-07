@@ -1,3 +1,7 @@
+**Nick Reiner’s Lawyer Plans to Remove Himself From Murder Case**\
+`The decision is expected to delay the arraignment of Mr. Reiner, who is accused of killing his parents last month.`\
+https://nytimes.com/2026/01/07/movies/nick-reiner-lawyer-alan-jackson.html
+
 **Silicon Valley Plots Against Ro Khanna After His Mockery Over a Wealth Tax**\
 `It’s hard right now to be a progressive Democrat in the heart of America’s tech industry.`\
 https://nytimes.com/2026/01/07/us/politics/ro-khanna-california-wealth-tax.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/07/business/energy-environment/trump-venezuela-oil-e
 **Submit your questions for our next Giants Mailbagg!**\
 `<p>The Giants have made incremental changes to their roster this offseason.`\
 https://nytimes.com/athletic/6950314/2026/01/07/sf-giants-mailbagg-question-submissions/
-
-**Is that frazil, grease or shuga? How to identify sea ice.**\
-`(No description)`\
-https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/is-that-frazil-grease-or-shuga-how-to-identify-sea-ice
 

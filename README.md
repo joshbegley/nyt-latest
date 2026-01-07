@@ -1,5 +1,9 @@
-**Nick Reiner’s Lawyer Plans to Remove Himself From Murder Case**\
-`The decision is expected to delay the arraignment of Mr. Reiner, who is accused of killing his parents last month.`\
+**Federal Agent Shoots Woman Amid Minneapolis Crackdown**\
+`The person was killed, federal authorities said. Gov. Tim Walz asked for calm as protesters gathered.`\
+https://nytimes.com/live/2026/01/07/us/minnesota-shooting-ice
+
+**Nick Reiner’s Lawyer Removes Himself From Murder Case**\
+`The announcement delayed the arraignment of Mr. Reiner, who is accused of killing his parents last month.`\
 https://nytimes.com/2026/01/07/movies/nick-reiner-lawyer-alan-jackson.html
 
 **Silicon Valley Plots Against Ro Khanna After His Mockery Over a Wealth Tax**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6949920/2026/01/07/fifa-ai-offside-world-cup/
 **Oil Firms Say Venezuela Owes Them Billions, Complicating Trump’s Plan**\
 `Companies like Exxon Mobil and ConocoPhillips say that Venezuela owes them billions of dollars for confiscating their assets two decades ago.`\
 https://nytimes.com/2026/01/07/business/energy-environment/trump-venezuela-oil-exxon-mobil-conocophillips.html
-
-**Submit your questions for our next Giants Mailbagg!**\
-`<p>The Giants have made incremental changes to their roster this offseason.`\
-https://nytimes.com/athletic/6950314/2026/01/07/sf-giants-mailbagg-question-submissions/
 
