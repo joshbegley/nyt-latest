@@ -1,3 +1,15 @@
+**As Charlie Kirk’s Turning Point Pushes Into High Schools, Dissension Follows**\
+`Since Mr. Kirk’s death, chapters of his organization’s affiliate for teenagers have more than doubled in number, aided by politicians who have said they won’t tolerate opposition.`\
+https://nytimes.com/2026/01/07/us/politics/charlie-kirk-turning-point-usa-high-schools.html
+
+**Arteta hopeful Arsenal's Havertz will return for Liverpool clash**\
+`Havertz returned to the bench for the first time since August last Tuesday but missed the trip to Bournemouth on Saturday.`\
+https://nytimes.com/athletic/6949236/2026/01/07/arsenal-liverpool-team-news-havertz-calafiori-mosquera/
+
+**Giro D'Italia champion Yates announces shock retirement from cycling**\
+`Yates has called time on his career at the age of 33 and after his most successful season as a professional.`\
+https://nytimes.com/athletic/6949185/2026/01/07/simon-yates-retirement-cycling/
+
 **What's going on with Lane Kiffin's search for a starting quarterback at LSU?**\
 `Could Washington's Demond Williams Jr., who was once committed to Kiffin at Ole Miss, end up in Baton Rouge? `\
 https://nytimes.com/athletic/6949190/2026/01/07/lane-kiffin-lsu-quarterback-demond-williams-sam-leavitt/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6949116/2026/01/07/college-basketball-mailbag-michi
 **Hundreds of Tourists on Yemeni Island Caught Up in Saudi-U.A.E. Rift**\
 `Around 600 foreigners have been stranded on Socotra as clashes on mainland Yemen halted flights, turning the nature sanctuary and tourist spot into a geopolitical trap.`\
 https://nytimes.com/2026/01/07/world/middleeast/yemen-socotra-flights-tourists.html
-
-**Maduro Is Gone, but Repression in Venezuela Has Intensified**\
-`Security forces have boarded buses, searched phones and interrogated people, looking for evidence that they welcomed the capture of Nicolás Maduro.`\
-https://nytimes.com/2026/01/07/world/americas/venezuela-repression.html
-
-**Loyalists Rally for Maduro as Venezuela Cracks Down on Critics**\
-`As a crowd in Caracas demanded Nicolás Maduro’s release, security forces hunted for any sign that Venezuelans were celebrating his capture.`\
-https://nytimes.com/video/world/americas/100000010628629/venezuela-maduro-rally-crackdown.html
-
-**French Lentil Salad**\
-`Bright with flavor, dynamic and crisp with a combination of roots and chicory, and fresh with major herb appeal, this is a hearty, friendly, anytime lentil salad that will work well with any grocery or farmers’ market haul.`\
-https://nytimes.com/video/dining/100000010626899/french-lentil-salad.html
 

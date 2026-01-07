@@ -1,3 +1,7 @@
+**Yemeni Separatist Defies Saudi Demand, and Strike Follows**\
+`Southern Yemen has been engulfed in a proxy conflict that pits two U.S. allies, Saudi Arabia and the United Arab Emirates, against each other.`\
+https://nytimes.com/2026/01/07/world/middleeast/yemen-separatist-leader-zubaidi-saudi-arabia-uae.html
+
 **As Charlie Kirk’s Turning Point Pushes Into High Schools, Dissension Follows**\
 `Since Mr. Kirk’s death, chapters of his organization’s affiliate for teenagers have more than doubled in number, aided by politicians who have said they won’t tolerate opposition.`\
 https://nytimes.com/2026/01/07/us/politics/charlie-kirk-turning-point-usa-high-schools.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/07/style/hurtful-unsolicited-advice-family.html
 **College basketball mailbag: Which top team is most vulnerable to an upset in March?**\
 `Plus: Who's for real in the Big East, and should Miami (Ohio) be ranked?`\
 https://nytimes.com/athletic/6949116/2026/01/07/college-basketball-mailbag-michigan-purdue-big-east/
-
-**Hundreds of Tourists on Yemeni Island Caught Up in Saudi-U.A.E. Rift**\
-`Around 600 foreigners have been stranded on Socotra as clashes on mainland Yemen halted flights, turning the nature sanctuary and tourist spot into a geopolitical trap.`\
-https://nytimes.com/2026/01/07/world/middleeast/yemen-socotra-flights-tourists.html
 

@@ -1,3 +1,15 @@
+**As Charlie Kirk’s Turning Point Pushes Into High Schools, Dissension Follows**\
+`Since Mr. Kirk’s death, chapters of his organization’s affiliate for teenagers have more than doubled in number, aided by politicians who have said they won’t tolerate opposition.`\
+https://nytimes.com/2026/01/07/us/politics/charlie-kirk-turning-point-usa-high-schools.html
+
+**Arteta hopeful Arsenal's Havertz will return for Liverpool clash**\
+`Havertz returned to the bench for the first time since August last Tuesday but missed the trip to Bournemouth on Saturday.`\
+https://nytimes.com/athletic/6949236/2026/01/07/arsenal-liverpool-team-news-havertz-calafiori-mosquera/
+
+**Giro D'Italia champion Yates announces shock retirement from cycling**\
+`Yates has called time on his career at the age of 33 and after his most successful season as a professional.`\
+https://nytimes.com/athletic/6949185/2026/01/07/simon-yates-retirement-cycling/
+
 **What's going on with Lane Kiffin's search for a starting quarterback at LSU?**\
 `Could Washington's Demond Williams Jr., who was once committed to Kiffin at Ole Miss, end up in Baton Rouge? `\
 https://nytimes.com/athletic/6949190/2026/01/07/lane-kiffin-lsu-quarterback-demond-williams-sam-leavitt/
