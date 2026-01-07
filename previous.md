@@ -1,40 +1,40 @@
-**Here’s the latest.**\
-`By Stanley Reed, Chris Cameron, James Wagner and Francesca Regalado`\
-https://nytimes.com/live/2026/01/07/world/venezuela-us-trump/heres-the-latest
+**At the official halfway point, it's now playoffs or bust for the Flyers**\
+`The Flyers are third in the division and just extended a key player. The players and GM Daniel Briere are ready to end a five-year drought.`\
+https://nytimes.com/athletic/6948487/2026/01/07/flyers-playoffs-zegras-dvorak-briere-ducks/
 
-**Live Updates: Trump Says Venezuela Will Send Oil to U.S.**\
-`If confirmed, the move would be the start of President Trump’s plan to exploit the country’s vast reserves after U.S. forces captured President Nicolás Maduro.`\
-https://nytimes.com/live/2026/01/07/world/venezuela-us-trump
+**Panthers believe Bryce Young is built for special, playoff moments: 'Excited to watch him'**\
+`From high school to college, Bryce Young thrived in pressure situations. Now, he gets his biggest test since becoming an NFL quarterback.`\
+https://nytimes.com/athletic/6948022/2026/01/07/panthers-bryce-young-playoffs-rams/
 
-**The DK Metcalf effect: His impact for the Steelers — even when he doesn't get the ball**\
-`The receiver returns for the playoffs after serving a two-game suspension to finish the regular season.`\
-https://nytimes.com/athletic/6948087/2026/01/07/pittsburgh-steelers-dk-metcalf-return-suspension-impact/
+**The NFL tried to ban the tush push — in some ways, the Eagles are doing it for them**\
+`Breaking down the state of the Eagles' signature QB sneak.`\
+https://nytimes.com/athletic/6948176/2026/01/07/eagles-tush-push-evaluation-postseason/
 
-**Why each AFC playoff team will win the Super Bowl, and why they won’t**\
-`The Broncos have the best odds, by nature of their free pass in the first round, but Denver is far from flawless.`\
-https://nytimes.com/athletic/6932205/2026/01/07/nfl-playoffs-super-bowl-afc-champion/
+**Commanders' future depends on flexibility from Jayden Daniels, Dan Quinn and Adam Peters**\
+`For the Commanders to get back on track, their coach, general manager and starting quarterback are all going to have to give a little.`\
+https://nytimes.com/athletic/6946328/2026/01/07/commanders-future-adam-peters-dan-quinn-jayden-daniels/
 
-**FanDuel Sports Network's continued problems cast a shadow over MLB offseason**\
-`The troubled broadcaster is trying to renegotiate its payments to nine MLB teams, and recently missed a payment to the St. Louis Cardinals.`\
-https://nytimes.com/athletic/6948445/2026/01/07/fanduel-sports-network-renegotiate-payments-cardinals/
+**Brittany Bowe, U.S. speed skating's North Star, is ready for her Olympic finale**\
+`Heading to her fourth and final Olympics, Bowe has become both mentor and medal contender for Team USA.`\
+https://nytimes.com/athletic/6947947/2026/01/07/brittany-bowe-olympics-speed-skating-birthday/
 
-**Beyond picks and cap space, one thing Aaron Glenn, Darren Mougey are banking on to fix the Jets**\
-`The head coach and GM held their season-ending news conference on Tuesday.`\
-https://nytimes.com/athletic/6947834/2026/01/07/new-york-jets-aaron-glenn-darren-mougey-first-year-experience/
+**Can Packers' underwhelming special teams avoid another playoff disaster?**\
+`Veteran special teams coordinator Rich Bisaccia is working with a short-handed group entering the wild-card round Saturday night.`\
+https://nytimes.com/athletic/6947917/2026/01/07/packers-special-teams-playoffs-rich-bisaccia/
 
-**The New York Times International Edition in Print for Thursday, Jan. 8, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/01/07/todays-new-york-times-international-edition
+**Senators midseason report card: Grades for Tim Stützle, Jake Sanderson and more**\
+`We have reached the midpoint of the Ottawa Senators' season. That means it's time for dish out some grades.`\
+https://nytimes.com/athletic/6936552/2026/01/07/senators-midseason-report-card-grades-for-tim-stutzle-linus-ullmark-and-more/
 
-**Sean McDermott has evolved over 9 years as Bills coach. One thing remains the same**\
-`McDermott’s Bills are 7-7 in the postseason, including two losses in the AFC Championship Game. Can they get over the hump this year?`\
-https://nytimes.com/athletic/6925837/2026/01/07/buffalo-bills-sean-mcdermott-coaching-evolution/
+**Jerry Brewer: Why the sports column still matters — and why I'm still writing one**\
+`If sports are subtly teaching the next generation how to talk about people, then the way we write about them matters more than we admit.`\
+https://nytimes.com/athletic/6946845/2026/01/07/jerry-brewer-sports-columnist-introduction-the-athletic/
 
-**O'Neil appointed Strasbourg head coach**\
-`The 42-year-old's appointment at the Ligue 1 side follows Liam Rosenior's move to Chelsea earlier this week.`\
-https://nytimes.com/athletic/6942227/2026/01/07/gary-oneil-strasbourg-manager/
+**I played for Curt Cignetti. Yes, he’s never happy. Here’s why that’s a good thing**\
+`In just his second season at Indiana, Cignetti has the Hoosiers in the semifinals of the College Football Playoff.`\
+https://nytimes.com/athletic/6946280/2026/01/07/curt-cignetti-indiana-hoosiers-playoffs-cfp/
 
-**Tell Us: What’s the Most Romantic Thing You’ve Ever Seen?**\
-`We may include your story in an episode of the “Modern Love” podcast.`\
-https://nytimes.com/2026/01/07/podcasts/tell-us-whats-the-most-romantic-thing-youve-ever-seen.html
+**Why the ECHL strike meant so much to players — and why money wasn't the biggest issue**\
+`"You can’t put a dollar value on the health and safety of a player," one ECHL forward said.`\
+https://nytimes.com/athletic/6946350/2026/01/07/hockey-echl-strike-player-conditions-nhl/
 
