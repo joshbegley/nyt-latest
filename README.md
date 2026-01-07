@@ -1,3 +1,7 @@
+**Giants, Jung Hoo Lee tour South Korea, where they hope to build nation of fans**\
+`Giants officials have let MLB know that if the world tour program returns to Korea, they'd love to be part of it.`\
+https://nytimes.com/athletic/6948078/2026/01/06/giants-south-korea-jung-hoo-lee-fans/
+
 **Motorsports, Mountain and More: The Perks of Staying at the Foot of Japan’s Highest Peak**\
 `In the shadow of Mount Fuji lies a paradise for speed demons and an activity-packed five-day adventure.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2026/01/06/obituaries/michael-reagan-dead.html
 **Scoop City: Ranking six head coaching openings, excluding Baltimore**\
 `A quick ode to Myles Garrett's season before ranking the six head coach openings, from Atlanta to New York, excluding the Ravens`\
 https://nytimes.com/athletic/6948073/2026/01/06/ranking-six-nfl-head-coaching-openings-titans-giants-raiders/
-
-**Day 3: Try a Brain-Boosting Workout**\
-`To strengthen your brain, exercise is essential. Today, we’ll help you find a new routine.`\
-https://nytimes.com/interactive/2026/well/brain-health-exercise-workout.html
 
