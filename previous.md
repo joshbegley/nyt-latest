@@ -1,3 +1,7 @@
+**Pittsburgh Post-Gazette Announces It Will Cease Operations**\
+`The family-owned company that operates the newspaper cited mounting losses and labor constraints. A final edition is expected on Sunday, May 3.`\
+https://nytimes.com/2026/01/07/business/media/pittsburgh-post-gazette-closing.html
+
 **The shooting occurred less than a mile from where George Floyd was killed.**\
 `By Sonia A. Rao`\
 https://nytimes.com/live/2026/01/07/us/minnesota-shooting-ice/the-shooting-occurred-less-than-a-mile-from-where-george-floyd-was-killed
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/07/science/poison-arrows-south-africa.html
 **Philip Yancey, Prominent Christian Author, Admits to Extramarital Affair**\
 `He said he would retire from writing and public speaking.`\
 https://nytimes.com/2026/01/07/us/philip-yancey-affair.html
-
-**Trump Deepens Scrutiny of Minnesota, a Potential Model for Other Blue States**\
-`The White House is intensifying and broadening its probes into fraud in states led by prominent Democrats.`\
-https://nytimes.com/2026/01/07/us/politics/trump-minnesota-fraud.html
 

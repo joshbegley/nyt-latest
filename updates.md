@@ -1,3 +1,7 @@
+**Pittsburgh Post-Gazette Announces It Will Cease Operations**\
+`The family-owned company that operates the newspaper cited mounting losses and labor constraints. A final edition is expected on Sunday, May 3.`\
+https://nytimes.com/2026/01/07/business/media/pittsburgh-post-gazette-closing.html
+
 **The shooting occurred less than a mile from where George Floyd was killed.**\
 `By Sonia A. Rao`\
 https://nytimes.com/live/2026/01/07/us/minnesota-shooting-ice/the-shooting-occurred-less-than-a-mile-from-where-george-floyd-was-killed
