@@ -8,7 +8,7 @@ https://nytimes.com/video/us/politics/100000010630064/venezuela-oil-tankers.html
 
 **Trump Pulls Out of Global Climate Treaty**\
 `The action could make it more difficult for a future administration to rejoin the Paris climate accord, the agreement among most nations to fight climate change.`\
-https://nytimes.com/2026/01/07/climate/trump-pulls-out-of-global-climate-treaty.html
+https://nytimes.com/2026/01/07/climate/trump-un-climate-treaty.html
 
 **For Theater in January, the Under the Radar Festival Reigns Supreme**\
 `Several festivals run across New York this month, but none are as big and eclectic as Under the Radar, founded in 2005. Here are our picks for what to see.`\
