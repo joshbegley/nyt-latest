@@ -1,3 +1,11 @@
+**Is John Harbaugh the Giants' dream hire at head coach? Breaking down each known candidate**\
+`With help from The Athletic's beat writers, we examine the candidates the Giants are bringing in for interviews to be their next head coach.`\
+https://nytimes.com/athletic/6948299/2026/01/07/ny-giants-head-coach-candidates-list-john-harbaugh-kevin-stefanski/
+
+**Mandel's Mailbag: Is the SEC slipping? Can Indiana actually sustain this success?**\
+`Did the transfer portal and NIL change the sport for the better? Can Texas Tech take a jump with Brendan Sorsby? `\
+https://nytimes.com/athletic/6947990/2026/01/07/mandel-mailbag-sec-nil-indiana-playoff/
+
 **Why Kyle Whittingham will (and won't) succeed at Michigan**\
 `Whittingham’s hiring has been greeted with enthusiasm, but it’s also worth being clear-eyed about the challenges he’ll face in Ann Arbor.`\
 https://nytimes.com/athletic/6946830/2026/01/07/kyle-whittingham-michigan-football-underwood-coaches/
