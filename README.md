@@ -1,3 +1,7 @@
+**Julie Menin Is Elected New York City Council Speaker**\
+`Ms. Menin, a centrist Democrat, said she would investigate bad actors in business and city agencies and played down areas of difference with Mayor Zohran Mamdani.`\
+https://nytimes.com/2026/01/07/nyregion/julie-menin-nyc-council-speaker.html
+
 **Why Trump Is Fixated on Venezuelan Oil**\
 `Venezuela has roughly 17 percent of the world’s known oil reserves, but it produces only about 1 percent of the crude oil the world is using. Our energy reporter Rebecca F. Elliott explains.`\
 https://nytimes.com/video/world/americas/100000010624752/why-trump-is-fixated-on-venezuelan-oil.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/07/health/dietary-guidelines-alcohol.html
 **Most Lawyers in the Manhattan U.S. Attorney’s Office Are on Epstein Duty**\
 `The Justice Department has dedicated scores of lawyers, including more than 125 from the Southern District of New York, to reviewing over two million documents in the prominent case.`\
 https://nytimes.com/2026/01/07/nyregion/epstein-files-redactions.html
-
-**Cubs set to acquire Edward Cabrera from Marlins in trade: Source**\
-`The Cubs have long believed that Cabrera, a right-handed starting pitcher, is only scratching the surface of his potential.`\
-https://nytimes.com/athletic/6950352/2026/01/07/cubs-edward-cabrera-marlins-trade/
 
