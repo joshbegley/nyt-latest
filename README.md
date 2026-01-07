@@ -1,3 +1,7 @@
+**As Charlie Kirk’s Turning Point Pushes Into High Schools, Dissension Follows**\
+`Since Mr. Kirk’s death, chapters of his organization’s affiliate for teenagers have more than doubled in number, aided by politicians who have said they won’t tolerate opposition.`\
+https://nytimes.com/2026/01/07/us/politics/charlie-kirk-turning-point-usa-high-schools.html
+
 **Arteta hopeful Arsenal's Havertz will return for Liverpool clash**\
 `Havertz returned to the bench for the first time since August last Tuesday but missed the trip to Bournemouth on Saturday.`\
 https://nytimes.com/athletic/6949236/2026/01/07/arsenal-liverpool-team-news-havertz-calafiori-mosquera/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6949116/2026/01/07/college-basketball-mailbag-michi
 **Hundreds of Tourists on Yemeni Island Caught Up in Saudi-U.A.E. Rift**\
 `Around 600 foreigners have been stranded on Socotra as clashes on mainland Yemen halted flights, turning the nature sanctuary and tourist spot into a geopolitical trap.`\
 https://nytimes.com/2026/01/07/world/middleeast/yemen-socotra-flights-tourists.html
-
-**Maduro Is Gone, but Repression in Venezuela Has Intensified**\
-`Security forces have boarded buses, searched phones and interrogated people, looking for evidence that they welcomed the capture of Nicolás Maduro.`\
-https://nytimes.com/2026/01/07/world/americas/venezuela-repression.html
 
