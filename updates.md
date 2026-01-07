@@ -1,3 +1,7 @@
+**LeBron James says he needs to fit in around Luka Dončić as duo's chemistry grows**\
+`This was the kind of performance coach J.J. Redick can reference as the Lakers figure out how to use their best players this season.`\
+https://nytimes.com/athletic/6948653/2026/01/07/lebron-james-luka-doncic-chemistry-grows/
+
 **The New York Times in Print for Wednesday, Jan. 7, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/07/todays-new-york-times
