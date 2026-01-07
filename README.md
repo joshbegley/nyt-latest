@@ -1,3 +1,7 @@
+**Former Tottenham forward Martin Chivers dies at 80**\
+`Chivers is Tottenham's fourth-highest goalscorer of all time with 174 goals.`\
+https://nytimes.com/athletic/6950170/2026/01/07/tottenham-martin-chivers-death/
+
 **South Florida Takes Center Stage in U.S. Politics After Maduro’s Capture**\
 `The region, which has long wielded influence on issues involving Latin America and the Caribbean, has now cemented a role as a global power player.`\
 https://nytimes.com/2026/01/07/us/florida-maduro-venezuela-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/07/magazine/past-infidelity-ethics.html
 **The First Meme of 2026 Is About Not Explaining Yourself. And Buttons.**\
 `A TikTok user’s esoteric comment created a confusing viral moment.`\
 https://nytimes.com/2026/01/07/style/365-buttons-meme-tiktok.html
-
-**Former USMNT midfielder Armas named Kansas City Current head coach**\
-`Armas has been out of management since he departed the Colorado Rapids in November.`\
-https://nytimes.com/athletic/6950040/2026/01/07/chris-armas-kansas-city-current/
 
