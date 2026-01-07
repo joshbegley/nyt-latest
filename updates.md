@@ -1,3 +1,15 @@
+**Trump Pulls Out of Global Climate Treaty**\
+`The action could make it more difficult for a future administration to rejoin the Paris climate accord, the agreement among most nations to fight climate change.`\
+https://nytimes.com/2026/01/07/climate/trump-pulls-out-of-global-climate-treaty.html
+
+**For Theater in January, the Under the Radar Festival Reigns Supreme**\
+`Several festivals run across New York this month, but none are as big and eclectic as Under the Radar, founded in 2005. Here are our picks for what to see.`\
+https://nytimes.com/2026/01/07/theater/under-the-radar-festival.html
+
+**What Are ‘Ghost Fleet’ Ships?**\
+`Also known as “dark fleet” or “shadow fleet” ships, the vessels use murky tactics to transport oil in violation of sanctions.`\
+https://nytimes.com/2026/01/07/world/americas/ghost-fleet-ships.html
+
 **The Briefing: Burnley 2 Manchester United 2 — What did Fletcher change? Some familiar frailties? Sesko's best display so far?**\
 `Analysis of Manchester United's first game since the departure of Ruben Amorim on Monday`\
 https://nytimes.com/athletic/6937582/2026/01/07/burnley-manchester-united-premier-league-analysis/
