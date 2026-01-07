@@ -1,3 +1,11 @@
+**New Dietary Guidelines Abandon Longstanding Advice on Alcohol**\
+`Now the government’s recommendation is to “limit” drinking, without specifying safe amounts for men and women. The guidelines no longer warn of risks like cancer.`\
+https://nytimes.com/2026/01/07/health/dietary-guidelines-alcohol.html
+
+**Hundreds of Lawyers Are Spending Their Days Redacting the Epstein Files**\
+`The Justice Department has dedicated scores of lawyers, including more than 125 from the Southern District of New York, to reviewing over two million documents in the prominent case.`\
+https://nytimes.com/2026/01/07/nyregion/epstein-files-redactions.html
+
 **Cubs set to acquire Edward Cabrera from Marlins in trade: Source**\
 `The Cubs have long believed that Cabrera is only scratching the surface of his potential.`\
 https://nytimes.com/athletic/6950352/2026/01/07/cubs-edward-cabrera-marlins-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/is-that-frazil
 **Federal Agent Shoots Woman Amid Minneapolis Crackdown**\
 `Her condition was not immediately known. Gov. Tim Walz asked for calm.`\
 https://nytimes.com/2026/01/07/us/shooting-immigration-minneapolis.html
-
-**What We Know (So Far) About Taylor Swift and Travis Kelce’s Wedding**\
-`The couple has revealed very little about their wedding plans, but that hasn’t stopped fans from parsing podcast comments, photos and lyrics for clues about when, where and how they might say “I do.”`\
-https://nytimes.com/article/taylor-swift-travis-kelce-wedding-details.html
-
-**Do I Have to Tell My New Boyfriend About My Past Infidelity?**\
-`He knows I started seeing someone as my marriage was deteriorating, but I have not admitted the full truth.`\
-https://nytimes.com/2026/01/07/magazine/past-infidelity-ethics.html
 

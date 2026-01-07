@@ -1,3 +1,11 @@
+**New Dietary Guidelines Abandon Longstanding Advice on Alcohol**\
+`Now the government’s recommendation is to “limit” drinking, without specifying safe amounts for men and women. The guidelines no longer warn of risks like cancer.`\
+https://nytimes.com/2026/01/07/health/dietary-guidelines-alcohol.html
+
+**Hundreds of Lawyers Are Spending Their Days Redacting the Epstein Files**\
+`The Justice Department has dedicated scores of lawyers, including more than 125 from the Southern District of New York, to reviewing over two million documents in the prominent case.`\
+https://nytimes.com/2026/01/07/nyregion/epstein-files-redactions.html
+
 **Cubs set to acquire Edward Cabrera from Marlins in trade: Source**\
 `The Cubs have long believed that Cabrera is only scratching the surface of his potential.`\
 https://nytimes.com/athletic/6950352/2026/01/07/cubs-edward-cabrera-marlins-trade/
