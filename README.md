@@ -1,3 +1,19 @@
+**Alaska Airlines to Buy 110 Boeing Planes as It Seeks to Expand**\
+`Alaska’s order, its largest ever, follows its acquisition of Hawaiian Airlines and is part of its plan to expand, including overseas.`\
+https://nytimes.com/2026/01/07/business/alaska-airlines-boeing-planes.html
+
+**Clashes Between Syrian Government and Kurdish-Led Militia Restart After Deaths**\
+`Fighting in the city of Aleppo resumed as talks to integrate the Kurdish-led Syrian Democratic Forces into the national military appear to have stalled.`\
+https://nytimes.com/2026/01/07/world/middleeast/syria-aleppo-clashes-kurdish-forces.html
+
+**G.O.P. Congressman: Trump Needs to Change Course on Venezuela**\
+`A Republican House member argues that the Maduro raid was good — but the operation’s success still hangs in the balance.`\
+https://nytimes.com/2026/01/07/opinion/trump-venezuela-plan-maduro.html
+
+**Steven Adams overcame career-threatening injuries. He's now pivotal to Rockets' identity**\
+`At 32, Adams is still relentless in the paint. Houston Rockets coach Udoka even described him as “spry and youthful.”`\
+https://nytimes.com/athletic/6948679/2026/01/07/steven-adams-rockets-nba-injury-sengun-durant/
+
 **Auburn fans throw objects on court after potential game-winner vs. Texas A&M is called off**\
 `Refs get objects thrown at them after controversial call at the end of Auburn and Texas A&M basketball game `\
 https://nytimes.com/athletic/6949189/2026/01/07/auburn-texas-am-basketball-controversial-ending/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/07/us/politics/charlie-kirk-turning-point-usa-high-s
 **Arteta hopeful Arsenal's Havertz will return for Liverpool clash**\
 `Havertz returned to the bench for the first time since August last Tuesday but missed the trip to Bournemouth on Saturday.`\
 https://nytimes.com/athletic/6949236/2026/01/07/arsenal-liverpool-team-news-havertz-calafiori-mosquera/
-
-**Giro D'Italia champion Yates announces shock retirement from cycling**\
-`Yates has called time on his career at the age of 33 and after his most successful season as a professional.`\
-https://nytimes.com/athletic/6949185/2026/01/07/simon-yates-retirement-cycling/
-
-**What's going on with Lane Kiffin's search for a starting quarterback at LSU?**\
-`Could Washington's Demond Williams Jr., who was once committed to Kiffin at Ole Miss, end up in Baton Rouge? `\
-https://nytimes.com/athletic/6949190/2026/01/07/lane-kiffin-lsu-quarterback-demond-williams-sam-leavitt/
-
-**U.S. to Control Venezuela Oil Sales ‘Indefinitely,’ Energy Secretary Says**\
-`Chris Wright said the Trump administration was in “active dialogue” with Venezuela’s government about the plan.`\
-https://nytimes.com/2026/01/07/business/energy-environment/us-venezuela-oil-control.html
-
-**Five Dodgers questions amid a slow offseason (and a big move to come?)**\
-`Kyle Tucker, Bo Bichette and Cody Bellinger are among the intriguing names as the Dodgers look to bolster their chances of another title.`\
-https://nytimes.com/athletic/6948210/2026/01/07/dodgers-offseason-mlb-trade-free-agency/
 
