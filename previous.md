@@ -1,3 +1,7 @@
+**Cubs set to acquire Edward Cabrera from Marlins in trade: Source**\
+`The Cubs have long believed that Cabrera is only scratching the surface of his potential.`\
+https://nytimes.com/athletic/6950352/2026/01/07/cubs-edward-cabrera-marlins-trade/
+
 **Former Tottenham forward Martin Chivers dies at 80**\
 `Chivers is Tottenham's fourth-highest goalscorer of all time with 174 goals.`\
 https://nytimes.com/athletic/6950170/2026/01/07/tottenham-martin-chivers-death/
@@ -33,8 +37,4 @@ https://nytimes.com/article/taylor-swift-travis-kelce-wedding-details.html
 **Do I Have to Tell My New Boyfriend About My Past Infidelity?**\
 `He knows I started seeing someone as my marriage was deteriorating, but I have not admitted the full truth.`\
 https://nytimes.com/2026/01/07/magazine/past-infidelity-ethics.html
-
-**The First Meme of 2026 Is About Not Explaining Yourself. And Buttons.**\
-`A TikTok user’s esoteric comment created a confusing viral moment.`\
-https://nytimes.com/2026/01/07/style/365-buttons-meme-tiktok.html
 
