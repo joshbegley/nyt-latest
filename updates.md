@@ -1,3 +1,7 @@
+**Washington has 'no intention' to release QB who signed deal but entered transfer portal**\
+`Washington has no intention of releasing Williams from the contract he signed on Jan. 2, a program source told The Athletic.`\
+https://nytimes.com/athletic/6948295/2026/01/06/washington-qb-demond-williams-transfer-portal-contract/
+
 **Washington has 'no intention' to release QB who signed deal but entered transfer portal anyway**\
 `Washington has no intention of releasing Williams from the contract he signed on Jan. 2, a program source told The Athletic.`\
 https://nytimes.com/athletic/6948295/2026/01/06/washington-qb-demond-williams-transfer-portal-contract/
