@@ -1,3 +1,11 @@
+**The rise of Morgan Rogers: From the Championship to one of Europe's best No 10s**\
+`Aston Villa star will be, if not already, one of Europe's top attacking midfielders and may be only scratching the surface of his talent`\
+https://nytimes.com/athletic/6921814/2026/01/07/morgan-rogers-aston-villa-spectacular-rise/
+
+**The making of Liam Rosenior, the head coach: 'He had a light. He was different'**\
+`Those who have worked with Chelsea's new boss explain how he got to this point - and the type of approach he will bring`\
+https://nytimes.com/athletic/6942659/2026/01/07/liam-rosenior-chelsea-profile/
+
 **The New York Times in Print for Wednesday, Jan. 7, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/07/todays-new-york-times
