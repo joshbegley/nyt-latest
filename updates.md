@@ -1,3 +1,7 @@
+**Silicon Valley Plots Against Ro Khanna After His Support for a Wealth Tax**\
+`It’s hard right now to be a progressive Democrat in the heart of America’s tech industry.`\
+https://nytimes.com/2026/01/07/us/politics/ro-khanna-california-wealth-tax.html
+
 **Most Lawyers in the Manhattan U.S. Attorney’s Office Are on Epstein Duty**\
 `The Justice Department has dedicated scores of lawyers, including more than 125 from the Southern District of New York, to reviewing over two million documents in the prominent case.`\
 https://nytimes.com/2026/01/07/nyregion/epstein-files-redactions.html
