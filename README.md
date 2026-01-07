@@ -1,6 +1,10 @@
+**Philip Yancey, Prominent Christian Author, Admits to Extramarital Affair**\
+`He said he would retire from writing and public speaking.`\
+https://nytimes.com/2026/01/07/us/philip-yancey-affair.html
+
 **Trump Deepens Scrutiny of Minnesota, a Potential Model for Other Blue States**\
 `The White House is intensifying and broadening its probes into fraud in states led by prominent Democrats.`\
-https://nytimes.com/2026/01/07/us/politics/trump-deepens-scrutiny-of-minnesota-a-potential-model-for-other-blue-states.html
+https://nytimes.com/2026/01/07/us/politics/trump-minnesota-fraud.html
 
 **Jules Bianchi’s last go-kart stolen from family home**\
 `Bianchi died on July 17, 2015, aged 25, due to injuries sustained in a crash during the 2014 Japanese Grand Prix nine months prior.`\
@@ -8,7 +12,7 @@ https://nytimes.com/athletic/6950654/2026/01/07/jules-bianchi-karts-stolen-f1/
 
 **Trump officials threaten to expand a crackdown on fraud in Minnesota to other Democratic-run states.**\
 `By Madeleine Ngo`\
-https://nytimes.com/live/2026/01/07/us/trump-news/trump-officials-threaten-to-expand-a-crackdown-on-fraud-in-minnesota-to-other-democratic-run-states
+https://nytimes.com/2026/01/07/us/politics/trump-officials-threaten-to-expand-a-crackdown-on-fraud-in-minnesota-to-other-democratic-run-states.html
 
 **2026 SAG Actors Award Nominations List:**\
 `“One Battle After Another” and “Sinners” lead, while Timothée Chalamet and Ariana Grande also scored nods. Cynthia Erivo and the stars of “Jay Kelly” were left out.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/07/us/justice-department-threats-cyberattacks-terror
 **Submit your Ohio State football questions for Cameron Teague Robinson’s mailbag**\
 `What's on your mind about the Buckeyes after an early College Football Playoff exit?`\
 https://nytimes.com/athletic/6950784/2026/01/07/ohio-state-football-mailbag-questions-portal-playoff/
-
-**Julie Menin Is Elected New York City Council Speaker**\
-`Ms. Menin, a centrist Democrat, said she would investigate bad actors in business and city agencies and played down areas of difference with Mayor Zohran Mamdani.`\
-https://nytimes.com/2026/01/07/nyregion/julie-menin-nyc-council-speaker.html
 

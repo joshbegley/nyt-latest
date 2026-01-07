@@ -1,3 +1,11 @@
+**Trump Deepens Scrutiny of Minnesota, a Potential Model for Other Blue States**\
+`The White House is intensifying and broadening its probes into fraud in states led by prominent Democrats.`\
+https://nytimes.com/2026/01/07/us/politics/trump-deepens-scrutiny-of-minnesota-a-potential-model-for-other-blue-states.html
+
+**Jules Bianchi’s last go-kart stolen from family home**\
+`Bianchi died on July 17, 2015, aged 25, due to injuries sustained in a crash during the 2014 Japanese Grand Prix nine months prior.`\
+https://nytimes.com/athletic/6950654/2026/01/07/jules-bianchi-karts-stolen-f1/
+
 **Trump officials threaten to expand a crackdown on fraud in Minnesota to other Democratic-run states.**\
 `By Madeleine Ngo`\
 https://nytimes.com/live/2026/01/07/us/trump-news/trump-officials-threaten-to-expand-a-crackdown-on-fraud-in-minnesota-to-other-democratic-run-states
