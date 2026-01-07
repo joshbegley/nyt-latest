@@ -1,3 +1,11 @@
+**What we're hearing about a potential Anthony Davis trade ahead of NBA deadline**\
+`With Dallas struggling to hold down a Play-In spot, will the team look to deal its star big man before the Feb. 5 trade deadline?`\
+https://nytimes.com/athletic/6948820/2026/01/07/anthony-davis-mavericks-nba-trade-deadline/
+
+**'I like being an owner' - Lionel Messi speaks on future career plans**\
+`In October, the 38-year-old Argentina international signed a new three-year contract at Inter Miami through to 2028.`\
+https://nytimes.com/athletic/6948987/2026/01/07/lionel-messi-news-club-owner/
+
 **Warner Bros. Board Rebuffs Paramount’s Latest Buyout Offer**\
 `The board said the blockbuster deal it reached with Netflix last month posed less risk.`\
 https://nytimes.com/2026/01/07/business/media/warner-bros-paramount-netflix.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6946102/2026/01/07/kobbie-mainoo-manchester-united-
 **Why Sam Darnold's quiet performance could be a good sign for Seattle: Quick Outs Week 18**\
 `The Seahawks rode their defense to a win in San Francisco. Plus, will the Bills-Jaguars winner be the AFC's Super Bowl favorite?`\
 https://nytimes.com/athletic/6945134/2026/01/07/sam-darnold-seahawks-49ers-playoffs-quick-outs/
-
-**Carvajal, Rudiger and Alaba's Real Madrid contracts are up in the summer. What's the latest?**\
-`Real Madrid could lose three hugely experienced defenders this summer as things stand, but each of their situations is very different`\
-https://nytimes.com/athletic/6945774/2026/01/07/real-madrid-carvajal-rudiger-alaba-contracts/
-
-**Five questions that could define the Red Wings' second half**\
-`In an Eastern Conference with every team above .500, every player, game and detail can make a difference.`\
-https://nytimes.com/athletic/6947234/2026/01/07/red-wings-marco-kasper-lucas-raymond/
 

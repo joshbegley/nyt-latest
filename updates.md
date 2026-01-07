@@ -1,3 +1,11 @@
+**What we're hearing about a potential Anthony Davis trade ahead of NBA deadline**\
+`With Dallas struggling to hold down a Play-In spot, will the team look to deal its star big man before the Feb. 5 trade deadline?`\
+https://nytimes.com/athletic/6948820/2026/01/07/anthony-davis-mavericks-nba-trade-deadline/
+
+**'I like being an owner' - Lionel Messi speaks on future career plans**\
+`In October, the 38-year-old Argentina international signed a new three-year contract at Inter Miami through to 2028.`\
+https://nytimes.com/athletic/6948987/2026/01/07/lionel-messi-news-club-owner/
+
 **Warner Bros. Board Rebuffs Paramount’s Latest Buyout Offer**\
 `The board said the blockbuster deal it reached with Netflix last month posed less risk.`\
 https://nytimes.com/2026/01/07/business/media/warner-bros-paramount-netflix.html
