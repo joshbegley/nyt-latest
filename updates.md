@@ -1,3 +1,11 @@
+**From Metcalf's miracle to Garrett's record: The NFL season's best plays, week by week**\
+`Here are our NFL plays of the year, with one selection from all 18 regular-season weeks.`\
+https://nytimes.com/athletic/6943126/2026/01/07/nfl-best-plays-touchdowns-catches-2025-season/
+
+**Trump Administration Live Updates: Rubio Says President Wants to Buy Greenland**\
+``\
+https://nytimes.com/live/2026/01/07/us/trump-greenland-news
+
 **U.S. Appeals Court Won’t Take Up Case to Resurrect 9/11 Plea Deal**\
 `The decision removes a chance for the defendants to resolve the long-running case with the death penalty taken off the table. Instead, pretrial hearings are likely to resume.`\
 https://nytimes.com/2026/01/07/us/politics/appeals-court-sept-11-plea-deal.html
