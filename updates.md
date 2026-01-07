@@ -1,3 +1,7 @@
+**Ex-UNLV QB Anthony Colandrea signs with Nebraska after Kenny Minchey flips**\
+`Colandrea was the 2025 Mountain West offensive player of the year, throwing for 3,459 yards and 23 touchdowns. `\
+https://nytimes.com/athletic/6948070/2026/01/06/anthony-colandrea-unlv-nebraska-kenny-minchey/
+
 **N.Y.C. Child Care Programs Brace for Cuts After Federal Funding Freeze**\
 `The Trump administration said it was placing a hold on $10 billion in subsidies across five states, including New York.`\
 https://nytimes.com/2026/01/06/nyregion/nyc-child-care-programs-trump-funding-freeze.html
