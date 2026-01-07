@@ -1,3 +1,7 @@
+**It's 613 days since Bajcetic played for Liverpool. What's going on?**\
+`The midfielder is rehabbing again after yet another injury setback. His future at Liverpool seems far from certain`\
+https://nytimes.com/athletic/6942027/2026/01/07/its-613-days-since-stefan-bajcetic-played-for-liverpool-whats-going-on/
+
 **Is Mathys Tel finally about to get a run of matches in his favoured position?**\
 `Since joining Spurs, the young forward has felt slightly out of place - could this be the chance to stake his claim?`\
 https://nytimes.com/athletic/6945322/2026/01/07/is-mathys-tel-finally-about-to-get-a-run-of-matches-in-his-favoured-position/

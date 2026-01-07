@@ -1,3 +1,7 @@
+**It's 613 days since Bajcetic played for Liverpool. What's going on?**\
+`The midfielder is rehabbing again after yet another injury setback. His future at Liverpool seems far from certain`\
+https://nytimes.com/athletic/6942027/2026/01/07/its-613-days-since-stefan-bajcetic-played-for-liverpool-whats-going-on/
+
 **Is Mathys Tel finally about to get a run of matches in his favoured position?**\
 `Since joining Spurs, the young forward has felt slightly out of place - could this be the chance to stake his claim?`\
 https://nytimes.com/athletic/6945322/2026/01/07/is-mathys-tel-finally-about-to-get-a-run-of-matches-in-his-favoured-position/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6921814/2026/01/07/morgan-rogers-aston-villa-specta
 **The making of Liam Rosenior, the head coach: 'He had a light. He was different'**\
 `Those who have worked with Chelsea's new boss explain how he got to this point - and the type of approach he will bring`\
 https://nytimes.com/athletic/6942659/2026/01/07/liam-rosenior-chelsea-profile/
-
-**Wrexham have FA Cup giant killings in their DNA - and Forest should be well aware**\
-`Beating Sean Dyche's men on Friday probably wouldn't rank with some of the Welsh club's most shocking wins in this competition`\
-https://nytimes.com/athletic/6941796/2026/01/07/wrexham-fa-cup-history/
 
