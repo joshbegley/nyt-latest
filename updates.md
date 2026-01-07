@@ -1,3 +1,7 @@
+**RFEF considering moving Supercopa away from Saudi Arabia for 2027 tournament**\
+`Saudi Arabia has a contract to host the event until 2029, but the Gulf nation is hosting next year's Asian Cup in January.`\
+https://nytimes.com/athletic/6948797/2026/01/07/spain-super-cup-saudi-arabia/
+
 **It's 613 days since Bajcetic played for Liverpool. What's going on?**\
 `The midfielder is rehabbing again after yet another injury setback. His future at Liverpool seems far from certain`\
 https://nytimes.com/athletic/6942027/2026/01/07/its-613-days-since-stefan-bajcetic-played-for-liverpool-whats-going-on/
