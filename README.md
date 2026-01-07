@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6948295/2026/01/06/washington-qb-demond-williams-tr
 https://nytimes.com/2026/01/06/crosswords/daily-puzzle-2026-01-07.html
 
 **Pacers lose team-record 13th straight as struggles continue**\
-`Tuesday's loss puts the Pacers on pace for a 13-win season, which would tie the 1998-99 Bulls for the fewest by a team that made the finals.`\
+`The Pacers are on pace for a 13-win season, which would tie the 1998-99 Bulls for the fewest by a team that made the previous finals.`\
 https://nytimes.com/athletic/6947629/2026/01/06/pacers-loss-record-13-straight-cavaliers/
 
 **Béla Fleck Withdraws From Kennedy Center Concerts**\

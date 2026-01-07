@@ -1,3 +1,15 @@
+**Washington QB Demond Williams Jr. enters portal after signing deal to return**\
+`Washington has no intention of releasing Williams from the contract he signed on Jan. 2, a source told The Athletic.`\
+https://nytimes.com/athletic/6948295/2026/01/06/washington-qb-demond-williams-transfer-portal-contract/
+
+**Game of Pursuit**\
+`Adrianne Baik gets into character.`\
+https://nytimes.com/2026/01/06/crosswords/daily-puzzle-2026-01-07.html
+
+**Pacers lose team-record 13th straight as struggles continue**\
+`Tuesday's loss puts the Pacers on pace for a 13-win season, which would tie the 1998-99 Bulls for the fewest by a team that made the finals.`\
+https://nytimes.com/athletic/6947629/2026/01/06/pacers-loss-record-13-straight-cavaliers/
+
 **Béla Fleck Withdraws From Kennedy Center Concerts**\
 `“Performing there has become charged and political,” the 18-time Grammy winner said.`\
 https://nytimes.com/2026/01/06/arts/music/bela-fleck-kennedy-center-orchestra.html
