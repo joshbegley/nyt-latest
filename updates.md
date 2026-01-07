@@ -1,3 +1,7 @@
+**Yemeni Separatist Defies Saudi Demand, and Strike Follows**\
+`Southern Yemen has been engulfed in a proxy conflict that pits two U.S. allies, Saudi Arabia and the United Arab Emirates, against each other.`\
+https://nytimes.com/2026/01/07/world/middleeast/yemen-separatist-leader-zubaidi-saudi-arabia-uae.html
+
 **As Charlie Kirk’s Turning Point Pushes Into High Schools, Dissension Follows**\
 `Since Mr. Kirk’s death, chapters of his organization’s affiliate for teenagers have more than doubled in number, aided by politicians who have said they won’t tolerate opposition.`\
 https://nytimes.com/2026/01/07/us/politics/charlie-kirk-turning-point-usa-high-schools.html
