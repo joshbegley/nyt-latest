@@ -1,6 +1,22 @@
+**How The Times Is Drawing on Over a Century of Reporting in Venezuela**\
+`The New York Times has been on the ground in the country since at least the 1880s, through celebration, suffering and political turmoil.`\
+https://nytimes.com/2026/01/07/insider/venezuela-new-york-times.html
+
+**Prime Tire: Welcome to F1 launch season!**\
+`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
+https://nytimes.com/athletic/6950906/2026/01/07/f1-launch-season-2026-prime-tire/
+
+**Scientists Discover Oldest Poison, on 60,000-Year-Old Arrows**\
+`Residues on arrow tips found in South Africa hint at how far back in history humans have been using poison for survival.`\
+https://nytimes.com/2026/01/07/science/poison-arrows-south-africa.html
+
+**Philip Yancey, Prominent Christian Author, Admits to Extramarital Affair**\
+`He said he would retire from writing and public speaking.`\
+https://nytimes.com/2026/01/07/us/philip-yancey-affair.html
+
 **Trump Deepens Scrutiny of Minnesota, a Potential Model for Other Blue States**\
 `The White House is intensifying and broadening its probes into fraud in states led by prominent Democrats.`\
-https://nytimes.com/2026/01/07/us/politics/trump-deepens-scrutiny-of-minnesota-a-potential-model-for-other-blue-states.html
+https://nytimes.com/2026/01/07/us/politics/trump-minnesota-fraud.html
 
 **Jules Bianchi’s last go-kart stolen from family home**\
 `Bianchi died on July 17, 2015, aged 25, due to injuries sustained in a crash during the 2014 Japanese Grand Prix nine months prior.`\
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/07/us/minneapolis-shooting-reaction-immigration-frey
 **Ohio State stars Carnell Tate, Caleb Downs declare for 2026 NFL Draft**\
 `Both prospects could be top-10 picks in the upcoming draft.`\
 https://nytimes.com/athletic/6950622/2026/01/07/nfl-draft-2026-caleb-downs-carnell-tate-declare/
-
-**Kevin Keegan, Newcastle and Liverpool legend, diagnosed with cancer**\
-`The former England manager's family confirmed the diagnosis in a statement on Wednesday.`\
-https://nytimes.com/athletic/6950796/2026/01/07/kevin-keegan-cancer-newcastle-liverpool/
-
-**Depleted and Distracted, Justice Dept. Staff Fear Losing Focus on Potential Threats**\
-`Rank-and-file prosecutors and agents have expressed serious concern that a hobbled work force hurts the government’s ability to identify and stop terrorist plots, cyberattacks, mass violence and fraud.`\
-https://nytimes.com/2026/01/07/us/justice-department-threats-cyberattacks-terrorism.html
-
-**Submit your Ohio State football questions for Cameron Teague Robinson’s mailbag**\
-`What's on your mind about the Buckeyes after an early College Football Playoff exit?`\
-https://nytimes.com/athletic/6950784/2026/01/07/ohio-state-football-mailbag-questions-portal-playoff/
-
-**Julie Menin Is Elected New York City Council Speaker**\
-`Ms. Menin, a centrist Democrat, said she would investigate bad actors in business and city agencies and played down areas of difference with Mayor Zohran Mamdani.`\
-https://nytimes.com/2026/01/07/nyregion/julie-menin-nyc-council-speaker.html
 
