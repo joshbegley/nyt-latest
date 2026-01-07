@@ -1,40 +1,40 @@
-**Far too many names to know for the NFL's current (and future) GM openings**\
-`What to know about the candidates competing for the Dolphins' and Falcons' GM jobs — and some of their highly respected NFL peers.`\
-https://nytimes.com/athletic/6944342/2026/01/07/nfl-gm-candidates-falcons-dolphins/
+**Buy Greenland? Take It? An Old Pact Already Gives Trump a Free Hand.**\
+`Analysts say the Cold War agreement allows the president to increase the American military presence almost at will.`\
+https://nytimes.com/2026/01/07/world/europe/trump-greenland-denmark-us-defense-pact.html
 
-**Yankees vs. Cody Bellinger: A look at each side's case**\
-`Talks are ongoing, but the Yankees and Cody Bellinger don't appear close to reaching an agreement on a new contract. So what's the hold up? `\
-https://nytimes.com/athletic/6948100/2026/01/07/yankees-cody-bellinger-negotations/
+**Ronny Chieng Remarks on Trump ‘DoorDash-ing’ Maduro to Brooklyn**\
+`“The Daily Show” host quipped that after a surprise capture, Nicolás Maduro “will face justice in the best legal system in the world that we illegally kidnapped him to.”`\
+https://nytimes.com/2026/01/07/arts/television/ronny-chieng-trump-maduro-brooklyn.html
 
-**Can Bears get off to a fast start vs. Packers? They can't afford to play catch-up**\
-`The Bears can't rely on what they've done in the past. They desperately need to score points early, and Caleb Williams must be accurate."`\
-https://nytimes.com/athletic/6948294/2026/01/07/bears-packers-nfl-playoffs-fast-start/
+**NBA Draft Top 100: Has Darryn Peterson's stock dropped?**\
+`There's a lot to praise about the top three, but in total, this looks like one of the best draft classes of the last decade.`\
+https://nytimes.com/athletic/6928271/2026/01/07/nba-draft-top-100-prospects-dybantsa-boozer-peterson/
 
-**Mainoo wins? Yoro loses? How Amorim's exit affects Man Utd's squad**\
-`Analysing how the Portuguese's exit could help — or hinder — United's players`\
-https://nytimes.com/athletic/6946102/2026/01/07/kobbie-mainoo-manchester-united-squad-amorim/
+**Blue Jackets haunted by a former teammate in 5-2 loss to the Sharks**\
+`Columbus had a hard time keeping up with former Blue Jacket Alex Wennberg and the Sharks on Tuesday night in San Jose.`\
+https://nytimes.com/athletic/6948597/2026/01/07/blue-jackets-former-teammate-loss-sharks/
 
-**Why Sam Darnold's quiet performance could be a good sign for Seattle: Quick Outs Week 18**\
-`The Seahawks rode their defense to a win in San Francisco. Plus, will the Bills-Jaguars winner be the AFC's Super Bowl favorite?`\
-https://nytimes.com/athletic/6945134/2026/01/07/sam-darnold-seahawks-49ers-playoffs-quick-outs/
+**Why do Nico Hoerner trade rumors keep popping up? Cubs mailbag**\
+`Patrick Mooney and Sahadev Sharma answer your questions about deferrals, bench-related moves Pete Crow-Armstrong. `\
+https://nytimes.com/athletic/6947857/2026/01/07/chicago-cubs-mailbag-nico-hoerner-rumors/
 
-**Carvajal, Rudiger and Alaba's Real Madrid contracts are up in the summer. What's the latest?**\
-`Real Madrid could lose three hugely experienced defenders this summer as things stand, but each of their situations is very different`\
-https://nytimes.com/athletic/6945774/2026/01/07/real-madrid-carvajal-rudiger-alaba-contracts/
+**'We've completely shifted our goals': How the Wizards turned into a better team**\
+`Washington has won five of its last seven games, and seven of its last 12. What's changed? `\
+https://nytimes.com/athletic/6948649/2026/01/07/washington-wizards-transformation-win-orlando-magic/
 
-**Five questions that could define the Red Wings' second half**\
-`In an Eastern Conference with every team above .500, every player, game and detail can make a difference.`\
-https://nytimes.com/athletic/6947234/2026/01/07/red-wings-marco-kasper-lucas-raymond/
+**Europe and Rest of World Try to Come to Terms With Trump the Imperialist**\
+`Needing U.S. support to fend off Russia in Ukraine, European leaders have been cautious about criticizing President Trump on Greenland, Iran, Venezuela and much else.`\
+https://nytimes.com/2026/01/07/world/europe/trump-venezuela-greenland-ukraine-europe.html
 
-**Vance Joseph's busy month ahead and injury questions: Broncos playoff mailbag**\
-`Also, why Marvin Mims isn't getting the ball as much as some may think he should.`\
-https://nytimes.com/athletic/6946178/2026/01/07/broncos-playoff-mailbag-vance-joseph/
+**The Pulse: A new Olympic superstar?**\
+`The Athletic has live coverage of Bears vs.`\
+https://nytimes.com/athletic/6947248/2026/01/07/the-olympics-already-have-a-possible-superstar-plus-a-shock-nfl-dismissal/
 
-**Nebraska basketball endured decades of disappointment. Its 15-0 start is hard to believe**\
-`Once chasing an NCAA tournament bid, Nebraska is now chasing a high seed — a shift few could imagine.`\
-https://nytimes.com/athletic/6947133/2026/01/07/nebraska-basketball-undefeated-start-ncaa-tournament/
+**Real Madrid not ruling out Mbappe return for Supercopa de Espana final**\
+`Mbappe is sidelined due to a sprain in his left knee and remains in Madrid while he works on his recovery.`\
+https://nytimes.com/athletic/6948950/2026/01/07/kylian-mbappe-real-madrid-injury-return-news/
 
-**Jacob Bethell. England's Star Boy**\
-`England mismanaged Bethell last summer when his IPL contract at RCB complicated selection, an issue they will have to revisit this year`\
-https://nytimes.com/athletic/6948759/2026/01/07/jacob-bethell-england-star-ashes/
+**Slot: Liverpool's Ekitike a doubt to face Arsenal**\
+`The French striker missed Sunday's 2-2 draw at Fulham due to a minor hamstring problem.`\
+https://nytimes.com/athletic/6948919/2026/01/07/hugo-ekitike-injury-liverpool-arsenal-team-news/
 
