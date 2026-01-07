@@ -1,3 +1,7 @@
+**Trump’s Venezuela Moves Pose a Challenge for G.O.P. in Congress**\
+`Republicans have cheered the raid that ousted Nicolás Maduro but toiled to square their longstanding views with President Trump’s unclear and rapidly evolving strategy.`\
+https://nytimes.com/2026/01/07/us/politics/trump-venezuela-congress-republicans.html
+
 **The Bounce: Was Kevin Durant 'scapegoated' by Suns? Plus, a wild Wemby feet feat**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6949713/2026/01/07/kevin-durant-rockets-suns-victor-wembanyama-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/07/world/middleeast/syria-aleppo-clashes-kurdish-for
 **G.O.P. Congressman: Trump Needs to Change Course on Venezuela**\
 `A Republican House member argues that the Maduro raid was good — but the operation’s success still hangs in the balance.`\
 https://nytimes.com/2026/01/07/opinion/trump-venezuela-plan-maduro.html
-
-**Steven Adams overcame career-threatening injuries. He's now pivotal to Rockets' identity**\
-`At 32, Adams is still relentless in the paint. Houston Rockets coach Udoka even described him as “spry and youthful.”`\
-https://nytimes.com/athletic/6948679/2026/01/07/steven-adams-rockets-nba-injury-sengun-durant/
 

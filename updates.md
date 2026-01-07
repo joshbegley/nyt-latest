@@ -1,3 +1,7 @@
+**The Bounce: Was Kevin Durant 'scapegoated' by Suns? Plus, a wild Wemby feet feat**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6949713/2026/01/07/kevin-durant-rockets-suns-victor-wembanyama-nba-the-bounce/
+
 **En vivo: EE. UU. intercepta un buque petrolero con bandera de Rusia**\
 `La embarcación había estado navegando por el océano Atlántico entre Islandia y el Reino Unido. Su destino era desconocido.`\
 https://nytimes.com/live/2026/01/07/espanol/venezuela-trump-juicio-maduro
