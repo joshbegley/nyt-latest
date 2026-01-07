@@ -1,3 +1,11 @@
+**What question would you like answered about how transfers work?**\
+`Tell us what you have always wanted to know about the transfer business and we will put your question to key figures in the game`\
+https://nytimes.com/athletic/6945556/2026/01/07/transfer-indow-questions-answered/
+
+**Giants must now win their biggest game of the year — the wild fight for John Harbaugh**\
+`The Giants were working on meeting with Harbaugh as early as this weekend, as many other NFL teams are also lining up to talk to him.`\
+https://nytimes.com/athletic/6948576/2026/01/07/john-harbaugh-giants-coaching-search/
+
 **John Harbaugh's tenure in Baltimore is over. Ravens felt it was time for something new**\
 `There are several reasons Baltimore hasn't gotten over the hump recently. But ultimately, Harbaugh and his staff must bear responsibility.`\
 https://nytimes.com/athletic/6948144/2026/01/07/john-harbaugh-fired-ravens-new-coach/
