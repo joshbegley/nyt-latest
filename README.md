@@ -1,3 +1,7 @@
+**Kevin Keegan, Newcastle and Liverpool legend, diagnosed with cancer**\
+`The former England manager's family confirmed the diagnosis in a statement on Wednesday.`\
+https://nytimes.com/athletic/6950796/2026/01/07/kevin-keegan-cancer-newcastle-liverpool/
+
 **Depleted and Distracted, Justice Dept. Staff Fear Losing Focus on Potential Threats**\
 `Rank-and-file prosecutors and agents have expressed serious concern that a hobbled work force hurts the government’s ability to identify and stop terrorist plots, cyberattacks, mass violence and fraud.`\
 https://nytimes.com/2026/01/07/nyregion/justice-department-threats-cyberattacks-terrorism.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/07/us/minnesota-shooting-ice
 **Nick Reiner’s Lawyer Removes Himself From Murder Case**\
 `The announcement delayed the arraignment of Mr. Reiner, who is accused of killing his parents last month.`\
 https://nytimes.com/2026/01/07/movies/nick-reiner-lawyer-alan-jackson.html
-
-**Silicon Valley Plots Against Ro Khanna After His Support for a Wealth Tax**\
-`It’s hard right now to be a progressive Democrat in the heart of America’s tech industry.`\
-https://nytimes.com/2026/01/07/us/politics/ro-khanna-california-wealth-tax.html
 
