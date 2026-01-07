@@ -1,3 +1,11 @@
+**The Briefing: Burnley 2 Manchester United 2 - What did Fletcher change? Some familiar frailties? Sesko's best display so far?**\
+`Analysis of Manchester United's first game since the departure of Ruben Amorim on Monday`\
+https://nytimes.com/athletic/6937582/2026/01/07/burnley-manchester-united-premier-league-analysis/
+
+**The Icebreaker Reaches the Thwaites Glacier, and the Science Begins**\
+`After a 12-day crossing, and a hard slog through sea ice, the field work on this Antarctic expedition is ready to start.`\
+https://nytimes.com/2026/01/07/climate/antarctica-thwaites-glacier.html
+
 **Horns, Whistles and Then Gunfire on a Minneapolis Street**\
 `A man opened his door to discover a tableau of deadly violence after a federal agent fatally shot a woman.`\
 https://nytimes.com/2026/01/07/us/minneapolis-ice-shooting-witness.html
