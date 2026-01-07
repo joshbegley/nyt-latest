@@ -1,3 +1,15 @@
+**Warner Bros. Board Rebuffs Paramount’s Latest Buyout Offer**\
+`The board said the blockbuster deal it reached with Netflix last month posed less risk.`\
+https://nytimes.com/2026/01/07/business/media/warner-bros-paramount-netflix.html
+
+**The Law of the Jungle**\
+`We ask where America’s new foreign policy might take us — and the world.`\
+https://nytimes.com/2026/01/07/briefing/the-law-of-the-jungle.html
+
+**Japan — Behind the Veil Season 2**\
+` Back for Season 2, this series continues to feature, Japan’s hidden gems.`\
+https://nytimes.com/paidpost/japan-travel-series/japan-behind-the-veil-season-2.html
+
 **Far too many names to know for the NFL's current (and future) GM openings**\
 `What to know about the candidates competing for the Dolphins' and Falcons' GM jobs — and some of their highly respected NFL peers.`\
 https://nytimes.com/athletic/6944342/2026/01/07/nfl-gm-candidates-falcons-dolphins/
