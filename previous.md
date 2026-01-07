@@ -1,3 +1,19 @@
+**Who should Manchester United appoint as their next permanent manager?**\
+`Analysing who the data suggests United's ideal permanent head coach might be - plus, a group of our writers make their choices`\
+https://nytimes.com/athletic/6944833/2026/01/07/man-utd-next-manager-permanent-appointment/
+
+**Russia Sends Naval Vessel to Escort Oil Tanker U.S. Is Pursuing**\
+`The development deepens the confrontation over the tanker formerly known as the Bella 1, which the United States wants to seize but which Russia has sought to protect.`\
+https://nytimes.com/2026/01/06/world/americas/russia-tanker-bella.html
+
+**Nuno Espirito Santo and a lingering sense of regret**\
+`The beleaguered West Ham manager watched his team lose to his former club Nottingham Forest, the team he took into European competition`\
+https://nytimes.com/athletic/6940004/2026/01/07/nuno-west-ham-forest-edu-marinakis-regret/
+
+**What the Supercopa means to Barcelona and Real Madrid... and why it's played in Saudi Arabia**\
+`A tournament which is often criticised for off-pitch reasons has become a barometer by which to measure Spain's big two at midseason`\
+https://nytimes.com/athletic/6945629/2026/01/07/barcelona-real-madrid-supercopa-saudi-arabia/
+
 **Arsenal's Martin Zubimendi and the side of his game that went under the radar**\
 `Before his arrival in north London this summer, most of the talk around the Spaniard centred on what he would offer Arsenal in possession`\
 https://nytimes.com/athletic/6942125/2026/01/07/martin-zubimendi-arsenal-defensive-analysis/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6944915/2026/01/07/igor-thiago-brentford-striker-su
 **Quote of the Day: Every Apron Tells a Story at a Tiny Museum**\
 `Quotation of the Day for Wednesday, January 7, 2026`\
 https://nytimes.com/2026/01/07/pageoneplus/quote-of-the-day-every-apron-tells-a-story-at-a-tiny-museum.html
-
-**Connections: Sports Edition Coach: Hints for Jan. 7, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6945157/2026/01/07/connections-sports-edition-hints-for-jan-7-2026/
-
-**China Sells the World on Its Duty-Free Island, Amid a $1 Trillion Trade Surplus**\
-`Policies meant to lure importers to Hainan, a resort island off China’s coast, signal an opening up, Beijing says. One expert calls it a “bait and switch.”`\
-https://nytimes.com/2026/01/07/business/china-hainan-island-duty-free.html
-
-**Corrections: Jan. 7, 2026**\
-`Corrections that appeared in print on Wednesday, Jan. 7, 2026.`\
-https://nytimes.com/2026/01/06/pageoneplus/corrections-jan-7-2026.html
-
-**Former Texas WR Jordan Shipley hospitalized after ranch accident**\
-`Shipley was an All-American for the Longhorns in their 13-1 season in 2009.`\
-https://nytimes.com/athletic/6948509/2026/01/06/jordan-shipley-hospitalized-ranch-injury/
 
