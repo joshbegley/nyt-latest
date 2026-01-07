@@ -1,3 +1,11 @@
+**Bruce Crawford, Arts-Loving Adman Who Led the Met Opera, Dies at 96**\
+`He helped build the ad agency BBDO International into a powerhouse before channeling his passion for opera into managing the Met and revitalizing Lincoln Center.`\
+https://nytimes.com/2026/01/07/arts/music/bruce-crawford-dead.html
+
+**Keep Pounding with Cam Newton? It could happen at Panthers' playoff game vs. Rams**\
+`Carolina greats Greg Olsen, Jordan Gross and Ryan Kalil have hit the team's trademark drum before games this season.`\
+https://nytimes.com/athletic/6950721/2026/01/07/cam-newton-panthers-keep-pounding-playoffs/
+
 **Rangers exploring Kiefer Sherwood trade, but injuries could change equation**\
 `The clock is ticking, with January shaping up to be a crucial month that could alter the direction of the franchise.`\
 https://nytimes.com/athletic/6950708/2026/01/07/ny-rangers-kiefer-sherwood-trade-rumors/
