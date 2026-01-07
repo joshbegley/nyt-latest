@@ -1,5 +1,13 @@
+**Scoop City: Three chapters of John Harbaugh's Ravens tenure**\
+`Examining Harbaugh's career in Baltimore, plus what's next for the most appealing coach this hiring cycle`\
+https://nytimes.com/athletic/6951674/2026/01/07/john-harbaughs-fired-baltimore-ravens-coach/
+
+**What’s in Our Queue? Slay the Spire and More**\
+`Text by Kevin Draper`\
+https://nytimes.com/card/2026/01/07/arts/editors-recommendations-spire
+
 **Videos Show Federal Agent Shooting Motorist in Minneapolis**\
-`Clips reviewed by The Times show the moments immediately before and after a woman was fatally shot.`\
+`Clips analyzed by The Times show the moments immediately before and after a woman was fatally shot.`\
 https://nytimes.com/2026/01/07/us/videos-ice-shooting-woman-minneapolis.html
 
 **All Eyes on the U.S. in 2026**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6951248/2026/01/07/jerry-jones-cowboys-owner-super-
 **Why the NWSL Players Association opposes the league's High Impact Player rule**\
 `NWSLPA executive director says arbitration will "take some time".`\
 https://nytimes.com/athletic/6948716/2026/01/07/nwsl-players-association-high-impact-player-not-roster-classification/
-
-**Which coaching candidate could Ravens hire to replace John Harbaugh?**\
-`Baltimore is searching for a new head coach for the first time since 2008. Which candidate on the market would be a suitable replacement?`\
-https://nytimes.com/athletic/6950869/2026/01/07/ravens-coaching-candidates-john-harbaugh-fired-belichick-flores/
-
-**Eagles' Lane Johnson returns to practice ahead of playoff game vs. 49ers**\
-`It's a positive sign that the five-time All-Pro tackle is on pace to return for Philadelphia's postseason opener Sunday.`\
-https://nytimes.com/athletic/6951335/2026/01/07/lane-johnson-eagles-injury-update-status-playoffs-49ers/
 

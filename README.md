@@ -1,3 +1,11 @@
+**Mamdani Names Lawyer Who Fought N.Y.C. Agencies to Human Rights Post**\
+`Christine Clarke, who will lead the Commission on Human Rights, has worked on discrimination lawsuits against the city’s public housing authority and Police Department.`\
+https://nytimes.com/2026/01/07/nyregion/mamdani-christine-clarke-human-rights.html
+
+**A Close Call for U.S. Commandos and an Emboldened Trump**\
+`As a damaged U.S. helicopter struggled to stay aloft over Venezuela’s capital, the success of the entire operation hung in the balance.`\
+https://nytimes.com/2026/01/07/us/politics/trump-venezuela-helicopter.html
+
 **Scoop City: Three chapters of John Harbaugh's Ravens tenure**\
 `Examining Harbaugh's career in Baltimore, plus what's next for the most appealing coach this hiring cycle`\
 https://nytimes.com/athletic/6951674/2026/01/07/john-harbaughs-fired-baltimore-ravens-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/07/technology/anthropic-funding-valuation.html
 **Todd Bowles returning as Buccaneers head coach: Source**\
 `Bowles will return for a fifth season after the Buccaneers missed the playoffs for the first time in his four-year tenure.`\
 https://nytimes.com/athletic/6951395/2026/01/07/todd-bowles-bucs-coach-status-returning/
-
-**Jerry Jones says goal is to win more Super Bowls than any owner: 'I got work to do'**\
-`The Cowboys missed the postseason for the second consecutive year. Jones says he's prepared to "bust the budget" to get better.`\
-https://nytimes.com/athletic/6951248/2026/01/07/jerry-jones-cowboys-owner-super-bowl-titles/
-
-**Why the NWSL Players Association opposes the league's High Impact Player rule**\
-`NWSLPA executive director says arbitration will "take some time".`\
-https://nytimes.com/athletic/6948716/2026/01/07/nwsl-players-association-high-impact-player-not-roster-classification/
 

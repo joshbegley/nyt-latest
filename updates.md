@@ -1,3 +1,15 @@
+**Scoop City: Three chapters of John Harbaugh's Ravens tenure**\
+`Examining Harbaugh's career in Baltimore, plus what's next for the most appealing coach this hiring cycle`\
+https://nytimes.com/athletic/6951674/2026/01/07/john-harbaughs-fired-baltimore-ravens-coach/
+
+**What’s in Our Queue? Slay the Spire and More**\
+`Text by Kevin Draper`\
+https://nytimes.com/card/2026/01/07/arts/editors-recommendations-spire
+
+**Videos Show Federal Agent Shooting Motorist in Minneapolis**\
+`Clips analyzed by The Times show the moments immediately before and after a woman was fatally shot.`\
+https://nytimes.com/2026/01/07/us/videos-ice-shooting-woman-minneapolis.html
+
 **Videos Show Federal Agent Shooting Motorist in Minneapolis**\
 `Clips reviewed by The Times show the moments immediately before and after a woman was fatally shot.`\
 https://nytimes.com/2026/01/07/us/videos-ice-shooting-woman-minneapolis.html
