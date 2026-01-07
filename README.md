@@ -1,3 +1,15 @@
+**How The Times Is Drawing on Over a Century of Reporting in Venezuela**\
+`The New York Times has been on the ground in the country since at least the 1880s, through celebration, suffering and political turmoil.`\
+https://nytimes.com/2026/01/07/insider/venezuela-new-york-times.html
+
+**Prime Tire: Welcome to F1 launch season!**\
+`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
+https://nytimes.com/athletic/6950906/2026/01/07/f1-launch-season-2026-prime-tire/
+
+**Scientists Discover Oldest Poison, on 60,000-Year-Old Arrows**\
+`Residues on arrow tips found in South Africa hint at how far back in history humans have been using poison for survival.`\
+https://nytimes.com/2026/01/07/science/poison-arrows-south-africa.html
+
 **Philip Yancey, Prominent Christian Author, Admits to Extramarital Affair**\
 `He said he would retire from writing and public speaking.`\
 https://nytimes.com/2026/01/07/us/philip-yancey-affair.html
@@ -12,7 +24,7 @@ https://nytimes.com/athletic/6950654/2026/01/07/jules-bianchi-karts-stolen-f1/
 
 **Trump officials threaten to expand a crackdown on fraud in Minnesota to other Democratic-run states.**\
 `By Madeleine Ngo`\
-https://nytimes.com/2026/01/07/us/politics/trump-officials-threaten-to-expand-a-crackdown-on-fraud-in-minnesota-to-other-democratic-run-states.html
+https://nytimes.com/live/2026/01/07/us/trump-news/trump-officials-threaten-to-expand-a-crackdown-on-fraud-in-minnesota-to-other-democratic-run-states
 
 **2026 SAG Actors Award Nominations List:**\
 `“One Battle After Another” and “Sinners” lead, while Timothée Chalamet and Ariana Grande also scored nods. Cynthia Erivo and the stars of “Jay Kelly” were left out.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/07/us/minneapolis-shooting-reaction-immigration-frey
 **Ohio State stars Carnell Tate, Caleb Downs declare for 2026 NFL Draft**\
 `Both prospects could be top-10 picks in the upcoming draft.`\
 https://nytimes.com/athletic/6950622/2026/01/07/nfl-draft-2026-caleb-downs-carnell-tate-declare/
-
-**Kevin Keegan, Newcastle and Liverpool legend, diagnosed with cancer**\
-`The former England manager's family confirmed the diagnosis in a statement on Wednesday.`\
-https://nytimes.com/athletic/6950796/2026/01/07/kevin-keegan-cancer-newcastle-liverpool/
-
-**Depleted and Distracted, Justice Dept. Staff Fear Losing Focus on Potential Threats**\
-`Rank-and-file prosecutors and agents have expressed serious concern that a hobbled work force hurts the government’s ability to identify and stop terrorist plots, cyberattacks, mass violence and fraud.`\
-https://nytimes.com/2026/01/07/us/justice-department-threats-cyberattacks-terrorism.html
-
-**Submit your Ohio State football questions for Cameron Teague Robinson’s mailbag**\
-`What's on your mind about the Buckeyes after an early College Football Playoff exit?`\
-https://nytimes.com/athletic/6950784/2026/01/07/ohio-state-football-mailbag-questions-portal-playoff/
 
