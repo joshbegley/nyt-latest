@@ -1,3 +1,15 @@
+**Washington QB Demond Williams Jr. enters portal after signing deal to return**\
+`Washington has no intention of releasing Williams from the contract he signed on Jan. 2, a source told The Athletic.`\
+https://nytimes.com/athletic/6948295/2026/01/06/washington-qb-demond-williams-transfer-portal-contract/
+
+**Game of Pursuit**\
+`Adrianne Baik gets into character.`\
+https://nytimes.com/2026/01/06/crosswords/daily-puzzle-2026-01-07.html
+
+**Pacers lose team-record 13th straight as struggles continue**\
+`Tuesday's loss puts the Pacers on pace for a 13-win season, which would tie the 1998-99 Bulls for the fewest by a team that made the finals.`\
+https://nytimes.com/athletic/6947629/2026/01/06/pacers-loss-record-13-straight-cavaliers/
+
 **Béla Fleck Withdraws From Kennedy Center Concerts**\
 `“Performing there has become charged and political,” the 18-time Grammy winner said.`\
 https://nytimes.com/2026/01/06/arts/music/bela-fleck-kennedy-center-orchestra.html
@@ -26,16 +38,4 @@ https://nytimes.com/2026/01/06/nyregion/nyc-child-care-programs-trump-funding-fr
 **An emergency order from the Venezuelan government appears to criminalize support for the U.S. attack.**\
 `By Maria Abi-Habib and Emiliano Rodríguez Mega`\
 https://nytimes.com/live/2026/01/06/world/venezuela-maduro-us-trump/venezuela-decree-maduro-support
-
-**What to Know About the Vaccines Cut From C.D.C. Recommendations**\
-`Federal health officials upended the immunization schedule for American children this week. These are the diseases affected.`\
-https://nytimes.com/2026/01/06/well/cdc-vaccine-schedule-recommendations.html
-
-**Sources: Inter Miami closing on deal to keep playoff star Allende**\
-`Allende, 26, set an MLS record for goals in a single postseason as Miami won MLS Cup.`\
-https://nytimes.com/athletic/6948112/2026/01/06/inter-miami-tadeo-allende-deal/
-
-**How to watch Chargers at Patriots: Wild Card Round Time, TV, streaming**\
-`Find out how to watch the Los Angeles Chargers play the New England Patriots, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6948143/2026/01/06/chargers-vs-patriots-stream-how-to-watch-jan-11/
 
