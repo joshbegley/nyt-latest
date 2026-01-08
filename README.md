@@ -1,3 +1,11 @@
+**I’m the Mayor of Minneapolis. Trump Is Lying to You.**\
+`This administration is making cities less safe.`\
+https://nytimes.com/2026/01/08/opinion/minneapolis-ice-agent-shooting-trump.html
+
+**Chloe Kim, U.S. snowboard star, says she dislocated shoulder in training, will get MRI**\
+`Kim, the two-time defending halfpipe gold medalist, said she didn't have clarity on the injury's severity, with the Olympics one month away.`\
+https://nytimes.com/athletic/6955780/2026/01/08/chloe-kim-injured-shoulder-winter-olympics/
+
 **Man City in advanced talks for USWNT's Coffey from Portland Thorns**\
 `A deal has not yet been finalised but Coffey's desire to play in Europe is expected to see a move to WSL leaders City.`\
 https://nytimes.com/athletic/6955359/2026/01/08/sam-coffey-uswnt-portland-man-city-women-transfers/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/08/us/minnesota-ice-shooting-prosecution.html
 **A Vengeful Trump Urges Voters to Oust Republicans, Including Collins**\
 `After five G.O.P. senators joined Democrats on a war powers vote, the president lashed out, including at his party’s most politically endangered senator.`\
 https://nytimes.com/2026/01/08/us/politics/trump-senate-republicans-susan-collins.html
-
-**These 5 Republicans Broke With Trump on Venezuela War Powers**\
-`The Republican defectors paved the way for a debate that could expose bipartisan concern about President Trump’s actions in Venezuela. Mr. Trump called for them to lose their seats.`\
-https://nytimes.com/2026/01/08/us/politics/five-republicans-congress-trump-venezuela.html
-
-**The Briefing: Arsenal 0 Liverpool 0 – Late Martinelli flashpoint, second-half improvement from visitors**\
-`Arsenal missed the chance to extend their lead at the top of the Premier League to eight points after a goalless draw at home to Liverpool`\
-https://nytimes.com/athletic/6937594/2026/01/08/arsenal-0-liverpool-0-martinelli-bradley/
 
