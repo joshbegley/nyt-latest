@@ -1,3 +1,11 @@
+**Wizards are betting Trae Young can raise their floor — and, on occasion, the roof**\
+`Why now? And why him? Remember, Young is Washington-bound for a reason.`\
+https://nytimes.com/athletic/6952994/2026/01/07/trae-young-wizards-fit-nba-trade/
+
+**Glenn Hall, Pathbreaking All-Star Hockey Goalie, Dies at 94**\
+`Known as “Mr. Goalie,” he created the so-called butterfly style and played in a record 502 consecutive games, without wearing a mask. He received 300 stitches.`\
+https://nytimes.com/2026/01/07/sports/glenn-hall-dead.html
+
 **Steny Hoyer, Longest-Serving House Democrat, to Retire From Congress**\
 `The Maryland congressman, who served as one of his party’s top leaders, plans to depart after nearly half a century in Congress, as his party looks toward generational change.`\
 https://nytimes.com/2026/01/07/us/politics/hoyer-house-democrat-retire-congress.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/07/us/ice-shooting-minneapolis-renee-good.html
 **It’s a Start!**\
 `Mallory Montgomery makes her New York Times Crossword debut, in collaboration with Zhou Zhang.`\
 https://nytimes.com/2026/01/07/crosswords/daily-puzzle-2026-01-08.html
-
-**Trump Withdraws the U.S. From More International Organizations**\
-`The executive order the president signed Wednesday follows a broader vision of American foreign policy that shuns coalition building and the consensus of nations.`\
-https://nytimes.com/2026/01/07/us/politics/trump-withdraw-un-organizations.html
-
-**Spencer Pratt, Reality TV Star, Announces Run for Mayor as L.A. Remembers Fires**\
-`The star of “The Hills,” whose house burned in the Palisades fire, has used his social media profile to hammer Mayor Karen Bass and other California Democrats over the past year.`\
-https://nytimes.com/2026/01/07/us/spencer-pratt-mayor-los-angeles.html
 

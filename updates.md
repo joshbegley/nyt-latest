@@ -1,3 +1,11 @@
+**Wizards are betting Trae Young can raise their floor — and, on occasion, the roof**\
+`Why now? And why him? Remember, Young is Washington-bound for a reason.`\
+https://nytimes.com/athletic/6952994/2026/01/07/trae-young-wizards-fit-nba-trade/
+
+**Glenn Hall, Pathbreaking All-Star Hockey Goalie, Dies at 94**\
+`Known as “Mr. Goalie,” he created the so-called butterfly style and played in a record 502 consecutive games, without wearing a mask. He received 300 stitches.`\
+https://nytimes.com/2026/01/07/sports/glenn-hall-dead.html
+
 **Steny Hoyer, Longest-Serving House Democrat, to Retire From Congress**\
 `The Maryland congressman, who served as one of his party’s top leaders, plans to depart after nearly half a century in Congress, as his party looks toward generational change.`\
 https://nytimes.com/2026/01/07/us/politics/hoyer-house-democrat-retire-congress.html

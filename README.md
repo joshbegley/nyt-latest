@@ -1,3 +1,7 @@
+**Corrections: Jan. 8, 2026**\
+`Corrections that appeared in print on Thursday, Jan. 8, 2026.`\
+https://nytimes.com/2026/01/07/pageoneplus/corrections-jan-8-2026.html
+
 **Wizards are betting Trae Young can raise their floor — and, on occasion, the roof**\
 `Why now? And why him? Remember, Young is Washington-bound for a reason.`\
 https://nytimes.com/athletic/6952994/2026/01/07/trae-young-wizards-fit-nba-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/07/business/media/zohran-mamdani-social-media-creato
 **What We Know About the Fatal ICE Shooting in Minneapolis**\
 `Officials in Minnesota have disputed federal accounts of the shooting that killed a 37-year-old woman on Wednesday.`\
 https://nytimes.com/2026/01/07/us/ice-shooting-minneapolis-renee-good.html
-
-**It’s a Start!**\
-`Mallory Montgomery makes her New York Times Crossword debut, in collaboration with Zhou Zhang.`\
-https://nytimes.com/2026/01/07/crosswords/daily-puzzle-2026-01-08.html
 
