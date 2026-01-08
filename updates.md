@@ -1,3 +1,7 @@
+**What Is the UNFCCC and Why Is the U.S. Pulling Out?**\
+`The Trump administration said Wednesday that the United States was withdrawing from 66 international agreements, including a major climate change treaty.`\
+https://nytimes.com/2026/01/07/climate/what-is-unfccc-climate-treaty.html
+
 **Minnesota Was Long at Odds With the Trump Administration. It’s Boiled Over.**\
 `The contradicting accounts of the ICE shooting in Minneapolis from the federal government and officials in Minnesota were the latest episode in a dispute that has been building for weeks.`\
 https://nytimes.com/2026/01/07/us/minnesota-shooting-trump-walz-frey.html
