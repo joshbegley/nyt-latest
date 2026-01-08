@@ -1,3 +1,7 @@
+**Trump Says U.S. Oversight of Venezuela Could Last For Years**\
+`In a wide-ranging interview with The New York Times on Wednesday, President Trump said “only time will tell” when it comes to how long the United States aims to control the country.`\
+https://nytimes.com/2026/01/08/us/politics/trump-interview-venezuela.html
+
 **Late Night Responds to Trump’s Bid to Be an Oil Baron**\
 `Jimmy Kimmel said it was good President Trump would be in charge of Venezuela’s oil sales: “That way we know it will be spent honestly.”`\
 https://nytimes.com/2026/01/08/arts/television/late-night-trump-oil-venezuela.html
@@ -6,8 +10,8 @@ https://nytimes.com/2026/01/08/arts/television/late-night-trump-oil-venezuela.ht
 `Find out how to watch the Houston Texans play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6953380/2026/01/08/texans-vs-steelers-stream-how-to-watch-jan-12/
 
-**Mitoma serves up another reminder of how important he is to Brighton — and their hopes**\
-`Kaoru Mitoma has struggled for fitness this season. He provided more evidence of how much Brighton need him against Manchester City`\
+**Mitoma serves up another reminder of how important he is to Brighton and their hopes**\
+`There is an added fear factor for opponents when Mitoma's name is on the team sheet. Fabian Hurzeler needs him fit and firing`\
 https://nytimes.com/athletic/6951148/2026/01/08/brighton-kaoru-mitoma-man-city-analysis/
 
 **Two red cards, missed chances and a night that left Moyes tearing his hair out**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010630880/minnesota-shooting-trump-walz-frey.
 **Newcastle, 4-3, and this time a win for Kevin Keegan - who will have loved it**\
 `Hours after news of club legend's cancer diagnosis, Newcastle came back from behind three times and then scored again to beat Leeds`\
 https://nytimes.com/athletic/6952594/2026/01/08/newcastle-kevin-keegan-leeds-analysis/
-
-**Frank's Tottenham tenure has never felt so lifeless. Can the FA Cup provide some relief?**\
-`There were more signs of discontent at the end of late defeat at Bournemouth. As the league misery continues, thank goodness for the FA Cup`\
-https://nytimes.com/athletic/6952629/2026/01/08/thomas-frank-tottenham-bournemouth/
 
