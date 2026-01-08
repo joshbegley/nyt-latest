@@ -1,3 +1,11 @@
+**Trump Says His Only Limit on His Global Powers Is His ‘Own Morality’**\
+`President Trump brushed aside international law and repeated his goal for the U.S. to own Greenland.`\
+https://nytimes.com/video/us/politics/100000010632450/trump-international-law-greenland.html
+
+**The Many Faces of Trump: What We Saw When We Interviewed the President**\
+`During an extensive sit-down with The New York Times, President Trump showcased the various personas he employs in his role. There were unpredictable turns throughout.`\
+https://nytimes.com/2026/01/08/us/politics/trump-oval-office-interview-scene.html
+
 **Nebraska in the portal: 4 uncomfortable questions as the Huskers navigate the transfer market**\
 `Portal euphoria is real. It's everywhere. But how long does it last?`\
 https://nytimes.com/athletic/6955638/2026/01/08/nebraska-transfer-portal-matt-rhule-anthony-colandrea/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/08/nyregion/kristi-noem-ice-minneapolis.html
 **Fact-Checking Trump’s Justifications for the Venezuela Operation**\
 `The president has repeatedly tied Venezuela to drug overdose deaths, claimed the Maduro regime sent an influx of criminal migrants and accused the country of stealing American oil.`\
 https://nytimes.com/2026/01/08/us/politics/venezuela-trump-maduro-fact-check.html
-
-**Congress Tries — but Fails — to Take a Stand for Its Own Powers**\
-`House votes to override a pair of Trump vetoes were an unusual bid by some in the G.O.P. to assert their own branch’s prerogatives. But they fell short.`\
-https://nytimes.com/2026/01/08/us/politics/trump-power-congress-veto.html
-
-**G.M. Books a $7.1 Billion Loss as It Scales Back E.V. Ambitions**\
-`General Motors said it was writing down the value of battery and electric vehicle factories after changes in federal policy undercut demand.`\
-https://nytimes.com/2026/01/08/business/general-motors-electric-vehicles-writedown.html
 
