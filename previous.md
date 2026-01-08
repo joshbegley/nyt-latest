@@ -1,3 +1,23 @@
+**Rams' Davante Adams, Quentin Lake set to return vs. Panthers**\
+`The Rams lost three games during their late-season stretch when Adams and Lake were dealing with injuries. `\
+https://nytimes.com/athletic/6955893/2026/01/08/rams-davante-adams-quentin-lake-injuries-panthers/
+
+**Rocío San Miguel, Venezuelan Political Prisoner, Was Among Those Released**\
+`Ms. San Miguel’s arrest in 2024 raised fears that Venezuela had entered a new era of repression.`\
+https://nytimes.com/2026/01/08/world/americas/san-miguel-venezuela-prisoner-released.html
+
+**Bondi Warns Minnesota Protesters to Stay Away From Federal Agents**\
+`Trump administration officials also spent the day attacking the woman killed by an ICE agent.`\
+https://nytimes.com/2026/01/08/us/politics/vance-renee-good-ice-shooting-minneapolis.html
+
+**I’m the Mayor of Minneapolis. Trump Is Lying to You.**\
+`This administration is making cities less safe.`\
+https://nytimes.com/2026/01/08/opinion/minneapolis-ice-agent-shooting-trump.html
+
+**Chloe Kim, U.S. snowboard star, says she dislocated shoulder in training, will get MRI**\
+`Kim, the two-time defending halfpipe gold medalist, said she didn't have clarity on the injury's severity, with the Olympics one month away.`\
+https://nytimes.com/athletic/6955780/2026/01/08/chloe-kim-injured-shoulder-winter-olympics/
+
 **Man City in advanced talks for USWNT's Coffey from Portland Thorns**\
 `A deal has not yet been finalised but Coffey's desire to play in Europe is expected to see a move to WSL leaders City.`\
 https://nytimes.com/athletic/6955359/2026/01/08/sam-coffey-uswnt-portland-man-city-women-transfers/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/08/us/politics/house-bill-aca-subsidies.html
 **Amos Poe, New York’s No Wave Film Pioneer, Dies at 76**\
 `He documented the punk and post-punk music scene in the East Village, leading an independent film movement that was proudly unprofessional.`\
 https://nytimes.com/2026/01/08/arts/amos-poe-dead.html
-
-**Trump Says ‘It’s Up To’ Xi Jinping What China Does In Taiwan**\
-`President Trump said that his actions in Venezuela did not set a precedent for other countries like Russia and China because he claimed he was responding to a “real threat.”`\
-https://nytimes.com/video/us/politics/100000010632590/trump-china-russia-taiwan.html
-
-**Legal Hurdles Likely to Stymie State Charges in Minnesota ICE Shooting Case**\
-`After an immigration agent fatally shot a woman, Minnesotans have called for the officer to be prosecuted. But previous attempts to charge federal officers at the state level have failed.`\
-https://nytimes.com/2026/01/08/us/minnesota-ice-shooting-prosecution.html
-
-**A Vengeful Trump Urges Voters to Oust Republicans, Including Collins**\
-`After five G.O.P. senators joined Democrats on a war powers vote, the president lashed out, including at his party’s most politically endangered senator.`\
-https://nytimes.com/2026/01/08/us/politics/trump-senate-republicans-susan-collins.html
-
-**These 5 Republicans Broke With Trump on Venezuela War Powers**\
-`The Republican defectors paved the way for a debate that could expose bipartisan concern about President Trump’s actions in Venezuela. Mr. Trump called for them to lose their seats.`\
-https://nytimes.com/2026/01/08/us/politics/five-republicans-congress-trump-venezuela.html
-
-**The Briefing: Arsenal 0 Liverpool 0 – Late Martinelli flashpoint, second-half improvement from visitors**\
-`Arsenal missed the chance to extend their lead at the top of the Premier League to eight points after a goalless draw at home to Liverpool`\
-https://nytimes.com/athletic/6937594/2026/01/08/arsenal-0-liverpool-0-martinelli-bradley/
 
