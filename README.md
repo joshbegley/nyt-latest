@@ -1,3 +1,7 @@
+**Rodman returns to USWNT roster, four first-time call-ups included**\
+`The U.S. plays Paraguay and Chile in two January friendlies.`\
+https://nytimes.com/athletic/6953871/2026/01/08/uswnt-january-squad-trinity-rodman/
+
 **WNBA, players union remain in CBA deadlock nearing deadline. Is work stoppage looming?**\
 `If Friday's deadline passes, what's next in negotiations? `\
 https://nytimes.com/athletic/6954343/2026/01/08/wnba-player-union-deadlock-cba-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6621567/2026/01/08/mike-mcdaniel-fired-dolphins/
 **The Bounce: That's all the Hawks got for Trae Young?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6954299/2026/01/08/trae-young-trade-hawks-the-bounce/
-
-**The Mysterious ‘Donroe Doctrine’**\
-`Trump’s former Venezuela envoy Elliott Abrams argues that America’s sudden presence there is not about spreading democracy.`\
-https://nytimes.com/video/opinion/100000010624619/the-mysterious-donroe-doctrine.html
 
