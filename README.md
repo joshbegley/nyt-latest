@@ -1,3 +1,7 @@
+**Immanuel Quickley rescues Raptors on buzzer-beating 3 after Ingram's injury**\
+`Ingram exited the game in the first quarter after with a sprained right thumb.`\
+https://nytimes.com/athletic/6952950/2026/01/07/immanuel-quickley-raptors-buzzer-beater-nba/
+
 **Some Questions, Then a Selfie: Mayor Mamdani Meets the (Creator) Press**\
 `A friendly summit at New York’s City Hall with digital content creators and social media stars symbolized the new mayor’s attitude toward the changing news media.`\
 https://nytimes.com/2026/01/07/business/media/zohran-mamdani-social-media-creators.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6952821/2026/01/07/glenn-hall-obit-hall-of-fame-goa
 **What Is the UNFCCC and Why Is the U.S. Pulling Out?**\
 `The Trump administration said Wednesday that the United States was withdrawing from 66 international agreements, including a major climate change treaty.`\
 https://nytimes.com/2026/01/07/climate/what-is-unfccc-climate-treaty.html
-
-**Protests Spread in Iran, and Crackdowns Escalate**\
-`Bazaars were shuttered and demonstrators met with violence from security forces amid rising anger about the country’s dire economic situation.`\
-https://nytimes.com/2026/01/07/world/middleeast/iran-protest-crackdown.html
 
