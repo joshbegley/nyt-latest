@@ -1,3 +1,7 @@
+**Steve Kerr explains NBA ejections to his mom: 'That's all part of the theatrics'**\
+`When told that Kerr said his mom was upset at her son, Doc Rivers couldn't resist getting in another dig.`\
+https://nytimes.com/athletic/6953099/2026/01/08/steve-kerr-mom-ejection-warriors-nba/
+
 **The Women's Super League found an unlikely market in Japan: 'Let’s embrace this'**\
 `A combination of streaming, representation and video games has made Japan one of the WSL's biggest markets`\
 https://nytimes.com/athletic/6836871/2026/01/08/womens-super-league-unlikely-market-japan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6948982/2026/01/08/arsenal-liverpool-arteta-slot-pr
 **For Manchester City, this might feel like last season all over again – but it isn’t**\
 `The campaign has gone off the rails in the last week, but there is no need to rip things up and start again.`\
 https://nytimes.com/athletic/6952338/2026/01/08/man-city-premier-league-title-race/
-
-**Clutch-time roundup: Paolo Banchero calls game; Immanuel Quickley beats buzzer**\
-`On a 12-game night in the NBA, three matchups needed just about every second and provided fans with exciting finishes.`\
-https://nytimes.com/athletic/6953108/2026/01/08/paolo-banchero-immanuel-quickley-shai-gilgeous-alexander-thunder-magic-raptors-nba/
 
