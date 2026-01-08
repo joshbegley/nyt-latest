@@ -1,40 +1,40 @@
-**U.S. women, electric at figure skating nationals, look ready to end 20-year Olympic drought**\
-`American women haven't won an Olympic singles medal since 2006. Amber Glenn and Alysa Liu headline a group that's poised to change that.`\
-https://nytimes.com/athletic/6953247/2026/01/08/olympics-figure-skating-us-women-amber-glenn-alysa-liu/
+**After Yankees miss on Edward Cabrera trade, what are their starting pitching options?**\
+`Starting pitching options are dwindling, but there are still some for the Yankees to consider in the trade and free-agent markets. `\
+https://nytimes.com/athletic/6940365/2026/01/08/yankees-pitcher-targets-trade-free-agency/
 
-**Videos Contradict Trump Administration Account of ICE Shooting in Minneapolis**\
-`An analysis of footage from three camera angles shows that the motorist was driving away from — not toward — a federal officer when he opened fire.`\
-https://nytimes.com/video/us/100000010631041/minneapolis-ice-shooting-video.html
+**This Week in Sports Trivia: January 8, 2026**\
+`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
+https://nytimes.com/athletic/6950315/2026/01/08/this-week-in-sports-trivia-january-8-2026/
 
-**Ravens take big risk by doing what rest of the NFL would do**\
-`The Ravens have enjoyed 18 years of slow, deliberate, almost stubborn growth. Now, they’re shopping in a crowded market with everyone else.`\
-https://nytimes.com/athletic/6952503/2026/01/08/john-harbaugh-fired-ravens-change-risk-stability/
+**Nobody has a better case to win the Hart Trophy than Macklin Celebrini**\
+`Macklin Mania continues to spread with a regulation loss turned into a point gained against the Kings because of his latest heroics.`\
+https://nytimes.com/athletic/6953555/2026/01/08/macklin-celebrini-hart-trophy-contender/
 
-**In dealing for Edward Cabrera, Cubs again choose a trade over free-agent spending**\
-`In back-to-back offseasons, the Cubs have been at the center of blockbuster trades, opting to deal from their farm for major league talent.`\
-https://nytimes.com/athletic/6952727/2026/01/08/chicago-cubs-owen-caissie-trade-decision/
+**Miami's Keionte Scott making the most of unexpected second chance … after sleeping on the job**\
+`Scott, whose journey began in 2020 at a junior college, earned second-team All-ACC honors in 2025.`\
+https://nytimes.com/athletic/6945552/2026/01/08/keionte-scott-miami-hurricanes-college-football-playoff/
 
-**LSU stumbled to an 0-2 SEC start. Will Kim Mulkey's squad recover?**\
-`Mulkey questioned whether this season's Tigers are tough enough. The SEC won't get much easier for them.`\
-https://nytimes.com/athletic/6952952/2026/01/08/lsu-womens-basketball-two-losses-sec/
+**NFL playoffs: Key matchups to watch in each NFC wild-card game**\
+`The run game will be key in the NFC wild-card matchups between the 49ers-Eagles and Packers-Bears this weekend.`\
+https://nytimes.com/athletic/6944573/2026/01/08/nfl-playoffs-nfc-wild-card-matchups/
 
-**How long was Harbaugh's 18 years with the Ravens? Several football lifetimes**\
-`During Harbaugh's tenure in Baltimore, many in football moved from team to team or college to the NFL, even from player to coach.`\
-https://nytimes.com/athletic/6950878/2026/01/08/john-harbaugh-ravens-coaching-tenure-length-seasons-years/
+**Memo to NFL owners hiring head coaches: Don't forget about special teams coordinators**\
+`John Harbaugh's long run in Baltimore — after serving as a special teams coach in Philadelphia — is a model more teams should follow.`\
+https://nytimes.com/athletic/6951319/2026/01/08/nfl-coaching-carousel-special-teams-coordinators/
 
-**The Pulse: Vibe-checking this college football moment**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6950969/2026/01/08/cfb-playoff-ole-miss-miami-the-pulse/
+**'Wouldn't be where I am today': How Saban's coaching tree is leaving its mark at the CFP**\
+`Four of Saban's former assistants are now coaching in the College Football Playoff semifinals.`\
+https://nytimes.com/athletic/6943207/2026/01/08/nick-saban-coaching-tree-college-football-playoff/
 
-**Former referee David Coote avoids prison for making indecent image of child**\
-`The 43-year-old has been handed a nine-month sentence, suspended for two years. He must also complete 150 hours of unpaid work.`\
-https://nytimes.com/athletic/6951810/2026/01/08/david-coote-sentence-referee/
+**England's inquest into Ashes failure has begun, but can Brendon McCullum really change?**\
+`If coach Brendon McCullum cannot - or will not - evolve the team's approach, then the ECB will have to bite the bullet and make a change`\
+https://nytimes.com/athletic/6952780/2026/01/08/england-ashes-mccullum-inquest-ecb-morgan-stokes/
 
-**China Is Investigating Meta’s Latest A.I. Acquisition**\
-`Regulators said they will look at whether the deal for Manus, a Singapore start-up with Chinese roots, complied with China’s export and investment rules.`\
-https://nytimes.com/2026/01/08/business/meta-manus-china-ai.html
+**Fan unrest, discipline issues and direct balls: What Rosenior might have learned from watching Chelsea**\
+`The new Chelsea head coach watched the loss at Fulham alongside co-owner Behdad Eghbali and there was plenty to digest`\
+https://nytimes.com/athletic/6952650/2026/01/08/liam-rosenior-chelsea-fulham/
 
-**What a revamped offensive line has meant for the Bears in 2025**\
-`A lot of the Bears' success in 2025 can be credited to the three newcomers on the O-line: Joe Thuney, Jonah Jackson and Drew Dalman.`\
-https://nytimes.com/athletic/6951850/2026/01/08/bears-offensive-line-joe-thuney-drew-dalman/
+**As Blue Jackets' top negotiator, newly hired Laurence Gilman will be plenty busy**\
+`"It's a good fit," the new vice president of hockey operations said, "and I could not be happier."`\
+https://nytimes.com/athletic/6952524/2026/01/08/laurence-gilman-blue-jackets-new-vp-hockey-ops/
 
