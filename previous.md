@@ -4,7 +4,7 @@ https://nytimes.com/2026/01/08/us/politics/border-patrol-minnesota-trump.html
 
 **Prosecutors Said to Pursue New Investigation of Letitia James**\
 `The New York attorney general’s longtime hairdresser has come under scrutiny as the Justice Department’s efforts to charge Ms. James on other fronts falter.`\
-https://nytimes.com/2026/01/08/us/politics/prosecutors-said-to-pursue-new-investigation-of-letitia-james.html
+https://nytimes.com/2026/01/08/us/politics/letitia-james-trump-justice-department.html
 
 **Venezuela Announces the Release of Political Prisoners**\
 `The release, which was expected to happen later on Thursday, offers the first gesture of conciliation under an interim government, even as arrests and crackdowns continue.`\

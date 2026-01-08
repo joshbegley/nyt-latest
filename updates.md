@@ -1,3 +1,7 @@
+**Prosecutors Said to Pursue New Investigation of Letitia James**\
+`The New York attorney general’s longtime hairdresser has come under scrutiny as the Justice Department’s efforts to charge Ms. James on other fronts falter.`\
+https://nytimes.com/2026/01/08/us/politics/letitia-james-trump-justice-department.html
+
 **Trump Administration Deploying More Border Patrol Agents to Minnesota**\
 `More than 100 agents will be redirected from other cities after the fatal shooting of a woman in Minneapolis by an ICE officer.`\
 https://nytimes.com/2026/01/08/us/politics/border-patrol-minnesota-trump.html
