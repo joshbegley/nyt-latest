@@ -1,3 +1,15 @@
+**Minnesota Man Is Freed After Serving 25 Years for Murder He Did Not Commit**\
+`The state’s conviction review unit concluded that Brian Pippitt, 63, was not involved in the 1998 murder of an 84-year-old woman, for which he was serving a life sentence.`\
+https://nytimes.com/2026/01/08/us/brian-pippitt-wrongful-murder-conviction.html
+
+**Trump Backs Kennedy’s Moves on New Childhood Vaccine Schedule**\
+`In an interview with The New York Times, the president said that Health Secretary Robert F. Kennedy Jr. had not gone too far in his recommendations.`\
+https://nytimes.com/2026/01/08/us/politics/trump-new-childhood-vaccine-schedule-cdc.html
+
+**Taremi and Strand Larsen on Nottingham Forest's four-man striker shortlist**\
+`Forest are one of several clubs monitoring the potential availability of Strand Larsen, while Taremi shares a similar profile to Chris Wood.`\
+https://nytimes.com/athletic/6955971/2026/01/08/nottingham-forest-transfer-news-taremi-strand-larsen/
+
 **U.S. Navy Is Chasing Several Oil Tankers in the Atlantic**\
 `A mass departure by sanctioned tankers, some switching to Russian flags, has triggered a fresh effort by the United States to pursue Venezuelan oil shipments at sea.`\
 https://nytimes.com/2026/01/08/world/americas/navy-chasing-tankers-venezuela.html
@@ -7,7 +19,7 @@ https://nytimes.com/2026/01/08/world/americas/navy-chasing-tankers-venezuela.htm
 `\
 https://nytimes.com/paidpost/umass/amherst/world-class-research-and-groundbreaking-discoveries-for-the-common-good.html
 
-**MLB split season and in-season tournament have been discussed, Rob Manfred says**\
+**MLB split season, in-season tournament have been discussed, Manfred says**\
 `The commissioner acknowledged that such changes would require fewer regular-season games, which would be a "complicated thing."`\
 https://nytimes.com/athletic/6955858/2026/01/08/rob-manfred-mlb-split-season-in-season-tournament/
 
@@ -26,16 +38,4 @@ https://nytimes.com/2026/01/08/world/americas/san-miguel-venezuela-prisoner-rele
 **Bondi Warns Minnesota Protesters to Stay Away From Federal Agents**\
 `Trump administration officials also spent the day attacking the woman killed by an ICE agent.`\
 https://nytimes.com/2026/01/08/us/politics/vance-renee-good-ice-shooting-minneapolis.html
-
-**I’m the Mayor of Minneapolis. Trump Is Lying to You.**\
-`This administration is making cities less safe.`\
-https://nytimes.com/2026/01/08/opinion/minneapolis-ice-agent-shooting-trump.html
-
-**Chloe Kim, U.S. snowboard star, says she dislocated shoulder in training, will get MRI**\
-`Kim, the two-time defending halfpipe gold medalist, said she didn't have clarity on the injury's severity, with the Olympics one month away.`\
-https://nytimes.com/athletic/6955780/2026/01/08/chloe-kim-injured-shoulder-winter-olympics/
-
-**Man City in advanced talks for USWNT's Coffey from Portland Thorns**\
-`A deal has not yet been finalised but Coffey's desire to play in Europe is expected to see a move to WSL leaders City.`\
-https://nytimes.com/athletic/6955359/2026/01/08/sam-coffey-uswnt-portland-man-city-women-transfers/
 

@@ -1,3 +1,20 @@
+**U.S. Navy Is Chasing Several Oil Tankers in the Atlantic**\
+`A mass departure by sanctioned tankers, some switching to Russian flags, has triggered a fresh effort by the United States to pursue Venezuelan oil shipments at sea.`\
+https://nytimes.com/2026/01/08/world/americas/navy-chasing-tankers-venezuela.html
+
+**World-class research and groundbreaking discoveries for the common good. **\
+`UMass Amherst is accelerating real-world  impact for a better tomorrow.
+`\
+https://nytimes.com/paidpost/umass/amherst/world-class-research-and-groundbreaking-discoveries-for-the-common-good.html
+
+**MLB split season and in-season tournament have been discussed, Rob Manfred says**\
+`The commissioner acknowledged that such changes would require fewer regular-season games, which would be a "complicated thing."`\
+https://nytimes.com/athletic/6955858/2026/01/08/rob-manfred-mlb-split-season-in-season-tournament/
+
+**Trump Said His Global Power Was Limited Only by His ‘Own Morality’**\
+`Also, meet one of the front-runners to become Apple’s next C.E.O. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/01/08/briefing/trump-interview-oval-office-apple-ceo.html
+
 **Rams' Davante Adams, Quentin Lake set to return vs. Panthers**\
 `The Rams lost three games during their late-season stretch when Adams and Lake were dealing with injuries. `\
 https://nytimes.com/athletic/6955893/2026/01/08/rams-davante-adams-quentin-lake-injuries-panthers/
