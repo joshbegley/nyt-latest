@@ -1,5 +1,9 @@
 **What is the UNFCCC and Why Is the U.S. Pulling Out?**\
 `The Trump administration said Wednesday that the United States was withdrawing from 66 international agreements, including a major climate change treaty.`\
+https://nytimes.com/2026/01/07/climate/what-is-unfccc-climate-treaty.html
+
+**What is the UNFCCC and Why Is the U.S. Pulling Out?**\
+`The Trump administration said Wednesday that the United States was withdrawing from 66 international agreements, including a major climate change treaty.`\
 https://nytimes.com/2026/01/07/climate/what-is-the-unfccc-and-why-is-the-us-pulling-out.html
 
 **Protests Spread in Iran, and Crackdowns Escalate**\
