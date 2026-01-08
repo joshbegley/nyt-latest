@@ -1,3 +1,15 @@
+**AFCON 2025 kits ranked: Tunisian carpets, a massive eagle and Uganda's FA goes it alone**\
+`The kits at the Africa Cup of Nations never disappoint, and this year's efforts are no different`\
+https://nytimes.com/athletic/6931851/2026/01/08/afcon-2025-home-kits-ranked/
+
+**Barcelona decided not to keep Joao Cancelo in 2024, but re-signing him now makes sense**\
+`Cancelo is not the centre-back Hansi Flick was after, but he is a defensive reinforcement at a time when Barca need that most`\
+https://nytimes.com/athletic/6950105/2026/01/08/joao-cancelo-barcelona-loan-analysis/
+
+**Arsenal vs Liverpool: Biggest change at each club? Tactical battles? Key players? Predictions?**\
+`The Premier League leaders take on the reigning champions at the Emirates - two of our writers discuss the talking points`\
+https://nytimes.com/athletic/6948982/2026/01/08/arsenal-liverpool-arteta-slot-predictions/
+
 **For Manchester City, this might feel like last season all over again – but it isn’t**\
 `The campaign has gone off the rails in the last week, but there is no need to rip things up and start again.`\
 https://nytimes.com/athletic/6952338/2026/01/08/man-city-premier-league-title-race/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6931572/2026/01/08/niko-kovac-borussia-dortmund-int
 **Quote of the Day: One Year Later, Homes, Fury and Debt Rise From Ashes in L.A.**\
 `Quotation of the Day for Thursday, January 8, 2026.`\
 https://nytimes.com/2026/01/08/pageoneplus/quote-of-the-day-one-year-later-homes-fury-and-debt-rise-from-ashes-in-la.html
-
-**Connections: Sports Edition Coach: Hints for Jan. 8, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6953093/2026/01/08/connections-sports-edition-hints-for-jan-8-2026/
-
-**On a Chinese Island, a Sunny Sanctuary for Russian Tourists**\
-`Russians find a refuge on the beaches of Sanya from sanctions and “sideways looks,” toasting the New Year beside a Chinese nuclear submarine base.`\
-https://nytimes.com/2026/01/08/world/asia/china-hainan-russian-tourists.html
-
-**When It Comes to Russia, Trump Navigates Conflicting Goals**\
-`President Trump’s efforts to court President Vladimir V. Putin of Russia are rife with contradictions about stability and displays of American power.`\
-https://nytimes.com/2026/01/08/us/politics/trump-russia-goals.html
 

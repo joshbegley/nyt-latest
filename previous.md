@@ -1,40 +1,40 @@
-**Corrections: Jan. 8, 2026**\
-`Corrections that appeared in print on Thursday, Jan. 8, 2026.`\
-https://nytimes.com/2026/01/07/pageoneplus/corrections-jan-8-2026.html
+**For Manchester City, this might feel like last season all over again – but it isn’t**\
+`The campaign has gone off the rails in the last week, but there is no need to rip things up and start again.`\
+https://nytimes.com/athletic/6952338/2026/01/08/man-city-premier-league-title-race/
 
-**Wizards are betting Trae Young can raise their floor — and, on occasion, the roof**\
-`Why now? And why him? Remember, Young is Washington-bound for a reason.`\
-https://nytimes.com/athletic/6952994/2026/01/07/trae-young-wizards-fit-nba-trade/
+**Clutch-time roundup: Paolo Banchero calls game; Immanuel Quickley beats buzzer**\
+`On a 12-game night in the NBA, three matchups needed just about every second and provided fans with exciting finishes.`\
+https://nytimes.com/athletic/6953108/2026/01/08/paolo-banchero-immanuel-quickley-shai-gilgeous-alexander-thunder-magic-raptors-nba/
 
-**Glenn Hall, Pathbreaking All-Star Hockey Goalie, Dies at 94**\
-`Known as “Mr. Goalie,” he created the so-called butterfly style and played in a record 502 consecutive games, without wearing a mask. He received 300 stitches.`\
-https://nytimes.com/2026/01/07/sports/glenn-hall-dead.html
+**Real Madrid's €180m summer transfers rated: Alexander-Arnold's difficult start, Huijsen finding feet**\
+`Madrid's four new arrivals have experienced mixed fortunes so far`\
+https://nytimes.com/athletic/6950383/2026/01/08/real-madrid-2025-summer-transfers-alexander-arnold-huijsen/
 
-**Steny Hoyer, Longest-Serving House Democrat, to Retire From Congress**\
-`The Maryland congressman, who served as one of his party’s top leaders, plans to depart after nearly half a century in Congress, as his party looks toward generational change.`\
-https://nytimes.com/2026/01/07/us/politics/hoyer-house-democrat-retire-congress.html
+**Why Brentford are currently the Premier League's most tactically influential team**\
+`Right now, it's Keith Andrews' world and the rest of us are just living in it  `\
+https://nytimes.com/athletic/6952161/2026/01/08/brentford-tactics-premier-league/
 
-**Trae Young trade grades: Can the 4-time All-Star lead the Wizards' young core?**\
-`You don't have to be a Young fan to be flabbergasted by the Hawks not receiving a any draft compensation in this deal.`\
-https://nytimes.com/athletic/6952755/2026/01/07/trae-young-trade-grades-hawks-wizards-nba/
+**A Majority of Venezuelans Struggle to Pay for Food, Poll Shows**\
+`A new Gallup survey found that more than half of Venezuelans reported struggling to afford food last year, with economic hardship reaching even the wealthy.`\
+https://nytimes.com/2026/01/08/world/americas/venezuela-gallup-poll-food-insecurity.html
 
-**Saints confident naming Tyler Shough as starter, building future around QB**\
-`Shough inserted himself into the offensive rookie of the year discussion by leading the Saints to four wins in their last five games.`\
-https://nytimes.com/athletic/6952921/2026/01/07/saints-tyler-shough-future-qb-nfl-draft/
+**Borussia Dortmund coach Niko Kovac interview: 'Our motto is KISS — keep it simple, stupid'**\
+`Niko Kovac rescued Borussia Dortmund last season and has them in second so far this campaign`\
+https://nytimes.com/athletic/6931572/2026/01/08/niko-kovac-borussia-dortmund-interview/
 
-**See How Kennedy’s Inverted Food Pyramid Stacks Up**\
-`The new pyramid is the picture of the Make America Healthy Again movement, prioritizing whole foods, proteins and fats.`\
-https://nytimes.com/interactive/2026/01/07/well/food-pyramid-rfk-jr.html
+**Quote of the Day: One Year Later, Homes, Fury and Debt Rise From Ashes in L.A.**\
+`Quotation of the Day for Thursday, January 8, 2026.`\
+https://nytimes.com/2026/01/08/pageoneplus/quote-of-the-day-one-year-later-homes-fury-and-debt-rise-from-ashes-in-la.html
 
-**Immanuel Quickley rescues Raptors on buzzer-beating 3 after Ingram's injury**\
-`Ingram exited the game in the first quarter after with a sprained right thumb.`\
-https://nytimes.com/athletic/6952950/2026/01/07/immanuel-quickley-raptors-buzzer-beater-nba/
+**Connections: Sports Edition Coach: Hints for Jan. 8, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6953093/2026/01/08/connections-sports-edition-hints-for-jan-8-2026/
 
-**Some Questions, Then a Selfie: Mayor Mamdani Meets the (Creator) Press**\
-`A friendly summit at New York’s City Hall with digital content creators and social media stars symbolized the new mayor’s attitude toward the changing news media.`\
-https://nytimes.com/2026/01/07/business/media/zohran-mamdani-social-media-creators.html
+**On a Chinese Island, a Sunny Sanctuary for Russian Tourists**\
+`Russians find a refuge on the beaches of Sanya from sanctions and “sideways looks,” toasting the New Year beside a Chinese nuclear submarine base.`\
+https://nytimes.com/2026/01/08/world/asia/china-hainan-russian-tourists.html
 
-**What We Know About the Fatal ICE Shooting in Minneapolis**\
-`Officials in Minnesota have disputed federal accounts of the shooting that killed a 37-year-old woman on Wednesday.`\
-https://nytimes.com/2026/01/07/us/ice-shooting-minneapolis-renee-good.html
+**When It Comes to Russia, Trump Navigates Conflicting Goals**\
+`President Trump’s efforts to court President Vladimir V. Putin of Russia are rife with contradictions about stability and displays of American power.`\
+https://nytimes.com/2026/01/08/us/politics/trump-russia-goals.html
 
