@@ -1,3 +1,7 @@
+**Teenagers on What Gives Them Hope in 2026**\
+`Students react to a newsletter about the rise of cynicism and how to cultivate optimism in the new year.`\
+https://nytimes.com/2026/01/08/learning/teenagers-on-what-gives-them-hope-in-2026.html
+
 **Trump Criticizes ICE for an Anti-Business Immigration Raid**\
 `But the president did not personally criticize Stephen Miller, the architect of his administration’s restrictive immigration policy, who has pushed to significantly limit visas for skilled workers.`\
 https://nytimes.com/2026/01/08/us/politics/immigration-stephen-miller.html
@@ -28,13 +32,9 @@ https://nytimes.com/video/us/politics/100000010632228/trump-venezuela-rubio.html
 
 **Democratic lawmakers ask for an investigation of the Middle East envoy Steve Witkoff.**\
 `The request by a group of Congress members cites reporting by The Times and echoes a similar request by Democratic senators in September.`\
-https://nytimes.com/2026/01/08/business/democratic-lawmakers-ask-for-an-investigation-of-the-middle-east-envoy-steve-witkoff.html
+https://nytimes.com/2026/01/08/business/witkoff-crypto-democrats-investigation.html
 
 **Trump Lays Out a Vision of Power Restrained Only by ‘My Own Morality’**\
 `On topic after topic, President Trump made clear that he would be the arbiter of any limits to his authorities, not international law or treaties.`\
 https://nytimes.com/2026/01/08/us/politics/trump-interview-power-morality.html
-
-**The basketball reasons why the Hawks broke up with Trae Young**\
-`While Young may be a four-time All-Star, his limitations on the court were increasingly making the Hawks worse. `\
-https://nytimes.com/athletic/6955319/2026/01/08/trae-young-hawks-trade-video-analysis/
 

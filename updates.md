@@ -1,3 +1,11 @@
+**Teenagers on What Gives Them Hope in 2026**\
+`Students react to a newsletter about the rise of cynicism and how to cultivate optimism in the new year.`\
+https://nytimes.com/2026/01/08/learning/teenagers-on-what-gives-them-hope-in-2026.html
+
+**Democratic lawmakers ask for an investigation of the Middle East envoy Steve Witkoff.**\
+`The request by a group of Congress members cites reporting by The Times and echoes a similar request by Democratic senators in September.`\
+https://nytimes.com/2026/01/08/business/witkoff-crypto-democrats-investigation.html
+
 **Trump Criticizes ICE for an Anti-Business Immigration Raid**\
 `But the president did not personally criticize Stephen Miller, the architect of his administration’s restrictive immigration policy, who has pushed to significantly limit visas for skilled workers.`\
 https://nytimes.com/2026/01/08/us/politics/immigration-stephen-miller.html
