@@ -1,3 +1,7 @@
+**Trump Says ‘It’s Up To’ Xi Jinping What China Does In Taiwan**\
+`President Trump said that his actions in Venezuela did not set a precedent for other countries like Russia and China because he claimed he was responding to a “real threat.”`\
+https://nytimes.com/video/us/politics/100000010632590/trump-china-russia-taiwan.html
+
 **Legal Hurdles Likely to Stymie State Charges in Minnesota ICE Shooting Case**\
 `After an immigration agent fatally shot a woman, Minnesotans have called for the officer to be prosecuted. But previous attempts to charge federal officers at the state level have failed.`\
 https://nytimes.com/2026/01/08/us/minnesota-ice-shooting-prosecution.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6955755/2026/01/08/trent-dilfer-coach-uab-lipscomb-
 **What Happens When No One Can Say No to Trump?**\
 `After the capture of the Venezuelan president, Nicolás Maduro, over the weekend, “Trump is setting a new course for the country where he can use the military to do just about anything he wants,” argues Times Opinion’s editor, Kathleen Kingsbury. “No one is allowed to say ‘no’ to Trump.”`\
 https://nytimes.com/video/opinion/100000010632349/what-happens-when-no-one-can-say-no-to-trump.html
-
-**Trump Says His Only Limit on His Global Powers Is His ‘Own Morality’**\
-`President Trump brushed aside international law and repeated his goal for the U.S. to own Greenland.`\
-https://nytimes.com/video/us/politics/100000010632450/trump-international-law-greenland.html
 
