@@ -1,3 +1,35 @@
+**How to watch Heat vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6955650/2026/01/08/heat-vs-bulls-stream-how-to-watch-jan-8/
+
+**How to watch Oilers vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6955648/2026/01/08/oilers-vs-jets-stream-how-to-watch-jan-8/
+
+**How to watch Mavericks vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6955643/2026/01/08/mavericks-vs-jazz-stream-how-to-watch-jan-8/
+
+**How to watch Islanders vs. Predators: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6955640/2026/01/08/islanders-vs-predators-stream-how-to-watch-jan-8/
+
+**How to watch Cavaliers vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6955636/2026/01/08/cavaliers-vs-timberwolves-stream-how-to-watch-jan-8/
+
+**How to watch Wild vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6955634/2026/01/08/wild-vs-kraken-stream-how-to-watch-jan-8/
+
+**How to watch Blue Jackets vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6955630/2026/01/08/blue-jackets-vs-golden-knights-stream-how-to-watch-jan-8/
+
+**How to watch Senators vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6955627/2026/01/08/senators-vs-avalanche-stream-how-to-watch-jan-8/
+
 **How to watch Missouri vs. Vanderbilt women's basketball: Time, TV, streaming**\
 `Find out how to watch the Missouri Tigers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6955623/2026/01/08/missouri-vs-vanderbilt-stream-how-to-watch-jan-8/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6955623/2026/01/08/missouri-vs-vanderbilt-stream-ho
 **Lessons learned from 2025 fantasy football hits Drake Maye, Kyle Pitts and more**\
 `Michael Salfino looks for the lessons to be gleaned from the surprise hits of the 2025 fantasy football campaign.`\
 https://nytimes.com/athletic/6954686/2026/01/08/fantasy-football-lessons-learned-drake-maye/
-
-**How to watch Tennessee vs. Mississippi State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Tennessee Lady Volunteers play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6955619/2026/01/08/tennessee-vs-mississippi-state-stream-how-to-watch-jan-8/
-
-**How to watch Michigan State vs. Washington women's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan State Spartans play the Washington Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6955598/2026/01/08/michigan-state-vs-washington-stream-how-to-watch-jan-8/
-
-**Amon-Ra St. Brown gives Lions rookies a scare with $40,000 prank dinner tab**\
-`Isaac TeSlaa and fellow wideouts actually split a smaller tab, part of an ongoing practice in NFL circles that not everyone enjoys.`\
-https://nytimes.com/athletic/6954492/2026/01/08/amon-ra-st-brown-detroit-lions-rookie-dinner-prank/
-
-**How to watch South Carolina vs. Arkansas women's basketball: Time, TV, streaming**\
-`Find out how to watch the South Carolina Gamecocks play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6955595/2026/01/08/south-carolina-vs-arkansas-stream-how-to-watch-jan-8/
-
-**House Passes Spending Package Before Another Shutdown Deadline**\
-`The legislation would fund parts of the government ahead of a Jan. 30 deadline in a bipartisan breakthrough after the nation’s longest shutdown.`\
-https://nytimes.com/2026/01/08/us/politics/house-spending-package.html
-
-**How to watch Colorado vs. Baylor women's basketball: Time, TV, streaming**\
-`Find out how to watch the Colorado Buffaloes play the Baylor Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6955592/2026/01/08/colorado-vs-baylor-stream-how-to-watch-jan-8/
-
-**How to watch Auburn vs. Texas women's basketball: Time, TV, streaming**\
-`Find out how to watch the Auburn Tigers play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6955581/2026/01/08/auburn-vs-texas-stream-how-to-watch-jan-8/
-
-**How to watch Rutgers vs. Illinois men's basketball: Time, TV, streaming**\
-`Find out how to watch the Rutgers Scarlet Knights play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6955579/2026/01/08/rutgers-vs-illinois-stream-how-to-watch-jan-8/
 
