@@ -1,3 +1,11 @@
+**Man City finalise Semenyo agreement without release clause activation**\
+`The deal will see City pay £62.5million across 24 months rather than immediately.`\
+https://nytimes.com/athletic/6953448/2026/01/08/man-city-semenyo-transfer-release-clause/
+
+**2024 Australian Open finalist Zheng Qinwen withdraws from first Grand Slam of the year**\
+`The 23-year-old has not played a competitive match since September last year.`\
+https://nytimes.com/athletic/6953437/2026/01/08/tennis-zheng-qinwen-australian-open/
+
 **We Pressed Trump on His Conclusion About the ICE Shooting. Here’s What He Said.**\
 `The exchange was a glimpse into the president’s reflexive defense of his federal crackdown on immigration.`\
 https://nytimes.com/2026/01/08/us/politics/trump-minnesota-ice-shooting-video.html
