@@ -1,3 +1,7 @@
+**Cubs land Edward Cabrera in trade with Marlins, but can they fix his fastballs?**\
+`Cabrera throws hard but his fastballs are easy for hitters to square up. Fixing that could unlock a No. 2 starter for the Cubs.`\
+https://nytimes.com/athletic/6952279/2026/01/07/trade-analysis-edward-cabrera-owen-caissie-cubs-marlins/
+
 **University to Pay $500,000 to Professor It Fired Over Charlie Kirk Post**\
 `Austin Peay State University in Tennessee also reinstated Darren Michael, a tenured acting professor whose post about Mr. Kirk’s killing inflamed conservatives.`\
 https://nytimes.com/2026/01/07/us/austin-peay-professor-charlie-kirk-settlement-reinstated.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6951582/2026/01/07/mets-kyle-tucker-mlb-free-agency
 **Jim Harbaugh, NFL react to Ravens' firing of John Harbaugh: 'Best coach I know'**\
 `Jim Harbaugh expects his brother, John, to be a head coach again next season: "I hope that’s in the NFC."`\
 https://nytimes.com/athletic/6952302/2026/01/07/john-harbaugh-firing-reaction-jim-harbaugh/
-
-**Authorities Often Justify Motorist Shootings by Saying the Vehicle Was a Weapon**\
-`Federal officials said the Minneapolis driver who was shot by an immigration agent was using her vehicle as a weapon, a claim that local officials have disputed.`\
-https://nytimes.com/2026/01/07/us/motorist-shootings-vehicle-weapon.html
 
