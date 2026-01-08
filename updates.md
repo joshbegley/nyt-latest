@@ -1,3 +1,7 @@
+**Rubio Says He’ll Meet With Danish Officials to Discuss Greenland**\
+`Secretary of State Marco Rubio told reporters he would speak with the officials after days of mounting threats from the Trump administration to take Greenland, a semiautonomous Danish territory.`\
+https://nytimes.com/2026/01/08/world/americas/us-greenland-trump-denmark-rubio-meeting.html
+
 **En vivo: Trump dice que va a ‘reconstruir’ Venezuela e insinúa que no tomará medidas hacia Colombia**\
 `El presidente Trump dijo a The New York Times que “solo el tiempo dirá” cuánto tiempo supervisará EE. UU. a Venezuela. Una llamada con el presidente Petro pareció aliviar las tensiones.`\
 https://nytimes.com/live/2026/01/08/espanol/trump-maduro-venezuela-petroleo

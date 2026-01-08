@@ -1,3 +1,7 @@
+**Rubio Says He’ll Meet With Danish Officials to Discuss Greenland**\
+`Secretary of State Marco Rubio told reporters he would speak with the officials after days of mounting threats from the Trump administration to take Greenland, a semiautonomous Danish territory.`\
+https://nytimes.com/2026/01/08/world/americas/us-greenland-trump-denmark-rubio-meeting.html
+
 **En vivo: Trump dice que va a ‘reconstruir’ Venezuela e insinúa que no tomará medidas hacia Colombia**\
 `El presidente Trump dijo a The New York Times que “solo el tiempo dirá” cuánto tiempo supervisará EE. UU. a Venezuela. Una llamada con el presidente Petro pareció aliviar las tensiones.`\
 https://nytimes.com/live/2026/01/08/espanol/trump-maduro-venezuela-petroleo
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/business/economy/us-trade-deficit-tariffs.html
 **They're one of U.S. figure skating's top pairs — and not currently eligible for the Olympics**\
 `Alisa Efimova and Misha Mitrofanov might be the best U.S. hope at the Olympics ... if a last-minute citizenship push comes through.`\
 https://nytimes.com/athletic/6953133/2026/01/08/olympics-alisa-efimova-us-figure-skating-citizenship/
-
-**The (Many) Wrinkles in Trump’s Vision for Venezuela**\
-`President Trump appears committed to laying claim to Venezuelan oil for a long time. But there are plenty of reasons for U.S. businesses to be wary.`\
-https://nytimes.com/2026/01/08/business/dealbook/trump-venezuela-oil.html
 
