@@ -1,3 +1,7 @@
+**2026 Directors Guild Nominations: ‘One Battle,’ ‘Sinners’ Go Head to Head**\
+`The films of Paul Thomas Anderson and Ryan Coogler have been competing all season. Also in the running are Guillermo del Toro, Josh Safdie and Chloé Zhao.`\
+https://nytimes.com/2026/01/08/movies/directors-guild-nominations-one-battle-sinners.html
+
 **Commanders' Lattimore arrested on suspicion of carrying concealed weapons**\
 `Lattimore was released pending an investigation. No charges were filed.`\
 https://nytimes.com/athletic/6955329/2026/01/08/commanders-marshon-lattimore-arrested-weapons/
