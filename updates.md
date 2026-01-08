@@ -1,3 +1,7 @@
+**Child Sexual Abuse Destroyed My Family. Here’s What Could Have Helped.**\
+`We spend billions of dollars on punishing child sexual abusers and far less on prevention. It’s not stopping the problem. We must rethink our approach.`\
+https://nytimes.com/video/opinion/100000010613555/child-sexual-abuse-destroyed-my-family-heres-what-could-have-helped.html
+
 **Must-See Moments From the N.B.A.**\
 `Two overtime thrillers, a career night in Detroit and a buzzer-beater headlined Wednesday night’s action in the N.B.A.`\
 https://nytimes.com/video/sports/basketball/100000010631378/must-see-moments-from-the-nba.html

@@ -1,3 +1,7 @@
+**Child Sexual Abuse Destroyed My Family. Here’s What Could Have Helped.**\
+`We spend billions of dollars on punishing child sexual abusers and far less on prevention. It’s not stopping the problem. We must rethink our approach.`\
+https://nytimes.com/video/opinion/100000010613555/child-sexual-abuse-destroyed-my-family-heres-what-could-have-helped.html
+
 **Must-See Moments From the N.B.A.**\
 `Two overtime thrillers, a career night in Detroit and a buzzer-beater headlined Wednesday night’s action in the N.B.A.`\
 https://nytimes.com/video/sports/basketball/100000010631378/must-see-moments-from-the-nba.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/crosswords/spelling-bee-forum.html
 **Thousands Gather at Vigil for Minnesota Woman Fatally Shot by ICE**\
 `A memorial for Renee Good, a 37-year-old U.S. citizen who was killed by a federal agent, drew a crowd in Minneapolis.`\
 https://nytimes.com/video/us/100000010630869/renee-nicole-good-minneapolis-ice.html
-
-**We Pressed Trump on His Conclusion About the ICE Shooting. Here’s What He Said.**\
-`The exchange was a glimpse into the president’s reflexive defense of his federal crackdown on immigration.`\
-https://nytimes.com/2026/01/08/us/politics/trump-minnesota-ice-shooting-video.html
 
