@@ -1,8 +1,16 @@
+**Slot 'fears the worst' on Conor Bradley knee injury**\
+`The Northern Ireland full-back will under scans to determine the extent of the damage after being stretchered off deep into added time.`\
+https://nytimes.com/athletic/6956096/2026/01/08/conor-bradley-injury-liverpool-news/
+
+**Senate Agrees to Display a Jan. 6 Plaque Honoring Officers**\
+`Federal law mandated that the memorial tablet be installed by March 2023, but Congress blew past that deadline.`\
+https://nytimes.com/2026/01/08/us/politics/senate-agrees-to-display-a-jan-6-plaque-honoring-officers.html
+
 **Flu Cases Fall in New York City After Reaching Highest Level in a Decade**\
 `Preliminary data suggests that bouts of the viral illness have already peaked, but the city’s health commissioner urged caution.`\
 https://nytimes.com/2026/01/08/nyregion/nyc-flu-cases-drop-january.html
 
-**‘Heated Rivalry’ star says closeted pro athletes have reached out because of TV show**\
+**‘Heated Rivalry’ star says closeted pro athletes have reached out because of show**\
 `Actor Hudson Williams said on Sirius XM Radio that he has received messages from "hockey players, football players, basketball players." 
 `\
 https://nytimes.com/athletic/6955905/2026/01/08/heated-rivalry-hockey-show-hudson-williams-athletes/
@@ -26,12 +34,4 @@ https://nytimes.com/2026/01/08/us/brian-pippitt-wrongful-murder-conviction.html
 **Trump Backs Kennedy’s Moves on New Childhood Vaccine Schedule**\
 `In an interview with The New York Times, the president said that Health Secretary Robert F. Kennedy Jr. had not gone too far in his recommendations.`\
 https://nytimes.com/2026/01/08/us/politics/trump-new-childhood-vaccine-schedule-cdc.html
-
-**Taremi and Strand Larsen on Nottingham Forest's four-man striker shortlist**\
-`Forest are one of several clubs monitoring the potential availability of Strand Larsen, while Taremi shares a similar profile to Chris Wood.`\
-https://nytimes.com/athletic/6955971/2026/01/08/nottingham-forest-transfer-news-taremi-strand-larsen/
-
-**U.S. Navy Is Chasing Several Oil Tankers in the Atlantic**\
-`A mass departure by sanctioned tankers, some switching to Russian flags, has triggered a fresh effort by the United States to pursue Venezuelan oil shipments at sea.`\
-https://nytimes.com/2026/01/08/world/americas/navy-chasing-tankers-venezuela.html
 

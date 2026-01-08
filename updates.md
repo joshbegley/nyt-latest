@@ -1,3 +1,16 @@
+**Slot 'fears the worst' on Conor Bradley knee injury**\
+`The Northern Ireland full-back will under scans to determine the extent of the damage after being stretchered off deep into added time.`\
+https://nytimes.com/athletic/6956096/2026/01/08/conor-bradley-injury-liverpool-news/
+
+**Senate Agrees to Display a Jan. 6 Plaque Honoring Officers**\
+`Federal law mandated that the memorial tablet be installed by March 2023, but Congress blew past that deadline.`\
+https://nytimes.com/2026/01/08/us/politics/senate-agrees-to-display-a-jan-6-plaque-honoring-officers.html
+
+**‘Heated Rivalry’ star says closeted pro athletes have reached out because of show**\
+`Actor Hudson Williams said on Sirius XM Radio that he has received messages from "hockey players, football players, basketball players." 
+`\
+https://nytimes.com/athletic/6955905/2026/01/08/heated-rivalry-hockey-show-hudson-williams-athletes/
+
 **‘Heated Rivalry’ star says closeted pro athletes have reached out because of TV show**\
 `Actor Hudson Williams said on Sirius XM Radio that he has received messages from "hockey players, football players, basketball players." 
 `\
