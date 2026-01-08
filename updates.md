@@ -1,3 +1,11 @@
+**They're one of U.S. figure skating's top pairs — and not currently eligible for the Olympics**\
+`Alisa Efimova and Misha Mitrofanov might be the best U.S. hope at the Olympics ... if a last-minute citizenship push comes through.`\
+https://nytimes.com/athletic/6953133/2026/01/08/olympics-alisa-efimova-us-figure-skating-citizenship/
+
+**The (Many) Wrinkles in Trump’s Vision for Venezuela**\
+`President Trump appears committed to laying claim to Venezuelan oil for a long time. But there are plenty of reasons for U.S. businesses to be wary.`\
+https://nytimes.com/2026/01/08/business/dealbook/trump-venezuela-oil.html
+
 **Bucks, Giannis upset with calls in Warriors loss: 'What were you looking at?'**\
 `Did Doc Rivers and his superstar have a point about the officiating? Probably, but the Bucks let adversity snowball too often.`\
 https://nytimes.com/athletic/6953420/2026/01/08/bucks-giannis-doc-rivers-officials-loss/
