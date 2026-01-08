@@ -1,3 +1,15 @@
+**Dochterman: If the Big Ten doesn't get the CFP change it wants, here's another idea**\
+`The key isn’t to add more games to the best teams; it’s to reshuffle the schedule to maximize regular-season matchups.`\
+https://nytimes.com/athletic/6947768/2026/01/08/big-ten-champions-weekend-cfp/
+
+**Here’s the latest.**\
+`By David E. Sanger, Tyler Pager, Katie Rogers, Zolan Kanno-Youngs and Yan Zhuang`\
+https://nytimes.com/live/2026/01/08/world/us-venezuela-trump/heres-the-latest
+
+**Live Updates: Trump Says U.S. Will ‘Rebuild’ Venezuela and Suggests He Won’t Intervene in Colombia**\
+`In an interview with The New York Times, President Trump said “only time will tell” when asked how long the U.S. would want oversight of Venezuela.`\
+https://nytimes.com/live/2026/01/08/world/us-venezuela-trump
+
 **Manchester United striker Williams set to join Leicester**\
 `The deal for Williams, 37, will see her leave United after three and a half years at the club.`\
 https://nytimes.com/athletic/6953532/2026/01/08/rachel-williams-leicester-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/08/weather/storm-us-forecast-tornado-rain.html
 **The New York Times International Edition in Print for Friday, Jan. 9, 2026**\
 ``\
 https://nytimes.com/issue/todaysinyt/2026/01/08/todays-new-york-times-international-edition
-
-**NFL wild-card round staff picks: Narrow spreads and entertainment galore**\
-`This season's wild-card slate is a juicy one. We've got staff picks for each game. `\
-https://nytimes.com/athletic/6951123/2026/01/08/nfl-wild-card-staff-picks-playoffs-betting/
-
-**Romero appears to criticise Spurs hierarchy over silence on state of club**\
-`The 27-year-old apologised to fans on social media and said others who "only show up when things are going well" should too.`\
-https://nytimes.com/athletic/6953481/2026/01/08/cristian-romero-instagram-tottenham-lies/
-
-**Super Bowl underdog tier: Ranking the title chances for long-shot contenders**\
-`Austin Mock ranks the Super Bowl chances of the six long-shot contenders heading into the playoffs.`\
-https://nytimes.com/athletic/6951295/2026/01/08/super-bowl-betting-underdogs-chargers-bears-packers-49ers/
 

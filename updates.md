@@ -1,3 +1,15 @@
+**Dochterman: If the Big Ten doesn't get the CFP change it wants, here's another idea**\
+`The key isn’t to add more games to the best teams; it’s to reshuffle the schedule to maximize regular-season matchups.`\
+https://nytimes.com/athletic/6947768/2026/01/08/big-ten-champions-weekend-cfp/
+
+**Here’s the latest.**\
+`By David E. Sanger, Tyler Pager, Katie Rogers, Zolan Kanno-Youngs and Yan Zhuang`\
+https://nytimes.com/live/2026/01/08/world/us-venezuela-trump/heres-the-latest
+
+**Live Updates: Trump Says U.S. Will ‘Rebuild’ Venezuela and Suggests He Won’t Intervene in Colombia**\
+`In an interview with The New York Times, President Trump said “only time will tell” when asked how long the U.S. would want oversight of Venezuela.`\
+https://nytimes.com/live/2026/01/08/world/us-venezuela-trump
+
 **Manchester United striker Williams set to join Leicester**\
 `The deal for Williams, 37, will see her leave United after three and a half years at the club.`\
 https://nytimes.com/athletic/6953532/2026/01/08/rachel-williams-leicester-transfer/
