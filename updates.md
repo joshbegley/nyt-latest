@@ -1,3 +1,15 @@
+**Trump Criticizes ICE for an Anti-Business Immigration Raid**\
+`But the president did not personally criticize Stephen Miller, the architect of his administration’s restrictive immigration policy, who has pushed to significantly limit visas for skilled workers.`\
+https://nytimes.com/2026/01/08/us/politics/immigration-stephen-miller.html
+
+**Iran Is Cut Off From the Internet as Protests Intensify**\
+`Internet connectivity data collected on Thursday showed that the country went almost completely offline, as the government cracks down on protesters.`\
+https://nytimes.com/2026/01/08/world/middleeast/iran-protests.html
+
+**Judge Sets Date for Weinstein’s Third Trial for Same Rape Charge**\
+`Harvey Weinstein said he felt like he was on a “a slow march to my death” as prosecutors continued to pursue the case after an aspiring actress accused him of raping her in 2013.`\
+https://nytimes.com/2026/01/08/nyregion/harvey-weinstein-rape-trial-manhattan.html
+
 **Judge Sets Date for Weinstein’s Third Trial for Same Rape Charge**\
 `Harvey Weinstein said he feels like he is on a “a slow march to my death” as prosecutors continue to pursue the case after an aspiring actress accused him of raping her in 2013.`\
 https://nytimes.com/2026/01/08/nyregion/harvey-weinstein-rape-trial-manhattan.html
