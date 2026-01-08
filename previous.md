@@ -1,3 +1,7 @@
+**U.S. women, electric at figure skating nationals, look ready to end 20-year Olympic drought**\
+`American women haven't won an Olympic singles medal since 2006. Amber Glenn and Alysa Liu headline a group that's poised to change that.`\
+https://nytimes.com/athletic/6953247/2026/01/08/olympics-figure-skating-us-women-amber-glenn-alysa-liu/
+
 **Videos Contradict Trump Administration Account of ICE Shooting in Minneapolis**\
 `An analysis of footage from three camera angles shows that the motorist was driving away from — not toward — a federal officer when he opened fire.`\
 https://nytimes.com/video/us/100000010631041/minneapolis-ice-shooting-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/business/meta-manus-china-ai.html
 **What a revamped offensive line has meant for the Bears in 2025**\
 `A lot of the Bears' success in 2025 can be credited to the three newcomers on the O-line: Joe Thuney, Jonah Jackson and Drew Dalman.`\
 https://nytimes.com/athletic/6951850/2026/01/08/bears-offensive-line-joe-thuney-drew-dalman/
-
-**Why Sidney Crosby, NHL’s most regimented player, struggles with time off**\
-`Sidney Crosby is in a fight with his team's schedule, but his teammates figure he'll overcome that, too. `\
-https://nytimes.com/athletic/6948368/2026/01/08/penguins-sidney-crosby-schedule-scoring-nhl/
 

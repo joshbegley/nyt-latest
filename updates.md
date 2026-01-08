@@ -1,3 +1,7 @@
+**U.S. women, electric at figure skating nationals, look ready to end 20-year Olympic drought**\
+`American women haven't won an Olympic singles medal since 2006. Amber Glenn and Alysa Liu headline a group that's poised to change that.`\
+https://nytimes.com/athletic/6953247/2026/01/08/olympics-figure-skating-us-women-amber-glenn-alysa-liu/
+
 **Videos Contradict Trump Administration Account of ICE Shooting in Minneapolis**\
 `An analysis of footage from three camera angles shows that the motorist was driving away from — not toward — a federal officer when he opened fire.`\
 https://nytimes.com/video/us/100000010631041/minneapolis-ice-shooting-video.html
