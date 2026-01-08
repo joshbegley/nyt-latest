@@ -1,3 +1,7 @@
+**Could this be the turning point in Liam Delap's time at Chelsea?**\
+`Liam Delap scored his second non-Club World Cup goal for Chelsea, which was a positive even as they lost against Fulham`\
+https://nytimes.com/athletic/6952802/2026/01/08/liam-delap-chelsea-fulham-analysis/
+
 **Man Utd dropped more points but this felt like what they needed — a fresh start**\
 `Manchester United dropped more points against Burnley but it did not feel the same as under Amorim`\
 https://nytimes.com/athletic/6953147/2026/01/08/manchester-united-burnley-analysis/

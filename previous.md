@@ -1,3 +1,7 @@
+**Could this be the turning point in Liam Delap's time at Chelsea?**\
+`Liam Delap scored his second non-Club World Cup goal for Chelsea, which was a positive even as they lost against Fulham`\
+https://nytimes.com/athletic/6952802/2026/01/08/liam-delap-chelsea-fulham-analysis/
+
 **Man Utd dropped more points but this felt like what they needed — a fresh start**\
 `Manchester United dropped more points against Burnley but it did not feel the same as under Amorim`\
 https://nytimes.com/athletic/6953147/2026/01/08/manchester-united-burnley-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6939667/2026/01/08/marc-guehi-palace-transfer/
 **Steve Kerr explains NBA ejections to his mom: 'That's all part of the theatrics'**\
 `When told that Kerr said his mom was upset at her son, Doc Rivers couldn't resist getting in another dig.`\
 https://nytimes.com/athletic/6953099/2026/01/08/steve-kerr-mom-ejection-warriors-nba/
-
-**The Women's Super League found an unlikely market in Japan: 'Let’s embrace this'**\
-`A combination of streaming, representation and video games has made Japan one of the WSL's biggest markets`\
-https://nytimes.com/athletic/6836871/2026/01/08/womens-super-league-unlikely-market-japan/
 
