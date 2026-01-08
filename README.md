@@ -1,3 +1,7 @@
+**Denaturalization Is Part of Trump’s Crackdown on Immigrants**\
+`The administration is looking at Somali-born American citizens as well as other groups, but the president did not specify which.`\
+https://nytimes.com/2026/01/08/us/politics/trump-somalis-denaturalization.html
+
 **Sources: Minnesota coach Eric Ramsay to leave MLS club for West Brom**\
 `Minnesota United is left looking for a new manager on the eve of the 2026 preseason `\
 https://nytimes.com/athletic/6955209/2026/01/08/eric-ramsay-west-brom-minnesota-united-mls-cam-knowles/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/books/review/recommended-new-books.html
 **How to Warm a Chili Skeptic’s Heart**\
 `By Tanya Sichynsky`\
 https://nytimes.com/2026/01/08/dining/how-to-warm-a-chili-skeptics-heart.html
-
-**How USMNT fans can get World Cup tickets through U.S. Soccer's allotment**\
-`U.S. Soccer has informed fans of the process to secure World Cup tickets through the federation, and it comes with plenty of caveats`\
-https://nytimes.com/athletic/6954844/2026/01/08/us-soccer-2026-world-cup-tickets-usmnt-supporters-groups/
 
