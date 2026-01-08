@@ -1,3 +1,11 @@
+**They're one of U.S. figure skating's top pairs — and not currently eligible for the Olympics**\
+`Alisa Efimova and Misha Mitrofanov might be the best U.S. hope at the Olympics ... if a last-minute citizenship push comes through.`\
+https://nytimes.com/athletic/6953133/2026/01/08/olympics-alisa-efimova-us-figure-skating-citizenship/
+
+**The (Many) Wrinkles in Trump’s Vision for Venezuela**\
+`President Trump appears committed to laying claim to Venezuelan oil for a long time. But there are plenty of reasons for U.S. businesses to be wary.`\
+https://nytimes.com/2026/01/08/business/dealbook/trump-venezuela-oil.html
+
 **Bucks, Giannis upset with calls in Warriors loss: 'What were you looking at?'**\
 `Did Doc Rivers and his superstar have a point about the officiating? Probably, but the Bucks let adversity snowball too often.`\
 https://nytimes.com/athletic/6953420/2026/01/08/bucks-giannis-doc-rivers-officials-loss/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/01/08/us/trump-news
 **Lebanon Claims Progress in Disarming Militant Groups Like Hezbollah**\
 `The military said it had completed the first phase of a plan to demilitarize armed groups as fears grew that Israel was preparing a new offensive against Hezbollah.`\
 https://nytimes.com/2026/01/08/world/middleeast/hezbollah-disarmament-lebanon-israel.html
-
-**Why the Trae Young trade return was so underwhelming, and what's next for Hawks**\
-`Young has lost a step over the last couple of years, and Atlanta is content to roll with its new core.`\
-https://nytimes.com/athletic/6953358/2026/01/08/trae-young-trade-return-hawks-future/
-
-**Giannis says he will never ask for trade from Bucks: 'That's not in my nature'**\
-`In an exclusive interview with The Athletic, Antetokounmpo reiterated his commitment to Milwaukee but noted it's "as of today."`\
-https://nytimes.com/athletic/6953526/2026/01/08/giannis-antetokounmpo-bucks-trade-nba-deadline-interview/
 
