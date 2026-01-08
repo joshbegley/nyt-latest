@@ -1,3 +1,11 @@
+**What is the UNFCCC and Why Is the U.S. Pulling Out?**\
+`The Trump administration said Wednesday that the United States was withdrawing from 66 international agreements, including a major climate change treaty.`\
+https://nytimes.com/2026/01/07/climate/what-is-the-unfccc-and-why-is-the-us-pulling-out.html
+
+**Protests Spread in Iran, and Crackdowns Escalate**\
+`Bazaars were shuttered and demonstrators met with violence from security forces amid rising anger about the country’s dire economic situation.`\
+https://nytimes.com/2026/01/07/world/middleeast/iran-protest-crackdown.html
+
 **Victim in ICE Shooting Is Remembered for Her Kindness**\
 `Renee Good, 37, a resident of Minneapolis, was mourned on Wednesday as a cherished member of the community.`\
 https://nytimes.com/2026/01/07/us/renee-nicole-good-minneapolis-ice.html

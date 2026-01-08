@@ -1,3 +1,11 @@
+**What is the UNFCCC and Why Is the U.S. Pulling Out?**\
+`The Trump administration said Wednesday that the United States was withdrawing from 66 international agreements, including a major climate change treaty.`\
+https://nytimes.com/2026/01/07/climate/what-is-the-unfccc-and-why-is-the-us-pulling-out.html
+
+**Protests Spread in Iran, and Crackdowns Escalate**\
+`Bazaars were shuttered and demonstrators met with violence from security forces amid rising anger about the country’s dire economic situation.`\
+https://nytimes.com/2026/01/07/world/middleeast/iran-protest-crackdown.html
+
 **Victim in ICE Shooting Is Remembered for Her Kindness**\
 `Renee Good, 37, a resident of Minneapolis, was mourned on Wednesday as a cherished member of the community.`\
 https://nytimes.com/2026/01/07/us/renee-nicole-good-minneapolis-ice.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/07/us/politics/trump-military-spending-budget.html
 **Cubs land Edward Cabrera in trade with Marlins, but can they fix his fastballs?**\
 `Cabrera throws hard, but his fastballs are easy for hitters to square up. Fixing that could unlock a No. 2 starter for the Cubs.`\
 https://nytimes.com/athletic/6952279/2026/01/07/trade-analysis-edward-cabrera-owen-caissie-cubs-marlins/
-
-**University to Pay $500,000 to Professor It Fired Over Charlie Kirk Post**\
-`Austin Peay State University in Tennessee also reinstated Darren Michael, a tenured acting professor whose post about Mr. Kirk’s killing inflamed conservatives.`\
-https://nytimes.com/2026/01/07/us/austin-peay-professor-charlie-kirk-settlement-reinstated.html
-
-**Arthur Cohn, Film Producer With an Oscar-Winning Touch, Dies at 98**\
-`Six of his movies received Academy Awards, including the Italian drama “The Garden of the Finzi-Continis” and the trade-union strike documentary “American Dream.”`\
-https://nytimes.com/2026/01/07/movies/arthur-cohn-dead.html
 
