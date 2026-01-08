@@ -1,3 +1,7 @@
+**Trump Proposes Huge Increase in Military Spending**\
+`The president’s proposal for a $600 billion increase comes as his administration pushes for American imperialism.`\
+https://nytimes.com/2026/01/07/us/politics/trump-military-spending-budget.html
+
 **Cubs land Edward Cabrera in trade with Marlins, but can they fix his fastballs?**\
 `Cabrera throws hard but his fastballs are easy for hitters to square up. Fixing that could unlock a No. 2 starter for the Cubs.`\
 https://nytimes.com/athletic/6952279/2026/01/07/trade-analysis-edward-cabrera-owen-caissie-cubs-marlins/

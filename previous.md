@@ -1,3 +1,7 @@
+**Trump Proposes Huge Increase in Military Spending**\
+`The president’s proposal for a $600 billion increase comes as his administration pushes for American imperialism.`\
+https://nytimes.com/2026/01/07/us/politics/trump-military-spending-budget.html
+
 **Cubs land Edward Cabrera in trade with Marlins, but can they fix his fastballs?**\
 `Cabrera throws hard but his fastballs are easy for hitters to square up. Fixing that could unlock a No. 2 starter for the Cubs.`\
 https://nytimes.com/athletic/6952279/2026/01/07/trade-analysis-edward-cabrera-owen-caissie-cubs-marlins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6952328/2026/01/07/darren-fletcher-man-utd-manager-
 **What to make of the Mets' interest in Kyle Tucker**\
 `The Mets, Dodgers and Blue Jays are among Tucker’s options, league sources confirmed.`\
 https://nytimes.com/athletic/6951582/2026/01/07/mets-kyle-tucker-mlb-free-agency/
-
-**Jim Harbaugh, NFL react to Ravens' firing of John Harbaugh: 'Best coach I know'**\
-`Jim Harbaugh expects his brother, John, to be a head coach again next season: "I hope that’s in the NFC."`\
-https://nytimes.com/athletic/6952302/2026/01/07/john-harbaugh-firing-reaction-jim-harbaugh/
 
