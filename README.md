@@ -1,3 +1,7 @@
+**Former Leeds and Wales midfielder Yorath dies aged 75**\
+`Several clubs associated with Yorath, father of BBC presenter Gabby Logan, have paid tribute to the former midfielder and manager.`\
+https://nytimes.com/athletic/6953634/2026/01/08/terry-yorath-death-news-leeds-wales/
+
 **An Oval Office Viewing**\
 `During an interview with our reporters, President Trump discussed a video of an ICE agent fatally shooting a woman in Minneapolis.`\
 https://nytimes.com/2026/01/08/briefing/an-oval-office-viewing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6943207/2026/01/08/nick-saban-coaching-tree-college
 **England's inquest into Ashes failure has begun, but can Brendon McCullum really change?**\
 `If coach Brendon McCullum cannot - or will not - evolve the team's approach, then the ECB will have to bite the bullet and make a change`\
 https://nytimes.com/athletic/6952780/2026/01/08/england-ashes-mccullum-inquest-ecb-morgan-stokes/
-
-**Fan unrest, discipline issues and direct balls: What Rosenior might have learned from watching Chelsea**\
-`The new Chelsea head coach watched the loss at Fulham alongside co-owner Behdad Eghbali and there was plenty to digest`\
-https://nytimes.com/athletic/6952650/2026/01/08/liam-rosenior-chelsea-fulham/
 
