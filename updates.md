@@ -1,3 +1,7 @@
+**2 Killed in Shooting Outside Mormon Church in Salt Lake City**\
+`The shooting did not appear to be a targeted attack against the church and seemed to stem from an altercation in its parking lot, the police said.`\
+https://nytimes.com/2026/01/08/us/salt-lake-city-church-shooting.html
+
 **The Sober Party Girl Revolution**\
 `At a members-only club in Manhattan, a new generation rejects alcohol but isn’t quite ready to give up the party.`\
 https://nytimes.com/2026/01/08/nyregion/luxury-sobriety-the-maze.html
