@@ -1,3 +1,11 @@
+**NASA Considers Early Return From I.S.S. After Medical Issue**\
+`NASA said it canceled a spacewalk planned for Thursday after an astronaut had an undisclosed medical issue on the International Space Station.`\
+https://nytimes.com/2026/01/08/science/space/nasa-astronaut-medical-problem.html
+
+**Can J.K. Dobbins return for the playoffs? What it would mean for Broncos' run game**\
+`Dobbins is trying to make an unusually fast return from a Lisfranc injury. In the meantime, what can Broncos squeeze from RJ Harvey, others?`\
+https://nytimes.com/athletic/6952134/2026/01/08/jk-dobbins-broncos-run-game-playoffs/
+
 **The Man Who Could Be Apple’s Next C.E.O.**\
 `John Ternus, a low-profile but influential executive at Apple, could be next in line to replace the company’s longtime chief executive, Tim Cook, if he steps aside.`\
 https://nytimes.com/2026/01/08/technology/apple-ceo-tim-cook-john-ternus.html
