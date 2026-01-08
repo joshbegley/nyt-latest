@@ -35,6 +35,6 @@ https://nytimes.com/video/us/100000010630880/minnesota-shooting-trump-walz-frey.
 https://nytimes.com/athletic/6952594/2026/01/08/newcastle-kevin-keegan-leeds-analysis/
 
 **Frank's Tottenham tenure has never felt so lifeless. Can the FA Cup provide some relief?**\
-`There were more signs of discontent at the end of the defeat at Bournemouth. As the league misery continues, thank goodness for the FA Cup`\
+`There were more signs of discontent at the end of late defeat at Bournemouth. As the league misery continues, thank goodness for the FA Cup`\
 https://nytimes.com/athletic/6952629/2026/01/08/thomas-frank-tottenham-bournemouth/
 

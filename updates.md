@@ -1,3 +1,11 @@
+**Late Night Responds to Trump’s Bid to Be an Oil Baron**\
+`Jimmy Kimmel said it was good President Trump would be in charge of Venezuela’s oil sales: “That way we know it will be spent honestly.”`\
+https://nytimes.com/2026/01/08/arts/television/late-night-trump-oil-venezuela.html
+
+**How to watch Texans at Steelers: Wild Card Round Time, TV, streaming**\
+`Find out how to watch the Houston Texans play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6953380/2026/01/08/texans-vs-steelers-stream-how-to-watch-jan-12/
+
 **Mitoma serves up another reminder of how important he is to Brighton — and their hopes**\
 `Kaoru Mitoma has struggled for fitness this season. He provided more evidence of how much Brighton need him against Manchester City`\
 https://nytimes.com/athletic/6951148/2026/01/08/brighton-kaoru-mitoma-man-city-analysis/
