@@ -1,3 +1,19 @@
+**Some Questions, Then a Selfie: Mayor Mamdani Meets the (Creator) Press**\
+`A friendly summit at New York’s City Hall with digital content creators and social media stars symbolized the new mayor’s attitude toward the changing news media.`\
+https://nytimes.com/2026/01/07/business/media/zohran-mamdani-social-media-creators.html
+
+**What We Know About the Fatal ICE Shooting in Minneapolis**\
+`Officials in Minnesota have disputed federal accounts of the shooting that killed a 37-year-old woman on Wednesday.`\
+https://nytimes.com/2026/01/07/us/ice-shooting-minneapolis-renee-good.html
+
+**It’s a Start!**\
+`Mallory Montgomery makes her New York Times Crossword debut, in collaboration with Zhou Zhang.`\
+https://nytimes.com/2026/01/07/crosswords/daily-puzzle-2026-01-08.html
+
+**Trump Withdraws the U.S. From More International Organizations**\
+`The executive order the president signed Wednesday follows a broader vision of American foreign policy that shuns coalition building and the consensus of nations.`\
+https://nytimes.com/2026/01/07/us/politics/trump-withdraw-un-organizations.html
+
 **Spencer Pratt, Reality TV Star, Announces Run for Mayor as L.A. Remembers Fires**\
 `The star of “The Hills,” whose house burned in the Palisades fire, has used his social media profile to hammer Mayor Karen Bass and other California Democrats over the past year.`\
 https://nytimes.com/2026/01/07/us/spencer-pratt-mayor-los-angeles.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/07/climate/what-is-unfccc-climate-treaty.html
 **Protests Spread in Iran, and Crackdowns Escalate**\
 `Bazaars were shuttered and demonstrators met with violence from security forces amid rising anger about the country’s dire economic situation.`\
 https://nytimes.com/2026/01/07/world/middleeast/iran-protest-crackdown.html
-
-**Victim in ICE Shooting Is Remembered for Her Kindness**\
-`Renee Good, 37, a resident of Minneapolis, was mourned on Wednesday as a cherished member of the community.`\
-https://nytimes.com/2026/01/07/us/renee-nicole-good-minneapolis-ice.html
-
-**Trump and Colombian President Speak by Phone Amid Escalating Tensions**\
-`The American president said a White House visit with Gustavo Petro was being arranged by the secretary of state.`\
-https://nytimes.com/2026/01/07/world/americas/trump-petro-colombia-call.html
-
-**One Video of a Fatal ICE Shooting, Two Opposite Views**\
-`In a polarized country, high-ranking officials were offering definitive, and starkly contrasting, accounts long before the facts could be established.`\
-https://nytimes.com/2026/01/07/us/minneapolis-ice-shooting-videos.html
-
-**3 arrested in connection with Shedeur Sanders burglary, 1 suspect at large**\
-`The Cleveland Browns rookie quarterback's home was broken into while he was playing his first NFL game in November.`\
-https://nytimes.com/athletic/6952617/2026/01/07/shedeur-sanders-burglary-arrests/
 
