@@ -1,3 +1,19 @@
+**Fact-Checking Trump’s Justifications for the Venezuela Operation**\
+`The president has repeatedly tied Venezuela to drug overdose deaths, claimed the Maduro regime sent an influx of criminal migrants and accused the country of stealing American oil.`\
+https://nytimes.com/2026/01/08/us/politics/venezuela-trump-maduro-fact-check.html
+
+**Congress Tries — but Fails — to Take a Stand for Its Own Powers**\
+`House votes to override a pair of Trump vetoes were an unusual bid by some in the G.O.P. to assert their own branch’s prerogatives. But they fell short.`\
+https://nytimes.com/2026/01/08/us/politics/trump-power-congress-veto.html
+
+**G.M. Books a $7.1 Billion Loss as It Scales Back E.V. Ambitions**\
+`General Motors said it was writing down the value of battery and electric vehicle factories after changes in federal policy undercut demand.`\
+https://nytimes.com/2026/01/08/business/general-motors-electric-vehicles-writedown.html
+
+**Atletico 1 Real Madrid 2 – Breaking down Valverde's stunner, where does this leave Alonso?**\
+`Xabi Alonso's side scraped through to Sunday's Supercopa de Espana final against Barcelona`\
+https://nytimes.com/athletic/6942410/2026/01/08/atletico-1-real-madrid-2-valverde-alonso-rodrygo/
+
 **Atletico 1 Real Madrid 2 — Breaking down Valverde's stunner, where does this leave Alonso?**\
 `Xabi Alonso's side scraped through to Sunday's Supercopa de Espana final against Barcelona`\
 https://nytimes.com/athletic/6942410/2026/01/08/atletico-1-real-madrid-2-valverde-alonso-rodrygo/

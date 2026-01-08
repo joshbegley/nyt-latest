@@ -1,4 +1,16 @@
-**Atletico 1 Real Madrid 2 — Breaking down Valverde's stunner, where does this leave Alonso?**\
+**Fact-Checking Trump’s Justifications for the Venezuela Operation**\
+`The president has repeatedly tied Venezuela to drug overdose deaths, claimed the Maduro regime sent an influx of criminal migrants and accused the country of stealing American oil.`\
+https://nytimes.com/2026/01/08/us/politics/venezuela-trump-maduro-fact-check.html
+
+**Congress Tries — but Fails — to Take a Stand for Its Own Powers**\
+`House votes to override a pair of Trump vetoes were an unusual bid by some in the G.O.P. to assert their own branch’s prerogatives. But they fell short.`\
+https://nytimes.com/2026/01/08/us/politics/trump-power-congress-veto.html
+
+**G.M. Books a $7.1 Billion Loss as It Scales Back E.V. Ambitions**\
+`General Motors said it was writing down the value of battery and electric vehicle factories after changes in federal policy undercut demand.`\
+https://nytimes.com/2026/01/08/business/general-motors-electric-vehicles-writedown.html
+
+**Atletico 1 Real Madrid 2 – Breaking down Valverde's stunner, where does this leave Alonso?**\
 `Xabi Alonso's side scraped through to Sunday's Supercopa de Espana final against Barcelona`\
 https://nytimes.com/athletic/6942410/2026/01/08/atletico-1-real-madrid-2-valverde-alonso-rodrygo/
 
@@ -25,16 +37,4 @@ https://nytimes.com/video/nyregion/100000010632026/hochul-mamdani-new-york-unive
 **Court Records Reveal Details of ICE Agent’s Previous Dragging Incident**\
 `The agent who shot a woman in Minneapolis on Wednesday was pulled about 100 yards by a car last year while firing a stun gun at the driver. A cut on his arm required 20 stitches.`\
 https://nytimes.com/2026/01/08/us/ice-agent-jonathan-ross-minneapolis-shooting.html
-
-**A Fierce Debate With Polymarket: Did the U.S. ‘Invade’ Venezuela?**\
-`Polymarket users bet on whether the U.S. would invade Venezuela, but the prediction market said the Venezuelan president’s capture did not constitute an invasion.`\
-https://nytimes.com/2026/01/08/business/polymarket-venezuela-invasion-bets.html
-
-**How to watch Heat vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6955650/2026/01/08/heat-vs-bulls-stream-how-to-watch-jan-8/
-
-**How to watch Oilers vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6955648/2026/01/08/oilers-vs-jets-stream-how-to-watch-jan-8/
 
