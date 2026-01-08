@@ -1,40 +1,40 @@
-**Can A.I. Match Molière’s Wit? These Researchers Think So.**\
-`Scholars and artists at Sorbonne University trained artificial intelligence to imitate the French playwright’s themes, structures and sense of humor. The result is a new play.`\
-https://nytimes.com/2026/01/08/theater/moliere-ai-sorbonne-the-astrologer.html
+**How Drake Maye took the Year 2 leap and became an MVP candidate: It 'was Brady-like'**\
+`Maye has taken a massive step forward in his second season and led the previously floundering Patriots back to the playoffs.`\
+https://nytimes.com/athletic/6950083/2026/01/08/drake-maye-patriots-mvp-candidate-tom-brady/
 
-**‘The Pitt’ Asks: Is TV Better in Small Doses?**\
-`The hospital drama has become the champion of a return to old-fashioned weekly viewing habits. But honestly, it makes a pretty great binge watch.`\
-https://nytimes.com/2026/01/08/arts/television/the-pitt.html
+**Fatal Shooting by ICE Follows Weeks of Turmoil in Minnesota**\
+`Residents of the state said they were reeling after a series of blows that have exposed a deepening rift between the Trump administration and Minnesota leaders.`\
+https://nytimes.com/2026/01/08/us/fatal-shooting-ice-minnesota.html
 
-**Can This Mamdani Ally Become New York’s Next Socialist in Congress?**\
-`Claire Valdez, a New York assemblywoman, will face the Brooklyn borough president in a Democratic primary race to replace Representative Nydia Velázquez.`\
-https://nytimes.com/2026/01/08/nyregion/claire-valdez-congress-mamdani.html
+**Venezuela Is the Tip of the Iceberg**\
+`In the Trump era, there are a lot of contenders for the 51st state.`\
+https://nytimes.com/2026/01/08/opinion/trump-venezuela-maduro-cuba.html
 
-**How to Plan a Caribbean Getaway in a Time of Travel Chaos**\
-`The recent military operation in Venezuela disrupted vacations to popular destinations. Here are tips for buying travel insurance and protecting your trip.`\
-https://nytimes.com/2026/01/08/travel/caribbean-venezuela-flights-tourism-insurance.html
+**Kennedy Is Telling Americans How to Eat. It’s Not Crazy Advice.**\
+`Newly released dietary guidelines emphasize protein and full-fat dairy.`\
+https://nytimes.com/2026/01/08/opinion/dietary-guidelines-protein.html
 
-**Colombia’s President Feared a U.S. Attack. Then Trump Called.**\
-`The conversation appeared to defuse a crisis that erupted after President Trump said military action against Colombia “sounds good.” President Gustavo Petro spoke to The New York Times just before the call.`\
-https://nytimes.com/2026/01/08/world/americas/colombia-petro-trump-venezuela.html
+**Josh Shapiro Begins a Re-election Bid That Carries Implications for 2028**\
+`The Pennsylvania governor starts out as a clear favorite, but Republicans are trying to make him sweat.`\
+https://nytimes.com/2026/01/08/us/politics/josh-shapiro-pennsylvania-governor-2028.html
 
-**Everything Happens at Once in Faith Ringgold’s Mini-Retrospective**\
-`A show highlights the artist’s extraordinary range with oil paintings, gouaches, figurines, textile works and ‘story quilts.’`\
-https://nytimes.com/2026/01/08/arts/design/faith-ringgold-jack-shainman.html
+**An American Couple Explored Japan for a Diamond in the Rough**\
+`With their sights set on an income-generating investment they could also live in, two Californians set out to buy a traditional home in the city of Atami.`\
+https://nytimes.com/interactive/2026/01/08/realestate/japan-homes-buy-sales.html
 
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are in Midtown, Murray Hill and Bedford-Stuyvesant.`\
-https://nytimes.com/2026/01/08/realestate/manhattan-brooklyn-homes-for-sale.html
+**Torn Map**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2026/01/08/learning/torn-map.html
 
-**Minimum Wage Rises in Some States as Workers Struggle with Basic Costs**\
-`This year, for the first time, more Americans will earn a minimum wage of $15 per hour or higher than will earn the federal minimum of $7.25 per hour.`\
-https://nytimes.com/2026/01/08/us/minimum-wage-increases.html
+**If Trump Doesn’t Bring Democracy Into Venezuela, He’ll Never Get Much Oil Out of It**\
+`Trump will soon discover that the only way to revive major American oil investments in Venezuela is to revive Venezuela’s democracy.`\
+https://nytimes.com/2026/01/08/opinion/venezuela-trump-oil-democracy.html
 
-**Homes for Sale in Connecticut and New Jersey**\
-`This week’s properties are a three-bedroom in Ridgefield, Conn., and a five-bedroom in Marlboro, N.J.`\
-https://nytimes.com/2026/01/08/realestate/new-jersey-connecticut-homes-for-sale.html
+**The Brown Shooting Suspect’s Descent From Brilliant Friend to Angry Loner**\
+`After Claudio Neves Valente was accused of killing two Brown students and a M.I.T. professor, former classmates recalled how he yearned to go to M.I.T. himself and failed, adding to his growing list of resentments.`\
+https://nytimes.com/2026/01/08/us/brown-shooting-suspect-claudio-valente-portugal.html
 
-**A Huge Increase in ‘Ground Rent’ Stuns Co-op Residents**\
-`They live on Billionaires’ Row, but they’re not billionaires. And now the residents of a 57th Street building could face a leap of more than 100 percent in their maintenance costs.`\
-https://nytimes.com/2026/01/08/nyregion/co-op-billionaires-row-maintenance-increase.html
+**5 Classical Music Albums You Can Listen to Right Now**\
+`Recent works by Gabriela Ortiz, choral music by David Lang and unreleased recordings by Radu Lupu are among our selections.`\
+https://nytimes.com/2026/01/08/arts/music/best-classical-music-albums-january-2026.html
 
