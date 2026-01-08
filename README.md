@@ -1,3 +1,7 @@
+**Steny Hoyer, Longest-Serving House Democrat, to Retire From Congress**\
+`The Maryland congressman, who served as one of his party’s top leaders, plans to depart after nearly half a century in Congress, as his party looks toward generational change.`\
+https://nytimes.com/2026/01/07/us/politics/hoyer-house-democrat-retire-congress.html
+
 **Trae Young trade grades: Can the 4-time All-Star lead the Wizards' young core?**\
 `You don't have to be a Young fan to be flabbergasted by the Hawks not receiving a any draft compensation in this deal.`\
 https://nytimes.com/athletic/6952755/2026/01/07/trae-young-trade-grades-hawks-wizards-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/07/us/politics/trump-withdraw-un-organizations.html
 **Spencer Pratt, Reality TV Star, Announces Run for Mayor as L.A. Remembers Fires**\
 `The star of “The Hills,” whose house burned in the Palisades fire, has used his social media profile to hammer Mayor Karen Bass and other California Democrats over the past year.`\
 https://nytimes.com/2026/01/07/us/spencer-pratt-mayor-los-angeles.html
-
-**Hawks trade Trae Young to Wizards for CJ McCollum, Corey Kispert**\
-`The four-time All-Star joins the Wizards hoping to rehabilitate his value, while Washington hopes he can help develop its young talent.`\
-https://nytimes.com/athletic/6949961/2026/01/07/trae-young-traded-wizards-hawks/
 
