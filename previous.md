@@ -1,3 +1,19 @@
+**The basketball reasons why the Hawks broke up with Trae Young**\
+`While Young may be a four-time All-Star, his limitations on the court were increasingly making the Hawks worse. `\
+https://nytimes.com/athletic/6955319/2026/01/08/trae-young-hawks-trade-video-analysis/
+
+**A year after Los Angeles wildfires, JJ Redick reflects on 'resilience' and loss**\
+`"The first 10 days, you're devastated," Redick said. "You're in shock and you're just trying to function in some ways."`\
+https://nytimes.com/athletic/6954828/2026/01/08/jj-redick-palisades-los-angeles-fires/
+
+**Submit your questions for Chandler Rome's upcoming Astros mailbag**\
+`After adding to their rotation, what's next for the Astros?`\
+https://nytimes.com/athletic/6955374/2026/01/08/astros-mailbag-questions-free-agency-tatsuya-imai/
+
+**How Some Dogs Build Up Their Vocabularies**\
+`Eavesdropping on their owners seems to help some toy-crazy and talented pups learn more words.`\
+https://nytimes.com/2026/01/08/science/dogs-research-vocabulary-toys.html
+
 **Former Uvalde Teacher’s Testimony Throws a Trial Into Chaos**\
 `Lawyers for a former officer charged with abandoning children in the police response accused prosecutors of withholding information. A judge ruled prosecutors had erred but denied a motion for a mistrial.`\
 https://nytimes.com/2026/01/08/us/uvalde-shooting-teacher-testimony-trial.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/08/style/the-pitt-hbo-premiere-party-noah-wyle.html
 **Betting for (by) dummies: Picks for 5 days of playoff football**\
 `Jon Greenberg and Zac Jackson make their betting picks for the CFP and the NFL wild-card round.`\
 https://nytimes.com/athletic/6954705/2026/01/08/football-betting-nfl-college-playoffs-packers-bills/
-
-**Denaturalization Is Part of Trump’s Crackdown on Immigrants**\
-`The administration is looking at Somali-born American citizens as well as other groups, but the president did not specify which.`\
-https://nytimes.com/2026/01/08/us/politics/trump-somalis-denaturalization.html
-
-**Sources: Minnesota coach Eric Ramsay to leave MLS club for West Brom**\
-`Minnesota United is left looking for a new manager on the eve of the 2026 preseason `\
-https://nytimes.com/athletic/6955209/2026/01/08/eric-ramsay-west-brom-minnesota-united-mls-cam-knowles/
-
-**Child Sexual Abuse Destroyed My Family. Here’s What Could Have Helped.**\
-`We spend billions of dollars on punishing child sexual abusers and far less on prevention. It’s not stopping the problem. We must rethink our approach.`\
-https://nytimes.com/video/opinion/100000010614232/child-sexual-abuse-destroyed-my-family-heres-what-could-have-helped.html
-
-**What Trump Told Us About the ICE Shooting**\
-`The New York Times sat down with President Trump in the Oval Office for an exclusive interview just hours after an Immigration and Customs Enforcement agent shot a 37-year-old woman in Minneapolis. Our White House correspondent Zolan Kanno-Youngs explains how the president reacted to the shooting.`\
-https://nytimes.com/video/us/100000010630711/what-trump-told-us-about-the-ice-shooting.html
 
