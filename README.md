@@ -1,3 +1,7 @@
+**Commanders' Lattimore arrested on suspicion of carrying concealed weapons**\
+`Lattimore was released pending an investigation. No charges were filed.`\
+https://nytimes.com/athletic/6955329/2026/01/08/commanders-marshon-lattimore-arrested-weapons/
+
 **2026 Directors Guild Nominations: ‘One Battle,’ ‘Sinners’ Go Head to Head**\
 `The films of Paul Thomas Anderson and Ryan Coogler have been competing all season. Also in the running are Guillermo del Toro, Josh Safdie and Chloé Zhao`\
 https://nytimes.com/2026/01/08/movies/directors-guild-nominations-one-battle-sinners.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6955374/2026/01/08/astros-mailbag-questions-free-ag
 **How Some Dogs Build Up Their Vocabularies**\
 `Eavesdropping on their owners seems to help some toy-crazy and talented pups learn more words.`\
 https://nytimes.com/2026/01/08/science/dogs-research-vocabulary-toys.html
-
-**Former Uvalde Teacher’s Testimony Throws a Trial Into Chaos**\
-`Lawyers for a former officer charged with abandoning children in the police response accused prosecutors of withholding information. A judge ruled prosecutors had erred but denied a motion for a mistrial.`\
-https://nytimes.com/2026/01/08/us/uvalde-shooting-teacher-testimony-trial.html
 
