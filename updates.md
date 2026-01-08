@@ -1,3 +1,7 @@
+**Trump Says He ‘Probably Should’ Take Obesity Drugs, but Has Not**\
+`President Trump has talked in the past about people he knows who have taken “the fat drug.”`\
+https://nytimes.com/2026/01/08/us/politics/trump-weight-obesity-drugs.html
+
 **By Killing Renee Good, ICE Sent a Message to Us All**\
 `Not even citizens are safe in Trump’s America.`\
 https://nytimes.com/2026/01/08/opinion/renee-good-minnesota-shooting-ice.html

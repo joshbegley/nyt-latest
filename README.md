@@ -1,3 +1,7 @@
+**All nine MLB teams cancel their contracts with FanDuel Sports Network**\
+`All of the MLB teams broadcast by the embattled FanDuel Sports Network have canceled their contracts with the company. `\
+https://nytimes.com/athletic/6955733/2026/01/08/mlb-fanduel-sports-network-teams-cancel-contracts/
+
 **Trump Says He ‘Probably Should’ Take Obesity Drugs, but Has Not**\
 `President Trump has talked in the past about people he knows who have taken “the fat drug.”`\
 https://nytimes.com/2026/01/08/us/politics/trump-weight-obesity-drugs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/business/general-motors-electric-vehicles-writedo
 **Atletico 1 Real Madrid 2 – Valverde's stunner, Alonso's job and Vinicius Jr's spat with Simeone**\
 `Xabi Alonso's side scraped through to Sunday's Supercopa de Espana final against Barcelona`\
 https://nytimes.com/athletic/6942410/2026/01/08/atletico-1-real-madrid-2-valverde-alonso-rodrygo/
-
-**You Don’t Need a Trip to Florida, You Just Need a Cozy Restaurant**\
-`Because the only true cure for the winter blues is dinner by candlelight.`\
-https://nytimes.com/2026/01/08/dining/you-dont-need-a-trip-to-florida-you-just-need-a-cozy-restaurant.html
 

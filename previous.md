@@ -1,3 +1,7 @@
+**Trump Says He ‘Probably Should’ Take Obesity Drugs, but Has Not**\
+`President Trump has talked in the past about people he knows who have taken “the fat drug.”`\
+https://nytimes.com/2026/01/08/us/politics/trump-weight-obesity-drugs.html
+
 **By Killing Renee Good, ICE Sent a Message to Us All**\
 `Not even citizens are safe in Trump’s America.`\
 https://nytimes.com/2026/01/08/opinion/renee-good-minnesota-shooting-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6942410/2026/01/08/atletico-1-real-madrid-2-valverd
 **You Don’t Need a Trip to Florida, You Just Need a Cozy Restaurant**\
 `Because the only true cure for the winter blues is dinner by candlelight.`\
 https://nytimes.com/2026/01/08/dining/you-dont-need-a-trip-to-florida-you-just-need-a-cozy-restaurant.html
-
-**Trump’s Response to The Fatal ICE Interaction In Minnesota Hours After It Happened**\
-`New York Times reporters pressed Trump on his conclusion that the victim in Minneapolis, Renee Nicole Good, tried to run over the agent. A Times analysis of footage from three camera angles showed the motorist was driving away from — not toward — a federal officer when he opened fire.`\
-https://nytimes.com/video/us/politics/100000010632316/trump-minnesota-immigration.html
 
