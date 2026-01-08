@@ -1,3 +1,15 @@
+**Trump ‘Always’ Respects Election Results, but in the U.S., He Says They’re ‘Rigged’**\
+`Over the years, the president has consistently sought to undermine faith in the voting process.`\
+https://nytimes.com/2026/01/08/us/politics/trump-elections.html
+
+**Hochul and Mamdani Announce Plan for Universal Child Care**\
+`Gov. Kathy Hochul and Mayor Zohran Mamdani announced a plan on Thursday to vastly expand free and low-cost child care for families across the state in the coming years and add programs for 2-year-olds.`\
+https://nytimes.com/video/nyregion/100000010632026/hochul-mamdani-new-york-universal-child-care.html
+
+**Court Records Reveal Details of ICE Agent’s Previous Dragging Incident**\
+`The agent who shot a woman in Minneapolis on Wednesday was pulled about 100 yards by a car last year while firing a stun gun at the driver. A cut on his arm required 20 stitches.`\
+https://nytimes.com/2026/01/08/us/ice-agent-jonathan-ross-minneapolis-shooting.html
+
 **Court Records Reveal Details of ICE Agent’s Previous Dragging Incident**\
 `The agent who shot a woman in Minneapolis on Wednesday was pulled about 100 yards by a car last year while firing a stun gun at the driver. A cut on his arm required 20 stitches.`\
 https://nytimes.com/2026/01/08/us/ice-agent-minneapolis-shooting-minnesota-woman.html

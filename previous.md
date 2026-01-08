@@ -1,6 +1,14 @@
+**Trump ‘Always’ Respects Election Results, but in the U.S., He Says They’re ‘Rigged’**\
+`Over the years, the president has consistently sought to undermine faith in the voting process.`\
+https://nytimes.com/2026/01/08/us/politics/trump-elections.html
+
+**Hochul and Mamdani Announce Plan for Universal Child Care**\
+`Gov. Kathy Hochul and Mayor Zohran Mamdani announced a plan on Thursday to vastly expand free and low-cost child care for families across the state in the coming years and add programs for 2-year-olds.`\
+https://nytimes.com/video/nyregion/100000010632026/hochul-mamdani-new-york-universal-child-care.html
+
 **Court Records Reveal Details of ICE Agent’s Previous Dragging Incident**\
 `The agent who shot a woman in Minneapolis on Wednesday was pulled about 100 yards by a car last year while firing a stun gun at the driver. A cut on his arm required 20 stitches.`\
-https://nytimes.com/2026/01/08/us/ice-agent-minneapolis-shooting-minnesota-woman.html
+https://nytimes.com/2026/01/08/us/ice-agent-jonathan-ross-minneapolis-shooting.html
 
 **A Fierce Debate With Polymarket: Did the U.S. ‘Invade’ Venezuela?**\
 `Polymarket users bet on whether the U.S. would invade Venezuela, but the prediction market said Venezuelan president’s capture did not constitute an invasion.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6955636/2026/01/08/cavaliers-vs-timberwolves-stream
 **How to watch Wild vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Minnesota Wild play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6955634/2026/01/08/wild-vs-kraken-stream-how-to-watch-jan-8/
-
-**How to watch Blue Jackets vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6955630/2026/01/08/blue-jackets-vs-golden-knights-stream-how-to-watch-jan-8/
-
-**How to watch Senators vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6955627/2026/01/08/senators-vs-avalanche-stream-how-to-watch-jan-8/
 
