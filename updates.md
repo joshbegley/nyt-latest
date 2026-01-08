@@ -1,3 +1,19 @@
+**Victim in ICE Shooting Is Remembered for Her Kindness**\
+`Renee Good, 37, a resident of Minneapolis, was mourned on Wednesday as a cherished member of the community.`\
+https://nytimes.com/2026/01/07/us/renee-nicole-good-minneapolis-ice.html
+
+**Trump and Colombian President Speak by Phone Amid Escalating Tensions**\
+`The American president said a White House visit with Gustavo Petro was being arranged by the secretary of state.`\
+https://nytimes.com/2026/01/07/world/americas/trump-petro-colombia-call.html
+
+**One Video of a Fatal ICE Shooting, Two Opposite Views**\
+`In a polarized country, high-ranking officials were offering definitive, and starkly contrasting, accounts long before the facts could be established.`\
+https://nytimes.com/2026/01/07/us/minneapolis-ice-shooting-videos.html
+
+**3 arrested in connection with Shedeur Sanders burglary, 1 suspect at large**\
+`The Cleveland Browns rookie quarterback's home was broken into while he was playing his first NFL game in November.`\
+https://nytimes.com/athletic/6952617/2026/01/07/shedeur-sanders-burglary-arrests/
+
 **Day 4: Do a Brain Teaser to Sharpen Your Mind**\
 `Trying new things can help boost cognitive reserve. Today, we’ll challenge you with a game.`\
 https://nytimes.com/interactive/2026/01/07/well/brain-health-games-teasers.html
