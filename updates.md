@@ -1,3 +1,7 @@
+**How to watch Louisville vs. Miami (FL) women's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Miami Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6953772/2026/01/08/louisville-vs-miami-fl-stream-how-to-watch-jan-8/
+
 **Science Practice | A Study on Reading for Fun**\
 `Fewer people are reading for fun, a recent study finds.`\
 https://nytimes.com/2026/01/08/learning/science-practice-a-study-on-reading-for-fun.html
