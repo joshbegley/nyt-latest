@@ -1,9 +1,17 @@
+**Day 4: Do a Brain Teaser to Sharpen Your Mind**\
+`Trying new things can help boost cognitive reserve. Today, we’ll challenge you with a game.`\
+https://nytimes.com/interactive/2026/01/07/well/brain-health-games-teasers.html
+
+**Federal Agent Fatally Shoots Woman in Minneapolis**\
+`Federal officials claimed that the 37-year-old woman was trying to kill agents with a car in Minneapolis, while city and state officials disputed their account.`\
+https://nytimes.com/video/us/politics/100000010630767/federal-agent-fatally-shoots-woman-in-minneapolis.html
+
 **Trump Proposes Huge Increase in Military Spending**\
 `The president’s proposal for a $600 billion increase comes as his administration pushes for American imperialism.`\
 https://nytimes.com/2026/01/07/us/politics/trump-military-spending-budget.html
 
 **Cubs land Edward Cabrera in trade with Marlins, but can they fix his fastballs?**\
-`Cabrera throws hard but his fastballs are easy for hitters to square up. Fixing that could unlock a No. 2 starter for the Cubs.`\
+`Cabrera throws hard, but his fastballs are easy for hitters to square up. Fixing that could unlock a No. 2 starter for the Cubs.`\
 https://nytimes.com/athletic/6952279/2026/01/07/trade-analysis-edward-cabrera-owen-caissie-cubs-marlins/
 
 **University to Pay $500,000 to Professor It Fired Over Charlie Kirk Post**\
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010630469/trump-officials-flip-food-pyramid-w
 **How Venezuela Is Already Rattling One Republican Primary**\
 `Most Republicans are on board with Trump’s aggression. Not Thomas Massie.`\
 https://nytimes.com/2026/01/07/us/politics/venezuela-massie-republican-primary-kentucky.html
-
-**Fletcher says he will lead Man Utd against Brighton on Sunday**\
-`United's interim head coach said director of football Jason Wilcox and chief executive Omar Berrada have asked him to take the game.`\
-https://nytimes.com/athletic/6952328/2026/01/07/darren-fletcher-man-utd-manager-next/
-
-**What to make of the Mets' interest in Kyle Tucker**\
-`The Mets, Dodgers and Blue Jays are among Tucker’s options, league sources confirmed.`\
-https://nytimes.com/athletic/6951582/2026/01/07/mets-kyle-tucker-mlb-free-agency/
 

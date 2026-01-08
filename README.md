@@ -1,3 +1,19 @@
+**Victim in ICE Shooting Is Remembered for Her Kindness**\
+`Renee Good, 37, a resident of Minneapolis, was mourned on Wednesday as a cherished member of the community.`\
+https://nytimes.com/2026/01/07/us/renee-nicole-good-minneapolis-ice.html
+
+**Trump and Colombian President Speak by Phone Amid Escalating Tensions**\
+`The American president said a White House visit with Gustavo Petro was being arranged by the secretary of state.`\
+https://nytimes.com/2026/01/07/world/americas/trump-petro-colombia-call.html
+
+**One Video of a Fatal ICE Shooting, Two Opposite Views**\
+`In a polarized country, high-ranking officials were offering definitive, and starkly contrasting, accounts long before the facts could be established.`\
+https://nytimes.com/2026/01/07/us/minneapolis-ice-shooting-videos.html
+
+**3 arrested in connection with Shedeur Sanders burglary, 1 suspect at large**\
+`The Cleveland Browns rookie quarterback's home was broken into while he was playing his first NFL game in November.`\
+https://nytimes.com/athletic/6952617/2026/01/07/shedeur-sanders-burglary-arrests/
+
 **Day 4: Do a Brain Teaser to Sharpen Your Mind**\
 `Trying new things can help boost cognitive reserve. Today, we’ll challenge you with a game.`\
 https://nytimes.com/interactive/2026/01/07/well/brain-health-games-teasers.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/07/us/austin-peay-professor-charlie-kirk-settlement-
 **Arthur Cohn, Film Producer With an Oscar-Winning Touch, Dies at 98**\
 `Six of his movies received Academy Awards, including the Italian drama “The Garden of the Finzi-Continis” and the trade-union strike documentary “American Dream.”`\
 https://nytimes.com/2026/01/07/movies/arthur-cohn-dead.html
-
-**The ICE Shooting Came During an Operation Focused on Somali Immigrants**\
-`Federal immigration officials have stepped up enforcement activity in Minnesota amid a fraud scandal there that includes many people of Somali origin.`\
-https://nytimes.com/2026/01/07/us/ice-minneapolis-somalis-immigration.html
-
-**Tiny Love Stories: ‘Either a Good Omen or a Nightmare’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2026/01/07/style/tiny-modern-love-stories-either-a-good-omen-or-a-nightmare.html
-
-**Trump Officials Flip Food Pyramid With New Dietary Guidelines**\
-`The Trump administration released new dietary guidelines on Wednesday that flipped the food pyramid on its head, putting steak, cheese and whole milk near the top.`\
-https://nytimes.com/video/us/100000010630469/trump-officials-flip-food-pyramid-with-new-dietary-guidelines.html
-
-**How Venezuela Is Already Rattling One Republican Primary**\
-`Most Republicans are on board with Trump’s aggression. Not Thomas Massie.`\
-https://nytimes.com/2026/01/07/us/politics/venezuela-massie-republican-primary-kentucky.html
 
