@@ -1,3 +1,11 @@
+**New Jersey Is Latest State to Ban Student Phones in Schools**\
+`The restrictions, signed into law by Gov. Philip D. Murphy on Thursday as one of his final acts in office, will take effect during the 2026-2027 school year.`\
+https://nytimes.com/2026/01/08/nyregion/nj-school-cellphone-ban-phil-murphy.html
+
+**Vance Announces New Justice Dept. Fraud Post to Be ‘Run Out of the White House’**\
+`The assertion was a brazen effort to toss out the traditional boundaries that have long existed between the White House and investigations conducted by federal law enforcement.`\
+https://nytimes.com/2026/01/08/us/jd-vance-justice-dept-fraud-post.html
+
 **Cooper Union Settles Jewish Students’ Suit and Alters Protest Policies**\
 `The New York City college had been accused of tolerating discrimination against those who believe in Zionism following a pro-Palestinian protest that trapped students inside a library.`\
 https://nytimes.com/2026/01/08/nyregion/cooper-union-jewish-students-lawsuit-antisemitism.html
