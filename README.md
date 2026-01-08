@@ -1,3 +1,11 @@
+**Atletico 1 Real Madrid 2 — Breaking down Valverde's stunner, where does this leave Alonso?**\
+`Xabi Alonso's side scraped through to Sunday's Supercopa de Espana final against Barcelona`\
+https://nytimes.com/athletic/6942410/2026/01/08/atletico-1-real-madrid-2-valverde-alonso-rodrygo/
+
+**You Don’t Need a Trip to Florida, You Just Need a Cozy Restaurant**\
+`Because the only true cure for the winter blues is dinner by candlelight.`\
+https://nytimes.com/2026/01/08/dining/you-dont-need-a-trip-to-florida-you-just-need-a-cozy-restaurant.html
+
 **Trump’s Response to The Fatal ICE Interaction In Minnesota Hours After It Happened**\
 `New York Times reporters pressed Trump on his conclusion that the victim in Minneapolis, Renee Nicole Good, tried to run over the agent. A Times analysis of footage from three camera angles showed the motorist was driving away from — not toward — a federal officer when he opened fire.`\
 https://nytimes.com/video/us/politics/100000010632316/trump-minnesota-immigration.html
@@ -19,7 +27,7 @@ https://nytimes.com/video/nyregion/100000010632026/hochul-mamdani-new-york-unive
 https://nytimes.com/2026/01/08/us/ice-agent-jonathan-ross-minneapolis-shooting.html
 
 **A Fierce Debate With Polymarket: Did the U.S. ‘Invade’ Venezuela?**\
-`Polymarket users bet on whether the U.S. would invade Venezuela, but the prediction market said Venezuelan president’s capture did not constitute an invasion.`\
+`Polymarket users bet on whether the U.S. would invade Venezuela, but the prediction market said the Venezuelan president’s capture did not constitute an invasion.`\
 https://nytimes.com/2026/01/08/business/polymarket-venezuela-invasion-bets.html
 
 **How to watch Heat vs. Bulls: Time, TV, streaming**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6955650/2026/01/08/heat-vs-bulls-stream-how-to-watc
 **How to watch Oilers vs. Jets: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the Winnipeg Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6955648/2026/01/08/oilers-vs-jets-stream-how-to-watch-jan-8/
-
-**How to watch Mavericks vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6955643/2026/01/08/mavericks-vs-jazz-stream-how-to-watch-jan-8/
-
-**How to watch Islanders vs. Predators: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6955640/2026/01/08/islanders-vs-predators-stream-how-to-watch-jan-8/
 
