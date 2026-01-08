@@ -1,3 +1,15 @@
+**Commanders' Lattimore arrested on suspicion of carrying concealed weapons**\
+`Lattimore was released pending an investigation. No charges were filed.`\
+https://nytimes.com/athletic/6955329/2026/01/08/commanders-marshon-lattimore-arrested-weapons/
+
+**2026 Directors Guild Nominations: ‘One Battle,’ ‘Sinners’ Go Head to Head**\
+`The films of Paul Thomas Anderson and Ryan Coogler have been competing all season. Also in the running are Guillermo del Toro, Josh Safdie and Chloé Zhao`\
+https://nytimes.com/2026/01/08/movies/directors-guild-nominations-one-battle-sinners.html
+
+**Is John Harbaugh the Giants' dream hire at head coach? Breaking down each known candidate**\
+`With help from The Athletic's beat writers, we examine the candidates the Giants are bringing in for interviews to be their next head coach.`\
+https://nytimes.com/athletic/6948299/2026/01/08/ny-giants-head-coach-candidates-list-john-harbaugh-kevin-stefanski/
+
 **Trump Says ‘Only Time Will Tell’ How Long U.S. Controls Venezuela**\
 `President Trump did not say exactly how long the the United states would control Venezuela, but said that it could last years.`\
 https://nytimes.com/video/us/politics/100000010632228/trump-venezuela-rubio.html

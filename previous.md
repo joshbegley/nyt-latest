@@ -1,3 +1,15 @@
+**Commanders' Lattimore arrested on suspicion of carrying concealed weapons**\
+`Lattimore was released pending an investigation. No charges were filed.`\
+https://nytimes.com/athletic/6955329/2026/01/08/commanders-marshon-lattimore-arrested-weapons/
+
+**2026 Directors Guild Nominations: ‘One Battle,’ ‘Sinners’ Go Head to Head**\
+`The films of Paul Thomas Anderson and Ryan Coogler have been competing all season. Also in the running are Guillermo del Toro, Josh Safdie and Chloé Zhao`\
+https://nytimes.com/2026/01/08/movies/directors-guild-nominations-one-battle-sinners.html
+
+**Is John Harbaugh the Giants' dream hire at head coach? Breaking down each known candidate**\
+`With help from The Athletic's beat writers, we examine the candidates the Giants are bringing in for interviews to be their next head coach.`\
+https://nytimes.com/athletic/6948299/2026/01/08/ny-giants-head-coach-candidates-list-john-harbaugh-kevin-stefanski/
+
 **Trump Says ‘Only Time Will Tell’ How Long U.S. Controls Venezuela**\
 `President Trump did not say exactly how long the the United states would control Venezuela, but said that it could last years.`\
 https://nytimes.com/video/us/politics/100000010632228/trump-venezuela-rubio.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6955374/2026/01/08/astros-mailbag-questions-free-ag
 **How Some Dogs Build Up Their Vocabularies**\
 `Eavesdropping on their owners seems to help some toy-crazy and talented pups learn more words.`\
 https://nytimes.com/2026/01/08/science/dogs-research-vocabulary-toys.html
-
-**Former Uvalde Teacher’s Testimony Throws a Trial Into Chaos**\
-`Lawyers for a former officer charged with abandoning children in the police response accused prosecutors of withholding information. A judge ruled prosecutors had erred but denied a motion for a mistrial.`\
-https://nytimes.com/2026/01/08/us/uvalde-shooting-teacher-testimony-trial.html
-
-**Australia Faces Critical Fire Warnings Amid Record-Breaking Heat Wave**\
-`Temperatures are well above 100 degrees Fahrenheit in much of the country, and forecasters warned of potentially catastrophic fire conditions on Friday.`\
-https://nytimes.com/2026/01/08/weather/australia-heat-wave-fire.html
-
-**ICE Killing in Minnesota: A ‘Blatant and Tragic Use of Deadly Force’**\
-`Readers react to news reports and video of the fatal shooting of a 37-year-old woman by ICE agents.`\
-https://nytimes.com/2026/01/08/opinion/ice-killing-minnesota.html
 
