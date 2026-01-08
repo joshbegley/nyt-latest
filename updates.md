@@ -1,3 +1,7 @@
+**Trae Young trade grades: Can the 4-time All-Star lead the Wizards' young core?**\
+`You don't have to be a Young fan to be flabbergasted by the Hawks not receiving a any draft compensation in this deal.`\
+https://nytimes.com/athletic/6952755/2026/01/07/trae-young-trade-grades-hawks-wizards-nba/
+
 **Trae Young trade grades: Can the four-time All-Star lead the Wizards' young core?**\
 `You don't have to be a Young fan to be flabbergasted by the Hawks not receiving a any draft compensation in this deal.`\
 https://nytimes.com/athletic/6952755/2026/01/07/trae-young-trade-grades-hawks-wizards-nba/
