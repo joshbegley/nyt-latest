@@ -1,3 +1,7 @@
+**Minnesota Was Long at Odds With the Trump Administration. It’s Boiled Over.**\
+`The contradicting accounts of the ICE shooting in Minneapolis from the federal government and officials in Minnesota were the latest episode in a dispute that has been building for weeks.`\
+https://nytimes.com/2026/01/07/us/minnesota-shooting-trump-walz-frey.html
+
 **Hall of Fame goalie Glenn Hall dies at 94**\
 `Hall played 502 consecutive NHL games — a league record that is unlikely to ever be broken.`\
 https://nytimes.com/athletic/6952821/2026/01/07/glenn-hall-obit-hall-of-fame-goalie/

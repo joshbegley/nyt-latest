@@ -6,7 +6,7 @@ https://nytimes.com/2026/01/07/us/minnesota-shooting-trump-walz-frey.html
 `Hall played 502 consecutive NHL games — a league record that is unlikely to ever be broken.`\
 https://nytimes.com/athletic/6952821/2026/01/07/glenn-hall-obit-hall-of-fame-goalie/
 
-**What is the UNFCCC and Why Is the U.S. Pulling Out?**\
+**What Is the UNFCCC and Why Is the U.S. Pulling Out?**\
 `The Trump administration said Wednesday that the United States was withdrawing from 66 international agreements, including a major climate change treaty.`\
 https://nytimes.com/2026/01/07/climate/what-is-unfccc-climate-treaty.html
 

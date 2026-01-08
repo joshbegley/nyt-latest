@@ -1,3 +1,7 @@
+**Minnesota Was Long at Odds With the Trump Administration. It’s Boiled Over.**\
+`The contradicting accounts of the ICE shooting in Minneapolis from the federal government and officials in Minnesota were the latest episode in a dispute that has been building for weeks.`\
+https://nytimes.com/2026/01/07/us/minnesota-shooting-trump-walz-frey.html
+
 **Hall of Fame goalie Glenn Hall dies at 94**\
 `Hall played 502 consecutive NHL games — a league record that is unlikely to ever be broken.`\
 https://nytimes.com/athletic/6952821/2026/01/07/glenn-hall-obit-hall-of-fame-goalie/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/01/07/well/brain-health-games-teasers.html
 **Federal Agent Fatally Shoots Woman in Minneapolis**\
 `Federal officials claimed that the 37-year-old woman was trying to kill agents with a car in Minneapolis, while city and state officials disputed their account.`\
 https://nytimes.com/video/us/politics/100000010630767/federal-agent-fatally-shoots-woman-in-minneapolis.html
-
-**Trump Proposes Huge Increase in Military Spending**\
-`The president’s proposal for a $600 billion increase comes as his administration pushes for American imperialism.`\
-https://nytimes.com/2026/01/07/us/politics/trump-military-spending-budget.html
 
