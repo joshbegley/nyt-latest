@@ -1,3 +1,23 @@
+**Nigeria's AFCON bonuses issue resolved, claims finance minister**\
+`Reports suggested a standoff similar to the one that took place prior to their World Cup play-off victory over Gabon on November 13.`\
+https://nytimes.com/athletic/6950445/2026/01/08/nigeria-afcon-bonuses-payments/
+
+**Brazil, France, Colombia, Croatia to play March pre-World Cup games in USA**\
+`Four World Cup contenders will be coming to the U.S. a few months early to continue their preparations for the summer`\
+https://nytimes.com/athletic/6952016/2026/01/08/brazil-france-colombia-croatia-march-friendlies-world-cup-usa/
+
+**Ducks at midseason: The good, bad and ugly — and is a playoff spot still realistic?**\
+`The postseason seemed to be a certainty just a few weeks ago. What has gone wrong, and what do the Ducks need to rediscover?`\
+https://nytimes.com/athletic/6952076/2026/01/08/anaheim-ducks-midseason-analysis-playoffs/
+
+**On signs padel world No. 1 Arturo Coello as it seeks to replicate tennis success**\
+`The Spaniard is On's first signing in padel as it seeks to replicate its success with established stars and rising talent in tennis.`\
+https://nytimes.com/athletic/6942887/2026/01/08/padel-arturo-coello-on-clothing-shoes/
+
+**U.S. Trade Deficit Fell to Lowest Level Since 2009, Latest Data Show**\
+`The monthly trade deficit continued to shrink in October after President Trump imposed sweeping tariffs on foreign imports.`\
+https://nytimes.com/2026/01/08/business/economy/us-trade-deficit-tariffs.html
+
 **Aryna Sabalenka criticizes 'insane' tennis schedule, says tours 'follow their own interests'**\
 `Sabalenka said she will miss some events this year despite the penalties she will receive for doing so.`\
 https://nytimes.com/athletic/6953670/2026/01/08/aryna-sabalenka-tennis-schedule-wta/
