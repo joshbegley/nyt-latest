@@ -1,3 +1,15 @@
+**AFCON 2025 kits ranked: Tunisian carpets, a massive eagle and Uganda's FA goes it alone**\
+`The kits at the Africa Cup of Nations never disappoint, and this year's efforts are no different`\
+https://nytimes.com/athletic/6931851/2026/01/08/afcon-2025-home-kits-ranked/
+
+**Barcelona decided not to keep Joao Cancelo in 2024, but re-signing him now makes sense**\
+`Cancelo is not the centre-back Hansi Flick was after, but he is a defensive reinforcement at a time when Barca need that most`\
+https://nytimes.com/athletic/6950105/2026/01/08/joao-cancelo-barcelona-loan-analysis/
+
+**Arsenal vs Liverpool: Biggest change at each club? Tactical battles? Key players? Predictions?**\
+`The Premier League leaders take on the reigning champions at the Emirates - two of our writers discuss the talking points`\
+https://nytimes.com/athletic/6948982/2026/01/08/arsenal-liverpool-arteta-slot-predictions/
+
 **For Manchester City, this might feel like last season all over again – but it isn’t**\
 `The campaign has gone off the rails in the last week, but there is no need to rip things up and start again.`\
 https://nytimes.com/athletic/6952338/2026/01/08/man-city-premier-league-title-race/
