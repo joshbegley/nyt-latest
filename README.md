@@ -1,3 +1,7 @@
+**The Windup: Cabrera's a Cub 👀**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6954432/2026/01/08/edward-cabrera-cubs-the-windup/
+
 **Do You Really Need Closure?**\
 `And what exactly does it mean, anyway?`\
 https://nytimes.com/2026/01/08/well/mind/psych101-closure.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6906445/2026/01/08/college-football-transfer-portal
 **‘Greenland 2: Migration’ Review: The New World**\
 `Gerard Butler returns for more earthshaking action in this crowd-pleasing postapocalyptic thriller.`\
 https://nytimes.com/2026/01/08/movies/greenland-2-migration-review.html
-
-**Spurs' Kudus out until March, Bentancur has 'big' hamstring injury**\
-`Spurs head coach Thomas Frank also said that Dejan Kulusevski is still at least "three to four weeks" away from training on grass.`\
-https://nytimes.com/athletic/6954040/2026/01/08/tottenham-injury-news-kudus-bentancur-bergvall/
 
