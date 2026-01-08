@@ -1,3 +1,7 @@
+**Science Practice | A Study on Reading for Fun**\
+`Fewer people are reading for fun, a recent study finds.`\
+https://nytimes.com/2026/01/08/learning/science-practice-a-study-on-reading-for-fun.html
+
 **How Jim Harbaugh kept the Chargers afloat and led them back to the playoffs**\
 `Injuries to the pillars of the Chargers' offensive line could've cratered expectations. Harbaugh wouldn't let that happen. `\
 https://nytimes.com/athletic/6952710/2026/01/08/jim-harbaugh-chargers-nfl-playoffs-patriots/

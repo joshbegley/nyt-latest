@@ -1,3 +1,7 @@
+**How to watch Louisville vs. Miami (FL) women's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Miami Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6953772/2026/01/08/louisville-vs-miami-fl-stream-how-to-watch-jan-8/
+
 **Science Practice | A Study on Reading for Fun**\
 `Fewer people are reading for fun, a recent study finds.`\
 https://nytimes.com/2026/01/08/learning/science-practice-a-study-on-reading-for-fun.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6953526/2026/01/08/giannis-antetokounmpo-bucks-trad
 **Former Leeds and Wales midfielder Yorath dies aged 75**\
 `Several clubs associated with Yorath, father of BBC presenter Gabby Logan, have paid tribute to the former midfielder and manager.`\
 https://nytimes.com/athletic/6953634/2026/01/08/terry-yorath-death-news-leeds-wales/
-
-**An Oval Office Viewing**\
-`During an interview with our reporters, President Trump discussed a video of an ICE agent fatally shooting a woman in Minneapolis.`\
-https://nytimes.com/2026/01/08/briefing/an-oval-office-viewing.html
 
