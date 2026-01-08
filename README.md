@@ -1,3 +1,7 @@
+**Leeds' Elland Road expansion plans approved by council**\
+`The application to redevelop Elland Road and extend stadium capacity to around 53,000 has been approved by Leeds City Council.`\
+https://nytimes.com/athletic/6954070/2026/01/08/leeds-elland-road-stadium-plans/
+
 **This Republican Thinks His Party Is ‘Gaslighting’ on Venezuela**\
 `Representative Thomas Massie, a rare Republican critic of President Trump’s military intervention, explained his concerns in an interview with The New York Times.`\
 https://nytimes.com/2026/01/08/us/politics/thomas-massie-trump-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6951850/2026/01/08/bears-offensive-line-joe-thuney-
 **French Researcher and Russian Basketball Player Released in a Prisoner Swap**\
 `Laurent Vinatier, a French citizen and researcher detained, was freed in exchange for the release of Daniil Kasatkin, a Russian basketball player.`\
 https://nytimes.com/2026/01/08/world/europe/france-russia-prisoner-swap.html
-
-**NASA Considers Early Return From I.S.S. After Medical Issue**\
-`NASA said it canceled a spacewalk planned for Thursday after an astronaut had an undisclosed medical issue on the International Space Station.`\
-https://nytimes.com/2026/01/08/science/space/nasa-astronaut-medical-problem.html
 
