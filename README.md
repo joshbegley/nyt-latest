@@ -1,3 +1,11 @@
+**The Pulse: Vibe-checking this college football moment**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6950969/2026/01/08/cfb-playoff-ole-miss-miami-the-pulse/
+
+**Former referee David Coote avoids prison for making indecent image of child**\
+`The 43-year-old has been handed a nine-month sentence, suspended for two years. He must also complete 150 hours of unpaid work.`\
+https://nytimes.com/athletic/6951810/2026/01/08/david-coote-sentence-referee/
+
 **China Is Investigating Meta’s Latest A.I. Acquisition**\
 `Regulators said they will look at whether the deal for Manus, a Singapore start-up with Chinese roots, complied with China’s export and investment rules.`\
 https://nytimes.com/2026/01/08/business/meta-manus-china-ai.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6952095/2026/01/08/browns-coaching-candidates-kevin
 **Vikings' offseason of uncertainty: What we're hearing about Brian Flores, the O-line, more**\
 `Could Flores leave for another coordinator job? How will the Vikings shore up their offensive line? How can they create salary-cap space?`\
 https://nytimes.com/athletic/6950749/2026/01/08/vikings-offseason-brian-flores-offensive-line/
-
-**Cowboys planning to ‘cast a wide net’ in search for their next defensive coordinator**\
-`Dallas’ previous five defensive coordinators, dating back to 2014, each had previous NFL head-coaching experience.`\
-https://nytimes.com/athletic/6952900/2026/01/08/cowboys-defensive-coordinator-search/
-
-**University of California Reports Record Enrollment Despite Trump Pressure**\
-`Enrollment increased to more than 301,000 as the system prepared for a budget debate in Sacramento.`\
-https://nytimes.com/2026/01/08/us/university-of-california-record-enrollment.html
 

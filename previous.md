@@ -1,40 +1,40 @@
+**China Is Investigating Meta’s Latest A.I. Acquisition**\
+`Regulators said they will look at whether the deal for Manus, a Singapore start-up with Chinese roots, complied with China’s export and investment rules.`\
+https://nytimes.com/2026/01/08/business/meta-manus-china-ai.html
+
+**What a revamped offensive line has meant for the Bears in 2025**\
+`A lot of the Bears' success in 2025 can be credited to the three newcomers on the O-line: Joe Thuney, Jonah Jackson and Drew Dalman.`\
+https://nytimes.com/athletic/6951850/2026/01/08/bears-offensive-line-joe-thuney-drew-dalman/
+
+**Why Sidney Crosby, NHL’s most regimented player, struggles with time off**\
+`Sidney Crosby is in a fight with his team's schedule, but his teammates figure he'll overcome that, too. `\
+https://nytimes.com/athletic/6948368/2026/01/08/penguins-sidney-crosby-schedule-scoring-nhl/
+
+**The greatest Maple Leaf? How Auston Matthews joined the conversation in 9 years**\
+`Inside Auston Matthews’ "mind-blowing" thrashing of Maple Leafs record books.`\
+https://nytimes.com/athletic/6949598/2026/01/08/auston-matthews-maple-leafs-goal-record/
+
+**Miami vs. Ole Miss in CFP semifinal: TV, simulcast info for Fiesta Bowl matchup**\
+`It's a rather unlikely desert draw in the Fiesta Bowl. Miami and Ole Miss tangle up for the College Football Playoff semifinal.`\
+https://nytimes.com/athletic/6946737/2026/01/08/miami-ole-miss-college-football-playoff-cfp-tv/
+
+**Panthers face tall task in Matthew Stafford, but have history, reinforcements on their side**\
+`The Panthers didn't have CB Jaycee Horn, safety Tre'von Moehrig and LBs Christian Rozeboom and Claudin Cherelus in the first meeting.`\
+https://nytimes.com/athletic/6952696/2026/01/08/panthers-defense-matthew-stafford-rams-preview/
+
+**Who are Browns' coaching candidates to replace Kevin Stefanski?**\
+`Cleveland will likely conduct a wide-ranging search for its next head coach. Here are some names on the market whom they could consider. `\
+https://nytimes.com/athletic/6952095/2026/01/08/browns-coaching-candidates-kevin-stefanski-fired/
+
+**Vikings' offseason of uncertainty: What we're hearing about Brian Flores, the O-line, more**\
+`Could Flores leave for another coordinator job? How will the Vikings shore up their offensive line? How can they create salary-cap space?`\
+https://nytimes.com/athletic/6950749/2026/01/08/vikings-offseason-brian-flores-offensive-line/
+
+**Cowboys planning to ‘cast a wide net’ in search for their next defensive coordinator**\
+`Dallas’ previous five defensive coordinators, dating back to 2014, each had previous NFL head-coaching experience.`\
+https://nytimes.com/athletic/6952900/2026/01/08/cowboys-defensive-coordinator-search/
+
 **University of California Reports Record Enrollment Despite Trump Pressure**\
 `Enrollment increased to more than 301,000 as the system prepared for a budget debate in Sacramento.`\
 https://nytimes.com/2026/01/08/us/university-of-california-record-enrollment.html
-
-**How Jacob Fowler absorbed and created a Bell Centre moment he is motivated to re-create**\
-`The Canadiens' rookie goaltender continues to defy conventional wisdom and make it more difficult to send him back to the AHL.`\
-https://nytimes.com/athletic/6953277/2026/01/08/canadiens-jacob-fowler-bell-centre-moment/
-
-**Bruins trade tiers: Who could be moved by the deadline to advance the rebuild?**\
-`The Bruins look more like a non-playoff team with each game. If this continues, who could be available? Breaking down the roster.`\
-https://nytimes.com/athletic/6950720/2026/01/08/bruins-trade-tiers-zacha-mittelstadt/
-
-**NHL trade board 3.0: New top targets as activity picks up and sellers emerge**\
-`As teams continue to chart their paths forward, we refresh the Big Board, adding 10 new names, including five in the top 11.`\
-https://nytimes.com/athletic/6949917/2026/01/08/nhl-trade-board-panarin-sherwood-thomas/
-
-**Rosenthal: The Cubs traded for an impact starter. Now they need to splurge on a top free-agent bat**\
-`After adding Edward Cabrera, the Cubs will have no excuse to be caught empty-handed when the big free-agent hitters come off the board.`\
-https://nytimes.com/athletic/6952845/2026/01/08/cubs-free-agency-hitter-bregman-bichette-tucker/
-
-**John Schneider’s vindication: How GM’s bold swings made Seahawks contenders again**\
-`Schneider's wheeling and dealing last spring has paid massive dividends, with the Seahawks now atop the NFC and Super Bowl favorites.`\
-https://nytimes.com/athletic/6952672/2026/01/08/seahawks-gm-john-schneider-playoffs/
-
-**The Eagles have the NFL's best red-zone offense. Can the 49ers stop it?**\
-`The Eagles expect the 49ers' red zone defense to be a good test.`\
-https://nytimes.com/athletic/6948980/2026/01/08/eagles-red-zone-offense-49ers-defense/
-
-**For NHL players, a relaxed dress code means freedom in fashion choices — including suits**\
-`League mandates on wearing suits and ties are out, and individual style choices such as T-shirts and jeans are in. But not for everybody.`\
-https://nytimes.com/athletic/6859225/2026/01/08/nhl-players-dress-code-fashion-choices/
-
-**Blackhawks rookie center Ryan Greene focusing on the chances, fighting for the finish**\
-`The 22-year-old hasn't scored since November, but he's weathered the drought thanks to his mental toughness.`\
-https://nytimes.com/athletic/6953269/2026/01/08/blackhawks-ryan-greene-scoring-drought/
-
-**Can Knicks fix defense internally or do they need a trade?**\
-`The Knicks are in the midst of their worst spell of the season, and the defense has been putrid. Do they need to make a move?`\
-https://nytimes.com/athletic/6949338/2026/01/08/knicks-nba-trade-deadline-defense/
 
