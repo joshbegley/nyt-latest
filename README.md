@@ -1,3 +1,11 @@
+**Must-See Moments From the N.B.A.**\
+`Two overtime thrillers, a career night in Detroit and a buzzer-beater headlined Wednesday night’s action in the N.B.A.`\
+https://nytimes.com/video/sports/basketball/100000010631378/must-see-moments-from-the-nba.html
+
+**Russian Strikes Knock Out Power and Heat to 1 Million Ukrainians**\
+`The Ukrainian authorities urged residents in the Dnipro region to stock up on water as crews raced to restore service.`\
+https://nytimes.com/2026/01/08/world/europe/ukraine-dnipro-power-russia-strike-heat.html
+
 **Man City finalise Semenyo agreement without release clause activation**\
 `The deal will see City pay £62.5million across 24 months rather than immediately.`\
 https://nytimes.com/athletic/6953448/2026/01/08/man-city-semenyo-transfer-release-clause/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010630869/renee-nicole-good-minneapolis-ice.h
 **We Pressed Trump on His Conclusion About the ICE Shooting. Here’s What He Said.**\
 `The exchange was a glimpse into the president’s reflexive defense of his federal crackdown on immigration.`\
 https://nytimes.com/2026/01/08/us/politics/trump-minnesota-ice-shooting-video.html
-
-**Trump Sits Down With Times Reporters for Two-Hour Interview**\
-`In a wide-ranging conversation with four Times reporters, President Trump talked about the Minneapolis ICE shooting, immigration, Venezuela and even his plans for further White House renovations.`\
-https://nytimes.com/2026/01/08/us/trump-new-york-times-reporter-interview.html
-
-**Trump Says U.S. Oversight of Venezuela Could Last for Years**\
-`In a wide-ranging interview with The New York Times on Wednesday, President Trump said “only time will tell” when it comes to how long the United States aims to control the country.`\
-https://nytimes.com/2026/01/08/us/politics/trump-interview-venezuela.html
 
