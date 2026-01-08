@@ -1,3 +1,11 @@
+**‘The Pitt’ Had Much to Celebrate … and Now Even More**\
+`At the premiere of Season 2 in Los Angeles, the cast and crew of HBO Max’s hyper-realistic medical drama learned the show would be renewed.`\
+https://nytimes.com/2026/01/08/style/the-pitt-hbo-premiere-party-noah-wyle.html
+
+**Betting for (by) dummies: Picks for 5 days of playoff football**\
+`Jon Greenberg and Zac Jackson make their betting picks for the CFP and the NFL wild-card round.`\
+https://nytimes.com/athletic/6954705/2026/01/08/football-betting-nfl-college-playoffs-packers-bills/
+
 **Denaturalization Is Part of Trump’s Crackdown on Immigrants**\
 `The administration is looking at Somali-born American citizens as well as other groups, but the president did not specify which.`\
 https://nytimes.com/2026/01/08/us/politics/trump-somalis-denaturalization.html

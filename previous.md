@@ -1,3 +1,11 @@
+**‘The Pitt’ Had Much to Celebrate … and Now Even More**\
+`At the premiere of Season 2 in Los Angeles, the cast and crew of HBO Max’s hyper-realistic medical drama learned the show would be renewed.`\
+https://nytimes.com/2026/01/08/style/the-pitt-hbo-premiere-party-noah-wyle.html
+
+**Betting for (by) dummies: Picks for 5 days of playoff football**\
+`Jon Greenberg and Zac Jackson make their betting picks for the CFP and the NFL wild-card round.`\
+https://nytimes.com/athletic/6954705/2026/01/08/football-betting-nfl-college-playoffs-packers-bills/
+
 **Denaturalization Is Part of Trump’s Crackdown on Immigrants**\
 `The administration is looking at Somali-born American citizens as well as other groups, but the president did not specify which.`\
 https://nytimes.com/2026/01/08/us/politics/trump-somalis-denaturalization.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6591844/2026/01/08/marc-guehi-crystal-palace-transf
 **DJ Lagway, former 5-star prospect, transferring from Florida to Baylor: Sources**\
 `Lagway, the No. 9 player in The Athletic's transfer quarterback rankings, entered the transfer portal last week after two years at Florida.`\
 https://nytimes.com/athletic/6955074/2026/01/08/dj-lagway-quarterback-baylor-transfer-florida/
-
-**5 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2026/01/08/books/review/recommended-new-books.html
-
-**How to Warm a Chili Skeptic’s Heart**\
-`By Tanya Sichynsky`\
-https://nytimes.com/2026/01/08/dining/how-to-warm-a-chili-skeptics-heart.html
 
