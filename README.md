@@ -1,3 +1,15 @@
+**Minnesota Governor Condemns ICE Shooting**\
+`Governor Tim Walz of Minnesota slammed the fatal shooting of a woman by an immigration agent. President Trump said that the agents had acted in self-defense.`\
+https://nytimes.com/video/us/100000010630880/minnesota-shooting-trump-walz-frey.html
+
+**Newcastle, 4-3, and this time a win for Kevin Keegan — who will have loved it**\
+`Newcastle came back from behind three times and then scored a very late winning goal`\
+https://nytimes.com/athletic/6952594/2026/01/08/newcastle-kevin-keegan-leeds-analysis/
+
+**Frank's Tottenham tenure has never felt so lifeless. Can the FA Cup provide some relief?**\
+`There were more signs of discontent at the end of the defeat at Bournemouth. As the league misery continues, thank goodness for the FA Cup`\
+https://nytimes.com/athletic/6952629/2026/01/08/thomas-frank-tottenham-bournemouth/
+
 **Could this be the turning point in Liam Delap's time at Chelsea?**\
 `Liam Delap scored his second non-Club World Cup goal for Chelsea, which was a positive even as they lost against Fulham`\
 https://nytimes.com/athletic/6952802/2026/01/08/liam-delap-chelsea-fulham-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6952989/2026/01/08/trae-young-trade-wizards-locker-
 **Rockies, RHP Michael Lorenzen agree to 1-year, $8 million contract: Source**\
 `The former Royals pitcher has offered relative durability and versatility in recent years.`\
 https://nytimes.com/athletic/6804204/2026/01/08/mlb-michael-lorenzen-free-agent-signing-rockies/
-
-**College basketball roundup: Vanderbilt stays perfect, UConn avoids OT upset**\
-`Vanderbilt remained perfect this season with a win over visiting Alabama, while UConn reeled off a late run to force overtime.`\
-https://nytimes.com/athletic/6953036/2026/01/08/kentucky-uconn-ncaa-mens-basktball-roundup/
-
-**Marc Guehi's future: Is it time for Crystal Palace to stick or twist?**\
-`Oliver Glasner opened the door to an exit for the defender this month - but which way should Palace go?`\
-https://nytimes.com/athletic/6939667/2026/01/08/marc-guehi-palace-transfer/
-
-**Steve Kerr explains NBA ejections to his mom: 'That's all part of the theatrics'**\
-`When told that Kerr said his mom was upset at her son, Doc Rivers couldn't resist getting in another dig.`\
-https://nytimes.com/athletic/6953099/2026/01/08/steve-kerr-mom-ejection-warriors-nba/
 
