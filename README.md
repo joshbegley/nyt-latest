@@ -1,3 +1,7 @@
+**2024 Australian Open finalist Zheng Qinwen withdraws from first Grand Slam of the year**\
+`The 23-year-old has not played a competitive match since September last year.`\
+https://nytimes.com/athletic/6953437/2026/01/08/tennis-zheng-qinwen-australian-open/
+
 **2 Killed in Shooting Outside Mormon Church in Salt Lake City**\
 `The shooting did not appear to be a targeted attack against the church and seemed to stem from an altercation in its parking lot, the police said.`\
 https://nytimes.com/2026/01/08/us/salt-lake-city-church-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/us/politics/trump-interview-venezuela.html
 **Late Night Responds to Trump’s Bid to Be an Oil Baron**\
 `Jimmy Kimmel said it was good President Trump would be in charge of Venezuela’s oil sales: “That way we know it will be spent honestly.”`\
 https://nytimes.com/2026/01/08/arts/television/late-night-trump-oil-venezuela.html
-
-**How to watch Texans at Steelers: Wild Card Round Time, TV, streaming**\
-`Find out how to watch the Houston Texans play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6953380/2026/01/08/texans-vs-steelers-stream-how-to-watch-jan-12/
 
