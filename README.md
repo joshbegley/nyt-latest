@@ -1,3 +1,7 @@
+**U.S. Navy Is Chasing Several Oil Tankers in the Atlantic**\
+`A mass departure by sanctioned tankers, some switching to Russian flags, has triggered a fresh effort by the United States to pursue Venezuelan oil shipments at sea.`\
+https://nytimes.com/2026/01/08/world/americas/navy-chasing-tankers-venezuela.html
+
 **World-class research and groundbreaking discoveries for the common good. **\
 `UMass Amherst is accelerating real-world  impact for a better tomorrow.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6955780/2026/01/08/chloe-kim-injured-shoulder-winte
 **Man City in advanced talks for USWNT's Coffey from Portland Thorns**\
 `A deal has not yet been finalised but Coffey's desire to play in Europe is expected to see a move to WSL leaders City.`\
 https://nytimes.com/athletic/6955359/2026/01/08/sam-coffey-uswnt-portland-man-city-women-transfers/
-
-**The Next Phase of Trump’s Renovations: A New ‘Upper West Wing’**\
-`Besides changes to the White House, President Trump also said he planned to tear up the brick walkways in Lafayette Park and replace them with granite.`\
-https://nytimes.com/2026/01/08/us/politics/trump-white-house-west-wing-renovation.html
 
