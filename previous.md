@@ -1,3 +1,19 @@
+**Denaturalization Is Part of Trump’s Crackdown on Immigrants**\
+`The administration is looking at Somali-born American citizens as well as other groups, but the president did not specify which.`\
+https://nytimes.com/2026/01/08/us/politics/trump-somalis-denaturalization.html
+
+**Sources: Minnesota coach Eric Ramsay to leave MLS club for West Brom**\
+`Minnesota United is left looking for a new manager on the eve of the 2026 preseason `\
+https://nytimes.com/athletic/6955209/2026/01/08/eric-ramsay-west-brom-minnesota-united-mls-cam-knowles/
+
+**Child Sexual Abuse Destroyed My Family. Here’s What Could Have Helped.**\
+`We spend billions of dollars on punishing child sexual abusers and far less on prevention. It’s not stopping the problem. We must rethink our approach.`\
+https://nytimes.com/video/opinion/100000010614232/child-sexual-abuse-destroyed-my-family-heres-what-could-have-helped.html
+
+**What Trump Told Us About the ICE Shooting**\
+`The New York Times sat down with President Trump in the Oval Office for an exclusive interview just hours after an Immigration and Customs Enforcement agent shot a 37-year-old woman in Minneapolis. Our White House correspondent Zolan Kanno-Youngs explains how the president reacted to the shooting.`\
+https://nytimes.com/video/us/100000010630711/what-trump-told-us-about-the-ice-shooting.html
+
 **Did Jordan Binnington refuse to be pulled? Blues coach Jim Montgomery sets the record straight**\
 `Was it more Binnington antics? Or Joel Hofer hiding? Montgomery debunked the notions Thursday, saying Hofer simply wasn't ready.`\
 https://nytimes.com/athletic/6954487/2026/01/08/blues-binnington-hofer-goalie-pull/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/08/books/review/recommended-new-books.html
 **How to Warm a Chili Skeptic’s Heart**\
 `By Tanya Sichynsky`\
 https://nytimes.com/2026/01/08/dining/how-to-warm-a-chili-skeptics-heart.html
-
-**How USMNT fans can get World Cup tickets through U.S. Soccer's allotment**\
-`U.S. Soccer has informed fans of the process to secure World Cup tickets through the federation, and it comes with plenty of caveats`\
-https://nytimes.com/athletic/6954844/2026/01/08/us-soccer-2026-world-cup-tickets-usmnt-supporters-groups/
-
-**Lynda Blackmon Lowery, One of the Youngest Selma Marchers, Dies at 75**\
-`Her activism began as a teenager in 1963, when she heard the Rev. Dr. Martin Luther King Jr. speak. It set her on a path to nonviolent protest.`\
-https://nytimes.com/2026/01/08/us/politics/lynda-blackmon-lowery-dead.html
-
-**Arthur Blank: Falcons set to interview Matt Ryan, want to talk to John Harbaugh**\
-`The Falcons owner is expecting to hire someone for the new president of football position to lead interviews with coach and GM candidates.`\
-https://nytimes.com/athletic/6954166/2026/01/08/arthur-blank-falcons-matt-ryan-john-harbaugh-coach-gm/
-
-**Australia Bakes Under Record Heat, Fueling Fire Risk**\
-`A record-setting heat wave is sweeping across large swaths of Australia, sending residents to the water for relief. In several parts of the country, forecasters have warned that the severe heat could stoke dangerous fire conditions.`\
-https://nytimes.com/video/world/australia/100000010632051/australia-fires-heatwave.html
 
