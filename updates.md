@@ -1,3 +1,7 @@
+**En vivo: Trump dice que va a ‘reconstruir’ Venezuela e insinúa que no tomará medidas hacia Colombia**\
+`El presidente Trump dijo a The New York Times que “solo el tiempo dirá” cuánto tiempo supervisará EE. UU. a Venezuela. Una llamada con el presidente Petro pareció aliviar las tensiones.`\
+https://nytimes.com/live/2026/01/08/espanol/trump-maduro-venezuela-petroleo
+
 **Sirens announce PWHL's first game at Madison Square Garden**\
 `The matchup against the expansion Seattle Torrent will be the Sirens' first time playing in the heart of the city.`\
 https://nytimes.com/athletic/6952721/2026/01/08/pwhl-sirens-madison-square-garden-torrent/
