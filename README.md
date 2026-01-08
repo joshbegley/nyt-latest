@@ -1,3 +1,7 @@
+**Trump Sits Down With Times Reporters for Two-Hour Interview**\
+`In a wide-ranging conversation with four Times reporters, President Trump talked about the Minneapolis ICE shooting, immigration, Venezuela and even his plans for further White House renovations.`\
+https://nytimes.com/2026/01/08/us/trump-sits-down-with-times-reporters-for-two-hour-interview.html
+
 **Trump Says U.S. Oversight of Venezuela Could Last For Years**\
 `In a wide-ranging interview with The New York Times on Wednesday, President Trump said “only time will tell” when it comes to how long the United States aims to control the country.`\
 https://nytimes.com/2026/01/08/us/politics/trump-interview-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6953265/2026/01/08/leeds-newcastle-analysis/
 **Minnesota Governor Condemns ICE Shooting**\
 `Governor Tim Walz of Minnesota slammed the fatal shooting of a woman by an immigration agent. President Trump said that the agents had acted in self-defense.`\
 https://nytimes.com/video/us/100000010630880/minnesota-shooting-trump-walz-frey.html
-
-**Newcastle, 4-3, and this time a win for Kevin Keegan - who will have loved it**\
-`Hours after news of club legend's cancer diagnosis, Newcastle came back from behind three times and then scored again to beat Leeds`\
-https://nytimes.com/athletic/6952594/2026/01/08/newcastle-kevin-keegan-leeds-analysis/
 

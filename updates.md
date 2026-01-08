@@ -1,3 +1,11 @@
+**Trump Says U.S. Oversight of Venezuela Could Last For Years**\
+`In a wide-ranging interview with The New York Times on Wednesday, President Trump said “only time will tell” when it comes to how long the United States aims to control the country.`\
+https://nytimes.com/2026/01/08/us/politics/trump-interview-venezuela.html
+
+**Mitoma serves up another reminder of how important he is to Brighton and their hopes**\
+`There is an added fear factor for opponents when Mitoma's name is on the team sheet. Fabian Hurzeler needs him fit and firing`\
+https://nytimes.com/athletic/6951148/2026/01/08/brighton-kaoru-mitoma-man-city-analysis/
+
 **Late Night Responds to Trump’s Bid to Be an Oil Baron**\
 `Jimmy Kimmel said it was good President Trump would be in charge of Venezuela’s oil sales: “That way we know it will be spent honestly.”`\
 https://nytimes.com/2026/01/08/arts/television/late-night-trump-oil-venezuela.html
