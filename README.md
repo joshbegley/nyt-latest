@@ -1,3 +1,7 @@
+**Nigeria's AFCON bonuses issue resolved, claims finance minister**\
+`Reports suggested a standoff similar to the one that took place prior to their World Cup play-off victory over Gabon on November 13.`\
+https://nytimes.com/athletic/6950445/2026/01/08/nigeria-afcon-bonuses-payments/
+
 **Brazil, France, Colombia, Croatia to play March pre-World Cup games in USA**\
 `Four World Cup contenders will be coming to the U.S. a few months early to continue their preparations for the summer`\
 https://nytimes.com/athletic/6952016/2026/01/08/brazil-france-colombia-croatia-march-friendlies-world-cup-usa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6953420/2026/01/08/bucks-giannis-doc-rivers-officia
 **How to watch Louisville vs. Miami (FL) women's basketball: Time, TV, streaming**\
 `Find out how to watch the Louisville Cardinals play the Miami Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6953772/2026/01/08/louisville-vs-miami-fl-stream-how-to-watch-jan-8/
-
-**Science Practice | A Study on Reading for Fun**\
-`Fewer people are reading for fun, a recent study finds.`\
-https://nytimes.com/2026/01/08/learning/science-practice-a-study-on-reading-for-fun.html
 
