@@ -1,3 +1,19 @@
+**Cooper Union Settles Jewish Students’ Suit and Alters Protest Policies**\
+`The New York City college had been accused of tolerating discrimination against those who believe in Zionism following a pro-Palestinian protest that trapped students inside a library.`\
+https://nytimes.com/2026/01/08/nyregion/cooper-union-jewish-students-lawsuit-antisemitism.html
+
+**Vance Announces New Justice Dept. Fraud Post to Be ‘Run Out of the White House’**\
+`The assertion was a brazen effort to toss out the traditional boundaries that have long existed between the White House and investigations conducted by federal law enforcement.`\
+https://nytimes.com/2026/01/08/nyregion/jd-vance-justice-dept-fraud-post.html
+
+**Trent Dilfer, former UAB coach, returns to Nashville high school job**\
+`The 53-year-old former NFL quarterback and ESPN analyst has agreed to return to Lipscomb Academy. `\
+https://nytimes.com/athletic/6955755/2026/01/08/trent-dilfer-coach-uab-lipscomb-academy/
+
+**What Happens When No One Can Say No to Trump?**\
+`After the capture of the Venezuelan president, Nicolás Maduro, over the weekend, “Trump is setting a new course for the country where he can use the military to do just about anything he wants,” argues Times Opinion’s editor, Kathleen Kingsbury. “No one is allowed to say ‘no’ to Trump.”`\
+https://nytimes.com/video/opinion/100000010632349/what-happens-when-no-one-can-say-no-to-trump.html
+
 **Trump Says His Only Limit on His Global Powers Is His ‘Own Morality’**\
 `President Trump brushed aside international law and repeated his goal for the U.S. to own Greenland.`\
 https://nytimes.com/video/us/politics/100000010632450/trump-international-law-greenland.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/08/us/politics/trump-weight-obesity-drugs.html
 **By Killing Renee Good, ICE Sent a Message to Us All**\
 `Not even citizens are safe in Trump’s America.`\
 https://nytimes.com/2026/01/08/opinion/renee-good-minnesota-shooting-ice.html
-
-**Russian Propaganda Ramps Up After U.S. Raid in Venezuela**\
-`A network of websites known as “Portal Kombat” is spreading messages about U.S. military hardware, according to tracking firms.`\
-https://nytimes.com/2026/01/08/us/politics/russia-propaganda-venezuela.html
-
-**An Interview With Donald Trump**\
-`The president spoke to The New York Times about Venezuela and his power on the world stage.`\
-https://nytimes.com/2026/01/08/world/interview-donald-trump-venezuela-ice.html
-
-**Noem Defends Officer in Minneapolis Killing and Attacks Mamdani**\
-`During a visit to New York, the homeland security secretary, Kristi Noem, criticized the city’s policies that prevent police officers from helping immigration agents.`\
-https://nytimes.com/2026/01/08/nyregion/kristi-noem-ice-minneapolis.html
-
-**Fact-Checking Trump’s Justifications for the Venezuela Operation**\
-`The president has repeatedly tied Venezuela to drug overdose deaths, claimed the Maduro regime sent an influx of criminal migrants and accused the country of stealing American oil.`\
-https://nytimes.com/2026/01/08/us/politics/venezuela-trump-maduro-fact-check.html
 
