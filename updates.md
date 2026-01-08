@@ -1,3 +1,23 @@
+**Trump Administration Deploying More Border Patrol Agents to Minnesota**\
+`More than 100 agents will be redirected from other cities after the fatal shooting of a woman in Minneapolis by an ICE officer.`\
+https://nytimes.com/2026/01/08/us/politics/border-patrol-minnesota-trump.html
+
+**Prosecutors Said to Pursue New Investigation of Letitia James**\
+`The New York attorney general’s longtime hairdresser has come under scrutiny as the Justice Department’s efforts to charge Ms. James on other fronts falter.`\
+https://nytimes.com/2026/01/08/us/politics/prosecutors-said-to-pursue-new-investigation-of-letitia-james.html
+
+**Venezuela Announces the Release of Political Prisoners**\
+`The release, which was expected to happen later on Thursday, offers the first gesture of conciliation under an interim government, even as arrests and crackdowns continue.`\
+https://nytimes.com/2026/01/08/world/americas/venezuela-release-political-prisoners.html
+
+**We Want to Hear From Parents and Doctors About Vaccines**\
+`The Trump administration has removed six vaccines from the routine immunization schedule. How is that affecting you?`\
+https://nytimes.com/2026/01/08/well/vaccine-callout.html
+
+**Senate Advances Measure to Curb Trump Use of Force in Venezuela**\
+`A handful of Republicans joined Democrats to allow the measure to move forward, reflecting concerns in both parties about the administration’s strategy.`\
+https://nytimes.com/2026/01/08/us/politics/senate-trump-venezuela-military.html
+
 **Chefs Find a Muse in Sticky Toffee Pudding**\
 `Plus: evil eye jewelry, an Italian hotel in a former convent and more recommendations from T Magazine.`\
 https://nytimes.com/2026/01/08/t-magazine/sticky-toffee-pudding.html
