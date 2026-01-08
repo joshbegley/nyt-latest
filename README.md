@@ -1,6 +1,26 @@
+**This Republican Thinks His Party Is ‘Gaslighting’ on Venezuela**\
+`Representative Thomas Massie, a rare Republican critic of President Trump’s military intervention, explained his concerns in an interview with The New York Times.`\
+https://nytimes.com/2026/01/08/us/politics/thomas-massie-trump-venezuela.html
+
+**Here’s the latest.**\
+`By The New York Times`\
+https://nytimes.com/live/2026/01/08/us/trump-nyt-interview/heres-the-latest
+
+**Live: Highlights From The Times’s Interview With President Trump**\
+`Mr. Trump sat down with our reporters for an interview in which he talked about his health, watched a video of an ICE shooting and mused about his power on the world stage.`\
+https://nytimes.com/live/2026/01/08/us/trump-nyt-interview
+
 **Did we not deserve better than TNT Sports' coverage of the Ashes?**\
 `Plenty of criticism, calls for change and happy it's over. Sound familiar? Just as England did, TNT Sports struggled to impress in Australia`\
 https://nytimes.com/athletic/6953595/2026/01/08/tnt-sports-ashes-coverage-review/
+
+**Upper Deck to bring Debut Game Jersey cards to NHL offering**\
+`As Topps rolls out similar cards across other sports, Upper Deck now brings the concept to hockey`\
+https://nytimes.com/athletic/6954549/2026/01/08/upper-deck-nhl-debut-game-jersey-cards/
+
+**Welcome to our new Peak newsletter**\
+`Welcome to the Peak newsletter, where we cover the mental side of sports. `\
+https://nytimes.com/athletic/6950439/2026/01/08/peak-newsletter-nfl-meal-plan/
 
 **Judge Bars U.S. Attorney in Albany From Inquiry Into Letitia James**\
 `Ms. James, New York’s attorney general, had been seeking to block a Justice Department investigation into her office by challenging the legitimacy of the U.S. attorney, John A. Sarcone III.`\
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/08/world/europe/france-russia-prisoner-swap.html
 **NASA Considers Early Return From I.S.S. After Medical Issue**\
 `NASA said it canceled a spacewalk planned for Thursday after an astronaut had an undisclosed medical issue on the International Space Station.`\
 https://nytimes.com/2026/01/08/science/space/nasa-astronaut-medical-problem.html
-
-**Can J.K. Dobbins return for the playoffs? What it would mean for Broncos' run game**\
-`Dobbins is trying to make an unusually fast return from a Lisfranc injury. In the meantime, what can Broncos squeeze from RJ Harvey, others?`\
-https://nytimes.com/athletic/6952134/2026/01/08/jk-dobbins-broncos-run-game-playoffs/
-
-**The Man Who Could Be Apple’s Next C.E.O.**\
-`John Ternus, a low-profile but influential executive at Apple, could be next in line to replace the company’s longtime chief executive, Tim Cook, if he steps aside.`\
-https://nytimes.com/2026/01/08/technology/apple-ceo-tim-cook-john-ternus.html
-
-**World Cup game clips to be broadcast live on TikTok, FIFA says**\
-`The short form video social media platform has previously collaborated with the 2023 Women's World Cup and the Club World Cup. `\
-https://nytimes.com/athletic/6954078/2026/01/08/world-cup-tiktok-fifa-agreement/
-
-**How to watch Pacers vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6954688/2026/01/08/pacers-vs-hornets-stream-how-to-watch-jan-8/
-
-**How to watch Ducks vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6954685/2026/01/08/ducks-vs-hurricanes-stream-how-to-watch-jan-8/
 
