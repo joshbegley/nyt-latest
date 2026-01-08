@@ -1,3 +1,11 @@
+**Jimbo Fisher calls Lane Kiffin's decisions on assistants 'selfish' and 'stupid'**\
+`The new LSU head coach has flip-flopped about letting his former Ole Miss assistants keep coaching the Rebels in the CFP.`\
+https://nytimes.com/athletic/6953051/2026/01/08/jimbo-fisher-lane-kiffin-assistants-selfish-stupid/
+
+**There’s a lack of top-class managers up for grabs for Premier League clubs in 2026 – why?**\
+`Ten years ago the English top-flight welcomed perhaps its greatest cohort of coaching talent – a decade on and things are a little different`\
+https://nytimes.com/athletic/6950071/2026/01/08/premier-league-manager-quality-analysis/
+
 **AFCON 2025 kits ranked: Tunisian carpets, a massive eagle and Uganda's FA goes it alone**\
 `The kits at the Africa Cup of Nations never disappoint, and this year's efforts are no different`\
 https://nytimes.com/athletic/6931851/2026/01/08/afcon-2025-home-kits-ranked/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6952161/2026/01/08/brentford-tactics-premier-league
 **A Majority of Venezuelans Struggle to Pay for Food, Poll Shows**\
 `A new Gallup survey found that more than half of Venezuelans reported struggling to afford food last year, with economic hardship reaching even the wealthy.`\
 https://nytimes.com/2026/01/08/world/americas/venezuela-gallup-poll-food-insecurity.html
-
-**Borussia Dortmund coach Niko Kovac interview: 'Our motto is KISS — keep it simple, stupid'**\
-`Niko Kovac rescued Borussia Dortmund last season and has them in second so far this campaign`\
-https://nytimes.com/athletic/6931572/2026/01/08/niko-kovac-borussia-dortmund-interview/
-
-**Quote of the Day: One Year Later, Homes, Fury and Debt Rise From Ashes in L.A.**\
-`Quotation of the Day for Thursday, January 8, 2026.`\
-https://nytimes.com/2026/01/08/pageoneplus/quote-of-the-day-one-year-later-homes-fury-and-debt-rise-from-ashes-in-la.html
 

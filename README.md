@@ -1,3 +1,15 @@
+**The Women's Super League found an unlikely market in Japan: 'Let’s embrace this'**\
+`A combination of streaming, representation and video games has made Japan one of the WSL's biggest markets`\
+https://nytimes.com/athletic/6836871/2026/01/08/womens-super-league-unlikely-market-japan/
+
+**Wolves' upturn must not deflect them from the wider work to be done in January**\
+`This month still has to be stage one of the club's rebuild, even if the emergence of some players may see tweaks to transfer priorities`\
+https://nytimes.com/athletic/6952621/2026/01/08/wolves-january-edwards-transfers/
+
+**Forest are Wrexham's first Premier League opponents of their Hollywood era: This is what it means**\
+`Wrexham have a chance to add to their storied FA Cup history when they take on top-flight side Nottingham Forest on Friday`\
+https://nytimes.com/athletic/6944898/2026/01/08/wrexham-fa-cup-premier-league-opposition/
+
 **Jimbo Fisher calls Lane Kiffin's decisions on assistants 'selfish' and 'stupid'**\
 `The new LSU head coach has flip-flopped about letting his former Ole Miss assistants keep coaching the Rebels in the CFP.`\
 https://nytimes.com/athletic/6953051/2026/01/08/jimbo-fisher-lane-kiffin-assistants-selfish-stupid/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6952338/2026/01/08/man-city-premier-league-title-ra
 **Clutch-time roundup: Paolo Banchero calls game; Immanuel Quickley beats buzzer**\
 `On a 12-game night in the NBA, three matchups needed just about every second and provided fans with exciting finishes.`\
 https://nytimes.com/athletic/6953108/2026/01/08/paolo-banchero-immanuel-quickley-shai-gilgeous-alexander-thunder-magic-raptors-nba/
-
-**Real Madrid's €180m summer transfers rated: Alexander-Arnold's difficult start, Huijsen finding feet**\
-`Madrid's four new arrivals have experienced mixed fortunes so far`\
-https://nytimes.com/athletic/6950383/2026/01/08/real-madrid-2025-summer-transfers-alexander-arnold-huijsen/
-
-**Why Brentford are currently the Premier League's most tactically influential team**\
-`Right now, it's Keith Andrews' world and the rest of us are just living in it  `\
-https://nytimes.com/athletic/6952161/2026/01/08/brentford-tactics-premier-league/
-
-**A Majority of Venezuelans Struggle to Pay for Food, Poll Shows**\
-`A new Gallup survey found that more than half of Venezuelans reported struggling to afford food last year, with economic hardship reaching even the wealthy.`\
-https://nytimes.com/2026/01/08/world/americas/venezuela-gallup-poll-food-insecurity.html
 
