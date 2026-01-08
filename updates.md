@@ -1,3 +1,11 @@
+**Chefs Find a Muse in Sticky Toffee Pudding**\
+`Plus: evil eye jewelry, an Italian hotel in a former convent and more recommendations from T Magazine.`\
+https://nytimes.com/2026/01/08/t-magazine/sticky-toffee-pudding.html
+
+**Senate Advances Measure to Rein In Trump’s Use of Force in Venezuela**\
+`A handful of Republicans joined Democrats to enable the measure to move forward, reflecting concerns in both parties about the administration’s strategy.`\
+https://nytimes.com/2026/01/08/us/politics/senate-trump-venezuela-military.html
+
 **Leeds' Elland Road expansion plans approved by council**\
 `The application to redevelop Elland Road and extend stadium capacity to around 53,000 has been approved by Leeds City Council.`\
 https://nytimes.com/athletic/6954070/2026/01/08/leeds-elland-road-stadium-plans/

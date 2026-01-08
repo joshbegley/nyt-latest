@@ -1,3 +1,11 @@
+**Chefs Find a Muse in Sticky Toffee Pudding**\
+`Plus: evil eye jewelry, an Italian hotel in a former convent and more recommendations from T Magazine.`\
+https://nytimes.com/2026/01/08/t-magazine/sticky-toffee-pudding.html
+
+**Senate Advances Measure to Rein In Trump’s Use of Force in Venezuela**\
+`A handful of Republicans joined Democrats to enable the measure to move forward, reflecting concerns in both parties about the administration’s strategy.`\
+https://nytimes.com/2026/01/08/us/politics/senate-trump-venezuela-military.html
+
 **Leeds' Elland Road expansion plans approved by council**\
 `The application to redevelop Elland Road and extend stadium capacity to around 53,000 has been approved by Leeds City Council.`\
 https://nytimes.com/athletic/6954070/2026/01/08/leeds-elland-road-stadium-plans/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6950439/2026/01/08/peak-newsletter-nfl-meal-plan/
 **Judge Bars U.S. Attorney in Albany From Inquiry Into Letitia James**\
 `Ms. James, New York’s attorney general, had been seeking to block a Justice Department investigation into her office by challenging the legitimacy of the U.S. attorney, John A. Sarcone III.`\
 https://nytimes.com/2026/01/08/nyregion/albany-us-attorney-letitia-james.html
-
-**What a revamped offensive line has meant for the Bears in 2025**\
-`A lot of the Bears' success in 2025 can be credited to the three newcomers on the O-line: Joe Thuney, Jonah Jackson and Drew Dalman.`\
-https://nytimes.com/athletic/6951850/2026/01/08/bears-offensive-line-joe-thuney-drew-dalman/
-
-**French Researcher and Russian Basketball Player Released in a Prisoner Swap**\
-`Laurent Vinatier, a French citizen and researcher detained, was freed in exchange for the release of Daniil Kasatkin, a Russian basketball player.`\
-https://nytimes.com/2026/01/08/world/europe/france-russia-prisoner-swap.html
 

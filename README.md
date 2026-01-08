@@ -1,9 +1,17 @@
+**Venezuela Announces the Release of Political Prisoners**\
+`The release, which was expected to happen later on Thursday, offers the first gesture of conciliation under an interim government, even as arrests and crackdowns continue.`\
+https://nytimes.com/2026/01/08/world/americas/venezuela-release-political-prisoners.html
+
+**We Want to Hear From Parents and Doctors About Vaccines**\
+`The Trump administration has removed six vaccines from the routine immunization schedule. How is that affecting you?`\
+https://nytimes.com/2026/01/08/well/vaccine-callout.html
+
 **Chefs Find a Muse in Sticky Toffee Pudding**\
 `Plus: evil eye jewelry, an Italian hotel in a former convent and more recommendations from T Magazine.`\
 https://nytimes.com/2026/01/08/t-magazine/sticky-toffee-pudding.html
 
-**Senate Advances Measure to Rein In Trump’s Use of Force in Venezuela**\
-`A handful of Republicans joined Democrats to enable the measure to move forward, reflecting concerns in both parties about the administration’s strategy.`\
+**Senate Advances Measure to Curb Trump Use of Force in Venezuela**\
+`A handful of Republicans joined Democrats to allow the measure to move forward, reflecting concerns in both parties about the administration’s strategy.`\
 https://nytimes.com/2026/01/08/us/politics/senate-trump-venezuela-military.html
 
 **Leeds' Elland Road expansion plans approved by council**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6953595/2026/01/08/tnt-sports-ashes-coverage-review
 **Upper Deck to bring Debut Game Jersey cards to NHL offering**\
 `As Topps rolls out similar cards across other sports, Upper Deck now brings the concept to hockey`\
 https://nytimes.com/athletic/6954549/2026/01/08/upper-deck-nhl-debut-game-jersey-cards/
-
-**Welcome to our new Peak newsletter**\
-`Welcome to the Peak newsletter, where we cover the mental side of sports. `\
-https://nytimes.com/athletic/6950439/2026/01/08/peak-newsletter-nfl-meal-plan/
-
-**Judge Bars U.S. Attorney in Albany From Inquiry Into Letitia James**\
-`Ms. James, New York’s attorney general, had been seeking to block a Justice Department investigation into her office by challenging the legitimacy of the U.S. attorney, John A. Sarcone III.`\
-https://nytimes.com/2026/01/08/nyregion/albany-us-attorney-letitia-james.html
 
