@@ -1,3 +1,11 @@
+**Rockies, RHP Michael Lorenzen agree to 1-year, $8 million contract: Source**\
+`Lorenzen has offered relative durability and versatility in recent years.`\
+https://nytimes.com/athletic/6804204/2026/01/08/mlb-michael-lorenzen-free-agent-signing-rockies/
+
+**College basketball roundup: Vanderbilt stays perfect, UConn avoids OT upset**\
+`Vanderbilt remained perfect this season with a win over visiting Alabama, while UConn reeled off a fourth-quarter run to force overtime.`\
+https://nytimes.com/athletic/6953036/2026/01/08/kentucky-uconn-ncaa-mens-basktball-roundup/
+
 **Marc Guehi's future: Is it time for Crystal Palace to stick or twist?**\
 `Oliver Glasner opened the door to an exit for the defender this month - but which way should Palace go?`\
 https://nytimes.com/athletic/6939667/2026/01/08/marc-guehi-palace-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6950071/2026/01/08/premier-league-manager-quality-a
 **AFCON 2025 kits ranked: Tunisian carpets, a massive eagle and Uganda's FA goes it alone**\
 `The kits at the Africa Cup of Nations never disappoint, and this year's efforts are no different`\
 https://nytimes.com/athletic/6931851/2026/01/08/afcon-2025-home-kits-ranked/
-
-**Barcelona decided not to keep Joao Cancelo in 2024, but re-signing him now makes sense**\
-`Cancelo is not the centre-back Hansi Flick was after, but he is a defensive reinforcement at a time when Barca need that most`\
-https://nytimes.com/athletic/6950105/2026/01/08/joao-cancelo-barcelona-loan-analysis/
-
-**Arsenal vs Liverpool: Biggest change at each club? Tactical battles? Key players? Predictions?**\
-`The Premier League leaders take on the reigning champions at the Emirates - two of our writers discuss the talking points`\
-https://nytimes.com/athletic/6948982/2026/01/08/arsenal-liverpool-arteta-slot-predictions/
 
