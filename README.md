@@ -1,4 +1,16 @@
-**The Briefing: Arsenal 0 Liverpool 0 - Late Martinelli flashpoint, second-half improvement from visitors**\
+**Legal Hurdles Likely to Stymie State Charges in Minnesota ICE Shooting Case**\
+`After an immigration agent fatally shot a woman, Minnesotans have called for the officer to be prosecuted. But previous attempts to charge federal officers at the state level have failed.`\
+https://nytimes.com/2026/01/08/us/minnesota-ice-shooting-prosecution.html
+
+**A Vengeful Trump Urges Voters to Oust Republicans, Including Collins**\
+`After five G.O.P. senators joined Democrats on a war powers vote, the president lashed out, including at his party’s most politically endangered senator.`\
+https://nytimes.com/2026/01/08/us/politics/trump-senate-republicans-susan-collins.html
+
+**These 5 Republicans Broke With Trump on Venezuela War Powers**\
+`The Republican defectors paved the way for a debate that could expose bipartisan concern about President Trump’s actions in Venezuela. Mr. Trump called for them to lose their seats.`\
+https://nytimes.com/2026/01/08/us/politics/five-republicans-congress-trump-venezuela.html
+
+**The Briefing: Arsenal 0 Liverpool 0 – Late Martinelli flashpoint, second-half improvement from visitors**\
 `Arsenal missed the chance to extend their lead at the top of the Premier League to eight points after a goalless draw at home to Liverpool`\
 https://nytimes.com/athletic/6937594/2026/01/08/arsenal-0-liverpool-0-martinelli-bradley/
 
@@ -25,16 +37,4 @@ https://nytimes.com/video/opinion/100000010632349/what-happens-when-no-one-can-s
 **Trump Says His Only Limit on His Global Powers Is His ‘Own Morality’**\
 `President Trump brushed aside international law and repeated his goal for the U.S. to own Greenland.`\
 https://nytimes.com/video/us/politics/100000010632450/trump-international-law-greenland.html
-
-**The Many Faces of Trump: What We Saw When We Interviewed the President**\
-`During an extensive sit-down with The New York Times, President Trump showcased the various personas he employs in his role. There were unpredictable turns throughout.`\
-https://nytimes.com/2026/01/08/us/politics/trump-oval-office-interview-scene.html
-
-**Nebraska in the portal: 4 uncomfortable questions as the Huskers navigate the transfer market**\
-`Portal euphoria is real. It's everywhere. But how long does it last?`\
-https://nytimes.com/athletic/6955638/2026/01/08/nebraska-transfer-portal-matt-rhule-anthony-colandrea/
-
-**All nine MLB teams cancel their contracts with FanDuel Sports Network**\
-`All of the MLB teams broadcast by the embattled FanDuel Sports Network have canceled their contracts with the company. `\
-https://nytimes.com/athletic/6955733/2026/01/08/mlb-fanduel-sports-network-teams-cancel-contracts/
 

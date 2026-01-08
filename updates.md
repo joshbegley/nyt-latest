@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 0 Liverpool 0 - Late Martinelli flashpoint, second-half improvement from visitors**\
+`Arsenal missed the chance to extend their lead at the top of the Premier League to eight points after a goalless draw at home to Liverpool`\
+https://nytimes.com/athletic/6937594/2026/01/08/arsenal-0-liverpool-0-martinelli-bradley/
+
 **New Jersey Is Latest State to Ban Student Phones in Schools**\
 `The restrictions, signed into law by Gov. Philip D. Murphy on Thursday as one of his final acts in office, will take effect during the 2026-2027 school year.`\
 https://nytimes.com/2026/01/08/nyregion/nj-school-cellphone-ban-phil-murphy.html
