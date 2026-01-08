@@ -1,3 +1,7 @@
+**‘Greenland 2: Migration’ Review: The New World**\
+`Gerard Butler returns for more earthshaking action in this crowd-pleasing postapocalyptic thriller.`\
+https://nytimes.com/2026/01/08/movies/greenland-2-migration-review.html
+
 **Spurs' Kudus out until March, Bentancur has 'big' hamstring injury**\
 `Spurs head coach Thomas Frank also said that Dejan Kulusevski is still at least "three to four weeks" away from training on grass.`\
 https://nytimes.com/athletic/6954040/2026/01/08/tottenham-injury-news-kudus-bentancur-bergvall/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6942887/2026/01/08/padel-arturo-coello-on-clothing-
 **Aryna Sabalenka criticizes 'insane' tennis schedule, says tours 'follow their own interests'**\
 `Sabalenka said she will miss some events this year despite the penalties she will receive for doing so.`\
 https://nytimes.com/athletic/6953670/2026/01/08/aryna-sabalenka-tennis-schedule-wta/
-
-**U.S. Trade Deficit Fell to Lowest Level Since 2009, Latest Data Show**\
-`The monthly trade deficit continued to shrink in October after President Trump imposed sweeping tariffs on foreign imports.`\
-https://nytimes.com/2026/01/08/business/economy/us-trade-deficit-tariffs.html
 
