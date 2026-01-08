@@ -1,3 +1,7 @@
+**All nine MLB teams cancel their contracts with FanDuel Sports Network**\
+`All of the MLB teams broadcast by the embattled FanDuel Sports Network have canceled their contracts with the company. `\
+https://nytimes.com/athletic/6955733/2026/01/08/mlb-fanduel-sports-network-teams-cancel-contracts/
+
 **Trump Says He ‘Probably Should’ Take Obesity Drugs, but Has Not**\
 `President Trump has talked in the past about people he knows who have taken “the fat drug.”`\
 https://nytimes.com/2026/01/08/us/politics/trump-weight-obesity-drugs.html
