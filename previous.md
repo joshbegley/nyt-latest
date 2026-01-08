@@ -1,3 +1,11 @@
+**David Coote, an indecent child image and a 'spectacular fall from grace'**\
+`The full details of the former Premier League referee's disgrace was laid bare in a Nottingham courtroom`\
+https://nytimes.com/athletic/6954087/2026/01/08/david-coote-indecent-child-image-court/
+
+**Dolphins fire Mike McDaniel after 4 seasons in Miami**\
+`McDaniel made the playoffs in his first two seasons in Miami, but a second straight losing season spelled the end for the Dolphins coach.`\
+https://nytimes.com/athletic/6621567/2026/01/08/mike-mcdaniel-fired-dolphins/
+
 **The Bounce: That's all the Hawks got for Trae Young?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6954299/2026/01/08/trae-young-trade-hawks-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/08/world/americas/us-greenland-trump-denmark-rubio-m
 **Trump dice que va a ‘reconstruir’ Venezuela e insinúa que no tomará medidas hacia Colombia**\
 `El presidente Trump dijo a The New York Times que “solo el tiempo dirá” cuánto tiempo supervisará EE. UU. a Venezuela. Una llamada con el presidente Petro pareció aliviar las tensiones.`\
 https://nytimes.com/live/2026/01/08/espanol/trump-maduro-venezuela-petroleo
-
-**Sirens announce PWHL's first game at Madison Square Garden**\
-`The matchup against the expansion Seattle Torrent will be the Sirens' first time playing in the heart of the city.`\
-https://nytimes.com/athletic/6952721/2026/01/08/pwhl-sirens-madison-square-garden-torrent/
-
-**Nigeria's AFCON bonuses issue resolved, claims finance minister**\
-`Reports suggested a standoff similar to the one that took place prior to their World Cup play-off victory over Gabon on November 13.`\
-https://nytimes.com/athletic/6950445/2026/01/08/nigeria-afcon-bonuses-payments/
 

@@ -1,3 +1,11 @@
+**Do You Really Need Closure?**\
+`And what exactly does it mean, anyway?`\
+https://nytimes.com/2026/01/08/well/mind/psych101-closure.html
+
+**Bucs fire Josh Grizzard after one season as offensive coordinator: Source**\
+`One possible factor in Grizzard's dismissal: QB Baker Mayfield just finished his least-productive season since joining the Bucs in 2023.`\
+https://nytimes.com/athletic/6954277/2026/01/08/buccaneers-josh-grizzard-fired-offensive-coordinator/
+
 **David Coote, an indecent child image and a 'spectacular fall from grace'**\
 `The full details of the former Premier League referee's disgrace was laid bare in a Nottingham courtroom`\
 https://nytimes.com/athletic/6954087/2026/01/08/david-coote-indecent-child-image-court/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/08/movies/greenland-2-migration-review.html
 **Spurs' Kudus out until March, Bentancur has 'big' hamstring injury**\
 `Spurs head coach Thomas Frank also said that Dejan Kulusevski is still at least "three to four weeks" away from training on grass.`\
 https://nytimes.com/athletic/6954040/2026/01/08/tottenham-injury-news-kudus-bentancur-bergvall/
-
-**Rubio Says He’ll Meet With Danish Officials to Discuss Greenland**\
-`Secretary of State Marco Rubio told reporters he would speak with the officials after days of mounting threats from the Trump administration to take Greenland, a semiautonomous Danish territory.`\
-https://nytimes.com/2026/01/08/world/americas/us-greenland-trump-denmark-rubio-meeting.html
-
-**Trump dice que va a ‘reconstruir’ Venezuela e insinúa que no tomará medidas hacia Colombia**\
-`El presidente Trump dijo a The New York Times que “solo el tiempo dirá” cuánto tiempo supervisará EE. UU. a Venezuela. Una llamada con el presidente Petro pareció aliviar las tensiones.`\
-https://nytimes.com/live/2026/01/08/espanol/trump-maduro-venezuela-petroleo
 
