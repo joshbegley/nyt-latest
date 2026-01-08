@@ -1,3 +1,15 @@
+**Saudi Official Accuses U.A.E. of Helping Yemeni Separatist to Escape**\
+`Aidarous al-Zubaidi is wanted on treason charges in Yemen after he led a lightning military offensive that escalated a bitter feud between the Emirates and Saudi Arabia.`\
+https://nytimes.com/2026/01/08/world/middleeast/saudi-arabia-uae-yemen-separatist-zubaidi.html
+
+**Hochul to Announce Road Map to Expand Child Care in New York**\
+`Governor Kathy Hochul will appear with Mayor Zohran Mamdani to lay out a plan to expand free and subsidized child care, which had been a central focus of his campaign.`\
+https://nytimes.com/2026/01/08/nyregion/mamdani-hochul-child-care.html
+
+**Trump Administration Live Updates: U.S. Pulls Out of Global Climate Deal**\
+``\
+https://nytimes.com/live/2026/01/08/us/trump-news
+
 **Lebanon Claims Progress in Disarming Militant Groups Like Hezbollah**\
 `The military said it had completed the first phase of a plan to demilitarize armed groups as fears grew that Israel was preparing a new offensive against Hezbollah.`\
 https://nytimes.com/2026/01/08/world/middleeast/hezbollah-disarmament-lebanon-israel.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6940365/2026/01/08/yankees-pitcher-targets-trade-fr
 **This Week in Sports Trivia: January 8, 2026**\
 `How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
 https://nytimes.com/athletic/6950315/2026/01/08/this-week-in-sports-trivia-january-8-2026/
-
-**Nobody has a better case to win the Hart Trophy than Macklin Celebrini**\
-`Macklin Mania continues to spread with a regulation loss turned into a point gained against the Kings because of his latest heroics.`\
-https://nytimes.com/athletic/6953555/2026/01/08/macklin-celebrini-hart-trophy-contender/
-
-**Miami's Keionte Scott making the most of unexpected second chance … after sleeping on the job**\
-`Scott, whose journey began in 2020 at a junior college, earned second-team All-ACC honors in 2025.`\
-https://nytimes.com/athletic/6945552/2026/01/08/keionte-scott-miami-hurricanes-college-football-playoff/
-
-**NFL playoffs: Key matchups to watch in each NFC wild-card game**\
-`The run game will be key in the NFC wild-card matchups between the 49ers-Eagles and Packers-Bears this weekend.`\
-https://nytimes.com/athletic/6944573/2026/01/08/nfl-playoffs-nfc-wild-card-matchups/
 

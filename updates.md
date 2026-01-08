@@ -1,3 +1,11 @@
+**Lebanon Claims Progress in Disarming Militant Groups Like Hezbollah**\
+`The military said it had completed the first phase of a plan to demilitarize armed groups as fears grew that Israel was preparing a new offensive against Hezbollah.`\
+https://nytimes.com/2026/01/08/world/middleeast/hezbollah-disarmament-lebanon-israel.html
+
+**Why the Trae Young trade return was so underwhelming, and what's next for Hawks**\
+`Young has lost a step over the last couple of years, and Atlanta is content to roll with its new core.`\
+https://nytimes.com/athletic/6953358/2026/01/08/trae-young-trade-return-hawks-future/
+
 **Giannis says he will never ask for trade from Bucks: 'That's not in my nature'**\
 `In an exclusive interview with The Athletic, Antetokounmpo reiterated his commitment to Milwaukee but noted it's "as of today."`\
 https://nytimes.com/athletic/6953526/2026/01/08/giannis-antetokounmpo-bucks-trade-nba-deadline-interview/

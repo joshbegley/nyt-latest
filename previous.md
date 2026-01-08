@@ -1,3 +1,11 @@
+**Lebanon Claims Progress in Disarming Militant Groups Like Hezbollah**\
+`The military said it had completed the first phase of a plan to demilitarize armed groups as fears grew that Israel was preparing a new offensive against Hezbollah.`\
+https://nytimes.com/2026/01/08/world/middleeast/hezbollah-disarmament-lebanon-israel.html
+
+**Why the Trae Young trade return was so underwhelming, and what's next for Hawks**\
+`Young has lost a step over the last couple of years, and Atlanta is content to roll with its new core.`\
+https://nytimes.com/athletic/6953358/2026/01/08/trae-young-trade-return-hawks-future/
+
 **Giannis says he will never ask for trade from Bucks: 'That's not in my nature'**\
 `In an exclusive interview with The Athletic, Antetokounmpo reiterated his commitment to Milwaukee but noted it's "as of today."`\
 https://nytimes.com/athletic/6953526/2026/01/08/giannis-antetokounmpo-bucks-trade-nba-deadline-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6945552/2026/01/08/keionte-scott-miami-hurricanes-c
 **NFL playoffs: Key matchups to watch in each NFC wild-card game**\
 `The run game will be key in the NFC wild-card matchups between the 49ers-Eagles and Packers-Bears this weekend.`\
 https://nytimes.com/athletic/6944573/2026/01/08/nfl-playoffs-nfc-wild-card-matchups/
-
-**Memo to NFL owners hiring head coaches: Don't forget about special teams coordinators**\
-`John Harbaugh's long run in Baltimore — after serving as a special teams coach in Philadelphia — is a model more teams should follow.`\
-https://nytimes.com/athletic/6951319/2026/01/08/nfl-coaching-carousel-special-teams-coordinators/
-
-**'Wouldn't be where I am today': How Saban's coaching tree is leaving its mark at the CFP**\
-`Four of Saban's former assistants are now coaching in the College Football Playoff semifinals.`\
-https://nytimes.com/athletic/6943207/2026/01/08/nick-saban-coaching-tree-college-football-playoff/
 
