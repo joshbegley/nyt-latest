@@ -1,10 +1,14 @@
+**Ukraine Awards Major Lithium Project to Investors With Links to Trump**\
+`Ronald S. Lauder, a billionaire friend of Mr. Trump, is among the investors. The move comes as the Trump administration looks to profit from investment opportunities in Ukraine.`\
+https://nytimes.com/2026/01/08/world/europe/trump-lauder-ukraine-lithium.html
+
 **Slot 'fears the worst' on Conor Bradley knee injury**\
 `The Northern Ireland full-back will under scans to determine the extent of the damage after being stretchered off deep into added time.`\
 https://nytimes.com/athletic/6956096/2026/01/08/conor-bradley-injury-liverpool-news/
 
 **Senate Agrees to Display a Jan. 6 Plaque Honoring Officers**\
 `Federal law mandated that the memorial tablet be installed by March 2023, but Congress blew past that deadline.`\
-https://nytimes.com/2026/01/08/us/politics/senate-agrees-to-display-a-jan-6-plaque-honoring-officers.html
+https://nytimes.com/2026/01/08/us/politics/senate-jan-6-plaque.html
 
 **Flu Cases Fall in New York City After Reaching Highest Level in a Decade**\
 `Preliminary data suggests that bouts of the viral illness have already peaked, but the city’s health commissioner urged caution.`\
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/6955884/2026/01/08/unrivaled-season-opener-viewersh
 **Minnesota Man Is Freed After Serving 25 Years for Murder He Did Not Commit**\
 `The state’s conviction review unit concluded that Brian Pippitt, 63, was not involved in the 1998 murder of an 84-year-old woman, for which he was serving a life sentence.`\
 https://nytimes.com/2026/01/08/us/brian-pippitt-wrongful-murder-conviction.html
-
-**Trump Backs Kennedy’s Moves on New Childhood Vaccine Schedule**\
-`In an interview with The New York Times, the president said that Health Secretary Robert F. Kennedy Jr. had not gone too far in his recommendations.`\
-https://nytimes.com/2026/01/08/us/politics/trump-new-childhood-vaccine-schedule-cdc.html
 
