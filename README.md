@@ -1,3 +1,7 @@
+**Man Utd dropped more points but this felt like what they needed — a fresh start**\
+`Manchester United dropped more points against Burnley but it did not feel the same as under Amorim`\
+https://nytimes.com/athletic/6953147/2026/01/08/manchester-united-burnley-analysis/
+
 **The Ashes Briefing: Australia complete emphatic series win, but will England accept they must adapt?**\
 `The ECB have confirmed they have started a 'thorough review' of a disastrous tour with the 4-1 series loss confirmed by defeat in Sydney`\
 https://nytimes.com/athletic/6951959/2026/01/08/australia-england-ashes-mccullum-stokes-carey-starc-briefing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6953099/2026/01/08/steve-kerr-mom-ejection-warriors
 **The Women's Super League found an unlikely market in Japan: 'Let’s embrace this'**\
 `A combination of streaming, representation and video games has made Japan one of the WSL's biggest markets`\
 https://nytimes.com/athletic/6836871/2026/01/08/womens-super-league-unlikely-market-japan/
-
-**Wolves' upturn must not deflect them from the wider work to be done in January**\
-`This month still has to be stage one of the club's rebuild, even if the emergence of some players may see tweaks to transfer priorities`\
-https://nytimes.com/athletic/6952621/2026/01/08/wolves-january-edwards-transfers/
 
