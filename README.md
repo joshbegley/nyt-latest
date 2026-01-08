@@ -1,4 +1,8 @@
-**Atletico 1 Real Madrid 2 — Breaking down Valverde's stunner, where does this leave Alonso?**\
+**G.M. Books a $7.1 Billion Loss as It Scales Back E.V. Ambitions**\
+`General Motors said it was writing down the value of battery and electric vehicle factories after changes in federal policy undercut demand.`\
+https://nytimes.com/2026/01/08/business/general-motors-electric-vehicles-writedown.html
+
+**Atletico 1 Real Madrid 2 – Breaking down Valverde's stunner, where does this leave Alonso?**\
 `Xabi Alonso's side scraped through to Sunday's Supercopa de Espana final against Barcelona`\
 https://nytimes.com/athletic/6942410/2026/01/08/atletico-1-real-madrid-2-valverde-alonso-rodrygo/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/business/polymarket-venezuela-invasion-bets.html
 **How to watch Heat vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Miami Heat play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6955650/2026/01/08/heat-vs-bulls-stream-how-to-watch-jan-8/
-
-**How to watch Oilers vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6955648/2026/01/08/oilers-vs-jets-stream-how-to-watch-jan-8/
 

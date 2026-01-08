@@ -1,3 +1,23 @@
+**Atletico 1 Real Madrid 2 — Breaking down Valverde's stunner, where does this leave Alonso?**\
+`Xabi Alonso's side scraped through to Sunday's Supercopa de Espana final against Barcelona`\
+https://nytimes.com/athletic/6942410/2026/01/08/atletico-1-real-madrid-2-valverde-alonso-rodrygo/
+
+**You Don’t Need a Trip to Florida, You Just Need a Cozy Restaurant**\
+`Because the only true cure for the winter blues is dinner by candlelight.`\
+https://nytimes.com/2026/01/08/dining/you-dont-need-a-trip-to-florida-you-just-need-a-cozy-restaurant.html
+
+**Trump’s Response to The Fatal ICE Interaction In Minnesota Hours After It Happened**\
+`New York Times reporters pressed Trump on his conclusion that the victim in Minneapolis, Renee Nicole Good, tried to run over the agent. A Times analysis of footage from three camera angles showed the motorist was driving away from — not toward — a federal officer when he opened fire.`\
+https://nytimes.com/video/us/politics/100000010632316/trump-minnesota-immigration.html
+
+**Sharks acquire goalie Brossoit, defenseman Allan from Blackhawks**\
+`San Jose also gets a 2028 seventh-round pick from Chicago in a deal that includes sending along Ryan Ellis and Jake Furlong.`\
+https://nytimes.com/athletic/6955652/2026/01/08/sharks-blackhawks-trade-allan-brossoit/
+
+**A Fierce Debate With Polymarket: Did the U.S. ‘Invade’ Venezuela?**\
+`Polymarket users bet on whether the U.S. would invade Venezuela, but the prediction market said the Venezuelan president’s capture did not constitute an invasion.`\
+https://nytimes.com/2026/01/08/business/polymarket-venezuela-invasion-bets.html
+
 **Trump ‘Always’ Respects Election Results, but in the U.S., He Says They’re ‘Rigged’**\
 `Over the years, the president has consistently sought to undermine faith in the voting process.`\
 https://nytimes.com/2026/01/08/us/politics/trump-elections.html
