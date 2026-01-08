@@ -1,7 +1,3 @@
-**Arthur Cohn, Film Producer With an Oscar-Winning Touch, Dies at 98**\
-`Six of his movies received Academy Awards, including the Italian drama “The Garden of the Finzi-Continis” and the trade-union strike documentary “American Dream.”`\
-https://nytimes.com/2026/01/07/movies/arthur-cohn-dead.html
-
 **The ICE Shooting Came During an Operation Focused on Somali Immigrants**\
 `Federal immigration officials have stepped up enforcement activity in Minnesota amid a fraud scandal there that includes many people of Somali origin.`\
 https://nytimes.com/2026/01/07/us/ice-minneapolis-somalis-immigration.html
@@ -33,4 +29,8 @@ https://nytimes.com/athletic/6952302/2026/01/07/john-harbaugh-firing-reaction-ji
 **Authorities Often Justify Motorist Shootings by Saying the Vehicle Was a Weapon**\
 `Federal officials said the Minneapolis driver who was shot by an immigration agent was using her vehicle as a weapon, a claim that local officials have disputed.`\
 https://nytimes.com/2026/01/07/us/motorist-shootings-vehicle-weapon.html
+
+**Beyond Minnesota, Social Media Fuels False Rumors of Fraud Among Somalis**\
+`The Ohio governor is once again trying to counter misinformation about immigrants, more than a year after baseless claims that Haitians in Springfield were eating pets.`\
+https://nytimes.com/2026/01/07/us/ohio-child-care-fraud.html
 
