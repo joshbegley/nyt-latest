@@ -1,3 +1,7 @@
+**Science Practice | A Study on Reading for Fun**\
+`Fewer people are reading for fun, a recent study finds.`\
+https://nytimes.com/2026/01/08/learning/science-practice-a-study-on-reading-for-fun.html
+
 **How Jim Harbaugh kept the Chargers afloat and led them back to the playoffs**\
 `Injuries to the pillars of the Chargers' offensive line could've cratered expectations. Harbaugh wouldn't let that happen. `\
 https://nytimes.com/athletic/6952710/2026/01/08/jim-harbaugh-chargers-nfl-playoffs-patriots/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6953634/2026/01/08/terry-yorath-death-news-leeds-wa
 **An Oval Office Viewing**\
 `During an interview with our reporters, President Trump discussed a video of an ICE agent fatally shooting a woman in Minneapolis.`\
 https://nytimes.com/2026/01/08/briefing/an-oval-office-viewing.html
-
-**After Yankees miss on Edward Cabrera trade, what are their starting pitching options?**\
-`Starting pitching options are dwindling, but there are still some for the Yankees to consider in the trade and free-agent markets. `\
-https://nytimes.com/athletic/6940365/2026/01/08/yankees-pitcher-targets-trade-free-agency/
 

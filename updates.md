@@ -1,3 +1,19 @@
+**How Jim Harbaugh kept the Chargers afloat and led them back to the playoffs**\
+`Injuries to the pillars of the Chargers' offensive line could've cratered expectations. Harbaugh wouldn't let that happen. `\
+https://nytimes.com/athletic/6952710/2026/01/08/jim-harbaugh-chargers-nfl-playoffs-patriots/
+
+**Saudi Official Accuses U.A.E. of Helping Yemeni Separatist to Escape**\
+`Aidarous al-Zubaidi is wanted on treason charges in Yemen after he led a lightning military offensive that escalated a bitter feud between the Emirates and Saudi Arabia.`\
+https://nytimes.com/2026/01/08/world/middleeast/saudi-arabia-uae-yemen-separatist-zubaidi.html
+
+**Hochul to Announce Road Map to Expand Child Care Alongside Mamdani**\
+`Governor Kathy Hochul will appear with Mayor Zohran Mamdani to lay out a plan to expand free and subsidized child care in New York, which had been a central focus of his campaign.`\
+https://nytimes.com/2026/01/08/nyregion/mamdani-hochul-child-care.html
+
+**Trump Administration Live Updates: U.S. Pulls Out of Global Climate Deal**\
+``\
+https://nytimes.com/live/2026/01/08/us/trump-news
+
 **Lebanon Claims Progress in Disarming Militant Groups Like Hezbollah**\
 `The military said it had completed the first phase of a plan to demilitarize armed groups as fears grew that Israel was preparing a new offensive against Hezbollah.`\
 https://nytimes.com/2026/01/08/world/middleeast/hezbollah-disarmament-lebanon-israel.html
