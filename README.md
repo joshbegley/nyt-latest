@@ -1,3 +1,7 @@
+**Spurs' Kudus out until March, Bentancur has 'big' hamstring injury**\
+`Spurs head coach Thomas Frank also said that Dejan Kulusevski is still at least "three to four weeks" away from training on grass.`\
+https://nytimes.com/athletic/6954040/2026/01/08/tottenham-injury-news-kudus-bentancur-bergvall/
+
 **Rubio Says He’ll Meet With Danish Officials to Discuss Greenland**\
 `Secretary of State Marco Rubio told reporters he would speak with the officials after days of mounting threats from the Trump administration to take Greenland, a semiautonomous Danish territory.`\
 https://nytimes.com/2026/01/08/world/americas/us-greenland-trump-denmark-rubio-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6953670/2026/01/08/aryna-sabalenka-tennis-schedule-
 **U.S. Trade Deficit Fell to Lowest Level Since 2009, Latest Data Show**\
 `The monthly trade deficit continued to shrink in October after President Trump imposed sweeping tariffs on foreign imports.`\
 https://nytimes.com/2026/01/08/business/economy/us-trade-deficit-tariffs.html
-
-**They're one of U.S. figure skating's top pairs — and not currently eligible for the Olympics**\
-`Alisa Efimova and Misha Mitrofanov might be the best U.S. hope at the Olympics ... if a last-minute citizenship push comes through.`\
-https://nytimes.com/athletic/6953133/2026/01/08/olympics-alisa-efimova-us-figure-skating-citizenship/
 
