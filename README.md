@@ -1,3 +1,23 @@
+**How USMNT fans can get World Cup tickets through U.S. Soccer's allotment**\
+`U.S. Soccer has informed fans of the process to secure World Cup tickets through the federation, and it comes with plenty of caveats`\
+https://nytimes.com/athletic/6954844/2026/01/08/us-soccer-2026-world-cup-tickets-usmnt-supporters-groups/
+
+**Lynda Blackmon Lowery, One of the Youngest Selma Marchers, Dies at 75**\
+`Her activism began as a teenager in 1963, when she heard the Rev. Dr. Martin Luther King Jr. speak. It set her on a path to nonviolent protest.`\
+https://nytimes.com/2026/01/08/us/politics/lynda-blackmon-lowery-dead.html
+
+**Arthur Blank: Falcons set to interview Matt Ryan, want to talk to John Harbaugh**\
+`The Falcons owner is expecting to hire someone for the new president of football position to lead interviews with coach and GM candidates.`\
+https://nytimes.com/athletic/6954166/2026/01/08/arthur-blank-falcons-matt-ryan-john-harbaugh-coach-gm/
+
+**Australia Bakes Under Record Heat, Fueling Fire Risk**\
+`A record-setting heat wave is sweeping across large swaths of Australia, sending residents to the water for relief. In several parts of the country, forecasters have warned that the severe heat could stoke dangerous fire conditions.`\
+https://nytimes.com/video/world/australia/100000010632051/australia-fires-heatwave.html
+
+**Chiefs, NFL aware of abuse allegations made by mother of Rashee Rice's children**\
+`A social media post from the woman on Wednesday does not name Rice but refers to a father figure.`\
+https://nytimes.com/athletic/6954779/2026/01/08/rashee-rice-abuse-allegations-chiefs/
+
 **Olympic silver medalist skier Tess Ledeux will not compete in Milan Games**\
 `Ledeux is dealing with lingering effects from a concussion she suffered in March.`\
 https://nytimes.com/athletic/6954913/2026/01/08/olympic-silver-medalist-skier-tess-ledeux-will-not-compete-in-milan-games/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/08/us/politics/trump-interview-fed-chair.html
 **Kevin’s 2026 Prediction: A.I. Company Solves Famous Math Problem**\
 `On the “Hard Fork” podcast, the hosts Kevin Roose and Casey Newton discuss Kevin’s high confidence prediction for 2026 that an A.I. company will solve one of the Millennium Prize Problems.`\
 https://nytimes.com/video/podcasts/100000010626769/kevins-2026-prediction-ai-company-solves-famous-math-problem.html
-
-**‘Magellan’ Review: The Beauty and the Bloodshed of a Smaller World**\
-`Gael García Bernal plays the explorer Ferdinand Magellan in Lav Diaz’s portrait of a brutal adventurer and his travels across the globe.`\
-https://nytimes.com/2026/01/08/movies/magellan-review.html
-
-**Trump Administration Deploying More Border Patrol Agents to Minnesota**\
-`More than 100 agents will be redirected from other cities after the fatal shooting of a woman in Minneapolis by an ICE officer.`\
-https://nytimes.com/2026/01/08/us/politics/border-patrol-minnesota-trump.html
-
-**Prosecutors Said to Pursue New Investigation of Letitia James**\
-`The New York attorney general’s longtime hairdresser has come under scrutiny as the Justice Department’s efforts to charge Ms. James on other fronts falter.`\
-https://nytimes.com/2026/01/08/us/politics/letitia-james-trump-justice-department.html
-
-**Venezuela Announces the Release of Political Prisoners**\
-`The release, which was expected to happen later on Thursday, offers the first gesture of conciliation under an interim government, even as arrests and crackdowns continue.`\
-https://nytimes.com/2026/01/08/world/americas/venezuela-release-political-prisoners.html
-
-**We Want to Hear From Parents and Doctors About Vaccines**\
-`The Trump administration has removed six vaccines from the routine immunization schedule. How is that affecting you?`\
-https://nytimes.com/2026/01/08/well/vaccine-callout.html
 
