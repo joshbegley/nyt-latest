@@ -1,3 +1,7 @@
+**Hall of Fame goalie Glenn Hall dies at 94**\
+`Hall played 502 consecutive NHL games — a league record that is unlikely to ever be broken.`\
+https://nytimes.com/athletic/6952821/2026/01/07/glenn-hall-obit-hall-of-fame-goalie/
+
 **What is the UNFCCC and Why Is the U.S. Pulling Out?**\
 `The Trump administration said Wednesday that the United States was withdrawing from 66 international agreements, including a major climate change treaty.`\
 https://nytimes.com/2026/01/07/climate/what-is-unfccc-climate-treaty.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010630767/federal-agent-fatally-shoo
 **Trump Proposes Huge Increase in Military Spending**\
 `The president’s proposal for a $600 billion increase comes as his administration pushes for American imperialism.`\
 https://nytimes.com/2026/01/07/us/politics/trump-military-spending-budget.html
-
-**Cubs land Edward Cabrera in trade with Marlins, but can they fix his fastballs?**\
-`Cabrera throws hard, but his fastballs are easy for hitters to square up. Fixing that could unlock a No. 2 starter for the Cubs.`\
-https://nytimes.com/athletic/6952279/2026/01/07/trade-analysis-edward-cabrera-owen-caissie-cubs-marlins/
 
