@@ -1,3 +1,11 @@
+**Unai Emery thwarted by old foe once again as Aston Villa temper expectations**\
+`Villa's underlying data suggests it might be challenging to sustain their recent run of incredible results`\
+https://nytimes.com/athletic/6952701/2026/01/08/unai-emery-thwarted-by-old-foe-once-again-as-aston-villa-temper-expectations/
+
+**Leeds's bubble burst and managing this setback will be key for Daniel Farke**\
+`Leeds led three times against Newcastle but ended up losing 4-3. It brought to an end a seven-match unbeaten run`\
+https://nytimes.com/athletic/6953265/2026/01/08/leeds-newcastle-analysis/
+
 **Minnesota Governor Condemns ICE Shooting**\
 `Governor Tim Walz of Minnesota slammed the fatal shooting of a woman by an immigration agent. President Trump said that the agents had acted in self-defense.`\
 https://nytimes.com/video/us/100000010630880/minnesota-shooting-trump-walz-frey.html
