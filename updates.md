@@ -1,3 +1,15 @@
+**Minnesota Governor Condemns ICE Shooting**\
+`Governor Tim Walz of Minnesota slammed the fatal shooting of a woman by an immigration agent. President Trump said that the agents had acted in self-defense.`\
+https://nytimes.com/video/us/100000010630880/minnesota-shooting-trump-walz-frey.html
+
+**Newcastle, 4-3, and this time a win for Kevin Keegan — who will have loved it**\
+`Newcastle came back from behind three times and then scored a very late winning goal`\
+https://nytimes.com/athletic/6952594/2026/01/08/newcastle-kevin-keegan-leeds-analysis/
+
+**Frank's Tottenham tenure has never felt so lifeless. Can the FA Cup provide some relief?**\
+`There were more signs of discontent at the end of the defeat at Bournemouth. As the league misery continues, thank goodness for the FA Cup`\
+https://nytimes.com/athletic/6952629/2026/01/08/thomas-frank-tottenham-bournemouth/
+
 **Could this be the turning point in Liam Delap's time at Chelsea?**\
 `Liam Delap scored his second non-Club World Cup goal for Chelsea, which was a positive even as they lost against Fulham`\
 https://nytimes.com/athletic/6952802/2026/01/08/liam-delap-chelsea-fulham-analysis/
