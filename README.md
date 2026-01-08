@@ -20,11 +20,11 @@ https://nytimes.com/video/us/100000010630869/renee-nicole-good-minneapolis-ice.h
 
 **We Pressed Trump on His Conclusion About the ICE Shooting. Here’s What He Said.**\
 `The exchange was a glimpse into the president’s reflexive defense of his federal crackdown on immigration.`\
-https://nytimes.com/2026/01/08/us/politics/trump-minnesota-ice-video.html
+https://nytimes.com/2026/01/08/us/politics/trump-minnesota-ice-shooting-video.html
 
 **Trump Sits Down With Times Reporters for Two-Hour Interview**\
 `In a wide-ranging conversation with four Times reporters, President Trump talked about the Minneapolis ICE shooting, immigration, Venezuela and even his plans for further White House renovations.`\
-https://nytimes.com/2026/01/08/us/trump-sits-down-with-times-reporters-for-two-hour-interview.html
+https://nytimes.com/2026/01/08/us/trump-new-york-times-reporter-interview.html
 
 **Trump Says U.S. Oversight of Venezuela Could Last for Years**\
 `In a wide-ranging interview with The New York Times on Wednesday, President Trump said “only time will tell” when it comes to how long the United States aims to control the country.`\
