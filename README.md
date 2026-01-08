@@ -1,3 +1,7 @@
+**Men Cut Hole in Bathroom Wall to Steal Over $500,000 in Jewelry**\
+`Three men targeted a jewelry store in Cape Coral, Fla., according to a federal criminal complaint against the man accused of being the getaway driver. Two others have yet to be identified.`\
+https://nytimes.com/2026/01/08/us/cape-coral-jewelry-store-robbery-florida.html
+
 **Ukraine Awards Major Lithium Project to Investors With Links to Trump**\
 `Ronald S. Lauder, a billionaire friend of Mr. Trump, is among the investors. The move comes as the Trump administration looks to profit from investment opportunities in Ukraine.`\
 https://nytimes.com/2026/01/08/world/europe/trump-lauder-ukraine-lithium.html
@@ -27,11 +31,7 @@ https://nytimes.com/athletic/6955787/2026/01/08/sf-giants-underwhelming-offseaso
 `On Wednesday, Spencer Pratt, star of the MTV reality show “The Hills,” announced that he would be challenging Mayor Karen Bass in the June election. Mr. Pratt became an outspoken critic of California’s liberal leaders after his home burned down in the Palisades fire last year.`\
 https://nytimes.com/video/us/elections/100000010632275/spencer-pratt-los-angeles-mayor-election.html
 
-**Unrivaled's viewership on season-opener drops slightly from last year's average**\
-`Unrivaled’s two season-opening primetime games drew an average of 175,000 viewers.`\
+**Unrivaled's viewership for season-opener drops slightly from last year's average**\
+`Unrivaled’s two season-opening prime-time games drew an average of 175,000 viewers.`\
 https://nytimes.com/athletic/6955884/2026/01/08/unrivaled-season-opener-viewership-womens-basketball/
-
-**Minnesota Man Is Freed After Serving 25 Years for Murder He Did Not Commit**\
-`The state’s conviction review unit concluded that Brian Pippitt, 63, was not involved in the 1998 murder of an 84-year-old woman, for which he was serving a life sentence.`\
-https://nytimes.com/2026/01/08/us/brian-pippitt-wrongful-murder-conviction.html
 
