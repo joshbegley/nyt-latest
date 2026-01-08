@@ -1,3 +1,7 @@
+**Manchester United striker Williams set to join Leicester**\
+`The deal for Williams, 37, will see her leave United after three and a half years at the club.`\
+https://nytimes.com/athletic/6953532/2026/01/08/rachel-williams-leicester-transfer/
+
 **Once a last resort, is pitching in Japan or Korea a bubbling developmental pipeline?**\
 `With the price of pitching sky-high and pitchers often hurt, a wave of mid-career imports have arrived in MLB, touting big results abroad.`\
 https://nytimes.com/athletic/6952116/2026/01/08/mlb-pitching-korea-japan-development/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6953481/2026/01/08/cristian-romero-instagram-totten
 **Super Bowl underdog tier: Ranking the title chances for long-shot contenders**\
 `Austin Mock ranks the Super Bowl chances of the six long-shot contenders heading into the playoffs.`\
 https://nytimes.com/athletic/6951295/2026/01/08/super-bowl-betting-underdogs-chargers-bears-packers-49ers/
-
-**How Drake Maye took the Year 2 leap and became an MVP candidate: It 'was Brady-like'**\
-`Maye has taken a massive step forward in his second season and led the previously floundering Patriots back to the playoffs.`\
-https://nytimes.com/athletic/6950083/2026/01/08/drake-maye-patriots-mvp-candidate-tom-brady/
 
