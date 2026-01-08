@@ -1,3 +1,7 @@
+**See How Kennedy’s Inverted Food Pyramid Stacks Up**\
+`The new pyramid is the picture of the Make America Healthy Again movement, prioritizing whole foods, proteins and fats.`\
+https://nytimes.com/interactive/2026/01/07/well/food-pyramid-rfk-jr.html
+
 **Immanuel Quickley rescues Raptors on buzzer-beating 3 after Ingram's injury**\
 `Ingram exited the game in the first quarter after with a sprained right thumb.`\
 https://nytimes.com/athletic/6952950/2026/01/07/immanuel-quickley-raptors-buzzer-beater-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/07/us/minnesota-shooting-trump-walz-frey.html
 **Hall of Fame goalie Glenn Hall dies at 94**\
 `Hall played 502 consecutive NHL games — a league record that is unlikely to ever be broken.`\
 https://nytimes.com/athletic/6952821/2026/01/07/glenn-hall-obit-hall-of-fame-goalie/
-
-**What Is the UNFCCC and Why Is the U.S. Pulling Out?**\
-`The Trump administration said Wednesday that the United States was withdrawing from 66 international agreements, including a major climate change treaty.`\
-https://nytimes.com/2026/01/07/climate/what-is-unfccc-climate-treaty.html
 

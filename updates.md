@@ -1,3 +1,7 @@
+**Immanuel Quickley rescues Raptors on buzzer-beating 3 after Ingram's injury**\
+`Ingram exited the game in the first quarter after with a sprained right thumb.`\
+https://nytimes.com/athletic/6952950/2026/01/07/immanuel-quickley-raptors-buzzer-beater-nba/
+
 **Some Questions, Then a Selfie: Mayor Mamdani Meets the (Creator) Press**\
 `A friendly summit at New York’s City Hall with digital content creators and social media stars symbolized the new mayor’s attitude toward the changing news media.`\
 https://nytimes.com/2026/01/07/business/media/zohran-mamdani-social-media-creators.html
