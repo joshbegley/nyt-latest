@@ -1,3 +1,11 @@
+**Rockies, RHP Michael Lorenzen agree to 1-year, $8 million contract: Source**\
+`Lorenzen has offered relative durability and versatility in recent years.`\
+https://nytimes.com/athletic/6804204/2026/01/08/mlb-michael-lorenzen-free-agent-signing-rockies/
+
+**College basketball roundup: Vanderbilt stays perfect, UConn avoids OT upset**\
+`Vanderbilt remained perfect this season with a win over visiting Alabama, while UConn reeled off a fourth-quarter run to force overtime.`\
+https://nytimes.com/athletic/6953036/2026/01/08/kentucky-uconn-ncaa-mens-basktball-roundup/
+
 **Marc Guehi's future: Is it time for Crystal Palace to stick or twist?**\
 `Oliver Glasner opened the door to an exit for the defender this month - but which way should Palace go?`\
 https://nytimes.com/athletic/6939667/2026/01/08/marc-guehi-palace-transfer/

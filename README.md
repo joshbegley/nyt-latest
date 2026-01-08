@@ -1,3 +1,7 @@
+**Wizards' real-time Trae Young trade reaction highlighted by handshakes and hugs**\
+`As the Young trade unfolded on Wednesday night, a young Wizards team was left to process the moment.`\
+https://nytimes.com/athletic/6952989/2026/01/08/trae-young-trade-wizards-locker-room/
+
 **Rockies, RHP Michael Lorenzen agree to 1-year, $8 million contract: Source**\
 `Lorenzen has offered relative durability and versatility in recent years.`\
 https://nytimes.com/athletic/6804204/2026/01/08/mlb-michael-lorenzen-free-agent-signing-rockies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6953051/2026/01/08/jimbo-fisher-lane-kiffin-assista
 **There’s a lack of top-class managers up for grabs for Premier League clubs in 2026 – why?**\
 `Ten years ago the English top-flight welcomed perhaps its greatest cohort of coaching talent – a decade on and things are a little different`\
 https://nytimes.com/athletic/6950071/2026/01/08/premier-league-manager-quality-analysis/
-
-**AFCON 2025 kits ranked: Tunisian carpets, a massive eagle and Uganda's FA goes it alone**\
-`The kits at the Africa Cup of Nations never disappoint, and this year's efforts are no different`\
-https://nytimes.com/athletic/6931851/2026/01/08/afcon-2025-home-kits-ranked/
 
