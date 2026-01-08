@@ -1,3 +1,12 @@
+**Flu Cases Fall in New York City After Reaching Highest Level in a Decade**\
+`Preliminary data suggests that bouts of the viral illness have already peaked, but the city’s health commissioner urged caution.`\
+https://nytimes.com/2026/01/08/nyregion/nyc-flu-cases-drop-january.html
+
+**‘Heated Rivalry’ star says closeted pro athletes have reached out because of TV show**\
+`Actor Hudson Williams said on Sirius XM Radio that he has received messages from "hockey players, football players, basketball players." 
+`\
+https://nytimes.com/athletic/6955905/2026/01/08/heated-rivalry-hockey-show-hudson-williams-athletes/
+
 **Giants Mailbagg: Trying to make sense of an underwhelming offseason**\
 `Giants fans have a lot of questions, including Buster Posey's stance on opt-outs, how they'll fix their outfield defense and much more.`\
 https://nytimes.com/athletic/6955787/2026/01/08/sf-giants-underwhelming-offseason/
@@ -25,13 +34,4 @@ https://nytimes.com/athletic/6955971/2026/01/08/nottingham-forest-transfer-news-
 **U.S. Navy Is Chasing Several Oil Tankers in the Atlantic**\
 `A mass departure by sanctioned tankers, some switching to Russian flags, has triggered a fresh effort by the United States to pursue Venezuelan oil shipments at sea.`\
 https://nytimes.com/2026/01/08/world/americas/navy-chasing-tankers-venezuela.html
-
-**World-class research and groundbreaking discoveries for the common good. **\
-`UMass Amherst is accelerating real-world  impact for a better tomorrow.
-`\
-https://nytimes.com/paidpost/umass/amherst/world-class-research-and-groundbreaking-discoveries-for-the-common-good.html
-
-**MLB split season, in-season tournament have been discussed, Manfred says**\
-`The commissioner acknowledged that such changes would require fewer regular-season games, which would be a "complicated thing."`\
-https://nytimes.com/athletic/6955858/2026/01/08/rob-manfred-mlb-split-season-in-season-tournament/
 
