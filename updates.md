@@ -1,3 +1,7 @@
+**Saints confident naming Tyler Shough as starter, building future around QB**\
+`Shough inserted himself into the offensive rookie of the year discussion by leading the Saints to four wins in their last five games.`\
+https://nytimes.com/athletic/6952921/2026/01/07/saints-tyler-shough-future-qb-nfl-draft/
+
 **See How Kennedy’s Inverted Food Pyramid Stacks Up**\
 `The new pyramid is the picture of the Make America Healthy Again movement, prioritizing whole foods, proteins and fats.`\
 https://nytimes.com/interactive/2026/01/07/well/food-pyramid-rfk-jr.html

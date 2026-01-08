@@ -1,3 +1,7 @@
+**Saints confident naming Tyler Shough as starter, building future around QB**\
+`Shough inserted himself into the offensive rookie of the year discussion by leading the Saints to four wins in their last five games.`\
+https://nytimes.com/athletic/6952921/2026/01/07/saints-tyler-shough-future-qb-nfl-draft/
+
 **See How Kennedy’s Inverted Food Pyramid Stacks Up**\
 `The new pyramid is the picture of the Make America Healthy Again movement, prioritizing whole foods, proteins and fats.`\
 https://nytimes.com/interactive/2026/01/07/well/food-pyramid-rfk-jr.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6949961/2026/01/07/trae-young-traded-wizards-hawks/
 **Minnesota Was Long at Odds With the Trump Administration. It’s Boiled Over.**\
 `The contradicting accounts of the ICE shooting in Minneapolis from the federal government and officials in Minnesota were the latest episode in a dispute that has been building for weeks.`\
 https://nytimes.com/2026/01/07/us/minnesota-shooting-trump-walz-frey.html
-
-**Hall of Fame goalie Glenn Hall dies at 94**\
-`Hall played 502 consecutive NHL games — a league record that is unlikely to ever be broken.`\
-https://nytimes.com/athletic/6952821/2026/01/07/glenn-hall-obit-hall-of-fame-goalie/
 
