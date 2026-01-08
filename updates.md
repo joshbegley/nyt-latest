@@ -1,3 +1,7 @@
+**By Killing Renee Good, ICE Sent a Message to Us All**\
+`Not even citizens are safe in Trump’s America.`\
+https://nytimes.com/2026/01/08/opinion/renee-good-minnesota-shooting-ice.html
+
 **Russian Propaganda Ramps Up After U.S. Raid in Venezuela**\
 `A network of websites known as “Portal Kombat” is spreading messages about U.S. military hardware, according to tracking firms.`\
 https://nytimes.com/2026/01/08/us/politics/russia-propaganda-venezuela.html

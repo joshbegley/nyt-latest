@@ -1,3 +1,7 @@
+**By Killing Renee Good, ICE Sent a Message to Us All**\
+`Not even citizens are safe in Trump’s America.`\
+https://nytimes.com/2026/01/08/opinion/renee-good-minnesota-shooting-ice.html
+
 **Russian Propaganda Ramps Up After U.S. Raid in Venezuela**\
 `A network of websites known as “Portal Kombat” is spreading messages about U.S. military hardware, according to tracking firms.`\
 https://nytimes.com/2026/01/08/us/politics/russia-propaganda-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/dining/you-dont-need-a-trip-to-florida-you-just-n
 **Trump’s Response to The Fatal ICE Interaction In Minnesota Hours After It Happened**\
 `New York Times reporters pressed Trump on his conclusion that the victim in Minneapolis, Renee Nicole Good, tried to run over the agent. A Times analysis of footage from three camera angles showed the motorist was driving away from — not toward — a federal officer when he opened fire.`\
 https://nytimes.com/video/us/politics/100000010632316/trump-minnesota-immigration.html
-
-**Sharks acquire goalie Brossoit, defenseman Allan from Blackhawks**\
-`San Jose also gets a 2028 seventh-round pick from Chicago in a deal that includes sending along Ryan Ellis and Jake Furlong.`\
-https://nytimes.com/athletic/6955652/2026/01/08/sharks-blackhawks-trade-allan-brossoit/
 
