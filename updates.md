@@ -1,3 +1,11 @@
+**Must-See Moments From the N.B.A.**\
+`Two overtime thrillers, a career night in Detroit and a buzzer-beater headlined Wednesday night’s action in the N.B.A.`\
+https://nytimes.com/video/sports/basketball/100000010631378/must-see-moments-from-the-nba.html
+
+**Russian Strikes Knock Out Power and Heat to 1 Million Ukrainians**\
+`The Ukrainian authorities urged residents in the Dnipro region to stock up on water as crews raced to restore service.`\
+https://nytimes.com/2026/01/08/world/europe/ukraine-dnipro-power-russia-strike-heat.html
+
 **Man City finalise Semenyo agreement without release clause activation**\
 `The deal will see City pay £62.5million across 24 months rather than immediately.`\
 https://nytimes.com/athletic/6953448/2026/01/08/man-city-semenyo-transfer-release-clause/
