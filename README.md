@@ -1,3 +1,7 @@
+**Unai Emery thwarted by old foe once again as Aston Villa temper expectations**\
+`Villa's underlying data suggests it might be challenging to sustain their recent run of incredible results`\
+https://nytimes.com/athletic/6952701/2026/01/08/unai-emery-thwarted-by-old-foe-once-again-as-aston-villa-temper-expectations/
+
 **Leeds's bubble burst and managing this setback will be key for Daniel Farke**\
 `Leeds led three times against Newcastle but ended up losing 4-3. It brought to an end a seven-match unbeaten run`\
 https://nytimes.com/athletic/6953265/2026/01/08/leeds-newcastle-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/opinion/venezuela-maria-corina-machado-maduro.htm
 **The New York Times in Print for Thursday, Jan. 8, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/08/todays-new-york-times
-
-**Wizards' real-time Trae Young trade reaction highlighted by handshakes and hugs**\
-`As the Young trade unfolded on Wednesday night, a young Wizards team was left to process the moment.`\
-https://nytimes.com/athletic/6952989/2026/01/08/trae-young-trade-wizards-locker-room/
 
