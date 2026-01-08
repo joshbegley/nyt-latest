@@ -1,3 +1,7 @@
+**Unrivaled's viewership on season-opener drops slightly from last year's average**\
+`Unrivaled’s two season-opening primetime games drew an average of 175,000 viewers.`\
+https://nytimes.com/athletic/6955884/2026/01/08/unrivaled-season-opener-viewership-womens-basketball/
+
 **Minnesota Man Is Freed After Serving 25 Years for Murder He Did Not Commit**\
 `The state’s conviction review unit concluded that Brian Pippitt, 63, was not involved in the 1998 murder of an 84-year-old woman, for which he was serving a life sentence.`\
 https://nytimes.com/2026/01/08/us/brian-pippitt-wrongful-murder-conviction.html
@@ -30,12 +34,4 @@ https://nytimes.com/2026/01/08/briefing/trump-interview-oval-office-apple-ceo.ht
 **Rams' Davante Adams, Quentin Lake set to return vs. Panthers**\
 `The Rams lost three games during their late-season stretch when Adams and Lake were dealing with injuries. `\
 https://nytimes.com/athletic/6955893/2026/01/08/rams-davante-adams-quentin-lake-injuries-panthers/
-
-**Rocío San Miguel, Venezuelan Political Prisoner, Was Among Those Released**\
-`Ms. San Miguel’s arrest in 2024 raised fears that Venezuela had entered a new era of repression.`\
-https://nytimes.com/2026/01/08/world/americas/san-miguel-venezuela-prisoner-released.html
-
-**Bondi Warns Minnesota Protesters to Stay Away From Federal Agents**\
-`Trump administration officials also spent the day attacking the woman killed by an ICE agent.`\
-https://nytimes.com/2026/01/08/us/politics/vance-renee-good-ice-shooting-minneapolis.html
 
