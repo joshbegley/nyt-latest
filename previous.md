@@ -1,3 +1,15 @@
+**Russian Propaganda Ramps Up After U.S. Raid in Venezuela**\
+`A network of websites known as “Portal Kombat” is spreading messages about U.S. military hardware, according to tracking firms.`\
+https://nytimes.com/2026/01/08/us/politics/russia-propaganda-venezuela.html
+
+**An Interview With Donald Trump**\
+`The president spoke to The New York Times about Venezuela and his power on the world stage.`\
+https://nytimes.com/2026/01/08/world/interview-donald-trump-venezuela-ice.html
+
+**Noem Defends Officer in Minneapolis Killing and Attacks Mamdani**\
+`During a visit to New York, the homeland security secretary, Kristi Noem, criticized the city’s policies that prevent police officers from helping immigration agents.`\
+https://nytimes.com/2026/01/08/nyregion/kristi-noem-ice-minneapolis.html
+
 **Fact-Checking Trump’s Justifications for the Venezuela Operation**\
 `The president has repeatedly tied Venezuela to drug overdose deaths, claimed the Maduro regime sent an influx of criminal migrants and accused the country of stealing American oil.`\
 https://nytimes.com/2026/01/08/us/politics/venezuela-trump-maduro-fact-check.html
@@ -10,7 +22,7 @@ https://nytimes.com/2026/01/08/us/politics/trump-power-congress-veto.html
 `General Motors said it was writing down the value of battery and electric vehicle factories after changes in federal policy undercut demand.`\
 https://nytimes.com/2026/01/08/business/general-motors-electric-vehicles-writedown.html
 
-**Atletico 1 Real Madrid 2 – Breaking down Valverde's stunner, where does this leave Alonso?**\
+**Atletico 1 Real Madrid 2 – Valverde's stunner, Alonso's job and Vinicius Jr's spat with Simeone**\
 `Xabi Alonso's side scraped through to Sunday's Supercopa de Espana final against Barcelona`\
 https://nytimes.com/athletic/6942410/2026/01/08/atletico-1-real-madrid-2-valverde-alonso-rodrygo/
 
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/politics/100000010632316/trump-minnesota-immigratio
 **Sharks acquire goalie Brossoit, defenseman Allan from Blackhawks**\
 `San Jose also gets a 2028 seventh-round pick from Chicago in a deal that includes sending along Ryan Ellis and Jake Furlong.`\
 https://nytimes.com/athletic/6955652/2026/01/08/sharks-blackhawks-trade-allan-brossoit/
-
-**Trump ‘Always’ Respects Election Results, but in the U.S., He Says They’re ‘Rigged’**\
-`Over the years, the president has consistently sought to undermine faith in the voting process.`\
-https://nytimes.com/2026/01/08/us/politics/trump-elections.html
-
-**Hochul and Mamdani Announce Plan for Universal Child Care**\
-`Gov. Kathy Hochul and Mayor Zohran Mamdani announced a plan on Thursday to vastly expand free and low-cost child care for families across the state in the coming years and add programs for 2-year-olds.`\
-https://nytimes.com/video/nyregion/100000010632026/hochul-mamdani-new-york-universal-child-care.html
-
-**Court Records Reveal Details of ICE Agent’s Previous Dragging Incident**\
-`The agent who shot a woman in Minneapolis on Wednesday was pulled about 100 yards by a car last year while firing a stun gun at the driver. A cut on his arm required 20 stitches.`\
-https://nytimes.com/2026/01/08/us/ice-agent-jonathan-ross-minneapolis-shooting.html
 
