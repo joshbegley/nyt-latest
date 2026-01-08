@@ -1,3 +1,23 @@
+**Trump Says ‘It’s Up To’ Xi Jinping What China Does In Taiwan**\
+`President Trump said that his actions in Venezuela did not set a precedent for other countries like Russia and China because he claimed he was responding to a “real threat.”`\
+https://nytimes.com/video/us/politics/100000010632590/trump-china-russia-taiwan.html
+
+**Legal Hurdles Likely to Stymie State Charges in Minnesota ICE Shooting Case**\
+`After an immigration agent fatally shot a woman, Minnesotans have called for the officer to be prosecuted. But previous attempts to charge federal officers at the state level have failed.`\
+https://nytimes.com/2026/01/08/us/minnesota-ice-shooting-prosecution.html
+
+**A Vengeful Trump Urges Voters to Oust Republicans, Including Collins**\
+`After five G.O.P. senators joined Democrats on a war powers vote, the president lashed out, including at his party’s most politically endangered senator.`\
+https://nytimes.com/2026/01/08/us/politics/trump-senate-republicans-susan-collins.html
+
+**These 5 Republicans Broke With Trump on Venezuela War Powers**\
+`The Republican defectors paved the way for a debate that could expose bipartisan concern about President Trump’s actions in Venezuela. Mr. Trump called for them to lose their seats.`\
+https://nytimes.com/2026/01/08/us/politics/five-republicans-congress-trump-venezuela.html
+
+**The Briefing: Arsenal 0 Liverpool 0 – Late Martinelli flashpoint, second-half improvement from visitors**\
+`Arsenal missed the chance to extend their lead at the top of the Premier League to eight points after a goalless draw at home to Liverpool`\
+https://nytimes.com/athletic/6937594/2026/01/08/arsenal-0-liverpool-0-martinelli-bradley/
+
 **The Briefing: Arsenal 0 Liverpool 0 - Late Martinelli flashpoint, second-half improvement from visitors**\
 `Arsenal missed the chance to extend their lead at the top of the Premier League to eight points after a goalless draw at home to Liverpool`\
 https://nytimes.com/athletic/6937594/2026/01/08/arsenal-0-liverpool-0-martinelli-bradley/

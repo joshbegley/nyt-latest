@@ -1,3 +1,23 @@
+**Man City in advanced talks for USWNT's Coffey from Portland Thorns**\
+`A deal has not yet been finalised but Coffey's desire to play in Europe is expected to see a move to WSL leaders City.`\
+https://nytimes.com/athletic/6955359/2026/01/08/sam-coffey-uswnt-portland-man-city-women-transfers/
+
+**The Next Phase of Trump’s Renovations: A New ‘Upper West Wing’**\
+`Besides changes to the White House, President Trump also said he planned to tear up the brick walkways in Lafayette Park and replace them with granite.`\
+https://nytimes.com/2026/01/08/us/politics/trump-white-house-west-wing-renovation.html
+
+**John Wilson’s Enduring Art of Racial Politics and Personal Memory**\
+`“Witnessing Humanity” at the Met, with more than 100 artworks, and a gaze both inward and outward, is the artist’s first New York survey.`\
+https://nytimes.com/2026/01/08/arts/design/john-wilson-review-metropolitan-museum-art.html
+
+**House Passes Doomed Bill to Restore Health Subsidies**\
+`Approval of the bill was a triumph for Democrats, who drew backing from a small group of Republicans. But it has no path forward, and the prospects of a deal are uncertain.`\
+https://nytimes.com/2026/01/08/us/politics/house-bill-aca-subsidies.html
+
+**Amos Poe, New York’s No Wave Film Pioneer, Dies at 76**\
+`He documented the punk and post-punk music scene in the East Village, leading an independent film movement that was proudly unprofessional.`\
+https://nytimes.com/2026/01/08/arts/amos-poe-dead.html
+
 **Trump Says ‘It’s Up To’ Xi Jinping What China Does In Taiwan**\
 `President Trump said that his actions in Venezuela did not set a precedent for other countries like Russia and China because he claimed he was responding to a “real threat.”`\
 https://nytimes.com/video/us/politics/100000010632590/trump-china-russia-taiwan.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/08/us/politics/five-republicans-congress-trump-venez
 **The Briefing: Arsenal 0 Liverpool 0 – Late Martinelli flashpoint, second-half improvement from visitors**\
 `Arsenal missed the chance to extend their lead at the top of the Premier League to eight points after a goalless draw at home to Liverpool`\
 https://nytimes.com/athletic/6937594/2026/01/08/arsenal-0-liverpool-0-martinelli-bradley/
-
-**New Jersey Is Latest State to Ban Student Phones in Schools**\
-`The restrictions, signed into law by Gov. Philip D. Murphy on Thursday as one of his final acts in office, will take effect during the 2026-2027 school year.`\
-https://nytimes.com/2026/01/08/nyregion/nj-school-cellphone-ban-phil-murphy.html
-
-**Cooper Union Settles Jewish Students’ Suit and Alters Protest Policies**\
-`The New York City college had been accused of tolerating discrimination against those who believe in Zionism following a pro-Palestinian protest that trapped students inside a library.`\
-https://nytimes.com/2026/01/08/nyregion/cooper-union-jewish-students-lawsuit-antisemitism.html
-
-**Vance Announces New Justice Dept. Fraud Post to Be ‘Run Out of the White House’**\
-`The assertion was a brazen effort to toss out the traditional boundaries that have long existed between the White House and investigations conducted by federal law enforcement.`\
-https://nytimes.com/2026/01/08/us/jd-vance-justice-dept-fraud-post.html
-
-**Trent Dilfer, former UAB coach, returns to Nashville high school job**\
-`The 53-year-old former NFL quarterback and ESPN analyst has agreed to return to Lipscomb Academy. `\
-https://nytimes.com/athletic/6955755/2026/01/08/trent-dilfer-coach-uab-lipscomb-academy/
-
-**What Happens When No One Can Say No to Trump?**\
-`After the capture of the Venezuelan president, Nicolás Maduro, over the weekend, “Trump is setting a new course for the country where he can use the military to do just about anything he wants,” argues Times Opinion’s editor, Kathleen Kingsbury. “No one is allowed to say ‘no’ to Trump.”`\
-https://nytimes.com/video/opinion/100000010632349/what-happens-when-no-one-can-say-no-to-trump.html
 
