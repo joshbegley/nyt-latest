@@ -1,3 +1,23 @@
+**The Bounce: That's all the Hawks got for Trae Young?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6954299/2026/01/08/trae-young-trade-hawks-the-bounce/
+
+**The Mysterious ‘Donroe Doctrine’**\
+`Trump’s former Venezuela envoy Elliott Abrams argues that America’s sudden presence there is not about spreading democracy.`\
+https://nytimes.com/video/opinion/100000010624619/the-mysterious-donroe-doctrine.html
+
+**Venezuela Is Not Iraq**\
+`“This is not the Middle East”: The former Venezuela envoy Elliott Abrams tells the Opinion columnist Ross Douthat to “stop making Iraq analogies.”`\
+https://nytimes.com/video/opinion/100000010624617/venezuela-is-not-iraq.html
+
+**Ranking the best QBs available in college football's transfer portal**\
+`Many quarterbacks have already made their transfer portal intentions known. Here's how they stack up heading into the January window.`\
+https://nytimes.com/athletic/6906445/2026/01/08/college-football-transfer-portal-qb-rankings-brendan-sorsby-dj-lagway-and-the-best-available/
+
+**Trump dice que va a ‘reconstruir’ Venezuela e insinúa que no tomará medidas hacia Colombia**\
+`El presidente Trump dijo a The New York Times que “solo el tiempo dirá” cuánto tiempo supervisará EE. UU. a Venezuela. Una llamada con el presidente Petro pareció aliviar las tensiones.`\
+https://nytimes.com/live/2026/01/08/espanol/trump-maduro-venezuela-petroleo
+
 **‘Greenland 2: Migration’ Review: The New World**\
 `Gerard Butler returns for more earthshaking action in this crowd-pleasing postapocalyptic thriller.`\
 https://nytimes.com/2026/01/08/movies/greenland-2-migration-review.html
