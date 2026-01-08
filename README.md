@@ -15,7 +15,7 @@ https://nytimes.com/issue/todayspaper/2026/01/08/todays-new-york-times
 https://nytimes.com/athletic/6952989/2026/01/08/trae-young-trade-wizards-locker-room/
 
 **Rockies, RHP Michael Lorenzen agree to 1-year, $8 million contract: Source**\
-`Lorenzen has offered relative durability and versatility in recent years.`\
+`The former Royals pitcher has offered relative durability and versatility in recent years.`\
 https://nytimes.com/athletic/6804204/2026/01/08/mlb-michael-lorenzen-free-agent-signing-rockies/
 
 **College basketball roundup: Vanderbilt stays perfect, UConn avoids OT upset**\
