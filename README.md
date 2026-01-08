@@ -1,3 +1,15 @@
+**Rams' Davante Adams, Quentin Lake set to return vs. Panthers**\
+`The Rams lost three games during their late-season stretch when Adams and Lake were dealing with injuries. `\
+https://nytimes.com/athletic/6955893/2026/01/08/rams-davante-adams-quentin-lake-injuries-panthers/
+
+**Rocío San Miguel, Venezuelan Political Prisoner, Was Among Those Released**\
+`Ms. San Miguel’s arrest in 2024 raised fears that Venezuela had entered a new era of repression.`\
+https://nytimes.com/2026/01/08/world/americas/san-miguel-venezuela-prisoner-released.html
+
+**Bondi Warns Minnesota Protesters to Stay Away From Federal Agents**\
+`Trump administration officials also spent the day attacking the woman killed by an ICE agent.`\
+https://nytimes.com/2026/01/08/us/politics/vance-renee-good-ice-shooting-minneapolis.html
+
 **I’m the Mayor of Minneapolis. Trump Is Lying to You.**\
 `This administration is making cities less safe.`\
 https://nytimes.com/2026/01/08/opinion/minneapolis-ice-agent-shooting-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/08/us/politics/house-bill-aca-subsidies.html
 **Amos Poe, New York’s No Wave Film Pioneer, Dies at 76**\
 `He documented the punk and post-punk music scene in the East Village, leading an independent film movement that was proudly unprofessional.`\
 https://nytimes.com/2026/01/08/arts/amos-poe-dead.html
-
-**Trump Says ‘It’s Up To’ Xi Jinping What China Does In Taiwan**\
-`President Trump said that his actions in Venezuela did not set a precedent for other countries like Russia and China because he claimed he was responding to a “real threat.”`\
-https://nytimes.com/video/us/politics/100000010632590/trump-china-russia-taiwan.html
-
-**Legal Hurdles Likely to Stymie State Charges in Minnesota ICE Shooting Case**\
-`After an immigration agent fatally shot a woman, Minnesotans have called for the officer to be prosecuted. But previous attempts to charge federal officers at the state level have failed.`\
-https://nytimes.com/2026/01/08/us/minnesota-ice-shooting-prosecution.html
-
-**A Vengeful Trump Urges Voters to Oust Republicans, Including Collins**\
-`After five G.O.P. senators joined Democrats on a war powers vote, the president lashed out, including at his party’s most politically endangered senator.`\
-https://nytimes.com/2026/01/08/us/politics/trump-senate-republicans-susan-collins.html
 
