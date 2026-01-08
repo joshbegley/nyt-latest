@@ -1,3 +1,8 @@
+**‘Heated Rivalry’ star says closeted pro athletes have reached out because of TV show**\
+`Actor Hudson Williams said on Sirius XM Radio that he has received messages from "hockey players, football players, basketball players." 
+`\
+https://nytimes.com/athletic/6955905/2026/01/08/heated-rivalry-hockey-show-hudson-williams-athletes/
+
 **Flu Cases Fall in New York City After Reaching Highest Level in a Decade**\
 `Preliminary data suggests that bouts of the viral illness have already peaked, but the city’s health commissioner urged caution.`\
 https://nytimes.com/2026/01/08/nyregion/nyc-flu-cases-drop-january.html
