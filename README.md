@@ -1,3 +1,7 @@
+**Sirens announce PWHL's first game at Madison Square Garden**\
+`The matchup against the expansion Seattle Torrent will be the Sirens' first time playing in the heart of the city.`\
+https://nytimes.com/athletic/6952721/2026/01/08/pwhl-sirens-madison-square-garden-torrent/
+
 **Nigeria's AFCON bonuses issue resolved, claims finance minister**\
 `Reports suggested a standoff similar to the one that took place prior to their World Cup play-off victory over Gabon on November 13.`\
 https://nytimes.com/athletic/6950445/2026/01/08/nigeria-afcon-bonuses-payments/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/business/dealbook/trump-venezuela-oil.html
 **Bucks, Giannis upset with calls in Warriors loss: 'What were you looking at?'**\
 `Did Doc Rivers and his superstar have a point about the officiating? Probably, but the Bucks let adversity snowball too often.`\
 https://nytimes.com/athletic/6953420/2026/01/08/bucks-giannis-doc-rivers-officials-loss/
-
-**How to watch Louisville vs. Miami (FL) women's basketball: Time, TV, streaming**\
-`Find out how to watch the Louisville Cardinals play the Miami Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6953772/2026/01/08/louisville-vs-miami-fl-stream-how-to-watch-jan-8/
 
