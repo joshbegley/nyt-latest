@@ -1,3 +1,19 @@
+**Did Jordan Binnington refuse to be pulled? Blues coach Jim Montgomery sets the record straight**\
+`Was it more Binnington antics? Or Joel Hofer hiding? Montgomery debunked the notions Thursday, saying Hofer simply wasn't ready.`\
+https://nytimes.com/athletic/6954487/2026/01/08/blues-binnington-hofer-goalie-pull/
+
+**Face to Face With the Thwaites Glacier**\
+`Less than a day after arriving at the ice, we are already up close and personal with the fastest-melting glacier in Antarctica.`\
+https://nytimes.com/2026/01/08/climate/thwaites-glacier-arrival.html
+
+**Arsenal retain Guehi interest as option for summer transfer window**\
+`The Athletic reported earlier this week that Manchester City were weighing up whether to push for Guehi this month.`\
+https://nytimes.com/athletic/6591844/2026/01/08/marc-guehi-crystal-palace-transfer-news/
+
+**DJ Lagway, former 5-star prospect, transferring from Florida to Baylor: Sources**\
+`Lagway, the No. 9 player in The Athletic's transfer quarterback rankings, entered the transfer portal last week after two years at Florida.`\
+https://nytimes.com/athletic/6955074/2026/01/08/dj-lagway-quarterback-baylor-transfer-florida/
+
 **5 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2026/01/08/books/review/recommended-new-books.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6954166/2026/01/08/arthur-blank-falcons-matt-ryan-j
 **Australia Bakes Under Record Heat, Fueling Fire Risk**\
 `A record-setting heat wave is sweeping across large swaths of Australia, sending residents to the water for relief. In several parts of the country, forecasters have warned that the severe heat could stoke dangerous fire conditions.`\
 https://nytimes.com/video/world/australia/100000010632051/australia-fires-heatwave.html
-
-**Chiefs, NFL aware of abuse allegations made by mother of Rashee Rice's children**\
-`A social media post from the woman on Wednesday does not name Rice but refers to a father figure.`\
-https://nytimes.com/athletic/6954779/2026/01/08/rashee-rice-abuse-allegations-chiefs/
-
-**Olympic silver medalist skier Tess Ledeux will not compete in Milan Games**\
-`Ledeux is dealing with lingering effects from a concussion she suffered in March.`\
-https://nytimes.com/athletic/6954913/2026/01/08/olympic-silver-medalist-skier-tess-ledeux-will-not-compete-in-milan-games/
-
-**Why Cambodia Handed Over a Man Accused of Stealing Billions in Crypto Scam**\
-`Experts say the scam industry has become a pillar of Cambodia’s economy, but it is under pressure from other countries to crack down.`\
-https://nytimes.com/2026/01/08/world/asia/cambodia-scam-china-prince-group-chen.html
-
-**In Address, Newsom to Highlight His Leadership and Contrast Himself to Trump**\
-`Gov. Gavin Newsom will portray his state as “a beacon” of democracy in a State of the State address that suggests national ambitions.`\
-https://nytimes.com/2026/01/08/us/newsom-california-state-of-the-state-speech.html
 

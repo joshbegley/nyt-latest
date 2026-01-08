@@ -1,3 +1,19 @@
+**Did Jordan Binnington refuse to be pulled? Blues coach Jim Montgomery sets the record straight**\
+`Was it more Binnington antics? Or Joel Hofer hiding? Montgomery debunked the notions Thursday, saying Hofer simply wasn't ready.`\
+https://nytimes.com/athletic/6954487/2026/01/08/blues-binnington-hofer-goalie-pull/
+
+**Face to Face With the Thwaites Glacier**\
+`Less than a day after arriving at the ice, we are already up close and personal with the fastest-melting glacier in Antarctica.`\
+https://nytimes.com/2026/01/08/climate/thwaites-glacier-arrival.html
+
+**Arsenal retain Guehi interest as option for summer transfer window**\
+`The Athletic reported earlier this week that Manchester City were weighing up whether to push for Guehi this month.`\
+https://nytimes.com/athletic/6591844/2026/01/08/marc-guehi-crystal-palace-transfer-news/
+
+**DJ Lagway, former 5-star prospect, transferring from Florida to Baylor: Sources**\
+`Lagway, the No. 9 player in The Athletic's transfer quarterback rankings, entered the transfer portal last week after two years at Florida.`\
+https://nytimes.com/athletic/6955074/2026/01/08/dj-lagway-quarterback-baylor-transfer-florida/
+
 **5 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2026/01/08/books/review/recommended-new-books.html
