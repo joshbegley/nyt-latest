@@ -1,3 +1,5 @@
+
+
 **Teenagers on What Gives Them Hope in 2026**\
 `Students react to a newsletter about the rise of cynicism and how to cultivate optimism in the new year.`\
 https://nytimes.com/2026/01/08/learning/teenagers-on-what-gives-them-hope-in-2026.html
