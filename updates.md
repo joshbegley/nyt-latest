@@ -1,3 +1,7 @@
+**University to Pay $500,000 to Professor It Fired Over Charlie Kirk Post**\
+`Austin Peay State University in Tennessee also reinstated Darren Michael, a tenured acting professor whose post about Mr. Kirk’s killing inflamed conservatives.`\
+https://nytimes.com/2026/01/07/us/austin-peay-professor-charlie-kirk-settlement-reinstated.html
+
 **Arthur Cohn, Film Producer With an Oscar-Winning Touch, Dies at 98**\
 `Six of his movies received Academy Awards, including the Italian drama “The Garden of the Finzi-Continis” and the trade-union strike documentary “American Dream.”`\
 https://nytimes.com/2026/01/07/movies/arthur-cohn-dead.html
