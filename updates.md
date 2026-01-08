@@ -1,3 +1,7 @@
+**Sirens announce PWHL's first game at Madison Square Garden**\
+`The matchup against the expansion Seattle Torrent will be the Sirens' first time playing in the heart of the city.`\
+https://nytimes.com/athletic/6952721/2026/01/08/pwhl-sirens-madison-square-garden-torrent/
+
 **Nigeria's AFCON bonuses issue resolved, claims finance minister**\
 `Reports suggested a standoff similar to the one that took place prior to their World Cup play-off victory over Gabon on November 13.`\
 https://nytimes.com/athletic/6950445/2026/01/08/nigeria-afcon-bonuses-payments/
