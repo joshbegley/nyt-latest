@@ -1,3 +1,7 @@
+**2 Killed in Shooting Outside Mormon Church in Salt Lake City**\
+`The shooting did not appear to be a targeted attack against the church and seemed to stem from an altercation in its parking lot, the police said.`\
+https://nytimes.com/2026/01/08/us/salt-lake-city-church-shooting.html
+
 **The Sober Party Girl Revolution**\
 `At a members-only club in Manhattan, a new generation rejects alcohol but isn’t quite ready to give up the party.`\
 https://nytimes.com/2026/01/08/nyregion/luxury-sobriety-the-maze.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/arts/television/late-night-trump-oil-venezuela.ht
 **How to watch Texans at Steelers: Wild Card Round Time, TV, streaming**\
 `Find out how to watch the Houston Texans play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6953380/2026/01/08/texans-vs-steelers-stream-how-to-watch-jan-12/
-
-**Mitoma serves up another reminder of how important he is to Brighton and their hopes**\
-`There is an added fear factor for opponents when Mitoma's name is on the team sheet. Fabian Hurzeler needs him fit and firing`\
-https://nytimes.com/athletic/6951148/2026/01/08/brighton-kaoru-mitoma-man-city-analysis/
 
