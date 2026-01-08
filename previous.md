@@ -1,3 +1,15 @@
+**NFL wild-card round staff picks: Narrow spreads and entertainment galore**\
+`This season's wild-card slate is a juicy one. We've got staff picks for each game. `\
+https://nytimes.com/athletic/6951123/2026/01/08/nfl-wild-card-staff-picks-playoffs-betting/
+
+**Romero appears to criticise Spurs hierarchy over silence on state of club**\
+`The 27-year-old apologised to fans on social media and said others who "only show up when things are going well" should too.`\
+https://nytimes.com/athletic/6953481/2026/01/08/cristian-romero-instagram-tottenham-lies/
+
+**Super Bowl underdog tier: Ranking the title chances for long-shot contenders**\
+`Austin Mock ranks the Super Bowl chances of the six long-shot contenders heading into the playoffs.`\
+https://nytimes.com/athletic/6951295/2026/01/08/super-bowl-betting-underdogs-chargers-bears-packers-49ers/
+
 **How Drake Maye took the Year 2 leap and became an MVP candidate: It 'was Brady-like'**\
 `Maye has taken a massive step forward in his second season and led the previously floundering Patriots back to the playoffs.`\
 https://nytimes.com/athletic/6950083/2026/01/08/drake-maye-patriots-mvp-candidate-tom-brady/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2026/01/08/realestate/japan-homes-buy-sales.html
 **Torn Map**\
 `What do you think this image is communicating?`\
 https://nytimes.com/2026/01/08/learning/torn-map.html
-
-**If Trump Doesn’t Bring Democracy Into Venezuela, He’ll Never Get Much Oil Out of It**\
-`Trump will soon discover that the only way to revive major American oil investments in Venezuela is to revive Venezuela’s democracy.`\
-https://nytimes.com/2026/01/08/opinion/venezuela-trump-oil-democracy.html
-
-**The Brown Shooting Suspect’s Descent From Brilliant Friend to Angry Loner**\
-`After Claudio Neves Valente was accused of killing two Brown students and a M.I.T. professor, former classmates recalled how he yearned to go to M.I.T. himself and failed, adding to his growing list of resentments.`\
-https://nytimes.com/2026/01/08/us/brown-shooting-suspect-claudio-valente-portugal.html
-
-**5 Classical Music Albums You Can Listen to Right Now**\
-`Recent works by Gabriela Ortiz, choral music by David Lang and unreleased recordings by Radu Lupu are among our selections.`\
-https://nytimes.com/2026/01/08/arts/music/best-classical-music-albums-january-2026.html
 
