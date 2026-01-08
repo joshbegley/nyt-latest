@@ -1,3 +1,27 @@
+**Olympic silver medalist skier Tess Ledeux will not compete in Milan Games**\
+`Ledeux is dealing with lingering effects from a concussion she suffered in March.`\
+https://nytimes.com/athletic/6954913/2026/01/08/olympic-silver-medalist-skier-tess-ledeux-will-not-compete-in-milan-games/
+
+**Why Cambodia Handed Over a Man Accused of Stealing Billions in Crypto Scam**\
+`Experts say the scam industry has become a pillar of Cambodia’s economy, but it is under pressure from other countries to crack down.`\
+https://nytimes.com/2026/01/08/world/asia/cambodia-scam-china-prince-group-chen.html
+
+**In Address, Newsom to Highlight His Leadership and Contrast Himself to Trump**\
+`Gov. Gavin Newsom will portray his state as “a beacon” of democracy in a State of the State address that suggests national ambitions.`\
+https://nytimes.com/2026/01/08/us/newsom-california-state-of-the-state-speech.html
+
+**Trump Says He Has Made Up His Mind on His Fed Chair Pick**\
+`The president stopped short of announcing his selection, but when asked about Kevin A. Hassett, his top economic adviser, he said he was “certainly one of the people that I like.”`\
+https://nytimes.com/2026/01/08/us/politics/trump-interview-fed-chair.html
+
+**Kevin’s 2026 Prediction: A.I. Company Solves Famous Math Problem**\
+`On the “Hard Fork” podcast, the hosts Kevin Roose and Casey Newton discuss Kevin’s high confidence prediction for 2026 that an A.I. company will solve one of the Millennium Prize Problems.`\
+https://nytimes.com/video/podcasts/100000010626769/kevins-2026-prediction-ai-company-solves-famous-math-problem.html
+
+**‘Magellan’ Review: The Beauty and the Bloodshed of a Smaller World**\
+`Gael García Bernal plays the explorer Ferdinand Magellan in Lav Diaz’s portrait of a brutal adventurer and his travels across the globe.`\
+https://nytimes.com/2026/01/08/movies/magellan-review.html
+
 **Trump Administration Deploying More Border Patrol Agents to Minnesota**\
 `More than 100 agents will be redirected from other cities after the fatal shooting of a woman in Minneapolis by an ICE officer.`\
 https://nytimes.com/2026/01/08/us/politics/border-patrol-minnesota-trump.html
@@ -13,28 +37,4 @@ https://nytimes.com/2026/01/08/world/americas/venezuela-release-political-prison
 **We Want to Hear From Parents and Doctors About Vaccines**\
 `The Trump administration has removed six vaccines from the routine immunization schedule. How is that affecting you?`\
 https://nytimes.com/2026/01/08/well/vaccine-callout.html
-
-**Chefs Find a Muse in Sticky Toffee Pudding**\
-`Plus: evil eye jewelry, an Italian hotel in a former convent and more recommendations from T Magazine.`\
-https://nytimes.com/2026/01/08/t-magazine/sticky-toffee-pudding.html
-
-**Senate Advances Measure to Curb Trump Use of Force in Venezuela**\
-`A handful of Republicans joined Democrats to allow the measure to move forward, reflecting concerns in both parties about the administration’s strategy.`\
-https://nytimes.com/2026/01/08/us/politics/senate-trump-venezuela-military.html
-
-**Leeds' Elland Road expansion plans approved by council**\
-`The application to redevelop Elland Road and extend stadium capacity to around 53,000 has been approved by Leeds City Council.`\
-https://nytimes.com/athletic/6954070/2026/01/08/leeds-elland-road-stadium-plans/
-
-**This Republican Thinks His Party Is ‘Gaslighting’ on Venezuela**\
-`Representative Thomas Massie, a rare Republican critic of President Trump’s military intervention, explained his concerns in an interview with The New York Times.`\
-https://nytimes.com/2026/01/08/us/politics/thomas-massie-trump-venezuela.html
-
-**Here’s the latest.**\
-`By The New York Times`\
-https://nytimes.com/live/2026/01/08/us/trump-nyt-interview/heres-the-latest
-
-**Live: Highlights From The Times’s Interview With President Trump**\
-`Mr. Trump sat down with our reporters for an interview in which he talked about his health, watched a video of an ICE shooting and mused about his power on the world stage.`\
-https://nytimes.com/live/2026/01/08/us/trump-nyt-interview
 
