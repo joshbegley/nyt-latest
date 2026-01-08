@@ -1,3 +1,11 @@
+**Former Uvalde Teacher’s Testimony Throws a Trial Into Chaos**\
+`Lawyers for a former officer charged with abandoning children in the police response accused prosecutors of withholding information. A judge ruled prosecutors had erred but denied a motion for a mistrial.`\
+https://nytimes.com/2026/01/08/us/uvalde-shooting-teacher-testimony-trial.html
+
+**Australia Faces Critical Fire Warnings Amid Record-Breaking Heat Wave**\
+`Temperatures are well above 100 degrees Fahrenheit in much of the country, and forecasters warned of potentially catastrophic fire conditions on Friday.`\
+https://nytimes.com/2026/01/08/weather/australia-heat-wave-fire.html
+
 **ICE Killing in Minnesota: A ‘Blatant and Tragic Use of Deadly Force’**\
 `Readers react to news reports and video of the fatal shooting of a 37-year-old woman by ICE agents.`\
 https://nytimes.com/2026/01/08/opinion/ice-killing-minnesota.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/opinion/100000010614232/child-sexual-abuse-destroyed-m
 **What Trump Told Us About the ICE Shooting**\
 `The New York Times sat down with President Trump in the Oval Office for an exclusive interview just hours after an Immigration and Customs Enforcement agent shot a 37-year-old woman in Minneapolis. Our White House correspondent Zolan Kanno-Youngs explains how the president reacted to the shooting.`\
 https://nytimes.com/video/us/100000010630711/what-trump-told-us-about-the-ice-shooting.html
-
-**Did Jordan Binnington refuse to be pulled? Blues coach Jim Montgomery sets the record straight**\
-`Was it more Binnington antics? Or Joel Hofer hiding? Montgomery debunked the notions Thursday, saying Hofer simply wasn't ready.`\
-https://nytimes.com/athletic/6954487/2026/01/08/blues-binnington-hofer-goalie-pull/
-
-**Face to Face With the Thwaites Glacier**\
-`Less than a day after arriving at the ice, we are already up close and personal with the fastest-melting glacier in Antarctica.`\
-https://nytimes.com/2026/01/08/climate/thwaites-glacier-arrival.html
 

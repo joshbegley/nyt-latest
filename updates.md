@@ -1,3 +1,11 @@
+**Former Uvalde Teacher’s Testimony Throws a Trial Into Chaos**\
+`Lawyers for a former officer charged with abandoning children in the police response accused prosecutors of withholding information. A judge ruled prosecutors had erred but denied a motion for a mistrial.`\
+https://nytimes.com/2026/01/08/us/uvalde-shooting-teacher-testimony-trial.html
+
+**Australia Faces Critical Fire Warnings Amid Record-Breaking Heat Wave**\
+`Temperatures are well above 100 degrees Fahrenheit in much of the country, and forecasters warned of potentially catastrophic fire conditions on Friday.`\
+https://nytimes.com/2026/01/08/weather/australia-heat-wave-fire.html
+
 **ICE Killing in Minnesota: A ‘Blatant and Tragic Use of Deadly Force’**\
 `Readers react to news reports and video of the fatal shooting of a 37-year-old woman by ICE agents.`\
 https://nytimes.com/2026/01/08/opinion/ice-killing-minnesota.html
