@@ -1,3 +1,11 @@
+**Trent Dilfer, former UAB coach, returns to Nashville high school job**\
+`The 53-year-old former NFL quarterback and ESPN analyst has agreed to return to Lipscomb Academy. `\
+https://nytimes.com/athletic/6955755/2026/01/08/trent-dilfer-coach-uab-lipscomb-academy/
+
+**What Happens When No One Can Say No to Trump?**\
+`After the capture of the Venezuelan president, Nicolás Maduro, over the weekend, “Trump is setting a new course for the country where he can use the military to do just about anything he wants,” argues Times Opinion’s editor, Kathleen Kingsbury. “No one is allowed to say ‘no’ to Trump.”`\
+https://nytimes.com/video/opinion/100000010632349/what-happens-when-no-one-can-say-no-to-trump.html
+
 **Trump Says His Only Limit on His Global Powers Is His ‘Own Morality’**\
 `President Trump brushed aside international law and repeated his goal for the U.S. to own Greenland.`\
 https://nytimes.com/video/us/politics/100000010632450/trump-international-law-greenland.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/08/us/politics/russia-propaganda-venezuela.html
 **An Interview With Donald Trump**\
 `The president spoke to The New York Times about Venezuela and his power on the world stage.`\
 https://nytimes.com/2026/01/08/world/interview-donald-trump-venezuela-ice.html
-
-**Noem Defends Officer in Minneapolis Killing and Attacks Mamdani**\
-`During a visit to New York, the homeland security secretary, Kristi Noem, criticized the city’s policies that prevent police officers from helping immigration agents.`\
-https://nytimes.com/2026/01/08/nyregion/kristi-noem-ice-minneapolis.html
-
-**Fact-Checking Trump’s Justifications for the Venezuela Operation**\
-`The president has repeatedly tied Venezuela to drug overdose deaths, claimed the Maduro regime sent an influx of criminal migrants and accused the country of stealing American oil.`\
-https://nytimes.com/2026/01/08/us/politics/venezuela-trump-maduro-fact-check.html
 
