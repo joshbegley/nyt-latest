@@ -1,3 +1,7 @@
+**Manchester United striker Williams set to join Leicester**\
+`The deal for Williams, 37, will see her leave United after three and a half years at the club.`\
+https://nytimes.com/athletic/6953532/2026/01/08/rachel-williams-leicester-transfer/
+
 **Once a last resort, is pitching in Japan or Korea a bubbling developmental pipeline?**\
 `With the price of pitching sky-high and pitchers often hurt, a wave of mid-career imports have arrived in MLB, touting big results abroad.`\
 https://nytimes.com/athletic/6952116/2026/01/08/mlb-pitching-korea-japan-development/
