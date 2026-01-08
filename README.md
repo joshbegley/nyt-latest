@@ -1,3 +1,7 @@
+**Senate Agrees to Display a Jan. 6 Plaque Honoring Officers**\
+`Federal law mandated that the memorial tablet be installed by March 2023, but Congress blew past that deadline.`\
+https://nytimes.com/2026/01/08/us/politics/senate-agrees-to-display-a-jan-6-plaque-honoring-officers.html
+
 **Flu Cases Fall in New York City After Reaching Highest Level in a Decade**\
 `Preliminary data suggests that bouts of the viral illness have already peaked, but the city’s health commissioner urged caution.`\
 https://nytimes.com/2026/01/08/nyregion/nyc-flu-cases-drop-january.html
@@ -30,8 +34,4 @@ https://nytimes.com/2026/01/08/us/politics/trump-new-childhood-vaccine-schedule-
 **Taremi and Strand Larsen on Nottingham Forest's four-man striker shortlist**\
 `Forest are one of several clubs monitoring the potential availability of Strand Larsen, while Taremi shares a similar profile to Chris Wood.`\
 https://nytimes.com/athletic/6955971/2026/01/08/nottingham-forest-transfer-news-taremi-strand-larsen/
-
-**U.S. Navy Is Chasing Several Oil Tankers in the Atlantic**\
-`A mass departure by sanctioned tankers, some switching to Russian flags, has triggered a fresh effort by the United States to pursue Venezuelan oil shipments at sea.`\
-https://nytimes.com/2026/01/08/world/americas/navy-chasing-tankers-venezuela.html
 

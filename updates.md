@@ -1,3 +1,16 @@
+**Flu Cases Fall in New York City After Reaching Highest Level in a Decade**\
+`Preliminary data suggests that bouts of the viral illness have already peaked, but the city’s health commissioner urged caution.`\
+https://nytimes.com/2026/01/08/nyregion/nyc-flu-cases-drop-january.html
+
+**‘Heated Rivalry’ star says closeted pro athletes have reached out because of TV show**\
+`Actor Hudson Williams said on Sirius XM Radio that he has received messages from "hockey players, football players, basketball players." 
+`\
+https://nytimes.com/athletic/6955905/2026/01/08/heated-rivalry-hockey-show-hudson-williams-athletes/
+
+**Giants Mailbagg: Trying to make sense of an underwhelming offseason**\
+`Giants fans have a lot of questions, including Buster Posey's stance on opt-outs, how they'll fix their outfield defense and much more.`\
+https://nytimes.com/athletic/6955787/2026/01/08/sf-giants-underwhelming-offseason/
+
 **Reality TV Star Spencer Pratt Announces Bid for L.A. Mayor**\
 `On Wednesday, Spencer Pratt, star of the MTV reality show “The Hills,” announced that he would be challenging Mayor Karen Bass in the June election. Mr. Pratt became an outspoken critic of California’s liberal leaders after his home burned down in the Palisades fire last year.`\
 https://nytimes.com/video/us/elections/100000010632275/spencer-pratt-los-angeles-mayor-election.html
