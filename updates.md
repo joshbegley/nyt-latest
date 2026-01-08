@@ -1,3 +1,11 @@
+**ICE Killing in Minnesota: A ‘Blatant and Tragic Use of Deadly Force’**\
+`Readers react to news reports and video of the fatal shooting of a 37-year-old woman by ICE agents.`\
+https://nytimes.com/2026/01/08/opinion/ice-killing-minnesota.html
+
+**Ron Protas, Polarizing Keeper of Martha Graham’s Legacy, Dies at 84**\
+`Graham, the great modern dance choreographer, named him her heir, setting off a bitter legal battle between him and the troupe she founded.`\
+https://nytimes.com/2026/01/08/arts/dance/ron-protas-dead.html
+
 **‘The Pitt’ Had Much to Celebrate … and Now Even More**\
 `At the premiere of Season 2 in Los Angeles, the cast and crew of HBO Max’s hyper-realistic medical drama learned the show would be renewed.`\
 https://nytimes.com/2026/01/08/style/the-pitt-hbo-premiere-party-noah-wyle.html

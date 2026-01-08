@@ -1,3 +1,11 @@
+**ICE Killing in Minnesota: A ‘Blatant and Tragic Use of Deadly Force’**\
+`Readers react to news reports and video of the fatal shooting of a 37-year-old woman by ICE agents.`\
+https://nytimes.com/2026/01/08/opinion/ice-killing-minnesota.html
+
+**Ron Protas, Polarizing Keeper of Martha Graham’s Legacy, Dies at 84**\
+`Graham, the great modern dance choreographer, named him her heir, setting off a bitter legal battle between him and the troupe she founded.`\
+https://nytimes.com/2026/01/08/arts/dance/ron-protas-dead.html
+
 **‘The Pitt’ Had Much to Celebrate … and Now Even More**\
 `At the premiere of Season 2 in Los Angeles, the cast and crew of HBO Max’s hyper-realistic medical drama learned the show would be renewed.`\
 https://nytimes.com/2026/01/08/style/the-pitt-hbo-premiere-party-noah-wyle.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6954487/2026/01/08/blues-binnington-hofer-goalie-pu
 **Face to Face With the Thwaites Glacier**\
 `Less than a day after arriving at the ice, we are already up close and personal with the fastest-melting glacier in Antarctica.`\
 https://nytimes.com/2026/01/08/climate/thwaites-glacier-arrival.html
-
-**Arsenal retain Guehi interest as option for summer transfer window**\
-`The Athletic reported earlier this week that Manchester City were weighing up whether to push for Guehi this month.`\
-https://nytimes.com/athletic/6591844/2026/01/08/marc-guehi-crystal-palace-transfer-news/
-
-**DJ Lagway, former 5-star prospect, transferring from Florida to Baylor: Sources**\
-`Lagway, the No. 9 player in The Athletic's transfer quarterback rankings, entered the transfer portal last week after two years at Florida.`\
-https://nytimes.com/athletic/6955074/2026/01/08/dj-lagway-quarterback-baylor-transfer-florida/
 
