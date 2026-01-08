@@ -1,3 +1,11 @@
+**Trump Administration Deploying More Border Patrol Agents to Minnesota**\
+`More than 100 agents will be redirected from other cities after the fatal shooting of a woman in Minneapolis by an ICE officer.`\
+https://nytimes.com/2026/01/08/us/politics/border-patrol-minnesota-trump.html
+
+**Prosecutors Said to Pursue New Investigation of Letitia James**\
+`The New York attorney general’s longtime hairdresser has come under scrutiny as the Justice Department’s efforts to charge Ms. James on other fronts falter.`\
+https://nytimes.com/2026/01/08/us/politics/prosecutors-said-to-pursue-new-investigation-of-letitia-james.html
+
 **Venezuela Announces the Release of Political Prisoners**\
 `The release, which was expected to happen later on Thursday, offers the first gesture of conciliation under an interim government, even as arrests and crackdowns continue.`\
 https://nytimes.com/2026/01/08/world/americas/venezuela-release-political-prisoners.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/01/08/us/trump-nyt-interview/heres-the-latest
 **Live: Highlights From The Times’s Interview With President Trump**\
 `Mr. Trump sat down with our reporters for an interview in which he talked about his health, watched a video of an ICE shooting and mused about his power on the world stage.`\
 https://nytimes.com/live/2026/01/08/us/trump-nyt-interview
-
-**Did we not deserve better than TNT Sports' coverage of the Ashes?**\
-`Plenty of criticism, calls for change and happy it's over. Sound familiar? Just as England did, TNT Sports struggled to impress in Australia`\
-https://nytimes.com/athletic/6953595/2026/01/08/tnt-sports-ashes-coverage-review/
-
-**Upper Deck to bring Debut Game Jersey cards to NHL offering**\
-`As Topps rolls out similar cards across other sports, Upper Deck now brings the concept to hockey`\
-https://nytimes.com/athletic/6954549/2026/01/08/upper-deck-nhl-debut-game-jersey-cards/
 
