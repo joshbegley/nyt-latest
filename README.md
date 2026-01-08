@@ -1,3 +1,7 @@
+**Trump Says ‘Only Time Will Tell’ How Long U.S. Controls Venezuela**\
+`President Trump did not say exactly how long the the United states would control Venezuela, but said that it could last years.`\
+https://nytimes.com/video/us/politics/100000010632228/trump-venezuela-rubio.html
+
 **Democratic lawmakers ask for an investigation of the Middle East envoy Steve Witkoff.**\
 `The request by a group of Congress members cites reporting by The Times and echoes a similar request by Democratic senators in September.`\
 https://nytimes.com/2026/01/08/business/democratic-lawmakers-ask-for-an-investigation-of-the-middle-east-envoy-steve-witkoff.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/weather/australia-heat-wave-fire.html
 **ICE Killing in Minnesota: A ‘Blatant and Tragic Use of Deadly Force’**\
 `Readers react to news reports and video of the fatal shooting of a 37-year-old woman by ICE agents.`\
 https://nytimes.com/2026/01/08/opinion/ice-killing-minnesota.html
-
-**Ron Protas, Polarizing Keeper of Martha Graham’s Legacy, Dies at 84**\
-`Graham, the great modern dance choreographer, named him her heir, setting off a bitter legal battle between him and the troupe she founded.`\
-https://nytimes.com/2026/01/08/arts/dance/ron-protas-dead.html
 
