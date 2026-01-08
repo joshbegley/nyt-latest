@@ -1,3 +1,7 @@
+**Bucks, Giannis upset with calls in Warriors loss: 'What were you looking at?'**\
+`Did Doc Rivers and his superstar have a point about the officiating? Probably, but the Bucks let adversity snowball too often.`\
+https://nytimes.com/athletic/6953420/2026/01/08/bucks-giannis-doc-rivers-officials-loss/
+
 **How to watch Louisville vs. Miami (FL) women's basketball: Time, TV, streaming**\
 `Find out how to watch the Louisville Cardinals play the Miami Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6953772/2026/01/08/louisville-vs-miami-fl-stream-how-to-watch-jan-8/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6952710/2026/01/08/jim-harbaugh-chargers-nfl-playof
 `Aidarous al-Zubaidi is wanted on treason charges in Yemen after he led a lightning military offensive that escalated a bitter feud between the Emirates and Saudi Arabia.`\
 https://nytimes.com/2026/01/08/world/middleeast/saudi-arabia-uae-yemen-separatist-zubaidi.html
 
-**Hochul to Announce Road Map to Expand Child Care Alongside Mamdani**\
+**Hochul and Mamdani to Announce Road Map to Expand Child Care**\
 `Governor Kathy Hochul will appear with Mayor Zohran Mamdani to lay out a plan to expand free and subsidized child care in New York, which had been a central focus of his campaign.`\
 https://nytimes.com/2026/01/08/nyregion/mamdani-hochul-child-care.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6953358/2026/01/08/trae-young-trade-return-hawks-fu
 **Giannis says he will never ask for trade from Bucks: 'That's not in my nature'**\
 `In an exclusive interview with The Athletic, Antetokounmpo reiterated his commitment to Milwaukee but noted it's "as of today."`\
 https://nytimes.com/athletic/6953526/2026/01/08/giannis-antetokounmpo-bucks-trade-nba-deadline-interview/
-
-**Former Leeds and Wales midfielder Yorath dies aged 75**\
-`Several clubs associated with Yorath, father of BBC presenter Gabby Logan, have paid tribute to the former midfielder and manager.`\
-https://nytimes.com/athletic/6953634/2026/01/08/terry-yorath-death-news-leeds-wales/
 
