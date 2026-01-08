@@ -1,9 +1,13 @@
+**How Jim Harbaugh kept the Chargers afloat and led them back to the playoffs**\
+`Injuries to the pillars of the Chargers' offensive line could've cratered expectations. Harbaugh wouldn't let that happen. `\
+https://nytimes.com/athletic/6952710/2026/01/08/jim-harbaugh-chargers-nfl-playoffs-patriots/
+
 **Saudi Official Accuses U.A.E. of Helping Yemeni Separatist to Escape**\
 `Aidarous al-Zubaidi is wanted on treason charges in Yemen after he led a lightning military offensive that escalated a bitter feud between the Emirates and Saudi Arabia.`\
 https://nytimes.com/2026/01/08/world/middleeast/saudi-arabia-uae-yemen-separatist-zubaidi.html
 
-**Hochul to Announce Road Map to Expand Child Care in New York**\
-`Governor Kathy Hochul will appear with Mayor Zohran Mamdani to lay out a plan to expand free and subsidized child care, which had been a central focus of his campaign.`\
+**Hochul to Announce Road Map to Expand Child Care Alongside Mamdani**\
+`Governor Kathy Hochul will appear with Mayor Zohran Mamdani to lay out a plan to expand free and subsidized child care in New York, which had been a central focus of his campaign.`\
 https://nytimes.com/2026/01/08/nyregion/mamdani-hochul-child-care.html
 
 **Trump Administration Live Updates: U.S. Pulls Out of Global Climate Deal**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/briefing/an-oval-office-viewing.html
 **After Yankees miss on Edward Cabrera trade, what are their starting pitching options?**\
 `Starting pitching options are dwindling, but there are still some for the Yankees to consider in the trade and free-agent markets. `\
 https://nytimes.com/athletic/6940365/2026/01/08/yankees-pitcher-targets-trade-free-agency/
-
-**This Week in Sports Trivia: January 8, 2026**\
-`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
-https://nytimes.com/athletic/6950315/2026/01/08/this-week-in-sports-trivia-january-8-2026/
 
