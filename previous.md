@@ -1,3 +1,7 @@
+**Reality TV Star Spencer Pratt Announces Bid for L.A. Mayor**\
+`On Wednesday, Spencer Pratt, star of the MTV reality show “The Hills,” announced that he would be challenging Mayor Karen Bass in the June election. Mr. Pratt became an outspoken critic of California’s liberal leaders after his home burned down in the Palisades fire last year.`\
+https://nytimes.com/video/us/elections/100000010632275/spencer-pratt-los-angeles-mayor-election.html
+
 **Unrivaled's viewership on season-opener drops slightly from last year's average**\
 `Unrivaled’s two season-opening primetime games drew an average of 175,000 viewers.`\
 https://nytimes.com/athletic/6955884/2026/01/08/unrivaled-season-opener-viewership-womens-basketball/
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/6955858/2026/01/08/rob-manfred-mlb-split-season-in-
 **Trump Said His Global Power Was Limited Only by His ‘Own Morality’**\
 `Also, meet one of the front-runners to become Apple’s next C.E.O. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2026/01/08/briefing/trump-interview-oval-office-apple-ceo.html
-
-**Rams' Davante Adams, Quentin Lake set to return vs. Panthers**\
-`The Rams lost three games during their late-season stretch when Adams and Lake were dealing with injuries. `\
-https://nytimes.com/athletic/6955893/2026/01/08/rams-davante-adams-quentin-lake-injuries-panthers/
 
