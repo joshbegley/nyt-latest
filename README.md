@@ -1,3 +1,15 @@
+**How to watch Auburn vs. Texas women's basketball: Time, TV, streaming**\
+`Find out how to watch the Auburn Tigers play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6955581/2026/01/08/auburn-vs-texas-stream-how-to-watch-jan-8/
+
+**How to watch Rutgers vs. Illinois men's basketball: Time, TV, streaming**\
+`Find out how to watch the Rutgers Scarlet Knights play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6955579/2026/01/08/rutgers-vs-illinois-stream-how-to-watch-jan-8/
+
+**Scoop City: Quick look at NFL's 2025 regular season stat leaders**\
+`Quick look at NFL's league leaders in 2025, plus what's next for Mike McDaniel and the Dolphins after they parted ways`\
+https://nytimes.com/athletic/6955538/2026/01/08/dolphins-harbaugh-mcdaniel-2025-nfl-stat-leaders/
+
 **Climate Change Has Turned Greenland Into a Target for Trump**\
 `A warming planet has opened up new shipping routes and turned Greenland into a geostrategic asset for the Trump administration.`\
 https://nytimes.com/2026/01/08/climate/trump-greenland-climate-change.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/08/opinion/the-trump-administrations-coarseness-is-a
 **What’s Going On in This Picture? | Jan. 12, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2026/01/08/learning/whats-going-on-in-this-picture-jan-12-2026.html
-
-**Macron tells ambassadors that the world has become ‘unhinged.’**\
-`By Catherine Porter`\
-https://nytimes.com/live/2026/01/08/world/us-venezuela-trump/macron-tells-ambassadors-that-the-world-has-become-unhinged
-
-**Barring Investors Won’t Fix the Housing Crisis**\
-`Trump’s plan to block institutional investment won’t work. The way to make houses more affordable is to build more.`\
-https://nytimes.com/2026/01/08/opinion/trump-single-family-homes-investors-renting.html
-
-**How the Jaguars pulled off giving Trevor Lawrence a custom grill**\
-`Jaguars cornerback Jarrian Jones helped surprise Lawrence with his custom grill.`\
-https://nytimes.com/athletic/6955266/2026/01/08/jaguars-trevor-lawrence-custom-grill/
 
