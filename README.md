@@ -1,3 +1,7 @@
+**Man City finalise Semenyo agreement without release clause activation**\
+`The deal will see City pay £62.5million across 24 months rather than immediately.`\
+https://nytimes.com/athletic/6953448/2026/01/08/man-city-semenyo-transfer-release-clause/
+
 **2024 Australian Open finalist Zheng Qinwen withdraws from first Grand Slam of the year**\
 `The 23-year-old has not played a competitive match since September last year.`\
 https://nytimes.com/athletic/6953437/2026/01/08/tennis-zheng-qinwen-australian-open/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/us/trump-new-york-times-reporter-interview.html
 **Trump Says U.S. Oversight of Venezuela Could Last for Years**\
 `In a wide-ranging interview with The New York Times on Wednesday, President Trump said “only time will tell” when it comes to how long the United States aims to control the country.`\
 https://nytimes.com/2026/01/08/us/politics/trump-interview-venezuela.html
-
-**Late Night Responds to Trump’s Bid to Be an Oil Baron**\
-`Jimmy Kimmel said it was good President Trump would be in charge of Venezuela’s oil sales: “That way we know it will be spent honestly.”`\
-https://nytimes.com/2026/01/08/arts/television/late-night-trump-oil-venezuela.html
 
