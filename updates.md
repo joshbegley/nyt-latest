@@ -1,3 +1,7 @@
+**Giannis says he will never ask for trade from Bucks: 'That's not in my nature'**\
+`In an exclusive interview with The Athletic, Antetokounmpo reiterated his commitment to Milwaukee but noted it's "as of today."`\
+https://nytimes.com/athletic/6953526/2026/01/08/giannis-antetokounmpo-bucks-trade-nba-deadline-interview/
+
 **Former Leeds and Wales midfielder Yorath dies aged 75**\
 `Several clubs associated with Yorath, father of BBC presenter Gabby Logan, have paid tribute to the former midfielder and manager.`\
 https://nytimes.com/athletic/6953634/2026/01/08/terry-yorath-death-news-leeds-wales/
