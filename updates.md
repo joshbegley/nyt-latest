@@ -1,3 +1,7 @@
+**The Man Who Could Be Apple’s Next C.E.O.**\
+`John Ternus, a low-profile but influential executive at Apple, could be next in line to replace the company’s longtime chief executive, Tim Cook, if he steps aside.`\
+https://nytimes.com/2026/01/08/technology/apple-ceo-tim-cook-john-ternus.html
+
 **World Cup game clips to be broadcast live on TikTok, FIFA says**\
 `The short form video social media platform has previously collaborated with the 2023 Women's World Cup and the Club World Cup. `\
 https://nytimes.com/athletic/6954078/2026/01/08/world-cup-tiktok-fifa-agreement/

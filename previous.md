@@ -1,3 +1,7 @@
+**The Man Who Could Be Apple’s Next C.E.O.**\
+`John Ternus, a low-profile but influential executive at Apple, could be next in line to replace the company’s longtime chief executive, Tim Cook, if he steps aside.`\
+https://nytimes.com/2026/01/08/technology/apple-ceo-tim-cook-john-ternus.html
+
 **World Cup game clips to be broadcast live on TikTok, FIFA says**\
 `The short form video social media platform has previously collaborated with the 2023 Women's World Cup and the Club World Cup. `\
 https://nytimes.com/athletic/6954078/2026/01/08/world-cup-tiktok-fifa-agreement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6954665/2026/01/08/devils-vs-penguins-stream-how-to
 **How to watch Maple Leafs vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the Toronto Maple Leafs play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6954660/2026/01/08/maple-leafs-vs-flyers-stream-how-to-watch-jan-8/
-
-**How to watch Panthers vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6954658/2026/01/08/panthers-vs-canadiens-stream-how-to-watch-jan-8/
 
