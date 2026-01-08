@@ -1,3 +1,15 @@
+**The Sober Party Girl Revolution**\
+`At a members-only club in Manhattan, a new generation rejects alcohol but isn’t quite ready to give up the party.`\
+https://nytimes.com/2026/01/08/nyregion/luxury-sobriety-the-maze.html
+
+**This City’s Housing Boom Is a Model for Mamdani**\
+`Mayor Zohran Mamdani is eyeing Jersey City, N.J., for ideas as he looks to address New York’s housing crisis. For residents, the surge in development has been a mixed blessing.`\
+https://nytimes.com/2026/01/08/nyregion/jersey-city-housing.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/08/crosswords/spelling-bee-forum.html
+
 **Thousands Gather at Vigil for Minnesota Woman Fatally Shot by ICE**\
 `A memorial for Renee Good, a 37-year-old U.S. citizen who was killed by a federal agent, drew a crowd in Minneapolis.`\
 https://nytimes.com/video/us/100000010630869/renee-nicole-good-minneapolis-ice.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6953380/2026/01/08/texans-vs-steelers-stream-how-to
 **Mitoma serves up another reminder of how important he is to Brighton and their hopes**\
 `There is an added fear factor for opponents when Mitoma's name is on the team sheet. Fabian Hurzeler needs him fit and firing`\
 https://nytimes.com/athletic/6951148/2026/01/08/brighton-kaoru-mitoma-man-city-analysis/
-
-**Two red cards, missed chances and a night that left Moyes tearing his hair out**\
-`Everton already have injury issues, so the sending-offs of Michael Keane and Jack Grealish were the last thing the manager needed`\
-https://nytimes.com/athletic/6952645/2026/01/08/everton-wolves-david-moyes/
-
-**Word of the Day: corpulent**\
-`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/01/08/learning/word-of-the-day-corpulent.html
-
-**Unai Emery thwarted by tactical nemesis as Aston Villa temper expectations**\
-`Villa's underlying data suggests it might be challenging to sustain their recent run of incredible results`\
-https://nytimes.com/athletic/6952701/2026/01/08/unai-emery-thwarted-by-old-foe-once-again-as-aston-villa-temper-expectations/
 
