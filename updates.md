@@ -1,3 +1,7 @@
+**Judge Sets Date for Weinstein’s Third Trial for Same Rape Charge**\
+`Harvey Weinstein said he feels like he is on a “a slow march to my death” as prosecutors continue to pursue the case after an aspiring actress accused him of raping her in 2013.`\
+https://nytimes.com/2026/01/08/nyregion/harvey-weinstein-rape-trial-manhattan.html
+
 **2026 Directors Guild Nominations: ‘One Battle,’ ‘Sinners’ Go Head to Head**\
 `The films of Paul Thomas Anderson and Ryan Coogler have been competing all season. Also in the running are Guillermo del Toro, Josh Safdie and Chloé Zhao.`\
 https://nytimes.com/2026/01/08/movies/directors-guild-nominations-one-battle-sinners.html

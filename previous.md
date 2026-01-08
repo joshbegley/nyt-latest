@@ -1,3 +1,7 @@
+**Judge Sets Date for Weinstein’s Third Trial for Same Rape Charge**\
+`Harvey Weinstein said he feels like he is on a “a slow march to my death” as prosecutors continue to pursue the case after an aspiring actress accused him of raping her in 2013.`\
+https://nytimes.com/2026/01/08/nyregion/harvey-weinstein-rape-trial-manhattan.html
+
 **Commanders' Lattimore arrested on suspicion of carrying concealed weapons**\
 `Lattimore was released pending an investigation. No charges were filed.`\
 https://nytimes.com/athletic/6955329/2026/01/08/commanders-marshon-lattimore-arrested-weapons/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6954828/2026/01/08/jj-redick-palisades-los-angeles-
 **Submit your questions for Chandler Rome's upcoming Astros mailbag**\
 `After adding to their rotation, what's next for the Astros?`\
 https://nytimes.com/athletic/6955374/2026/01/08/astros-mailbag-questions-free-agency-tatsuya-imai/
-
-**How Some Dogs Build Up Their Vocabularies**\
-`Eavesdropping on their owners seems to help some toy-crazy and talented pups learn more words.`\
-https://nytimes.com/2026/01/08/science/dogs-research-vocabulary-toys.html
 

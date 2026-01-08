@@ -1,5 +1,13 @@
+**Trump Criticizes ICE for an Anti-Business Immigration Raid**\
+`But the president did not personally criticize Stephen Miller, the architect of his administration’s restrictive immigration policy, who has pushed to significantly limit visas for skilled workers.`\
+https://nytimes.com/2026/01/08/us/politics/immigration-stephen-miller.html
+
+**Iran Is Cut Off From the Internet as Protests Intensify**\
+`Internet connectivity data collected on Thursday showed that the country went almost completely offline, as the government cracks down on protesters.`\
+https://nytimes.com/2026/01/08/world/middleeast/iran-protests.html
+
 **Judge Sets Date for Weinstein’s Third Trial for Same Rape Charge**\
-`Harvey Weinstein said he feels like he is on a “a slow march to my death” as prosecutors continue to pursue the case after an aspiring actress accused him of raping her in 2013.`\
+`Harvey Weinstein said he felt like he was on a “a slow march to my death” as prosecutors continued to pursue the case after an aspiring actress accused him of raping her in 2013.`\
 https://nytimes.com/2026/01/08/nyregion/harvey-weinstein-rape-trial-manhattan.html
 
 **Commanders' Lattimore arrested on suspicion of carrying concealed weapons**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/08/us/politics/trump-interview-power-morality.html
 **The basketball reasons why the Hawks broke up with Trae Young**\
 `While Young may be a four-time All-Star, his limitations on the court were increasingly making the Hawks worse. `\
 https://nytimes.com/athletic/6955319/2026/01/08/trae-young-hawks-trade-video-analysis/
-
-**A year after Los Angeles wildfires, JJ Redick reflects on 'resilience' and loss**\
-`"The first 10 days, you're devastated," Redick said. "You're in shock and you're just trying to function in some ways."`\
-https://nytimes.com/athletic/6954828/2026/01/08/jj-redick-palisades-los-angeles-fires/
-
-**Submit your questions for Chandler Rome's upcoming Astros mailbag**\
-`After adding to their rotation, what's next for the Astros?`\
-https://nytimes.com/athletic/6955374/2026/01/08/astros-mailbag-questions-free-agency-tatsuya-imai/
 
