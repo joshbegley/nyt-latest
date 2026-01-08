@@ -1,3 +1,7 @@
+**Hawks trade Trae Young to Wizards for CJ McCollum, Corey Kispert**\
+`The four-time All-Star joins the Wizards hoping to rehabilitate his value, while Washington hopes he can help develop its young talent.`\
+https://nytimes.com/athletic/6949961/2026/01/07/trae-young-traded-wizards-hawks/
+
 **What Is the UNFCCC and Why Is the U.S. Pulling Out?**\
 `The Trump administration said Wednesday that the United States was withdrawing from 66 international agreements, including a major climate change treaty.`\
 https://nytimes.com/2026/01/07/climate/what-is-unfccc-climate-treaty.html

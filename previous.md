@@ -1,3 +1,7 @@
+**Hawks trade Trae Young to Wizards for CJ McCollum, Corey Kispert**\
+`The four-time All-Star joins the Wizards hoping to rehabilitate his value, while Washington hopes he can help develop its young talent.`\
+https://nytimes.com/athletic/6949961/2026/01/07/trae-young-traded-wizards-hawks/
+
 **Minnesota Was Long at Odds With the Trump Administration. It’s Boiled Over.**\
 `The contradicting accounts of the ICE shooting in Minneapolis from the federal government and officials in Minnesota were the latest episode in a dispute that has been building for weeks.`\
 https://nytimes.com/2026/01/07/us/minnesota-shooting-trump-walz-frey.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6952617/2026/01/07/shedeur-sanders-burglary-arrests
 **Day 4: Do a Brain Teaser to Sharpen Your Mind**\
 `Trying new things can help boost cognitive reserve. Today, we’ll challenge you with a game.`\
 https://nytimes.com/interactive/2026/01/07/well/brain-health-games-teasers.html
-
-**Federal Agent Fatally Shoots Woman in Minneapolis**\
-`Federal officials claimed that the 37-year-old woman was trying to kill agents with a car in Minneapolis, while city and state officials disputed their account.`\
-https://nytimes.com/video/us/politics/100000010630767/federal-agent-fatally-shoots-woman-in-minneapolis.html
 
