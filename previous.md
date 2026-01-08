@@ -1,3 +1,11 @@
+**Aryna Sabalenka criticizes 'insane' tennis schedule, says tours 'follow their own interests'**\
+`Sabalenka said she will miss some events this year despite the penalties she will receive for doing so.`\
+https://nytimes.com/athletic/6953670/2026/01/08/aryna-sabalenka-tennis-schedule-wta/
+
+**U.S. Trade Deficit Fell to Lowest Level Since 2009 in October, Data Show**\
+`The monthly trade deficit continued to shrink after President Trump imposed sweeping tariffs on foreign imports.`\
+https://nytimes.com/2026/01/08/business/economy/us-trade-deficit-tariffs.html
+
 **They're one of U.S. figure skating's top pairs — and not currently eligible for the Olympics**\
 `Alisa Efimova and Misha Mitrofanov might be the best U.S. hope at the Olympics ... if a last-minute citizenship push comes through.`\
 https://nytimes.com/athletic/6953133/2026/01/08/olympics-alisa-efimova-us-figure-skating-citizenship/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/08/world/middleeast/saudi-arabia-uae-yemen-separatis
 **Hochul and Mamdani to Announce Road Map to Expand Child Care**\
 `Governor Kathy Hochul will appear with Mayor Zohran Mamdani to lay out a plan to expand free and subsidized child care in New York, which had been a central focus of his campaign.`\
 https://nytimes.com/2026/01/08/nyregion/mamdani-hochul-child-care.html
-
-**Trump Administration Live Updates: U.S. Pulls Out of Global Climate Deal**\
-``\
-https://nytimes.com/live/2026/01/08/us/trump-news
-
-**Lebanon Claims Progress in Disarming Militant Groups Like Hezbollah**\
-`The military said it had completed the first phase of a plan to demilitarize armed groups as fears grew that Israel was preparing a new offensive against Hezbollah.`\
-https://nytimes.com/2026/01/08/world/middleeast/hezbollah-disarmament-lebanon-israel.html
 

@@ -1,3 +1,11 @@
+**Aryna Sabalenka criticizes 'insane' tennis schedule, says tours 'follow their own interests'**\
+`Sabalenka said she will miss some events this year despite the penalties she will receive for doing so.`\
+https://nytimes.com/athletic/6953670/2026/01/08/aryna-sabalenka-tennis-schedule-wta/
+
+**U.S. Trade Deficit Fell to Lowest Level Since 2009 in October, Data Show**\
+`The monthly trade deficit continued to shrink after President Trump imposed sweeping tariffs on foreign imports.`\
+https://nytimes.com/2026/01/08/business/economy/us-trade-deficit-tariffs.html
+
 **They're one of U.S. figure skating's top pairs — and not currently eligible for the Olympics**\
 `Alisa Efimova and Misha Mitrofanov might be the best U.S. hope at the Olympics ... if a last-minute citizenship push comes through.`\
 https://nytimes.com/athletic/6953133/2026/01/08/olympics-alisa-efimova-us-figure-skating-citizenship/
