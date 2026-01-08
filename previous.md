@@ -1,3 +1,11 @@
+**Court Records Reveal Details of ICE Agent’s Previous Dragging Incident**\
+`The agent who shot a woman in Minneapolis on Wednesday was pulled about 100 yards by a car last year while firing a stun gun at the driver. A cut on his arm required 20 stitches.`\
+https://nytimes.com/2026/01/08/us/ice-agent-minneapolis-shooting-minnesota-woman.html
+
+**A Fierce Debate With Polymarket: Did the U.S. ‘Invade’ Venezuela?**\
+`Polymarket users bet on whether the U.S. would invade Venezuela, but the prediction market said Venezuelan president’s capture did not constitute an invasion.`\
+https://nytimes.com/2026/01/08/business/polymarket-venezuela-invasion-bets.html
+
 **How to watch Heat vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Miami Heat play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6955650/2026/01/08/heat-vs-bulls-stream-how-to-watch-jan-8/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6955630/2026/01/08/blue-jackets-vs-golden-knights-s
 **How to watch Senators vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the Ottawa Senators play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6955627/2026/01/08/senators-vs-avalanche-stream-how-to-watch-jan-8/
-
-**How to watch Missouri vs. Vanderbilt women's basketball: Time, TV, streaming**\
-`Find out how to watch the Missouri Tigers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6955623/2026/01/08/missouri-vs-vanderbilt-stream-how-to-watch-jan-8/
-
-**Lessons learned from 2025 fantasy football hits Drake Maye, Kyle Pitts and more**\
-`Michael Salfino looks for the lessons to be gleaned from the surprise hits of the 2025 fantasy football campaign.`\
-https://nytimes.com/athletic/6954686/2026/01/08/fantasy-football-lessons-learned-drake-maye/
 
