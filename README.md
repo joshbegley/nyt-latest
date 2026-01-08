@@ -1,3 +1,7 @@
+**Marc Guehi's future: Is it time for Crystal Palace to stick or twist?**\
+`Oliver Glasner opened the door to an exit for the defender this month - but which way should Palace go?`\
+https://nytimes.com/athletic/6939667/2026/01/08/marc-guehi-palace-transfer/
+
 **Steve Kerr explains NBA ejections to his mom: 'That's all part of the theatrics'**\
 `When told that Kerr said his mom was upset at her son, Doc Rivers couldn't resist getting in another dig.`\
 https://nytimes.com/athletic/6953099/2026/01/08/steve-kerr-mom-ejection-warriors-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6950105/2026/01/08/joao-cancelo-barcelona-loan-anal
 **Arsenal vs Liverpool: Biggest change at each club? Tactical battles? Key players? Predictions?**\
 `The Premier League leaders take on the reigning champions at the Emirates - two of our writers discuss the talking points`\
 https://nytimes.com/athletic/6948982/2026/01/08/arsenal-liverpool-arteta-slot-predictions/
-
-**For Manchester City, this might feel like last season all over again – but it isn’t**\
-`The campaign has gone off the rails in the last week, but there is no need to rip things up and start again.`\
-https://nytimes.com/athletic/6952338/2026/01/08/man-city-premier-league-title-race/
 

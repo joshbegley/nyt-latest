@@ -1,3 +1,19 @@
+**Steve Kerr explains NBA ejections to his mom: 'That's all part of the theatrics'**\
+`When told that Kerr said his mom was upset at her son, Doc Rivers couldn't resist getting in another dig.`\
+https://nytimes.com/athletic/6953099/2026/01/08/steve-kerr-mom-ejection-warriors-nba/
+
+**The Women's Super League found an unlikely market in Japan: 'Let’s embrace this'**\
+`A combination of streaming, representation and video games has made Japan one of the WSL's biggest markets`\
+https://nytimes.com/athletic/6836871/2026/01/08/womens-super-league-unlikely-market-japan/
+
+**Wolves' upturn must not deflect them from the wider work to be done in January**\
+`This month still has to be stage one of the club's rebuild, even if the emergence of some players may see tweaks to transfer priorities`\
+https://nytimes.com/athletic/6952621/2026/01/08/wolves-january-edwards-transfers/
+
+**Forest are Wrexham's first Premier League opponents of their Hollywood era: This is what it means**\
+`Wrexham have a chance to add to their storied FA Cup history when they take on top-flight side Nottingham Forest on Friday`\
+https://nytimes.com/athletic/6944898/2026/01/08/wrexham-fa-cup-premier-league-opposition/
+
 **Jimbo Fisher calls Lane Kiffin's decisions on assistants 'selfish' and 'stupid'**\
 `The new LSU head coach has flip-flopped about letting his former Ole Miss assistants keep coaching the Rebels in the CFP.`\
 https://nytimes.com/athletic/6953051/2026/01/08/jimbo-fisher-lane-kiffin-assistants-selfish-stupid/
