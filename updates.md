@@ -1,3 +1,15 @@
+**Trump Says ‘Only Time Will Tell’ How Long U.S. Controls Venezuela**\
+`President Trump did not say exactly how long the the United states would control Venezuela, but said that it could last years.`\
+https://nytimes.com/video/us/politics/100000010632228/trump-venezuela-rubio.html
+
+**Democratic lawmakers ask for an investigation of the Middle East envoy Steve Witkoff.**\
+`The request by a group of Congress members cites reporting by The Times and echoes a similar request by Democratic senators in September.`\
+https://nytimes.com/2026/01/08/business/democratic-lawmakers-ask-for-an-investigation-of-the-middle-east-envoy-steve-witkoff.html
+
+**Trump Lays Out a Vision of Power Restrained Only by ‘My Own Morality’**\
+`On topic after topic, President Trump made clear that he would be the arbiter of any limits to his authorities, not international law or treaties.`\
+https://nytimes.com/2026/01/08/us/politics/trump-interview-power-morality.html
+
 **The basketball reasons why the Hawks broke up with Trae Young**\
 `While Young may be a four-time All-Star, his limitations on the court were increasingly making the Hawks worse. `\
 https://nytimes.com/athletic/6955319/2026/01/08/trae-young-hawks-trade-video-analysis/
