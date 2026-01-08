@@ -1,3 +1,15 @@
+**Trump Says His Only Limit on His Global Powers Is His ‘Own Morality’**\
+`President Trump brushed aside international law and repeated his goal for the U.S. to own Greenland.`\
+https://nytimes.com/video/us/politics/100000010632450/trump-international-law-greenland.html
+
+**The Many Faces of Trump: What We Saw When We Interviewed the President**\
+`During an extensive sit-down with The New York Times, President Trump showcased the various personas he employs in his role. There were unpredictable turns throughout.`\
+https://nytimes.com/2026/01/08/us/politics/trump-oval-office-interview-scene.html
+
+**Nebraska in the portal: 4 uncomfortable questions as the Huskers navigate the transfer market**\
+`Portal euphoria is real. It's everywhere. But how long does it last?`\
+https://nytimes.com/athletic/6955638/2026/01/08/nebraska-transfer-portal-matt-rhule-anthony-colandrea/
+
 **All nine MLB teams cancel their contracts with FanDuel Sports Network**\
 `All of the MLB teams broadcast by the embattled FanDuel Sports Network have canceled their contracts with the company. `\
 https://nytimes.com/athletic/6955733/2026/01/08/mlb-fanduel-sports-network-teams-cancel-contracts/
