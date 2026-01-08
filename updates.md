@@ -1,3 +1,7 @@
+**Steny Hoyer, Longest-Serving House Democrat, to Retire From Congress**\
+`The Maryland congressman, who served as one of his party’s top leaders, plans to depart after nearly half a century in Congress, as his party looks toward generational change.`\
+https://nytimes.com/2026/01/07/us/politics/hoyer-house-democrat-retire-congress.html
+
 **Trae Young trade grades: Can the 4-time All-Star lead the Wizards' young core?**\
 `You don't have to be a Young fan to be flabbergasted by the Hawks not receiving a any draft compensation in this deal.`\
 https://nytimes.com/athletic/6952755/2026/01/07/trae-young-trade-grades-hawks-wizards-nba/
