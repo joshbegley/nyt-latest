@@ -1,3 +1,11 @@
+**5 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2026/01/08/books/review/recommended-new-books.html
+
+**How to Warm a Chili Skeptic’s Heart**\
+`By Tanya Sichynsky`\
+https://nytimes.com/2026/01/08/dining/how-to-warm-a-chili-skeptics-heart.html
+
 **How USMNT fans can get World Cup tickets through U.S. Soccer's allotment**\
 `U.S. Soccer has informed fans of the process to secure World Cup tickets through the federation, and it comes with plenty of caveats`\
 https://nytimes.com/athletic/6954844/2026/01/08/us-soccer-2026-world-cup-tickets-usmnt-supporters-groups/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/08/world/asia/cambodia-scam-china-prince-group-chen.
 **In Address, Newsom to Highlight His Leadership and Contrast Himself to Trump**\
 `Gov. Gavin Newsom will portray his state as “a beacon” of democracy in a State of the State address that suggests national ambitions.`\
 https://nytimes.com/2026/01/08/us/newsom-california-state-of-the-state-speech.html
-
-**Trump Says He Has Made Up His Mind on His Fed Chair Pick**\
-`The president stopped short of announcing his selection, but when asked about Kevin A. Hassett, his top economic adviser, he said he was “certainly one of the people that I like.”`\
-https://nytimes.com/2026/01/08/us/politics/trump-interview-fed-chair.html
-
-**Kevin’s 2026 Prediction: A.I. Company Solves Famous Math Problem**\
-`On the “Hard Fork” podcast, the hosts Kevin Roose and Casey Newton discuss Kevin’s high confidence prediction for 2026 that an A.I. company will solve one of the Millennium Prize Problems.`\
-https://nytimes.com/video/podcasts/100000010626769/kevins-2026-prediction-ai-company-solves-famous-math-problem.html
 
