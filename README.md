@@ -1,3 +1,23 @@
+**Videos Contradict Trump Administration Account of ICE Shooting in Minneapolis**\
+`An analysis of footage from three camera angles shows that the motorist was driving away from — not toward — a federal officer when he opened fire.`\
+https://nytimes.com/video/us/100000010631041/minneapolis-ice-shooting-video.html
+
+**Ravens take big risk by doing what rest of the NFL would do**\
+`The Ravens have enjoyed 18 years of slow, deliberate, almost stubborn growth. Now, they’re shopping in a crowded market with everyone else.`\
+https://nytimes.com/athletic/6952503/2026/01/08/john-harbaugh-fired-ravens-change-risk-stability/
+
+**In dealing for Edward Cabrera, Cubs again choose a trade over free-agent spending**\
+`In back-to-back offseasons, the Cubs have been at the center of blockbuster trades, opting to deal from their farm for major league talent.`\
+https://nytimes.com/athletic/6952727/2026/01/08/chicago-cubs-owen-caissie-trade-decision/
+
+**LSU stumbled to an 0-2 SEC start. Will Kim Mulkey's squad recover?**\
+`Mulkey questioned whether this season's Tigers are tough enough. The SEC won't get much easier for them.`\
+https://nytimes.com/athletic/6952952/2026/01/08/lsu-womens-basketball-two-losses-sec/
+
+**How long was Harbaugh's 18 years with the Ravens? Several football lifetimes**\
+`During Harbaugh's tenure in Baltimore, many in football moved from team to team or college to the NFL, even from player to coach.`\
+https://nytimes.com/athletic/6950878/2026/01/08/john-harbaugh-ravens-coaching-tenure-length-seasons-years/
+
 **The Pulse: Vibe-checking this college football moment**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6950969/2026/01/08/cfb-playoff-ole-miss-miami-the-pulse/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6951850/2026/01/08/bears-offensive-line-joe-thuney-
 **Why Sidney Crosby, NHL’s most regimented player, struggles with time off**\
 `Sidney Crosby is in a fight with his team's schedule, but his teammates figure he'll overcome that, too. `\
 https://nytimes.com/athletic/6948368/2026/01/08/penguins-sidney-crosby-schedule-scoring-nhl/
-
-**The greatest Maple Leaf? How Auston Matthews joined the conversation in 9 years**\
-`Inside Auston Matthews’ "mind-blowing" thrashing of Maple Leafs record books.`\
-https://nytimes.com/athletic/6949598/2026/01/08/auston-matthews-maple-leafs-goal-record/
-
-**Miami vs. Ole Miss in CFP semifinal: TV, simulcast info for Fiesta Bowl matchup**\
-`It's a rather unlikely desert draw in the Fiesta Bowl. Miami and Ole Miss tangle up for the College Football Playoff semifinal.`\
-https://nytimes.com/athletic/6946737/2026/01/08/miami-ole-miss-college-football-playoff-cfp-tv/
-
-**Panthers face tall task in Matthew Stafford, but have history, reinforcements on their side**\
-`The Panthers didn't have CB Jaycee Horn, safety Tre'von Moehrig and LBs Christian Rozeboom and Claudin Cherelus in the first meeting.`\
-https://nytimes.com/athletic/6952696/2026/01/08/panthers-defense-matthew-stafford-rams-preview/
-
-**Who are Browns' coaching candidates to replace Kevin Stefanski?**\
-`Cleveland will likely conduct a wide-ranging search for its next head coach. Here are some names on the market whom they could consider. `\
-https://nytimes.com/athletic/6952095/2026/01/08/browns-coaching-candidates-kevin-stefanski-fired/
-
-**Vikings' offseason of uncertainty: What we're hearing about Brian Flores, the O-line, more**\
-`Could Flores leave for another coordinator job? How will the Vikings shore up their offensive line? How can they create salary-cap space?`\
-https://nytimes.com/athletic/6950749/2026/01/08/vikings-offseason-brian-flores-offensive-line/
 
