@@ -1,3 +1,7 @@
+**Trae Young trade grades: Can the four-time All-Star lead the Wizards' young core?**\
+`You don't have to be a Young fan to be flabbergasted by the Hawks not receiving a any draft compensation in this deal.`\
+https://nytimes.com/athletic/6952755/2026/01/07/trae-young-trade-grades-hawks-wizards-nba/
+
 **Saints confident naming Tyler Shough as starter, building future around QB**\
 `Shough inserted himself into the offensive rookie of the year discussion by leading the Saints to four wins in their last five games.`\
 https://nytimes.com/athletic/6952921/2026/01/07/saints-tyler-shough-future-qb-nfl-draft/

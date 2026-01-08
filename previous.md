@@ -1,3 +1,7 @@
+**Trae Young trade grades: Can the four-time All-Star lead the Wizards' young core?**\
+`You don't have to be a Young fan to be flabbergasted by the Hawks not receiving a any draft compensation in this deal.`\
+https://nytimes.com/athletic/6952755/2026/01/07/trae-young-trade-grades-hawks-wizards-nba/
+
 **Saints confident naming Tyler Shough as starter, building future around QB**\
 `Shough inserted himself into the offensive rookie of the year discussion by leading the Saints to four wins in their last five games.`\
 https://nytimes.com/athletic/6952921/2026/01/07/saints-tyler-shough-future-qb-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/07/us/spencer-pratt-mayor-los-angeles.html
 **Hawks trade Trae Young to Wizards for CJ McCollum, Corey Kispert**\
 `The four-time All-Star joins the Wizards hoping to rehabilitate his value, while Washington hopes he can help develop its young talent.`\
 https://nytimes.com/athletic/6949961/2026/01/07/trae-young-traded-wizards-hawks/
-
-**Minnesota Was Long at Odds With the Trump Administration. It’s Boiled Over.**\
-`The contradicting accounts of the ICE shooting in Minneapolis from the federal government and officials in Minnesota were the latest episode in a dispute that has been building for weeks.`\
-https://nytimes.com/2026/01/07/us/minnesota-shooting-trump-walz-frey.html
 
