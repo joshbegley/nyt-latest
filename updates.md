@@ -1,3 +1,15 @@
+**The Windup: Cabrera's a Cub 👀**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6954432/2026/01/08/edward-cabrera-cubs-the-windup/
+
+**Do You Really Need Closure?**\
+`And what exactly does it mean, anyway?`\
+https://nytimes.com/2026/01/08/well/mind/psych101-closure.html
+
+**Bucs fire Josh Grizzard after one season as offensive coordinator: Source**\
+`One possible factor in Grizzard's dismissal: QB Baker Mayfield just finished his least-productive season since joining the Bucs in 2023.`\
+https://nytimes.com/athletic/6954277/2026/01/08/buccaneers-josh-grizzard-fired-offensive-coordinator/
+
 **David Coote, an indecent child image and a 'spectacular fall from grace'**\
 `The full details of the former Premier League referee's disgrace was laid bare in a Nottingham courtroom`\
 https://nytimes.com/athletic/6954087/2026/01/08/david-coote-indecent-child-image-court/
