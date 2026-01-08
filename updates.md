@@ -1,3 +1,19 @@
+**Rodman returns to USWNT roster, four first-time call-ups included**\
+`The U.S. plays Paraguay and Chile in two January friendlies.`\
+https://nytimes.com/athletic/6953871/2026/01/08/uswnt-january-squad-trinity-rodman/
+
+**WNBA, players union remain in CBA deadlock nearing deadline. Is work stoppage looming?**\
+`If Friday's deadline passes, what's next in negotiations? `\
+https://nytimes.com/athletic/6954343/2026/01/08/wnba-player-union-deadlock-cba-future/
+
+**Trump Has a New Motto**\
+`What happens when America First becomes the Americas first?`\
+https://nytimes.com/2026/01/08/opinion/venezuela-american-geopolitical-retreat.html
+
+**Fridge Salad Is My Friend**\
+`Ali Slagle’s Italian broccoli salad keeps wonderfully in the fridge, ready for lunches, snacks and dinner-side duty.`\
+https://nytimes.com/2026/01/08/dining/fridge-salad-is-my-friend.html
+
 **The Windup: Cabrera's a Cub 👀**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6954432/2026/01/08/edward-cabrera-cubs-the-windup/
