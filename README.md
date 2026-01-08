@@ -1,3 +1,7 @@
+**How to watch Texans at Steelers: Wild Card Round Time, TV, streaming**\
+`Find out how to watch the Houston Texans play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6953380/2026/01/08/texans-vs-steelers-stream-how-to-watch-jan-12/
+
 **Mitoma serves up another reminder of how important he is to Brighton — and their hopes**\
 `Kaoru Mitoma has struggled for fitness this season. He provided more evidence of how much Brighton need him against Manchester City`\
 https://nytimes.com/athletic/6951148/2026/01/08/brighton-kaoru-mitoma-man-city-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6952629/2026/01/08/thomas-frank-tottenham-bournemou
 **Could this be the turning point in Liam Delap's time at Chelsea?**\
 `Liam Delap scored his second non-Club World Cup goal for Chelsea, which was a positive even as they lost against Fulham`\
 https://nytimes.com/athletic/6952802/2026/01/08/liam-delap-chelsea-fulham-analysis/
-
-**Man Utd dropped more points but this felt like what they needed – a fresh start**\
-`Though the change of system did not bring a change in results last night, United could consider themselves unlucky`\
-https://nytimes.com/athletic/6953147/2026/01/08/manchester-united-burnley-analysis/
 
