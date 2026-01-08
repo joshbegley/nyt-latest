@@ -1,3 +1,11 @@
+**The Pulse: Vibe-checking this college football moment**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6950969/2026/01/08/cfb-playoff-ole-miss-miami-the-pulse/
+
+**Former referee David Coote avoids prison for making indecent image of child**\
+`The 43-year-old has been handed a nine-month sentence, suspended for two years. He must also complete 150 hours of unpaid work.`\
+https://nytimes.com/athletic/6951810/2026/01/08/david-coote-sentence-referee/
+
 **China Is Investigating Meta’s Latest A.I. Acquisition**\
 `Regulators said they will look at whether the deal for Manus, a Singapore start-up with Chinese roots, complied with China’s export and investment rules.`\
 https://nytimes.com/2026/01/08/business/meta-manus-china-ai.html
