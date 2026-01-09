@@ -1,3 +1,17 @@
+**Word of the Day: memorandum**\
+`This word has appeared in 279 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/09/learning/word-of-the-day-memorandum.html
+
+**Forest saw Kalimuendo as a statement signing. Five months later, they have a new shortlist**\
+`The striker’s departure on loan to Frankfurt says as much about the chaos that has engulfed Forest as it does about his own potential
+`\
+https://nytimes.com/athletic/6953597/2026/01/09/forest-saw-kalimuendo-as-a-statement-signing-five-months-later-they-are-forward-planning-again/
+
+**The SEC’s old playbook is finished. Now comes the adjustment**\
+`NIL and the transfer portal have whittled away the SEC’s dominance. Adjusting is the only way forward.
+`\
+https://nytimes.com/athletic/6956702/2026/01/09/sec-ole-miss-playbook-adjustment/
+
 **Forest saw Kalimuendo as a statement signing. Five months later, they have a new shortlist**\
 `The striker’s departure on loan to Frankfurt says as much about the chaos that has engulfed Forest as it does about his own potential
 `\

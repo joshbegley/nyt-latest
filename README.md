@@ -3,7 +3,7 @@
 https://nytimes.com/2026/01/09/learning/word-of-the-day-memorandum.html
 
 **Arsenal disappointed and frustrated - but winning the title means having to grind**\
-`Mikel Arteta's side were frustrated by Liverpool but the idea that they would breeze to the title was always fanciful `\
+`Mikel Arteta's side were frustrated by Liverpool but the idea that they would breeze to the title was always fanciful`\
 https://nytimes.com/athletic/6956286/2026/01/09/arsenal-liverpool-title-grind/
 
 **The New York Times in Print for Friday, Jan. 9, 2026**\

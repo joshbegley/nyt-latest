@@ -1,3 +1,7 @@
+**Word of the Day: memorandum**\
+`This word has appeared in 279 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/09/learning/word-of-the-day-memorandum.html
+
 **Arsenal disappointed and frustrated - but winning the title means having to grind**\
 `Mikel Arteta's side were frustrated by Liverpool but the idea that they would breeze to the title was always fanciful `\
 https://nytimes.com/athletic/6956286/2026/01/09/arsenal-liverpool-title-grind/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6956702/2026/01/09/sec-ole-miss-playbook-adjustment
 **Terry Yorath, a life marked by tragedy, heroism, and the 'twinkle in his eye'**\
 `Terry Yorath passed away on Wednesday evening at the age of 75`\
 https://nytimes.com/athletic/6953682/2026/01/09/terry-yorath-leeds-bradford-tottenham-obituary/
-
-**Chelsea's winners under Liam Rosenior – and why there will be so few losers**\
-`Liam Rosenior’s appointment at Chelsea has been about continuity, but many players will be hoping their new coach can bring about change`\
-https://nytimes.com/athletic/6949401/2026/01/09/chelsea-liam-rosenior-squad-analysis/
 
