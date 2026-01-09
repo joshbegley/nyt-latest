@@ -1,3 +1,11 @@
+**For 2hollis, Music Is a Family Business. So We Interviewed Him and His Dad.**\
+`The 22-year-old pop phenom’s father is John Herndon of the post-rock band Tortoise. They chatted about songwriting, nepotism and what they’ve taught each other.`\
+https://nytimes.com/2026/01/09/arts/music/2hollis-john-herndon-popcast-interview.html
+
+**Wrexham to stun Forest and Charlton over Chelsea? Predicting FA Cup third round upsets**\
+`Where could the tradition FA Cup third round 'cupsets' come from this year?`\
+https://nytimes.com/athletic/6957083/2026/01/09/fa-cup-potential-upsets-a-wrexham-win-and-charlton-to-shock-chelsea/
+
 **The improbable connection that explains Victor Wembanyama's viral high kick**\
 `Victor Wembanyama believes he can set a world record for highest jump kick. He has an unlikely ally in his corner. `\
 https://nytimes.com/athletic/6956677/2026/01/09/victor-wembanyama-spurs-high-kick/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6955659/2026/01/09/bears-packers-wild-card-playoff-
 **Chargers at Patriots: Who and what will decide this fascinating AFC wild-card matchup?**\
 `Quarterbacks Justin Herbert and Drake Maye may get the headlines ahead of Sunday's wild-card matchup, but this game will be about much more.`\
 https://nytimes.com/athletic/6955492/2026/01/09/chargers-patriots-predictions-breakdown-nfl-wild-card/
-
-**Oregon vs. Indiana in CFP semifinal: Broadcast info, team history for Big Ten rematch**\
-`Friday’s semifinal is a Big Ten affair, but the pairing is far from traditional as the Ducks and Hoosiers both seek a first national title.`\
-https://nytimes.com/athletic/6947929/2026/01/09/oregon-indiana-college-football-playoff-how-to-watch/
-
-**Rangers suffer another dispiriting loss after late Alexis Lafrenière turnover: Takeaways**\
-`The Rangers fell to their 15th loss at Madison Square Garden, where they haven't won a game in regulation since November.`\
-https://nytimes.com/athletic/6956712/2026/01/09/rangers-lafreniere-turnover-trocheck-sabres/
 
