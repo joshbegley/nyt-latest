@@ -1,3 +1,7 @@
+**Amid Protests, ICE Told Agents to Take ‘Decisive Action’ if Threatened**\
+`The guidance comes as immigration officers have been met with increasingly hostile protesters in cities.`\
+https://nytimes.com/2026/01/08/us/politics/homeland-security-ice-protests-warning.html
+
 **Once Again, a Newfoundland Town Rescues Stranded Passengers**\
 `After 9/11, Gander took in thousands of people whose flights were diverted. History repeated on a smaller scale this week.`\
 https://nytimes.com/2026/01/08/world/canada/gander-canada-airport-stranded-travelers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6956206/2026/01/08/john-henry-daley-michigan-commit
 **Chris Ballard still believes in Chris Ballard, but knows Colts fans won't until he wins**\
 `The Colts have never won the AFC South under his stewardship, and they have just two playoff appearances and one playoff victory.`\
 https://nytimes.com/athletic/6951113/2026/01/08/colts-chris-ballard-carlie-irsay-gordon-daniel-jones/
-
-**Day 5: Make These 5 Appointments to Protect Your Brain**\
-`When was the last time you checked your blood pressure? Today, use a checklist to stay healthy in body and mind.`\
-https://nytimes.com/interactive/2026/well/brain-health-doctor-appointments.html
 

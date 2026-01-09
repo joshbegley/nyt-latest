@@ -1,3 +1,7 @@
+**Amid Protests, ICE Told Agents to Take ‘Decisive Action’ if Threatened**\
+`The guidance comes as immigration officers have been met with increasingly hostile protesters in cities.`\
+https://nytimes.com/2026/01/08/us/politics/homeland-security-ice-protests-warning.html
+
 **Once Again, a Newfoundland Town Rescues Stranded Passengers**\
 `After 9/11, Gander took in thousands of people whose flights were diverted. History repeated on a smaller scale this week.`\
 https://nytimes.com/2026/01/08/world/canada/gander-canada-airport-stranded-travelers.html
