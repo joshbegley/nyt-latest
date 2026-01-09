@@ -1,3 +1,7 @@
+**Grizzlies open to trade offers for Ja Morant: Source**\
+`Morant has averaged 19.0 points and 7.6 assists per game this season, though his availability has been sporadic due to injuries.`\
+https://nytimes.com/athletic/6958128/2026/01/09/ja-morant-grizzlies-trade-destinations-rumors-news-analysis/
+
 **Scoop City: Path to victory for every wild-card team**\
 `Key stats, matchups and predictions for each wild-card game`\
 https://nytimes.com/athletic/6958063/2026/01/09/nfl-first-round-wild-card-preview-bills-eagles-bears/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/09/world/middleeast/yemeni-separatists-disband.html
 **The Trump Interview: A President Who Answers Only to Himself**\
 `Readers react to President Trump’s interview with The New York Times. Also: Mayor Zohran Mamdani, Jews and Israel.`\
 https://nytimes.com/2026/01/09/opinion/trump-interview.html
-
-**Kennedy Said His Dietary Advisers Would Have ‘No Conflicts of Interest.’ Some Did.**\
-`New federal guidelines, which emphasize protein, meat and milk, were informed by a panel of experts with several ties to the meat and dairy industries.`\
-https://nytimes.com/2026/01/09/well/dietary-guidelines-conflicts-of-interest.html
 

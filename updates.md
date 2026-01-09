@@ -1,3 +1,11 @@
+**Scoop City: Path to victory for every wild-card team**\
+`Key stats, matchups and predictions for each wild-card game`\
+https://nytimes.com/athletic/6958063/2026/01/09/nfl-first-round-wild-card-preview-bills-eagles-bears/
+
+**U.S. Hiring Turned Sluggish One Year Into Trump’s Second Term**\
+`As economists pointed to some of the president’s policies to explain the latest Labor Department data, White House aides sought to make the case for optimism in the new year.`\
+https://nytimes.com/2026/01/09/us/politics/us-hiring-economy-trump-second-term.html
+
 **Jerome Lowenstein, 92, Dies; Teaching Doctor With a Literary Sideline**\
 `When not guiding students in a compassionate approach to patient care, he led a tiny publishing imprint that put out a much-rejected debut novel that won a surprise Pulitzer Prize.`\
 https://nytimes.com/2026/01/09/books/jerome-lowenstein-dead.html
