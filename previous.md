@@ -1,3 +1,15 @@
+**Chris Ballard still believes in Chris Ballard, but knows Colts fans won't until he wins**\
+`The Colts have never won the AFC South under his stewardship, and they have just two playoff appearances and one playoff victory.`\
+https://nytimes.com/athletic/6951113/2026/01/08/colts-chris-ballard-carlie-irsay-gordon-daniel-jones/
+
+**Day 5: Make These 5 Appointments to Protect Your Brain**\
+`When was the last time you checked your blood pressure? Today, use a checklist to stay healthy in body and mind.`\
+https://nytimes.com/interactive/2026/well/brain-health-doctor-appointments.html
+
+**Saquon Barkley: Christian McCaffrey is 'one of the best' backs to ever play**\
+`Barkley, the 2024 NFL offensive player of the year, and McCaffrey, the 2023 offensive player of the year, are extremely competitive`\
+https://nytimes.com/athletic/6955944/2026/01/08/saquon-barkley-christian-mccaffrey-running-back-eagles-49ers/
+
 **Families of Slain Idaho Students Sue the University the Killer Attended**\
 `A new lawsuit claims that Washington State University, where Bryan Kohberger was a Ph.D. student, failed to take decisive action on earlier complaints that he was stalking women.`\
 https://nytimes.com/2026/01/08/us/idaho-murders-kohberger-victim-families-lawsuit.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6955839/2026/01/08/blue-jays-bo-bichette-free-steak
 **How to watch Santa Clara vs. Gonzaga men's basketball: Time, TV, streaming**\
 `Find out how to watch the Santa Clara Broncos play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6956169/2026/01/08/santa-clara-vs-gonzaga-stream-how-to-watch-jan-8/
-
-**Renee Good’s Time at Old Dominion Included an Award-Winning Poem**\
-`“What I saw in her work was a writer that was trying to illuminate the lives of others,” a faculty member recalled.`\
-https://nytimes.com/2026/01/08/us/renee-good-ice-minneapolis.html
-
-**Federal Agents Shoot 2 in Portland, Ore., Police Say**\
-`The shootings in Portland, a city previously targeted by the Trump administration, come as Minneapolis grapples with a federal agent’s fatal shooting of a woman a day earlier.`\
-https://nytimes.com/2026/01/08/us/politics/federal-agents-shooting-portland.html
-
-**Trump Sees A.I.’s Economic Promise, While Dismissing Potential Threats**\
-`The president said that artificial intelligence would create such an abundance of jobs that robots would be required to fill the gaps.`\
-https://nytimes.com/2026/01/08/us/politics/trump-artificial-intelligence.html
 
