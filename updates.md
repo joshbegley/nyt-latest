@@ -1,3 +1,7 @@
+**Washington National Opera Is Leaving the Kennedy Center**\
+`The opera, which has performed at the arts center since 1971, was concerned about declines in attendance and donations during President Trump’s second term.`\
+https://nytimes.com/2026/01/09/arts/music/washington-national-opera-kennedy-center.html
+
 **Trump Threatens to Take Greenland ‘the Hard Way’**\
 `The president continued to advance an imperialist vision of American foreign policy, where the U.S. can dominate neighboring countries “whether they like it or not.”`\
 https://nytimes.com/2026/01/09/world/americas/trump-greenland-annex.html

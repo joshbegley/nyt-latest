@@ -23,7 +23,7 @@ https://nytimes.com/2026/01/09/nyregion/mamdani-pinnacle-apartments.html
 https://nytimes.com/2026/01/09/nyregion/mamdani-hamas-israel-gaza-protest.html
 
 **Washington National Opera Is Leaving the Kennedy Center**\
-`The opera, which has performed at the arts center since 1971, was concerned by declines in attendance and donations during President Trump’s second term.`\
+`The opera, which has performed at the arts center since 1971, was concerned about declines in attendance and donations during President Trump’s second term.`\
 https://nytimes.com/2026/01/09/arts/music/washington-national-opera-kennedy-center.html
 
 **Hessy Levinsons Taft, Jewish Baby on Cover of Nazi Magazine, Dies at 91**\
