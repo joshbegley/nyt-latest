@@ -1,3 +1,7 @@
+**The Briefing: Cameroon 0 Morocco 2 - Hosts through to AFCON semi-finals as Brahim Diaz scores yet again**\
+`The Athletic's writers analyse the second quarter-final at the 2025 Africa Cup of Nations`\
+https://nytimes.com/athletic/6949009/2026/01/09/cameroon-morocco-afcon-analysis/
+
 **Sam Leavitt expected to visit Miami this weekend: Source**\
 `It will be Leavitt's fourth official visit since the portal opened on Jan. 2.`\
 https://nytimes.com/athletic/6958196/2026/01/09/sam-leavitt-miami-transfer-portal-cfb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6958283/2026/01/09/rockets-vs-trail-blazers-stream-
 **How to watch Clippers vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6958278/2026/01/09/clippers-vs-nets-stream-how-to-watch-jan-9/
-
-**How to watch Kings vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6958276/2026/01/09/kings-vs-warriors-stream-how-to-watch-jan-9/
 
