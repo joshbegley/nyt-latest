@@ -1,3 +1,15 @@
+**Measles Outbreak in South Carolina Worsens**\
+`The outbreak has now spread to more than 300 people, most of them children.`\
+https://nytimes.com/2026/01/09/well/measles-outbreak-new-cases-south-carolina.html
+
+**Man Charged With Stealing Dozens of Skeletons From a Pennsylvania Cemetery, Authorities Say**\
+`Investigators recovered what was believed to be more than “100 full or partial sets of human and skeletal remains” from the man’s home and storage unit in Lancaster County, the district attorney said.`\
+https://nytimes.com/2026/01/09/us/grave-robbery-bones-remains-pennsylvania.html
+
+**How to watch Rockets vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6958283/2026/01/09/rockets-vs-trail-blazers-stream-how-to-watch-jan-9/
+
 **How to watch Clippers vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6958278/2026/01/09/clippers-vs-nets-stream-how-to-watch-jan-9/
