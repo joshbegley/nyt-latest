@@ -1,3 +1,7 @@
+**Michigan makes portal splash with All-Big 12 DE from Utah**\
+`John Henry Daley finished sixth in the FBS in sacks and announced he's following Kyle Whittingham to Michigan from Utah.`\
+https://nytimes.com/athletic/6956206/2026/01/08/john-henry-daley-michigan-commitment-portal-utah/
+
 **Chris Ballard still believes in Chris Ballard, but knows Colts fans won't until he wins**\
 `The Colts have never won the AFC South under his stewardship, and they have just two playoff appearances and one playoff victory.`\
 https://nytimes.com/athletic/6951113/2026/01/08/colts-chris-ballard-carlie-irsay-gordon-daniel-jones/
@@ -18,8 +22,8 @@ https://nytimes.com/2026/01/08/us/idaho-murders-kohberger-victim-families-lawsui
 `Astronomers announced the discovery of a starless cloud of hydrogen gas, a pristine relic of the cosmos that is almost as old as time itself.`\
 https://nytimes.com/2026/01/08/science/cloud-9-starless-dark-galaxy.html
 
-**Washington willing to 'take back' QB Williams, who signed deal but planned to enter portal**\
-`Washington is considering "taking back" QB Williams, who announced his intention to enter the portal despite signing with the school.`\
+**Demond Williams announces he'll return to Washington for junior season**\
+`Announcement ends two-day saga over the status of Huskies' star quarterback.`\
 https://nytimes.com/athletic/6956193/2026/01/08/washington-football-demond-williams-returning-nil-transfer/
 
 **Amid Opening Sprint, Mamdani Paused to Socialize With Steven Spielberg**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/business/trump-fannie-freddie-mortgage-bonds.html
 **Bo Bichette offered free steak for life at favorite eatery to stay with Blue Jays**\
 `A Toronto restaurant is sweetening the pot for Bichette with a juicy offer if the free-agent shortstop stays in Toronto.`\
 https://nytimes.com/athletic/6955839/2026/01/08/blue-jays-bo-bichette-free-steak/
-
-**How to watch Santa Clara vs. Gonzaga men's basketball: Time, TV, streaming**\
-`Find out how to watch the Santa Clara Broncos play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6956169/2026/01/08/santa-clara-vs-gonzaga-stream-how-to-watch-jan-8/
 

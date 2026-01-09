@@ -1,3 +1,11 @@
+**Michigan makes portal splash with All-Big 12 DE from Utah**\
+`John Henry Daley finished sixth in the FBS in sacks and announced he's following Kyle Whittingham to Michigan from Utah.`\
+https://nytimes.com/athletic/6956206/2026/01/08/john-henry-daley-michigan-commitment-portal-utah/
+
+**Demond Williams announces he'll return to Washington for junior season**\
+`Announcement ends two-day saga over the status of Huskies' star quarterback.`\
+https://nytimes.com/athletic/6956193/2026/01/08/washington-football-demond-williams-returning-nil-transfer/
+
 **Chris Ballard still believes in Chris Ballard, but knows Colts fans won't until he wins**\
 `The Colts have never won the AFC South under his stewardship, and they have just two playoff appearances and one playoff victory.`\
 https://nytimes.com/athletic/6951113/2026/01/08/colts-chris-ballard-carlie-irsay-gordon-daniel-jones/

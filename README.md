@@ -22,7 +22,7 @@ https://nytimes.com/2026/01/08/us/idaho-murders-kohberger-victim-families-lawsui
 `Astronomers announced the discovery of a starless cloud of hydrogen gas, a pristine relic of the cosmos that is almost as old as time itself.`\
 https://nytimes.com/2026/01/08/science/cloud-9-starless-dark-galaxy.html
 
-**Demond Williams announces he'll return to Washington for junior season**\
+**Washington QB Williams announces return after contract, transfer portal drama**\
 `Announcement ends two-day saga over the status of Huskies' star quarterback.`\
 https://nytimes.com/athletic/6956193/2026/01/08/washington-football-demond-williams-returning-nil-transfer/
 
