@@ -1,3 +1,7 @@
+**Miami ends Ole Miss' post-Kiffin magic, earns CFP title game spot with dramatic win**\
+`No. 10 Miami beat No. 6 Ole Miss 31-27 thanks to a late Carson Beck touchdown in the Fiesta Bowl College Football Playoff semifinal.`\
+https://nytimes.com/athletic/6956498/2026/01/08/miami-ole-miss-score-fiesta-bowl-cfp/
+
 **One day after trade, Cubs, Edward Cabrera reach agreement before deadline: Sources**\
 `The club also avoided arbitration with Justin Steele, finalizing deals with two of their best and most valuable pitchers. `\
 https://nytimes.com/athletic/6956628/2026/01/08/cubs-edward-cabrera-avoid-arbitration/

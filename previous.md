@@ -1,3 +1,7 @@
+**Miami ends Ole Miss' post-Kiffin magic, earns CFP title game spot with dramatic win**\
+`No. 10 Miami beat No. 6 Ole Miss 31-27 thanks to a late Carson Beck touchdown in the Fiesta Bowl College Football Playoff semifinal.`\
+https://nytimes.com/athletic/6956498/2026/01/08/miami-ole-miss-score-fiesta-bowl-cfp/
+
 **One day after trade, Cubs, Edward Cabrera reach agreement before deadline: Sources**\
 `The club also avoided arbitration with Justin Steele, finalizing deals with two of their best and most valuable pitchers. `\
 https://nytimes.com/athletic/6956628/2026/01/08/cubs-edward-cabrera-avoid-arbitration/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6956231/2026/01/08/minneapolis-ice-shooting-renee-n
 **After month-long wait, Rick Carlisle becomes 11th NBA coach to win 1,000 games**\
 `Carlisle, who led Dallas to the 2011 title and Indiana to the Finals last season, finally became one of two active coaches with 1,000 wins.`\
 https://nytimes.com/athletic/6883811/2026/01/08/rick-carlisle-pacers-wins-1000/
-
-**Venezuela Mourns the Dozens Who Died in U.S. Operation**\
-`For all Venezuelans, the nighttime raid opened a period of deep uncertainty. For the families of those killed, it meant the grim task of burying their relatives.`\
-https://nytimes.com/2026/01/08/world/americas/venezuela-mourns-dozens-killed.html
 
