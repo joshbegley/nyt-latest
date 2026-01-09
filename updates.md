@@ -1,3 +1,7 @@
+**After Machado Offers Her Nobel, Trump Says It Would Be an ‘Honor’ to Accept It**\
+`President Trump indicated that he would meet the Venezuelan opposition leader María Corina Machado. Last year, she won the Nobel Peace Prize, an award he covets.`\
+https://nytimes.com/2026/01/09/world/americas/trump-venezuela-machado-nobel-prize.html
+
 **Trump Signals He Will Meet Venezuela’s Machado After Offer of Her Nobel**\
 `President Trump, who has long coveted the Nobel Peace Prize, has refused to support the opposition leader María Corina Machado to lead Venezuela.`\
 https://nytimes.com/2026/01/09/world/americas/trump-venezuela-machado-nobel-prize.html
