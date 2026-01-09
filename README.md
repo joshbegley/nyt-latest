@@ -1,3 +1,27 @@
+**Stir-Fried Lettuce With Crispy Garlic and Fried Eggs**\
+`Stir-fried lettuce is commonly served as a bed for braised mushrooms or simply as a green side dish. Here, stir-fried lettuce, fried eggs and crispy garlic chips perch on a bed of rice, a simple meal with comforting flavors and textures.`\
+https://nytimes.com/video/dining/100000010368613/stir-fried-lettuce-with-crispy-garlic-and-fried-eggs.html
+
+**Freed Venezuelan Political Prisoner Called Maduro’s Fraud to His Face**\
+`Enrique Márquez, a centrist opposition lawmaker, refused to rubber-stamp the government’s dubious election results in front of the entire nation.`\
+https://nytimes.com/2026/01/09/world/americas/enrique-marquez-venezuela-prisoner-maduro-fraud.html
+
+**What Does ‘America First’ Mean After Venezuela?**\
+`In the wake of the U.S. operation to seize President Nicolás Maduro of Venezuela, some have wondered whether President Trump has strayed from his “America First” promise. Our White House correspondent Zolan Kanno-Youngs looks closer at what “America First” might mean now.`\
+https://nytimes.com/video/world/americas/100000010625828/what-does-america-first-mean-after-venezuela.html
+
+**New Texas Tech QB has $1 million buyout for leaving Cincinnati: Sources**\
+`The quarterback's buyout is indicative of the new era of direct revenue sharing between schools and athletes.`\
+https://nytimes.com/athletic/6957664/2026/01/09/brendan-sorsby-buyout-texas-tech-cincinnati-college-football/
+
+**Wild eager for home-cooked meals and family time after long road trip, but know another test awaits**\
+`The prevailing sentiment after a good but long trip: “Sick of going out to dinner on the (road) … So yeah, home-cooked meal for sure.”`\
+https://nytimes.com/athletic/6957757/2026/01/09/wild-test-after-road-trip/
+
+**When Jeffrey Epstein Confronted Tina Brown**\
+`Tina Brown was one of the most prominent media figures in the 1980s and ’90s, serving as the top editor at Vanity Fair and then The New Yorker.`\
+https://nytimes.com/video/podcasts/100000010626758/when-jeffrey-epstein-confronted-tina-brown.html
+
 **Glencore and Rio Tinto Restart Talks to Create a Mining Giant**\
 `The negotiations come amid an increase in deal-making across the mining industry as demand for copper and other metals soars.`\
 https://nytimes.com/2026/01/09/business/dealbook/glencore-rio-tinto-copper-merger.html
@@ -13,24 +37,4 @@ https://nytimes.com/athletic/6957484/2026/01/09/saka-arsenal-contract-five-years
 **The Century-Long Tug of War for Venezuela’s Oil**\
 `The country’s oil industry has undergone major shifts and two waves of nationalization since its first well started pumping in 1914.`\
 https://nytimes.com/2026/01/09/business/venezuela-oil-industry-timeline-trump.html
-
-**Diamondbacks will not trade All-Star second baseman Ketel Marte: Source**\
-`The D-Backs had been considering a trade of Marte to help address their pitching needs and possibly clear money to sign Alex Bregman.`\
-https://nytimes.com/athletic/6949508/2026/01/09/mlb-ketel-marte-diamondbacks-no-trade/
-
-**USWNT defender Emily Sams joins Angel City, concluding week of signings for the NWSL club**\
-`Angel City sporting director Mark Parsons discusses the process behind signing the quintet of players. `\
-https://nytimes.com/athletic/6953440/2026/01/09/angel-city-signings-emily-sams-orlando/
-
-**Al Michaels to return for another season with Amazon Prime's NFL coverage**\
-`Michaels has served as Prime Video’s primary play-by-play announcer for "Thursday Night Football" since 2022.`\
-https://nytimes.com/athletic/6957616/2026/01/09/al-michaels-return-amazon-prime-nfl-coverage/
-
-**Man Utd's Geyse set to join Club America following end of Gotham loan**\
-`United are also working on closing a deal for Sweden striker Ellen Wangerheim from Hammarby.`\
-https://nytimes.com/athletic/6957493/2026/01/09/geyse-club-america-manchester-united-transfer/
-
-**How to watch Pelicans vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6957793/2026/01/09/pelicans-vs-wizards-stream-how-to-watch-jan-9/
 
