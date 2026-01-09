@@ -1,11 +1,3 @@
-**Kennedy Said His Dietary Advisers Would Have ‘No Conflicts of Interest.’ Some Did.**\
-`New federal guidelines, which emphasize protein, meat and milk, were informed by a panel of experts with several ties to the meat and dairy industries.`\
-https://nytimes.com/2026/01/09/well/nutrition-guidelines-conflicts-of-interest.html
-
-**NCAA denies Trinidad Chambliss' waiver request for extra year of eligibility**\
-`Chambliss’ rise with the Rebels has been one of the most compelling stories of the college football season.`\
-https://nytimes.com/athletic/6957718/2026/01/09/trinidad-chambliss-eligibility-ncaa-waiver-denied/
-
 **Flashback: Your Weekly History Quiz, Jan. 10, 2026**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2026/01/09/upshot/flashback.html
@@ -37,4 +29,12 @@ https://nytimes.com/2026/01/09/dining/easy-breakfast-idea-spinach-egg-bites.html
 **The Briefing: Mali 0 Senegal 1 - An unconvincing win? Ndiaye's best game so far? What was Bissouma thinking?**\
 `The Athletic's writers analyse the first quarter-final at the 2025 Africa Cup of Nations `\
 https://nytimes.com/athletic/6948912/2026/01/09/mali-senegal-afcon-analysis/
+
+**Handshakes, being his own man, and a need to win: Rosenior's Chelsea press conference debut**\
+`Liam Rosenior had his first Chelsea press conference on Friday ahead of their FA Cup game against Charlton `\
+https://nytimes.com/athletic/6957799/2026/01/09/liam-rosenior-chelsea-press-conference-unveiling/
+
+**Producers Guild Nominations Strengthen Oscar Odds for Five Films**\
+`“One Battle After Another,” “Sinners,” “Hamnet,” “Frankenstein” and “Marty Supreme” have now been recognized by all three major guilds.`\
+https://nytimes.com/2026/01/09/movies/producers-guild-nominations-oscars.html
 

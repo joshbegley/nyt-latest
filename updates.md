@@ -1,3 +1,11 @@
+**Handshakes, being his own man, and a need to win: Rosenior's Chelsea press conference debut**\
+`Liam Rosenior had his first Chelsea press conference on Friday ahead of their FA Cup game against Charlton `\
+https://nytimes.com/athletic/6957799/2026/01/09/liam-rosenior-chelsea-press-conference-unveiling/
+
+**Producers Guild Nominations Strengthen Oscar Odds for Five Films**\
+`“One Battle After Another,” “Sinners,” “Hamnet,” “Frankenstein” and “Marty Supreme” have now been recognized by all three major guilds.`\
+https://nytimes.com/2026/01/09/movies/producers-guild-nominations-oscars.html
+
 **Kennedy Said His Dietary Advisers Would Have ‘No Conflicts of Interest.’ Some Did.**\
 `New federal guidelines, which emphasize protein, meat and milk, were informed by a panel of experts with several ties to the meat and dairy industries.`\
 https://nytimes.com/2026/01/09/well/nutrition-guidelines-conflicts-of-interest.html
