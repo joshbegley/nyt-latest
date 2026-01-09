@@ -1,3 +1,7 @@
+**PGMOL reviewing drug testing policy after David Coote admission of cocaine use**\
+`Coote’s persistent drug use was outlined at Nottingham Crown Court on Thursday.`\
+https://nytimes.com/athletic/6957202/2026/01/09/referee-drug-testing-david-coote/
+
 **For 2hollis, Music Is a Family Business. So We Interviewed Him and His Dad.**\
 `The 22-year-old pop phenom’s father is John Herndon of the post-rock band Tortoise. They chatted about songwriting, nepotism and what they’ve taught each other.`\
 https://nytimes.com/2026/01/09/arts/music/2hollis-john-herndon-popcast-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6956817/2026/01/09/blue-jackets-vegas-loss-jenner-m
 **Bears-Packers in the playoffs: Injury updates and picks for the wild-card round**\
 `The Bears will want to feed off the Soldier Field energy but must avoid the penalties that hurt them in Week 16. Here are our playoff picks.`\
 https://nytimes.com/athletic/6955659/2026/01/09/bears-packers-wild-card-playoff-preview/
-
-**Chargers at Patriots: Who and what will decide this fascinating AFC wild-card matchup?**\
-`Quarterbacks Justin Herbert and Drake Maye may get the headlines ahead of Sunday's wild-card matchup, but this game will be about much more.`\
-https://nytimes.com/athletic/6955492/2026/01/09/chargers-patriots-predictions-breakdown-nfl-wild-card/
 
