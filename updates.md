@@ -1,3 +1,15 @@
+**Bo Bichette offered free steak for life at favorite eatery to stay with Blue Jays**\
+`A Toronto restaurant is sweetening the pot for Bichette with a juicy offer if the free-agent shortstop stays in Toronto.`\
+https://nytimes.com/athletic/6955839/2026/01/08/blue-jays-bo-bichette-free-steak/
+
+**How to watch Santa Clara vs. Gonzaga men's basketball: Time, TV, streaming**\
+`Find out how to watch the Santa Clara Broncos play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6956169/2026/01/08/santa-clara-vs-gonzaga-stream-how-to-watch-jan-8/
+
+**Renee Good’s Time at Old Dominion Included an Award-Winning Poem**\
+`“What I saw in her work was a writer that was trying to illuminate the lives of others,” a faculty member recalled.`\
+https://nytimes.com/2026/01/08/us/renee-good-ice-minneapolis.html
+
 **‘Heated Rivalry’ star says closeted pro athletes have reached out because of show**\
 `Actor Hudson Williams said on Sirius XM Radio that he has received messages from "hockey players, football players, basketball players." 
 `\
