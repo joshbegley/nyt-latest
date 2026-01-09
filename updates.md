@@ -1,3 +1,8 @@
+**Forest saw Kalimuendo as a statement signing. Five months later, they have a new shortlist**\
+`The striker’s departure on loan to Frankfurt says as much about the chaos that has engulfed Forest as it does about his own potential
+`\
+https://nytimes.com/athletic/6953597/2026/01/09/forest-saw-kalimuendo-as-a-statement-signing-five-months-later-they-are-forward-planning-again/
+
 **Late Night Is Distracted by Kristi Noem’s Oversized Cowboy Hat**\
 `“Why is Kristi Noem always in some sort of cosplay outfit?” Seth Meyers asked on Thursday.`\
 https://nytimes.com/2026/01/09/arts/television/late-night-kristi-noem-hat.html
