@@ -1,3 +1,7 @@
+**Bo Bichette offered free steak for life at favorite eatery to stay with Blue Jays**\
+`A Toronto restaurant is sweetening the pot for Bichette with a juicy offer if the free-agent shortstop stays in Toronto.`\
+https://nytimes.com/athletic/6955839/2026/01/08/blue-jays-bo-bichette-free-steak/
+
 **How to watch Santa Clara vs. Gonzaga men's basketball: Time, TV, streaming**\
 `Find out how to watch the Santa Clara Broncos play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6956169/2026/01/08/santa-clara-vs-gonzaga-stream-how-to-watch-jan-8/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6956096/2026/01/08/conor-bradley-injury-liverpool-n
 **Senate Agrees to Display a Jan. 6 Plaque Honoring Officers**\
 `Federal law mandated that the memorial tablet be installed by March 2023, but Congress blew past that deadline.`\
 https://nytimes.com/2026/01/08/us/politics/senate-jan-6-plaque.html
-
-**Flu Cases Fall in New York City After Reaching Highest Level in a Decade**\
-`Preliminary data suggests that bouts of the viral illness have already peaked, but the city’s health commissioner urged caution.`\
-https://nytimes.com/2026/01/08/nyregion/nyc-flu-cases-drop-january.html
 
