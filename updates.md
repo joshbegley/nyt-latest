@@ -1,3 +1,11 @@
+**Can A.I. Help Medical Research?**\
+`Sam Rodriques, the C.E.O. and co-founder of FutureHouse, discusses the bottlenecks around A.I. drug development, and how Kosmos – the company’s A.I. scientist – aims to solve some of these hurdles and accelerate medical discovery.`\
+https://nytimes.com/video/podcasts/100000010626765/can-ai-help-medical-research.html
+
+**Casey’s 2026 Prediction: 16 and Up for Social Media**\
+`On the “Hard Fork” podcast, the hosts Kevin Roose and Casey Newton discuss Casey’s high-confidence prediction for 2026 that a minimum age of 16 will becomes the new norm for social media accounts worldwide.`\
+https://nytimes.com/video/podcasts/100000010626771/caseys-2026-prediction-16-and-up-for-social-media.html
+
 **How Our White House Photographer Finds New Angles on the Oval Office**\
 `Doug Mills, winner of three Pulitzers, sits, crawls and hoists cameras high in the air to bring viewers fresh perspectives. He was at it again this week during our marathon interview with President Trump.`\
 https://nytimes.com/2026/01/09/insider/how-our-white-house-photographer-finds-new-angles-on-the-oval-office.html
