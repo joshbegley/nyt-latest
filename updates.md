@@ -1,3 +1,7 @@
+**Grizzlies open to trade offers for Ja Morant: Source**\
+`Morant has averaged 19.0 points and 7.6 assists per game this season, though his availability has been sporadic due to injuries.`\
+https://nytimes.com/athletic/6958128/2026/01/09/ja-morant-grizzlies-trade-destinations-rumors-news-analysis/
+
 **Scoop City: Path to victory for every wild-card team**\
 `Key stats, matchups and predictions for each wild-card game`\
 https://nytimes.com/athletic/6958063/2026/01/09/nfl-first-round-wild-card-preview-bills-eagles-bears/
