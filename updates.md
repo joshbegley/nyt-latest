@@ -1,3 +1,19 @@
+**Mamdani Condemns Slurs and Pro-Hamas Chant at Heated Queens Protest**\
+`Pro-Palestinian and pro-Israel demonstrators hurled threats at each other outside an event promoting real estate sales in Jerusalem. The mayor said those actions had “no place in our city.”`\
+https://nytimes.com/2026/01/09/nyregion/mamdani-hamas-israel-gaza-protest.html
+
+**Washington National Opera Is Leaving the Kennedy Center**\
+`The opera, which has performed at the arts center since 1971, was concerned by declines in attendance and donations during President Trump’s second term.`\
+https://nytimes.com/2026/01/09/arts/music/washington-national-opera-kennedy-center.html
+
+**Hessy Levinsons Taft, Jewish Baby on Cover of Nazi Magazine, Dies at 91**\
+`Without her parents’ knowledge, her portrait was entered surreptitiously in a contest to represent the ideal Aryan infant in 1934 — and she won.`\
+https://nytimes.com/2026/01/09/world/europe/hessy-levinsons-taft-dead.html
+
+**Commanders' Marshon Lattimore faces misdemeanor weapons charge: Police**\
+`Lattimore’s attorney described the incident in an interview with The Athletic as a “misunderstanding." `\
+https://nytimes.com/athletic/6958476/2026/01/09/marshon-lattimore-weapons-charge-commanders/
+
 **As trade season heats up, Anthony Davis out indefinitely with hand injury: Source**\
 `The Mavericks and Davis will seek multiple medical opinions to help determine a road to recovery. `\
 https://nytimes.com/athletic/6958500/2026/01/09/anthony-davis-hand-injury-history-mavericks-depth-chart/
