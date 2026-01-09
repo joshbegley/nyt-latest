@@ -1,3 +1,7 @@
+**Al Michaels to return for another season with Amazon Prime's NFL coverage**\
+`Michaels has served as Prime Video’s primary play-by-play announcer for "Thursday Night Football" since 2022.`\
+https://nytimes.com/athletic/6957616/2026/01/09/al-michaels-return-amazon-prime-nfl-coverage/
+
 **Man Utd's Geyse set to join Club America following end of Gotham loan**\
 `United are also working on closing a deal for Sweden striker Ellen Wangerheim from Hammarby.`\
 https://nytimes.com/athletic/6957493/2026/01/09/geyse-club-america-manchester-united-transfer/
