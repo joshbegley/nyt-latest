@@ -1,3 +1,7 @@
+**Lowetide: Why Oilers' new makeshift line may be key to second half**\
+`Will the Oilers' exciting new line of Matt Savoie, Jack Roslovic and Ike Howard stick together?`\
+https://nytimes.com/athletic/6954697/2026/01/09/edmonton-oilers-lineup-savoie-howard-roslovic-stats/
+
 **The Bounce: Anthony Davis next for Trae-less Hawks? Plus, more Isaiah-MJ beef!**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6957614/2026/01/09/anthony-davis-trae-young-trade-hawks-mavericksthe-bounce/

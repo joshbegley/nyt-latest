@@ -1,3 +1,7 @@
+**Lowetide: Why Oilers' new makeshift line may be key to second half**\
+`Will the Oilers' exciting new line of Matt Savoie, Jack Roslovic and Ike Howard stick together?`\
+https://nytimes.com/athletic/6954697/2026/01/09/edmonton-oilers-lineup-savoie-howard-roslovic-stats/
+
 **The Bounce: Anthony Davis next for Trae-less Hawks? Plus, more Isaiah-MJ beef!**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6957614/2026/01/09/anthony-davis-trae-young-trade-hawks-mavericksthe-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6957511/2026/01/09/dolphins-hire-jon-eric-sullivan-
 **What to know about the report.**\
 `By Talmon Joseph Smith`\
 https://nytimes.com/live/2026/01/05/business/jobs-report-economy/what-to-know-about-the-report
-
-**Google’s Former C.E.O. Wants to Build a Cosmic Search Engine**\
-`Eric and Wendy Schmidt are backing a start-up-like approach to building a giant space telescope and powerful ground observatories.`\
-https://nytimes.com/2026/01/09/science/eric-schmidt-telescopes-google-space.html
 
