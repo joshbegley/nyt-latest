@@ -1,3 +1,15 @@
+**A Look at Iran’s Antigovernment Protests**\
+`Protests have rocked Iran in recent weeks, and the country’s supreme leader has threatened to escalate a crackdown on demonstrators. Erika Solomon, our bureau chief for Iran and Iraq, discusses what’s fueling the protests with our senior writer Katrin Bennhold.`\
+https://nytimes.com/video/world/middleeast/100000010627398/a-look-at-irans-antigovernment-protests.html
+
+**Bahram Beyzaie, Filmmaker Who Led Iran’s New Wave, Dies at 87**\
+`Despite a ceaseless battle against government censors, he was celebrated as one of his country’s greatest auteurs, winning praise from luminaries like Martin Scorsese.`\
+https://nytimes.com/2026/01/09/movies/bahram-beyzaie-dead.html
+
+**Why Trump’s and Vance’s Claim About the War Powers Resolution Is Very Misleading**\
+`The resolution created different sections of statutory code. A part the Senate is weighing using has not been widely seen as unconstitutional.`\
+https://nytimes.com/2026/01/09/us/politics/trump-war-powers-resolution.html
+
 **Portraits of the Thwaites Glacier**\
 `From an icebreaker sailing near the Thwaites Glacier in Antarctica, our photographer has captured the many faces of the ice.`\
 https://nytimes.com/2026/01/09/climate/portraits-of-the-thwaites-glacier.html

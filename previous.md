@@ -1,3 +1,15 @@
+**A Look at Iran’s Antigovernment Protests**\
+`Protests have rocked Iran in recent weeks, and the country’s supreme leader has threatened to escalate a crackdown on demonstrators. Erika Solomon, our bureau chief for Iran and Iraq, discusses what’s fueling the protests with our senior writer Katrin Bennhold.`\
+https://nytimes.com/video/world/middleeast/100000010627398/a-look-at-irans-antigovernment-protests.html
+
+**Bahram Beyzaie, Filmmaker Who Led Iran’s New Wave, Dies at 87**\
+`Despite a ceaseless battle against government censors, he was celebrated as one of his country’s greatest auteurs, winning praise from luminaries like Martin Scorsese.`\
+https://nytimes.com/2026/01/09/movies/bahram-beyzaie-dead.html
+
+**Why Trump’s and Vance’s Claim About the War Powers Resolution Is Very Misleading**\
+`The resolution created different sections of statutory code. A part the Senate is weighing using has not been widely seen as unconstitutional.`\
+https://nytimes.com/2026/01/09/us/politics/trump-war-powers-resolution.html
+
 **Portraits of the Thwaites Glacier**\
 `From an icebreaker sailing near the Thwaites Glacier in Antarctica, our photographer has captured the many faces of the ice.`\
 https://nytimes.com/2026/01/09/climate/portraits-of-the-thwaites-glacier.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/09/theater/mamdani-under-radar-theater.html
 **The Briefing: Cameroon 0 Morocco 2 - Hosts through to AFCON semi-finals as Brahim Diaz scores again**\
 `The Athletic's writers analyse the second quarter-final at the 2025 Africa Cup of Nations`\
 https://nytimes.com/athletic/6949009/2026/01/09/cameroon-morocco-afcon-analysis/
-
-**Sam Leavitt expected to visit Miami this weekend: Source**\
-`It will be Leavitt's fourth official visit since the portal opened on Jan. 2.`\
-https://nytimes.com/athletic/6958196/2026/01/09/sam-leavitt-miami-transfer-portal-cfb/
-
-**Is Trump Taking Over D.C.’s Public Golf Courses?**\
-`The Trump administration has moved to take control of three public golf courses in Washington, D.C. The Athletic’s Gabby Herzig reports on what it could mean for the courses’ future.`\
-https://nytimes.com/video/the-athletic/100000010635494/is-trump-taking-over-dcs-public-golf-courses.html
-
-**Olympic hockey rink opens test event with holes in the exterior — and the ice**\
-`Only three of 14 locker rooms that will soon host Olympic hockey teams are complete with less than four weeks to go before the Games.`\
-https://nytimes.com/athletic/6958181/2026/01/09/olympic-hockey-rink-construction-first-look/
 

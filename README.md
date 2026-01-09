@@ -1,3 +1,11 @@
+**Trump’s $100 Billion Venezuela Oil Plan Gets a Cool Reception**\
+`President Trump met with oil and gas executives on Friday in an effort to push them to invest money in Venezuela, a plan many of them are reluctant to embrace.`\
+https://nytimes.com/2026/01/09/business/energy-environment/trump-venezuela-oil-executives.html
+
+**As trade season heats up, Anthony Davis out indefinitely with hand injury: Source**\
+`The Mavericks and Davis will seek multiple medical opinions to help determine a road to recovery.`\
+https://nytimes.com/athletic/6958500/2026/01/09/anthony-davis-hand-injury-history-mavericks-depth-chart/
+
 **A Look at Iran’s Antigovernment Protests**\
 `Protests have rocked Iran in recent weeks, and the country’s supreme leader has threatened to escalate a crackdown on demonstrators. Erika Solomon, our bureau chief for Iran and Iraq, discusses what’s fueling the protests with our senior writer Katrin Bennhold.`\
 https://nytimes.com/video/world/middleeast/100000010627398/a-look-at-irans-antigovernment-protests.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6941907/2026/01/09/tottenham-souza-santos-transfer/
 **220,000 Fewer Workers: How Trump’s Cuts Affected Every Federal Agency**\
 `New data offers the first clear view of the impact of the buyouts and firings.`\
 https://nytimes.com/interactive/2026/01/09/upshot/trump-workforce-cuts-table.html
-
-**Handing Out Free Tickets, Mamdani Says Theater Should Not Be ‘a Luxury’**\
-`The mayor said a new initiative by the Under the Radar festival exemplified an arts affordability agenda that he intends to pursue.`\
-https://nytimes.com/2026/01/09/theater/mamdani-under-radar-theater.html
-
-**The Briefing: Cameroon 0 Morocco 2 - Hosts through to AFCON semi-finals as Brahim Diaz scores again**\
-`The Athletic's writers analyse the second quarter-final at the 2025 Africa Cup of Nations`\
-https://nytimes.com/athletic/6949009/2026/01/09/cameroon-morocco-afcon-analysis/
 
