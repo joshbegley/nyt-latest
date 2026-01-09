@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6956721/2026/01/09/trae-young-trade-mailbag-washing
 `Liverpool's defensive performance, particularly in the second half, was something Slot and his team can build on`\
 https://nytimes.com/athletic/6957002/2026/01/09/liverpool-arsenal-analysis-slot/
 
-**Trump Administration Live Updates: Supreme Court Expected to Release First Opinions of Term**\
+**Trump Administration Live Updates: Supreme Court Is Expected to Release First Opinions of Term**\
 ``\
 https://nytimes.com/live/2026/01/09/us/trump-news
 
