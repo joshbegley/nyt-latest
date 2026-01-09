@@ -1,3 +1,11 @@
+**Mailbag: How's Michigan doing in the transfer portal? It's hard to ask for much more so far**\
+`Plus: Michigan's quarterback outlook under Jason Beck, lingering questions about Sherrone Moore, Kyle Whittingham's options and more.`\
+https://nytimes.com/athletic/6955574/2026/01/09/michigan-football-transfer-portal-whittingham-moore/
+
+**NCAA women's gymnastics season preview: Athletes, teams and storylines to watch**\
+`Can Oklahoma repeat? What's next for Jordan Chiles in her final season? Here's what you need to know as the season gets underway.`\
+https://nytimes.com/athletic/6957200/2026/01/09/ncaa-gymnastics-schedule-preview-2026/
+
 **After Machado Offers Her Nobel, Trump Says It Would Be an ‘Honor’ to Accept It**\
 `President Trump indicated that he would meet the Venezuelan opposition leader María Corina Machado. Last year, she won the Nobel Peace Prize, an award he covets.`\
 https://nytimes.com/2026/01/09/world/americas/trump-venezuela-machado-nobel-prize.html

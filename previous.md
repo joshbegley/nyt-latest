@@ -1,3 +1,11 @@
+**Mailbag: How's Michigan doing in the transfer portal? It's hard to ask for much more so far**\
+`Plus: Michigan's quarterback outlook under Jason Beck, lingering questions about Sherrone Moore, Kyle Whittingham's options and more.`\
+https://nytimes.com/athletic/6955574/2026/01/09/michigan-football-transfer-portal-whittingham-moore/
+
+**NCAA women's gymnastics season preview: Athletes, teams and storylines to watch**\
+`Can Oklahoma repeat? What's next for Jordan Chiles in her final season? Here's what you need to know as the season gets underway.`\
+https://nytimes.com/athletic/6957200/2026/01/09/ncaa-gymnastics-schedule-preview-2026/
+
 **After Machado Offers Her Nobel, Trump Says It Would Be an ‘Honor’ to Accept It**\
 `President Trump indicated that he would meet the Venezuelan opposition leader María Corina Machado. Last year, she won the Nobel Peace Prize, an award he covets.`\
 https://nytimes.com/2026/01/09/world/americas/trump-venezuela-machado-nobel-prize.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6956237/2026/01/09/curt-cignetti-lane-kiffin-indian
 **Transfer portal notebook: LSU's QB search, DJ Lagway's new home, Texas' big addition**\
 `Lagway, a former five-star prospect, is set to enroll at Baylor, where his father played running back from 1997 to 2001.`\
 https://nytimes.com/athletic/6956366/2026/01/09/transfer-portal-dj-lagway-baylor-texas-arizona-state/
-
-**Nasser Hussain: England messed up their Ashes campaign. Now Key and McCullum must change or go**\
-`The ECB's review into the Ashes debacle must focus on the managing director and coach explaining what they learned and what they will change`\
-https://nytimes.com/athletic/6955305/2026/01/09/nasser-hussain-ashes-england-key-mccullum/
-
-**The Athletic’s Friday football quiz question #88**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6949294/2026/01/09/the-athletics-friday-football-quiz-question-88/
 
