@@ -1,3 +1,11 @@
+**Iran’s Supreme Leader Says Protests Are Happening to ‘Please’ Trump**\
+`After days of fierce protest in cities around Iran, Ayatollah Ali Khamenei dismissed the demonstrations as vandalism and wanton destruction.`\
+https://nytimes.com/2026/01/09/world/middleeast/iran-protests-ayatollah-khamenei.html
+
+**Martinelli not expected to face FA disciplinary action for Bradley incident**\
+`Martinelli was shown a yellow card by referee Anthony Taylor for his actions so is not expected to face further FA sanctions.`\
+https://nytimes.com/athletic/6957047/2026/01/09/gabriel-martinelli-conor-bradley-injury/
+
 **Former champion Stan Wawrinka gets Australian Open wild card in final season**\
 `The 2014 champion will play in Melbourne for the final time.`\
 https://nytimes.com/athletic/6957036/2026/01/09/tennis-australian-open-wild-cards-wawrinka-kyrgios/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/09/style/wigs-celebrities-red-carpet.html
 **Will Arnett, Laura Dern and Bradley Cooper: 3 Friends Walk Into a Comedy Club**\
 `In many ways, their new relationship tale, “Is This Thing On?,” relies on their shared history over 25 years.`\
 https://nytimes.com/2026/01/09/movies/will-arnett-laura-dern-bradley-cooper-is-this-thing-on.html
-
-**Why Many Republican Voters Support Trump’s Use of Force in Venezuela**\
-`They don’t like nation building, but they do want to project American power.`\
-https://nytimes.com/2026/01/09/us/politics/trump-venezuela-republican-voters.html
-
-**A Financier’s Twist on Buying Influence: Bankrolling Ballot Measures**\
-`Brian Heywood, a Seattle-area hedge fund founder, has spent millions to put conservative initiatives in front of Washington lawmakers and voters. Next up: parental rights and transgender athletes.`\
-https://nytimes.com/2026/01/09/us/politics/ballot-measures-washington-state-wealthy.html
 

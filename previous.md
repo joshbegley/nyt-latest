@@ -1,3 +1,7 @@
+**Former champion Stan Wawrinka gets Australian Open wild card in final season**\
+`The 2014 champion will play in Melbourne for the final time.`\
+https://nytimes.com/athletic/6957036/2026/01/09/tennis-australian-open-wild-cards-wawrinka-kyrgios/
+
 **Agents in Immigration Crackdown Have Fired at Vehicles at Least 10 Times**\
 `The confrontations over the last four months have left two people dead and prompted criticism of federal agencies for allowing officers to open fire on moving vehicles.`\
 https://nytimes.com/2026/01/09/us/immigration-agents-shooting-vehicles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/09/us/politics/trump-venezuela-republican-voters.htm
 **A Financier’s Twist on Buying Influence: Bankrolling Ballot Measures**\
 `Brian Heywood, a Seattle-area hedge fund founder, has spent millions to put conservative initiatives in front of Washington lawmakers and voters. Next up: parental rights and transgender athletes.`\
 https://nytimes.com/2026/01/09/us/politics/ballot-measures-washington-state-wealthy.html
-
-**The Sins of the Moderates**\
-`How are we classical liberals of left, right and center supposed to behave in this new world?`\
-https://nytimes.com/2026/01/09/opinion/trump-niebuhr-classical-liberals.html
 
