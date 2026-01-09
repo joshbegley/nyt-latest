@@ -1,3 +1,11 @@
+**San Francisco Giants free-agent profile: Ranger Suárez, LHP**\
+`Suárez has been one of the top 10 pitchers in baseball since 2021 and could move the Giants from wild-card contender to wild-card favorite.`\
+https://nytimes.com/athletic/6956917/2026/01/09/sf-giants-ranger-suarez-free-agent-fit/
+
+**Elon Musk’s A.I. Is Generating Sexualized Images of Real People, Fueling Outrage**\
+`Late Thursday, Mr. Musk’s chatbot, Grok, limited requests for A.I.-generated images on X to paid subscribers of the social media site amid an outcry from victims and regulators.`\
+https://nytimes.com/2026/01/09/technology/grok-deepfakes-ai-x.html
+
 **How to Make, and Keep, New Year’s Financial Resolutions**\
 `Experts offered a variety of suggestions, including paring your list of goals, making saving automatic and avoiding spending temptations like marketing emails.`\
 https://nytimes.com/2026/01/09/your-money/new-years-financial-resolutions.html

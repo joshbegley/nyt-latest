@@ -1,3 +1,7 @@
+**Women's NCAA Tournament Bracket Watch: Could UCLA take over UConn for top No. 1 seed?**\
+`Who are the top four seeds? Can LSU work up to a No. 2 seed? `\
+https://nytimes.com/athletic/6956474/2026/01/09/womens-ncaa-tournament-bracket-ucla-uconn/
+
 **San Francisco Giants free-agent profile: Ranger Suárez, LHP**\
 `Suárez has been one of the top 10 pitchers in baseball since 2021 and could move the Giants from wild-card contender to wild-card favorite.`\
 https://nytimes.com/athletic/6956917/2026/01/09/sf-giants-ranger-suarez-free-agent-fit/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010634245/iran-protests-interne
 **Does Trae Young trade mean Anthony Davis is next, and more NBA trade deadline buzz**\
 `The latest our NBA insiders are hearing on Giannis, Jonathan Kuminga and more as trade season officially kicks off with the Trae Young deal.`\
 https://nytimes.com/athletic/6956615/2026/01/09/nba-trade-rumors-latest-anthony-davis-giannis-jonathan-kuminga/
-
-**Trump Is Making a Power Play in Latin America. China Is Already There.**\
-`China built a dominant strategic position in the region as the leading lender and trading partner. It is watching President Trump’s next moves closely.`\
-https://nytimes.com/2026/01/09/business/china-latin-america-trump-venezuela.html
 
