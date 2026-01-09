@@ -1,3 +1,7 @@
+**U.S. Seizes Another Tanker Carrying Venezuelan Oil**\
+`The tanker, the Olina, is the fifth to be boarded or seized by U.S. forces in recent weeks as part of an effort to control Venezuela’s oil exports.`\
+https://nytimes.com/2026/01/09/world/americas/us-oil-tanker-venezuela-olina.html
+
 **Three of Grand Slams and ATP, WTA hold secret London meetings over player lawsuit**\
 `The discussions are the latest installment in the sport's slow path toward meaningful change.`\
 https://nytimes.com/athletic/6957349/2026/01/09/tennis-grand-slams-tours-reform-prize-money-ptpa-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/09/science/eric-schmidt-telescopes-google-space.html
 **Blackhawks prospect Sacha Boisvert is healthy, ready to prove himself at BU**\
 `Could Boisvert join the Blackhawks later this season? The second half of his college season might determine that.`\
 https://nytimes.com/athletic/6956724/2026/01/09/blackhawks-prospect-sacha-boisvert-healthy-boston-university/
-
-**The Canadiens have a brand of hockey to call their own, a critical step in the rebuild**\
-`Martin St. Louis used to talk with envy about other teams in the Canadiens' division that had an established brand of hockey. No longer. `\
-https://nytimes.com/athletic/6956887/2026/01/09/canadiens-beat-panthers-texier-style-rebuild/
 
