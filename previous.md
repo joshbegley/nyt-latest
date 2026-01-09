@@ -1,3 +1,15 @@
+**Russia Appears to Use Nuclear-Capable Missile in Ukraine**\
+`If confirmed, the use of the missile, would be an ominous threat to Ukraine and its Western allies.`\
+https://nytimes.com/2026/01/08/world/europe/russia-ukraine-nuclear-capable-missile.html
+
+**‘The Pitt’ Season 2 Premiere Recap: The Doctors Will See You Now**\
+`Doctor Robby is back for one final shift before he goes on sabbatical. What could possibly go wrong?`\
+https://nytimes.com/2026/01/08/arts/television/the-pitt-recap-season-2-premiere.html
+
+**Wilde Thing**\
+`Greg Snitkin and Glenn Davis supply a spirited collaboration.`\
+https://nytimes.com/2026/01/08/crosswords/daily-puzzle-2026-01-09.html
+
 **5 Democratic States Sue Trump Administration Over $10 Billion Funding Freeze**\
 `The administration cited without evidence “potential” widespread fraud in its move to cut off funds for child care subsidies and other support for low-income families.`\
 https://nytimes.com/2026/01/08/us/politics/blue-states-trump-funding-hhs-lawsuit.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/08/us/politics/homeland-security-ice-protests-warnin
 **Once Again, a Newfoundland Town Rescues Stranded Passengers**\
 `After 9/11, Gander took in thousands of people whose flights were diverted. History repeated on a smaller scale this week.`\
 https://nytimes.com/2026/01/08/world/canada/gander-canada-airport-stranded-travelers.html
-
-**Bulls-Heat game postponed due to condensation on United Center court**\
-`Water was visible on the court moments before the scheduled tip-off, with humidity levels at above-normal levels, league sources said.`\
-https://nytimes.com/athletic/6956372/2026/01/08/bulls-heat-game-delayed-united-center/
-
-**What the Ellis trade tells us about the Blackhawks' 2026-27 NHL roster structure**\
-`With plenty of veteran talent coming off the books this summer, trading for Ryan Ellis' contract is the next step in Kyle Davidson's plan.`\
-https://nytimes.com/athletic/6955774/2026/01/08/blackhawks-roster-structure-davidson-prospects/
-
-**Senators condemn 'trolls and sick people' speculating about Linus Ullmark**\
-`"We are disgusted that outside forces are attempting to disrupt our hockey club," president and GM Steve Staios said in a statement.`\
-https://nytimes.com/athletic/6956279/2026/01/08/ottawa-senators-linus-ullmark-absence-statement/
 

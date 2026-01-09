@@ -1,3 +1,15 @@
+**Russia Appears to Use Nuclear-Capable Missile in Ukraine**\
+`If confirmed, the use of the missile, would be an ominous threat to Ukraine and its Western allies.`\
+https://nytimes.com/2026/01/08/world/europe/russia-ukraine-nuclear-capable-missile.html
+
+**‘The Pitt’ Season 2 Premiere Recap: The Doctors Will See You Now**\
+`Doctor Robby is back for one final shift before he goes on sabbatical. What could possibly go wrong?`\
+https://nytimes.com/2026/01/08/arts/television/the-pitt-recap-season-2-premiere.html
+
+**Wilde Thing**\
+`Greg Snitkin and Glenn Davis supply a spirited collaboration.`\
+https://nytimes.com/2026/01/08/crosswords/daily-puzzle-2026-01-09.html
+
 **Bulls-Heat game postponed due to condensation on United Center court**\
 `Water was visible on the court moments before the scheduled tip-off, with humidity levels at above-normal levels, league sources said.`\
 https://nytimes.com/athletic/6956372/2026/01/08/bulls-heat-game-delayed-united-center/

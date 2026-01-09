@@ -1,3 +1,7 @@
+**Patrick Kane becomes fifth American-born player to score 500 NHL goals**\
+`The goal, an empty-netter against the Canucks, was his second of the night for the Red Wings.`\
+https://nytimes.com/athletic/6956505/2026/01/08/patrick-kane-nhl-500-goals/
+
 **Russia Appears to Use Nuclear-Capable Missile in Ukraine**\
 `If confirmed, the use of the missile, would be an ominous threat to Ukraine and its Western allies.`\
 https://nytimes.com/2026/01/08/world/europe/russia-ukraine-nuclear-capable-missile.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6956212/2026/01/08/detroit-tigers-tarik-skubal-arbi
 **Amid Protests, ICE Told Agents to Take ‘Decisive Action’ if Threatened**\
 `The guidance comes as immigration officers have been met with increasingly hostile protesters in cities.`\
 https://nytimes.com/2026/01/08/us/politics/homeland-security-ice-protests-warning.html
-
-**Once Again, a Newfoundland Town Rescues Stranded Passengers**\
-`After 9/11, Gander took in thousands of people whose flights were diverted. History repeated on a smaller scale this week.`\
-https://nytimes.com/2026/01/08/world/canada/gander-canada-airport-stranded-travelers.html
 
