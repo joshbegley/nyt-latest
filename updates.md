@@ -1,3 +1,7 @@
+**Bulls-Heat game postponed due to condensation on United Center court**\
+`Water was visible on the court moments before the scheduled tip-off, with humidity levels at above-normal levels, league sources said.`\
+https://nytimes.com/athletic/6956372/2026/01/08/bulls-heat-game-delayed-united-center/
+
 **5 Democratic States Sue Trump Administration Over $10 Billion Funding Freeze**\
 `The administration cited without evidence “potential” widespread fraud in its move to cut off funds for child care subsidies and other support for low-income families.`\
 https://nytimes.com/2026/01/08/us/politics/blue-states-trump-funding-hhs-lawsuit.html
