@@ -1,3 +1,11 @@
+**Do You Frequently Order Food Delivery? We Want to Hear From You.**\
+`Your responses can help as we report on the immense growth of food delivery and its effects on how we live.`\
+https://nytimes.com/2026/01/09/dining/food-delivery-user-questions.html
+
+**Are You a Food Delivery Driver? We Want to Hear From You.**\
+`We are reporting on food-delivery culture, and we want to talk to the people who keep it running.`\
+https://nytimes.com/2026/01/09/dining/food-delivery-driver-questions.html
+
 **Can A.I. Help Medical Research?**\
 `Sam Rodriques, the C.E.O. and co-founder of FutureHouse, discusses the bottlenecks around A.I. drug development, and how Kosmos – the company’s A.I. scientist – aims to solve some of these hurdles and accelerate medical discovery.`\
 https://nytimes.com/video/podcasts/100000010626765/can-ai-help-medical-research.html
