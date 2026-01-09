@@ -1,3 +1,27 @@
+**David Cone will not return to ESPN's MLB coverage**\
+`Cone will continue as a top analyst on Yankee games on the YES Network.`\
+https://nytimes.com/athletic/6958009/2026/01/09/david-cone-espn-mlb-nbc-sunday/
+
+**Russia Says It Struck Ukraine With Nuclear-Capable Missile**\
+`The Russian Defense Ministry said on Friday that it had struck western Ukraine with a nuclear-capable intermediate-range ballistic missile, an ominous warning by President Vladimir V. Putin of Russia as U.S.-led negotiations to end the war have gained steam.`\
+https://nytimes.com/video/world/europe/100000010634199/russia-says-it-struck-ukraine-with-nuclear-capable-missile.html
+
+**Yemeni Separatists Say They Are Disbanding, but Move Is in Dispute**\
+`A delegation from the Southern Transitional Council in Riyadh announced its dissolution, but members abroad rejected the news amid fears it was not voluntary.`\
+https://nytimes.com/2026/01/09/world/middleeast/yemeni-separatists-disband.html
+
+**The Trump Interview: A President Who Answers Only to Himself**\
+`Readers react to President Trump’s interview with The New York Times. Also: Mayor Zohran Mamdani, Jews and Israel.`\
+https://nytimes.com/2026/01/09/opinion/trump-interview.html
+
+**Kennedy Said His Dietary Advisers Would Have ‘No Conflicts of Interest.’ Some Did.**\
+`New federal guidelines, which emphasize protein, meat and milk, were informed by a panel of experts with several ties to the meat and dairy industries.`\
+https://nytimes.com/2026/01/09/well/dietary-guidelines-conflicts-of-interest.html
+
+**NCAA denies Trinidad Chambliss' waiver request for extra year of eligibility**\
+`Chambliss’ rise with the Rebels has been one of the most compelling stories of the college football season.`\
+https://nytimes.com/athletic/6957718/2026/01/09/trinidad-chambliss-eligibility-ncaa-waiver-denied/
+
 **Flashback: Your Weekly History Quiz, Jan. 10, 2026**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2026/01/09/upshot/flashback.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6957609/2026/01/09/miami-home-game-national-champio
 **Ravens OC Todd Monken says he could have coached Lamar Jackson better**\
 `Jackson dealt with a slew of injuries in 2025 — including hamstring, knee, ankle, toe and back issues — missing multiple games.`\
 https://nytimes.com/athletic/6957851/2026/01/09/todd-monken-lamar-jackson-ravens-coaching/
-
-**USWNT head coach Emma Hayes talks Rodman's return, NWSL's new rule and player development**\
-`Hayes said, "Nothing will change with me and the way that I'm doing things," following NWSL's new rule.`\
-https://nytimes.com/athletic/6955917/2026/01/09/uswnt-emma-hayes-trinity-rodman-nwsl-development/
-
-**Prosecutor Asks for Owner of Swiss Bar Hit by Deadly Fire to Be Detained**\
-`The request came after hours of questioning of the bar’s co-owners. Some 40 people died in the fire that broke out during a New Year’s celebration.`\
-https://nytimes.com/2026/01/09/world/europe/switzerland-fire-bar-owner-arrested.html
-
-**These Easy Egg Bites Are the Best Grab-and-Go Breakfast**\
-`They’re also easy to make ahead and packed with spinach and cottage cheese, ready to power you through the day.`\
-https://nytimes.com/2026/01/09/dining/easy-breakfast-idea-spinach-egg-bites.html
-
-**The Briefing: Mali 0 Senegal 1 - An unconvincing win? Ndiaye's best game so far? What was Bissouma thinking?**\
-`The Athletic's writers analyse the first quarter-final at the 2025 Africa Cup of Nations `\
-https://nytimes.com/athletic/6948912/2026/01/09/mali-senegal-afcon-analysis/
-
-**Handshakes, being his own man, and a need to win: Rosenior's Chelsea press conference debut**\
-`Liam Rosenior had his first Chelsea press conference on Friday ahead of their FA Cup game against Charlton `\
-https://nytimes.com/athletic/6957799/2026/01/09/liam-rosenior-chelsea-press-conference-unveiling/
-
-**Producers Guild Nominations Strengthen Oscar Odds for Five Films**\
-`“One Battle After Another,” “Sinners,” “Hamnet,” “Frankenstein” and “Marty Supreme” have now been recognized by all three major guilds.`\
-https://nytimes.com/2026/01/09/movies/producers-guild-nominations-oscars.html
 
