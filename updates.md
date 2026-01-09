@@ -1,3 +1,19 @@
+**This Popular Ghanaian Street Food Harnesses the Plantain’s Power**\
+`Yewande Komolafe’s oven-roasted take on kelewele pairs the classic snack with crisp shallots and herbs.`\
+https://nytimes.com/2026/01/09/dining/ghanaian-street-food-plantains.html
+
+**Can Ole Miss keep rolling after Chambliss waiver denial? What you need to know for 2026**\
+`The NCAA denying Trinidad Chambliss an extra year makes quarterback a wild card as Ole Miss fully moves into its post-Lane Kiffin era.`\
+https://nytimes.com/athletic/6958019/2026/01/09/ole-miss-transfer-portal-2026-trinidad-chambliss-waiver/
+
+**X Sues Music Publishers, Alleging ‘Collusion’ Over Licensing Deals**\
+`The social media platform says it was pressured into licensing agreements for songs “at inflated rates.” In 2023, publishers sued the company for copyright violations.`\
+https://nytimes.com/2026/01/09/arts/music/x-music-publishers-lawsuit.html
+
+**New F.B.I. Deputy Director Chosen After Bongino’s Departure**\
+`Even as the selection of a career agent, Christopher G. Raia, leaves an unusual three-person leadership structure in place, it returns a career agent to the No. 2 post.`\
+https://nytimes.com/2026/01/09/us/politics/fbi-deputy-director-christopher-raia.html
+
 **New F.B.I. Deputy Director Chosen After Bongino’s Departure**\
 `Even as the selection of a career agent, Christopher G. Raia, leaves an unusual three-person leadership structure in place, it returns a career agent to the second highest-ranking post.`\
 https://nytimes.com/2026/01/09/us/politics/fbi-deputy-director-christopher-raia.html
