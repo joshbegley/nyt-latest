@@ -1,3 +1,15 @@
+**How Liverpool shackled Arsenal to limit the league leaders' attack**\
+`Liverpool's defensive performance, particularly in the second half, was something Slot and his team can build on`\
+https://nytimes.com/athletic/6957002/2026/01/09/liverpool-arsenal-analysis-slot/
+
+**Trump Administration Live Updates: Supreme Court Expected to Release First Opinions of Term**\
+``\
+https://nytimes.com/live/2026/01/09/us/trump-news
+
+**What to Know About the Oreshnik, the Missile Russia Used Against Ukraine**\
+`The attack was just the second time that Moscow had launched the nuclear-capable intermediate-range ballistic weapon.`\
+https://nytimes.com/2026/01/09/world/europe/oreshnik-ballistic-missile-russia-ukraine.html
+
 **Bill Gates Makes a Multibillion-Dollar Divorce Payout**\
 `The billionaire and philanthropist has made a nearly $8 billion payment to the private foundation of his ex-wife, Melinda French Gates, new tax filings show.`\
 https://nytimes.com/2026/01/09/business/dealbook/gates-divorce-settlement.html
