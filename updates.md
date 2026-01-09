@@ -1,3 +1,11 @@
+**Flashback: Your Weekly History Quiz, Jan. 10, 2026**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2026/01/09/upshot/flashback.html
+
+**Fletcher: VAR should have looked at Walker, Dorgu incident**\
+`The interim coach referenced his team's disallowed goal in the first half which also involved the Burnley defender. `\
+https://nytimes.com/athletic/6957896/2026/01/09/dorgu-walker-manchester-united-fletcher-var/
+
 **How Miami will play a home game in the national championship**\
 `It's the first time in the BCS/College Football Playoff era that a team will "host" the national championship.`\
 https://nytimes.com/athletic/6957609/2026/01/09/miami-home-game-national-championship-hard-rock-stadium/
