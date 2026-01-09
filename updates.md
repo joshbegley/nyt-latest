@@ -1,3 +1,7 @@
+**Which NHL teams have the most Olympians? Check out the full list**\
+`The Lightning are like hockey’s United Nations with their remarkable 10 players skating for seven different countries at the Olympics.`\
+https://nytimes.com/athletic/6957632/2026/01/09/nhl-olympics-rosters-men-red-light/
+
 **Federal Officials Identify Pair Shot by Border Patrol in Portland, Ore.**\
 `The shooting during a traffic stop, a day after the killing of a woman in Minneapolis by an ICE agent, generated angry denunciations by local officials.`\
 https://nytimes.com/2026/01/09/us/portland-immigration-shooting.html

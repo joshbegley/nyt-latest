@@ -1,3 +1,7 @@
+**Which NHL teams have the most Olympians? Check out the full list**\
+`The Lightning are like hockey’s United Nations with their remarkable 10 players skating for seven different countries at the Olympics.`\
+https://nytimes.com/athletic/6957632/2026/01/09/nhl-olympics-rosters-men-red-light/
+
 **Federal Officials Identify Pair Shot by Border Patrol in Portland, Ore.**\
 `The shooting during a traffic stop, a day after the killing of a woman in Minneapolis by an ICE agent, generated angry denunciations by local officials.`\
 https://nytimes.com/2026/01/09/us/portland-immigration-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6957425/2026/01/09/gabriel-martinelli-conor-bradley
 **Pope Leo Rebukes a ‘Zeal for War’ That He Sees as Spreading Globally**\
 `The pontiff used an annual address to ambassadors to the Vatican to condemn countries that prioritized violence over diplomacy to achieve their goals.`\
 https://nytimes.com/2026/01/09/world/europe/pope-leo-address-war-diplomacy.html
-
-**Dolphins to hire Jon-Eric Sullivan as general manager: Source**\
-`Sullivan worked his way up through the scouting, personnel executive and football operations departments over two decades in Green Bay.`\
-https://nytimes.com/athletic/6957511/2026/01/09/dolphins-hire-jon-eric-sullivan-general-manager/
 
