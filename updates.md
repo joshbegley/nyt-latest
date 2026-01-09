@@ -1,3 +1,7 @@
+**As trade season heats up, Anthony Davis out indefinitely with hand injury: Source**\
+`The Mavericks and Davis will seek multiple medical opinions to help determine a road to recovery. `\
+https://nytimes.com/athletic/6958500/2026/01/09/anthony-davis-hand-injury-history-mavericks-depth-chart/
+
 **Wrexham's Hollywood owners celebrating famous FA Cup win**\
 `Ryan Reynolds joined a capacity crowd in braving freezing temperatures in Wales to cheer the team he bought in 2021.`\
 https://nytimes.com/athletic/6958525/2026/01/09/wrexham-nottingham-forest-fa-cup-win/

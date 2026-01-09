@@ -1,3 +1,11 @@
+**Hessy Levinsons Taft, Jewish Baby on Cover of Nazi Magazine, Dies at 91**\
+`Without her parents’ knowledge, her portrait was entered surreptitiously in a contest to represent the ideal Aryan infant in 1934 — and she won.`\
+https://nytimes.com/2026/01/09/world/europe/hessy-levinsons-taft-dead.html
+
+**Commanders' Marshon Lattimore faces misdemeanor weapons charge: Police**\
+`Lattimore’s attorney described the incident in an interview with The Athletic as a “misunderstanding." `\
+https://nytimes.com/athletic/6958476/2026/01/09/marshon-lattimore-weapons-charge-commanders/
+
 **Wrexham's Hollywood owners celebrating famous FA Cup win**\
 `Ryan Reynolds joined a capacity crowd in braving freezing temperatures in Wales to cheer the team he bought in 2021.`\
 https://nytimes.com/athletic/6958525/2026/01/09/wrexham-nottingham-forest-fa-cup-win/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/09/us/politics/trump-war-powers-resolution.html
 **Portraits of the Thwaites Glacier**\
 `From an icebreaker sailing near the Thwaites Glacier in Antarctica, our photographer has captured the many faces of the ice.`\
 https://nytimes.com/2026/01/09/climate/portraits-of-the-thwaites-glacier.html
-
-**After Police Kill 2 People in One Night, Mamdani Responds Cautiously**\
-`Mayor Zohran Mamdani did not call the shootings justified, but said New York Police officers were placed in “incredibly difficult and dangerous circumstances.”`\
-https://nytimes.com/2026/01/09/nyregion/mamdani-nypd-shootings.html
-
-**Dodgers bolster infield depth by adding Andy Ibáñez, Ryan Fitzgerald**\
-`With Tommy Edman's status for Opening Day unclear, the Dodgers are giving themselves plenty of options for the middle infield.`\
-https://nytimes.com/athletic/6958218/2026/01/09/dodgers-andy-ibanez-ryan-fitzgerald-infield-additions/
 
