@@ -1,3 +1,7 @@
+**This Popular Ghanaian Street Food Harnesses the Plantain’s Power**\
+`Yewande Komolafe’s oven-roasted take on kelewele pairs the classic snack with crisp shallots and herbs.`\
+https://nytimes.com/2026/01/09/dining/ghanaian-street-food-plantains.html
+
 **Can Ole Miss keep rolling after Chambliss waiver denial? What you need to know for 2026**\
 `The NCAA denying Trinidad Chambliss an extra year makes quarterback a wild card as Ole Miss fully moves into its post-Lane Kiffin era.`\
 https://nytimes.com/athletic/6958019/2026/01/09/ole-miss-transfer-portal-2026-trinidad-chambliss-waiver/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6958128/2026/01/09/ja-morant-grizzlies-trade-destin
 **Scoop City: Path to victory for every wild-card team**\
 `Key stats, matchups and predictions for each wild-card game`\
 https://nytimes.com/athletic/6958063/2026/01/09/nfl-first-round-wild-card-preview-bills-eagles-bears/
-
-**U.S. Hiring Turned Sluggish One Year Into Trump’s Second Term**\
-`As economists pointed to some of the president’s policies to explain the latest Labor Department data, White House aides sought to make the case for optimism in the new year.`\
-https://nytimes.com/2026/01/09/us/politics/us-hiring-economy-trump-second-term.html
 
