@@ -1,3 +1,7 @@
+**‘Bug’ Review: Carrie Coon Is Superb in an American Gothic Tale**\
+`Tracy Letts’s eerily topical, decades-old play about a woman’s descent into a world of conspiracy theories makes its nerve-rattling Broadway debut.`\
+https://nytimes.com/2026/01/08/theater/bug-review-carrie-coon.html
+
 **Trump Appears Open to Defending Ukraine, but With a Caveat**\
 `The president told The Times that he felt “strongly” that Russia would not invade Ukraine again.`\
 https://nytimes.com/2026/01/08/us/politics/trump-ukraine-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6956193/2026/01/08/washington-football-demond-willi
 **Amid Opening Sprint, Mamdani Paused to Socialize With Steven Spielberg**\
 `Zohran Mamdani, the new mayor of New York, made a private visit to the billionaire film director’s Central Park West apartment this week.`\
 https://nytimes.com/2026/01/08/nyregion/steven-spielberg-zohran-mamdani-meeting.html
-
-**Trump Orders Fannie and Freddie to Buy $200 Billion in Mortgage Bonds**\
-`The move, a bid to make homes more affordable, would be a back-to-future moment for the two mortgage firms. Buying risky mortgage bonds helped push them to near-bankruptcy in 2008.`\
-https://nytimes.com/2026/01/08/business/trump-fannie-freddie-mortgage-bonds.html
 
