@@ -3,7 +3,7 @@
 https://nytimes.com/2026/01/08/us/cape-coral-jewelry-store-robbery-florida.html
 
 **Ukraine Awards Major Lithium Project to Investors With Links to Trump**\
-`Ronald S. Lauder, a billionaire friend of Mr. Trump, is among the investors. The move comes as the Trump administration looks for investment opportunities in Ukraine.`\
+`Ronald S. Lauder, a billionaire friend of Mr. Trump, is among the investors. The move comes as the Trump administration looks to profit from investment opportunities in Ukraine.`\
 https://nytimes.com/2026/01/08/world/europe/trump-lauder-ukraine-lithium.html
 
 **Slot 'fears the worst' on Conor Bradley knee injury**\
