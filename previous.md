@@ -1,3 +1,7 @@
+**Diamondbacks will not trade All-Star second baseman Ketel Marte: Source**\
+`The DBacks had been considering a trade of Marte to help address their pitching needs and possibly clear money to sign Alex Bregman.`\
+https://nytimes.com/athletic/6949508/2026/01/09/mlb-ketel-marte-diamondbacks-no-trade/
+
 **USWNT defender Emily Sams joins Angel City, concluding week of signings for the NWSL club**\
 `Angel City sporting director Mark Parsons discusses the process behind signing the quintet of players. `\
 https://nytimes.com/athletic/6953440/2026/01/09/angel-city-signings-emily-sams-orlando/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6957780/2026/01/09/raptors-vs-celtics-stream-how-to
 **Supreme Court, Swamped by Emergencies, Neglects Rest of Docket**\
 `Only once in the modern era have the justices taken this long to issue their first decision — and when it came, it wasn’t the hotly anticipated case on President Trump’s tariffs.`\
 https://nytimes.com/2026/01/09/us/politics/supreme-court-docket.html
-
-**Minnesota Leaders Call for State Role in Investigating Deadly ICE Shooting**\
-`Federal authorities, who have launched an immigration enforcement blitz in Minnesota, said they will re-examine thousands of refugee cases in the state.`\
-https://nytimes.com/2026/01/09/us/ice-shooting-investigation-minnesota-agents.html
 

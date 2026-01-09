@@ -1,3 +1,7 @@
+**Diamondbacks will not trade All-Star second baseman Ketel Marte: Source**\
+`The DBacks had been considering a trade of Marte to help address their pitching needs and possibly clear money to sign Alex Bregman.`\
+https://nytimes.com/athletic/6949508/2026/01/09/mlb-ketel-marte-diamondbacks-no-trade/
+
 **USWNT defender Emily Sams joins Angel City, concluding week of signings for the NWSL club**\
 `Angel City sporting director Mark Parsons discusses the process behind signing the quintet of players. `\
 https://nytimes.com/athletic/6953440/2026/01/09/angel-city-signings-emily-sams-orlando/
