@@ -1,3 +1,23 @@
+**Man Utd's Geyse set to join Club America following end of Gotham loan**\
+`United are also working on closing a deal for Sweden striker Ellen Wangerheim from Hammarby.`\
+https://nytimes.com/athletic/6957493/2026/01/09/geyse-club-america-manchester-united-transfer/
+
+**How to watch Pelicans vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6957793/2026/01/09/pelicans-vs-wizards-stream-how-to-watch-jan-9/
+
+**Google Guys Say Bye to California**\
+`Sergey Brin is joining his Google co-founder, Larry Page, in reducing ties to the state where they built their fortunes.`\
+https://nytimes.com/2026/01/09/technology/google-founders-california-wealth-tax.html
+
+**How to watch 76ers vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6957788/2026/01/09/76ers-vs-magic-stream-how-to-watch-jan-9/
+
+**How to watch Raptors vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6957780/2026/01/09/raptors-vs-celtics-stream-how-to-watch-jan-9/
+
 **Supreme Court, Swamped by Emergencies, Neglects Rest of Docket**\
 `Only once in the modern era have the justices taken this long to issue their first decision — and when it came, it wasn’t the hotly anticipated case on President Trump’s tariffs.`\
 https://nytimes.com/2026/01/09/us/politics/supreme-court-docket.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/09/books/review/djaimilia-pereira-de-almeida-three-s
 **Why the Canucks cannot be trusted to rebuild properly**\
 `When you step back and look at the Canucks' missteps from the last 12 months, it's hard not to agonize over the missed opportunities.`\
 https://nytimes.com/athletic/6956427/2026/01/09/canucks-rebuild/
-
-**Five International Movies to Stream Now**\
-`This month’s picks include an elliptical Mexican anthology film, an experimental biopic of the writer Suzanne Césaire and more.`\
-https://nytimes.com/2026/01/09/movies/international-movies-streaming.html
-
-**Liverpool complete £1m signing of teenage centre-back Mor Talla Ndiaye**\
-`Ndiaye is a left-footed Senegal youth international who plays for a club owned by former Premier League striker Demba Ba.`\
-https://nytimes.com/athletic/6941727/2026/01/09/liverpool-transfers-mor-talla-ndiaye/
-
-**Melissa Clark’s Five-Star One-Pan Orzo With Spinach and Feta**\
-`And more reader favorites from this week.`\
-https://nytimes.com/2026/01/09/dining/melissa-clarks-five-star-one-pan-orzo-with-spinach-and-feta.html
-
-**Chelsea charged over alleged water bottle incident against Aston Villa**\
-`The FA confirmed on Friday Chelsea had been charged with a breach of FA Rule E20.1 following a full-time incident at Stamford Bridge.`\
-https://nytimes.com/athletic/6957644/2026/01/09/chelsea-charged-aston-villa-water-bottle/
-
-**Hurzeler to make multiple Brighton changes for Man Utd game**\
-`Joel Veltman, Charalampos Kostoulas and Yankuba Minteh are all in contention to return to the squad, but Mats Wieffer remains sidelined.`\
-https://nytimes.com/athletic/6957666/2026/01/09/brighton-fabian-hurzeler-man-utd/
 

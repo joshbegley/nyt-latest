@@ -1,3 +1,7 @@
+**Al Michaels to return for another season with Amazon Prime's NFL coverage**\
+`Michaels has served as Prime Video’s primary play-by-play announcer for "Thursday Night Football" since 2022.`\
+https://nytimes.com/athletic/6957616/2026/01/09/al-michaels-return-amazon-prime-nfl-coverage/
+
 **Man Utd's Geyse set to join Club America following end of Gotham loan**\
 `United are also working on closing a deal for Sweden striker Ellen Wangerheim from Hammarby.`\
 https://nytimes.com/athletic/6957493/2026/01/09/geyse-club-america-manchester-united-transfer/
@@ -29,12 +33,4 @@ https://nytimes.com/2026/01/09/us/ice-shooting-investigation-minnesota-agents.ht
 **Rescue Workers Search for Survivors in Deadly Philippines Landfill Collapse**\
 `A landfill in the central Philippines collapsed on Thursday afternoon, killing at least two people and injuring at least a dozen others, according to local officials. Rescue workers were searching for several other people who were missing, many of whom remained trapped under the debris.`\
 https://nytimes.com/video/world/asia/100000010634369/philippines-landfill-collapse.html
-
-**For These Three, the Age of Empire Never Quite Ended**\
-`In a trilogy of novellas, a writer explores lives haunted by colonialism and slavery.`\
-https://nytimes.com/2026/01/09/books/review/djaimilia-pereira-de-almeida-three-stories-of-forgetting.html
-
-**Why the Canucks cannot be trusted to rebuild properly**\
-`When you step back and look at the Canucks' missteps from the last 12 months, it's hard not to agonize over the missed opportunities.`\
-https://nytimes.com/athletic/6956427/2026/01/09/canucks-rebuild/
 
