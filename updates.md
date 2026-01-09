@@ -1,3 +1,7 @@
+**Ravens OC Todd Monken says he could have coached Lamar Jackson better**\
+`Jackson dealt with a slew of injuries in 2025 — including hamstring, knee, ankle, toe and back issues — missing multiple games.`\
+https://nytimes.com/athletic/6957851/2026/01/09/todd-monken-lamar-jackson-ravens-coaching/
+
 **USWNT head coach Emma Hayes talks Rodman's return, NWSL's new rule and player development**\
 `Hayes said, "Nothing will change with me and the way that I'm doing things," following NWSL's new rule.`\
 https://nytimes.com/athletic/6955917/2026/01/09/uswnt-emma-hayes-trinity-rodman-nwsl-development/

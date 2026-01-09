@@ -1,3 +1,7 @@
+**How Miami will play a home game in the national championship**\
+`It's the first time in the BCS/College Football Playoff era that a team will "host" the national championship.`\
+https://nytimes.com/athletic/6957609/2026/01/09/miami-home-game-national-championship-hard-rock-stadium/
+
 **Ravens OC Todd Monken says he could have coached Lamar Jackson better**\
 `Jackson dealt with a slew of injuries in 2025 — including hamstring, knee, ankle, toe and back issues — missing multiple games.`\
 https://nytimes.com/athletic/6957851/2026/01/09/todd-monken-lamar-jackson-ravens-coaching/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/09/books/review/podcast-virginia-evans-correspondent
 **Trump Officials Reopen Thousands of Refugee Claims in Minnesota**\
 `The review comes as the federal government escalates its immigration enforcement in the state.`\
 https://nytimes.com/2026/01/09/us/politics/minnesota-refugees-dhs-trump.html
-
-**On the Trail of an Elusive Midcentury Chair**\
-`We help a reader track down furniture from a photograph taken in the early 1950s.`\
-https://nytimes.com/2026/01/09/t-magazine/midcentury-outdoor-chair.html
 
