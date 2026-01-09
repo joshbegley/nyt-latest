@@ -1,3 +1,11 @@
+**Mandani’s First Big Move to Help Renters Is Dealt a Blow by Court**\
+`Summit Properties USA won an auction on Friday to buy more than 5,000 apartments out of bankruptcy from the Pinnacle Group despite City Hall’s efforts to intervene.`\
+https://nytimes.com/2026/01/09/nyregion/mamdani-pinnacle-apartments.html
+
+**Hessy Levinsons Taft, Jewish Baby on Cover of Nazi Magazine, Dies at 91**\
+`Without her parents’ knowledge, her portrait was entered as a prank in a contest in 1934 to represent the ideal Aryan infant — and she won.`\
+https://nytimes.com/2026/01/09/world/europe/hessy-levinsons-taft-dead.html
+
 **Mamdani Condemns Slurs and Pro-Hamas Chant at Heated Queens Protest**\
 `Pro-Palestinian and pro-Israel demonstrators hurled threats at each other outside an event promoting real estate sales in Jerusalem. The mayor said those actions had “no place in our city.”`\
 https://nytimes.com/2026/01/09/nyregion/mamdani-hamas-israel-gaza-protest.html

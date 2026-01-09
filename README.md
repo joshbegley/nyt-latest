@@ -1,4 +1,20 @@
-**Mandani’s First Big Move to Help Renters Is Dealt a Blow by Court**\
+**Gavin Newsom on Democrats, 2028 and His Fruit-only Breakfasts**\
+`The California governor is powered by smoothies and bursting with thoughts about U.S. politics.`\
+https://nytimes.com/2026/01/09/us/politics/gavin-newsom-california-democrats.html
+
+**49ers' Trent Williams 'confident' he'll play vs. Eagles; Ricky Pearsall questionable**\
+`Williams was limited at practice Thursday and Friday, while Pearsall did not practice all week.`\
+https://nytimes.com/athletic/6958364/2026/01/09/49ers-eagles-trent-williams-ricky-pearsall/
+
+**Trump Threatens to Take Greenland ‘the Hard Way’**\
+`The president continued to advance an imperialist vision of American foreign policy, where the U.S. can dominate neighboring countries “whether they like it or not.”`\
+https://nytimes.com/2026/01/09/world/americas/trump-threatens-annex-greenland.html
+
+**Trump Pressures Oil Giants to Invest in Venezuela**\
+`Also, protests spread across Iran. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2026/01/09/briefing/trump-oil-venezuela-protests-iran.html
+
+**Mamdani’s First Big Move to Help Renters Is Dealt a Blow by Court**\
 `Summit Properties USA won an auction on Friday to buy more than 5,000 apartments out of bankruptcy from the Pinnacle Group despite City Hall’s efforts to intervene.`\
 https://nytimes.com/2026/01/09/nyregion/mamdani-pinnacle-apartments.html
 
@@ -11,26 +27,10 @@ https://nytimes.com/2026/01/09/nyregion/mamdani-hamas-israel-gaza-protest.html
 https://nytimes.com/2026/01/09/arts/music/washington-national-opera-kennedy-center.html
 
 **Hessy Levinsons Taft, Jewish Baby on Cover of Nazi Magazine, Dies at 91**\
-`Without her parents’ knowledge, her portrait was entered as a prank in a contest in 1934 to represent the ideal Aryan infant — and she won.`\
+`Without her parents’ knowledge, her portrait was entered as a prank in a contest in 1935 to represent the ideal Aryan infant — and she won.`\
 https://nytimes.com/2026/01/09/world/europe/hessy-levinsons-taft-dead.html
 
 **Commanders' Marshon Lattimore faces misdemeanor weapons charge: Police**\
 `Lattimore’s attorney described the incident in an interview with The Athletic as a “misunderstanding." `\
 https://nytimes.com/athletic/6958476/2026/01/09/marshon-lattimore-weapons-charge-commanders/
-
-**Wrexham's Hollywood owners celebrating famous FA Cup win**\
-`Ryan Reynolds joined a capacity crowd in braving freezing temperatures in Wales to cheer the team he bought in 2021.`\
-https://nytimes.com/athletic/6958525/2026/01/09/wrexham-nottingham-forest-fa-cup-win/
-
-**Trump’s $100 Billion Venezuela Oil Plan Gets a Cool Reception**\
-`President Trump met with oil and gas executives on Friday in an effort to push them to invest money in Venezuela, a plan many of them are reluctant to embrace.`\
-https://nytimes.com/2026/01/09/business/energy-environment/trump-venezuela-oil-executives.html
-
-**As trade season heats up, Anthony Davis out indefinitely with hand injury: Source**\
-`The Mavericks and Davis will seek multiple medical opinions to help determine a road to recovery. `\
-https://nytimes.com/athletic/6958500/2026/01/09/anthony-davis-hand-injury-history-mavericks-depth-chart/
-
-**A Look at Iran’s Antigovernment Protests**\
-`Protests have rocked Iran in recent weeks, and the country’s supreme leader has threatened to escalate a crackdown on demonstrators. Erika Solomon, our bureau chief for Iran and Iraq, discusses what’s fueling the protests with our senior writer Katrin Bennhold.`\
-https://nytimes.com/video/world/middleeast/100000010627398/a-look-at-irans-antigovernment-protests.html
 
