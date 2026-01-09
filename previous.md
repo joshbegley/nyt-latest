@@ -1,3 +1,7 @@
+**Portraits of the Thwaites Glacier**\
+`From an icebreaker sailing near the Thwaites Glacier in Antarctica, our photographer has captured the many faces of the ice.`\
+https://nytimes.com/2026/01/09/climate/portraits-of-the-thwaites-glacier.html
+
 **After Police Kill 2 People in One Night, Mamdani Responds Cautiously**\
 `Mayor Zohran Mamdani did not call the shootings justified, but said New York Police officers were placed in “incredibly difficult and dangerous circumstances.”`\
 https://nytimes.com/2026/01/09/nyregion/mamdani-nypd-shootings.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/the-athletic/100000010635494/is-trump-taking-over-dcs-
 **Olympic hockey rink opens test event with holes in the exterior — and the ice**\
 `Only three of 14 locker rooms that will soon host Olympic hockey teams are complete with less than four weeks to go before the Games.`\
 https://nytimes.com/athletic/6958181/2026/01/09/olympic-hockey-rink-construction-first-look/
-
-**Canada announces roster for Olympic women’s hockey: Snubs, surprises and expectations**\
-`The Canadian women’s national hockey team will lean on an experience-heavy roster in Milan.`\
-https://nytimes.com/athletic/6957765/2026/01/09/team-canada-womens-hockey-roster-2026-olympics-snubs/
 

@@ -1,3 +1,7 @@
+**Portraits of the Thwaites Glacier**\
+`From an icebreaker sailing near the Thwaites Glacier in Antarctica, our photographer has captured the many faces of the ice.`\
+https://nytimes.com/2026/01/09/climate/portraits-of-the-thwaites-glacier.html
+
 **After Police Kill 2 People in One Night, Mamdani Responds Cautiously**\
 `Mayor Zohran Mamdani did not call the shootings justified, but said New York Police officers were placed in “incredibly difficult and dangerous circumstances.”`\
 https://nytimes.com/2026/01/09/nyregion/mamdani-nypd-shootings.html
