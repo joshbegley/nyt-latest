@@ -1,3 +1,19 @@
+**Anthony Edwards scored his 10,000th NBA point. The way he did it says a lot**\
+`The 24-year-old Edwards became the third-youngest player ever to reach 10,000 points. He crossed the mark with his newfound midrange game.`\
+https://nytimes.com/athletic/6956332/2026/01/09/anthony-edwards-10000-points-timberwolves/
+
+**TAFC: Arsenal's Martinelli sorry after shoving injured Bradley. Plus: Drogba's war-time intervention**\
+`Today in TAFC: Martinelli says sorry over his shove on Bradley causes a stir, reliving Drogba's war-time speech, and a Valverde stunner.`\
+https://nytimes.com/athletic/6957063/2026/01/09/martinelli-bradley-arsenal-liverpool-shove/
+
+**For Maxim Naumov, U.S. figure skater, an emotional night one year after tragedy**\
+`Naumov's parents died in the January 2025 plane crash that devastated the figure skating community. On Thursday, he paid fitting tribute.`\
+https://nytimes.com/athletic/6957111/2026/01/09/maxim-naumov-parents-us-figure-skating-championships/
+
+**Next man up: How a bunch of unlikely heroes sparked the Bears' surprising season**\
+`Jahdae Walker. Nahshon Wright. Kyle Monangai. D'Marco Jackson. With the playoffs here, who might the Bears' next surprise standout be?`\
+https://nytimes.com/athletic/6954182/2026/01/09/bears-next-man-up-jahdae-walker-nahshon-wright/
+
 **President Trump’s Vision of Power**\
 `“My own mind. It’s the only thing that can stop me,” he told Times reporters.`\
 https://nytimes.com/2026/01/09/briefing/headline-tk.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6949294/2026/01/09/the-athletics-friday-football-qu
 **NFL playoffs: Key matchups to watch in each AFC wild-card game**\
 `It might not be the stars who create mismatches as role players could be pivotal in the three AFC games.`\
 https://nytimes.com/athletic/6953317/2026/01/09/nfl-playoffs-afc-wild-card-matchups/
-
-**Frugal Guardians still have trade, free-agent targets worth considering**\
-`As Cleveland flirts with having MLB's lowest payroll, here are some potential additions who could bolster a lineup that lacks punch.`\
-https://nytimes.com/athletic/6949234/2026/01/09/guardians-trade-free-agent-targets-mlb-lowest-payroll/
-
-**How Nate Landman learned to pack a punch in his journey from Zimbabwe to the NFL**\
-`Landman, who is one of two current NFL players with Zimbabwe roots, has mastered the art of the punchout throughout his short career.`\
-https://nytimes.com/athletic/6952162/2026/01/09/rams-nate-landman-punchout-zimbabwe-nfl/
-
-**Three trade paths to bolster the Maple Leafs' ailing blue line**\
-`The Maple Leafs need a defenceman. Let's lay out three possible swings Toronto could take to get one.`\
-https://nytimes.com/athletic/6954972/2026/01/09/maple-leafs-nhl-trade-deadline-targets-defence/
-
-**Curt Cignetti's next raise, NFL departures and more CFB coaching carousel notes**\
-`The college head coaching carousel has come to a stop … for now. But history says that’s likely going to change.`\
-https://nytimes.com/athletic/6954245/2026/01/09/curt-cignetti-nfl-college-football-coaching-carousel/
 
