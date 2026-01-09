@@ -1,3 +1,11 @@
+**Outside prisons in Caracas, Venezuelans anxiously await the release of more political detainees.**\
+`By The New York Times`\
+https://nytimes.com/live/2026/01/09/world/venezuela-trump-us/outside-prisons-in-caracas-venezuelans-anxiously-await-the-release-of-more-political-detainees
+
+**The Best Light-Therapy Lamp **\
+`Text by Nancy Redd`\
+https://nytimes.com/card/2026/01/09/smarter-living/wirecutter/
+
 **Owner of Swiss Bar Detained in Fire Investigation**\
 `Prosecutors in Switzerland ordered Jacques Moretti to be detained after investigators questioned him and his wife, Jessica Moretti. Officials are looking into whether negligence played a role in last week’s deadly fire at their bar, Le Constellation.`\
 https://nytimes.com/video/world/europe/100000010635277/switzerland-bar-owner-detained-fire-investigation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/09/nyregion/mamdani-pinnacle-apartments.html
 **Mamdani Condemns Slurs and Pro-Hamas Chant at Heated Queens Protest**\
 `Pro-Palestinian and pro-Israel demonstrators hurled threats at each other outside an event promoting real estate sales in Jerusalem. The mayor said those actions had “no place in our city.”`\
 https://nytimes.com/2026/01/09/nyregion/mamdani-hamas-israel-gaza-protest.html
-
-**Washington National Opera Is Leaving the Kennedy Center**\
-`The opera, which has performed at the arts center since 1971, was concerned about declines in attendance and donations during President Trump’s second term.`\
-https://nytimes.com/2026/01/09/arts/music/washington-national-opera-kennedy-center.html
-
-**Hessy Levinsons Taft, Jewish Baby on Cover of Nazi Magazine, Dies at 91**\
-`Without her parents’ knowledge, her portrait was entered as a prank in a contest in 1935 to represent the ideal Aryan infant — and she won.`\
-https://nytimes.com/2026/01/09/world/europe/hessy-levinsons-taft-dead.html
 

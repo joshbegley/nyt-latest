@@ -1,3 +1,11 @@
+**Owner of Swiss Bar Detained in Fire Investigation**\
+`Prosecutors in Switzerland ordered Jacques Moretti to be detained after investigators questioned him and his wife, Jessica Moretti. Officials are looking into whether negligence played a role in last week’s deadly fire at their bar, Le Constellation.`\
+https://nytimes.com/video/world/europe/100000010635277/switzerland-bar-owner-detained-fire-investigation.html
+
+**Brooks Koepka officially wants to rejoin the PGA Tour**\
+`Koepka, 35, left LIV last month, the first major star to leave the rebel tour.`\
+https://nytimes.com/athletic/6958671/2026/01/09/brooks-koepka-pga-tour-return/
+
 **Gavin Newsom on Democrats, 2028 and His Fruit-only Breakfasts**\
 `The California governor is powered by smoothies and bursting with thoughts about U.S. politics.`\
 https://nytimes.com/2026/01/09/us/politics/gavin-newsom-california-democrats.html
@@ -29,8 +37,4 @@ https://nytimes.com/2026/01/09/arts/music/washington-national-opera-kennedy-cent
 **Hessy Levinsons Taft, Jewish Baby on Cover of Nazi Magazine, Dies at 91**\
 `Without her parents’ knowledge, her portrait was entered as a prank in a contest in 1935 to represent the ideal Aryan infant — and she won.`\
 https://nytimes.com/2026/01/09/world/europe/hessy-levinsons-taft-dead.html
-
-**Commanders' Marshon Lattimore faces misdemeanor weapons charge: Police**\
-`Lattimore’s attorney described the incident in an interview with The Athletic as a “misunderstanding." `\
-https://nytimes.com/athletic/6958476/2026/01/09/marshon-lattimore-weapons-charge-commanders/
 

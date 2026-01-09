@@ -1,3 +1,11 @@
+**Owner of Swiss Bar Detained in Fire Investigation**\
+`Prosecutors in Switzerland ordered Jacques Moretti to be detained after investigators questioned him and his wife, Jessica Moretti. Officials are looking into whether negligence played a role in last week’s deadly fire at their bar, Le Constellation.`\
+https://nytimes.com/video/world/europe/100000010635277/switzerland-bar-owner-detained-fire-investigation.html
+
+**Brooks Koepka officially wants to rejoin the PGA Tour**\
+`Koepka, 35, left LIV last month, the first major star to leave the rebel tour.`\
+https://nytimes.com/athletic/6958671/2026/01/09/brooks-koepka-pga-tour-return/
+
 **Washington National Opera Is Leaving the Kennedy Center**\
 `The opera, which has performed at the arts center since 1971, was concerned about declines in attendance and donations during President Trump’s second term.`\
 https://nytimes.com/2026/01/09/arts/music/washington-national-opera-kennedy-center.html
