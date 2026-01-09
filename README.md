@@ -1,3 +1,16 @@
+**The Prospects: Tynan Thompson, Tottenham Hotspur**\
+`Tynan Thompson is a winger being spoken about in highly positive terms - and his UEFA Youth League performances show why`\
+https://nytimes.com/athletic/6949037/2026/01/09/prospects-tynan-thompson-tottenham/
+
+**Forest saw Kalimuendo as a statement signing. Five months later, they have a new shortlist**\
+`The striker’s departure on loan to Frankfurt says as much about the chaos that has engulfed Forest as it does about his own potential
+`\
+https://nytimes.com/athletic/6953597/2026/01/09/forest-saw-kalimuendo-as-a-statement-signing-five-months-later-they-are-forward-planning-again/
+
+**TOTD: Did Amorim miss a trick by not having United insider on staff? Plus: Who do you want next?**\
+`This week in our TOTD column, we're all over Amorim's exit and what comes next...`\
+https://nytimes.com/athletic/6949688/2026/01/09/amorim-man-united-insider-staff-poll-solskjaer/
+
 **The SEC’s old playbook is finished. Now comes the adjustment**\
 `NIL and the transfer portal have whittled away the SEC’s dominance. Adjusting is the only way forward.
 `\
@@ -26,16 +39,4 @@ https://nytimes.com/athletic/6954501/2026/01/09/premier-league-silliest-red-card
 **The story of Drogba's dressing-room intervention in Ivory Coast's civil war**\
 `An impassioned dressing-room speech that was televised to the nation after one of the country's greatest sporting moments had a huge impact`\
 https://nytimes.com/athletic/6938718/2026/01/09/ivory-coast-didier-drogba-civil-war/
-
-**'They've lost not only a team-mate, but a friend': Wolves and Macclesfield mourn Ethan McLeod**\
-`Players, coaches and friends pay tribute to the 21-year-old, who died in a car accident last month `\
-https://nytimes.com/athletic/6953828/2026/01/09/wolves-macclesfield-ethan-mcleod-tribute/
-
-**The making of Antoine Semenyo, a 'beautiful human being' who never gave up hope**\
-`Rejected by Arsenal, Tottenham, Crystal Palace and Fulham as a teenager, those who helped coach Semenyo to the top tell his story...`\
-https://nytimes.com/athletic/6950023/2026/01/09/antoine-semenyo-man-city-transfer-background/
-
-**Planes, trains and the team bus: How do a Premier League club handle logistics and travel?**\
-`Meet Mark Bennett, who spent six years ensuring that Aston Villa's players got where they needed to be, when they needed to be there `\
-https://nytimes.com/athletic/6935480/2026/01/09/premier-league-player-care-support/
 
