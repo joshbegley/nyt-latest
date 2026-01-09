@@ -1,3 +1,19 @@
+**Handshakes, being his own man, and a need to win: Rosenior's Chelsea press conference debut**\
+`Liam Rosenior had his first Chelsea press conference on Friday ahead of their FA Cup game against Charlton `\
+https://nytimes.com/athletic/6957799/2026/01/09/liam-rosenior-chelsea-press-conference-unveiling/
+
+**Producers Guild Nominations Strengthen Oscar Odds for Five Films**\
+`“One Battle After Another,” “Sinners,” “Hamnet,” “Frankenstein” and “Marty Supreme” have now been recognized by all three major guilds.`\
+https://nytimes.com/2026/01/09/movies/producers-guild-nominations-oscars.html
+
+**‘The Correspondent’ Author Virginia Evans Talks About Her Breakout Novel**\
+`Evans’s epistolary tale, about a retired lawyer who spends her days writing to a series of pen pals, became one of last year’s sleeper hits.`\
+https://nytimes.com/2026/01/09/books/review/podcast-virginia-evans-correspondent-interview.html
+
+**Trump Officials Reopen Thousands of Refugee Claims in Minnesota**\
+`The review comes as the federal government escalates its immigration enforcement in the state.`\
+https://nytimes.com/2026/01/09/us/politics/minnesota-refugees-dhs-trump.html
+
 **On the Trail of an Elusive Midcentury Chair**\
 `We help a reader track down furniture from a photograph taken in the early 1950s.`\
 https://nytimes.com/2026/01/09/t-magazine/midcentury-outdoor-chair.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/podcasts/100000010626765/can-ai-help-medical-research.
 **Casey’s 2026 Prediction: 16 and Up for Social Media**\
 `On the “Hard Fork” podcast, the hosts Kevin Roose and Casey Newton discuss Casey’s high-confidence prediction for 2026 that a minimum age of 16 will becomes the new norm for social media accounts worldwide.`\
 https://nytimes.com/video/podcasts/100000010626771/caseys-2026-prediction-16-and-up-for-social-media.html
-
-**How Our White House Photographer Finds New Angles on the Oval Office**\
-`Doug Mills, winner of three Pulitzers, sits, crawls and hoists cameras high in the air to bring viewers fresh perspectives. He was at it again this week during our marathon interview with President Trump.`\
-https://nytimes.com/2026/01/09/insider/how-our-white-house-photographer-finds-new-angles-on-the-oval-office.html
-
-**Stir-Fried Lettuce With Crispy Garlic and Fried Eggs**\
-`Stir-fried lettuce is commonly served as a bed for braised mushrooms or simply as a green side dish. Here, stir-fried lettuce, fried eggs and crispy garlic chips perch on a bed of rice, a simple meal with comforting flavors and textures.`\
-https://nytimes.com/video/dining/100000010368613/stir-fried-lettuce-with-crispy-garlic-and-fried-eggs.html
-
-**Freed Venezuelan Political Prisoner Called Maduro’s Fraud to His Face**\
-`Enrique Márquez, a centrist opposition lawmaker, refused to rubber-stamp the government’s dubious election results in front of the entire nation.`\
-https://nytimes.com/2026/01/09/world/americas/enrique-marquez-venezuela-prisoner-maduro-fraud.html
-
-**What Does ‘America First’ Mean After Venezuela?**\
-`In the wake of the U.S. operation to seize President Nicolás Maduro of Venezuela, some have wondered whether President Trump has strayed from his “America First” promise. Our White House correspondent Zolan Kanno-Youngs looks closer at what “America First” might mean now.`\
-https://nytimes.com/video/world/americas/100000010625828/what-does-america-first-mean-after-venezuela.html
 
