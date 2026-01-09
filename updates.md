@@ -1,3 +1,11 @@
+**Supreme Court, Swamped by Emergencies, Neglects Rest of Docket**\
+`Only once in the modern era have the justices taken this long to issue their first decision — and when it came, it wasn’t the hotly anticipated case on President Trump’s tariffs.`\
+https://nytimes.com/2026/01/09/us/politics/supreme-court-docket.html
+
+**Minnesota Leaders Call for State Role in Investigating Deadly ICE Shooting**\
+`Federal authorities, who have launched an immigration enforcement blitz in Minnesota, said they will re-examine thousands of refugee cases in the state.`\
+https://nytimes.com/2026/01/09/us/ice-shooting-investigation-minnesota-agents.html
+
 **Rescue Workers Search for Survivors in Deadly Philippines Landfill Collapse**\
 `A landfill in the central Philippines collapsed on Thursday afternoon, killing at least two people and injuring at least a dozen others, according to local officials. Rescue workers were searching for several other people who were missing, many of whom remained trapped under the debris.`\
 https://nytimes.com/video/world/asia/100000010634369/philippines-landfill-collapse.html
