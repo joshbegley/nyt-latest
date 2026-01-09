@@ -1,3 +1,11 @@
+**Kennedy Said His Dietary Advisers Would Have ‘No Conflicts of Interest.’ Some Did.**\
+`New federal guidelines, which emphasize protein, meat and milk, were informed by a panel of experts with several ties to the meat and dairy industries.`\
+https://nytimes.com/2026/01/09/well/nutrition-guidelines-conflicts-of-interest.html
+
+**NCAA denies Trinidad Chambliss' waiver request for extra year of eligibility**\
+`Chambliss’ rise with the Rebels has been one of the most compelling stories of the college football season.`\
+https://nytimes.com/athletic/6957718/2026/01/09/trinidad-chambliss-eligibility-ncaa-waiver-denied/
+
 **Flashback: Your Weekly History Quiz, Jan. 10, 2026**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2026/01/09/upshot/flashback.html
