@@ -1,3 +1,7 @@
+**Trump Threatens to Take Greenland ‘the Hard Way’**\
+`The president continued to advance an imperialist vision of American foreign policy, where the U.S. can dominate neighboring countries “whether they like it or not.”`\
+https://nytimes.com/2026/01/09/world/americas/trump-greenland-annex.html
+
 **Gavin Newsom on Democrats, 2028 and His Fruit-only Breakfasts**\
 `The California governor is powered by smoothies and bursting with thoughts about U.S. politics.`\
 https://nytimes.com/2026/01/09/us/politics/gavin-newsom-california-democrats.html
