@@ -1,3 +1,23 @@
+**Putin Delivers a Warning to Europe at Mach 10**\
+`A nuclear-capable missile fired into Ukraine near Poland sent a message to Europe days after its leaders agreed to postwar security guarantees, Russian analysts said.`\
+https://nytimes.com/2026/01/09/world/europe/putin-russia-ukraine-oreshnik-europe.html
+
+**Joel Habener, Whose Research Led to Weight-Loss Drugs, Dies at 88**\
+`His discovery of the protein fragment GLP-1 was crucial in the development of Ozempic, Wegovy and other blockbuster obesity and diabetes treatments.`\
+https://nytimes.com/2026/01/09/health/joel-habener-dead.html
+
+**Free-agent Max Kepler suspended 80 games after positive PED test**\
+`Kepler is coming off a down season with the Phillies, in which he hit just .216/.300/.391 with 18 homers.`\
+https://nytimes.com/athletic/6958186/2026/01/09/max-kepler-suspension-peds-mlb-free-agency/
+
+**Janine Sonis joining Denver Summit FC ahead of inaugural NWSL season**\
+`Canadian defender Sonis brings Olympic gold and championship experience to Denver.`\
+https://nytimes.com/athletic/6958126/2026/01/09/janine-sonis-denver-summit-fc-nwsl/
+
+**A Tigers-Tarik Skubal arbitration hearing would be fascinating theater. Here's why**\
+`After Thursday's arbitration deadline passed, Skubal and the Tigers currently face a $13 million gap in negotiations for his 2026 salary.`\
+https://nytimes.com/athletic/6957986/2026/01/09/detroit-tigers-tarik-skubal-arbitration-hearing-theater/
+
 **This Popular Ghanaian Street Food Harnesses the Plantain’s Power**\
 `Yewande Komolafe’s oven-roasted take on kelewele pairs the classic snack with crisp shallots and herbs.`\
 https://nytimes.com/2026/01/09/dining/ghanaian-street-food-plantains.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/09/us/politics/fbi-deputy-director-christopher-raia.
 **Compass Acquires Top Rival, Creating World’s Largest Brokerage**\
 `First signed into agreement in September 2025, the merger brings together the largest and second-largest real estate firms in the United States.`\
 https://nytimes.com/2026/01/09/realestate/compass-anywhere-real-estate-merger.html
-
-**Trump Seeks New Powers to Pressure ‘Underperforming’ Weapons Makers**\
-`In an executive order, President Trump is aiming to punish defense contractors that don’t deliver weapons quickly enough.`\
-https://nytimes.com/2026/01/09/business/trump-defense-industry-executive-order.html
-
-**What Is El Helicoide, the Infamous Torture Prison in Venezuela?**\
-`As Venezuela’s interim authorities began to release political prisoners, some of their families raced to the notorious prison that symbolized Nicolás Maduro’s authoritarian rule.`\
-https://nytimes.com/2026/01/09/world/americas/venezuela-el-helicoide-prison-caracas.html
-
-**The Best Light Therapy Lamp **\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/the-best-light-therapy-lamp-
-
-**Grizzlies open to trade offers for Ja Morant: Source**\
-`Morant has averaged 19.0 points and 7.6 assists per game this season, though his availability has been sporadic due to injuries.`\
-https://nytimes.com/athletic/6958128/2026/01/09/ja-morant-grizzlies-trade-destinations-rumors-news-analysis/
-
-**Scoop City: Path to victory for every wild-card team**\
-`Key stats, matchups and predictions for each wild-card game`\
-https://nytimes.com/athletic/6958063/2026/01/09/nfl-first-round-wild-card-preview-bills-eagles-bears/
 
