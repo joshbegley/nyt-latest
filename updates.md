@@ -1,3 +1,7 @@
+**Women's NCAA Tournament Bracket Watch: Could UCLA take over UConn for top No. 1 seed?**\
+`Who are the top four seeds? Can LSU work up to a No. 2 seed? `\
+https://nytimes.com/athletic/6956474/2026/01/09/womens-ncaa-tournament-bracket-ucla-uconn/
+
 **San Francisco Giants free-agent profile: Ranger Suárez, LHP**\
 `Suárez has been one of the top 10 pitchers in baseball since 2021 and could move the Giants from wild-card contender to wild-card favorite.`\
 https://nytimes.com/athletic/6956917/2026/01/09/sf-giants-ranger-suarez-free-agent-fit/
