@@ -1,3 +1,7 @@
+**Federal Officials Identify Pair Shot by Border Patrol in Portland, Ore.**\
+`The shooting during a traffic stop, a day after the killing of a woman in Minneapolis by an ICE agent, generated angry denunciations by local officials.`\
+https://nytimes.com/2026/01/09/us/portland-immigration-shooting.html
+
 **Lowetide: Why Oilers' new makeshift line may be key to second half**\
 `Will the Oilers' exciting new line of Matt Savoie, Jack Roslovic and Ike Howard stick together?`\
 https://nytimes.com/athletic/6954697/2026/01/09/edmonton-oilers-lineup-savoie-howard-roslovic-stats/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/09/world/europe/pope-leo-address-war-diplomacy.html
 **Dolphins to hire Jon-Eric Sullivan as general manager: Source**\
 `Sullivan worked his way up through the scouting, personnel executive and football operations departments over two decades in Green Bay.`\
 https://nytimes.com/athletic/6957511/2026/01/09/dolphins-hire-jon-eric-sullivan-general-manager/
-
-**What to know about the report.**\
-`By Talmon Joseph Smith`\
-https://nytimes.com/live/2026/01/05/business/jobs-report-economy/what-to-know-about-the-report
 

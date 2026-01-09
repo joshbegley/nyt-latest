@@ -1,3 +1,7 @@
+**Federal Officials Identify Pair Shot by Border Patrol in Portland, Ore.**\
+`The shooting during a traffic stop, a day after the killing of a woman in Minneapolis by an ICE agent, generated angry denunciations by local officials.`\
+https://nytimes.com/2026/01/09/us/portland-immigration-shooting.html
+
 **Lowetide: Why Oilers' new makeshift line may be key to second half**\
 `Will the Oilers' exciting new line of Matt Savoie, Jack Roslovic and Ike Howard stick together?`\
 https://nytimes.com/athletic/6954697/2026/01/09/edmonton-oilers-lineup-savoie-howard-roslovic-stats/
