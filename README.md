@@ -10,7 +10,7 @@ https://nytimes.com/video/the-athletic/100000010635494/is-trump-taking-over-dcs-
 `Only three of 14 locker rooms that will soon host Olympic hockey teams are complete with less than four weeks to go before the Games.`\
 https://nytimes.com/athletic/6958181/2026/01/09/olympic-hockey-rink-construction-first-look/
 
-**Team Canada announces women's hockey roster for 2026 Olympics**\
+**Canada announces roster for Olympic women’s hockey: Snubs, surprises and expectations**\
 `The Canadian women’s national hockey team will lean on an experience-heavy roster in Milan.`\
 https://nytimes.com/athletic/6957765/2026/01/09/team-canada-womens-hockey-roster-2026-olympics-snubs/
 
