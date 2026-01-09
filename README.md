@@ -1,8 +1,12 @@
+**For the first time in 600 games Liverpool had no shot on target - but still made a step forward**\
+`Arne Slot's side may have failed to test the Arsenal goalkeeper but this was an impressive performance in the cirucmstances`\
+https://nytimes.com/athletic/6955514/2026/01/09/liverpool-arsenal-no-shots-600-games/
+
 **Word of the Day: memorandum**\
 `This word has appeared in 279 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/09/learning/word-of-the-day-memorandum.html
 
-**Arsenal disappointed and frustrated - but winning the title means having to grind**\
+**Arsenal disappointed and frustrated — but winning the title means having to grind**\
 `Mikel Arteta's side were frustrated by Liverpool but the idea that they would breeze to the title was always fanciful`\
 https://nytimes.com/athletic/6956286/2026/01/09/arsenal-liverpool-title-grind/
 
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6949688/2026/01/09/amorim-man-united-insider-staff-
 `NIL and the transfer portal have whittled away the SEC’s dominance. Adjusting is the only way forward.
 `\
 https://nytimes.com/athletic/6956702/2026/01/09/sec-ole-miss-playbook-adjustment/
-
-**Terry Yorath, a life marked by tragedy, heroism, and the 'twinkle in his eye'**\
-`Terry Yorath passed away on Wednesday evening at the age of 75`\
-https://nytimes.com/athletic/6953682/2026/01/09/terry-yorath-leeds-bradford-tottenham-obituary/
 
