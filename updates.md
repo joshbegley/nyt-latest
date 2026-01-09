@@ -1,3 +1,11 @@
+**Yankees offer Cody Bellinger more than $30M a year, but gap remains in talks: Sources**\
+`The club's latest multi-year offer featured an AAV of more than $30M as Bellinger’s camp continued to push for seven years, sources said. `\
+https://nytimes.com/athletic/6956135/2026/01/08/yankees-cody-bellinger-offer-30-million-aav/
+
+**‘Bug’ Review: Carrie Coon Is Superb in an American Gothic Tale**\
+`Tracy Letts’s eerily topical, decades-old play about a woman’s descent into a world of conspiracy theories makes its nerve-rattling Broadway debut.`\
+https://nytimes.com/2026/01/08/theater/bug-review-carrie-coon.html
+
 **Trump Appears Open to Defending Ukraine, but With a Caveat**\
 `The president told The Times that he felt “strongly” that Russia would not invade Ukraine again.`\
 https://nytimes.com/2026/01/08/us/politics/trump-ukraine-russia.html
