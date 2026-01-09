@@ -1,3 +1,7 @@
+**Rosenior insists he will not be a 'yes man' at Chelsea**\
+`“I will make the decisions at this football club, that is why I have been brought in," Rosenior said in his first Chelsea press conference.`\
+https://nytimes.com/athletic/6957535/2026/01/09/liam-rosenior-chelsea-charlton/
+
 **Senators' goalie issues have derailed their season. It should've been dealt with sooner**\
 `An embarrassing loss Thursday capped off one of the most eventful days in recent memory for the Senators. And they have themselves to blame.`\
 https://nytimes.com/athletic/6956527/2026/01/09/nhl-senators-goalie-problems-future-goaltenders/
