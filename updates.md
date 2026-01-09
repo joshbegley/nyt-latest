@@ -1,3 +1,7 @@
+**City complete signing of Semenyo on contract until 2031**\
+`The deal sees City pay £62.5m (€71.97m) guaranteed and £1.5m (€1.7m) in bonuses for the 26-year-old.`\
+https://nytimes.com/athletic/6915798/2026/01/09/man-city-sign-semenyo-transfer-news/
+
 **Federal Agents Shoot 2 in Portland, Ore.**\
 `Federal agents shot two people during a traffic stop in Portland, Ore., one day after an ICE agent in Minnesota killed a woman in her vehicle.`\
 https://nytimes.com/video/us/100000010633788/federal-agents-shooting-portland.html
