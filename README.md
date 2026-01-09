@@ -6,9 +6,9 @@ https://nytimes.com/2026/01/09/world/africa/mohammed-harbi-dead.html
 `The ruling temporarily halted plans to freeze more than $10 billion in funds for anti-poverty programs bound for five Democratic-led states.`\
 https://nytimes.com/2026/01/09/us/politics/trump-child-care-funding-freeze.html
 
-**Outside prisons in Caracas, Venezuelans anxiously await the release of more political detainees.**\
+**Outside Prisons in Caracas, Venezuelans Anxiously Await telease of more political detainees.**\
 `By The New York Times`\
-https://nytimes.com/live/2026/01/09/world/venezuela-trump-us/outside-prisons-in-caracas-venezuelans-anxiously-await-the-release-of-more-political-detainees
+https://nytimes.com/2026/01/09/world/americas/outside-prisons-in-caracas-venezuelans-anxiously-await-the-release-of-more-political-detainees.html
 
 **The Best Light-Therapy Lamp **\
 `Text by Nancy Redd`\
