@@ -1,3 +1,15 @@
+**Dodgers sign Andy Ibáñez and claim Ryan Fitzgerald, improving infield depth**\
+`With Tommy Edman's status for Opening Day unclear, the Dodgers are giving themselves plenty of options for the middle infield.`\
+https://nytimes.com/athletic/6958218/2026/01/09/dodgers-andy-ibanez-ryan-fitzgerald-infield-additions/
+
+**Tottenham agree deal to sign Santos left-back Souza**\
+`The 19-year-old came through Santos’ youth ranks and made his top-flight debut in May of last year.`\
+https://nytimes.com/athletic/6941907/2026/01/09/tottenham-souza-santos-transfer/
+
+**220,000 Fewer Workers: How Trump’s Cuts Affected Every Federal Agency**\
+`New data offers the first clear view of the impact of the buyouts and firings.`\
+https://nytimes.com/interactive/2026/01/09/upshot/trump-workforce-cuts-table.html
+
 **Handing Out Free Tickets, Mamdani Says Theater Should Not Be ‘a Luxury’**\
 `The mayor said a new collaboration with the Under the Radar festival was part of an arts affordability agenda that he intends to pursue.`\
 https://nytimes.com/2026/01/09/theater/mamdani-under-radar-theater.html
