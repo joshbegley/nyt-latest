@@ -1,3 +1,11 @@
+**5 Democratic States Sue Trump Administration Over $10 Billion Funding Freeze**\
+`The administration cited without evidence “potential” widespread fraud in its move to cut off funds for child care subsidies and other support for low-income families.`\
+https://nytimes.com/2026/01/08/us/politics/blue-states-trump-funding-hhs-lawsuit.html
+
+**Timberwolves hold moment of silence for Minneapolis woman killed by ICE agent**\
+`Timberwolves coach Chris Finch said before the Cavaliers game that the organization was thinking of Renee Nicole Good and her family.`\
+https://nytimes.com/athletic/6956231/2026/01/08/minneapolis-ice-shooting-renee-nicole-good-timberwolves/
+
 **After month-long wait, Rick Carlisle becomes 11th NBA coach to win 1,000 games**\
 `Carlisle, who led Dallas to the 2011 title and Indiana to the Finals last season, finally became one of two active coaches with 1,000 wins.`\
 https://nytimes.com/athletic/6883811/2026/01/08/rick-carlisle-pacers-wins-1000/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6955774/2026/01/08/blackhawks-roster-structure-davi
 **Senators condemn 'trolls and sick people' speculating about Linus Ullmark**\
 `"We are disgusted that outside forces are attempting to disrupt our hockey club," president and GM Steve Staios said in a statement.`\
 https://nytimes.com/athletic/6956279/2026/01/08/ottawa-senators-linus-ullmark-absence-statement/
-
-**Yankees offer Cody Bellinger over $30M a year, but gap remains: Sources**\
-`The club's latest multi-year offer featured an AAV of more than $30M as Bellinger’s camp continued to push for seven years, sources said. `\
-https://nytimes.com/athletic/6956135/2026/01/08/yankees-cody-bellinger-offer-30-million-aav/
-
-**‘Bug’ Review: Carrie Coon Is Superb in an American Gothic Tale**\
-`Tracy Letts’s eerily topical, decades-old play about a woman’s descent into a world of conspiracy theories makes its nerve-rattling Broadway debut.`\
-https://nytimes.com/2026/01/08/theater/bug-review-carrie-coon.html
 

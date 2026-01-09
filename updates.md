@@ -1,3 +1,11 @@
+**5 Democratic States Sue Trump Administration Over $10 Billion Funding Freeze**\
+`The administration cited without evidence “potential” widespread fraud in its move to cut off funds for child care subsidies and other support for low-income families.`\
+https://nytimes.com/2026/01/08/us/politics/blue-states-trump-funding-hhs-lawsuit.html
+
+**Timberwolves hold moment of silence for Minneapolis woman killed by ICE agent**\
+`Timberwolves coach Chris Finch said before the Cavaliers game that the organization was thinking of Renee Nicole Good and her family.`\
+https://nytimes.com/athletic/6956231/2026/01/08/minneapolis-ice-shooting-renee-nicole-good-timberwolves/
+
 **After month-long wait, Rick Carlisle becomes 11th NBA coach to win 1,000 games**\
 `Carlisle, who led Dallas to the 2011 title and Indiana to the Finals last season, finally became one of two active coaches with 1,000 wins.`\
 https://nytimes.com/athletic/6883811/2026/01/08/rick-carlisle-pacers-wins-1000/
