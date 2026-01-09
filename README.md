@@ -1,3 +1,7 @@
+**Prosecutor Asks for Owner of Swiss Bar Hit by Deadly Fire to Be Detained**\
+`The request came after hours of questioning of the bar’s co-owners. Some 40 people died in the fire that broke out during a New Year’s celebration.`\
+https://nytimes.com/2026/01/09/world/europe/switzerland-fire-bar-owner-arrested.html
+
 **These Easy Egg Bites Are the Best Grab-and-Go Breakfast**\
 `They’re also easy to make ahead and packed with spinach and cottage cheese, ready to power you through the day.`\
 https://nytimes.com/2026/01/09/dining/easy-breakfast-idea-spinach-egg-bites.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6957760/2026/01/09/kylie-kelce-nbc-winter-olympics-
 **Do You Frequently Order Food Delivery? We Want to Hear From You.**\
 `Your responses can help as we report on the immense growth of food delivery and its effects on how we live.`\
 https://nytimes.com/2026/01/09/dining/food-delivery-user-questions.html
-
-**Are You a Food Delivery Driver? We Want to Hear From You.**\
-`We are reporting on food-delivery culture, and we want to talk to the people who keep it running.`\
-https://nytimes.com/2026/01/09/dining/food-delivery-driver-questions.html
 
