@@ -1,3 +1,11 @@
+**Trump Is Making a Power Play in Latin America. China Is Already There.**\
+`China built a dominant strategic position in the region as the leading lender and trading partner. It is watching President Trump’s next moves closely.`\
+https://nytimes.com/2026/01/09/business/china-latin-america-trump-venezuela.html
+
+**European Union Agrees to Landmark Free-Trade Deal With South America**\
+`The agreement with Argentina, Brazil, Paraguay and Uruguay represents a push for deeper global cooperation, in contrast to the United States turning to coercion in its dealings with other countries.`\
+https://nytimes.com/2026/01/09/business/economy/european-union-mercosur-trade.html
+
 **Matt Turner sees 'clear pathway' back to USMNT for World Cup despite dip in stature**\
 `The 2022 World Cup starter last played for the national team in June, but he's game for another challenge in a career full of them`\
 https://nytimes.com/athletic/6956347/2026/01/09/matt-turner-usmnt-world-cup-goalkeeper-outlook/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6957270/2026/01/09/carson-beck-miami-touchdown-ole-
 **Fed Keeps Close Eye on Labor Market as It Assesses Further Cuts**\
 `For the central bank to lower interest rates again, officials will likely need to see more notable signs that unemployment is rising.`\
 https://nytimes.com/2026/01/09/business/economy/federal-reserve-labor-market-rate-cuts.html
-
-**Live Updates: Jobs Report to Provide Insight on Murky Hiring Picture**\
-`Employers have added jobs in recent months but the unemployment rate has risen. Data for December will be closely watched for clues on the health of the labor market.`\
-https://nytimes.com/live/2026/01/05/business/jobs-report-economy
-
-**Mailbag: How's Michigan doing in the transfer portal? It's hard to ask for much more so far**\
-`Plus: Michigan's quarterback outlook under Jason Beck, lingering questions about Sherrone Moore, Kyle Whittingham's options and more.`\
-https://nytimes.com/athletic/6955574/2026/01/09/michigan-football-transfer-portal-whittingham-moore/
 

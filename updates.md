@@ -1,3 +1,11 @@
+**Trump Is Making a Power Play in Latin America. China Is Already There.**\
+`China built a dominant strategic position in the region as the leading lender and trading partner. It is watching President Trump’s next moves closely.`\
+https://nytimes.com/2026/01/09/business/china-latin-america-trump-venezuela.html
+
+**European Union Agrees to Landmark Free-Trade Deal With South America**\
+`The agreement with Argentina, Brazil, Paraguay and Uruguay represents a push for deeper global cooperation, in contrast to the United States turning to coercion in its dealings with other countries.`\
+https://nytimes.com/2026/01/09/business/economy/european-union-mercosur-trade.html
+
 **Matt Turner sees 'clear pathway' back to USMNT for World Cup despite dip in stature**\
 `The 2022 World Cup starter last played for the national team in June, but he's game for another challenge in a career full of them`\
 https://nytimes.com/athletic/6956347/2026/01/09/matt-turner-usmnt-world-cup-goalkeeper-outlook/
