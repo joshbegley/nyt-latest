@@ -1,3 +1,15 @@
+**PGMOL reviewing drug testing policy after David Coote admission of cocaine use**\
+`Coote’s persistent drug use was outlined at Nottingham Crown Court on Thursday.`\
+https://nytimes.com/athletic/6957202/2026/01/09/referee-drug-testing-david-coote/
+
+**For 2hollis, Music Is a Family Business. So We Interviewed Him and His Dad.**\
+`The 22-year-old pop phenom’s father is John Herndon of the post-rock band Tortoise. They chatted about songwriting, nepotism and what they’ve taught each other.`\
+https://nytimes.com/2026/01/09/arts/music/2hollis-john-herndon-popcast-interview.html
+
+**Wrexham to stun Forest and Charlton over Chelsea? Predicting FA Cup third round upsets**\
+`Where could the tradition FA Cup third round 'cupsets' come from this year?`\
+https://nytimes.com/athletic/6957083/2026/01/09/fa-cup-potential-upsets-a-wrexham-win-and-charlton-to-shock-chelsea/
+
 **Edward Cabrera helps Cubs win now and stabilizes the rotation for the future**\
 `With three years of control left at arbitration rates, the acquisition of Cabrera gives the Cubs some breathing room. `\
 https://nytimes.com/athletic/6955525/2026/01/09/chicago-cubs-edward-cabrera-trade-rotation-impact/

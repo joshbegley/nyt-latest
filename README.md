@@ -1,40 +1,40 @@
-**PGMOL reviewing drug testing policy after David Coote admission of cocaine use**\
-`Coote’s persistent drug use was outlined at Nottingham Crown Court on Thursday.`\
-https://nytimes.com/athletic/6957202/2026/01/09/referee-drug-testing-david-coote/
+**President Trump’s Vision of Power**\
+`“My own mind. It’s the only thing that can stop me,” he told Times reporters.`\
+https://nytimes.com/2026/01/09/briefing/headline-tk.html
 
-**For 2hollis, Music Is a Family Business. So We Interviewed Him and His Dad.**\
-`The 22-year-old pop phenom’s father is John Herndon of the post-rock band Tortoise. They chatted about songwriting, nepotism and what they’ve taught each other.`\
-https://nytimes.com/2026/01/09/arts/music/2hollis-john-herndon-popcast-interview.html
+**Step aside, Lane Kiffin, Indiana's Curt Cignetti is the new Portal King**\
+`Through one week of portal movement, Indiana’s transfer class ranks second, according to On3. LSU’s class is respectable, but it ranks 23rd.`\
+https://nytimes.com/athletic/6956237/2026/01/09/curt-cignetti-lane-kiffin-indiana-transfer-portal-king/
 
-**Wrexham to stun Forest and Charlton over Chelsea? Predicting FA Cup third round upsets**\
-`Where could the tradition FA Cup third round 'cupsets' come from this year?`\
-https://nytimes.com/athletic/6957083/2026/01/09/fa-cup-potential-upsets-a-wrexham-win-and-charlton-to-shock-chelsea/
+**Transfer portal notebook: LSU's QB search, DJ Lagway's new home, Texas' big addition**\
+`Lagway, a former five-star prospect, is set to enroll at Baylor, where his father played running back from 1997 to 2001.`\
+https://nytimes.com/athletic/6956366/2026/01/09/transfer-portal-dj-lagway-baylor-texas-arizona-state/
 
-**The improbable connection that explains Victor Wembanyama's viral high kick**\
-`Victor Wembanyama believes he can set a world record for highest jump kick. He has an unlikely ally in his corner. `\
-https://nytimes.com/athletic/6956677/2026/01/09/victor-wembanyama-spurs-high-kick/
+**Nasser Hussain: England messed up their Ashes campaign. Now Key and McCullum must change or go**\
+`The ECB's review into the Ashes debacle must focus on the managing director and coach explaining what they learned and what they will change`\
+https://nytimes.com/athletic/6955305/2026/01/09/nasser-hussain-ashes-england-key-mccullum/
 
-**Isiah Thomas really doesn't seem to care for Michael Jordan, huh?**\
-`This long-running feud may never be squashed. And Thomas added another chapter to the pettiness on Thursday.`\
-https://nytimes.com/athletic/6955995/2026/01/09/isiah-thomas-michael-jordan-comments-lebron-nba/
+**The Athletic’s Friday football quiz question #88**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6949294/2026/01/09/the-athletics-friday-football-quiz-question-88/
 
-**Edward Cabrera helps Cubs win now and stabilizes the rotation for the future**\
-`With three years of control left at arbitration rates, the acquisition of Cabrera gives the Cubs some breathing room. `\
-https://nytimes.com/athletic/6955525/2026/01/09/chicago-cubs-edward-cabrera-trade-rotation-impact/
+**NFL playoffs: Key matchups to watch in each AFC wild-card game**\
+`It might not be the stars who create mismatches as role players could be pivotal in the three AFC games.`\
+https://nytimes.com/athletic/6953317/2026/01/09/nfl-playoffs-afc-wild-card-matchups/
 
-**The Pulse: An instant CFP classic**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6955367/2026/01/09/ole-miss-miami-playoff-the-pulse/
+**Frugal Guardians still have trade, free-agent targets worth considering**\
+`As Cleveland flirts with having MLB's lowest payroll, here are some potential additions who could bolster a lineup that lacks punch.`\
+https://nytimes.com/athletic/6949234/2026/01/09/guardians-trade-free-agent-targets-mlb-lowest-payroll/
 
-**Everton 'surprised' as Michael Keane red card appeal rejected by FA**\
-`The defender will serve a three-match ban for pulling the hair of Wolverhampton Wanderers striker Tolu Arokodare.`\
-https://nytimes.com/athletic/6957132/2026/01/09/everton-michael-keane-red-card-appeal/
+**How Nate Landman learned to pack a punch in his journey from Zimbabwe to the NFL**\
+`Landman, who is one of two current NFL players with Zimbabwe roots, has mastered the art of the punchout throughout his short career.`\
+https://nytimes.com/athletic/6952162/2026/01/09/rams-nate-landman-punchout-zimbabwe-nfl/
 
-**Blue Jackets' Boone Jenner, Sean Monahan seek 'a little more' after 5-3 loss to Vegas**\
-`Columbus' identity — which was so clear and reliable last season — remains a mystery.`\
-https://nytimes.com/athletic/6956817/2026/01/09/blue-jackets-vegas-loss-jenner-monahan/
+**Three trade paths to bolster the Maple Leafs' ailing blue line**\
+`The Maple Leafs need a defenceman. Let's lay out three possible swings Toronto could take to get one.`\
+https://nytimes.com/athletic/6954972/2026/01/09/maple-leafs-nhl-trade-deadline-targets-defence/
 
-**Bears-Packers in the playoffs: Injury updates and picks for the wild-card round**\
-`The Bears will want to feed off the Soldier Field energy but must avoid the penalties that hurt them in Week 16. Here are our playoff picks.`\
-https://nytimes.com/athletic/6955659/2026/01/09/bears-packers-wild-card-playoff-preview/
+**Curt Cignetti's next raise, NFL departures and more CFB coaching carousel notes**\
+`The college head coaching carousel has come to a stop … for now. But history says that’s likely going to change.`\
+https://nytimes.com/athletic/6954245/2026/01/09/curt-cignetti-nfl-college-football-coaching-carousel/
 
