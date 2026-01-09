@@ -1,4 +1,8 @@
-**U.S. Seizes Another Tanker Carrying Venezuelan Oil**\
+**The Bounce: Anthony Davis next for Trae-less Hawks? Plus, more Isaiah-MJ beef!**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6957614/2026/01/09/anthony-davis-trae-young-trade-hawks-mavericksthe-bounce/
+
+**U.S. Boards Another Tanker Carrying Venezuelan Oil**\
 `The tanker, the Olina, is the fifth to be boarded or seized by U.S. forces in recent weeks as part of an effort to control Venezuela’s oil exports.`\
 https://nytimes.com/2026/01/09/world/americas/us-oil-tanker-venezuela-olina.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/05/business/jobs-report-economy/what-to-know-ab
 **Google’s Former C.E.O. Wants to Build a Cosmic Search Engine**\
 `Eric and Wendy Schmidt are backing a start-up-like approach to building a giant space telescope and powerful ground observatories.`\
 https://nytimes.com/2026/01/09/science/eric-schmidt-telescopes-google-space.html
-
-**Blackhawks prospect Sacha Boisvert is healthy, ready to prove himself at BU**\
-`Could Boisvert join the Blackhawks later this season? The second half of his college season might determine that.`\
-https://nytimes.com/athletic/6956724/2026/01/09/blackhawks-prospect-sacha-boisvert-healthy-boston-university/
 

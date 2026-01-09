@@ -1,3 +1,19 @@
+**U.S. Seizes Another Tanker Carrying Venezuelan Oil**\
+`The tanker, the Olina, is the fifth to be boarded or seized by U.S. forces in recent weeks as part of an effort to control Venezuela’s oil exports.`\
+https://nytimes.com/2026/01/09/world/americas/us-oil-tanker-venezuela-olina.html
+
+**Three of Grand Slams and ATP, WTA hold secret London meetings over player lawsuit**\
+`The discussions are the latest installment in the sport's slow path toward meaningful change.`\
+https://nytimes.com/athletic/6957349/2026/01/09/tennis-grand-slams-tours-reform-prize-money-ptpa-lawsuit/
+
+**FA Cup storylines to follow as Premier League breaks for the weekend**\
+`The third round of the FA Cup, the world’s oldest football tournament, welcomes England's top-flight clubs in a bumper weekend.`\
+https://nytimes.com/athletic/6957145/2026/01/09/fa-cup-third-round-wrexham-premier-league/
+
+**Dolphins to hire Jon-Eric Sullivan as general manager: Source**\
+`Sullivan worked his way up through the scouting, personnel executive and football operations departments over two decades in Green Bay.`\
+https://nytimes.com/athletic/6957511/2026/01/09/dolphins-hire-jon-eric-sullivan-general-manager/
+
 **Scott Laughton has become the player the Maple Leafs need him to be**\
 `Steven Lorentz jumped in the air after skating to Scott Laughton, looking like a minor hockey player in the process.`\
 https://nytimes.com/athletic/6957515/2026/01/09/scott-laughton-maple-leafs-emergence/
