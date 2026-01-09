@@ -1,3 +1,7 @@
+**Isiah Thomas really doesn't seem to care for Michael Jordan, huh?**\
+`This long-running feud may never be squashed. And Thomas added another chapter to the pettiness on Thursday.`\
+https://nytimes.com/athletic/6955995/2026/01/09/isiah-thomas-michael-jordan-comments-lebron-nba/
+
 **The improbable connection that explains Victor Wembanyama's viral high kick**\
 `Victor Wembanyama believes he can set a world record for highest jump kick. He has an unlikely ally in his corner. `\
 https://nytimes.com/athletic/6956677/2026/01/09/victor-wembanyama-spurs-high-kick/

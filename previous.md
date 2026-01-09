@@ -2,6 +2,10 @@
 `Victor Wembanyama believes he can set a world record for highest jump kick. He has an unlikely ally in his corner. `\
 https://nytimes.com/athletic/6956677/2026/01/09/victor-wembanyama-spurs-high-kick/
 
+**Isiah Thomas really doesn't seem to care for Michael Jordan, huh?**\
+`This long-running feud may never be squashed. And Thomas added another chapter to the pettiness on Thursday.`\
+https://nytimes.com/athletic/6955995/2026/01/09/isiah-thomas-michael-jordan-comments-lebron-nba/
+
 **The Pulse: An instant CFP classic**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6955367/2026/01/09/ole-miss-miami-playoff-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6956712/2026/01/09/rangers-lafreniere-turnover-troc
 **What Lions GM Brad Holmes said: Analyzing his comments on roster and missing playoffs**\
 `"If we’re not in the dance and we’re not competing for a championship, it’s a failure," Holmes said at his end-of-season news conference.`\
 https://nytimes.com/athletic/6956039/2026/01/09/lions-gm-brad-holmes-season-review/
-
-**Analysing Brighton's £54.4m loss in 2024-25 accounts**\
-`Brighton previously made a £73.3m profit for the 2023-24 season, when they reached the Europa league last-16.`\
-https://nytimes.com/athletic/6957142/2026/01/09/brighton-accounts-loss-finances/
 
