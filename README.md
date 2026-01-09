@@ -1,3 +1,7 @@
+**New F.B.I. Deputy Director Chosen After Bongino’s Departure**\
+`Even as the selection of a career agent, Christopher G. Raia, leaves an unusual three-person leadership structure in place, it returns a career agent to the second highest-ranking post.`\
+https://nytimes.com/2026/01/09/us/politics/fbi-deputy-director-christopher-raia.html
+
 **Compass Acquires Top Rival, Creating World’s Largest Brokerage**\
 `First signed into agreement in September 2025, the merger brings together the largest and second-largest real estate firms in the United States.`\
 https://nytimes.com/2026/01/09/realestate/compass-anywhere-real-estate-merger.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/09/us/politics/congress-republicans-trump-distancing
 **Thomas V. Cash, Cartel-Busting D.E.A. Official in Miami, Dies at 85**\
 `He helped take down the Panamanian strongman Manuel Noriega and the Colombian drug kingpin Pablo Escobar.`\
 https://nytimes.com/2026/01/09/us/thomas-v-cash-dead.html
-
-**Jerome Lowenstein, 92, Dies; Teaching Doctor With a Literary Sideline**\
-`When not guiding students in a compassionate approach to patient care, he led a tiny publishing imprint that put out a much-rejected debut novel that won a surprise Pulitzer Prize.`\
-https://nytimes.com/2026/01/09/books/jerome-lowenstein-dead.html
 
