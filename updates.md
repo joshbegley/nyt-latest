@@ -1,3 +1,11 @@
+**Trump’s $100 Billion Venezuela Oil Plan Gets a Cool Reception**\
+`President Trump met with oil and gas executives on Friday in an effort to push them to invest money in Venezuela, a plan many of them are reluctant to embrace.`\
+https://nytimes.com/2026/01/09/business/energy-environment/trump-venezuela-oil-executives.html
+
+**As trade season heats up, Anthony Davis out indefinitely with hand injury: Source**\
+`The Mavericks and Davis will seek multiple medical opinions to help determine a road to recovery.`\
+https://nytimes.com/athletic/6958500/2026/01/09/anthony-davis-hand-injury-history-mavericks-depth-chart/
+
 **A Look at Iran’s Antigovernment Protests**\
 `Protests have rocked Iran in recent weeks, and the country’s supreme leader has threatened to escalate a crackdown on demonstrators. Erika Solomon, our bureau chief for Iran and Iraq, discusses what’s fueling the protests with our senior writer Katrin Bennhold.`\
 https://nytimes.com/video/world/middleeast/100000010627398/a-look-at-irans-antigovernment-protests.html
