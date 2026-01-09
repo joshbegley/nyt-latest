@@ -1,3 +1,15 @@
+**How to Make, and Keep, New Year’s Financial Resolutions**\
+`Experts offered a variety of suggestions, including paring your list of goals, making saving automatic and avoiding spending temptations like marketing emails.`\
+https://nytimes.com/2026/01/09/your-money/new-years-financial-resolutions.html
+
+**After Three Hot Years, Will Stock Markets Sizzle Again?**\
+`Returns have been fabulous but consider the potential for setbacks in this already hazardous year, our columnist says.`\
+https://nytimes.com/2026/01/09/business/stock-market-investing-returns.html
+
+**Bukayo Saka agrees new five-year deal at Arsenal**\
+`The latest deal will be at a level that recognises the 24-year-old's standing as one of the leading players in the Premier League and Europe`\
+https://nytimes.com/athletic/6258824/2026/01/09/arsenal-bukayo-saka-contract-new/
+
 **Landfill Collapse in Philippines Leaves Two Dead and Dozens Missing**\
 `A garbage mound outside Cebu City in the central Philippines collapsed on Thursday. Rescuers are searching for 36 missing people, including some trapped under the debris.`\
 https://nytimes.com/2026/01/09/world/asia/philippines-landfill-collapse-cebu.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/09/business/economy/european-union-mercosur-trade.ht
 **Matt Turner sees 'clear pathway' back to USMNT for World Cup despite dip in stature**\
 `The 2022 World Cup starter last played for the national team in June, but he's game for another challenge in a career full of them`\
 https://nytimes.com/athletic/6956347/2026/01/09/matt-turner-usmnt-world-cup-goalkeeper-outlook/
-
-**Trae Young trade mailbag: Why did the Washington Wizards make the deal?**\
-`You have questions about the trade involving the four-time All-Star point guard. The Athletic's beat writer answered them.`\
-https://nytimes.com/athletic/6956721/2026/01/09/trae-young-trade-mailbag-washington-wizards/
-
-**How Liverpool shackled Arsenal to limit the league leaders' attack**\
-`Liverpool's defensive performance, particularly in the second half, was something Slot and his team can build on`\
-https://nytimes.com/athletic/6957002/2026/01/09/liverpool-arsenal-analysis-slot/
-
-**Trump Administration Live Updates: Supreme Court Is Expected to Release First Opinions of Term**\
-``\
-https://nytimes.com/live/2026/01/09/us/trump-news
 

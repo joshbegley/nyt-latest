@@ -1,3 +1,15 @@
+**How to Make, and Keep, New Year’s Financial Resolutions**\
+`Experts offered a variety of suggestions, including paring your list of goals, making saving automatic and avoiding spending temptations like marketing emails.`\
+https://nytimes.com/2026/01/09/your-money/new-years-financial-resolutions.html
+
+**After Three Hot Years, Will Stock Markets Sizzle Again?**\
+`Returns have been fabulous but consider the potential for setbacks in this already hazardous year, our columnist says.`\
+https://nytimes.com/2026/01/09/business/stock-market-investing-returns.html
+
+**Bukayo Saka agrees new five-year deal at Arsenal**\
+`The latest deal will be at a level that recognises the 24-year-old's standing as one of the leading players in the Premier League and Europe`\
+https://nytimes.com/athletic/6258824/2026/01/09/arsenal-bukayo-saka-contract-new/
+
 **Landfill Collapse in Philippines Leaves Two Dead and Dozens Missing**\
 `A garbage mound outside Cebu City in the central Philippines collapsed on Thursday. Rescuers are searching for 36 missing people, including some trapped under the debris.`\
 https://nytimes.com/2026/01/09/world/asia/philippines-landfill-collapse-cebu.html
