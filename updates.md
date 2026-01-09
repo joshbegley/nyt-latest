@@ -1,3 +1,7 @@
+**One day after trade, Cubs, Edward Cabrera reach agreement before deadline: Sources**\
+`The club also avoided arbitration with Justin Steele, finalizing deals with two of their best and most valuable pitchers. `\
+https://nytimes.com/athletic/6956628/2026/01/08/cubs-edward-cabrera-avoid-arbitration/
+
 **Patrick Kane becomes fifth American-born player to score 500 NHL goals**\
 `The goal, an empty-netter against the Canucks, was his second of the night for the Red Wings as the bench emptied in celebration.`\
 https://nytimes.com/athletic/6956505/2026/01/08/patrick-kane-nhl-500-goals/

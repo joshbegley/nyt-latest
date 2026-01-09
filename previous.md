@@ -1,3 +1,7 @@
+**One day after trade, Cubs, Edward Cabrera reach agreement before deadline: Sources**\
+`The club also avoided arbitration with Justin Steele, finalizing deals with two of their best and most valuable pitchers. `\
+https://nytimes.com/athletic/6956628/2026/01/08/cubs-edward-cabrera-avoid-arbitration/
+
 **N.Y.P.D. Fatally Shoots Blade-Wielding Man in Hospital, Officials Say**\
 `The man had cut and then barricaded himself in a blood-spattered room with a patient and a security guard at NewYork-Presbyterian Brooklyn Methodist Hospital, the police said.`\
 https://nytimes.com/2026/01/08/nyregion/nypd-shooting-hospital-brooklyn.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6883811/2026/01/08/rick-carlisle-pacers-wins-1000/
 **Venezuela Mourns the Dozens Who Died in U.S. Operation**\
 `For all Venezuelans, the nighttime raid opened a period of deep uncertainty. For the families of those killed, it meant the grim task of burying their relatives.`\
 https://nytimes.com/2026/01/08/world/americas/venezuela-mourns-dozens-killed.html
-
-**Tigers, Skubal could be headed for arbitration hearing. What does it mean?**\
-`Tarik Skubal could be seeking a record deal in arbitration. Will the Tigers still operate with a 'file-and-trial' mindset? `\
-https://nytimes.com/athletic/6956212/2026/01/08/detroit-tigers-tarik-skubal-arbitration-hearing-potential/
 
