@@ -1,3 +1,7 @@
+**Tigers, Tarik Skubal could be headed for an arbitration hearing. What does it mean?**\
+`Tarik Skubal could be seeking a record deal in arbitration. Will the Tigers still operate with a 'file-and-trial' mindset? `\
+https://nytimes.com/athletic/6956212/2026/01/08/detroit-tigers-tarik-skubal-arbitration-hearing-potential/
+
 **Yankees offer Cody Bellinger over $30M a year, but gap remains: Sources**\
 `The club's latest multi-year offer featured an AAV of more than $30M as Bellinger’s camp continued to push for seven years, sources said. `\
 https://nytimes.com/athletic/6956135/2026/01/08/yankees-cody-bellinger-offer-30-million-aav/

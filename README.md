@@ -1,3 +1,7 @@
+**Venezuela Mourns the Dozens Who Died in U.S. Operation**\
+`For all Venezuelans, the nighttime raid opened a period of deep uncertainty. For the families of those killed, it meant the grim task of burying their relatives.`\
+https://nytimes.com/2026/01/08/world/americas/venezuela-mourns-dozens-killed.html
+
 **Tigers, Tarik Skubal could be headed for an arbitration hearing. What does it mean?**\
 `Tarik Skubal could be seeking a record deal in arbitration. Will the Tigers still operate with a 'file-and-trial' mindset? `\
 https://nytimes.com/athletic/6956212/2026/01/08/detroit-tigers-tarik-skubal-arbitration-hearing-potential/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/theater/bug-review-carrie-coon.html
 **Trump Appears Open to Defending Ukraine, but With a Caveat**\
 `The president told The Times that he felt “strongly” that Russia would not invade Ukraine again.`\
 https://nytimes.com/2026/01/08/us/politics/trump-ukraine-russia.html
-
-**Michigan makes portal splash with All-Big 12 DE from Utah**\
-`John Henry Daley finished sixth in the FBS in sacks and announced he's following Kyle Whittingham to Michigan from Utah.`\
-https://nytimes.com/athletic/6956206/2026/01/08/john-henry-daley-michigan-commitment-portal-utah/
 
