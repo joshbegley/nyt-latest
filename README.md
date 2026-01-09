@@ -1,3 +1,7 @@
+**For These Three, the Age of Empire Never Quite Ended**\
+`In a trilogy of novellas, a writer explores lives haunted by colonialism and slavery.`\
+https://nytimes.com/2026/01/09/books/review/djaimilia-pereira-de-almeida-three-stories-of-forgetting.html
+
 **Why the Canucks cannot be trusted to rebuild properly**\
 `When you step back and look at the Canucks' missteps from the last 12 months, it's hard not to agonize over the missed opportunities.`\
 https://nytimes.com/athletic/6956427/2026/01/09/canucks-rebuild/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/09/us/portland-immigration-shooting.html
 **Lowetide: Why Oilers' new makeshift line may be key to second half**\
 `Will the Oilers' exciting new line of Matt Savoie, Jack Roslovic and Ike Howard stick together?`\
 https://nytimes.com/athletic/6954697/2026/01/09/edmonton-oilers-lineup-savoie-howard-roslovic-stats/
-
-**The Bounce: Anthony Davis next for Trae-less Hawks? Plus, more Isaiah-MJ beef!**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6957614/2026/01/09/anthony-davis-trae-young-trade-hawks-mavericksthe-bounce/
 
