@@ -1,3 +1,7 @@
+**N.Y.P.D. Fatally Shoots Blade-Wielding Man in Hospital, Officials Say**\
+`The man had cut and then barricaded himself in a blood-spattered room with a patient and a security guard at NewYork-Presbyterian Brooklyn Methodist Hospital, the police said.`\
+https://nytimes.com/2026/01/08/nyregion/nypd-shooting-hospital-brooklyn.html
+
 **Patrick Kane becomes fifth American-born player to score 500 NHL goals**\
 `The goal, an empty-netter against the Canucks, was his second of the night for the Red Wings.`\
 https://nytimes.com/athletic/6956505/2026/01/08/patrick-kane-nhl-500-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/world/americas/venezuela-mourns-dozens-killed.htm
 **Tigers, Skubal could be headed for arbitration hearing. What does it mean?**\
 `Tarik Skubal could be seeking a record deal in arbitration. Will the Tigers still operate with a 'file-and-trial' mindset? `\
 https://nytimes.com/athletic/6956212/2026/01/08/detroit-tigers-tarik-skubal-arbitration-hearing-potential/
-
-**Amid Protests, ICE Told Agents to Take ‘Decisive Action’ if Threatened**\
-`The guidance comes as immigration officers have been met with increasingly hostile protesters in cities.`\
-https://nytimes.com/2026/01/08/us/politics/homeland-security-ice-protests-warning.html
 
