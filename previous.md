@@ -1,3 +1,15 @@
+**What to know about the report.**\
+`By Talmon Joseph Smith`\
+https://nytimes.com/live/2026/01/05/business/jobs-report-economy/what-to-know-about-the-report
+
+**Google’s Former C.E.O. Wants to Build a Cosmic Search Engine**\
+`Eric and Wendy Schmidt are backing a start-up-like approach to building a giant space telescope and powerful ground observatories.`\
+https://nytimes.com/2026/01/09/science/eric-schmidt-telescopes-google-space.html
+
+**NHL Power Rankings: What happened during our hibernation?**\
+`Every team, in one way or another, finds itself in a different spot than the one it was in on Dec. 19. How? Let's find out.`\
+https://nytimes.com/athletic/6957443/2026/01/09/nhl-power-rankings-30/
+
 **Rosenior insists he will not be a 'yes man' at Chelsea**\
 `“I will make the decisions at this football club, that is why I have been brought in," Rosenior said in his first Chelsea press conference.`\
 https://nytimes.com/athletic/6957535/2026/01/09/liam-rosenior-chelsea-charlton/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6956474/2026/01/09/womens-ncaa-tournament-bracket-u
 **San Francisco Giants free-agent profile: Ranger Suárez, LHP**\
 `Suárez has been one of the top 10 pitchers in baseball since 2021 and could move the Giants from wild-card contender to wild-card favorite.`\
 https://nytimes.com/athletic/6956917/2026/01/09/sf-giants-ranger-suarez-free-agent-fit/
-
-**Elon Musk’s A.I. Is Generating Sexualized Images of Real People, Fueling Outrage**\
-`Late Thursday, Mr. Musk’s chatbot, Grok, limited requests for A.I.-generated images on X to paid subscribers of the social media site amid an outcry from victims and regulators.`\
-https://nytimes.com/2026/01/09/technology/grok-deepfakes-ai-x.html
-
-**How to Make, and Keep, New Year’s Financial Resolutions**\
-`Experts offered a variety of suggestions, including paring your list of goals, making saving automatic and avoiding spending temptations like marketing emails.`\
-https://nytimes.com/2026/01/09/your-money/new-years-financial-resolutions.html
-
-**After Three Hot Years, Will Stock Markets Sizzle Again?**\
-`Returns have been fabulous but consider the potential for setbacks in this already hazardous year, our columnist says.`\
-https://nytimes.com/2026/01/09/business/stock-market-investing-returns.html
 

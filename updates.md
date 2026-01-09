@@ -1,3 +1,15 @@
+**What to know about the report.**\
+`By Talmon Joseph Smith`\
+https://nytimes.com/live/2026/01/05/business/jobs-report-economy/what-to-know-about-the-report
+
+**Google’s Former C.E.O. Wants to Build a Cosmic Search Engine**\
+`Eric and Wendy Schmidt are backing a start-up-like approach to building a giant space telescope and powerful ground observatories.`\
+https://nytimes.com/2026/01/09/science/eric-schmidt-telescopes-google-space.html
+
+**NHL Power Rankings: What happened during our hibernation?**\
+`Every team, in one way or another, finds itself in a different spot than the one it was in on Dec. 19. How? Let's find out.`\
+https://nytimes.com/athletic/6957443/2026/01/09/nhl-power-rankings-30/
+
 **Rosenior insists he will not be a 'yes man' at Chelsea**\
 `“I will make the decisions at this football club, that is why I have been brought in," Rosenior said in his first Chelsea press conference.`\
 https://nytimes.com/athletic/6957535/2026/01/09/liam-rosenior-chelsea-charlton/
