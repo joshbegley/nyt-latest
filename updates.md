@@ -1,3 +1,15 @@
+**Prosecutor Asks for Owner of Swiss Bar Hit by Deadly Fire to Be Detained**\
+`The request came after hours of questioning of the bar’s co-owners. Some 40 people died in the fire that broke out during a New Year’s celebration.`\
+https://nytimes.com/2026/01/09/world/europe/switzerland-fire-bar-owner-arrested.html
+
+**These Easy Egg Bites Are the Best Grab-and-Go Breakfast**\
+`They’re also easy to make ahead and packed with spinach and cottage cheese, ready to power you through the day.`\
+https://nytimes.com/2026/01/09/dining/easy-breakfast-idea-spinach-egg-bites.html
+
+**The Briefing: An unconvincing victory? Ndiaye's best game so far? And what was Bissouma thinking?**\
+`The Athletic's writers analyse the first quarter-final at the 2025 Africa Cup of Nations `\
+https://nytimes.com/athletic/6948912/2026/01/09/mali-senegal-afcon-analysis/
+
 **Handshakes, being his own man, and a need to win: Rosenior's Chelsea press conference debut**\
 `Liam Rosenior had his first Chelsea press conference on Friday ahead of their FA Cup game against Charlton `\
 https://nytimes.com/athletic/6957799/2026/01/09/liam-rosenior-chelsea-press-conference-unveiling/

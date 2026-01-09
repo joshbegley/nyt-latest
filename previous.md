@@ -1,3 +1,15 @@
+**Prosecutor Asks for Owner of Swiss Bar Hit by Deadly Fire to Be Detained**\
+`The request came after hours of questioning of the bar’s co-owners. Some 40 people died in the fire that broke out during a New Year’s celebration.`\
+https://nytimes.com/2026/01/09/world/europe/switzerland-fire-bar-owner-arrested.html
+
+**These Easy Egg Bites Are the Best Grab-and-Go Breakfast**\
+`They’re also easy to make ahead and packed with spinach and cottage cheese, ready to power you through the day.`\
+https://nytimes.com/2026/01/09/dining/easy-breakfast-idea-spinach-egg-bites.html
+
+**The Briefing: An unconvincing victory? Ndiaye's best game so far? And what was Bissouma thinking?**\
+`The Athletic's writers analyse the first quarter-final at the 2025 Africa Cup of Nations `\
+https://nytimes.com/athletic/6948912/2026/01/09/mali-senegal-afcon-analysis/
+
 **Handshakes, being his own man, and a need to win: Rosenior's Chelsea press conference debut**\
 `Liam Rosenior had his first Chelsea press conference on Friday ahead of their FA Cup game against Charlton `\
 https://nytimes.com/athletic/6957799/2026/01/09/liam-rosenior-chelsea-press-conference-unveiling/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6957760/2026/01/09/kylie-kelce-nbc-winter-olympics-
 **Do You Frequently Order Food Delivery? We Want to Hear From You.**\
 `Your responses can help as we report on the immense growth of food delivery and its effects on how we live.`\
 https://nytimes.com/2026/01/09/dining/food-delivery-user-questions.html
-
-**Are You a Food Delivery Driver? We Want to Hear From You.**\
-`We are reporting on food-delivery culture, and we want to talk to the people who keep it running.`\
-https://nytimes.com/2026/01/09/dining/food-delivery-driver-questions.html
-
-**Can A.I. Help Medical Research?**\
-`Sam Rodriques, the C.E.O. and co-founder of FutureHouse, discusses the bottlenecks around A.I. drug development, and how Kosmos – the company’s A.I. scientist – aims to solve some of these hurdles and accelerate medical discovery.`\
-https://nytimes.com/video/podcasts/100000010626765/can-ai-help-medical-research.html
-
-**Casey’s 2026 Prediction: 16 and Up for Social Media**\
-`On the “Hard Fork” podcast, the hosts Kevin Roose and Casey Newton discuss Casey’s high-confidence prediction for 2026 that a minimum age of 16 will becomes the new norm for social media accounts worldwide.`\
-https://nytimes.com/video/podcasts/100000010626771/caseys-2026-prediction-16-and-up-for-social-media.html
 
