@@ -1,3 +1,11 @@
+**Iran Convulsed in Second Night of Nationwide Protests**\
+`Large marches against the government occurred despite an internet blackout and threats of a severe crackdown.`\
+https://nytimes.com/2026/01/09/world/middleeast/iran-protests.html
+
+**Outside Prisons in Caracas, Venezuelans Anxiously Await Release of More Political Detainees**\
+`Venezuela’s interim government said it would release an “important number” of imprisoned people, but only nine have been confirmed freed.`\
+https://nytimes.com/2026/01/09/world/americas/caracas-venezuela-prisoners-released.html
+
 **Mohammed Harbi, Who Rewrote Algeria’s History, Dies at 92**\
 `He was an official in the revolutionary government, then, after the country won independence from France, was imprisoned and eventually wrote from exile.`\
 https://nytimes.com/2026/01/09/world/africa/mohammed-harbi-dead.html
