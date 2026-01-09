@@ -1,3 +1,11 @@
+**'They've lost not only a team-mate, but a friend': Wolves and Macclesfield mourn Ethan McLeod**\
+`Players, coaches and friends pay tribute to the 21-year-old, who died in a car accident last month `\
+https://nytimes.com/athletic/6953828/2026/01/09/wolves-macclesfield-ethan-mcleod-tribute/
+
+**The making of Antoine Semenyo, a 'beautiful human being' who never gave up hope**\
+`Rejected by Arsenal, Tottenham, Crystal Palace and Fulham as a teenager, those who helped coach Semenyo to the top tell his story...`\
+https://nytimes.com/athletic/6950023/2026/01/09/antoine-semenyo-man-city-transfer-background/
+
 **Kane chases record, Musiala returns and Bellingham’s chance. Welcome back, Bundesliga**\
 `As German football wakes from hibernation, here are some themes and plotlines to keep an eye on in the second half of the season`\
 https://nytimes.com/athletic/6949098/2026/01/09/bundesliga-return-bayern-munich-jobe-bellingham/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/09/style/modern-love-age-gap-she-was-40-i-was-20.htm
 **Connections: Sports Edition Coach: Hints for Jan. 9, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6956569/2026/01/09/connections-sports-edition-hints-for-jan-9-2026/
-
-**She Remembered ‘That Kid Who Used to Be in Love’ With Her**\
-`On Christmas Eve, Colleen DeCourcy and Jason MacDonald finished what began four decades ago during a production of “Guys and Dolls.”`\
-https://nytimes.com/2026/01/09/style/colleen-decourcy-jason-macdonald-wedding.html
-
-**He Runs the World’s Biggest Sovereign Wealth Fund, but His Podcast Made Him Famous**\
-`Nicolai Tangen wanted to raise the profile of Norway’s $2.1 trillion oil fund and change corporate behavior, but he may have helped embroil it in a geopolitical tangle.`\
-https://nytimes.com/2026/01/09/business/economy/nicolai-tangen-in-good-company-podcast-norges-bank.html
 

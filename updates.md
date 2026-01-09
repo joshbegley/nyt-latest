@@ -1,3 +1,11 @@
+**'They've lost not only a team-mate, but a friend': Wolves and Macclesfield mourn Ethan McLeod**\
+`Players, coaches and friends pay tribute to the 21-year-old, who died in a car accident last month `\
+https://nytimes.com/athletic/6953828/2026/01/09/wolves-macclesfield-ethan-mcleod-tribute/
+
+**The making of Antoine Semenyo, a 'beautiful human being' who never gave up hope**\
+`Rejected by Arsenal, Tottenham, Crystal Palace and Fulham as a teenager, those who helped coach Semenyo to the top tell his story...`\
+https://nytimes.com/athletic/6950023/2026/01/09/antoine-semenyo-man-city-transfer-background/
+
 **Kane chases record, Musiala returns and Bellingham’s chance. Welcome back, Bundesliga**\
 `As German football wakes from hibernation, here are some themes and plotlines to keep an eye on in the second half of the season`\
 https://nytimes.com/athletic/6949098/2026/01/09/bundesliga-return-bayern-munich-jobe-bellingham/
