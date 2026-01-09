@@ -1,3 +1,15 @@
+**Washington willing to 'take back' QB Williams, who signed deal but planned to enter portal**\
+`Washington is considering "taking back" QB Williams, who announced his intention to enter the portal despite signing with the school.`\
+https://nytimes.com/athletic/6956193/2026/01/08/washington-football-demond-williams-returning-nil-transfer/
+
+**Amid Opening Sprint, Mamdani Paused to Socialize With Steven Spielberg**\
+`Zohran Mamdani, the new mayor of New York, made a private visit to the billionaire film director’s Central Park West apartment this week.`\
+https://nytimes.com/2026/01/08/nyregion/steven-spielberg-zohran-mamdani-meeting.html
+
+**Trump Orders Fannie and Freddie to Buy $200 Billion in Mortgage Bonds**\
+`The move, a bid to make homes more affordable, would be a back-to-future moment for the two mortgage firms. Buying risky mortgage bonds helped push them to near-bankruptcy in 2008.`\
+https://nytimes.com/2026/01/08/business/trump-fannie-freddie-mortgage-bonds.html
+
 **Bo Bichette offered free steak for life at favorite eatery to stay with Blue Jays**\
 `A Toronto restaurant is sweetening the pot for Bichette with a juicy offer if the free-agent shortstop stays in Toronto.`\
 https://nytimes.com/athletic/6955839/2026/01/08/blue-jays-bo-bichette-free-steak/
