@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6958364/2026/01/09/49ers-eagles-trent-williams-rick
 
 **Trump Threatens to Take Greenland ‘the Hard Way’**\
 `The president continued to advance an imperialist vision of American foreign policy, where the U.S. can dominate neighboring countries “whether they like it or not.”`\
-https://nytimes.com/2026/01/09/world/americas/trump-threatens-annex-greenland.html
+https://nytimes.com/2026/01/09/world/americas/trump-greenland-annex.html
 
 **Trump Pressures Oil Giants to Invest in Venezuela**\
 `Also, protests spread across Iran. Here’s the latest at the end of Friday.`\
