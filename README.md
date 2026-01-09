@@ -1,3 +1,11 @@
+**How to watch Santa Clara vs. Gonzaga men's basketball: Time, TV, streaming**\
+`Find out how to watch the Santa Clara Broncos play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6956169/2026/01/08/santa-clara-vs-gonzaga-stream-how-to-watch-jan-8/
+
+**Renee Good’s Time at Old Dominion Included an Award-Winning Poem**\
+`“What I saw in her work was a writer that was trying to illuminate the lives of others,” a faculty member recalled.`\
+https://nytimes.com/2026/01/08/us/renee-good-ice-minneapolis.html
+
 **Federal Agents Shoot 2 in Portland, Ore., Police Say**\
 `The shootings in Portland, a city previously targeted by the Trump administration, come as Minneapolis grapples with a federal agent’s fatal shooting of a woman a day earlier.`\
 https://nytimes.com/2026/01/08/us/politics/federal-agents-shooting-portland.html
@@ -29,13 +37,4 @@ https://nytimes.com/2026/01/08/us/politics/senate-jan-6-plaque.html
 **Flu Cases Fall in New York City After Reaching Highest Level in a Decade**\
 `Preliminary data suggests that bouts of the viral illness have already peaked, but the city’s health commissioner urged caution.`\
 https://nytimes.com/2026/01/08/nyregion/nyc-flu-cases-drop-january.html
-
-**‘Heated Rivalry’ star says closeted pro athletes have reached out because of show**\
-`Actor Hudson Williams said on Sirius XM Radio that he has received messages from "hockey players, football players, basketball players." 
-`\
-https://nytimes.com/athletic/6955905/2026/01/08/heated-rivalry-hockey-show-hudson-williams-athletes/
-
-**Giants Mailbagg: Trying to make sense of an underwhelming offseason**\
-`Giants fans have a lot of questions, including Buster Posey's stance on opt-outs, how they'll fix their outfield defense and much more.`\
-https://nytimes.com/athletic/6955787/2026/01/08/sf-giants-underwhelming-offseason/
 

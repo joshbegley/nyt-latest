@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6955905/2026/01/08/heated-rivalry-hockey-show-hudson-williams-athletes/
 
+**‘Heated Rivalry’ star says closeted pro athletes have reached out because of show**\
+`Actor Hudson Williams said on Sirius XM Radio that he has received messages from "hockey players, football players, basketball players." 
+`\
+https://nytimes.com/athletic/6955905/2026/01/08/heated-rivalry-hockey-show-hudson-williams-athletes/
+
 **Federal Agents Shoot 2 in Portland, Ore., Police Say**\
 `The shootings in Portland, a city previously targeted by the Trump administration, come as Minneapolis grapples with a federal agent’s fatal shooting of a woman a day earlier.`\
 https://nytimes.com/2026/01/08/us/politics/federal-agents-shooting-portland.html
