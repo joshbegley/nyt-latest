@@ -1,3 +1,7 @@
+**Rescue Workers Search for Survivors in Deadly Philippines Landfill Collapse**\
+`A landfill in the central Philippines collapsed on Thursday afternoon, killing at least two people and injuring at least a dozen others, according to local officials. Rescue workers were searching for several other people who were missing, many of whom remained trapped under the debris.`\
+https://nytimes.com/video/world/asia/100000010634369/philippines-landfill-collapse.html
+
 **For These Three, the Age of Empire Never Quite Ended**\
 `In a trilogy of novellas, a writer explores lives haunted by colonialism and slavery.`\
 https://nytimes.com/2026/01/09/books/review/djaimilia-pereira-de-almeida-three-stories-of-forgetting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6957632/2026/01/09/nhl-olympics-rosters-men-red-lig
 **Federal Officials Identify Pair Shot by Border Patrol in Portland, Ore.**\
 `The shooting during a traffic stop, a day after the killing of a woman in Minneapolis by an ICE agent, generated angry denunciations by local officials.`\
 https://nytimes.com/2026/01/09/us/portland-immigration-shooting.html
-
-**Lowetide: Why Oilers' new makeshift line may be key to second half**\
-`Will the Oilers' exciting new line of Matt Savoie, Jack Roslovic and Ike Howard stick together?`\
-https://nytimes.com/athletic/6954697/2026/01/09/edmonton-oilers-lineup-savoie-howard-roslovic-stats/
 

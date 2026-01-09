@@ -1,3 +1,7 @@
+**Rescue Workers Search for Survivors in Deadly Philippines Landfill Collapse**\
+`A landfill in the central Philippines collapsed on Thursday afternoon, killing at least two people and injuring at least a dozen others, according to local officials. Rescue workers were searching for several other people who were missing, many of whom remained trapped under the debris.`\
+https://nytimes.com/video/world/asia/100000010634369/philippines-landfill-collapse.html
+
 **For These Three, the Age of Empire Never Quite Ended**\
 `In a trilogy of novellas, a writer explores lives haunted by colonialism and slavery.`\
 https://nytimes.com/2026/01/09/books/review/djaimilia-pereira-de-almeida-three-stories-of-forgetting.html
