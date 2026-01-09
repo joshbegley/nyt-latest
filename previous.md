@@ -1,3 +1,7 @@
+**USWNT head coach Emma Hayes talks Rodman's return, NWSL's new rule and player development**\
+`Hayes said, "Nothing will change with me and the way that I'm doing things," following NWSL's new rule.`\
+https://nytimes.com/athletic/6955917/2026/01/09/uswnt-emma-hayes-trinity-rodman-nwsl-development/
+
 **Prosecutor Asks for Owner of Swiss Bar Hit by Deadly Fire to Be Detained**\
 `The request came after hours of questioning of the bar’s co-owners. Some 40 people died in the fire that broke out during a New Year’s celebration.`\
 https://nytimes.com/2026/01/09/world/europe/switzerland-fire-bar-owner-arrested.html
@@ -6,7 +10,7 @@ https://nytimes.com/2026/01/09/world/europe/switzerland-fire-bar-owner-arrested.
 `They’re also easy to make ahead and packed with spinach and cottage cheese, ready to power you through the day.`\
 https://nytimes.com/2026/01/09/dining/easy-breakfast-idea-spinach-egg-bites.html
 
-**The Briefing: An unconvincing victory? Ndiaye's best game so far? And what was Bissouma thinking?**\
+**The Briefing: Mali 0 Senegal 1 - An unconvincing win? Ndiaye's best game so far? What was Bissouma thinking?**\
 `The Athletic's writers analyse the first quarter-final at the 2025 Africa Cup of Nations `\
 https://nytimes.com/athletic/6948912/2026/01/09/mali-senegal-afcon-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/09/t-magazine/midcentury-outdoor-chair.html
 **Kylie Kelce joining NBC's Winter Olympics coverage as content creator**\
 `Kelce will part of NBC's Creator Collective for the Milan-Cortina Olympics in February.`\
 https://nytimes.com/athletic/6957760/2026/01/09/kylie-kelce-nbc-winter-olympics-coverage/
-
-**Do You Frequently Order Food Delivery? We Want to Hear From You.**\
-`Your responses can help as we report on the immense growth of food delivery and its effects on how we live.`\
-https://nytimes.com/2026/01/09/dining/food-delivery-user-questions.html
 

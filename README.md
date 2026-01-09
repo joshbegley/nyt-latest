@@ -1,3 +1,7 @@
+**Ravens OC Todd Monken says he could have coached Lamar Jackson better**\
+`Jackson dealt with a slew of injuries in 2025 — including hamstring, knee, ankle, toe and back issues — missing multiple games.`\
+https://nytimes.com/athletic/6957851/2026/01/09/todd-monken-lamar-jackson-ravens-coaching/
+
 **USWNT head coach Emma Hayes talks Rodman's return, NWSL's new rule and player development**\
 `Hayes said, "Nothing will change with me and the way that I'm doing things," following NWSL's new rule.`\
 https://nytimes.com/athletic/6955917/2026/01/09/uswnt-emma-hayes-trinity-rodman-nwsl-development/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/09/us/politics/minnesota-refugees-dhs-trump.html
 **On the Trail of an Elusive Midcentury Chair**\
 `We help a reader track down furniture from a photograph taken in the early 1950s.`\
 https://nytimes.com/2026/01/09/t-magazine/midcentury-outdoor-chair.html
-
-**Kylie Kelce joining NBC's Winter Olympics coverage as content creator**\
-`Kelce will part of NBC's Creator Collective for the Milan-Cortina Olympics in February.`\
-https://nytimes.com/athletic/6957760/2026/01/09/kylie-kelce-nbc-winter-olympics-coverage/
 

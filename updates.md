@@ -1,3 +1,11 @@
+**USWNT head coach Emma Hayes talks Rodman's return, NWSL's new rule and player development**\
+`Hayes said, "Nothing will change with me and the way that I'm doing things," following NWSL's new rule.`\
+https://nytimes.com/athletic/6955917/2026/01/09/uswnt-emma-hayes-trinity-rodman-nwsl-development/
+
+**The Briefing: Mali 0 Senegal 1 - An unconvincing win? Ndiaye's best game so far? What was Bissouma thinking?**\
+`The Athletic's writers analyse the first quarter-final at the 2025 Africa Cup of Nations `\
+https://nytimes.com/athletic/6948912/2026/01/09/mali-senegal-afcon-analysis/
+
 **Prosecutor Asks for Owner of Swiss Bar Hit by Deadly Fire to Be Detained**\
 `The request came after hours of questioning of the bar’s co-owners. Some 40 people died in the fire that broke out during a New Year’s celebration.`\
 https://nytimes.com/2026/01/09/world/europe/switzerland-fire-bar-owner-arrested.html
