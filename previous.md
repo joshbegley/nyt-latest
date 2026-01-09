@@ -1,3 +1,11 @@
+**N.Y.P.D. Fatally Shoots Man Who Drew a Fake Gun in the West Village**\
+`Officers shot the driver of a BMW that had been involved in a motor vehicle incident after he drew an imitation firearm, the police said.`\
+https://nytimes.com/2026/01/09/nyregion/ny-police-shooting-west-village.html
+
+**Protests Intensify in Iran**\
+`The country severed nationwide internet access as anti-government demonstrations calling for regime change swept through multiple cities.`\
+https://nytimes.com/video/world/asia/100000010633789/iran-protests-internet-shutdown.html
+
 **'Woah, we've got a guy here': Why Rapids are all in on first-time manager Wells**\
 `Matt Wells arrives from Tottenham after a run as a trusted assistant, and Colorado believes it has uncovered a manager with high potential`\
 https://nytimes.com/athletic/6955480/2026/01/09/matt-wells-colorado-rapids-coach-tottenham/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/09/insider/riding-the-roller-coaster-beat.html
 **Late Night Is Distracted by Kristi Noem’s Oversized Cowboy Hat**\
 `“Why is Kristi Noem always in some sort of cosplay outfit?” Seth Meyers asked on Thursday.`\
 https://nytimes.com/2026/01/09/arts/television/late-night-kristi-noem-hat.html
-
-**For the first time in 600 games Liverpool didn't have a shot on target — but still made a step forward**\
-`Arne Slot's side may have failed to test the Arsenal goalkeeper but this was an impressive performance in the circumstances`\
-https://nytimes.com/athletic/6955514/2026/01/09/liverpool-arsenal-no-shots-600-games/
-
-**Word of the Day: memorandum**\
-`This word has appeared in 279 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/01/09/learning/word-of-the-day-memorandum.html
 

@@ -1,3 +1,11 @@
+**N.Y.P.D. Fatally Shoots Man Who Drew a Fake Gun in the West Village**\
+`Officers shot the driver of a BMW that had been involved in a motor vehicle incident after he drew an imitation firearm, the police said.`\
+https://nytimes.com/2026/01/09/nyregion/ny-police-shooting-west-village.html
+
+**Protests Intensify in Iran**\
+`The country severed nationwide internet access as anti-government demonstrations calling for regime change swept through multiple cities.`\
+https://nytimes.com/video/world/asia/100000010633789/iran-protests-internet-shutdown.html
+
 **'Woah, we've got a guy here': Why Rapids are all in on first-time manager Wells**\
 `Matt Wells arrives from Tottenham after a run as a trusted assistant, and Colorado believes it has uncovered a manager with high potential`\
 https://nytimes.com/athletic/6955480/2026/01/09/matt-wells-colorado-rapids-coach-tottenham/
