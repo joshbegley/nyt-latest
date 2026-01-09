@@ -1,3 +1,8 @@
+**‘Heated Rivalry’ star says closeted pro athletes have reached out because of show**\
+`Actor Hudson Williams said on Sirius XM Radio that he has received messages from "hockey players, football players, basketball players." 
+`\
+https://nytimes.com/athletic/6955905/2026/01/08/heated-rivalry-hockey-show-hudson-williams-athletes/
+
 **Men Cut Hole in Bathroom Wall to Steal Over $500,000 in Jewelry**\
 `Three men targeted a jewelry store in Cape Coral, Fla., according to a federal criminal complaint against the man accused of being the getaway driver. Two others have yet to be identified.`\
 https://nytimes.com/2026/01/08/us/cape-coral-jewelry-store-robbery-florida.html

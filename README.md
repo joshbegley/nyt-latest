@@ -1,3 +1,15 @@
+**Federal Agents Shoot 2 in Portland, Ore., Police Say**\
+`The shootings in Portland, a city previously targeted by the Trump administration, come as Minneapolis grapples with a federal agent’s fatal shooting of a woman a day earlier.`\
+https://nytimes.com/2026/01/08/us/politics/federal-agents-shooting-portland.html
+
+**Trump Sees A.I.’s Economic Promise, While Dismissing Potential Threats**\
+`The president said that artificial intelligence would create such an abundance of jobs that robots would be required to fill the gaps.`\
+https://nytimes.com/2026/01/08/us/politics/trump-artificial-intelligence.html
+
+**‘People We Meet on Vacation’ Review: When Stuffy Met Silly**\
+`Love grows between a restless travel writer and a contented homebody in this occasionally cute, instantly forgettable romantic comedy.`\
+https://nytimes.com/2026/01/08/movies/people-we-meet-on-vacation-review.html
+
 **Men Cut Hole in Bathroom Wall to Steal Over $500,000 in Jewelry**\
 `Three men targeted a jewelry store in Cape Coral, Fla., according to a federal criminal complaint against the man accused of being the getaway driver. Two others have yet to be identified.`\
 https://nytimes.com/2026/01/08/us/cape-coral-jewelry-store-robbery-florida.html
@@ -26,12 +38,4 @@ https://nytimes.com/athletic/6955905/2026/01/08/heated-rivalry-hockey-show-hudso
 **Giants Mailbagg: Trying to make sense of an underwhelming offseason**\
 `Giants fans have a lot of questions, including Buster Posey's stance on opt-outs, how they'll fix their outfield defense and much more.`\
 https://nytimes.com/athletic/6955787/2026/01/08/sf-giants-underwhelming-offseason/
-
-**Reality TV Star Spencer Pratt Announces Bid for L.A. Mayor**\
-`On Wednesday, Spencer Pratt, star of the MTV reality show “The Hills,” announced that he would be challenging Mayor Karen Bass in the June election. Mr. Pratt became an outspoken critic of California’s liberal leaders after his home burned down in the Palisades fire last year.`\
-https://nytimes.com/video/us/elections/100000010632275/spencer-pratt-los-angeles-mayor-election.html
-
-**Unrivaled's viewership for season-opener drops slightly from last year's average**\
-`Unrivaled’s two season-opening prime-time games drew an average of 175,000 viewers.`\
-https://nytimes.com/athletic/6955884/2026/01/08/unrivaled-season-opener-viewership-womens-basketball/
 
