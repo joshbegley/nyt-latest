@@ -1,3 +1,7 @@
+**Yankees offer Cody Bellinger more than $30M a year, but gap remains in talks: Sources**\
+`The club's latest multi-year offer featured an AAV of more than $30M as Bellinger’s camp continued to push for seven years, sources said. `\
+https://nytimes.com/athletic/6956135/2026/01/08/yankees-cody-bellinger-offer-30-million-aav/
+
 **‘Bug’ Review: Carrie Coon Is Superb in an American Gothic Tale**\
 `Tracy Letts’s eerily topical, decades-old play about a woman’s descent into a world of conspiracy theories makes its nerve-rattling Broadway debut.`\
 https://nytimes.com/2026/01/08/theater/bug-review-carrie-coon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/science/cloud-9-starless-dark-galaxy.html
 **Washington QB Williams announces return after contract, transfer portal drama**\
 `Announcement ends two-day saga over the status of Huskies' star quarterback.`\
 https://nytimes.com/athletic/6956193/2026/01/08/washington-football-demond-williams-returning-nil-transfer/
-
-**Amid Opening Sprint, Mamdani Paused to Socialize With Steven Spielberg**\
-`Zohran Mamdani, the new mayor of New York, made a private visit to the billionaire film director’s Central Park West apartment this week.`\
-https://nytimes.com/2026/01/08/nyregion/steven-spielberg-zohran-mamdani-meeting.html
 
