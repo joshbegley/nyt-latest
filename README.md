@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6958525/2026/01/09/wrexham-nottingham-forest-fa-cup
 https://nytimes.com/2026/01/09/business/energy-environment/trump-venezuela-oil-executives.html
 
 **As trade season heats up, Anthony Davis out indefinitely with hand injury: Source**\
-`The Mavericks and Davis will seek multiple medical opinions to help determine a road to recovery.`\
+`The Mavericks and Davis will seek multiple medical opinions to help determine a road to recovery. `\
 https://nytimes.com/athletic/6958500/2026/01/09/anthony-davis-hand-injury-history-mavericks-depth-chart/
 
 **A Look at Iran’s Antigovernment Protests**\
@@ -33,8 +33,4 @@ https://nytimes.com/2026/01/09/nyregion/mamdani-nypd-shootings.html
 **Dodgers bolster infield depth by adding Andy Ibáñez, Ryan Fitzgerald**\
 `With Tommy Edman's status for Opening Day unclear, the Dodgers are giving themselves plenty of options for the middle infield.`\
 https://nytimes.com/athletic/6958218/2026/01/09/dodgers-andy-ibanez-ryan-fitzgerald-infield-additions/
-
-**Tottenham agree deal to sign Santos left-back Souza**\
-`The 19-year-old came through Santos’ youth ranks and made his top-flight debut in May of last year.`\
-https://nytimes.com/athletic/6941907/2026/01/09/tottenham-souza-santos-transfer/
 

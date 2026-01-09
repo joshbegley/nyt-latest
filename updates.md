@@ -1,3 +1,7 @@
+**Wrexham's Hollywood owners celebrating famous FA Cup win**\
+`Ryan Reynolds joined a capacity crowd in braving freezing temperatures in Wales to cheer the team he bought in 2021.`\
+https://nytimes.com/athletic/6958525/2026/01/09/wrexham-nottingham-forest-fa-cup-win/
+
 **Trump’s $100 Billion Venezuela Oil Plan Gets a Cool Reception**\
 `President Trump met with oil and gas executives on Friday in an effort to push them to invest money in Venezuela, a plan many of them are reluctant to embrace.`\
 https://nytimes.com/2026/01/09/business/energy-environment/trump-venezuela-oil-executives.html
