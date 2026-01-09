@@ -1,3 +1,19 @@
+**Senators' goalie issues have derailed their season. It should've been dealt with sooner**\
+`An embarrassing loss Thursday capped off one of the most eventful days in recent memory for the Senators. And they have themselves to blame.`\
+https://nytimes.com/athletic/6956527/2026/01/09/nhl-senators-goalie-problems-future-goaltenders/
+
+**Blackhawks prospect Sacha Boisvert is healthy, ready to prove himself at BU**\
+`Could Boisvert join the Blackhawks later this season? The second half of his college season might determine that.`\
+https://nytimes.com/athletic/6956724/2026/01/09/blackhawks-prospect-sacha-boisvert-healthy-boston-university/
+
+**Esto es lo más reciente**\
+`By Jack Nicas, Emma Bubola, Emiliano Rodríguez Mega and Genevieve Glatsky`\
+https://nytimes.com/live/2026/01/09/espanol/trump-maduro-venezuela-ataque/esto-es-lo-mas-reciente
+
+**Venezuela en vivo: Trump dice que no habrá más ataques de EE. UU. en el país**\
+`El presidente Trump citó la cooperación de los líderes interinos del país, que comenzaron a liberar a presos políticos el jueves en lo que parece ser una concesión tras la captura de EE. UU. del presidente depuesto Nicolás Maduro.`\
+https://nytimes.com/live/2026/01/09/espanol/trump-maduro-venezuela-ataque
+
 **Women's NCAA Tournament Bracket Watch: Could UCLA take over UConn for top No. 1 seed?**\
 `Who are the top four seeds? Can LSU work up to a No. 2 seed? `\
 https://nytimes.com/athletic/6956474/2026/01/09/womens-ncaa-tournament-bracket-ucla-uconn/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/09/business/stock-market-investing-returns.html
 **Bukayo Saka agrees new five-year deal at Arsenal**\
 `The latest deal will be at a level that recognises the 24-year-old's standing as one of the leading players in the Premier League and Europe`\
 https://nytimes.com/athletic/6258824/2026/01/09/arsenal-bukayo-saka-contract-new/
-
-**Landfill Collapse in Philippines Leaves Two Dead and Dozens Missing**\
-`A garbage mound outside Cebu City in the central Philippines collapsed on Thursday. Rescuers are searching for 36 missing people, including some trapped under the debris.`\
-https://nytimes.com/2026/01/09/world/asia/philippines-landfill-collapse-cebu.html
-
-**Times Reporters Are on a Scientific Expedition to Antarctica. Send in Your Questions.**\
-`Students of all ages are invited to send in video questions for possible inclusion in dispatches from the trip. Deadline: Jan 16.`\
-https://nytimes.com/2026/01/09/learning/times-reporters-are-on-a-scientific-expedition-to-antarctica-send-in-your-questions.html
-
-**Iran Plunges Into Internet Blackout as Protests Intensify**\
-`Internet monitoring groups reported an abrupt drop in connection levels in Iran as anti-government protests continued to grow. Iran’s supreme leader dismissed days of fierce protest as wanton destruction.`\
-https://nytimes.com/video/world/middleeast/100000010634245/iran-protests-internet-ayatollah.html
-
-**Does Trae Young trade mean Anthony Davis is next, and more NBA trade deadline buzz**\
-`The latest our NBA insiders are hearing on Giannis, Jonathan Kuminga and more as trade season officially kicks off with the Trae Young deal.`\
-https://nytimes.com/athletic/6956615/2026/01/09/nba-trade-rumors-latest-anthony-davis-giannis-jonathan-kuminga/
 
