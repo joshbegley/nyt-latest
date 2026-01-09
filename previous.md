@@ -1,3 +1,7 @@
+**USWNT defender Emily Sams joins Angel City, concluding week of signings for the NWSL club**\
+`Angel City sporting director Mark Parsons discusses the process behind signing the quintet of players. `\
+https://nytimes.com/athletic/6953440/2026/01/09/angel-city-signings-emily-sams-orlando/
+
 **Al Michaels to return for another season with Amazon Prime's NFL coverage**\
 `Michaels has served as Prime Video’s primary play-by-play announcer for "Thursday Night Football" since 2022.`\
 https://nytimes.com/athletic/6957616/2026/01/09/al-michaels-return-amazon-prime-nfl-coverage/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/09/us/politics/supreme-court-docket.html
 **Minnesota Leaders Call for State Role in Investigating Deadly ICE Shooting**\
 `Federal authorities, who have launched an immigration enforcement blitz in Minnesota, said they will re-examine thousands of refugee cases in the state.`\
 https://nytimes.com/2026/01/09/us/ice-shooting-investigation-minnesota-agents.html
-
-**Rescue Workers Search for Survivors in Deadly Philippines Landfill Collapse**\
-`A landfill in the central Philippines collapsed on Thursday afternoon, killing at least two people and injuring at least a dozen others, according to local officials. Rescue workers were searching for several other people who were missing, many of whom remained trapped under the debris.`\
-https://nytimes.com/video/world/asia/100000010634369/philippines-landfill-collapse.html
 

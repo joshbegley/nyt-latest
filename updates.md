@@ -1,3 +1,7 @@
+**USWNT defender Emily Sams joins Angel City, concluding week of signings for the NWSL club**\
+`Angel City sporting director Mark Parsons discusses the process behind signing the quintet of players. `\
+https://nytimes.com/athletic/6953440/2026/01/09/angel-city-signings-emily-sams-orlando/
+
 **Al Michaels to return for another season with Amazon Prime's NFL coverage**\
 `Michaels has served as Prime Video’s primary play-by-play announcer for "Thursday Night Football" since 2022.`\
 https://nytimes.com/athletic/6957616/2026/01/09/al-michaels-return-amazon-prime-nfl-coverage/
