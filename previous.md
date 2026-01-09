@@ -1,3 +1,7 @@
+**This ‘Galaxy That Wasn’t’ Never Bore Any Stars**\
+`Astronomers announced the discovery of a starless cloud of hydrogen gas, a pristine relic of the cosmos that is almost as old as time itself.`\
+https://nytimes.com/2026/01/08/science/cloud-9-starless-dark-galaxy.html
+
 **Washington willing to 'take back' QB Williams, who signed deal but planned to enter portal**\
 `Washington is considering "taking back" QB Williams, who announced his intention to enter the portal despite signing with the school.`\
 https://nytimes.com/athletic/6956193/2026/01/08/washington-football-demond-williams-returning-nil-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/us/politics/trump-artificial-intelligence.html
 **‘People We Meet on Vacation’ Review: When Stuffy Met Silly**\
 `Love grows between a restless travel writer and a contented homebody in this occasionally cute, instantly forgettable romantic comedy.`\
 https://nytimes.com/2026/01/08/movies/people-we-meet-on-vacation-review.html
-
-**Men Cut Hole in Bathroom Wall to Steal Over $500,000 in Jewelry**\
-`Three men targeted a jewelry store in Cape Coral, Fla., according to a federal criminal complaint against the man accused of being the getaway driver. Two others have yet to be identified.`\
-https://nytimes.com/2026/01/08/us/cape-coral-jewelry-store-robbery-florida.html
 
