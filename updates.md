@@ -1,3 +1,11 @@
+**Trump Signals He Will Meet Venezuela’s Machado After Offer of Her Nobel**\
+`President Trump, who has long coveted the Nobel Peace Prize, has refused to support the opposition leader María Corina Machado to lead Venezuela.`\
+https://nytimes.com/2026/01/09/world/americas/trump-venezuela-machado-nobel-prize.html
+
+**President Trump’s Vision of Power**\
+`“My own mind. It’s the only thing that can stop me,” he told Times reporters.`\
+https://nytimes.com/2026/01/09/briefing/trump-oval-office-interview.html
+
 **Anthony Edwards scored his 10,000th NBA point. The way he did it says a lot**\
 `The 24-year-old Edwards became the third-youngest player ever to reach 10,000 points. He crossed the mark with his newfound midrange game.`\
 https://nytimes.com/athletic/6956332/2026/01/09/anthony-edwards-10000-points-timberwolves/

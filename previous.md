@@ -1,3 +1,7 @@
+**Trump Signals He Will Meet Venezuela’s Machado After Offer of Her Nobel**\
+`President Trump, who has long coveted the Nobel Peace Prize, has refused to support the opposition leader María Corina Machado to lead Venezuela.`\
+https://nytimes.com/2026/01/09/world/americas/trump-venezuela-machado-nobel-prize.html
+
 **Anthony Edwards scored his 10,000th NBA point. The way he did it says a lot**\
 `The 24-year-old Edwards became the third-youngest player ever to reach 10,000 points. He crossed the mark with his newfound midrange game.`\
 https://nytimes.com/athletic/6956332/2026/01/09/anthony-edwards-10000-points-timberwolves/
@@ -16,7 +20,7 @@ https://nytimes.com/athletic/6954182/2026/01/09/bears-next-man-up-jahdae-walker-
 
 **President Trump’s Vision of Power**\
 `“My own mind. It’s the only thing that can stop me,” he told Times reporters.`\
-https://nytimes.com/2026/01/09/briefing/headline-tk.html
+https://nytimes.com/2026/01/09/briefing/trump-oval-office-interview.html
 
 **Step aside, Lane Kiffin, Indiana's Curt Cignetti is the new Portal King**\
 `Through one week of portal movement, Indiana’s transfer class ranks second, according to On3. LSU’s class is respectable, but it ranks 23rd.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6955305/2026/01/09/nasser-hussain-ashes-england-key
 **The Athletic’s Friday football quiz question #88**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/6949294/2026/01/09/the-athletics-friday-football-quiz-question-88/
-
-**NFL playoffs: Key matchups to watch in each AFC wild-card game**\
-`It might not be the stars who create mismatches as role players could be pivotal in the three AFC games.`\
-https://nytimes.com/athletic/6953317/2026/01/09/nfl-playoffs-afc-wild-card-matchups/
 
