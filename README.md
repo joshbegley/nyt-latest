@@ -1,3 +1,7 @@
+**Saquon Barkley: Christian McCaffrey is 'one of the best' backs to ever play**\
+`Barkley, the 2024 NFL offensive player of the year, and McCaffrey, the 2023 offensive player of the year, are extremely competitive`\
+https://nytimes.com/athletic/6955944/2026/01/08/saquon-barkley-christian-mccaffrey-running-back-eagles-49ers/
+
 **Families of Slain Idaho Students Sue the University the Killer Attended**\
 `A new lawsuit claims that Washington State University, where Bryan Kohberger was a Ph.D. student, failed to take decisive action on earlier complaints that he was stalking women.`\
 https://nytimes.com/2026/01/08/us/idaho-murders-kohberger-victim-families-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/us/renee-good-ice-minneapolis.html
 **Federal Agents Shoot 2 in Portland, Ore., Police Say**\
 `The shootings in Portland, a city previously targeted by the Trump administration, come as Minneapolis grapples with a federal agent’s fatal shooting of a woman a day earlier.`\
 https://nytimes.com/2026/01/08/us/politics/federal-agents-shooting-portland.html
-
-**Trump Sees A.I.’s Economic Promise, While Dismissing Potential Threats**\
-`The president said that artificial intelligence would create such an abundance of jobs that robots would be required to fill the gaps.`\
-https://nytimes.com/2026/01/08/us/politics/trump-artificial-intelligence.html
 

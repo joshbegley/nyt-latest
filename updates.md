@@ -1,3 +1,7 @@
+**Families of Slain Idaho Students Sue the University the Killer Attended**\
+`A new lawsuit claims that Washington State University, where Bryan Kohberger was a Ph.D. student, failed to take decisive action on earlier complaints that he was stalking women.`\
+https://nytimes.com/2026/01/08/us/idaho-murders-kohberger-victim-families-lawsuit.html
+
 **This ‘Galaxy That Wasn’t’ Never Bore Any Stars**\
 `Astronomers announced the discovery of a starless cloud of hydrogen gas, a pristine relic of the cosmos that is almost as old as time itself.`\
 https://nytimes.com/2026/01/08/science/cloud-9-starless-dark-galaxy.html
