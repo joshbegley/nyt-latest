@@ -1,3 +1,11 @@
+**The improbable connection that explains Victor Wembanyama's viral high kick**\
+`Victor Wembanyama believes he can set a world record for highest jump kick. He has an unlikely ally in his corner. `\
+https://nytimes.com/athletic/6956677/2026/01/09/victor-wembanyama-spurs-high-kick/
+
+**The Pulse: An instant CFP classic**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6955367/2026/01/09/ole-miss-miami-playoff-the-pulse/
+
 **Everton 'surprised' as Michael Keane red card appeal rejected by FA**\
 `The defender will serve a three-match ban for pulling the hair of Wolverhampton Wanderers striker Tolu Arokodare.`\
 https://nytimes.com/athletic/6957132/2026/01/09/everton-michael-keane-red-card-appeal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6956039/2026/01/09/lions-gm-brad-holmes-season-revi
 **Analysing Brighton's £54.4m loss in 2024-25 accounts**\
 `Brighton previously made a £73.3m profit for the 2023-24 season, when they reached the Europa league last-16.`\
 https://nytimes.com/athletic/6957142/2026/01/09/brighton-accounts-loss-finances/
-
-**Evgeni Malkin back with bang as Penguins keep rolling in sixth straight win: Observations**\
-`Malkin shook off the rust with a goal, and the Penguins' fourth line once again looked fantastic in a routine win over the Devils.`\
-https://nytimes.com/athletic/6953006/2026/01/09/penguins-malkin-return-dewar-devils/
-
-**Panthers-Rams: Key questions, matchups and a prediction for NFC wild-card game**\
-`The Panthers host their first playoff game in eight years as heavy underdogs, facing a Rams team they already beat once.`\
-https://nytimes.com/athletic/6955910/2026/01/09/panthers-rams-nfc-wild-card-preview/
 

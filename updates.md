@@ -1,3 +1,11 @@
+**The improbable connection that explains Victor Wembanyama's viral high kick**\
+`Victor Wembanyama believes he can set a world record for highest jump kick. He has an unlikely ally in his corner. `\
+https://nytimes.com/athletic/6956677/2026/01/09/victor-wembanyama-spurs-high-kick/
+
+**The Pulse: An instant CFP classic**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6955367/2026/01/09/ole-miss-miami-playoff-the-pulse/
+
 **Everton 'surprised' as Michael Keane red card appeal rejected by FA**\
 `The defender will serve a three-match ban for pulling the hair of Wolverhampton Wanderers striker Tolu Arokodare.`\
 https://nytimes.com/athletic/6957132/2026/01/09/everton-michael-keane-red-card-appeal/
