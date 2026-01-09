@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6955774/2026/01/08/blackhawks-roster-structure-davi
 `"We are disgusted that outside forces are attempting to disrupt our hockey club," president and GM Steve Staios said in a statement.`\
 https://nytimes.com/athletic/6956279/2026/01/08/ottawa-senators-linus-ullmark-absence-statement/
 
-**Yankees offer Cody Bellinger more than $30M a year, but gap remains in talks: Sources**\
+**Yankees offer Cody Bellinger over $30M a year, but gap remains: Sources**\
 `The club's latest multi-year offer featured an AAV of more than $30M as Bellinger’s camp continued to push for seven years, sources said. `\
 https://nytimes.com/athletic/6956135/2026/01/08/yankees-cody-bellinger-offer-30-million-aav/
 

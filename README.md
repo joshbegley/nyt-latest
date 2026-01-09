@@ -1,3 +1,7 @@
+**Tigers, Tarik Skubal could be headed for an arbitration hearing. What does it mean?**\
+`Tarik Skubal could be seeking a record deal in arbitration. Will the Tigers still operate with a 'file-and-trial' mindset? `\
+https://nytimes.com/athletic/6956212/2026/01/08/detroit-tigers-tarik-skubal-arbitration-hearing-potential/
+
 **Amid Protests, ICE Told Agents to Take ‘Decisive Action’ if Threatened**\
 `The guidance comes as immigration officers have been met with increasingly hostile protesters in cities.`\
 https://nytimes.com/2026/01/08/us/politics/homeland-security-ice-protests-warning.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/us/politics/trump-ukraine-russia.html
 **Michigan makes portal splash with All-Big 12 DE from Utah**\
 `John Henry Daley finished sixth in the FBS in sacks and announced he's following Kyle Whittingham to Michigan from Utah.`\
 https://nytimes.com/athletic/6956206/2026/01/08/john-henry-daley-michigan-commitment-portal-utah/
-
-**Chris Ballard still believes in Chris Ballard, but knows Colts fans won't until he wins**\
-`The Colts have never won the AFC South under his stewardship, and they have just two playoff appearances and one playoff victory.`\
-https://nytimes.com/athletic/6951113/2026/01/08/colts-chris-ballard-carlie-irsay-gordon-daniel-jones/
 

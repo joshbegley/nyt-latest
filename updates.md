@@ -1,3 +1,7 @@
+**Yankees offer Cody Bellinger over $30M a year, but gap remains: Sources**\
+`The club's latest multi-year offer featured an AAV of more than $30M as Bellinger’s camp continued to push for seven years, sources said. `\
+https://nytimes.com/athletic/6956135/2026/01/08/yankees-cody-bellinger-offer-30-million-aav/
+
 **Amid Protests, ICE Told Agents to Take ‘Decisive Action’ if Threatened**\
 `The guidance comes as immigration officers have been met with increasingly hostile protesters in cities.`\
 https://nytimes.com/2026/01/08/us/politics/homeland-security-ice-protests-warning.html
