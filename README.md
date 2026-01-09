@@ -1,3 +1,11 @@
+**Was Ole Miss robbed of a pass interference call on Hail Mary vs. Miami?**\
+`ESPN in-booth official called the final play of the game "mutual combat." `\
+https://nytimes.com/athletic/6956759/2026/01/09/ole-miss-pass-interference-miami-fiesta-bowl-ending/
+
+**The Ashes 2025-26: Ranking the 31 players used by Australia and England**\
+`From Mitchell Starc's brilliance to Mark Wood's frustration, we rank the players used in the Ashes as Australia celebrate retaining the urn`\
+https://nytimes.com/athletic/6951622/2026/01/09/ashes-australia-england-rankings/
+
 **The Prospects: Tynan Thompson, Tottenham Hotspur**\
 `Tynan Thompson is a winger being spoken about in highly positive terms - and his UEFA Youth League performances show why`\
 https://nytimes.com/athletic/6949037/2026/01/09/prospects-tynan-thompson-tottenham/
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6956694/2026/01/09/flyers-travis-konecny-leaves-gam
 **Clubs should not act surprised when managers adhere to philosophies set out on day one**\
 `This season has been quite the jolt for those coaches who, to borrow a line from Jose Mourinho, are willing to “die for an idea”`\
 https://nytimes.com/athletic/6954812/2026/01/09/manager-sacked-philosophy-amorim-nancy-maresca/
-
-**Ten of the silliest red cards in Premier League history**\
-`Some dismissals prompt a burning sense of injustice. Some, once time has passed, prompt hilarity`\
-https://nytimes.com/athletic/6954501/2026/01/09/premier-league-silliest-red-cards/
-
-**The story of Drogba's dressing-room intervention in Ivory Coast's civil war**\
-`An impassioned dressing-room speech that was televised to the nation after one of the country's greatest sporting moments had a huge impact`\
-https://nytimes.com/athletic/6938718/2026/01/09/ivory-coast-didier-drogba-civil-war/
 

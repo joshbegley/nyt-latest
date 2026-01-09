@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6956702/2026/01/09/sec-ole-miss-playbook-adjustment/
 
+**The SEC’s old playbook is finished. Now comes the adjustment**\
+`NIL and the transfer portal have whittled away the SEC’s dominance. Adjusting is the only way forward.
+`\
+https://nytimes.com/athletic/6956702/2026/01/09/sec-ole-miss-playbook-adjustment/
+
 **Terry Yorath, a life marked by tragedy, heroism, and the 'twinkle in his eye'**\
 `Terry Yorath passed away on Wednesday evening at the age of 75`\
 https://nytimes.com/athletic/6953682/2026/01/09/terry-yorath-leeds-bradford-tottenham-obituary/
