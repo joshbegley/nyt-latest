@@ -1,3 +1,15 @@
+**Mohammed Harbi, Who Rewrote Algeria’s History, Dies at 92**\
+`He was an official in the revolutionary government, then, after the country won independence from France, was imprisoned and eventually wrote from exile.`\
+https://nytimes.com/2026/01/09/world/africa/mohammed-harbi-dead.html
+
+**Judge Blocks Trump Officials From Freezing Billions in Social Services Funds**\
+`The ruling temporarily halted plans to freeze more than $10 billion in funds for anti-poverty programs bound for five Democratic-led states.`\
+https://nytimes.com/2026/01/09/us/politics/trump-child-care-funding-freeze.html
+
+**Outside Prisons in Caracas, Venezuelans Anxiously Await telease of more political detainees.**\
+`By The New York Times`\
+https://nytimes.com/2026/01/09/world/americas/outside-prisons-in-caracas-venezuelans-anxiously-await-the-release-of-more-political-detainees.html
+
 **Outside prisons in Caracas, Venezuelans anxiously await the release of more political detainees.**\
 `By The New York Times`\
 https://nytimes.com/live/2026/01/09/world/venezuela-trump-us/outside-prisons-in-caracas-venezuelans-anxiously-await-the-release-of-more-political-detainees

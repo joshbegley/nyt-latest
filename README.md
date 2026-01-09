@@ -1,3 +1,7 @@
+**Iran Convulsed in Second Night of Nationwide Protests**\
+`Large marches against the government occurred despite an internet blackout and threats of a severe crackdown.`\
+https://nytimes.com/2026/01/09/world/middleeast/iran-protests.html
+
 **Mohammed Harbi, Who Rewrote Algeria’s History, Dies at 92**\
 `He was an official in the revolutionary government, then, after the country won independence from France, was imprisoned and eventually wrote from exile.`\
 https://nytimes.com/2026/01/09/world/africa/mohammed-harbi-dead.html
@@ -6,9 +10,9 @@ https://nytimes.com/2026/01/09/world/africa/mohammed-harbi-dead.html
 `The ruling temporarily halted plans to freeze more than $10 billion in funds for anti-poverty programs bound for five Democratic-led states.`\
 https://nytimes.com/2026/01/09/us/politics/trump-child-care-funding-freeze.html
 
-**Outside Prisons in Caracas, Venezuelans Anxiously Await telease of more political detainees.**\
-`By The New York Times`\
-https://nytimes.com/2026/01/09/world/americas/outside-prisons-in-caracas-venezuelans-anxiously-await-the-release-of-more-political-detainees.html
+**Outside Prisons in Caracas, Venezuelans Anxiously Await Release of More Political Detainees**\
+`Venezuela’s interim government said it would release an “important number” of imprisoned people, but only nine have been confirmed freed.`\
+https://nytimes.com/2026/01/09/world/americas/caracas-venezuela-prisoners-released.html
 
 **The Best Light-Therapy Lamp **\
 `Text by Nancy Redd`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6958364/2026/01/09/49ers-eagles-trent-williams-rick
 **Trump Threatens to Take Greenland ‘the Hard Way’**\
 `The president continued to advance an imperialist vision of American foreign policy, where the U.S. can dominate neighboring countries “whether they like it or not.”`\
 https://nytimes.com/2026/01/09/world/americas/trump-greenland-annex.html
-
-**Trump Pressures Oil Giants to Invest in Venezuela**\
-`Also, protests spread across Iran. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2026/01/09/briefing/trump-oil-venezuela-protests-iran.html
 
