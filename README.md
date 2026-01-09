@@ -1,4 +1,8 @@
-**Dodgers sign Andy Ibáñez and claim Ryan Fitzgerald, improving infield depth**\
+**After Police Kill 2 People in One Night, Mamdani Responds Cautiously**\
+`Mayor Zohran Mamdani did not call the shootings justified, but said New York Police officers were placed in “incredibly difficult and dangerous circumstances.”`\
+https://nytimes.com/2026/01/09/nyregion/mamdani-nypd-shootings.html
+
+**Dodgers bolster infield depth by adding Andy Ibáñez, Ryan Fitzgerald**\
 `With Tommy Edman's status for Opening Day unclear, the Dodgers are giving themselves plenty of options for the middle infield.`\
 https://nytimes.com/athletic/6958218/2026/01/09/dodgers-andy-ibanez-ryan-fitzgerald-infield-additions/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6958181/2026/01/09/olympic-hockey-rink-construction
 **Canada announces roster for Olympic women’s hockey: Snubs, surprises and expectations**\
 `The Canadian women’s national hockey team will lean on an experience-heavy roster in Milan.`\
 https://nytimes.com/athletic/6957765/2026/01/09/team-canada-womens-hockey-roster-2026-olympics-snubs/
-
-**Minneapolis Mayor Calls for State Role in Deadly ICE Shooting**\
-`With the Minneapolis area in a state of upheaval, Minnesota officials renewed their calls on Friday for state agents to be allowed to help investigate the fatal shooting of a woman by an Immigration and Customs Enforcement officer earlier this week.`\
-https://nytimes.com/video/us/100000010635301/ice-shooting-minneapolis-investigation-state-agents.html
 
