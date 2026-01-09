@@ -1,3 +1,7 @@
+**220,000 Fewer Workers: How Trump's Cuts Affected Every Federal Agency**\
+`New data offers the first clear view of the impact of the buyouts and firings.`\
+https://nytimes.com/interactive/2026/01/09/upshot/trump-workforce-cuts-table.html
+
 **Handing Out Free Tickets, Mamdani Says Theater Should Not Be ‘a Luxury’**\
 `The mayor said a new collaboration with the Under the Radar festival was part of an arts affordability agenda that he intends to pursue.`\
 https://nytimes.com/2026/01/09/theater/mamdani-under-radar-theater.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/09/well/measles-outbreak-new-cases-south-carolina.ht
 **Man Charged With Stealing Dozens of Skeletons From a Pennsylvania Cemetery, Authorities Say**\
 `Investigators recovered what was believed to be more than “100 full or partial sets of human and skeletal remains” from the man’s home and storage unit in Lancaster County, the district attorney said.`\
 https://nytimes.com/2026/01/09/us/grave-robbery-bones-remains-pennsylvania.html
-
-**How to watch Rockets vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6958283/2026/01/09/rockets-vs-trail-blazers-stream-how-to-watch-jan-9/
 
