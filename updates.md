@@ -1,3 +1,11 @@
+**Matt Turner sees 'clear pathway' back to USMNT for World Cup despite dip in stature**\
+`The 2022 World Cup starter last played for the national team in June, but he's game for another challenge in a career full of them`\
+https://nytimes.com/athletic/6956347/2026/01/09/matt-turner-usmnt-world-cup-goalkeeper-outlook/
+
+**Trae Young trade mailbag: Why did the Washington Wizards make the deal?**\
+`You have questions about the trade involving the four-time All-Star point guard. The Athletic's beat writer answered them.`\
+https://nytimes.com/athletic/6956721/2026/01/09/trae-young-trade-mailbag-washington-wizards/
+
 **How Liverpool shackled Arsenal to limit the league leaders' attack**\
 `Liverpool's defensive performance, particularly in the second half, was something Slot and his team can build on`\
 https://nytimes.com/athletic/6957002/2026/01/09/liverpool-arsenal-analysis-slot/
