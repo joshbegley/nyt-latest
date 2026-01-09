@@ -2,7 +2,7 @@
 `“Why is Kristi Noem always in some sort of cosplay outfit?” Seth Meyers asked on Thursday.`\
 https://nytimes.com/2026/01/09/arts/television/late-night-kristi-noem-hat.html
 
-**For the first time in 600 games Liverpool had no shot on target - but still made a step forward**\
+**For the first time in 600 games Liverpool didn't have a shot on target — but still made a step forward**\
 `Arne Slot's side may have failed to test the Arsenal goalkeeper but this was an impressive performance in the circumstances`\
 https://nytimes.com/athletic/6955514/2026/01/09/liverpool-arsenal-no-shots-600-games/
 
