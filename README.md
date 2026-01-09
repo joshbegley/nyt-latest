@@ -1,3 +1,11 @@
+**Flashback: Your Weekly History Quiz, Jan. 10, 2026**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2026/01/09/upshot/flashback.html
+
+**Fletcher: VAR should have looked at Walker, Dorgu incident**\
+`The interim coach referenced his team's disallowed goal in the first half which also involved the Burnley defender. `\
+https://nytimes.com/athletic/6957896/2026/01/09/dorgu-walker-manchester-united-fletcher-var/
+
 **How Miami will play a home game in the national championship**\
 `It's the first time in the BCS/College Football Playoff era that a team will "host" the national championship.`\
 https://nytimes.com/athletic/6957609/2026/01/09/miami-home-game-national-championship-hard-rock-stadium/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6957799/2026/01/09/liam-rosenior-chelsea-press-conf
 **Producers Guild Nominations Strengthen Oscar Odds for Five Films**\
 `“One Battle After Another,” “Sinners,” “Hamnet,” “Frankenstein” and “Marty Supreme” have now been recognized by all three major guilds.`\
 https://nytimes.com/2026/01/09/movies/producers-guild-nominations-oscars.html
-
-**‘The Correspondent’ Author Virginia Evans Talks About Her Breakout Novel**\
-`Evans’s epistolary tale, about a retired lawyer who spends her days writing to a series of pen pals, became one of last year’s sleeper hits.`\
-https://nytimes.com/2026/01/09/books/review/podcast-virginia-evans-correspondent-interview.html
-
-**Trump Officials Reopen Thousands of Refugee Claims in Minnesota**\
-`The review comes as the federal government escalates its immigration enforcement in the state.`\
-https://nytimes.com/2026/01/09/us/politics/minnesota-refugees-dhs-trump.html
 
