@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6956677/2026/01/09/victor-wembanyama-spurs-high-kic
 `This long-running feud may never be squashed. And Thomas added another chapter to the pettiness on Thursday.`\
 https://nytimes.com/athletic/6955995/2026/01/09/isiah-thomas-michael-jordan-comments-lebron-nba/
 
+**Edward Cabrera helps Cubs win now and stabilizes the rotation for the future**\
+`With three years of control left at arbitration rates, the acquisition of Cabrera gives the Cubs some breathing room. `\
+https://nytimes.com/athletic/6955525/2026/01/09/chicago-cubs-edward-cabrera-trade-rotation-impact/
+
 **The Pulse: An instant CFP classic**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6955367/2026/01/09/ole-miss-miami-playoff-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6947929/2026/01/09/oregon-indiana-college-football-
 **Rangers suffer another dispiriting loss after late Alexis Lafrenière turnover: Takeaways**\
 `The Rangers fell to their 15th loss at Madison Square Garden, where they haven't won a game in regulation since November.`\
 https://nytimes.com/athletic/6956712/2026/01/09/rangers-lafreniere-turnover-trocheck-sabres/
-
-**What Lions GM Brad Holmes said: Analyzing his comments on roster and missing playoffs**\
-`"If we’re not in the dance and we’re not competing for a championship, it’s a failure," Holmes said at his end-of-season news conference.`\
-https://nytimes.com/athletic/6956039/2026/01/09/lions-gm-brad-holmes-season-review/
 

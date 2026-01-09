@@ -1,3 +1,7 @@
+**Edward Cabrera helps Cubs win now and stabilizes the rotation for the future**\
+`With three years of control left at arbitration rates, the acquisition of Cabrera gives the Cubs some breathing room. `\
+https://nytimes.com/athletic/6955525/2026/01/09/chicago-cubs-edward-cabrera-trade-rotation-impact/
+
 **Isiah Thomas really doesn't seem to care for Michael Jordan, huh?**\
 `This long-running feud may never be squashed. And Thomas added another chapter to the pettiness on Thursday.`\
 https://nytimes.com/athletic/6955995/2026/01/09/isiah-thomas-michael-jordan-comments-lebron-nba/
