@@ -1,3 +1,7 @@
+**Everton 'surprised' as Michael Keane red card appeal rejected by FA**\
+`The defender will serve a three-match ban for pulling the hair of Wolverhampton Wanderers striker Tolu Arokodare.`\
+https://nytimes.com/athletic/6957132/2026/01/09/everton-michael-keane-red-card-appeal/
+
 **Blue Jackets' Boone Jenner, Sean Monahan seek 'a little more' after 5-3 loss to Vegas**\
 `Columbus' identity — which was so clear and reliable last season — remains a mystery.`\
 https://nytimes.com/athletic/6956817/2026/01/09/blue-jackets-vegas-loss-jenner-monahan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6953006/2026/01/09/penguins-malkin-return-dewar-dev
 **Panthers-Rams: Key questions, matchups and a prediction for NFC wild-card game**\
 `The Panthers host their first playoff game in eight years as heavy underdogs, facing a Rams team they already beat once.`\
 https://nytimes.com/athletic/6955910/2026/01/09/panthers-rams-nfc-wild-card-preview/
-
-**The Canadiens have a brand of hockey to call their own, a critical step in the rebuild**\
-`Martin St. Louis used to talk with envy about other teams in the Canadiens' division that had an established brand of hockey. No longer. `\
-https://nytimes.com/athletic/6956887/2026/01/09/canadiens-beat-panthers-texier-style-rebuild/
 
