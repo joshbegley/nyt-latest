@@ -8,6 +8,16 @@ https://nytimes.com/athletic/6953597/2026/01/09/forest-saw-kalimuendo-as-a-state
 `\
 https://nytimes.com/athletic/6956702/2026/01/09/sec-ole-miss-playbook-adjustment/
 
+**Forest saw Kalimuendo as a statement signing. Five months later, they have a new shortlist**\
+`The striker’s departure on loan to Frankfurt says as much about the chaos that has engulfed Forest as it does about his own potential
+`\
+https://nytimes.com/athletic/6953597/2026/01/09/forest-saw-kalimuendo-as-a-statement-signing-five-months-later-they-are-forward-planning-again/
+
+**The SEC’s old playbook is finished. Now comes the adjustment**\
+`NIL and the transfer portal have whittled away the SEC’s dominance. Adjusting is the only way forward.
+`\
+https://nytimes.com/athletic/6956702/2026/01/09/sec-ole-miss-playbook-adjustment/
+
 **Was Ole Miss robbed of a pass-interference call on Hail Mary vs. Miami?**\
 `ESPN's in-booth official called the final play of the game "mutual combat." `\
 https://nytimes.com/athletic/6956759/2026/01/09/ole-miss-pass-interference-miami-fiesta-bowl-ending/
