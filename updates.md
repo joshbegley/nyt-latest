@@ -1,3 +1,11 @@
+**Outside prisons in Caracas, Venezuelans anxiously await the release of more political detainees.**\
+`By The New York Times`\
+https://nytimes.com/live/2026/01/09/world/venezuela-trump-us/outside-prisons-in-caracas-venezuelans-anxiously-await-the-release-of-more-political-detainees
+
+**The Best Light-Therapy Lamp **\
+`Text by Nancy Redd`\
+https://nytimes.com/card/2026/01/09/smarter-living/wirecutter/
+
 **Owner of Swiss Bar Detained in Fire Investigation**\
 `Prosecutors in Switzerland ordered Jacques Moretti to be detained after investigators questioned him and his wife, Jessica Moretti. Officials are looking into whether negligence played a role in last week’s deadly fire at their bar, Le Constellation.`\
 https://nytimes.com/video/world/europe/100000010635277/switzerland-bar-owner-detained-fire-investigation.html
