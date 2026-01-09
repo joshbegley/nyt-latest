@@ -1,3 +1,11 @@
+**Landfill Collapse in Philippines Leaves Two Dead and Dozens Missing**\
+`A garbage mound outside Cebu City in the central Philippines collapsed on Thursday. Rescuers are searching for 36 missing people, including some trapped under the debris.`\
+https://nytimes.com/2026/01/09/world/asia/philippines-landfill-collapse-cebu.html
+
+**Times Reporters Are on a Scientific Expedition to Antarctica. Send in Your Questions.**\
+`Students of all ages are invited to send in video questions for possible inclusion in dispatches from the trip. Deadline: Jan 16.`\
+https://nytimes.com/2026/01/09/learning/times-reporters-are-on-a-scientific-expedition-to-antarctica-send-in-your-questions.html
+
 **Iran Plunges Into Internet Blackout as Protests Intensify**\
 `Internet monitoring groups reported an abrupt drop in connection levels in Iran as anti-government protests continued to grow. Iran’s supreme leader dismissed days of fierce protest as wanton destruction.`\
 https://nytimes.com/video/world/middleeast/100000010634245/iran-protests-internet-ayatollah.html
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6956721/2026/01/09/trae-young-trade-mailbag-washing
 `Liverpool's defensive performance, particularly in the second half, was something Slot and his team can build on`\
 https://nytimes.com/athletic/6957002/2026/01/09/liverpool-arsenal-analysis-slot/
 
-**Trump Administration Live Updates: Supreme Court Expected to Release First Opinions of Term**\
+**Trump Administration Live Updates: Supreme Court Is Expected to Release First Opinions of Term**\
 ``\
 https://nytimes.com/live/2026/01/09/us/trump-news
-
-**What to Know About the Oreshnik, the Missile Russia Used Against Ukraine**\
-`The attack was just the second time that Moscow had launched the nuclear-capable intermediate-range ballistic weapon.`\
-https://nytimes.com/2026/01/09/world/europe/oreshnik-ballistic-missile-russia-ukraine.html
-
-**Bill Gates Makes a Multibillion-Dollar Divorce Payout**\
-`The billionaire and philanthropist has made a nearly $8 billion payment to the private foundation of his ex-wife, Melinda French Gates, new tax filings show.`\
-https://nytimes.com/2026/01/09/business/dealbook/gates-divorce-settlement.html
 

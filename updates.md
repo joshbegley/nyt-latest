@@ -1,3 +1,15 @@
+**Landfill Collapse in Philippines Leaves Two Dead and Dozens Missing**\
+`A garbage mound outside Cebu City in the central Philippines collapsed on Thursday. Rescuers are searching for 36 missing people, including some trapped under the debris.`\
+https://nytimes.com/2026/01/09/world/asia/philippines-landfill-collapse-cebu.html
+
+**Times Reporters Are on a Scientific Expedition to Antarctica. Send in Your Questions.**\
+`Students of all ages are invited to send in video questions for possible inclusion in dispatches from the trip. Deadline: Jan 16.`\
+https://nytimes.com/2026/01/09/learning/times-reporters-are-on-a-scientific-expedition-to-antarctica-send-in-your-questions.html
+
+**Trump Administration Live Updates: Supreme Court Is Expected to Release First Opinions of Term**\
+``\
+https://nytimes.com/live/2026/01/09/us/trump-news
+
 **Iran Plunges Into Internet Blackout as Protests Intensify**\
 `Internet monitoring groups reported an abrupt drop in connection levels in Iran as anti-government protests continued to grow. Iran’s supreme leader dismissed days of fierce protest as wanton destruction.`\
 https://nytimes.com/video/world/middleeast/100000010634245/iran-protests-internet-ayatollah.html
