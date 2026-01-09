@@ -1,3 +1,11 @@
+**Mohammed Harbi, Who Rewrote Algeria’s History, Dies at 92**\
+`He was an official in the revolutionary government, then, after the country won independence from France, was imprisoned and eventually wrote from exile.`\
+https://nytimes.com/2026/01/09/world/africa/mohammed-harbi-dead.html
+
+**Judge Blocks Trump Officials From Freezing Billions in Social Services Funds**\
+`The ruling temporarily halted plans to freeze more than $10 billion in funds for anti-poverty programs bound for five Democratic-led states.`\
+https://nytimes.com/2026/01/09/us/politics/trump-child-care-funding-freeze.html
+
 **Outside prisons in Caracas, Venezuelans anxiously await the release of more political detainees.**\
 `By The New York Times`\
 https://nytimes.com/live/2026/01/09/world/venezuela-trump-us/outside-prisons-in-caracas-venezuelans-anxiously-await-the-release-of-more-political-detainees
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/09/world/americas/trump-greenland-annex.html
 **Trump Pressures Oil Giants to Invest in Venezuela**\
 `Also, protests spread across Iran. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2026/01/09/briefing/trump-oil-venezuela-protests-iran.html
-
-**Mamdani’s First Big Move to Help Renters Is Dealt a Blow by Court**\
-`Summit Properties USA won an auction on Friday to buy more than 5,000 apartments out of bankruptcy from the Pinnacle Group despite City Hall’s efforts to intervene.`\
-https://nytimes.com/2026/01/09/nyregion/mamdani-pinnacle-apartments.html
-
-**Mamdani Condemns Slurs and Pro-Hamas Chant at Heated Queens Protest**\
-`Pro-Palestinian and pro-Israel demonstrators hurled threats at each other outside an event promoting real estate sales in Jerusalem. The mayor said those actions had “no place in our city.”`\
-https://nytimes.com/2026/01/09/nyregion/mamdani-hamas-israel-gaza-protest.html
 
