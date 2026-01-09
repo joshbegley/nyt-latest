@@ -1,3 +1,11 @@
+**Handing Out Free Tickets, Mamdani Says Theater Should Not Be ‘a Luxury’**\
+`The mayor said a new collaboration with the Under the Radar festival was part of an arts affordability agenda that he intends to pursue.`\
+https://nytimes.com/2026/01/09/theater/mamdani-under-radar-theater.html
+
+**Olympic hockey rink opens test event with holes in the exterior — and the ice**\
+`Only three of 14 locker rooms that will soon host Olympic hockey teams are complete with less than four weeks to go before the Games.`\
+https://nytimes.com/athletic/6958181/2026/01/09/olympic-hockey-rink-construction-first-look/
+
 **The Briefing: Cameroon 0 Morocco 2 - Hosts through to AFCON semi-finals as Brahim Diaz scores yet again**\
 `The Athletic's writers analyse the second quarter-final at the 2025 Africa Cup of Nations`\
 https://nytimes.com/athletic/6949009/2026/01/09/cameroon-morocco-afcon-analysis/
