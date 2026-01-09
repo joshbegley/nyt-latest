@@ -1,3 +1,7 @@
+**How Our White House Photographer Finds New Angles on the Oval Office**\
+`Doug Mills, winner of three Pulitzers, sits, crawls and hoists cameras high in the air to bring viewers fresh perspectives. He was at it again this week during our marathon interview with President Trump.`\
+https://nytimes.com/2026/01/09/insider/how-our-white-house-photographer-finds-new-angles-on-the-oval-office.html
+
 **Stir-Fried Lettuce With Crispy Garlic and Fried Eggs**\
 `Stir-fried lettuce is commonly served as a bed for braised mushrooms or simply as a green side dish. Here, stir-fried lettuce, fried eggs and crispy garlic chips perch on a bed of rice, a simple meal with comforting flavors and textures.`\
 https://nytimes.com/video/dining/100000010368613/stir-fried-lettuce-with-crispy-garlic-and-fried-eggs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6950194/2026/01/09/antoine-semenyo-manchester-city-
 **Arsenal's hope this can be an era of Saka the leader, the winner, after new deal**\
 `The winger has committed the best years of his career to his boyhood club with this latest new contract. Can he lead them to the next level?`\
 https://nytimes.com/athletic/6957484/2026/01/09/saka-arsenal-contract-five-years-era/
-
-**The Century-Long Tug of War for Venezuela’s Oil**\
-`The country’s oil industry has undergone major shifts and two waves of nationalization since its first well started pumping in 1914.`\
-https://nytimes.com/2026/01/09/business/venezuela-oil-industry-timeline-trump.html
 
