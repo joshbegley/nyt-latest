@@ -1,4 +1,12 @@
-**220,000 Fewer Workers: How Trump's Cuts Affected Every Federal Agency**\
+**Dodgers sign Andy Ibáñez and claim Ryan Fitzgerald, improving infield depth**\
+`With Tommy Edman's status for Opening Day unclear, the Dodgers are giving themselves plenty of options for the middle infield.`\
+https://nytimes.com/athletic/6958218/2026/01/09/dodgers-andy-ibanez-ryan-fitzgerald-infield-additions/
+
+**Tottenham agree deal to sign Santos left-back Souza**\
+`The 19-year-old came through Santos’ youth ranks and made his top-flight debut in May of last year.`\
+https://nytimes.com/athletic/6941907/2026/01/09/tottenham-souza-santos-transfer/
+
+**220,000 Fewer Workers: How Trump’s Cuts Affected Every Federal Agency**\
 `New data offers the first clear view of the impact of the buyouts and firings.`\
 https://nytimes.com/interactive/2026/01/09/upshot/trump-workforce-cuts-table.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6957765/2026/01/09/team-canada-womens-hockey-roster
 **Minneapolis Mayor Calls for State Role in Deadly ICE Shooting**\
 `With the Minneapolis area in a state of upheaval, Minnesota officials renewed their calls on Friday for state agents to be allowed to help investigate the fatal shooting of a woman by an Immigration and Customs Enforcement officer earlier this week.`\
 https://nytimes.com/video/us/100000010635301/ice-shooting-minneapolis-investigation-state-agents.html
-
-**Measles Outbreak in South Carolina Worsens**\
-`The outbreak has now spread to more than 300 people, most of them children.`\
-https://nytimes.com/2026/01/09/well/measles-outbreak-new-cases-south-carolina.html
-
-**Man Charged With Stealing Dozens of Skeletons From a Pennsylvania Cemetery, Authorities Say**\
-`Investigators recovered what was believed to be more than “100 full or partial sets of human and skeletal remains” from the man’s home and storage unit in Lancaster County, the district attorney said.`\
-https://nytimes.com/2026/01/09/us/grave-robbery-bones-remains-pennsylvania.html
 
