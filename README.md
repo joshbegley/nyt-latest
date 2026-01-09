@@ -1,3 +1,19 @@
+**Runway Wall Caused All the Deaths in 2024 South Korean Plane Crash, Report Says**\
+`A computer simulation ordered by the government showed that everyone on board would have survived if the concrete berm had been made of materials that easily broke apart.`\
+https://nytimes.com/2026/01/09/world/asia/korea-plane-crash-wall.html
+
+**Here’s the latest.**\
+`By Jack Nicas, Emma Bubola, Emiliano Rodríguez Mega and Genevieve Glatsky`\
+https://nytimes.com/live/2026/01/09/world/venezuela-trump-us/heres-the-latest
+
+**Live Updates: Trump Says More U.S. Attacks on Venezuela ‘Will Not Be Needed’**\
+`President Trump cited cooperation from the country’s new leaders, who began releasing political prisoners on Thursday in an apparent concession after the U.S. capture of President Nicolás Maduro.`\
+https://nytimes.com/live/2026/01/09/world/venezuela-trump-us
+
+**It's hard to beat the same college football team twice ... or is it?**\
+`Indiana beat Oregon in October, and now it must do so again to reach the College Football Playoff championship. How hard are rematches?`\
+https://nytimes.com/athletic/6955391/2026/01/09/indiana-oregon-college-football-playoff-rematches/
+
 **NFL insider playoff predictions: Coaches, execs pick wild-card round winners**\
 `Our panelists came to a consensus on a pair of wild-card games, but there were intriguing matchups that had our panel divided. `\
 https://nytimes.com/athletic/6950811/2026/01/09/nfl-insider-playoff-predictions-wild-card-round-bears-packers-bills/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6955713/2026/01/09/chiefs-ravens-bengals-offseason-
 **Joey Porter Jr.'s development will be tested in the biggest game of his career**\
 `The third-year cornerback could be Pittsburgh's best answer for Texans star receiver Nico Collins.`\
 https://nytimes.com/athletic/6956004/2026/01/09/joey-porter-jr-pittsburgh-steelers-development/
-
-**8 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2026/01/09/movies/new-movies-this-week-critics.html
-
-**The New York Times International Edition in Print for Saturday, Jan. 10, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/01/09/todays-new-york-times-international-edition
-
-**Mandel: CFB is better when more teams get chance to earn their trip to the title game**\
-`Miami has truly earned its appearance in the national championship. No one can say otherwise — or that it's bad for the sport. `\
-https://nytimes.com/athletic/6956944/2026/01/09/miami-ole-miss-college-football-playoff-expansion/
-
-**Iran’s Supreme Leader Says Protests Are Happening to ‘Please’ Trump**\
-`After days of fierce protest in cities around Iran, Ayatollah Ali Khamenei dismissed the demonstrations as vandalism and wanton destruction.`\
-https://nytimes.com/2026/01/09/world/middleeast/iran-protests-ayatollah-khamenei.html
 
