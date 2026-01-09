@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6953597/2026/01/09/forest-saw-kalimuendo-as-a-state
 `\
 https://nytimes.com/athletic/6953597/2026/01/09/forest-saw-kalimuendo-as-a-statement-signing-five-months-later-they-are-forward-planning-again/
 
+**Forest saw Kalimuendo as a statement signing. Five months later, they have a new shortlist**\
+`The striker’s departure on loan to Frankfurt says as much about the chaos that has engulfed Forest as it does about his own potential
+`\
+https://nytimes.com/athletic/6953597/2026/01/09/forest-saw-kalimuendo-as-a-statement-signing-five-months-later-they-are-forward-planning-again/
+
 **For the first time in 600 games Liverpool didn't have a shot on target — but still made a step forward**\
 `Arne Slot's side may have failed to test the Arsenal goalkeeper but this was an impressive performance in the circumstances`\
 https://nytimes.com/athletic/6955514/2026/01/09/liverpool-arsenal-no-shots-600-games/
