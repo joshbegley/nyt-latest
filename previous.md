@@ -1,3 +1,11 @@
+**Once Again, a Newfoundland Town Rescues Stranded Passengers**\
+`After 9/11, Gander took in thousands of people whose flights were diverted. History repeated on a smaller scale this week.`\
+https://nytimes.com/2026/01/08/world/canada/gander-canada-airport-stranded-travelers.html
+
+**Bulls-Heat game delayed due to condensation on United Center court**\
+`Water was visible on the court moments before the scheduled tip-off, with humidity levels at above-normal levels, league sources said.`\
+https://nytimes.com/athletic/6956372/2026/01/08/bulls-heat-game-delayed-united-center/
+
 **What the Ellis trade tells us about the Blackhawks' 2026-27 NHL roster structure**\
 `With plenty of veteran talent coming off the books this summer, trading for Ryan Ellis' contract is the next step in Kyle Davidson's plan.`\
 https://nytimes.com/athletic/6955774/2026/01/08/blackhawks-roster-structure-davidson-prospects/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6951113/2026/01/08/colts-chris-ballard-carlie-irsay
 **Day 5: Make These 5 Appointments to Protect Your Brain**\
 `When was the last time you checked your blood pressure? Today, use a checklist to stay healthy in body and mind.`\
 https://nytimes.com/interactive/2026/well/brain-health-doctor-appointments.html
-
-**Saquon Barkley: Christian McCaffrey is 'one of the best' backs to ever play**\
-`Barkley, the 2024 NFL offensive player of the year, and McCaffrey, the 2023 offensive player of the year, are extremely competitive`\
-https://nytimes.com/athletic/6955944/2026/01/08/saquon-barkley-christian-mccaffrey-running-back-eagles-49ers/
-
-**Families of Slain Idaho Students Sue the University the Killer Attended**\
-`A new lawsuit claims that Washington State University, where Bryan Kohberger was a Ph.D. student, failed to take decisive action on earlier complaints that he was stalking women.`\
-https://nytimes.com/2026/01/08/us/idaho-murders-kohberger-victim-families-lawsuit.html
 

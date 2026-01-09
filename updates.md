@@ -1,3 +1,11 @@
+**Once Again, a Newfoundland Town Rescues Stranded Passengers**\
+`After 9/11, Gander took in thousands of people whose flights were diverted. History repeated on a smaller scale this week.`\
+https://nytimes.com/2026/01/08/world/canada/gander-canada-airport-stranded-travelers.html
+
+**Bulls-Heat game delayed due to condensation on United Center court**\
+`Water was visible on the court moments before the scheduled tip-off, with humidity levels at above-normal levels, league sources said.`\
+https://nytimes.com/athletic/6956372/2026/01/08/bulls-heat-game-delayed-united-center/
+
 **What the Ellis trade tells us about the Blackhawks' 2026-27 NHL roster structure**\
 `With plenty of veteran talent coming off the books this summer, trading for Ryan Ellis' contract is the next step in Kyle Davidson's plan.`\
 https://nytimes.com/athletic/6955774/2026/01/08/blackhawks-roster-structure-davidson-prospects/
