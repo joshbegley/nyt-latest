@@ -1,3 +1,7 @@
+**Arsenal disappointed and frustrated - but winning the title means having to grind**\
+`Mikel Arteta's side were frustrated by Liverpool but the idea that they would breeze to the title was always fanciful `\
+https://nytimes.com/athletic/6956286/2026/01/09/arsenal-liverpool-title-grind/
+
 **The New York Times in Print for Friday, Jan. 9, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/09/todays-new-york-times
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6953682/2026/01/09/terry-yorath-leeds-bradford-tott
 **Chelsea's winners under Liam Rosenior – and why there will be so few losers**\
 `Liam Rosenior’s appointment at Chelsea has been about continuity, but many players will be hoping their new coach can bring about change`\
 https://nytimes.com/athletic/6949401/2026/01/09/chelsea-liam-rosenior-squad-analysis/
-
-**Travis Konecny leaves game under mysterious circumstances as Flyers' injury list grows**\
-`Coach Rick Tocchet explained what happened with Konecny in the Flyers' 2-1 overtime loss to the Toronto Maple Leafs. Kind of.`\
-https://nytimes.com/athletic/6956694/2026/01/09/flyers-travis-konecny-leaves-game/
 
