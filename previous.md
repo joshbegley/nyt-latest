@@ -1,3 +1,7 @@
+**The New York Times in Print for Friday, Jan. 9, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/09/todays-new-york-times
+
 **Was Ole Miss robbed of a pass-interference call on Hail Mary vs. Miami?**\
 `ESPN's in-booth official called the final play of the game "mutual combat." `\
 https://nytimes.com/athletic/6956759/2026/01/09/ole-miss-pass-interference-miami-fiesta-bowl-ending/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6949401/2026/01/09/chelsea-liam-rosenior-squad-anal
 **Travis Konecny leaves game under mysterious circumstances as Flyers' injury list grows**\
 `Coach Rick Tocchet explained what happened with Konecny in the Flyers' 2-1 overtime loss to the Toronto Maple Leafs. Kind of.`\
 https://nytimes.com/athletic/6956694/2026/01/09/flyers-travis-konecny-leaves-game/
-
-**Clubs should not act surprised when managers adhere to philosophies set out on day one**\
-`This season has been quite the jolt for those coaches who, to borrow a line from Jose Mourinho, are willing to “die for an idea”`\
-https://nytimes.com/athletic/6954812/2026/01/09/manager-sacked-philosophy-amorim-nancy-maresca/
 
