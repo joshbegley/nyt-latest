@@ -1,3 +1,7 @@
+**Trump Appears Open to Defending Ukraine, but With a Caveat**\
+`The president told The Times that he felt “strongly” that Russia would not invade Ukraine again.`\
+https://nytimes.com/2026/01/08/us/politics/trump-ukraine-russia.html
+
 **Michigan makes portal splash with All-Big 12 DE from Utah**\
 `John Henry Daley finished sixth in the FBS in sacks and announced he's following Kyle Whittingham to Michigan from Utah.`\
 https://nytimes.com/athletic/6956206/2026/01/08/john-henry-daley-michigan-commitment-portal-utah/
@@ -22,7 +26,7 @@ https://nytimes.com/2026/01/08/us/idaho-murders-kohberger-victim-families-lawsui
 `Astronomers announced the discovery of a starless cloud of hydrogen gas, a pristine relic of the cosmos that is almost as old as time itself.`\
 https://nytimes.com/2026/01/08/science/cloud-9-starless-dark-galaxy.html
 
-**Demond Williams announces he'll return to Washington for junior season**\
+**Washington QB Williams announces return after contract, transfer portal drama**\
 `Announcement ends two-day saga over the status of Huskies' star quarterback.`\
 https://nytimes.com/athletic/6956193/2026/01/08/washington-football-demond-williams-returning-nil-transfer/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/08/nyregion/steven-spielberg-zohran-mamdani-meeting.
 **Trump Orders Fannie and Freddie to Buy $200 Billion in Mortgage Bonds**\
 `The move, a bid to make homes more affordable, would be a back-to-future moment for the two mortgage firms. Buying risky mortgage bonds helped push them to near-bankruptcy in 2008.`\
 https://nytimes.com/2026/01/08/business/trump-fannie-freddie-mortgage-bonds.html
-
-**Bo Bichette offered free steak for life at favorite eatery to stay with Blue Jays**\
-`A Toronto restaurant is sweetening the pot for Bichette with a juicy offer if the free-agent shortstop stays in Toronto.`\
-https://nytimes.com/athletic/6955839/2026/01/08/blue-jays-bo-bichette-free-steak/
 

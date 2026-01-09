@@ -1,3 +1,11 @@
+**Trump Appears Open to Defending Ukraine, but With a Caveat**\
+`The president told The Times that he felt “strongly” that Russia would not invade Ukraine again.`\
+https://nytimes.com/2026/01/08/us/politics/trump-ukraine-russia.html
+
+**Washington QB Williams announces return after contract, transfer portal drama**\
+`Announcement ends two-day saga over the status of Huskies' star quarterback.`\
+https://nytimes.com/athletic/6956193/2026/01/08/washington-football-demond-williams-returning-nil-transfer/
+
 **Michigan makes portal splash with All-Big 12 DE from Utah**\
 `John Henry Daley finished sixth in the FBS in sacks and announced he's following Kyle Whittingham to Michigan from Utah.`\
 https://nytimes.com/athletic/6956206/2026/01/08/john-henry-daley-michigan-commitment-portal-utah/
