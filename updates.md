@@ -1,3 +1,19 @@
+**Runway Wall Caused All the Deaths in 2024 South Korean Plane Crash, Report Says**\
+`A computer simulation ordered by the government showed that everyone on board would have survived if the concrete berm had been made of materials that easily broke apart.`\
+https://nytimes.com/2026/01/09/world/asia/korea-plane-crash-wall.html
+
+**Here’s the latest.**\
+`By Jack Nicas, Emma Bubola, Emiliano Rodríguez Mega and Genevieve Glatsky`\
+https://nytimes.com/live/2026/01/09/world/venezuela-trump-us/heres-the-latest
+
+**Live Updates: Trump Says More U.S. Attacks on Venezuela ‘Will Not Be Needed’**\
+`President Trump cited cooperation from the country’s new leaders, who began releasing political prisoners on Thursday in an apparent concession after the U.S. capture of President Nicolás Maduro.`\
+https://nytimes.com/live/2026/01/09/world/venezuela-trump-us
+
+**It's hard to beat the same college football team twice ... or is it?**\
+`Indiana beat Oregon in October, and now it must do so again to reach the College Football Playoff championship. How hard are rematches?`\
+https://nytimes.com/athletic/6955391/2026/01/09/indiana-oregon-college-football-playoff-rematches/
+
 **NFL insider playoff predictions: Coaches, execs pick wild-card round winners**\
 `Our panelists came to a consensus on a pair of wild-card games, but there were intriguing matchups that had our panel divided. `\
 https://nytimes.com/athletic/6950811/2026/01/09/nfl-insider-playoff-predictions-wild-card-round-bears-packers-bills/
