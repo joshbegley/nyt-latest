@@ -1,3 +1,11 @@
+**After Police Kill 2 People in One Night, Mamdani Responds Cautiously**\
+`Mayor Zohran Mamdani did not call the shootings justified, but said New York Police officers were placed in “incredibly difficult and dangerous circumstances.”`\
+https://nytimes.com/2026/01/09/nyregion/mamdani-nypd-shootings.html
+
+**Dodgers bolster infield depth by adding Andy Ibáñez, Ryan Fitzgerald**\
+`With Tommy Edman's status for Opening Day unclear, the Dodgers are giving themselves plenty of options for the middle infield.`\
+https://nytimes.com/athletic/6958218/2026/01/09/dodgers-andy-ibanez-ryan-fitzgerald-infield-additions/
+
 **Handing Out Free Tickets, Mamdani Says Theater Should Not Be ‘a Luxury’**\
 `The mayor said a new initiative by the Under the Radar festival exemplified an arts affordability agenda that he intends to pursue.`\
 https://nytimes.com/2026/01/09/theater/mamdani-under-radar-theater.html
