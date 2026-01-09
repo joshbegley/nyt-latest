@@ -1,3 +1,11 @@
+**Federal Agents Shoot 2 in Portland, Ore.**\
+`Federal agents shot two people during a traffic stop in Portland, Ore., one day after an ICE agent in Minnesota killed a woman in her vehicle.`\
+https://nytimes.com/video/us/100000010633788/federal-agents-shooting-portland.html
+
+**What We Know About the Shooting in Portland, Ore.**\
+`Two people were shot by federal agents during a traffic stop. Gov. Tina Kotek of Oregon has called for a transparent investigation.`\
+https://nytimes.com/2026/01/09/us/portland-oregon-shooting-border-patrol.html
+
 **N.Y.P.D. Fatally Shoots Man Who Drew a Fake Gun in the West Village**\
 `Officers shot the driver of a BMW that had been involved in a motor vehicle incident after he drew an imitation firearm, the police said.`\
 https://nytimes.com/2026/01/09/nyregion/ny-police-shooting-west-village.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/09/crosswords/spelling-bee-forum.html
 **Zohran Mamdani and Kathy Hochul Are Pals Right Now. Will It Last?**\
 `The legislative session that began this week poses a significant test of the most closely watched collaboration in state and city politics.`\
 https://nytimes.com/2026/01/09/nyregion/zohran-mamdani-kathy-hochul.html
-
-**Riding the Roller Coaster Beat**\
-`Mekado Murphy, the assistant film editor for The New York Times, moonlights as the newspaper’s unofficial roller coaster correspondent.`\
-https://nytimes.com/2026/01/09/insider/riding-the-roller-coaster-beat.html
-
-**Late Night Is Distracted by Kristi Noem’s Oversized Cowboy Hat**\
-`“Why is Kristi Noem always in some sort of cosplay outfit?” Seth Meyers asked on Thursday.`\
-https://nytimes.com/2026/01/09/arts/television/late-night-kristi-noem-hat.html
 

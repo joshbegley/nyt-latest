@@ -1,3 +1,7 @@
+**City complete signing of Semenyo on contract until 2031**\
+`The deal sees City pay £62.5m (€71.97m) guaranteed and £1.5m (€1.7m) in bonuses for the 26-year-old.`\
+https://nytimes.com/athletic/6915798/2026/01/09/man-city-sign-semenyo-transfer-news/
+
 **Federal Agents Shoot 2 in Portland, Ore.**\
 `Federal agents shot two people during a traffic stop in Portland, Ore., one day after an ICE agent in Minnesota killed a woman in her vehicle.`\
 https://nytimes.com/video/us/100000010633788/federal-agents-shooting-portland.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/09/nyregion/maduro-new-york-helicopter-security.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/01/09/crosswords/spelling-bee-forum.html
-
-**Zohran Mamdani and Kathy Hochul Are Pals Right Now. Will It Last?**\
-`The legislative session that began this week poses a significant test of the most closely watched collaboration in state and city politics.`\
-https://nytimes.com/2026/01/09/nyregion/zohran-mamdani-kathy-hochul.html
 
