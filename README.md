@@ -3,11 +3,11 @@
 https://nytimes.com/2026/01/08/nyregion/nypd-shooting-hospital-brooklyn.html
 
 **Patrick Kane becomes fifth American-born player to score 500 NHL goals**\
-`The goal, an empty-netter against the Canucks, was his second of the night for the Red Wings as the bench emptied in celebration.`\
+`The goal, an empty-netter against the Canucks, was his second of the night for the Red Wings.`\
 https://nytimes.com/athletic/6956505/2026/01/08/patrick-kane-nhl-500-goals/
 
 **Russia Appears to Use Nuclear-Capable Missile in Ukraine**\
-`If confirmed, the use of the missile would be an ominous threat to Ukraine and its Western allies.`\
+`If confirmed, the use of the missile, would be an ominous threat to Ukraine and its Western allies.`\
 https://nytimes.com/2026/01/08/world/europe/russia-ukraine-nuclear-capable-missile.html
 
 **‘The Pitt’ Season 2 Premiere Recap: The Doctors Will See You Now**\
