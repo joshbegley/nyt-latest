@@ -1,40 +1,40 @@
-**Miami ends Ole Miss' post-Kiffin magic, earns CFP title game spot with dramatic win**\
-`No. 10 Miami beat No. 6 Ole Miss 31-27 thanks to a late Carson Beck touchdown in the Fiesta Bowl College Football Playoff semifinal.`\
-https://nytimes.com/athletic/6956498/2026/01/08/miami-ole-miss-score-fiesta-bowl-cfp/
+**Kane chases record, Musiala returns and Bellingham’s chance. Welcome back, Bundesliga**\
+`As German football wakes from hibernation, here are some themes and plotlines to keep an eye on in the second half of the season`\
+https://nytimes.com/athletic/6949098/2026/01/09/bundesliga-return-bayern-munich-jobe-bellingham/
 
-**One day after trade, Cubs, Edward Cabrera reach agreement before deadline: Sources**\
-`The club also avoided arbitration with Justin Steele, finalizing deals with two of their best and most valuable pitchers. `\
-https://nytimes.com/athletic/6956628/2026/01/08/cubs-edward-cabrera-avoid-arbitration/
+**Quote of the Day: Fatal Shooting by ICE Is Latest Blow to Minnesota**\
+`Quotation of the Day for Friday, January 9, 2026`\
+https://nytimes.com/2026/01/09/pageoneplus/quote-of-the-day-fatal-shooting-by-ice-is-latest-blow-to-minnesota.html
 
-**N.Y.P.D. Fatally Shoots Blade-Wielding Man in Hospital, Officials Say**\
-`The man had cut and then barricaded himself in a blood-spattered room with a patient and a security guard at NewYork-Presbyterian Brooklyn Methodist Hospital, the police said.`\
-https://nytimes.com/2026/01/08/nyregion/nypd-shooting-hospital-brooklyn.html
+**Corrections: Jan. 9, 2026**\
+`Corrections that appeared in print on Friday, Jan. 9, 2026.`\
+https://nytimes.com/2026/01/09/pageoneplus/corrections-jan-9-2026.html
 
-**Patrick Kane becomes fifth American-born player to score 500 NHL goals**\
-`The goal, an empty-netter against the Canucks, was his second of the night for the Red Wings as the bench emptied in celebration.`\
-https://nytimes.com/athletic/6956505/2026/01/08/patrick-kane-nhl-500-goals/
+**Inside the Generals’ Gilded Fortress, Empty Streets and Moldy Corners**\
+`Myanmar’s junta created a capital to withstand an invasion. Now, the military struggles to project an image of control over a crumbling nation.`\
+https://nytimes.com/2026/01/09/world/asia/myanmar-capital-naypyidaw.html
 
-**Russia Appears to Use Nuclear-Capable Missile in Ukraine**\
-`If confirmed, the use of the missile would be an ominous threat to Ukraine and its Western allies.`\
-https://nytimes.com/2026/01/08/world/europe/russia-ukraine-nuclear-capable-missile.html
+**She Planned Hundreds of Weddings. Now Her Own.**\
+`A pandemic-era first date, a brief separation, and a time of grief led Reneille-Gian Paneda Velez and Brian Michael Teodoro to a winter wedding in Seattle.`\
+https://nytimes.com/2026/01/09/style/reneille-gian-velez-brian-teodoro-wedding.html
 
-**‘The Pitt’ Season 2 Premiere Recap: The Doctors Will See You Now**\
-`Doctor Robby is back for one final shift before he goes on sabbatical. What could possibly go wrong?`\
-https://nytimes.com/2026/01/08/arts/television/the-pitt-recap-season-2-premiere.html
+**From Bandmates to Soul Mates**\
+`Joshua Sudman and Julian Wright met in college, formed a band and wrestled for years with feelings they couldn’t quite confront.`\
+https://nytimes.com/2026/01/09/style/joshua-sudman-julian-wright-wedding.html
 
-**Wilde Thing**\
-`Greg Snitkin and Glenn Davis supply a spirited collaboration.`\
-https://nytimes.com/2026/01/08/crosswords/daily-puzzle-2026-01-09.html
+**She Was 40. I Was 20. Could We Make It Work?**\
+`Strangers stared when we held hands in public. Some assumed I was her adopted son.`\
+https://nytimes.com/2026/01/09/style/modern-love-age-gap-she-was-40-i-was-20.html
 
-**5 Democratic States Sue Trump Administration Over $10 Billion Funding Freeze**\
-`The administration cited without evidence “potential” widespread fraud in its move to cut off funds for child care subsidies and other support for low-income families.`\
-https://nytimes.com/2026/01/08/us/politics/blue-states-trump-funding-hhs-lawsuit.html
+**Connections: Sports Edition Coach: Hints for Jan. 9, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6956569/2026/01/09/connections-sports-edition-hints-for-jan-9-2026/
 
-**Timberwolves hold moment of silence for Minneapolis woman killed by ICE agent**\
-`Timberwolves coach Chris Finch said before the Cavaliers game that the organization was thinking of Renee Nicole Good and her family.`\
-https://nytimes.com/athletic/6956231/2026/01/08/minneapolis-ice-shooting-renee-nicole-good-timberwolves/
+**She Remembered ‘That Kid Who Used to Be in Love’ With Her**\
+`On Christmas Eve, Colleen DeCourcy and Jason MacDonald finished what began four decades ago during a production of “Guys and Dolls.”`\
+https://nytimes.com/2026/01/09/style/colleen-decourcy-jason-macdonald-wedding.html
 
-**After month-long wait, Rick Carlisle becomes 11th NBA coach to win 1,000 games**\
-`Carlisle, who led Dallas to the 2011 title and Indiana to the Finals last season, finally became one of two active coaches with 1,000 wins.`\
-https://nytimes.com/athletic/6883811/2026/01/08/rick-carlisle-pacers-wins-1000/
+**He Runs the World’s Biggest Sovereign Wealth Fund, but His Podcast Made Him Famous**\
+`Nicolai Tangen wanted to raise the profile of Norway’s $2.1 trillion oil fund and change corporate behavior, but he may have helped embroil it in a geopolitical tangle.`\
+https://nytimes.com/2026/01/09/business/economy/nicolai-tangen-in-good-company-podcast-norges-bank.html
 
