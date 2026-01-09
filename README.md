@@ -1,4 +1,12 @@
-**Fed Keeps Close Eye on Labor Market as It Assess Further Cuts**\
+**Bill Gates Makes a Multibillion-Dollar Divorce Payout**\
+`The billionaire and philanthropist has made a nearly $8 billion payment to the private foundation of his ex-wife, Melinda French Gates, new tax filings show.`\
+https://nytimes.com/2026/01/09/business/dealbook/gates-divorce-settlement.html
+
+**Miami trusted Carson Beck to make winning plays. Now it's a step away from a championship**\
+`Miami put the ball in the hands of Beck with the Fiesta Bowl on the line Thursday, and he delivered in the clutch to beat Ole Miss.`\
+https://nytimes.com/athletic/6957270/2026/01/09/carson-beck-miami-touchdown-ole-miss-cfp-fiesta-bowl/
+
+**Fed Keeps Close Eye on Labor Market as It Assesses Further Cuts**\
 `For the central bank to lower interest rates again, officials will likely need to see more notable signs that unemployment is rising.`\
 https://nytimes.com/2026/01/09/business/economy/federal-reserve-labor-market-rate-cuts.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6957063/2026/01/09/martinelli-bradley-arsenal-liver
 **For Maxim Naumov, U.S. figure skater, an emotional night one year after tragedy**\
 `Naumov's parents died in the January 2025 plane crash that devastated the figure skating community. On Thursday, he paid fitting tribute.`\
 https://nytimes.com/athletic/6957111/2026/01/09/maxim-naumov-parents-us-figure-skating-championships/
-
-**Next man up: How a bunch of unlikely heroes sparked the Bears' surprising season**\
-`Jahdae Walker. Nahshon Wright. Kyle Monangai. D'Marco Jackson. With the playoffs here, who might the Bears' next surprise standout be?`\
-https://nytimes.com/athletic/6954182/2026/01/09/bears-next-man-up-jahdae-walker-nahshon-wright/
-
-**President Trump’s Vision of Power**\
-`“My own mind. It’s the only thing that can stop me,” he told Times reporters.`\
-https://nytimes.com/2026/01/09/briefing/trump-oval-office-interview.html
 
