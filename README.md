@@ -1,5 +1,5 @@
-**Was Ole Miss robbed of a pass interference call on Hail Mary vs. Miami?**\
-`ESPN in-booth official called the final play of the game "mutual combat." `\
+**Was Ole Miss robbed of a pass-interference call on Hail Mary vs. Miami?**\
+`ESPN's in-booth official called the final play of the game "mutual combat." `\
 https://nytimes.com/athletic/6956759/2026/01/09/ole-miss-pass-interference-miami-fiesta-bowl-ending/
 
 **The Ashes 2025-26: Ranking the 31 players used by Australia and England**\
