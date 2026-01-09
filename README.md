@@ -1,3 +1,7 @@
+**Iran Plunges Into Internet Blackout as Protests Intensify**\
+`Internet monitoring groups reported an abrupt drop in connection levels in Iran as anti-government protests continued to grow. Iran’s supreme leader dismissed days of fierce protest as wanton destruction.`\
+https://nytimes.com/video/world/middleeast/100000010634245/iran-protests-internet-ayatollah.html
+
 **Does Trae Young trade mean Anthony Davis is next, and more NBA trade deadline buzz**\
 `The latest our NBA insiders are hearing on Giannis, Jonathan Kuminga and more as trade season officially kicks off with the Trae Young deal.`\
 https://nytimes.com/athletic/6956615/2026/01/09/nba-trade-rumors-latest-anthony-davis-giannis-jonathan-kuminga/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/09/world/europe/oreshnik-ballistic-missile-russia-uk
 **Bill Gates Makes a Multibillion-Dollar Divorce Payout**\
 `The billionaire and philanthropist has made a nearly $8 billion payment to the private foundation of his ex-wife, Melinda French Gates, new tax filings show.`\
 https://nytimes.com/2026/01/09/business/dealbook/gates-divorce-settlement.html
-
-**Miami trusted Carson Beck to make winning plays. Now it's a step away from a championship**\
-`Miami put the ball in the hands of Beck with the Fiesta Bowl on the line Thursday, and he delivered in the clutch to beat Ole Miss.`\
-https://nytimes.com/athletic/6957270/2026/01/09/carson-beck-miami-touchdown-ole-miss-cfp-fiesta-bowl/
 
