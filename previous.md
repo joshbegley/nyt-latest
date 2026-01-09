@@ -1,40 +1,40 @@
-**A Viral Beauty Test Doesn’t Hold Water**\
-`There are better ways to judge a product’s value than using a gimmicky test you saw on social media. At Wirecutter, we use good old-fashioned math.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010620881/a-viral-beauty-test-doesnt-hold-water.html
+**Agents in Immigration Crackdown Have Fired at Vehicles at Least 10 Times**\
+`The confrontations over the last four months have left two people dead and prompted criticism of federal agencies for allowing officers to open fire on moving vehicles.`\
+https://nytimes.com/2026/01/09/us/immigration-agents-shooting-vehicles.html
 
-**City complete signing of Semenyo on contract until 2031**\
-`The deal sees City pay £62.5m (€71.97m) guaranteed and £1.5m (€1.7m) in bonuses for the 26-year-old.`\
-https://nytimes.com/athletic/6915798/2026/01/09/man-city-sign-semenyo-transfer-news/
+**How an Abrupt Call Between Trump and Colombia’s President Averted a Crisis**\
+`President Gustavo Petro said that the new tone between the leaders was “friendly,” but he also resurfaced his deep disagreements with President Trump.`\
+https://nytimes.com/2026/01/09/world/americas/trump-petro-colombia-phone-call.html
 
-**Federal Agents Shoot 2 in Portland, Ore.**\
-`Federal agents shot two people during a traffic stop in Portland, Ore., one day after an ICE agent in Minnesota killed a woman in her vehicle.`\
-https://nytimes.com/video/us/100000010633788/federal-agents-shooting-portland.html
+**The New York Times News Quiz, Jan. 9, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2026/01/09/briefing/quiz-venezuela-greenland-ice-harbaugh.html
 
-**What We Know About the Shooting in Portland, Ore.**\
-`Two people were shot by federal agents during a traffic stop. Gov. Tina Kotek of Oregon has called for a transparent investigation.`\
-https://nytimes.com/2026/01/09/us/portland-oregon-shooting-border-patrol.html
+**Is It a Good Idea to Wrap Your Christmas Tree?**\
+`A belated ruling on the limits of holiday magic.`\
+https://nytimes.com/interactive/2026/01/09/magazine/christmas-tree-hodgman-quiz.html
 
-**N.Y.P.D. Fatally Shoots Man Who Drew a Fake Gun in the West Village**\
-`Officers shot the driver of a BMW that had been involved in a motor vehicle incident after he drew an imitation firearm, the police said.`\
-https://nytimes.com/2026/01/09/nyregion/ny-police-shooting-west-village.html
+**In Venezuela, Trump Revives ‘Gunboat Diplomacy.’ What Is It?**\
+`The U.S. campaign in Venezuela has drawn from a centuries-old playbook employing naval force — but added some new elements, too.`\
+https://nytimes.com/2026/01/09/us/gunboat-diplomacy-trump-venezuela.html
 
-**Protests Intensify in Iran**\
-`The country severed nationwide internet access as anti-government demonstrations calling for regime change swept through multiple cities.`\
-https://nytimes.com/video/world/asia/100000010633789/iran-protests-internet-shutdown.html
+**A Wig Maker Behind Many Hollywood Illusions**\
+`Largely by word of mouth, Helena Jhong has built a business creating custom wigs and hair pieces that have appeared on major red carpets.`\
+https://nytimes.com/2026/01/09/style/wigs-celebrities-red-carpet.html
 
-**'Woah, we've got a guy here': Why Rapids are all in on first-time manager Wells**\
-`Matt Wells arrives from Tottenham after a run as a trusted assistant, and Colorado believes it has uncovered a manager with high potential`\
-https://nytimes.com/athletic/6955480/2026/01/09/matt-wells-colorado-rapids-coach-tottenham/
+**Will Arnett, Laura Dern and Bradley Cooper: 3 Friends Walk Into a Comedy Club**\
+`In many ways, their new relationship tale, “Is This Thing On?,” relies on their shared history over 25 years.`\
+https://nytimes.com/2026/01/09/movies/will-arnett-laura-dern-bradley-cooper-is-this-thing-on.html
 
-**For the Hero of the Bondi Beach Attack, a Whirlwind Visit to America**\
-`After the Hanukkah massacre in Australia, the rabbi and the Muslim hero who saved lives made a visit to New York that was part religious pilgrimage, part media outreach.`\
-https://nytimes.com/2026/01/09/nyregion/bondi-beach-attack-hero-visits-america.html
+**Why Many Republican Voters Support Trump’s Use of Force in Venezuela**\
+`They don’t like nation building, but they do want to project American power.`\
+https://nytimes.com/2026/01/09/us/politics/trump-venezuela-republican-voters.html
 
-**Beautiful Day**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2026/01/09/learning/beautiful-day.html
+**A Financier’s Twist on Buying Influence: Bankrolling Ballot Measures**\
+`Brian Heywood, a Seattle-area hedge fund founder, has spent millions to put conservative initiatives in front of Washington lawmakers and voters. Next up: parental rights and transgender athletes.`\
+https://nytimes.com/2026/01/09/us/politics/ballot-measures-washington-state-wealthy.html
 
-**How Will the U.S. Protect Maduro During His New York Trial?**\
-`Moving Nicolás Maduro, the former leader of Venezuela, will require intricate planning to keep him safe as he travels from a Brooklyn lockup to a Manhattan court.`\
-https://nytimes.com/2026/01/09/nyregion/maduro-new-york-helicopter-security.html
+**The Sins of the Moderates**\
+`How are we classical liberals of left, right and center supposed to behave in this new world?`\
+https://nytimes.com/2026/01/09/opinion/trump-niebuhr-classical-liberals.html
 
