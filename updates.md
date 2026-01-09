@@ -1,3 +1,7 @@
+**Jerome Lowenstein, 92, Dies; Teaching Doctor With a Literary Sideline**\
+`When not guiding students in a compassionate approach to patient care, he led a tiny publishing imprint that put out a much-rejected debut novel that won a surprise Pulitzer Prize.`\
+https://nytimes.com/2026/01/09/books/jerome-lowenstein-dead.html
+
 **As Election Year Opens, G.O.P. Seeks Some Distance From Trump**\
 `The vote to open a war powers debate, a pair of attempted veto overrides and a split on health care suggested a greater appetite among Republicans to challenge the president.`\
 https://nytimes.com/2026/01/09/us/politics/congress-republicans-trump-distancing.html
