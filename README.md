@@ -1,3 +1,7 @@
+**Rosenior insists he will not be a 'yes man' at Chelsea**\
+`“I will make the decisions at this football club, that is why I have been brought in," Rosenior said in his first Chelsea press conference.`\
+https://nytimes.com/athletic/6957535/2026/01/09/liam-rosenior-chelsea-charlton/
+
 **Senators' goalie issues have derailed their season. It should've been dealt with sooner**\
 `An embarrassing loss Thursday capped off one of the most eventful days in recent memory for the Senators. And they have themselves to blame.`\
 https://nytimes.com/athletic/6956527/2026/01/09/nhl-senators-goalie-problems-future-goaltenders/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/09/your-money/new-years-financial-resolutions.html
 **After Three Hot Years, Will Stock Markets Sizzle Again?**\
 `Returns have been fabulous but consider the potential for setbacks in this already hazardous year, our columnist says.`\
 https://nytimes.com/2026/01/09/business/stock-market-investing-returns.html
-
-**Bukayo Saka agrees new five-year deal at Arsenal**\
-`The latest deal will be at a level that recognises the 24-year-old's standing as one of the leading players in the Premier League and Europe`\
-https://nytimes.com/athletic/6258824/2026/01/09/arsenal-bukayo-saka-contract-new/
 
