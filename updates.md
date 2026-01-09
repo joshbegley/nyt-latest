@@ -1,3 +1,7 @@
+**A Viral Beauty Test Doesn’t Hold Water**\
+`There are better ways to judge a product’s value than using a gimmicky test you saw on social media. At Wirecutter, we use good old-fashioned math.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010620881/a-viral-beauty-test-doesnt-hold-water.html
+
 **City complete signing of Semenyo on contract until 2031**\
 `The deal sees City pay £62.5m (€71.97m) guaranteed and £1.5m (€1.7m) in bonuses for the 26-year-old.`\
 https://nytimes.com/athletic/6915798/2026/01/09/man-city-sign-semenyo-transfer-news/
