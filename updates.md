@@ -1,3 +1,11 @@
+**On the Trail of an Elusive Midcentury Chair**\
+`We help a reader track down furniture from a photograph taken in the early 1950s.`\
+https://nytimes.com/2026/01/09/t-magazine/midcentury-outdoor-chair.html
+
+**Kylie Kelce joining NBC's Winter Olympics coverage as content creator**\
+`Kelce will part of NBC's Creator Collective for the Milan-Cortina Olympics in February.`\
+https://nytimes.com/athletic/6957760/2026/01/09/kylie-kelce-nbc-winter-olympics-coverage/
+
 **Do You Frequently Order Food Delivery? We Want to Hear From You.**\
 `Your responses can help as we report on the immense growth of food delivery and its effects on how we live.`\
 https://nytimes.com/2026/01/09/dining/food-delivery-user-questions.html

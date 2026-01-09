@@ -1,3 +1,11 @@
+**On the Trail of an Elusive Midcentury Chair**\
+`We help a reader track down furniture from a photograph taken in the early 1950s.`\
+https://nytimes.com/2026/01/09/t-magazine/midcentury-outdoor-chair.html
+
+**Kylie Kelce joining NBC's Winter Olympics coverage as content creator**\
+`Kelce will part of NBC's Creator Collective for the Milan-Cortina Olympics in February.`\
+https://nytimes.com/athletic/6957760/2026/01/09/kylie-kelce-nbc-winter-olympics-coverage/
+
 **Do You Frequently Order Food Delivery? We Want to Hear From You.**\
 `Your responses can help as we report on the immense growth of food delivery and its effects on how we live.`\
 https://nytimes.com/2026/01/09/dining/food-delivery-user-questions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/09/world/americas/enrique-marquez-venezuela-prisoner
 **What Does ‘America First’ Mean After Venezuela?**\
 `In the wake of the U.S. operation to seize President Nicolás Maduro of Venezuela, some have wondered whether President Trump has strayed from his “America First” promise. Our White House correspondent Zolan Kanno-Youngs looks closer at what “America First” might mean now.`\
 https://nytimes.com/video/world/americas/100000010625828/what-does-america-first-mean-after-venezuela.html
-
-**New Texas Tech QB has $1 million buyout for leaving Cincinnati: Sources**\
-`The quarterback's buyout is indicative of the new era of direct revenue sharing between schools and athletes.`\
-https://nytimes.com/athletic/6957664/2026/01/09/brendan-sorsby-buyout-texas-tech-cincinnati-college-football/
-
-**Wild eager for home-cooked meals and family time after long road trip, but know another test awaits**\
-`The prevailing sentiment after a good but long trip: “Sick of going out to dinner on the (road) … So yeah, home-cooked meal for sure.”`\
-https://nytimes.com/athletic/6957757/2026/01/09/wild-test-after-road-trip/
 
