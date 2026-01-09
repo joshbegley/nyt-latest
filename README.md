@@ -1,3 +1,15 @@
+**Washington willing to 'take back' QB Williams, who signed deal but planned to enter portal**\
+`Washington is considering "taking back" QB Williams, who announced his intention to enter the portal despite signing with the school.`\
+https://nytimes.com/athletic/6956193/2026/01/08/washington-football-demond-williams-returning-nil-transfer/
+
+**Amid Opening Sprint, Mamdani Paused to Socialize With Steven Spielberg**\
+`Zohran Mamdani, the new mayor of New York, made a private visit to the billionaire film director’s Central Park West apartment this week.`\
+https://nytimes.com/2026/01/08/nyregion/steven-spielberg-zohran-mamdani-meeting.html
+
+**Trump Orders Fannie and Freddie to Buy $200 Billion in Mortgage Bonds**\
+`The move, a bid to make homes more affordable, would be a back-to-future moment for the two mortgage firms. Buying risky mortgage bonds helped push them to near-bankruptcy in 2008.`\
+https://nytimes.com/2026/01/08/business/trump-fannie-freddie-mortgage-bonds.html
+
 **Bo Bichette offered free steak for life at favorite eatery to stay with Blue Jays**\
 `A Toronto restaurant is sweetening the pot for Bichette with a juicy offer if the free-agent shortstop stays in Toronto.`\
 https://nytimes.com/athletic/6955839/2026/01/08/blue-jays-bo-bichette-free-steak/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/08/movies/people-we-meet-on-vacation-review.html
 **Men Cut Hole in Bathroom Wall to Steal Over $500,000 in Jewelry**\
 `Three men targeted a jewelry store in Cape Coral, Fla., according to a federal criminal complaint against the man accused of being the getaway driver. Two others have yet to be identified.`\
 https://nytimes.com/2026/01/08/us/cape-coral-jewelry-store-robbery-florida.html
-
-**Ukraine Awards Major Lithium Project to Investors With Links to Trump**\
-`Ronald S. Lauder, a billionaire friend of Mr. Trump, is among the investors. The move comes as the Trump administration looks for investment opportunities in Ukraine.`\
-https://nytimes.com/2026/01/08/world/europe/trump-lauder-ukraine-lithium.html
-
-**Slot 'fears the worst' on Conor Bradley knee injury**\
-`The Northern Ireland full-back will under scans to determine the extent of the damage after being stretchered off deep into added time.`\
-https://nytimes.com/athletic/6956096/2026/01/08/conor-bradley-injury-liverpool-news/
-
-**Senate Agrees to Display a Jan. 6 Plaque Honoring Officers**\
-`Federal law mandated that the memorial tablet be installed by March 2023, but Congress blew past that deadline.`\
-https://nytimes.com/2026/01/08/us/politics/senate-jan-6-plaque.html
 
