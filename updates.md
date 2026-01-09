@@ -1,3 +1,11 @@
+**The Briefing: Cameroon 0 Morocco 2 - Hosts through to AFCON semi-finals as Brahim Diaz scores yet again**\
+`The Athletic's writers analyse the second quarter-final at the 2025 Africa Cup of Nations`\
+https://nytimes.com/athletic/6949009/2026/01/09/cameroon-morocco-afcon-analysis/
+
+**Canada announces roster for Olympic women’s hockey: Snubs, surprises and expectations**\
+`The Canadian women’s national hockey team will lean on an experience-heavy roster in Milan.`\
+https://nytimes.com/athletic/6957765/2026/01/09/team-canada-womens-hockey-roster-2026-olympics-snubs/
+
 **Sam Leavitt expected to visit Miami this weekend: Source**\
 `It will be Leavitt's fourth official visit since the portal opened on Jan. 2.`\
 https://nytimes.com/athletic/6958196/2026/01/09/sam-leavitt-miami-transfer-portal-cfb/

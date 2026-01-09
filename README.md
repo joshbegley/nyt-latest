@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6958196/2026/01/09/sam-leavitt-miami-transfer-porta
 `The Trump administration has moved to take control of three public golf courses in Washington, D.C. The Athletic’s Gabby Herzig reports on what it could mean for the courses’ future.`\
 https://nytimes.com/video/the-athletic/100000010635494/is-trump-taking-over-dcs-public-golf-courses.html
 
-**Olympic hockey rink opens test event with holes in the exterior — and the ice: Exclusive first look**\
+**Olympic hockey rink opens test event with holes in the exterior — and the ice**\
 `Only three of 14 locker rooms that will soon host Olympic hockey teams are complete with less than four weeks to go before the Games.`\
 https://nytimes.com/athletic/6958181/2026/01/09/olympic-hockey-rink-construction-first-look/
 
