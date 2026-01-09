@@ -1,5 +1,9 @@
+**Late Night Is Distracted by Kristi Noem’s Oversized Cowboy Hat**\
+`“Why is Kristi Noem always in some sort of cosplay outfit?” Seth Meyers asked on Thursday.`\
+https://nytimes.com/2026/01/09/arts/television/late-night-kristi-noem-hat.html
+
 **For the first time in 600 games Liverpool had no shot on target - but still made a step forward**\
-`Arne Slot's side may have failed to test the Arsenal goalkeeper but this was an impressive performance in the cirucmstances`\
+`Arne Slot's side may have failed to test the Arsenal goalkeeper but this was an impressive performance in the circumstances`\
 https://nytimes.com/athletic/6955514/2026/01/09/liverpool-arsenal-no-shots-600-games/
 
 **Word of the Day: memorandum**\
@@ -34,9 +38,4 @@ https://nytimes.com/athletic/6953597/2026/01/09/forest-saw-kalimuendo-as-a-state
 **TOTD: Did Amorim miss a trick by not having United insider on staff? Plus: Who do you want next?**\
 `This week in our TOTD column, we're all over Amorim's exit and what comes next...`\
 https://nytimes.com/athletic/6949688/2026/01/09/amorim-man-united-insider-staff-poll-solskjaer/
-
-**The SEC’s old playbook is finished. Now comes the adjustment**\
-`NIL and the transfer portal have whittled away the SEC’s dominance. Adjusting is the only way forward.
-`\
-https://nytimes.com/athletic/6956702/2026/01/09/sec-ole-miss-playbook-adjustment/
 
