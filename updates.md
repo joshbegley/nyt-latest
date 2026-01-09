@@ -1,3 +1,7 @@
+**Jerome Lowenstein, 92, Dies; Teaching Doctor With a Literary Sideline**\
+`When not guiding students in a compassionate approach to patient care, he led a tiny publishing imprint that won a surprise Pulitzer Prize with a novel others had rejected.`\
+https://nytimes.com/2026/01/09/books/jerome-lowenstein-dead.html
+
 **David Cone will not return to ESPN's MLB coverage**\
 `Cone will continue as a top analyst on Yankee games on the YES Network.`\
 https://nytimes.com/athletic/6958009/2026/01/09/david-cone-espn-mlb-nbc-sunday/

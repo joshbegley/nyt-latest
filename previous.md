@@ -1,3 +1,7 @@
+**Jerome Lowenstein, 92, Dies; Teaching Doctor With a Literary Sideline**\
+`When not guiding students in a compassionate approach to patient care, he led a tiny publishing imprint that won a surprise Pulitzer Prize with a novel others had rejected.`\
+https://nytimes.com/2026/01/09/books/jerome-lowenstein-dead.html
+
 **David Cone will not return to ESPN's MLB coverage**\
 `Cone will continue as a top analyst on Yankee games on the YES Network.`\
 https://nytimes.com/athletic/6958009/2026/01/09/david-cone-espn-mlb-nbc-sunday/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6957896/2026/01/09/dorgu-walker-manchester-united-f
 **How Miami will play a home game in the national championship**\
 `It's the first time in the BCS/College Football Playoff era that a team will "host" the national championship.`\
 https://nytimes.com/athletic/6957609/2026/01/09/miami-home-game-national-championship-hard-rock-stadium/
-
-**Ravens OC Todd Monken says he could have coached Lamar Jackson better**\
-`Jackson dealt with a slew of injuries in 2025 — including hamstring, knee, ankle, toe and back issues — missing multiple games.`\
-https://nytimes.com/athletic/6957851/2026/01/09/todd-monken-lamar-jackson-ravens-coaching/
 

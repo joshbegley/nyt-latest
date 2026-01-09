@@ -1,3 +1,11 @@
+**As Election Year Opens, G.O.P. Seeks Some Distance From Trump**\
+`The vote to open a war powers debate, a pair of attempted veto overrides and a split on health care suggested a greater appetite among Republicans to challenge the president.`\
+https://nytimes.com/2026/01/09/us/politics/congress-republicans-trump-distancing.html
+
+**Thomas V. Cash, Cartel-Busting D.E.A. Official in Miami, Dies at 85**\
+`He helped take down the Panamanian strongman Manuel Noriega and the Colombian drug kingpin Pablo Escobar.`\
+https://nytimes.com/2026/01/09/us/thomas-v-cash-dead.html
+
 **Jerome Lowenstein, 92, Dies; Teaching Doctor With a Literary Sideline**\
 `When not guiding students in a compassionate approach to patient care, he led a tiny publishing imprint that won a surprise Pulitzer Prize with a novel others had rejected.`\
 https://nytimes.com/2026/01/09/books/jerome-lowenstein-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6957718/2026/01/09/trinidad-chambliss-eligibility-n
 **Flashback: Your Weekly History Quiz, Jan. 10, 2026**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2026/01/09/upshot/flashback.html
-
-**Fletcher: VAR should have looked at Walker, Dorgu incident**\
-`The interim coach referenced his team's disallowed goal in the first half which also involved the Burnley defender. `\
-https://nytimes.com/athletic/6957896/2026/01/09/dorgu-walker-manchester-united-fletcher-var/
-
-**How Miami will play a home game in the national championship**\
-`It's the first time in the BCS/College Football Playoff era that a team will "host" the national championship.`\
-https://nytimes.com/athletic/6957609/2026/01/09/miami-home-game-national-championship-hard-rock-stadium/
 
