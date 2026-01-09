@@ -1,3 +1,7 @@
+**David Cone will not return to ESPN's MLB coverage**\
+`Cone will continue as a top analyst on Yankee games on the YES Network.`\
+https://nytimes.com/athletic/6958009/2026/01/09/david-cone-espn-mlb-nbc-sunday/
+
 **Russia Says It Struck Ukraine With Nuclear-Capable Missile**\
 `The Russian Defense Ministry said on Friday that it had struck western Ukraine with a nuclear-capable intermediate-range ballistic missile, an ominous warning by President Vladimir V. Putin of Russia as U.S.-led negotiations to end the war have gained steam.`\
 https://nytimes.com/video/world/europe/100000010634199/russia-says-it-struck-ukraine-with-nuclear-capable-missile.html
