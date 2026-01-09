@@ -1,3 +1,23 @@
+**New F.B.I. Deputy Director Chosen After Bongino’s Departure**\
+`Even as the selection of a career agent, Christopher G. Raia, leaves an unusual three-person leadership structure in place, it returns a career agent to the second highest-ranking post.`\
+https://nytimes.com/2026/01/09/us/politics/fbi-deputy-director-christopher-raia.html
+
+**Compass Acquires Top Rival, Creating World’s Largest Brokerage**\
+`First signed into agreement in September 2025, the merger brings together the largest and second-largest real estate firms in the United States.`\
+https://nytimes.com/2026/01/09/realestate/compass-anywhere-real-estate-merger.html
+
+**Trump Seeks New Powers to Pressure ‘Underperforming’ Weapons Makers**\
+`In an executive order, President Trump is aiming to punish defense contractors that don’t deliver weapons quickly enough.`\
+https://nytimes.com/2026/01/09/business/trump-defense-industry-executive-order.html
+
+**What Is El Helicoide, the Infamous Torture Prison in Venezuela?**\
+`As Venezuela’s interim authorities began to release political prisoners, some of their families raced to the notorious prison that symbolized Nicolás Maduro’s authoritarian rule.`\
+https://nytimes.com/2026/01/09/world/americas/venezuela-el-helicoide-prison-caracas.html
+
+**The Best Light Therapy Lamp **\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/the-best-light-therapy-lamp-
+
 **Grizzlies open to trade offers for Ja Morant: Source**\
 `Morant has averaged 19.0 points and 7.6 assists per game this season, though his availability has been sporadic due to injuries.`\
 https://nytimes.com/athletic/6958128/2026/01/09/ja-morant-grizzlies-trade-destinations-rumors-news-analysis/

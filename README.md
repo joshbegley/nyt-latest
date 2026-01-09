@@ -1,5 +1,13 @@
+**Can Ole Miss keep rolling after Chambliss waiver denial? What you need to know for 2026**\
+`The NCAA denying Trinidad Chambliss an extra year makes quarterback a wild card as Ole Miss fully moves into its post-Lane Kiffin era.`\
+https://nytimes.com/athletic/6958019/2026/01/09/ole-miss-transfer-portal-2026-trinidad-chambliss-waiver/
+
+**X Sues Music Publishers, Alleging ‘Collusion’ Over Licensing Deals**\
+`The social media platform says it was pressured into licensing agreements for songs “at inflated rates.” In 2023, publishers sued the company for copyright violations.`\
+https://nytimes.com/2026/01/09/arts/music/x-music-publishers-lawsuit.html
+
 **New F.B.I. Deputy Director Chosen After Bongino’s Departure**\
-`Even as the selection of a career agent, Christopher G. Raia, leaves an unusual three-person leadership structure in place, it returns a career agent to the second highest-ranking post.`\
+`Even as the selection of a career agent, Christopher G. Raia, leaves an unusual three-person leadership structure in place, it returns a career agent to the No. 2 post.`\
 https://nytimes.com/2026/01/09/us/politics/fbi-deputy-director-christopher-raia.html
 
 **Compass Acquires Top Rival, Creating World’s Largest Brokerage**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6958063/2026/01/09/nfl-first-round-wild-card-previe
 **U.S. Hiring Turned Sluggish One Year Into Trump’s Second Term**\
 `As economists pointed to some of the president’s policies to explain the latest Labor Department data, White House aides sought to make the case for optimism in the new year.`\
 https://nytimes.com/2026/01/09/us/politics/us-hiring-economy-trump-second-term.html
-
-**As Election Year Opens, G.O.P. Seeks Some Distance From Trump**\
-`The vote to open a war powers debate, a pair of attempted veto overrides and a split on health care suggested a greater appetite among Republicans to challenge the president.`\
-https://nytimes.com/2026/01/09/us/politics/congress-republicans-trump-distancing.html
-
-**Thomas V. Cash, Cartel-Busting D.E.A. Official in Miami, Dies at 85**\
-`He helped take down the Panamanian strongman Manuel Noriega and the Colombian drug kingpin Pablo Escobar.`\
-https://nytimes.com/2026/01/09/us/thomas-v-cash-dead.html
 

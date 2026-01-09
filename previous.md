@@ -1,3 +1,23 @@
+**New F.B.I. Deputy Director Chosen After Bongino’s Departure**\
+`Even as the selection of a career agent, Christopher G. Raia, leaves an unusual three-person leadership structure in place, it returns a career agent to the second highest-ranking post.`\
+https://nytimes.com/2026/01/09/us/politics/fbi-deputy-director-christopher-raia.html
+
+**Compass Acquires Top Rival, Creating World’s Largest Brokerage**\
+`First signed into agreement in September 2025, the merger brings together the largest and second-largest real estate firms in the United States.`\
+https://nytimes.com/2026/01/09/realestate/compass-anywhere-real-estate-merger.html
+
+**Trump Seeks New Powers to Pressure ‘Underperforming’ Weapons Makers**\
+`In an executive order, President Trump is aiming to punish defense contractors that don’t deliver weapons quickly enough.`\
+https://nytimes.com/2026/01/09/business/trump-defense-industry-executive-order.html
+
+**What Is El Helicoide, the Infamous Torture Prison in Venezuela?**\
+`As Venezuela’s interim authorities began to release political prisoners, some of their families raced to the notorious prison that symbolized Nicolás Maduro’s authoritarian rule.`\
+https://nytimes.com/2026/01/09/world/americas/venezuela-el-helicoide-prison-caracas.html
+
+**The Best Light Therapy Lamp **\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/the-best-light-therapy-lamp-
+
 **Grizzlies open to trade offers for Ja Morant: Source**\
 `Morant has averaged 19.0 points and 7.6 assists per game this season, though his availability has been sporadic due to injuries.`\
 https://nytimes.com/athletic/6958128/2026/01/09/ja-morant-grizzlies-trade-destinations-rumors-news-analysis/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/09/us/politics/congress-republicans-trump-distancing
 **Thomas V. Cash, Cartel-Busting D.E.A. Official in Miami, Dies at 85**\
 `He helped take down the Panamanian strongman Manuel Noriega and the Colombian drug kingpin Pablo Escobar.`\
 https://nytimes.com/2026/01/09/us/thomas-v-cash-dead.html
-
-**Jerome Lowenstein, 92, Dies; Teaching Doctor With a Literary Sideline**\
-`When not guiding students in a compassionate approach to patient care, he led a tiny publishing imprint that put out a much-rejected debut novel that won a surprise Pulitzer Prize.`\
-https://nytimes.com/2026/01/09/books/jerome-lowenstein-dead.html
-
-**David Cone will not return to ESPN's MLB coverage**\
-`Cone will continue as a top analyst on Yankee games on the YES Network.`\
-https://nytimes.com/athletic/6958009/2026/01/09/david-cone-espn-mlb-nbc-sunday/
-
-**Russia Says It Struck Ukraine With Nuclear-Capable Missile**\
-`The Russian Defense Ministry said on Friday that it had struck western Ukraine with a nuclear-capable intermediate-range ballistic missile, an ominous warning by President Vladimir V. Putin of Russia as U.S.-led negotiations to end the war have gained steam.`\
-https://nytimes.com/video/world/europe/100000010634199/russia-says-it-struck-ukraine-with-nuclear-capable-missile.html
-
-**Yemeni Separatists Say They Are Disbanding, but Move Is in Dispute**\
-`A delegation from the Southern Transitional Council in Riyadh announced its dissolution, but members abroad rejected the news amid fears it was not voluntary.`\
-https://nytimes.com/2026/01/09/world/middleeast/yemeni-separatists-disband.html
-
-**The Trump Interview: A President Who Answers Only to Himself**\
-`Readers react to President Trump’s interview with The New York Times. Also: Mayor Zohran Mamdani, Jews and Israel.`\
-https://nytimes.com/2026/01/09/opinion/trump-interview.html
 
