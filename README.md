@@ -1,3 +1,16 @@
+**The SEC’s old playbook is finished. Now comes the adjustment**\
+`NIL and the transfer portal have whittled away the SEC’s dominance. Adjusting is the only way forward.
+`\
+https://nytimes.com/athletic/6956702/2026/01/09/sec-ole-miss-playbook-adjustment/
+
+**Terry Yorath, a life marked by tragedy, heroism, and the 'twinkle in his eye'**\
+`Terry Yorath passed away on Wednesday evening at the age of 75`\
+https://nytimes.com/athletic/6953682/2026/01/09/terry-yorath-leeds-bradford-tottenham-obituary/
+
+**Chelsea's winners under Liam Rosenior – and why there will be so few losers**\
+`Liam Rosenior’s appointment at Chelsea has been about continuity, but many players will be hoping their new coach can bring about change`\
+https://nytimes.com/athletic/6949401/2026/01/09/chelsea-liam-rosenior-squad-analysis/
+
 **Travis Konecny leaves game under mysterious circumstances as Flyers' injury list grows**\
 `Coach Rick Tocchet explained what happened with Konecny in the Flyers' 2-1 overtime loss to the Toronto Maple Leafs. Kind of.`\
 https://nytimes.com/athletic/6956694/2026/01/09/flyers-travis-konecny-leaves-game/
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/6950023/2026/01/09/antoine-semenyo-man-city-transfe
 **Planes, trains and the team bus: How do a Premier League club handle logistics and travel?**\
 `Meet Mark Bennett, who spent six years ensuring that Aston Villa's players got where they needed to be, when they needed to be there `\
 https://nytimes.com/athletic/6935480/2026/01/09/premier-league-player-care-support/
-
-**Kane chases record, Musiala returns and Bellingham’s chance. Welcome back, Bundesliga**\
-`As German football wakes from hibernation, here are some themes and plotlines to keep an eye on in the second half of the season`\
-https://nytimes.com/athletic/6949098/2026/01/09/bundesliga-return-bayern-munich-jobe-bellingham/
-
-**Quote of the Day: Fatal Shooting by ICE Is Latest Blow to Minnesota**\
-`Quotation of the Day for Friday, January 9, 2026`\
-https://nytimes.com/2026/01/09/pageoneplus/quote-of-the-day-fatal-shooting-by-ice-is-latest-blow-to-minnesota.html
-
-**Corrections: Jan. 9, 2026**\
-`Corrections that appeared in print on Friday, Jan. 9, 2026.`\
-https://nytimes.com/2026/01/09/pageoneplus/corrections-jan-9-2026.html
 
