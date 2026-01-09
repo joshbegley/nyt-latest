@@ -1,3 +1,15 @@
+**How Liverpool shackled Arsenal to limit the league leaders' attack**\
+`Liverpool's defensive performance, particularly in the second half, was something Slot and his team can build on`\
+https://nytimes.com/athletic/6957002/2026/01/09/liverpool-arsenal-analysis-slot/
+
+**Trump Administration Live Updates: Supreme Court Expected to Release First Opinions of Term**\
+``\
+https://nytimes.com/live/2026/01/09/us/trump-news
+
+**What to Know About the Oreshnik, the Missile Russia Used Against Ukraine**\
+`The attack was just the second time that Moscow had launched the nuclear-capable intermediate-range ballistic weapon.`\
+https://nytimes.com/2026/01/09/world/europe/oreshnik-ballistic-missile-russia-ukraine.html
+
 **Bill Gates Makes a Multibillion-Dollar Divorce Payout**\
 `The billionaire and philanthropist has made a nearly $8 billion payment to the private foundation of his ex-wife, Melinda French Gates, new tax filings show.`\
 https://nytimes.com/2026/01/09/business/dealbook/gates-divorce-settlement.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6957200/2026/01/09/ncaa-gymnastics-schedule-preview
 **After Machado Offers Her Nobel, Trump Says It Would Be an ‘Honor’ to Accept It**\
 `President Trump indicated that he would meet the Venezuelan opposition leader María Corina Machado. Last year, she won the Nobel Peace Prize, an award he covets.`\
 https://nytimes.com/2026/01/09/world/americas/trump-venezuela-machado-nobel-prize.html
-
-**Anthony Edwards scored his 10,000th NBA point. The way he did it says a lot**\
-`The 24-year-old Edwards became the third-youngest player ever to reach 10,000 points. He crossed the mark with his newfound midrange game.`\
-https://nytimes.com/athletic/6956332/2026/01/09/anthony-edwards-10000-points-timberwolves/
-
-**TAFC: Arsenal's Martinelli sorry after shoving injured Bradley. Plus: Drogba's war-time intervention**\
-`Today in TAFC: Martinelli says sorry over his shove on Bradley causes a stir, reliving Drogba's war-time speech, and a Valverde stunner.`\
-https://nytimes.com/athletic/6957063/2026/01/09/martinelli-bradley-arsenal-liverpool-shove/
-
-**For Maxim Naumov, U.S. figure skater, an emotional night one year after tragedy**\
-`Naumov's parents died in the January 2025 plane crash that devastated the figure skating community. On Thursday, he paid fitting tribute.`\
-https://nytimes.com/athletic/6957111/2026/01/09/maxim-naumov-parents-us-figure-skating-championships/
 
