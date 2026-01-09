@@ -1,3 +1,11 @@
+**What the Ellis trade tells us about the Blackhawks' 2026-27 NHL roster structure**\
+`With plenty of veteran talent coming off the books this summer, trading for Ryan Ellis' contract is the next step in Kyle Davidson's plan.`\
+https://nytimes.com/athletic/6955774/2026/01/08/blackhawks-roster-structure-davidson-prospects/
+
+**Senators condemn 'trolls and sick people' speculating about Linus Ullmark**\
+`"We are disgusted that outside forces are attempting to disrupt our hockey club," president and GM Steve Staios said in a statement.`\
+https://nytimes.com/athletic/6956279/2026/01/08/ottawa-senators-linus-ullmark-absence-statement/
+
 **Yankees offer Cody Bellinger more than $30M a year, but gap remains in talks: Sources**\
 `The club's latest multi-year offer featured an AAV of more than $30M as Bellinger’s camp continued to push for seven years, sources said. `\
 https://nytimes.com/athletic/6956135/2026/01/08/yankees-cody-bellinger-offer-30-million-aav/

@@ -1,3 +1,11 @@
+**What the Ellis trade tells us about the Blackhawks' 2026-27 NHL roster structure**\
+`With plenty of veteran talent coming off the books this summer, trading for Ryan Ellis' contract is the next step in Kyle Davidson's plan.`\
+https://nytimes.com/athletic/6955774/2026/01/08/blackhawks-roster-structure-davidson-prospects/
+
+**Senators condemn 'trolls and sick people' speculating about Linus Ullmark**\
+`"We are disgusted that outside forces are attempting to disrupt our hockey club," president and GM Steve Staios said in a statement.`\
+https://nytimes.com/athletic/6956279/2026/01/08/ottawa-senators-linus-ullmark-absence-statement/
+
 **Yankees offer Cody Bellinger more than $30M a year, but gap remains in talks: Sources**\
 `The club's latest multi-year offer featured an AAV of more than $30M as Bellinger’s camp continued to push for seven years, sources said. `\
 https://nytimes.com/athletic/6956135/2026/01/08/yankees-cody-bellinger-offer-30-million-aav/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6955944/2026/01/08/saquon-barkley-christian-mccaffr
 **Families of Slain Idaho Students Sue the University the Killer Attended**\
 `A new lawsuit claims that Washington State University, where Bryan Kohberger was a Ph.D. student, failed to take decisive action on earlier complaints that he was stalking women.`\
 https://nytimes.com/2026/01/08/us/idaho-murders-kohberger-victim-families-lawsuit.html
-
-**This ‘Galaxy That Wasn’t’ Never Bore Any Stars**\
-`Astronomers announced the discovery of a starless cloud of hydrogen gas, a pristine relic of the cosmos that is almost as old as time itself.`\
-https://nytimes.com/2026/01/08/science/cloud-9-starless-dark-galaxy.html
-
-**Washington QB Williams announces return after contract, transfer portal drama**\
-`Announcement ends two-day saga over the status of Huskies' star quarterback.`\
-https://nytimes.com/athletic/6956193/2026/01/08/washington-football-demond-williams-returning-nil-transfer/
 
