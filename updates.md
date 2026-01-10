@@ -1,3 +1,7 @@
+**Lindsey Vonn wins another World Cup downhill, with Olympic race one month away**\
+`Vonn, at 41, solidified her place as the downhill favorite at next month's Olympics, winning the 84th World Cup race of her career.`\
+https://nytimes.com/athletic/6959501/2026/01/10/lindsey-vonn-olympics-world-cup-downhill-zauchensee/
+
 **Origins of viral cheese grater hats lighting up Bears-Packers rivalry**\
 `The "graterhead hat" — its official name — isn't new, but sales took off after the Bears' DJ Moore wore one in a locker-room celebration`\
 https://nytimes.com/athletic/6956090/2026/01/10/bears-packers-cheese-grater-hats-dj-moore/
