@@ -1,3 +1,7 @@
+**How to watch Blue Jackets vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959609/2026/01/10/blue-jackets-vs-avalanche-stream-how-to-watch-jan-10/
+
 **AP NFL All-Pro teams: Matthew Stafford, Bijan Robinson, Myles Garrett lead 2025 selections**\
 `Drake Maye played a significant role in helping New England (14-3) to one of the best one-season turnarounds in NFL history.`\
 https://nytimes.com/athletic/6958994/2026/01/10/ap-nfl-all-pro-team-2025/
