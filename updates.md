@@ -1,3 +1,7 @@
+**George Saunders Is No Saint (Despite What You May Have Heard)**\
+`The celebrated author on the challenges of being kind, the benefits of meditation and the reality check of death.`\
+https://nytimes.com/2026/01/10/magazine/george-saunders-interview.html
+
 **Golden Globes 2026: What to Expect on Sunday**\
 `Keep an eye on “One Battle After Another,” which is likely to dominate, and on the speeches. A particularly memorable one could be an Oscar lifeline.`\
 https://nytimes.com/2026/01/10/movies/golden-globes-what-to-expect.html
