@@ -1,3 +1,19 @@
+**Players react to first test game at Olympic hockey rink: 'Not perfect'**\
+`"Outside, I'm not quite sure if it will be ready because some of it is a mess." But the shorter dimensions didn't bother players Friday.`\
+https://nytimes.com/athletic/6959537/2026/01/10/olympic-hockey-rink-test-game-player-reaction/
+
+**When American Violence Becomes Too Much for Families**\
+`I asked why so many women were considering leaving the country. The guns, several responded.`\
+https://nytimes.com/2026/01/10/opinion/leaving-america-gun-violence.html
+
+**L.A. Kings at midseason: The good, bad and the ugly of a frustrating stretch**\
+`The Kings remain in the playoff conversation but there's been plenty of consternation.`\
+https://nytimes.com/athletic/6958151/2026/01/10/la-kings-analysis-midseason-injuries/
+
+**Lindsey Vonn wins another World Cup downhill, with Olympic race one month away**\
+`Vonn, 41, solidified her place as the downhill favorite at next month's Olympics, winning the 84th World Cup race of her career.`\
+https://nytimes.com/athletic/6959501/2026/01/10/lindsey-vonn-olympics-world-cup-downhill-zauchensee/
+
 **Who you got: 2025 Indiana or 2019 LSU?**\
 `The Hoosiers are looking to enter the discussion alongside some of the best national champions of the College Football Playoff era.`\
 https://nytimes.com/athletic/6959174/2026/01/10/indiana-2025-lsu-2019-best-college-football-teams/
