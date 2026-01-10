@@ -1,3 +1,7 @@
+**Lakers' loss to Bucks ends 13-game unbeaten streak in clutch games**\
+`Prior to Friday, Los Angeles had not lost any game that was within five points with less than five minutes remaining. `\
+https://nytimes.com/athletic/6959254/2026/01/10/lakers-clutch-record-bucks-lebron-giannis/
+
 **The New York Times in Print for Saturday, Jan. 10, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/10/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6938729/2026/01/10/how-nigeria-recruit-players-eze/
 **Why Semenyo's City arrival is further evidence of Pep Guardiola's new direction**\
 `The Man City manager is building a new team that can handle the physical rigours of the Premier League — and also learn to control games `\
 https://nytimes.com/athletic/6947692/2026/01/10/antoine-semenyo-manchester-city-tactical-fit/
-
-**Doc Rivers: ICE shooting in Minneapolis 'straight-up murder'**\
-`Rivers, one of the NBA's most outspoken coaches, has previously spoken out about ICE activity in his hometown of Chicago.`\
-https://nytimes.com/athletic/6959148/2026/01/10/doc-rivers-minneapolis-ice-shooting-murder/
 
