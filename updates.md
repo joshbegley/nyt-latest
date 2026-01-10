@@ -1,3 +1,15 @@
+**How to watch Texas Tech vs. Colorado men's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Red Raiders play the Colorado Buffaloes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959837/2026/01/10/texas-tech-vs-colorado-stream-how-to-watch-jan-10/
+
+**How to watch Wake Forest vs. North Carolina men's basketball: Time, TV, streaming**\
+`Find out how to watch the Wake Forest Demon Deacons play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959831/2026/01/10/wake-forest-vs-north-carolina-stream-how-to-watch-jan-10/
+
+**How to watch Arkansas vs. Auburn men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arkansas Razorbacks play the Auburn Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959827/2026/01/10/arkansas-vs-auburn-stream-how-to-watch-jan-10/
+
 **How to watch Texas vs. Alabama men's basketball: Time, TV, streaming**\
 `Find out how to watch the Texas Longhorns play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6959825/2026/01/10/texas-vs-alabama-stream-how-to-watch-jan-10/

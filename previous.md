@@ -1,3 +1,15 @@
+**How to watch Texas Tech vs. Colorado men's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Red Raiders play the Colorado Buffaloes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959837/2026/01/10/texas-tech-vs-colorado-stream-how-to-watch-jan-10/
+
+**How to watch Wake Forest vs. North Carolina men's basketball: Time, TV, streaming**\
+`Find out how to watch the Wake Forest Demon Deacons play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959831/2026/01/10/wake-forest-vs-north-carolina-stream-how-to-watch-jan-10/
+
+**How to watch Arkansas vs. Auburn men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arkansas Razorbacks play the Auburn Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959827/2026/01/10/arkansas-vs-auburn-stream-how-to-watch-jan-10/
+
 **How to watch Texas vs. Alabama men's basketball: Time, TV, streaming**\
 `Find out how to watch the Texas Longhorns play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6959825/2026/01/10/texas-vs-alabama-stream-how-to-watch-jan-10/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/10/dining/this-quick-murgh-chole-is-perfection.html
 **Giannis Antetokounmpo's determination, defense help Bucks get best of LeBron, Lakers**\
 `Needing big stops down the stretch, Antetokounmpo took on the challenge of guarding LeBron James. The result? A big road win for the Bucks.`\
 https://nytimes.com/athletic/6959357/2026/01/10/lakers-bucks-giannis-antetokounmpo-lebron-games-defense/
-
-**Six People Are Fatally Shot in Mississippi, Sheriff Says**\
-`In a social media post, the Clay County sheriff said that “multiple innocent lives were lost” and that one person was in custody.`\
-https://nytimes.com/2026/01/10/us/shooting-west-point-mississippi.html
-
-**Timothy Busfield, Actor and Director, Is Accused of Child Sex Abuse**\
-`The Emmy Award-winning actor is accused of abusing two child actors while working on a television series. An arrest warrant was issued in New Mexico.`\
-https://nytimes.com/2026/01/10/arts/television/timothy-busfield-child-sex-abuse.html
-
-**Melton and Horford help stabilize rotation as Warriors roll over Kings**\
-`With Melton and Horford finding their footing after returning from injuries, the Warriors have won eight of their last 11 games.`\
-https://nytimes.com/athletic/6959371/2026/01/10/deanthony-melton-al-horford-warriors-kings/
 

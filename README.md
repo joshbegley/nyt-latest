@@ -1,40 +1,41 @@
-**How to watch Texas Tech vs. Colorado men's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Tech Red Raiders play the Colorado Buffaloes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959837/2026/01/10/texas-tech-vs-colorado-stream-how-to-watch-jan-10/
+**Senators players denounce Linus Ullmark speculation: 'It's extremely disappointing'**\
+`"It's embarrassing that it got to the point that it did," Ottawa captain Brady Tkachuk said. "I'm not happy about it one bit."
+`\
+https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady-tkachuk/
 
-**How to watch Wake Forest vs. North Carolina men's basketball: Time, TV, streaming**\
-`Find out how to watch the Wake Forest Demon Deacons play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959831/2026/01/10/wake-forest-vs-north-carolina-stream-how-to-watch-jan-10/
+**How to watch Mavericks vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959884/2026/01/10/mavericks-vs-bulls-stream-how-to-watch-jan-10/
 
-**How to watch Arkansas vs. Auburn men's basketball: Time, TV, streaming**\
-`Find out how to watch the Arkansas Razorbacks play the Auburn Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959827/2026/01/10/arkansas-vs-auburn-stream-how-to-watch-jan-10/
+**How to watch Red Wings vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959882/2026/01/10/red-wings-vs-canadiens-stream-how-to-watch-jan-10/
 
-**How to watch Texas vs. Alabama men's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Longhorns play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959825/2026/01/10/texas-vs-alabama-stream-how-to-watch-jan-10/
+**How to watch Lightning vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959879/2026/01/10/lightning-vs-flyers-stream-how-to-watch-jan-10/
 
-**The Briefing: Man City 10 Exeter 1 - Semenyo's impact, City equal record win and where does Lewis fit in?**\
-`Runners-up last season, City started this FA Cup campaign by sticking 10 goals past their third-tier opponents at the Etihad`\
-https://nytimes.com/athletic/6948911/2026/01/10/man-city-semenyo-debut-exeter-fa-cup/
+**How to watch Kraken vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959877/2026/01/10/kraken-vs-hurricanes-stream-how-to-watch-jan-10/
 
-**Until Saturday: Indiana's on the brink of a GOAT case**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6959748/2026/01/10/indiana-oregon-playoff-until-saturday/
+**How to watch Canucks vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959875/2026/01/10/canucks-vs-maple-leafs-stream-how-to-watch-jan-10/
 
-**America Doesn’t Need ICE**\
-`The shooting in Minneapolis is just the latest sign.`\
-https://nytimes.com/2026/01/10/opinion/immigration-ice-violence-minnesota.html
+**How to watch Islanders vs. Wild: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959871/2026/01/10/islanders-vs-wild-stream-how-to-watch-jan-10/
 
-**Machado Offered Trump Her Nobel, but Prize Institute Says It’s Not Allowed**\
-`After María Corina Machado, Venezuela’s opposition leader, offered her Nobel Peace Prize to President Trump, the Norwegian Nobel Institute said it cannot be “transferred to others.”`\
-https://nytimes.com/2026/01/10/world/americas/trump-nobel-peace-prize-maria-machado.html
+**How to watch Panthers vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959869/2026/01/10/panthers-vs-senators-stream-how-to-watch-jan-10/
 
-**This Quick Murgh Chole Is ‘Perfection’**\
-`Zainab Shah’s chicken and chickpea curry is already racking up raves from readers: “Absolutely stunning taste!”`\
-https://nytimes.com/2026/01/10/dining/this-quick-murgh-chole-is-perfection.html
+**Red Sox CEO says free-agency deadline would be 'helpful,' avoids Alex Bregman discussion**\
+`Sam Kennedy noted that the Red Sox, who have yet to sign a free agent this offseason, have invested in the roster via other avenues.`\
+https://nytimes.com/athletic/6959775/2026/01/10/red-sox-sam-kennedy-free-agent-deadline-alex-bregman/
 
-**Giannis Antetokounmpo's determination, defense help Bucks get best of LeBron, Lakers**\
-`Needing big stops down the stretch, Antetokounmpo took on the challenge of guarding LeBron James. The result? A big road win for the Bucks.`\
-https://nytimes.com/athletic/6959357/2026/01/10/lakers-bucks-giannis-antetokounmpo-lebron-games-defense/
+**How to watch Ducks vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959863/2026/01/10/ducks-vs-sabres-stream-how-to-watch-jan-10/
 
