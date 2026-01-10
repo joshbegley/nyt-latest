@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady
 `\
 https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady-tkachuk/
 
+**Senators players denounce Linus Ullmark speculation: 'It's extremely disappointing'**\
+`"It's embarrassing that it got to the point that it did," Ottawa captain Brady Tkachuk said. "I'm not happy about it one bit."
+`\
+https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady-tkachuk/
+
 **F.B.I.’s Inquiry Into ICE Shooting Faces Doubts After White House’s Remarks**\
 `Ex-law enforcement officials said the administration’s declarations that the killing was justified elicited questions about the F.B.I.’s willingness to scrutinize the agent who fatally shot an unarmed activist.`\
 https://nytimes.com/2026/01/10/us/politics/trump-ice-shooting-response-minneapolis.html

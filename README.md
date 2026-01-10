@@ -1,3 +1,7 @@
+**Death Toll From California Wild Mushroom Poisoning Rises to 3**\
+`The death of a Sonoma County resident last week prompted public health officials to urge foragers not to consume wild mushrooms.`\
+https://nytimes.com/2026/01/10/us/california-wild-mushrooms-poison.html
+
 **F.B.I.’s Inquiry Into ICE Shooting Faces Doubts After White House’s Remarks**\
 `Ex-law enforcement officials said the administration’s declarations that the killing was justified elicited questions about the F.B.I.’s willingness to scrutinize the agent who fatally shot an unarmed activist.`\
 https://nytimes.com/2026/01/10/us/politics/trump-ice-shooting-response-minneapolis.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6959877/2026/01/10/kraken-vs-hurricanes-stream-how-
 **How to watch Canucks vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6959875/2026/01/10/canucks-vs-maple-leafs-stream-how-to-watch-jan-10/
-
-**How to watch Islanders vs. Wild: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959871/2026/01/10/islanders-vs-wild-stream-how-to-watch-jan-10/
 
