@@ -1,3 +1,7 @@
+**New Cellphone Video Shows ICE Agent’s Perspective Before Minneapolis Shooting**\
+`The Department of Homeland Security posted a clip of the video on social media and said it was taken by the agent, who killed a 37-year-old woman in the shooting.`\
+https://nytimes.com/2026/01/09/us/ice-agent-video-minneapolis-shooting.html
+
 **Bengals analysis: 6 important themes from 63 minutes with Duke Tobin**\
 `The Bengals executive touched on numerous topics during a marathon session with reporters in Cincinnati. `\
 https://nytimes.com/athletic/6958571/2026/01/09/duke-tobin-bengals-end-of-season-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/09/world/africa/mohammed-harbi-dead.html
 **Judge Blocks Trump Officials From Freezing Billions in Social Services Funds**\
 `The ruling temporarily halted plans to freeze more than $10 billion in funds for anti-poverty programs bound for five Democratic-led states.`\
 https://nytimes.com/2026/01/09/us/politics/trump-child-care-funding-freeze.html
-
-**Outside Prisons in Caracas, Venezuelans Anxiously Await Release of More Political Detainees**\
-`Venezuela’s interim government said it would release an “important number” of imprisoned people, but only nine have been confirmed freed.`\
-https://nytimes.com/2026/01/09/world/americas/caracas-venezuela-prisoners-released.html
 
