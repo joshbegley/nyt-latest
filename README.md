@@ -1,3 +1,7 @@
+**Melton and Horford help stabilize rotation as Warriors roll over Kings**\
+`With Melton and Horford finding their footing after returning from injuries, the Warriors have won eight of their last 11 games.`\
+https://nytimes.com/athletic/6959371/2026/01/10/deanthony-melton-al-horford-warriors-kings/
+
 **Make-Ahead Breakfasts Worth Getting Out of Bed For**\
 `Good morning, banana olive oil muffins, baked oatmeal bars and sweet corn tamal.`\
 https://nytimes.com/2026/01/10/dining/make-ahead-breakfasts-worth-getting-out-of-bed-for.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6959601/2026/01/10/stars-vs-sharks-stream-how-to-wa
 **Bird Flu Viruses Raise Mounting Concerns Among Scientists**\
 `Researchers are not just worried about the virus popping up on American farms. Other types are causing trouble around the world.`\
 https://nytimes.com/2026/01/10/health/bird-flu-viruses-health.html
-
-**Macclesfield make FA Cup history with win against holders Crystal Palace**\
-`The lowest ranked team remaining in the competition after securing a 2-1 win against the Premier League side`\
-https://nytimes.com/athletic/6959526/2026/01/10/macclesfield-crystal-palace-fa-cup/
 
