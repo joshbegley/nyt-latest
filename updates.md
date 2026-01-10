@@ -1,4 +1,8 @@
 **Lakers' loss to Bucks ends 13-game unbeaten streak in clutch games**\
+`Before Friday, Los Angeles had not lost any game that was within 5 points with less than five minutes remaining. `\
+https://nytimes.com/athletic/6959254/2026/01/10/lakers-clutch-record-bucks-lebron-giannis/
+
+**Lakers' loss to Bucks ends 13-game unbeaten streak in clutch games**\
 `Prior to Friday, Los Angeles had not lost any game that was within five points with less than five minutes remaining. `\
 https://nytimes.com/athletic/6959254/2026/01/10/lakers-clutch-record-bucks-lebron-giannis/
 
