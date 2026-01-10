@@ -1,3 +1,12 @@
+**Ticket prices soar for Miami-Indiana national championship game**\
+`The College Football Playoff title game will be played in the Hurricanes' home stadium, with Miami native Fernando Mendoza leading Indiana`\
+https://nytimes.com/athletic/6959956/2026/01/10/miami-indiana-ticket-prices-college-football-playoff/
+
+**Senators players denounce Linus Ullmark speculation: 'It's extremely disappointing'**\
+`"It's embarrassing that it got to the point that it did," Ottawa captain Brady Tkachuk said. "I'm not happy about it one bit."
+`\
+https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady-tkachuk/
+
 **Senators players denounce Linus Ullmark speculation: 'It's extremely disappointing'**\
 `"It's embarrassing that it got to the point that it did," Ottawa captain Brady Tkachuk said. "I'm not happy about it one bit."
 `\
