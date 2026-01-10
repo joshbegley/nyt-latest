@@ -1,3 +1,7 @@
+**Commanders promoting David Blough to offensive coordinator: Source**\
+`The ex-assistant quarterbacks coach replaces Kliff Kingsbury, who the team parted ways with just three days earlier.`\
+https://nytimes.com/athletic/6958765/2026/01/09/commanders-promote-david-blough-offensive-coordinator/
+
 **Broncos' Sean Payton: Staff has done 'great job' with balancing interviews, playoff prep**\
 `Broncos defensive coordinator Vance Joseph was scheduled for five head coaching interviews this week. Three other assistants drew interest.`\
 https://nytimes.com/athletic/6958039/2026/01/09/broncos-sean-payton-coaching-interviews/

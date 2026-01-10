@@ -1,3 +1,7 @@
+**Commanders promoting David Blough to offensive coordinator: Source**\
+`The ex-assistant quarterbacks coach replaces Kliff Kingsbury, who the team parted ways with just three days earlier.`\
+https://nytimes.com/athletic/6958765/2026/01/09/commanders-promote-david-blough-offensive-coordinator/
+
 **Broncos' Sean Payton: Staff has done 'great job' with balancing interviews, playoff prep**\
 `Broncos defensive coordinator Vance Joseph was scheduled for five head coaching interviews this week. Three other assistants drew interest.`\
 https://nytimes.com/athletic/6958039/2026/01/09/broncos-sean-payton-coaching-interviews/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6958671/2026/01/09/brooks-koepka-pga-tour-return/
 **Gavin Newsom on Democrats, 2028 and His Fruit-only Breakfasts**\
 `The California governor is powered by smoothies and bursting with thoughts about U.S. politics.`\
 https://nytimes.com/2026/01/09/us/politics/gavin-newsom-california-democrats.html
-
-**49ers' Trent Williams 'confident' he'll play vs. Eagles; Ricky Pearsall questionable**\
-`Williams was limited at practice Thursday and Friday, while Pearsall did not practice all week.`\
-https://nytimes.com/athletic/6958364/2026/01/09/49ers-eagles-trent-williams-ricky-pearsall/
 
