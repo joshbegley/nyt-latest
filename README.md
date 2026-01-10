@@ -1,3 +1,11 @@
+**Macclesfield make FA Cup history with win over holders Crystal Palace**\
+`The lowest ranked team remaining in the competition secured a 2-1 win over the Premier League side.`\
+https://nytimes.com/athletic/6959526/2026/01/10/macclesfield-crystal-palace-fa-cup/
+
+**How to watch Stanford vs. Virginia men's basketball: Time, TV, streaming**\
+`Find out how to watch the Stanford Cardinal play the Virginia Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959589/2026/01/10/stanford-vs-virginia-stream-how-to-watch-jan-10/
+
 **How to watch Arizona vs. TCU men's basketball: Time, TV, streaming**\
 `Find out how to watch the Arizona Wildcats play the TCU Horned Frogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6959584/2026/01/10/arizona-vs-tcu-stream-how-to-watch-jan-10/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6958340/2026/01/10/eagles-49ers-preview-kyle-shanah
 **Lindsey Vonn wins another World Cup downhill, with Olympic race one month away**\
 `Vonn, 41, solidified her place as the downhill favorite at next month's Olympics, winning the 84th World Cup race of her career.`\
 https://nytimes.com/athletic/6959501/2026/01/10/lindsey-vonn-olympics-world-cup-downhill-zauchensee/
-
-**Origins of viral cheese grater hats lighting up Bears-Packers rivalry**\
-`The "graterhead hat" — its official name — isn't new, but sales took off after the Bears' DJ Moore wore one in a locker-room celebration`\
-https://nytimes.com/athletic/6956090/2026/01/10/bears-packers-cheese-grater-hats-dj-moore/
-
-**Will Brock Purdy’s super power help 49ers cash in house money and beat Eagles?**\
-`Riddled by injuries and dismissed all season, the 49ers enter Sunday's NFC wild-card game in Philadelphia loose and confident.`\
-https://nytimes.com/athletic/6958827/2026/01/10/49ers-eagles-brock-purdy-superpower/
 
