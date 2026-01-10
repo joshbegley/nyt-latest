@@ -1,3 +1,7 @@
+**Devils scratch defenseman Dougie Hamilton, agent says he's waiting to be traded**\
+`Hamilton, 32, is in the fifth year of a seven-year, $63 million contract signed with the Devils in July 2021, carrying a $9 million cap hit.`\
+https://nytimes.com/athletic/6960145/2026/01/10/devils-scratch-dougie-hamilton-trade/
+
 **Monkeys Are on the Loose in St. Louis, City Officials Say**\
 `As many as four vervet monkeys were spotted in a neighborhood in North St. Louis on Thursday, city officials said. No one knows how they got there.`\
 https://nytimes.com/2026/01/10/us/monkeys-loose-st-louis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6960192/2026/01/10/hornets-vs-jazz-stream-how-to-wa
 **How to watch Kings vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6960188/2026/01/10/kings-vs-oilers-stream-how-to-watch-jan-10/
-
-**How to watch Blues vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6960186/2026/01/10/blues-vs-golden-knights-stream-how-to-watch-jan-10/
 
