@@ -1,3 +1,12 @@
+**F.B.I.’s Inquiry Into ICE Shooting Faces Doubts After White House’s Remarks**\
+`Ex-law enforcement officials said the administration’s declarations that the killing was justified elicited questions about the F.B.I.’s willingness to scrutinize the agent who fatally shot an unarmed activist.`\
+https://nytimes.com/2026/01/10/us/politics/trump-ice-shooting-response-minneapolis.html
+
+**Senators players denounce Linus Ullmark speculation: 'It's extremely disappointing'**\
+`"It's embarrassing that it got to the point that it did," Ottawa captain Brady Tkachuk said. "I'm not happy about it one bit."
+`\
+https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady-tkachuk/
+
 **The Briefing: Algeria 0 Nigeria 2 – Osimhen's leap, Iwobi's pass and a statement Super Eagles display**\
 `Could Nigeria be the new AFCON favourites after making light work of Algeria?`\
 https://nytimes.com/athletic/6949014/2026/01/10/algeria-0-nigeria-2-osimhen-iwobi-afcon/
