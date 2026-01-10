@@ -1,3 +1,23 @@
+**Macclesfield make FA Cup history with win over holders Crystal Palace**\
+`The lowest ranked team remaining in the competition secured a 2-1 win over the Premier League side.`\
+https://nytimes.com/athletic/6959526/2026/01/10/macclesfield-crystal-palace-fa-cup/
+
+**How to watch Stanford vs. Virginia men's basketball: Time, TV, streaming**\
+`Find out how to watch the Stanford Cardinal play the Virginia Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959589/2026/01/10/stanford-vs-virginia-stream-how-to-watch-jan-10/
+
+**How to watch Arizona vs. TCU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959584/2026/01/10/arizona-vs-tcu-stream-how-to-watch-jan-10/
+
+**How to watch Oklahoma State vs. Iowa State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Oklahoma State Cowboys play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959579/2026/01/10/oklahoma-state-vs-iowa-state-stream-how-to-watch-jan-10/
+
+**Players react to first test game at Olympic hockey rink: 'Still a work in progress'**\
+`"Outside, I'm not quite sure if it will be ready because some of it is a mess." But the shorter dimensions didn't bother players Friday.`\
+https://nytimes.com/athletic/6959537/2026/01/10/olympic-hockey-rink-test-game-player-reaction/
+
 **Players react to first test game at Olympic hockey rink: 'Not perfect'**\
 `"Outside, I'm not quite sure if it will be ready because some of it is a mess." But the shorter dimensions didn't bother players Friday.`\
 https://nytimes.com/athletic/6959537/2026/01/10/olympic-hockey-rink-test-game-player-reaction/
