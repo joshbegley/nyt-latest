@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 1 Aston Villa 2 - another early Spurs exit as Emery's fringe players deliver**\
+`Jack-Pitt Brooke, Elias Burke and Conor O'Neill analyse the key talking points from Aston Villa's FA Cup third-round win at Tottenham`\
+https://nytimes.com/athletic/6948913/2026/01/10/tottenham-aston-villa-fa-cup-analysis/
+
 **Why Grizzlies put Ja Morant on the trade market and which teams could be interested**\
 `Morant is now at the center of the NBA trade market solar system, and he might be leaving Memphis sooner than later.`\
 https://nytimes.com/athletic/6959490/2026/01/10/ja-morant-trade-market-grizzlies-clippers-timberwolves/
