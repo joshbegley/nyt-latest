@@ -1,3 +1,7 @@
+**Ticket prices soar for Miami-Indiana national championship game**\
+`The College Football Playoff title game will be played in the Hurricanes' home stadium, with Miami native Fernando Mendoza leading Indiana`\
+https://nytimes.com/athletic/6959956/2026/01/10/miami-indiana-ticket-prices-college-football-playoff/
+
 **Fetty Wap, ‘Trap Queen’ Rapper, Is Released Early From Prison**\
 `The Grammy-nominated singer was sentenced to six years in 2023 for drug trafficking. The reasons for his release were unclear.`\
 https://nytimes.com/2026/01/10/arts/music/fetty-wap-prison-release.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6959882/2026/01/10/red-wings-vs-canadiens-stream-ho
 **How to watch Lightning vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6959879/2026/01/10/lightning-vs-flyers-stream-how-to-watch-jan-10/
-
-**How to watch Kraken vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959877/2026/01/10/kraken-vs-hurricanes-stream-how-to-watch-jan-10/
 
