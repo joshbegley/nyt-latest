@@ -3,7 +3,7 @@
 https://nytimes.com/2026/01/10/us/politics/us-strikes-islamic-state-syria.html
 
 **Bruins’ Pavel Zacha, a first career hat trick and a trade-or-keep debate**\
-`The 28-year-old plays an all-around game and Boston will likely get some attention from rival GMs about his availability at the deadline.`\
+`Zacha's hat trick, on top of his overall dependable, skilled play, is likely to catch the attention of rival general managers.`\
 https://nytimes.com/athletic/6960370/2026/01/10/bruins-pavel-zacha-hat-trick-trade-deadline/
 
 **Paul Haggis Reaches $2 Million Settlement After 2022 Rape Verdict**\
