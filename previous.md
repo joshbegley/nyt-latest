@@ -1,40 +1,40 @@
-**How to watch SMU vs. Duke men's basketball: Time, TV, streaming**\
-`Find out how to watch the SMU Mustangs play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959443/2026/01/10/smu-vs-duke-stream-how-to-watch-jan-10/
+**How to watch Rangers vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959465/2026/01/10/rangers-vs-bruins-stream-how-to-watch-jan-10/
 
-**How to watch Kansas vs. West Virginia men's basketball: Time, TV, streaming**\
-`Find out how to watch the Kansas Jayhawks play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959441/2026/01/10/kansas-vs-west-virginia-stream-how-to-watch-jan-10/
+**How to watch Timberwolves vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959463/2026/01/10/timberwolves-vs-cavaliers-stream-how-to-watch-jan-10/
 
-**How to watch DePaul vs. UConn men's basketball: Time, TV, streaming**\
-`Find out how to watch the DePaul Blue Demons play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959439/2026/01/10/depaul-vs-uconn-stream-how-to-watch-jan-10/
+**Acquired Tastes**\
+`The dream of cohabitating with a group of friends is an attractive fantasy, but we can benefit from its lessons, regardless of our living situation.`\
+https://nytimes.com/2026/01/10/briefing/acquired-tastes.html
 
-**How to watch Nebraska vs. Indiana men's basketball: Time, TV, streaming**\
-`Find out how to watch the Nebraska Cornhuskers play the Indiana Hoosiers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959435/2026/01/10/nebraska-vs-indiana-stream-how-to-watch-jan-10/
+**How to watch Texas Tech vs. Cincinnati women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Lady Raiders play the Cincinnati Bearcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959461/2026/01/10/texas-tech-vs-cincinnati-stream-how-to-watch-jan-10/
 
-**How to watch LSU vs. Vanderbilt men's basketball: Time, TV, streaming**\
-`Find out how to watch the LSU Tigers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959432/2026/01/10/lsu-vs-vanderbilt-stream-how-to-watch-jan-10/
+**How to watch Princeton vs. Yale women's basketball: Time, TV, streaming**\
+`Find out how to watch the Princeton Tigers play the Yale Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959459/2026/01/10/princeton-vs-yale-stream-how-to-watch-jan-10/
 
-**Can Caleb Williams continue to change the script in Bears-Packers rivalry?**\
-`“I feel like he's just getting started, just with his talent, his natural-born ability,” Bears running back D’Andre Swift said.`\
-https://nytimes.com/athletic/6957927/2026/01/10/caleb-williams-change-script-bears-packers-rivalry/
+**How to watch Boston College vs. Louisville men's basketball: Time, TV, streaming**\
+`Find out how to watch the Boston College Eagles play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959456/2026/01/10/boston-college-vs-louisville-stream-how-to-watch-jan-10/
 
-**NFL playoffs streaming guide: Rams-Panthers, Packers-Bears in Saturday wild-card games**\
-`The first round of the NFL playoffs commences Saturday, with an NFC doubleheader in Charlotte and Chicago.`\
-https://nytimes.com/athletic/6952647/2026/01/10/nfl-playoffs-packers-bears-rams-panthers-tv-streaming-guide/
+**How to watch Georgia vs. South Carolina men's basketball: Time, TV, streaming**\
+`Find out how to watch the Georgia Bulldogs play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959454/2026/01/10/georgia-vs-south-carolina-stream-how-to-watch-jan-10/
 
-**How do you rank your favorite NHL arena? Take our survey now**\
-`How does your local NHL arena rate in several important categories?`\
-https://nytimes.com/athletic/6958369/2026/01/10/nhl-arena-survey-ranking-2026/
+**How to watch Wisconsin vs. Michigan men's basketball: Time, TV, streaming**\
+`Find out how to watch the Wisconsin Badgers play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959451/2026/01/10/wisconsin-vs-michigan-stream-how-to-watch-jan-10/
 
-**Without Anthony Davis, Mavericks should have no problem being bad. That's a good thing**\
-`While Davis' injury threatens his trade value, it will be easier for Dallas to maximize the only first-round pick it controls until 2031.`\
-https://nytimes.com/athletic/6959049/2026/01/10/anthony-davis-injury-mavericks-draft-pick/
+**How to watch Penn State vs. Purdue men's basketball: Time, TV, streaming**\
+`Find out how to watch the Penn State Nittany Lions play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959449/2026/01/10/penn-state-vs-purdue-stream-how-to-watch-jan-10/
 
-**As Blue Jackets continue to straggle, NHL-best Avs present a major challenge**\
-`The Blue Jackets will have to defend better than they have all season. "We have no choice but to bring our 'A' game," Charlie Coyle said.`\
-https://nytimes.com/athletic/6958817/2026/01/10/blue-jackets-avs-preview-challenge/
+**How to watch Tennessee vs. Florida men's basketball: Time, TV, streaming**\
+`Find out how to watch the Tennessee Volunteers play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959447/2026/01/10/tennessee-vs-florida-stream-how-to-watch-jan-10/
 
