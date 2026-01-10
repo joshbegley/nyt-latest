@@ -1,5 +1,33 @@
+**Steep stands and low roofs: How Leeds can expand Elland Road while retaining its iconic atmosphere**\
+`Plans to increase the capacity of Leeds United's home to 53,000 were approved this week`\
+https://nytimes.com/athletic/6958054/2026/01/10/elland-road-expansion-atmosphere/
+
+**Man Utd's retrotopia dooms them to repeat the same mistakes for eternity**\
+`The club's sepia-tinted caretaker manager search underlines how it remains trapped by its illustrious past`\
+https://nytimes.com/athletic/6953600/2026/01/10/manchester-united-manager-history/
+
+**Is Vinicius Jr a good fit for Xabi Alonso's Real Madrid?**\
+`The 25-year-old Brazilian forward has not scored at club level since October 4 and has been jeered by home fans at the Bernabeu`\
+https://nytimes.com/athletic/6949914/2026/01/10/vinicius-jr-real-madrid-xabi-alonso-tactics/
+
+**Tottenham Hotspur - a power vacuum in which chaos and misery are thriving**\
+`Recent changes at the top of the club were meant to herald a new era of open communication and accountability - so far, they have not`\
+https://nytimes.com/athletic/6958014/2026/01/10/tottenham-hotspur-frank-lewis-venkatesham-lange/
+
+**How Nigeria recruit players – and their near-misses with Eze, Olise and Abraham**\
+`The West African nation try to tap into their diaspora in Europe, but this isn't always successful and their system is far from perfect`\
+https://nytimes.com/athletic/6938729/2026/01/10/how-nigeria-recruit-players-eze/
+
+**Why Semenyo's City arrival is further evidence of Pep Guardiola's new direction**\
+`The Man City manager is building a new team that can handle the physical rigours of the Premier League — and also learn to control games `\
+https://nytimes.com/athletic/6947692/2026/01/10/antoine-semenyo-manchester-city-tactical-fit/
+
+**Doc Rivers: ICE shooting in Minneapolis 'straight-up murder'**\
+`Rivers, one of the NBA's most outspoken coaches, has previously spoken out about ICE activity in his hometown of Chicago.`\
+https://nytimes.com/athletic/6959148/2026/01/10/doc-rivers-minneapolis-ice-shooting-murder/
+
 **Thunder complete another significant comeback against Grizzlies, this time without their stars**\
-`Could this comeback, the Thunder's third of at least 19 points in Memphis since last April, wake up the NBA champions from its recent slide?`\
+`Could this comeback, the Thunder's third of at least 19 points in Memphis since April, wake up the NBA champions from their recent slide?`\
 https://nytimes.com/athletic/6959138/2026/01/10/okc-thunder-comeback-against-grizzlies-without-stars/
 
 **Rosenior, Chelsea and the benefits and risks of hiring within a multi-club model**\
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6957165/2026/01/10/liam-rosenior-chelsea-multi-club
 **No Amazon, No Gmail: Trump Sanctions Upend the Lives of I.C.C. Judges**\
 `President Trump’s retaliation against top officials at the International Criminal Court has shut them out of American services and made even routine daily tasks a challenge.`\
 https://nytimes.com/2026/01/10/world/europe/icc-judges-us-sanctions-trump.html
-
-**Quote of the Day: Bears Took Big Swing on the Offensive Line, and It Really Paid Off**\
-`Quotation of the Day for Saturday, January 10, 2026.`\
-https://nytimes.com/2026/01/10/pageoneplus/quote-of-the-day-bears-took-big-swing-on-the-offensive-line-and-it-really-paid-off.html
-
-**Connections: Sports Edition Coach: Hints for Jan. 10, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6959086/2026/01/10/connections-sports-edition-hints-for-jan-10-2026/
-
-**Volkswagen Suffers More Than Rivals From Auto Industry Woes**\
-`The German automaker’s sales in the United States plunged last year, hit by tariffs and the end of tax credits for electric vehicles.`\
-https://nytimes.com/2026/01/10/business/volkswagen-tariffs-trump.html
-
-**Corrections: Jan. 10, 2026**\
-`Corrections that appeared in print on Saturday, Jan. 10, 2026.`\
-https://nytimes.com/2026/01/10/pageoneplus/corrections-jan-10-2026.html
-
-**Connor Bedard's return not enough to overcome depleted roster for Blackhawks**\
-`Bedard returned after missing 12 games with an injury, but a stomach bug making its way through the team impacted several other players.`\
-https://nytimes.com/athletic/6958986/2026/01/09/blackhawks-connor-bedard-injury-return-goalies/
-
-**Kevin Durant passes Wilt Chamberlain, moves into seventh place on NBA scoring list**\
-`Much like Chamberlain, Durant has been viewed as one of the most unstoppable scoring machines the NBA has ever seen.`\
-https://nytimes.com/athletic/6957149/2026/01/09/kevin-durant-seventh-nba-all-time-scoring-wilt-chamberlain/
-
-**WNBA, players union fail to reach CBA deal at deadline**\
-`The WNBA and players union will enter into a status quo period. `\
-https://nytimes.com/athletic/6959018/2026/01/09/wnba-labor-union-deadline-expire/
 
