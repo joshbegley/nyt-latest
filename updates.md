@@ -1,3 +1,11 @@
+**Judge Bars Trump From Withholding Election Funds to States**\
+`The ruling is the latest legal setback to President Trump’s sweeping effort to compel changes to state election standards.`\
+https://nytimes.com/2026/01/09/us/politics/trump-court-ruling-elections.html
+
+**Visa issues derail Ethiopian teams' world cross-country championship hopes: Reports**\
+`A representative of Ethiopia's federation said no explanation was given for the U.S. rejecting several athletes' visa applications.`\
+https://nytimes.com/athletic/6958990/2026/01/09/cross-country-championships-ethiopia-visa-issues/
+
 **CFP championship first look: Can Indiana win a shocking title? Will Miami return to No. 1?**\
 `Indiana and Miami will meet in an unlikely College Football Playoff national title game on Jan. 19. Here's what you need to know.`\
 https://nytimes.com/athletic/6958901/2026/01/09/indiana-miami-college-football-playoff-national-championship-game/
