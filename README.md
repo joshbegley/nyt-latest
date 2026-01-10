@@ -1,3 +1,7 @@
+**America Doesn’t Need ICE**\
+`The shooting in Minneapolis is just the latest sign.`\
+https://nytimes.com/2026/01/10/opinion/immigration-ice-violence-minnesota.html
+
 **Machado Offered Trump Her Nobel, but Prize Institute Says It’s Not Allowed**\
 `After María Corina Machado, Venezuela’s opposition leader, offered her Nobel Peace Prize to President Trump, the Norwegian Nobel Institute said it cannot be “transferred to others.”`\
 https://nytimes.com/2026/01/10/world/americas/trump-nobel-peace-prize-maria-machado.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6942602/2026/01/10/matt-ryan-atlanta-falcons-presid
 **'Chasing perfection': Jaxon Smith-Njigba's path from slot receiver to unanimous All-Pro**\
 `Smith-Njigba always expects more of himself than anyone else does: "Y'all don't really know what I'm really capable of, but I'mma show you."`\
 https://nytimes.com/athletic/6956131/2026/01/10/jsn-jaxon-smith-njigba-seahawks-all-pro/
-
-**Rockets’ 3-point shooting struggles continue as loss mars Kevin Durant's historic night**\
-`Shaky long-distance shooting lead to the Rockets surrendering a large fourth-quarter lead in a loss to the Trail Blazers.`\
-https://nytimes.com/athletic/6959353/2026/01/10/rockets-3-point-shooting-struggles-continue-as-loss-mars-kevin-durants-historic-night/
 
