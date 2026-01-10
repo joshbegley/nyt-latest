@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 1 Aston Villa 2 - another early Spurs exit as Emery's fringe players deliver**\
+`Jack-Pitt Brooke, Elias Burke and Conor O'Neill analyse the key talking points from Aston Villa's FA Cup third-round win at Tottenham`\
+https://nytimes.com/athletic/6948913/2026/01/10/tottenham-aston-villa-fa-cup-analysis/
+
 **Why Grizzlies put Ja Morant on the trade market and which teams could be interested**\
 `Morant is now at the center of the NBA trade market solar system, and he might be leaving Memphis sooner than later.`\
 https://nytimes.com/athletic/6959490/2026/01/10/ja-morant-trade-market-grizzlies-clippers-timberwolves/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/10/us/politics/trump-ice-shooting-response-minneapol
 **The Briefing: Algeria 0 Nigeria 2 – Osimhen's leap, Iwobi's pass and what happened after full-time?**\
 `Could Nigeria be the new AFCON favourites after making light work of Algeria?`\
 https://nytimes.com/athletic/6949014/2026/01/10/algeria-0-nigeria-2-osimhen-iwobi-afcon/
-
-**Red-hot Leafs shuffle their lineup ahead of William Nylander's return**\
-`The Leafs have gone 4-0-2 without him and 6-0-2 in their last eight overall.`\
-https://nytimes.com/athletic/6959614/2026/01/10/william-nylander-maple-leafs-return/
 
