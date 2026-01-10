@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Jan. 10, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/10/todays-new-york-times
+
 **The Ashes in numbers: From Australia's heroes to England's drought and two-day Tests**\
 `Who is now the second-highest run-scorer in the Ashes? And how many players aged 35 or over have taken 30 wickets in a series? Answers below`\
 https://nytimes.com/athletic/6937410/2026/01/10/ashes-australia-england-stats-numbers/
