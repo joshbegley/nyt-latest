@@ -1,3 +1,11 @@
+**Bengals analysis: 6 important themes from 63 minutes with Duke Tobin**\
+`The Bengals executive touched on numerous topics during a marathon session with reporters in Cincinnati. `\
+https://nytimes.com/athletic/6958571/2026/01/09/duke-tobin-bengals-end-of-season-analysis/
+
+**Trump Urges Oil Companies to Speed Work in Venezuela**\
+`The president met with executives on a day when the U.S. seized another tanker carrying Venezuelan oil.`\
+https://nytimes.com/2026/01/09/world/americas/trump-oil-venezuela.html
+
 **Trae Young wants to 'hopefully make an All-Star or two' out of new Wizards teammates**\
 `In his first news conference since being traded to Washington from Atlanta, Young emphasized his desire to help the Wizards' young core.`\
 https://nytimes.com/athletic/6958678/2026/01/09/trae-young-introduction-washington-wizards-nba/
