@@ -1,3 +1,7 @@
+**Why Grizzlies put Ja Morant on the trade market and what teams could be interested**\
+`Morant is now at the center of the NBA trade market solar system, and he might be leaving Memphis sooner than later.`\
+https://nytimes.com/athletic/6959490/2026/01/10/ja-morant-trade-market-grizzlies-clippers-timberwolves/
+
 **Nebraska’s 16-point second-half comeback at Indiana keeps perfect season alive**\
 `The Huskers offense exploded for 56% shooting in the second half to stay perfect at 16-0. `\
 https://nytimes.com/athletic/6959968/2026/01/10/nebraska-indiana-college-basketball-perfect-season/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6949014/2026/01/10/algeria-0-nigeria-2-osimhen-iwob
 **Red-hot Leafs shuffle their lineup ahead of William Nylander's return**\
 `The Leafs have gone 4-0-2 without him and 6-0-2 in their last eight overall.`\
 https://nytimes.com/athletic/6959614/2026/01/10/william-nylander-maple-leafs-return/
-
-**Senators players denounce Linus Ullmark speculation: 'It's extremely disappointing'**\
-`"It's embarrassing that it got to the point that it did," Ottawa captain Brady Tkachuk said. "I'm not happy about it one bit."
-`\
-https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady-tkachuk/
 
