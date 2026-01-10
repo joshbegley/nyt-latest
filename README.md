@@ -1,3 +1,11 @@
+**CFP championship first look: Can Indiana win a shocking title? Will Miami return to No. 1?**\
+`Indiana and Miami will meet in an unlikely College Football Playoff national title game on Jan. 19. Here's what you need to know.`\
+https://nytimes.com/athletic/6958901/2026/01/09/indiana-miami-college-football-playoff-national-championship-game/
+
+**College Football Playoff 2025 bracket projections: Who's the national title favorite?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2026/01/09/college-football-playoff-bracket-projections-odds/
+
 **Indiana clear favorite against Miami in national title game**\
 `Indiana is favored by a touchdown against Miami in the national title game. Will the Hoosiers continue to steamroll the opposition?`\
 https://nytimes.com/athletic/6958966/2026/01/09/college-football-national-title-game-odds-indiana-miami/
@@ -18,7 +26,7 @@ https://nytimes.com/athletic/6958977/2026/01/09/alisa-efimova-misha-mitrofanov-c
 `Kerr is a passionate supporter of gun control and has been a critic of President Donald Trump in the past. `\
 https://nytimes.com/athletic/6958942/2026/01/09/steve-kerr-responds-minneapolis-ice-shooting/
 
-**Dominant medal streak for Ethiopia cross-country teams to end over visa issues**\
+**Visa issues derail Ethiopian teams' world cross-country championship hopes: Report**\
 `A representative of Ethiopia's federation said no explanation was given for the U.S. rejecting several athletes' visa applications.`\
 https://nytimes.com/athletic/6958990/2026/01/09/cross-country-championships-ethiopia-visa-issues/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/09/world/americas/venezuela-us-diplomacy-softening.h
 **Go for Another Round**\
 `Kameron Austin Collins treats us to a new construction, with more to come.`\
 https://nytimes.com/2026/01/09/crosswords/daily-puzzle-2026-01-10.html
-
-**Washington's Fisch: QB Williams' return 'best thing' for college football**\
-`Fisch described Williams’ 48-hour dalliance with transferring out of the program as a “learning experience."`\
-https://nytimes.com/athletic/6958976/2026/01/09/jedd-fisch-demond-williams-washington-football-transfer-portal/
-
-**Rare Comic Introducing Superman Sells Privately for $15 Million**\
-`The copy of Action Comics No. 1, published in 1938, was stolen from the actor Nicolas Cage in 2000 and recovered more than a decade later.`\
-https://nytimes.com/2026/01/09/books/superman-action-comics-1-sold.html
 

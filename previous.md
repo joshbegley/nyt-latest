@@ -1,3 +1,23 @@
+**Indiana clear favorite against Miami in national title game**\
+`Indiana is favored by a touchdown against Miami in the national title game. Will the Hoosiers continue to steamroll the opposition?`\
+https://nytimes.com/athletic/6958966/2026/01/09/college-football-national-title-game-odds-indiana-miami/
+
+**Trump Calls for 10 Percent Credit Card Interest Cap, After Killing Other Fee Limits**\
+`The president revived a campaign promise he has not actively pursued since taking office.`\
+https://nytimes.com/2026/01/09/us/politics/credit-card-interest-cap.html
+
+**Hoosiers hit the afterburners: Indiana steamrolls Oregon en route to CFP title game**\
+`For the second time this postseason, the Hoosiers flexed on a program with more talent and tradition.`\
+https://nytimes.com/athletic/6958786/2026/01/09/indiana-oregon-score-result-cfp-takeaways/
+
+**U.S. champion figure skating pair now wait on a 'miracle' to make Olympic team**\
+`Alisa Efimova and Misha Mitrofanov won the pairs crown Friday at U.S. championships. A citizenship issue could keep them from the Olympics.`\
+https://nytimes.com/athletic/6958977/2026/01/09/alisa-efimova-misha-mitrofanov-citizenship-olympics-figure-skating/
+
+**Steve Kerr on government response to ICE shooting in Minneapolis: 'Shameful'**\
+`Kerr is a passionate supporter of gun control and has been a critic of President Donald Trump in the past. `\
+https://nytimes.com/athletic/6958942/2026/01/09/steve-kerr-responds-minneapolis-ice-shooting/
+
 **Dominant medal streak for Ethiopia cross-country teams to end over visa issues**\
 `A representative of Ethiopia's federation said no explanation was given for the U.S. rejecting several athletes' visa applications.`\
 https://nytimes.com/athletic/6958990/2026/01/09/cross-country-championships-ethiopia-visa-issues/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6958976/2026/01/09/jedd-fisch-demond-williams-washi
 **Rare Comic Introducing Superman Sells Privately for $15 Million**\
 `The copy of Action Comics No. 1, published in 1938, was stolen from the actor Nicolas Cage in 2000 and recovered more than a decade later.`\
 https://nytimes.com/2026/01/09/books/superman-action-comics-1-sold.html
-
-**Consumer Bureau Leader Requests $145 Million for Agency He Wants to Eliminate**\
-`A federal judge ordered Russell T. Vought, the bureau’s acting director, to keep requesting funds for the financial watchdog’s operations.`\
-https://nytimes.com/2026/01/09/us/politics/cfpb-vought-funds.html
-
-**Minnesota Woman Dies After Shark Bite in U.S. Virgin Islands**\
-`People at the beach went to the woman’s rescue and helped her ashore, the authorities said, but she died at a hospital.`\
-https://nytimes.com/2026/01/09/us/shark-attack-virgin-islands-death.html
-
-**What It Takes to Drill Into an Antarctic Glacier**\
-`Our climate reporter Raymond Zhong meets with Paul Anker, a drilling engineer aboard the icebreaker Araon, to discuss the stakes, preparations and pressure of the mission to drill a hole in the Thwaites Glacier to measure the water beneath.`\
-https://nytimes.com/video/climate/100000010631924/what-it-takes-to-drill-into-an-antarctic-glacier.html
-
-**Trump Administration Freezes Food Stamps in Minnesota**\
-`The move was part of a broader effort to to freeze social services to some Democratic-led states amid a fraud investigation in Minnesota.`\
-https://nytimes.com/2026/01/09/us/politics/trump-minnesota-food-stamps-usda.html
-
-**Dr. Oz Visits California to Target ‘Fraud’**\
-`Dr. Mehmet Oz, the head of the Centers for Medicare and Medicaid, and Bill Essayli, a Los Angeles-based prosecutor, said they were investigating federally funded services.`\
-https://nytimes.com/2026/01/09/us/politics/dr-oz-visits-california-to-target-fraud.html
 
