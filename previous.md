@@ -3,7 +3,7 @@
 https://nytimes.com/2026/01/09/us/politics/dr-oz-visits-california-to-target-fraud.html
 
 **NBA referee Bill Kennedy, known for viral challenge verdicts, leaves game in wheelchair**\
-`The longtime NBA official appeared to suffer a non-contact leg injury early in a game between the Magic and 76ers.`\
+`The longtime NBA official appeared to suffer a non-contact right leg injury early in a game between the Magic and 76ers.`\
 https://nytimes.com/athletic/6958833/2026/01/09/bill-kennedy-nba-referee-injury-leaves-76ers-magic-game/
 
 **After committing to Baylor, QB DJ Lagway might still take other visits: Sources**\
@@ -34,7 +34,7 @@ https://nytimes.com/video/the-athletic/100000010635547/why-nhl-players-are-final
 `The ex-assistant quarterbacks coach replaces Kliff Kingsbury, who the team parted ways with just three days earlier.`\
 https://nytimes.com/athletic/6958765/2026/01/09/commanders-promote-david-blough-offensive-coordinator/
 
-**Broncos' Sean Payton: Staff has done 'great job' with balancing interviews, playoff prep**\
-`Broncos defensive coordinator Vance Joseph was scheduled for five head coaching interviews this week. Three other assistants drew interest.`\
-https://nytimes.com/athletic/6958039/2026/01/09/broncos-sean-payton-coaching-interviews/
+**WATCH: Why the Broncos have all the makings of a Super Bowl-caliber defense**\
+`The AFC playoff field is wide open and the Broncos have the pieces on defense to be the last team standing. Watch how here.`\
+https://nytimes.com/athletic/6958868/2026/01/09/video-analysis-broncos-defense-talanoa-hufanga/
 

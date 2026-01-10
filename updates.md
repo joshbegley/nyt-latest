@@ -1,3 +1,11 @@
+**NBA referee Bill Kennedy, known for viral challenge verdicts, leaves game in wheelchair**\
+`The longtime NBA official appeared to suffer a non-contact right leg injury early in a game between the Magic and 76ers.`\
+https://nytimes.com/athletic/6958833/2026/01/09/bill-kennedy-nba-referee-injury-leaves-76ers-magic-game/
+
+**WATCH: Why the Broncos have all the makings of a Super Bowl-caliber defense**\
+`The AFC playoff field is wide open and the Broncos have the pieces on defense to be the last team standing. Watch how here.`\
+https://nytimes.com/athletic/6958868/2026/01/09/video-analysis-broncos-defense-talanoa-hufanga/
+
 **Dr. Oz Visits California to Target Fraud**\
 `Dr. Mehmet Oz, the head of the Centers for Medicare and Medicaid, and Bill Essayli, a Los Angeles-based prosecutor, said they were investigating federally funded services.`\
 https://nytimes.com/2026/01/09/us/politics/dr-oz-visits-california-to-target-fraud.html
