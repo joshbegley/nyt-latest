@@ -1,3 +1,11 @@
+**Go for Another Round**\
+`Kameron Austin Collins treats us to a new construction, with more to come.`\
+https://nytimes.com/2026/01/09/crosswords/daily-puzzle-2026-01-10.html
+
+**Washington's Fisch: QB Williams' return 'best thing' for college football**\
+`Fisch described Williams’ 48-hour dalliance with transferring out of the program as a “learning experience."`\
+https://nytimes.com/athletic/6958976/2026/01/09/jedd-fisch-demond-williams-washington-football-transfer-portal/
+
 **Rare Comic Introducing Superman Sells Privately for $15 Million**\
 `The copy of Action Comics No. 1, published in 1938, was stolen from the actor Nicolas Cage in 2000 and recovered more than a decade later.`\
 https://nytimes.com/2026/01/09/books/superman-action-comics-1-sold.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6958833/2026/01/09/bill-kennedy-nba-referee-injury-
 **After committing to Baylor, QB DJ Lagway might still take other visits: Sources**\
 `Lagway has not signed his scholarship paperwork nor his revenue-sharing agreement with Baylor. Others, including Ole Miss, have interest.`\
 https://nytimes.com/athletic/6958835/2026/01/09/dj-lagway-transfer-portal-news-baylor-ole-miss/
-
-**New Cellphone Video Shows ICE Agent’s Perspective Before Minneapolis Shooting**\
-`The Department of Homeland Security posted a clip of the video on social media and said it was taken by the agent, who killed a 37-year-old woman in the shooting.`\
-https://nytimes.com/2026/01/09/us/ice-agent-video-minneapolis-shooting.html
-
-**Bengals analysis: 6 important themes from 63 minutes with Duke Tobin**\
-`The Bengals executive touched on numerous topics during a marathon session with reporters in Cincinnati. `\
-https://nytimes.com/athletic/6958571/2026/01/09/duke-tobin-bengals-end-of-season-analysis/
 

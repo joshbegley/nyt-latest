@@ -1,3 +1,11 @@
+**Go for Another Round**\
+`Kameron Austin Collins treats us to a new construction, with more to come.`\
+https://nytimes.com/2026/01/09/crosswords/daily-puzzle-2026-01-10.html
+
+**Washington's Fisch: QB Williams' return 'best thing' for college football**\
+`Fisch described Williams’ 48-hour dalliance with transferring out of the program as a “learning experience."`\
+https://nytimes.com/athletic/6958976/2026/01/09/jedd-fisch-demond-williams-washington-football-transfer-portal/
+
 **Rare Comic Introducing Superman Sells Privately for $15 Million**\
 `The copy of Action Comics No. 1, published in 1938, was stolen from the actor Nicolas Cage in 2000 and recovered more than a decade later.`\
 https://nytimes.com/2026/01/09/books/superman-action-comics-1-sold.html
