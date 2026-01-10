@@ -1,3 +1,7 @@
+**Why Grizzlies put Ja Morant on the trade market and which teams could be interested**\
+`Morant is now at the center of the NBA trade market solar system, and he might be leaving Memphis sooner than later.`\
+https://nytimes.com/athletic/6959490/2026/01/10/ja-morant-trade-market-grizzlies-clippers-timberwolves/
+
 **Why Grizzlies put Ja Morant on the trade market and what teams could be interested**\
 `Morant is now at the center of the NBA trade market solar system, and he might be leaving Memphis sooner than later.`\
 https://nytimes.com/athletic/6959490/2026/01/10/ja-morant-trade-market-grizzlies-clippers-timberwolves/
