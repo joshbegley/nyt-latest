@@ -1,4 +1,8 @@
-**The Briefing: Egypt 3 Ivory Coast 2 — Salah sets up Liverpool reunion with Mane in AFCON semi-final**\
+**Protests Against ICE in Minneapolis Continue Into Friday Night**\
+`Hundreds of protesters marched through downtown Minneapolis on Friday night.`\
+https://nytimes.com/video/us/politics/100000010636791/protest-minneapolis-minnesota-ice.html
+
+**The Briefing: Egypt 3 Ivory Coast 2 – Salah sets up Liverpool reunion with Mane in AFCON semi-final**\
 `Salah's dreams of a first AFCON title are very much alive after a tense win against Ivory Coast`\
 https://nytimes.com/athletic/6949016/2026/01/10/egypt-3-ivory-coast-2-salah-afcon/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6960087/2026/01/10/moe-wagner-magic-season-debut-ac
 **How to watch BYU vs. Utah men's basketball: Time, TV, streaming**\
 `Find out how to watch the BYU Cougars play the Utah Utes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6960164/2026/01/10/byu-vs-utah-stream-how-to-watch-jan-10/
-
-**The Briefing: Tottenham 1 Aston Villa 2 - another early Spurs exit as Emery's fringe players deliver**\
-`Jack-Pitt Brooke, Elias Burke and Conor O'Neill analyse the key talking points from Aston Villa's FA Cup third-round win at Tottenham`\
-https://nytimes.com/athletic/6948913/2026/01/10/tottenham-aston-villa-fa-cup-analysis/
 
