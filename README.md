@@ -1,3 +1,7 @@
+**Red-hot Leafs shuffle their lineup ahead of William Nylander's return**\
+`The Leafs have gone 4-0-2 without him and 6-0-2 in their last eight overall.`\
+https://nytimes.com/athletic/6959614/2026/01/10/william-nylander-maple-leafs-return/
+
 **Senators players denounce Linus Ullmark speculation: 'It's extremely disappointing'**\
 `"It's embarrassing that it got to the point that it did," Ottawa captain Brady Tkachuk said. "I'm not happy about it one bit."
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6959869/2026/01/10/panthers-vs-senators-stream-how-
 **Red Sox CEO says free-agency deadline would be 'helpful,' avoids Alex Bregman discussion**\
 `Sam Kennedy noted that the Red Sox, who have yet to sign a free agent this offseason, have invested in the roster via other avenues.`\
 https://nytimes.com/athletic/6959775/2026/01/10/red-sox-sam-kennedy-free-agent-deadline-alex-bregman/
-
-**How to watch Ducks vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959863/2026/01/10/ducks-vs-sabres-stream-how-to-watch-jan-10/
 
