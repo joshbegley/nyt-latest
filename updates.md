@@ -1,3 +1,7 @@
+**USWNT defender Nighswonger joins Aston Villa on loan from Arsenal**\
+`The deal for Nighswonger, 25, includes an option to make the move permanent.`\
+https://nytimes.com/athletic/6959385/2026/01/10/jenna-nighswonger-aston-villa-arsenal-loan-transfer/
+
 **Arsenal leading race for Stanway, midfielder confirms Bayern summer exit**\
 `Stanway is entering the final six months of her current deal with Bayern.`\
 https://nytimes.com/athletic/6958511/2026/01/10/georgia-stanway-bayern-arsenal-future/
