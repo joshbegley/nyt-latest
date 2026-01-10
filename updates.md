@@ -1,3 +1,11 @@
+**Braves, reliever Tyler Kinley agree to deal as Atlanta keeps bolstering its bullpen**\
+`Kinley allowed just two earned runs in 25 innings for a 0.72 ERA for the Braves last season after they acquired him at the trade deadline.`\
+https://nytimes.com/athletic/6959251/2026/01/10/tyler-kinley-contract-atlanta-braves/
+
+**Wisconsin stuns No. 2 Michigan, ends Wolverines' unbeaten start with 3-point barrage**\
+`The Badgers knocked down 15 3-pointers on the way to their first win over a top-two ranked team since beating Michigan in 2019,`\
+https://nytimes.com/athletic/6960190/2026/01/10/wisconsin-michigan-basketball-upset/
+
 **Stewart Cheifet, Host of TV’s ‘Computer Chronicles,’ Dies at 87**\
 `He spent two decades hosting the PBS series, during the formative years of personal computing. It was seen in more than 300 cities at its peak.`\
 https://nytimes.com/2026/01/10/technology/stewart-cheifet-dead.html
