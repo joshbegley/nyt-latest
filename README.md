@@ -1,3 +1,7 @@
+**The Briefing: Man City 10 Exeter 1 - Semenyo's impact, City equal record win and where does Lewis fit in?**\
+`Runners-up last season, City started this FA Cup campaign by sticking 10 goals past their third-tier opponents at the Etihad`\
+https://nytimes.com/athletic/6948911/2026/01/10/man-city-semenyo-debut-exeter-fa-cup/
+
 **Until Saturday: Indiana's on the brink of a GOAT case**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6959748/2026/01/10/indiana-oregon-playoff-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6959371/2026/01/10/deanthony-melton-al-horford-warr
 **Make-Ahead Breakfasts Worth Getting Out of Bed For**\
 `Good morning, banana olive oil muffins, baked oatmeal bars and sweet corn tamal.`\
 https://nytimes.com/2026/01/10/dining/make-ahead-breakfasts-worth-getting-out-of-bed-for.html
-
-**Falcons hire Matt Ryan as new president of football**\
-`The legendary QB is expected to oversee the hiring of Atlanta's new coach and GM after Raheem Morris and Terry Fontenot were fired.`\
-https://nytimes.com/athletic/6942602/2026/01/10/matt-ryan-atlanta-falcons-president-football-operations-hire/
 
