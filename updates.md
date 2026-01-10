@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady
 `\
 https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady-tkachuk/
 
+**Senators players denounce Linus Ullmark speculation: 'It's extremely disappointing'**\
+`"It's embarrassing that it got to the point that it did," Ottawa captain Brady Tkachuk said. "I'm not happy about it one bit."
+`\
+https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady-tkachuk/
+
 **How to watch Mavericks vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6959884/2026/01/10/mavericks-vs-bulls-stream-how-to-watch-jan-10/
