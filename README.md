@@ -1,3 +1,7 @@
+**How to watch Blue Jackets vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959609/2026/01/10/blue-jackets-vs-avalanche-stream-how-to-watch-jan-10/
+
 **AP NFL All-Pro teams: Matthew Stafford, Bijan Robinson, Myles Garrett lead 2025 selections**\
 `Drake Maye played a significant role in helping New England (14-3) to one of the best one-season turnarounds in NFL history.`\
 https://nytimes.com/athletic/6958994/2026/01/10/ap-nfl-all-pro-team-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6959579/2026/01/10/oklahoma-state-vs-iowa-state-str
 **Players react to first test game at Olympic hockey rink: 'Still a work in progress'**\
 `"Outside, I'm not quite sure if it will be ready because some of it is a mess." But the shorter dimensions didn't bother players Friday.`\
 https://nytimes.com/athletic/6959537/2026/01/10/olympic-hockey-rink-test-game-player-reaction/
-
-**When American Violence Becomes Too Much for Families**\
-`I asked why so many women were considering leaving the country. The guns, several responded.`\
-https://nytimes.com/2026/01/10/opinion/leaving-america-gun-violence.html
 
