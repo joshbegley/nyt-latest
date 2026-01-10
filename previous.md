@@ -1,3 +1,7 @@
+**What It Takes to Drill Into an Antarctic Glacier**\
+`Our climate reporter Raymond Zhong meets with Paul Anker, a drilling engineer aboard the icebreaker Araon, to discuss the stakes, preparations and pressure of the mission to drill a hole in the Thwaites Glacier to measure the water beneath.`\
+https://nytimes.com/video/climate/100000010631924/what-it-takes-to-drill-into-an-antarctic-glacier.html
+
 **Trump Administration Freezes Food Stamps in Minnesota**\
 `The move was part of a broader effort to to freeze social services to some Democratic-led states amid a fraud investigation in Minnesota.`\
 https://nytimes.com/2026/01/09/us/politics/trump-minnesota-food-stamps-usda.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6958678/2026/01/09/trae-young-introduction-washingt
 **Why N.H.L. Players Are Finally Dressing Down**\
 `The National Hockey League’s new relaxed dress code could bring more comfort or flair, but suits might not disappear entirely.`\
 https://nytimes.com/video/the-athletic/100000010635547/why-nhl-players-are-finally-dressing-down.html
-
-**Commanders promoting David Blough to offensive coordinator: Source**\
-`The ex-assistant quarterbacks coach replaces Kliff Kingsbury, whom the team parted ways with just three days earlier.`\
-https://nytimes.com/athletic/6958765/2026/01/09/commanders-promote-david-blough-offensive-coordinator/
 
