@@ -30,7 +30,7 @@ https://nytimes.com/video/us/politics/100000010636791/protest-minneapolis-minnes
 `Salah's dreams of a first AFCON title are very much alive after a tense win against Ivory Coast`\
 https://nytimes.com/athletic/6949016/2026/01/10/egypt-3-ivory-coast-2-salah-afcon/
 
-**Braves, reliever Tyler Kinley agree to deal as Atlanta keeps bolstering its bullpen**\
+**Braves sign reliever Tyler Kinley as Atlanta keeps bolstering its bullpen**\
 `Kinley allowed just two earned runs in 25 innings for a 0.72 ERA for the Braves last season after they acquired him at the trade deadline.`\
 https://nytimes.com/athletic/6959251/2026/01/10/tyler-kinley-contract-atlanta-braves/
 
