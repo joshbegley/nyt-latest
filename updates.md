@@ -1,3 +1,8 @@
+**Bruins' Morgan Geekie exits mid-game against Rangers to attend to a family matter**\
+`"It's all good. It's all good," coach Marco Sturm said. "So we have to watch him to see if he comes back tomorrow, game-time decision."
+`\
+https://nytimes.com/athletic/6960302/2026/01/10/bruins-morgan-geekie-rangers-exits-family-matter/
+
 **USMNT forward Pepi ruled out for two months with fractured forearm**\
 `The 23-year-old fell awkwardly after scoring PSV Eindhoven's second goal and the club confirmed he will undergo surgery on Sunday.`\
 https://nytimes.com/athletic/6960169/2026/01/10/ricardo-pepi-usmnt-arm-surgery-injury/
