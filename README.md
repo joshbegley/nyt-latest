@@ -1,3 +1,7 @@
+**Steep stands and low roofs: How Leeds can expand Elland Road while retaining its iconic atmosphere**\
+`Plans to increase the capacity of Leeds United's home to 53,000 were approved this week`\
+https://nytimes.com/athletic/6958054/2026/01/10/elland-road-expansion-atmosphere/
+
 **Man Utd's retrotopia dooms them to repeat the same mistakes for eternity**\
 `The club's sepia-tinted caretaker manager search underlines how it remains trapped by its illustrious past`\
 https://nytimes.com/athletic/6953600/2026/01/10/manchester-united-manager-history/
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6947692/2026/01/10/antoine-semenyo-manchester-city-
 https://nytimes.com/athletic/6959148/2026/01/10/doc-rivers-minneapolis-ice-shooting-murder/
 
 **Thunder complete another significant comeback against Grizzlies, this time without their stars**\
-`Could this comeback, the Thunder's third of at least 19 points in Memphis since last April, wake up the NBA champions from its recent slide?`\
+`Could this comeback, the Thunder's third of at least 19 points in Memphis since April, wake up the NBA champions from their recent slide?`\
 https://nytimes.com/athletic/6959138/2026/01/10/okc-thunder-comeback-against-grizzlies-without-stars/
 
 **Rosenior, Chelsea and the benefits and risks of hiring within a multi-club model**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6957165/2026/01/10/liam-rosenior-chelsea-multi-club
 **No Amazon, No Gmail: Trump Sanctions Upend the Lives of I.C.C. Judges**\
 `President Trump’s retaliation against top officials at the International Criminal Court has shut them out of American services and made even routine daily tasks a challenge.`\
 https://nytimes.com/2026/01/10/world/europe/icc-judges-us-sanctions-trump.html
-
-**Quote of the Day: Bears Took Big Swing on the Offensive Line, and It Really Paid Off**\
-`Quotation of the Day for Saturday, January 10, 2026.`\
-https://nytimes.com/2026/01/10/pageoneplus/quote-of-the-day-bears-took-big-swing-on-the-offensive-line-and-it-really-paid-off.html
 
