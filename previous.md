@@ -1,3 +1,35 @@
+**Thunder complete another significant comeback against Grizzlies, this time without their stars**\
+`Could this comeback, the Thunder's third of at least 19 points in Memphis since last April, wake up the NBA champions from its recent slide?`\
+https://nytimes.com/athletic/6959138/2026/01/10/okc-thunder-comeback-against-grizzlies-without-stars/
+
+**Rosenior, Chelsea and the benefits and risks of hiring within a multi-club model**\
+`Rosenior has joined from their French sister club Strasbourg. How will that impact his time at Stamford Bridge?`\
+https://nytimes.com/athletic/6957165/2026/01/10/liam-rosenior-chelsea-multi-club-model/
+
+**No Amazon, No Gmail: Trump Sanctions Upend the Lives of I.C.C. Judges**\
+`President Trump’s retaliation against top officials at the International Criminal Court has shut them out of American services and made even routine daily tasks a challenge.`\
+https://nytimes.com/2026/01/10/world/europe/icc-judges-us-sanctions-trump.html
+
+**Quote of the Day: Bears Took Big Swing on the Offensive Line, and It Really Paid Off**\
+`Quotation of the Day for Saturday, January 10, 2026.`\
+https://nytimes.com/2026/01/10/pageoneplus/quote-of-the-day-bears-took-big-swing-on-the-offensive-line-and-it-really-paid-off.html
+
+**Connections: Sports Edition Coach: Hints for Jan. 10, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6959086/2026/01/10/connections-sports-edition-hints-for-jan-10-2026/
+
+**Volkswagen Suffers More Than Rivals From Auto Industry Woes**\
+`The German automaker’s sales in the United States plunged last year, hit by tariffs and the end of tax credits for electric vehicles.`\
+https://nytimes.com/2026/01/10/business/volkswagen-tariffs-trump.html
+
+**Corrections: Jan. 10, 2026**\
+`Corrections that appeared in print on Saturday, Jan. 10, 2026.`\
+https://nytimes.com/2026/01/10/pageoneplus/corrections-jan-10-2026.html
+
+**Connor Bedard's return not enough to overcome depleted roster for Blackhawks**\
+`Bedard returned after missing 12 games with an injury, but a stomach bug making its way through the team impacted several other players.`\
+https://nytimes.com/athletic/6958986/2026/01/09/blackhawks-connor-bedard-injury-return-goalies/
+
 **Kevin Durant passes Wilt Chamberlain, moves into seventh place on NBA scoring list**\
 `Much like Chamberlain, Durant has been viewed as one of the most unstoppable scoring machines the NBA has ever seen.`\
 https://nytimes.com/athletic/6957149/2026/01/09/kevin-durant-seventh-nba-all-time-scoring-wilt-chamberlain/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6957149/2026/01/09/kevin-durant-seventh-nba-all-tim
 **WNBA, players union fail to reach CBA deal at deadline**\
 `The WNBA and players union will enter into a status quo period. `\
 https://nytimes.com/athletic/6959018/2026/01/09/wnba-labor-union-deadline-expire/
-
-**Judge Bars Trump From Withholding Election Funds to States**\
-`The ruling is the latest legal setback to President Trump’s sweeping effort to compel changes to state election standards.`\
-https://nytimes.com/2026/01/09/us/politics/trump-court-ruling-elections.html
-
-**CFP championship first look: Can Indiana win a shocking title? Will Miami return to No. 1?**\
-`Indiana and Miami will meet in an unlikely College Football Playoff national title game on Jan. 19. Here's what you need to know.`\
-https://nytimes.com/athletic/6958901/2026/01/09/indiana-miami-college-football-playoff-national-championship-game/
-
-**College Football Playoff 2025 bracket projections: Who's the national title favorite?**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2026/01/09/college-football-playoff-bracket-projections-odds/
-
-**Indiana clear favorite against Miami in national title game**\
-`Indiana is favored by a touchdown against Miami in the national title game. Will the Hoosiers continue to steamroll the opposition?`\
-https://nytimes.com/athletic/6958966/2026/01/09/college-football-national-title-game-odds-indiana-miami/
-
-**Trump Calls for 10 Percent Credit Card Interest Cap, After Killing Other Fee Limits**\
-`The president revived a campaign promise he has not actively pursued since taking office.`\
-https://nytimes.com/2026/01/09/us/politics/credit-card-interest-cap.html
-
-**Hoosiers hit the afterburners: Indiana steamrolls Oregon en route to CFP title game**\
-`For the second time this postseason, the Hoosiers flexed on a program with more talent and tradition.`\
-https://nytimes.com/athletic/6958786/2026/01/09/indiana-oregon-score-result-cfp-takeaways/
-
-**U.S. champion figure skating pair now wait on a 'miracle' to make Olympic team**\
-`Alisa Efimova and Misha Mitrofanov won the pairs crown Friday at U.S. championships. A citizenship issue could keep them from the Olympics.`\
-https://nytimes.com/athletic/6958977/2026/01/09/alisa-efimova-misha-mitrofanov-citizenship-olympics-figure-skating/
-
-**Steve Kerr on government response to ICE shooting in Minneapolis: 'Shameful'**\
-`Kerr is a passionate supporter of gun control and has been a critic of President Donald Trump in the past. `\
-https://nytimes.com/athletic/6958942/2026/01/09/steve-kerr-responds-minneapolis-ice-shooting/
 
