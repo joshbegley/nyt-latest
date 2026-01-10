@@ -1,3 +1,7 @@
+**Melton and Horford help stabilize rotation as Warriors roll over Kings**\
+`With Melton and Horford finding their footing after returning from injuries, the Warriors have won eight of their last 11 games.`\
+https://nytimes.com/athletic/6959371/2026/01/10/deanthony-melton-al-horford-warriors-kings/
+
 **Make-Ahead Breakfasts Worth Getting Out of Bed For**\
 `Good morning, banana olive oil muffins, baked oatmeal bars and sweet corn tamal.`\
 https://nytimes.com/2026/01/10/dining/make-ahead-breakfasts-worth-getting-out-of-bed-for.html
