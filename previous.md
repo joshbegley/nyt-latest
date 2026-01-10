@@ -1,3 +1,7 @@
+**Arsenal leading race for Stanway, midfielder confirms Bayern summer exit**\
+`Stanway is entering the final six months of her current deal with Bayern.`\
+https://nytimes.com/athletic/6958511/2026/01/10/georgia-stanway-bayern-arsenal-future/
+
 **Brahim Diaz: A substitute for Real Madrid, a superstar for Morocco**\
 `Brahim has led Morocco to the AFCON semi-finals and can be the best player in the world, according to his manager`\
 https://nytimes.com/athletic/6958871/2026/01/10/brahim-diaz-afcon-morocco/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/01/10/todays-new-york-times
 **The Ashes in numbers: From Australia's heroes to England's drought and two-day Tests**\
 `Who is now the second-highest run-scorer in the Ashes? And how many players aged 35 or over have taken 30 wickets in a series? Answers below`\
 https://nytimes.com/athletic/6937410/2026/01/10/ashes-australia-england-stats-numbers/
-
-**The 1.11.16 Issue**\
-``\
-https://nytimes.com/issue/magazine/2026/01/10/the-11116-issue
 

@@ -1,3 +1,7 @@
+**Arsenal leading race for Stanway, midfielder confirms Bayern summer exit**\
+`Stanway is entering the final six months of her current deal with Bayern.`\
+https://nytimes.com/athletic/6958511/2026/01/10/georgia-stanway-bayern-arsenal-future/
+
 **Brahim Diaz: A substitute for Real Madrid, a superstar for Morocco**\
 `Brahim has led Morocco to the AFCON semi-finals and can be the best player in the world, according to his manager`\
 https://nytimes.com/athletic/6958871/2026/01/10/brahim-diaz-afcon-morocco/
