@@ -1,4 +1,4 @@
-**The Briefing: Algeria 0 Nigeria 2 — Osimhen's leap, Iwobi's pass and a statement Super Eagles display**\
+**The Briefing: Algeria 0 Nigeria 2 – Osimhen's leap, Iwobi's pass and a statement Super Eagles display**\
 `Could Nigeria be the new AFCON favourites after making light work of Algeria?`\
 https://nytimes.com/athletic/6949014/2026/01/10/algeria-0-nigeria-2-osimhen-iwobi-afcon/
 
