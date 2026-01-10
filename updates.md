@@ -1,3 +1,7 @@
+**Until Saturday: Indiana's on the brink of a GOAT case**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6959748/2026/01/10/indiana-oregon-playoff-until-saturday/
+
 **America Doesn’t Need ICE**\
 `The shooting in Minneapolis is just the latest sign.`\
 https://nytimes.com/2026/01/10/opinion/immigration-ice-violence-minnesota.html

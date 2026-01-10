@@ -1,3 +1,7 @@
+**Until Saturday: Indiana's on the brink of a GOAT case**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6959748/2026/01/10/indiana-oregon-playoff-until-saturday/
+
 **America Doesn’t Need ICE**\
 `The shooting in Minneapolis is just the latest sign.`\
 https://nytimes.com/2026/01/10/opinion/immigration-ice-violence-minnesota.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/10/dining/make-ahead-breakfasts-worth-getting-out-of
 **Falcons hire Matt Ryan as new president of football**\
 `The legendary QB is expected to oversee the hiring of Atlanta's new coach and GM after Raheem Morris and Terry Fontenot were fired.`\
 https://nytimes.com/athletic/6942602/2026/01/10/matt-ryan-atlanta-falcons-president-football-operations-hire/
-
-**'Chasing perfection': Jaxon Smith-Njigba's path from slot receiver to unanimous All-Pro**\
-`Smith-Njigba always expects more of himself than anyone else does: "Y'all don't really know what I'm really capable of, but I'mma show you."`\
-https://nytimes.com/athletic/6956131/2026/01/10/jsn-jaxon-smith-njigba-seahawks-all-pro/
 
