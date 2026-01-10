@@ -1,3 +1,7 @@
+**Cam Newton returns, gets Panthers-Rams started by pounding the drum**\
+`The former Panthers great Cam Newton got things started at Bank of America Stadium on Saturday.`\
+https://nytimes.com/athletic/6959930/2026/01/10/cam-newton-panthers-rams-pounding-drum/
+
 **Mamdani Announces Plan to Build More Public Restrooms Across New York**\
 `The city has over eight million residents and only around 1,000 public bathrooms. The new mayor said he was committed to creating more, though he did not say when they would be available.`\
 https://nytimes.com/2026/01/10/nyregion/mamdani-public-bathrooms-nyc.html
@@ -26,15 +30,11 @@ https://nytimes.com/video/us/politics/100000010636791/protest-minneapolis-minnes
 `Salah's dreams of a first AFCON title are very much alive after a tense win against Ivory Coast`\
 https://nytimes.com/athletic/6949016/2026/01/10/egypt-3-ivory-coast-2-salah-afcon/
 
-**Braves, reliever Tyler Kinley agree to deal as Atlanta keeps bolstering its bullpen**\
+**Braves sign reliever Tyler Kinley as Atlanta keeps bolstering its bullpen**\
 `Kinley allowed just two earned runs in 25 innings for a 0.72 ERA for the Braves last season after they acquired him at the trade deadline.`\
 https://nytimes.com/athletic/6959251/2026/01/10/tyler-kinley-contract-atlanta-braves/
 
 **Stewart Cheifet, Host of TV’s ‘Computer Chronicles,’ Dies at 87**\
 `He spent two decades hosting the PBS series, during the formative years of personal computing. It was seen in more than 300 cities at its peak.`\
 https://nytimes.com/2026/01/10/technology/stewart-cheifet-dead.html
-
-**Wisconsin stuns No. 2 Michigan, ends Wolverines' unbeaten start with 3-point barrage**\
-`The Badgers knocked down 15 3-pointers on the way to their first win over a top-two ranked team since beating Michigan in 2019,`\
-https://nytimes.com/athletic/6960190/2026/01/10/wisconsin-michigan-basketball-upset/
 

@@ -1,3 +1,11 @@
+**Cam Newton returns, gets Panthers-Rams started by pounding the drum**\
+`The former Panthers great Cam Newton got things started at Bank of America Stadium on Saturday.`\
+https://nytimes.com/athletic/6959930/2026/01/10/cam-newton-panthers-rams-pounding-drum/
+
+**Braves sign reliever Tyler Kinley as Atlanta keeps bolstering its bullpen**\
+`Kinley allowed just two earned runs in 25 innings for a 0.72 ERA for the Braves last season after they acquired him at the trade deadline.`\
+https://nytimes.com/athletic/6959251/2026/01/10/tyler-kinley-contract-atlanta-braves/
+
 **Mamdani Announces Plan to Build More Public Restrooms Across New York**\
 `The city has over eight million residents and only around 1,000 public bathrooms. The new mayor said he was committed to creating more, though he did not say when they would be available.`\
 https://nytimes.com/2026/01/10/nyregion/mamdani-public-bathrooms-nyc.html
