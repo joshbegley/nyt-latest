@@ -1,3 +1,16 @@
+**Potential Ja Morant trade landing spots include Raptors, Heat and Clippers**\
+`Memphis seems ready to move on from the Ja Morant era. Which teams make realistic trade partners — and which ones don't?`\
+https://nytimes.com/athletic/6958682/2026/01/10/ja-morant-trade-landing-spots-heat-clippers-raptors/
+
+**Newcastle's Livramento out with suspected hamstring problem, Howe says**\
+`The head coach said he thinks Jacob Murphy will be "OK" for Tuesday's match against Manchester City after being out of Saturday's squad.`\
+https://nytimes.com/athletic/6959996/2026/01/10/newcastle-livramento-murphy-injury-update/
+
+**Senators players denounce Linus Ullmark speculation: 'It's extremely disappointing'**\
+`"It's embarrassing that it got to the point that it did," Ottawa captain Brady Tkachuk said. "I'm not happy about it one bit."
+`\
+https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady-tkachuk/
+
 **Ticket prices soar for Miami-Indiana national championship game**\
 `The College Football Playoff title game will be played in the Hurricanes' home stadium, with Miami native Fernando Mendoza leading Indiana`\
 https://nytimes.com/athletic/6959956/2026/01/10/miami-indiana-ticket-prices-college-football-playoff/

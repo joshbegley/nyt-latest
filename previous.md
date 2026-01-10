@@ -1,3 +1,11 @@
+**Potential Ja Morant trade landing spots include Raptors, Heat and Clippers**\
+`Memphis seems ready to move on from the Ja Morant era. Which teams make realistic trade partners — and which ones don't?`\
+https://nytimes.com/athletic/6958682/2026/01/10/ja-morant-trade-landing-spots-heat-clippers-raptors/
+
+**Newcastle's Livramento out with suspected hamstring problem, Howe says**\
+`The head coach said he thinks Jacob Murphy will be "OK" for Tuesday's match against Manchester City after being out of Saturday's squad.`\
+https://nytimes.com/athletic/6959996/2026/01/10/newcastle-livramento-murphy-injury-update/
+
 **Ticket prices soar for Miami-Indiana national championship game**\
 `The College Football Playoff title game will be played in the Hurricanes' home stadium, with Miami native Fernando Mendoza leading Indiana`\
 https://nytimes.com/athletic/6959956/2026/01/10/miami-indiana-ticket-prices-college-football-playoff/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady
 **How to watch Mavericks vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6959884/2026/01/10/mavericks-vs-bulls-stream-how-to-watch-jan-10/
-
-**How to watch Red Wings vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959882/2026/01/10/red-wings-vs-canadiens-stream-how-to-watch-jan-10/
-
-**How to watch Lightning vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959879/2026/01/10/lightning-vs-flyers-stream-how-to-watch-jan-10/
 
