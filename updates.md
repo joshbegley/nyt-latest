@@ -1,3 +1,11 @@
+**Giannis Antetokounmpo's determination, defense help Bucks get best of LeBron, Lakers**\
+`Needing big stops down the stretch, Antetokounmpo took on the challenge of guarding LeBron James. The result? A big road win for the Bucks.`\
+https://nytimes.com/athletic/6959357/2026/01/10/lakers-bucks-giannis-antetokounmpo-lebron-games-defense/
+
+**Six People Are Fatally Shot in Mississippi, Sheriff Says**\
+`In a social media post, the Clay County sheriff said that “multiple innocent lives were lost” and that one person was in custody.`\
+https://nytimes.com/2026/01/10/us/shooting-west-point-mississippi.html
+
 **Six People Are Fatally Shot in Mississippi, Sheriff Says**\
 `In social media post, the Clay County sheriff said that ‘multiple innocent lives were lost’ and that one person was in custody.`\
 https://nytimes.com/2026/01/10/us/shooting-west-point-mississippi.html

@@ -1,5 +1,9 @@
+**Giannis Antetokounmpo's determination, defense help Bucks get best of LeBron, Lakers**\
+`Needing big stops down the stretch, Antetokounmpo took on the challenge of guarding LeBron James. The result? A big road win for the Bucks.`\
+https://nytimes.com/athletic/6959357/2026/01/10/lakers-bucks-giannis-antetokounmpo-lebron-games-defense/
+
 **Six People Are Fatally Shot in Mississippi, Sheriff Says**\
-`In social media post, the Clay County sheriff said that ‘multiple innocent lives were lost’ and that one person was in custody.`\
+`In a social media post, the Clay County sheriff said that “multiple innocent lives were lost” and that one person was in custody.`\
 https://nytimes.com/2026/01/10/us/shooting-west-point-mississippi.html
 
 **Timothy Busfield, Actor and Director, Is Accused of Child Sex Abuse**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6959609/2026/01/10/blue-jackets-vs-avalanche-stream
 **AP NFL All-Pro teams: Matthew Stafford, Bijan Robinson, Myles Garrett lead 2025 selections**\
 `Garrett, Rams WR Puka Nacua and Seahawks WR Jaxon Smith-Njigba were unanimous choices.`\
 https://nytimes.com/athletic/6958994/2026/01/10/ap-nfl-all-pro-team-2025/
-
-**How to watch Flames vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959603/2026/01/10/flames-vs-penguins-stream-how-to-watch-jan-10/
 
