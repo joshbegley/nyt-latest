@@ -1,3 +1,11 @@
+**Who you got: 2025 Indiana or 2019 LSU?**\
+`The Hoosiers are looking to enter the discussion alongside some of the best national champions of the College Football Playoff era.`\
+https://nytimes.com/athletic/6959174/2026/01/10/indiana-2025-lsu-2019-best-college-football-teams/
+
+**Eagles-49ers preview: Kyle Shanahan-Vic Fangio matchup, 49ers vs. Saquon Barkley**\
+`The 49ers are dealing with a rash of injuries, while the Eagles have been inconsistent on offense despite deep talent.`\
+https://nytimes.com/athletic/6958340/2026/01/10/eagles-49ers-preview-kyle-shanahan-vic-fangio-saquon-barkley/
+
 **Lindsey Vonn wins another World Cup downhill, with Olympic race one month away**\
 `Vonn, at 41, solidified her place as the downhill favorite at next month's Olympics, winning the 84th World Cup race of her career.`\
 https://nytimes.com/athletic/6959501/2026/01/10/lindsey-vonn-olympics-world-cup-downhill-zauchensee/

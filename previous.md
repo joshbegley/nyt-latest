@@ -1,3 +1,11 @@
+**Who you got: 2025 Indiana or 2019 LSU?**\
+`The Hoosiers are looking to enter the discussion alongside some of the best national champions of the College Football Playoff era.`\
+https://nytimes.com/athletic/6959174/2026/01/10/indiana-2025-lsu-2019-best-college-football-teams/
+
+**Eagles-49ers preview: Kyle Shanahan-Vic Fangio matchup, 49ers vs. Saquon Barkley**\
+`The 49ers are dealing with a rash of injuries, while the Eagles have been inconsistent on offense despite deep talent.`\
+https://nytimes.com/athletic/6958340/2026/01/10/eagles-49ers-preview-kyle-shanahan-vic-fangio-saquon-barkley/
+
 **Lindsey Vonn wins another World Cup downhill, with Olympic race one month away**\
 `Vonn, at 41, solidified her place as the downhill favorite at next month's Olympics, winning the 84th World Cup race of her career.`\
 https://nytimes.com/athletic/6959501/2026/01/10/lindsey-vonn-olympics-world-cup-downhill-zauchensee/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6959402/2026/01/10/marcus-rashford-barcelona-manche
 **Venezuela, Renee Good and Trump’s ‘Assault on Hope’**\
 `The Opinion columnist M. Gessen examines how the president governs through spectacle, and the message his displays of force are meant to send.`\
 https://nytimes.com/2026/01/10/opinion/ezra-klein-podcast-m-gessen.html
-
-**Jaylen Brown has improved with his left hand. He says the real problem was his wrist**\
-`Brown has revealed some previously unknown injury history that helps explain his past struggles with his off-hand play.`\
-https://nytimes.com/athletic/6959250/2026/01/10/celtics-jaylen-brown-left-hand-wrist-issues/
-
-**Are Fernando Mendoza, Dante Moore still 2026 NFL Draft's top 2 QBs after Peach Bowl?**\
-`Mendoza looks like the clear-cut favorite to be the No. 1 pick, but the QB picture behind him could be changing.`\
-https://nytimes.com/athletic/6959006/2026/01/10/nfl-draft-2026-mendoza-moore-indiana-oregon/
 
