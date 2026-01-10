@@ -1,3 +1,7 @@
+**How to watch BYU vs. Utah men's basketball: Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the Utah Utes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6960164/2026/01/10/byu-vs-utah-stream-how-to-watch-jan-10/
+
 **The Briefing: Tottenham 1 Aston Villa 2 - another early Spurs exit as Emery's fringe players deliver**\
 `Jack-Pitt Brooke, Elias Burke and Conor O'Neill analyse the key talking points from Aston Villa's FA Cup third-round win at Tottenham`\
 https://nytimes.com/athletic/6948913/2026/01/10/tottenham-aston-villa-fa-cup-analysis/
