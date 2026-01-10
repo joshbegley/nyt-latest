@@ -1,40 +1,40 @@
-**USWNT defender Nighswonger joins Aston Villa on loan from Arsenal**\
-`The deal for Nighswonger, 25, includes an option to make the move permanent.`\
-https://nytimes.com/athletic/6959385/2026/01/10/jenna-nighswonger-aston-villa-arsenal-loan-transfer/
+**Golden Globes 2026: What to Expect on Sunday**\
+`Keep an eye on “One Battle After Another,” which is likely to dominate, and on the speeches. A particularly memorable one could be an Oscar lifeline.`\
+https://nytimes.com/2026/01/10/movies/golden-globes-what-to-expect.html
 
-**Arsenal leading race for Stanway, midfielder confirms Bayern summer exit**\
-`Stanway is entering the final six months of her current deal with Bayern.`\
-https://nytimes.com/athletic/6958511/2026/01/10/georgia-stanway-bayern-arsenal-future/
+**Judge Denies Salt-N-Pepa’s Attempt to Obtain Master Recordings**\
+`A federal judge agreed with Universal Music Group that the hip-hop act never owned the copyrights to its earliest work.`\
+https://nytimes.com/2026/01/10/arts/music/salt-n-pepa-lawsuit-universal.html
 
-**Brahim Diaz: A substitute for Real Madrid, a superstar for Morocco**\
-`Brahim has led Morocco to the AFCON semi-finals and can be the best player in the world, according to his manager`\
-https://nytimes.com/athletic/6958871/2026/01/10/brahim-diaz-afcon-morocco/
+**Why Putin Went Quiet When Challenged by Trump Over Venezuela**\
+`For the Russian leader, courting President Trump to secure a favorable resolution in Ukraine, and possibly more, is far more important.`\
+https://nytimes.com/2026/01/10/world/europe/trump-putin-venezuela.html
 
-**‘You can't expect to get in the side when you're delivering that’ - Forest's £170m signings get Wrexham reality check**\
-`A clutch of players were given the chance to impress — and few did. It was a match that underlined one of the main themes of Forest’s season`\
-https://nytimes.com/athletic/6958926/2026/01/10/nottingham-forest-wrexham-fa-cup-penalty-shootout-analysis/
+**What Happens if Federal Agents and Local Officers Stop Getting Along?**\
+`Cooperation among law enforcement agencies is critical to many investigations, experts say. After a series of shootings by immigration agents, the relationship is showing cracks.`\
+https://nytimes.com/2026/01/10/us/federal-agents-law-enforcement-trump.html
 
-**A (Lawyerly) Spat Erupts Over the Defense of Nicolás Maduro**\
-`Disputes among lawyers are not exactly rare, but in the case of Mr. Maduro, the captive leader of Venezuela, the stakes are high and the interested parties are many.`\
-https://nytimes.com/2026/01/10/nyregion/nicolas-maduro-lawyers.html
+**Beef Tallow, Long a Health Pariah, Rises to the Top of the Food Pyramid**\
+`The new dietary guidelines give federal approval to a fat that has slowly caught on with consumers, even as doctors have warned against it.`\
+https://nytimes.com/2026/01/10/dining/beef-tallow-food-pyramid-rfk-jr.html
 
-**For Mamdani, 2 Contentious Hires Yield 2 Different Outcomes**\
-`The past social media posts of two hires have led to a public debate about how much the new mayor is willing to tolerate.`\
-https://nytimes.com/2026/01/10/nyregion/mamdani-cea-weaver-cat-da-costa.html
+**Popularity of ‘Heated Rivalry’ Has Surprised Even TV Executives**\
+`The show, streaming on HBO Max, doesn’t have one of the biggest audiences, but viewership grew very quickly in just a few weeks.`\
+https://nytimes.com/2026/01/10/business/media/heated-rivalry-hbo-max-popularity.html
 
-**At the Rikers Jail, the Women Have No Library. But They Have a Book Club.**\
-`Some members of the group are awaiting trial; some are serving short sentences. In the meantime, with little else to do, they have intense discussions about literature.`\
-https://nytimes.com/2026/01/10/nyregion/rikers-womens-book-club.html
+**8 Songs We’re Talking About This Week**\
+`Bruno Mars, Jill Scott and Mandy, Indiana have new albums on the way, and a frantic tune from an anime film is No. 1 in Japan.`\
+https://nytimes.com/2026/01/10/arts/music/bruno-mars-zach-bryan-robyn-new-songs.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/10/crosswords/spelling-bee-forum.html
+**Why Doesn’t My Boss Respect Sick Days?**\
+`Plus, the impossibility of being a middle manager.`\
+https://nytimes.com/2026/01/10/business/why-doesnt-my-boss-respect-sick-days.html
 
-**Lakers' loss to Bucks ends 13-game unbeaten streak in clutch games**\
-`Before Friday, Los Angeles had not lost any game that was within 5 points with less than five minutes remaining. `\
-https://nytimes.com/athletic/6959254/2026/01/10/lakers-clutch-record-bucks-lebron-giannis/
+**A ‘Ticklish Subject’: Trump’s Words on Immigration Often Collide and Contradict**\
+`In an interview with The New York Times, President Trump made a point of keeping distance from certain hard-line immigration policies, even as he continues to demonize and shut out immigrants.`\
+https://nytimes.com/2026/01/10/us/politics/a-ticklish-subject-trumps-words-on-immigration-often-collide-and-contradict.html
 
-**The New York Times in Print for Saturday, Jan. 10, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/01/10/todays-new-york-times
+**Congress Is Reversing Trump’s Steep Budget Cuts to Science**\
+`After the White House called for billions of dollars in funding reductions, senators and representatives are rescinding the proposed cuts and even boosting funds for basic research.`\
+https://nytimes.com/2026/01/10/science/trump-science-budget-cuts-congress.html
 
