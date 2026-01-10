@@ -1,3 +1,19 @@
+**Origins of viral cheese grater hats lighting up Bears-Packers rivalry**\
+`The "graterhead hat" — its official name — isn't new, but sales took off after the Bears' DJ Moore wore one in a locker-room celebration`\
+https://nytimes.com/athletic/6956090/2026/01/10/bears-packers-cheese-grater-hats-dj-moore/
+
+**Will Brock Purdy’s super power help 49ers cash in house money and beat Eagles?**\
+`Riddled by injuries and dismissed all season, the 49ers enter Sunday's NFC wild-card game in Philadelphia loose and confident.`\
+https://nytimes.com/athletic/6958827/2026/01/10/49ers-eagles-brock-purdy-superpower/
+
+**What's next for Oregon? A Dante Moore decision, new coordinators and same high expectations**\
+`Oregon's loss to Indiana in the CFP semifinals was deflating, but there are plenty of reasons for optimism about what's next in Eugene.`\
+https://nytimes.com/athletic/6959475/2026/01/10/oregon-football-2026-portal-dante-moore-roster/
+
+**$100 Billion to Revive Venezuela’s Energy Industry? Oil Executives Are Not So Sure**\
+`During a meeting at the White House, the industry leaders appeared wary of making long-term investments in the country.`\
+https://nytimes.com/2026/01/10/business/dealbook/oil-executives-trump-venezuela.html
+
 **Isabeau Levito is on the cusp of making the 2026 Olympics, and she did it her way**\
 `Levito finished third Friday at U.S. Figure Skating Championships, likely sealing her Olympic spot alongside Alysa Liu and Amber Glenn.`\
 https://nytimes.com/athletic/6959420/2026/01/10/isabeau-levito-olympics-figure-skating-us-championships/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6959006/2026/01/10/nfl-draft-2026-mendoza-moore-ind
 **Everything is the death of college football until it isn't**\
 `What leaders within college sports have to realize is this: Your inconvenience does not qualify as a crisis.`\
 https://nytimes.com/athletic/6958463/2026/01/10/demond-williams-college-football-quarterback-contracts/
-
-**Dante Moore and Oregon hoped for revenge against Indiana. Instead, they got a night of misery**\
-`The frustration set in early, with a pick-6 on the first play from scrimmage. It rarely got better for the Ducks and their star quarterback.`\
-https://nytimes.com/athletic/6959284/2026/01/10/oregon-football-dante-moore-indiana-loss/
-
-**WATCH: Why Justin Herbert has been the NFL's most important player this season**\
-`The Chargers' star quarterback's numbers don't tell the entire story of the herculean effort he's given this season. `\
-https://nytimes.com/athletic/6959127/2026/01/10/justin-herbert-nfls-most-important-player-video/
-
-**The ICE Shooting Displays the Need for Equilibrium. But How?**\
-`A tough issue for stabilization in our politics and public institutions.`\
-https://nytimes.com/2026/01/10/opinion/ice-shooting-minneapolis-equilibrium.html
-
-**Who is the biggest Olympic snub from each NHL team?**\
-`From 4 Nations fall-offs to potential reserves to emerging young stars who fell just short, many players are likely feeling snubbed.`\
-https://nytimes.com/athletic/6958384/2026/01/10/olympics-2026-hockey-biggest-snubs-nhl-team/
 

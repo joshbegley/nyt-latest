@@ -1,3 +1,19 @@
+**Origins of viral cheese grater hats lighting up Bears-Packers rivalry**\
+`The "graterhead hat" — its official name — isn't new, but sales took off after the Bears' DJ Moore wore one in a locker-room celebration`\
+https://nytimes.com/athletic/6956090/2026/01/10/bears-packers-cheese-grater-hats-dj-moore/
+
+**Will Brock Purdy’s super power help 49ers cash in house money and beat Eagles?**\
+`Riddled by injuries and dismissed all season, the 49ers enter Sunday's NFC wild-card game in Philadelphia loose and confident.`\
+https://nytimes.com/athletic/6958827/2026/01/10/49ers-eagles-brock-purdy-superpower/
+
+**What's next for Oregon? A Dante Moore decision, new coordinators and same high expectations**\
+`Oregon's loss to Indiana in the CFP semifinals was deflating, but there are plenty of reasons for optimism about what's next in Eugene.`\
+https://nytimes.com/athletic/6959475/2026/01/10/oregon-football-2026-portal-dante-moore-roster/
+
+**$100 Billion to Revive Venezuela’s Energy Industry? Oil Executives Are Not So Sure**\
+`During a meeting at the White House, the industry leaders appeared wary of making long-term investments in the country.`\
+https://nytimes.com/2026/01/10/business/dealbook/oil-executives-trump-venezuela.html
+
 **The ICE Shooting Displays the Need for Equilibrium. But How?**\
 `A tough issue for stabilization in our politics and public institutions.`\
 https://nytimes.com/2026/01/10/opinion/ice-shooting-minneapolis-equilibrium.html
