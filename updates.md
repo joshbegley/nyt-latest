@@ -1,3 +1,7 @@
+**New Cellphone Video Shows ICE Agent’s Perspective Before Minneapolis Shooting**\
+`The Department of Homeland Security posted a clip of the video on social media and said it was taken by the agent, who killed a 37-year-old woman in the shooting.`\
+https://nytimes.com/2026/01/09/us/ice-agent-video-minneapolis-shooting.html
+
 **Bengals analysis: 6 important themes from 63 minutes with Duke Tobin**\
 `The Bengals executive touched on numerous topics during a marathon session with reporters in Cincinnati. `\
 https://nytimes.com/athletic/6958571/2026/01/09/duke-tobin-bengals-end-of-season-analysis/
