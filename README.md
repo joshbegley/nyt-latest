@@ -1,3 +1,11 @@
+**Indiana clear favorite against Miami in national title game**\
+`Indiana is favored by a touchdown against Miami in the national title game. Will the Hoosiers continue to steamroll the opposition?`\
+https://nytimes.com/athletic/6958966/2026/01/09/college-football-national-title-game-odds-indiana-miami/
+
+**Trump Calls for 10 Percent Credit Card Interest Cap, After Killing Other Fee Limits**\
+`The president revived a campaign promise he has not actively pursued since taking office.`\
+https://nytimes.com/2026/01/09/us/politics/credit-card-interest-cap.html
+
 **Hoosiers hit the afterburners: Indiana steamrolls Oregon en route to CFP title game**\
 `For the second time this postseason, the Hoosiers flexed on a program with more talent and tradition.`\
 https://nytimes.com/athletic/6958786/2026/01/09/indiana-oregon-score-result-cfp-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6958976/2026/01/09/jedd-fisch-demond-williams-washi
 **Rare Comic Introducing Superman Sells Privately for $15 Million**\
 `The copy of Action Comics No. 1, published in 1938, was stolen from the actor Nicolas Cage in 2000 and recovered more than a decade later.`\
 https://nytimes.com/2026/01/09/books/superman-action-comics-1-sold.html
-
-**Consumer Bureau Leader Requests $145 Million for Agency He Wants to Eliminate**\
-`A federal judge ordered Russell T. Vought, the bureau’s acting director, to keep requesting funds for the financial watchdog’s operations.`\
-https://nytimes.com/2026/01/09/us/politics/cfpb-vought-funds.html
-
-**Minnesota Woman Dies After Shark Bite in U.S. Virgin Islands**\
-`People at the beach went to the woman’s rescue and helped her ashore, the authorities said, but she died at a hospital.`\
-https://nytimes.com/2026/01/09/us/shark-attack-virgin-islands-death.html
 
