@@ -36,5 +36,5 @@ https://nytimes.com/athletic/6958765/2026/01/09/commanders-promote-david-blough-
 
 **WATCH: Why the Broncos have all the makings of a Super Bowl-caliber defense**\
 `The AFC playoff field is wide open and the Broncos have the pieces on defense to be the last team standing. Watch how here.`\
-https://nytimes.com/athletic/6958868/2026/01/09/why-broncos-have-all-the-makings-of-a-super-bowl-caliber-defense-watch-video/
+https://nytimes.com/athletic/6958868/2026/01/09/video-analysis-broncos-defense-talanoa-hufanga/
 
