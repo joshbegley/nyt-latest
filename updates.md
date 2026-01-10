@@ -1,3 +1,7 @@
+**Machado Offered Trump Her Nobel, but Prize Institute Says It’s Not Allowed**\
+`After María Corina Machado, Venezuela’s opposition leader, offered her Nobel Peace Prize to President Trump, the Norwegian Nobel Institute said it cannot be “transferred to others.”`\
+https://nytimes.com/2026/01/10/world/americas/trump-nobel-peace-prize-maria-machado.html
+
 **This Quick Murgh Chole Is ‘Perfection’**\
 `Zainab Shah’s chicken and chickpea curry is already racking up raves from readers: “Absolutely stunning taste!”`\
 https://nytimes.com/2026/01/10/dining/this-quick-murgh-chole-is-perfection.html
