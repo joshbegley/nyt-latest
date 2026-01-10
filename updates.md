@@ -1,3 +1,15 @@
+**Dr. Oz Visits California to Target Fraud**\
+`Dr. Mehmet Oz, the head of the Centers for Medicare and Medicaid, and Bill Essayli, a Los Angeles-based prosecutor, said they were investigating federally funded services.`\
+https://nytimes.com/2026/01/09/us/politics/dr-oz-visits-california-to-target-fraud.html
+
+**NBA referee Bill Kennedy, known for viral challenge verdicts, leaves game in wheelchair**\
+`The longtime NBA official appeared to suffer a non-contact leg injury early in a game between the Magic and 76ers.`\
+https://nytimes.com/athletic/6958833/2026/01/09/bill-kennedy-nba-referee-injury-leaves-76ers-magic-game/
+
+**After committing to Baylor, QB DJ Lagway might still take other visits: Sources**\
+`Lagway has not signed his scholarship paperwork nor his revenue-sharing agreement with Baylor. Others, including Ole Miss, have interest.`\
+https://nytimes.com/athletic/6958835/2026/01/09/dj-lagway-transfer-portal-news-baylor-ole-miss/
+
 **New Cellphone Video Shows ICE Agent’s Perspective Before Minneapolis Shooting**\
 `The Department of Homeland Security posted a clip of the video on social media and said it was taken by the agent, who killed a 37-year-old woman in the shooting.`\
 https://nytimes.com/2026/01/09/us/ice-agent-video-minneapolis-shooting.html
