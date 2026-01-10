@@ -1,40 +1,40 @@
-**How to watch Rangers vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959465/2026/01/10/rangers-vs-bruins-stream-how-to-watch-jan-10/
+**Venezuela, Renee Good and Trump’s ‘Assault on Hope’**\
+`The Opinion columnist M. Gessen examines how the president governs through spectacle, and the message his displays of force are meant to send.`\
+https://nytimes.com/2026/01/10/opinion/ezra-klein-podcast-m-gessen.html
 
-**How to watch Timberwolves vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959463/2026/01/10/timberwolves-vs-cavaliers-stream-how-to-watch-jan-10/
+**Jaylen Brown has improved with his left hand. He says the real problem was his wrist**\
+`Brown has revealed some previously unknown injury history that helps explain his past struggles with his off-hand play.`\
+https://nytimes.com/athletic/6959250/2026/01/10/celtics-jaylen-brown-left-hand-wrist-issues/
 
-**Acquired Tastes**\
-`The dream of cohabitating with a group of friends is an attractive fantasy, but we can benefit from its lessons, regardless of our living situation.`\
-https://nytimes.com/2026/01/10/briefing/acquired-tastes.html
+**Are Fernando Mendoza, Dante Moore still 2026 NFL Draft's top 2 QBs after Peach Bowl?**\
+`Mendoza looks like the clear-cut favorite to be the No. 1 pick, but the QB picture behind him could be changing.`\
+https://nytimes.com/athletic/6959006/2026/01/10/nfl-draft-2026-mendoza-moore-indiana-oregon/
 
-**How to watch Texas Tech vs. Cincinnati women's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Tech Lady Raiders play the Cincinnati Bearcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959461/2026/01/10/texas-tech-vs-cincinnati-stream-how-to-watch-jan-10/
+**Everything is the death of college football until it isn't**\
+`What leaders within college sports have to realize is this: Your inconvenience does not qualify as a crisis.`\
+https://nytimes.com/athletic/6958463/2026/01/10/demond-williams-college-football-quarterback-contracts/
 
-**How to watch Princeton vs. Yale women's basketball: Time, TV, streaming**\
-`Find out how to watch the Princeton Tigers play the Yale Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959459/2026/01/10/princeton-vs-yale-stream-how-to-watch-jan-10/
+**Dante Moore and Oregon hoped for revenge against Indiana. Instead, they got a night of misery**\
+`The frustration set in early, with a pick-6 on the first play from scrimmage. It rarely got better for the Ducks and their star quarterback.`\
+https://nytimes.com/athletic/6959284/2026/01/10/oregon-football-dante-moore-indiana-loss/
 
-**How to watch Boston College vs. Louisville men's basketball: Time, TV, streaming**\
-`Find out how to watch the Boston College Eagles play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959456/2026/01/10/boston-college-vs-louisville-stream-how-to-watch-jan-10/
+**WATCH: Why Justin Herbert has been the NFL's most important player this season**\
+`The Chargers' star quarterback's numbers don't tell the entire story of the herculean effort he's given this season. `\
+https://nytimes.com/athletic/6959127/2026/01/10/justin-herbert-nfls-most-important-player-video/
 
-**How to watch Georgia vs. South Carolina men's basketball: Time, TV, streaming**\
-`Find out how to watch the Georgia Bulldogs play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959454/2026/01/10/georgia-vs-south-carolina-stream-how-to-watch-jan-10/
+**What Would Peace on Immigration Look Like?**\
+`A tough issue for stabilization in our politics and public institutions.`\
+https://nytimes.com/2026/01/10/opinion/ice-shooting-minneapolis-equilibrium.html
 
-**How to watch Wisconsin vs. Michigan men's basketball: Time, TV, streaming**\
-`Find out how to watch the Wisconsin Badgers play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959451/2026/01/10/wisconsin-vs-michigan-stream-how-to-watch-jan-10/
+**Who is the biggest Olympic snub from each NHL team?**\
+`From 4 Nations fall-offs to potential reserves to emerging young stars who fell just short, many players are likely feeling snubbed.`\
+https://nytimes.com/athletic/6958384/2026/01/10/olympics-2026-hockey-biggest-snubs-nhl-team/
 
-**How to watch Penn State vs. Purdue men's basketball: Time, TV, streaming**\
-`Find out how to watch the Penn State Nittany Lions play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959449/2026/01/10/penn-state-vs-purdue-stream-how-to-watch-jan-10/
+**From ICE to Foreign Quagmires: Escalation Everywhere**\
+`The round table convenes to discuss the start to Trump’s 2026, from Greenland to Minnesota and Venezuela.`\
+https://nytimes.com/2026/01/10/opinion/trump-donroe-doctrine-ice-minneapolis-venezuela.html
 
-**How to watch Tennessee vs. Florida men's basketball: Time, TV, streaming**\
-`Find out how to watch the Tennessee Volunteers play the Florida Gators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959447/2026/01/10/tennessee-vs-florida-stream-how-to-watch-jan-10/
+**Among those who played all 17 for injury-cursed 49ers is a veteran you might not expect**\
+`Juszczyk was one of seven 49ers who started every game in 2025, which was roughly the average for NFL teams.`\
+https://nytimes.com/athletic/6958781/2026/01/10/49ers-injuries-kyle-juszczyk-17-games/
 
