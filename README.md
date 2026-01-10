@@ -1,3 +1,7 @@
+**Bengals analysis: 6 important themes from 63 minutes with Duke Tobin**\
+`The Bengals executive touched on numerous topics during a marathon session with reporters in Cincinnati. `\
+https://nytimes.com/athletic/6958571/2026/01/09/duke-tobin-bengals-end-of-season-analysis/
+
 **Trump Urges Oil Companies to Speed Work in Venezuela**\
 `The president met with executives on a day when the U.S. seized another tanker carrying Venezuelan oil.`\
 https://nytimes.com/2026/01/09/world/americas/trump-oil-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/09/us/politics/trump-child-care-funding-freeze.html
 **Outside Prisons in Caracas, Venezuelans Anxiously Await Release of More Political Detainees**\
 `Venezuela’s interim government said it would release an “important number” of imprisoned people, but only nine have been confirmed freed.`\
 https://nytimes.com/2026/01/09/world/americas/caracas-venezuela-prisoners-released.html
-
-**The Best Light-Therapy Lamp **\
-`Text by Nancy Redd`\
-https://nytimes.com/card/2026/01/09/smarter-living/wirecutter/
 
