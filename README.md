@@ -1,3 +1,7 @@
+**George Saunders Is No Saint (Despite What You May Have Heard)**\
+`The celebrated author on the challenges of being kind, the benefits of meditation and the reality check of death.`\
+https://nytimes.com/2026/01/10/magazine/george-saunders-interview.html
+
 **Golden Globes 2026: What to Expect on Sunday**\
 `Keep an eye on “One Battle After Another,” which is likely to dominate, and on the speeches. A particularly memorable one could be an Oscar lifeline.`\
 https://nytimes.com/2026/01/10/movies/golden-globes-what-to-expect.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/10/business/why-doesnt-my-boss-respect-sick-days.htm
 **A ‘Ticklish Subject’: Trump’s Words on Immigration Often Collide and Contradict**\
 `In an interview with The New York Times, President Trump made a point of keeping distance from certain hard-line immigration policies, even as he continues to demonize and shut out immigrants.`\
 https://nytimes.com/2026/01/10/us/politics/a-ticklish-subject-trumps-words-on-immigration-often-collide-and-contradict.html
-
-**Congress Is Reversing Trump’s Steep Budget Cuts to Science**\
-`After the White House called for billions of dollars in funding reductions, senators and representatives are rescinding the proposed cuts and even boosting funds for basic research.`\
-https://nytimes.com/2026/01/10/science/trump-science-budget-cuts-congress.html
 
