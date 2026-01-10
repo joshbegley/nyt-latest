@@ -1,3 +1,7 @@
+**Barcelona want to keep Rashford beyond Man Utd loan spell**\
+`Rashford, 28, joined Barcelona in July on a season-long loan and the deal includes a €30million buy option.`\
+https://nytimes.com/athletic/6959402/2026/01/10/marcus-rashford-barcelona-manchester-united-future/
+
 **Venezuela, Renee Good and Trump’s ‘Assault on Hope’**\
 `The Opinion columnist M. Gessen examines how the president governs through spectacle, and the message his displays of force are meant to send.`\
 https://nytimes.com/2026/01/10/opinion/ezra-klein-podcast-m-gessen.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6958384/2026/01/10/olympics-2026-hockey-biggest-snu
 **From ICE to Foreign Quagmires: Escalation Everywhere**\
 `The round table convenes to discuss the start to Trump’s 2026, from Greenland to Minnesota and Venezuela.`\
 https://nytimes.com/2026/01/10/opinion/trump-donroe-doctrine-ice-minneapolis-venezuela.html
-
-**Among those who played all 17 for injury-cursed 49ers is a veteran you might not expect**\
-`Juszczyk was one of seven 49ers who started every game in 2025, which was roughly the average for NFL teams.`\
-https://nytimes.com/athletic/6958781/2026/01/10/49ers-injuries-kyle-juszczyk-17-games/
 
