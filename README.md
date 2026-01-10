@@ -1,3 +1,15 @@
+**USMNT forward Pepi ruled out for two months with fractured forearm**\
+`The 23-year-old fell awkwardly after scoring PSV Eindhoven's second goal and the club confirmed he will undergo surgery on Sunday.`\
+https://nytimes.com/athletic/6960169/2026/01/10/ricardo-pepi-usmnt-arm-surgery-injury/
+
+**Nearly 13,000 Irish Passports Are Recalled Over ‘Technical Issue’**\
+`The recall affects passports issued between Dec. 23 and Jan. 6, Ireland’s Department of Foreign Affairs and Trade said.`\
+https://nytimes.com/2026/01/10/world/europe/irish-passport-recalled.html
+
+**The Pulse: Indiana leaves no doubt**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6959188/2026/01/10/indiana-was-in-full-obliteration-and-mode-with-best-ever-in-sight/
+
 **Anti-ICE Protests Spread Nationwide**\
 ` `\
 https://nytimes.com/2026/01/10/us/anti-ice-protests-spread-nationwide.html
@@ -26,16 +38,4 @@ https://nytimes.com/2026/01/10/nyregion/mamdani-public-bathrooms-nyc.html
 **Spurs' Frank suspects Richarlison hamstring injury, bemoans fixture congestion**\
 `The head coach said the calendar was "something for the football authorities to look into" as his team have played four games in ten days.`\
 https://nytimes.com/athletic/6959965/2026/01/10/richarlison-tottenham-frank-injury-fixture-congestion/
-
-**Devils scratch defenseman Dougie Hamilton, agent says he's waiting to be traded**\
-`Hamilton, 32, is in the fifth year of a seven-year, $63 million contract signed with the Devils in July 2021, carrying a $9 million cap hit.`\
-https://nytimes.com/athletic/6960145/2026/01/10/devils-scratch-dougie-hamilton-trade/
-
-**Monkeys Are on the Loose in St. Louis, City Officials Say**\
-`As many as four vervet monkeys were spotted in a neighborhood in North St. Louis on Thursday, city officials said. No one knows how they got there.`\
-https://nytimes.com/2026/01/10/us/monkeys-loose-st-louis.html
-
-**Chris Klieman says transfer portal chaos led to retirement from Kansas State**\
-`Klieman shed light on his surprising retirement in early December.`\
-https://nytimes.com/athletic/6960071/2026/01/10/chris-klieman-transfer-portal-kansas-state-retirement/
 
