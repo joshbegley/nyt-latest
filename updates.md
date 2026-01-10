@@ -1,3 +1,7 @@
+**Minnesota Woman Dies After Shark Bite in U.S. Virgin Islands**\
+`People at the beach went to the woman’s rescue and helped her ashore, the authorities said, but she died at a hospital.`\
+https://nytimes.com/2026/01/09/us/shark-attack-virgin-islands-death.html
+
 **What It Takes to Drill Into an Antarctic Glacier**\
 `Our climate reporter Raymond Zhong meets with Paul Anker, a drilling engineer aboard the icebreaker Araon, to discuss the stakes, preparations and pressure of the mission to drill a hole in the Thwaites Glacier to measure the water beneath.`\
 https://nytimes.com/video/climate/100000010631924/what-it-takes-to-drill-into-an-antarctic-glacier.html
