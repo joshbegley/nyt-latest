@@ -1,3 +1,7 @@
+**Chris Klieman says transfer portal chaos led to retirement from Kansas State**\
+`Klieman shed light on his surprising retirement in early December.`\
+https://nytimes.com/athletic/6960071/2026/01/10/chris-klieman-transfer-portal-kansas-state-retirement/
+
 **Protests Against ICE in Minneapolis Continue Into Friday Night**\
 `Hundreds of protesters marched through downtown Minneapolis on Friday night.`\
 https://nytimes.com/video/us/politics/100000010636791/protest-minneapolis-minnesota-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6960186/2026/01/10/blues-vs-golden-knights-stream-h
 **Magic's Moe Wagner nearing season debut in return from ACL tear**\
 `The Magic have missed Wagner's scoring, rebounding and relentless energy during his nearly 13-month absence.`\
 https://nytimes.com/athletic/6960087/2026/01/10/moe-wagner-magic-season-debut-acl-injury/
-
-**How to watch BYU vs. Utah men's basketball: Time, TV, streaming**\
-`Find out how to watch the BYU Cougars play the Utah Utes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6960164/2026/01/10/byu-vs-utah-stream-how-to-watch-jan-10/
 

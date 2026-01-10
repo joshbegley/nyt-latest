@@ -1,3 +1,7 @@
+**Chris Klieman says transfer portal chaos led to retirement from Kansas State**\
+`Klieman shed light on his surprising retirement in early December.`\
+https://nytimes.com/athletic/6960071/2026/01/10/chris-klieman-transfer-portal-kansas-state-retirement/
+
 **Protests Against ICE in Minneapolis Continue Into Friday Night**\
 `Hundreds of protesters marched through downtown Minneapolis on Friday night.`\
 https://nytimes.com/video/us/politics/100000010636791/protest-minneapolis-minnesota-ice.html

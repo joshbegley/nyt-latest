@@ -1,3 +1,7 @@
+**Monkeys Are on the Loose in St. Louis, City Officials Say**\
+`As many as four vervet monkeys were spotted in a neighborhood in North St. Louis on Thursday, city officials said. No one knows how they got there.`\
+https://nytimes.com/2026/01/10/us/monkeys-loose-st-louis.html
+
 **Chris Klieman says transfer portal chaos led to retirement from Kansas State**\
 `Klieman shed light on his surprising retirement in early December.`\
 https://nytimes.com/athletic/6960071/2026/01/10/chris-klieman-transfer-portal-kansas-state-retirement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6960188/2026/01/10/kings-vs-oilers-stream-how-to-wa
 **How to watch Blues vs. Golden Knights: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Vegas Golden Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6960186/2026/01/10/blues-vs-golden-knights-stream-how-to-watch-jan-10/
-
-**Magic's Moe Wagner nearing season debut in return from ACL tear**\
-`The Magic have missed Wagner's scoring, rebounding and relentless energy during his nearly 13-month absence.`\
-https://nytimes.com/athletic/6960087/2026/01/10/moe-wagner-magic-season-debut-acl-injury/
 
