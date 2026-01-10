@@ -1,3 +1,8 @@
+**Senators players denounce Linus Ullmark speculation: 'It's extremely disappointing'**\
+`"It's embarrassing that it got to the point that it did," Ottawa captain Brady Tkachuk said. "I'm not happy about it one bit."
+`\
+https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady-tkachuk/
+
 **Fetty Wap, ‘Trap Queen’ Rapper, Is Released Early From Prison**\
 `The Grammy-nominated singer was sentenced to six years in 2023 for drug trafficking. The reasons for his release were unclear.`\
 https://nytimes.com/2026/01/10/arts/music/fetty-wap-prison-release.html
