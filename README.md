@@ -1,3 +1,7 @@
+**Spurs' Frank suspects Richarlison hamstring injury, bemoans fixture congestion**\
+`The head coach said the calendar was "something for the football authorities to look into" as his team have played four games in ten days.`\
+https://nytimes.com/athletic/6959965/2026/01/10/richarlison-tottenham-frank-injury-fixture-congestion/
+
 **Devils scratch defenseman Dougie Hamilton, agent says he's waiting to be traded**\
 `Hamilton, 32, is in the fifth year of a seven-year, $63 million contract signed with the Devils in July 2021, carrying a $9 million cap hit.`\
 https://nytimes.com/athletic/6960145/2026/01/10/devils-scratch-dougie-hamilton-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6960190/2026/01/10/wisconsin-michigan-basketball-up
 **How to watch Hornets vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6960192/2026/01/10/hornets-vs-jazz-stream-how-to-watch-jan-10/
-
-**How to watch Kings vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6960188/2026/01/10/kings-vs-oilers-stream-how-to-watch-jan-10/
 

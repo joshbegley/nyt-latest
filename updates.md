@@ -1,3 +1,11 @@
+**Devils scratch defenseman Dougie Hamilton, agent says he's waiting to be traded**\
+`Hamilton, 32, is in the fifth year of a seven-year, $63 million contract signed with the Devils in July 2021, carrying a $9 million cap hit.`\
+https://nytimes.com/athletic/6960145/2026/01/10/devils-scratch-dougie-hamilton-trade/
+
+**Monkeys Are on the Loose in St. Louis, City Officials Say**\
+`As many as four vervet monkeys were spotted in a neighborhood in North St. Louis on Thursday, city officials said. No one knows how they got there.`\
+https://nytimes.com/2026/01/10/us/monkeys-loose-st-louis.html
+
 **Chris Klieman says transfer portal chaos led to retirement from Kansas State**\
 `Klieman shed light on his surprising retirement in early December.`\
 https://nytimes.com/athletic/6960071/2026/01/10/chris-klieman-transfer-portal-kansas-state-retirement/
