@@ -1,3 +1,7 @@
+**How to watch Texas vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959825/2026/01/10/texas-vs-alabama-stream-how-to-watch-jan-10/
+
 **The Briefing: Man City 10 Exeter 1 - Semenyo's impact, City equal record win and where does Lewis fit in?**\
 `Runners-up last season, City started this FA Cup campaign by sticking 10 goals past their third-tier opponents at the Etihad`\
 https://nytimes.com/athletic/6948911/2026/01/10/man-city-semenyo-debut-exeter-fa-cup/

@@ -1,3 +1,7 @@
+**How to watch Texas vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959825/2026/01/10/texas-vs-alabama-stream-how-to-watch-jan-10/
+
 **The Briefing: Man City 10 Exeter 1 - Semenyo's impact, City equal record win and where does Lewis fit in?**\
 `Runners-up last season, City started this FA Cup campaign by sticking 10 goals past their third-tier opponents at the Etihad`\
 https://nytimes.com/athletic/6948911/2026/01/10/man-city-semenyo-debut-exeter-fa-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/10/arts/television/timothy-busfield-child-sex-abuse.
 **Melton and Horford help stabilize rotation as Warriors roll over Kings**\
 `With Melton and Horford finding their footing after returning from injuries, the Warriors have won eight of their last 11 games.`\
 https://nytimes.com/athletic/6959371/2026/01/10/deanthony-melton-al-horford-warriors-kings/
-
-**Make-Ahead Breakfasts Worth Getting Out of Bed For**\
-`Good morning, banana olive oil muffins, baked oatmeal bars and sweet corn tamal.`\
-https://nytimes.com/2026/01/10/dining/make-ahead-breakfasts-worth-getting-out-of-bed-for.html
 
