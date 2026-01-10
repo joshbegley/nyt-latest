@@ -1,3 +1,15 @@
+**How to watch Flames vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959603/2026/01/10/flames-vs-penguins-stream-how-to-watch-jan-10/
+
+**How to watch Stars vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959601/2026/01/10/stars-vs-sharks-stream-how-to-watch-jan-10/
+
+**Bird Flu Viruses Raise Mounting Concerns Among Scientists**\
+`Researchers are not just worried about the virus popping up on American farms. Other types are causing trouble around the world.`\
+https://nytimes.com/2026/01/10/health/bird-flu-viruses-health.html
+
 **Macclesfield make FA Cup history with win over holders Crystal Palace**\
 `The lowest ranked team remaining in the competition secured a 2-1 win over the Premier League side.`\
 https://nytimes.com/athletic/6959526/2026/01/10/macclesfield-crystal-palace-fa-cup/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/10/opinion/leaving-america-gun-violence.html
 **L.A. Kings at midseason: The good, bad and the ugly of a frustrating stretch**\
 `The Kings remain in the playoff conversation but there's been plenty of consternation.`\
 https://nytimes.com/athletic/6958151/2026/01/10/la-kings-analysis-midseason-injuries/
-
-**Who you got: 2025 Indiana or 2019 LSU?**\
-`The Hoosiers are looking to enter the discussion alongside some of the best national champions of the College Football Playoff era.`\
-https://nytimes.com/athletic/6959174/2026/01/10/indiana-2025-lsu-2019-best-college-football-teams/
-
-**Eagles-49ers preview: Kyle Shanahan-Vic Fangio matchup, 49ers vs. Saquon Barkley**\
-`The 49ers are dealing with a rash of injuries, while the Eagles have been inconsistent on offense despite deep talent.`\
-https://nytimes.com/athletic/6958340/2026/01/10/eagles-49ers-preview-kyle-shanahan-vic-fangio-saquon-barkley/
-
-**Lindsey Vonn wins another World Cup downhill, with Olympic race one month away**\
-`Vonn, 41, solidified her place as the downhill favorite at next month's Olympics, winning the 84th World Cup race of her career.`\
-https://nytimes.com/athletic/6959501/2026/01/10/lindsey-vonn-olympics-world-cup-downhill-zauchensee/
 

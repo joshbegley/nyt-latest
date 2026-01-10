@@ -1,3 +1,15 @@
+**How to watch Flames vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959603/2026/01/10/flames-vs-penguins-stream-how-to-watch-jan-10/
+
+**How to watch Stars vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959601/2026/01/10/stars-vs-sharks-stream-how-to-watch-jan-10/
+
+**Bird Flu Viruses Raise Mounting Concerns Among Scientists**\
+`Researchers are not just worried about the virus popping up on American farms. Other types are causing trouble around the world.`\
+https://nytimes.com/2026/01/10/health/bird-flu-viruses-health.html
+
 **Macclesfield make FA Cup history with win over holders Crystal Palace**\
 `The lowest ranked team remaining in the competition secured a 2-1 win over the Premier League side.`\
 https://nytimes.com/athletic/6959526/2026/01/10/macclesfield-crystal-palace-fa-cup/
