@@ -1,3 +1,11 @@
+**The Ashes in numbers: From Australia's heroes to England's drought and two-day Tests**\
+`Who is now the second-highest run-scorer in the Ashes? And how many players aged 35 or over have taken 30 wickets in a series? Answers below`\
+https://nytimes.com/athletic/6937410/2026/01/10/ashes-australia-england-stats-numbers/
+
+**The 1.11.16 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/01/10/the-11116-issue
+
 **Steep stands and low roofs: How Leeds can expand Elland Road while retaining its iconic atmosphere**\
 `Plans to increase the capacity of Leeds United's home to 53,000 were approved this week`\
 https://nytimes.com/athletic/6958054/2026/01/10/elland-road-expansion-atmosphere/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6959148/2026/01/10/doc-rivers-minneapolis-ice-shoot
 **Thunder complete another significant comeback against Grizzlies, this time without their stars**\
 `Could this comeback, the Thunder's third of at least 19 points in Memphis since April, wake up the NBA champions from their recent slide?`\
 https://nytimes.com/athletic/6959138/2026/01/10/okc-thunder-comeback-against-grizzlies-without-stars/
-
-**Rosenior, Chelsea and the benefits and risks of hiring within a multi-club model**\
-`Rosenior has joined from their French sister club Strasbourg. How will that impact his time at Stamford Bridge?`\
-https://nytimes.com/athletic/6957165/2026/01/10/liam-rosenior-chelsea-multi-club-model/
-
-**No Amazon, No Gmail: Trump Sanctions Upend the Lives of I.C.C. Judges**\
-`President Trump’s retaliation against top officials at the International Criminal Court has shut them out of American services and made even routine daily tasks a challenge.`\
-https://nytimes.com/2026/01/10/world/europe/icc-judges-us-sanctions-trump.html
 
