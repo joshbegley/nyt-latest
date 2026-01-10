@@ -1,3 +1,7 @@
+**The Briefing: Algeria 0 Nigeria 2 — Osimhen's leap, Iwobi's pass and a statement Super Eagles display**\
+`Could Nigeria be the new AFCON favourites after making light work of Algeria?`\
+https://nytimes.com/athletic/6949014/2026/01/10/algeria-0-nigeria-2-osimhen-iwobi-afcon/
+
 **Red-hot Leafs shuffle their lineup ahead of William Nylander's return**\
 `The Leafs have gone 4-0-2 without him and 6-0-2 in their last eight overall.`\
 https://nytimes.com/athletic/6959614/2026/01/10/william-nylander-maple-leafs-return/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6959871/2026/01/10/islanders-vs-wild-stream-how-to-
 **How to watch Panthers vs. Senators: Time, TV, streaming**\
 `Find out how to watch the Florida Panthers play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6959869/2026/01/10/panthers-vs-senators-stream-how-to-watch-jan-10/
-
-**Red Sox CEO says free-agency deadline would be 'helpful,' avoids Alex Bregman discussion**\
-`Sam Kennedy noted that the Red Sox, who have yet to sign a free agent this offseason, have invested in the roster via other avenues.`\
-https://nytimes.com/athletic/6959775/2026/01/10/red-sox-sam-kennedy-free-agent-deadline-alex-bregman/
 

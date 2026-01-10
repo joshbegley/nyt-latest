@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady-tkachuk/
 
+**Senators players denounce Linus Ullmark speculation: 'It's extremely disappointing'**\
+`"It's embarrassing that it got to the point that it did," Ottawa captain Brady Tkachuk said. "I'm not happy about it one bit."
+`\
+https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady-tkachuk/
+
 **Red-hot Leafs shuffle their lineup ahead of William Nylander's return**\
 `The Leafs have gone 4-0-2 without him and 6-0-2 in their last eight overall.`\
 https://nytimes.com/athletic/6959614/2026/01/10/william-nylander-maple-leafs-return/
