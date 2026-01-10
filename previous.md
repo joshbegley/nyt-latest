@@ -1,3 +1,7 @@
+**Timothy Busfield, Actor and Director, Is Accused of Child Sex Abuse**\
+`The Emmy Award-winning actor is accused of abusing two child actors while working on a television series. An arrest warrant was issued in New Mexico.`\
+https://nytimes.com/2026/01/10/arts/television/timothy-busfield-child-sex-abuse.html
+
 **Melton and Horford help stabilize rotation as Warriors roll over Kings**\
 `With Melton and Horford finding their footing after returning from injuries, the Warriors have won eight of their last 11 games.`\
 https://nytimes.com/athletic/6959371/2026/01/10/deanthony-melton-al-horford-warriors-kings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6959603/2026/01/10/flames-vs-penguins-stream-how-to
 **How to watch Stars vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6959601/2026/01/10/stars-vs-sharks-stream-how-to-watch-jan-10/
-
-**Bird Flu Viruses Raise Mounting Concerns Among Scientists**\
-`Researchers are not just worried about the virus popping up on American farms. Other types are causing trouble around the world.`\
-https://nytimes.com/2026/01/10/health/bird-flu-viruses-health.html
 

@@ -1,3 +1,7 @@
+**Timothy Busfield, Actor and Director, Is Accused of Child Sex Abuse**\
+`The Emmy Award-winning actor is accused of abusing two child actors while working on a television series. An arrest warrant was issued in New Mexico.`\
+https://nytimes.com/2026/01/10/arts/television/timothy-busfield-child-sex-abuse.html
+
 **Melton and Horford help stabilize rotation as Warriors roll over Kings**\
 `With Melton and Horford finding their footing after returning from injuries, the Warriors have won eight of their last 11 games.`\
 https://nytimes.com/athletic/6959371/2026/01/10/deanthony-melton-al-horford-warriors-kings/
