@@ -1,6 +1,10 @@
-**Falcons hiring Matt Ryan as new president of football**\
+**Make-Ahead Breakfasts Worth Getting Out of Bed For**\
+`Good morning, banana olive oil muffins, baked oatmeal bars and sweet corn tamal.`\
+https://nytimes.com/2026/01/10/dining/make-ahead-breakfasts-worth-getting-out-of-bed-for.html
+
+**Falcons hire Matt Ryan as new president of football**\
 `The legendary QB is expected to oversee the hiring of Atlanta's new coach and GM after Raheem Morris and Terry Fontenot were fired.`\
-https://nytimes.com/athletic/6942602/2026/01/10/matt-ryan-falcons-president-of-football/
+https://nytimes.com/athletic/6942602/2026/01/10/matt-ryan-atlanta-falcons-president-football-operations-hire/
 
 **'Chasing perfection': Jaxon Smith-Njigba's path from slot receiver to unanimous All-Pro**\
 `Smith-Njigba always expects more of himself than anyone else does: "Y'all don't really know what I'm really capable of, but I'mma show you."`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/10/health/bird-flu-viruses-health.html
 **Macclesfield make FA Cup history with win against holders Crystal Palace**\
 `The lowest ranked team remaining in the competition after securing a 2-1 win against the Premier League side`\
 https://nytimes.com/athletic/6959526/2026/01/10/macclesfield-crystal-palace-fa-cup/
-
-**How to watch Stanford vs. Virginia men's basketball: Time, TV, streaming**\
-`Find out how to watch the Stanford Cardinal play the Virginia Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959589/2026/01/10/stanford-vs-virginia-stream-how-to-watch-jan-10/
 
