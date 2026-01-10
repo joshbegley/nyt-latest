@@ -1,3 +1,7 @@
+**The Briefing: Man City 10 Exeter 1 - Semenyo's impact, City equal record win and where does Lewis fit in?**\
+`Runners-up last season, City started this FA Cup campaign by sticking 10 goals past their third-tier opponents at the Etihad`\
+https://nytimes.com/athletic/6948911/2026/01/10/man-city-semenyo-debut-exeter-fa-cup/
+
 **Until Saturday: Indiana's on the brink of a GOAT case**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6959748/2026/01/10/indiana-oregon-playoff-until-saturday/
