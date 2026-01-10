@@ -1,3 +1,23 @@
+**Inside Iran’s Protests: How a Plunging Currency Set Off Wide Unrest**\
+`In a serious challenge to Iran’s authoritarian government, angry protests have spread from the markets and universities of major cities to the impoverished towns in the hinterland.`\
+https://nytimes.com/2026/01/10/world/europe/iran-protests-economy-currency-collapse.html
+
+**Mandel's Final Thoughts: In 2026, Indiana (yes, Indiana!) is an untouchable juggernaut**\
+`If Indiana beats Miami to finish 16-0, it’s inevitable that it will get compared to great teams of the past.`\
+https://nytimes.com/athletic/6959067/2026/01/10/college-football-playoff-scores-result-indiana-miami/
+
+**Rob Manfred said MLB has 'discussed' an in-season tournament. Could it really work in baseball?**\
+`Commissioner Rob Manfred floated the idea of an in-season tournament similar to the NBA Cup. It offers possibilities, and brings challenges.`\
+https://nytimes.com/athletic/6958373/2026/01/10/mlb-in-season-tournament-rob-manfred/
+
+**NFL wild-card storylines: Pressure on Josh Allen; can Aaron Rodgers snap Steelers' skid?**\
+`It’s truly a wide-open postseason featuring numerous contenders but no clear-cut, dominant force of a team.`\
+https://nytimes.com/athletic/6955939/2026/01/10/nfl-2025-playoffs-wild-card-storylines-josh-allen-aaron-rodgers/
+
+**NFL postseason bandwagon guide: Which team should you be rooting for?**\
+`With the Super Bowl in Santa Clara, Calif., rooting for a 49ers team that could have easily been derailed by injuries could be fun.`\
+https://nytimes.com/athletic/6951409/2026/01/10/nfl-playoffs-bandwagon-guide-super-bowl/
+
 **George Saunders Is No Saint (Despite What You May Have Heard)**\
 `The celebrated author on the challenges of being kind, the benefits of meditation and the reality check of death.`\
 https://nytimes.com/2026/01/10/magazine/george-saunders-interview.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/10/world/europe/trump-putin-venezuela.html
 **What Happens if Federal Agents and Local Officers Stop Getting Along?**\
 `Cooperation among law enforcement agencies is critical to many investigations, experts say. After a series of shootings by immigration agents, the relationship is showing cracks.`\
 https://nytimes.com/2026/01/10/us/federal-agents-law-enforcement-trump.html
-
-**Beef Tallow, Long a Health Pariah, Rises to the Top of the Food Pyramid**\
-`The new dietary guidelines give federal approval to a fat that has slowly caught on with consumers, even as doctors have warned against it.`\
-https://nytimes.com/2026/01/10/dining/beef-tallow-food-pyramid-rfk-jr.html
-
-**Popularity of ‘Heated Rivalry’ Has Surprised Even TV Executives**\
-`The show, streaming on HBO Max, doesn’t have one of the biggest audiences, but viewership grew very quickly in just a few weeks.`\
-https://nytimes.com/2026/01/10/business/media/heated-rivalry-hbo-max-popularity.html
-
-**8 Songs We’re Talking About This Week**\
-`Bruno Mars, Jill Scott and Mandy, Indiana have new albums on the way, and a frantic tune from an anime film is No. 1 in Japan.`\
-https://nytimes.com/2026/01/10/arts/music/bruno-mars-zach-bryan-robyn-new-songs.html
-
-**Why Doesn’t My Boss Respect Sick Days?**\
-`Plus, the impossibility of being a middle manager.`\
-https://nytimes.com/2026/01/10/business/why-doesnt-my-boss-respect-sick-days.html
-
-**A ‘Ticklish Subject’: Trump’s Words on Immigration Often Collide and Contradict**\
-`In an interview with The New York Times, President Trump made a point of keeping distance from certain hard-line immigration policies, even as he continues to demonize and shut out immigrants.`\
-https://nytimes.com/2026/01/10/us/politics/a-ticklish-subject-trumps-words-on-immigration-often-collide-and-contradict.html
 
