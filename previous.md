@@ -1,3 +1,11 @@
+**Trae Young wants to 'hopefully make an All-Star or two' out of new Wizards teammates**\
+`In his first news conference since being traded to Washington from Atlanta, Young emphasized his desire to help the Wizards' young core.`\
+https://nytimes.com/athletic/6958678/2026/01/09/trae-young-introduction-washington-wizards-nba/
+
+**Why N.H.L. Players Are Finally Dressing Down**\
+`The National Hockey League’s new relaxed dress code could bring more comfort or flair, but suits might not disappear entirely.`\
+https://nytimes.com/video/the-athletic/100000010635547/why-nhl-players-are-finally-dressing-down.html
+
 **Commanders promoting David Blough to offensive coordinator: Source**\
 `The ex-assistant quarterbacks coach replaces Kliff Kingsbury, who the team parted ways with just three days earlier.`\
 https://nytimes.com/athletic/6958765/2026/01/09/commanders-promote-david-blough-offensive-coordinator/
@@ -29,12 +37,4 @@ https://nytimes.com/card/2026/01/09/smarter-living/wirecutter/
 **Owner of Swiss Bar Detained in Fire Investigation**\
 `Prosecutors in Switzerland ordered Jacques Moretti to be detained after investigators questioned him and his wife, Jessica Moretti. Officials are looking into whether negligence played a role in last week’s deadly fire at their bar, Le Constellation.`\
 https://nytimes.com/video/world/europe/100000010635277/switzerland-bar-owner-detained-fire-investigation.html
-
-**Brooks Koepka officially wants to rejoin the PGA Tour**\
-`Koepka, 35, left LIV last month, the first major star to leave the rebel tour.`\
-https://nytimes.com/athletic/6958671/2026/01/09/brooks-koepka-pga-tour-return/
-
-**Gavin Newsom on Democrats, 2028 and His Fruit-only Breakfasts**\
-`The California governor is powered by smoothies and bursting with thoughts about U.S. politics.`\
-https://nytimes.com/2026/01/09/us/politics/gavin-newsom-california-democrats.html
 

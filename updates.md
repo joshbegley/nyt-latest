@@ -1,3 +1,11 @@
+**Trae Young wants to 'hopefully make an All-Star or two' out of new Wizards teammates**\
+`In his first news conference since being traded to Washington from Atlanta, Young emphasized his desire to help the Wizards' young core.`\
+https://nytimes.com/athletic/6958678/2026/01/09/trae-young-introduction-washington-wizards-nba/
+
+**Why N.H.L. Players Are Finally Dressing Down**\
+`The National Hockey League’s new relaxed dress code could bring more comfort or flair, but suits might not disappear entirely.`\
+https://nytimes.com/video/the-athletic/100000010635547/why-nhl-players-are-finally-dressing-down.html
+
 **Commanders promoting David Blough to offensive coordinator: Source**\
 `The ex-assistant quarterbacks coach replaces Kliff Kingsbury, who the team parted ways with just three days earlier.`\
 https://nytimes.com/athletic/6958765/2026/01/09/commanders-promote-david-blough-offensive-coordinator/

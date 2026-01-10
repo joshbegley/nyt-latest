@@ -1,3 +1,7 @@
+**Trump Urges Oil Companies to Speed Work in Venezuela**\
+`The president met with executives on a day when the U.S. seized another tanker carrying Venezuelan oil.`\
+https://nytimes.com/2026/01/09/world/americas/trump-oil-venezuela.html
+
 **Trae Young wants to 'hopefully make an All-Star or two' out of new Wizards teammates**\
 `In his first news conference since being traded to Washington from Atlanta, Young emphasized his desire to help the Wizards' young core.`\
 https://nytimes.com/athletic/6958678/2026/01/09/trae-young-introduction-washington-wizards-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/09/world/americas/caracas-venezuela-prisoners-releas
 **The Best Light-Therapy Lamp **\
 `Text by Nancy Redd`\
 https://nytimes.com/card/2026/01/09/smarter-living/wirecutter/
-
-**Owner of Swiss Bar Detained in Fire Investigation**\
-`Prosecutors in Switzerland ordered Jacques Moretti to be detained after investigators questioned him and his wife, Jessica Moretti. Officials are looking into whether negligence played a role in last week’s deadly fire at their bar, Le Constellation.`\
-https://nytimes.com/video/world/europe/100000010635277/switzerland-bar-owner-detained-fire-investigation.html
 
