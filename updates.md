@@ -1,3 +1,7 @@
+**WNBA, players union fail to reach CBA agreement at deadline**\
+`The WNBA and players union will enter into a status quo period. `\
+https://nytimes.com/athletic/6959018/2026/01/09/wnba-and-players-union-fail-to-reach-cba-agreement-at-deadline/
+
 **Judge Bars Trump From Withholding Election Funds to States**\
 `The ruling is the latest legal setback to President Trump’s sweeping effort to compel changes to state election standards.`\
 https://nytimes.com/2026/01/09/us/politics/trump-court-ruling-elections.html
