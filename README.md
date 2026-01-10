@@ -3,7 +3,7 @@
 https://nytimes.com/2026/01/10/technology/stewart-cheifet-dead.html
 
 **Wisconsin stuns No. 2 Michigan, ends Wolverines' unbeaten start in 3-point barrage**\
-`The Badgers knocked down 15 3-pointers on the way to their first win over a top-2 ranked team since beating Michigan in 2019,`\
+`The Badgers knocked down 15 3-pointers on the way to their first win over a top-two ranked team since beating Michigan in 2019,`\
 https://nytimes.com/athletic/6960190/2026/01/10/wisconsin-michigan-basketball-upset/
 
 **How to watch Hornets vs. Jazz: Time, TV, streaming**\

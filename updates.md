@@ -1,3 +1,11 @@
+**Stewart Cheifet, Host of TV’s ‘Computer Chronicles,’ Dies at 87**\
+`He spent two decades hosting the PBS series, during the formative years of personal computing. It was seen in more than 300 cities at its peak.`\
+https://nytimes.com/2026/01/10/technology/stewart-cheifet-dead.html
+
+**Wisconsin stuns No. 2 Michigan, ends Wolverines' unbeaten start in 3-point barrage**\
+`The Badgers knocked down 15 3-pointers on the way to their first win over a top-2 ranked team since beating Michigan in 2019,`\
+https://nytimes.com/athletic/6960190/2026/01/10/wisconsin-michigan-basketball-upset/
+
 **How to watch Hornets vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6960192/2026/01/10/hornets-vs-jazz-stream-how-to-watch-jan-10/
