@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady
 `\
 https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady-tkachuk/
 
+**Senators players denounce Linus Ullmark speculation: 'It's extremely disappointing'**\
+`"It's embarrassing that it got to the point that it did," Ottawa captain Brady Tkachuk said. "I'm not happy about it one bit."
+`\
+https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady-tkachuk/
+
 **Potential Ja Morant trade landing spots include Raptors, Heat and Clippers**\
 `Memphis seems ready to move on from the Ja Morant era. Which teams make realistic trade partners — and which ones don't?`\
 https://nytimes.com/athletic/6958682/2026/01/10/ja-morant-trade-landing-spots-heat-clippers-raptors/
