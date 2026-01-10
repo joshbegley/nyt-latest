@@ -1,3 +1,7 @@
+**From ICE to Foreign Quagmires: Escalation Everywhere**\
+`The round table convenes to discuss the start to Trump’s 2026, from Greenland to Minnesota and Venezuela.`\
+https://nytimes.com/video/opinion/100000010633522/from-ice-to-foreign-quagmires-escalation-everywhere.html
+
 **How to watch Rangers vs. Bruins: Time, TV, streaming**\
 `Find out how to watch the New York Rangers play the Boston Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6959465/2026/01/10/rangers-vs-bruins-stream-how-to-watch-jan-10/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6959451/2026/01/10/wisconsin-vs-michigan-stream-how
 **How to watch Penn State vs. Purdue men's basketball: Time, TV, streaming**\
 `Find out how to watch the Penn State Nittany Lions play the Purdue Boilermakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6959449/2026/01/10/penn-state-vs-purdue-stream-how-to-watch-jan-10/
-
-**How to watch Tennessee vs. Florida men's basketball: Time, TV, streaming**\
-`Find out how to watch the Tennessee Volunteers play the Florida Gators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959447/2026/01/10/tennessee-vs-florida-stream-how-to-watch-jan-10/
 
