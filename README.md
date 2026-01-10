@@ -1,3 +1,7 @@
+**Fetty Wap, ‘Trap Queen’ Rapper, Is Released Early From Prison**\
+`The Grammy-nominated singer was sentenced to six years in 2023 for drug trafficking. The reasons for his release were unclear.`\
+https://nytimes.com/2026/01/10/arts/music/fetty-wap-prison-release.html
+
 **Death Toll From California Wild Mushroom Poisoning Rises to 3**\
 `The death of a Sonoma County resident last week prompted public health officials to urge foragers not to consume wild mushrooms.`\
 https://nytimes.com/2026/01/10/us/california-wild-mushrooms-poison.html
@@ -6,7 +10,7 @@ https://nytimes.com/2026/01/10/us/california-wild-mushrooms-poison.html
 `Ex-law enforcement officials said the administration’s declarations that the killing was justified elicited questions about the F.B.I.’s willingness to scrutinize the agent who fatally shot an unarmed activist.`\
 https://nytimes.com/2026/01/10/us/politics/trump-ice-shooting-response-minneapolis.html
 
-**The Briefing: Algeria 0 Nigeria 2 – Osimhen's leap, Iwobi's pass and a statement Super Eagles display**\
+**The Briefing: Algeria 0 Nigeria 2 – Osimhen's leap, Iwobi's pass and what happened after full-time?**\
 `Could Nigeria be the new AFCON favourites after making light work of Algeria?`\
 https://nytimes.com/athletic/6949014/2026/01/10/algeria-0-nigeria-2-osimhen-iwobi-afcon/
 
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6959879/2026/01/10/lightning-vs-flyers-stream-how-t
 **How to watch Kraken vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6959877/2026/01/10/kraken-vs-hurricanes-stream-how-to-watch-jan-10/
-
-**How to watch Canucks vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959875/2026/01/10/canucks-vs-maple-leafs-stream-how-to-watch-jan-10/
 
