@@ -1,3 +1,11 @@
+**Rare Comic Introducing Superman Sells Privately for $15 Million**\
+`The copy of Action Comics No. 1, published in 1938, was stolen from the actor Nicolas Cage in 2000 and recovered more than a decade later.`\
+https://nytimes.com/2026/01/09/books/superman-action-comics-1-sold.html
+
+**Consumer Bureau Leader Requests $145 Million for Agency He Wants to Eliminate**\
+`A federal judge ordered Russell T. Vought, the bureau’s acting director, to keep requesting funds for the financial watchdog’s operations.`\
+https://nytimes.com/2026/01/09/us/politics/cfpb-vought-funds.html
+
 **Minnesota Woman Dies After Shark Bite in U.S. Virgin Islands**\
 `People at the beach went to the woman’s rescue and helped her ashore, the authorities said, but she died at a hospital.`\
 https://nytimes.com/2026/01/09/us/shark-attack-virgin-islands-death.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/09/us/ice-agent-video-minneapolis-shooting.html
 **Bengals analysis: 6 important themes from 63 minutes with Duke Tobin**\
 `The Bengals executive touched on numerous topics during a marathon session with reporters in Cincinnati. `\
 https://nytimes.com/athletic/6958571/2026/01/09/duke-tobin-bengals-end-of-season-analysis/
-
-**Trump Urges Oil Companies to Speed Work in Venezuela**\
-`The president met with executives on a day when the U.S. seized another tanker carrying Venezuelan oil.`\
-https://nytimes.com/2026/01/09/world/americas/trump-oil-venezuela.html
-
-**Trae Young wants to 'hopefully make an All-Star or two' out of new Wizards teammates**\
-`In his first news conference since being traded to Washington from Atlanta, Young emphasized his desire to help the Wizards' young core.`\
-https://nytimes.com/athletic/6958678/2026/01/09/trae-young-introduction-washington-wizards-nba/
 

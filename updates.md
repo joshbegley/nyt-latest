@@ -1,3 +1,11 @@
+**Rare Comic Introducing Superman Sells Privately for $15 Million**\
+`The copy of Action Comics No. 1, published in 1938, was stolen from the actor Nicolas Cage in 2000 and recovered more than a decade later.`\
+https://nytimes.com/2026/01/09/books/superman-action-comics-1-sold.html
+
+**Consumer Bureau Leader Requests $145 Million for Agency He Wants to Eliminate**\
+`A federal judge ordered Russell T. Vought, the bureau’s acting director, to keep requesting funds for the financial watchdog’s operations.`\
+https://nytimes.com/2026/01/09/us/politics/cfpb-vought-funds.html
+
 **Minnesota Woman Dies After Shark Bite in U.S. Virgin Islands**\
 `People at the beach went to the woman’s rescue and helped her ashore, the authorities said, but she died at a hospital.`\
 https://nytimes.com/2026/01/09/us/shark-attack-virgin-islands-death.html
