@@ -1,3 +1,7 @@
+**After President’s Capture, U.S. and Venezuela Explore Restoring Diplomatic Ties**\
+`In moves that embodied the contradictions and fast-changing nature of the two countries’ relationship, both said on Friday that they were eyeing reopening embassies and restoring long-severed diplomatic ties.`\
+https://nytimes.com/2026/01/09/world/americas/venezuela-us-diplomacy-softening.html
+
 **Go for Another Round**\
 `Kameron Austin Collins treats us to a new construction, with more to come.`\
 https://nytimes.com/2026/01/09/crosswords/daily-puzzle-2026-01-10.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/09/us/politics/dr-oz-visits-california-to-target-fra
 **NBA referee Bill Kennedy, known for viral challenge verdicts, leaves game in wheelchair**\
 `The longtime NBA official appeared to suffer a non-contact right leg injury early in a game between the Magic and 76ers.`\
 https://nytimes.com/athletic/6958833/2026/01/09/bill-kennedy-nba-referee-injury-leaves-76ers-magic-game/
-
-**After committing to Baylor, QB DJ Lagway might still take other visits: Sources**\
-`Lagway has not signed his scholarship paperwork nor his revenue-sharing agreement with Baylor. Others, including Ole Miss, have interest.`\
-https://nytimes.com/athletic/6958835/2026/01/09/dj-lagway-transfer-portal-news-baylor-ole-miss/
 

@@ -1,3 +1,7 @@
+**After President’s Capture, U.S. and Venezuela Explore Restoring Diplomatic Ties**\
+`In moves that embodied the contradictions and fast-changing nature of the two countries’ relationship, both said on Friday that they were eyeing reopening embassies and restoring long-severed diplomatic ties.`\
+https://nytimes.com/2026/01/09/world/americas/venezuela-us-diplomacy-softening.html
+
 **Go for Another Round**\
 `Kameron Austin Collins treats us to a new construction, with more to come.`\
 https://nytimes.com/2026/01/09/crosswords/daily-puzzle-2026-01-10.html
