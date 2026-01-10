@@ -1,3 +1,7 @@
+**Machado Offered Trump Her Nobel, but Prize Institute Says It’s Not Allowed**\
+`After María Corina Machado, Venezuela’s opposition leader, offered her Nobel Peace Prize to President Trump, the Norwegian Nobel Institute said it cannot be “transferred to others.”`\
+https://nytimes.com/2026/01/10/world/americas/trump-nobel-peace-prize-maria-machado.html
+
 **This Quick Murgh Chole Is ‘Perfection’**\
 `Zainab Shah’s chicken and chickpea curry is already racking up raves from readers: “Absolutely stunning taste!”`\
 https://nytimes.com/2026/01/10/dining/this-quick-murgh-chole-is-perfection.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6956131/2026/01/10/jsn-jaxon-smith-njigba-seahawks-
 **Rockets’ 3-point shooting struggles continue as loss mars Kevin Durant's historic night**\
 `Shaky long-distance shooting lead to the Rockets surrendering a large fourth-quarter lead in a loss to the Trail Blazers.`\
 https://nytimes.com/athletic/6959353/2026/01/10/rockets-3-point-shooting-struggles-continue-as-loss-mars-kevin-durants-historic-night/
-
-**How to watch Blue Jackets vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959609/2026/01/10/blue-jackets-vs-avalanche-stream-how-to-watch-jan-10/
 
