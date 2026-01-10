@@ -1,3 +1,19 @@
+**How to watch Hornets vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6960192/2026/01/10/hornets-vs-jazz-stream-how-to-watch-jan-10/
+
+**How to watch Kings vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6960188/2026/01/10/kings-vs-oilers-stream-how-to-watch-jan-10/
+
+**How to watch Blues vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6960186/2026/01/10/blues-vs-golden-knights-stream-how-to-watch-jan-10/
+
+**Magic's Moe Wagner nearing season debut in return from ACL tear**\
+`The Magic have missed Wagner's scoring, rebounding and relentless energy during his nearly 13-month absence.`\
+https://nytimes.com/athletic/6960087/2026/01/10/moe-wagner-magic-season-debut-acl-injury/
+
 **How to watch BYU vs. Utah men's basketball: Time, TV, streaming**\
 `Find out how to watch the BYU Cougars play the Utah Utes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6960164/2026/01/10/byu-vs-utah-stream-how-to-watch-jan-10/
