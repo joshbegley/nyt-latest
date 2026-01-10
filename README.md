@@ -1,3 +1,7 @@
+**Six People Are Fatally Shot in Mississippi, Sheriff Says**\
+`In social media post, the Clay County sheriff said that ‘multiple innocent lives were lost’ and that one person was in custody.`\
+https://nytimes.com/2026/01/10/us/shooting-west-point-mississippi.html
+
 **Timothy Busfield, Actor and Director, Is Accused of Child Sex Abuse**\
 `The Emmy Award-winning actor is accused of abusing two child actors while working on a television series. An arrest warrant was issued in New Mexico.`\
 https://nytimes.com/2026/01/10/arts/television/timothy-busfield-child-sex-abuse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6958994/2026/01/10/ap-nfl-all-pro-team-2025/
 **How to watch Flames vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Calgary Flames play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6959603/2026/01/10/flames-vs-penguins-stream-how-to-watch-jan-10/
-
-**How to watch Stars vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959601/2026/01/10/stars-vs-sharks-stream-how-to-watch-jan-10/
 
