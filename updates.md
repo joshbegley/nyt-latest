@@ -1,3 +1,15 @@
+**CFP championship first look: Can Indiana win a shocking title? Will Miami return to No. 1?**\
+`Indiana and Miami will meet in an unlikely College Football Playoff national title game on Jan. 19. Here's what you need to know.`\
+https://nytimes.com/athletic/6958901/2026/01/09/indiana-miami-college-football-playoff-national-championship-game/
+
+**College Football Playoff 2025 bracket projections: Who's the national title favorite?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2026/01/09/college-football-playoff-bracket-projections-odds/
+
+**Visa issues derail Ethiopian teams' world cross-country championship hopes: Report**\
+`A representative of Ethiopia's federation said no explanation was given for the U.S. rejecting several athletes' visa applications.`\
+https://nytimes.com/athletic/6958990/2026/01/09/cross-country-championships-ethiopia-visa-issues/
+
 **Indiana clear favorite against Miami in national title game**\
 `Indiana is favored by a touchdown against Miami in the national title game. Will the Hoosiers continue to steamroll the opposition?`\
 https://nytimes.com/athletic/6958966/2026/01/09/college-football-national-title-game-odds-indiana-miami/
