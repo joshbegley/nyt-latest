@@ -1,3 +1,7 @@
+**Disinformation in Minneapolis Shooting Points at People That Were Not Involved**\
+`Within hours of an ICE officer shooting and killing a woman, social media users misidentified the agent who fired as Steve Grove.`\
+https://nytimes.com/2026/01/10/us/disinformation-minneapolis-shooting-ice.html
+
 **USMNT forward Pepi ruled out for two months with fractured forearm**\
 `The 23-year-old fell awkwardly after scoring PSV Eindhoven's second goal and the club confirmed he will undergo surgery on Sunday.`\
 https://nytimes.com/athletic/6960169/2026/01/10/ricardo-pepi-usmnt-arm-surgery-injury/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6959930/2026/01/10/cam-newton-panthers-rams-poundin
 **Mamdani Announces Plan to Expand Public Bathroom Access in New York**\
 `The city has over eight million residents and only around 1,000 public bathrooms. The new mayor said he was committed to creating more, though he did not say when they would be available.`\
 https://nytimes.com/2026/01/10/nyregion/mamdani-public-bathrooms-nyc.html
-
-**Spurs' Frank suspects Richarlison hamstring injury, bemoans fixture congestion**\
-`The head coach said the calendar was "something for the football authorities to look into" as his team have played four games in ten days.`\
-https://nytimes.com/athletic/6959965/2026/01/10/richarlison-tottenham-frank-injury-fixture-congestion/
 
