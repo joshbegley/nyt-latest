@@ -1,3 +1,23 @@
+**How to watch SMU vs. Duke men's basketball: Time, TV, streaming**\
+`Find out how to watch the SMU Mustangs play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959443/2026/01/10/smu-vs-duke-stream-how-to-watch-jan-10/
+
+**How to watch Kansas vs. West Virginia men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959441/2026/01/10/kansas-vs-west-virginia-stream-how-to-watch-jan-10/
+
+**How to watch DePaul vs. UConn men's basketball: Time, TV, streaming**\
+`Find out how to watch the DePaul Blue Demons play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959439/2026/01/10/depaul-vs-uconn-stream-how-to-watch-jan-10/
+
+**How to watch Nebraska vs. Indiana men's basketball: Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the Indiana Hoosiers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959435/2026/01/10/nebraska-vs-indiana-stream-how-to-watch-jan-10/
+
+**How to watch LSU vs. Vanderbilt men's basketball: Time, TV, streaming**\
+`Find out how to watch the LSU Tigers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959432/2026/01/10/lsu-vs-vanderbilt-stream-how-to-watch-jan-10/
+
 **Can Caleb Williams continue to change the script in Bears-Packers rivalry?**\
 `“I feel like he's just getting started, just with his talent, his natural-born ability,” Bears running back D’Andre Swift said.`\
 https://nytimes.com/athletic/6957927/2026/01/10/caleb-williams-change-script-bears-packers-rivalry/
