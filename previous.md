@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6959284/2026/01/10/oregon-football-dante-moore-indi
 `The Chargers' star quarterback's numbers don't tell the entire story of the herculean effort he's given this season. `\
 https://nytimes.com/athletic/6959127/2026/01/10/justin-herbert-nfls-most-important-player-video/
 
-**What Would Peace on Immigration Look Like?**\
+**The ICE Shooting Displays the Need for Equilibrium. But How?**\
 `A tough issue for stabilization in our politics and public institutions.`\
 https://nytimes.com/2026/01/10/opinion/ice-shooting-minneapolis-equilibrium.html
 

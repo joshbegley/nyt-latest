@@ -1,3 +1,7 @@
+**The ICE Shooting Displays the Need for Equilibrium. But How?**\
+`A tough issue for stabilization in our politics and public institutions.`\
+https://nytimes.com/2026/01/10/opinion/ice-shooting-minneapolis-equilibrium.html
+
 **Isabeau Levito is on the cusp of making the 2026 Olympics, and she did it her way**\
 `Levito finished third Friday at U.S. Figure Skating Championships, likely sealing her Olympic spot alongside Alysa Liu and Amber Glenn.`\
 https://nytimes.com/athletic/6959420/2026/01/10/isabeau-levito-olympics-figure-skating-us-championships/
