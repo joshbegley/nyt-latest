@@ -1,4 +1,12 @@
-**Players react to first test game at Olympic hockey rink: 'Not perfect'**\
+**How to watch Arizona vs. TCU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959584/2026/01/10/arizona-vs-tcu-stream-how-to-watch-jan-10/
+
+**How to watch Oklahoma State vs. Iowa State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Oklahoma State Cowboys play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6959579/2026/01/10/oklahoma-state-vs-iowa-state-stream-how-to-watch-jan-10/
+
+**Players react to first test game at Olympic hockey rink: 'Still a work in progress'**\
 `"Outside, I'm not quite sure if it will be ready because some of it is a mess." But the shorter dimensions didn't bother players Friday.`\
 https://nytimes.com/athletic/6959537/2026/01/10/olympic-hockey-rink-test-game-player-reaction/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6956090/2026/01/10/bears-packers-cheese-grater-hats
 **Will Brock Purdy’s super power help 49ers cash in house money and beat Eagles?**\
 `Riddled by injuries and dismissed all season, the 49ers enter Sunday's NFC wild-card game in Philadelphia loose and confident.`\
 https://nytimes.com/athletic/6958827/2026/01/10/49ers-eagles-brock-purdy-superpower/
-
-**What's next for Oregon? A Dante Moore decision, new coordinators and same high expectations**\
-`Oregon's loss to Indiana in the CFP semifinals was deflating, but there are plenty of reasons for optimism about what's next in Eugene.`\
-https://nytimes.com/athletic/6959475/2026/01/10/oregon-football-2026-portal-dante-moore-roster/
-
-**$100 Billion to Revive Venezuela’s Energy Industry? Oil Executives Are Not So Sure**\
-`During a meeting at the White House, the industry leaders appeared wary of making long-term investments in the country.`\
-https://nytimes.com/2026/01/10/business/dealbook/oil-executives-trump-venezuela.html
 
