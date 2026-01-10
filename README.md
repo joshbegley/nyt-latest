@@ -1,3 +1,7 @@
+**F.B.I.’s Inquiry Into ICE Shooting Faces Doubts After White House’s Remarks**\
+`Ex-law enforcement officials said the administration’s declarations that the killing was justified elicited questions about the F.B.I.’s willingness to scrutinize the agent who fatally shot an unarmed activist.`\
+https://nytimes.com/2026/01/10/us/politics/trump-ice-shooting-response-minneapolis.html
+
 **The Briefing: Algeria 0 Nigeria 2 – Osimhen's leap, Iwobi's pass and a statement Super Eagles display**\
 `Could Nigeria be the new AFCON favourites after making light work of Algeria?`\
 https://nytimes.com/athletic/6949014/2026/01/10/algeria-0-nigeria-2-osimhen-iwobi-afcon/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6959875/2026/01/10/canucks-vs-maple-leafs-stream-ho
 **How to watch Islanders vs. Wild: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6959871/2026/01/10/islanders-vs-wild-stream-how-to-watch-jan-10/
-
-**How to watch Panthers vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959869/2026/01/10/panthers-vs-senators-stream-how-to-watch-jan-10/
 
