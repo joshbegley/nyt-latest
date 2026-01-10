@@ -1,40 +1,40 @@
-**Inside Iran’s Protests: How a Plunging Currency Set Off Wide Unrest**\
-`In a serious challenge to Iran’s authoritarian government, angry protests have spread from the markets and universities of major cities to the impoverished towns in the hinterland.`\
-https://nytimes.com/2026/01/10/world/europe/iran-protests-economy-currency-collapse.html
+**Can Caleb Williams continue to change the script in Bears-Packers rivalry?**\
+`“I feel like he's just getting started, just with his talent, his natural-born ability,” Bears running back D’Andre Swift said.`\
+https://nytimes.com/athletic/6957927/2026/01/10/caleb-williams-change-script-bears-packers-rivalry/
 
-**Mandel's Final Thoughts: In 2026, Indiana (yes, Indiana!) is an untouchable juggernaut**\
-`If Indiana beats Miami to finish 16-0, it’s inevitable that it will get compared to great teams of the past.`\
-https://nytimes.com/athletic/6959067/2026/01/10/college-football-playoff-scores-result-indiana-miami/
+**NFL playoffs streaming guide: Rams-Panthers, Packers-Bears in Saturday wild-card games**\
+`The first round of the NFL playoffs commences Saturday, with an NFC doubleheader in Charlotte and Chicago.`\
+https://nytimes.com/athletic/6952647/2026/01/10/nfl-playoffs-packers-bears-rams-panthers-tv-streaming-guide/
 
-**Rob Manfred said MLB has 'discussed' an in-season tournament. Could it really work in baseball?**\
-`Commissioner Rob Manfred floated the idea of an in-season tournament similar to the NBA Cup. It offers possibilities, and brings challenges.`\
-https://nytimes.com/athletic/6958373/2026/01/10/mlb-in-season-tournament-rob-manfred/
+**How do you rank your favorite NHL arena? Take our survey now**\
+`How does your local NHL arena rate in several important categories?`\
+https://nytimes.com/athletic/6958369/2026/01/10/nhl-arena-survey-ranking-2026/
 
-**NFL wild-card storylines: Pressure on Josh Allen; can Aaron Rodgers snap Steelers' skid?**\
-`It’s truly a wide-open postseason featuring numerous contenders but no clear-cut, dominant force of a team.`\
-https://nytimes.com/athletic/6955939/2026/01/10/nfl-2025-playoffs-wild-card-storylines-josh-allen-aaron-rodgers/
+**Without Anthony Davis, Mavericks should have no problem being bad. That's a good thing**\
+`While Davis' injury threatens his trade value, it will be easier for Dallas to maximize the only first-round pick it controls until 2031.`\
+https://nytimes.com/athletic/6959049/2026/01/10/anthony-davis-injury-mavericks-draft-pick/
 
-**NFL postseason bandwagon guide: Which team should you be rooting for?**\
-`With the Super Bowl in Santa Clara, Calif., rooting for a 49ers team that could have easily been derailed by injuries could be fun.`\
-https://nytimes.com/athletic/6951409/2026/01/10/nfl-playoffs-bandwagon-guide-super-bowl/
+**As Blue Jackets continue to straggle, NHL-best Avs present a major challenge**\
+`The Blue Jackets will have to defend better than they have all season. "We have no choice but to bring our 'A' game," Charlie Coyle said.`\
+https://nytimes.com/athletic/6958817/2026/01/10/blue-jackets-avs-preview-challenge/
 
-**George Saunders Is No Saint (Despite What You May Have Heard)**\
-`The celebrated author on the challenges of being kind, the benefits of meditation and the reality check of death.`\
-https://nytimes.com/2026/01/10/magazine/george-saunders-interview.html
+**What went wrong for Jesperi Kotkaniemi with the Hurricanes, and what might be next?**\
+`Kotkaniemi ranked No. 10 on Chris Johnston's most recent NHL trade board this week.`\
+https://nytimes.com/athletic/6957945/2026/01/10/carolina-hurricanes-kotkaniemi-trade/
 
-**Golden Globes 2026: What to Expect on Sunday**\
-`Keep an eye on “One Battle After Another,” which is likely to dominate, and on the speeches. A particularly memorable one could be an Oscar lifeline.`\
-https://nytimes.com/2026/01/10/movies/golden-globes-what-to-expect.html
+**Flyers' Zegras shedding preconceived notions, with help from Konecny: 'Two peas in a pod'**\
+`The steady hand of his linemate has helped Zegras grow in Philadelphia this season.`\
+https://nytimes.com/athletic/6958221/2026/01/10/philadelphia-flyers-zegras-konecny/
 
-**Judge Denies Salt-N-Pepa’s Attempt to Obtain Master Recordings**\
-`A federal judge agreed with Universal Music Group that the hip-hop act never owned the copyrights to its earliest work.`\
-https://nytimes.com/2026/01/10/arts/music/salt-n-pepa-lawsuit-universal.html
+**Why a simple act from a team captain embodied what it means to be a leader**\
+`As his team headed for the locker room, Devils captain Nico Hischier requested to speak to the media. He had something to say.`\
+https://nytimes.com/athletic/6954292/2026/01/10/nico-hischier-new-jersey-devils-captain-leader/
 
-**Why Putin Went Quiet When Challenged by Trump Over Venezuela**\
-`For the Russian leader, courting President Trump to secure a favorable resolution in Ukraine, and possibly more, is far more important.`\
-https://nytimes.com/2026/01/10/world/europe/trump-putin-venezuela.html
+**Indiana is a walking paradox: A Cinderella story that plays like a bully**\
+`By now the Hoosiers are used to seeing opponents wrestle with the reality as it sets in that they can’t measure up.`\
+https://nytimes.com/athletic/6959292/2026/01/10/indiana-football-national-championship-game/
 
-**What Happens if Federal Agents and Local Officers Stop Getting Along?**\
-`Cooperation among law enforcement agencies is critical to many investigations, experts say. After a series of shootings by immigration agents, the relationship is showing cracks.`\
-https://nytimes.com/2026/01/10/us/federal-agents-law-enforcement-trump.html
+**Is the NFL coaching carousel done spinning? These playoff coaches are worth watching**\
+`For Matt LaFleur, Mike Tomlin and (to a lesser extend) Sean McDermott, there might be more at stake this weekend than a playoff win.`\
+https://nytimes.com/athletic/6957931/2026/01/10/nfl-playoffs-coaching-carousel-lafleur-tomlin-mcdermott/
 
