@@ -1,3 +1,11 @@
+**Paul Haggis Reaches $2 Million Settlement After 2022 Rape Verdict**\
+`A judge had ordered the Oscar-winning filmmaker to pay at least $7.5 million to a former film-industry publicist after a civil jury found him liable for raping her.`\
+https://nytimes.com/2026/01/10/movies/paul-haggis-rape-settlement.html
+
+**It’s All Greek**\
+`Dylan Schiff’s latest puzzle is hugely symbolic.`\
+https://nytimes.com/2026/01/10/crosswords/daily-puzzle-2026-01-11.html
+
 **Rangers forced to return to ice from locker room after goal review at intermission**\
 `The strange situation was the result of a goal that wasn’t initially awarded during play, but was later determined to have crossed the line.`\
 https://nytimes.com/athletic/6960330/2026/01/10/rangers-bruins-goal-review-intermission-return/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6948914/2026/01/10/charlton-chelsea-fa-cup-analysis
 `"It's all good. It's all good," coach Marco Sturm said. "So we have to watch him to see if he comes back tomorrow, game-time decision."
 `\
 https://nytimes.com/athletic/6960302/2026/01/10/bruins-morgan-geekie-rangers-exits-family-matter/
-
-**Philip Broberg signs 6-year, $48M contract extension with Blues**\
-`In 113 games with the Blues, Broberg has scored 10 goals and posted 43 points after signing an offer sheet during the summer of 2024.`\
-https://nytimes.com/athletic/6960287/2026/01/10/philip-broberg-blues-contract-extension/
-
-**Cam Newton returns, gets Panthers-Rams started by pounding the drum**\
-`The former Panthers great Cam Newton got things started at Bank of America Stadium on Saturday.`\
-https://nytimes.com/athletic/6959930/2026/01/10/cam-newton-panthers-rams-pounding-drum/
 
