@@ -1,3 +1,7 @@
+**Bruins’ Pavel Zacha, a first career hat trick and a trade-or-keep debate**\
+`The 28-year-old plays an all-around game and Boston will likely get some attention from rival GMs about his availability at the deadline.`\
+https://nytimes.com/athletic/6960370/2026/01/10/bruins-pavel-zacha-hat-trick-trade-deadline/
+
 **Bruins' Morgan Geekie exits mid-game against Rangers to attend to a family matter**\
 `"It's all good. It's all good," coach Marco Sturm said. "So we have to watch him to see if he comes back tomorrow, game-time decision."
 `\
