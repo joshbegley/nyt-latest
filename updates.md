@@ -1,3 +1,8 @@
+**Bruins' Morgan Geekie exits mid-game against Rangers to attend to a family matter**\
+`"It's all good. It's all good," coach Marco Sturm said. "So we have to watch him to see if he comes back tomorrow, game-time decision."
+`\
+https://nytimes.com/athletic/6960302/2026/01/10/bruins-morgan-geekie-rangers-exits-family-matter/
+
 **Disinformation in Minneapolis Shooting Points at People That Were Not Involved**\
 `Within hours of an ICE officer shooting and killing a woman, social media users misidentified the agent who fired as Steve Grove.`\
 https://nytimes.com/2026/01/10/us/disinformation-minneapolis-shooting-ice.html

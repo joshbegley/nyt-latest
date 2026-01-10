@@ -1,3 +1,7 @@
+**Rangers forced to return to ice from locker room after goal review at intermission**\
+`The strange situation was the result of a goal that wasn’t initially awarded during play, but was later determined to have crossed the line.`\
+https://nytimes.com/athletic/6960330/2026/01/10/rangers-bruins-goal-review-intermission-return/
+
 **Disinformation in Minneapolis Shooting Points at People That Were Not Involved**\
 `Within hours of an ICE officer shooting and killing a woman, social media users misidentified the agent who fired as Steve Grove.`\
 https://nytimes.com/2026/01/10/us/disinformation-minneapolis-shooting-ice.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6960287/2026/01/10/philip-broberg-blues-contract-ex
 **Cam Newton returns, gets Panthers-Rams started by pounding the drum**\
 `The former Panthers great Cam Newton got things started at Bank of America Stadium on Saturday.`\
 https://nytimes.com/athletic/6959930/2026/01/10/cam-newton-panthers-rams-pounding-drum/
-
-**Mamdani Announces Plan to Expand Public Bathroom Access in New York**\
-`The city has over eight million residents and only around 1,000 public bathrooms. The new mayor said he was committed to creating more, though he did not say when they would be available.`\
-https://nytimes.com/2026/01/10/nyregion/mamdani-public-bathrooms-nyc.html
 
