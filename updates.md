@@ -1,3 +1,15 @@
+**'Chasing perfection': Jaxon Smith-Njigba's path from slot receiver to unanimous All-Pro**\
+`Smith-Njigba always expects more of himself than anyone else does: "Y'all don't really know what I'm really capable of, but I'mma show you."`\
+https://nytimes.com/athletic/6956131/2026/01/10/jsn-jaxon-smith-njigba-seahawks-all-pro/
+
+**Rockets’ 3-point shooting struggles continue as loss mars Kevin Durant's historic night**\
+`Shaky long-distance shooting lead to the Rockets surrendering a large fourth-quarter lead in a loss to the Trail Blazers.`\
+https://nytimes.com/athletic/6959353/2026/01/10/rockets-3-point-shooting-struggles-continue-as-loss-mars-kevin-durants-historic-night/
+
+**AP NFL All-Pro teams: Matthew Stafford, Bijan Robinson, Myles Garrett lead 2025 selections**\
+`Garrett, Rams WR Puka Nacua and Seahawks WR Jaxon Smith-Njigba were unanimous choices.`\
+https://nytimes.com/athletic/6958994/2026/01/10/ap-nfl-all-pro-team-2025/
+
 **How to watch Blue Jackets vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the Columbus Blue Jackets play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6959609/2026/01/10/blue-jackets-vs-avalanche-stream-how-to-watch-jan-10/

@@ -1,3 +1,7 @@
+**Falcons hiring Matt Ryan as new president of football**\
+`The legendary QB is expected to oversee the hiring of Atlanta's new coach and GM after Raheem Morris and Terry Fontenot were fired.`\
+https://nytimes.com/athletic/6942602/2026/01/10/matt-ryan-falcons-president-of-football/
+
 **'Chasing perfection': Jaxon Smith-Njigba's path from slot receiver to unanimous All-Pro**\
 `Smith-Njigba always expects more of himself than anyone else does: "Y'all don't really know what I'm really capable of, but I'mma show you."`\
 https://nytimes.com/athletic/6956131/2026/01/10/jsn-jaxon-smith-njigba-seahawks-all-pro/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6959526/2026/01/10/macclesfield-crystal-palace-fa-c
 **How to watch Stanford vs. Virginia men's basketball: Time, TV, streaming**\
 `Find out how to watch the Stanford Cardinal play the Virginia Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6959589/2026/01/10/stanford-vs-virginia-stream-how-to-watch-jan-10/
-
-**How to watch Arizona vs. TCU men's basketball: Time, TV, streaming**\
-`Find out how to watch the Arizona Wildcats play the TCU Horned Frogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6959584/2026/01/10/arizona-vs-tcu-stream-how-to-watch-jan-10/
 
