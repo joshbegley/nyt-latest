@@ -1,3 +1,7 @@
+**‘You can't expect to get in the side when you're delivering that’ - Forest's £170m signings get Wrexham reality check**\
+`A clutch of players were given the chance to impress — and few did. It was a match that underlined one of the main themes of Forest’s season`\
+https://nytimes.com/athletic/6958926/2026/01/10/nottingham-forest-wrexham-fa-cup-penalty-shootout-analysis/
+
 **USWNT defender Nighswonger joins Aston Villa on loan from Arsenal**\
 `The deal for Nighswonger, 25, includes an option to make the move permanent.`\
 https://nytimes.com/athletic/6959385/2026/01/10/jenna-nighswonger-aston-villa-arsenal-loan-transfer/
