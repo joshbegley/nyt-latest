@@ -1,3 +1,7 @@
+**Isabeau Levito is on the cusp of making the 2026 Olympics, and she did it her way**\
+`Levito finished third Friday at U.S. Figure Skating Championships, likely sealing her Olympic spot alongside Alysa Liu and Amber Glenn.`\
+https://nytimes.com/athletic/6959420/2026/01/10/isabeau-levito-olympics-figure-skating-us-championships/
+
 **Barcelona want to keep Rashford beyond Man Utd loan spell**\
 `Rashford, 28, joined Barcelona in July on a season-long loan and the deal includes a €30million buy option.`\
 https://nytimes.com/athletic/6959402/2026/01/10/marcus-rashford-barcelona-manchester-united-future/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/10/opinion/ice-shooting-minneapolis-equilibrium.html
 **Who is the biggest Olympic snub from each NHL team?**\
 `From 4 Nations fall-offs to potential reserves to emerging young stars who fell just short, many players are likely feeling snubbed.`\
 https://nytimes.com/athletic/6958384/2026/01/10/olympics-2026-hockey-biggest-snubs-nhl-team/
-
-**From ICE to Foreign Quagmires: Escalation Everywhere**\
-`The round table convenes to discuss the start to Trump’s 2026, from Greenland to Minnesota and Venezuela.`\
-https://nytimes.com/2026/01/10/opinion/trump-donroe-doctrine-ice-minneapolis-venezuela.html
 

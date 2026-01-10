@@ -1,3 +1,7 @@
+**Isabeau Levito is on the cusp of making the 2026 Olympics, and she did it her way**\
+`Levito finished third Friday at U.S. Figure Skating Championships, likely sealing her Olympic spot alongside Alysa Liu and Amber Glenn.`\
+https://nytimes.com/athletic/6959420/2026/01/10/isabeau-levito-olympics-figure-skating-us-championships/
+
 **Barcelona want to keep Rashford beyond Man Utd loan spell**\
 `Rashford, 28, joined Barcelona in July on a season-long loan and the deal includes a €30million buy option.`\
 https://nytimes.com/athletic/6959402/2026/01/10/marcus-rashford-barcelona-manchester-united-future/
