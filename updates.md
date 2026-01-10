@@ -1,3 +1,7 @@
+**Six People Are Fatally Shot in Mississippi, Sheriff Says**\
+`In social media post, the Clay County sheriff said that ‘multiple innocent lives were lost’ and that one person was in custody.`\
+https://nytimes.com/2026/01/10/us/shooting-west-point-mississippi.html
+
 **Timothy Busfield, Actor and Director, Is Accused of Child Sex Abuse**\
 `The Emmy Award-winning actor is accused of abusing two child actors while working on a television series. An arrest warrant was issued in New Mexico.`\
 https://nytimes.com/2026/01/10/arts/television/timothy-busfield-child-sex-abuse.html
