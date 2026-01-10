@@ -1,3 +1,11 @@
+**Kevin Durant passes Wilt Chamberlain, moves into seventh place on NBA scoring list**\
+`Much like Chamberlain, Durant has been viewed as one of the most unstoppable scoring machines the NBA has ever seen.`\
+https://nytimes.com/athletic/6957149/2026/01/09/kevin-durant-seventh-nba-all-time-scoring-wilt-chamberlain/
+
+**WNBA, players union fail to reach CBA deal at deadline**\
+`The WNBA and players union will enter into a status quo period. `\
+https://nytimes.com/athletic/6959018/2026/01/09/wnba-labor-union-deadline-expire/
+
 **WNBA, players union fail to reach CBA agreement at deadline**\
 `The WNBA and players union will enter into a status quo period. `\
 https://nytimes.com/athletic/6959018/2026/01/09/wnba-and-players-union-fail-to-reach-cba-agreement-at-deadline/

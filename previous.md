@@ -1,6 +1,10 @@
-**WNBA, players union fail to reach CBA agreement at deadline**\
+**Kevin Durant passes Wilt Chamberlain, moves into seventh place on NBA scoring list**\
+`Much like Chamberlain, Durant has been viewed as one of the most unstoppable scoring machines the NBA has ever seen.`\
+https://nytimes.com/athletic/6957149/2026/01/09/kevin-durant-seventh-nba-all-time-scoring-wilt-chamberlain/
+
+**WNBA, players union fail to reach CBA deal at deadline**\
 `The WNBA and players union will enter into a status quo period. `\
-https://nytimes.com/athletic/6959018/2026/01/09/wnba-and-players-union-fail-to-reach-cba-agreement-at-deadline/
+https://nytimes.com/athletic/6959018/2026/01/09/wnba-labor-union-deadline-expire/
 
 **Judge Bars Trump From Withholding Election Funds to States**\
 `The ruling is the latest legal setback to President Trump’s sweeping effort to compel changes to state election standards.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6958977/2026/01/09/alisa-efimova-misha-mitrofanov-c
 **Steve Kerr on government response to ICE shooting in Minneapolis: 'Shameful'**\
 `Kerr is a passionate supporter of gun control and has been a critic of President Donald Trump in the past. `\
 https://nytimes.com/athletic/6958942/2026/01/09/steve-kerr-responds-minneapolis-ice-shooting/
-
-**Visa issues derail Ethiopian teams' world cross-country championship hopes: Reports**\
-`A representative of Ethiopia's federation said no explanation was given for the U.S. rejecting several athletes' visa applications.`\
-https://nytimes.com/athletic/6958990/2026/01/09/cross-country-championships-ethiopia-visa-issues/
 
