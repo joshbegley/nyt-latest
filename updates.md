@@ -1,3 +1,7 @@
+**America Doesn’t Need ICE**\
+`The shooting in Minneapolis is just the latest sign.`\
+https://nytimes.com/2026/01/10/opinion/immigration-ice-violence-minnesota.html
+
 **Machado Offered Trump Her Nobel, but Prize Institute Says It’s Not Allowed**\
 `After María Corina Machado, Venezuela’s opposition leader, offered her Nobel Peace Prize to President Trump, the Norwegian Nobel Institute said it cannot be “transferred to others.”`\
 https://nytimes.com/2026/01/10/world/americas/trump-nobel-peace-prize-maria-machado.html
