@@ -2,7 +2,7 @@
 `The strange situation was the result of a goal that wasn’t initially awarded during play, but was later determined to have crossed the line.`\
 https://nytimes.com/athletic/6960330/2026/01/10/rangers-bruins-goal-review-intermission-return/
 
-**Disinformation in Minneapolis Shooting Points at People That Were Not Involved**\
+**Disinformation in Minneapolis Shooting Points at People Who Were Not Involved**\
 `Within hours of an ICE officer shooting and killing a woman, social media users misidentified the agent who fired as Steve Grove.`\
 https://nytimes.com/2026/01/10/us/disinformation-minneapolis-shooting-ice.html
 

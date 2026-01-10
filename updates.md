@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6960302/2026/01/10/bruins-morgan-geekie-rangers-exi
 `\
 https://nytimes.com/athletic/6960302/2026/01/10/bruins-morgan-geekie-rangers-exits-family-matter/
 
+**Bruins' Morgan Geekie exits mid-game against Rangers to attend to a family matter**\
+`"It's all good. It's all good," coach Marco Sturm said. "So we have to watch him to see if he comes back tomorrow, game-time decision."
+`\
+https://nytimes.com/athletic/6960302/2026/01/10/bruins-morgan-geekie-rangers-exits-family-matter/
+
 **Rangers forced to return to ice from locker room after goal review at intermission**\
 `The strange situation was the result of a goal that wasn’t initially awarded during play, but was later determined to have crossed the line.`\
 https://nytimes.com/athletic/6960330/2026/01/10/rangers-bruins-goal-review-intermission-return/
