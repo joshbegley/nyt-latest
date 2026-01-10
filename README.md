@@ -1,8 +1,12 @@
+**Dr. Oz Visits California to Target Fraud**\
+`Dr. Mehmet Oz, the head of the Centers for Medicare and Medicaid, and Bill Essayli, a Los Angeles-based prosecutor, said they were investigating federally funded services.`\
+https://nytimes.com/2026/01/09/us/politics/dr-oz-visits-california-to-target-fraud.html
+
 **NBA referee Bill Kennedy, known for viral challenge verdicts, leaves game in wheelchair**\
 `The longtime NBA official appeared to suffer a non-contact leg injury early in a game between the Magic and 76ers.`\
 https://nytimes.com/athletic/6958833/2026/01/09/bill-kennedy-nba-referee-injury-leaves-76ers-magic-game/
 
-**After committing to Baylor, QB DJ Lagway may still take other visits: Sources**\
+**After committing to Baylor, QB DJ Lagway might still take other visits: Sources**\
 `Lagway has not signed his scholarship paperwork nor his revenue-sharing agreement with Baylor. Others, including Ole Miss, have interest.`\
 https://nytimes.com/athletic/6958835/2026/01/09/dj-lagway-transfer-portal-news-baylor-ole-miss/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6958765/2026/01/09/commanders-promote-david-blough-
 **Broncos' Sean Payton: Staff has done 'great job' with balancing interviews, playoff prep**\
 `Broncos defensive coordinator Vance Joseph was scheduled for five head coaching interviews this week. Three other assistants drew interest.`\
 https://nytimes.com/athletic/6958039/2026/01/09/broncos-sean-payton-coaching-interviews/
-
-**Iran Convulsed in Second Night of Nationwide Protests**\
-`Large marches against the government occurred despite an internet blackout and threats of a severe crackdown.`\
-https://nytimes.com/2026/01/09/world/middleeast/iran-protests.html
 
