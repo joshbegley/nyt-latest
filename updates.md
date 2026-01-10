@@ -1,3 +1,8 @@
+**Senators players denounce Linus Ullmark speculation: 'It's extremely disappointing'**\
+`"It's embarrassing that it got to the point that it did," Ottawa captain Brady Tkachuk said. "I'm not happy about it one bit."
+`\
+https://nytimes.com/athletic/6959752/2026/01/10/senators-linus-ullmark-nhl-brady-tkachuk/
+
 **The Briefing: Algeria 0 Nigeria 2 — Osimhen's leap, Iwobi's pass and a statement Super Eagles display**\
 `Could Nigeria be the new AFCON favourites after making light work of Algeria?`\
 https://nytimes.com/athletic/6949014/2026/01/10/algeria-0-nigeria-2-osimhen-iwobi-afcon/
