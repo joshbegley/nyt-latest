@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Jan. 10, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/10/todays-new-york-times
+
 **The Ashes in numbers: From Australia's heroes to England's drought and two-day Tests**\
 `Who is now the second-highest run-scorer in the Ashes? And how many players aged 35 or over have taken 30 wickets in a series? Answers below`\
 https://nytimes.com/athletic/6937410/2026/01/10/ashes-australia-england-stats-numbers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6947692/2026/01/10/antoine-semenyo-manchester-city-
 **Doc Rivers: ICE shooting in Minneapolis 'straight-up murder'**\
 `Rivers, one of the NBA's most outspoken coaches, has previously spoken out about ICE activity in his hometown of Chicago.`\
 https://nytimes.com/athletic/6959148/2026/01/10/doc-rivers-minneapolis-ice-shooting-murder/
-
-**Thunder complete another significant comeback against Grizzlies, this time without their stars**\
-`Could this comeback, the Thunder's third of at least 19 points in Memphis since April, wake up the NBA champions from their recent slide?`\
-https://nytimes.com/athletic/6959138/2026/01/10/okc-thunder-comeback-against-grizzlies-without-stars/
 
