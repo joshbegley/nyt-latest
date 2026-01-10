@@ -1,3 +1,7 @@
+**Dominant medal streak for Ethiopia cross-country teams to end over visa issues**\
+`A representative of Ethiopia's federation said no explanation was given for the U.S. rejecting several athletes' visa applications.`\
+https://nytimes.com/athletic/6958990/2026/01/09/cross-country-championships-ethiopia-visa-issues/
+
 **After President’s Capture, U.S. and Venezuela Explore Restoring Diplomatic Ties**\
 `In moves that embodied the contradictions and fast-changing nature of the two countries’ relationship, both said on Friday that they were eyeing reopening embassies and restoring long-severed diplomatic ties.`\
 https://nytimes.com/2026/01/09/world/americas/venezuela-us-diplomacy-softening.html
