@@ -1,3 +1,11 @@
+**Thunder complete another significant comeback against Grizzlies, this time without their stars**\
+`Could this comeback, the Thunder's third of at least 19 points in Memphis since last April, wake up the NBA champions from its recent slide?`\
+https://nytimes.com/athletic/6959138/2026/01/10/okc-thunder-comeback-against-grizzlies-without-stars/
+
+**Rosenior, Chelsea and the benefits and risks of hiring within a multi-club model**\
+`Rosenior has joined from their French sister club Strasbourg. How will that impact his time at Stamford Bridge?`\
+https://nytimes.com/athletic/6957165/2026/01/10/liam-rosenior-chelsea-multi-club-model/
+
 **No Amazon, No Gmail: Trump Sanctions Upend the Lives of I.C.C. Judges**\
 `President Trump’s retaliation against top officials at the International Criminal Court has shut them out of American services and made even routine daily tasks a challenge.`\
 https://nytimes.com/2026/01/10/world/europe/icc-judges-us-sanctions-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6957149/2026/01/09/kevin-durant-seventh-nba-all-tim
 **WNBA, players union fail to reach CBA deal at deadline**\
 `The WNBA and players union will enter into a status quo period. `\
 https://nytimes.com/athletic/6959018/2026/01/09/wnba-labor-union-deadline-expire/
-
-**Judge Bars Trump From Withholding Election Funds to States**\
-`The ruling is the latest legal setback to President Trump’s sweeping effort to compel changes to state election standards.`\
-https://nytimes.com/2026/01/09/us/politics/trump-court-ruling-elections.html
-
-**CFP championship first look: Can Indiana win a shocking title? Will Miami return to No. 1?**\
-`Indiana and Miami will meet in an unlikely College Football Playoff national title game on Jan. 19. Here's what you need to know.`\
-https://nytimes.com/athletic/6958901/2026/01/09/indiana-miami-college-football-playoff-national-championship-game/
 
