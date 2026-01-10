@@ -1,3 +1,7 @@
+**How to watch Hornets vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6960192/2026/01/10/hornets-vs-jazz-stream-how-to-watch-jan-10/
+
 **How to watch Kings vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6960188/2026/01/10/kings-vs-oilers-stream-how-to-watch-jan-10/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6958682/2026/01/10/ja-morant-trade-landing-spots-he
 **Newcastle's Livramento out with suspected hamstring problem, Howe says**\
 `The head coach said he thinks Jacob Murphy will be "OK" for Tuesday's match against Manchester City after being out of Saturday's squad.`\
 https://nytimes.com/athletic/6959996/2026/01/10/newcastle-livramento-murphy-injury-update/
-
-**Ticket prices soar for Miami-Indiana national championship game**\
-`The College Football Playoff title game will be played in the Hurricanes' home stadium, with Miami native Fernando Mendoza leading Indiana`\
-https://nytimes.com/athletic/6959956/2026/01/10/miami-indiana-ticket-prices-college-football-playoff/
 
