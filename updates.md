@@ -1,3 +1,7 @@
+**Broncos' Sean Payton: Staff has done 'great job' with balancing interviews, playoff prep**\
+`Broncos defensive coordinator Vance Joseph was scheduled for five head coaching interviews this week. Three other assistants drew interest.`\
+https://nytimes.com/athletic/6958039/2026/01/09/broncos-sean-payton-coaching-interviews/
+
 **Iran Convulsed in Second Night of Nationwide Protests**\
 `Large marches against the government occurred despite an internet blackout and threats of a severe crackdown.`\
 https://nytimes.com/2026/01/09/world/middleeast/iran-protests.html

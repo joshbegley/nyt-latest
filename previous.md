@@ -1,3 +1,7 @@
+**Broncos' Sean Payton: Staff has done 'great job' with balancing interviews, playoff prep**\
+`Broncos defensive coordinator Vance Joseph was scheduled for five head coaching interviews this week. Three other assistants drew interest.`\
+https://nytimes.com/athletic/6958039/2026/01/09/broncos-sean-payton-coaching-interviews/
+
 **Iran Convulsed in Second Night of Nationwide Protests**\
 `Large marches against the government occurred despite an internet blackout and threats of a severe crackdown.`\
 https://nytimes.com/2026/01/09/world/middleeast/iran-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/09/us/politics/gavin-newsom-california-democrats.htm
 **49ers' Trent Williams 'confident' he'll play vs. Eagles; Ricky Pearsall questionable**\
 `Williams was limited at practice Thursday and Friday, while Pearsall did not practice all week.`\
 https://nytimes.com/athletic/6958364/2026/01/09/49ers-eagles-trent-williams-ricky-pearsall/
-
-**Trump Threatens to Take Greenland ‘the Hard Way’**\
-`The president continued to advance an imperialist vision of American foreign policy, where the U.S. can dominate neighboring countries “whether they like it or not.”`\
-https://nytimes.com/2026/01/09/world/americas/trump-greenland-annex.html
 
