@@ -2,7 +2,7 @@
 `The move was part of a broader effort to to freeze social services to some Democratic-led states amid a fraud investigation in Minnesota.`\
 https://nytimes.com/2026/01/09/us/politics/trump-minnesota-food-stamps-usda.html
 
-**Dr. Oz Visits California to Target Fraud**\
+**Dr. Oz Visits California to Target ‘Fraud’**\
 `Dr. Mehmet Oz, the head of the Centers for Medicare and Medicaid, and Bill Essayli, a Los Angeles-based prosecutor, said they were investigating federally funded services.`\
 https://nytimes.com/2026/01/09/us/politics/dr-oz-visits-california-to-target-fraud.html
 
