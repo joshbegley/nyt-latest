@@ -1,3 +1,11 @@
+**Trump Administration Freezes Food Stamps in Minnesota**\
+`The move was part of a broader effort to to freeze social services to some Democratic-led states amid a fraud investigation in Minnesota.`\
+https://nytimes.com/2026/01/09/us/politics/trump-minnesota-food-stamps-usda.html
+
+**Commanders promoting David Blough to offensive coordinator: Source**\
+`The ex-assistant quarterbacks coach replaces Kliff Kingsbury, whom the team parted ways with just three days earlier.`\
+https://nytimes.com/athletic/6958765/2026/01/09/commanders-promote-david-blough-offensive-coordinator/
+
 **NBA referee Bill Kennedy, known for viral challenge verdicts, leaves game in wheelchair**\
 `The longtime NBA official appeared to suffer a non-contact right leg injury early in a game between the Magic and 76ers.`\
 https://nytimes.com/athletic/6958833/2026/01/09/bill-kennedy-nba-referee-injury-leaves-76ers-magic-game/

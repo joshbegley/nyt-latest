@@ -1,3 +1,7 @@
+**Trump Administration Freezes Food Stamps in Minnesota**\
+`The move was part of a broader effort to to freeze social services to some Democratic-led states amid a fraud investigation in Minnesota.`\
+https://nytimes.com/2026/01/09/us/politics/trump-minnesota-food-stamps-usda.html
+
 **Dr. Oz Visits California to Target Fraud**\
 `Dr. Mehmet Oz, the head of the Centers for Medicare and Medicaid, and Bill Essayli, a Los Angeles-based prosecutor, said they were investigating federally funded services.`\
 https://nytimes.com/2026/01/09/us/politics/dr-oz-visits-california-to-target-fraud.html
@@ -31,10 +35,6 @@ https://nytimes.com/athletic/6958678/2026/01/09/trae-young-introduction-washingt
 https://nytimes.com/video/the-athletic/100000010635547/why-nhl-players-are-finally-dressing-down.html
 
 **Commanders promoting David Blough to offensive coordinator: Source**\
-`The ex-assistant quarterbacks coach replaces Kliff Kingsbury, who the team parted ways with just three days earlier.`\
+`The ex-assistant quarterbacks coach replaces Kliff Kingsbury, whom the team parted ways with just three days earlier.`\
 https://nytimes.com/athletic/6958765/2026/01/09/commanders-promote-david-blough-offensive-coordinator/
-
-**WATCH: Why the Broncos have all the makings of a Super Bowl-caliber defense**\
-`The AFC playoff field is wide open and the Broncos have the pieces on defense to be the last team standing. Watch how here.`\
-https://nytimes.com/athletic/6958868/2026/01/09/video-analysis-broncos-defense-talanoa-hufanga/
 
