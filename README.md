@@ -1,8 +1,12 @@
+**Braves, reliever Tyler Kinley agree to deal as Atlanta keeps bolstering its bullpen**\
+`Kinley allowed just two earned runs in 25 innings for a 0.72 ERA for the Braves last season after they acquired him at the trade deadline.`\
+https://nytimes.com/athletic/6959251/2026/01/10/tyler-kinley-contract-atlanta-braves/
+
 **Stewart Cheifet, Host of TV’s ‘Computer Chronicles,’ Dies at 87**\
 `He spent two decades hosting the PBS series, during the formative years of personal computing. It was seen in more than 300 cities at its peak.`\
 https://nytimes.com/2026/01/10/technology/stewart-cheifet-dead.html
 
-**Wisconsin stuns No. 2 Michigan, ends Wolverines' unbeaten start in 3-point barrage**\
+**Wisconsin stuns No. 2 Michigan, ends Wolverines' unbeaten start with 3-point barrage**\
 `The Badgers knocked down 15 3-pointers on the way to their first win over a top-two ranked team since beating Michigan in 2019,`\
 https://nytimes.com/athletic/6960190/2026/01/10/wisconsin-michigan-basketball-upset/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6948913/2026/01/10/tottenham-aston-villa-fa-cup-ana
 **Why Grizzlies put Ja Morant on the trade market and which teams could be interested**\
 `Morant is now at the center of the NBA trade market solar system, and he might be leaving Memphis sooner than later.`\
 https://nytimes.com/athletic/6959490/2026/01/10/ja-morant-trade-market-grizzlies-clippers-timberwolves/
-
-**Nebraska’s 16-point second-half comeback at Indiana keeps perfect season alive**\
-`The Huskers offense exploded for 56% shooting in the second half to stay perfect at 16-0. `\
-https://nytimes.com/athletic/6959968/2026/01/10/nebraska-indiana-college-basketball-perfect-season/
 
