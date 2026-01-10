@@ -1,3 +1,7 @@
+**Brahim Diaz: A substitute for Real Madrid, a superstar for Morocco**\
+`Brahim has led Morocco to the AFCON semi-finals and can be the best player in the world, according to his manager`\
+https://nytimes.com/athletic/6958871/2026/01/10/brahim-diaz-afcon-morocco/
+
 **‘You cannot expect to get in the side when you are delivering that’ - Forest new guard get Wrexham reality check**\
 `A clutch of players were given the chance to impress — and few did. It was a match that underlined one of the main themes of Forest’s season`\
 https://nytimes.com/athletic/6958926/2026/01/10/nottingham-forest-wrexham-fa-cup-penalty-shootout-analysis/
