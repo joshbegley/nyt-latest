@@ -1,3 +1,7 @@
+**Youngkin Says Vance Would Be a ‘Great’ Republican Nominee in 2028**\
+`But the departing Virginia governor sidestepped questions about whether he himself planned to run for president in three years.`\
+https://nytimes.com/2026/01/11/us/politics/glenn-youngkin-jd-vance-2028-president.html
+
 **‘Hundreds More’ Federal Agents to Be Deployed to Minneapolis, Noem Says**\
 `The announcement by the homeland security secretary came days after an immigration officer shot and killed a woman, Renee Good, in the city.`\
 https://nytimes.com/2026/01/11/us/politics/federal-agents-minnesota-ice-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/11/us/politics/trump-venezuela-oil-cuba.html
 **Guantánamo Prison Enters 25th Year**\
 `The prison has outlasted the war in Afghanistan, has employed tens of thousands of temporary troops and holds six men charged but not yet tried in death penalty cases.`\
 https://nytimes.com/2026/01/11/us/politics/guantanamo-prison-25th-anniversary.html
-
-**Falcons' new president of football Matt Ryan bullish as he bids farewell to CBS**\
-`Ryan hopes to lead the Falcons back to the playoffs. “You want to be in the mix," he said. "It’s been too long there."`\
-https://nytimes.com/athletic/6961549/2026/01/11/matt-ryan-falcons-president-football-playoffs-cbs/
 

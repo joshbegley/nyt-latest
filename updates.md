@@ -1,3 +1,7 @@
+**Youngkin Says Vance Would Be a ‘Great’ Republican Nominee in 2028**\
+`But the departing Virginia governor sidestepped questions about whether he himself planned to run for president in three years.`\
+https://nytimes.com/2026/01/11/us/politics/glenn-youngkin-jd-vance-2028-president.html
+
 **‘Hundreds More’ Federal Agents to Be Deployed to Minneapolis, Noem Says**\
 `The announcement by the homeland security secretary came days after an immigration officer shot and killed a woman, Renee Good, in the city.`\
 https://nytimes.com/2026/01/11/us/politics/federal-agents-minnesota-ice-shooting.html
