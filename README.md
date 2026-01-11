@@ -1,3 +1,7 @@
+**Trump Regrets Not Seizing Voting Machines After 2020 Election**\
+`In an interview, the president said he should have ordered the National Guard to take the machines to find evidence of fraud, but added that the Guard might not have had the sophistication to do so.`\
+https://nytimes.com/2026/01/11/us/trump-voting-machines-2020-election.html
+
 **Mite hockey brawl at AHL game facing multiple investigations**\
 `The Atlantic Amateur Hockey Association is looking into what it called a “staged fight.”`\
 https://nytimes.com/athletic/6961730/2026/01/11/mite-hockey-brawl-ahl-investigation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6961764/2026/01/11/golden-knights-vs-sharks-stream-
 **Youngkin Says Vance Would Be a ‘Great’ Republican Nominee in 2028**\
 `But the departing Virginia governor sidestepped questions about whether he himself planned to run for president in three years.`\
 https://nytimes.com/2026/01/11/us/politics/glenn-youngkin-jd-vance-2028-president.html
-
-**‘Hundreds More’ Federal Agents to Be Deployed to Minneapolis, Noem Says**\
-`The announcement by the homeland security secretary came days after an immigration officer shot and killed a woman, Renee Good, in the city.`\
-https://nytimes.com/2026/01/11/us/politics/federal-agents-minnesota-ice-shooting.html
 
