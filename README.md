@@ -1,3 +1,7 @@
+**Can a shutout loss be a moral victory? For Blue Jackets against Avalanche, maybe**\
+`Columbus was somewhat satisfied with how it played in a 4-0 shutout loss to Colorado on Saturday.`\
+https://nytimes.com/athletic/6960502/2026/01/10/blue-jackets-avalanche-shutout-loss/
+
 **Dennis Schröder gets 3-game suspension for going after Luka Dončić: Sources**\
 `Multiple videos captured Schröder and Dončić going at each other during the game on Dec. 28.`\
 https://nytimes.com/athletic/6960622/2026/01/10/kings-dennis-shroder-suspended-3-games-nba/
@@ -34,8 +38,4 @@ https://nytimes.com/2026/01/10/world/americas/venezuela-oil-tanker-us.html
 **Matthew Stafford leads late TD drive as Rams beat Panthers, advance to NFC divisional round**\
 `Stafford's TD pass to Colby Parkinson with 38 seconds left gets the Rams to the NFC divisional round for the second straight season.`\
 https://nytimes.com/athletic/6960315/2026/01/10/rams-panthers-score-result-takeaways-nfl-wild-card/
-
-**Who Was Renee Good, the Woman Killed by an ICE Agent in Minneapolis?**\
-`Ms. Good, 37, was a poet and a mother who grew up in Colorado. Her wife said the couple had “stopped to support our neighbors” when Ms. Good was shot.`\
-https://nytimes.com/2026/01/10/us/rennee-good-ice-shooting-minnesota.html
 
