@@ -1,3 +1,7 @@
+**How far can belief (and cheese graters) take Chicago? The Bears are gonna find out**\
+`Chicago has wanted a Bears team like this for a very long time. And now they have it.`\
+https://nytimes.com/athletic/6961011/2026/01/11/bears-packers-playoff-recap-caleb-williams-comeback/
+
 **Caleb Williams powers 'legacy' win in Bears' playoff comeback over Packers**\
 `Down 21-3 at halftime, Williams led the Bears to 25 fourth-quarter points including another late, clutch game-winning TD.`\
 https://nytimes.com/athletic/6961046/2026/01/11/bears-caleb-williams-playoff-comeback-legacy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6961021/2026/01/11/packers-matt-lafleur-playoffs-be
 **I’m in Denmark’s Parliament. Mr. President, We’re Already on Your Side.**\
 `Security cooperation should be discussed openly and seriously. Territorial claims between allies should not.`\
 https://nytimes.com/2026/01/11/opinion/greenland-denmark-trump-nato.html
-
-**Trump and Vance Are Fanning the Flames. Again.**\
-`Renee Good was not a “domestic terrorist.”`\
-https://nytimes.com/2026/01/11/opinion/renee-good-trump-ice-minneapolis.html
 
