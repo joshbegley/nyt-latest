@@ -1,3 +1,7 @@
+**The Cubs have long been fascinated with Alex Bregman. They finally signed him**\
+`Given another chance, the Cubs did not wait around until spring training or mess around with a team-friendly offer. `\
+https://nytimes.com/athletic/6960991/2026/01/11/chicago-cubs-alex-bregman-pursuit-complete/
+
 **What next for Strand Larsen after he delivers a reminder of why he is a wanted man?**\
 `The Norway forward has struggled for form and goals this season, and may yet leave the club during this transfer window`\
 https://nytimes.com/athletic/6959774/2026/01/11/jorgen-strand-larsen-what-next/
