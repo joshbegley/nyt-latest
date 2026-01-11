@@ -1,3 +1,7 @@
+**Liverpool's Bradley needs surgery on season-ending knee injury**\
+`The 22-year-old will not play again for Liverpool this season but has yet to be ruled out of the World Cup if Northern Ireland qualify.`\
+https://nytimes.com/athletic/6961174/2026/01/11/conor-bradley-liverpool-surgery-knee/
+
 **Luke Kornet's Boston homecoming shows why he's beloved by his teams, new and old**\
 `Luke Kornet received a warm welcome in his return back to Boston, as his teammates new and old reflected on their love for him.`\
 https://nytimes.com/athletic/6960944/2026/01/11/celtics-luke-kornets-boston-homecoming/
