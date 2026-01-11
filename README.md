@@ -1,3 +1,7 @@
+**Who Was Renee Good, the Woman Killed by an ICE Agent in Minneapolis?**\
+`Ms. Good, 37, was a poet and a mother who grew up in Colorado. Her wife said the couple had “stopped to support our neighbors” when Ms. Good was shot.`\
+https://nytimes.com/2026/01/10/us/rennee-good-ice-shooting-minnesota.html
+
 **Trump Is Briefed on Options for Striking Iran as Protests Continue**\
 `The president has said he will be “hitting them very hard” if Iranian leaders kill protesters amid widespread demonstrations calling for wholesale changes in the country.`\
 https://nytimes.com/2026/01/10/us/politics/trump-iran-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6960330/2026/01/10/rangers-bruins-goal-review-inter
 **Disinformation in Minneapolis Shooting Points at People Who Were Not Involved**\
 `Within hours of an ICE officer shooting and killing a woman, social media users misidentified the agent who fired as Steve Grove.`\
 https://nytimes.com/2026/01/10/us/disinformation-minneapolis-shooting-ice.html
-
-**USMNT forward Pepi ruled out for two months with fractured forearm**\
-`The 23-year-old fell awkwardly after scoring PSV Eindhoven's second goal and the club confirmed he will undergo surgery on Sunday.`\
-https://nytimes.com/athletic/6960169/2026/01/10/ricardo-pepi-usmnt-arm-surgery-injury/
 
