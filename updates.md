@@ -1,3 +1,11 @@
+**How to watch Illinois vs. Iowa men's basketball: Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961129/2026/01/11/illinois-vs-iowa-stream-how-to-watch-jan-11/
+
+**How to watch North Carolina vs. Notre Dame women's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961127/2026/01/11/north-carolina-vs-notre-dame-stream-how-to-watch-jan-11/
+
 **Somalis Fled Civil War and Built a Community. Now They Are a Target.**\
 `A fraud scandal has made the Somali community in Minnesota a focus of the Trump administration’s crackdown on immigrants.`\
 https://nytimes.com/2026/01/11/us/somalis-fled-civil-war-and-built-a-community-now-they-are-a-target.html
