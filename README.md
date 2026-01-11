@@ -1,3 +1,7 @@
+**Deposed Shah’s Son Hopes Trump Will Put Iran Regime ‘Down for Good’**\
+`Reza Pahlavi, once the crown prince of Iran, says protesters there have been emboldened by President Trump suggesting that he could take military action.`\
+https://nytimes.com/2026/01/11/world/europe/iran-protests-shah-son-trump.html
+
 **Trump Says Civil Rights Led to White People Being ‘Very Badly Treated’**\
 `President Trump’s comments were a blunt distillation of his administration’s racial politics, which rest on the belief that white people have become the real victims of discrimination in America.`\
 https://nytimes.com/2026/01/11/us/politics/trump-interview-white-people-discrimination.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6961681/2026/01/11/bills-jaguars-score-result-takea
 **Notre Dame defends Marcus Freeman after battery accusation emerges**\
 `Freeman has been accused of battery stemming from an alleged altercation that occurred during a high school wrestling tournament.`\
 https://nytimes.com/athletic/6961846/2026/01/11/notre-dame-marcus-freeman-battery-accusation/
-
-**Mass Protests in Iran and Trump’s Threats**\
-`A question now hangs over the country: Is Iran the next target of an emboldened U.S. president?`\
-https://nytimes.com/2026/01/11/world/mass-protests-iran-trump-venezuela.html
 

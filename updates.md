@@ -1,3 +1,7 @@
+**Trump Says Civil Rights Led to White People Being ‘Very Badly Treated’**\
+`President Trump’s comments were a blunt distillation of his administration’s racial politics, which rest on the belief that white people have become the real victims of discrimination in America.`\
+https://nytimes.com/2026/01/11/us/politics/trump-interview-white-people-discrimination.html
+
 **Famed Nigerian Author Blames Death of Toddler Son on Negligent Care**\
 `Chimamanda Ngozi Adichie is accusing a private hospital in Lagos of administering an overdose of a sedative, prompting an outpouring of complaints by Nigerians about their health care system.`\
 https://nytimes.com/2026/01/11/world/africa/nigeria-adichie-son-death-blame.html
