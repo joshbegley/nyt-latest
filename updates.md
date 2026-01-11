@@ -1,3 +1,7 @@
+**Madison Chock, Evan Bates win seventh U.S. ice dance title, eye Olympic medal**\
+`Chock and Bates have won every ice dance accolade except one. They'll be a favorite to change that next month in Milan.`\
+https://nytimes.com/athletic/6960720/2026/01/10/madison-chock-evan-bates-ice-dance-us-championships-olympics/
+
 **In wild Rams-Panthers playoff, we get a glimpse at both teams’ futures**\
 `Matthew Stafford saved his best for last and the Rams advance after a difficult battle against Bryce Young and the Panthers.`\
 https://nytimes.com/athletic/6960737/2026/01/10/rams-panthers-playoffs-matthew-stafford-bryce-young/

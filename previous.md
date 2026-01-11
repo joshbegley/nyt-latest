@@ -1,3 +1,7 @@
+**Madison Chock, Evan Bates win seventh U.S. ice dance title, eye Olympic medal**\
+`Chock and Bates have won every ice dance accolade except one. They'll be a favorite to change that next month in Milan.`\
+https://nytimes.com/athletic/6960720/2026/01/10/madison-chock-evan-bates-ice-dance-us-championships-olympics/
+
 **In wild Rams-Panthers playoff, we get a glimpse at both teams’ futures**\
 `Matthew Stafford saved his best for last and the Rams advance after a difficult battle against Bryce Young and the Panthers.`\
 https://nytimes.com/athletic/6960737/2026/01/10/rams-panthers-playoffs-matthew-stafford-bryce-young/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6960622/2026/01/10/kings-dennis-shroder-suspended-3
 **Death Toll Grows as Nationwide Protests Rock Iran for a Third Night**\
 `Antigovernment unrest that began two weeks ago has intensified in recent days, as has violence.`\
 https://nytimes.com/2026/01/10/world/middleeast/iran-protests-death-toll.html
-
-**Bears' T.J. Edwards carted off, ruled out vs. Packers with left ankle injury**\
-`Edwards left the field with an air cast on his left leg, leaving a Bears defense without one of its top leaders in the wild-card game.`\
-https://nytimes.com/athletic/6960616/2026/01/10/tj-edwards-bears-leg-injury-packers-wild-card/
 
