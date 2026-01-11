@@ -1,3 +1,7 @@
+**Texas bolsters offense, lands coveted transfers Cam Coleman, Hollywood Smothers**\
+`The former five-star prospect was one of the only bright spots on an Auburn offense that struggled mightily in 2025.`\
+https://nytimes.com/athletic/6934476/2026/01/11/texas-cam-coleman-transfer-wide-receiver/
+
 **‘I Don’t Think We Like Them’: Trump Says MAGA Has No Room for Antisemites**\
 `After years in which President Trump has variously embraced and tolerated far-right figures and groups, the Republican Party is mired in a debate about how expansive its coalition should be.`\
 https://nytimes.com/2026/01/11/us/politics/trump-maga-republicans-antisemitism.html
