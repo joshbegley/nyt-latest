@@ -1,3 +1,7 @@
+**Pope Leo Confronts Trump on His Own Terms**\
+`The pontiff has increasingly asserted himself in the face of Trump’s aggressive words and deeds.`\
+https://nytimes.com/2026/01/11/opinion/pope-leo-trump-world-order-peace.html
+
 **Australia Wildfires Burn Nearly 900,000 Acres**\
 `Blazes in the state of Victoria have destroyed hundreds of structures, including homes, and killed one person, the authorities said.`\
 https://nytimes.com/2026/01/11/world/australia/australia-victoria-wildfires.html

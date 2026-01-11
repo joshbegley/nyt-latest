@@ -14,7 +14,7 @@ https://nytimes.com/interactive/2026/01/11/opinion/trump-new-world-order.html
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/11/todays-new-york-times
 
-**Trump’s Amoral World Meets Its Match in Pope Leo**\
+**Pope Leo Confronts Trump on His Own Terms**\
 `The pontiff has increasingly asserted himself in the face of Trump’s aggressive words and deeds.`\
 https://nytimes.com/2026/01/11/opinion/pope-leo-trump-world-order-peace.html
 
