@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6960578/2026/01/10/red-wings-james-van-riemsdyk-batman/
 
+**James van Riemsdyk arrives at Red Wings game dressed as Batman for son's birthday**\
+`The veteran, who is out of town for a huge divisional clash in Montreal, found a way to celebrate his son Liam's fourth birthday from afar.
+`\
+https://nytimes.com/athletic/6960578/2026/01/10/red-wings-james-van-riemsdyk-batman/
+
 **Rams Edge Panthers 34-31 in Wild-Card Thriller**\
 `Quarterback Matthew Stafford led a game-winning drive to lead the Los Angeles Rams back to the divisional round.`\
 https://nytimes.com/video/the-athletic/100000010637256/rams-edge-panthers-34-31-in-wild-card-thriller.html
