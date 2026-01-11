@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, Jan. 12, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/11/todays-new-york-times-international-edition
+
 **How to watch Illinois vs. Iowa men's basketball: Time, TV, streaming**\
 `Find out how to watch the Illinois Fighting Illini play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961129/2026/01/11/illinois-vs-iowa-stream-how-to-watch-jan-11/
