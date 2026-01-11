@@ -1,3 +1,7 @@
+**49ers' George Kittle carted off vs. Eagles, ruled out with Achilles injury**\
+`Kittle went down after catching a 6-yard pass in the second quarter of San Francisco's wild-card playoff game in Philadelphia.`\
+https://nytimes.com/athletic/6962084/2026/01/11/george-kittle-49ers-injury/
+
 **Where’s the best original score award? Not on the telecast.**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/golden-globes-best-score
