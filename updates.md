@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6960578/2026/01/10/red-wings-james-van-riemsdyk-batman/
 
+**James van Riemsdyk arrives at Red Wings game dressed as Batman for son's birthday**\
+`The veteran, who is out of town for a huge divisional clash in Montreal, found a way to celebrate his son Liam's fourth birthday from afar.
+`\
+https://nytimes.com/athletic/6960578/2026/01/10/red-wings-james-van-riemsdyk-batman/
+
 **Can a shutout loss be a moral victory? For Blue Jackets against Avalanche, maybe**\
 `Columbus was somewhat satisfied with how it played in a 4-0 shutout loss to Colorado on Saturday.`\
 https://nytimes.com/athletic/6960502/2026/01/10/blue-jackets-avalanche-shutout-loss/
