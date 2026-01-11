@@ -1,3 +1,23 @@
+**Prosecutors’ Vivid Accusations Against Maduro Belie a Complex Case**\
+`The government will have to navigate difficult legal issues and use testimony about incidents clouded by time. But conspiracy laws are powerful tools for prosecutors.`\
+https://nytimes.com/2026/01/11/nyregion/maduro-new-york-legal-case.html
+
+**How a Stunt-Loving Jeweler Made a Diamond District Beef Go Viral**\
+`Maksud Agadjani wound up hospitalized after he had a profane altercation with a rival, all of it captured on video. Business has never been better.`\
+https://nytimes.com/2026/01/11/nyregion/diamond-district-traxnyc-video.html
+
+**Where Does Candidate Mamdani End and Mayor Mamdani Begin?**\
+`In his first week as mayor of New York City, Zohran Mamdani tried to bridge the political theater of his campaign with the much harder work of governing.`\
+https://nytimes.com/2026/01/11/nyregion/new-york-mayor-zohran-mamdani-week-one.html
+
+**‘The Man and I Both Immediately Lost Our Composure’**\
+`Witnessing the power of coconut cream pie, time for a new car and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2026/01/11/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/11/crosswords/spelling-bee-forum.html
+
 **Australia Wildfires Burn Nearly 900,000 Acres**\
 `Blazes in the state of Victoria have destroyed hundreds of structures, including homes, and killed one person, the authorities said.`\
 https://nytimes.com/2026/01/11/world/australia/australia-victoria-wildfires.html
@@ -17,24 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/01/11/todays-new-york-times
 **Pope Leo Confronts Trump on His Own Terms**\
 `The pontiff has increasingly asserted himself in the face of Trump’s aggressive words and deeds.`\
 https://nytimes.com/2026/01/11/opinion/pope-leo-trump-world-order-peace.html
-
-**Sorokin shines, Kaprizov hits milestone and Ben Jones gets No. 1: Wild takeaways**\
-`Kirill Kaprizov passed Mikko Koivu for second in career points with the Wild and was buzzing all night long.`\
-https://nytimes.com/athletic/6960875/2026/01/11/wild-loss-sorokin-kaprizov-jones-takeaways/
-
-**The Ashes 2025-26: The story of Australia's thrashing of England in 14 pictures**\
-`Australia's victory was a formality, with the urn retained in 11 days' cricket, but the series still provided plenty of memorable highlights`\
-https://nytimes.com/athletic/6941813/2026/01/11/ashes-australia-england-images-starc-head-root/
-
-**This is the best the Maple Leafs have looked this season. Can it last?**\
-`Scotiabank Arena felt like a party Saturday night. It hasn't been that way for a long time.`\
-https://nytimes.com/athletic/6960802/2026/01/11/maple-leafs-canucks-win-season-momentum/
-
-**Rosenthal: Four takeaways in wake of Alex Bregman’s five-year, $175 million deal with Cubs**\
-`What's next for the Cubs, Scott Boras' winning strategy, Cody Bellinger's demands and the Red Sox's pursuit of Bo Bichette.`\
-https://nytimes.com/athletic/6960772/2026/01/11/alex-bregman-cubs-signing-free-agent-takeaways/
-
-**Deja vu in Chicago: Bears bounce Packers from playoffs with another dramatic comeback**\
-`Bears mount the biggest playoff comeback in team history in 31-27 win to advance to the divisional round.`\
-https://nytimes.com/athletic/6960316/2026/01/11/bears-packers-score-result-takeaways-nfl-wild-card/
 
