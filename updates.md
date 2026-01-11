@@ -1,3 +1,11 @@
+**Israeli Police Question Top Netanyahu Aide Over Leaked Document Case**\
+`Tzachi Braverman, Prime Minister Benjamin Netanyahu’s chief of staff, was detained for questioning on Sunday over accusations that he sought to impede an investigation.`\
+https://nytimes.com/2026/01/11/world/middleeast/israel-police-netanyahu-aide-tzachi-braverman.html
+
+**Bob Weir, a Virtuoso of Hot Pants**\
+`The Grateful Dead guitarist wore short shorts like no other.`\
+https://nytimes.com/2026/01/11/style/bob-weir-hot-pants.html
+
 **Bears' rally was Chicago's main focus, but Bulls' win vs. Mavs worth a city discussion**\
 `Chicago savored playoff football on Saturday. The Bulls beating Dallas felt like a distant second, but is worth a conversation around town.`\
 https://nytimes.com/athletic/6961142/2026/01/11/chicago-bulls-bears-nba-nfl-cooper-flagg/
