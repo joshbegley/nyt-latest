@@ -1,3 +1,7 @@
+**Judge Pauses Trump Policy Ending Family Reunification for Some Migrants**\
+`The policy applied to migrants from some Central and South American countries who were awaiting visas.`\
+https://nytimes.com/2026/01/10/us/family-reunification-judge.html
+
 **Schools tout no state income tax as college football portal season gets weird**\
 `Some schools are trying to entice players to sign with their college football programs with promises of state income taxes.`\
 https://nytimes.com/athletic/6960400/2026/01/10/ucf-houston-unlv-nil-income-taxes-college-football/
@@ -28,14 +32,10 @@ https://nytimes.com/2026/01/10/us/rennee-good-ice-shooting-minnesota.html
 https://nytimes.com/2026/01/10/us/politics/trump-iran-strikes.html
 
 **Bob Weir, Guitarist and Founding Member of the Grateful Dead, Dies at 78**\
-`His songwriting and rhythm guitar playing helped shape the San Francisco band’s sound as it emerged to become an American institution.`\
+`His songwriting and rhythm guitar playing helped shape the San Francisco band’s sound as it became an American institution.`\
 https://nytimes.com/2026/01/10/obituaries/bob-weir-dead-grateful-dead.html
 
 **Rangers 'embarrassed' in Boston, leaving no doubt: It's time to sell, sell, sell**\
 `"That’s as bad as it gets," captain J.T. Miller said after New York's 10-2 loss to the Bruins. "This should make you want to puke."`\
 https://nytimes.com/athletic/6960294/2026/01/10/new-york-rangers-bruins-trade-deadline/
-
-**U.S. Launches Major Strikes on Islamic State Targets in Syria**\
-`The airstrikes followed an even larger attack in December to avenge the killing of three Americans last year.`\
-https://nytimes.com/2026/01/10/us/politics/us-strikes-islamic-state-syria.html
 

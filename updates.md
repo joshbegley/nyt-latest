@@ -1,3 +1,8 @@
+**James van Riemsdyk arrives at Red Wings game dressed as Batman for son's birthday**\
+`The veteran, who is out of town for a huge divisional clash in Montreal, found a way to celebrate his son Liam's fourth birthday from afar.
+`\
+https://nytimes.com/athletic/6960578/2026/01/10/red-wings-james-van-riemsdyk-batman/
+
 **Schools tout no state income tax as college football portal season gets weird**\
 `Some schools are trying to entice players to sign with their college football programs with promises of state income taxes.`\
 https://nytimes.com/athletic/6960400/2026/01/10/ucf-houston-unlv-nil-income-taxes-college-football/
