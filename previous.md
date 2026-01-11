@@ -1,3 +1,11 @@
+**Syrian Military Takes Aleppo Neighborhoods After Clashes With Kurds**\
+`The takeover ended one of the worst outbreaks of violence between the central government and the Kurdish-led forces since the end of the civil war just over a year ago.`\
+https://nytimes.com/2026/01/11/world/middleeast/syrian-military-takes-aleppo-neighborhoods.html
+
+**Updated 2026 NFL Draft order: Cowboys secure another top-20 pick with Packers' collapse**\
+`How does the order for Round 1 of the draft stand as Wild Card Weekend unfolds?`\
+https://nytimes.com/athletic/6961340/2026/01/11/nfl-draft-2026-round-1-order-cowboys/
+
 **Olympic hockey arena's test event leaves IIHF president 'little bit more confident'**\
 `Luc Tardif was particularly pleased with how the ice surface held up to a three-game day: "There is no reason that the NHL will not come."`\
 https://nytimes.com/athletic/6961335/2026/01/11/olympic-hockey-arena-iihf-president/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/11/arts/music/bob-weir-grateful-dead-photos.html
 **The Pulse: Wildest 10 minutes you can imagine**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6960951/2026/01/11/the-wildest-10-minutes-imaginable-delivers-bears-a-stunning-comeback/
-
-**Trump Administration Live Updates: President Is Briefed on Options for Striking Iran as Protests Continue**\
-``\
-https://nytimes.com/live/2026/01/11/us/trump-news
-
-**Living With Dementia, but ‘Still There’**\
-`Readers respond to an essay by Patti Davis on caring for family members with dementia. Also: New math on a wealth tax; how states can make A.I. safer.`\
-https://nytimes.com/2026/01/11/opinion/living-with-dementia-family.html
 

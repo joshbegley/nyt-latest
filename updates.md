@@ -1,3 +1,11 @@
+**Syrian Military Takes Aleppo Neighborhoods After Clashes With Kurds**\
+`The takeover ended one of the worst outbreaks of violence between the central government and the Kurdish-led forces since the end of the civil war just over a year ago.`\
+https://nytimes.com/2026/01/11/world/middleeast/syrian-military-takes-aleppo-neighborhoods.html
+
+**Updated 2026 NFL Draft order: Cowboys secure another top-20 pick with Packers' collapse**\
+`How does the order for Round 1 of the draft stand as Wild Card Weekend unfolds?`\
+https://nytimes.com/athletic/6961340/2026/01/11/nfl-draft-2026-round-1-order-cowboys/
+
 **Olympic hockey arena's test event leaves IIHF president 'little bit more confident'**\
 `Luc Tardif was particularly pleased with how the ice surface held up to a three-game day: "There is no reason that the NHL will not come."`\
 https://nytimes.com/athletic/6961335/2026/01/11/olympic-hockey-arena-iihf-president/
