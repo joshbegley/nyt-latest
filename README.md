@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, Jan. 12, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/11/todays-new-york-times-international-edition
+
 **How to watch Illinois vs. Iowa men's basketball: Time, TV, streaming**\
 `Find out how to watch the Illinois Fighting Illini play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961129/2026/01/11/illinois-vs-iowa-stream-how-to-watch-jan-11/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/11/science/dinosaurs-fossils-eggs-claw.html
 **Trump Threats and Venezuela Strike Leave Mexico Agonizing Over How to Respond**\
 `President Claudia Sheinbaum and her inner circle have been grappling with the right tone to strike in the country’s response to the Venezuela strike for fear of antagonizing the White House.`\
 https://nytimes.com/2026/01/11/world/americas/mexico-trump-cartels.html
-
-**How a Puzzling 401(k) Plan Changed One Woman’s Life**\
-`Eryn Schultz was an H-E-B grocery store leader with an M.B.A. A slow pivot toward a big career change began when she found her retirement plan wanting.`\
-https://nytimes.com/2026/01/11/business/401k-heb-eryn-schultz-personal-finances.html
 
