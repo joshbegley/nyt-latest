@@ -1,3 +1,7 @@
+**Senate Democrat Says a U.S. Strike on Iran Risks Strengthening Its Government**\
+`Senator Mark Warner of Virginia, the top Democrat on the Intelligence Committee, said any attempt to support protesters in Iran with a military operation could backfire.`\
+https://nytimes.com/2026/01/11/us/politics/us-iran-strike-protests-warner.html
+
 **Getting Ready for the Golden Globes**\
 `Text by Krista Schlueter`\
 https://nytimes.com/card/2026/01/11/arts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6961510/2026/01/11/blue-jackets-vs-mammoth-stream-h
 **How to watch Capitals vs. Predators: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Nashville Predators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961508/2026/01/11/capitals-vs-predators-stream-how-to-watch-jan-11/
-
-**How to watch Penguins vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Penguins play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961506/2026/01/11/penguins-vs-bruins-stream-how-to-watch-jan-11/
 
