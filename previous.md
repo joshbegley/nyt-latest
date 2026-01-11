@@ -1,3 +1,7 @@
+**Guantánamo Prison Enters 25th Year**\
+`The prison has outlasted the war in Afghanistan, has employed tens of thousands of temporary troops and holds six men charged but not yet tried in death penalty cases.`\
+https://nytimes.com/2026/01/11/us/politics/guantanamo-prison-25th-anniversary.html
+
 **Falcons' new president of football Matt Ryan bullish as he bids farewell to CBS**\
 `Ryan hopes to lead the Falcons back to the playoffs. “You want to be in the mix," he said. "It’s been too long there."`\
 https://nytimes.com/athletic/6961549/2026/01/11/matt-ryan-falcons-president-football-playoffs-cbs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6961517/2026/01/11/spurs-vs-timberwolves-stream-how
 **How to watch 76ers vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961515/2026/01/11/76ers-vs-raptors-stream-how-to-watch-jan-11/
-
-**How to watch Knicks vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961513/2026/01/11/knicks-vs-trail-blazers-stream-how-to-watch-jan-11/
 
