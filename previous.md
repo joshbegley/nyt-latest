@@ -1,3 +1,7 @@
+**Rams Edge Panthers 34-31 in Wild-Card Thriller**\
+`Quarterback Matthew Stafford led a game-winning drive to lead the Los Angeles Rams back to the divisional round.`\
+https://nytimes.com/video/the-athletic/100000010637256/rams-edge-panthers-34-31-in-wild-card-thriller.html
+
 **Can a shutout loss be a moral victory? For Blue Jackets against Avalanche, maybe**\
 `Columbus was somewhat satisfied with how it played in a 4-0 shutout loss to Colorado on Saturday.`\
 https://nytimes.com/athletic/6960502/2026/01/10/blue-jackets-avalanche-shutout-loss/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6953038/2026/01/10/sidney-crosby-penguins-flames-go
 **Venezuela’s New Leader Enlists U.S. Troops to Bring a Rogue Ship Back**\
 `Delcy Rodríguez got American help with the return of an oil tanker linked to one of her political rivals that had left the country without authorization.`\
 https://nytimes.com/2026/01/10/world/americas/venezuela-oil-tanker-us.html
-
-**Matthew Stafford leads late TD drive as Rams beat Panthers, advance to NFC divisional round**\
-`Stafford's TD pass to Colby Parkinson with 38 seconds left gets the Rams to the NFC divisional round for the second straight season.`\
-https://nytimes.com/athletic/6960315/2026/01/10/rams-panthers-score-result-takeaways-nfl-wild-card/
 
