@@ -1,3 +1,17 @@
+**The Ashes 2025-26: The story of Australia's thrashing of England in 14 pictures**\
+`Australia's victory was a formality, with the urn retained in 11 days' cricket, but the series still provided plenty of memorable highlights`\
+https://nytimes.com/athletic/6941813/2026/01/11/ashes-australia-england-images-starc-head-root/
+
+**This is the best the Maple Leafs have looked this season. Will it last?**\
+`Scotiabank Arena felt like a party Saturday night. It hasn't been that way for a long time.`\
+https://nytimes.com/athletic/6960802/2026/01/11/maple-leafs-canucks-win-season-momentum/
+
+**Rosenthal: Four takeaways in wake of Alex Bregman’s five-year, $175 million deal with Cubs**\
+`Here’s four takeaways on free-agent third baseman Alex Bregman’s five-year, $175 million free-agent agreement with the Chicago Cubs:
+
+Earlier this week, I wrote that the Cubs needed to sign one of the Big Four remaining free-agent hitters — Bregman, Bo Bichette, Cody Bellinger or Kyle Tucker.`\
+https://nytimes.com/athletic/6960772/2026/01/11/alex-bregman-cubs-signing-free-agent-takeaways/
+
 **Deja vu in Chicago: Bears bounce Packers from playoffs with another dramatic comeback**\
 `Bears mount the biggest playoff comeback in team history in 31-27 win to advance to the divisional round.`\
 https://nytimes.com/athletic/6960316/2026/01/11/bears-packers-score-result-takeaways-nfl-wild-card/
@@ -24,17 +38,5 @@ https://nytimes.com/athletic/6959611/2026/01/11/hull-fan-afcon-nigeria/
 
 **'Irate' Jaylen Brown says refs were 'terrible' during Celtics loss to Spurs**\
 `Boston's star didn't hold back about his anger toward the officiating crew in Saturday's defeat.`\
-https://nytimes.com/athletic/6960807/2026/01/11/irate-jaylen-brown-says-refs-were-terrible-during-celtics-loss-to-spurs/
-
-**Crystal Palace. What just happened?**\
-`Oliver Glasner's side have not been at their best for a while now and this seismic shock begs the question: Where do they go from here?`\
-https://nytimes.com/athletic/6960143/2026/01/11/crystal-palace-macclesfield-glasner/
-
-**Three shootout penalties, three saves: How Roefs produced his latest match-winning moments**\
-`The Sunderland goalkeeper has now kept out five of the six penalties he has faced since joining the club`\
-https://nytimes.com/athletic/6959916/2026/01/11/robin-roefs-sunerland-everton-penalties/
-
-**In letting Alex Bregman walk, Boston's aversion to long-term deals rears its head**\
-`The Red Sox let negotiations drag deep into the offseason, allowing the Cubs to swoop in and sign last season's unquestioned leader. `\
-https://nytimes.com/athletic/6912366/2026/01/11/boston-red-sox-alex-bregman-walks/
+https://nytimes.com/athletic/6960807/2026/01/11/irate-jaylen-brown-refs-terrible-celtics-spurs/
 

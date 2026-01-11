@@ -7,9 +7,7 @@ https://nytimes.com/athletic/6941813/2026/01/11/ashes-australia-england-images-s
 https://nytimes.com/athletic/6960802/2026/01/11/maple-leafs-canucks-win-season-momentum/
 
 **Rosenthal: Four takeaways in wake of Alex Bregman’s five-year, $175 million deal with Cubs**\
-`Here’s four takeaways on free-agent third baseman Alex Bregman’s five-year, $175 million free-agent agreement with the Chicago Cubs:
-
-Earlier this week, I wrote that the Cubs needed to sign one of the Big Four remaining free-agent hitters — Bregman, Bo Bichette, Cody Bellinger or Kyle Tucker.`\
+`What's next for the Cubs, Scott Boras' winning strategy, Cody Bellinger's demands and the Red Sox's pursuit of Bo Bichette.`\
 https://nytimes.com/athletic/6960772/2026/01/11/alex-bregman-cubs-signing-free-agent-takeaways/
 
 **Deja vu in Chicago: Bears bounce Packers from playoffs with another dramatic comeback**\
