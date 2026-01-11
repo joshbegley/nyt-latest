@@ -1,3 +1,11 @@
+**Sidney Crosby fumes about goalie interference call as Penguins stumble against Flames**\
+`The Penguins had a goal disallowed and Crosby wasn't happy about it following a 2-1 loss to Calgary on Saturday.`\
+https://nytimes.com/athletic/6953038/2026/01/10/sidney-crosby-penguins-flames-goalie-interference/
+
+**Venezuela’s New Leader Enlists U.S. Troops to Bring a Rogue Ship Back**\
+`Delcy Rodríguez got American help with the return of an oil tanker linked to one of her political rivals that had left the country without authorization.`\
+https://nytimes.com/2026/01/10/world/americas/venezuela-oil-tanker-us.html
+
 **Matthew Stafford leads late TD drive as Rams beat Panthers, advance to NFC divisional round**\
 `Stafford's TD pass to Colby Parkinson with 38 seconds left gets the Rams to the NFC divisional round for the second straight season.`\
 https://nytimes.com/athletic/6960315/2026/01/10/rams-panthers-score-result-takeaways-nfl-wild-card/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6960370/2026/01/10/bruins-pavel-zacha-hat-trick-tra
 **Paul Haggis Reaches $2 Million Settlement After 2022 Rape Verdict**\
 `A judge had ordered the Oscar-winning filmmaker to pay at least $7.5 million to a former film-industry publicist after a civil jury found him liable for raping her.`\
 https://nytimes.com/2026/01/10/movies/paul-haggis-rape-settlement.html
-
-**It’s All Greek**\
-`Dylan Schiff’s latest puzzle is hugely symbolic.`\
-https://nytimes.com/2026/01/10/crosswords/daily-puzzle-2026-01-11.html
-
-**Rangers forced to return to ice from locker room after goal review at intermission**\
-`The strange situation was the result of a goal that wasn’t initially awarded during play, but was later determined to have crossed the line.`\
-https://nytimes.com/athletic/6960330/2026/01/10/rangers-bruins-goal-review-intermission-return/
 

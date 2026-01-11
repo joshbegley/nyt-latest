@@ -1,3 +1,11 @@
+**Sidney Crosby fumes about goalie interference call as Penguins stumble against Flames**\
+`The Penguins had a goal disallowed and Crosby wasn't happy about it following a 2-1 loss to Calgary on Saturday.`\
+https://nytimes.com/athletic/6953038/2026/01/10/sidney-crosby-penguins-flames-goalie-interference/
+
+**Venezuela’s New Leader Enlists U.S. Troops to Bring a Rogue Ship Back**\
+`Delcy Rodríguez got American help with the return of an oil tanker linked to one of her political rivals that had left the country without authorization.`\
+https://nytimes.com/2026/01/10/world/americas/venezuela-oil-tanker-us.html
+
 **Matthew Stafford leads late TD drive as Rams beat Panthers, advance to NFC divisional round**\
 `Stafford's TD pass to Colby Parkinson with 38 seconds left gets the Rams to the NFC divisional round for the second straight season.`\
 https://nytimes.com/athletic/6960315/2026/01/10/rams-panthers-score-result-takeaways-nfl-wild-card/
