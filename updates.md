@@ -1,3 +1,19 @@
+**The World Order Is Dead. What Comes Next?**\
+`With the president’s actions in Venezuela, we’re entering a new era. Here’s what it could look like.`\
+https://nytimes.com/interactive/2026/01/11/opinion/trump-new-world-order.html
+
+**The New York Times in Print for Sunday, Jan. 11, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/11/todays-new-york-times
+
+**Trump’s Amoral World Meets Its Match in Pope Leo**\
+`The pontiff has increasingly asserted himself in the face of Trump’s aggressive words and deeds.`\
+https://nytimes.com/2026/01/11/opinion/pope-leo-trump-world-order-peace.html
+
+**Sorokin shines, Kaprizov hits milestone and Ben Jones gets No. 1: Wild takeaways**\
+`Kirill Kaprizov passed Mikko Koivu for second all-time with the Wild in career points and was buzzing all night long.`\
+https://nytimes.com/athletic/6960875/2026/01/11/wild-loss-sorokin-kaprizov-jones-takeaways/
+
 **This is the best the Maple Leafs have looked this season. Can it last?**\
 `Scotiabank Arena felt like a party Saturday night. It hasn't been that way for a long time.`\
 https://nytimes.com/athletic/6960802/2026/01/11/maple-leafs-canucks-win-season-momentum/

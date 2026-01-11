@@ -1,3 +1,19 @@
+**The World Order Is Dead. What Comes Next?**\
+`With the president’s actions in Venezuela, we’re entering a new era. Here’s what it could look like.`\
+https://nytimes.com/interactive/2026/01/11/opinion/trump-new-world-order.html
+
+**The New York Times in Print for Sunday, Jan. 11, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/11/todays-new-york-times
+
+**Trump’s Amoral World Meets Its Match in Pope Leo**\
+`The pontiff has increasingly asserted himself in the face of Trump’s aggressive words and deeds.`\
+https://nytimes.com/2026/01/11/opinion/pope-leo-trump-world-order-peace.html
+
+**Sorokin shines, Kaprizov hits milestone and Ben Jones gets No. 1: Wild takeaways**\
+`Kirill Kaprizov passed Mikko Koivu for second all-time with the Wild in career points and was buzzing all night long.`\
+https://nytimes.com/athletic/6960875/2026/01/11/wild-loss-sorokin-kaprizov-jones-takeaways/
+
 **The Ashes 2025-26: The story of Australia's thrashing of England in 14 pictures**\
 `Australia's victory was a formality, with the urn retained in 11 days' cricket, but the series still provided plenty of memorable highlights`\
 https://nytimes.com/athletic/6941813/2026/01/11/ashes-australia-england-images-starc-head-root/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6957195/2026/01/11/barcelona-real-madrid-negreira-c
 **The state of football commentary in 2026 - as seen by those behind the microphone**\
 `Seven commentators who are regulars on UK and U.S. broadcasts on their craft, from coping with change to dealing with criticism`\
 https://nytimes.com/athletic/6932391/2026/01/11/commentators-survey-drury-strong/
-
-**Inside the greatest FA Cup upset of all: Bandages, tractors and a club driven by grief**\
-`Macclesfield's shock win against FA Cup holders Crystal Palace will live long in the memory. This is how they did it`\
-https://nytimes.com/athletic/6959548/2026/01/11/macclesfield-crystal-palace-fa-cup-history/
-
-**Thierry Henry's iconic Fratton Park moment – in a Portsmouth shirt. "I'll always remember it"**\
-`Across two meetings in 2004, the Arsenal striker showed his brilliance and was serenaded by opposition fans at the end of a historic season`\
-https://nytimes.com/athletic/6937292/2026/01/11/thierry-henry-portsmouth-shirt-arsenal/
-
-**The Hull City fan who picked a trip to Marrakech over Millwall… because it was cheaper**\
-`Scott Wood joined Nigeria fans at the Africa Cup of Nations after working out it would cost less than going to a game in London`\
-https://nytimes.com/athletic/6959611/2026/01/11/hull-fan-afcon-nigeria/
-
-**'Irate' Jaylen Brown says refs were 'terrible' during Celtics loss to Spurs**\
-`Boston's star didn't hold back about his anger toward the officiating crew in Saturday's defeat.`\
-https://nytimes.com/athletic/6960807/2026/01/11/irate-jaylen-brown-refs-terrible-celtics-spurs/
 
