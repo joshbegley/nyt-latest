@@ -1,3 +1,7 @@
+**Olympic hockey arena's test event leaves IIHF president 'little bit more confident'**\
+`Luc Tardif was particularly pleased with how the ice surface held up to a three-game day: "There is no reason that the NHL will not come."`\
+https://nytimes.com/athletic/6961335/2026/01/11/olympic-hockey-arena-iihf-president/
+
 **Israeli Police Question Top Netanyahu Aide Over Leaked Document Case**\
 `Tzachi Braverman, Prime Minister Benjamin Netanyahu’s chief of staff, was detained for questioning on Sunday over accusations that he sought to impede an investigation.`\
 https://nytimes.com/2026/01/11/world/middleeast/israel-police-netanyahu-aide-tzachi-braverman.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/11/us/trump-news
 **Living With Dementia, but ‘Still There’**\
 `Readers respond to an essay by Patti Davis on caring for family members with dementia. Also: New math on a wealth tax; how states can make A.I. safer.`\
 https://nytimes.com/2026/01/11/opinion/living-with-dementia-family.html
-
-**How to watch Pelicans vs. Magic: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961276/2026/01/11/pelicans-vs-magic-stream-how-to-watch-jan-11/
 
