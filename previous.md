@@ -1,3 +1,7 @@
+**‘Hundreds More’ Federal Agents to Be Deployed to Minneapolis, Noem Says**\
+`The announcement by the homeland security secretary came days after an immigration officer shot and killed a woman, Renee Good, in the city.`\
+https://nytimes.com/2026/01/11/us/politics/federal-agents-minnesota-ice-shooting.html
+
 **‘I Don’t Think We Like Them’: Trump Says MAGA Has No Room for Antisemites**\
 `After years in which President Trump has variously embraced and tolerated far-right figures and groups, the Republican Party is mired in a debate about how expansive its coalition should be.`\
 https://nytimes.com/2026/01/11/us/politics/trump-maga-republicans-antisemitism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/11/us/politics/guantanamo-prison-25th-anniversary.ht
 **Falcons' new president of football Matt Ryan bullish as he bids farewell to CBS**\
 `Ryan hopes to lead the Falcons back to the playoffs. “You want to be in the mix," he said. "It’s been too long there."`\
 https://nytimes.com/athletic/6961549/2026/01/11/matt-ryan-falcons-president-football-playoffs-cbs/
-
-**Once Again, Oldest Mississippi Synagogue is Attacked With Fire**\
-`A suspect was in custody and charged with arson for setting the Saturday morning fire. It’s not the first time the Beth Israel house of worship has been attacked.`\
-https://nytimes.com/2026/01/11/us/mississippi-synagogue-arson-attack-suspect.html
 

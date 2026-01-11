@@ -1,3 +1,7 @@
+**‘Hundreds More’ Federal Agents to Be Deployed to Minneapolis, Noem Says**\
+`The announcement by the homeland security secretary came days after an immigration officer shot and killed a woman, Renee Good, in the city.`\
+https://nytimes.com/2026/01/11/us/politics/federal-agents-minnesota-ice-shooting.html
+
 **Texas bolsters offense, lands coveted transfers Cam Coleman, Hollywood Smothers**\
 `The former five-star prospect was one of the only bright spots on an Auburn offense that struggled mightily in 2025.`\
 https://nytimes.com/athletic/6934476/2026/01/11/texas-cam-coleman-transfer-wide-receiver/
