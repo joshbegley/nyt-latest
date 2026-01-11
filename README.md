@@ -1,3 +1,7 @@
+**Erich von Däniken, Who Claimed Aliens Visited Earth, Dies at 90**\
+`His 1968 book, “Chariot of the Gods,” sold hundreds of thousands of copies, but one critic called it a “warped parody of reasoning.”`\
+https://nytimes.com/2026/01/11/obituaries/erich-von-daniken-dead.html
+
 **How to watch Heat vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the Miami Heat play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961522/2026/01/11/heat-vs-thunder-stream-how-to-watch-jan-11/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6961343/2026/01/11/conor-bradley-knee-injury-liverp
 **Thiel Gives $3 Million to Group Seeking to Block California Wealth Tax**\
 `More large donations from wealthy Silicon Valley figures are expected as they try to marshal opposition to a proposed ballot measure that would impose a new tax on billionaires.`\
 https://nytimes.com/2026/01/11/us/politics/peter-thiel-california-wealth-tax.html
-
-**How to watch Mississippi State vs. Ole Miss women's basketball: Time, TV, streaming**\
-`Find out how to watch the Mississippi State Bulldogs play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961481/2026/01/11/mississippi-state-vs-ole-miss-stream-how-to-watch-jan-11/
 
