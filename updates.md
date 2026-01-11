@@ -1,3 +1,7 @@
+**Rangers 'embarrassed' in Boston, leaving no doubt: It's time to sell, sell, sell**\
+`"That’s as bad as it gets," captain J.T. Miller said after New York's 10-2 loss to the Bruins. "This should make you want to puke."`\
+https://nytimes.com/athletic/6960294/2026/01/10/new-york-rangers-bruins-trade-deadline/
+
 **U.S. Launches Major Strikes on Islamic State Targets in Syria**\
 `The airstrikes followed an even larger attack in December to avenge the killing of three Americans last year.`\
 https://nytimes.com/2026/01/10/us/politics/us-strikes-islamic-state-syria.html
