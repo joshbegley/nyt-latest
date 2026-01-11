@@ -1,3 +1,7 @@
+**Notre Dame defends Marcus Freeman after battery accusation emerges**\
+`Freeman has been accused of battery stemming from an alleged altercation that occurred during a high school wrestling tournament.`\
+https://nytimes.com/athletic/6961846/2026/01/11/notre-dame-marcus-freeman-battery-accusation/
+
 **Mass Protests in Iran and Trump’s Threats**\
 `A question now hangs over the country: Is Iran the next target of an emboldened U.S. president?`\
 https://nytimes.com/2026/01/11/world/mass-protests-iran-trump-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6961774/2026/01/11/rockets-vs-kings-stream-how-to-w
 **How to watch Hawks vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Atlanta Hawks play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961772/2026/01/11/hawks-vs-warriors-stream-how-to-watch-jan-11/
-
-**How to watch Wizards vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961769/2026/01/11/wizards-vs-suns-stream-how-to-watch-jan-11/
 
