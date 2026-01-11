@@ -27,7 +27,7 @@ https://nytimes.com/2026/01/11/crosswords/daily-puzzle-2026-01-12.html
 https://nytimes.com/athletic/6962069/2026/01/11/lsu-texas-first-loss-of-season/
 
 **Golden Globes 2026: See All the Red Carpet Arrivals**\
-`Lisa, Snoop Dogg and Brittany Snow were among the stars who arrived at the annual ceremony in high style.`\
+`Selena Gomez, Kate Hudson and the stars of “Heated Rivalry” were among the celebrities who arrived at the annual ceremony in high style.`\
 https://nytimes.com/2026/01/11/style/golden-globes-2026-red-carpet-photos.html
 
 **49ers' George Kittle carted off vs. Eagles, ruled out with Achilles injury**\
