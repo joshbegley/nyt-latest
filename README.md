@@ -1,3 +1,7 @@
+**Liverpool's Bradley needs surgery on season-ending knee injury**\
+`The 22-year-old will not play again for Liverpool this season but has yet to be ruled out of the World Cup if Northern Ireland qualify.`\
+https://nytimes.com/athletic/6961174/2026/01/11/conor-bradley-liverpool-surgery-knee/
+
 **Luke Kornet's Boston homecoming shows why he's beloved by his teams, new and old**\
 `Luke Kornet received a warm welcome in his return back to Boston, as his teammates new and old reflected on their love for him.`\
 https://nytimes.com/athletic/6960944/2026/01/11/celtics-luke-kornets-boston-homecoming/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6957984/2026/01/11/mathieu-jp-darche-brothers-nfl-n
 **Sabres' Josh Doan continues his breakout season in win over Ducks: 5 thoughts**\
 `Doan showed up all over the ice again for Buffalo, which won its 13th out of 14 on Saturday night.`\
 https://nytimes.com/athletic/6960832/2026/01/11/sabres-josh-doan-win-ducks/
-
-**Law: Cubs bolster infield with Bregman. Will Boston turn to Bichette?**\
-`For the short term, Alex Bregman is comfortable upgrade for the Cubs, Keith Law writes, but now the team has one infielder too many.`\
-https://nytimes.com/athletic/6960882/2026/01/11/alex-bregman-cubs-red-sox-bo-bichette/
 
