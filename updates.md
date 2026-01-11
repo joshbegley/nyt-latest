@@ -1,3 +1,7 @@
+**Bob Weir, Guitarist and Founding Member of the Grateful Dead, Dies at 78**\
+`His songwriting and rhythm guitar playing helped shape the San Francisco band’s sound as it emerged to become an American institution.`\
+https://nytimes.com/2026/01/10/obituaries/bob-weir-dead-grateful-dead.html
+
 **Rangers 'embarrassed' in Boston, leaving no doubt: It's time to sell, sell, sell**\
 `"That’s as bad as it gets," captain J.T. Miller said after New York's 10-2 loss to the Bruins. "This should make you want to puke."`\
 https://nytimes.com/athletic/6960294/2026/01/10/new-york-rangers-bruins-trade-deadline/

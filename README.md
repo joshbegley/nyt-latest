@@ -1,3 +1,7 @@
+**Trump Is Briefed on Options for Striking Iran as Protests Continue**\
+`The president has said he will be “hitting them very hard” if Iranian leaders kill protesters amid widespread demonstrations calling for wholesale changes in the country.`\
+https://nytimes.com/2026/01/10/us/politics/trump-iran-strikes.html
+
 **Bob Weir, Guitarist and Founding Member of the Grateful Dead, Dies at 78**\
 `His songwriting and rhythm guitar playing helped shape the San Francisco band’s sound as it emerged to become an American institution.`\
 https://nytimes.com/2026/01/10/obituaries/bob-weir-dead-grateful-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/10/us/disinformation-minneapolis-shooting-ice.html
 **USMNT forward Pepi ruled out for two months with fractured forearm**\
 `The 23-year-old fell awkwardly after scoring PSV Eindhoven's second goal and the club confirmed he will undergo surgery on Sunday.`\
 https://nytimes.com/athletic/6960169/2026/01/10/ricardo-pepi-usmnt-arm-surgery-injury/
-
-**Nearly 13,000 Irish Passports Are Recalled Over ‘Technical Issue’**\
-`The recall affects passports issued between Dec. 23 and Jan. 6, Ireland’s Department of Foreign Affairs and Trade said.`\
-https://nytimes.com/2026/01/10/world/europe/irish-passport-recalled.html
 
