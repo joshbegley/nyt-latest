@@ -1,3 +1,16 @@
+**Death Toll Grows as Nationwide Protests Rock Iran for a Third Night**\
+`Antigovernment unrest that began two weeks ago has intensified in recent days, as has violence.`\
+https://nytimes.com/2026/01/10/world/middleeast/iran-protests-death-toll.html
+
+**Bears' T.J. Edwards carted off, ruled out vs. Packers with left ankle injury**\
+`Edwards left the field with an air cast on his left leg, leaving a struggling Bears defense without one of its top leaders.`\
+https://nytimes.com/athletic/6960616/2026/01/10/tj-edwards-bears-leg-injury-packers-wild-card/
+
+**James van Riemsdyk arrives at Red Wings game dressed as Batman for son's birthday**\
+`The veteran, who is out of town for a huge divisional clash in Montreal, found a way to celebrate his son Liam's fourth birthday from afar.
+`\
+https://nytimes.com/athletic/6960578/2026/01/10/red-wings-james-van-riemsdyk-batman/
+
 **James van Riemsdyk arrives at Red Wings game dressed as Batman for son's birthday**\
 `The veteran, who is out of town for a huge divisional clash in Montreal, found a way to celebrate his son Liam's fourth birthday from afar.
 `\
