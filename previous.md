@@ -1,3 +1,15 @@
+**49ers' George Kittle carted off vs. Eagles with apparent lower leg injury**\
+`Kittle went down after catching a 6-yard pass in the second quarter of Sunday's wild-card playoff game.`\
+https://nytimes.com/athletic/6962084/2026/01/11/george-kittle-49ers-injury/
+
+**Presenters and attendees have been asked to wear anti-ICE pins.**\
+`By Melena Ryzik`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/presenters-and-attendees-have-been-asked-to-wear-anti-ice-pins
+
+**Deposed Shah’s Son Hopes Trump Will Put Iran Regime ‘Down for Good’**\
+`Reza Pahlavi, once the crown prince of Iran, says protesters there have been emboldened by President Trump suggesting that he could take military action.`\
+https://nytimes.com/2026/01/11/world/europe/iran-protests-shah-son-trump.html
+
 **Trump Says Civil Rights Led to White People Being ‘Very Badly Treated’**\
 `President Trump’s comments were a blunt distillation of his administration’s racial politics, which rest on the belief that white people have become the real victims of discrimination in America.`\
 https://nytimes.com/2026/01/11/us/politics/trump-interview-white-people-discrimination.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/heres-the-late
 **Thousands March in New York to Protest ICE Killing and Denounce Trump**\
 `About 2,000 protesters, prompted by the fatal shooting of a woman in Minneapolis by a federal immigration agent, gathered near Central Park and marched through Manhattan.`\
 https://nytimes.com/2026/01/11/us/politics/ice-protest-nyc-trump.html
-
-**Josh Allen, Bills push their way past Jaguars and into divisional round**\
-`The Bills advance to the AFC divisional round for the sixth year in a row`\
-https://nytimes.com/athletic/6961681/2026/01/11/bills-jaguars-score-result-takeaways-nfl-wild-card/
-
-**Notre Dame defends Marcus Freeman after battery accusation emerges**\
-`Freeman has been accused of battery stemming from an alleged altercation that occurred during a high school wrestling tournament.`\
-https://nytimes.com/athletic/6961846/2026/01/11/notre-dame-marcus-freeman-battery-accusation/
-
-**Mass Protests in Iran and Trump’s Threats**\
-`A question now hangs over the country: Is Iran the next target of an emboldened U.S. president?`\
-https://nytimes.com/2026/01/11/world/mass-protests-iran-trump-venezuela.html
 
