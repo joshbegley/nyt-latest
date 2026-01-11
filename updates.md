@@ -1,3 +1,15 @@
+**The Pulse: Wildest 10 minutes you can imagine**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6960951/2026/01/11/the-wildest-10-minutes-imaginable-delivers-bears-a-stunning-comeback/
+
+**Trump Administration Live Updates: President Is Briefed on Options for Striking Iran as Protests Continue**\
+``\
+https://nytimes.com/live/2026/01/11/us/trump-news
+
+**Living With Dementia, but ‘Still There’**\
+`Readers respond to an essay by Patti Davis on caring for family members with dementia. Also: New math on a wealth tax; how states can make A.I. safer.`\
+https://nytimes.com/2026/01/11/opinion/living-with-dementia-family.html
+
 **How to watch Pelicans vs. Magic: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961276/2026/01/11/pelicans-vs-magic-stream-how-to-watch-jan-11/

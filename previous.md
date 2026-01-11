@@ -1,3 +1,15 @@
+**The Pulse: Wildest 10 minutes you can imagine**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6960951/2026/01/11/the-wildest-10-minutes-imaginable-delivers-bears-a-stunning-comeback/
+
+**Trump Administration Live Updates: President Is Briefed on Options for Striking Iran as Protests Continue**\
+``\
+https://nytimes.com/live/2026/01/11/us/trump-news
+
+**Living With Dementia, but ‘Still There’**\
+`Readers respond to an essay by Patti Davis on caring for family members with dementia. Also: New math on a wealth tax; how states can make A.I. safer.`\
+https://nytimes.com/2026/01/11/opinion/living-with-dementia-family.html
+
 **How to watch Pelicans vs. Magic: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961276/2026/01/11/pelicans-vs-magic-stream-how-to-watch-jan-11/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6961260/2026/01/11/texas-vs-lsu-stream-how-to-watch
 **How to watch Vanderbilt vs. Texas A&M women's basketball: Time, TV, streaming**\
 `Find out how to watch the Vanderbilt Commodores play the Texas A&M Aggies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961257/2026/01/11/vanderbilt-vs-texas-a-m-stream-how-to-watch-jan-11/
-
-**How to watch USC vs. Minnesota women's basketball: Time, TV, streaming**\
-`Find out how to watch the USC Trojans play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961254/2026/01/11/usc-vs-minnesota-stream-how-to-watch-jan-11/
-
-**How to watch Washington vs. Purdue women's basketball: Time, TV, streaming**\
-`Find out how to watch the Washington Huskies play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961252/2026/01/11/washington-vs-purdue-stream-how-to-watch-jan-11/
-
-**How to watch Pittsburgh vs. Louisville women's basketball: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Panthers play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961250/2026/01/11/pittsburgh-vs-louisville-stream-how-to-watch-jan-11/
 

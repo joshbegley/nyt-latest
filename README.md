@@ -1,3 +1,11 @@
+**Malaysia and Indonesia Block Access to Grok Because of Sexually Explicit Content**\
+`Grok, the chatbot created by Elon Musk’s artificial intelligence company, has produced a flood of explicit images featuring real people in recent weeks.`\
+https://nytimes.com/2026/01/11/world/asia/malaysia-indonesia-grok-ban.html
+
+**Bob Weir: A Life in Pictures**\
+`The Grateful Dead guitarist, singer and songwriter was a bedrock of the band that became a psychedelic institution.`\
+https://nytimes.com/2026/01/11/arts/music/bob-weir-grateful-dead-photos.html
+
 **The Pulse: Wildest 10 minutes you can imagine**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6960951/2026/01/11/the-wildest-10-minutes-imaginable-delivers-bears-a-stunning-comeback/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6961271/2026/01/11/devils-vs-jets-stream-how-to-wat
 **How to watch Wisconsin vs. Michigan women's basketball: Time, TV, streaming**\
 `Find out how to watch the Wisconsin Badgers play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961264/2026/01/11/wisconsin-vs-michigan-stream-how-to-watch-jan-11/
-
-**How to watch Texas vs. LSU women's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Longhorns play the LSU Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961260/2026/01/11/texas-vs-lsu-stream-how-to-watch-jan-11/
-
-**How to watch Vanderbilt vs. Texas A&M women's basketball: Time, TV, streaming**\
-`Find out how to watch the Vanderbilt Commodores play the Texas A&M Aggies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961257/2026/01/11/vanderbilt-vs-texas-a-m-stream-how-to-watch-jan-11/
 
