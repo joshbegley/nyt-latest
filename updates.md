@@ -1,3 +1,7 @@
+**Bears' rally was Chicago's main focus, but Bulls' win vs. Mavs worth a city discussion**\
+`Chicago savored playoff football on Saturday. The Bulls beating Dallas felt like a distant second, but is worth a conversation around town.`\
+https://nytimes.com/athletic/6961142/2026/01/11/chicago-bulls-bears-nba-nfl-cooper-flagg/
+
 **Lowetide: Why Oilers prospect Josh Samanski is pushing for recall**\
 `Samanski is NHL-ready and should be considered as a strong option for the Oilers' next call-up.`\
 https://nytimes.com/athletic/6959885/2026/01/11/edmonton-oilers-josh-samanski-prospect/
