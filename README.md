@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6961537/2026/01/11/ferrari-f1-lewis-hamilton-charle
 `The new guidelines for immigration facilities, issued by Kristi Noem, the homeland security secretary, are virtually identical to a policy that a federal judge halted last month.`\
 https://nytimes.com/2026/01/11/us/politics/minnesota-shooting-immigration-facilities-congressional-visits.html
 
-**Texas lands coveted transfer Cam Coleman, gives Arch Manning elite receiving option**\
+**Texas bolsters offense, lands coveted transfers Cam Coleman, Hollywood Smothers**\
 `The former five-star prospect was one of the only bright spots on an Auburn offense that struggled mightily in 2025.`\
 https://nytimes.com/athletic/6934476/2026/01/11/texas-cam-coleman-transfer-wide-receiver/
 

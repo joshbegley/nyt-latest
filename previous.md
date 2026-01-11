@@ -1,3 +1,11 @@
+**‘I Don’t Think We Like Them’: Trump Says MAGA Has No Room for Antisemites**\
+`After years in which President Trump has variously embraced and tolerated far-right figures and groups, the Republican Party is mired in a debate about how expansive its coalition should be.`\
+https://nytimes.com/2026/01/11/us/politics/trump-maga-republicans-antisemitism.html
+
+**Toronto FC in talks to sign USMNT striker Josh Sargent from Norwich City**\
+`Toronto has made an $18 million bid for the 25-year-old, though an agreement has not yet been reached.`\
+https://nytimes.com/athletic/6961658/2026/01/11/josh-sargent-toronto-norwich-transfer-talks/
+
 **Ferrari releases name of new F1 car for Hamilton and Leclerc ahead of 2026 season**\
 `The 2026 season could be Hamilton's last chance win an eighth world championship and pass Michael Schumacher in F1 the record books.`\
 https://nytimes.com/athletic/6961537/2026/01/11/ferrari-f1-lewis-hamilton-charles-leclerc-new-car-name/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6961549/2026/01/11/matt-ryan-falcons-president-foot
 **Once Again, Oldest Mississippi Synagogue is Attacked With Fire**\
 `A suspect was in custody and charged with arson for setting the Saturday morning fire. It’s not the first time the Beth Israel house of worship has been attacked.`\
 https://nytimes.com/2026/01/11/us/mississippi-synagogue-arson-attack-suspect.html
-
-**Senate Democrat Says a U.S. Strike on Iran Risks Strengthening Its Government**\
-`Senator Mark Warner of Virginia, the top Democrat on the Intelligence Committee, said any attempt to support protesters in Iran with a military operation could backfire.`\
-https://nytimes.com/2026/01/11/us/politics/us-iran-strike-protests-warner.html
-
-**Getting Ready for the Golden Globes**\
-`Text by Krista Schlueter`\
-https://nytimes.com/card/2026/01/11/arts/
 
