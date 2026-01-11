@@ -1,9 +1,13 @@
+**Mite hockey brawl at AHL game facing multiple investigations**\
+`The Atlantic Amateur Hockey Association is looking into what it called a “staged fight.”`\
+https://nytimes.com/athletic/6961730/2026/01/11/mite-hockey-brawl-ahl-investigation/
+
 **Richard Codey, Long-Serving New Jersey Politician, Dies at 79**\
 `He was the longest serving legislator in New Jersey, while also running an insurance company and funeral home and coaching youth basketball.`\
 https://nytimes.com/2026/01/11/nyregion/richard-codey-dead-new-jersey.html
 
 **Dave Canales says Panthers bringing back DC Ejiro Evero**\
-`Despite criticism after the Rams' final drive Saturday night, Ejiro Evero's defense made big improvements from 2024.`\
+`Despite criticism after the Rams' final drive Saturday night, Evero's defense made big improvements from 2024.`\
 https://nytimes.com/athletic/6961691/2026/01/11/panthers-ejiro-evero-defensive-coordinator-contract/
 
 **How to watch Rockets vs. Kings: Time, TV, streaming**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/11/us/politics/glenn-youngkin-jd-vance-2028-presiden
 **‘Hundreds More’ Federal Agents to Be Deployed to Minneapolis, Noem Says**\
 `The announcement by the homeland security secretary came days after an immigration officer shot and killed a woman, Renee Good, in the city.`\
 https://nytimes.com/2026/01/11/us/politics/federal-agents-minnesota-ice-shooting.html
-
-**‘I Don’t Think We Like Them’: Trump Says MAGA Has No Room for Antisemites**\
-`After years in which President Trump has variously embraced and tolerated far-right figures and groups, the Republican Party is mired in a debate about how expansive its coalition should be.`\
-https://nytimes.com/2026/01/11/us/politics/trump-maga-republicans-antisemitism.html
 

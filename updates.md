@@ -1,3 +1,11 @@
+**Richard Codey, Long-Serving New Jersey Politician, Dies at 79**\
+`He was the longest serving legislator in New Jersey, while also running an insurance company and funeral home and coaching youth basketball.`\
+https://nytimes.com/2026/01/11/nyregion/richard-codey-dead-new-jersey.html
+
+**Dave Canales says Panthers bringing back DC Ejiro Evero**\
+`Despite criticism after the Rams' final drive Saturday night, Ejiro Evero's defense made big improvements from 2024.`\
+https://nytimes.com/athletic/6961691/2026/01/11/panthers-ejiro-evero-defensive-coordinator-contract/
+
 **How to watch Rockets vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961774/2026/01/11/rockets-vs-kings-stream-how-to-watch-jan-11/
