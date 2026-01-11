@@ -1,3 +1,7 @@
+**Where’s the best original score award? Not on the telecast.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/golden-globes-best-score
+
 **The lifetime achievement winners have already been honored.**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/the-lifetime-achievement-winners-have-already-been-honored
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/11/us/politics/trump-interview-white-people-discrimi
 **Famed Nigerian Author Blames Death of Toddler Son on Negligent Care**\
 `Chimamanda Ngozi Adichie is accusing a private hospital in Lagos of administering an overdose of a sedative, prompting an outpouring of complaints by Nigerians about their health care system.`\
 https://nytimes.com/2026/01/11/world/africa/nigeria-adichie-son-death-blame.html
-
-**Who will be the big winners tonight? Here’s what to expect.**\
-`By Kyle Buchanan`\
-https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/who-will-be-the-big-winners-tonight-heres-what-to-expect
 

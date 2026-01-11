@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6962069/2026/01/11/lsu-texas-first-loss-of-season/
 https://nytimes.com/2026/01/11/style/golden-globes-2026-red-carpet-photos.html
 
 **49ers' George Kittle carted off vs. Eagles, ruled out with Achilles injury**\
-`Kittle went down after catching a 6-yard pass in the second quarter of Sunday's wild-card playoff game.`\
+`Kittle went down after catching a 6-yard pass in the second quarter of San Francisco's wild-card playoff game in Philadelphia.`\
 https://nytimes.com/athletic/6962084/2026/01/11/george-kittle-49ers-injury/
 
 **Presenters and attendees have been asked to wear anti-ICE pins.**\

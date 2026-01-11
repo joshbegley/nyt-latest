@@ -1,3 +1,7 @@
+**Where’s the best original score award? Not on the telecast.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/golden-globes-best-score
+
 **The lifetime achievement winners have already been honored.**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/the-lifetime-achievement-winners-have-already-been-honored
