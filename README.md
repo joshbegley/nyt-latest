@@ -1,3 +1,7 @@
+**The Briefing: Barcelona 3 Real Madrid 2 — Raphinha wins battle of the Brazilians, has Alonso done enough to stay?**\
+`Barcelona took the bragging rights against Madrid in the Supercopa de Espana final, but what does it mean for Alonso's future?`\
+https://nytimes.com/athletic/6957114/2026/01/11/barcelona-real-madrid-clasico-analysis-result-supercopa/
+
 **Jirdes Winther Baxter, 101, Dies; Last Survivor of Epidemic in Alaska**\
 `An outbreak of diphtheria inspired a celebrated sled dog relay of nearly 700 miles to deliver lifesaving serum to the remote town of Nome.`\
 https://nytimes.com/2026/01/11/obituaries/jirdes-winther-baxter-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6961769/2026/01/11/wizards-vs-suns-stream-how-to-wa
 **How to watch Bucks vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961767/2026/01/11/bucks-vs-nuggets-stream-how-to-watch-jan-11/
-
-**How to watch Golden Knights vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961764/2026/01/11/golden-knights-vs-sharks-stream-how-to-watch-jan-11/
 
