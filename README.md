@@ -1,9 +1,13 @@
+**Dennis Schröder gets 3-game suspension for going after Luka Dončić: Sources**\
+`Multiple videos captured Schröder and Dončić going at each other during the game on Dec. 28.`\
+https://nytimes.com/athletic/6960622/2026/01/10/kings-dennis-shroder-suspended-3-games-nba/
+
 **Death Toll Grows as Nationwide Protests Rock Iran for a Third Night**\
 `Antigovernment unrest that began two weeks ago has intensified in recent days, as has violence.`\
 https://nytimes.com/2026/01/10/world/middleeast/iran-protests-death-toll.html
 
 **Bears' T.J. Edwards carted off, ruled out vs. Packers with left ankle injury**\
-`Edwards left the field with an air cast on his left leg, leaving a struggling Bears defense without one of its top leaders.`\
+`Edwards left the field with an air cast on his left leg, leaving a Bears defense without one of its top leaders in the wild-card game.`\
 https://nytimes.com/athletic/6960616/2026/01/10/tj-edwards-bears-leg-injury-packers-wild-card/
 
 **Judge Pauses Trump Policy Ending Family Reunification for Some Migrants**\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6960315/2026/01/10/rams-panthers-score-result-takea
 **Who Was Renee Good, the Woman Killed by an ICE Agent in Minneapolis?**\
 `Ms. Good, 37, was a poet and a mother who grew up in Colorado. Her wife said the couple had “stopped to support our neighbors” when Ms. Good was shot.`\
 https://nytimes.com/2026/01/10/us/rennee-good-ice-shooting-minnesota.html
-
-**Trump Is Briefed on Options for Striking Iran as Protests Continue**\
-`The president has said he will be “hitting them very hard” if Iranian leaders kill protesters amid widespread demonstrations calling for wholesale changes in the country.`\
-https://nytimes.com/2026/01/10/us/politics/trump-iran-strikes.html
 
