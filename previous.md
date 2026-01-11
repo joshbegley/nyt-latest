@@ -1,3 +1,11 @@
+**Texas lands coveted transfer Cam Coleman, gives Arch Manning elite receiving option**\
+`The former five-star prospect was one of the only bright spots on an Auburn offense that struggled mightily in 2025.`\
+https://nytimes.com/athletic/6934476/2026/01/11/texas-cam-coleman-transfer-wide-receiver/
+
+**The Briefing: Man Utd 1 Brighton 2 - more cup misery, Mainoo returns and what now for Fletcher?**\
+`Chris McKenna analyses the main talking points from Manchester United's FA Cup third-round exit at the hands of Brighton & Hoive Albion`\
+https://nytimes.com/athletic/6949094/2026/01/11/man-utd-brighton-fa-cup-analysis/
+
 **Trump Says Cuba Will No Longer Get ‘Oil or Money’ From Venezuela**\
 `President Trump urged Cuba to “make a deal, before it’s too late” in a social media post, but it was unclear what he meant. Cuba’s president responded with defiance.`\
 https://nytimes.com/2026/01/11/us/politics/trump-venezuela-oil-cuba.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6961429/2026/01/11/ole-miss-deuce-knight-transfer-a
 **Erich von Däniken, Who Claimed Aliens Visited Earth, Dies at 90**\
 `His 1968 book, “Chariots of the Gods,” sold hundreds of thousands of copies, but one critic called it a “warped parody of reasoning.”`\
 https://nytimes.com/2026/01/11/obituaries/erich-von-daniken-dead.html
-
-**How to watch Heat vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961522/2026/01/11/heat-vs-thunder-stream-how-to-watch-jan-11/
-
-**How to watch Spurs vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961517/2026/01/11/spurs-vs-timberwolves-stream-how-to-watch-jan-11/
 

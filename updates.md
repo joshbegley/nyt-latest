@@ -1,3 +1,11 @@
+**Texas lands coveted transfer Cam Coleman, gives Arch Manning elite receiving option**\
+`The former five-star prospect was one of the only bright spots on an Auburn offense that struggled mightily in 2025.`\
+https://nytimes.com/athletic/6934476/2026/01/11/texas-cam-coleman-transfer-wide-receiver/
+
+**The Briefing: Man Utd 1 Brighton 2 - more cup misery, Mainoo returns and what now for Fletcher?**\
+`Chris McKenna analyses the main talking points from Manchester United's FA Cup third-round exit at the hands of Brighton & Hoive Albion`\
+https://nytimes.com/athletic/6949094/2026/01/11/man-utd-brighton-fa-cup-analysis/
+
 **Trump Says Cuba Will No Longer Get ‘Oil or Money’ From Venezuela**\
 `President Trump urged Cuba to “make a deal, before it’s too late” in a social media post, but it was unclear what he meant. Cuba’s president responded with defiance.`\
 https://nytimes.com/2026/01/11/us/politics/trump-venezuela-oil-cuba.html
