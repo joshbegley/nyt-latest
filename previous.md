@@ -1,3 +1,7 @@
+**This Warm Rice Salad Is a Puffy Jacket in Food Form**\
+`By Genevieve Ko`\
+https://nytimes.com/2026/01/11/dining/this-warm-rice-salad-is-a-puffy-jacket-in-food-form.html
+
 **Portsmouth 1 Arsenal 4 - How good was Martinelli? Set pieces unstoppable? Who took their chance?**\
 `Our writer breaks down the talking points as much-changed Arsenal reached the fourth round of the FA Cup`\
 https://nytimes.com/athletic/6949093/2026/01/11/arsenal-martinelli-havertz-fa-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6961142/2026/01/11/chicago-bulls-bears-nba-nfl-coop
 **Lowetide: Why Oilers prospect Josh Samanski is pushing for recall**\
 `Samanski is NHL-ready and should be considered as a strong option for the Oilers' next call-up.`\
 https://nytimes.com/athletic/6959885/2026/01/11/edmonton-oilers-josh-samanski-prospect/
-
-**Malaysia and Indonesia Block Access to Grok Because of Sexually Explicit Content**\
-`Grok, the chatbot created by Elon Musk’s artificial intelligence company, has produced a flood of explicit images featuring real people in recent weeks.`\
-https://nytimes.com/2026/01/11/world/asia/malaysia-indonesia-grok-ban.html
 

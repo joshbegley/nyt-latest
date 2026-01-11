@@ -1,3 +1,7 @@
+**This Warm Rice Salad Is a Puffy Jacket in Food Form**\
+`By Genevieve Ko`\
+https://nytimes.com/2026/01/11/dining/this-warm-rice-salad-is-a-puffy-jacket-in-food-form.html
+
 **Portsmouth 1 Arsenal 4 - How good was Martinelli? Set pieces unstoppable? Who took their chance?**\
 `Our writer breaks down the talking points as much-changed Arsenal reached the fourth round of the FA Cup`\
 https://nytimes.com/athletic/6949093/2026/01/11/arsenal-martinelli-havertz-fa-cup/
