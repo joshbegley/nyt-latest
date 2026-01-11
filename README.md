@@ -1,3 +1,11 @@
+**Ferrari releases name of new F1 car for Hamilton and Leclerc ahead of 2026 season**\
+`The 2026 season could be Hamilton's last chance win an eighth world championship and pass Michael Schumacher in F1 the record books.`\
+https://nytimes.com/athletic/6961537/2026/01/11/ferrari-f1-lewis-hamilton-charles-leclerc-new-car-name/
+
+**After Minnesota Shooting, ICE Again Limits Congressional Visits**\
+`The new guidelines for immigration facilities, issued by Kristi Noem, the homeland security secretary, are virtually identical to a policy that a federal judge halted last month.`\
+https://nytimes.com/2026/01/11/us/politics/minnesota-shooting-immigration-facilities-congressional-visits.html
+
 **Texas lands coveted transfer Cam Coleman, gives Arch Manning elite receiving option**\
 `The former five-star prospect was one of the only bright spots on an Auburn offense that struggled mightily in 2025.`\
 https://nytimes.com/athletic/6934476/2026/01/11/texas-cam-coleman-transfer-wide-receiver/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/11/us/politics/us-iran-strike-protests-warner.html
 **Getting Ready for the Golden Globes**\
 `Text by Krista Schlueter`\
 https://nytimes.com/card/2026/01/11/arts/
-
-**Ex-Auburn QB Deuce Knight commits to Ole Miss: What it means for Rebels**\
-`The commitment comes after Ole Miss QB Trinidad Chambliss' waiver request for an extra season of eligibility in 2026 was denied.`\
-https://nytimes.com/athletic/6961429/2026/01/11/ole-miss-deuce-knight-transfer-auburn/
-
-**Erich von Däniken, Who Claimed Aliens Visited Earth, Dies at 90**\
-`His 1968 book, “Chariots of the Gods,” sold hundreds of thousands of copies, but one critic called it a “warped parody of reasoning.”`\
-https://nytimes.com/2026/01/11/obituaries/erich-von-daniken-dead.html
 
