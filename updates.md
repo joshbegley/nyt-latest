@@ -1,3 +1,7 @@
+**Getting Ready for the Golden Globes**\
+`Text by Krista Schlueter`\
+https://nytimes.com/card/2026/01/11/arts/
+
 **Erich von Däniken, Who Claimed Aliens Visited Earth, Dies at 90**\
 `His 1968 book, “Chariots of the Gods,” sold hundreds of thousands of copies, but one critic called it a “warped parody of reasoning.”`\
 https://nytimes.com/2026/01/11/obituaries/erich-von-daniken-dead.html

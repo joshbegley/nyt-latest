@@ -1,3 +1,7 @@
+**Getting Ready for the Golden Globes**\
+`Text by Krista Schlueter`\
+https://nytimes.com/card/2026/01/11/arts/
+
 **Ex-Auburn QB Deuce Knight commits to Ole Miss**\
 `The commitment comes after Ole Miss QB Trinidad Chambliss' waiver request for an extra season of eligibility in 2026 was denied.`\
 https://nytimes.com/athletic/6961429/2026/01/11/ole-miss-deuce-knight-transfer-auburn/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6961508/2026/01/11/capitals-vs-predators-stream-how
 **How to watch Penguins vs. Bruins: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Boston Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961506/2026/01/11/penguins-vs-bruins-stream-how-to-watch-jan-11/
-
-**Bradley's cruel knee injury leaves Liverpool short of options in defence**\
-`The 22-year-old has struggled with injuries in his short career, but no absence will feel as badly timed as this one`\
-https://nytimes.com/athletic/6961343/2026/01/11/conor-bradley-knee-injury-liverpool-defence/
 
