@@ -1,3 +1,8 @@
+**James van Riemsdyk arrives at Red Wings game dressed as Batman for son's birthday**\
+`The veteran, who is out of town for a huge divisional clash in Montreal, found a way to celebrate his son Liam's fourth birthday from afar.
+`\
+https://nytimes.com/athletic/6960578/2026/01/10/red-wings-james-van-riemsdyk-batman/
+
 **Jason Kidd ejected by Scott Foster less than 7 minutes into Mavericks-Bulls game**\
 `Head coach gets tossed from a game for the only second time in his five-year tenure with the Mavericks.`\
 https://nytimes.com/athletic/6960617/2026/01/10/jason-kidd-ejected-scott-foster-mavericks-bulls/
