@@ -1,3 +1,7 @@
+**The Big Inshallah**\
+`After his toddler was diagnosed with cancer, a writer asked: “What now?”`\
+https://nytimes.com/2026/01/11/briefing/the-big-inshallah.html
+
 **Red Wings show mettle in huge divisional win over Canadiens: Five thoughts**\
 `Detroit's 4-0 shutout of Montreal was a statement performance in the first of many second-half tests.`\
 https://nytimes.com/athletic/6960709/2026/01/11/red-wings-divisional-win-canadiens/
