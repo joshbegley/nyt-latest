@@ -1,3 +1,7 @@
+**Iran’s President Warns Protesters Not to Destabilize the Country**\
+`Masoud Pezeshkian expressed sympathy for protesters’ economic pain, but said the state must respond to “rioters.” The death toll from the protests rose to about 200, rights groups said.`\
+https://nytimes.com/2026/01/11/world/middleeast/irans-president-warns-protesters-not-to-destabilize-the-country.html
+
 **Syrian Military Takes Aleppo Neighborhoods After Clashes With Kurds**\
 `The takeover ended one of the worst outbreaks of violence between the central government and the Kurdish-led forces since the end of the civil war just over a year ago.`\
 https://nytimes.com/2026/01/11/world/middleeast/syria-military-aleppo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/11/world/asia/malaysia-indonesia-grok-ban.html
 **Bob Weir: A Life in Pictures**\
 `The Grateful Dead guitarist, singer and songwriter was a bedrock of the band that became a psychedelic institution.`\
 https://nytimes.com/2026/01/11/arts/music/bob-weir-grateful-dead-photos.html
-
-**The Pulse: Wildest 10 minutes you can imagine**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6960951/2026/01/11/the-wildest-10-minutes-imaginable-delivers-bears-a-stunning-comeback/
 
