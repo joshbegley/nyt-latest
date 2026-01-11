@@ -1,3 +1,19 @@
+**Inside the greatest FA Cup upset of all: Bandages, tractors and a club driven by grief**\
+`Macclesfield's shock win against FA Cup holders Crystal Palace will live long in the memory. This is how they did it`\
+https://nytimes.com/athletic/6959548/2026/01/11/macclesfield-crystal-palace-fa-cup-history/
+
+**Thierry Henry's iconic Fratton Park moment – in a Portsmouth shirt. "I'll always remember it"**\
+`Across two meetings in 2004, the Arsenal striker showed his brilliance and was serenaded by opposition fans at the end of a historic season`\
+https://nytimes.com/athletic/6937292/2026/01/11/thierry-henry-portsmouth-shirt-arsenal/
+
+**The Hull City fan who picked a trip to Marrakech over Millwall… because it was cheaper**\
+`Scott Wood joined Nigeria fans at the Africa Cup of Nations after working out it would cost less than going to a game in London`\
+https://nytimes.com/athletic/6959611/2026/01/11/hull-fan-afcon-nigeria/
+
+**'Irate' Jaylen Brown says refs were 'terrible' during Celtics loss to Spurs**\
+`Boston's star guard didn't hold back about his anger toward the officiating crew in Saturday's defeat.`\
+https://nytimes.com/athletic/6960807/2026/01/11/irate-jaylen-brown-says-refs-were-terrible-during-celtics-loss-to-spurs/
+
 **Crystal Palace. What just happened?**\
 `Oliver Glasner's side have not been at their best for a while now and this seismic shock begs the question: Where do they go from here?`\
 https://nytimes.com/athletic/6960143/2026/01/11/crystal-palace-macclesfield-glasner/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/11/pageoneplus/quote-of-the-day-beyond-fences-ranche
 **How Kit Harington Left Jon Snow Behind**\
 `The actor crashed after “Game of Thrones.” Now, as he returns in a new season of “Industry” on HBO, he feels like “one of the luckiest people alive.”`\
 https://nytimes.com/2026/01/11/arts/television/kit-harington-industry-game-of-thrones.html
-
-**India’s Ties With Bangladesh Fray as Elections Loom**\
-`A simmering dispute between the neighbors, who share one of the largest land borders in the world, has escalated with diplomatic protests and a sports boycott.`\
-https://nytimes.com/2026/01/11/world/asia/india-bangladesh-tensions.html
-
-**The Athletic Show: NFL playoff vibes, the SEC's decline, and can Tom Brady save the Raiders?**\
-`Episode 9 of "The Athletic Show" leans in on the NFL and college football postseasons.`\
-https://nytimes.com/athletic/6957794/2026/01/11/the-athletic-show-nfl-playoffs-sec-decline-tom-brady-raiders/
-
-**Connections: Sports Edition Coach: Hints for Jan. 11, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6960839/2026/01/11/connections-sports-edition-hints-for-jan-11-2026/
-
-**Corrections: Jan. 11, 2026**\
-`Corrections that appeared in print on Sunday, Jan. 11, 2026.`\
-https://nytimes.com/2026/01/11/pageoneplus/corrections-jan-11-2026.html
 
