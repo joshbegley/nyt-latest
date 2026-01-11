@@ -1,3 +1,11 @@
+**Trump Says Cuba Will No Longer Get ‘Oil or Money’ From Venezuela**\
+`President Trump urged Cuba to “make a deal, before it’s too late” in a social media post, but it was unclear what he meant. Cuba’s president responded with defiance.`\
+https://nytimes.com/2026/01/11/us/politics/trump-venezuela-oil-cuba.html
+
+**Ex-Auburn QB Deuce Knight commits to Ole Miss: What it means for Rebels**\
+`The commitment comes after Ole Miss QB Trinidad Chambliss' waiver request for an extra season of eligibility in 2026 was denied.`\
+https://nytimes.com/athletic/6961429/2026/01/11/ole-miss-deuce-knight-transfer-auburn/
+
 **Guantánamo Prison Enters 25th Year**\
 `The prison has outlasted the war in Afghanistan, has employed tens of thousands of temporary troops and holds six men charged but not yet tried in death penalty cases.`\
 https://nytimes.com/2026/01/11/us/politics/guantanamo-prison-25th-anniversary.html
