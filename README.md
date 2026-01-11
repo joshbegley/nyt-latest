@@ -1,5 +1,5 @@
 **Falcons' new president of football Matt Ryan bullish as he bids farewell to CBS**\
-`Ryan is hoping to lead the Falcons back to the playoffs. “You want to be in the mix," he said. "It’s been too long there."`\
+`Ryan hopes to lead the Falcons back to the playoffs. “You want to be in the mix," he said. "It’s been too long there."`\
 https://nytimes.com/athletic/6961549/2026/01/11/matt-ryan-falcons-president-football-playoffs-cbs/
 
 **Once Again, Oldest Mississippi Synagogue Is Attacked With Fire**\
