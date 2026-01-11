@@ -1,3 +1,7 @@
+**The Briefing: Barcelona 3 Real Madrid 2 — Raphinha wins battle of the Brazilians, has Alonso done enough to stay?**\
+`Barcelona took the bragging rights against Madrid in the Supercopa de Espana final, but what does it mean for Alonso's future?`\
+https://nytimes.com/athletic/6957114/2026/01/11/barcelona-real-madrid-clasico-analysis-result-supercopa/
+
 **Notre Dame defends Marcus Freeman after battery accusation emerges**\
 `Freeman has been accused of battery stemming from an alleged altercation that occurred during a high school wrestling tournament.`\
 https://nytimes.com/athletic/6961846/2026/01/11/notre-dame-marcus-freeman-battery-accusation/
