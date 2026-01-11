@@ -11,7 +11,7 @@ https://nytimes.com/issue/todayspaper/2026/01/11/todays-new-york-times
 https://nytimes.com/2026/01/11/opinion/pope-leo-trump-world-order-peace.html
 
 **Sorokin shines, Kaprizov hits milestone and Ben Jones gets No. 1: Wild takeaways**\
-`Kirill Kaprizov passed Mikko Koivu for second all-time with the Wild in career points and was buzzing all night long.`\
+`Kirill Kaprizov passed Mikko Koivu for second in career points with the Wild and was buzzing all night long.`\
 https://nytimes.com/athletic/6960875/2026/01/11/wild-loss-sorokin-kaprizov-jones-takeaways/
 
 **The Ashes 2025-26: The story of Australia's thrashing of England in 14 pictures**\

@@ -1,3 +1,7 @@
+**Sorokin shines, Kaprizov hits milestone and Ben Jones gets No. 1: Wild takeaways**\
+`Kirill Kaprizov passed Mikko Koivu for second in career points with the Wild and was buzzing all night long.`\
+https://nytimes.com/athletic/6960875/2026/01/11/wild-loss-sorokin-kaprizov-jones-takeaways/
+
 **The World Order Is Dead. What Comes Next?**\
 `With the president’s actions in Venezuela, we’re entering a new era. Here’s what it could look like.`\
 https://nytimes.com/interactive/2026/01/11/opinion/trump-new-world-order.html
