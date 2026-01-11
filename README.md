@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Nicole Sperling`\
+https://nytimes.com/2026/01/11/arts/heres-the-latest.html
+
+**Thousands March in New York to Protest ICE Killing and Denounce Trump**\
+`About 2,000 protesters, prompted by the fatal shooting of a woman in Minneapolis by a federal immigration agent, gathered near Central Park and marched through Manhattan.`\
+https://nytimes.com/2026/01/11/us/politics/ice-protest-nyc-trump.html
+
 **Josh Allen, Bills push their way past Jaguars and into divisional round**\
 `The Bills advance to the AFC divisional round for the sixth year in a row`\
 https://nytimes.com/athletic/6961681/2026/01/11/bills-jaguars-score-result-takeaways-nfl-wild-card/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6961730/2026/01/11/mite-hockey-brawl-ahl-investigat
 **Richard Codey, Former New Jersey Governor, Dies at 79**\
 `He was the longest serving legislator in New Jersey, while also running an insurance company and funeral home and coaching youth basketball.`\
 https://nytimes.com/2026/01/11/nyregion/richard-codey-dead-new-jersey.html
-
-**Dave Canales says Panthers bringing back DC Ejiro Evero**\
-`Despite criticism after the Rams' final drive Saturday night, Evero's defense made big improvements from 2024.`\
-https://nytimes.com/athletic/6961691/2026/01/11/panthers-ejiro-evero-defensive-coordinator-contract/
-
-**How to watch Rockets vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961774/2026/01/11/rockets-vs-kings-stream-how-to-watch-jan-11/
 
