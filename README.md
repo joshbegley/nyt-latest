@@ -1,3 +1,11 @@
+**Death Toll Grows as Nationwide Protests Rock Iran for a Third Night**\
+`Antigovernment unrest that began two weeks ago has intensified in recent days, as has violence.`\
+https://nytimes.com/2026/01/10/world/middleeast/iran-protests-death-toll.html
+
+**Bears' T.J. Edwards carted off, ruled out vs. Packers with left ankle injury**\
+`Edwards left the field with an air cast on his left leg, leaving a struggling Bears defense without one of its top leaders.`\
+https://nytimes.com/athletic/6960616/2026/01/10/tj-edwards-bears-leg-injury-packers-wild-card/
+
 **Judge Pauses Trump Policy Ending Family Reunification for Some Migrants**\
 `The policy applied to migrants from some Central and South American countries who were awaiting visas.`\
 https://nytimes.com/2026/01/10/us/family-reunification-judge.html
@@ -30,12 +38,4 @@ https://nytimes.com/2026/01/10/us/rennee-good-ice-shooting-minnesota.html
 **Trump Is Briefed on Options for Striking Iran as Protests Continue**\
 `The president has said he will be “hitting them very hard” if Iranian leaders kill protesters amid widespread demonstrations calling for wholesale changes in the country.`\
 https://nytimes.com/2026/01/10/us/politics/trump-iran-strikes.html
-
-**Bob Weir, Guitarist and Founding Member of the Grateful Dead, Dies at 78**\
-`His songwriting and rhythm guitar playing helped shape the San Francisco band’s sound as it became an American institution.`\
-https://nytimes.com/2026/01/10/obituaries/bob-weir-dead-grateful-dead.html
-
-**Rangers 'embarrassed' in Boston, leaving no doubt: It's time to sell, sell, sell**\
-`"That’s as bad as it gets," captain J.T. Miller said after New York's 10-2 loss to the Bruins. "This should make you want to puke."`\
-https://nytimes.com/athletic/6960294/2026/01/10/new-york-rangers-bruins-trade-deadline/
 
