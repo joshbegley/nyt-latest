@@ -1,3 +1,11 @@
+**Mass Protests in Iran and Trump’s Threats**\
+`A question now hangs over the country: Is Iran the next target of an emboldened U.S. president?`\
+https://nytimes.com/2026/01/11/world/mass-protests-iran-trump-venezuela.html
+
+**The Briefing: Barcelona 3 Real Madrid 2 – Raphinha wins battle of the Brazilians, has Alonso done enough to stay?**\
+`Barcelona took the bragging rights against Madrid in the Supercopa de Espana final, but what does it mean for Alonso's future?`\
+https://nytimes.com/athletic/6957114/2026/01/11/barcelona-real-madrid-clasico-analysis-result-supercopa/
+
 **The Briefing: Barcelona 3 Real Madrid 2 — Raphinha wins battle of the Brazilians, has Alonso done enough to stay?**\
 `Barcelona took the bragging rights against Madrid in the Supercopa de Espana final, but what does it mean for Alonso's future?`\
 https://nytimes.com/athletic/6957114/2026/01/11/barcelona-real-madrid-clasico-analysis-result-supercopa/
