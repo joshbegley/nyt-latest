@@ -1,3 +1,15 @@
+**What was that? Packers nearly turn it over on pass to offensive lineman**\
+`Kinnard, a reserve offensive lineman, tried to go hero mode and turn a short pass into a first down. He nearly handed the ball to the Bears.`\
+https://nytimes.com/athletic/6960725/2026/01/10/packers-bears-pass-offensive-lineman-darian-kinnard/
+
+**Smithsonian Removes Label Noting Trump Impeachments**\
+`When the National Portrait Gallery replaced a portrait of President Trump this week, it took down a biography of his first term.`\
+https://nytimes.com/2026/01/10/arts/smithsonian-trump-impeachment-portrait-gallery.html
+
+**Third baseman Alex Bregman reaches 5-year, $175 million deal to join Cubs: Source**\
+`Bregman became a free agent this offseason, having opted out of his three-year contract with the Boston Red Sox.`\
+https://nytimes.com/athletic/6840354/2026/01/10/mlb-alex-bregman-free-agency-cubs/
+
 **James van Riemsdyk arrives at Red Wings game dressed as Batman for son's birthday**\
 `The veteran, who is out of town for a huge divisional clash in Montreal, found a way to celebrate his son Liam's fourth birthday from afar.
 `\
