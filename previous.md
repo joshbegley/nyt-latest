@@ -1,40 +1,40 @@
-**Matthew Stafford snatched the Panthers' hearts to save the Rams' season**\
-`While Stafford wasn't at his best against Carolina, he orchestrated arguably the most clutch drive of his career in the waning moments. `\
-https://nytimes.com/athletic/6960683/2026/01/11/rams-matthew-stafford-game-winning-drive-panthers/
+**Red Wings show mettle in huge divisional win over Canadiens: Five thoughts**\
+`Detroit's 4-0 shutout of Montreal was a statement performance in the first of many second-half tests.`\
+https://nytimes.com/athletic/6960709/2026/01/11/red-wings-divisional-win-canadiens/
 
-**The New York Times International Edition in Print for Monday, Jan. 12, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/01/11/todays-new-york-times-international-edition
+**NFL playoffs Sunday watch guide: Bills-Jaguars, 49ers-Eagles, Chargers-Patriots**\
+`This is the sole day of the NFL playoffs with three games scheduled, and each matchup carries large national intrigue.`\
+https://nytimes.com/athletic/6952649/2026/01/11/nfl-playoffs-bills-jaguars-49ers-eagles-chargers-patriots/
 
-**How to watch Illinois vs. Iowa men's basketball: Time, TV, streaming**\
-`Find out how to watch the Illinois Fighting Illini play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961129/2026/01/11/illinois-vs-iowa-stream-how-to-watch-jan-11/
+**Two leagues, five rings: How Mathieu and J.P. Darche forged their unusual NFL-NHL success**\
+`Separated in age by only 21 months, the Darche brothers navigated unconventional paths to their sports’ highest levels together.`\
+https://nytimes.com/athletic/6957984/2026/01/11/mathieu-jp-darche-brothers-nfl-nhl/
 
-**How to watch North Carolina vs. Notre Dame women's basketball: Time, TV, streaming**\
-`Find out how to watch the North Carolina Tar Heels play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961127/2026/01/11/north-carolina-vs-notre-dame-stream-how-to-watch-jan-11/
+**Sabres' Josh Doan continues his breakout season in win over Ducks: 5 thoughts**\
+`Doan showed up all over the ice again for Buffalo, which won its 13th out of 14 on Saturday night.`\
+https://nytimes.com/athletic/6960832/2026/01/11/sabres-josh-doan-win-ducks/
 
-**Somalis Fled Civil War and Built a Community. Now They Are a Target.**\
-`A fraud scandal has made the Somali community in Minnesota a focus of the Trump administration’s crackdown on immigrants.`\
-https://nytimes.com/2026/01/11/us/somalis-fled-civil-war-and-built-a-community-now-they-are-a-target.html
+**Law: Cubs bolster infield with Bregman. Will Boston turn to Bichette?**\
+`For the short term, Alex Bregman is comfortable upgrade for the Cubs, Keith Law writes, but now the team has one infielder too many.`\
+https://nytimes.com/athletic/6960882/2026/01/11/alex-bregman-cubs-red-sox-bo-bichette/
 
-**With the Golden Globes, Podcasts Are Ready for Their Close-Up**\
-`The annual awards show will anoint a best podcast for the first time this year, a sign of the industry’s increasing status in Hollywood.`\
-https://nytimes.com/2026/01/11/business/media/golden-globes-podcasts.html
+**Matt LaFleur's future: Packers' Ed Policy faces critical decision after playoff collapse**\
+`LaFleur has one season remaining on his contract. Policy figures to extend or move on from the coach in the near future.`\
+https://nytimes.com/athletic/6961021/2026/01/11/packers-matt-lafleur-playoffs-bears-ed-policy/
 
-**Trump Is the Political Earthquake Shaking Latin America**\
-`The U.S. capture of Nicolás Maduro has divided the region. But every nation wants to avoid being next.`\
-https://nytimes.com/2026/01/11/world/americas/trump-is-the-political-earthquake-shaking-latin-america.html
+**I’m in Denmark’s Parliament. Mr. President, We’re Already on Your Side.**\
+`Security cooperation should be discussed openly and seriously. Territorial claims between allies should not.`\
+https://nytimes.com/2026/01/11/opinion/greenland-denmark-trump-nato.html
 
-**Violence at a Minneapolis School Hours After ICE Shooting**\
-`As Minneapolis reels in the aftermath of a fatal shooting, the city shuts down its public schools following a violent confrontation between federal agents and civilians at a local high school.`\
-https://nytimes.com/video/us/100000010633405/minneapolis-border-patrol-school-ice.html
+**Trump and Vance Are Fanning the Flames. Again.**\
+`Renee Good was not a “domestic terrorist.”`\
+https://nytimes.com/2026/01/11/opinion/renee-good-trump-ice-minneapolis.html
 
-**Are You Fat Enough to Play in This Soccer League?**\
-`Man v Fat, a soccer league founded in Britain a decade ago, is expanding in the United States, bringing with it a self-deprecating approach to shedding pounds.`\
-https://nytimes.com/2026/01/11/us/dallas-fat-soccer.html
+**And the Golden Globe for Best Podcast Goes To … Wait, Who?**\
+`Nobody takes the Golden Globes all that seriously. But podcasts should be taken seriously.`\
+https://nytimes.com/2026/01/11/opinion/culture/golden-globes-best-podcast.html
 
-**This Dinosaur Really Knew How to Get a Grip**\
-`A fossil of Manipulonyx reshetovi, found in a Mongolian desert, shows how the dinosaur used its specialized claw to snatch eggs.`\
-https://nytimes.com/2026/01/11/science/dinosaurs-fossils-eggs-claw.html
+**Wordle Review No. 1,668**\
+`Scroll down for hints and conversation about the puzzle for Monday, Jan. 12, 2026.`\
+https://nytimes.com/2026/01/11/crosswords/wordle-review-1668.html
 

@@ -1,3 +1,7 @@
+**The Big Inshallah**\
+`After his toddler was diagnosed with cancer, a writer asked: “What now?”`\
+https://nytimes.com/2026/01/11/briefing/the-big-inshallah.html
+
 **Red Wings show mettle in huge divisional win over Canadiens: Five thoughts**\
 `Detroit's 4-0 shutout of Montreal was a statement performance in the first of many second-half tests.`\
 https://nytimes.com/athletic/6960709/2026/01/11/red-wings-divisional-win-canadiens/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/11/opinion/renee-good-trump-ice-minneapolis.html
 **And the Golden Globe for Best Podcast Goes To … Wait, Who?**\
 `Nobody takes the Golden Globes all that seriously. But podcasts should be taken seriously.`\
 https://nytimes.com/2026/01/11/opinion/culture/golden-globes-best-podcast.html
-
-**Wordle Review No. 1,668**\
-`Scroll down for hints and conversation about the puzzle for Monday, Jan. 12, 2026.`\
-https://nytimes.com/2026/01/11/crosswords/wordle-review-1668.html
 
