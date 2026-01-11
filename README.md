@@ -1,3 +1,7 @@
+**The Pulse: Wildest 10 minutes you can imagine**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6960951/2026/01/11/the-wildest-10-minutes-imaginable-delivers-bears-a-stunning-comeback/
+
 **Trump Administration Live Updates: President Is Briefed on Options for Striking Iran as Protests Continue**\
 ``\
 https://nytimes.com/live/2026/01/11/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6961260/2026/01/11/texas-vs-lsu-stream-how-to-watch
 **How to watch Vanderbilt vs. Texas A&M women's basketball: Time, TV, streaming**\
 `Find out how to watch the Vanderbilt Commodores play the Texas A&M Aggies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961257/2026/01/11/vanderbilt-vs-texas-a-m-stream-how-to-watch-jan-11/
-
-**How to watch USC vs. Minnesota women's basketball: Time, TV, streaming**\
-`Find out how to watch the USC Trojans play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961254/2026/01/11/usc-vs-minnesota-stream-how-to-watch-jan-11/
 
