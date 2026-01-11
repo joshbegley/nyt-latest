@@ -1,3 +1,11 @@
+**Portsmouth 1 Arsenal 4 - How good was Martinelli? Set pieces unstoppable? Who took their chance?**\
+`Our writer breaks down the talking points as much-changed Arsenal reached the fourth round of the FA Cup`\
+https://nytimes.com/athletic/6949093/2026/01/11/arsenal-martinelli-havertz-fa-cup/
+
+**Iran’s President Warns Protesters Not to Destabilize the Country**\
+`Masoud Pezeshkian expressed sympathy for protesters’ economic pain, but said the state must respond to “rioters.” The death toll from the protests rose to about 200, rights groups said.`\
+https://nytimes.com/2026/01/11/world/middleeast/irans-president-warns-protesters-not-to-destabilize-the-country.html
+
 **Syrian Military Takes Aleppo Neighborhoods After Clashes With Kurds**\
 `The takeover ended one of the worst outbreaks of violence between the central government and the Kurdish-led forces since the end of the civil war just over a year ago.`\
 https://nytimes.com/2026/01/11/world/middleeast/syria-military-aleppo.html
