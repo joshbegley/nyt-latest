@@ -1,3 +1,11 @@
+**Who Was Renee Good, the Woman Killed by an ICE Agent in Minneapolis?**\
+`Ms. Good, 37, was a poet and a mother who grew up in Colorado. Her wife said the couple had “stopped to support our neighbors” when Ms. Good was shot.`\
+https://nytimes.com/2026/01/10/us/rennee-good-ice-shooting-minnesota.html
+
+**Trump Is Briefed on Options for Striking Iran as Protests Continue**\
+`The president has said he will be “hitting them very hard” if Iranian leaders kill protesters amid widespread demonstrations calling for wholesale changes in the country.`\
+https://nytimes.com/2026/01/10/us/politics/trump-iran-strikes.html
+
 **Bob Weir, Guitarist and Founding Member of the Grateful Dead, Dies at 78**\
 `His songwriting and rhythm guitar playing helped shape the San Francisco band’s sound as it emerged to become an American institution.`\
 https://nytimes.com/2026/01/10/obituaries/bob-weir-dead-grateful-dead.html
