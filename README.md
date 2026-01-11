@@ -1,3 +1,7 @@
+**Third baseman Alex Bregman reaches 5-year, $175 million deal to join Cubs: Source**\
+`Bregman became a free agent this offseason, having opted out of his three-year contract with the Boston Red Sox.`\
+https://nytimes.com/athletic/6840354/2026/01/10/mlb-alex-bregman-free-agency-cubs/
+
 **Jason Kidd ejected by Scott Foster less than 7 minutes into Mavericks-Bulls game**\
 `Head coach gets tossed from a game for the only second time in his five-year tenure with the Mavericks.`\
 https://nytimes.com/athletic/6960617/2026/01/10/jason-kidd-ejected-scott-foster-mavericks-bulls/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6960400/2026/01/10/ucf-houston-unlv-nil-income-taxe
 `The veteran, who is out of town for a huge divisional clash in Montreal, found a way to celebrate his son Liam's fourth birthday from afar.
 `\
 https://nytimes.com/athletic/6960578/2026/01/10/red-wings-james-van-riemsdyk-batman/
-
-**Sidney Crosby fumes about goalie interference call as Penguins stumble against Flames**\
-`The Penguins had a goal disallowed and Crosby wasn't happy about it following a 2-1 loss to Calgary on Saturday.`\
-https://nytimes.com/athletic/6953038/2026/01/10/sidney-crosby-penguins-flames-goalie-interference/
 
