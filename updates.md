@@ -1,3 +1,7 @@
+**What next for Strand Larsen after he delivers a reminder of why he is a wanted man?**\
+`The Norway forward has struggled for form and goals this season, and may yet leave the club during this transfer window`\
+https://nytimes.com/athletic/6959774/2026/01/11/jorgen-strand-larsen-what-next/
+
 **Sorokin shines, Kaprizov hits milestone and Ben Jones gets No. 1: Wild takeaways**\
 `Kirill Kaprizov passed Mikko Koivu for second in career points with the Wild and was buzzing all night long.`\
 https://nytimes.com/athletic/6960875/2026/01/11/wild-loss-sorokin-kaprizov-jones-takeaways/

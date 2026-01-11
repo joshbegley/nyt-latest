@@ -1,3 +1,7 @@
+**The Cubs have long been fascinated with Alex Bregman. They finally signed him**\
+`Given another chance, the Cubs did not wait around until spring training or mess around with a team-friendly offer. `\
+https://nytimes.com/athletic/6960991/2026/01/11/chicago-cubs-alex-bregman-pursuit-complete/
+
 **The World Order Is Dead. What Comes Next?**\
 `With the president’s actions in Venezuela, we’re entering a new era. Here’s what it could look like.`\
 https://nytimes.com/interactive/2026/01/11/opinion/trump-new-world-order.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6960316/2026/01/11/bears-packers-score-result-takea
 **What next for Strand Larsen after he delivers a reminder of why he is a wanted man?**\
 `The Norway forward has struggled for form and goals this season, and may yet leave the club during this transfer window`\
 https://nytimes.com/athletic/6959774/2026/01/11/jorgen-strand-larsen-what-next/
-
-**Barcelona, Real Madrid and the €8.4m Negreira payments: A shadow over El Clasico**\
-`Investigations into Barca's €8.4million payments to a former referees chief are still ongoing`\
-https://nytimes.com/athletic/6957195/2026/01/11/barcelona-real-madrid-negreira-clasico-update/
 

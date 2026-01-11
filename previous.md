@@ -30,11 +30,11 @@ https://nytimes.com/athletic/6960772/2026/01/11/alex-bregman-cubs-signing-free-a
 `Bears mount the biggest playoff comeback in team history in 31-27 win to advance to the divisional round.`\
 https://nytimes.com/athletic/6960316/2026/01/11/bears-packers-score-result-takeaways-nfl-wild-card/
 
+**What next for Strand Larsen after he delivers a reminder of why he is a wanted man?**\
+`The Norway forward has struggled for form and goals this season, and may yet leave the club during this transfer window`\
+https://nytimes.com/athletic/6959774/2026/01/11/jorgen-strand-larsen-what-next/
+
 **Barcelona, Real Madrid and the €8.4m Negreira payments: A shadow over El Clasico**\
 `Investigations into Barca's €8.4million payments to a former referees chief are still ongoing`\
 https://nytimes.com/athletic/6957195/2026/01/11/barcelona-real-madrid-negreira-clasico-update/
-
-**The state of football commentary in 2026 - as seen by those behind the microphone**\
-`Seven commentators who are regulars on UK and U.S. broadcasts on their craft, from coping with change to dealing with criticism`\
-https://nytimes.com/athletic/6932391/2026/01/11/commentators-survey-drury-strong/
 
