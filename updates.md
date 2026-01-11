@@ -1,3 +1,7 @@
+**Olympic hockey arena's test event leaves IIHF president 'little bit more confident'**\
+`Luc Tardif was particularly pleased with how the ice surface held up to a three-game day: "There is no reason that the NHL will not come."`\
+https://nytimes.com/athletic/6961335/2026/01/11/olympic-hockey-arena-iihf-president/
+
 **Israeli Police Question Top Netanyahu Aide Over Leaked Document Case**\
 `Tzachi Braverman, Prime Minister Benjamin Netanyahu’s chief of staff, was detained for questioning on Sunday over accusations that he sought to impede an investigation.`\
 https://nytimes.com/2026/01/11/world/middleeast/israel-police-netanyahu-aide-tzachi-braverman.html
