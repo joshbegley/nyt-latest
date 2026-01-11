@@ -1,3 +1,7 @@
+**Ex-Auburn QB Deuce Knight commits to Ole Miss**\
+`The commitment comes after Ole Miss QB Trinidad Chambliss' waiver request for an extra season of eligibility in 2026 was denied.`\
+https://nytimes.com/athletic/6961429/2026/01/11/ole-miss-deuce-knight-transfer-auburn/
+
 **Erich von Däniken, Who Claimed Aliens Visited Earth, Dies at 90**\
 `His 1968 book, “Chariot of the Gods,” sold hundreds of thousands of copies, but one critic called it a “warped parody of reasoning.”`\
 https://nytimes.com/2026/01/11/obituaries/erich-von-daniken-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6961506/2026/01/11/penguins-vs-bruins-stream-how-to
 **Bradley's cruel knee injury leaves Liverpool short of options in defence**\
 `The 22-year-old has struggled with injuries in his short career, but no absence will feel as badly timed as this one`\
 https://nytimes.com/athletic/6961343/2026/01/11/conor-bradley-knee-injury-liverpool-defence/
-
-**Thiel Gives $3 Million to Group Seeking to Block California Wealth Tax**\
-`More large donations from wealthy Silicon Valley figures are expected as they try to marshal opposition to a proposed ballot measure that would impose a new tax on billionaires.`\
-https://nytimes.com/2026/01/11/us/politics/peter-thiel-california-wealth-tax.html
 
