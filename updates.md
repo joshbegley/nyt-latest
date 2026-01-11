@@ -1,3 +1,11 @@
+**In wild Rams-Panthers playoff, we get a glimpse at both teams’ futures**\
+`Matthew Stafford saved his best for last and the Rams advance after a difficult battle against Bryce Young and the Panthers.`\
+https://nytimes.com/athletic/6960737/2026/01/10/rams-panthers-playoffs-matthew-stafford-bryce-young/
+
+**What was that? Packers nearly turn it over on pass to offensive lineman**\
+`Darian Kinnard, a reserve lineman, tried to go hero mode and turn a short pass into a first down. He nearly handed the ball to the Bears.`\
+https://nytimes.com/athletic/6960725/2026/01/10/packers-bears-pass-offensive-lineman-darian-kinnard/
+
 **Jason Kidd ejected by Scott Foster less than 7 minutes into Mavericks-Bulls game**\
 `Kidd, who argued with Foster, got tossed from a game for only the second time in his five-year coaching tenure with the Mavericks.`\
 https://nytimes.com/athletic/6960617/2026/01/10/jason-kidd-ejected-scott-foster-mavericks-bulls/
