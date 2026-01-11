@@ -1,40 +1,40 @@
-**Nigeria are through to the AFCON semi-finals. Are they now favourites to win it?**\
-`Nigeria have yet to concede a goal in the knockout stages and impressed in the quarter-finals against Algeria`\
-https://nytimes.com/athletic/6960547/2026/01/11/afcon-nigeria-favourites/
+**Somalis Fled Civil War and Built a Community. Now They Are a Target.**\
+`A fraud scandal has made the Somali community in Minnesota a focus of the Trump administration’s crackdown on immigrants.`\
+https://nytimes.com/2026/01/11/us/somalis-fled-civil-war-and-built-a-community-now-they-are-a-target.html
 
-**Prosecutors’ Vivid Accusations Against Maduro Belie a Complex Case**\
-`The government will have to navigate difficult legal issues and use testimony about incidents clouded by time. But conspiracy laws are powerful tools for prosecutors.`\
-https://nytimes.com/2026/01/11/nyregion/maduro-new-york-legal-case.html
+**With the Golden Globes, Podcasts Are Ready for Their Close-Up**\
+`The annual awards show will anoint a best podcast for the first time this year, a sign of the industry’s increasing status in Hollywood.`\
+https://nytimes.com/2026/01/11/business/media/golden-globes-podcasts.html
 
-**How a Stunt-Loving Jeweler Made a Diamond District Beef Go Viral**\
-`Maksud Agadjani wound up hospitalized after he had a profane altercation with a rival, all of it captured on video. Business has never been better.`\
-https://nytimes.com/2026/01/11/nyregion/diamond-district-traxnyc-video.html
+**Trump Is the Political Earthquake Shaking Latin America**\
+`The U.S. capture of Nicolás Maduro has divided the region. But every nation wants to avoid being next.`\
+https://nytimes.com/2026/01/11/world/americas/trump-is-the-political-earthquake-shaking-latin-america.html
 
-**Where Does Candidate Mamdani End and Mayor Mamdani Begin?**\
-`In his first week as mayor of New York City, Zohran Mamdani tried to bridge the political theater of his campaign with the much harder work of governing.`\
-https://nytimes.com/2026/01/11/nyregion/new-york-mayor-zohran-mamdani-week-one.html
+**Violence at a Minneapolis School Hours After ICE Shooting**\
+`As Minneapolis reels in the aftermath of a fatal shooting, the city shuts down its public schools following a violent confrontation between federal agents and civilians at a local high school.`\
+https://nytimes.com/video/us/100000010633405/minneapolis-border-patrol-school-ice.html
 
-**‘The Man and I Both Immediately Lost Our Composure’**\
-`Witnessing the power of coconut cream pie, time for a new car and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2026/01/11/nyregion/metropolitan-diary.html
+**Are You Fat Enough to Play in This Soccer League?**\
+`Man v Fat, a soccer league founded in Britain a decade ago, is expanding in the United States, bringing with it a self-deprecating approach to shedding pounds.`\
+https://nytimes.com/2026/01/11/us/dallas-fat-soccer.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/11/crosswords/spelling-bee-forum.html
+**This Dinosaur Really Knew How to Get a Grip**\
+`A fossil of Manipulonyx reshetovi, found in a Mongolian desert, shows how the dinosaur used its specialized claw to snatch eggs.`\
+https://nytimes.com/2026/01/11/science/dinosaurs-fossils-eggs-claw.html
 
-**Australia Wildfires Burn Nearly 900,000 Acres**\
-`Blazes in the state of Victoria have destroyed hundreds of structures, including homes, and killed one person, the authorities said.`\
-https://nytimes.com/2026/01/11/world/australia/australia-victoria-wildfires.html
+**Trump Threats and Venezuela Strike Leave Mexico Agonizing Over How to Respond**\
+`President Claudia Sheinbaum and her inner circle have been grappling with the right tone to strike in the country’s response to the Venezuela strike for fear of antagonizing the White House.`\
+https://nytimes.com/2026/01/11/world/americas/mexico-trump-cartels.html
 
-**The Cubs have long been fascinated with Alex Bregman. They finally signed him**\
-`Given another chance at Bregman, the Cubs did not wait around until spring training or mess around with a team-friendly offer. `\
-https://nytimes.com/athletic/6960991/2026/01/11/chicago-cubs-alex-bregman-pursuit-complete/
+**How a Puzzling 401(k) Plan Changed One Woman’s Life**\
+`Eryn Schultz was an H-E-B grocery store leader with an M.B.A. A slow pivot toward a big career change began when she found her retirement plan wanting.`\
+https://nytimes.com/2026/01/11/business/401k-heb-eryn-schultz-personal-finances.html
 
-**The World Order Is Dead. What Comes Next?**\
-`With the president’s actions in Venezuela, we’re entering a new era. Here’s what it could look like.`\
-https://nytimes.com/interactive/2026/01/11/opinion/trump-new-world-order.html
+**Latin America Reacts to Trump’s Interventionism**\
+`Jack Nicas, our Mexico City bureau chief, walks us through the ways Latin American leaders are reacting to Trumps recent attack on Venezuela`\
+https://nytimes.com/video/world/100000010629368/latin-america-reacts-to-trumps-interventionism.html
 
-**The New York Times in Print for Sunday, Jan. 11, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/01/11/todays-new-york-times
+**They Invested in Meme Stocks. And Then They Grew Up.**\
+`Some Gen Z-ers first entered the markets during the pandemic’s meme stock craze. They have since become more patient investors.`\
+https://nytimes.com/2026/01/11/business/gen-z-meme-stocks-investors.html
 
