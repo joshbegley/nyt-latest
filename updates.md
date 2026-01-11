@@ -1,3 +1,8 @@
+**James van Riemsdyk arrives at Red Wings game dressed as Batman for son's birthday**\
+`The veteran, who is out of town for a huge divisional clash in Montreal, found a way to celebrate his son Liam's fourth birthday from afar.
+`\
+https://nytimes.com/athletic/6960578/2026/01/10/red-wings-james-van-riemsdyk-batman/
+
 **Sidney Crosby fumes about goalie interference call as Penguins stumble against Flames**\
 `The Penguins had a goal disallowed and Crosby wasn't happy about it following a 2-1 loss to Calgary on Saturday.`\
 https://nytimes.com/athletic/6953038/2026/01/10/sidney-crosby-penguins-flames-goalie-interference/

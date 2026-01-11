@@ -1,3 +1,8 @@
+**James van Riemsdyk arrives at Red Wings game dressed as Batman for son's birthday**\
+`The veteran, who is out of town for a huge divisional clash in Montreal, found a way to celebrate his son Liam's fourth birthday from afar.
+`\
+https://nytimes.com/athletic/6960578/2026/01/10/red-wings-james-van-riemsdyk-batman/
+
 **Sidney Crosby fumes about goalie interference call as Penguins stumble against Flames**\
 `The Penguins had a goal disallowed and Crosby wasn't happy about it following a 2-1 loss to Calgary on Saturday.`\
 https://nytimes.com/athletic/6953038/2026/01/10/sidney-crosby-penguins-flames-goalie-interference/
@@ -33,8 +38,4 @@ https://nytimes.com/2026/01/10/us/politics/us-strikes-islamic-state-syria.html
 **Bruins’ Pavel Zacha, a first career hat trick and a trade-or-keep debate**\
 `Zacha's hat trick, on top of his overall dependable, skilled play, is likely to catch the attention of rival general managers.`\
 https://nytimes.com/athletic/6960370/2026/01/10/bruins-pavel-zacha-hat-trick-trade-deadline/
-
-**Paul Haggis Reaches $2 Million Settlement After 2022 Rape Verdict**\
-`A judge had ordered the Oscar-winning filmmaker to pay at least $7.5 million to a former film-industry publicist after a civil jury found him liable for raping her.`\
-https://nytimes.com/2026/01/10/movies/paul-haggis-rape-settlement.html
 

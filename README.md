@@ -1,3 +1,7 @@
+**Schools tout no state income tax as college football portal season gets weird**\
+`Some schools are trying to entice players to sign with their college football programs with promises of state income taxes.`\
+https://nytimes.com/athletic/6960400/2026/01/10/ucf-houston-unlv-nil-income-taxes-college-football/
+
 **James van Riemsdyk arrives at Red Wings game dressed as Batman for son's birthday**\
 `The veteran, who is out of town for a huge divisional clash in Montreal, found a way to celebrate his son Liam's fourth birthday from afar.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6960294/2026/01/10/new-york-rangers-bruins-trade-de
 **U.S. Launches Major Strikes on Islamic State Targets in Syria**\
 `The airstrikes followed an even larger attack in December to avenge the killing of three Americans last year.`\
 https://nytimes.com/2026/01/10/us/politics/us-strikes-islamic-state-syria.html
-
-**Bruins’ Pavel Zacha, a first career hat trick and a trade-or-keep debate**\
-`Zacha's hat trick, on top of his overall dependable, skilled play, is likely to catch the attention of rival general managers.`\
-https://nytimes.com/athletic/6960370/2026/01/10/bruins-pavel-zacha-hat-trick-trade-deadline/
 
