@@ -1,3 +1,19 @@
+**How to watch Pelicans vs. Magic: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961276/2026/01/11/pelicans-vs-magic-stream-how-to-watch-jan-11/
+
+**How to watch Nets vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961273/2026/01/11/nets-vs-grizzlies-stream-how-to-watch-jan-11/
+
+**Bob Weir Was the Dead’s Invisible Thread**\
+`The songwriter, guitarist and singer, who died at 78, animated the Grateful Dead from within.`\
+https://nytimes.com/2026/01/11/arts/music/bob-weir-grateful-dead-remembered.html
+
+**How to watch Devils vs. Jets: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961271/2026/01/11/devils-vs-jets-stream-how-to-watch-jan-11/
+
 **How to watch Wisconsin vs. Michigan women's basketball: Time, TV, streaming**\
 `Find out how to watch the Wisconsin Badgers play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961264/2026/01/11/wisconsin-vs-michigan-stream-how-to-watch-jan-11/
