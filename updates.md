@@ -1,3 +1,7 @@
+**How Ben Johnson inspired the Bears to pull off a historic playoff comeback**\
+`At halftime, Johnson told Bears players they could have the biggest playoff comeback in team history, and they did in upsetting the Packers.`\
+https://nytimes.com/athletic/6961024/2026/01/11/bears-ben-johnson-playoff-comeback/
+
 **Liverpool's Bradley needs surgery on season-ending knee injury**\
 `The 22-year-old will not play again for Liverpool this season but has yet to be ruled out of the World Cup if Northern Ireland qualify.`\
 https://nytimes.com/athletic/6961174/2026/01/11/conor-bradley-liverpool-surgery-knee/
