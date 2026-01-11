@@ -1,3 +1,11 @@
+**Meet the U.S. Olympic figure skating team: Ilia Malinin headlines a powerful squad**\
+`Malinin is the clear gold medal favorite. All three women's skaters have a medal shot. And the incredible story of Maxim Naumov continues.`\
+https://nytimes.com/athletic/6961812/2026/01/11/us-olympics-figure-skating-team-ilia-malinin-amber-glenn-maxim-naumov/
+
+**Two Hours, Scores of Questions, 23,000 Words: Our Interview With President Trump**\
+`Four New York Times reporters pressed Mr. Trump about a range of topics in a nearly two-hour interview. Here is a transcript of their conversation.`\
+https://nytimes.com/2026/01/11/us/politics/trump-interview-transcript.html
+
 **Where’s the best original score award? Not on the telecast.**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/golden-globes-best-score
@@ -22,19 +30,11 @@ https://nytimes.com/2026/01/11/style/golden-globes-2026-red-carpet-photos.html
 `Kittle went down after catching a 6-yard pass in the second quarter of San Francisco's wild-card playoff game in Philadelphia.`\
 https://nytimes.com/athletic/6962084/2026/01/11/george-kittle-49ers-injury/
 
-**Presenters and attendees have been asked to wear anti-ICE pins.**\
+**The A.C.L.U. asks presenters and attendees to wear anti-ICE pins.**\
 `By Melena Ryzik`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/presenters-and-attendees-have-been-asked-to-wear-anti-ice-pins
 
 **Deposed Shah’s Son Hopes Trump Will Put Iran Regime ‘Down for Good’**\
 `Reza Pahlavi, once the crown prince of Iran, says protesters there have been emboldened by President Trump suggesting that he could take military action.`\
 https://nytimes.com/2026/01/11/world/europe/iran-protests-shah-son-trump.html
-
-**Trump Says Civil Rights Led to White People Being ‘Very Badly Treated’**\
-`President Trump’s comments were a blunt distillation of his administration’s racial politics, which rest on the belief that white people have become the real victims of discrimination in America.`\
-https://nytimes.com/2026/01/11/us/politics/trump-interview-white-people-discrimination.html
-
-**Famed Nigerian Author Blames Death of Toddler Son on Negligent Care**\
-`Chimamanda Ngozi Adichie is accusing a private hospital in Lagos of administering an overdose of a sedative, prompting an outpouring of complaints by Nigerians about their health care system.`\
-https://nytimes.com/2026/01/11/world/africa/nigeria-adichie-son-death-blame.html
 

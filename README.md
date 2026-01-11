@@ -1,3 +1,7 @@
+**Matt LaFleur meeting with Packers president Ed Policy to talk coach's future**\
+`LaFleur, with a year remaining on his contract, left no doubt on Sunday about his desire to stay in Green Bay for both 2026 and beyond.`\
+https://nytimes.com/athletic/6962147/2026/01/11/matt-lafleur-future-packers-ed-policy/
+
 **Meet the U.S. Olympic figure skating team: Ilia Malinin headlines a powerful squad**\
 `Malinin is the clear gold medal favorite. All three women's skaters have a medal shot. And the incredible story of Maxim Naumov continues.`\
 https://nytimes.com/athletic/6961812/2026/01/11/us-olympics-figure-skating-team-ilia-malinin-amber-glenn-maxim-naumov/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6962084/2026/01/11/george-kittle-49ers-injury/
 **The A.C.L.U. asks presenters and attendees to wear anti-ICE pins.**\
 `By Melena Ryzik`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/presenters-and-attendees-have-been-asked-to-wear-anti-ice-pins
-
-**Deposed Shah’s Son Hopes Trump Will Put Iran Regime ‘Down for Good’**\
-`Reza Pahlavi, once the crown prince of Iran, says protesters there have been emboldened by President Trump suggesting that he could take military action.`\
-https://nytimes.com/2026/01/11/world/europe/iran-protests-shah-son-trump.html
 

@@ -1,3 +1,15 @@
+**Meet the U.S. Olympic figure skating team: Ilia Malinin headlines a powerful squad**\
+`Malinin is the clear gold medal favorite. All three women's skaters have a medal shot. And the incredible story of Maxim Naumov continues.`\
+https://nytimes.com/athletic/6961812/2026/01/11/us-olympics-figure-skating-team-ilia-malinin-amber-glenn-maxim-naumov/
+
+**Two Hours, Scores of Questions, 23,000 Words: Our Interview With President Trump**\
+`Four New York Times reporters pressed Mr. Trump about a range of topics in a nearly two-hour interview. Here is a transcript of their conversation.`\
+https://nytimes.com/2026/01/11/us/politics/trump-interview-transcript.html
+
+**The A.C.L.U. asks presenters and attendees to wear anti-ICE pins.**\
+`By Melena Ryzik`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/presenters-and-attendees-have-been-asked-to-wear-anti-ice-pins
+
 **49ers' George Kittle carted off vs. Eagles, ruled out with Achilles injury**\
 `Kittle went down after catching a 6-yard pass in the second quarter of San Francisco's wild-card playoff game in Philadelphia.`\
 https://nytimes.com/athletic/6962084/2026/01/11/george-kittle-49ers-injury/
