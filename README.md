@@ -1,3 +1,7 @@
+**An Education Success Story**\
+`We bring you some good news about schools in a place you might not expect.`\
+https://nytimes.com/2026/01/11/briefing/an-education-success-story.html
+
 **How Ben Johnson inspired the Bears to pull off a historic playoff comeback**\
 `At halftime, Johnson told Bears players they could have the biggest playoff comeback in team history, and they did in upsetting the Packers.`\
 https://nytimes.com/athletic/6961024/2026/01/11/bears-ben-johnson-playoff-comeback/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6960709/2026/01/11/red-wings-divisional-win-canadie
 **NFL playoffs Sunday watch guide: Bills-Jaguars, 49ers-Eagles, Chargers-Patriots**\
 `This is the sole day of the NFL playoffs with three games scheduled, and each matchup carries large national intrigue.`\
 https://nytimes.com/athletic/6952649/2026/01/11/nfl-playoffs-bills-jaguars-49ers-eagles-chargers-patriots/
-
-**Two leagues, five rings: How Mathieu and J.P. Darche forged their unusual NFL-NHL success**\
-`Separated in age by only 21 months, the Darche brothers navigated unconventional paths to their sports’ highest levels together.`\
-https://nytimes.com/athletic/6957984/2026/01/11/mathieu-jp-darche-brothers-nfl-nhl/
 
