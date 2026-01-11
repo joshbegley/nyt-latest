@@ -1,3 +1,7 @@
+**An Education Success Story**\
+`We bring you some good news about schools in a place you might not expect.`\
+https://nytimes.com/2026/01/11/briefing/an-education-success-story.html
+
 **How Ben Johnson inspired the Bears to pull off a historic playoff comeback**\
 `At halftime, Johnson told Bears players they could have the biggest playoff comeback in team history, and they did in upsetting the Packers.`\
 https://nytimes.com/athletic/6961024/2026/01/11/bears-ben-johnson-playoff-comeback/
