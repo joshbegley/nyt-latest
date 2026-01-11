@@ -1,3 +1,7 @@
+**Portsmouth 1 Arsenal 4 - How good was Martinelli? Set pieces unstoppable? Who took their chance?**\
+`Our writer breaks down the talking points as much-changed Arsenal reached the fourth round of the FA Cup`\
+https://nytimes.com/athletic/6949093/2026/01/11/arsenal-martinelli-havertz-fa-cup/
+
 **Iran’s President Warns Protesters Not to Destabilize the Country**\
 `Masoud Pezeshkian expressed sympathy for protesters’ economic pain, but said the state must respond to “rioters.” The death toll from the protests rose to about 200, rights groups said.`\
 https://nytimes.com/2026/01/11/world/middleeast/irans-president-warns-protesters-not-to-destabilize-the-country.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6959885/2026/01/11/edmonton-oilers-josh-samanski-pr
 **Malaysia and Indonesia Block Access to Grok Because of Sexually Explicit Content**\
 `Grok, the chatbot created by Elon Musk’s artificial intelligence company, has produced a flood of explicit images featuring real people in recent weeks.`\
 https://nytimes.com/2026/01/11/world/asia/malaysia-indonesia-grok-ban.html
-
-**Bob Weir: A Life in Pictures**\
-`The Grateful Dead guitarist, singer and songwriter was a bedrock of the band that became a psychedelic institution.`\
-https://nytimes.com/2026/01/11/arts/music/bob-weir-grateful-dead-photos.html
 
