@@ -1,9 +1,13 @@
+**Bob Weir: 10 Essential Songs**\
+`The guitarist, singer and songwriter, who died at 78, cut his own path among his elders in the Grateful Dead, and beyond.`\
+https://nytimes.com/2026/01/10/arts/music/bob-weir-grateful-dead-songs.html
+
 **Madison Chock, Evan Bates win seventh U.S. ice dance title, eye Olympic medal**\
 `Chock and Bates have won every ice dance accolade except one. They'll be a favorite to change that next month in Milan.`\
 https://nytimes.com/athletic/6960720/2026/01/10/madison-chock-evan-bates-ice-dance-us-championships-olympics/
 
 **In wild Rams-Panthers playoff, we get a glimpse at both teams’ futures**\
-`Matthew Stafford saved his best for last and the Rams advance after a difficult battle against Bryce Young and the Panthers.`\
+`Matthew Stafford saved his best for last and the Rams advanced after a difficult battle against Bryce Young and the Panthers.`\
 https://nytimes.com/athletic/6960737/2026/01/10/rams-panthers-playoffs-matthew-stafford-bryce-young/
 
 **What was that? Packers nearly turn it over on pass to offensive lineman**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6960502/2026/01/10/blue-jackets-avalanche-shutout-l
 **Dennis Schröder gets 3-game suspension for going after Luka Dončić: Sources**\
 `Multiple videos captured Schröder and Dončić going at each other during the game on Dec. 28.`\
 https://nytimes.com/athletic/6960622/2026/01/10/kings-dennis-shroder-suspended-3-games-nba/
-
-**Death Toll Grows as Nationwide Protests Rock Iran for a Third Night**\
-`Antigovernment unrest that began two weeks ago has intensified in recent days, as has violence.`\
-https://nytimes.com/2026/01/10/world/middleeast/iran-protests-death-toll.html
 

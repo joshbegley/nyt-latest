@@ -1,3 +1,11 @@
+**Bob Weir: 10 Essential Songs**\
+`The guitarist, singer and songwriter, who died at 78, cut his own path among his elders in the Grateful Dead, and beyond.`\
+https://nytimes.com/2026/01/10/arts/music/bob-weir-grateful-dead-songs.html
+
+**In wild Rams-Panthers playoff, we get a glimpse at both teams’ futures**\
+`Matthew Stafford saved his best for last and the Rams advanced after a difficult battle against Bryce Young and the Panthers.`\
+https://nytimes.com/athletic/6960737/2026/01/10/rams-panthers-playoffs-matthew-stafford-bryce-young/
+
 **Madison Chock, Evan Bates win seventh U.S. ice dance title, eye Olympic medal**\
 `Chock and Bates have won every ice dance accolade except one. They'll be a favorite to change that next month in Milan.`\
 https://nytimes.com/athletic/6960720/2026/01/10/madison-chock-evan-bates-ice-dance-us-championships-olympics/

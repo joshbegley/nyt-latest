@@ -1,3 +1,7 @@
+**A gritty performance, a disappointing loss and Panthers have a new standard**\
+`The Panthers are disappointed in how things ended Saturday, but optimistic that they took a big step in the right direction.`\
+https://nytimes.com/athletic/6960744/2026/01/10/panthers-season-ends-playoffs-rams/
+
 **Bob Weir: 10 Essential Songs**\
 `The guitarist, singer and songwriter, who died at 78, cut his own path among his elders in the Grateful Dead, and beyond.`\
 https://nytimes.com/2026/01/10/arts/music/bob-weir-grateful-dead-songs.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/the-athletic/100000010637256/rams-edge-panthers-34-31-
 **Can a shutout loss be a moral victory? For Blue Jackets against Avalanche, maybe**\
 `Columbus was somewhat satisfied with how it played in a 4-0 shutout loss to Colorado on Saturday.`\
 https://nytimes.com/athletic/6960502/2026/01/10/blue-jackets-avalanche-shutout-loss/
-
-**Dennis Schröder gets 3-game suspension for going after Luka Dončić: Sources**\
-`Multiple videos captured Schröder and Dončić going at each other during the game on Dec. 28.`\
-https://nytimes.com/athletic/6960622/2026/01/10/kings-dennis-shroder-suspended-3-games-nba/
 
