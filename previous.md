@@ -1,3 +1,31 @@
+**Quote of the Day: Beyond Fences, Ranchers See a Range of Possibilities**\
+`Quotation of the Day for Sunday, January 11, 2026.`\
+https://nytimes.com/2026/01/11/pageoneplus/quote-of-the-day-beyond-fences-ranchers-see-a-range-of-possibilities.html
+
+**How Kit Harington Left Jon Snow Behind**\
+`The actor crashed after “Game of Thrones.” Now, as he returns in a new season of “Industry” on HBO, he feels like “one of the luckiest people alive.”`\
+https://nytimes.com/2026/01/11/arts/television/kit-harington-industry-game-of-thrones.html
+
+**India’s Ties With Bangladesh Fray as Elections Loom**\
+`A simmering dispute between the neighbors, who share one of the largest land borders in the world, has escalated with diplomatic protests and a sports boycott.`\
+https://nytimes.com/2026/01/11/world/asia/india-bangladesh-tensions.html
+
+**The Athletic Show: NFL playoff vibes, the SEC's decline, and can Tom Brady save the Raiders?**\
+`Episode 9 of "The Athletic Show" leans in on the NFL and college football postseasons.`\
+https://nytimes.com/athletic/6957794/2026/01/11/the-athletic-show-nfl-playoffs-sec-decline-tom-brady-raiders/
+
+**Connections: Sports Edition Coach: Hints for Jan. 11, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6960839/2026/01/11/connections-sports-edition-hints-for-jan-11-2026/
+
+**Corrections: Jan. 11, 2026**\
+`Corrections that appeared in print on Sunday, Jan. 11, 2026.`\
+https://nytimes.com/2026/01/11/pageoneplus/corrections-jan-11-2026.html
+
+**A gritty performance, a disappointing loss and Panthers have a new standard**\
+`The Panthers are disappointed in how things ended Saturday, but optimistic that they took a big step in the right direction.`\
+https://nytimes.com/athletic/6960744/2026/01/10/panthers-season-ends-playoffs-rams/
+
 **Bob Weir: 10 Essential Songs**\
 `The guitarist, singer and songwriter, who died at 78, cut his own path among his elders in the Grateful Dead, and beyond.`\
 https://nytimes.com/2026/01/10/arts/music/bob-weir-grateful-dead-songs.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6960720/2026/01/10/madison-chock-evan-bates-ice-dan
 **In wild Rams-Panthers playoff, we get a glimpse at both teams’ futures**\
 `Matthew Stafford saved his best for last and the Rams advanced after a difficult battle against Bryce Young and the Panthers.`\
 https://nytimes.com/athletic/6960737/2026/01/10/rams-panthers-playoffs-matthew-stafford-bryce-young/
-
-**What was that? Packers nearly turn it over on pass to offensive lineman**\
-`Darian Kinnard, a reserve lineman, tried to go hero mode and turn a short pass into a first down. He nearly handed the ball to the Bears.`\
-https://nytimes.com/athletic/6960725/2026/01/10/packers-bears-pass-offensive-lineman-darian-kinnard/
-
-**Smithsonian Removes Label Noting Trump Impeachments**\
-`When the National Portrait Gallery replaced a portrait of President Trump this week, it took down a biography of his first term.`\
-https://nytimes.com/2026/01/10/arts/smithsonian-trump-impeachment-portrait-gallery.html
-
-**Third baseman Alex Bregman reaches 5-year, $175 million deal to join Cubs: Source**\
-`Bregman became a free agent this offseason, having opted out of his three-year contract with the Boston Red Sox.`\
-https://nytimes.com/athletic/6840354/2026/01/10/mlb-alex-bregman-free-agency-cubs/
-
-**Jason Kidd ejected by Scott Foster less than 7 minutes into Mavericks-Bulls game**\
-`Kidd, who argued with Foster, got tossed from a game for only the second time in his five-year coaching tenure with the Mavericks.`\
-https://nytimes.com/athletic/6960617/2026/01/10/jason-kidd-ejected-scott-foster-mavericks-bulls/
-
-**Rams Edge Panthers 34-31 in Wild-Card Thriller**\
-`Quarterback Matthew Stafford led a game-winning drive to lead the Los Angeles Rams back to the divisional round.`\
-https://nytimes.com/video/the-athletic/100000010637256/rams-edge-panthers-34-31-in-wild-card-thriller.html
-
-**Can a shutout loss be a moral victory? For Blue Jackets against Avalanche, maybe**\
-`Columbus was somewhat satisfied with how it played in a 4-0 shutout loss to Colorado on Saturday.`\
-https://nytimes.com/athletic/6960502/2026/01/10/blue-jackets-avalanche-shutout-loss/
-
-**Dennis Schröder gets 3-game suspension for going after Luka Dončić: Sources**\
-`Multiple videos captured Schröder and Dončić going at each other during the game on Dec. 28.`\
-https://nytimes.com/athletic/6960622/2026/01/10/kings-dennis-shroder-suspended-3-games-nba/
 
