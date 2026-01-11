@@ -1,3 +1,15 @@
+**How to watch Michigan State vs. Oregon women's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961473/2026/01/11/michigan-state-vs-oregon-stream-how-to-watch-jan-11/
+
+**How to watch Arizona State vs. TCU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona State Sun Devils play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961470/2026/01/11/arizona-state-vs-tcu-stream-how-to-watch-jan-11/
+
+**Paratici set to leave Spurs for Fiorentina after the January window**\
+`Personal reasons are believed to be a factor in the timing of Paratici's decision to leave Spurs so soon after his return.`\
+https://nytimes.com/athletic/6910648/2026/01/11/fabio-paratici-fiorentina-tottenham-transfer-window/
+
 **This Warm Rice Salad Is a Puffy Jacket in Food Form**\
 `By Genevieve Ko`\
 https://nytimes.com/2026/01/11/dining/this-warm-rice-salad-is-a-puffy-jacket-in-food-form.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6961335/2026/01/11/olympic-hockey-arena-iihf-presid
 **Israeli Police Question Top Netanyahu Aide Over Leaked Document Case**\
 `Tzachi Braverman, Prime Minister Benjamin Netanyahu’s chief of staff, was detained for questioning on Sunday over accusations that he sought to impede an investigation.`\
 https://nytimes.com/2026/01/11/world/middleeast/israel-police-netanyahu-aide-tzachi-braverman.html
-
-**Bob Weir, a Virtuoso of Hot Pants**\
-`The Grateful Dead guitarist wore short shorts like no other.`\
-https://nytimes.com/2026/01/11/style/bob-weir-hot-pants.html
-
-**Bears' rally was Chicago's main focus, but Bulls' win vs. Mavs worth a city discussion**\
-`Chicago savored playoff football on Saturday. The Bulls beating Dallas felt like a distant second, but is worth a conversation around town.`\
-https://nytimes.com/athletic/6961142/2026/01/11/chicago-bulls-bears-nba-nfl-cooper-flagg/
-
-**Lowetide: Why Oilers prospect Josh Samanski is pushing for recall**\
-`Samanski is NHL-ready and should be considered as a strong option for the Oilers' next call-up.`\
-https://nytimes.com/athletic/6959885/2026/01/11/edmonton-oilers-josh-samanski-prospect/
 
