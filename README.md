@@ -2,7 +2,7 @@
 `Australia's victory was a formality, with the urn retained in 11 days' cricket, but the series still provided plenty of memorable highlights`\
 https://nytimes.com/athletic/6941813/2026/01/11/ashes-australia-england-images-starc-head-root/
 
-**This is the best the Maple Leafs have looked this season. Will it last?**\
+**This is the best the Maple Leafs have looked this season. Can it last?**\
 `Scotiabank Arena felt like a party Saturday night. It hasn't been that way for a long time.`\
 https://nytimes.com/athletic/6960802/2026/01/11/maple-leafs-canucks-win-season-momentum/
 
