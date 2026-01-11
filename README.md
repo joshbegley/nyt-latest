@@ -1,3 +1,11 @@
+**Luke Kornet's Boston homecoming shows why he's beloved by his teams, new and old**\
+`Luke Kornet received a warm welcome in his return back to Boston, as his teammates new and old reflected on their love for him.`\
+https://nytimes.com/athletic/6960944/2026/01/11/celtics-luke-kornets-boston-homecoming/
+
+**Is college football broken, or the best it’s ever been? Yes**\
+`The landscape is always changing, never boring, and never has there been more hope for so many. But that doesn't mean the sport is perfect. `\
+https://nytimes.com/athletic/6959743/2026/01/11/college-football-nil-transfer-portal-indiana/
+
 **How far can belief (and cheese graters) take Chicago? The Bears are gonna find out**\
 `Chicago has wanted a Bears team like this for a very long time. And now the city has it.`\
 https://nytimes.com/athletic/6961011/2026/01/11/bears-packers-playoff-recap-caleb-williams-comeback/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6960832/2026/01/11/sabres-josh-doan-win-ducks/
 **Law: Cubs bolster infield with Bregman. Will Boston turn to Bichette?**\
 `For the short term, Alex Bregman is comfortable upgrade for the Cubs, Keith Law writes, but now the team has one infielder too many.`\
 https://nytimes.com/athletic/6960882/2026/01/11/alex-bregman-cubs-red-sox-bo-bichette/
-
-**Matt LaFleur's future: Packers' Ed Policy faces critical decision after playoff collapse**\
-`LaFleur has one season remaining on his contract. Policy figures to extend or move on from the coach in the near future.`\
-https://nytimes.com/athletic/6961021/2026/01/11/packers-matt-lafleur-playoffs-bears-ed-policy/
-
-**I’m in Denmark’s Parliament. Mr. President, We’re Already on Your Side.**\
-`Security cooperation should be discussed openly and seriously. Territorial claims between allies should not.`\
-https://nytimes.com/2026/01/11/opinion/greenland-denmark-trump-nato.html
 
