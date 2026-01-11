@@ -1,5 +1,9 @@
+**In wild Rams-Panthers playoff, we get a glimpse at both teams’ futures**\
+`Matthew Stafford saved his best for last and the Rams advance after a difficult battle against Bryce Young and the Panthers.`\
+https://nytimes.com/athletic/6960737/2026/01/10/rams-panthers-playoffs-matthew-stafford-bryce-young/
+
 **What was that? Packers nearly turn it over on pass to offensive lineman**\
-`Kinnard, a reserve offensive lineman, tried to go hero mode and turn a short pass into a first down. He nearly handed the ball to the Bears.`\
+`Darian Kinnard, a reserve lineman, tried to go hero mode and turn a short pass into a first down. He nearly handed the ball to the Bears.`\
 https://nytimes.com/athletic/6960725/2026/01/10/packers-bears-pass-offensive-lineman-darian-kinnard/
 
 **Smithsonian Removes Label Noting Trump Impeachments**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/10/world/middleeast/iran-protests-death-toll.html
 **Bears' T.J. Edwards carted off, ruled out vs. Packers with left ankle injury**\
 `Edwards left the field with an air cast on his left leg, leaving a Bears defense without one of its top leaders in the wild-card game.`\
 https://nytimes.com/athletic/6960616/2026/01/10/tj-edwards-bears-leg-injury-packers-wild-card/
-
-**Judge Pauses Trump Policy Ending Family Reunification for Some Migrants**\
-`The policy applied to migrants from some Central and South American countries who were awaiting visas.`\
-https://nytimes.com/2026/01/10/us/family-reunification-judge.html
 
