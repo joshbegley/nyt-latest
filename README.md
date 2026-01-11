@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6961429/2026/01/11/ole-miss-deuce-knight-transfer-auburn/
 
 **Erich von Däniken, Who Claimed Aliens Visited Earth, Dies at 90**\
-`His 1968 book, “Chariot of the Gods,” sold hundreds of thousands of copies, but one critic called it a “warped parody of reasoning.”`\
+`His 1968 book, “Chariots of the Gods,” sold hundreds of thousands of copies, but one critic called it a “warped parody of reasoning.”`\
 https://nytimes.com/2026/01/11/obituaries/erich-von-daniken-dead.html
 
 **How to watch Heat vs. Thunder: Time, TV, streaming**\
