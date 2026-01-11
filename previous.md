@@ -1,3 +1,11 @@
+**Barcelona, Real Madrid and the €8.4m Negreira payments: A shadow over El Clasico**\
+`Investigations into Barca's €8.4million payments to a former referees chief are still ongoing`\
+https://nytimes.com/athletic/6957195/2026/01/11/barcelona-real-madrid-negreira-clasico-update/
+
+**The state of football commentary in 2026 - as seen by those behind the microphone**\
+`Seven commentators who are regulars on UK and U.S. broadcasts on their craft, from coping with change to dealing with criticism`\
+https://nytimes.com/athletic/6932391/2026/01/11/commentators-survey-drury-strong/
+
 **Inside the greatest FA Cup upset of all: Bandages, tractors and a club driven by grief**\
 `Macclesfield's shock win against FA Cup holders Crystal Palace will live long in the memory. This is how they did it`\
 https://nytimes.com/athletic/6959548/2026/01/11/macclesfield-crystal-palace-fa-cup-history/
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/6937292/2026/01/11/thierry-henry-portsmouth-shirt-a
 https://nytimes.com/athletic/6959611/2026/01/11/hull-fan-afcon-nigeria/
 
 **'Irate' Jaylen Brown says refs were 'terrible' during Celtics loss to Spurs**\
-`Boston's star guard didn't hold back about his anger toward the officiating crew in Saturday's defeat.`\
+`Boston's star didn't hold back about his anger toward the officiating crew in Saturday's defeat.`\
 https://nytimes.com/athletic/6960807/2026/01/11/irate-jaylen-brown-says-refs-were-terrible-during-celtics-loss-to-spurs/
 
 **Crystal Palace. What just happened?**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6912366/2026/01/11/boston-red-sox-alex-bregman-walk
 **Philip Broberg's agent, Blues' Doug Armstrong break down new contract: '6 was a sweet spot'**\
 `Broberg signed a six-year, $48 million contract extension with the Blues, keeping him in the fold through the 2031-32 season.`\
 https://nytimes.com/athletic/6960399/2026/01/11/philip-broberg-blues-contract-extension-doug-armstrong/
-
-**Quote of the Day: Beyond Fences, Ranchers See a Range of Possibilities**\
-`Quotation of the Day for Sunday, January 11, 2026.`\
-https://nytimes.com/2026/01/11/pageoneplus/quote-of-the-day-beyond-fences-ranchers-see-a-range-of-possibilities.html
-
-**How Kit Harington Left Jon Snow Behind**\
-`The actor crashed after “Game of Thrones.” Now, as he returns in a new season of “Industry” on HBO, he feels like “one of the luckiest people alive.”`\
-https://nytimes.com/2026/01/11/arts/television/kit-harington-industry-game-of-thrones.html
 

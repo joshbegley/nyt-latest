@@ -1,3 +1,15 @@
+**Barcelona, Real Madrid and the €8.4m Negreira payments: A shadow over El Clasico**\
+`Investigations into Barca's €8.4million payments to a former referees chief are still ongoing`\
+https://nytimes.com/athletic/6957195/2026/01/11/barcelona-real-madrid-negreira-clasico-update/
+
+**The state of football commentary in 2026 - as seen by those behind the microphone**\
+`Seven commentators who are regulars on UK and U.S. broadcasts on their craft, from coping with change to dealing with criticism`\
+https://nytimes.com/athletic/6932391/2026/01/11/commentators-survey-drury-strong/
+
+**'Irate' Jaylen Brown says refs were 'terrible' during Celtics loss to Spurs**\
+`Boston's star didn't hold back about his anger toward the officiating crew in Saturday's defeat.`\
+https://nytimes.com/athletic/6960807/2026/01/11/irate-jaylen-brown-says-refs-were-terrible-during-celtics-loss-to-spurs/
+
 **Inside the greatest FA Cup upset of all: Bandages, tractors and a club driven by grief**\
 `Macclesfield's shock win against FA Cup holders Crystal Palace will live long in the memory. This is how they did it`\
 https://nytimes.com/athletic/6959548/2026/01/11/macclesfield-crystal-palace-fa-cup-history/
