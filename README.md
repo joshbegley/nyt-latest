@@ -1,3 +1,7 @@
+**Bob Weir, Guitarist and Founding Member of the Grateful Dead, Dies at 78**\
+`His songwriting and rhythm guitar playing helped shape the San Francisco band’s sound as it emerged to become an American institution.`\
+https://nytimes.com/2026/01/10/obituaries/bob-weir-dead-grateful-dead.html
+
 **Rangers 'embarrassed' in Boston, leaving no doubt: It's time to sell, sell, sell**\
 `"That’s as bad as it gets," captain J.T. Miller said after New York's 10-2 loss to the Bruins. "This should make you want to puke."`\
 https://nytimes.com/athletic/6960294/2026/01/10/new-york-rangers-bruins-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6960169/2026/01/10/ricardo-pepi-usmnt-arm-surgery-i
 **Nearly 13,000 Irish Passports Are Recalled Over ‘Technical Issue’**\
 `The recall affects passports issued between Dec. 23 and Jan. 6, Ireland’s Department of Foreign Affairs and Trade said.`\
 https://nytimes.com/2026/01/10/world/europe/irish-passport-recalled.html
-
-**The Pulse: Indiana leaves no doubt**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6959188/2026/01/10/indiana-was-in-full-obliteration-and-mode-with-best-ever-in-sight/
 
