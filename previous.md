@@ -1,4 +1,20 @@
-**49ers' George Kittle carted off vs. Eagles with apparent lower leg injury**\
+**The lifetime achievement winners have already been honored.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/the-lifetime-achievement-winners-have-already-been-honored
+
+**So Great It’s Unnerving**\
+`Carolyn Davies Lynch and Christina Iverson collaborate on a poetic puzzle.`\
+https://nytimes.com/2026/01/11/crosswords/daily-puzzle-2026-01-12.html
+
+**No. 2 Texas (18-1) loses for first time this season, falling at No. 12 LSU**\
+`UConn, Vanderbilt and Texas Tech are the only unbeaten teams remaining in women's college basketball.`\
+https://nytimes.com/athletic/6962069/2026/01/11/lsu-texas-first-loss-of-season/
+
+**Golden Globes 2026: See All the Red Carpet Arrivals**\
+`Lisa, Snoop Dogg and Brittany Snow were among the stars who arrived at the annual ceremony in high style.`\
+https://nytimes.com/2026/01/11/style/golden-globes-2026-red-carpet-photos.html
+
+**49ers' George Kittle carted off vs. Eagles, ruled out with Achilles injury**\
 `Kittle went down after catching a 6-yard pass in the second quarter of Sunday's wild-card playoff game.`\
 https://nytimes.com/athletic/6962084/2026/01/11/george-kittle-49ers-injury/
 
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/11/world/africa/nigeria-adichie-son-death-blame.html
 **Who will be the big winners tonight? Here’s what to expect.**\
 `By Kyle Buchanan`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/who-will-be-the-big-winners-tonight-heres-what-to-expect
-
-**Golden Globes Live Updates: Hollywood Kicks Off Its Awards Season**\
-`The best in film and television will be honored in Beverly Hills, Calif., with Nikki Glaser hosting for the second year in a row.`\
-https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch
-
-**Here’s how to watch the Globes tonight.**\
-`By Sarah Bahr`\
-https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/heres-how-to-watch-the-globes-tonight
-
-**Here’s the latest.**\
-`By Nicole Sperling`\
-https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/heres-the-latest
-
-**Thousands March in New York to Protest ICE Killing and Denounce Trump**\
-`About 2,000 protesters, prompted by the fatal shooting of a woman in Minneapolis by a federal immigration agent, gathered near Central Park and marched through Manhattan.`\
-https://nytimes.com/2026/01/11/us/politics/ice-protest-nyc-trump.html
 
