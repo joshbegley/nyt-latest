@@ -1,3 +1,7 @@
+**Josh Allen, Bills push their way past Jaguars and into divisional round**\
+`The Bills advance to the AFC divisional round for the sixth year in a row`\
+https://nytimes.com/athletic/6961681/2026/01/11/bills-jaguars-score-result-takeaways-nfl-wild-card/
+
 **The Briefing: Barcelona 3 Real Madrid 2 — Raphinha wins battle of the Brazilians, has Alonso done enough to stay?**\
 `Barcelona took the bragging rights against Madrid in the Supercopa de Espana final, but what does it mean for Alonso's future?`\
 https://nytimes.com/athletic/6957114/2026/01/11/barcelona-real-madrid-clasico-analysis-result-supercopa/
