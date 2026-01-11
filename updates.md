@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6960578/2026/01/10/red-wings-james-van-riemsdyk-batman/
 
+**James van Riemsdyk arrives at Red Wings game dressed as Batman for son's birthday**\
+`The veteran, who is out of town for a huge divisional clash in Montreal, found a way to celebrate his son Liam's fourth birthday from afar.
+`\
+https://nytimes.com/athletic/6960578/2026/01/10/red-wings-james-van-riemsdyk-batman/
+
 **Judge Pauses Trump Policy Ending Family Reunification for Some Migrants**\
 `The policy applied to migrants from some Central and South American countries who were awaiting visas.`\
 https://nytimes.com/2026/01/10/us/family-reunification-judge.html
