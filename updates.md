@@ -1,3 +1,7 @@
+**Deja vu in Chicago: Bears bounce Packers from playoffs with another dramatic comeback**\
+`Bears mount the biggest playoff comeback in team history in 31-27 win to advance to the divisional round.`\
+https://nytimes.com/athletic/6960316/2026/01/11/bears-packers-score-result-takeaways-nfl-wild-card/
+
 **Barcelona, Real Madrid and the €8.4m Negreira payments: A shadow over El Clasico**\
 `Investigations into Barca's €8.4million payments to a former referees chief are still ongoing`\
 https://nytimes.com/athletic/6957195/2026/01/11/barcelona-real-madrid-negreira-clasico-update/

@@ -1,3 +1,7 @@
+**Deja vu in Chicago: Bears bounce Packers from playoffs with another dramatic comeback**\
+`Bears mount the biggest playoff comeback in team history in 31-27 win to advance to the divisional round.`\
+https://nytimes.com/athletic/6960316/2026/01/11/bears-packers-score-result-takeaways-nfl-wild-card/
+
 **Barcelona, Real Madrid and the €8.4m Negreira payments: A shadow over El Clasico**\
 `Investigations into Barca's €8.4million payments to a former referees chief are still ongoing`\
 https://nytimes.com/athletic/6957195/2026/01/11/barcelona-real-madrid-negreira-clasico-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6959916/2026/01/11/robin-roefs-sunerland-everton-pe
 **In letting Alex Bregman walk, Boston's aversion to long-term deals rears its head**\
 `The Red Sox let negotiations drag deep into the offseason, allowing the Cubs to swoop in and sign last season's unquestioned leader. `\
 https://nytimes.com/athletic/6912366/2026/01/11/boston-red-sox-alex-bregman-walks/
-
-**Philip Broberg's agent, Blues' Doug Armstrong break down new contract: '6 was a sweet spot'**\
-`Broberg signed a six-year, $48 million contract extension with the Blues, keeping him in the fold through the 2031-32 season.`\
-https://nytimes.com/athletic/6960399/2026/01/11/philip-broberg-blues-contract-extension-doug-armstrong/
 
