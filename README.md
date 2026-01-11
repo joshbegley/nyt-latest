@@ -1,3 +1,7 @@
+**How Ben Johnson inspired the Bears to pull off a historic playoff comeback**\
+`At halftime, Johnson told Bears players they could have the biggest playoff comeback in team history, and they did in upsetting the Packers.`\
+https://nytimes.com/athletic/6961024/2026/01/11/bears-ben-johnson-playoff-comeback/
+
 **Liverpool's Bradley needs surgery on season-ending knee injury**\
 `The 22-year-old will not play again for Liverpool this season but has yet to be ruled out of the World Cup if Northern Ireland qualify.`\
 https://nytimes.com/athletic/6961174/2026/01/11/conor-bradley-liverpool-surgery-knee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6952649/2026/01/11/nfl-playoffs-bills-jaguars-49ers
 **Two leagues, five rings: How Mathieu and J.P. Darche forged their unusual NFL-NHL success**\
 `Separated in age by only 21 months, the Darche brothers navigated unconventional paths to their sports’ highest levels together.`\
 https://nytimes.com/athletic/6957984/2026/01/11/mathieu-jp-darche-brothers-nfl-nhl/
-
-**Sabres' Josh Doan continues his breakout season in win over Ducks: 5 thoughts**\
-`Doan showed up all over the ice again for Buffalo, which won its 13th out of 14 on Saturday night.`\
-https://nytimes.com/athletic/6960832/2026/01/11/sabres-josh-doan-win-ducks/
 
