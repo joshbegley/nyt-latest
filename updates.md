@@ -1,3 +1,11 @@
+**Australia Wildfires Burn Nearly 900,000 Acres**\
+`Blazes in the state of Victoria have destroyed hundreds of structures, including homes, and killed one person, the authorities said.`\
+https://nytimes.com/2026/01/11/world/australia/australia-victoria-wildfires.html
+
+**The Cubs have long been fascinated with Alex Bregman. They finally signed him**\
+`Given another chance at Bregman, the Cubs did not wait around until spring training or mess around with a team-friendly offer. `\
+https://nytimes.com/athletic/6960991/2026/01/11/chicago-cubs-alex-bregman-pursuit-complete/
+
 **The Cubs have long been fascinated with Alex Bregman. They finally signed him**\
 `Given another chance, the Cubs did not wait around until spring training or mess around with a team-friendly offer. `\
 https://nytimes.com/athletic/6960991/2026/01/11/chicago-cubs-alex-bregman-pursuit-complete/

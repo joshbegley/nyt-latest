@@ -1,5 +1,9 @@
+**Australia Wildfires Burn Nearly 900,000 Acres**\
+`Blazes in the state of Victoria have destroyed hundreds of structures, including homes, and killed one person, the authorities said.`\
+https://nytimes.com/2026/01/11/world/australia/australia-victoria-wildfires.html
+
 **The Cubs have long been fascinated with Alex Bregman. They finally signed him**\
-`Given another chance, the Cubs did not wait around until spring training or mess around with a team-friendly offer. `\
+`Given another chance at Bregman, the Cubs did not wait around until spring training or mess around with a team-friendly offer. `\
 https://nytimes.com/athletic/6960991/2026/01/11/chicago-cubs-alex-bregman-pursuit-complete/
 
 **The World Order Is Dead. What Comes Next?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6960772/2026/01/11/alex-bregman-cubs-signing-free-a
 **Deja vu in Chicago: Bears bounce Packers from playoffs with another dramatic comeback**\
 `Bears mount the biggest playoff comeback in team history in 31-27 win to advance to the divisional round.`\
 https://nytimes.com/athletic/6960316/2026/01/11/bears-packers-score-result-takeaways-nfl-wild-card/
-
-**What next for Strand Larsen after he delivers a reminder of why he is a wanted man?**\
-`The Norway forward has struggled for form and goals this season, and may yet leave the club during this transfer window`\
-https://nytimes.com/athletic/6959774/2026/01/11/jorgen-strand-larsen-what-next/
 
