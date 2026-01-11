@@ -1,3 +1,35 @@
+**How to watch Heat vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961522/2026/01/11/heat-vs-thunder-stream-how-to-watch-jan-11/
+
+**How to watch Spurs vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961517/2026/01/11/spurs-vs-timberwolves-stream-how-to-watch-jan-11/
+
+**How to watch 76ers vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961515/2026/01/11/76ers-vs-raptors-stream-how-to-watch-jan-11/
+
+**How to watch Knicks vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961513/2026/01/11/knicks-vs-trail-blazers-stream-how-to-watch-jan-11/
+
+**How to watch Blue Jackets vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961510/2026/01/11/blue-jackets-vs-mammoth-stream-how-to-watch-jan-11/
+
+**How to watch Capitals vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961508/2026/01/11/capitals-vs-predators-stream-how-to-watch-jan-11/
+
+**How to watch Penguins vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961506/2026/01/11/penguins-vs-bruins-stream-how-to-watch-jan-11/
+
+**Bradley's cruel knee injury leaves Liverpool short of options in defence**\
+`The 22-year-old has struggled with injuries in his short career, but no absence will feel as badly timed as this one`\
+https://nytimes.com/athletic/6961343/2026/01/11/conor-bradley-knee-injury-liverpool-defence/
+
 **Thiel Gives $3 Million to Group Seeking to Block California Wealth Tax**\
 `More large donations from wealthy Silicon Valley figures are expected as they try to marshal opposition to a proposed ballot measure that would impose a new tax on billionaires.`\
 https://nytimes.com/2026/01/11/us/politics/peter-thiel-california-wealth-tax.html
@@ -5,36 +37,4 @@ https://nytimes.com/2026/01/11/us/politics/peter-thiel-california-wealth-tax.htm
 **How to watch Mississippi State vs. Ole Miss women's basketball: Time, TV, streaming**\
 `Find out how to watch the Mississippi State Bulldogs play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961481/2026/01/11/mississippi-state-vs-ole-miss-stream-how-to-watch-jan-11/
-
-**How to watch UCLA vs. Nebraska women's basketball: Time, TV, streaming**\
-`Find out how to watch the UCLA Bruins play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961478/2026/01/11/ucla-vs-nebraska-stream-how-to-watch-jan-11/
-
-**How to watch Iowa vs. Indiana women's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa Hawkeyes play the Indiana Hoosiers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961476/2026/01/11/iowa-vs-indiana-stream-how-to-watch-jan-11/
-
-**How to watch Michigan State vs. Oregon women's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan State Spartans play the Oregon Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961473/2026/01/11/michigan-state-vs-oregon-stream-how-to-watch-jan-11/
-
-**How to watch Arizona State vs. TCU women's basketball: Time, TV, streaming**\
-`Find out how to watch the Arizona State Sun Devils play the TCU Horned Frogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961470/2026/01/11/arizona-state-vs-tcu-stream-how-to-watch-jan-11/
-
-**Paratici set to leave Spurs for Fiorentina after the January window**\
-`Personal reasons are believed to be a factor in the timing of Paratici's decision to leave Spurs so soon after his return.`\
-https://nytimes.com/athletic/6910648/2026/01/11/fabio-paratici-fiorentina-tottenham-transfer-window/
-
-**This Warm Rice Salad Is a Puffy Jacket in Food Form**\
-`By Genevieve Ko`\
-https://nytimes.com/2026/01/11/dining/this-warm-rice-salad-is-a-puffy-jacket-in-food-form.html
-
-**Portsmouth 1 Arsenal 4 - How good was Martinelli? Set pieces unstoppable? Who took their chance?**\
-`Here are the main talking points as much-changed Arsenal side reached the fourth round of the FA Cup at Fratton Park`\
-https://nytimes.com/athletic/6949093/2026/01/11/arsenal-martinelli-havertz-fa-cup/
-
-**Iran’s President Warns Protesters Not to Destabilize the Country**\
-`Masoud Pezeshkian expressed sympathy for protesters’ economic pain, but said the state must respond to “rioters.”`\
-https://nytimes.com/2026/01/11/world/middleeast/iran-president-protests-economy-response.html
 
