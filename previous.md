@@ -1,5 +1,5 @@
 **How far can belief (and cheese graters) take Chicago? The Bears are gonna find out**\
-`Chicago has wanted a Bears team like this for a very long time. And now they have it.`\
+`Chicago has wanted a Bears team like this for a very long time. And now the city has it.`\
 https://nytimes.com/athletic/6961011/2026/01/11/bears-packers-playoff-recap-caleb-williams-comeback/
 
 **Caleb Williams powers 'legacy' win in Bears' playoff comeback over Packers**\
