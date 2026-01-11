@@ -1,3 +1,7 @@
+**Caleb Williams powers 'legacy' win in Bears' playoff comeback over Packers**\
+`Down 21-3 at halftime, Williams led the Bears to 25 fourth-quarter points including another late, clutch game-winning TD.`\
+https://nytimes.com/athletic/6961046/2026/01/11/bears-caleb-williams-playoff-comeback-legacy/
+
 **The Big Inshallah**\
 `After his toddler was diagnosed with cancer, a writer asked: “What now?”`\
 https://nytimes.com/2026/01/11/briefing/the-big-inshallah.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/11/opinion/greenland-denmark-trump-nato.html
 **Trump and Vance Are Fanning the Flames. Again.**\
 `Renee Good was not a “domestic terrorist.”`\
 https://nytimes.com/2026/01/11/opinion/renee-good-trump-ice-minneapolis.html
-
-**And the Golden Globe for Best Podcast Goes To … Wait, Who?**\
-`Nobody takes the Golden Globes all that seriously. But podcasts should be taken seriously.`\
-https://nytimes.com/2026/01/11/opinion/culture/golden-globes-best-podcast.html
 
