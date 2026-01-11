@@ -1,3 +1,11 @@
+**How far can belief (and cheese graters) take Chicago? The Bears are gonna find out**\
+`Chicago has wanted a Bears team like this for a very long time. And now they have it.`\
+https://nytimes.com/athletic/6961011/2026/01/11/bears-packers-playoff-recap-caleb-williams-comeback/
+
+**Caleb Williams powers 'legacy' win in Bears' playoff comeback over Packers**\
+`Down 21-3 at halftime, Williams led the Bears to 25 fourth-quarter points including another late, clutch game-winning TD.`\
+https://nytimes.com/athletic/6961046/2026/01/11/bears-caleb-williams-playoff-comeback-legacy/
+
 **The Big Inshallah**\
 `After his toddler was diagnosed with cancer, a writer asked: “What now?”`\
 https://nytimes.com/2026/01/11/briefing/the-big-inshallah.html
