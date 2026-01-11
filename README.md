@@ -1,3 +1,7 @@
+**Josh Allen, Bills push their way past Jaguars and into divisional round**\
+`The Bills advance to the AFC divisional round for the sixth year in a row`\
+https://nytimes.com/athletic/6961681/2026/01/11/bills-jaguars-score-result-takeaways-nfl-wild-card/
+
 **Notre Dame defends Marcus Freeman after battery accusation emerges**\
 `Freeman has been accused of battery stemming from an alleged altercation that occurred during a high school wrestling tournament.`\
 https://nytimes.com/athletic/6961846/2026/01/11/notre-dame-marcus-freeman-battery-accusation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6961691/2026/01/11/panthers-ejiro-evero-defensive-c
 **How to watch Rockets vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961774/2026/01/11/rockets-vs-kings-stream-how-to-watch-jan-11/
-
-**How to watch Hawks vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961772/2026/01/11/hawks-vs-warriors-stream-how-to-watch-jan-11/
 
