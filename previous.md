@@ -1,40 +1,40 @@
-**How to watch West Virginia vs. Iowa State women's basketball: Time, TV, streaming**\
-`Find out how to watch the West Virginia Mountaineers play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961239/2026/01/11/west-virginia-vs-iowa-state-stream-how-to-watch-jan-11/
+**How to watch Wisconsin vs. Michigan women's basketball: Time, TV, streaming**\
+`Find out how to watch the Wisconsin Badgers play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961264/2026/01/11/wisconsin-vs-michigan-stream-how-to-watch-jan-11/
 
-**How to watch Georgia vs. South Carolina women's basketball: Time, TV, streaming**\
-`Find out how to watch the Georgia Lady Bulldogs play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961236/2026/01/11/georgia-vs-south-carolina-stream-how-to-watch-jan-11/
+**How to watch Texas vs. LSU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961260/2026/01/11/texas-vs-lsu-stream-how-to-watch-jan-11/
 
-**How to watch Kansas vs. Baylor women's basketball: Time, TV, streaming**\
-`Find out how to watch the Kansas Jayhawks play the Baylor Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961234/2026/01/11/kansas-vs-baylor-stream-how-to-watch-jan-11/
+**How to watch Vanderbilt vs. Texas A&M women's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Texas A&M Aggies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961257/2026/01/11/vanderbilt-vs-texas-a-m-stream-how-to-watch-jan-11/
 
-**An Education Success Story**\
-`We bring you some good news about schools in a place you might not expect.`\
-https://nytimes.com/2026/01/11/briefing/an-education-success-story.html
+**How to watch USC vs. Minnesota women's basketball: Time, TV, streaming**\
+`Find out how to watch the USC Trojans play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961254/2026/01/11/usc-vs-minnesota-stream-how-to-watch-jan-11/
 
-**How Ben Johnson inspired the Bears to pull off a historic playoff comeback**\
-`At halftime, Johnson told Bears players they could have the biggest playoff comeback in team history, and they did in upsetting the Packers.`\
-https://nytimes.com/athletic/6961024/2026/01/11/bears-ben-johnson-playoff-comeback/
+**How to watch Washington vs. Purdue women's basketball: Time, TV, streaming**\
+`Find out how to watch the Washington Huskies play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961252/2026/01/11/washington-vs-purdue-stream-how-to-watch-jan-11/
 
-**Liverpool's Bradley needs surgery on season-ending knee injury**\
-`The 22-year-old will not play again for Liverpool this season but has yet to be ruled out of the World Cup if Northern Ireland qualify.`\
-https://nytimes.com/athletic/6961174/2026/01/11/conor-bradley-liverpool-surgery-knee/
+**How to watch Pittsburgh vs. Louisville women's basketball: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Panthers play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961250/2026/01/11/pittsburgh-vs-louisville-stream-how-to-watch-jan-11/
 
-**Luke Kornet's Boston homecoming shows why he's beloved by his teams, new and old**\
-`Luke Kornet received a warm welcome in his return back to Boston, as his teammates new and old reflected on their love for him.`\
-https://nytimes.com/athletic/6960944/2026/01/11/celtics-luke-kornets-boston-homecoming/
+**How to watch Arkansas vs. Tennessee women's basketball: Time, TV, streaming**\
+`Find out how to watch the Arkansas Razorbacks play the Tennessee Lady Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961248/2026/01/11/arkansas-vs-tennessee-stream-how-to-watch-jan-11/
 
-**Is college football broken, or the best it’s ever been? Yes**\
-`The landscape is always changing, never boring, and never has there been more hope for so many. But that doesn't mean the sport is perfect. `\
-https://nytimes.com/athletic/6959743/2026/01/11/college-football-nil-transfer-portal-indiana/
+**How to watch Ohio State vs. Maryland women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961245/2026/01/11/ohio-state-vs-maryland-stream-how-to-watch-jan-11/
 
-**How far can belief (and cheese graters) take Chicago? The Bears are gonna find out**\
-`Chicago has wanted a Bears team like this for a very long time. And now the city has it.`\
-https://nytimes.com/athletic/6961011/2026/01/11/bears-packers-playoff-recap-caleb-williams-comeback/
+**How to watch Oklahoma vs. Kentucky women's basketball: Time, TV, streaming**\
+`Find out how to watch the Oklahoma Sooners play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961243/2026/01/11/oklahoma-vs-kentucky-stream-how-to-watch-jan-11/
 
-**Caleb Williams powers 'legacy' win in Bears' playoff comeback over Packers**\
-`Down 21-3 at halftime, Williams led the Bears to 25 fourth-quarter points including another late, clutch game-winning TD.`\
-https://nytimes.com/athletic/6961046/2026/01/11/bears-caleb-williams-playoff-comeback-legacy/
+**How to watch UConn vs. Creighton women's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the Creighton Bluejays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961241/2026/01/11/uconn-vs-creighton-stream-how-to-watch-jan-11/
 
