@@ -1,5 +1,9 @@
 **Syrian Military Takes Aleppo Neighborhoods After Clashes With Kurds**\
 `The takeover ended one of the worst outbreaks of violence between the central government and the Kurdish-led forces since the end of the civil war just over a year ago.`\
+https://nytimes.com/2026/01/11/world/middleeast/syria-military-aleppo.html
+
+**Syrian Military Takes Aleppo Neighborhoods After Clashes With Kurds**\
+`The takeover ended one of the worst outbreaks of violence between the central government and the Kurdish-led forces since the end of the civil war just over a year ago.`\
 https://nytimes.com/2026/01/11/world/middleeast/syrian-military-takes-aleppo-neighborhoods.html
 
 **Updated 2026 NFL Draft order: Cowboys secure another top-20 pick with Packers' collapse**\
