@@ -1,3 +1,7 @@
+**Thiel Gives $3 Million to Group Seeking to Block California Wealth Tax**\
+`More large donations from wealthy Silicon Valley figures are expected as they try to marshal opposition to a proposed ballot measure that would impose a new tax on billionaires.`\
+https://nytimes.com/2026/01/11/us/politics/peter-thiel-california-wealth-tax.html
+
 **How to watch Mississippi State vs. Ole Miss women's basketball: Time, TV, streaming**\
 `Find out how to watch the Mississippi State Bulldogs play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961481/2026/01/11/mississippi-state-vs-ole-miss-stream-how-to-watch-jan-11/
@@ -31,10 +35,6 @@ https://nytimes.com/2026/01/11/dining/this-warm-rice-salad-is-a-puffy-jacket-in-
 https://nytimes.com/athletic/6949093/2026/01/11/arsenal-martinelli-havertz-fa-cup/
 
 **Iran’s President Warns Protesters Not to Destabilize the Country**\
-`Masoud Pezeshkian expressed sympathy for protesters’ economic pain, but said the state must respond to “rioters.” The death toll from the protests rose to about 200, rights groups said.`\
-https://nytimes.com/2026/01/11/world/middleeast/irans-president-warns-protesters-not-to-destabilize-the-country.html
-
-**Syrian Military Takes Aleppo Neighborhoods After Clashes With Kurds**\
-`The takeover ended one of the worst outbreaks of violence between the central government and the Kurdish-led forces since the end of the civil war just over a year ago.`\
-https://nytimes.com/2026/01/11/world/middleeast/syria-military-aleppo.html
+`Masoud Pezeshkian expressed sympathy for protesters’ economic pain, but said the state must respond to “rioters.”`\
+https://nytimes.com/2026/01/11/world/middleeast/iran-president-protests-economy-response.html
 
