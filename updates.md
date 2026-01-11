@@ -1,3 +1,7 @@
+**Nigeria are through to the AFCON semi-finals. Are they now favourites to win it?**\
+`Nigeria have yet to concede a goal in the knockout stages and impressed in the quarter-finals against Algeria`\
+https://nytimes.com/athletic/6960547/2026/01/11/afcon-nigeria-favourites/
+
 **Prosecutors’ Vivid Accusations Against Maduro Belie a Complex Case**\
 `The government will have to navigate difficult legal issues and use testimony about incidents clouded by time. But conspiracy laws are powerful tools for prosecutors.`\
 https://nytimes.com/2026/01/11/nyregion/maduro-new-york-legal-case.html
