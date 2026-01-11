@@ -1,3 +1,11 @@
+**How to watch Illinois vs. Iowa men's basketball: Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961129/2026/01/11/illinois-vs-iowa-stream-how-to-watch-jan-11/
+
+**How to watch North Carolina vs. Notre Dame women's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961127/2026/01/11/north-carolina-vs-notre-dame-stream-how-to-watch-jan-11/
+
 **Somalis Fled Civil War and Built a Community. Now They Are a Target.**\
 `A fraud scandal has made the Somali community in Minnesota a focus of the Trump administration’s crackdown on immigrants.`\
 https://nytimes.com/2026/01/11/us/somalis-fled-civil-war-and-built-a-community-now-they-are-a-target.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/11/world/americas/mexico-trump-cartels.html
 **How a Puzzling 401(k) Plan Changed One Woman’s Life**\
 `Eryn Schultz was an H-E-B grocery store leader with an M.B.A. A slow pivot toward a big career change began when she found her retirement plan wanting.`\
 https://nytimes.com/2026/01/11/business/401k-heb-eryn-schultz-personal-finances.html
-
-**Latin America Reacts to Trump’s Interventionism**\
-`Jack Nicas, our Mexico City bureau chief, walks us through the ways Latin American leaders are reacting to Trumps recent attack on Venezuela`\
-https://nytimes.com/video/world/100000010629368/latin-america-reacts-to-trumps-interventionism.html
-
-**They Invested in Meme Stocks. And Then They Grew Up.**\
-`Some Gen Z-ers first entered the markets during the pandemic’s meme stock craze. They have since become more patient investors.`\
-https://nytimes.com/2026/01/11/business/gen-z-meme-stocks-investors.html
 
