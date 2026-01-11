@@ -1,3 +1,7 @@
+**Matthew Stafford leads late TD drive as Rams beat Panthers, advance to NFC divisional round**\
+`Stafford's TD pass to Colby Parkinson with 38 seconds left gets the Rams to the NFC divisional round for the second straight season.`\
+https://nytimes.com/athletic/6960315/2026/01/10/rams-panthers-score-result-takeaways-nfl-wild-card/
+
 **Who Was Renee Good, the Woman Killed by an ICE Agent in Minneapolis?**\
 `Ms. Good, 37, was a poet and a mother who grew up in Colorado. Her wife said the couple had “stopped to support our neighbors” when Ms. Good was shot.`\
 https://nytimes.com/2026/01/10/us/rennee-good-ice-shooting-minnesota.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/10/crosswords/daily-puzzle-2026-01-11.html
 **Rangers forced to return to ice from locker room after goal review at intermission**\
 `The strange situation was the result of a goal that wasn’t initially awarded during play, but was later determined to have crossed the line.`\
 https://nytimes.com/athletic/6960330/2026/01/10/rangers-bruins-goal-review-intermission-return/
-
-**Disinformation in Minneapolis Shooting Points at People Who Were Not Involved**\
-`Within hours of an ICE officer shooting and killing a woman, social media users misidentified the agent who fired as Steve Grove.`\
-https://nytimes.com/2026/01/10/us/disinformation-minneapolis-shooting-ice.html
 
