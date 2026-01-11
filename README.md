@@ -11,7 +11,7 @@ https://nytimes.com/2026/01/10/arts/smithsonian-trump-impeachment-portrait-galle
 https://nytimes.com/athletic/6840354/2026/01/10/mlb-alex-bregman-free-agency-cubs/
 
 **Jason Kidd ejected by Scott Foster less than 7 minutes into Mavericks-Bulls game**\
-`Head coach gets tossed from a game for the only second time in his five-year tenure with the Mavericks.`\
+`Kidd, who argued with Foster, got tossed from a game for only the second time in his five-year coaching tenure with the Mavericks.`\
 https://nytimes.com/athletic/6960617/2026/01/10/jason-kidd-ejected-scott-foster-mavericks-bulls/
 
 **Rams Edge Panthers 34-31 in Wild-Card Thriller**\
