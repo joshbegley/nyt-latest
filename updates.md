@@ -1,3 +1,11 @@
+**This is the best the Maple Leafs have looked this season. Can it last?**\
+`Scotiabank Arena felt like a party Saturday night. It hasn't been that way for a long time.`\
+https://nytimes.com/athletic/6960802/2026/01/11/maple-leafs-canucks-win-season-momentum/
+
+**Rosenthal: Four takeaways in wake of Alex Bregman’s five-year, $175 million deal with Cubs**\
+`What's next for the Cubs, Scott Boras' winning strategy, Cody Bellinger's demands and the Red Sox's pursuit of Bo Bichette.`\
+https://nytimes.com/athletic/6960772/2026/01/11/alex-bregman-cubs-signing-free-agent-takeaways/
+
 **The Ashes 2025-26: The story of Australia's thrashing of England in 14 pictures**\
 `Australia's victory was a formality, with the urn retained in 11 days' cricket, but the series still provided plenty of memorable highlights`\
 https://nytimes.com/athletic/6941813/2026/01/11/ashes-australia-england-images-starc-head-root/
