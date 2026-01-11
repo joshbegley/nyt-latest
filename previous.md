@@ -1,3 +1,7 @@
+**Matthew Stafford snatched the Panthers' hearts to save the Rams' season**\
+`While Stafford wasn't at his best against Carolina, he orchestrated arguably the most clutch drive of his career in the waning moments. `\
+https://nytimes.com/athletic/6960683/2026/01/11/rams-matthew-stafford-game-winning-drive-panthers/
+
 **The New York Times International Edition in Print for Monday, Jan. 12, 2026**\
 ``\
 https://nytimes.com/issue/todaysinyt/2026/01/11/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/11/us/dallas-fat-soccer.html
 **This Dinosaur Really Knew How to Get a Grip**\
 `A fossil of Manipulonyx reshetovi, found in a Mongolian desert, shows how the dinosaur used its specialized claw to snatch eggs.`\
 https://nytimes.com/2026/01/11/science/dinosaurs-fossils-eggs-claw.html
-
-**Trump Threats and Venezuela Strike Leave Mexico Agonizing Over How to Respond**\
-`President Claudia Sheinbaum and her inner circle have been grappling with the right tone to strike in the country’s response to the Venezuela strike for fear of antagonizing the White House.`\
-https://nytimes.com/2026/01/11/world/americas/mexico-trump-cartels.html
 

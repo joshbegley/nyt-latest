@@ -1,3 +1,7 @@
+**Matthew Stafford snatched the Panthers' hearts to save the Rams' season**\
+`While Stafford wasn't at his best against Carolina, he orchestrated arguably the most clutch drive of his career in the waning moments. `\
+https://nytimes.com/athletic/6960683/2026/01/11/rams-matthew-stafford-game-winning-drive-panthers/
+
 **The New York Times International Edition in Print for Monday, Jan. 12, 2026**\
 ``\
 https://nytimes.com/issue/todaysinyt/2026/01/11/todays-new-york-times-international-edition
