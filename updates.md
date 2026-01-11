@@ -1,3 +1,15 @@
+**Ferrari releases name of new F1 car for Hamilton and Leclerc ahead of 2026 season**\
+`The 2026 season could be Hamilton's last chance win an eighth world championship and pass Michael Schumacher in F1 the record books.`\
+https://nytimes.com/athletic/6961537/2026/01/11/ferrari-f1-lewis-hamilton-charles-leclerc-new-car-name/
+
+**After Minnesota Shooting, ICE Again Limits Congressional Visits**\
+`The new guidelines for immigration facilities, issued by Kristi Noem, the homeland security secretary, are virtually identical to a policy that a federal judge halted last month.`\
+https://nytimes.com/2026/01/11/us/politics/minnesota-shooting-immigration-facilities-congressional-visits.html
+
+**Once Again, Oldest Mississippi Synagogue is Attacked With Fire**\
+`A suspect was in custody and charged with arson for setting the Saturday morning fire. It’s not the first time the Beth Israel house of worship has been attacked.`\
+https://nytimes.com/2026/01/11/us/mississippi-synagogue-arson-attack-suspect.html
+
 **Texas lands coveted transfer Cam Coleman, gives Arch Manning elite receiving option**\
 `The former five-star prospect was one of the only bright spots on an Auburn offense that struggled mightily in 2025.`\
 https://nytimes.com/athletic/6934476/2026/01/11/texas-cam-coleman-transfer-wide-receiver/
