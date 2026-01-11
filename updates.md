@@ -1,3 +1,20 @@
+**Can a shutout loss be a moral victory? For Blue Jackets against Avalanche, maybe**\
+`Columbus was somewhat satisfied with how it played in a 4-0 shutout loss to Colorado on Saturday.`\
+https://nytimes.com/athletic/6960502/2026/01/10/blue-jackets-avalanche-shutout-loss/
+
+**Dennis Schröder gets 3-game suspension for going after Luka Dončić: Sources**\
+`Multiple videos captured Schröder and Dončić going at each other during the game on Dec. 28.`\
+https://nytimes.com/athletic/6960622/2026/01/10/kings-dennis-shroder-suspended-3-games-nba/
+
+**Bears' T.J. Edwards carted off, ruled out vs. Packers with left ankle injury**\
+`Edwards left the field with an air cast on his left leg, leaving a Bears defense without one of its top leaders in the wild-card game.`\
+https://nytimes.com/athletic/6960616/2026/01/10/tj-edwards-bears-leg-injury-packers-wild-card/
+
+**James van Riemsdyk arrives at Red Wings game dressed as Batman for son's birthday**\
+`The veteran, who is out of town for a huge divisional clash in Montreal, found a way to celebrate his son Liam's fourth birthday from afar.
+`\
+https://nytimes.com/athletic/6960578/2026/01/10/red-wings-james-van-riemsdyk-batman/
+
 **James van Riemsdyk arrives at Red Wings game dressed as Batman for son's birthday**\
 `The veteran, who is out of town for a huge divisional clash in Montreal, found a way to celebrate his son Liam's fourth birthday from afar.
 `\
