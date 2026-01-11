@@ -1,3 +1,15 @@
+**How to watch West Virginia vs. Iowa State women's basketball: Time, TV, streaming**\
+`Find out how to watch the West Virginia Mountaineers play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961239/2026/01/11/west-virginia-vs-iowa-state-stream-how-to-watch-jan-11/
+
+**How to watch Georgia vs. South Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Georgia Lady Bulldogs play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961236/2026/01/11/georgia-vs-south-carolina-stream-how-to-watch-jan-11/
+
+**How to watch Kansas vs. Baylor women's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961234/2026/01/11/kansas-vs-baylor-stream-how-to-watch-jan-11/
+
 **An Education Success Story**\
 `We bring you some good news about schools in a place you might not expect.`\
 https://nytimes.com/2026/01/11/briefing/an-education-success-story.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6961011/2026/01/11/bears-packers-playoff-recap-cale
 **Caleb Williams powers 'legacy' win in Bears' playoff comeback over Packers**\
 `Down 21-3 at halftime, Williams led the Bears to 25 fourth-quarter points including another late, clutch game-winning TD.`\
 https://nytimes.com/athletic/6961046/2026/01/11/bears-caleb-williams-playoff-comeback-legacy/
-
-**The Big Inshallah**\
-`After his toddler was diagnosed with cancer, a writer asked: “What now?”`\
-https://nytimes.com/2026/01/11/briefing/the-big-inshallah.html
-
-**Red Wings show mettle in huge divisional win over Canadiens: Five thoughts**\
-`Detroit's 4-0 shutout of Montreal was a statement performance in the first of many second-half tests.`\
-https://nytimes.com/athletic/6960709/2026/01/11/red-wings-divisional-win-canadiens/
-
-**NFL playoffs Sunday watch guide: Bills-Jaguars, 49ers-Eagles, Chargers-Patriots**\
-`This is the sole day of the NFL playoffs with three games scheduled, and each matchup carries large national intrigue.`\
-https://nytimes.com/athletic/6952649/2026/01/11/nfl-playoffs-bills-jaguars-49ers-eagles-chargers-patriots/
 

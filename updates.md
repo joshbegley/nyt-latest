@@ -1,3 +1,15 @@
+**How to watch West Virginia vs. Iowa State women's basketball: Time, TV, streaming**\
+`Find out how to watch the West Virginia Mountaineers play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961239/2026/01/11/west-virginia-vs-iowa-state-stream-how-to-watch-jan-11/
+
+**How to watch Georgia vs. South Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Georgia Lady Bulldogs play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961236/2026/01/11/georgia-vs-south-carolina-stream-how-to-watch-jan-11/
+
+**How to watch Kansas vs. Baylor women's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6961234/2026/01/11/kansas-vs-baylor-stream-how-to-watch-jan-11/
+
 **An Education Success Story**\
 `We bring you some good news about schools in a place you might not expect.`\
 https://nytimes.com/2026/01/11/briefing/an-education-success-story.html
