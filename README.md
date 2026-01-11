@@ -1,3 +1,7 @@
+**Mass Protests in Iran and Trump’s Threats**\
+`A question now hangs over the country: Is Iran the next target of an emboldened U.S. president?`\
+https://nytimes.com/2026/01/11/world/mass-protests-iran-trump-venezuela.html
+
 **The Briefing: Barcelona 3 Real Madrid 2 — Raphinha wins battle of the Brazilians, has Alonso done enough to stay?**\
 `Barcelona took the bragging rights against Madrid in the Supercopa de Espana final, but what does it mean for Alonso's future?`\
 https://nytimes.com/athletic/6957114/2026/01/11/barcelona-real-madrid-clasico-analysis-result-supercopa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6961772/2026/01/11/hawks-vs-warriors-stream-how-to-
 **How to watch Wizards vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6961769/2026/01/11/wizards-vs-suns-stream-how-to-watch-jan-11/
-
-**How to watch Bucks vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6961767/2026/01/11/bucks-vs-nuggets-stream-how-to-watch-jan-11/
 
