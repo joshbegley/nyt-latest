@@ -1,3 +1,7 @@
+**Richard Codey, Former New Jersey Governor, Dies at 79**\
+`He was the longest serving legislator in New Jersey, while also running an insurance company and funeral home and coaching youth basketball.`\
+https://nytimes.com/2026/01/11/nyregion/richard-codey-dead-new-jersey.html
+
 **Trump Regrets Not Seizing Voting Machines After 2020 Election**\
 `In an interview, the president said he should have ordered the National Guard to take the machines to find evidence of fraud, but added that the Guard might not have had the sophistication to do so.`\
 https://nytimes.com/2026/01/11/us/trump-voting-machines-2020-election.html

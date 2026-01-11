@@ -6,7 +6,7 @@ https://nytimes.com/2026/01/11/us/trump-voting-machines-2020-election.html
 `The Atlantic Amateur Hockey Association is looking into what it called a “staged fight.”`\
 https://nytimes.com/athletic/6961730/2026/01/11/mite-hockey-brawl-ahl-investigation/
 
-**Richard Codey, Long-Serving New Jersey Politician, Dies at 79**\
+**Richard Codey, Former New Jersey Governor, Dies at 79**\
 `He was the longest serving legislator in New Jersey, while also running an insurance company and funeral home and coaching youth basketball.`\
 https://nytimes.com/2026/01/11/nyregion/richard-codey-dead-new-jersey.html
 
