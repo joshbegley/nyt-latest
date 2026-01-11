@@ -1,3 +1,7 @@
+**The Briefing: Barcelona 3 Real Madrid 2 — Raphinha wins battle of the Brazilians, has Alonso done enough to stay?**\
+`Barcelona took the bragging rights against Madrid in the Supercopa de Espana final, but what does it mean for Alonso's future?`\
+https://nytimes.com/athletic/6957114/2026/01/11/barcelona-real-madrid-clasico-analysis-result-supercopa/
+
 **Jirdes Winther Baxter, 101, Dies; Last Survivor of Epidemic in Alaska**\
 `An outbreak of diphtheria inspired a celebrated sled dog relay of nearly 700 miles to deliver lifesaving serum to the remote town of Nome.`\
 https://nytimes.com/2026/01/11/obituaries/jirdes-winther-baxter-dead.html
