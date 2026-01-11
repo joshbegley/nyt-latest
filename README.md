@@ -1,3 +1,7 @@
+**Sorokin shines, Kaprizov hits milestone and Ben Jones gets No. 1: Wild takeaways**\
+`Kirill Kaprizov passed Mikko Koivu for second all-time with the Wild in career points and was buzzing all night long.`\
+https://nytimes.com/athletic/6960875/2026/01/11/wild-loss-sorokin-kaprizov-jones-takeaways/
+
 **The Ashes 2025-26: The story of Australia's thrashing of England in 14 pictures**\
 `Australia's victory was a formality, with the urn retained in 11 days' cricket, but the series still provided plenty of memorable highlights`\
 https://nytimes.com/athletic/6941813/2026/01/11/ashes-australia-england-images-starc-head-root/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6937292/2026/01/11/thierry-henry-portsmouth-shirt-a
 **The Hull City fan who picked a trip to Marrakech over Millwall… because it was cheaper**\
 `Scott Wood joined Nigeria fans at the Africa Cup of Nations after working out it would cost less than going to a game in London`\
 https://nytimes.com/athletic/6959611/2026/01/11/hull-fan-afcon-nigeria/
-
-**'Irate' Jaylen Brown says refs were 'terrible' during Celtics loss to Spurs**\
-`Boston's star didn't hold back about his anger toward the officiating crew in Saturday's defeat.`\
-https://nytimes.com/athletic/6960807/2026/01/11/irate-jaylen-brown-refs-terrible-celtics-spurs/
 
