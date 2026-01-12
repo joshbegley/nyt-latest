@@ -1,4 +1,4 @@
-**Bills CB Tre'Davious White's basks in full-circle moment leading defense to playoff win**\
+**Bills CB Tre'Davious White basks in full-circle moment leading defense to playoff win**\
 `Two major injuries derailed White's career, but he found his way back to being an impact player for Buffalo.`\
 https://nytimes.com/athletic/6962245/2026/01/11/tredavious-white-bills-jaguars-defense/
 
