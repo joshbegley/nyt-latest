@@ -9,7 +9,7 @@ https://nytimes.com/video/world/middleeast/100000010638012/demonstrators-around-
 https://nytimes.com/athletic/6962218/2026/01/11/submit-a-question-to-stewart-mandels-college-football-mailbag-2/
 
 **Eagles' A.J. Brown, Nick Sirianni have heated sideline exchange vs. 49ers**\
-`Dom DiSandro, the Eagles' head of security, stepped in to calm both down in the second quarter of Sunday's NFC wild-card game. `\
+`Dom DiSandro, the Eagles' chief security officer, stepped in to calm both down in the second quarter of Sunday's NFC wild-card game. `\
 https://nytimes.com/athletic/6962155/2026/01/11/aj-brown-sirianni-heated-sideline-exchange-eagles-49ers/
 
 **Federal Prosecutors Are Said to Have Opened Inquiry Into Fed Chair Powell**\
