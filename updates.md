@@ -1,3 +1,15 @@
+**NBA Rewind: Ja Morant's trade market could be as slim as Trae Young's was**\
+`Plus, who's hot (Cavs, Wolves) and not (Knicks, Jazz) this week in the NBA. And can the Thunder and Spurs get their grooves back?`\
+https://nytimes.com/athletic/6959964/2026/01/12/ja-morant-trae-young-trade-deadline-nba-rewind/
+
+**USMNT Tracker: Pepi's nasty injury setback, Richards' nightmare return, Scally scores**\
+`It was mixed fortunes for the USMNT's stars over the weekend as they continue to jostle for World Cup spots`\
+https://nytimes.com/athletic/6963134/2026/01/12/usmnt-tracker-pepi-psv-richards-palace/
+
+**Inside USWNT captain Lindsey Heaps' move to Denver Summit FC in NWSL**\
+`While her deal was not dependent on the NWSL's new rule, Heaps could get the High Impact Player designation in the future.`\
+https://nytimes.com/athletic/6962882/2026/01/12/uswnt-lindsey-heaps-denver-summit-nwsl-signing/
+
 **Will Winter Return to the East Coast This Week? Here’s What to Know.**\
 `A brewing storm could lead to heavy snow across the Northeast by Thursday. But a lot is still uncertain, forecasters warned.`\
 https://nytimes.com/2026/01/12/weather/noreaster-snow-forecast.html
