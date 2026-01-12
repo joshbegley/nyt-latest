@@ -1,3 +1,11 @@
+**With the Golden Globes, podcasts are ready for their close-up.**\
+`By Jessica Testa`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/with-the-golden-globes-podcasts-are-ready-for-their-close-up
+
+**Allegiant to Buy Sun Country Airlines in $1.5 Billion Deal**\
+`The combination of the two small, budget airlines comes as low-cost carriers have struggled with high costs and competition.`\
+https://nytimes.com/2026/01/11/business/allegiant-sun-country-airlines.html
+
 **Golden Globes Winners: Updating List**\
 `The winning films, TV shows, actors and production teams at the 2026 Golden Globe Awards.`\
 https://nytimes.com/2026/01/11/movies/golden-globes-winners-list.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6962147/2026/01/11/matt-lafleur-future-packers-ed-p
 **Meet the U.S. Olympic figure skating team: Ilia Malinin headlines a powerful squad**\
 `Malinin is the clear gold medal favorite. All three women's skaters have a medal shot. And the incredible story of Maxim Naumov continues.`\
 https://nytimes.com/athletic/6961812/2026/01/11/us-olympics-figure-skating-team-ilia-malinin-amber-glenn-maxim-naumov/
-
-**Two Hours, Scores of Questions, 23,000 Words: Our Interview With President Trump**\
-`Four New York Times reporters pressed Mr. Trump about a range of topics in a nearly two-hour interview. Here is a transcript of their conversation.`\
-https://nytimes.com/2026/01/11/us/politics/trump-interview-transcript.html
-
-**Where’s the best original score award? Not on the telecast.**\
-`By Sarah Bahr`\
-https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/golden-globes-best-score
 

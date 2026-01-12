@@ -1,3 +1,11 @@
+**With the Golden Globes, podcasts are ready for their close-up.**\
+`By Jessica Testa`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/with-the-golden-globes-podcasts-are-ready-for-their-close-up
+
+**Allegiant to Buy Sun Country Airlines in $1.5 Billion Deal**\
+`The combination of the two small, budget airlines comes as low-cost carriers have struggled with high costs and competition.`\
+https://nytimes.com/2026/01/11/business/allegiant-sun-country-airlines.html
+
 **Golden Globes Winners: Updating List**\
 `The winning films, TV shows, actors and production teams at the 2026 Golden Globe Awards.`\
 https://nytimes.com/2026/01/11/movies/golden-globes-winners-list.html
