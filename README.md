@@ -1,3 +1,15 @@
+**The Briefing: Liverpool 4 Barnsley 1 - Slot goes strong, Szoboszlai's howler and a rare Ngumoha start**\
+`Gregg Evans analyses the main talking points as Liverpool beat Barnsley to reach the FA Cup fourth round`\
+https://nytimes.com/athletic/6953988/2026/01/12/liverpool-barnsley-fa-cup-analysis/
+
+**Judge Strikes Down Trump’s Latest Effort to Stop Offshore Wind**\
+`The ruling means that construction can continue on Revolution Wind, a $6.2 billion project off the coast of Rhode Island, at least for now.`\
+https://nytimes.com/2026/01/12/climate/judge-strikes-down-trumps-latest-effort-to-stop-offshore-wind.html
+
+**NASCAR brings back the 'Chase' for its playoffs, and the sport will be better for it**\
+`NASCAR's move back to the Chase playoff format should satisfy most (though not all) fans and restore credibility to the championship.`\
+https://nytimes.com/athletic/6963417/2026/01/12/nascar-chase-playoff-format-better-system/
+
 **Kelly Sues Pentagon Over Threats of Punishment From Hegseth**\
 `Senator Mark Kelly, Democrat of Arizona, asked a federal judge to block the Trump administration from disciplining him for a video warning about illegal military orders.`\
 https://nytimes.com/2026/01/12/us/politics/mark-kelly-pentagon-hegseth-suit.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/opinion/100000010633574/how-the-trump-administration-h
 **The PGA Tour is on offense. It’s refreshing to watch**\
 `Stars matter, and the PGA Tour is cockily declaring to LIV: “This is what we think of the rest of your league.”`\
 https://nytimes.com/athletic/6964109/2026/01/12/pga-tour-brooks-koepka-return-liv-golf-war-2026/
-
-**Bears coach Ben Johnson won't hide his contempt for the Packers: 'I don't like that team'**\
-`A rivalry has been reignited. The Bears' playoff win over the Packers — and sharp words from Johnson — have added a new edge.`\
-https://nytimes.com/athletic/6964175/2026/01/12/ben-johnson-bears-packers-rivalry/
-
-**We Need to Stop Asking This Question**\
-`The Opinion columnist Carlos Lozada argues that one familiar question “pretends to be this big dot-connecting moment” but it’s not.`\
-https://nytimes.com/video/opinion/100000010633572/we-need-to-stop-asking-this-question.html
-
-**Packers' Micah Parsons expects early-season return from torn ACL: 'Going to be crazy'**\
-`Parsons, Tucker Kraft, Zach Tom and Devonte Wyatt all spoke about their significant injuries during locker cleanout day on Monday.`\
-https://nytimes.com/athletic/6964117/2026/01/12/micah-parsons-packers-return-matt-lafleur/
 
