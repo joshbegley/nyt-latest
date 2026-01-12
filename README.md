@@ -1,3 +1,7 @@
+**Trump Administration Nears Deal With Taiwan**\
+`The trade deal would cut tariffs and include a commitment from Taiwanese Semiconductor Manufacturing Corporation, the island’s chip giant, to build more manufacturing plants in the United States.`\
+https://nytimes.com/2026/01/12/business/economy/trump-taiwan-deal.html
+
 **‘Tehran’ Review: Israel vs. Iran, Retold as a Spy Thriller**\
 `The third season of the Israeli series, rescheduled after last summer’s attacks on Iranian nuclear facilities, finally premieres on Apple TV.`\
 https://nytimes.com/2026/01/12/arts/television/tehran-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6963368/2026/01/12/bobsled-kris-horn-world-cup/
 **How to watch Panthers vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the Florida Panthers play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6963642/2026/01/12/panthers-vs-sabres-stream-how-to-watch-jan-12/
-
-**Scheduling ‘perfect storm’ compelled Rockets to drive 85 miles to Kings game**\
-`The Rockets played the Sacramento Kings Sunday night but had to bus 85 miles to Golden 1 Center from San Francisco that afternoon. Why?`\
-https://nytimes.com/athletic/6963511/2026/01/12/nba-rockets-kings-travel-hotel-issues-california/
 
