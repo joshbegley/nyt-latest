@@ -1,3 +1,13 @@
+**Demonstrators Around the World Show Solidarity for Iran Protests**\
+`For several nights in a row, antigovernment protests have rocked Iran, as a government crackdown intensifies. This weekend, protesters around the world showed their solidarity for the people of Iran and demanded world leaders take action.`\
+https://nytimes.com/video/world/middleeast/100000010638012/demonstrators-around-the-world-show-solidarity-for-iran-protests.html
+
+**Submit a question to Stewart Mandel's College Football Mailbag**\
+`<p>Four months of Mailbags have led us to Indiana-Miami. As expected. By no one.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6962218/2026/01/11/submit-a-question-to-stewart-mandels-college-football-mailbag-2/
+
 **Eagles' A.J. Brown, Nick Sirianni have heated sideline exchange vs. 49ers**\
 `Dom DiSandro, the Eagles' head of security, stepped in to calm both down in the second quarter of Sunday's NFC wild-card game. `\
 https://nytimes.com/athletic/6962155/2026/01/11/aj-brown-sirianni-heated-sideline-exchange-eagles-49ers/
@@ -29,12 +39,4 @@ https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/golden-globes-
 **The lifetime achievement winners have already been honored.**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/the-lifetime-achievement-winners-have-already-been-honored
-
-**So Great It’s Unnerving**\
-`Carolyn Davies Lynch and Christina Iverson collaborate on a poetic puzzle.`\
-https://nytimes.com/2026/01/11/crosswords/daily-puzzle-2026-01-12.html
-
-**No. 2 Texas (18-1) loses for first time this season, falling at No. 12 LSU**\
-`UConn, Vanderbilt and Texas Tech are the only unbeaten teams remaining in women's college basketball.`\
-https://nytimes.com/athletic/6962069/2026/01/11/lsu-texas-first-loss-of-season/
 
