@@ -1,3 +1,7 @@
+**CAF investigating 'unacceptable behaviour' after AFCON full-time clashes**\
+`CAF is investigating incidents from Nigeria’s victory against Algeria and Morocco’s win over Cameroon.`\
+https://nytimes.com/athletic/6963299/2026/01/12/caf-investigation-afcon-nigeria-algeria-morocco-cameroon/
+
 **Trump’s India Envoy Offers Hope Amid a Strained Relationship**\
 `Sergio Gor, a confidant of the U.S. president, took up his post as ambassador in New Delhi with ties between the countries at their lowest ebb in decades.`\
 https://nytimes.com/2026/01/12/world/asia/india-us-ambassador-sergio-gor.html
