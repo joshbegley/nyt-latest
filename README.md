@@ -1,3 +1,7 @@
+**The Bounce: Ja Morant, Anthony Davis trades complicated by availability**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6963372/2026/01/12/ja-morant-trade-deadline-nba-the-bounce/
+
 **Do You Know These Modern Books Inspired by Myth and Legend?**\
 `Ancient legends from thousands of years ago often find fresh audiences in new books. Test your memory of recent titles with this short quiz.`\
 https://nytimes.com/interactive/2026/01/12/books/review/myth-novels-quiz.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/12/weather/noreaster-snow-forecast.html
 **Lowetide: The Oilers have a Darnell Nurse problem. What's the solution?**\
 `Finding a way for Nurse to thrive is going to be key for Oilers coach Kris Knoblauch and his staff.`\
 https://nytimes.com/athletic/6961686/2026/01/12/edmonton-oilers-darnell-nurse-stats-problem/
-
-**Inside Real Madrid: What now for Xabi Alonso after Barcelona defeat?**\
-`The head coach is safe for now, but how was losing to their arch-rivals in the Supercopa de Espana final viewed by those behind the scenes?`\
-https://nytimes.com/athletic/6963130/2026/01/12/real-madrid-xabi-alonso-barcelona-supercopa-future/
 
