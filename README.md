@@ -1,6 +1,6 @@
 **Our Photos From Inside the Golden Globes**\
 `Our photographer is capturing behind-the-scenes moments with stars at Sunday night’s awards show.`\
-https://nytimes.com/2026/01/11/movies/our-photos-from-inside-the-golden-globes.html
+https://nytimes.com/2026/01/11/movies/golden-globes-awards-2026-photos.html
 
 **Christian McCaffrey, 49ers end Eagles' title defense with fourth-quarter rally**\
 `The 49ers lost George Kittle but upset the defending Super Bowl champions with two fourth-quarter touchdowns in the NFC wild-card game.`\
