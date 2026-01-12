@@ -1,3 +1,7 @@
+**Blue Jackets fire Dean Evason, name Rick Bowness head coach**\
+`The Blue Jackets are in last place in the Metropolitan Division with a 19-19-7 record.`\
+https://nytimes.com/athletic/6964335/2026/01/12/blue-jackets-hired-hc-rick-bowness-dean-evason-relieved/
+
 **Leaders of Historians’ Group Veto Resolutions Critical of Israel**\
 `The executive council of the American Historical Association said the resolutions, including one accusing Israel of ‘scholasticide’ in Gaza, would put the group at risk.`\
 https://nytimes.com/2026/01/12/arts/american-historical-association-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/12/world/federal-reserve-global-costs-iran-gaza.html
 **Dan Bongino, No Longer at the F.B.I., Will Return to Podcasting**\
 `The former F.B.I. deputy director, who had hosted a right-wing, pro-Trump podcast, will restart the show after a rocky tenure at the law-enforcement agency.`\
 https://nytimes.com/2026/01/12/arts/dan-bongino-fbi-podcast.html
-
-**Illinois Doctor Charged With Murder in Shooting of Ex-Wife and Her Husband**\
-`Monique and Spencer Tepe were fatally shot in their home in Columbus, Ohio, last month. Their two young children were found in the home, unharmed, the police said.`\
-https://nytimes.com/2026/01/12/us/tepe-couple-ohio-shooting-ex-husband-charged.html
 
