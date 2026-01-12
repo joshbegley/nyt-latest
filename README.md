@@ -1,3 +1,7 @@
+**Josh Allen's tush pushers carry Bills to grueling playoff victory: 'Closest-to-God experience'**\
+`O'Cyrus Torrence picked up his quarterback and took off.`\
+https://nytimes.com/athletic/6962283/2026/01/11/josh-allen-bills-tush-push-playoff-victory/
+
 **Mayor Mamdani Is Moving On Up to Gracie Mansion**\
 `Mayor Zohran Mamdani and his wife, Rama Duwaji, have begun moving their belongings from their Queens apartment to the official mayor’s residence in Manhattan.`\
 https://nytimes.com/2026/01/11/nyregion/mamdani-gracie-mansion-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6962212/2026/01/11/bob-weir-passing-grateful-dead-s
 **Timothée Chalamet wins best actor, motion picture musical or comedy.**\
 `By Emmanuel Morgan`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/timothee-chalamet-wins-best-actor-motion-picture-musical-or-comedy
-
-**Rose Byrne wins best actress, motion picture musical or comedy.**\
-`Byrne won for “If I Had Legs I’d`\
-https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/rose-byrne-wins-best-actress-motion-picture-musical-or-comedy
 
