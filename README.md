@@ -1,3 +1,7 @@
+**Steve Kerr on passing of Grateful Dead's Bob Weir: 'Sad day'**\
+`Kerr, who is in his 12th season as coach of the Warriors, said he appreciated Weir's connection, and that of his band, to San Francisco.`\
+https://nytimes.com/athletic/6962212/2026/01/11/bob-weir-passing-grateful-dead-steve-kerr-responds/
+
 **Timothée Chalamet wins best actor, motion picture musical or comedy.**\
 `By Emmanuel Morgan`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/timothee-chalamet-wins-best-actor-motion-picture-musical-or-comedy
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/11/obituaries/daniel-walker-howe-dead.html
 **With the Golden Globes, podcasts are ready for their close-up.**\
 `By Jessica Testa`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/with-the-golden-globes-podcasts-are-ready-for-their-close-up
-
-**Allegiant to Buy Sun Country Airlines in $1.5 Billion Deal**\
-`The combination of the two small, budget airlines comes as low-cost carriers have struggled with high costs and competition.`\
-https://nytimes.com/2026/01/11/business/allegiant-sun-country-airlines.html
 

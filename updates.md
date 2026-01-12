@@ -1,3 +1,11 @@
+**Timothée Chalamet wins best actor, motion picture musical or comedy.**\
+`By Emmanuel Morgan`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/timothee-chalamet-wins-best-actor-motion-picture-musical-or-comedy
+
+**Rose Byrne wins best actress, motion picture musical or comedy.**\
+`Byrne won for “If I Had Legs I’d`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/rose-byrne-wins-best-actress-motion-picture-musical-or-comedy
+
 **Bills CB Tre'Davious White basks in full-circle moment leading defense to playoff win**\
 `Two major injuries derailed White's career, but he found his way back to being an impact player for Buffalo.`\
 https://nytimes.com/athletic/6962245/2026/01/11/tredavious-white-bills-jaguars-defense/
