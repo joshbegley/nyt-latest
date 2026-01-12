@@ -1,3 +1,7 @@
+**Xabi Alonso's flexibility wasn't enough to beat Barcelona, but it's saved him at Real Madrid**\
+`Barcelona's 3-2 victory sealed the first trophy of Spain's season, but Alonso's team were competitive and ran them close`\
+https://nytimes.com/athletic/6962818/2026/01/12/real-madrid-barcelona-clasico-supercopa-alonso-job/
+
 **How Devin Booker fuels surging Phoenix Suns with unselfishness and 'hockey assists'**\
 `There are many themes to this surprising Suns season. Booker has been at the center, but not because of his scoring. `\
 https://nytimes.com/athletic/6962652/2026/01/12/devin-booker-suns-hockey-assists/
