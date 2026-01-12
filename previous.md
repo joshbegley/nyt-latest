@@ -1,3 +1,7 @@
+**Our Photos From Inside the Golden Globes**\
+`Our photographer is capturing behind-the-scenes moments with stars at Sunday night’s awards show.`\
+https://nytimes.com/2026/01/11/movies/our-photos-from-inside-the-golden-globes.html
+
 **Christian McCaffrey, 49ers end Eagles' title defense with fourth-quarter rally**\
 `The 49ers lost George Kittle but upset the defending Super Bowl champions with two fourth-quarter touchdowns in the NFC wild-card game.`\
 https://nytimes.com/athletic/6962183/2026/01/11/49ers-eagles-playoffs-result-takeaways/
@@ -20,7 +24,7 @@ https://nytimes.com/2026/01/11/movies/golden-globes-winners-list.html
 
 **Demonstrators Around the World Show Solidarity for Iran Protests**\
 `For several nights in a row, antigovernment protests have rocked Iran, as a government crackdown intensifies. This weekend, protesters around the world showed their solidarity for the people of Iran and demanded world leaders take action.`\
-https://nytimes.com/video/world/middleeast/100000010638012/demonstrators-around-the-world-show-solidarity-for-iran-protests.html
+https://nytimes.com/video/world/middleeast/100000010638012/world-react-protests-iran-anti-government.html
 
 **Submit a question to Stewart Mandel's College Football Mailbag**\
 `<p>Four months of Mailbags have led us to Indiana-Miami. As expected. By no one.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6962155/2026/01/11/aj-brown-sirianni-heated-sidelin
 **Federal Prosecutors Are Said to Have Opened Inquiry Into Fed Chair Powell**\
 `The investigation, which centers on renovations of the Federal Reserve’s headquarters in Washington, signals an escalation in the long-running clash between President Trump and the chair.`\
 https://nytimes.com/2026/01/11/us/politics/jerome-powell-fed-inquiry-trump.html
-
-**Neon, an indie studio with an international bent, tops Globes nominations.**\
-`By Nicole Sperling`\
-https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/neon-an-indie-studio-with-an-international-bent-tops-globes-nominations
 

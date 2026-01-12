@@ -1,3 +1,11 @@
+**Our Photos From Inside the Golden Globes**\
+`Our photographer is capturing behind-the-scenes moments with stars at Sunday night’s awards show.`\
+https://nytimes.com/2026/01/11/movies/our-photos-from-inside-the-golden-globes.html
+
+**Demonstrators Around the World Show Solidarity for Iran Protests**\
+`For several nights in a row, antigovernment protests have rocked Iran, as a government crackdown intensifies. This weekend, protesters around the world showed their solidarity for the people of Iran and demanded world leaders take action.`\
+https://nytimes.com/video/world/middleeast/100000010638012/world-react-protests-iran-anti-government.html
+
 **Christian McCaffrey, 49ers end Eagles' title defense with fourth-quarter rally**\
 `The 49ers lost George Kittle but upset the defending Super Bowl champions with two fourth-quarter touchdowns in the NFC wild-card game.`\
 https://nytimes.com/athletic/6962183/2026/01/11/49ers-eagles-playoffs-result-takeaways/
