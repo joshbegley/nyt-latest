@@ -1,3 +1,11 @@
+**How to watch Alabama vs. Missouri women's basketball: Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the Missouri Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6964168/2026/01/12/alabama-vs-missouri-stream-how-to-watch-jan-12/
+
+**Apple Teams Up With Google for A.I. in Its Products**\
+`Apple was facing increasing questions about its plans for artificial intelligence as other big tech companies invested tens of billions in the technology.`\
+https://nytimes.com/2026/01/12/technology/apple-google-ai-partnership.html
+
 **With Democrats at a Crossroads, Elizabeth Warren Urges a Left Turn**\
 `The Massachusetts senator signaled alarm about her party’s movement toward the center, warning in a speech that Democrats should not cozy up to the wealthy and the powerful.`\
 https://nytimes.com/2026/01/12/us/politics/elizabeth-warren-democrats.html
