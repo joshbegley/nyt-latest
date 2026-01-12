@@ -1,3 +1,7 @@
+**AP men's hoops Top 25: Arizona, Iowa State, UConn lead way, Vandy enters top 10**\
+`Four new teams entered the Top 25 after a shakeup at the bottom of the poll, including Utah State and Seton Hall.`\
+https://nytimes.com/athletic/6963914/2026/01/12/ap-top-25-mens-college-basketball-arizona-iowa-state/
+
 **Tracking Tropical Cyclone Dudzai**\
 `See the likely path and wind arrival times for Dudzai`\
 https://nytimes.com/interactive/2026/01/12/weather/dudzai-map-path-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/12/us/politics/jerome-powell-fed-investigation-repub
 **Submit a question for James Boyd's Indianapolis Colts mailbag**\
 `The Colts missed the playoffs for a fifth-straight season, so what does GM Chris Ballard need to do to get Indy back to the postseason?`\
 https://nytimes.com/athletic/6963925/2026/01/12/colts-mailbag-chris-ballard-daniel-jones-anthony-richardson/
-
-**PGA Tour reinstates Brooks Koepka, invites other elite LIV stars to join him**\
-`Jon Rahm, Bryson DeChambeau and Cameron Smith have the opportunity to rejoin the PGA Tour as part of the Returning Member Program.`\
-https://nytimes.com/athletic/6963849/2026/01/12/pga-tour-reinstate-brooks-koepka-rahm-dechambeau-smith-liv/
 
