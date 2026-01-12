@@ -1,40 +1,40 @@
-**Mike Vrabel gets bloody lip celebrating late Patriots sack with Milton Williams**\
+**Subtle changes but set-piece problems remain: What we learned about Liam Rosenior's Chelsea**\
+`Liam Rosenior started his Chelsea reign with a win but perhaps unsurprisingly some of the problems experienced under Enzo Maresca continued`\
+https://nytimes.com/athletic/6960537/2026/01/12/liam-rosenior-chelsea-charlton-tactics/
+
+**For Manchester United, a 40-game season is a new low (in more ways than one)**\
+`It is 111 years since the club last played so few games in a season, the result of damaging cup losses and an absence of European football`\
+https://nytimes.com/athletic/6941844/2026/01/12/manchester-united-brighton-fa-cup/
+
+**How a complete Morgan Rogers performance strengthened his claim to be England's No10**\
+`Morgan Rogers is Aston Villa's leading goalscorer this season and his form has given Thomas Tuchel his toughest selection headache`\
+https://nytimes.com/athletic/6960658/2026/01/12/morgan-rogers-aston-villa-fa-cup-england/
+
+**Leeds will need Wilfried Gnonto - he showed why**\
+`The Italian is unlikely to be a starter against Fulham but he took his chance against Derby and showed Farke what he can still offer`\
+https://nytimes.com/athletic/6961492/2026/01/12/wilfried-gnonto-leeds-farke/
+
+**Eritrea, a return to AFCON, and the footballers who escaped one of the world's most dangerous countries**\
+`In 2024 The Athletic told the story of the Eritrean players who fled. Two years on, the national team is set to return to competitive action`\
+https://nytimes.com/athletic/6961323/2026/01/12/eritrea-afcon-return-players-escaped/
+
+**The Kirkby alumnus returning to Anfield for the FA Cup: 'I was screaming: We've got Liverpool!'**\
+`Barnsley's Adam Phillips is hoping to swap shirts with Curtis Jones after the FA Cup third-round match on Monday`\
+https://nytimes.com/athletic/6961101/2026/01/12/adam-phillips-kirkby-liverpool-fa-cup-barnsley/
+
+**Summerville helped West Ham stop the rot. Is he the key to their survival?**\
+`Summerville's goal may have only been his second since joining from Leeds in August 2024, but it meant that bit more for the Dutchman`\
+https://nytimes.com/athletic/6961683/2026/01/12/crysencio-summerville-west-ham-qpr-fa-cup/
+
+**Newcastle United's marathon campaign continues – but at what cost?**\
+`The negative impact of Newcastle United's FA Cup victory over Bournemouth on an already stretched squad is significant`\
+https://nytimes.com/athletic/6959394/2026/01/12/newcastle-bournemouth-fa-cup-analysis/
+
+**Are managers ever relieved to be sacked? 'It is a relief of pressure - but then you miss that pressure'**\
+`Amorim looked like a weight had been lifted after his United exit, but what other concerns are there for managers further down the pyramid?`\
+https://nytimes.com/athletic/6957725/2026/01/12/sacked-premier-league-managers-amorim/
+
+**Mike Vrabel gets bloody lip celebrating clinching sack with Milton Williams**\
 `The first-year Patriots coach suffered a bloody lip while celebrating the game-clinching sack with defensive tackle Milton Williams.`\
 https://nytimes.com/athletic/6962665/2026/01/12/mike-vrabel-patriots-bloody-lip-milton-williams/
-
-**No Corrections: Jan. 12, 2026**\
-`No corrections appeared in print on Monday, Jan. 12, 2026.`\
-https://nytimes.com/2026/01/12/pageoneplus/no-corrections-jan-12-2026.html
-
-**Quote of the Day: This League Calls for 2 Things: Lots of Flab and a Funny Bone**\
-`Quotation of the Day for Monday, January 12, 2026.`\
-https://nytimes.com/2026/01/12/pageoneplus/quote-of-the-day-this-league-calls-for-2-things-lots-of-flab-and-a-funny-bone.html
-
-**Connections: Sports Edition Coach: Hints for Jan. 12, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6962502/2026/01/12/connections-sports-edition-hints-for-jan-12-2026/
-
-**Dmitri Voronkov's OT winner helps Jackets beat Utah, end rough trip on high note**\
-`In a tense overtime, Voronkov redirected Werenski’s pass, ending Columbus’ four-game losing streak and sparking much-needed excitement.`\
-https://nytimes.com/athletic/6962518/2026/01/11/blue-jackets-dmitri-voronkov-ot-winner/
-
-**The Improbables strike again: 49ers' upset in Philly perfectly reflects gritty season**\
-`The most-injured and least-injured playoff teams squared off on the least-injured team's home field Sunday. You'll never guess who won.`\
-https://nytimes.com/athletic/6962553/2026/01/11/49ers-injuries-eagles-playoffs-christian-mccaffrey/
-
-**Kyle Lowry as a veteran mentor? It feels weird, but it fits**\
-`One of the most competitive players in recent NBA history has found peace, it seems. `\
-https://nytimes.com/athletic/6962542/2026/01/11/kyle-lowry-veteran-mentor-76ers-raptors/
-
-**Knicks got their (Josh) Hart back in Portland. It was as if he never left**\
-`After missing eight games, Hart returned in Portland. He brought life back to New York.`\
-https://nytimes.com/athletic/6962434/2026/01/11/knicks-trail-blazers-josh-hart/
-
-**NFL playoff schedule: Divisional round to feature 3 NFC West teams**\
-`The Rams and 49ers advanced to join the Seahawks in the divisional round as the NFL's best division is proving itself in the playoffs.`\
-https://nytimes.com/athletic/6962268/2026/01/11/2025-nfl-divisional-round-schedule/
-
-**‘Hamnet’ wins Golden Globe for best drama, improving its Oscar odds.**\
-`By Esther Zuckerman`\
-https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/hamnet-wins-golden-globe-for-best-drama-improving-its-oscar-odds
 
