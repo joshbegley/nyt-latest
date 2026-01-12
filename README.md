@@ -1,3 +1,11 @@
+**Tottenham's defeat was reminder of how far they have fallen while Villa - and others - rose**\
+`The difference in the trajectories of Spurs and Villa over the past seven years was laid bare on Saturday.`\
+https://nytimes.com/athletic/6960459/2026/01/12/tottenham-frank-fa-cup/
+
+**The WSL's top-four battle has been split in two**\
+`Six points separate City and Chelsea — but these six points feel more impervious for City, who have won 11 WSL matches in a row`\
+https://nytimes.com/athletic/6961597/2026/01/12/wsl-title-chelsea-man-city/
+
 **Vilified on Thursday, hat-trick hero on Sunday - what a week for Gabriel Martinelli**\
 `The Brazilian scored his first career hat-trick, just three days after an unsavoury incident involving Liverpool's Conor Bradley`\
 https://nytimes.com/athletic/6961667/2026/01/12/gabriel-martinelli-portsmouth-liverpool/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6960658/2026/01/12/morgan-rogers-aston-villa-fa-cup
 **Leeds will need Wilfried Gnonto - he showed why**\
 `The Italian is unlikely to be a starter against Fulham but he took his chance against Derby and showed Farke what he can still offer`\
 https://nytimes.com/athletic/6961492/2026/01/12/wilfried-gnonto-leeds-farke/
-
-**Eritrea, a return to AFCON, and the footballers who escaped one of the world's most dangerous countries**\
-`In 2024 The Athletic told the story of the Eritrean players who fled. Two years on, the national team is set to return to competitive action`\
-https://nytimes.com/athletic/6961323/2026/01/12/eritrea-afcon-return-players-escaped/
-
-**The Kirkby alumnus returning to Anfield for the FA Cup: 'I was screaming: We've got Liverpool!'**\
-`Barnsley's Adam Phillips is hoping to swap shirts with Curtis Jones after the FA Cup third-round match on Monday`\
-https://nytimes.com/athletic/6961101/2026/01/12/adam-phillips-kirkby-liverpool-fa-cup-barnsley/
 
