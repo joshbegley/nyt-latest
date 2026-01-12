@@ -1,5 +1,9 @@
 **Our Photos From Inside the Golden Globes**\
 `Our photographer is capturing behind-the-scenes moments with stars at Sunday night’s awards show.`\
+https://nytimes.com/2026/01/11/movies/golden-globes-awards-2026-photos.html
+
+**Our Photos From Inside the Golden Globes**\
+`Our photographer is capturing behind-the-scenes moments with stars at Sunday night’s awards show.`\
 https://nytimes.com/2026/01/11/movies/our-photos-from-inside-the-golden-globes.html
 
 **Demonstrators Around the World Show Solidarity for Iran Protests**\
