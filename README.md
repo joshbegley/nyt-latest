@@ -1,3 +1,7 @@
+**CAF investigating 'unacceptable behaviour' after AFCON full-time clashes**\
+`CAF is investigating incidents from Nigeria’s victory against Algeria and Morocco’s win over Cameroon.`\
+https://nytimes.com/athletic/6963299/2026/01/12/caf-investigation-afcon-nigeria-algeria-morocco-cameroon/
+
 **Trump’s India Envoy Offers Hope Amid a Strained Relationship**\
 `Sergio Gor, a confidant of the U.S. president, took up his post as ambassador in New Delhi with ties between the countries at their lowest ebb in decades.`\
 https://nytimes.com/2026/01/12/world/asia/india-us-ambassador-sergio-gor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/12/business/dealbook/powell-federal-reserve-investig
 **Britain Investigates Elon Musk’s X Over Grok’s Sexualized A.I. Images**\
 `A British regulator said it had started a formal investigation into Mr. Musk’s chatbot over the spread of illegal images.`\
 https://nytimes.com/2026/01/12/world/europe/grok-ai-images-x-elon-musk-uk.html
-
-**A Green Beret Went on a Shooting Rampage. Is the Army at Fault?**\
-`High-tempo Special Operations training can cause brain injuries that accumulate unnoticed. One soldier says that is why he snapped and killed three people.`\
-https://nytimes.com/2026/01/12/us/blast-brain-injury-green-beret-shooting-duke-webb.html
 
