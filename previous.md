@@ -1,3 +1,15 @@
+**Notable Republicans Criticize Investigation of Fed Chair**\
+`Also, Iran said it is ready for war, but open to negotiate. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2026/01/12/briefing/fed-chair-investigation-iran-protests.html
+
+**Liverpool's Szoboszlai 'disrespectful' in FA Cup tie, says Barnsley boss**\
+`Szoboszlai, who had opened the scoring, gifted possession to Adam Phillips on the edge of his own six-yard box.`\
+https://nytimes.com/athletic/6964552/2026/01/12/dominik-szoboszlai-barnsley-goal-fa-cup-liverpool/
+
+**Trump’s Feel-My-Pain Economic Message**\
+`The president appears skeptical about Americans’ concerns. How will voters respond?`\
+https://nytimes.com/2026/01/12/us/politics/trump-economy.html
+
 **WNBA, players union agree to free agency moratorium until CBA deal is reached**\
 `Free agency rules are among negotiation priorities in the new CBA.`\
 https://nytimes.com/athletic/6964515/2026/01/12/wnba-union-free-agency-moratorium-cba/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6964427/2026/01/12/nfl-playoffs-record-scores-rams-
 **Lawyer Whom Maduro Didn’t Hire Is Booted From His Case**\
 `Last week, a lawyer came forward claiming to represent the unseated president of Venezuela, Nicolás Maduro. The judge overseeing the case settled the matter on Monday.`\
 https://nytimes.com/2026/01/12/nyregion/maduro-lawyers-bruce-fein.html
-
-**Trump Explores Diplomacy With Iran While Weighing Strikes, Officials Say**\
-`Abbas Araghchi, the foreign minister of Iran, said his government was ready to negotiate with the United States. Iranian security forces are cracking down on protests.`\
-https://nytimes.com/2026/01/12/us/politics/trump-iran-options-diplomacy-strikes.html
-
-**What Is Your Reaction to the Fatal ICE Shooting in Minneapolis?**\
-`Protests spread across the country this past weekend after a federal agent shot and killed Renee Nicole Good. What are you thinking, feeling and wondering in this moment?`\
-https://nytimes.com/2026/01/12/learning/what-is-your-reaction-to-the-fatal-ice-shooting-in-minneapolis.html
-
-**USA's McKennie scores again for Juventus in rout of Cremonese**\
-`The USMNT midfielder has his second goal in three matches, helping Juventus back into Serie A's top four`\
-https://nytimes.com/athletic/6964329/2026/01/12/weston-mckennie-goal-video-juventus-cremonese/
 
