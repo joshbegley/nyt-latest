@@ -1,3 +1,11 @@
+**F.B.I. Inquiry Into ICE Shooting Is Examining Victim’s Possible Ties to Activist Groups**\
+`The decision is consistent with the White House’s strategy of deflecting blame for the shooting away from federal law enforcement and toward opponents they have described as domestic terrorists.`\
+https://nytimes.com/2026/01/12/us/politics/fbi-renee-good-ice-shooting.html
+
+**Hamilton returns to Devils lineup against Wild after high-profile healthy scratch**\
+`Devils coach Sheldon Keefe said the scratch was due to wanting players returning from injury to get games over the back-to-back.`\
+https://nytimes.com/athletic/6964614/2026/01/12/dougie-hamilton-devils-keefe-lineup-wild/
+
 **Trinidad Chambliss has a decision to make as NCAA eligibility battle continues**\
 `While Ole Miss files an appeal with the NCAA, Chambliss' lawyers are expected to file a lawsuit in Mississippi court as soon as this week.`\
 https://nytimes.com/athletic/6964583/2026/01/12/trinidad-chambliss-eligibility-appeal-lawsuit/

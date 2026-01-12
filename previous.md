@@ -1,3 +1,11 @@
+**F.B.I. Inquiry Into ICE Shooting Is Examining Victim’s Possible Ties to Activist Groups**\
+`The decision is consistent with the White House’s strategy of deflecting blame for the shooting away from federal law enforcement and toward opponents they have described as domestic terrorists.`\
+https://nytimes.com/2026/01/12/us/politics/fbi-renee-good-ice-shooting.html
+
+**Hamilton returns to Devils lineup against Wild after high-profile healthy scratch**\
+`Devils coach Sheldon Keefe said the scratch was due to wanting players returning from injury to get games over the back-to-back.`\
+https://nytimes.com/athletic/6964614/2026/01/12/dougie-hamilton-devils-keefe-lineup-wild/
+
 **Trinidad Chambliss has a decision to make as NCAA eligibility battle continues**\
 `While Ole Miss files an appeal with the NCAA, Chambliss' lawyers are expected to file a lawsuit in Mississippi court as soon as this week.`\
 https://nytimes.com/athletic/6964583/2026/01/12/trinidad-chambliss-eligibility-appeal-lawsuit/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/12/nyregion/new-jersey-groundhog-day-veto.html
 **Hawks general manager Onsi Saleh on Trae Young trade: 'I really wish him the best'**\
 `The emergence of young stars Jalen Johnson and Nickeil Alexander-Walker, in particular, served as catalysts for the trade.`\
 https://nytimes.com/athletic/6964466/2026/01/12/hawks-trae-young-trade-onsi-saleh/
-
-**Notable Republicans Criticize Investigation of Fed Chair**\
-`Also, Iran said it is ready for war, but open to negotiate. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2026/01/12/briefing/fed-chair-investigation-iran-protests.html
-
-**Liverpool's Szoboszlai 'disrespectful' in FA Cup tie, says Barnsley boss**\
-`Szoboszlai, who had opened the scoring, gifted possession to Adam Phillips on the edge of his own six-yard box.`\
-https://nytimes.com/athletic/6964552/2026/01/12/dominik-szoboszlai-barnsley-goal-fa-cup-liverpool/
 
