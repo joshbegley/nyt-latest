@@ -1,3 +1,11 @@
+**TAFC: Biggest FA Cup shock, Wrexham heroics. Plus: Carrick favourite for Man Utd interim role**\
+`Today in TAFC: Macclesfield pull of biggest upset in cup history, Carrick in pole position for Man Utd job, Raphinha fluke sinks Real Madrid`\
+https://nytimes.com/athletic/6962998/2026/01/12/biggest-fa-cup-shock-macclesfield-carrick-man-utd/
+
+**Women's college basketball power rankings: UConn keeps rolling, LSU bounces back, Texas Tech rises**\
+`Sabreena Merchant breaks down her top 25.`\
+https://nytimes.com/athletic/6962655/2026/01/12/womens-college-basketball-power-rankings-uconn-lsu/
+
 **Nearly 15,000 Nurses Go on Strike at Major New York City Hospitals**\
 `Workers are demanding more robust staffing levels and higher pay. The strike comes three years after a smaller job action won significant gains.`\
 https://nytimes.com/2026/01/12/nyregion/nurses-strike-hospitals-nyc.html
