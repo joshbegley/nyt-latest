@@ -1,3 +1,7 @@
+**Owen Cooper of ‘Adolescence’ wins best supporting TV actor.**\
+`He prevailed in a battle of the breakout stars of 2025 over Tramell Tillman, of Apple TV’s mind-bending sci-fi thriller “Severance.”`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/owen-cooper-of-adolescence-wins-best-supporting-tv-actor
+
 **Our Photos From Inside the Golden Globes**\
 `Our photographer is capturing behind-the-scenes moments with stars at Sunday night’s awards show.`\
 https://nytimes.com/2026/01/11/movies/golden-globes-awards-2026-photos.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6962218/2026/01/11/submit-a-question-to-stewart-man
 **Eagles' A.J. Brown, Nick Sirianni have heated sideline exchange vs. 49ers**\
 `Dom DiSandro, the Eagles' chief security officer, stepped in to calm both down in the second quarter of Sunday's NFC wild-card game. `\
 https://nytimes.com/athletic/6962155/2026/01/11/aj-brown-sirianni-heated-sideline-exchange-eagles-49ers/
-
-**Federal Prosecutors Are Said to Have Opened Inquiry Into Fed Chair Powell**\
-`The investigation, which centers on renovations of the Federal Reserve’s headquarters in Washington, signals an escalation in the long-running clash between President Trump and the chair.`\
-https://nytimes.com/2026/01/11/us/politics/jerome-powell-fed-inquiry-trump.html
 

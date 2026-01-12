@@ -1,3 +1,7 @@
+**Owen Cooper of ‘Adolescence’ wins best supporting TV actor.**\
+`He prevailed in a battle of the breakout stars of 2025 over Tramell Tillman, of Apple TV’s mind-bending sci-fi thriller “Severance.”`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/owen-cooper-of-adolescence-wins-best-supporting-tv-actor
+
 **Our Photos From Inside the Golden Globes**\
 `Our photographer is capturing behind-the-scenes moments with stars at Sunday night’s awards show.`\
 https://nytimes.com/2026/01/11/movies/golden-globes-awards-2026-photos.html
