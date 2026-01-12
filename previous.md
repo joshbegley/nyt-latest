@@ -1,3 +1,7 @@
+**How Julius Randle stunningly became a Wemby stopper late in Timberwolves' win**\
+`Randle played perhaps the best defense of his Minnesota career, and Anthony Edwards continued his incredible clutch play.`\
+https://nytimes.com/athletic/6962207/2026/01/12/julius-randle-timberwolves-victor-wembanyama/
+
 **Hamburg accuse former sporting director of not complying with investigation into sexual harassment allegations**\
 `Hamburg originally announced Kuntz’s departure on January 2, stating that he requested a release from his contract after Christmas.`\
 https://nytimes.com/athletic/6963002/2026/01/12/hamburg-accuse-stefan-kuntz-investigation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6961886/2026/01/12/rangers-trade-tiers-panarin-souc
 **Brutal upcoming schedule puts upswing to the test: Monday Morning Leafs Report**\
 `Are the Maple Leafs' excellent results lately here to stay? With a very tough upcoming schedule, we're about to find out.`\
 https://nytimes.com/athletic/6961676/2026/01/12/maple-leafs-schedule-laughton-penalty-kill/
-
-**Coaching matchups could decide Round 3 of Seahawks-49ers**\
-`Kyle Shanahan's 49ers are 2-3 against Mike Macdonald-coached defenses since 2023.`\
-https://nytimes.com/athletic/6962499/2026/01/12/seahawks-49ers-playoffs-kyle-shanahan-mike-macdonald/
 

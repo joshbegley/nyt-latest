@@ -1,3 +1,7 @@
+**How Julius Randle stunningly became a Wemby stopper late in Timberwolves' win**\
+`Randle played perhaps the best defense of his Minnesota career, and Anthony Edwards continued his incredible clutch play.`\
+https://nytimes.com/athletic/6962207/2026/01/12/julius-randle-timberwolves-victor-wembanyama/
+
 **Hamburg accuse former sporting director of not complying with investigation into sexual harassment allegations**\
 `Hamburg originally announced Kuntz’s departure on January 2, stating that he requested a release from his contract after Christmas.`\
 https://nytimes.com/athletic/6963002/2026/01/12/hamburg-accuse-stefan-kuntz-investigation/
