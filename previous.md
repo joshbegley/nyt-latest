@@ -1,3 +1,15 @@
+**NFL divisional round odds: One heavy favorite and one near pick 'em**\
+`After a brilliant wild-card round, who is favored to make it to the conference championship games? `\
+https://nytimes.com/athletic/6963366/2026/01/12/nfl-divisional-round-odds-spreads/
+
+**Paramount Threatens Board Fight Over Warner Bros. Discovery**\
+`The announcement was the latest in a series of increasingly aggressive actions by Paramount to buy Warner Bros.`\
+https://nytimes.com/2026/01/12/business/media/paramount-warner-bros-discovery-board-fight.html
+
+**The Windup: Cubs the runaway NL Central favorite after signing Bregman?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6963576/2026/01/12/alex-bregman-cubs-the-windup/
+
 **Flamengo have bid rejected for West Ham's Paqueta**\
 `Sources say Paqueta asked to be left out of West Ham's squad for their 2-1 win over QPR due to his desire to join Flamengo.`\
 https://nytimes.com/athletic/6963243/2026/01/12/lucas-paqueta-flamengo-west-ham-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/12/health/abortion-pill-mifepristone-fda.html
 **5 Workouts to Ease Pain and Prevent Injury**\
 `This January, find a new exercise routine to move more easily.`\
 https://nytimes.com/2026/01/12/well/move/pain-prevention-workout.html
-
-**Owner of Swiss Bar Where 40 Died Is Ordered to Jail as a Flight Risk**\
-`Jacques Moretti has been placed in pretrial detention for at least three months. He and his wife, Jessica Moretti, are under investigation over possible negligence.`\
-https://nytimes.com/2026/01/12/world/europe/switzerland-fire-bar-owner-detention.html
-
-**Submit a question for James Edwards’ Knicks trade deadline mailbag**\
-`James Edwards answers your trade deadline questions about the Knicks. `\
-https://nytimes.com/athletic/6963502/2026/01/12/knicks-trade-deadline-mailbag/
-
-**Penguins mailbag: Crosby's next contract, NHL trade deadline, good vibes**\
-`Plus: Watch me try to pick just one reason for the Penguins' surprising success this season.`\
-https://nytimes.com/athletic/6953911/2026/01/12/penguins-sidney-crosby-contract-nhl/
 
