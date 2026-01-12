@@ -1,3 +1,15 @@
+**Owner of Swiss Bar Where 40 Died Is Ordered to Jail as a Flight Risk**\
+`Jacques Moretti has been placed in pretrial detention for at least three months. He and his wife, Jessica Moretti, are under investigation over possible negligence.`\
+https://nytimes.com/2026/01/12/world/europe/switzerland-fire-bar-owner-detention.html
+
+**Submit a question for James Edwards’ Knicks trade deadline mailbag**\
+`James Edwards answers your trade deadline questions about the Knicks. `\
+https://nytimes.com/athletic/6963502/2026/01/12/knicks-trade-deadline-mailbag/
+
+**Penguins mailbag: Crosby's next contract, NHL trade deadline, good vibes**\
+`Plus: Watch me try to pick just one reason for the Penguins' surprising success this season.`\
+https://nytimes.com/athletic/6953911/2026/01/12/penguins-sidney-crosby-contract-nhl/
+
 **The Bounce: Ja Morant, Anthony Davis trades complicated by availability**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6963372/2026/01/12/ja-morant-trade-deadline-nba-the-bounce/

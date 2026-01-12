@@ -1,3 +1,15 @@
+**Owner of Swiss Bar Where 40 Died Is Ordered to Jail as a Flight Risk**\
+`Jacques Moretti has been placed in pretrial detention for at least three months. He and his wife, Jessica Moretti, are under investigation over possible negligence.`\
+https://nytimes.com/2026/01/12/world/europe/switzerland-fire-bar-owner-detention.html
+
+**Submit a question for James Edwards’ Knicks trade deadline mailbag**\
+`James Edwards answers your trade deadline questions about the Knicks. `\
+https://nytimes.com/athletic/6963502/2026/01/12/knicks-trade-deadline-mailbag/
+
+**Penguins mailbag: Crosby's next contract, NHL trade deadline, good vibes**\
+`Plus: Watch me try to pick just one reason for the Penguins' surprising success this season.`\
+https://nytimes.com/athletic/6953911/2026/01/12/penguins-sidney-crosby-contract-nhl/
+
 **The Bounce: Ja Morant, Anthony Davis trades complicated by availability**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6963372/2026/01/12/ja-morant-trade-deadline-nba-the-bounce/
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/6959964/2026/01/12/ja-morant-trae-young-trade-deadl
 **USMNT Tracker: Pepi's nasty injury setback, Richards' nightmare return, Scally scores**\
 `It was mixed fortunes for the USMNT's stars over the weekend as they continue to jostle for World Cup spots`\
 https://nytimes.com/athletic/6963134/2026/01/12/usmnt-tracker-pepi-psv-richards-palace/
-
-**Will Winter Return to the East Coast This Week? Here’s What to Know.**\
-`A brewing storm could lead to heavy snow across the Northeast by Thursday. But a lot is still uncertain, forecasters warned.`\
-https://nytimes.com/2026/01/12/weather/noreaster-snow-forecast.html
-
-**Lowetide: The Oilers have a Darnell Nurse problem. What's the solution?**\
-`Finding a way for Nurse to thrive is going to be key for Oilers coach Kris Knoblauch and his staff.`\
-https://nytimes.com/athletic/6961686/2026/01/12/edmonton-oilers-darnell-nurse-stats-problem/
 
