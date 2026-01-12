@@ -1,3 +1,7 @@
+**Avalanche in Washington State Kills 2**\
+`The men were among a group of four skiing in the backcountry near Longs Pass, east of Seattle in the Cascade Mountains. The area received heavy snowfall last week.`\
+https://nytimes.com/2026/01/11/us/washington-avalanche-kills-2-men.html
+
 **Scottie Barnes caps big game, Raptors OT win vs. 76ers in bizarre fashion**\
 `One of the most laboured endings in an NBA game somehow also ended very quickly.`\
 https://nytimes.com/athletic/6962420/2026/01/11/raptors-defeat-76ers-scottie-barnes-free-throw/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/11/movies/golden-globes-awards-2026-photos.html
 **Christian McCaffrey, 49ers end Eagles' title defense with fourth-quarter rally**\
 `The 49ers lost George Kittle but upset the defending Super Bowl champions with two fourth-quarter touchdowns in an NFC wild-card game.`\
 https://nytimes.com/athletic/6962183/2026/01/11/49ers-eagles-playoffs-result-takeaways/
-
-**Daniel Walker Howe, Historian of Antebellum America, Dies at 88**\
-`He saw the origins of modern America in the years between 1815 and 1848, when revolutions in technology and media transformed a nation of isolated farms.`\
-https://nytimes.com/2026/01/11/obituaries/daniel-walker-howe-dead.html
 

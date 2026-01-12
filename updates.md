@@ -1,3 +1,11 @@
+**Scottie Barnes caps big game, Raptors OT win vs. 76ers in bizarre fashion**\
+`One of the most laboured endings in an NBA game somehow also ended very quickly.`\
+https://nytimes.com/athletic/6962420/2026/01/11/raptors-defeat-76ers-scottie-barnes-free-throw/
+
+**Steve Kerr on passing of Grateful Dead's Bob Weir: 'Sad day'**\
+`Kerr, who is in his 12th season as coach of the Warriors, said he appreciated Weir's connection, and that of his band, to San Francisco.`\
+https://nytimes.com/athletic/6962212/2026/01/11/bob-weir-passing-grateful-dead-steve-kerr-responds/
+
 **Timothée Chalamet wins best actor, motion picture musical or comedy.**\
 `By Emmanuel Morgan`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/timothee-chalamet-wins-best-actor-motion-picture-musical-or-comedy

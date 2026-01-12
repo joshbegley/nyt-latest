@@ -1,3 +1,11 @@
+**Scottie Barnes caps big game, Raptors OT win vs. 76ers in bizarre fashion**\
+`One of the most laboured endings in an NBA game somehow also ended very quickly.`\
+https://nytimes.com/athletic/6962420/2026/01/11/raptors-defeat-76ers-scottie-barnes-free-throw/
+
+**Steve Kerr on passing of Grateful Dead's Bob Weir: 'Sad day'**\
+`Kerr, who is in his 12th season as coach of the Warriors, said he appreciated Weir's connection, and that of his band, to San Francisco.`\
+https://nytimes.com/athletic/6962212/2026/01/11/bob-weir-passing-grateful-dead-steve-kerr-responds/
+
 **Timothée Chalamet wins best actor, motion picture musical or comedy.**\
 `By Emmanuel Morgan`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/timothee-chalamet-wins-best-actor-motion-picture-musical-or-comedy
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6962183/2026/01/11/49ers-eagles-playoffs-result-tak
 **Daniel Walker Howe, Historian of Antebellum America, Dies at 88**\
 `He saw the origins of modern America in the years between 1815 and 1848, when revolutions in technology and media transformed a nation of isolated farms.`\
 https://nytimes.com/2026/01/11/obituaries/daniel-walker-howe-dead.html
-
-**With the Golden Globes, podcasts are ready for their close-up.**\
-`By Jessica Testa`\
-https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/with-the-golden-globes-podcasts-are-ready-for-their-close-up
-
-**Allegiant to Buy Sun Country Airlines in $1.5 Billion Deal**\
-`The combination of the two small, budget airlines comes as low-cost carriers have struggled with high costs and competition.`\
-https://nytimes.com/2026/01/11/business/allegiant-sun-country-airlines.html
 
