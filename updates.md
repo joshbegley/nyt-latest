@@ -1,3 +1,7 @@
+**Steve Staios on the Senators' nightmarish week and the fiery statement that followed**\
+`Staios stood behind a fiery statement the Senators released late last week: "I’m not going to apologize for standing up for my players."`\
+https://nytimes.com/athletic/6963839/2026/01/12/steve-staios-senators-statement-linus-ullmark/
+
 **Sources: Earthquakes nearing DP deal for German striker Timo Werner**\
 `The German forward is out of favor at RB Leipzig and is seeking a fresh start in MLS`\
 https://nytimes.com/athletic/6963744/2026/01/12/timo-werner-san-jose-earthquakes-transfer-mls-leipzig/
