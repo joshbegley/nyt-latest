@@ -1,40 +1,40 @@
-**The secret behind Barcelona's new dominance over Real Madrid? Lamine Yamal can tell you**\
-`Sunday's Supercopa victory was Barca's third consecutive win in a final against their Clasico rivals`\
-https://nytimes.com/athletic/6962940/2026/01/12/barcelona-real-madrid-clasico-supercopa-yamal-flick/
+**Best and Worst Moments From the 2026 Golden Globes**\
+`Nikki Glaser returned as host and killed, while Teyana Taylor delivered the speech of the night. Then there were those awful production choices.`\
+https://nytimes.com/2026/01/12/movies/golden-globes-best-worst-moments.html
 
-**Carrick in pole position to be Man United interim head coach**\
-`Carrick has emerged as the leading candidate for the role after he and Ole Gunnar Solskjaer held face-to-face talks with club executives.`\
-https://nytimes.com/athletic/6942066/2026/01/12/manchester-united-michael-carrick-manager-next-interim/
+**Ricky Gervais Won the Comedy Award. Wanda Sykes Got the Last Laugh.**\
+`Although Gervais has hosted the Golden Globes five times, he was not at the ceremony on Sunday night.`\
+https://nytimes.com/2026/01/12/arts/television/ricky-gervais-wanda-sykes-golden-globes.html
 
-**Winners of the 83rd Golden Globe Awards**\
-`The 83rd Golden Globes award ceremony recognized Hollywood’s best in film and television, as well as a new category this year, best podcast.`\
-https://nytimes.com/video/arts/television/100000010638592/golden-globes-2026-watch.html
+**Trump’s Victory Wobble**\
+`A fading president obsesses over leaving a mark.`\
+https://nytimes.com/2026/01/12/opinion/trump-power-election.html
 
-**A Push to Expand the Rights of Immigrants in Defiance of Trump**\
-`An effort by New Jersey Democrats is seen as a provocative statement of principle in a state with the country’s second largest percentage of immigrants, after California.`\
-https://nytimes.com/2026/01/12/nyregion/immigration-policy-new-jersey.html
+**Russia’s Fearsome Arsenal Fizzled in Venezuela. Here’s Why.**\
+`The Venezuelan regime had high-powered air defense systems from its allies in the Kremlin, but failed to set much of it up.`\
+https://nytimes.com/2026/01/12/world/americas/venezuela-russian-weapons-fail.html
 
-**Mamdani’s Schools Chief Begins Shaping Agenda Around Rigor and Equity**\
-`In his first week on the job, Kamar H. Samuels started to sketch out his priorities for leading America’s largest school system.`\
-https://nytimes.com/2026/01/12/nyregion/mamdanis-schools-chief-samuels-agenda.html
+**The Rare Republican Who Brawls With Trump — and Is Ready for More**\
+`Thomas Massie says his primary against a Trump-supported challenger will be a referendum on whether you can “have a thought that diverges from the president’s.”`\
+https://nytimes.com/2026/01/12/opinion/thomas-massie-kentucky-trump-republicans.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/12/crosswords/spelling-bee-forum.html
+**Of Course Grok Started Undressing People. Here’s What to Do About It.**\
+`Tech companies that want to seriously prevent illegal A.I.-generated sexual imagery need to be given the right incentives to come up with solutions.`\
+https://nytimes.com/2026/01/12/opinion/grok-digital-undressing.html
 
-**Fed Chair Responds to Inquiry on Building Renovations**\
-`Federal prosecutors opened an investigation into whether Jerome H. Powell, the Federal Reserve chair, lied to Congress about the scope of renovations of the central bank’s buildings. He called the probe “unprecedented” in a rare video message.`\
-https://nytimes.com/video/us/politics/100000010638605/powell-investigation-trump.html
+**Patriots' wild-card win made it feel like the good old days in New England**\
+`Nearly every lever Mike Vrabel has pulled has worked out in the Patriots' turnaround season, a lot like during the best of times.`\
+https://nytimes.com/athletic/6962815/2026/01/12/patriots-chargers-good-old-days-nfl-playoffs/
 
-**Target Center security apologizes after telling Wolves fan to remove 'ICE OUT' T-shirt**\
-`Tim Phillips, a civil rights attorney, said that he wore the shirt in response to the increased presence of ICE agents in the Twin Cities.`\
-https://nytimes.com/athletic/6962668/2026/01/12/minnesota-timberwolves-fan-ice-out-shirt/
+**Do I Need to Keep Up With Microtrends?**\
+`It seems as if every week a new “aesthetic” pops up on social media. Our critic weighs in on whether there’s an end in sight — and whether you need to pay attention at all.`\
+https://nytimes.com/2026/01/12/fashion/trends-aesthetic-core.html
 
-**Word of the Day: abstruse**\
-`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/01/12/learning/word-of-the-day-abstruse.html
+**Follow Ian McKellen Into the Mixed Reality Future in ‘An Ark’**\
+`Audiences can embark on a very different type of theatrical experience in a new play at the Shed, blending the physical world with digital content.`\
+https://nytimes.com/2026/01/12/theater/ark-ian-mckellen-shed.html
 
-**Xabi Alonso's flexibility wasn't enough to beat Barcelona, but it's saved him at Real Madrid**\
-`Barcelona's 3-2 victory sealed the first trophy of Spain's season, but Alonso's team were competitive and ran them close`\
-https://nytimes.com/athletic/6962818/2026/01/12/real-madrid-barcelona-clasico-supercopa-alonso-job/
+**Have Some Spare Time? Why Not Build a Medieval War Machine?**\
+`In “Catapult,” an impulsive project between two friends leads to reflections on human nature and conflict.`\
+https://nytimes.com/2026/01/12/books/review/jim-paul-catapult.html
 
