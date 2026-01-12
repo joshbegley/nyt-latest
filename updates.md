@@ -1,3 +1,7 @@
+**Daniel Walker Howe, Historian of Antebellum America, Dies at 88**\
+`He saw the origins of modern America in the years between 1815 and 1848, when revolutions in technology and media transformed a nation of isolated farms.`\
+https://nytimes.com/2026/01/11/obituaries/daniel-walker-howe-dead.html
+
 **With the Golden Globes, podcasts are ready for their close-up.**\
 `By Jessica Testa`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/with-the-golden-globes-podcasts-are-ready-for-their-close-up
