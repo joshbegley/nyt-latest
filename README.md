@@ -1,3 +1,15 @@
+**Venezuela Frees 24 More Political Prisoners, Rights Group Says**\
+`Since an interim government began the releases last week, at least 41 people have been let go, according to Foro Penal.`\
+https://nytimes.com/2026/01/12/world/americas/venezuela-political-prisoners-freed.html
+
+**Spurs' Bentancur set to miss three months with injury**\
+`The Uruguayan sustained the hamstring injury last week, with his absence leaving Spurs light in midfield.`\
+https://nytimes.com/athletic/6963037/2026/01/12/rodrigo-bentancur-injury-tottenham-transfer/
+
+**Mary Peltola Runs for Senate in Alaska, Lifting Democrats’ Hopes**\
+`The former congresswoman is the latest top-tier recruit for Democrats, who face a difficult Senate map this year as they try to retake control of the chamber.`\
+https://nytimes.com/2026/01/12/us/politics/mary-peltola-senate-alaska.html
+
 **Simeone apologises to Vinicius Jr after Supercopa clash**\
 `Simeone also apologised to Madrid president Florentino Perez and described his actions from Thursday's fixture as "not acceptable".`\
 https://nytimes.com/athletic/6963113/2026/01/12/diego-simeone-vinicius-junior-apology/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6963002/2026/01/12/hamburg-accuse-stefan-kuntz-inve
 **With Alex Bregman gone, what options make sense for Red Sox?**\
 `With a month to go before spring training and Bregman now with the Cubs, how can the Red Sox addresses their lineup's weaknesses?`\
 https://nytimes.com/athletic/6961817/2026/01/12/red-sox-options-alex-bregman-gone-free-agency/
-
-**Why Freddy Peralta is the perfect trade target for the Yankees**\
-`Pitching is the Yankees' biggest problem. Landing Peralta would go a long way toward quieting some of the questions that surround the staff.`\
-https://nytimes.com/athletic/6961583/2026/01/12/freddy-peralta-yankees-trade-target/
-
-**Astros mailbag part 1: After losing Alex Bregman, will Red Sox target Isaac Paredes?**\
-`Plus your questions on a potential Jeremy Peña extension, Dana Brown and Joe Espada heading into the season as lame ducks and more.`\
-https://nytimes.com/athletic/6960451/2026/01/12/astros-isaac-paredes-red-sox-jeremy-pena-extension/
-
-**Strength, fast feet, no quit: How a career minor-leaguer made an NHL breakthrough**\
-`After signing a league-minimum deal on July 1, the Bruins rewarded Aspirot with a two-year extension on Sunday.`\
-https://nytimes.com/athletic/6962303/2026/01/12/bruins-jonathan-aspirot-extension/
 

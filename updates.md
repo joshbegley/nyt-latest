@@ -1,3 +1,7 @@
+**Simeone apologises to Vinicius Jr after Supercopa clash**\
+`Simeone also apologised to Madrid president Florentino Perez and described his actions from Thursday's fixture as "not acceptable".`\
+https://nytimes.com/athletic/6963113/2026/01/12/diego-simeone-vinicius-junior-apology/
+
 **George Saunders Says Ditching These Three Delusions Can Save You**\
 `The celebrated author George Saunders on the challenges of being kind, the benefits of meditation and the reality check of death.`\
 https://nytimes.com/video/podcasts/100000010639131/george-saunders-says-ditching-these-three-delusions-can-save-you.html
