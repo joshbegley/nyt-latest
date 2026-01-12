@@ -1,3 +1,11 @@
+**Bills CB Tre'Davious White's basks in full-circle moment leading defense to playoff win**\
+`Two major injuries derailed White's career, but he found his way back to being an impact player for Buffalo.`\
+https://nytimes.com/athletic/6962245/2026/01/11/tredavious-white-bills-jaguars-defense/
+
+**When pain of losing finally subsides, Jaguars can take solace in having set new standard**\
+`"This was one of the first times I felt surrounded by guys who wanted to be great. ... It was a lot of fun to be around that.”`\
+https://nytimes.com/athletic/6962253/2026/01/11/jaguars-bills-loss-playoffs-liam-coen-trevor-lawrence-standard/
+
 **Christian McCaffrey, 49ers end Eagles' title defense with fourth-quarter rally**\
 `The 49ers lost George Kittle but upset the defending Super Bowl champions with two fourth-quarter touchdowns in an NFC wild-card game.`\
 https://nytimes.com/athletic/6962183/2026/01/11/49ers-eagles-playoffs-result-takeaways/
