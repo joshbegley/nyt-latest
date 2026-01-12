@@ -1,3 +1,11 @@
+**Trinidad Chambliss has a decision to make as NCAA eligibility battle continues**\
+`While Ole Miss files an appeal with the NCAA, Chambliss' lawyers are expected to file a lawsuit in Mississippi court as soon as this week.`\
+https://nytimes.com/athletic/6964583/2026/01/12/trinidad-chambliss-eligibility-appeal-lawsuit/
+
+**Trump Officials Are Sending 1,000 More Immigration Officers to Minnesota**\
+`The Customs and Border Protection officers are joining 2,000 other officers and agents at the Department of Homeland Security who have recently been deployed to the Minneapolis region.`\
+https://nytimes.com/2026/01/12/us/politics/border-patrol-minnesota-surge.html
+
 **John Harbaugh speaks with Falcons' Matt Ryan, no in-person interviews yet**\
 `The Falcons conducted a preliminary interview with Harbaugh on Monday. He has yet to meet in person with any team about its coaching job.`\
 https://nytimes.com/athletic/6964558/2026/01/12/john-harbaugh-falcons-matt-ryan-head-coaching-job/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/12/briefing/fed-chair-investigation-iran-protests.ht
 **Liverpool's Szoboszlai 'disrespectful' in FA Cup tie, says Barnsley boss**\
 `Szoboszlai, who had opened the scoring, gifted possession to Adam Phillips on the edge of his own six-yard box.`\
 https://nytimes.com/athletic/6964552/2026/01/12/dominik-szoboszlai-barnsley-goal-fa-cup-liverpool/
-
-**Trump’s Feel-My-Pain Economic Message**\
-`The president appears skeptical about Americans’ concerns. How will voters respond?`\
-https://nytimes.com/2026/01/12/us/politics/trump-economy.html
-
-**WNBA, players union agree to free agency moratorium until CBA deal is reached**\
-`Free agency rules are among negotiation priorities in the new CBA.`\
-https://nytimes.com/athletic/6964515/2026/01/12/wnba-union-free-agency-moratorium-cba/
 
