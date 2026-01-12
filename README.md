@@ -1,3 +1,23 @@
+**49ers' no-name defense 'scratching and clawing' to keep season alive**\
+`Fueled by midseason additions and unproven backups, the 49ers' defense shut the door on the defending Super Bowl champions.`\
+https://nytimes.com/athletic/6964078/2026/01/12/49ers-defense-injuries-eric-kendricks-garret-wallow/
+
+**How NASCAR ended up back at the Chase playoff format: 'The best of both worlds'**\
+`After a year-long process full of debate, options and simulations, NASCAR ultimately settled on a playoff format in the middle ground.`\
+https://nytimes.com/athletic/6962330/2026/01/12/nascar-chase-playoff-format-how-it-happened/
+
+**What to Know About the Criminal Investigation of the Fed Chair**\
+`The Justice Department’s probe into whether Jerome H. Powell, the chair of the Federal Reserve, lied about renovations to the central bank’s headquarters has raised alarms.`\
+https://nytimes.com/2026/01/12/us/politics/jerome-powell-investigation-fed-renovations.html
+
+**NASCAR changes playoff format back to 'Chase'-style system after rising criticism**\
+`After more than a year of debate, NASCAR has settled on its new playoff format — a return (mostly) to the old that will be widely welcomed.`\
+https://nytimes.com/athletic/6959848/2026/01/12/nascar-playoff-format-chase-elimination-change-race/
+
+**Meta Plans to Cut Around 10% of Employees in Reality Labs Business**\
+`The layoffs are set to be announced this week and would affect Meta’s work on the metaverse, as the company spends heavily on building artificial intelligence.`\
+https://nytimes.com/2026/01/12/technology/meta-layoffs-reality-labs.html
+
 **How to watch Hornets vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6964224/2026/01/12/hornets-vs-clippers-stream-how-to-watch-jan-12/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6964216/2026/01/12/oilers-vs-blackhawks-stream-how-
 **How to watch Canucks vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6964213/2026/01/12/canucks-vs-canadiens-stream-how-to-watch-jan-12/
-
-**How to watch 76ers vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6964211/2026/01/12/76ers-vs-raptors-stream-how-to-watch-jan-12/
-
-**How to watch Maple Leafs vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6964205/2026/01/12/maple-leafs-vs-avalanche-stream-how-to-watch-jan-12/
-
-**How to watch Lakers vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6964203/2026/01/12/lakers-vs-kings-stream-how-to-watch-jan-12/
-
-**How to watch Devils vs. Wild: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6964201/2026/01/12/devils-vs-wild-stream-how-to-watch-jan-12/
-
-**How to watch Stars vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6964199/2026/01/12/stars-vs-kings-stream-how-to-watch-jan-12/
 
