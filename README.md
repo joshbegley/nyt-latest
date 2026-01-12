@@ -1,3 +1,11 @@
+**WNBA and players union agree to free agency moratorium until CBA deal is reached**\
+`Free agency rules are among negotiation priorities in the new CBA.`\
+https://nytimes.com/athletic/6964515/2026/01/12/wnba-union-free-agency-moratorium-cba/
+
+**Trump Cuts to Energy Projects in Blue States Were Unlawful, Judge Rules**\
+`The Energy Department canceled $7.5 billion in Biden-era energy spending, largely in Democratic-led states, during last year’s government shutdown.`\
+https://nytimes.com/2026/01/12/climate/trump-energy-department-grant-cuts-unlawful.html
+
 **Arson Suspect Targeted Mississippi Synagogue for Its ‘Jewish Ties,’ F.B.I. Says**\
 `The suspect, Stephen Spencer Pittman, was turned in by his father, who said his son had laughed as he confessed to the fire that damaged the synagogue, investigators said.`\
 https://nytimes.com/2026/01/12/us/mississippi-synagogue-arson.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/12/learning/what-is-your-reaction-to-the-fatal-ice-s
 **USA's McKennie scores again for Juventus in rout of Cremonese**\
 `The USMNT midfielder has his second goal in three matches, helping Juventus back into Serie A's top four`\
 https://nytimes.com/athletic/6964329/2026/01/12/weston-mckennie-goal-video-juventus-cremonese/
-
-**Blue Jackets fire Dean Evason, name Rick Bowness head coach**\
-`The Blue Jackets are in last place in the Metropolitan Division with a 19-19-7 record.`\
-https://nytimes.com/athletic/6964335/2026/01/12/blue-jackets-hired-hc-rick-bowness-dean-evason-relieved/
-
-**Leaders of Historians’ Group Veto Resolutions Critical of Israel**\
-`The executive council of the American Historical Association said the resolutions, including one accusing Israel of ‘scholasticide’ in Gaza, would put the group at risk.`\
-https://nytimes.com/2026/01/12/arts/american-historical-association-gaza.html
 
