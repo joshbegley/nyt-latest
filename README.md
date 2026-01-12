@@ -1,3 +1,7 @@
+**Teyana Taylor, George Clooney and Jacob Elordi Toast the Golden Globes**\
+`After the final award had been handed out, stars dispersed across Los Angeles for exclusive after-parties at hot spots like Spago and the Chateau Marmont.`\
+https://nytimes.com/2026/01/12/style/golden-globes-party-teyana-taylor-george-clooney.html
+
 **Criminal Inquiry of Powell Draws Backlash From Some Republicans**\
 `Three Republican senators offered a rare rebuke of the Trump administration’s tactics, criticizing an investigation of the Federal Reserve chair.`\
 https://nytimes.com/2026/01/12/us/politics/jerome-powell-fed-investigation-republicans-backlash.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6963819/2026/01/12/bulls-heat-condensation-court-re
 **Botman signs new long-term Newcastle contract:**\
 `The centre-back has made 17 appearances for Newcastle this season across all competitions, regularly partnering Malick Thiaw.`\
 https://nytimes.com/athletic/6859007/2026/01/12/sven-botman-newcastle-contract-new/
-
-**Why didn't Xabi Alonso's tactics work at Real Madrid?**\
-`The 44-year-old left his role as manager on Monday, having only been appointed at the Bernabeu in May`\
-https://nytimes.com/athletic/6954080/2026/01/12/real-madrid-xabi-alonso-sacked-analysis-tactics/
 
