@@ -1,3 +1,11 @@
+**Golden Globes Winners: Updating List**\
+`The winning films, TV shows, actors and production teams at the 2026 Golden Globe Awards.`\
+https://nytimes.com/2026/01/11/movies/golden-globes-winners-list.html
+
+**Eagles' A.J. Brown, Nick Sirianni have heated sideline exchange vs. 49ers**\
+`Dom DiSandro, the Eagles' chief security officer, stepped in to calm both down in the second quarter of Sunday's NFC wild-card game. `\
+https://nytimes.com/athletic/6962155/2026/01/11/aj-brown-sirianni-heated-sideline-exchange-eagles-49ers/
+
 **Demonstrators Around the World Show Solidarity for Iran Protests**\
 `For several nights in a row, antigovernment protests have rocked Iran, as a government crackdown intensifies. This weekend, protesters around the world showed their solidarity for the people of Iran and demanded world leaders take action.`\
 https://nytimes.com/video/world/middleeast/100000010638012/demonstrators-around-the-world-show-solidarity-for-iran-protests.html

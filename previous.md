@@ -1,3 +1,7 @@
+**Golden Globes Winners: Updating List**\
+`The winning films, TV shows, actors and production teams at the 2026 Golden Globe Awards.`\
+https://nytimes.com/2026/01/11/movies/golden-globes-winners-list.html
+
 **Demonstrators Around the World Show Solidarity for Iran Protests**\
 `For several nights in a row, antigovernment protests have rocked Iran, as a government crackdown intensifies. This weekend, protesters around the world showed their solidarity for the people of Iran and demanded world leaders take action.`\
 https://nytimes.com/video/world/middleeast/100000010638012/demonstrators-around-the-world-show-solidarity-for-iran-protests.html
@@ -9,7 +13,7 @@ https://nytimes.com/video/world/middleeast/100000010638012/demonstrators-around-
 https://nytimes.com/athletic/6962218/2026/01/11/submit-a-question-to-stewart-mandels-college-football-mailbag-2/
 
 **Eagles' A.J. Brown, Nick Sirianni have heated sideline exchange vs. 49ers**\
-`Dom DiSandro, the Eagles' head of security, stepped in to calm both down in the second quarter of Sunday's NFC wild-card game. `\
+`Dom DiSandro, the Eagles' chief security officer, stepped in to calm both down in the second quarter of Sunday's NFC wild-card game. `\
 https://nytimes.com/athletic/6962155/2026/01/11/aj-brown-sirianni-heated-sideline-exchange-eagles-49ers/
 
 **Federal Prosecutors Are Said to Have Opened Inquiry Into Fed Chair Powell**\
@@ -35,8 +39,4 @@ https://nytimes.com/2026/01/11/us/politics/trump-interview-transcript.html
 **Where’s the best original score award? Not on the telecast.**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/golden-globes-best-score
-
-**The lifetime achievement winners have already been honored.**\
-`By Sarah Bahr`\
-https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/the-lifetime-achievement-winners-have-already-been-honored
 
