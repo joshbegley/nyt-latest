@@ -1,3 +1,7 @@
+**New York City Nurses Go on Strike**\
+`Nearly 15,000 nurses at major New York City hospitals went on strike on Monday, demanding more robust staffing levels, higher pay and better safety precautions.`\
+https://nytimes.com/video/nyregion/100000010639219/nyc-nurse-strike.html
+
 **What Our Photographer Saw in Minneapolis**\
 `David Guttenfelder, a visual journalist for The New York Times, was at the scene in Minneapolis immediately after an ICE agent killed a 37-year-old woman in her vehicle. He walks us through the photos and videos he took over the next few days as outrage and protests mounted in the city.`\
 https://nytimes.com/video/us/100000010633079/what-our-photographer-saw-in-minneapolis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6956545/2026/01/12/sam-leavitt-commits-lsu-lane-kif
 **How to watch Jazz vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6963631/2026/01/12/jazz-vs-cavaliers-stream-how-to-watch-jan-12/
-
-**How to watch Kraken vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6963629/2026/01/12/kraken-vs-rangers-stream-how-to-watch-jan-12/
 
