@@ -1,3 +1,15 @@
+**How the Trump Administration Hacked Our Ignorance**\
+`David French explains on “The Opinions” why he believes a key secret to the Trump administration lies in its ability to exploit “civic ignorance.”`\
+https://nytimes.com/video/opinion/100000010633574/how-the-trump-administration-hacked-our-ignorance.html
+
+**The PGA Tour is on offense. It’s refreshing to watch**\
+`Stars matter, and the PGA Tour is cockily declaring to LIV: “This is what we think of the rest of your league.”`\
+https://nytimes.com/athletic/6964109/2026/01/12/pga-tour-brooks-koepka-return-liv-golf-war-2026/
+
+**Bears coach Ben Johnson won't hide his contempt for the Packers: 'I don't like that team'**\
+`A rivalry has been reignited. The Bears' playoff win over the Packers — and sharp words from Johnson — have added a new edge.`\
+https://nytimes.com/athletic/6964175/2026/01/12/ben-johnson-bears-packers-rivalry/
+
 **We Need to Stop Asking This Question**\
 `The Opinion columnist Carlos Lozada argues that one familiar question “pretends to be this big dot-connecting moment” but it’s not.`\
 https://nytimes.com/video/opinion/100000010633572/we-need-to-stop-asking-this-question.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6964078/2026/01/12/49ers-defense-injuries-eric-kend
 **What to Know About the Criminal Investigation of the Fed Chair**\
 `The Justice Department’s probe into whether Jerome H. Powell, the chair of the Federal Reserve, lied about renovations to the central bank’s headquarters has raised alarms.`\
 https://nytimes.com/2026/01/12/us/politics/jerome-powell-investigation-fed-renovations.html
-
-**NASCAR changes playoff format back to 'Chase'-style system after rising criticism**\
-`After more than a year of debate, NASCAR has settled on its new playoff format — a return (mostly) to the old that will be widely welcomed.`\
-https://nytimes.com/athletic/6959848/2026/01/12/nascar-playoff-format-chase-elimination-change-race/
-
-**Meta Plans to Cut Around 10% of Employees in Reality Labs Business**\
-`The layoffs are set to be announced this week and would affect Meta’s work on the metaverse, as the company spends heavily on building artificial intelligence.`\
-https://nytimes.com/2026/01/12/technology/meta-layoffs-reality-labs.html
-
-**How to watch Hornets vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6964224/2026/01/12/hornets-vs-clippers-stream-how-to-watch-jan-12/
 
