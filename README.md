@@ -18,15 +18,15 @@ https://nytimes.com/athletic/6962818/2026/01/12/real-madrid-barcelona-clasico-su
 `There are many themes to this surprising Suns season. Booker has been at the center, but not because of his scoring. `\
 https://nytimes.com/athletic/6962652/2026/01/12/devin-booker-suns-hockey-assists/
 
-**You Can’t Drone Strike a Global Drug Chain**\
-`Turning Latin America into a theater of war will not weaken transnational crime; it will entrench it.`\
-https://nytimes.com/2026/01/12/opinion/trump-venezuela-organized-crime-cartels.html
-
 **The New York Times in Print for Monday, Jan. 12, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/12/todays-new-york-times
 
-**A New World Is Taking Shape, No Matter What Trump Does**\
+**This Is How the Cartels Win**\
+`Turning Latin America into a theater of war will not weaken transnational crime; it will entrench it.`\
+https://nytimes.com/2026/01/12/opinion/trump-venezuela-organized-crime-cartels.html
+
+**American Supremacy Is Over, and Something New Is Coming**\
 `America’s days of unipolar supremacy are past.`\
 https://nytimes.com/2026/01/12/opinion/trump-venezuela-world-mercosur.html
 
