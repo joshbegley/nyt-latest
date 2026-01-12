@@ -1,3 +1,11 @@
+**Maxim Naumov earns spot in Olympics, embodying the resilience of this U.S. team**\
+`Naumov lost his parents in last January's plane crash over the Potomac River. Now, he's heading to the Olympics on a loaded U.S. team.`\
+https://nytimes.com/athletic/6962389/2026/01/11/maxim-naumov-olympics-us-figure-skating-team/
+
+**Jessie Buckley wins best actress, motion picture drama.**\
+`By Derrick Bryson Taylor`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/jessie-buckley-wins-best-actress-motion-picture-drama
+
 **‘The Studio’ wins best TV comedy.**\
 `By Michaela Towfighi`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/the-studio-wins-best-tv-comedy

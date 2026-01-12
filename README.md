@@ -1,3 +1,7 @@
+**Wagner Moura wins best actor, motion picture drama.**\
+`By Emmanuel Morgan`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/wagner-moura-wins-best-actor-motion-picture-drama
+
 **Maxim Naumov earns spot in Olympics, embodying the resilience of this U.S. team**\
 `Naumov lost his parents in last January's plane crash over the Potomac River. Now, he's heading to the Olympics on a loaded U.S. team.`\
 https://nytimes.com/athletic/6962389/2026/01/11/maxim-naumov-olympics-us-figure-skating-team/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6962283/2026/01/11/josh-allen-bills-tush-push-playo
 **Mayor Mamdani Is Moving On Up to Gracie Mansion**\
 `Mayor Zohran Mamdani and his wife, Rama Duwaji, have begun moving their belongings from their Queens apartment to the official mayor’s residence in Manhattan.`\
 https://nytimes.com/2026/01/11/nyregion/mamdani-gracie-mansion-nyc.html
-
-**Cubs are contenders again. They can't do something silly like trade Nico Hoerner**\
-`Trading Hoerner, a team leader, elite defender and above-average offensive player, would be antithetical to the ultimate goal of winning.`\
-https://nytimes.com/athletic/6962301/2026/01/11/cubs-nico-hoerner-offseason-moves/
 
