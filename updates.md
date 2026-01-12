@@ -1,3 +1,7 @@
+**Mertesacker to leave role as Arsenal academy manager**\
+`Mertesacker will leave the club at the end of the season and said in a club statement it was time to “explore something new”.`\
+https://nytimes.com/athletic/6963056/2026/01/12/per-mertesacker-arsenal-academy-exit/
+
 **TAFC: Biggest FA Cup shock, Wrexham heroics. Plus: Carrick favourite for Man Utd interim role**\
 `Today in TAFC: Macclesfield pull of biggest upset in cup history, Carrick in pole position for Man Utd job, Raphinha fluke sinks Real Madrid`\
 https://nytimes.com/athletic/6962998/2026/01/12/biggest-fa-cup-shock-macclesfield-carrick-man-utd/
