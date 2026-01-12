@@ -1,3 +1,11 @@
+**Kyle Lowry as a veteran mentor? It feels weird, but it fits**\
+`One of the most competitive players in recent NBA history has found peace, it seems. `\
+https://nytimes.com/athletic/6962542/2026/01/11/kyle-lowry-veteran-mentor-76ers-raptors/
+
+**NFL playoff schedule: Divisional round to feature 3 NFC West teams**\
+`The Rams and 49ers advanced to join the Seahawks in the divisional round as the NFL's best division is proving itself in the playoffs.`\
+https://nytimes.com/athletic/6962268/2026/01/11/2025-nfl-divisional-round-schedule/
+
 **Knicks got their (Josh) Hart back in Portland. It was as if he never left**\
 `After missing eight games, Hart returned in Portland. He brought life back to New York.`\
 https://nytimes.com/athletic/6962434/2026/01/11/knicks-trail-blazers-josh-hart/
