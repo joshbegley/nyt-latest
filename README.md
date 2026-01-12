@@ -1,3 +1,7 @@
+**NFL divisional round odds: One heavy favorite and one near pick 'em**\
+`After a brilliant wild-card round, who is favored to make it to the conference championship games? `\
+https://nytimes.com/athletic/6963366/2026/01/12/nfl-divisional-round-odds-spreads/
+
 **Paramount Threatens Board Fight Over Warner Bros. Discovery**\
 `The announcement was the latest in a series of increasingly aggressive actions by Paramount to buy Warner Bros.`\
 https://nytimes.com/2026/01/12/business/media/paramount-warner-bros-discovery-board-fight.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/12/health/abortion-pill-mifepristone-fda.html
 **5 Workouts to Ease Pain and Prevent Injury**\
 `This January, find a new exercise routine to move more easily.`\
 https://nytimes.com/2026/01/12/well/move/pain-prevention-workout.html
-
-**Owner of Swiss Bar Where 40 Died Is Ordered to Jail as a Flight Risk**\
-`Jacques Moretti has been placed in pretrial detention for at least three months. He and his wife, Jessica Moretti, are under investigation over possible negligence.`\
-https://nytimes.com/2026/01/12/world/europe/switzerland-fire-bar-owner-detention.html
 
