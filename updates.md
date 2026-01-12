@@ -1,3 +1,15 @@
+**Tracking Tropical Cyclone Dudzai**\
+`See the likely path and wind arrival times for Dudzai`\
+https://nytimes.com/interactive/2026/01/12/weather/dudzai-map-path-tracker.html
+
+**Rangers send message to Lafrenière, who admits he 'hasn’t been good enough'**\
+`"We need more out of some guys. I think Laf is a guy that can bring more to the table for us," Rangers coach Mike Sullivan said.`\
+https://nytimes.com/athletic/6963745/2026/01/12/ny-rangers-alexis-lafreniere-criticism-nhl/
+
+**Federal Prosecutor Is Fired Amid Further Turmoil in Comey Case**\
+`Robert K. McBride had been serving as the top deputy to Lindsey Halligan, the U.S. attorney for the Eastern District of Virginia.`\
+https://nytimes.com/2026/01/12/us/politics/mcbride-halligan-us-attorney-trump.html
+
 **Supreme Court Grapples With Louisiana Coastal Lawsuits Against Oil Companies**\
 `The justices heard arguments over whether oil companies sued by Louisiana could move the cases from state to federal court, a venue thought to be friendlier to corporate interests.`\
 https://nytimes.com/2026/01/12/us/politics/supreme-court-louisiana-oil.html
