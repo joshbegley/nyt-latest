@@ -1,3 +1,7 @@
+**Steve Staios on the Senators' nightmarish week and the fiery statement that followed**\
+`Staios stood behind a fiery statement the Senators released late last week: "I’m not going to apologize for standing up for my players."`\
+https://nytimes.com/athletic/6963839/2026/01/12/steve-staios-senators-statement-linus-ullmark/
+
 **Sources: Earthquakes nearing DP deal for German striker Timo Werner**\
 `The German forward is out of favor at RB Leipzig and is seeking a fresh start in MLS`\
 https://nytimes.com/athletic/6963744/2026/01/12/timo-werner-san-jose-earthquakes-transfer-mls-leipzig/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6963290/2026/01/12/fa-cup-fourth-round-draw-wrexham
 **Spurs advancing in talks over deal for Atletico's Gallagher**\
 `Gallagher has spent 18 months in La Liga after joining Atletico from Chelsea in a £38million deal in the summer of 2024.`\
 https://nytimes.com/athletic/6958617/2026/01/12/conor-gallagher-tottenham-transfer-atletico-madrid/
-
-**Teyana Taylor, George Clooney and Jacob Elordi Toast the Golden Globes**\
-`After the final award had been handed out, stars dispersed across Los Angeles for exclusive after-parties at hot spots like Spago and the Chateau Marmont.`\
-https://nytimes.com/2026/01/12/style/golden-globes-party-teyana-taylor-george-clooney.html
 

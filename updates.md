@@ -1,3 +1,11 @@
+**Sources: Earthquakes nearing DP deal for German striker Timo Werner**\
+`The German forward is out of favor at RB Leipzig and is seeking a fresh start in MLS`\
+https://nytimes.com/athletic/6963744/2026/01/12/timo-werner-san-jose-earthquakes-transfer-mls-leipzig/
+
+**George Saunders on the Value of Human Contact**\
+`When the author George Saunders was awarded a medal by the National Book Foundation last year, he was introduced as “the ultimate teacher of kindness and of craft.” On “The Interview,” he discussed the value of human connection, and where it’s being lost.`\
+https://nytimes.com/video/podcasts/100000010639538/george-saunders-on-the-value-of-human-contact.html
+
 **AP men's hoops Top 25: Arizona, Iowa State, UConn lead way, Vandy enters top 10**\
 `Four new teams entered the Top 25 after a shakeup at the bottom of the poll, including Utah State and Seton Hall.`\
 https://nytimes.com/athletic/6963914/2026/01/12/ap-top-25-mens-college-basketball-arizona-iowa-state/
