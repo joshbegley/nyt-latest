@@ -1,3 +1,15 @@
+**Tracking Tropical Cyclone Dudzai**\
+`See the likely path and wind arrival times for Dudzai`\
+https://nytimes.com/interactive/2026/01/12/weather/dudzai-map-path-tracker.html
+
+**Rangers send message to Lafrenière, who admits he 'hasn’t been good enough'**\
+`"We need more out of some guys. I think Laf is a guy that can bring more to the table for us," Rangers coach Mike Sullivan said.`\
+https://nytimes.com/athletic/6963745/2026/01/12/ny-rangers-alexis-lafreniere-criticism-nhl/
+
+**Federal Prosecutor Is Fired Amid Further Turmoil in Comey Case**\
+`Robert K. McBride had been serving as the top deputy to Lindsey Halligan, the U.S. attorney for the Eastern District of Virginia.`\
+https://nytimes.com/2026/01/12/us/politics/mcbride-halligan-us-attorney-trump.html
+
 **Supreme Court Grapples With Louisiana Coastal Lawsuits Against Oil Companies**\
 `The justices heard arguments over whether oil companies sued by Louisiana could move the cases from state to federal court, a venue thought to be friendlier to corporate interests.`\
 https://nytimes.com/2026/01/12/us/politics/supreme-court-louisiana-oil.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6963925/2026/01/12/colts-mailbag-chris-ballard-dani
 **PGA Tour reinstates Brooks Koepka, invites other elite LIV stars to join him**\
 `Jon Rahm, Bryson DeChambeau and Cameron Smith have the opportunity to rejoin the PGA Tour as part of the Returning Member Program.`\
 https://nytimes.com/athletic/6963849/2026/01/12/pga-tour-reinstate-brooks-koepka-rahm-dechambeau-smith-liv/
-
-**Sens sign Reimer to 1-year deal; unsure when he'll play**\
-`Reimer, 37, split last season with the Buffalo Sabres and the Anaheim Ducks and finished the year with a 10-10-2 record.`\
-https://nytimes.com/athletic/6963768/2026/01/12/senators-reimer-contract-goalie-ullmark/
-
-**Blues' Broberg in concussion protocol: 'We are very happy with his progress'**\
-`Blues coach Jim Montgomery listed Philip Broberg as "doubtful" to play Tuesday against the Carolina Hurricanes.`\
-https://nytimes.com/athletic/6963506/2026/01/12/blues-philip-broberg-concussion-protocol/
-
-**Super Bowl MVP odds: Stafford leads quarterback-heavy list**\
-`Who is in the mix for the top individual honor of the Super Bowl?`\
-https://nytimes.com/athletic/6963571/2026/01/12/super-bowl-mvp-odds-stafford-darnold-allen-maye/
 
