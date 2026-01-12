@@ -1,3 +1,11 @@
+**Wall St. Shows Nerves as Stocks, Bonds and the Dollar Slip on Fed Threat**\
+`The broad shift out of U.S. financial assets revived last year’s trend called the “sell America” trade.`\
+https://nytimes.com/2026/01/12/business/stock-market-dollar-trump-fed-powell.html
+
+**England U17 forward Madjo completes Villa transfer from Metz**\
+`The 17-year-old forward has played five matches in Ligue 1 for Metz and has played three times for Luxembourg at senior level.`\
+https://nytimes.com/athletic/6963282/2026/01/12/aston-villa-transfer-news-madjo/
+
 **How can the Bucks stay in games without Giannis on the floor? 'Be more decisive'**\
 `Milwaukee is a strong team when Giannis Antetokounmpo is in the game, and a terrible one when he sits. Can the Bucks find a solution?`\
 https://nytimes.com/athletic/6962776/2026/01/12/bucks-giannis-antetokounmpo-bench-leads/
