@@ -1,3 +1,15 @@
+**A Push to Expand the Rights of Immigrants in Defiance of Trump**\
+`An effort by New Jersey Democrats is seen as a provocative statement of principle in a state with the country’s second largest percentage of immigrants, after California.`\
+https://nytimes.com/2026/01/12/nyregion/immigration-policy-new-jersey.html
+
+**Mamdani’s Schools Chief Begins Shaping Agenda Around Rigor and Equity**\
+`In his first week on the job, Kamar H. Samuels started to sketch out his priorities for leading America’s largest school system.`\
+https://nytimes.com/2026/01/12/nyregion/mamdanis-schools-chief-samuels-agenda.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/12/crosswords/spelling-bee-forum.html
+
 **This Is How the Cartels Win**\
 `Turning Latin America into a theater of war will not weaken transnational crime; it will entrench it.`\
 https://nytimes.com/2026/01/12/opinion/trump-venezuela-organized-crime-cartels.html
