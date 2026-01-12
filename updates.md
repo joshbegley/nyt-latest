@@ -1,3 +1,7 @@
+**America at 250**\
+``\
+https://nytimes.com/spotlight/america-250
+
 **Real Madrid part ways with Xabi Alonso**\
 `Madrid announced the news in a club statement on Monday.`\
 https://nytimes.com/athletic/6872754/2026/01/12/xabi-alonso-real-madrid-exit-next/

@@ -14,8 +14,8 @@ https://nytimes.com/2026/01/12/arts/dance/review-bill-t-jones-collage-revisted.h
 `Vanessa Friedman, our fashion director and chief fashion critic, recaps what she saw on the red carpet for the 2026 Golden Globes.`\
 https://nytimes.com/video/style/100000010624726/fashion-red-carpet-2026-golden-globes.html
 
-**Trump Administration Nears Deal With Taiwan**\
-`The trade deal would cut tariffs and include a commitment from Taiwanese Semiconductor Manufacturing Corporation, the island’s chip giant, to build more manufacturing plants in the United States.`\
+**Trump Administration Nears Trade Deal With Taiwan**\
+`The deal would cut tariffs and include a commitment from Taiwanese Semiconductor Manufacturing Corporation, the island’s chip giant, to build more manufacturing plants in the United States.`\
 https://nytimes.com/2026/01/12/business/economy/trump-taiwan-deal.html
 
 **‘Tehran’ Review: Israel vs. Iran, Retold as a Spy Thriller**\
