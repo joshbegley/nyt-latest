@@ -1,3 +1,7 @@
+**The Bounce: Ja Morant, Anthony Davis trades complicated by availability**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6963372/2026/01/12/ja-morant-trade-deadline-nba-the-bounce/
+
 **Fed Changes Course and Takes On Trump’s Political Fight**\
 `The Justice Department’s decision to open up a criminal investigation of Jerome H. Powell, the chair of the Federal Reserve, is a major escalation in the pressure campaign against the central bank to cut interest rates.`\
 https://nytimes.com/2026/01/12/business/federal-reserve-changes-course-trump-administration.html
