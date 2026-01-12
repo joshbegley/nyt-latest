@@ -1,3 +1,7 @@
+**Christian McCaffrey, 49ers end Eagles' title defense with fourth-quarter rally**\
+`The 49ers lost George Kittle but upset the defending Super Bowl champions with two fourth-quarter touchdowns in an NFC wild-card game.`\
+https://nytimes.com/athletic/6962183/2026/01/11/49ers-eagles-playoffs-result-takeaways/
+
 **Owen Cooper of ‘Adolescence’ wins best supporting TV actor.**\
 `He prevailed in a battle of the breakout stars of 2025 over Tramell Tillman, of Apple TV’s mind-bending sci-fi thriller “Severance.”`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/owen-cooper-of-adolescence-wins-best-supporting-tv-actor

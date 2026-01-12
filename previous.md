@@ -7,7 +7,7 @@ https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/owen-cooper-of
 https://nytimes.com/2026/01/11/movies/golden-globes-awards-2026-photos.html
 
 **Christian McCaffrey, 49ers end Eagles' title defense with fourth-quarter rally**\
-`The 49ers lost George Kittle but upset the defending Super Bowl champions with two fourth-quarter touchdowns in the NFC wild-card game.`\
+`The 49ers lost George Kittle but upset the defending Super Bowl champions with two fourth-quarter touchdowns in an NFC wild-card game.`\
 https://nytimes.com/athletic/6962183/2026/01/11/49ers-eagles-playoffs-result-takeaways/
 
 **Daniel Walker Howe, Historian of Antebellum America, Dies at 88**\
