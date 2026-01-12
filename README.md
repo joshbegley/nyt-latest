@@ -1,3 +1,11 @@
+**15 Unforgettable Looks at the Golden Globes**\
+`Sheer gowns, slouchy tuxedos, chunky-soled boots and more.`\
+https://nytimes.com/2026/01/12/style/golden-globes-red-carpet-2026-most-stylish.html
+
+**Death Toll Surges in Iran Protests**\
+`Crowds gathered at a morgue outside Tehran as the death toll from protests in Iran surged. President Trump hinted on Sunday that the United States may intercede if peaceful protesters are killed.`\
+https://nytimes.com/video/world/asia/100000010638536/iran-president-protests-economy-response.html
+
 **Nikki Glaser Ended the Golden Globes by Honoring Rob Reiner**\
 `In a “Spinal Tap” baseball cap, Glaser concluded the ceremony by saying, “This one went to 11.”`\
 https://nytimes.com/2026/01/11/arts/nikki-glaser-rob-reiner-golden-globes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6961811/2026/01/12/manchester-united-macclesfield-s
 **How Manchester City play: Direct build-up and quicker combinations, but is there too much fatigue?**\
 `The Athletic's series taking the tactical temperature at the Premier League's 'Big Six' begins with a look at Pep Guardiola's side `\
 https://nytimes.com/athletic/6957539/2026/01/12/how-manchester-city-play-premier-league-tactics/
-
-**Subtle changes but set-piece problems remain: What we learned about Liam Rosenior's Chelsea**\
-`Liam Rosenior started his Chelsea reign with a win but perhaps unsurprisingly some of the problems experienced under Enzo Maresca continued`\
-https://nytimes.com/athletic/6960537/2026/01/12/liam-rosenior-chelsea-charlton-tactics/
-
-**For Manchester United, a 40-game season is a new low (in more ways than one)**\
-`It is 111 years since the club last played so few games in a season, the result of damaging cup losses and an absence of European football`\
-https://nytimes.com/athletic/6941844/2026/01/12/manchester-united-brighton-fa-cup/
 
