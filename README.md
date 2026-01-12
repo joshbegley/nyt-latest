@@ -1,4 +1,16 @@
-**Senators sign James Reimer to 1-year deal, $850,000, unsure when he'll play**\
+**Criminal Inquiry of Powell Draws Backlash From Some Republicans**\
+`Three Republican senators offered a rare rebuke of the Trump administration’s tactics, criticizing an investigation of the Federal Reserve chair.`\
+https://nytimes.com/2026/01/12/us/politics/jerome-powell-fed-investigation-republicans-backlash.html
+
+**Submit a question for James Boyd's Indianapolis Colts mailbag**\
+`The Colts missed the playoffs for a fifth-straight season, so what does GM Chris Ballard need to do to get Indy back to the postseason?`\
+https://nytimes.com/athletic/6963925/2026/01/12/colts-mailbag-chris-ballard-daniel-jones-anthony-richardson/
+
+**PGA Tour reinstates Brooks Koepka, invites other elite LIV stars to join him**\
+`Jon Rahm, Bryson DeChambeau and Cameron Smith have the opportunity to rejoin the PGA Tour as part of the Returning Member Program.`\
+https://nytimes.com/athletic/6963849/2026/01/12/pga-tour-reinstate-brooks-koepka-rahm-dechambeau-smith-liv/
+
+**Sens sign Reimer to 1-year deal; unsure when he'll play**\
 `Reimer, 37, split last season with the Buffalo Sabres and the Anaheim Ducks and finished the year with a 10-10-2 record.`\
 https://nytimes.com/athletic/6963768/2026/01/12/senators-reimer-contract-goalie-ullmark/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6859007/2026/01/12/sven-botman-newcastle-contract-n
 **Why didn't Xabi Alonso's tactics work at Real Madrid?**\
 `The 44-year-old left his role as manager on Monday, having only been appointed at the Bernabeu in May`\
 https://nytimes.com/athletic/6954080/2026/01/12/real-madrid-xabi-alonso-sacked-analysis-tactics/
-
-**The Stories That Old Books Tell**\
-`Responses to an essay by Roger Rosenblatt about keeping and tossing old books. Also: A.I. and human identity; new heights for Stephen Colbert.`\
-https://nytimes.com/2026/01/12/opinion/old-books.html
-
-**Hints of Political Amnesty Stoke Hope and Frustration in Venezuela**\
-`Venezuela’s new leaders and President Trump have alluded to a major release of political prisoners, but the liberations have been slow to come.`\
-https://nytimes.com/2026/01/12/world/americas/venezuela-political-prisoners-amnesty.html
-
-**L.A. Reid Settles Lawsuit Shortly Before Sexual Assault Trial**\
-`Mr. Reid, a Grammy-winning music producer, had been accused of assaulting an executive who worked for him and then retaliating against her.`\
-https://nytimes.com/2026/01/12/arts/music/la-reid-drew-dixon-settlement-sexual-assault.html
 

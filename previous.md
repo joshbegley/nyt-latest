@@ -1,3 +1,15 @@
+**Senators sign James Reimer to 1-year deal, $850,000, unsure when he'll play**\
+`Reimer, 37, split last season with the Buffalo Sabres and the Anaheim Ducks and finished the year with a 10-10-2 record.`\
+https://nytimes.com/athletic/6963768/2026/01/12/senators-reimer-contract-goalie-ullmark/
+
+**Blues' Broberg in concussion protocol: 'We are very happy with his progress'**\
+`Blues coach Jim Montgomery listed Philip Broberg as "doubtful" to play Tuesday against the Carolina Hurricanes.`\
+https://nytimes.com/athletic/6963506/2026/01/12/blues-philip-broberg-concussion-protocol/
+
+**Super Bowl MVP odds: Stafford leads quarterback-heavy list**\
+`Who is in the mix for the top individual honor of the Super Bowl?`\
+https://nytimes.com/athletic/6963571/2026/01/12/super-bowl-mvp-odds-stafford-darnold-allen-maye/
+
 **University of Michigan Picks Syracuse Leader as Its Next President**\
 `Kent D. Syverud will become the fifth person to run Michigan since the start of 2022, inheriting a school that has also been marked by debates about diversity.`\
 https://nytimes.com/2026/01/12/us/university-of-michigan-president-kent-syverud.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/12/world/americas/venezuela-political-prisoners-amne
 **L.A. Reid Settles Lawsuit Shortly Before Sexual Assault Trial**\
 `Mr. Reid, a Grammy-winning music producer, had been accused of assaulting an executive who worked for him and then retaliating against her.`\
 https://nytimes.com/2026/01/12/arts/music/la-reid-drew-dixon-settlement-sexual-assault.html
-
-**Cancelo completes Barca medical ahead of signing**\
-`Cancelo spent the 2023-24 season on loan at Barca from Manchester City, recording four goals and five assists in all competitions.`\
-https://nytimes.com/athletic/6944882/2026/01/12/barcelona-joao-cancelo-transfer/
-
-**8 Stars Nikki Glaser Roasted in Her Golden Globes Monologue**\
-`The comedian, who hosted the awards ceremony for the second year in a row on Sunday, began by turning her wit mostly toward the men in the room.`\
-https://nytimes.com/2026/01/12/arts/nikki-glaser-golden-globe-jokes.html
-
-**Blue Jackets Monday Gathering: GM Don Waddell calls this season his 'most frustrating'**\
-`"It's on all of us. We should all be evaluated right now," Waddell said regarding his last-place team.`\
-https://nytimes.com/athletic/6960858/2026/01/12/blue-jackets-gm-waddell-season/
 
