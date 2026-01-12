@@ -1,3 +1,19 @@
+**Mike Vrabel gets bloody lip celebrating late Patriots sack with Milton Williams**\
+`The first-year Patriots coach suffered a bloody lip while celebrating the game-clinching sack with defensive tackle Milton Williams.`\
+https://nytimes.com/athletic/6962665/2026/01/12/mike-vrabel-patriots-bloody-lip-milton-williams/
+
+**No Corrections: Jan. 12, 2026**\
+`No corrections appeared in print on Monday, Jan. 12, 2026.`\
+https://nytimes.com/2026/01/12/pageoneplus/no-corrections-jan-12-2026.html
+
+**Quote of the Day: This League Calls for 2 Things: Lots of Flab and a Funny Bone**\
+`Quotation of the Day for Monday, January 12, 2026.`\
+https://nytimes.com/2026/01/12/pageoneplus/quote-of-the-day-this-league-calls-for-2-things-lots-of-flab-and-a-funny-bone.html
+
+**Connections: Sports Edition Coach: Hints for Jan. 12, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6962502/2026/01/12/connections-sports-edition-hints-for-jan-12-2026/
+
 **Dmitri Voronkov's OT winner helps Jackets beat Utah, end rough trip on high note**\
 `In a tense overtime, Voronkov redirected Werenski’s pass, ending Columbus’ four-game losing streak and sparking much-needed excitement.`\
 https://nytimes.com/athletic/6962518/2026/01/11/blue-jackets-dmitri-voronkov-ot-winner/
