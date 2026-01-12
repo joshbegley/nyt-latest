@@ -1,3 +1,7 @@
+**Mertesacker to leave role as Arsenal academy manager**\
+`Mertesacker will leave the club at the end of the season and said in a club statement it was time to “explore something new”.`\
+https://nytimes.com/athletic/6963056/2026/01/12/per-mertesacker-arsenal-academy-exit/
+
 **TAFC: Biggest FA Cup shock, Wrexham heroics. Plus: Carrick favourite for Man Utd interim role**\
 `Today in TAFC: Macclesfield pull of biggest upset in cup history, Carrick in pole position for Man Utd job, Raphinha fluke sinks Real Madrid`\
 https://nytimes.com/athletic/6962998/2026/01/12/biggest-fa-cup-shock-macclesfield-carrick-man-utd/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6962241/2026/01/12/panthers-playoff-drought-future/
 **How did restricted free agency work out for Jonathan Kuminga, peers? Our writers weigh in**\
 `Chicago's Josh Giddey and Philadelphia's Quentin Grimes find themselves in better situations, but uncertainty still lingers for their teams.`\
 https://nytimes.com/athletic/6958195/2026/01/12/jonathan-kuminga-nba-restricted-free-agency-warriors/
-
-**Canadiens weekly notebook: Kaiden Guhle learns his lesson about injuries**\
-`Also in this week's notebook, Red Wings coach Todd McLellan's high praise for Lane Hutson and how difficult he is to defend.`\
-https://nytimes.com/athletic/6962807/2026/01/12/canadiens-notebook-kaiden-guhle-injuries/
 
