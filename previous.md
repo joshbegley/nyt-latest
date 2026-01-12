@@ -1,3 +1,11 @@
+**Dmitri Voronkov's OT winner helps Jackets beat Utah, end rough trip on high note**\
+`In a tense overtime, Voronkov redirected Werenski’s pass, ending Columbus’ four-game losing streak and sparking much-needed excitement.`\
+https://nytimes.com/athletic/6962518/2026/01/11/blue-jackets-dmitri-voronkov-ot-winner/
+
+**The Improbables strike again: 49ers' upset in Philly perfectly reflects gritty season**\
+`The most-injured and least-injured playoff teams squared off on the least-injured team's home field Sunday. You'll never guess who won.`\
+https://nytimes.com/athletic/6962553/2026/01/11/49ers-injuries-eagles-playoffs-christian-mccaffrey/
+
 **Kyle Lowry as a veteran mentor? It feels weird, but it fits**\
 `One of the most competitive players in recent NBA history has found peace, it seems. `\
 https://nytimes.com/athletic/6962542/2026/01/11/kyle-lowry-veteran-mentor-76ers-raptors/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/wagner-moura-w
 **Maxim Naumov earns spot in Olympics, embodying the resilience of this U.S. team**\
 `Naumov lost his parents in last January's plane crash over the Potomac River. Now, he's heading to the Olympics on a loaded U.S. team.`\
 https://nytimes.com/athletic/6962389/2026/01/11/maxim-naumov-olympics-us-figure-skating-team/
-
-**Jessie Buckley wins best actress, motion picture drama.**\
-`By Derrick Bryson Taylor`\
-https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/jessie-buckley-wins-best-actress-motion-picture-drama
-
-**‘The Studio’ wins best TV comedy.**\
-`By Michaela Towfighi`\
-https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/the-studio-wins-best-tv-comedy
 
