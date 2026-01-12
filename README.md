@@ -1,3 +1,7 @@
+**Wait, Indiana vs. Miami? What you need to know about an unlikely CFP championship game**\
+`What you need to know about Indiana vs. Miami, from program histories to notable names to the coaches who got them to the championship game.`\
+https://nytimes.com/athletic/6959749/2026/01/12/indiana-miami-cfp-national-championship-game-history/
+
 **What do the Bears need to fix before hosting the Rams in the divisional round?**\
 `What went wrong for the Bears in the first half against the Packers? How good is Colston Loveland? Key questions before the Rams visit.`\
 https://nytimes.com/athletic/6962310/2026/01/12/bears-playoff-questions-packers-rams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6961921/2026/01/12/eagles-defense-wild-card-elimina
 **Rosenthal: How Tarik Skubal's case could test the norms of MLB's arbitration system**\
 `With a $13 million gap between the back-to-back AL Cy Young winner's ask and the Tigers' filing number, Skubal's case can go so many ways.`\
 https://nytimes.com/athletic/6962108/2026/01/12/tarik-skubal-arbitration-detroit-tigers-scott-boras/
-
-**What can Kiefer Sherwood offer as a trade target? The risks and rewards**\
-`The right winger has become one of the Canucks' biggest potential trade chips. Here's what interested teams should know.`\
-https://nytimes.com/athletic/6962396/2026/01/12/kiefer-sherwood-nhl-trade-deadline-canucks-analysis/
 

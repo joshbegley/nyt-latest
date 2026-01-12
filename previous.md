@@ -1,40 +1,40 @@
-**Iran Prepared for War but Ready to Negotiate, Foreign Minister Says**\
-`The comments came after President Trump said he was “ looking at some very strong options” to curb Iran’s harsh repression of anti-government protests.`\
-https://nytimes.com/2026/01/12/world/middleeast/iran-protests-trump-us.html
+**What do the Bears need to fix before hosting the Rams in the divisional round?**\
+`What went wrong for the Bears in the first half against the Packers? How good is Colston Loveland? Key questions before the Rams visit.`\
+https://nytimes.com/athletic/6962310/2026/01/12/bears-playoff-questions-packers-rams/
 
-**Israel Is Still Demolishing Gaza, Building by Building**\
-`More than 2,500 buildings have been destroyed since the start of the cease-fire, according to a New York Times analysis. Israel says it is demilitarizing Gaza.`\
-https://nytimes.com/interactive/2026/01/12/world/middleeast/israel-cease-fire-gaza-demolition.html
+**Texans at Steelers: Broadcast info, playoff history for Monday's wild-card game**\
+`Here's what viewers need to know ahead of the sixth and final wild-card playoff game on Monday night.`\
+https://nytimes.com/athletic/6955928/2026/01/12/nfl-playoffs-steelers-texans-wild-card-tv/
 
-**The moment Mike Tomlin made clear: Aaron Rodgers won't walk alone**\
-`Often embattled in recent years, the Steelers' coach and quarterback head into the playoffs Monday night.`\
-https://nytimes.com/athletic/6962045/2026/01/12/mike-tomlin-aaron-rodgers-relationship-pittsburgh-steelers/
+**Panthers ended a long playoff drought in 2025 — now comes the hard part**\
+`The Panthers will play a "tough" first-place schedule in 2026 featuring six still-alive playoff teams.`\
+https://nytimes.com/athletic/6962241/2026/01/12/panthers-playoff-drought-future/
 
-**Inside the giddy 49ers locker room, a tribute to the Dead from a team that won't die**\
-`On a special day, across the continent from the city they call home, the 49ers channeled all the ethereal energy San Francisco has to offer.`\
-https://nytimes.com/athletic/6962715/2026/01/12/49ers-beat-eagles-kittle-bob-weir-grateful-dead/
+**How did restricted free agency work out for Jonathan Kuminga, peers? Our writers weigh in**\
+`Chicago's Josh Giddey and Philadelphia's Quentin Grimes find themselves in better situations, but uncertainty still lingers for their teams.`\
+https://nytimes.com/athletic/6958195/2026/01/12/jonathan-kuminga-nba-restricted-free-agency-warriors/
 
-**Brighton add former New Zealand rugby coach Mike Anthony to backroom staff**\
-`Anthony will begin work in February as the club's head of player development and high performance, subject to work permit clearance.`\
-https://nytimes.com/athletic/6963008/2026/01/12/brighton-mike-anthony-all-blacks/
+**Canadiens weekly notebook: Kaiden Guhle learns his lesson about injuries**\
+`Also in this week's notebook, Red Wings coach Todd McLellan's high praise for Lane Hutson and how difficult he is to defend.`\
+https://nytimes.com/athletic/6962807/2026/01/12/canadiens-notebook-kaiden-guhle-injuries/
 
-**The New York Times International Edition in Print for Tuesday, Jan. 13, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/01/12/todays-new-york-times-international-edition
+**Lack of youngsters' progression is why Warriors are stuck in neutral this season**\
+`Moses Moody, Brandin Podziemski and Jonathan Kuminga haven't developed the consistency Golden State was hoping for.`\
+https://nytimes.com/athletic/6962855/2026/01/12/warriors-moody-kuminga-podziemski-hawks-loss/
 
-**Film Club: ‘Making Popcorn for 15,000+ Basketball Fans’**\
-`Who are the unsung people that make the world a better — and tastier — place?`\
-https://nytimes.com/2026/01/12/learning/film-club-making-popcorn-for-15000-basketball-fans.html
+**Blue Jays mailbag: Kyle Tucker's fit, Kazuma Okamoto's impact, prospects to watch**\
+`With spring training approaching, the Blue Jays’ busy offseason may not be over as questions around Kyle Tucker and Bo Bichette linger.`\
+https://nytimes.com/athletic/6960560/2026/01/12/blue-jays-mailbag-kyle-tucker-fit/
 
-**Best and Worst Moments From the 2026 Golden Globes**\
-`Nikki Glaser returned as host and killed, while Teyana Taylor delivered the speech of the night. Then there were those awful production choices.`\
-https://nytimes.com/2026/01/12/movies/golden-globes-best-worst-moments.html
+**'I think we could have done more': Eagles defenders reflect on wild-card elimination**\
+`The defense kept the Eagles in many games this season.`\
+https://nytimes.com/athletic/6961921/2026/01/12/eagles-defense-wild-card-elimination/
 
-**Ricky Gervais Won the Comedy Award. Wanda Sykes Got the Last Laugh.**\
-`Although Gervais has hosted the Golden Globes five times, he was not at the ceremony on Sunday night.`\
-https://nytimes.com/2026/01/12/arts/television/ricky-gervais-wanda-sykes-golden-globes.html
+**Rosenthal: How Tarik Skubal's case could test the norms of MLB's arbitration system**\
+`With a $13 million gap between the back-to-back AL Cy Young winner's ask and the Tigers' filing number, Skubal's case can go so many ways.`\
+https://nytimes.com/athletic/6962108/2026/01/12/tarik-skubal-arbitration-detroit-tigers-scott-boras/
 
-**Trump’s Victory Wobble**\
-`A fading president obsesses over leaving a mark.`\
-https://nytimes.com/2026/01/12/opinion/trump-power-election.html
+**What can Kiefer Sherwood offer as a trade target? The risks and rewards**\
+`The right winger has become one of the Canucks' biggest potential trade chips. Here's what interested teams should know.`\
+https://nytimes.com/athletic/6962396/2026/01/12/kiefer-sherwood-nhl-trade-deadline-canucks-analysis/
 
