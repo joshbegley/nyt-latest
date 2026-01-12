@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Markets Waver After Prosecutors Open Investigation Into Fed Chair**\
+``\
+https://nytimes.com/live/2026/01/12/us/trump-news
+
+**How Barcelona's balanced attack is helping them get the better of Real Madrid**\
+`Right now Real are nowhere near as complete as Barca, but they're still capable of challenging for the title in the coming months`\
+https://nytimes.com/athletic/6963051/2026/01/12/barcelona-attacking-balance-real-madrid/
+
 **Venezuela Frees 24 More Political Prisoners, Rights Group Says**\
 `Since an interim government began the releases last week, at least 41 people have been let go, according to Foro Penal.`\
 https://nytimes.com/2026/01/12/world/americas/venezuela-political-prisoners-freed.html

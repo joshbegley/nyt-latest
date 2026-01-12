@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Markets Waver After Prosecutors Open Investigation Into Fed Chair**\
+``\
+https://nytimes.com/live/2026/01/12/us/trump-news
+
+**How Barcelona's balanced attack is helping them get the better of Real Madrid**\
+`Right now Real are nowhere near as complete as Barca, but they're still capable of challenging for the title in the coming months`\
+https://nytimes.com/athletic/6963051/2026/01/12/barcelona-attacking-balance-real-madrid/
+
 **Venezuela Frees 24 More Political Prisoners, Rights Group Says**\
 `Since an interim government began the releases last week, at least 41 people have been let go, according to Foro Penal.`\
 https://nytimes.com/2026/01/12/world/americas/venezuela-political-prisoners-freed.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6963031/2026/01/12/inside-newcastle-qa-chris-waugh-
 **How Julius Randle stunningly became a Wemby stopper late in Timberwolves' win**\
 `Randle played perhaps the best defense of his Minnesota career, and Anthony Edwards continued his incredible clutch play.`\
 https://nytimes.com/athletic/6962207/2026/01/12/julius-randle-timberwolves-victor-wembanyama/
-
-**Hamburg accuse former sporting director of not complying with investigation into sexual harassment allegations**\
-`Hamburg originally announced Kuntz’s departure on January 2, stating that he requested a release from his contract after Christmas.`\
-https://nytimes.com/athletic/6963002/2026/01/12/hamburg-accuse-stefan-kuntz-investigation/
-
-**With Alex Bregman gone, what options make sense for Red Sox?**\
-`With a month to go before spring training and Bregman now with the Cubs, how can the Red Sox addresses their lineup's weaknesses?`\
-https://nytimes.com/athletic/6961817/2026/01/12/red-sox-options-alex-bregman-gone-free-agency/
 
