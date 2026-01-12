@@ -1,3 +1,7 @@
+**David Mitchell, Who Led Fight on Drug Prices, Dies at 75**\
+`After receiving a diagnosis of terminal cancer, he used his experience in public relations to draw attention to the skyrocketing cost of medication.`\
+https://nytimes.com/2026/01/12/health/david-mitchell-dead.html
+
 **Steve Staios on the Senators' nightmarish week and the fiery statement that followed**\
 `Staios stood behind a fiery statement the Senators released late last week: "I’m not going to apologize for standing up for my players."`\
 https://nytimes.com/athletic/6963839/2026/01/12/steve-staios-senators-statement-linus-ullmark/
