@@ -1,3 +1,15 @@
+**Supreme Court Grapples With Louisiana Coastal Lawsuits Against Oil Companies**\
+`The justices heard arguments over whether oil companies sued by Louisiana could move the cases from state to federal court, a venue thought to be friendlier to corporate interests.`\
+https://nytimes.com/2026/01/12/us/politics/supreme-court-louisiana-oil.html
+
+**FA Cup fourth-round: Wrexham to host Ipswich, Macclesfield face Brentford**\
+`In the pick of the other ties, Aston Villa will host Newcastle United, while Manchester City could face Salford City at home`\
+https://nytimes.com/athletic/6963290/2026/01/12/fa-cup-fourth-round-draw-wrexham/
+
+**Spurs advancing in talks over deal for Atletico's Gallagher**\
+`Gallagher has spent 18 months in La Liga after joining Atletico from Chelsea in a £38million deal in the summer of 2024.`\
+https://nytimes.com/athletic/6958617/2026/01/12/conor-gallagher-tottenham-transfer-atletico-madrid/
+
 **Teyana Taylor, George Clooney and Jacob Elordi Toast the Golden Globes**\
 `After the final award had been handed out, stars dispersed across Los Angeles for exclusive after-parties at hot spots like Spago and the Chateau Marmont.`\
 https://nytimes.com/2026/01/12/style/golden-globes-party-teyana-taylor-george-clooney.html

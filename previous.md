@@ -1,3 +1,15 @@
+**Supreme Court Grapples With Louisiana Coastal Lawsuits Against Oil Companies**\
+`The justices heard arguments over whether oil companies sued by Louisiana could move the cases from state to federal court, a venue thought to be friendlier to corporate interests.`\
+https://nytimes.com/2026/01/12/us/politics/supreme-court-louisiana-oil.html
+
+**FA Cup fourth-round: Wrexham to host Ipswich, Macclesfield face Brentford**\
+`In the pick of the other ties, Aston Villa will host Newcastle United, while Manchester City could face Salford City at home`\
+https://nytimes.com/athletic/6963290/2026/01/12/fa-cup-fourth-round-draw-wrexham/
+
+**Spurs advancing in talks over deal for Atletico's Gallagher**\
+`Gallagher has spent 18 months in La Liga after joining Atletico from Chelsea in a £38million deal in the summer of 2024.`\
+https://nytimes.com/athletic/6958617/2026/01/12/conor-gallagher-tottenham-transfer-atletico-madrid/
+
 **Teyana Taylor, George Clooney and Jacob Elordi Toast the Golden Globes**\
 `After the final award had been handed out, stars dispersed across Los Angeles for exclusive after-parties at hot spots like Spago and the Chateau Marmont.`\
 https://nytimes.com/2026/01/12/style/golden-globes-party-teyana-taylor-george-clooney.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6963506/2026/01/12/blues-philip-broberg-concussion-
 **Super Bowl MVP odds: Stafford leads quarterback-heavy list**\
 `Who is in the mix for the top individual honor of the Super Bowl?`\
 https://nytimes.com/athletic/6963571/2026/01/12/super-bowl-mvp-odds-stafford-darnold-allen-maye/
-
-**University of Michigan Picks Syracuse Leader as Its Next President**\
-`Kent D. Syverud will become the fifth person to run Michigan since the start of 2022, inheriting a school that has also been marked by debates about diversity.`\
-https://nytimes.com/2026/01/12/us/university-of-michigan-president-kent-syverud.html
-
-**Bulls-Heat game postponed due to condensation on the court rescheduled**\
-`The postponement marked the first time an NBA regular-season game had been rescheduled due to slippery conditions since 2017.`\
-https://nytimes.com/athletic/6963819/2026/01/12/bulls-heat-condensation-court-rescheduled/
-
-**Botman signs new long-term Newcastle contract:**\
-`The centre-back has made 17 appearances for Newcastle this season across all competitions, regularly partnering Malick Thiaw.`\
-https://nytimes.com/athletic/6859007/2026/01/12/sven-botman-newcastle-contract-new/
 
