@@ -1,3 +1,31 @@
+**Quarterback Sam Leavitt commits to LSU in recruiting win for Lane Kiffin**\
+`Leavitt gives LSU's new coach a dynamic keystone to build around in his first season in Baton Rouge.`\
+https://nytimes.com/athletic/6956545/2026/01/12/sam-leavitt-commits-lsu-lane-kiffin/
+
+**How to watch Jazz vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6963631/2026/01/12/jazz-vs-cavaliers-stream-how-to-watch-jan-12/
+
+**How to watch Kraken vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6963629/2026/01/12/kraken-vs-rangers-stream-how-to-watch-jan-12/
+
+**Lego Unveils New Smart Brick**\
+`Lego bricks are getting tech-ified. Games writer James Austen just got his hands on Lego’s new smart bricks, which will be out later this year. So far, he’s impressed, but he’ll need to do some hands-on testing to decide if these are worth buying.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010639507/lego-unveils-new-smart-brick.html
+
+**How to watch Lightning vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6963624/2026/01/12/lightning-vs-flyers-stream-how-to-watch-jan-12/
+
+**How to watch Hurricanes vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6963622/2026/01/12/hurricanes-vs-red-wings-stream-how-to-watch-jan-12/
+
+**3 Inmates Killed After Fight Erupts in Georgia Prison**\
+`At least a dozen others were hospitalized after violence erupted at the Washington State Prison in Davisboro, officials said.`\
+https://nytimes.com/2026/01/12/us/georgia-prison-fight-inmates-killed.html
+
 **NFL divisional round odds: One heavy favorite and one near pick 'em**\
 `After a brilliant wild-card round, who is favored to make it to the conference championship games? `\
 https://nytimes.com/athletic/6963366/2026/01/12/nfl-divisional-round-odds-spreads/
@@ -9,32 +37,4 @@ https://nytimes.com/2026/01/12/business/media/paramount-warner-bros-discovery-bo
 **The Windup: Cubs the runaway NL Central favorite after signing Bregman?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6963576/2026/01/12/alex-bregman-cubs-the-windup/
-
-**Flamengo have bid rejected for West Ham's Paqueta**\
-`Sources say Paqueta asked to be left out of West Ham's squad for their 2-1 win over QPR due to his desire to join Flamengo.`\
-https://nytimes.com/athletic/6963243/2026/01/12/lucas-paqueta-flamengo-west-ham-injury/
-
-**Backstage With the Golden Globe Winners**\
-`Rose Byrne, Owen Cooper, Seth Rogen, Teyana Taylor and other award winners in the spotlight.`\
-https://nytimes.com/2026/01/12/movies/golden-globe-winners-awards-portraits.html
-
-**Beige Is Beautiful**\
-`Chicken piccata pasta, roasted cod and potatoes and sticky date and brown butter oatmeal are cozy, monochromatic comforts.`\
-https://nytimes.com/2026/01/12/dining/beige-is-beautiful.html
-
-**Inside Democrats’ Brewing Debate Over Which States Should Vote First in 2028**\
-`Does Iowa deserve another shot? Is South Carolina too red? New Hampshire too white? Nevada too far-flung? Democrats are starting their calendar from scratch, and there’s a lot to consider.`\
-https://nytimes.com/2026/01/12/us/politics/state-vote-democrats-president-2028.html
-
-**What I'm hearing about Canucks' plans to sell, scouting draft prospects and the rebuild**\
-`As the losing continues, the Canucks seem even more open-minded about exploring their options.`\
-https://nytimes.com/athletic/6961864/2026/01/12/canucks-trade-plans-nhl-draft-odds/
-
-**F.D.A. Decisions on Abortion Pill Were Based on Science, New Analysis Finds**\
-`A study of more than 5,000 pages of agency documents on mifepristone over 12 years found that agency leaders almost always followed the evidence-based recommendations of scientists.`\
-https://nytimes.com/2026/01/12/health/abortion-pill-mifepristone-fda.html
-
-**5 Workouts to Ease Pain and Prevent Injury**\
-`This January, find a new exercise routine to move more easily.`\
-https://nytimes.com/2026/01/12/well/move/pain-prevention-workout.html
 
