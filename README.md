@@ -1,3 +1,15 @@
+**How to watch Devils vs. Wild: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6964201/2026/01/12/devils-vs-wild-stream-how-to-watch-jan-12/
+
+**How to watch Stars vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6964199/2026/01/12/stars-vs-kings-stream-how-to-watch-jan-12/
+
+**Notre Dame ends transfer portal silence, adding four commitments in a flurry**\
+`After seemingly sitting out the 15-day transfer window's opening week with no announced transfers, the Irish finally made moves Monday.`\
+https://nytimes.com/athletic/6963934/2026/01/12/notre-dame-transfer-portal-commitments/
+
 **How to watch Alabama vs. Missouri women's basketball: Time, TV, streaming**\
 `Find out how to watch the Alabama Crimson Tide play the Missouri Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6964168/2026/01/12/alabama-vs-missouri-stream-how-to-watch-jan-12/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/12/style/heated-rivalry-golden-globes-hudson-william
 **David Mitchell, Who Led Fight on Drug Prices, Dies at 75**\
 `After receiving a diagnosis of terminal cancer, he used his experience in public relations to draw attention to the skyrocketing cost of medication.`\
 https://nytimes.com/2026/01/12/health/david-mitchell-dead.html
-
-**Steve Staios on the Senators' nightmarish week and the fiery statement that followed**\
-`Staios stood behind a fiery statement the Senators released late last week: "I’m not going to apologize for standing up for my players."`\
-https://nytimes.com/athletic/6963839/2026/01/12/steve-staios-senators-statement-linus-ullmark/
-
-**Sources: Earthquakes nearing DP deal for German striker Timo Werner**\
-`The German forward is out of favor at RB Leipzig and is seeking a fresh start in MLS`\
-https://nytimes.com/athletic/6963744/2026/01/12/timo-werner-san-jose-earthquakes-transfer-mls-leipzig/
-
-**George Saunders on the Value of Human Contact**\
-`When the author George Saunders was awarded a medal by the National Book Foundation last year, he was introduced as “the ultimate teacher of kindness and of craft.” On “The Interview,” he discussed the value of human connection, and where it’s being lost.`\
-https://nytimes.com/video/podcasts/100000010639538/george-saunders-on-the-value-of-human-contact.html
 
