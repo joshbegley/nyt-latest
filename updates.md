@@ -1,3 +1,15 @@
+**Cubs are contenders again. They can't do something silly like trade Nico Hoerner**\
+`Trading Hoerner, a team leader, elite defender and above-average offensive player, would be antithetical to the ultimate goal of winning.`\
+https://nytimes.com/athletic/6962301/2026/01/11/cubs-nico-hoerner-offseason-moves/
+
+**49ers End Eagles’ Title Defense With Fourth-Quarter Rally**\
+`Christian McCaffrey’s two touchdown receptions lifted the San Francisco 49ers over the Philadelphia Eagles on Sunday.`\
+https://nytimes.com/video/the-athletic/100000010638638/49ers-end-eagles-title-defense-with-fourth-quarter-rally.html
+
+**Nikki Glaser Put On a Comedy Clinic in Her Golden Globes Monologue**\
+`For her second consecutive year as host, Glaser delivered a killer set of rapid-fire, very short jokes.`\
+https://nytimes.com/2026/01/11/arts/how-is-nikki-glaser-doing-our-verdict-so-far.html
+
 **Dan Muse's curious lineup decisions backfire as Penguins get blanked in Boston**\
 `The Penguins struggled to find chemistry — and offense — while going short-handed six times against the Bruins.`\
 https://nytimes.com/athletic/6953058/2026/01/11/penguins-lineup-skinner-hayes-bruins/

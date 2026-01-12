@@ -1,3 +1,15 @@
+**Cubs are contenders again. They can't do something silly like trade Nico Hoerner**\
+`Trading Hoerner, a team leader, elite defender and above-average offensive player, would be antithetical to the ultimate goal of winning.`\
+https://nytimes.com/athletic/6962301/2026/01/11/cubs-nico-hoerner-offseason-moves/
+
+**49ers End Eagles’ Title Defense With Fourth-Quarter Rally**\
+`Christian McCaffrey’s two touchdown receptions lifted the San Francisco 49ers over the Philadelphia Eagles on Sunday.`\
+https://nytimes.com/video/the-athletic/100000010638638/49ers-end-eagles-title-defense-with-fourth-quarter-rally.html
+
+**Nikki Glaser Put On a Comedy Clinic in Her Golden Globes Monologue**\
+`For her second consecutive year as host, Glaser delivered a killer set of rapid-fire, very short jokes.`\
+https://nytimes.com/2026/01/11/arts/how-is-nikki-glaser-doing-our-verdict-so-far.html
+
 **Dan Muse's curious lineup decisions backfire as Penguins get blanked in Boston**\
 `The Penguins struggled to find chemistry — and offense — while going short-handed six times against the Bruins.`\
 https://nytimes.com/athletic/6953058/2026/01/11/penguins-lineup-skinner-hayes-bruins/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/rose-byrne-win
 **Bills CB Tre'Davious White basks in full-circle moment leading defense to playoff win**\
 `Two major injuries derailed White's career, but he found his way back to being an impact player for Buffalo.`\
 https://nytimes.com/athletic/6962245/2026/01/11/tredavious-white-bills-jaguars-defense/
-
-**When pain of losing finally subsides, Jaguars can take solace in having set new standard**\
-`"This was one of the first times I felt surrounded by guys who wanted to be great. ... It was a lot of fun to be around that.”`\
-https://nytimes.com/athletic/6962253/2026/01/11/jaguars-bills-loss-playoffs-liam-coen-trevor-lawrence-standard/
-
-**Owen Cooper of ‘Adolescence’ wins best supporting TV actor.**\
-`He prevailed in a battle of the breakout stars of 2025 over Tramell Tillman, of Apple TV’s mind-bending sci-fi thriller “Severance.”`\
-https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/owen-cooper-of-adolescence-wins-best-supporting-tv-actor
-
-**Our Photos From Inside the Golden Globes**\
-`Our photographer is capturing behind-the-scenes moments with stars at Sunday night’s awards show.`\
-https://nytimes.com/2026/01/11/movies/golden-globes-awards-2026-photos.html
 

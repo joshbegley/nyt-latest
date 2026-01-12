@@ -1,3 +1,7 @@
+**Mayor Mamdani Is Moving On Up to Gracie Mansion**\
+`Mayor Zohran Mamdani and his wife, Rama Duwaji, have begun moving their belongings from their Queens apartment to the official mayor’s residence in Manhattan.`\
+https://nytimes.com/2026/01/11/nyregion/mamdani-gracie-mansion-nyc.html
+
 **Cubs are contenders again. They can't do something silly like trade Nico Hoerner**\
 `Trading Hoerner, a team leader, elite defender and above-average offensive player, would be antithetical to the ultimate goal of winning.`\
 https://nytimes.com/athletic/6962301/2026/01/11/cubs-nico-hoerner-offseason-moves/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/timothee-chala
 **Rose Byrne wins best actress, motion picture musical or comedy.**\
 `Byrne won for “If I Had Legs I’d`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/rose-byrne-wins-best-actress-motion-picture-musical-or-comedy
-
-**Bills CB Tre'Davious White basks in full-circle moment leading defense to playoff win**\
-`Two major injuries derailed White's career, but he found his way back to being an impact player for Buffalo.`\
-https://nytimes.com/athletic/6962245/2026/01/11/tredavious-white-bills-jaguars-defense/
 
