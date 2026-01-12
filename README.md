@@ -1,3 +1,11 @@
+**Target Center security apologizes after telling Wolves fan to remove 'ICE OUT' T-shirt**\
+`Tim Phillips, a civil rights attorney, said that he wore the shirt in response to the increased presence of ICE agents in the Twin Cities.`\
+https://nytimes.com/athletic/6962668/2026/01/12/minnesota-timberwolves-fan-ice-out-shirt/
+
+**Word of the Day: abstruse**\
+`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/12/learning/word-of-the-day-abstruse.html
+
 **Xabi Alonso's flexibility wasn't enough to beat Barcelona, but it's saved him at Real Madrid**\
 `Barcelona's 3-2 victory sealed the first trophy of Spain's season, but Alonso's team were competitive and ran them close`\
 https://nytimes.com/athletic/6962818/2026/01/12/real-madrid-barcelona-clasico-supercopa-alonso-job/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/12/style/golden-globes-red-carpet-2026-most-stylish.
 **Death Toll Surges in Iran Protests**\
 `Crowds gathered at a morgue outside Tehran as the death toll from protests in Iran surged. President Trump hinted on Sunday that the United States may intercede if peaceful protesters are killed.`\
 https://nytimes.com/video/world/asia/100000010638536/iran-president-protests-economy-response.html
-
-**Nikki Glaser Ended the Golden Globes by Honoring Rob Reiner**\
-`In a “Spinal Tap” baseball cap, Glaser concluded the ceremony by saying, “This one went to 11.”`\
-https://nytimes.com/2026/01/11/arts/nikki-glaser-rob-reiner-golden-globes.html
-
-**The Ashes 2025-26: From Snicko to the Noosa tourism board, who were the winners and losers?**\
-`Who emerged triumphant from the Ashes series - other than Australia, of course - and who had an absolute shocker? Aside from England`\
-https://nytimes.com/athletic/6953732/2026/01/12/ashes-winners-losers-snicko-noosa-test-cricket/
 
