@@ -1,3 +1,7 @@
+**Who Is Watching ‘Heated Rivalry’?**\
+`A Golden Globes appearance by the stars of “Heated Rivalry,” HBO Max’s show about gay hockey players, reflected how it has built a big-tent fan base.`\
+https://nytimes.com/2026/01/12/style/heated-rivalry-golden-globes-hudson-williams-connor-storrie.html
+
 **David Mitchell, Who Led Fight on Drug Prices, Dies at 75**\
 `After receiving a diagnosis of terminal cancer, he used his experience in public relations to draw attention to the skyrocketing cost of medication.`\
 https://nytimes.com/2026/01/12/health/david-mitchell-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/12/us/politics/mcbride-halligan-us-attorney-trump.ht
 **Supreme Court Grapples With Louisiana Coastal Lawsuits Against Oil Companies**\
 `The justices heard arguments over whether oil companies sued by Louisiana could move the cases from state to federal court, a venue thought to be friendlier to corporate interests.`\
 https://nytimes.com/2026/01/12/us/politics/supreme-court-louisiana-oil.html
-
-**FA Cup fourth-round: Wrexham to host Ipswich, Macclesfield face Brentford**\
-`In the pick of the other ties, Aston Villa will host Newcastle United, while Manchester City could face Salford City at home`\
-https://nytimes.com/athletic/6963290/2026/01/12/fa-cup-fourth-round-draw-wrexham/
 

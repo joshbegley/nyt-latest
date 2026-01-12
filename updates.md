@@ -1,3 +1,7 @@
+**Who Is Watching ‘Heated Rivalry’?**\
+`A Golden Globes appearance by the stars of “Heated Rivalry,” HBO Max’s show about gay hockey players, reflected how it has built a big-tent fan base.`\
+https://nytimes.com/2026/01/12/style/heated-rivalry-golden-globes-hudson-williams-connor-storrie.html
+
 **David Mitchell, Who Led Fight on Drug Prices, Dies at 75**\
 `After receiving a diagnosis of terminal cancer, he used his experience in public relations to draw attention to the skyrocketing cost of medication.`\
 https://nytimes.com/2026/01/12/health/david-mitchell-dead.html
