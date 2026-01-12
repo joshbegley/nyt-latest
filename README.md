@@ -1,3 +1,7 @@
+**Truck Drives Through Crowd of Iran Protesters in Los Angeles**\
+`A U-Haul truck sped through a street packed with demonstrators in Los Angeles on Sunday as they marched in support of the anti-government protests in Iran. The truck hit one person, who was not significantly injured.`\
+https://nytimes.com/video/us/100000010639093/los-angeles-iran-protesters.html
+
 **Wall St. Shows Nerves as Stocks, Bonds and the Dollar Slip on Fed Threat**\
 `The broad shift out of U.S. financial assets revived last year’s trend called the “sell America” trade.`\
 https://nytimes.com/2026/01/12/business/stock-market-dollar-trump-fed-powell.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6962507/2026/01/12/lakers-trade-deadline-proposals-
 **Trump Administration Live Updates: Markets Waver After Prosecutors Open Investigation Into Fed Chair**\
 ``\
 https://nytimes.com/live/2026/01/12/us/trump-news
-
-**How Barcelona's balanced attack is helping them get the better of Real Madrid**\
-`Right now Madrid are nowhere near as complete as Barca, but they're still capable of challenging for the title in the coming months`\
-https://nytimes.com/athletic/6963051/2026/01/12/barcelona-attacking-balance-real-madrid/
 
