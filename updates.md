@@ -1,3 +1,7 @@
+**Blue Jackets fire Dean Evason, name Rick Bowness head coach**\
+`The Blue Jackets are in last place in the Metropolitan Division with a 19-19-7 record.`\
+https://nytimes.com/athletic/6964335/2026/01/12/blue-jackets-hired-hc-rick-bowness-dean-evason-relieved/
+
 **Leaders of Historians’ Group Veto Resolutions Critical of Israel**\
 `The executive council of the American Historical Association said the resolutions, including one accusing Israel of ‘scholasticide’ in Gaza, would put the group at risk.`\
 https://nytimes.com/2026/01/12/arts/american-historical-association-gaza.html
