@@ -10,7 +10,7 @@ https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/rhea-seehorn-w
 `The city is home to a large Iranian American community, and protests against the Iranian government drew thousands on Sunday.`\
 https://nytimes.com/2026/01/11/us/truck-iran-protesters-los-angeles.html
 
-**Josh Allen's tush pushers carry Bills to grueling playoff victory: 'Closest-to-God experience'**\
+**Josh Allen's tush pushers carry Bills to grueling win: 'Closest-to-God experience'**\
 `O'Cyrus Torrence picked up his quarterback and took off.`\
 https://nytimes.com/athletic/6962283/2026/01/11/josh-allen-bills-tush-push-playoff-victory/
 
@@ -28,7 +28,7 @@ https://nytimes.com/video/the-athletic/100000010638638/49ers-end-eagles-title-de
 
 **Nikki Glaser Put On a Comedy Clinic in Her Golden Globes Monologue**\
 `For her second consecutive year as host, Glaser delivered a killer set of rapid-fire, very short jokes.`\
-https://nytimes.com/2026/01/11/arts/how-is-nikki-glaser-doing-our-verdict-so-far.html
+https://nytimes.com/2026/01/11/arts/nikki-glaser-monologue-golden-globes-2026.html
 
 **Dan Muse's curious lineup decisions backfire as Penguins get blanked in Boston**\
 `The Penguins struggled to find chemistry — and offense — while going short-handed six times against the Bruins.`\

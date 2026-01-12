@@ -1,3 +1,15 @@
+**‘The Pitt’ wins best TV drama.**\
+`By Michaela Towfighi`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/the-pitt-wins-best-tv-drama
+
+**Rhea Seehorn wins best actress in a TV drama for ‘Pluribus.’**\
+`By Austin Considine`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/rhea-seehorn-wins-best-actress-in-a-tv-drama-for-pluribus
+
+**U-Haul Truck Drives Into Crowd of Iran Protesters in Los Angeles**\
+`The city is home to a large Iranian American community, and protests against the Iranian government drew thousands on Sunday.`\
+https://nytimes.com/2026/01/11/us/truck-iran-protesters-los-angeles.html
+
 **Josh Allen's tush pushers carry Bills to grueling playoff victory: 'Closest-to-God experience'**\
 `O'Cyrus Torrence picked up his quarterback and took off.`\
 https://nytimes.com/athletic/6962283/2026/01/11/josh-allen-bills-tush-push-playoff-victory/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6953058/2026/01/11/penguins-lineup-skinner-hayes-br
 **Avalanche in Washington State Kills 2**\
 `The men were among a group of four skiing in the backcountry near Longs Pass, east of Seattle in the Cascade Mountains. The area received heavy snowfall last week.`\
 https://nytimes.com/2026/01/11/us/washington-avalanche-kills-2-men.html
-
-**Scottie Barnes caps big game, Raptors OT win vs. 76ers in bizarre fashion**\
-`One of the most laboured endings in an NBA game somehow also ended very quickly.`\
-https://nytimes.com/athletic/6962420/2026/01/11/raptors-defeat-76ers-scottie-barnes-free-throw/
-
-**Steve Kerr on passing of Grateful Dead's Bob Weir: 'Sad day'**\
-`Kerr, who is in his 12th season as coach of the Warriors, said he appreciated Weir's connection, and that of his band, to San Francisco.`\
-https://nytimes.com/athletic/6962212/2026/01/11/bob-weir-passing-grateful-dead-steve-kerr-responds/
-
-**Timothée Chalamet wins best actor, motion picture musical or comedy.**\
-`By Emmanuel Morgan`\
-https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/timothee-chalamet-wins-best-actor-motion-picture-musical-or-comedy
 

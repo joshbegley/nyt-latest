@@ -1,3 +1,15 @@
+**‘The Pitt’ wins best TV drama.**\
+`By Michaela Towfighi`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/the-pitt-wins-best-tv-drama
+
+**Rhea Seehorn wins best actress in a TV drama for ‘Pluribus.’**\
+`By Austin Considine`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/rhea-seehorn-wins-best-actress-in-a-tv-drama-for-pluribus
+
+**U-Haul Truck Drives Into Crowd of Iran Protesters in Los Angeles**\
+`The city is home to a large Iranian American community, and protests against the Iranian government drew thousands on Sunday.`\
+https://nytimes.com/2026/01/11/us/truck-iran-protesters-los-angeles.html
+
 **Josh Allen's tush pushers carry Bills to grueling playoff victory: 'Closest-to-God experience'**\
 `O'Cyrus Torrence picked up his quarterback and took off.`\
 https://nytimes.com/athletic/6962283/2026/01/11/josh-allen-bills-tush-push-playoff-victory/
