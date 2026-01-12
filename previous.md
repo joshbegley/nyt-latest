@@ -1,3 +1,7 @@
+**First Look at Samsung’s Trifold Phone**\
+`If you told us that, in the year 2026, there would be a giant phone that folds like a brochure, we’re not sure we’d believe you.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010639460/first-look-at-samsungs-trifold-phone.html
+
 **Notre Dame's Marcus Freeman will not face charges for incident at wrestling meet**\
 `Prosecutor's office determined "that no criminal battery occurred" in incident at son's wrestling meet.`\
 https://nytimes.com/athletic/6964063/2026/01/12/notre-dame-marcus-freeman-wrestling/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6964222/2026/01/12/celtics-vs-pacers-stream-how-to-
 **How to watch Nets vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6964219/2026/01/12/nets-vs-mavericks-stream-how-to-watch-jan-12/
-
-**How to watch Oilers vs. Blackhawks: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Chicago Blackhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6964216/2026/01/12/oilers-vs-blackhawks-stream-how-to-watch-jan-12/
 

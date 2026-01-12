@@ -1,3 +1,7 @@
+**First Look at Samsung’s Trifold Phone**\
+`If you told us that, in the year 2026, there would be a giant phone that folds like a brochure, we’re not sure we’d believe you.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010639460/first-look-at-samsungs-trifold-phone.html
+
 **Notre Dame's Marcus Freeman will not face charges for incident at wrestling meet**\
 `Prosecutor's office determined "that no criminal battery occurred" in incident at son's wrestling meet.`\
 https://nytimes.com/athletic/6964063/2026/01/12/notre-dame-marcus-freeman-wrestling/

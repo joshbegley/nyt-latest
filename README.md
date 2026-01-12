@@ -6,13 +6,13 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010639460/first-look-a
 `Prosecutor's office determined "that no criminal battery occurred" in incident at son's wrestling meet.`\
 https://nytimes.com/athletic/6964063/2026/01/12/notre-dame-marcus-freeman-wrestling/
 
-**49ers' no-name defense 'scratching and clawing' to keep season alive**\
-`Fueled by midseason additions and unproven backups, the 49ers' defense shut the door on the defending Super Bowl champions.`\
-https://nytimes.com/athletic/6964078/2026/01/12/49ers-defense-injuries-eric-kendricks-garret-wallow/
-
 **How NASCAR ended up back at the Chase playoff format: 'The best of both worlds'**\
 `After a year-long process full of debate, options and simulations, NASCAR ultimately settled on a playoff format in the middle ground.`\
 https://nytimes.com/athletic/6962330/2026/01/12/nascar-chase-playoff-format-how-it-happened/
+
+**49ers' no-name defense 'scratching and clawing' to keep season alive**\
+`Fueled by midseason additions and unproven backups, the 49ers' defense shut the door on the defending Super Bowl champions.`\
+https://nytimes.com/athletic/6964078/2026/01/12/49ers-defense-injuries-eric-kendricks-garret-wallow/
 
 **What to Know About the Criminal Investigation of the Fed Chair**\
 `The Justice Department’s probe into whether Jerome H. Powell, the chair of the Federal Reserve, lied about renovations to the central bank’s headquarters has raised alarms.`\
