@@ -1,3 +1,11 @@
+**Trump’s India Envoy Offers Hope Amid a Strained Relationship**\
+`Sergio Gor, a confidant of the U.S. president, took up his post as ambassador in New Delhi with ties between the countries at their lowest ebb in decades.`\
+https://nytimes.com/2026/01/12/world/asia/india-us-ambassador-sergio-gor.html
+
+**Submit your questions for the college basketball mailbag**\
+`What's on your mind two weeks into conference play? Let us know.`\
+https://nytimes.com/athletic/6963291/2026/01/12/college-basketball-mailbag-submit-questions/
+
 **Truck Drives Through Crowd of Iran Protesters in Los Angeles**\
 `A U-Haul truck sped through a street packed with demonstrators in Los Angeles on Sunday as they marched in support of the anti-government protests in Iran. The truck hit one person, who was not significantly injured.`\
 https://nytimes.com/video/us/100000010639093/los-angeles-iran-protesters.html
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/6963282/2026/01/12/aston-villa-transfer-news-madjo/
 `Milwaukee is a strong team when Giannis Antetokounmpo is in the game, and a terrible one when he sits. Can the Bucks find a solution?`\
 https://nytimes.com/athletic/6962776/2026/01/12/bucks-giannis-antetokounmpo-bench-leads/
 
-**Lewis Hamilton can't be another champion failed at Ferrari. F1 2026 will define his vow**\
+**Lewis Hamilton can't be another champion failed at Ferrari. Everything rides on 2026**\
 `The 41-year-old seven-time drivers' title winner is heading into 2026 hoping for a big change in his fortunes with the Prancing Horse`\
 https://nytimes.com/athletic/6963119/2026/01/12/lewis-hamilton-f1-2026-ferrari-title-hopes/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/12/world/europe/grok-ai-images-x-elon-musk-uk.html
 **A Green Beret Went on a Shooting Rampage. Is the Army at Fault?**\
 `High-tempo Special Operations training can cause brain injuries that accumulate unnoticed. One soldier says that is why he snapped and killed three people.`\
 https://nytimes.com/2026/01/12/us/blast-brain-injury-green-beret-shooting-duke-webb.html
-
-**Six Lakers trade ideas — and why they probably wouldn't work**\
-`The Lakers could use some help. But their options and assets appear limited before the Feb. 5 deadline, making deals difficult to imagine.`\
-https://nytimes.com/athletic/6962507/2026/01/12/lakers-trade-deadline-proposals-hachimura-knecht/
-
-**Trump Administration Live Updates: Markets Waver After Prosecutors Open Investigation Into Fed Chair**\
-``\
-https://nytimes.com/live/2026/01/12/us/trump-news
 
