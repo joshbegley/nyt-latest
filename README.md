@@ -1,3 +1,7 @@
+**Daniel Walker Howe, Historian of Antebellum America, Dies at 88**\
+`He saw the origins of modern America in the years between 1815 and 1848, when revolutions in technology and media transformed a nation of isolated farms.`\
+https://nytimes.com/2026/01/11/obituaries/daniel-walker-howe-dead.html
+
 **With the Golden Globes, podcasts are ready for their close-up.**\
 `By Jessica Testa`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/with-the-golden-globes-podcasts-are-ready-for-their-close-up
@@ -35,8 +39,4 @@ https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/neon-an-indie-
 **Matt LaFleur meeting with Packers president Ed Policy to talk coach's future**\
 `LaFleur, with a year remaining on his contract, left no doubt on Sunday about his desire to stay in Green Bay for both 2026 and beyond.`\
 https://nytimes.com/athletic/6962147/2026/01/11/matt-lafleur-future-packers-ed-policy/
-
-**Meet the U.S. Olympic figure skating team: Ilia Malinin headlines a powerful squad**\
-`Malinin is the clear gold medal favorite. All three women's skaters have a medal shot. And the incredible story of Maxim Naumov continues.`\
-https://nytimes.com/athletic/6961812/2026/01/11/us-olympics-figure-skating-team-ilia-malinin-amber-glenn-maxim-naumov/
 
