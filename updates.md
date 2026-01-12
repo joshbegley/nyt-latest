@@ -1,3 +1,7 @@
+**Fed Chair Responds to Inquiry on Building Renovations**\
+`Federal prosecutors opened an investigation into whether Jerome H. Powell, the Federal Reserve chair, lied to Congress about the scope of renovations of the central bank’s buildings. He called the probe “unprecedented” in a rare video message.`\
+https://nytimes.com/video/us/politics/100000010638605/powell-investigation-trump.html
+
 **Target Center security apologizes after telling Wolves fan to remove 'ICE OUT' T-shirt**\
 `Tim Phillips, a civil rights attorney, said that he wore the shirt in response to the increased presence of ICE agents in the Twin Cities.`\
 https://nytimes.com/athletic/6962668/2026/01/12/minnesota-timberwolves-fan-ice-out-shirt/
