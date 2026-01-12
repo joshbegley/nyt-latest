@@ -1,3 +1,7 @@
+**Wagner Moura wins best actor, motion picture drama.**\
+`By Emmanuel Morgan`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/wagner-moura-wins-best-actor-motion-picture-drama
+
 **Maxim Naumov earns spot in Olympics, embodying the resilience of this U.S. team**\
 `Naumov lost his parents in last January's plane crash over the Potomac River. Now, he's heading to the Olympics on a loaded U.S. team.`\
 https://nytimes.com/athletic/6962389/2026/01/11/maxim-naumov-olympics-us-figure-skating-team/
