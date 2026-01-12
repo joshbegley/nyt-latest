@@ -1,3 +1,11 @@
+**John Harbaugh speaks with Falcons' Matt Ryan, no in-person interviews yet**\
+`The Falcons conducted a preliminary interview with Harbaugh on Monday. He has yet to meet in person with any team about its coaching job.`\
+https://nytimes.com/athletic/6964558/2026/01/12/john-harbaugh-falcons-matt-ryan-head-coaching-job/
+
+**Former Congressional Employee Accused of Stealing 240 Phones**\
+`A Maryland man used his government job to order new cellphones worth over $150,000 and then sell them to a pawnshop, federal prosecutors said.`\
+https://nytimes.com/2026/01/12/us/congressional-employee-stolen-phones.html
+
 **Top Fed Official Conveys Little Urgency for Immediate Rate Cuts**\
 `The Federal Reserve is likely to hold interest rates steady when it meets at the end of the month, keeping tensions high with President Trump.`\
 https://nytimes.com/2026/01/12/business/federal-reserve-john-williams-rates.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/12/us/politics/trump-economy.html
 **WNBA, players union agree to free agency moratorium until CBA deal is reached**\
 `Free agency rules are among negotiation priorities in the new CBA.`\
 https://nytimes.com/athletic/6964515/2026/01/12/wnba-union-free-agency-moratorium-cba/
-
-**Trump Cuts to Energy Projects in Blue States Were Unlawful, Judge Rules**\
-`The Energy Department canceled $7.5 billion in Biden-era energy spending, largely in Democratic-led states, during last year’s government shutdown.`\
-https://nytimes.com/2026/01/12/climate/trump-energy-department-grant-cuts-unlawful.html
-
-**Arson Suspect Targeted Mississippi Synagogue for Its ‘Jewish Ties,’ F.B.I. Says**\
-`The suspect, Stephen Spencer Pittman, was turned in by his father, who said his son had laughed as he confessed to the fire that damaged the synagogue, investigators said.`\
-https://nytimes.com/2026/01/12/us/mississippi-synagogue-arson.html
 
