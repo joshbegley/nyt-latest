@@ -1,3 +1,7 @@
+**Iran Prepared for War but Ready to Negotiate, Foreign Minister Says**\
+`The comments came after President Trump said he was “ looking at some very strong options” to curb Iran’s harsh repression of anti-government protests.`\
+https://nytimes.com/2026/01/12/world/middleeast/iran-protests-trump-us.html
+
 **Israel Is Still Demolishing Gaza, Building by Building**\
 `More than 2,500 buildings have been destroyed since the start of the cease-fire, according to a New York Times analysis. Israel says it is demilitarizing Gaza.`\
 https://nytimes.com/interactive/2026/01/12/world/middleeast/israel-cease-fire-gaza-demolition.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/12/arts/television/ricky-gervais-wanda-sykes-golden-
 **Trump’s Victory Wobble**\
 `A fading president obsesses over leaving a mark.`\
 https://nytimes.com/2026/01/12/opinion/trump-power-election.html
-
-**Russia’s Fearsome Arsenal Fizzled in Venezuela. Here’s Why.**\
-`The Venezuelan regime had high-powered air defense systems from its allies in the Kremlin, but failed to set much of it up.`\
-https://nytimes.com/2026/01/12/world/americas/venezuela-russian-weapons-fail.html
 
