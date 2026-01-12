@@ -1,3 +1,15 @@
+**A Push to Expand the Rights of Immigrants in Defiance of Trump**\
+`An effort by New Jersey Democrats is seen as a provocative statement of principle in a state with the country’s second largest percentage of immigrants, after California.`\
+https://nytimes.com/2026/01/12/nyregion/immigration-policy-new-jersey.html
+
+**Mamdani’s Schools Chief Begins Shaping Agenda Around Rigor and Equity**\
+`In his first week on the job, Kamar H. Samuels started to sketch out his priorities for leading America’s largest school system.`\
+https://nytimes.com/2026/01/12/nyregion/mamdanis-schools-chief-samuels-agenda.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/12/crosswords/spelling-bee-forum.html
+
 **Fed Chair Responds to Inquiry on Building Renovations**\
 `Federal prosecutors opened an investigation into whether Jerome H. Powell, the Federal Reserve chair, lied to Congress about the scope of renovations of the central bank’s buildings. He called the probe “unprecedented” in a rare video message.`\
 https://nytimes.com/video/us/politics/100000010638605/powell-investigation-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/01/12/todays-new-york-times
 **This Is How the Cartels Win**\
 `Turning Latin America into a theater of war will not weaken transnational crime; it will entrench it.`\
 https://nytimes.com/2026/01/12/opinion/trump-venezuela-organized-crime-cartels.html
-
-**American Supremacy Is Over, and Something New Is Coming**\
-`America’s days of unipolar supremacy are past.`\
-https://nytimes.com/2026/01/12/opinion/trump-venezuela-world-mercosur.html
-
-**‘Tell Me Lies,’ Plus 8 Things to Watch on TV This Week**\
-`The college-set drama returns and a “Game of Thrones” prequel premieres.`\
-https://nytimes.com/2026/01/12/arts/television/tell-me-lies-plus-8-things-to-watch-on-tv-this-week.html
-
-**15 Unforgettable Looks at the Golden Globes**\
-`Sheer gowns, slouchy tuxedos, chunky-soled boots and more.`\
-https://nytimes.com/2026/01/12/style/golden-globes-red-carpet-2026-most-stylish.html
 
