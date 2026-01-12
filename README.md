@@ -1,3 +1,11 @@
+**Nikki Glaser Ended the Golden Globes by Honoring Rob Reiner**\
+`In a “Spinal Tap” baseball cap, Glaser concluded the ceremony by saying, “This one went to 11.”`\
+https://nytimes.com/2026/01/11/arts/nikki-glaser-rob-reiner-golden-globes.html
+
+**The Ashes 2025-26: From Snicko to the Noosa tourism board, who were the winners and losers?**\
+`Who emerged triumphant from the Ashes series - other than Australia, of course - and who had an absolute shocker? Aside from England`\
+https://nytimes.com/athletic/6953732/2026/01/12/ashes-winners-losers-snicko-noosa-test-cricket/
+
 **Tottenham's defeat was reminder of how far they have fallen while Villa - and others - rose**\
 `The difference in the trajectories of Spurs and Villa over the past seven years was laid bare on Saturday.`\
 https://nytimes.com/athletic/6960459/2026/01/12/tottenham-frank-fa-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6960537/2026/01/12/liam-rosenior-chelsea-charlton-t
 **For Manchester United, a 40-game season is a new low (in more ways than one)**\
 `It is 111 years since the club last played so few games in a season, the result of damaging cup losses and an absence of European football`\
 https://nytimes.com/athletic/6941844/2026/01/12/manchester-united-brighton-fa-cup/
-
-**How a complete Morgan Rogers performance strengthened his claim to be England's No10**\
-`Morgan Rogers is Aston Villa's leading goalscorer this season and his form has given Thomas Tuchel his toughest selection headache`\
-https://nytimes.com/athletic/6960658/2026/01/12/morgan-rogers-aston-villa-fa-cup-england/
-
-**Leeds will need Wilfried Gnonto - he showed why**\
-`The Italian is unlikely to be a starter against Fulham but he took his chance against Derby and showed Farke what he can still offer`\
-https://nytimes.com/athletic/6961492/2026/01/12/wilfried-gnonto-leeds-farke/
 
