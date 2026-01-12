@@ -1,3 +1,7 @@
+**Illinois Doctor Charged With Murder in Shooting of Ex-Wife and Her Husband**\
+`Monique and Spencer Tepe were fatally shot in their home in Columbus, Ohio, last month. Their two young children were found in the home, unharmed, the police said.`\
+https://nytimes.com/2026/01/12/us/tepe-couple-ohio-shooting-ex-husband-charged.html
+
 **How the Trump Administration Hacked Our Ignorance**\
 `David French explains on “The Opinions” why he believes a key secret to the Trump administration lies in its ability to exploit “civic ignorance.”`\
 https://nytimes.com/video/opinion/100000010633574/how-the-trump-administration-hacked-our-ignorance.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6962330/2026/01/12/nascar-chase-playoff-format-how-
 **49ers' no-name defense 'scratching and clawing' to keep season alive**\
 `Fueled by midseason additions and unproven backups, the 49ers' defense shut the door on the defending Super Bowl champions.`\
 https://nytimes.com/athletic/6964078/2026/01/12/49ers-defense-injuries-eric-kendricks-garret-wallow/
-
-**What to Know About the Criminal Investigation of the Fed Chair**\
-`The Justice Department’s probe into whether Jerome H. Powell, the chair of the Federal Reserve, lied about renovations to the central bank’s headquarters has raised alarms.`\
-https://nytimes.com/2026/01/12/us/politics/jerome-powell-investigation-fed-renovations.html
 
