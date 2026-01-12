@@ -1,3 +1,11 @@
+**Maxim Naumov earns spot in Olympics, embodying the resilience of this U.S. team**\
+`Naumov lost his parents in last January's plane crash over the Potomac River. Now, he's heading to the Olympics on a loaded U.S. team.`\
+https://nytimes.com/athletic/6962389/2026/01/11/maxim-naumov-olympics-us-figure-skating-team/
+
+**Jessie Buckley wins best actress, motion picture drama.**\
+`By Derrick Bryson Taylor`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/jessie-buckley-wins-best-actress-motion-picture-drama
+
 **‘The Studio’ wins best TV comedy.**\
 `By Michaela Towfighi`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/the-studio-wins-best-tv-comedy
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/11/nyregion/mamdani-gracie-mansion-nyc.html
 **Cubs are contenders again. They can't do something silly like trade Nico Hoerner**\
 `Trading Hoerner, a team leader, elite defender and above-average offensive player, would be antithetical to the ultimate goal of winning.`\
 https://nytimes.com/athletic/6962301/2026/01/11/cubs-nico-hoerner-offseason-moves/
-
-**49ers End Eagles’ Title Defense With Fourth-Quarter Rally**\
-`Christian McCaffrey’s two touchdown receptions lifted the San Francisco 49ers over the Philadelphia Eagles on Sunday.`\
-https://nytimes.com/video/the-athletic/100000010638638/49ers-end-eagles-title-defense-with-fourth-quarter-rally.html
-
-**Nikki Glaser Put On a Comedy Clinic in Her Golden Globes Monologue**\
-`For her second consecutive year as host, Glaser delivered a killer set of rapid-fire, very short jokes.`\
-https://nytimes.com/2026/01/11/arts/nikki-glaser-monologue-golden-globes-2026.html
 

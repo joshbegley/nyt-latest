@@ -1,3 +1,11 @@
+**‘The Studio’ wins best TV comedy.**\
+`By Michaela Towfighi`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/the-studio-wins-best-tv-comedy
+
+**‘Adolescence’ wins best limited series.**\
+`By Michaela Towfighi`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/adolescence-wins-best-limited-series
+
 **Josh Allen's tush pushers carry Bills to grueling win: 'Closest-to-God experience'**\
 `O'Cyrus Torrence picked up his quarterback and took off.`\
 https://nytimes.com/athletic/6962283/2026/01/11/josh-allen-bills-tush-push-playoff-victory/
