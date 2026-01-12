@@ -1,3 +1,7 @@
+**The secret behind Barcelona's new dominance over Real Madrid? Lamine Yamal can tell you**\
+`Sunday's Supercopa victory was Barca's third consecutive win in a final against their Clasico rivals`\
+https://nytimes.com/athletic/6962940/2026/01/12/barcelona-real-madrid-clasico-supercopa-yamal-flick/
+
 **Carrick in pole position to be Man United interim head coach**\
 `Carrick has emerged as the leading candidate for the role after he and Ole Gunnar Solskjaer held face-to-face talks with club executives.`\
 https://nytimes.com/athletic/6942066/2026/01/12/manchester-united-michael-carrick-manager-next-interim/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/12/learning/word-of-the-day-abstruse.html
 **Xabi Alonso's flexibility wasn't enough to beat Barcelona, but it's saved him at Real Madrid**\
 `Barcelona's 3-2 victory sealed the first trophy of Spain's season, but Alonso's team were competitive and ran them close`\
 https://nytimes.com/athletic/6962818/2026/01/12/real-madrid-barcelona-clasico-supercopa-alonso-job/
-
-**How Devin Booker fuels surging Phoenix Suns with unselfishness and 'hockey assists'**\
-`There are many themes to this surprising Suns season. Booker has been at the center, but not because of his scoring. `\
-https://nytimes.com/athletic/6962652/2026/01/12/devin-booker-suns-hockey-assists/
 
