@@ -1,3 +1,11 @@
+**Federal Prosecutors Are Said to Have Opened Inquiry Into Fed Chair Powell**\
+`The investigation, which centers on renovations of the Federal Reserve’s headquarters in Washington, signals an escalation in the long-running clash between President Trump and the chair.`\
+https://nytimes.com/2026/01/11/us/politics/jerome-powell-fed-inquiry-trump.html
+
+**Neon, an indie studio with an international bent, tops Globes nominations.**\
+`By Nicole Sperling`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/neon-an-indie-studio-with-an-international-bent-tops-globes-nominations
+
 **Matt LaFleur meeting with Packers president Ed Policy to talk coach's future**\
 `LaFleur, with a year remaining on his contract, left no doubt on Sunday about his desire to stay in Green Bay for both 2026 and beyond.`\
 https://nytimes.com/athletic/6962147/2026/01/11/matt-lafleur-future-packers-ed-policy/
