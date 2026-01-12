@@ -1,3 +1,7 @@
+**America at 250**\
+``\
+https://nytimes.com/spotlight/america-250
+
 **Real Madrid part ways with Xabi Alonso**\
 `Madrid announced the news in a club statement on Monday.`\
 https://nytimes.com/athletic/6872754/2026/01/12/xabi-alonso-real-madrid-exit-next/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010633079/what-our-photographer-saw-in-minnea
 **E.P.A. to Stop Considering Lives Saved When Setting Rules on Air Pollution**\
 `In a reversal, the agency plans to calculate only the cost to industry when setting pollution limits, and not the monetary value of saving human lives, documents show.`\
 https://nytimes.com/2026/01/12/climate/trump-epa-air-pollution.html
-
-**LeBron James 23rd season jersey patches to go into Topps trading cards**\
-`Topps has now introduced several jersey patches across a variety of leagues and sports that have driven big interest among collectors`\
-https://nytimes.com/athletic/6963523/2026/01/12/lebron-james-jersey-patch-topps-cards/
 
