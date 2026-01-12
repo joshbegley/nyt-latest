@@ -1,3 +1,7 @@
+**Eagles' A.J. Brown, Nick Sirianni have heated sideline exchange vs. 49ers**\
+`Dom DiSandro, the Eagles' head of security, stepped in to calm both down in the second quarter of Sunday's NFC wild-card game. `\
+https://nytimes.com/athletic/6962155/2026/01/11/aj-brown-sirianni-heated-sideline-exchange-eagles-49ers/
+
 **Federal Prosecutors Are Said to Have Opened Inquiry Into Fed Chair Powell**\
 `The investigation, which centers on renovations of the Federal Reserve’s headquarters in Washington, signals an escalation in the long-running clash between President Trump and the chair.`\
 https://nytimes.com/2026/01/11/us/politics/jerome-powell-fed-inquiry-trump.html
