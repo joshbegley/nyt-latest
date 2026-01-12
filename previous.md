@@ -6,7 +6,7 @@ https://nytimes.com/interactive/2026/01/12/books/review/myth-novels-quiz.html
 `The season hasn't quite reached its midway point, but we have a good idea of what teams are.`\
 https://nytimes.com/athletic/6963188/2026/01/12/nba-power-rankings-timberwolves-rockets-knicks/
 
-**Fed Changes Course and Takes on Trump in Political Fight**\
+**Fed Changes Course and Takes On Trump’s Political Fight**\
 `The Justice Department’s decision to open up a criminal investigation of Jerome H. Powell, the chair of the Federal Reserve, is a major escalation in the pressure campaign against the central bank to cut interest rates.`\
 https://nytimes.com/2026/01/12/business/federal-reserve-changes-course-trump-administration.html
 
@@ -14,7 +14,7 @@ https://nytimes.com/2026/01/12/business/federal-reserve-changes-course-trump-adm
 `Raiola, who started 22 games in two seasons at Nebraska, has two years of eligibility remaining.`\
 https://nytimes.com/athletic/6961872/2026/01/12/dylan-raiola-transfer-quarterback-oregon-ducks/
 
-**NBA Rewind: Ja Morant's trade market could be as slim as Trae Young's was**\
+**NBA Rewind: Ja Morant's trade market could be as slim as Trae Young's**\
 `Plus, who's hot (Cavs, Wolves) and not (Knicks, Jazz) this week in the NBA. And can the Thunder and Spurs get their grooves back?`\
 https://nytimes.com/athletic/6959964/2026/01/12/ja-morant-trae-young-trade-deadline-nba-rewind/
 

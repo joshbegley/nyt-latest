@@ -1,3 +1,11 @@
+**Fed Changes Course and Takes On Trump’s Political Fight**\
+`The Justice Department’s decision to open up a criminal investigation of Jerome H. Powell, the chair of the Federal Reserve, is a major escalation in the pressure campaign against the central bank to cut interest rates.`\
+https://nytimes.com/2026/01/12/business/federal-reserve-changes-course-trump-administration.html
+
+**NBA Rewind: Ja Morant's trade market could be as slim as Trae Young's**\
+`Plus, who's hot (Cavs, Wolves) and not (Knicks, Jazz) this week in the NBA. And can the Thunder and Spurs get their grooves back?`\
+https://nytimes.com/athletic/6959964/2026/01/12/ja-morant-trae-young-trade-deadline-nba-rewind/
+
 **Do You Know These Modern Books Inspired by Myth and Legend?**\
 `Ancient legends from thousands of years ago often find fresh audiences in new books. Test your memory of recent titles with this short quiz.`\
 https://nytimes.com/interactive/2026/01/12/books/review/myth-novels-quiz.html
