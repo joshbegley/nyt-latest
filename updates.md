@@ -1,3 +1,11 @@
+**15 Unforgettable Looks at the Golden Globes**\
+`Sheer gowns, slouchy tuxedos, chunky-soled boots and more.`\
+https://nytimes.com/2026/01/12/style/golden-globes-red-carpet-2026-most-stylish.html
+
+**Death Toll Surges in Iran Protests**\
+`Crowds gathered at a morgue outside Tehran as the death toll from protests in Iran surged. President Trump hinted on Sunday that the United States may intercede if peaceful protesters are killed.`\
+https://nytimes.com/video/world/asia/100000010638536/iran-president-protests-economy-response.html
+
 **Nikki Glaser Ended the Golden Globes by Honoring Rob Reiner**\
 `In a “Spinal Tap” baseball cap, Glaser concluded the ceremony by saying, “This one went to 11.”`\
 https://nytimes.com/2026/01/11/arts/nikki-glaser-rob-reiner-golden-globes.html
