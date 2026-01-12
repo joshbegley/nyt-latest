@@ -1,3 +1,23 @@
+**How Devin Booker fuels surging Phoenix Suns with unselfishness and 'hockey assists'**\
+`There are many themes to this surprising Suns season. Booker has been at the center, but not because of his scoring. `\
+https://nytimes.com/athletic/6962652/2026/01/12/devin-booker-suns-hockey-assists/
+
+**You Can’t Drone Strike a Global Drug Chain**\
+`Turning Latin America into a theater of war will not weaken transnational crime; it will entrench it.`\
+https://nytimes.com/2026/01/12/opinion/trump-venezuela-organized-crime-cartels.html
+
+**The New York Times in Print for Monday, Jan. 12, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/12/todays-new-york-times
+
+**A New World Is Taking Shape, No Matter What Trump Does**\
+`America’s days of unipolar supremacy are past.`\
+https://nytimes.com/2026/01/12/opinion/trump-venezuela-world-mercosur.html
+
+**‘Tell Me Lies,’ Plus 8 Things to Watch on TV This Week**\
+`The college-set drama returns and a “Game of Thrones” prequel premieres.`\
+https://nytimes.com/2026/01/12/arts/television/tell-me-lies-plus-8-things-to-watch-on-tv-this-week.html
+
 **15 Unforgettable Looks at the Golden Globes**\
 `Sheer gowns, slouchy tuxedos, chunky-soled boots and more.`\
 https://nytimes.com/2026/01/12/style/golden-globes-red-carpet-2026-most-stylish.html
