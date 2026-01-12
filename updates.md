@@ -1,3 +1,11 @@
+**Josh Allen's tush pushers carry Bills to grueling win: 'Closest-to-God experience'**\
+`O'Cyrus Torrence picked up his quarterback and took off.`\
+https://nytimes.com/athletic/6962283/2026/01/11/josh-allen-bills-tush-push-playoff-victory/
+
+**Nikki Glaser Put On a Comedy Clinic in Her Golden Globes Monologue**\
+`For her second consecutive year as host, Glaser delivered a killer set of rapid-fire, very short jokes.`\
+https://nytimes.com/2026/01/11/arts/nikki-glaser-monologue-golden-globes-2026.html
+
 **‘The Pitt’ wins best TV drama.**\
 `By Michaela Towfighi`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/the-pitt-wins-best-tv-drama
