@@ -1,3 +1,7 @@
+**WNBA, players union agree to free agency moratorium until CBA deal is reached**\
+`Free agency rules are among negotiation priorities in the new CBA.`\
+https://nytimes.com/athletic/6964515/2026/01/12/wnba-union-free-agency-moratorium-cba/
+
 **WNBA and players union agree to free agency moratorium until CBA deal is reached**\
 `Free agency rules are among negotiation priorities in the new CBA.`\
 https://nytimes.com/athletic/6964515/2026/01/12/wnba-union-free-agency-moratorium-cba/
