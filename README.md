@@ -1,3 +1,19 @@
+**Arson Suspect Targeted Mississippi Synagogue for Its ‘Jewish Ties,’ F.B.I. Says**\
+`The suspect, Stephen Spencer Pittman, was turned in by his father, who said his son had laughed as he confessed to the fire that damaged the synagogue, investigators said.`\
+https://nytimes.com/2026/01/12/us/mississippi-synagogue-arson.html
+
+**Trump’s Attack on the Fed Is Already Backfiring**\
+`And the market is gently shrugging.`\
+https://nytimes.com/2026/01/12/opinion/trump-jerome-powell-federal-reserve.html
+
+**Celtics' Jaylen Brown fined $35,000 by NBA for public criticism of referees**\
+`Brown finished the game with 27 points, eight rebounds, seven assists and five turnovers.`\
+https://nytimes.com/athletic/6964349/2026/01/12/celtics-jaylen-brown-fined-officiating-criticism-nba/
+
+**Scoop City: Already (!) the wildest playoffs ever**\
+`The most competitive playoff weekend ... ever? Plus what's next for the winners and losers of the wild-card round`\
+https://nytimes.com/athletic/6964427/2026/01/12/nfl-playoffs-record-scores-rams-bills-bears-49ers-scoop-city/
+
 **Lawyer Whom Maduro Didn’t Hire Is Booted From His Case**\
 `Last week, a lawyer came forward claiming to represent the unseated president of Venezuela, Nicolás Maduro. The judge overseeing the case settled the matter on Monday.`\
 https://nytimes.com/2026/01/12/nyregion/maduro-lawyers-bruce-fein.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6964335/2026/01/12/blue-jackets-hired-hc-rick-bowne
 **Leaders of Historians’ Group Veto Resolutions Critical of Israel**\
 `The executive council of the American Historical Association said the resolutions, including one accusing Israel of ‘scholasticide’ in Gaza, would put the group at risk.`\
 https://nytimes.com/2026/01/12/arts/american-historical-association-gaza.html
-
-**Minnesota and Illinois Sue Trump Administration Over ICE Deployments**\
-`The two Democratic-led states claimed in separate lawsuits that the immigration enforcement campaigns violated the Constitution.`\
-https://nytimes.com/2026/01/12/us/minnesota-llinois-lawsuit-ice-trump-administration.html
-
-**The Briefing: Liverpool 4 Barnsley 1 - Slot goes strong, Szoboszlai's howler and a rare Ngumoha start**\
-`Gregg Evans analyses the main talking points as Liverpool beat Barnsley to reach the FA Cup fourth round`\
-https://nytimes.com/athletic/6953988/2026/01/12/liverpool-barnsley-fa-cup-analysis/
-
-**Judge Strikes Down Trump’s Latest Effort to Stop Offshore Wind**\
-`The ruling means that construction can continue on Revolution Wind, a $6.2 billion project off the coast of Rhode Island, at least for now.`\
-https://nytimes.com/2026/01/12/climate/judge-strikes-down-trumps-latest-effort-to-stop-offshore-wind.html
-
-**NASCAR brings back the 'Chase' for its playoffs, and the sport will be better for it**\
-`NASCAR's move back to the Chase playoff format should satisfy most (though not all) fans and restore credibility to the championship.`\
-https://nytimes.com/athletic/6963417/2026/01/12/nascar-chase-playoff-format-better-system/
 
