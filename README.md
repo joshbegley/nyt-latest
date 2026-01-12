@@ -1,3 +1,11 @@
+**Wall St. Shows Nerves as Stocks, Bonds and the Dollar Slip on Fed Threat**\
+`The broad shift out of U.S. financial assets revived last year’s trend called the “sell America” trade.`\
+https://nytimes.com/2026/01/12/business/stock-market-dollar-trump-fed-powell.html
+
+**England U17 forward Madjo completes Villa transfer from Metz**\
+`The 17-year-old forward has played five matches in Ligue 1 for Metz and has played three times for Luxembourg at senior level.`\
+https://nytimes.com/athletic/6963282/2026/01/12/aston-villa-transfer-news-madjo/
+
 **How can the Bucks stay in games without Giannis on the floor? 'Be more decisive'**\
 `Milwaukee is a strong team when Giannis Antetokounmpo is in the game, and a terrible one when he sits. Can the Bucks find a solution?`\
 https://nytimes.com/athletic/6962776/2026/01/12/bucks-giannis-antetokounmpo-bench-leads/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/01/12/us/trump-news
 **How Barcelona's balanced attack is helping them get the better of Real Madrid**\
 `Right now Madrid are nowhere near as complete as Barca, but they're still capable of challenging for the title in the coming months`\
 https://nytimes.com/athletic/6963051/2026/01/12/barcelona-attacking-balance-real-madrid/
-
-**Venezuela Frees 24 More Political Prisoners, Rights Group Says**\
-`Since an interim government began the releases last week, at least 41 people have been let go, according to Foro Penal.`\
-https://nytimes.com/2026/01/12/world/americas/venezuela-political-prisoners-freed.html
-
-**Spurs' Bentancur set to miss three months with injury**\
-`The Uruguayan sustained the hamstring injury last week, with his absence leaving Spurs light in midfield.`\
-https://nytimes.com/athletic/6963037/2026/01/12/rodrigo-bentancur-injury-tottenham-transfer/
 
