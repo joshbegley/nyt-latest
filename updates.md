@@ -1,3 +1,11 @@
+**Josh Allen's tush pushers carry Bills to grueling playoff victory: 'Closest-to-God experience'**\
+`O'Cyrus Torrence picked up his quarterback and took off.`\
+https://nytimes.com/athletic/6962283/2026/01/11/josh-allen-bills-tush-push-playoff-victory/
+
+**Mayor Mamdani Is Moving On Up to Gracie Mansion**\
+`Mayor Zohran Mamdani and his wife, Rama Duwaji, have begun moving their belongings from their Queens apartment to the official mayor’s residence in Manhattan.`\
+https://nytimes.com/2026/01/11/nyregion/mamdani-gracie-mansion-nyc.html
+
 **Cubs are contenders again. They can't do something silly like trade Nico Hoerner**\
 `Trading Hoerner, a team leader, elite defender and above-average offensive player, would be antithetical to the ultimate goal of winning.`\
 https://nytimes.com/athletic/6962301/2026/01/11/cubs-nico-hoerner-offseason-moves/
