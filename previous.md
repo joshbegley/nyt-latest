@@ -1,3 +1,27 @@
+**Tottenham's defeat was reminder of how far they have fallen while Villa - and others - rose**\
+`The difference in the trajectories of Spurs and Villa over the past seven years was laid bare on Saturday.`\
+https://nytimes.com/athletic/6960459/2026/01/12/tottenham-frank-fa-cup/
+
+**The WSL's top-four battle has been split in two**\
+`Six points separate City and Chelsea — but these six points feel more impervious for City, who have won 11 WSL matches in a row`\
+https://nytimes.com/athletic/6961597/2026/01/12/wsl-title-chelsea-man-city/
+
+**Vilified on Thursday, hat-trick hero on Sunday - what a week for Gabriel Martinelli**\
+`The Brazilian scored his first career hat-trick, just three days after an unsavoury incident involving Liverpool's Conor Bradley`\
+https://nytimes.com/athletic/6961667/2026/01/12/gabriel-martinelli-portsmouth-liverpool/
+
+**Are Brighton beginning to reap the rewards of their £200m spending spree?**\
+`It was unlike Brighton to go so hard in the summer 2024 transfer window but there are signs the investment is beginning to pay off`\
+https://nytimes.com/athletic/6961158/2026/01/12/brighton-spending-summer-2024/
+
+**The Briefing: Who will make sense of Man United? Will Salah win the trophy he craves?**\
+`Nick Miller answers three of the main questions to arise from the weekend's football`\
+https://nytimes.com/athletic/6961811/2026/01/12/manchester-united-macclesfield-salah-mane/
+
+**How Manchester City play: Direct build-up and quicker combinations, but is there too much fatigue?**\
+`The Athletic's series taking the tactical temperature at the Premier League's 'Big Six' begins with a look at Pep Guardiola's side `\
+https://nytimes.com/athletic/6957539/2026/01/12/how-manchester-city-play-premier-league-tactics/
+
 **Subtle changes but set-piece problems remain: What we learned about Liam Rosenior's Chelsea**\
 `Liam Rosenior started his Chelsea reign with a win but perhaps unsurprisingly some of the problems experienced under Enzo Maresca continued`\
 https://nytimes.com/athletic/6960537/2026/01/12/liam-rosenior-chelsea-charlton-tactics/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6960658/2026/01/12/morgan-rogers-aston-villa-fa-cup
 **Leeds will need Wilfried Gnonto - he showed why**\
 `The Italian is unlikely to be a starter against Fulham but he took his chance against Derby and showed Farke what he can still offer`\
 https://nytimes.com/athletic/6961492/2026/01/12/wilfried-gnonto-leeds-farke/
-
-**Eritrea, a return to AFCON, and the footballers who escaped one of the world's most dangerous countries**\
-`In 2024 The Athletic told the story of the Eritrean players who fled. Two years on, the national team is set to return to competitive action`\
-https://nytimes.com/athletic/6961323/2026/01/12/eritrea-afcon-return-players-escaped/
-
-**The Kirkby alumnus returning to Anfield for the FA Cup: 'I was screaming: We've got Liverpool!'**\
-`Barnsley's Adam Phillips is hoping to swap shirts with Curtis Jones after the FA Cup third-round match on Monday`\
-https://nytimes.com/athletic/6961101/2026/01/12/adam-phillips-kirkby-liverpool-fa-cup-barnsley/
-
-**Summerville helped West Ham stop the rot. Is he the key to their survival?**\
-`Summerville's goal may have only been his second since joining from Leeds in August 2024, but it meant that bit more for the Dutchman`\
-https://nytimes.com/athletic/6961683/2026/01/12/crysencio-summerville-west-ham-qpr-fa-cup/
-
-**Newcastle United's marathon campaign continues – but at what cost?**\
-`The negative impact of Newcastle United's FA Cup victory over Bournemouth on an already stretched squad is significant`\
-https://nytimes.com/athletic/6959394/2026/01/12/newcastle-bournemouth-fa-cup-analysis/
-
-**Are managers ever relieved to be sacked? 'It is a relief of pressure - but then you miss that pressure'**\
-`Amorim looked like a weight had been lifted after his United exit, but what other concerns are there for managers further down the pyramid?`\
-https://nytimes.com/athletic/6957725/2026/01/12/sacked-premier-league-managers-amorim/
-
-**Mike Vrabel gets bloody lip celebrating clinching sack with Milton Williams**\
-`The first-year Patriots coach suffered a bloody lip while celebrating the game-clinching sack with defensive tackle Milton Williams.`\
-https://nytimes.com/athletic/6962665/2026/01/12/mike-vrabel-patriots-bloody-lip-milton-williams/
 
