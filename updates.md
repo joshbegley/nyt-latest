@@ -1,0 +1,40 @@
+**Matt LaFleur meeting with Packers president Ed Policy to talk coach's future**\
+`LaFleur, with a year remaining on his contract, left no doubt on Sunday about his desire to stay in Green Bay for both 2026 and beyond.`\
+https://nytimes.com/athletic/6962147/2026/01/11/matt-lafleur-future-packers-ed-policy/
+
+**Meet the U.S. Olympic figure skating team: Ilia Malinin headlines a powerful squad**\
+`Malinin is the clear gold medal favorite. All three women's skaters have a medal shot. And the incredible story of Maxim Naumov continues.`\
+https://nytimes.com/athletic/6961812/2026/01/11/us-olympics-figure-skating-team-ilia-malinin-amber-glenn-maxim-naumov/
+
+**Two Hours, Scores of Questions, 23,000 Words: Our Interview With President Trump**\
+`Four New York Times reporters pressed Mr. Trump about a range of topics in a nearly two-hour interview. Here is a transcript of their conversation.`\
+https://nytimes.com/2026/01/11/us/politics/trump-interview-transcript.html
+
+**Where’s the best original score award? Not on the telecast.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/golden-globes-best-score
+
+**The lifetime achievement winners have already been honored.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/the-lifetime-achievement-winners-have-already-been-honored
+
+**So Great It’s Unnerving**\
+`Carolyn Davies Lynch and Christina Iverson collaborate on a poetic puzzle.`\
+https://nytimes.com/2026/01/11/crosswords/daily-puzzle-2026-01-12.html
+
+**No. 2 Texas (18-1) loses for first time this season, falling at No. 12 LSU**\
+`UConn, Vanderbilt and Texas Tech are the only unbeaten teams remaining in women's college basketball.`\
+https://nytimes.com/athletic/6962069/2026/01/11/lsu-texas-first-loss-of-season/
+
+**Golden Globes 2026: See All the Red Carpet Arrivals**\
+`Selena Gomez, Kate Hudson and the stars of “Heated Rivalry” were among the celebrities who arrived at the annual ceremony in high style.`\
+https://nytimes.com/2026/01/11/style/golden-globes-2026-red-carpet-photos.html
+
+**49ers' George Kittle carted off vs. Eagles, ruled out with Achilles injury**\
+`Kittle went down after catching a 6-yard pass in the second quarter of San Francisco's wild-card playoff game in Philadelphia.`\
+https://nytimes.com/athletic/6962084/2026/01/11/george-kittle-49ers-injury/
+
+**The A.C.L.U. asks presenters and attendees to wear anti-ICE pins.**\
+`By Melena Ryzik`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/presenters-and-attendees-have-been-asked-to-wear-anti-ice-pins
+
