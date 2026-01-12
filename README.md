@@ -1,3 +1,11 @@
+**Nearly 15,000 Nurses Go on Strike at Major New York City Hospitals**\
+`Workers are demanding more robust staffing levels and higher pay. The strike comes three years after a smaller job action won significant gains.`\
+https://nytimes.com/2026/01/12/nyregion/nurses-strike-hospitals-nyc.html
+
+**The Pulse: We're already looking ahead to next weekend**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6962549/2026/01/12/nfl-wild-card-49ers-patriots-bills-the-pulse/
+
 **Wait, Indiana vs. Miami? What you need to know about an unlikely CFP championship game**\
 `What you need to know about Indiana vs. Miami, from program histories to notable names to the coaches who got them to the championship game.`\
 https://nytimes.com/athletic/6959749/2026/01/12/indiana-miami-cfp-national-championship-game-history/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6962855/2026/01/12/warriors-moody-kuminga-podziemsk
 **Blue Jays mailbag: Kyle Tucker's fit, Kazuma Okamoto's impact, prospects to watch**\
 `With spring training approaching, the Blue Jays’ busy offseason may not be over as questions around Kyle Tucker and Bo Bichette linger.`\
 https://nytimes.com/athletic/6960560/2026/01/12/blue-jays-mailbag-kyle-tucker-fit/
-
-**'I think we could have done more': Eagles defenders reflect on wild-card elimination**\
-`The defense kept the Eagles in many games this season.`\
-https://nytimes.com/athletic/6961921/2026/01/12/eagles-defense-wild-card-elimination/
-
-**Rosenthal: How Tarik Skubal's case could test the norms of MLB's arbitration system**\
-`With a $13 million gap between the back-to-back AL Cy Young winner's ask and the Tigers' filing number, Skubal's case can go so many ways.`\
-https://nytimes.com/athletic/6962108/2026/01/12/tarik-skubal-arbitration-detroit-tigers-scott-boras/
 
