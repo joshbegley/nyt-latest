@@ -1,3 +1,11 @@
+**Leaders of Historians’ Group Veto Resolutions Critical of Israel**\
+`The executive council of the American Historical Association said the resolutions, including one accusing Israel of ‘scholasticide’ in Gaza, would put the group at risk.`\
+https://nytimes.com/2026/01/12/arts/american-historical-association-gaza.html
+
+**Minnesota and Illinois Sue Trump Administration Over ICE Deployments**\
+`The two Democratic-led states claimed in separate lawsuits that the immigration enforcement campaigns violated the Constitution.`\
+https://nytimes.com/2026/01/12/us/minnesota-llinois-lawsuit-ice-trump-administration.html
+
 **The Briefing: Liverpool 4 Barnsley 1 - Slot goes strong, Szoboszlai's howler and a rare Ngumoha start**\
 `Gregg Evans analyses the main talking points as Liverpool beat Barnsley to reach the FA Cup fourth round`\
 https://nytimes.com/athletic/6953988/2026/01/12/liverpool-barnsley-fa-cup-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/12/arts/dan-bongino-fbi-podcast.html
 **Illinois Doctor Charged With Murder in Shooting of Ex-Wife and Her Husband**\
 `Monique and Spencer Tepe were fatally shot in their home in Columbus, Ohio, last month. Their two young children were found in the home, unharmed, the police said.`\
 https://nytimes.com/2026/01/12/us/tepe-couple-ohio-shooting-ex-husband-charged.html
-
-**How the Trump Administration Hacked Our Ignorance**\
-`David French explains on “The Opinions” why he believes a key secret to the Trump administration lies in its ability to exploit “civic ignorance.”`\
-https://nytimes.com/video/opinion/100000010633574/how-the-trump-administration-hacked-our-ignorance.html
-
-**The PGA Tour is on offense. It’s refreshing to watch**\
-`Stars matter, and the PGA Tour is cockily declaring to LIV: “This is what we think of the rest of your league.”`\
-https://nytimes.com/athletic/6964109/2026/01/12/pga-tour-brooks-koepka-return-liv-golf-war-2026/
 
