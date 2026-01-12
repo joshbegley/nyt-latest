@@ -1,3 +1,7 @@
+**USA's McKennie scores again for Juventus in rout of Cremonese**\
+`The USMNT midfielder has his second goal in three matches, helping Juventus back into Serie A's top four`\
+https://nytimes.com/athletic/6964329/2026/01/12/weston-mckennie-goal-video-juventus-cremonese/
+
 **Blue Jackets fire Dean Evason, name Rick Bowness head coach**\
 `The Blue Jackets are in last place in the Metropolitan Division with a 19-19-7 record.`\
 https://nytimes.com/athletic/6964335/2026/01/12/blue-jackets-hired-hc-rick-bowness-dean-evason-relieved/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6964247/2026/01/12/sf-giants-nico-hoerner-trade-pos
 **The Global Cost of Futzing With the Fed**\
 `If President Trump succeeds in gaining control of the Federal Reserve, it could have ripple effects beyond U.S. borders.`\
 https://nytimes.com/2026/01/12/world/federal-reserve-global-costs-iran-gaza.html
-
-**Dan Bongino, No Longer at the F.B.I., Will Return to Podcasting**\
-`The former F.B.I. deputy director, who had hosted a right-wing, pro-Trump podcast, will restart the show after a rocky tenure at the law-enforcement agency.`\
-https://nytimes.com/2026/01/12/arts/dan-bongino-fbi-podcast.html
 
