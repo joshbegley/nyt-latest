@@ -1,3 +1,7 @@
+**A Green Beret Went on a Shooting Rampage. Is the Army at Fault?**\
+`High-tempo Special Operations training can cause brain injuries that accumulate unnoticed. One soldier says that is why he snapped and killed three people.`\
+https://nytimes.com/2026/01/12/us/blast-brain-injury-green-beret-shooting-duke-webb.html
+
 **Six Lakers trade ideas — and why they probably wouldn't work**\
 `The Lakers could use some help. But their options and assets appear limited before the Feb. 5 deadline, making deals difficult to imagine.`\
 https://nytimes.com/athletic/6962507/2026/01/12/lakers-trade-deadline-proposals-hachimura-knecht/

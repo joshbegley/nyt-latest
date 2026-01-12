@@ -1,3 +1,19 @@
+**How can the Bucks stay in games without Giannis on the floor? 'Be more decisive'**\
+`Milwaukee is a strong team when Giannis Antetokounmpo is in the game, and a terrible one when he sits. Can the Bucks find a solution?`\
+https://nytimes.com/athletic/6962776/2026/01/12/bucks-giannis-antetokounmpo-bench-leads/
+
+**Lewis Hamilton can't be another champion failed at Ferrari. F1 2026 will define his vow**\
+`The 41-year-old seven-time drivers' title winner is heading into 2026 hoping for a big change in his fortunes with the Prancing Horse`\
+https://nytimes.com/athletic/6963119/2026/01/12/lewis-hamilton-f1-2026-ferrari-title-hopes/
+
+**The Potential Fallout From a Legal Attack on Powell**\
+`A criminal investigation into Jay Powell, the Federal Reserve chair, may be the most consequential attack yet on the central bank’s political independence.`\
+https://nytimes.com/2026/01/12/business/dealbook/powell-federal-reserve-investigation-trump.html
+
+**Britain Investigates Elon Musk’s X Over Grok’s Sexualized A.I. Images**\
+`A British regulator said it had started a formal investigation into Mr. Musk’s chatbot over the spread of illegal images.`\
+https://nytimes.com/2026/01/12/world/europe/grok-ai-images-x-elon-musk-uk.html
+
 **A Green Beret Went on a Shooting Rampage. Is the Army at Fault?**\
 `High-tempo Special Operations training can cause brain injuries that accumulate unnoticed. One soldier says that is why he snapped and killed three people.`\
 https://nytimes.com/2026/01/12/us/blast-brain-injury-green-beret-shooting-duke-webb.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/12/world/americas/venezuela-political-prisoners-free
 **Spurs' Bentancur set to miss three months with injury**\
 `The Uruguayan sustained the hamstring injury last week, with his absence leaving Spurs light in midfield.`\
 https://nytimes.com/athletic/6963037/2026/01/12/rodrigo-bentancur-injury-tottenham-transfer/
-
-**Mary Peltola Runs for Senate in Alaska, Lifting Democrats’ Hopes**\
-`The former congresswoman is the latest top-tier recruit for Democrats, who face a difficult Senate map this year as they try to retake control of the chamber.`\
-https://nytimes.com/2026/01/12/us/politics/mary-peltola-senate-alaska.html
-
-**Simeone apologises to Vinicius Jr after Supercopa clash**\
-`Simeone also apologised to Madrid president Florentino Perez and described his actions from Thursday's fixture as "not acceptable".`\
-https://nytimes.com/athletic/6963113/2026/01/12/diego-simeone-vinicius-junior-apology/
-
-**George Saunders Says Ditching These Three Delusions Can Save You**\
-`The celebrated author George Saunders on the challenges of being kind, the benefits of meditation and the reality check of death.`\
-https://nytimes.com/video/podcasts/100000010639131/george-saunders-says-ditching-these-three-delusions-can-save-you.html
-
-**Europe and China Take Step to Resolve Dispute on Electric Vehicles**\
-`The European Commission allowed carmakers to volunteer limits on their imports from China instead of paying tariffs, an arrangement that could help Volkswagen.`\
-https://nytimes.com/2026/01/12/business/europe-china-electric-vehicles-tariffs-volkswagen.html
 

@@ -1,3 +1,7 @@
+**A Green Beret Went on a Shooting Rampage. Is the Army at Fault?**\
+`High-tempo Special Operations training can cause brain injuries that accumulate unnoticed. One soldier says that is why he snapped and killed three people.`\
+https://nytimes.com/2026/01/12/us/blast-brain-injury-green-beret-shooting-duke-webb.html
+
 **Six Lakers trade ideas — and why they probably wouldn't work**\
 `The Lakers could use some help. But their options and assets appear limited before the Feb. 5 deadline, making deals difficult to imagine.`\
 https://nytimes.com/athletic/6962507/2026/01/12/lakers-trade-deadline-proposals-hachimura-knecht/
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010639131/george-saunders-says-ditching
 **Europe and China Take Step to Resolve Dispute on Electric Vehicles**\
 `The European Commission allowed carmakers to volunteer limits on their imports from China instead of paying tariffs, an arrangement that could help Volkswagen.`\
 https://nytimes.com/2026/01/12/business/europe-china-electric-vehicles-tariffs-volkswagen.html
-
-**Inside Newcastle Q&A: Chris Waugh answers your questions**\
-`Most Mondays throughout the season, The Athletic hosts an hour-long ‘Inside Newcastle’ live Q&A with subscribers. Send us your questions now`\
-https://nytimes.com/athletic/6963031/2026/01/12/inside-newcastle-qa-chris-waugh-answers-questions/
 
