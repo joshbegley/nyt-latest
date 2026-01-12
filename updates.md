@@ -1,3 +1,7 @@
+**University of Michigan Picks Syracuse Leader as Its Next President**\
+`Kent D. Syverud will become the fifth person to run Michigan since the start of 2022, inheriting a school that has also been marked by debates about diversity.`\
+https://nytimes.com/2026/01/12/us/university-of-michigan-president-kent-syverud.html
+
 **Bulls-Heat game postponed due to condensation on the court rescheduled**\
 `The postponement marked the first time an NBA regular-season game had been rescheduled due to slippery conditions since 2017.`\
 https://nytimes.com/athletic/6963819/2026/01/12/bulls-heat-condensation-court-rescheduled/
