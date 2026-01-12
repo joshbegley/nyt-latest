@@ -1,3 +1,11 @@
+**8 Stars Nikki Glaser Roasted in Her Golden Globes Monologue**\
+`The comedian, who hosted the awards ceremony for the second year in a row on Sunday, began by turning her wit mostly toward the men in the room.`\
+https://nytimes.com/2026/01/12/arts/nikki-glaser-golden-globe-jokes.html
+
+**Blue Jackets Monday Gathering: GM Don Waddell calls this season his 'most frustrating'**\
+`"It's on all of us. We should all be evaluated right now," Waddell said regarding his last-place team.`\
+https://nytimes.com/athletic/6960858/2026/01/12/blue-jackets-gm-waddell-season/
+
 **Archaeologists Find Large Roman Villa Under Deer Park in Wales**\
 `The unexpected discovery of a well-preserved and fortified villa in Margam Park in South Wales sheds new light on the Roman occupation there, an expert said.`\
 https://nytimes.com/2026/01/12/world/europe/archaeologists-roman-villa-park-wales.html

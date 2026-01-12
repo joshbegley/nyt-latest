@@ -1,3 +1,7 @@
+**Cancelo completes Barca medical ahead of signing**\
+`Cancelo spent the 2023-24 season on loan at Barca from Manchester City, recording four goals and five assists in all competitions.`\
+https://nytimes.com/athletic/6944882/2026/01/12/barcelona-joao-cancelo-transfer/
+
 **8 Stars Nikki Glaser Roasted in Her Golden Globes Monologue**\
 `The comedian, who hosted the awards ceremony for the second year in a row on Sunday, began by turning her wit mostly toward the men in the room.`\
 https://nytimes.com/2026/01/12/arts/nikki-glaser-golden-globe-jokes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/12/business/economy/trump-taiwan-deal.html
 **‘Tehran’ Review: Israel vs. Iran, Retold as a Spy Thriller**\
 `The third season of the Israeli series, rescheduled after last summer’s attacks on Iranian nuclear facilities, finally premieres on Apple TV.`\
 https://nytimes.com/2026/01/12/arts/television/tehran-review.html
-
-**USMNT's Weah 'disappointed' by high cost of World Cup tickets**\
-`FIFA's pricing for the competition has been largely criticized by soccer fans, particularly in Europe.`\
-https://nytimes.com/athletic/6963663/2026/01/12/world-cup-tickets-usmnt-tim-weah/
 

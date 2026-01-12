@@ -1,3 +1,11 @@
+**8 Stars Nikki Glaser Roasted in Her Golden Globes Monologue**\
+`The comedian, who hosted the awards ceremony for the second year in a row on Sunday, began by turning her wit mostly toward the men in the room.`\
+https://nytimes.com/2026/01/12/arts/nikki-glaser-golden-globe-jokes.html
+
+**Blue Jackets Monday Gathering: GM Don Waddell calls this season his 'most frustrating'**\
+`"It's on all of us. We should all be evaluated right now," Waddell said regarding his last-place team.`\
+https://nytimes.com/athletic/6960858/2026/01/12/blue-jackets-gm-waddell-season/
+
 **Archaeologists Find Large Roman Villa Under Deer Park in Wales**\
 `The unexpected discovery of a well-preserved and fortified villa in Margam Park in South Wales sheds new light on the Roman occupation there, an expert said.`\
 https://nytimes.com/2026/01/12/world/europe/archaeologists-roman-villa-park-wales.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/12/arts/television/tehran-review.html
 **USMNT's Weah 'disappointed' by high cost of World Cup tickets**\
 `FIFA's pricing for the competition has been largely criticized by soccer fans, particularly in Europe.`\
 https://nytimes.com/athletic/6963663/2026/01/12/world-cup-tickets-usmnt-tim-weah/
-
-**New York City Nurses Go on Strike**\
-`Nearly 15,000 nurses at major New York City hospitals went on strike on Monday, demanding more robust staffing levels, higher pay and better safety precautions.`\
-https://nytimes.com/video/nyregion/100000010639219/nyc-nurse-strike.html
-
-**What Our Photographer Saw in Minneapolis**\
-`David Guttenfelder, a visual journalist for The New York Times, was at the scene in Minneapolis immediately after an ICE agent killed a 37-year-old woman in her vehicle. He walks us through the photos and videos he took over the next few days as outrage and protests mounted in the city.`\
-https://nytimes.com/video/us/100000010633079/what-our-photographer-saw-in-minneapolis.html
 
