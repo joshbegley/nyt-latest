@@ -1,3 +1,7 @@
+**Winners of the 83rd Golden Globe Awards**\
+`The 83rd Golden Globes award ceremony recognized Hollywood’s best in film and television, as well as a new category this year, best podcast.`\
+https://nytimes.com/video/arts/television/100000010638592/golden-globes-2026-watch.html
+
 **A Push to Expand the Rights of Immigrants in Defiance of Trump**\
 `An effort by New Jersey Democrats is seen as a provocative statement of principle in a state with the country’s second largest percentage of immigrants, after California.`\
 https://nytimes.com/2026/01/12/nyregion/immigration-policy-new-jersey.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6962652/2026/01/12/devin-booker-suns-hockey-assists
 **The New York Times in Print for Monday, Jan. 12, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/12/todays-new-york-times
-
-**This Is How the Cartels Win**\
-`Turning Latin America into a theater of war will not weaken transnational crime; it will entrench it.`\
-https://nytimes.com/2026/01/12/opinion/trump-venezuela-organized-crime-cartels.html
 
