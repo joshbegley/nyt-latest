@@ -1,3 +1,11 @@
+**John Harbaugh speaks with Falcons' Matt Ryan, no in-person interviews yet**\
+`The Falcons conducted a preliminary interview with Harbaugh on Monday. He has yet to meet in person with any team about its coaching job.`\
+https://nytimes.com/athletic/6964558/2026/01/12/john-harbaugh-falcons-matt-ryan-head-coaching-job/
+
+**Former Congressional Employee Accused of Stealing 240 Phones**\
+`A Maryland man used his government job to order new cellphones worth over $150,000 and then sell them to a pawnshop, federal prosecutors said.`\
+https://nytimes.com/2026/01/12/us/congressional-employee-stolen-phones.html
+
 **Top Fed Official Conveys Little Urgency for Immediate Rate Cuts**\
 `The Federal Reserve is likely to hold interest rates steady when it meets at the end of the month, keeping tensions high with President Trump.`\
 https://nytimes.com/2026/01/12/business/federal-reserve-john-williams-rates.html
