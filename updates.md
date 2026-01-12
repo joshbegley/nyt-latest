@@ -1,3 +1,15 @@
+**How to watch Devils vs. Wild: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6964201/2026/01/12/devils-vs-wild-stream-how-to-watch-jan-12/
+
+**How to watch Stars vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6964199/2026/01/12/stars-vs-kings-stream-how-to-watch-jan-12/
+
+**Notre Dame ends transfer portal silence, adding four commitments in a flurry**\
+`After seemingly sitting out the 15-day transfer window's opening week with no announced transfers, the Irish finally made moves Monday.`\
+https://nytimes.com/athletic/6963934/2026/01/12/notre-dame-transfer-portal-commitments/
+
 **How to watch Alabama vs. Missouri women's basketball: Time, TV, streaming**\
 `Find out how to watch the Alabama Crimson Tide play the Missouri Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6964168/2026/01/12/alabama-vs-missouri-stream-how-to-watch-jan-12/
