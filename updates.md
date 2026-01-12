@@ -1,3 +1,19 @@
+**Kelly Sues Pentagon Over Threats of Punishment From Hegseth**\
+`Senator Mark Kelly, Democrat of Arizona, asked a federal judge to block the Trump administration from disciplining him for a video warning about illegal military orders.`\
+https://nytimes.com/2026/01/12/us/politics/mark-kelly-pentagon-hegseth-suit.html
+
+**San Francisco Giants trade candidate: Nico Hoerner**\
+`Hoerner seemed untouchable before the Cubs signed Alex Bregman. He may still be hard to pry away from Chicago but it isn't impossible.`\
+https://nytimes.com/athletic/6964247/2026/01/12/sf-giants-nico-hoerner-trade-possibilities/
+
+**The Global Cost of Futzing With the Fed**\
+`If President Trump succeeds in gaining control of the Federal Reserve, it could have ripple effects beyond U.S. borders.`\
+https://nytimes.com/2026/01/12/world/federal-reserve-global-costs-iran-gaza.html
+
+**Dan Bongino, No Longer at the F.B.I., Will Return to Podcasting**\
+`The former F.B.I. deputy director, who had hosted a right-wing, pro-Trump podcast, will restart the show after a rocky tenure at the law-enforcement agency.`\
+https://nytimes.com/2026/01/12/arts/dan-bongino-fbi-podcast.html
+
 **Illinois Doctor Charged With Murder in Shooting of Ex-Wife and Her Husband**\
 `Monique and Spencer Tepe were fatally shot in their home in Columbus, Ohio, last month. Their two young children were found in the home, unharmed, the police said.`\
 https://nytimes.com/2026/01/12/us/tepe-couple-ohio-shooting-ex-husband-charged.html

@@ -1,3 +1,19 @@
+**Kelly Sues Pentagon Over Threats of Punishment From Hegseth**\
+`Senator Mark Kelly, Democrat of Arizona, asked a federal judge to block the Trump administration from disciplining him for a video warning about illegal military orders.`\
+https://nytimes.com/2026/01/12/us/politics/mark-kelly-pentagon-hegseth-suit.html
+
+**San Francisco Giants trade candidate: Nico Hoerner**\
+`Hoerner seemed untouchable before the Cubs signed Alex Bregman. He may still be hard to pry away from Chicago but it isn't impossible.`\
+https://nytimes.com/athletic/6964247/2026/01/12/sf-giants-nico-hoerner-trade-possibilities/
+
+**The Global Cost of Futzing With the Fed**\
+`If President Trump succeeds in gaining control of the Federal Reserve, it could have ripple effects beyond U.S. borders.`\
+https://nytimes.com/2026/01/12/world/federal-reserve-global-costs-iran-gaza.html
+
+**Dan Bongino, No Longer at the F.B.I., Will Return to Podcasting**\
+`The former F.B.I. deputy director, who had hosted a right-wing, pro-Trump podcast, will restart the show after a rocky tenure at the law-enforcement agency.`\
+https://nytimes.com/2026/01/12/arts/dan-bongino-fbi-podcast.html
+
 **Illinois Doctor Charged With Murder in Shooting of Ex-Wife and Her Husband**\
 `Monique and Spencer Tepe were fatally shot in their home in Columbus, Ohio, last month. Their two young children were found in the home, unharmed, the police said.`\
 https://nytimes.com/2026/01/12/us/tepe-couple-ohio-shooting-ex-husband-charged.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/opinion/100000010633572/we-need-to-stop-asking-this-qu
 **Packers' Micah Parsons expects early-season return from torn ACL: 'Going to be crazy'**\
 `Parsons, Tucker Kraft, Zach Tom and Devonte Wyatt all spoke about their significant injuries during locker cleanout day on Monday.`\
 https://nytimes.com/athletic/6964117/2026/01/12/micah-parsons-packers-return-matt-lafleur/
-
-**First Look at Samsung’s Trifold Phone**\
-`If you told us that, in the year 2026, there would be a giant phone that folds like a brochure, we’re not sure we’d believe you.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010639460/first-look-at-samsungs-trifold-phone.html
-
-**Notre Dame's Marcus Freeman will not face charges for incident at wrestling meet**\
-`Prosecutor's office determined "that no criminal battery occurred" in incident at son's wrestling meet.`\
-https://nytimes.com/athletic/6964063/2026/01/12/notre-dame-marcus-freeman-wrestling/
-
-**How NASCAR ended up back at the Chase playoff format: 'The best of both worlds'**\
-`After a year-long process full of debate, options and simulations, NASCAR ultimately settled on a playoff format in the middle ground.`\
-https://nytimes.com/athletic/6962330/2026/01/12/nascar-chase-playoff-format-how-it-happened/
-
-**49ers' no-name defense 'scratching and clawing' to keep season alive**\
-`Fueled by midseason additions and unproven backups, the 49ers' defense shut the door on the defending Super Bowl champions.`\
-https://nytimes.com/athletic/6964078/2026/01/12/49ers-defense-injuries-eric-kendricks-garret-wallow/
 
