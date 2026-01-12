@@ -1,3 +1,11 @@
+**This Is How the Cartels Win**\
+`Turning Latin America into a theater of war will not weaken transnational crime; it will entrench it.`\
+https://nytimes.com/2026/01/12/opinion/trump-venezuela-organized-crime-cartels.html
+
+**American Supremacy Is Over, and Something New Is Coming**\
+`America’s days of unipolar supremacy are past.`\
+https://nytimes.com/2026/01/12/opinion/trump-venezuela-world-mercosur.html
+
 **Fed Chair Responds to Inquiry on Building Renovations**\
 `Federal prosecutors opened an investigation into whether Jerome H. Powell, the Federal Reserve chair, lied to Congress about the scope of renovations of the central bank’s buildings. He called the probe “unprecedented” in a rare video message.`\
 https://nytimes.com/video/us/politics/100000010638605/powell-investigation-trump.html
