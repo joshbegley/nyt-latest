@@ -1,3 +1,7 @@
+**Xabi Alonso's flexibility wasn't enough to beat Barcelona, but it's saved him at Real Madrid**\
+`Barcelona's 3-2 victory sealed the first trophy of Spain's season, but Alonso's team were competitive and ran them close`\
+https://nytimes.com/athletic/6962818/2026/01/12/real-madrid-barcelona-clasico-supercopa-alonso-job/
+
 **How Devin Booker fuels surging Phoenix Suns with unselfishness and 'hockey assists'**\
 `There are many themes to this surprising Suns season. Booker has been at the center, but not because of his scoring. `\
 https://nytimes.com/athletic/6962652/2026/01/12/devin-booker-suns-hockey-assists/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/11/arts/nikki-glaser-rob-reiner-golden-globes.html
 **The Ashes 2025-26: From Snicko to the Noosa tourism board, who were the winners and losers?**\
 `Who emerged triumphant from the Ashes series - other than Australia, of course - and who had an absolute shocker? Aside from England`\
 https://nytimes.com/athletic/6953732/2026/01/12/ashes-winners-losers-snicko-noosa-test-cricket/
-
-**Tottenham's defeat was reminder of how far they have fallen while Villa - and others - rose**\
-`The difference in the trajectories of Spurs and Villa over the past seven years was laid bare on Saturday.`\
-https://nytimes.com/athletic/6960459/2026/01/12/tottenham-frank-fa-cup/
 
