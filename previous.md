@@ -1,3 +1,11 @@
+**Drake Maye, tough defense lead Patriots to 16-3 wild-card win over Chargers**\
+`Maye came up big, going 17-for-29 passing for 268 yards and a touchdown, as the Patriots won their first playoff game since February 2019.`\
+https://nytimes.com/athletic/6962481/2026/01/11/chargers-patriots-score-result-takeaways-nfl-wild-card-playoffs/
+
+**‘One Battle After Another’ extends streak with Golden Globe for best comedy.**\
+`By Esther Zuckerman`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/one-battle-after-another-extends-streak-with-golden-globe-for-best-comedy
+
 **Wagner Moura wins best actor, motion picture drama.**\
 `By Emmanuel Morgan`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/wagner-moura-wins-best-actor-motion-picture-drama
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/rhea-seehorn-w
 **U-Haul Truck Drives Into Crowd of Iran Protesters in Los Angeles**\
 `The city is home to a large Iranian American community, and protests against the Iranian government drew thousands on Sunday.`\
 https://nytimes.com/2026/01/11/us/truck-iran-protesters-los-angeles.html
-
-**Josh Allen's tush pushers carry Bills to grueling win: 'Closest-to-God experience'**\
-`O'Cyrus Torrence picked up his quarterback and took off.`\
-https://nytimes.com/athletic/6962283/2026/01/11/josh-allen-bills-tush-push-playoff-victory/
-
-**Mayor Mamdani Is Moving On Up to Gracie Mansion**\
-`Mayor Zohran Mamdani and his wife, Rama Duwaji, have begun moving their belongings from their Queens apartment to the official mayor’s residence in Manhattan.`\
-https://nytimes.com/2026/01/11/nyregion/mamdani-gracie-mansion-nyc.html
 

@@ -1,3 +1,7 @@
+**‘Hamnet’ wins Golden Globe for best drama, improving its Oscar odds.**\
+`By Esther Zuckerman`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/hamnet-wins-golden-globe-for-best-drama-improving-its-oscar-odds
+
 **Drake Maye, tough defense lead Patriots to 16-3 wild-card win over Chargers**\
 `Maye came up big, going 17-for-29 passing for 268 yards and a touchdown, as the Patriots won their first playoff game since February 2019.`\
 https://nytimes.com/athletic/6962481/2026/01/11/chargers-patriots-score-result-takeaways-nfl-wild-card-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/the-pitt-wins-
 **Rhea Seehorn wins best actress in a TV drama for ‘Pluribus.’**\
 `By Austin Considine`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/rhea-seehorn-wins-best-actress-in-a-tv-drama-for-pluribus
-
-**U-Haul Truck Drives Into Crowd of Iran Protesters in Los Angeles**\
-`The city is home to a large Iranian American community, and protests against the Iranian government drew thousands on Sunday.`\
-https://nytimes.com/2026/01/11/us/truck-iran-protesters-los-angeles.html
 

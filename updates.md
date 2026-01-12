@@ -1,3 +1,11 @@
+**Drake Maye, tough defense lead Patriots to 16-3 wild-card win over Chargers**\
+`Maye came up big, going 17-for-29 passing for 268 yards and a touchdown, as the Patriots won their first playoff game since February 2019.`\
+https://nytimes.com/athletic/6962481/2026/01/11/chargers-patriots-score-result-takeaways-nfl-wild-card-playoffs/
+
+**‘One Battle After Another’ extends streak with Golden Globe for best comedy.**\
+`By Esther Zuckerman`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/one-battle-after-another-extends-streak-with-golden-globe-for-best-comedy
+
 **Wagner Moura wins best actor, motion picture drama.**\
 `By Emmanuel Morgan`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/wagner-moura-wins-best-actor-motion-picture-drama
