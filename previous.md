@@ -1,3 +1,7 @@
+**Six Lakers trade ideas — and why they probably wouldn't work**\
+`The Lakers could use some help. But their options and assets appear limited before the Feb. 5 deadline, making deals difficult to imagine.`\
+https://nytimes.com/athletic/6962507/2026/01/12/lakers-trade-deadline-proposals-hachimura-knecht/
+
 **Trump Administration Live Updates: Markets Waver After Prosecutors Open Investigation Into Fed Chair**\
 ``\
 https://nytimes.com/live/2026/01/12/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/12/business/europe-china-electric-vehicles-tariffs-v
 **Inside Newcastle Q&A: Chris Waugh answers your questions**\
 `Most Mondays throughout the season, The Athletic hosts an hour-long ‘Inside Newcastle’ live Q&A with subscribers. Send us your questions now`\
 https://nytimes.com/athletic/6963031/2026/01/12/inside-newcastle-qa-chris-waugh-answers-questions/
-
-**How Julius Randle stunningly became a Wemby stopper late in Timberwolves' win**\
-`Randle played perhaps the best defense of his Minnesota career, and Anthony Edwards continued his incredible clutch play.`\
-https://nytimes.com/athletic/6962207/2026/01/12/julius-randle-timberwolves-victor-wembanyama/
 

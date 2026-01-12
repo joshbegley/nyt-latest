@@ -1,3 +1,7 @@
+**Six Lakers trade ideas — and why they probably wouldn't work**\
+`The Lakers could use some help. But their options and assets appear limited before the Feb. 5 deadline, making deals difficult to imagine.`\
+https://nytimes.com/athletic/6962507/2026/01/12/lakers-trade-deadline-proposals-hachimura-knecht/
+
 **Trump Administration Live Updates: Markets Waver After Prosecutors Open Investigation Into Fed Chair**\
 ``\
 https://nytimes.com/live/2026/01/12/us/trump-news
