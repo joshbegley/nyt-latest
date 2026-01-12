@@ -1,3 +1,11 @@
+**With Democrats at a Crossroads, Elizabeth Warren Urges a Left Turn**\
+`The Massachusetts senator signaled alarm about her party’s movement toward the center, warning in a speech that Democrats should not cozy up to the wealthy and the powerful.`\
+https://nytimes.com/2026/01/12/us/politics/elizabeth-warren-democrats.html
+
+**World Court Hears Groundbreaking Genocide Case Against Myanmar**\
+`The case was brought to the World Court by a country not directly affected by the alleged genocide of the Rohingya, a precedent for similar claims against other countries, including Israel.`\
+https://nytimes.com/2026/01/12/world/asia/myanmar-icj-rohingya.html
+
 **Justice Department Charges the Man Shot by Agents in Portland, Ore.**\
 `Last week’s shooting of two Venezuela immigrants put the city on edge. Federal officials said the man who was shot had repeatedly backed into a Border Patrol car.`\
 https://nytimes.com/2026/01/12/us/politics/portland-border-patrol-immigration-shooting.html
