@@ -1,3 +1,7 @@
+**‘The Studio’ wins best TV comedy.**\
+`By Michaela Towfighi`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/the-studio-wins-best-tv-comedy
+
 **‘Adolescence’ wins best limited series.**\
 `By Michaela Towfighi`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/adolescence-wins-best-limited-series
@@ -33,8 +37,4 @@ https://nytimes.com/video/the-athletic/100000010638638/49ers-end-eagles-title-de
 **Nikki Glaser Put On a Comedy Clinic in Her Golden Globes Monologue**\
 `For her second consecutive year as host, Glaser delivered a killer set of rapid-fire, very short jokes.`\
 https://nytimes.com/2026/01/11/arts/nikki-glaser-monologue-golden-globes-2026.html
-
-**Dan Muse's curious lineup decisions backfire as Penguins get blanked in Boston**\
-`The Penguins struggled to find chemistry — and offense — while going short-handed six times against the Bruins.`\
-https://nytimes.com/athletic/6953058/2026/01/11/penguins-lineup-skinner-hayes-bruins/
 
