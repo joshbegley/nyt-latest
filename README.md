@@ -1,3 +1,15 @@
+**Real Madrid part ways with Xabi Alonso**\
+`Madrid announced the news in a club statement on Monday.`\
+https://nytimes.com/athletic/6872754/2026/01/12/xabi-alonso-real-madrid-exit-next/
+
+**Review: Bill T. Jones Goes Back to Collage**\
+`The company revived and revised a work that juxtaposes formal movement with a sound score that incorporates recordings of the 1979 White Night riots in San Francisco.`\
+https://nytimes.com/2026/01/12/arts/dance/review-bill-t-jones-collage-revisted.html
+
+**Fashion Highlights From the 2026 Golden Globes**\
+`Vanessa Friedman, our fashion director and chief fashion critic, recaps what she saw on the red carpet for the 2026 Golden Globes.`\
+https://nytimes.com/video/style/100000010624726/fashion-red-carpet-2026-golden-globes.html
+
 **Trump Administration Nears Deal With Taiwan**\
 `The trade deal would cut tariffs and include a commitment from Taiwanese Semiconductor Manufacturing Corporation, the island’s chip giant, to build more manufacturing plants in the United States.`\
 https://nytimes.com/2026/01/12/business/economy/trump-taiwan-deal.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/12/climate/trump-epa-air-pollution.html
 **LeBron James 23rd season jersey patches to go into Topps trading cards**\
 `Topps has now introduced several jersey patches across a variety of leagues and sports that have driven big interest among collectors`\
 https://nytimes.com/athletic/6963523/2026/01/12/lebron-james-jersey-patch-topps-cards/
-
-**Silicone Isn’t Always More Sustainable**\
-`Silicone kitchen gear isn’t as sustainable as many people think.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010639590/silicone-isnt-always-more-sustainable.html
-
-**There were supposed to be 4 in the bobsled. U.S. driver survived it solo**\
-`The American found himself alone inside a four-man sled during a World Cup race.`\
-https://nytimes.com/athletic/6963368/2026/01/12/bobsled-kris-horn-world-cup/
-
-**How to watch Panthers vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6963642/2026/01/12/panthers-vs-sabres-stream-how-to-watch-jan-12/
 

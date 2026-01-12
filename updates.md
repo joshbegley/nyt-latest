@@ -1,3 +1,15 @@
+**Trump Administration Nears Deal With Taiwan**\
+`The trade deal would cut tariffs and include a commitment from Taiwanese Semiconductor Manufacturing Corporation, the island’s chip giant, to build more manufacturing plants in the United States.`\
+https://nytimes.com/2026/01/12/business/economy/trump-taiwan-deal.html
+
+**‘Tehran’ Review: Israel vs. Iran, Retold as a Spy Thriller**\
+`The third season of the Israeli series, rescheduled after last summer’s attacks on Iranian nuclear facilities, finally premieres on Apple TV.`\
+https://nytimes.com/2026/01/12/arts/television/tehran-review.html
+
+**USMNT's Weah 'disappointed' by high cost of World Cup tickets**\
+`FIFA's pricing for the competition has been largely criticized by soccer fans, particularly in Europe.`\
+https://nytimes.com/athletic/6963663/2026/01/12/world-cup-tickets-usmnt-tim-weah/
+
 **New York City Nurses Go on Strike**\
 `Nearly 15,000 nurses at major New York City hospitals went on strike on Monday, demanding more robust staffing levels, higher pay and better safety precautions.`\
 https://nytimes.com/video/nyregion/100000010639219/nyc-nurse-strike.html

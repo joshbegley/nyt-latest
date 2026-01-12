@@ -1,3 +1,15 @@
+**Trump Administration Nears Deal With Taiwan**\
+`The trade deal would cut tariffs and include a commitment from Taiwanese Semiconductor Manufacturing Corporation, the island’s chip giant, to build more manufacturing plants in the United States.`\
+https://nytimes.com/2026/01/12/business/economy/trump-taiwan-deal.html
+
+**‘Tehran’ Review: Israel vs. Iran, Retold as a Spy Thriller**\
+`The third season of the Israeli series, rescheduled after last summer’s attacks on Iranian nuclear facilities, finally premieres on Apple TV.`\
+https://nytimes.com/2026/01/12/arts/television/tehran-review.html
+
+**USMNT's Weah 'disappointed' by high cost of World Cup tickets**\
+`FIFA's pricing for the competition has been largely criticized by soccer fans, particularly in Europe.`\
+https://nytimes.com/athletic/6963663/2026/01/12/world-cup-tickets-usmnt-tim-weah/
+
 **New York City Nurses Go on Strike**\
 `Nearly 15,000 nurses at major New York City hospitals went on strike on Monday, demanding more robust staffing levels, higher pay and better safety precautions.`\
 https://nytimes.com/video/nyregion/100000010639219/nyc-nurse-strike.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6963368/2026/01/12/bobsled-kris-horn-world-cup/
 **How to watch Panthers vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the Florida Panthers play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6963642/2026/01/12/panthers-vs-sabres-stream-how-to-watch-jan-12/
-
-**Scheduling ‘perfect storm’ compelled Rockets to drive 85 miles to Kings game**\
-`The Rockets played the Sacramento Kings Sunday night but had to bus 85 miles to Golden 1 Center from San Francisco that afternoon. Why?`\
-https://nytimes.com/athletic/6963511/2026/01/12/nba-rockets-kings-travel-hotel-issues-california/
-
-**Quarterback Sam Leavitt commits to LSU in recruiting win for Lane Kiffin**\
-`Leavitt gives LSU's new coach a dynamic keystone to build around in his first season in Baton Rouge.`\
-https://nytimes.com/athletic/6956545/2026/01/12/sam-leavitt-commits-lsu-lane-kiffin/
-
-**How to watch Jazz vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6963631/2026/01/12/jazz-vs-cavaliers-stream-how-to-watch-jan-12/
 
