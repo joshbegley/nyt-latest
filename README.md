@@ -1,3 +1,11 @@
+**With Democrats at a Crossroads, Elizabeth Warren Urges a Left Turn**\
+`The Massachusetts senator signaled alarm about her party’s movement toward the center, warning in a speech that Democrats should not cozy up to the wealthy and the powerful.`\
+https://nytimes.com/2026/01/12/us/politics/elizabeth-warren-democrats.html
+
+**World Court Hears Groundbreaking Genocide Case Against Myanmar**\
+`The case was brought to the World Court by a country not directly affected by the alleged genocide of the Rohingya, a precedent for similar claims against other countries, including Israel.`\
+https://nytimes.com/2026/01/12/world/asia/myanmar-icj-rohingya.html
+
 **Justice Department Charges the Man Shot by Agents in Portland, Ore.**\
 `Last week’s shooting of two Venezuela immigrants put the city on edge. Federal officials said the man who was shot had repeatedly backed into a Border Patrol car.`\
 https://nytimes.com/2026/01/12/us/politics/portland-border-patrol-immigration-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6963914/2026/01/12/ap-top-25-mens-college-basketbal
 **Tracking Tropical Cyclone Dudzai**\
 `See the likely path and wind arrival times for Dudzai`\
 https://nytimes.com/interactive/2026/01/12/weather/dudzai-map-path-tracker.html
-
-**Rangers send message to Lafrenière, who admits he 'hasn’t been good enough'**\
-`"We need more out of some guys. I think Laf is a guy that can bring more to the table for us," Rangers coach Mike Sullivan said.`\
-https://nytimes.com/athletic/6963745/2026/01/12/ny-rangers-alexis-lafreniere-criticism-nhl/
-
-**Federal Prosecutor Is Fired Amid Further Turmoil in Comey Case**\
-`Robert K. McBride had been serving as the top deputy to Lindsey Halligan, the U.S. attorney for the Eastern District of Virginia.`\
-https://nytimes.com/2026/01/12/us/politics/mcbride-halligan-us-attorney-trump.html
 

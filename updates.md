@@ -1,3 +1,7 @@
+**Justice Department Charges the Man Shot by Agents in Portland, Ore.**\
+`Last week’s shooting of two Venezuela immigrants put the city on edge. Federal officials said the man who was shot had repeatedly backed into a Border Patrol car.`\
+https://nytimes.com/2026/01/12/us/politics/portland-border-patrol-immigration-shooting.html
+
 **Who Is Watching ‘Heated Rivalry’?**\
 `A Golden Globes appearance by the stars of “Heated Rivalry,” HBO Max’s show about gay hockey players, reflected how it has built a big-tent fan base.`\
 https://nytimes.com/2026/01/12/style/heated-rivalry-golden-globes-hudson-williams-connor-storrie.html
