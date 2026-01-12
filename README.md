@@ -1,3 +1,11 @@
+**Knicks got their (Josh) Hart back in Portland. It was as if he never left**\
+`After missing eight games, Hart returned in Portland. He brought life back to New York.`\
+https://nytimes.com/athletic/6962434/2026/01/11/knicks-trail-blazers-josh-hart/
+
+**NFL playoff schedule: Divisional round to feature 3 NFC West teams**\
+`The Rams and 49ers both advanced to join the Seahawks in the divisional round as the NFL's best division is proving itself in the playoffs.`\
+https://nytimes.com/athletic/6962268/2026/01/11/2025-nfl-divisional-round-schedule/
+
 **‘Hamnet’ wins Golden Globe for best drama, improving its Oscar odds.**\
 `By Esther Zuckerman`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/hamnet-wins-golden-globe-for-best-drama-improving-its-oscar-odds
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/the-studio-win
 **‘Adolescence’ wins best limited series.**\
 `By Michaela Towfighi`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/adolescence-wins-best-limited-series
-
-**‘The Pitt’ wins best TV drama.**\
-`By Michaela Towfighi`\
-https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/the-pitt-wins-best-tv-drama
-
-**Rhea Seehorn wins best actress in a TV drama for ‘Pluribus.’**\
-`By Austin Considine`\
-https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/rhea-seehorn-wins-best-actress-in-a-tv-drama-for-pluribus
 
