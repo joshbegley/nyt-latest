@@ -1,3 +1,11 @@
+**Nearly 15,000 Nurses Go on Strike at Major New York City Hospitals**\
+`Workers are demanding more robust staffing levels and higher pay. The strike comes three years after a smaller job action won significant gains.`\
+https://nytimes.com/2026/01/12/nyregion/nurses-strike-hospitals-nyc.html
+
+**The Pulse: We're already looking ahead to next weekend**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6962549/2026/01/12/nfl-wild-card-49ers-patriots-bills-the-pulse/
+
 **Wait, Indiana vs. Miami? What you need to know about an unlikely CFP championship game**\
 `What you need to know about Indiana vs. Miami, from program histories to notable names to the coaches who got them to the championship game.`\
 https://nytimes.com/athletic/6959749/2026/01/12/indiana-miami-cfp-national-championship-game-history/
