@@ -1,3 +1,7 @@
+**‘Adolescence’ wins best limited series.**\
+`By Michaela Towfighi`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/adolescence-wins-best-limited-series
+
 **‘The Pitt’ wins best TV drama.**\
 `By Michaela Towfighi`\
 https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/the-pitt-wins-best-tv-drama
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/11/arts/nikki-glaser-monologue-golden-globes-2026.ht
 **Dan Muse's curious lineup decisions backfire as Penguins get blanked in Boston**\
 `The Penguins struggled to find chemistry — and offense — while going short-handed six times against the Bruins.`\
 https://nytimes.com/athletic/6953058/2026/01/11/penguins-lineup-skinner-hayes-bruins/
-
-**Avalanche in Washington State Kills 2**\
-`The men were among a group of four skiing in the backcountry near Longs Pass, east of Seattle in the Cascade Mountains. The area received heavy snowfall last week.`\
-https://nytimes.com/2026/01/11/us/washington-avalanche-kills-2-men.html
 
