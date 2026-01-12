@@ -1,3 +1,11 @@
+**Timothée Chalamet wins best actor, motion picture musical or comedy.**\
+`By Emmanuel Morgan`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/timothee-chalamet-wins-best-actor-motion-picture-musical-or-comedy
+
+**Rose Byrne wins best actress, motion picture musical or comedy.**\
+`Byrne won for “If I Had Legs I’d`\
+https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/rose-byrne-wins-best-actress-motion-picture-musical-or-comedy
+
 **Bills CB Tre'Davious White basks in full-circle moment leading defense to playoff win**\
 `Two major injuries derailed White's career, but he found his way back to being an impact player for Buffalo.`\
 https://nytimes.com/athletic/6962245/2026/01/11/tredavious-white-bills-jaguars-defense/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/01/11/arts/golden-globes-2026-watch/with-the-golde
 **Allegiant to Buy Sun Country Airlines in $1.5 Billion Deal**\
 `The combination of the two small, budget airlines comes as low-cost carriers have struggled with high costs and competition.`\
 https://nytimes.com/2026/01/11/business/allegiant-sun-country-airlines.html
-
-**Golden Globes Winners: Updating List**\
-`The winning films, TV shows, actors and production teams at the 2026 Golden Globe Awards.`\
-https://nytimes.com/2026/01/11/movies/golden-globes-winners-list.html
-
-**Demonstrators Around the World Show Solidarity for Iran Protests**\
-`For several nights in a row, antigovernment protests have rocked Iran, as a government crackdown intensifies. This weekend, protesters around the world showed their solidarity for the people of Iran and demanded world leaders take action.`\
-https://nytimes.com/video/world/middleeast/100000010638012/world-react-protests-iran-anti-government.html
 
