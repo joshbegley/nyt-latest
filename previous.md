@@ -1,40 +1,40 @@
-**How to watch Devils vs. Wild: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6964201/2026/01/12/devils-vs-wild-stream-how-to-watch-jan-12/
+**49ers' no-name defense 'scratching and clawing' to keep season alive**\
+`Fueled by midseason additions and unproven backups, the 49ers' defense shut the door on the defending Super Bowl champions.`\
+https://nytimes.com/athletic/6964078/2026/01/12/49ers-defense-injuries-eric-kendricks-garret-wallow/
 
-**How to watch Stars vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6964199/2026/01/12/stars-vs-kings-stream-how-to-watch-jan-12/
+**How NASCAR ended up back at the Chase playoff format: 'The best of both worlds'**\
+`After a year-long process full of debate, options and simulations, NASCAR ultimately settled on a playoff format in the middle ground.`\
+https://nytimes.com/athletic/6962330/2026/01/12/nascar-chase-playoff-format-how-it-happened/
 
-**Notre Dame ends transfer portal silence, adding four commitments in a flurry**\
-`After seemingly sitting out the 15-day transfer window's opening week with no announced transfers, the Irish finally made moves Monday.`\
-https://nytimes.com/athletic/6963934/2026/01/12/notre-dame-transfer-portal-commitments/
+**What to Know About the Criminal Investigation of the Fed Chair**\
+`The Justice Department’s probe into whether Jerome H. Powell, the chair of the Federal Reserve, lied about renovations to the central bank’s headquarters has raised alarms.`\
+https://nytimes.com/2026/01/12/us/politics/jerome-powell-investigation-fed-renovations.html
 
-**How to watch Alabama vs. Missouri women's basketball: Time, TV, streaming**\
-`Find out how to watch the Alabama Crimson Tide play the Missouri Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6964168/2026/01/12/alabama-vs-missouri-stream-how-to-watch-jan-12/
+**NASCAR changes playoff format back to 'Chase'-style system after rising criticism**\
+`After more than a year of debate, NASCAR has settled on its new playoff format — a return (mostly) to the old that will be widely welcomed.`\
+https://nytimes.com/athletic/6959848/2026/01/12/nascar-playoff-format-chase-elimination-change-race/
 
-**Apple Teams Up With Google for A.I. in Its Products**\
-`Apple was facing increasing questions about its plans for artificial intelligence as other big tech companies invested tens of billions in the technology.`\
-https://nytimes.com/2026/01/12/technology/apple-google-ai-partnership.html
+**Meta Plans to Cut Around 10% of Employees in Reality Labs Business**\
+`The layoffs are set to be announced this week and would affect Meta’s work on the metaverse, as the company spends heavily on building artificial intelligence.`\
+https://nytimes.com/2026/01/12/technology/meta-layoffs-reality-labs.html
 
-**With Democrats at a Crossroads, Elizabeth Warren Urges a Left Turn**\
-`The Massachusetts senator signaled alarm about her party’s movement toward the center, warning in a speech that Democrats should not cozy up to the wealthy and the powerful.`\
-https://nytimes.com/2026/01/12/us/politics/elizabeth-warren-democrats.html
+**How to watch Hornets vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6964224/2026/01/12/hornets-vs-clippers-stream-how-to-watch-jan-12/
 
-**World Court Hears Groundbreaking Genocide Case Against Myanmar**\
-`The case was brought to the World Court by a country not directly affected by the alleged genocide of the Rohingya, a precedent for similar claims against other countries, including Israel.`\
-https://nytimes.com/2026/01/12/world/asia/myanmar-icj-rohingya.html
+**How to watch Celtics vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6964222/2026/01/12/celtics-vs-pacers-stream-how-to-watch-jan-12/
 
-**Justice Department Charges the Man Shot by Agents in Portland, Ore.**\
-`Last week’s shooting of two Venezuela immigrants put the city on edge. Federal officials said the man who was shot had repeatedly backed into a Border Patrol car.`\
-https://nytimes.com/2026/01/12/us/politics/portland-border-patrol-immigration-shooting.html
+**How to watch Nets vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6964219/2026/01/12/nets-vs-mavericks-stream-how-to-watch-jan-12/
 
-**Who Is Watching ‘Heated Rivalry’?**\
-`A Golden Globes appearance by the stars of “Heated Rivalry,” HBO Max’s show about gay hockey players, reflected how it has built a big-tent fan base.`\
-https://nytimes.com/2026/01/12/style/heated-rivalry-golden-globes-hudson-williams-connor-storrie.html
+**How to watch Oilers vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6964216/2026/01/12/oilers-vs-blackhawks-stream-how-to-watch-jan-12/
 
-**David Mitchell, Who Led Fight on Drug Prices, Dies at 75**\
-`After receiving a diagnosis of terminal cancer, he used his experience in public relations to draw attention to the skyrocketing cost of medication.`\
-https://nytimes.com/2026/01/12/health/david-mitchell-dead.html
+**How to watch Canucks vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6964213/2026/01/12/canucks-vs-canadiens-stream-how-to-watch-jan-12/
 
