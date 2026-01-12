@@ -1,3 +1,7 @@
+**Carrick in pole position to be Man United interim head coach**\
+`Carrick has emerged as the leading candidate for the role after he and Ole Gunnar Solskjaer held face-to-face talks with club executives.`\
+https://nytimes.com/athletic/6942066/2026/01/12/manchester-united-michael-carrick-manager-next-interim/
+
 **Winners of the 83rd Golden Globe Awards**\
 `The 83rd Golden Globes award ceremony recognized Hollywood’s best in film and television, as well as a new category this year, best podcast.`\
 https://nytimes.com/video/arts/television/100000010638592/golden-globes-2026-watch.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6962818/2026/01/12/real-madrid-barcelona-clasico-su
 **How Devin Booker fuels surging Phoenix Suns with unselfishness and 'hockey assists'**\
 `There are many themes to this surprising Suns season. Booker has been at the center, but not because of his scoring. `\
 https://nytimes.com/athletic/6962652/2026/01/12/devin-booker-suns-hockey-assists/
-
-**The New York Times in Print for Monday, Jan. 12, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/01/12/todays-new-york-times
 

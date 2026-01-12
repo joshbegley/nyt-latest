@@ -1,3 +1,7 @@
+**Carrick in pole position to be Man United interim head coach**\
+`Carrick has emerged as the leading candidate for the role after he and Ole Gunnar Solskjaer held face-to-face talks with club executives.`\
+https://nytimes.com/athletic/6942066/2026/01/12/manchester-united-michael-carrick-manager-next-interim/
+
 **Winners of the 83rd Golden Globe Awards**\
 `The 83rd Golden Globes award ceremony recognized Hollywood’s best in film and television, as well as a new category this year, best podcast.`\
 https://nytimes.com/video/arts/television/100000010638592/golden-globes-2026-watch.html
