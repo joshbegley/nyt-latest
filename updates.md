@@ -1,3 +1,7 @@
+**Notre Dame's Marcus Freeman will not face charges for incident at wrestling meet**\
+`Prosecutor's office determined "that no criminal battery occurred" in incident at son's wrestling meet.`\
+https://nytimes.com/athletic/6964063/2026/01/12/notre-dame-marcus-freeman-wrestling/
+
 **49ers' no-name defense 'scratching and clawing' to keep season alive**\
 `Fueled by midseason additions and unproven backups, the 49ers' defense shut the door on the defending Super Bowl champions.`\
 https://nytimes.com/athletic/6964078/2026/01/12/49ers-defense-injuries-eric-kendricks-garret-wallow/

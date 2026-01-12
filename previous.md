@@ -1,3 +1,7 @@
+**Notre Dame's Marcus Freeman will not face charges for incident at wrestling meet**\
+`Prosecutor's office determined "that no criminal battery occurred" in incident at son's wrestling meet.`\
+https://nytimes.com/athletic/6964063/2026/01/12/notre-dame-marcus-freeman-wrestling/
+
 **49ers' no-name defense 'scratching and clawing' to keep season alive**\
 `Fueled by midseason additions and unproven backups, the 49ers' defense shut the door on the defending Super Bowl champions.`\
 https://nytimes.com/athletic/6964078/2026/01/12/49ers-defense-injuries-eric-kendricks-garret-wallow/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6964219/2026/01/12/nets-vs-mavericks-stream-how-to-
 **How to watch Oilers vs. Blackhawks: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the Chicago Blackhawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6964216/2026/01/12/oilers-vs-blackhawks-stream-how-to-watch-jan-12/
-
-**How to watch Canucks vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6964213/2026/01/12/canucks-vs-canadiens-stream-how-to-watch-jan-12/
 
