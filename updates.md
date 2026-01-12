@@ -1,3 +1,7 @@
+**AP men's hoops Top 25: Arizona, Iowa State, UConn lead way, Vandy enters top 10**\
+`Four new teams entered the Top 25 after a shakeup at the bottom of the poll, including Utah State and Seton Hall.`\
+https://nytimes.com/athletic/6963914/2026/01/12/ap-top-25-mens-college-basketball-arizona-iowa-state/
+
 **Tracking Tropical Cyclone Dudzai**\
 `See the likely path and wind arrival times for Dudzai`\
 https://nytimes.com/interactive/2026/01/12/weather/dudzai-map-path-tracker.html
