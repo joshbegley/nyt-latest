@@ -1,3 +1,11 @@
+**Hints of Political Amnesty Stoke Hope and Frustration in Venezuela**\
+`Venezuela’s new leaders and President Trump have alluded to a major release of political prisoners, but the liberations have been slow to come.`\
+https://nytimes.com/2026/01/12/world/americas/venezuela-political-prisoners-amnesty.html
+
+**L.A. Reid Settles Lawsuit Shortly Before Sexual Assault Trial**\
+`Mr. Reid, a Grammy-winning music producer, had been accused of assaulting an executive who worked for him and then retaliating against her.`\
+https://nytimes.com/2026/01/12/arts/music/la-reid-drew-dixon-settlement-sexual-assault.html
+
 **Cancelo completes Barca medical ahead of signing**\
 `Cancelo spent the 2023-24 season on loan at Barca from Manchester City, recording four goals and five assists in all competitions.`\
 https://nytimes.com/athletic/6944882/2026/01/12/barcelona-joao-cancelo-transfer/

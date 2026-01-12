@@ -1,3 +1,19 @@
+**Bulls-Heat game postponed due to condensation on the court rescheduled**\
+`The postponement marked the first time an NBA regular-season game had been rescheduled due to slippery conditions since 2017.`\
+https://nytimes.com/athletic/6963819/2026/01/12/bulls-heat-condensation-court-rescheduled/
+
+**Botman signs new long-term Newcastle contract:**\
+`The centre-back has made 17 appearances for Newcastle this season across all competitions, regularly partnering Malick Thiaw.`\
+https://nytimes.com/athletic/6859007/2026/01/12/sven-botman-newcastle-contract-new/
+
+**Why didn't Xabi Alonso's tactics work at Real Madrid?**\
+`The 44-year-old left his role as manager on Monday, having only been appointed at the Bernabeu in May`\
+https://nytimes.com/athletic/6954080/2026/01/12/real-madrid-xabi-alonso-sacked-analysis-tactics/
+
+**The Stories That Old Books Tell**\
+`Responses to an essay by Roger Rosenblatt about keeping and tossing old books. Also: A.I. and human identity; new heights for Stephen Colbert.`\
+https://nytimes.com/2026/01/12/opinion/old-books.html
+
 **Hints of Political Amnesty Stoke Hope and Frustration in Venezuela**\
 `Venezuela’s new leaders and President Trump have alluded to a major release of political prisoners, but the liberations have been slow to come.`\
 https://nytimes.com/2026/01/12/world/americas/venezuela-political-prisoners-amnesty.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6960858/2026/01/12/blue-jackets-gm-waddell-season/
 **Archaeologists Find Large Roman Villa Under Deer Park in Wales**\
 `The unexpected discovery of a well-preserved and fortified villa in Margam Park in South Wales sheds new light on the Roman occupation there, an expert said.`\
 https://nytimes.com/2026/01/12/world/europe/archaeologists-roman-villa-park-wales.html
-
-**America at 250**\
-``\
-https://nytimes.com/spotlight/america-250
-
-**Real Madrid part ways with Xabi Alonso**\
-`Madrid announced the news in a club statement on Monday.`\
-https://nytimes.com/athletic/6872754/2026/01/12/xabi-alonso-real-madrid-exit-next/
-
-**Review: Bill T. Jones Goes Back to Collage**\
-`The company revived and revised a work that juxtaposes formal movement with a sound score that incorporates recordings of the 1979 White Night riots in San Francisco.`\
-https://nytimes.com/2026/01/12/arts/dance/review-bill-t-jones-collage-revisted.html
-
-**Fashion Highlights From the 2026 Golden Globes**\
-`Vanessa Friedman, our fashion director and chief fashion critic, recaps what she saw on the red carpet for the 2026 Golden Globes.`\
-https://nytimes.com/video/style/100000010624726/fashion-red-carpet-2026-golden-globes.html
 
