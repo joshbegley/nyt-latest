@@ -1,3 +1,7 @@
+**New York City Nurses Go on Strike**\
+`Nearly 15,000 nurses at major New York City hospitals went on strike on Monday, demanding more robust staffing levels, higher pay and better safety precautions.`\
+https://nytimes.com/video/nyregion/100000010639219/nyc-nurse-strike.html
+
 **What Our Photographer Saw in Minneapolis**\
 `David Guttenfelder, a visual journalist for The New York Times, was at the scene in Minneapolis immediately after an ICE agent killed a 37-year-old woman in her vehicle. He walks us through the photos and videos he took over the next few days as outrage and protests mounted in the city.`\
 https://nytimes.com/video/us/100000010633079/what-our-photographer-saw-in-minneapolis.html
