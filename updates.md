@@ -1,3 +1,19 @@
+**Bulls-Heat game postponed due to condensation on the court rescheduled**\
+`The postponement marked the first time an NBA regular-season game had been rescheduled due to slippery conditions since 2017.`\
+https://nytimes.com/athletic/6963819/2026/01/12/bulls-heat-condensation-court-rescheduled/
+
+**Botman signs new long-term Newcastle contract:**\
+`The centre-back has made 17 appearances for Newcastle this season across all competitions, regularly partnering Malick Thiaw.`\
+https://nytimes.com/athletic/6859007/2026/01/12/sven-botman-newcastle-contract-new/
+
+**Why didn't Xabi Alonso's tactics work at Real Madrid?**\
+`The 44-year-old left his role as manager on Monday, having only been appointed at the Bernabeu in May`\
+https://nytimes.com/athletic/6954080/2026/01/12/real-madrid-xabi-alonso-sacked-analysis-tactics/
+
+**The Stories That Old Books Tell**\
+`Responses to an essay by Roger Rosenblatt about keeping and tossing old books. Also: A.I. and human identity; new heights for Stephen Colbert.`\
+https://nytimes.com/2026/01/12/opinion/old-books.html
+
 **Hints of Political Amnesty Stoke Hope and Frustration in Venezuela**\
 `Venezuela’s new leaders and President Trump have alluded to a major release of political prisoners, but the liberations have been slow to come.`\
 https://nytimes.com/2026/01/12/world/americas/venezuela-political-prisoners-amnesty.html
