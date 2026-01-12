@@ -1,40 +1,36 @@
-**CAF investigating 'unacceptable behaviour' after AFCON full-time clashes**\
-`CAF is investigating incidents from Nigeria’s victory against Algeria and Morocco’s win over Cameroon.`\
-https://nytimes.com/athletic/6963299/2026/01/12/caf-investigation-afcon-nigeria-algeria-morocco-cameroon/
+**Do You Know These Modern Books Inspired by Myth and Legend?**\
+`Ancient legends from thousands of years ago often find fresh audiences in new books. Test your memory of recent titles with this short quiz.`\
+https://nytimes.com/interactive/2026/01/12/books/review/myth-novels-quiz.html
 
-**Trump’s India Envoy Offers Hope Amid a Strained Relationship**\
-`Sergio Gor, a confidant of the U.S. president, took up his post as ambassador in New Delhi with ties between the countries at their lowest ebb in decades.`\
-https://nytimes.com/2026/01/12/world/asia/india-us-ambassador-sergio-gor.html
+**NBA Power Rankings: Who's exceeding (or falling short) of preseason expectations?**\
+`The season hasn't quite reached its midway point, but we have a good idea of what teams are.`\
+https://nytimes.com/athletic/6963188/2026/01/12/nba-power-rankings-timberwolves-rockets-knicks/
 
-**Submit your questions for the college basketball mailbag**\
-`What's on your mind two weeks into conference play? Let us know.`\
-https://nytimes.com/athletic/6963291/2026/01/12/college-basketball-mailbag-submit-questions/
+**Fed Changes Course and Takes on Trump in Political Fight**\
+`The Justice Department’s decision to open up a criminal investigation of Jerome H. Powell, the chair of the Federal Reserve, is a major escalation in the pressure campaign against the central bank to cut interest rates.`\
+https://nytimes.com/2026/01/12/business/federal-reserve-changes-course-trump-administration.html
 
-**Truck Drives Through Crowd of Iran Protesters in Los Angeles**\
-`A U-Haul truck sped through a street packed with demonstrators in Los Angeles on Sunday as they marched in support of the anti-government protests in Iran. The truck hit one person, who was not significantly injured.`\
-https://nytimes.com/video/us/100000010639093/los-angeles-iran-protesters.html
+**Dylan Raiola, former 5-star QB, transferring from Nebraska to Oregon**\
+`Raiola, who started 22 games in two seasons at Nebraska, has two years of eligibility remaining.`\
+https://nytimes.com/athletic/6961872/2026/01/12/dylan-raiola-transfer-quarterback-oregon-ducks/
 
-**Wall St. Shows Nerves as Stocks, Bonds and the Dollar Slip on Fed Threat**\
-`The broad shift out of U.S. financial assets revived last year’s trend called the “sell America” trade.`\
-https://nytimes.com/2026/01/12/business/stock-market-dollar-trump-fed-powell.html
+**NBA Rewind: Ja Morant's trade market could be as slim as Trae Young's was**\
+`Plus, who's hot (Cavs, Wolves) and not (Knicks, Jazz) this week in the NBA. And can the Thunder and Spurs get their grooves back?`\
+https://nytimes.com/athletic/6959964/2026/01/12/ja-morant-trae-young-trade-deadline-nba-rewind/
 
-**England U17 forward Madjo completes Villa transfer from Metz**\
-`The 17-year-old forward has played five matches in Ligue 1 for Metz and has played three times for Luxembourg at senior level.`\
-https://nytimes.com/athletic/6963282/2026/01/12/aston-villa-transfer-news-madjo/
+**USMNT Tracker: Pepi's nasty injury setback, Richards' nightmare return, Scally scores**\
+`It was mixed fortunes for the USMNT's stars over the weekend as they continue to jostle for World Cup spots`\
+https://nytimes.com/athletic/6963134/2026/01/12/usmnt-tracker-pepi-psv-richards-palace/
 
-**How can the Bucks stay in games without Giannis on the floor? 'Be more decisive'**\
-`Milwaukee is a strong team when Giannis Antetokounmpo is in the game, and a terrible one when he sits. Can the Bucks find a solution?`\
-https://nytimes.com/athletic/6962776/2026/01/12/bucks-giannis-antetokounmpo-bench-leads/
+**Will Winter Return to the East Coast This Week? Here’s What to Know.**\
+`A brewing storm could lead to heavy snow across the Northeast by Thursday. But a lot is still uncertain, forecasters warned.`\
+https://nytimes.com/2026/01/12/weather/noreaster-snow-forecast.html
 
-**Lewis Hamilton can't be another champion failed at Ferrari. Everything rides on 2026**\
-`The 41-year-old seven-time drivers' title winner is heading into 2026 hoping for a big change in his fortunes with the Prancing Horse`\
-https://nytimes.com/athletic/6963119/2026/01/12/lewis-hamilton-f1-2026-ferrari-title-hopes/
+**Lowetide: The Oilers have a Darnell Nurse problem. What's the solution?**\
+`Finding a way for Nurse to thrive is going to be key for Oilers coach Kris Knoblauch and his staff.`\
+https://nytimes.com/athletic/6961686/2026/01/12/edmonton-oilers-darnell-nurse-stats-problem/
 
-**The Potential Fallout From a Legal Attack on Powell**\
-`A criminal investigation into Jay Powell, the Federal Reserve chair, may be the most consequential attack yet on the central bank’s political independence.`\
-https://nytimes.com/2026/01/12/business/dealbook/powell-federal-reserve-investigation-trump.html
-
-**Britain Investigates Elon Musk’s X Over Grok’s Sexualized A.I. Images**\
-`A British regulator said it had started a formal investigation into Mr. Musk’s chatbot over the spread of illegal images.`\
-https://nytimes.com/2026/01/12/world/europe/grok-ai-images-x-elon-musk-uk.html
+**Inside Real Madrid: What now for Xabi Alonso after Barcelona defeat?**\
+`The head coach is safe for now, but how was losing to their arch-rivals in the Supercopa de Espana final viewed by those behind the scenes?`\
+https://nytimes.com/athletic/6963130/2026/01/12/real-madrid-xabi-alonso-barcelona-supercopa-future/
 
