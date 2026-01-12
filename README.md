@@ -1,3 +1,15 @@
+**What Our Photographer Saw in Minneapolis**\
+`David Guttenfelder, a visual journalist for The New York Times, was at the scene in Minneapolis immediately after an ICE agent killed a 37-year-old woman in her vehicle. He walks us through the photos and videos he took over the next few days as outrage and protests mounted in the city.`\
+https://nytimes.com/video/us/100000010633079/what-our-photographer-saw-in-minneapolis.html
+
+**E.P.A. to Stop Considering Lives Saved When Setting Rules on Air Pollution**\
+`In a reversal, the agency plans to calculate only the cost to industry when setting pollution limits, and not the monetary value of saving human lives, documents show.`\
+https://nytimes.com/2026/01/12/climate/trump-epa-air-pollution.html
+
+**LeBron James 23rd season jersey patches to go into Topps trading cards**\
+`Topps has now introduced several jersey patches across a variety of leagues and sports that have driven big interest among collectors`\
+https://nytimes.com/athletic/6963523/2026/01/12/lebron-james-jersey-patch-topps-cards/
+
 **Silicone Isn’t Always More Sustainable**\
 `Silicone kitchen gear isn’t as sustainable as many people think.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010639590/silicone-isnt-always-more-sustainable.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6963631/2026/01/12/jazz-vs-cavaliers-stream-how-to-
 **How to watch Kraken vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6963629/2026/01/12/kraken-vs-rangers-stream-how-to-watch-jan-12/
-
-**Lego Unveils New Smart Brick**\
-`Lego bricks are getting tech-ified. Games writer James Austen just got his hands on Lego’s new smart bricks, which will be out later this year. So far, he’s impressed, but he’ll need to do some hands-on testing to decide if these are worth buying.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010639507/lego-unveils-new-smart-brick.html
-
-**How to watch Lightning vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6963624/2026/01/12/lightning-vs-flyers-stream-how-to-watch-jan-12/
-
-**How to watch Hurricanes vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6963622/2026/01/12/hurricanes-vs-red-wings-stream-how-to-watch-jan-12/
 
