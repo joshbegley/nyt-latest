@@ -1,3 +1,15 @@
+**How the Trump Administration Hacked Our Ignorance**\
+`David French explains on “The Opinions” why he believes a key secret to the Trump administration lies in its ability to exploit “civic ignorance.”`\
+https://nytimes.com/video/opinion/100000010633574/how-the-trump-administration-hacked-our-ignorance.html
+
+**The PGA Tour is on offense. It’s refreshing to watch**\
+`Stars matter, and the PGA Tour is cockily declaring to LIV: “This is what we think of the rest of your league.”`\
+https://nytimes.com/athletic/6964109/2026/01/12/pga-tour-brooks-koepka-return-liv-golf-war-2026/
+
+**Bears coach Ben Johnson won't hide his contempt for the Packers: 'I don't like that team'**\
+`A rivalry has been reignited. The Bears' playoff win over the Packers — and sharp words from Johnson — have added a new edge.`\
+https://nytimes.com/athletic/6964175/2026/01/12/ben-johnson-bears-packers-rivalry/
+
 **We Need to Stop Asking This Question**\
 `The Opinion columnist Carlos Lozada argues that one familiar question “pretends to be this big dot-connecting moment” but it’s not.`\
 https://nytimes.com/video/opinion/100000010633572/we-need-to-stop-asking-this-question.html
