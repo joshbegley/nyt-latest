@@ -1,3 +1,7 @@
+**Cancelo completes Barca medical ahead of signing**\
+`Cancelo spent the 2023-24 season on loan at Barca from Manchester City, recording four goals and five assists in all competitions.`\
+https://nytimes.com/athletic/6944882/2026/01/12/barcelona-joao-cancelo-transfer/
+
 **8 Stars Nikki Glaser Roasted in Her Golden Globes Monologue**\
 `The comedian, who hosted the awards ceremony for the second year in a row on Sunday, began by turning her wit mostly toward the men in the room.`\
 https://nytimes.com/2026/01/12/arts/nikki-glaser-golden-globe-jokes.html
