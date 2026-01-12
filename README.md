@@ -1,3 +1,7 @@
+**David Mitchell, Who Led Fight on Drug Prices, Dies at 75**\
+`After receiving a diagnosis of terminal cancer, he used his experience in public relations to draw attention to the skyrocketing cost of medication.`\
+https://nytimes.com/2026/01/12/health/david-mitchell-dead.html
+
 **Steve Staios on the Senators' nightmarish week and the fiery statement that followed**\
 `Staios stood behind a fiery statement the Senators released late last week: "I’m not going to apologize for standing up for my players."`\
 https://nytimes.com/athletic/6963839/2026/01/12/steve-staios-senators-statement-linus-ullmark/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/12/us/politics/supreme-court-louisiana-oil.html
 **FA Cup fourth-round: Wrexham to host Ipswich, Macclesfield face Brentford**\
 `In the pick of the other ties, Aston Villa will host Newcastle United, while Manchester City could face Salford City at home`\
 https://nytimes.com/athletic/6963290/2026/01/12/fa-cup-fourth-round-draw-wrexham/
-
-**Spurs advancing in talks over deal for Atletico's Gallagher**\
-`Gallagher has spent 18 months in La Liga after joining Atletico from Chelsea in a £38million deal in the summer of 2024.`\
-https://nytimes.com/athletic/6958617/2026/01/12/conor-gallagher-tottenham-transfer-atletico-madrid/
 
