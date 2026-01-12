@@ -1,3 +1,7 @@
+**Archaeologists Find Large Roman Villa Under Deer Park in Wales**\
+`The unexpected discovery of a well-preserved and fortified villa in Margam Park in South Wales sheds new light on the Roman occupation there, an expert said.`\
+https://nytimes.com/2026/01/12/world/europe/archaeologists-roman-villa-park-wales.html
+
 **America at 250**\
 ``\
 https://nytimes.com/spotlight/america-250
@@ -14,8 +18,8 @@ https://nytimes.com/2026/01/12/arts/dance/review-bill-t-jones-collage-revisted.h
 `Vanessa Friedman, our fashion director and chief fashion critic, recaps what she saw on the red carpet for the 2026 Golden Globes.`\
 https://nytimes.com/video/style/100000010624726/fashion-red-carpet-2026-golden-globes.html
 
-**Trump Administration Nears Deal With Taiwan**\
-`The trade deal would cut tariffs and include a commitment from Taiwanese Semiconductor Manufacturing Corporation, the island’s chip giant, to build more manufacturing plants in the United States.`\
+**Trump Administration Nears Trade Deal With Taiwan**\
+`The deal would cut tariffs and include a commitment from Taiwanese Semiconductor Manufacturing Corporation, the island’s chip giant, to build more manufacturing plants in the United States.`\
 https://nytimes.com/2026/01/12/business/economy/trump-taiwan-deal.html
 
 **‘Tehran’ Review: Israel vs. Iran, Retold as a Spy Thriller**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000010639219/nyc-nurse-strike.html
 **What Our Photographer Saw in Minneapolis**\
 `David Guttenfelder, a visual journalist for The New York Times, was at the scene in Minneapolis immediately after an ICE agent killed a 37-year-old woman in her vehicle. He walks us through the photos and videos he took over the next few days as outrage and protests mounted in the city.`\
 https://nytimes.com/video/us/100000010633079/what-our-photographer-saw-in-minneapolis.html
-
-**E.P.A. to Stop Considering Lives Saved When Setting Rules on Air Pollution**\
-`In a reversal, the agency plans to calculate only the cost to industry when setting pollution limits, and not the monetary value of saving human lives, documents show.`\
-https://nytimes.com/2026/01/12/climate/trump-epa-air-pollution.html
 

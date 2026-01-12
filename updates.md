@@ -1,3 +1,11 @@
+**Archaeologists Find Large Roman Villa Under Deer Park in Wales**\
+`The unexpected discovery of a well-preserved and fortified villa in Margam Park in South Wales sheds new light on the Roman occupation there, an expert said.`\
+https://nytimes.com/2026/01/12/world/europe/archaeologists-roman-villa-park-wales.html
+
+**Trump Administration Nears Trade Deal With Taiwan**\
+`The deal would cut tariffs and include a commitment from Taiwanese Semiconductor Manufacturing Corporation, the island’s chip giant, to build more manufacturing plants in the United States.`\
+https://nytimes.com/2026/01/12/business/economy/trump-taiwan-deal.html
+
 **America at 250**\
 ``\
 https://nytimes.com/spotlight/america-250
