@@ -1,3 +1,7 @@
+**NFL playoff schedule: Divisional round set as Texans move on to face Patriots**\
+`The Texans knocked off Aaron Rodgers and the Steelers to grab the final spot in the divisional round of the NFL playoffs.`\
+https://nytimes.com/athletic/6962268/2026/01/12/2025-nfl-divisional-round-schedule/
+
 **Texans defense dominates Steelers in wild-card win, Aaron Rodgers’ possible final game**\
 `The Texans will travel to New England to face the Patriots on Sunday.`\
 https://nytimes.com/athletic/6964991/2026/01/12/texans-steelers-score-result-takeaways-nfl-wild-card-playoffs/

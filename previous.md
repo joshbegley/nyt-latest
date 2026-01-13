@@ -1,3 +1,7 @@
+**NFL playoff schedule: Divisional round set as Texans move on to face Patriots**\
+`The Texans knocked off Aaron Rodgers and the Steelers to grab the final spot in the divisional round of the NFL playoffs.`\
+https://nytimes.com/athletic/6962268/2026/01/12/2025-nfl-divisional-round-schedule/
+
 **Texans defense dominates Steelers in wild-card win, Aaron Rodgers’ possible final game**\
 `The Texans will travel to New England to face the Patriots on Sunday.`\
 https://nytimes.com/athletic/6964991/2026/01/12/texans-steelers-score-result-takeaways-nfl-wild-card-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6964814/2026/01/12/sean-mcdermott-critical-playoff-
 **Fedorov jersey retirement gives his story the ending it deserves in Detroit**\
 `In a long-anticipated ceremony, the Red Wings retired Sergei Fedorov's No. 91 jersey on Monday.`\
 https://nytimes.com/athletic/6964532/2026/01/12/detroit-red-wings-sergei-fedorov-jersey-retirement/
-
-**Camping on a Glacier? Watch Your Step**\
-`Experienced Antarctica guides tell Raymond Zhong, our climate reporter, how they set up camp on the Thwaites Glacier so scientists can measure how fast it’s melting. The biggest safety concern? Crevasses.`\
-https://nytimes.com/video/climate/100000010629864/camping-on-a-glacier-watch-your-step.html
 
