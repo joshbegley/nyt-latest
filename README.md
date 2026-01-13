@@ -1,3 +1,7 @@
+**Texans defense dominates Steelers in wild-card win, Aaron Rodgers’ possible final game**\
+`The Texans will travel to New England to face the Patriots on Sunday.`\
+https://nytimes.com/athletic/6964991/2026/01/12/texans-steelers-score-result-takeaways-nfl-wild-card-playoffs/
+
 **Full Time: USWNT star coming home**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6965022/2026/01/12/lindsey-heaps-denver-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6964532/2026/01/12/detroit-red-wings-sergei-fedorov
 **Camping on a Glacier? Watch Your Step**\
 `Experienced Antarctica guides tell Raymond Zhong, our climate reporter, how they set up camp on the Thwaites Glacier so scientists can measure how fast it’s melting. The biggest safety concern? Crevasses.`\
 https://nytimes.com/video/climate/100000010629864/camping-on-a-glacier-watch-your-step.html
-
-**Elle Simone Scott, Chef and Cooking Show Stalwart, Dies at 49**\
-`She was the first Black cast member on the PBS show “America’s Test Kitchen,” and used her influence to help other female chefs of color.`\
-https://nytimes.com/2026/01/12/dining/elle-simone-scott-dead.html
 
