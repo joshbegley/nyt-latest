@@ -1,3 +1,11 @@
+**Camping on a Glacier? Watch Your Step**\
+`Experienced Antarctica guides tell Raymond Zhong, our climate reporter, how they set up camp on the Thwaites Glacier so scientists can measure how fast it’s melting. The biggest safety concern? Crevasses.`\
+https://nytimes.com/video/climate/100000010629864/camping-on-a-glacier-watch-your-step.html
+
+**Elle Simone Scott, Chef and Cooking Show Stalwart, Dies at 49**\
+`She was the first Black cast member on the PBS show “America’s Test Kitchen,” and used her influence to help other female chefs of color.`\
+https://nytimes.com/2026/01/12/dining/elle-simone-scott-dead.html
+
 **George Kittle posts 'I'll be good' on Instagram after tearing Achilles tendon**\
 `The 49ers' All-Pro tight end was injured during the 49ers' wild-card victory over the Eagles on Sunday.`\
 https://nytimes.com/athletic/6964758/2026/01/12/george-kittle-achilles-injury-social-media-post-reaction/
