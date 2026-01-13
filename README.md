@@ -1,10 +1,18 @@
+**Matt LaFleur 'speechless' after Aaron Rodgers' passionate defense of the Packers coach**\
+`After Pittsburgh's season ended, Rodgers not only stood up for his current coach, Mike Tomlin, but for his former coach, Matt LaFleur.`\
+https://nytimes.com/athletic/6965838/2026/01/13/matt-lefleur-response-aaron-rodgers-defense/
+
+**Food Prices Shot up in December**\
+`Beef, coffee and produce are among the items that have gotten more expensive recently, inflation data on Tuesday showed.`\
+https://nytimes.com/2026/01/13/business/economy/inflation-cpi-report-food-prices.html
+
 **Morocco's Regragui defends African football following criticism of AFCON referees**\
-`The Algerian Football Federation said that refereeing in the team's 2-0 loss to Nigeria "undermined the credibility of African refereeing".`\
+`The Algerian Football Federation said that officiating in the team's 2-0 loss to Nigeria "undermined the credibility of African refereeing".`\
 https://nytimes.com/athletic/6965866/2026/01/13/afcon-referees-morocco-walid-regragui/
 
 **Read the Clintons’ Legal Letter to Comer**\
 `Lawyers for Bill and Hillary Clinton wrote a letter to Representative James R. Comer of Kentucky, the Republican chairman of the Oversight Committee.`\
-https://nytimes.com/interactive/2026/01/13/us/politics/clinton-letter-comer.html
+https://nytimes.com/interactive/2026/01/13/us/politics/clinton-legal-letter-comer.html
 
 **Facing Contempt Threat, Clintons Refuse to Testify in Epstein Inquiry**\
 `The couple denounced the efforts by Representative James R. Comer, the chairman of the Oversight Committee, to force them to appear, setting the stage for a legal battle.`\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/banning-tran
 **The Killing of Renee Good Was a Turning Point**\
 `The columnists Ezra Klein and M. Gessen discuss the recent shooting of a protester by an ICE agent in Minneapolis and what it means for the country.`\
 https://nytimes.com/video/opinion/100000010629504/the-killing-of-renee-good-was-a-turning-point.html
-
-**Inside Barcelona: Araujo's emotional return, reaction to Alonso sacking**\
-`Ronald Araujo returned in style after an agreed period of leave with Barca, saying 'I learned that stopping at the right time is self love'`\
-https://nytimes.com/athletic/6965822/2026/01/13/barcelona-araujo-alonso-sacking/
-
-**What was your favorite college football game of 2025?**\
-`There's only one game left in a wild 2025 college football season. What was the best game? Here are our staff's favorites.`\
-https://nytimes.com/athletic/6965645/2026/01/13/best-college-football-games-2025-season/
 
