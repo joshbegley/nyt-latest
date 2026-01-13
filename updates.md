@@ -1,3 +1,7 @@
+**Militant Pro-Israel Group Agrees to Halt Operations in New York**\
+`While dissolving the group is not part of a settlement between the organization, Betar, and the office of New York Attorney General Letitia James, it will shut down.`\
+https://nytimes.com/2026/01/13/nyregion/betar-us-israel-new-york.html
+
 **A Timeline of Protests in Iran**\
 `Amid a near-total communications blackout, witness footage trickling out of Iran paints a picture of how the country’s largest uprising in decades spread — and turned deadly.`\
 https://nytimes.com/2026/01/13/world/middleeast/iran-protests-video-timeline.html
