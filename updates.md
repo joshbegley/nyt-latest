@@ -1,3 +1,15 @@
+**Microsoft Pledges to Pay More for Electricity, Drawing Praise From Trump**\
+`The tech giant is responding to concerns that data centers are driving up electricity costs in some communities.`\
+https://nytimes.com/2026/01/13/business/microsoft-electricity-data-center-trump.html
+
+**Grizzlies say 'chance' Ja Morant plays in Berlin amid NBA trade speculation**\
+`Berlin native and German superstar Franz Wagner is trying to return Thursday after missing the last 16 games with a high ankle sprain.`\
+https://nytimes.com/athletic/6965679/2026/01/13/grizzlies-ja-morant-berlin-trade-rumors/
+
+**Live Updates: Inflation Steady as Fed Considers Rate Path**\
+`Consumer prices in December were 2.7 percent higher than a year ago, a similar rate to the previous month.`\
+https://nytimes.com/live/2026/01/13/business/inflation-report-cpi
+
 **The Powell Defense Grows**\
 `Former Federal Reserve chiefs, Republican senators and — perhaps most important, many bond investors — raised concerns about an investigation into the bank’s leader.`\
 https://nytimes.com/2026/01/13/business/dealbook/powell-federal-reserve-trump-investigation.html
