@@ -1,3 +1,7 @@
+**The Powell Defense Grows**\
+`Former Federal Reserve chiefs, Republican senators and — perhaps most important, many bond investors — raised concerns about an investigation into the bank’s leader.`\
+https://nytimes.com/2026/01/13/business/dealbook/powell-federal-reserve-trump-investigation.html
+
 **Trump Administration Live Updates: President Is Set to Speak About Economy on Michigan Trip**\
 ``\
 https://nytimes.com/live/2026/01/13/us/trump-news
