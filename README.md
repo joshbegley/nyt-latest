@@ -1,3 +1,7 @@
+**Potential candidates to replace former Chargers offensive coordinator Greg Roman**\
+`The Chargers need to modernize their offense and create an infrastructure that relies less on Herbert’s out-of-structure playmaking.`\
+https://nytimes.com/athletic/6967712/2026/01/13/charges-offensive-coordinator-candidates-nfl/
+
 **Trump Supports the Protesters, Except Those Protesting Him**\
 `The split-screen television images of mass demonstrations in Minneapolis and Tehran have highlighted the president’s disparate views of democracy and popular dissent.`\
 https://nytimes.com/2026/01/13/us/politics/trump-protesters-iran-minnesota.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6967596/2026/01/13/steelers-texans-recap-defense-co
 **Claudette Colvin, Who Refused to Give Her Bus Seat to a White Woman, Dies at 86**\
 `Her defiance of Jim Crow laws in 1955 made her a star witness in a landmark segregation suit, but her act was overshadowed months later when Rosa Parks made history with a similar stand.`\
 https://nytimes.com/2026/01/13/us/politics/claudette-colvin-dead.html
-
-**Flyers getting healthier, but have some issues ahead of a critical road trip**\
-`Rick Tocchet said there was a “possibility” the club would get defenseman Jamie Drysdale and forward Bobby Brink back on Wednesday`\
-https://nytimes.com/athletic/6967645/2026/01/13/flyers-injuries-jamie-drysdale-bobby-brink/
 
