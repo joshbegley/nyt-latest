@@ -1,3 +1,11 @@
+**A '90s king gets his flowers: 10 reasons why Sergei Fedorov was so cool**\
+`Monday night, we saw some cool history in a moment that seemed like it would never happen: Fedorov's jersey retirement in Detroit.`\
+https://nytimes.com/athletic/6966038/2026/01/13/red-wings-sergei-fedorov-jersey-retirement-red-light/
+
+**Trump Urges Iranians to Keep Up Antigovernment Protests**\
+`“HELP IS ON ITS WAY,” President Trump said on social media. He has threatened to intervene militarily on behalf of the protesters if Iran uses lethal force.`\
+https://nytimes.com/2026/01/13/world/middleeast/trump-iran-antigovernment-protests.html
+
 **2 Students Behind Challenges to Trans Athlete Laws**\
 `One sued to join her middle school girls’ cross-country team in West Virginia and the other to join the women’s track and cross-country teams at her university in Idaho.`\
 https://nytimes.com/2026/01/13/us/politics/2-students-behind-challenges-to-trans-athlete-laws.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6965811/2026/01/13/ueli-kestenholz-snowboard-olympi
 **Tony Stewart returning to NASCAR for Trucks race at Daytona after 10 years away**\
 `Stewart, who last raced in NASCAR in 2016, is returning for one race for Kaulig Racing as part of Ram's "Free Agent Driver Program."`\
 https://nytimes.com/athletic/6965789/2026/01/13/tony-stewart-nascar-daytona-trucks-return-ram-kaulig/
-
-**NWSL’s Orlando Pride hires Caitlin Carducci as GM, VP of soccer operations**\
-`Orlando has been without a GM since November, after Haley Carter left the club for the Washington Spirit.`\
-https://nytimes.com/athletic/6965595/2026/01/13/orlando-pride-gm-caitlin-carducci-hired/
-
-**Adrien Brody and Tessa Thompson to Make Broadway Debuts in ‘Fear of 13’**\
-`The play, about a man who spends decades on death row before being exonerated by DNA evidence, will have a 16-week run this spring.`\
-https://nytimes.com/2026/01/13/theater/adrien-brody-tessa-thompson-broadway.html
 

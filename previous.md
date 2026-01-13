@@ -1,3 +1,11 @@
+**2 Students Behind Challenges to Trans Athlete Laws**\
+`One sued to join her middle school girls’ cross-country team in West Virginia and the other to join the women’s track and cross-country teams at her university in Idaho.`\
+https://nytimes.com/2026/01/13/us/politics/2-students-behind-challenges-to-trans-athlete-laws.html
+
+**Prosecutors Demand Death Penalty for South Korea’s Ousted Leader**\
+`Former President Yoon Suk Yeol faces an insurrection​ charge after his failed attempt to put his country under martial law in 2024.`\
+https://nytimes.com/2026/01/13/world/asia/south-korea-yoon-death-penalty.html
+
 **Read the Clintons’ Personal Letter to Comer**\
 `Bill and Hillary Clinton wrote a lengthy letter to Representative James R. Comer of Kentucky, the Republican chairman of the Oversight Committee, refusing to testify in Congress.`\
 https://nytimes.com/interactive/2026/01/13/us/clinton-letter.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6965595/2026/01/13/orlando-pride-gm-caitlin-carducc
 **Adrien Brody and Tessa Thompson to Make Broadway Debuts in ‘Fear of 13’**\
 `The play, about a man who spends decades on death row before being exonerated by DNA evidence, will have a 16-week run this spring.`\
 https://nytimes.com/2026/01/13/theater/adrien-brody-tessa-thompson-broadway.html
-
-**What Nike's deal with pickleball phenom Anna Leigh Waters says about tennis fashion**\
-`Signing the GOAT of the fast-growing sport is line with Nike's tennis fashion strategy.`\
-https://nytimes.com/athletic/6965581/2026/01/13/nike-pickleball-anna-leigh-waters-sponsorship-fashion-tennis/
-
-**The Bounce: Let's make some Ja Morant trades. Plus, an NBA draft lottery update**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6965825/2026/01/13/ja-morant-trades-lottery-the-bounce/
 
