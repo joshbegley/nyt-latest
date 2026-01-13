@@ -1,3 +1,7 @@
+**Six in 2026: AUSL announces home cities for the league's second season**\
+`Chicago, Durham, N.C., Round Rock, Tex., Salt Lake City, Portland (Ore.) and Oklahoma City will all host AUSL franchises in 2026.`\
+https://nytimes.com/athletic/6964868/2026/01/13/athletes-unlimited-softball-league-chicago-texas-utah-carolina-oklahoma-portland/
+
 **Is John Harbaugh the Giants' dream hire at head coach? Breaking down each known candidate**\
 `With help from The Athletic's beat writers, we examine the candidates the Giants are bringing in for interviews to be their next head coach.`\
 https://nytimes.com/athletic/6948299/2026/01/13/ny-giants-head-coach-candidates-list-john-harbaugh-kevin-stefanski/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6966284/2026/01/13/flames-vs-blue-jackets-stream-ho
 **How to watch Canucks vs. Senators: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6966282/2026/01/13/canucks-vs-senators-stream-how-to-watch-jan-13/
-
-**Cadillac reveals one-off livery for F1 shakedown test event in Barcelona**\
-`The official race livery, which is expected to be “distinct” from the shakedown design, will be unveiled on February 8.`\
-https://nytimes.com/athletic/6966178/2026/01/13/cadillac-shakedown-livery-f1/
 
