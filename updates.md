@@ -1,3 +1,7 @@
+**Danish Wind Farm Developer Scrambles to Salvage U.S. Projects**\
+`Orsted’s C.E.O. says it plans to move quickly to complete a $6.2 billion wind farm off Rhode Island after a judge struck down President Trump’s bid to halt it.`\
+https://nytimes.com/2026/01/13/business/orsted-wind-farms-trump.html
+
 **NFL overreactions: Josh Allen will once again carry Bills to victory**\
 `Toby Mergler has his predictions on the second round of the NFL playoffs.`\
 https://nytimes.com/athletic/6965895/2026/01/13/nfl-overreactions-josh-allen-bills/
