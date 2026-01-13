@@ -1,3 +1,11 @@
+**Camping on a Glacier? Watch Your Step**\
+`Experienced Antarctica guides tell Raymond Zhong, our climate reporter, how they set up camp on the Thwaites Glacier so scientists can measure how fast it’s melting. The biggest safety concern? Crevasses.`\
+https://nytimes.com/video/climate/100000010629864/camping-on-a-glacier-watch-your-step.html
+
+**Elle Simone Scott, Chef and Cooking Show Stalwart, Dies at 49**\
+`She was the first Black cast member on the PBS show “America’s Test Kitchen,” and used her influence to help other female chefs of color.`\
+https://nytimes.com/2026/01/12/dining/elle-simone-scott-dead.html
+
 **George Kittle posts 'I'll be good' on Instagram after tearing Achilles tendon**\
 `The 49ers' All-Pro tight end was injured during the 49ers' wild-card victory over the Eagles on Sunday.`\
 https://nytimes.com/athletic/6964758/2026/01/12/george-kittle-achilles-injury-social-media-post-reaction/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/12/opinion/resistance-libs-trump-fascism.html
 **Trump’s Plans for Venezuelan Oil Run Headlong Into Reality**\
 `President Trump’s fixation on Venezuela’s oil raises the question of how much “energy dominance” is really worth nowadays.`\
 https://nytimes.com/2026/01/12/us/politics/trump-venezuela-oil-dominance-influence.html
-
-**Trump Has Another Justification for the Shooting of Renee Good: Disrespect**\
-`President Trump suggested that Renee Good’s “highly disrespectful” attitude toward law enforcement played a role in her fatal shooting by an ICE agent.`\
-https://nytimes.com/2026/01/12/us/politics/trump-shooting-renee-good-ice.html
-
-**Bettor in Gambling Inquiry Says Messages Were About Roosters, Not Baseball**\
-`In a filing in the case involving Emmanuel Clase of the Cleveland Guardians, the bettor said he had never been tipped off about pitches and had only traded messages with the player about cockfighting.`\
-https://nytimes.com/2026/01/12/nyregion/clase-pitcher-mlb-gambling.html
 
