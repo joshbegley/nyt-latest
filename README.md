@@ -1,3 +1,11 @@
+**A Timeline of Protests in Iran**\
+`Amid a near-total communications blackout, witness footage trickling out of Iran paints a picture of how the country’s largest uprising in decades spread — and turned deadly.`\
+https://nytimes.com/2026/01/13/world/middleeast/iran-protests-video-timeline.html
+
+**Timothy Busfield, Actor and Director, Booked on Child Sex Abuse Charges**\
+`He turned himself in to the authorities in New Mexico on Tuesday, the Albuquerque police said.`\
+https://nytimes.com/2026/01/13/us/timothy-busfield-arrested-child-sex-abuse.html
+
 **Everyone Wants the Arctic**\
 `President Trump wants to annex Greenland. We look at the fight over a different Arctic territory for insights.`\
 https://nytimes.com/2026/01/13/world/greenland-svalbard-norway-arctic-trump-iran.html
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/6967411/2026/01/13/fred-warner-injury-49ers-playoff
 **Sabres hire former Lightning AGM Stacy Roest in pro scouting role**\
 `Roest spent more than a decade with Tampa Bay and was part of the front-office staff for the Stanley Cup victories in 2020 and 2021.`\
 https://nytimes.com/athletic/6967502/2026/01/13/buffalo-sabres-stacy-roest-marc-bergevin/
-
-**Would You Ever Want to Explore Antarctica?**\
-`Two Times journalists are on a scientific expedition to the coldest, iciest continent on Earth. Would you want to join them? What questions would you like to ask?`\
-https://nytimes.com/2026/01/13/learning/would-you-ever-want-to-explore-antarctica.html
-
-**Denée Benton’s Dining Tag Line Is ‘A Bite for a Bite’**\
-`The “Gilded Age” star takes on the Where to Eat questionnaire.`\
-https://nytimes.com/2026/01/13/dining/denee-benton-gilded-age-broadway.html
-
-**In a Risky Gambit, Trump Tries Brute Force to Lower Prices**\
-`To assuage cost-weary voters and combat inflation, the president has resorted to a mix of threats and punishments, targeting companies and policymakers alike.`\
-https://nytimes.com/2026/01/13/us/politics/trump-speech-economy-inflation-fed.html
 
