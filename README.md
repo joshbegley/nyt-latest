@@ -1,3 +1,11 @@
+**Read the Clintons’ Personal Letter to Comer**\
+`Bill and Hillary Clinton wrote a lengthy letter to Representative James R. Comer of Kentucky, the Republican chairman of the Oversight Committee, refusing to testify in Congress.`\
+https://nytimes.com/interactive/2026/01/13/us/clinton-letter.html
+
+**27 States Restrict Trans Participation in School Sports**\
+`Over the past six years, more than two dozen state legislatures have enacted laws on transgender athletes. Idaho, whose statute is being challenged before the Supreme Court, was the first in 2020.`\
+https://nytimes.com/2026/01/13/us/politics/state-restrictions-trans-athletes-school-sports.html
+
 **Here are the lawyers arguing the cases.**\
 `By Abbie VanSickle`\
 https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/here-are-the-lawyers-arguing-the-cases
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6965581/2026/01/13/nike-pickleball-anna-leigh-water
 **The Bounce: Let's make some Ja Morant trades. Plus, an NBA draft lottery update**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6965825/2026/01/13/ja-morant-trades-lottery-the-bounce/
-
-**Saliba, Trossard doubts vs. Chelsea, Calafiori remains out for 'weeks'**\
-`Neither Saliba or Trossard were in the matchday squad for Arsenal’s win vs. Portsmouth and Calafiori has missed Arsenal’s last five games.`\
-https://nytimes.com/athletic/6965904/2026/01/13/saliba-trossard-calafiori-arsenal-team-news/
-
-**Matt LaFleur 'speechless' after Aaron Rodgers' passionate defense of the Packers coach**\
-`After Pittsburgh's season ended, Rodgers not only stood up for his current coach, Mike Tomlin, but for his former coach, Matt LaFleur.`\
-https://nytimes.com/athletic/6965838/2026/01/13/matt-lafleur-response-aaron-rodgers-defense/
 
