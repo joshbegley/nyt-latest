@@ -1,3 +1,7 @@
+**Inside Newcastle Q&A: Will there be January signings? What is happening with Sandro Tonali**\
+`Our correspondent answers your pressing questions about the club as they navigate an intense schedule of games`\
+https://nytimes.com/athletic/6962964/2026/01/13/newcastle-january-transfers-tonali/
+
 **Newsom Vows to Stop Proposal to Tax Billionaires in California**\
 `Gov. Gavin Newsom said he was working behind the scenes to block a proposed tax on billionaires’ wealth and was committed to defeating the measure if it reached the ballot.`\
 https://nytimes.com/2026/01/13/us/newsom-billionaire-tax-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6963078/2026/01/13/bundesliga-briefing-ebnoutalib-f
 **Myles Lewis-Skelly and the intensifying race to be England's World Cup left-back**\
 `The Arsenal player had a stellar 2024-25 season but a lack of playing time with his club recently has not been kind to his World Cup hopes`\
 https://nytimes.com/athletic/6963477/2026/01/13/england-tuchel-left-back-options-world-cup/
-
-**How a Syrian Hiking Club Is Rediscovering the Country**\
-`The nearly 14-year civil war prevented Syrians from traveling freely to many parts of their own country. After the conflict ended a year ago, a group of outdoor enthusiasts began exploring newly accessible areas, fueled by a sense of adventure and hope.`\
-https://nytimes.com/2026/01/13/world/middleeast/syria-civil-war-hikers.html
 
