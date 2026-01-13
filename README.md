@@ -1,9 +1,21 @@
+**N.Y.C. Bakery Workers Demand Owners Stop Supporting ‘Israeli Occupation’**\
+`Workers at the popular New York City chain Breads Bakery, who are trying to unionize, included the demand in a list alongside higher wages and special overtime pay.`\
+https://nytimes.com/2026/01/13/nyregion/breads-bakery-union-israel-gaza.html
+
+**What to Know About the N.Y.C. Nurses’ Strike and How It Affects Patients**\
+`Nearly 15,000 nurses went on strike Monday at some of New York City’s top hospitals, with workers demanding more robust staffing and higher pay.`\
+https://nytimes.com/2026/01/13/nyregion/what-to-know-nyc-nurses-strike.html
+
+**Spanish Prosecutors Investigate Sexual Assault Claims Against Julio Iglesias**\
+`Prosecutors said two former employees of Mr. Iglesias, a renowned Spanish singer, had accused him of abuse. His representatives did not respond to requests for comment.`\
+https://nytimes.com/2026/01/13/world/europe/julio-iglesias-accused-sexual-assault.html
+
 **Vikings WR Jordan Addison arrested in Florida on trespassing charge**\
 `Vikings wide receiver Jordan Addison was arrested early Monday morning on a trespassing charge in Hillsborough County, Fla.`\
 https://nytimes.com/athletic/6966433/2026/01/13/jordan-addison-vikings-arrest-florida-trespassing-charge/
 
 **Mike Tomlin stepping down as Steelers head coach after 19 seasons: Source**\
-`Tomlin is the second-winningest head coach in Steelers franchise history.`\
+`Tomlin is tied with Chuck Noll as the winningest head coach in Steelers franchise history.`\
 https://nytimes.com/athletic/6939323/2026/01/13/mike-tomlin-pittsburgh-steelers/
 
 **7 Albums I’m Looking Forward to in 2026**\
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6966136/2026/01/13/which-afcon-team-should-you-supp
 **Fanatics expands into content with the launch of Studios joint venture**\
 `Fanatics' tentpoles, which include fan gear, collectibles and sports-betting, now includes a production studio.`\
 https://nytimes.com/athletic/6966169/2026/01/13/fanatics-studios-michael-ratner-obb-media/
-
-**Trump Administration Will End Deportation Protections for Somalis**\
-`The temporary protections, which are meant to help migrants who cannot safely return to their countries, are expected to expire for Somalis on March 17.`\
-https://nytimes.com/2026/01/13/us/politics/trump-deportation-protections-somalis.html
-
-**Chargers fire Greg Roman after offense fizzles out in playoffs**\
-`One playoff disappointment was palatable. Two proved to be too much for Harbaugh and the rest of the Chargers’ higher-ups.`\
-https://nytimes.com/athletic/6964307/2026/01/13/chargers-fire-greg-roman/
-
-**Carta, in the West Village, Keeps the Wine Flowing at Aperitivo**\
-`The new wine bar, also in the West Village, focuses on France and Greece; an Australian pub opens on the Lower East Side; and more restaurant news.`\
-https://nytimes.com/2026/01/13/dining/nyc-restaurant-news.html
 
