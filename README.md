@@ -1,3 +1,19 @@
+**Trump Has Another Justification for the Shooting of Renee Good: Disrespect**\
+`President Trump suggested that Renee Good’s “highly disrespectful” attitude toward law enforcement played a role in her fatal shooting by an ICE agent.`\
+https://nytimes.com/2026/01/12/us/politics/trump-shooting-renee-good-ice.html
+
+**Bettor in Gambling Inquiry Says Messages Were About Roosters, Not Baseball**\
+`In a filing in the case involving Emmanuel Clase of the Cleveland Guardians, the bettor said he had never been tipped off about pitches and had only traded messages with the player about cockfighting.`\
+https://nytimes.com/2026/01/12/nyregion/clase-pitcher-mlb-gambling.html
+
+**Eagles enter offseason with A.J. Brown's status a major question, key starters hitting free agency**\
+`Brown did not speak after the game and was not seen at locker clean out day on Monday.`\
+https://nytimes.com/athletic/6964703/2026/01/12/eagles-offseason-aj-brown-free-agency/
+
+**Kentucky PG Jaland Lowe to have season-ending surgery**\
+`With Lowe out, expect Otega Oweh, Denzel Aberdeen and others to handle the ball more.`\
+https://nytimes.com/athletic/6964712/2026/01/12/kentucky-jaland-lowe-season-ending-surgery/
+
 **Pitching Crypto and Needling Mamdani: Adams’s Post-Mayoralty Takes Shape**\
 `Two weeks ago, Eric Adams was in Times Square to lead the New Year’s Eve ball drop as his last act as mayor. He returned on Monday to promote a new business interest.`\
 https://nytimes.com/2026/01/12/nyregion/adams-mamdani-crypto-congo.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6964428/2026/01/12/liam-coen-lynn-jones-jaguars-jou
 **NHL announces 2026 draft will be held at Buffalo's KeyBank Center**\
 `The NHL Draft, currently scheduled for June 26 and 27, is returning to Buffalo for the fourth time.`\
 https://nytimes.com/athletic/6963432/2026/01/12/nhl-draft-2026-buffalo-keybank-center/
-
-**NHL, NHLPA 'pleased' with test event at Olympic hockey arena, will continue to monitor progress**\
-`“We expect that the work necessary to address all remaining issues will continue around the clock," the NHL and NHLPA said in a statement.`\
-https://nytimes.com/athletic/6964634/2026/01/12/olympic-hockey-arena-nhl-nhlpa-statement/
-
-**F.B.I. Inquiry Into ICE Shooting Is Examining Victim’s Possible Ties to Activist Groups**\
-`Former department officials warned that such a broad inquiry raised the specter that forms of political protests could be criminalized.`\
-https://nytimes.com/2026/01/12/us/politics/fbi-renee-good-ice-shooting.html
-
-**Hamilton returns to Devils lineup against Wild after high-profile healthy scratch**\
-`Devils coach Sheldon Keefe said the scratch was due to wanting players returning from injury to get games over the back-to-back.`\
-https://nytimes.com/athletic/6964614/2026/01/12/dougie-hamilton-devils-keefe-lineup-wild/
-
-**Trinidad Chambliss has a decision to make as NCAA eligibility battle continues**\
-`While Ole Miss files an appeal with the NCAA, Chambliss' lawyers are expected to file a lawsuit in Mississippi court as soon as this week.`\
-https://nytimes.com/athletic/6964583/2026/01/12/trinidad-chambliss-eligibility-appeal-lawsuit/
 
