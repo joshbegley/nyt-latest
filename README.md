@@ -1,3 +1,7 @@
+**Trump Explores ‘Many Options’ for Dealing With Iran**\
+`President Trump is considering several options, including diplomacy and military force, for dealing with Iran, which has been rocked by violent protests.`\
+https://nytimes.com/video/world/middleeast/100000010641080/trump-iran-options-diplomacy-strikes.html
+
 **Taremi is Forest's leading striker target - how does he compare to other options?**\
 `The Iranian tops Forest's shortlist for a new forward - so how would he fit in under Dyche, and what do the other targets offer?`\
 https://nytimes.com/athletic/6963869/2026/01/13/mehdi-taremi-nottingham-forest-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/13/us/newsom-billionaire-tax-california.html
 **Fabio Paratici's second spell at Spurs is already almost over - why didn't it work out?**\
 `If the Italian thought he was getting total control on his return to Tottenham, he should have known what he was walking into...`\
 https://nytimes.com/athletic/6931296/2026/01/13/paratici-tottenham-lewis-lange/
-
-**The dos and don'ts of being a Manchester United interim manager**\
-`A beginner's guide to taking temporary charge of one of the biggest clubs in the world `\
-https://nytimes.com/athletic/6963226/2026/01/13/man-utd-interim-manager/
 

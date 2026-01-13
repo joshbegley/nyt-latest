@@ -1,3 +1,11 @@
+**Taremi is Forest's leading striker target - how does he compare to other options?**\
+`The Iranian tops Forest's shortlist for a new forward - so how would he fit in under Dyche, and what do the other targets offer?`\
+https://nytimes.com/athletic/6963869/2026/01/13/mehdi-taremi-nottingham-forest-transfer/
+
+**The Transfer DealSheet: The latest on your club's transfer window plans**\
+`Welcome to The Athletic's weekly look at the transfer market during the January window`\
+https://nytimes.com/athletic/6963068/2026/01/13/transfer-latest-manchester-united-liverpool-aston-villa-arsenal-january-window/
+
 **Jon Stewart Skewers Trump as ‘Acting President of Venezuela’**\
 `“Doesn’t your oath of office to America have a noncompete?” the “Daily Show” host asked President Trump.`\
 https://nytimes.com/2026/01/13/arts/television/late-night-trump-venezuela.html
