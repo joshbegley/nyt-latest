@@ -1,3 +1,23 @@
+**Saliba, Trossard doubts vs. Chelsea, Calafiori remains out for 'weeks'**\
+`Neither Saliba or Trossard were in the matchday squad for Arsenal’s win vs. Portsmouth and Calafiori has missed Arsenal’s last five games.`\
+https://nytimes.com/athletic/6965904/2026/01/13/saliba-trossard-calafiori-arsenal-team-news/
+
+**Matt LaFleur 'speechless' after Aaron Rodgers' passionate defense of the Packers coach**\
+`After Pittsburgh's season ended, Rodgers not only stood up for his current coach, Mike Tomlin, but for his former coach, Matt LaFleur.`\
+https://nytimes.com/athletic/6965838/2026/01/13/matt-lefleur-response-aaron-rodgers-defense/
+
+**Food Prices Shot up in December**\
+`Beef, coffee and produce are among the items that have gotten more expensive recently, inflation data on Tuesday showed.`\
+https://nytimes.com/2026/01/13/business/economy/inflation-cpi-report-food-prices.html
+
+**Morocco's Regragui defends African football following criticism of AFCON referees**\
+`The Algerian Football Federation said that officiating in the team's 2-0 loss to Nigeria "undermined the credibility of African refereeing".`\
+https://nytimes.com/athletic/6965866/2026/01/13/afcon-referees-morocco-walid-regragui/
+
+**Read the Clintons’ Legal Letter to Comer**\
+`Lawyers for Bill and Hillary Clinton wrote a letter to Representative James R. Comer of Kentucky, the Republican chairman of the Oversight Committee.`\
+https://nytimes.com/interactive/2026/01/13/us/politics/clinton-legal-letter-comer.html
+
 **Morocco's Regragui defends African football following criticism of AFCON referees**\
 `The Algerian Football Federation said that refereeing in the team's 2-0 loss to Nigeria "undermined the credibility of African refereeing".`\
 https://nytimes.com/athletic/6965866/2026/01/13/afcon-referees-morocco-walid-regragui/
