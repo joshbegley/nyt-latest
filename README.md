@@ -1,3 +1,11 @@
+**Alonso's sacking is the ultimate reminder that only Perez rules at Real Madrid**\
+`The 44-year-old manager was fired on Monday, just under eight months into his new role at the Bernabeu`\
+https://nytimes.com/athletic/6965374/2026/01/13/real-madrid-xabi-alonso-sacking-florentino-perez-power/
+
+**Madrid hand fitness coach Pintus bigger role after Alonso's sacking**\
+`The 63-year-old will return to a key role in the day-to-day physical training of the first team, having taken a back seat this season. `\
+https://nytimes.com/athletic/6965352/2026/01/13/real-madrid-antonio-pintus-fitness-return/
+
 **Man United reach agreement in principle to appoint Carrick as interim head coach**\
 `Should everything progress as planned Carrick's first game in charge would be against rivals Manchester City on Saturday at Old Trafford.`\
 https://nytimes.com/athletic/6944757/2026/01/13/manchester-united-michael-carrick-interim-manager/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010641080/trump-iran-options-di
 **Taremi is Forest's leading striker target - how does he compare to other options?**\
 `The Iranian tops Forest's shortlist for a new forward - so how would he fit in under Dyche, and what do the other targets offer?`\
 https://nytimes.com/athletic/6963869/2026/01/13/mehdi-taremi-nottingham-forest-transfer/
-
-**The Transfer DealSheet: The latest on your club's transfer window plans**\
-`Welcome to The Athletic's weekly look at the transfer market during the January window`\
-https://nytimes.com/athletic/6963068/2026/01/13/transfer-latest-manchester-united-liverpool-aston-villa-arsenal-january-window/
-
-**Jon Stewart Skewers Trump as ‘Acting President of Venezuela’**\
-`“Doesn’t your oath of office to America have a noncompete?” the “Daily Show” host asked President Trump.`\
-https://nytimes.com/2026/01/13/arts/television/late-night-trump-venezuela.html
 
