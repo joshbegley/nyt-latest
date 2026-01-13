@@ -1,3 +1,7 @@
+**Yankees-Cody Bellinger staredown features disconnect over free agency trends**\
+`At least one area of friction appears to be differing interpretations of the market and Bellinger’s standing in it, league sources said.`\
+https://nytimes.com/athletic/6964736/2026/01/12/yankees-cody-bellinger-free-agency/
+
 **Minnesota and Illinois Sue Trump Administration Over ICE Deployments**\
 `Minnesota and Illinois filed federal lawsuits against the Trump administration, claiming that the deployment of immigration agents to the Minneapolis and Chicago areas violated states’ rights.`\
 https://nytimes.com/video/us/politics/100000010640726/minnesot-illinois-trump-lawsuit.html
