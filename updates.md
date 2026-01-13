@@ -1,3 +1,11 @@
+**Full Time: USWNT star coming home**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6965022/2026/01/12/lindsey-heaps-denver-full-time/
+
+**Texans' Nico Collins carted off field vs. Steelers, ruled out with concussion**\
+`According to the ESPN broadcast, Collins was hunched over for “a good minute” after his injury and struggled to make it to the medical tent.`\
+https://nytimes.com/athletic/6965020/2026/01/12/nico-collins-concussion-texans-steelers/
+
 **Labor Secretary’s Aides Placed on Leave in Misconduct Investigation**\
 `The Labor Department is investigating a complaint alleging misconduct by Secretary Lori Chavez-DeRemer.`\
 https://nytimes.com/2026/01/12/business/lori-chavez-deremer-misconduct-investigation.html
