@@ -1,3 +1,7 @@
+**Reporter says she doesn't regret viral moment of praise for Jaguars’ Liam Coen**\
+`Lynn Jones, a longtime reporter in Jacksonville, had postgame kindness instead of questions. It set off a debate about journalistic ethics.`\
+https://nytimes.com/athletic/6964428/2026/01/12/liam-coen-lynn-jones-jaguars-journalistic-ethics/
+
 **NHL announces 2026 draft will be held at Buffalo's KeyBank Center**\
 `The NHL Draft, currently scheduled for June 26 and 27, is returning to Buffalo for the fourth time.`\
 https://nytimes.com/athletic/6963432/2026/01/12/nhl-draft-2026-buffalo-keybank-center/
