@@ -1,40 +1,40 @@
-**For battered magician Aaron Rodgers, this latest act ended without one final trick**\
-`If the Steelers' playoff loss was Aaron Rodgers' final act, it won’t be a wholly satisfying one. Yet it won’t define Rodgers, either.`\
-https://nytimes.com/athletic/6965435/2026/01/13/aaron-rodgers-steelers-texans-retirement/
+**Writers’ Festival Unraveled After It Disinvited Palestinian Australian Author**\
+`Organizers said her presence was not “culturally sensitive” after a mass shooting that targeted Jewish Australians. Nearly 200 other writers withdrew in protest.`\
+https://nytimes.com/2026/01/13/world/australia/australia-adelaide-writers-palestinian-cancel.html
 
-**Cavallo alleges homophobia forced Adelaide United exit**\
-`Australia's first openly gay men's footballer said he was kept out of the team due to his sexuality, claims that the club denied.`\
-https://nytimes.com/athletic/6965427/2026/01/13/josh-cavallo-homophobia-adelaide-united/
+**Rangers dip below .500 with another dud at home: Observations**\
+`The Rangers had an early two-goal lead but got dominated in the second and third periods, and suffered their fourth straight loss.`\
+https://nytimes.com/athletic/6965050/2026/01/13/rangers-miller-perreault-kraken-kakko-lindgren/
 
-**‘Shoot to Kill’: Accounts of Brutal Crackdown Emerge From Iran**\
-`The Iranian authorities have imposed an information blackout as they try to quell protests, but eyewitness testimony and videos conveying the deadly toll have made their way out.`\
-https://nytimes.com/2026/01/13/world/middleeast/iran-protester-deaths.html
+**Lessons from Panthers' reality check, Benson's promotion, more: Sabres thoughts**\
+`The Sabres couldn't quite match up to a Florida team well-experienced in managing a playoff push late into the season.`\
+https://nytimes.com/athletic/6965112/2026/01/13/sabres-benson-power-defense-panthers/
 
-**If not now, then when? The Tomlin Steelers' playoff drought lives on**\
-`A blowout loss plunges Pittsburgh into an offseason of uncertainty, specifically with their coach and quarterback Aaron Rodgers.`\
-https://nytimes.com/athletic/6965305/2026/01/13/mike-tomlin-pittsburgh-steelers-playoff-drought/
+**What went wrong for the 2025 Dallas Cowboys? Defense, defense, defense**\
+`The Cowboys had a second consecutive losing season for the first time in 23 seasons after finishing 7-9-1.`\
+https://nytimes.com/athletic/6964096/2026/01/13/dallas-cowboys-2025-season-review-defense/
 
-**MLB trying to ‘force’ players into salary cap, union says, as Manfred walks a tricky line**\
-`MLB commissioner Rob Manfred's recent comments on a salary cap system prompted a strong response from baseball's union.`\
-https://nytimes.com/athletic/6964828/2026/01/13/mlb-union-league-salary-cap/
+**Halfway through his sophomore year, Michkov is still struggling with stagnancy**\
+`With the Flyers dealing with plenty of injuries, Michkov had a chance to make his mark high in the lineup but did not.`\
+https://nytimes.com/athletic/6965087/2026/01/13/flyers-michkov-sophomore-season-lightning/
 
-**One trade every NBA team’s fan base would most likely want to undo**\
-`There's likely plenty to talk about in the next few weeks ahead of the trade deadline. But we figured now was a good time to look back.`\
-https://nytimes.com/athletic/6943104/2026/01/13/luka-doncic-trade-nba-undo-deals/
+**Nobody wanted him. Now Indiana's D'Angelo Ponds is terrorizing the Playoff**\
+`Once overlooked for his size, D’Angelo Ponds is now wrecking the College Football Playoff during Indiana's run.`\
+https://nytimes.com/athletic/6964683/2026/01/13/dangelo-ponds-indiana-playoff-terroizing/
 
-**Browns' elite defense, promising young players among selling points for next head coach**\
-`Cleveland's roster features a defense led by Myles Garrett and a promising 2025 rookie class to build around. `\
-https://nytimes.com/athletic/6964613/2026/01/13/browns-defense-head-coach-selling-points/
+**Eagles are in search of a 'home base,' says Jalen Hurts. Will a new OC get them there?**\
+`The fate of first-time offensive coordinator Kevin Patullo has not yet been announced.`\
+https://nytimes.com/athletic/6963680/2026/01/13/eagles-offensive-coordinator-jalen-hurts/
 
-**Baseball Hall of Fame ballots: The Athletic's voters explain their selections**\
-`Twelve of The Athletic's Hall of Fame voters reveal their ballots and discuss the thinking behind some of their selections. `\
-https://nytimes.com/athletic/6964103/2026/01/13/baseball-hall-of-fame-ballots-2026/
+**Makai Lemon, Ty Simpson and other intriguing 2026 NFL Draft early entrants**\
+`Aside from the obvious top-10 talents in this year's draft class, which prospects might draw the most attention of NFL scouts and GMs?`\
+https://nytimes.com/athletic/6964294/2026/01/13/nfl-draft-2026-prospects-underclassmen-ty-simpson/
 
-**The New York Times International Edition in Print for Wednesday, Jan. 14, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/01/13/todays-new-york-times-international-edition
+**Submit your questions for Jen McCaffrey's next Red Sox mailbag!**\
+`Submit your questions for Jen McCaffrey's next mailbag.`\
+https://nytimes.com/athletic/6963835/2026/01/13/red-sox-mailbag-submission-ask/
 
-**Deposed Shah’s Son Seeks Center Stage Amid Iran Protests**\
-`Reza Pahlavi, living in exile in the United States, has long marketed himself as a future leader of Iran. His father’s repressive legacy casts a long shadow.`\
-https://nytimes.com/2026/01/13/world/middleeast/iran-protests-shah-son-pahlavi.html
+**Leitch: Indiana football fans are suddenly everywhere. Who can blame them?**\
+`There are Indiana fans everywhere because things like this so rarely happen. Who could possibly resist a sports story unlike any other?`\
+https://nytimes.com/athletic/6964127/2026/01/13/indiana-football-fans-national-championship/
 
