@@ -1,3 +1,7 @@
+**Word of the Day: skein**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/13/learning/word-of-the-day-skein.html
+
 **Venus Williams, 45, loses to Tatjana Maria, 38, in highest age WTA match ever**\
 `The combined age of 84 years and 1 day is the largest between two opponents in a main draw match in WTA competition.`\
 https://nytimes.com/athletic/6965162/2026/01/13/venus-williams-loses-highest-combined-age-wta-match/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6963638/2026/01/13/the-rise-of-max-alleyne-the-cric
 **Serie A Briefing: McTominay magic and the ripple effect in Italy to Man United sacking Amorim**\
 `Napoli fought back to draw away to Inter thanks to a brace from McTominay - both they and Roma have had an eye on players at Old Trafford`\
 https://nytimes.com/athletic/6963117/2026/01/13/napoli-mctominay-serie-a-mainoo-conte-roma-zirkzee/
-
-**Wild hit everything but the net in Hughes Bowl letdown against Devils: Takeaways**\
-`The Wild missed the net 16 times in the first two periods in Quinn Hughes' first game against his brothers as a Wild player.`\
-https://nytimes.com/athletic/6964886/2026/01/13/wild-quinn-hughes-bowl-foligno-devils/
 
