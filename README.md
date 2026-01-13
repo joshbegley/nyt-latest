@@ -1,3 +1,7 @@
+**The New York Times in Print for Tuesday, Jan. 13, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/13/todays-new-york-times
+
 **Inside Newcastle Q&A: Will there be January signings? What is happening with Sandro Tonali**\
 `Our correspondent answers your pressing questions about the club as they navigate an intense schedule of games`\
 https://nytimes.com/athletic/6962964/2026/01/13/newcastle-january-transfers-tonali/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6964886/2026/01/13/wild-quinn-hughes-bowl-foligno-d
 **Bundesliga Briefing: Younes Ebnoutalib hits the big time, player whisperer Sebastian Hoeness on the rise**\
 `The striker continued his rise through the divisions, scoring on his top-flight debut, while Hoeness continues to turn heads at Stuttgart`\
 https://nytimes.com/athletic/6963078/2026/01/13/bundesliga-briefing-ebnoutalib-frankfurt-hoeness-stuttgart/
-
-**Myles Lewis-Skelly and the intensifying race to be England's World Cup left-back**\
-`The Arsenal player had a stellar 2024-25 season but a lack of playing time with his club recently has not been kind to his World Cup hopes`\
-https://nytimes.com/athletic/6963477/2026/01/13/england-tuchel-left-back-options-world-cup/
 
