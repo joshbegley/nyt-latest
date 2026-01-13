@@ -1,3 +1,7 @@
+**Trump Administration Will End Deportation Protections for Somalis**\
+`The temporary protections, which are meant to help migrants who cannot safely return to their countries, are expected to expire for Somalis on March 17.`\
+https://nytimes.com/2026/01/13/us/politics/trump-deportation-protections-somalis.html
+
 **Chargers fire Greg Roman after offense fizzles out in playoffs**\
 `One playoff disappointment was palatable. Two proved to be too much for Harbaugh and the rest of the Chargers’ higher-ups.`\
 https://nytimes.com/athletic/6964307/2026/01/13/chargers-fire-greg-roman/
@@ -18,7 +22,7 @@ https://nytimes.com/2026/01/13/us/politics/adf-a-christian-conservative-legal-or
 `Tips for upgrading your work space and feeling both more organized and more creative.`\
 https://nytimes.com/article/desk-organization-home-design.html
 
-**College football coaches recommend allowing players to play 9 games and use redshirt**\
+**College football coaches recommend extending redshirt rule to 9 games**\
 `Tuesday's recommendation is not an official NCAA proposal but will be put in front of NCAA committees.`\
 https://nytimes.com/athletic/6966576/2026/01/13/college-football-coaches-redshirt-rule-eligibility/
 

@@ -1,3 +1,15 @@
+**Chargers fire Greg Roman after offense fizzles out in playoffs**\
+`One playoff disappointment was palatable. Two proved to be too much for Harbaugh and the rest of the Chargers’ higher-ups.`\
+https://nytimes.com/athletic/6964307/2026/01/13/chargers-fire-greg-roman/
+
+**A.D.F., a Christian conservative legal organization, is assisting Idaho and West Virginia.**\
+`By Abbie VanSickle`\
+https://nytimes.com/2026/01/13/us/politics/adf-a-christian-conservative-legal-organization-is-assisting-idaho-and-west-virginia.html
+
+**Before White House Meeting, Greenland’s Leader Says Island Would Choose Denmark Over U.S.**\
+`Greenland’s leader said that, if given the choice between the United States and Denmark, the Greenlanders would rather stick with the Danes.`\
+https://nytimes.com/2026/01/13/us/politics/greenland-denmark-trump-frederiksen.html
+
 **Carta, in the West Village, Keeps the Wine Flowing at Aperitivo**\
 `The new wine bar, also in the West Village, focuses on France and Greece; an Australian pub opens on the Lower East Side; and more restaurant news.`\
 https://nytimes.com/2026/01/13/dining/nyc-restaurant-news.html

@@ -1,3 +1,7 @@
+**Chargers fire Greg Roman after offense fizzles out in playoffs**\
+`One playoff disappointment was palatable. Two proved to be too much for Harbaugh and the rest of the Chargers’ higher-ups.`\
+https://nytimes.com/athletic/6964307/2026/01/13/chargers-fire-greg-roman/
+
 **Carta, in the West Village, Keeps the Wine Flowing at Aperitivo**\
 `The new wine bar, also in the West Village, focuses on France and Greece; an Australian pub opens on the Lower East Side; and more restaurant news.`\
 https://nytimes.com/2026/01/13/dining/nyc-restaurant-news.html
@@ -8,7 +12,7 @@ https://nytimes.com/athletic/6965638/2026/01/13/aberdeen-fan-jailed-jack-mackenz
 
 **A.D.F., a Christian conservative legal organization, is assisting Idaho and West Virginia.**\
 `By Abbie VanSickle`\
-https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/adf-a-christian-conservative-legal-organization-is-assisting-idaho-and-west-virginia
+https://nytimes.com/2026/01/13/us/politics/adf-a-christian-conservative-legal-organization-is-assisting-idaho-and-west-virginia.html
 
 **How to Arrange Your Desk**\
 `Tips for upgrading your work space and feeling both more organized and more creative.`\
@@ -26,11 +30,7 @@ https://nytimes.com/athletic/6966489/2026/01/13/falcons-coaching-search-matt-rya
 `The justice, a sports buff, has coached girls’ basketball teams for many years and has often reflected on the role such mentoring can play.`\
 https://nytimes.com/2026/01/13/us/politics/brett-kavanaugh-trans-athletes.html
 
-**Greenland’s leader says before White House meeting that the island would choose Denmark over the U.S.**\
+**Before White House Meeting, Greenland’s Leader Says Island Would Choose Denmark Over U.S.**\
 `Greenland’s leader said that, if given the choice between the United States and Denmark, the Greenlanders would rather stick with the Danes.`\
-https://nytimes.com/live/2026/01/13/us/trump-news/greenland-denmark-trump-frederiksen
-
-**How Readers Voted on 17 Ways to Improve New York City**\
-`The top suggestions include spending more of the city’s budget on parks and libraries and fixing the Brooklyn-Queens Expressway.`\
-https://nytimes.com/2026/01/13/arts/design/mamdani-improve-new-york-vote-results.html
+https://nytimes.com/2026/01/13/us/politics/greenland-denmark-trump-frederiksen.html
 
