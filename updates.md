@@ -1,3 +1,11 @@
+**George Kittle posts 'I'll be good' on Instagram after tearing Achilles tendon**\
+`The 49ers' All-Pro tight end was injured during the 49ers' wild-card victory over the Eagles on Sunday.`\
+https://nytimes.com/athletic/6964758/2026/01/12/george-kittle-achilles-injury-social-media-post-reaction/
+
+**Yankees-Cody Bellinger staredown features disconnect over free agency trends: Sources**\
+`At least one area of friction appears to be differing interpretations of the market and Bellinger’s standing in it, league sources said.`\
+https://nytimes.com/athletic/6964736/2026/01/12/yankees-cody-bellinger-free-agency/
+
 **Former U.S. Navy Sailor Gets Nearly 17 Years in Prison for Spying for China**\
 `Jinchao Wei sold technical manuals for American warships to a Chinese intelligence officer who had recruited him on social media.`\
 https://nytimes.com/2026/01/12/us/us-navy-sailor-china-spy-sentenced.html
