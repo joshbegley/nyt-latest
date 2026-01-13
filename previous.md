@@ -1,3 +1,11 @@
+**Eric Adams Launched a Crypto Coin. A Day Later, $1 Million Was Missing.**\
+`Officials tied to the venture insisted no money had been stolen, but the withdrawal caused the coin’s value to plunge.`\
+https://nytimes.com/2026/01/13/nyregion/adams-crypto-token-money.html
+
+**Meet the 11-year-old viral Eagles fan who resonated with Philly fans**\
+`The 11-year-old who expressed frustration with ex-offensive coordinator Kevin Patullo and wideout AJ Brown wants to a pro tennis player.`\
+https://nytimes.com/athletic/6967800/2026/01/13/who-is-young-eagles-fan-sam-salvo/
+
 **Guardiola critcises officiating after six-minute VAR check during Man City victory**\
 `In a lengthy rant, Guardiola criticised the long VAR check and referenced refereeing decisions that had previously gone against his team.`\
 https://nytimes.com/athletic/6967918/2026/01/13/pep-guardiola-rant-var-refereeing-man-city-newcastle/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/13/nyregion/mamdani-albany.html
 **Olympic Fans Get First Chance to Buy Tickets to 2028 Games in Los Angeles**\
 `Starting Wednesday, prospective buyers can enter a lottery to get a chance to purchase the first tickets in April.`\
 https://nytimes.com/2026/01/13/us/olympics-los-angeles-2028-tickets.html
-
-**Potential candidates to replace former Chargers offensive coordinator Greg Roman**\
-`The Chargers need to modernize their offense and create an infrastructure that relies less on Herbert’s out-of-structure playmaking.`\
-https://nytimes.com/athletic/6967712/2026/01/13/charges-offensive-coordinator-candidates-nfl/
-
-**Trump Supports the Protesters, Except Those Protesting Him**\
-`The split-screen television images of mass demonstrations in Minneapolis and Tehran have highlighted the president’s disparate views of democracy and popular dissent.`\
-https://nytimes.com/2026/01/13/us/politics/trump-protesters-iran-minnesota.html
 

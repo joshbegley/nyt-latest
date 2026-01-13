@@ -3,7 +3,7 @@
 https://nytimes.com/2026/01/13/nyregion/adams-crypto-token-money.html
 
 **Meet the 11-year-old viral Eagles fan who resonated with Philly fans**\
-`The 11-year-old who expressed frustration with ex-offensive coordinator Kevin Patullo and wideout AJ Brown wants to a pro tennis player.`\
+`Salvo expressed frustration with ex-offensive coordinator Kevin Patullo and wideout A.J. Brown.`\
 https://nytimes.com/athletic/6967800/2026/01/13/who-is-young-eagles-fan-sam-salvo/
 
 **Guardiola critcises officiating after six-minute VAR check during Man City victory**\
