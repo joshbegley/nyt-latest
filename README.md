@@ -1,3 +1,11 @@
+**Claudette Colvin, Who Refused to Give Her Bus Seat to a White Woman, Dies at 86**\
+`Her defiance of Jim Crow laws in 1955 made her a star witness in a landmark segregation suit, but her act was overshadowed months later when Rosa Parks made history with a similar stand.`\
+https://nytimes.com/2026/01/13/us/politics/claudette-colvin-dead.html
+
+**Flyers getting healthier, but have some issues ahead of a critical road trip**\
+`Rick Tocchet said there was a “possibility” the club would get defenseman Jamie Drysdale and forward Bobby Brink back on Wednesday`\
+https://nytimes.com/athletic/6967645/2026/01/13/flyers-injuries-jamie-drysdale-bobby-brink/
+
 **Justices Seem Inclined to Uphold Laws Barring Transgender Athletes**\
 `Also, accounts of a brutal crackdown emerge from Iran. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2026/01/13/briefing/supreme-court-transgender-athletes-iran-protests.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6967655/2026/01/13/david-stearns-mets-roster-free-a
 **Giants, Falcons, Titans emerge as favorites to land John Harbaugh: Sources**\
 `The three teams have all been in daily communication with Harbaugh and his agent, Bryan Harlan.`\
 https://nytimes.com/athletic/6967631/2026/01/13/giants-falcons-titans-coaching-search-john-harbaugh/
-
-**The Briefing: Newcastle 0 Man City 2 - Semenyo strikes (and officials take six minutes to disallow second)**\
-`Guardiola's team take a strong lead into the second leg of this Carabao Cup semi-final - but there was controversy during their win`\
-https://nytimes.com/athletic/6963334/2026/01/13/semenyo-man-city-haaland-offside-goal-newcastle/
-
-**Paraglider Survives 500-Foot Plunge Into Ocean off Florida**\
-`A paraglider was rescued by lifeguards after crashing 500 feet into the Atlantic Ocean off Florida on Friday.`\
-https://nytimes.com/video/us/100000010643106/paraglider-survives-500-foot-plunge-into-ocean-off-florida.html
 

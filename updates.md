@@ -1,3 +1,11 @@
+**Justices Seem Inclined to Uphold Laws Barring Transgender Athletes**\
+`Also, accounts of a brutal crackdown emerge from Iran. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/01/13/briefing/supreme-court-transgender-athletes-iran-protests.html
+
+**U.S. to Name Palestinian Committee to Run Gaza**\
+`Officials said the body’s leadership could be announced as soon as Wednesday, but U.S. efforts to shape postwar Gaza by disarming Hamas have faced hurdles.`\
+https://nytimes.com/2026/01/13/world/middleeast/gaza-palestinian-committee.html
+
 **Trump nominates a company chief and Republican donor, David MacNeil, to the F.T.C.**\
 `By David McCabe`\
 https://nytimes.com/live/2026/01/13/us/trump-news/trump-nominates-a-company-chief-and-republican-donor-david-macneil-to-the-ftc
