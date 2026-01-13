@@ -1,3 +1,27 @@
+**Newsom Vows to Stop Proposal to Tax Billionaires in California**\
+`Gov. Gavin Newsom said he was working behind the scenes to block a proposed tax on billionaires’ wealth and was committed to defeating the measure if it reached the ballot.`\
+https://nytimes.com/2026/01/13/us/newsom-billionaire-tax-california.html
+
+**Fabio Paratici's second spell at Spurs is already almost over - why didn't it work out?**\
+`If the Italian thought he was getting total control on his return to Tottenham, he should have known what he was walking into...`\
+https://nytimes.com/athletic/6931296/2026/01/13/paratici-tottenham-lewis-lange/
+
+**The dos and don'ts of being a Manchester United interim manager**\
+`A beginner's guide to taking temporary charge of one of the biggest clubs in the world `\
+https://nytimes.com/athletic/6963226/2026/01/13/man-utd-interim-manager/
+
+**How Arsenal play: An increasingly dynamic midfield, more verticality and a subtle pressing tweak**\
+`The Athletic's series taking the tactical temperature at the Premier League's 'Big Six' continues with a look at Mikel Arteta's side`\
+https://nytimes.com/athletic/6949095/2026/01/13/how-arsenal-play-premier-league-tactics/
+
+**The rise of Max Alleyne: The cricketer's son making strides at Manchester City**\
+`Recalled from a loan at Watford by an injury-depleted City, the England Under-21 defender has made a seamless transition to the first team  `\
+https://nytimes.com/athletic/6963638/2026/01/13/the-rise-of-max-alleyne-the-cricketers-son-making-the-cut-at-man-city/
+
+**Serie A Briefing: McTominay magic and the ripple effect in Italy to Man United sacking Amorim**\
+`Napoli fought back to draw away to Inter thanks to a brace from McTominay - both they and Roma have had an eye on players at Old Trafford`\
+https://nytimes.com/athletic/6963117/2026/01/13/napoli-mctominay-serie-a-mainoo-conte-roma-zirkzee/
+
 **Wild hit everything but the net in Hughes Bowl letdown against Devils: Takeaways**\
 `The Wild missed the net 16 times in the first two periods in Quinn Hughes' first game against his brothers as a Wild player.`\
 https://nytimes.com/athletic/6964886/2026/01/13/wild-quinn-hughes-bowl-foligno-devils/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6963477/2026/01/13/england-tuchel-left-back-options
 **How a Syrian Hiking Club Is Rediscovering the Country**\
 `The nearly 14-year civil war prevented Syrians from traveling freely to many parts of their own country. After the conflict ended a year ago, a group of outdoor enthusiasts began exploring newly accessible areas, fueled by a sense of adventure and hope.`\
 https://nytimes.com/2026/01/13/world/middleeast/syria-civil-war-hikers.html
-
-**Quote of the Day: His Weapon Against Russia’s Classroom Militarism: A Camera**\
-`Quotation of the Day for Tuesday, January 13, 2026.`\
-https://nytimes.com/2026/01/13/pageoneplus/quote-of-the-day-his-weapon-against-russias-classroom-militarism-a-camera.html
-
-**China’s ‘Dr. Frankenstein’ Thinks Time Is on His Side**\
-`He Jiankui spent three years in prison after creating gene-edited babies. Now back at work, he sees a greater opening for researchers who push boundaries.`\
-https://nytimes.com/2026/01/13/world/asia/china-gene-edited-scientist-he-jiankui.html
-
-**Why China Is Suddenly Obsessed With American Poverty**\
-`State media, embracing the gaming phrase “kill line,” is asserting China’s political superiority over the United States, deflecting focus on China’s own economic challenges.`\
-https://nytimes.com/2026/01/13/business/china-american-poverty.html
-
-**Connections: Sports Edition Coach: Hints for Jan. 13, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6964603/2026/01/13/connections-sports-edition-hints-for-jan-13-2026/
-
-**Corrections: Jan. 13, 2026**\
-`Corrections that appeared in print on Tuesday, Jan. 13, 2026.`\
-https://nytimes.com/2026/01/13/pageoneplus/corrections-jan-13-2026.html
-
-**Joe Mazzulla repeats 'illegal screen' in postgame presser after Celtics' loss to Pacers**\
-`Mazzulla’s comments were out of character for him. He hardly ever complains about the referees.`\
-https://nytimes.com/athletic/6965049/2026/01/12/joe-mazzulla-illegal-screen-postgame-celtics-pacers/
 
