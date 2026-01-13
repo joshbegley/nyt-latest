@@ -1,3 +1,11 @@
+**Eagles’ Kevin Patullo out as offensive coordinator, could stay on staff**\
+`"Ultimately, when we fall short of our goals that responsibility lies on my shoulders," Eagles head coach Nick Sirianni said in a statement.`\
+https://nytimes.com/athletic/6845905/2026/01/13/kevin-patullo-out-eagles-offensive-coordinator/
+
+**BTS Unveils World Tour Dates. Here’s Where They’ve Been.**\
+`The K-pop superstars will go on a colossal comeback tour: 79 shows across five continents in 11 months. But why were they gone for so long?`\
+https://nytimes.com/2026/01/13/arts/music/bts-world-tour-concerts-2026-2027.html
+
 **Blowback Builds Over Criminal Investigation of Powell**\
 `Trump allies fear that the inquiry into the Fed chair could complicate the process of replacing him this year.`\
 https://nytimes.com/2026/01/13/us/politics/jerome-powell-investigation-blowback.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6967475/2026/01/13/nuggets-vs-pelicans-stream-how-t
 **How to watch Stars vs. Ducks: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the Anaheim Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6967472/2026/01/13/stars-vs-ducks-stream-how-to-watch-jan-13/
-
-**How to watch Islanders vs. Jets: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6967466/2026/01/13/islanders-vs-jets-stream-how-to-watch-jan-13/
-
-**How to watch Hawks vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6967464/2026/01/13/hawks-vs-lakers-stream-how-to-watch-jan-13/
 
