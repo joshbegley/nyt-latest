@@ -1,3 +1,7 @@
+**Scoop City: Houston's historic performance**\
+`A historically great defense might've ended the careers of both Mike Tomlin and Aaron Rodgers. Plus, a quick look at coaching carousel`\
+https://nytimes.com/athletic/6967596/2026/01/13/steelers-texans-recap-defense-coaching-search-2026/
+
 **Claudette Colvin, Who Refused to Give Her Bus Seat to a White Woman, Dies at 86**\
 `Her defiance of Jim Crow laws in 1955 made her a star witness in a landmark segregation suit, but her act was overshadowed months later when Rosa Parks made history with a similar stand.`\
 https://nytimes.com/2026/01/13/us/politics/claudette-colvin-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6967682/2026/01/13/dechambeau-rahm-smith-stay-liv-g
 **Why David Stearns still likes the Mets' incomplete roster**\
 `Stearns praised the blend of veterans and promising prospects, but said the roster "is going to get better before we get to Opening Day."`\
 https://nytimes.com/athletic/6967655/2026/01/13/david-stearns-mets-roster-free-agency/
-
-**Giants, Falcons, Titans emerge as favorites to land John Harbaugh: Sources**\
-`The three teams have all been in daily communication with Harbaugh and his agent, Bryan Harlan.`\
-https://nytimes.com/athletic/6967631/2026/01/13/giants-falcons-titans-coaching-search-john-harbaugh/
 
