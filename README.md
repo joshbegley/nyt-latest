@@ -1,3 +1,7 @@
+**NBA weekly watch guide: More Spurs-Thunder, Berlin game, return of ESPN Fridays**\
+`Here's how to watch the NBA's upcoming games on national TV. Friday opens a new broadcast window for ESPN.`\
+https://nytimes.com/athletic/6964405/2026/01/13/nba-spurs-thunder-berlin-espn-how-to-watch/
+
 **Delta Offers Optimistic Outlook as Travelers Continue to Splurge**\
 `Delta Air Lines said it was expecting profits to rise by around 20 percent in 2026 thanks to strong demand for premium tickets.`\
 https://nytimes.com/2026/01/13/business/delta-airlines-premium-travel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6964348/2026/01/13/bob-bostad-curt-cignetti-indiana
 **Can We Build a Better Social Network?**\
 `A “Hard Fork” and “Search Engine” collaboration.`\
 https://nytimes.com/2026/01/13/podcasts/can-we-build-a-better-social-network.html
-
-**Liverpool? Man City? Somewhere else? Where Alonso could go next after his Madrid sacking**\
-`Alonso remains one of Europe's most promising coaches despite his Madrid exit. We run through some of his possible next options`\
-https://nytimes.com/athletic/6965515/2026/01/13/xabi-alonso-real-madrid-liverpool-man-city-future/
 
