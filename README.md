@@ -1,3 +1,19 @@
+**West Ham players would have to take a 50 per cent pay cut if club is relegated**\
+`A West Ham source, who asked to be kept anonymous, insists it is a stipulation the club have always inserted into players' deals.`\
+https://nytimes.com/athletic/6966393/2026/01/13/west-ham-squad-pay-cut-relegation/
+
+**Organizing bodies have grappled with gender issues, pleasing few.**\
+`By Juliet Macur`\
+https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/organizing-bodies-have-grappled-with-gender-issues-pleasing-few
+
+**Cardinals set to trade Nolan Arenado to D-Backs, ending long saga: Sources**\
+`The deal wraps up a long saga of the Cardinals attempting to trade their cornerstone third baseman.`\
+https://nytimes.com/athletic/6826612/2026/01/13/nolan-arenado-trade-cardinals-diamondbacks-mlb/
+
+**Marine Le Pen’s Appeal to Overturn Embezzlement Conviction Begins**\
+`Marine Le Pen, the French far-right leader, began her appeal trial aimed at overturning a ruling by a criminal court in 2025 that convicted her of embezzlement and barred her from running for public office for five years.`\
+https://nytimes.com/video/world/europe/100000010641996/marine-le-pen-ban-appeal.html
+
 **Bill Courtney, Temple MBB assistant and ex-Miami, Cornell coach, dies at 55 years old**\
 `As an assistant, Courtney was integral to Miami making its first Final Four appearance in program history in 2023.`\
 https://nytimes.com/athletic/6966417/2026/01/13/bill-courtney-death-temple-cornell-miami-college-basketball/
@@ -17,20 +33,4 @@ https://nytimes.com/2026/01/13/nyregion/hochul-state-address-speech.html
 **Trump Says London is Unsafe. Its Murder Rate Just Hit a Historic Low.**\
 `The city’s homicide rate is lower than New York, Paris or Toronto, contradicting a narrative promoted by President Trump and others on the populist right.`\
 https://nytimes.com/2026/01/13/world/europe/trump-london-crime-homicide.html
-
-**Six in 2026: AUSL announces home cities for the league's second season**\
-`Chicago, Durham, N.C., Round Rock, Tex., Salt Lake City, Portland (Ore.) and Oklahoma City will all host AUSL franchises in 2026.`\
-https://nytimes.com/athletic/6964868/2026/01/13/athletes-unlimited-softball-league-chicago-texas-utah-carolina-oklahoma-portland/
-
-**Is John Harbaugh the Giants' dream hire at head coach? Breaking down each known candidate**\
-`With help from The Athletic's beat writers, we examine the candidates the Giants are bringing in for interviews to be their next head coach.`\
-https://nytimes.com/athletic/6948299/2026/01/13/ny-giants-head-coach-candidates-list-john-harbaugh-kevin-stefanski/
-
-**Where Mets stand in free agent Kyle Tucker sweepstakes**\
-`Kyle Tucker’s preferences for contract length and dollars (both overall and in annual average value) are unknown.`\
-https://nytimes.com/athletic/6966256/2026/01/13/kyle-tucker-mets-possible-contract-offer/
-
-**Panthers to pick up Bryce Young's fifth-year option, GM Dan Morgan says**\
-`Young had his best season in 2025 and nearly led the Panthers to an upset win in the wild-card round against the Rams.`\
-https://nytimes.com/athletic/6966315/2026/01/13/bryce-young-fifth-year-option-panthers/
 
