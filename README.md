@@ -1,3 +1,7 @@
+**Venus Williams, 45, loses to Tatjana Maria, 38, in highest age WTA match ever**\
+`The combined age of 84 years and 1 day is the largest between two opponents in a main draw match in WTA competition.`\
+https://nytimes.com/athletic/6965162/2026/01/13/venus-williams-loses-highest-combined-age-wta-match/
+
 **The New York Times in Print for Tuesday, Jan. 13, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/13/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6963117/2026/01/13/napoli-mctominay-serie-a-mainoo-
 **Wild hit everything but the net in Hughes Bowl letdown against Devils: Takeaways**\
 `The Wild missed the net 16 times in the first two periods in Quinn Hughes' first game against his brothers as a Wild player.`\
 https://nytimes.com/athletic/6964886/2026/01/13/wild-quinn-hughes-bowl-foligno-devils/
-
-**Bundesliga Briefing: Younes Ebnoutalib hits the big time, player whisperer Sebastian Hoeness on the rise**\
-`The striker continued his rise through the divisions, scoring on his top-flight debut, while Hoeness continues to turn heads at Stuttgart`\
-https://nytimes.com/athletic/6963078/2026/01/13/bundesliga-briefing-ebnoutalib-frankfurt-hoeness-stuttgart/
 
