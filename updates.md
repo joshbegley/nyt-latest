@@ -1,3 +1,7 @@
+**Newcastle identify site for new 'ten out of ten' training ground**\
+`There is a desire to start construction as soon as possible, ideally this year.`\
+https://nytimes.com/athletic/6967162/2026/01/13/newcastle-news-training-ground-update/
+
 **The View From Above Antarctica’s Fastest Melting Glacier**\
 `Times journalists were able to get tantalizingly close to the Thwaites glacier, which scientists are hoping to spend weeks studying up close.`\
 https://nytimes.com/2026/01/13/climate/the-view-from-above-antarcticas-fastest-melting-glacier.html
