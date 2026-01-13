@@ -1,3 +1,7 @@
+**How to watch Bills at Broncos: Divisional Round Time, TV, streaming**\
+`Find out how to watch the Buffalo Bills play the Denver Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6965458/2026/01/13/bills-vs-broncos-stream-how-to-watch-jan-17/
+
 **The Sea Lions of the Galápagos Are Not Ready to Stop Nursing**\
 `Animals that researchers call “supersucklers” come back for their mother’s milk even after they can hunt, mate and fend for themselves.`\
 https://nytimes.com/2026/01/13/science/sea-lions-galapagos-nursing.html
