@@ -1,3 +1,7 @@
+**The Powell Defense Grows**\
+`Former Federal Reserve chiefs, Republican senators and — perhaps most important, many bond investors — raised concerns about an investigation into the bank’s leader.`\
+https://nytimes.com/2026/01/13/business/dealbook/powell-federal-reserve-trump-investigation.html
+
 **Trump Administration Live Updates: President Is Set to Speak About Economy on Michigan Trip**\
 ``\
 https://nytimes.com/live/2026/01/13/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6964405/2026/01/13/nba-spurs-thunder-berlin-espn-ho
 **Delta Offers Optimistic Outlook as Travelers Continue to Splurge**\
 `Delta Air Lines said it was expecting profits to rise by around 20 percent in 2026 thanks to strong demand for premium tickets.`\
 https://nytimes.com/2026/01/13/business/delta-airlines-premium-travel.html
-
-**Liverpool's squad is teetering – they must sign defensive cover**\
-`Conor Bradley's injury should force the club into the market, even if they would rather do their business in the summer`\
-https://nytimes.com/athletic/6965405/2026/01/13/liverpool-transfer-defender-january/
 
