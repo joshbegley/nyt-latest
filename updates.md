@@ -1,3 +1,15 @@
+**Jason Robertson talks about his Olympic snub and big contract year**\
+`Robertson’s 55 points are more than any other U.S. player in the NHL.`\
+https://nytimes.com/athletic/6965434/2026/01/13/stars-jason-robertson-olympics-contract/
+
+**Hochul’s State of the State Quandary: How Far to the Left Will She Lean?**\
+`Gov. Kathy Hochul of New York is expected to adopt some of the affordability message of Mayor Zohran Mamdani of New York City as she faces a contested re-election bid.`\
+https://nytimes.com/2026/01/13/nyregion/hochul-state-address-speech.html
+
+**Trump Says London is Unsafe. Its Murder Rate Just Hit a Historic Low.**\
+`The city’s homicide rate is lower than New York, Paris or Toronto, contradicting a narrative promoted by President Trump and others on the populist right.`\
+https://nytimes.com/2026/01/13/world/europe/trump-london-crime-homicide.html
+
 **Six in 2026: AUSL announces home cities for the league's second season**\
 `Chicago, Durham, N.C., Round Rock, Tex., Salt Lake City, Portland (Ore.) and Oklahoma City will all host AUSL franchises in 2026.`\
 https://nytimes.com/athletic/6964868/2026/01/13/athletes-unlimited-softball-league-chicago-texas-utah-carolina-oklahoma-portland/
