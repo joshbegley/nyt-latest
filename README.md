@@ -1,3 +1,7 @@
+**How to watch Bills at Broncos: Divisional Round Time, TV, streaming**\
+`Find out how to watch the Buffalo Bills play the Denver Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6965458/2026/01/13/bills-vs-broncos-stream-how-to-watch-jan-17/
+
 **The Sea Lions of the Galápagos Are Not Ready to Stop Nursing**\
 `Animals that researchers call “supersucklers” come back for their mother’s milk even after they can hunt, mate and fend for themselves.`\
 https://nytimes.com/2026/01/13/science/sea-lions-galapagos-nursing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/13/opinion/trump-iran-protests-ayatollah.html
 **The Internet May Look Different After You Listen to This**\
 `Even experts can’t tell what’s made by A.I. So what happens to trust now?`\
 https://nytimes.com/2026/01/13/opinion/ai-slop-internet-trust.html
-
-**The New Museum Sets Reopening Date With New Artist Commissions**\
-`After over three years of construction, the museum will open its new building on March 21 with an ambitious show exploring how technologies have changed what it means to be human.`\
-https://nytimes.com/2026/01/13/arts/design/new-museum-sets-reopening-date.html
 
