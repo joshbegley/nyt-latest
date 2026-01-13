@@ -1,3 +1,7 @@
+**Jon Stewart Skewers Trump as ‘Acting President of Venezuela’**\
+`“Doesn’t your oath of office to America have a noncompete?” the “Daily Show” host asked President Trump.`\
+https://nytimes.com/2026/01/13/arts/television/late-night-trump-venezuela.html
+
 **Word of the Day: skein**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/13/learning/word-of-the-day-skein.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6949095/2026/01/13/how-arsenal-play-premier-league-
 **The rise of Max Alleyne: The cricketer's son making strides at Manchester City**\
 `Recalled from a loan at Watford by an injury-depleted City, the England Under-21 defender has made a seamless transition to the first team  `\
 https://nytimes.com/athletic/6963638/2026/01/13/the-rise-of-max-alleyne-the-cricketers-son-making-the-cut-at-man-city/
-
-**Serie A Briefing: McTominay magic and the ripple effect in Italy to Man United sacking Amorim**\
-`Napoli fought back to draw away to Inter thanks to a brace from McTominay - both they and Roma have had an eye on players at Old Trafford`\
-https://nytimes.com/athletic/6963117/2026/01/13/napoli-mctominay-serie-a-mainoo-conte-roma-zirkzee/
 

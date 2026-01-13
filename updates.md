@@ -1,3 +1,7 @@
+**Jon Stewart Skewers Trump as ‘Acting President of Venezuela’**\
+`“Doesn’t your oath of office to America have a noncompete?” the “Daily Show” host asked President Trump.`\
+https://nytimes.com/2026/01/13/arts/television/late-night-trump-venezuela.html
+
 **Word of the Day: skein**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/13/learning/word-of-the-day-skein.html
