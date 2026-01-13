@@ -1,3 +1,15 @@
+**Barring transgender women from women’s sports has been a prominent goal for Republicans.**\
+`By Juliet Macur`\
+https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/banning-transgender-women-from-womens-sports-has-been-a-prominent-goal-for-republicans
+
+**The Killing of Renee Good Was a Turning Point**\
+`The columnists Ezra Klein and M. Gessen discuss the recent shooting of a protester by an ICE agent in Minneapolis and what it means for the country.`\
+https://nytimes.com/video/opinion/100000010629504/the-killing-of-renee-good-was-a-turning-point.html
+
+**Inside Barcelona: Araujo's emotional return, reaction to Alonso sacking**\
+`Ronald Araujo returned in style after an agreed period of leave with Barca, saying 'I learned that stopping at the right time is self love'`\
+https://nytimes.com/athletic/6965822/2026/01/13/barcelona-araujo-alonso-sacking/
+
 **What was your favorite college football game of 2025?**\
 `There's only one game left in a wild 2025 college football season. What was the best game? Here are our staff's favorites.`\
 https://nytimes.com/athletic/6965645/2026/01/13/best-college-football-games-2025-season/

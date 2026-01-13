@@ -1,3 +1,15 @@
+**Barring transgender women from women’s sports has been a prominent goal for Republicans.**\
+`By Juliet Macur`\
+https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/banning-transgender-women-from-womens-sports-has-been-a-prominent-goal-for-republicans
+
+**The Killing of Renee Good Was a Turning Point**\
+`The columnists Ezra Klein and M. Gessen discuss the recent shooting of a protester by an ICE agent in Minneapolis and what it means for the country.`\
+https://nytimes.com/video/opinion/100000010629504/the-killing-of-renee-good-was-a-turning-point.html
+
+**Inside Barcelona: Araujo's emotional return, reaction to Alonso sacking**\
+`Ronald Araujo returned in style after an agreed period of leave with Barca, saying 'I learned that stopping at the right time is self love'`\
+https://nytimes.com/athletic/6965822/2026/01/13/barcelona-araujo-alonso-sacking/
+
 **What was your favorite college football game of 2025?**\
 `There's only one game left in a wild 2025 college football season. What was the best game? Here are our staff's favorites.`\
 https://nytimes.com/athletic/6965645/2026/01/13/best-college-football-games-2025-season/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/heres-the-la
 **Live Updates: Transgender Athletes’ Cases Reach Supreme Court**\
 `Two cases before the justices on Tuesday could affect laws in 27 states that prohibit transgender girls from joining girls’ and women’s sports teams.`\
 https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes
-
-**In comparing Canucks to Canadiens, the benefits of committing to a rebuild are clear**\
-`In the darkest moments of this nascent Canucks rebuild, it's worth taking stock of the very real opportunity that lies ahead.`\
-https://nytimes.com/athletic/6964947/2026/01/13/canucks-canadiens-score-highlights-stats-rebuild/
-
-**A Mustardy Winter Jacket and Two Lush Fur Coats**\
-`A pair of Bernese Mountain dogs and their owner looked charming while strolling through London.`\
-https://nytimes.com/2026/01/13/style/street-style-look-yellow-winter-coat.html
-
-**Greenland Would Be the Largest U.S. Land Acquisition, if Trump Got His Way**\
-`Denmark does not want to sell its territory. But for a real estate mogul turned president, the world’s largest island may be irresistible.`\
-https://nytimes.com/2026/01/13/world/europe/greenland-trump-size.html
 
