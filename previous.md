@@ -1,3 +1,7 @@
+**Synagogue Is Vandalized Days After Anniversary of L.A. Wildfire That Leveled It**\
+`Graffiti denouncing Zionism was discovered Sunday on a wall of the campus, which has not yet been rebuilt after the Eaton fire.`\
+https://nytimes.com/2026/01/12/us/pasadena-synagogue-vandalized.html
+
 **NFL playoff schedule: Divisional round set as Texans move on to face Patriots**\
 `The Texans knocked off Aaron Rodgers and the Steelers to grab the final spot in the divisional round of the NFL playoffs.`\
 https://nytimes.com/athletic/6962268/2026/01/12/2025-nfl-divisional-round-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6964881/2026/01/12/brayden-point-lightning-injury-t
 **Sean McDermott overrules himself on critical, playoff-winning sequence**\
 `“I know as a head coach I’ve never been through that situation,” McDermott said of the scenario the Bills found themselves in on Sunday.`\
 https://nytimes.com/athletic/6964814/2026/01/12/sean-mcdermott-critical-playoff-winning-sequence/
-
-**Fedorov jersey retirement gives his story the ending it deserves in Detroit**\
-`In a long-anticipated ceremony, the Red Wings retired Sergei Fedorov's No. 91 jersey on Monday.`\
-https://nytimes.com/athletic/6964532/2026/01/12/detroit-red-wings-sergei-fedorov-jersey-retirement/
 

@@ -1,3 +1,7 @@
+**Synagogue Is Vandalized Days After Anniversary of L.A. Wildfire That Leveled It**\
+`Graffiti denouncing Zionism was discovered Sunday on a wall of the campus, which has not yet been rebuilt after the Eaton fire.`\
+https://nytimes.com/2026/01/12/us/pasadena-synagogue-vandalized.html
+
 **NFL playoff schedule: Divisional round set as Texans move on to face Patriots**\
 `The Texans knocked off Aaron Rodgers and the Steelers to grab the final spot in the divisional round of the NFL playoffs.`\
 https://nytimes.com/athletic/6962268/2026/01/12/2025-nfl-divisional-round-schedule/
