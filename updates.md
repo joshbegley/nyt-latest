@@ -1,3 +1,15 @@
+**Read the Clintons’ Personal Letter to Comer**\
+`Bill and Hillary Clinton wrote a lengthy letter to Representative James R. Comer of Kentucky, the Republican chairman of the Oversight Committee, refusing to testify in Congress.`\
+https://nytimes.com/interactive/2026/01/13/us/clinton-letter.html
+
+**27 States Restrict Trans Participation in School Sports**\
+`Over the past six years, more than two dozen state legislatures have enacted laws on transgender athletes. Idaho, whose statute is being challenged before the Supreme Court, was the first in 2020.`\
+https://nytimes.com/2026/01/13/us/politics/state-restrictions-trans-athletes-school-sports.html
+
+**Here are the lawyers arguing the cases.**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/here-are-the-lawyers-arguing-the-cases
+
 **The Pitt**\
 ``\
 https://nytimes.com/spotlight/the-pitt-hbo-max
