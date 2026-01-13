@@ -1,3 +1,15 @@
+**After the Fatal ICE Shooting, Hard Questions We Must Ask**\
+`The killing of Renee Good raises issues of states’ rights, human dignity and when the use of deadly force is justified.`\
+https://nytimes.com/2026/01/13/opinion/minnesota-ice-shooting-questions.html
+
+**E.P.A. Moves to Limit States’ Ability to Block Pipelines**\
+`The agency wants to curtail a section of the Clean Water Act that Democratic governors have used to restrict fossil fuel development.`\
+https://nytimes.com/2026/01/13/climate/trump-clean-water-act-states.html
+
+**3 Prosecutors Quit After Push to Investigate ICE Shooting Victim’s Widow**\
+`Joseph H. Thompson, a career federal prosecutor who was the acting U.S. attorney for Minnesota last year, quit after the Justice Department sought to examine the woman’s supposed ties to activist groups.`\
+https://nytimes.com/2026/01/13/us/prosecutors-ice-shooting-renee-good.html
+
 **Appeals courts have split over bathroom bans for transgender youths.**\
 `By Amy Harmon`\
 https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/appeals-courts-have-split-over-bathroom-bans-for-transgender-youths
