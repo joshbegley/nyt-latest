@@ -1,5 +1,17 @@
+**Hints Suggest How 2 Key Justices May View Trans Athletes in Women’s Sports**\
+`There are some indications from questions at arguments and past writing how Justices Amy Coney Barrett and Brett Kavanaugh view the issue before the court.`\
+https://nytimes.com/2026/01/13/us/politics/kavanaugh-coney-barrett-trans-athletes-views.html
+
+**Danish Wind Farm Developer Scrambles to Salvage U.S. Projects.**\
+`Orsted’s C.E.O. says it plans to move quickly to complete a $6.2 billion wind farm off Rhode Island after a judge struck down President Trump’s bid to halt it.`\
+https://nytimes.com/2026/01/13/business/orsted-wind-farms-trump.html
+
+**Why feisty Phoenix is thriving, and get ready for a Bulls-Heat three-peat**\
+`Plus: Despite shaky results, one rookie is being encouraged to 'swing for the fences' and keep attacking.`\
+https://nytimes.com/athletic/6964861/2026/01/13/dillon-brooks-suns-nba-bulls-heat/
+
 **A '90s king gets his flowers: 10 reasons why Sergei Fedorov was so cool**\
-`Monday night, we saw some cool history in a moment that seemed like it would never happen: Fedorov's jersey retirement in Detroit.`\
+`Monday night, we saw some heartwarming history in a moment that seemed like it would never happen: Fedorov's jersey retirement in Detroit.`\
 https://nytimes.com/athletic/6966038/2026/01/13/red-wings-sergei-fedorov-jersey-retirement-red-light/
 
 **Trump Urges Iranians to Keep Up Antigovernment Protests**\
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/13/us/politics/state-restrictions-trans-athletes-sch
 **Here are the lawyers arguing the cases.**\
 `By Abbie VanSickle`\
 https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/here-are-the-lawyers-arguing-the-cases
-
-**The Pitt**\
-``\
-https://nytimes.com/spotlight/the-pitt-hbo-max
-
-**Pioneering Olympic snowboarder Ueli Kestenholz dies in Swiss avalanche**\
-`Kestenholz helped launch snowboarding as an Olympic sport at the 1998 Nagano Winter Games.`\
-https://nytimes.com/athletic/6965811/2026/01/13/ueli-kestenholz-snowboard-olympics-avalanche/
-
-**Tony Stewart returning to NASCAR for Trucks race at Daytona after 10 years away**\
-`Stewart, who last raced in NASCAR in 2016, is returning for one race for Kaulig Racing as part of Ram's "Free Agent Driver Program."`\
-https://nytimes.com/athletic/6965789/2026/01/13/tony-stewart-nascar-daytona-trucks-return-ram-kaulig/
 
