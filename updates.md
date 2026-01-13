@@ -1,3 +1,23 @@
+**Marine Le Pen Is Appealing a Conviction That Bars Her From Office. Here’s What to Know.**\
+`Ms. Le Pen, whose far-right party leads polls in France, was convicted last year of embezzlement. The outcome of her appeal, which started on Tuesday, will determine if she can run for president next year.`\
+https://nytimes.com/2026/01/13/world/europe/marine-le-pen-trial-appeal-electoral-ban.html
+
+**Gourmet Magazine is Back. It’s Not Exactly Sanctioned.**\
+`The defunct food publication is re-emerging as a newsletter, with new leadership and zero approval from its original owner.`\
+https://nytimes.com/2026/01/13/business/media/gourmet-magazine-newsletter.html
+
+**Supreme Court’s Ruling on Trans Athletes Could Apply to 2 or Many**\
+`The parties disagree about whether the court’s ruling should be categorical or turn on the challengers’ individual circumstances.`\
+https://nytimes.com/2026/01/13/us/politics/supreme-courts-transgender-scope.html
+
+**Here’s the latest on the argument.**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/heres-the-latest-on-the-argument
+
+**Live Updates: Transgender Athletes’ Cases Reach Supreme Court**\
+`Two cases before the justices on Tuesday could affect laws in 27 states that prohibit transgender girls from joining girls’ and women’s sports teams.`\
+https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes
+
 **In comparing Canucks to Canadiens, the benefits of committing to a rebuild are clear**\
 `In the darkest moments of this nascent Canucks rebuild, it's worth taking stock of the very real opportunity that lies ahead.`\
 https://nytimes.com/athletic/6964947/2026/01/13/canucks-canadiens-score-highlights-stats-rebuild/

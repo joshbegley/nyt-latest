@@ -1,3 +1,23 @@
+**Marine Le Pen Is Appealing a Conviction That Bars Her From Office. Here’s What to Know.**\
+`Ms. Le Pen, whose far-right party leads polls in France, was convicted last year of embezzlement. The outcome of her appeal, which started on Tuesday, will determine if she can run for president next year.`\
+https://nytimes.com/2026/01/13/world/europe/marine-le-pen-trial-appeal-electoral-ban.html
+
+**Gourmet Magazine is Back. It’s Not Exactly Sanctioned.**\
+`The defunct food publication is re-emerging as a newsletter, with new leadership and zero approval from its original owner.`\
+https://nytimes.com/2026/01/13/business/media/gourmet-magazine-newsletter.html
+
+**Supreme Court’s Ruling on Trans Athletes Could Apply to 2 or Many**\
+`The parties disagree about whether the court’s ruling should be categorical or turn on the challengers’ individual circumstances.`\
+https://nytimes.com/2026/01/13/us/politics/supreme-courts-transgender-scope.html
+
+**Here’s the latest on the argument.**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/heres-the-latest-on-the-argument
+
+**Live Updates: Transgender Athletes’ Cases Reach Supreme Court**\
+`Two cases before the justices on Tuesday could affect laws in 27 states that prohibit transgender girls from joining girls’ and women’s sports teams.`\
+https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes
+
 **In comparing Canucks to Canadiens, the benefits of committing to a rebuild are clear**\
 `In the darkest moments of this nascent Canucks rebuild, it's worth taking stock of the very real opportunity that lies ahead.`\
 https://nytimes.com/athletic/6964947/2026/01/13/canucks-canadiens-score-highlights-stats-rebuild/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/13/business/jpmorgan-earnings-report.html
 **Microsoft Pledges to Pay More for Electricity, Drawing Praise From Trump**\
 `The tech giant is responding to concerns that data centers are driving up electricity costs in some communities.`\
 https://nytimes.com/2026/01/13/business/microsoft-electricity-data-center-trump.html
-
-**Grizzlies say 'chance' Ja Morant plays in Berlin amid NBA trade speculation**\
-`Berlin native and German superstar Franz Wagner is trying to return Thursday after missing the last 16 games with a high ankle sprain.`\
-https://nytimes.com/athletic/6965679/2026/01/13/grizzlies-ja-morant-berlin-trade-rumors/
-
-**The Powell Defense Grows**\
-`Former Federal Reserve chiefs, Republican senators and — perhaps most important, many bond investors — raised concerns about an investigation into the bank’s leader.`\
-https://nytimes.com/2026/01/13/business/dealbook/powell-federal-reserve-trump-investigation.html
-
-**Trump Administration Live Updates: President Is Set to Speak About Economy on Michigan Trip**\
-``\
-https://nytimes.com/live/2026/01/13/us/trump-news
-
-**Chargers' embarrassing offensive performance puts Greg Roman on the hot seat**\
-`Justin Herbert has had four offensive play callers in six NFL seasons. Year 7 could include a fifth new coordinator and system.`\
-https://nytimes.com/athletic/6965026/2026/01/13/chargers-greg-roman-hot-seat/
-
-**NASCAR notables react to the Chase playoff format's return: 'I was shocked'**\
-`Past and present NASCAR drivers, plus an owner and executive, give their thoughts on the sport's move back to the Chase playoff format.`\
-https://nytimes.com/athletic/6964940/2026/01/13/nascar-chase-playoff-format-reaction-dale-earnhardt-jr/
 
