@@ -1,3 +1,11 @@
+**New coach Rick Bowness sees glaring areas where he can help struggling Blue Jackets**\
+`Bowness used the word "nastiness" at least four times, saying that's how he wants the Blue Jackets to play without the puck.`\
+https://nytimes.com/athletic/6966985/2026/01/13/rick-bowness-coach-blue-jackets-dean-evason/
+
+**One Was Ready for a Life Partner. The Other, a ‘Vaccine Summer.’**\
+`Joel Kim Booster, the actor and comedian, and John Michael Sudsina became “vacation boyfriends” while in Mexico with friends in May 2021.`\
+https://nytimes.com/2026/01/13/style/joel-kim-booster-john-michael-sudsina-wedding.html
+
 **The Little Implant That Could Fix America’s Chronic Disease Crisis**\
 `Future treatment for chronic health problems could be as simple as an annual doctor’s appointment, due to advances in bioelectric medicine.`\
 https://nytimes.com/paidpost/carnegie-mellon-university/little-implant/could-fix-americas-chronic-disease-crisis.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6967617/2026/01/13/mikaela-shiffrin-paula-moltzan-o
 **Militant Pro-Israel Group Agrees to Halt Operations in New York**\
 `While dissolving the group is not part of a settlement between the organization, Betar, and the office of New York Attorney General Letitia James, it will shut down.`\
 https://nytimes.com/2026/01/13/nyregion/betar-us-israel-new-york.html
-
-**A Timeline of Protests in Iran**\
-`Amid a near-total communications blackout, witness footage trickling out of Iran paints a picture of how the country’s largest uprising in decades spread — and turned deadly.`\
-https://nytimes.com/2026/01/13/world/middleeast/iran-protests-video-timeline.html
-
-**Timothy Busfield, Actor and Director, Booked on Child Sex Abuse Charges**\
-`He turned himself in to the authorities in New Mexico on Tuesday, the Albuquerque police said.`\
-https://nytimes.com/2026/01/13/us/timothy-busfield-arrested-child-sex-abuse.html
 

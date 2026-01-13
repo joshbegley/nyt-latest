@@ -1,3 +1,7 @@
+**The Man From Plains Was Also a Painter**\
+`Amy Carter, the daughter of former president Jimmy Carter, selected paintings and memorabilia for two Christie’s sales. The prices might surprise you.`\
+https://nytimes.com/2026/01/13/arts/design/jimmy-carter-paintings-auction-worth.html
+
 **New coach Rick Bowness sees glaring areas where he can help struggling Blue Jackets**\
 `Bowness used the word "nastiness" at least four times, saying that's how he wants the Blue Jackets to play without the puck.`\
 https://nytimes.com/athletic/6966985/2026/01/13/rick-bowness-coach-blue-jackets-dean-evason/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/13/us/politics/justice-department-trump-troops-venez
 **Mikaela Shiffrin, Paula Moltzan go 1-2 in World Cup slalom as Olympics near**\
 `Shiffrin won for the sixth time in seven slalom races this World Cup season as the American team looks strong ahead of the Winter Olympics.`\
 https://nytimes.com/athletic/6967617/2026/01/13/mikaela-shiffrin-paula-moltzan-olympics-world-cup-slalom-flachau-austria/
-
-**Militant Pro-Israel Group Agrees to Halt Operations in New York**\
-`While dissolving the group is not part of a settlement between the organization, Betar, and the office of New York Attorney General Letitia James, it will shut down.`\
-https://nytimes.com/2026/01/13/nyregion/betar-us-israel-new-york.html
 
