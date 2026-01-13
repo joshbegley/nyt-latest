@@ -1,3 +1,11 @@
+**They're not going anywhere: LIV stars say no thanks to PGA Tour offer**\
+`"Right now I’ve got a contract. Looking forward to seeing what we can do with LIV Golf this year," Bryson DeChambeau said.`\
+https://nytimes.com/athletic/6967682/2026/01/13/dechambeau-rahm-smith-stay-liv-golf-pga-tour-offer/
+
+**The Briefing: Newcastle 0 Man City 2 - Semenyo strikes (and officials take six minutes to disallow second)**\
+`Guardiola's team take a strong lead into the second leg of this Carabao Cup semi-final - but there was controversy during their win`\
+https://nytimes.com/athletic/6963334/2026/01/13/semenyo-man-city-haaland-offside-goal-newcastle/
+
 **Why David Stearns still likes the Mets' incomplete roster**\
 `Stearns praised the blend of veterans and promising prospects, but said the roster "is going to get better before we get to Opening Day."`\
 https://nytimes.com/athletic/6967655/2026/01/13/david-stearns-mets-roster-free-agency/

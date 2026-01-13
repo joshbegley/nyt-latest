@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6967682/2026/01/13/dechambeau-rahm-smith-stay-liv-g
 `Stearns praised the blend of veterans and promising prospects, but said the roster "is going to get better before we get to Opening Day."`\
 https://nytimes.com/athletic/6967655/2026/01/13/david-stearns-mets-roster-free-agency/
 
-**Giants, Falcons, Titans emerge as favorites to land John Harbaugh**\
+**Giants, Falcons, Titans emerge as favorites to land John Harbaugh: Sources**\
 `The three teams have all been in daily communication with Harbaugh and his agent, Bryan Harlan.`\
 https://nytimes.com/athletic/6967631/2026/01/13/giants-falcons-titans-coaching-search-john-harbaugh/
 
