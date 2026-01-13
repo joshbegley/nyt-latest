@@ -1,3 +1,7 @@
+**The New York Times in Print for Tuesday, Jan. 13, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/13/todays-new-york-times
+
 **Newsom Vows to Stop Proposed Billionaire Tax in California**\
 `Gov. Gavin Newsom said he was working behind the scenes to block a proposed tax on billionaires’ wealth and was committed to defeating the measure if it reached the ballot.`\
 https://nytimes.com/2026/01/13/us/newsom-billionaire-tax-california.html
