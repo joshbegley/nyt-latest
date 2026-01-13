@@ -1,3 +1,11 @@
+**Penguins mailbag: Will Evgeni Malkin be offered another contract?**\
+`Malkin wants to keep playing, but do the Penguins feel the same?`\
+https://nytimes.com/athletic/6960942/2026/01/13/penguins-evgeni-malkin-contract-rumors-nhl/
+
+**NFL head coach, GM interview tracker: Latest hirings, requests and news**\
+`The latest news on John Harbaugh, Mike McDaniel, Raheem Morris, Kevin Stefanski and other candidates for NFL head coaching jobs. `\
+https://nytimes.com/athletic/6962269/2026/01/13/nfl-head-coach-gm-tracker-interviews-hirings-rumors/
+
 **How to watch Lightning vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6966290/2026/01/13/lightning-vs-penguins-stream-how-to-watch-jan-13/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6966244/2026/01/13/boston-college-vs-clemson-stream
 **Medical Groups Will Try to Block Childhood Vaccine Recommendations**\
 `The groups, including the American Academy of Pediatrics, say the C.D.C.’s revised vaccine schedule is not based on scientific evidence and will harm the public.`\
 https://nytimes.com/2026/01/13/health/vaccine-schedule-children-kennedy.html
-
-**How to watch Texas A&M vs. Tennessee men's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas A&M Aggies play the Tennessee Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6966239/2026/01/13/texas-a-m-vs-tennessee-stream-how-to-watch-jan-13/
-
-**How to watch Indiana vs. Michigan State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Indiana Hoosiers play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6966233/2026/01/13/indiana-vs-michigan-state-stream-how-to-watch-jan-13/
 

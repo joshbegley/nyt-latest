@@ -1,3 +1,11 @@
+**Penguins mailbag: Will Evgeni Malkin be offered another contract?**\
+`Malkin wants to keep playing, but do the Penguins feel the same?`\
+https://nytimes.com/athletic/6960942/2026/01/13/penguins-evgeni-malkin-contract-rumors-nhl/
+
+**NFL head coach, GM interview tracker: Latest hirings, requests and news**\
+`The latest news on John Harbaugh, Mike McDaniel, Raheem Morris, Kevin Stefanski and other candidates for NFL head coaching jobs. `\
+https://nytimes.com/athletic/6962269/2026/01/13/nfl-head-coach-gm-tracker-interviews-hirings-rumors/
+
 **How to watch Lightning vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6966290/2026/01/13/lightning-vs-penguins-stream-how-to-watch-jan-13/
