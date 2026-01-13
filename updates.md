@@ -1,3 +1,7 @@
+**Greenland Would Be the Largest U.S. Land Acquisition, if Trump Got His Way**\
+`Denmark does not want to sell its territory. But for a real estate mogul turned president, the world’s largest island may be irresistible.`\
+https://nytimes.com/2026/01/13/world/europe/greenland-trump-size.html
+
 **JPMorgan Made Less Money Last Year, Facing Pressure on Multiple Fronts**\
 `The nation’s largest bank earned $57 billion in 2025, but Jamie Dimon, its chief executive, said “the benefits of deregulation” would help in the future.`\
 https://nytimes.com/2026/01/13/business/jpmorgan-earnings-report.html
