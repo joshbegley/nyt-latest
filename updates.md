@@ -1,3 +1,7 @@
+**Venus Williams, 45, loses to Tatjana Maria, 38, in highest age WTA match ever**\
+`The combined age of 84 years and 1 day is the largest between two opponents in a main draw match in WTA competition.`\
+https://nytimes.com/athletic/6965162/2026/01/13/venus-williams-loses-highest-combined-age-wta-match/
+
 **The New York Times in Print for Tuesday, Jan. 13, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/13/todays-new-york-times
