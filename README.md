@@ -1,3 +1,11 @@
+**Gabon government lifts bans on national team and Aubameyang**\
+`Gabon's government previously said on television that the national team had been suspended after a "disgraceful" AFCON campaign.`\
+https://nytimes.com/athletic/6965530/2026/01/13/gabon-football-aubameyang-government-afcon-ban/
+
+**What does a new president mean for Michigan sports, an embattled AD and the Big Ten?**\
+`Kent Syverud arrives at Michigan from Syracuse facing a handful of high-profile athletics questions after the Sherrone Moore firing.`\
+https://nytimes.com/athletic/6964542/2026/01/13/michigan-president-kent-syverud-warde-manuel-big-ten/
+
 **The Pulse: Is this Aaron Rodgers' goodbye?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6964104/2026/01/13/aaron-rodgers-final-game-texans-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/13/world/australia/australia-adelaide-writers-palest
 **Rangers dip below .500 with another dud at home: Observations**\
 `The Rangers had an early two-goal lead but got dominated in the second and third periods, and suffered their fourth straight loss.`\
 https://nytimes.com/athletic/6965050/2026/01/13/rangers-miller-perreault-kraken-kakko-lindgren/
-
-**Lessons from Panthers' reality check, Benson's promotion, more: Sabres thoughts**\
-`The Sabres couldn't quite match up to a Florida team well-experienced in managing a playoff push late into the season.`\
-https://nytimes.com/athletic/6965112/2026/01/13/sabres-benson-power-defense-panthers/
-
-**What went wrong for the 2025 Dallas Cowboys? Defense, defense, defense**\
-`The Cowboys had a second consecutive losing season for the first time in 23 seasons after finishing 7-9-1.`\
-https://nytimes.com/athletic/6964096/2026/01/13/dallas-cowboys-2025-season-review-defense/
 
