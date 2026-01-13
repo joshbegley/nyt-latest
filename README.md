@@ -1,3 +1,7 @@
+**Saliba, Trossard doubts vs. Chelsea, Calafiori remains out for 'weeks'**\
+`Neither Saliba or Trossard were in the matchday squad for Arsenal’s win vs. Portsmouth and Calafiori has missed Arsenal’s last five games.`\
+https://nytimes.com/athletic/6965904/2026/01/13/saliba-trossard-calafiori-arsenal-team-news/
+
 **Matt LaFleur 'speechless' after Aaron Rodgers' passionate defense of the Packers coach**\
 `After Pittsburgh's season ended, Rodgers not only stood up for his current coach, Mike Tomlin, but for his former coach, Matt LaFleur.`\
 https://nytimes.com/athletic/6965838/2026/01/13/matt-lefleur-response-aaron-rodgers-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6965742/2026/01/13/visma-2026-vingegaard-ferrand-pr
 **Barring transgender women from women’s sports has been a prominent goal for Republicans.**\
 `By Juliet Macur`\
 https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/banning-transgender-women-from-womens-sports-has-been-a-prominent-goal-for-republicans
-
-**The Killing of Renee Good Was a Turning Point**\
-`The columnists Ezra Klein and M. Gessen discuss the recent shooting of a protester by an ICE agent in Minneapolis and what it means for the country.`\
-https://nytimes.com/video/opinion/100000010629504/the-killing-of-renee-good-was-a-turning-point.html
 
