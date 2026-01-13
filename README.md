@@ -1,3 +1,15 @@
+**Is John Harbaugh the Giants' dream hire at head coach? Breaking down each known candidate**\
+`With help from The Athletic's beat writers, we examine the candidates the Giants are bringing in for interviews to be their next head coach.`\
+https://nytimes.com/athletic/6948299/2026/01/13/ny-giants-head-coach-candidates-list-john-harbaugh-kevin-stefanski/
+
+**Where Mets stand in free agent Kyle Tucker sweepstakes**\
+`Kyle Tucker’s preferences for contract length and dollars (both overall and in annual average value) are unknown.`\
+https://nytimes.com/athletic/6966256/2026/01/13/kyle-tucker-mets-possible-contract-offer/
+
+**Panthers to pick up Bryce Young's fifth-year option, GM Dan Morgan says**\
+`Young had his best season in 2025 and nearly led the Panthers to an upset win in the wild-card round against the Rams.`\
+https://nytimes.com/athletic/6966315/2026/01/13/bryce-young-fifth-year-option-panthers/
+
 **Penguins mailbag: Will Evgeni Malkin be offered another contract?**\
 `Malkin wants to keep playing, but do the Penguins feel the same?`\
 https://nytimes.com/athletic/6960942/2026/01/13/penguins-evgeni-malkin-contract-rumors-nhl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6966282/2026/01/13/canucks-vs-senators-stream-how-t
 **Cadillac reveals one-off livery for F1 shakedown test event in Barcelona**\
 `The official race livery, which is expected to be “distinct” from the shakedown design, will be unveiled on February 8.`\
 https://nytimes.com/athletic/6966178/2026/01/13/cadillac-shakedown-livery-f1/
-
-**Mike Tomlin can pick his TV landing spot, with Fox the favorite: Marchand**\
-`The longtime Pittsburgh Steelers coach would have plenty of options as a TV analyst.`\
-https://nytimes.com/athletic/6966049/2026/01/13/mike-tomlin-tv-fox-cbs-espn/
-
-**How to watch Boston College vs. Clemson men's basketball: Time, TV, streaming**\
-`Find out how to watch the Boston College Eagles play the Clemson Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6966244/2026/01/13/boston-college-vs-clemson-stream-how-to-watch-jan-13/
-
-**Medical Groups Will Try to Block Childhood Vaccine Recommendations**\
-`The groups, including the American Academy of Pediatrics, say the C.D.C.’s revised vaccine schedule is not based on scientific evidence and will harm the public.`\
-https://nytimes.com/2026/01/13/health/vaccine-schedule-children-kennedy.html
 
