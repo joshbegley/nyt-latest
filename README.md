@@ -1,3 +1,7 @@
+**Which AFCON side should you support in the semifinals?**\
+`The Athletic arms you with all the information you need to decide who you should support in the semifinals and beyond...`\
+https://nytimes.com/athletic/6966136/2026/01/13/which-afcon-team-should-you-support/
+
 **Fanatics expands into content with the launch of Studios joint venture**\
 `Fanatics' tentpoles, which include fan gear, collectibles and sports-betting, now includes a production studio.`\
 https://nytimes.com/athletic/6966169/2026/01/13/fanatics-studios-michael-ratner-obb-media/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6966576/2026/01/13/college-football-coaches-redshir
 **Matt Ryan: Falcons looking for character, 'presence' as coaching search intensifies**\
 `Ryan has already spoken with six head coaching candidates, including John Harbaugh, Kevin Stefanski and Mike McDaniel.`\
 https://nytimes.com/athletic/6966489/2026/01/13/falcons-coaching-search-matt-ryan-john-harbaugh/
-
-**Justice Kavanaugh May Bring a Coach’s Perspective to the Case**\
-`The justice, a sports buff, has coached girls’ basketball teams for many years and has often reflected on the role such mentoring can play.`\
-https://nytimes.com/2026/01/13/us/politics/brett-kavanaugh-trans-athletes.html
 
