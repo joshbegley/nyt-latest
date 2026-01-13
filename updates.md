@@ -1,3 +1,23 @@
+**How to watch Lightning vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6966290/2026/01/13/lightning-vs-penguins-stream-how-to-watch-jan-13/
+
+**How to watch Canadiens vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6966288/2026/01/13/canadiens-vs-capitals-stream-how-to-watch-jan-13/
+
+**How to watch Flames vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6966284/2026/01/13/flames-vs-blue-jackets-stream-how-to-watch-jan-13/
+
+**How to watch Canucks vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6966282/2026/01/13/canucks-vs-senators-stream-how-to-watch-jan-13/
+
+**Cadillac reveals one-off livery for F1 shakedown test event in Barcelona**\
+`The official race livery, which is expected to be “distinct” from the shakedown design, will be unveiled on February 8.`\
+https://nytimes.com/athletic/6966178/2026/01/13/cadillac-shakedown-livery-f1/
+
 **Cadillac reveal one-off livery for F1 shakedown in Barcelona**\
 `The official race livery, which is expected to be “distinct” from the shakedown design, will be unveiled on February 8.`\
 https://nytimes.com/athletic/6966178/2026/01/13/cadillac-shakedown-livery-f1/
