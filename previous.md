@@ -1,3 +1,15 @@
+**The View From Above Antarctica’s Fastest Melting Glacier**\
+`Times journalists were able to get tantalizingly close to the Thwaites glacier, which scientists are hoping to spend weeks studying up close.`\
+https://nytimes.com/2026/01/13/climate/the-view-from-above-antarcticas-fastest-melting-glacier.html
+
+**Uganda Cuts Internet Days Before Presidential Election**\
+`The authorities say the decision was made to prevent the spread of misinformation as President Yoweri Museveni seeks his seventh term in office.`\
+https://nytimes.com/2026/01/13/world/africa/uganda-election-internet.html
+
+**'I am Alvaro Arbeloa': What Real Madrid's surprise new manager said, and what it means**\
+`The 42-year-old former Madrid and Liverpool player spoke to the media for the first time in his new role at the Bernabeu on Tuesday`\
+https://nytimes.com/athletic/6966892/2026/01/13/alvaro-arbeloa-real-madrid-xabi-alonso-sacked-manager/
+
 **Arrest Made in Toronto Airport Gold Heist as Police Seek 2 Others**\
 `The Canadian authorities have identified 10 people in connection with the theft of about $14.4 million in gold bars from Toronto Pearson International Airport in 2023.`\
 https://nytimes.com/2026/01/13/world/canada/canada-gold-heist-arrest.html
@@ -25,12 +37,4 @@ https://nytimes.com/2026/01/13/world/europe/julio-iglesias-accused-sexual-assaul
 **Vikings WR Jordan Addison arrested in Florida on trespassing charge**\
 `Vikings wide receiver Jordan Addison was arrested early Monday morning on a trespassing charge in Hillsborough County, Fla.`\
 https://nytimes.com/athletic/6966433/2026/01/13/jordan-addison-vikings-arrest-florida-trespassing-charge/
-
-**Mike Tomlin stepping down as Steelers head coach after 19 seasons**\
-`Tomlin is tied with Chuck Noll as the winningest head coach in Steelers franchise history.`\
-https://nytimes.com/athletic/6939323/2026/01/13/mike-tomlin-pittsburgh-steelers/
-
-**7 Albums I’m Looking Forward to in 2026**\
-`Megan Moroney, Bruno Mars, Danny L Harle and more.`\
-https://nytimes.com/2026/01/13/arts/music/amplifier-newsletter-2026-albums.html
 
