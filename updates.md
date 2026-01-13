@@ -1,3 +1,7 @@
+**The Resistance Libs Were Right**\
+`Trump’s message, the emotional core of his movement, has always been textbook fascism.`\
+https://nytimes.com/2026/01/12/opinion/resistance-libs-trump-fascism.html
+
 **Trump’s Plans for Venezuelan Oil Run Headlong Into Reality**\
 `President Trump’s fixation on Venezuela’s oil raises the question of how much “energy dominance” is really worth nowadays.`\
 https://nytimes.com/2026/01/12/us/politics/trump-venezuela-oil-dominance-influence.html

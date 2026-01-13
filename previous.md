@@ -1,3 +1,7 @@
+**The Resistance Libs Were Right**\
+`Trump’s message, the emotional core of his movement, has always been textbook fascism.`\
+https://nytimes.com/2026/01/12/opinion/resistance-libs-trump-fascism.html
+
 **Trump’s Plans for Venezuelan Oil Run Headlong Into Reality**\
 `President Trump’s fixation on Venezuela’s oil raises the question of how much “energy dominance” is really worth nowadays.`\
 https://nytimes.com/2026/01/12/us/politics/trump-venezuela-oil-dominance-influence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6963691/2026/01/12/nhl-central-scouting-ranking-mck
 **Mamdani Brings Affordability Push to Arts With Pick to Lead Film Office**\
 `Rafael Espinal, the current head of the Freelancers Union, will serve as the new director of the Mayor’s Office of Media and Entertainment.`\
 https://nytimes.com/2026/01/12/nyregion/mamdani-film-espinal.html
-
-**Reporter says she doesn't regret viral moment of praise for Jaguars’ Liam Coen**\
-`Lynn Jones, a longtime reporter in Jacksonville, had postgame kindness instead of questions. It set off a debate about journalistic ethics.`\
-https://nytimes.com/athletic/6964428/2026/01/12/liam-coen-lynn-jones-jaguars-journalistic-ethics/
 
