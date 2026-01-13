@@ -1,40 +1,36 @@
-**Blowback Builds Over Criminal Investigation of Powell**\
-`Trump allies fear that the inquiry into the Fed chair could complicate the process of replacing him this year.`\
-https://nytimes.com/2026/01/13/us/politics/jerome-powell-investigation-blowback.html
+**In a Risky Gambit, Trump Tries Brute Force to Lower Prices**\
+`To assuage cost-weary voters and combat inflation, the president has resorted to a mix of threats and punishments, targeting companies and policymakers alike.`\
+https://nytimes.com/2026/01/13/us/politics/in-a-risky-gambit-trump-tries-brute-force-to-lower-prices.html
 
-**Chloe Kim, U.S. snowboard star, has torn labrum, says she's on track for Olympics**\
-`Kim is the first woman to repeat as Olympic champion in halfpipe. She is set to try for a third straight crown in Italy.`\
-https://nytimes.com/athletic/6967321/2026/01/13/chloe-kim-labrum-injury-on-track-olympics/
+**Virginia Special Election Results**\
+`Get live results and maps from the 2026 Virginia elections.`\
+https://nytimes.com/interactive/2026/01/13/us/elections/results-virginia-special-election.html
 
-**Inside Carrick's Man Utd return: Fresh vision, Solskjaer concerns, Champions League target**\
-`The full story of another turbulent week at Old Trafford, as the club appoint their third manager of the 2025-26 season`\
-https://nytimes.com/athletic/6965299/2026/01/13/michael-carrick-man-utd-manager-interim-why/
+**Defense Challenges Pizza Evidence in Gilgo Beach Serial Killings Case**\
+`In a nearly 180-page filing, lawyers for Rex Heuermann, charged in seven killings, argued that the prosecution had improperly seized their client’s pizza crusts and portrayed him as porn-obsessed.`\
+https://nytimes.com/2026/01/13/nyregion/gilgo-beach-trial-long-island-serial-killer.html
 
-**How to watch Timberwolves vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6967486/2026/01/13/timberwolves-vs-bucks-stream-how-to-watch-jan-13/
+**Oklahoma State House District 35 Special Election Results**\
+`Get live results and maps from the 2026 Oklahoma State House District 35 election.`\
+https://nytimes.com/interactive/2026/01/13/us/elections/results-oklahoma-state-house-district-35.html
 
-**How to watch Trail Blazers vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6967483/2026/01/13/trail-blazers-vs-warriors-stream-how-to-watch-jan-13/
+**Alabama State House District 63 Special Election Results**\
+`Get live results and maps from the 2026 Alabama special election.`\
+https://nytimes.com/interactive/2026/01/13/us/elections/results-alabama-state-house-district-63-special.html
 
-**How to watch Spurs vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6967479/2026/01/13/spurs-vs-thunder-stream-how-to-watch-jan-13/
+**Florida State House District 87 Special Primary Election Results**\
+`Get live results and maps from the 2026 Florida State House District 87 special primary election.`\
+https://nytimes.com/interactive/2026/01/13/us/elections/results-florida-state-house-district-87-special.html
 
-**How to watch Nuggets vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6967475/2026/01/13/nuggets-vs-pelicans-stream-how-to-watch-jan-13/
+**Connecticut State House District 139 Special Election Results**\
+`Get live results and maps from the 2026 Connecticut special election.`\
+https://nytimes.com/interactive/2026/01/13/us/elections/results-connecticut-state-house-district-139-special.html
 
-**How to watch Stars vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6967472/2026/01/13/stars-vs-ducks-stream-how-to-watch-jan-13/
+**Eagles’ Kevin Patullo out as offensive coordinator**\
+`"Ultimately, when we fall short of our goals that responsibility lies on my shoulders," Eagles head coach Nick Sirianni said in a statement.`\
+https://nytimes.com/athletic/6845905/2026/01/13/kevin-patullo-out-eagles-offensive-coordinator/
 
-**How to watch Islanders vs. Jets: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6967466/2026/01/13/islanders-vs-jets-stream-how-to-watch-jan-13/
-
-**How to watch Hawks vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6967464/2026/01/13/hawks-vs-lakers-stream-how-to-watch-jan-13/
+**BTS Unveils World Tour Dates. Here’s Where They’ve Been.**\
+`The K-pop superstars will go on a colossal comeback tour: 79 shows across five continents in 11 months. But why were they gone for so long?`\
+https://nytimes.com/2026/01/13/arts/music/bts-world-tour-concerts-2026-2027.html
 
