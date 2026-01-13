@@ -1,3 +1,7 @@
+**Texans defense dominates Steelers in wild-card win, Aaron Rodgers’ possible final game**\
+`The Texans will travel to New England to face the Patriots on Sunday.`\
+https://nytimes.com/athletic/6964991/2026/01/12/texans-steelers-score-result-takeaways-nfl-wild-card-playoffs/
+
 **Full Time: USWNT star coming home**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6965022/2026/01/12/lindsey-heaps-denver-full-time/
