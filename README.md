@@ -1,10 +1,14 @@
+**Justices Seem Inclined to Uphold Laws Barring Transgender Athletes**\
+`Also, accounts of a brutal crackdown emerge from Iran. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/01/13/briefing/supreme-court-transgender-athletes-iran-protests.html
+
 **Trump nominates a company chief and Republican donor, David MacNeil, to the F.T.C.**\
 `By David McCabe`\
 https://nytimes.com/live/2026/01/13/us/trump-news/trump-nominates-a-company-chief-and-republican-donor-david-macneil-to-the-ftc
 
-**U.S. to Announce Palestinian Committee to Run Gaza**\
+**U.S. to Name Palestinian Committee to Run Gaza**\
 `Officials said the body’s leadership could be announced as soon as Wednesday, but U.S. efforts to shape postwar Gaza by disarming Hamas have faced hurdles.`\
-https://nytimes.com/2026/01/13/world/middleeast/gaza-techocrat-committee.html
+https://nytimes.com/2026/01/13/world/middleeast/gaza-palestinian-committee.html
 
 **The Kid Mero, Now a Morning-Radio Motormouth**\
 `The podcast star from the Bronx is taking over the marquee a.m. slot on New York’s storied hip-hop station Hot 97. We rode along on his first day.`\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6963334/2026/01/13/semenyo-man-city-haaland-offside
 **Paraglider Survives 500-Foot Plunge Into Ocean off Florida**\
 `A paraglider was rescued by lifeguards after crashing 500 feet into the Atlantic Ocean off Florida on Friday.`\
 https://nytimes.com/video/us/100000010643106/paraglider-survives-500-foot-plunge-into-ocean-off-florida.html
-
-**Former Adams Aide Charged With Bribery and Wire Fraud**\
-`Anthony Herbert is accused of bribing a funeral director and applying for a fraudulent loan to keep a nonexistent baked-goods business afloat during the pandemic.`\
-https://nytimes.com/2026/01/13/nyregion/former-adams-aide-charged-bribery-wire-fraud.html
 

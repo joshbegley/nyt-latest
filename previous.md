@@ -1,3 +1,7 @@
+**Trump nominates a company chief and Republican donor, David MacNeil, to the F.T.C.**\
+`By David McCabe`\
+https://nytimes.com/live/2026/01/13/us/trump-news/trump-nominates-a-company-chief-and-republican-donor-david-macneil-to-the-ftc
+
 **U.S. to Announce Palestinian Committee to Run Gaza**\
 `Officials said the body’s leadership could be announced as soon as Wednesday, but U.S. efforts to shape postwar Gaza by disarming Hamas have faced hurdles.`\
 https://nytimes.com/2026/01/13/world/middleeast/gaza-techocrat-committee.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/100000010643106/paraglider-survives-500-foot-plunge
 **Former Adams Aide Charged With Bribery and Wire Fraud**\
 `Anthony Herbert is accused of bribing a funeral director and applying for a fraudulent loan to keep a nonexistent baked-goods business afloat during the pandemic.`\
 https://nytimes.com/2026/01/13/nyregion/former-adams-aide-charged-bribery-wire-fraud.html
-
-**Lower Bills and ‘Go Bills’: 8 Takeaways From Hochul’s State of the State**\
-`In her address on Tuesday, Gov. Kathy Hochul of New York focused on affordability, while pushing for nuclear power and new restrictions on religious protests.`\
-https://nytimes.com/2026/01/13/nyregion/hochul-takeaways-speech.html
 
