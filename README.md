@@ -1,3 +1,11 @@
+**Taremi is Forest's leading striker target - how does he compare to other options?**\
+`The Iranian tops Forest's shortlist for a new forward - so how would he fit in under Dyche, and what do the other targets offer?`\
+https://nytimes.com/athletic/6963869/2026/01/13/mehdi-taremi-nottingham-forest-transfer/
+
+**The Transfer DealSheet: The latest on your club's transfer window plans**\
+`Welcome to The Athletic's weekly look at the transfer market during the January window`\
+https://nytimes.com/athletic/6963068/2026/01/13/transfer-latest-manchester-united-liverpool-aston-villa-arsenal-january-window/
+
 **Jon Stewart Skewers Trump as ‘Acting President of Venezuela’**\
 `“Doesn’t your oath of office to America have a noncompete?” the “Daily Show” host asked President Trump.`\
 https://nytimes.com/2026/01/13/arts/television/late-night-trump-venezuela.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6931296/2026/01/13/paratici-tottenham-lewis-lange/
 **The dos and don'ts of being a Manchester United interim manager**\
 `A beginner's guide to taking temporary charge of one of the biggest clubs in the world `\
 https://nytimes.com/athletic/6963226/2026/01/13/man-utd-interim-manager/
-
-**How Arsenal play: An increasingly dynamic midfield, more verticality and a subtle pressing tweak**\
-`The Athletic's series taking the tactical temperature at the Premier League's 'Big Six' continues with a look at Mikel Arteta's side`\
-https://nytimes.com/athletic/6949095/2026/01/13/how-arsenal-play-premier-league-tactics/
-
-**The rise of Max Alleyne: The cricketer's son making strides at Manchester City**\
-`Recalled from a loan at Watford by an injury-depleted City, the England Under-21 defender has made a seamless transition to the first team  `\
-https://nytimes.com/athletic/6963638/2026/01/13/the-rise-of-max-alleyne-the-cricketers-son-making-the-cut-at-man-city/
 
