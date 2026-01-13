@@ -1,3 +1,15 @@
+**Cadillac reveal one-off livery for F1 shakedown in Barcelona**\
+`The official race livery, which is expected to be “distinct” from the shakedown design, will be unveiled on February 8.`\
+https://nytimes.com/athletic/6966178/2026/01/13/cadillac-shakedown-livery-f1/
+
+**Mike Tomlin can pick his TV landing spot, with Fox the favorite: Marchand**\
+`The longtime Pittsburgh Steelers coach would have plenty of options as a TV analyst.`\
+https://nytimes.com/athletic/6966049/2026/01/13/mike-tomlin-tv-fox-cbs-espn/
+
+**How to watch Boston College vs. Clemson men's basketball: Time, TV, streaming**\
+`Find out how to watch the Boston College Eagles play the Clemson Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6966244/2026/01/13/boston-college-vs-clemson-stream-how-to-watch-jan-13/
+
 **Medical Groups Will Try to Block Childhood Vaccine Recommendations**\
 `The groups, including the American Academy of Pediatrics, say the C.D.C.’s revised vaccine schedule is not based on scientific evidence and will harm the public.`\
 https://nytimes.com/2026/01/13/health/vaccine-schedule-children-kennedy.html
