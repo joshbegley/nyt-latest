@@ -1,3 +1,11 @@
+**Full Time: USWNT star coming home**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6965022/2026/01/12/lindsey-heaps-denver-full-time/
+
+**Texans' Nico Collins carted off field vs. Steelers, ruled out with concussion**\
+`According to the ESPN broadcast, Collins was hunched over for “a good minute” after his injury and struggled to make it to the medical tent.`\
+https://nytimes.com/athletic/6965020/2026/01/12/nico-collins-concussion-texans-steelers/
+
 **Labor Secretary’s Aides Placed on Leave in Misconduct Investigation**\
 `The Labor Department is investigating a complaint alleging misconduct by Secretary Lori Chavez-DeRemer.`\
 https://nytimes.com/2026/01/12/business/lori-chavez-deremer-misconduct-investigation.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/climate/100000010629864/camping-on-a-glacier-watch-you
 **Elle Simone Scott, Chef and Cooking Show Stalwart, Dies at 49**\
 `She was the first Black cast member on the PBS show “America’s Test Kitchen,” and used her influence to help other female chefs of color.`\
 https://nytimes.com/2026/01/12/dining/elle-simone-scott-dead.html
-
-**George Kittle posts 'I'll be good' on Instagram after tearing Achilles tendon**\
-`The 49ers' All-Pro tight end was injured during the 49ers' wild-card victory over the Eagles on Sunday.`\
-https://nytimes.com/athletic/6964758/2026/01/12/george-kittle-achilles-injury-social-media-post-reaction/
-
-**Former U.S. Navy Sailor Gets Nearly 17 Years in Prison for Spying for China**\
-`Jinchao Wei sold technical manuals for American warships to a Chinese intelligence officer who had recruited him on social media.`\
-https://nytimes.com/2026/01/12/us/us-navy-sailor-china-spy-sentenced.html
 
