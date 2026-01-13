@@ -1,3 +1,7 @@
+**Newcastle identify site for new 'ten out of ten' training ground**\
+`There is a desire to start construction as soon as possible, ideally this year.`\
+https://nytimes.com/athletic/6967162/2026/01/13/newcastle-news-training-ground-update/
+
 **The View From Above Antarctica’s Fastest Melting Glacier**\
 `Times journalists were able to get tantalizingly close to the Thwaites glacier, which scientists are hoping to spend weeks studying up close.`\
 https://nytimes.com/2026/01/13/climate/the-view-from-above-antarcticas-fastest-melting-glacier.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/13/nyregion/what-to-know-nyc-nurses-strike.html
 **Spanish Prosecutors Investigate Sexual Assault Claims Against Julio Iglesias**\
 `Prosecutors said two former employees of Mr. Iglesias, a renowned Spanish singer, had accused him of abuse. His representatives did not respond to requests for comment.`\
 https://nytimes.com/2026/01/13/world/europe/julio-iglesias-accused-sexual-assault.html
-
-**Vikings WR Jordan Addison arrested in Florida on trespassing charge**\
-`Vikings wide receiver Jordan Addison was arrested early Monday morning on a trespassing charge in Hillsborough County, Fla.`\
-https://nytimes.com/athletic/6966433/2026/01/13/jordan-addison-vikings-arrest-florida-trespassing-charge/
 
