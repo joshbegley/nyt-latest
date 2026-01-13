@@ -1,3 +1,7 @@
+**They're not going anywhere: LIV stars say no thanks to PGA Tour offer**\
+`"Right now I’ve got a contract. Looking forward to seeing what we can do with LIV Golf this year," Bryson DeChambeau said.`\
+https://nytimes.com/athletic/6967682/2026/01/13/dechambeau-rahm-smith-stay-liv-golf-pga-tour-offer/
+
 **Why David Stearns still likes the Mets' incomplete roster**\
 `Stearns praised the blend of veterans and promising prospects, but said the roster "is going to get better before we get to Opening Day."`\
 https://nytimes.com/athletic/6967655/2026/01/13/david-stearns-mets-roster-free-agency/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6967655/2026/01/13/david-stearns-mets-roster-free-a
 https://nytimes.com/athletic/6967631/2026/01/13/giants-falcons-titans-coaching-search-john-harbaugh/
 
 **The Briefing: Newcastle 0 Man City 2 - Semenyo strikes (and officials take six minutes to disallow second)**\
-`Guardiola's team take a strong lead into the second leg of their Carabao Cup semi-final — but there was controversy during their win`\
+`Guardiola's team take a strong lead into the second leg of this Carabao Cup semi-final - but there was controversy during their win`\
 https://nytimes.com/athletic/6963334/2026/01/13/semenyo-man-city-haaland-offside-goal-newcastle/
 
 **Paraglider Survives 500-Foot Plunge Into Ocean off Florida**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6967568/2026/01/13/brayen-point-injury-olympics-can
 **The Man From Plains Was Also a Painter**\
 `Amy Carter, the daughter of former president Jimmy Carter, selected paintings and memorabilia for two Christie’s sales. The prices might surprise you.`\
 https://nytimes.com/2026/01/13/arts/design/jimmy-carter-paintings-auction-worth.html
-
-**New coach Rick Bowness sees glaring areas where he can help struggling Blue Jackets**\
-`Bowness used the word "nastiness" at least four times, saying that's how he wants the Blue Jackets to play without the puck.`\
-https://nytimes.com/athletic/6966985/2026/01/13/rick-bowness-coach-blue-jackets-dean-evason/
 
