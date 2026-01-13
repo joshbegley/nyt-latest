@@ -1,3 +1,7 @@
+**Reporter says she doesn't regret viral moment of praise for Jaguars’ Liam Coen**\
+`Lynn Jones, a longtime reporter in Jacksonville, had postgame kindness instead of questions. It set off a debate about journalistic ethics.`\
+https://nytimes.com/athletic/6964428/2026/01/12/liam-coen-lynn-jones-jaguars-journalistic-ethics/
+
 **NHL announces 2026 draft will be held at Buffalo's KeyBank Center**\
 `The NHL Draft, currently scheduled for June 26 and 27, is returning to Buffalo for the fourth time.`\
 https://nytimes.com/athletic/6963432/2026/01/12/nhl-draft-2026-buffalo-keybank-center/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/12/us/congressional-employee-stolen-phones.html
 **Top Fed Official Conveys Little Urgency for Immediate Rate Cuts**\
 `The Federal Reserve is likely to hold interest rates steady when it meets at the end of the month, keeping tensions high with President Trump.`\
 https://nytimes.com/2026/01/12/business/federal-reserve-john-williams-rates.html
-
-**U.S. Attacked Boat With Aircraft That Looked Like a Civilian Plane**\
-`Even accepting the Trump administration’s claim that there is an armed conflict with suspected drug runners, the laws of war bar “perfidy.”`\
-https://nytimes.com/2026/01/12/us/politics/us-boat-attacks-law.html
 

@@ -1,3 +1,11 @@
+**NHL announces 2026 draft will be held at Buffalo's KeyBank Center**\
+`The NHL Draft, currently scheduled for June 26 and 27, is returning to Buffalo for the fourth time.`\
+https://nytimes.com/athletic/6963432/2026/01/12/nhl-draft-2026-buffalo-keybank-center/
+
+**NHL, NHLPA 'pleased' with test event at Olympic hockey arena, will continue to monitor progress**\
+`“We expect that the work necessary to address all remaining issues will continue around the clock," the NHL and NHLPA said in a statement.`\
+https://nytimes.com/athletic/6964634/2026/01/12/olympic-hockey-arena-nhl-nhlpa-statement/
+
 **F.B.I. Inquiry Into ICE Shooting Is Examining Victim’s Possible Ties to Activist Groups**\
 `The decision is consistent with the White House’s strategy of deflecting blame for the shooting away from federal law enforcement and toward opponents they have described as domestic terrorists.`\
 https://nytimes.com/2026/01/12/us/politics/fbi-renee-good-ice-shooting.html

@@ -1,3 +1,11 @@
+**NHL announces 2026 draft will be held at Buffalo's KeyBank Center**\
+`The NHL Draft, currently scheduled for June 26 and 27, is returning to Buffalo for the fourth time.`\
+https://nytimes.com/athletic/6963432/2026/01/12/nhl-draft-2026-buffalo-keybank-center/
+
+**NHL, NHLPA 'pleased' with test event at Olympic hockey arena, will continue to monitor progress**\
+`“We expect that the work necessary to address all remaining issues will continue around the clock," the NHL and NHLPA said in a statement.`\
+https://nytimes.com/athletic/6964634/2026/01/12/olympic-hockey-arena-nhl-nhlpa-statement/
+
 **F.B.I. Inquiry Into ICE Shooting Is Examining Victim’s Possible Ties to Activist Groups**\
 `The decision is consistent with the White House’s strategy of deflecting blame for the shooting away from federal law enforcement and toward opponents they have described as domestic terrorists.`\
 https://nytimes.com/2026/01/12/us/politics/fbi-renee-good-ice-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/12/business/federal-reserve-john-williams-rates.html
 **U.S. Attacked Boat With Aircraft That Looked Like a Civilian Plane**\
 `Even accepting the Trump administration’s claim that there is an armed conflict with suspected drug runners, the laws of war bar “perfidy.”`\
 https://nytimes.com/2026/01/12/us/politics/us-boat-attacks-law.html
-
-**In This Town, the Groundhog May Never See Its Shadow Again**\
-`Since Milltown Mel died, a New Jersey town has faced a groundhog crisis. Now the governor has vetoed an effort to bring in out-of-state replacements.`\
-https://nytimes.com/2026/01/12/nyregion/new-jersey-groundhog-day-veto.html
-
-**Hawks general manager Onsi Saleh on Trae Young trade: 'I really wish him the best'**\
-`The emergence of young stars Jalen Johnson and Nickeil Alexander-Walker, in particular, served as catalysts for the trade.`\
-https://nytimes.com/athletic/6964466/2026/01/12/hawks-trae-young-trade-onsi-saleh/
 
