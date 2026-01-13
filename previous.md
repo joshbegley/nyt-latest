@@ -1,3 +1,7 @@
+**Pitching Crypto and Needling Mamdani: Adams’s Post-Mayoralty Takes Shape**\
+`Two weeks ago, Eric Adams was in Times Square to lead the New Year’s Eve ball drop as his last act as mayor. He returned on Monday to promote a new business interest.`\
+https://nytimes.com/2026/01/12/nyregion/adams-mamdani-crypto-congo.html
+
 **Ohio State portal surge includes two Alabama defenders, depth at QB**\
 `Ohio State added two safeties, two defensive linemen, an experienced quarterback and a tight end between Sunday afternoon and Monday.`\
 https://nytimes.com/athletic/6964695/2026/01/12/ohio-state-transfer-portal-commitments-alabama/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6964614/2026/01/12/dougie-hamilton-devils-keefe-lin
 **Trinidad Chambliss has a decision to make as NCAA eligibility battle continues**\
 `While Ole Miss files an appeal with the NCAA, Chambliss' lawyers are expected to file a lawsuit in Mississippi court as soon as this week.`\
 https://nytimes.com/athletic/6964583/2026/01/12/trinidad-chambliss-eligibility-appeal-lawsuit/
-
-**Trump Officials Are Sending 1,000 More Immigration Officers to Minnesota**\
-`The Customs and Border Protection officers are joining 2,000 other officers and agents at the Department of Homeland Security who have recently been deployed to the Minneapolis region.`\
-https://nytimes.com/2026/01/12/us/politics/border-patrol-minnesota-surge.html
 

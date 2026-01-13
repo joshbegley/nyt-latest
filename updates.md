@@ -1,3 +1,7 @@
+**Pitching Crypto and Needling Mamdani: Adams’s Post-Mayoralty Takes Shape**\
+`Two weeks ago, Eric Adams was in Times Square to lead the New Year’s Eve ball drop as his last act as mayor. He returned on Monday to promote a new business interest.`\
+https://nytimes.com/2026/01/12/nyregion/adams-mamdani-crypto-congo.html
+
 **Ohio State portal surge includes two Alabama defenders, depth at QB**\
 `Ohio State added two safeties, two defensive linemen, an experienced quarterback and a tight end between Sunday afternoon and Monday.`\
 https://nytimes.com/athletic/6964695/2026/01/12/ohio-state-transfer-portal-commitments-alabama/
