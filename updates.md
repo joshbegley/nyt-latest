@@ -1,3 +1,11 @@
+**Gabon government lifts bans on national team and Aubameyang**\
+`Gabon's government previously said on television that the national team had been suspended after a "disgraceful" AFCON campaign.`\
+https://nytimes.com/athletic/6965530/2026/01/13/gabon-football-aubameyang-government-afcon-ban/
+
+**What does a new president mean for Michigan sports, an embattled AD and the Big Ten?**\
+`Kent Syverud arrives at Michigan from Syracuse facing a handful of high-profile athletics questions after the Sherrone Moore firing.`\
+https://nytimes.com/athletic/6964542/2026/01/13/michigan-president-kent-syverud-warde-manuel-big-ten/
+
 **The Pulse: Is this Aaron Rodgers' goodbye?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6964104/2026/01/13/aaron-rodgers-final-game-texans-the-pulse/
