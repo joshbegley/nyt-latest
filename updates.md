@@ -1,3 +1,15 @@
+**Fanatics expands into content with the launch of Studios joint venture**\
+`Fanatics' tentpoles, which include fan gear, collectibles and sports-betting, now includes a production studio.`\
+https://nytimes.com/athletic/6966169/2026/01/13/fanatics-studios-michael-ratner-obb-media/
+
+**Trump Administration Will End Deportation Protections for Somalis**\
+`The temporary protections, which are meant to help migrants who cannot safely return to their countries, are expected to expire for Somalis on March 17.`\
+https://nytimes.com/2026/01/13/us/politics/trump-deportation-protections-somalis.html
+
+**College football coaches recommend extending redshirt rule to 9 games**\
+`Tuesday's recommendation is not an official NCAA proposal but will be put in front of NCAA committees.`\
+https://nytimes.com/athletic/6966576/2026/01/13/college-football-coaches-redshirt-rule-eligibility/
+
 **Chargers fire Greg Roman after offense fizzles out in playoffs**\
 `One playoff disappointment was palatable. Two proved to be too much for Harbaugh and the rest of the Chargers’ higher-ups.`\
 https://nytimes.com/athletic/6964307/2026/01/13/chargers-fire-greg-roman/
