@@ -1,3 +1,15 @@
+**Arrest Made in Toronto Airport Gold Heist as Police Seek 2 Others**\
+`The Canadian authorities have identified 10 people in connection with the theft of about $14.4 million in gold bars from Toronto Pearson International Airport in 2023.`\
+https://nytimes.com/2026/01/13/world/canada/canada-gold-heist-arrest.html
+
+**Diamondbacks add a big name in Nolan Arenado, but will he have a big impact? MLB Trade Grades**\
+`The St. Louis Cardinals sent Nolan Arenado to Arizona, along with a hefty chunk of cash. How did both sides do in the deal? `\
+https://nytimes.com/athletic/6966957/2026/01/13/nolan-arenado-diamondbacks-cardinals-mlb-trade-grades/
+
+**Michael Carrick, the football manager: 'I hate the word philosophy'**\
+`The former Man Utd midfielder is no ideologue but has firm coaching convictions which he will hope to instil at his old club`\
+https://nytimes.com/athletic/6954763/2026/01/13/michael-carrick-manager-manchester-united/
+
 **N.Y.C. Bakery Workers Demand Owners Stop Supporting ‘Israeli Occupation’**\
 `Workers at the popular New York City chain Breads Bakery, who are trying to unionize, included the demand in a list alongside higher wages and special overtime pay.`\
 https://nytimes.com/2026/01/13/nyregion/breads-bakery-union-israel-gaza.html
@@ -14,23 +26,11 @@ https://nytimes.com/2026/01/13/world/europe/julio-iglesias-accused-sexual-assaul
 `Vikings wide receiver Jordan Addison was arrested early Monday morning on a trespassing charge in Hillsborough County, Fla.`\
 https://nytimes.com/athletic/6966433/2026/01/13/jordan-addison-vikings-arrest-florida-trespassing-charge/
 
-**Mike Tomlin stepping down as Steelers head coach after 19 seasons: Source**\
+**Mike Tomlin stepping down as Steelers head coach after 19 seasons**\
 `Tomlin is tied with Chuck Noll as the winningest head coach in Steelers franchise history.`\
 https://nytimes.com/athletic/6939323/2026/01/13/mike-tomlin-pittsburgh-steelers/
 
 **7 Albums I’m Looking Forward to in 2026**\
 `Megan Moroney, Bruno Mars, Danny L Harle and more.`\
 https://nytimes.com/2026/01/13/arts/music/amplifier-newsletter-2026-albums.html
-
-**Cubs roster projection 1.0: Outlook with Alex Bregman, Edward Cabrera amid Nico Hoerner trade rumors**\
-`On paper, this looks like a roster that gives the Cubs a chance to win the 2026 World Series.`\
-https://nytimes.com/athletic/6966573/2026/01/13/cubs-roster-projection-alex-bregman-edward-cabrera-nico-hoerner/
-
-**Which AFCON side should you support in the semifinals?**\
-`The Athletic arms you with all the information you need to decide who you should support in the semifinals and beyond...`\
-https://nytimes.com/athletic/6966136/2026/01/13/which-afcon-team-should-you-support/
-
-**Fanatics expands into content with the launch of Studios joint venture**\
-`Fanatics' tentpoles, which include fan gear, collectibles and sports-betting, now includes a production studio.`\
-https://nytimes.com/athletic/6966169/2026/01/13/fanatics-studios-michael-ratner-obb-media/
 
