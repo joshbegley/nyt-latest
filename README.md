@@ -1,3 +1,11 @@
+**Deposed Shah’s Son Seeks Center Stage Amid Iran Protests**\
+`Reza Pahlavi, living in exile in the United States, has long marketed himself as a future leader of Iran. His father’s repressive legacy casts a long shadow.`\
+https://nytimes.com/2026/01/13/world/middleeast/iran-protests-shah-son-pahlavi.html
+
+**Jack Doohan leaves Alpine prior to 2026 F1 season**\
+`Doohan raced for Alpine in the 2025 campaign but was replaced after only six races by Franco Colapinto.`\
+https://nytimes.com/athletic/6965450/2026/01/13/jack-doohan-leaves-alpine-f1/
+
 **How to watch Bills at Broncos: Divisional Round Time, TV, streaming**\
 `Find out how to watch the Buffalo Bills play the Denver Broncos, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6965458/2026/01/13/bills-vs-broncos-stream-how-to-watch-jan-17/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/13/opinion/trump-jerome-powell-federal-reserve.html
 **Did the Worst Netflix Special of the Year Win the Golden Globe?**\
 `That “Ricky Gervais: Mortality” won for best comedy sends a message about the lack of respect given to stand-up.`\
 https://nytimes.com/2026/01/13/arts/television/ricky-gervais-mortality-stand-up-golden-globe-win.html
-
-**Trump Can’t Bomb Iran Into Being a Democracy**\
-`There’s plenty America can do short of war to support the country’s protesters and help oust the ayatollah.`\
-https://nytimes.com/2026/01/13/opinion/trump-iran-protests-ayatollah.html
-
-**The Internet May Look Different After You Listen to This**\
-`Even experts can’t tell what’s made by A.I. So what happens to trust now?`\
-https://nytimes.com/2026/01/13/opinion/ai-slop-internet-trust.html
 
