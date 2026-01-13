@@ -1,3 +1,7 @@
+**Which AFCON side should you support in the semifinals?**\
+`The Athletic arms you with all the information you need to decide who you should support in the semifinals and beyond...`\
+https://nytimes.com/athletic/6966136/2026/01/13/which-afcon-team-should-you-support/
+
 **Fanatics expands into content with the launch of Studios joint venture**\
 `Fanatics' tentpoles, which include fan gear, collectibles and sports-betting, now includes a production studio.`\
 https://nytimes.com/athletic/6966169/2026/01/13/fanatics-studios-michael-ratner-obb-media/
