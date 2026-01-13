@@ -1,3 +1,7 @@
+**The Briefing: Newcastle 0 Man City 2 - Semenyo strikes (and officials take six minutes to disallow second)**\
+`Guardiola's team take a strong lead into the second leg of their Carabao Cup semi-final — but there was controversy during their win`\
+https://nytimes.com/athletic/6963334/2026/01/13/semenyo-man-city-haaland-offside-goal-newcastle/
+
 **Paraglider Survives 500-Foot Plunge Into Ocean off Florida**\
 `A paraglider was rescued by lifeguards after crashing 500 feet into the Atlantic Ocean off Florida on Friday.`\
 https://nytimes.com/video/us/100000010643106/paraglider-survives-500-foot-plunge-into-ocean-off-florida.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/13/style/joel-kim-booster-john-michael-sudsina-weddi
 **The Little Implant That Could Fix America’s Chronic Disease Crisis**\
 `Future treatment for chronic health problems could be as simple as an annual doctor’s appointment, due to advances in bioelectric medicine.`\
 https://nytimes.com/paidpost/carnegie-mellon-university/little-implant/could-fix-americas-chronic-disease-crisis.html
-
-**Video of Runaway Carriage Horse in Manhattan Fuels Debate Over a Proposed Ban**\
-`The horse bolted through traffic and its carriage sideswiped a taxi, reigniting questions over the safety of carriage horses in Central Park.`\
-https://nytimes.com/2026/01/13/nyregion/central-park-carriage-horse-video-ban.html
 
