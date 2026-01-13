@@ -1,3 +1,11 @@
+**Here’s the latest on the argument.**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/heres-the-latest-on-the-argument
+
+**Live Updates: Transgender Athletes’ Cases Reach Supreme Court**\
+`A pair of cases before the justices on Tuesday could affect laws in 27 states that prohibit transgender girls from joining girls’ and women’s sports teams.`\
+https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes
+
 **In comparing Canucks to Canadiens, the benefits of committing to a rebuild are clear**\
 `In the darkest moments of this nascent Canucks rebuild, it's worth taking stock of the very real opportunity that lies ahead.`\
 https://nytimes.com/athletic/6964947/2026/01/13/canucks-canadiens-score-highlights-stats-rebuild/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/13/business/dealbook/powell-federal-reserve-trump-in
 **Trump Administration Live Updates: President Is Set to Speak About Economy on Michigan Trip**\
 ``\
 https://nytimes.com/live/2026/01/13/us/trump-news
-
-**Chargers' embarrassing offensive performance puts Greg Roman on the hot seat**\
-`Justin Herbert has had four offensive play callers in six NFL seasons. Year 7 could include a fifth new coordinator and system.`\
-https://nytimes.com/athletic/6965026/2026/01/13/chargers-greg-roman-hot-seat/
-
-**NASCAR notables react to the Chase playoff format's return: 'I was shocked'**\
-`Past and present NASCAR drivers, plus an owner and executive, give their thoughts on the sport's move back to the Chase playoff format.`\
-https://nytimes.com/athletic/6964940/2026/01/13/nascar-chase-playoff-format-reaction-dale-earnhardt-jr/
 

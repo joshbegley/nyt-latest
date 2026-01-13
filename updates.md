@@ -1,3 +1,11 @@
+**In comparing Canucks to Canadiens, the benefits of committing to a rebuild are clear**\
+`In the darkest moments of this nascent Canucks rebuild, it's worth taking stock of the very real opportunity that lies ahead.`\
+https://nytimes.com/athletic/6964947/2026/01/13/canucks-canadiens-score-highlights-stats-rebuild/
+
+**A Mustardy Winter Jacket and Two Lush Fur Coats**\
+`A pair of Bernese Mountain dogs and their owner looked charming while strolling through London.`\
+https://nytimes.com/2026/01/13/style/street-style-look-yellow-winter-coat.html
+
 **Greenland Would Be the Largest U.S. Land Acquisition, if Trump Got His Way**\
 `Denmark does not want to sell its territory. But for a real estate mogul turned president, the world’s largest island may be irresistible.`\
 https://nytimes.com/2026/01/13/world/europe/greenland-trump-size.html
