@@ -1,3 +1,5 @@
+
+
 **Yankees-Cody Bellinger staredown features disconnect over free agency trends**\
 `At least one area of friction appears to be differing interpretations of the market and Bellinger’s standing in it, league sources said.`\
 https://nytimes.com/athletic/6964736/2026/01/12/yankees-cody-bellinger-free-agency/
