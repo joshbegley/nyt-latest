@@ -1,3 +1,11 @@
+**NFL overreactions: Josh Allen will once again carry Bills to victory**\
+`Toby Mergler has his predictions on the second round of the NFL playoffs.`\
+https://nytimes.com/athletic/6965895/2026/01/13/nfl-overreactions-josh-allen-bills/
+
+**Scott Adams, Audacious Creator of the ‘Dilbert’ Comic Strip, Dies at 68**\
+`His chronicle of a corporate cubicle dweller was widely distributed until racist comments on his podcast led newspapers to cut their ties with him.`\
+https://nytimes.com/2026/01/13/arts/scott-adams-dead.html
+
 **What to know about the report.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2026/01/13/business/inflation-report-cpi/13biz-inflation-blog-update
@@ -25,16 +33,4 @@ https://nytimes.com/2026/01/13/world/middleeast/trump-iran-antigovernment-protes
 **2 Students Behind Challenges to Trans Athlete Laws**\
 `One sued to join her middle school girls’ cross-country team in West Virginia and the other to join the women’s track and cross-country teams at her university in Idaho.`\
 https://nytimes.com/2026/01/13/us/politics/2-students-behind-challenges-to-trans-athlete-laws.html
-
-**Prosecutors Demand Death Penalty for South Korea’s Ousted Leader**\
-`Former President Yoon Suk Yeol faces an insurrection​ charge after his failed attempt to put his country under martial law in 2024.`\
-https://nytimes.com/2026/01/13/world/asia/south-korea-yoon-death-penalty.html
-
-**Read the Clintons’ Personal Letter to Comer**\
-`Bill and Hillary Clinton wrote a lengthy letter to Representative James R. Comer of Kentucky, the Republican chairman of the Oversight Committee, refusing to testify in Congress.`\
-https://nytimes.com/interactive/2026/01/13/us/clinton-letter.html
-
-**27 States Restrict Trans Participation in School Sports**\
-`Over the past six years, more than two dozen state legislatures have enacted laws on transgender athletes. Idaho, whose statute is being challenged before the Supreme Court, was the first in 2020.`\
-https://nytimes.com/2026/01/13/us/politics/state-restrictions-trans-athletes-school-sports.html
 

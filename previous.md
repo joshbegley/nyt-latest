@@ -1,3 +1,7 @@
+**What to know about the report.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2026/01/13/business/inflation-report-cpi/13biz-inflation-blog-update
+
 **Hints Suggest How 2 Key Justices May View Trans Athletes in Women’s Sports**\
 `There are some indications from questions at arguments and past writing how Justices Amy Coney Barrett and Brett Kavanaugh view the issue before the court.`\
 https://nytimes.com/2026/01/13/us/politics/kavanaugh-coney-barrett-trans-athletes-views.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/01/13/us/clinton-letter.html
 **27 States Restrict Trans Participation in School Sports**\
 `Over the past six years, more than two dozen state legislatures have enacted laws on transgender athletes. Idaho, whose statute is being challenged before the Supreme Court, was the first in 2020.`\
 https://nytimes.com/2026/01/13/us/politics/state-restrictions-trans-athletes-school-sports.html
-
-**Here are the lawyers arguing the cases.**\
-`By Abbie VanSickle`\
-https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/here-are-the-lawyers-arguing-the-cases
 
