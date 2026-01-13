@@ -1,3 +1,11 @@
+**Minnesota and Illinois Sue Trump Administration Over ICE Deployments**\
+`Minnesota and Illinois filed federal lawsuits against the Trump administration, claiming that the deployment of immigration agents to the Minneapolis and Chicago areas violated states’ rights.`\
+https://nytimes.com/video/us/politics/100000010640726/minnesot-illinois-trump-lawsuit.html
+
+**ICE Arrests N.Y.C. City Council Employee at Routine Appointment**\
+`City officials said the employee, a data analyst from Venezuela, had legal authorization to work and remain in the United States until October.`\
+https://nytimes.com/2026/01/12/nyregion/nyc-city-council-staffer-detained-ice.html
+
 **The Resistance Libs Were Right**\
 `Trump’s message, the emotional core of his movement, has always been textbook fascism.`\
 https://nytimes.com/2026/01/12/opinion/resistance-libs-trump-fascism.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/12/nyregion/adams-mamdani-crypto-congo.html
 **Ohio State portal surge includes two Alabama defenders, depth at QB**\
 `Ohio State added two safeties, two defensive linemen, an experienced quarterback and a tight end between Sunday afternoon and Monday.`\
 https://nytimes.com/athletic/6964695/2026/01/12/ohio-state-transfer-portal-commitments-alabama/
-
-**NHL releases midseason Central Scouting ranking: McKenna, Stenberg top lists**\
-`Identifying the surprises, risers and fallers from NHL Central Scouting's midseason ranking of 2026 NHL Draft prospects.`\
-https://nytimes.com/athletic/6963691/2026/01/12/nhl-central-scouting-ranking-mckenna-stenberg-midseason/
-
-**Mamdani Brings Affordability Push to Arts With Pick to Lead Film Office**\
-`Rafael Espinal, the current head of the Freelancers Union, will serve as the new director of the Mayor’s Office of Media and Entertainment.`\
-https://nytimes.com/2026/01/12/nyregion/mamdani-film-espinal.html
 
