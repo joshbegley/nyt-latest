@@ -1,3 +1,7 @@
+**Man United reach agreement in principle to appoint Carrick as interim head coach**\
+`Should everything progress as planned Carrick's first game in charge would be against rivals Manchester City on Saturday at Old Trafford.`\
+https://nytimes.com/athletic/6944757/2026/01/13/manchester-united-michael-carrick-interim-manager/
+
 **Awards Season**\
 `Do you watch awards shows like the Golden Globes? Why do you think fewer young people have been tuning in?`\
 https://nytimes.com/2026/01/13/learning/awards-season.html
