@@ -1,3 +1,7 @@
+**Fanatics expands into content with the launch of Studios joint venture**\
+`Fanatics' tentpoles, which include fan gear, collectibles and sports-betting, now includes a production studio.`\
+https://nytimes.com/athletic/6966169/2026/01/13/fanatics-studios-michael-ratner-obb-media/
+
 **Trump Administration Will End Deportation Protections for Somalis**\
 `The temporary protections, which are meant to help migrants who cannot safely return to their countries, are expected to expire for Somalis on March 17.`\
 https://nytimes.com/2026/01/13/us/politics/trump-deportation-protections-somalis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6966489/2026/01/13/falcons-coaching-search-matt-rya
 **Justice Kavanaugh May Bring a Coach’s Perspective to the Case**\
 `The justice, a sports buff, has coached girls’ basketball teams for many years and has often reflected on the role such mentoring can play.`\
 https://nytimes.com/2026/01/13/us/politics/brett-kavanaugh-trans-athletes.html
-
-**Before White House Meeting, Greenland’s Leader Says Island Would Choose Denmark Over U.S.**\
-`Greenland’s leader said that, if given the choice between the United States and Denmark, the Greenlanders would rather stick with the Danes.`\
-https://nytimes.com/2026/01/13/us/politics/greenland-denmark-trump-frederiksen.html
 
