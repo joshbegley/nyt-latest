@@ -1,3 +1,7 @@
+**Texans Dominate Steelers in Final Game of Wild Card Playoff Round**\
+`The Houston Texans won their 10th consecutive game and advanced to the divisional round of the playoffs, where the New England Patriots await.`\
+https://nytimes.com/video/sports/football/100000010641342/texans-dominate-steelers-in-final-game-of-wild-card-playoff-round.html
+
 **Alonso's sacking is the ultimate reminder that only Perez rules at Real Madrid**\
 `The 44-year-old manager was fired on Monday, just under eight months into his new role at the Bernabeu`\
 https://nytimes.com/athletic/6965374/2026/01/13/real-madrid-xabi-alonso-sacking-florentino-perez-power/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/13/crosswords/spelling-bee-forum.html
 **Trump Explores ‘Many Options’ for Dealing With Iran**\
 `President Trump is considering several options, including diplomacy and military force, for dealing with Iran, which has been rocked by violent protests.`\
 https://nytimes.com/video/world/middleeast/100000010641080/trump-iran-options-diplomacy-strikes.html
-
-**Taremi is Forest's leading striker target - how does he compare to other options?**\
-`The Iranian tops Forest's shortlist for a new forward - so how would he fit in under Dyche, and what do the other targets offer?`\
-https://nytimes.com/athletic/6963869/2026/01/13/mehdi-taremi-nottingham-forest-transfer/
 

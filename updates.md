@@ -1,3 +1,7 @@
+**Texans Dominate Steelers in Final Game of Wild Card Playoff Round**\
+`The Houston Texans won their 10th consecutive game and advanced to the divisional round of the playoffs, where the New England Patriots await.`\
+https://nytimes.com/video/sports/football/100000010641342/texans-dominate-steelers-in-final-game-of-wild-card-playoff-round.html
+
 **Alonso's sacking is the ultimate reminder that only Perez rules at Real Madrid**\
 `The 44-year-old manager was fired on Monday, just under eight months into his new role at the Bernabeu`\
 https://nytimes.com/athletic/6965374/2026/01/13/real-madrid-xabi-alonso-sacking-florentino-perez-power/
