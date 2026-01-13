@@ -1,3 +1,7 @@
+**Morocco's Regragui defends African football following criticism of AFCON referees**\
+`The Algerian Football Federation said that refereeing in the team's 2-0 loss to Nigeria "undermined the credibility of African refereeing".`\
+https://nytimes.com/athletic/6965866/2026/01/13/afcon-referees-morocco-walid-regragui/
+
 **Read the Clintons’ Legal Letter to Comer**\
 `Lawyers for Bill and Hillary Clinton wrote a letter to Representative James R. Comer of Kentucky, the Republican chairman of the Oversight Committee.`\
 https://nytimes.com/interactive/2026/01/13/us/politics/clinton-letter-comer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6965822/2026/01/13/barcelona-araujo-alonso-sacking/
 **What was your favorite college football game of 2025?**\
 `There's only one game left in a wild 2025 college football season. What was the best game? Here are our staff's favorites.`\
 https://nytimes.com/athletic/6965645/2026/01/13/best-college-football-games-2025-season/
-
-**Here’s How the Supreme Court Ruled in Cases Involving Transgender Rights**\
-`Among them: The justices have allowed the administration to stop issuing passports with gender identity markings selected by applicants.`\
-https://nytimes.com/2026/01/13/us/politics/supreme-court-transgender-rights-cases-rulings.html
 
