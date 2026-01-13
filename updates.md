@@ -1,3 +1,15 @@
+**Mr. Mamdani Goes to Albany, This Time as a Political Celebrity**\
+`Mayor Zohran Mamdani of New York City returned to the State Capitol for the first time since taking office, underscoring the shifting political winds since his victory.`\
+https://nytimes.com/2026/01/13/nyregion/mamdani-albany.html
+
+**Olympic Fans Get First Chance to Buy Tickets to 2028 Games in Los Angeles**\
+`Starting Wednesday, prospective buyers can enter a lottery to get a chance to purchase the first tickets in April.`\
+https://nytimes.com/2026/01/13/us/olympics-los-angeles-2028-tickets.html
+
+**Potential candidates to replace former Chargers offensive coordinator Greg Roman**\
+`The Chargers need to modernize their offense and create an infrastructure that relies less on Herbert’s out-of-structure playmaking.`\
+https://nytimes.com/athletic/6967712/2026/01/13/charges-offensive-coordinator-candidates-nfl/
+
 **Trump Supports the Protesters, Except Those Protesting Him**\
 `The split-screen television images of mass demonstrations in Minneapolis and Tehran have highlighted the president’s disparate views of democracy and popular dissent.`\
 https://nytimes.com/2026/01/13/us/politics/trump-protesters-iran-minnesota.html
