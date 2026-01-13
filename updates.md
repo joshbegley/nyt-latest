@@ -1,3 +1,5 @@
+
+
 **In a Risky Gambit, Trump Tries Brute Force to Lower Prices**\
 `To assuage cost-weary voters and combat inflation, the president has resorted to a mix of threats and punishments, targeting companies and policymakers alike.`\
 https://nytimes.com/2026/01/13/us/politics/in-a-risky-gambit-trump-tries-brute-force-to-lower-prices.html
