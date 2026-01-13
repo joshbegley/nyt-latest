@@ -1,3 +1,15 @@
+**How to watch Iowa State vs. Kansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Kansas Jayhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6967413/2026/01/13/iowa-state-vs-kansas-stream-how-to-watch-jan-13/
+
+**Trump Loyalist Asserts She Can Keep U.S. Attorney Title**\
+`In an aggressively worded filing, Lindsey Halligan accused a judge of having a fundamental misunderstanding of the order that determined she had been unlawfully appointed.`\
+https://nytimes.com/2026/01/13/us/politics/lindsey-halligan-us-attorneys-office-virginia.html
+
+**Who will be the Steelers’ next head coach? Possible candidates to replace Mike Tomlin**\
+`The Steelers will be hiring their fourth head coach since 1969.`\
+https://nytimes.com/athletic/6967245/2026/01/13/pittsburgh-steelers-coaching-search-mike-tomlin/
+
 **How a G.O.P. Senator Quietly Became a Best-Selling Author**\
 `Senator John Kennedy, a garrulous rank-and-file Republican from Louisiana, has struck a nerve with a new book that provides an insider account of Congress and its dysfunction.`\
 https://nytimes.com/2026/01/13/us/politics/john-kennedy-book-test-negative.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/13/climate/the-view-from-above-antarcticas-fastest-m
 **Uganda Cuts Internet Days Before Presidential Election**\
 `The authorities say the decision was made to prevent the spread of misinformation as President Yoweri Museveni seeks his seventh term in office.`\
 https://nytimes.com/2026/01/13/world/africa/uganda-election-internet.html
-
-**'I am Alvaro Arbeloa': What Real Madrid's surprise new manager said, and what it means**\
-`The 42-year-old former Madrid and Liverpool player spoke to the media for the first time in his new role at the Bernabeu on Tuesday`\
-https://nytimes.com/athletic/6966892/2026/01/13/alvaro-arbeloa-real-madrid-xabi-alonso-sacked-manager/
-
-**Arrest Made in Toronto Airport Gold Heist as Police Seek 2 Others**\
-`The Canadian authorities have identified 10 people in connection with the theft of about $14.4 million in gold bars from Toronto Pearson International Airport in 2023.`\
-https://nytimes.com/2026/01/13/world/canada/canada-gold-heist-arrest.html
-
-**Diamondbacks add a big name in Nolan Arenado, but will he have a big impact? MLB Trade Grades**\
-`The St. Louis Cardinals sent Nolan Arenado to Arizona, along with a hefty chunk of cash. How did both sides do in the deal? `\
-https://nytimes.com/athletic/6966957/2026/01/13/nolan-arenado-diamondbacks-cardinals-mlb-trade-grades/
 
