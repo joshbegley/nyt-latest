@@ -1,3 +1,19 @@
+**Vikings WR Jordan Addison arrested in Florida on trespassing charge**\
+`Vikings wide receiver Jordan Addison was arrested early Monday morning on a trespassing charge in Hillsborough County, Fla.`\
+https://nytimes.com/athletic/6966433/2026/01/13/jordan-addison-vikings-arrest-florida-trespassing-charge/
+
+**Mike Tomlin stepping down as Steelers head coach after 19 seasons: Source**\
+`Tomlin is the second-winningest head coach in Steelers franchise history.`\
+https://nytimes.com/athletic/6939323/2026/01/13/mike-tomlin-pittsburgh-steelers/
+
+**7 Albums I’m Looking Forward to in 2026**\
+`Megan Moroney, Bruno Mars, Danny L Harle and more.`\
+https://nytimes.com/2026/01/13/arts/music/amplifier-newsletter-2026-albums.html
+
+**Cubs roster projection 1.0: Outlook with Alex Bregman, Edward Cabrera amid Nico Hoerner trade rumors**\
+`On paper, this looks like a roster that gives the Cubs a chance to win the 2026 World Series.`\
+https://nytimes.com/athletic/6966573/2026/01/13/cubs-roster-projection-alex-bregman-edward-cabrera-nico-hoerner/
+
 **Which AFCON side should you support in the semifinals?**\
 `The Athletic arms you with all the information you need to decide who you should support in the semifinals and beyond...`\
 https://nytimes.com/athletic/6966136/2026/01/13/which-afcon-team-should-you-support/
@@ -17,24 +33,4 @@ https://nytimes.com/athletic/6964307/2026/01/13/chargers-fire-greg-roman/
 **Carta, in the West Village, Keeps the Wine Flowing at Aperitivo**\
 `The new wine bar, also in the West Village, focuses on France and Greece; an Australian pub opens on the Lower East Side; and more restaurant news.`\
 https://nytimes.com/2026/01/13/dining/nyc-restaurant-news.html
-
-**Aberdeen fan jailed for 18 months after 'disgraceful conduct' that left footballer disfigured**\
-`David Gowans, 32, inflicted a deep laceration to Jack MacKenzie's left eye after Aberdeen's defeat at Dundee United in May 2025.`\
-https://nytimes.com/athletic/6965638/2026/01/13/aberdeen-fan-jailed-jack-mackenzie/
-
-**A.D.F., a Christian conservative legal organization, is assisting Idaho and West Virginia.**\
-`By Abbie VanSickle`\
-https://nytimes.com/2026/01/13/us/politics/adf-a-christian-conservative-legal-organization-is-assisting-idaho-and-west-virginia.html
-
-**How to Arrange Your Desk**\
-`Tips for upgrading your work space and feeling both more organized and more creative.`\
-https://nytimes.com/article/desk-organization-home-design.html
-
-**College football coaches recommend extending redshirt rule to 9 games**\
-`Tuesday's recommendation is not an official NCAA proposal but will be put in front of NCAA committees.`\
-https://nytimes.com/athletic/6966576/2026/01/13/college-football-coaches-redshirt-rule-eligibility/
-
-**Matt Ryan: Falcons looking for character, 'presence' as coaching search intensifies**\
-`Ryan has already spoken with six head coaching candidates, including John Harbaugh, Kevin Stefanski and Mike McDaniel.`\
-https://nytimes.com/athletic/6966489/2026/01/13/falcons-coaching-search-matt-ryan-john-harbaugh/
 
