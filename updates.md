@@ -1,3 +1,7 @@
+**Word of the Day: skein**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/13/learning/word-of-the-day-skein.html
+
 **Venus Williams, 45, loses to Tatjana Maria, 38, in highest age WTA match ever**\
 `The combined age of 84 years and 1 day is the largest between two opponents in a main draw match in WTA competition.`\
 https://nytimes.com/athletic/6965162/2026/01/13/venus-williams-loses-highest-combined-age-wta-match/
