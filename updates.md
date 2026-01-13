@@ -1,3 +1,15 @@
+**Joe Mazzulla repeats 'illegal screen' in postgame presser after Celtics' loss to Pacers**\
+`Mazzulla’s comments were out of character for him. He hardly ever complains about the referees.`\
+https://nytimes.com/athletic/6965049/2026/01/12/joe-mazzulla-illegal-screen-postgame-celtics-pacers/
+
+**Projecting final 8 NFL playoff teams’ odds to win Super Bowl, with divisional matchup analysis**\
+`The NFL's version of the Elite Eight is set. Who will advance to conference championship weekend?`\
+https://nytimes.com/athletic/6963362/2026/01/12/nfl-super-bowl-playoff-chances-odds-divisional-round/
+
+**Texans defense dominates Steelers in wild-card win, Aaron Rodgers’ possible final game**\
+`The Texans will face the Patriots on Sunday in the divisional round, while the Steelers face questions at quarterback and head coach.`\
+https://nytimes.com/athletic/6964991/2026/01/12/texans-steelers-score-result-takeaways-nfl-wild-card-playoffs/
+
 **Texans defense dominates Steelers in wild-card win, Aaron Rodgers’ possible final game**\
 `The Texans will travel to New England to face the Patriots on Sunday in the divisional round.`\
 https://nytimes.com/athletic/6964991/2026/01/12/texans-steelers-score-result-takeaways-nfl-wild-card-playoffs/

@@ -1,3 +1,11 @@
+**Joe Mazzulla repeats 'illegal screen' in postgame presser after Celtics' loss to Pacers**\
+`Mazzulla’s comments were out of character for him. He hardly ever complains about the referees.`\
+https://nytimes.com/athletic/6965049/2026/01/12/joe-mazzulla-illegal-screen-postgame-celtics-pacers/
+
+**Projecting final 8 NFL playoff teams’ odds to win Super Bowl, with divisional matchup analysis**\
+`The NFL's version of the Elite Eight is set. Who will advance to conference championship weekend?`\
+https://nytimes.com/athletic/6963362/2026/01/12/nfl-super-bowl-playoff-chances-odds-divisional-round/
+
 **Synagogue Is Vandalized Days After Anniversary of L.A. Wildfire That Leveled It**\
 `Graffiti denouncing Zionism was discovered Sunday on a wall of the campus, which has not yet been rebuilt after the Eaton fire.`\
 https://nytimes.com/2026/01/12/us/pasadena-synagogue-vandalized.html
@@ -7,7 +15,7 @@ https://nytimes.com/2026/01/12/us/pasadena-synagogue-vandalized.html
 https://nytimes.com/athletic/6962268/2026/01/12/2025-nfl-divisional-round-schedule/
 
 **Texans defense dominates Steelers in wild-card win, Aaron Rodgers’ possible final game**\
-`The Texans will travel to New England to face the Patriots on Sunday in the divisional round.`\
+`The Texans will face the Patriots on Sunday in the divisional round, while the Steelers face questions at quarterback and head coach.`\
 https://nytimes.com/athletic/6964991/2026/01/12/texans-steelers-score-result-takeaways-nfl-wild-card-playoffs/
 
 **Full Time: USWNT star coming home**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/12/crosswords/daily-puzzle-2026-01-13.html
 **Weekly Student News Quiz: U.S. Military Raid, ICE Shooting, Golden Globes**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2026/01/12/learning/12StudentNewsQuiz.html
-
-**Lightning forward Brayden Point exits game vs. Flyers with lower-body injury**\
-`The Lightning forward was one of the first six players named to Canada's Olympic roster ahead of next month's Games.`\
-https://nytimes.com/athletic/6964881/2026/01/12/brayden-point-lightning-injury-team-canada-winter-olympics/
-
-**Sean McDermott overrules himself on critical, playoff-winning sequence**\
-`“I know as a head coach I’ve never been through that situation,” McDermott said of the scenario the Bills found themselves in on Sunday.`\
-https://nytimes.com/athletic/6964814/2026/01/12/sean-mcdermott-critical-playoff-winning-sequence/
 
