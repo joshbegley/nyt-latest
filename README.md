@@ -1,3 +1,11 @@
+**Aberdeen fan jailed for 18 months after 'disgraceful conduct' that left footballer disfigured**\
+`David Gowans, 32, inflicted a deep laceration to Jack MacKenzie's left eye after Aberdeen's defeat at Dundee United in May 2025.`\
+https://nytimes.com/athletic/6965638/2026/01/13/aberdeen-fan-jailed-jack-mackenzie/
+
+**A.D.F., a Christian conservative legal organization, is assisting Idaho and West Virginia.**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/adf-a-christian-conservative-legal-organization-is-assisting-idaho-and-west-virginia
+
 **How to Arrange Your Desk**\
 `Tips for upgrading your work space and feeling both more organized and more creative.`\
 https://nytimes.com/article/desk-organization-home-design.html
@@ -21,12 +29,4 @@ https://nytimes.com/live/2026/01/13/us/trump-news/greenland-denmark-trump-freder
 **How Readers Voted on 17 Ways to Improve New York City**\
 `The top suggestions include spending more of the city’s budget on parks and libraries and fixing the Brooklyn-Queens Expressway.`\
 https://nytimes.com/2026/01/13/arts/design/mamdani-improve-new-york-vote-results.html
-
-**After the Fatal ICE Shooting, Hard Questions We Must Ask**\
-`The killing of Renee Good raises issues of states’ rights, human dignity and when the use of deadly force is justified.`\
-https://nytimes.com/2026/01/13/opinion/minnesota-ice-shooting-questions.html
-
-**Organizing bodies have grappled with gender issues, pleasing few.**\
-`By Juliet Macur`\
-https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/organizing-bodies-have-grappled-with-gender-issues-pleasing-few
 
