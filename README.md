@@ -1,3 +1,7 @@
+**Man United reach agreement in principle to appoint Carrick as interim head coach**\
+`Should everything progress as planned Carrick's first game in charge would be against rivals Manchester City on Saturday at Old Trafford.`\
+https://nytimes.com/athletic/6944757/2026/01/13/manchester-united-michael-carrick-interim-manager/
+
 **Awards Season**\
 `Do you watch awards shows like the Golden Globes? Why do you think fewer young people have been tuning in?`\
 https://nytimes.com/2026/01/13/learning/awards-season.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6963068/2026/01/13/transfer-latest-manchester-unite
 **Jon Stewart Skewers Trump as ‘Acting President of Venezuela’**\
 `“Doesn’t your oath of office to America have a noncompete?” the “Daily Show” host asked President Trump.`\
 https://nytimes.com/2026/01/13/arts/television/late-night-trump-venezuela.html
-
-**Word of the Day: skein**\
-`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/01/13/learning/word-of-the-day-skein.html
 
