@@ -1,3 +1,7 @@
+**Militant Pro-Israel Group Agrees to Halt Operations in New York**\
+`While dissolving the group is not part of a settlement between the organization, Betar, and the office of New York Attorney General Letitia James, it will shut down.`\
+https://nytimes.com/2026/01/13/nyregion/betar-us-israel-new-york.html
+
 **A Timeline of Protests in Iran**\
 `Amid a near-total communications blackout, witness footage trickling out of Iran paints a picture of how the country’s largest uprising in decades spread — and turned deadly.`\
 https://nytimes.com/2026/01/13/world/middleeast/iran-protests-video-timeline.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6966795/2026/01/13/kansas-city-royals-kauffman-stad
 **49ers' Fred Warner to practice, could play in NFC Championship Game**\
 `Warner likely won't play against the Seahawks, but if the 49ers win, he has a chance to return just over three months after ankle surgery.`\
 https://nytimes.com/athletic/6967411/2026/01/13/fred-warner-injury-49ers-playoffs/
-
-**Sabres hire former Lightning AGM Stacy Roest in pro scouting role**\
-`Roest spent more than a decade with Tampa Bay and was part of the front-office staff for the Stanley Cup victories in 2020 and 2021.`\
-https://nytimes.com/athletic/6967502/2026/01/13/buffalo-sabres-stacy-roest-marc-bergevin/
 
