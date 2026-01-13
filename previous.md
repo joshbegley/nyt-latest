@@ -1,3 +1,11 @@
+**The Pitt**\
+``\
+https://nytimes.com/spotlight/the-pitt-hbo-max
+
+**Pioneering Olympic snowboarder Ueli Kestenholz dies in Swiss avalanche**\
+`Kestenholz helped launch snowboarding as an Olympic sport at the 1998 Nagano Winter Games.`\
+https://nytimes.com/athletic/6965811/2026/01/13/ueli-kestenholz-snowboard-olympics-avalanche/
+
 **Tony Stewart returning to NASCAR for Trucks race at Daytona after 10 years away**\
 `Stewart, who last raced in NASCAR in 2016, is returning for one race for Kaulig Racing as part of Ram's "Free Agent Driver Program."`\
 https://nytimes.com/athletic/6965789/2026/01/13/tony-stewart-nascar-daytona-trucks-return-ram-kaulig/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6965838/2026/01/13/matt-lafleur-response-aaron-rodg
 **Food Prices Shot up in December**\
 `Beef, coffee and produce are among the items that have gotten more expensive recently, inflation data on Tuesday showed.`\
 https://nytimes.com/2026/01/13/business/economy/inflation-cpi-report-food-prices.html
-
-**Morocco's Regragui defends African football following criticism of AFCON referees**\
-`The Algerian Football Federation said that officiating in the team's 2-0 loss to Nigeria "undermined the credibility of African refereeing".`\
-https://nytimes.com/athletic/6965866/2026/01/13/afcon-referees-morocco-walid-regragui/
-
-**Read the Clintons’ Legal Letter to Comer**\
-`Lawyers for Bill and Hillary Clinton wrote a letter to Representative James R. Comer of Kentucky, the Republican chairman of the Oversight Committee, on why the couple would not testify in the House’s Jeffrey Epstein investigation.`\
-https://nytimes.com/interactive/2026/01/13/us/politics/clinton-legal-letter-comer.html
 

@@ -1,3 +1,7 @@
+**Here are the lawyers arguing the cases.**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/here-are-the-lawyers-arguing-the-cases
+
 **The Pitt**\
 ``\
 https://nytimes.com/spotlight/the-pitt-hbo-max
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6965904/2026/01/13/saliba-trossard-calafiori-arsena
 **Matt LaFleur 'speechless' after Aaron Rodgers' passionate defense of the Packers coach**\
 `After Pittsburgh's season ended, Rodgers not only stood up for his current coach, Mike Tomlin, but for his former coach, Matt LaFleur.`\
 https://nytimes.com/athletic/6965838/2026/01/13/matt-lafleur-response-aaron-rodgers-defense/
-
-**Food Prices Shot up in December**\
-`Beef, coffee and produce are among the items that have gotten more expensive recently, inflation data on Tuesday showed.`\
-https://nytimes.com/2026/01/13/business/economy/inflation-cpi-report-food-prices.html
 

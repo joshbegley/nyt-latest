@@ -1,3 +1,11 @@
+**The Pitt**\
+``\
+https://nytimes.com/spotlight/the-pitt-hbo-max
+
+**Pioneering Olympic snowboarder Ueli Kestenholz dies in Swiss avalanche**\
+`Kestenholz helped launch snowboarding as an Olympic sport at the 1998 Nagano Winter Games.`\
+https://nytimes.com/athletic/6965811/2026/01/13/ueli-kestenholz-snowboard-olympics-avalanche/
+
 **Tony Stewart returning to NASCAR for Trucks race at Daytona after 10 years away**\
 `Stewart, who last raced in NASCAR in 2016, is returning for one race for Kaulig Racing as part of Ram's "Free Agent Driver Program."`\
 https://nytimes.com/athletic/6965789/2026/01/13/tony-stewart-nascar-daytona-trucks-return-ram-kaulig/
