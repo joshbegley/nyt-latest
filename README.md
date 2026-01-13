@@ -1,3 +1,11 @@
+**For battered magician Aaron Rodgers, this latest act ended without one final trick**\
+`If the Steelers' playoff loss was Aaron Rodgers' final act, it won’t be a wholly satisfying one. Yet it won’t define Rodgers, either.`\
+https://nytimes.com/athletic/6965435/2026/01/13/aaron-rodgers-steelers-texans-retirement/
+
+**Cavallo alleges homophobia forced Adelaide United exit**\
+`Australia's first openly gay men's footballer said he was kept out of the team due to his sexuality, claims that the club denied.`\
+https://nytimes.com/athletic/6965427/2026/01/13/josh-cavallo-homophobia-adelaide-united/
+
 **‘Shoot to Kill’: Accounts of Brutal Crackdown Emerge From Iran**\
 `The Iranian authorities have imposed an information blackout as they try to quell protests, but eyewitness testimony and videos conveying the deadly toll have made their way out.`\
 https://nytimes.com/2026/01/13/world/middleeast/iran-protester-deaths.html
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todaysinyt/2026/01/13/todays-new-york-times-internatio
 **Deposed Shah’s Son Seeks Center Stage Amid Iran Protests**\
 `Reza Pahlavi, living in exile in the United States, has long marketed himself as a future leader of Iran. His father’s repressive legacy casts a long shadow.`\
 https://nytimes.com/2026/01/13/world/middleeast/iran-protests-shah-son-pahlavi.html
-
-**Jack Doohan leaves Alpine prior to 2026 F1 season**\
-`Doohan raced for Alpine in the 2025 campaign but was replaced after only six races by Franco Colapinto.`\
-https://nytimes.com/athletic/6965450/2026/01/13/jack-doohan-leaves-alpine-f1/
-
-**How to watch Bills at Broncos: Divisional Round Time, TV, streaming**\
-`Find out how to watch the Buffalo Bills play the Denver Broncos, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6965458/2026/01/13/bills-vs-broncos-stream-how-to-watch-jan-17/
 
