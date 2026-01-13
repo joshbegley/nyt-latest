@@ -1,3 +1,7 @@
+**The Pulse: Is this Aaron Rodgers' goodbye?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6964104/2026/01/13/aaron-rodgers-final-game-texans-the-pulse/
+
 **'A man of no fear': Meet Troy Stecher, the newest Maple Leafs cult hero**\
 `How did a mid-November waiver pickup become so crucial so quickly for the Maple Leafs? His long journey to Toronto reveals some answers.`\
 https://nytimes.com/athletic/6964115/2026/01/13/maple-leafs-troy-stecher-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6965112/2026/01/13/sabres-benson-power-defense-pant
 **What went wrong for the 2025 Dallas Cowboys? Defense, defense, defense**\
 `The Cowboys had a second consecutive losing season for the first time in 23 seasons after finishing 7-9-1.`\
 https://nytimes.com/athletic/6964096/2026/01/13/dallas-cowboys-2025-season-review-defense/
-
-**Halfway through his sophomore year, Michkov is still struggling with stagnancy**\
-`With the Flyers dealing with plenty of injuries, Michkov had a chance to make his mark high in the lineup but did not.`\
-https://nytimes.com/athletic/6965087/2026/01/13/flyers-michkov-sophomore-season-lightning/
 
