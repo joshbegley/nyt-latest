@@ -2,7 +2,7 @@
 `Our correspondent answers your pressing questions about the club as they navigate an intense schedule of games`\
 https://nytimes.com/athletic/6962964/2026/01/13/newcastle-january-transfers-tonali/
 
-**Newsom Vows to Stop Proposal to Tax Billionaires in California**\
+**Newsom Vows to Stop Proposed Billionaire Tax in California**\
 `Gov. Gavin Newsom said he was working behind the scenes to block a proposed tax on billionaires’ wealth and was committed to defeating the measure if it reached the ballot.`\
 https://nytimes.com/2026/01/13/us/newsom-billionaire-tax-california.html
 
