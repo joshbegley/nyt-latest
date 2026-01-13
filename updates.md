@@ -1,3 +1,11 @@
+**Bill Courtney, Temple MBB assistant and ex-Miami, Cornell coach, dies at 55 years old**\
+`As an assistant, Courtney was integral to Miami making its first Final Four appearance in program history in 2023.`\
+https://nytimes.com/athletic/6966417/2026/01/13/bill-courtney-death-temple-cornell-miami-college-basketball/
+
+**Xabi Alonso's Real Madrid sacking: The full inside story, from Perez's power to Vinicius Jr's outburst**\
+`The 44-year-old head coach was fired by the Spanish giants on Monday, just under eight months after being appointed`\
+https://nytimes.com/athletic/6965897/2026/01/13/xabi-alonso-real-madrid-sacking-full-story/
+
 **Jason Robertson talks about his Olympic snub and big contract year**\
 `Robertson’s 55 points are more than any other U.S. player in the NHL.`\
 https://nytimes.com/athletic/6965434/2026/01/13/stars-jason-robertson-olympics-contract/
