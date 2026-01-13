@@ -1,3 +1,15 @@
+**The Wages of the Ayatollahs’ Antisemitism**\
+`A regime that would rather pursue a perpetual jihad against the Zionist enemy than feed its own people will eventually fall.`\
+https://nytimes.com/2026/01/13/opinion/iran-ayatollah-antisemitism.html
+
+**Do You Have Questions About the New Dietary Guidelines?**\
+`We want to help you understand the changes.`\
+https://nytimes.com/2026/01/13/well/eat/dietary-guidelines-questions.html
+
+**Newcastle identify site for new 'ten out of ten' training ground**\
+`There is a desire to start construction as soon as possible, ideally this year.`\
+https://nytimes.com/athletic/6967162/2026/01/13/newcastle-news-training-ground-update/
+
 **Vikings WR Jordan Addison arrested in Florida on trespassing charge**\
 `Vikings wide receiver Jordan Addison was arrested early Monday morning on a trespassing charge in Hillsborough County, Fla.`\
 https://nytimes.com/athletic/6966433/2026/01/13/jordan-addison-vikings-arrest-florida-trespassing-charge/

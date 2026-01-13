@@ -1,3 +1,15 @@
+**The Wages of the Ayatollahs’ Antisemitism**\
+`A regime that would rather pursue a perpetual jihad against the Zionist enemy than feed its own people will eventually fall.`\
+https://nytimes.com/2026/01/13/opinion/iran-ayatollah-antisemitism.html
+
+**Do You Have Questions About the New Dietary Guidelines?**\
+`We want to help you understand the changes.`\
+https://nytimes.com/2026/01/13/well/eat/dietary-guidelines-questions.html
+
+**Newcastle identify site for new 'ten out of ten' training ground**\
+`There is a desire to start construction as soon as possible, ideally this year.`\
+https://nytimes.com/athletic/6967162/2026/01/13/newcastle-news-training-ground-update/
+
 **The View From Above Antarctica’s Fastest Melting Glacier**\
 `Times journalists were able to get tantalizingly close to the Thwaites glacier, which scientists are hoping to spend weeks studying up close.`\
 https://nytimes.com/2026/01/13/climate/the-view-from-above-antarcticas-fastest-melting-glacier.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6954763/2026/01/13/michael-carrick-manager-manchest
 **N.Y.C. Bakery Workers Demand Owners Stop Supporting ‘Israeli Occupation’**\
 `Workers at the popular New York City chain Breads Bakery, who are trying to unionize, included the demand in a list alongside higher wages and special overtime pay.`\
 https://nytimes.com/2026/01/13/nyregion/breads-bakery-union-israel-gaza.html
-
-**What to Know About the N.Y.C. Nurses’ Strike and How It Affects Patients**\
-`Nearly 15,000 nurses went on strike Monday at some of New York City’s top hospitals, with workers demanding more robust staffing and higher pay.`\
-https://nytimes.com/2026/01/13/nyregion/what-to-know-nyc-nurses-strike.html
-
-**Spanish Prosecutors Investigate Sexual Assault Claims Against Julio Iglesias**\
-`Prosecutors said two former employees of Mr. Iglesias, a renowned Spanish singer, had accused him of abuse. His representatives did not respond to requests for comment.`\
-https://nytimes.com/2026/01/13/world/europe/julio-iglesias-accused-sexual-assault.html
-
-**Vikings WR Jordan Addison arrested in Florida on trespassing charge**\
-`Vikings wide receiver Jordan Addison was arrested early Monday morning on a trespassing charge in Hillsborough County, Fla.`\
-https://nytimes.com/athletic/6966433/2026/01/13/jordan-addison-vikings-arrest-florida-trespassing-charge/
 
