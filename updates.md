@@ -1,3 +1,7 @@
+**Ohio State portal surge includes two Alabama defenders, depth at QB**\
+`Ohio State added two safeties, two defensive linemen, an experienced quarterback and a tight end between Sunday afternoon and Monday.`\
+https://nytimes.com/athletic/6964695/2026/01/12/ohio-state-transfer-portal-commitments-alabama/
+
 **NHL releases midseason Central Scouting ranking: McKenna, Stenberg top lists**\
 `Identifying the surprises, risers and fallers from NHL Central Scouting's midseason ranking of 2026 NHL Draft prospects.`\
 https://nytimes.com/athletic/6963691/2026/01/12/nhl-central-scouting-ranking-mckenna-stenberg-midseason/

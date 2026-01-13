@@ -1,3 +1,7 @@
+**Ohio State portal surge includes two Alabama defenders, depth at QB**\
+`Ohio State added two safeties, two defensive linemen, an experienced quarterback and a tight end between Sunday afternoon and Monday.`\
+https://nytimes.com/athletic/6964695/2026/01/12/ohio-state-transfer-portal-commitments-alabama/
+
 **NHL releases midseason Central Scouting ranking: McKenna, Stenberg top lists**\
 `Identifying the surprises, risers and fallers from NHL Central Scouting's midseason ranking of 2026 NHL Draft prospects.`\
 https://nytimes.com/athletic/6963691/2026/01/12/nhl-central-scouting-ranking-mckenna-stenberg-midseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6964583/2026/01/12/trinidad-chambliss-eligibility-a
 **Trump Officials Are Sending 1,000 More Immigration Officers to Minnesota**\
 `The Customs and Border Protection officers are joining 2,000 other officers and agents at the Department of Homeland Security who have recently been deployed to the Minneapolis region.`\
 https://nytimes.com/2026/01/12/us/politics/border-patrol-minnesota-surge.html
-
-**John Harbaugh speaks with Falcons' Matt Ryan, no in-person interviews yet**\
-`The Falcons conducted a preliminary interview with Harbaugh on Monday. He has yet to meet in person with any team about its coaching job.`\
-https://nytimes.com/athletic/6964558/2026/01/12/john-harbaugh-falcons-matt-ryan-head-coaching-job/
 
