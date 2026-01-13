@@ -1,3 +1,11 @@
+**Guardiola critcises officiating after six-minute VAR check during Man City victory**\
+`In a lengthy rant, Guardiola criticised the long VAR check and referenced refereeing decisions that had previously gone against his team.`\
+https://nytimes.com/athletic/6967918/2026/01/13/pep-guardiola-rant-var-refereeing-man-city-newcastle/
+
+**Louisiana Indicts Another Out-of-State Doctor Over Abortion Pills**\
+`The indictment, followed by a request to extradite the doctor from California, is an escalation of Louisiana’s efforts to counter states that support providing abortions.`\
+https://nytimes.com/2026/01/13/us/louisiana-abortion-pills-california-indictment.html
+
 **Packers-Bears is most-streamed game in NFL history**\
 `The 49ers-Eagles game had 41 million viewers, the most of any game this weekend.`\
 https://nytimes.com/athletic/6967824/2026/01/13/packers-bears-most-streamed-game-nfl-history-eagles-49ers-41-million-viewers/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6967712/2026/01/13/charges-offensive-coordinator-ca
 **Trump Supports the Protesters, Except Those Protesting Him**\
 `The split-screen television images of mass demonstrations in Minneapolis and Tehran have highlighted the president’s disparate views of democracy and popular dissent.`\
 https://nytimes.com/2026/01/13/us/politics/trump-protesters-iran-minnesota.html
-
-**Paraglider Survives 500-Foot Crash Into Ocean Off Florida, Rescuers Say**\
-`A bystander captured the misadventure in a video that drew widespread attention online. Lifeguards and a snorkeler helped rescue the man.`\
-https://nytimes.com/2026/01/13/us/paraglider-survives-crash-florida-rescue.html
-
-**Virginia Special Election Results**\
-`Get live results and maps from the 2026 Virginia elections.`\
-https://nytimes.com/interactive/2026/01/13/us/elections/results-virginia-special-election.html
 
