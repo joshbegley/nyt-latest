@@ -1,3 +1,7 @@
+**Here’s How the Supreme Court Ruled in Cases Involving Transgender Rights**\
+`Among them: The justices have allowed the administration to stop issuing passports with gender identity markings selected by applicants.`\
+https://nytimes.com/2026/01/13/us/politics/supreme-court-transgender-rights-cases-rulings.html
+
 **Marine Le Pen Is Appealing a Conviction That Bars Her From Office. Here’s What to Know.**\
 `Ms. Le Pen, whose far-right party leads polls in France, was convicted last year of embezzlement. The outcome of her appeal, which started on Tuesday, will determine if she can run for president next year.`\
 https://nytimes.com/2026/01/13/world/europe/marine-le-pen-trial-appeal-electoral-ban.html
