@@ -7,7 +7,7 @@ https://nytimes.com/2026/01/12/us/pasadena-synagogue-vandalized.html
 https://nytimes.com/athletic/6962268/2026/01/12/2025-nfl-divisional-round-schedule/
 
 **Texans defense dominates Steelers in wild-card win, Aaron Rodgers’ possible final game**\
-`The Texans will travel to New England to face the Patriots on Sunday.`\
+`The Texans will travel to New England to face the Patriots on Sunday in the divisional round.`\
 https://nytimes.com/athletic/6964991/2026/01/12/texans-steelers-score-result-takeaways-nfl-wild-card-playoffs/
 
 **Full Time: USWNT star coming home**\

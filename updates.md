@@ -1,3 +1,7 @@
+**Texans defense dominates Steelers in wild-card win, Aaron Rodgers’ possible final game**\
+`The Texans will travel to New England to face the Patriots on Sunday in the divisional round.`\
+https://nytimes.com/athletic/6964991/2026/01/12/texans-steelers-score-result-takeaways-nfl-wild-card-playoffs/
+
 **Synagogue Is Vandalized Days After Anniversary of L.A. Wildfire That Leveled It**\
 `Graffiti denouncing Zionism was discovered Sunday on a wall of the campus, which has not yet been rebuilt after the Eaton fire.`\
 https://nytimes.com/2026/01/12/us/pasadena-synagogue-vandalized.html

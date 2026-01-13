@@ -1,3 +1,7 @@
+**Projecting final 8 NFL playoff teams’ odds to win Super Bowl, with divisional matchup analysis**\
+`The NFL's version of the Elite Eight is set. Who will advance to conference championship weekend?`\
+https://nytimes.com/athletic/6963362/2026/01/12/nfl-super-bowl-playoff-chances-odds-divisional-round/
+
 **Synagogue Is Vandalized Days After Anniversary of L.A. Wildfire That Leveled It**\
 `Graffiti denouncing Zionism was discovered Sunday on a wall of the campus, which has not yet been rebuilt after the Eaton fire.`\
 https://nytimes.com/2026/01/12/us/pasadena-synagogue-vandalized.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/01/12/learning/12StudentNewsQuiz.html
 **Lightning forward Brayden Point exits game vs. Flyers with lower-body injury**\
 `The Lightning forward was one of the first six players named to Canada's Olympic roster ahead of next month's Games.`\
 https://nytimes.com/athletic/6964881/2026/01/12/brayden-point-lightning-injury-team-canada-winter-olympics/
-
-**Sean McDermott overrules himself on critical, playoff-winning sequence**\
-`“I know as a head coach I’ve never been through that situation,” McDermott said of the scenario the Bills found themselves in on Sunday.`\
-https://nytimes.com/athletic/6964814/2026/01/12/sean-mcdermott-critical-playoff-winning-sequence/
 
