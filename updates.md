@@ -1,3 +1,11 @@
+**Minnesota and Illinois Sue Trump Administration Over ICE Deployments**\
+`Minnesota and Illinois filed federal lawsuits against the Trump administration, claiming that the deployment of immigration agents to the Minneapolis and Chicago areas violated states’ rights.`\
+https://nytimes.com/video/us/politics/100000010640726/minnesot-illinois-trump-lawsuit.html
+
+**ICE Arrests N.Y.C. City Council Employee at Routine Appointment**\
+`City officials said the employee, a data analyst from Venezuela, had legal authorization to work and remain in the United States until October.`\
+https://nytimes.com/2026/01/12/nyregion/nyc-city-council-staffer-detained-ice.html
+
 **The Resistance Libs Were Right**\
 `Trump’s message, the emotional core of his movement, has always been textbook fascism.`\
 https://nytimes.com/2026/01/12/opinion/resistance-libs-trump-fascism.html
