@@ -1,3 +1,23 @@
+**'A man of no fear': Meet Troy Stecher, the newest Maple Leafs cult hero**\
+`How did a mid-November waiver pickup become so crucial so quickly for the Maple Leafs? His long journey to Toronto reveals some answers.`\
+https://nytimes.com/athletic/6964115/2026/01/13/maple-leafs-troy-stecher-nhl/
+
+**Leeds in negotiations with Fiorentina over Jack Harrison deal**\
+`Talks still have a way to go, but the deal has a fair chance of being concluded, according to sources at Elland Road.`\
+https://nytimes.com/athletic/6965518/2026/01/13/jack-harrison-leeds-fiorentina-transfer/
+
+**Reliving Bears' playoff win over Packers: 10 key plays to unlock the comeback**\
+`The second half was filled with impactful plays that allowed coach Ben Johnson’s Bears to rally from an 18-point deficit.`\
+https://nytimes.com/athletic/6964486/2026/01/13/bears-packers-playoffs-key-plays/
+
+**Who can the Pistons target with their trade exception? Bobby Portis, Kelly Olynyk among options**\
+`The Pistons have roughly $14.2 million to spend in TPE. Which players might fit the bill?`\
+https://nytimes.com/athletic/6964333/2026/01/13/detroit-pistons-trade-exception-bobby-portis/
+
+**Ranking the best NHL players and prospects under 23: Celebrini, Bedard remain at the top**\
+`At the midpoint of the 2025-26 season, Corey Pronman updates his list of the top U23 NHL players and prospects.`\
+https://nytimes.com/athletic/6946124/2026/01/13/nhl-prospects-rankings-u23-celebrini-bedard/
+
 **Writers’ Festival Unraveled After It Disinvited Palestinian Australian Author**\
 `Organizers said her presence was not “culturally sensitive” after a mass shooting that targeted Jewish Australians. Nearly 200 other writers withdrew in protest.`\
 https://nytimes.com/2026/01/13/world/australia/australia-adelaide-writers-palestinian-cancel.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6964096/2026/01/13/dallas-cowboys-2025-season-revie
 **Halfway through his sophomore year, Michkov is still struggling with stagnancy**\
 `With the Flyers dealing with plenty of injuries, Michkov had a chance to make his mark high in the lineup but did not.`\
 https://nytimes.com/athletic/6965087/2026/01/13/flyers-michkov-sophomore-season-lightning/
-
-**Nobody wanted him. Now Indiana's D'Angelo Ponds is terrorizing the Playoff**\
-`Once overlooked for his size, D’Angelo Ponds is now wrecking the College Football Playoff during Indiana's run.`\
-https://nytimes.com/athletic/6964683/2026/01/13/dangelo-ponds-indiana-playoff-terroizing/
-
-**Eagles are in search of a 'home base,' says Jalen Hurts. Will a new OC get them there?**\
-`The fate of first-time offensive coordinator Kevin Patullo has not yet been announced.`\
-https://nytimes.com/athletic/6963680/2026/01/13/eagles-offensive-coordinator-jalen-hurts/
-
-**Makai Lemon, Ty Simpson and other intriguing 2026 NFL Draft early entrants**\
-`Aside from the obvious top-10 talents in this year's draft class, which prospects might draw the most attention of NFL scouts and GMs?`\
-https://nytimes.com/athletic/6964294/2026/01/13/nfl-draft-2026-prospects-underclassmen-ty-simpson/
-
-**Submit your questions for Jen McCaffrey's next Red Sox mailbag!**\
-`Submit your questions for Jen McCaffrey's next mailbag.`\
-https://nytimes.com/athletic/6963835/2026/01/13/red-sox-mailbag-submission-ask/
-
-**Leitch: Indiana football fans are suddenly everywhere. Who can blame them?**\
-`There are Indiana fans everywhere because things like this so rarely happen. Who could possibly resist a sports story unlike any other?`\
-https://nytimes.com/athletic/6964127/2026/01/13/indiana-football-fans-national-championship/
 

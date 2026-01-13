@@ -1,3 +1,23 @@
+**'A man of no fear': Meet Troy Stecher, the newest Maple Leafs cult hero**\
+`How did a mid-November waiver pickup become so crucial so quickly for the Maple Leafs? His long journey to Toronto reveals some answers.`\
+https://nytimes.com/athletic/6964115/2026/01/13/maple-leafs-troy-stecher-nhl/
+
+**Leeds in negotiations with Fiorentina over Jack Harrison deal**\
+`Talks still have a way to go, but the deal has a fair chance of being concluded, according to sources at Elland Road.`\
+https://nytimes.com/athletic/6965518/2026/01/13/jack-harrison-leeds-fiorentina-transfer/
+
+**Reliving Bears' playoff win over Packers: 10 key plays to unlock the comeback**\
+`The second half was filled with impactful plays that allowed coach Ben Johnson’s Bears to rally from an 18-point deficit.`\
+https://nytimes.com/athletic/6964486/2026/01/13/bears-packers-playoffs-key-plays/
+
+**Who can the Pistons target with their trade exception? Bobby Portis, Kelly Olynyk among options**\
+`The Pistons have roughly $14.2 million to spend in TPE. Which players might fit the bill?`\
+https://nytimes.com/athletic/6964333/2026/01/13/detroit-pistons-trade-exception-bobby-portis/
+
+**Ranking the best NHL players and prospects under 23: Celebrini, Bedard remain at the top**\
+`At the midpoint of the 2025-26 season, Corey Pronman updates his list of the top U23 NHL players and prospects.`\
+https://nytimes.com/athletic/6946124/2026/01/13/nhl-prospects-rankings-u23-celebrini-bedard/
+
 **Writers’ Festival Unraveled After It Disinvited Palestinian Australian Author**\
 `Organizers said her presence was not “culturally sensitive” after a mass shooting that targeted Jewish Australians. Nearly 200 other writers withdrew in protest.`\
 https://nytimes.com/2026/01/13/world/australia/australia-adelaide-writers-palestinian-cancel.html
