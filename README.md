@@ -1,36 +1,36 @@
-**Justice Dept. Memo Said Trump Could Send Troops Into Venezuela on His Own**\
-`The Office of Legal Counsel also invoked a claim about Venezuela’s “Cartel de los Soles” that department prosecutors have abandoned.`\
-https://nytimes.com/2026/01/13/us/politics/justice-department-trump-troops-venezuela.html
+**Paraglider Survives 500-Foot Plunge Into Ocean off Florida**\
+`A paraglider was rescued by lifeguards after crashing 500 feet into the Atlantic Ocean off Florida on Friday.`\
+https://nytimes.com/video/us/100000010643106/paraglider-survives-500-foot-plunge-into-ocean-off-florida.html
 
-**Mikaela Shiffrin, Paula Moltzan go 1-2 in World Cup slalom as Olympics near**\
-`Shiffrin won for the sixth time in seven slalom races this World Cup season as the American team looks strong ahead of the Winter Olympics.`\
-https://nytimes.com/athletic/6967617/2026/01/13/mikaela-shiffrin-paula-moltzan-olympics-world-cup-slalom-flachau-austria/
+**Former Adams Aide Charged With Bribery and Wire Fraud**\
+`Anthony Herbert is accused of bribing a funeral director and applying for a fraudulent loan to keep a nonexistent baked-goods business afloat during the pandemic.`\
+https://nytimes.com/2026/01/13/nyregion/former-adams-aide-charged-bribery-wire-fraud.html
 
-**Militant Pro-Israel Group Agrees to Halt Operations in New York**\
-`While dissolving the group is not part of a settlement between the organization, Betar, and the office of New York Attorney General Letitia James, it will shut down.`\
-https://nytimes.com/2026/01/13/nyregion/betar-us-israel-new-york.html
+**Lower Bills and ‘Go Bills’: 8 Takeaways From Hochul’s State of the State**\
+`In her address on Tuesday, Gov. Kathy Hochul of New York focused on affordability, while pushing for nuclear power and new restrictions on religious protests.`\
+https://nytimes.com/2026/01/13/nyregion/hochul-takeaways-speech.html
 
-**A Timeline of Protests in Iran**\
-`Amid a near-total communications blackout, witness footage trickling out of Iran paints a picture of how the country’s largest uprising in decades spread — and turned deadly.`\
-https://nytimes.com/2026/01/13/world/middleeast/iran-protests-video-timeline.html
+**What we're hearing about Brayden Point's injury, the Olympics and who Canada turns to if he's out**\
+`Sam Bennett, Connor Bedard, Wyatt Johnston, Mark Scheifele, Seth Jarvis and Travis Konecny are on Canada's reserve list, if needed.`\
+https://nytimes.com/athletic/6967568/2026/01/13/brayen-point-injury-olympics-canada/
 
-**Timothy Busfield, Actor and Director, Booked on Child Sex Abuse Charges**\
-`He turned himself in to the authorities in New Mexico on Tuesday, the Albuquerque police said.`\
-https://nytimes.com/2026/01/13/us/timothy-busfield-arrested-child-sex-abuse.html
+**The Man From Plains Was Also a Painter**\
+`Amy Carter, the daughter of former president Jimmy Carter, selected paintings and memorabilia for two Christie’s sales. The prices might surprise you.`\
+https://nytimes.com/2026/01/13/arts/design/jimmy-carter-paintings-auction-worth.html
 
-**Everyone Wants the Arctic**\
-`President Trump wants to annex Greenland. We look at the fight over a different Arctic territory for insights.`\
-https://nytimes.com/2026/01/13/world/greenland-svalbard-norway-arctic-trump-iran.html
+**New coach Rick Bowness sees glaring areas where he can help struggling Blue Jackets**\
+`Bowness used the word "nastiness" at least four times, saying that's how he wants the Blue Jackets to play without the puck.`\
+https://nytimes.com/athletic/6966985/2026/01/13/rick-bowness-coach-blue-jackets-dean-evason/
 
-**Anthony Davis denies report that he'll miss months for hand surgery: 'Lies'**\
-`Davis suffered ligament damage in his left hand late in Thursday’s game against the Utah Jazz.`\
-https://nytimes.com/athletic/6966634/2026/01/13/anthony-davis-surgery-news-hand-injury-mavericks/
+**One Was Ready for a Life Partner. The Other, a ‘Vaccine Summer.’**\
+`Joel Kim Booster, the actor and comedian, and John Michael Sudsina became “vacation boyfriends” while in Mexico with friends in May 2021.`\
+https://nytimes.com/2026/01/13/style/joel-kim-booster-john-michael-sudsina-wedding.html
 
-**Ravens owner: Lamar Jackson didn't have 'outsized' role in John Harbaugh's firing**\
-`Following Baltimore's season-finale loss to Pittsburgh, owner Steve Bisciotti made the decision to fire Harbaugh after 18 years. `\
-https://nytimes.com/athletic/6967078/2026/01/13/ravens-owner-john-harbaugh-firing-lamar-jackson/
+**The Little Implant That Could Fix America’s Chronic Disease Crisis**\
+`Future treatment for chronic health problems could be as simple as an annual doctor’s appointment, due to advances in bioelectric medicine.`\
+https://nytimes.com/paidpost/carnegie-mellon-university/little-implant/could-fix-americas-chronic-disease-crisis.html
 
-**Runaway Horse Charges Through Busy N.Y.C. Intersection**\
-`According to the Transport Workers Union Local 100, the horse appeared to be startled by a fast-moving e-bike with a cargo trailer, causing the animal to bolt into the intersection. No one, including the horse, was injured.`\
-https://nytimes.com/video/nyregion/100000010642738/new-york-city-runaway-carriage-horse.html
+**Video of Runaway Carriage Horse in Manhattan Fuels Debate Over a Proposed Ban**\
+`The horse bolted through traffic and its carriage sideswiped a taxi, reigniting questions over the safety of carriage horses in Central Park.`\
+https://nytimes.com/2026/01/13/nyregion/central-park-carriage-horse-video-ban.html
 
