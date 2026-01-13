@@ -1,3 +1,15 @@
+**U.S. to Announce Palestinian Committee to Run Gaza**\
+`Officials said the body’s leadership could be announced as soon as Wednesday, but U.S. efforts to shape postwar Gaza by disarming Hamas have faced hurdles.`\
+https://nytimes.com/2026/01/13/world/middleeast/gaza-techocrat-committee.html
+
+**The Kid Mero, Now a Morning-Radio Motormouth**\
+`The podcast star from the Bronx is taking over the marquee a.m. slot on New York’s storied hip-hop station Hot 97. We rode along on his first day.`\
+https://nytimes.com/2026/01/13/arts/music/hot-97-kid-mero-morning-show-host.html
+
+**Giants, Falcons, Titans emerge as favorites to land John Harbaugh: Sources**\
+`The three teams have all been in daily communication with Harbaugh and his agent, Bryan Harlan.`\
+https://nytimes.com/athletic/6967631/2026/01/13/giants-falcons-titans-coaching-search-john-harbaugh/
+
 **They're not going anywhere: LIV stars say no thanks to PGA Tour offer**\
 `"Right now I’ve got a contract. Looking forward to seeing what we can do with LIV Golf this year," Bryson DeChambeau said.`\
 https://nytimes.com/athletic/6967682/2026/01/13/dechambeau-rahm-smith-stay-liv-golf-pga-tour-offer/
