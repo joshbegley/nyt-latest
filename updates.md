@@ -1,3 +1,7 @@
+**JPMorgan Made Less Money Last Year, Facing Pressure on Multiple Fronts**\
+`The nation’s largest bank earned $57 billion in 2025, but Jamie Dimon, its chief executive, said “the benefits of deregulation” would help in the future.`\
+https://nytimes.com/2026/01/13/business/jpmorgan-earnings-report.html
+
 **Microsoft Pledges to Pay More for Electricity, Drawing Praise From Trump**\
 `The tech giant is responding to concerns that data centers are driving up electricity costs in some communities.`\
 https://nytimes.com/2026/01/13/business/microsoft-electricity-data-center-trump.html
