@@ -1,3 +1,15 @@
+**Researchers Still Debating Whether Trans Athletes Have an Edge**\
+`The issue is complex: Individual sports rely on different physical and physiological attributes, and no two gender transitions are identical.`\
+https://nytimes.com/2026/01/13/us/politics/researchers-still-debating-whether-trans-athletes-have-an-edge.html
+
+**After Sudden Loss, Park Avenue Armory Hires New Artistic Leader**\
+`Deborah Warner, known for directing theater and opera, succeeds Pierre Audi, who died last year. Her own work is expected to be part of her programming.`\
+https://nytimes.com/2026/01/13/arts/park-avenue-armory-deborah-warner.html
+
+**Steakhouse-Inspired Sheet-Pan Gnocchi With Mushrooms and Spinach**\
+`Fast dinners for cold nights (and some longer cooks for slow days).`\
+https://nytimes.com/2026/01/13/dining/steakhouse-inspired-sheet-pan-gnocchi-with-mushrooms-and-spinach.html
+
 **Danish Wind Farm Developer Scrambles to Salvage U.S. Projects**\
 `Orsted’s C.E.O. says it plans to move quickly to complete a $6.2 billion wind farm off Rhode Island after a judge struck down President Trump’s bid to halt it.`\
 https://nytimes.com/2026/01/13/business/orsted-wind-farms-trump.html

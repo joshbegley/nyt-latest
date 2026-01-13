@@ -1,3 +1,15 @@
+**Researchers Still Debating Whether Trans Athletes Have an Edge**\
+`The issue is complex: Individual sports rely on different physical and physiological attributes, and no two gender transitions are identical.`\
+https://nytimes.com/2026/01/13/us/politics/researchers-still-debating-whether-trans-athletes-have-an-edge.html
+
+**After Sudden Loss, Park Avenue Armory Hires New Artistic Leader**\
+`Deborah Warner, known for directing theater and opera, succeeds Pierre Audi, who died last year. Her own work is expected to be part of her programming.`\
+https://nytimes.com/2026/01/13/arts/park-avenue-armory-deborah-warner.html
+
+**Steakhouse-Inspired Sheet-Pan Gnocchi With Mushrooms and Spinach**\
+`Fast dinners for cold nights (and some longer cooks for slow days).`\
+https://nytimes.com/2026/01/13/dining/steakhouse-inspired-sheet-pan-gnocchi-with-mushrooms-and-spinach.html
+
 **NFL overreactions: Josh Allen will once again carry Bills to victory**\
 `Toby Mergler has his predictions on the second round of the NFL playoffs.`\
 https://nytimes.com/athletic/6965895/2026/01/13/nfl-overreactions-josh-allen-bills/
@@ -21,16 +33,4 @@ https://nytimes.com/2026/01/13/business/orsted-wind-farms-trump.html
 **Why feisty Phoenix is thriving, and get ready for a Bulls-Heat three-peat**\
 `Plus: Despite shaky results, one rookie is being encouraged to 'swing for the fences' and keep attacking.`\
 https://nytimes.com/athletic/6964861/2026/01/13/dillon-brooks-suns-nba-bulls-heat/
-
-**A '90s king gets his flowers: 10 reasons why Sergei Fedorov was so cool**\
-`Monday night, we saw some heartwarming history in a moment that seemed like it would never happen: Fedorov's jersey retirement in Detroit.`\
-https://nytimes.com/athletic/6966038/2026/01/13/red-wings-sergei-fedorov-jersey-retirement-red-light/
-
-**Trump Urges Iranians to Keep Up Antigovernment Protests**\
-`“HELP IS ON ITS WAY,” President Trump said on social media. He has threatened to intervene militarily on behalf of the protesters if Iran uses lethal force.`\
-https://nytimes.com/2026/01/13/world/middleeast/trump-iran-antigovernment-protests.html
-
-**2 Students Behind Challenges to Trans Athlete Laws**\
-`One sued to join her middle school girls’ cross-country team in West Virginia and the other to join the women’s track and cross-country teams at her university in Idaho.`\
-https://nytimes.com/2026/01/13/us/politics/2-students-behind-challenges-to-trans-athlete-laws.html
 
