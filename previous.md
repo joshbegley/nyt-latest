@@ -1,3 +1,27 @@
+**Trump Administration Live Updates: President Is Set to Speak About Economy on Michigan Trip**\
+``\
+https://nytimes.com/live/2026/01/13/us/trump-news
+
+**Chargers' embarrassing offensive performance puts Greg Roman on the hot seat**\
+`Justin Herbert has had four offensive play callers in six NFL seasons. Year 7 could include a fifth new coordinator and system.`\
+https://nytimes.com/athletic/6965026/2026/01/13/chargers-greg-roman-hot-seat/
+
+**NASCAR notables react to the Chase playoff format's return: 'I was shocked'**\
+`Past and present NASCAR drivers, plus an owner and executive, give their thoughts on the sport's move back to the Chase playoff format.`\
+https://nytimes.com/athletic/6964940/2026/01/13/nascar-chase-playoff-format-reaction-dale-earnhardt-jr/
+
+**Why haven’t tariffs had a bigger impact on prices?**\
+`By Ana Swanson`\
+https://nytimes.com/live/2026/01/13/business/inflation-report-cpi/why-havent-tariffs-had-a-bigger-impact-on-prices
+
+**What to know about the report.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2026/01/13/business/inflation-report-cpi/inflation
+
+**Live Updates: Inflation Data Due as Fed Considers Rate Path**\
+`The pace of increases in consumer prices is expected to have remained steady in December.`\
+https://nytimes.com/live/2026/01/13/business/inflation-report-cpi
+
 **Global Central Bankers Express Support for Fed Chair After Criminal Investigation**\
 `The defense comes after Jerome Powell pushed back on what he described as pressure by the Trump administration to cut interest rates in the United States.`\
 https://nytimes.com/2026/01/13/business/trump-powell-central-bank-support.html
@@ -13,28 +37,4 @@ https://nytimes.com/2026/01/13/business/delta-airlines-premium-travel.html
 **Liverpool's squad is teetering – they must sign defensive cover**\
 `Conor Bradley's injury should force the club into the market, even if they would rather do their business in the summer`\
 https://nytimes.com/athletic/6965405/2026/01/13/liverpool-transfer-defender-january/
-
-**Astros mailbag, Part 2: The dangers of a 6-man rotation, Jose Altuve's position and more**\
-`Plus your questions about Christian Javier's importance, Brice Matthews' role and a pitcher hoping to crack Houston's rotation.`\
-https://nytimes.com/athletic/6964463/2026/01/13/astros-mailbag-jose-altuve-position-six-man-rotation/
-
-**These teams were ravaged by the portal — how have they responded?**\
-`Oklahoma State, which fired its coach early in the season, has lost 63 players in the transfer portal. West Virginia has lost 38. `\
-https://nytimes.com/athletic/6964823/2026/01/13/transfer-portal-losses-oklahoma-state-penn-state-iowa-state/
-
-**HGTV stars Chip and Joanna Gaines make large donation to Baylor baseball**\
-`The reality TV stars have stayed close to their alma mater throughout their years of building their entertainment brands.`\
-https://nytimes.com/athletic/6965006/2026/01/13/hgtv-chip-joanna-gaines-donation-baylor-baseball/
-
-**NCAA Tournament Bracket Watch: Big Ten, Big 12 are the best and soon to satisfy hoops junkies**\
-`The Big Ten and Big 12 are about to remind us of the joys of league play. Yes, bloated nonsensical conglomerates can provide joy.`\
-https://nytimes.com/athletic/6963580/2026/01/13/ncaa-tournament-bracket-projections-big-ten-big-12-arizona/
-
-**49ers minutia minute: Kyle Juszczyk, defensive rookies took charge after halftime**\
-`Eric Kendricks hasn't missed a tackle in his first two starts for the 49ers. Meanwhile, Niners rookies played their most snaps since Week 8.`\
-https://nytimes.com/athletic/6964757/2026/01/13/49ers-eagles-playoffs-kyle-juszczyk/
-
-**He's the only coach Curt Cignetti retained during his IU overhaul. And his unit is elite**\
-`The backbone of the Hoosiers' offense is the running game, and an OL coach who made his name at Wisconsin has helped maximize it.`\
-https://nytimes.com/athletic/6964348/2026/01/13/bob-bostad-curt-cignetti-indiana-coaches/
 
