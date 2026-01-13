@@ -1,3 +1,7 @@
+**Trump’s Plans for Venezuelan Oil Run Headlong Into Reality**\
+`President Trump’s fixation on Venezuela’s oil raises the question of how much “energy dominance” is really worth nowadays.`\
+https://nytimes.com/2026/01/12/us/politics/trump-venezuela-oil-dominance-influence.html
+
 **Trump Has Another Justification for the Shooting of Renee Good: Disrespect**\
 `President Trump suggested that Renee Good’s “highly disrespectful” attitude toward law enforcement played a role in her fatal shooting by an ICE agent.`\
 https://nytimes.com/2026/01/12/us/politics/trump-shooting-renee-good-ice.html
