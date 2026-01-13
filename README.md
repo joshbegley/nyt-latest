@@ -1,3 +1,11 @@
+**Why David Stearns still likes the Mets' incomplete roster**\
+`Stearns praised the blend of veterans and promising prospects, but said the roster "is going to get better before we get to Opening Day."`\
+https://nytimes.com/athletic/6967655/2026/01/13/david-stearns-mets-roster-free-agency/
+
+**Giants, Falcons, Titans emerge as favorites to land John Harbaugh**\
+`The three teams have all been in daily communication with Harbaugh and his agent, Bryan Harlan.`\
+https://nytimes.com/athletic/6967631/2026/01/13/giants-falcons-titans-coaching-search-john-harbaugh/
+
 **The Briefing: Newcastle 0 Man City 2 - Semenyo strikes (and officials take six minutes to disallow second)**\
 `Guardiola's team take a strong lead into the second leg of their Carabao Cup semi-final — but there was controversy during their win`\
 https://nytimes.com/athletic/6963334/2026/01/13/semenyo-man-city-haaland-offside-goal-newcastle/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/13/arts/design/jimmy-carter-paintings-auction-worth.
 **New coach Rick Bowness sees glaring areas where he can help struggling Blue Jackets**\
 `Bowness used the word "nastiness" at least four times, saying that's how he wants the Blue Jackets to play without the puck.`\
 https://nytimes.com/athletic/6966985/2026/01/13/rick-bowness-coach-blue-jackets-dean-evason/
-
-**One Was Ready for a Life Partner. The Other, a ‘Vaccine Summer.’**\
-`Joel Kim Booster, the actor and comedian, and John Michael Sudsina became “vacation boyfriends” while in Mexico with friends in May 2021.`\
-https://nytimes.com/2026/01/13/style/joel-kim-booster-john-michael-sudsina-wedding.html
-
-**The Little Implant That Could Fix America’s Chronic Disease Crisis**\
-`Future treatment for chronic health problems could be as simple as an annual doctor’s appointment, due to advances in bioelectric medicine.`\
-https://nytimes.com/paidpost/carnegie-mellon-university/little-implant/could-fix-americas-chronic-disease-crisis.html
 
