@@ -1,3 +1,7 @@
+**Vikings WR Jordan Addison arrested in Florida on trespassing charge**\
+`Vikings wide receiver Jordan Addison was arrested early Monday morning on a trespassing charge in Hillsborough County, Fla.`\
+https://nytimes.com/athletic/6966433/2026/01/13/jordan-addison-vikings-arrest-florida-trespassing-charge/
+
 **Newcastle identify site for new 'ten out of ten' training ground**\
 `There is a desire to start construction as soon as possible, ideally this year.`\
 https://nytimes.com/athletic/6967162/2026/01/13/newcastle-news-training-ground-update/
