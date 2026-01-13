@@ -1,3 +1,7 @@
+**JPMorgan Made Less Money Last Year, Facing Pressure on Multiple Fronts**\
+`The nation’s largest bank earned $57 billion in 2025, but Jamie Dimon, its chief executive, said “the benefits of deregulation” would help in the future.`\
+https://nytimes.com/2026/01/13/business/jpmorgan-earnings-report.html
+
 **Microsoft Pledges to Pay More for Electricity, Drawing Praise From Trump**\
 `The tech giant is responding to concerns that data centers are driving up electricity costs in some communities.`\
 https://nytimes.com/2026/01/13/business/microsoft-electricity-data-center-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/13/business/inflation-report-cpi/why-havent-tar
 **Live Updates: Inflation Steady as Fed Considers Rate Path**\
 `Consumer prices in December were 2.7 percent higher than a year ago, a similar rate to the previous month.`\
 https://nytimes.com/live/2026/01/13/business/inflation-report-cpi
-
-**Global Central Bankers Express Support for Fed Chair After Criminal Investigation**\
-`The defense comes after Jerome Powell pushed back on what he described as pressure by the Trump administration to cut interest rates in the United States.`\
-https://nytimes.com/2026/01/13/business/trump-powell-central-bank-support.html
 
