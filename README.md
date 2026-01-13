@@ -1,3 +1,7 @@
+**Sean McDermott overrules himself on critical, playoff-winning sequence**\
+`“I know as a head coach I’ve never been through that situation,” McDermott said of the scenario the Bills found themselves in on Sunday.`\
+https://nytimes.com/athletic/6964814/2026/01/12/sean-mcdermott-critical-playoff-winning-sequence/
+
 **Fedorov jersey retirement gives his story the ending it deserves in Detroit**\
 `In a long-anticipated ceremony, the Red Wings retired Sergei Fedorov's No. 91 jersey on Monday.`\
 https://nytimes.com/athletic/6964532/2026/01/12/detroit-red-wings-sergei-fedorov-jersey-retirement/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010640726/minnesot-illinois-trump-la
 **ICE Arrests N.Y.C. City Council Employee at Routine Appointment**\
 `City officials said the employee, a data analyst from Venezuela, had legal authorization to work and remain in the United States until October.`\
 https://nytimes.com/2026/01/12/nyregion/nyc-city-council-staffer-detained-ice.html
-
-**The Resistance Libs Were Right**\
-`Trump’s message, the emotional core of his movement, has always been textbook fascism.`\
-https://nytimes.com/2026/01/12/opinion/resistance-libs-trump-fascism.html
 
