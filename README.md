@@ -1,3 +1,11 @@
+**Initial Obamacare Enrollment Drops by 1.4 Million**\
+`That number could increase significantly as more consumers are faced with higher bills brought on by expiring premium subsidies.`\
+https://nytimes.com/2026/01/13/health/obamacare-enrollment-decrease-subsidies.html
+
+**3 Prosecutors Quit After Push to Investigate ICE Shooting Victim’s Widow**\
+`Joseph H. Thompson, a career federal prosecutor who was the acting U.S. attorney for Minnesota last year, quit after the Justice Department sought to examine the woman’s supposed ties to activist groups.`\
+https://nytimes.com/2026/01/13/us/3-prosecutors-quit-after-push-to-investigate-ice-shooting-victims-widow.html
+
 **West Ham players would have to take a 50 per cent pay cut if club is relegated**\
 `A West Ham source, who asked to be kept anonymous, insists it is a stipulation the club have always inserted into players' deals.`\
 https://nytimes.com/athletic/6966393/2026/01/13/west-ham-squad-pay-cut-relegation/
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/6826612/2026/01/13/nolan-arenado-trade-cardinals-di
 https://nytimes.com/video/world/europe/100000010641996/marine-le-pen-ban-appeal.html
 
 **Bill Courtney, Temple MBB assistant and ex-Miami, Cornell coach, dies at 55 years old**\
-`As an assistant, Courtney was integral to Miami making its first Final Four appearance in program history in 2023.`\
+`As an assistant, Courtney helped Miami make its first Final Four appearance in program history in 2023.`\
 https://nytimes.com/athletic/6966417/2026/01/13/bill-courtney-death-temple-cornell-miami-college-basketball/
 
 **Xabi Alonso's Real Madrid sacking: The full inside story, from Perez's power to Vinicius Jr's outburst**\
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/6965434/2026/01/13/stars-jason-robertson-olympics-c
 **Hochul’s State of the State Quandary: How Far to the Left Will She Lean?**\
 `Gov. Kathy Hochul of New York is expected to adopt some of the affordability message of Mayor Zohran Mamdani of New York City as she faces a contested re-election bid.`\
 https://nytimes.com/2026/01/13/nyregion/hochul-state-address-speech.html
-
-**Trump Says London is Unsafe. Its Murder Rate Just Hit a Historic Low.**\
-`The city’s homicide rate is lower than New York, Paris or Toronto, contradicting a narrative promoted by President Trump and others on the populist right.`\
-https://nytimes.com/2026/01/13/world/europe/trump-london-crime-homicide.html
 
