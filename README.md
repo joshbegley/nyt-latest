@@ -1,3 +1,7 @@
+**George Kittle posts 'I'll be good' on Instagram after tearing Achilles tendon**\
+`The 49ers' All-Pro tight end was injured during the 49ers' wild-card victory over the Eagles on Sunday.`\
+https://nytimes.com/athletic/6964758/2026/01/12/george-kittle-achilles-injury-social-media-post-reaction/
+
 **Former U.S. Navy Sailor Gets Nearly 17 Years in Prison for Spying for China**\
 `Jinchao Wei sold technical manuals for American warships to a Chinese intelligence officer who had recruited him on social media.`\
 https://nytimes.com/2026/01/12/us/us-navy-sailor-china-spy-sentenced.html
@@ -6,7 +10,7 @@ https://nytimes.com/2026/01/12/us/us-navy-sailor-china-spy-sentenced.html
 `The Blue Jackets couldn't afford to wait any longer after a 1-3-0 road trip had them sitting at the bottom of the Eastern Conference.`\
 https://nytimes.com/athletic/6964691/2026/01/12/blue-jackets-dean-evason-firing-waddell/
 
-**Yankees-Cody Bellinger staredown features disconnect over free agency trends**\
+**Yankees-Cody Bellinger staredown features disconnect over free agency trends: Sources**\
 `At least one area of friction appears to be differing interpretations of the market and Bellinger’s standing in it, league sources said.`\
 https://nytimes.com/athletic/6964736/2026/01/12/yankees-cody-bellinger-free-agency/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/12/us/politics/trump-shooting-renee-good-ice.html
 **Bettor in Gambling Inquiry Says Messages Were About Roosters, Not Baseball**\
 `In a filing in the case involving Emmanuel Clase of the Cleveland Guardians, the bettor said he had never been tipped off about pitches and had only traded messages with the player about cockfighting.`\
 https://nytimes.com/2026/01/12/nyregion/clase-pitcher-mlb-gambling.html
-
-**Eagles enter offseason with A.J. Brown's status a major question, key starters hitting free agency**\
-`Brown did not speak after the game and was not seen at locker clean out day on Monday.`\
-https://nytimes.com/athletic/6964703/2026/01/12/eagles-offseason-aj-brown-free-agency/
 

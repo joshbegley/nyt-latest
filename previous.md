@@ -1,3 +1,7 @@
+**Former U.S. Navy Sailor Gets Nearly 17 Years in Prison for Spying for China**\
+`Jinchao Wei sold technical manuals for American warships to a Chinese intelligence officer who had recruited him on social media.`\
+https://nytimes.com/2026/01/12/us/us-navy-sailor-china-spy-sentenced.html
+
 **Time ran out for Evason with Blue Jackets struggling to find their fire**\
 `The Blue Jackets couldn't afford to wait any longer after a 1-3-0 road trip had them sitting at the bottom of the Eastern Conference.`\
 https://nytimes.com/athletic/6964691/2026/01/12/blue-jackets-dean-evason-firing-waddell/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/12/nyregion/clase-pitcher-mlb-gambling.html
 **Eagles enter offseason with A.J. Brown's status a major question, key starters hitting free agency**\
 `Brown did not speak after the game and was not seen at locker clean out day on Monday.`\
 https://nytimes.com/athletic/6964703/2026/01/12/eagles-offseason-aj-brown-free-agency/
-
-**Kentucky PG Jaland Lowe to have season-ending surgery**\
-`With Lowe out, expect Otega Oweh, Denzel Aberdeen and others to handle the ball more.`\
-https://nytimes.com/athletic/6964712/2026/01/12/kentucky-jaland-lowe-season-ending-surgery/
 

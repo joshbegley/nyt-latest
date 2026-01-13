@@ -1,3 +1,7 @@
+**Former U.S. Navy Sailor Gets Nearly 17 Years in Prison for Spying for China**\
+`Jinchao Wei sold technical manuals for American warships to a Chinese intelligence officer who had recruited him on social media.`\
+https://nytimes.com/2026/01/12/us/us-navy-sailor-china-spy-sentenced.html
+
 **Time ran out for Evason with Blue Jackets struggling to find their fire**\
 `The Blue Jackets couldn't afford to wait any longer after a 1-3-0 road trip had them sitting at the bottom of the Eastern Conference.`\
 https://nytimes.com/athletic/6964691/2026/01/12/blue-jackets-dean-evason-firing-waddell/
