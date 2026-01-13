@@ -1,3 +1,7 @@
+**Grizzlies say 'chance' Ja Morant plays in Berlin amid NBA trade speculation**\
+`Berlin native and German superstar Franz Wagner is trying to return Thursday after missing the last 16 games with a high ankle sprain.`\
+https://nytimes.com/athletic/6965679/2026/01/13/grizzlies-ja-morant-berlin-trade-rumors/
+
 **The Powell Defense Grows**\
 `Former Federal Reserve chiefs, Republican senators and — perhaps most important, many bond investors — raised concerns about an investigation into the bank’s leader.`\
 https://nytimes.com/2026/01/13/business/dealbook/powell-federal-reserve-trump-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/13/business/trump-powell-central-bank-support.html
 **NBA weekly watch guide: More Spurs-Thunder, Berlin game, return of ESPN Fridays**\
 `Here's how to watch the NBA's upcoming games on national TV. Friday opens a new broadcast window for ESPN.`\
 https://nytimes.com/athletic/6964405/2026/01/13/nba-spurs-thunder-berlin-espn-how-to-watch/
-
-**Delta Offers Optimistic Outlook as Travelers Continue to Splurge**\
-`Delta Air Lines said it was expecting profits to rise by around 20 percent in 2026 thanks to strong demand for premium tickets.`\
-https://nytimes.com/2026/01/13/business/delta-airlines-premium-travel.html
 
