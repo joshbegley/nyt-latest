@@ -1,3 +1,7 @@
+**Wild hit everything but the net in Hughes Bowl letdown against Devils: Takeaways**\
+`The Wild missed the net 16 times in the first two periods in Quinn Hughes' first game against his brothers as a Wild player.`\
+https://nytimes.com/athletic/6964886/2026/01/13/wild-quinn-hughes-bowl-foligno-devils/
+
 **Bundesliga Briefing: Younes Ebnoutalib hits the big time, player whisperer Sebastian Hoeness on the rise**\
 `The striker continued his rise through the divisions, scoring on his top-flight debut, while Hoeness continues to turn heads at Stuttgart`\
 https://nytimes.com/athletic/6963078/2026/01/13/bundesliga-briefing-ebnoutalib-frankfurt-hoeness-stuttgart/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/13/pageoneplus/corrections-jan-13-2026.html
 **Joe Mazzulla repeats 'illegal screen' in postgame presser after Celtics' loss to Pacers**\
 `Mazzulla’s comments were out of character for him. He hardly ever complains about the referees.`\
 https://nytimes.com/athletic/6965049/2026/01/12/joe-mazzulla-illegal-screen-postgame-celtics-pacers/
-
-**Projecting final 8 NFL playoff teams’ odds to win Super Bowl, with divisional matchup analysis**\
-`The NFL's version of the Elite Eight is set. Who will advance to conference championship weekend?`\
-https://nytimes.com/athletic/6963362/2026/01/12/nfl-super-bowl-playoff-chances-odds-divisional-round/
 
