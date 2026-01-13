@@ -1,3 +1,11 @@
+**NHL releases midseason Central Scouting ranking: McKenna, Stenberg top lists**\
+`Identifying the surprises, risers and fallers from NHL Central Scouting's midseason ranking of 2026 NHL Draft prospects.`\
+https://nytimes.com/athletic/6963691/2026/01/12/nhl-central-scouting-ranking-mckenna-stenberg-midseason/
+
+**Mamdani Brings Affordability Push to Arts With Pick to Lead Film Office**\
+`Rafael Espinal, the current head of the Freelancers Union, will serve as the new director of the Mayor’s Office of Media and Entertainment.`\
+https://nytimes.com/2026/01/12/nyregion/mamdani-film-espinal.html
+
 **Reporter says she doesn't regret viral moment of praise for Jaguars’ Liam Coen**\
 `Lynn Jones, a longtime reporter in Jacksonville, had postgame kindness instead of questions. It set off a debate about journalistic ethics.`\
 https://nytimes.com/athletic/6964428/2026/01/12/liam-coen-lynn-jones-jaguars-journalistic-ethics/
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/6963432/2026/01/12/nhl-draft-2026-buffalo-keybank-c
 https://nytimes.com/athletic/6964634/2026/01/12/olympic-hockey-arena-nhl-nhlpa-statement/
 
 **F.B.I. Inquiry Into ICE Shooting Is Examining Victim’s Possible Ties to Activist Groups**\
-`The decision is consistent with the White House’s strategy of deflecting blame for the shooting away from federal law enforcement and toward opponents they have described as domestic terrorists.`\
+`Former department officials warned that such a broad inquiry raised the specter that forms of political protests could be criminalized.`\
 https://nytimes.com/2026/01/12/us/politics/fbi-renee-good-ice-shooting.html
 
 **Hamilton returns to Devils lineup against Wild after high-profile healthy scratch**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/12/us/politics/border-patrol-minnesota-surge.html
 **John Harbaugh speaks with Falcons' Matt Ryan, no in-person interviews yet**\
 `The Falcons conducted a preliminary interview with Harbaugh on Monday. He has yet to meet in person with any team about its coaching job.`\
 https://nytimes.com/athletic/6964558/2026/01/12/john-harbaugh-falcons-matt-ryan-head-coaching-job/
-
-**Former Congressional Employee Accused of Stealing 240 Phones**\
-`A Maryland man used his government job to order new cellphones worth over $150,000 and then sell them to a pawnshop, federal prosecutors said.`\
-https://nytimes.com/2026/01/12/us/congressional-employee-stolen-phones.html
-
-**Top Fed Official Conveys Little Urgency for Immediate Rate Cuts**\
-`The Federal Reserve is likely to hold interest rates steady when it meets at the end of the month, keeping tensions high with President Trump.`\
-https://nytimes.com/2026/01/12/business/federal-reserve-john-williams-rates.html
 

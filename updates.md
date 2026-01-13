@@ -1,3 +1,15 @@
+**NHL releases midseason Central Scouting ranking: McKenna, Stenberg top lists**\
+`Identifying the surprises, risers and fallers from NHL Central Scouting's midseason ranking of 2026 NHL Draft prospects.`\
+https://nytimes.com/athletic/6963691/2026/01/12/nhl-central-scouting-ranking-mckenna-stenberg-midseason/
+
+**Mamdani Brings Affordability Push to Arts With Pick to Lead Film Office**\
+`Rafael Espinal, the current head of the Freelancers Union, will serve as the new director of the Mayor’s Office of Media and Entertainment.`\
+https://nytimes.com/2026/01/12/nyregion/mamdani-film-espinal.html
+
+**F.B.I. Inquiry Into ICE Shooting Is Examining Victim’s Possible Ties to Activist Groups**\
+`Former department officials warned that such a broad inquiry raised the specter that forms of political protests could be criminalized.`\
+https://nytimes.com/2026/01/12/us/politics/fbi-renee-good-ice-shooting.html
+
 **Reporter says she doesn't regret viral moment of praise for Jaguars’ Liam Coen**\
 `Lynn Jones, a longtime reporter in Jacksonville, had postgame kindness instead of questions. It set off a debate about journalistic ethics.`\
 https://nytimes.com/athletic/6964428/2026/01/12/liam-coen-lynn-jones-jaguars-journalistic-ethics/
