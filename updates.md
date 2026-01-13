@@ -1,3 +1,11 @@
+**NFL overreactions: Josh Allen will once again carry Bills to victory**\
+`Toby Mergler has his predictions on the second round of the NFL playoffs.`\
+https://nytimes.com/athletic/6965895/2026/01/13/nfl-overreactions-josh-allen-bills/
+
+**Scott Adams, Audacious Creator of the ‘Dilbert’ Comic Strip, Dies at 68**\
+`His chronicle of a corporate cubicle dweller was widely distributed until racist comments on his podcast led newspapers to cut their ties with him.`\
+https://nytimes.com/2026/01/13/arts/scott-adams-dead.html
+
 **What to know about the report.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2026/01/13/business/inflation-report-cpi/13biz-inflation-blog-update

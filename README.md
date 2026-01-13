@@ -14,7 +14,7 @@ https://nytimes.com/live/2026/01/13/business/inflation-report-cpi/13biz-inflatio
 `There are some indications from questions at arguments and past writing how Justices Amy Coney Barrett and Brett Kavanaugh view the issue before the court.`\
 https://nytimes.com/2026/01/13/us/politics/kavanaugh-coney-barrett-trans-athletes-views.html
 
-**Danish Wind Farm Developer Scrambles to Salvage U.S. Projects.**\
+**Danish Wind Farm Developer Scrambles to Salvage U.S. Projects**\
 `Orsted’s C.E.O. says it plans to move quickly to complete a $6.2 billion wind farm off Rhode Island after a judge struck down President Trump’s bid to halt it.`\
 https://nytimes.com/2026/01/13/business/orsted-wind-farms-trump.html
 
