@@ -1,4 +1,16 @@
-**Lightning forward Brayden Point injured vs. Flyers with lower-body injury**\
+**Labor Secretary’s Aides Placed on Leave in Misconduct Investigation**\
+`The Labor Department is investigating a complaint alleging misconduct by Secretary Lori Chavez-DeRemer.`\
+https://nytimes.com/2026/01/12/business/lori-chavez-deremer-misconduct-investigation.html
+
+**I’m in Trouble!**\
+`Nate Hall makes a world-shaking debut.`\
+https://nytimes.com/2026/01/12/crosswords/daily-puzzle-2026-01-13.html
+
+**Weekly Student News Quiz: U.S. Military Raid, ICE Shooting, Golden Globes**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2026/01/12/learning/12StudentNewsQuiz.html
+
+**Lightning forward Brayden Point exits game vs. Flyers with lower-body injury**\
 `The Lightning forward was one of the first six players named to Canada's Olympic roster ahead of next month's Games.`\
 https://nytimes.com/athletic/6964881/2026/01/12/brayden-point-lightning-injury-team-canada-winter-olympics/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6964758/2026/01/12/george-kittle-achilles-injury-so
 **Former U.S. Navy Sailor Gets Nearly 17 Years in Prison for Spying for China**\
 `Jinchao Wei sold technical manuals for American warships to a Chinese intelligence officer who had recruited him on social media.`\
 https://nytimes.com/2026/01/12/us/us-navy-sailor-china-spy-sentenced.html
-
-**Time ran out for Evason with Blue Jackets struggling to find their fire**\
-`The Blue Jackets couldn't afford to wait any longer after a 1-3-0 road trip had them sitting at the bottom of the Eastern Conference.`\
-https://nytimes.com/athletic/6964691/2026/01/12/blue-jackets-dean-evason-firing-waddell/
-
-**Yankees-Cody Bellinger staredown features disconnect over free agency trends: Sources**\
-`At least one area of friction appears to be differing interpretations of the market and Bellinger’s standing in it, league sources said.`\
-https://nytimes.com/athletic/6964736/2026/01/12/yankees-cody-bellinger-free-agency/
-
-**Minnesota and Illinois Sue Trump Administration Over ICE Deployments**\
-`Minnesota and Illinois filed federal lawsuits against the Trump administration, claiming that the deployment of immigration agents to the Minneapolis and Chicago areas violated states’ rights.`\
-https://nytimes.com/video/us/politics/100000010640726/minnesot-illinois-trump-lawsuit.html
 
