@@ -1,3 +1,11 @@
+**Appeals courts have split over bathroom bans for transgender youths.**\
+`By Amy Harmon`\
+https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/appeals-courts-have-split-over-bathroom-bans-for-transgender-youths
+
+**‘Your Every Word Is Going to be Scrutinized’: How Our Reporters Prepared to Interview Trump**\
+`New York Times journalists had to plan carefully for an Oval Office conversation with a president who dominates discourse and makes false claims.`\
+https://nytimes.com/2026/01/13/insider/donald-trump-interview-new-york-times.html
+
 **Initial Obamacare Enrollment Drops by 1.4 Million**\
 `That number could increase significantly as more consumers are faced with higher bills brought on by expiring premium subsidies.`\
 https://nytimes.com/2026/01/13/health/obamacare-enrollment-decrease-subsidies.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6966417/2026/01/13/bill-courtney-death-temple-corne
 **Xabi Alonso's Real Madrid sacking: The full inside story, from Perez's power to Vinicius Jr's outburst**\
 `The 44-year-old head coach was fired by the Spanish giants on Monday, just under eight months after being appointed`\
 https://nytimes.com/athletic/6965897/2026/01/13/xabi-alonso-real-madrid-sacking-full-story/
-
-**Jason Robertson talks about his Olympic snub and big contract year**\
-`Robertson’s 55 points are more than any other U.S. player in the NHL.`\
-https://nytimes.com/athletic/6965434/2026/01/13/stars-jason-robertson-olympics-contract/
-
-**Hochul’s State of the State Quandary: How Far to the Left Will She Lean?**\
-`Gov. Kathy Hochul of New York is expected to adopt some of the affordability message of Mayor Zohran Mamdani of New York City as she faces a contested re-election bid.`\
-https://nytimes.com/2026/01/13/nyregion/hochul-state-address-speech.html
 
