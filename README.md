@@ -1,3 +1,7 @@
+**Carta, in the West Village, Keeps the Wine Flowing at Aperitivo**\
+`The new wine bar, also in the West Village, focuses on France and Greece; an Australian pub opens on the Lower East Side; and more restaurant news.`\
+https://nytimes.com/2026/01/13/dining/nyc-restaurant-news.html
+
 **Aberdeen fan jailed for 18 months after 'disgraceful conduct' that left footballer disfigured**\
 `David Gowans, 32, inflicted a deep laceration to Jack MacKenzie's left eye after Aberdeen's defeat at Dundee United in May 2025.`\
 https://nytimes.com/athletic/6965638/2026/01/13/aberdeen-fan-jailed-jack-mackenzie/
