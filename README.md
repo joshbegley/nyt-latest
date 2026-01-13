@@ -1,40 +1,40 @@
-**Texans Dominate Steelers in Final Game of Wild Card Playoff Round**\
-`The Houston Texans won their 10th consecutive game and advanced to the divisional round of the playoffs, where the New England Patriots await.`\
-https://nytimes.com/video/sports/football/100000010641342/texans-dominate-steelers-in-final-game-of-wild-card-playoff-round.html
+**The Sea Lions of the Galápagos Are Not Ready to Stop Nursing**\
+`Animals that researchers call “supersucklers” come back for their mother’s milk even after they can hunt, mate and fend for themselves.`\
+https://nytimes.com/2026/01/13/science/sea-lions-galapagos-nursing.html
 
-**Alonso's sacking is the ultimate reminder that only Perez rules at Real Madrid**\
-`The 44-year-old manager was fired on Monday, just under eight months into his new role at the Bernabeu`\
-https://nytimes.com/athletic/6965374/2026/01/13/real-madrid-xabi-alonso-sacking-florentino-perez-power/
+**Can James Talarico Reclaim Christianity for the Left?**\
+`Ezra Klein and State Representative James Talarico of Texas discuss his faith, his politics and his Senate race.`\
+https://nytimes.com/2026/01/13/opinion/ezra-klein-podcast-james-talarico.html
 
-**Madrid hand fitness coach Pintus bigger role after Alonso's sacking**\
-`The 63-year-old will return to a key role in the day-to-day physical training of the first team, having taken a back seat this season. `\
-https://nytimes.com/athletic/6965352/2026/01/13/real-madrid-antonio-pintus-fitness-return/
+**Why This 15-Year-Old’s Case Is at the Supreme Court**\
+`On Tuesday, the Supreme Court will hear two cases involving transgender athletes and their participation in women’s sports. One of the plaintiffs, the 15-year-old track athlete Becky Pepper-Jackson, spoke to the reporter Ann E. Marimow ahead of the hearing.`\
+https://nytimes.com/video/us/politics/100000010635319/why-this-15-year-olds-case-is-at-the-supreme-court.html
 
-**Man United reach agreement in principle to appoint Carrick as interim head coach**\
-`Should everything progress as planned Carrick's first game in charge would be against rivals Manchester City on Saturday at Old Trafford.`\
-https://nytimes.com/athletic/6944757/2026/01/13/manchester-united-michael-carrick-interim-manager/
+**Ask The Morning: ICE and Deportations**\
+`Have questions about the Trump administration’s deportation efforts? We will try to find answers.`\
+https://nytimes.com/2026/01/13/us/ask-the-morning-ice-and-deportations.html
 
-**Awards Season**\
-`Do you watch awards shows like the Golden Globes? Why do you think fewer young people have been tuning in?`\
-https://nytimes.com/2026/01/13/learning/awards-season.html
+**If Power Corrupts, What Do We Have Here?**\
+`Trump claims that the only limits on what he can do are his mind and his morality. What could go wrong?`\
+https://nytimes.com/2026/01/13/opinion/trump-presidential-power-addiction.html
 
-**New York Punishes 12-Year-Olds With Solitary Confinement, Lawsuit Claims**\
-`The lawsuit, filed last week in federal court in Manhattan, claims that state officials use solitary confinement for minor misbehavior and as a way to mitigate low staffing.`\
-https://nytimes.com/2026/01/13/nyregion/new-york-children-solitary-confinement.html
+**Trump’s Scheming to Sack Powell Paves the Road to Constitutional Ruin**\
+`A criminal investigation of a sitting Fed chairman, with the obvious intent of stripping him of his independence, has never happened before.`\
+https://nytimes.com/2026/01/13/opinion/trump-jerome-powell-federal-reserve.html
 
-**A Governor’s Legacy: Fewer Shootings, Free College and Covid Deaths**\
-`After eight years as governor of New Jersey, Philip D. Murphy, a former ambassador to Germany and Goldman-Sachs executive, is leaving office. Mikie Sherrill will be sworn in on Jan. 20.`\
-https://nytimes.com/2026/01/13/nyregion/phil-murphy-legacy-new-jersey-governor.html
+**Did the Worst Netflix Special of the Year Win the Golden Globe?**\
+`That “Ricky Gervais: Mortality” won for best comedy sends a message about the lack of respect given to stand-up.`\
+https://nytimes.com/2026/01/13/arts/television/ricky-gervais-mortality-stand-up-golden-globe-win.html
 
-**’Shrooms Lead the Pack in Psychedelic Medicine, but Rollout Is Bumpy**\
-`Psilocybin-assisted therapy is legal in three states, but access has so far been limited and expensive.`\
-https://nytimes.com/2026/01/13/health/shrooms-lead-the-pack-in-psychedelic-medicine-but-rollout-is-bumpy.html
+**Trump Can’t Bomb Iran Into Being a Democracy**\
+`There’s plenty America can do short of war to support the country’s protesters and help oust the ayatollah.`\
+https://nytimes.com/2026/01/13/opinion/trump-iran-protests-ayatollah.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/13/crosswords/spelling-bee-forum.html
+**The Internet May Look Different After You Listen to This**\
+`Even experts can’t tell what’s made by A.I. So what happens to trust now?`\
+https://nytimes.com/2026/01/13/opinion/ai-slop-internet-trust.html
 
-**Trump Explores ‘Many Options’ for Dealing With Iran**\
-`President Trump is considering several options, including diplomacy and military force, for dealing with Iran, which has been rocked by violent protests.`\
-https://nytimes.com/video/world/middleeast/100000010641080/trump-iran-options-diplomacy-strikes.html
+**The New Museum Sets Reopening Date With New Artist Commissions**\
+`After over three years of construction, the museum will open its new building on March 21 with an ambitious show exploring how technologies have changed what it means to be human.`\
+https://nytimes.com/2026/01/13/arts/design/new-museum-sets-reopening-date.html
 
