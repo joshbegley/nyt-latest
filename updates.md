@@ -1,3 +1,7 @@
+**The Pulse: Is this Aaron Rodgers' goodbye?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6964104/2026/01/13/aaron-rodgers-final-game-texans-the-pulse/
+
 **'A man of no fear': Meet Troy Stecher, the newest Maple Leafs cult hero**\
 `How did a mid-November waiver pickup become so crucial so quickly for the Maple Leafs? His long journey to Toronto reveals some answers.`\
 https://nytimes.com/athletic/6964115/2026/01/13/maple-leafs-troy-stecher-nhl/
