@@ -1,3 +1,11 @@
+**Lightning forward Brayden Point injured vs. Flyers with lower-body injury**\
+`The Lightning forward was one of the first six players named to Canada's Olympic roster ahead of next month's Games.`\
+https://nytimes.com/athletic/6964881/2026/01/12/brayden-point-lightning-injury-team-canada-winter-olympics/
+
+**Sean McDermott overrules himself on critical, playoff-winning sequence**\
+`“I know as a head coach I’ve never been through that situation,” McDermott said of the scenario the Bills found themselves in on Sunday.`\
+https://nytimes.com/athletic/6964814/2026/01/12/sean-mcdermott-critical-playoff-winning-sequence/
+
 **Fedorov jersey retirement gives his story the ending it deserves in Detroit**\
 `In a long-anticipated ceremony, the Red Wings retired Sergei Fedorov's No. 91 jersey on Monday.`\
 https://nytimes.com/athletic/6964532/2026/01/12/detroit-red-wings-sergei-fedorov-jersey-retirement/
