@@ -1,3 +1,7 @@
+**Lightning forward Brayden Point injured vs. Flyers with lower-body injury**\
+`The Lightning forward was one of the first six players named to Canada's Olympic roster ahead of next month's Games.`\
+https://nytimes.com/athletic/6964881/2026/01/12/brayden-point-lightning-injury-team-canada-winter-olympics/
+
 **Sean McDermott overrules himself on critical, playoff-winning sequence**\
 `“I know as a head coach I’ve never been through that situation,” McDermott said of the scenario the Bills found themselves in on Sunday.`\
 https://nytimes.com/athletic/6964814/2026/01/12/sean-mcdermott-critical-playoff-winning-sequence/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6964736/2026/01/12/yankees-cody-bellinger-free-agen
 **Minnesota and Illinois Sue Trump Administration Over ICE Deployments**\
 `Minnesota and Illinois filed federal lawsuits against the Trump administration, claiming that the deployment of immigration agents to the Minneapolis and Chicago areas violated states’ rights.`\
 https://nytimes.com/video/us/politics/100000010640726/minnesot-illinois-trump-lawsuit.html
-
-**ICE Arrests N.Y.C. City Council Employee at Routine Appointment**\
-`City officials said the employee, a data analyst from Venezuela, had legal authorization to work and remain in the United States until October.`\
-https://nytimes.com/2026/01/12/nyregion/nyc-city-council-staffer-detained-ice.html
 
