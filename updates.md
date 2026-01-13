@@ -1,3 +1,23 @@
+**Appeals courts have split over bathroom bans for transgender youths.**\
+`By Amy Harmon`\
+https://nytimes.com/live/2026/01/13/us/supreme-court-trans-athletes/appeals-courts-have-split-over-bathroom-bans-for-transgender-youths
+
+**‘Your Every Word Is Going to be Scrutinized’: How Our Reporters Prepared to Interview Trump**\
+`New York Times journalists had to plan carefully for an Oval Office conversation with a president who dominates discourse and makes false claims.`\
+https://nytimes.com/2026/01/13/insider/donald-trump-interview-new-york-times.html
+
+**Initial Obamacare Enrollment Drops by 1.4 Million**\
+`That number could increase significantly as more consumers are faced with higher bills brought on by expiring premium subsidies.`\
+https://nytimes.com/2026/01/13/health/obamacare-enrollment-decrease-subsidies.html
+
+**3 Prosecutors Quit After Push to Investigate ICE Shooting Victim’s Widow**\
+`Joseph H. Thompson, a career federal prosecutor who was the acting U.S. attorney for Minnesota last year, quit after the Justice Department sought to examine the woman’s supposed ties to activist groups.`\
+https://nytimes.com/2026/01/13/us/3-prosecutors-quit-after-push-to-investigate-ice-shooting-victims-widow.html
+
+**Bill Courtney, Temple MBB assistant and ex-Miami, Cornell coach, dies at 55 years old**\
+`As an assistant, Courtney helped Miami make its first Final Four appearance in program history in 2023.`\
+https://nytimes.com/athletic/6966417/2026/01/13/bill-courtney-death-temple-cornell-miami-college-basketball/
+
 **West Ham players would have to take a 50 per cent pay cut if club is relegated**\
 `A West Ham source, who asked to be kept anonymous, insists it is a stipulation the club have always inserted into players' deals.`\
 https://nytimes.com/athletic/6966393/2026/01/13/west-ham-squad-pay-cut-relegation/
