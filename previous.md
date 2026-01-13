@@ -1,3 +1,27 @@
+**The Little Implant That Could Fix America’s Chronic Disease Crisis**\
+`Future treatment for chronic health problems could be as simple as an annual doctor’s appointment, due to advances in bioelectric medicine.`\
+https://nytimes.com/paidpost/carnegie-mellon-university/little-implant/could-fix-americas-chronic-disease-crisis.html
+
+**Video of Runaway Carriage Horse in Manhattan Fuels Debate Over a Proposed Ban**\
+`The horse bolted through traffic and its carriage sideswiped a taxi, reigniting questions over the safety of carriage horses in Central Park.`\
+https://nytimes.com/2026/01/13/nyregion/central-park-carriage-horse-video-ban.html
+
+**Republicans Rejected Trump’s Election Fraud Claims in Secret Georgia Testimony**\
+`The testimony, part of the derailed Georgia election interference case, makes clear how dismissive some senior Republicans were of claims of widespread fraud in the 2020 election.`\
+https://nytimes.com/2026/01/13/us/georgia-election-republicans-trump-transcripts.html
+
+**L.A. Rams Owner Stan Kroenke Becomes Largest Private Landowner in the U.S.**\
+`A December purchase of 937,000 acres of land brought Mr. Kroenke’s total holdings to 2.7 million acres, according to a new report.`\
+https://nytimes.com/2026/01/13/realestate/stan-kroenke-largest-private-landowner.html
+
+**Justice Dept. Memo Said Trump Could Send Troops Into Venezuela on His Own**\
+`The Office of Legal Counsel also invoked a claim about Venezuela’s “Cartel de los Soles” that department prosecutors have abandoned.`\
+https://nytimes.com/2026/01/13/us/politics/justice-department-trump-troops-venezuela.html
+
+**Mikaela Shiffrin, Paula Moltzan go 1-2 in World Cup slalom as Olympics near**\
+`Shiffrin won for the sixth time in seven slalom races this World Cup season as the American team looks strong ahead of the Winter Olympics.`\
+https://nytimes.com/athletic/6967617/2026/01/13/mikaela-shiffrin-paula-moltzan-olympics-world-cup-slalom-flachau-austria/
+
 **Militant Pro-Israel Group Agrees to Halt Operations in New York**\
 `While dissolving the group is not part of a settlement between the organization, Betar, and the office of New York Attorney General Letitia James, it will shut down.`\
 https://nytimes.com/2026/01/13/nyregion/betar-us-israel-new-york.html
@@ -9,28 +33,4 @@ https://nytimes.com/2026/01/13/world/middleeast/iran-protests-video-timeline.htm
 **Timothy Busfield, Actor and Director, Booked on Child Sex Abuse Charges**\
 `He turned himself in to the authorities in New Mexico on Tuesday, the Albuquerque police said.`\
 https://nytimes.com/2026/01/13/us/timothy-busfield-arrested-child-sex-abuse.html
-
-**Everyone Wants the Arctic**\
-`President Trump wants to annex Greenland. We look at the fight over a different Arctic territory for insights.`\
-https://nytimes.com/2026/01/13/world/greenland-svalbard-norway-arctic-trump-iran.html
-
-**Anthony Davis denies report that he'll miss months for hand surgery: 'Lies'**\
-`Davis suffered ligament damage in his left hand late in Thursday’s game against the Utah Jazz.`\
-https://nytimes.com/athletic/6966634/2026/01/13/anthony-davis-surgery-news-hand-injury-mavericks/
-
-**Ravens owner: Lamar Jackson didn't have 'outsized' role in John Harbaugh's firing**\
-`Following Baltimore's season-finale loss to Pittsburgh, owner Steve Bisciotti made the decision to fire Harbaugh after 18 years. `\
-https://nytimes.com/athletic/6967078/2026/01/13/ravens-owner-john-harbaugh-firing-lamar-jackson/
-
-**Runaway Horse Charges Through Busy N.Y.C. Intersection**\
-`According to the Transport Workers Union Local 100, the horse appeared to be startled by a fast-moving e-bike with a cargo trailer, causing the animal to bolt into the intersection. No one, including the horse, was injured.`\
-https://nytimes.com/video/nyregion/100000010642738/new-york-city-runaway-carriage-horse.html
-
-**Citing 'competitive reasons,' Royals announce plan to move and lower outfield wall**\
-`The Royals' Kauffman Stadium has a reputation as a pitcher's park, because it tamps down on home runs. That may be about to change.`\
-https://nytimes.com/athletic/6966795/2026/01/13/kansas-city-royals-kauffman-stadium-walls-moving/
-
-**49ers' Fred Warner to practice, could play in NFC Championship Game**\
-`Warner likely won't play against the Seahawks, but if the 49ers win, he has a chance to return just over three months after ankle surgery.`\
-https://nytimes.com/athletic/6967411/2026/01/13/fred-warner-injury-49ers-playoffs/
 
