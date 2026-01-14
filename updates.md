@@ -1,3 +1,11 @@
+**Minneapolis ‘Feels Like a Military Occupation’**\
+`President Trump has sent ICE agents into cities across America. We take a look at the fallout and what may come next.`\
+https://nytimes.com/2026/01/14/world/minneapolis-us-iran-greenland.html
+
+**With Dante Moore passing on the NFL Draft, a reset of the Jets' QB search**\
+`How it affects the No. 2 pick, and looking at the veteran options across the NFL.`\
+https://nytimes.com/athletic/6971822/2026/01/14/new-york-jets-qb-search-draft-free-agency/
+
 **Tiny Love Stories: ‘I’m 23. He’s 40.’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2026/01/14/style/tiny-modern-love-stories-im-23-hes-40.html

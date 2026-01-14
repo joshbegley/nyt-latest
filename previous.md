@@ -1,3 +1,11 @@
+**Minneapolis ‘Feels Like a Military Occupation’**\
+`President Trump has sent ICE agents into cities across America. We take a look at the fallout and what may come next.`\
+https://nytimes.com/2026/01/14/world/minneapolis-us-iran-greenland.html
+
+**With Dante Moore passing on the NFL Draft, a reset of the Jets' QB search**\
+`How it affects the No. 2 pick, and looking at the veteran options across the NFL.`\
+https://nytimes.com/athletic/6971822/2026/01/14/new-york-jets-qb-search-draft-free-agency/
+
 **Tiny Love Stories: ‘I’m 23. He’s 40.’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2026/01/14/style/tiny-modern-love-stories-im-23-hes-40.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6970564/2026/01/14/marcus-freeman-nfl-coach-notre-d
 **As N.Y.C. Nurses’ Strike Continues, Both Sides Prepare for a Long Fight**\
 `Hospital administrators and union officials appear to be digging in for an extended battle over staffing levels and pay.`\
 https://nytimes.com/2026/01/14/nyregion/nyc-nurses-striking-again-different.html
-
-**U.S. Races to Sell Venezuelan Oil, Transforming Ties With Former Foe**\
-`U.S. officials brokered the sale of hundreds of millions dollars worth of Venezuelan oil to stabilize the country’s economy after capturing its president.`\
-https://nytimes.com/2026/01/14/world/americas/venezuela-oil-us-deal.html
-
-**Federal Judges Uphold California’s New Congressional Maps**\
-`A panel in Los Angeles sided with Gov. Gavin Newsom in a decision that will help Democrats counter Republican gerrymandering in Texas. Republicans are expected to appeal.`\
-https://nytimes.com/2026/01/14/us/politics/federal-court-california-redistricting-decision.html
 
