@@ -1,5 +1,9 @@
-**Yankees trade with Marlins for Ryan Weathers to bolster rotation: Sources**\
-`The Yankees send four prospects to Miami for Weathers, 26, who has logged 281 innings in the majors since 2021. `\
+**Cowboys rookie DE Donovan Ezeiruaku arrested on reckless driving charge**\
+`Ezeiruaku, who was released after posting a $500 bond, was a second-round selection by Dallas in the 2025 NFL Draft.`\
+https://nytimes.com/athletic/6968273/2026/01/13/dallas-cowboys-donovan-ezeiruaku-arrested-reckless-driving-charge/
+
+**Yankees trade with Marlins for Ryan Weathers to bolster rotation**\
+`The Yankees send four prospects to Miami for Weathers, 26, but don't expect it to stop their search for a higher-level starting pitcher.`\
 https://nytimes.com/athletic/6968239/2026/01/13/yankees-marlins-trade-ryan-weathers/
 
 **ICE Arrested Dozens of Refugees in Minnesota and Sent Them to Texas, Lawyers Say**\
@@ -20,7 +24,7 @@ https://nytimes.com/athletic/6967896/2026/01/13/eagles-offensive-coordinator-can
 
 **How to watch Rams at Bears: Divisional Round Time, TV, streaming**\
 `Find out how to watch the Los Angeles Rams play the Chicago Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6968231/2026/01/13/rams-vs-bears-stream-how-to-watch-jan-18/
+https://nytimes.com/athletic/6968231/2026/01/13/how-to-watch-rams-vs-bears-divisional-round-tv-channel-and-streaming-options-for-january-18/
 
 **Vikings leadership noncommittal on J.J. McCarthy as starting QB in 2026**\
 `Vikings GM Kwesi Adofo-Mensah and coach Kevin O'Connell imply they'll bring in competition for McCarthy as the starting QB next season.`\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6967843/2026/01/13/jj-mccarthy-vikings-kwesi-adofo-
 **Eric Adams Hawked a Crypto Coin. A Day Later, $1 Million Was Missing.**\
 `Officials tied to the venture insisted no money had been stolen, but the withdrawal caused the coin’s value to plunge.`\
 https://nytimes.com/2026/01/13/nyregion/adams-crypto-token-money.html
-
-**Meet the 11-year-old viral Eagles fan who resonated with Philly fans**\
-`Salvo expressed frustration with ex-offensive coordinator Kevin Patullo and wideout A.J. Brown wants to be a pro tennis player.`\
-https://nytimes.com/athletic/6967800/2026/01/13/who-is-young-eagles-fan-sam-salvo/
 

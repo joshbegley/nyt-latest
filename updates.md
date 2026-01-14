@@ -1,3 +1,15 @@
+**Cowboys rookie DE Donovan Ezeiruaku arrested on reckless driving charge**\
+`Ezeiruaku, who was released after posting a $500 bond, was a second-round selection by Dallas in the 2025 NFL Draft.`\
+https://nytimes.com/athletic/6968273/2026/01/13/dallas-cowboys-donovan-ezeiruaku-arrested-reckless-driving-charge/
+
+**Yankees trade with Marlins for Ryan Weathers to bolster rotation**\
+`The Yankees send four prospects to Miami for Weathers, 26, but don't expect it to stop their search for a higher-level starting pitcher.`\
+https://nytimes.com/athletic/6968239/2026/01/13/yankees-marlins-trade-ryan-weathers/
+
+**How to watch Rams at Bears: Divisional Round Time, TV, streaming**\
+`Find out how to watch the Los Angeles Rams play the Chicago Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6968231/2026/01/13/how-to-watch-rams-vs-bears-divisional-round-tv-channel-and-streaming-options-for-january-18/
+
 **Yankees trade with Marlins for Ryan Weathers to bolster rotation: Sources**\
 `The Yankees send four prospects to Miami for Weathers, 26, who has logged 281 innings in the majors since 2021. `\
 https://nytimes.com/athletic/6968239/2026/01/13/yankees-marlins-trade-ryan-weathers/

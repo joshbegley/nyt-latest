@@ -1,3 +1,7 @@
+**Iranians Deserve New Leadership**\
+`“The protesters increasingly don’t just want reform, they want to topple the entire theocratic regime,” says the Opinion columnist Nicholas Kristof.`\
+https://nytimes.com/video/opinion/100000010643429/iranians-deserve-new-leadership.html
+
 **Cowboys rookie DE Donovan Ezeiruaku arrested on reckless driving charge**\
 `Ezeiruaku, who was released after posting a $500 bond, was a second-round selection by Dallas in the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6968273/2026/01/13/dallas-cowboys-donovan-ezeiruaku-arrested-reckless-driving-charge/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6968231/2026/01/13/how-to-watch-rams-vs-bears-divis
 **Vikings leadership noncommittal on J.J. McCarthy as starting QB in 2026**\
 `Vikings GM Kwesi Adofo-Mensah and coach Kevin O'Connell imply they'll bring in competition for McCarthy as the starting QB next season.`\
 https://nytimes.com/athletic/6967843/2026/01/13/jj-mccarthy-vikings-kwesi-adofo-mensah-kevin-oconnell-qb/
-
-**Eric Adams Hawked a Crypto Coin. A Day Later, $1 Million Was Missing.**\
-`Officials tied to the venture insisted no money had been stolen, but the withdrawal caused the coin’s value to plunge.`\
-https://nytimes.com/2026/01/13/nyregion/adams-crypto-token-money.html
 
