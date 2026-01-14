@@ -1,3 +1,7 @@
+**Before Curt Cignetti and Indiana, what were the best turnaround stories in sports history?**\
+`Indiana football's dramatic turnaround is reminiscent of several other notable teams in sports history.`\
+https://nytimes.com/athletic/6964057/2026/01/14/indiana-football-curt-cignetti-best-sports-turnaround-stories/
+
 **Can A.I. Generate New Ideas?**\
 `Systems like OpenAI’s GPT-5 are accelerating research in math, biology and chemistry. But there is a debate over whether it can do that work on its own.`\
 https://nytimes.com/2026/01/14/technology/ai-ideas-chat-gpt-openai.html

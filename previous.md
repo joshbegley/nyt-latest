@@ -1,3 +1,7 @@
+**Before Curt Cignetti and Indiana, what were the best turnaround stories in sports history?**\
+`Indiana football's dramatic turnaround is reminiscent of several other notable teams in sports history.`\
+https://nytimes.com/athletic/6964057/2026/01/14/indiana-football-curt-cignetti-best-sports-turnaround-stories/
+
 **Can A.I. Generate New Ideas?**\
 `Systems like OpenAI’s GPT-5 are accelerating research in math, biology and chemistry. But there is a debate over whether it can do that work on its own.`\
 https://nytimes.com/2026/01/14/technology/ai-ideas-chat-gpt-openai.html
@@ -29,12 +33,4 @@ https://nytimes.com/2026/01/14/science/woolly-rhino-wolf-stomach-dna.html
 **My Old Friend Might Be Dying. Should I Tell Her I’m Dating Her Ex?**\
 `She’s reached out asking to reconnect. I’ve postponed a meeting, feeling paralyzed.`\
 https://nytimes.com/2026/01/14/magazine/friend-cancer-husband-ethics.html
-
-**Applying Richard Foreman’s Off-Kilter Aesthetic (and Ducks) to Opera**\
-`The composer Michael Gordon collaborated with Foreman on “What to Wear” in 2006. The opera makes its belated New York premiere at BAM on Thursday.`\
-https://nytimes.com/2026/01/14/arts/music/what-to-wear-richard-foreman-michael-gordon-bam.html
-
-**Interviewing Colombia’s President, Before and After His Call With Trump**\
-`New York Times reporters waited more than eight hours to speak with President Gustavo Petro, who, as it turned out, had another important conversation in the works.`\
-https://nytimes.com/2026/01/14/insider/gustavo-petro-interview.html
 

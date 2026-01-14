@@ -1,3 +1,7 @@
+**Collectors lays out plans for PSA, SGC and Beckett following recent controversies**\
+`Collectors grading business unit president Ryan Hoge lays out some of what's to come for all three affiliated grading brands.`\
+https://nytimes.com/athletic/6970111/2026/01/14/psa-sgc-beckett-collectors-grading/
+
 **Before Curt Cignetti and Indiana, what were the best turnaround stories in sports history?**\
 `Indiana football's dramatic turnaround is reminiscent of several other notable teams in sports history.`\
 https://nytimes.com/athletic/6964057/2026/01/14/indiana-football-curt-cignetti-best-sports-turnaround-stories/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/14/us/politics/supreme-court-illinois-mail-ballot-ru
 **What a Wolf Pup’s Stomach Revealed About the Woolly Rhino’s Extinction**\
 `Scientists prepared a high-quality sequence of the giant mammal’s genome based on a specimen preserved in Siberian permafrost.`\
 https://nytimes.com/2026/01/14/science/woolly-rhino-wolf-stomach-dna.html
-
-**My Old Friend Might Be Dying. Should I Tell Her I’m Dating Her Ex?**\
-`She’s reached out asking to reconnect. I’ve postponed a meeting, feeling paralyzed.`\
-https://nytimes.com/2026/01/14/magazine/friend-cancer-husband-ethics.html
 
