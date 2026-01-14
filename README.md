@@ -1,3 +1,7 @@
+**China’s Trade Surplus Surged 20 Percent to New Highs**\
+`A currency kept weak to help Chinese factories, combined with faltering consumer spending, propelled exports, while a campaign for self-sufficiency limited imports.`\
+https://nytimes.com/2026/01/13/business/china-trade-surplus-exports.html
+
 **Clashes With Federal Agents in Minneapolis Escalate**\
 `Fear and frustration among residents in Minneapolis have mounted as ICE and Border Patrol agents have deployed aggressive tactics and conducted arrests after the killing of Renee Good by an immigration officer last week.`\
 https://nytimes.com/video/us/100000010643433/ice-videos-minnesota-trump-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/13/us/politics/minneapolis-mayor-jacob-frey-ice.html
 **James Talarico Gives JD Vance a Bible Lesson**\
 `The Texas state representative James Talarico, who’s running for Senate and also studying to be a minister, says Vice President JD Vance has misread the Bible on immigration.`\
 https://nytimes.com/video/opinion/100000010630323/james-talarico-gives-jd-vance-a-bible-lesson.html
-
-**Senator Says Prosecutors Are Investigating Her After Video About Illegal Orders**\
-`It is unclear what possible crime might involve Senator Elissa Slotkin, a Democrat, who has warned in dire terms about the dissolution of American democracy.`\
-https://nytimes.com/2026/01/13/us/politics/slotkin-pirro-trump-justice-dept-video.html
 
