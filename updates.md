@@ -1,3 +1,7 @@
+**Mayor Mamdani Names Transit Veteran as Taxi Commissioner**\
+`Midori Valdivia would head the Taxi and Limousine Commission, overseeing more than 115,000 for-hire vehicles. The mayor said drivers deserved a “forceful champion.”`\
+https://nytimes.com/2026/01/13/nyregion/mamdani-taxi-commissioner-valdivia.html
+
 **China’s Trade Surplus Surged 20 Percent to New Highs**\
 `A currency kept weak to help Chinese factories, combined with faltering consumer spending, propelled exports, while a campaign for self-sufficiency limited imports.`\
 https://nytimes.com/2026/01/13/business/china-trade-surplus-exports.html
