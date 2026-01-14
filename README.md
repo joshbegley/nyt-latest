@@ -1,3 +1,11 @@
+**Judge Rejects Effort to Return Man Accused in 9/11 Plot to Guantánamo Trial**\
+`The case of Ramzi bin al-Shibh was severed in 2023 after a military medical panel found him incompetent to help with his defense.`\
+https://nytimes.com/2026/01/14/us/politics/sept-11-defendant-decision.html
+
+**Independents Reach New High as Young Voters Avoid Labels**\
+`New data from Gallup shows overall gains for Democrats even though 45 percent of Americans do not identify with either political party.`\
+https://nytimes.com/2026/01/14/polls/gallup-independent-voters.html
+
 **Submit a question for Pete Sampson's Notre Dame mailbag**\
 `Miami and Indiana will square off for a national title on Monday night, but Notre Dame football already has turned its attention to 2026.`\
 https://nytimes.com/athletic/6971441/2026/01/14/submit-a-question-for-pete-sampsons-notre-dame-mailbag-108/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6971524/2026/01/14/jazz-vs-bulls-stream-how-to-watc
 **How to watch Senators vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Ottawa Senators play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6971515/2026/01/14/senators-vs-rangers-stream-how-to-watch-jan-14/
-
-**How to watch Flyers vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6971513/2026/01/14/flyers-vs-sabres-stream-how-to-watch-jan-14/
-
-**How to watch Illinois vs. Northwestern men's basketball: Time, TV, streaming**\
-`Find out how to watch the Illinois Fighting Illini play the Northwestern Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6971484/2026/01/14/illinois-vs-northwestern-stream-how-to-watch-jan-14/
 
