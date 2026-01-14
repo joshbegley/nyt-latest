@@ -1,3 +1,7 @@
+**U.S. Races to Sell Venezuelan Oil, Transforming Ties With Former Foe**\
+`U.S. officials brokered the sale of hundreds of millions dollars worth of Venezuelan oil to stabilize the country’s economy after capturing its president.`\
+https://nytimes.com/2026/01/14/world/americas/venezuela-oil-us-deal.html
+
 **Federal Judges Uphold California’s New Congressional Maps**\
 `A panel in Los Angeles sided with Gov. Gavin Newsom in a decision that will help Democrats counter Republican gerrymandering in Texas. Republicans are expected to appeal.`\
 https://nytimes.com/2026/01/14/us/politics/federal-court-california-redistricting-decision.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6971441/2026/01/14/submit-a-question-for-pete-samps
 **How to watch Nets vs. Pelicans: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the New Orleans Pelicans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6971548/2026/01/14/nets-vs-pelicans-stream-how-to-watch-jan-14/
-
-**How to watch Knicks vs. Kings: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6971545/2026/01/14/knicks-vs-kings-stream-how-to-watch-jan-14/
 
