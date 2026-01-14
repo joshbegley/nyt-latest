@@ -1,3 +1,7 @@
+**Word of the Day: puerile**\
+`This word has appeared in 27 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/14/learning/word-of-the-day-puerile.html
+
 **Whether it's LeBron's agent or active NBA players, who is talking on podcasts matters**\
 `Paul recently floated a trade of the Lakers' Austin Reaves for the Grizzlies' Jaren Jackson Jr., sparking reaction from Lakers fans. `\
 https://nytimes.com/athletic/6968030/2026/01/14/nba-podcasts-rich-paul-lebron-james-lakers-trade-suggestion/
