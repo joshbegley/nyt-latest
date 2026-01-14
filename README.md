@@ -1,3 +1,7 @@
+**American Citizens Are Living in Fear**\
+`Readers share their anxieties over the aggressive tactics of ICE agents. Also: Undermining the Fed’s stability; one reader’s Trump quiz.`\
+https://nytimes.com/2026/01/14/opinion/ice-citizens-fear.html
+
 **Senegal 1 Egypt 0 - Sadio Mane gets one over Mohamed Salah, but is this the end for the Egyptian?**\
 `In a tense and cagey encounter it was Senegal who came out on top, thanks to a late goal from Sadio Mane`\
 https://nytimes.com/athletic/6965945/2026/01/14/senegal-1-egypt-0-mane-salah/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6970544/2026/01/14/canadiens-alexandre-texier-contr
 **Can the ICE Agent Who Shot Renee Good Be Prosecuted?**\
 `The Trump administration is unlikely to bring a federal case, and any criminal case would face high hurdles. But charges are not out of the question.`\
 https://nytimes.com/2026/01/14/us/renee-good-ice-shooting-prosecution.html
-
-**Where’s the Gym? Oh, Through That Tube Over There**\
-`A new kind of tap-in, tap-out system at gyms has some New Yorkers flustered.`\
-https://nytimes.com/2026/01/14/business/puregym-exits-fire-department.html
 
