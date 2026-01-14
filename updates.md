@@ -1,3 +1,15 @@
+**Renaming Defense Department Could Cost Taxpayers $125 Million**\
+`A report released by the Congressional Budget Office estimated the amount of money that would be spent on new signs and letterhead, should Congress approve a change.`\
+https://nytimes.com/2026/01/14/us/defense-department-name-change.html
+
+**Yankees' playoff hero thrilled about son's trade to Bronx: 'Full-circle moment'**\
+`David Weathers helped the Yankees win the 1996 World Series. Now, his son, Ryan, is headed to the Bronx, and dad couldn't be happier. `\
+https://nytimes.com/athletic/6971836/2026/01/14/yankees-ryan-weathers-trade-father-reaction/
+
+**Iran Prepares to Execute Protester**\
+`Iran prepared to execute Erfan Soltani, 26, on Wednesday. Soltani would be the first protester to be executed in the latest wave of antigovernment unrest. President Trump said that “the killing in Iran is stopping,” but did not elaborate on his statement.`\
+https://nytimes.com/video/world/middleeast/100000010645079/iran-protests-trump-executions.html
+
 **Congress Is Spurning Many of Trump’s Proposed Spending Cuts**\
 `Months after the partisan clash that led to the longest shutdown in history, lawmakers have agreed on spending bills that look far different from what the president wanted.`\
 https://nytimes.com/2026/01/14/us/politics/congress-trump-spending-cuts.html
