@@ -1,3 +1,11 @@
+**Senator Says Prosecutors Are Investigating Her After Video About Illegal Orders**\
+`It is unclear what possible crime might involve Senator Elissa Slotkin, a Democrat, who has warned in dire terms about the dissolution of American democracy.`\
+https://nytimes.com/2026/01/13/us/politics/slotkin-pirro-trump-justice-dept-video.html
+
+**The Religious Right Uses Christianity for ‘Control’**\
+`The Texas state representative and Senate candidate James Talarico, who’s studying to be a Christian minister, says the religious right has distorted his faith.`\
+https://nytimes.com/video/opinion/100000010630341/the-religious-right-uses-christianity-for-control.html
+
 **David Webb, Investor Who Took on Hong Kong Tycoons, Dies at 60**\
 `From his internet platform, he became a tenacious watchdog fighting financial regulators for minority shareholders and exposing shady business dealings.`\
 https://nytimes.com/2026/01/13/world/asia/david-webb-hong-kong-obit.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/13/arts/design/smithsonian-more-records-trump-deadli
 **Eagles offensive coordinator search: 12 candidates to replace Kevin Patullo**\
 `Nick Sirianni is searching for his fifth offensive coordinator since becoming Eagles head coach in 2021, including Kevin Patullo on Tuesday.`\
 https://nytimes.com/athletic/6967896/2026/01/13/eagles-offensive-coordinator-candidates-search-kevin-patullo/
-
-**How to watch Rams at Bears: Divisional Round Time, TV, streaming**\
-`Find out how to watch the Los Angeles Rams play the Chicago Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6968231/2026/01/13/how-to-watch-rams-vs-bears-divisional-round-tv-channel-and-streaming-options-for-january-18/
-
-**Vikings leadership noncommittal on J.J. McCarthy as starting QB in 2026**\
-`Vikings GM Kwesi Adofo-Mensah and coach Kevin O'Connell imply they'll bring in competition for McCarthy as the starting QB next season.`\
-https://nytimes.com/athletic/6967843/2026/01/13/jj-mccarthy-vikings-kwesi-adofo-mensah-kevin-oconnell-qb/
 
