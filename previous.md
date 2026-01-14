@@ -1,3 +1,7 @@
+**Construction Crane Falls on Train in Thailand**\
+`A crane fell on an express train carrying about 200 passengers in northeastern Thailand. Officials said at least 22 people were killed and dozens were injured.`\
+https://nytimes.com/video/world/asia/100000010643940/thailand-train-crane.html
+
 **Telling the Stories of a House Full of Secrets**\
 `Mascha Schilinski’s movie “Sound of Falling,” which takes place over a century in a rural farmhouse, shows how trauma is transmitted through generations.`\
 https://nytimes.com/2026/01/14/movies/sound-of-falling-mascha-schilinski.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6968889/2026/01/14/nfl-playoffs-afcon-final/
 **Newcastle have lost 11 in 11 at the Etihad – is a comeback there Howe's 'biggest challenge'?**\
 `After defeat in the Carabao Cup semi-final first leg against City, they will need a result at the Etihad - but history is against them.`\
 https://nytimes.com/athletic/6968500/2026/01/14/newcastle-man-city-carabao/
-
-**Word of the Day: puerile**\
-`This word has appeared in 27 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/01/14/learning/word-of-the-day-puerile.html
 
