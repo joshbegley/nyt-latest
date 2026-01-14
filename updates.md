@@ -1,3 +1,7 @@
+**The Pulse: Another legendary coach walks away**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6967673/2026/01/14/mike-tomlin-steelers-resign-the-pulse/
+
 **Scottie Barnes and Jamal Shead earn top grades in Raptors midseason report card**\
 `The Raptors' stars have mostly delivered, but the team's depth on the wing has hamstrung Toronto. `\
 https://nytimes.com/athletic/6967224/2026/01/14/raptors-scottie-barnes-jamal-shead-report-cards/
