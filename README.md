@@ -1,3 +1,11 @@
+**A Look At Antarctica From Above**\
+`After nearly two weeks at sea without being able to launch his drone, New York Times photographer Chang W. Lee finally captures Antarctica from the air.`\
+https://nytimes.com/video/climate/100000010644792/a-look-at-antarctica-from-above.html
+
+**Prosecutors Say Officer Who Hurled Cooler Was Not Trying to Save Lives**\
+`Lawyers for Sgt. Erik Duran said he had to make a “life-or-death” decision when he struck Eric Duprey as he rode a motorbike recklessly down a sidewalk. Mr. Duprey died almost immediately.`\
+https://nytimes.com/2026/01/14/nyregion/erik-duran-trial.html
+
 **How signing Ranger Suárez impacts the Red Sox rotation, payroll, ability to add a bat and more**\
 `With the Suárez signing, the Red Sox are over the $264 million second luxury tax bracket. Will that impact what moves they might make next?`\
 https://nytimes.com/athletic/6971994/2026/01/14/red-sox-ranger-suarez-signing-impact/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010645800/denmark-greenland-foreign
 **The U.S. Moves Personnel Out of Qatar as Tensions Rise With Iran**\
 `Also, the U.S. and Denmark clash over Greenland. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2026/01/14/briefing/us-iran-tensions-greenland-trump.html
-
-**Ajax suffer record six-goal defeat to AZ in Dutch Cup as Troy Parrott scores hat-trick**\
-`A hat-trick from Republic of Ireland international striker Troy Parrott helped seal the Amsterdam club's joint-worst result this century.`\
-https://nytimes.com/athletic/6972396/2026/01/14/ajax-record-defeat-dutch-cup-az/
-
-**Morocco 0 Nigeria 0 (4-2 pens) - Bassey heroics in vain, Bounou saves hosts**\
-`After a tense game went the distance, Morocco held their nerve in the shoot-out to set up a final with Senegal`\
-https://nytimes.com/athletic/6965947/2026/01/14/nigeria-0-morocco-0-4-2-penalties/
 
