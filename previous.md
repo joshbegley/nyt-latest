@@ -1,5 +1,5 @@
-**China’s Trade Surplus Surged 20 Percent to New Highs**\
-`A currency kept weak to help Chinese factories, combined with faltering consumer spending, propelled exports, while a campaign for self-sufficiency limited imports.`\
+**China Announces Record Trade Surplus as Its Exports Flood World’s Markets**\
+`China’s surplus reached $1.19 trillion, a 20 percent increase from 2024, according to data released by the country’s General Administration of Customs.`\
 https://nytimes.com/2026/01/13/business/china-trade-surplus-exports.html
 
 **Clashes With Federal Agents in Minneapolis Escalate**\

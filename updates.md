@@ -1,3 +1,7 @@
+**China Announces Record Trade Surplus as Its Exports Flood World’s Markets**\
+`China’s surplus reached $1.19 trillion, a 20 percent increase from 2024, according to data released by the country’s General Administration of Customs.`\
+https://nytimes.com/2026/01/13/business/china-trade-surplus-exports.html
+
 **Mayor Mamdani Names Transit Veteran as Taxi Commissioner**\
 `Midori Valdivia would head the Taxi and Limousine Commission, overseeing more than 115,000 for-hire vehicles. The mayor said drivers deserved a “forceful champion.”`\
 https://nytimes.com/2026/01/13/nyregion/mamdani-taxi-commissioner-valdivia.html
