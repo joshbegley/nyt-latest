@@ -1,3 +1,19 @@
+**Why the other Grand Slams will be watching Australia's 'One Point Slam' with envy**\
+`The event embraced the chaos, fun and unpredictability that tennis can sometimes avoid.`\
+https://nytimes.com/athletic/6969065/2026/01/14/tennis-one-point-slam-australian-open/
+
+**Venezuelan Envoy to Make First Washington Trip in Years Amid Thaw**\
+`Félix Plasencia, an envoy of the interim government, will travel to the United States on the day the opposition leader María Corina Machado is to meet President Trump.`\
+https://nytimes.com/2026/01/14/world/americas/venezuela-diplomat-us-visit-washington.html
+
+**Banks Ready Battle Plans to Save Their Credit Card Businesses**\
+`“Everything’s on the table,” an executive at JPMorgan Chase said, as the industry seeks to head off President Trump’s effort to cap interest rates.`\
+https://nytimes.com/2026/01/14/business/dealbook/banks-credit-cards-trump.html
+
+**Ohio State mailbag: Can Buckeyes improve in 2026? What will Ryan Day do with the offense?**\
+`Answering your Ohio State football questions about the offensive coordinator vacancy, the transfer portal and expectations for 2026.`\
+https://nytimes.com/athletic/6967543/2026/01/14/ohio-state-offensive-coordinator-portal-ryan-day/
+
 **LeBron James nearly has triple-double in second game of back-to-back**\
 `The 41-year-old James played in his first back-to-back of the season on Tuesday in a win over the Hawks.`\
 https://nytimes.com/athletic/6968777/2026/01/14/lebron-james-lakers-back-to-back-nba/

@@ -1,3 +1,19 @@
+**Why the other Grand Slams will be watching Australia's 'One Point Slam' with envy**\
+`The event embraced the chaos, fun and unpredictability that tennis can sometimes avoid.`\
+https://nytimes.com/athletic/6969065/2026/01/14/tennis-one-point-slam-australian-open/
+
+**Venezuelan Envoy to Make First Washington Trip in Years Amid Thaw**\
+`Félix Plasencia, an envoy of the interim government, will travel to the United States on the day the opposition leader María Corina Machado is to meet President Trump.`\
+https://nytimes.com/2026/01/14/world/americas/venezuela-diplomat-us-visit-washington.html
+
+**Banks Ready Battle Plans to Save Their Credit Card Businesses**\
+`“Everything’s on the table,” an executive at JPMorgan Chase said, as the industry seeks to head off President Trump’s effort to cap interest rates.`\
+https://nytimes.com/2026/01/14/business/dealbook/banks-credit-cards-trump.html
+
+**Ohio State mailbag: Can Buckeyes improve in 2026? What will Ryan Day do with the offense?**\
+`Answering your Ohio State football questions about the offensive coordinator vacancy, the transfer portal and expectations for 2026.`\
+https://nytimes.com/athletic/6967543/2026/01/14/ohio-state-offensive-coordinator-portal-ryan-day/
+
 **LeBron James nearly has triple-double in second game of back-to-back**\
 `The 41-year-old James played in his first back-to-back of the season on Tuesday in a win over the Hawks.`\
 https://nytimes.com/athletic/6968777/2026/01/14/lebron-james-lakers-back-to-back-nba/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6828853/2026/01/14/twins-2026-top-40-prospects-walk
 **Minneapolis’s Limit**\
 `We look at how the actions of federal agents in Minneapolis are impacting life in the city.`\
 https://nytimes.com/2026/01/14/briefing/minneapolis-limit.html
-
-**Playing Catch on an L.A. Sidewalk? You May (Technically) Risk Jail Time.**\
-`A little-known and rarely enforced law prohibits ball games on some Los Angeles streets and sidewalks. The local council has begun the process of repealing it.`\
-https://nytimes.com/2026/01/14/us/los-angeles-catch-sidewalk-law.html
-
-**Aston Villa's Malen set to join Roma on loan with an obligation**\
-`The forward has agreed personal terms with the Italian club and is set to end his year-long stay at Villa Park.`\
-https://nytimes.com/athletic/6969010/2026/01/14/aston-villa-transfer-donyell-malen-roma/
-
-**What's the right number for the Maple Leafs to re-sign Bobby McMann?**\
-`One of the emerging strengths fuelling Toronto's turnaround has been its forward depth, including McMann's remarkable rise.`\
-https://nytimes.com/athletic/6967550/2026/01/14/maple-leafs-bobby-mcmann-contract-nhl/
-
-**Why Real Madrid would be the worst possible fit for Jurgen Klopp**\
-`It’s hard to imagine a task he would find less invigorating. Mainz, Dortmund, Liverpool... Madrid? It's a sequence without a common thread`\
-https://nytimes.com/athletic/6967375/2026/01/14/jurgen-klopp-real-madrid-column/
 
