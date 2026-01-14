@@ -1,3 +1,27 @@
+**Britain Awards Wind Farm Contracts That Will Power 12 Million Homes**\
+`The British government provided guaranteed electricity prices to a group of wind farm developers in what it says is an effort to bring down power costs for consumers.`\
+https://nytimes.com/2026/01/14/business/britain-wind-farms.html
+
+**Why Greenland Matters for a Warming World**\
+`The fate of the world’s largest island has outsize importance for billions of people on the planet, because as the climate warms, Greenland is losing ice. That has consequences.`\
+https://nytimes.com/2026/01/14/world/europe/greenland-climate.html
+
+**Live Q&A: Patriots playoff talk with reporter Chad Graff at 11 a.m. ET on Thursday**\
+`Patriots reporter Chad Graff will be here to answer your questions about next Sunday's game — and anything else — at 11 a.m. ET on Thursday.`\
+https://nytimes.com/athletic/6966067/2026/01/14/live-qa-patriots-nfl-playoffs-chad-graff/
+
+**Public Shame Is the Most Effective Tool for Battling Big Tech**\
+`Our federal government won’t regulate fast enough (or at all), but that doesn’t mean regular Americans are helpless.`\
+https://nytimes.com/2026/01/14/opinion/grok-risk-kids.html
+
+**A New Era of Taylor Swift Fandom**\
+`The mega star has always embraced cringe. Are fans still buying it?`\
+https://nytimes.com/2026/01/14/style/taylor-swift-cringe.html
+
+**Can I Tell My Sister That Our Friends Don’t Want to Travel With Her?**\
+`A reader feels conflicted about taking a trip with friends who specifically asked that a travel-challenged sister not come along for the ride.`\
+https://nytimes.com/2026/01/14/style/family-travel-difficulties.html
+
 **Greenland’s Leader Says His Nation Wants to Remain Part of Denmark**\
 `Before a meeting on Wednesday with Vice President JD Vance and Secretary of State Marco Rubio, Greenland’s prime minister said that his nation intended to remain part of Denmark.`\
 https://nytimes.com/video/world/europe/100000010644191/greenland-denmark-white-house-trump.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6969434/2026/01/14/college-basketball-mailbag-michi
 **Why Per Mertesacker is leaving Arsenal and what it means for the academy's future**\
 `The German will depart this summer after 15 years at the club and his exit could mean a tweak to their academy's direction`\
 https://nytimes.com/athletic/6969071/2026/01/14/per-mertesacker-arsenal-academy-future/
-
-**My profession just stuck its foot in its mouth. It's still worth supporting, and defending**\
-`This latest smackdown of the press was, mostly, an own goal, but our job is to try to make sports a little more accessible to more people.`\
-https://nytimes.com/athletic/6966462/2026/01/14/liam-coen-lynn-jones-backlash-journalism/
-
-**Ja Morant on reaction to Grizzlies trade rumors: 'Live with it'**\
-`Asked if he expected to be with the Grizzlies beyond the NBA trade deadline, Morant quipped: “I’m the only one you asked that question to?”`\
-https://nytimes.com/athletic/6969201/2026/01/14/ja-morant-grizzlies-trade-rumors/
-
-**Want Your MTV? A Rogue Site Is Bringing Back the Videos.**\
-`The unofficial website MTV Rewind has recreated the channel’s classic era, pulling in thousands of clips. Its developer says it’s an antidote to the algorithms.`\
-https://nytimes.com/2026/01/14/arts/music/mtv-rewind-video-database.html
-
-**How to get L.A. 2028 Olympics tickets: Lottery details, dates, prices and more**\
-`The ticket sales process for the 2028 Olympics in Los Angeles begins Wednesday. Here's everything you need to know.`\
-https://nytimes.com/athletic/6969083/2026/01/14/la-olympics-2028-tickets-process-lottery/
-
-**Red-hot Wolves may not need to make a move to contend: 'We got a great team'**\
-`Bones Hyland and rookie Joan Beringer showed the team's depth against the Bucks as Anthony Edwards and Rudy Gobert sat out.`\
-https://nytimes.com/athletic/6968362/2026/01/14/timberwolves-bones-hyland-joan-beringer-nba-trade-deadline/
-
-**Leeds' Gray to join Rotherham on loan**\
-`The 17-year-old is expected to be available for the League One side's weekend fixture after a deal was finalised on Tuesday. `\
-https://nytimes.com/athletic/6969337/2026/01/14/harry-gray-leeds-united-rotherham-loan-deal/
 
