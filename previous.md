@@ -1,40 +1,40 @@
-**Hornets set to retire Dell Curry's jersey: 'This is the highest honor'**\
-`Charlotte wrapped its arms around Curry, and now his jersey will hang in the rafters forever.`\
-https://nytimes.com/athletic/6971047/2026/01/14/dell-curry-nba-hornets-retirement/
+**How to watch Arizona State vs. Arizona men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona State Sun Devils play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6971476/2026/01/14/arizona-state-vs-arizona-stream-how-to-watch-jan-14/
 
-**Renfrew Christie Dies at 76; Sabotaged Racist Regime’s Nuclear Program**\
-`He played a key role in ending apartheid South Africa’s secret weapons program in the 1980s by helping the African National Congress bomb critical facilities.`\
-https://nytimes.com/2026/01/14/world/africa/renfrew-christie-dead.html
+**How to watch Utah vs. Texas Tech men's basketball: Time, TV, streaming**\
+`Find out how to watch the Utah Utes play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6971472/2026/01/14/utah-vs-texas-tech-stream-how-to-watch-jan-14/
 
-**LeBron James, Giannis Antetokounmpo welcome us to the agent empowerment era**\
-`Stars are saying they can't control what their agents say or do. It beggars belief. `\
-https://nytimes.com/athletic/6970393/2026/01/14/lebron-james-giannis-kawhi-agents/
+**How to watch Nevada vs. Utah State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Nevada Wolf Pack play the Utah State Aggies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6971459/2026/01/14/nevada-vs-utah-state-stream-how-to-watch-jan-14/
 
-**Forget Trump’s Tariffs. The Real Danger Lies in China’s Trade Surplus.**\
-`China has announced a more than trillion-dollar trade surplus that poses a greater danger to world commerce than Trump’s tariffs.`\
-https://nytimes.com/2026/01/14/opinion/china-trade-deficit-surplus-tariffs.html
+**How to watch Michigan vs. Washington men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Washington Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6971447/2026/01/14/michigan-vs-washington-stream-how-to-watch-jan-14/
 
-**ICE Is Waging War on Blue Cities**\
-`Will the agency’s brutality and capriciousness create blowback?`\
-https://nytimes.com/2026/01/14/opinion/ice-trump-minnesota.html
+**How to watch Iowa State vs. Colorado women's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Colorado Buffaloes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6971438/2026/01/14/iowa-state-vs-colorado-stream-how-to-watch-jan-14/
 
-**Aina returns to Forest's Europa League squad, Zinchenko drops out**\
-`Aina had been named in the initial squad in the summer, until he suffered a serious hamstring injury, but he has returned to fitness.`\
-https://nytimes.com/athletic/6971306/2026/01/14/nottingham-forest-squad-europa-league-aina-zinchenko/
+**How to watch Vanderbilt vs. Texas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6971429/2026/01/14/vanderbilt-vs-texas-stream-how-to-watch-jan-14/
 
-**Oregon quarterback Dante Moore will return for 2026 season**\
-`The 20-year-old from Detroit snubbed the NFL Draft for another season with the Ducks.`\
-https://nytimes.com/athletic/6957387/2026/01/14/oregon-quarterback-dante-moore-returns-school/
+**How to watch TCU vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the TCU Horned Frogs play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6971425/2026/01/14/tcu-vs-byu-stream-how-to-watch-jan-14/
 
-**Quebec’s Unpopular Leader to Resign Ahead of Elections**\
-`Premier François Legault became Canada’s most popular provincial leader during the pandemic thanks to his reassuring, avuncular persona. But missteps sank his hopes for a third term.`\
-https://nytimes.com/2026/01/14/world/americas/quebec-leader-resignation.html
+**How to watch North Carolina vs. Stanford men's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Stanford Cardinal, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6971410/2026/01/14/north-carolina-vs-stanford-stream-how-to-watch-jan-14/
 
-**California Investigates Elon Musk’s xAI Over Sexualized Images**\
-`The state will examine whether xAI, which owns the social media platform X and created the A.I. chatbot Grok, violated state law.`\
-https://nytimes.com/2026/01/14/technology/grok-ai-x-investigation-california.html
+**How to watch UCLA vs. Minnesota women's basketball: Time, TV, streaming**\
+`Find out how to watch the UCLA Bruins play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6971406/2026/01/14/ucla-vs-minnesota-stream-how-to-watch-jan-14/
 
-**Ndamukong Suh, Mark Ingram among Class of 2026 College Football Hall of Fame inductees**\
-`The 22-man class features 10 former first-team All-Americans and four multi-year first-team All-Americans.`\
-https://nytimes.com/athletic/6970249/2026/01/14/ndamukong-suh-mark-ingram-college-hall-of-fame/
+**How to watch Baylor vs. Utah women's basketball: Time, TV, streaming**\
+`Find out how to watch the Baylor Bears play the Utah Utes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6971398/2026/01/14/baylor-vs-utah-stream-how-to-watch-jan-14/
 
