@@ -1,3 +1,11 @@
+**ICE Arrested Dozens of Refugees in Minnesota and Sent Them to Texas, Lawyers Say**\
+`The refugees, many of them from Somalia, had passed security screenings before coming to the United States. The Trump administration has vowed to “re-examine thousands of refugee cases.”`\
+https://nytimes.com/2026/01/13/us/ice-arrests-refugees-minnesota.html
+
+**Starlink Users in Iran Get Free Internet Access, Nonprofit Says**\
+`Under a near-total communications blackout, users of Elon Musk’s satellite service have gotten online without paying, an organization that works on web access said.`\
+https://nytimes.com/2026/01/13/technology/iran-starlink-elon-musk.html
+
 **Smithsonian Turns Over More Records in the Face of a Trump Deadline**\
 `The institution, which is viewed as independent, has sought to reduce tensions with the White House by complying with some of its demands for documents.`\
 https://nytimes.com/2026/01/13/arts/design/smithsonian-more-records-trump-deadline.html

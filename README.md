@@ -1,3 +1,7 @@
+**Yankees trade with Marlins for Ryan Weathers to bolster rotation: Sources**\
+`The Yankees bolstered their rotation depth with the addition of Weathers, 26, who has logged 281 innings in the majors since 2021. `\
+https://nytimes.com/athletic/6968239/2026/01/13/yankees-marlins-trade-ryan-weathers/
+
 **ICE Arrested Dozens of Refugees in Minnesota and Sent Them to Texas, Lawyers Say**\
 `The refugees, many of them from Somalia, had passed security screenings before coming to the United States. The Trump administration has vowed to “re-examine thousands of refugee cases.”`\
 https://nytimes.com/2026/01/13/us/ice-arrests-refugees-minnesota.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/13/nyregion/adams-crypto-token-money.html
 **Meet the 11-year-old viral Eagles fan who resonated with Philly fans**\
 `Salvo expressed frustration with ex-offensive coordinator Kevin Patullo and wideout A.J. Brown wants to be a pro tennis player.`\
 https://nytimes.com/athletic/6967800/2026/01/13/who-is-young-eagles-fan-sam-salvo/
-
-**Guardiola critcises officiating after six-minute VAR check during Man City victory**\
-`In a lengthy rant, Guardiola criticised the long VAR check and referenced refereeing decisions that had previously gone against his team.`\
-https://nytimes.com/athletic/6967918/2026/01/13/pep-guardiola-rant-var-refereeing-man-city-newcastle/
 
