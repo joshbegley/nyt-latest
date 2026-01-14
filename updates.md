@@ -1,3 +1,15 @@
+**U.S. Weighs Expanding Private Companies’ Role in Cyberwarfare**\
+`The proposal raises a host of questions about the legality and practicality of bolstering the involvement of the private sector in offensive cyberoperations.`\
+https://nytimes.com/2026/01/14/us/politics/us-cyberwarfare-private-companies.html
+
+**The Bounce: The most (and least) clutch NBA stars. And did LeBron ruin All-Star Game?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6969887/2026/01/14/clutch-players-nba-lebron-james-sgathe-bounce/
+
+**U.S. Moves Some Personnel From Key Air Base as Tensions Mount With Iran**\
+`Nonessential personnel are being removed from Udeid Air Base in Qatar, the main U.S. air operations hub in the region, as President Trump weighs a military response to Iran’s crackdown on protests.`\
+https://nytimes.com/2026/01/14/us/politics/us-base-qatar-iran.html
+
 **Supreme Court Backs Police Entry Without Warrant in Emergencies**\
 `Montana officials defended the actions of law enforcement officers who did not have a warrant when they responded to a possibly suicidal Army veteran.`\
 https://nytimes.com/2026/01/14/us/politics/supreme-court-montana-warrantless-entry.html

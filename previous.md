@@ -1,3 +1,15 @@
+**U.S. Weighs Expanding Private Companies’ Role in Cyberwarfare**\
+`The proposal raises a host of questions about the legality and practicality of bolstering the involvement of the private sector in offensive cyberoperations.`\
+https://nytimes.com/2026/01/14/us/politics/us-cyberwarfare-private-companies.html
+
+**The Bounce: The most (and least) clutch NBA stars. And did LeBron ruin All-Star Game?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6969887/2026/01/14/clutch-players-nba-lebron-james-sgathe-bounce/
+
+**U.S. Moves Some Personnel From Key Air Base as Tensions Mount With Iran**\
+`Nonessential personnel are being removed from Udeid Air Base in Qatar, the main U.S. air operations hub in the region, as President Trump weighs a military response to Iran’s crackdown on protests.`\
+https://nytimes.com/2026/01/14/us/politics/us-base-qatar-iran.html
+
 **Supreme Court Backs Police Entry Without Warrant in Emergencies**\
 `Montana officials defended the actions of law enforcement officers who did not have a warrant when they responded to a possibly suicidal Army veteran.`\
 https://nytimes.com/2026/01/14/us/politics/supreme-court-montana-warrantless-entry.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6966577/2026/01/14/winter-olympics-milan-cortina-ma
 **U.K. Retreats on Plan to Require ‘BritCard’ ID for Workers**\
 `Workers will be able to use a variety of digital IDs to prove their right to work in Britain, the government said Wednesday, diluting a plan it announced last year.`\
 https://nytimes.com/2026/01/14/world/europe/uk-digital-id-britcard.html
-
-**In crushing No. 2 Iowa State, Kansas finally begins to look like team Bill Self envisioned**\
-`“I was in a better mood coaching tonight,” Self said, “because I thought the guys tried so hard."`\
-https://nytimes.com/athletic/6968921/2026/01/14/kansas-iowa-state-score-result-darryn-peterson-bill-self/
-
-**Britain Awards Wind Farm Contracts That Will Power 12 Million Homes**\
-`The British government provided guaranteed electricity prices to a group of wind farm developers in what it says is an effort to bring down power costs for consumers.`\
-https://nytimes.com/2026/01/14/business/britain-wind-farms.html
-
-**Why Greenland Matters for a Warming World**\
-`The fate of the world’s largest island has outsize importance for billions of people on the planet, because as the climate warms, Greenland is losing ice. That has consequences.`\
-https://nytimes.com/2026/01/14/world/europe/greenland-climate.html
 
