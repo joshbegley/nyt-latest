@@ -1,3 +1,5 @@
+
+
 **Denmark Reinforces Its Military Presence in Greenland**\
 `The Danes say the deployment of aircraft, ships and soldiers is part of an ongoing effort to better protect the island and the Arctic.`\
 https://nytimes.com/2026/01/14/us/politics/greenland-denmark-military.html
