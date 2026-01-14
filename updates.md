@@ -1,3 +1,19 @@
+**Improv Night**\
+`Zaynab Issa’s curried red bean soup with kale riffs on minestrone with heady spices like cumin, coriander and turmeric alongside ground chiles for heat.`\
+https://nytimes.com/2026/01/14/dining/healthy-curried-red-bean-soup-with-kale-and-more-recipes.html
+
+**Suddenly, Alaska Is in Play**\
+`Mary Peltola’s entry into the Alaska Senate race is a building block in an electoral strategy Democrats have been working on for months.`\
+https://nytimes.com/2026/01/14/opinion/politics/alaska-mary-peltola-senate.html
+
+**In Letters to a Friend, Harper Lee Expanded on Her View of the South**\
+`In decades of correspondence, the author gave her friend, JoBeth McDaniel, a mix of opinions, advice on writing and insight into the impact of the Civil Rights movement.`\
+https://nytimes.com/2026/01/14/arts/harper-lee-letters-opinions-civil-rights-movement.html
+
+**For Lung Cancer Patients, Shame Is a Deadly Side Effect**\
+`The disease is the rare cancer met with accusations, not sympathy.`\
+https://nytimes.com/2026/01/14/well/lung-cancer-stigma.html
+
 **St. John's fires men's basketball GM Matt Abdelmassih**\
 `“Look, it's never good to see people go, but in the eyes of the university, it was very warranted, so we move on,” coach Rick Pitino said.`\
 https://nytimes.com/athletic/6970003/2026/01/14/st-johns-basketball-gm-fired/

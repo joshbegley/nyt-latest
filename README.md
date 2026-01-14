@@ -1,3 +1,11 @@
+**Spurs sign Gallagher from Atletico**\
+`Tottenham announced his arrival on Wednesday on a "long-term" deal.`\
+https://nytimes.com/athletic/6966460/2026/01/14/tottenham-conor-gallagher-atletico-transfer/
+
+**How and why Tottenham hijacked Aston Villa's move for Conor Gallagher**\
+`Johan Lange moved fast to seal a deal, with Thomas Frank also making a crucial call`\
+https://nytimes.com/athletic/6963304/2026/01/14/how-and-why-tottenham-hijacked-aston-villas-move-for-conor-gallagher/
+
 **Improv Night**\
 `Zaynab Issa’s curried red bean soup with kale riffs on minestrone with heady spices like cumin, coriander and turmeric alongside ground chiles for heat.`\
 https://nytimes.com/2026/01/14/dining/healthy-curried-red-bean-soup-with-kale-and-more-recipes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6969874/2026/01/14/real-madrid-alonso-perez-decisio
 **Olympic ice skater Cizeron accuses former partner of 'smear campaign'**\
 `Cizeron, 31, danced with Gabriella Papadakis, 30, from childhood until December 2024.`\
 https://nytimes.com/athletic/6969901/2026/01/14/cizeron-papadakis-olympic-ice-skating-smear-campaign/
-
-**Jim McBride Dies at 78; Brought Honky-Tonk Back to Country Music**\
-`He was best known for his long-running collaboration with Alan Jackson and their signature hit, “Chattahoochee.”`\
-https://nytimes.com/2026/01/14/arts/music/jim-mcbride-dead.html
-
-**Vikings mailbag: Submit your offseason questions now for reporter Alec Lewis**\
-`The Vikings’ season is over, but the next few months will be absolutely vital to the organization’s future. Send in your questions here!`\
-https://nytimes.com/athletic/6970012/2026/01/14/vikings-postseason-mailbag-alec-lewis/
 
