@@ -1,3 +1,7 @@
+**James Talarico Gives JD Vance a Bible Lesson**\
+`The Texas state representative James Talarico, who’s running for Senate and also studying to be a minister, says Vice President JD Vance has misread the Bible on immigration.`\
+https://nytimes.com/video/opinion/100000010630323/james-talarico-gives-jd-vance-a-bible-lesson.html
+
 **Senator Says Prosecutors Are Investigating Her After Video About Illegal Orders**\
 `It is unclear what possible crime might involve Senator Elissa Slotkin, a Democrat, who has warned in dire terms about the dissolution of American democracy.`\
 https://nytimes.com/2026/01/13/us/politics/slotkin-pirro-trump-justice-dept-video.html

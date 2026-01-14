@@ -1,3 +1,7 @@
+**James Talarico Gives JD Vance a Bible Lesson**\
+`The Texas state representative James Talarico, who’s running for Senate and also studying to be a minister, says Vice President JD Vance has misread the Bible on immigration.`\
+https://nytimes.com/video/opinion/100000010630323/james-talarico-gives-jd-vance-a-bible-lesson.html
+
 **Senator Says Prosecutors Are Investigating Her After Video About Illegal Orders**\
 `It is unclear what possible crime might involve Senator Elissa Slotkin, a Democrat, who has warned in dire terms about the dissolution of American democracy.`\
 https://nytimes.com/2026/01/13/us/politics/slotkin-pirro-trump-justice-dept-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/13/technology/iran-starlink-elon-musk.html
 **Smithsonian Turns Over More Records in the Face of a Trump Deadline**\
 `The institution, which is viewed as independent, has sought to reduce tensions with the White House by complying with some of its demands for documents.`\
 https://nytimes.com/2026/01/13/arts/design/smithsonian-more-records-trump-deadline.html
-
-**Eagles offensive coordinator search: 12 candidates to replace Kevin Patullo**\
-`Nick Sirianni is searching for his fifth offensive coordinator since becoming Eagles head coach in 2021, including Kevin Patullo on Tuesday.`\
-https://nytimes.com/athletic/6967896/2026/01/13/eagles-offensive-coordinator-candidates-search-kevin-patullo/
 
