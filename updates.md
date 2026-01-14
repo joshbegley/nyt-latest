@@ -1,3 +1,19 @@
+**A Week Without Heat in New York City**\
+`Some renters are constantly left without heat or hot water during the winter, leading them to bundle up in layers of clothing or risk fires by using space heaters.`\
+https://nytimes.com/2026/01/14/nyregion/nyc-heat-season.html
+
+**Dance Moves**\
+`Do you like to dance? What are your favorite moves?`\
+https://nytimes.com/2026/01/14/learning/dance-moves.html
+
+**Trial to Begin for N.Y.P.D. Sergeant Who Threw Cooler at Fleeing Man**\
+`Erik Duran, who fatally struck the man, Eric Duprey, as he fled on a motorbike in 2023, faces charges of manslaughter, assault and criminally negligent homicide.`\
+https://nytimes.com/2026/01/14/nyregion/erik-duran-eric-duprey-cooler.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/14/crosswords/spelling-bee-forum.html
+
 **Stephen Colbert Accuses Trump of ‘Invading Minnesota’**\
 `“Has anyone told him that they don’t have oil?” Colbert said of the president’s plan to send 1,000 more immigration officers to Minnesota.`\
 https://nytimes.com/2026/01/14/arts/television/stephen-colbert-trump-minnesota.html
