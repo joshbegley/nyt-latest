@@ -1,3 +1,15 @@
+**Red-hot Timberwolves may not need to make a trade to contend: 'We got a great team'**\
+`Bones Hyland and rookie Joan Beringer showed the team's depth against the Bucks as Anthony Edwards and Rudy Gobert sat out.`\
+https://nytimes.com/athletic/6968362/2026/01/14/timberwolves-bones-hyland-joan-beringer-nba-trade-deadline/
+
+**Leeds' Gray to join Rotherham on loan**\
+`The 17-year-old is expected to be available for the League One side's weekend fixture after a deal was finalised on Tuesday. `\
+https://nytimes.com/athletic/6969337/2026/01/14/harry-gray-leeds-united-rotherham-loan-deal/
+
+**Man City sign USWNT’s Coffey from Portland Thorns**\
+`The 27-year-old midfielder has signed a three-and-a-half-year deal through to 2029.`\
+https://nytimes.com/athletic/6969079/2026/01/14/sam-coffey-manchester-city-portland-thorns-transfer/
+
 **Maple Leafs must become road warriors to keep their playoff streak alive**\
 `Toronto can't escape a road letdown one night after knocking off the mighty Avalanche, losing 6-1 to the Mammoth in Salt Lake City.`\
 https://nytimes.com/athletic/6968831/2026/01/14/maple-leafs-must-become-road-warriors-to-keep-their-playoff-streak-alive/

@@ -1,3 +1,11 @@
+**Red-hot Timberwolves may not need to make a trade to contend: 'We got a great team'**\
+`Bones Hyland and rookie Joan Beringer showed the team's depth against the Bucks as Anthony Edwards and Rudy Gobert sat out.`\
+https://nytimes.com/athletic/6968362/2026/01/14/timberwolves-bones-hyland-joan-beringer-nba-trade-deadline/
+
+**Leeds' Gray to join Rotherham on loan**\
+`The 17-year-old is expected to be available for the League One side's weekend fixture after a deal was finalised on Tuesday. `\
+https://nytimes.com/athletic/6969337/2026/01/14/harry-gray-leeds-united-rotherham-loan-deal/
+
 **Maple Leafs must become road warriors to keep their playoff streak alive**\
 `Toronto can't escape a road letdown one night after knocking off the mighty Avalanche, losing 6-1 to the Mammoth in Salt Lake City.`\
 https://nytimes.com/athletic/6968831/2026/01/14/maple-leafs-must-become-road-warriors-to-keep-their-playoff-streak-alive/
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/6968017/2026/01/14/indiana-wrong-miami-recruiting-s
 https://nytimes.com/athletic/6968918/2026/01/14/warriors-blazers-nba-record-3-pointers/
 
 **Man City sign USWNT’s Coffey from Portland Thorns**\
-`The midfielder has signed a three-and-a-half-year deal through to 2029.`\
+`The 27-year-old midfielder has signed a three-and-a-half-year deal through to 2029.`\
 https://nytimes.com/athletic/6969079/2026/01/14/sam-coffey-manchester-city-portland-thorns-transfer/
 
 **Lowetide: Why Oilers need to add another forward like Podkolzin or Kapanen**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6969065/2026/01/14/tennis-one-point-slam-australian
 **Venezuelan Envoy to Make First Washington Trip in Years Amid Thaw**\
 `Félix Plasencia, an envoy of the interim government, will travel to the United States on the day the opposition leader María Corina Machado is to meet President Trump.`\
 https://nytimes.com/2026/01/14/world/americas/venezuela-diplomat-us-visit-washington.html
-
-**Banks Ready Battle Plans to Save Their Credit Card Businesses**\
-`“Everything’s on the table,” an executive at JPMorgan Chase said, as the industry seeks to head off President Trump’s effort to cap interest rates.`\
-https://nytimes.com/2026/01/14/business/dealbook/banks-credit-cards-trump.html
-
-**Ohio State mailbag: Can Buckeyes improve in 2026? What will Ryan Day do with the offense?**\
-`Answering your Ohio State football questions about the offensive coordinator vacancy, the transfer portal and expectations for 2026.`\
-https://nytimes.com/athletic/6967543/2026/01/14/ohio-state-offensive-coordinator-portal-ryan-day/
 
