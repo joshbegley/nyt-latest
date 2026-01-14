@@ -1,3 +1,11 @@
+**Greenland’s Leader Says His Nation Wants to Remain Part of Denmark**\
+`Before a meeting on Wednesday with Vice President JD Vance and Secretary of State Marco Rubio, Greenland’s prime minister said that his nation intended to remain part of Denmark.`\
+https://nytimes.com/video/world/europe/100000010644191/greenland-denmark-white-house-trump.html
+
+**F.B.I. Searches Home of Washington Post Journalist for Classified Documents**\
+`It is exceedingly rare, even in investigations of classified disclosures, for federal agents to search a reporter’s home.`\
+https://nytimes.com/2026/01/14/us/politics/fbi-washington-post-journalist.html
+
 **F.B.I. Searches Home of Washington Post Journalist for Classified Documents**\
 `Officials familiar with the matter said the search was part of an investigation into the possible sharing of government secrets.`\
 https://nytimes.com/2026/01/14/us/politics/fbi-washington-post-journalist.html
