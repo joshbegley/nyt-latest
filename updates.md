@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: President Insists U.S. ‘Needs Greenland’ Ahead of White House Meeting**\
+``\
+https://nytimes.com/live/2026/01/14/us/trump-news
+
+**Twins top 40 prospects for 2026, led by Walker Jenkins, Kaelen Culpepper and Emmanuel Rodriguez**\
+`Trade deadline pickups help the Twins rank among MLB's best farm systems and most of their top prospects are on the doorstep of the majors.`\
+https://nytimes.com/athletic/6828853/2026/01/14/twins-2026-top-40-prospects-walker-jenkins-kaelen-culpepper/
+
+**Minneapolis’s Limit**\
+`We look at how the actions of federal agents in Minneapolis are impacting life in the city.`\
+https://nytimes.com/2026/01/14/briefing/minneapolis-limit.html
+
 **Playing Catch on an L.A. Sidewalk? You May (Technically) Risk Jail Time.**\
 `A little-known and rarely enforced law prohibits ball games on some Los Angeles streets and sidewalks. The local council has begun the process of repealing it.`\
 https://nytimes.com/2026/01/14/us/los-angeles-catch-sidewalk-law.html

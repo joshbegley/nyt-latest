@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: President Insists U.S. ‘Needs Greenland’ Ahead of White House Meeting**\
+``\
+https://nytimes.com/live/2026/01/14/us/trump-news
+
+**Twins top 40 prospects for 2026, led by Walker Jenkins, Kaelen Culpepper and Emmanuel Rodriguez**\
+`Trade deadline pickups help the Twins rank among MLB's best farm systems and most of their top prospects are on the doorstep of the majors.`\
+https://nytimes.com/athletic/6828853/2026/01/14/twins-2026-top-40-prospects-walker-jenkins-kaelen-culpepper/
+
+**Minneapolis’s Limit**\
+`We look at how the actions of federal agents in Minneapolis are impacting life in the city.`\
+https://nytimes.com/2026/01/14/briefing/minneapolis-limit.html
+
 **Playing Catch on an L.A. Sidewalk? You May (Technically) Risk Jail Time.**\
 `A little-known and rarely enforced law prohibits ball games on some Los Angeles streets and sidewalks. The local council has begun the process of repealing it.`\
 https://nytimes.com/2026/01/14/us/los-angeles-catch-sidewalk-law.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6966986/2026/01/14/wild-insider-five-burning-questi
 **Rangers insider: What I'm hearing on retool vs. rebuild, Panarin's NMC and more**\
 `The Rangers' path forward is not yet set in stone, but they can learn a lot from other successful retools around the league.`\
 https://nytimes.com/athletic/6967399/2026/01/14/rangers-retool-rebuild-trade-panarin-othmann/
-
-**Tigers roster projection 1.0: Can the same players really make a better team?**\
-`A look at the key roster questions the Tigers face with less than a month before pitchers and catchers report to spring training.`\
-https://nytimes.com/athletic/6967481/2026/01/14/detroit-tigers-roster-projection-scott-harris/
-
-**Ben Johnson doesn't need to bleeping apologize because Bears-Packers is now a real rivalry**\
-`The Bears were cursed. Now they're doing the cursing. It has played well in Chicago, a city that has been ravenous for a winning team.`\
-https://nytimes.com/athletic/6967498/2026/01/14/bears-packers-rivalries-ben-johnson/
-
-**Coach Draymond? Green says it's a possibility after he decides to retire**\
-`Green has been thinking about what he's going to do after his playing career ends. One option? Coaching.`\
-https://nytimes.com/athletic/6968922/2026/01/14/draymond-green-coach-after-retirement/
 
