@@ -1,3 +1,7 @@
+**Word of the Day: puerile**\
+`This word has appeared in 27 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/14/learning/word-of-the-day-puerile.html
+
 **Whether it's LeBron's agent or active NBA players, who is talking on podcasts matters**\
 `Paul recently floated a trade of the Lakers' Austin Reaves for the Grizzlies' Jaren Jackson Jr., sparking reaction from Lakers fans. `\
 https://nytimes.com/athletic/6968030/2026/01/14/nba-podcasts-rich-paul-lebron-james-lakers-trade-suggestion/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6968667/2026/01/14/ty-simpson-alabama-nil-nfl-draft
 **Charalampos Kostoulas could have no better striker to learn from than Danny Welbeck**\
 `Kostoulas has benefited during his introduction to English football from working alongside the vastly experienced Welbeck`\
 https://nytimes.com/athletic/6965731/2026/01/14/charalampos-kostoulas-danny-welbeck-brighton/
-
-**Could FA Cup hero George Dobson lose his place in Wrexham's midfield?**\
-`Ben Sheaf and Matty James have been central to Wrexham's recent good league form`\
-https://nytimes.com/athletic/6963041/2026/01/14/wrexham-best-midfield-dobson/
 

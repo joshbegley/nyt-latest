@@ -1,3 +1,11 @@
+**Whether it's LeBron's agent or active NBA players, who is talking on podcasts matters**\
+`Paul recently floated a trade of the Lakers' Austin Reaves for the Grizzlies' Jaren Jackson Jr., sparking reaction from Lakers fans. `\
+https://nytimes.com/athletic/6968030/2026/01/14/nba-podcasts-rich-paul-lebron-james-lakers-trade-suggestion/
+
+**Crane Falls on Passenger Train in Thailand, Killing at Least 22**\
+`The railway authorities said there were almost 200 people on the train when the accident happened in Nakhon Ratchasima Province, northeast of Bangkok. Dozens were injured.`\
+https://nytimes.com/2026/01/14/world/asia/thailand-train-crane-accident.html
+
 **Breaking down Pep Guardiola's VAR rant after six-minute review, what he said and why he said it**\
 `A six-minute review to disallow a Semenyo goal against Newcastle brought an impassioned response from the City manager.`\
 https://nytimes.com/athletic/6968109/2026/01/14/pep-guardiola-semenyo-var/
