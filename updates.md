@@ -1,3 +1,7 @@
+**LeBron James nearly has triple-double in second game of back-to-back**\
+`The 41-year-old James played in his first back-to-back of the season on Tuesday in a win over the Hawks.`\
+https://nytimes.com/athletic/6968777/2026/01/14/lebron-james-lakers-back-to-back-nba/
+
 **The Swedish Start-Up Aiming to Conquer America’s Full-Body-Scan Craze**\
 `Neko Health, backed by the Spotify founder Daniel Ek, plans to open in New York this spring.`\
 https://nytimes.com/2026/01/14/business/neko-health-expansion.html
