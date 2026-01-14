@@ -1,3 +1,11 @@
+**Smithsonian Turns Over More Records in the Face of a Trump Deadline**\
+`The institution, which is viewed as independent, has sought to reduce tensions with the White House by complying with some of its demands for documents.`\
+https://nytimes.com/2026/01/13/arts/design/smithsonian-turns-over-more-records-in-the-face-of-a-trump-deadline.html
+
+**Eagles offensive coordinator search: 12 candidates to replace Kevin Patullo**\
+`Nick Sirianni is searching for his fifth offensive coordinator since becoming Eagles head coach in 2021, including Kevin Patullo on Tuesday.`\
+https://nytimes.com/athletic/6967896/2026/01/13/eagles-offensive-coordinator-candidates-search-kevin-patullo/
+
 **How to watch Rams at Bears: Divisional Round Time, TV, streaming**\
 `Find out how to watch the Los Angeles Rams play the Chicago Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6968231/2026/01/13/rams-vs-bears-stream-how-to-watch-jan-18/
