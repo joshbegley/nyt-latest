@@ -1,3 +1,7 @@
+**UK Home secretary says no confidence in police chief after Maccabi fan ban at Villa**\
+`Maccabi Tel Aviv fans did not attend the Europa League fixture against Aston Villa on November 6 following a West Midlands Police request.`\
+https://nytimes.com/athletic/6969557/2026/01/14/maccabi-tel-aviv-aston-villa-police-home-secretary/
+
 **NFL second-round confidence picks: Chicago can upset Los Angeles**\
 `KC Joyner gives his straight-up and against-the-spread picks for the second round of the NFL playoffs.`\
 https://nytimes.com/athletic/6968910/2026/01/14/nfl-divisional-round-confidence-picks-bears-rams/
