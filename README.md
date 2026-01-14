@@ -1,3 +1,11 @@
+**How to watch Ole Miss vs. Georgia men's basketball: Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Georgia Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6970110/2026/01/14/ole-miss-vs-georgia-stream-how-to-watch-jan-14/
+
+**How to watch TCU vs. West Virginia women's basketball: Time, TV, streaming**\
+`Find out how to watch the TCU Horned Frogs play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6970108/2026/01/14/tcu-vs-west-virginia-stream-how-to-watch-jan-14/
+
 **How to watch Penn State vs. Ohio State women's basketball: Time, TV, streaming**\
 `Find out how to watch the Penn State Lady Lions play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6970104/2026/01/14/penn-state-vs-ohio-state-stream-how-to-watch-jan-14/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/14/arts/harper-lee-letters-opinions-civil-rights-mov
 **For Lung Cancer Patients, Shame Is a Deadly Side Effect**\
 `The disease is the rare cancer met with accusations, not sympathy.`\
 https://nytimes.com/2026/01/14/well/lung-cancer-stigma.html
-
-**St. John's fires men's basketball GM Matt Abdelmassih**\
-`“Look, it's never good to see people go, but in the eyes of the university, it was very warranted, so we move on,” coach Rick Pitino said.`\
-https://nytimes.com/athletic/6970003/2026/01/14/st-johns-basketball-gm-fired/
-
-**Jayden Daniels to join Tom Brady in Fanatics flag football event in Saudi Arabia**\
-`The March event, held at Kingdom Arena, will be a round-robin tournament with three teams made up of current and former NFL players.`\
-https://nytimes.com/athletic/6969918/2026/01/14/jayden-daniels-flag-football-tom-brady-fanatics-saudi-arabia/
 
