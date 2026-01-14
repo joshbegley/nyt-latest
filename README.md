@@ -1,3 +1,15 @@
+**Devils GM on Quinn Hughes, trade deadline, slump: 'I’m working the phones daily'**\
+`Fitzgerald said he's not worried about his job security and also addressed the Dougie Hamilton situation.`\
+https://nytimes.com/athletic/6970450/2026/01/14/devils-tom-fitzgerald-quinn-hughes-nhl-trade-deadline/
+
+**You're paying *how much* for tickets to that game?! The fans' dilemma: MoneyCall**\
+`This week's free sports business newsletter from The Athletic`\
+https://nytimes.com/athletic/6970807/2026/01/14/indiana-miami-cfp-tickets-price-moneycall/
+
+**Judge Puts Off Ruling on Minnesota’s Request to Block ICE Surge**\
+`Lawyers for the state sought an immediate ruling, but the judge said she would give the Justice Department time to respond in writing to the state’s lawsuit.`\
+https://nytimes.com/2026/01/14/us/minnesota-ice-lawsuit.html
+
 **Longtime Vikings WR Adam Thielen announces retirement after 13 seasons**\
 `The veteran receiver, 35, announced his retirement from the NFL after splitting time between the Vikings and Steelers this season.`\
 https://nytimes.com/athletic/6970592/2026/01/14/adam-thielen-retirement-vikings-steelers-panthers/
@@ -25,12 +37,4 @@ https://nytimes.com/2026/01/14/health/cdc-niosh-reinstates-employees-kennedy.htm
 **Verizon Outage Affects Tens of Thousands of Users, Tracking Site Shows**\
 `A spokeswoman for Verizon said the carrier was working to resolve the issue.`\
 https://nytimes.com/2026/01/14/business/verizon-outage-downdetector.html
-
-**USMNT standout Richards named U.S. Soccer's 2025 Male Player of the Year**\
-`Chris Richards emerged as a leader and had a knack for the big moment during 2025 for the USMNT`\
-https://nytimes.com/athletic/6970390/2026/01/14/chris-richards-usmnt-2025-player-year/
-
-**Rebecca Kilgore, 76, Dies; Acclaimed Interpreter of American Songbook**\
-`An elegant jazz singer with adventurous taste, she counted among her fans the performer Michael Feinstein and the songwriter Dave Frishberg, who called her technique “flawless.”`\
-https://nytimes.com/2026/01/14/arts/music/rebecca-kilgore-dead.html
 
