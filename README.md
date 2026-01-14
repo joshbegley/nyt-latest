@@ -1,3 +1,7 @@
+**The Pulse: Another legendary coach walks away**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6967673/2026/01/14/mike-tomlin-steelers-resign-the-pulse/
+
 **Scottie Barnes and Jamal Shead earn top grades in Raptors midseason report card**\
 `The Raptors' stars have mostly delivered, but the team's depth on the wing has hamstrung Toronto. `\
 https://nytimes.com/athletic/6967224/2026/01/14/raptors-scottie-barnes-jamal-shead-report-cards/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6967810/2026/01/14/panthers-dan-morgan-bryce-young-
 **Jenner's big night helps Blue Jackets deliver a win in Bowness' debut**\
 `Bowness made a loud impression behind the bench as the Blue Jackets withstood two comeback attempts by the Flames.`\
 https://nytimes.com/athletic/6968603/2026/01/14/blue-jackets-bowness-debut-jenner-flames/
-
-**How could Manchester United play under Carrick?**\
-`Analysing Carrick's tactics during his brief coaching career — and their similarity to Ruben Amorim's United`\
-https://nytimes.com/athletic/6963888/2026/01/14/michael-carrick-manchester-united-tactics/
 
