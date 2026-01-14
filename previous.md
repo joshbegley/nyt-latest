@@ -1,3 +1,19 @@
+**Is Whole Milk Healthier for Kids?**\
+`A new law will allow full-fat and 2 percent milk to be served in schools. Here’s what to know.`\
+https://nytimes.com/2026/01/14/well/eat/health-effects-whole-milk-kids.html
+
+**Italian Broccoli Salad**\
+`This adaptable make-ahead salad is a great instant lunch or side dish. It starts with raw broccoli florets and stems, thinly sliced into irregular shapes to create many textures.`\
+https://nytimes.com/video/dining/100000010368599/italian-broccoli-salad.html
+
+**Newsom Says California Will Not Extradite Abortion Provider to Louisiana**\
+`The case, escalating the interstate battle over abortion, is the second time Louisiana has criminally charged out-of-state doctors with sending abortion pills to Louisiana residents.`\
+https://nytimes.com/2026/01/14/us/california-louisiana-extradite-abortion-doctor.html
+
+**Giants' international class amounts to one big bet on Venezuelan shortstop Luis Hernandez**\
+`Hernandez, 17, is ranked by several outlets as the top prospect in this year's international amateur signing class.`\
+https://nytimes.com/athletic/6971969/2026/01/14/sf-giants-international-signing-day-preview-luis-hernandez/
+
 **Madrid out of Copa with Albacete loss in Arbeloa's first game in charge**\
 `Jefte Betancor netted a dramatic lobbed winning-goal in the fourth minute of stoppage time after Gonzalo Garcia had equalised three minutes `\
 https://nytimes.com/athletic/6972076/2026/01/14/real-madrid-lose-copa-del-rey-albacete/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/14/opinion/america-quality-of-life.html
 **Fantasy trends and hidden gems: Target Mattias Samuelsson, Matty Beniers for Week 16**\
 `Shayna Goldman likes the Week 16 slate and tells fantasy managers who to roster with shifting lines and players returning from injury. `\
 https://nytimes.com/athletic/6971662/2026/01/14/fantasy-trends-hidden-gems-week-16/
-
-**CSC head urges schools to sign participant agreement as investigations begin**\
-`The Participant Agreement would force schools to cooperate with investigations and not file lawsuits challenging rules and rulings.`\
-https://nytimes.com/athletic/6971878/2026/01/14/csc-participation-agreement-college-sports-enforcement/
-
-**Trump Cuts $2 Billion in Federal Funding for Mental Health and Substance Abuse Services**\
-`Notices went out late Tuesday to more than 2,000 programs nationwide that will be affected by budget slashing at the Substance Abuse and Mental Health Services Administration.`\
-https://nytimes.com/2026/01/14/health/samhsa-funding-cuts.html
-
-**Frank Dunlop, 98, Dies; Gave British Theater a Free-Spirited Spin**\
-`In 1970, he founded London’s Young Vic, an adventurous “people’s theater” — the Who took the stage at one point — before shaking up the Brooklyn Academy of Music.`\
-https://nytimes.com/2026/01/14/theater/frank-dunlop-dead.html
-
-**Longest-tenured coaches in American pro sports after Tomlin's exit**\
-`Who are the other longest tenured coaches after Erik Spoelstra?`\
-https://nytimes.com/athletic/6970991/2026/01/14/longest-tenured-pro-coaches-erik-spoelstra/
 
