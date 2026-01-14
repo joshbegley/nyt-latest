@@ -1,3 +1,7 @@
+**Yankees trade with Marlins for Ryan Weathers to bolster rotation: Sources**\
+`The Yankees send four prospects to Miami for Weathers, 26, who has logged 281 innings in the majors since 2021. `\
+https://nytimes.com/athletic/6968239/2026/01/13/yankees-marlins-trade-ryan-weathers/
+
 **ICE Arrested Dozens of Refugees in Minnesota and Sent Them to Texas, Lawyers Say**\
 `The refugees, many of them from Somalia, had passed security screenings before coming to the United States. The Trump administration has vowed to “re-examine thousands of refugee cases.”`\
 https://nytimes.com/2026/01/13/us/ice-arrests-refugees-minnesota.html
