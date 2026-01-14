@@ -1,3 +1,11 @@
+**Senegal 1 Egypt 0 - Sadio Mane gets one over Mohamed Salah, but is this the end for the Egyptian?**\
+`In a tense and cagey encounter it was Senegal who came out on top, thanks to a late goal from Sadio Mane`\
+https://nytimes.com/athletic/6965945/2026/01/14/senegal-1-egypt-0-mane-salah/
+
+**Walking Off Into a Universe of White**\
+`Bad weather has postponed attempts to set up camp on the Thwaites Glacier. So researchers got onto the sea ice and met a local.`\
+https://nytimes.com/2026/01/14/climate/antarctica-glacier-sea-ice.html
+
 **Devils GM on Quinn Hughes, trade deadline, slump: 'I’m working the phones daily'**\
 `Fitzgerald said he's not worried about his job security and also addressed the Dougie Hamilton situation.`\
 https://nytimes.com/athletic/6970450/2026/01/14/devils-tom-fitzgerald-quinn-hughes-nhl-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/14/us/renee-good-ice-shooting-prosecution.html
 **Where’s the Gym? Oh, Through That Tube Over There**\
 `A new kind of tap-in, tap-out system at gyms has some New Yorkers flustered.`\
 https://nytimes.com/2026/01/14/business/puregym-exits-fire-department.html
-
-**C.D.C. Brings Back Hundreds of Suspended Workplace Safety Employees**\
-`Health Secretary Robert F. Kennedy Jr. placed about 90 percent of the roughly 1,000 employees of the National Institute for Occupational Safety and Health on administrative leave last April.`\
-https://nytimes.com/2026/01/14/health/cdc-niosh-reinstates-employees-kennedy.html
-
-**Verizon Outage Affects Tens of Thousands of Users, Tracking Site Shows**\
-`A spokeswoman for Verizon said the carrier was working to resolve the issue.`\
-https://nytimes.com/2026/01/14/business/verizon-outage-downdetector.html
 
