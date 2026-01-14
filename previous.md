@@ -1,3 +1,15 @@
+**Longtime Vikings WR Adam Thielen announces retirement after 13 seasons**\
+`The veteran receiver, 35, announced his retirement from the NFL after splitting time between the Vikings and Steelers this season.`\
+https://nytimes.com/athletic/6970592/2026/01/14/adam-thielen-retirement-vikings-steelers-panthers/
+
+**Padres hire Bud Black and Wil Myers, reuniting with a pair of familiar faces**\
+`Black and Myers briefly overlapped with the Padres in 2015; they return to the organization in baseball operations roles.`\
+https://nytimes.com/athletic/6970794/2026/01/14/padres-bud-black-wil-myers-baseball-operations-hires/
+
+**Alexandre Texier, Canadiens agree to 2-year contract extension**\
+`Since arriving in Montreal, Texier has played well, recording seven goals and 16 points in 25 games.`\
+https://nytimes.com/athletic/6970544/2026/01/14/canadiens-alexandre-texier-contract-extension/
+
 **Can the ICE Agent Who Shot Renee Good Be Prosecuted?**\
 `The Trump administration is unlikely to bring a federal case, and any criminal case would face high hurdles. But charges are not out of the question.`\
 https://nytimes.com/2026/01/14/us/renee-good-ice-shooting-prosecution.html
@@ -21,8 +33,4 @@ https://nytimes.com/athletic/6970390/2026/01/14/chris-richards-usmnt-2025-player
 **Rebecca Kilgore, 76, Dies; Acclaimed Interpreter of American Songbook**\
 `An elegant jazz singer with adventurous taste, she counted among her fans the performer Michael Feinstein and the songwriter Dave Frishberg, who called her technique “flawless.”`\
 https://nytimes.com/2026/01/14/arts/music/rebecca-kilgore-dead.html
-
-**Collectors lays out plans for PSA, SGC and Beckett following recent controversies**\
-`Collectors grading business unit president Ryan Hoge lays out some of what's to come for all three affiliated grading brands.`\
-https://nytimes.com/athletic/6970111/2026/01/14/psa-sgc-beckett-collectors-grading/
 
