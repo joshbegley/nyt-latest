@@ -1,3 +1,7 @@
+**Can the ICE Agent Who Shot Renee Good Be Prosecuted?**\
+`The Trump administration is unlikely to bring a federal case, and any criminal case would face high hurdles. But charges are not out of the question.`\
+https://nytimes.com/2026/01/14/us/renee-good-ice-shooting-prosecution.html
+
 **Where’s the Gym? Oh, Through That Tube Over There**\
 `A new kind of tap-in, tap-out system at gyms has some New Yorkers flustered.`\
 https://nytimes.com/2026/01/14/business/puregym-exits-fire-department.html
