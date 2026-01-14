@@ -1,40 +1,40 @@
-**Rosenthal: Mets' pursuit of Tucker raises questions about defense, plus more MLB offseason notes**\
-`What's next for the Red Sox? Plus a breakdown of the ramifications of the Nolan Arenado deal. `\
-https://nytimes.com/athletic/6968660/2026/01/14/kyle-tucker-mets-red-sox-diamondbacks-arenado/
+**Scottie Barnes and Jamal Shead earn top grades in Raptors midseason report card**\
+`The Raptors' stars have mostly delivered, but the team's depth on the wing has hamstrung Toronto. `\
+https://nytimes.com/athletic/6967224/2026/01/14/raptors-scottie-barnes-jamal-shead-report-cards/
 
-**After accident, Angels' Rio Foster fights for his old life, family hopes for help from team**\
-`The day began with the Angels prospect being named his league's player of the month. By the next morning, his career was effectively over. `\
-https://nytimes.com/athletic/6967885/2026/01/14/angels-prospect-rio-foster-car-accident-recovery/
+**What moves are realistic for Knicks as NBA trade deadline draws near?**\
+`Knicks beat writer James L. Edwards III answers your New York-related trade deadline questions.`\
+https://nytimes.com/athletic/6965175/2026/01/14/knicks-2026-nba-trade-deadline-mailbag/
 
-**Do the Jets have the right environment in place for their next QB?**\
-`Or, at least, is the franchise a better landing spot than it was for Sam Darnold (2018) and Zach Wilson (2021)?`\
-https://nytimes.com/athletic/6968437/2026/01/14/new-york-jets-quarterback-supporting-cast/
+**This magical Bears season is beyond explanation. Is it divine intervention?**\
+`Beyond the obvious, something abnormal and unquantifiable has lifted the Bears. Does their uniform patch provide a clue?`\
+https://nytimes.com/athletic/6965915/2026/01/14/bears-magical-season-nfl-playoffs/
 
-**Team owner Steve Bisciotti was candid in discussing Ravens' future post-John Harbaugh**\
-`Bisciotti was honest about his views of Lamar Jackson, GM Eric DeCosta and the head-coaching search in his news conference on Tuesday.  `\
-https://nytimes.com/athletic/6968668/2026/01/14/ravens-owner-steve-bisciotti-john-harbaugh-lamar-jackson/
+**As Chiefs struggled to unexpected season, these 3 small things became a big deal**\
+`These moments created butterfly-effect ripples on the Chiefs' season. Here's a look at three events that didn't help Kansas City.`\
+https://nytimes.com/athletic/6966524/2026/01/14/chiefs-disappointing-season-causes/
 
-**Three factors to consider as Rams prepare for divisional-round matchup vs. Bears**\
-`The road environment in Chicago, health questions and how the Rams defend Bears QB Caleb Williams could be the difference Sunday night. `\
-https://nytimes.com/athletic/6965263/2026/01/14/rams-bears-nfc-divisional-round-factors/
+**What moves make the most sense for Celtics at the NBA trade deadline?**\
+`With the NBA trade deadline approaching on Feb. 5, the Boston Celtics will have some big decisions to make. `\
+https://nytimes.com/athletic/6967765/2026/01/14/celtics-anfernee-simons-nba-trade-deadline/
 
-**The New York Times International Edition in Print for Thursday, Jan. 15, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/01/14/todays-new-york-times-international-edition
+**Evgeni Malkin's dramatic goal gives the Penguins a much-needed point**\
+`Though the Penguins fell in the shootout, a hard-earned point against the Lightning will be handy in a crowded Eastern Conference.`\
+https://nytimes.com/athletic/6953877/2026/01/14/penguins-malkin-silovs-shootout-lightning/
 
-**Ajax sign Maximilian Ibrahimovic, son of Zlatan, on loan from Milan**\
-`Maximilian, a 19-year-old right-footed forward, is keen to distinguish himself from his celebrated father.`\
-https://nytimes.com/athletic/6968981/2026/01/14/ajax-sign-ibrahimovic-zlatan-son/
+**The season didn't play out the way the Lions hoped: What needs to change?**\
+`A drop-off in O-line play, injuries and coaching changes contributed to a disappointing season. "We need to improve," Dan Campbell said.`\
+https://nytimes.com/athletic/6964478/2026/01/14/lions-2025-season-review-analysis/
 
-**Drum Diplomacy: Leaders of Japan and South Korea in Sync to K-pop**\
-`Prime Minister Sanae Takaichi of Japan and President Lee Jae Myung of South Korea played along to BTS and “KPop Demon Hunters,” in a display meant to show warming ties.`\
-https://nytimes.com/2026/01/14/world/asia/japan-south-korea-kpop-drum-diplomacy.html
+**What Panthers GM Dan Morgan said: Bryce Young's overlooked attribute, Rico Dowdle's future**\
+`"I see even bigger things moving forward," Morgan said after the Panthers reached the playoffs for the first time since 2017.`\
+https://nytimes.com/athletic/6967810/2026/01/14/panthers-dan-morgan-bryce-young-rico-dowdle/
 
-**Japan and South Korea Reinforce Ties With a K-Pop Jam Session**\
-`President Lee Jae Myung of South Korea and Prime Minister Sanae Takaichi of Japan jammed to K-pop during a summit to reaffirm their relationship amid growing political and economic uncertainty.`\
-https://nytimes.com/video/world/asia/100000010643744/japan-south-korea-takaichi-lee-drum.html
+**Jenner's big night helps Blue Jackets deliver a win in Bowness' debut**\
+`Bowness made a loud impression behind the bench as the Blue Jackets withstood two comeback attempts by the Flames.`\
+https://nytimes.com/athletic/6968603/2026/01/14/blue-jackets-bowness-debut-jenner-flames/
 
-**Trump Has Stopped Pretending That This Is All Normal**\
-`The president’s assertion of unlimited authority is a total rejection of popular sovereignty and the logic of the Constitution.`\
-https://nytimes.com/2026/01/14/opinion/trump-presidential-power-immunity.html
+**How could Manchester United play under Carrick?**\
+`Analysing Carrick's tactics during his brief coaching career — and their similarity to Ruben Amorim's United`\
+https://nytimes.com/athletic/6963888/2026/01/14/michael-carrick-manchester-united-tactics/
 
