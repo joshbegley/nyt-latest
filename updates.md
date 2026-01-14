@@ -1,3 +1,7 @@
+**How to watch Rams at Bears: Divisional Round Time, TV, streaming**\
+`Find out how to watch the Los Angeles Rams play the Chicago Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6968231/2026/01/13/rams-vs-bears-stream-how-to-watch-jan-18/
+
 **Vikings leadership noncommittal on J.J. McCarthy as starting QB in 2026**\
 `Vikings GM Kwesi Adofo-Mensah and coach Kevin O'Connell imply they'll bring in competition for McCarthy as the starting QB next season.`\
 https://nytimes.com/athletic/6967843/2026/01/13/jj-mccarthy-vikings-kwesi-adofo-mensah-kevin-oconnell-qb/
