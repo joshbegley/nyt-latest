@@ -1,40 +1,40 @@
-**‘We’re Not Stupid’: Greenlanders Fear What a U.S. Takeover Would Mean**\
-`A visit to Greenland reveals a swirl of feelings as people nervously await talks with the Trump administration about the island’s future.`\
-https://nytimes.com/2026/01/14/world/americas/greenland-fear-trump-us-takeover.html
+**Playing Catch on an L.A. Sidewalk? You May (Technically) Risk Jail Time.**\
+`A little-known and rarely enforced law prohibits ball games on some Los Angeles streets and sidewalks. The local council has begun the process of repealing it.`\
+https://nytimes.com/2026/01/14/us/los-angeles-catch-sidewalk-law.html
 
-**Everton interested in Fenerbahce striker En-Nesyri**\
-`Everton's interest in En-Nesyri is not at an advanced stage and they are yet to make a formal bid for the striker.`\
-https://nytimes.com/athletic/6969013/2026/01/14/youssef-en-nesyri-everton-fenerbahce-transfer/
+**Aston Villa's Malen set to join Roma on loan with an obligation**\
+`The forward has agreed personal terms with the Italian club and is set to end his year-long stay at Villa Park.`\
+https://nytimes.com/athletic/6969010/2026/01/14/aston-villa-transfer-donyell-malen-roma/
 
-**How do you console a team after an abrupt ending? Inside a coach's search for the right words**\
-`Liam Coen and the Jaguars weren't ready for the ride to be over. But it was, and it was Coen's job to put the pain and pride in perspective.`\
-https://nytimes.com/athletic/6966229/2026/01/14/jaguars-liam-coen-season-end-speech/
+**What's the right number for the Maple Leafs to re-sign Bobby McMann?**\
+`One of the emerging strengths fuelling Toronto's turnaround has been its forward depth, including McMann's remarkable rise.`\
+https://nytimes.com/athletic/6967550/2026/01/14/maple-leafs-bobby-mcmann-contract-nhl/
 
-**C.J. Stroud vows to work on ball security ahead of Texans' next playoff test**\
-`With New England up next, Stroud said he will clean up the uncharacteristic mistakes he made in a 30-6 wild-card victory over Pittsburgh.`\
-https://nytimes.com/athletic/6967366/2026/01/14/cj-stroud-texans-steelers-wild-card-fumbles/
+**Why Real Madrid would be the worst possible fit for Jurgen Klopp**\
+`It’s hard to imagine a task he would find less invigorating. Mainz, Dortmund, Liverpool... Madrid? It's a sequence without a common thread`\
+https://nytimes.com/athletic/6967375/2026/01/14/jurgen-klopp-real-madrid-column/
 
-**The Pulse: Another legendary coach walks away**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6967673/2026/01/14/mike-tomlin-steelers-resign-the-pulse/
+**Scouting AJ Dybantsa: What I liked — and didn't like — in person from potential top pick**\
+`In a rivalry matchup against Utah, the 18-year-old showed why he has pro scouts salivating.`\
+https://nytimes.com/athletic/6966548/2026/01/14/scouting-aj-dybantsa-byu-nba-draft/
 
-**Scottie Barnes and Jamal Shead earn top grades in Raptors midseason report card**\
-`The Raptors' stars have mostly delivered, but the team's depth on the wing has hamstrung Toronto. `\
-https://nytimes.com/athletic/6967224/2026/01/14/raptors-scottie-barnes-jamal-shead-report-cards/
+**Wild insider: Five burning questions that will define the rest of Minnesota's season**\
+`What's Bill Guerin's next move? What happens with the goalie rotation? And the big one: Can they go on an actual playoff run?`\
+https://nytimes.com/athletic/6966986/2026/01/14/wild-insider-five-burning-questions/
 
-**What moves are realistic for Knicks as NBA trade deadline draws near?**\
-`Knicks beat writer James L. Edwards III answers your New York-related trade deadline questions.`\
-https://nytimes.com/athletic/6965175/2026/01/14/knicks-2026-nba-trade-deadline-mailbag/
+**Rangers insider: What I'm hearing on retool vs. rebuild, Panarin's NMC and more**\
+`The Rangers' path forward is not yet set in stone, but they can learn a lot from other successful retools around the league.`\
+https://nytimes.com/athletic/6967399/2026/01/14/rangers-retool-rebuild-trade-panarin-othmann/
 
-**This magical Bears season is beyond explanation. Is it divine intervention?**\
-`Beyond the obvious, something abnormal and unquantifiable has lifted the Bears. Does their uniform patch provide a clue?`\
-https://nytimes.com/athletic/6965915/2026/01/14/bears-magical-season-nfl-playoffs/
+**Tigers roster projection 1.0: Can the same players really make a better team?**\
+`A look at the key roster questions the Tigers face with less than a month before pitchers and catchers report to spring training.`\
+https://nytimes.com/athletic/6967481/2026/01/14/detroit-tigers-roster-projection-scott-harris/
 
-**As Chiefs struggled to unexpected season, these 3 small things became a big deal**\
-`These moments created butterfly-effect ripples on the Chiefs' season. Here's a look at three events that didn't help Kansas City.`\
-https://nytimes.com/athletic/6966524/2026/01/14/chiefs-disappointing-season-causes/
+**Ben Johnson doesn't need to bleeping apologize because Bears-Packers is now a real rivalry**\
+`The Bears were cursed. Now they're doing the cursing. It has played well in Chicago, a city that has been ravenous for a winning team.`\
+https://nytimes.com/athletic/6967498/2026/01/14/bears-packers-rivalries-ben-johnson/
 
-**What moves make the most sense for Celtics at the NBA trade deadline?**\
-`With the NBA trade deadline approaching on Feb. 5, the Boston Celtics will have some big decisions to make. `\
-https://nytimes.com/athletic/6967765/2026/01/14/celtics-anfernee-simons-nba-trade-deadline/
+**Coach Draymond? Green says it's a possibility after he decides to retire**\
+`Green has been thinking about what he's going to do after his playing career ends. One option? Coaching.`\
+https://nytimes.com/athletic/6968922/2026/01/14/draymond-green-coach-after-retirement/
 
