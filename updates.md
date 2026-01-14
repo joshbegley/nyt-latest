@@ -1,3 +1,11 @@
+**Travis Hunter will continue playing offense, defense once recovered from injury**\
+`“Very fair to say that his rehab process is going as expected. He’s hitting it hard,” Jaguars GM James Gladstone said Monday.`\
+https://nytimes.com/athletic/6970239/2026/01/14/travis-hunter-jaguars-offense-defense-injury/
+
+**Supreme Court Sides With Conservative Congressman in Illinois Election Rules Challenge**\
+`The question in the case was not a mail-in ballot rule itself but whether political candidates have the right to challenge the rules governing the vote count in their election.`\
+https://nytimes.com/2026/01/14/us/politics/supreme-court-illinois-mail-ballot-rules.html
+
 **What a Wolf Pup’s Stomach Revealed About the Woolly Rhino’s Extinction**\
 `Scientists prepared a high-quality sequence of the giant mammal’s genome based on a specimen preserved in Siberian permafrost.`\
 https://nytimes.com/2026/01/14/science/woolly-rhino-wolf-stomach-dna.html
