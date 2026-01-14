@@ -1,5 +1,9 @@
+**Greenland’s Leader Says His Nation Wants to Remain Part of Denmark**\
+`Before a meeting on Wednesday with Vice President JD Vance and Secretary of State Marco Rubio, Greenland’s prime minister said that his nation intended to remain part of Denmark.`\
+https://nytimes.com/video/world/europe/100000010644191/greenland-denmark-white-house-trump.html
+
 **F.B.I. Searches Home of Washington Post Journalist for Classified Documents**\
-`Officials familiar with the matter said the search was part of an investigation into the possible sharing of government secrets.`\
+`It is exceedingly rare, even in investigations of classified disclosures, for federal agents to search a reporter’s home.`\
 https://nytimes.com/2026/01/14/us/politics/fbi-washington-post-journalist.html
 
 **College basketball mailbag: Which mid-major teams could make noise in March?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6968362/2026/01/14/timberwolves-bones-hyland-joan-b
 **Leeds' Gray to join Rotherham on loan**\
 `The 17-year-old is expected to be available for the League One side's weekend fixture after a deal was finalised on Tuesday. `\
 https://nytimes.com/athletic/6969337/2026/01/14/harry-gray-leeds-united-rotherham-loan-deal/
-
-**Maple Leafs must become road warriors to keep their playoff streak alive**\
-`Toronto can't escape a road letdown one night after knocking off the mighty Avalanche, losing 6-1 to the Mammoth in Salt Lake City.`\
-https://nytimes.com/athletic/6968831/2026/01/14/maple-leafs-must-become-road-warriors-to-keep-their-playoff-streak-alive/
 
