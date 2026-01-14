@@ -14,6 +14,10 @@ https://nytimes.com/2026/01/13/climate/2025-extreme-weather.html
 `2025 was the third hottest year on record, but thousands of cities saw record heat and one broke a record for cold.`\
 https://nytimes.com/interactive/2026/01/13/climate/2025-global-temperatures-climate-change.html
 
+**Mayor Mamdani Names Transit Veteran as Taxi Commissioner**\
+`Midori Valdivia would head the Taxi and Limousine Commission, overseeing more than 115,000 for-hire vehicles. The mayor said drivers deserved a “forceful champion.”`\
+https://nytimes.com/2026/01/13/nyregion/mamdani-taxi-commissioner-valdivia.html
+
 **Historic Stretch**\
 `Joseph Gangi comes out on top.`\
 https://nytimes.com/2026/01/13/crosswords/daily-puzzle-2026-1-14.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/13/us/politics/trump-heckler-middle-finger.html
 **The Minneapolis Mayor Who Cursed Out ICE Is No Stranger to Crisis**\
 `Mayor Jacob Frey, a Democrat, has clashed with his party’s activist wing. His response to ICE has won him new respect at home and new foes in Washington.`\
 https://nytimes.com/2026/01/13/us/politics/minneapolis-mayor-jacob-frey-ice.html
-
-**James Talarico Gives JD Vance a Bible Lesson**\
-`The Texas state representative James Talarico, who’s running for Senate and also studying to be a minister, says Vice President JD Vance has misread the Bible on immigration.`\
-https://nytimes.com/video/opinion/100000010630323/james-talarico-gives-jd-vance-a-bible-lesson.html
 
