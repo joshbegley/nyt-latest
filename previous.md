@@ -1,3 +1,7 @@
+**Collectors lays out plans for PSA, SGC and Beckett following recent controversies**\
+`Collectors grading business unit president Ryan Hoge lays out some of what's to come for all three affiliated grading brands.`\
+https://nytimes.com/athletic/6970111/2026/01/14/psa-sgc-beckett-collectors-grading/
+
 **Before Curt Cignetti and Indiana, what were the best turnaround stories in sports history?**\
 `Indiana football's dramatic turnaround is reminiscent of several other notable teams in sports history.`\
 https://nytimes.com/athletic/6964057/2026/01/14/indiana-football-curt-cignetti-best-sports-turnaround-stories/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6964057/2026/01/14/indiana-football-curt-cignetti-b
 `Systems like OpenAI’s GPT-5 are accelerating research in math, biology and chemistry. But there is a debate over whether it can do that work on its own.`\
 https://nytimes.com/2026/01/14/technology/ai-ideas-chat-gpt-openai.html
 
-**A Loyalty Program That Rewards Mortgage Payments? It’s Complicated.**\
+**What to Know about Bilt’s New Rewards Program for Mortgage and Rent Payments**\
 `Bilt, a rewards and payments start-up, has three new credit cards that can help users earn points when they pay their mortgage. You will need to do math.`\
 https://nytimes.com/2026/01/14/business/bilt-rent-mortgage-rewards.html
 
@@ -25,12 +29,4 @@ https://nytimes.com/athletic/6970239/2026/01/14/travis-hunter-jaguars-offense-de
 **Supreme Court Sides With Conservative Congressman in Illinois Election Rules Challenge**\
 `The question in the case was not a mail-in ballot rule itself but whether political candidates have the right to challenge the rules governing the vote count in their election.`\
 https://nytimes.com/2026/01/14/us/politics/supreme-court-illinois-mail-ballot-rules.html
-
-**What a Wolf Pup’s Stomach Revealed About the Woolly Rhino’s Extinction**\
-`Scientists prepared a high-quality sequence of the giant mammal’s genome based on a specimen preserved in Siberian permafrost.`\
-https://nytimes.com/2026/01/14/science/woolly-rhino-wolf-stomach-dna.html
-
-**My Old Friend Might Be Dying. Should I Tell Her I’m Dating Her Ex?**\
-`She’s reached out asking to reconnect. I’ve postponed a meeting, feeling paralyzed.`\
-https://nytimes.com/2026/01/14/magazine/friend-cancer-husband-ethics.html
 

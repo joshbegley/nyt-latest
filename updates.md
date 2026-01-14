@@ -1,3 +1,11 @@
+**Collectors lays out plans for PSA, SGC and Beckett following recent controversies**\
+`Collectors grading business unit president Ryan Hoge lays out some of what's to come for all three affiliated grading brands.`\
+https://nytimes.com/athletic/6970111/2026/01/14/psa-sgc-beckett-collectors-grading/
+
+**What to Know about Bilt’s New Rewards Program for Mortgage and Rent Payments**\
+`Bilt, a rewards and payments start-up, has three new credit cards that can help users earn points when they pay their mortgage. You will need to do math.`\
+https://nytimes.com/2026/01/14/business/bilt-rent-mortgage-rewards.html
+
 **Before Curt Cignetti and Indiana, what were the best turnaround stories in sports history?**\
 `Indiana football's dramatic turnaround is reminiscent of several other notable teams in sports history.`\
 https://nytimes.com/athletic/6964057/2026/01/14/indiana-football-curt-cignetti-best-sports-turnaround-stories/
