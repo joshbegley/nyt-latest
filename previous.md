@@ -1,40 +1,40 @@
-**Construction Crane Falls on Train in Thailand**\
-`A crane fell on an express train carrying about 200 passengers in northeastern Thailand. Officials said at least 22 people were killed and dozens were injured.`\
-https://nytimes.com/video/world/asia/100000010643940/thailand-train-crane.html
+**Trump Has Stopped Pretending That This Is All Normal**\
+`The president’s assertion of unlimited authority is a total rejection of popular sovereignty and the logic of the Constitution.`\
+https://nytimes.com/2026/01/14/opinion/trump-presidential-power-immunity.html
 
-**Telling the Stories of a House Full of Secrets**\
-`Mascha Schilinski’s movie “Sound of Falling,” which takes place over a century in a rural farmhouse, shows how trauma is transmitted through generations.`\
-https://nytimes.com/2026/01/14/movies/sound-of-falling-mascha-schilinski.html
+**Chuck Schumer Calls His Shot**\
+`After securing strong recruits on a tough Senate map, the Democratic leader is not only predicting an upset 2026 victory, but also naming the states he thinks his party can flip.`\
+https://nytimes.com/2026/01/14/us/politics/chuck-schumer-senate-map-democrats.html
 
-**Tensions Are High as Vance and Rubio Prepare to Meet Danish and Greenlandic Officials**\
-`Top officials from the United States, Denmark and Greenland will meet at the White House for the first time since President Trump said he wanted to own Greenland.`\
-https://nytimes.com/2026/01/14/world/europe/trump-greenland-rubio-vance-white-house.html
+**What Comes Next for Venezuela — and Who Decides?**\
+`A Venezuelan economist weighs in on the role of Trump, oil and the sidelining of the Nobel Prize-winning opposition leader María Corina Machado.`\
+https://nytimes.com/2026/01/14/opinion/venezuela-oil-power-trump.html
 
-**A Week Without Heat in New York City**\
-`Some renters are constantly left without heat or hot water during the winter, leading them to bundle up in layers of clothing or risk fires by using space heaters.`\
-https://nytimes.com/2026/01/14/nyregion/nyc-heat-season.html
+**Trump Credits ‘Mister Tariff’ for the Country’s Strength. Economists Beg to Differ.**\
+`Many indicators appear to suggest that the United States is growing despite tariffs, not because of them.`\
+https://nytimes.com/2026/01/14/us/politics/trump-tariffs-economists.html
 
-**Dance Moves**\
-`Do you like to dance? What are your favorite moves?`\
-https://nytimes.com/2026/01/14/learning/dance-moves.html
+**The Art of a Good Awards-Show Speech**\
+`Demi Moore nailed it at last year’s Globes, and so did Teyana Taylor this year. The best acceptances keep in mind four key guidelines.`\
+https://nytimes.com/2026/01/14/movies/teyana-taylor-demi-moore-golden-globes-speech.html
 
-**Trial to Begin for N.Y.P.D. Sergeant Who Threw Cooler at Fleeing Man**\
-`Erik Duran, who fatally struck the man, Eric Duprey, as he fled on a motorbike in 2023, faces charges of manslaughter, assault and criminally negligent homicide.`\
-https://nytimes.com/2026/01/14/nyregion/erik-duran-eric-duprey-cooler.html
+**‘The Devil’s Excrement’: Is Venezuela Cursed by Its Oil?**\
+`The country’s biggest problem may not be President Trump.`\
+https://nytimes.com/2026/01/14/magazine/the-devils-excrement-is-venezuela-cursed-by-its-oil.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/14/crosswords/spelling-bee-forum.html
+**Venezuela Announced the Release of Political Prisoners. Families Are Still Waiting.**\
+`Hundreds of families are hoping their loved ones will be freed by the Venezuelan government, which has said little about who would be released or when.`\
+https://nytimes.com/2026/01/14/world/americas/venezuela-politicial-prisoners-release.html
 
-**Stephen Colbert Accuses Trump of ‘Invading Minnesota’**\
-`“Has anyone told him that they don’t have oil?” Colbert said of the president’s plan to send 1,000 more immigration officers to Minnesota.`\
-https://nytimes.com/2026/01/14/arts/television/stephen-colbert-trump-minnesota.html
+**$25 Billion. That’s What Trump Cost Detroit.**\
+`The president’s hostility to E.V.s is hurting U.S. automakers.`\
+https://nytimes.com/2026/01/14/opinion/trump-detroit-cars-electric-vehicle-climate.html
 
-**A preview of The Athletic’s live coverage this week**\
-`The Athletic's live coverage this week includes the divisional round of the NFL playoffs and the final of AFCON.`\
-https://nytimes.com/athletic/6968889/2026/01/14/nfl-playoffs-afcon-final/
+**These 11 Republican Trump Voters Love the Venezuela Action, but Greenland …**\
+`The group discusses the economy, immigration, President Trump’s recent actions in Venezuela and more.`\
+https://nytimes.com/interactive/2026/01/14/opinion/13focusgroup.html
 
-**Newcastle have lost 11 in 11 at the Etihad – is a comeback there Howe's 'biggest challenge'?**\
-`After defeat in the Carabao Cup semi-final first leg against City, they will need a result at the Etihad - but history is against them.`\
-https://nytimes.com/athletic/6968500/2026/01/14/newcastle-man-city-carabao/
+**How ICE Crackdowns Set Off a Resistance in American Cities**\
+`In Minneapolis and other cities where federal agents have led immigration crackdowns, residents have formed loose networks to track and protest them.`\
+https://nytimes.com/2026/01/14/us/ice-protests-activism.html
 
