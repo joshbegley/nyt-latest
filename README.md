@@ -1,3 +1,27 @@
+**Hakimi is the face of this AFCON in Morocco. But there is a cloud hanging over him**\
+`Morocco's captain is under investigation in France after an allegation of rape was made against him but that has not affected his popularity`\
+https://nytimes.com/athletic/6963995/2026/01/14/achraf-hakimi-morocco-afcon/
+
+**Alvaro Arbeloa brings Spartan passion to Real Madrid. Can he match it with coaching quality?**\
+`The former full-back won a reputation for being a warrior for Madrid during his playing days, but this is his first job in elite coaching`\
+https://nytimes.com/athletic/6966501/2026/01/14/alvaro-arbeloa-real-madrid-xabi-alonso-profile/
+
+**How Tottenham play: Set-piece progress, more clean sheets but problems in possession**\
+`The Athletic's series taking the tactical temperature at the Premier League's 'Big Six' continues with a look at Thomas Frank's Spurs side`\
+https://nytimes.com/athletic/6966150/2026/01/14/how-tottenham-hotspur-play-premier-league-tactics/
+
+**Bukayo Saka, Marc Cucurella and a contest that has been brewing for years**\
+`This should be the battle to look out for at both Stamford Bridge and Emirates Stadium - as the players' past encounters have shown`\
+https://nytimes.com/athletic/6963032/2026/01/14/saka-cucurella-arsenal-chelsea/
+
+**Bone-shaking rides, a new team, and a big test for USA: What to expect this SailGP season**\
+`The new SailGP season starts this weekend in Perth, Australia, and the conditions are set to be a big test for the 13 teams competing`\
+https://nytimes.com/athletic/6963558/2026/01/14/sailgp-season-6-perth-preview/
+
+**'It was uncomfortable to watch': Naseem Hamed on the Hollywood film about his rise**\
+`A Hollywood film depicting former boxing world champion Naseem Hamed's relationship with trainer Brendan Ingle was released on Friday`\
+https://nytimes.com/athletic/6961873/2026/01/14/prince-naseem-hamed-interview-giant/
+
 **With Crackdown on Protests, Iran’s Government ‘Is Only Buying Time’**\
 `Its security forces have brutally defended the Islamic Republic, but the protests show that many Iranians consider it stagnant and ideologically hollow.`\
 https://nytimes.com/2026/01/14/world/middleeast/iran-protests-government.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6968236/2026/01/14/connections-sports-edition-hints
 **Caught Between Superpowers, Canada Seeks a New Path in Beijing**\
 `The prime minister is seeking new markets for Canadian goods and to mend relations with China after years of deep acrimony between the two nations.`\
 https://nytimes.com/2026/01/14/world/canada/carney-trip-china-relations-trump.html
-
-**Corrections: Jan. 14, 2026**\
-`Corrections that appeared in print on Wednesday, Jan. 14, 2026.`\
-https://nytimes.com/2026/01/14/pageoneplus/corrections-jan-14-2026.html
-
-**Kansas dominates unbeaten No. 2 Iowa State**\
-`The Jayhawks are now 13-2 against top 5 under Bill Self at Allen Fieldhouse. `\
-https://nytimes.com/athletic/6968565/2026/01/13/kansas-win-iowa-state-darryn-peterson/
-
-**Yankees bet on Ryan Weathers' upside, their development chops in trade with Marlins**\
-`The Marlins got four players back in exchange for Weathers, a package that is more quantity over quality.`\
-https://nytimes.com/athletic/6968614/2026/01/13/ryan-weathers-yankees-marlins-trade-analysis/
-
-**A tennis player celebrated victory three points early. 16 points later, he had lost**\
-`Sebastian Ofner thought he had won a match tiebreak against Nishesh Basavareddy of the U.S. He had not.`\
-https://nytimes.com/athletic/6968574/2026/01/13/ofner-celebration-basavareddy-australian-open-qualifying/
-
-**Beijing Won Its War for Blue Skies, but Villagers Are Paying the Price**\
-`China banned the burning of coal for heat around Beijing, but natural gas subsidies have run out, leaving many villagers vulnerable in dangerously cold weather.`\
-https://nytimes.com/2026/01/13/world/asia/china-coal-ban-air-pollution-heating.html
-
-**China Announces Record Trade Surplus as Its Exports Flood World Markets**\
-`China’s surplus reached $1.19 trillion last year, a 20 percent increase from 2024, as Beijing kept the currency weak and pursued self-reliance to replace imports.`\
-https://nytimes.com/2026/01/13/business/china-trade-surplus-exports.html
 
