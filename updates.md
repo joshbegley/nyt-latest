@@ -1,3 +1,7 @@
+**Scoop City: Mike Tomlin's breaking point, Brian Flores' candidacy**\
+`What made Tomlin special, replacement coaching candidates and a Hall of Fame debate with Mike Sando`\
+https://nytimes.com/athletic/6971062/2026/01/14/mike-tomlin-steelers-brian-flores-coach-2026-scoop-city/
+
 **NASA to Begin Space Station Medical Evacuation: How to Watch**\
 `Four astronauts are leaving the outpost about a month earlier than scheduled because a crew member, who was not identified, has an undisclosed medical issue.`\
 https://nytimes.com/2026/01/14/science/nasa-astronauts-iss-return.html
