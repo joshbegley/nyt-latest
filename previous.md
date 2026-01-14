@@ -1,3 +1,11 @@
+**How Hot Was Your Town Last Year? Look Up Where You Live.**\
+`2025 was the third hottest year on record, but thousands of cities saw record heat and one broke a record for cold.`\
+https://nytimes.com/interactive/2026/01/13/climate/2025-global-temperatures-climate-change.html
+
+**Historic Stretch**\
+`Joseph Gangi comes out on top.`\
+https://nytimes.com/2026/01/13/crosswords/daily-puzzle-2026-1-14.html
+
 **Venezuela Frees Several Americans From Prison, U.S. Says**\
 `They were the first U.S. citizens released after the U.S. military captured Nicolás Maduro and flew him to the United States to stand trial on drug and other charges.`\
 https://nytimes.com/2026/01/13/world/americas/venezuela-us-prisoner-freed.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/opinion/100000010630341/the-religious-right-uses-chris
 **David Webb, Investor Who Took on Hong Kong Tycoons, Dies at 60**\
 `From his internet platform, he became a tenacious watchdog fighting financial regulators for minority shareholders and exposing shady business dealings.`\
 https://nytimes.com/2026/01/13/world/asia/david-webb-hong-kong-obit.html
-
-**Iranians Deserve New Leadership**\
-`“The protesters increasingly don’t just want reform, they want to topple the entire theocratic regime,” says the Opinion columnist Nicholas Kristof.`\
-https://nytimes.com/video/opinion/100000010643429/iranians-deserve-new-leadership.html
-
-**Cowboys rookie DE Donovan Ezeiruaku arrested on reckless driving charge**\
-`Ezeiruaku, who was released after posting a $500 bond, was a second-round selection by Dallas in the 2025 NFL Draft.`\
-https://nytimes.com/athletic/6968273/2026/01/13/dallas-cowboys-donovan-ezeiruaku-arrested-reckless-driving-charge/
 

@@ -1,3 +1,11 @@
+**How Hot Was Your Town Last Year? Look Up Where You Live.**\
+`2025 was the third hottest year on record, but thousands of cities saw record heat and one broke a record for cold.`\
+https://nytimes.com/interactive/2026/01/13/climate/2025-global-temperatures-climate-change.html
+
+**Historic Stretch**\
+`Joseph Gangi comes out on top.`\
+https://nytimes.com/2026/01/13/crosswords/daily-puzzle-2026-1-14.html
+
 **Venezuela Frees Several Americans From Prison, U.S. Says**\
 `They were the first U.S. citizens released after the U.S. military captured Nicolás Maduro and flew him to the United States to stand trial on drug and other charges.`\
 https://nytimes.com/2026/01/13/world/americas/venezuela-us-prisoner-freed.html
