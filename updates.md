@@ -1,9 +1,9 @@
-**Eric Adams Hawked a Crypto Coin. A Day Later, $1 Million Was Missing.**\
+**Eric Adams Launched a Crypto Coin. A Day Later, $1 Million Was Missing.**\
 `Officials tied to the venture insisted no money had been stolen, but the withdrawal caused the coin’s value to plunge.`\
 https://nytimes.com/2026/01/13/nyregion/adams-crypto-token-money.html
 
 **Meet the 11-year-old viral Eagles fan who resonated with Philly fans**\
-`Salvo expressed frustration with ex-offensive coordinator Kevin Patullo and wideout A.J. Brown wants to be a pro tennis player.`\
+`Salvo expressed frustration with ex-offensive coordinator Kevin Patullo and wideout A.J. Brown.`\
 https://nytimes.com/athletic/6967800/2026/01/13/who-is-young-eagles-fan-sam-salvo/
 
 **Guardiola critcises officiating after six-minute VAR check during Man City victory**\
