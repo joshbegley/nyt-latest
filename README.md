@@ -1,3 +1,7 @@
+**Breaking down Pep Guardiola's VAR rant after six-minute review, what he said and why he said it**\
+`A six-minute review to disallow a Semenyo goal against Newcastle brought an impassioned response from the City manager.`\
+https://nytimes.com/athletic/6968109/2026/01/14/pep-guardiola-semenyo-var/
+
 **The New York Times in Print for Wednesday, Jan. 14, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/14/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6963041/2026/01/14/wrexham-best-midfield-dobson/
 **Leeds admire Doekhi. This is what he'd bring and why they might not move for him**\
 `Leeds have switched to a three-man defence and might want recruits in that area to deal with that change`\
 https://nytimes.com/athletic/6965906/2026/01/14/leeds-danilho-doekhi-analysis/
-
-**Why corners are not on Liam Rosenior's list of things to fix at Chelsea**\
-`Chelsea are beginning to challenge Arsenal as the best corner takers in the Premier League - with an almost undefendable near-post delivery `\
-https://nytimes.com/athletic/6958411/2026/01/14/chelsea-corner-analysis-inswingers/
 
