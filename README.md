@@ -1,3 +1,19 @@
+**Can A.I. Generate New Ideas?**\
+`Systems like OpenAI’s GPT-5 are accelerating research in math, biology and chemistry. But there is a debate over whether it can do that work on its own.`\
+https://nytimes.com/2026/01/14/technology/ai-ideas-chat-gpt-openai.html
+
+**A Loyalty Program That Rewards Mortgage Payments? It’s Complicated.**\
+`Bilt, a rewards and payments start-up, has three new credit cards that can help users earn points when they pay their mortgage. You will need to do math.`\
+https://nytimes.com/2026/01/14/business/bilt-rent-mortgage-rewards.html
+
+**Leonardo DiCaprio, Benicio Del Toro and Rose Byrne Pick Up Awards in New York**\
+`The stars were honored at the annual National Board of Review gala, where winners called attention to protests in Minneapolis and the violent crackdown in Iran.`\
+https://nytimes.com/2026/01/14/style/national-board-review-gala-leonardo-dicapio-benicio-del-toro.html
+
+**2026 May Be the Year of the Mega I.P.O.**\
+`If SpaceX, OpenAI and Anthropic go public, they will unleash gushers of cash for Silicon Valley and Wall Street.`\
+https://nytimes.com/2026/01/14/technology/ai-ipo-openai-anthropic-spacex.html
+
 **Travis Hunter will continue playing offense, defense once recovered from injury**\
 `“Very fair to say that his rehab process is going as expected. He’s hitting it hard,” Jaguars GM James Gladstone said Monday.`\
 https://nytimes.com/athletic/6970239/2026/01/14/travis-hunter-jaguars-offense-defense-injury/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/14/arts/music/what-to-wear-richard-foreman-michael-g
 **Interviewing Colombia’s President, Before and After His Call With Trump**\
 `New York Times reporters waited more than eight hours to speak with President Gustavo Petro, who, as it turned out, had another important conversation in the works.`\
 https://nytimes.com/2026/01/14/insider/gustavo-petro-interview.html
-
-**Denmark Reinforces Its Military Presence in Greenland**\
-`The Danes say the deployment of aircraft, ships and soldiers is part of an ongoing effort to better protect the island and the Arctic.`\
-https://nytimes.com/2026/01/14/us/politics/greenland-denmark-military.html
-
-**Toby Kiers, World Champion of Fungus**\
-`This year’s recipient of the Tyler Prize for Environmental Achievement talks about “punk science,” microbial economics and thinking like a mycorrhizal fungus.`\
-https://nytimes.com/2026/01/14/science/toby-kiers-fungus-tyler-prize.html
-
-**How to watch Cavaliers vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6970137/2026/01/14/cavaliers-vs-76ers-stream-how-to-watch-jan-14/
-
-**How to watch Raptors vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6970135/2026/01/14/raptors-vs-pacers-stream-how-to-watch-jan-14/
 
