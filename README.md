@@ -1,3 +1,7 @@
+**NASA to Begin Space Station Medical Evacuation: How to Watch**\
+`Four astronauts are leaving the outpost about a month earlier than scheduled because a crew member, who was not identified, has an undisclosed medical issue.`\
+https://nytimes.com/2026/01/14/science/nasa-astronauts-iss-return.html
+
 **American Citizens Are Living in Fear**\
 `Readers share their anxieties over the aggressive tactics of ICE agents. Also: Undermining the Fed’s stability; one reader’s Trump quiz.`\
 https://nytimes.com/2026/01/14/opinion/ice-citizens-fear.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6970794/2026/01/14/padres-bud-black-wil-myers-baseb
 **Alexandre Texier, Canadiens agree to 2-year contract extension**\
 `Since arriving in Montreal, Texier has played well, recording seven goals and 16 points in 25 games.`\
 https://nytimes.com/athletic/6970544/2026/01/14/canadiens-alexandre-texier-contract-extension/
-
-**Can the ICE Agent Who Shot Renee Good Be Prosecuted?**\
-`The Trump administration is unlikely to bring a federal case, and any criminal case would face high hurdles. But charges are not out of the question.`\
-https://nytimes.com/2026/01/14/us/renee-good-ice-shooting-prosecution.html
 
