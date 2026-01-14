@@ -1,3 +1,7 @@
+**Vikings leadership noncommittal on J.J. McCarthy as starting QB in 2026**\
+`Vikings GM Kwesi Adofo-Mensah and coach Kevin O'Connell imply they'll bring in competition for McCarthy as the starting QB next season.`\
+https://nytimes.com/athletic/6967843/2026/01/13/jj-mccarthy-vikings-kwesi-adofo-mensah-kevin-oconnell-qb/
+
 **Eric Adams Hawked a Crypto Coin. A Day Later, $1 Million Was Missing.**\
 `Officials tied to the venture insisted no money had been stolen, but the withdrawal caused the coin’s value to plunge.`\
 https://nytimes.com/2026/01/13/nyregion/adams-crypto-token-money.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/politics/100000010642873/supreme-court-transgender-
 **Mr. Mamdani Goes to Albany, This Time as a Political Celebrity**\
 `Mayor Zohran Mamdani of New York City returned to the State Capitol for the first time since taking office, underscoring the shifting political winds since his victory.`\
 https://nytimes.com/2026/01/13/nyregion/mamdani-albany.html
-
-**Olympic Fans Get First Chance to Buy Tickets to 2028 Games in Los Angeles**\
-`Starting Wednesday, prospective buyers can enter a lottery to get a chance to purchase the first tickets in April.`\
-https://nytimes.com/2026/01/13/us/olympics-los-angeles-2028-tickets.html
 
