@@ -1,3 +1,11 @@
+**F.B.I. Searches Home of Washington Post Journalist for Classified Documents**\
+`Officials familiar with the matter said the search was part of an investigation into the possible sharing of government secrets.`\
+https://nytimes.com/2026/01/14/us/politics/fbi-washington-post-journalist.html
+
+**College basketball mailbag: Which mid-major teams could make noise in March?**\
+`Why Saint Louis and Saint Mary's are among the mid-majors who could spring a win or two in the NCAA Tournament.`\
+https://nytimes.com/athletic/6969434/2026/01/14/college-basketball-mailbag-michigan-saint-louis-unc/
+
 **Why Per Mertesacker is leaving Arsenal and what it means for the academy's future**\
 `The German will depart this summer after 15 years at the club and his exit could mean a tweak to their academy's direction`\
 https://nytimes.com/athletic/6969071/2026/01/14/per-mertesacker-arsenal-academy-future/
@@ -18,7 +26,7 @@ https://nytimes.com/2026/01/14/arts/music/mtv-rewind-video-database.html
 `The ticket sales process for the 2028 Olympics in Los Angeles begins Wednesday. Here's everything you need to know.`\
 https://nytimes.com/athletic/6969083/2026/01/14/la-olympics-2028-tickets-process-lottery/
 
-**Red-hot Timberwolves may not need to make a trade to contend: 'We got a great team'**\
+**Red-hot Wolves may not need to make a move to contend: 'We got a great team'**\
 `Bones Hyland and rookie Joan Beringer showed the team's depth against the Bucks as Anthony Edwards and Rudy Gobert sat out.`\
 https://nytimes.com/athletic/6968362/2026/01/14/timberwolves-bones-hyland-joan-beringer-nba-trade-deadline/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6969337/2026/01/14/harry-gray-leeds-united-rotherha
 **Maple Leafs must become road warriors to keep their playoff streak alive**\
 `Toronto can't escape a road letdown one night after knocking off the mighty Avalanche, losing 6-1 to the Mammoth in Salt Lake City.`\
 https://nytimes.com/athletic/6968831/2026/01/14/maple-leafs-must-become-road-warriors-to-keep-their-playoff-streak-alive/
-
-**Mandel's Mailbag: How wrong was I about Indiana? Plus, Miami is back and recruiting stars don’t matter**\
-`I doubted Indiana could win a national championship throughout the regular season. I was very wrong.`\
-https://nytimes.com/athletic/6968017/2026/01/14/indiana-wrong-miami-recruiting-stars-mandels-mailbag/
-
-**Warriors, Blazers set NBA record as 21 different players hit a 3-pointer**\
-`The mark eclipsed two previous games in which 20 players hit from long range as Golden State blew out Portland.`\
-https://nytimes.com/athletic/6968918/2026/01/14/warriors-blazers-nba-record-3-pointers/
 
