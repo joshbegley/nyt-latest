@@ -1,3 +1,7 @@
+**Why Banks Are So Worried About a 10% Credit Card Rate Cap**\
+`President Trump revived a campaign promise to cap interest rates, but it is unclear how he would make that a reality.`\
+https://nytimes.com/2026/01/14/business/trump-credit-card-interest-rate-cap-banks.html
+
 **The People of Iran Deserve the World’s Support**\
 `The protest movement represents the best hope for a government that does less damage in the world and better serves its own citizens.`\
 https://nytimes.com/2026/01/14/opinion/iran-protests-khamenei-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/14/us/trump-whole-milk-schools-bill.html
 **Steelers owner says Mike Tomlin not expected to coach again 'in the near future'**\
 `Plus, other takeaways from Art Rooney II's Wednesday news conference.`\
 https://nytimes.com/athletic/6971435/2026/01/14/mike-tomlin-not-expected-to-coach-near-future-art-rooney/
-
-**Judge Rejects Effort to Return Man Accused in 9/11 Plot to Guantánamo Trial**\
-`The case of Ramzi bin al-Shibh was severed in 2023 after a military medical panel found him incompetent to help with his defense.`\
-https://nytimes.com/2026/01/14/us/politics/sept-11-defendant-decision.html
 

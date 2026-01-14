@@ -1,3 +1,7 @@
+**Trump Administration to Halt Immigrant Visa Processing for 75 Countries**\
+`Federal officials said the move was meant to discourage immigration by people who they deemed likely to rely on public benefits.`\
+https://nytimes.com/2026/01/14/us/politics/trump-suspends-visa-75-countries.html
+
 **Why Banks Are So Worried About a 10% Credit Card Rate Cap**\
 `President Trump revived a campaign promise to cap interest rates, but it is unclear how he would make that a reality.`\
 https://nytimes.com/2026/01/14/business/trump-credit-card-interest-rate-cap-banks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/14/business/food-prices-tariffs-trump.html
 **Trump Signs Bill Allowing Schools to Serve Whole Milk Again**\
 `The law, which was approved unanimously by Congress late last year, also gives schools more flexibility in serving nondairy milks.`\
 https://nytimes.com/2026/01/14/us/trump-whole-milk-schools-bill.html
-
-**Steelers owner says Mike Tomlin not expected to coach again 'in the near future'**\
-`Plus, other takeaways from Art Rooney II's Wednesday news conference.`\
-https://nytimes.com/athletic/6971435/2026/01/14/mike-tomlin-not-expected-to-coach-near-future-art-rooney/
 
