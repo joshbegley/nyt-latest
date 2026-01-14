@@ -1,3 +1,7 @@
+**NFL second-round confidence picks: Chicago can upset Los Angeles**\
+`KC Joyner gives his straight-up and against-the-spread picks for the second round of the NFL playoffs.`\
+https://nytimes.com/athletic/6968910/2026/01/14/nfl-divisional-round-confidence-picks-bears-rams/
+
 **Tony Dokoupil’s Road Trip on CBS News Hits a Rough Patch**\
 `A stretch of big news revealed growing pains for CBS’s new evening anchor and problems with its Bari Weiss-era philosophy.`\
 https://nytimes.com/2026/01/14/arts/television/cbs-news-tony-dokoupil.html

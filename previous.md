@@ -1,3 +1,7 @@
+**NFL second-round confidence picks: Chicago can upset Los Angeles**\
+`KC Joyner gives his straight-up and against-the-spread picks for the second round of the NFL playoffs.`\
+https://nytimes.com/athletic/6968910/2026/01/14/nfl-divisional-round-confidence-picks-bears-rams/
+
 **Tony Dokoupil’s Road Trip on CBS News Hits a Rough Patch**\
 `A stretch of big news revealed growing pains for CBS’s new evening anchor and problems with its Bari Weiss-era philosophy.`\
 https://nytimes.com/2026/01/14/arts/television/cbs-news-tony-dokoupil.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/14/world/europe/greenland-climate.html
 **Live Q&A: Patriots playoff talk with reporter Chad Graff at 11 a.m. ET on Thursday**\
 `Patriots reporter Chad Graff will be here to answer your questions about next Sunday's game — and anything else — at 11 a.m. ET on Thursday.`\
 https://nytimes.com/athletic/6966067/2026/01/14/live-qa-patriots-nfl-playoffs-chad-graff/
-
-**Public Shame Is the Most Effective Tool for Battling Big Tech**\
-`Our federal government won’t regulate fast enough (or at all), but that doesn’t mean regular Americans are helpless.`\
-https://nytimes.com/2026/01/14/opinion/grok-risk-kids.html
 
