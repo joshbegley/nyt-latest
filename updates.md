@@ -1,3 +1,7 @@
+**Tony Dokoupil’s Road Trip on CBS News Hits a Rough Patch**\
+`A stretch of big news revealed growing pains for CBS’s new evening anchor and problems with its Bari Weiss-era philosophy.`\
+https://nytimes.com/2026/01/14/arts/television/cbs-news-tony-dokoupil.html
+
 **Fantasy football RB and QB review: Ashton Jeanty busts, Travis Etienne surprises and more**\
 `Jake Ciely runs through the biggest fantasy football 2025 hits and misses at the RB and QB positions, searching for lessons learned.`\
 https://nytimes.com/athletic/6967812/2026/01/14/fantasy-football-running-back-quarterback-review-overperformers-underperformers/
