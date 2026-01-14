@@ -1,3 +1,7 @@
+**‘We’re Not Stupid’: Greenlanders Fear What a U.S. Takeover Would Mean**\
+`A visit to Greenland reveals a swirl of feelings as people nervously await talks with the Trump administration about the island’s future.`\
+https://nytimes.com/2026/01/14/world/americas/greenland-fear-trump-us-takeover.html
+
 **Everton interested in Fenerbahce striker En-Nesyri**\
 `Everton's interest in En-Nesyri is not at an advanced stage and they are yet to make a formal bid for the striker.`\
 https://nytimes.com/athletic/6969013/2026/01/14/youssef-en-nesyri-everton-fenerbahce-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6966524/2026/01/14/chiefs-disappointing-season-caus
 **What moves make the most sense for Celtics at the NBA trade deadline?**\
 `With the NBA trade deadline approaching on Feb. 5, the Boston Celtics will have some big decisions to make. `\
 https://nytimes.com/athletic/6967765/2026/01/14/celtics-anfernee-simons-nba-trade-deadline/
-
-**Evgeni Malkin's dramatic goal gives the Penguins a much-needed point**\
-`Though the Penguins fell in the shootout, a hard-earned point against the Lightning will be handy in a crowded Eastern Conference.`\
-https://nytimes.com/athletic/6953877/2026/01/14/penguins-malkin-silovs-shootout-lightning/
 

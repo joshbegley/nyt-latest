@@ -1,3 +1,7 @@
+**‘We’re Not Stupid’: Greenlanders Fear What a U.S. Takeover Would Mean**\
+`A visit to Greenland reveals a swirl of feelings as people nervously await talks with the Trump administration about the island’s future.`\
+https://nytimes.com/2026/01/14/world/americas/greenland-fear-trump-us-takeover.html
+
 **Everton interested in Fenerbahce striker En-Nesyri**\
 `Everton's interest in En-Nesyri is not at an advanced stage and they are yet to make a formal bid for the striker.`\
 https://nytimes.com/athletic/6969013/2026/01/14/youssef-en-nesyri-everton-fenerbahce-transfer/
