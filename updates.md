@@ -1,3 +1,11 @@
+**Yankees bet on Ryan Weathers' upside and their development chops in deal with Marlins**\
+`The Marlins got four players back in exchange for Weathers, a package that is more quantity over quality.`\
+https://nytimes.com/athletic/6968614/2026/01/13/ryan-weathers-yankees-marlins-trade-analysis/
+
+**A tennis player celebrated victory three points early. 16 points later, he had lost**\
+`Sebastian Ofner thought he had won a match tiebreak against Nishesh Basavareddy of the U.S. He had not.`\
+https://nytimes.com/athletic/6968574/2026/01/13/ofner-celebration-basavareddy-australian-open-qualifying/
+
 **Beijing Won Its War for Blue Skies, but Villagers Are Paying the Price**\
 `China banned the burning of coal for heat around Beijing, but natural gas subsidies have run out, leaving many villagers vulnerable in dangerously cold weather.`\
 https://nytimes.com/2026/01/13/world/asia/china-coal-ban-air-pollution-heating.html
