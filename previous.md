@@ -1,3 +1,7 @@
+**Beijing Won Its War for Blue Skies, but Villagers Are Paying the Price**\
+`China banned the burning of coal for heat around Beijing, but natural gas subsidies have run out, leaving many villagers vulnerable in dangerously cold weather.`\
+https://nytimes.com/2026/01/13/world/asia/china-coal-ban-air-pollution-heating.html
+
 **China Announces Record Trade Surplus as Its Exports Flood World’s Markets**\
 `China’s surplus reached $1.19 trillion, a 20 percent increase from 2024, according to data released by the country’s General Administration of Customs.`\
 https://nytimes.com/2026/01/13/business/china-trade-surplus-exports.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/13/arts/television/kiefer-sutherland-arrest-assault.
 **Trump Makes Obscene Gesture at Heckler in Ford Factory Tour**\
 `A White House spokesman said the president “gave an appropriate and unambiguous response.”`\
 https://nytimes.com/2026/01/13/us/politics/trump-heckler-middle-finger.html
-
-**The Minneapolis Mayor Who Cursed Out ICE Is No Stranger to Crisis**\
-`Mayor Jacob Frey, a Democrat, has clashed with his party’s activist wing. His response to ICE has won him new respect at home and new foes in Washington.`\
-https://nytimes.com/2026/01/13/us/politics/minneapolis-mayor-jacob-frey-ice.html
 

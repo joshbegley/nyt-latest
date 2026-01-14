@@ -1,3 +1,7 @@
+**Beijing Won Its War for Blue Skies, but Villagers Are Paying the Price**\
+`China banned the burning of coal for heat around Beijing, but natural gas subsidies have run out, leaving many villagers vulnerable in dangerously cold weather.`\
+https://nytimes.com/2026/01/13/world/asia/china-coal-ban-air-pollution-heating.html
+
 **China Announces Record Trade Surplus as Its Exports Flood World’s Markets**\
 `China’s surplus reached $1.19 trillion, a 20 percent increase from 2024, according to data released by the country’s General Administration of Customs.`\
 https://nytimes.com/2026/01/13/business/china-trade-surplus-exports.html
