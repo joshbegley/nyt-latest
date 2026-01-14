@@ -1,3 +1,11 @@
+**FanDuel Sports Network makes 3-year offers to MLB teams, but company must be sold**\
+`If it isn't sold, Main Street has told partner teams it plans to wind down FanDuel Sports Network operations after the NBA and NHL seasons.`\
+https://nytimes.com/athletic/6971636/2026/01/14/fanduel-sports-network-washington-nationals-broadcasts-mlb-nhl-nba/
+
+**Jaylen Brown: Celtics deserve more respect from NBA refs**\
+`The Celtics are the only NBA team to get to the free-throw line fewer than 20 times per game this season.`\
+https://nytimes.com/athletic/6971864/2026/01/14/jaylen-brown-celtics-nba-refs-respect/
+
 **Nolan Arenado felt he was 'in the way' of young talent in St. Louis, ready for fresh start**\
 `“I loved my time there,” Arenado said of his tenure with the Cardinals, but he noted that he's looking forward to playing for Arizona.`\
 https://nytimes.com/athletic/6972090/2026/01/14/nolan-arenado-cardinals-diamondbacks-new-opportunity/
@@ -29,12 +37,4 @@ https://nytimes.com/video/dining/100000010368599/italian-broccoli-salad.html
 **Newsom Says California Will Not Extradite Abortion Provider to Louisiana**\
 `The case, escalating the interstate battle over abortion, is the second time Louisiana has criminally charged out-of-state doctors with sending abortion pills to Louisiana residents.`\
 https://nytimes.com/2026/01/14/us/california-louisiana-extradite-abortion-doctor.html
-
-**Giants' international class amounts to one big bet on Venezuelan shortstop Luis Hernandez**\
-`Hernandez, 17, is ranked by several outlets as the top prospect in this year's international amateur signing class.`\
-https://nytimes.com/athletic/6971969/2026/01/14/sf-giants-international-signing-day-preview-luis-hernandez/
-
-**Madrid out of Copa with Albacete loss in Arbeloa's first game in charge**\
-`Jefte Betancor netted a dramatic lobbed winning-goal in the fourth minute of stoppage time after Gonzalo Garcia had equalised three minutes `\
-https://nytimes.com/athletic/6972076/2026/01/14/real-madrid-lose-copa-del-rey-albacete/
 
