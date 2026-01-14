@@ -1,3 +1,11 @@
+**Jim McBride Dies at 78; Brought Honky-Tonk Back to Country Music**\
+`He was best known for his long-running collaboration with Alan Jackson and their signature hit, “Chattahoochee.”`\
+https://nytimes.com/2026/01/14/arts/music/jim-mcbride-dead.html
+
+**Vikings mailbag: Submit your offseason questions now for reporter Alec Lewis**\
+`The Vikings’ season is over, but the next few months will be absolutely vital to the organization’s future. Send in your questions here!`\
+https://nytimes.com/athletic/6970012/2026/01/14/vikings-postseason-mailbag-alec-lewis/
+
 **U.S. Weighs Expanding Private Companies’ Role in Cyberwarfare**\
 `The proposal raises a host of questions about the legality and practicality of bolstering the involvement of the private sector in offensive cyberoperations.`\
 https://nytimes.com/2026/01/14/us/politics/us-cyberwarfare-private-companies.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6967812/2026/01/14/fantasy-football-running-back-qu
 **UK Home secretary says no confidence in police chief after Maccabi fan ban at Villa**\
 `Maccabi Tel Aviv fans did not attend the Europa League fixture against Aston Villa on November 6 following a West Midlands Police request.`\
 https://nytimes.com/athletic/6969557/2026/01/14/maccabi-tel-aviv-aston-villa-police-home-secretary/
-
-**Cortina mayor talks Winter Olympics challenges, costs, sliding track controversy and more**\
-`Gianluca Lorenzi has received death threats and grappled with economic controversies in the midst of Olympic planning.`\
-https://nytimes.com/athletic/6966577/2026/01/14/winter-olympics-milan-cortina-mayor-interview/
-
-**U.K. Retreats on Plan to Require ‘BritCard’ ID for Workers**\
-`Workers will be able to use a variety of digital IDs to prove their right to work in Britain, the government said Wednesday, diluting a plan it announced last year.`\
-https://nytimes.com/2026/01/14/world/europe/uk-digital-id-britcard.html
 

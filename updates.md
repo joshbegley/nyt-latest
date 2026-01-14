@@ -1,3 +1,11 @@
+**Jim McBride Dies at 78; Brought Honky-Tonk Back to Country Music**\
+`He was best known for his long-running collaboration with Alan Jackson and their signature hit, “Chattahoochee.”`\
+https://nytimes.com/2026/01/14/arts/music/jim-mcbride-dead.html
+
+**Vikings mailbag: Submit your offseason questions now for reporter Alec Lewis**\
+`The Vikings’ season is over, but the next few months will be absolutely vital to the organization’s future. Send in your questions here!`\
+https://nytimes.com/athletic/6970012/2026/01/14/vikings-postseason-mailbag-alec-lewis/
+
 **U.S. Weighs Expanding Private Companies’ Role in Cyberwarfare**\
 `The proposal raises a host of questions about the legality and practicality of bolstering the involvement of the private sector in offensive cyberoperations.`\
 https://nytimes.com/2026/01/14/us/politics/us-cyberwarfare-private-companies.html
