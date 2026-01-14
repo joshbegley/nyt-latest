@@ -1,3 +1,7 @@
+**Iranians Deserve New Leadership**\
+`“The protesters increasingly don’t just want reform, they want to topple the entire theocratic regime,” says the Opinion columnist Nicholas Kristof.`\
+https://nytimes.com/video/opinion/100000010643429/iranians-deserve-new-leadership.html
+
 **Cowboys rookie DE Donovan Ezeiruaku arrested on reckless driving charge**\
 `Ezeiruaku, who was released after posting a $500 bond, was a second-round selection by Dallas in the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6968273/2026/01/13/dallas-cowboys-donovan-ezeiruaku-arrested-reckless-driving-charge/

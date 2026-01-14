@@ -1,3 +1,7 @@
+**David Webb, Investor Who Took on Hong Kong Tycoons, Dies at 60**\
+`From his internet platform, he became a tenacious watchdog fighting financial regulators for minority shareholders and exposing shady business dealings.`\
+https://nytimes.com/2026/01/13/world/asia/david-webb-hong-kong-obit.html
+
 **Iranians Deserve New Leadership**\
 `“The protesters increasingly don’t just want reform, they want to topple the entire theocratic regime,” says the Opinion columnist Nicholas Kristof.`\
 https://nytimes.com/video/opinion/100000010643429/iranians-deserve-new-leadership.html
