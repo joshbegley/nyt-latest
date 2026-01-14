@@ -10,7 +10,7 @@ https://nytimes.com/2026/01/14/arts/television/cbs-news-tony-dokoupil.html
 `Jake Ciely runs through the biggest fantasy football 2025 hits and misses at the RB and QB positions, searching for lessons learned.`\
 https://nytimes.com/athletic/6967812/2026/01/14/fantasy-football-running-back-quarterback-review-overperformers-underperformers/
 
-**Home Secretary says no confidence in police chief after Maccabi fan ban at Villa**\
+**UK Home secretary says no confidence in police chief after Maccabi fan ban at Villa**\
 `Maccabi Tel Aviv fans did not attend the Europa League fixture against Aston Villa on November 6 following a West Midlands Police request.`\
 https://nytimes.com/athletic/6969557/2026/01/14/maccabi-tel-aviv-aston-villa-police-home-secretary/
 
