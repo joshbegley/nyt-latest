@@ -1,4 +1,4 @@
-**Trump Administration Live Updates: President Insists U.S. ‘Needs Greenland’ Ahead of White House Meeting**\
+**Trump Administration Live Updates: Before White House Meeting, President Insists U.S. ‘Needs Greenland’**\
 ``\
 https://nytimes.com/live/2026/01/14/us/trump-news
 
