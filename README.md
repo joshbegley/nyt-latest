@@ -1,3 +1,7 @@
+**Where’s the Gym? Oh, Through That Tube Over There**\
+`A new kind of tap-in, tap-out system at gyms has some New Yorkers flustered.`\
+https://nytimes.com/2026/01/14/business/puregym-exits-fire-department.html
+
 **C.D.C. Brings Back Hundreds of Suspended Workplace Safety Employees**\
 `Health Secretary Robert F. Kennedy Jr. placed about 90 percent of the roughly 1,000 employees of the National Institute for Occupational Safety and Health on administrative leave last April.`\
 https://nytimes.com/2026/01/14/health/cdc-niosh-reinstates-employees-kennedy.html
