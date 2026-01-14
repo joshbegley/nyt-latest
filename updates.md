@@ -1,3 +1,7 @@
+**Tensions High as Vance and Rubio Are to Meet Danish and Greenlandic Officials**\
+`Top officials from the United States, Denmark and Greenland will meet at the White House for the first time since President Trump said he wanted to own Greenland.`\
+https://nytimes.com/2026/01/14/world/europe/trump-greenland-rubio-vance-white-house.html
+
 **A Week Without Heat in New York City**\
 `Some renters are constantly left without heat or hot water during the winter, leading them to bundle up in layers of clothing or risk fires by using space heaters.`\
 https://nytimes.com/2026/01/14/nyregion/nyc-heat-season.html
