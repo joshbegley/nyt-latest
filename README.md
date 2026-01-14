@@ -1,3 +1,11 @@
+**C.D.C. Brings Back Hundreds of Suspended Workplace Safety Employees**\
+`Health Secretary Robert F. Kennedy Jr. placed about 90 percent of the roughly 1,000 employees of the National Institute for Occupational Safety and Health on administrative leave last April.`\
+https://nytimes.com/2026/01/14/health/cdc-niosh-reinstates-employees-kennedy.html
+
+**Verizon Outage Affects Tens of Thousands of Users, Tracking Site Shows**\
+`A spokeswoman for Verizon said the carrier was working to resolve the issue.`\
+https://nytimes.com/2026/01/14/business/verizon-outage-downdetector.html
+
 **USMNT standout Richards named U.S. Soccer's 2025 Male Player of the Year**\
 `Chris Richards emerged as a leader and had a knack for the big moment during 2025 for the USMNT`\
 https://nytimes.com/athletic/6970390/2026/01/14/chris-richards-usmnt-2025-player-year/
@@ -13,12 +21,4 @@ https://nytimes.com/athletic/6970111/2026/01/14/psa-sgc-beckett-collectors-gradi
 **Before Curt Cignetti and Indiana, what were the best turnaround stories in sports history?**\
 `Indiana football's dramatic turnaround is reminiscent of several other notable teams in sports history.`\
 https://nytimes.com/athletic/6964057/2026/01/14/indiana-football-curt-cignetti-best-sports-turnaround-stories/
-
-**Can A.I. Generate New Ideas?**\
-`Systems like OpenAI’s GPT-5 are accelerating research in math, biology and chemistry. But there is a debate over whether it can do that work on its own.`\
-https://nytimes.com/2026/01/14/technology/ai-ideas-chat-gpt-openai.html
-
-**What to Know about Bilt’s New Rewards Program for Mortgage and Rent Payments**\
-`Bilt, a rewards and payments start-up, has three new credit cards that can help users earn points when they pay their mortgage. You will need to do math.`\
-https://nytimes.com/2026/01/14/business/bilt-rent-mortgage-rewards.html
 
