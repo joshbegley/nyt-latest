@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Jan. 14, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/14/todays-new-york-times
+
+**Something Bad Is Brewing on Venezuela’s Border**\
+`An armed guerrilla group stands emboldened to challenge the authority of the Colombian state — and U.S. ambitions in Venezuela.`\
+https://nytimes.com/2026/01/14/opinion/venezuela-maduro-colombia-petro-eln.html
+
 **Crane Falls on Passenger Train in Thailand, Killing at Least 22**\
 `The railway authorities said there were almost 200 people on the train when the accident happened in Nakhon Ratchasima province, northeast of Bangkok. Dozens were injured.`\
 https://nytimes.com/2026/01/14/world/asia/thailand-train-crane-accident.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6965906/2026/01/14/leeds-danilho-doekhi-analysis/
 **Why corners are not on Liam Rosenior's list of things to fix at Chelsea**\
 `Chelsea are beginning to challenge Arsenal as the best corner takers in the Premier League - with an almost undefendable near-post delivery `\
 https://nytimes.com/athletic/6958411/2026/01/14/chelsea-corner-analysis-inswingers/
-
-**Aston Villa have 24 players out on loan. This month brings their future into focus**\
-`The club has a dedicated team working to make sure that players out on loan are developing in the right way`\
-https://nytimes.com/athletic/6965687/2026/01/14/aston-villa-loan-players-transfers/
-
-**Chelsea vs Arsenal: Does the Carabao Cup matter? Expect a ‘Rosenior effect’? Will Gyokeres start?**\
-`The London rivals meet in a Carabao Cup semi-final first leg tonight - two of our writers share their thoughts on its possible storylines`\
-https://nytimes.com/athletic/6963628/2026/01/14/chelsea-arsenal-rosenior-gyokeres/
 

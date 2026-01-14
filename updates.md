@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Jan. 14, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/14/todays-new-york-times
+
+**Something Bad Is Brewing on Venezuela’s Border**\
+`An armed guerrilla group stands emboldened to challenge the authority of the Colombian state — and U.S. ambitions in Venezuela.`\
+https://nytimes.com/2026/01/14/opinion/venezuela-maduro-colombia-petro-eln.html
+
 **Crane Falls on Passenger Train in Thailand, Killing at Least 22**\
 `The railway authorities said there were almost 200 people on the train when the accident happened in Nakhon Ratchasima province, northeast of Bangkok. Dozens were injured.`\
 https://nytimes.com/2026/01/14/world/asia/thailand-train-crane-accident.html
