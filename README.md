@@ -1,3 +1,7 @@
+**Aina returns to Forest's Europa League squad, Zinchenko drops out**\
+`Aina had been named in the initial squad in the summer, until he suffered a serious hamstring injury, but he has now returned to fitness.`\
+https://nytimes.com/athletic/6971306/2026/01/14/nottingham-forest-squad-europa-league-aina-zinchenko/
+
 **Oregon quarterback Dante Moore will return for 2026 season**\
 `The 20-year-old from Detroit snubbed the NFL Draft for another season with the Ducks.`\
 https://nytimes.com/athletic/6957387/2026/01/14/oregon-quarterback-dante-moore-returns-school/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6971062/2026/01/14/mike-tomlin-steelers-brian-flore
 **NASA to Begin Space Station Medical Evacuation: How to Watch**\
 `Four astronauts are leaving the outpost about a month earlier than scheduled because a crew member, who was not identified, has an undisclosed medical issue.`\
 https://nytimes.com/2026/01/14/science/nasa-astronauts-iss-return.html
-
-**American Citizens Are Living in Fear**\
-`Readers share their anxieties over the aggressive tactics of ICE agents. Also: Undermining the Fed’s stability; one reader’s Trump quiz.`\
-https://nytimes.com/2026/01/14/opinion/ice-citizens-fear.html
 

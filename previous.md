@@ -1,3 +1,7 @@
+**Oregon quarterback Dante Moore will return for 2026 season**\
+`The 20-year-old from Detroit snubbed the NFL Draft for another season with the Ducks.`\
+https://nytimes.com/athletic/6957387/2026/01/14/oregon-quarterback-dante-moore-returns-school/
+
 **Quebec’s Unpopular Leader to Resign Ahead of Elections**\
 `Premier François Legault became Canada’s most popular provincial leader during the pandemic thanks to his reassuring, avuncular persona. But missteps sank his hopes for a third term.`\
 https://nytimes.com/2026/01/14/world/americas/quebec-leader-resignation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/14/science/nasa-astronauts-iss-return.html
 **American Citizens Are Living in Fear**\
 `Readers share their anxieties over the aggressive tactics of ICE agents. Also: Undermining the Fed’s stability; one reader’s Trump quiz.`\
 https://nytimes.com/2026/01/14/opinion/ice-citizens-fear.html
-
-**Senegal 1 Egypt 0 - Sadio Mane gets one over Mohamed Salah, but is this the end for the Egyptian?**\
-`In a tense and cagey encounter it was Senegal who came out on top, thanks to a late goal from Sadio Mane`\
-https://nytimes.com/athletic/6965945/2026/01/14/senegal-1-egypt-0-mane-salah/
 

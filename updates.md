@@ -1,3 +1,7 @@
+**Oregon quarterback Dante Moore will return for 2026 season**\
+`The 20-year-old from Detroit snubbed the NFL Draft for another season with the Ducks.`\
+https://nytimes.com/athletic/6957387/2026/01/14/oregon-quarterback-dante-moore-returns-school/
+
 **Quebec’s Unpopular Leader to Resign Ahead of Elections**\
 `Premier François Legault became Canada’s most popular provincial leader during the pandemic thanks to his reassuring, avuncular persona. But missteps sank his hopes for a third term.`\
 https://nytimes.com/2026/01/14/world/americas/quebec-leader-resignation.html
