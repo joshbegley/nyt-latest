@@ -19,7 +19,7 @@ https://nytimes.com/2026/01/14/us/politics/federal-court-california-redistrictin
 https://nytimes.com/2026/01/14/world/europe/maccabi-tel-aviv-soccer-ban-uk-police.html
 
 **Despite Trump’s Claims, Grocery Prices Are Rising. Here’s Why.**\
-`Weather, supply, tariffs, labor and changing consumer habits continue to drive up the cost of groceries. Trump falsely claims prices are falling.`\
+`Weather, supply, tariffs, labor and changing consumer habits continue to drive up the cost of groceries. President Trump falsely claims prices are falling.`\
 https://nytimes.com/2026/01/14/business/food-prices-tariffs-trump.html
 
 **Trump Signs Bill Allowing Schools to Serve Whole Milk Again**\

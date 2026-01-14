@@ -1,3 +1,15 @@
+**Marcus Freeman addresses NFL coaching interest in first public comments in weeks**\
+`'Everything I want and everything that I need personally can be achieved right here,' Freeman said.`\
+https://nytimes.com/athletic/6970564/2026/01/14/marcus-freeman-nfl-coach-notre-dame/
+
+**As N.Y.C. Nurses’ Strike Continues, Both Sides Prepare for a Long Fight**\
+`Hospital administrators and union officials appear to be digging in for an extended battle over staffing levels and pay.`\
+https://nytimes.com/2026/01/14/nyregion/nyc-nurses-striking-again-different.html
+
+**U.S. Races to Sell Venezuelan Oil, Transforming Ties With Former Foe**\
+`U.S. officials brokered the sale of hundreds of millions dollars worth of Venezuelan oil to stabilize the country’s economy after capturing its president.`\
+https://nytimes.com/2026/01/14/world/americas/venezuela-oil-us-deal.html
+
 **Federal Judges Uphold California’s New Congressional Maps**\
 `A panel in Los Angeles sided with Gov. Gavin Newsom in a decision that will help Democrats counter Republican gerrymandering in Texas. Republicans are expected to appeal.`\
 https://nytimes.com/2026/01/14/us/politics/federal-court-california-redistricting-decision.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/14/us/politics/sept-11-defendant-decision.html
 **Independents Reach New High as Young Voters Avoid Labels**\
 `New data from Gallup shows overall gains for Democrats even though 45 percent of Americans do not identify with either political party.`\
 https://nytimes.com/2026/01/14/polls/gallup-independent-voters.html
-
-**Submit a question for Pete Sampson's Notre Dame mailbag**\
-`Miami and Indiana will square off for a national title on Monday night, but Notre Dame football already has turned its attention to 2026.`\
-https://nytimes.com/athletic/6971441/2026/01/14/submit-a-question-for-pete-sampsons-notre-dame-mailbag-108/
-
-**How to watch Nets vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6971548/2026/01/14/nets-vs-pelicans-stream-how-to-watch-jan-14/
-
-**How to watch Knicks vs. Kings: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6971545/2026/01/14/knicks-vs-kings-stream-how-to-watch-jan-14/
 

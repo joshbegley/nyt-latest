@@ -1,3 +1,15 @@
+**Marcus Freeman addresses NFL coaching interest in first public comments in weeks**\
+`'Everything I want and everything that I need personally can be achieved right here,' Freeman said.`\
+https://nytimes.com/athletic/6970564/2026/01/14/marcus-freeman-nfl-coach-notre-dame/
+
+**As N.Y.C. Nurses’ Strike Continues, Both Sides Prepare for a Long Fight**\
+`Hospital administrators and union officials appear to be digging in for an extended battle over staffing levels and pay.`\
+https://nytimes.com/2026/01/14/nyregion/nyc-nurses-striking-again-different.html
+
+**U.S. Races to Sell Venezuelan Oil, Transforming Ties With Former Foe**\
+`U.S. officials brokered the sale of hundreds of millions dollars worth of Venezuelan oil to stabilize the country’s economy after capturing its president.`\
+https://nytimes.com/2026/01/14/world/americas/venezuela-oil-us-deal.html
+
 **Federal Judges Uphold California’s New Congressional Maps**\
 `A panel in Los Angeles sided with Gov. Gavin Newsom in a decision that will help Democrats counter Republican gerrymandering in Texas. Republicans are expected to appeal.`\
 https://nytimes.com/2026/01/14/us/politics/federal-court-california-redistricting-decision.html
