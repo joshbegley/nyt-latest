@@ -1,3 +1,7 @@
+**Tensions High as Vance and Rubio Are to Meet Danish and Greenlandic Officials**\
+`Top officials from the United States, Denmark and Greenland will meet at the White House for the first time since President Trump said he wanted to own Greenland.`\
+https://nytimes.com/2026/01/14/world/europe/trump-greenland-rubio-vance-white-house.html
+
 **A Week Without Heat in New York City**\
 `Some renters are constantly left without heat or hot water during the winter, leading them to bundle up in layers of clothing or risk fires by using space heaters.`\
 https://nytimes.com/2026/01/14/nyregion/nyc-heat-season.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/14/learning/word-of-the-day-puerile.html
 **Whether it's LeBron's agent or active NBA players, who is talking on podcasts matters**\
 `Paul recently floated a trade of the Lakers' Austin Reaves for the Grizzlies' Jaren Jackson Jr., sparking reaction from Lakers fans. `\
 https://nytimes.com/athletic/6968030/2026/01/14/nba-podcasts-rich-paul-lebron-james-lakers-trade-suggestion/
-
-**Breaking down Pep Guardiola's VAR rant after six-minute review, what he said and why he said it**\
-`A six-minute review to disallow a Semenyo goal against Newcastle brought an impassioned response from the City manager.`\
-https://nytimes.com/athletic/6968109/2026/01/14/pep-guardiola-semenyo-var/
 
