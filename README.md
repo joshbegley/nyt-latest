@@ -1,3 +1,19 @@
+**Improv Night**\
+`Zaynab Issa’s curried red bean soup with kale riffs on minestrone with heady spices like cumin, coriander and turmeric alongside ground chiles for heat.`\
+https://nytimes.com/2026/01/14/dining/healthy-curried-red-bean-soup-with-kale-and-more-recipes.html
+
+**Suddenly, Alaska Is in Play**\
+`Mary Peltola’s entry into the Alaska Senate race is a building block in an electoral strategy Democrats have been working on for months.`\
+https://nytimes.com/2026/01/14/opinion/politics/alaska-mary-peltola-senate.html
+
+**In Letters to a Friend, Harper Lee Expanded on Her View of the South**\
+`In decades of correspondence, the author gave her friend, JoBeth McDaniel, a mix of opinions, advice on writing and insight into the impact of the Civil Rights movement.`\
+https://nytimes.com/2026/01/14/arts/harper-lee-letters-opinions-civil-rights-movement.html
+
+**For Lung Cancer Patients, Shame Is a Deadly Side Effect**\
+`The disease is the rare cancer met with accusations, not sympathy.`\
+https://nytimes.com/2026/01/14/well/lung-cancer-stigma.html
+
 **St. John's fires men's basketball GM Matt Abdelmassih**\
 `“Look, it's never good to see people go, but in the eyes of the university, it was very warranted, so we move on,” coach Rick Pitino said.`\
 https://nytimes.com/athletic/6970003/2026/01/14/st-johns-basketball-gm-fired/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/14/arts/music/jim-mcbride-dead.html
 **Vikings mailbag: Submit your offseason questions now for reporter Alec Lewis**\
 `The Vikings’ season is over, but the next few months will be absolutely vital to the organization’s future. Send in your questions here!`\
 https://nytimes.com/athletic/6970012/2026/01/14/vikings-postseason-mailbag-alec-lewis/
-
-**U.S. Weighs Expanding Private Companies’ Role in Cyberwarfare**\
-`The proposal raises a host of questions about the legality and practicality of bolstering the involvement of the private sector in offensive cyberoperations.`\
-https://nytimes.com/2026/01/14/us/politics/us-cyberwarfare-private-companies.html
-
-**The Bounce: The most (and least) clutch NBA stars. And did LeBron ruin All-Star Game?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6969887/2026/01/14/clutch-players-nba-lebron-james-sgathe-bounce/
-
-**U.S. Moves Some Personnel From Key Air Base as Tensions Mount With Iran**\
-`Nonessential personnel are being removed from Udeid Air Base in Qatar, the main U.S. air operations hub in the region, as President Trump weighs a military response to Iran’s crackdown on protests.`\
-https://nytimes.com/2026/01/14/us/politics/us-base-qatar-iran.html
-
-**Supreme Court Backs Police Entry Without Warrant in Emergencies**\
-`Montana officials defended the actions of law enforcement officers who did not have a warrant when they responded to a possibly suicidal Army veteran.`\
-https://nytimes.com/2026/01/14/us/politics/supreme-court-montana-warrantless-entry.html
 
