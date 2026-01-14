@@ -1,3 +1,15 @@
+**Renfrew Christie Dies at 76; Sabotaged Racist Regime’s Nuclear Program**\
+`He played a key role in ending apartheid South Africa’s secret weapons program in the 1980s by helping the African National Congress bomb critical facilities.`\
+https://nytimes.com/2026/01/14/world/africa/renfrew-christie-dead.html
+
+**LeBron James, Giannis Antetokounmpo welcome us to the agent empowerment era**\
+`Stars are saying they can't control what their agents say or do. It beggars belief. `\
+https://nytimes.com/athletic/6970393/2026/01/14/lebron-james-giannis-kawhi-agents/
+
+**Forget Trump’s Tariffs. The Real Danger Lies in China’s Trade Surplus.**\
+`China has announced a more than trillion-dollar trade surplus that poses a greater danger to world commerce than Trump’s tariffs.`\
+https://nytimes.com/2026/01/14/opinion/china-trade-deficit-surplus-tariffs.html
+
 **ICE Is Waging War on Blue Cities**\
 `Will the agency’s brutality and capriciousness create blowback?`\
 https://nytimes.com/2026/01/14/opinion/ice-trump-minnesota.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6970249/2026/01/14/ndamukong-suh-mark-ingram-colleg
 **Red Sox to sign Ranger Suárez, pivoting to rotation upgrade after losing Alex Bregman: Sources**\
 `Suárez showed he could thrive with diminished stuff in 2025. He joins a Red Sox rotation that has already upgraded this winter.`\
 https://nytimes.com/athletic/6788432/2026/01/14/mlb-ranger-suarez-free-agency-signing-red-sox/
-
-**Republicans Move to Block Effort to Check Trump’s Power in Venezuela**\
-`G.O.P. leaders are pressuring fellow senators who supported the measure to change their vote on the bill to block President Trump’s military action in Venezuela without Congress’s consent.`\
-https://nytimes.com/2026/01/14/us/politics/trump-venezuela-war-powers-vote.html
-
-**Republicans Advance Stock-Trading Bill With Limited Restrictions**\
-`The bill would allow lawmakers to keep their existing stock and continue to sell it if they provide seven to 14 days of notice. Democrats called it a “gift to insider traders.”`\
-https://nytimes.com/2026/01/14/us/politics/republicans-stock-bill-trading.html
-
-**Scoop City: Mike Tomlin's breaking point, Brian Flores' candidacy**\
-`What made Tomlin special, replacement coaching candidates and a Hall of Fame debate with Mike Sando`\
-https://nytimes.com/athletic/6971062/2026/01/14/mike-tomlin-steelers-brian-flores-coach-2026-scoop-city/
 
