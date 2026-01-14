@@ -1,3 +1,11 @@
+**Why Per Mertesacker is leaving Arsenal and what it means for the academy's future**\
+`The German will depart this summer after 15 years at the club and his exit could mean a tweak to their academy's direction`\
+https://nytimes.com/athletic/6969071/2026/01/14/per-mertesacker-arsenal-academy-future/
+
+**My profession just stuck its foot in its mouth. It's still worth supporting, and defending**\
+`This latest smackdown of the press was, mostly, an own goal, but our job is to try to make sports a little more accessible to more people.`\
+https://nytimes.com/athletic/6966462/2026/01/14/liam-coen-lynn-jones-backlash-journalism/
+
 **Ja Morant on reaction to Grizzlies trade rumors: 'Live with it'**\
 `Asked if he expected to be with the Grizzlies beyond the NBA trade deadline, Morant quipped: “I’m the only one you asked that question to?”`\
 https://nytimes.com/athletic/6969201/2026/01/14/ja-morant-grizzlies-trade-rumors/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6968017/2026/01/14/indiana-wrong-miami-recruiting-s
 **Warriors, Blazers set NBA record as 21 different players hit a 3-pointer**\
 `The mark eclipsed two previous games in which 20 players hit from long range as Golden State blew out Portland.`\
 https://nytimes.com/athletic/6968918/2026/01/14/warriors-blazers-nba-record-3-pointers/
-
-**Man City sign USWNT’s Coffey from Portland Thorns**\
-`The 27-year-old midfielder has signed a three-and-a-half-year deal through to 2029.`\
-https://nytimes.com/athletic/6969079/2026/01/14/sam-coffey-manchester-city-portland-thorns-transfer/
-
-**Lowetide: Why Oilers need to add another forward like Podkolzin or Kapanen**\
-`One problem that hasn't been solved surrounds the Oilers' ability to match a rugged opponent's offsetting style.`\
-https://nytimes.com/athletic/6966071/2026/01/14/oilers-forwards-trades-vasily-podkolzin-kasperi-kapanen/
 
