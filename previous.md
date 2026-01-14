@@ -1,3 +1,27 @@
+**Denmark Reinforces Its Military Presence in Greenland**\
+`The Danes say the deployment of aircraft, ships and soldiers is part of an ongoing effort to better protect the island and the Arctic.`\
+https://nytimes.com/2026/01/14/us/politics/greenland-denmark-military.html
+
+**Toby Kiers, World Champion of Fungus**\
+`This year’s recipient of the Tyler Prize for Environmental Achievement talks about “punk science,” microbial economics and thinking like a mycorrhizal fungus.`\
+https://nytimes.com/2026/01/14/science/toby-kiers-fungus-tyler-prize.html
+
+**How to watch Cavaliers vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6970137/2026/01/14/cavaliers-vs-76ers-stream-how-to-watch-jan-14/
+
+**How to watch Raptors vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6970135/2026/01/14/raptors-vs-pacers-stream-how-to-watch-jan-14/
+
+**How to watch Kraken vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6970133/2026/01/14/kraken-vs-devils-stream-how-to-watch-jan-14/
+
+**Iran Prepares to Execute a Protester as Trump Threatens ‘Strong Action’**\
+`Rights groups and relatives said Iran planned to put an antigovernment protester to death for the first time during the latest wave of unrest in the country.`\
+https://nytimes.com/2026/01/14/world/middleeast/iran-protests-soltani-execution-trump.html
+
 **George Saunders on People, Kindness and Evil**\
 `In 2013, the author George Saunders gave a speech extolling the importance of kindness that went viral and became a best-selling book. He returned to questions about kindness and human behavior on “The Interview.”`\
 https://nytimes.com/video/podcasts/100000010641709/george-saunders-on-people-kindness-and-evil.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6970110/2026/01/14/ole-miss-vs-georgia-stream-how-t
 **How to watch TCU vs. West Virginia women's basketball: Time, TV, streaming**\
 `Find out how to watch the TCU Horned Frogs play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6970108/2026/01/14/tcu-vs-west-virginia-stream-how-to-watch-jan-14/
-
-**How to watch Penn State vs. Ohio State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Penn State Lady Lions play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6970104/2026/01/14/penn-state-vs-ohio-state-stream-how-to-watch-jan-14/
-
-**How to watch Iowa vs. Purdue men's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa Hawkeyes play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6970101/2026/01/14/iowa-vs-purdue-stream-how-to-watch-jan-14/
-
-**How and why Tottenham hijacked Aston Villa's move for Conor Gallagher**\
-`Johan Lange moved fast to seal a deal, with Thomas Frank also making a crucial call`\
-https://nytimes.com/athletic/6963304/2026/01/14/how-and-why-tottenham-hijacked-aston-villas-move-for-conor-gallagher/
-
-**Spurs sign Gallagher from Atletico**\
-`Tottenham announced his arrival on Wednesday on a "long-term" deal.`\
-https://nytimes.com/athletic/6966460/2026/01/14/tottenham-conor-gallagher-atletico-transfer/
-
-**Improv Night**\
-`Zaynab Issa’s curried red bean soup with kale riffs on minestrone with heady spices like cumin, coriander and turmeric alongside ground chiles for heat.`\
-https://nytimes.com/2026/01/14/dining/healthy-curried-red-bean-soup-with-kale-and-more-recipes.html
-
-**Suddenly, Alaska Is in Play**\
-`Mary Peltola’s entry into the Alaska Senate race is a building block in an electoral strategy Democrats have been working on for months.`\
-https://nytimes.com/2026/01/14/opinion/politics/alaska-mary-peltola-senate.html
 
