@@ -1,3 +1,11 @@
+**A preview of The Athletic’s live coverage this week**\
+`The Athletic's live coverage this week includes the divisional round of the NFL playoffs and the final of AFCON.`\
+https://nytimes.com/athletic/6968889/2026/01/14/nfl-playoffs-afcon-final/
+
+**Newcastle have lost 11 in 11 at the Etihad – is a comeback there Howe's 'biggest challenge'?**\
+`After defeat in the Carabao Cup semi-final first leg against City, they will need a result at the Etihad - but history is against them.`\
+https://nytimes.com/athletic/6968500/2026/01/14/newcastle-man-city-carabao/
+
 **Newcastle have lost 11 in 11 at the Etihad - is a comeback there Howe's 'biggest challenge'?**\
 `After defeat in the Carabao Cup semi-final first leg against City, they will need a result at the Etihad - but history is against them.`\
 https://nytimes.com/athletic/6968500/2026/01/14/newcastle-man-city-carabao/

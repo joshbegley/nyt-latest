@@ -1,4 +1,8 @@
-**Newcastle have lost 11 in 11 at the Etihad - is a comeback there Howe's 'biggest challenge'?**\
+**A preview of The Athletic’s live coverage this week**\
+`The Athletic's live coverage this week includes the divisional round of the NFL playoffs and the final of AFCON.`\
+https://nytimes.com/athletic/6968889/2026/01/14/nfl-playoffs-afcon-final/
+
+**Newcastle have lost 11 in 11 at the Etihad – is a comeback there Howe's 'biggest challenge'?**\
 `After defeat in the Carabao Cup semi-final first leg against City, they will need a result at the Etihad - but history is against them.`\
 https://nytimes.com/athletic/6968500/2026/01/14/newcastle-man-city-carabao/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/14/style/saks-neiman-marcus-bergdorf-goodman-bankrup
 **Saks Files for Bankruptcy as Department Stores Fight for Survival**\
 `The parent company of Saks, Neiman Marcus and Bergdorf Goodman struggled with debt, designers and customers in recent years.`\
 https://nytimes.com/2026/01/14/business/saks-files-for-bankruptcy.html
-
-**Ty Simpson stays committed to NFL Draft despite 7-figure transfer offers**\
-`Webb declined to get into specifics but said that Simpson cherished playing at Alabama and didn't want to play elsewhere.`\
-https://nytimes.com/athletic/6968667/2026/01/14/ty-simpson-alabama-nil-nfl-draft-2026/
 
