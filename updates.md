@@ -1,3 +1,7 @@
+**Breaking down Pep Guardiola's VAR rant after six-minute review, what he said and why he said it**\
+`A six-minute review to disallow a Semenyo goal against Newcastle brought an impassioned response from the City manager.`\
+https://nytimes.com/athletic/6968109/2026/01/14/pep-guardiola-semenyo-var/
+
 **The New York Times in Print for Wednesday, Jan. 14, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/14/todays-new-york-times
