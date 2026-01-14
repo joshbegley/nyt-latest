@@ -1,4 +1,8 @@
-**Tensions High as Vance and Rubio Are to Meet Danish and Greenlandic Officials**\
+**Telling the Stories of a House Full of Secrets**\
+`Mascha Schilinski’s movie “Sound of Falling,” which takes place over a century in a rural farmhouse, shows how trauma is transmitted through generations.`\
+https://nytimes.com/2026/01/14/movies/sound-of-falling-mascha-schilinski.html
+
+**Tensions Are High as Vance and Rubio Prepare to Meet Danish and Greenlandic Officials**\
 `Top officials from the United States, Denmark and Greenland will meet at the White House for the first time since President Trump said he wanted to own Greenland.`\
 https://nytimes.com/2026/01/14/world/europe/trump-greenland-rubio-vance-white-house.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6968500/2026/01/14/newcastle-man-city-carabao/
 **Word of the Day: puerile**\
 `This word has appeared in 27 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/14/learning/word-of-the-day-puerile.html
-
-**Whether it's LeBron's agent or active NBA players, who is talking on podcasts matters**\
-`Paul recently floated a trade of the Lakers' Austin Reaves for the Grizzlies' Jaren Jackson Jr., sparking reaction from Lakers fans. `\
-https://nytimes.com/athletic/6968030/2026/01/14/nba-podcasts-rich-paul-lebron-james-lakers-trade-suggestion/
 

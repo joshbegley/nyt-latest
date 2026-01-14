@@ -1,3 +1,11 @@
+**Telling the Stories of a House Full of Secrets**\
+`Mascha Schilinski’s movie “Sound of Falling,” which takes place over a century in a rural farmhouse, shows how trauma is transmitted through generations.`\
+https://nytimes.com/2026/01/14/movies/sound-of-falling-mascha-schilinski.html
+
+**Tensions Are High as Vance and Rubio Prepare to Meet Danish and Greenlandic Officials**\
+`Top officials from the United States, Denmark and Greenland will meet at the White House for the first time since President Trump said he wanted to own Greenland.`\
+https://nytimes.com/2026/01/14/world/europe/trump-greenland-rubio-vance-white-house.html
+
 **Tensions High as Vance and Rubio Are to Meet Danish and Greenlandic Officials**\
 `Top officials from the United States, Denmark and Greenland will meet at the White House for the first time since President Trump said he wanted to own Greenland.`\
 https://nytimes.com/2026/01/14/world/europe/trump-greenland-rubio-vance-white-house.html
