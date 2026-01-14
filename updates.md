@@ -1,3 +1,7 @@
+**Rosenthal: Mets' pursuit of Tucker raises questions about defense, plus more MLB offseason notes**\
+`What's next for the Red Sox? Plus a breakdown of the ramifications of the Nolan Arenado deal. `\
+https://nytimes.com/athletic/6968660/2026/01/14/kyle-tucker-mets-red-sox-diamondbacks-arenado/
+
 **After accident, Angels' Rio Foster fights for his old life, family hopes for help from team**\
 `The day began with the Angels prospect being named his league's player of the month. By the next morning, his career was effectively over. `\
 https://nytimes.com/athletic/6967885/2026/01/14/angels-prospect-rio-foster-car-accident-recovery/
