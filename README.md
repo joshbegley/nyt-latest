@@ -1,3 +1,7 @@
+**Ja Morant on reaction to Grizzlies trade rumors: 'Live with it'**\
+`Asked if he expected to be with the Grizzlies beyond the NBA trade deadline, Morant quipped: “I’m the only one you asked that question to?”`\
+https://nytimes.com/athletic/6969201/2026/01/14/ja-morant-grizzlies-trade-rumors/
+
 **Want Your MTV? A Rogue Site Is Bringing Back the Videos.**\
 `The unofficial website MTV Rewind has recreated the channel’s classic era, pulling in thousands of clips. Its developer says it’s an antidote to the algorithms.`\
 https://nytimes.com/2026/01/14/arts/music/mtv-rewind-video-database.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6969079/2026/01/14/sam-coffey-manchester-city-portl
 **Lowetide: Why Oilers need to add another forward like Podkolzin or Kapanen**\
 `One problem that hasn't been solved surrounds the Oilers' ability to match a rugged opponent's offsetting style.`\
 https://nytimes.com/athletic/6966071/2026/01/14/oilers-forwards-trades-vasily-podkolzin-kasperi-kapanen/
-
-**A Top Fed Official Says the Trump Administration’s Threats Are ‘About Monetary Policy’**\
-`Neel T. Kashkari, president of the Federal Reserve Bank of Minneapolis, defended Jerome H. Powell, the Fed chair, in an interview. He also said interest rates should be held steady this month.`\
-https://nytimes.com/2026/01/14/us/politics/kashkari-fed-interest-rates.html
 
