@@ -1,3 +1,7 @@
+**Kansas dominates unbeaten No. 2 Iowa State**\
+`The Jayhawks are now 13-2 against top 5 under Bill Self at Allen Fieldhouse. `\
+https://nytimes.com/athletic/6968565/2026/01/13/kansas-win-iowa-state-darryn-peterson/
+
 **Yankees bet on Ryan Weathers' upside, their development chops in trade with Marlins**\
 `The Marlins got four players back in exchange for Weathers, a package that is more quantity over quality.`\
 https://nytimes.com/athletic/6968614/2026/01/13/ryan-weathers-yankees-marlins-trade-analysis/
@@ -10,8 +14,8 @@ https://nytimes.com/athletic/6968574/2026/01/13/ofner-celebration-basavareddy-au
 `China banned the burning of coal for heat around Beijing, but natural gas subsidies have run out, leaving many villagers vulnerable in dangerously cold weather.`\
 https://nytimes.com/2026/01/13/world/asia/china-coal-ban-air-pollution-heating.html
 
-**China Announces Record Trade Surplus as Its Exports Flood World’s Markets**\
-`China’s surplus reached $1.19 trillion, a 20 percent increase from 2024, according to data released by the country’s General Administration of Customs.`\
+**China Announces Record Trade Surplus as Its Exports Flood World Markets**\
+`China’s surplus reached $1.19 trillion last year, a 20 percent increase from 2024, as Beijing kept the currency weak and pursued self-reliance to replace imports.`\
 https://nytimes.com/2026/01/13/business/china-trade-surplus-exports.html
 
 **Clashes With Federal Agents in Minneapolis Escalate**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/13/nyregion/mamdani-taxi-commissioner-valdivia.html
 **Historic Stretch**\
 `Joseph Gangi comes out on top.`\
 https://nytimes.com/2026/01/13/crosswords/daily-puzzle-2026-1-14.html
-
-**Venezuela Frees Several Americans From Prison, U.S. Says**\
-`They were the first U.S. citizens released after the U.S. military captured Nicolás Maduro and flew him to the United States to stand trial on drug and other charges.`\
-https://nytimes.com/2026/01/13/world/americas/venezuela-us-prisoner-freed.html
 
