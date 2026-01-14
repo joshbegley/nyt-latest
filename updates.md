@@ -1,3 +1,7 @@
+**Venezuela Frees Several Americans From Prison, U.S. Says**\
+`They were the first U.S. citizens released after the U.S. military captured Nicolás Maduro and flew him to the United States to stand trial on drug and other charges.`\
+https://nytimes.com/2026/01/13/world/americas/venezuela-us-prisoner-freed.html
+
 **Kiefer Sutherland Is Arrested After Assaulting Ride-Share Driver, Police Say**\
 `The actor also made “criminal threats” toward the driver, according to the Los Angeles police.`\
 https://nytimes.com/2026/01/13/arts/television/kiefer-sutherland-arrest-assault.html

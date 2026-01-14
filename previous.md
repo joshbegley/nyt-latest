@@ -1,3 +1,7 @@
+**Venezuela Frees Several Americans From Prison, U.S. Says**\
+`They were the first U.S. citizens released after the U.S. military captured Nicolás Maduro and flew him to the United States to stand trial on drug and other charges.`\
+https://nytimes.com/2026/01/13/world/americas/venezuela-us-prisoner-freed.html
+
 **Kiefer Sutherland Is Arrested After Assaulting Ride-Share Driver, Police Say**\
 `The actor also made “criminal threats” toward the driver, according to the Los Angeles police.`\
 https://nytimes.com/2026/01/13/arts/television/kiefer-sutherland-arrest-assault.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010643429/iranians-deserve-new-leadershi
 **Cowboys rookie DE Donovan Ezeiruaku arrested on reckless driving charge**\
 `Ezeiruaku, who was released after posting a $500 bond, was a second-round selection by Dallas in the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6968273/2026/01/13/dallas-cowboys-donovan-ezeiruaku-arrested-reckless-driving-charge/
-
-**Yankees trade with Marlins for Ryan Weathers to bolster rotation**\
-`The Yankees send four prospects to Miami for Weathers, 26, but don't expect it to stop their search for a higher-level starting pitcher.`\
-https://nytimes.com/athletic/6968239/2026/01/13/yankees-marlins-trade-ryan-weathers/
 
