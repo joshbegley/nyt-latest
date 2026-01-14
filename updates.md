@@ -1,3 +1,7 @@
+**Supreme Court Backs Police Entry Without Warrant in Emergencies**\
+`Montana officials defended the actions of law enforcement officers who did not have a warrant when they responded to a possibly suicidal Army veteran.`\
+https://nytimes.com/2026/01/14/us/politics/supreme-court-montana-warrantless-entry.html
+
 **UK Home secretary says no confidence in police chief after Maccabi fan ban at Villa**\
 `Maccabi Tel Aviv fans did not attend the Europa League fixture against Aston Villa on November 6 following a West Midlands Police request.`\
 https://nytimes.com/athletic/6969557/2026/01/14/maccabi-tel-aviv-aston-villa-police-home-secretary/

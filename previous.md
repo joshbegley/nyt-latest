@@ -1,3 +1,7 @@
+**Supreme Court Backs Police Entry Without Warrant in Emergencies**\
+`Montana officials defended the actions of law enforcement officers who did not have a warrant when they responded to a possibly suicidal Army veteran.`\
+https://nytimes.com/2026/01/14/us/politics/supreme-court-montana-warrantless-entry.html
+
 **NFL second-round confidence picks: Chicago can upset Los Angeles**\
 `KC Joyner gives his straight-up and against-the-spread picks for the second round of the NFL playoffs.`\
 https://nytimes.com/athletic/6968910/2026/01/14/nfl-divisional-round-confidence-picks-bears-rams/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/14/business/britain-wind-farms.html
 **Why Greenland Matters for a Warming World**\
 `The fate of the world’s largest island has outsize importance for billions of people on the planet, because as the climate warms, Greenland is losing ice. That has consequences.`\
 https://nytimes.com/2026/01/14/world/europe/greenland-climate.html
-
-**Live Q&A: Patriots playoff talk with reporter Chad Graff at 11 a.m. ET on Thursday**\
-`Patriots reporter Chad Graff will be here to answer your questions about next Sunday's game — and anything else — at 11 a.m. ET on Thursday.`\
-https://nytimes.com/athletic/6966067/2026/01/14/live-qa-patriots-nfl-playoffs-chad-graff/
 
