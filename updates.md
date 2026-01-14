@@ -1,3 +1,7 @@
+**Kiefer Sutherland Is Arrested After Assaulting Ride-Share Driver, Police Say**\
+`The actor also made “criminal threats” toward the driver, according to the Los Angeles police.`\
+https://nytimes.com/2026/01/13/arts/television/kiefer-sutherland-arrest-assault.html
+
 **Trump Makes Obscene Gesture at Heckler in Ford Factory Tour**\
 `A White House spokesman said the president “gave an appropriate and unambiguous response.”`\
 https://nytimes.com/2026/01/13/us/politics/trump-heckler-middle-finger.html
