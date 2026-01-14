@@ -1,3 +1,7 @@
+**Scoop City: Mike Tomlin's breaking point, Brian Flores' candidacy**\
+`What made Tomlin special, replacement coaching candidates and a Hall of Fame debate with Mike Sando`\
+https://nytimes.com/athletic/6971062/2026/01/14/mike-tomlin-steelers-brian-flores-coach-2026-scoop-city/
+
 **NASA to Begin Space Station Medical Evacuation: How to Watch**\
 `Four astronauts are leaving the outpost about a month earlier than scheduled because a crew member, who was not identified, has an undisclosed medical issue.`\
 https://nytimes.com/2026/01/14/science/nasa-astronauts-iss-return.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6970592/2026/01/14/adam-thielen-retirement-vikings-
 **Padres hire Bud Black and Wil Myers, reuniting with a pair of familiar faces**\
 `Black and Myers briefly overlapped with the Padres in 2015; they return to the organization in baseball operations roles.`\
 https://nytimes.com/athletic/6970794/2026/01/14/padres-bud-black-wil-myers-baseball-operations-hires/
-
-**Alexandre Texier, Canadiens agree to 2-year contract extension**\
-`Since arriving in Montreal, Texier has played well, recording seven goals and 16 points in 25 games.`\
-https://nytimes.com/athletic/6970544/2026/01/14/canadiens-alexandre-texier-contract-extension/
 
