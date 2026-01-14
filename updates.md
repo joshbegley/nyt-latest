@@ -1,3 +1,23 @@
+**Renfrew Christie Dies at 76; Sabotaged Racist Regime’s Nuclear Program**\
+`He played a key role in ending apartheid South Africa’s secret weapons program in the 1980s by helping the African National Congress bomb critical facilities.`\
+https://nytimes.com/2026/01/14/world/africa/renfrew-christie-dead.html
+
+**LeBron James, Giannis Antetokounmpo welcome us to the agent empowerment era**\
+`Stars are saying they can't control what their agents say or do. It beggars belief. `\
+https://nytimes.com/athletic/6970393/2026/01/14/lebron-james-giannis-kawhi-agents/
+
+**Forget Trump’s Tariffs. The Real Danger Lies in China’s Trade Surplus.**\
+`China has announced a more than trillion-dollar trade surplus that poses a greater danger to world commerce than Trump’s tariffs.`\
+https://nytimes.com/2026/01/14/opinion/china-trade-deficit-surplus-tariffs.html
+
+**ICE Is Waging War on Blue Cities**\
+`Will the agency’s brutality and capriciousness create blowback?`\
+https://nytimes.com/2026/01/14/opinion/ice-trump-minnesota.html
+
+**Aina returns to Forest's Europa League squad, Zinchenko drops out**\
+`Aina had been named in the initial squad in the summer, until he suffered a serious hamstring injury, but he has returned to fitness.`\
+https://nytimes.com/athletic/6971306/2026/01/14/nottingham-forest-squad-europa-league-aina-zinchenko/
+
 **Aina returns to Forest's Europa League squad, Zinchenko drops out**\
 `Aina had been named in the initial squad in the summer, until he suffered a serious hamstring injury, but he has now returned to fitness.`\
 https://nytimes.com/athletic/6971306/2026/01/14/nottingham-forest-squad-europa-league-aina-zinchenko/

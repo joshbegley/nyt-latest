@@ -1,3 +1,7 @@
+**Hornets set to retire Dell Curry's jersey: 'This is the highest honor'**\
+`Charlotte wrapped its arms around Curry, and now his jersey will hang in the rafters forever.`\
+https://nytimes.com/athletic/6971047/2026/01/14/dell-curry-nba-hornets-retirement/
+
 **Renfrew Christie Dies at 76; Sabotaged Racist Regime’s Nuclear Program**\
 `He played a key role in ending apartheid South Africa’s secret weapons program in the 1980s by helping the African National Congress bomb critical facilities.`\
 https://nytimes.com/2026/01/14/world/africa/renfrew-christie-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/14/technology/grok-ai-x-investigation-california.htm
 **Ndamukong Suh, Mark Ingram among Class of 2026 College Football Hall of Fame inductees**\
 `The 22-man class features 10 former first-team All-Americans and four multi-year first-team All-Americans.`\
 https://nytimes.com/athletic/6970249/2026/01/14/ndamukong-suh-mark-ingram-college-hall-of-fame/
-
-**Red Sox to sign Ranger Suárez, pivoting to rotation upgrade after losing Alex Bregman: Sources**\
-`Suárez showed he could thrive with diminished stuff in 2025. He joins a Red Sox rotation that has already upgraded this winter.`\
-https://nytimes.com/athletic/6788432/2026/01/14/mlb-ranger-suarez-free-agency-signing-red-sox/
 
