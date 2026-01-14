@@ -1,3 +1,19 @@
+**George Saunders on People, Kindness and Evil**\
+`In 2013, the author George Saunders gave a speech extolling the importance of kindness that went viral and became a best-selling book. He returned to questions about kindness and human behavior on “The Interview.”`\
+https://nytimes.com/video/podcasts/100000010641709/george-saunders-on-people-kindness-and-evil.html
+
+**Why George Saunders Is Not Worried About Death**\
+`“Vigil,” the latest novel by George Saunders, follows an oil tycoon on his deathbed. On “The Interview,” Mr. Saunders discussed how death can bring clarity to life.`\
+https://nytimes.com/video/podcasts/100000010641707/why-george-saunders-is-not-worried-about-death.html
+
+**How to watch Ole Miss vs. Georgia men's basketball: Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Georgia Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6970110/2026/01/14/ole-miss-vs-georgia-stream-how-to-watch-jan-14/
+
+**How to watch TCU vs. West Virginia women's basketball: Time, TV, streaming**\
+`Find out how to watch the TCU Horned Frogs play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6970108/2026/01/14/tcu-vs-west-virginia-stream-how-to-watch-jan-14/
+
 **How to watch Penn State vs. Ohio State women's basketball: Time, TV, streaming**\
 `Find out how to watch the Penn State Lady Lions play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6970104/2026/01/14/penn-state-vs-ohio-state-stream-how-to-watch-jan-14/
