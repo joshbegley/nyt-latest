@@ -1,3 +1,7 @@
+**Can the ICE Agent Who Shot Renee Good Be Prosecuted?**\
+`The Trump administration is unlikely to bring a federal case, and any criminal case would face high hurdles. But charges are not out of the question.`\
+https://nytimes.com/2026/01/14/us/renee-good-ice-shooting-prosecution.html
+
 **Where’s the Gym? Oh, Through That Tube Over There**\
 `A new kind of tap-in, tap-out system at gyms has some New Yorkers flustered.`\
 https://nytimes.com/2026/01/14/business/puregym-exits-fire-department.html
@@ -21,8 +25,4 @@ https://nytimes.com/2026/01/14/arts/music/rebecca-kilgore-dead.html
 **Collectors lays out plans for PSA, SGC and Beckett following recent controversies**\
 `Collectors grading business unit president Ryan Hoge lays out some of what's to come for all three affiliated grading brands.`\
 https://nytimes.com/athletic/6970111/2026/01/14/psa-sgc-beckett-collectors-grading/
-
-**Before Curt Cignetti and Indiana, what were the best turnaround stories in sports history?**\
-`Indiana football's dramatic turnaround is reminiscent of several other notable teams in sports history.`\
-https://nytimes.com/athletic/6964057/2026/01/14/indiana-football-curt-cignetti-best-sports-turnaround-stories/
 
