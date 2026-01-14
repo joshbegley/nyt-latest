@@ -1,3 +1,11 @@
+**ICE Arrested Dozens of Refugees in Minnesota and Sent Them to Texas, Lawyers Say**\
+`The refugees, many of them from Somalia, had passed security screenings before coming to the United States. The Trump administration has vowed to “re-examine thousands of refugee cases.”`\
+https://nytimes.com/2026/01/13/us/ice-arrests-refugees-minnesota.html
+
+**Starlink Users in Iran Get Free Internet Access, Nonprofit Says**\
+`Under a near-total communications blackout, users of Elon Musk’s satellite service have gotten online without paying, an organization that works on web access said.`\
+https://nytimes.com/2026/01/13/technology/iran-starlink-elon-musk.html
+
 **Smithsonian Turns Over More Records in the Face of a Trump Deadline**\
 `The institution, which is viewed as independent, has sought to reduce tensions with the White House by complying with some of its demands for documents.`\
 https://nytimes.com/2026/01/13/arts/design/smithsonian-more-records-trump-deadline.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6967800/2026/01/13/who-is-young-eagles-fan-sam-salv
 **Guardiola critcises officiating after six-minute VAR check during Man City victory**\
 `In a lengthy rant, Guardiola criticised the long VAR check and referenced refereeing decisions that had previously gone against his team.`\
 https://nytimes.com/athletic/6967918/2026/01/13/pep-guardiola-rant-var-refereeing-man-city-newcastle/
-
-**Louisiana Indicts Another Out-of-State Doctor Over Abortion Pills**\
-`The indictment, followed by a request to extradite the doctor from California, is an escalation of Louisiana’s efforts to counter states that support providing abortions.`\
-https://nytimes.com/2026/01/13/us/louisiana-abortion-pills-california-indictment.html
-
-**Packers-Bears is most-streamed game in NFL history**\
-`The 49ers-Eagles game had 41 million viewers, the most of any game this weekend.`\
-https://nytimes.com/athletic/6967824/2026/01/13/packers-bears-most-streamed-game-nfl-history-eagles-49ers-41-million-viewers/
 
