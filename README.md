@@ -1,5 +1,5 @@
 **Yankees trade with Marlins for Ryan Weathers to bolster rotation: Sources**\
-`The Yankees bolstered their rotation depth with the addition of Weathers, 26, who has logged 281 innings in the majors since 2021. `\
+`The Yankees send four prospects to Miami for Weathers, 26, who has logged 281 innings in the majors since 2021. `\
 https://nytimes.com/athletic/6968239/2026/01/13/yankees-marlins-trade-ryan-weathers/
 
 **ICE Arrested Dozens of Refugees in Minnesota and Sent Them to Texas, Lawyers Say**\
