@@ -1,3 +1,7 @@
+**Travis Hunter will continue playing offense, defense once recovered from injury**\
+`“Very fair to say that his rehab process is going as expected. He’s hitting it hard,” Jaguars GM James Gladstone said Monday.`\
+https://nytimes.com/athletic/6970239/2026/01/14/travis-hunter-jaguars-offense-defense-injury/
+
 **Supreme Court Sides With Conservative Congressman in Illinois Election Rules Challenge**\
 `The question in the case was not a mail-in ballot rule itself but whether political candidates have the right to challenge the rules governing the vote count in their election.`\
 https://nytimes.com/2026/01/14/us/politics/supreme-court-illinois-mail-ballot-rules.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6970137/2026/01/14/cavaliers-vs-76ers-stream-how-to
 **How to watch Raptors vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6970135/2026/01/14/raptors-vs-pacers-stream-how-to-watch-jan-14/
-
-**How to watch Kraken vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6970133/2026/01/14/kraken-vs-devils-stream-how-to-watch-jan-14/
 
