@@ -1,3 +1,7 @@
+**In crushing No. 2 Iowa State, Kansas finally begins to look like team Bill Self envisioned**\
+`“I was in a better mood coaching tonight,” Self said, “because I thought the guys tried so hard."`\
+https://nytimes.com/athletic/6968921/2026/01/14/kansas-iowa-state-score-result-darryn-peterson-bill-self/
+
 **Britain Awards Wind Farm Contracts That Will Power 12 Million Homes**\
 `The British government provided guaranteed electricity prices to a group of wind farm developers in what it says is an effort to bring down power costs for consumers.`\
 https://nytimes.com/2026/01/14/business/britain-wind-farms.html
