@@ -1,3 +1,19 @@
+**Tiny Love Stories: ‘I’m 23. He’s 40.’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/01/14/style/tiny-modern-love-stories-im-23-hes-40.html
+
+**On Language**\
+``\
+https://nytimes.com/column/on-language
+
+**Ford executives hit back at Cadillac's F1 jabs: 'They're not running a Cadillac engine'**\
+`Bill Ford says GM's marketing ploy critique of Ford and Red Bull is "patently absurd" given Cadillac runs Ferrari power in F1`\
+https://nytimes.com/athletic/6970424/2026/01/14/f1-ford-gm-cadillac-team-marketing-ploy/
+
+**Trump Administration to Halt Immigrant Visa Processing for 75 Countries**\
+`Federal officials said the move was meant to discourage immigration by people who they deemed likely to rely on public benefits.`\
+https://nytimes.com/2026/01/14/us/politics/trump-suspends-visa-75-countries.html
+
 **Why Banks Are So Worried About a 10% Credit Card Rate Cap**\
 `President Trump revived a campaign promise to cap interest rates, but it is unclear how he would make that a reality.`\
 https://nytimes.com/2026/01/14/business/trump-credit-card-interest-rate-cap-banks.html

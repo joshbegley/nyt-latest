@@ -1,3 +1,19 @@
+**Tiny Love Stories: ‘I’m 23. He’s 40.’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/01/14/style/tiny-modern-love-stories-im-23-hes-40.html
+
+**On Language**\
+``\
+https://nytimes.com/column/on-language
+
+**Ford executives hit back at Cadillac's F1 jabs: 'They're not running a Cadillac engine'**\
+`Bill Ford says GM's marketing ploy critique of Ford and Red Bull is "patently absurd" given Cadillac runs Ferrari power in F1`\
+https://nytimes.com/athletic/6970424/2026/01/14/f1-ford-gm-cadillac-team-marketing-ploy/
+
+**Trump Administration to Halt Immigrant Visa Processing for 75 Countries**\
+`Federal officials said the move was meant to discourage immigration by people who they deemed likely to rely on public benefits.`\
+https://nytimes.com/2026/01/14/us/politics/trump-suspends-visa-75-countries.html
+
 **Why Banks Are So Worried About a 10% Credit Card Rate Cap**\
 `President Trump revived a campaign promise to cap interest rates, but it is unclear how he would make that a reality.`\
 https://nytimes.com/2026/01/14/business/trump-credit-card-interest-rate-cap-banks.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/14/world/americas/venezuela-oil-us-deal.html
 **Federal Judges Uphold California’s New Congressional Maps**\
 `A panel in Los Angeles sided with Gov. Gavin Newsom in a decision that will help Democrats counter Republican gerrymandering in Texas. Republicans are expected to appeal.`\
 https://nytimes.com/2026/01/14/us/politics/federal-court-california-redistricting-decision.html
-
-**U.K. Home Secretary Presses Police Chief to Resign Over Israeli Soccer Fan Ban**\
-`An independent report said Wednesday that the West Midlands Police overstated the threat posed by Maccabi Tel Aviv supporters before a match last year in Birmingham.`\
-https://nytimes.com/2026/01/14/world/europe/maccabi-tel-aviv-soccer-ban-uk-police.html
-
-**Despite Trump’s Claims, Grocery Prices Are Rising. Here’s Why.**\
-`Weather, supply, tariffs, labor and changing consumer habits continue to drive up the cost of groceries. President Trump falsely claims prices are falling.`\
-https://nytimes.com/2026/01/14/business/food-prices-tariffs-trump.html
-
-**Trump Signs Bill Allowing Schools to Serve Whole Milk Again**\
-`The law, which was approved unanimously by Congress late last year, also gives schools more flexibility in serving nondairy milks.`\
-https://nytimes.com/2026/01/14/us/trump-whole-milk-schools-bill.html
-
-**Steelers owner says Mike Tomlin not expected to coach again 'in the near future'**\
-`Plus, other takeaways from Art Rooney II's Wednesday news conference.`\
-https://nytimes.com/athletic/6971435/2026/01/14/mike-tomlin-not-expected-to-coach-near-future-art-rooney/
 
