@@ -1,3 +1,7 @@
+**LeBron James nearly has triple-double in second game of back-to-back**\
+`The 41-year-old James played in his first back-to-back of the season on Tuesday in a win over the Hawks.`\
+https://nytimes.com/athletic/6968777/2026/01/14/lebron-james-lakers-back-to-back-nba/
+
 **The Swedish Start-Up Aiming to Conquer America’s Full-Body-Scan Craze**\
 `Neko Health, backed by the Spotify founder Daniel Ek, plans to open in New York this spring.`\
 https://nytimes.com/2026/01/14/business/neko-health-expansion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6967550/2026/01/14/maple-leafs-bobby-mcmann-contrac
 **Why Real Madrid would be the worst possible fit for Jurgen Klopp**\
 `It’s hard to imagine a task he would find less invigorating. Mainz, Dortmund, Liverpool... Madrid? It's a sequence without a common thread`\
 https://nytimes.com/athletic/6967375/2026/01/14/jurgen-klopp-real-madrid-column/
-
-**Scouting AJ Dybantsa: What I liked — and didn't like — in person from potential top pick**\
-`In a rivalry matchup against Utah, the 18-year-old showed why he has pro scouts salivating.`\
-https://nytimes.com/athletic/6966548/2026/01/14/scouting-aj-dybantsa-byu-nba-draft/
 
