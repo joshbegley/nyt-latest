@@ -1,3 +1,11 @@
+**Congress Is Spurning Many of Trump’s Proposed Spending Cuts**\
+`Months after the partisan clash that led to the longest shutdown in history, lawmakers have agreed on spending bills that look far different from what the president wanted.`\
+https://nytimes.com/2026/01/14/us/politics/congress-trump-spending-cuts.html
+
+**Kaiser Permanente Settles Medicare Fraud Claims for $556 Million**\
+`The Justice Department and whistle-blowers accused the major health insurer of overbilling the government for about $1 billion under the private plans.`\
+https://nytimes.com/2026/01/14/health/medicare-advantage-kaiser-overbilling-fraud.html
+
 **FanDuel Sports Network makes 3-year offers to MLB teams, but company must be sold**\
 `If it isn't sold, Main Street has told partner teams it plans to wind down FanDuel Sports Network operations after the NBA and NHL seasons.`\
 https://nytimes.com/athletic/6971636/2026/01/14/fanduel-sports-network-washington-nationals-broadcasts-mlb-nhl-nba/

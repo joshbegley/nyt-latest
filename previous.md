@@ -1,3 +1,11 @@
+**Congress Is Spurning Many of Trump’s Proposed Spending Cuts**\
+`Months after the partisan clash that led to the longest shutdown in history, lawmakers have agreed on spending bills that look far different from what the president wanted.`\
+https://nytimes.com/2026/01/14/us/politics/congress-trump-spending-cuts.html
+
+**Kaiser Permanente Settles Medicare Fraud Claims for $556 Million**\
+`The Justice Department and whistle-blowers accused the major health insurer of overbilling the government for about $1 billion under the private plans.`\
+https://nytimes.com/2026/01/14/health/medicare-advantage-kaiser-overbilling-fraud.html
+
 **FanDuel Sports Network makes 3-year offers to MLB teams, but company must be sold**\
 `If it isn't sold, Main Street has told partner teams it plans to wind down FanDuel Sports Network operations after the NBA and NHL seasons.`\
 https://nytimes.com/athletic/6971636/2026/01/14/fanduel-sports-network-washington-nationals-broadcasts-mlb-nhl-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/14/technology/openai-cerebras-chips-deal.html
 **Is Whole Milk Healthier for Kids?**\
 `A new law will allow full-fat and 2 percent milk to be served in schools. Here’s what to know.`\
 https://nytimes.com/2026/01/14/well/eat/health-effects-whole-milk-kids.html
-
-**Italian Broccoli Salad**\
-`This adaptable make-ahead salad is a great instant lunch or side dish. It starts with raw broccoli florets and stems, thinly sliced into irregular shapes to create many textures.`\
-https://nytimes.com/video/dining/100000010368599/italian-broccoli-salad.html
-
-**Newsom Says California Will Not Extradite Abortion Provider to Louisiana**\
-`The case, escalating the interstate battle over abortion, is the second time Louisiana has criminally charged out-of-state doctors with sending abortion pills to Louisiana residents.`\
-https://nytimes.com/2026/01/14/us/california-louisiana-extradite-abortion-doctor.html
 
