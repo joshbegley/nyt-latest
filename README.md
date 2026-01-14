@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6964057/2026/01/14/indiana-football-curt-cignetti-b
 `Systems like OpenAI’s GPT-5 are accelerating research in math, biology and chemistry. But there is a debate over whether it can do that work on its own.`\
 https://nytimes.com/2026/01/14/technology/ai-ideas-chat-gpt-openai.html
 
-**A Loyalty Program That Rewards Mortgage Payments? It’s Complicated.**\
+**What to Know about Bilt’s New Rewards Program for Mortgage and Rent Payments**\
 `Bilt, a rewards and payments start-up, has three new credit cards that can help users earn points when they pay their mortgage. You will need to do math.`\
 https://nytimes.com/2026/01/14/business/bilt-rent-mortgage-rewards.html
 
@@ -29,8 +29,4 @@ https://nytimes.com/athletic/6970239/2026/01/14/travis-hunter-jaguars-offense-de
 **Supreme Court Sides With Conservative Congressman in Illinois Election Rules Challenge**\
 `The question in the case was not a mail-in ballot rule itself but whether political candidates have the right to challenge the rules governing the vote count in their election.`\
 https://nytimes.com/2026/01/14/us/politics/supreme-court-illinois-mail-ballot-rules.html
-
-**What a Wolf Pup’s Stomach Revealed About the Woolly Rhino’s Extinction**\
-`Scientists prepared a high-quality sequence of the giant mammal’s genome based on a specimen preserved in Siberian permafrost.`\
-https://nytimes.com/2026/01/14/science/woolly-rhino-wolf-stomach-dna.html
 
