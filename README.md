@@ -1,3 +1,7 @@
+**Kiefer Sutherland Is Arrested After Assaulting Ride-Share Driver, Police Say**\
+`The actor also made “criminal threats” toward the driver, according to the Los Angeles police.`\
+https://nytimes.com/2026/01/13/arts/television/kiefer-sutherland-arrest-assault.html
+
 **Trump Makes Obscene Gesture at Heckler in Ford Factory Tour**\
 `A White House spokesman said the president “gave an appropriate and unambiguous response.”`\
 https://nytimes.com/2026/01/13/us/politics/trump-heckler-middle-finger.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6968273/2026/01/13/dallas-cowboys-donovan-ezeiruaku
 **Yankees trade with Marlins for Ryan Weathers to bolster rotation**\
 `The Yankees send four prospects to Miami for Weathers, 26, but don't expect it to stop their search for a higher-level starting pitcher.`\
 https://nytimes.com/athletic/6968239/2026/01/13/yankees-marlins-trade-ryan-weathers/
-
-**ICE Arrested Dozens of Refugees in Minnesota and Sent Them to Texas, Lawyers Say**\
-`The refugees, many of them from Somalia, had passed security screenings before coming to the United States. The Trump administration has vowed to “re-examine thousands of refugee cases.”`\
-https://nytimes.com/2026/01/13/us/ice-arrests-refugees-minnesota.html
 
