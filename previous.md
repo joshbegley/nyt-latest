@@ -1,3 +1,11 @@
+**Drum Diplomacy: Leaders of Japan and South Korea in Sync to K-pop**\
+`Prime Minister Sanae Takaichi of Japan and President Lee Jae Myung of South Korea played along to BTS and “KPop Demon Hunters,” in a display meant to show warming ties.`\
+https://nytimes.com/2026/01/14/world/asia/japan-south-korea-kpop-drum-diplomacy.html
+
+**Japan and South Korea Reinforce Ties With a K-Pop Jam Session**\
+`President Lee Jae Myung of South Korea and Prime Minister Sanae Takaichi of Japan jammed to K-pop during a summit to reaffirm their relationship amid growing political and economic uncertainty.`\
+https://nytimes.com/video/world/asia/100000010643744/japan-south-korea-takaichi-lee-drum.html
+
 **Trump Has Stopped Pretending That This Is All Normal**\
 `The president’s assertion of unlimited authority is a total rejection of popular sovereignty and the logic of the Constitution.`\
 https://nytimes.com/2026/01/14/opinion/trump-presidential-power-immunity.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/14/world/americas/venezuela-politicial-prisoners-rel
 **$25 Billion. That’s What Trump Cost Detroit.**\
 `The president’s hostility to E.V.s is hurting U.S. automakers.`\
 https://nytimes.com/2026/01/14/opinion/trump-detroit-cars-electric-vehicle-climate.html
-
-**These 11 Republican Trump Voters Love the Venezuela Action, but Greenland …**\
-`The group discusses the economy, immigration, President Trump’s recent actions in Venezuela and more.`\
-https://nytimes.com/interactive/2026/01/14/opinion/13focusgroup.html
-
-**How ICE Crackdowns Set Off a Resistance in American Cities**\
-`In Minneapolis and other cities where federal agents have led immigration crackdowns, residents have formed loose networks to track and protest them.`\
-https://nytimes.com/2026/01/14/us/ice-protests-activism.html
 
