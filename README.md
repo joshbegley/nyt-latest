@@ -2,7 +2,7 @@
 `Ezeiruaku, who was released after posting a $500 bond, was a second-round selection by Dallas in the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6968273/2026/01/13/dallas-cowboys-donovan-ezeiruaku-arrested-reckless-driving-charge/
 
-**Yankees trade with Marlins for Ryan Weathers to bolster rotation: Sources**\
+**Yankees trade with Marlins for Ryan Weathers to bolster rotation**\
 `The Yankees send four prospects to Miami for Weathers, 26, but don't expect it to stop their search for a higher-level starting pitcher.`\
 https://nytimes.com/athletic/6968239/2026/01/13/yankees-marlins-trade-ryan-weathers/
 
@@ -24,7 +24,7 @@ https://nytimes.com/athletic/6967896/2026/01/13/eagles-offensive-coordinator-can
 
 **How to watch Rams at Bears: Divisional Round Time, TV, streaming**\
 `Find out how to watch the Los Angeles Rams play the Chicago Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6968231/2026/01/13/rams-vs-bears-stream-how-to-watch-jan-18/
+https://nytimes.com/athletic/6968231/2026/01/13/how-to-watch-rams-vs-bears-divisional-round-tv-channel-and-streaming-options-for-january-18/
 
 **Vikings leadership noncommittal on J.J. McCarthy as starting QB in 2026**\
 `Vikings GM Kwesi Adofo-Mensah and coach Kevin O'Connell imply they'll bring in competition for McCarthy as the starting QB next season.`\
