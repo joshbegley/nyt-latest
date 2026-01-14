@@ -1,3 +1,19 @@
+**Ndamukong Suh, Mark Ingram among Class of 2026 College Football Hall of Fame inductees**\
+`The 22-man class features 10 former first-team All-Americans and four multi-year first-team All-Americans.`\
+https://nytimes.com/athletic/6970249/2026/01/14/ndamukong-suh-mark-ingram-college-hall-of-fame/
+
+**Red Sox to sign Ranger Suárez, pivoting to rotation upgrade after losing Alex Bregman: Sources**\
+`Suárez showed he could thrive with diminished stuff in 2025. He joins a Red Sox rotation that has already upgraded this winter.`\
+https://nytimes.com/athletic/6788432/2026/01/14/mlb-ranger-suarez-free-agency-signing-red-sox/
+
+**Republicans Move to Block Effort to Check Trump’s Power in Venezuela**\
+`G.O.P. leaders are pressuring fellow senators who supported the measure to change their vote on the bill to block President Trump’s military action in Venezuela without Congress’s consent.`\
+https://nytimes.com/2026/01/14/us/politics/trump-venezuela-war-powers-vote.html
+
+**Republicans Advance Stock-Trading Bill With Limited Restrictions**\
+`The bill would allow lawmakers to keep their existing stock and continue to sell it if they provide seven to 14 days of notice. Democrats called it a “gift to insider traders.”`\
+https://nytimes.com/2026/01/14/us/politics/republicans-stock-bill-trading.html
+
 **Scoop City: Mike Tomlin's breaking point, Brian Flores' candidacy**\
 `What made Tomlin special, replacement coaching candidates and a Hall of Fame debate with Mike Sando`\
 https://nytimes.com/athletic/6971062/2026/01/14/mike-tomlin-steelers-brian-flores-coach-2026-scoop-city/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/14/climate/antarctica-glacier-sea-ice.html
 **Devils GM on Quinn Hughes, trade deadline, slump: 'I’m working the phones daily'**\
 `Fitzgerald said he's not worried about his job security and also addressed the Dougie Hamilton situation.`\
 https://nytimes.com/athletic/6970450/2026/01/14/devils-tom-fitzgerald-quinn-hughes-nhl-trade-deadline/
-
-**You're paying *how much* for tickets to that game?! The fans' dilemma: MoneyCall**\
-`This week's free sports business newsletter from The Athletic`\
-https://nytimes.com/athletic/6970807/2026/01/14/indiana-miami-cfp-tickets-price-moneycall/
-
-**Judge Puts Off Ruling on Minnesota’s Request to Block ICE Surge**\
-`Lawyers for the state sought an immediate ruling, but the judge said she would give the Justice Department time to respond in writing to the state’s lawsuit.`\
-https://nytimes.com/2026/01/14/us/minnesota-ice-lawsuit.html
-
-**Longtime Vikings WR Adam Thielen announces retirement after 13 seasons**\
-`The veteran receiver, 35, announced his retirement from the NFL after splitting time between the Vikings and Steelers this season.`\
-https://nytimes.com/athletic/6970592/2026/01/14/adam-thielen-retirement-vikings-steelers-panthers/
-
-**Padres hire Bud Black and Wil Myers, reuniting with a pair of familiar faces**\
-`Black and Myers briefly overlapped with the Padres in 2015; they return to the organization in baseball operations roles.`\
-https://nytimes.com/athletic/6970794/2026/01/14/padres-bud-black-wil-myers-baseball-operations-hires/
 
