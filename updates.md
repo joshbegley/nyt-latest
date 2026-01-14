@@ -1,3 +1,11 @@
+**Trump Imposes Limited Tariffs on Foreign Semiconductors**\
+`The tariffs will allow President Trump to take a cut of Nvidia’s chip sales to China while putting off a decision about imposing higher taxes on the chip industry.`\
+https://nytimes.com/2026/01/14/business/economy/trump-chips-tariffs.html
+
+**FIFA says it received record 500 million ticket requests for 2026 World Cup**\
+`FIFA will now conduct random draws for each of the World Cup’s 104 matches and award tickets to the selected applicants in February.`\
+https://nytimes.com/athletic/6971550/2026/01/14/world-cup-tickets-demand/
+
 **FIFA says it receives record 500 million ticket requests for 2026 World Cup**\
 `FIFA will now conduct random draws for each of the World Cup’s 104 matches and award tickets to the selected applicants in February.`\
 https://nytimes.com/athletic/6971550/2026/01/14/world-cup-tickets-demand/
