@@ -1,3 +1,11 @@
+**Crane Falls on Passenger Train in Thailand, Killing at Least 22**\
+`The railway authorities said there were almost 200 people on the train when the accident happened in Nakhon Ratchasima province, northeast of Bangkok. Dozens were injured.`\
+https://nytimes.com/2026/01/14/world/asia/thailand-train-crane-accident.html
+
+**What Does the Saks Bankruptcy Mean for Shoppers?**\
+`Answers to this and other questions about the financial crisis in America’s biggest luxury department store.`\
+https://nytimes.com/2026/01/14/style/saks-neiman-marcus-bergdorf-goodman-bankruptcy.html
+
 **Saks Files for Bankruptcy as Department Stores Fight for Survival**\
 `The parent company of Saks, Neiman Marcus and Bergdorf Goodman struggled with debt, designers and customers in recent years.`\
 https://nytimes.com/2026/01/14/business/saks-files-for-bankruptcy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6965687/2026/01/14/aston-villa-loan-players-transfe
 **Chelsea vs Arsenal: Does the Carabao Cup matter? Expect a ‘Rosenior effect’? Will Gyokeres start?**\
 `The London rivals meet in a Carabao Cup semi-final first leg tonight - two of our writers share their thoughts on its possible storylines`\
 https://nytimes.com/athletic/6963628/2026/01/14/chelsea-arsenal-rosenior-gyokeres/
-
-**Can Crystal Palace marry Glasner's squad demands with the club's long-term vision?**\
-`There appears to be a contrradiction between the club's long-term vision and the manager's short-term strategy`\
-https://nytimes.com/athletic/6965663/2026/01/14/oliver-glasner-crystal-palace-squad/
-
-**Respect, rivalry and rifts - the story behind the Salah-Mane relationship**\
-`They combined to devastating effect for Liverpool but the dynamic was not without its challenges. They now face each other again at AFCON`\
-https://nytimes.com/athletic/6964341/2026/01/14/salah-mane-liverpool-afcon/
 

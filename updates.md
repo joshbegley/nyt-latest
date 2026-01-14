@@ -1,3 +1,11 @@
+**Crane Falls on Passenger Train in Thailand, Killing at Least 22**\
+`The railway authorities said there were almost 200 people on the train when the accident happened in Nakhon Ratchasima province, northeast of Bangkok. Dozens were injured.`\
+https://nytimes.com/2026/01/14/world/asia/thailand-train-crane-accident.html
+
+**What Does the Saks Bankruptcy Mean for Shoppers?**\
+`Answers to this and other questions about the financial crisis in America’s biggest luxury department store.`\
+https://nytimes.com/2026/01/14/style/saks-neiman-marcus-bergdorf-goodman-bankruptcy.html
+
 **Saks Files for Bankruptcy as Department Stores Fight for Survival**\
 `The parent company of Saks, Neiman Marcus and Bergdorf Goodman struggled with debt, designers and customers in recent years.`\
 https://nytimes.com/2026/01/14/business/saks-files-for-bankruptcy.html
