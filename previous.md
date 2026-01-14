@@ -1,3 +1,7 @@
+**Fantasy football RB and QB review: Ashton Jeanty busts, Travis Etienne surprises and more**\
+`Jake Ciely runs through the biggest fantasy football 2025 hits and misses at the RB and QB positions, searching for lessons learned.`\
+https://nytimes.com/athletic/6967812/2026/01/14/fantasy-football-running-back-quarterback-review-overperformers-underperformers/
+
 **Home Secretary says no confidence in police chief after Maccabi fan ban at Villa**\
 `Maccabi Tel Aviv fans did not attend the Europa League fixture against Aston Villa on November 6 following a West Midlands Police request.`\
 https://nytimes.com/athletic/6969557/2026/01/14/maccabi-tel-aviv-aston-villa-police-home-secretary/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/14/opinion/grok-risk-kids.html
 **A New Era of Taylor Swift Fandom**\
 `The mega star has always embraced cringe. Are fans still buying it?`\
 https://nytimes.com/2026/01/14/style/taylor-swift-cringe.html
-
-**Can I Tell My Sister That Our Friends Don’t Want to Travel With Her?**\
-`A reader feels conflicted about taking a trip with friends who specifically asked that a travel-challenged sister not come along for the ride.`\
-https://nytimes.com/2026/01/14/style/family-travel-difficulties.html
 
