@@ -1,3 +1,7 @@
+**Stephen Colbert Accuses Trump of ‘Invading Minnesota’**\
+`“Has anyone told him that they don’t have oil?” Colbert said of the president’s plan to send 1,000 more immigration officers to Minnesota.`\
+https://nytimes.com/2026/01/14/arts/television/stephen-colbert-trump-minnesota.html
+
 **A preview of The Athletic’s live coverage this week**\
 `The Athletic's live coverage this week includes the divisional round of the NFL playoffs and the final of AFCON.`\
 https://nytimes.com/athletic/6968889/2026/01/14/nfl-playoffs-afcon-final/
