@@ -1,3 +1,7 @@
+**Yankees bet on Ryan Weathers' upside, their development chops in trade with Marlins**\
+`The Marlins got four players back in exchange for Weathers, a package that is more quantity over quality.`\
+https://nytimes.com/athletic/6968614/2026/01/13/ryan-weathers-yankees-marlins-trade-analysis/
+
 **Yankees bet on Ryan Weathers' upside and their development chops in deal with Marlins**\
 `The Marlins got four players back in exchange for Weathers, a package that is more quantity over quality.`\
 https://nytimes.com/athletic/6968614/2026/01/13/ryan-weathers-yankees-marlins-trade-analysis/
