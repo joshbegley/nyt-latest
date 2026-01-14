@@ -1,3 +1,23 @@
+**After accident, Angels' Rio Foster fights for his old life, family hopes for help from team**\
+`The day began with the Angels prospect being named his league's player of the month. By the next morning, his career was effectively over. `\
+https://nytimes.com/athletic/6967885/2026/01/14/angels-prospect-rio-foster-car-accident-recovery/
+
+**Do the Jets have the right environment in place for their next QB?**\
+`Or, at least, is the franchise a better landing spot than it was for Sam Darnold (2018) and Zach Wilson (2021)?`\
+https://nytimes.com/athletic/6968437/2026/01/14/new-york-jets-quarterback-supporting-cast/
+
+**Team owner Steve Bisciotti was candid in discussing Ravens' future post-John Harbaugh**\
+`Bisciotti was honest about his views of Lamar Jackson, GM Eric DeCosta and the head-coaching search in his news conference on Tuesday.  `\
+https://nytimes.com/athletic/6968668/2026/01/14/ravens-owner-steve-bisciotti-john-harbaugh-lamar-jackson/
+
+**Three factors to consider as Rams prepare for divisional-round matchup vs. Bears**\
+`The road environment in Chicago, health questions and how the Rams defend Bears QB Caleb Williams could be the difference Sunday night. `\
+https://nytimes.com/athletic/6965263/2026/01/14/rams-bears-nfc-divisional-round-factors/
+
+**The New York Times International Edition in Print for Thursday, Jan. 15, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/14/todays-new-york-times-international-edition
+
 **Ajax sign Maximilian Ibrahimovic, son of Zlatan, on loan from Milan**\
 `Maximilian, a 19-year-old right-footed forward, is keen to distinguish himself from his celebrated father.`\
 https://nytimes.com/athletic/6968981/2026/01/14/ajax-sign-ibrahimovic-zlatan-son/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/14/opinion/trump-presidential-power-immunity.html
 **Chuck Schumer Calls His Shot**\
 `After securing strong recruits on a tough Senate map, the Democratic leader is not only predicting an upset 2026 victory, but also naming the states he thinks his party can flip.`\
 https://nytimes.com/2026/01/14/us/politics/chuck-schumer-senate-map-democrats.html
-
-**What Comes Next for Venezuela — and Who Decides?**\
-`A Venezuelan economist weighs in on the role of Trump, oil and the sidelining of the Nobel Prize-winning opposition leader María Corina Machado.`\
-https://nytimes.com/2026/01/14/opinion/venezuela-oil-power-trump.html
-
-**Trump Credits ‘Mister Tariff’ for the Country’s Strength. Economists Beg to Differ.**\
-`Many indicators appear to suggest that the United States is growing despite tariffs, not because of them.`\
-https://nytimes.com/2026/01/14/us/politics/trump-tariffs-economists.html
-
-**The Art of a Good Awards-Show Speech**\
-`Demi Moore nailed it at last year’s Globes, and so did Teyana Taylor this year. The best acceptances keep in mind four key guidelines.`\
-https://nytimes.com/2026/01/14/movies/teyana-taylor-demi-moore-golden-globes-speech.html
-
-**‘The Devil’s Excrement’: Is Venezuela Cursed by Its Oil?**\
-`The country’s biggest problem may not be President Trump.`\
-https://nytimes.com/2026/01/14/magazine/the-devils-excrement-is-venezuela-cursed-by-its-oil.html
-
-**Venezuela Announced the Release of Political Prisoners. Families Are Still Waiting.**\
-`Hundreds of families are hoping their loved ones will be freed by the Venezuelan government, which has said little about who would be released or when.`\
-https://nytimes.com/2026/01/14/world/americas/venezuela-politicial-prisoners-release.html
 
