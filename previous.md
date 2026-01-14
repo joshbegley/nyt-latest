@@ -26,7 +26,3 @@ https://nytimes.com/2026/01/14/technology/ai-ipo-openai-anthropic-spacex.html
 `“Very fair to say that his rehab process is going as expected. He’s hitting it hard,” Jaguars GM James Gladstone said Monday.`\
 https://nytimes.com/athletic/6970239/2026/01/14/travis-hunter-jaguars-offense-defense-injury/
 
-**Supreme Court Sides With Conservative Congressman in Illinois Election Rules Challenge**\
-`The question in the case was not a mail-in ballot rule itself but whether political candidates have the right to challenge the rules governing the vote count in their election.`\
-https://nytimes.com/2026/01/14/us/politics/supreme-court-illinois-mail-ballot-rules.html
-
