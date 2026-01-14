@@ -1,3 +1,11 @@
+**Home Secretary says no confidence in police chief after Maccabi fan ban at Villa**\
+`Maccabi Tel Aviv fans did not attend the Europa League fixture against Aston Villa on November 6 following a West Midlands Police request.`\
+https://nytimes.com/athletic/6969557/2026/01/14/maccabi-tel-aviv-aston-villa-police-home-secretary/
+
+**Cortina mayor talks Winter Olympics challenges, costs, sliding track controversy and more**\
+`Gianluca Lorenzi has received death threats and grappled with economic controversies in the midst of Olympic planning.`\
+https://nytimes.com/athletic/6966577/2026/01/14/winter-olympics-milan-cortina-mayor-interview/
+
 **U.K. Retreats on Plan to Require ‘BritCard’ ID for Workers**\
 `Workers will be able to use a variety of digital IDs to prove their right to work in Britain, the government said Wednesday, diluting a plan it announced last year.`\
 https://nytimes.com/2026/01/14/world/europe/uk-digital-id-britcard.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/14/style/taylor-swift-cringe.html
 **Can I Tell My Sister That Our Friends Don’t Want to Travel With Her?**\
 `A reader feels conflicted about taking a trip with friends who specifically asked that a travel-challenged sister not come along for the ride.`\
 https://nytimes.com/2026/01/14/style/family-travel-difficulties.html
-
-**Greenland’s Leader Says His Nation Wants to Remain Part of Denmark**\
-`Before a meeting on Wednesday with Vice President JD Vance and Secretary of State Marco Rubio, Greenland’s prime minister said that his nation intended to remain part of Denmark.`\
-https://nytimes.com/video/world/europe/100000010644191/greenland-denmark-white-house-trump.html
-
-**F.B.I. Searches Home of Washington Post Journalist for Classified Documents**\
-`It is exceedingly rare, even in investigations of classified disclosures, for federal agents to search a reporter’s home.`\
-https://nytimes.com/2026/01/14/us/politics/fbi-washington-post-journalist.html
 

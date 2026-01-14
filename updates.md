@@ -1,3 +1,7 @@
+**U.K. Retreats on Plan to Require ‘BritCard’ ID for Workers**\
+`Workers will be able to use a variety of digital IDs to prove their right to work in Britain, the government said Wednesday, diluting a plan it announced last year.`\
+https://nytimes.com/2026/01/14/world/europe/uk-digital-id-britcard.html
+
 **In crushing No. 2 Iowa State, Kansas finally begins to look like team Bill Self envisioned**\
 `“I was in a better mood coaching tonight,” Self said, “because I thought the guys tried so hard."`\
 https://nytimes.com/athletic/6968921/2026/01/14/kansas-iowa-state-score-result-darryn-peterson-bill-self/

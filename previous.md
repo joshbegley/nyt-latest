@@ -1,3 +1,7 @@
+**U.K. Retreats on Plan to Require ‘BritCard’ ID for Workers**\
+`Workers will be able to use a variety of digital IDs to prove their right to work in Britain, the government said Wednesday, diluting a plan it announced last year.`\
+https://nytimes.com/2026/01/14/world/europe/uk-digital-id-britcard.html
+
 **In crushing No. 2 Iowa State, Kansas finally begins to look like team Bill Self envisioned**\
 `“I was in a better mood coaching tonight,” Self said, “because I thought the guys tried so hard."`\
 https://nytimes.com/athletic/6968921/2026/01/14/kansas-iowa-state-score-result-darryn-peterson-bill-self/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010644191/greenland-denmark-white-h
 **F.B.I. Searches Home of Washington Post Journalist for Classified Documents**\
 `It is exceedingly rare, even in investigations of classified disclosures, for federal agents to search a reporter’s home.`\
 https://nytimes.com/2026/01/14/us/politics/fbi-washington-post-journalist.html
-
-**College basketball mailbag: Which mid-major teams could make noise in March?**\
-`Why Saint Louis and Saint Mary's are among the mid-majors who could spring a win or two in the NCAA Tournament.`\
-https://nytimes.com/athletic/6969434/2026/01/14/college-basketball-mailbag-michigan-saint-louis-unc/
 
