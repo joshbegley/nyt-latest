@@ -1,5 +1,9 @@
 **Smithsonian Turns Over More Records in the Face of a Trump Deadline**\
 `The institution, which is viewed as independent, has sought to reduce tensions with the White House by complying with some of its demands for documents.`\
+https://nytimes.com/2026/01/13/arts/design/smithsonian-more-records-trump-deadline.html
+
+**Smithsonian Turns Over More Records in the Face of a Trump Deadline**\
+`The institution, which is viewed as independent, has sought to reduce tensions with the White House by complying with some of its demands for documents.`\
 https://nytimes.com/2026/01/13/arts/design/smithsonian-turns-over-more-records-in-the-face-of-a-trump-deadline.html
 
 **Eagles offensive coordinator search: 12 candidates to replace Kevin Patullo**\
