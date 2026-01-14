@@ -1,3 +1,7 @@
+**FIFA says it receives record 500 million ticket requests for 2026 World Cup**\
+`FIFA will now conduct random draws for each of the World Cup’s 104 matches and award tickets to the selected applicants in February.`\
+https://nytimes.com/athletic/6971550/2026/01/14/world-cup-tickets-demand/
+
 **Denmark Has ‘Fundamental Disagreement’ With U.S. Over Greenland**\
 `On Wednesday, Denmark and Greenland’s foreign ministers met with the Trump administration. President Trump urged the United States needs Greenland for national security purposes but both foreign officials argued Greenland is not up for sale.`\
 https://nytimes.com/video/world/europe/100000010645800/denmark-greenland-foreign-officials-disagreement-trump-administration.html
@@ -23,7 +27,7 @@ https://nytimes.com/2026/01/14/us/defense-department-name-change.html
 https://nytimes.com/athletic/6971836/2026/01/14/yankees-ryan-weathers-trade-father-reaction/
 
 **Iran Prepares to Execute Protester**\
-`Iran prepared to execute Erfan Soltani, 26, on Wednesday. Soltani would be the first protester to be executed in the latest wave of antigovernment unrest. President Trump said that “the killing in Iran is stopping,” but did not elaborate on his statement.`\
+`Iran had been prepared to execute Erfan Soltani, 26, on Wednesday. He would have been the first protester to be executed in the latest wave of antigovernment unrest.`\
 https://nytimes.com/video/world/middleeast/100000010645079/iran-protests-trump-executions.html
 
 **Congress Is Spurning Many of Trump’s Proposed Spending Cuts**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/14/us/politics/congress-trump-spending-cuts.html
 **Kaiser Permanente Settles Medicare Fraud Claims for $556 Million**\
 `The Justice Department and whistle-blowers accused the major health insurer of overbilling the government for about $1 billion under the private plans.`\
 https://nytimes.com/2026/01/14/health/medicare-advantage-kaiser-overbilling-fraud.html
-
-**FanDuel Sports Network makes 3-year offers to MLB teams, but company must be sold**\
-`If it isn't sold, Main Street has told partner teams it plans to wind down FanDuel Sports Network operations after the NBA and NHL seasons.`\
-https://nytimes.com/athletic/6971636/2026/01/14/fanduel-sports-network-washington-nationals-broadcasts-mlb-nhl-nba/
 
