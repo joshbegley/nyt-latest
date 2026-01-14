@@ -1,3 +1,7 @@
+**Trump Makes Obscene Gesture at Heckler in Ford Factory Tour**\
+`A White House spokesman said the president “gave an appropriate and unambiguous response.”`\
+https://nytimes.com/2026/01/13/us/politics/trump-heckler-middle-finger.html
+
 **The Minneapolis Mayor Who Cursed Out ICE Is No Stranger to Crisis**\
 `Mayor Jacob Frey, a Democrat, has clashed with his party’s activist wing. His response to ICE has won him new respect at home and new foes in Washington.`\
 https://nytimes.com/2026/01/13/us/politics/minneapolis-mayor-jacob-frey-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6968239/2026/01/13/yankees-marlins-trade-ryan-weath
 **ICE Arrested Dozens of Refugees in Minnesota and Sent Them to Texas, Lawyers Say**\
 `The refugees, many of them from Somalia, had passed security screenings before coming to the United States. The Trump administration has vowed to “re-examine thousands of refugee cases.”`\
 https://nytimes.com/2026/01/13/us/ice-arrests-refugees-minnesota.html
-
-**Starlink Users in Iran Get Free Internet Access, Nonprofit Says**\
-`Under a near-total communications blackout, users of Elon Musk’s satellite service have gotten online without paying, an organization that works on web access said.`\
-https://nytimes.com/2026/01/13/technology/iran-starlink-elon-musk.html
 

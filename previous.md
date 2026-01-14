@@ -1,3 +1,7 @@
+**The Minneapolis Mayor Who Cursed Out ICE Is No Stranger to Crisis**\
+`Mayor Jacob Frey, a Democrat, has clashed with his party’s activist wing. His response to ICE has won him new respect at home and new foes in Washington.`\
+https://nytimes.com/2026/01/13/us/politics/minneapolis-mayor-jacob-frey-ice.html
+
 **James Talarico Gives JD Vance a Bible Lesson**\
 `The Texas state representative James Talarico, who’s running for Senate and also studying to be a minister, says Vice President JD Vance has misread the Bible on immigration.`\
 https://nytimes.com/video/opinion/100000010630323/james-talarico-gives-jd-vance-a-bible-lesson.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/13/us/ice-arrests-refugees-minnesota.html
 **Starlink Users in Iran Get Free Internet Access, Nonprofit Says**\
 `Under a near-total communications blackout, users of Elon Musk’s satellite service have gotten online without paying, an organization that works on web access said.`\
 https://nytimes.com/2026/01/13/technology/iran-starlink-elon-musk.html
-
-**Smithsonian Turns Over More Records in the Face of a Trump Deadline**\
-`The institution, which is viewed as independent, has sought to reduce tensions with the White House by complying with some of its demands for documents.`\
-https://nytimes.com/2026/01/13/arts/design/smithsonian-more-records-trump-deadline.html
 
