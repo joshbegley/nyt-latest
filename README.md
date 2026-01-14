@@ -1,3 +1,7 @@
+**Supreme Court Sides With Conservative Congressman in Illinois Election Rules Challenge**\
+`The question in the case was not a mail-in ballot rule itself but whether political candidates have the right to challenge the rules governing the vote count in their election.`\
+https://nytimes.com/2026/01/14/us/politics/supreme-court-illinois-mail-ballot-rules.html
+
 **What a Wolf Pup’s Stomach Revealed About the Woolly Rhino’s Extinction**\
 `Scientists prepared a high-quality sequence of the giant mammal’s genome based on a specimen preserved in Siberian permafrost.`\
 https://nytimes.com/2026/01/14/science/woolly-rhino-wolf-stomach-dna.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6970135/2026/01/14/raptors-vs-pacers-stream-how-to-
 **How to watch Kraken vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6970133/2026/01/14/kraken-vs-devils-stream-how-to-watch-jan-14/
-
-**Iran Prepares to Execute a Protester as Trump Threatens ‘Strong Action’**\
-`Rights groups and relatives said Iran planned to put an antigovernment protester to death for the first time during the latest wave of unrest in the country.`\
-https://nytimes.com/2026/01/14/world/middleeast/iran-protests-soltani-execution-trump.html
 
