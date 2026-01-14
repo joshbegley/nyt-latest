@@ -1,3 +1,11 @@
+**George Saunders on People, Kindness and Evil**\
+`In 2013, the author George Saunders gave a speech extolling the importance of kindness that went viral and became a best-selling book. He returned to questions about kindness and human behavior on “The Interview.”`\
+https://nytimes.com/video/podcasts/100000010641709/george-saunders-on-people-kindness-and-evil.html
+
+**Why George Saunders Is Not Worried About Death**\
+`“Vigil,” the latest novel by George Saunders, follows an oil tycoon on his deathbed. On “The Interview,” Mr. Saunders discussed how death can bring clarity to life.`\
+https://nytimes.com/video/podcasts/100000010641707/why-george-saunders-is-not-worried-about-death.html
+
 **How to watch Ole Miss vs. Georgia men's basketball: Time, TV, streaming**\
 `Find out how to watch the Ole Miss Rebels play the Georgia Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6970110/2026/01/14/ole-miss-vs-georgia-stream-how-to-watch-jan-14/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/14/dining/healthy-curried-red-bean-soup-with-kale-an
 **Suddenly, Alaska Is in Play**\
 `Mary Peltola’s entry into the Alaska Senate race is a building block in an electoral strategy Democrats have been working on for months.`\
 https://nytimes.com/2026/01/14/opinion/politics/alaska-mary-peltola-senate.html
-
-**In Letters to a Friend, Harper Lee Expanded on Her View of the South**\
-`In decades of correspondence, the author gave her friend, JoBeth McDaniel, a mix of opinions, advice on writing and insight into the impact of the Civil Rights movement.`\
-https://nytimes.com/2026/01/14/arts/harper-lee-letters-opinions-civil-rights-movement.html
-
-**For Lung Cancer Patients, Shame Is a Deadly Side Effect**\
-`The disease is the rare cancer met with accusations, not sympathy.`\
-https://nytimes.com/2026/01/14/well/lung-cancer-stigma.html
 
