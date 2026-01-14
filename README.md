@@ -1,3 +1,7 @@
+**USMNT standout Richards named U.S. Soccer's 2025 Male Player of the Year**\
+`Chris Richards emerged as a leader and had a knack for the big moment during 2025 for the USMNT`\
+https://nytimes.com/athletic/6970390/2026/01/14/chris-richards-usmnt-2025-player-year/
+
 **Rebecca Kilgore, 76, Dies; Acclaimed Interpreter of American Songbook**\
 `An elegant jazz singer with adventurous taste, she counted among her fans the performer Michael Feinstein and the songwriter Dave Frishberg, who called her technique “flawless.”`\
 https://nytimes.com/2026/01/14/arts/music/rebecca-kilgore-dead.html
@@ -17,8 +21,4 @@ https://nytimes.com/2026/01/14/technology/ai-ideas-chat-gpt-openai.html
 **What to Know about Bilt’s New Rewards Program for Mortgage and Rent Payments**\
 `Bilt, a rewards and payments start-up, has three new credit cards that can help users earn points when they pay their mortgage. You will need to do math.`\
 https://nytimes.com/2026/01/14/business/bilt-rent-mortgage-rewards.html
-
-**Leonardo DiCaprio, Benicio Del Toro and Rose Byrne Pick Up Awards in New York**\
-`The stars were honored at the annual National Board of Review gala, where winners called attention to protests in Minneapolis and the violent crackdown in Iran.`\
-https://nytimes.com/2026/01/14/style/national-board-review-gala-leonardo-dicapio-benicio-del-toro.html
 

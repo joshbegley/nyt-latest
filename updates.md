@@ -1,3 +1,7 @@
+**Rebecca Kilgore, 76, Dies; Acclaimed Interpreter of American Songbook**\
+`An elegant jazz singer with adventurous taste, she counted among her fans the performer Michael Feinstein and the songwriter Dave Frishberg, who called her technique “flawless.”`\
+https://nytimes.com/2026/01/14/arts/music/rebecca-kilgore-dead.html
+
 **Collectors lays out plans for PSA, SGC and Beckett following recent controversies**\
 `Collectors grading business unit president Ryan Hoge lays out some of what's to come for all three affiliated grading brands.`\
 https://nytimes.com/athletic/6970111/2026/01/14/psa-sgc-beckett-collectors-grading/
