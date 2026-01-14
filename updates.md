@@ -1,3 +1,15 @@
+**The People of Iran Deserve the World’s Support**\
+`The protest movement represents the best hope for a government that does less damage in the world and better serves its own citizens.`\
+https://nytimes.com/2026/01/14/opinion/iran-protests-khamenei-trump.html
+
+**Despite Trump’s Claims, Grocery Prices Are Rising. Here’s Why.**\
+`Weather, supply, tariffs, labor and changing consumer habits continue to drive up the cost of groceries. President Trump falsely claims prices are falling.`\
+https://nytimes.com/2026/01/14/business/food-prices-tariffs-trump.html
+
+**Steelers owner says Mike Tomlin not expected to coach again 'in the near future'**\
+`Plus, other takeaways from Art Rooney II's Wednesday news conference.`\
+https://nytimes.com/athletic/6971435/2026/01/14/mike-tomlin-not-expected-to-coach-near-future-art-rooney/
+
 **Marcus Freeman addresses NFL coaching interest in first public comments in weeks**\
 `'Everything I want and everything that I need personally can be achieved right here,' Freeman said.`\
 https://nytimes.com/athletic/6970564/2026/01/14/marcus-freeman-nfl-coach-notre-dame/
