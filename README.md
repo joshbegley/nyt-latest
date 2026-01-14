@@ -1,3 +1,11 @@
+**Yankees bet on Ryan Weathers' upside and their development chops in deal with Marlins**\
+`The Marlins got four players back in exchange for Weathers, a package that is more quantity over quality.`\
+https://nytimes.com/athletic/6968614/2026/01/13/ryan-weathers-yankees-marlins-trade-analysis/
+
+**A tennis player celebrated victory three points early. 16 points later, he had lost**\
+`Sebastian Ofner thought he had won a match tiebreak against Nishesh Basavareddy of the U.S. He had not.`\
+https://nytimes.com/athletic/6968574/2026/01/13/ofner-celebration-basavareddy-australian-open-qualifying/
+
 **Beijing Won Its War for Blue Skies, but Villagers Are Paying the Price**\
 `China banned the burning of coal for heat around Beijing, but natural gas subsidies have run out, leaving many villagers vulnerable in dangerously cold weather.`\
 https://nytimes.com/2026/01/13/world/asia/china-coal-ban-air-pollution-heating.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/13/crosswords/daily-puzzle-2026-1-14.html
 **Venezuela Frees Several Americans From Prison, U.S. Says**\
 `They were the first U.S. citizens released after the U.S. military captured Nicolás Maduro and flew him to the United States to stand trial on drug and other charges.`\
 https://nytimes.com/2026/01/13/world/americas/venezuela-us-prisoner-freed.html
-
-**Kiefer Sutherland Is Arrested After Assaulting Ride-Share Driver, Police Say**\
-`The actor also made “criminal threats” toward the driver, according to the Los Angeles police.`\
-https://nytimes.com/2026/01/13/arts/television/kiefer-sutherland-arrest-assault.html
-
-**Trump Makes Obscene Gesture at Heckler in Ford Factory Tour**\
-`A White House spokesman said the president “gave an appropriate and unambiguous response.”`\
-https://nytimes.com/2026/01/13/us/politics/trump-heckler-middle-finger.html
 
