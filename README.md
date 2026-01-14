@@ -1,5 +1,5 @@
 **Fantasy football RB and QB review: Ashton Jeanty busts, Travis Etienne surprises and more**\
-`Jake Ciely runs threw the biggest fantasy football 2025 hits and misses at the RB and QB positions, searching for the lessons to be gleaned.`\
+`Jake Ciely runs through the biggest fantasy football 2025 hits and misses at the RB and QB positions, searching for lessons learned.`\
 https://nytimes.com/athletic/6967812/2026/01/14/fantasy-football-running-back-quarterback-review-overperformers-underperformers/
 
 **Home Secretary says no confidence in police chief after Maccabi fan ban at Villa**\
