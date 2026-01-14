@@ -1,3 +1,19 @@
+**Denmark Has ‘Fundamental Disagreement’ With U.S. Over Greenland**\
+`On Wednesday, Denmark and Greenland’s foreign ministers met with the Trump administration. President Trump urged the United States needs Greenland for national security purposes but both foreign officials argued Greenland is not up for sale.`\
+https://nytimes.com/video/world/europe/100000010645800/denmark-greenland-foreign-officials-disagreement-trump-administration.html
+
+**The U.S. Moves Personnel Out of Qatar as Tensions Rise With Iran**\
+`Also, the U.S. and Denmark clash over Greenland. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2026/01/14/briefing/us-iran-tensions-greenland-trump.html
+
+**Ajax suffer record six-goal defeat to AZ in Dutch Cup as Troy Parrott scores hat-trick**\
+`A hat-trick from Republic of Ireland international striker Troy Parrott helped seal the Amsterdam club's joint-worst result this century.`\
+https://nytimes.com/athletic/6972396/2026/01/14/ajax-record-defeat-dutch-cup-az/
+
+**Morocco 0 Nigeria 0 (4-2 pens) - Bassey heroics in vain, Bounou saves hosts**\
+`After a tense game went the distance, Morocco held their nerve in the shoot-out to set up a final with Senegal`\
+https://nytimes.com/athletic/6965947/2026/01/14/nigeria-0-morocco-0-4-2-penalties/
+
 **Renaming Defense Department Could Cost Taxpayers $125 Million**\
 `A report released by the Congressional Budget Office estimated the amount of money that would be spent on new signs and letterhead, should Congress approve a change.`\
 https://nytimes.com/2026/01/14/us/defense-department-name-change.html

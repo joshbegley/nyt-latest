@@ -1,3 +1,19 @@
+**Denmark Has ‘Fundamental Disagreement’ With U.S. Over Greenland**\
+`On Wednesday, Denmark and Greenland’s foreign ministers met with the Trump administration. President Trump urged the United States needs Greenland for national security purposes but both foreign officials argued Greenland is not up for sale.`\
+https://nytimes.com/video/world/europe/100000010645800/denmark-greenland-foreign-officials-disagreement-trump-administration.html
+
+**The U.S. Moves Personnel Out of Qatar as Tensions Rise With Iran**\
+`Also, the U.S. and Denmark clash over Greenland. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2026/01/14/briefing/us-iran-tensions-greenland-trump.html
+
+**Ajax suffer record six-goal defeat to AZ in Dutch Cup as Troy Parrott scores hat-trick**\
+`A hat-trick from Republic of Ireland international striker Troy Parrott helped seal the Amsterdam club's joint-worst result this century.`\
+https://nytimes.com/athletic/6972396/2026/01/14/ajax-record-defeat-dutch-cup-az/
+
+**Morocco 0 Nigeria 0 (4-2 pens) - Bassey heroics in vain, Bounou saves hosts**\
+`After a tense game went the distance, Morocco held their nerve in the shoot-out to set up a final with Senegal`\
+https://nytimes.com/athletic/6965947/2026/01/14/nigeria-0-morocco-0-4-2-penalties/
+
 **Renaming Defense Department Could Cost Taxpayers $125 Million**\
 `A report released by the Congressional Budget Office estimated the amount of money that would be spent on new signs and letterhead, should Congress approve a change.`\
 https://nytimes.com/2026/01/14/us/defense-department-name-change.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/14/health/medicare-advantage-kaiser-overbilling-frau
 **FanDuel Sports Network makes 3-year offers to MLB teams, but company must be sold**\
 `If it isn't sold, Main Street has told partner teams it plans to wind down FanDuel Sports Network operations after the NBA and NHL seasons.`\
 https://nytimes.com/athletic/6971636/2026/01/14/fanduel-sports-network-washington-nationals-broadcasts-mlb-nhl-nba/
-
-**Jaylen Brown: Celtics deserve more respect from NBA refs**\
-`The Celtics are the only NBA team to get to the free-throw line fewer than 20 times per game this season.`\
-https://nytimes.com/athletic/6971864/2026/01/14/jaylen-brown-celtics-nba-refs-respect/
-
-**Nolan Arenado felt he was 'in the way' of young talent in St. Louis, ready for fresh start**\
-`“I loved my time there,” Arenado said of his tenure with the Cardinals, but he noted that he's looking forward to playing for Arizona.`\
-https://nytimes.com/athletic/6972090/2026/01/14/nolan-arenado-cardinals-diamondbacks-new-opportunity/
-
-**Sources: Top MLS defender doesn't show for preseason amid contract dispute**\
-`Tristan Blackmon is eyeing an improved deal from Vancouver after winning MLS Defender of the Year in 2025`\
-https://nytimes.com/athletic/6967250/2026/01/14/tristan-blackmon-vancouver-whitecaps-contract-mls-preseason/
-
-**Players' union says NWSL's High Impact Player rule violates CBA, seeks 'immediate rescission'**\
-`The NWSLPA says the league's 'Rodman Rule' must be collectively bargained. `\
-https://nytimes.com/athletic/6971867/2026/01/14/nwsl-players-associaiton-high-impact-player-violation/
 
