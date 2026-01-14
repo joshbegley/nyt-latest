@@ -1,3 +1,7 @@
+**Rosenthal: Mets' pursuit of Tucker raises questions about defense, plus more MLB offseason notes**\
+`What's next for the Red Sox? Plus a breakdown of the ramifications of the Nolan Arenado deal. `\
+https://nytimes.com/athletic/6968660/2026/01/14/kyle-tucker-mets-red-sox-diamondbacks-arenado/
+
 **After accident, Angels' Rio Foster fights for his old life, family hopes for help from team**\
 `The day began with the Angels prospect being named his league's player of the month. By the next morning, his career was effectively over. `\
 https://nytimes.com/athletic/6967885/2026/01/14/angels-prospect-rio-foster-car-accident-recovery/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010643744/japan-south-korea-takaichi-
 **Trump Has Stopped Pretending That This Is All Normal**\
 `The president’s assertion of unlimited authority is a total rejection of popular sovereignty and the logic of the Constitution.`\
 https://nytimes.com/2026/01/14/opinion/trump-presidential-power-immunity.html
-
-**Chuck Schumer Calls His Shot**\
-`After securing strong recruits on a tough Senate map, the Democratic leader is not only predicting an upset 2026 victory, but also naming the states he thinks his party can flip.`\
-https://nytimes.com/2026/01/14/us/politics/chuck-schumer-senate-map-democrats.html
 

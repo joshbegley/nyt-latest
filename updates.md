@@ -1,3 +1,23 @@
+**After accident, Angels' Rio Foster fights for his old life, family hopes for help from team**\
+`The day began with the Angels prospect being named his league's player of the month. By the next morning, his career was effectively over. `\
+https://nytimes.com/athletic/6967885/2026/01/14/angels-prospect-rio-foster-car-accident-recovery/
+
+**Do the Jets have the right environment in place for their next QB?**\
+`Or, at least, is the franchise a better landing spot than it was for Sam Darnold (2018) and Zach Wilson (2021)?`\
+https://nytimes.com/athletic/6968437/2026/01/14/new-york-jets-quarterback-supporting-cast/
+
+**Team owner Steve Bisciotti was candid in discussing Ravens' future post-John Harbaugh**\
+`Bisciotti was honest about his views of Lamar Jackson, GM Eric DeCosta and the head-coaching search in his news conference on Tuesday.  `\
+https://nytimes.com/athletic/6968668/2026/01/14/ravens-owner-steve-bisciotti-john-harbaugh-lamar-jackson/
+
+**Three factors to consider as Rams prepare for divisional-round matchup vs. Bears**\
+`The road environment in Chicago, health questions and how the Rams defend Bears QB Caleb Williams could be the difference Sunday night. `\
+https://nytimes.com/athletic/6965263/2026/01/14/rams-bears-nfc-divisional-round-factors/
+
+**The New York Times International Edition in Print for Thursday, Jan. 15, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/14/todays-new-york-times-international-edition
+
 **Ajax sign Maximilian Ibrahimovic, son of Zlatan, on loan from Milan**\
 `Maximilian, a 19-year-old right-footed forward, is keen to distinguish himself from his celebrated father.`\
 https://nytimes.com/athletic/6968981/2026/01/14/ajax-sign-ibrahimovic-zlatan-son/
