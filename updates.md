@@ -1,3 +1,7 @@
+**Aina returns to Forest's Europa League squad, Zinchenko drops out**\
+`Aina had been named in the initial squad in the summer, until he suffered a serious hamstring injury, but he has now returned to fitness.`\
+https://nytimes.com/athletic/6971306/2026/01/14/nottingham-forest-squad-europa-league-aina-zinchenko/
+
 **Oregon quarterback Dante Moore will return for 2026 season**\
 `The 20-year-old from Detroit snubbed the NFL Draft for another season with the Ducks.`\
 https://nytimes.com/athletic/6957387/2026/01/14/oregon-quarterback-dante-moore-returns-school/

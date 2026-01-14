@@ -1,5 +1,9 @@
+**ICE Is Waging War on Blue Cities**\
+`Will the agency’s brutality and capriciousness create blowback?`\
+https://nytimes.com/2026/01/14/opinion/ice-trump-minnesota.html
+
 **Aina returns to Forest's Europa League squad, Zinchenko drops out**\
-`Aina had been named in the initial squad in the summer, until he suffered a serious hamstring injury, but he has now returned to fitness.`\
+`Aina had been named in the initial squad in the summer, until he suffered a serious hamstring injury, but he has returned to fitness.`\
 https://nytimes.com/athletic/6971306/2026/01/14/nottingham-forest-squad-europa-league-aina-zinchenko/
 
 **Oregon quarterback Dante Moore will return for 2026 season**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/14/us/politics/republicans-stock-bill-trading.html
 **Scoop City: Mike Tomlin's breaking point, Brian Flores' candidacy**\
 `What made Tomlin special, replacement coaching candidates and a Hall of Fame debate with Mike Sando`\
 https://nytimes.com/athletic/6971062/2026/01/14/mike-tomlin-steelers-brian-flores-coach-2026-scoop-city/
-
-**NASA to Begin Space Station Medical Evacuation: How to Watch**\
-`Four astronauts are leaving the outpost about a month earlier than scheduled because a crew member, who was not identified, has an undisclosed medical issue.`\
-https://nytimes.com/2026/01/14/science/nasa-astronauts-iss-return.html
 
