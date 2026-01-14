@@ -1,3 +1,7 @@
+**Stephen Colbert Accuses Trump of ‘Invading Minnesota’**\
+`“Has anyone told him that they don’t have oil?” Colbert said of the president’s plan to send 1,000 more immigration officers to Minnesota.`\
+https://nytimes.com/2026/01/14/arts/television/stephen-colbert-trump-minnesota.html
+
 **A preview of The Athletic’s live coverage this week**\
 `The Athletic's live coverage this week includes the divisional round of the NFL playoffs and the final of AFCON.`\
 https://nytimes.com/athletic/6968889/2026/01/14/nfl-playoffs-afcon-final/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/14/world/asia/thailand-train-crane-accident.html
 **What Does the Saks Bankruptcy Mean for Shoppers?**\
 `Answers to this and other questions about the financial crisis in America’s biggest luxury department store.`\
 https://nytimes.com/2026/01/14/style/saks-neiman-marcus-bergdorf-goodman-bankruptcy.html
-
-**Saks Files for Bankruptcy as Department Stores Fight for Survival**\
-`The parent company of Saks, Neiman Marcus and Bergdorf Goodman struggled with debt, designers and customers in recent years.`\
-https://nytimes.com/2026/01/14/business/saks-files-for-bankruptcy.html
 
