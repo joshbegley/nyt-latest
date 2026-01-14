@@ -1,3 +1,31 @@
+**FanDuel Sports Network makes 3-year offers to MLB teams, but company must be sold**\
+`If it isn't sold, Main Street has told partner teams it plans to wind down FanDuel Sports Network operations after the NBA and NHL seasons.`\
+https://nytimes.com/athletic/6971636/2026/01/14/fanduel-sports-network-washington-nationals-broadcasts-mlb-nhl-nba/
+
+**Jaylen Brown: Celtics deserve more respect from NBA refs**\
+`The Celtics are the only NBA team to get to the free-throw line fewer than 20 times per game this season.`\
+https://nytimes.com/athletic/6971864/2026/01/14/jaylen-brown-celtics-nba-refs-respect/
+
+**Nolan Arenado felt he was 'in the way' of young talent in St. Louis, ready for fresh start**\
+`“I loved my time there,” Arenado said of his tenure with the Cardinals, but he noted that he's looking forward to playing for Arizona.`\
+https://nytimes.com/athletic/6972090/2026/01/14/nolan-arenado-cardinals-diamondbacks-new-opportunity/
+
+**Sources: Top MLS defender doesn't show for preseason amid contract dispute**\
+`Tristan Blackmon is eyeing an improved deal from Vancouver after winning MLS Defender of the Year in 2025`\
+https://nytimes.com/athletic/6967250/2026/01/14/tristan-blackmon-vancouver-whitecaps-contract-mls-preseason/
+
+**Players' union says NWSL's High Impact Player rule violates CBA, seeks 'immediate rescission'**\
+`The NWSLPA says the league's 'Rodman Rule' must be collectively bargained. `\
+https://nytimes.com/athletic/6971867/2026/01/14/nwsl-players-associaiton-high-impact-player-violation/
+
+**Trump’s Gulf Allies Do Not Want Him to Bomb Iran**\
+`While several of the Gulf Arab countries harbor little love for Iran, they worry that the consequences of rising tensions could blow back on them.`\
+https://nytimes.com/2026/01/14/world/middleeast/gulf-trump-iran.html
+
+**OpenAI Signs Another Deal With a Computer Chip Maker**\
+`The agreement with the start-up Cerebras is the latest in a series intended to expand the A.I. company’s computing power.`\
+https://nytimes.com/2026/01/14/technology/openai-cerebras-chips-deal.html
+
 **Is Whole Milk Healthier for Kids?**\
 `A new law will allow full-fat and 2 percent milk to be served in schools. Here’s what to know.`\
 https://nytimes.com/2026/01/14/well/eat/health-effects-whole-milk-kids.html
@@ -9,32 +37,4 @@ https://nytimes.com/video/dining/100000010368599/italian-broccoli-salad.html
 **Newsom Says California Will Not Extradite Abortion Provider to Louisiana**\
 `The case, escalating the interstate battle over abortion, is the second time Louisiana has criminally charged out-of-state doctors with sending abortion pills to Louisiana residents.`\
 https://nytimes.com/2026/01/14/us/california-louisiana-extradite-abortion-doctor.html
-
-**Giants' international class amounts to one big bet on Venezuelan shortstop Luis Hernandez**\
-`Hernandez, 17, is ranked by several outlets as the top prospect in this year's international amateur signing class.`\
-https://nytimes.com/athletic/6971969/2026/01/14/sf-giants-international-signing-day-preview-luis-hernandez/
-
-**Madrid out of Copa with Albacete loss in Arbeloa's first game in charge**\
-`Jefte Betancor netted a dramatic lobbed winning-goal in the fourth minute of stoppage time after Gonzalo Garcia had equalised three minutes `\
-https://nytimes.com/athletic/6972076/2026/01/14/real-madrid-lose-copa-del-rey-albacete/
-
-**Fine Arts Panel Postpones Review of Trump’s Ballroom**\
-`The Trump administration has been under pressure from preservationists to submit the ballroom project for a formal review.`\
-https://nytimes.com/2026/01/14/us/politics/fine-arts-panel-trump-ballroom.html
-
-**The Briefing: Chelsea 2 Arsenal 3 - A good night for Gyokeres? Should Garnacho have started? What did Rosenior change?**\
-` The Athletic's writers analyse the Carabao Cup semi-final first leg from Stamford Bridge`\
-https://nytimes.com/athletic/6963335/2026/01/14/chelsea-arsenal-carabao-cup-analysis-gyokeres-garnacho/
-
-**America Needs a Renee Good Civil Rights Act**\
-`An ICE killing in Minneapolis can be the impetus for finally closing a gaping hole in our constitutional protections.`\
-https://nytimes.com/2026/01/14/opinion/renee-good-civil-rights-constitution.html
-
-**Life, Liberty and the Pursuit of Unhappiness**\
-`One reason for the toxicity of American politics may be that our quality of life is slipping behind our peers’.`\
-https://nytimes.com/2026/01/14/opinion/america-quality-of-life.html
-
-**Fantasy trends and hidden gems: Target Mattias Samuelsson, Matty Beniers for Week 16**\
-`Shayna Goldman likes the Week 16 slate and tells fantasy managers who to roster with shifting lines and players returning from injury. `\
-https://nytimes.com/athletic/6971662/2026/01/14/fantasy-trends-hidden-gems-week-16/
 
