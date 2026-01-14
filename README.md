@@ -1,4 +1,24 @@
-**Hornets set to retire Dell Curry's jersey: 'This is the highest honor'**\
+**How to watch North Carolina vs. Stanford men's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Stanford Cardinal, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6971410/2026/01/14/north-carolina-vs-stanford-stream-how-to-watch-jan-14/
+
+**How to watch UCLA vs. Minnesota women's basketball: Time, TV, streaming**\
+`Find out how to watch the UCLA Bruins play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6971406/2026/01/14/ucla-vs-minnesota-stream-how-to-watch-jan-14/
+
+**How to watch Baylor vs. Utah women's basketball: Time, TV, streaming**\
+`Find out how to watch the Baylor Bears play the Utah Utes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6971398/2026/01/14/baylor-vs-utah-stream-how-to-watch-jan-14/
+
+**How to watch South Carolina vs. Arkansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6971395/2026/01/14/south-carolina-vs-arkansas-stream-how-to-watch-jan-14/
+
+**What are Trump’s Options in Iran?**\
+`President Trump has said that “help is on the way” for Iranian protesters. Amid reports that thousands of the protesters have been killed, our national security correspondent David E. Sanger describes what some of Mr. Trump’s options might be.`\
+https://nytimes.com/video/world/middleeast/100000010640541/what-are-trumps-options-in-iran.html
+
+**As jersey retirement looms, Dell Curry reflects on quarter-century with Hornets**\
 `Charlotte wrapped its arms around Curry, and now his jersey will hang in the rafters forever.`\
 https://nytimes.com/athletic/6971047/2026/01/14/dell-curry-nba-hornets-retirement/
 
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/14/opinion/china-trade-deficit-surplus-tariffs.html
 **ICE Is Waging War on Blue Cities**\
 `Will the agency’s brutality and capriciousness create blowback?`\
 https://nytimes.com/2026/01/14/opinion/ice-trump-minnesota.html
-
-**Aina returns to Forest's Europa League squad, Zinchenko drops out**\
-`Aina had been named in the initial squad in the summer, until he suffered a serious hamstring injury, but he has returned to fitness.`\
-https://nytimes.com/athletic/6971306/2026/01/14/nottingham-forest-squad-europa-league-aina-zinchenko/
-
-**Oregon quarterback Dante Moore will return for 2026 season**\
-`The 20-year-old from Detroit snubbed the NFL Draft for another season with the Ducks.`\
-https://nytimes.com/athletic/6957387/2026/01/14/oregon-quarterback-dante-moore-returns-school/
-
-**Quebec’s Unpopular Leader to Resign Ahead of Elections**\
-`Premier François Legault became Canada’s most popular provincial leader during the pandemic thanks to his reassuring, avuncular persona. But missteps sank his hopes for a third term.`\
-https://nytimes.com/2026/01/14/world/americas/quebec-leader-resignation.html
-
-**California Investigates Elon Musk’s xAI Over Sexualized Images**\
-`The state will examine whether xAI, which owns the social media platform X and created the A.I. chatbot Grok, violated state law.`\
-https://nytimes.com/2026/01/14/technology/grok-ai-x-investigation-california.html
-
-**Ndamukong Suh, Mark Ingram among Class of 2026 College Football Hall of Fame inductees**\
-`The 22-man class features 10 former first-team All-Americans and four multi-year first-team All-Americans.`\
-https://nytimes.com/athletic/6970249/2026/01/14/ndamukong-suh-mark-ingram-college-hall-of-fame/
 

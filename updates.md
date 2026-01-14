@@ -1,3 +1,7 @@
+**Hornets set to retire Dell Curry's jersey: 'This is the highest honor'**\
+`Charlotte wrapped its arms around Curry, and now his jersey will hang in the rafters forever.`\
+https://nytimes.com/athletic/6971047/2026/01/14/dell-curry-nba-hornets-retirement/
+
 **Renfrew Christie Dies at 76; Sabotaged Racist Regime’s Nuclear Program**\
 `He played a key role in ending apartheid South Africa’s secret weapons program in the 1980s by helping the African National Congress bomb critical facilities.`\
 https://nytimes.com/2026/01/14/world/africa/renfrew-christie-dead.html
