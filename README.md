@@ -1,3 +1,7 @@
+**Iran Prepares to Execute Protester**\
+`Iran prepared to execute Erfan Soltani, 26, on Wednesday. Soltani would be the first protester to be executed in the latest wave of antigovernment unrest. President Trump said that “the killing in Iran is stopping,” but did not elaborate on his statement.`\
+https://nytimes.com/video/world/middleeast/100000010645079/iran-protests-trump-executions.html
+
 **Congress Is Spurning Many of Trump’s Proposed Spending Cuts**\
 `Months after the partisan clash that led to the longest shutdown in history, lawmakers have agreed on spending bills that look far different from what the president wanted.`\
 https://nytimes.com/2026/01/14/us/politics/congress-trump-spending-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/14/world/middleeast/gulf-trump-iran.html
 **OpenAI Signs Another Deal With a Computer Chip Maker**\
 `The agreement with the start-up Cerebras is the latest in a series intended to expand the A.I. company’s computing power.`\
 https://nytimes.com/2026/01/14/technology/openai-cerebras-chips-deal.html
-
-**Is Whole Milk Healthier for Kids?**\
-`A new law will allow full-fat and 2 percent milk to be served in schools. Here’s what to know.`\
-https://nytimes.com/2026/01/14/well/eat/health-effects-whole-milk-kids.html
 
