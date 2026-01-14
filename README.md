@@ -1,3 +1,7 @@
+**Rebecca Kilgore, 76, Dies; Acclaimed Interpreter of American Songbook**\
+`An elegant jazz singer with adventurous taste, she counted among her fans the performer Michael Feinstein and the songwriter Dave Frishberg, who called her technique “flawless.”`\
+https://nytimes.com/2026/01/14/arts/music/rebecca-kilgore-dead.html
+
 **Collectors lays out plans for PSA, SGC and Beckett following recent controversies**\
 `Collectors grading business unit president Ryan Hoge lays out some of what's to come for all three affiliated grading brands.`\
 https://nytimes.com/athletic/6970111/2026/01/14/psa-sgc-beckett-collectors-grading/
@@ -17,12 +21,4 @@ https://nytimes.com/2026/01/14/business/bilt-rent-mortgage-rewards.html
 **Leonardo DiCaprio, Benicio Del Toro and Rose Byrne Pick Up Awards in New York**\
 `The stars were honored at the annual National Board of Review gala, where winners called attention to protests in Minneapolis and the violent crackdown in Iran.`\
 https://nytimes.com/2026/01/14/style/national-board-review-gala-leonardo-dicapio-benicio-del-toro.html
-
-**2026 May Be the Year of the Mega I.P.O.**\
-`If SpaceX, OpenAI and Anthropic go public, they will unleash gushers of cash for Silicon Valley and Wall Street.`\
-https://nytimes.com/2026/01/14/technology/ai-ipo-openai-anthropic-spacex.html
-
-**Travis Hunter will continue playing offense, defense once recovered from injury**\
-`“Very fair to say that his rehab process is going as expected. He’s hitting it hard,” Jaguars GM James Gladstone said Monday.`\
-https://nytimes.com/athletic/6970239/2026/01/14/travis-hunter-jaguars-offense-defense-injury/
 
