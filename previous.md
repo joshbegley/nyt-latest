@@ -1,3 +1,11 @@
+**Saks Files for Bankruptcy as Department Stores Fight for Survival**\
+`The parent company of Saks, Neiman Marcus and Bergdorf Goodman struggled with debt, designers and customers in recent years.`\
+https://nytimes.com/2026/01/14/business/saks-files-for-bankruptcy.html
+
+**Ty Simpson stays committed to NFL Draft despite 7-figure transfer offers**\
+`Webb declined to get into specifics but said that Simpson cherished playing at Alabama and didn't want to play elsewhere.`\
+https://nytimes.com/athletic/6968667/2026/01/14/ty-simpson-alabama-nil-nfl-draft-2026/
+
 **Charalampos Kostoulas could have no better striker to learn from than Danny Welbeck**\
 `Kostoulas has benefited during his introduction to English football from working alongside the vastly experienced Welbeck`\
 https://nytimes.com/athletic/6965731/2026/01/14/charalampos-kostoulas-danny-welbeck-brighton/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6965663/2026/01/14/oliver-glasner-crystal-palace-sq
 **Respect, rivalry and rifts - the story behind the Salah-Mane relationship**\
 `They combined to devastating effect for Liverpool but the dynamic was not without its challenges. They now face each other again at AFCON`\
 https://nytimes.com/athletic/6964341/2026/01/14/salah-mane-liverpool-afcon/
-
-**Hakimi is the face of this AFCON in Morocco. But there is a cloud hanging over him**\
-`Morocco's captain is under investigation in France after an allegation of rape was made against him but that has not affected his popularity`\
-https://nytimes.com/athletic/6963995/2026/01/14/achraf-hakimi-morocco-afcon/
-
-**Alvaro Arbeloa brings Spartan passion to Real Madrid. Can he match it with coaching quality?**\
-`The former full-back won a reputation for being a warrior for Madrid during his playing days, but this is his first job in elite coaching`\
-https://nytimes.com/athletic/6966501/2026/01/14/alvaro-arbeloa-real-madrid-xabi-alonso-profile/
 

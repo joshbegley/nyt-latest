@@ -1,3 +1,11 @@
+**Saks Files for Bankruptcy as Department Stores Fight for Survival**\
+`The parent company of Saks, Neiman Marcus and Bergdorf Goodman struggled with debt, designers and customers in recent years.`\
+https://nytimes.com/2026/01/14/business/saks-files-for-bankruptcy.html
+
+**Ty Simpson stays committed to NFL Draft despite 7-figure transfer offers**\
+`Webb declined to get into specifics but said that Simpson cherished playing at Alabama and didn't want to play elsewhere.`\
+https://nytimes.com/athletic/6968667/2026/01/14/ty-simpson-alabama-nil-nfl-draft-2026/
+
 **Charalampos Kostoulas could have no better striker to learn from than Danny Welbeck**\
 `Kostoulas has benefited during his introduction to English football from working alongside the vastly experienced Welbeck`\
 https://nytimes.com/athletic/6965731/2026/01/14/charalampos-kostoulas-danny-welbeck-brighton/
