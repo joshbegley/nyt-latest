@@ -1,3 +1,11 @@
+**FIFA says it receives record 500 million ticket requests for 2026 World Cup**\
+`FIFA will now conduct random draws for each of the World Cup’s 104 matches and award tickets to the selected applicants in February.`\
+https://nytimes.com/athletic/6971550/2026/01/14/world-cup-tickets-demand/
+
+**Iran Prepares to Execute Protester**\
+`Iran had been prepared to execute Erfan Soltani, 26, on Wednesday. He would have been the first protester to be executed in the latest wave of antigovernment unrest.`\
+https://nytimes.com/video/world/middleeast/100000010645079/iran-protests-trump-executions.html
+
 **Denmark Has ‘Fundamental Disagreement’ With U.S. Over Greenland**\
 `On Wednesday, Denmark and Greenland’s foreign ministers met with the Trump administration. President Trump urged the United States needs Greenland for national security purposes but both foreign officials argued Greenland is not up for sale.`\
 https://nytimes.com/video/world/europe/100000010645800/denmark-greenland-foreign-officials-disagreement-trump-administration.html
