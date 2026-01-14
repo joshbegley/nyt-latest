@@ -1,3 +1,11 @@
+**Want Your MTV? A Rogue Site Is Bringing Back the Videos.**\
+`The unofficial website MTV Rewind has recreated the channel’s classic era, pulling in thousands of clips. Its developer says it’s an antidote to the algorithms.`\
+https://nytimes.com/2026/01/14/arts/music/mtv-rewind-video-database.html
+
+**How to get L.A. 2028 Olympics tickets: Lottery details, dates, prices and more**\
+`The ticket sales process for the 2028 Olympics in Los Angeles begins Wednesday. Here's everything you need to know.`\
+https://nytimes.com/athletic/6969083/2026/01/14/la-olympics-2028-tickets-process-lottery/
+
 **Red-hot Timberwolves may not need to make a trade to contend: 'We got a great team'**\
 `Bones Hyland and rookie Joan Beringer showed the team's depth against the Bucks as Anthony Edwards and Rudy Gobert sat out.`\
 https://nytimes.com/athletic/6968362/2026/01/14/timberwolves-bones-hyland-joan-beringer-nba-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6966071/2026/01/14/oilers-forwards-trades-vasily-po
 **A Top Fed Official Says the Trump Administration’s Threats Are ‘About Monetary Policy’**\
 `Neel T. Kashkari, president of the Federal Reserve Bank of Minneapolis, defended Jerome H. Powell, the Fed chair, in an interview. He also said interest rates should be held steady this month.`\
 https://nytimes.com/2026/01/14/us/politics/kashkari-fed-interest-rates.html
-
-**Why the other Grand Slams will be watching Australia's 'One Point Slam' with envy**\
-`The event embraced the chaos, fun and unpredictability that tennis can sometimes avoid.`\
-https://nytimes.com/athletic/6969065/2026/01/14/tennis-one-point-slam-australian-open/
-
-**Venezuelan Envoy to Make First Washington Trip in Years Amid Thaw**\
-`Félix Plasencia, an envoy of the interim government, will travel to the United States on the day the opposition leader María Corina Machado is to meet President Trump.`\
-https://nytimes.com/2026/01/14/world/americas/venezuela-diplomat-us-visit-washington.html
 
