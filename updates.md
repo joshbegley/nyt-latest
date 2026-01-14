@@ -1,3 +1,7 @@
+**Ajax sign Maximilian Ibrahimovic, son of Zlatan, on loan from Milan**\
+`Maximilian, a 19-year-old right-footed forward, is keen to distinguish himself from his celebrated father.`\
+https://nytimes.com/athletic/6968981/2026/01/14/ajax-sign-ibrahimovic-zlatan-son/
+
 **Drum Diplomacy: Leaders of Japan and South Korea in Sync to K-pop**\
 `Prime Minister Sanae Takaichi of Japan and President Lee Jae Myung of South Korea played along to BTS and “KPop Demon Hunters,” in a display meant to show warming ties.`\
 https://nytimes.com/2026/01/14/world/asia/japan-south-korea-kpop-drum-diplomacy.html
