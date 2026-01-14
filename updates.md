@@ -1,3 +1,7 @@
+**Trump Makes Obscene Gesture at Heckler in Ford Factory Tour**\
+`A White House spokesman said the president “gave an appropriate and unambiguous response.”`\
+https://nytimes.com/2026/01/13/us/politics/trump-heckler-middle-finger.html
+
 **The Minneapolis Mayor Who Cursed Out ICE Is No Stranger to Crisis**\
 `Mayor Jacob Frey, a Democrat, has clashed with his party’s activist wing. His response to ICE has won him new respect at home and new foes in Washington.`\
 https://nytimes.com/2026/01/13/us/politics/minneapolis-mayor-jacob-frey-ice.html
