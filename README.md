@@ -1,3 +1,19 @@
+**How to Make a Nonalcoholic Martini**\
+`Plus two other mocktail ideas for those who love a paloma or a michelada.`\
+https://nytimes.com/2026/01/15/t-magazine/mocktail-recipes-nonalcoholic-martini.html
+
+**Phillies sign Francisco Renteria, toolsy 17-year-old Venezuelan outfielder, to record deal**\
+`The club was drawn to Renteria’s bat-to-ball skills, power, athleticism and maturity. Plus, notes on the Phillies' international class.`\
+https://nytimes.com/athletic/6975011/2026/01/15/phillies-francisco-renteria-prospect-profile/
+
+**Patrick Mahomes eyes Week 1 return in recovery from knee injury**\
+`Mahomes says he's pushing himself to the limit every day in rehab in hopes of being able to do a lot in training camp this summer.`\
+https://nytimes.com/athletic/6974914/2026/01/15/chiefs-patrick-mahomes-knee-injury-recovery/
+
+**ICE Is Losing the Political Battle**\
+`“When I look at the ICE operation in Minnesota,” says the Opinion columnist Jamelle Bouie, “I see a White House that is panicking and that is losing.”`\
+https://nytimes.com/video/opinion/100000010645286/ice-is-losing-the-political-battle.html
+
 **Seahawks QB Sam Darnold questionable for showdown vs. 49ers**\
 `Darnold said he will continue to receive treatment and called the odds he might miss the game, "Probably closer to zero."`\
 https://nytimes.com/athletic/6975206/2026/01/15/seahawks-qb-sam-darnold-questionable-49ers-playoffs/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/15/us/politics/stars-and-stripes-pentagon.html
 **A Healthy Brain**\
 `Even when so much is happening in the world, it’s important to take care of your brain health. Our Well desk shares tips.`\
 https://nytimes.com/2026/01/15/world/brain-health-challenge-trump-iran.html
-
-**Milan Court Closes Fraud Case Against Italian Influencer Chiara Ferragni**\
-`A judge dropped the case against Ms. Ferragni, who had been embroiled in a scandal over sales of a limited edition Christmas cake marketed as supporting cancer treatment.`\
-https://nytimes.com/2026/01/15/world/europe/chiara-ferragni-pandoro-cake-italy-influencer.html
-
-**Football lawmakers to discuss bringing in countdowns to combat time-wasting**\
-`The International Football Association Board (IFAB) is keen to reduce the amount of time lost in games.`\
-https://nytimes.com/athletic/6975130/2026/01/15/football-rules-timewasting-throw-in-goal-kick/
-
-**Arkansas Rescinds Choice of Law School Dean Over Transgender Stance**\
-`The University of Arkansas withdrew a job offer to a South Carolina legal scholar after state officials learned that she had signed a legal brief concerning transgender athletes, state lawmakers said.`\
-https://nytimes.com/2026/01/15/us/politics/university-of-arkansas-dean-emily-suski-transgender.html
-
-**There’s Never Been a Better Time to Eat Chinese Food**\
-`Chains from the East Asian nation are popping up across New York City, bringing with them excellent hot pot, dumplings and mapo tofu.`\
-https://nytimes.com/2026/01/15/dining/chinese-food-nyc.html
 
