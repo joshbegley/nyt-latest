@@ -1,10 +1,14 @@
+**Football lawmakers to discuss bringing in countdowns to combat time-wasting**\
+`The International Football Association Board (IFAB) is keen to reduce the amount of time lost in games.`\
+https://nytimes.com/athletic/6975130/2026/01/15/football-rules-timewasting-throw-in-goal-kick/
+
 **Arkansas Rescinds Choice of Law School Dean Over Transgender Stance**\
 `The University of Arkansas withdrew a job offer to a South Carolina legal scholar after state officials learned that she had signed a legal brief concerning transgender athletes, state lawmakers said.`\
 https://nytimes.com/2026/01/15/us/politics/university-of-arkansas-dean-emily-suski-transgender.html
 
 **There’s Never Been a Better Time to Eat Chinese Food**\
 `Chains from the East Asian nation are popping up across New York City, bringing with them excellent hot pot, dumplings and mapo tofu.`\
-https://nytimes.com/2026/01/15/dining/theres-never-been-a-better-time-to-eat-chinese-food.html
+https://nytimes.com/2026/01/15/dining/chinese-food-nyc.html
 
 **Spurs turned clippers: Wemby, Keldon Johnson shave each other's heads because ... why not?**\
 `“I’ve been looking for a reason to do it,” Johnson said. Now, it's done.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6974873/2026/01/15/sf-giants-luis-hernandez-signing
 **Fantasy basketball hot topics of the week: Ja Morant trade watch and more**\
 `Stan Son addresses fantasy-relevant news around the league, such as the Ja Morant trade rumors, and offers more fantasy basketball takes. `\
 https://nytimes.com/athletic/6974814/2026/01/15/fantasy-basketball-hot-topics-ja-morant-trade/
-
-**The Cities That Broke Heat Records Last Year**\
-`Thousands of cities around the world saw their hottest year on record in 2025 as the planet has inched closer to a key temperature threshold.`\
-https://nytimes.com/2026/01/15/climate/the-cities-that-broke-heat-records-last-year.html
 

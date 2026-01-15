@@ -1,3 +1,7 @@
+**Arkansas Rescinds Choice of Law School Dean Over Transgender Stance**\
+`The University of Arkansas withdrew a job offer to a South Carolina legal scholar after state officials learned that she had signed a legal brief concerning transgender athletes, state lawmakers said.`\
+https://nytimes.com/2026/01/15/us/politics/university-of-arkansas-dean-emily-suski-transgender.html
+
 **There’s Never Been a Better Time to Eat Chinese Food**\
 `Chains from the East Asian nation are popping up across New York City, bringing with them excellent hot pot, dumplings and mapo tofu.`\
 https://nytimes.com/2026/01/15/dining/theres-never-been-a-better-time-to-eat-chinese-food.html

@@ -1,3 +1,7 @@
+**Arkansas Rescinds Choice of Law School Dean Over Transgender Stance**\
+`The University of Arkansas withdrew a job offer to a South Carolina legal scholar after state officials learned that she had signed a legal brief concerning transgender athletes, state lawmakers said.`\
+https://nytimes.com/2026/01/15/us/politics/university-of-arkansas-dean-emily-suski-transgender.html
+
 **There’s Never Been a Better Time to Eat Chinese Food**\
 `Chains from the East Asian nation are popping up across New York City, bringing with them excellent hot pot, dumplings and mapo tofu.`\
 https://nytimes.com/2026/01/15/dining/theres-never-been-a-better-time-to-eat-chinese-food.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6974814/2026/01/15/fantasy-basketball-hot-topics-ja
 **The Cities That Broke Heat Records Last Year**\
 `Thousands of cities around the world saw their hottest year on record in 2025 as the planet has inched closer to a key temperature threshold.`\
 https://nytimes.com/2026/01/15/climate/the-cities-that-broke-heat-records-last-year.html
-
-**How to watch Islanders vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6975059/2026/01/15/islanders-vs-oilers-stream-how-to-watch-jan-15/
 
