@@ -1,3 +1,15 @@
+**Seahawks QB Sam Darnold questionable for showdown vs. 49ers**\
+`Darnold said he will continue to receive treatment and called the odds he might miss the game, "Probably closer to zero."`\
+https://nytimes.com/athletic/6975206/2026/01/15/seahawks-qb-sam-darnold-questionable-49ers-playoffs/
+
+**U.S. Forces Seize Sixth Oil Tanker Linked to Venezuela**\
+`The Coast Guard boarded and seized the Russian-flagged tanker, originally named Veronica, in a pre-dawn operation in the Caribbean Sea.`\
+https://nytimes.com/2026/01/15/us/politics/oil-tanker-seized-venezuela.html
+
+**Who will join John Harbaugh's New York Giants staff? 7 candidates for defensive coordinator**\
+`Who will lead Harbaugh's defense in New York? The new head coach should have plenty of options to choose from. `\
+https://nytimes.com/athletic/6974721/2026/01/15/ny-giants-john-harbaugh-defensive-coordinator-candidates-jim-leonhard-joe-cullen/
+
 **Who will join John Harbaugh's New York Giants staff? 7 candidates for defensive coordinator**\
 `Who will lead Harbaugh's defense in New York? The new head coach should have plenty of options to choose from. `\
 https://nytimes.com/athletic/6974721/2026/01/15/ny-giants-john-harbaugh-defensive-coordinator-candidates/
