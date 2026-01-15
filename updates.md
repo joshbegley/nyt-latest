@@ -1,3 +1,19 @@
+**Inside the Fight to Keep Iran Online**\
+`Activists spent years preparing for a communications blackout in Iran, smuggling in Starlink satellite internet systems and making digital shutdowns harder for the authorities to enforce.`\
+https://nytimes.com/2026/01/15/technology/iran-online-starlink.html
+
+**‘Star Wars’ Boss to Depart, Ending an Asteroid-Filled Reign**\
+`Kathleen Kennedy will step down as Lucasfilm’s president and return to producing. Two studio veterans will take over.`\
+https://nytimes.com/2026/01/15/business/star-wars-boss-to-depart-ending-an-asteroid-filled-reign.html
+
+**Trump Threatens to Invoke the Insurrection Act and Send Troops to Minnesota**\
+`The law, which was last invoked in 1992, could allow President Trump to deploy the military inside the United States. Doing so would be a major escalation.`\
+https://nytimes.com/2026/01/15/us/politics/trump-threatens-to-invoke-the-insurrection-act-and-send-troops-to-minnesota.html
+
+**Who will join John Harbaugh's New York Giants staff? 7 candidates for defensive coordinator**\
+`Who will lead Harbaugh's defense in New York? The new head coach should have plenty of options. `\
+https://nytimes.com/athletic/6974721/2026/01/15/ny-giants-john-harbaugh-defensive-coordinator-candidates-jim-leonhard-joe-cullen/
+
 **How to Make a Nonalcoholic Martini**\
 `Plus two other mocktail ideas for those who love a paloma or a michelada.`\
 https://nytimes.com/2026/01/15/t-magazine/mocktail-recipes-nonalcoholic-martini.html
