@@ -1,3 +1,7 @@
+**The global sports industry risks losing $1.6trillion by 2050, report warns**\
+`Climate change and increasing physical inactivity flagged as factors which can slow the growth of sports economy worldwide`\
+https://nytimes.com/athletic/6967742/2026/01/15/davos-wef-global-sports-industry-trillion/
+
 **Morocco, a lack of tension, expectation and a belief they can win a first AFCON in 50 years**\
 `Hosts Morocco are through to the final of the Africa Cup of Nations`\
 https://nytimes.com/athletic/6972988/2026/01/15/morocco-afcon-nigeria-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/heres-what-to
 **Live Updates: Astronauts Head Home After Space Station Medical Evacuation**\
 `Two Americans and astronauts from Japan and Russia are set to splash down in the Pacific Ocean after a medical issue prompted NASA to move up their return to Earth.`\
 https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return
-
-**The New York Times in Print for Thursday, Jan. 15, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/01/15/todays-new-york-times
 
