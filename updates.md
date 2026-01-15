@@ -1,3 +1,11 @@
+**Federal Agent Shoots Immigrant in Minneapolis, Homeland Security Says**\
+`The agent shot an immigrant from Venezuela in the leg while trying to arrest him, an official said. The shooting comes a week after an ICE agent fatally shot a woman in the city.`\
+https://nytimes.com/2026/01/14/us/minneapolis-federal-agent-shooting-immigration.html
+
+**Visible Sign of Hard Work**\
+`Wendy L. Brandes and Barbara Lin make their collaboration debut in the New York Times Crossword.`\
+https://nytimes.com/2026/01/14/crosswords/daily-puzzle-2026-01-15.html
+
 **With the Alex Bregman era, World Series expectations return to Wrigley Field**\
 `As the Cubs introduce Bregman as third baseman, they'll reintroduce themselves as a big-market franchise with serious ambitions to win.`\
 https://nytimes.com/athletic/6972851/2026/01/14/cubs-alex-bregman-world-series-wrigley-field/
