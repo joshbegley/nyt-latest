@@ -1,3 +1,7 @@
+**Eagles looking to 'win now' with their OC hire, Nick Sirianni says**\
+`The Philadelphia head coach and general manager Howie Roseman also addressed whether A.J. Brown could be traded in the offseason.`\
+https://nytimes.com/athletic/6974186/2026/01/15/philadelphia-eagles-nick-sirianni-howie-roseman/
+
 **Judge Proposes Restricting Deportation of Scores of Noncitizen Academics**\
 `In a case over the First Amendment rights of noncitizen scholars, a federal judge proposed extending protections to members of two academic groups behind a lawsuit.`\
 https://nytimes.com/2026/01/15/us/politics/student-protester-deportations-trump-khalil.html
