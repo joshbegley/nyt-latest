@@ -1,3 +1,11 @@
+**'Pain makes a man': Grady Jarrett's wisdom and work helping fuel Bears' playoff run**\
+`Jarrett's voice and work habits have lent fuel to a surprising run. “He is wired the way we want our entire team wired,” Ben Johnson says.`\
+https://nytimes.com/athletic/6972764/2026/01/15/bears-grady-jarrett-wisdom-nfl-playoffs/
+
+**Pistons at NBA trade deadline: Evaluating potential moves and future projections**\
+`Former NBA exec John Hollinger talks to Hunter Patterson about what the Pistons should do at the trade deadline.`\
+https://nytimes.com/athletic/6969906/2026/01/15/pistons-nba-trade-deadline/
+
 **The NBA is playing its first regular-season game in Germany. Here's what to know**\
 `Moritz and Franz Wagner grew up in Berlin. On Thursday, their Magic meet the Grizzlies at Uber Arena.`\
 https://nytimes.com/athletic/6965164/2026/01/15/nba-berlin-germany-game-magic-grizzlies-wagner-morant/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6972829/2026/01/15/steelers-ravens-mike-tomlin-john
 **Why a Yankees, Cody Bellinger reunion feels inevitable**\
 `The Yankees and Bellinger need each other.`\
 https://nytimes.com/athletic/6971303/2026/01/15/yankees-cody-bellinger-reunion/
-
-**16 Stats: How McDavid's 20-game point streak stacks up to Crosby's 2011 25-game streak**\
-`Connor McDavid is willing the Oilers to greatness, the Lightning are the class of the East, and revisiting Rob Zamuner making Team Canada.`\
-https://nytimes.com/athletic/6971426/2026/01/15/16-stats-connor-mcdavid-sidney-crosby/
-
-**From No. 1,654 to the Masters: Meet Johnny Keefer, the PGA Tour rookie on meteoric ascent**\
-`Keefer, 25, starts his first PGA Tour season at the Sony Open. But the way he's won on the minor-league tours has demanded attention.`\
-https://nytimes.com/athletic/6972064/2026/01/15/johnny-keefer-pga-tour-rookie-masters/
 

@@ -1,3 +1,11 @@
+**'Pain makes a man': Grady Jarrett's wisdom and work helping fuel Bears' playoff run**\
+`Jarrett's voice and work habits have lent fuel to a surprising run. “He is wired the way we want our entire team wired,” Ben Johnson says.`\
+https://nytimes.com/athletic/6972764/2026/01/15/bears-grady-jarrett-wisdom-nfl-playoffs/
+
+**Pistons at NBA trade deadline: Evaluating potential moves and future projections**\
+`Former NBA exec John Hollinger talks to Hunter Patterson about what the Pistons should do at the trade deadline.`\
+https://nytimes.com/athletic/6969906/2026/01/15/pistons-nba-trade-deadline/
+
 **The NBA is playing its first regular-season game in Germany. Here's what to know**\
 `Moritz and Franz Wagner grew up in Berlin. On Thursday, their Magic meet the Grizzlies at Uber Arena.`\
 https://nytimes.com/athletic/6965164/2026/01/15/nba-berlin-germany-game-magic-grizzlies-wagner-morant/
