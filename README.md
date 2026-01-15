@@ -1,3 +1,15 @@
+**Why it's important that the Giants signed Luis Hernández**\
+`A lot can go wrong with an international signing, but it's possible adding Hernández will be the Giants' best move of this offseason.`\
+https://nytimes.com/athletic/6974873/2026/01/15/sf-giants-luis-hernandez-signing-takeaways/
+
+**Fantasy basketball hot topics of the week: Ja Morant trade watch and more**\
+`Stan Son addresses fantasy-relevant news around the league, such as the Ja Morant trade rumors, and offers more fantasy basketball takes. `\
+https://nytimes.com/athletic/6974814/2026/01/15/fantasy-basketball-hot-topics-ja-morant-trade/
+
+**The Cities That Broke Heat Records Last Year**\
+`Thousands of cities around the world saw their hottest year on record in 2025 as the planet has inched closer to a key temperature threshold.`\
+https://nytimes.com/2026/01/15/climate/the-cities-that-broke-heat-records-last-year.html
+
 **How to watch Islanders vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6975059/2026/01/15/islanders-vs-oilers-stream-how-to-watch-jan-15/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6975043/2026/01/15/maple-leafs-vs-golden-knights-st
 **How to watch Jets vs. Wild: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6975041/2026/01/15/jets-vs-wild-stream-how-to-watch-jan-15/
-
-**How to watch Thunder vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6975036/2026/01/15/thunder-vs-rockets-stream-how-to-watch-jan-15/
-
-**How to watch Knicks vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6975028/2026/01/15/knicks-vs-warriors-stream-how-to-watch-jan-15/
-
-**How to watch Stars vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6975015/2026/01/15/stars-vs-mammoth-stream-how-to-watch-jan-15/
 
