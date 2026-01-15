@@ -1,3 +1,7 @@
+**Clashes in Minneapolis After Federal Agent Shoots Man**\
+`A federal agent shot and injured a Venezuelan man in Minneapolis on Wednesday night, a Homeland Security official said. The shooting came one week after an ICE agent shot and killed a woman in the city.`\
+https://nytimes.com/video/us/100000010646474/minneapolis-federal-agent-shooting-immigration.html
+
 **How NASA deals with astronauts’ medical needs on the I.S.S.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/how-nasa-deals-with-astronauts-medical-needs-on-the-iss
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6972988/2026/01/15/morocco-afcon-nigeria-analysis/
 **What happens during the astronauts’ return to Earth?**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/what-happens-during-the-astronauts-return-to-earth
-
-**Word of the Day: autonomous**\
-`This word has appeared in 378 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/01/15/learning/word-of-the-day-autonomous.html
 
