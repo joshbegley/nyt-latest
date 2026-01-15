@@ -1,3 +1,7 @@
+**“Why not?” Why retired Dodgers great Clayton Kershaw will play in the World Baseball Classic**\
+`“I figured this is the perfect time to try the WBC. I really want to be a part of it,” Kershaw said. `\
+https://nytimes.com/athletic/6974467/2026/01/15/clayton-kershaw-world-baseball-classic-dodgers-retired/
+
 **Wild's Jonas Brodin could miss Olympics with lower-body injury**\
 `Brodin, who has played in 42 of the Wild's 47 games this season, has been injured often throughout his career because of his tough minutes.`\
 https://nytimes.com/athletic/6974040/2026/01/15/jonas-brodin-injury-wild-sweden-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6974150/2026/01/15/mike-tomlin-resignation-aaron-ro
 **Man Utd new manager bingo: What will Carrick say - and how will he say it?**\
 `‘The Manchester United way’ is just one of the phrases to listen out for as the interim head coach has his inaugural press conference`\
 https://nytimes.com/athletic/6966540/2026/01/15/manchester-united-new-manager-bingo/
-
-**Tessa Thompson in ‘Hedda,’ and More Theater to Stream**\
-`Other picks include “Bat Out of Hell: The Musical,” a new season of Playing on Air podcasts and “Lazarus,” featuring the music of David Bowie.`\
-https://nytimes.com/2026/01/15/theater/theater-to-stream-tessa-thompson-hedda.html
 
