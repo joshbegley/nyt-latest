@@ -34,7 +34,3 @@ https://nytimes.com/2026/01/15/climate/empire-wind-court-ruling.html
 `Southgate's comments were framed in the context of Chelsea, Manchester United and Real Madrid all parting company with their head coaches.`\
 https://nytimes.com/athletic/6974317/2026/01/15/gareth-southgate-manager-england/
 
-**Cuba Receives Remains of 32 Citizens Killed in U.S. Strikes in Venezuela**\
-`The Cubans had served as part of the security detail of Nicolás Maduro, Venezuela’s ousted president.`\
-https://nytimes.com/2026/01/15/world/americas/cuba-remains-venezuela-strikes-maduro.html
-
