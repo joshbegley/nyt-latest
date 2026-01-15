@@ -1,3 +1,7 @@
+**Verizon Offers $20 Credit to Users Affected by Outage**\
+`A company spokeswoman said “a software issue” was to blame for the widespread outage that disrupted service across the United States on Wednesday.`\
+https://nytimes.com/2026/01/15/us/verizon-outage-issues-credit.html
+
 **Jim Hartung, Gymnast Who Helped Deliver U.S. Gold, Dies at 65**\
 `At the 1984 Games in Los Angeles, he was part of the first — and still only — Olympic gold medal won by the American men in the gymnastics team competition.`\
 https://nytimes.com/2026/01/15/sports/jim-hartung-dead.html
