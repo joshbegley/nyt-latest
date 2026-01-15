@@ -1,3 +1,11 @@
+**Xabi Alonso and Real Madrid felt like a sure thing — but what does it really take to manage the elite?**\
+`The Alonsos, Amorims, Marescas and Roseniors could still be the future. But they’re also a risk`\
+https://nytimes.com/athletic/6969108/2026/01/15/xabi-alonso-real-madrid-management-ancelotti-guardiola/
+
+**West Ham and Tottenham have lost their Way**\
+`The two clubs have huge histories but a modern malaise - unhappy fans, owner issues, unpopular managers, and recruitment failings`\
+https://nytimes.com/athletic/6928993/2026/01/15/west-ham-tottenham-hotspur-style-history-way/
+
 **Texas stuns No. 10 Vanderbilt as Longhorns surge against SEC's top teams**\
 `Texas earns two top 15 victories over Alabama and Vanderbilt in a four day span.`\
 https://nytimes.com/athletic/6973186/2026/01/15/texas-hands-vanderbilt-first-lost/

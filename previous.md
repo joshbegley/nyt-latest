@@ -1,3 +1,11 @@
+**Xabi Alonso and Real Madrid felt like a sure thing — but what does it really take to manage the elite?**\
+`The Alonsos, Amorims, Marescas and Roseniors could still be the future. But they’re also a risk`\
+https://nytimes.com/athletic/6969108/2026/01/15/xabi-alonso-real-madrid-management-ancelotti-guardiola/
+
+**West Ham and Tottenham have lost their Way**\
+`The two clubs have huge histories but a modern malaise - unhappy fans, owner issues, unpopular managers, and recruitment failings`\
+https://nytimes.com/athletic/6928993/2026/01/15/west-ham-tottenham-hotspur-style-history-way/
+
 **Texas stuns No. 10 Vanderbilt as Longhorns surge against SEC's top teams**\
 `Texas earns two top 15 victories over Alabama and Vanderbilt in a four day span.`\
 https://nytimes.com/athletic/6973186/2026/01/15/texas-hands-vanderbilt-first-lost/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/15/pageoneplus/quote-of-the-day-greenlanders-shocked
 **Connections: Sports Edition Coach: Hints for Jan. 15, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6973214/2026/01/15/connections-sports-edition-hints-for-jan-15-2026/
-
-**Corrections: Jan. 15, 2026**\
-`Corrections that appeared in print on Thursday, Jan. 15, 2026.`\
-https://nytimes.com/2026/01/15/pageoneplus/corrections-jan-15-2026.html
-
-**Mavericks star rookie Cooper Flagg injures ankle against Nuggets**\
-`Flagg has been one of the Mavericks’ most durable players this season. He has missed only one game.`\
-https://nytimes.com/athletic/6973150/2026/01/14/cooper-flagg-left-ankle-sprain-mavericks/
 
