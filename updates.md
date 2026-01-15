@@ -1,3 +1,15 @@
+**2027 Tours de France to visit major UK cities**\
+`“This is not a sporting moment, it is a national moment,” British Cycling CEO Jon Dutton said on Thursday.`\
+https://nytimes.com/athletic/6974539/2026/01/15/tours-de-france-2027-uk-cities/
+
+**ICE’s No. 2 Official Leaves to Run for the House in Ohio**\
+`Madison Sheahan, a top enforcer of President Trump’s immigration crackdown, said she would step down to challenge Representative Marcy Kaptur, a Democrat.`\
+https://nytimes.com/2026/01/15/us/politics/madison-sheahan-ice-ohio-house-congress.html
+
+**'Why not?' Dodgers great Clayton Kershaw explains why he'll play in the World Baseball Classic**\
+`“I figured this is the perfect time to try the WBC. I really want to be a part of it,” Kershaw said. `\
+https://nytimes.com/athletic/6974467/2026/01/15/clayton-kershaw-world-baseball-classic-dodgers-retired/
+
 **Harvey Pratt, Who Designed the Native American Veterans Memorial, Dies at 84**\
 `A self-taught artist, he also spent more than half a century creating forensic sketches and reconstructions for law-enforcement agencies.`\
 https://nytimes.com/2026/01/15/arts/design/harvey-pratt-dead.html
