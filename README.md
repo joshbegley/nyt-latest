@@ -1,3 +1,15 @@
+**Morocco, a lack of tension, expectation and a belief they can win a first AFCON in 50 years**\
+`Hosts Morocco are through to the final of the Africa Cup of Nations`\
+https://nytimes.com/athletic/6972988/2026/01/15/morocco-afcon-nigeria-analysis/
+
+**What happens during the astronauts’ return to Earth?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/what-happens-during-the-astronauts-return-to-earth
+
+**Word of the Day: autonomous**\
+`This word has appeared in 378 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/15/learning/word-of-the-day-autonomous.html
+
 **It was supposed to be a new dawn for Real Madrid. Instead, they hit 'rock bottom'**\
 `With new manager Alvaro Arbeloa in the dugout, the Spanish giants fell to an embarrassing defeat at second-tier Albacete`\
 https://nytimes.com/athletic/6966369/2026/01/15/real-madrid-albacete-arbeloa-result-disaster-copa-del-rey/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return
 **The New York Times in Print for Thursday, Jan. 15, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/15/todays-new-york-times
-
-**Giants preparing to hire John Harbaugh as head coach: Source**\
-`Harbaugh has amassed 180 wins as a head coach, the 14th-most in NFL history.`\
-https://nytimes.com/athletic/6966896/2026/01/15/john-harbaugh-hired-giants-head-coach/
-
-**Crane Collapses on Expressway Outside Bangkok, Killing at Least 2**\
-`The deadly episode came a day after a crane fell on a moving train in northeastern Thailand, killing at least 32 people.`\
-https://nytimes.com/2026/01/15/world/asia/thailand-crane-expressway-rama2.html
-
-**The FPL forwards to attack Gameweek 22 and beyond**\
-`The forward template in Fantasy Premier League has seen another significant change in recent weeks — and the route to goals are aplenty`\
-https://nytimes.com/athletic/6968988/2026/01/15/fantasy-premier-league-tips-fpl-gameweek-22/
 
