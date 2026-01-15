@@ -1,3 +1,11 @@
+**Federal Agent Shoots Immigrant in Minneapolis, Homeland Security Says**\
+`The agent shot an immigrant from Venezuela in the leg while trying to arrest him, an official said. The shooting comes a week after an ICE agent fatally shot a woman in the city.`\
+https://nytimes.com/2026/01/14/us/minneapolis-federal-agent-shooting-immigration.html
+
+**Visible Sign of Hard Work**\
+`Wendy L. Brandes and Barbara Lin make their collaboration debut in the New York Times Crossword.`\
+https://nytimes.com/2026/01/14/crosswords/daily-puzzle-2026-01-15.html
+
 **With the Alex Bregman era, World Series expectations return to Wrigley Field**\
 `As the Cubs introduce Bregman as third baseman, they'll reintroduce themselves as a big-market franchise with serious ambitions to win.`\
 https://nytimes.com/athletic/6972851/2026/01/14/cubs-alex-bregman-world-series-wrigley-field/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/14/nyregion/blakeman-ice-minneapolis.html
 **This Might Be the Best Sport for a Longer Life**\
 `Research consistently shows that physical activity is linked to healthy aging. But do some sports confer more longevity benefits than others? Simar Bajaj, a reporting fellow for Well, explains.`\
 https://nytimes.com/video/well/move/100000010632708/this-might-be-the-best-sport-for-a-longer-life.html
-
-**How to watch Miami (FL) vs. Indiana: National Championship Start Time, TV, streaming**\
-`Find out how to watch the Miami (FL) Hurricanes play the Indiana Hoosiers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6972789/2026/01/14/how-to-watch-miami-fl-vs-no-1-indiana-national-championship-tv-channel-and-streaming-options-for-january-19/
-
-**After Danish and U.S. Officials Meet on Greenland, Trump Remains Unmoved**\
-`Denmark’s foreign minister left the White House complex saying that his country had a “fundamental disagreement” with President Trump, as several NATO countries sent troops to Greenland.`\
-https://nytimes.com/2026/01/14/us/politics/greenland-trump-denmark.html
 
