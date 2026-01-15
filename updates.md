@@ -1,3 +1,11 @@
+**Football lawmakers to discuss bringing in countdowns to combat time-wasting**\
+`The International Football Association Board (IFAB) is keen to reduce the amount of time lost in games.`\
+https://nytimes.com/athletic/6975130/2026/01/15/football-rules-timewasting-throw-in-goal-kick/
+
+**There’s Never Been a Better Time to Eat Chinese Food**\
+`Chains from the East Asian nation are popping up across New York City, bringing with them excellent hot pot, dumplings and mapo tofu.`\
+https://nytimes.com/2026/01/15/dining/chinese-food-nyc.html
+
 **Arkansas Rescinds Choice of Law School Dean Over Transgender Stance**\
 `The University of Arkansas withdrew a job offer to a South Carolina legal scholar after state officials learned that she had signed a legal brief concerning transgender athletes, state lawmakers said.`\
 https://nytimes.com/2026/01/15/us/politics/university-of-arkansas-dean-emily-suski-transgender.html
