@@ -1,3 +1,11 @@
+**NCAA asks federal agency to pause bets on college sports prediction market**\
+`Prediction markets are regulated by the CFTC, but do not have to meet oversight standards as online sportsbooks.`\
+https://nytimes.com/athletic/6972317/2026/01/14/ncaa-requests-federal-agency-to-pause-betting-on-college-sports-prediction-markets/
+
+**‘I just kept scoring.’ Arizona HS basketball player scores 100 in 3 quarters**\
+`Stubbs set the Arizona single-game high school scoring record with 100 points, on just six 3-pointers.`\
+https://nytimes.com/athletic/6972254/2026/01/14/high-school-basketball-record-100-points-adrian-stubbs-arizona/
+
 **A Look At Antarctica From Above**\
 `After nearly two weeks at sea without being able to launch his drone, New York Times photographer Chang W. Lee finally captures Antarctica from the air.`\
 https://nytimes.com/video/climate/100000010644792/a-look-at-antarctica-from-above.html
