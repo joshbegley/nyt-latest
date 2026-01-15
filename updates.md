@@ -1,3 +1,7 @@
+**N.F.L. Playoff Predictions: Vibes Only**\
+`On this week’s episode of “The Athletic Show,” the hosts Robert Mays, Zena Keita, and Jason Goff are joined by Madeline Hill and Charlotte Wilder of “The Sports Gossip Show” to ditch the analytics and rank N.F.L. playoff contenders based only on their “vibes.”`\
+https://nytimes.com/video/the-athletic/100000010647045/nfl-playoff-predictions-vibes-only.html
+
 **Runaway Emu Leads Florida Corporal in 45-Minute Police Chase**\
 `A corporal in St. Johns County had responded to what he thought would be a straightforward call about an animal on the loose. Nearly an hour later, he was putting handcuffs on an emu named Tina.`\
 https://nytimes.com/2026/01/15/us/runaway-emu-florida-video.html

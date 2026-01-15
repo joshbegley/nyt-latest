@@ -1,3 +1,7 @@
+**N.F.L. Playoff Predictions: Vibes Only**\
+`On this week’s episode of “The Athletic Show,” the hosts Robert Mays, Zena Keita, and Jason Goff are joined by Madeline Hill and Charlotte Wilder of “The Sports Gossip Show” to ditch the analytics and rank N.F.L. playoff contenders based only on their “vibes.”`\
+https://nytimes.com/video/the-athletic/100000010647045/nfl-playoff-predictions-vibes-only.html
+
 **Runaway Emu Leads Florida Corporal in 45-Minute Police Chase**\
 `A corporal in St. Johns County had responded to what he thought would be a straightforward call about an animal on the loose. Nearly an hour later, he was putting handcuffs on an emu named Tina.`\
 https://nytimes.com/2026/01/15/us/runaway-emu-florida-video.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6974539/2026/01/15/tours-de-france-2027-uk-cities/
 **ICE’s No. 2 Official Leaves to Run for the House in Ohio**\
 `Madison Sheahan, a top enforcer of President Trump’s immigration crackdown, said she would step down to challenge Representative Marcy Kaptur, a Democrat.`\
 https://nytimes.com/2026/01/15/us/politics/madison-sheahan-ice-ohio-house-congress.html
-
-**Harvey Pratt, Who Designed the Native American Veterans Memorial, Dies at 84**\
-`A self-taught artist, he also spent more than half a century creating forensic sketches and reconstructions for law-enforcement agencies.`\
-https://nytimes.com/2026/01/15/arts/design/harvey-pratt-dead.html
 
