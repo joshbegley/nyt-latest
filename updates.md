@@ -1,3 +1,11 @@
+**Drance: Why a rebuild will hinge almost entirely on Canucks ownership**\
+`Probabilistically speaking, it's Canucks ownership that is going to be the true stewards of this rebuilding effort.`\
+https://nytimes.com/athletic/6973267/2026/01/15/canucks-ownership-jim-rutherford-standings-stats-rebuild/
+
+**The Hard Truth of Weight-Loss Drugs: You Probably Need Them Forever**\
+`Many people who use these medications don’t want to stay on them long term. But research has repeatedly shown that quitting the drugs means gaining back weight.`\
+https://nytimes.com/2026/01/15/well/weight-loss-drugs-life-time.html
+
 **For the World’s Food Supply, Federal Funding Cuts Have Long-Term Impacts**\
 `The U.S. Agency for International Development has been a major supporter of global agriculture research. Now many studies are being scuttled or scaled back.`\
 https://nytimes.com/2026/01/15/science/agriculture-science-usaid-global-food.html
