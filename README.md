@@ -10,8 +10,8 @@ https://nytimes.com/2026/01/14/world/canada/british-columbia-drug-decriminalizat
 `The lawmakers, all Democrats who urged military service members not to follow illegal orders, said prosecutors had contacted them. But it is unclear what crime they might have committed.`\
 https://nytimes.com/2026/01/14/us/politics/crow-goodlander-houlahan-trump-investigation.html
 
-**Steelers coaching search tracker: The first interview requests are in**\
-`Brian Flores, Jesse Minter, Anthony Weaver and a pair of Rams assistants are among the first candidates set up for interviews.`\
+**Steelers request interviews with Scheelhaase, Shula, Weaver, Flores and Winter: Sources**\
+`Brian Flores, Jesse Minter, Anthony Weaver, Nate Scheelhaase and Chris Shula are among the first coaching candidates set up for interviews.`\
 https://nytimes.com/athletic/6972698/2026/01/14/steelers-coaching-search-tracker/
 
 **Boeing Knew About Flaws in UPS Plane That Crashed in Louisville, N.T.S.B. Says**\
