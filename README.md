@@ -26,7 +26,3 @@ https://nytimes.com/2026/01/15/arts/design/harvey-pratt-dead.html
 `Baked. Boiled. Souped. Regardless of form, potatoes will always be there for you.`\
 https://nytimes.com/2026/01/15/dining/its-tato-time.html
 
-**The Geopolitics of Greenland and NATO**\
-`Readers respond to articles about the U.S. threats against Greenland. Also: A woman’s aging face.`\
-https://nytimes.com/2026/01/15/opinion/greenland-nato.html
-
