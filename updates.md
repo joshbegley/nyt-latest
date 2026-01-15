@@ -1,3 +1,7 @@
+**Federal Agent Shoots Man in Minneapolis, Prompting Tense Protests**\
+`The agent shot a Venezuelan man who was resisting arrest, an official said. Protesters and law enforcement officers clashed for hours, as city officials urged people to go home.`\
+https://nytimes.com/2026/01/14/us/minneapolis-federal-agent-shooting-immigration.html
+
 **Mavericks rookie Cooper Flagg will not return vs. Nuggets with ankle injury**\
 `Flagg has been one of the Mavericks’ most durable players this season. He has missed only one game.`\
 https://nytimes.com/athletic/6973150/2026/01/14/cooper-flagg-left-ankle-sprain-mavericks/

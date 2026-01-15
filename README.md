@@ -1,4 +1,16 @@
-**Mavericks rookie Cooper Flagg will not return vs. Nuggets with ankle injury**\
+**Quote of the Day: Greenlanders Shocked, Angry, Confused and, Most of All, Scared**\
+`Quotation of the Day for Thursday, January 15, 2026.`\
+https://nytimes.com/2026/01/15/pageoneplus/quote-of-the-day-greenlanders-shocked-angry-confused-and-most-of-all-scared.html
+
+**Connections: Sports Edition Coach: Hints for Jan. 15, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6973214/2026/01/15/connections-sports-edition-hints-for-jan-15-2026/
+
+**Corrections: Jan. 15, 2026**\
+`Corrections that appeared in print on Thursday, Jan. 15, 2026.`\
+https://nytimes.com/2026/01/15/pageoneplus/corrections-jan-15-2026.html
+
+**Mavericks star rookie Cooper Flagg injures ankle against Nuggets**\
 `Flagg has been one of the Mavericks’ most durable players this season. He has missed only one game.`\
 https://nytimes.com/athletic/6973150/2026/01/14/cooper-flagg-left-ankle-sprain-mavericks/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6972933/2026/01/14/john-harbaugh-new-york-giants-vi
 **New Zealand All Blacks part ways with head coach Scott Robertson**\
 `The country secured back-to-back World Cups in 2011 and 2015 but has struggled to recapture that level over the past decade.`\
 https://nytimes.com/athletic/6972985/2026/01/14/new-zealand-all-blacks-scott-robertson-head-coach/
-
-**Venezuelan Immigrants Urge Appeals Court to Restore Deportation Protections**\
-`The Trump administration has ended Temporary Protected Status for about 600,000 Venezuelan immigrants, part of a broader effort to curb avenues for immigrants to remain in the United States.`\
-https://nytimes.com/2026/01/14/us/venezuelan-immigrants-appeal-tps-ruling.html
-
-**Katie Ledecky posts second-best 1,500m freestyle time in first race of year**\
-`Ledecky was less than three seconds off her world record from 2018, sending a message as the buildup to the 2028 Olympics begins.`\
-https://nytimes.com/athletic/6972887/2026/01/14/katie-ledecky-1500-meter-freestyle-second-fastest-olympics/
-
-**Federal Agent Shoots Man in Minneapolis, Prompting Tense Protests**\
-`The agent shot a Venezuelan man who was resisting arrest, an official said. Protesters and law enforcement officers clashed for hours, as city officials urged people to go home.`\
-https://nytimes.com/2026/01/14/us/minneapolis-federal-agent-shooting-immigration.html
 
