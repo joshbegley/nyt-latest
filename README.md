@@ -1,40 +1,40 @@
-**TAFC: AFCON glory slips away from Salah, sky high World Cup ticket demand**\
-`Today in TAFC: Mane gets the better of Salah in AFCON (again), World Cup ticket demand reaches extreme levels, and a rough start for Arbeloa`\
-https://nytimes.com/athletic/6973508/2026/01/15/salah-afcon-mane-world-cup-tickets/
+**Andy Robertson faces big decision with Liverpool contract expiring**\
+`After losing his place in the starting line-up, the Scotland international must decide if he is happy with a reduced role at Anfield`\
+https://nytimes.com/athletic/6965791/2026/01/15/andy-robertson-liverpool-future-contract/
 
-**Nearly 5 Million Accounts Removed Under Australia’s New Social Media Ban**\
-`Governments around the world are watching the rollout of the landmark law, which made it illegal for those under 16 to have accounts.`\
-https://nytimes.com/2026/01/15/world/australia/social-media-ban-australia.html
+**Kyle Tucker is a game-changing bat. Don't expect another in free agency anytime soon**\
+`Beyond Tucker, there's a drop among available free-agent outfielders.`\
+https://nytimes.com/athletic/6973104/2026/01/15/mets-kyle-tucker-bat-free-agency/
 
-**How Jonathan Kuminga and the Warriors drifted apart — and why a split maybe isn’t imminent**\
-`With Kuminga now trade eligible, the Warriors' front office faces a defining decision. `\
-https://nytimes.com/athletic/6972965/2026/01/15/jonathan-kuminga-warriors-trade-deadline-nba/
+**Penguins-Flyers rivalry returns to hostile roots amid crowded playoff race**\
+`The Penguins are still annoyed with Trevor Zegras as Penguins-Flyers Round 3 is upon us.`\
+https://nytimes.com/athletic/6970860/2026/01/15/penguins-flyers-rivalry-trevor-zegras-nhl/
 
-**One Knicks play from a bad loss to the Kings sums up what's concerning in New York**\
-`The Knicks are a mess right now, and one play from Wednesday night's loss in Sacramento explains why.`\
-https://nytimes.com/athletic/6973383/2026/01/15/one-knicks-play-bad-loss-kings/
+**Mitch Marner expects ‘excitement, nerves' facing Maple Leafs for first time**\
+`Marner's first game against the Leafs comes a week before his return to Toronto as a Vegas player.`\
+https://nytimes.com/athletic/6970759/2026/01/15/mitch-marner-vegas-maple-leafs-anticipation/
 
-**'Pain makes a man': Grady Jarrett's wisdom and work helping fuel Bears' playoff run**\
-`Jarrett's voice and work habits have lent fuel to a surprising run. “He is wired the way we want our entire team wired,” Ben Johnson says.`\
-https://nytimes.com/athletic/6972764/2026/01/15/bears-grady-jarrett-wisdom-nfl-playoffs/
+**Getting to know forward Oliver Moore: Sizzling speed and family memoirs**\
+`The 20-year-old discusses his grandfather's book, his favorite sport outside of hockey and experiencing the World Juniors from the outside.`\
+https://nytimes.com/athletic/6971355/2026/01/15/blackhawks-oliver-moore-skating-world-juniors/
 
-**Pistons at NBA trade deadline: Evaluating potential moves and future projections**\
-`Former NBA exec John Hollinger talks to Hunter Patterson about what the Pistons should do at the trade deadline.`\
-https://nytimes.com/athletic/6969906/2026/01/15/pistons-nba-trade-deadline/
+**José Ramírez continues to add to his Hall of Fame case — is he now within reach?**\
+`If Ramírez can maintain his recent level of consistency for another couple years, it should be enough to secure his spot.`\
+https://nytimes.com/athletic/6961289/2026/01/15/jose-ramirez-guardians-hall-fame-2026/
 
-**The NBA is playing its first regular-season game in Germany. Here's what to know**\
-`Moritz and Franz Wagner grew up in Berlin. On Thursday, their Magic meet the Grizzlies at Uber Arena.`\
-https://nytimes.com/athletic/6965164/2026/01/15/nba-berlin-germany-game-magic-grizzlies-wagner-morant/
+**How the 49ers find the right play call and dodge the Seahawks' biggest threat**\
+`Kyle Shanahan and Klay Kubiak are trying to reverse the script against a stingy Seahawks defense. Meanwhile, could Fred Warner return?`\
+https://nytimes.com/athletic/6972663/2026/01/15/49ers-seahawks-playoffs-kyle-shanahan-kubiak/
 
-**Cowboys offensive roster analysis: Who's in, who's out and on the fence?**\
-`While the offense wasn't the problem this season, the Cowboys should still expect some changes on that side.`\
-https://nytimes.com/athletic/6971323/2026/01/15/cowboys-roster-offense-analysis/
+**Winnipeg Jets dads give their best fatherly advice to a new dad: 'It's an amazing ride'**\
+`Murat Ates turned to the Jets for advice and stories about being a father.`\
+https://nytimes.com/athletic/6946609/2026/01/15/winnipeg-jets-dads-advice/
 
-**Lions OC search: Could Dan Campbell make it work with Mike McDaniel?**\
-`The Lions' list of offensive coordinator candidates includes former head coaches as well as assistants.`\
-https://nytimes.com/athletic/6971225/2026/01/15/lions-oc-search-mike-mcdaniel-candidates/
+**College Football Playoff oddly specific predictions: Miami wins title No. 6!**\
+`Mario Cristobal has built this Miami team at the line of scrimmage. And that will be the difference in the national title game. `\
+https://nytimes.com/athletic/6972737/2026/01/15/college-football-playoff-prediction-miami-indiana/
 
-**Rangers' slump goes from bad to worse as pathetic showing earns more 'Fire Drury' chants**\
-`The Rangers allowed eight goals, including six straight before Gabe Perreault broke the shutout, in a brutal loss to the Senators.`\
-https://nytimes.com/athletic/6973116/2026/01/15/rangers-blowout-miller-quick-senators/
+**When the game's on the line, who would you rather have than Caleb Williams?**\
+`Williams' work is ongoing, but what we’ve seen so far is that he gets better when the pressure is on. That’s not a bad trait to build on.`\
+https://nytimes.com/athletic/6972414/2026/01/15/caleb-williams-bears-rams-big-moments/
 
