@@ -1,3 +1,7 @@
+**Arsenal's three goalscorers and the different contributions needed to win trophies**\
+`Arsenal beat Chelsea 3-2 in their Carabao Cup semi-final first leg on Wednesday night`\
+https://nytimes.com/athletic/6972779/2026/01/15/arsenal-chelsea-goalscorers-analysis/
+
 **Is it risky to fly a sick astronaut home to Earth?**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/is-it-risky-to-fly-a-sick-astronaut-home-to-earth
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6142059/2026/01/15/carrick-sesko-manchester-united-
 **Xabi Alonso and Real Madrid felt like a sure thing — but what does it really take to manage the elite?**\
 `The Alonsos, Amorims, Marescas and Roseniors could still be the future. But they’re also a risk`\
 https://nytimes.com/athletic/6969108/2026/01/15/xabi-alonso-real-madrid-management-ancelotti-guardiola/
-
-**West Ham and Tottenham have lost their Way**\
-`The two clubs have huge histories but a modern malaise - unhappy fans, owner issues, unpopular managers, and recruitment failings`\
-https://nytimes.com/athletic/6928993/2026/01/15/west-ham-tottenham-hotspur-style-history-way/
 

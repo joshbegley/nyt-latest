@@ -1,3 +1,7 @@
+**Arsenal's three goalscorers and the different contributions needed to win trophies**\
+`Arsenal beat Chelsea 3-2 in their Carabao Cup semi-final first leg on Wednesday night`\
+https://nytimes.com/athletic/6972779/2026/01/15/arsenal-chelsea-goalscorers-analysis/
+
 **Is it risky to fly a sick astronaut home to Earth?**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/is-it-risky-to-fly-a-sick-astronaut-home-to-earth
