@@ -1,3 +1,7 @@
+**In a Setback for Trump, Judge Says N.Y. Wind Farm Can Resume Construction**\
+`A federal judge said the Empire Wind project off Long Island would suffer “irreparable harm” if the Trump administration continued to hold up work.`\
+https://nytimes.com/2026/01/15/climate/empire-wind-court-ruling.html
+
 **'Managers' authority being eroded' - Gareth Southgate**\
 `Southgate's comments were framed in the context of Chelsea, Manchester United and Real Madrid all parting company with their head coaches.`\
 https://nytimes.com/athletic/6974317/2026/01/15/gareth-southgate-manager-england/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010646667/a-crane-collapse-in-thailan
 **Tottenham forward Richarlison to miss up to seven weeks with hamstring injury**\
 `The Brazil international was taken off during Tottenham's 2-1 FA Cup third round defeat against Aston Villa on Saturday.`\
 https://nytimes.com/athletic/6974204/2026/01/15/tottenham-richarlison-injury-latest/
-
-**Alicia Keys Says ‘Hell’s Kitchen’ Will End Broadway Run and Open Overseas**\
-`Though the show will close in New York next month, a North American tour will continue, and productions in Australia, Germany and South Korea are planned.`\
-https://nytimes.com/2026/01/15/theater/hells-kitchen-keys-broadway-closing.html
 
