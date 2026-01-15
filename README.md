@@ -1,3 +1,7 @@
+**'Managers' authority being eroded' - Gareth Southgate**\
+`Southgate's comments were framed in the context of Chelsea, Manchester United and Real Madrid all parting company with their head coaches.`\
+https://nytimes.com/athletic/6974317/2026/01/15/gareth-southgate-manager-england/
+
 **Cuba Receives Remains of 32 Citizens Killed in U.S. Strikes in Venezuela**\
 `The Cubans had served as part of the security detail of Nicolás Maduro, Venezuela’s ousted president.`\
 https://nytimes.com/2026/01/15/world/americas/cuba-remains-venezuela-strikes-maduro.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6974204/2026/01/15/tottenham-richarlison-injury-lat
 **Alicia Keys Says ‘Hell’s Kitchen’ Will End Broadway Run and Open Overseas**\
 `Though the show will close in New York next month, a North American tour will continue, and productions in Australia, Germany and South Korea are planned.`\
 https://nytimes.com/2026/01/15/theater/hells-kitchen-keys-broadway-closing.html
-
-**How to watch Sharks vs. Capitals: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Washington Capitals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6974296/2026/01/15/sharks-vs-capitals-stream-how-to-watch-jan-15/
 

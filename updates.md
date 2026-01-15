@@ -1,3 +1,7 @@
+**Cuba Receives Remains of 32 Citizens Killed in U.S. Strikes in Venezuela**\
+`The Cubans had served as part of the security detail of Nicolás Maduro, Venezuela’s ousted president.`\
+https://nytimes.com/2026/01/15/world/americas/cuba-remains-venezuela-strikes-maduro.html
+
 **Mike Tomlin's final speech had Aaron Rodgers and T.J. Watt in tears**\
 `Details from Tomlin's emotional farewell to his players.`\
 https://nytimes.com/athletic/6974150/2026/01/15/mike-tomlin-resignation-aaron-rodgers-tj-watt-reaction/
