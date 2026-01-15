@@ -1,3 +1,11 @@
+**How NASA deals with astronauts’ medical needs on the I.S.S.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/how-nasa-deals-with-astronauts-medical-needs-on-the-iss
+
+**Morocco, a lack of tension, expectation and a belief they can win a first AFCON in 50 years**\
+`Hosts Morocco are in the final of the Africa Cup of Nations. The entire nation is utterly convinced they are going to win the tournament`\
+https://nytimes.com/athletic/6972988/2026/01/15/morocco-afcon-nigeria-analysis/
+
 **Many Mayors Have Tried to Help Small Businesses. It’s Mamdani’s Turn.**\
 `Small business advocates in New York are excited that Mayor Zohran Mamdani is tackling the issue of excessive fees and fines, but they’ve heard similar promises before.`\
 https://nytimes.com/2026/01/15/nyregion/mamdani-fees-fines-businesses.html
