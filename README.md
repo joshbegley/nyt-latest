@@ -1,3 +1,23 @@
+**A warning after Mike Tomlin's departure: Be careful what you wish for**\
+`Steelers fans rained boos and "Fire Tomlin" chants at their long-time coach, but there's no certainty his replacement will be an upgrade.`\
+https://nytimes.com/athletic/6971938/2026/01/15/mike-tomlin-steelers-fans-warning-nfl/
+
+**Stark: My 2026 Baseball Hall of Fame ballot — change is coming to Cooperstown**\
+`Here's how I voted, and why. We appear to be on the cusp of dramatically redefining what a Hall of Famer looks like in the 21st century.`\
+https://nytimes.com/athletic/6972886/2026/01/15/baseball-hall-of-fame-ballot-2026-stark/
+
+**NFL misery index: Which non-playoff teams have it the worst entering long offseason?**\
+`No team that misses the postseason is happy but for the 18 teams who were left out this year, there are varying levels of misery.`\
+https://nytimes.com/athletic/6972376/2026/01/15/nfl-misery-index-2025-cardinals-jets-raiders/
+
+**Inside Mike Tomlin's final meeting as Steelers head coach**\
+`The coach broke the news of his resignation to his players on Tuesday. Emotions ran high.`\
+https://nytimes.com/athletic/6973084/2026/01/15/mike-tomlin-inside-story-steelers-resignation/
+
+**The New York Times International Edition in Print for Friday, Jan. 16, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/15/todays-new-york-times-international-edition
+
 **Kyiv’s Cruelest Winter: Russia Knocks Out the Heat in the Bitter Cold**\
 `The Kremlin has tried for years to freeze Ukraine into submission. This winter, its attacks have been the most devastating ever.`\
 https://nytimes.com/2026/01/15/world/europe/ukraine-kyiv-winter-heating-power-outages.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6935989/2026/01/15/nba-awards-watch-sga-mvp-cooper-
 **Something Is Rotten in the State of America**\
 `This is the thanks Demark gets?`\
 https://nytimes.com/2026/01/15/opinion/denmark-greenland-iraq-trump-vance.html
-
-**The Gaudy, Nasty Fictions of Donald J. Trump**\
-`This is neither law nor order, and the consequences can be deadly.`\
-https://nytimes.com/2026/01/15/opinion/trump-renee-good-rubio-greenland.html
-
-**They Left Their Empty Nest for a Fresh Start in Helena, Montana**\
-`After their daughters left for college, a couple looked to trade their suburban lifestyle for a new house near Helena’s central core. Here’s what they found.`\
-https://nytimes.com/interactive/2026/01/15/realestate/montana-helena-homes-sale.html
-
-**Bob Weir Is Gone, but the Dead’s Music Plays On**\
-`A concert honoring the Grateful Dead guitarist showed the durability of the band’s music and culture, even as its members dwindle.`\
-https://nytimes.com/2026/01/15/arts/music/bob-weir-grateful-dead-legacy.html
-
-**Cyberattack in Venezuela Demonstrated Precision of U.S. Capabilities**\
-`Senators are expected to ask Lt. Gen. Joshua M. Rudd, President Trump’s nominee to lead the U.S. Cyber Command, about the mission in Caracas.`\
-https://nytimes.com/2026/01/15/us/politics/cyberattack-venezuela-military.html
-
-**‘Riot Women’ Review: Women of a Certain Rage**\
-`There’s much more to Sally Wainwright’s series about middle-aged punk rockers than the music.`\
-https://nytimes.com/2026/01/15/arts/television/riot-women-review.html
 
