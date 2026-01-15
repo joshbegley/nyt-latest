@@ -1,3 +1,11 @@
+**Leeds close to completing Buonanotte loan from Brighton**\
+`The proposed deal would see the attacking midfielder's Chelsea loan ended early to allow his move to Elland Road.`\
+https://nytimes.com/athletic/6973619/2026/01/15/facundo-buonanotte-leeds-chelsea-loan/
+
+**‘Squished Between Chairs’ on a Train: How Some Passengers Survived a Crane Collapse**\
+`Some travelers were able to squeeze out of mangled cars and others were rescued by residents, after the accident in northeastern Thailand. Dozens did not survive.`\
+https://nytimes.com/2026/01/15/world/asia/thailand-train-crane-survivors.html
+
 **Tottenham name CFG's Moersen as new director of football operations**\
 `Moersen is currently on gardening leave from CFG and is due to join Spurs ahead of the summer transfer window.`\
 https://nytimes.com/athletic/6973587/2026/01/15/tottenham-city-football-group-moersen-director/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6971355/2026/01/15/blackhawks-oliver-moore-skating-
 **José Ramírez continues to add to his Hall of Fame case — is he now within reach?**\
 `If Ramírez can maintain his recent level of consistency for another couple years, it should be enough to secure his spot.`\
 https://nytimes.com/athletic/6961289/2026/01/15/jose-ramirez-guardians-hall-fame-2026/
-
-**How the 49ers find the right play call and dodge the Seahawks' biggest threat**\
-`Kyle Shanahan and Klay Kubiak are trying to reverse the script against a stingy Seahawks defense. Meanwhile, could Fred Warner return?`\
-https://nytimes.com/athletic/6972663/2026/01/15/49ers-seahawks-playoffs-kyle-shanahan-kubiak/
-
-**Winnipeg Jets dads give their best fatherly advice to a new dad: 'It's an amazing ride'**\
-`Murat Ates turned to the Jets for advice and stories about being a father.`\
-https://nytimes.com/athletic/6946609/2026/01/15/winnipeg-jets-dads-advice/
 
