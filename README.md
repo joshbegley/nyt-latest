@@ -1,3 +1,7 @@
+**Mamdani’s Consumer Protection Commissioner Vows More Aggressive Action**\
+`“I want to be very public that there’s a new cop on the beat,” said Samuel Levine, the new commissioner of New York City’s Department of Consumer and Worker Protection.`\
+https://nytimes.com/2026/01/15/nyregion/nyc-motoclick-delivery-workers-lawsuit.html
+
 **Elon Musk’s X Restricts Ability to Create Explicit Images With Grok**\
 `Bowing to pressure, the company said it would restrict X users from generating explicit images of real people in jurisdictions where such content is illegal.`\
 https://nytimes.com/2026/01/15/business/grok-ai-images-x.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6972845/2026/01/15/oregon-dante-moore-quarterback-n
 **Commanders' new stadium renderings depict an homage to the team's past**\
 `The renderings show a wavy roof line, a transparent top that will resemble an open-air venue and a colonnade exterior.`\
 https://nytimes.com/athletic/6973253/2026/01/15/washington-commanders-stadium-renderings/
-
-**T.J. Oshie Q&A: Life after the NHL, the 2019 Blues, Robertson's Olympic snub and more**\
-`Oshie, now a TV analyst for ESPN, recalled a 6 a.m. FaceTime to his former Blues teammates on the night they won the Stanley Cup.`\
-https://nytimes.com/athletic/6966386/2026/01/15/tj-oshie-blues-capitals-olympics/
 
