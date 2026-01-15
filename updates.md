@@ -1,3 +1,15 @@
+**Why the model-heavy Cubs are betting big on the human side of Alex Bregman**\
+`"You have to feel great about the person, the human that you’re investing in," Jed Hoyer said after the Cubs introduced Bregman.`\
+https://nytimes.com/athletic/6975179/2026/01/15/cubs-alex-bregman-human-side/
+
+**Trump Threatened to Send the Military to Minneapolis**\
+`Also, Israel and Arab countries asked the U.S. not to attack Iran. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/01/15/briefing/trump-insurrection-act-longevity-sports.html
+
+**NBA commissioner Adam Silver 'disappointed' as Ja Morant sits out Berlin game**\
+`Franz Wagner returns, leads Magic to victory over Memphis in Game 1 of a two-game NBA Global Games series.`\
+https://nytimes.com/athletic/6975221/2026/01/15/franz-wagner-return-ja-morant-berlin/
+
 **Romeo Santos Reminisces About His Drake Shoutout**\
 `Romeo Santos sat down on the “Popcast” couch and recalled when Drake referenced Aventura on “The Motto” and the collaboration that followed.`\
 https://nytimes.com/video/podcasts/100000010642792/romeo-santos-reminisces-about-his-drake-shoutout.html

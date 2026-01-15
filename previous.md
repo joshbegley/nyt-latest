@@ -1,3 +1,11 @@
+**Why the model-heavy Cubs are betting big on the human side of Alex Bregman**\
+`"You have to feel great about the person, the human that you’re investing in," Jed Hoyer said after the Cubs introduced Bregman.`\
+https://nytimes.com/athletic/6975179/2026/01/15/cubs-alex-bregman-human-side/
+
+**Trump Threatened to Send the Military to Minneapolis**\
+`Also, Israel and Arab countries asked the U.S. not to attack Iran. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/01/15/briefing/trump-insurrection-act-longevity-sports.html
+
 **Romeo Santos Reminisces About His Drake Shoutout**\
 `Romeo Santos sat down on the “Popcast” couch and recalled when Drake referenced Aventura on “The Motto” and the collaboration that followed.`\
 https://nytimes.com/video/podcasts/100000010642792/romeo-santos-reminisces-about-his-drake-shoutout.html
@@ -6,8 +14,8 @@ https://nytimes.com/video/podcasts/100000010642792/romeo-santos-reminisces-about
 `Robert G. Kramer sold nearly 90,000 shares of his stock in Emergent BioSolutions, knowing that large quantities of vaccine materials were contaminated, the lawsuit said.`\
 https://nytimes.com/2026/01/15/us/emergent-biosolutions-ceo-insider-trading-covid-vaccine.html
 
-**Franz Wagner returns, leads Magic to victory in Berlin as Ja Morant sits**\
-`NBA commissioner Adam Silver “disappointed” that Morant sits out first game of two-game NBA Global Games series.`\
+**NBA commissioner Adam Silver 'disappointed' as Ja Morant sits out Berlin game**\
+`Franz Wagner returns, leads Magic to victory over Memphis in Game 1 of a two-game NBA Global Games series.`\
 https://nytimes.com/athletic/6975221/2026/01/15/franz-wagner-return-ja-morant-berlin/
 
 **N.S.A. Nominee Promises to Protect Elections From Foreign Interference**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/15/business/star-wars-lucasfilm-kathleen-kennedy.htm
 **Trump Threatens to Invoke the Insurrection Act and Send Troops to Minnesota**\
 `The law, which was last invoked in 1992, could allow President Trump to deploy the military inside the United States. Doing so would be a major escalation.`\
 https://nytimes.com/2026/01/15/us/politics/trump-insurrection-act-minnesota.html
-
-**How to Make a Nonalcoholic Martini**\
-`Plus two other mocktail ideas for those who love a paloma or a michelada.`\
-https://nytimes.com/2026/01/15/t-magazine/mocktail-recipes-nonalcoholic-martini.html
-
-**Phillies sign Francisco Renteria, toolsy 17-year-old Venezuelan outfielder, to record deal**\
-`The club was drawn to Renteria’s bat-to-ball skills, power, athleticism and maturity. Plus, notes on the Phillies' international class.`\
-https://nytimes.com/athletic/6975011/2026/01/15/phillies-francisco-renteria-prospect-profile/
 
