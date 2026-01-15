@@ -1,3 +1,7 @@
+**Trump Threatens to Invoke the Insurrection Act and Send Troops to Minnesota**\
+`The law, which was last invoked in 1992, could allow President Trump to deploy the military inside the United States. Doing so would be a major escalation.`\
+https://nytimes.com/2026/01/15/us/politics/trump-threatens-to-invoke-the-insurrection-act-and-send-troops-to-minnesota.html
+
 **How to Make a Nonalcoholic Martini**\
 `Plus two other mocktail ideas for those who love a paloma or a michelada.`\
 https://nytimes.com/2026/01/15/t-magazine/mocktail-recipes-nonalcoholic-martini.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6972209/2026/01/15/fred-warner-injury-49ers-seahawk
 **Pentagon Will ‘Refocus’ Military Publication Stars and Stripes**\
 `The agency’s chief spokesman outlined plans to intervene in the previously independent newspaper’s coverage to ensure it reflects official department messaging.`\
 https://nytimes.com/2026/01/15/us/politics/stars-and-stripes-pentagon.html
-
-**A Healthy Brain**\
-`Even when so much is happening in the world, it’s important to take care of your brain health. Our Well desk shares tips.`\
-https://nytimes.com/2026/01/15/world/brain-health-challenge-trump-iran.html
 
