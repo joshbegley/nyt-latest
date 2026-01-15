@@ -1,3 +1,7 @@
+**The Windup: Boston adds another big arm**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6973442/2026/01/15/ranger-suarez-boston-the-windup/
+
 **Feds charge 20 men with alleged conspiracy to manipulate college basketball games**\
 `The scheme, according to federal prosecutors, involved two men indicted this fall for their alleged role in an NBA gambling scheme.`\
 https://nytimes.com/athletic/6973903/2026/01/15/ncaa-college-basketball-gambling-investigation-charges/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/15/world/europe/uk-robert-jenrick-fired-badenoch-con
 **Appeals Court Opens the Door to Mahmoud Khalil’s Rearrest**\
 `Any new detention would not come immediately, and Mr. Khalil’s lawyers plan to appeal. But the ruling is a major blow to Mr. Khalil, a Columbia graduate and prominent figure in the pro-Palestinian movement.`\
 https://nytimes.com/2026/01/15/nyregion/mahmoud-khalil-detention.html
-
-**What we're hearing from CFB coaches about the calendar, eligibility and tampering**\
-`The Athletic spoke with more than 50 head coaches, assistants and agents over three days at the coaches convention.`\
-https://nytimes.com/athletic/6973714/2026/01/15/college-football-coaches-calendar-eligibility-transfer-portal/
 

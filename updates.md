@@ -1,3 +1,7 @@
+**The Windup: Boston adds another big arm**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6973442/2026/01/15/ranger-suarez-boston-the-windup/
+
 **Feds charge 20 men with alleged conspiracy to manipulate college basketball games**\
 `The scheme, according to federal prosecutors, involved two men indicted this fall for their alleged role in an NBA gambling scheme.`\
 https://nytimes.com/athletic/6973903/2026/01/15/ncaa-college-basketball-gambling-investigation-charges/
