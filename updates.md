@@ -1,3 +1,7 @@
+**Four Astronauts Splash Down on Earth After Early Return**\
+`Two American astronauts and others from Japan and Russia landed in the Pacific Ocean after an early journey home from the International Space Station because one of them was ill.`\
+https://nytimes.com/video/science/space/100000010646747/nasa-astronauts-return-iss.html
+
 **No. 1 Arizona just keeps winning as other college hoops undefeateds fall**\
 `The Wildcats insist all they care about is the game in front of them, but 17 in a row is nothing to dismiss.`\
 https://nytimes.com/athletic/6973424/2026/01/15/arizona-arizona-state-score-result-undefeated-no-1/

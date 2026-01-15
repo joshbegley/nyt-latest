@@ -1,3 +1,7 @@
+**Four Astronauts Splash Down on Earth After Early Return**\
+`Two American astronauts and others from Japan and Russia landed in the Pacific Ocean after an early journey home from the International Space Station because one of them was ill.`\
+https://nytimes.com/video/science/space/100000010646747/nasa-astronauts-return-iss.html
+
 **No. 1 Arizona just keeps winning as other college hoops undefeateds fall**\
 `The Wildcats insist all they care about is the game in front of them, but 17 in a row is nothing to dismiss.`\
 https://nytimes.com/athletic/6973424/2026/01/15/arizona-arizona-state-score-result-undefeated-no-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6971286/2026/01/15/colts-daniel-jones-michael-pittm
 **Trump Administration Live Updates: President to Meet With Venezuela’s Opposition Leader**\
 ``\
 https://nytimes.com/live/2026/01/15/us/trump-news
-
-**Is It OK to Alter Photos of Yourself to Look Better Online?**\
-`What are your thoughts on using photo editing tools, filters and artificial intelligence image generators to improve your appearance?`\
-https://nytimes.com/2026/01/15/learning/is-it-ok-to-alter-photos-of-yourself-to-look-better-online.html
 
