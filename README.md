@@ -1,3 +1,7 @@
+**Tracking Tropical Depression Nokaen**\
+`See the likely path and wind arrival times for Nokaen`\
+https://nytimes.com/interactive/2026/01/15/weather/one-map-path-tracker.html
+
 **Israel Watches Iran Protests Closely, But Is Wary of Intervening**\
 `Israel is unlikely to do much to try to precipitate a regime change in Iran, seeing the government as far from the brink of collapse and the current protests as insufficient to push it to that point.`\
 https://nytimes.com/2026/01/15/world/middleeast/israel-iran-protests-netanyahu.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6974285/2026/01/15/suns-vs-pistons-stream-how-to-wa
 **How to watch Flyers vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6974283/2026/01/15/flyers-vs-penguins-stream-how-to-watch-jan-15/
-
-**‘We Came Here to Vote’: Ugandans Go to Polls Despite Major Delays**\
-`Technical failures at polling places have caused disruptions, and the opposition has warned of government vote rigging amid an internet blackout.`\
-https://nytimes.com/2026/01/15/world/africa/uganda-election-museveni.html
 
