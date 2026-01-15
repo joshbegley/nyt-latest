@@ -1,3 +1,11 @@
+**The Pulse: These Olympics already have everything**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6971069/2026/01/15/milan-olympics-preview-the-pulse/
+
+**NBA Awards Watch: An SGA MVP repeat? Who has edge for Rookie of the Year?**\
+`With the midway point of the season upon us, it's time to start thinking seriously about these individual races.`\
+https://nytimes.com/athletic/6935989/2026/01/15/nba-awards-watch-sga-mvp-cooper-flagg-rookie/
+
 **Something Is Rotten in the State of America**\
 `This is the thanks Demark gets?`\
 https://nytimes.com/2026/01/15/opinion/denmark-greenland-iraq-trump-vance.html

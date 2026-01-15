@@ -1,3 +1,11 @@
+**The Pulse: These Olympics already have everything**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6971069/2026/01/15/milan-olympics-preview-the-pulse/
+
+**NBA Awards Watch: An SGA MVP repeat? Who has edge for Rookie of the Year?**\
+`With the midway point of the season upon us, it's time to start thinking seriously about these individual races.`\
+https://nytimes.com/athletic/6935989/2026/01/15/nba-awards-watch-sga-mvp-cooper-flagg-rookie/
+
 **Something Is Rotten in the State of America**\
 `This is the thanks Demark gets?`\
 https://nytimes.com/2026/01/15/opinion/denmark-greenland-iraq-trump-vance.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/15/world/americas/machado-trump-meeting-nobel-peace-
 **The U.S. Is Pressing Mexico to Allow U.S. Forces to Fight Cartels**\
 `The United States is escalating pressure on the Mexican government to permit the U.S. military to target fentanyl labs, according to American officials.`\
 https://nytimes.com/2026/01/15/world/americas/us-mexico-cartels.html
-
-**A.I. Has Arrived in Gmail. Here’s What to Know.**\
-`Google’s A.I. assistant, Gemini, can create a to-do list based on recent emails, among other new tricks. There are implications for your privacy.`\
-https://nytimes.com/2026/01/15/technology/personaltech/gmail-gemini-ai-email-inbox.html
-
-**One State, Two Very Different Views of Minneapolis**\
-`Pull up a stool at Ye Olde Pickle Factory and listen to a story about America’s urban-rural divide.`\
-https://nytimes.com/2026/01/15/us/one-state-two-very-different-views-of-minneapolis.html
 
