@@ -1,3 +1,7 @@
+**Steelers request interviews with Scheelhaase, Shula, Weaver, Flores and Winter: Sources**\
+`Brian Flores, Jesse Minter, Anthony Weaver, Nate Scheelhaase and Chris Shula are among the first coaching candidates set up for interviews.`\
+https://nytimes.com/athletic/6972698/2026/01/14/steelers-coaching-search-tracker/
+
 **Commanders to hire D.J. Williams, son of legend Doug Williams, as QBs coach**\
 `Williams will be the primary voice in the ear of quarterback Jayden Daniels as a key member of Washington’s altered offensive staff.`\
 https://nytimes.com/athletic/6972883/2026/01/14/commanders-dj-williams-qbs-coach-doug-williams/
