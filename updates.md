@@ -1,3 +1,19 @@
+**Mike Tomlin's final speech had Aaron Rodgers and T.J. Watt in tears**\
+`Details from Tomlin's emotional farewell to his players.`\
+https://nytimes.com/athletic/6974150/2026/01/15/mike-tomlin-resignation-aaron-rodgers-tj-watt-reaction/
+
+**Man Utd new manager bingo: What will Carrick say - and how will he say it?**\
+`‘The Manchester United way’ is just one of the phrases to listen out for as the interim head coach has his inaugural press conference`\
+https://nytimes.com/athletic/6966540/2026/01/15/manchester-united-new-manager-bingo/
+
+**Tessa Thompson in ‘Hedda,’ and More Theater to Stream**\
+`Other picks include “Bat Out of Hell: The Musical,” a new season of Playing on Air podcasts and “Lazarus,” featuring the music of David Bowie.`\
+https://nytimes.com/2026/01/15/theater/theater-to-stream-tessa-thompson-hedda.html
+
+**Israel Watches Iran Protests Closely, but Is Wary of Intervening**\
+`Israel is unlikely to do much to try to precipitate a regime change in Iran, seeing the government as far from the brink of collapse and the current protests as insufficient to push it to that point.`\
+https://nytimes.com/2026/01/15/world/middleeast/israel-iran-protests-netanyahu.html
+
 **Tracking Tropical Depression Nokaen**\
 `See the likely path and wind arrival times for Nokaen`\
 https://nytimes.com/interactive/2026/01/15/weather/storm-nokaen-tracker.html
