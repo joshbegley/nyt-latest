@@ -1,3 +1,19 @@
+**“Why not?” Why retired Dodgers great Clayton Kershaw will play in the World Baseball Classic**\
+`“I figured this is the perfect time to try the WBC. I really want to be a part of it,” Kershaw said. `\
+https://nytimes.com/athletic/6974467/2026/01/15/clayton-kershaw-world-baseball-classic-dodgers-retired/
+
+**Wild's Jonas Brodin could miss Olympics with lower-body injury**\
+`Brodin, who has played in 42 of the Wild's 47 games this season, has been injured often throughout his career because of his tough minutes.`\
+https://nytimes.com/athletic/6974040/2026/01/15/jonas-brodin-injury-wild-sweden-olympics/
+
+**Israel and Arab Nations Ask Trump to Refrain From Attacking Iran**\
+`Prime Minister Benjamin Netanyahu of Israel asked the president to postpone any planned attack. Israeli and Arab officials fear Iran could retaliate by striking their countries.`\
+https://nytimes.com/2026/01/15/us/politics/trump-iran-israel-us.html
+
+**John Cunningham, Character Actor and Broadway Stalwart, Dies at 93**\
+`He was a familiar face from Broadway productions of “Company,” “Titanic” and “Six Degrees of Separation” and numerous film and TV appearances.`\
+https://nytimes.com/2026/01/15/theater/john-cunningham-dead.html
+
 **Review: These Kings of Dance Get Their Marching Orders From Women**\
 `“Sons of Echo,” in which standout male dancers perform work by women, proves that male choreographers don’t have a monopoly on bad taste.`\
 https://nytimes.com/2026/01/15/arts/dance/review-daniil-simkin-sons-of-echo.html

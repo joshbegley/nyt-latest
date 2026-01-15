@@ -1,3 +1,7 @@
+**Trump Releases Health Plan but It’s Short on Specifics**\
+`The long-awaited plan would leave much to Congress and calls for payments to health-savings accounts rather than insurance subsidies, among other broad proposals.`\
+https://nytimes.com/2026/01/15/us/politics/trump-health-care-plan.html
+
 **“Why not?” Why retired Dodgers great Clayton Kershaw will play in the World Baseball Classic**\
 `“I figured this is the perfect time to try the WBC. I really want to be a part of it,” Kershaw said. `\
 https://nytimes.com/athletic/6974467/2026/01/15/clayton-kershaw-world-baseball-classic-dodgers-retired/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/15/world/americas/cuba-remains-venezuela-strikes-mad
 **Mike Tomlin's final speech had Aaron Rodgers and T.J. Watt in tears**\
 `Details from Tomlin's emotional farewell to his players.`\
 https://nytimes.com/athletic/6974150/2026/01/15/mike-tomlin-resignation-aaron-rodgers-tj-watt-reaction/
-
-**Man Utd new manager bingo: What will Carrick say - and how will he say it?**\
-`‘The Manchester United way’ is just one of the phrases to listen out for as the interim head coach has his inaugural press conference`\
-https://nytimes.com/athletic/6966540/2026/01/15/manchester-united-new-manager-bingo/
 
