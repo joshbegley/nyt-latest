@@ -1,9 +1,21 @@
+**Son of ‘Goodbye Horses’ Singer Among Americans Freed in Venezuela**\
+`James Luckey-Lange, 28, was released this week with several other U.S. citizens from the country’s notorious prison system after going missing in December, his family said.`\
+https://nytimes.com/2026/01/14/world/americas/venezuela-american-prisoner-luckey-lange.html
+
+**John Harbaugh's visit with Giants ends without deal: Sources**\
+`The team continued its all-out pursuit by flying in Harbaugh on co-owner Steve Tisch’s jet. One participant said the talks were "excellent."`\
+https://nytimes.com/athletic/6972933/2026/01/14/john-harbaugh-new-york-giants-visit/
+
+**New Zealand All Blacks part ways with head coach Scott Robertson**\
+`The country secured back-to-back World Cups in 2011 and 2015 but has struggled to recapture that level over the past decade.`\
+https://nytimes.com/athletic/6972985/2026/01/14/new-zealand-all-blacks-scott-robertson-head-coach/
+
 **Venezuelan Immigrants Urge Appeals Court to Restore Deportation Protections**\
 `The Trump administration has ended Temporary Protected Status for about 600,000 Venezuelan immigrants, part of a broader effort to curb avenues for immigrants to remain in the United States.`\
 https://nytimes.com/2026/01/14/us/venezuelan-immigrants-appeal-tps-ruling.html
 
 **Katie Ledecky posts second-best 1,500m freestyle time in first race of year**\
-`Ledecky was less than three seconds off her world record from 2018, sending a message as the build-up to the 2028 Olympics begins.`\
+`Ledecky was less than three seconds off her world record from 2018, sending a message as the buildup to the 2028 Olympics begins.`\
 https://nytimes.com/athletic/6972887/2026/01/14/katie-ledecky-1500-meter-freestyle-second-fastest-olympics/
 
 **Federal Agent Shoots Immigrant in Minneapolis, Homeland Security Says**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6972883/2026/01/14/commanders-dj-williams-qbs-coach
 **British Columbia Ends Program That Aimed to Curb Arrests of Drug Users**\
 `The three-year pilot program did not deliver the results hoped for, the health minister said. It had allowed drug users to avoid criminal charges for possessing small amounts of illegal substances.`\
 https://nytimes.com/2026/01/14/world/canada/british-columbia-drug-decriminalization.html
-
-**3 More Lawmakers in Video Say Federal Prosecutors Are Investigating Them**\
-`The lawmakers, all Democrats who urged military service members not to follow illegal orders, said prosecutors had contacted them. But it is unclear what crime they might have committed.`\
-https://nytimes.com/2026/01/14/us/politics/crow-goodlander-houlahan-trump-investigation.html
-
-**Steelers coaching search tracker: The first interview requests are in**\
-`Brian Flores, Jesse Minter, Anthony Weaver, Nate Scheelhaase and Chris Shula are among the first coaching candidates set up for interviews.`\
-https://nytimes.com/athletic/6972698/2026/01/14/steelers-coaching-search-tracker/
-
-**Boeing Knew About Flaws in UPS Plane That Crashed in Louisville, N.T.S.B. Says**\
-`In a report Wednesday, the National Transportation Safety Board said fractures that appeared to have led the left engine to separate from the plane’s wing had occurred at least four other times.`\
-https://nytimes.com/2026/01/14/us/louisville-crash-report.html
 
