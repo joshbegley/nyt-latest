@@ -1,3 +1,7 @@
+**Review: These Kings of Dance Get Their Marching Orders From Women**\
+`“Sons of Echo,” in which standout male dancers perform work by women, proves that male choreographers don’t have a monopoly on bad taste.`\
+https://nytimes.com/2026/01/15/arts/dance/review-daniil-simkin-sons-of-echo.html
+
 **In a Setback for Trump, Judge Says N.Y. Wind Farm Can Resume Construction**\
 `A federal judge said the Empire Wind project off Long Island would suffer “irreparable harm” if the Trump administration continued to hold up work.`\
 https://nytimes.com/2026/01/15/climate/empire-wind-court-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/15/world/middleeast/israel-iran-protests-netanyahu.h
 **A Crane Collapse in Thailand Killed 2, One Day After a Similar Tragedy**\
 `A crane collapsed on an expressway on the outskirts of Bangkok on Thursday, killing at least two people, an official said. It was the second fatal accident involving cranes in the country in two days.`\
 https://nytimes.com/video/world/asia/100000010646667/a-crane-collapse-in-thailand-killed-2-one-day-after-a-similar-tragedy.html
-
-**Tottenham forward Richarlison to miss up to seven weeks with hamstring injury**\
-`The Brazil international was taken off during Tottenham's 2-1 FA Cup third round defeat against Aston Villa on Saturday.`\
-https://nytimes.com/athletic/6974204/2026/01/15/tottenham-richarlison-injury-latest/
 
