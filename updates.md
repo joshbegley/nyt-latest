@@ -1,3 +1,19 @@
+**Did a Supreme Court Loss Embolden Trump on the Insurrection Act?**\
+`In refusing to let the president deploy National Guard troops in Illinois under an obscure law, the justices may have made him more apt to invoke greater powers.`\
+https://nytimes.com/2026/01/15/us/politics/supreme-court-trump-insurrection-act.html
+
+**Nick Reiner Was in a Mental Health Conservatorship in 2020**\
+`Mr. Reiner, who is accused of killing his parents, was under a yearlong legal arrangement that allows for involuntary psychiatric treatment.`\
+https://nytimes.com/2026/01/15/us/nick-reiner-conservatorship-schizophrenia.html
+
+**6 Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2026/01/15/books/review/new-recommended-books.html
+
+**What’s Going On in This Graph? | Jan. 21, 2026**\
+`How does life expectancy vary by state and country?`\
+https://nytimes.com/2026/01/15/learning/whats-going-on-in-this-graph-jan-21-2026.html
+
 **Scoop City: New York makes a Giant splash with Harbaugh**\
 `The Giants won the John Harbaugh sweepstakes, while the Jets lost the chance to draft Oregon quarterback Dante Moore`\
 https://nytimes.com/athletic/6974853/2026/01/15/new-york-giants-harbaugh-hired-dante-moore-jets-scoop-city/
