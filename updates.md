@@ -1,3 +1,15 @@
+**Is it risky to fly a sick astronaut home to Earth?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/is-it-risky-to-fly-a-sick-astronaut-home-to-earth
+
+**Here’s what to know.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/heres-what-to-know
+
+**Live Updates: Astronauts Head Home After Space Station Medical Evacuation**\
+`Two Americans and astronauts from Japan and Russia are set to splash down in the Pacific Ocean after a medical issue prompted NASA to move up their return to Earth.`\
+https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return
+
 **The New York Times in Print for Thursday, Jan. 15, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/15/todays-new-york-times
