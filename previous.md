@@ -1,3 +1,11 @@
+**Who is left on the International Space Station?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/who-is-left-on-the-international-space-station
+
+**Cameroon's Eto’o banned for misconduct in AFCON loss to Morocco**\
+`CAF found the Cameroon Football Federation president guilty of "violating the principles of sportsmanship".`\
+https://nytimes.com/athletic/6973469/2026/01/15/samuel-etoo-ban-cameroon-afcon/
+
 **Must-See Moments From the N.B.A.**\
 `Jamal Murray’s big performance for the Denver Nuggets was one highlight of a busy night around the league.`\
 https://nytimes.com/video/sports/basketball/100000010646528/must-see-moments-from-the-nba.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/15/nyregion/judge-alvin-hellerstein-maduro.html
 **Colbert Jokes That Trump Has Found ‘a New National Bird’**\
 `“You got to hand it to that auto worker for getting under Trump’s skin,” Stephen Colbert said after the president appeared to flip off a heckling worker at a Ford plant.`\
 https://nytimes.com/2026/01/15/arts/television/colbert-trump-middle-finger-heckler.html
-
-**The global sports industry risks losing $1.6trillion by 2050, report warns**\
-`Climate change and increasing physical inactivity flagged as factors which can slow the growth of sports economy worldwide`\
-https://nytimes.com/athletic/6967742/2026/01/15/davos-wef-global-sports-industry-trillion/
-
-**Morocco, a lack of tension, expectation and a belief they can win a first AFCON in 50 years**\
-`Hosts Morocco are in the final of the Africa Cup of Nations. The entire nation is utterly convinced they are going to win the tournament`\
-https://nytimes.com/athletic/6972988/2026/01/15/morocco-afcon-nigeria-analysis/
 

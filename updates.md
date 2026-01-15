@@ -1,3 +1,11 @@
+**Who is left on the International Space Station?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/who-is-left-on-the-international-space-station
+
+**Cameroon's Eto’o banned for misconduct in AFCON loss to Morocco**\
+`CAF found the Cameroon Football Federation president guilty of "violating the principles of sportsmanship".`\
+https://nytimes.com/athletic/6973469/2026/01/15/samuel-etoo-ban-cameroon-afcon/
+
 **Must-See Moments From the N.B.A.**\
 `Jamal Murray’s big performance for the Denver Nuggets was one highlight of a busy night around the league.`\
 https://nytimes.com/video/sports/basketball/100000010646528/must-see-moments-from-the-nba.html
