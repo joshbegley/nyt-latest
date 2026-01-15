@@ -1,3 +1,7 @@
+**It was supposed to be a new dawn for Real Madrid. Instead, they hit 'rock bottom'**\
+`With new manager Alvaro Arbeloa in the dugout, the Spanish giants fell to an embarrassing defeat at second-tier Albacete`\
+https://nytimes.com/athletic/6966369/2026/01/15/real-madrid-albacete-arbeloa-result-disaster-copa-del-rey/
+
 **Liam Rosenior and the positives and negatives from his first Chelsea home game**\
 `New Chelsea head coach Liam Rosenior would have had positives to take away from Wednesday night's game`\
 https://nytimes.com/athletic/6972814/2026/01/15/liam-rosenior-chelsea-arsenal-analysis/

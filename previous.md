@@ -1,3 +1,7 @@
+**It was supposed to be a new dawn for Real Madrid. Instead, they hit 'rock bottom'**\
+`With new manager Alvaro Arbeloa in the dugout, the Spanish giants fell to an embarrassing defeat at second-tier Albacete`\
+https://nytimes.com/athletic/6966369/2026/01/15/real-madrid-albacete-arbeloa-result-disaster-copa-del-rey/
+
 **Liam Rosenior and the positives and negatives from his first Chelsea home game**\
 `New Chelsea head coach Liam Rosenior would have had positives to take away from Wednesday night's game`\
 https://nytimes.com/athletic/6972814/2026/01/15/liam-rosenior-chelsea-arsenal-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/15/world/asia/thailand-crane-expressway-rama2.html
 **The FPL forwards to attack Gameweek 22 and beyond**\
 `The forward template in Fantasy Premier League has seen another significant change in recent weeks — and the route to goals are aplenty`\
 https://nytimes.com/athletic/6968988/2026/01/15/fantasy-premier-league-tips-fpl-gameweek-22/
-
-**How Sesko has found form at Manchester United - and can Carrick help maintain it?**\
-`Darren Fletcher's caretaker spell in charge brought a goalscoring uplift to Sesko, who is beginning to find his feet in English football`\
-https://nytimes.com/athletic/6142059/2026/01/15/carrick-sesko-manchester-united-form/
 
