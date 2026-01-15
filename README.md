@@ -1,3 +1,27 @@
+**No. 1 Arizona just keeps winning as other college hoops undefeateds fall**\
+`The Wildcats insist all they care about is the game in front of them, but 17 in a row is nothing to dismiss.`\
+https://nytimes.com/athletic/6973424/2026/01/15/arizona-arizona-state-score-result-undefeated-no-1/
+
+**The Lakers have revealed their blueprint. Now, they have to commit to it**\
+`The Lakers have found their standard. The execution is the ultimate test. "Hopefully we can find that consistency," JJ Redick said. `\
+https://nytimes.com/athletic/6968915/2026/01/15/lakers-blueprint-luka-doncic-lebron-james-nba/
+
+**With Dante Moore back, Oregon's 'all-in' for 2026 — plus other transfer portal notes**\
+`With Moore and a significant amount of experienced talent back next year, the Ducks’ objective is clear.`\
+https://nytimes.com/athletic/6972845/2026/01/15/oregon-dante-moore-quarterback-national-title/
+
+**Commanders' new stadium renderings depict an homage to the team's past**\
+`The renderings show a wavy roof line, a transparent top that will resemble an open-air venue and a colonnade exterior.`\
+https://nytimes.com/athletic/6973253/2026/01/15/washington-commanders-stadium-renderings/
+
+**T.J. Oshie Q&A: Life after the NHL, the 2019 Blues, Robertson's Olympic snub and more**\
+`Oshie, now a TV analyst for ESPN, recalled a 6 a.m. FaceTime to his former Blues teammates on the night they won the Stanley Cup.`\
+https://nytimes.com/athletic/6966386/2026/01/15/tj-oshie-blues-capitals-olympics/
+
+**Would You Wear Balenciaga at the Gym?**\
+`In Pierpaolo Piccioli’s second collection, he stretches the label into some new shapes.`\
+https://nytimes.com/2026/01/15/style/balenciaga-pierpaolo-piccioli-fall-gym.html
+
 **After an Inconclusive Meeting, Greenlanders Ask: Now What?**\
 `A high-powered meeting in Washington on Wednesday ended in an impasse, leaving Greenlanders fearful of what comes next.`\
 https://nytimes.com/2026/01/15/world/europe/trump-greenland-denmark-meeting.html
@@ -13,28 +37,4 @@ https://nytimes.com/live/2026/01/15/us/trump-news
 **Is It OK to Alter Photos of Yourself to Look Better Online?**\
 `What are your thoughts on using photo editing tools, filters and artificial intelligence image generators to improve your appearance?`\
 https://nytimes.com/2026/01/15/learning/is-it-ok-to-alter-photos-of-yourself-to-look-better-online.html
-
-**Iran Says Protester Was Not Sentenced to Death After International Outcry**\
-`The judiciary said that Erfan Soltani would not be executed, Iranian state media reported. His case has drawn attention to the fate of the arrested demonstrators.`\
-https://nytimes.com/2026/01/15/world/middleeast/iran-protests-erfan-soltani-execution.html
-
-**Leeds close to completing Buonanotte loan from Brighton after Chelsea stay ended**\
-`The proposed deal would see the attacking midfielder's Chelsea loan ended early to allow his move to Elland Road.`\
-https://nytimes.com/athletic/6973619/2026/01/15/facundo-buonanotte-leeds-chelsea-loan/
-
-**‘Squished Between Chairs’ on a Train: How Some Passengers Survived a Crane Collapse**\
-`Some travelers were able to squeeze out of mangled cars and others were rescued by residents, after the accident in northeastern Thailand. Dozens did not survive.`\
-https://nytimes.com/2026/01/15/world/asia/thailand-train-crane-survivors.html
-
-**Tottenham name CFG's Moersen as new director of football operations**\
-`Moersen is currently on gardening leave from CFG and is due to join Spurs ahead of the summer transfer window.`\
-https://nytimes.com/athletic/6973587/2026/01/15/tottenham-city-football-group-moersen-director/
-
-**Court Vision: Indiana's big what-if, best hoops-football coaching combos**\
-`Who makes the midseason all-transfer team? And how Ryan Odom is leading Virginia back to familiar territory.`\
-https://nytimes.com/athletic/6971850/2026/01/15/college-basketball-indiana-coaching-transfers/
-
-**Andy Robertson faces big decision with Liverpool contract expiring**\
-`After losing his place in the starting line-up, the Scotland international must decide if he is happy with a reduced role at Anfield`\
-https://nytimes.com/athletic/6965791/2026/01/15/andy-robertson-liverpool-future-contract/
 
