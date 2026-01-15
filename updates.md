@@ -1,3 +1,7 @@
+**Commanders to hire D.J. Williams, son of legend Doug Williams, as QBs coach**\
+`Williams will be the primary voice in the ear of quarterback Jayden Daniels as a key member of Washington’s altered offensive staff.`\
+https://nytimes.com/athletic/6972883/2026/01/14/commanders-dj-williams-qbs-coach-doug-williams/
+
 **British Columbia Ends Program That Aimed to Curb Arrests of Drug Users**\
 `The three-year pilot program did not deliver the results hoped for, the health minister said. It had allowed drug users to avoid criminal charges for possessing small amounts of illegal substances.`\
 https://nytimes.com/2026/01/14/world/canada/british-columbia-drug-decriminalization.html

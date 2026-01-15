@@ -1,3 +1,7 @@
+**Commanders to hire D.J. Williams, son of legend Doug Williams, as QBs coach**\
+`Williams will be the primary voice in the ear of quarterback Jayden Daniels as a key member of Washington’s altered offensive staff.`\
+https://nytimes.com/athletic/6972883/2026/01/14/commanders-dj-williams-qbs-coach-doug-williams/
+
 **British Columbia Ends Program That Aimed to Curb Arrests of Drug Users**\
 `The three-year pilot program did not deliver the results hoped for, the health minister said. It had allowed drug users to avoid criminal charges for possessing small amounts of illegal substances.`\
 https://nytimes.com/2026/01/14/world/canada/british-columbia-drug-decriminalization.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/14/us/politics/greenland-trump-denmark.html
 **A pond for Ponds: Bloomington names body of water after Indiana CB**\
 `The city of Bloomington has temporarily renamed a local pond “D’Angelo’s Pond” in honor of the Indiana cornerback.`\
 https://nytimes.com/athletic/6972274/2026/01/14/dangelo-ponds-indiana-cornerback-bloomington-pond/
-
-**NCAA asks federal agency to pause bets on college sports prediction market**\
-`Prediction markets are regulated by the CFTC, but do not have to meet oversight standards as online sportsbooks.`\
-https://nytimes.com/athletic/6972317/2026/01/14/ncaa-requests-federal-agency-to-pause-betting-on-college-sports-prediction-markets/
 
