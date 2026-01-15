@@ -1,3 +1,7 @@
+**Cuba Receives Remains of 32 Citizens Killed in U.S. Strikes in Venezuela**\
+`The Cubans had served as part of the security detail of Nicolás Maduro, Venezuela’s ousted president.`\
+https://nytimes.com/2026/01/15/world/americas/cuba-remains-venezuela-strikes-maduro.html
+
 **Mike Tomlin's final speech had Aaron Rodgers and T.J. Watt in tears**\
 `Details from Tomlin's emotional farewell to his players.`\
 https://nytimes.com/athletic/6974150/2026/01/15/mike-tomlin-resignation-aaron-rodgers-tj-watt-reaction/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/15/theater/hells-kitchen-keys-broadway-closing.html
 **How to watch Sharks vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6974296/2026/01/15/sharks-vs-capitals-stream-how-to-watch-jan-15/
-
-**How to watch Canadiens vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6974293/2026/01/15/canadiens-vs-sabres-stream-how-to-watch-jan-15/
 
