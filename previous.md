@@ -1,3 +1,7 @@
+**Democratic Lawmakers Say They Face New Round of Federal Inquiries**\
+`By Wednesday, at least five Democratic lawmakers said they received new inquiries from federal prosecutors regarding a video they published in November. In the video, they urged military service members not to follow illegal orders.`\
+https://nytimes.com/video/us/politics/100000010647151/democratic-lawmakers-pirro-investigation.html
+
 **Number of Businesses in New York City Plunged Last Spring, Report Says**\
 `Roughly 8,400 businesses closed in the second quarter of 2025, according to the most recent city data, creating the largest net decline in business activity since before the pandemic.`\
 https://nytimes.com/2026/01/15/nyregion/business-closures-nyc-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6975221/2026/01/15/franz-wagner-return-ja-morant-be
 **N.S.A. Nominee Promises to Protect Elections From Foreign Interference**\
 `President Trump fired the National Security Agency’s chief back in April and has weakened cyberattack protections.`\
 https://nytimes.com/2026/01/15/us/politics/trump-nsa-cyber-command-nominee.html
-
-**Herby Pork Laab With Chile**\
-`In this take on the classic Thai dish laab (also spelled larb) moo, ground pork is pan-cooked, then stirred together with a combination of funky fish sauce, fresh and dried chiles, shallots, lime juice and an abundance of fresh herbs for brightness.`\
-https://nytimes.com/video/dining/100000010644522/herby-pork-laab-with-chile.html
 
