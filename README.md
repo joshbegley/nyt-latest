@@ -1,3 +1,11 @@
+**Drance: Why a rebuild will hinge almost entirely on Canucks ownership**\
+`Probabilistically speaking, it's Canucks ownership that is going to be the true stewards of this rebuilding effort.`\
+https://nytimes.com/athletic/6973267/2026/01/15/canucks-ownership-jim-rutherford-standings-stats-rebuild/
+
+**The Hard Truth of Weight-Loss Drugs: You Probably Need Them Forever**\
+`Many people who use these medications don’t want to stay on them long term. But research has repeatedly shown that quitting the drugs means gaining back weight.`\
+https://nytimes.com/2026/01/15/well/weight-loss-drugs-life-time.html
+
 **For the World’s Food Supply, Federal Funding Cuts Have Long-Term Impacts**\
 `The U.S. Agency for International Development has been a major supporter of global agriculture research. Now many studies are being scuttled or scaled back.`\
 https://nytimes.com/2026/01/15/science/agriculture-science-usaid-global-food.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/15/health/health-agreements-us-africa.html
 **Maps: 3.1-Magnitude Earthquake Shakes the San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/01/15/us/earthquake-san-francisco-bay-area.html
-
-**Under Trump, a Shift Toward ‘Absolute Immunity’ for ICE**\
-`Since the fatal shooting of Renee Good in Minneapolis, administration officials have defended the use of deadly force, which agency guidelines say should be a last resort.`\
-https://nytimes.com/2026/01/15/us/politics/trump-ice-immunity.html
-
-**Here’s the latest.**\
-`By Mitch Smith, Nicholas Bogel-Burroughs and Shaila Dewan`\
-https://nytimes.com/live/2026/01/15/us/minneapolis-shooting-ice/heres-the-latest
 
