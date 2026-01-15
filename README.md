@@ -1,3 +1,7 @@
+**Verizon Offers $20 Credit to Users Affected by Outage**\
+`A company spokeswoman said “a software issue” was to blame for the widespread outage that disrupted service across the United States on Wednesday.`\
+https://nytimes.com/2026/01/15/us/verizon-outage-issues-credit.html
+
 **Jim Hartung, Gymnast Who Helped Deliver U.S. Gold, Dies at 65**\
 `At the 1984 Games in Los Angeles, he was part of the first — and still only — Olympic gold medal won by the American men in the gymnastics team competition.`\
 https://nytimes.com/2026/01/15/sports/jim-hartung-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/15/dining/one-pot-pasta-cabbage-recipe.html
 **Remains of 32 Cubans Killed in U.S. Strikes in Venezuela Are Returned**\
 `State-run television aired a ceremony for the remains of 32 Cuban citizens killed in the U.S. strikes in Venezuela arriving in Havana. The deceased were part of the security detail of Nicolás Maduro, Venezuela’s ousted president.`\
 https://nytimes.com/video/world/americas/100000010647456/cuba-bodies-venezuela.html
-
-**Blackmon reports to 'Caps amid contract talks; club adamant no trade coming**\
-`The reigning MLS Defender of the Year is seeking an improved contract despite his current deal running through 2027`\
-https://nytimes.com/athletic/6974518/2026/01/15/tristan-blackmon-vancouver-whitecaps-preseason-contract-mls-miami-trade/
 

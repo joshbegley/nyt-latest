@@ -1,3 +1,7 @@
+**Jim Hartung, Gymnast Who Helped Deliver U.S. Gold, Dies at 65**\
+`At the 1984 Games in Los Angeles, he was part of the first — and still only — Olympic gold medal won by the American men in the gymnastics team competition.`\
+https://nytimes.com/2026/01/15/sports/jim-hartung-dead.html
+
 **Alexander Brothers Accuser Was Found Dead Last Year, Authorities Say**\
 `The death of Kate Whiteman, whose accusation of sexual assault against Oren and Alon Alexander opened a floodgate of similar allegations, is under investigation.`\
 https://nytimes.com/2026/01/15/nyregion/kate-whiteman-alexander-brothers.html

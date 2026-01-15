@@ -1,3 +1,7 @@
+**Jim Hartung, Gymnast Who Helped Deliver U.S. Gold, Dies at 65**\
+`At the 1984 Games in Los Angeles, he was part of the first — and still only — Olympic gold medal won by the American men in the gymnastics team competition.`\
+https://nytimes.com/2026/01/15/sports/jim-hartung-dead.html
+
 **Alexander Brothers Accuser Was Found Dead Last Year, Authorities Say**\
 `The death of Kate Whiteman, whose accusation of sexual assault against Oren and Alon Alexander opened a floodgate of similar allegations, is under investigation.`\
 https://nytimes.com/2026/01/15/nyregion/kate-whiteman-alexander-brothers.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/americas/100000010647456/cuba-bodies-venezuela.h
 **Blackmon reports to 'Caps amid contract talks; club adamant no trade coming**\
 `The reigning MLS Defender of the Year is seeking an improved contract despite his current deal running through 2027`\
 https://nytimes.com/athletic/6974518/2026/01/15/tristan-blackmon-vancouver-whitecaps-preseason-contract-mls-miami-trade/
-
-**Yankees search for international director as signing period opens**\
-`The club has interviewed external and internal options after firing longtime international scouting director Donny Rowland last year.`\
-https://nytimes.com/athletic/6974472/2026/01/15/yankees-international-scouting-director-mlb-signing-period/
 
