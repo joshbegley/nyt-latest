@@ -1,3 +1,7 @@
+**A pond for Ponds: Bloomington names body of water after Indiana CB**\
+`The city of Bloomington has temporarily renamed a local pond “D’Angelo’s Pond” in honor of the Indiana cornerback.`\
+https://nytimes.com/athletic/6972274/2026/01/14/dangelo-ponds-indiana-cornerback-bloomington-pond/
+
 **NCAA asks federal agency to pause bets on college sports prediction market**\
 `Prediction markets are regulated by the CFTC, but do not have to meet oversight standards as online sportsbooks.`\
 https://nytimes.com/athletic/6972317/2026/01/14/ncaa-requests-federal-agency-to-pause-betting-on-college-sports-prediction-markets/
@@ -14,7 +18,7 @@ https://nytimes.com/2026/01/14/nyregion/erik-duran-trial.html
 `With the Suárez signing, the Red Sox are over the $264 million second luxury tax bracket. Will that impact what moves they might make next?`\
 https://nytimes.com/athletic/6971994/2026/01/14/red-sox-ranger-suarez-signing-impact/
 
-**‘I just kept scoring.’ Arizona HS basketball player scores 100 in 3 quarters**\
+**‘I just kept scoring.’ High school basketball player hits 100 in 3 quarters**\
 `Stubbs set the Arizona single-game high school scoring record with 100 points, on just six 3-pointers.`\
 https://nytimes.com/athletic/6972254/2026/01/14/high-school-basketball-record-100-points-adrian-stubbs-arizona/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/14/business/economy/trump-chips-tariffs.html
 **FIFA says it received record 500 million ticket requests for 2026 World Cup**\
 `FIFA will now conduct random draws for each of the World Cup’s 104 matches and award tickets to the selected applicants in February.`\
 https://nytimes.com/athletic/6971550/2026/01/14/world-cup-tickets-demand/
-
-**Denmark Has ‘Fundamental Disagreement’ With U.S. Over Greenland**\
-`On Wednesday, Denmark and Greenland’s foreign ministers met with the Trump administration. President Trump urged the United States needs Greenland for national security purposes but both foreign officials argued Greenland is not up for sale.`\
-https://nytimes.com/video/world/europe/100000010645800/denmark-greenland-foreign-officials-disagreement-trump-administration.html
 

@@ -1,3 +1,7 @@
+**A White House Meeting Leaves Trump and Denmark at Odds Over Greenland**\
+`Denmark’s foreign minister left the White House saying that his country had a “fundamental disagreement” with President Trump, as several NATO countries sent troops to Greenland.`\
+https://nytimes.com/2026/01/14/us/politics/greenland-trump-denmark.html
+
 **A pond for Ponds: Bloomington names body of water after Indiana CB**\
 `The city of Bloomington has temporarily renamed a local pond “D’Angelo’s Pond” in honor of the Indiana cornerback.`\
 https://nytimes.com/athletic/6972274/2026/01/14/dangelo-ponds-indiana-cornerback-bloomington-pond/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6972661/2026/01/14/tranmere-rovers-owners-new/
 **Trump Imposes Limited Tariffs on Foreign Semiconductors**\
 `The tariffs will allow President Trump to take a cut of Nvidia’s chip sales to China while putting off a decision about imposing higher taxes on the chip industry.`\
 https://nytimes.com/2026/01/14/business/economy/trump-chips-tariffs.html
-
-**FIFA says it received record 500 million ticket requests for 2026 World Cup**\
-`FIFA will now conduct random draws for each of the World Cup’s 104 matches and award tickets to the selected applicants in February.`\
-https://nytimes.com/athletic/6971550/2026/01/14/world-cup-tickets-demand/
 
