@@ -1,3 +1,11 @@
+**Leonard D. Jacoby, 83, Dies; Brought Legal Services to the Masses**\
+`He and Steven Z. Meyers opened their first low-cost legal clinic in 1972. Within a decade, they had revolutionized the legal industry.`\
+https://nytimes.com/2026/01/15/business/leonard-d-jacoby-dead.html
+
+**Hesitant to Visit the U.S. for the World Cup? We Want to Hear From You.**\
+`International soccer fans face hurdles like travel bans, long visa delays and high ticket prices for U.S. matches. Will they be enough to keep you away?`\
+https://nytimes.com/2026/01/15/travel/world-cup-2026-fans.html
+
 **Minneapolis Schools Allow Students to Learn Online Amid ICE Fears**\
 `As immigration agents and protests lead some families to keep children home, schools around the Twin Cities are offering a remote option for the next several weeks.`\
 https://nytimes.com/2026/01/15/us/minneapolis-schools-online-learning-ice.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6975056/2026/01/15/jazz-vs-mavericks-stream-how-to-
 **How to watch Bucks vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6975054/2026/01/15/bucks-vs-spurs-stream-how-to-watch-jan-15/
-
-**How to watch Kraken vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6975051/2026/01/15/kraken-vs-bruins-stream-how-to-watch-jan-15/
-
-**How to watch Hornets vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6975049/2026/01/15/hornets-vs-lakers-stream-how-to-watch-jan-15/
 
