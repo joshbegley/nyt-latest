@@ -1,3 +1,15 @@
+**Is it risky to fly a sick astronaut home to Earth?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/is-it-risky-to-fly-a-sick-astronaut-home-to-earth
+
+**Here’s what to know.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/heres-what-to-know
+
+**Live Updates: Astronauts Head Home After Space Station Medical Evacuation**\
+`Two Americans and astronauts from Japan and Russia are set to splash down in the Pacific Ocean after a medical issue prompted NASA to move up their return to Earth.`\
+https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return
+
 **The New York Times in Print for Thursday, Jan. 15, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/15/todays-new-york-times
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6969108/2026/01/15/xabi-alonso-real-madrid-manageme
 **West Ham and Tottenham have lost their Way**\
 `The two clubs have huge histories but a modern malaise - unhappy fans, owner issues, unpopular managers, and recruitment failings`\
 https://nytimes.com/athletic/6928993/2026/01/15/west-ham-tottenham-hotspur-style-history-way/
-
-**Texas stuns No. 10 Vanderbilt as Longhorns surge against SEC's top teams**\
-`Texas earns two top 15 victories over Alabama and Vanderbilt in a four day span.`\
-https://nytimes.com/athletic/6973186/2026/01/15/texas-hands-vanderbilt-first-lost/
-
-**The Alternative Premier League Table: No 22 – Dribbles**\
-`A look at how top-flight sides employ the art of the dribble, from super-keen Manchester City down to semi-reluctant Crystal Palace `\
-https://nytimes.com/athletic/6969929/2026/01/15/alternative-premier-league-table-no-22-dribbles/
-
-**How Liverpool play: Experimental formations, a blunter attack, and set-piece concerns**\
-`The Athletic's series taking the tactical temperature at the Premier League's 'Big Six' continues with a look at Arne Slot's reigning champs`\
-https://nytimes.com/athletic/6953927/2026/01/15/how-liverpool-play-premier-league-tactics/
 
