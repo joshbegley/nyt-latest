@@ -1,3 +1,7 @@
+**Welcome to the Alex Bregman era as World Series expectations return to Wrigley Field**\
+`As the Cubs introduce Bregman as third baseman, they'll reintroduce themselves as a big-market franchise with serious ambitions to win.`\
+https://nytimes.com/athletic/6972851/2026/01/14/cubs-alex-bregman-world-series-wrigley-field/
+
 **Commanders to hire D.J. Williams, son of legend Doug Williams, as QBs coach**\
 `Williams will be the primary voice in the ear of quarterback Jayden Daniels as a key member of Washington’s altered offensive staff.`\
 https://nytimes.com/athletic/6972883/2026/01/14/commanders-dj-williams-qbs-coach-doug-williams/
@@ -10,7 +14,7 @@ https://nytimes.com/2026/01/14/world/canada/british-columbia-drug-decriminalizat
 `The lawmakers, all Democrats who urged military service members not to follow illegal orders, said prosecutors had contacted them. But it is unclear what crime they might have committed.`\
 https://nytimes.com/2026/01/14/us/politics/crow-goodlander-houlahan-trump-investigation.html
 
-**Steelers request interviews with Scheelhaase, Shula, Weaver, Flores and Winter: Sources**\
+**Steelers coaching search tracker: The first interview requests are in**\
 `Brian Flores, Jesse Minter, Anthony Weaver, Nate Scheelhaase and Chris Shula are among the first coaching candidates set up for interviews.`\
 https://nytimes.com/athletic/6972698/2026/01/14/steelers-coaching-search-tracker/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6972789/2026/01/14/how-to-watch-miami-fl-vs-no-1-in
 **After Danish and U.S. Officials Meet on Greenland, Trump Remains Unmoved**\
 `Denmark’s foreign minister left the White House complex saying that his country had a “fundamental disagreement” with President Trump, as several NATO countries sent troops to Greenland.`\
 https://nytimes.com/2026/01/14/us/politics/greenland-trump-denmark.html
-
-**A pond for Ponds: Bloomington names body of water after Indiana CB**\
-`The city of Bloomington has temporarily renamed a local pond “D’Angelo’s Pond” in honor of the Indiana cornerback.`\
-https://nytimes.com/athletic/6972274/2026/01/14/dangelo-ponds-indiana-cornerback-bloomington-pond/
 

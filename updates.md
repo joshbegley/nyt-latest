@@ -1,3 +1,11 @@
+**Welcome to the Alex Bregman era as World Series expectations return to Wrigley Field**\
+`As the Cubs introduce Bregman as third baseman, they'll reintroduce themselves as a big-market franchise with serious ambitions to win.`\
+https://nytimes.com/athletic/6972851/2026/01/14/cubs-alex-bregman-world-series-wrigley-field/
+
+**Steelers coaching search tracker: The first interview requests are in**\
+`Brian Flores, Jesse Minter, Anthony Weaver, Nate Scheelhaase and Chris Shula are among the first coaching candidates set up for interviews.`\
+https://nytimes.com/athletic/6972698/2026/01/14/steelers-coaching-search-tracker/
+
 **Steelers request interviews with Scheelhaase, Shula, Weaver, Flores and Winter: Sources**\
 `Brian Flores, Jesse Minter, Anthony Weaver, Nate Scheelhaase and Chris Shula are among the first coaching candidates set up for interviews.`\
 https://nytimes.com/athletic/6972698/2026/01/14/steelers-coaching-search-tracker/
