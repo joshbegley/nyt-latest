@@ -1,3 +1,7 @@
+**Colbert Jokes That Trump Has Found ‘a New National Bird’**\
+`“You got to hand it to that auto worker for getting under Trump’s skin,” Stephen Colbert said after the president appeared to flip off a heckling worker at a Ford plant.`\
+https://nytimes.com/2026/01/15/arts/television/colbert-trump-middle-finger-heckler.html
+
 **The global sports industry risks losing $1.6trillion by 2050, report warns**\
 `Climate change and increasing physical inactivity flagged as factors which can slow the growth of sports economy worldwide`\
 https://nytimes.com/athletic/6967742/2026/01/15/davos-wef-global-sports-industry-trillion/
