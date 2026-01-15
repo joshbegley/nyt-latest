@@ -1,3 +1,7 @@
+**British Columbia Ends Program That Aimed to Curb Arrests of Drug Users**\
+`The three-year pilot program did not deliver the results hoped for, the health minister said. It had allowed drug users to avoid criminal charges for possessing small amounts of illegal substances.`\
+https://nytimes.com/2026/01/14/world/canada/british-columbia-drug-decriminalization.html
+
 **3 More Lawmakers in Video Say Federal Prosecutors Are Investigating Them**\
 `The lawmakers, all Democrats who urged military service members not to follow illegal orders, said prosecutors had contacted them. But it is unclear what crime they might have committed.`\
 https://nytimes.com/2026/01/14/us/politics/crow-goodlander-houlahan-trump-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6972274/2026/01/14/dangelo-ponds-indiana-cornerback
 **NCAA asks federal agency to pause bets on college sports prediction market**\
 `Prediction markets are regulated by the CFTC, but do not have to meet oversight standards as online sportsbooks.`\
 https://nytimes.com/athletic/6972317/2026/01/14/ncaa-requests-federal-agency-to-pause-betting-on-college-sports-prediction-markets/
-
-**A Look At Antarctica From Above**\
-`After nearly two weeks at sea without being able to launch his drone, New York Times photographer Chang W. Lee finally captures Antarctica from the air.`\
-https://nytimes.com/video/climate/100000010644792/a-look-at-antarctica-from-above.html
 

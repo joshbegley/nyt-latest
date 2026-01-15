@@ -1,3 +1,7 @@
+**British Columbia Ends Program That Aimed to Curb Arrests of Drug Users**\
+`The three-year pilot program did not deliver the results hoped for, the health minister said. It had allowed drug users to avoid criminal charges for possessing small amounts of illegal substances.`\
+https://nytimes.com/2026/01/14/world/canada/british-columbia-drug-decriminalization.html
+
 **3 More Lawmakers in Video Say Federal Prosecutors Are Investigating Them**\
 `The lawmakers, all Democrats who urged military service members not to follow illegal orders, said prosecutors had contacted them. But it is unclear what crime they might have committed.`\
 https://nytimes.com/2026/01/14/us/politics/crow-goodlander-houlahan-trump-investigation.html
