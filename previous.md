@@ -1,3 +1,19 @@
+**Many Mayors Have Tried to Help Small Businesses. It’s Mamdani’s Turn.**\
+`Small business advocates in New York are excited that Mayor Zohran Mamdani is tackling the issue of excessive fees and fines, but they’ve heard similar promises before.`\
+https://nytimes.com/2026/01/15/nyregion/mamdani-fees-fines-businesses.html
+
+**New Dietary Guidelines**\
+`Why was this image in the news recently? What is it communicating?`\
+https://nytimes.com/2026/01/15/learning/new-dietary-guidelines.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/15/crosswords/spelling-bee-forum.html
+
+**The Judge in the Maduro Case Is 92. All Eyes Will Be on His Stamina.**\
+`Judge Alvin K. Hellerstein was seen drifting in and out of sleep in court last year. The case of Nicolás Maduro, the Venezuelan leader, will test his endurance.`\
+https://nytimes.com/2026/01/15/nyregion/judge-alvin-hellerstein-maduro.html
+
 **Colbert Jokes That Trump Has Found ‘a New National Bird’**\
 `“You got to hand it to that auto worker for getting under Trump’s skin,” Stephen Colbert said after the president appeared to flip off a heckling worker at a Ford plant.`\
 https://nytimes.com/2026/01/15/arts/television/colbert-trump-middle-finger-heckler.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/15/learning/word-of-the-day-autonomous.html
 **It was supposed to be a new dawn for Real Madrid. Instead, they hit 'rock bottom'**\
 `With new manager Alvaro Arbeloa in the dugout, the Spanish giants fell to an embarrassing defeat at second-tier Albacete`\
 https://nytimes.com/athletic/6966369/2026/01/15/real-madrid-albacete-arbeloa-result-disaster-copa-del-rey/
-
-**Liam Rosenior and the positives and negatives from his first Chelsea home game**\
-`New Chelsea head coach Liam Rosenior would have had positives to take away from Wednesday night's game`\
-https://nytimes.com/athletic/6972814/2026/01/15/liam-rosenior-chelsea-arsenal-analysis/
-
-**Arsenal's three goalscorers and the different contributions needed to win trophies**\
-`Arsenal beat Chelsea 3-2 in their Carabao Cup semi-final first leg on Wednesday night`\
-https://nytimes.com/athletic/6972779/2026/01/15/arsenal-chelsea-goalscorers-analysis/
-
-**Is it risky to fly a sick astronaut home to Earth?**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/is-it-risky-to-fly-a-sick-astronaut-home-to-earth
-
-**Here’s what to know.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/heres-what-to-know
 
