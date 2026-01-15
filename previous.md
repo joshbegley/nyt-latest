@@ -1,3 +1,15 @@
+**Pentagon Will ‘Refocus’ Military Publication Stars and Stripes**\
+`The agency’s chief spokesman outlined plans to intervene in the previously independent newspaper’s coverage to ensure it reflects official department messaging.`\
+https://nytimes.com/2026/01/15/us/politics/pentagon-will-refocus-military-publication-stars-and-stripes.html
+
+**A Healthy Brain**\
+`Even when so much is happening in the world, it’s important to take care of your brain health. Our Well desk shares tips.`\
+https://nytimes.com/2026/01/15/world/brain-health-challenge-trump-iran.html
+
+**Milan Court Closes Fraud Case Against Italian Influencer Chiara Ferragni**\
+`A judge dropped the case against Ms. Ferragni, who had been embroiled in a scandal over sales of a limited edition Christmas cake marketed as supporting cancer treatment.`\
+https://nytimes.com/2026/01/15/world/europe/chiara-ferragni-pandoro-cake-italy-influencer.html
+
 **Football lawmakers to discuss bringing in countdowns to combat time-wasting**\
 `The International Football Association Board (IFAB) is keen to reduce the amount of time lost in games.`\
 https://nytimes.com/athletic/6975130/2026/01/15/football-rules-timewasting-throw-in-goal-kick/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/15/travel/world-cup-2026-fans.html
 **Minneapolis Schools Allow Students to Learn Online Amid ICE Fears**\
 `As immigration agents and protests lead some families to keep children home, schools around the Twin Cities are offering a remote option for the next several weeks.`\
 https://nytimes.com/2026/01/15/us/minneapolis-schools-online-learning-ice.html
-
-**Rockies agree to 2-year deal with versatile vet Willi Castro: Sources**\
-`Castro has logged time at three infield positions as well as all three outfield spots during his seven seasons in the majors.`\
-https://nytimes.com/athletic/6836763/2026/01/15/mlb-willi-castro-free-agency-signing-rockies/
-
-**Why it's important that the Giants signed Luis Hernández**\
-`A lot can go wrong with an international signing, but it's possible adding Hernández will be the Giants' best move of this offseason.`\
-https://nytimes.com/athletic/6974873/2026/01/15/sf-giants-luis-hernandez-signing-takeaways/
-
-**Fantasy basketball hot topics of the week: Ja Morant trade watch and more**\
-`Stan Son addresses fantasy-relevant news around the league, such as the Ja Morant trade rumors, and offers more fantasy basketball takes. `\
-https://nytimes.com/athletic/6974814/2026/01/15/fantasy-basketball-hot-topics-ja-morant-trade/
 

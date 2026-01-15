@@ -1,3 +1,15 @@
+**Pentagon Will ‘Refocus’ Military Publication Stars and Stripes**\
+`The agency’s chief spokesman outlined plans to intervene in the previously independent newspaper’s coverage to ensure it reflects official department messaging.`\
+https://nytimes.com/2026/01/15/us/politics/pentagon-will-refocus-military-publication-stars-and-stripes.html
+
+**A Healthy Brain**\
+`Even when so much is happening in the world, it’s important to take care of your brain health. Our Well desk shares tips.`\
+https://nytimes.com/2026/01/15/world/brain-health-challenge-trump-iran.html
+
+**Milan Court Closes Fraud Case Against Italian Influencer Chiara Ferragni**\
+`A judge dropped the case against Ms. Ferragni, who had been embroiled in a scandal over sales of a limited edition Christmas cake marketed as supporting cancer treatment.`\
+https://nytimes.com/2026/01/15/world/europe/chiara-ferragni-pandoro-cake-italy-influencer.html
+
 **Football lawmakers to discuss bringing in countdowns to combat time-wasting**\
 `The International Football Association Board (IFAB) is keen to reduce the amount of time lost in games.`\
 https://nytimes.com/athletic/6975130/2026/01/15/football-rules-timewasting-throw-in-goal-kick/
