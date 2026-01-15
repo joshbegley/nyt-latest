@@ -1,3 +1,7 @@
+**The next Michael Carrick: Picking a club legend interim for each Premier League team**\
+`Michael Carrick is back at Manchester United in interim charge - but which former player would our writers pick for each team?`\
+https://nytimes.com/athletic/6963811/2026/01/15/premier-league-interim-coach-club-legends/
+
 **Quote of the Day: Greenlanders Shocked, Angry, Confused and, Most of All, Scared**\
 `Quotation of the Day for Thursday, January 15, 2026.`\
 https://nytimes.com/2026/01/15/pageoneplus/quote-of-the-day-greenlanders-shocked-angry-confused-and-most-of-all-scared.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/14/world/americas/venezuela-american-prisoner-luckey
 **John Harbaugh's visit with Giants ends without deal: Sources**\
 `The team continued its all-out pursuit by flying in Harbaugh on co-owner Steve Tisch’s jet. One participant said the talks were "excellent."`\
 https://nytimes.com/athletic/6972933/2026/01/14/john-harbaugh-new-york-giants-visit/
-
-**New Zealand All Blacks part ways with head coach Scott Robertson**\
-`The country secured back-to-back World Cups in 2011 and 2015 but has struggled to recapture that level over the past decade.`\
-https://nytimes.com/athletic/6972985/2026/01/14/new-zealand-all-blacks-scott-robertson-head-coach/
 

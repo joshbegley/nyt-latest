@@ -1,3 +1,19 @@
+**Quote of the Day: Greenlanders Shocked, Angry, Confused and, Most of All, Scared**\
+`Quotation of the Day for Thursday, January 15, 2026.`\
+https://nytimes.com/2026/01/15/pageoneplus/quote-of-the-day-greenlanders-shocked-angry-confused-and-most-of-all-scared.html
+
+**Connections: Sports Edition Coach: Hints for Jan. 15, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6973214/2026/01/15/connections-sports-edition-hints-for-jan-15-2026/
+
+**Corrections: Jan. 15, 2026**\
+`Corrections that appeared in print on Thursday, Jan. 15, 2026.`\
+https://nytimes.com/2026/01/15/pageoneplus/corrections-jan-15-2026.html
+
+**Mavericks star rookie Cooper Flagg injures ankle against Nuggets**\
+`Flagg has been one of the Mavericks’ most durable players this season. He has missed only one game.`\
+https://nytimes.com/athletic/6973150/2026/01/14/cooper-flagg-left-ankle-sprain-mavericks/
+
 **Federal Agent Shoots Man in Minneapolis, Prompting Tense Protests**\
 `The agent shot a Venezuelan man who was resisting arrest, an official said. Protesters and law enforcement officers clashed for hours, as city officials urged people to go home.`\
 https://nytimes.com/2026/01/14/us/minneapolis-federal-agent-shooting-immigration.html
