@@ -1,3 +1,7 @@
+**NCAA asks federal agency to pause bets on college sports prediction market**\
+`Prediction markets are regulated by the CFTC, but do not have to meet oversight standards as online sportsbooks.`\
+https://nytimes.com/athletic/6972317/2026/01/14/ncaa-requests-federal-agency-to-pause-betting-on-college-sports-prediction-markets/
+
 **A Look At Antarctica From Above**\
 `After nearly two weeks at sea without being able to launch his drone, New York Times photographer Chang W. Lee finally captures Antarctica from the air.`\
 https://nytimes.com/video/climate/100000010644792/a-look-at-antarctica-from-above.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6971550/2026/01/14/world-cup-tickets-demand/
 **Denmark Has ‘Fundamental Disagreement’ With U.S. Over Greenland**\
 `On Wednesday, Denmark and Greenland’s foreign ministers met with the Trump administration. President Trump urged the United States needs Greenland for national security purposes but both foreign officials argued Greenland is not up for sale.`\
 https://nytimes.com/video/world/europe/100000010645800/denmark-greenland-foreign-officials-disagreement-trump-administration.html
-
-**The U.S. Moves Personnel Out of Qatar as Tensions Rise With Iran**\
-`Also, the U.S. and Denmark clash over Greenland. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2026/01/14/briefing/us-iran-tensions-greenland-trump.html
 
