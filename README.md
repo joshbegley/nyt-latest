@@ -16,10 +16,10 @@ https://nytimes.com/video/well/move/100000010632708/this-might-be-the-best-sport
 
 **How to watch Miami (FL) vs. Indiana: National Championship Start Time, TV, streaming**\
 `Find out how to watch the Miami (FL) Hurricanes play the Indiana Hoosiers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6972789/2026/01/14/miami-fl-vs-indiana-stream-how-to-watch-jan-19/
+https://nytimes.com/athletic/6972789/2026/01/14/how-to-watch-miami-fl-vs-no-1-indiana-national-championship-tv-channel-and-streaming-options-for-january-19/
 
-**After White House Meeting on Greenland, Trump Remains Unmoved**\
-`Denmark’s foreign minister left the White House saying that his country had a “fundamental disagreement” with President Trump, as several NATO countries sent troops to Greenland.`\
+**After Danish and U.S. Officials Meet on Greenland, Trump Remains Unmoved**\
+`Denmark’s foreign minister left the White House complex saying that his country had a “fundamental disagreement” with President Trump, as several NATO countries sent troops to Greenland.`\
 https://nytimes.com/2026/01/14/us/politics/greenland-trump-denmark.html
 
 **A pond for Ponds: Bloomington names body of water after Indiana CB**\
