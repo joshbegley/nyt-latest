@@ -1,3 +1,7 @@
+**Feds charge 20 men with alleged conspiracy to manipulate college basketball games**\
+`The scheme, according to federal prosecutors, involved two men indicted this fall for their alleged role in an NBA gambling scheme.`\
+https://nytimes.com/athletic/6973903/2026/01/15/ncaa-college-basketball-gambling-investigation-charges/
+
 **Greg Biffle's home broken into weeks after deadly plane crash**\
 `Thirty-thousand dollars in cash and a backpack were stolen, along with some guns and memorabilia, according to multiple reports.`\
 https://nytimes.com/athletic/6973929/2026/01/15/greg-biffle-nascar-home-burglary/
@@ -27,14 +31,10 @@ https://nytimes.com/2026/01/15/business/banks-earnings-goldman-sachs-jpmorgan.ht
 https://nytimes.com/2026/01/15/world/europe/uk-robert-jenrick-fired-badenoch-conservatives-reform.html
 
 **Appeals Court Opens the Door to Mahmoud Khalil’s Rearrest**\
-`Any new detention would not come immediately, and Mr. Khalil’s lawyers are almost certain to appeal. But the ruling is a major blow to Mr. Khalil, a Columbia graduate and prominent figure in the pro-Palestinian movement.`\
+`Any new detention would not come immediately, and Mr. Khalil’s lawyers plan to appeal. But the ruling is a major blow to Mr. Khalil, a Columbia graduate and prominent figure in the pro-Palestinian movement.`\
 https://nytimes.com/2026/01/15/nyregion/mahmoud-khalil-detention.html
 
 **What we're hearing from CFB coaches about the calendar, eligibility and tampering**\
 `The Athletic spoke with more than 50 head coaches, assistants and agents over three days at the coaches convention.`\
 https://nytimes.com/athletic/6973714/2026/01/15/college-football-coaches-calendar-eligibility-transfer-portal/
-
-**Where will the Falcons turn for a head coach with John Harbaugh headed to the Giants?**\
-`With Harbaugh seemingly off the market, the Falcons appear likely to reopen their coaching search and continue interviewing candidates.`\
-https://nytimes.com/athletic/6972424/2026/01/15/falcons-coaching-search-john-harbaugh-kevin-stefanski/
 
