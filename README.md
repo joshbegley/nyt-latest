@@ -1,3 +1,11 @@
+**Giants preparing to hire John Harbaugh as head coach: Source**\
+`Harbaugh has amassed 180 wins as a head coach, the 14th-most in NFL history.`\
+https://nytimes.com/athletic/6966896/2026/01/15/john-harbaugh-hired-giants-head-coach/
+
+**Crane Collapses on Expressway Outside Bangkok, Killing at Least 2**\
+`The deadly episode came a day after a crane fell on a moving train in northeastern Thailand, killing at least 32 people.`\
+https://nytimes.com/2026/01/15/world/asia/thailand-crane-expressway-rama2.html
+
 **The FPL forwards to attack Gameweek 22 and beyond**\
 `The forward template in Fantasy Premier League has seen another significant change in recent weeks — and the route to goals are aplenty`\
 https://nytimes.com/athletic/6968988/2026/01/15/fantasy-premier-league-tips-fpl-gameweek-22/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6953927/2026/01/15/how-liverpool-play-premier-leagu
 **Why fortysomethings are prized assets in SailGP: 'Transfer fees have gone through the roof'**\
 `As the sixth season of the SailGP Championship gets underway, it is the most experienced sailors who are commanding the biggest fees`\
 https://nytimes.com/athletic/6968983/2026/01/15/sailgp-season-6-sailor-transfers/
-
-**Mohamed Salah exits AFCON with unfinished business**\
-`Elimination by Senegal in the semi-final means Salah is running out of time to burnish his Egypt legacy with a trophy`\
-https://nytimes.com/athletic/6966050/2026/01/15/egypt-mohamed-salah-afcon-exit/
-
-**The next Michael Carrick: Picking a club legend interim for each Premier League team**\
-`Michael Carrick is back at Manchester United in interim charge - but which former player would our writers pick for each team?`\
-https://nytimes.com/athletic/6963811/2026/01/15/premier-league-interim-coach-club-legends/
 
