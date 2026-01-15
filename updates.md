@@ -1,3 +1,11 @@
+**Mavericks rookie Cooper Flagg will not return vs. Nuggets with ankle injury**\
+`Flagg has been one of the Mavericks’ most durable players this season. He has missed only one game.`\
+https://nytimes.com/athletic/6973150/2026/01/14/cooper-flagg-left-ankle-sprain-mavericks/
+
+**Flyers may have lost another vital player to injury as losing streak continues**\
+`Goalie Dan Vladar did not return after the first period as the Flyers fell to 0-3-1 in their last four games.`\
+https://nytimes.com/athletic/6973142/2026/01/14/flyers-vladar-injury-grebenkin-sabres/
+
 **Knicks' Jalen Brunson injures right ankle for second time this season**\
 `The All-NBA and All-Star guard injured his right ankle while attempting to dribble, and it turned awkwardly. It was a non-contact injury.`\
 https://nytimes.com/athletic/6973111/2026/01/14/jalen-brunson-right-ankle-injury-knicks-nba/

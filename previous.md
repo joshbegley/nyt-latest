@@ -1,3 +1,11 @@
+**Mavericks rookie Cooper Flagg will not return vs. Nuggets with ankle injury**\
+`Flagg has been one of the Mavericks’ most durable players this season. He has missed only one game.`\
+https://nytimes.com/athletic/6973150/2026/01/14/cooper-flagg-left-ankle-sprain-mavericks/
+
+**Flyers may have lost another vital player to injury as losing streak continues**\
+`Goalie Dan Vladar did not return after the first period as the Flyers fell to 0-3-1 in their last four games.`\
+https://nytimes.com/athletic/6973142/2026/01/14/flyers-vladar-injury-grebenkin-sabres/
+
 **Knicks' Jalen Brunson injures right ankle for second time this season**\
 `The All-NBA and All-Star guard injured his right ankle while attempting to dribble, and it turned awkwardly. It was a non-contact injury.`\
 https://nytimes.com/athletic/6973111/2026/01/14/jalen-brunson-right-ankle-injury-knicks-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6972887/2026/01/14/katie-ledecky-1500-meter-freesty
 **Federal Agent Shoots Man in Minneapolis, Homeland Security Says**\
 `The agent shot a Venezuelan man who was resisting arrest, an official said. The shooting comes a week after an ICE agent fatally shot a woman in the city.`\
 https://nytimes.com/2026/01/14/us/minneapolis-federal-agent-shooting-immigration.html
-
-**Visible Sign of Hard Work**\
-`Wendy L. Brandes and Barbara Lin make their collaboration debut in the New York Times Crossword.`\
-https://nytimes.com/2026/01/14/crosswords/daily-puzzle-2026-01-15.html
-
-**With the Alex Bregman era, World Series expectations return to Wrigley Field**\
-`As the Cubs introduce Bregman as third baseman, they'll reintroduce themselves as a big-market franchise with serious ambitions to win.`\
-https://nytimes.com/athletic/6972851/2026/01/14/cubs-alex-bregman-world-series-wrigley-field/
 
