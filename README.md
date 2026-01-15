@@ -1,3 +1,15 @@
+**New York Sues Former C.E.O. of Covid Vaccine Maker Over Insider Trading**\
+`Robert G. Kramer sold nearly 90,000 shares of his stock in Emergent BioSolutions, knowing that large quantities of vaccine materials were contaminated, the lawsuit said.`\
+https://nytimes.com/2026/01/15/us/emergent-biosolutions-ceo-insider-trading-covid-vaccine.html
+
+**Franz Wagner returns, leads Magic to victory in Berlin as Ja Morant sits**\
+`NBA commissioner Adam Silver “disappointed” that Morant sits out first game of two-game NBA Global Games series.`\
+https://nytimes.com/athletic/6975221/2026/01/15/franz-wagner-return-ja-morant-berlin/
+
+**N.S.A. Nominee Promises to Protect Elections From Foreign Interference**\
+`President Trump fired the National Security Agency’s chief back in April and has weakened cyberattack protections.`\
+https://nytimes.com/2026/01/15/us/politics/trump-nsa-cyber-command-nominee.html
+
 **Herby Pork Laab With Chile**\
 `In this take on the classic Thai dish laab (also spelled larb) moo, ground pork is pan-cooked, then stirred together with a combination of funky fish sauce, fresh and dried chiles, shallots, lime juice and an abundance of fresh herbs for brightness.`\
 https://nytimes.com/video/dining/100000010644522/herby-pork-laab-with-chile.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6975011/2026/01/15/phillies-francisco-renteria-pros
 **Patrick Mahomes eyes Week 1 return in recovery from knee injury**\
 `Mahomes says he's pushing himself to the limit every day in rehab in hopes of being able to do a lot in training camp this summer.`\
 https://nytimes.com/athletic/6974914/2026/01/15/chiefs-patrick-mahomes-knee-injury-recovery/
-
-**ICE Is Losing the Political Battle**\
-`“When I look at the ICE operation in Minnesota,” says the Opinion columnist Jamelle Bouie, “I see a White House that is panicking and that is losing.”`\
-https://nytimes.com/video/opinion/100000010645286/ice-is-losing-the-political-battle.html
-
-**Seahawks QB Sam Darnold questionable for showdown vs. 49ers**\
-`Darnold said he will continue to receive treatment and called the odds he might miss the game, "Probably closer to zero."`\
-https://nytimes.com/athletic/6975206/2026/01/15/seahawks-qb-sam-darnold-questionable-49ers-playoffs/
-
-**U.S. Forces Seize Sixth Oil Tanker Linked to Venezuela**\
-`The Coast Guard boarded and seized the Russian-flagged tanker, originally named Veronica, in a pre-dawn operation in the Caribbean Sea.`\
-https://nytimes.com/2026/01/15/us/politics/oil-tanker-seized-venezuela.html
 
