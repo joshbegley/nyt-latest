@@ -1,3 +1,7 @@
+**Does Arsene Wenger really get football?**\
+`Wenger's offside proposals reinforce the fear that as FIFA's chief of global football development he might be doing more harm than good`\
+https://nytimes.com/athletic/6973850/2026/01/15/arsene-wenger-offside-proposals-fifa/
+
 **The Bounce: Our worst (and best) predictions so far**\
 `The Bounce is The Athletic's free NBA newsletter.`\
 https://nytimes.com/athletic/6974069/2026/01/15/nba-season-win-totals-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/15/books/review/trump-thank-you-for-your-attention-t
 **Rosenior holds player meeting as Chelsea aim to contain virus outbreak**\
 `Liam Delap and Jamie Gittens missed the Carabao Cup semi-final first leg defeat to Arsenal on Wednesday night due to illness.`\
 https://nytimes.com/athletic/6973928/2026/01/15/liam-rosenior-chelsea-virus/
-
-**Young Blue Jackets praise Rick Bowness' communication style**\
-`Bowness' reputation as a master communicator could be very important, especially as the young players enter their peak production seasons.`\
-https://nytimes.com/athletic/6972361/2026/01/15/blue-jackets-rick-bowness-communication/
 
