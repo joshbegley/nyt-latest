@@ -1,3 +1,15 @@
+**Morocco, a lack of tension, expectation and a belief they can win a first AFCON in 50 years**\
+`Hosts Morocco are through to the final of the Africa Cup of Nations`\
+https://nytimes.com/athletic/6972988/2026/01/15/morocco-afcon-nigeria-analysis/
+
+**What happens during the astronauts’ return to Earth?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/what-happens-during-the-astronauts-return-to-earth
+
+**Word of the Day: autonomous**\
+`This word has appeared in 378 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/15/learning/word-of-the-day-autonomous.html
+
 **It was supposed to be a new dawn for Real Madrid. Instead, they hit 'rock bottom'**\
 `With new manager Alvaro Arbeloa in the dugout, the Spanish giants fell to an embarrassing defeat at second-tier Albacete`\
 https://nytimes.com/athletic/6966369/2026/01/15/real-madrid-albacete-arbeloa-result-disaster-copa-del-rey/
