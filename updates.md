@@ -1,3 +1,7 @@
+**Elon Musk’s X Restricts Ability to Create Explicit Images With Grok**\
+`Bowing to pressure, the company said it would restrict X users from generating explicit images of real people in jurisdictions where such content is illegal.`\
+https://nytimes.com/2026/01/15/business/grok-ai-images-x.html
+
 **Road-weary Rockets face crucial homestand against West’s elite after recent slump**\
 `Houston's homestand will provide an even more detailed picture of where the Rockets stand among the elite in the West.`\
 https://nytimes.com/athletic/6973492/2026/01/15/rockets-jabari-smith-thunder-homestand/

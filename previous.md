@@ -1,3 +1,7 @@
+**Elon Musk’s X Restricts Ability to Create Explicit Images With Grok**\
+`Bowing to pressure, the company said it would restrict X users from generating explicit images of real people in jurisdictions where such content is illegal.`\
+https://nytimes.com/2026/01/15/business/grok-ai-images-x.html
+
 **Road-weary Rockets face crucial homestand against West’s elite after recent slump**\
 `Houston's homestand will provide an even more detailed picture of where the Rockets stand among the elite in the West.`\
 https://nytimes.com/athletic/6973492/2026/01/15/rockets-jabari-smith-thunder-homestand/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6973253/2026/01/15/washington-commanders-stadium-re
 **T.J. Oshie Q&A: Life after the NHL, the 2019 Blues, Robertson's Olympic snub and more**\
 `Oshie, now a TV analyst for ESPN, recalled a 6 a.m. FaceTime to his former Blues teammates on the night they won the Stanley Cup.`\
 https://nytimes.com/athletic/6966386/2026/01/15/tj-oshie-blues-capitals-olympics/
-
-**Would You Wear Balenciaga at the Gym?**\
-`In Pierpaolo Piccioli’s second collection, he stretches the label into some new shapes.`\
-https://nytimes.com/2026/01/15/style/balenciaga-pierpaolo-piccioli-fall-gym.html
 
