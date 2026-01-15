@@ -1,3 +1,11 @@
+**Rosenior holds player meeting as Chelsea aim to contain virus outbreak**\
+`Liam Delap and Jamie Gittens missed the Carabao Cup semi-final first leg defeat to Arsenal on Wednesday night due to illness.`\
+https://nytimes.com/athletic/6973928/2026/01/15/liam-rosenior-chelsea-virus/
+
+**Young Blue Jackets praise Rick Bowness' communication style**\
+`Bowness' reputation as a master communicator could be very important, especially as the young players enter their peak production seasons.`\
+https://nytimes.com/athletic/6972361/2026/01/15/blue-jackets-rick-bowness-communication/
+
 **Cracks Begin to Appear at the Nation’s Biggest Banks**\
 `This week, Bank of America, Citi, JPMorgan and Wells Fargo released fraught earnings reports as President Trump’s threatened cap on credit card rates loomed large.`\
 https://nytimes.com/2026/01/15/business/banks-earnings-goldman-sachs-jpmorgan.html

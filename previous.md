@@ -1,3 +1,11 @@
+**Rosenior holds player meeting as Chelsea aim to contain virus outbreak**\
+`Liam Delap and Jamie Gittens missed the Carabao Cup semi-final first leg defeat to Arsenal on Wednesday night due to illness.`\
+https://nytimes.com/athletic/6973928/2026/01/15/liam-rosenior-chelsea-virus/
+
+**Young Blue Jackets praise Rick Bowness' communication style**\
+`Bowness' reputation as a master communicator could be very important, especially as the young players enter their peak production seasons.`\
+https://nytimes.com/athletic/6972361/2026/01/15/blue-jackets-rick-bowness-communication/
+
 **Cracks Begin to Appear at the Nation’s Biggest Banks**\
 `This week, Bank of America, Citi, JPMorgan and Wells Fargo released fraught earnings reports as President Trump’s threatened cap on credit card rates loomed large.`\
 https://nytimes.com/2026/01/15/business/banks-earnings-goldman-sachs-jpmorgan.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010643550/how-we-photographed-an-ice-confront
 **Wolfsburg submit €18m offer for Toulouse defender Cresswell**\
 `It is doubtful the offer for the 23-year-old is at a level Toulouse would want to consider a sale.`\
 https://nytimes.com/athletic/6490493/2026/01/15/charlie-cresswell-wolfsburg-toulouse-bid/
-
-**Premier League upsets: Three matches that could go against the odds**\
-`Each week, we'll be bringing you a selection of games that we think could go against the grain and see an underdog surprise a fancied foe`\
-https://nytimes.com/athletic/6973623/2026/01/15/premier-league-matchweek-22-leeds-fulham-brighton/
-
-**Ronald Araujo's spiritual journey to deal with anxiety, and how he made his Barcelona return**\
-`The 26-year-old defender returned to action with Barcelona on Sunday after a period of absence in which he visited Christian holy sites`\
-https://nytimes.com/athletic/6973632/2026/01/15/ronald-araujo-anxiety-barcelona-supercopa-return/
 
