@@ -1,3 +1,11 @@
+**The Geopolitics of Greenland and NATO**\
+`Readers respond to articles about the U.S. threats against Greenland. Also: A woman’s aging face.`\
+https://nytimes.com/2026/01/15/opinion/greenland-nato.html
+
+**Trump Releases Health Plan but It’s Short on Specifics**\
+`The long-awaited plan would leave much to Congress and calls for payments to health savings accounts rather than insurance subsidies, among other broad proposals.`\
+https://nytimes.com/2026/01/15/us/politics/trump-health-care-plan.html
+
 **Trump Releases Health Plan but It’s Short on Specifics**\
 `The long-awaited plan would leave much to Congress and calls for payments to health-savings accounts rather than insurance subsidies, among other broad proposals.`\
 https://nytimes.com/2026/01/15/us/politics/trump-health-care-plan.html

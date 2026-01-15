@@ -1,5 +1,9 @@
+**The Geopolitics of Greenland and NATO**\
+`Readers respond to articles about the U.S. threats against Greenland. Also: A woman’s aging face.`\
+https://nytimes.com/2026/01/15/opinion/greenland-nato.html
+
 **Trump Releases Health Plan but It’s Short on Specifics**\
-`The long-awaited plan would leave much to Congress and calls for payments to health-savings accounts rather than insurance subsidies, among other broad proposals.`\
+`The long-awaited plan would leave much to Congress and calls for payments to health savings accounts rather than insurance subsidies, among other broad proposals.`\
 https://nytimes.com/2026/01/15/us/politics/trump-health-care-plan.html
 
 **“Why not?” Why retired Dodgers great Clayton Kershaw will play in the World Baseball Classic**\
@@ -29,12 +33,4 @@ https://nytimes.com/2026/01/15/climate/empire-wind-court-ruling.html
 **'Managers' authority being eroded' - Gareth Southgate**\
 `Southgate's comments were framed in the context of Chelsea, Manchester United and Real Madrid all parting company with their head coaches.`\
 https://nytimes.com/athletic/6974317/2026/01/15/gareth-southgate-manager-england/
-
-**Cuba Receives Remains of 32 Citizens Killed in U.S. Strikes in Venezuela**\
-`The Cubans had served as part of the security detail of Nicolás Maduro, Venezuela’s ousted president.`\
-https://nytimes.com/2026/01/15/world/americas/cuba-remains-venezuela-strikes-maduro.html
-
-**Mike Tomlin's final speech had Aaron Rodgers and T.J. Watt in tears**\
-`Details from Tomlin's emotional farewell to his players.`\
-https://nytimes.com/athletic/6974150/2026/01/15/mike-tomlin-resignation-aaron-rodgers-tj-watt-reaction/
 

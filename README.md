@@ -1,3 +1,11 @@
+**Harvey Pratt, Who Designed the Native American Veterans Memorial, Dies at 84**\
+`A self-taught artist, he also spent more than half a century creating forensic sketches and reconstructions for law-enforcement agencies.`\
+https://nytimes.com/2026/01/15/arts/design/harvey-pratt-dead.html
+
+**It’s ’Tato Time**\
+`Baked. Boiled. Souped. Regardless of form, potatoes will always be there for you.`\
+https://nytimes.com/2026/01/15/dining/its-tato-time.html
+
 **The Geopolitics of Greenland and NATO**\
 `Readers respond to articles about the U.S. threats against Greenland. Also: A woman’s aging face.`\
 https://nytimes.com/2026/01/15/opinion/greenland-nato.html
@@ -21,16 +29,4 @@ https://nytimes.com/2026/01/15/us/politics/trump-iran-israel-us.html
 **John Cunningham, Character Actor and Broadway Stalwart, Dies at 93**\
 `He was a familiar face from Broadway productions of “Company,” “Titanic” and “Six Degrees of Separation” and numerous film and TV appearances.`\
 https://nytimes.com/2026/01/15/theater/john-cunningham-dead.html
-
-**Review: These Kings of Dance Get Their Marching Orders From Women**\
-`“Sons of Echo,” in which standout male dancers perform work by women, proves that male choreographers don’t have a monopoly on bad taste.`\
-https://nytimes.com/2026/01/15/arts/dance/review-daniil-simkin-sons-of-echo.html
-
-**In a Setback for Trump, Judge Says N.Y. Wind Farm Can Resume Construction**\
-`A federal judge said the Empire Wind project off Long Island would suffer “irreparable harm” if the Trump administration continued to hold up work.`\
-https://nytimes.com/2026/01/15/climate/empire-wind-court-ruling.html
-
-**'Managers' authority being eroded' - Gareth Southgate**\
-`Southgate's comments were framed in the context of Chelsea, Manchester United and Real Madrid all parting company with their head coaches.`\
-https://nytimes.com/athletic/6974317/2026/01/15/gareth-southgate-manager-england/
 
