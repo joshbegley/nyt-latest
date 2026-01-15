@@ -1,3 +1,7 @@
+**How to watch Miami (FL) vs. Indiana: National Championship Start Time, TV, streaming**\
+`Find out how to watch the Miami (FL) Hurricanes play the Indiana Hoosiers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6972789/2026/01/14/miami-fl-vs-indiana-stream-how-to-watch-jan-19/
+
 **A White House Meeting Leaves Trump and Denmark at Odds Over Greenland**\
 `Denmark’s foreign minister left the White House saying that his country had a “fundamental disagreement” with President Trump, as several NATO countries sent troops to Greenland.`\
 https://nytimes.com/2026/01/14/us/politics/greenland-trump-denmark.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/14/us/politics/ice-immigration-inflation-democrats-v
 **Tranmere set to come under U.S. ownership with EFL approval sought on takeover bid**\
 `Current owners former Football Association (FA) chief executive Mark Palios and his wife Nicola bought the club in 2014.`\
 https://nytimes.com/athletic/6972661/2026/01/14/tranmere-rovers-owners-new/
-
-**Trump Imposes Limited Tariffs on Foreign Semiconductors**\
-`The tariffs will allow President Trump to take a cut of Nvidia’s chip sales to China while putting off a decision about imposing higher taxes on the chip industry.`\
-https://nytimes.com/2026/01/14/business/economy/trump-chips-tariffs.html
 

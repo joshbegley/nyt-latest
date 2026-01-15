@@ -1,3 +1,7 @@
+**How to watch Miami (FL) vs. Indiana: National Championship Start Time, TV, streaming**\
+`Find out how to watch the Miami (FL) Hurricanes play the Indiana Hoosiers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6972789/2026/01/14/miami-fl-vs-indiana-stream-how-to-watch-jan-19/
+
 **A White House Meeting Leaves Trump and Denmark at Odds Over Greenland**\
 `Denmark’s foreign minister left the White House saying that his country had a “fundamental disagreement” with President Trump, as several NATO countries sent troops to Greenland.`\
 https://nytimes.com/2026/01/14/us/politics/greenland-trump-denmark.html
