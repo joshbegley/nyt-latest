@@ -1,3 +1,7 @@
+**Au Pair Testifies of Lurid Plot in Virginia Double-Murder Trial**\
+`Juliana Peres Magalhães wrapped up testimony on Wednesday in the case against Brendan Banfield, her former lover, who is accused of killing his wife and another man.`\
+https://nytimes.com/2026/01/14/us/au-pair-banfield-murder-trial.html
+
 **Son of ‘Goodbye Horses’ Singer Among Americans Freed in Venezuela**\
 `James Luckey-Lange, 28, was released this week with several other U.S. citizens from the country’s notorious prison system after going missing in December, his family said.`\
 https://nytimes.com/2026/01/14/world/americas/venezuela-american-prisoner-luckey-lange.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6972851/2026/01/14/cubs-alex-bregman-world-series-w
 **Commanders to hire D.J. Williams, son of legend Doug Williams, as QBs coach**\
 `Williams will be the primary voice in the ear of quarterback Jayden Daniels as a key member of Washington’s altered offensive staff.`\
 https://nytimes.com/athletic/6972883/2026/01/14/commanders-dj-williams-qbs-coach-doug-williams/
-
-**British Columbia Ends Program That Aimed to Curb Arrests of Drug Users**\
-`The three-year pilot program did not deliver the results hoped for, the health minister said. It had allowed drug users to avoid criminal charges for possessing small amounts of illegal substances.`\
-https://nytimes.com/2026/01/14/world/canada/british-columbia-drug-decriminalization.html
 
