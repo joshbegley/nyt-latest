@@ -1,3 +1,11 @@
+**3 More Lawmakers in Video Say Federal Prosecutors Are Investigating Them**\
+`The lawmakers, all Democrats who urged military service members not to follow illegal orders, said prosecutors had contacted them. But it is unclear what crime they might have committed.`\
+https://nytimes.com/2026/01/14/us/politics/crow-goodlander-houlahan-trump-investigation.html
+
+**Boeing Knew About Flaws in UPS Plane That Crashed in Louisville, N.T.S.B. Says**\
+`In a report Wednesday, the National Transportation Safety Board said fractures that appeared to have led the left engine to separate from the plane’s wing had occurred at least four other times.`\
+https://nytimes.com/2026/01/14/us/louisville-crash-report.html
+
 **How to watch Miami (FL) vs. Indiana: National Championship Start Time, TV, streaming**\
 `Find out how to watch the Miami (FL) Hurricanes play the Indiana Hoosiers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6972789/2026/01/14/how-to-watch-miami-fl-vs-no-1-indiana-national-championship-tv-channel-and-streaming-options-for-january-19/
