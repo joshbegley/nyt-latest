@@ -1,3 +1,11 @@
+**There’s Never Been a Better Time to Eat Chinese Food**\
+`Chains from the East Asian nation are popping up across New York City, bringing with them excellent hot pot, dumplings and mapo tofu.`\
+https://nytimes.com/2026/01/15/dining/theres-never-been-a-better-time-to-eat-chinese-food.html
+
+**Spurs turned clippers: Wemby, Keldon Johnson shave each other's heads because ... why not?**\
+`“I’ve been looking for a reason to do it,” Johnson said. Now, it's done.`\
+https://nytimes.com/athletic/6974875/2026/01/15/victor-wembanyama-shaved-head-keldon-johnson-spurs/
+
 **Leonard D. Jacoby, 83, Dies; Brought Legal Services to the Masses**\
 `He and Steven Z. Meyers opened their first low-cost legal clinic in 1972. Within a decade, they had revolutionized the legal industry.`\
 https://nytimes.com/2026/01/15/business/leonard-d-jacoby-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/15/climate/the-cities-that-broke-heat-records-last-y
 **How to watch Islanders vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6975059/2026/01/15/islanders-vs-oilers-stream-how-to-watch-jan-15/
-
-**How to watch Jazz vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6975056/2026/01/15/jazz-vs-mavericks-stream-how-to-watch-jan-15/
-
-**How to watch Bucks vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6975054/2026/01/15/bucks-vs-spurs-stream-how-to-watch-jan-15/
 
