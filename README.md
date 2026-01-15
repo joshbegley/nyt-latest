@@ -1,4 +1,4 @@
-**Welcome to the Alex Bregman era as World Series expectations return to Wrigley Field**\
+**With the Alex Bregman era, World Series expectations return to Wrigley Field**\
 `As the Cubs introduce Bregman as third baseman, they'll reintroduce themselves as a big-market franchise with serious ambitions to win.`\
 https://nytimes.com/athletic/6972851/2026/01/14/cubs-alex-bregman-world-series-wrigley-field/
 
