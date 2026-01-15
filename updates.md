@@ -1,3 +1,7 @@
+**Number of Businesses in New York City Plunged Last Spring, Report Says**\
+`Roughly 8,400 businesses closed in the second quarter of 2025, according to the most recent city data, creating the largest net decline in business activity since before the pandemic.`\
+https://nytimes.com/2026/01/15/nyregion/business-closures-nyc-economy.html
+
 **Eagles looking to 'win now' with their OC hire, Nick Sirianni says**\
 `The Philadelphia head coach and general manager Howie Roseman also addressed whether A.J. Brown could be traded in the offseason.`\
 https://nytimes.com/athletic/6974186/2026/01/15/philadelphia-eagles-nick-sirianni-howie-roseman/

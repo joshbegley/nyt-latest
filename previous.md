@@ -1,3 +1,7 @@
+**Number of Businesses in New York City Plunged Last Spring, Report Says**\
+`Roughly 8,400 businesses closed in the second quarter of 2025, according to the most recent city data, creating the largest net decline in business activity since before the pandemic.`\
+https://nytimes.com/2026/01/15/nyregion/business-closures-nyc-economy.html
+
 **Eagles looking to 'win now' with their OC hire, Nick Sirianni says**\
 `The Philadelphia head coach and general manager Howie Roseman also addressed whether A.J. Brown could be traded in the offseason.`\
 https://nytimes.com/athletic/6974186/2026/01/15/philadelphia-eagles-nick-sirianni-howie-roseman/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/15/us/politics/trump-nsa-cyber-command-nominee.html
 **Herby Pork Laab With Chile**\
 `In this take on the classic Thai dish laab (also spelled larb) moo, ground pork is pan-cooked, then stirred together with a combination of funky fish sauce, fresh and dried chiles, shallots, lime juice and an abundance of fresh herbs for brightness.`\
 https://nytimes.com/video/dining/100000010644522/herby-pork-laab-with-chile.html
-
-**Inside the Fight to Keep Iran Online**\
-`Activists spent years preparing for a communications blackout in Iran, smuggling in Starlink satellite internet systems and making digital shutdowns harder for the authorities to enforce.`\
-https://nytimes.com/2026/01/15/technology/iran-online-starlink.html
 
