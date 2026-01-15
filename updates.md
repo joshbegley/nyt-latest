@@ -1,3 +1,7 @@
+**Judge Proposes Restricting Deportation of Scores of Noncitizen Academics**\
+`In a case over the First Amendment rights of noncitizen scholars, a federal judge proposed extending protections to members of two academic groups behind a lawsuit.`\
+https://nytimes.com/2026/01/15/us/politics/student-protester-deportations-trump-khalil.html
+
 **Why the model-heavy Cubs are betting big on the human side of Alex Bregman**\
 `"You have to feel great about the person, the human that you’re investing in," Jed Hoyer said after the Cubs introduced Bregman.`\
 https://nytimes.com/athletic/6975179/2026/01/15/cubs-alex-bregman-human-side/
