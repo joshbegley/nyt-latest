@@ -1,3 +1,7 @@
+**Liam Rosenior and the positives and negatives from his first Chelsea home game**\
+`New Chelsea head coach Liam Rosenior would have had positives to take away from Wednesday night's game`\
+https://nytimes.com/athletic/6972814/2026/01/15/liam-rosenior-chelsea-arsenal-analysis/
+
 **Arsenal's three goalscorers and the different contributions needed to win trophies**\
 `Arsenal beat Chelsea 3-2 in their Carabao Cup semi-final first leg on Wednesday night`\
 https://nytimes.com/athletic/6972779/2026/01/15/arsenal-chelsea-goalscorers-analysis/
