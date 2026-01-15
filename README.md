@@ -1,3 +1,7 @@
+**Romeo Santos Reminisces About His Drake Shoutout**\
+`Romeo Santos sat down on the “Popcast” couch and recalled when Drake referenced Aventura on “The Motto” and the collaboration that followed.`\
+https://nytimes.com/video/podcasts/100000010642792/romeo-santos-reminisces-about-his-drake-shoutout.html
+
 **New York Sues Former C.E.O. of Covid Vaccine Maker Over Insider Trading**\
 `Robert G. Kramer sold nearly 90,000 shares of his stock in Emergent BioSolutions, knowing that large quantities of vaccine materials were contaminated, the lawsuit said.`\
 https://nytimes.com/2026/01/15/us/emergent-biosolutions-ceo-insider-trading-covid-vaccine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/15/t-magazine/mocktail-recipes-nonalcoholic-martini.
 **Phillies sign Francisco Renteria, toolsy 17-year-old Venezuelan outfielder, to record deal**\
 `The club was drawn to Renteria’s bat-to-ball skills, power, athleticism and maturity. Plus, notes on the Phillies' international class.`\
 https://nytimes.com/athletic/6975011/2026/01/15/phillies-francisco-renteria-prospect-profile/
-
-**Patrick Mahomes eyes Week 1 return in recovery from knee injury**\
-`Mahomes says he's pushing himself to the limit every day in rehab in hopes of being able to do a lot in training camp this summer.`\
-https://nytimes.com/athletic/6974914/2026/01/15/chiefs-patrick-mahomes-knee-injury-recovery/
 
