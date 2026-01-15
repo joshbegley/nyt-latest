@@ -1,40 +1,40 @@
-**Drance: Why a rebuild will hinge almost entirely on Canucks ownership**\
-`Probabilistically speaking, it's Canucks ownership that is going to be the true stewards of this rebuilding effort.`\
-https://nytimes.com/athletic/6973267/2026/01/15/canucks-ownership-jim-rutherford-standings-stats-rebuild/
+**‘We Came Here to Vote’: Ugandans Go to Polls Despite Major Delays**\
+`Technical failures at polling places have caused disruptions, and the opposition has warned of government vote rigging amid an internet blackout.`\
+https://nytimes.com/2026/01/15/world/africa/uganda-election-museveni.html
 
-**The Hard Truth of Weight-Loss Drugs: You Probably Need Them Forever**\
-`Many people who use these medications don’t want to stay on them long term. But research has repeatedly shown that quitting the drugs means gaining back weight.`\
-https://nytimes.com/2026/01/15/well/weight-loss-drugs-life-time.html
+**Retiring pitcher Clayton Kershaw joins Team USA, hoping to appear in WBC for first time**\
+`This WBC gives Kershaw a chance to pitch in the tournament for the first time.`\
+https://nytimes.com/athletic/6974157/2026/01/15/clayton-kershaw-world-baseball-classic-team-usa-roster/
 
-**For the World’s Food Supply, Federal Funding Cuts Have Long-Term Impacts**\
-`The U.S. Agency for International Development has been a major supporter of global agriculture research. Now many studies are being scuttled or scaled back.`\
-https://nytimes.com/2026/01/15/science/agriculture-science-usaid-global-food.html
+**How to watch Texas vs. South Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6974244/2026/01/15/texas-vs-south-carolina-stream-how-to-watch-jan-15/
 
-**The Biggest U.S. Crypto Company Asserts Its Power in Washington**\
-`The top executive of the crypto exchange Coinbase scuttled a planned Senate committee vote on a major cryptocurrency bill after voicing his concerns, a sign of the company’s clout.`\
-https://nytimes.com/2026/01/15/technology/coinbase-crypto-bill-clarity-act.html
+**Iran Denies Intending to Execute Protester After International Outcry**\
+`Iran denied sentencing protester Erfan Soltani, 26, to death. Soltani’s case had drawn intense international attention after his relatives and rights groups had said he would be executed imminently.`\
+https://nytimes.com/video/world/middleeast/100000010646734/iran-protests-erfan-soltani.html
 
-**2026 NWSL schedule: Challenge Cup changes, men's World Cup impact**\
-`The Athletic breaks down the talking points from this season's schedule reveal.`\
-https://nytimes.com/athletic/6973839/2026/01/15/nwsl-2026-schedule-dates/
+**How to watch Villanova vs. UConn women's basketball: Time, TV, streaming**\
+`Find out how to watch the Villanova Wildcats play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6974239/2026/01/15/villanova-vs-uconn-stream-how-to-watch-jan-15/
 
-**The Hip Priest, the Ex-Hedge Funder and the $10 Million Townhouse**\
-`When a pastor learned his childhood home might undergo a glow-up, he saw his beloved Brooklyn further receding — and took to a different kind of pulpit.`\
-https://nytimes.com/2026/01/15/style/the-hip-priest-the-ex-hedge-funder-and-the-10-million-townhouse.html
+**How to watch Nebraska vs. Michigan State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6974237/2026/01/15/nebraska-vs-michigan-state-stream-how-to-watch-jan-15/
 
-**Ford and GM's F1 rivalry is already boiling over — and that's great news**\
-`General Motors and Ford have exchanged barbs over their new F1 entries this week. This kind of rivalry will thrive`\
-https://nytimes.com/athletic/6973742/2026/01/15/f1-rivalry-ford-gm-racing-history/
+**What’s in Our Queue? ‘Empathie’ and More**\
+`Text by Ségolène Le Stradic`\
+https://nytimes.com/card/2026/01/15/arts/editors-recommendations-empathie
 
-**This Slow Cooker Chicken Dish Is Efficient and Exciting**\
-`Tajín adds its characteristic chile-lime kick to this saucy mix of chicken, peppers and beans.`\
-https://nytimes.com/2026/01/15/dining/this-slow-cooker-chicken-dish-is-efficient-and-exciting.html
+**How to watch Vanderbilt vs. Mississippi State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6974231/2026/01/15/vanderbilt-vs-mississippi-state-stream-how-to-watch-jan-15/
 
-**U.S. Cuts Health Aid and Ties It to Funding Pledges by African Governments**\
-`The Trump administration has signed $11 billion in agreements with African nations, in deals tied to foreign policy goals.`\
-https://nytimes.com/2026/01/15/health/health-agreements-us-africa.html
+**How to watch Louisville vs. Notre Dame women's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6974228/2026/01/15/louisville-vs-notre-dame-stream-how-to-watch-jan-15/
 
-**Maps: 3.1-Magnitude Earthquake Shakes the San Francisco Bay Area**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2026/01/15/us/earthquake-san-francisco-bay-area.html
+**How to watch Illinois vs. Michigan women's basketball: Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6974226/2026/01/15/illinois-vs-michigan-stream-how-to-watch-jan-15/
 
