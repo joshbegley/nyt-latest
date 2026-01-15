@@ -18,8 +18,8 @@ https://nytimes.com/video/dining/100000010644522/herby-pork-laab-with-chile.html
 `Activists spent years preparing for a communications blackout in Iran, smuggling in Starlink satellite internet systems and making digital shutdowns harder for the authorities to enforce.`\
 https://nytimes.com/2026/01/15/technology/iran-online-starlink.html
 
-**‘Star Wars’ Boss to Depart, Ending an Asteroid-Filled Reign**\
-`Kathleen Kennedy will step down as Lucasfilm’s president and return to producing. Two studio veterans will take over.`\
+**‘Star Wars’ Boss Departs, Ending an Asteroid-Filled Reign**\
+`Kathleen Kennedy stepped down as Lucasfilm’s president and returned to producing. Two studio veterans took over.`\
 https://nytimes.com/2026/01/15/business/star-wars-lucasfilm-kathleen-kennedy.html
 
 **Trump Threatens to Invoke the Insurrection Act and Send Troops to Minnesota**\
