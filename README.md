@@ -1,3 +1,7 @@
+**Iran Says Protester Was Not Sentenced to Death After International Outcry**\
+`The judiciary said that Erfan Soltani would not be executed, Iranian state media reported. His case has drawn attention to the fate of the arrested demonstrators.`\
+https://nytimes.com/2026/01/15/world/middleeast/iran-protests-erfan-soltani-execution.html
+
 **Leeds close to completing Buonanotte loan from Brighton**\
 `The proposed deal would see the attacking midfielder's Chelsea loan ended early to allow his move to Elland Road.`\
 https://nytimes.com/athletic/6973619/2026/01/15/facundo-buonanotte-leeds-chelsea-loan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6970759/2026/01/15/mitch-marner-vegas-maple-leafs-a
 **Getting to know forward Oliver Moore: Sizzling speed and family memoirs**\
 `The 20-year-old discusses his grandfather's book, his favorite sport outside of hockey and experiencing the World Juniors from the outside.`\
 https://nytimes.com/athletic/6971355/2026/01/15/blackhawks-oliver-moore-skating-world-juniors/
-
-**José Ramírez continues to add to his Hall of Fame case — is he now within reach?**\
-`If Ramírez can maintain his recent level of consistency for another couple years, it should be enough to secure his spot.`\
-https://nytimes.com/athletic/6961289/2026/01/15/jose-ramirez-guardians-hall-fame-2026/
 
