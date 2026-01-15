@@ -1,3 +1,7 @@
+**Jim Hartung, Gymnast Who Helped Deliver U.S. Gold, Dies at 65**\
+`In an upset victory over China at the 1984 Olympics, he and five others became the only American men ever to win the gold medal in the gymnastics team competition.`\
+https://nytimes.com/2026/01/15/sports/jim-hartung-dead.html
+
 **Big Plan for Fannie and Freddie I.P.O. in Flux as Trump Pushes Affordability**\
 `Six months after President Trump told Wall Street banks to prepare a swift stock offering, there is no firm plan for how to take the giant mortgage firms public.`\
 https://nytimes.com/2026/01/15/business/fannie-and-freddie-ipo.html

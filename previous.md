@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6965964/2026/01/15/josh-sargent-transfer-saga-norwi
 https://nytimes.com/2026/01/15/us/verizon-outage-issues-credit.html
 
 **Jim Hartung, Gymnast Who Helped Deliver U.S. Gold, Dies at 65**\
-`At the 1984 Games in Los Angeles, he was part of the first — and still only — Olympic gold medal won by the American men in the gymnastics team competition.`\
+`In an upset victory over China at the 1984 Olympics, he and five others became the only American men ever to win the gold medal in the gymnastics team competition.`\
 https://nytimes.com/2026/01/15/sports/jim-hartung-dead.html
 
 **Alexander Brothers Accuser Was Found Dead Last Year, Authorities Say**\
