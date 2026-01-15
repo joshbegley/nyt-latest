@@ -1,3 +1,11 @@
+**Runaway Emu Leads Florida Corporal in 45-Minute Police Chase**\
+`A corporal in St. Johns County had responded to what he thought would be a straightforward call about an animal on the loose. Nearly an hour later, he was putting handcuffs on an emu named Tina.`\
+https://nytimes.com/2026/01/15/us/runaway-emu-florida-video.html
+
+**Runaway Emu Leads Sheriff’s Corporal on 45-Minute Chase**\
+`An emu named Tina escaped from a farm in Florida last Friday. Body camera footage captured a sheriff’s office corporal chasing the large bird and eventually putting it in handcuffs.`\
+https://nytimes.com/video/us/100000010647388/runaway-emu-florida-video.html
+
 **An Easy Pasta That’s Hearty, Tangy and So Creamy**\
 `Cabbage, sour cream and melty Gruyère star in Melissa Clark’s latest one-pot weeknight dinner.`\
 https://nytimes.com/2026/01/15/dining/one-pot-pasta-cabbage-recipe.html
