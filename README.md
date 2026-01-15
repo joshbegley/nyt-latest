@@ -1,3 +1,7 @@
+**Milan Court Closes Fraud Case Against Italian Influencer Chiara Ferragni**\
+`A judge dropped the case against Ms. Ferragni, who had been embroiled in a scandal over sales of a limited edition Christmas cake marketed as supporting cancer treatment.`\
+https://nytimes.com/2026/01/15/world/europe/chiara-ferragni-pandoro-cake-italy-influencer.html
+
 **Football lawmakers to discuss bringing in countdowns to combat time-wasting**\
 `The International Football Association Board (IFAB) is keen to reduce the amount of time lost in games.`\
 https://nytimes.com/athletic/6975130/2026/01/15/football-rules-timewasting-throw-in-goal-kick/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6836763/2026/01/15/mlb-willi-castro-free-agency-sig
 **Why it's important that the Giants signed Luis Hernández**\
 `A lot can go wrong with an international signing, but it's possible adding Hernández will be the Giants' best move of this offseason.`\
 https://nytimes.com/athletic/6974873/2026/01/15/sf-giants-luis-hernandez-signing-takeaways/
-
-**Fantasy basketball hot topics of the week: Ja Morant trade watch and more**\
-`Stan Son addresses fantasy-relevant news around the league, such as the Ja Morant trade rumors, and offers more fantasy basketball takes. `\
-https://nytimes.com/athletic/6974814/2026/01/15/fantasy-basketball-hot-topics-ja-morant-trade/
 
