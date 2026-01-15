@@ -1,3 +1,11 @@
+**Steelers coaching search tracker: The first interview requests are in**\
+`Brian Flores, Jesse Minter, Anthony Weaver and a pair of Rams assistants are among the first candidates set up for interviews.`\
+https://nytimes.com/athletic/6972698/2026/01/14/steelers-coaching-search-tracker/
+
+**Boeing Knew About Flaws in UPS Plane That Crashed in Louisville, N.T.S.B. Says**\
+`In a report Wednesday, the National Transportation Safety Board said fractures that caused the left engine to separate from the plane’s wing had occurred at least four other times.`\
+https://nytimes.com/2026/01/14/us/louisville-crash-report.html
+
 **Woman Killed by ICE Agent Seemed at Fault, N.Y. Republican Says**\
 `Bruce Blakeman, the likely Republican candidate for governor, said the killing of Renee Good was just one point of disagreement between him and Gov. Kathy Hochul, a Democrat.`\
 https://nytimes.com/2026/01/14/nyregion/blakeman-ice-minneapolis.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/climate/100000010644792/a-look-at-antarctica-from-abov
 **Prosecutors Say Officer Who Hurled Cooler Was Not Trying to Save Lives**\
 `Lawyers for Sgt. Erik Duran said he had to make a “life-or-death” decision when he struck Eric Duprey as he rode a motorbike recklessly down a sidewalk. Mr. Duprey died almost immediately.`\
 https://nytimes.com/2026/01/14/nyregion/erik-duran-trial.html
-
-**How signing Ranger Suárez impacts the Red Sox rotation, payroll, ability to add a bat and more**\
-`With the Suárez signing, the Red Sox are over the $264 million second luxury tax bracket. Will that impact what moves they might make next?`\
-https://nytimes.com/athletic/6971994/2026/01/14/red-sox-ranger-suarez-signing-impact/
-
-**‘I just kept scoring.’ High school basketball player hits 100 in 3 quarters**\
-`Stubbs set the Arizona single-game high school scoring record with 100 points, on just six 3-pointers.`\
-https://nytimes.com/athletic/6972254/2026/01/14/high-school-basketball-record-100-points-adrian-stubbs-arizona/
 

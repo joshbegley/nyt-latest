@@ -1,3 +1,11 @@
+**Steelers coaching search tracker: The first interview requests are in**\
+`Brian Flores, Jesse Minter, Anthony Weaver and a pair of Rams assistants are among the first candidates set up for interviews.`\
+https://nytimes.com/athletic/6972698/2026/01/14/steelers-coaching-search-tracker/
+
+**Boeing Knew About Flaws in UPS Plane That Crashed in Louisville, N.T.S.B. Says**\
+`In a report Wednesday, the National Transportation Safety Board said fractures that caused the left engine to separate from the plane’s wing had occurred at least four other times.`\
+https://nytimes.com/2026/01/14/us/louisville-crash-report.html
+
 **Woman Killed by ICE Agent Seemed at Fault, N.Y. Republican Says**\
 `Bruce Blakeman, the likely Republican candidate for governor, said the killing of Renee Good was just one point of disagreement between him and Gov. Kathy Hochul, a Democrat.`\
 https://nytimes.com/2026/01/14/nyregion/blakeman-ice-minneapolis.html
