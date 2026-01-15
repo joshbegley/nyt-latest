@@ -1,3 +1,15 @@
+**After multiple signings, the Reds' bullpen is improved, but where’s the offense?**\
+`New signings Pierce Johnson and Caleb Ferguson, along with the re-signed Emilio Pagán help solidify the Reds' 2026 bullpen.`\
+https://nytimes.com/athletic/6975205/2026/01/15/cincinnati-reds-pierce-johnson-bullpen-improvement/
+
+**Florida Panthers visit President Trump at White House to celebrate 2025 Stanley Cup win**\
+`The Panthers visited the White House for a second consecutive year.`\
+https://nytimes.com/athletic/6975067/2026/01/15/trump-white-house-florida-panthers-stanley-cup/
+
+**Humanities Endowment Awarding Millions to Western Civilization Programs**\
+`The National Endowment for the Humanities is giving more than $40 million to programs that have been embraced by conservatives as a counterweight to liberal-dominated academia.`\
+https://nytimes.com/2026/01/15/arts/national-humanities-endowment-grants.html
+
 **Democratic Lawmakers Say They Face New Round of Federal Inquiries**\
 `By Wednesday, at least five Democratic lawmakers said they received new inquiries from federal prosecutors regarding a video they published in November. In the video, they urged military service members not to follow illegal orders.`\
 https://nytimes.com/video/us/politics/100000010647151/democratic-lawmakers-pirro-investigation.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/15/briefing/trump-insurrection-act-longevity-sports.
 **Romeo Santos Reminisces About His Drake Shoutout**\
 `Romeo Santos sat down on the “Popcast” couch and recalled when Drake referenced Aventura on “The Motto” and the collaboration that followed.`\
 https://nytimes.com/video/podcasts/100000010642792/romeo-santos-reminisces-about-his-drake-shoutout.html
-
-**New York Sues Former C.E.O. of Covid Vaccine Maker Over Insider Trading**\
-`Robert G. Kramer sold nearly 90,000 shares of his stock in Emergent BioSolutions, knowing that large quantities of vaccine materials were contaminated, the lawsuit said.`\
-https://nytimes.com/2026/01/15/us/emergent-biosolutions-ceo-insider-trading-covid-vaccine.html
-
-**NBA commissioner Adam Silver 'disappointed' as Ja Morant sits out Berlin game**\
-`Franz Wagner returns, leads Magic to victory over Memphis in Game 1 of a two-game NBA Global Games series.`\
-https://nytimes.com/athletic/6975221/2026/01/15/franz-wagner-return-ja-morant-berlin/
-
-**N.S.A. Nominee Promises to Protect Elections From Foreign Interference**\
-`President Trump fired the National Security Agency’s chief back in April and has weakened cyberattack protections.`\
-https://nytimes.com/2026/01/15/us/politics/trump-nsa-cyber-command-nominee.html
 

@@ -1,3 +1,15 @@
+**After multiple signings, the Reds' bullpen is improved, but where’s the offense?**\
+`New signings Pierce Johnson and Caleb Ferguson, along with the re-signed Emilio Pagán help solidify the Reds' 2026 bullpen.`\
+https://nytimes.com/athletic/6975205/2026/01/15/cincinnati-reds-pierce-johnson-bullpen-improvement/
+
+**Florida Panthers visit President Trump at White House to celebrate 2025 Stanley Cup win**\
+`The Panthers visited the White House for a second consecutive year.`\
+https://nytimes.com/athletic/6975067/2026/01/15/trump-white-house-florida-panthers-stanley-cup/
+
+**Humanities Endowment Awarding Millions to Western Civilization Programs**\
+`The National Endowment for the Humanities is giving more than $40 million to programs that have been embraced by conservatives as a counterweight to liberal-dominated academia.`\
+https://nytimes.com/2026/01/15/arts/national-humanities-endowment-grants.html
+
 **Democratic Lawmakers Say They Face New Round of Federal Inquiries**\
 `By Wednesday, at least five Democratic lawmakers said they received new inquiries from federal prosecutors regarding a video they published in November. In the video, they urged military service members not to follow illegal orders.`\
 https://nytimes.com/video/us/politics/100000010647151/democratic-lawmakers-pirro-investigation.html
