@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, Jan. 15, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/15/todays-new-york-times
+
 **Giants preparing to hire John Harbaugh as head coach: Source**\
 `Harbaugh has amassed 180 wins as a head coach, the 14th-most in NFL history.`\
 https://nytimes.com/athletic/6966896/2026/01/15/john-harbaugh-hired-giants-head-coach/
