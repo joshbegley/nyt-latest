@@ -1,3 +1,15 @@
+**Wild's Jonas Brodin could miss Olympics with lower-body injury**\
+`Brodin, who has played in 42 of the Wild's 47 games this season, has been injured often throughout his career because of his tough minutes.`\
+https://nytimes.com/athletic/6974040/2026/01/15/jonas-brodin-injury-wild-sweden-olympics/
+
+**Israel and Arab Nations Ask Trump to Refrain From Attacking Iran**\
+`Prime Minister Benjamin Netanyahu of Israel asked the president to postpone any planned attack. Israeli and Arab officials fear Iran could retaliate by striking their countries.`\
+https://nytimes.com/2026/01/15/us/politics/trump-iran-israel-us.html
+
+**John Cunningham, Character Actor and Broadway Stalwart, Dies at 93**\
+`He was a familiar face from Broadway productions of “Company,” “Titanic” and “Six Degrees of Separation” and numerous film and TV appearances.`\
+https://nytimes.com/2026/01/15/theater/john-cunningham-dead.html
+
 **Review: These Kings of Dance Get Their Marching Orders From Women**\
 `“Sons of Echo,” in which standout male dancers perform work by women, proves that male choreographers don’t have a monopoly on bad taste.`\
 https://nytimes.com/2026/01/15/arts/dance/review-daniil-simkin-sons-of-echo.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6966540/2026/01/15/manchester-united-new-manager-bi
 **Tessa Thompson in ‘Hedda,’ and More Theater to Stream**\
 `Other picks include “Bat Out of Hell: The Musical,” a new season of Playing on Air podcasts and “Lazarus,” featuring the music of David Bowie.`\
 https://nytimes.com/2026/01/15/theater/theater-to-stream-tessa-thompson-hedda.html
-
-**Tracking Tropical Depression Nokaen**\
-`See the likely path and wind arrival times for Nokaen`\
-https://nytimes.com/interactive/2026/01/15/weather/storm-nokaen-tracker.html
-
-**Israel Watches Iran Protests Closely, but Is Wary of Intervening**\
-`Israel is unlikely to do much to try to precipitate a regime change in Iran, seeing the government as far from the brink of collapse and the current protests as insufficient to push it to that point.`\
-https://nytimes.com/2026/01/15/world/middleeast/israel-iran-protests-netanyahu.html
-
-**A Crane Collapse in Thailand Killed 2, One Day After a Similar Tragedy**\
-`A crane collapsed on an expressway on the outskirts of Bangkok on Thursday, killing at least two people, an official said. It was the second fatal accident involving cranes in the country in two days.`\
-https://nytimes.com/video/world/asia/100000010646667/a-crane-collapse-in-thailand-killed-2-one-day-after-a-similar-tragedy.html
 

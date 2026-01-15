@@ -1,3 +1,11 @@
+**Review: These Kings of Dance Get Their Marching Orders From Women**\
+`“Sons of Echo,” in which standout male dancers perform work by women, proves that male choreographers don’t have a monopoly on bad taste.`\
+https://nytimes.com/2026/01/15/arts/dance/review-daniil-simkin-sons-of-echo.html
+
+**In a Setback for Trump, Judge Says N.Y. Wind Farm Can Resume Construction**\
+`A federal judge said the Empire Wind project off Long Island would suffer “irreparable harm” if the Trump administration continued to hold up work.`\
+https://nytimes.com/2026/01/15/climate/empire-wind-court-ruling.html
+
 **'Managers' authority being eroded' - Gareth Southgate**\
 `Southgate's comments were framed in the context of Chelsea, Manchester United and Real Madrid all parting company with their head coaches.`\
 https://nytimes.com/athletic/6974317/2026/01/15/gareth-southgate-manager-england/
