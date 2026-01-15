@@ -1,3 +1,15 @@
+**Wolfsburg submit €18m offer for Toulouse defender Cresswell**\
+`It is doubtful the offer for the 23-year-old is at a level Toulouse would want to consider a sale.`\
+https://nytimes.com/athletic/6490493/2026/01/15/charlie-cresswell-wolfsburg-toulouse-bid/
+
+**Premier League upsets: Three matches that could go against the odds**\
+`Each week, we'll be bringing you a selection of games that we think could go against the grain and see an underdog surprise a fancied foe`\
+https://nytimes.com/athletic/6973623/2026/01/15/premier-league-matchweek-22-leeds-fulham-brighton/
+
+**Ronald Araujo's spiritual journey to deal with anxiety, and how he made his Barcelona return**\
+`The 26-year-old defender returned to action with Barcelona on Sunday after a period of absence in which he visited Christian holy sites`\
+https://nytimes.com/athletic/6973632/2026/01/15/ronald-araujo-anxiety-barcelona-supercopa-return/
+
 **Mamdani’s Consumer Protection Commissioner Vows More Aggressive Action**\
 `“I want to be very public that there’s a new cop on the beat,” said Samuel Levine, the new commissioner of New York City’s Department of Consumer and Worker Protection.`\
 https://nytimes.com/2026/01/15/nyregion/nyc-motoclick-delivery-workers-lawsuit.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/science/space/100000010646747/nasa-astronauts-return-i
 **No. 1 Arizona just keeps winning as other college hoops undefeateds fall**\
 `The Wildcats insist all they care about is the game in front of them, but 17 in a row is nothing to dismiss.`\
 https://nytimes.com/athletic/6973424/2026/01/15/arizona-arizona-state-score-result-undefeated-no-1/
-
-**The Lakers have revealed their blueprint. Now, they have to commit to it**\
-`The Lakers have found their standard. The execution is the ultimate test. "Hopefully we can find that consistency," JJ Redick said. `\
-https://nytimes.com/athletic/6968915/2026/01/15/lakers-blueprint-luka-doncic-lebron-james-nba/
-
-**With Dante Moore back, Oregon's 'all-in' for 2026 — plus other transfer portal notes**\
-`With Moore and a significant amount of experienced talent back next year, the Ducks’ objective is clear.`\
-https://nytimes.com/athletic/6972845/2026/01/15/oregon-dante-moore-quarterback-national-title/
-
-**Commanders' new stadium renderings depict an homage to the team's past**\
-`The renderings show a wavy roof line, a transparent top that will resemble an open-air venue and a colonnade exterior.`\
-https://nytimes.com/athletic/6973253/2026/01/15/washington-commanders-stadium-renderings/
 
