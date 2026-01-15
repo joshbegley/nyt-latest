@@ -1,3 +1,11 @@
+**Why ASAP Rocky’s New Album Took So Long**\
+`The musician and actor A$AP Rocky sat down with Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, to discuss the release of his first album in eight years.`\
+https://nytimes.com/video/podcasts/100000010648632/why-asap-rockys-new-album-took-so-long.html
+
+**Was Renee Good Obligated to Comply With an ICE Agent’s Orders?**\
+`The agent told Ms. Good to get out of her car before fatally shooting her. Legal experts said immigration agents may sometimes, but not always, have the authority to make such commands.`\
+https://nytimes.com/2026/01/15/us/renee-good-ice-agent-comply-legal.html
+
 **After multiple signings, the Reds' bullpen is improved, but where’s the offense?**\
 `New signings Pierce Johnson and Caleb Ferguson, along with the re-signed Emilio Pagán help solidify the Reds' 2026 bullpen.`\
 https://nytimes.com/athletic/6975205/2026/01/15/cincinnati-reds-pierce-johnson-bullpen-improvement/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/15/us/politics/student-protester-deportations-trump-
 **Why the model-heavy Cubs are betting big on the human side of Alex Bregman**\
 `"You have to feel great about the person, the human that you’re investing in," Jed Hoyer said after the Cubs introduced Bregman.`\
 https://nytimes.com/athletic/6975179/2026/01/15/cubs-alex-bregman-human-side/
-
-**Trump Threatened to Send the Military to Minneapolis**\
-`Also, Israel and Arab countries asked the U.S. not to attack Iran. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2026/01/15/briefing/trump-insurrection-act-longevity-sports.html
-
-**Romeo Santos Reminisces About His Drake Shoutout**\
-`Romeo Santos sat down on the “Popcast” couch and recalled when Drake referenced Aventura on “The Motto” and the collaboration that followed.`\
-https://nytimes.com/video/podcasts/100000010642792/romeo-santos-reminisces-about-his-drake-shoutout.html
 
