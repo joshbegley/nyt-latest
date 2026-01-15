@@ -1,3 +1,7 @@
+**Liam Rosenior and the positives and negatives from his first Chelsea home game**\
+`New Chelsea head coach Liam Rosenior would have had positives to take away from Wednesday night's game`\
+https://nytimes.com/athletic/6972814/2026/01/15/liam-rosenior-chelsea-arsenal-analysis/
+
 **Arsenal's three goalscorers and the different contributions needed to win trophies**\
 `Arsenal beat Chelsea 3-2 in their Carabao Cup semi-final first leg on Wednesday night`\
 https://nytimes.com/athletic/6972779/2026/01/15/arsenal-chelsea-goalscorers-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6968988/2026/01/15/fantasy-premier-league-tips-fpl-
 **How Sesko has found form at Manchester United - and can Carrick help maintain it?**\
 `Darren Fletcher's caretaker spell in charge brought a goalscoring uplift to Sesko, who is beginning to find his feet in English football`\
 https://nytimes.com/athletic/6142059/2026/01/15/carrick-sesko-manchester-united-form/
-
-**Xabi Alonso and Real Madrid felt like a sure thing — but what does it really take to manage the elite?**\
-`The Alonsos, Amorims, Marescas and Roseniors could still be the future. But they’re also a risk`\
-https://nytimes.com/athletic/6969108/2026/01/15/xabi-alonso-real-madrid-management-ancelotti-guardiola/
 
