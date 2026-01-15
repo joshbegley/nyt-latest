@@ -1,3 +1,7 @@
+**Clashes in Minneapolis After Federal Agent Shoots Man**\
+`A federal agent shot and injured a Venezuelan man in Minneapolis on Wednesday night, a Homeland Security official said. The shooting came one week after an ICE agent shot and killed a woman in the city.`\
+https://nytimes.com/video/us/100000010646474/minneapolis-federal-agent-shooting-immigration.html
+
 **How NASA deals with astronauts’ medical needs on the I.S.S.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/how-nasa-deals-with-astronauts-medical-needs-on-the-iss
