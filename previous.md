@@ -1,3 +1,7 @@
+**Must-See Moments From the N.B.A.**\
+`Jamal Murray’s big performance for the Denver Nuggets was one highlight of a busy night around the league.`\
+https://nytimes.com/video/sports/basketball/100000010646528/must-see-moments-from-the-nba.html
+
 **Clashes in Minneapolis After Federal Agent Shoots Man**\
 `A federal agent shot and injured a Venezuelan man in Minneapolis on Wednesday night, a Homeland Security official said. The shooting came one week after an ICE agent shot and killed a woman in the city.`\
 https://nytimes.com/video/us/100000010646474/minneapolis-federal-agent-shooting-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6967742/2026/01/15/davos-wef-global-sports-industry
 **Morocco, a lack of tension, expectation and a belief they can win a first AFCON in 50 years**\
 `Hosts Morocco are in the final of the Africa Cup of Nations. The entire nation is utterly convinced they are going to win the tournament`\
 https://nytimes.com/athletic/6972988/2026/01/15/morocco-afcon-nigeria-analysis/
-
-**What happens during the astronauts’ return to Earth?**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/what-happens-during-the-astronauts-return-to-earth
 

@@ -1,3 +1,7 @@
+**Must-See Moments From the N.B.A.**\
+`Jamal Murray’s big performance for the Denver Nuggets was one highlight of a busy night around the league.`\
+https://nytimes.com/video/sports/basketball/100000010646528/must-see-moments-from-the-nba.html
+
 **Clashes in Minneapolis After Federal Agent Shoots Man**\
 `A federal agent shot and injured a Venezuelan man in Minneapolis on Wednesday night, a Homeland Security official said. The shooting came one week after an ICE agent shot and killed a woman in the city.`\
 https://nytimes.com/video/us/100000010646474/minneapolis-federal-agent-shooting-immigration.html
