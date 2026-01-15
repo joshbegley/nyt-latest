@@ -1,3 +1,11 @@
+**Alexander Brothers Accuser Was Found Dead Last Year, Authorities Say**\
+`The death of Kate Whiteman, whose accusation of sexual assault against Oren and Alon Alexander opened a floodgate of similar allegations, is under investigation.`\
+https://nytimes.com/2026/01/15/nyregion/kate-whiteman-alexander-brothers.html
+
+**Giants, Mets among teams with notable signings as new MLB international signing period begins**\
+`Luis Hernández, signed by the Giants for $5 million, is considered the top prospect in this year's class.`\
+https://nytimes.com/athletic/6974242/2026/01/15/mlb-international-signing-period-2026/
+
 **N.F.L. Playoff Predictions: Vibes Only**\
 `On this week’s episode of “The Athletic Show,” the hosts Robert Mays, Zena Keita, and Jason Goff are joined by Madeline Hill and Charlotte Wilder of “The Sports Gossip Show” to ditch the analytics and rank N.F.L. playoff contenders based only on their “vibes.”`\
 https://nytimes.com/video/the-athletic/100000010647045/nfl-playoff-predictions-vibes-only.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6974518/2026/01/15/tristan-blackmon-vancouver-white
 **Yankees search for international director as signing period opens**\
 `The club has interviewed external and internal options after firing longtime international scouting director Donny Rowland last year.`\
 https://nytimes.com/athletic/6974472/2026/01/15/yankees-international-scouting-director-mlb-signing-period/
-
-**2027 Tours de France to visit major UK cities**\
-`“This is not a sporting moment, it is a national moment,” British Cycling CEO Jon Dutton said on Thursday.`\
-https://nytimes.com/athletic/6974539/2026/01/15/tours-de-france-2027-uk-cities/
-
-**ICE’s No. 2 Official Leaves to Run for the House in Ohio**\
-`Madison Sheahan, a top enforcer of President Trump’s immigration crackdown, said she would step down to challenge Representative Marcy Kaptur, a Democrat.`\
-https://nytimes.com/2026/01/15/us/politics/madison-sheahan-ice-ohio-house-congress.html
 
