@@ -1,3 +1,11 @@
+**Venezuelan Immigrants Urge Appeals Court to Restore Deportation Protections**\
+`The Trump administration has ended Temporary Protected Status for about 600,000 Venezuelan immigrants, part of a broader effort to curb avenues for immigrants to remain in the United States.`\
+https://nytimes.com/2026/01/14/us/venezuelan-immigrants-appeal-tps-ruling.html
+
+**Katie Ledecky posts second-best 1,500m freestyle time in first race of year**\
+`Ledecky was less than three seconds off her world record from 2018, sending a message as the build-up to the 2028 Olympics begins.`\
+https://nytimes.com/athletic/6972887/2026/01/14/katie-ledecky-1500-meter-freestyle-second-fastest-olympics/
+
 **Federal Agent Shoots Immigrant in Minneapolis, Homeland Security Says**\
 `The agent shot an immigrant from Venezuela in the leg while trying to arrest him, an official said. The shooting comes a week after an ICE agent fatally shot a woman in the city.`\
 https://nytimes.com/2026/01/14/us/minneapolis-federal-agent-shooting-immigration.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6972698/2026/01/14/steelers-coaching-search-tracker
 **Boeing Knew About Flaws in UPS Plane That Crashed in Louisville, N.T.S.B. Says**\
 `In a report Wednesday, the National Transportation Safety Board said fractures that appeared to have led the left engine to separate from the plane’s wing had occurred at least four other times.`\
 https://nytimes.com/2026/01/14/us/louisville-crash-report.html
-
-**Woman Killed by ICE Agent Seemed at Fault, N.Y. Republican Says**\
-`Bruce Blakeman, the likely Republican candidate for governor, said the killing of Renee Good was just one point of disagreement between him and Gov. Kathy Hochul, a Democrat.`\
-https://nytimes.com/2026/01/14/nyregion/blakeman-ice-minneapolis.html
-
-**This Might Be the Best Sport for a Longer Life**\
-`Research consistently shows that physical activity is linked to healthy aging. But do some sports confer more longevity benefits than others? Simar Bajaj, a reporting fellow for Well, explains.`\
-https://nytimes.com/video/well/move/100000010632708/this-might-be-the-best-sport-for-a-longer-life.html
 
