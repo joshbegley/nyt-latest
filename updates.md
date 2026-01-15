@@ -1,3 +1,11 @@
+**Romeo Santos Reminisces About His Drake Shoutout**\
+`Romeo Santos sat down on the “Popcast” couch and recalled when Drake referenced Aventura on “The Motto” and the collaboration that followed.`\
+https://nytimes.com/video/podcasts/100000010642792/romeo-santos-reminisces-about-his-drake-shoutout.html
+
+**‘Star Wars’ Boss Departs, Ending an Asteroid-Filled Reign**\
+`Kathleen Kennedy stepped down as Lucasfilm’s president and returned to producing. Two studio veterans took over.`\
+https://nytimes.com/2026/01/15/business/star-wars-lucasfilm-kathleen-kennedy.html
+
 **New York Sues Former C.E.O. of Covid Vaccine Maker Over Insider Trading**\
 `Robert G. Kramer sold nearly 90,000 shares of his stock in Emergent BioSolutions, knowing that large quantities of vaccine materials were contaminated, the lawsuit said.`\
 https://nytimes.com/2026/01/15/us/emergent-biosolutions-ceo-insider-trading-covid-vaccine.html
