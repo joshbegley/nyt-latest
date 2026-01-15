@@ -1,3 +1,7 @@
+**Welcome to the Alex Bregman era as World Series expectations return to Wrigley Field**\
+`As the Cubs introduce Bregman as third baseman, they'll reintroduce themselves as a big-market franchise with serious ambitions to win.`\
+https://nytimes.com/athletic/6972851/2026/01/14/cubs-alex-bregman-world-series-wrigley-field/
+
 **Commanders to hire D.J. Williams, son of legend Doug Williams, as QBs coach**\
 `Williams will be the primary voice in the ear of quarterback Jayden Daniels as a key member of Washington’s altered offensive staff.`\
 https://nytimes.com/athletic/6972883/2026/01/14/commanders-dj-williams-qbs-coach-doug-williams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6972789/2026/01/14/how-to-watch-miami-fl-vs-no-1-in
 **After Danish and U.S. Officials Meet on Greenland, Trump Remains Unmoved**\
 `Denmark’s foreign minister left the White House complex saying that his country had a “fundamental disagreement” with President Trump, as several NATO countries sent troops to Greenland.`\
 https://nytimes.com/2026/01/14/us/politics/greenland-trump-denmark.html
-
-**A pond for Ponds: Bloomington names body of water after Indiana CB**\
-`The city of Bloomington has temporarily renamed a local pond “D’Angelo’s Pond” in honor of the Indiana cornerback.`\
-https://nytimes.com/athletic/6972274/2026/01/14/dangelo-ponds-indiana-cornerback-bloomington-pond/
 
