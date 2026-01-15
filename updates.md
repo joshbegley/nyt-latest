@@ -1,3 +1,11 @@
+**Minneapolis Schools Allow Students to Learn Online Amid ICE Fears**\
+`As immigration agents and protests lead some families to keep children home, schools around the Twin Cities are offering a remote option for the next several weeks.`\
+https://nytimes.com/2026/01/15/us/minneapolis-schools-online-learning-ice.html
+
+**Rockies agree to 2-year deal with versatile vet Willi Castro: Sources**\
+`Castro has logged time at three infield positions as well as all three outfield spots during his seven seasons in the majors.`\
+https://nytimes.com/athletic/6836763/2026/01/15/mlb-willi-castro-free-agency-signing-rockies/
+
 **Why it's important that the Giants signed Luis Hernández**\
 `A lot can go wrong with an international signing, but it's possible adding Hernández will be the Giants' best move of this offseason.`\
 https://nytimes.com/athletic/6974873/2026/01/15/sf-giants-luis-hernandez-signing-takeaways/
