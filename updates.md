@@ -1,3 +1,11 @@
+**Venezuelan Immigrants Urge Appeals Court to Restore Deportation Protections**\
+`The Trump administration has ended Temporary Protected Status for about 600,000 Venezuelan immigrants, part of a broader effort to curb avenues for immigrants to remain in the United States.`\
+https://nytimes.com/2026/01/14/us/venezuelan-immigrants-appeal-tps-ruling.html
+
+**Katie Ledecky posts second-best 1,500m freestyle time in first race of year**\
+`Ledecky was less than three seconds off her world record from 2018, sending a message as the build-up to the 2028 Olympics begins.`\
+https://nytimes.com/athletic/6972887/2026/01/14/katie-ledecky-1500-meter-freestyle-second-fastest-olympics/
+
 **Federal Agent Shoots Immigrant in Minneapolis, Homeland Security Says**\
 `The agent shot an immigrant from Venezuela in the leg while trying to arrest him, an official said. The shooting comes a week after an ICE agent fatally shot a woman in the city.`\
 https://nytimes.com/2026/01/14/us/minneapolis-federal-agent-shooting-immigration.html
