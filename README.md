@@ -1,3 +1,11 @@
+**Kyiv’s Cruelest Winter: Russia Knocks Out the Heat in the Bitter Cold**\
+`The Kremlin has tried for years to freeze Ukraine into submission. This winter, its attacks have been the most devastating ever.`\
+https://nytimes.com/2026/01/15/world/europe/ukraine-kyiv-winter-heating-power-outages.html
+
+**Spurs exploring Veliz sale with Bahia in talks**\
+`Sources briefed on the situation indicated a fee was yet to be agreed for Veliz but discussions were ongoing.`\
+https://nytimes.com/athletic/6971915/2026/01/15/tottenhams-alejo-veliz-bahia-transfer/
+
 **The Pulse: These Olympics already have everything**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6971069/2026/01/15/milan-olympics-preview-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/15/us/politics/cyberattack-venezuela-military.html
 **‘Riot Women’ Review: Women of a Certain Rage**\
 `There’s much more to Sally Wainwright’s series about middle-aged punk rockers than the music.`\
 https://nytimes.com/2026/01/15/arts/television/riot-women-review.html
-
-**Nobel Committee Takes Heat at Home as Machado Courts Trump**\
-`The Venezuelan opposition leader’s attempts to share her award with the U.S. president have shaken some Norwegians’ faith in their signature soft-power tool.`\
-https://nytimes.com/2026/01/15/world/americas/machado-trump-meeting-nobel-peace-prize.html
-
-**The U.S. Is Pressing Mexico to Allow U.S. Forces to Fight Cartels**\
-`The United States is escalating pressure on the Mexican government to permit the U.S. military to target fentanyl labs, according to American officials.`\
-https://nytimes.com/2026/01/15/world/americas/us-mexico-cartels.html
 
