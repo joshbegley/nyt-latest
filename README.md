@@ -1,3 +1,11 @@
+**Tottenham name CFG's Moersen as new director of football operations**\
+`Moersen is currently on gardening leave from CFG and is due to join Spurs ahead of the summer transfer window.`\
+https://nytimes.com/athletic/6973587/2026/01/15/tottenham-city-football-group-moersen-director/
+
+**Court Vision: Indiana's big what-if, best hoops-football coaching combos**\
+`Who makes the midseason all-transfer team? And how Ryan Odom is leading Virginia back to familiar territory.`\
+https://nytimes.com/athletic/6971850/2026/01/15/college-basketball-indiana-coaching-transfers/
+
 **Andy Robertson faces big decision with Liverpool contract expiring**\
 `After losing his place in the starting line-up, the Scotland international must decide if he is happy with a reduced role at Anfield`\
 https://nytimes.com/athletic/6965791/2026/01/15/andy-robertson-liverpool-future-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6972663/2026/01/15/49ers-seahawks-playoffs-kyle-sha
 **Winnipeg Jets dads give their best fatherly advice to a new dad: 'It's an amazing ride'**\
 `Murat Ates turned to the Jets for advice and stories about being a father.`\
 https://nytimes.com/athletic/6946609/2026/01/15/winnipeg-jets-dads-advice/
-
-**College Football Playoff oddly specific predictions: Miami wins title No. 6!**\
-`Mario Cristobal has built this Miami team at the line of scrimmage. And that will be the difference in the national title game. `\
-https://nytimes.com/athletic/6972737/2026/01/15/college-football-playoff-prediction-miami-indiana/
-
-**When the game's on the line, who would you rather have than Caleb Williams?**\
-`Williams' work is ongoing, but what we’ve seen so far is that he gets better when the pressure is on. That’s not a bad trait to build on.`\
-https://nytimes.com/athletic/6972414/2026/01/15/caleb-williams-bears-rams-big-moments/
 
