@@ -1,3 +1,19 @@
+**Feds charge 20 men with alleged conspiracy to manipulate college basketball games**\
+`The scheme, according to federal prosecutors, involved two men indicted this fall for their alleged role in an NBA gambling scheme.`\
+https://nytimes.com/athletic/6973903/2026/01/15/ncaa-college-basketball-gambling-investigation-charges/
+
+**Greg Biffle's home broken into weeks after deadly plane crash**\
+`Thirty-thousand dollars in cash and a backpack were stolen, along with some guns and memorabilia, according to multiple reports.`\
+https://nytimes.com/athletic/6973929/2026/01/15/greg-biffle-nascar-home-burglary/
+
+**Abolish ICE? It’s a Slogan Some Democratic Critics of ICE Would Abolish.**\
+`As Democrats grow more alarmed about the Trump administration’s aggressive immigration raids in American cities, some worry that calls to eliminate the agency will distract from efforts to rein it in.`\
+https://nytimes.com/2026/01/15/us/politics/democrats-abolish-ice-slogan.html
+
+**Appeals Court Opens the Door to Mahmoud Khalil’s Rearrest**\
+`Any new detention would not come immediately, and Mr. Khalil’s lawyers plan to appeal. But the ruling is a major blow to Mr. Khalil, a Columbia graduate and prominent figure in the pro-Palestinian movement.`\
+https://nytimes.com/2026/01/15/nyregion/mahmoud-khalil-detention.html
+
 **Why Trump Always Thanks You ‘For Your Attention to This Matter’**\
 `How a simple catchphrase sums up the president’s theory of executive power.`\
 https://nytimes.com/2026/01/15/books/review/trump-thank-you-for-your-attention-to-this-matter.html
