@@ -1,3 +1,7 @@
+**Scoop City: New York makes a Giant splash with Harbaugh**\
+`The Giants won the John Harbaugh sweepstakes, while the Jets lost the chance to draft Oregon quarterback Dante Moore`\
+https://nytimes.com/athletic/6974853/2026/01/15/new-york-giants-harbaugh-hired-dante-moore-jets-scoop-city/
+
 **Big Plan for Fannie and Freddie I.P.O. in Flux as Trump Pushes Affordability**\
 `Six months after President Trump told Wall Street banks to prepare a swift stock offering, there is no firm plan for how to take the giant mortgage firms public.`\
 https://nytimes.com/2026/01/15/business/fannie-and-freddie-ipo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6974242/2026/01/15/mlb-international-signing-period
 **N.F.L. Playoff Predictions: Vibes Only**\
 `On this week’s episode of “The Athletic Show,” the hosts Robert Mays, Zena Keita, and Jason Goff are joined by Madeline Hill and Charlotte Wilder of “The Sports Gossip Show” to ditch the analytics and rank N.F.L. playoff contenders based only on their “vibes.”`\
 https://nytimes.com/video/the-athletic/100000010647045/nfl-playoff-predictions-vibes-only.html
-
-**Runaway Emu Leads Florida Corporal in 45-Minute Police Chase**\
-`A corporal in St. Johns County had responded to what he thought would be a straightforward call about an animal on the loose. Nearly an hour later, he was putting handcuffs on an emu named Tina.`\
-https://nytimes.com/2026/01/15/us/runaway-emu-florida-video.html
 

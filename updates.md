@@ -1,3 +1,7 @@
+**Scoop City: New York makes a Giant splash with Harbaugh**\
+`The Giants won the John Harbaugh sweepstakes, while the Jets lost the chance to draft Oregon quarterback Dante Moore`\
+https://nytimes.com/athletic/6974853/2026/01/15/new-york-giants-harbaugh-hired-dante-moore-jets-scoop-city/
+
 **Jim Hartung, Gymnast Who Helped Deliver U.S. Gold, Dies at 65**\
 `In an upset victory over China at the 1984 Olympics, he and five others became the only American men ever to win the gold medal in the gymnastics team competition.`\
 https://nytimes.com/2026/01/15/sports/jim-hartung-dead.html
