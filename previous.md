@@ -1,3 +1,11 @@
+**Heitinga joins Spurs as assistant first-team coach**\
+`The 42-year-old previously held the position at West Ham United and Liverpool, prior to his appointment as Ajax head coach last summer.`\
+https://nytimes.com/athletic/6973841/2026/01/15/tottenham-coach-johnny-heitinga/
+
+**How We Photographed an ICE Confrontation in Minneapolis**\
+`Our visual journalists David Guttenfelder and Todd Heisler describe a dramatic incident in which federal agents dragged a woman out of her car in Minneapolis near where Renee Nicole Good had been killed days before.`\
+https://nytimes.com/video/us/100000010643550/how-we-photographed-an-ice-confrontation-in-minneapolis.html
+
 **Wolfsburg submit €18m offer for Toulouse defender Cresswell**\
 `It is doubtful the offer for the 23-year-old is at a level Toulouse would want to consider a sale.`\
 https://nytimes.com/athletic/6490493/2026/01/15/charlie-cresswell-wolfsburg-toulouse-bid/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/15/business/dealbook/crypto-bill-coinbase.html
 **How to watch Grizzlies vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6973766/2026/01/15/grizzlies-vs-magic-stream-how-to-watch-jan-15/
-
-**Four Astronauts Splash Down on Earth After Early Return**\
-`Two American astronauts and others from Japan and Russia landed in the Pacific Ocean after an early journey home from the International Space Station because one of them was ill.`\
-https://nytimes.com/video/science/space/100000010646747/nasa-astronauts-return-iss.html
-
-**No. 1 Arizona just keeps winning as other college hoops undefeateds fall**\
-`The Wildcats insist all they care about is the game in front of them, but 17 in a row is nothing to dismiss.`\
-https://nytimes.com/athletic/6973424/2026/01/15/arizona-arizona-state-score-result-undefeated-no-1/
 

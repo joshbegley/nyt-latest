@@ -1,3 +1,11 @@
+**Heitinga joins Spurs as assistant first-team coach**\
+`The 42-year-old previously held the position at West Ham United and Liverpool, prior to his appointment as Ajax head coach last summer.`\
+https://nytimes.com/athletic/6973841/2026/01/15/tottenham-coach-johnny-heitinga/
+
+**How We Photographed an ICE Confrontation in Minneapolis**\
+`Our visual journalists David Guttenfelder and Todd Heisler describe a dramatic incident in which federal agents dragged a woman out of her car in Minneapolis near where Renee Nicole Good had been killed days before.`\
+https://nytimes.com/video/us/100000010643550/how-we-photographed-an-ice-confrontation-in-minneapolis.html
+
 **Wolfsburg submit €18m offer for Toulouse defender Cresswell**\
 `It is doubtful the offer for the 23-year-old is at a level Toulouse would want to consider a sale.`\
 https://nytimes.com/athletic/6490493/2026/01/15/charlie-cresswell-wolfsburg-toulouse-bid/
