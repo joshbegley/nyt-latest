@@ -1,3 +1,7 @@
+**Why Trump Always Thanks You ‘For Your Attention to This Matter’**\
+`How a simple catchphrase sums up the president’s theory of executive power.`\
+https://nytimes.com/2026/01/15/books/review/trump-thank-you-for-your-attention-to-this-matter.html
+
 **Rosenior holds player meeting as Chelsea aim to contain virus outbreak**\
 `Liam Delap and Jamie Gittens missed the Carabao Cup semi-final first leg defeat to Arsenal on Wednesday night due to illness.`\
 https://nytimes.com/athletic/6973928/2026/01/15/liam-rosenior-chelsea-virus/
