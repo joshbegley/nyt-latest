@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, Jan. 15, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/15/todays-new-york-times
+
 **Giants preparing to hire John Harbaugh as head coach: Source**\
 `Harbaugh has amassed 180 wins as a head coach, the 14th-most in NFL history.`\
 https://nytimes.com/athletic/6966896/2026/01/15/john-harbaugh-hired-giants-head-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6969929/2026/01/15/alternative-premier-league-table
 **How Liverpool play: Experimental formations, a blunter attack, and set-piece concerns**\
 `The Athletic's series taking the tactical temperature at the Premier League's 'Big Six' continues with a look at Arne Slot's reigning champs`\
 https://nytimes.com/athletic/6953927/2026/01/15/how-liverpool-play-premier-league-tactics/
-
-**Why fortysomethings are prized assets in SailGP: 'Transfer fees have gone through the roof'**\
-`As the sixth season of the SailGP Championship gets underway, it is the most experienced sailors who are commanding the biggest fees`\
-https://nytimes.com/athletic/6968983/2026/01/15/sailgp-season-6-sailor-transfers/
 
