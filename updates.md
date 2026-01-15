@@ -1,3 +1,15 @@
+**Does Arsene Wenger really get football?**\
+`Wenger's offside proposals reinforce the fear that as FIFA's chief of global football development he might be doing more harm than good`\
+https://nytimes.com/athletic/6973850/2026/01/15/arsene-wenger-offside-proposals-fifa/
+
+**The Bounce: Our worst (and best) predictions so far**\
+`The Bounce is The Athletic's free NBA newsletter.`\
+https://nytimes.com/athletic/6974069/2026/01/15/nba-season-win-totals-the-bounce/
+
+**Dyche says club have held talks with Zinchenko over Forest future**\
+`The Ukraine international has only made four Premier League starts after joining on loan from Arsenal.`\
+https://nytimes.com/athletic/6973995/2026/01/15/oleksandr-zinchenko-nottinham-forest-future/
+
 **On Bali, a Hotel Filled With Antiques**\
 `Plus: Rina Sawayama’s beauty essentials, a whimsical Dutch oven and more recommendations from T Magazine.`\
 https://nytimes.com/2026/01/15/t-magazine/bali-hotel-magia-de-uma.html
