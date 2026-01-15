@@ -1,8 +1,20 @@
+**Mike Tomlin's final speech had Aaron Rodgers and T.J. Watt in tears**\
+`Details from Tomlin's emotional farewell to his players.`\
+https://nytimes.com/athletic/6974150/2026/01/15/mike-tomlin-resignation-aaron-rodgers-tj-watt-reaction/
+
+**Man Utd new manager bingo: What will Carrick say - and how will he say it?**\
+`‘The Manchester United way’ is just one of the phrases to listen out for as the interim head coach has his inaugural press conference`\
+https://nytimes.com/athletic/6966540/2026/01/15/manchester-united-new-manager-bingo/
+
+**Tessa Thompson in ‘Hedda,’ and More Theater to Stream**\
+`Other picks include “Bat Out of Hell: The Musical,” a new season of Playing on Air podcasts and “Lazarus,” featuring the music of David Bowie.`\
+https://nytimes.com/2026/01/15/theater/theater-to-stream-tessa-thompson-hedda.html
+
 **Tracking Tropical Depression Nokaen**\
 `See the likely path and wind arrival times for Nokaen`\
 https://nytimes.com/interactive/2026/01/15/weather/storm-nokaen-tracker.html
 
-**Israel Watches Iran Protests Closely, But Is Wary of Intervening**\
+**Israel Watches Iran Protests Closely, but Is Wary of Intervening**\
 `Israel is unlikely to do much to try to precipitate a regime change in Iran, seeing the government as far from the brink of collapse and the current protests as insufficient to push it to that point.`\
 https://nytimes.com/2026/01/15/world/middleeast/israel-iran-protests-netanyahu.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6974296/2026/01/15/sharks-vs-capitals-stream-how-to
 **How to watch Canadiens vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6974293/2026/01/15/canadiens-vs-sabres-stream-how-to-watch-jan-15/
-
-**How to watch Canucks vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6974288/2026/01/15/canucks-vs-blue-jackets-stream-how-to-watch-jan-15/
-
-**How to watch Suns vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6974285/2026/01/15/suns-vs-pistons-stream-how-to-watch-jan-15/
-
-**How to watch Flyers vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6974283/2026/01/15/flyers-vs-penguins-stream-how-to-watch-jan-15/
 

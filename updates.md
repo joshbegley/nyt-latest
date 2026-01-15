@@ -1,5 +1,9 @@
 **Tracking Tropical Depression Nokaen**\
 `See the likely path and wind arrival times for Nokaen`\
+https://nytimes.com/interactive/2026/01/15/weather/storm-nokaen-tracker.html
+
+**Tracking Tropical Depression Nokaen**\
+`See the likely path and wind arrival times for Nokaen`\
 https://nytimes.com/interactive/2026/01/15/weather/one-map-path-tracker.html
 
 **Israel Watches Iran Protests Closely, But Is Wary of Intervening**\
