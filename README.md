@@ -1,3 +1,11 @@
+**For the World’s Food Supply, Federal Funding Cuts Have Long-Term Impacts**\
+`The U.S. Agency for International Development has been a major supporter of global agriculture research. Now many studies are being scuttled or scaled back.`\
+https://nytimes.com/2026/01/15/science/agriculture-science-usaid-global-food.html
+
+**The Biggest U.S. Crypto Company Asserts Its Power in Washington**\
+`The top executive of the crypto exchange Coinbase scuttled a planned Senate committee vote on a major cryptocurrency bill after voicing his concerns, a sign of the company’s clout.`\
+https://nytimes.com/2026/01/15/technology/coinbase-crypto-bill-clarity-act.html
+
 **2026 NWSL schedule: Challenge Cup changes, men's World Cup impact**\
 `The Athletic breaks down the talking points from this season's schedule reveal.`\
 https://nytimes.com/athletic/6973839/2026/01/15/nwsl-2026-schedule-dates/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/15/us/politics/trump-ice-immunity.html
 **Here’s the latest.**\
 `By Mitch Smith, Nicholas Bogel-Burroughs and Shaila Dewan`\
 https://nytimes.com/live/2026/01/15/us/minneapolis-shooting-ice/heres-the-latest
-
-**Live Updates: Trump Threatens Insurrection Act to Quash Minneapolis Protests**\
-`The president has repeatedly spoken of invoking the 1807 law to end demonstrations against his immigration crackdown. Tensions rose in Minneapolis after another shooting by federal agents.`\
-https://nytimes.com/live/2026/01/15/us/minneapolis-shooting-ice
-
-**Trump se reunirá con la líder opositora de Venezuela, María Corina Machado**\
-`Está previsto que la dirigente venezolana almuerce con el mandatario estadounidense el jueves. Ha ofrecido entregarle a Trump el Nobel que recibió en diciembre.`\
-https://nytimes.com/live/2026/01/15/espanol/trump-venezuela-machado
 
