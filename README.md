@@ -1,3 +1,7 @@
+**‘We Came Here to Vote’: Ugandans Go to Polls Despite Major Delays**\
+`Technical failures at polling places have caused disruptions, and the opposition has warned of government vote rigging amid an internet blackout.`\
+https://nytimes.com/2026/01/15/world/africa/uganda-election-museveni.html
+
 **Retiring pitcher Clayton Kershaw joins Team USA, hoping to appear in WBC for first time**\
 `This WBC gives Kershaw a chance to pitch in the tournament for the first time.`\
 https://nytimes.com/athletic/6974157/2026/01/15/clayton-kershaw-world-baseball-classic-team-usa-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6974228/2026/01/15/louisville-vs-notre-dame-stream-
 **How to watch Illinois vs. Michigan women's basketball: Time, TV, streaming**\
 `Find out how to watch the Illinois Fighting Illini play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6974226/2026/01/15/illinois-vs-michigan-stream-how-to-watch-jan-15/
-
-**How to watch Florida vs. Kentucky women's basketball: Time, TV, streaming**\
-`Find out how to watch the Florida Gators play the Kentucky Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6974222/2026/01/15/florida-vs-kentucky-stream-how-to-watch-jan-15/
 
