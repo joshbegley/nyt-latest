@@ -1,3 +1,23 @@
+**Maps: 3.1-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/01/15/us/earthquake-san-francisco-bay-area.html
+
+**Under Trump, a Shift Toward ‘Absolute Immunity’ for ICE**\
+`Since the fatal shooting of Renee Good in Minneapolis, administration officials have defended the use of deadly force, which agency guidelines say should be a last resort.`\
+https://nytimes.com/2026/01/15/us/politics/trump-ice-immunity.html
+
+**Here’s the latest.**\
+`By Mitch Smith, Nicholas Bogel-Burroughs and Shaila Dewan`\
+https://nytimes.com/live/2026/01/15/us/minneapolis-shooting-ice/heres-the-latest
+
+**Live Updates: Trump Threatens Insurrection Act to Quash Minneapolis Protests**\
+`The president has repeatedly spoken of invoking the 1807 law to end demonstrations against his immigration crackdown. Tensions rose in Minneapolis after another shooting by federal agents.`\
+https://nytimes.com/live/2026/01/15/us/minneapolis-shooting-ice
+
+**Trump se reunirá con la líder opositora de Venezuela, María Corina Machado**\
+`Está previsto que la dirigente venezolana almuerce con el mandatario estadounidense el jueves. Ha ofrecido entregarle a Trump el Nobel que recibió en diciembre.`\
+https://nytimes.com/live/2026/01/15/espanol/trump-venezuela-machado
+
 **Does Arsene Wenger really get football?**\
 `Wenger's offside proposals reinforce the fear that as FIFA's chief of global football development he might be doing more harm than good`\
 https://nytimes.com/athletic/6973850/2026/01/15/arsene-wenger-offside-proposals-fifa/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/15/t-magazine/bali-hotel-magia-de-uma.html
 **The Windup: Boston adds another big arm**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6973442/2026/01/15/ranger-suarez-boston-the-windup/
-
-**Feds charge 20 men with alleged conspiracy to manipulate college basketball games**\
-`The scheme, according to federal prosecutors, involved two men indicted this fall for their alleged role in an NBA gambling scheme.`\
-https://nytimes.com/athletic/6973903/2026/01/15/ncaa-college-basketball-gambling-investigation-charges/
-
-**Greg Biffle's home broken into weeks after deadly plane crash**\
-`Thirty-thousand dollars in cash and a backpack were stolen, along with some guns and memorabilia, according to multiple reports.`\
-https://nytimes.com/athletic/6973929/2026/01/15/greg-biffle-nascar-home-burglary/
-
-**Abolish ICE? It’s a Slogan Some Democratic Critics of ICE Would Abolish.**\
-`As Democrats grow more alarmed about the Trump administration’s aggressive immigration raids in American cities, some worry that calls to eliminate the agency will distract from efforts to rein it in.`\
-https://nytimes.com/2026/01/15/us/politics/democrats-abolish-ice-slogan.html
-
-**Why Trump Always Thanks You ‘For Your Attention to This Matter’**\
-`How a simple catchphrase sums up the president’s theory of executive power.`\
-https://nytimes.com/2026/01/15/books/review/trump-thank-you-for-your-attention-to-this-matter.html
-
-**Rosenior holds player meeting as Chelsea aim to contain virus outbreak**\
-`Liam Delap and Jamie Gittens missed the Carabao Cup semi-final first leg defeat to Arsenal on Wednesday night due to illness.`\
-https://nytimes.com/athletic/6973928/2026/01/15/liam-rosenior-chelsea-virus/
 
