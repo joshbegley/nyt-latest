@@ -1,40 +1,40 @@
+**How to watch Thunder vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Oklahoma City Thunder play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6975036/2026/01/15/thunder-vs-rockets-stream-how-to-watch-jan-15/
+
+**How to watch Knicks vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6975028/2026/01/15/knicks-vs-warriors-stream-how-to-watch-jan-15/
+
+**How to watch Stars vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6975015/2026/01/15/stars-vs-mammoth-stream-how-to-watch-jan-15/
+
+**How to watch Celtics vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6975013/2026/01/15/celtics-vs-heat-stream-how-to-watch-jan-15/
+
+**How to watch Hawks vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6975008/2026/01/15/hawks-vs-trail-blazers-stream-how-to-watch-jan-15/
+
+**How to watch Flames vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6975005/2026/01/15/flames-vs-blackhawks-stream-how-to-watch-jan-15/
+
+**How to watch Maryland vs. USC women's basketball: Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6975003/2026/01/15/maryland-vs-usc-stream-how-to-watch-jan-15/
+
+**None of Mamdani’s Deputy Mayors Are Black. It Has Become a Problem.**\
+`Some Black and Latino leaders worry they are being denied access to power under Mayor Zohran Mamdani and that they may lose the ground they had gained under former Mayor Eric Adams.`\
+https://nytimes.com/2026/01/15/nyregion/mamdani-black-latino-diversity.html
+
+**How to watch Alabama vs. Auburn women's basketball: Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the Auburn Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6974997/2026/01/15/alabama-vs-auburn-stream-how-to-watch-jan-15/
+
 **How to watch Oregon vs. Iowa women's basketball: Time, TV, streaming**\
 `Find out how to watch the Oregon Ducks play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6974994/2026/01/15/oregon-vs-iowa-stream-how-to-watch-jan-15/
-
-**How to watch Gonzaga vs. Washington State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Gonzaga Bulldogs play the Washington State Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6974992/2026/01/15/gonzaga-vs-washington-state-stream-how-to-watch-jan-15/
-
-**Peak newsletter: An NFL player breaks down his goal sheet for the 2025 season**\
-`In this week's edition of the Peak newsletter, Miami Dolphins fullback Alec Ingold breaks down how he put together his 2025 goal sheet.`\
-https://nytimes.com/athletic/6974400/2026/01/15/alec-ingold-nfl-dolphins-goals-2025/
-
-**State and Federal Lawmakers Want Data Centers to Pay More for Energy**\
-`Many proposals have been introduced, but there is little consensus among governors, Congress members and tech executives about exactly how much the companies behind data centers should pay for electricity.`\
-https://nytimes.com/2026/01/15/business/energy-environment/data-center-energy-electricity-costs.html
-
-**NBA's new European league gains momentum, but not without a fight**\
-`Europe’s most prestigious basketball league isn’t going to let the NBA and FIBA stand up a new league without a fight.`\
-https://nytimes.com/athletic/6974590/2026/01/15/adam-silver-nba-europe-league-fight/
-
-**What John Harbaugh, Todd Monken might mean for Giants’ fantasy studs**\
-`Jess Bryant details the Giants' skill-position players' fantasy prospects following news of John Harbaugh and Todd Monken hires. `\
-https://nytimes.com/athletic/6974629/2026/01/15/john-harbaugh-todd-monken-fantasy-football-giants-outlook-2026/
-
-**Did a Supreme Court Loss Embolden Trump on the Insurrection Act?**\
-`In refusing to let the president deploy National Guard troops in Illinois under an obscure law, the justices may have made him more apt to invoke greater powers.`\
-https://nytimes.com/2026/01/15/us/politics/supreme-court-trump-insurrection-act.html
-
-**Nick Reiner Was in a Mental Health Conservatorship in 2020**\
-`Mr. Reiner, who is accused of killing his parents, was under a yearlong legal arrangement that allows for involuntary psychiatric treatment.`\
-https://nytimes.com/2026/01/15/us/nick-reiner-conservatorship-schizophrenia.html
-
-**6 Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2026/01/15/books/review/new-recommended-books.html
-
-**What’s Going On in This Graph? | Jan. 21, 2026**\
-`How does life expectancy vary by state and country?`\
-https://nytimes.com/2026/01/15/learning/whats-going-on-in-this-graph-jan-21-2026.html
 
