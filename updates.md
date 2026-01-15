@@ -1,3 +1,11 @@
+**Tottenham name CFG's Moersen as new director of football operations**\
+`Moersen is currently on gardening leave from CFG and is due to join Spurs ahead of the summer transfer window.`\
+https://nytimes.com/athletic/6973587/2026/01/15/tottenham-city-football-group-moersen-director/
+
+**Court Vision: Indiana's big what-if, best hoops-football coaching combos**\
+`Who makes the midseason all-transfer team? And how Ryan Odom is leading Virginia back to familiar territory.`\
+https://nytimes.com/athletic/6971850/2026/01/15/college-basketball-indiana-coaching-transfers/
+
 **Andy Robertson faces big decision with Liverpool contract expiring**\
 `After losing his place in the starting line-up, the Scotland international must decide if he is happy with a reduced role at Anfield`\
 https://nytimes.com/athletic/6965791/2026/01/15/andy-robertson-liverpool-future-contract/
