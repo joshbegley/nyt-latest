@@ -1,3 +1,7 @@
+**Federal Agent Shoots Immigrant in Minneapolis, Homeland Security Says**\
+`The agent shot a Venezuelan immigrant who was resisting arrest, an official said. The shooting comes a week after an ICE agent fatally shot a woman in the city.`\
+https://nytimes.com/2026/01/14/us/minneapolis-federal-agent-shooting-immigration.html
+
 **Au Pair Testifies of Lurid Plot in Virginia Double-Murder Trial**\
 `Juliana Peres Magalhães wrapped up testimony on Wednesday in the case against Brendan Banfield, her former lover, who is accused of killing his wife and another man.`\
 https://nytimes.com/2026/01/14/us/au-pair-banfield-murder-trial.html
