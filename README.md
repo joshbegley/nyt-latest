@@ -1,10 +1,14 @@
+**Seahawks QB Sam Darnold questionable for showdown vs. 49ers**\
+`Darnold said he will continue to receive treatment and called the odds he might miss the game, "Probably closer to zero."`\
+https://nytimes.com/athletic/6975206/2026/01/15/seahawks-qb-sam-darnold-questionable-49ers-playoffs/
+
 **U.S. Forces Seize Sixth Oil Tanker Linked to Venezuela**\
 `The Coast Guard boarded and seized the Russian-flagged tanker, originally named Veronica, in a pre-dawn operation in the Caribbean Sea.`\
-https://nytimes.com/2026/01/15/us/politics/us-forces-seize-sixth-oil-tanker-linked-to-venezuela.html
+https://nytimes.com/2026/01/15/us/politics/oil-tanker-seized-venezuela.html
 
 **Who will join John Harbaugh's New York Giants staff? 7 candidates for defensive coordinator**\
 `Who will lead Harbaugh's defense in New York? The new head coach should have plenty of options to choose from. `\
-https://nytimes.com/athletic/6974721/2026/01/15/ny-giants-john-harbaugh-defensive-coordinator-candidates/
+https://nytimes.com/athletic/6974721/2026/01/15/ny-giants-john-harbaugh-defensive-coordinator-candidates-jim-leonhard-joe-cullen/
 
 **49ers' Fred Warner will not play vs. Seahawks**\
 `Warner returned to practice Tuesday, just over three months after surgery on his dislocated and fractured right ankle.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/15/us/politics/university-of-arkansas-dean-emily-sus
 **There’s Never Been a Better Time to Eat Chinese Food**\
 `Chains from the East Asian nation are popping up across New York City, bringing with them excellent hot pot, dumplings and mapo tofu.`\
 https://nytimes.com/2026/01/15/dining/chinese-food-nyc.html
-
-**Spurs turned clippers: Wemby, Keldon Johnson shave each other's heads because ... why not?**\
-`“I’ve been looking for a reason to do it,” Johnson said. Now, it's done.`\
-https://nytimes.com/athletic/6974875/2026/01/15/victor-wembanyama-shaved-head-keldon-johnson-spurs/
 
