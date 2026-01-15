@@ -1,3 +1,11 @@
+**The FPL forwards to attack Gameweek 22 and beyond**\
+`The forward template in Fantasy Premier League has seen another significant change in recent weeks — and the route to goals are aplenty`\
+https://nytimes.com/athletic/6968988/2026/01/15/fantasy-premier-league-tips-fpl-gameweek-22/
+
+**How Sesko has found form at Manchester United - and can Carrick help maintain it?**\
+`Darren Fletcher's caretaker spell in charge brought a goalscoring uplift to Sesko, who is beginning to find his feet in English football`\
+https://nytimes.com/athletic/6142059/2026/01/15/carrick-sesko-manchester-united-form/
+
 **Xabi Alonso and Real Madrid felt like a sure thing — but what does it really take to manage the elite?**\
 `The Alonsos, Amorims, Marescas and Roseniors could still be the future. But they’re also a risk`\
 https://nytimes.com/athletic/6969108/2026/01/15/xabi-alonso-real-madrid-management-ancelotti-guardiola/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6966050/2026/01/15/egypt-mohamed-salah-afcon-exit/
 **The next Michael Carrick: Picking a club legend interim for each Premier League team**\
 `Michael Carrick is back at Manchester United in interim charge - but which former player would our writers pick for each team?`\
 https://nytimes.com/athletic/6963811/2026/01/15/premier-league-interim-coach-club-legends/
-
-**Quote of the Day: Greenlanders Shocked, Angry, Confused and, Most of All, Scared**\
-`Quotation of the Day for Thursday, January 15, 2026.`\
-https://nytimes.com/2026/01/15/pageoneplus/quote-of-the-day-greenlanders-shocked-angry-confused-and-most-of-all-scared.html
-
-**Connections: Sports Edition Coach: Hints for Jan. 15, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6973214/2026/01/15/connections-sports-edition-hints-for-jan-15-2026/
 
