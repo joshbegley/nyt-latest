@@ -1,3 +1,19 @@
+**Tracking Tropical Depression Nokaen**\
+`See the likely path and wind arrival times for Nokaen`\
+https://nytimes.com/interactive/2026/01/15/weather/one-map-path-tracker.html
+
+**Israel Watches Iran Protests Closely, But Is Wary of Intervening**\
+`Israel is unlikely to do much to try to precipitate a regime change in Iran, seeing the government as far from the brink of collapse and the current protests as insufficient to push it to that point.`\
+https://nytimes.com/2026/01/15/world/middleeast/israel-iran-protests-netanyahu.html
+
+**A Crane Collapse in Thailand Killed 2, One Day After a Similar Tragedy**\
+`A crane collapsed on an expressway on the outskirts of Bangkok on Thursday, killing at least two people, an official said. It was the second fatal accident involving cranes in the country in two days.`\
+https://nytimes.com/video/world/asia/100000010646667/a-crane-collapse-in-thailand-killed-2-one-day-after-a-similar-tragedy.html
+
+**Tottenham forward Richarlison to miss up to seven weeks with hamstring injury**\
+`The Brazil international was taken off during Tottenham's 2-1 FA Cup third round defeat against Aston Villa on Saturday.`\
+https://nytimes.com/athletic/6974204/2026/01/15/tottenham-richarlison-injury-latest/
+
 **Alicia Keys Says ‘Hell’s Kitchen’ Will End Broadway Run and Open Overseas**\
 `Though the show will close in New York next month, a North American tour will continue, and productions in Australia, Germany and South Korea are planned.`\
 https://nytimes.com/2026/01/15/theater/hells-kitchen-keys-broadway-closing.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6974285/2026/01/15/suns-vs-pistons-stream-how-to-wa
 **How to watch Flyers vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6974283/2026/01/15/flyers-vs-penguins-stream-how-to-watch-jan-15/
-
-**‘We Came Here to Vote’: Ugandans Go to Polls Despite Major Delays**\
-`Technical failures at polling places have caused disruptions, and the opposition has warned of government vote rigging amid an internet blackout.`\
-https://nytimes.com/2026/01/15/world/africa/uganda-election-museveni.html
-
-**Retiring pitcher Clayton Kershaw joins Team USA, hoping to appear in WBC for first time**\
-`This WBC gives Kershaw a chance to pitch in the tournament for the first time.`\
-https://nytimes.com/athletic/6974157/2026/01/15/clayton-kershaw-world-baseball-classic-team-usa-roster/
-
-**How to watch Texas vs. South Carolina women's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Longhorns play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6974244/2026/01/15/texas-vs-south-carolina-stream-how-to-watch-jan-15/
-
-**Iran Denies Intending to Execute Protester After International Outcry**\
-`Iran denied sentencing protester Erfan Soltani, 26, to death. Soltani’s case had drawn intense international attention after his relatives and rights groups had said he would be executed imminently.`\
-https://nytimes.com/video/world/middleeast/100000010646734/iran-protests-erfan-soltani.html
 

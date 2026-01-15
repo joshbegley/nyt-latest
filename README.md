@@ -1,6 +1,6 @@
 **Tracking Tropical Depression Nokaen**\
 `See the likely path and wind arrival times for Nokaen`\
-https://nytimes.com/interactive/2026/01/15/weather/one-map-path-tracker.html
+https://nytimes.com/interactive/2026/01/15/weather/storm-nokaen-tracker.html
 
 **Israel Watches Iran Protests Closely, But Is Wary of Intervening**\
 `Israel is unlikely to do much to try to precipitate a regime change in Iran, seeing the government as far from the brink of collapse and the current protests as insufficient to push it to that point.`\
