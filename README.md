@@ -14,8 +14,8 @@ https://nytimes.com/2026/01/14/nyregion/erik-duran-trial.html
 `With the Suárez signing, the Red Sox are over the $264 million second luxury tax bracket. Will that impact what moves they might make next?`\
 https://nytimes.com/athletic/6971994/2026/01/14/red-sox-ranger-suarez-signing-impact/
 
-**High school senior Adrian Stubbs scores 100 points in three quarters, sets Arizona record**\
-`Stubbs set the Arizona single-game high school scoring record with 100 points, on just six three pointers.`\
+**‘I just kept scoring.’ Arizona HS basketball player scores 100 in 3 quarters**\
+`Stubbs set the Arizona single-game high school scoring record with 100 points, on just six 3-pointers.`\
 https://nytimes.com/athletic/6972254/2026/01/14/high-school-basketball-record-100-points-adrian-stubbs-arizona/
 
 **What Voters Told Democrats About ICE, Costs and Which Party Is ‘Judgy’**\
