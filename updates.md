@@ -1,3 +1,7 @@
+**An Easy Pasta That’s Hearty, Tangy and So Creamy**\
+`Cabbage, sour cream and melty Gruyère star in Melissa Clark’s latest one-pot weeknight dinner.`\
+https://nytimes.com/2026/01/15/dining/one-pot-pasta-cabbage-recipe.html
+
 **Remains of 32 Cubans Killed in U.S. Strikes in Venezuela Are Returned**\
 `State-run television aired a ceremony for the remains of 32 Cuban citizens killed in the U.S. strikes in Venezuela arriving in Havana. The deceased were part of the security detail of Nicolás Maduro, Venezuela’s ousted president.`\
 https://nytimes.com/video/world/americas/100000010647456/cuba-bodies-venezuela.html
