@@ -1,3 +1,15 @@
+**Cracks Begin to Appear at the Nation’s Biggest Banks**\
+`This week, Bank of America, Citi, JPMorgan and Wells Fargo released fraught earnings reports as President Trump’s threatened cap on credit card rates loomed large.`\
+https://nytimes.com/2026/01/15/business/banks-earnings-goldman-sachs-jpmorgan.html
+
+**Citing Secret Plot, U.K. Conservative Party Fires a Senior Lawmaker**\
+`The leader of Britain’s Conservatives, Kemi Badenoch, said she had ousted Robert Jenrick for “plotting in secret” to defect from and damage the party.`\
+https://nytimes.com/2026/01/15/world/europe/uk-robert-jenrick-fired-badenoch-conservatives-reform.html
+
+**Appeals Court Opens the Door to Mahmoud Khalil’s Rearrest**\
+`Any new detention would not come immediately, and Mr. Khalil’s lawyers are almost certain to appeal. But the ruling is a major blow to Mr. Khalil, a Columbia graduate and prominent figure in the pro-Palestinian movement.`\
+https://nytimes.com/2026/01/15/nyregion/mahmoud-khalil-detention.html
+
 **What we're hearing from CFB coaches about the calendar, eligibility and tampering**\
 `The Athletic spoke with more than 50 head coaches, assistants and agents over three days at the coaches convention.`\
 https://nytimes.com/athletic/6973714/2026/01/15/college-football-coaches-calendar-eligibility-transfer-portal/
