@@ -1,3 +1,7 @@
+**Knicks' Jalen Brunson injures right ankle for second time this season**\
+`The All-NBA and All-Star guard injured his right ankle while attempting to dribble, and it turned awkwardly. It was a non-contact injury.`\
+https://nytimes.com/athletic/6973111/2026/01/14/jalen-brunson-right-ankle-injury-knicks-nba/
+
 **Federal Agent Shoots Man in Minneapolis, Homeland Security Says**\
 `The agent shot a Venezuelan man who was resisting arrest, an official said. The shooting comes a week after an ICE agent fatally shot a woman in the city.`\
 https://nytimes.com/2026/01/14/us/minneapolis-federal-agent-shooting-immigration.html

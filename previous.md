@@ -1,3 +1,7 @@
+**Knicks' Jalen Brunson injures right ankle for second time this season**\
+`The All-NBA and All-Star guard injured his right ankle while attempting to dribble, and it turned awkwardly. It was a non-contact injury.`\
+https://nytimes.com/athletic/6973111/2026/01/14/jalen-brunson-right-ankle-injury-knicks-nba/
+
 **Au Pair Testifies of Lurid Plot in Virginia Double-Murder Trial**\
 `Juliana Peres Magalhães wrapped up testimony on Wednesday in the case against Brendan Banfield, her former lover, who is accused of killing his wife and another man.`\
 https://nytimes.com/2026/01/14/us/au-pair-banfield-murder-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/14/crosswords/daily-puzzle-2026-01-15.html
 **With the Alex Bregman era, World Series expectations return to Wrigley Field**\
 `As the Cubs introduce Bregman as third baseman, they'll reintroduce themselves as a big-market franchise with serious ambitions to win.`\
 https://nytimes.com/athletic/6972851/2026/01/14/cubs-alex-bregman-world-series-wrigley-field/
-
-**Commanders to hire D.J. Williams, son of legend Doug Williams, as QBs coach**\
-`Williams will be the primary voice in the ear of quarterback Jayden Daniels as a key member of Washington’s altered offensive staff.`\
-https://nytimes.com/athletic/6972883/2026/01/14/commanders-dj-williams-qbs-coach-doug-williams/
 
