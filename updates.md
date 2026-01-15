@@ -1,3 +1,11 @@
+**How to watch Miami (FL) vs. Indiana: National Championship Start Time, TV, streaming**\
+`Find out how to watch the Miami (FL) Hurricanes play the Indiana Hoosiers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6972789/2026/01/14/how-to-watch-miami-fl-vs-no-1-indiana-national-championship-tv-channel-and-streaming-options-for-january-19/
+
+**After Danish and U.S. Officials Meet on Greenland, Trump Remains Unmoved**\
+`Denmark’s foreign minister left the White House complex saying that his country had a “fundamental disagreement” with President Trump, as several NATO countries sent troops to Greenland.`\
+https://nytimes.com/2026/01/14/us/politics/greenland-trump-denmark.html
+
 **Steelers coaching search tracker: The first interview requests are in**\
 `Brian Flores, Jesse Minter, Anthony Weaver and a pair of Rams assistants are among the first candidates set up for interviews.`\
 https://nytimes.com/athletic/6972698/2026/01/14/steelers-coaching-search-tracker/
