@@ -1,3 +1,11 @@
+**NBA's new European league gains momentum, but not without a fight**\
+`Europe’s most prestigious basketball league isn’t going to let the NBA and FIBA stand up a new league without a fight.`\
+https://nytimes.com/athletic/6974590/2026/01/15/adam-silver-nba-europe-league-fight/
+
+**What John Harbaugh, Todd Monken might mean for Giants’ fantasy studs**\
+`Jess Bryant details the Giants' skill-position players' fantasy prospects following news of John Harbaugh and Todd Monken hires. `\
+https://nytimes.com/athletic/6974629/2026/01/15/john-harbaugh-todd-monken-fantasy-football-giants-outlook-2026/
+
 **Did a Supreme Court Loss Embolden Trump on the Insurrection Act?**\
 `In refusing to let the president deploy National Guard troops in Illinois under an obscure law, the justices may have made him more apt to invoke greater powers.`\
 https://nytimes.com/2026/01/15/us/politics/supreme-court-trump-insurrection-act.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/15/nyregion/nydia-velazquez-antonio-reynoso-mamdani.
 **The Sounds of Antarctica? Flying in the Cold? Your Questions, Answered**\
 `Is it hard to fly a helicopter in the Antarctic cold? What do penguins sound like? How about the instruments designed to test the waters below the Thwaites Glacier? Our climate reporter Raymond Zhong finds some answers to viewer questions.`\
 https://nytimes.com/video/climate/100000010639672/the-sounds-of-antarctica-flying-in-the-cold-your-questions-answered.html
-
-**What we're hearing about Josh Sargent's Norwich transfer saga**\
-`The American forward wants out of his Championship club, and he has an eager MLS suitor, but it might not be that simple`\
-https://nytimes.com/athletic/6965964/2026/01/15/josh-sargent-transfer-saga-norwich-city-toronto-fc-mls/
-
-**Verizon Offers $20 Credit to Users Affected by Outage**\
-`A company spokeswoman said “a software issue” was to blame for the widespread outage that disrupted service across the United States on Wednesday.`\
-https://nytimes.com/2026/01/15/us/verizon-outage-issues-credit.html
 

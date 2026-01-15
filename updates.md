@@ -1,3 +1,11 @@
+**NBA's new European league gains momentum, but not without a fight**\
+`Europe’s most prestigious basketball league isn’t going to let the NBA and FIBA stand up a new league without a fight.`\
+https://nytimes.com/athletic/6974590/2026/01/15/adam-silver-nba-europe-league-fight/
+
+**What John Harbaugh, Todd Monken might mean for Giants’ fantasy studs**\
+`Jess Bryant details the Giants' skill-position players' fantasy prospects following news of John Harbaugh and Todd Monken hires. `\
+https://nytimes.com/athletic/6974629/2026/01/15/john-harbaugh-todd-monken-fantasy-football-giants-outlook-2026/
+
 **Did a Supreme Court Loss Embolden Trump on the Insurrection Act?**\
 `In refusing to let the president deploy National Guard troops in Illinois under an obscure law, the justices may have made him more apt to invoke greater powers.`\
 https://nytimes.com/2026/01/15/us/politics/supreme-court-trump-insurrection-act.html
