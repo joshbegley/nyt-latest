@@ -1,3 +1,11 @@
+**Alexander Brothers Accuser Was Found Dead Last Year, Authorities Say**\
+`The death of Kate Whiteman, whose accusation of sexual assault against Oren and Alon Alexander opened a floodgate of similar allegations, is under investigation.`\
+https://nytimes.com/2026/01/15/nyregion/kate-whiteman-alexander-brothers.html
+
+**Giants, Mets among teams with notable signings as new MLB international signing period begins**\
+`Luis Hernández, signed by the Giants for $5 million, is considered the top prospect in this year's class.`\
+https://nytimes.com/athletic/6974242/2026/01/15/mlb-international-signing-period-2026/
+
 **N.F.L. Playoff Predictions: Vibes Only**\
 `On this week’s episode of “The Athletic Show,” the hosts Robert Mays, Zena Keita, and Jason Goff are joined by Madeline Hill and Charlotte Wilder of “The Sports Gossip Show” to ditch the analytics and rank N.F.L. playoff contenders based only on their “vibes.”`\
 https://nytimes.com/video/the-athletic/100000010647045/nfl-playoff-predictions-vibes-only.html
