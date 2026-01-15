@@ -1,3 +1,15 @@
+**Road-weary Rockets face crucial homestand against West’s elite after recent slump**\
+`Houston's homestand will provide an even more detailed picture of where the Rockets stand among the elite in the West.`\
+https://nytimes.com/athletic/6973492/2026/01/15/rockets-jabari-smith-thunder-homestand/
+
+**A Crypto Revolt Against a Crypto Bill**\
+`Legislation to establish a regulatory framework for digital tokens has been thrown into turmoil — by one of its biggest champions.`\
+https://nytimes.com/2026/01/15/business/dealbook/crypto-bill-coinbase.html
+
+**How to watch Grizzlies vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6973766/2026/01/15/grizzlies-vs-magic-stream-how-to-watch-jan-15/
+
 **Four Astronauts Splash Down on Earth After Early Return**\
 `Two American astronauts and others from Japan and Russia landed in the Pacific Ocean after an early journey home from the International Space Station because one of them was ill.`\
 https://nytimes.com/video/science/space/100000010646747/nasa-astronauts-return-iss.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6966386/2026/01/15/tj-oshie-blues-capitals-olympics
 **Would You Wear Balenciaga at the Gym?**\
 `In Pierpaolo Piccioli’s second collection, he stretches the label into some new shapes.`\
 https://nytimes.com/2026/01/15/style/balenciaga-pierpaolo-piccioli-fall-gym.html
-
-**After an Inconclusive Meeting, Greenlanders Ask: Now What?**\
-`A high-powered meeting in Washington on Wednesday ended in an impasse, leaving Greenlanders fearful of what comes next.`\
-https://nytimes.com/2026/01/15/world/europe/trump-greenland-denmark-meeting.html
-
-**Will Michael Pittman Jr. be back in 2026? Can Daniel Jones stay healthy? Colts mailbag**\
-`Pittman basically admitted after the Colts’ regular-season finale that he may have played his last game for the franchise. `\
-https://nytimes.com/athletic/6971286/2026/01/15/colts-daniel-jones-michael-pittman-alec-pierce-chris-ballard/
-
-**Trump Administration Live Updates: President to Meet With Venezuela’s Opposition Leader**\
-``\
-https://nytimes.com/live/2026/01/15/us/trump-news
 

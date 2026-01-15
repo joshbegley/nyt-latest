@@ -1,3 +1,15 @@
+**Road-weary Rockets face crucial homestand against West’s elite after recent slump**\
+`Houston's homestand will provide an even more detailed picture of where the Rockets stand among the elite in the West.`\
+https://nytimes.com/athletic/6973492/2026/01/15/rockets-jabari-smith-thunder-homestand/
+
+**A Crypto Revolt Against a Crypto Bill**\
+`Legislation to establish a regulatory framework for digital tokens has been thrown into turmoil — by one of its biggest champions.`\
+https://nytimes.com/2026/01/15/business/dealbook/crypto-bill-coinbase.html
+
+**How to watch Grizzlies vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6973766/2026/01/15/grizzlies-vs-magic-stream-how-to-watch-jan-15/
+
 **Four Astronauts Splash Down on Earth After Early Return**\
 `Two American astronauts and others from Japan and Russia landed in the Pacific Ocean after an early journey home from the International Space Station because one of them was ill.`\
 https://nytimes.com/video/science/space/100000010646747/nasa-astronauts-return-iss.html
