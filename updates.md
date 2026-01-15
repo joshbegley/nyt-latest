@@ -1,3 +1,7 @@
+**A White House Meeting Leaves Trump and Denmark at Odds Over Greenland**\
+`Denmark’s foreign minister left the White House saying that his country had a “fundamental disagreement” with President Trump, as several NATO countries sent troops to Greenland.`\
+https://nytimes.com/2026/01/14/us/politics/greenland-trump-denmark.html
+
 **A pond for Ponds: Bloomington names body of water after Indiana CB**\
 `The city of Bloomington has temporarily renamed a local pond “D’Angelo’s Pond” in honor of the Indiana cornerback.`\
 https://nytimes.com/athletic/6972274/2026/01/14/dangelo-ponds-indiana-cornerback-bloomington-pond/
