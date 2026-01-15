@@ -1,3 +1,15 @@
+**Who will join John Harbaugh's New York Giants staff? 7 candidates for defensive coordinator**\
+`Who will lead Harbaugh's defense in New York? The new head coach should have plenty of options to choose from. `\
+https://nytimes.com/athletic/6974721/2026/01/15/ny-giants-john-harbaugh-defensive-coordinator-candidates/
+
+**49ers' Fred Warner will not play vs. Seahawks**\
+`Warner returned to practice Tuesday, just over three months after surgery on his dislocated and fractured right ankle.`\
+https://nytimes.com/athletic/6972209/2026/01/15/fred-warner-injury-49ers-seahawks-out/
+
+**Pentagon Will ‘Refocus’ Military Publication Stars and Stripes**\
+`The agency’s chief spokesman outlined plans to intervene in the previously independent newspaper’s coverage to ensure it reflects official department messaging.`\
+https://nytimes.com/2026/01/15/us/politics/stars-and-stripes-pentagon.html
+
 **Pentagon Will ‘Refocus’ Military Publication Stars and Stripes**\
 `The agency’s chief spokesman outlined plans to intervene in the previously independent newspaper’s coverage to ensure it reflects official department messaging.`\
 https://nytimes.com/2026/01/15/us/politics/pentagon-will-refocus-military-publication-stars-and-stripes.html

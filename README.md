@@ -1,3 +1,7 @@
+**U.S. Forces Seize Sixth Oil Tanker Linked to Venezuela**\
+`The Coast Guard boarded and seized the Russian-flagged tanker, originally named Veronica, in a pre-dawn operation in the Caribbean Sea.`\
+https://nytimes.com/2026/01/15/us/politics/us-forces-seize-sixth-oil-tanker-linked-to-venezuela.html
+
 **Who will join John Harbaugh's New York Giants staff? 7 candidates for defensive coordinator**\
 `Who will lead Harbaugh's defense in New York? The new head coach should have plenty of options to choose from. `\
 https://nytimes.com/athletic/6974721/2026/01/15/ny-giants-john-harbaugh-defensive-coordinator-candidates/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/15/dining/chinese-food-nyc.html
 **Spurs turned clippers: Wemby, Keldon Johnson shave each other's heads because ... why not?**\
 `“I’ve been looking for a reason to do it,” Johnson said. Now, it's done.`\
 https://nytimes.com/athletic/6974875/2026/01/15/victor-wembanyama-shaved-head-keldon-johnson-spurs/
-
-**Leonard D. Jacoby, 83, Dies; Brought Legal Services to the Masses**\
-`He and Steven Z. Meyers opened their first low-cost legal clinic in 1972. Within a decade, they had revolutionized the legal industry.`\
-https://nytimes.com/2026/01/15/business/leonard-d-jacoby-dead.html
 

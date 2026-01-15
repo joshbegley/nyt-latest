@@ -1,6 +1,14 @@
+**Who will join John Harbaugh's New York Giants staff? 7 candidates for defensive coordinator**\
+`Who will lead Harbaugh's defense in New York? The new head coach should have plenty of options to choose from. `\
+https://nytimes.com/athletic/6974721/2026/01/15/ny-giants-john-harbaugh-defensive-coordinator-candidates/
+
+**49ers' Fred Warner will not play vs. Seahawks**\
+`Warner returned to practice Tuesday, just over three months after surgery on his dislocated and fractured right ankle.`\
+https://nytimes.com/athletic/6972209/2026/01/15/fred-warner-injury-49ers-seahawks-out/
+
 **Pentagon Will ‘Refocus’ Military Publication Stars and Stripes**\
 `The agency’s chief spokesman outlined plans to intervene in the previously independent newspaper’s coverage to ensure it reflects official department messaging.`\
-https://nytimes.com/2026/01/15/us/politics/pentagon-will-refocus-military-publication-stars-and-stripes.html
+https://nytimes.com/2026/01/15/us/politics/stars-and-stripes-pentagon.html
 
 **A Healthy Brain**\
 `Even when so much is happening in the world, it’s important to take care of your brain health. Our Well desk shares tips.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6974875/2026/01/15/victor-wembanyama-shaved-head-ke
 **Leonard D. Jacoby, 83, Dies; Brought Legal Services to the Masses**\
 `He and Steven Z. Meyers opened their first low-cost legal clinic in 1972. Within a decade, they had revolutionized the legal industry.`\
 https://nytimes.com/2026/01/15/business/leonard-d-jacoby-dead.html
-
-**Hesitant to Visit the U.S. for the World Cup? We Want to Hear From You.**\
-`International soccer fans face hurdles like travel bans, long visa delays and high ticket prices for U.S. matches. Will they be enough to keep you away?`\
-https://nytimes.com/2026/01/15/travel/world-cup-2026-fans.html
-
-**Minneapolis Schools Allow Students to Learn Online Amid ICE Fears**\
-`As immigration agents and protests lead some families to keep children home, schools around the Twin Cities are offering a remote option for the next several weeks.`\
-https://nytimes.com/2026/01/15/us/minneapolis-schools-online-learning-ice.html
 
