@@ -1,8 +1,24 @@
+**After an Inconclusive Meeting, Greenlanders Ask: Now What?**\
+`A high-powered meeting in Washington on Wednesday ended in an impasse, leaving Greenlanders fearful of what comes next.`\
+https://nytimes.com/2026/01/15/world/europe/trump-greenland-denmark-meeting.html
+
+**Will Michael Pittman Jr. be back in 2026? Can Daniel Jones stay healthy? Colts mailbag**\
+`Pittman basically admitted after the Colts’ regular-season finale that he may have played his last game for the franchise. `\
+https://nytimes.com/athletic/6971286/2026/01/15/colts-daniel-jones-michael-pittman-alec-pierce-chris-ballard/
+
+**Trump Administration Live Updates: President to Meet With Venezuela’s Opposition Leader**\
+``\
+https://nytimes.com/live/2026/01/15/us/trump-news
+
+**Is It OK to Alter Photos of Yourself to Look Better Online?**\
+`What are your thoughts on using photo editing tools, filters and artificial intelligence image generators to improve your appearance?`\
+https://nytimes.com/2026/01/15/learning/is-it-ok-to-alter-photos-of-yourself-to-look-better-online.html
+
 **Iran Says Protester Was Not Sentenced to Death After International Outcry**\
 `The judiciary said that Erfan Soltani would not be executed, Iranian state media reported. His case has drawn attention to the fate of the arrested demonstrators.`\
 https://nytimes.com/2026/01/15/world/middleeast/iran-protests-erfan-soltani-execution.html
 
-**Leeds close to completing Buonanotte loan from Brighton**\
+**Leeds close to completing Buonanotte loan from Brighton after Chelsea stay ended**\
 `The proposed deal would see the attacking midfielder's Chelsea loan ended early to allow his move to Elland Road.`\
 https://nytimes.com/athletic/6973619/2026/01/15/facundo-buonanotte-leeds-chelsea-loan/
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6971850/2026/01/15/college-basketball-indiana-coach
 **Andy Robertson faces big decision with Liverpool contract expiring**\
 `After losing his place in the starting line-up, the Scotland international must decide if he is happy with a reduced role at Anfield`\
 https://nytimes.com/athletic/6965791/2026/01/15/andy-robertson-liverpool-future-contract/
-
-**Kyle Tucker is a game-changing bat. Don't expect another in free agency anytime soon**\
-`Beyond Tucker, there's a drop among available free-agent outfielders.`\
-https://nytimes.com/athletic/6973104/2026/01/15/mets-kyle-tucker-bat-free-agency/
-
-**Penguins-Flyers rivalry returns to hostile roots amid crowded playoff race**\
-`The Penguins are still annoyed with Trevor Zegras as Penguins-Flyers Round 3 is upon us.`\
-https://nytimes.com/athletic/6970860/2026/01/15/penguins-flyers-rivalry-trevor-zegras-nhl/
-
-**Mitch Marner expects ‘excitement, nerves' facing Maple Leafs for first time**\
-`Marner's first game against the Leafs comes a week before his return to Toronto as a Vegas player.`\
-https://nytimes.com/athletic/6970759/2026/01/15/mitch-marner-vegas-maple-leafs-anticipation/
-
-**Getting to know forward Oliver Moore: Sizzling speed and family memoirs**\
-`The 20-year-old discusses his grandfather's book, his favorite sport outside of hockey and experiencing the World Juniors from the outside.`\
-https://nytimes.com/athletic/6971355/2026/01/15/blackhawks-oliver-moore-skating-world-juniors/
 
