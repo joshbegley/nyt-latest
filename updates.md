@@ -1,3 +1,11 @@
+**Giants preparing to hire John Harbaugh as head coach: Source**\
+`Harbaugh has amassed 180 wins as a head coach, the 14th-most in NFL history.`\
+https://nytimes.com/athletic/6966896/2026/01/15/john-harbaugh-hired-giants-head-coach/
+
+**Crane Collapses on Expressway Outside Bangkok, Killing at Least 2**\
+`The deadly episode came a day after a crane fell on a moving train in northeastern Thailand, killing at least 32 people.`\
+https://nytimes.com/2026/01/15/world/asia/thailand-crane-expressway-rama2.html
+
 **The FPL forwards to attack Gameweek 22 and beyond**\
 `The forward template in Fantasy Premier League has seen another significant change in recent weeks — and the route to goals are aplenty`\
 https://nytimes.com/athletic/6968988/2026/01/15/fantasy-premier-league-tips-fpl-gameweek-22/
