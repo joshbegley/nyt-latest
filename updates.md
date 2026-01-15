@@ -1,3 +1,7 @@
+**Federal Agent Shoots Man in Minneapolis, Homeland Security Says**\
+`The agent shot a Venezuelan man who was resisting arrest, an official said. The shooting comes a week after an ICE agent fatally shot a woman in the city.`\
+https://nytimes.com/2026/01/14/us/minneapolis-federal-agent-shooting-immigration.html
+
 **Federal Agent Shoots Immigrant in Minneapolis, Homeland Security Says**\
 `The agent shot a Venezuelan immigrant who was resisting arrest, an official said. The shooting comes a week after an ICE agent fatally shot a woman in the city.`\
 https://nytimes.com/2026/01/14/us/minneapolis-federal-agent-shooting-immigration.html

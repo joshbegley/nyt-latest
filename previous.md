@@ -22,8 +22,8 @@ https://nytimes.com/2026/01/14/us/venezuelan-immigrants-appeal-tps-ruling.html
 `Ledecky was less than three seconds off her world record from 2018, sending a message as the buildup to the 2028 Olympics begins.`\
 https://nytimes.com/athletic/6972887/2026/01/14/katie-ledecky-1500-meter-freestyle-second-fastest-olympics/
 
-**Federal Agent Shoots Immigrant in Minneapolis, Homeland Security Says**\
-`The agent shot a Venezuelan immigrant who was resisting arrest, an official said. The shooting comes a week after an ICE agent fatally shot a woman in the city.`\
+**Federal Agent Shoots Man in Minneapolis, Homeland Security Says**\
+`The agent shot a Venezuelan man who was resisting arrest, an official said. The shooting comes a week after an ICE agent fatally shot a woman in the city.`\
 https://nytimes.com/2026/01/14/us/minneapolis-federal-agent-shooting-immigration.html
 
 **Visible Sign of Hard Work**\
