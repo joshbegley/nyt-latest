@@ -1,3 +1,11 @@
+**What we're hearing from CFB coaches about the calendar, eligibility and tampering**\
+`The Athletic spoke with more than 50 head coaches, assistants and agents over three days at the coaches convention.`\
+https://nytimes.com/athletic/6973714/2026/01/15/college-football-coaches-calendar-eligibility-transfer-portal/
+
+**Where will the Falcons turn for a head coach with John Harbaugh headed to the Giants?**\
+`With Harbaugh seemingly off the market, the Falcons appear likely to reopen their coaching search and continue interviewing candidates.`\
+https://nytimes.com/athletic/6972424/2026/01/15/falcons-coaching-search-john-harbaugh-kevin-stefanski/
+
 **Heitinga joins Spurs as assistant first-team coach**\
 `The 42-year-old previously held the position at West Ham United and Liverpool, prior to his appointment as Ajax head coach last summer.`\
 https://nytimes.com/athletic/6973841/2026/01/15/tottenham-coach-johnny-heitinga/

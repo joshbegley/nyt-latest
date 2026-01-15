@@ -1,3 +1,15 @@
+**Cracks Begin to Appear at the Nation’s Biggest Banks**\
+`This week, Bank of America, Citi, JPMorgan and Wells Fargo released fraught earnings reports as President Trump’s threatened cap on credit card rates loomed large.`\
+https://nytimes.com/2026/01/15/business/banks-earnings-goldman-sachs-jpmorgan.html
+
+**Citing Secret Plot, U.K. Conservative Party Fires a Senior Lawmaker**\
+`The leader of Britain’s Conservatives, Kemi Badenoch, said she had ousted Robert Jenrick for “plotting in secret” to defect from and damage the party.`\
+https://nytimes.com/2026/01/15/world/europe/uk-robert-jenrick-fired-badenoch-conservatives-reform.html
+
+**Appeals Court Opens the Door to Mahmoud Khalil’s Rearrest**\
+`Any new detention would not come immediately, and Mr. Khalil’s lawyers are almost certain to appeal. But the ruling is a major blow to Mr. Khalil, a Columbia graduate and prominent figure in the pro-Palestinian movement.`\
+https://nytimes.com/2026/01/15/nyregion/mahmoud-khalil-detention.html
+
 **What we're hearing from CFB coaches about the calendar, eligibility and tampering**\
 `The Athletic spoke with more than 50 head coaches, assistants and agents over three days at the coaches convention.`\
 https://nytimes.com/athletic/6973714/2026/01/15/college-football-coaches-calendar-eligibility-transfer-portal/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6973623/2026/01/15/premier-league-matchweek-22-leed
 **Ronald Araujo's spiritual journey to deal with anxiety, and how he made his Barcelona return**\
 `The 26-year-old defender returned to action with Barcelona on Sunday after a period of absence in which he visited Christian holy sites`\
 https://nytimes.com/athletic/6973632/2026/01/15/ronald-araujo-anxiety-barcelona-supercopa-return/
-
-**Mamdani’s Consumer Protection Commissioner Vows More Aggressive Action**\
-`“I want to be very public that there’s a new cop on the beat,” said Samuel Levine, the new commissioner of New York City’s Department of Consumer and Worker Protection.`\
-https://nytimes.com/2026/01/15/nyregion/nyc-motoclick-delivery-workers-lawsuit.html
-
-**Elon Musk’s X Restricts Ability to Create Explicit Images With Grok**\
-`Bowing to pressure, the company said it would restrict X users from generating explicit images of real people in jurisdictions where such content is illegal.`\
-https://nytimes.com/2026/01/15/business/grok-ai-images-x.html
-
-**Road-weary Rockets face crucial homestand against West’s elite after recent slump**\
-`Houston's homestand will provide an even more detailed picture of where the Rockets stand among the elite in the West.`\
-https://nytimes.com/athletic/6973492/2026/01/15/rockets-jabari-smith-thunder-homestand/
 

@@ -1,3 +1,11 @@
+**What we're hearing from CFB coaches about the calendar, eligibility and tampering**\
+`The Athletic spoke with more than 50 head coaches, assistants and agents over three days at the coaches convention.`\
+https://nytimes.com/athletic/6973714/2026/01/15/college-football-coaches-calendar-eligibility-transfer-portal/
+
+**Where will the Falcons turn for a head coach with John Harbaugh headed to the Giants?**\
+`With Harbaugh seemingly off the market, the Falcons appear likely to reopen their coaching search and continue interviewing candidates.`\
+https://nytimes.com/athletic/6972424/2026/01/15/falcons-coaching-search-john-harbaugh-kevin-stefanski/
+
 **Heitinga joins Spurs as assistant first-team coach**\
 `The 42-year-old previously held the position at West Ham United and Liverpool, prior to his appointment as Ajax head coach last summer.`\
 https://nytimes.com/athletic/6973841/2026/01/15/tottenham-coach-johnny-heitinga/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/15/business/grok-ai-images-x.html
 **Road-weary Rockets face crucial homestand against West’s elite after recent slump**\
 `Houston's homestand will provide an even more detailed picture of where the Rockets stand among the elite in the West.`\
 https://nytimes.com/athletic/6973492/2026/01/15/rockets-jabari-smith-thunder-homestand/
-
-**A Crypto Revolt Against a Crypto Bill**\
-`Legislation to establish a regulatory framework for digital tokens has been thrown into turmoil — by one of its biggest champions.`\
-https://nytimes.com/2026/01/15/business/dealbook/crypto-bill-coinbase.html
-
-**How to watch Grizzlies vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6973766/2026/01/15/grizzlies-vs-magic-stream-how-to-watch-jan-15/
 
