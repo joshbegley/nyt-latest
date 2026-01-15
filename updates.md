@@ -1,3 +1,15 @@
+**Iran Says Protester Was Not Sentenced to Death After International Outcry**\
+`The judiciary said that Erfan Soltani would not be executed, Iranian state media reported. His case has drawn attention to the fate of the arrested demonstrators.`\
+https://nytimes.com/2026/01/15/world/middleeast/iran-protests-erfan-soltani-execution.html
+
+**Leeds close to completing Buonanotte loan from Brighton**\
+`The proposed deal would see the attacking midfielder's Chelsea loan ended early to allow his move to Elland Road.`\
+https://nytimes.com/athletic/6973619/2026/01/15/facundo-buonanotte-leeds-chelsea-loan/
+
+**‘Squished Between Chairs’ on a Train: How Some Passengers Survived a Crane Collapse**\
+`Some travelers were able to squeeze out of mangled cars and others were rescued by residents, after the accident in northeastern Thailand. Dozens did not survive.`\
+https://nytimes.com/2026/01/15/world/asia/thailand-train-crane-survivors.html
+
 **Tottenham name CFG's Moersen as new director of football operations**\
 `Moersen is currently on gardening leave from CFG and is due to join Spurs ahead of the summer transfer window.`\
 https://nytimes.com/athletic/6973587/2026/01/15/tottenham-city-football-group-moersen-director/
