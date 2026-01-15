@@ -1,3 +1,7 @@
+**On Bali, a Hotel Filled With Antiques**\
+`Plus: Rina Sawayama’s beauty essentials, a whimsical Dutch oven and more recommendations from T Magazine.`\
+https://nytimes.com/2026/01/15/t-magazine/bali-hotel-magia-de-uma.html
+
 **The Windup: Boston adds another big arm**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6973442/2026/01/15/ranger-suarez-boston-the-windup/

@@ -1,3 +1,7 @@
+**On Bali, a Hotel Filled With Antiques**\
+`Plus: Rina Sawayama’s beauty essentials, a whimsical Dutch oven and more recommendations from T Magazine.`\
+https://nytimes.com/2026/01/15/t-magazine/bali-hotel-magia-de-uma.html
+
 **The Windup: Boston adds another big arm**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6973442/2026/01/15/ranger-suarez-boston-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/15/business/banks-earnings-goldman-sachs-jpmorgan.ht
 **Citing Secret Plot, U.K. Conservative Party Fires a Senior Lawmaker**\
 `The leader of Britain’s Conservatives, Kemi Badenoch, said she had ousted Robert Jenrick for “plotting in secret” to defect from and damage the party.`\
 https://nytimes.com/2026/01/15/world/europe/uk-robert-jenrick-fired-badenoch-conservatives-reform.html
-
-**Appeals Court Opens the Door to Mahmoud Khalil’s Rearrest**\
-`Any new detention would not come immediately, and Mr. Khalil’s lawyers plan to appeal. But the ruling is a major blow to Mr. Khalil, a Columbia graduate and prominent figure in the pro-Palestinian movement.`\
-https://nytimes.com/2026/01/15/nyregion/mahmoud-khalil-detention.html
 
