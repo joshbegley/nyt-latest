@@ -1,3 +1,7 @@
+**After multiple signings, the Reds' bullpen is improved, but where’s the offense?**\
+`New signings Pierce Johnson and Caleb Ferguson, along with the re-signed Emilio Pagán help solidify the Reds' 2026 bullpen.`\
+https://nytimes.com/athletic/6975205/2026/01/15/cincinnati-reds-pierce-johnson-bullpen-improvement/
+
 **Florida Panthers visit President Trump at White House to celebrate 2025 Stanley Cup win**\
 `The Panthers visited the White House for a second consecutive year.`\
 https://nytimes.com/athletic/6975067/2026/01/15/trump-white-house-florida-panthers-stanley-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/15/briefing/trump-insurrection-act-longevity-sports.
 **Romeo Santos Reminisces About His Drake Shoutout**\
 `Romeo Santos sat down on the “Popcast” couch and recalled when Drake referenced Aventura on “The Motto” and the collaboration that followed.`\
 https://nytimes.com/video/podcasts/100000010642792/romeo-santos-reminisces-about-his-drake-shoutout.html
-
-**New York Sues Former C.E.O. of Covid Vaccine Maker Over Insider Trading**\
-`Robert G. Kramer sold nearly 90,000 shares of his stock in Emergent BioSolutions, knowing that large quantities of vaccine materials were contaminated, the lawsuit said.`\
-https://nytimes.com/2026/01/15/us/emergent-biosolutions-ceo-insider-trading-covid-vaccine.html
 
