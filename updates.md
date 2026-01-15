@@ -1,3 +1,11 @@
+**The FPL forwards to attack Gameweek 22 and beyond**\
+`The forward template in Fantasy Premier League has seen another significant change in recent weeks — and the route to goals are aplenty`\
+https://nytimes.com/athletic/6968988/2026/01/15/fantasy-premier-league-tips-fpl-gameweek-22/
+
+**How Sesko has found form at Manchester United - and can Carrick help maintain it?**\
+`Darren Fletcher's caretaker spell in charge brought a goalscoring uplift to Sesko, who is beginning to find his feet in English football`\
+https://nytimes.com/athletic/6142059/2026/01/15/carrick-sesko-manchester-united-form/
+
 **Xabi Alonso and Real Madrid felt like a sure thing — but what does it really take to manage the elite?**\
 `The Alonsos, Amorims, Marescas and Roseniors could still be the future. But they’re also a risk`\
 https://nytimes.com/athletic/6969108/2026/01/15/xabi-alonso-real-madrid-management-ancelotti-guardiola/
