@@ -1,40 +1,40 @@
-**Who is left on the International Space Station?**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/who-is-left-on-the-international-space-station
+**Something Is Rotten in the State of America**\
+`This is the thanks Demark gets?`\
+https://nytimes.com/2026/01/15/opinion/denmark-greenland-iraq-trump-vance.html
 
-**Cameroon's Eto’o banned for misconduct in AFCON loss to Morocco**\
-`CAF found the Cameroon Football Federation president guilty of "violating the principles of sportsmanship".`\
-https://nytimes.com/athletic/6973469/2026/01/15/samuel-etoo-ban-cameroon-afcon/
+**The Gaudy, Nasty Fictions of Donald J. Trump**\
+`This is neither law nor order, and the consequences can be deadly.`\
+https://nytimes.com/2026/01/15/opinion/trump-renee-good-rubio-greenland.html
 
-**Must-See Moments From the N.B.A.**\
-`Jamal Murray’s big performance for the Denver Nuggets was one highlight of a busy night around the league.`\
-https://nytimes.com/video/sports/basketball/100000010646528/must-see-moments-from-the-nba.html
+**They Left Their Empty Nest for a Fresh Start in Helena, Montana**\
+`After their daughters left for college, a couple looked to trade their suburban lifestyle for a new house near Helena’s central core. Here’s what they found.`\
+https://nytimes.com/interactive/2026/01/15/realestate/montana-helena-homes-sale.html
 
-**Clashes in Minneapolis After Federal Agent Shoots Man**\
-`A federal agent shot and injured a Venezuelan man in Minneapolis on Wednesday night, a Homeland Security official said. The shooting came one week after an ICE agent shot and killed a woman in the city.`\
-https://nytimes.com/video/us/100000010646474/minneapolis-federal-agent-shooting-immigration.html
+**Bob Weir Is Gone, but the Dead’s Music Plays On**\
+`A concert honoring the Grateful Dead guitarist showed the durability of the band’s music and culture, even as its members dwindle.`\
+https://nytimes.com/2026/01/15/arts/music/bob-weir-grateful-dead-legacy.html
 
-**How NASA deals with astronauts’ medical needs on the I.S.S.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2026/01/15/science/nasa-astronauts-return/how-nasa-deals-with-astronauts-medical-needs-on-the-iss
+**Cyberattack in Venezuela Demonstrated Precision of U.S. Capabilities**\
+`Senators are expected to ask Lt. Gen. Joshua M. Rudd, President Trump’s nominee to lead the U.S. Cyber Command, about the mission in Caracas.`\
+https://nytimes.com/2026/01/15/us/politics/cyberattack-venezuela-military.html
 
-**Many Mayors Have Tried to Help Small Businesses. It’s Mamdani’s Turn.**\
-`Small business advocates in New York are excited that Mayor Zohran Mamdani is tackling the issue of excessive fees and fines, but they’ve heard similar promises before.`\
-https://nytimes.com/2026/01/15/nyregion/mamdani-fees-fines-businesses.html
+**‘Riot Women’ Review: Women of a Certain Rage**\
+`There’s much more to Sally Wainwright’s series about middle-aged punk rockers than the music.`\
+https://nytimes.com/2026/01/15/arts/television/riot-women-review.html
 
-**New Dietary Guidelines**\
-`Why was this image in the news recently? What is it communicating?`\
-https://nytimes.com/2026/01/15/learning/new-dietary-guidelines.html
+**Nobel Committee Takes Heat at Home as Machado Courts Trump**\
+`The Venezuelan opposition leader’s attempts to share her award with the U.S. president have shaken some Norwegians’ faith in their signature soft-power tool.`\
+https://nytimes.com/2026/01/15/world/americas/machado-trump-meeting-nobel-peace-prize.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/15/crosswords/spelling-bee-forum.html
+**The U.S. Is Pressing Mexico to Allow U.S. Forces to Fight Cartels**\
+`The United States is escalating pressure on the Mexican government to permit the U.S. military to target fentanyl labs, according to American officials.`\
+https://nytimes.com/2026/01/15/world/americas/us-mexico-cartels.html
 
-**The Judge in the Maduro Case Is 92. All Eyes Will Be on His Stamina.**\
-`Judge Alvin K. Hellerstein was seen drifting in and out of sleep in court last year. The case of Nicolás Maduro, the Venezuelan leader, will test his endurance.`\
-https://nytimes.com/2026/01/15/nyregion/judge-alvin-hellerstein-maduro.html
+**A.I. Has Arrived in Gmail. Here’s What to Know.**\
+`Google’s A.I. assistant, Gemini, can create a to-do list based on recent emails, among other new tricks. There are implications for your privacy.`\
+https://nytimes.com/2026/01/15/technology/personaltech/gmail-gemini-ai-email-inbox.html
 
-**Colbert Jokes That Trump Has Found ‘a New National Bird’**\
-`“You got to hand it to that auto worker for getting under Trump’s skin,” Stephen Colbert said after the president appeared to flip off a heckling worker at a Ford plant.`\
-https://nytimes.com/2026/01/15/arts/television/colbert-trump-middle-finger-heckler.html
+**One State, Two Very Different Views of Minneapolis**\
+`Pull up a stool at Ye Olde Pickle Factory and listen to a story about America’s urban-rural divide.`\
+https://nytimes.com/2026/01/15/us/one-state-two-very-different-views-of-minneapolis.html
 
