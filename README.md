@@ -1,3 +1,23 @@
+**2026 NWSL schedule: Challenge Cup changes, men's World Cup impact**\
+`The Athletic breaks down the talking points from this season's schedule reveal.`\
+https://nytimes.com/athletic/6973839/2026/01/15/nwsl-2026-schedule-dates/
+
+**The Hip Priest, the Ex-Hedge Funder and the $10 Million Townhouse**\
+`When a pastor learned his childhood home might undergo a glow-up, he saw his beloved Brooklyn further receding — and took to a different kind of pulpit.`\
+https://nytimes.com/2026/01/15/style/the-hip-priest-the-ex-hedge-funder-and-the-10-million-townhouse.html
+
+**Ford and GM's F1 rivalry is already boiling over — and that's great news**\
+`General Motors and Ford have exchanged barbs over their new F1 entries this week. This kind of rivalry will thrive`\
+https://nytimes.com/athletic/6973742/2026/01/15/f1-rivalry-ford-gm-racing-history/
+
+**This Slow Cooker Chicken Dish Is Efficient and Exciting**\
+`Tajín adds its characteristic chile-lime kick to this saucy mix of chicken, peppers and beans.`\
+https://nytimes.com/2026/01/15/dining/this-slow-cooker-chicken-dish-is-efficient-and-exciting.html
+
+**U.S. Cuts Health Aid and Ties It to Funding Pledges by African Governments**\
+`The Trump administration has signed $11 billion in agreements with African nations, in deals tied to foreign policy goals.`\
+https://nytimes.com/2026/01/15/health/health-agreements-us-africa.html
+
 **Maps: 3.1-Magnitude Earthquake Shakes the San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/01/15/us/earthquake-san-francisco-bay-area.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2026/01/15/us/minneapolis-shooting-ice
 **Trump se reunirá con la líder opositora de Venezuela, María Corina Machado**\
 `Está previsto que la dirigente venezolana almuerce con el mandatario estadounidense el jueves. Ha ofrecido entregarle a Trump el Nobel que recibió en diciembre.`\
 https://nytimes.com/live/2026/01/15/espanol/trump-venezuela-machado
-
-**Does Arsene Wenger really get football?**\
-`Wenger's offside proposals reinforce the fear that as FIFA's chief of global football development he might be doing more harm than good`\
-https://nytimes.com/athletic/6973850/2026/01/15/arsene-wenger-offside-proposals-fifa/
-
-**The Bounce: Our worst (and best) predictions so far**\
-`The Bounce is The Athletic's free NBA newsletter.`\
-https://nytimes.com/athletic/6974069/2026/01/15/nba-season-win-totals-the-bounce/
-
-**Dyche says club have held talks with Zinchenko over Forest future**\
-`The Ukraine international has only made four Premier League starts after joining on loan from Arsenal.`\
-https://nytimes.com/athletic/6973995/2026/01/15/oleksandr-zinchenko-nottinham-forest-future/
-
-**On Bali, a Hotel Filled With Antiques**\
-`Plus: Rina Sawayama’s beauty essentials, a whimsical Dutch oven and more recommendations from T Magazine.`\
-https://nytimes.com/2026/01/15/t-magazine/bali-hotel-magia-de-uma.html
-
-**The Windup: Boston adds another big arm**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6973442/2026/01/15/ranger-suarez-boston-the-windup/
 
