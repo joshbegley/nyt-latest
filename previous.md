@@ -1,36 +1,36 @@
-**2hollis Addresses the ‘Nepo Baby’ Label**\
-`On a new episode of “Popcast,” the rising alt-pop star 2Hollis spoke to Jon Caramanica and Joe Coscarelli and ... his dad, the drummer for the veteran Chicago rock band Tortoise, to address accusations that his parents’ careers in music are responsible for his own success.`\
-https://nytimes.com/video/podcasts/100000010644333/2hollis-addresses-the-nepo-baby-label.html
+**I Can’t Believe It’s Not Chicken (Super-Savory Grated Tofu)**\
+`Grating super-firm tofu is one of the best party tricks in the kitchen. It makes tofu not only quicker to prepare (no pressing required!) but also deceptively meaty. The grated tofu is then pan-fried until golden and coated in a flavor-rich sauce.`\
+https://nytimes.com/video/dining/100000010644519/i-cant-believe-its-not-chicken-super-savory-grated-tofu.html
 
-**Romeo Santos Brought English Speaking Artists Toward Bachata**\
-`Romeo Santos and Prince Royce linked up with “Popcast” to discuss the ways that earlier bachata collaborations with artists like Usher and Drake predicted how “Despacito” and Bad Bunny would bring English-language artists toward Latin music.`\
-https://nytimes.com/video/podcasts/100000010644329/romeo-santos-brought-english-speaking-artists-toward-bachata.html
+**Until Saturday: When Miami was the original Indiana**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6977367/2026/01/16/indiana-miami-history-until-saturday/
 
-**‘The Disappear’ Review: A Couple on the Rocks and Out of Sync**\
-`Erica Schmidt’s discordant comedy, starring Hamish Linklater and Miriam Silverman, is a farce clumsily straddling two genres.`\
-https://nytimes.com/2026/01/16/theater/the-disappear-review-erica-schmidt.html
+**Sheet-Pan Shrimp Tikka**\
+`Zainab Shah’s quick, flavor-packed meal brings the smoky, tangy essence of tandoori-style cooking into the kitchen with minimal effort. The shrimp are marinated in spiced yogurt to infuse them with bold flavor before being roasted over a bed of vegetables in just minutes.`\
+https://nytimes.com/video/dining/100000010644531/sheet-pan-shrimp-tikka.html
 
-**Trump Sets Fraudster Free From Prison for a Second Time**\
-`The president issued a raft of clemency grants this week, including pardoning a woman he had given relief to once before and a man whose daughter had donated millions to a Trump super PAC.`\
-https://nytimes.com/2026/01/16/us/politics/trump-fraudster-pardon.html
+**Spanakorizo With Jammy Eggs**\
+`Bright and soulful, spanakorizo is a beloved Greek dish, with a name that reflects its combination of two key ingredients: spinach and rice. This version is fairly traditional in its essence, relying upon rice, spinach, lemon and herbs, but includes some flourishes.`\
+https://nytimes.com/video/dining/100000010644533/spanakorizo-with-jammy-eggs.html
 
-**What Kind of Lover Are You? This Poem Might Have the Answer.**\
-`William Blake’s “The Clod & the Pebble” is a dialogue on tenderness and cruelty in three short stanzas. Read it with our critic A.O. Scott, and then play a game to memorize it.`\
-https://nytimes.com/interactive/2026/01/16/books/william-blake-poem-clod-pebble.html
+**Restaurant Review: Lei in Manhattan**\
+`Ligaya Mishan, a New York Times chief restaurant critic visits Lei, a warmly and welcoming wine bar in Manhattan, that manages to both honor tradition and bend it.`\
+https://nytimes.com/video/dining/100000010644529/restaurant-review-lei-in-manhattan.html
 
-**Ferrari replaces Hamilton’s F1 race engineer for 2026 season**\
-`Ferrari announced that Riccardo Adami would no longer serve as Hamilton’s race engineer in 2026.`\
-https://nytimes.com/athletic/6977264/2026/01/16/lewis-hamilton-ferrari-race-engineer/
+**Russian Strikes Force Kyiv Schools to Close Amid Rolling Blackouts**\
+`Russia has targeted Ukraine’s energy infrastructure in past winters, but this year intensified its attacks as temperatures in Ukraine plunged well below freezing.`\
+https://nytimes.com/2026/01/16/world/europe/ukraine-blackouts-kyiv-school-closure.html
 
-**Under Fire From Trump and Their Base, Minnesota Democrats Decry an ‘Invasion’**\
-`Officials denounced the Trump crackdown at an unofficial congressional hearing in Minneapolis. Administration officials have accused local leaders of promoting violence against ICE agents.`\
-https://nytimes.com/2026/01/16/us/minnesota-democrats-ice-hearing.html
+**Malaay Qumbe (Coconut Fish Curry)**\
+`Variations of coconut fish curry abound up and down the Swahili Coast, so much so that the dish is often broadly referred to as East African fish curry. This version of coconut fish curry leans heavily on xawaash, a spice blend that is at the heart of Somali cuisine.`\
+https://nytimes.com/video/dining/100000010644516/malaay-qumbe-coconut-fish-curry.html
 
-**Trump Praises Hassett, but Casts Doubt on Making Him Fed Chair**\
-`The blowback set off by the Justice Department’s criminal investigation into Jerome H. Powell, the chair of the central bank, has shaken up the race to replace him.`\
-https://nytimes.com/2026/01/16/business/trump-praises-hassett-but-casts-doubt-on-making-him-fed-chair.html
+**2hollis Is Too Famous to Go Online Now**\
+`On a new episode of “Popcast,” the rising alt-pop star 2Hollis spoke to Jon Caramanica and Joe Coscarelli about his experience with the internet and limiting his social media use.`\
+https://nytimes.com/video/podcasts/100000010644403/2hollis-is-too-famous-to-go-online-now.html
 
-**Iran Protests Quelled Since Deadly Crackdown, Residents Say**\
-`“There is massive disappointment and disillusionment,” one Tehran resident said. A human rights group acknowledged that demonstrations had been subdued since Sunday, with thousands of people detained.`\
-https://nytimes.com/2026/01/16/world/middleeast/iran-protests-deadly-crackdown.html
+**California Will Waive State Park Entry Fees on M.L.K. Day**\
+`Gov. Gavin Newsom framed the move as a rebuke to President Trump, who recently cut the holiday from the list of free-entry days at U.S. national parks.`\
+https://nytimes.com/2026/01/16/travel/california-state-parks-mlk-day.html
 

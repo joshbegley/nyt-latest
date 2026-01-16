@@ -1,3 +1,11 @@
+**Tzatziki Chickpea Salad**\
+`Vibrant with the sharp creaminess of tzatziki, the Greek yogurt dip, this dish embodies the cool, easy eating of the warmer months. Crisp cucumbers and hearty chickpeas are dressed with a lemony and garlicky Greek yogurt mixture.`\
+https://nytimes.com/video/dining/100000010644536/tzatziki-chickpea-salad.html
+
+**Whole Roasted Squash With Tomato-Ginger Chickpeas**\
+`With creamy squash, sticky chickpeas and tangy yogurt, this vegetarian sheet-pan feast easily serves a crowd. The method here doesn’t bother with cutting rock-hard raw winter squash. Instead, roast them whole until you can rip them apart into wedges.`\
+https://nytimes.com/video/dining/100000010644525/whole-roasted-squash-with-tomato-ginger-chickpeas.html
+
 **I Can’t Believe It’s Not Chicken (Super-Savory Grated Tofu)**\
 `Grating super-firm tofu is one of the best party tricks in the kitchen. It makes tofu not only quicker to prepare (no pressing required!) but also deceptively meaty. The grated tofu is then pan-fried until golden and coated in a flavor-rich sauce.`\
 https://nytimes.com/video/dining/100000010644519/i-cant-believe-its-not-chicken-super-savory-grated-tofu.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/16/world/europe/ukraine-blackouts-kyiv-school-closur
 **Malaay Qumbe (Coconut Fish Curry)**\
 `Variations of coconut fish curry abound up and down the Swahili Coast, so much so that the dish is often broadly referred to as East African fish curry. This version of coconut fish curry leans heavily on xawaash, a spice blend that is at the heart of Somali cuisine.`\
 https://nytimes.com/video/dining/100000010644516/malaay-qumbe-coconut-fish-curry.html
-
-**2hollis Is Too Famous to Go Online Now**\
-`On a new episode of “Popcast,” the rising alt-pop star 2Hollis spoke to Jon Caramanica and Joe Coscarelli about his experience with the internet and limiting his social media use.`\
-https://nytimes.com/video/podcasts/100000010644403/2hollis-is-too-famous-to-go-online-now.html
-
-**California Will Waive State Park Entry Fees on M.L.K. Day**\
-`Gov. Gavin Newsom framed the move as a rebuke to President Trump, who recently cut the holiday from the list of free-entry days at U.S. national parks.`\
-https://nytimes.com/2026/01/16/travel/california-state-parks-mlk-day.html
 
