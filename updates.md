@@ -1,3 +1,11 @@
+**How to watch Panthers vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6977137/2026/01/16/panthers-vs-hurricanes-stream-how-to-watch-jan-16/
+
+**Martha Graham Dance Company Won’t Celebrate Centennial at Kennedy Center**\
+`The oldest dance troupe in the United States decided not to perform at the Washington venue during its nationwide tour.`\
+https://nytimes.com/2026/01/16/arts/dance/martha-graham-dance-company-kennedy-center.html
+
 **How to watch Sharks vs. Red Wings: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Detroit Red Wings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6977126/2026/01/16/sharks-vs-red-wings-stream-how-to-watch-jan-16/
