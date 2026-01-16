@@ -1,3 +1,15 @@
+**What we learned from Jim Harbaugh and Joe Hortiz's end-of-season news conference**\
+`Harbaugh sounds prepared to give his next offensive coordinator broad responsibility and allow him to be "head coach of the offense."`\
+https://nytimes.com/athletic/6975580/2026/01/15/chargers-jim-harbaugh-joe-hortiz-news-conference/
+
+**Many Fiery Remarks, Little Clarity on What’s Next at Security Council Meeting on Iran**\
+`Iran’s representative denied the country had killed protesters, as the U.S. ambassador said President Trump had made clear “all options are on the table” to stop the killing.`\
+https://nytimes.com/2026/01/15/world/middleeast/iran-protests-security-council.html
+
+**This Winter, the Best Puffer Jackets Come With Big Pockets**\
+`These utility-inflected styles are practical yet polished.`\
+https://nytimes.com/2026/01/15/t-magazine/puffer-jackets-pockets-best.html
+
 **Trump Administration Lawsuit Seeking California Voter Data Is Dismissed**\
 `The Justice Department has sued about two dozen states over access to voter rolls, as the federal government pushes to create a national database.`\
 https://nytimes.com/2026/01/15/us/california-voter-roll-lawsuit-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/15/us/minneapolis-couple-ice-tear-gas-6-children.htm
 **Former Building Super Is Convicted of Stealing $350,000 From 98-Year-Old**\
 `Rosalind Hernandez, who worked in a co-op building in Manhattan, befriended and then bilked a vulnerable resident, prosecutors said.`\
 https://nytimes.com/2026/01/15/nyregion/building-superintendent-larceny-manhattan.html
-
-**What Did the White House and Denmark Agree to on Greenland? Depends Whom You Ask.**\
-`The White House and Denmark contradicted each other in public about what they had agreed to this week as President Trump continued to demand U.S. ownership of Greenland.`\
-https://nytimes.com/2026/01/15/us/politics/white-house-greenland-meeting.html
-
-**Meet the man behind the fire of Boopie Miller’s viral buzzer-beater celebration**\
-`Joe Bessner lit the flames that turned into a viral moment. Now, he's getting ready for the Super Bowl.`\
-https://nytimes.com/athletic/6975420/2026/01/15/joe-bessner-boopie-miller-viral-buzzer-beater-celebration/
-
-**Ryan Weathers is open to arsenal tweaks: 'Whatever the Yankees want me to do'**\
-`The Yankees' newly acquired left-hander sees his job as pitching "in whatever capacity it is for however long it is."`\
-https://nytimes.com/athletic/6975380/2026/01/15/yankees-ryan-weathers-pitching-arsenal-health/
 
