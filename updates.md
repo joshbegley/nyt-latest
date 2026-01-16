@@ -1,3 +1,7 @@
+**Rangers tell fans they are officially entering a 'retool'**\
+`Drury met individually with New York's leadership group and held a full team meeting Friday to brace them for the news, per a league source.`\
+https://nytimes.com/athletic/6977496/2026/01/16/new-york-rangers-retool/
+
 **Inside the Mets' stunning pivot to Bo Bichette**\
 `The Mets envision Bichette as an elite clubhouse presence: "Exactly the type of guy we want on our team."`\
 https://nytimes.com/athletic/6977448/2026/01/16/mets-mlb-bo-bichette-free-agency/
