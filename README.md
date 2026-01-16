@@ -18,6 +18,10 @@ https://nytimes.com/athletic/6963878/2026/01/16/davos-global-sports-ecomomy-wef-
 `Are angry exchanges with fans, post-match scuffles, a litany of cards, and issues with punctuality a recipe for success?`\
 https://nytimes.com/athletic/6965990/2026/01/16/tottenham-hotspur-discipline-problem/
 
+**Ndiaye, Ndukwe and why Liverpool are targeting young centre-backs in the transfer market**\
+`There has been a feeling Liverpool had reached the end of the cycle academy wise and that's been reinforced in the six months since`\
+https://nytimes.com/athletic/6973644/2026/01/16/liverpool-transfers-centre-backs/
+
 **Carl Rushworth and Eiran Cashin giving Brighton a mixed taste of the loan market**\
 `The pair's contrasting fortunes this season show that picking the right club for a player to join on loan is a risky business`\
 https://nytimes.com/athletic/6969380/2026/01/16/brighton-rushworth-cashin-loans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6974603/2026/01/16/harry-wilson-leeds-fulham-premie
 **Cricket's T20 World Cup is highlighting tensions on the Indian subcontinent**\
 `India is co-hosting the 20-team tournament, starting on February 7, but Bangladesh has said it will join Pakistan in not playing there`\
 https://nytimes.com/athletic/6945184/2026/01/16/cricket-t20-world-cup-indian-tensions-explained/
-
-**Jesper Wallstedt, Wild come unglued in undisciplined loss to Jets: Takeaways**\
-`Two goals against in 11 seconds to close out the first period, plus inopportune penalties, helped dig a hole the Wild couldn't escape.`\
-https://nytimes.com/athletic/6975565/2026/01/16/wild-wallstedt-penalties-foligno-jets/
 
