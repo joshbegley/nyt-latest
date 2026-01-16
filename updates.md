@@ -1,3 +1,15 @@
+**Scoop City: Reporters explain how each playoff team advances**\
+`Our reporters explain how the teams they cover can win this weekend, plus Ted Nguyen breaks down a crucial matchup in Denver`\
+https://nytimes.com/athletic/6978039/2026/01/16/nfl-playoff-predictions-rams-bears-bills-broncos-scoop-city/
+
+**By Raiding a Reporter’s Home, Is the F.B.I. Weaponizing National Security?**\
+`Knowing what the government is up to is essential for democracy to work.`\
+https://nytimes.com/2026/01/16/opinion/fbi-raid-washington-post-law.html
+
+**The Underachiever in Chief?**\
+`How much has Trump actually accomplished one year into his second term? According to the conservative analyst Yuval Levin, not much.`\
+https://nytimes.com/video/opinion/100000010644679/the-underachiever-in-chief.html
+
 **Conservative Politics Can’t Just Be About Hate**\
 `Politics in America has taken an ugly turn, the conservative analyst Yuval Levin says on “The Ezra Klein Show,” arguing it has become too influenced by fear.`\
 https://nytimes.com/video/opinion/100000010644674/conservative-politics-cant-just-be-about-hate.html
