@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | Jan. 26, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2026/01/16/learning/whats-going-on-in-this-picture-jan-26-2026.html
+
 **From a D.J. Set to Church, and Back Again**\
 `When the writer Lamorna Ash set out to explore young people’s relationship to faith and religion, she found herself questioning her own.`\
 https://nytimes.com/2026/01/16/style/lamorna-ash-book-religious-conversion.html

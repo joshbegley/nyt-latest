@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | Jan. 26, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2026/01/16/learning/whats-going-on-in-this-picture-jan-26-2026.html
+
 **From a D.J. Set to Church, and Back Again**\
 `When the writer Lamorna Ash set out to explore young people’s relationship to faith and religion, she found herself questioning her own.`\
 https://nytimes.com/2026/01/16/style/lamorna-ash-book-religious-conversion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/16/sports/tennis/jakub-mensik-australian-open.html
 **How Greenland Is Reacting to Trump’s Threats**\
 `Our reporter Jeffrey Gettleman is on the ground in Greenland, seeing how people have reacted to Trump’s desire to take it over. He and our senior writer Katrin Bennhold discuss what Greenland means to the United States, Denmark and Greenlanders.`\
 https://nytimes.com/video/world/europe/100000010642168/how-greenland-is-reacting-to-trumps-threats.html
-
-**Rosenthal: Dodgers’ splurge on Tucker will increase calls for a salary cap, but MLB needs other fixes**\
-`The star outfielder's four-year deal with the team includes a record average annual value of $57.1 million.`\
-https://nytimes.com/athletic/6976696/2026/01/16/dodgers-kyle-tucker-lockout-mlb-labor/
 
