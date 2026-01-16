@@ -1,3 +1,15 @@
+**The New York Times in Print for Friday, Jan. 16, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/16/todays-new-york-times
+
+**Iran’s Regime Is Losing Its Greatest Weapon: Fear**\
+`The bulwark of Iranian oppression is fear. The latest round of demonstrations shows it has been breached.`\
+https://nytimes.com/2026/01/16/opinion/iran-fear-demonstrations-islamic-republic.html
+
+**Hope and Fear Mingle in Cuba With the Loss of Maduro, and Oil**\
+`The electricity may go off, but islanders see a glimmer of hope in Maduro’s departure.`\
+https://nytimes.com/2026/01/16/opinion/cuba-venezuela-us-oil.html
+
 **Breaking down the $2.3trillion global sports economy – key takeaways**\
 `We spent an estimated $672bn on accommodation, food and travel while going to watch or play sport last year, according to a new report`\
 https://nytimes.com/athletic/6963878/2026/01/16/davos-global-sports-ecomomy-wef-takeaways/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6945184/2026/01/16/cricket-t20-world-cup-indian-ten
 **Wallstedt, Wild come unglued in undisciplined loss to Jets: Takeaways**\
 `Two goals against in 11 seconds to close out the first period, plus inopportune penalties, helped dig a hole the Wild couldn't escape.`\
 https://nytimes.com/athletic/6975565/2026/01/16/wild-wallstedt-penalties-foligno-jets/
-
-**Ratcliffe wanted 'City-fication'. The hard truth is Man Utd are still adrift**\
-`They may have taken staff from their cross-city rivals, but United are far from matching their on-pitch standards and strategic acumen`\
-https://nytimes.com/athletic/6974424/2026/01/16/manchester-united-manchester-city-jim-ratcliffe/
-
-**Inside the real life of a football manager, with Bristol City's Gerhard Struber**\
-`The Athletic spent a month with a head coach in the most volatile and unpredictable league in English football: the Championship`\
-https://nytimes.com/athletic/6971149/2026/01/16/inside-the-real-life-of-a-football-manager-with-bristol-citys-gerhard-struber/
-
-**How Chelsea play: Fluid full-backs, inswinging corners, but defensive crossing issues**\
-`The Athletic's series taking the tactical temperature at the Premier League's 'Big Six' continues with a look at the world champions`\
-https://nytimes.com/athletic/6969512/2026/01/16/how-chelsea-play-premier-league-tactics/
 
