@@ -1,3 +1,19 @@
+**Man Utd vs Man City: Tactical battles? Key players? Impact of derby atmosphere?**\
+`With the 198th Manchester derby taking place on Saturday, two of our writers discuss the big talking points`\
+https://nytimes.com/athletic/6973607/2026/01/16/manchester-united-v-manchester-city-preview/
+
+**Trump Administration Live Updates: Venezuelan Nobel Laureate Gives Trump Her Medal**\
+``\
+https://nytimes.com/live/2026/01/16/us/trump-news
+
+**What went right and wrong for Ohio State in 2025 — and what it means for 2026**\
+`Only one result would've left everybody happy: another national championship. But that doesn’t mean the entire OSU season was a failure.`\
+https://nytimes.com/athletic/6955843/2026/01/16/ohio-state-roster-portal-2026-expectations/
+
+**Leeds make enquiry for Wolves forward Strand Larsen**\
+`The 25-year-old has been the subject of interest for multiple clubs and has scored six goals in 23 appearances this season. `\
+https://nytimes.com/athletic/6910657/2026/01/16/jorgen-strand-larsen-leeds-transfer-wolves/
+
 **As Klay Thompson moves into 4th on 3s made list, his love for the game keeps him going**\
 `What keeps the Mavericks' guard going in the later stages of his career? "I love shooting the basketball," Thompson said.`\
 https://nytimes.com/athletic/6976272/2026/01/16/klay-thompson-damian-lillard-3-pointers/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/16/learning/failed-experiment.html
 **Canada and China Will Lower Some Tariffs in ‘New Strategic Partnership’**\
 `Prime Minister Mark Carney of Canada announced that Canada would slash tariffs on some Chinese electric vehicles and that, in return, China would reduce tariffs on Canadian canola products.`\
 https://nytimes.com/video/world/asia/100000010648831/china-canada-xi-carney-tariffs.html
-
-**Madison Keys' Australian Open title did not change her life – but that was never the point**\
-`The American's journey toward winning her first major makes defending the crown feel like less of a mountain to climb.`\
-https://nytimes.com/athletic/6976641/2026/01/16/tennis-madison-keys-australian-open-title-defense/
-
-**Who really wants Ja Morant? Does anyone? Plus, the latest NBA trade rumors**\
-`Ja Morant's trade saga underscores the difference between teams simply showing interest in a player and legitimately pursuing him in a deal.`\
-https://nytimes.com/athletic/6975545/2026/01/16/nba-trade-deadline-ja-morant-grizzlies-news-updates/
-
-**iVisit Boxing wants a world record crowd, Usyk and YouTube - but is it credible?**\
-`Examining the big plans Ed Pereira has for his new firm and how it wants to stage an historic bout in San Francisco`\
-https://nytimes.com/athletic/6976622/2026/01/16/ivisit-boxing-world-record-crowd-usyk/
-
-**Fantasy Premier League live Q&A: Gameweek 22 advice from Ben Dinnery**\
-`Ben Dinnery of premierinjuries.com is on hand from 4mp-5pm (GMT) to offer his expert advice and give you the best chance of success`\
-https://nytimes.com/athletic/6976566/2026/01/16/fantasy-premier-league-gameweek-22-advice-tips-ben-dinnery/
 
