@@ -1,3 +1,15 @@
+**Trump and States Aim to Stop A.I. From Inflating Energy Bills**\
+`Demand from centers that power artificial intelligence have driven up electricity bills, frustrating consumers.`\
+https://nytimes.com/2026/01/16/business/trump-ai-electricity-costs.html
+
+**Dear America, Greenland Is Not on Zillow**\
+`Trump wants Greenland? Its previous colonizer has some thoughts.`\
+https://nytimes.com/video/opinion/100000010648106/dear-america-greenland-is-not-on-zillow.html
+
+**Trump’s New Military Threat to Minnesota**\
+`Readers react to the unrest in Minnesota. Also: Parallels to the past; the Nobel Peace Prize medal; nuclear power; Bob Weir and the Grateful Dead.`\
+https://nytimes.com/2026/01/16/opinion/trump-minnesota.html
+
 **Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
 `Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
 https://nytimes.com/athletic/6977442/2026/01/16/blues-mailbag-jeremy-rutherford-january-2026/
