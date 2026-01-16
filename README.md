@@ -1,3 +1,7 @@
+**Agent Who Shot Renee Good Was Trained to Track and Apprehend Fugitives**\
+`From Iraq to ICE, Jonathan Ross’s career reflects a 20-year government effort to reshape immigration enforcement with a military mind-set.`\
+https://nytimes.com/2026/01/16/us/ice-agent-minneapolis-jonathan-ross.html
+
 **City close to finalising £20m Guehi deal**\
 `Injuries to Josko Gvardiol and Ruben Dias have depleted City's centre-back depth.`\
 https://nytimes.com/athletic/6955695/2026/01/16/marc-guehi-manchester-city-transfer-palace/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6976633/2026/01/16/premier-league-races-how-the-tit
 **Oliver Glasner to leave Crystal Palace this summer for a 'new challenge'**\
 `Glasner guided Palace to their first major trophy as his side lifted the FA Cup last season but will leave the club at the end of the season`\
 https://nytimes.com/athletic/6569088/2026/01/16/glasner-crystal-palace-manager-leaving/
-
-**With or without Giannis, Bucks look lost halfway through their season**\
-`At 17-24, the Bucks have their worst record through 41 games since the 2015-16 season, Antetokounmpo's third in the NBA.`\
-https://nytimes.com/athletic/6976274/2026/01/16/giannis-antetokounmpo-bucks-season-lost/
 

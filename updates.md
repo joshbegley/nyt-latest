@@ -1,3 +1,7 @@
+**City close to finalising £20m Guehi deal**\
+`Injuries to Josko Gvardiol and Ruben Dias have depleted City's centre-back depth.`\
+https://nytimes.com/athletic/6955695/2026/01/16/marc-guehi-manchester-city-transfer-palace/
+
 **Pistons' fourth-quarter defense comes through again in Detroit: 'That's who we are'**\
 `"I thought in that second half, and in the fourth quarter in particular, we got stingy," says Pistons head coach J.B. Bickerstaff. `\
 https://nytimes.com/athletic/6976425/2026/01/16/detroit-pistons-defense-win-phoenix-suns/
