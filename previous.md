@@ -1,3 +1,7 @@
+**Red Bull reveals Ford-powered livery for 2026 F1 car at team launch**\
+`The livery harkens back to Red Bull's first livery in 2005, and marks the start of Ford's partnership with the team`\
+https://nytimes.com/athletic/6975257/2026/01/15/f1-red-bull-2026-car-launch-ford-livery/
+
 **‘The Pitt’ Season 2, Episode 2 Recap: Dirty Work**\
 `Viewers got extra intimate this week with the hard physical realities of life in the emergency ward.`\
 https://nytimes.com/2026/01/15/arts/television/the-pitt-recap-season-2-episode-2.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6975677/2026/01/15/heated-rivalry-nhl-gary-bettman-
 **Machado Offers Trump Her Nobel Peace Prize Medal**\
 `During a meeting in the White House on Thursday, Venezuela’s opposition leader, María Corina Machado, presented her medal to President Trump.`\
 https://nytimes.com/video/world/americas/100000010648635/machado-offers-trump-her-nobel-peace-prize-medal.html
-
-**In his heart, John Harbaugh always knew he was meant to be a Giant**\
-`Harbaugh isn't concerned about the NFC East competition. He welcomes it. He is the first Giants coach who'll walk in with a Super Bowl ring.`\
-https://nytimes.com/athletic/6975538/2026/01/15/john-harbaugh-ny-giants-nfl-coaching-news-hiring/
 

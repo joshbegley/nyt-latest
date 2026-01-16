@@ -1,3 +1,7 @@
+**Red Bull reveals Ford-powered livery for 2026 F1 car at team launch**\
+`The livery harkens back to Red Bull's first livery in 2005, and marks the start of Ford's partnership with the team`\
+https://nytimes.com/athletic/6975257/2026/01/15/f1-red-bull-2026-car-launch-ford-livery/
+
 **‘The Pitt’ Season 2, Episode 2 Recap: Dirty Work**\
 `Viewers got extra intimate this week with the hard physical realities of life in the emergency ward.`\
 https://nytimes.com/2026/01/15/arts/television/the-pitt-recap-season-2-episode-2.html
