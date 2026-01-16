@@ -1,3 +1,15 @@
+**NHL Power Rankings: Congrats to our fake All-Stars**\
+`Actual best-on-best hockey coming in less than a month’s time. Today, we mourn what could’ve been with our picks for a fake All-Star Game.`\
+https://nytimes.com/athletic/6976709/2026/01/16/nhl-power-rankings-all-stars-olympics/
+
+**Cambridge Was a Culture Shock. She’s Getting the Last Laugh.**\
+`Jade Franks mines the awkwardness of social mobility in her one-woman show “Eat the Rich.”`\
+https://nytimes.com/2026/01/16/theater/eat-the-rich-jade-franks-soho-theatre.html
+
+**Lowetide: Are the Oilers giving their young forwards enough opportunity?**\
+`Rookie wingers Matt Savoie and Ike Howard are playing depth minutes for Edmonton at even strength this season.`\
+https://nytimes.com/athletic/6974339/2026/01/16/edmonton-oilers-stats-matt-savoie-ike-howard/
+
 **What’s Going On in This Picture? | Jan. 26, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2026/01/16/learning/whats-going-on-in-this-picture-jan-26-2026.html
