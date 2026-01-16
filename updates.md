@@ -1,3 +1,19 @@
+**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
+`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/6977442/2026/01/16/blues-mailbag-jeremy-rutherford-january-2026/
+
+**Flashback: Your Weekly History Quiz, Jan. 17, 2026**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2026/01/16/upshot/flashback.html
+
+**Drunken Driver Who Killed 4 at Cookout Is Sentenced to Decades in Prison**\
+`The driver, Daniel Hyden, was a substance abuse counselor who had past citations for driving under the influence.`\
+https://nytimes.com/2026/01/16/nyregion/drunken-driver-killed-four-fourth-of-july-sentenced.html
+
+**Betting for (by) dummies: Who dares get off the Cignetti train now?**\
+`Jon Greenberg and Zac Jackson take another crack at predicting playoff football.`\
+https://nytimes.com/athletic/6977296/2026/01/16/nfl-college-football-betting-bears-indiana-cignetti/
+
 **Leadership Dispute Said to Spur Abrupt Exit at the National Constitution Center**\
 `The congressionally chartered museum and national town hall has not explained the sudden departure of Jeffrey Rosen as its president and chief executive.`\
 https://nytimes.com/2026/01/16/us/politics/national-constitution-center-jeffery-rosen-exit.html

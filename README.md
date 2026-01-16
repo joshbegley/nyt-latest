@@ -1,3 +1,11 @@
+**Dear America, Greenland Is Not on Zillow**\
+`Trump wants Greenland? Its previous colonizer has some thoughts.`\
+https://nytimes.com/video/opinion/100000010648106/dear-america-greenland-is-not-on-zillow.html
+
+**Trump’s New Military Threat to Minnesota**\
+`Readers react to the unrest in Minnesota. Also: Parallels to the past; the Nobel Peace Prize medal; nuclear power; Bob Weir and the Grateful Dead.`\
+https://nytimes.com/2026/01/16/opinion/trump-minnesota.html
+
 **Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
 `Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
 https://nytimes.com/athletic/6977442/2026/01/16/blues-mailbag-jeremy-rutherford-january-2026/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6977177/2026/01/16/world-series-odds-kyle-tucker-do
 **College hoops' point-shaving plot begs the question: Why even allow bets on low-major games?**\
 `Most of the games prosecutors allege were fixed were at the low- and mid-major levels, where players aren't making much money.`\
 https://nytimes.com/athletic/6977187/2026/01/16/college-basketball-point-shaving-sports-betting/
-
-**Will the ICE Agent Who Shot Renee Good Be Prosecuted?**\
-`With the Trump administration unlikely to bring a federal case against the ICE agent who killed Renee Good, our criminal justice reporter Jonah Bromwich explains some of the obstacles for any Minnesota prosecutors trying to charge the agent.`\
-https://nytimes.com/video/us/100000010645084/will-the-ice-agent-who-shot-renee-good-be-prosecuted.html
-
-**NFL divisional round projected scores: Model predicts point spreads and totals for every game**\
-`Austin Mock's NFL Projection Model gives its view on what to expect for the divisional round.`\
-https://nytimes.com/athletic/6977328/2026/01/16/nfl-divisional-round-model-projected-scores-spreads-totals/
 
