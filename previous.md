@@ -1,3 +1,11 @@
+**Musiala to return for Bayern after six-month layoff**\
+`The 22-year-old broke and dislocated his left ankle during the Club World Cup last summer and has not featured since.`\
+https://nytimes.com/athletic/6976596/2026/01/16/jamal-musiala-bayern-injury-return/
+
+**Tennis hangs on Roger Federer's every move. In Melbourne, he is holding court**\
+`The most anticipated practice session of the 2026 Australian Open was for a player three-and-a-half years removed from the sport.`\
+https://nytimes.com/athletic/6976590/2026/01/16/tennis-australian-open-roger-federer/
+
 **Where do Browns stand in their coaching search? Should they target an offensive mind?**\
 `Taking a look at the candidates Cleveland has interviewed, who's still on its list and the type of coach it would make sense to hire. `\
 https://nytimes.com/athletic/6974985/2026/01/16/browns-2025-head-coaching-search/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6974755/2026/01/16/indiana-football-fans-curt-cigne
 **The NFL's timing puzzle: How assistants balance head-coaching interviews and playoff prep**\
 `For 12 assistant coaches whose teams are still alive in the playoffs, this week has been a collision of two lifelong dreams.`\
 https://nytimes.com/athletic/6963743/2026/01/16/nfl-head-coaching-interviews-playoffs-assistants/
-
-**Why Kyle Tucker didn't get the long-term contract many expected**\
-`Tucker got paid, but he didn't get as many years in his deal as many predicted he'd receive at the start of the offseason.`\
-https://nytimes.com/athletic/6876593/2026/01/16/mlb-kyle-tucker-dodgers-contract-analysis/
-
-**How Indiana broke college football**\
-`In a sport that splashes tens of millions of dollars to replace coaches every year, the Hoosiers are not helping everyone's pressure levels.`\
-https://nytimes.com/athletic/6974588/2026/01/16/indiana-curt-cignetti-college-football-predictions/
 
