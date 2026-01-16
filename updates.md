@@ -1,3 +1,7 @@
+**Powell, an Unlikely Foil, Takes on Trump**\
+`Jerome H. Powell, the chair of the Federal Reserve, this week tapped a groundswell of support that has been years in the making.`\
+https://nytimes.com/2026/01/16/us/politics/powell-trump-investigation.html
+
 **John Calipari proposes collective bargaining as a way to fix college sports**\
 `Calipari, the outspoken Arkansas head basketball coach and Naismith Hall of Famer, made his case in an op-ed in The Washington Post.`\
 https://nytimes.com/athletic/6976924/2026/01/16/college-sports-collective-bargaining-john-calipari/
