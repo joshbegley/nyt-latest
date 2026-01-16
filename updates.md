@@ -1,3 +1,7 @@
+**Breaking down the $2.3trillion global sports economy – key takeaways**\
+`We spent an estimated $672bn on accommodation, food and travel while going to watch or play sport last year, according to a new report`\
+https://nytimes.com/athletic/6963878/2026/01/16/davos-global-sports-ecomomy-wef-takeaways/
+
 **Do Tottenham Hotspur have a discipline problem?**\
 `Are angry exchanges with fans, post-match scuffles, a litany of cards, and issues with punctuality a recipe for success?`\
 https://nytimes.com/athletic/6965990/2026/01/16/tottenham-hotspur-discipline-problem/

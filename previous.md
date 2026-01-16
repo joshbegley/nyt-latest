@@ -1,3 +1,7 @@
+**Breaking down the $2.3trillion global sports economy – key takeaways**\
+`We spent an estimated $672bn on accommodation, food and travel while going to watch or play sport last year, according to a new report`\
+https://nytimes.com/athletic/6963878/2026/01/16/davos-global-sports-ecomomy-wef-takeaways/
+
 **Do Tottenham Hotspur have a discipline problem?**\
 `Are angry exchanges with fans, post-match scuffles, a litany of cards, and issues with punctuality a recipe for success?`\
 https://nytimes.com/athletic/6965990/2026/01/16/tottenham-hotspur-discipline-problem/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6971149/2026/01/16/inside-the-real-life-of-a-footba
 **How Chelsea play: Fluid full-backs, inswinging corners, but defensive crossing issues**\
 `The Athletic's series taking the tactical temperature at the Premier League's 'Big Six' continues with a look at the world champions`\
 https://nytimes.com/athletic/6969512/2026/01/16/how-chelsea-play-premier-league-tactics/
-
-**He is African football’s most powerful man. Could Motsepe be the heir to Infantino’s FIFA throne?**\
-`The South African billionaire has also been talked about as a future president of his country`\
-https://nytimes.com/athletic/6966093/2026/01/16/patrice-motsepe-caf-president-profile/
 
