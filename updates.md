@@ -1,3 +1,7 @@
+**No Link Between Acetaminophen in Pregnancy and Autism, a New Study Finds**\
+`The review looked at more than three dozen studies and found no evidence that acetaminophen increased the risk of neurodevelopmental disorders in children.`\
+https://nytimes.com/2026/01/16/health/tylenol-autism-acetaminophen-study.html
+
 **Syria’s President Affirms Kurds’ Rights, in Overture to the Minority**\
 `President Ahmed al-Sharaa’s announcement comes after days of deadly clashes between government and Kurdish forces that have underscored the difficulty he faces in uniting the country.`\
 https://nytimes.com/2026/01/16/world/middleeast/syria-kurds-rights-decree-clashes.html

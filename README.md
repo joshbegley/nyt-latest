@@ -1,3 +1,19 @@
+**Conservative Politics Can’t Just Be About Hate**\
+`Politics in America has taken an ugly turn, the conservative analyst Yuval Levin says on “The Ezra Klein Show,” arguing it has become too influenced by fear.`\
+https://nytimes.com/video/opinion/100000010644674/conservative-politics-cant-just-be-about-hate.html
+
+**Thousands Evicted From the 19th-Century ‘Venice of Nigeria’**\
+`Community leaders in Lagos say evictions in the name of development have left many residents of this fishing village homeless.`\
+https://nytimes.com/2026/01/16/world/africa/nigeria-makoko-fishing-village-destroyed.html
+
+**Nebraska first Power 4 school to announce plans to add varsity flag football**\
+`Nebraska's team will begin play in the spring of 2028, with home contests at a venue to be determined.`\
+https://nytimes.com/athletic/6977997/2026/01/16/nebraska-flag-football-program-women/
+
+**Spurs need 'proactive recruitment', 'wage structure to support ambition', says CEO**\
+`Venkatesham said Spurs need "more quality, experience and leadership” if they are to compete at the highest level.`\
+https://nytimes.com/athletic/6977944/2026/01/16/tottenham-vinai-venkatesham-recruitment/
+
 **No Link Between Acetaminophen in Pregnancy and Autism, a New Study Finds**\
 `The review looked at more than three dozen studies and found no evidence that acetaminophen increased the risk of neurodevelopmental disorders in children.`\
 https://nytimes.com/2026/01/16/health/tylenol-autism-acetaminophen-study.html
@@ -13,20 +29,4 @@ https://nytimes.com/2026/01/16/world/africa/uganda-bobi-wine-abduction.html
 **F.A.A. Urges ‘Caution’ Over Oceans in Latin America, Warning of Military Activity**\
 `The Federal Aviation Administration released seven advisories warning pilots to stay away from parts of the Pacific Ocean near Mexico, Colombia, Ecuador and Panama.`\
 https://nytimes.com/2026/01/16/us/politics/faa-warnings-latin-america.html
-
-**Twins sign catcher Victor Caratini to 2-year deal: Source**\
-`With Ryan Jeffers set to hit free agency after the upcoming season, Caratini gives the Twins some stability behind the plate beyond 2026.`\
-https://nytimes.com/athletic/6977953/2026/01/16/mlb-victor-caratini-free-agency-twins/
-
-**Man Who Attacked a Thai Grandfather in 2021 Is Found Not Guilty of Murder**\
-`Instead, the man was convicted of lesser charges, including involuntary manslaughter, in the death of Vicha Ratanapakdee. The killing became a symbol of rising attacks against Asians during the pandemic.`\
-https://nytimes.com/2026/01/16/us/vicha-ratanapakdee-verdict-sf.html
-
-**Kim Weiss becomes second woman to coach full-time in AHL with promotion to Colorado**\
-`Weiss had been the Colorado Eagles' video coach since August 2024.`\
-https://nytimes.com/athletic/6977775/2026/01/16/kim-weiss-american-hockey-league-coach-colorado/
-
-**Edison Files Claims Against Los Angeles County and Others on Eaton Fire**\
-`Southern California Edison said its equipment most likely started the Eaton Fire but asserted that government agencies and other businesses shared liability for the devastation.`\
-https://nytimes.com/2026/01/16/business/energy-environment/southern-california-edison-eaton-fire.html
 
