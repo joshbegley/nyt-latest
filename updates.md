@@ -1,3 +1,11 @@
+**In Toronto, Bichette's departure marks the end of one era and the start of another**\
+`Bichette helped the Blue Jays and their fans again dream of World Series success. It will now be up to others to complete that goal.`\
+https://nytimes.com/athletic/6977708/2026/01/16/bo-bichette-leaving-toronto-blue-jays/
+
+**Judge Approves Sale of 5,000 Apartments Over Mamdani’s Objections**\
+`The sale of the apartments, whose residents had complained of neglect by management, to a troubled firm is an early test of the new mayor’s ability to deliver for tenants.`\
+https://nytimes.com/2026/01/16/nyregion/pinnacle-auction-judge-mamdani.html
+
 **ICE vs. Ice: Protesters in Minneapolis Find an Ally in Winter**\
 `Temperatures are expected to plunge to around zero degrees this weekend. Minnesotans say they will be out in the street, using the weather to their advantage.`\
 https://nytimes.com/2026/01/16/us/minneapolis-ice-protest-winter-weather.html

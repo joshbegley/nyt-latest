@@ -1,3 +1,7 @@
+**Kyle Tucker, a low-key personality, leaves Cubs for a place where he can blend in**\
+`The Dodgers already have several players who fit the mold of a natural team leader or the frontman for a franchise.`\
+https://nytimes.com/athletic/6977691/2026/01/16/kyle-tucker-cubs-dodgers-star-responsibilities/
+
 **In Toronto, Bichette's departure marks the end of one era and the start of another**\
 `Bichette helped the Blue Jays and their fans again dream of World Series success. It will now be up to others to complete that goal.`\
 https://nytimes.com/athletic/6977708/2026/01/16/bo-bichette-leaving-toronto-blue-jays/
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2026/01/16/well/move/workout-routines.html
 **‘Heated Rivalry’ Is More Than Just Sex**\
 `“Heated Rivalry,” the Canadian drama about a hot-and-heavy romance between two closeted pro hockey players, has become a surprise hit, particularly with women. Wesley Morris explores why the show has been getting so much buzz.`\
 https://nytimes.com/video/podcasts/100000010642177/heated-rivalry-is-more-than-just-sex.html
-
-**Sources: Austin nears deal to bring Uruguay winger Torres back to MLS**\
-`Facundo Torres starred for Orlando before leaving for Palmeiras and now appears headed to the Texas capital`\
-https://nytimes.com/athletic/6976974/2026/01/16/facundo-torres-transfer-austin-fc-palmeiras-uruguay-mls/
 
