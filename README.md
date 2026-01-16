@@ -1,3 +1,7 @@
+**Leafs goalie Anthony Stolarz on injury recovery: 'It just took a little while'**\
+`"It was just something that I just kind of had to let heal on its own," the Maple Leafs goalie said of his injury.`\
+https://nytimes.com/athletic/6977580/2026/01/16/leafs-goalie-anthony-stolarz-injury-update/
+
 **Kyle Tucker, a low-key personality, leaves Cubs for a place where he can blend in**\
 `The Dodgers already have several players who fit the mold of a natural team leader or the frontman for a franchise.`\
 https://nytimes.com/athletic/6977691/2026/01/16/kyle-tucker-cubs-dodgers-star-responsibilities/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6977481/2026/01/16/ny-rangers-trade-rumors-chris-dr
 **Ready to Find Your Next Favorite Workout?**\
 `Our reporters have teamed up with fitness experts to design dozens of routines. Try something new — and build an exercise habit that sticks.`\
 https://nytimes.com/interactive/2026/01/16/well/move/workout-routines.html
-
-**‘Heated Rivalry’ Is More Than Just Sex**\
-`“Heated Rivalry,” the Canadian drama about a hot-and-heavy romance between two closeted pro hockey players, has become a surprise hit, particularly with women. Wesley Morris explores why the show has been getting so much buzz.`\
-https://nytimes.com/video/podcasts/100000010642177/heated-rivalry-is-more-than-just-sex.html
 
