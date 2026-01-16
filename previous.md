@@ -1,3 +1,7 @@
+**Texans' Nico Collins to miss playoff game vs. Patriots with concussion**\
+`Collins led Houston receivers with 71 catches this season and his 1,117 yards and six receiving TDs were tops on the team.`\
+https://nytimes.com/athletic/6977678/2026/01/16/nico-collins-texans-concussion-divisional-playoffs-patriots/
+
 **Wild place leading goal scorer Matt Boldy on injured reserve**\
 `The Wild also placed Joel Eriksson Ek on IR retroactively to last Thursday, meaning he can return when he's ready.`\
 https://nytimes.com/athletic/6977673/2026/01/16/wild-matt-boldy-injured-reserve-joel-eriksson-ek/
@@ -7,14 +11,14 @@ https://nytimes.com/athletic/6977673/2026/01/16/wild-matt-boldy-injured-reserve-
 https://nytimes.com/athletic/6977580/2026/01/16/leafs-goalie-anthony-stolarz-injury-update/
 
 **Kyle Tucker, a low-key personality, leaves Cubs for a place where he can blend in**\
-`The Dodgers already have several players who fit the mold of a natural team leader or the frontman for a franchise.`\
+`The Dodgers already have several players who fit the mold of a natural team leader or the front man for a franchise.`\
 https://nytimes.com/athletic/6977691/2026/01/16/kyle-tucker-cubs-dodgers-star-responsibilities/
 
 **In Toronto, Bichette's departure marks the end of one era and the start of another**\
 `Bichette helped the Blue Jays and their fans again dream of World Series success. It will now be up to others to complete that goal.`\
 https://nytimes.com/athletic/6977708/2026/01/16/bo-bichette-leaving-toronto-blue-jays/
 
-**Judge Approves Sale of 5,000 Apartments Over Mamdani’s Objections**\
+**Mamdani’s Push to Halt Sale of 5,000 Apartments to Big Landlord Fails**\
 `The sale of the apartments, whose residents had complained of neglect by management, to a troubled firm is an early test of the new mayor’s ability to deliver for tenants.`\
 https://nytimes.com/2026/01/16/nyregion/pinnacle-auction-judge-mamdani.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/16/us/politics/trump-allies-ballroom-commission.html
 **Coach Laura Harvey embraces stability, continues her commitment to Seattle Reign**\
 `From ownership changes and roster turnover to that ChatGPT moment, Laura Harvey has found staying power with Seattle Reign. `\
 https://nytimes.com/athletic/6977508/2026/01/16/seattle-reign-laura-harvey-contract-extension/
-
-**How the Rangers' 'retool' letter affects trade targets, stars, veterans and prospects**\
-`Chris Drury's letter opened the door for opposing general managers to ask about anyone on the roster. Here's who could be affected.`\
-https://nytimes.com/athletic/6977481/2026/01/16/ny-rangers-trade-rumors-chris-drury-nhl/
 
