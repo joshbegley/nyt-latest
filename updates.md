@@ -1,3 +1,19 @@
+**A Tale of Two Meetings: Trump Chooses Oil Over Democracy**\
+`Two conversations this week confirmed that President Trump backs the remnants of Nicolás Maduro’s regime over the Venezuelan opposition seeking to hold elections.`\
+https://nytimes.com/2026/01/16/world/americas/venezuela-trump-machado-rodriguez.html
+
+**N.Y.C. Council Leader Takes on Antisemitism, and Possibly Mamdani**\
+`The Council speaker, Julie Menin, will introduce bills that would establish a buffer zone at houses of worship to keep protesters at some distance from congregants.`\
+https://nytimes.com/2026/01/16/nyregion/julie-menin-antisemitism-mamdani.html
+
+**Nurses Describe Fear on the Job as Bitter Strike Enters Fifth Day**\
+`Both sides in the labor dispute appear poised for a protracted battle, and only one of three hospitals was negotiating with the strikers.`\
+https://nytimes.com/2026/01/16/nyregion/nyc-nurses-strike-negotiations-safety.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/16/crosswords/spelling-bee-forum.html
+
 **Ex-South Korean Leader Gets Prison Term in First Ruling Over Martial Law**\
 `A court handed down five years in prison to former President Yoon Suk Yeol, who is facing multiple trials stemming from his short-lived imposition of martial law.`\
 https://nytimes.com/2026/01/16/world/asia/skorea-yoon-prison-martial-law.html
