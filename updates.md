@@ -1,3 +1,15 @@
+**Rays land Gavin Lux, Angels get Josh Lowe in 3-team trade: Source**\
+`Moving Lux and his $5.525 million salary could be a precursor to another move to upgrade the Reds' offense.`\
+https://nytimes.com/athletic/6975949/2026/01/15/angels-red-rays-trade-mlb-josh-lowe-gavin-lux/
+
+**Kyle Tucker signs with the Dodgers: Everything you need to know**\
+`From Tucker's consistent rise to the best remaining free agents, here's the background and impact of his megadeal with the Dodgers.  `\
+https://nytimes.com/athletic/6974880/2026/01/15/kyle-tucker-free-agency-primer-dodgers-mlb/
+
+**Bowness bump: Blue Jackets lock down drama-free win behind 'calm' Merzlikins**\
+`The Blue Jackets stayed poised in the third period and never trailed against the Canucks.`\
+https://nytimes.com/athletic/6975883/2026/01/15/blue-jackets-bowness-merzlikins-johnson-canucks/
+
 **Samson Nacua thought car he took was his brother Puka's, investigators say**\
 `Nacua was selected by the Birmingham Stallions on Tuesday during the first day of the UFL's draft.`\
 https://nytimes.com/athletic/6975880/2026/01/15/samson-nacua-car-mistake-brother-puka-adou-thiero/

@@ -1,3 +1,15 @@
+**Rays land Gavin Lux, Angels get Josh Lowe in 3-team trade: Source**\
+`Moving Lux and his $5.525 million salary could be a precursor to another move to upgrade the Reds' offense.`\
+https://nytimes.com/athletic/6975949/2026/01/15/angels-red-rays-trade-mlb-josh-lowe-gavin-lux/
+
+**Kyle Tucker signs with the Dodgers: Everything you need to know**\
+`From Tucker's consistent rise to the best remaining free agents, here's the background and impact of his megadeal with the Dodgers.  `\
+https://nytimes.com/athletic/6974880/2026/01/15/kyle-tucker-free-agency-primer-dodgers-mlb/
+
+**Bowness bump: Blue Jackets lock down drama-free win behind 'calm' Merzlikins**\
+`The Blue Jackets stayed poised in the third period and never trailed against the Canucks.`\
+https://nytimes.com/athletic/6975883/2026/01/15/blue-jackets-bowness-merzlikins-johnson-canucks/
+
 **Samson Nacua thought car he took was his brother Puka's, investigators say**\
 `Nacua was selected by the Birmingham Stallions on Tuesday during the first day of the UFL's draft.`\
 https://nytimes.com/athletic/6975880/2026/01/15/samson-nacua-car-mistake-brother-puka-adou-thiero/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6975818/2026/01/15/warriors-steve-kerr-jonathan-kum
 **What Kyle Tucker's signing means for the Dodgers – and the Blue Jays and Mets**\
 `While the Dodgers get to add Tucker to their arsenal, the runners-up in his sweepstakes now must figure out alternative plans.`\
 https://nytimes.com/athletic/6975608/2026/01/15/kyle-tucker-free-agency-mets-dodgers-blue-jays/
-
-**Gonzaga's Braden Huff could miss remainder of season with knee injury**\
-`Huff leads the country in total field goals with 146 makes.`\
-https://nytimes.com/athletic/6975827/2026/01/15/braden-huff-gonzaga-injury/
-
-**Dodgers, Kyle Tucker agree to deal, add No. 1 free agent to championship roster: Sources**\
-`By investing in Tucker’s future, the Dodgers are getting an elite left-handed hitter with well-rounded skills. `\
-https://nytimes.com/athletic/6971728/2026/01/15/kyle-tucker-dodgers-mlb-free-agency/
-
-**Do Some Cleaning**\
-`Kyle Dolan opens our solving weekend.`\
-https://nytimes.com/2026/01/15/crosswords/daily-puzzle-2025-01-16.html
 
