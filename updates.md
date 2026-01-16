@@ -1,3 +1,7 @@
+**How would you run Real Madrid? Here's what our reader survey says**\
+`In a dramatic week for Real Madrid, we asked for your thoughts on the big issues facing them. This is what you said`\
+https://nytimes.com/athletic/6974017/2026/01/16/real-madrid-alonso-sacking-survery-arbeloa/
+
 **For some Purdue fans, Indiana football's hard-to-fathom rise is a 'living nightmare'**\
 `Will IU hang a football banner before Purdue gets the basketball championship it has chased its entire history?`\
 https://nytimes.com/athletic/6975903/2026/01/16/indiana-football-cfp-national-championship-purdue-rivalry/
