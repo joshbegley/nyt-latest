@@ -1,3 +1,7 @@
+**Texans' Nico Collins to miss playoff game vs. Patriots with concussion**\
+`Collins led Houston receivers with 71 catches this season and his 1,117 yards and six receiving TDs were tops on the team.`\
+https://nytimes.com/athletic/6977678/2026/01/16/nico-collins-texans-concussion-divisional-playoffs-patriots/
+
 **Wild place leading goal scorer Matt Boldy on injured reserve**\
 `The Wild also placed Joel Eriksson Ek on IR retroactively to last Thursday, meaning he can return when he's ready.`\
 https://nytimes.com/athletic/6977673/2026/01/16/wild-matt-boldy-injured-reserve-joel-eriksson-ek/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/16/us/politics/trump-allies-ballroom-commission.html
 **Coach Laura Harvey embraces stability, continues her commitment to Seattle Reign**\
 `From ownership changes and roster turnover to that ChatGPT moment, Laura Harvey has found staying power with Seattle Reign. `\
 https://nytimes.com/athletic/6977508/2026/01/16/seattle-reign-laura-harvey-contract-extension/
-
-**How the Rangers' 'retool' letter affects trade targets, stars, veterans and prospects**\
-`Chris Drury's letter opened the door for opposing general managers to ask about anyone on the roster. Here's who could be affected.`\
-https://nytimes.com/athletic/6977481/2026/01/16/ny-rangers-trade-rumors-chris-drury-nhl/
 
