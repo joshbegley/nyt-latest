@@ -1,3 +1,11 @@
+**Dodgers, Kyle Tucker agree to deal, add No. 1 free agent to championship roster: Sources**\
+`By investing in Tucker’s future, the Dodgers are getting an elite left-handed hitter with well-rounded skills. `\
+https://nytimes.com/athletic/6971728/2026/01/15/kyle-tucker-dodgers-mlb-free-agency/
+
+**Do Some Cleaning**\
+`Kyle Dolan opens our solving weekend.`\
+https://nytimes.com/2026/01/15/crosswords/daily-puzzle-2025-01-16.html
+
 **Rory McIlroy sounds as if he thinks LIV Golf shanked it**\
 `The five-time major champion says Brooks Koepka's return is another indication the rival tour has a shaky future.`\
 https://nytimes.com/athletic/6975641/2026/01/15/rory-mcilroy-liv-golf-brooks-koepka/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6975580/2026/01/15/chargers-jim-harbaugh-joe-hortiz
 **Many Fiery Remarks, Little Clarity on What’s Next at Security Council Meeting on Iran**\
 `Iran’s representative denied the country had killed protesters, as the U.S. ambassador said President Trump had made clear “all options are on the table” to stop the killing.`\
 https://nytimes.com/2026/01/15/world/middleeast/iran-protests-security-council.html
-
-**This Winter, the Best Puffer Jackets Come With Big Pockets**\
-`These utility-inflected styles are practical yet polished.`\
-https://nytimes.com/2026/01/15/t-magazine/puffer-jackets-pockets-best.html
-
-**Trump Administration Lawsuit Seeking California Voter Data Is Dismissed**\
-`The Justice Department has sued about two dozen states over access to voter rolls, as the federal government pushes to create a national database.`\
-https://nytimes.com/2026/01/15/us/california-voter-roll-lawsuit-trump.html
 
