@@ -1,3 +1,7 @@
+**Rory McIlroy sounds as if he thinks LIV Golf shanked it**\
+`The five-time major champion says Brooks Koepka's return is another indication the rival tour has a shaky future.`\
+https://nytimes.com/athletic/6975641/2026/01/15/rory-mcilroy-liv-golf-brooks-koepka/
+
 **‘Heated Rivalry’ has a fan in Gary Bettman: ‘I binged it in one night’**\
 `The 73-year-old called the hit TV show a "wonderful" and "compelling" story but said the content "might be a little spicy" for young people.`\
 https://nytimes.com/athletic/6975677/2026/01/15/heated-rivalry-nhl-gary-bettman-hockey/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/15/t-magazine/puffer-jackets-pockets-best.html
 **Trump Administration Lawsuit Seeking California Voter Data Is Dismissed**\
 `The Justice Department has sued about two dozen states over access to voter rolls, as the federal government pushes to create a national database.`\
 https://nytimes.com/2026/01/15/us/california-voter-roll-lawsuit-trump.html
-
-**Venezuela’s Interim Leader Balances Maduro’s Script With Trump’s Demands**\
-`In her State of the Union address, Delcy Rodríguez echoed her predecessors’ fiery rhetoric but tried to hew to President Trump’s agenda.`\
-https://nytimes.com/2026/01/15/world/americas/venezuela-rodriguez-maduro-trump.html
 
