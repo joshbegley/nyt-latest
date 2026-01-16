@@ -1,3 +1,7 @@
+**Gonzaga's Braden Huff could miss remainder of season with knee injury**\
+`Huff leads the country in total field goals with 146 makes`\
+https://nytimes.com/athletic/6975827/2026/01/15/braden-huff-gonzaga-injury/
+
 **Dodgers, Kyle Tucker agree to deal, add No. 1 free agent to championship roster: Sources**\
 `By investing in Tucker’s future, the Dodgers are getting an elite left-handed hitter with well-rounded skills. `\
 https://nytimes.com/athletic/6971728/2026/01/15/kyle-tucker-dodgers-mlb-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6975657/2026/01/15/bruins-zdeno-chara-number-retire
 **What we learned from Jim Harbaugh and Joe Hortiz's end-of-season news conference**\
 `Harbaugh sounds prepared to give his next offensive coordinator broad responsibility and allow him to be "head coach of the offense."`\
 https://nytimes.com/athletic/6975580/2026/01/15/chargers-jim-harbaugh-joe-hortiz-news-conference/
-
-**Many Fiery Remarks, Little Clarity on What’s Next at Security Council Meeting on Iran**\
-`Iran’s representative denied the country had killed protesters, as the U.S. ambassador said President Trump had made clear “all options are on the table” to stop the killing.`\
-https://nytimes.com/2026/01/15/world/middleeast/iran-protests-security-council.html
 
