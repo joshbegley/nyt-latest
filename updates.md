@@ -1,3 +1,15 @@
+**2hollis Addresses the ‘Nepo Baby’ Label**\
+`On a new episode of “Popcast,” the rising alt-pop star 2Hollis spoke to Jon Caramanica and Joe Coscarelli and ... his dad, the drummer for the veteran Chicago rock band Tortoise, to address accusations that his parents’ careers in music are responsible for his own success.`\
+https://nytimes.com/video/podcasts/100000010644333/2hollis-addresses-the-nepo-baby-label.html
+
+**Romeo Santos Brought English Speaking Artists Toward Bachata**\
+`Romeo Santos and Prince Royce linked up with “Popcast” to discuss the ways that earlier bachata collaborations with artists like Usher and Drake predicted how “Despacito” and Bad Bunny would bring English-language artists toward Latin music.`\
+https://nytimes.com/video/podcasts/100000010644329/romeo-santos-brought-english-speaking-artists-toward-bachata.html
+
+**‘The Disappear’ Review: A Couple on the Rocks and Out of Sync**\
+`Erica Schmidt’s discordant comedy, starring Hamish Linklater and Miriam Silverman, is a farce clumsily straddling two genres.`\
+https://nytimes.com/2026/01/16/theater/the-disappear-review-erica-schmidt.html
+
 **Trump Sets Fraudster Free From Prison for a Second Time**\
 `The president issued a raft of clemency grants this week, including pardoning a woman he had given relief to once before and a man whose daughter had donated millions to a Trump super PAC.`\
 https://nytimes.com/2026/01/16/us/politics/trump-fraudster-pardon.html
