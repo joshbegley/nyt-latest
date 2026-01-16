@@ -1,40 +1,40 @@
-**U.S. Says It Erred in Deporting Student Traveling for Thanksgiving**\
-`The Trump administration acknowledged it mistakenly deported a college student to Honduras despite a court order barring the removal. But the government has not moved to drop the case.`\
-https://nytimes.com/2026/01/15/us/politics/trump-deportation-student-traveling-thanksgiving.html
+**Edu, his Arsenal past and his Nottingham Forest present**\
+`The Brazilian arrived last July as owner Evangelos Marinakis' global head of football having built a title-contending squad at the Emirates`\
+https://nytimes.com/athletic/6973631/2026/01/16/edu-nottingham-forest-arsenal-analysis/
 
-**South Carolina outlasts Texas in SEC showdown, avenging early-season loss**\
-`Raven Johnson's late-game baskets boosted South Carolina, which now moves atop the SEC standings while Texas remains in third.`\
-https://nytimes.com/athletic/6975720/2026/01/15/texas-south-carolina-womens-basketball-sec-recap/
+**Quote of the Day: In Bitter Winter Freeze, Russia Focuses on Wiping Out the Heat**\
+`Quotation for the Day for Friday, January 16, 2026.`\
+https://nytimes.com/2026/01/16/pageoneplus/quote-of-the-day-in-bitter-winter-freeze-russia-focuses-on-wiping-out-the-heat.html
 
-**Rays land Gavin Lux, Angels get Josh Lowe in 3-team trade: Source**\
-`Moving Lux and his $5.525 million salary could be a precursor to another move to upgrade the Reds' offense.`\
-https://nytimes.com/athletic/6975949/2026/01/15/angels-red-rays-trade-mlb-josh-lowe-gavin-lux/
+**Battles Over Truth Rage Online Amid Iran’s Internet Blackout**\
+`The shutdown of online discourse within Iran has allowed both the government and its critics to flood social media outside the country with disinformation campaigns and fake images.`\
+https://nytimes.com/2026/01/16/business/battles-over-truth-rage-online-amid-irans-internet-blackout.html
 
-**Kyle Tucker signs with the Dodgers: Everything you need to know**\
-`From Tucker's consistent rise to the best remaining free agents, here's the background and impact of his megadeal with the Dodgers.  `\
-https://nytimes.com/athletic/6974880/2026/01/15/kyle-tucker-free-agency-primer-dodgers-mlb/
+**Corrections: Jan. 16, 2026**\
+`Corrections that appeared in print on Friday, Jan. 16, 2026.`\
+https://nytimes.com/2026/01/16/pageoneplus/corrections-jan-16-2026.html
 
-**Bowness bump: Blue Jackets lock down drama-free win behind 'calm' Merzlikins**\
-`The Blue Jackets stayed poised in the third period and never trailed against the Canucks.`\
-https://nytimes.com/athletic/6975883/2026/01/15/blue-jackets-bowness-merzlikins-johnson-canucks/
+**They Ran a Campaign Together, Then Love Came After**\
+`When Talia Marcus and Charles Blaettler met while working on the campaign trail, they weren’t expecting love. Good thing it came anyway.`\
+https://nytimes.com/2026/01/16/style/talia-marcus-charles-blaettler-wedding.html
 
-**Samson Nacua thought car he took was his brother Puka's, investigators say**\
-`Nacua was selected by the Birmingham Stallions on Tuesday during the first day of the UFL's draft.`\
-https://nytimes.com/athletic/6975880/2026/01/15/samson-nacua-car-mistake-brother-puka-adou-thiero/
+**Please Cheat on Me**\
+`Why did I keep fantasizing about catching my faithful boyfriend in bed with another woman?`\
+https://nytimes.com/2026/01/16/style/modern-love-please-cheat-on-me.html
 
-**Video Analysis of ICE Shooting Sheds Light on Contested Moments**\
-`Newly available videos and existing footage synchronized and assessed by The Times provides a millisecond by millisecond look at how an ICE officer ended up shooting and killing a motorist in Minneapolis.`\
-https://nytimes.com/2026/01/15/video/ice-shooting-renee-good-minneapolis-videos.html
+**Uber’s Quest to Crack Japan Leads Through a Rural Hot-Springs Town**\
+`The ride-hailing giant’s chief executive has made a bet on how it can finally grab a bigger piece of one of the world’s largest taxi markets.`\
+https://nytimes.com/2026/01/16/business/uber-japan-dara-khosrowshahi.html
 
-**Video Analysis of ICE Shooting Sheds Light on Contested Moments**\
-`Newly available videos and existing footage synchronized and assessed by The Times provides a millisecond-by-millisecond look at how an ICE officer ended up shooting and killing a motorist in Minneapolis.`\
-https://nytimes.com/video/us/100000010648638/ice-shooting-renee-good-minneapolis-videos-analysis.html
+**A Slow, Awkward Dance Started It All**\
+`Before Paul Melnikow and Alan Pierson spoke to each other, they danced at the ‘queer prom,’ about 20 hours into Taylor Mac’s 24-hour performance.`\
+https://nytimes.com/2026/01/16/style/paul-melnikow-alan-pierson-wedding.html
 
-**Red Bull reveals Ford-powered livery for 2026 F1 car at team launch**\
-`The livery harkens back to Red Bull's first livery in 2005, and marks the start of Ford's partnership with the team`\
-https://nytimes.com/athletic/6975257/2026/01/15/f1-red-bull-2026-car-launch-ford-livery/
+**For Two Floridians, a Michigan Winter Solidified Their Bond**\
+`Ashley Knott and Tobias Kammerer are opposites — she’s very social, while he needs “to be peeled like an onion.” But a big move created a deeper connection.`\
+https://nytimes.com/2026/01/16/style/ashley-knott-tobias-kammerer-wedding.html
 
-**‘The Pitt’ Season 2, Episode 2 Recap: Dirty Work**\
-`Viewers got extra intimate this week with the hard physical realities of life in the emergency ward.`\
-https://nytimes.com/2026/01/15/arts/television/the-pitt-recap-season-2-episode-2.html
+**Connections: Sports Edition Coach: Hints for Jan. 16, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6976142/2026/01/16/connections-sports-edition-hints-for-jan-16-2026/
 
