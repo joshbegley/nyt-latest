@@ -1,3 +1,7 @@
+**Jakub Mensik, Barely Out of His Teens, Makes an Impact**\
+`He recently beat many of the top players, including Taylor Fritz and Novak Djokovic. He now takes on the Australian Open.`\
+https://nytimes.com/2026/01/16/sports/tennis/jakub-mensik-australian-open.html
+
 **How Greenland Is Reacting to Trump’s Threats**\
 `Our reporter Jeffrey Gettleman is on the ground in Greenland, seeing how people have reacted to Trump’s desire to take it over. He and our senior writer Katrin Bennhold discuss what Greenland means to the United States, Denmark and Greenlanders.`\
 https://nytimes.com/video/world/europe/100000010642168/how-greenland-is-reacting-to-trumps-threats.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6972291/2026/01/16/nhl-coach-quiz-test-rick-bowness
 **How to Protect Your Tax Refund if You’ve Defaulted on Your Student Loans**\
 `Millions of people are at risk of the government’s seizing their refunds to pay what is owed on student loans.`\
 https://nytimes.com/2026/01/16/your-money/tax-refunds-student-loans-default.html
-
-**Is This Billionaire a Financial Genius or a Fraudster?**\
-`Michael Saylor’s financial alchemy thrust an ordinary software company, Strategy, into the center of the crypto frenzy. It all worked spectacularly, until now.`\
-https://nytimes.com/2026/01/16/business/michael-saylor-strategy-bitcoin.html
 

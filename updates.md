@@ -1,3 +1,7 @@
+**Jakub Mensik, Barely Out of His Teens, Makes an Impact**\
+`He recently beat many of the top players, including Taylor Fritz and Novak Djokovic. He now takes on the Australian Open.`\
+https://nytimes.com/2026/01/16/sports/tennis/jakub-mensik-australian-open.html
+
 **How Greenland Is Reacting to Trump’s Threats**\
 `Our reporter Jeffrey Gettleman is on the ground in Greenland, seeing how people have reacted to Trump’s desire to take it over. He and our senior writer Katrin Bennhold discuss what Greenland means to the United States, Denmark and Greenlanders.`\
 https://nytimes.com/video/world/europe/100000010642168/how-greenland-is-reacting-to-trumps-threats.html
