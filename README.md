@@ -1,40 +1,40 @@
-**As Arctic Air Barrels South, a Snowy Weekend Is on the Table**\
-`Abnormally blustery temperatures this weekend could usher in snowy weather across the East. Exactly where remains uncertain, but even the Deep South is on alert.`\
-https://nytimes.com/2026/01/16/weather/snow-cold-forecast-us-south.html
+**Casemiro's Man Utd contract option can be triggered by number of starts**\
+`The Brazilian has started 18 times this season, with United only having 17 more games to play.`\
+https://nytimes.com/athletic/6968979/2026/01/16/casemiro-manchester-united-contract-option/
 
-**Why Caleb Williams' incredible fourth-and-8 throw will go down in Bears history**\
-`Williams' rolling, leaping pass to Rome Odunze will not be forgotten by Bears fans, no matter what happens next. Here's how it resonates.`\
-https://nytimes.com/athletic/6975699/2026/01/16/bears-caleb-williams-incredible-pass-packers/
+**The Maple Leafs leave the Mitch Marner Bowl hurt and frustrated**\
+`The Leafs lost their first reunion with Marner and a key player to injury in Thursday night defeat's to Vegas.`\
+https://nytimes.com/athletic/6976074/2026/01/16/maple-leafs-mitch-marner-vegas/
 
-**USC has lost four in a row. Can Trojans get back on track and make the tournament?**\
-`Despite lacking JuJu Watkins and going through growing pains, USC isn’t treating this season as a gap year.`\
-https://nytimes.com/athletic/6976353/2026/01/16/usc-womens-basketball-ncaa-tournament-juju-watkins/
+**Three NFC West teams are still alive. Which has the best chance to reach the Super Bowl?**\
+`The Seahawks will host the 49ers, while the Rams travel to Chicago to face the Bears. Could we have an NFC West conference championship?`\
+https://nytimes.com/athletic/6974866/2026/01/16/nfc-west-seahawks-49ers-rams-2025-playoffs/
 
-**Trump Store to Close as Sales Falter, With No Election Battles Ahead**\
-`The shop in suburban Philadelphia had been a gathering spot for the MAGA crowd to rally during the 2024 campaign.`\
-https://nytimes.com/2026/01/16/us/politics/trump-store-to-close-as-sales-falter-with-no-election-battles-ahead.html
+**Michkov's slide, Cooley vs. Slafkovský and more debates from Pronman's midseason U23 ranking**\
+`On the latest episode of "The Athletic Hockey Show Prospect Series," the panel dissected Pronman's list.`\
+https://nytimes.com/athletic/6969668/2026/01/16/nhl-prospects-players-ranking-u23-pronman-midseason/
 
-**NFL playoffs: Key matchups to watch in each AFC divisional game**\
-`Dalton Kincaid can be important for the Bills versus a stout Broncos defense while the Patriots need peak Milton Williams versus the Texans.`\
-https://nytimes.com/athletic/6973043/2026/01/16/nfl-playoffs-afc-divisional-matchups/
+**John Harbaugh or Mike Tomlin? A quiz on 2 long-serving NFL coaches**\
+`A 10-question quiz about the careers of Harbaugh and Tomlin gets at some of the similarities and differences of their NFL tenures.`\
+https://nytimes.com/athletic/6975954/2026/01/16/john-harbaugh-mike-tomlin-quiz/
 
-**The Pulse: The Dodgers are building the Death Star**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6975906/2026/01/16/kyle-tucker-dodgers-the-pulse/
+**The Athletic’s Friday football quiz question #89**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6974527/2026/01/16/the-athletics-friday-football-quiz-question-89/
 
-**Chiefs mock draft reaction: Caleb Downs a 'difference-maker' — but not a great fit**\
-`The Athletic's Dane Brugler has the Chiefs taking safety Caleb Downs in his latest mock draft. Here are the pros and cons for that choice.`\
-https://nytimes.com/athletic/6974380/2026/01/16/chiefs-mock-draft-reaction-caleb-downs/
+**Where Scams Come From**\
+`We take a look at some remarkable reporting from Myanmar.`\
+https://nytimes.com/2026/01/16/briefing/where-scams-come-from.html
 
-**How bad can your offense be and still reach the Super Bowl?**\
-`The Seahawks had the NFL's best defense but a below-average offense during the regular season. Here's what history says about their chances.`\
-https://nytimes.com/athletic/6972868/2026/01/16/super-bowl-contenders-defense-seahawks/
+**'They were hypnotised': Liam Rosenior and Keith Andrews, the punditry years**\
+`The Chelsea and Brentford head coaches both spent part of their post-playing careers in front of the camera `\
+https://nytimes.com/athletic/6963122/2026/01/16/rosenior-andrews-tsky-sports-pundit-chelsea-brentford/
 
-**Wangerheim joins Man Utd from Hammarby**\
-`The Sweden international has made 138 appearances for Hammarby, scoring 65 goals and is United's third signing of the transfer window.`\
-https://nytimes.com/athletic/6965726/2026/01/16/ellen-wangerheim-manchester-united-transfer/
+**Perpetually in the transfer portal? Meet The Athletic's All-Frequent Flyer Team**\
+`We've picked an all-star team of players who have spent time at a minimum of four schools. Our captain is a QB who is at stop No. 7.`\
+https://nytimes.com/athletic/6973805/2026/01/16/college-football-all-transfer-portal-team/
 
-**Stuart Skinner's calming presence guides Penguins in romp over Flyers**\
-`Six players scored goals for the Penguins and Stuart Skinner held down the fort in a rough second period to beat the Flyers.`\
-https://nytimes.com/athletic/6953905/2026/01/16/penguins-skinner-goaltending-lizotte-flyers/
+**Bills' inexperienced safeties create juicy area for Sean Payton to attack**\
+`Broncos coach will throw some wrinkles into Saturday's gameplan in an effort to test Buffalo's defensive backfield.`\
+https://nytimes.com/athletic/6975686/2026/01/16/bills-inexperienced-safeties-broncos-sean-payton/
 
