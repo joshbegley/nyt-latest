@@ -1,3 +1,19 @@
+**Met Museum Employees Vote to Unionize**\
+`The bargaining unit, which includes curatorial, conservation and retail departments, could represent about half of the Met’s work force.`\
+https://nytimes.com/2026/01/16/arts/design/met-museum-union-vote.html
+
+**U.S. Lawmakers Meet With Danish Prime Minister on Greenland**\
+`Seeking to calm tensions, Republicans and Democrats affirmed that they supported Denmark’s control of Greenland as President Trump vowed to buy it or take it over.`\
+https://nytimes.com/2026/01/16/us/politics/trump-greenland-denmark-lawmakers.html
+
+**Mets to sign Bo Bichette to 3-year deal in stunning move: Sources**\
+`The move comes roughly 12 hours after the Mets missed out on Kyle Tucker.`\
+https://nytimes.com/athletic/6792079/2026/01/16/bo-bichette-mlb-free-agency-signing-new-york-mets/
+
+**Powell, an Unlikely Foil, Takes On Trump**\
+`Jerome H. Powell, the chair of the Federal Reserve, this week tapped a groundswell of support that has been years in the making.`\
+https://nytimes.com/2026/01/16/us/politics/powell-trump-investigation.html
+
 **Notre Dame final thoughts: Marcus Freeman's ambition and Irish's portal comeback**\
 `If Notre Dame makes another College Football Playoff run, Freeman will again be at the top of NFL coaching lists. And that’s OK.`\
 https://nytimes.com/athletic/6976884/2026/01/16/notre-dame-marcus-freeman-final-thoughts/
