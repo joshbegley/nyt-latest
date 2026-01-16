@@ -1,3 +1,7 @@
+**Former Olympic swimmer Agnel indicted for alleged child assault**\
+`The 33-year-old has denied any coercion took place in the alleged acts on a minor under 15 years of age. `\
+https://nytimes.com/athletic/6976923/2026/01/16/yannick-agnel-olympic-swimmer-assault-indictment/
+
 **Thousands of Chinese Fishing Boats Quietly Form Vast Sea Barriers**\
 `China is practicing vast maneuvers that could be used to disrupt U.S. naval movement, a New York Times analysis of ship data reveals.`\
 https://nytimes.com/interactive/2026/01/16/world/asia/china-ships-fishing-militia-blockade.html
