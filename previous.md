@@ -1,8 +1,20 @@
+**Rosenthal: Dodgers’ splurge on Tucker will increase calls for a salary cap, but MLB needs other fixes**\
+`The star outfielder's four-year deal with the team includes a record average annual value of $57.1 million.`\
+https://nytimes.com/athletic/6976696/2026/01/16/dodgers-kyle-tucker-lockout-mlb-labor/
+
+**Kyle Tucker's contract allows the Dodgers to capitalize on their dynasty run**\
+`Concern over Tommy Edman's surgery recovery might have given the Dodgers more incentive to land Tucker.`\
+https://nytimes.com/athletic/6975936/2026/01/16/dodgers-kyle-tucker-mlb-contract-dynasty/
+
+**Agent Who Shot Renee Good Was Trained to Track and Apprehend Fugitives**\
+`From Iraq to ICE, Jonathan Ross’s career reflects a 20-year government effort to reshape immigration enforcement with a military mind-set.`\
+https://nytimes.com/2026/01/16/us/ice-agent-minneapolis-jonathan-ross.html
+
 **City close to finalising £20m Guehi deal**\
 `Injuries to Josko Gvardiol and Ruben Dias have depleted City's centre-back depth.`\
 https://nytimes.com/athletic/6955695/2026/01/16/marc-guehi-manchester-city-transfer-palace/
 
-**Pistons' fourth-quarter defense comes through again in Detroit: 'That's who we are'**\
+**Pistons' fourth-quarter defense comes through again: 'That's who we are'**\
 `"I thought in that second half, and in the fourth quarter in particular, we got stingy," says Pistons head coach J.B. Bickerstaff. `\
 https://nytimes.com/athletic/6976425/2026/01/16/detroit-pistons-defense-win-phoenix-suns/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/16/business/michael-saylor-strategy-bitcoin.html
 **What’s Next for Cuba, Now That Its Main Oil Supplier Is Gone?**\
 `The Soviet Union was Cuba’s benefactor for decades. Venezuela took up the slack, and Mexico has supplied “humanitarian aid.” But the world is changing rapidly, our columnist says.`\
 https://nytimes.com/2026/01/16/business/cuba-venezuela-mexico-oil-diplomacy.html
-
-**Premier League title, relegation and top four battle, odds and predictions**\
-`How is the Premier League table shaping up heading into matchweek 22?`\
-https://nytimes.com/athletic/6976633/2026/01/16/premier-league-races-how-the-title-champions-league-and-relegation-battles-are-shaping-up/
-
-**Oliver Glasner to leave Crystal Palace this summer for a 'new challenge'**\
-`Glasner guided Palace to their first major trophy as his side lifted the FA Cup last season but will leave the club at the end of the season`\
-https://nytimes.com/athletic/6569088/2026/01/16/glasner-crystal-palace-manager-leaving/
-
-**With or without Giannis, Bucks look lost halfway through their season**\
-`At 17-24, the Bucks have their worst record through 41 games since the 2015-16 season, Antetokounmpo's third in the NBA.`\
-https://nytimes.com/athletic/6976274/2026/01/16/giannis-antetokounmpo-bucks-season-lost/
 

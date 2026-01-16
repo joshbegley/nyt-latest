@@ -1,3 +1,19 @@
+**Rosenthal: Dodgers’ splurge on Tucker will increase calls for a salary cap, but MLB needs other fixes**\
+`The star outfielder's four-year deal with the team includes a record average annual value of $57.1 million.`\
+https://nytimes.com/athletic/6976696/2026/01/16/dodgers-kyle-tucker-lockout-mlb-labor/
+
+**Kyle Tucker's contract allows the Dodgers to capitalize on their dynasty run**\
+`Concern over Tommy Edman's surgery recovery might have given the Dodgers more incentive to land Tucker.`\
+https://nytimes.com/athletic/6975936/2026/01/16/dodgers-kyle-tucker-mlb-contract-dynasty/
+
+**Agent Who Shot Renee Good Was Trained to Track and Apprehend Fugitives**\
+`From Iraq to ICE, Jonathan Ross’s career reflects a 20-year government effort to reshape immigration enforcement with a military mind-set.`\
+https://nytimes.com/2026/01/16/us/ice-agent-minneapolis-jonathan-ross.html
+
+**Pistons' fourth-quarter defense comes through again: 'That's who we are'**\
+`"I thought in that second half, and in the fourth quarter in particular, we got stingy," says Pistons head coach J.B. Bickerstaff. `\
+https://nytimes.com/athletic/6976425/2026/01/16/detroit-pistons-defense-win-phoenix-suns/
+
 **City close to finalising £20m Guehi deal**\
 `Injuries to Josko Gvardiol and Ruben Dias have depleted City's centre-back depth.`\
 https://nytimes.com/athletic/6955695/2026/01/16/marc-guehi-manchester-city-transfer-palace/
