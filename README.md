@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6973814/2026/01/16/womens-football-what-we-are-hear
 https://nytimes.com/athletic/6974791/2026/01/16/bills-broncos-predictions-picks/
 
 **Canada Breaks With U.S. to Slash Tariffs on Some Chinese Electric Vehicles**\
-`China will in turn cut its own tariffs on Canadian canola products. The countries’ leaders met in Beijing on Friday and hailed a new strategic partnership.`\
+`China will in turn cut its own tariffs on Canadian canola products, Prime Minister Mark Carney of Canada said in Beijing on Friday.`\
 https://nytimes.com/2026/01/16/world/canada/canada-slash-tariffs-chinese-evs.html
 
 **Albacete 'pained and ashamed' after banana thrown at Vinicius Jr**\
