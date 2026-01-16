@@ -1,3 +1,11 @@
+**U.S. Says It Erred in Deporting Student Traveling for Thanksgiving**\
+`The Trump administration acknowledged it mistakenly deported a college student to Honduras despite a court order barring the removal. But the government has not moved to drop the case.`\
+https://nytimes.com/2026/01/15/us/politics/trump-deportation-student-traveling-thanksgiving.html
+
+**South Carolina outlasts Texas in SEC showdown, avenging early-season loss**\
+`Raven Johnson's late-game baskets boosted South Carolina, who now move atop the SEC standings while Texas remains in third.`\
+https://nytimes.com/athletic/6975720/2026/01/15/texas-south-carolina-womens-basketball-sec-recap/
+
 **Rays land Gavin Lux, Angels get Josh Lowe in 3-team trade: Source**\
 `Moving Lux and his $5.525 million salary could be a precursor to another move to upgrade the Reds' offense.`\
 https://nytimes.com/athletic/6975949/2026/01/15/angels-red-rays-trade-mlb-josh-lowe-gavin-lux/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6975257/2026/01/15/f1-red-bull-2026-car-launch-ford
 **‘The Pitt’ Season 2, Episode 2 Recap: Dirty Work**\
 `Viewers got extra intimate this week with the hard physical realities of life in the emergency ward.`\
 https://nytimes.com/2026/01/15/arts/television/the-pitt-recap-season-2-episode-2.html
-
-**Steve Kerr: Jonathan Kuminga trade rumors 'won't be a distraction' for Warriors**\
-`Kerr downplayed Kuminga trade rumors, saying the Warriors remain focused and unified ahead of the deadline.`\
-https://nytimes.com/athletic/6975818/2026/01/15/warriors-steve-kerr-jonathan-kuminga-rumors/
-
-**What Kyle Tucker's signing means for the Dodgers – and the Blue Jays and Mets**\
-`While the Dodgers get to add Tucker to their arsenal, the runners-up in his sweepstakes now must figure out alternative plans.`\
-https://nytimes.com/athletic/6975608/2026/01/15/kyle-tucker-free-agency-mets-dodgers-blue-jays/
 
