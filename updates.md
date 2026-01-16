@@ -1,3 +1,7 @@
+**Trump’s New Military Threat to Minnesota**\
+`Readers react to the unrest in Minnesota. Also: Parallels to the past; the Nobel Peace Prize medal; nuclear power; Bob Weir and the Grateful Dead.`\
+https://nytimes.com/2026/01/16/opinion/trump-minnesota.html
+
 **Rangers tell fans they are officially entering a 'retool'**\
 `Drury met individually with New York's leadership group and held a full team meeting Friday to brace them for the news, per a league source.`\
 https://nytimes.com/athletic/6977496/2026/01/16/new-york-rangers-retool/
