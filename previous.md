@@ -1,36 +1,32 @@
-**How to watch Bulls vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6977642/2026/01/16/bulls-vs-nets-stream-how-to-watch-jan-16/
+**Inside the Mets' stunning pivot to Bo Bichette**\
+`The Mets envision Bichette as an elite clubhouse presence: "Exactly the type of guy we want on our team."`\
+https://nytimes.com/athletic/6977448/2026/01/16/mets-mlb-bo-bichette-free-agency/
 
-**How to watch Timberwolves vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6977638/2026/01/16/timberwolves-vs-rockets-stream-how-to-watch-jan-16/
+**Jonathan Haidt Brings New Evidence to the Battle Against Social Media**\
+`The author of “The Anxious Generation” shares his latest research about the harms social media is doing to children.`\
+https://nytimes.com/2026/01/16/podcasts/jonathan-haidt-new-evidence.html
 
-**How to watch Clippers vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6977636/2026/01/16/clippers-vs-raptors-stream-how-to-watch-jan-16/
+**A $12.6 Billion Budget Gap May Complicate Mamdani’s Affordability Plans**\
+`The New York City comptroller, Mark Levine, said that poor budgeting practices by the previous mayor, Eric Adams, had left the city with looming deficits.`\
+https://nytimes.com/2026/01/16/nyregion/budget-deficit-nyc.html
 
-**How to watch Wizards vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6977633/2026/01/16/wizards-vs-kings-stream-how-to-watch-jan-16/
+**Jonathan Haidt Brings New Evidence to the Battle Against Social Media**\
+`The author of “The Anxious Generation” shares his latest research about the harms social media is doing to children.`\
+https://nytimes.com/video/podcasts/100000010650259/jonathan-haidt-brings-new-evidence-to-the-battle-against-social-media.html
 
-**How to watch Ducks vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6977631/2026/01/16/ducks-vs-kings-stream-how-to-watch-jan-16/
+**Dodgers leverage winning culture, creative contracts to land Kyle Tucker, other top free agents**\
+`The Dodgers don't just have money to throw at free agents. They offer a chance for them to win titles, get paid and re-enter the market.`\
+https://nytimes.com/athletic/6977418/2026/01/16/dodgers-kyle-tucker-short-term-contracts-large-salaries/
 
-**After a failed Phillies pursuit of Bo Bichette, now what?**\
-`The Phillies were offering Bichette seven years and somewhere in the range of $190M to $200M. He chose a shorter-term deal with the Mets. `\
-https://nytimes.com/athletic/6977518/2026/01/16/phillies-bo-bichette-offer-mets/
+**Trump and States Aim to Stop A.I. From Inflating Energy Bills**\
+`Demand from centers that power artificial intelligence has driven up electricity bills, frustrating consumers.`\
+https://nytimes.com/2026/01/16/business/trump-ai-electricity-costs.html
 
-**Dean Evason says he was blindsided by firing, believed in Blue Jackets' turnaround**\
-`"I know I'm a good coach," Evason told The Athletic, after becoming the first NHL head coach fired this season.`\
-https://nytimes.com/athletic/6977373/2026/01/16/blue-jackets-dean-evason-blindsided-fired/
+**Dear America, Greenland Is Not on Zillow**\
+`Trump wants Greenland? Its previous colonizer has some thoughts.`\
+https://nytimes.com/video/opinion/100000010648106/dear-america-greenland-is-not-on-zillow.html
 
-**How to watch Lightning vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6977628/2026/01/16/lightning-vs-blues-stream-how-to-watch-jan-16/
-
-**How to watch Predators vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6977625/2026/01/16/predators-vs-avalanche-stream-how-to-watch-jan-16/
+**Trump’s New Military Threat to Minnesota**\
+`Readers react to the unrest in Minnesota. Also: Parallels to the past; the Nobel Peace Prize medal; nuclear power; Bob Weir and the Grateful Dead.`\
+https://nytimes.com/2026/01/16/opinion/trump-minnesota.html
 
