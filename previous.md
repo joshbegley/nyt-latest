@@ -1,3 +1,7 @@
+**Seahawks' Mike Macdonald 'optimistic' Sam Darnold plays vs. 49ers**\
+`Macdonald declined to say whether Darnold threw passes during Friday's practice session ahead of their playoff game vs. the 49ers.`\
+https://nytimes.com/athletic/6977789/2026/01/16/sam-darnold-seahawks-49ers-injury-update/
+
 **Texans' Nico Collins to miss playoff game vs. Patriots with concussion**\
 `Collins led Houston receivers with 71 catches this season and his 1,117 yards and six receiving TDs were tops on the team.`\
 https://nytimes.com/athletic/6977678/2026/01/16/nico-collins-texans-concussion-divisional-playoffs-patriots/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/16/us/minneapolis-ice-protest-winter-weather.html
 **Trump Appoints Allies to Review His Ballroom Plans**\
 `A federal judge has allowed the ballroom project to proceed after the Trump administration pledged to undergo a review by the Commission of Fine Arts.`\
 https://nytimes.com/2026/01/16/us/politics/trump-allies-ballroom-commission.html
-
-**Coach Laura Harvey embraces stability, continues her commitment to Seattle Reign**\
-`From ownership changes and roster turnover to that ChatGPT moment, Laura Harvey has found staying power with Seattle Reign. `\
-https://nytimes.com/athletic/6977508/2026/01/16/seattle-reign-laura-harvey-contract-extension/
 

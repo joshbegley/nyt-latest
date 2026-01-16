@@ -1,3 +1,7 @@
+**Seahawks' Mike Macdonald 'optimistic' Sam Darnold plays vs. 49ers**\
+`Macdonald declined to say whether Darnold threw passes during Friday's practice session ahead of their playoff game vs. the 49ers.`\
+https://nytimes.com/athletic/6977789/2026/01/16/sam-darnold-seahawks-49ers-injury-update/
+
 **Texans' Nico Collins to miss playoff game vs. Patriots with concussion**\
 `Collins led Houston receivers with 71 catches this season and his 1,117 yards and six receiving TDs were tops on the team.`\
 https://nytimes.com/athletic/6977678/2026/01/16/nico-collins-texans-concussion-divisional-playoffs-patriots/
