@@ -1,3 +1,7 @@
+**Former Olympic swimmer Agnel indicted for alleged child assault**\
+`The 33-year-old has denied any coercion took place in the alleged acts on a minor under 15 years of age. `\
+https://nytimes.com/athletic/6976923/2026/01/16/yannick-agnel-olympic-swimmer-assault-indictment/
+
 **Thousands of Chinese Fishing Boats Quietly Form Vast Sea Barriers**\
 `China is practicing vast maneuvers that could be used to disrupt U.S. naval movement, a New York Times analysis of ship data reveals.`\
 https://nytimes.com/interactive/2026/01/16/world/asia/china-ships-fishing-militia-blockade.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6974339/2026/01/16/edmonton-oilers-stats-matt-savoi
 **What’s Going On in This Picture? | Jan. 26, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2026/01/16/learning/whats-going-on-in-this-picture-jan-26-2026.html
-
-**From a D.J. Set to Church, and Back Again**\
-`When the writer Lamorna Ash set out to explore young people’s relationship to faith and religion, she found herself questioning her own.`\
-https://nytimes.com/2026/01/16/style/lamorna-ash-book-religious-conversion.html
 
