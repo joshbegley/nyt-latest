@@ -1,3 +1,7 @@
+**Man Who Attacked a Thai Grandfather in 2021 Is Found Not Guilty of Murder**\
+`Instead, the man was convicted of lesser charges, including involuntary manslaughter, in the death of Vicha Ratanapakdee. The killing became a symbol of rising attacks against Asians during the pandemic.`\
+https://nytimes.com/2026/01/16/us/vicha-ratanapakdee-verdict-sf.html
+
 **Twins sign catcher Victor Caratini to 2-year deal: Source**\
 `With Ryan Jeffers set to hit free agency after the upcoming season, Caratini gives the Twins some stability behind the plate beyond 2026.`\
 https://nytimes.com/athletic/6977953/2026/01/16/mlb-victor-caratini-free-agency-twins/
