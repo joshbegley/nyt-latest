@@ -1,3 +1,15 @@
+**iVisit Boxing wants a world record crowd, Usyk and YouTube - but is it credible?**\
+`Examining the big plans Ed Pereira has for his new firm and how it wants to stage an historic bout in San Francisco`\
+https://nytimes.com/athletic/6976622/2026/01/16/ivisit-boxing-world-record-crowd-usyk/
+
+**Fantasy Premier League live Q&A: Gameweek 22 advice from Ben Dinnery**\
+`Ben Dinnery of premierinjuries.com is on hand from 4mp-5pm (GMT) to offer his expert advice and give you the best chance of success`\
+https://nytimes.com/athletic/6976566/2026/01/16/fantasy-premier-league-gameweek-22-advice-tips-ben-dinnery/
+
+**‘The Headlines’ News Quiz: Jan. 16, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://nytimes.com/2026/01/16/podcasts/the-headlines/the-headlines-news-quiz.html
+
 **Casemiro's Man Utd contract option can be triggered by number of starts**\
 `The Brazilian has started 18 times this season, with United only having 17 more games to play.`\
 https://nytimes.com/athletic/6968979/2026/01/16/casemiro-manchester-united-contract-option/
