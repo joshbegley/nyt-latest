@@ -1,3 +1,19 @@
+**Failed Experiment?**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2026/01/16/learning/failed-experiment.html
+
+**Canada and China Will Lower Some Tariffs in ‘New Strategic Partnership’**\
+`Prime Minister Mark Carney of Canada announced that Canada would slash tariffs on some Chinese electric vehicles and that, in return, China would reduce tariffs on Canadian canola products.`\
+https://nytimes.com/video/world/asia/100000010648831/china-canada-xi-carney-tariffs.html
+
+**Madison Keys' Australian Open title did not change her life – but that was never the point**\
+`The American's journey toward winning her first major makes defending the crown feel like less of a mountain to climb.`\
+https://nytimes.com/athletic/6976641/2026/01/16/tennis-madison-keys-australian-open-title-defense/
+
+**Who really wants Ja Morant? Does anyone? Plus, the latest NBA trade rumors**\
+`Ja Morant's trade saga underscores the difference between teams simply showing interest in a player and legitimately pursuing him in a deal.`\
+https://nytimes.com/athletic/6975545/2026/01/16/nba-trade-deadline-ja-morant-grizzlies-news-updates/
+
 **iVisit Boxing wants a world record crowd, Usyk and YouTube - but is it credible?**\
 `Examining the big plans Ed Pereira has for his new firm and how it wants to stage an historic bout in San Francisco`\
 https://nytimes.com/athletic/6976622/2026/01/16/ivisit-boxing-world-record-crowd-usyk/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6976074/2026/01/16/maple-leafs-mitch-marner-vegas/
 **Three NFC West teams are still alive. Which has the best chance to reach the Super Bowl?**\
 `The Seahawks will host the 49ers, while the Rams travel to Chicago to face the Bears. Could we have an NFC West conference championship?`\
 https://nytimes.com/athletic/6974866/2026/01/16/nfc-west-seahawks-49ers-rams-2025-playoffs/
-
-**Michkov's slide, Cooley vs. Slafkovský and more debates from Pronman's midseason U23 ranking**\
-`On the latest episode of "The Athletic Hockey Show Prospect Series," the panel dissected Pronman's list.`\
-https://nytimes.com/athletic/6969668/2026/01/16/nhl-prospects-players-ranking-u23-pronman-midseason/
-
-**John Harbaugh or Mike Tomlin? A quiz on 2 long-serving NFL coaches**\
-`A 10-question quiz about the careers of Harbaugh and Tomlin gets at some of the similarities and differences of their NFL tenures.`\
-https://nytimes.com/athletic/6975954/2026/01/16/john-harbaugh-mike-tomlin-quiz/
-
-**The Athletic’s Friday football quiz question #89**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6974527/2026/01/16/the-athletics-friday-football-quiz-question-89/
-
-**Where Scams Come From**\
-`We take a look at some remarkable reporting from Myanmar.`\
-https://nytimes.com/2026/01/16/briefing/where-scams-come-from.html
 
