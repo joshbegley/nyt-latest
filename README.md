@@ -1,3 +1,7 @@
+**The Bounce: Is the MVP race already over?**\
+`Welcome to The Bounce, The Athletic's NBA newsletter.`\
+https://nytimes.com/athletic/6977064/2026/01/16/mvp-season-awards-race-the-bounce/
+
 **‘Dilbert’ Was Always MAGA**\
 `My visit with Scott Adams, who anticipated Donald Trump with his comic strip.`\
 https://nytimes.com/2026/01/16/opinion/dilbert-scott-adams-maga.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/preparing-to-d
 **Even Nicolás Maduro’s Prosecutors Are Tied Up Reviewing Epstein Files**\
 `The Trump Administration’s exhaustive examination of materials on the convicted sex trafficker Jeffrey Epstein is drawing resources from other cases.`\
 https://nytimes.com/2026/01/16/nyregion/epstein-maduro-sdny.html
-
-**NHL Power Rankings: Congrats to our fake All-Stars**\
-`Actual best-on-best hockey coming in less than a month’s time. Today, we mourn what could’ve been with our picks for a fake All-Star Game.`\
-https://nytimes.com/athletic/6976709/2026/01/16/nhl-power-rankings-all-stars-olympics/
 
