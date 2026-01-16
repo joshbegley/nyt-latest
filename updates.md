@@ -1,3 +1,7 @@
+**Here's where Mets' final offer landed for Kyle Tucker**\
+`The Mets lost out on Tucker to the Dodgers after they reached an agreement on a four-year deal worth $240 million, per league sources.`\
+https://nytimes.com/athletic/6976359/2026/01/16/mets-kyle-tucker-offer-free-agency/
+
 **Canada Breaks With U.S. to Slash Tariffs on Some Chinese Electric Vehicles**\
 `China will in turn cut its own tariffs on Canadian canola products. The countries’ leaders met in Beijing on Friday and hailed a new strategic partnership.`\
 https://nytimes.com/2026/01/16/world/canada/canada-slash-tariffs-chinese-evs.html

@@ -31,7 +31,7 @@ https://nytimes.com/2026/01/16/world/asia/skorea-yoon-prison-martial-law.html
 https://nytimes.com/2026/01/16/arts/television/late-night-trump-milk.html
 
 **Here's where Mets' final offer landed for Kyle Tucker**\
-`The New York Mets offered Kyle Tucker the kind of short-term arrangement befitting a superstar.`\
+`The Mets lost out on Tucker to the Dodgers after they reached an agreement on a four-year deal worth $240 million, per league sources.`\
 https://nytimes.com/athletic/6976359/2026/01/16/mets-kyle-tucker-offer-free-agency/
 
 **Word of the Day: panacea**\
