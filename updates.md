@@ -1,3 +1,19 @@
+**As Klay Thompson moves into 4th on 3s made list, his love for the game keeps him going**\
+`What keeps the Mavericks' guard going in the later stages of his career? "I love shooting the basketball," Thompson said.`\
+https://nytimes.com/athletic/6976272/2026/01/16/klay-thompson-damian-lillard-3-pointers/
+
+**The New Mayor of Davos**\
+`Larry Fink, BlackRock’s chief executive, led an effort to elevate the World Economic Forum next week, the first without the event’s founder, Klaus Schwab.`\
+https://nytimes.com/2026/01/16/business/dealbook/fink-davos-wef.html
+
+**What Teenagers Are Saying About the Pressure to Be Perfect**\
+`Students react to a guest essay about how the quest for flawlessness is harming society.`\
+https://nytimes.com/2026/01/16/learning/what-teenagers-are-saying-about-the-pressure-to-be-perfect.html
+
+**Do Your Parents Ever Play Favorites?**\
+`Research says that favoritism is common — with effects that can last a lifetime.`\
+https://nytimes.com/2026/01/16/learning/do-your-parents-ever-play-favorites.html
+
 **Failed Experiment?**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2026/01/16/learning/failed-experiment.html
