@@ -1,3 +1,7 @@
+**‘He wasn’t good’: How Chara's self-made legacy sent his No. 33 to the rafters**\
+`“There was nobody else in the history of the game that really worked that hard,” said former partner Dennis Seidenberg.`\
+https://nytimes.com/athletic/6975657/2026/01/15/bruins-zdeno-chara-number-retirement/
+
 **What we learned from Jim Harbaugh and Joe Hortiz's end-of-season news conference**\
 `Harbaugh sounds prepared to give his next offensive coordinator broad responsibility and allow him to be "head coach of the offense."`\
 https://nytimes.com/athletic/6975580/2026/01/15/chargers-jim-harbaugh-joe-hortiz-news-conference/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/15/business/taiwan-trade-deal.html
 **Couple Says ICE Agents Gassed Them as They Drove With 6 Children**\
 `Shawn and Destiny Jackson said they were trying to escape a clash between ICE and protesters when agents used tear gas near their car. Their children gasped for air.`\
 https://nytimes.com/2026/01/15/us/minneapolis-couple-ice-tear-gas-6-children.html
-
-**Former Building Super Is Convicted of Stealing $350,000 From 98-Year-Old**\
-`Rosalind Hernandez, who worked in a co-op building in Manhattan, befriended and then bilked a vulnerable resident, prosecutors said.`\
-https://nytimes.com/2026/01/15/nyregion/building-superintendent-larceny-manhattan.html
 
