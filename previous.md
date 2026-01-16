@@ -1,3 +1,15 @@
+**How to watch Sharks vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6977126/2026/01/16/sharks-vs-red-wings-stream-how-to-watch-jan-16/
+
+**How to watch Cavaliers vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6977123/2026/01/16/cavaliers-vs-76ers-stream-how-to-watch-jan-16/
+
+**How to watch Pelicans vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6977120/2026/01/16/pelicans-vs-pacers-stream-how-to-watch-jan-16/
+
 **Julio Iglesias Denies Sexual Abuse Claims by Former Employees**\
 `The singer called the accusations “completely false” in a statement released after Spanish prosecutors said they would investigate.`\
 https://nytimes.com/2026/01/16/arts/music/julio-iglesias-sexual-assault-allegations.html
@@ -21,16 +33,4 @@ https://nytimes.com/2026/01/16/dining/petite-but-powerful-spinach-egg-bites.html
 **Five Science Fiction Movies to Stream Now**\
 `In this month’s picks, hijacked bullet trains, comet creatures and time loops in the British countryside.`\
 https://nytimes.com/2026/01/16/movies/science-fiction-movies-streaming.html
-
-**Former Olympic swimmer Agnel indicted for alleged child assault**\
-`The 33-year-old has denied any coercion took place in the alleged acts on a minor under 15 years of age. `\
-https://nytimes.com/athletic/6976923/2026/01/16/yannick-agnel-olympic-swimmer-assault-indictment/
-
-**Thousands of Chinese Fishing Boats Quietly Form Vast Sea Barriers**\
-`China is practicing vast maneuvers that could be used to disrupt U.S. naval movement, a New York Times analysis of ship data reveals.`\
-https://nytimes.com/interactive/2026/01/16/world/asia/china-ships-fishing-militia-blockade.html
-
-**Is this the year that finally crumbles the NHL's playoff format?**\
-`Plus: Who's the next big name on the move?`\
-https://nytimes.com/athletic/6976972/2026/01/16/nhl-playoff-format-revision-red-light/
 
