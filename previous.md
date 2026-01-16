@@ -1,3 +1,11 @@
+**Seth Meyers Never Guessed Trump Was Such a Milk Fan**\
+`The “Late Night” host said there was no way President Trump drank milk, “unless someone tricked you into thinking your Diet Coke came from a cow.”`\
+https://nytimes.com/2026/01/16/arts/television/late-night-trump-milk.html
+
+**Here's where Mets' final offer landed for Kyle Tucker**\
+`The New York Mets offered Kyle Tucker the kind of short-term arrangement befitting a superstar.`\
+https://nytimes.com/athletic/6976359/2026/01/16/mets-kyle-tucker-offer-free-agency/
+
 **Word of the Day: panacea**\
 `This word has appeared in 121 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/16/learning/word-of-the-day-panacea.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6973644/2026/01/16/liverpool-transfers-centre-backs
 **Carl Rushworth and Eiran Cashin giving Brighton a mixed taste of the loan market**\
 `The pair's contrasting fortunes this season show that picking the right club for a player to join on loan is a risky business`\
 https://nytimes.com/athletic/6969380/2026/01/16/brighton-rushworth-cashin-loans/
-
-**The defenders who are proving impossible to ignore in Fantasy Premier League**\
-`The defender market is wide open in FPL, and it provides an opportunity for those seeking strong value outside of the premium bracket`\
-https://nytimes.com/athletic/6971607/2026/01/16/fantasy-premier-league-fpl-tips-gameweek-22/
-
-**Harry Wilson and Leeds remains a big 'what if', but Farke's team have coped without him**\
-`The move for the Fulham man collapsed last year and he has been in superb form ever since, but Leeds shouldn't get too hung up about it`\
-https://nytimes.com/athletic/6974603/2026/01/16/harry-wilson-leeds-fulham-premier-league/
 

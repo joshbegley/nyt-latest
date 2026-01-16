@@ -1,3 +1,11 @@
+**Seth Meyers Never Guessed Trump Was Such a Milk Fan**\
+`The “Late Night” host said there was no way President Trump drank milk, “unless someone tricked you into thinking your Diet Coke came from a cow.”`\
+https://nytimes.com/2026/01/16/arts/television/late-night-trump-milk.html
+
+**Here's where Mets' final offer landed for Kyle Tucker**\
+`The New York Mets offered Kyle Tucker the kind of short-term arrangement befitting a superstar.`\
+https://nytimes.com/athletic/6976359/2026/01/16/mets-kyle-tucker-offer-free-agency/
+
 **Word of the Day: panacea**\
 `This word has appeared in 121 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/16/learning/word-of-the-day-panacea.html
