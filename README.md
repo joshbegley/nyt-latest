@@ -1,3 +1,7 @@
+**Trump Administration Lawsuit Seeking California Voter Data Is Dismissed**\
+`The Justice Department has sued about two dozen states over access to voter rolls, as the federal government pushes to create a national database.`\
+https://nytimes.com/2026/01/15/us/california-voter-roll-lawsuit-trump.html
+
 **Venezuela’s Interim Leader Balances Maduro’s Script With Trump’s Demands**\
 `In her State of the Union address, Delcy Rodríguez echoed her predecessors’ fiery rhetoric but tried to hew to President Trump’s agenda.`\
 https://nytimes.com/2026/01/15/world/americas/venezuela-rodriguez-maduro-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6975420/2026/01/15/joe-bessner-boopie-miller-viral-
 **Ryan Weathers is open to arsenal tweaks: 'Whatever the Yankees want me to do'**\
 `The Yankees' newly acquired left-hander sees his job as pitching "in whatever capacity it is for however long it is."`\
 https://nytimes.com/athletic/6975380/2026/01/15/yankees-ryan-weathers-pitching-arsenal-health/
-
-**Preliminary injunction denied in legal challenge to NCAA redshirt rules**\
-`Judge William L. Campbell’s ruling means five plaintiffs, including Vanderbilt's Langston Patterson, remain out of eligibility.`\
-https://nytimes.com/athletic/6975458/2026/01/15/ncaa-redshirt-rules-langston-patterson-case/
 
