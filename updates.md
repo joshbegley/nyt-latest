@@ -1,3 +1,7 @@
+**Samson Nacua thought car he took was his brother Puka's, investigators say**\
+`Nacua was selected by the Birmingham Stallions on Tuesday during the first day of the UFL's draft.`\
+https://nytimes.com/athletic/6975880/2026/01/15/samson-nacua-car-mistake-brother-puka-adou-thiero/
+
 **Video Analysis of ICE Shooting Sheds Light on Contested Moments**\
 `Newly available videos and existing footage synchronized and assessed by The Times provides a millisecond by millisecond look at how an ICE officer ended up shooting and killing a motorist in Minneapolis.`\
 https://nytimes.com/2026/01/15/video/ice-shooting-renee-good-minneapolis-videos.html
