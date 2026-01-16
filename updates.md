@@ -1,3 +1,11 @@
+**Former Building Super Is Convicted of Stealing $350,000 From 98-Year-Old**\
+`Rosalind Hernandez, who worked in a co-op building in Manhattan, befriended and then bilked a vulnerable resident, prosecutors said.`\
+https://nytimes.com/2026/01/15/nyregion/building-superintendent-larceny-manhattan.html
+
+**What Did the White House and Denmark Agree to on Greenland? Depends Whom You Ask.**\
+`The White House and Denmark contradicted each other in public about what they had agreed to this week as President Trump continued to demand U.S. ownership of Greenland.`\
+https://nytimes.com/2026/01/15/us/politics/white-house-greenland-meeting.html
+
 **Meet the man behind the fire of Boopie Miller’s viral buzzer-beater celebration**\
 `Joe Bessner lit the flames that turned into a viral moment. Now, he's getting ready for the Super Bowl.`\
 https://nytimes.com/athletic/6975420/2026/01/15/joe-bessner-boopie-miller-viral-buzzer-beater-celebration/

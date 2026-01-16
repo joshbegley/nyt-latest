@@ -1,3 +1,11 @@
+**Former Building Super Is Convicted of Stealing $350,000 From 98-Year-Old**\
+`Rosalind Hernandez, who worked in a co-op building in Manhattan, befriended and then bilked a vulnerable resident, prosecutors said.`\
+https://nytimes.com/2026/01/15/nyregion/building-superintendent-larceny-manhattan.html
+
+**What Did the White House and Denmark Agree to on Greenland? Depends Whom You Ask.**\
+`The White House and Denmark contradicted each other in public about what they had agreed to this week as President Trump continued to demand U.S. ownership of Greenland.`\
+https://nytimes.com/2026/01/15/us/politics/white-house-greenland-meeting.html
+
 **Meet the man behind the fire of Boopie Miller’s viral buzzer-beater celebration**\
 `Joe Bessner lit the flames that turned into a viral moment. Now, he's getting ready for the Super Bowl.`\
 https://nytimes.com/athletic/6975420/2026/01/15/joe-bessner-boopie-miller-viral-buzzer-beater-celebration/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/15/movies/the-rip-review.html
 **Why ASAP Rocky’s New Album Took So Long**\
 `The musician and actor A$AP Rocky sat down with Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, to discuss the release of his first album in eight years.`\
 https://nytimes.com/video/podcasts/100000010648632/why-asap-rockys-new-album-took-so-long.html
-
-**Was Renee Good Obligated to Comply With an ICE Agent’s Orders?**\
-`The agent told Ms. Good to get out of her car before fatally shooting her. Legal experts said immigration agents may sometimes, but not always, have the authority to make such commands.`\
-https://nytimes.com/2026/01/15/us/renee-good-ice-agent-comply-legal.html
-
-**After multiple signings, the Reds' bullpen is improved, but where’s the offense?**\
-`New signees Pierce Johnson and Caleb Ferguson, along with the re-signed Emilio Pagán, help solidify the Reds' 2026 bullpen.`\
-https://nytimes.com/athletic/6975205/2026/01/15/cincinnati-reds-pierce-johnson-bullpen-improvement/
 
