@@ -1,3 +1,7 @@
+**Meet the man behind the fire of Boopie Miller’s viral buzzer-beater celebration**\
+`Joe Bessner lit the flames that turned into a viral moment. Now, he's getting ready for the Super Bowl.`\
+https://nytimes.com/athletic/6975420/2026/01/15/joe-bessner-boopie-miller-viral-buzzer-beater-celebration/
+
 **Ryan Weathers is open to arsenal tweaks: 'Whatever the Yankees want me to do'**\
 `The Yankees' newly acquired left-hander sees his job as pitching "in whatever capacity it is for however long it is."`\
 https://nytimes.com/athletic/6975380/2026/01/15/yankees-ryan-weathers-pitching-arsenal-health/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/15/us/renee-good-ice-agent-comply-legal.html
 **After multiple signings, the Reds' bullpen is improved, but where’s the offense?**\
 `New signees Pierce Johnson and Caleb Ferguson, along with the re-signed Emilio Pagán, help solidify the Reds' 2026 bullpen.`\
 https://nytimes.com/athletic/6975205/2026/01/15/cincinnati-reds-pierce-johnson-bullpen-improvement/
-
-**Florida Panthers visit President Trump at White House to celebrate 2025 Stanley Cup win**\
-`The Panthers visited the White House for a second consecutive year.`\
-https://nytimes.com/athletic/6975067/2026/01/15/trump-white-house-florida-panthers-stanley-cup/
 

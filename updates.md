@@ -1,3 +1,7 @@
+**Meet the man behind the fire of Boopie Miller’s viral buzzer-beater celebration**\
+`Joe Bessner lit the flames that turned into a viral moment. Now, he's getting ready for the Super Bowl.`\
+https://nytimes.com/athletic/6975420/2026/01/15/joe-bessner-boopie-miller-viral-buzzer-beater-celebration/
+
 **Ryan Weathers is open to arsenal tweaks: 'Whatever the Yankees want me to do'**\
 `The Yankees' newly acquired left-hander sees his job as pitching "in whatever capacity it is for however long it is."`\
 https://nytimes.com/athletic/6975380/2026/01/15/yankees-ryan-weathers-pitching-arsenal-health/
