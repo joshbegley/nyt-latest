@@ -1,3 +1,7 @@
+**Powell, an Unlikely Foil, Takes on Trump**\
+`Jerome H. Powell, the chair of the Federal Reserve, this week tapped a groundswell of support that has been years in the making.`\
+https://nytimes.com/2026/01/16/us/politics/powell-trump-investigation.html
+
 **John Calipari proposes collective bargaining as a way to fix college sports**\
 `Calipari, the outspoken Arkansas head basketball coach and Naismith Hall of Famer, made his case in an op-ed in The Washington Post.`\
 https://nytimes.com/athletic/6976924/2026/01/16/college-sports-collective-bargaining-john-calipari/
@@ -25,12 +29,4 @@ https://nytimes.com/athletic/6977126/2026/01/16/sharks-vs-red-wings-stream-how-t
 **How to watch Cavaliers vs. 76ers: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Philadelphia 76ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6977123/2026/01/16/cavaliers-vs-76ers-stream-how-to-watch-jan-16/
-
-**How to watch Pelicans vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6977120/2026/01/16/pelicans-vs-pacers-stream-how-to-watch-jan-16/
-
-**Julio Iglesias Denies Sexual Abuse Claims by Former Employees**\
-`The singer called the accusations “completely false” in a statement released after Spanish prosecutors said they would investigate.`\
-https://nytimes.com/2026/01/16/arts/music/julio-iglesias-sexual-assault-allegations.html
 
