@@ -1,3 +1,7 @@
+**Gonzaga's Braden Huff could miss remainder of season with knee injury**\
+`Huff leads the country in total field goals with 146 makes`\
+https://nytimes.com/athletic/6975827/2026/01/15/braden-huff-gonzaga-injury/
+
 **Rory McIlroy: LIV Golf hasn't 'signed anyone who moves the needle'**\
 `The five-time major champion says Brooks Koepka's return is another indication the rival tour has a shaky future.`\
 https://nytimes.com/athletic/6975641/2026/01/15/rory-mcilroy-liv-golf-brooks-koepka/
