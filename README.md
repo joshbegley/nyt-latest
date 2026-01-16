@@ -1,3 +1,7 @@
+**The Pulse: The Dodgers are building the Death Star**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6975906/2026/01/16/kyle-tucker-dodgers-the-pulse/
+
 **Chiefs mock draft reaction: Caleb Downs a 'difference-maker' — but not a great fit**\
 `The Athletic's Dane Brugler has the Chiefs taking safety Caleb Downs in his latest mock draft. Here are the pros and cons for that choice.`\
 https://nytimes.com/athletic/6974380/2026/01/16/chiefs-mock-draft-reaction-caleb-downs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6976076/2026/01/16/the-mets-still-have-to-catch-up-
 **A new trend is emerging among casual bettors this NFL postseason**\
 `As the NFL playoffs continue, a new trend has emerged with bettors this year.`\
 https://nytimes.com/athletic/6973830/2026/01/16/super-bowl-betting-bears-patriots-exactas/
-
-**Carolina Hurricanes face two tests as measuring sticks for future success**\
-`If the Hurricanes want to reach the highest level, they can show a lot in upcoming games.`\
-https://nytimes.com/athletic/6975964/2026/01/16/carolina-hurricanes-standings-nhl/
 
