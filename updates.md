@@ -1,3 +1,11 @@
+**Bill Belichick to join ACC Network's CFP title game coverage**\
+`Former Miami and Georgia head coach Mark Richt is expected to share the desk with Belichick.`\
+https://nytimes.com/athletic/6977963/2026/01/16/bill-belichick-acc-network-cfp-championship/
+
+**Trump Sets Convicted Fraudster Free for a Second Time**\
+`Also, the C.I.A. director met Venezuela’s new leader in Caracas. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2026/01/16/briefing/trump-pardons-venezuela-cia-director.html
+
 **Sailing Through a ‘Death Trap’ Once Covered by Antarctic Ice**\
 `Part of Pine Island Glacier collapsed several years ago, forming an unstable inlet where no ship had sailed. Until now.`\
 https://nytimes.com/2026/01/16/climate/antarctica-expedition-pine-island-glacier.html
