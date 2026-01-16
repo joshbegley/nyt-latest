@@ -1,3 +1,15 @@
+**Greek Court Acquits Rescue Workers Accused of Smuggling Migrants**\
+`The 24 former volunteers, including the refugee turned campaigner Sara Mardini, were prosecuted after helping migrants during the European refugee crisis nearly a decade ago.`\
+https://nytimes.com/2026/01/16/world/greece-migration-trial-rescue-workers.html
+
+**At the Australian Open, these Players Represent Southeast Asia’s Potential**\
+`Alexandra Eala and Janice Tjen are part of a new wave of young, talented players from Southeast Asia, an area sparsely represented in professional tennis.`\
+https://nytimes.com/2026/01/16/sports/tennis/australian-open-southeast-asia.html
+
+**Emery worries Villa's Kamara could face long spell out with knee injury**\
+`The midfielder sustained the injury in the opening minutes of the FA Cup victory over Tottenham Hotspur on Saturday.`\
+https://nytimes.com/athletic/6976854/2026/01/16/boubacar-kamara-aston-villa-injury-latest/
+
 **Jakub Mensik, Barely Out of His Teens, Makes an Impact**\
 `He recently beat many of the top players, including Taylor Fritz and Novak Djokovic. He now takes on the Australian Open.`\
 https://nytimes.com/2026/01/16/sports/tennis/jakub-mensik-australian-open.html
