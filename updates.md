@@ -1,3 +1,7 @@
+**For some Purdue fans, Indiana football's hard-to-fathom rise is a 'living nightmare'**\
+`Will IU hang a football banner before Purdue gets the basketball championship it has chased its entire history?`\
+https://nytimes.com/athletic/6975903/2026/01/16/indiana-football-cfp-national-championship-purdue-rivalry/
+
 **Man Utd vs Man City: Tactical battles? Key players? Impact of derby atmosphere?**\
 `With the 198th Manchester derby taking place on Saturday, two of our writers discuss the big talking points`\
 https://nytimes.com/athletic/6973607/2026/01/16/manchester-united-v-manchester-city-preview/
