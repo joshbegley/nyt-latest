@@ -1,3 +1,7 @@
+**Jesper Wallstedt, Wild come unglued in undisciplined loss to Jets: Takeaways**\
+`Two goals against in 11 seconds to close out the first period, plus inopportune penalties, helped dig a hole the Wild couldn't escape.`\
+https://nytimes.com/athletic/6975565/2026/01/16/wild-wallstedt-penalties-foligno-jets/
+
 **The New York Times in Print for Friday, Jan. 16, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/16/todays-new-york-times

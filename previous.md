@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6974603/2026/01/16/harry-wilson-leeds-fulham-premie
 `India is co-hosting the 20-team tournament, starting on February 7, but Bangladesh has said it will join Pakistan in not playing there`\
 https://nytimes.com/athletic/6945184/2026/01/16/cricket-t20-world-cup-indian-tensions-explained/
 
-**Wallstedt, Wild come unglued in undisciplined loss to Jets: Takeaways**\
+**Jesper Wallstedt, Wild come unglued in undisciplined loss to Jets: Takeaways**\
 `Two goals against in 11 seconds to close out the first period, plus inopportune penalties, helped dig a hole the Wild couldn't escape.`\
 https://nytimes.com/athletic/6975565/2026/01/16/wild-wallstedt-penalties-foligno-jets/
 
