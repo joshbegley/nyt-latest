@@ -1,3 +1,7 @@
+**Ryan Weathers is open to arsenal tweaks: 'Whatever the Yankees want me to do'**\
+`The Yankees' newly acquired left-hander sees his job as pitching "in whatever capacity it is for however long it is."`\
+https://nytimes.com/athletic/6975380/2026/01/15/yankees-ryan-weathers-pitching-arsenal-health/
+
 **The Nobel Medal Has Been Sold Before for Millions of Dollars**\
 `The Nobel Committee has said the prize cannot be transferred, but it has been sold in a few auctions over the award’s history.`\
 https://nytimes.com/2026/01/15/world/americas/nobel-peace-prize-sold-auctions.html
