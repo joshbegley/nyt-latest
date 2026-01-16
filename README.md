@@ -1,3 +1,11 @@
+**NFL divisional round projected scores: Model predicts point spreads and totals for every game**\
+`Austin Mock's NFL Projection Model gives its view on what to expect for the divisional round.`\
+https://nytimes.com/athletic/6977328/2026/01/16/nfl-divisional-round-model-projected-scores-spreads-totals/
+
+**Phillies to re-sign J.T. Realmuto to 3-year deal after missing out on Bo Bichette: Sources**\
+`Realmuto was the best-available catcher in free agency, but he'll turn 35 in March and is coming off one of his worst offensive seasons. `\
+https://nytimes.com/athletic/6814376/2026/01/16/phillies-jt-realmuto-mlb-free-agency/
+
 **Mexico’s president defends her nation’s antidrug efforts following U.S. criticism.**\
 `By David Shortell`\
 https://nytimes.com/live/2026/01/16/us/trump-news/mexicos-president-defends-her-nations-antidrug-efforts-following-us-criticism
@@ -25,12 +33,4 @@ https://nytimes.com/video/dining/100000010644536/tzatziki-chickpea-salad.html
 **Whole Roasted Squash With Tomato-Ginger Chickpeas**\
 `With creamy squash, sticky chickpeas and tangy yogurt, this vegetarian sheet-pan feast easily serves a crowd. The method here doesn’t bother with cutting rock-hard raw winter squash. Instead, roast them whole until you can rip them apart into wedges.`\
 https://nytimes.com/video/dining/100000010644525/whole-roasted-squash-with-tomato-ginger-chickpeas.html
-
-**I Can’t Believe It’s Not Chicken (Super-Savory Grated Tofu)**\
-`Grating super-firm tofu is one of the best party tricks in the kitchen. It makes tofu not only quicker to prepare (no pressing required!) but also deceptively meaty. The grated tofu is then pan-fried until golden and coated in a flavor-rich sauce.`\
-https://nytimes.com/video/dining/100000010644519/i-cant-believe-its-not-chicken-super-savory-grated-tofu.html
-
-**Until Saturday: When Miami was the original Indiana**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6977367/2026/01/16/indiana-miami-history-until-saturday/
 
