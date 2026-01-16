@@ -1,3 +1,15 @@
+**Inside the Mets' stunning pivot to Bo Bichette**\
+`The Mets envision Bichette as an elite clubhouse presence: "Exactly the type of guy we want on our team."`\
+https://nytimes.com/athletic/6977448/2026/01/16/mets-mlb-bo-bichette-free-agency/
+
+**Jonathan Haidt Brings New Evidence to the Battle Against Social Media**\
+`The author of “The Anxious Generation” shares his latest research about the harms social media is doing to children.`\
+https://nytimes.com/2026/01/16/podcasts/jonathan-haidt-new-evidence.html
+
+**Trump and States Aim to Stop A.I. From Inflating Energy Bills**\
+`Demand from centers that power artificial intelligence has driven up electricity bills, frustrating consumers.`\
+https://nytimes.com/2026/01/16/business/trump-ai-electricity-costs.html
+
 **A $12.6 Billion Budget Gap May Complicate Mamdani’s Affordability Plans**\
 `The New York City comptroller, Mark Levine, said that poor budgeting practices by the previous mayor, Eric Adams, had left the city with looming deficits.`\
 https://nytimes.com/2026/01/16/nyregion/budget-deficit-nyc.html
