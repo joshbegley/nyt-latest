@@ -1,3 +1,11 @@
+**Canada Breaks With U.S. to Slash Tariffs on Some Chinese EVs**\
+`China will in turn cut its own tariffs on Canadian canola products. The countries’ leaders met in Beijing on Friday and hailed a new strategic partnership.`\
+https://nytimes.com/2026/01/16/world/canada/canada-slash-tariffs-chinese-evs.html
+
+**Albacete 'pained and ashamed' after banana thrown at Vinicius**\
+`The 25-year-old, who has been repeatedly targeted for racial abuse in Spain for several years, was also abused before the match.`\
+https://nytimes.com/athletic/6975381/2026/01/16/vinicius-junior-racism-real-madrid-albacete/
+
 **A Tale of Two Meetings: Trump Chooses Oil Over Democracy**\
 `Two conversations this week confirmed that President Trump backs the remnants of Nicolás Maduro’s regime over the Venezuelan opposition seeking to hold elections.`\
 https://nytimes.com/2026/01/16/world/americas/venezuela-trump-machado-rodriguez.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6976359/2026/01/16/mets-kyle-tucker-offer-free-agen
 **Word of the Day: panacea**\
 `This word has appeared in 121 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/16/learning/word-of-the-day-panacea.html
-
-**The New York Times in Print for Friday, Jan. 16, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/01/16/todays-new-york-times
-
-**Hope and Fear Mingle in Cuba With the Loss of Maduro, and Oil**\
-`The electricity may go off, but islanders see a glimmer of hope in Maduro’s departure.`\
-https://nytimes.com/2026/01/16/opinion/cuba-venezuela-us-oil.html
 
