@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6974791/2026/01/16/bills-broncos-predictions-picks/
 `China will in turn cut its own tariffs on Canadian canola products. The countries’ leaders met in Beijing on Friday and hailed a new strategic partnership.`\
 https://nytimes.com/2026/01/16/world/canada/canada-slash-tariffs-chinese-evs.html
 
-**Albacete 'pained and ashamed' after banana thrown at Vinicius**\
+**Albacete 'pained and ashamed' after banana thrown at Vinicius Jr**\
 `The 25-year-old, who has been repeatedly targeted for racial abuse in Spain for several years, was also abused before the match.`\
 https://nytimes.com/athletic/6975381/2026/01/16/vinicius-junior-racism-real-madrid-albacete/
 
