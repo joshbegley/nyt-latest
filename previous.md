@@ -1,3 +1,11 @@
+**Where do Browns stand in their coaching search? Should they target an offensive mind?**\
+`Taking a look at the candidates Cleveland has interviewed, who's still on its list and the type of coach it would make sense to hire. `\
+https://nytimes.com/athletic/6974985/2026/01/16/browns-2025-head-coaching-search/
+
+**Howe says injuries could impact Newcastle's January transfer plans**\
+`Jacob Murphy is set miss the Wolves game on Sunday, joining Fabian Schar, Tino Livramento, Dan Burn and Emil Krafth on the sidelines.`\
+https://nytimes.com/athletic/6976535/2026/01/16/eddie-howe-newcastle-transfer-plans/
+
 **Where would Indiana rank among the biggest surprise national champions?**\
 `Indiana has a chance to become one of the biggest surprise national champions in college football history.`\
 https://nytimes.com/athletic/6967367/2026/01/16/college-football-indiana-national-champion-odds-history/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6876593/2026/01/16/mlb-kyle-tucker-dodgers-contract
 **How Indiana broke college football**\
 `In a sport that splashes tens of millions of dollars to replace coaches every year, the Hoosiers are not helping everyone's pressure levels.`\
 https://nytimes.com/athletic/6974588/2026/01/16/indiana-curt-cignetti-college-football-predictions/
-
-**Willie, Mickey and the Duke — and no one else. Why has the Hall of Fame overlooked centerfielders?**\
-`Since Willie Mays arrived 75 years ago, only two Hall of Fame center fielders have debuted since. What happened to the iconic position? `\
-https://nytimes.com/athletic/6975203/2026/01/16/mlb-hall-of-fame-centerfielders-mays-mantle-beltran-jones/
-
-**NFL insider playoff predictions: Coaches, execs pick divisional round winners**\
-`Our panelists correctly predicted all six wild-card round winners. Can they go 4-0 this weekend? `\
-https://nytimes.com/athletic/6971296/2026/01/16/nfl-insider-playoff-predictions-coaches-pick-divisional-round/
 
