@@ -1,3 +1,15 @@
+**Darian Mensah to enter transfer portal after telling Duke he would return**\
+`Mensah's decision comes less than a month after he announced that he intended to return to Duke for the 2026 season.`\
+https://nytimes.com/athletic/6977833/2026/01/16/duke-qb-darian-mensah-transfer-portal/
+
+**'Heated Rivalry' star François Arnaud calls on NHL to improve LGBTQ+ inclusion**\
+`"If you're going to use our name, then back it up with real-life s---," the actor said of the league capitalizing on the show's popularity.`\
+https://nytimes.com/athletic/6977587/2026/01/16/heated-rivalry-francois-arnaud-nhl-hockey/
+
+**Bills activate DT Ed Oliver from injured reserve ahead of divisional playoff game**\
+`Oliver, one of Buffalo's best defensive players, hasn't been in the lineup since October.`\
+https://nytimes.com/athletic/6977785/2026/01/16/ed-oliver-buffalo-bills-activated-ir/
+
 **How to Train Citizens to Observe ICE**\
 `What does training to document ICE actions look like? On “Interesting Times,” one activist explains how his Minneapolis-based nonprofit teaches citizens to be constitutional observers.`\
 https://nytimes.com/video/opinion/100000010642896/how-to-train-citizens-to-observe-ice.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6977789/2026/01/16/sam-darnold-seahawks-49ers-injur
 **Texans' Nico Collins to miss playoff game vs. Patriots with concussion**\
 `Collins led Houston receivers with 71 catches this season and his 1,117 yards and six receiving TDs were tops on the team.`\
 https://nytimes.com/athletic/6977678/2026/01/16/nico-collins-texans-concussion-divisional-playoffs-patriots/
-
-**Wild place leading goal scorer Matt Boldy on injured reserve**\
-`The Wild also placed Joel Eriksson Ek on IR retroactively to last Thursday, meaning he can return when he's ready.`\
-https://nytimes.com/athletic/6977673/2026/01/16/wild-matt-boldy-injured-reserve-joel-eriksson-ek/
-
-**Leafs goalie Anthony Stolarz on injury recovery: 'It just took a little while'**\
-`"It was just something that I just kind of had to let heal on its own," the Maple Leafs goalie said of his injury.`\
-https://nytimes.com/athletic/6977580/2026/01/16/leafs-goalie-anthony-stolarz-injury-update/
-
-**Kyle Tucker, a low-key personality, leaves Cubs for a place where he can blend in**\
-`The Dodgers already have several players who fit the mold of a natural team leader or the front man for a franchise.`\
-https://nytimes.com/athletic/6977691/2026/01/16/kyle-tucker-cubs-dodgers-star-responsibilities/
 

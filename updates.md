@@ -1,3 +1,15 @@
+**Darian Mensah to enter transfer portal after telling Duke he would return**\
+`Mensah's decision comes less than a month after he announced that he intended to return to Duke for the 2026 season.`\
+https://nytimes.com/athletic/6977833/2026/01/16/duke-qb-darian-mensah-transfer-portal/
+
+**'Heated Rivalry' star François Arnaud calls on NHL to improve LGBTQ+ inclusion**\
+`"If you're going to use our name, then back it up with real-life s---," the actor said of the league capitalizing on the show's popularity.`\
+https://nytimes.com/athletic/6977587/2026/01/16/heated-rivalry-francois-arnaud-nhl-hockey/
+
+**Bills activate DT Ed Oliver from injured reserve ahead of divisional playoff game**\
+`Oliver, one of Buffalo's best defensive players, hasn't been in the lineup since October.`\
+https://nytimes.com/athletic/6977785/2026/01/16/ed-oliver-buffalo-bills-activated-ir/
+
 **How to Train Citizens to Observe ICE**\
 `What does training to document ICE actions look like? On “Interesting Times,” one activist explains how his Minneapolis-based nonprofit teaches citizens to be constitutional observers.`\
 https://nytimes.com/video/opinion/100000010642896/how-to-train-citizens-to-observe-ice.html
