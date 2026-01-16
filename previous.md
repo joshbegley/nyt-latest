@@ -1,3 +1,11 @@
+**Preparing to drill into a glacier**\
+`(No description)`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/preparing-to-drill-into-a-glacier
+
+**Even Nicolás Maduro’s Prosecutors Are Tied Up Reviewing Epstein Files**\
+`The Trump Administration’s exhaustive examination of materials on the convicted sex trafficker Jeffrey Epstein is drawing resources from other cases.`\
+https://nytimes.com/2026/01/16/nyregion/epstein-maduro-sdny.html
+
 **NHL Power Rankings: Congrats to our fake All-Stars**\
 `Actual best-on-best hockey coming in less than a month’s time. Today, we mourn what could’ve been with our picks for a fake All-Star Game.`\
 https://nytimes.com/athletic/6976709/2026/01/16/nhl-power-rankings-all-stars-olympics/
@@ -25,16 +33,4 @@ https://nytimes.com/2026/01/16/arts/music/washington-national-opera-kennedy-cent
 **Liverpool's Borggrafe serving six-match ban for racist language, Taylor confirms**\
 `The ban is in relation to an incident that occurred during Liverpool’s pre-season in the Republic of Ireland last summer.`\
 https://nytimes.com/athletic/6976908/2026/01/16/liverpool-rafaela-borggrafe-ban-racism/
-
-**Five Free Movies to Stream Now**\
-`From a Wim Wenders masterpiece to a Stanley Tucci gem, these films all revolve around the possibility of fresh starts and new beginnings.`\
-https://nytimes.com/2026/01/16/movies/five-free-movies-to-stream-now.html
-
-**Greek Court Acquits Rescue Workers Accused of Smuggling Migrants**\
-`The 24 former volunteers, including the refugee turned campaigner Sara Mardini, were prosecuted after helping migrants during the European refugee crisis nearly a decade ago.`\
-https://nytimes.com/2026/01/16/world/greece-migration-trial-rescue-workers.html
-
-**At the Australian Open, these Players Represent Southeast Asia’s Potential**\
-`Alexandra Eala and Janice Tjen are part of a new wave of young, talented players from Southeast Asia, an area sparsely represented in professional tennis.`\
-https://nytimes.com/2026/01/16/sports/tennis/australian-open-southeast-asia.html
 

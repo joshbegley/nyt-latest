@@ -1,3 +1,11 @@
+**Preparing to drill into a glacier**\
+`(No description)`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/preparing-to-drill-into-a-glacier
+
+**Even Nicolás Maduro’s Prosecutors Are Tied Up Reviewing Epstein Files**\
+`The Trump Administration’s exhaustive examination of materials on the convicted sex trafficker Jeffrey Epstein is drawing resources from other cases.`\
+https://nytimes.com/2026/01/16/nyregion/epstein-maduro-sdny.html
+
 **NHL Power Rankings: Congrats to our fake All-Stars**\
 `Actual best-on-best hockey coming in less than a month’s time. Today, we mourn what could’ve been with our picks for a fake All-Star Game.`\
 https://nytimes.com/athletic/6976709/2026/01/16/nhl-power-rankings-all-stars-olympics/
