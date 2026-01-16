@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6971728/2026/01/15/kyle-tucker-dodgers-mlb-free-age
 `Kyle Dolan opens our solving weekend.`\
 https://nytimes.com/2026/01/15/crosswords/daily-puzzle-2025-01-16.html
 
-**Rory McIlroy sounds as if he thinks LIV Golf shanked it**\
+**Rory McIlroy: LIV Golf hasn't 'signed anyone who moves the needle'**\
 `The five-time major champion says Brooks Koepka's return is another indication the rival tour has a shaky future.`\
 https://nytimes.com/athletic/6975641/2026/01/15/rory-mcilroy-liv-golf-brooks-koepka/
 
