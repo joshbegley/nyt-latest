@@ -1,3 +1,7 @@
+**Mexico’s president defends her nation’s antidrug efforts following U.S. criticism.**\
+`By David Shortell`\
+https://nytimes.com/live/2026/01/16/us/trump-news/mexicos-president-defends-her-nations-antidrug-efforts-following-us-criticism
+
 **President Trump to attend Monday's college football title game in Miami**\
 `Trump has long been a fan of college football, having attended several playoff games while in and out of office.`\
 https://nytimes.com/athletic/6977028/2026/01/16/president-trump-college-football-national-championship/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6977028/2026/01/16/president-trump-college-football
 https://nytimes.com/athletic/6977111/2026/01/16/nfl-coldest-playoff-games-ever/
 
 **Bad Bunny kicks off Super Bowl halftime hype with viral teaser**\
-`The world's most-streamed artist, according to Spotify, will headline the NFL's Super Bowl LX Halftime Show.`\
+`The world's most-streamed artist, according to Spotify, will perform during the most popular sporting event in the U.S.`\
 https://nytimes.com/athletic/6977207/2026/01/16/bad-bunny-super-bowl-halftime-teaser-music/
 
 **Bruins trade Jeffrey Viel to Ducks for fourth-round pick**\
@@ -29,8 +33,4 @@ https://nytimes.com/video/dining/100000010644519/i-cant-believe-its-not-chicken-
 **Until Saturday: When Miami was the original Indiana**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6977367/2026/01/16/indiana-miami-history-until-saturday/
-
-**Sheet-Pan Shrimp Tikka**\
-`Zainab Shah’s quick, flavor-packed meal brings the smoky, tangy essence of tandoori-style cooking into the kitchen with minimal effort. The shrimp are marinated in spiced yogurt to infuse them with bold flavor before being roasted over a bed of vegetables in just minutes.`\
-https://nytimes.com/video/dining/100000010644531/sheet-pan-shrimp-tikka.html
 
