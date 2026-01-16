@@ -1,3 +1,7 @@
+**Word of the Day: panacea**\
+`This word has appeared in 121 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/16/learning/word-of-the-day-panacea.html
+
 **Ndiaye, Ndukwe and why Liverpool are targeting young centre-backs in the transfer market**\
 `There has been a feeling Liverpool had reached the end of the cycle academy wise and that's been reinforced in the six months since`\
 https://nytimes.com/athletic/6973644/2026/01/16/liverpool-transfers-centre-backs/
