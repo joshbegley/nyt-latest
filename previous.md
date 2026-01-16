@@ -1,3 +1,11 @@
+**Thousands of Chinese Fishing Boats Quietly Form Vast Sea Barriers**\
+`China is practicing vast maneuvers that could be used to disrupt U.S. naval movement, a New York Times analysis of ship data reveals.`\
+https://nytimes.com/interactive/2026/01/16/world/asia/china-ships-fishing-militia-blockade.html
+
+**Is this the year that finally crumbles the NHL's playoff format?**\
+`Plus: Who's the next big name on the move?`\
+https://nytimes.com/athletic/6976972/2026/01/16/nhl-playoff-format-revision-red-light/
+
 **Preparing to drill into a glacier**\
 `(No description)`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/preparing-to-drill-into-a-glacier
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/16/learning/whats-going-on-in-this-picture-jan-26-20
 **From a D.J. Set to Church, and Back Again**\
 `When the writer Lamorna Ash set out to explore young people’s relationship to faith and religion, she found herself questioning her own.`\
 https://nytimes.com/2026/01/16/style/lamorna-ash-book-religious-conversion.html
-
-**Washington National Opera Finds a Stage Outside the Kennedy Center**\
-`Spring performances of “Treemonisha” and “The Crucible” will be held at George Washington University.`\
-https://nytimes.com/2026/01/16/arts/music/washington-national-opera-kennedy-center.html
-
-**Liverpool's Borggrafe serving six-match ban for racist language, Taylor confirms**\
-`The ban is in relation to an incident that occurred during Liverpool’s pre-season in the Republic of Ireland last summer.`\
-https://nytimes.com/athletic/6976908/2026/01/16/liverpool-rafaela-borggrafe-ban-racism/
 

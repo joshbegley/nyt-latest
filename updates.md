@@ -1,3 +1,11 @@
+**Thousands of Chinese Fishing Boats Quietly Form Vast Sea Barriers**\
+`China is practicing vast maneuvers that could be used to disrupt U.S. naval movement, a New York Times analysis of ship data reveals.`\
+https://nytimes.com/interactive/2026/01/16/world/asia/china-ships-fishing-militia-blockade.html
+
+**Is this the year that finally crumbles the NHL's playoff format?**\
+`Plus: Who's the next big name on the move?`\
+https://nytimes.com/athletic/6976972/2026/01/16/nhl-playoff-format-revision-red-light/
+
 **Preparing to drill into a glacier**\
 `(No description)`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/preparing-to-drill-into-a-glacier
