@@ -1,3 +1,19 @@
+**The Bounce: Is the MVP race already over?**\
+`Welcome to The Bounce, The Athletic's NBA newsletter.`\
+https://nytimes.com/athletic/6977064/2026/01/16/mvp-season-awards-race-the-bounce/
+
+**‘Dilbert’ Was Always MAGA**\
+`My visit with Scott Adams, who anticipated Donald Trump with his comic strip.`\
+https://nytimes.com/2026/01/16/opinion/dilbert-scott-adams-maga.html
+
+**Petite but Powerful Spinach Egg Bites**\
+`And more reader favorites from this week.`\
+https://nytimes.com/2026/01/16/dining/petite-but-powerful-spinach-egg-bites.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks, hijacked bullet trains, comet creatures and time loops in the British countryside.`\
+https://nytimes.com/2026/01/16/movies/science-fiction-movies-streaming.html
+
 **Former Olympic swimmer Agnel indicted for alleged child assault**\
 `The 33-year-old has denied any coercion took place in the alleged acts on a minor under 15 years of age. `\
 https://nytimes.com/athletic/6976923/2026/01/16/yannick-agnel-olympic-swimmer-assault-indictment/
@@ -17,20 +33,4 @@ https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/preparing-to-d
 **Even Nicolás Maduro’s Prosecutors Are Tied Up Reviewing Epstein Files**\
 `The Trump Administration’s exhaustive examination of materials on the convicted sex trafficker Jeffrey Epstein is drawing resources from other cases.`\
 https://nytimes.com/2026/01/16/nyregion/epstein-maduro-sdny.html
-
-**NHL Power Rankings: Congrats to our fake All-Stars**\
-`Actual best-on-best hockey coming in less than a month’s time. Today, we mourn what could’ve been with our picks for a fake All-Star Game.`\
-https://nytimes.com/athletic/6976709/2026/01/16/nhl-power-rankings-all-stars-olympics/
-
-**Cambridge Was a Culture Shock. She’s Getting the Last Laugh.**\
-`Jade Franks mines the awkwardness of social mobility in her one-woman show “Eat the Rich.”`\
-https://nytimes.com/2026/01/16/theater/eat-the-rich-jade-franks-soho-theatre.html
-
-**Lowetide: Are the Oilers giving their young forwards enough opportunity?**\
-`Rookie wingers Matt Savoie and Ike Howard are playing depth minutes for Edmonton at even strength this season.`\
-https://nytimes.com/athletic/6974339/2026/01/16/edmonton-oilers-stats-matt-savoie-ike-howard/
-
-**What’s Going On in This Picture? | Jan. 26, 2026**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2026/01/16/learning/whats-going-on-in-this-picture-jan-26-2026.html
 
