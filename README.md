@@ -2,7 +2,7 @@
 `With Ryan Jeffers set to hit free agency after the upcoming season, Caratini gives the Twins some stability behind the plate beyond 2026.`\
 https://nytimes.com/athletic/6977953/2026/01/16/mlb-victor-caratini-free-agency-twins/
 
-**Man Who Attacked Thai Grandfather in 2021 Is Found Not Guilty of Murder**\
+**Man Who Attacked a Thai Grandfather in 2021 Is Found Not Guilty of Murder**\
 `Instead, the man was convicted of lesser charges, including involuntary manslaughter, in the death of Vicha Ratanapakdee. The killing became a symbol of rising attacks against Asians during the pandemic.`\
 https://nytimes.com/2026/01/16/us/vicha-ratanapakdee-verdict-sf.html
 
@@ -29,8 +29,4 @@ https://nytimes.com/2026/01/16/us/politics/supreme-court-warrants-location-data.
 **Bill Belichick to join ACC Network's CFP title game coverage**\
 `Former Miami and Georgia coach Mark Richt is expected to share the desk with Belichick.`\
 https://nytimes.com/athletic/6977963/2026/01/16/bill-belichick-acc-network-cfp-championship/
-
-**Trump Sets Convicted Fraudster Free for a Second Time**\
-`Also, the C.I.A. director met Venezuela’s new leader in Caracas. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2026/01/16/briefing/trump-pardons-venezuela-cia-director.html
 
