@@ -1,3 +1,7 @@
+**Ex-South Korean Leader Gets Prison Term in First Ruling Over Martial Law**\
+`A court handed down five years in prison to former President Yoon Suk Yeol, who is facing multiple trials stemming from his short-lived imposition of martial law.`\
+https://nytimes.com/2026/01/16/world/asia/skorea-yoon-prison-martial-law.html
+
 **Seth Meyers Never Guessed Trump Was Such a Milk Fan**\
 `The “Late Night” host said there was no way President Trump drank milk, “unless someone tricked you into thinking your Diet Coke came from a cow.”`\
 https://nytimes.com/2026/01/16/arts/television/late-night-trump-milk.html
