@@ -1,3 +1,11 @@
+**Trump Praises Hassett, but Casts Doubt on Making Him Fed Chair**\
+`The blowback set off by the Justice Department’s criminal investigation into Jerome H. Powell, the chair of the central bank, has shaken up the race to replace him.`\
+https://nytimes.com/2026/01/16/business/trump-praises-hassett-but-casts-doubt-on-making-him-fed-chair.html
+
+**Iran Protests Quelled Since Deadly Crackdown, Residents Say**\
+`“There is massive disappointment and disillusionment,” one Tehran resident said. A human rights group acknowledged that demonstrations had been subdued since Sunday, with thousands of people detained.`\
+https://nytimes.com/2026/01/16/world/middleeast/iran-protests-deadly-crackdown.html
+
 **Met Museum Employees Vote to Unionize**\
 `The bargaining unit, which includes curatorial, conservation and retail departments, could represent about half of the Met’s work force.`\
 https://nytimes.com/2026/01/16/arts/design/met-museum-union-vote.html
