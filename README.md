@@ -1,3 +1,7 @@
+**Word of the Day: panacea**\
+`This word has appeared in 121 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/16/learning/word-of-the-day-panacea.html
+
 **The New York Times in Print for Friday, Jan. 16, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/16/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6971607/2026/01/16/fantasy-premier-league-fpl-tips-
 **Harry Wilson and Leeds remains a big 'what if', but Farke's team have coped without him**\
 `The move for the Fulham man collapsed last year and he has been in superb form ever since, but Leeds shouldn't get too hung up about it`\
 https://nytimes.com/athletic/6974603/2026/01/16/harry-wilson-leeds-fulham-premier-league/
-
-**Cricket's T20 World Cup is highlighting tensions on the Indian subcontinent**\
-`India is co-hosting the 20-team tournament, starting on February 7, but Bangladesh has said it will join Pakistan in not playing there`\
-https://nytimes.com/athletic/6945184/2026/01/16/cricket-t20-world-cup-indian-tensions-explained/
 
