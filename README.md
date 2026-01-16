@@ -7,14 +7,14 @@ https://nytimes.com/athletic/6977673/2026/01/16/wild-matt-boldy-injured-reserve-
 https://nytimes.com/athletic/6977580/2026/01/16/leafs-goalie-anthony-stolarz-injury-update/
 
 **Kyle Tucker, a low-key personality, leaves Cubs for a place where he can blend in**\
-`The Dodgers already have several players who fit the mold of a natural team leader or the frontman for a franchise.`\
+`The Dodgers already have several players who fit the mold of a natural team leader or the front man for a franchise.`\
 https://nytimes.com/athletic/6977691/2026/01/16/kyle-tucker-cubs-dodgers-star-responsibilities/
 
 **In Toronto, Bichette's departure marks the end of one era and the start of another**\
 `Bichette helped the Blue Jays and their fans again dream of World Series success. It will now be up to others to complete that goal.`\
 https://nytimes.com/athletic/6977708/2026/01/16/bo-bichette-leaving-toronto-blue-jays/
 
-**Judge Approves Sale of 5,000 Apartments Over Mamdani’s Objections**\
+**Mamdani’s Push to Halt Sale of 5,000 Apartments to Big Landlord Fails**\
 `The sale of the apartments, whose residents had complained of neglect by management, to a troubled firm is an early test of the new mayor’s ability to deliver for tenants.`\
 https://nytimes.com/2026/01/16/nyregion/pinnacle-auction-judge-mamdani.html
 

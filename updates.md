@@ -1,3 +1,7 @@
+**Wild place leading goal scorer Matt Boldy on injured reserve**\
+`The Wild also placed Joel Eriksson Ek on IR retroactively to last Thursday, meaning he can return when he's ready.`\
+https://nytimes.com/athletic/6977673/2026/01/16/wild-matt-boldy-injured-reserve-joel-eriksson-ek/
+
 **Leafs goalie Anthony Stolarz on injury recovery: 'It just took a little while'**\
 `"It was just something that I just kind of had to let heal on its own," the Maple Leafs goalie said of his injury.`\
 https://nytimes.com/athletic/6977580/2026/01/16/leafs-goalie-anthony-stolarz-injury-update/
