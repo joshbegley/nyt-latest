@@ -1,3 +1,7 @@
+**Greek Court Acquits Rescue Workers Accused of Smuggling Migrants**\
+`The 24 former volunteers, including the refugee turned campaigner Sara Mardini, were prosecuted after helping migrants during the European refugee crisis nearly a decade ago.`\
+https://nytimes.com/2026/01/16/world/greece-migration-trial-rescue-workers.html
+
 **At the Australian Open, these Players Represent Southeast Asia’s Potential**\
 `Alexandra Eala and Janice Tjen are part of a new wave of young, talented players from Southeast Asia, an area sparsely represented in professional tennis.`\
 https://nytimes.com/2026/01/16/sports/tennis/australian-open-southeast-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6955695/2026/01/16/marc-guehi-manchester-city-trans
 **Pistons' fourth-quarter defense comes through again: 'That's who we are'**\
 `"I thought in that second half, and in the fourth quarter in particular, we got stingy," says Pistons head coach J.B. Bickerstaff. `\
 https://nytimes.com/athletic/6976425/2026/01/16/detroit-pistons-defense-win-phoenix-suns/
-
-**Can the Dodgers spend in perpetuity? They aren't stopping to avoid 'the cliff'**\
-`Kyle Tucker represented a perfect solution to the Dodgers’ needs, for now and the future.`\
-https://nytimes.com/athletic/6976265/2026/01/16/dodgers-payroll-mlb-kyle-tucker/
 
