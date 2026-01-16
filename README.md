@@ -1,3 +1,7 @@
+**City close to finalising £20m Guehi deal**\
+`Injuries to Josko Gvardiol and Ruben Dias have depleted City's centre-back depth.`\
+https://nytimes.com/athletic/6955695/2026/01/16/marc-guehi-manchester-city-transfer-palace/
+
 **Pistons' fourth-quarter defense comes through again in Detroit: 'That's who we are'**\
 `"I thought in that second half, and in the fourth quarter in particular, we got stingy," says Pistons head coach J.B. Bickerstaff. `\
 https://nytimes.com/athletic/6976425/2026/01/16/detroit-pistons-defense-win-phoenix-suns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6569088/2026/01/16/glasner-crystal-palace-manager-l
 **With or without Giannis, Bucks look lost halfway through their season**\
 `At 17-24, the Bucks have their worst record through 41 games since the 2015-16 season, Antetokounmpo's third in the NBA.`\
 https://nytimes.com/athletic/6976274/2026/01/16/giannis-antetokounmpo-bucks-season-lost/
-
-**How would you run Real Madrid? Here's what our reader survey says**\
-`In a dramatic week for Real Madrid, we asked for your thoughts on the big issues facing them. This is what you said`\
-https://nytimes.com/athletic/6974017/2026/01/16/real-madrid-alonso-sacking-survery-arbeloa/
 
