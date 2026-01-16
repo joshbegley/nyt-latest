@@ -1,3 +1,19 @@
+**A Tale of Two Meetings: Trump Chooses Oil Over Democracy**\
+`Two conversations this week confirmed that President Trump backs the remnants of Nicolás Maduro’s regime over the Venezuelan opposition seeking to hold elections.`\
+https://nytimes.com/2026/01/16/world/americas/venezuela-trump-machado-rodriguez.html
+
+**N.Y.C. Council Leader Takes on Antisemitism, and Possibly Mamdani**\
+`The Council speaker, Julie Menin, will introduce bills that would establish a buffer zone at houses of worship to keep protesters at some distance from congregants.`\
+https://nytimes.com/2026/01/16/nyregion/julie-menin-antisemitism-mamdani.html
+
+**Nurses Describe Fear on the Job as Bitter Strike Enters Fifth Day**\
+`Both sides in the labor dispute appear poised for a protracted battle, and only one of three hospitals was negotiating with the strikers.`\
+https://nytimes.com/2026/01/16/nyregion/nyc-nurses-strike-negotiations-safety.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/16/crosswords/spelling-bee-forum.html
+
 **Ex-South Korean Leader Gets Prison Term in First Ruling Over Martial Law**\
 `A court handed down five years in prison to former President Yoon Suk Yeol, who is facing multiple trials stemming from his short-lived imposition of martial law.`\
 https://nytimes.com/2026/01/16/world/asia/skorea-yoon-prison-martial-law.html
@@ -21,20 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/01/16/todays-new-york-times
 **Hope and Fear Mingle in Cuba With the Loss of Maduro, and Oil**\
 `The electricity may go off, but islanders see a glimmer of hope in Maduro’s departure.`\
 https://nytimes.com/2026/01/16/opinion/cuba-venezuela-us-oil.html
-
-**Iran’s Regime Is Losing Its Greatest Weapon: Fear**\
-`The bulwark of Iranian oppression is fear. The latest round of demonstrations shows it has been breached.`\
-https://nytimes.com/2026/01/16/opinion/iran-fear-demonstrations-islamic-republic.html
-
-**Breaking down the $2.3trillion global sports economy – key takeaways**\
-`We spent an estimated $672bn on accommodation, food and travel while going to watch or play sport last year, according to a new report`\
-https://nytimes.com/athletic/6963878/2026/01/16/davos-global-sports-ecomomy-wef-takeaways/
-
-**Do Tottenham Hotspur have a discipline problem?**\
-`Are angry exchanges with fans, post-match scuffles, a litany of cards, and issues with punctuality a recipe for success?`\
-https://nytimes.com/athletic/6965990/2026/01/16/tottenham-hotspur-discipline-problem/
-
-**Ndiaye, Ndukwe and why Liverpool are targeting young centre-backs in the transfer market**\
-`There has been a feeling Liverpool had reached the end of the cycle academy wise and that's been reinforced in the six months since`\
-https://nytimes.com/athletic/6973644/2026/01/16/liverpool-transfers-centre-backs/
 
