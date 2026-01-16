@@ -1,4 +1,4 @@
-**Canada Breaks With U.S. to Slash Tariffs on Some Chinese EVs**\
+**Canada Breaks With U.S. to Slash Tariffs on Some Chinese Electric Vehicles**\
 `China will in turn cut its own tariffs on Canadian canola products. The countries’ leaders met in Beijing on Friday and hailed a new strategic partnership.`\
 https://nytimes.com/2026/01/16/world/canada/canada-slash-tariffs-chinese-evs.html
 
