@@ -1,3 +1,7 @@
+**Trump and States Aim to Stop A.I. From Inflating Energy Bills**\
+`Demand from centers that power artificial intelligence have driven up electricity bills, frustrating consumers.`\
+https://nytimes.com/2026/01/16/business/trump-ai-electricity-costs.html
+
 **Dear America, Greenland Is Not on Zillow**\
 `Trump wants Greenland? Its previous colonizer has some thoughts.`\
 https://nytimes.com/video/opinion/100000010648106/dear-america-greenland-is-not-on-zillow.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/16/us/politics/national-constitution-center-jeffery-
 **2026 World Series odds: Tucker signing puts Dodgers on another level**\
 `Kyle Tucker signing with the Dodgers did not change who the favorite was, but did lead to some absurd odds in the Dodgers' favor.`\
 https://nytimes.com/athletic/6977177/2026/01/16/world-series-odds-kyle-tucker-dodgers/
-
-**College hoops' point-shaving plot begs the question: Why even allow bets on low-major games?**\
-`Most of the games prosecutors allege were fixed were at the low- and mid-major levels, where players aren't making much money.`\
-https://nytimes.com/athletic/6977187/2026/01/16/college-basketball-point-shaving-sports-betting/
 
