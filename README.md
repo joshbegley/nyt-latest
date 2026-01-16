@@ -1,3 +1,7 @@
+**Premier League title, relegation and top four battle, odds and predictions**\
+`How is the Premier League table shaping up heading into matchweek 22?`\
+https://nytimes.com/athletic/6976633/2026/01/16/premier-league-races-how-the-title-champions-league-and-relegation-battles-are-shaping-up/
+
 **Oliver Glasner to leave Crystal Palace this summer for a 'new challenge'**\
 `Glasner guided Palace to their first major trophy as his side lifted the FA Cup last season but will leave the club at the end of the season`\
 https://nytimes.com/athletic/6569088/2026/01/16/glasner-crystal-palace-manager-leaving/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6910657/2026/01/16/jorgen-strand-larsen-leeds-trans
 **As Klay Thompson climbs 3-point list, his love for the game keeps him going**\
 `What keeps the Mavericks' guard going in the later stages of his career? "I love shooting the basketball," Thompson said.`\
 https://nytimes.com/athletic/6976272/2026/01/16/klay-thompson-damian-lillard-3-pointers/
-
-**The New Mayor of Davos**\
-`Larry Fink, BlackRock’s chief executive, led an effort to elevate the World Economic Forum next week, the first without the event’s founder, Klaus Schwab.`\
-https://nytimes.com/2026/01/16/business/dealbook/fink-davos-wef.html
 
