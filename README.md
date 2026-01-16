@@ -1,3 +1,19 @@
+**How do Mets pivot after losing out on Kyle Tucker to Dodgers?**\
+`The Mets have a variety of ways to pivot, though none are as glamorous as adding Tucker to their lineup.`\
+https://nytimes.com/athletic/6976027/2026/01/16/mets-kyle-tucker-free-agent-options-analysis/
+
+**James Ward-Prowse and his internal exile at West Ham**\
+`The ex-Southampton midfielder has not featured in a matchday squad since Nuno succeeded Graham Potter as head coach on September 27`\
+https://nytimes.com/athletic/6963327/2026/01/16/james-ward-prowse-west-ham-absence/
+
+**When Dennis Rodman played for Brighton Bears: 'We're in England. It's another world'**\
+`During a "wild" two weeks for British basketball, NBA great Dennis Rodman played three games for an unheralded team`\
+https://nytimes.com/athletic/6965509/2026/01/16/dennis-rodman-brighton-bears-2006/
+
+**Wrexham in the Premier League: Could a fourth straight promotion really be possible?**\
+`Four straight wins have put Wrexham within touching distance of the Championship play-offs`\
+https://nytimes.com/athletic/6935400/2026/01/16/wrexham-premier-league-promotion/
+
 **Edu, his Arsenal past and his Nottingham Forest present**\
 `The Brazilian arrived last July as owner Evangelos Marinakis' global head of football having built a title-contending squad at the Emirates`\
 https://nytimes.com/athletic/6973631/2026/01/16/edu-nottingham-forest-arsenal-analysis/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/16/style/talia-marcus-charles-blaettler-wedding.html
 **Please Cheat on Me**\
 `Why did I keep fantasizing about catching my faithful boyfriend in bed with another woman?`\
 https://nytimes.com/2026/01/16/style/modern-love-please-cheat-on-me.html
-
-**Uber’s Quest to Crack Japan Leads Through a Rural Hot-Springs Town**\
-`The ride-hailing giant’s chief executive has made a bet on how it can finally grab a bigger piece of one of the world’s largest taxi markets.`\
-https://nytimes.com/2026/01/16/business/uber-japan-dara-khosrowshahi.html
-
-**A Slow, Awkward Dance Started It All**\
-`Before Paul Melnikow and Alan Pierson spoke to each other, they danced at the ‘queer prom,’ about 20 hours into Taylor Mac’s 24-hour performance.`\
-https://nytimes.com/2026/01/16/style/paul-melnikow-alan-pierson-wedding.html
-
-**For Two Floridians, a Michigan Winter Solidified Their Bond**\
-`Ashley Knott and Tobias Kammerer are opposites — she’s very social, while he needs “to be peeled like an onion.” But a big move created a deeper connection.`\
-https://nytimes.com/2026/01/16/style/ashley-knott-tobias-kammerer-wedding.html
-
-**Connections: Sports Edition Coach: Hints for Jan. 16, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6976142/2026/01/16/connections-sports-edition-hints-for-jan-16-2026/
 
