@@ -1,5 +1,17 @@
+**‘The Pitt’ Season 2, Episode 2 Recap: Dirty Work**\
+`Viewers got extra intimate this week with the hard physical realities of life in the emergency ward.`\
+https://nytimes.com/2026/01/15/arts/television/the-pitt-recap-season-2-episode-2.html
+
+**Steve Kerr: Jonathan Kuminga trade rumors 'won't be a distraction' for Warriors**\
+`Kerr downplayed Kuminga trade rumors, saying the Warriors remain focused and unified ahead of the deadline.`\
+https://nytimes.com/athletic/6975818/2026/01/15/warriors-steve-kerr-jonathan-kuminga-rumors/
+
+**What Kyle Tucker's signing means for the Dodgers – and the Blue Jays and Mets**\
+`While the Dodgers get to add Tucker to their arsenal, the runners-up in his sweepstakes now must figure out alternative plans.`\
+https://nytimes.com/athletic/6975608/2026/01/15/kyle-tucker-free-agency-mets-dodgers-blue-jays/
+
 **Gonzaga's Braden Huff could miss remainder of season with knee injury**\
-`Huff leads the country in total field goals with 146 makes`\
+`Huff leads the country in total field goals with 146 makes.`\
 https://nytimes.com/athletic/6975827/2026/01/15/braden-huff-gonzaga-injury/
 
 **Dodgers, Kyle Tucker agree to deal, add No. 1 free agent to championship roster: Sources**\
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/americas/100000010648635/machado-offers-trump-he
 **In his heart, John Harbaugh always knew he was meant to be a Giant**\
 `Harbaugh isn't concerned about the NFC East competition. He welcomes it. He is the first Giants coach who'll walk in with a Super Bowl ring.`\
 https://nytimes.com/athletic/6975538/2026/01/15/john-harbaugh-ny-giants-nfl-coaching-news-hiring/
-
-**Darren Waller says Dolphins' owner interrupted exit meeting to fire McDaniel**\
-`The soon-to-be free agent tight end had an awkward encounter for the ages.`\
-https://nytimes.com/athletic/6975541/2026/01/15/dolphins-darren-waller-mike-mcdaniel-stephen-ross/
-
-**‘He wasn't good': How Chara's self-made legacy sent his No. 33 to the rafters**\
-`"There was nobody else in the history of the game that really worked that hard," former partner Dennis Seidenberg said.`\
-https://nytimes.com/athletic/6975657/2026/01/15/bruins-zdeno-chara-number-retirement/
-
-**What we learned from Jim Harbaugh and Joe Hortiz's end-of-season news conference**\
-`Harbaugh sounds prepared to give his next offensive coordinator broad responsibility and allow him to be "head coach of the offense."`\
-https://nytimes.com/athletic/6975580/2026/01/15/chargers-jim-harbaugh-joe-hortiz-news-conference/
 

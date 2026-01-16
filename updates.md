@@ -1,3 +1,19 @@
+**‘The Pitt’ Season 2, Episode 2 Recap: Dirty Work**\
+`Viewers got extra intimate this week with the hard physical realities of life in the emergency ward.`\
+https://nytimes.com/2026/01/15/arts/television/the-pitt-recap-season-2-episode-2.html
+
+**Steve Kerr: Jonathan Kuminga trade rumors 'won't be a distraction' for Warriors**\
+`Kerr downplayed Kuminga trade rumors, saying the Warriors remain focused and unified ahead of the deadline.`\
+https://nytimes.com/athletic/6975818/2026/01/15/warriors-steve-kerr-jonathan-kuminga-rumors/
+
+**What Kyle Tucker's signing means for the Dodgers – and the Blue Jays and Mets**\
+`While the Dodgers get to add Tucker to their arsenal, the runners-up in his sweepstakes now must figure out alternative plans.`\
+https://nytimes.com/athletic/6975608/2026/01/15/kyle-tucker-free-agency-mets-dodgers-blue-jays/
+
+**Gonzaga's Braden Huff could miss remainder of season with knee injury**\
+`Huff leads the country in total field goals with 146 makes.`\
+https://nytimes.com/athletic/6975827/2026/01/15/braden-huff-gonzaga-injury/
+
 **Gonzaga's Braden Huff could miss remainder of season with knee injury**\
 `Huff leads the country in total field goals with 146 makes`\
 https://nytimes.com/athletic/6975827/2026/01/15/braden-huff-gonzaga-injury/
