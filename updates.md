@@ -1,3 +1,19 @@
+**From a D.J. Set to Church, and Back Again**\
+`When the writer Lamorna Ash set out to explore young people’s relationship to faith and religion, she found herself questioning her own.`\
+https://nytimes.com/2026/01/16/style/lamorna-ash-book-religious-conversion.html
+
+**Washington National Opera Finds a Stage Outside the Kennedy Center**\
+`Spring performances of “Treemonisha” and “The Crucible” will be held at George Washington University.`\
+https://nytimes.com/2026/01/16/arts/music/washington-national-opera-kennedy-center.html
+
+**Liverpool's Borggrafe serving six-match ban for racist language, Taylor confirms**\
+`The ban is in relation to an incident that occurred during Liverpool’s pre-season in the Republic of Ireland last summer.`\
+https://nytimes.com/athletic/6976908/2026/01/16/liverpool-rafaela-borggrafe-ban-racism/
+
+**Five Free Movies to Stream Now**\
+`From a Wim Wenders masterpiece to a Stanley Tucci gem, these films all revolve around the possibility of fresh starts and new beginnings.`\
+https://nytimes.com/2026/01/16/movies/five-free-movies-to-stream-now.html
+
 **Greek Court Acquits Rescue Workers Accused of Smuggling Migrants**\
 `The 24 former volunteers, including the refugee turned campaigner Sara Mardini, were prosecuted after helping migrants during the European refugee crisis nearly a decade ago.`\
 https://nytimes.com/2026/01/16/world/greece-migration-trial-rescue-workers.html
