@@ -1,3 +1,7 @@
+**Trump Sets Fraudster Free From Prison for a Second Time**\
+`The president issued a raft of clemency grants this week, including pardoning a woman he had given relief to once before and a man whose daughter had donated millions to a Trump super PAC.`\
+https://nytimes.com/2026/01/16/us/politics/trump-fraudster-pardon.html
+
 **What Kind of Lover Are You? This Poem Might Have the Answer.**\
 `William Blake’s “The Clod & the Pebble” is a dialogue on tenderness and cruelty in three short stanzas. Read it with our critic A.O. Scott, and then play a game to memorize it.`\
 https://nytimes.com/interactive/2026/01/16/books/william-blake-poem-clod-pebble.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/16/us/politics/trump-greenland-denmark-lawmakers.htm
 **Mets to sign Bo Bichette to 3-year deal in stunning move: Sources**\
 `The move comes roughly 12 hours after the Mets missed out on Kyle Tucker.`\
 https://nytimes.com/athletic/6792079/2026/01/16/bo-bichette-mlb-free-agency-signing-new-york-mets/
-
-**Notre Dame final thoughts: Marcus Freeman's ambition and Irish's portal comeback**\
-`If Notre Dame makes another College Football Playoff run, Freeman will again be at the top of NFL coaching lists. And that’s OK.`\
-https://nytimes.com/athletic/6976884/2026/01/16/notre-dame-marcus-freeman-final-thoughts/
 
