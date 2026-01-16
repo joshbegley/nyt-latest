@@ -1,3 +1,7 @@
+**Trump Appoints Allies to Review His Ballroom Plans**\
+`A federal judge has allowed the ballroom project to proceed after the Trump administration pledged to undergo a review by the Commission of Fine Arts.`\
+https://nytimes.com/2026/01/16/us/politics/trump-allies-ballroom-commission.html
+
 **Coach Laura Harvey embraces stability, continues her commitment to Seattle Reign**\
 `From ownership changes and roster turnover to that ChatGPT moment, Laura Harvey has found staying power with Seattle Reign. `\
 https://nytimes.com/athletic/6977508/2026/01/16/seattle-reign-laura-harvey-contract-extension/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6977638/2026/01/16/timberwolves-vs-rockets-stream-h
 **How to watch Clippers vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6977636/2026/01/16/clippers-vs-raptors-stream-how-to-watch-jan-16/
-
-**How to watch Wizards vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6977633/2026/01/16/wizards-vs-kings-stream-how-to-watch-jan-16/
 

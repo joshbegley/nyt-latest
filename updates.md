@@ -1,3 +1,11 @@
+**Coach Laura Harvey embraces stability, continues her commitment to Seattle Reign**\
+`From ownership changes and roster turnover to that ChatGPT moment, Laura Harvey has found staying power with Seattle Reign. `\
+https://nytimes.com/athletic/6977508/2026/01/16/seattle-reign-laura-harvey-contract-extension/
+
+**How the Rangers' 'retool' letter affects trade targets, stars, veterans and prospects**\
+`Chris Drury's letter opened the door for opposing general managers to ask about anyone on the roster. Here's who could be affected.`\
+https://nytimes.com/athletic/6977481/2026/01/16/ny-rangers-trade-rumors-chris-drury-nhl/
+
 **Ready to Find Your Next Favorite Workout?**\
 `Our reporters have teamed up with fitness experts to design dozens of routines. Try something new — and build an exercise habit that sticks.`\
 https://nytimes.com/interactive/2026/01/16/well/move/workout-routines.html
