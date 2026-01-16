@@ -1,3 +1,7 @@
+**Do Tottenham Hotspur have a discipline problem?**\
+`Are angry exchanges with fans, post-match scuffles, a litany of cards, and issues with punctuality a recipe for success?`\
+https://nytimes.com/athletic/6965990/2026/01/16/tottenham-hotspur-discipline-problem/
+
 **Carl Rushworth and Eiran Cashin giving Brighton a mixed taste of the loan market**\
 `The pair's contrasting fortunes this season show that picking the right club for a player to join on loan is a risky business`\
 https://nytimes.com/athletic/6969380/2026/01/16/brighton-rushworth-cashin-loans/
