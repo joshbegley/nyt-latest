@@ -1,3 +1,7 @@
+**Ndiaye, Ndukwe and why Liverpool are targeting young centre-backs in the transfer market**\
+`There has been a feeling Liverpool had reached the end of the cycle academy wise and that's been reinforced in the six months since`\
+https://nytimes.com/athletic/6973644/2026/01/16/liverpool-transfers-centre-backs/
+
 **Jesper Wallstedt, Wild come unglued in undisciplined loss to Jets: Takeaways**\
 `Two goals against in 11 seconds to close out the first period, plus inopportune penalties, helped dig a hole the Wild couldn't escape.`\
 https://nytimes.com/athletic/6975565/2026/01/16/wild-wallstedt-penalties-foligno-jets/
