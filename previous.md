@@ -1,3 +1,11 @@
+**Jonathan Haidt Brings New Evidence to the Battle Against Social Media**\
+`The author of “The Anxious Generation” shares his latest research about the harms social media is doing to children.`\
+https://nytimes.com/video/podcasts/100000010650259/jonathan-haidt-brings-new-evidence-to-the-battle-against-social-media.html
+
+**Dodgers leverage winning culture, creative contracts to land Kyle Tucker, other top free agents**\
+`The Dodgers don't just have money to throw at free agents. They offer a chance for them to win titles, get paid and re-enter the market.`\
+https://nytimes.com/athletic/6977418/2026/01/16/dodgers-kyle-tucker-short-term-contracts-large-salaries/
+
 **Trump and States Aim to Stop A.I. From Inflating Energy Bills**\
 `Demand from centers that power artificial intelligence have driven up electricity bills, frustrating consumers.`\
 https://nytimes.com/2026/01/16/business/trump-ai-electricity-costs.html
@@ -21,16 +29,4 @@ https://nytimes.com/interactive/2026/01/16/upshot/flashback.html
 **Drunken Driver Who Killed 4 at Cookout Is Sentenced to Decades in Prison**\
 `The driver, Daniel Hyden, was a substance abuse counselor who had past citations for driving under the influence.`\
 https://nytimes.com/2026/01/16/nyregion/drunken-driver-killed-four-fourth-of-july-sentenced.html
-
-**Betting for (by) dummies: Who dares get off the Cignetti train now?**\
-`Jon Greenberg and Zac Jackson take another crack at predicting playoff football.`\
-https://nytimes.com/athletic/6977296/2026/01/16/nfl-college-football-betting-bears-indiana-cignetti/
-
-**Leadership Dispute Said to Spur Abrupt Exit at the National Constitution Center**\
-`The congressionally chartered museum and national town hall has not explained the sudden departure of Jeffrey Rosen as its president and chief executive.`\
-https://nytimes.com/2026/01/16/us/politics/national-constitution-center-jeffery-rosen-exit.html
-
-**2026 World Series odds: Tucker signing puts Dodgers on another level**\
-`Kyle Tucker signing with the Dodgers did not change who the favorite was, but did lead to some absurd odds in the Dodgers' favor.`\
-https://nytimes.com/athletic/6977177/2026/01/16/world-series-odds-kyle-tucker-dodgers/
 
