@@ -1,3 +1,11 @@
+**What we're hearing: The latest moves from around global women's football**\
+`The Athletic takes a closer look at the women's football transfer market during the January window`\
+https://nytimes.com/athletic/6973814/2026/01/16/womens-football-what-we-are-hearing-macario-mccabe-putellas/
+
+**Bills at Broncos: Experts break down matchups, predictions for AFC divisional round clash**\
+`The Broncos have the home field in this rematch from last year's wild-card round as Josh Allen and the Bills try to duplicate the result.`\
+https://nytimes.com/athletic/6974791/2026/01/16/bills-broncos-predictions-picks/
+
 **Canada Breaks With U.S. to Slash Tariffs on Some Chinese Electric Vehicles**\
 `China will in turn cut its own tariffs on Canadian canola products. The countries’ leaders met in Beijing on Friday and hailed a new strategic partnership.`\
 https://nytimes.com/2026/01/16/world/canada/canada-slash-tariffs-chinese-evs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/16/world/asia/skorea-yoon-prison-martial-law.html
 **Seth Meyers Never Guessed Trump Was Such a Milk Fan**\
 `The “Late Night” host said there was no way President Trump drank milk, “unless someone tricked you into thinking your Diet Coke came from a cow.”`\
 https://nytimes.com/2026/01/16/arts/television/late-night-trump-milk.html
-
-**Here's where Mets' final offer landed for Kyle Tucker**\
-`The Mets lost out on Tucker to the Dodgers after they reached an agreement on a four-year deal worth $240 million, per league sources.`\
-https://nytimes.com/athletic/6976359/2026/01/16/mets-kyle-tucker-offer-free-agency/
-
-**Word of the Day: panacea**\
-`This word has appeared in 121 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/01/16/learning/word-of-the-day-panacea.html
 

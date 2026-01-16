@@ -1,3 +1,11 @@
+**What we're hearing: The latest moves from around global women's football**\
+`The Athletic takes a closer look at the women's football transfer market during the January window`\
+https://nytimes.com/athletic/6973814/2026/01/16/womens-football-what-we-are-hearing-macario-mccabe-putellas/
+
+**Bills at Broncos: Experts break down matchups, predictions for AFC divisional round clash**\
+`The Broncos have the home field in this rematch from last year's wild-card round as Josh Allen and the Bills try to duplicate the result.`\
+https://nytimes.com/athletic/6974791/2026/01/16/bills-broncos-predictions-picks/
+
 **Here's where Mets' final offer landed for Kyle Tucker**\
 `The Mets lost out on Tucker to the Dodgers after they reached an agreement on a four-year deal worth $240 million, per league sources.`\
 https://nytimes.com/athletic/6976359/2026/01/16/mets-kyle-tucker-offer-free-agency/
