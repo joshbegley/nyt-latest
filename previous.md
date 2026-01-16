@@ -1,3 +1,7 @@
+**A $12.6 Billion Budget Gap May Complicate Mamdani’s Affordability Plans**\
+`The New York City comptroller, Mark Levine, said that poor budgeting practices by the previous mayor, Eric Adams, had left the city with looming deficits.`\
+https://nytimes.com/2026/01/16/nyregion/budget-deficit-nyc.html
+
 **Jonathan Haidt Brings New Evidence to the Battle Against Social Media**\
 `The author of “The Anxious Generation” shares his latest research about the harms social media is doing to children.`\
 https://nytimes.com/video/podcasts/100000010650259/jonathan-haidt-brings-new-evidence-to-the-battle-against-social-media.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6977442/2026/01/16/blues-mailbag-jeremy-rutherford-
 **Flashback: Your Weekly History Quiz, Jan. 17, 2026**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2026/01/16/upshot/flashback.html
-
-**Drunken Driver Who Killed 4 at Cookout Is Sentenced to Decades in Prison**\
-`The driver, Daniel Hyden, was a substance abuse counselor who had past citations for driving under the influence.`\
-https://nytimes.com/2026/01/16/nyregion/drunken-driver-killed-four-fourth-of-july-sentenced.html
 
