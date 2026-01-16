@@ -1,3 +1,7 @@
+**Dear America, Greenland Is Not on Zillow**\
+`Trump wants Greenland? Its previous colonizer has some thoughts.`\
+https://nytimes.com/video/opinion/100000010644425/greenland-denmark-trump-history.html
+
 **What we're hearing: The latest moves from around global women's football**\
 `The Athletic takes a closer look at the women's football transfer market during the January window`\
 https://nytimes.com/athletic/6973814/2026/01/16/womens-football-what-we-are-hearing-macario-mccabe-putellas/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/16/crosswords/spelling-bee-forum.html
 **Ex-South Korean Leader Gets Prison Term in First Ruling Over Martial Law**\
 `A court handed down five years in prison to former President Yoon Suk Yeol, who is facing multiple trials stemming from his short-lived imposition of martial law.`\
 https://nytimes.com/2026/01/16/world/asia/skorea-yoon-prison-martial-law.html
-
-**Seth Meyers Never Guessed Trump Was Such a Milk Fan**\
-`The “Late Night” host said there was no way President Trump drank milk, “unless someone tricked you into thinking your Diet Coke came from a cow.”`\
-https://nytimes.com/2026/01/16/arts/television/late-night-trump-milk.html
 
