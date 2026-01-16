@@ -1,5 +1,25 @@
+**Kim Weiss becomes second woman to coach full-time in AHL with promotion to Colorado**\
+`Weiss had been the Colorado Eagles' video coach since August 2024.`\
+https://nytimes.com/athletic/6977775/2026/01/16/kim-weiss-american-hockey-league-coach-colorado/
+
+**Edison Files Claims Against Los Angeles County and Others on Eaton Fire**\
+`Southern California Edison said its equipment most likely started the Eaton Fire but asserted that government agencies and other businesses shared liability for the devastation.`\
+https://nytimes.com/2026/01/16/business/energy-environment/southern-california-edison-eaton-fire.html
+
+**Trinidad Chambliss sues NCAA, claims entering NFL Draft would cost QB millions**\
+`In the lawsuit filed Friday in Mississippi, Chambliss claims he would make millions more in NIL money at Ole Miss than as a NFL rookie.`\
+https://nytimes.com/athletic/6977913/2026/01/16/trinidad-chambliss-lawsuit-ncaa-eligibility-ole-miss/
+
+**U.S. Boardings of Oil Tankers Reflect Hard Lessons Learned at Sea**\
+`Videos show U.S. forces descending quickly from helicopters onto the tankers, two years after a tragic boarding attempt.`\
+https://nytimes.com/2026/01/16/us/us-military-oil-tankers.html
+
+**Supreme Court to Hear Challenge to Warrants for Phone Location Data**\
+`The case involves a challenge to so-called geofence warrants, which permit law enforcement officials to sweep up location data of people near crime scenes.`\
+https://nytimes.com/2026/01/16/us/politics/supreme-court-warrants-location-data.html
+
 **Bill Belichick to join ACC Network's CFP title game coverage**\
-`Former Miami and Georgia head coach Mark Richt is expected to share the desk with Belichick.`\
+`Former Miami and Georgia coach Mark Richt is expected to share the desk with Belichick.`\
 https://nytimes.com/athletic/6977963/2026/01/16/bill-belichick-acc-network-cfp-championship/
 
 **Trump Sets Convicted Fraudster Free for a Second Time**\
@@ -13,24 +33,4 @@ https://nytimes.com/2026/01/16/climate/antarctica-expedition-pine-island-glacier
 **How to Take a Phone-Free Vacation**\
 `Five getaways, and other tips for disengaging on holiday.`\
 https://nytimes.com/2026/01/16/t-magazine/digital-detox-phone-free-travel.html
-
-**Deported Student Hopes to Return After U.S. Acknowledges Error**\
-`A federal prosecutor apologized this week, saying an ICE officer made a “mistake” in deporting Any Lucia López Belloza, a college freshman in Massachusetts, to Honduras.`\
-https://nytimes.com/2026/01/16/us/politics/trump-immigration-student-deported-thanksgiving.html
-
-**Economy Seats That Don’t Recline? This Time, the Budget Move Won’t Fly.**\
-`WestJet, Canada’s second-largest carrier, backpedaled on a new seating plan after videos of crammed travelers went viral on social media.`\
-https://nytimes.com/2026/01/16/travel/westjet-non-reclinable-economy-seats.html
-
-**The High Cost of ICE’s Low Standards**\
-`By doubling its force while slashing training time, ICE has scaled up its culture of violence into an unrestrained and unaccountable machine.`\
-https://nytimes.com/video/opinion/100000010649676/the-high-cost-of-ices-low-standards.html
-
-**Walter Steding, Otherworldly One-Man Band and Portraitist, Is Dead at 75**\
-`A self-taught musician, he wore flashing goggles while playing the violin. But his real skill was as a painter, and his portraits offered an eerie commentary on the times.`\
-https://nytimes.com/2026/01/16/arts/walter-steding-dead.html
-
-**'There’s a magic around this place' – Michael Carrick's first press conference**\
-`Carrick carries himself in coaching much as he did as a player, picking his words like he picked his passes: steady, unflustered, astute`\
-https://nytimes.com/athletic/6977484/2026/01/16/michael-carrick-manchester-united-press-conference/
 
