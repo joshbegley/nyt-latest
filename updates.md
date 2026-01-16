@@ -1,3 +1,7 @@
+**Taiwan Reaches Trade Deal with Trump, Pledges More U.S. Chip Factories**\
+`The United States agreed to lower tariffs on Taiwanese goods from 20 to 15 percent, while Taiwan says it will invest in more chip manufacturing in the U.S.`\
+https://nytimes.com/2026/01/15/business/taiwan-trade-deal.html
+
 **Couple Says ICE Agents Gassed Them as They Drove With 6 Children**\
 `Shawn and Destiny Jackson said they were trying to escape a clash between ICE and protesters when agents used tear gas near their car. Their children gasped for air.`\
 https://nytimes.com/2026/01/15/us/minneapolis-couple-ice-tear-gas-6-children.html
