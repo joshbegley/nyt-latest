@@ -1,3 +1,11 @@
+**U.S. Says It Erred in Deporting Student Traveling for Thanksgiving**\
+`The Trump administration acknowledged it mistakenly deported a college student to Honduras despite a court order barring the removal. But the government has not moved to drop the case.`\
+https://nytimes.com/2026/01/15/us/politics/trump-deportation-student-traveling-thanksgiving.html
+
+**South Carolina outlasts Texas in SEC showdown, avenging early-season loss**\
+`Raven Johnson's late-game baskets boosted South Carolina, who now move atop the SEC standings while Texas remains in third.`\
+https://nytimes.com/athletic/6975720/2026/01/15/texas-south-carolina-womens-basketball-sec-recap/
+
 **Rays land Gavin Lux, Angels get Josh Lowe in 3-team trade: Source**\
 `Moving Lux and his $5.525 million salary could be a precursor to another move to upgrade the Reds' offense.`\
 https://nytimes.com/athletic/6975949/2026/01/15/angels-red-rays-trade-mlb-josh-lowe-gavin-lux/

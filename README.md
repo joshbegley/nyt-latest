@@ -3,7 +3,7 @@
 https://nytimes.com/2026/01/15/us/politics/trump-deportation-student-traveling-thanksgiving.html
 
 **South Carolina outlasts Texas in SEC showdown, avenging early-season loss**\
-`Raven Johnson's late-game baskets boosted South Carolina, who now move atop the SEC standings while Texas remains in third.`\
+`Raven Johnson's late-game baskets boosted South Carolina, which now moves atop the SEC standings while Texas remains in third.`\
 https://nytimes.com/athletic/6975720/2026/01/15/texas-south-carolina-womens-basketball-sec-recap/
 
 **Rays land Gavin Lux, Angels get Josh Lowe in 3-team trade: Source**\
