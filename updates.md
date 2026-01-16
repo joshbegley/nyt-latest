@@ -1,4 +1,8 @@
 **Video Analysis of ICE Shooting Sheds Light on Contested Moments**\
+`Newly available videos and existing footage synchronized and assessed by The Times provides a millisecond by millisecond look at how an ICE officer ended up shooting and killing a motorist in Minneapolis.`\
+https://nytimes.com/2026/01/15/video/ice-shooting-renee-good-minneapolis-videos.html
+
+**Video Analysis of ICE Shooting Sheds Light on Contested Moments**\
 `Newly available videos and existing footage synchronized and assessed by The Times provides a millisecond-by-millisecond look at how an ICE officer ended up shooting and killing a motorist in Minneapolis.`\
 https://nytimes.com/video/us/100000010648638/ice-shooting-renee-good-minneapolis-videos-analysis.html
 
