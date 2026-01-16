@@ -1,3 +1,7 @@
+**Preliminary injunction denied in legal challenge to NCAA redshirt rules**\
+`Judge William L. Campbell’s ruling means five plaintiffs, including Vanderbilt's Langston Patterson, remain out of eligibility.`\
+https://nytimes.com/athletic/6975458/2026/01/15/ncaa-redshirt-rules-langston-patterson-case/
+
 **As Cubs continue getting trade calls, where does that leave Nico Hoerner and Matt Shaw?**\
 `With an infield surplus on their hands, the Cubs could go in multiple directions ahead of Opening Day.`\
 https://nytimes.com/athletic/6975421/2026/01/15/chicago-cubs-nico-hoerner-matt-shaw-infield-surplus/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6975067/2026/01/15/trump-white-house-florida-panthe
 **Humanities Endowment Awarding Millions to Western Civilization Programs**\
 `The National Endowment for the Humanities is giving more than $40 million to programs that have been embraced by conservatives as a counterweight to liberal-dominated academia.`\
 https://nytimes.com/2026/01/15/arts/national-humanities-endowment-grants.html
-
-**Democratic Lawmakers Say They Face New Round of Federal Inquiries**\
-`By Wednesday, at least five Democratic lawmakers said they received new inquiries from federal prosecutors regarding a video they published in November. In the video, they urged military service members not to follow illegal orders.`\
-https://nytimes.com/video/us/politics/100000010647151/democratic-lawmakers-pirro-investigation.html
 
