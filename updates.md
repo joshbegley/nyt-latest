@@ -1,3 +1,19 @@
+**Trump Administration Lawsuit Seeking California Voter Data Is Dismissed**\
+`The Justice Department has sued about two dozen states over access to voter rolls, as the federal government pushes to create a national database.`\
+https://nytimes.com/2026/01/15/us/california-voter-roll-lawsuit-trump.html
+
+**Venezuela’s Interim Leader Balances Maduro’s Script With Trump’s Demands**\
+`In her State of the Union address, Delcy Rodríguez echoed her predecessors’ fiery rhetoric but tried to hew to President Trump’s agenda.`\
+https://nytimes.com/2026/01/15/world/americas/venezuela-rodriguez-maduro-trump.html
+
+**Former Senator Kyrsten Sinema Accused of Affair With Member of Security Team**\
+`In a lawsuit, the ex-wife of Ms. Sinema’s onetime staff member accused her of showering him with gifts and breaking up their marriage.`\
+https://nytimes.com/2026/01/15/us/politics/kyrsten-sinema-affair-lawsuit.html
+
+**California’s Pacific Coast Highway Fully Reopens After Three Years**\
+`The famed highway reopened this week after consecutive landslides shuttered two sections of the road in Big Sur and forced major repairs.`\
+https://nytimes.com/2026/01/15/us/pacific-coast-highway-reopened.html
+
 **Taiwan Reaches Trade Deal with Trump, Pledges More U.S. Chip Factories**\
 `The United States agreed to lower tariffs on Taiwanese goods from 20 to 15 percent, while Taiwan says it will invest in more chip manufacturing in the U.S.`\
 https://nytimes.com/2026/01/15/business/taiwan-trade-deal.html

@@ -1,3 +1,19 @@
+**Trump Administration Lawsuit Seeking California Voter Data Is Dismissed**\
+`The Justice Department has sued about two dozen states over access to voter rolls, as the federal government pushes to create a national database.`\
+https://nytimes.com/2026/01/15/us/california-voter-roll-lawsuit-trump.html
+
+**Venezuela’s Interim Leader Balances Maduro’s Script With Trump’s Demands**\
+`In her State of the Union address, Delcy Rodríguez echoed her predecessors’ fiery rhetoric but tried to hew to President Trump’s agenda.`\
+https://nytimes.com/2026/01/15/world/americas/venezuela-rodriguez-maduro-trump.html
+
+**Former Senator Kyrsten Sinema Accused of Affair With Member of Security Team**\
+`In a lawsuit, the ex-wife of Ms. Sinema’s onetime staff member accused her of showering him with gifts and breaking up their marriage.`\
+https://nytimes.com/2026/01/15/us/politics/kyrsten-sinema-affair-lawsuit.html
+
+**California’s Pacific Coast Highway Fully Reopens After Three Years**\
+`The famed highway reopened this week after consecutive landslides shuttered two sections of the road in Big Sur and forced major repairs.`\
+https://nytimes.com/2026/01/15/us/pacific-coast-highway-reopened.html
+
 **Taiwan Reaches Trade Deal with Trump, Pledges More U.S. Chip Factories**\
 `The United States agreed to lower tariffs on Taiwanese goods from 20 to 15 percent, while Taiwan says it will invest in more chip manufacturing in the U.S.`\
 https://nytimes.com/2026/01/15/business/taiwan-trade-deal.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6975420/2026/01/15/joe-bessner-boopie-miller-viral-
 **Ryan Weathers is open to arsenal tweaks: 'Whatever the Yankees want me to do'**\
 `The Yankees' newly acquired left-hander sees his job as pitching "in whatever capacity it is for however long it is."`\
 https://nytimes.com/athletic/6975380/2026/01/15/yankees-ryan-weathers-pitching-arsenal-health/
-
-**Preliminary injunction denied in legal challenge to NCAA redshirt rules**\
-`Judge William L. Campbell’s ruling means five plaintiffs, including Vanderbilt's Langston Patterson, remain out of eligibility.`\
-https://nytimes.com/athletic/6975458/2026/01/15/ncaa-redshirt-rules-langston-patterson-case/
-
-**As Cubs continue getting trade calls, where does that leave Nico Hoerner and Matt Shaw?**\
-`With an infield surplus on their hands, the Cubs could go in multiple directions ahead of Opening Day.`\
-https://nytimes.com/athletic/6975421/2026/01/15/chicago-cubs-nico-hoerner-matt-shaw-infield-surplus/
-
-**The Nobel Medal Has Been Sold Before for Millions of Dollars**\
-`The Nobel Committee has said the prize cannot be transferred, but it has been sold in a few auctions over the award’s history.`\
-https://nytimes.com/2026/01/15/world/americas/nobel-peace-prize-sold-auctions.html
-
-**Who are the 20 college basketball players charged in the federal point-shaving case?**\
-`Federal prosecutors charged 20 current and former players in a college basketball gambling case. Here’s who the players are.`\
-https://nytimes.com/athletic/6975372/2026/01/15/college-basketball-point-shaving-scandal-players-involved/
 
