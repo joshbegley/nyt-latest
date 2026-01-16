@@ -1,3 +1,15 @@
+**The Pulse: The Dodgers are building the Death Star**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6975906/2026/01/16/kyle-tucker-dodgers-the-pulse/
+
+**Chiefs mock draft reaction: Caleb Downs a 'difference-maker' — but not a great fit**\
+`The Athletic's Dane Brugler has the Chiefs taking safety Caleb Downs in his latest mock draft. Here are the pros and cons for that choice.`\
+https://nytimes.com/athletic/6974380/2026/01/16/chiefs-mock-draft-reaction-caleb-downs/
+
+**How bad can your offense be and still reach the Super Bowl?**\
+`The Seahawks had the NFL's best defense but a below-average offense during the regular season. Here's what history says about their chances.`\
+https://nytimes.com/athletic/6972868/2026/01/16/super-bowl-contenders-defense-seahawks/
+
 **Wangerheim joins Man Utd from Hammarby**\
 `The Sweden international has made 138 appearances for Hammarby, scoring 65 goals and is United's third signing of the transfer window.`\
 https://nytimes.com/athletic/6965726/2026/01/16/ellen-wangerheim-manchester-united-transfer/
