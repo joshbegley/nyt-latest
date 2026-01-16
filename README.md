@@ -1,3 +1,15 @@
+**What Kind of Lover Are You? This Poem Might Have the Answer.**\
+`William Blake’s “The Clod & the Pebble” is a dialogue on tenderness and cruelty in three short stanzas. Read it with our critic A.O. Scott, and then play a game to memorize it.`\
+https://nytimes.com/interactive/2026/01/16/books/william-blake-poem-clod-pebble.html
+
+**Ferrari replaces Hamilton’s F1 race engineer for 2026 season**\
+`Ferrari announced that Riccardo Adami would no longer serve as Hamilton’s race engineer in 2026.`\
+https://nytimes.com/athletic/6977264/2026/01/16/lewis-hamilton-ferrari-race-engineer/
+
+**Under Fire From Trump and Their Base, Minnesota Democrats Decry an ‘Invasion’**\
+`Officials denounced the Trump crackdown at an unofficial congressional hearing in Minneapolis. Administration officials have accused local leaders of promoting violence against ICE agents.`\
+https://nytimes.com/2026/01/16/us/minnesota-democrats-ice-hearing.html
+
 **Trump Praises Hassett, but Casts Doubt on Making Him Fed Chair**\
 `The blowback set off by the Justice Department’s criminal investigation into Jerome H. Powell, the chair of the central bank, has shaken up the race to replace him.`\
 https://nytimes.com/2026/01/16/business/trump-praises-hassett-but-casts-doubt-on-making-him-fed-chair.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6792079/2026/01/16/bo-bichette-mlb-free-agency-sign
 **Notre Dame final thoughts: Marcus Freeman's ambition and Irish's portal comeback**\
 `If Notre Dame makes another College Football Playoff run, Freeman will again be at the top of NFL coaching lists. And that’s OK.`\
 https://nytimes.com/athletic/6976884/2026/01/16/notre-dame-marcus-freeman-final-thoughts/
-
-**Trae Young, Ja Morant and Jonathan Kuminga aren't playing. Is this a problem?**\
-`How motivated will the NBA be to investigate the injuries to star players under the CBA? We might soon find out.`\
-https://nytimes.com/athletic/6976791/2026/01/16/ja-morant-trade-nba-rumors-trae-young/
-
-**Viva the Absurd: ‘What to Wear’ and a Wave of Opera Surrealism**\
-`Michael Gordon and Richard Foreman’s “What to Wear” at BAM is a visually rich, textually odd work — and a hot commodity.`\
-https://nytimes.com/2026/01/16/arts/music/prototype-what-to-wear-michael-gordon-richard-foreman.html
-
-**Why Is It So Hard to Set a 9/11 Trial Date? Here’s What to Know.**\
-`Prosecutors want jury selection to start in January 2027. That would be a quarter century after the attacks that killed nearly 3,000 people.`\
-https://nytimes.com/2026/01/16/us/politics/sept-11-attacks-trial.html
 
