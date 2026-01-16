@@ -1,3 +1,15 @@
+**Syria’s President Affirms Kurds’ Rights, in Overture to the Minority**\
+`President Ahmed al-Sharaa’s announcement comes after days of deadly clashes between government and Kurdish forces that have underscored the difficulty he faces in uniting the country.`\
+https://nytimes.com/2026/01/16/world/middleeast/syria-kurds-rights-decree-clashes.html
+
+**Ugandan Opposition Leader Bobi Wine Was Abducted, His Party Says**\
+`Mr. Wine’s party said on X that “an army helicopter” had landed in his compound and “forcibly” taken him away ahead of election results in Uganda, during a nationwide internet blackout.`\
+https://nytimes.com/2026/01/16/world/africa/uganda-bobi-wine-abduction.html
+
+**F.A.A. Urges ‘Caution’ Over Oceans in Latin America, Warning of Military Activity**\
+`The Federal Aviation Administration released seven advisories warning pilots to stay away from parts of the Pacific Ocean near Mexico, Colombia, Ecuador and Panama.`\
+https://nytimes.com/2026/01/16/us/politics/faa-warnings-latin-america.html
+
 **Twins sign catcher Victor Caratini to 2-year deal: Source**\
 `With Ryan Jeffers set to hit free agency after the upcoming season, Caratini gives the Twins some stability behind the plate beyond 2026.`\
 https://nytimes.com/athletic/6977953/2026/01/16/mlb-victor-caratini-free-agency-twins/
@@ -17,16 +29,4 @@ https://nytimes.com/2026/01/16/business/energy-environment/southern-california-e
 **Trinidad Chambliss sues NCAA, claims entering NFL Draft would cost QB millions**\
 `In the lawsuit filed Friday in Mississippi, the Ole Miss QB claims he would make millions more in NIL at Ole Miss than as an NFL rookie.`\
 https://nytimes.com/athletic/6977913/2026/01/16/trinidad-chambliss-lawsuit-ncaa-eligibility-ole-miss/
-
-**U.S. Boardings of Oil Tankers Reflect Hard Lessons Learned at Sea**\
-`Videos show U.S. forces descending quickly from helicopters onto the tankers, two years after a tragic boarding attempt.`\
-https://nytimes.com/2026/01/16/us/us-military-oil-tankers.html
-
-**Supreme Court to Hear Challenge to Warrants for Phone Location Data**\
-`The case involves a challenge to so-called geofence warrants, which permit law enforcement officials to sweep up location data of people near crime scenes.`\
-https://nytimes.com/2026/01/16/us/politics/supreme-court-warrants-location-data.html
-
-**Bill Belichick to join ACC Network's CFP title game coverage**\
-`Former Miami and Georgia coach Mark Richt is expected to share the desk with Belichick.`\
-https://nytimes.com/athletic/6977963/2026/01/16/bill-belichick-acc-network-cfp-championship/
 

@@ -1,3 +1,7 @@
+**No Link Between Acetaminophen in Pregnancy and Autism, a New Study Finds**\
+`The review looked at more than three dozen studies and found no evidence that acetaminophen increased the risk of neurodevelopmental disorders in children.`\
+https://nytimes.com/2026/01/16/health/tylenol-autism-acetaminophen-study.html
+
 **Syria’s President Affirms Kurds’ Rights, in Overture to the Minority**\
 `President Ahmed al-Sharaa’s announcement comes after days of deadly clashes between government and Kurdish forces that have underscored the difficulty he faces in uniting the country.`\
 https://nytimes.com/2026/01/16/world/middleeast/syria-kurds-rights-decree-clashes.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6977775/2026/01/16/kim-weiss-american-hockey-league
 **Edison Files Claims Against Los Angeles County and Others on Eaton Fire**\
 `Southern California Edison said its equipment most likely started the Eaton Fire but asserted that government agencies and other businesses shared liability for the devastation.`\
 https://nytimes.com/2026/01/16/business/energy-environment/southern-california-edison-eaton-fire.html
-
-**Trinidad Chambliss sues NCAA, claims entering NFL Draft would cost QB millions**\
-`In the lawsuit filed Friday in Mississippi, the Ole Miss QB claims he would make millions more in NIL at Ole Miss than as an NFL rookie.`\
-https://nytimes.com/athletic/6977913/2026/01/16/trinidad-chambliss-lawsuit-ncaa-eligibility-ole-miss/
 

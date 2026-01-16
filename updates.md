@@ -1,3 +1,15 @@
+**Syria’s President Affirms Kurds’ Rights, in Overture to the Minority**\
+`President Ahmed al-Sharaa’s announcement comes after days of deadly clashes between government and Kurdish forces that have underscored the difficulty he faces in uniting the country.`\
+https://nytimes.com/2026/01/16/world/middleeast/syria-kurds-rights-decree-clashes.html
+
+**Ugandan Opposition Leader Bobi Wine Was Abducted, His Party Says**\
+`Mr. Wine’s party said on X that “an army helicopter” had landed in his compound and “forcibly” taken him away ahead of election results in Uganda, during a nationwide internet blackout.`\
+https://nytimes.com/2026/01/16/world/africa/uganda-bobi-wine-abduction.html
+
+**F.A.A. Urges ‘Caution’ Over Oceans in Latin America, Warning of Military Activity**\
+`The Federal Aviation Administration released seven advisories warning pilots to stay away from parts of the Pacific Ocean near Mexico, Colombia, Ecuador and Panama.`\
+https://nytimes.com/2026/01/16/us/politics/faa-warnings-latin-america.html
+
 **Man Who Attacked a Thai Grandfather in 2021 Is Found Not Guilty of Murder**\
 `Instead, the man was convicted of lesser charges, including involuntary manslaughter, in the death of Vicha Ratanapakdee. The killing became a symbol of rising attacks against Asians during the pandemic.`\
 https://nytimes.com/2026/01/16/us/vicha-ratanapakdee-verdict-sf.html
