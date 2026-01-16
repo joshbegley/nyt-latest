@@ -1,3 +1,7 @@
+**From a D.J. Set to Church, and Back Again**\
+`When the writer Lamorna Ash set out to explore young people’s relationship to faith and religion, she found herself questioning her own.`\
+https://nytimes.com/2026/01/16/style/lamorna-ash-book-religious-conversion.html
+
 **Washington National Opera Finds a Stage Outside the Kennedy Center**\
 `Spring performances of “Treemonisha” and “The Crucible” will be held at George Washington University.`\
 https://nytimes.com/2026/01/16/arts/music/washington-national-opera-kennedy-center.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010642168/how-greenland-is-reacting
 **Rosenthal: Dodgers’ splurge on Tucker will increase calls for a salary cap, but MLB needs other fixes**\
 `The star outfielder's four-year deal with the team includes a record average annual value of $57.1 million.`\
 https://nytimes.com/athletic/6976696/2026/01/16/dodgers-kyle-tucker-lockout-mlb-labor/
-
-**Kyle Tucker's contract allows the Dodgers to capitalize on their dynasty run**\
-`Concern over Tommy Edman's surgery recovery might have given the Dodgers more incentive to land Tucker.`\
-https://nytimes.com/athletic/6975936/2026/01/16/dodgers-kyle-tucker-mlb-contract-dynasty/
 
