@@ -1,3 +1,7 @@
+**Oliver Glasner to leave Crystal Palace this summer for a 'new challenge'**\
+`Glasner guided Palace to their first major trophy as his side lifted the FA Cup last season but will leave the club at the end of the season`\
+https://nytimes.com/athletic/6569088/2026/01/16/glasner-crystal-palace-manager-leaving/
+
 **With or without Giannis, Bucks look lost halfway through their season**\
 `At 17-24, the Bucks have their worst record through 41 games since the 2015-16 season, Antetokounmpo's third in the NBA.`\
 https://nytimes.com/athletic/6976274/2026/01/16/giannis-antetokounmpo-bucks-season-lost/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6976272/2026/01/16/klay-thompson-damian-lillard-3-p
 **The New Mayor of Davos**\
 `Larry Fink, BlackRock’s chief executive, led an effort to elevate the World Economic Forum next week, the first without the event’s founder, Klaus Schwab.`\
 https://nytimes.com/2026/01/16/business/dealbook/fink-davos-wef.html
-
-**What Teenagers Are Saying About the Pressure to Be Perfect**\
-`Students react to a guest essay about how the quest for flawlessness is harming society.`\
-https://nytimes.com/2026/01/16/learning/what-teenagers-are-saying-about-the-pressure-to-be-perfect.html
 
