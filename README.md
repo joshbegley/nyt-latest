@@ -1,3 +1,7 @@
+**Couple Says ICE Agents Gassed Them as They Drove With 6 Children**\
+`Shawn and Destiny Jackson said they were trying to escape a clash between ICE and protesters when agents used tear gas near their car. Their children gasped for air.`\
+https://nytimes.com/2026/01/15/us/minneapolis-couple-ice-tear-gas-6-children.html
+
 **Former Building Super Is Convicted of Stealing $350,000 From 98-Year-Old**\
 `Rosalind Hernandez, who worked in a co-op building in Manhattan, befriended and then bilked a vulnerable resident, prosecutors said.`\
 https://nytimes.com/2026/01/15/nyregion/building-superintendent-larceny-manhattan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6975372/2026/01/15/college-basketball-point-shaving
 **‘The Rip’ Review: Clean Cop, Dirty Cop**\
 `Matt Damon and Ben Affleck play grizzled cops looking at each other sideways in this Netflix crime thriller that has all the concepts but not much else.`\
 https://nytimes.com/2026/01/15/movies/the-rip-review.html
-
-**Why ASAP Rocky’s New Album Took So Long**\
-`The musician and actor A$AP Rocky sat down with Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, to discuss the release of his first album in eight years.`\
-https://nytimes.com/video/podcasts/100000010648632/why-asap-rockys-new-album-took-so-long.html
 
