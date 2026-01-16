@@ -1,3 +1,7 @@
+**Ex-South Korean Leader Gets Prison Term in First Ruling Over Martial Law**\
+`A court handed down five years in prison to former President Yoon Suk Yeol, who is facing multiple trials stemming from his short-lived imposition of martial law.`\
+https://nytimes.com/2026/01/16/world/asia/skorea-yoon-prison-martial-law.html
+
 **Seth Meyers Never Guessed Trump Was Such a Milk Fan**\
 `The “Late Night” host said there was no way President Trump drank milk, “unless someone tricked you into thinking your Diet Coke came from a cow.”`\
 https://nytimes.com/2026/01/16/arts/television/late-night-trump-milk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6965990/2026/01/16/tottenham-hotspur-discipline-pro
 **Ndiaye, Ndukwe and why Liverpool are targeting young centre-backs in the transfer market**\
 `There has been a feeling Liverpool had reached the end of the cycle academy wise and that's been reinforced in the six months since`\
 https://nytimes.com/athletic/6973644/2026/01/16/liverpool-transfers-centre-backs/
-
-**Carl Rushworth and Eiran Cashin giving Brighton a mixed taste of the loan market**\
-`The pair's contrasting fortunes this season show that picking the right club for a player to join on loan is a risky business`\
-https://nytimes.com/athletic/6969380/2026/01/16/brighton-rushworth-cashin-loans/
 
