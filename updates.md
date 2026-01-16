@@ -1,3 +1,15 @@
+**Who are the 20 college basketball players charged in the federal point-shaving case?**\
+`Federal prosecutors charged 20 current and former players in a college basketball gambling case. Here’s who the players are.`\
+https://nytimes.com/athletic/6975372/2026/01/15/college-basketball-point-shaving-scandal-players-involved/
+
+**‘The Rip’ Review: Clean Cop, Dirty Cop**\
+`Matt Damon and Ben Affleck play grizzled cops looking at each other sideways in this Netflix crime thriller that has all the concepts but not much else.`\
+https://nytimes.com/2026/01/15/movies/the-rip-review.html
+
+**After multiple signings, the Reds' bullpen is improved, but where’s the offense?**\
+`New signees Pierce Johnson and Caleb Ferguson, along with the re-signed Emilio Pagán, help solidify the Reds' 2026 bullpen.`\
+https://nytimes.com/athletic/6975205/2026/01/15/cincinnati-reds-pierce-johnson-bullpen-improvement/
+
 **Why ASAP Rocky’s New Album Took So Long**\
 `The musician and actor A$AP Rocky sat down with Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, to discuss the release of his first album in eight years.`\
 https://nytimes.com/video/podcasts/100000010648632/why-asap-rockys-new-album-took-so-long.html
