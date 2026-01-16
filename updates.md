@@ -1,3 +1,7 @@
+**The Nobel Medal Has Been Sold Before for Millions of Dollars**\
+`The Nobel Committee has said the prize cannot be transferred, but it has been sold in a few auctions over the award’s history.`\
+https://nytimes.com/2026/01/15/world/americas/nobel-peace-prize-sold-auctions.html
+
 **Preliminary injunction denied in legal challenge to NCAA redshirt rules**\
 `Judge William L. Campbell’s ruling means five plaintiffs, including Vanderbilt's Langston Patterson, remain out of eligibility.`\
 https://nytimes.com/athletic/6975458/2026/01/15/ncaa-redshirt-rules-langston-patterson-case/

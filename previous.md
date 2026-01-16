@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6975458/2026/01/15/ncaa-redshirt-rules-langston-pat
 https://nytimes.com/athletic/6975421/2026/01/15/chicago-cubs-nico-hoerner-matt-shaw-infield-surplus/
 
 **The Nobel Medal Has Been Sold Before for Millions of Dollars**\
-`The Nobel Commitee has said the prize cannot be transferred, but it has been sold in a few auctions over the award’s history.`\
+`The Nobel Committee has said the prize cannot be transferred, but it has been sold in a few auctions over the award’s history.`\
 https://nytimes.com/2026/01/15/world/americas/nobel-peace-prize-sold-auctions.html
 
 **Who are the 20 college basketball players charged in the federal point-shaving case?**\

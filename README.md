@@ -1,3 +1,7 @@
+**Ryan Weathers is open to arsenal tweaks: 'Whatever the Yankees want me to do'**\
+`The Yankees' newly acquired left-hander sees his job as pitching "in whatever capacity it is for however long it is."`\
+https://nytimes.com/athletic/6975380/2026/01/15/yankees-ryan-weathers-pitching-arsenal-health/
+
 **Preliminary injunction denied in legal challenge to NCAA redshirt rules**\
 `Judge William L. Campbell’s ruling means five plaintiffs, including Vanderbilt's Langston Patterson, remain out of eligibility.`\
 https://nytimes.com/athletic/6975458/2026/01/15/ncaa-redshirt-rules-langston-patterson-case/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6975205/2026/01/15/cincinnati-reds-pierce-johnson-b
 **Florida Panthers visit President Trump at White House to celebrate 2025 Stanley Cup win**\
 `The Panthers visited the White House for a second consecutive year.`\
 https://nytimes.com/athletic/6975067/2026/01/15/trump-white-house-florida-panthers-stanley-cup/
-
-**Humanities Endowment Awarding Millions to Western Civilization Programs**\
-`The National Endowment for the Humanities is giving more than $40 million to programs that have been embraced by conservatives as a counterweight to liberal-dominated academia.`\
-https://nytimes.com/2026/01/15/arts/national-humanities-endowment-grants.html
 
