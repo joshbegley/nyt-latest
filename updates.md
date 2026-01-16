@@ -1,3 +1,7 @@
+**South Carolina outlasts Texas in SEC showdown, avenging early-season loss**\
+`Raven Johnson's late-game baskets boosted South Carolina, which now moves atop the SEC standings while Texas remains in third.`\
+https://nytimes.com/athletic/6975720/2026/01/15/texas-south-carolina-womens-basketball-sec-recap/
+
 **U.S. Says It Erred in Deporting Student Traveling for Thanksgiving**\
 `The Trump administration acknowledged it mistakenly deported a college student to Honduras despite a court order barring the removal. But the government has not moved to drop the case.`\
 https://nytimes.com/2026/01/15/us/politics/trump-deportation-student-traveling-thanksgiving.html
