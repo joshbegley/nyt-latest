@@ -1,3 +1,7 @@
+**‘Heated Rivalry’ has a fan in Gary Bettman: ‘I binged it in one night’**\
+`The 73-year-old called the hit TV show a "wonderful" and "compelling" story but said the content "might be a little spicy" for young people.`\
+https://nytimes.com/athletic/6975677/2026/01/15/heated-rivalry-nhl-gary-bettman-hockey/
+
 **Machado Offers Trump Her Nobel Peace Prize Medal**\
 `During a meeting in the White House on Thursday, Venezuela’s opposition leader, María Corina Machado, presented her medal to President Trump.`\
 https://nytimes.com/video/world/americas/100000010648635/machado-offers-trump-her-nobel-peace-prize-medal.html
