@@ -1,3 +1,7 @@
+**Jonathan Haidt Brings New Evidence to the Battle Against Social Media**\
+`The author of “The Anxious Generation” shares his latest research about the harms social media is doing to children.`\
+https://nytimes.com/video/podcasts/100000010650259/jonathan-haidt-brings-new-evidence-to-the-battle-against-social-media.html
+
 **Dodgers leverage winning culture, creative contracts to land Kyle Tucker, other top free agents**\
 `The Dodgers don't just have money to throw at free agents. They offer a chance for them to win titles, get paid and re-enter the market.`\
 https://nytimes.com/athletic/6977418/2026/01/16/dodgers-kyle-tucker-short-term-contracts-large-salaries/
@@ -25,8 +29,4 @@ https://nytimes.com/interactive/2026/01/16/upshot/flashback.html
 **Drunken Driver Who Killed 4 at Cookout Is Sentenced to Decades in Prison**\
 `The driver, Daniel Hyden, was a substance abuse counselor who had past citations for driving under the influence.`\
 https://nytimes.com/2026/01/16/nyregion/drunken-driver-killed-four-fourth-of-july-sentenced.html
-
-**Betting for (by) dummies: Who dares get off the Cignetti train now?**\
-`Jon Greenberg and Zac Jackson take another crack at predicting playoff football.`\
-https://nytimes.com/athletic/6977296/2026/01/16/nfl-college-football-betting-bears-indiana-cignetti/
 
