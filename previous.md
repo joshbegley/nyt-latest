@@ -1,3 +1,7 @@
+**Death Toll Rises to 28 After Landfill Collapse in the Philippines**\
+`Rescuers in Cebu City have recovered 28 bodies from a garbage mound that collapsed last week. The search continues for eight missing people.`\
+https://nytimes.com/2026/01/16/world/asia/philippines-landfill-collapse-cebu.html
+
 **Meloni and Takaichi, Right-Wing Trailblazers, Become Fast Friends**\
 `At a meeting in Tokyo, Prime Ministers Giorgia Meloni of Italy and Sanae Takaichi of Japan bonded over being conservative women at the pinnacle of power.`\
 https://nytimes.com/2026/01/16/world/asia/meloni-takaichi-italy-japan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/16/realestate/1-8-million-homes-in-france.html
 **ASAP Rocky Grew Up, Settled Down (with Rihanna) and Returned to Rap**\
 `The artist reflects on how the chaotic eight years since his last release — including three kids and two trials — led to his latest album, “Don’t Be Dumb.”`\
 https://nytimes.com/2026/01/16/arts/music/asap-rocky-interview-popcast.html
-
-**Love ‘Heated Rivalry’? Read These Romance Novels Next**\
-`Steamy love stories starring athletes and top-notch yearners will tide you over until your next trip to the cottage.`\
-https://nytimes.com/2026/01/16/books/books-like-heated-rivalry.html
 
