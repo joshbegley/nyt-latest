@@ -1,3 +1,11 @@
+**Bill Belichick to join ACC Network's CFP title game coverage**\
+`Former Miami and Georgia head coach Mark Richt is expected to share the desk with Belichick.`\
+https://nytimes.com/athletic/6977963/2026/01/16/bill-belichick-acc-network-cfp-championship/
+
+**Trump Sets Convicted Fraudster Free for a Second Time**\
+`Also, the C.I.A. director met Venezuela’s new leader in Caracas. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2026/01/16/briefing/trump-pardons-venezuela-cia-director.html
+
 **Sailing Through a ‘Death Trap’ Once Covered by Antarctic Ice**\
 `Part of Pine Island Glacier collapsed several years ago, forming an unstable inlet where no ship had sailed. Until now.`\
 https://nytimes.com/2026/01/16/climate/antarctica-expedition-pine-island-glacier.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/16/arts/walter-steding-dead.html
 **'There’s a magic around this place' – Michael Carrick's first press conference**\
 `Carrick carries himself in coaching much as he did as a player, picking his words like he picked his passes: steady, unflustered, astute`\
 https://nytimes.com/athletic/6977484/2026/01/16/michael-carrick-manchester-united-press-conference/
-
-**Reds' Terry Francona on roster: 'I like our guys. I don't have to fake that'**\
-`Even if most of the names are the same, the Reds' roster will enter 2026 with more experience.`\
-https://nytimes.com/athletic/6977837/2026/01/16/cincinnati-reds-terry-francona-roster-makeup/
-
-**Arizona Governor Election 2026: Latest Polls**\
-`Track the latest polls in the Arizona governor election.`\
-https://nytimes.com/interactive/polls/arizona-governor-election-polls-2026.html
 
