@@ -1,3 +1,7 @@
+**Syria’s President Affirms Kurds’ Rights, in Overture to the Minority**\
+`President Ahmed al-Sharaa’s announcement comes after days of deadly clashes between government and Kurdish forces that have underscored the difficulty he faces in uniting the country.`\
+https://nytimes.com/2026/01/16/world/middleeast/syria-kurds-rights-decree-clashes.html
+
 **Ugandan Opposition Leader Bobi Wine Was Abducted, His Party Says**\
 `Mr. Wine’s party said on X that “an army helicopter” had landed in his compound and “forcibly” taken him away ahead of election results in Uganda, during a nationwide internet blackout.`\
 https://nytimes.com/2026/01/16/world/africa/uganda-bobi-wine-abduction.html
@@ -25,8 +29,4 @@ https://nytimes.com/2026/01/16/business/energy-environment/southern-california-e
 **Trinidad Chambliss sues NCAA, claims entering NFL Draft would cost QB millions**\
 `In the lawsuit filed Friday in Mississippi, the Ole Miss QB claims he would make millions more in NIL at Ole Miss than as an NFL rookie.`\
 https://nytimes.com/athletic/6977913/2026/01/16/trinidad-chambliss-lawsuit-ncaa-eligibility-ole-miss/
-
-**U.S. Boardings of Oil Tankers Reflect Hard Lessons Learned at Sea**\
-`Videos show U.S. forces descending quickly from helicopters onto the tankers, two years after a tragic boarding attempt.`\
-https://nytimes.com/2026/01/16/us/us-military-oil-tankers.html
 
