@@ -1,3 +1,15 @@
+**Carl Rushworth and Eiran Cashin giving Brighton a mixed taste of the loan market**\
+`The pair's contrasting fortunes this season show that picking the right club for a player to join on loan is a risky business`\
+https://nytimes.com/athletic/6969380/2026/01/16/brighton-rushworth-cashin-loans/
+
+**The defenders who are proving impossible to ignore in Fantasy Premier League**\
+`The defender market is wide open in FPL, and it provides an opportunity for those seeking strong value outside of the premium bracket`\
+https://nytimes.com/athletic/6971607/2026/01/16/fantasy-premier-league-fpl-tips-gameweek-22/
+
+**Harry Wilson and Leeds remains a big 'what if', but Farke's team have coped without him**\
+`The move for the Fulham man collapsed last year and he has been in superb form ever since, but Leeds shouldn't get too hung up about it`\
+https://nytimes.com/athletic/6974603/2026/01/16/harry-wilson-leeds-fulham-premier-league/
+
 **Cricket's T20 World Cup is highlighting tensions on the Indian subcontinent**\
 `India is co-hosting the 20-team tournament, starting on February 7, but Bangladesh has said it will join Pakistan in not playing there`\
 https://nytimes.com/athletic/6945184/2026/01/16/cricket-t20-world-cup-indian-tensions-explained/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6966093/2026/01/16/patrice-motsepe-caf-president-pr
 **Emergency Call Transcripts Record a Crisis Unfolding in Real Time**\
 `The killing of Renee Good by an ICE agent was instantly reported to the Minneapolis Police. The calls reflect shock, fury and confusion.`\
 https://nytimes.com/2026/01/16/us/911-calls-minneapolis-ice-shooting.html
-
-**Premier League predictions: Manchester derby, Spurs vs West Ham and rest of matchday 22**\
-`Who's leading after MD21? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 22?`\
-https://nytimes.com/athletic/6965468/2026/01/16/premier-league-predictions-md22/
-
-**How do Mets pivot after losing out on Kyle Tucker to Dodgers?**\
-`The Mets have a variety of ways to pivot, though none are as glamorous as adding Tucker to their lineup.`\
-https://nytimes.com/athletic/6976027/2026/01/16/mets-kyle-tucker-free-agent-options-analysis/
-
-**James Ward-Prowse and his internal exile at West Ham**\
-`The ex-Southampton midfielder has not featured in a matchday squad since Nuno succeeded Graham Potter as head coach on September 27`\
-https://nytimes.com/athletic/6963327/2026/01/16/james-ward-prowse-west-ham-absence/
 
