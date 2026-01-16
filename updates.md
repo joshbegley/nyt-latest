@@ -1,3 +1,7 @@
+**Reds' Terry Francona on roster: 'I like our guys. I don't have to fake that'**\
+`Even if most of the names are the same, the Reds' roster will enter 2026 with more experience.`\
+https://nytimes.com/athletic/6977837/2026/01/16/cincinnati-reds-terry-francona-roster-makeup/
+
 **Arizona Governor Election 2026: Latest Polls**\
 `Track the latest polls in the Arizona governor election.`\
 https://nytimes.com/interactive/polls/arizona-governor-election-polls-2026.html
