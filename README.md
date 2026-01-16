@@ -1,3 +1,7 @@
+**How to Train Citizens to Observe ICE**\
+`What does training to document ICE actions look like? On “Interesting Times,” one activist explains how his Minneapolis-based nonprofit teaches citizens to be constitutional observers.`\
+https://nytimes.com/video/opinion/100000010642896/how-to-train-citizens-to-observe-ice.html
+
 **Supreme Court to Decide if the Pesticide Roundup Is Shielded From Lawsuits**\
 `The case could affect thousands of claims that the widely used weedkiller causes cancer.`\
 https://nytimes.com/2026/01/16/climate/supreme-court-roundup-pesticide.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6977580/2026/01/16/leafs-goalie-anthony-stolarz-inj
 **Kyle Tucker, a low-key personality, leaves Cubs for a place where he can blend in**\
 `The Dodgers already have several players who fit the mold of a natural team leader or the front man for a franchise.`\
 https://nytimes.com/athletic/6977691/2026/01/16/kyle-tucker-cubs-dodgers-star-responsibilities/
-
-**In Toronto, Bichette's departure marks the end of one era and the start of another**\
-`Bichette helped the Blue Jays and their fans again dream of World Series success. It will now be up to others to complete that goal.`\
-https://nytimes.com/athletic/6977708/2026/01/16/bo-bichette-leaving-toronto-blue-jays/
 
