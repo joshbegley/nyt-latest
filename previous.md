@@ -1,3 +1,7 @@
+**Judge in Virginia Hands Trump 3rd Setback This Week on Wind Farms**\
+`Construction can continue on an $11.2 billion project off the coast of Virginia, said to be more than 60 percent complete.`\
+https://nytimes.com/2026/01/16/climate/coastal-virginia-offshore-wind-ruling.html
+
 **OpenAI Starts Testing Ads in ChatGPT**\
 `The company said on Friday that it would start serving ads in the free version of its chatbot over the next several weeks.`\
 https://nytimes.com/2026/01/16/technology/openai-starts-testing-ads-in-chatgpt.html
