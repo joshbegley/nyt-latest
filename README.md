@@ -1,3 +1,7 @@
+**Do Tottenham Hotspur have a discipline problem?**\
+`Are angry exchanges with fans, post-match scuffles, a litany of cards, and issues with punctuality a recipe for success?`\
+https://nytimes.com/athletic/6965990/2026/01/16/tottenham-hotspur-discipline-problem/
+
 **Carl Rushworth and Eiran Cashin giving Brighton a mixed taste of the loan market**\
 `The pair's contrasting fortunes this season show that picking the right club for a player to join on loan is a risky business`\
 https://nytimes.com/athletic/6969380/2026/01/16/brighton-rushworth-cashin-loans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6969512/2026/01/16/how-chelsea-play-premier-league-
 **He is African football’s most powerful man. Could Motsepe be the heir to Infantino’s FIFA throne?**\
 `The South African billionaire has also been talked about as a future president of his country`\
 https://nytimes.com/athletic/6966093/2026/01/16/patrice-motsepe-caf-president-profile/
-
-**Emergency Call Transcripts Record a Crisis Unfolding in Real Time**\
-`The killing of Renee Good by an ICE agent was instantly reported to the Minneapolis Police. The calls reflect shock, fury and confusion.`\
-https://nytimes.com/2026/01/16/us/911-calls-minneapolis-ice-shooting.html
 
