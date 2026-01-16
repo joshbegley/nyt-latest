@@ -1,3 +1,15 @@
+**iVisit Boxing wants a world record crowd, Usyk and YouTube - but is it credible?**\
+`Examining the big plans Ed Pereira has for his new firm and how it wants to stage an historic bout in San Francisco`\
+https://nytimes.com/athletic/6976622/2026/01/16/ivisit-boxing-world-record-crowd-usyk/
+
+**Fantasy Premier League live Q&A: Gameweek 22 advice from Ben Dinnery**\
+`Ben Dinnery of premierinjuries.com is on hand from 4mp-5pm (GMT) to offer his expert advice and give you the best chance of success`\
+https://nytimes.com/athletic/6976566/2026/01/16/fantasy-premier-league-gameweek-22-advice-tips-ben-dinnery/
+
+**‘The Headlines’ News Quiz: Jan. 16, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://nytimes.com/2026/01/16/podcasts/the-headlines/the-headlines-news-quiz.html
+
 **Casemiro's Man Utd contract option can be triggered by number of starts**\
 `The Brazilian has started 18 times this season, with United only having 17 more games to play.`\
 https://nytimes.com/athletic/6968979/2026/01/16/casemiro-manchester-united-contract-option/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6974527/2026/01/16/the-athletics-friday-football-qu
 **Where Scams Come From**\
 `We take a look at some remarkable reporting from Myanmar.`\
 https://nytimes.com/2026/01/16/briefing/where-scams-come-from.html
-
-**'They were hypnotised': Liam Rosenior and Keith Andrews, the punditry years**\
-`The Chelsea and Brentford head coaches both spent part of their post-playing careers in front of the camera `\
-https://nytimes.com/athletic/6963122/2026/01/16/rosenior-andrews-tsky-sports-pundit-chelsea-brentford/
-
-**Perpetually in the transfer portal? Meet The Athletic's All-Frequent Flyer Team**\
-`We've picked an all-star team of players who have spent time at a minimum of four schools. Our captain is a QB who is at stop No. 7.`\
-https://nytimes.com/athletic/6973805/2026/01/16/college-football-all-transfer-portal-team/
-
-**Bills' inexperienced safeties create juicy area for Sean Payton to attack**\
-`Broncos coach will throw some wrinkles into Saturday's gameplan in an effort to test Buffalo's defensive backfield.`\
-https://nytimes.com/athletic/6975686/2026/01/16/bills-inexperienced-safeties-broncos-sean-payton/
 
