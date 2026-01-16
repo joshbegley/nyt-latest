@@ -1,3 +1,23 @@
+**How to Train Citizens to Observe ICE**\
+`What does training to document ICE actions look like? On “Interesting Times,” one activist explains how his Minneapolis-based nonprofit teaches citizens to be constitutional observers.`\
+https://nytimes.com/video/opinion/100000010642896/how-to-train-citizens-to-observe-ice.html
+
+**Supreme Court to Decide if the Pesticide Roundup Is Shielded From Lawsuits**\
+`The case could affect thousands of claims that the widely used weedkiller causes cancer.`\
+https://nytimes.com/2026/01/16/climate/supreme-court-roundup-pesticide.html
+
+**What Kind of Immigration Enforcement Is Legitimate?**\
+`As ICE’s approach to immigration enforcement faces mounting criticism, Ross Douthat, the host of “Interesting Times,” asks the Minneapolis activist Francisco Segovia what legitimate immigration enforcement might look like.`\
+https://nytimes.com/video/opinion/100000010642893/what-kind-of-immigration-enforcement-is-legitimate.html
+
+**We Tested Kitchen Sponges. These Are the Best.**\
+`Text by Caroline Mullen`\
+https://nytimes.com/card/2026/01/16/smarter-living/wirecutter/
+
+**Seahawks' Mike Macdonald 'optimistic' Sam Darnold plays vs. 49ers**\
+`Macdonald declined to say whether Darnold threw passes during Friday's practice session ahead of their playoff game.`\
+https://nytimes.com/athletic/6977789/2026/01/16/sam-darnold-seahawks-49ers-injury-update/
+
 **Seahawks' Mike Macdonald 'optimistic' Sam Darnold plays vs. 49ers**\
 `Macdonald declined to say whether Darnold threw passes during Friday's practice session ahead of their playoff game vs. the 49ers.`\
 https://nytimes.com/athletic/6977789/2026/01/16/sam-darnold-seahawks-49ers-injury-update/
