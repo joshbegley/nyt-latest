@@ -1,3 +1,7 @@
+**As Arctic Air Barrels South, a Snowy Weekend Is on the Table**\
+`Abnormally blustery temperatures this weekend could usher in snowy weather across the East. Exactly where remains uncertain, but even the Deep South is on alert.`\
+https://nytimes.com/2026/01/16/weather/snow-cold-forecast-us-south.html
+
 **Why Caleb Williams' incredible fourth-and-8 throw will go down in Bears history**\
 `Williams' rolling, leaping pass to Rome Odunze will not be forgotten by Bears fans, no matter what happens next. Here's how it resonates.`\
 https://nytimes.com/athletic/6975699/2026/01/16/bears-caleb-williams-incredible-pass-packers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6965726/2026/01/16/ellen-wangerheim-manchester-unit
 **Stuart Skinner's calming presence guides Penguins in romp over Flyers**\
 `Six players scored goals for the Penguins and Stuart Skinner held down the fort in a rough second period to beat the Flyers.`\
 https://nytimes.com/athletic/6953905/2026/01/16/penguins-skinner-goaltending-lizotte-flyers/
-
-**Potential Brian Flores replacements, Jordan Addison’s future and more: Vikings mailbag**\
-`Vikings defensive backs coach Daronte Jones could be a candidate for the team's defensive coordinator job if Flores leaves for another team.`\
-https://nytimes.com/athletic/6974798/2026/01/16/vikings-mailbag-brian-flores-daronte-jones-jordan-addison/
 
