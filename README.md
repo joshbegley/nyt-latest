@@ -1,40 +1,40 @@
-**Musiala to return for Bayern after six-month layoff**\
-`The 22-year-old broke and dislocated his left ankle during the Club World Cup last summer and has not featured since.`\
-https://nytimes.com/athletic/6976596/2026/01/16/jamal-musiala-bayern-injury-return/
+**Wangerheim joins Man Utd from Hammarby**\
+`The Sweden international has made 138 appearances for Hammarby, scoring 65 goals and is United's third signing of the transfer window.`\
+https://nytimes.com/athletic/6965726/2026/01/16/ellen-wangerheim-manchester-united-transfer/
 
-**Tennis hangs on Roger Federer's every move. In Melbourne, he is holding court**\
-`The most anticipated practice session of the 2026 Australian Open was for a player three-and-a-half years removed from the sport.`\
-https://nytimes.com/athletic/6976590/2026/01/16/tennis-australian-open-roger-federer/
+**Stuart Skinner's calming presence guides Penguins in romp over Flyers**\
+`Six players scored goals for the Penguins and Stuart Skinner held down the fort in a rough second period to beat the Flyers.`\
+https://nytimes.com/athletic/6953905/2026/01/16/penguins-skinner-goaltending-lizotte-flyers/
 
-**Where do Browns stand in their coaching search? Should they target an offensive mind?**\
-`Taking a look at the candidates Cleveland has interviewed, who's still on its list and the type of coach it would make sense to hire. `\
-https://nytimes.com/athletic/6974985/2026/01/16/browns-2025-head-coaching-search/
+**Potential Brian Flores replacements, Jordan Addison’s future and more: Vikings mailbag**\
+`Vikings defensive backs coach Daronte Jones could be a candidate for the team's defensive coordinator job if Flores leaves for another team.`\
+https://nytimes.com/athletic/6974798/2026/01/16/vikings-mailbag-brian-flores-daronte-jones-jordan-addison/
 
-**Howe says injuries could impact Newcastle's January transfer plans**\
-`Jacob Murphy is set miss the Wolves game on Sunday, joining Fabian Schar, Tino Livramento, Dan Burn and Emil Krafth on the sidelines.`\
-https://nytimes.com/athletic/6976535/2026/01/16/eddie-howe-newcastle-transfer-plans/
+**Jimmy Graham to Panthers' Ikem Ekwonu: You'll work harder than you've ever worked**\
+`Ekwonu, Carolina's starting left tackle, ruptured his right patellar tendon. Graham had the same injury and offers his insight and advice.`\
+https://nytimes.com/athletic/6975346/2026/01/16/panthers-ikem-ekwonu-injury-recover-update/
 
-**Where would Indiana rank among the biggest surprise national champions?**\
-`Indiana has a chance to become one of the biggest surprise national champions in college football history.`\
-https://nytimes.com/athletic/6967367/2026/01/16/college-football-indiana-national-champion-odds-history/
+**After early Eagles exit and confetti-less season, it's Howie Roseman time in Philadelphia**\
+`Roseman said his performance as general manager wasn't good enough.`\
+https://nytimes.com/athletic/6975463/2026/01/16/eagles-playoff-exit-howie-roseman/
 
-**'I am happy he comes back' - Slot on Salah returning after AFCON**\
-`Salah will play in the AFCON third-place play-off this weekend for Egypt against Nigeria before returning to his club.`\
-https://nytimes.com/athletic/6976562/2026/01/16/mohamed-salah-liverpool-afcon-return/
+**The Mets still have to catch up to become the 'East Coast Dodgers'**\
+`Owner Steve Cohen wants a great farm system, but he's also going to have spend big on free agency to catch up to LA.`\
+https://nytimes.com/athletic/6976076/2026/01/16/the-mets-still-have-to-catch-up-to-become-the-east-coast-dodgers/
 
-**Rams' Puka Nacua, Davante Adams have found strength in their opposite ways**\
-`The All-Pro receivers with different personalities have been the perfect complement in a Rams offense led by MVP candidate Matthew Stafford.`\
-https://nytimes.com/athletic/6973194/2026/01/16/rams-davante-adams-puka-nacua/
+**A new trend is emerging among casual bettors this NFL postseason**\
+`As the NFL playoffs continue, a new trend has emerged with bettors this year.`\
+https://nytimes.com/athletic/6973830/2026/01/16/super-bowl-betting-bears-patriots-exactas/
 
-**All eyes in Bears secondary are on Rams star Puka Nacua ahead of playoff duel**\
-`Playoff survival in Chicago may hinge on the ability to slow the most potent weapon on a dangerous Rams offense.`\
-https://nytimes.com/athletic/6975597/2026/01/16/bears-puka-nacua-rams-playoffs/
+**Carolina Hurricanes face two tests as measuring sticks for future success**\
+`If the Hurricanes want to reach the highest level, they can show a lot in upcoming games.`\
+https://nytimes.com/athletic/6975964/2026/01/16/carolina-hurricanes-standings-nhl/
 
-**Indiana football long-term lovers are scarce, and maybe the best part of this run**\
-`Indiana fans are taking over stadiums and are expected to significantly outnumber Miami fans in the Hurricanes' home stadium on Monday.`\
-https://nytimes.com/athletic/6974755/2026/01/16/indiana-football-fans-curt-cignetti-nationa-championship/
+**An NFL Hall of Famer is ready for TV analysis. His peers support his authenticity**\
+`James' 2021 Hall of Fame speech was an example of why friends and teammates want him to use his voice more. TV analysis is a potential path.`\
+https://nytimes.com/athletic/6973527/2026/01/16/nfl-miami-hurricanes-edgerrin-james-tv-personality/
 
-**The NFL's timing puzzle: How assistants balance head-coaching interviews and playoff prep**\
-`For 12 assistant coaches whose teams are still alive in the playoffs, this week has been a collision of two lifelong dreams.`\
-https://nytimes.com/athletic/6963743/2026/01/16/nfl-head-coaching-interviews-playoffs-assistants/
+**Why these 7 NHL teams have big trade deadline decisions to make**\
+`Here are some teams that are facing interesting dilemmas ahead of the trade deadline.`\
+https://nytimes.com/athletic/6968839/2026/01/16/nhl-trade-deadline-teams-decisions/
 
