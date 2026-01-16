@@ -1,3 +1,7 @@
+**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
+`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/6977442/2026/01/16/blues-mailbag-jeremy-rutherford-january-2026/
+
 **Flashback: Your Weekly History Quiz, Jan. 17, 2026**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2026/01/16/upshot/flashback.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/100000010645084/will-the-ice-agent-who-shot-renee-g
 **NFL divisional round projected scores: Model predicts point spreads and totals for every game**\
 `Austin Mock's NFL Projection Model gives its view on what to expect for the divisional round.`\
 https://nytimes.com/athletic/6977328/2026/01/16/nfl-divisional-round-model-projected-scores-spreads-totals/
-
-**Phillies to re-sign J.T. Realmuto to 3-year deal after missing out on Bo Bichette: Sources**\
-`Realmuto was the best-available catcher in free agency, but he'll turn 35 in March and is coming off one of his worst offensive seasons. `\
-https://nytimes.com/athletic/6814376/2026/01/16/phillies-jt-realmuto-mlb-free-agency/
 
