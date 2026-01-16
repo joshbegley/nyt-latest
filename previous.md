@@ -1,3 +1,7 @@
+**How Greenland Is Reacting to Trump’s Threats**\
+`Our reporter Jeffrey Gettleman is on the ground in Greenland, seeing how people have reacted to Trump’s desire to take it over. He and our senior writer Katrin Bennhold discuss what Greenland means to the United States, Denmark and Greenlanders.`\
+https://nytimes.com/video/world/europe/100000010642168/how-greenland-is-reacting-to-trumps-threats.html
+
 **Rosenthal: Dodgers’ splurge on Tucker will increase calls for a salary cap, but MLB needs other fixes**\
 `The star outfielder's four-year deal with the team includes a record average annual value of $57.1 million.`\
 https://nytimes.com/athletic/6976696/2026/01/16/dodgers-kyle-tucker-lockout-mlb-labor/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/16/your-money/tax-refunds-student-loans-default.html
 **Is This Billionaire a Financial Genius or a Fraudster?**\
 `Michael Saylor’s financial alchemy thrust an ordinary software company, Strategy, into the center of the crypto frenzy. It all worked spectacularly, until now.`\
 https://nytimes.com/2026/01/16/business/michael-saylor-strategy-bitcoin.html
-
-**What’s Next for Cuba, Now That Its Main Oil Supplier Is Gone?**\
-`The Soviet Union was Cuba’s benefactor for decades. Venezuela took up the slack, and Mexico has supplied “humanitarian aid.” But the world is changing rapidly, our columnist says.`\
-https://nytimes.com/2026/01/16/business/cuba-venezuela-mexico-oil-diplomacy.html
 
