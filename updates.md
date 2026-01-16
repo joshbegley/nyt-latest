@@ -1,3 +1,19 @@
+**Machado Offers Trump Her Nobel Peace Prize Medal**\
+`During a meeting in the White House on Thursday, Venezuela’s opposition leader, María Corina Machado, presented her medal to President Trump.`\
+https://nytimes.com/video/world/americas/100000010648635/machado-offers-trump-her-nobel-peace-prize-medal.html
+
+**In his heart, John Harbaugh always knew he was meant to be a Giant**\
+`Harbaugh isn't concerned about the NFC East competition. He welcomes it. He is the first Giants coach who'll walk in with a Super Bowl ring.`\
+https://nytimes.com/athletic/6975538/2026/01/15/john-harbaugh-ny-giants-nfl-coaching-news-hiring/
+
+**Darren Waller says Dolphins' owner interrupted exit meeting to fire McDaniel**\
+`The soon-to-be free agent tight end had an awkward encounter for the ages.`\
+https://nytimes.com/athletic/6975541/2026/01/15/dolphins-darren-waller-mike-mcdaniel-stephen-ross/
+
+**‘He wasn't good': How Chara's self-made legacy sent his No. 33 to the rafters**\
+`"There was nobody else in the history of the game that really worked that hard," former partner Dennis Seidenberg said.`\
+https://nytimes.com/athletic/6975657/2026/01/15/bruins-zdeno-chara-number-retirement/
+
 **‘He wasn’t good’: How Chara's self-made legacy sent his No. 33 to the rafters**\
 `“There was nobody else in the history of the game that really worked that hard,” said former partner Dennis Seidenberg.`\
 https://nytimes.com/athletic/6975657/2026/01/15/bruins-zdeno-chara-number-retirement/
