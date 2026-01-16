@@ -1,3 +1,7 @@
+**Rory McIlroy sounds as if he thinks LIV Golf shanked it**\
+`The five-time major champion says Brooks Koepka's return is another indication the rival tour has a shaky future.`\
+https://nytimes.com/athletic/6975641/2026/01/15/rory-mcilroy-liv-golf-brooks-koepka/
+
 **‘Heated Rivalry’ has a fan in Gary Bettman: ‘I binged it in one night’**\
 `The 73-year-old called the hit TV show a "wonderful" and "compelling" story but said the content "might be a little spicy" for young people.`\
 https://nytimes.com/athletic/6975677/2026/01/15/heated-rivalry-nhl-gary-bettman-hockey/
