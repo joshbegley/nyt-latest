@@ -1,3 +1,15 @@
+**The New York Times in Print for Friday, Jan. 16, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/16/todays-new-york-times
+
+**Iran’s Regime Is Losing Its Greatest Weapon: Fear**\
+`The bulwark of Iranian oppression is fear. The latest round of demonstrations shows it has been breached.`\
+https://nytimes.com/2026/01/16/opinion/iran-fear-demonstrations-islamic-republic.html
+
+**Hope and Fear Mingle in Cuba With the Loss of Maduro, and Oil**\
+`The electricity may go off, but islanders see a glimmer of hope in Maduro’s departure.`\
+https://nytimes.com/2026/01/16/opinion/cuba-venezuela-us-oil.html
+
 **Breaking down the $2.3trillion global sports economy – key takeaways**\
 `We spent an estimated $672bn on accommodation, food and travel while going to watch or play sport last year, according to a new report`\
 https://nytimes.com/athletic/6963878/2026/01/16/davos-global-sports-ecomomy-wef-takeaways/
