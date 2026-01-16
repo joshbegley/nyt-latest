@@ -1,3 +1,11 @@
+**Julio Iglesias Denies Sexual Abuse Claims by Former Employees**\
+`The singer called the accusations “completely false” in a statement released after Spanish prosecutors said they would investigate.`\
+https://nytimes.com/2026/01/16/arts/music/julio-iglesias-sexual-assault-allegations.html
+
+**Where are they now? Latest on Blackhawks Stanley Cup winners from 'The Banner Years'**\
+`The Blackhawks will be celebrating “The Banner Years” on Saturday, honoring players from 2010 to 2015.`\
+https://nytimes.com/athletic/6975991/2026/01/16/blackhawks-stanley-cup-teams-banner-years/
+
 **The Bounce: Is the MVP race already over?**\
 `Welcome to The Bounce, The Athletic's NBA newsletter.`\
 https://nytimes.com/athletic/6977064/2026/01/16/mvp-season-awards-race-the-bounce/
