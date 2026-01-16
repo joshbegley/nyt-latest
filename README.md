@@ -1,3 +1,7 @@
+**ICE vs. Ice: Protesters in Minneapolis Find an Ally in Winter**\
+`Temperatures are expected to plunge to around zero degrees this weekend. Minnesotans say they will be out in the street, using the weather to their advantage.`\
+https://nytimes.com/2026/01/16/us/minneapolis-ice-protest-winter-weather.html
+
 **Trump Appoints Allies to Review His Ballroom Plans**\
 `A federal judge has allowed the ballroom project to proceed after the Trump administration pledged to undergo a review by the Commission of Fine Arts.`\
 https://nytimes.com/2026/01/16/us/politics/trump-allies-ballroom-commission.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6977642/2026/01/16/bulls-vs-nets-stream-how-to-watc
 **How to watch Timberwolves vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Minnesota Timberwolves play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6977638/2026/01/16/timberwolves-vs-rockets-stream-how-to-watch-jan-16/
-
-**How to watch Clippers vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6977636/2026/01/16/clippers-vs-raptors-stream-how-to-watch-jan-16/
 
