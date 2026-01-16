@@ -1,3 +1,11 @@
+**In Toronto, Bichette's departure marks the end of one era and the start of another**\
+`Bichette helped the Blue Jays and their fans again dream of World Series success. It will now be up to others to complete that goal.`\
+https://nytimes.com/athletic/6977708/2026/01/16/bo-bichette-leaving-toronto-blue-jays/
+
+**Judge Approves Sale of 5,000 Apartments Over Mamdani’s Objections**\
+`The sale of the apartments, whose residents had complained of neglect by management, to a troubled firm is an early test of the new mayor’s ability to deliver for tenants.`\
+https://nytimes.com/2026/01/16/nyregion/pinnacle-auction-judge-mamdani.html
+
 **ICE vs. Ice: Protesters in Minneapolis Find an Ally in Winter**\
 `Temperatures are expected to plunge to around zero degrees this weekend. Minnesotans say they will be out in the street, using the weather to their advantage.`\
 https://nytimes.com/2026/01/16/us/minneapolis-ice-protest-winter-weather.html
@@ -25,12 +33,4 @@ https://nytimes.com/video/podcasts/100000010642177/heated-rivalry-is-more-than-j
 **Sources: Austin nears deal to bring Uruguay winger Torres back to MLS**\
 `Facundo Torres starred for Orlando before leaving for Palmeiras and now appears headed to the Texas capital`\
 https://nytimes.com/athletic/6976974/2026/01/16/facundo-torres-transfer-austin-fc-palmeiras-uruguay-mls/
-
-**How to watch Bulls vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6977642/2026/01/16/bulls-vs-nets-stream-how-to-watch-jan-16/
-
-**How to watch Timberwolves vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6977638/2026/01/16/timberwolves-vs-rockets-stream-how-to-watch-jan-16/
 
