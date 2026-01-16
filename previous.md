@@ -1,3 +1,11 @@
+**Walter Steding, Otherworldly One-Man Band and Portraitist, Is Dead at 75**\
+`A self-taught musician, he wore flashing goggles while playing the violin. But his real skill was as a painter, and his portraits offered an eerie commentary on the times.`\
+https://nytimes.com/2026/01/16/arts/walter-steding-dead.html
+
+**'There’s a magic around this place' – Michael Carrick's first press conference**\
+`Carrick carries himself in coaching much as he did as a player, picking his words like he picked his passes: steady, unflustered, astute`\
+https://nytimes.com/athletic/6977484/2026/01/16/michael-carrick-manchester-united-press-conference/
+
 **Reds' Terry Francona on roster: 'I like our guys. I don't have to fake that'**\
 `Even if most of the names are the same, the Reds' roster will enter 2026 with more experience.`\
 https://nytimes.com/athletic/6977837/2026/01/16/cincinnati-reds-terry-francona-roster-makeup/
@@ -25,12 +33,4 @@ https://nytimes.com/interactive/polls/colorado-governor-election-polls-2026.html
 **Louisiana U.S. Senate Election 2026: Latest Polls**\
 `Track the latest polls in the Louisiana U.S. Senate election.`\
 https://nytimes.com/interactive/polls/louisiana-us-senate-election-polls-2026.html
-
-**Texas Governor Election 2026: Latest Polls**\
-`Track the latest polls in the Texas governor election.`\
-https://nytimes.com/interactive/polls/texas-governor-election-polls-2026.html
-
-**Rhode Island Governor Election 2026: Latest Polls**\
-`Track the latest polls in the Rhode Island governor election.`\
-https://nytimes.com/interactive/polls/rhode-island-governor-election-polls-2026.html
 

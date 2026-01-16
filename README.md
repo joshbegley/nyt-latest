@@ -1,3 +1,11 @@
+**Economy Seats That Don’t Recline? This Time, the Budget Move Won’t Fly.**\
+`WestJet, Canada’s second-largest carrier, backpedaled on a new seating plan after videos of crammed travelers went viral on social media.`\
+https://nytimes.com/2026/01/16/travel/westjet-non-reclinable-economy-seats.html
+
+**The High Cost of ICE’s Low Standards**\
+`By doubling its force while slashing training time, ICE has scaled up its culture of violence into an unrestrained and unaccountable machine.`\
+https://nytimes.com/video/opinion/100000010649676/the-high-cost-of-ices-low-standards.html
+
 **Walter Steding, Otherworldly One-Man Band and Portraitist, Is Dead at 75**\
 `A self-taught musician, he wore flashing goggles while playing the violin. But his real skill was as a painter, and his portraits offered an eerie commentary on the times.`\
 https://nytimes.com/2026/01/16/arts/walter-steding-dead.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/16/your-money/student-loan-wage-garnish.html
 **Angels will continue to insure prospect injured in crash, mother says**\
 `Foster suffered a devastating brain injury and facial fractures when he was a passenger in a drunk driving crash in September.`\
 https://nytimes.com/athletic/6977876/2026/01/16/angels-prospect-rio-foster-car-crash-update/
-
-**Colorado Governor Election 2026: Latest Polls**\
-`Track the latest polls in the Colorado governor election.`\
-https://nytimes.com/interactive/polls/colorado-governor-election-polls-2026.html
-
-**Louisiana U.S. Senate Election 2026: Latest Polls**\
-`Track the latest polls in the Louisiana U.S. Senate election.`\
-https://nytimes.com/interactive/polls/louisiana-us-senate-election-polls-2026.html
 
