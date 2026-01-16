@@ -1,3 +1,7 @@
+**Video Analysis of ICE Shooting Sheds Light on Contested Moments**\
+`Newly available videos and existing footage synchronized and assessed by The Times provides a millisecond-by-millisecond look at how an ICE officer ended up shooting and killing a motorist in Minneapolis.`\
+https://nytimes.com/video/us/100000010648638/ice-shooting-renee-good-minneapolis-videos-analysis.html
+
 **Red Bull reveals Ford-powered livery for 2026 F1 car at team launch**\
 `The livery harkens back to Red Bull's first livery in 2005, and marks the start of Ford's partnership with the team`\
 https://nytimes.com/athletic/6975257/2026/01/15/f1-red-bull-2026-car-launch-ford-livery/
