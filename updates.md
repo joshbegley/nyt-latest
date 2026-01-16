@@ -1,3 +1,15 @@
+**Preliminary injunction denied in legal challenge to NCAA redshirt rules**\
+`Judge William L. Campbell’s ruling means five plaintiffs, including Vanderbilt's Langston Patterson, remain out of eligibility.`\
+https://nytimes.com/athletic/6975458/2026/01/15/ncaa-redshirt-rules-langston-patterson-case/
+
+**As Cubs continue getting trade calls, where does that leave Nico Hoerner and Matt Shaw?**\
+`With an infield surplus on their hands, the Cubs could go in multiple directions ahead of Opening Day.`\
+https://nytimes.com/athletic/6975421/2026/01/15/chicago-cubs-nico-hoerner-matt-shaw-infield-surplus/
+
+**The Nobel Medal Has Been Sold Before for Millions of Dollars**\
+`The Nobel Commitee has said the prize cannot be transferred, but it has been sold in a few auctions over the award’s history.`\
+https://nytimes.com/2026/01/15/world/americas/nobel-peace-prize-sold-auctions.html
+
 **Who are the 20 college basketball players charged in the federal point-shaving case?**\
 `Federal prosecutors charged 20 current and former players in a college basketball gambling case. Here’s who the players are.`\
 https://nytimes.com/athletic/6975372/2026/01/15/college-basketball-point-shaving-scandal-players-involved/
