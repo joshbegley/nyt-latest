@@ -1,40 +1,40 @@
-**Death Toll Rises to 28 After Landfill Collapse in the Philippines**\
-`Rescuers in Cebu City have recovered 28 bodies from a garbage mound that collapsed last week. The search continues for eight missing people.`\
-https://nytimes.com/2026/01/16/world/asia/philippines-landfill-collapse-cebu.html
+**Where would Indiana rank among the biggest surprise national champions?**\
+`Indiana has a chance to become one of the biggest surprise national champions in college football history.`\
+https://nytimes.com/athletic/6967367/2026/01/16/college-football-indiana-national-champion-odds-history/
 
-**Meloni and Takaichi, Right-Wing Trailblazers, Become Fast Friends**\
-`At a meeting in Tokyo, Prime Ministers Giorgia Meloni of Italy and Sanae Takaichi of Japan bonded over being conservative women at the pinnacle of power.`\
-https://nytimes.com/2026/01/16/world/asia/meloni-takaichi-italy-japan.html
+**'I am happy he comes back' - Slot on Salah returning after AFCON**\
+`Salah will play in the AFCON third-place play-off this weekend for Egypt against Nigeria before returning to his club.`\
+https://nytimes.com/athletic/6976562/2026/01/16/mohamed-salah-liverpool-afcon-return/
 
-**Dillon Brooks has confidence, Dyson Daniels needs confidence and more NBA trends I'm watching**\
-`Brooks is having a career season with the Phoenix Suns.`\
-https://nytimes.com/athletic/6975589/2026/01/16/dillon-brooks-dyson-daniels-nba-trends/
+**Rams' Puka Nacua, Davante Adams have found strength in their opposite ways**\
+`The All-Pro receivers with different personalities have been the perfect complement in a Rams offense led by MVP candidate Matthew Stafford.`\
+https://nytimes.com/athletic/6973194/2026/01/16/rams-davante-adams-puka-nacua/
 
-**Ted Sarandos Says Critics Just Misunderstand Netflix**\
-`The company’s co-chief executive sat down for an extensive interview for the first time since announcing plans to buy Warner Bros. Discovery’s film and TV business.`\
-https://nytimes.com/2026/01/16/business/media/ted-sarandos-says-critics-just-misunderstand-netflix.html
+**All eyes in Bears secondary are on Rams star Puka Nacua ahead of playoff duel**\
+`Playoff survival in Chicago may hinge on the ability to slow the most potent weapon on a dangerous Rams offense.`\
+https://nytimes.com/athletic/6975597/2026/01/16/bears-puka-nacua-rams-playoffs/
 
-**Virginia Poised to Redraw House Maps That Could Set Democrats Up for a Win**\
-`A vote by the state senate on Friday could send an amendment to voters that, if approved, would allow the legislature to gerrymander the state.`\
-https://nytimes.com/2026/01/16/us/virginia-house-democrats-congressional-maps.html
+**Indiana football long-term lovers are scarce, and maybe the best part of this run**\
+`Indiana fans are taking over stadiums and are expected to significantly outnumber Miami fans in the Hurricanes' home stadium on Monday.`\
+https://nytimes.com/athletic/6974755/2026/01/16/indiana-football-fans-curt-cignetti-nationa-championship/
 
-**Should You Use Dryer Lint as Kindling?**\
-`A ruling on the merits of a thrifty life hack.`\
-https://nytimes.com/interactive/2026/01/16/magazine/dryer-lint-kindling-hodgman-quiz.html
+**The NFL's timing puzzle: How assistants balance head-coaching interviews and playoff prep**\
+`For 12 assistant coaches whose teams are still alive in the playoffs, this week has been a collision of two lifelong dreams.`\
+https://nytimes.com/athletic/6963743/2026/01/16/nfl-head-coaching-interviews-playoffs-assistants/
 
-**Iran Has Had Protests Before. Will This Time Be Different?**\
-`Understanding the factors that can topple regimes.`\
-https://nytimes.com/2026/01/16/world/middleeast/iran-protests-regime-change.html
+**Why Kyle Tucker didn't get the long-term contract many expected**\
+`Tucker got paid, but he didn't get as many years in his deal as many predicted he'd receive at the start of the offseason.`\
+https://nytimes.com/athletic/6876593/2026/01/16/mlb-kyle-tucker-dodgers-contract-analysis/
 
-**Stock Investors’ Strategy for 2026:‘Don’t Fight the White House’**\
-`From oil drillers to credit card companies, President Trump has been a market mover this year.`\
-https://nytimes.com/2026/01/16/business/stock-market-trump-policy.html
+**How Indiana broke college football**\
+`In a sport that splashes tens of millions of dollars to replace coaches every year, the Hoosiers are not helping everyone's pressure levels.`\
+https://nytimes.com/athletic/6974588/2026/01/16/indiana-curt-cignetti-college-football-predictions/
 
-**$1.8 Million Homes in France**\
-`This week’s properties are a designer’s four-bedroom house in Sète; an apartment in Montpellier’s historic center; and a country-styled villa also in Montpellier.`\
-https://nytimes.com/2026/01/16/realestate/1-8-million-homes-in-france.html
+**Willie, Mickey and the Duke — and no one else. Why has the Hall of Fame overlooked centerfielders?**\
+`Since Willie Mays arrived 75 years ago, only two Hall of Fame center fielders have debuted since. What happened to the iconic position? `\
+https://nytimes.com/athletic/6975203/2026/01/16/mlb-hall-of-fame-centerfielders-mays-mantle-beltran-jones/
 
-**ASAP Rocky Grew Up, Settled Down (with Rihanna) and Returned to Rap**\
-`The artist reflects on how the chaotic eight years since his last release — including three kids and two trials — led to his latest album, “Don’t Be Dumb.”`\
-https://nytimes.com/2026/01/16/arts/music/asap-rocky-interview-popcast.html
+**NFL insider playoff predictions: Coaches, execs pick divisional round winners**\
+`Our panelists correctly predicted all six wild-card round winners. Can they go 4-0 this weekend? `\
+https://nytimes.com/athletic/6971296/2026/01/16/nfl-insider-playoff-predictions-coaches-pick-divisional-round/
 
