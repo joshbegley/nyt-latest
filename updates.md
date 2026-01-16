@@ -1,3 +1,7 @@
+**‘He wasn’t good’: How Chara's self-made legacy sent his No. 33 to the rafters**\
+`“There was nobody else in the history of the game that really worked that hard,” said former partner Dennis Seidenberg.`\
+https://nytimes.com/athletic/6975657/2026/01/15/bruins-zdeno-chara-number-retirement/
+
 **What we learned from Jim Harbaugh and Joe Hortiz's end-of-season news conference**\
 `Harbaugh sounds prepared to give his next offensive coordinator broad responsibility and allow him to be "head coach of the offense."`\
 https://nytimes.com/athletic/6975580/2026/01/15/chargers-jim-harbaugh-joe-hortiz-news-conference/
