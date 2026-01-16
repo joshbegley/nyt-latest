@@ -1,3 +1,7 @@
+**Wild place leading goal scorer Matt Boldy on injured reserve**\
+`The Wild also placed Joel Eriksson Ek on IR retroactively to last Thursday, meaning he can return when he's ready.`\
+https://nytimes.com/athletic/6977673/2026/01/16/wild-matt-boldy-injured-reserve-joel-eriksson-ek/
+
 **Leafs goalie Anthony Stolarz on injury recovery: 'It just took a little while'**\
 `"It was just something that I just kind of had to let heal on its own," the Maple Leafs goalie said of his injury.`\
 https://nytimes.com/athletic/6977580/2026/01/16/leafs-goalie-anthony-stolarz-injury-update/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6977508/2026/01/16/seattle-reign-laura-harvey-contr
 **How the Rangers' 'retool' letter affects trade targets, stars, veterans and prospects**\
 `Chris Drury's letter opened the door for opposing general managers to ask about anyone on the roster. Here's who could be affected.`\
 https://nytimes.com/athletic/6977481/2026/01/16/ny-rangers-trade-rumors-chris-drury-nhl/
-
-**Ready to Find Your Next Favorite Workout?**\
-`Our reporters have teamed up with fitness experts to design dozens of routines. Try something new — and build an exercise habit that sticks.`\
-https://nytimes.com/interactive/2026/01/16/well/move/workout-routines.html
 

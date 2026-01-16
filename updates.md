@@ -1,3 +1,11 @@
+**Leafs goalie Anthony Stolarz on injury recovery: 'It just took a little while'**\
+`"It was just something that I just kind of had to let heal on its own," the Maple Leafs goalie said of his injury.`\
+https://nytimes.com/athletic/6977580/2026/01/16/leafs-goalie-anthony-stolarz-injury-update/
+
+**Kyle Tucker, a low-key personality, leaves Cubs for a place where he can blend in**\
+`The Dodgers already have several players who fit the mold of a natural team leader or the frontman for a franchise.`\
+https://nytimes.com/athletic/6977691/2026/01/16/kyle-tucker-cubs-dodgers-star-responsibilities/
+
 **In Toronto, Bichette's departure marks the end of one era and the start of another**\
 `Bichette helped the Blue Jays and their fans again dream of World Series success. It will now be up to others to complete that goal.`\
 https://nytimes.com/athletic/6977708/2026/01/16/bo-bichette-leaving-toronto-blue-jays/
