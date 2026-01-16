@@ -1,3 +1,7 @@
+**With or without Giannis, Bucks look lost halfway through their season**\
+`At 17-24, the Bucks have their worst record through 41 games since the 2015-16 season, Antetokounmpo's third in the NBA.`\
+https://nytimes.com/athletic/6976274/2026/01/16/giannis-antetokounmpo-bucks-season-lost/
+
 **How would you run Real Madrid? Here's what our reader survey says**\
 `In a dramatic week for Real Madrid, we asked for your thoughts on the big issues facing them. This is what you said`\
 https://nytimes.com/athletic/6974017/2026/01/16/real-madrid-alonso-sacking-survery-arbeloa/
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6955843/2026/01/16/ohio-state-roster-portal-2026-ex
 `The 25-year-old has been the subject of interest for multiple clubs and has scored six goals in 23 appearances this season. `\
 https://nytimes.com/athletic/6910657/2026/01/16/jorgen-strand-larsen-leeds-transfer-wolves/
 
-**As Klay Thompson moves into 4th on 3s made list, his love for the game keeps him going**\
+**As Klay Thompson climbs 3-point list, his love for the game keeps him going**\
 `What keeps the Mavericks' guard going in the later stages of his career? "I love shooting the basketball," Thompson said.`\
 https://nytimes.com/athletic/6976272/2026/01/16/klay-thompson-damian-lillard-3-pointers/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/16/business/dealbook/fink-davos-wef.html
 **What Teenagers Are Saying About the Pressure to Be Perfect**\
 `Students react to a guest essay about how the quest for flawlessness is harming society.`\
 https://nytimes.com/2026/01/16/learning/what-teenagers-are-saying-about-the-pressure-to-be-perfect.html
-
-**Do Your Parents Ever Play Favorites?**\
-`Research says that favoritism is common — with effects that can last a lifetime.`\
-https://nytimes.com/2026/01/16/learning/do-your-parents-ever-play-favorites.html
 

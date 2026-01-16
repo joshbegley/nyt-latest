@@ -1,3 +1,11 @@
+**With or without Giannis, Bucks look lost halfway through their season**\
+`At 17-24, the Bucks have their worst record through 41 games since the 2015-16 season, Antetokounmpo's third in the NBA.`\
+https://nytimes.com/athletic/6976274/2026/01/16/giannis-antetokounmpo-bucks-season-lost/
+
+**As Klay Thompson climbs 3-point list, his love for the game keeps him going**\
+`What keeps the Mavericks' guard going in the later stages of his career? "I love shooting the basketball," Thompson said.`\
+https://nytimes.com/athletic/6976272/2026/01/16/klay-thompson-damian-lillard-3-pointers/
+
 **How would you run Real Madrid? Here's what our reader survey says**\
 `In a dramatic week for Real Madrid, we asked for your thoughts on the big issues facing them. This is what you said`\
 https://nytimes.com/athletic/6974017/2026/01/16/real-madrid-alonso-sacking-survery-arbeloa/
