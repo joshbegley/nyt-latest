@@ -1,3 +1,7 @@
+**Liverpool 1 Burnley 1: How much pressure is Slot under now?**\
+`Analysing the major talking points from Saturday's Premier League clash at Anfield`\
+https://nytimes.com/athletic/6969123/2026/01/17/liverpool-burnley-result-analysis/
+
 **This Is the Only Card Trump Can Play**\
 `Minneapolis in 2026 is starting to look like Boston in the 1770s.`\
 https://nytimes.com/2026/01/17/opinion/ice-minneapolis-occupation.html

@@ -1,3 +1,7 @@
+**Liverpool 1 Burnley 1: How much pressure is Slot under now?**\
+`Analysing the major talking points from Saturday's Premier League clash at Anfield`\
+https://nytimes.com/athletic/6969123/2026/01/17/liverpool-burnley-result-analysis/
+
 **This Is the Only Card Trump Can Play**\
 `Minneapolis in 2026 is starting to look like Boston in the 1770s.`\
 https://nytimes.com/2026/01/17/opinion/ice-minneapolis-occupation.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/17/dining/salted-butter-or-bust.html
 **Joel Primack, Physicist Who Helped Explain the Cosmos, Dies at 80**\
 `A professor at the University of California, Santa Cruz, he was a key contributor to a landmark paper that laid out how the universe came to look like it does today.`\
 https://nytimes.com/2026/01/17/science/joel-primack-dead.html
-
-**Blues finally win in OT and now have back-to-back victories over Hurricanes, Lightning**\
-`The Blues won 3-2 over the Tampa Bay Lighting in a shootout, their first victory of the season in OT. `\
-https://nytimes.com/athletic/6978365/2026/01/17/blues-ot-win-hurricanes-lightning/
 
