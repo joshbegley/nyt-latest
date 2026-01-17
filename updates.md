@@ -1,3 +1,11 @@
+**Ducks' Leo Carlsson out 3-5 weeks after procedure as status for Olympics looms**\
+`The No. 2 draft pick in 2023 has 18 goals, 26 assists and 44 points in 44 games this season and was named to Team Sweden's roster for Milan.`\
+https://nytimes.com/athletic/6978301/2026/01/16/ducks-leo-carlsson-injury-olympics/
+
+**Quaint Contraction**\
+`Adam Aaronson’s tough themeless puzzle will get your head spinning.`\
+https://nytimes.com/2026/01/16/crosswords/daily-puzzle-2026-01-17.html
+
 **Two-time All-Star Elly De La Cruz turned down largest contract in Reds history**\
 `De La Cruz, who celebrated his 24th birthday earlier this week, is eligible for arbitration for the first time in 2027.`\
 https://nytimes.com/athletic/6978288/2026/01/16/cincinnati-reds-elly-de-la-cruz-contract-extension-tabled/
