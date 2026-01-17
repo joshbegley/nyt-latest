@@ -1,3 +1,11 @@
+**Ousmane Dembele and a 'PlayStation goal' that shocked football**\
+`Breaking down one of the goals of the season which left even the PSG striker's opponents dumbfounded`\
+https://nytimes.com/athletic/6978553/2026/01/17/ousmane-dembele-goal-psg-lille-playstation/
+
+**Will 2026 Be the Year Voters Pull the Emergency Brake?**\
+`The midterms will be a battle for control of Trump’s legacy.`\
+https://nytimes.com/video/opinion/100000010647503/will-2026-be-the-year-voters-pull-the-emergency-brake.html
+
 **Fernando Mendoza grew up in Miami, so why is he a Hoosier and not a Hurricane?**\
 `Despite earning All-Dade County honors as a junior, Mendoza had a hard time getting power-conference programs to give him a legitimate look.`\
 https://nytimes.com/athletic/6977653/2026/01/17/ernando-mendoza-high-school-miami-indiana-national-championship/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6978543/2026/01/17/kansas-state-vs-texas-tech-strea
 **How to watch Virginia vs. SMU men's basketball: Time, TV, streaming**\
 `Find out how to watch the Virginia Cavaliers play the SMU Mustangs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978541/2026/01/17/virginia-vs-smu-stream-how-to-watch-jan-17/
-
-**How to watch UConn vs. Georgetown men's basketball: Time, TV, streaming**\
-`Find out how to watch the UConn Huskies play the Georgetown Hoyas, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6978539/2026/01/17/uconn-vs-georgetown-stream-how-to-watch-jan-17/
-
-**How to watch Alabama vs. Oklahoma men's basketball: Time, TV, streaming**\
-`Find out how to watch the Alabama Crimson Tide play the Oklahoma Sooners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6978537/2026/01/17/alabama-vs-oklahoma-stream-how-to-watch-jan-17/
 
