@@ -1,3 +1,7 @@
+**‘Sentimental Value’ Dominates the European Film Awards**\
+`The Norwegian drama collected six awards at the event, which was moved to January this year in hopes of increasing its visibility for Oscar voters.`\
+https://nytimes.com/2026/01/17/movies/european-film-awards-sentimental-value.html
+
 **Use Your Words**\
 `Rena Cohen’s first Sunday puzzle gives something to everyone.`\
 https://nytimes.com/2026/01/17/crosswords/daily-puzzle-2026-01-18.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979326/2026/01/17/curt-cignetti-nfl-head-coach-rum
 **Oilers’ Leon Draisaitl takes leave of absence for family matter in Germany**\
 `The Oilers said the star forward's absence will be brief, and that he is expected to return to the club next week.`\
 https://nytimes.com/athletic/6979497/2026/01/17/oilers-leon-draisaitl-leave-absence-family-illness/
-
-**Arteta says Arsenal denied 'clear penalty' during Forest draw**\
-`Arteta was referring to an incident in the second-half when the ball hit Ola Aina's arm in the Forest penalty area. `\
-https://nytimes.com/athletic/6979460/2026/01/17/arsenal-penalty-aina-handball-nottingham-forest/
 

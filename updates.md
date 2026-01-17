@@ -1,3 +1,7 @@
+**‘Sentimental Value’ Dominates the European Film Awards**\
+`The Norwegian drama collected six awards at the event, which was moved to January this year in hopes of increasing its visibility for Oscar voters.`\
+https://nytimes.com/2026/01/17/movies/european-film-awards-sentimental-value.html
+
 **Use Your Words**\
 `Rena Cohen’s first Sunday puzzle gives something to everyone.`\
 https://nytimes.com/2026/01/17/crosswords/daily-puzzle-2026-01-18.html
