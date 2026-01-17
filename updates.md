@@ -1,3 +1,11 @@
+**Glasner says he feels ‘abandoned’ by Palace owners, casts doubt over future**\
+`Glasner issued a issued a stinging attack on his employers after the 2-1 defeat to Sunderland on Saturday.`\
+https://nytimes.com/athletic/6979032/2026/01/17/glanser-crystal-palace-future-board-news-future/
+
+**NASA’s Giant Rocket Begins Slow Roll Toward Artemis II Moon Voyage**\
+`The Space Launch System and Orion capsule are being transported to the launchpad before an astronaut mission that could launch as soon as Feb. 6.`\
+https://nytimes.com/2026/01/17/science/nasa-artemis-ii-rocket-moon.html
+
 **Giants send contract to Harbaugh, talks ongoing for 5-year deal: Sources**\
 `Harbaugh would be the 22nd head coach in Giants history.`\
 https://nytimes.com/athletic/6978835/2026/01/17/john-harbaugh-giants-contract-negotions-update/
