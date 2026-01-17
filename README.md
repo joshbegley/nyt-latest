@@ -1,5 +1,5 @@
 **Reds' Elly De La Cruz won't play in WBC, hopes to play in future tournaments**\
-`De La Cruz played in all 162 games for the Reds last season, but spent the second half of the season dealing with a quad injury.`\
+`De La Cruz played in all 162 games for the Reds last season but spent the second half of the season dealing with a quad injury.`\
 https://nytimes.com/athletic/6978291/2026/01/16/world-baseball-classic-2026-elly-de-la-cruz-status/
 
 **Rosenthal: What I'm hearing about the Orioles' interest in Justin Verlander, and more MLB notes**\
