@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6978799/2026/01/17/inter-miami-german-berterame-mon
 https://nytimes.com/2026/01/17/dining/turkey-meatloaf-green-beans-and-potatoes.html
 
 **World Leaders Consider Joining Trump’s ‘Board of Peace’ for Gaza**\
-`Canada, Egypt and Turkey say they are among the countries that have been invited to join.`\
+`Argentina, Canada, Egypt and Turkey say they are among the countries that have been invited to join.`\
 https://nytimes.com/2026/01/17/world/middleeast/trump-gaza-israel-board-peace.html
 
 **Is Darian Mensah leaving Duke a tipping point? Can transfer portal chaos be fixed?**\
