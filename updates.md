@@ -1,3 +1,11 @@
+**The Briefing: Chelsea 2 Brentford 0 - What did Rosenior get right? Has Sanchez redeemed himself? And a protest**\
+`Liam Rosenior first league match in charge ended in victory - The Athletic assesses all the action at Stamford Bridge`\
+https://nytimes.com/athletic/6969099/2026/01/17/chelsea-2-brentford-0-liam-rosenior-robert-sanchez-protest/
+
+**What’s the Thing Only Ralph Lauren Can Bring?**\
+`The brand’s first men’s only runway show in over 20 years left our critic pleasantly surprised.`\
+https://nytimes.com/2026/01/17/fashion/ralph-lauren-mens-milan.html
+
 **Liverpool 1 Burnley 1: How much pressure is Slot under now?**\
 `Analysing the major talking points from Saturday's Premier League clash at Anfield`\
 https://nytimes.com/athletic/6969123/2026/01/17/liverpool-burnley-result-analysis/
