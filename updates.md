@@ -1,3 +1,11 @@
+**This Is the Only Card Trump Can Play**\
+`Minneapolis in 2026 is starting to look like Boston in the 1770s.`\
+https://nytimes.com/2026/01/17/opinion/ice-minneapolis-occupation.html
+
+**World Leaders Consider Joining Trump’s ‘Board of Peace’ for Gaza**\
+`Argentina, Canada, Egypt and Turkey say they are among the countries that have been invited to join.`\
+https://nytimes.com/2026/01/17/world/middleeast/trump-gaza-israel-board-peace.html
+
 **Sources: Inter Miami nears $15M move for star Monterrey, Mexico striker**\
 `Inter Miami continues to act aggressively this offseason and has its sights set on one of Liga MX's top goal scorers`\
 https://nytimes.com/athletic/6978799/2026/01/17/inter-miami-german-berterame-monterrey-mexico-mls-transfer/
