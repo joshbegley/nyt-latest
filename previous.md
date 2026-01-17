@@ -1,3 +1,7 @@
+**Fernando Mendoza grew up in Miami, so why is he a Hoosier and not a Hurricane?**\
+`Despite earning All-Dade County honors as a junior, Mendoza had a hard time getting power-conference programs to give him a legitimate look.`\
+https://nytimes.com/athletic/6977653/2026/01/17/ernando-mendoza-high-school-miami-indiana-national-championship/
+
 **How to watch Wild vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the Minnesota Wild play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978552/2026/01/17/wild-vs-sabres-stream-how-to-watch-jan-17/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6978539/2026/01/17/uconn-vs-georgetown-stream-how-t
 **How to watch Alabama vs. Oklahoma men's basketball: Time, TV, streaming**\
 `Find out how to watch the Alabama Crimson Tide play the Oklahoma Sooners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978537/2026/01/17/alabama-vs-oklahoma-stream-how-to-watch-jan-17/
-
-**How to watch Florida vs. Vanderbilt men's basketball: Time, TV, streaming**\
-`Find out how to watch the Florida Gators play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6978533/2026/01/17/florida-vs-vanderbilt-stream-how-to-watch-jan-17/
 

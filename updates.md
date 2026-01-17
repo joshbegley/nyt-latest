@@ -1,3 +1,7 @@
+**Fernando Mendoza grew up in Miami, so why is he a Hoosier and not a Hurricane?**\
+`Despite earning All-Dade County honors as a junior, Mendoza had a hard time getting power-conference programs to give him a legitimate look.`\
+https://nytimes.com/athletic/6977653/2026/01/17/ernando-mendoza-high-school-miami-indiana-national-championship/
+
 **How to watch Wild vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the Minnesota Wild play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978552/2026/01/17/wild-vs-sabres-stream-how-to-watch-jan-17/
