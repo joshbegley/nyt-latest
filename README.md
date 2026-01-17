@@ -1,3 +1,11 @@
+**How to watch Purdue vs. USC men's basketball: Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6979001/2026/01/17/purdue-vs-usc-stream-how-to-watch-jan-17/
+
+**How to watch Duke vs. Stanford men's basketball: Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the Stanford Cardinal, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978999/2026/01/17/duke-vs-stanford-stream-how-to-watch-jan-17/
+
 **How to watch BYU vs. Texas Tech men's basketball: Time, TV, streaming**\
 `Find out how to watch the BYU Cougars play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978996/2026/01/17/byu-vs-texas-tech-stream-how-to-watch-jan-17/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6969099/2026/01/17/chelsea-2-brentford-0-liam-rosen
 **What’s the Thing Only Ralph Lauren Can Bring?**\
 `The brand’s first men’s only runway show in over 20 years left our critic pleasantly surprised.`\
 https://nytimes.com/2026/01/17/fashion/ralph-lauren-mens-milan.html
-
-**Liverpool 1 Burnley 1: How much pressure is Slot under now?**\
-`Analysing the major talking points from Saturday's Premier League clash at Anfield`\
-https://nytimes.com/athletic/6969123/2026/01/17/liverpool-burnley-result-analysis/
-
-**This Is the Only Card Trump Can Play**\
-`Minneapolis in 2026 is starting to look like Boston in the 1770s.`\
-https://nytimes.com/2026/01/17/opinion/ice-minneapolis-occupation.html
 
