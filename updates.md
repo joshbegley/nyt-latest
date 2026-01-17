@@ -1,3 +1,15 @@
+**Kristina Gjerde, Advocate for Ocean Biodiversity, Dies at 68**\
+`She played a key role in negotiating a landmark United Nations treaty to protect the high seas, an agreement that went into effect this weekend.`\
+https://nytimes.com/2026/01/17/climate/kristina-gjerde-dead.html
+
+**St. Louis City finalizing deal to sign Barcelona's defender Mbacke**\
+`Mbacke still plans to return to Europe at some point as he keeps developing with first-team soccer in St. Louis.`\
+https://nytimes.com/athletic/6979387/2026/01/17/barcelona-mamadaou-mbacke-st-louis-city-news/
+
+**John Harbaugh, New York Giants agree to 5-year contract**\
+`The 63-year-old is set to become the Giants' next head coach.`\
+https://nytimes.com/athletic/6977938/2026/01/17/john-harbaugh-new-york-giants-finzalize-deal/
+
 **UK's 17-point comeback at No. 24 Tennessee a sign not to bury these Cats just yet**\
 `Kentucky has won three in a row in the difficult SEC, and Saturday might have been its best win of the season.`\
 https://nytimes.com/athletic/6979372/2026/01/17/kentucky-tennessee-score-result-comeback-mark-pope/
