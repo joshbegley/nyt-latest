@@ -1,3 +1,7 @@
+**The Pulse: Dominance and dust-ups in tennis**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6978184/2026/01/17/australian-open-preview-the-pulse/
+
 **WATCH: How the Seahawks unlocked their defense in Mike Macdonald's second season**\
 `Macdonald has the Seahawks on the cusp of a Super Bowl run, thanks to the team's top-ranked defense. `\
 https://nytimes.com/athletic/6978117/2026/01/17/video-analysis-seahawks-defense-nick-emmanwori/
