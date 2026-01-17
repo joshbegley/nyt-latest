@@ -1,3 +1,7 @@
+**Barcelona's Dro Fernandez tells club he wants to leave**\
+`The 18-year-old has a €6m release clause in his Barcelona contract.`\
+https://nytimes.com/athletic/6977333/2026/01/17/dro-fernandez-barcelona-transfer-chelsea-psg/
+
 **Lithuanian basketball fans will always love Bob Weir, Grateful Dead**\
 `The country won't forget how the late musician and his band helped their basketball team get to the 1992 Barcelona Olympics.`\
 https://nytimes.com/athletic/6972849/2026/01/17/bob-weir-grateful-dead-lithuania-basketball-olympics/

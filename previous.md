@@ -1,3 +1,7 @@
+**Barcelona's Dro Fernandez tells club he wants to leave**\
+`The 18-year-old has a €6m release clause in his Barcelona contract.`\
+https://nytimes.com/athletic/6977333/2026/01/17/dro-fernandez-barcelona-transfer-chelsea-psg/
+
 **Lithuanian basketball fans will always love Bob Weir, Grateful Dead**\
 `The country won't forget how the late musician and his band helped their basketball team get to the 1992 Barcelona Olympics.`\
 https://nytimes.com/athletic/6972849/2026/01/17/bob-weir-grateful-dead-lithuania-basketball-olympics/
@@ -29,8 +33,4 @@ https://nytimes.com/video/opinion/100000010647511/no-trump-cant-cancel-the-midte
 **MAGA After Trump**\
 `The president’s approval rating is a misleading signal, argues the columnist David French on “The Opinions.” Without Trump on the ballot, midterm elections will expose the true strength — or weakness — of MAGA politics.`\
 https://nytimes.com/video/opinion/100000010647510/maga-after-trump.html
-
-**Like Ben Johnson's Bears, Curt Cignetti's Indiana offense thrives on attention to detail**\
-`Indiana plays fast, but it really thrives on efficiency and execution. That's all ties back to how Cignetti builds his offense.`\
-https://nytimes.com/athletic/6976666/2026/01/17/curt-cignetti-indiana-offense-mendoza-cfp-championship/
 
