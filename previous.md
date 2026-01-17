@@ -1,3 +1,15 @@
+**Before Criticizing Pro-Hamas Chants, Mamdani Sought Jewish Leaders’ Input**\
+`The outreach by Mayor Zohran Mamdani’s team has demonstrated how the mayor is taking care to not inflame tensions on either side of the Israel-Gaza war.`\
+https://nytimes.com/2026/01/17/nyregion/mamdani-hamas-protest.html
+
+**A.I. Is Coming to Class. These Professors Want to Ease Your Worries.**\
+`Even as some instructors remain fervently opposed to chatbots, other writing and English professors are trying to improve them.`\
+https://nytimes.com/2026/01/17/nyregion/ai-college-classes.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/17/crosswords/spelling-bee-forum.html
+
 **The New York Times in Print for Saturday, Jan. 17, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/17/todays-new-york-times
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6976647/2026/01/17/everton-en-nesyri-wilson-transfe
 **The problem with Man Utd's media class – and the one subject they do not raise**\
 `Only three managers in United’s entire history have won the league championship - and they seem to be beyond scrutiny`\
 https://nytimes.com/athletic/6969629/2026/01/17/man-utd-gary-neville-roy-keane-pundit/
-
-**Glasner, Guehi and the day when everything changed for Crystal Palace**\
-`One of the most seismic days in Palace’s history has given the impression of a club in crisis. A glorious chapter has come to a shocking end`\
-https://nytimes.com/athletic/6965556/2026/01/17/glasner-guehi-crystal-palace-crisis/
-
-**Ranking the 10 best players at the 2025 Africa Cup of Nations**\
-`Our writers combine to assess the star performers from this tournament as we await Sunday's final`\
-https://nytimes.com/athletic/6976460/2026/01/17/afcon-top-10-players-ranked/
-
-**He shoots… he doesn't score: Analysing Europe's 10 most wasteful finishers**\
-`Here are the players in the 'big five' leagues to have taken the most shots without scoring this season`\
-https://nytimes.com/athletic/6969927/2026/01/17/european-football-wasteful-finishers/
 

@@ -1,3 +1,15 @@
+**Before Criticizing Pro-Hamas Chants, Mamdani Sought Jewish Leaders’ Input**\
+`The outreach by Mayor Zohran Mamdani’s team has demonstrated how the mayor is taking care to not inflame tensions on either side of the Israel-Gaza war.`\
+https://nytimes.com/2026/01/17/nyregion/mamdani-hamas-protest.html
+
+**A.I. Is Coming to Class. These Professors Want to Ease Your Worries.**\
+`Even as some instructors remain fervently opposed to chatbots, other writing and English professors are trying to improve them.`\
+https://nytimes.com/2026/01/17/nyregion/ai-college-classes.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/17/crosswords/spelling-bee-forum.html
+
 **He shoots… he doesn't score: Analysing Europe's 10 most wasteful finishers**\
 `Here are the players in the 'big five' leagues to have taken the most shots without scoring this season`\
 https://nytimes.com/athletic/6969927/2026/01/17/european-football-wasteful-finishers/
