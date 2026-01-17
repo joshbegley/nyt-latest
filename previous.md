@@ -1,3 +1,7 @@
+**3 Policy Moves Likely to Change Health Care for Older People**\
+`Two regulatory rollbacks, along with a new A.I. experiment in Medicare, raise some worrisome questions.`\
+https://nytimes.com/2026/01/17/health/nursing-homes-health-aides-medicare.html
+
 **Rudy Gobert shoulders blame for loss to the Rockets as his FT percentage plummets**\
 `The Minnesota center had 10 points, 13 rebounds and two blocks, but he had a nightmare fourth quarter in a five-point loss to Houston.`\
 https://nytimes.com/athletic/6978276/2026/01/17/rudy-gobert-shoulders-blame-rockets-ft-percentage-plummets/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6968525/2026/01/17/nhl-team-grades-2026-regular-sea
 **Ugly wins are all Scottie Barnes, Raptors can hope for at this point**\
 `This team is playing some excellent defence despite not having a proper centre available for half of the season thus far.`\
 https://nytimes.com/athletic/6978352/2026/01/17/scottie-barnes-raptors-clippers-ugly-wins/
-
-**Finding the spirit and soul of Morocco's soccer culture from a pickup match**\
-`The Athletic went looking for a kickabout in Rabat and was richly rewarded in a game where scoring goals isn't the main aim`\
-https://nytimes.com/athletic/6978163/2026/01/17/morocco-afcon-final-soccer-pickup/
 
