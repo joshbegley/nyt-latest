@@ -2,6 +2,10 @@
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/17/todays-new-york-times
 
+**West Ham losing hope in relegation fight but Nuno appears safe for now**\
+`Morale is low going into a crucial game with local rivals Tottenham, but there is little immediate prospect of managerial change `\
+https://nytimes.com/athletic/6973808/2026/01/17/west-ham-tottenham-nuno-safe-for-now/
+
 **Newcastle Under-21s under a spotlight after another coach quits**\
 `Since Eddie Howe arrived as first-team manager in November 2021, there have been four permanent under-21 coaches`\
 https://nytimes.com/athletic/6976501/2026/01/17/newcastle-under-21-coach-quits/
@@ -22,15 +26,11 @@ https://nytimes.com/athletic/6969629/2026/01/17/man-utd-gary-neville-roy-keane-p
 `One of the most seismic days in Palace’s history has given the impression of a club in crisis. A glorious chapter has come to a shocking end`\
 https://nytimes.com/athletic/6965556/2026/01/17/glasner-guehi-crystal-palace-crisis/
 
-**West Ham losing hope in relegation fight but Nuno appears safe for now**\
-`Morale is low going into a crucial game with local rivals Tottenham, but there is little immediate prospect of managerial change `\
-https://nytimes.com/athletic/6973808/2026/01/17/west-ham-tottenham-nuno-safe-for-now/
-
 **Ranking the 10 best players at the 2025 Africa Cup of Nations**\
 `Our writers combine to assess the star performers from this tournament as we await Sunday's final`\
 https://nytimes.com/athletic/6976460/2026/01/17/afcon-top-10-players-ranked/
 
-**How do Premier League clubs reintegrate players coming back from AFCON?**\
-`A mid-season tournament can be demanding on players both physically and psychologically - so how do clubs ensure they return in good shape?`\
-https://nytimes.com/athletic/6976914/2026/01/17/premier-league-players-back-from-afcon/
+**He shoots… he doesn't score: Analysing Europe's 10 most wasteful finishers**\
+`Here are the players in the 'big five' leagues to have taken the most shots without scoring this season`\
+https://nytimes.com/athletic/6969927/2026/01/17/european-football-wasteful-finishers/
 
