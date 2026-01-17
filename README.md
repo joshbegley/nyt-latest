@@ -1,3 +1,7 @@
+**Court Blocks Trump Administration From Freezing Food Stamps in Minnesota**\
+`With tensions high between the White House and the state, the ruling temporarily halted plans to withhold over $129 million in funding.`\
+https://nytimes.com/2026/01/16/us/politics/court-food-stamps-minnesota.html
+
 **Judge Restricts Immigration Agents’ Actions Toward Minnesota Protesters**\
 `A federal judge ordered agents not to retaliate against people “engaging in peaceful and unobstructive protest activity” in the state and not to stop drivers who are not “forcibly obstructing” officers.`\
 https://nytimes.com/2026/01/16/us/minnesota-ice-immigration-agents-protests.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6978083/2026/01/16/video-analysis-bears-playoffs-ca
 **As Kennedy Center Rebrands, It’s Mired in Black Tape**\
 `After the institution’s board declared it the Trump Kennedy Center, a lot of signage around the building is in the midst of a makeover.`\
 https://nytimes.com/2026/01/16/arts/as-kennedy-center-rebrands-its-mired-in-black-tape.html
-
-**ICE Tensions Are Raging. What’s the Political Fallout?**\
-`Three reporters discuss the Minneapolis chaos and how it could play a role in the midterms.`\
-https://nytimes.com/2026/01/16/us/politics/ice-minnesota-midterms.html
 
