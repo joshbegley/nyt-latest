@@ -1,3 +1,7 @@
+**Possible sovereign wealth investment in NBA Europe could change U.S. rules**\
+`Currently, NBA rules restrict sovereign wealth funds from owning greater than 20 percent of any of the league’s 30 teams.`\
+https://nytimes.com/athletic/6979142/2026/01/17/nba-europe-league-adam-silver-sovereign-wealth-investment/
+
 **The Briefing: Nottingham Forest 0 Arsenal 0 - Arteta's side fail to take nine-point lead over City**\
 `Dan Sheldon goes through the talking points of the goalless draw, with Arsenal dropping two points at the City Ground`\
 https://nytimes.com/athletic/6969160/2026/01/17/nottingham-forest-0-arsenal-0-premier-league-result/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979059/2026/01/17/sam-darnold-injury-update-status
 **Dueling Protests Begin in Minneapolis as City Remains on Edge**\
 `A rally at City Hall and a march have been organized by a conservative influencer to draw attention to a fraud scandal in the state. Counterprotesters came out to oppose the effort.`\
 https://nytimes.com/2026/01/17/us/minneapolis-protests-immigration-fraud.html
-
-**Mamdani Appoints Top Parks Official to Oversee New York’s Green Spaces**\
-`The mayor announced Tricia Shimamura as the city’s new parks commissioner amid broad calls for more park funding.`\
-https://nytimes.com/2026/01/17/nyregion/nyc-parks-commissioner-tricia-shimamura.html
 
