@@ -1,3 +1,7 @@
+**WATCH: How the Seahawks unlocked their defense in Mike Macdonald's second season**\
+`Macdonald has the Seahawks on the cusp of a Super Bowl run, thanks to the team's top-ranked defense. `\
+https://nytimes.com/athletic/6978117/2026/01/17/video-analysis-seahawks-defense-nick-emmanwori/
+
 **Salted Butter or Bust**\
 `Samantha Seneviratne takes the Bake Time Questionnaire, and she has strong feelings about salt.`\
 https://nytimes.com/2026/01/17/dining/salted-butter-or-bust.html

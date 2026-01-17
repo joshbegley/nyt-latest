@@ -14,6 +14,10 @@ https://nytimes.com/athletic/6978365/2026/01/17/blues-ot-win-hurricanes-lightnin
 `Find out how to watch the New York Islanders play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978706/2026/01/17/islanders-vs-flames-stream-how-to-watch-jan-17/
 
+**WATCH: How the Seahawks unlocked their defense in Mike Macdonald's second season**\
+`Macdonald has the Seahawks on the cusp of a Super Bowl run, thanks to the team's top-ranked defense. `\
+https://nytimes.com/athletic/6978117/2026/01/17/video-analysis-seahawks-defense-nick-emmanwori/
+
 **Man Utd 2 Man City 0: How did Carrick make a perfect start? What went so wrong for Guardiola?**\
 `Analysing how Manchester United hammered their local rivals in a crucial game at the top of the Premier League`\
 https://nytimes.com/athletic/6969098/2026/01/17/manchester-united-manchester-city-result-analysis/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6978694/2026/01/17/kraken-vs-mammoth-stream-how-to-
 **How to watch Utah State vs. Grand Canyon men's basketball: Time, TV, streaming**\
 `Find out how to watch the Utah State Aggies play the Grand Canyon Antelopes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978675/2026/01/17/utah-state-vs-grand-canyon-stream-how-to-watch-jan-17/
-
-**How to watch Arkansas vs. Georgia men's basketball: Time, TV, streaming**\
-`Find out how to watch the Arkansas Razorbacks play the Georgia Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6978673/2026/01/17/arkansas-vs-georgia-stream-how-to-watch-jan-17/
 
