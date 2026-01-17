@@ -1,3 +1,7 @@
+**Falcons to interview former Browns head coach Kevin Stefanski a second time**\
+`Matt Ryan, the team’s new president of football, said he was looking for a head coach with “emotional stability.”`\
+https://nytimes.com/athletic/6979204/2026/01/17/kevin-stefanski-to-get-second-interview-with-falcons/
+
 **Possible sovereign wealth investment in NBA Europe could change U.S. rules**\
 `Currently, NBA rules restrict sovereign wealth funds from owning greater than 20 percent of any of the league’s 30 teams.`\
 https://nytimes.com/athletic/6979142/2026/01/17/nba-europe-league-adam-silver-sovereign-wealth-investment/
