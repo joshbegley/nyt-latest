@@ -1,3 +1,15 @@
+**The 1.18.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/01/17/the-11825-issue
+
+**Kansas State stuns Texas Tech, hands Red Raiders first loss of season**\
+`The Wildcats held the Red Raiders without a field goal in the final 2:24 to spring the upset.`\
+https://nytimes.com/athletic/6979561/2026/01/17/kansas-state-texas-tech-first-loss/
+
+**Titans schedule second interviews with 3 candidates as search narrows: Sources**\
+`Matt Nagy, Jeff Hafley and Kevin Stefanski are all slated for second interviews with the Tennessee Titans in the coming days.`\
+https://nytimes.com/athletic/6979496/2026/01/17/titans-in-person-interviews-matt-nagy-stefanski-hafley/
+
 **No excuses as severely short-handed Wild beat red-hot Sabres in OT: Takeaways**\
 `Minnesota overcame blowing a two-goal lead before Mats Zuccarello's overtime winner lifted the Wild to a 5-4 overtime win in Buffalo.`\
 https://nytimes.com/athletic/6979183/2026/01/17/wild-sabres-overtime-injuries-takeaways/
