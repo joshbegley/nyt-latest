@@ -1,3 +1,15 @@
+**Frank says Spurs are 'supertanker turning in the right direction'**\
+`Spurs captain Cristian Romero called Saturday's home defeat by West Ham a "disaster moment" for the team.`\
+https://nytimes.com/athletic/6979085/2026/01/17/thomas-frank-tottenham-west-ham/
+
+**Will Seahawks quarterback Sam Darnold play today vs. the 49ers? Latest updates**\
+`Darnold, who has thrown for 4,048 yards and 25 touchdowns for the NFC’s No. 1 seed this season, hasn't missed a game this season.`\
+https://nytimes.com/athletic/6979059/2026/01/17/sam-darnold-injury-update-status-seahawks-49ers/
+
+**Dueling Protests Begin in Minneapolis as City Remains on Edge**\
+`A rally at City Hall and a march have been organized by a conservative influencer to draw attention to a fraud scandal in the state. Counterprotesters came out to oppose the effort.`\
+https://nytimes.com/2026/01/17/us/minneapolis-protests-immigration-fraud.html
+
 **Minneapolis Braces for Dueling Protests as City Remains on Edge**\
 `A rally at City Hall and a march have been organized by a conservative influencer to draw attention to a fraud scandal in the state. It is expected to draw counter protesters.`\
 https://nytimes.com/2026/01/17/us/minneapolis-protests-immigration-fraud.html
