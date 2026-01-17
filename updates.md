@@ -1,3 +1,11 @@
+**Two-time All-Star Elly De La Cruz turned down largest contract in Reds history**\
+`De La Cruz, who celebrated his 24th birthday earlier this week, is eligible for arbitration for the first time in 2027.`\
+https://nytimes.com/athletic/6978288/2026/01/16/cincinnati-reds-elly-de-la-cruz-contract-extension-tabled/
+
+**Salesi Moa flips from Utah to Michigan to reunite with Kyle Whittingham**\
+`Moa, one of Michigan's top targets in the 2026 class, is the fifth player to leave Utah for the Wolverines since Whittingham arrived.`\
+https://nytimes.com/athletic/6978140/2026/01/16/salesi-moa-michigan-kyle-whittingham/
+
 **Rick Caruso, a Los Angeles Billionaire, Will Not Run for Office This Year**\
 `Mr. Caruso had the potential to shake up the contests for Los Angeles mayor or California governor.`\
 https://nytimes.com/2026/01/16/us/rick-caruso-mayor-governor-california.html
