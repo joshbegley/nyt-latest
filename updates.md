@@ -1,3 +1,7 @@
+**Use Your Words**\
+`Rena Cohen’s first Sunday puzzle gives something to everyone.`\
+https://nytimes.com/2026/01/17/crosswords/daily-puzzle-2026-01-18.html
+
 **No excuses as severely short-handed Wild beat red-hot Sabres in OT: Takeaways**\
 `Despite missing several key players and not being able to hold a two-goal lead, Minnesota starts three-game trip with a win.`\
 https://nytimes.com/athletic/6979183/2026/01/17/wild-sabres-overtime-injuries-takeaways/
