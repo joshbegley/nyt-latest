@@ -1,3 +1,7 @@
+**World Leaders Consider Joining Trump’s ‘Board of Peace’ for Gaza**\
+`Canada, Egypt and Turkey say they are among the countries that have been invited to join.`\
+https://nytimes.com/2026/01/17/world/middleeast/trump-gaza-israel-board-peace.html
+
 **Is Darian Mensah leaving Duke a tipping point? Can transfer portal chaos be fixed?**\
 `We’re used to seeing quarterbacks like Mensah leave. But this one feels different. Let's answer some initial pressing questions.`\
 https://nytimes.com/athletic/6978717/2026/01/17/darian-mensah-duke-transfer-portal-college-football-rules/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6978117/2026/01/17/video-analysis-seahawks-defense-
 **Man Utd 2 Man City 0: How did Carrick make a perfect start? What went so wrong for Guardiola?**\
 `Analysing how Manchester United hammered their local rivals in a crucial game at the top of the Premier League`\
 https://nytimes.com/athletic/6969098/2026/01/17/manchester-united-manchester-city-result-analysis/
-
-**How to watch Jazz vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6978696/2026/01/17/jazz-vs-mavericks-stream-how-to-watch-jan-17/
 
