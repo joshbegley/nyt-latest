@@ -1,3 +1,11 @@
+**Air Force coach Joe Scott suspended indefinitely pending investigation**\
+`Assistant coach Jon Jordan will serve as the team’s interim coach.`\
+https://nytimes.com/athletic/6979209/2026/01/17/air-force-basketball-joe-scott-suspended/
+
+**Wrexham captain McClean leaving club, returning to Ireland with Derry City**\
+`McClean, 36, previously played for Derry at the start of his career, before joining English side Sunderland in 2011.`\
+https://nytimes.com/athletic/6979095/2026/01/17/wrexham-transfers-james-mcclean/
+
 **Frank says Spurs are 'supertanker turning in the right direction'**\
 `Spurs captain Cristian Romero called Saturday's home defeat by West Ham a "disaster moment" for the team.`\
 https://nytimes.com/athletic/6979085/2026/01/17/thomas-frank-tottenham-west-ham/
