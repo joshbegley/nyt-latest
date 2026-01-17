@@ -1,3 +1,7 @@
+**World Leaders Consider Joining Trump’s ‘Board of Peace’ for Gaza**\
+`Canada, Egypt and Turkey say they are among the countries that have been invited to join.`\
+https://nytimes.com/2026/01/17/world/middleeast/trump-gaza-israel-board-peace.html
+
 **Is Darian Mensah leaving Duke a tipping point? Can transfer portal chaos be fixed?**\
 `We’re used to seeing quarterbacks like Mensah leave. But this one feels different. Let's answer some initial pressing questions.`\
 https://nytimes.com/athletic/6978717/2026/01/17/darian-mensah-duke-transfer-portal-college-football-rules/
