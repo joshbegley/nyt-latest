@@ -1,3 +1,7 @@
+**Premier League stats to know: Manchester United's goal struggles and Chelsea's poor run**\
+`What are the key stats you need to know heading into the next round of Premier League fixtures?`\
+https://nytimes.com/athletic/6974300/2026/01/17/premier-league-md-22-numbers-to-know-man-utd-derby-drought-chelseas-bogey-side/
+
 **Emma Raducanu: Scheduling women's matches last after men's 'doesn't make as much sense'**\
 `The 2021 U.S. Open champion could run into a familiar Grand Slam problem for women's tennis to start 2026.`\
 https://nytimes.com/athletic/6978428/2026/01/17/tennis-emma-raducanu-grand-slam-scheduling/
