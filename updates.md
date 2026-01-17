@@ -1,3 +1,7 @@
+**Khan: Duke QB Mensah's transfer portal decision signals bleak state of CFB**\
+`Why should players be held to a different standard than college football's leaders?`\
+https://nytimes.com/athletic/6978141/2026/01/16/duke-darian-mensah-transfer-portal/
+
 **Trump Announces Largely American Council to Oversee Gaza**\
 `The president also tapped a U.S. general to lead an international peacekeeping force that will be deployed to disarm Hamas and occupy Gaza.`\
 https://nytimes.com/2026/01/16/us/politics/trump-gaza-board-peace-kushner.html
