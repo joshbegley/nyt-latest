@@ -1,3 +1,7 @@
+**Rhoda Levine, Pathbreaking Opera Director, Dies at 93**\
+`Starting out in the 1970s as a rare woman in a field dominated by men, she directed the premieres of a pair of politically charged modern classics.`\
+https://nytimes.com/2026/01/17/arts/music/rhoda-levine-dead.html
+
 **3 Policy Moves Likely to Change Health Care for Older People**\
 `Two regulatory rollbacks, along with a new A.I. experiment in Medicare, raise some worrisome questions.`\
 https://nytimes.com/2026/01/17/health/nursing-homes-health-aides-medicare.html

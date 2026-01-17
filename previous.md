@@ -1,3 +1,7 @@
+**Rhoda Levine, Pathbreaking Opera Director, Dies at 93**\
+`Starting out in the 1970s as a rare woman in a field dominated by men, she directed the premieres of a pair of politically charged modern classics.`\
+https://nytimes.com/2026/01/17/arts/music/rhoda-levine-dead.html
+
 **3 Policy Moves Likely to Change Health Care for Older People**\
 `Two regulatory rollbacks, along with a new A.I. experiment in Medicare, raise some worrisome questions.`\
 https://nytimes.com/2026/01/17/health/nursing-homes-health-aides-medicare.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6972849/2026/01/17/bob-weir-grateful-dead-lithuania
 **Grading every NHL team at the halfway mark of the season**\
 `From F to A-plus to everything in between, The Athletic's NHL staff hands out midseason grades to every team.`\
 https://nytimes.com/athletic/6968525/2026/01/17/nhl-team-grades-2026-regular-season/
-
-**Ugly wins are all Scottie Barnes, Raptors can hope for at this point**\
-`This team is playing some excellent defence despite not having a proper centre available for half of the season thus far.`\
-https://nytimes.com/athletic/6978352/2026/01/17/scottie-barnes-raptors-clippers-ugly-wins/
 

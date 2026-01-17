@@ -1,3 +1,7 @@
+**GM John Lynch sets the stage, but he credits 49ers' resolve, team culture**\
+`It's safe to say Lynch, 54, did not foresee all the injuries that piled up this season — but the wins piled up as well.`\
+https://nytimes.com/athletic/6978116/2026/01/17/49ers-gm-john-lynch-interview-nfl-playoffs/
+
 **Rhoda Levine, Pathbreaking Opera Director, Dies at 93**\
 `Starting out in the 1970s as a rare woman in a field dominated by men, she directed the premieres of a pair of politically charged modern classics.`\
 https://nytimes.com/2026/01/17/arts/music/rhoda-levine-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6977333/2026/01/17/dro-fernandez-barcelona-transfer
 **Lithuanian basketball fans will always love Bob Weir, Grateful Dead**\
 `The country won't forget how the late musician and his band helped their basketball team get to the 1992 Barcelona Olympics.`\
 https://nytimes.com/athletic/6972849/2026/01/17/bob-weir-grateful-dead-lithuania-basketball-olympics/
-
-**Grading every NHL team at the halfway mark of the season**\
-`From F to A-plus to everything in between, The Athletic's NHL staff hands out midseason grades to every team.`\
-https://nytimes.com/athletic/6968525/2026/01/17/nhl-team-grades-2026-regular-season/
 
