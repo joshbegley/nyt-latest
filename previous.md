@@ -1,36 +1,36 @@
-**GM John Lynch sets the stage, but he credits 49ers' resolve, team culture**\
-`It's safe to say Lynch, 54, did not foresee all the injuries that piled up this season — but the wins piled up as well.`\
-https://nytimes.com/athletic/6978116/2026/01/17/49ers-gm-john-lynch-interview-nfl-playoffs/
+**How to watch Utah State vs. Grand Canyon men's basketball: Time, TV, streaming**\
+`Find out how to watch the Utah State Aggies play the Grand Canyon Antelopes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978675/2026/01/17/utah-state-vs-grand-canyon-stream-how-to-watch-jan-17/
 
-**Rhoda Levine, Pathbreaking Opera Director, Dies at 93**\
-`Starting out in the 1970s as a rare woman in a field dominated by men, she directed the premieres of a pair of politically charged modern classics.`\
-https://nytimes.com/2026/01/17/arts/music/rhoda-levine-dead.html
+**How to watch Arkansas vs. Georgia men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arkansas Razorbacks play the Georgia Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978673/2026/01/17/arkansas-vs-georgia-stream-how-to-watch-jan-17/
 
-**3 Policy Moves Likely to Change Health Care for Older People**\
-`Two regulatory rollbacks, along with a new A.I. experiment in Medicare, raise some worrisome questions.`\
-https://nytimes.com/2026/01/17/health/nursing-homes-health-aides-medicare.html
+**How to watch Miami (FL) vs. Clemson men's basketball: Time, TV, streaming**\
+`Find out how to watch the Miami Hurricanes play the Clemson Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978670/2026/01/17/miami-fl-vs-clemson-stream-how-to-watch-jan-17/
 
-**Rudy Gobert shoulders blame for loss to the Rockets as his FT percentage plummets**\
-`The Minnesota center had 10 points, 13 rebounds and two blocks, but he had a nightmare fourth quarter in a five-point loss to Houston.`\
-https://nytimes.com/athletic/6978276/2026/01/17/rudy-gobert-shoulders-blame-rockets-ft-percentage-plummets/
+**How to watch Nebraska vs. Northwestern men's basketball: Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the Northwestern Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978668/2026/01/17/nebraska-vs-northwestern-stream-how-to-watch-jan-17/
 
-**Indiana football’s run to CFP national title game has NBA world watching**\
-`Indiana’s leap from bottom of the Big Ten to unbeaten title contender has caught the attention of IU alumni and admirers in the NBA.`\
-https://nytimes.com/athletic/6977940/2026/01/17/indiana-football-cfp-national-championship-nba-mark-cuban/
+**How to watch Arizona vs. UCF men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the UCF Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978666/2026/01/17/arizona-vs-ucf-stream-how-to-watch-jan-17/
 
-**Browns are between QB and a hard place. With options shaky, so is any plan for success**\
-`Shedeur Sanders, Deshaun Watson and Dillon Gabriel are arguably the worst quarterback group in the NFL. And Watson is a long shot to stay.`\
-https://nytimes.com/athletic/6976019/2026/01/17/browns-quarterback-options-shedeur-sanders-nfl-draft/
+**How to watch Baylor vs. BYU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Baylor Bears play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978664/2026/01/17/baylor-vs-byu-stream-how-to-watch-jan-17/
 
-**Big Oil’s Complicated Calculus for Investing in Venezuela**\
-`The industry has long prioritized projects with quick and reliable payback. Trump is pushing for a return to risk.`\
-https://nytimes.com/2026/01/17/business/dealbook/venezuela-oil.html
+**How to watch North Carolina vs. Cal men's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the California Golden Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978660/2026/01/17/north-carolina-vs-cal-stream-how-to-watch-jan-17/
 
-**Barcelona's Dro Fernandez tells club he wants to leave**\
-`The 18-year-old has a €6m release clause in his Barcelona contract.`\
-https://nytimes.com/athletic/6977333/2026/01/17/dro-fernandez-barcelona-transfer-chelsea-psg/
+**How to watch Arizona vs. TCU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978657/2026/01/17/arizona-vs-tcu-stream-how-to-watch-jan-17/
 
-**Lithuanian basketball fans will always love Bob Weir, Grateful Dead**\
-`The country won't forget how the late musician and his band helped their basketball team get to the 1992 Barcelona Olympics.`\
-https://nytimes.com/athletic/6972849/2026/01/17/bob-weir-grateful-dead-lithuania-basketball-olympics/
+**How to watch Michigan vs. Oregon men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978655/2026/01/17/michigan-vs-oregon-stream-how-to-watch-jan-17/
 
