@@ -1,3 +1,7 @@
+**Judge Restricts Immigration Agents’ Actions Toward Minnesota Protesters**\
+`A federal judge ordered agents not to retaliate against people “engaging in peaceful and unobstructive protest activity” in the state and not to stop drivers who are not “forcibly obstructing” officers.`\
+https://nytimes.com/2026/01/16/us/minnesota-ice-immigration-agents-protests.html
+
 **Trump Administration Begins Criminal Inquiry Into Minnesota Leaders**\
 `The Justice Department’s investigation is a major escalation in the state-federal battle over the conduct of immigration agents in Minneapolis.`\
 https://nytimes.com/2026/01/16/us/politics/tim-walz-jacob-frey-investigation-trump.html

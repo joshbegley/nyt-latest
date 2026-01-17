@@ -1,3 +1,7 @@
+**Judge Restricts Immigration Agents’ Actions Toward Minnesota Protesters**\
+`A federal judge ordered agents not to retaliate against people “engaging in peaceful and unobstructive protest activity” in the state and not to stop drivers who are not “forcibly obstructing” officers.`\
+https://nytimes.com/2026/01/16/us/minnesota-ice-immigration-agents-protests.html
+
 **Trump Administration Begins Criminal Inquiry Into Minnesota Leaders**\
 `The Justice Department’s investigation is a major escalation in the state-federal battle over the conduct of immigration agents in Minneapolis.`\
 https://nytimes.com/2026/01/16/us/politics/tim-walz-jacob-frey-investigation-trump.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/16/arts/as-kennedy-center-rebrands-its-mired-in-blac
 **ICE Tensions Are Raging. What’s the Political Fallout?**\
 `Three reporters discuss the Minneapolis chaos and how it could play a role in the midterms.`\
 https://nytimes.com/2026/01/16/us/politics/ice-minnesota-midterms.html
-
-**Trump Has Machado’s Nobel Prize, but Neither Got What They Really Wanted**\
-`President Trump has María Corina Machado’s medal, but he is not recognized as the prize laureate. Ms. Machado did not win Mr. Trump’s endorsement to become Venezuela’s president.`\
-https://nytimes.com/2026/01/16/us/politics/trump-machado-nobel-prize.html
 
