@@ -1,3 +1,7 @@
+**Former Capitals assistant Mitch Love named head coach in KHL amid NHL suspension**\
+`Love, who is the new head coach of the Shanghai Dragons, was suspended for the 2025-26 NHL season, reportedly due to alleged domestic abuse.`\
+https://nytimes.com/athletic/6979605/2026/01/17/mitch-love-khl-shanghai-dragons-nhl-suspension/
+
 **Michael Kesselring eager to impact Sabres, plus 5 other thoughts from OT loss to Wild**\
 `Kesselring returned for the Sabres' 5-4 overtime loss against the Wild on Saturday, and he hopes to start making the impact he envisioned. `\
 https://nytimes.com/athletic/6979548/2026/01/17/sabres-wild-michael-kesselring-overtime/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/17/world/europe/greenland-denmark-protest-trump-take
 **Titans schedule second interviews with 3 candidates as search narrows: Sources**\
 `Matt Nagy, Jeff Hafley and Kevin Stefanski are all slated for second interviews with the Tennessee Titans in the coming days.`\
 https://nytimes.com/athletic/6979496/2026/01/17/titans-in-person-interviews-matt-nagy-stefanski-hafley/
-
-**Curt Cignetti shuts down NFL rumors: 'I’m not an NFL guy'**\
-`The Indiana coach said he made his decision when he declined the chance to make the college-to-NFL jump in 2000.`\
-https://nytimes.com/athletic/6979326/2026/01/17/curt-cignetti-nfl-head-coach-rumors/
 
