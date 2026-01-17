@@ -1,3 +1,31 @@
+**How to watch Rangers vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978550/2026/01/17/rangers-vs-flyers-stream-how-to-watch-jan-17/
+
+**SailGP 2026 begins with boat-breaking crash, surprise U.S. success in Perth**\
+`The U.S. is tied for the lead after its day one performance, alongside the French and Swedish teams.`\
+https://nytimes.com/athletic/6978517/2026/01/17/sailgp-2026-perth-season-6/
+
+**Prize Fight**\
+`In the run-up to the Oscar nominations, a chat with a reporter who has followed every twist and turn of the race.`\
+https://nytimes.com/2026/01/17/briefing/prize-fight.html
+
+**How to watch Kansas State vs. Texas Tech women's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas State Wildcats play the Texas Tech Lady Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978543/2026/01/17/kansas-state-vs-texas-tech-stream-how-to-watch-jan-17/
+
+**How to watch Virginia vs. SMU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Virginia Cavaliers play the SMU Mustangs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978541/2026/01/17/virginia-vs-smu-stream-how-to-watch-jan-17/
+
+**How to watch UConn vs. Georgetown men's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the Georgetown Hoyas, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978539/2026/01/17/uconn-vs-georgetown-stream-how-to-watch-jan-17/
+
+**How to watch Alabama vs. Oklahoma men's basketball: Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978537/2026/01/17/alabama-vs-oklahoma-stream-how-to-watch-jan-17/
+
 **How to watch Florida vs. Vanderbilt men's basketball: Time, TV, streaming**\
 `Find out how to watch the Florida Gators play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978533/2026/01/17/florida-vs-vanderbilt-stream-how-to-watch-jan-17/
@@ -5,32 +33,4 @@ https://nytimes.com/athletic/6978533/2026/01/17/florida-vs-vanderbilt-stream-how
 **How to watch Iowa State vs. Cincinnati men's basketball: Time, TV, streaming**\
 `Find out how to watch the Iowa State Cyclones play the Cincinnati Bearcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978530/2026/01/17/iowa-state-vs-cincinnati-stream-how-to-watch-jan-17/
-
-**How to watch Dartmouth vs. Princeton women's basketball: Time, TV, streaming**\
-`Find out how to watch the Dartmouth Big Green play the Princeton Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6978527/2026/01/17/dartmouth-vs-princeton-stream-how-to-watch-jan-17/
-
-**How to watch Kentucky vs. Tennessee men's basketball: Time, TV, streaming**\
-`Find out how to watch the Kentucky Wildcats play the Tennessee Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6978525/2026/01/17/kentucky-vs-tennessee-stream-how-to-watch-jan-17/
-
-**How to watch Minnesota vs. Illinois men's basketball: Time, TV, streaming**\
-`Find out how to watch the Minnesota Golden Gophers play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6978523/2026/01/17/minnesota-vs-illinois-stream-how-to-watch-jan-17/
-
-**Uganda Opposition Leader Bobi Wine Is ‘Restricted’ to His Home, the Police Say**\
-`The country’s electoral commission is expected to soon announce that President Yoweri Museveni has won re-election after four decades in power`\
-https://nytimes.com/2026/01/17/world/africa/uganda-bobi-wine-museveni.html
-
-**NFL playoffs viewing guide: Bills-Broncos, 49ers-Seahawks start divisional weekend**\
-`The NFL playoffs pick up again Saturday with two divisional-round games. The home crowds in Denver and Seattle will be out in full force.`\
-https://nytimes.com/athletic/6971390/2026/01/17/nfl-playoffs-bills-broncos-49ers-seahawks-divisional-round/
-
-**Marco Kasper breaks out of slump in Red Wings' win over Sharks: 5 thoughts**\
-`Kasper broke a months-long goal drought Friday in Detroit's 4-2 win, and he added an assist earlier in the game.`\
-https://nytimes.com/athletic/6978320/2026/01/17/red-wings-marco-kasper-sharks-slump/
-
-**Can the Patriots' offensive line hold up against the Texans' talented defensive front?**\
-`Patriots rookie left tackle Will Campbell will have a very important — and difficult — job in Sunday's playoff matchup against the Texans.`\
-https://nytimes.com/athletic/6975071/2026/01/17/texans-patriots-preview-prediction-nfl-playoffs/
 
