@@ -1,3 +1,7 @@
+**Use Your Words**\
+`Rena Cohen’s first Sunday puzzle gives something to everyone.`\
+https://nytimes.com/2026/01/17/crosswords/daily-puzzle-2026-01-18.html
+
 **The 1.18.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/01/17/the-11825-issue
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979497/2026/01/17/oilers-leon-draisaitl-leave-abse
 **Arteta says Arsenal denied 'clear penalty' during Forest draw**\
 `Arteta was referring to an incident in the second-half when the ball hit Ola Aina's arm in the Forest penalty area. `\
 https://nytimes.com/athletic/6979460/2026/01/17/arsenal-penalty-aina-handball-nottingham-forest/
-
-**‘We’ll Sue’: White House’s Warning to CBS Is Sign of a New Media Status Quo**\
-`In previously unreported remarks, the White House press secretary Karoline Leavitt told CBS News that Mr. Trump would “sue” the news outlet if it did not air an interview unedited.`\
-https://nytimes.com/2026/01/17/business/media/cbs-news-trump-interview.html
 
