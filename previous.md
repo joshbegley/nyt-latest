@@ -1,3 +1,7 @@
+**Emma Raducanu: Scheduling women's matches last after men's 'doesn't make as much sense'**\
+`The 2021 U.S. Open champion could run into a familiar Grand Slam problem for women's tennis to start 2026.`\
+https://nytimes.com/athletic/6978428/2026/01/17/tennis-emma-raducanu-grand-slam-scheduling/
+
 **Before Criticizing Pro-Hamas Chants, Mamdani Sought Jewish Leaders’ Input**\
 `The outreach by Mayor Zohran Mamdani’s team has demonstrated how the mayor is taking care to not inflame tensions on either side of the Israel-Gaza war.`\
 https://nytimes.com/2026/01/17/nyregion/mamdani-hamas-protest.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6976625/2026/01/17/conor-gallagher-tottenham-chelse
 **Everton's search for goals: Could En-Nesyri or Wilson be the answer?**\
 `Everton have shown an interest in the two strikers — which is no surprise given how Thierno Barry and Beto have struggled this season`\
 https://nytimes.com/athletic/6976647/2026/01/17/everton-en-nesyri-wilson-transfer-interest/
-
-**The problem with Man Utd's media class – and the one subject they do not raise**\
-`Only three managers in United’s entire history have won the league championship - and they seem to be beyond scrutiny`\
-https://nytimes.com/athletic/6969629/2026/01/17/man-utd-gary-neville-roy-keane-pundit/
 

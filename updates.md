@@ -1,3 +1,7 @@
+**Emma Raducanu: Scheduling women's matches last after men's 'doesn't make as much sense'**\
+`The 2021 U.S. Open champion could run into a familiar Grand Slam problem for women's tennis to start 2026.`\
+https://nytimes.com/athletic/6978428/2026/01/17/tennis-emma-raducanu-grand-slam-scheduling/
+
 **Before Criticizing Pro-Hamas Chants, Mamdani Sought Jewish Leaders’ Input**\
 `The outreach by Mayor Zohran Mamdani’s team has demonstrated how the mayor is taking care to not inflame tensions on either side of the Israel-Gaza war.`\
 https://nytimes.com/2026/01/17/nyregion/mamdani-hamas-protest.html
