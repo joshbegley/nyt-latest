@@ -1,3 +1,7 @@
+**Rick Caruso, a Los Angeles Billionaire, Will Not Run for Office This Year**\
+`Mr. Caruso had the potential to shake up the contests for Los Angeles mayor or California governor.`\
+https://nytimes.com/2026/01/16/us/rick-caruso-mayor-governor-california.html
+
 **Read the Ruling Restricting Federal Agents’ Actions in Minnesota**\
 `A federal judge ruled in favor of protesters in the state.`\
 https://nytimes.com/interactive/2026/01/16/us/minn-injunction-aclu.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/16/us/politics/trump-gaza-board-peace-kushner.html
 **An A.I. Attack Ad Shows Texas Rivals Dancing the ‘Washington Waltz’**\
 `A video from Ken Paxton, a Republican primary challenger to Senator John Cornyn of Texas, depicted A.I.-generated imagery of the senator twirling with Jasmine Crockett, a Democratic Senate candidate.`\
 https://nytimes.com/2026/01/16/us/politics/ai-ad-texas-senate-paxton-cornyn.html
-
-**Gabriel Barkay, 81, Dies; His Discoveries Revised Biblical History**\
-`One of Israel’s leading archaeologists, he found evidence that the writing of the Old Testament likely began much earlier than historians had thought.`\
-https://nytimes.com/2026/01/16/world/middleeast/gabriel-barkay-dead.html
 

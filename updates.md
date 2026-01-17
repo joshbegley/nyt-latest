@@ -1,3 +1,7 @@
+**Rick Caruso, a Los Angeles Billionaire, Will Not Run for Office This Year**\
+`Mr. Caruso had the potential to shake up the contests for Los Angeles mayor or California governor.`\
+https://nytimes.com/2026/01/16/us/rick-caruso-mayor-governor-california.html
+
 **Read the Ruling Restricting Federal Agents’ Actions in Minnesota**\
 `A federal judge ruled in favor of protesters in the state.`\
 https://nytimes.com/interactive/2026/01/16/us/minn-injunction-aclu.html
