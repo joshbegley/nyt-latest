@@ -1,3 +1,7 @@
+**Kílian Jornet on What We Can Learn From Pushing Our Bodies to Extremes**\
+`The ultrarunner and mountaineer finds peace through doing unimaginably hard things.`\
+https://nytimes.com/2026/01/17/magazine/kilian-jornet-interview.html
+
 **The People of Minneapolis vs. ICE: A Street-Level View**\
 `An intense cat-and-mouse game is putting enraged locals face-to-face with heavily armed agents.`\
 https://nytimes.com/2026/01/17/us/minneapolis-protests-ice.html
