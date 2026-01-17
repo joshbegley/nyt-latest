@@ -1,3 +1,15 @@
+**An A.I. Attack Ad Shows Texas Rivals Dancing the ‘Washington Waltz’**\
+`A video from Ken Paxton, a Republican primary challenger to Senator John Cornyn of Texas, depicted A.I.-generated imagery of the senator twirling with Jasmine Crockett, a Democratic Senate candidate.`\
+https://nytimes.com/2026/01/16/us/politics/ai-ad-texas-senate-paxton-cornyn.html
+
+**Gabriel Barkay, 81, Dies; His Discoveries Revised Biblical History**\
+`One of Israel’s leading archaeologists, he found evidence that the writing of the Old Testament likely began much earlier than historians had thought.`\
+https://nytimes.com/2026/01/16/world/middleeast/gabriel-barkay-dead.html
+
+**As Kennedy Center Rebrands, It’s Mired in Black Tape**\
+`After the institution’s board declared it the Trump Kennedy Center, a lot of signage around the building is in the midst of a makeover.`\
+https://nytimes.com/2026/01/16/arts/as-kennedy-center-rebrands-its-mired-in-black-tape.html
+
 **As Kennedy Center Rebrands It’s Mired in Black Tape**\
 `After the institution’s board declared it the Trump Kennedy Center, a lot of signage around the building is in the midst of a makeover.`\
 https://nytimes.com/2026/01/16/arts/as-kennedy-center-rebrands-its-mired-in-black-tape.html
