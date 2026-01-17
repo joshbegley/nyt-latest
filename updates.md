@@ -1,3 +1,7 @@
+**The 1.18.26 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/01/17/the-11825-issue
+
 **The 1.18.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/01/17/the-11825-issue
