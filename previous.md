@@ -1,3 +1,7 @@
+**Salted Butter or Bust**\
+`Samantha Seneviratne takes the Bake Time Questionnaire, and she has strong feelings about salt.`\
+https://nytimes.com/2026/01/17/dining/salted-butter-or-bust.html
+
 **Joel Primack, Physicist Who Helped Explain the Cosmos, Dies at 80**\
 `A professor at the University of California, Santa Cruz, he was a key contributor to a landmark paper that laid out how the universe came to look like it does today.`\
 https://nytimes.com/2026/01/17/science/joel-primack-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6978675/2026/01/17/utah-state-vs-grand-canyon-strea
 **How to watch Arkansas vs. Georgia men's basketball: Time, TV, streaming**\
 `Find out how to watch the Arkansas Razorbacks play the Georgia Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978673/2026/01/17/arkansas-vs-georgia-stream-how-to-watch-jan-17/
-
-**How to watch Miami (FL) vs. Clemson men's basketball: Time, TV, streaming**\
-`Find out how to watch the Miami Hurricanes play the Clemson Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6978670/2026/01/17/miami-fl-vs-clemson-stream-how-to-watch-jan-17/
 

@@ -1,3 +1,7 @@
+**Salted Butter or Bust**\
+`Samantha Seneviratne takes the Bake Time Questionnaire, and she has strong feelings about salt.`\
+https://nytimes.com/2026/01/17/dining/salted-butter-or-bust.html
+
 **Joel Primack, Physicist Who Helped Explain the Cosmos, Dies at 80**\
 `A professor at the University of California, Santa Cruz, he was a key contributor to a landmark paper that laid out how the universe came to look like it does today.`\
 https://nytimes.com/2026/01/17/science/joel-primack-dead.html
