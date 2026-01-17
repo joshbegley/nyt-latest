@@ -1,3 +1,15 @@
+**How to watch Utah State vs. Grand Canyon men's basketball: Time, TV, streaming**\
+`Find out how to watch the Utah State Aggies play the Grand Canyon Antelopes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978675/2026/01/17/utah-state-vs-grand-canyon-stream-how-to-watch-jan-17/
+
+**How to watch Arkansas vs. Georgia men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arkansas Razorbacks play the Georgia Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978673/2026/01/17/arkansas-vs-georgia-stream-how-to-watch-jan-17/
+
+**How to watch Miami (FL) vs. Clemson men's basketball: Time, TV, streaming**\
+`Find out how to watch the Miami Hurricanes play the Clemson Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978670/2026/01/17/miami-fl-vs-clemson-stream-how-to-watch-jan-17/
+
 **How to watch Nebraska vs. Northwestern men's basketball: Time, TV, streaming**\
 `Find out how to watch the Nebraska Cornhuskers play the Northwestern Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978668/2026/01/17/nebraska-vs-northwestern-stream-how-to-watch-jan-17/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6978657/2026/01/17/arizona-vs-tcu-stream-how-to-wat
 **How to watch Michigan vs. Oregon men's basketball: Time, TV, streaming**\
 `Find out how to watch the Michigan Wolverines play the Oregon Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978655/2026/01/17/michigan-vs-oregon-stream-how-to-watch-jan-17/
-
-**GM John Lynch sets the stage, but he credits 49ers' resolve, team culture**\
-`It's safe to say Lynch, 54, did not foresee all the injuries that piled up this season — but the wins piled up as well.`\
-https://nytimes.com/athletic/6978116/2026/01/17/49ers-gm-john-lynch-interview-nfl-playoffs/
-
-**Rhoda Levine, Pathbreaking Opera Director, Dies at 93**\
-`Starting out in the 1970s as a rare woman in a field dominated by men, she directed the premieres of a pair of politically charged modern classics.`\
-https://nytimes.com/2026/01/17/arts/music/rhoda-levine-dead.html
-
-**3 Policy Moves Likely to Change Health Care for Older People**\
-`Two regulatory rollbacks, along with a new A.I. experiment in Medicare, raise some worrisome questions.`\
-https://nytimes.com/2026/01/17/health/nursing-homes-health-aides-medicare.html
 
