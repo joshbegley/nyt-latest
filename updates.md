@@ -1,3 +1,11 @@
+**Oilers’ Leon Draisaitl takes leave of absence for family matter in Germany**\
+`The Oilers said the star forward's absence will be brief, and that he is expected to return to the club next week.`\
+https://nytimes.com/athletic/6979497/2026/01/17/oilers-leon-draisaitl-leave-absence-family-illness/
+
+**John Harbaugh, New York Giants agree to 5-year contract**\
+`"We are going to compete for the playoffs and for championships. I expect and want to make the playoffs next year," Harbaugh said.`\
+https://nytimes.com/athletic/6977938/2026/01/17/john-harbaugh-new-york-giants-finzalize-deal/
+
 **Arteta says Arsenal denied 'clear penalty' during Forest draw**\
 `Arteta was referring to an incident in the second-half when the ball hit Ola Aina's arm in the Forest penalty area. `\
 https://nytimes.com/athletic/6979460/2026/01/17/arsenal-penalty-aina-handball-nottingham-forest/
