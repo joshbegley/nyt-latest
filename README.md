@@ -1,36 +1,36 @@
-**Ousmane Dembele and a 'PlayStation goal' that shocked football**\
-`Breaking down one of the goals of the season which left even the PSG striker's opponents dumbfounded`\
-https://nytimes.com/athletic/6978553/2026/01/17/ousmane-dembele-goal-psg-lille-playstation/
+**Lithuanian basketball fans will always love Bob Weir, Grateful Dead**\
+`The country won't forget how the late musician and his band helped their basketball team get to the 1992 Barcelona Olympics.`\
+https://nytimes.com/athletic/6972849/2026/01/17/bob-weir-grateful-dead-lithuania-basketball-olympics/
 
-**Will 2026 Be the Year Voters Pull the Emergency Brake?**\
-`The midterms will be a battle for control of Trump’s legacy.`\
-https://nytimes.com/video/opinion/100000010647503/will-2026-be-the-year-voters-pull-the-emergency-brake.html
+**Grading every NHL team at the halfway mark of the season**\
+`From F to A-plus to everything in between, The Athletic's NHL staff hands out midseason grades to every team.`\
+https://nytimes.com/athletic/6968525/2026/01/17/nhl-team-grades-2026-regular-season/
 
-**Fernando Mendoza grew up in Miami, so why is he a Hoosier and not a Hurricane?**\
-`Despite earning All-Dade County honors as a junior, Mendoza had a hard time getting power-conference programs to give him a legitimate look.`\
-https://nytimes.com/athletic/6977653/2026/01/17/ernando-mendoza-high-school-miami-indiana-national-championship/
+**Ugly wins are all Scottie Barnes, Raptors can hope for at this point**\
+`This team is playing some excellent defence despite not having a proper centre available for half of the season thus far.`\
+https://nytimes.com/athletic/6978352/2026/01/17/scottie-barnes-raptors-clippers-ugly-wins/
 
-**How to watch Wild vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6978552/2026/01/17/wild-vs-sabres-stream-how-to-watch-jan-17/
+**Finding the spirit and soul of Morocco's soccer culture from a pickup match**\
+`The Athletic went looking for a kickabout in Rabat and was richly rewarded in a game where scoring goals isn't the main aim`\
+https://nytimes.com/athletic/6978163/2026/01/17/morocco-afcon-final-soccer-pickup/
 
-**How to watch Rangers vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6978550/2026/01/17/rangers-vs-flyers-stream-how-to-watch-jan-17/
+**How to watch the Australian Open: TV times, odds and tournament schedule**\
+`The Grand Slam season begins at Melbourne Park, where the action lasts through Feb. 1. `\
+https://nytimes.com/athletic/6975263/2026/01/17/australian-open-2026-schedule-streaming-odds-how-to-watch/
 
-**SailGP 2026 begins with boat-breaking crash, surprise U.S. success in Perth**\
-`The U.S. is tied for the lead after its day one performance, alongside the French and Swedish teams.`\
-https://nytimes.com/athletic/6978517/2026/01/17/sailgp-2026-perth-season-6/
+**Behold Donald of Deliria!**\
+`Trump, sinking into the quicksand of imperialism.`\
+https://nytimes.com/2026/01/17/opinion/behold-donald-of-deliria.html
 
-**Prize Fight**\
-`In the run-up to the Oscar nominations, a chat with a reporter who has followed every twist and turn of the race.`\
-https://nytimes.com/2026/01/17/briefing/prize-fight.html
+**No, Trump Can’t Cancel the Midterms**\
+`Despite how much the president talks about canceling the 2026 midterms, the columnist Jamelle Bouie explains why he can’t on this episode of “The Opinions.”`\
+https://nytimes.com/video/opinion/100000010647511/no-trump-cant-cancel-the-midterms.html
 
-**How to watch Kansas State vs. Texas Tech women's basketball: Time, TV, streaming**\
-`Find out how to watch the Kansas State Wildcats play the Texas Tech Lady Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6978543/2026/01/17/kansas-state-vs-texas-tech-stream-how-to-watch-jan-17/
+**MAGA After Trump**\
+`The president’s approval rating is a misleading signal, argues the columnist David French on “The Opinions.” Without Trump on the ballot, midterm elections will expose the true strength — or weakness — of MAGA politics.`\
+https://nytimes.com/video/opinion/100000010647510/maga-after-trump.html
 
-**How to watch Virginia vs. SMU men's basketball: Time, TV, streaming**\
-`Find out how to watch the Virginia Cavaliers play the SMU Mustangs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6978541/2026/01/17/virginia-vs-smu-stream-how-to-watch-jan-17/
+**Like Ben Johnson's Bears, Curt Cignetti's Indiana offense thrives on attention to detail**\
+`Indiana plays fast, but it really thrives on efficiency and execution. That's all ties back to how Cignetti builds his offense.`\
+https://nytimes.com/athletic/6976666/2026/01/17/curt-cignetti-indiana-offense-mendoza-cfp-championship/
 
