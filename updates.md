@@ -1,3 +1,11 @@
+**He shoots… he doesn't score: Analysing Europe's 10 most wasteful finishers**\
+`Here are the players in the 'big five' leagues to have taken the most shots without scoring this season`\
+https://nytimes.com/athletic/6969927/2026/01/17/european-football-wasteful-finishers/
+
+**Igor Thiago, Joao Pedro and the five-way battle to make Brazil's World Cup attack**\
+`Carlo Ancelotti has a tough decision over the remaining places in Brazil's front line — with five of the suitors Premier League players`\
+https://nytimes.com/athletic/6976739/2026/01/17/brazil-strikers-world-cup-ancelotti/
+
 **$2 Rental Batteries Are Helping to Power South Africa**\
 `The batteries offer an affordable system for those who lack reliable power and the money to buy their own solar panels.`\
 https://nytimes.com/2026/01/17/world/africa/batteries-south-africa-electricity.html

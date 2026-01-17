@@ -1,3 +1,11 @@
+**He shoots… he doesn't score: Analysing Europe's 10 most wasteful finishers**\
+`Here are the players in the 'big five' leagues to have taken the most shots without scoring this season`\
+https://nytimes.com/athletic/6969927/2026/01/17/european-football-wasteful-finishers/
+
+**Igor Thiago, Joao Pedro and the five-way battle to make Brazil's World Cup attack**\
+`Carlo Ancelotti has a tough decision over the remaining places in Brazil's front line — with five of the suitors Premier League players`\
+https://nytimes.com/athletic/6976739/2026/01/17/brazil-strikers-world-cup-ancelotti/
+
 **$2 Rental Batteries Are Helping to Power South Africa**\
 `The batteries offer an affordable system for those who lack reliable power and the money to buy their own solar panels.`\
 https://nytimes.com/2026/01/17/world/africa/batteries-south-africa-electricity.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6978334/2026/01/16/tennis-daria-kasatkina-australia
 **Reds' Elly De La Cruz won't play in WBC, hopes to play in future tournaments**\
 `De La Cruz played in all 162 games for the Reds last season but spent the second half of the season dealing with a quad injury.`\
 https://nytimes.com/athletic/6978291/2026/01/16/world-baseball-classic-2026-elly-de-la-cruz-status/
-
-**Rosenthal: What I'm hearing about the Orioles' interest in Justin Verlander, and more MLB notes**\
-`Plus, a look at Zac Gallen's market, how likely the Reds are to deal one of their starters, and intel on the Dodgers, Royals and Rays.`\
-https://nytimes.com/athletic/6978152/2026/01/16/mlb-free-agency-orioles-justin-verlander-zac-gallen/
-
-**Ducks' Leo Carlsson out 3-5 weeks after procedure as status for Olympics looms**\
-`The No. 2 draft pick in 2023 has 18 goals, 26 assists and 44 points in 44 games this season and was named to Team Sweden's roster for Milan.`\
-https://nytimes.com/athletic/6978301/2026/01/16/ducks-leo-carlsson-injury-olympics/
 
