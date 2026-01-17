@@ -1,3 +1,7 @@
+**Joel Primack, Physicist Who Helped Explain the Cosmos, Dies at 80**\
+`A professor at the University of California, Santa Cruz, he was a key contributor to a landmark paper that laid out how the universe came to look like it does today.`\
+https://nytimes.com/2026/01/17/science/joel-primack-dead.html
+
 **Blues finally win in OT and now have back-to-back victories over Hurricanes, Lightning**\
 `The Blues won 3-2 over the Tampa Bay Lighting in a shootout, their first victory of the season in OT. `\
 https://nytimes.com/athletic/6978365/2026/01/17/blues-ot-win-hurricanes-lightning/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6978673/2026/01/17/arkansas-vs-georgia-stream-how-t
 **How to watch Miami (FL) vs. Clemson men's basketball: Time, TV, streaming**\
 `Find out how to watch the Miami Hurricanes play the Clemson Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978670/2026/01/17/miami-fl-vs-clemson-stream-how-to-watch-jan-17/
-
-**How to watch Nebraska vs. Northwestern men's basketball: Time, TV, streaming**\
-`Find out how to watch the Nebraska Cornhuskers play the Northwestern Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6978668/2026/01/17/nebraska-vs-northwestern-stream-how-to-watch-jan-17/
 
