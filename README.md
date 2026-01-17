@@ -1,3 +1,7 @@
+**‘Yankee, Go Home’: Greenlanders Protest Trump’s Takeover Plans**\
+`Protests erupted in several Greenlandic cites and in Denmark as President Trump intensified his efforts to take control of the Arctic island.`\
+https://nytimes.com/2026/01/17/world/europe/greenland-denmark-protest-trump-takeover.html
+
 **Titans schedule second interviews with three candidates as search narrows: Sources**\
 `Matt Nagy, Jeff Hafley and Kevin Stefanski are all slated for second interviews with the Tennessee Titans in the coming days.`\
 https://nytimes.com/athletic/6979496/2026/01/17/titans-in-person-interviews-matt-nagy-stefanski-hafley/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979387/2026/01/17/barcelona-mamadaou-mbacke-st-lou
 **UK's 17-point comeback at No. 24 Tennessee a sign not to bury these Cats just yet**\
 `Kentucky has won three in a row in the difficult SEC, and Saturday might have been its best win of the season.`\
 https://nytimes.com/athletic/6979372/2026/01/17/kentucky-tennessee-score-result-comeback-mark-pope/
-
-**John Harbaugh, New York Giants agree to 5-year contract**\
-`"We are going to compete for the playoffs and for championships. I expect and want to make the playoffs next year," Harbaugh said.`\
-https://nytimes.com/athletic/6977938/2026/01/17/john-harbaugh-new-york-giants-finzalize-deal/
 
