@@ -1,3 +1,7 @@
+**Trump Administration Begins Criminal Inquiry Into Minnesota Leaders**\
+`The Justice Department’s investigation is a major escalation in the state-federal battle over the conduct of immigration agents in Minneapolis.`\
+https://nytimes.com/2026/01/16/us/politics/tim-walz-jacob-frey-investigation-trump.html
+
 **Khan: Duke QB Mensah's transfer portal decision signals bleak state of CFB**\
 `Why should players be held to a different standard than college football's leaders?`\
 https://nytimes.com/athletic/6978141/2026/01/16/duke-darian-mensah-transfer-portal/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/16/us/politics/ice-minnesota-midterms.html
 **Trump Has Machado’s Nobel Prize, but Neither Got What They Really Wanted**\
 `President Trump has María Corina Machado’s medal, but he is not recognized as the prize laureate. Ms. Machado did not win Mr. Trump’s endorsement to become Venezuela’s president.`\
 https://nytimes.com/2026/01/16/us/politics/trump-machado-nobel-prize.html
-
-**Scoop City: Reporters explain how each playoff team advances**\
-`Our reporters explain how the teams they cover can win this weekend, plus Ted Nguyen breaks down a crucial matchup in Denver`\
-https://nytimes.com/athletic/6978039/2026/01/16/nfl-playoff-predictions-rams-bears-bills-broncos-scoop-city/
 

@@ -1,3 +1,7 @@
+**Trump Administration Begins Criminal Inquiry Into Minnesota Leaders**\
+`The Justice Department’s investigation is a major escalation in the state-federal battle over the conduct of immigration agents in Minneapolis.`\
+https://nytimes.com/2026/01/16/us/politics/tim-walz-jacob-frey-investigation-trump.html
+
 **Khan: Duke QB Mensah's transfer portal decision signals bleak state of CFB**\
 `Why should players be held to a different standard than college football's leaders?`\
 https://nytimes.com/athletic/6978141/2026/01/16/duke-darian-mensah-transfer-portal/
