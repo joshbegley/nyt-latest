@@ -1,3 +1,7 @@
+**Giants send contract to Harbaugh, talks ongoing for 5-year deal: Sources**\
+`Harbaugh would be the 22nd head coach in Giants history.`\
+https://nytimes.com/athletic/6978835/2026/01/17/john-harbaugh-giants-contract-negotions-update/
+
 **How to watch Blue Jackets vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Columbus Blue Jackets play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6979057/2026/01/17/blue-jackets-vs-penguins-stream-how-to-watch-jan-17/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979040/2026/01/17/hurricanes-vs-devils-stream-how-
 **How to watch Timberwolves vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the Minnesota Timberwolves play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6979037/2026/01/17/timberwolves-vs-spurs-stream-how-to-watch-jan-17/
-
-**How to watch Pacers vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6979036/2026/01/17/pacers-vs-pistons-stream-how-to-watch-jan-17/
 
