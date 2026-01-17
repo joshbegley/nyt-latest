@@ -1,3 +1,7 @@
+**Khan: Duke QB Mensah's transfer portal decision signals bleak state of CFB**\
+`Why should players be held to a different standard than college football's leaders?`\
+https://nytimes.com/athletic/6978141/2026/01/16/duke-darian-mensah-transfer-portal/
+
 **Trump Announces Largely American Council to Oversee Gaza**\
 `The president also tapped a U.S. general to lead an international peacekeeping force that will be deployed to disarm Hamas and occupy Gaza.`\
 https://nytimes.com/2026/01/16/us/politics/trump-gaza-board-peace-kushner.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/16/us/politics/trump-machado-nobel-prize.html
 **Scoop City: Reporters explain how each playoff team advances**\
 `Our reporters explain how the teams they cover can win this weekend, plus Ted Nguyen breaks down a crucial matchup in Denver`\
 https://nytimes.com/athletic/6978039/2026/01/16/nfl-playoff-predictions-rams-bears-bills-broncos-scoop-city/
-
-**By Raiding a Reporter’s Home, Is the F.B.I. Weaponizing National Security?**\
-`Knowing what the government is up to is essential for democracy to work.`\
-https://nytimes.com/2026/01/16/opinion/fbi-raid-washington-post-law.html
 
