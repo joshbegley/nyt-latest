@@ -1,3 +1,7 @@
+**Read the Ruling Restricting Federal Agents’ Actions in Minnesota**\
+`A federal judge ruled in favor of protesters in the state.`\
+https://nytimes.com/interactive/2026/01/16/us/minn-injunction-aclu.html
+
 **'Irreplaceable' Nico Hoerner hopes trade rumors fade as Cubs load up for a 2026 run**\
 `“I definitely want to be here for this season and with this group,” the two-time Gold Glove winner said.`\
 https://nytimes.com/athletic/6978187/2026/01/16/cubs-nico-hoerner-trade-rumors-mlb/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/16/us/politics/ai-ad-texas-senate-paxton-cornyn.html
 **Gabriel Barkay, 81, Dies; His Discoveries Revised Biblical History**\
 `One of Israel’s leading archaeologists, he found evidence that the writing of the Old Testament likely began much earlier than historians had thought.`\
 https://nytimes.com/2026/01/16/world/middleeast/gabriel-barkay-dead.html
-
-**WATCH: How the Bears snatched a wild-card win away from Packers**\
-`A string of savvy play-calling was the difference for Caleb Williams and the Bears vs. the Packers last week.`\
-https://nytimes.com/athletic/6978083/2026/01/16/video-analysis-bears-playoffs-caleb-williams/
 

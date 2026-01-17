@@ -1,3 +1,7 @@
+**Read the Ruling Restricting Federal Agents’ Actions in Minnesota**\
+`A federal judge ruled in favor of protesters in the state.`\
+https://nytimes.com/interactive/2026/01/16/us/minn-injunction-aclu.html
+
 **'Irreplaceable' Nico Hoerner hopes trade rumors fade as Cubs load up for a 2026 run**\
 `“I definitely want to be here for this season and with this group,” the two-time Gold Glove winner said.`\
 https://nytimes.com/athletic/6978187/2026/01/16/cubs-nico-hoerner-trade-rumors-mlb/
