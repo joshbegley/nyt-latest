@@ -1,3 +1,7 @@
+**He shoots… he doesn't score: Analysing Europe's 10 most wasteful finishers**\
+`Here are the players in the 'big five' leagues to have taken the most shots without scoring this season`\
+https://nytimes.com/athletic/6969927/2026/01/17/european-football-wasteful-finishers/
+
 **The New York Times in Print for Saturday, Jan. 17, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/17/todays-new-york-times
