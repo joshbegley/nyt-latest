@@ -1,4 +1,8 @@
-**As Kennedy Center Rebrands It’s Mired in Black Tape**\
+**Gabriel Barkay, 81, Dies; His Discoveries Revised Biblical History**\
+`One of Israel’s leading archaeologists, he found evidence that the writing of the Old Testament likely began much earlier than historians had thought.`\
+https://nytimes.com/2026/01/16/world/middleeast/gabriel-barkay-dead.html
+
+**As Kennedy Center Rebrands, It’s Mired in Black Tape**\
 `After the institution’s board declared it the Trump Kennedy Center, a lot of signage around the building is in the midst of a makeover.`\
 https://nytimes.com/2026/01/16/arts/as-kennedy-center-rebrands-its-mired-in-black-tape.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/video/opinion/100000010644674/conservative-politics-cant-jus
 **Thousands Evicted From the 19th-Century ‘Venice of Nigeria’**\
 `Community leaders in Lagos say evictions in the name of development have left many residents of this fishing village homeless.`\
 https://nytimes.com/2026/01/16/world/africa/nigeria-makoko-fishing-village-destroyed.html
-
-**Nebraska first Power 4 school to announce plans to add varsity flag football**\
-`Nebraska's team will begin play in the spring of 2028, with home contests at a venue to be determined.`\
-https://nytimes.com/athletic/6977997/2026/01/16/nebraska-flag-football-program-women/
 
