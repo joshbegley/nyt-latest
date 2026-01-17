@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6979085/2026/01/17/thomas-frank-tottenham-west-ham/
 `Darnold, who has thrown for 4,048 yards and 25 touchdowns for the NFC’s No. 1 seed this season, hasn't missed a game this season.`\
 https://nytimes.com/athletic/6979059/2026/01/17/sam-darnold-injury-update-status-seahawks-49ers/
 
-**Minneapolis Braces for Dueling Protests as City Remains on Edge**\
-`A rally at City Hall and a march have been organized by a conservative influencer to draw attention to a fraud scandal in the state. It is expected to draw counter protesters.`\
+**Dueling Protests Begin in Minneapolis as City Remains on Edge**\
+`A rally at City Hall and a march have been organized by a conservative influencer to draw attention to a fraud scandal in the state. Counterprotesters came out to oppose the effort.`\
 https://nytimes.com/2026/01/17/us/minneapolis-protests-immigration-fraud.html
 
 **Mamdani Appoints Top Parks Official to Oversee New York’s Green Spaces**\
