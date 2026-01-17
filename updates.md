@@ -1,3 +1,7 @@
+**How to watch Wild vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978552/2026/01/17/wild-vs-sabres-stream-how-to-watch-jan-17/
+
 **How to watch Rangers vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the New York Rangers play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978550/2026/01/17/rangers-vs-flyers-stream-how-to-watch-jan-17/

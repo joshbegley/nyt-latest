@@ -1,3 +1,7 @@
+**How to watch Wild vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978552/2026/01/17/wild-vs-sabres-stream-how-to-watch-jan-17/
+
 **How to watch Rangers vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the New York Rangers play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978550/2026/01/17/rangers-vs-flyers-stream-how-to-watch-jan-17/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6978537/2026/01/17/alabama-vs-oklahoma-stream-how-t
 **How to watch Florida vs. Vanderbilt men's basketball: Time, TV, streaming**\
 `Find out how to watch the Florida Gators play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978533/2026/01/17/florida-vs-vanderbilt-stream-how-to-watch-jan-17/
-
-**How to watch Iowa State vs. Cincinnati men's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa State Cyclones play the Cincinnati Bearcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6978530/2026/01/17/iowa-state-vs-cincinnati-stream-how-to-watch-jan-17/
 
