@@ -1,3 +1,7 @@
+**Rudy Gobert shoulders blame for loss to the Rockets as his FT percentage plummets**\
+`The Minnesota center had 10 points, 13 rebounds and two blocks, but he had a nightmare fourth quarter in a five-point loss to Houston.`\
+https://nytimes.com/athletic/6978276/2026/01/17/rudy-gobert-shoulders-blame-rockets-ft-percentage-plummets/
+
 **Indiana football’s run to CFP national title game has NBA world watching**\
 `Indiana’s leap from bottom of the Big Ten to unbeaten title contender has caught the attention of IU alumni and admirers in the NBA.`\
 https://nytimes.com/athletic/6977940/2026/01/17/indiana-football-cfp-national-championship-nba-mark-cuban/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6978352/2026/01/17/scottie-barnes-raptors-clippers-
 **Finding the spirit and soul of Morocco's soccer culture from a pickup match**\
 `The Athletic went looking for a kickabout in Rabat and was richly rewarded in a game where scoring goals isn't the main aim`\
 https://nytimes.com/athletic/6978163/2026/01/17/morocco-afcon-final-soccer-pickup/
-
-**How to watch the Australian Open: TV times, odds and tournament schedule**\
-`The Grand Slam season begins at Melbourne Park, where the action lasts through Feb. 1. `\
-https://nytimes.com/athletic/6975263/2026/01/17/australian-open-2026-schedule-streaming-odds-how-to-watch/
 

@@ -1,3 +1,7 @@
+**Rudy Gobert shoulders blame for loss to the Rockets as his FT percentage plummets**\
+`The Minnesota center had 10 points, 13 rebounds and two blocks, but he had a nightmare fourth quarter in a five-point loss to Houston.`\
+https://nytimes.com/athletic/6978276/2026/01/17/rudy-gobert-shoulders-blame-rockets-ft-percentage-plummets/
+
 **Indiana football’s run to CFP national title game has NBA world watching**\
 `Indiana’s leap from bottom of the Big Ten to unbeaten title contender has caught the attention of IU alumni and admirers in the NBA.`\
 https://nytimes.com/athletic/6977940/2026/01/17/indiana-football-cfp-national-championship-nba-mark-cuban/
