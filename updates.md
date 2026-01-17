@@ -1,3 +1,7 @@
+**How to watch Celtics vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6979026/2026/01/17/celtics-vs-hawks-stream-how-to-watch-jan-17/
+
 **How to watch Purdue vs. USC men's basketball: Time, TV, streaming**\
 `Find out how to watch the Purdue Boilermakers play the USC Trojans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6979001/2026/01/17/purdue-vs-usc-stream-how-to-watch-jan-17/

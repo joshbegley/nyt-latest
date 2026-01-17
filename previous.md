@@ -1,3 +1,7 @@
+**How to watch Celtics vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6979026/2026/01/17/celtics-vs-hawks-stream-how-to-watch-jan-17/
+
 **How to watch Purdue vs. USC men's basketball: Time, TV, streaming**\
 `Find out how to watch the Purdue Boilermakers play the USC Trojans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6979001/2026/01/17/purdue-vs-usc-stream-how-to-watch-jan-17/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6978990/2026/01/17/michigan-state-vs-washington-str
 **The Briefing: Chelsea 2 Brentford 0 - What did Rosenior get right? Has Sanchez redeemed himself? And a protest**\
 `Liam Rosenior first league match in charge ended in victory - The Athletic assesses all the action at Stamford Bridge`\
 https://nytimes.com/athletic/6969099/2026/01/17/chelsea-2-brentford-0-liam-rosenior-robert-sanchez-protest/
-
-**What’s the Thing Only Ralph Lauren Can Bring?**\
-`The brand’s first men’s only runway show in over 20 years left our critic pleasantly surprised.`\
-https://nytimes.com/2026/01/17/fashion/ralph-lauren-mens-milan.html
 
