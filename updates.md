@@ -1,3 +1,7 @@
+**WATCH: How the Bears snatched a wild-card win away from Packers**\
+`A string of savvy play-calling was the difference for Caleb Williams and the Bears vs. the Packers last week.`\
+https://nytimes.com/athletic/6978083/2026/01/16/video-analysis-bears-playoffs-caleb-williams/
+
 **An A.I. Attack Ad Shows Texas Rivals Dancing the ‘Washington Waltz’**\
 `A video from Ken Paxton, a Republican primary challenger to Senator John Cornyn of Texas, depicted A.I.-generated imagery of the senator twirling with Jasmine Crockett, a Democratic Senate candidate.`\
 https://nytimes.com/2026/01/16/us/politics/ai-ad-texas-senate-paxton-cornyn.html
