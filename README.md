@@ -1,3 +1,11 @@
+**Air Force coach Joe Scott suspended indefinitely pending investigation**\
+`Assistant coach Jon Jordan will serve as the team’s interim coach.`\
+https://nytimes.com/athletic/6979209/2026/01/17/air-force-basketball-joe-scott-suspended/
+
+**Wrexham captain McClean leaving club, returning to Ireland with Derry City**\
+`McClean, 36, previously played for Derry at the start of his career, before joining English side Sunderland in 2011.`\
+https://nytimes.com/athletic/6979095/2026/01/17/wrexham-transfers-james-mcclean/
+
 **Frank says Spurs are 'supertanker turning in the right direction'**\
 `Spurs captain Cristian Romero called Saturday's home defeat by West Ham a "disaster moment" for the team.`\
 https://nytimes.com/athletic/6979085/2026/01/17/thomas-frank-tottenham-west-ham/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/17/science/nasa-artemis-ii-rocket-moon.html
 **Giants send contract to Harbaugh, talks ongoing for 5-year deal: Sources**\
 `Harbaugh would be the 22nd head coach in Giants history.`\
 https://nytimes.com/athletic/6978835/2026/01/17/john-harbaugh-giants-contract-negotions-update/
-
-**How to watch Blue Jackets vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6979057/2026/01/17/blue-jackets-vs-penguins-stream-how-to-watch-jan-17/
-
-**How to watch Maple Leafs vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6979055/2026/01/17/maple-leafs-vs-jets-stream-how-to-watch-jan-17/
 
