@@ -1,3 +1,11 @@
+**Newcastle Under-21s under a spotlight after another coach quits**\
+`Since Eddie Howe arrived as first-team manager in November 2021, there have been four permanent under-21 coaches`\
+https://nytimes.com/athletic/6976501/2026/01/17/newcastle-under-21-coach-quits/
+
+**Conor Gallagher was one of their own - his move to Spurs is going to really, really hurt Chelsea**\
+`Midfielder can't be blamed for making what may prove a sensible career decision but joining boyhood club's bitter rivals will sting for fans`\
+https://nytimes.com/athletic/6976625/2026/01/17/conor-gallagher-tottenham-chelsea-premier-league/
+
 **Everton's search for goals: Could En-Nesyri or Wilson be the answer?**\
 `Everton have shown an interest in the two strikers — which is no surprise given how Thierno Barry and Beto have struggled this season`\
 https://nytimes.com/athletic/6976647/2026/01/17/everton-en-nesyri-wilson-transfer-interest/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6976914/2026/01/17/premier-league-players-back-from
 **He shoots… he doesn't score: Analysing Europe's 10 most wasteful finishers**\
 `Here are the players in the 'big five' leagues to have taken the most shots without scoring this season`\
 https://nytimes.com/athletic/6969927/2026/01/17/european-football-wasteful-finishers/
-
-**Igor Thiago, Joao Pedro and the five-way battle to make Brazil's World Cup attack**\
-`Carlo Ancelotti has a tough decision over the remaining places in Brazil's front line — with five of the suitors Premier League players`\
-https://nytimes.com/athletic/6976739/2026/01/17/brazil-strikers-world-cup-ancelotti/
-
-**$2 Rental Batteries Are Helping to Power South Africa**\
-`The batteries offer an affordable system for those who lack reliable power and the money to buy their own solar panels.`\
-https://nytimes.com/2026/01/17/world/africa/batteries-south-africa-electricity.html
 

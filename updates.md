@@ -1,3 +1,11 @@
+**Newcastle Under-21s under a spotlight after another coach quits**\
+`Since Eddie Howe arrived as first-team manager in November 2021, there have been four permanent under-21 coaches`\
+https://nytimes.com/athletic/6976501/2026/01/17/newcastle-under-21-coach-quits/
+
+**Conor Gallagher was one of their own - his move to Spurs is going to really, really hurt Chelsea**\
+`Midfielder can't be blamed for making what may prove a sensible career decision but joining boyhood club's bitter rivals will sting for fans`\
+https://nytimes.com/athletic/6976625/2026/01/17/conor-gallagher-tottenham-chelsea-premier-league/
+
 **Everton's search for goals: Could En-Nesyri or Wilson be the answer?**\
 `Everton have shown an interest in the two strikers — which is no surprise given how Thierno Barry and Beto have struggled this season`\
 https://nytimes.com/athletic/6976647/2026/01/17/everton-en-nesyri-wilson-transfer-interest/
