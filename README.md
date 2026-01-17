@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Jan. 17, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/17/todays-new-york-times
+
 **Newcastle Under-21s under a spotlight after another coach quits**\
 `Since Eddie Howe arrived as first-team manager in November 2021, there have been four permanent under-21 coaches`\
 https://nytimes.com/athletic/6976501/2026/01/17/newcastle-under-21-coach-quits/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6976460/2026/01/17/afcon-top-10-players-ranked/
 **How do Premier League clubs reintegrate players coming back from AFCON?**\
 `A mid-season tournament can be demanding on players both physically and psychologically - so how do clubs ensure they return in good shape?`\
 https://nytimes.com/athletic/6976914/2026/01/17/premier-league-players-back-from-afcon/
-
-**He shoots… he doesn't score: Analysing Europe's 10 most wasteful finishers**\
-`Here are the players in the 'big five' leagues to have taken the most shots without scoring this season`\
-https://nytimes.com/athletic/6969927/2026/01/17/european-football-wasteful-finishers/
 
