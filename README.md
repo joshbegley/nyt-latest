@@ -1,3 +1,27 @@
+**How to watch Nebraska vs. Northwestern men's basketball: Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the Northwestern Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978668/2026/01/17/nebraska-vs-northwestern-stream-how-to-watch-jan-17/
+
+**How to watch Arizona vs. UCF men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the UCF Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978666/2026/01/17/arizona-vs-ucf-stream-how-to-watch-jan-17/
+
+**How to watch Baylor vs. BYU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Baylor Bears play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978664/2026/01/17/baylor-vs-byu-stream-how-to-watch-jan-17/
+
+**How to watch North Carolina vs. Cal men's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the California Golden Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978660/2026/01/17/north-carolina-vs-cal-stream-how-to-watch-jan-17/
+
+**How to watch Arizona vs. TCU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978657/2026/01/17/arizona-vs-tcu-stream-how-to-watch-jan-17/
+
+**How to watch Michigan vs. Oregon men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978655/2026/01/17/michigan-vs-oregon-stream-how-to-watch-jan-17/
+
 **GM John Lynch sets the stage, but he credits 49ers' resolve, team culture**\
 `It's safe to say Lynch, 54, did not foresee all the injuries that piled up this season — but the wins piled up as well.`\
 https://nytimes.com/athletic/6978116/2026/01/17/49ers-gm-john-lynch-interview-nfl-playoffs/
@@ -9,28 +33,4 @@ https://nytimes.com/2026/01/17/arts/music/rhoda-levine-dead.html
 **3 Policy Moves Likely to Change Health Care for Older People**\
 `Two regulatory rollbacks, along with a new A.I. experiment in Medicare, raise some worrisome questions.`\
 https://nytimes.com/2026/01/17/health/nursing-homes-health-aides-medicare.html
-
-**Rudy Gobert shoulders blame for loss to the Rockets as his FT percentage plummets**\
-`The Minnesota center had 10 points, 13 rebounds and two blocks, but he had a nightmare fourth quarter in a five-point loss to Houston.`\
-https://nytimes.com/athletic/6978276/2026/01/17/rudy-gobert-shoulders-blame-rockets-ft-percentage-plummets/
-
-**Indiana football’s run to CFP national title game has NBA world watching**\
-`Indiana’s leap from bottom of the Big Ten to unbeaten title contender has caught the attention of IU alumni and admirers in the NBA.`\
-https://nytimes.com/athletic/6977940/2026/01/17/indiana-football-cfp-national-championship-nba-mark-cuban/
-
-**Browns are between QB and a hard place. With options shaky, so is any plan for success**\
-`Shedeur Sanders, Deshaun Watson and Dillon Gabriel are arguably the worst quarterback group in the NFL. And Watson is a long shot to stay.`\
-https://nytimes.com/athletic/6976019/2026/01/17/browns-quarterback-options-shedeur-sanders-nfl-draft/
-
-**Big Oil’s Complicated Calculus for Investing in Venezuela**\
-`The industry has long prioritized projects with quick and reliable payback. Trump is pushing for a return to risk.`\
-https://nytimes.com/2026/01/17/business/dealbook/venezuela-oil.html
-
-**Barcelona's Dro Fernandez tells club he wants to leave**\
-`The 18-year-old has a €6m release clause in his Barcelona contract.`\
-https://nytimes.com/athletic/6977333/2026/01/17/dro-fernandez-barcelona-transfer-chelsea-psg/
-
-**Lithuanian basketball fans will always love Bob Weir, Grateful Dead**\
-`The country won't forget how the late musician and his band helped their basketball team get to the 1992 Barcelona Olympics.`\
-https://nytimes.com/athletic/6972849/2026/01/17/bob-weir-grateful-dead-lithuania-basketball-olympics/
 

@@ -1,3 +1,7 @@
+**GM John Lynch sets the stage, but he credits 49ers' resolve, team culture**\
+`It's safe to say Lynch, 54, did not foresee all the injuries that piled up this season — but the wins piled up as well.`\
+https://nytimes.com/athletic/6978116/2026/01/17/49ers-gm-john-lynch-interview-nfl-playoffs/
+
 **Rhoda Levine, Pathbreaking Opera Director, Dies at 93**\
 `Starting out in the 1970s as a rare woman in a field dominated by men, she directed the premieres of a pair of politically charged modern classics.`\
 https://nytimes.com/2026/01/17/arts/music/rhoda-levine-dead.html
