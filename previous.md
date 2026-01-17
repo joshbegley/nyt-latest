@@ -1,3 +1,11 @@
+**Minneapolis Braces for Dueling Protests as City Remains on Edge**\
+`A rally at City Hall and a march have been organized by a conservative influencer to draw attention to a fraud scandal in the state. It is expected to draw counter protesters.`\
+https://nytimes.com/2026/01/17/us/minneapolis-protests-immigration-fraud.html
+
+**Mamdani Appoints Top Parks Official to Oversee New York’s Green Spaces**\
+`The mayor announced Tricia Shimamura as the city’s new parks commissioner amid broad calls for more park funding.`\
+https://nytimes.com/2026/01/17/nyregion/nyc-parks-commissioner-tricia-shimamura.html
+
 **Glasner feels ‘abandoned’ by Palace owners, doesn't guarantee staying until summer**\
 `Glasner issued a issued a stinging attack on his employers after the 2-1 defeat to Sunderland on Saturday.`\
 https://nytimes.com/athletic/6979032/2026/01/17/glanser-crystal-palace-future-board-news-future/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6979050/2026/01/17/bruins-vs-blackhawks-stream-how-
 **How to watch Panthers vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Florida Panthers play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6979051/2026/01/17/panthers-vs-capitals-stream-how-to-watch-jan-17/
-
-**How to watch Canadiens vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6979044/2026/01/17/canadiens-vs-senators-stream-how-to-watch-jan-17/
-
-**How to watch Suns vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6979042/2026/01/17/suns-vs-knicks-stream-how-to-watch-jan-17/
 
