@@ -1,3 +1,7 @@
+**Shooting at Historic New Orleans Restaurant Leaves One Dead, Several Wounded**\
+`The restaurant, Dooky Chase’s, is a New Orleans fixture with deep ties to the civil rights movement. Authorities say it wasn’t deliberately targeted.`\
+https://nytimes.com/2026/01/17/us/shooting-at-historic-new-orleans-restaurant-leaves-one-dead-several-wounded.html
+
 **Air Force coach Joe Scott suspended indefinitely pending investigation**\
 `Assistant coach Jon Jordan will serve as the team’s interim coach.`\
 https://nytimes.com/athletic/6979209/2026/01/17/air-force-basketball-joe-scott-suspended/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979032/2026/01/17/glanser-crystal-palace-future-bo
 **NASA’s Giant Rocket Begins Slow Roll Toward Artemis II Moon Voyage**\
 `The Space Launch System and Orion capsule are being transported to the launchpad before an astronaut mission that could launch as soon as Feb. 6.`\
 https://nytimes.com/2026/01/17/science/nasa-artemis-ii-rocket-moon.html
-
-**Giants send contract to Harbaugh, talks ongoing for 5-year deal: Sources**\
-`Harbaugh would be the 22nd head coach in Giants history.`\
-https://nytimes.com/athletic/6978835/2026/01/17/john-harbaugh-giants-contract-negotions-update/
 
