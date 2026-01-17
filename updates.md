@@ -1,3 +1,7 @@
+**No excuses as severely short-handed Wild beat red-hot Sabres in OT: Takeaways**\
+`Minnesota overcame blowing a two-goal lead before Mats Zuccarello's overtime winner lifted the Wild to a 5-4 overtime win in Buffalo.`\
+https://nytimes.com/athletic/6979183/2026/01/17/wild-sabres-overtime-injuries-takeaways/
+
 **‘Yankee, Go Home’: Greenlanders Protest Trump’s Takeover Plans**\
 `Protests erupted in several Greenlandic cites and in Denmark as President Trump intensified his efforts to take control of the Arctic island.`\
 https://nytimes.com/2026/01/17/world/europe/greenland-denmark-protest-trump-takeover.html

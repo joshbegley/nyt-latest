@@ -1,3 +1,7 @@
+**Kansas State stuns Texas Tech, hands Red Raiders first loss of season**\
+`The Wildcats held the Red Raiders without a field goal in the final 2:24 to spring the upset.`\
+https://nytimes.com/athletic/6979561/2026/01/17/kansas-state-texas-tech-first-loss/
+
 **No excuses as severely short-handed Wild beat red-hot Sabres in OT: Takeaways**\
 `Minnesota overcame blowing a two-goal lead before Mats Zuccarello's overtime winner lifted the Wild to a 5-4 overtime win in Buffalo.`\
 https://nytimes.com/athletic/6979183/2026/01/17/wild-sabres-overtime-injuries-takeaways/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/17/business/media/cbs-news-trump-interview.html
 **Kristina Gjerde, Advocate for Ocean Biodiversity, Dies at 68**\
 `She played a key role in negotiating a landmark United Nations treaty to protect the high seas, an agreement that went into effect this weekend.`\
 https://nytimes.com/2026/01/17/climate/kristina-gjerde-dead.html
-
-**St. Louis City finalizing deal to sign Barcelona's defender Mbacke**\
-`Mbacke still plans to return to Europe at some point as he keeps developing with first-team soccer in St. Louis.`\
-https://nytimes.com/athletic/6979387/2026/01/17/barcelona-mamadaou-mbacke-st-louis-city-news/
 

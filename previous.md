@@ -1,3 +1,7 @@
+**No excuses as severely short-handed Wild beat red-hot Sabres in OT: Takeaways**\
+`Minnesota overcame blowing a two-goal lead before Mats Zuccarello's overtime winner lifted the Wild to a 5-4 overtime win in Buffalo.`\
+https://nytimes.com/athletic/6979183/2026/01/17/wild-sabres-overtime-injuries-takeaways/
+
 **‘Yankee, Go Home’: Greenlanders Protest Trump’s Takeover Plans**\
 `Protests erupted in several Greenlandic cites and in Denmark as President Trump intensified his efforts to take control of the Arctic island.`\
 https://nytimes.com/2026/01/17/world/europe/greenland-denmark-protest-trump-takeover.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/17/climate/kristina-gjerde-dead.html
 **St. Louis City finalizing deal to sign Barcelona's defender Mbacke**\
 `Mbacke still plans to return to Europe at some point as he keeps developing with first-team soccer in St. Louis.`\
 https://nytimes.com/athletic/6979387/2026/01/17/barcelona-mamadaou-mbacke-st-louis-city-news/
-
-**UK's 17-point comeback at No. 24 Tennessee a sign not to bury these Cats just yet**\
-`Kentucky has won three in a row in the difficult SEC, and Saturday might have been its best win of the season.`\
-https://nytimes.com/athletic/6979372/2026/01/17/kentucky-tennessee-score-result-comeback-mark-pope/
 
