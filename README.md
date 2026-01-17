@@ -1,3 +1,7 @@
+**Reds' Elly De La Cruz won't play in WBC, hopes to play in future tournaments**\
+`De La Cruz played in all 162 games for the Reds last season, but spent the second half of the season dealing with a quad injury.`\
+https://nytimes.com/athletic/6978291/2026/01/16/world-baseball-classic-2026-elly-de-la-cruz-status/
+
 **Rosenthal: What I'm hearing about the Orioles’ interest in Justin Verlander and more MLB notes**\
 `Plus a look at Zac Gallen's market, how likely the Reds are to deal one of their starters and intel on the Dodgers, Royals and Rays.`\
 https://nytimes.com/athletic/6978152/2026/01/16/mlb-free-agency-orioles-justin-verlander-zac-gallen/
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2026/01/16/us/minn-injunction-aclu.html
 **'Irreplaceable' Nico Hoerner hopes trade rumors fade as Cubs load up for a 2026 run**\
 `“I definitely want to be here for this season and with this group,” the two-time Gold Glove winner said.`\
 https://nytimes.com/athletic/6978187/2026/01/16/cubs-nico-hoerner-trade-rumors-mlb/
-
-**Court Blocks Trump Administration From Freezing Food Stamps in Minnesota**\
-`With tensions high between the White House and the state, the ruling temporarily halted plans to withhold over $129 million in funding.`\
-https://nytimes.com/2026/01/16/us/politics/court-food-stamps-minnesota.html
 
