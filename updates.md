@@ -1,3 +1,15 @@
+**Does (another) Luke Schenn reunion make sense for the Maple Leafs?**\
+`Schenn's physical play matches the style Toronto coach Craig Berube prefers in his defencemen.`\
+https://nytimes.com/athletic/6979227/2026/01/17/luke-schenn-winnipeg-jets-toronto-maple-leafs-trade-deadline/
+
+**Team Canada's Sarah Nurse returns to PWHL 19 days before Milan Olympics**\
+`Nurse hadn't played since scoring the Goldeneyes' first-ever goal on Nov. 21 due to an upper-body injury.`\
+https://nytimes.com/athletic/6979198/2026/01/17/team-canada-sarah-nurse-return-vancouver-goldeneyes/
+
+**Falcons to interview former Browns head coach Kevin Stefanski a second time: Source**\
+`Matt Ryan, the team’s new president of football, said he was looking for a head coach with “emotional stability.”`\
+https://nytimes.com/athletic/6979204/2026/01/17/kevin-stefanski-to-get-second-interview-with-falcons/
+
 **Falcons to interview former Browns head coach Kevin Stefanski a second time**\
 `Matt Ryan, the team’s new president of football, said he was looking for a head coach with “emotional stability.”`\
 https://nytimes.com/athletic/6979204/2026/01/17/kevin-stefanski-to-get-second-interview-with-falcons/
