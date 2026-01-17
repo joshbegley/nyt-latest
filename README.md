@@ -1,3 +1,7 @@
+**Rosenthal: What I'm hearing about the Orioles’ interest in Justin Verlander and more MLB notes**\
+`Plus a look at Zac Gallen's market, how likely the Reds are to deal one of their starters and intel on the Dodgers, Royals and Rays.`\
+https://nytimes.com/athletic/6978152/2026/01/16/mlb-free-agency-orioles-justin-verlander-zac-gallen/
+
 **Ducks' Leo Carlsson out 3-5 weeks after procedure as status for Olympics looms**\
 `The No. 2 draft pick in 2023 has 18 goals, 26 assists and 44 points in 44 games this season and was named to Team Sweden's roster for Milan.`\
 https://nytimes.com/athletic/6978301/2026/01/16/ducks-leo-carlsson-injury-olympics/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6978187/2026/01/16/cubs-nico-hoerner-trade-rumors-m
 **Court Blocks Trump Administration From Freezing Food Stamps in Minnesota**\
 `With tensions high between the White House and the state, the ruling temporarily halted plans to withhold over $129 million in funding.`\
 https://nytimes.com/2026/01/16/us/politics/court-food-stamps-minnesota.html
-
-**Judge Restricts Immigration Agents’ Actions Toward Minnesota Protesters**\
-`A federal judge ordered agents not to retaliate against people “engaging in peaceful and unobstructive protest activity” in the state and not to stop drivers who are not “forcibly obstructing” officers.`\
-https://nytimes.com/2026/01/16/us/minnesota-ice-immigration-agents-protests.html
 
