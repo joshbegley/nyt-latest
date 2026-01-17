@@ -1,3 +1,7 @@
+**Glasner feels ‘abandoned’ by Palace owners, doesn't guarantee staying until summer**\
+`Glasner issued a issued a stinging attack on his employers after the 2-1 defeat to Sunderland on Saturday.`\
+https://nytimes.com/athletic/6979032/2026/01/17/glanser-crystal-palace-future-board-news-future/
+
 **Glasner says he feels ‘abandoned’ by Palace owners, casts doubt over future**\
 `Glasner issued a issued a stinging attack on his employers after the 2-1 defeat to Sunderland on Saturday.`\
 https://nytimes.com/athletic/6979032/2026/01/17/glanser-crystal-palace-future-board-news-future/
