@@ -1,3 +1,7 @@
+**The Briefing: Nottingham Forest 0 Arsenal 0 - Arteta's side fail to take nine-point lead over City**\
+`Dan Sheldon goes through the talking points of the 0-0 draw, with Arsenal dropping two points at the City Ground.`\
+https://nytimes.com/athletic/6969160/2026/01/17/nottingham-forest-0-arsenal-0-premier-league-result/
+
 **National Anger Spills Into Target Stores, Again**\
 `Videos of immigration officers dragging an employee out of a store near Minneapolis, the retailer’s hometown, set off renewed political debate after years of boycotts.`\
 https://nytimes.com/2026/01/17/business/target-immigration-minneapolis.html
