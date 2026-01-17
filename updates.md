@@ -1,3 +1,7 @@
+**No excuses as severely short-handed Wild beat red-hot Sabres in OT: Takeaways**\
+`Despite missing several key players and not being able to hold a two-goal lead, Minnesota starts three-game trip with a win.`\
+https://nytimes.com/athletic/6979183/2026/01/17/wild-sabres-overtime-injuries-takeaways/
+
 **The 1.18.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/01/17/the-11825-issue

@@ -7,7 +7,7 @@ https://nytimes.com/issue/magazine/2026/01/17/the-11825-issue
 https://nytimes.com/athletic/6979561/2026/01/17/kansas-state-texas-tech-first-loss/
 
 **No excuses as severely short-handed Wild beat red-hot Sabres in OT: Takeaways**\
-`Minnesota overcame blowing a two-goal lead before Mats Zuccarello's overtime winner lifted the Wild to a 5-4 overtime win in Buffalo.`\
+`Despite missing several key players and not being able to hold a two-goal lead, Minnesota starts three-game trip with a win.`\
 https://nytimes.com/athletic/6979183/2026/01/17/wild-sabres-overtime-injuries-takeaways/
 
 **‘Yankee, Go Home’: Greenlanders Protest Trump’s Takeover Plans**\
