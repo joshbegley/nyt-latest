@@ -1,3 +1,7 @@
+**Trump Announces Largely American Council to Oversee Gaza**\
+`The president also tapped a U.S. general to lead an international peacekeeping force that will be deployed to disarm Hamas and occupy Gaza.`\
+https://nytimes.com/2026/01/16/us/politics/trump-gaza-board-peace-kushner.html
+
 **An A.I. Attack Ad Shows Texas Rivals Dancing the ‘Washington Waltz’**\
 `A video from Ken Paxton, a Republican primary challenger to Senator John Cornyn of Texas, depicted A.I.-generated imagery of the senator twirling with Jasmine Crockett, a Democratic Senate candidate.`\
 https://nytimes.com/2026/01/16/us/politics/ai-ad-texas-senate-paxton-cornyn.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6978039/2026/01/16/nfl-playoff-predictions-rams-bea
 **By Raiding a Reporter’s Home, Is the F.B.I. Weaponizing National Security?**\
 `Knowing what the government is up to is essential for democracy to work.`\
 https://nytimes.com/2026/01/16/opinion/fbi-raid-washington-post-law.html
-
-**The Underachiever in Chief?**\
-`How much has Trump actually accomplished one year into his second term? According to the conservative analyst Yuval Levin, not much.`\
-https://nytimes.com/video/opinion/100000010644679/the-underachiever-in-chief.html
 

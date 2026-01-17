@@ -1,3 +1,7 @@
+**Trump Announces Largely American Council to Oversee Gaza**\
+`The president also tapped a U.S. general to lead an international peacekeeping force that will be deployed to disarm Hamas and occupy Gaza.`\
+https://nytimes.com/2026/01/16/us/politics/trump-gaza-board-peace-kushner.html
+
 **WATCH: How the Bears snatched a wild-card win away from Packers**\
 `A string of savvy play-calling was the difference for Caleb Williams and the Bears vs. the Packers last week.`\
 https://nytimes.com/athletic/6978083/2026/01/16/video-analysis-bears-playoffs-caleb-williams/
