@@ -1,3 +1,7 @@
+**An A.I. Attack Ad Shows Texas Rivals Dancing the ‘Washington Waltz’**\
+`A video from Ken Paxton, a Republican primary challenger to Senator John Cornyn of Texas, depicted A.I.-generated imagery of the senator twirling with Jasmine Crockett, a Democratic Senate candidate.`\
+https://nytimes.com/2026/01/16/us/politics/ai-ad-texas-senate-paxton-cornyn.html
+
 **Gabriel Barkay, 81, Dies; His Discoveries Revised Biblical History**\
 `One of Israel’s leading archaeologists, he found evidence that the writing of the Old Testament likely began much earlier than historians had thought.`\
 https://nytimes.com/2026/01/16/world/middleeast/gabriel-barkay-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/opinion/100000010644679/the-underachiever-in-chief.htm
 **Conservative Politics Can’t Just Be About Hate**\
 `Politics in America has taken an ugly turn, the conservative analyst Yuval Levin says on “The Ezra Klein Show,” arguing it has become too influenced by fear.`\
 https://nytimes.com/video/opinion/100000010644674/conservative-politics-cant-just-be-about-hate.html
-
-**Thousands Evicted From the 19th-Century ‘Venice of Nigeria’**\
-`Community leaders in Lagos say evictions in the name of development have left many residents of this fishing village homeless.`\
-https://nytimes.com/2026/01/16/world/africa/nigeria-makoko-fishing-village-destroyed.html
 
