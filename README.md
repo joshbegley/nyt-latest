@@ -1,3 +1,23 @@
+**$2 Rental Batteries Are Helping to Power South Africa**\
+`The batteries offer an affordable system for those who lack reliable power and the money to buy their own solar panels.`\
+https://nytimes.com/2026/01/17/world/africa/batteries-south-africa-electricity.html
+
+**Quote of the Day: She Wants to Die. Will Canada Let Her?**\
+`Quotation of the Day for Saturday, January 17, 2026.`\
+https://nytimes.com/2026/01/17/pageoneplus/quote-of-the-day-she-wants-to-die-will-canada-let-her.html
+
+**A Refuge for Afghan Music Is at Risk of Falling Silent**\
+`Peshawar is a haven for Afghan artists who fled from the Taliban, which had banned music. A new policy of deportations by Pakistan threatens this community of exiles.`\
+https://nytimes.com/2026/01/17/world/asia/afghan-music-taliban-pakistan-deportations.html
+
+**Connections: Sports Edition Coach: Hints for Jan. 17, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6978208/2026/01/17/connections-sports-edition-hints-for-jan-17-2026/
+
+**Corrections: Jan. 17, 2026**\
+`Corrections that appeared in print on Saturday, Jan. 17, 2026.`\
+https://nytimes.com/2026/01/17/pageoneplus/corrections-jan-17-2026.html
+
 **'Grateful and free': Daria Kasatkina says she 'can finally breathe' as Australian**\
 `Kasatkina, who is gay and has criticized Russia's Vladmir Putin over its invasion of Ukraine, said her switch is about "acceptance."`\
 https://nytimes.com/athletic/6978334/2026/01/16/tennis-daria-kasatkina-australia-russia/
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/6978152/2026/01/16/mlb-free-agency-orioles-justin-v
 **Ducks' Leo Carlsson out 3-5 weeks after procedure as status for Olympics looms**\
 `The No. 2 draft pick in 2023 has 18 goals, 26 assists and 44 points in 44 games this season and was named to Team Sweden's roster for Milan.`\
 https://nytimes.com/athletic/6978301/2026/01/16/ducks-leo-carlsson-injury-olympics/
-
-**Quaint Contraction**\
-`Adam Aaronson’s tough themeless puzzle will get your head spinning.`\
-https://nytimes.com/2026/01/16/crosswords/daily-puzzle-2026-01-17.html
-
-**Two-time All-Star Elly De La Cruz turned down largest contract in Reds history**\
-`De La Cruz, who celebrated his 24th birthday earlier this week, is eligible for arbitration for the first time in 2027.`\
-https://nytimes.com/athletic/6978288/2026/01/16/cincinnati-reds-elly-de-la-cruz-contract-extension-tabled/
-
-**Salesi Moa flips from Utah to Michigan to reunite with Kyle Whittingham**\
-`Moa, one of Michigan's top targets in the 2026 class, is the fifth player to leave Utah for the Wolverines since Whittingham arrived.`\
-https://nytimes.com/athletic/6978140/2026/01/16/salesi-moa-michigan-kyle-whittingham/
-
-**Rick Caruso, a Los Angeles Billionaire, Will Not Run for Office This Year**\
-`Mr. Caruso had the potential to shake up the contests for Los Angeles mayor or California governor.`\
-https://nytimes.com/2026/01/16/us/rick-caruso-mayor-governor-california.html
-
-**Read the Ruling Restricting Federal Agents’ Actions in Minnesota**\
-`A federal judge ruled in favor of protesters in the state.`\
-https://nytimes.com/interactive/2026/01/16/us/minn-injunction-aclu.html
 
