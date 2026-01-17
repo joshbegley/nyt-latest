@@ -1,3 +1,7 @@
+**National Anger Spills Into Target Stores, Again**\
+`Videos of immigration officers dragging an employee out of a store near Minneapolis, the retailer’s hometown, set off renewed political debate after years of boycotts.`\
+https://nytimes.com/2026/01/17/business/target-immigration-minneapolis.html
+
 **Shooting at Historic New Orleans Restaurant Leaves One Dead, Several Wounded**\
 `The restaurant, Dooky Chase’s, is a New Orleans fixture with deep ties to the civil rights movement. Authorities say it wasn’t deliberately targeted.`\
 https://nytimes.com/2026/01/17/us/shooting-at-historic-new-orleans-restaurant-leaves-one-dead-several-wounded.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/17/nyregion/nyc-parks-commissioner-tricia-shimamura.
 **Glasner feels ‘abandoned’ by Palace owners, doesn't guarantee staying until summer**\
 `Glasner issued a issued a stinging attack on his employers after the 2-1 defeat to Sunderland on Saturday.`\
 https://nytimes.com/athletic/6979032/2026/01/17/glanser-crystal-palace-future-board-news-future/
-
-**NASA’s Giant Rocket Begins Slow Roll Toward Artemis II Moon Voyage**\
-`The Space Launch System and Orion capsule are being transported to the launchpad before an astronaut mission that could launch as soon as Feb. 6.`\
-https://nytimes.com/2026/01/17/science/nasa-artemis-ii-rocket-moon.html
 
