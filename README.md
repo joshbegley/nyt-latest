@@ -1,3 +1,19 @@
+**Tennis late-bloomers are rare. One American at the Australian Open just needed injuries to stop**\
+`Patrick Kypson played at the same college as late-bloomers Valentin Vacherot and Arthur Rinderknech. His story is something of a parable.`\
+https://nytimes.com/athletic/6951373/2026/01/17/tennis-late-bloomers-australian-open-patrick-kypson-college/
+
+**Indiana has crashed the party — is the Hoosiers' roster build replicable?**\
+`The 2025 Hoosiers have proven that you don't need a roster stocked with former blue-chippers to be elite in college football. `\
+https://nytimes.com/athletic/6974970/2026/01/17/indiana-hoosiers-roster-build-transfers-recruiting/
+
+**Josh Allen in upset mode, NFC West rivalry renewed among NFL divisional round storylines**\
+`The divisional round kicks off Saturday with the Broncos hosting the Bills and the 49ers visiting the Seahawks.`\
+https://nytimes.com/athletic/6975082/2026/01/17/nfl-divisional-round-storylines-josh-allen/
+
+**From the Evil Empire to the Galácticos, these Dodgers have company in hoarding star talent**\
+`It's rare, but not unique to see a star choose to be a lesser name on an loaded roster for a shot at a title. Sometimes it even works.`\
+https://nytimes.com/athletic/6978028/2026/01/17/dodgers-kyle-tucker-signing-yankees-real-madrid-durant/
+
 **Kílian Jornet on What We Can Learn From Pushing Our Bodies to Extremes**\
 `The ultrarunner and mountaineer finds peace through doing unimaginably hard things.`\
 https://nytimes.com/2026/01/17/magazine/kilian-jornet-interview.html
@@ -17,20 +33,4 @@ https://nytimes.com/2026/01/17/us/politics/colorado-water-trump-veto.html
 **At Least $110,000 in Pokémon Cards Stolen From Lower Manhattan Store**\
 `The robbery at the Poké Court on Wednesday was the latest in a string of thefts of high-value Pokémon trading cards.`\
 https://nytimes.com/2026/01/17/nyregion/pokemon-card-shop-robbery-new-york.html
-
-**‘S.N.L.’ Hasn’t Produced a Superstar in a While. Could It Be Marcello Hernández?**\
-`The comic’s new special, “American Boy,” shows that he has the leading-man charisma and hunger. His career will be interesting to watch.`\
-https://nytimes.com/2026/01/17/arts/television/marcello-hernandez-american-boy-netflix-saturday-night-live.html
-
-**Tech Firms Are Persuading Retailers to Put A.I. Everywhere**\
-`Stores of all kinds are using artificial intelligence to sell everything from luxury handbags to hay for horses.`\
-https://nytimes.com/2026/01/17/business/tech-firms-ai-retailers.html
-
-**Can Cuba Survive Without Venezuela’s Oil?**\
-`President Trump stopped Venezuelan oil shipments to Cuba, and experts say disaster looms. Oil fuels its electric grid and without alternative supplies the country will plunge into extended darkness.`\
-https://nytimes.com/2026/01/17/world/americas/cuba-venezuela-oil-power-blackouts.html
-
-**Why Do We Want It to Be 2016 Again?**\
-`A new trend has some social media users feeling nostalgic for a decade ago, but the posts reveal something deeper about the state of the internet.`\
-https://nytimes.com/2026/01/17/style/2016-nostalgia-millennial-optimism-social-media.html
 
