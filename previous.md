@@ -1,3 +1,19 @@
+**UK's 17-point comeback at No. 24 Tennessee a sign not to bury these Cats just yet**\
+`Kentucky has won three in a row in the difficult SEC, and Saturday might have been its best win of the season.`\
+https://nytimes.com/athletic/6979372/2026/01/17/kentucky-tennessee-score-result-comeback-mark-pope/
+
+**John Harbaugh, New York Giants agree to 5-year contract: Sources**\
+`The 63-year-old is set to become the Giants' next head coach.`\
+https://nytimes.com/athletic/6977938/2026/01/17/john-harbaugh-new-york-giants-finzalize-deal/
+
+**Syria Advances on Kurdish-Held Areas as Washington Urges Restraint**\
+`Government troops drew closer to Raqqa, the largest city overseen by the Kurds, raising U.S. concerns about the renewal of a wider conflict in the region.`\
+https://nytimes.com/2026/01/17/world/europe/syrian-kurds-raqqa.html
+
+**Vikings not bringing back offensive line coach Chris Kuper**\
+`Kuper was the Vikings' offensive line coach for four seasons, working through an onslaught of personnel changes in the position group.`\
+https://nytimes.com/athletic/6979349/2026/01/17/minnesota-vikings-offensive-line-coach-chris-kuper-leaving/
+
 **How to watch Hornets vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6979424/2026/01/17/hornets-vs-warriors-stream-how-to-watch-jan-17/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6977922/2026/01/17/mlb-ryan-pressly-retirement-astr
 **How to watch Wizards vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6979416/2026/01/17/wizards-vs-nuggets-stream-how-to-watch-jan-17/
-
-**How to watch Gonzaga vs. Seattle U men's basketball: Time, TV, streaming**\
-`Find out how to watch the Gonzaga Bulldogs play the Seattle U Redhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6979414/2026/01/17/gonzaga-vs-seattle-u-stream-how-to-watch-jan-17/
-
-**How to watch Oilers vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6979411/2026/01/17/oilers-vs-canucks-stream-how-to-watch-jan-17/
-
-**How to watch Kings vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6979409/2026/01/17/kings-vs-ducks-stream-how-to-watch-jan-17/
-
-**Does (another) Luke Schenn reunion make sense for the Maple Leafs?**\
-`Schenn's physical play matches the style Toronto coach Craig Berube prefers in his defencemen.`\
-https://nytimes.com/athletic/6979227/2026/01/17/luke-schenn-winnipeg-jets-toronto-maple-leafs-trade-deadline/
 
