@@ -1,3 +1,7 @@
+**‘We’ll Sue’: White House’s Warning to CBS Is Sign of a New Media Status Quo**\
+`In previously unreported remarks, the White House press secretary Karoline Leavitt told CBS News that Mr. Trump would “sue” the news outlet if it did not air an interview unedited.`\
+https://nytimes.com/2026/01/17/business/media/cbs-news-trump-interview.html
+
 **Kristina Gjerde, Advocate for Ocean Biodiversity, Dies at 68**\
 `She played a key role in negotiating a landmark United Nations treaty to protect the high seas, an agreement that went into effect this weekend.`\
 https://nytimes.com/2026/01/17/climate/kristina-gjerde-dead.html

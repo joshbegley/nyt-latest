@@ -1,3 +1,7 @@
+**‘We’ll Sue’: White House’s Warning to CBS Is Sign of a New Media Status Quo**\
+`In previously unreported remarks, the White House press secretary Karoline Leavitt told CBS News that Mr. Trump would “sue” the news outlet if it did not air an interview unedited.`\
+https://nytimes.com/2026/01/17/business/media/cbs-news-trump-interview.html
+
 **Kristina Gjerde, Advocate for Ocean Biodiversity, Dies at 68**\
 `She played a key role in negotiating a landmark United Nations treaty to protect the high seas, an agreement that went into effect this weekend.`\
 https://nytimes.com/2026/01/17/climate/kristina-gjerde-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979424/2026/01/17/hornets-vs-warriors-stream-how-t
 **How to watch Predators vs. Golden Knights: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Vegas Golden Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6979421/2026/01/17/predators-vs-golden-knights-stream-how-to-watch-jan-17/
-
-**How to watch Lakers vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6979419/2026/01/17/lakers-vs-trail-blazers-stream-how-to-watch-jan-17/
 
