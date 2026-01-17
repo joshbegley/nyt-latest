@@ -1,36 +1,36 @@
-**Tennis late-bloomers are rare. One American at the Australian Open just needed injuries to stop**\
-`Patrick Kypson played at the same college as late-bloomers Valentin Vacherot and Arthur Rinderknech. His story is something of a parable.`\
-https://nytimes.com/athletic/6951373/2026/01/17/tennis-late-bloomers-australian-open-patrick-kypson-college/
+**Uganda Opposition Leader Bobi Wine Is ‘Restricted’ to His Home, the Police Say**\
+`The country’s electoral commission is expected to soon announce that President Yoweri Museveni has won re-election after four decades in power`\
+https://nytimes.com/2026/01/17/world/africa/uganda-bobi-wine-museveni.html
 
-**Indiana has crashed the party — is the Hoosiers' roster build replicable?**\
-`The 2025 Hoosiers have proven that you don't need a roster stocked with former blue-chippers to be elite in college football. `\
-https://nytimes.com/athletic/6974970/2026/01/17/indiana-hoosiers-roster-build-transfers-recruiting/
+**NFL playoffs viewing guide: Bills-Broncos, 49ers-Seahawks start divisional weekend**\
+`The NFL playoffs pick up again Saturday with two divisional-round games. The home crowds in Denver and Seattle will be out in full force.`\
+https://nytimes.com/athletic/6971390/2026/01/17/nfl-playoffs-bills-broncos-49ers-seahawks-divisional-round/
 
-**Josh Allen in upset mode, NFC West rivalry renewed among NFL divisional round storylines**\
-`The divisional round kicks off Saturday with the Broncos hosting the Bills and the 49ers visiting the Seahawks.`\
-https://nytimes.com/athletic/6975082/2026/01/17/nfl-divisional-round-storylines-josh-allen/
+**Marco Kasper breaks out of slump in Red Wings' win over Sharks: 5 thoughts**\
+`Kasper broke a months-long goal drought Friday in Detroit's 4-2 win, and he added an assist earlier in the game.`\
+https://nytimes.com/athletic/6978320/2026/01/17/red-wings-marco-kasper-sharks-slump/
 
-**From the Evil Empire to the Galácticos, these Dodgers have company in hoarding star talent**\
-`It's rare, but not unique to see a star choose to be a lesser name on an loaded roster for a shot at a title. Sometimes it even works.`\
-https://nytimes.com/athletic/6978028/2026/01/17/dodgers-kyle-tucker-signing-yankees-real-madrid-durant/
+**Can the Patriots' offensive line hold up against the Texans' talented defensive front?**\
+`Patriots rookie left tackle Will Campbell will have a very important — and difficult — job in Sunday's playoff matchup against the Texans.`\
+https://nytimes.com/athletic/6975071/2026/01/17/texans-patriots-preview-prediction-nfl-playoffs/
 
-**Kílian Jornet on What We Can Learn From Pushing Our Bodies to Extremes**\
-`The ultrarunner and mountaineer finds peace through doing unimaginably hard things.`\
-https://nytimes.com/2026/01/17/magazine/kilian-jornet-interview.html
+**Why Alba Berlin is a frontrunner for the NBA's new European league**\
+`Alba Berlin is Germany's most successful basketball team with a youth program that has produced more than 70 pros across the US and Europe.`\
+https://nytimes.com/athletic/6976940/2026/01/17/nba-europe-league-alba-berlin-germany/
 
-**The People of Minneapolis vs. ICE: A Street-Level View**\
-`An intense cat-and-mouse game is putting enraged locals face-to-face with heavily armed agents.`\
-https://nytimes.com/2026/01/17/us/minneapolis-protests-ice.html
+**Chicago Bears vs. Los Angeles Rams: Matchups, picks for divisional round**\
+`Ahead of the Bears' divisional-round playoff game, Case Keenum's role has been valuable, plus a matchup to watch and our game picks.`\
+https://nytimes.com/athletic/6977667/2026/01/17/bears-rams-nfl-playoffs-matchups-predictions/
 
-**How the House Slumped to Historic Lows of Productivity in 2025**\
-`Despite holding a governing trifecta, Republicans labored to steer the tightly divided House, with fewer votes and fewer bills that became law than almost any session in the last two decades.`\
-https://nytimes.com/interactive/2026/01/17/us/politics/house-republicans-majority-productivity.html
+**KC Current coach: Timing of NWSL MVP Temwa Chawinga's return 'still unclear'**\
+`Forward Michelle Cooper was also placed on the SEI list for Kansas City.`\
+https://nytimes.com/athletic/6978324/2026/01/17/temwa-chawinga-kc-current-return-unclear/
 
-**A Trump Veto Leaves Republicans in Colorado Parched and Bewildered**\
-`The first veto of the president’s second term killed legislation that would have brought clean water to some of the most conservative parts of the state. Residents wonder why.`\
-https://nytimes.com/2026/01/17/us/politics/colorado-water-trump-veto.html
+**Indiana's rise has caused an unexpected identity crisis: Are we a football school?**\
+`For decades, Indiana has been known for basketball. But over the last two years, that has started to change.`\
+https://nytimes.com/athletic/6975516/2026/01/17/indiana-football-school-basketball-hoosiers/
 
-**At Least $110,000 in Pokémon Cards Stolen From Lower Manhattan Store**\
-`The robbery at the Poké Court on Wednesday was the latest in a string of thefts of high-value Pokémon trading cards.`\
-https://nytimes.com/2026/01/17/nyregion/pokemon-card-shop-robbery-new-york.html
+**Should I Try to Persuade My Son to Break Off His Engagement?**\
+`My experience tells me that he is making a poor decision and will pay for it.`\
+https://nytimes.com/2026/01/17/magazine/son-engagement-ethics.html
 
