@@ -1,3 +1,7 @@
+**Is Darian Mensah leaving Duke a tipping point? Can transfer portal chaos be fixed?**\
+`We’re used to seeing quarterbacks like Mensah leave. But this one feels different. Let's answer some initial pressing questions.`\
+https://nytimes.com/athletic/6978717/2026/01/17/darian-mensah-duke-transfer-portal-college-football-rules/
+
 **The Pulse: Dominance and dust-ups in tennis**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6978184/2026/01/17/australian-open-preview-the-pulse/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6969098/2026/01/17/manchester-united-manchester-cit
 **How to watch Jazz vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978696/2026/01/17/jazz-vs-mavericks-stream-how-to-watch-jan-17/
-
-**How to watch Kraken vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6978694/2026/01/17/kraken-vs-mammoth-stream-how-to-watch-jan-17/
 

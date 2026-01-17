@@ -1,3 +1,7 @@
+**Is Darian Mensah leaving Duke a tipping point? Can transfer portal chaos be fixed?**\
+`We’re used to seeing quarterbacks like Mensah leave. But this one feels different. Let's answer some initial pressing questions.`\
+https://nytimes.com/athletic/6978717/2026/01/17/darian-mensah-duke-transfer-portal-college-football-rules/
+
 **The Pulse: Dominance and dust-ups in tennis**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6978184/2026/01/17/australian-open-preview-the-pulse/
