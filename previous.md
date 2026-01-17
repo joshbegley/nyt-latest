@@ -1,3 +1,11 @@
+**Sources: Inter Miami nears $15M move for star Monterrey, Mexico striker**\
+`Inter Miami continues to act aggressively this offseason and has its sights set on one of Liga MX's top goal scorers`\
+https://nytimes.com/athletic/6978799/2026/01/17/inter-miami-german-berterame-monterrey-mexico-mls-transfer/
+
+**Turkey Meatloaf, Green Beans and Potatoes**\
+`There’s something satisfying about building a hearty, substantial meal out of a lean, inexpensive protein.`\
+https://nytimes.com/2026/01/17/dining/turkey-meatloaf-green-beans-and-potatoes.html
+
 **World Leaders Consider Joining Trump’s ‘Board of Peace’ for Gaza**\
 `Canada, Egypt and Turkey say they are among the countries that have been invited to join.`\
 https://nytimes.com/2026/01/17/world/middleeast/trump-gaza-israel-board-peace.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6978365/2026/01/17/blues-ot-win-hurricanes-lightnin
 **How to watch Islanders vs. Flames: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978706/2026/01/17/islanders-vs-flames-stream-how-to-watch-jan-17/
-
-**WATCH: How the Seahawks unlocked their defense in Mike Macdonald's second season**\
-`Macdonald has the Seahawks on the cusp of a Super Bowl run, thanks to the team's top-ranked defense. `\
-https://nytimes.com/athletic/6978117/2026/01/17/video-analysis-seahawks-defense-nick-emmanwori/
-
-**Man Utd 2 Man City 0: How did Carrick make a perfect start? What went so wrong for Guardiola?**\
-`Analysing how Manchester United hammered their local rivals in a crucial game at the top of the Premier League`\
-https://nytimes.com/athletic/6969098/2026/01/17/manchester-united-manchester-city-result-analysis/
 

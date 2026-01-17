@@ -1,3 +1,11 @@
+**Sources: Inter Miami nears $15M move for star Monterrey, Mexico striker**\
+`Inter Miami continues to act aggressively this offseason and has its sights set on one of Liga MX's top goal scorers`\
+https://nytimes.com/athletic/6978799/2026/01/17/inter-miami-german-berterame-monterrey-mexico-mls-transfer/
+
+**Turkey Meatloaf, Green Beans and Potatoes**\
+`There’s something satisfying about building a hearty, substantial meal out of a lean, inexpensive protein.`\
+https://nytimes.com/2026/01/17/dining/turkey-meatloaf-green-beans-and-potatoes.html
+
 **World Leaders Consider Joining Trump’s ‘Board of Peace’ for Gaza**\
 `Canada, Egypt and Turkey say they are among the countries that have been invited to join.`\
 https://nytimes.com/2026/01/17/world/middleeast/trump-gaza-israel-board-peace.html

@@ -1,3 +1,7 @@
+**This Is the Only Card Trump Can Play**\
+`Minneapolis in 2026 is starting to look like Boston in the 1770s.`\
+https://nytimes.com/2026/01/17/opinion/ice-minneapolis-occupation.html
+
 **Sources: Inter Miami nears $15M move for star Monterrey, Mexico striker**\
 `Inter Miami continues to act aggressively this offseason and has its sights set on one of Liga MX's top goal scorers`\
 https://nytimes.com/athletic/6978799/2026/01/17/inter-miami-german-berterame-monterrey-mexico-mls-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/17/science/joel-primack-dead.html
 **Blues finally win in OT and now have back-to-back victories over Hurricanes, Lightning**\
 `The Blues won 3-2 over the Tampa Bay Lighting in a shootout, their first victory of the season in OT. `\
 https://nytimes.com/athletic/6978365/2026/01/17/blues-ot-win-hurricanes-lightning/
-
-**How to watch Islanders vs. Flames: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6978706/2026/01/17/islanders-vs-flames-stream-how-to-watch-jan-17/
 
