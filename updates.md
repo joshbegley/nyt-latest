@@ -1,3 +1,15 @@
+**As Kennedy Center Rebrands It’s Mired in Black Tape**\
+`After the institution’s board declared it the Trump Kennedy Center, a lot of signage around the building is in the midst of a makeover.`\
+https://nytimes.com/2026/01/16/arts/as-kennedy-center-rebrands-its-mired-in-black-tape.html
+
+**ICE Tensions Are Raging. What’s the Political Fallout?**\
+`Three reporters discuss the Minneapolis chaos and how it could play a role in the midterms.`\
+https://nytimes.com/2026/01/16/us/politics/ice-minnesota-midterms.html
+
+**Trump Has Machado’s Nobel Prize, but Neither Got What They Really Wanted**\
+`President Trump has María Corina Machado’s medal, but he is not recognized as the prize laureate. Ms. Machado did not win Mr. Trump’s endorsement to become Venezuela’s president.`\
+https://nytimes.com/2026/01/16/us/politics/trump-machado-nobel-prize.html
+
 **Scoop City: Reporters explain how each playoff team advances**\
 `Our reporters explain how the teams they cover can win this weekend, plus Ted Nguyen breaks down a crucial matchup in Denver`\
 https://nytimes.com/athletic/6978039/2026/01/16/nfl-playoff-predictions-rams-bears-bills-broncos-scoop-city/
