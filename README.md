@@ -1,3 +1,7 @@
+**The Briefing: Nottingham Forest 0 Arsenal 0 - Arteta's side fail to take nine-point lead over City**\
+`Dan Sheldon goes through the talking points of the 0-0 draw, with Arsenal dropping two points at the City Ground.`\
+https://nytimes.com/athletic/6969160/2026/01/17/nottingham-forest-0-arsenal-0-premier-league-result/
+
 **National Anger Spills Into Target Stores, Again**\
 `Videos of immigration officers dragging an employee out of a store near Minneapolis, the retailer’s hometown, set off renewed political debate after years of boycotts.`\
 https://nytimes.com/2026/01/17/business/target-immigration-minneapolis.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/17/us/minneapolis-protests-immigration-fraud.html
 **Mamdani Appoints Top Parks Official to Oversee New York’s Green Spaces**\
 `The mayor announced Tricia Shimamura as the city’s new parks commissioner amid broad calls for more park funding.`\
 https://nytimes.com/2026/01/17/nyregion/nyc-parks-commissioner-tricia-shimamura.html
-
-**Glasner feels ‘abandoned’ by Palace owners, doesn't guarantee staying until summer**\
-`Glasner issued a issued a stinging attack on his employers after the 2-1 defeat to Sunderland on Saturday.`\
-https://nytimes.com/athletic/6979032/2026/01/17/glanser-crystal-palace-future-board-news-future/
 

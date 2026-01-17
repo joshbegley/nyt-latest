@@ -1,3 +1,7 @@
+**National Anger Spills Into Target Stores, Again**\
+`Videos of immigration officers dragging an employee out of a store near Minneapolis, the retailer’s hometown, set off renewed political debate after years of boycotts.`\
+https://nytimes.com/2026/01/17/business/target-immigration-minneapolis.html
+
 **Shooting at Historic New Orleans Restaurant Leaves One Dead, Several Wounded**\
 `The restaurant, Dooky Chase’s, is a New Orleans fixture with deep ties to the civil rights movement. Authorities say it wasn’t deliberately targeted.`\
 https://nytimes.com/2026/01/17/us/shooting-at-historic-new-orleans-restaurant-leaves-one-dead-several-wounded.html
