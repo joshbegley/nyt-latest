@@ -1,3 +1,7 @@
+**Falcons to interview former Browns head coach Kevin Stefanski a second time**\
+`Matt Ryan, the team’s new president of football, said he was looking for a head coach with “emotional stability.”`\
+https://nytimes.com/athletic/6979204/2026/01/17/kevin-stefanski-to-get-second-interview-with-falcons/
+
 **Possible sovereign wealth investment in NBA Europe could change U.S. rules**\
 `Currently, NBA rules restrict sovereign wealth funds from owning greater than 20 percent of any of the league’s 30 teams.`\
 https://nytimes.com/athletic/6979142/2026/01/17/nba-europe-league-adam-silver-sovereign-wealth-investment/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979085/2026/01/17/thomas-frank-tottenham-west-ham/
 **Will Seahawks quarterback Sam Darnold play today vs. the 49ers? Latest updates**\
 `Darnold, who has thrown for 4,048 yards and 25 touchdowns for the NFC’s No. 1 seed this season, hasn't missed a game this season.`\
 https://nytimes.com/athletic/6979059/2026/01/17/sam-darnold-injury-update-status-seahawks-49ers/
-
-**Dueling Protests Begin in Minneapolis as City Remains on Edge**\
-`A rally at City Hall and a march have been organized by a conservative influencer to draw attention to a fraud scandal in the state. Counterprotesters came out to oppose the effort.`\
-https://nytimes.com/2026/01/17/us/minneapolis-protests-immigration-fraud.html
 

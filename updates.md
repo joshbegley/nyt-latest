@@ -1,3 +1,7 @@
+**Possible sovereign wealth investment in NBA Europe could change U.S. rules**\
+`Currently, NBA rules restrict sovereign wealth funds from owning greater than 20 percent of any of the league’s 30 teams.`\
+https://nytimes.com/athletic/6979142/2026/01/17/nba-europe-league-adam-silver-sovereign-wealth-investment/
+
 **The Briefing: Nottingham Forest 0 Arsenal 0 - Arteta's side fail to take nine-point lead over City**\
 `Dan Sheldon goes through the talking points of the goalless draw, with Arsenal dropping two points at the City Ground`\
 https://nytimes.com/athletic/6969160/2026/01/17/nottingham-forest-0-arsenal-0-premier-league-result/
