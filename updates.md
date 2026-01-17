@@ -1,3 +1,23 @@
+**How to watch Florida vs. Vanderbilt men's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978533/2026/01/17/florida-vs-vanderbilt-stream-how-to-watch-jan-17/
+
+**How to watch Iowa State vs. Cincinnati men's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Cincinnati Bearcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978530/2026/01/17/iowa-state-vs-cincinnati-stream-how-to-watch-jan-17/
+
+**How to watch Dartmouth vs. Princeton women's basketball: Time, TV, streaming**\
+`Find out how to watch the Dartmouth Big Green play the Princeton Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978527/2026/01/17/dartmouth-vs-princeton-stream-how-to-watch-jan-17/
+
+**How to watch Kentucky vs. Tennessee men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978525/2026/01/17/kentucky-vs-tennessee-stream-how-to-watch-jan-17/
+
+**How to watch Minnesota vs. Illinois men's basketball: Time, TV, streaming**\
+`Find out how to watch the Minnesota Golden Gophers play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978523/2026/01/17/minnesota-vs-illinois-stream-how-to-watch-jan-17/
+
 **Uganda Opposition Leader Bobi Wine Is ‘Restricted’ to His Home, the Police Say**\
 `The country’s electoral commission is expected to soon announce that President Yoweri Museveni has won re-election after four decades in power`\
 https://nytimes.com/2026/01/17/world/africa/uganda-bobi-wine-museveni.html
