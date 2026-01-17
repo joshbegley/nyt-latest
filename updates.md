@@ -1,3 +1,7 @@
+**'Grateful and free': Daria Kasatkina says she 'can finally breathe' as Australian**\
+`Kasatkina, who is gay and has criticized Russia's Vladmir Putin over its invasion of Ukraine, said her switch is about "acceptance."`\
+https://nytimes.com/athletic/6978334/2026/01/16/tennis-daria-kasatkina-australia-russia/
+
 **'Grateful and free': Daria Kasatkina says she 'can finally breathe' as Australian citizen after defecting from Russia**\
 `Kasatkina, who is gay and has criticized Russia's Vladmir Putin over its invasion of Ukraine, said her switch is about 'acceptance.'`\
 https://nytimes.com/athletic/6978334/2026/01/16/tennis-daria-kasatkina-australia-russia/
