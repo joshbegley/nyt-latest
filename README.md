@@ -1,3 +1,7 @@
+**Kristina Gjerde, Advocate for Ocean Biodiversity, Dies at 68**\
+`She played a key role in negotiating a landmark United Nations treaty to protect the high seas, an agreement that went into effect this weekend.`\
+https://nytimes.com/2026/01/17/climate/kristina-gjerde-dead.html
+
 **St. Louis City finalizing deal to sign Barcelona's defender Mbacke**\
 `Mbacke still plans to return to Europe at some point as he keeps developing with first-team soccer in St. Louis.`\
 https://nytimes.com/athletic/6979387/2026/01/17/barcelona-mamadaou-mbacke-st-louis-city-news/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979421/2026/01/17/predators-vs-golden-knights-stre
 **How to watch Lakers vs. Trail Blazers: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Portland Trail Blazers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6979419/2026/01/17/lakers-vs-trail-blazers-stream-how-to-watch-jan-17/
-
-**Ryan Pressly to retire after 13 seasons as reliever for Twins, Astros and Cubs**\
-`The two-time All-Star saved 117 games and recorded the last out of the 2022 World Series for Houston, where he spent seven seasons.`\
-https://nytimes.com/athletic/6977922/2026/01/17/mlb-ryan-pressly-retirement-astros-cubs-twins/
 
