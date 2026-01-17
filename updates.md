@@ -1,3 +1,7 @@
+**'Grateful and free': Daria Kasatkina says she 'can finally breathe' as Australian citizen after defecting from Russia**\
+`Kasatkina, who is gay and has criticized Russia's Vladmir Putin over its invasion of Ukraine, said her switch is about 'acceptance.'`\
+https://nytimes.com/athletic/6978334/2026/01/16/tennis-daria-kasatkina-australia-russia/
+
 **Reds' Elly De La Cruz won't play in WBC, hopes to play in future tournaments**\
 `De La Cruz played in all 162 games for the Reds last season but spent the second half of the season dealing with a quad injury.`\
 https://nytimes.com/athletic/6978291/2026/01/16/world-baseball-classic-2026-elly-de-la-cruz-status/
