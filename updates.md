@@ -1,3 +1,7 @@
+**Shooting at Historic New Orleans Restaurant Leaves One Dead, Several Wounded**\
+`The restaurant, Dooky Chase’s, is a New Orleans fixture with deep ties to the civil rights movement. Authorities say it wasn’t deliberately targeted.`\
+https://nytimes.com/2026/01/17/us/shooting-at-historic-new-orleans-restaurant-leaves-one-dead-several-wounded.html
+
 **Air Force coach Joe Scott suspended indefinitely pending investigation**\
 `Assistant coach Jon Jordan will serve as the team’s interim coach.`\
 https://nytimes.com/athletic/6979209/2026/01/17/air-force-basketball-joe-scott-suspended/
