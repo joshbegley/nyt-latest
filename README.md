@@ -1,3 +1,11 @@
+**Frank says Spurs are 'supertanker turning in the right direction'**\
+`Spurs captain Cristian Romero called Saturday's home defeat by West Ham a "disaster moment" for the team.`\
+https://nytimes.com/athletic/6979085/2026/01/17/thomas-frank-tottenham-west-ham/
+
+**Will Seahawks quarterback Sam Darnold play today vs. the 49ers? Latest updates**\
+`Darnold, who has thrown for 4,048 yards and 25 touchdowns for the NFC’s No. 1 seed this season, hasn't missed a game this season.`\
+https://nytimes.com/athletic/6979059/2026/01/17/sam-darnold-injury-update-status-seahawks-49ers/
+
 **Minneapolis Braces for Dueling Protests as City Remains on Edge**\
 `A rally at City Hall and a march have been organized by a conservative influencer to draw attention to a fraud scandal in the state. It is expected to draw counter protesters.`\
 https://nytimes.com/2026/01/17/us/minneapolis-protests-immigration-fraud.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6979057/2026/01/17/blue-jackets-vs-penguins-stream-
 **How to watch Maple Leafs vs. Jets: Time, TV, streaming**\
 `Find out how to watch the Toronto Maple Leafs play the Winnipeg Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6979055/2026/01/17/maple-leafs-vs-jets-stream-how-to-watch-jan-17/
-
-**How to watch Bruins vs. Blackhawks: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Chicago Blackhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6979050/2026/01/17/bruins-vs-blackhawks-stream-how-to-watch-jan-17/
-
-**How to watch Panthers vs. Capitals: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the Washington Capitals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6979051/2026/01/17/panthers-vs-capitals-stream-how-to-watch-jan-17/
 
