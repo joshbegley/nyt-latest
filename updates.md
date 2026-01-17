@@ -1,3 +1,11 @@
+**How to watch Jazz vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978696/2026/01/17/jazz-vs-mavericks-stream-how-to-watch-jan-17/
+
+**How to watch Kraken vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6978694/2026/01/17/kraken-vs-mammoth-stream-how-to-watch-jan-17/
+
 **How to watch Utah State vs. Grand Canyon men's basketball: Time, TV, streaming**\
 `Find out how to watch the Utah State Aggies play the Grand Canyon Antelopes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6978675/2026/01/17/utah-state-vs-grand-canyon-stream-how-to-watch-jan-17/
