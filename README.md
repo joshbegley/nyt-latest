@@ -1,3 +1,7 @@
+**Michael Kesselring eager to impact Sabres, plus 5 other thoughts from OT loss to Wild**\
+`Kesselring returned for the Sabres' 5-4 overtime loss against the Wild on Saturday, and he hopes to start making the impact he envisioned. `\
+https://nytimes.com/athletic/6979548/2026/01/17/sabres-wild-michael-kesselring-overtime/
+
 **‘Sentimental Value’ Dominates the European Film Awards**\
 `The Norwegian drama collected six awards at the event, which was moved to January this year in hopes of increasing its visibility for Oscar voters.`\
 https://nytimes.com/2026/01/17/movies/european-film-awards-sentimental-value.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979496/2026/01/17/titans-in-person-interviews-matt
 **Curt Cignetti shuts down NFL rumors: 'I’m not an NFL guy'**\
 `The Indiana coach said he made his decision when he declined the chance to make the college-to-NFL jump in 2000.`\
 https://nytimes.com/athletic/6979326/2026/01/17/curt-cignetti-nfl-head-coach-rumors/
-
-**Oilers’ Leon Draisaitl takes leave of absence for family matter in Germany**\
-`The Oilers said the star forward's absence will be brief, and that he is expected to return to the club next week.`\
-https://nytimes.com/athletic/6979497/2026/01/17/oilers-leon-draisaitl-leave-absence-family-illness/
 
