@@ -1,3 +1,7 @@
+**Does (another) Luke Schenn reunion make sense for the Maple Leafs?**\
+`Schenn's physical play matches the style Toronto coach Craig Berube prefers in his defencemen.`\
+https://nytimes.com/athletic/6979227/2026/01/17/luke-schenn-winnipeg-jets-toronto-maple-leafs-trade-deadline/
+
 **Team Canada's Sarah Nurse returns to PWHL 19 days before Milan Olympics**\
 `Nurse hadn't played since scoring the Goldeneyes' first-ever goal on Nov. 21 due to an upper-body injury.`\
 https://nytimes.com/athletic/6979198/2026/01/17/team-canada-sarah-nurse-return-vancouver-goldeneyes/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979209/2026/01/17/air-force-basketball-joe-scott-s
 **Wrexham captain McClean leaving club, returning to Ireland with Derry City**\
 `McClean, 36, previously played for Derry at the start of his career, before joining English side Sunderland in 2011.`\
 https://nytimes.com/athletic/6979095/2026/01/17/wrexham-transfers-james-mcclean/
-
-**Frank says Spurs are 'supertanker turning in the right direction'**\
-`Spurs captain Cristian Romero called Saturday's home defeat by West Ham a "disaster moment" for the team.`\
-https://nytimes.com/athletic/6979085/2026/01/17/thomas-frank-tottenham-west-ham/
 
