@@ -1,3 +1,7 @@
+**Arteta says Arsenal denied 'clear penalty' during Forest draw**\
+`Arteta was referring to an incident in the second-half when the ball hit Ola Aina's arm in the Forest penalty area. `\
+https://nytimes.com/athletic/6979460/2026/01/17/arsenal-penalty-aina-handball-nottingham-forest/
+
 **‘We’ll Sue’: White House’s Warning to CBS Is Sign of a New Media Status Quo**\
 `In previously unreported remarks, the White House press secretary Karoline Leavitt told CBS News that Mr. Trump would “sue” the news outlet if it did not air an interview unedited.`\
 https://nytimes.com/2026/01/17/business/media/cbs-news-trump-interview.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979349/2026/01/17/minnesota-vikings-offensive-line
 **How to watch Hornets vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6979424/2026/01/17/hornets-vs-warriors-stream-how-to-watch-jan-17/
-
-**How to watch Predators vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6979421/2026/01/17/predators-vs-golden-knights-stream-how-to-watch-jan-17/
 
