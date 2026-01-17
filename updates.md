@@ -1,3 +1,11 @@
+**'Irreplaceable' Nico Hoerner hopes trade rumors fade as Cubs load up for a 2026 run**\
+`“I definitely want to be here for this season and with this group,” the two-time Gold Glove winner said.`\
+https://nytimes.com/athletic/6978187/2026/01/16/cubs-nico-hoerner-trade-rumors-mlb/
+
+**Court Blocks Trump Administration From Freezing Food Stamps in Minnesota**\
+`With tensions high between the White House and the state, the ruling temporarily halted plans to withhold over $129 million in funding.`\
+https://nytimes.com/2026/01/16/us/politics/court-food-stamps-minnesota.html
+
 **Judge Restricts Immigration Agents’ Actions Toward Minnesota Protesters**\
 `A federal judge ordered agents not to retaliate against people “engaging in peaceful and unobstructive protest activity” in the state and not to stop drivers who are not “forcibly obstructing” officers.`\
 https://nytimes.com/2026/01/16/us/minnesota-ice-immigration-agents-protests.html
