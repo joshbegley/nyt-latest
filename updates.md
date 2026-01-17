@@ -1,3 +1,7 @@
+**Senegal complain to CAF about facilities, tickets ahead of AFCON final**\
+`The Senegalese Football Federation also said it was unhappy with the security arrangements ahead of Sunday's final against hosts Morocco.`\
+https://nytimes.com/athletic/6978474/2026/01/17/senegal-afcon-final-caf-complaint/
+
 **Premier League stats to know: Manchester United's goal struggles and Chelsea's poor run**\
 `What are the key stats you need to know heading into the next round of Premier League fixtures?`\
 https://nytimes.com/athletic/6974300/2026/01/17/premier-league-md-22-numbers-to-know-man-utd-derby-drought-chelseas-bogey-side/

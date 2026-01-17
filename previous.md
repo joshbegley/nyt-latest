@@ -1,3 +1,7 @@
+**Senegal complain to CAF about facilities, tickets ahead of AFCON final**\
+`The Senegalese Football Federation also said it was unhappy with the security arrangements ahead of Sunday's final against hosts Morocco.`\
+https://nytimes.com/athletic/6978474/2026/01/17/senegal-afcon-final-caf-complaint/
+
 **Premier League stats to know: Manchester United's goal struggles and Chelsea's poor run**\
 `What are the key stats you need to know heading into the next round of Premier League fixtures?`\
 https://nytimes.com/athletic/6974300/2026/01/17/premier-league-md-22-numbers-to-know-man-utd-derby-drought-chelseas-bogey-side/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6973808/2026/01/17/west-ham-tottenham-nuno-safe-for
 **Newcastle Under-21s under a spotlight after another coach quits**\
 `Since Eddie Howe arrived as first-team manager in November 2021, there have been four permanent under-21 coaches`\
 https://nytimes.com/athletic/6976501/2026/01/17/newcastle-under-21-coach-quits/
-
-**Conor Gallagher was one of their own - his move to Spurs is going to really, really hurt Chelsea**\
-`Midfielder can't be blamed for making what may prove a sensible career decision but joining boyhood club's bitter rivals will sting for fans`\
-https://nytimes.com/athletic/6976625/2026/01/17/conor-gallagher-tottenham-chelsea-premier-league/
 
