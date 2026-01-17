@@ -1,3 +1,7 @@
+**Kílian Jornet on What We Can Learn From Pushing Our Bodies to Extremes**\
+`The ultrarunner and mountaineer finds peace through doing unimaginably hard things.`\
+https://nytimes.com/2026/01/17/magazine/kilian-jornet-interview.html
+
 **The People of Minneapolis vs. ICE: A Street-Level View**\
 `An intense cat-and-mouse game is putting enraged locals face-to-face with heavily armed agents.`\
 https://nytimes.com/2026/01/17/us/minneapolis-protests-ice.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/17/world/americas/cuba-venezuela-oil-power-blackouts
 **Why Do We Want It to Be 2016 Again?**\
 `A new trend has some social media users feeling nostalgic for a decade ago, but the posts reveal something deeper about the state of the internet.`\
 https://nytimes.com/2026/01/17/style/2016-nostalgia-millennial-optimism-social-media.html
-
-**New Nike Shoe Evokes Motel Where Martin Luther King Jr. Was Killed**\
-`LeBron James’s new sneaker seeks to honor the civil rights leader with a color palette inspired by the Memphis motel where King was assassinated in 1968.`\
-https://nytimes.com/2026/01/17/style/mlk-nike-lebron-shoe.html
 
