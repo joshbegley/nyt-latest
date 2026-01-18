@@ -1,3 +1,7 @@
+**Did Peyton Manning help pave the way for Indiana's unlikely football breakthrough?**\
+`I grew up in Indiana and saw attitudes about football change with the Colts. Now the Hoosiers are capitalizing in an unlikely Playoff run.`\
+https://nytimes.com/athletic/6978610/2026/01/18/peyton-manning-indiana-football-basketball-colts/
+
 **Chelsea in talks with Rennes over deal for Jeremy Jacquet**\
 `Jacquet, 20, has started in each of Rennes' Ligue 1 matches for which he has been available this season.`\
 https://nytimes.com/athletic/6884744/2026/01/18/jeremy-jacquet-chelsea-transfer-talks-rennes/

@@ -1,3 +1,7 @@
+**Did Peyton Manning help pave the way for Indiana's unlikely football breakthrough?**\
+`I grew up in Indiana and saw attitudes about football change with the Colts. Now the Hoosiers are capitalizing in an unlikely Playoff run.`\
+https://nytimes.com/athletic/6978610/2026/01/18/peyton-manning-indiana-football-basketball-colts/
+
 **Chelsea in talks with Rennes over deal for Jeremy Jacquet**\
 `Jacquet, 20, has started in each of Rennes' Ligue 1 matches for which he has been available this season.`\
 https://nytimes.com/athletic/6884744/2026/01/18/jeremy-jacquet-chelsea-transfer-talks-rennes/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979329/2026/01/18/alex-bregman-cubs-contract-chica
 **Victor Wembanyama-Anthony Edwards is the new-age rivalry the NBA needs**\
 `The two young stars shined brightest Saturday night, with Edwards scoring a career-high 55 points but Wembanyama's Spurs coming out on top.`\
 https://nytimes.com/athletic/6979867/2026/01/18/victor-wembanyama-anthony-edwards-rivalry-spurs-timberwolves/
-
-**Venus Williams delivers vintage Australian Open performance in agonizing loss**\
-`The 45-year-old was two games away from a stunning victory over Olga Danilović of Serbia.`\
-https://nytimes.com/athletic/6980387/2026/01/18/tennis-venus-williams-australian-open-olga-danilovic/
 
