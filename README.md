@@ -1,3 +1,7 @@
+**Footballer arrested in Wales on suspicion of assault after viral video**\
+`Welsh third-tier club Treaddur Bay said they have released the suspended player with immediate effect and they do "not condone violence".`\
+https://nytimes.com/athletic/6981129/2026/01/18/footballer-assault-wales-video/
+
 **Broncos-Bills ending reminded Sabres' Lindy Ruff of 1999 Stanley Cup 'no goal'**\
 `The Bills' overtime loss was eerily reminiscent of another heartbreaking moment in Buffalo sports history.`\
 https://nytimes.com/athletic/6981003/2026/01/18/bills-broncos-int-game-sabres-lindy-ruff/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/18/obituaries/joe-montgomery-dead.html
 **Red Wings' Redmond to take medical absence from TV broadcast**\
 `The iconic broadcaster is set to undergo surgery to address chronic neck issues.`\
 https://nytimes.com/athletic/6981009/2026/01/18/mickey-redmond-red-wings-medical-absence-tv/
-
-**How to watch Michigan State vs. Iowa women's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan State Spartans play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6981064/2026/01/18/michigan-state-vs-iowa-stream-how-to-watch-jan-18/
 
