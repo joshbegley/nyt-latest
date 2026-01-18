@@ -1,3 +1,7 @@
+**Falcons name Kevin Stefanski new head coach**\
+`Stefanski was 45-56 in six seasons with the Cleveland Browns and NFL Coach of the Year twice (2020 and 2023).`\
+https://nytimes.com/athletic/6978950/2026/01/17/kevin-stefanski-falcons-head-coach/
+
 **Rare college hockey fight involving Blackhawks prospect results in automatic suspensions**\
 `Fighting is illegal in college hockey and results in a five-minute major, an immediate ejection and automatic suspension for another game.`\
 https://nytimes.com/athletic/6979851/2026/01/17/college-hockey-fight-sacha-boisvert-connor-eddy/

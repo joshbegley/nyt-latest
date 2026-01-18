@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6979851/2026/01/17/college-hockey-fight-sacha-boisvert-connor-eddy/
 
 **Steve Kerr doesn't think another team can surpass Warriors' 73-win season**\
-`Kerr said that while he remains very proud of the accomplishment, the season isn't something that the group discusses.`\
+`Kerr said that though he remains very proud of the accomplishment, the season isn't something the group discusses.`\
 https://nytimes.com/athletic/6979775/2026/01/17/steve-kerr-comments-warriors-2016-season-okc-thunder/
 
 **Falcons name Kevin Stefanski new head coach**\
