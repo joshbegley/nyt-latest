@@ -1,3 +1,7 @@
+**Islamic Scholar’s Post-Sept. 11 Convictions Are Tossed on Free Speech Grounds**\
+`Federal judges ruled that an Islamic teacher’s statements goading men in Virginia to join an overseas militant group were protected by the First Amendment.`\
+https://nytimes.com/2026/01/18/us/sept-11-convictions-overturned-first-amendment.html
+
 **Florida transfer QB DJ Lagway makes it official and signs with Baylor**\
 `Baylor had several holes to fill on its roster. None was bigger than QB, where Sawyer Robertson has exhausted his eligibility. `\
 https://nytimes.com/athletic/6963938/2026/01/18/dj-lagway-transfer-baylor-florida-quarterback/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6963938/2026/01/18/dj-lagway-transfer-baylor-florid
 `The game was delayed late in stoppage time as the players went into the dressing room.  `\
 https://nytimes.com/athletic/6981321/2026/01/18/senegal-players-leave-field-in-afcon-final-penalty-protest/
 
-**Texans' Dalton Schultz questionable to return vs. Patriots with calf injury**\
+**Texans' Dalton Schultz ruled out vs. Patriots with calf injury**\
 `Injury is a blow to Houston's passing game, which is already without leading receiver Nico Collins.`\
 https://nytimes.com/athletic/6981270/2026/01/18/texans-te-dalton-schultz-calf-injury-questionable/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6980992/2026/01/18/sean-payton-embracing-broncos-co
 **Ja Morant returns from calf injury, shines for London crowd in Grizzlies win vs. Magic**\
 `Morant, amid trade rumors, returned from injury with a big performance, helping the Memphis Grizzlies top the Orlando Magic in London.`\
 https://nytimes.com/athletic/6981162/2026/01/18/ja-morant-grizzlies-nba-injury-magic-london/
-
-**Footballer arrested in Wales on suspicion of assault after viral video**\
-`Welsh third-tier club Treaddur Bay said they have released the suspended player with immediate effect and they do "not condone violence".`\
-https://nytimes.com/athletic/6981129/2026/01/18/footballer-assault-wales-video/
 

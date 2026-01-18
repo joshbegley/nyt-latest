@@ -1,3 +1,15 @@
+**Florida transfer QB DJ Lagway makes it official and signs with Baylor**\
+`Baylor had several holes to fill on its roster. None was bigger than QB, where Sawyer Robertson has exhausted his eligibility. `\
+https://nytimes.com/athletic/6963938/2026/01/18/dj-lagway-transfer-baylor-florida-quarterback/
+
+**Senegal players leave field in AFCON final penalty protest**\
+`The game was delayed late in stoppage time as the players went into the dressing room.  `\
+https://nytimes.com/athletic/6981321/2026/01/18/senegal-players-leave-field-in-afcon-final-penalty-protest/
+
+**What I'm hearing about Mets' post-Bo Bichette plans: Outfield possibilities, QO philosophy**\
+`The Mets are weighing several options to bolster their outfield and starting rotation via free agency or trade.`\
+https://nytimes.com/athletic/6981273/2026/01/18/mets-bo-bichette-plans-free-agency-trades/
+
 **What I'm hearing about Mets' post Bo Bichette plans: Outfield possibilities, QO philosophy**\
 `The Mets are weighing several options to bolster their outfield and starting rotation via free agency or trade.`\
 https://nytimes.com/athletic/6981273/2026/01/18/mets-bo-bichette-plans-free-agency-trades/
