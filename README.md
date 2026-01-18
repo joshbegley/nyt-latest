@@ -1,5 +1,5 @@
 **Seahawks RB Zach Charbonnet questionable to return with knee injury**\
-`The Seattle running back was injured in the first half of his team's NFC divisional game against the 49ers.`\
+`The Seattle running back was injured in the first half of his team's NFC divisional-round game against the 49ers.`\
 https://nytimes.com/athletic/6979895/2026/01/17/seahawks-zach-charbonnet-knee-injury-49ers-playoffs/
 
 **Rare college hockey fight involving Blackhawks prospect results in automatic suspensions**\
