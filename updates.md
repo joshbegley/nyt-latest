@@ -1,3 +1,11 @@
+**Comes to Light**\
+`Find your “aha!” moment in Peter Gorman’s puzzle.`\
+https://nytimes.com/2026/01/18/crosswords/daily-puzzle-2026-01-19.html
+
+**A Century of The New York Times in Antarctica**\
+`Our climate reporter Raymond Zhong takes a trip into the New York Times archives to see how our understanding of Antarctica has changed over the past century.`\
+https://nytimes.com/video/climate/100000010542262/a-century-of-the-new-york-times-in-antarctica.html
+
 **Texans LB Azeez Al-Shaair wears ‘stop the genocide’ eye black vs. Patriots**\
 `Al-Shaair's message, first displayed during Monday's wild-card game against the Pittsburgh Steelers, supports the people of Palestine.`\
 https://nytimes.com/athletic/6981232/2026/01/18/texans-azeez-al-shaair-eye-black-patriots-genocide/
