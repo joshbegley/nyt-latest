@@ -1,3 +1,11 @@
+**NFL Rules analyst weighs in on controversial Denver Broncos overtime interception vs. Buffalo Bills**\
+`NFL Rules analyst Walt Anderson gives his take on the Denver Broncos controversial overtime interception against Buffalo Bills.`\
+https://nytimes.com/athletic/6980891/2026/01/18/broncos-bills-controversial-interception-nfl-rules-analyst/
+
+**‘Come Help Us’: Wildfires Grip Parts of Chile, Killing at Least 16**\
+`One mayor pleaded with the national government for help as flames destroyed entire neighborhoods in the southern region of Biobío.`\
+https://nytimes.com/2026/01/18/world/americas/chile-wildfires.html
+
 **Syrian Government and Kurdish-Led Force Agree to Unite After Clashes**\
 `The new deal also calls for a cease-fire. Government forces have taken strategic assets from the militia in recent days, weakening the force.`\
 https://nytimes.com/2026/01/18/world/middleeast/syria-kurds-ceasefire.html
