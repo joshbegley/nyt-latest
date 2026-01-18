@@ -1,3 +1,7 @@
+**College tennis star Michael Zheng stuns Sebastian Korda at Australian Open**\
+`Columbia student Zheng held his nerve in the face of a comeback from his compatriot to win his first Grand Slam main-draw match.`\
+https://nytimes.com/athletic/6980281/2026/01/18/australian-open-michael-zheng-college-tennis-korda/
+
 **Cole Palmer is not himself. Liam Rosenior must manage his fitness carefully**\
 `Chelsea's best player is still to get fully back up to speed after his return. Will a hectic schedule help? `\
 https://nytimes.com/athletic/6979799/2026/01/18/cole-palmer-chelsea-fitness-liam-rosenior/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/18/crosswords/spelling-bee-forum.html
 **Arsenal and another missed opportunity**\
 `Mikel Arteta's team do not seem to enjoy their trips to Nottingham Forest. They failed to take the chance of going nine points clear`\
 https://nytimes.com/athletic/6979541/2026/01/18/arsenal-arteta-missed-opportunity/
-
-**Wrexham 'learn their lesson' after slow start in second half leads to Norwich defeat**\
-`Wrexham's 10-match unbeaten run came to an end against Norwich after a slow and 'sloppy' start to the second half`\
-https://nytimes.com/athletic/6979473/2026/01/18/wrexham-medical-emergency-norwich/
 
