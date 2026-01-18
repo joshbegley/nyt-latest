@@ -1,3 +1,7 @@
+**Ralph Towner, Eclectic Guitarist With the Ensemble Oregon, Dies at 85**\
+`A composer and pianist as well, he was a prolific recording artist who integrated jazz, classical and world music traditions over six decades.`\
+https://nytimes.com/2026/01/18/arts/ralph-towner-dead.html
+
 **Washington, D.C., sets U.S. women's hockey attendance record**\
 `The game in Washington was part of the PWHL’s 16 neutral-site Takeover Tour across the U.S. and Canada.`\
 https://nytimes.com/athletic/6981354/2026/01/18/pwhl-womens-hockey-attendance-record-washington-dc/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6963938/2026/01/18/dj-lagway-transfer-baylor-florid
 **Senegal win chaotic AFCON final after walking off field in protest**\
 `The game was delayed late in stoppage time as the players went into the dressing room.  `\
 https://nytimes.com/athletic/6981321/2026/01/18/senegal-players-leave-field-in-afcon-final-penalty-protest/
-
-**Texans' Dalton Schultz ruled out vs. Patriots with calf injury**\
-`Injury is a blow to Houston's passing game, which is already without leading receiver Nico Collins.`\
-https://nytimes.com/athletic/6981270/2026/01/18/texans-te-dalton-schultz-calf-injury-questionable/
 
