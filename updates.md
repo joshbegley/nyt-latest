@@ -1,3 +1,7 @@
+**How can the Bears beat the Rams? Matchup to watch, game picks for divisional round**\
+`Ahead of the Bears' divisional-round playoff game, Case Keenum's role has been valuable, plus a matchup to watch and our game picks.`\
+https://nytimes.com/athletic/6977667/2026/01/18/bears-rams-nfl-playoffs-matchups-predictions/
+
 **Curt Cignetti's CFP plan: 'You don’t go to war with warm milk and cookies'**\
 `In two seasons under Cignetti, the Hoosiers are 26-2 in one of the great turnarounds in sports history.`\
 https://nytimes.com/athletic/6980802/2026/01/18/curt-cignetti-indiana-miami-college-football-playoff/

@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6980802/2026/01/18/curt-cignetti-indiana-miami-coll
 `Michael Carrick's first game in charge brought scenes not seen at Old Trafford for years – the centre-backs set the tone for United's win`\
 https://nytimes.com/athletic/6979658/2026/01/18/harry-maguire-lisandro-martinez-manchester-united-centre-backs/
 
+**How can the Bears beat the Rams? Matchup to watch, game picks for divisional round**\
+`Ahead of the Bears' divisional-round playoff game, Case Keenum's role has been valuable, plus a matchup to watch and our game picks.`\
+https://nytimes.com/athletic/6977667/2026/01/18/bears-rams-nfl-playoffs-matchups-predictions/
+
 **Syrian Government and Kurdish-led Force Agree to Unite After Clashes**\
 `The new unity deal also calls for a cease-fire. Government forces have taken over a number of strategic assets from the Kurdish-led militia in recent days, weakening the force.`\
 https://nytimes.com/2026/01/18/world/middleeast/syria-kurds-ceasefire.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6980806/2026/01/18/nets-vs-bulls-stream-how-to-watc
 **Lowetide: How can the Oilers increase their organizational depth this year?**\
 `The Oilers' prospect pool has spiked with college, junior and European free-agent signings.`\
 https://nytimes.com/athletic/6978183/2026/01/18/edmonton-oilers-depth-charts-signings-2026/
-
-**How to watch Arizona State vs. Houston men's basketball: Time, TV, streaming**\
-`Find out how to watch the Arizona State Sun Devils play the Houston Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6980793/2026/01/18/arizona-state-vs-houston-stream-how-to-watch-jan-18/
 
