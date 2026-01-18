@@ -1,3 +1,7 @@
+**Trump’s Ultimatum to Europe**\
+`Trump threatened heavy tariffs on countries standing between him and Greenland. E.U. leaders are scrambling for a response.`\
+https://nytimes.com/2026/01/18/world/greenland-europe-tariffs-kyiv.html
+
 **Islamic Scholar’s Post-Sept. 11 Convictions Are Tossed on Free Speech Grounds**\
 `Federal judges ruled that an Islamic teacher’s statements goading men in Virginia to join an overseas militant group were protected by the First Amendment.`\
 https://nytimes.com/2026/01/18/us/sept-11-convictions-overturned-first-amendment.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6980856/2026/01/18/college-football-playoff-expansi
 **After whirlwind night, Broncos' Sean Payton embracing conference title game challenge**\
 `The Broncos will work to craft a game plan to match Jarrett Stidham's skill set for the AFC Championship Game.`\
 https://nytimes.com/athletic/6980992/2026/01/18/sean-payton-embracing-broncos-conference-title-game-challenge-without-bo-nix/
-
-**Ja Morant returns from calf injury, shines for London crowd in Grizzlies win vs. Magic**\
-`Morant, amid trade rumors, returned from injury with a big performance, helping the Memphis Grizzlies top the Orlando Magic in London.`\
-https://nytimes.com/athletic/6981162/2026/01/18/ja-morant-grizzlies-nba-injury-magic-london/
 

@@ -1,3 +1,7 @@
+**Noem Denies Use of Chemical Agents in Minnesota, Then Backtracks**\
+`Kristi Noem, the homeland security secretary, said officers had not used pepper spray and similar measures limited by a judge’s order, then was confronted with a video that showed chemical agents deployed.`\
+https://nytimes.com/2026/01/18/us/politics/noem-chemical-agents-minnesota.html
+
 **Trump’s Ultimatum to Europe**\
 `Trump threatened heavy tariffs on countries standing between him and Greenland. E.U. leaders are scrambling for a response.`\
 https://nytimes.com/2026/01/18/world/greenland-europe-tariffs-kyiv.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6981210/2026/01/18/braves-ha-seong-kim-hand-injury-
 **Still no decision on CFP expansion ahead of Friday deadline to make call on 2026**\
 `The Big Ten's Tony Petitti and the SEC's Greg Sankey hold the keys to expansion, and their conferences have been at an impasse for months.`\
 https://nytimes.com/athletic/6980856/2026/01/18/college-football-playoff-expansion-2026-format/
-
-**After whirlwind night, Broncos' Sean Payton embracing conference title game challenge**\
-`The Broncos will work to craft a game plan to match Jarrett Stidham's skill set for the AFC Championship Game.`\
-https://nytimes.com/athletic/6980992/2026/01/18/sean-payton-embracing-broncos-conference-title-game-challenge-without-bo-nix/
 

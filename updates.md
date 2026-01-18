@@ -1,3 +1,7 @@
+**Trump’s Ultimatum to Europe**\
+`Trump threatened heavy tariffs on countries standing between him and Greenland. E.U. leaders are scrambling for a response.`\
+https://nytimes.com/2026/01/18/world/greenland-europe-tariffs-kyiv.html
+
 **Islamic Scholar’s Post-Sept. 11 Convictions Are Tossed on Free Speech Grounds**\
 `Federal judges ruled that an Islamic teacher’s statements goading men in Virginia to join an overseas militant group were protected by the First Amendment.`\
 https://nytimes.com/2026/01/18/us/sept-11-convictions-overturned-first-amendment.html
