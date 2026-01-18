@@ -1,3 +1,7 @@
+**Broncos, Bo Nix win overtime thriller for first AFC Championship Game since 2015**\
+`Four Josh Allen turnovers and five overall sabotaged the Bills in their upset bid of the top-seeded Broncos.`\
+https://nytimes.com/athletic/6979285/2026/01/17/broncos-bo-nix-win-overtime-thriller-for-first-afc-championship-game-since-2015/
+
 **Broncos, Bo Nix win overtime thriller for first AFC championship game since 2015**\
 `Four Josh Allen turnovers and five overall sabotaged the Bills in their upset bid of the top-seeded Broncos.`\
 https://nytimes.com/athletic/6979285/2026/01/17/broncos-bo-nix-win-overtime-thriller-for-first-afc-championship-game-since-2015/
