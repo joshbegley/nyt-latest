@@ -1,3 +1,7 @@
+**Broncos QB Bo Nix out for season after suffering ankle injury vs. Bills**\
+`Nix is scheduled to have surgery in Birmingham, Alabama next week.`\
+https://nytimes.com/athletic/6979838/2026/01/17/bo-nix-ankle-injury-season-ending-surgery/
+
 **Broncos, Bo Nix win overtime thriller for first AFC Championship Game since 2015**\
 `Four Josh Allen turnovers and five overall sabotaged the Bills in their upset bid of the top-seeded Broncos.`\
 https://nytimes.com/athletic/6979285/2026/01/17/broncos-bo-nix-win-overtime-thriller-for-first-afc-championship-game-since-2015/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979605/2026/01/17/mitch-love-khl-shanghai-dragons-
 **Michael Kesselring eager to impact Sabres, plus 5 other thoughts from OT loss to Wild**\
 `Kesselring returned for the Sabres' 5-4 overtime loss against the Wild on Saturday, and he hopes to start making the impact he envisioned. `\
 https://nytimes.com/athletic/6979548/2026/01/17/sabres-wild-michael-kesselring-overtime/
-
-**‘Sentimental Value’ Dominates the European Film Awards**\
-`The Norwegian drama collected six awards at the event, which was moved to January this year in hopes of increasing its visibility for Oscar voters.`\
-https://nytimes.com/2026/01/17/movies/european-film-awards-sentimental-value.html
 
