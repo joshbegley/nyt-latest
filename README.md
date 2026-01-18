@@ -1,3 +1,7 @@
+**Flames trade Rasmus Andersson to Vegas for Whitecloud, prospect, two picks: Sources**\
+`The defenseman is in the final year of a six-year contract carrying a $4.55 million cap hit, with Calgary retaining half.`\
+https://nytimes.com/athletic/6442132/2026/01/18/rasmus-andersson-traded-lv-golden-knights-nhl/
+
 **Broncos add QB Ben DiNucci to practice squad with Bo Nix out**\
 `The veteran adds some insurance behind Jarrett Stidham and Sam Ehlinger ahead of the AFC Championship Game.`\
 https://nytimes.com/athletic/6981446/2026/01/18/broncos-ben-dinucci-quarterback-bo-nix/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/18/world/greenland-europe-tariffs-kyiv.html
 **Islamic Scholar’s Post-Sept. 11 Convictions Are Tossed on Free Speech Grounds**\
 `Federal judges ruled that an Islamic teacher’s statements goading men in Virginia to join an overseas militant group were protected by the First Amendment.`\
 https://nytimes.com/2026/01/18/us/sept-11-convictions-overturned-first-amendment.html
-
-**Florida transfer QB DJ Lagway makes it official and signs with Baylor**\
-`Baylor had several holes to fill on its roster. None was bigger than QB, where Sawyer Robertson has exhausted his eligibility. `\
-https://nytimes.com/athletic/6963938/2026/01/18/dj-lagway-transfer-baylor-florida-quarterback/
 
