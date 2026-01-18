@@ -1,9 +1,13 @@
+**Taylor Townsend gets into Australian Open after Markéta Vondroušová withdraws**\
+`The American, who was one of the stories of last year's U.S. Open, will enter the first round as a lucky loser.`\
+https://nytimes.com/athletic/6979842/2026/01/17/australian-open-tennis-taylor-townsend-marketa-vondrousova/
+
 **Broncos QB Bo Nix out for season after suffering ankle injury vs. Bills**\
 `Nix is scheduled to have surgery in Birmingham, Alabama, next week.`\
 https://nytimes.com/athletic/6979838/2026/01/17/bo-nix-ankle-injury-season-ending-surgery/
 
-**Broncos, Bo Nix win overtime thriller for first AFC Championship Game since 2015**\
-`Four Josh Allen turnovers and five overall sabotaged the Bills in their upset bid of the top-seeded Broncos.`\
+**Broncos win OT thriller for first AFC Championship Game since 2015, but lose Bo Nix**\
+`Four Josh Allen turnovers and five overall sabotaged the Bills in their upset bid of the Broncos, who will now be without QB Bo Nix.`\
 https://nytimes.com/athletic/6979285/2026/01/17/broncos-bo-nix-win-overtime-thriller-for-first-afc-championship-game-since-2015/
 
 **Artemi Panarin 'confused' about Rangers' retool plans, plus what I'm hearing about what's next**\
@@ -29,8 +33,4 @@ https://nytimes.com/video/nyregion/100000010651129/pokemon-card-shop-robbery-new
 **Former Capitals assistant Mitch Love named head coach in KHL amid NHL suspension**\
 `Love, who is the new head coach of the Shanghai Dragons, was suspended for the 2025-26 NHL season, reportedly due to alleged domestic abuse.`\
 https://nytimes.com/athletic/6979605/2026/01/17/mitch-love-khl-shanghai-dragons-nhl-suspension/
-
-**Michael Kesselring eager to impact Sabres, plus 5 other thoughts from OT loss to Wild**\
-`Kesselring returned for the Sabres' 5-4 overtime loss against the Wild on Saturday, and he hopes to start making the impact he envisioned. `\
-https://nytimes.com/athletic/6979548/2026/01/17/sabres-wild-michael-kesselring-overtime/
 

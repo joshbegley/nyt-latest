@@ -1,3 +1,11 @@
+**Taylor Townsend gets into Australian Open after Markéta Vondroušová withdraws**\
+`The American, who was one of the stories of last year's U.S. Open, will enter the first round as a lucky loser.`\
+https://nytimes.com/athletic/6979842/2026/01/17/australian-open-tennis-taylor-townsend-marketa-vondrousova/
+
+**Broncos win OT thriller for first AFC Championship Game since 2015, but lose Bo Nix**\
+`Four Josh Allen turnovers and five overall sabotaged the Bills in their upset bid of the Broncos, who will now be without QB Bo Nix.`\
+https://nytimes.com/athletic/6979285/2026/01/17/broncos-bo-nix-win-overtime-thriller-for-first-afc-championship-game-since-2015/
+
 **Broncos QB Bo Nix out for season after suffering ankle injury vs. Bills**\
 `Nix is scheduled to have surgery in Birmingham, Alabama, next week.`\
 https://nytimes.com/athletic/6979838/2026/01/17/bo-nix-ankle-injury-season-ending-surgery/

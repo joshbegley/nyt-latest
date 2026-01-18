@@ -1,9 +1,13 @@
+**Falcons hiring Kevin Stefanski as head coach: Source**\
+`Stefanski was 45-56 in six seasons with the Cleveland Browns and NFL Coach of the Year twice (2020 and 2023).`\
+https://nytimes.com/athletic/6978950/2026/01/17/kevin-stefanski-falcons-head-coach/
+
 **Taylor Townsend gets into Australian Open after Markéta Vondroušová withdraws**\
 `The American, who was one of the stories of last year's U.S. Open, will enter the first round as a lucky loser.`\
 https://nytimes.com/athletic/6979842/2026/01/17/australian-open-tennis-taylor-townsend-marketa-vondrousova/
 
 **Broncos QB Bo Nix out for season after suffering ankle injury vs. Bills**\
-`Nix is scheduled to have surgery in Birmingham, Alabama, next week.`\
+`Nix is scheduled to have surgery in Birmingham, Ala., next week.`\
 https://nytimes.com/athletic/6979838/2026/01/17/bo-nix-ankle-injury-season-ending-surgery/
 
 **Broncos win OT thriller for first AFC Championship Game since 2015, but lose Bo Nix**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6962199/2026/01/17/matt-lafleur-packers-contract-ex
 **Armed Robbers Steal At Least $110,000 Worth of Pokémon Cards**\
 `Three men stole at least $110,00 worth of Pokémon cards from a shop in Lower Manhattan on Wednesday.`\
 https://nytimes.com/video/nyregion/100000010651129/pokemon-card-shop-robbery-new-york-video.html
-
-**Former Capitals assistant Mitch Love named head coach in KHL amid NHL suspension**\
-`Love, who is the new head coach of the Shanghai Dragons, was suspended for the 2025-26 NHL season, reportedly due to alleged domestic abuse.`\
-https://nytimes.com/athletic/6979605/2026/01/17/mitch-love-khl-shanghai-dragons-nhl-suspension/
 
