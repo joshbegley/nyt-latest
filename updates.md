@@ -1,3 +1,7 @@
+**Who is Jarrett Stidham, the Broncos backup QB who will take over for Bo Nix?**\
+`The 2019 fourth-round pick by the New England Patriots who signed with the Broncos in 2023 has made four career starts.`\
+https://nytimes.com/athletic/6979876/2026/01/17/jarrett-stidham-bo-nix-broncos-backup-qb/
+
 **NFL playoff schedule: Seahawks, Broncos advance to conference championships**\
 `The Broncos survived an OT thriller against the Bills to advance, while the Seahawks dominated against the 49ers.`\
 https://nytimes.com/athletic/6979795/2026/01/17/2025-26-nfl-conference-championship-schedule/
