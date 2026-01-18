@@ -1,3 +1,11 @@
+**Texans' Dalton Schultz questionable to return vs. Patriots with calf injury**\
+`Injury is a blow to Houston's passing game, which is already without leading receiver Nico Collins.`\
+https://nytimes.com/athletic/6981270/2026/01/18/texans-te-dalton-schultz-calf-injury-questionable/
+
+**What I'm hearing about Mets' post Bo Bichette plans: outfield possibilities, QO philosophy**\
+`The Mets are weighing several options to bolster their outfield and starting rotation via free agency or trade.`\
+https://nytimes.com/athletic/6981273/2026/01/18/mets-bo-bichette-plans-free-agency-trades/
+
 **Braves' Ha-Seong Kim to miss 4 to 5 months after undergoing finger surgery**\
 `The Braves re-signed the 30-year-old shortstop in December to a one-year, $20 million deal after claiming him off waivers on Sept. 1.`\
 https://nytimes.com/athletic/6981210/2026/01/18/braves-ha-seong-kim-hand-injury-underwent-surgery/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6981003/2026/01/18/bills-broncos-int-game-sabres-li
 **Footballer arrested in Wales on suspicion of assault after viral video**\
 `Welsh third-tier club Treaddur Bay said they have released the suspended player with immediate effect and they do "not condone violence".`\
 https://nytimes.com/athletic/6980999/2026/01/18/footballer-assault-video-wales/
-
-**How to watch Raptors vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6981107/2026/01/18/raptors-vs-lakers-stream-how-to-watch-jan-18/
-
-**How to watch Trail Blazers vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6981100/2026/01/18/trail-blazers-vs-kings-stream-how-to-watch-jan-18/
 
