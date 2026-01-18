@@ -1,3 +1,11 @@
+**Islamic Scholar’s Post-Sept. 11 Convictions Are Tossed on Free Speech Grounds**\
+`Federal judges ruled that an Islamic teacher’s statements goading men in Virginia to join an overseas militant group were protected by the First Amendment.`\
+https://nytimes.com/2026/01/18/us/sept-11-convictions-overturned-first-amendment.html
+
+**Texans' Dalton Schultz ruled out vs. Patriots with calf injury**\
+`Injury is a blow to Houston's passing game, which is already without leading receiver Nico Collins.`\
+https://nytimes.com/athletic/6981270/2026/01/18/texans-te-dalton-schultz-calf-injury-questionable/
+
 **Florida transfer QB DJ Lagway makes it official and signs with Baylor**\
 `Baylor had several holes to fill on its roster. None was bigger than QB, where Sawyer Robertson has exhausted his eligibility. `\
 https://nytimes.com/athletic/6963938/2026/01/18/dj-lagway-transfer-baylor-florida-quarterback/
