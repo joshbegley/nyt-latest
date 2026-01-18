@@ -1,3 +1,7 @@
+**Noem Denies Use of Chemical Agents in Minnesota, Then Backtracks**\
+`Kristi Noem, the homeland security secretary, said officers had not used pepper spray and similar measures limited by a judge’s order, then was confronted with a video that showed chemical agents deployed.`\
+https://nytimes.com/2026/01/18/us/politics/noem-chemical-agents-minnesota.html
+
 **Trump’s Ultimatum to Europe**\
 `Trump threatened heavy tariffs on countries standing between him and Greenland. E.U. leaders are scrambling for a response.`\
 https://nytimes.com/2026/01/18/world/greenland-europe-tariffs-kyiv.html
