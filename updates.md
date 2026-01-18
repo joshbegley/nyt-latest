@@ -1,3 +1,15 @@
+**Footballer arrested in Wales on suspicion of assault after viral video**\
+`Welsh third-tier club Treaddur Bay said they have released the suspended player with immediate effect and they do "not condone violence".`\
+https://nytimes.com/athletic/6981129/2026/01/18/footballer-assault-wales-video/
+
+**Broncos-Bills ending reminded Sabres' Lindy Ruff of 1999 Stanley Cup 'no goal'**\
+`The Bills' overtime loss was eerily reminiscent of another heartbreaking moment in Buffalo sports history.`\
+https://nytimes.com/athletic/6981003/2026/01/18/bills-broncos-int-game-sabres-lindy-ruff/
+
+**Footballer arrested in Wales on suspicion of assault after viral video**\
+`Welsh third-tier club Treaddur Bay said they have released the suspended player with immediate effect and they do "not condone violence".`\
+https://nytimes.com/athletic/6980999/2026/01/18/footballer-assault-video-wales/
+
 **How to watch Raptors vs. Lakers: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the Los Angeles Lakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6981107/2026/01/18/raptors-vs-lakers-stream-how-to-watch-jan-18/

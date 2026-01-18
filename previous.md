@@ -1,3 +1,15 @@
+**Footballer arrested in Wales on suspicion of assault after viral video**\
+`Welsh third-tier club Treaddur Bay said they have released the suspended player with immediate effect and they do "not condone violence".`\
+https://nytimes.com/athletic/6981129/2026/01/18/footballer-assault-wales-video/
+
+**Broncos-Bills ending reminded Sabres' Lindy Ruff of 1999 Stanley Cup 'no goal'**\
+`The Bills' overtime loss was eerily reminiscent of another heartbreaking moment in Buffalo sports history.`\
+https://nytimes.com/athletic/6981003/2026/01/18/bills-broncos-int-game-sabres-lindy-ruff/
+
+**Footballer arrested in Wales on suspicion of assault after viral video**\
+`Welsh third-tier club Treaddur Bay said they have released the suspended player with immediate effect and they do "not condone violence".`\
+https://nytimes.com/athletic/6980999/2026/01/18/footballer-assault-video-wales/
+
 **How to watch Raptors vs. Lakers: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the Los Angeles Lakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6981107/2026/01/18/raptors-vs-lakers-stream-how-to-watch-jan-18/
@@ -21,16 +33,4 @@ https://nytimes.com/2026/01/18/obituaries/joe-montgomery-dead.html
 **Red Wings' Redmond to take medical absence from TV broadcast**\
 `The iconic broadcaster is set to undergo surgery to address chronic neck issues.`\
 https://nytimes.com/athletic/6981009/2026/01/18/mickey-redmond-red-wings-medical-absence-tv/
-
-**How to watch Michigan State vs. Iowa women's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan State Spartans play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6981064/2026/01/18/michigan-state-vs-iowa-stream-how-to-watch-jan-18/
-
-**Springsteen Denounces ICE Deployments and Renee Good’s Killing**\
-`In a surprise appearance in New Jersey, the musician dedicated his song “The Promised Land” to Ms. Good, who was killed by an ICE agent in Minneapolis this month.`\
-https://nytimes.com/2026/01/18/arts/music/springsteen-ice-minneapolis.html
-
-**Kawhi Leonard to miss next 2 Clippers games with left knee irritation**\
-`The small forward will be reassessed when the Clippers return home before Thursday’s game against the Los Angeles Lakers.`\
-https://nytimes.com/athletic/6980937/2026/01/18/kawhi-leonard-left-knee-injury/
 
