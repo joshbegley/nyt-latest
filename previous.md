@@ -1,3 +1,11 @@
+**Trump Threatens New Tariffs To Force Sale of Greenland**\
+`On Saturday morning, President Trump announced in a social media post his latest strategy to seize control of Greenland: He is slapping new tariffs on a group of European nations until they come to the negotiating table to sell Greenland.`\
+https://nytimes.com/video/us/politics/100000010652071/greenland-trump-europe-tariffs.html
+
+**Flyers nosedive continues as they're blown out again: 'We sucked, plain and simple'**\
+`"You can't really afford to go on slides like this. ... (We'll) try to get out of this hole," Cam York said. `\
+https://nytimes.com/athletic/6979653/2026/01/17/flyers-lose-rangers-streak-continues/
+
 **Matt LaFleur, Packers finalizing terms on multi-year contract extension: Sources**\
 `Team president Ed Policy didn't want a lame-duck head coach in the final year of a contract, so he decided to extend LaFleur.`\
 https://nytimes.com/athletic/6962199/2026/01/17/matt-lafleur-packers-contract-extension/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/17/crosswords/daily-puzzle-2026-01-18.html
 **The 1.18.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/01/17/the-11825-issue
-
-**Kansas State stuns Texas Tech, hands Red Raiders first loss of season**\
-`The Wildcats held the Red Raiders without a field goal in the final 2:24 to spring the upset.`\
-https://nytimes.com/athletic/6979561/2026/01/17/kansas-state-texas-tech-first-loss/
-
-**No excuses as severely short-handed Wild beat red-hot Sabres in OT: Takeaways**\
-`Despite missing several key players and not being able to hold a two-goal lead, Minnesota starts three-game trip with a win.`\
-https://nytimes.com/athletic/6979183/2026/01/17/wild-sabres-overtime-injuries-takeaways/
 

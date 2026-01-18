@@ -2,11 +2,11 @@
 `On Saturday morning, President Trump announced in a social media post his latest strategy to seize control of Greenland: He is slapping new tariffs on a group of European nations until they come to the negotiating table to sell Greenland.`\
 https://nytimes.com/video/us/politics/100000010652071/greenland-trump-europe-tariffs.html
 
-**Flyers nosedive continues as they're blown out again: 'We sucked, plain and simple'**\
+**Flyers' nosedive continues as they're blown out again: 'We sucked, plain and simple'**\
 `"You can't really afford to go on slides like this. ... (We'll) try to get out of this hole," Cam York said. `\
 https://nytimes.com/athletic/6979653/2026/01/17/flyers-lose-rangers-streak-continues/
 
-**Matt LaFleur, Packers finalizing terms on multi-year contract extension: Sources**\
+**Matt LaFleur, Packers finalizing multi-year contract extension: Sources**\
 `Team president Ed Policy didn't want a lame-duck head coach in the final year of a contract, so he decided to extend LaFleur.`\
 https://nytimes.com/athletic/6962199/2026/01/17/matt-lafleur-packers-contract-extension/
 
