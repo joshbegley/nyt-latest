@@ -1,3 +1,7 @@
+**After U.S. Reignites a Trade War Over Greenland, Europe Weighs Going All-Out**\
+`Europe’s dependence on the United States for NATO security limits its options. Its strongest response could be retaliating with its own trade “bazooka.”`\
+https://nytimes.com/2026/01/18/world/europe/greenland-us-trade-war.html
+
 **NFL playoffs streaming guide: Texans-Patriots, Rams-Bears in Sunday divisional games**\
 `Sunday looks superb for playoff football. NFL divisional-round action closes with games at Gillette Stadium and Soldier Field. `\
 https://nytimes.com/athletic/6971649/2026/01/18/nfl-playoffs-texans-patriots-rams-bears-tv-streaming/

@@ -1,3 +1,7 @@
+**After U.S. Reignites a Trade War Over Greenland, Europe Weighs Going All-Out**\
+`Europe’s dependence on the United States for NATO security limits its options. Its strongest response could be retaliating with its own trade “bazooka.”`\
+https://nytimes.com/2026/01/18/world/europe/greenland-us-trade-war.html
+
 **NFL playoffs streaming guide: Texans-Patriots, Rams-Bears in Sunday divisional games**\
 `Sunday looks superb for playoff football. NFL divisional-round action closes with games at Gillette Stadium and Soldier Field. `\
 https://nytimes.com/athletic/6971649/2026/01/18/nfl-playoffs-texans-patriots-rams-bears-tv-streaming/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/18/opinion/lula-venezuela-trump.html
 **The Message in Renee Good’s Last Words**\
 `The ICE agent who shot Renee Good did not seem to hear what she was really saying.`\
 https://nytimes.com/2026/01/18/opinion/renee-good-last-words.html
-
-**Senators' goaltending issues loom large after loss to Canadiens**\
-`The Sens' margin of error is thin due to their goaltending. And that problem has never been more evident than in recent weeks.`\
-https://nytimes.com/athletic/6979798/2026/01/18/senators-goaltending-merilainen-reimer-ullmark/
 
