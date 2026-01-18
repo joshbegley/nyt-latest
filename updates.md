@@ -1,3 +1,15 @@
+**Rare college hockey fight involving Blackhawks prospect results in automatic suspensions**\
+`Fighting is illegal in college hockey and results in a five-minute major, an immediate ejection and automatic suspension for another game.`\
+https://nytimes.com/athletic/6979851/2026/01/17/college-hockey-fight-sacha-boisvert-connor-eddy/
+
+**Steve Kerr doesn't think another team can surpass Warriors' 73-win season**\
+`Kerr said that while he remains very proud of the accomplishment, the season isn't something that the group discusses.`\
+https://nytimes.com/athletic/6979775/2026/01/17/steve-kerr-comments-warriors-2016-season-okc-thunder/
+
+**Broncos QB Bo Nix out for season after breaking ankle bone vs. Bills**\
+`Nix is scheduled to have surgery in Alabama next week.`\
+https://nytimes.com/athletic/6979838/2026/01/17/bo-nix-ankle-injury-season-ending-surgery/
+
 **Falcons hiring Kevin Stefanski as head coach: Source**\
 `Stefanski was 45-56 in six seasons with the Cleveland Browns and NFL Coach of the Year twice (2020 and 2023).`\
 https://nytimes.com/athletic/6978950/2026/01/17/kevin-stefanski-falcons-head-coach/
