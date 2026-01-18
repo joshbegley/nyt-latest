@@ -1,5 +1,5 @@
 **Broncos QB Bo Nix out for season after suffering ankle injury vs. Bills**\
-`Nix is scheduled to have surgery in Birmingham, Alabama next week.`\
+`Nix is scheduled to have surgery in Birmingham, Alabama, next week.`\
 https://nytimes.com/athletic/6979838/2026/01/17/bo-nix-ankle-injury-season-ending-surgery/
 
 **Broncos, Bo Nix win overtime thriller for first AFC Championship Game since 2015**\
