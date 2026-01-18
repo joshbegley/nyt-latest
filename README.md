@@ -1,3 +1,7 @@
+**Wrexham 'learn their lesson' after slow start in second half leads to Norwich defeat**\
+`Wrexham's 10-match unbeaten run came to an end against Norwich after a slow and 'sloppy' start to the second half`\
+https://nytimes.com/athletic/6979473/2026/01/18/wrexham-medical-emergency-norwich/
+
 **On James Talarico**\
 `The Democratic Senate candidate is campaigning on his faith.`\
 https://nytimes.com/2026/01/18/briefing/on-james-talarico.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6977693/2026/01/18/this-feels-like-the-end-for-oliv
 **Is Frank's relationship with Tottenham fans broken for good?**\
 `Spurs fans have got used to poor performances and results - but defeat to West Ham was about the damage done to Frank's reputation with them`\
 https://nytimes.com/athletic/6966044/2026/01/18/frank-tottenham-fans-boo-premier-league/
-
-**It's tense at Real Madrid. The fans have the players and Florentino Perez in their sights**\
-`It has been quite the week at the Bernabeu. The fans made their feelings known in Alvaro Arbeloa's first league game in charge `\
-https://nytimes.com/athletic/6978832/2026/01/18/real-madrid-fans-protests-perez-vinicius-bellingham/
 
