@@ -1,3 +1,15 @@
+**AFCON final, Senegal v Morocco: Can hosts end 50-year wait or will Mane and co spoil the party?**\
+`The home side will begin as favourites but their opponents know what it takes to win this competition`\
+https://nytimes.com/athletic/6976595/2026/01/18/afcon-final-preview-morocco-senegal/
+
+**Manchester City's abject defeat at Old Trafford: Trying to explain the inexplicable**\
+`So much went wrong for Pep Guardiola on Saturday, it is hard to know when to start`\
+https://nytimes.com/athletic/6979009/2026/01/18/manchester-city-manchester-united-defeat/
+
+**The days that shook club football (and sometimes our reporters)**\
+`There are some days when breaking news absolutely blindsides a football club. Here are some of the moments that have rocked sides in Europe`\
+https://nytimes.com/athletic/6977085/2026/01/18/days-that-shook-club-football/
+
 **A golden generation of Senegal stars is coming to the end. Another is emerging**\
 `The 2026 AFCON final is likely to be the last on the continent for Senegal's ageing stars. But the future appears to be increasingly bright`\
 https://nytimes.com/athletic/6978582/2026/01/18/senegal-new-golden-generation-mane-mbaye-sarr/
@@ -21,16 +33,4 @@ https://nytimes.com/2026/01/18/world/europe/london-chimney-sweeps-energy-prices.
 **The Dark History of France’s Embassy in Iraq Goes on Trial in Paris**\
 `A Jewish family that fled Iraq generations ago rented its home to France for use as an embassy, but Paris long ago stopped paying it rent, after Iraq stripped Jews of property.`\
 https://nytimes.com/2026/01/18/world/middleeast/jewish-family-iraq-embassy-.html
-
-**The Athletic Show: Inside the wild, frantic world of NFL RedZone**\
-`What breakfast item allows RedZone host Scott Hanson to get through a 12-hour live broadcast? Find out on Episode 10 of "The Athletic Show."`\
-https://nytimes.com/athletic/6977773/2026/01/18/the-athletic-show-behind-the-scenes-nfl-redzone/
-
-**Connections: Sports Edition Coach: Hints for Jan. 18, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6980003/2026/01/18/connections-sports-edition-hints-for-jan-18-2026/
-
-**No Corrections: Jan. 18, 2026**\
-`No corrections appeared in print on Sunday, Jan. 18, 2026.`\
-https://nytimes.com/2026/01/18/pageoneplus/no-corrections-jan-18-2026.html
 
