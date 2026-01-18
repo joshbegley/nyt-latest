@@ -1,3 +1,7 @@
+**Armed Robbers Steal At Least $110,000 Worth of Pokémon Cards**\
+`Three men stole at least $110,00 worth of Pokémon cards from a shop in Lower Manhattan on Wednesday.`\
+https://nytimes.com/video/nyregion/100000010651129/pokemon-card-shop-robbery-new-york-video.html
+
 **Former Capitals assistant Mitch Love named head coach in KHL amid NHL suspension**\
 `Love, who is the new head coach of the Shanghai Dragons, was suspended for the 2025-26 NHL season, reportedly due to alleged domestic abuse.`\
 https://nytimes.com/athletic/6979605/2026/01/17/mitch-love-khl-shanghai-dragons-nhl-suspension/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979183/2026/01/17/wild-sabres-overtime-injuries-ta
 **‘Yankee, Go Home’: Greenlanders Protest Trump’s Takeover Plans**\
 `Protests erupted in several Greenlandic cites and in Denmark as President Trump intensified his efforts to take control of the Arctic island.`\
 https://nytimes.com/2026/01/17/world/europe/greenland-denmark-protest-trump-takeover.html
-
-**Titans schedule second interviews with 3 candidates as search narrows: Sources**\
-`Matt Nagy, Jeff Hafley and Kevin Stefanski are all slated for second interviews with the Tennessee Titans in the coming days.`\
-https://nytimes.com/athletic/6979496/2026/01/17/titans-in-person-interviews-matt-nagy-stefanski-hafley/
 
