@@ -1,3 +1,7 @@
+**Matt LaFleur, Packers finalizing terms on multi-year contract extension: Sources**\
+`Team president Ed Policy didn't want a lame-duck head coach in the final year of a contract, so he decided to extend LaFleur.`\
+https://nytimes.com/athletic/6962199/2026/01/17/matt-lafleur-packers-contract-extension/
+
 **Armed Robbers Steal At Least $110,000 Worth of Pokémon Cards**\
 `Three men stole at least $110,00 worth of Pokémon cards from a shop in Lower Manhattan on Wednesday.`\
 https://nytimes.com/video/nyregion/100000010651129/pokemon-card-shop-robbery-new-york-video.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979561/2026/01/17/kansas-state-texas-tech-first-lo
 **No excuses as severely short-handed Wild beat red-hot Sabres in OT: Takeaways**\
 `Despite missing several key players and not being able to hold a two-goal lead, Minnesota starts three-game trip with a win.`\
 https://nytimes.com/athletic/6979183/2026/01/17/wild-sabres-overtime-injuries-takeaways/
-
-**‘Yankee, Go Home’: Greenlanders Protest Trump’s Takeover Plans**\
-`Protests erupted in several Greenlandic cites and in Denmark as President Trump intensified his efforts to take control of the Arctic island.`\
-https://nytimes.com/2026/01/17/world/europe/greenland-denmark-protest-trump-takeover.html
 
