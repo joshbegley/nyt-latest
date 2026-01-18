@@ -1,3 +1,19 @@
+**How to watch South Carolina vs. Coppin State women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the Coppin State Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980378/2026/01/18/south-carolina-vs-coppin-state-stream-how-to-watch-jan-18/
+
+**How to watch Ole Miss vs. Georgia women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Georgia Lady Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980376/2026/01/18/ole-miss-vs-georgia-stream-how-to-watch-jan-18/
+
+**How to watch Iowa State vs. Oklahoma State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980374/2026/01/18/iowa-state-vs-oklahoma-state-stream-how-to-watch-jan-18/
+
+**How to watch Louisville vs. NC State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the NC State Lady Wolfpack, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980372/2026/01/18/louisville-vs-nc-state-stream-how-to-watch-jan-18/
+
 **Buttigieg and Booker Lead Push to Hammer Republicans on Health Care**\
 `The potential 2028 presidential candidates showcased a Democratic midterm strategy that would assail G.O.P. votes in favor of cutting Medicaid and allowing health care subsidies to expire.`\
 https://nytimes.com/2026/01/18/us/politics/democrats-health-care-booker-buttigieg.html
@@ -17,20 +33,4 @@ https://nytimes.com/2026/01/18/opinion/mlk-voting-rights-act.html
 **Why It’s Hard to Run Venezuela**\
 `Venezuela sprawls over terrain twice the size of California, with vast tracts of treacherous jungles, steep mountains and cities filled with guns.`\
 https://nytimes.com/interactive/2026/01/18/world/americas/venezuela-governing-challenges.html
-
-**Spain legend Andres Iniesta lined up for role with Moroccan FA**\
-`The former Barcelona and Spain midfielder has been invited to Sunday's African Cup of Nations final against Senegal in Rabat.`\
-https://nytimes.com/athletic/6980336/2026/01/18/andres-iniesta-morocco-football-association/
-
-**The future of American men's tennis tries to take over the present**\
-`Learner Tien and Alex Michelsen have long careers and many dreams ahead of them. They want to grasp them sooner than later.`\
-https://nytimes.com/athletic/6958185/2026/01/18/tennis-american-men-next-generation-tien-michelsen/
-
-**Did Hunter S. Thompson Really Kill Himself?**\
-`At the request of Thompson’s widow, the Colorado authorities are re-examining his death. “The whole Hunter world is buzzing,” a lawyer said.`\
-https://nytimes.com/interactive/2026/01/18/us/hunter-s-thompson-suicide-colorado.html
-
-**Under Patel, F.B.I. Scours Its Records to Discredit Trump Opponents**\
-`As the F.B.I. has added payback to its portfolio, Republican lawmakers like Senator Charles E. Grassley have emerged as a clearinghouse for leaks and whistle-blowers.`\
-https://nytimes.com/2026/01/18/us/politics/kash-patel-grassley-payback.html
 

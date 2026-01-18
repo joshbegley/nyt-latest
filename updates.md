@@ -1,3 +1,19 @@
+**How to watch South Carolina vs. Coppin State women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the Coppin State Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980378/2026/01/18/south-carolina-vs-coppin-state-stream-how-to-watch-jan-18/
+
+**How to watch Ole Miss vs. Georgia women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Georgia Lady Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980376/2026/01/18/ole-miss-vs-georgia-stream-how-to-watch-jan-18/
+
+**How to watch Iowa State vs. Oklahoma State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980374/2026/01/18/iowa-state-vs-oklahoma-state-stream-how-to-watch-jan-18/
+
+**How to watch Louisville vs. NC State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the NC State Lady Wolfpack, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980372/2026/01/18/louisville-vs-nc-state-stream-how-to-watch-jan-18/
+
 **Buttigieg and Booker Lead Push to Hammer Republicans on Health Care**\
 `The potential 2028 presidential candidates showcased a Democratic midterm strategy that would assail G.O.P. votes in favor of cutting Medicaid and allowing health care subsidies to expire.`\
 https://nytimes.com/2026/01/18/us/politics/democrats-health-care-booker-buttigieg.html

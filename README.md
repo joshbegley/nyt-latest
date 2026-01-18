@@ -1,3 +1,7 @@
+**How to watch Magic vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980383/2026/01/18/magic-vs-grizzlies-stream-how-to-watch-jan-18/
+
 **How to watch South Carolina vs. Coppin State women's basketball: Time, TV, streaming**\
 `Find out how to watch the South Carolina Gamecocks play the Coppin State Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6980378/2026/01/18/south-carolina-vs-coppin-state-stream-how-to-watch-jan-18/
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2026/01/18/us/trump-deportation-numbers-immigrat
 **Martin Luther King’s Son: ‘Justice Demands Endurance’**\
 `Martin Luther King’s son and Norm Ornstein, a leading scholar of voting rights, discuss a case that could hollow out the Voting Rights Act.`\
 https://nytimes.com/2026/01/18/opinion/mlk-voting-rights-act.html
-
-**Why It’s Hard to Run Venezuela**\
-`Venezuela sprawls over terrain twice the size of California, with vast tracts of treacherous jungles, steep mountains and cities filled with guns.`\
-https://nytimes.com/interactive/2026/01/18/world/americas/venezuela-governing-challenges.html
 
