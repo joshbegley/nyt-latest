@@ -1,3 +1,7 @@
+**Arsenal and another missed opportunity**\
+`Mikel Arteta's team do not seem to enjoy their trips to Nottingham Forest. They failed to take the chance of going nine points clear`\
+https://nytimes.com/athletic/6979541/2026/01/18/arsenal-arteta-missed-opportunity/
+
 **Wrexham 'learn their lesson' after slow start in second half leads to Norwich defeat**\
 `Wrexham's 10-match unbeaten run came to an end against Norwich after a slow and 'sloppy' start to the second half`\
 https://nytimes.com/athletic/6979473/2026/01/18/wrexham-medical-emergency-norwich/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6928571/2026/01/18/arne-slot-xabi-alonso-and-an-air
 **This feels like the end for Glasner at Crystal Palace**\
 `Oliver Glasner did not hold back in his press conference after defeat to Sunderland. There may be no way back for him at Palace.`\
 https://nytimes.com/athletic/6977693/2026/01/18/this-feels-like-the-end-for-oliver-glasner-at-crystal-palace/
-
-**Is Frank's relationship with Tottenham fans broken for good?**\
-`Spurs fans have got used to poor performances and results - but defeat to West Ham was about the damage done to Frank's reputation with them`\
-https://nytimes.com/athletic/6966044/2026/01/18/frank-tottenham-fans-boo-premier-league/
 
