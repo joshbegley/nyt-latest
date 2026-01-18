@@ -1,3 +1,7 @@
+**Ja Morant returns from calf injury, shines for London crowd in Grizzlies win vs. Magic**\
+`Morant, amid trade rumors, returned from injury with a big performance, helping the Memphis Grizzlies top the Orlando Magic in London.`\
+https://nytimes.com/athletic/6981162/2026/01/18/ja-morant-grizzlies-nba-injury-magic-london/
+
 **Footballer arrested in Wales on suspicion of assault after viral video**\
 `Welsh third-tier club Treaddur Bay said they have released the suspended player with immediate effect and they do "not condone violence".`\
 https://nytimes.com/athletic/6981129/2026/01/18/footballer-assault-wales-video/
