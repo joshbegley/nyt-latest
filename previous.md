@@ -1,3 +1,7 @@
+**On James Talarico**\
+`The Democratic Senate candidate is campaigning on his faith.`\
+https://nytimes.com/2026/01/18/briefing/on-james-talarico.html
+
 **What ‘Landman’ Understands About Oil**\
 `The show does far more to criticize the oil and gas industry than it does to bolster it.`\
 https://nytimes.com/2026/01/18/opinion/landman-sheridan-oil-accuracy.html
@@ -15,7 +19,7 @@ https://nytimes.com/2026/01/18/opinion/trump-one-year-later.html
 https://nytimes.com/athletic/6980063/2026/01/18/auston-matthews-toronto-maple-leafs-playoff-hunt/
 
 **Slot, Alonso and an air of uncertainty at Liverpool following Burnley draw**\
-`There are no plans to replace Arne Slot as Liverpool head coach, but the Dutchman needs to find momentum to salvage the season.`\
+`There are no plans to replace Arne Slot as Liverpool head coach, but the Dutchman needs to find momentum to salvage the season`\
 https://nytimes.com/athletic/6928571/2026/01/18/arne-slot-xabi-alonso-and-an-air-of-uncertainty-at-liverpool-following-burnley-draw/
 
 **This feels like the end for Glasner at Crystal Palace**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6966044/2026/01/18/frank-tottenham-fans-boo-premier
 **It's tense at Real Madrid. The fans have the players and Florentino Perez in their sights**\
 `It has been quite the week at the Bernabeu. The fans made their feelings known in Alvaro Arbeloa's first league game in charge `\
 https://nytimes.com/athletic/6978832/2026/01/18/real-madrid-fans-protests-perez-vinicius-bellingham/
-
-**Manchester United are back***\
-`Saturday's display could have been United's best since 2024, but we have been here before with interim managers...`\
-https://nytimes.com/athletic/6979370/2026/01/18/manchester-united-michael-carrick-win/
 
