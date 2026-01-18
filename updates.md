@@ -1,3 +1,7 @@
+**Broncos QB Bo Nix out for season after suffering ankle injury vs. Bills**\
+`Nix is scheduled to have surgery in Birmingham, Alabama next week.`\
+https://nytimes.com/athletic/6979838/2026/01/17/bo-nix-ankle-injury-season-ending-surgery/
+
 **Packers extend Matt LaFleur, near deal with GM Brian Gutekunst: Sources**\
 `Team president Ed Policy has said he's generally opposed to having a lame-duck head coach or general manager.`\
 https://nytimes.com/athletic/6962199/2026/01/17/matt-lafleur-packers-contract-extension/
