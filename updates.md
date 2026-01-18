@@ -1,3 +1,7 @@
+**Broncos add QB Ben DiNucci to practice squad with Bo Nix out**\
+`The veteran adds some insurance behind Jarrett Stidham and Sam Ehlinger ahead of the AFC Championship Game.`\
+https://nytimes.com/athletic/6981446/2026/01/18/broncos-ben-dinucci-quarterback-bo-nix/
+
 **Ralph Towner, Eclectic Guitarist With the Ensemble Oregon, Dies at 85**\
 `A composer and pianist as well, he was a prolific recording artist who integrated jazz, classical and world music traditions over six decades.`\
 https://nytimes.com/2026/01/18/arts/ralph-towner-dead.html
