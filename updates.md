@@ -1,3 +1,7 @@
+**How cafecito — Miami's beloved Cuban espresso — became a pregame Canes tradition**\
+`Cafecito is ubiquitous in Miami’s culture, and a Hurricanes assistant has become the team's pregame barista.`\
+https://nytimes.com/athletic/6979207/2026/01/18/miami-football-cafecito-espresso-pregame/
+
 **Josh Allen's tears should tell the Bills everything: This isn't working**\
 `For their Superman quarterback to take the Bills where they want to go, they’re going to have to find a way to reduce his burden.`\
 https://nytimes.com/athletic/6980124/2026/01/18/josh-allen-crying-bills-broncos/
