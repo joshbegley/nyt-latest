@@ -1,3 +1,7 @@
+**Bills' Sean McDermott frustrated with officiating process on overtime interception**\
+`"I’m standing up for Buffalo, dammit," McDermott said. "What went on, that is not how it should go down, in my estimation."`\
+https://nytimes.com/athletic/6979884/2026/01/17/sean-mcdermott-comments-officiating-bills-broncos-overtime/
+
 **Seahawks RB Zach Charbonnet questionable to return with knee injury**\
 `The Seattle running back was injured in the first half of his team's NFC divisional-round game against the 49ers.`\
 https://nytimes.com/athletic/6979895/2026/01/17/seahawks-zach-charbonnet-knee-injury-49ers-playoffs/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979285/2026/01/17/broncos-bo-nix-win-overtime-thri
 **Artemi Panarin 'confused' about Rangers' retool plans, plus what I'm hearing about what's next**\
 `Everything Panarin did on the ice Saturday in New York's 6-3 win over Flyers appeared carefree.`\
 https://nytimes.com/athletic/6979529/2026/01/17/artemi-panarin-ny-rangers-retool/
-
-**Trump Threatens New Tariffs To Force Sale of Greenland**\
-`On Saturday morning, President Trump announced in a social media post his latest strategy to seize control of Greenland: He is slapping new tariffs on a group of European nations until they come to the negotiating table to sell Greenland.`\
-https://nytimes.com/video/us/politics/100000010652071/greenland-trump-europe-tariffs.html
 
