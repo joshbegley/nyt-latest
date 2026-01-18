@@ -1,3 +1,7 @@
+**Bleak Times in Copenhagen: Danes Feel Betrayed and Bewildered by Trump**\
+`The American president’s vow to get Greenland, the semiautonomous Danish territory, has thrown the tiny, pro-American Nordic nation into crisis.`\
+https://nytimes.com/2026/01/18/world/europe/denmark-greenland-trump.html
+
 **The Pulse: Denver's costly win**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6979981/2026/01/18/denvers-playoff-win-comes-with-a-devastating-cost-as-seattle-rolls/

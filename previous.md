@@ -1,3 +1,7 @@
+**Bleak Times in Copenhagen: Danes Feel Betrayed and Bewildered by Trump**\
+`The American president’s vow to get Greenland, the semiautonomous Danish territory, has thrown the tiny, pro-American Nordic nation into crisis.`\
+https://nytimes.com/2026/01/18/world/europe/denmark-greenland-trump.html
+
 **The Pulse: Denver's costly win**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6979981/2026/01/18/denvers-playoff-win-comes-with-a-devastating-cost-as-seattle-rolls/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979621/2026/01/18/college-basketball-scores-result
 **How to watch Lightning vs. Stars: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6980550/2026/01/18/lightning-vs-stars-stream-how-to-watch-jan-18/
-
-**Australian Open Day 1 recap: Carlos Alcaraz rolls through to start pursuit of career Grand Slam**\
-`Alcaraz absorbed a high-level performance from home hope Adam Walton in Melbourne.`\
-https://nytimes.com/athletic/6979717/2026/01/18/tennis-australian-open-recap-results-day-1/
 
