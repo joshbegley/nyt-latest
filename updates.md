@@ -1,3 +1,15 @@
+**Braves' Ha-Seong Kim to miss 4 to 5 months after undergoing finger surgery**\
+`The Braves re-signed the 30-year-old shortstop in December to a one-year, $20 million deal after claiming him off waivers on Sept. 1.`\
+https://nytimes.com/athletic/6981210/2026/01/18/braves-ha-seong-kim-hand-injury-underwent-surgery/
+
+**Still no decision on CFP expansion ahead of Friday deadline to make call on 2026**\
+`The Big Ten's Tony Petitti and the SEC's Greg Sankey hold the keys to expansion, and their conferences have been at an impasse for months.`\
+https://nytimes.com/athletic/6980856/2026/01/18/college-football-playoff-expansion-2026-format/
+
+**After whirlwind night, Broncos' Sean Payton embracing conference title game challenge**\
+`The Broncos will learn their opponent for next week's AFC Championship Game on Sunday and begin making a game plan for Jarrett Stidham.`\
+https://nytimes.com/athletic/6980992/2026/01/18/sean-payton-embracing-broncos-conference-title-game-challenge-without-bo-nix/
+
 **After Broncos' whirlwind night, Sean Payton embracing conference title game challenge**\
 `The Broncos will learn their opponent for next week's AFC Championship Game on Sunday and begin making a game plan for Jarrett Stidham.`\
 https://nytimes.com/athletic/6980992/2026/01/18/sean-payton-embracing-broncos-conference-title-game-challenge-without-bo-nix/
