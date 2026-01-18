@@ -19,7 +19,7 @@ https://nytimes.com/2026/01/17/us/politics/spanberger-virginia-uva-board.html
 https://nytimes.com/2026/01/17/us/politics/2028-democratic-primary-states-iowa-south-carolina-nevada-new-hampshire.html
 
 **Bills' Sean McDermott frustrated with officiating process on overtime interception**\
-`"I’m standing up for Buffalo, dammit," McDermott said. "What went on, that is not how it should go down, in my estimation."`\
+`"I’m standing up for Buffalo, dammit," McDermott said. "What went on — that is not how it should go down, in my estimation."`\
 https://nytimes.com/athletic/6979884/2026/01/17/sean-mcdermott-comments-officiating-bills-broncos-overtime/
 
 **Seahawks RB Zach Charbonnet questionable to return with knee injury**\
