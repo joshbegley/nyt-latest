@@ -1,3 +1,11 @@
+**Ferocious Seahawks overwhelm 49ers, advance to NFC Championship Game**\
+`The Seahawks scored on the opening kickoff and never looked back against the undermanned 49ers.`\
+https://nytimes.com/athletic/6979806/2026/01/17/49ers-seahawks-score-result-takeaways-nfl-divisional-round/
+
+**NFL playoff schedule: Seahawks, Broncos advance to conference championships**\
+`The Broncos survived an OT thriller against the Bills to advance while the Seahawks dominated against the 49ers.`\
+https://nytimes.com/athletic/6979795/2026/01/17/2025-26-nfl-conference-championship-schedule/
+
 **Broncos Eliminate Bills in Overtime to Advance in N.F.L. Playoffs**\
 `Denver forced five Buffalo turnovers in a 33-30 victory and will host the winner of New England versus Houston in the A.F.C. Championship game.`\
 https://nytimes.com/video/the-athletic/100000010652397/broncos-eliminate-bills-in-overtime-to-advance-in-nfl-playoffs.html
