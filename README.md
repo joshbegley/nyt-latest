@@ -1,3 +1,11 @@
+**Rare college hockey fight involving Blackhawks prospect results in automatic suspensions**\
+`Fighting is illegal in college hockey and results in a five-minute major, an immediate ejection and automatic suspension for another game.`\
+https://nytimes.com/athletic/6979851/2026/01/17/college-hockey-fight-sacha-boisvert-connor-eddy/
+
+**Steve Kerr doesn't think another team can surpass Warriors' 73-win season**\
+`Kerr said that while he remains very proud of the accomplishment, the season isn't something that the group discusses.`\
+https://nytimes.com/athletic/6979775/2026/01/17/steve-kerr-comments-warriors-2016-season-okc-thunder/
+
 **Falcons hiring Kevin Stefanski as head coach: Source**\
 `Stefanski was 45-56 in six seasons with the Cleveland Browns and NFL Coach of the Year twice (2020 and 2023).`\
 https://nytimes.com/athletic/6978950/2026/01/17/kevin-stefanski-falcons-head-coach/
@@ -6,8 +14,8 @@ https://nytimes.com/athletic/6978950/2026/01/17/kevin-stefanski-falcons-head-coa
 `The American, who was one of the stories of last year's U.S. Open, will enter the first round as a lucky loser.`\
 https://nytimes.com/athletic/6979842/2026/01/17/australian-open-tennis-taylor-townsend-marketa-vondrousova/
 
-**Broncos QB Bo Nix out for season after suffering ankle injury vs. Bills**\
-`Nix is scheduled to have surgery in Birmingham, Ala., next week.`\
+**Broncos QB Bo Nix out for season after breaking ankle bone vs. Bills**\
+`Nix is scheduled to have surgery in Alabama next week.`\
 https://nytimes.com/athletic/6979838/2026/01/17/bo-nix-ankle-injury-season-ending-surgery/
 
 **Broncos win OT thriller for first AFC Championship Game since 2015, but lose Bo Nix**\
@@ -25,12 +33,4 @@ https://nytimes.com/video/us/politics/100000010652071/greenland-trump-europe-tar
 **Flyers' nosedive continues as they're blown out again: 'We sucked, plain and simple'**\
 `"You can't really afford to go on slides like this. ... (We'll) try to get out of this hole," Cam York said. `\
 https://nytimes.com/athletic/6979653/2026/01/17/flyers-lose-rangers-streak-continues/
-
-**Packers extend Matt LaFleur, near deal with GM Brian Gutekunst: Sources**\
-`Team president Ed Policy has said he's generally opposed to having a lame-duck head coach or general manager.`\
-https://nytimes.com/athletic/6962199/2026/01/17/matt-lafleur-packers-contract-extension/
-
-**Armed Robbers Steal At Least $110,000 Worth of Pokémon Cards**\
-`Three men stole at least $110,00 worth of Pokémon cards from a shop in Lower Manhattan on Wednesday.`\
-https://nytimes.com/video/nyregion/100000010651129/pokemon-card-shop-robbery-new-york-video.html
 

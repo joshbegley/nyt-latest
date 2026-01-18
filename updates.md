@@ -1,3 +1,11 @@
+**Falcons hiring Kevin Stefanski as head coach: Source**\
+`Stefanski was 45-56 in six seasons with the Cleveland Browns and NFL Coach of the Year twice (2020 and 2023).`\
+https://nytimes.com/athletic/6978950/2026/01/17/kevin-stefanski-falcons-head-coach/
+
+**Broncos QB Bo Nix out for season after suffering ankle injury vs. Bills**\
+`Nix is scheduled to have surgery in Birmingham, Ala., next week.`\
+https://nytimes.com/athletic/6979838/2026/01/17/bo-nix-ankle-injury-season-ending-surgery/
+
 **Taylor Townsend gets into Australian Open after Markéta Vondroušová withdraws**\
 `The American, who was one of the stories of last year's U.S. Open, will enter the first round as a lucky loser.`\
 https://nytimes.com/athletic/6979842/2026/01/17/australian-open-tennis-taylor-townsend-marketa-vondrousova/
