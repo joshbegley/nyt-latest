@@ -1,3 +1,7 @@
+**NFL rules analyst weighs in on controversial Broncos overtime INT vs. Bills**\
+`NFL Rules analyst Walt Anderson gives his take on the Denver Broncos controversial overtime interception against Buffalo Bills.`\
+https://nytimes.com/athletic/6980891/2026/01/18/broncos-bills-controversial-interception-nfl-rules-analyst/
+
 **NFL Rules analyst weighs in on controversial Denver Broncos overtime interception vs. Buffalo Bills**\
 `NFL Rules analyst Walt Anderson gives his take on the Denver Broncos controversial overtime interception against Buffalo Bills.`\
 https://nytimes.com/athletic/6980891/2026/01/18/broncos-bills-controversial-interception-nfl-rules-analyst/
