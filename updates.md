@@ -1,3 +1,7 @@
+**What I'm hearing about Mets' post Bo Bichette plans: Outfield possibilities, QO philosophy**\
+`The Mets are weighing several options to bolster their outfield and starting rotation via free agency or trade.`\
+https://nytimes.com/athletic/6981273/2026/01/18/mets-bo-bichette-plans-free-agency-trades/
+
 **Texans' Dalton Schultz questionable to return vs. Patriots with calf injury**\
 `Injury is a blow to Houston's passing game, which is already without leading receiver Nico Collins.`\
 https://nytimes.com/athletic/6981270/2026/01/18/texans-te-dalton-schultz-calf-injury-questionable/
