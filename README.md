@@ -1,3 +1,7 @@
+**Seahawks RB Zach Charbonnet questionable to return with knee injury**\
+`The Seattle running back was injured in the first half of his team's NFC divisional game against the 49ers.`\
+https://nytimes.com/athletic/6979895/2026/01/17/seahawks-zach-charbonnet-knee-injury-49ers-playoffs/
+
 **Rare college hockey fight involving Blackhawks prospect results in automatic suspensions**\
 `Fighting is illegal in college hockey and results in a five-minute major, an immediate ejection and automatic suspension for another game.`\
 https://nytimes.com/athletic/6979851/2026/01/17/college-hockey-fight-sacha-boisvert-connor-eddy/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979529/2026/01/17/artemi-panarin-ny-rangers-retool
 **Trump Threatens New Tariffs To Force Sale of Greenland**\
 `On Saturday morning, President Trump announced in a social media post his latest strategy to seize control of Greenland: He is slapping new tariffs on a group of European nations until they come to the negotiating table to sell Greenland.`\
 https://nytimes.com/video/us/politics/100000010652071/greenland-trump-europe-tariffs.html
-
-**Flyers' nosedive continues as they're blown out again: 'We sucked, plain and simple'**\
-`"You can't really afford to go on slides like this. ... (We'll) try to get out of this hole," Cam York said. `\
-https://nytimes.com/athletic/6979653/2026/01/17/flyers-lose-rangers-streak-continues/
 
