@@ -1,3 +1,7 @@
+**Lowetide: How can the Oilers increase their organizational depth this year?**\
+`The Oilers' prospect pool has spiked with college, junior and European free-agent signings.`\
+https://nytimes.com/athletic/6978183/2026/01/18/edmonton-oilers-depth-charts-signings-2026/
+
 **How to watch Arizona State vs. Houston men's basketball: Time, TV, streaming**\
 `Find out how to watch the Arizona State Sun Devils play the Houston Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6980793/2026/01/18/arizona-state-vs-houston-stream-how-to-watch-jan-18/
