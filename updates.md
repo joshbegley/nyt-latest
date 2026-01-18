@@ -1,3 +1,19 @@
+**Slot, Alonso and an air of uncertainty at Liverpool following Burnley draw**\
+`There are no plans to replace Arne Slot as Liverpool head coach, but the Dutchman needs to find momentum to salvage the season.`\
+https://nytimes.com/athletic/6928571/2026/01/18/arne-slot-xabi-alonso-and-an-air-of-uncertainty-at-liverpool-following-burnley-draw/
+
+**This feels like the end for Glasner at Crystal Palace**\
+`Oliver Glasner did not hold back in his press conference after defeat to Sunderland. There may be no way back for him at Palace.`\
+https://nytimes.com/athletic/6977693/2026/01/18/this-feels-like-the-end-for-oliver-glasner-at-crystal-palace/
+
+**Is Frank's relationship with Tottenham fans broken for good?**\
+`Spurs fans have got used to poor performances and results - but defeat to West Ham was about the damage done to Frank's reputation with them`\
+https://nytimes.com/athletic/6966044/2026/01/18/frank-tottenham-fans-boo-premier-league/
+
+**It's tense at Real Madrid. The fans have the players and Florentino Perez in their sights**\
+`It has been quite the week at the Bernabeu. The fans made their feelings known in Alvaro Arbeloa's first league game in charge `\
+https://nytimes.com/athletic/6978832/2026/01/18/real-madrid-fans-protests-perez-vinicius-bellingham/
+
 **Manchester United are back***\
 `Saturday's display could have been United's best since 2024, but we have been here before with interim managers...`\
 https://nytimes.com/athletic/6979370/2026/01/18/manchester-united-michael-carrick-win/

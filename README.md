@@ -1,3 +1,7 @@
+**Peaking Auston Matthews is keeping Maple Leafs playoff hopes alive**\
+`In the short term, Matthews will need to continue doing much of the heavy lifting offensively to get the Leafs back into a playoff position.`\
+https://nytimes.com/athletic/6980063/2026/01/18/auston-matthews-toronto-maple-leafs-playoff-hunt/
+
 **Slot, Alonso and an air of uncertainty at Liverpool following Burnley draw**\
 `There are no plans to replace Arne Slot as Liverpool head coach, but the Dutchman needs to find momentum to salvage the season.`\
 https://nytimes.com/athletic/6928571/2026/01/18/arne-slot-xabi-alonso-and-an-air-of-uncertainty-at-liverpool-following-burnley-draw/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979009/2026/01/18/manchester-city-manchester-unite
 **The days that shook club football (and sometimes our reporters)**\
 `There are some days when breaking news absolutely blindsides a football club. Here are some of the moments that have rocked sides in Europe`\
 https://nytimes.com/athletic/6977085/2026/01/18/days-that-shook-club-football/
-
-**A golden generation of Senegal stars is coming to the end. Another is emerging**\
-`The 2026 AFCON final is likely to be the last on the continent for Senegal's ageing stars. But the future appears to be increasingly bright`\
-https://nytimes.com/athletic/6978582/2026/01/18/senegal-new-golden-generation-mane-mbaye-sarr/
 
