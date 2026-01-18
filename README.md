@@ -10,7 +10,7 @@ https://nytimes.com/issue/todayspaper/2026/01/18/todays-new-york-times
 `The United States is broken, but not in every way.`\
 https://nytimes.com/2026/01/18/opinion/trump-one-year-later.html
 
-**Peaking Auston Matthews is keeping Maple Leafs playoff hopes alive**\
+**Peaking Auston Matthews is keeping Maple Leafs' playoff hopes alive**\
 `In the short term, Matthews will need to continue doing much of the heavy lifting offensively to get the Leafs back into a playoff position.`\
 https://nytimes.com/athletic/6980063/2026/01/18/auston-matthews-toronto-maple-leafs-playoff-hunt/
 
