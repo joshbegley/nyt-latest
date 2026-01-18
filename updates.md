@@ -1,3 +1,15 @@
+**Trump’s Campaign Manager Resolves Daily Beast Defamation Suit**\
+`As part of the settlement, The Daily Beast was not required to apologize or issue any payment to Chris LaCivita, who sued the outlet last year.`\
+https://nytimes.com/2026/01/18/business/media/chris-lacivita-daily-beast-defamation-suit.html
+
+**Trump Administration Live Updates: European Officials to Hold Emergency Meeting on Greenland Tariff Threat**\
+``\
+https://nytimes.com/live/2026/01/18/us/trump-news
+
+**On ‘S.N.L.,’ Trump Recaps His Recent ‘Legal-ish’ Activities**\
+`The first episode of 2026, hosted by Finn Wolfhard of “Stranger Things,” satirized that hit Netflix series and conjured a Harry Potter reboot à la “Heated Rivalry.”`\
+https://nytimes.com/2026/01/18/arts/television/snl-trump-recaps-legal-ish-actions.html
+
 **Bleak Times in Copenhagen: Danes Feel Betrayed and Bewildered by Trump**\
 `The American president’s vow to get Greenland, the semiautonomous Danish territory, has thrown the tiny, pro-American Nordic nation into crisis.`\
 https://nytimes.com/2026/01/18/world/europe/denmark-greenland-trump.html
