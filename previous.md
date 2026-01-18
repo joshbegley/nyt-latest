@@ -1,3 +1,19 @@
+**How to watch Arizona State vs. Houston men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona State Sun Devils play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980793/2026/01/18/arizona-state-vs-houston-stream-how-to-watch-jan-18/
+
+**‘These Are the Best Biscuits I Have Ever Made, Hands Down’**\
+`Edna Lewis’s biscuits, served warm with butter and your favorite jam, are a lovely Sunday breakfast.`\
+https://nytimes.com/2026/01/18/dining/these-are-the-best-biscuits-i-have-ever-made-hands-down.html
+
+**The Briefing: Wolves 0 Newcastle 0 - A season defined by strikers? Why the struggle to break through low block?**\
+`Our writers discuss the talking points from Molineux`\
+https://nytimes.com/athletic/6969214/2026/01/18/wolves-newcastle-strand-larsen-strikers/
+
+**Trump’s Campaign Manager Resolves Daily Beast Defamation Suit**\
+`As part of the settlement, The Daily Beast was not required to apologize or issue any payment to Chris LaCivita, who sued the outlet last year.`\
+https://nytimes.com/2026/01/18/business/media/chris-lacivita-daily-beast-defamation-suit.html
+
 **Bleak Times in Copenhagen: Danes Feel Betrayed and Bewildered by Trump**\
 `The American president’s vow to get Greenland, the semiautonomous Danish territory, has thrown the tiny, pro-American Nordic nation into crisis.`\
 https://nytimes.com/2026/01/18/world/europe/denmark-greenland-trump.html
@@ -14,23 +30,7 @@ https://nytimes.com/2026/01/18/world/middleeast/trump-board-of-peace-gaza.html
 `Can any of the remaining squads still win the Super Bowl? Sure. But the Seahawks should be considered the clear favorite.`\
 https://nytimes.com/athletic/6980565/2026/01/18/seahawks-49ers-nfc-playoffs-dominance/
 
-**Trump Administration Live Updates: European Leaders Condemn U.S. Tariff Threat Over Greenland**\
+**Trump Administration Live Updates: European Officials to Hold Emergency Meeting on Greenland Tariff Threat**\
 ``\
 https://nytimes.com/live/2026/01/18/us/trump-news
-
-**On ‘S.N.L.,’ Trump Recaps his Recent ‘Legal-ish’ Activities**\
-`The first episode of 2026, hosted by Finn Wolfhard of “Stranger Things,” satirized that hit Netflix series and conjured a Harry Potter reboot à la “Heated Rivalry.”`\
-https://nytimes.com/2026/01/18/arts/television/snl-trump-recaps-legal-ish-actions.html
-
-**When Indian Americans Feel Unwelcome**\
-`Readers discuss a column by Lydia Polgreen about how Indians are rethinking migration to America.`\
-https://nytimes.com/2026/01/18/opinion/letters/indian-americans.html
-
-**College basketball observations: Texas Tech answers the bell, Florida back atop SEC and more**\
-`Plus: Will Miami (Ohio) crack the AP Top 25 after improving to a nation-best 19-0?`\
-https://nytimes.com/athletic/6979621/2026/01/18/college-basketball-scores-results-highlights/
-
-**How to watch Lightning vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6980550/2026/01/18/lightning-vs-stars-stream-how-to-watch-jan-18/
 

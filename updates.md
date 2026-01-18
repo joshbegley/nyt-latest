@@ -1,3 +1,23 @@
+**How to watch Arizona State vs. Houston men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona State Sun Devils play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980793/2026/01/18/arizona-state-vs-houston-stream-how-to-watch-jan-18/
+
+**‘These Are the Best Biscuits I Have Ever Made, Hands Down’**\
+`Edna Lewis’s biscuits, served warm with butter and your favorite jam, are a lovely Sunday breakfast.`\
+https://nytimes.com/2026/01/18/dining/these-are-the-best-biscuits-i-have-ever-made-hands-down.html
+
+**The Briefing: Wolves 0 Newcastle 0 - A season defined by strikers? Why the struggle to break through low block?**\
+`Our writers discuss the talking points from Molineux`\
+https://nytimes.com/athletic/6969214/2026/01/18/wolves-newcastle-strand-larsen-strikers/
+
+**Trump’s Campaign Manager Resolves Daily Beast Defamation Suit**\
+`As part of the settlement, The Daily Beast was not required to apologize or issue any payment to Chris LaCivita, who sued the outlet last year.`\
+https://nytimes.com/2026/01/18/business/media/chris-lacivita-daily-beast-defamation-suit.html
+
+**Trump Administration Live Updates: European Officials to Hold Emergency Meeting on Greenland Tariff Threat**\
+``\
+https://nytimes.com/live/2026/01/18/us/trump-news
+
 **Trump Administration Live Updates: European Leaders Condemn U.S. Tariff Threat Over Greenland**\
 ``\
 https://nytimes.com/live/2026/01/18/us/trump-news
