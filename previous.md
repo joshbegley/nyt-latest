@@ -1,3 +1,11 @@
+**Top Editor at Axel Springer Is Ousted After Workplace Investigation**\
+`Jan Philipp Burgard was one of Axel Springer’s most prominent editors, overseeing its influential German broadsheet Welt.`\
+https://nytimes.com/2026/01/18/business/media/axel-springer-editor-welt.html
+
+**Toulouse turn down increased bid from Wolfsburg for Cresswell**\
+`The defender has played in every league game for the Ligue 1 side this season and has attracted interest from elsewhere too. `\
+https://nytimes.com/athletic/6980964/2026/01/18/charlie-cresswell-toulouse-wolfsburg-bid-rejected/
+
 **NFL rules analyst weighs in on controversial Broncos overtime INT vs. Bills**\
 `NFL rules analyst Walt Anderson gives his take on the Denver Broncos controversial overtime interception against Buffalo Bills.`\
 https://nytimes.com/athletic/6980891/2026/01/18/broncos-bills-controversial-interception-nfl-rules-analyst/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6977667/2026/01/18/bears-rams-nfl-playoffs-matchups
 **Syrian Government and Kurdish-Led Force Agree to Unite After Clashes**\
 `The new deal also calls for a cease-fire. Government forces have taken strategic assets from the militia in recent days, weakening the force.`\
 https://nytimes.com/2026/01/18/world/middleeast/syria-kurds-ceasefire.html
-
-**Pentagon Tells 1,500 Troops to Prepare for Possible Deployment to Minnesota**\
-`But President Trump has already backed away from a threat to invoke the Insurrection Act in response to protests against the killing of a woman by a federal immigration agent.`\
-https://nytimes.com/2026/01/18/us/politics/pentagon-troops-minnesota.html
-
-**How to watch Senators vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6980812/2026/01/18/senators-vs-red-wings-stream-how-to-watch-jan-18/
 

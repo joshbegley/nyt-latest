@@ -1,3 +1,11 @@
+**Top Editor at Axel Springer Is Ousted After Workplace Investigation**\
+`Jan Philipp Burgard was one of Axel Springer’s most prominent editors, overseeing its influential German broadsheet Welt.`\
+https://nytimes.com/2026/01/18/business/media/axel-springer-editor-welt.html
+
+**Toulouse turn down increased bid from Wolfsburg for Cresswell**\
+`The defender has played in every league game for the Ligue 1 side this season and has attracted interest from elsewhere too. `\
+https://nytimes.com/athletic/6980964/2026/01/18/charlie-cresswell-toulouse-wolfsburg-bid-rejected/
+
 **NFL rules analyst weighs in on controversial Broncos overtime INT vs. Bills**\
 `NFL rules analyst Walt Anderson gives his take on the Denver Broncos controversial overtime interception against Buffalo Bills.`\
 https://nytimes.com/athletic/6980891/2026/01/18/broncos-bills-controversial-interception-nfl-rules-analyst/
