@@ -1,3 +1,11 @@
+**Lakers coach JJ Redick says officials 'admitted' mistakes in loss to Blazers**\
+`Portland got to the line 34 times in Saturday's 132-116 win over the Lakers Saturday night, including 22 in the first quarter.`\
+https://nytimes.com/athletic/6980249/2026/01/18/lakers-jj-redick-officials-mistakes-loss-blazers/
+
+**Tennis player interrupts Australian Open match to assist ball kid after collapse**\
+`Qualifier Zeynep Sönmez offered help during her match against No. 11 seed Ekaterina Alexandrova.`\
+https://nytimes.com/athletic/6980257/2026/01/18/tennis-australian-open-ball-kid-collapse-zeynep-sonmez/
+
 **Psst, Mayor Mamdani: The Upper East Side Is More Fun Than People Think**\
 `Beyond stuffy old money and noisy sports bars, hidden gems abound.`\
 https://nytimes.com/2026/01/18/nyregion/zohran-mamdani-upper-east-side.html
