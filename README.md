@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6981210/2026/01/18/braves-ha-seong-kim-hand-injury-
 https://nytimes.com/athletic/6980856/2026/01/18/college-football-playoff-expansion-2026-format/
 
 **After whirlwind night, Broncos' Sean Payton embracing conference title game challenge**\
-`The Broncos will learn their opponent for next week's AFC Championship Game on Sunday and begin making a game plan for Jarrett Stidham.`\
+`The Broncos will work to craft a game plan to match Jarrett Stidham's skill set for the AFC Championship Game.`\
 https://nytimes.com/athletic/6980992/2026/01/18/sean-payton-embracing-broncos-conference-title-game-challenge-without-bo-nix/
 
 **Ja Morant returns from calf injury, shines for London crowd in Grizzlies win vs. Magic**\
