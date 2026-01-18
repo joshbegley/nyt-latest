@@ -1,3 +1,7 @@
+**Perth Sail Grand Prix: Huge waves, broken boats, Britain on top again**\
+`Britain wins the opening weekend of the season, while USA shows huge improvement by finishing fifth overall`\
+https://nytimes.com/athletic/6980425/2026/01/18/sailgp-perth-season-6-britain-win/
+
 **Did Peyton Manning help pave the way for Indiana's unlikely football breakthrough?**\
 `I grew up in Indiana and saw attitudes about football change with the Colts. Now the Hoosiers are capitalizing in an unlikely Playoff run.`\
 https://nytimes.com/athletic/6978610/2026/01/18/peyton-manning-indiana-football-basketball-colts/
