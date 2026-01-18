@@ -1,3 +1,7 @@
+**Ja Morant returns from calf injury, shines for London crowd in Grizzlies win vs. Magic**\
+`Morant, amid trade rumors, returned from injury with a big performance, helping the Memphis Grizzlies top the Orlando Magic in London.`\
+https://nytimes.com/athletic/6981162/2026/01/18/ja-morant-grizzlies-nba-injury-magic-london/
+
 **Footballer arrested in Wales on suspicion of assault after viral video**\
 `Welsh third-tier club Treaddur Bay said they have released the suspended player with immediate effect and they do "not condone violence".`\
 https://nytimes.com/athletic/6981129/2026/01/18/footballer-assault-wales-video/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6981094/2026/01/18/blues-vs-oilers-stream-how-to-wa
 **Joe Montgomery, Who Made Bicycles Lighter, Dies at 86**\
 `A founder of Cannondale, he was among the first in the U.S. to mass-produce bikes frames out of large-diameter aluminum tubes, replacing heavier steel.`\
 https://nytimes.com/2026/01/18/obituaries/joe-montgomery-dead.html
-
-**Red Wings' Redmond to take medical absence from TV broadcast**\
-`The iconic broadcaster is set to undergo surgery to address chronic neck issues.`\
-https://nytimes.com/athletic/6981009/2026/01/18/mickey-redmond-red-wings-medical-absence-tv/
 
