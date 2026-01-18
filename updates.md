@@ -1,3 +1,7 @@
+**Bills' Sean McDermott frustrated with officiating process on overtime interception**\
+`"I’m standing up for Buffalo, dammit," McDermott said. "What went on, that is not how it should go down, in my estimation."`\
+https://nytimes.com/athletic/6979884/2026/01/17/sean-mcdermott-comments-officiating-bills-broncos-overtime/
+
 **Seahawks RB Zach Charbonnet questionable to return with knee injury**\
 `The Seattle running back was injured in the first half of his team's NFC divisional-round game against the 49ers.`\
 https://nytimes.com/athletic/6979895/2026/01/17/seahawks-zach-charbonnet-knee-injury-49ers-playoffs/

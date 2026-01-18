@@ -1,3 +1,7 @@
+**These Are the 12 States Vying to Kick Off Democrats’ 2028 Contest**\
+`There were a few surprises, and subtle regional digs, as Democratic state parties angled for early spots on the next presidential primary calendar. The New York Times reviewed their applications.`\
+https://nytimes.com/2026/01/17/us/politics/2028-democratic-primary-states-iowa-south-carolina-nevada-new-hampshire.html
+
 **Bills' Sean McDermott frustrated with officiating process on overtime interception**\
 `"I’m standing up for Buffalo, dammit," McDermott said. "What went on, that is not how it should go down, in my estimation."`\
 https://nytimes.com/athletic/6979884/2026/01/17/sean-mcdermott-comments-officiating-bills-broncos-overtime/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979838/2026/01/17/bo-nix-ankle-injury-season-endin
 **Broncos win OT thriller for first AFC Championship Game since 2015, but lose Bo Nix**\
 `Four Josh Allen turnovers and five overall sabotaged the Bills in their upset bid of the Broncos, who will now be without Nix.`\
 https://nytimes.com/athletic/6979285/2026/01/17/broncos-bo-nix-win-overtime-thriller-for-first-afc-championship-game-since-2015/
-
-**Artemi Panarin 'confused' about Rangers' retool plans, plus what I'm hearing about what's next**\
-`Everything Panarin did on the ice Saturday in New York's 6-3 win over Flyers appeared carefree.`\
-https://nytimes.com/athletic/6979529/2026/01/17/artemi-panarin-ny-rangers-retool/
 
