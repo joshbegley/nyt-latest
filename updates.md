@@ -1,3 +1,7 @@
+**How to watch Michigan State vs. Iowa women's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6981064/2026/01/18/michigan-state-vs-iowa-stream-how-to-watch-jan-18/
+
 **Springsteen Denounces ICE Deployments and Renee Good’s Killing**\
 `In a surprise appearance in New Jersey, the musician dedicated his song “The Promised Land” to Ms. Good, who was killed by an ICE agent in Minneapolis this month.`\
 https://nytimes.com/2026/01/18/arts/music/springsteen-ice-minneapolis.html

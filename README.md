@@ -1,3 +1,11 @@
+**Joe Montgomery, Who Made Bicycles Lighter, Dies at 86**\
+`A founder of Cannondale, he was among the first in the U.S. to mass-produce bikes frames out of large-diameter aluminum tubes, replacing heavier steel.`\
+https://nytimes.com/2026/01/18/obituaries/joe-montgomery-dead.html
+
+**Red Wings' Redmond to take medical absence from TV broadcast**\
+`The iconic broadcaster is set to undergo surgery to address chronic neck issues.`\
+https://nytimes.com/athletic/6981009/2026/01/18/mickey-redmond-red-wings-medical-absence-tv/
+
 **How to watch Michigan State vs. Iowa women's basketball: Time, TV, streaming**\
 `Find out how to watch the Michigan State Spartans play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6981064/2026/01/18/michigan-state-vs-iowa-stream-how-to-watch-jan-18/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/18/business/media/axel-springer-editor-welt.html
 **Toulouse turn down increased bid from Wolfsburg for Cresswell**\
 `The defender has played in every league game for the Ligue 1 side this season and has attracted interest from elsewhere too. `\
 https://nytimes.com/athletic/6980964/2026/01/18/charlie-cresswell-toulouse-wolfsburg-bid-rejected/
-
-**NFL rules analyst weighs in on controversial Broncos overtime INT vs. Bills**\
-`NFL rules analyst Walt Anderson gives his take on the Broncos' controversial overtime interception against the Bills.`\
-https://nytimes.com/athletic/6980891/2026/01/18/broncos-bills-controversial-interception-nfl-rules-analyst/
-
-**‘Come Help Us’: Wildfires Grip Parts of Chile, Killing at Least 16**\
-`One mayor pleaded with the national government for help as flames destroyed entire neighborhoods in the southern region of Biobío.`\
-https://nytimes.com/2026/01/18/world/americas/chile-wildfires.html
 

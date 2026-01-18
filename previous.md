@@ -1,3 +1,7 @@
+**How to watch Michigan State vs. Iowa women's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6981064/2026/01/18/michigan-state-vs-iowa-stream-how-to-watch-jan-18/
+
 **Springsteen Denounces ICE Deployments and Renee Good’s Killing**\
 `In a surprise appearance in New Jersey, the musician dedicated his song “The Promised Land” to Ms. Good, who was killed by an ICE agent in Minneapolis this month.`\
 https://nytimes.com/2026/01/18/arts/music/springsteen-ice-minneapolis.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6980891/2026/01/18/broncos-bills-controversial-inte
 **‘Come Help Us’: Wildfires Grip Parts of Chile, Killing at Least 16**\
 `One mayor pleaded with the national government for help as flames destroyed entire neighborhoods in the southern region of Biobío.`\
 https://nytimes.com/2026/01/18/world/americas/chile-wildfires.html
-
-**Palace intend to retain Glasner until the end of the season after positive talks**\
-`The Austrian had been critical of the Palace board after Saturday's defeat to Sunderland.`\
-https://nytimes.com/athletic/6980895/2026/01/18/oliver-glasner-crystal-palace-manager-future/
 
