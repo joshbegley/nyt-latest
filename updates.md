@@ -1,3 +1,11 @@
+**Seahawks RB Zach Charbonnet questionable to return with knee injury**\
+`The Seattle running back was injured in the first half of his team's NFC divisional game against the 49ers.`\
+https://nytimes.com/athletic/6979895/2026/01/17/seahawks-zach-charbonnet-knee-injury-49ers-playoffs/
+
+**Steve Kerr doesn't think another team can surpass Warriors' 73-win season**\
+`Kerr said that though he remains very proud of the accomplishment, the season isn't something the group discusses.`\
+https://nytimes.com/athletic/6979775/2026/01/17/steve-kerr-comments-warriors-2016-season-okc-thunder/
+
 **Falcons name Kevin Stefanski new head coach**\
 `Stefanski was 45-56 in six seasons with the Cleveland Browns and NFL Coach of the Year twice (2020 and 2023).`\
 https://nytimes.com/athletic/6978950/2026/01/17/kevin-stefanski-falcons-head-coach/
