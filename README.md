@@ -15,7 +15,7 @@ https://nytimes.com/video/the-athletic/100000010652397/broncos-eliminate-bills-i
 https://nytimes.com/athletic/6979940/2026/01/17/president-trump-army-navy-game-executive-order/
 
 **Who is Jarrett Stidham, the Broncos backup QB who will take over for Bo Nix?**\
-`Stidham, a 2019 fourth-round pick by the New England Patriots, initially signed with the Broncos in 2023. He has made four career starts.`\
+`The 2019 fourth-round pick by the New England Patriots who signed with the Broncos in 2023 has made four career starts.`\
 https://nytimes.com/athletic/6979876/2026/01/17/jarrett-stidham-bo-nix-broncos-backup-qb/
 
 **Virginia’s New Governor Moves Swiftly to Overhaul State University Boards**\

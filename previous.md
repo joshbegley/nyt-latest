@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6979806/2026/01/17/49ers-seahawks-score-result-takeaways-nfl-divisional-round/
 
 **NFL playoff schedule: Seahawks, Broncos advance to conference championships**\
-`The Broncos survived an OT thriller against the Bills to advance while the Seahawks dominated against the 49ers.`\
+`The Broncos survived an OT thriller against the Bills to advance, while the Seahawks dominated against the 49ers.`\
 https://nytimes.com/athletic/6979795/2026/01/17/2025-26-nfl-conference-championship-schedule/
 
 **Broncos Eliminate Bills in Overtime to Advance in N.F.L. Playoffs**\
@@ -26,7 +26,7 @@ https://nytimes.com/2026/01/17/us/politics/spanberger-virginia-uva-board.html
 `There were a few surprises, and subtle regional digs, as Democratic state parties angled for early spots on the next presidential primary calendar. The New York Times reviewed their applications.`\
 https://nytimes.com/2026/01/17/us/politics/2028-democratic-primary-states-iowa-south-carolina-nevada-new-hampshire.html
 
-**Bills' Sean McDermott frustrated with officiating process on overtime interception**\
+**Bills' Sean McDermott frustrated with officiating on overtime interception**\
 `"I’m standing up for Buffalo, dammit," McDermott said. "What went on — that is not how it should go down, in my estimation."`\
 https://nytimes.com/athletic/6979884/2026/01/17/sean-mcdermott-comments-officiating-bills-broncos-overtime/
 

@@ -1,3 +1,11 @@
+**NFL playoff schedule: Seahawks, Broncos advance to conference championships**\
+`The Broncos survived an OT thriller against the Bills to advance, while the Seahawks dominated against the 49ers.`\
+https://nytimes.com/athletic/6979795/2026/01/17/2025-26-nfl-conference-championship-schedule/
+
+**Bills' Sean McDermott frustrated with officiating on overtime interception**\
+`"I’m standing up for Buffalo, dammit," McDermott said. "What went on — that is not how it should go down, in my estimation."`\
+https://nytimes.com/athletic/6979884/2026/01/17/sean-mcdermott-comments-officiating-bills-broncos-overtime/
+
 **Ferocious Seahawks overwhelm 49ers, advance to NFC Championship Game**\
 `The Seahawks scored on the opening kickoff and never looked back against the undermanned 49ers.`\
 https://nytimes.com/athletic/6979806/2026/01/17/49ers-seahawks-score-result-takeaways-nfl-divisional-round/
