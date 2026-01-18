@@ -1,3 +1,7 @@
+**Wrexham 'learn their lesson' after slow start in second half leads to Norwich defeat**\
+`Wrexham's 10-match unbeaten run came to an end against Norwich after a slow and 'sloppy' start to the second half`\
+https://nytimes.com/athletic/6979473/2026/01/18/wrexham-medical-emergency-norwich/
+
 **‘Landman’ Isn’t Just Oil Industry Propaganda**\
 `The show does far more to criticize the oil and gas industry than it does to bolster it.`\
 https://nytimes.com/2026/01/18/opinion/landman-sheridan-oil-accuracy.html
