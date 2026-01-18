@@ -1,3 +1,7 @@
+**One Year of Trump. The Time to Act Is Now, While We Still Can.**\
+`The United States is broken, but not in every way.`\
+https://nytimes.com/2026/01/18/opinion/trump-one-year-later.html
+
 **On James Talarico**\
 `The Democratic Senate candidate is campaigning on his faith.`\
 https://nytimes.com/2026/01/18/briefing/on-james-talarico.html

@@ -10,7 +10,7 @@ https://nytimes.com/2026/01/18/opinion/landman-sheridan-oil-accuracy.html
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/18/todays-new-york-times
 
-**One Year Later, What Kind of Country Have We Become?**\
+**One Year of Trump. The Time to Act Is Now, While We Still Can.**\
 `The United States is broken, but not in every way.`\
 https://nytimes.com/2026/01/18/opinion/trump-one-year-later.html
 
