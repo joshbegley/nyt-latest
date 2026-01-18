@@ -1,3 +1,7 @@
+**Seahawks RB Zach Charbonnet, LT Charles cross injured in win**\
+`Mike Macdonald said the team is optimistic Charbonnet avoided a serious injury, while Cross did not return out of caution.`\
+https://nytimes.com/athletic/6979895/2026/01/17/seahawks-zach-charbonnet-knee-injury-49ers-playoffs/
+
 **Who is Jarrett Stidham, the Broncos backup QB who will take over for Bo Nix?**\
 `The 2019 fourth-round pick by the New England Patriots who signed with the Broncos in 2023 has made four career starts.`\
 https://nytimes.com/athletic/6979876/2026/01/17/jarrett-stidham-bo-nix-broncos-backup-qb/

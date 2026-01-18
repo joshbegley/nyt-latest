@@ -30,7 +30,7 @@ https://nytimes.com/2026/01/17/us/politics/2028-democratic-primary-states-iowa-s
 `"I’m standing up for Buffalo, dammit," McDermott said. "What went on — that is not how it should go down, in my estimation."`\
 https://nytimes.com/athletic/6979884/2026/01/17/sean-mcdermott-comments-officiating-bills-broncos-overtime/
 
-**Seahawks RB Zach Charbonnet questionable to return with knee injury**\
-`The Seattle running back was injured in the first half of his team's NFC divisional-round game against the 49ers.`\
+**Seahawks RB Zach Charbonnet, LT Charles cross injured in win**\
+`Mike Macdonald said the team is optimistic Charbonnet avoided a serious injury, while Cross did not return out of caution.`\
 https://nytimes.com/athletic/6979895/2026/01/17/seahawks-zach-charbonnet-knee-injury-49ers-playoffs/
 
