@@ -1,3 +1,7 @@
+**The Pulse: Denver's costly win**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6979981/2026/01/18/denvers-playoff-win-comes-with-a-devastating-cost-as-seattle-rolls/
+
 **$1 Billion in Cash Buys a Permanent Seat on Trump’s ‘Board of Peace’**\
 `The board was originally conceived to oversee the rebuilding of Gaza, but its charter does not mention the Palestinian enclave, suggesting a possibly broader mandate.`\
 https://nytimes.com/2026/01/18/world/middleeast/trump-board-of-peace-gaza.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6980550/2026/01/18/lightning-vs-stars-stream-how-to
 **Australian Open Day 1 recap: Carlos Alcaraz rolls through to start pursuit of career Grand Slam**\
 `Alcaraz absorbed a high-level performance from home hope Adam Walton in Melbourne.`\
 https://nytimes.com/athletic/6979717/2026/01/18/tennis-australian-open-recap-results-day-1/
-
-**How to watch Maryland vs. UCLA women's basketball: Time, TV, streaming**\
-`Find out how to watch the Maryland Terrapins play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6980537/2026/01/18/maryland-vs-ucla-stream-how-to-watch-jan-18/
 

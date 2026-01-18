@@ -1,3 +1,7 @@
+**The Pulse: Denver's costly win**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6979981/2026/01/18/denvers-playoff-win-comes-with-a-devastating-cost-as-seattle-rolls/
+
 **$1 Billion in Cash Buys a Permanent Seat on Trump’s ‘Board of Peace’**\
 `The board was originally conceived to oversee the rebuilding of Gaza, but its charter does not mention the Palestinian enclave, suggesting a possibly broader mandate.`\
 https://nytimes.com/2026/01/18/world/middleeast/trump-board-of-peace-gaza.html
