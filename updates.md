@@ -1,3 +1,19 @@
+**How to watch Texas A&M vs. Texas women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas A&M Aggies play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980515/2026/01/18/texas-a-m-vs-texas-stream-how-to-watch-jan-18/
+
+**How to watch Tennessee vs. Alabama women's basketball: Time, TV, streaming**\
+`Find out how to watch the Tennessee Lady Volunteers play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980513/2026/01/18/tennessee-vs-alabama-stream-how-to-watch-jan-18/
+
+**Can ICE Do That?**\
+`Times reporters answer readers’ questions about immigration and deportation.`\
+https://nytimes.com/2026/01/18/briefing/can-ice-do-that.html
+
+**Homefield Apparel built its brand on a losing Indiana program. Now they're both all the rage**\
+`When the company launched, "it was deprecating to be an Indiana football fan. It was charming.” On Monday, IU plays for a national title.`\
+https://nytimes.com/athletic/6979352/2026/01/18/homefield-apparel-indiana-football-cfp-national-championship-game/
+
 **Trump Administration Live Updates: European Leaders Condemn U.S. Tariff Threat Over Greenland**\
 ``\
 https://nytimes.com/live/2026/01/18/us/trump-news
