@@ -1,3 +1,11 @@
+**Curt Cignetti's CFP plan: 'You don’t go to war with warm milk and cookies'**\
+`In two seasons under Cignetti, the Hoosiers are 26-2 in one of the great turnarounds in sports history.`\
+https://nytimes.com/athletic/6980802/2026/01/18/curt-cignetti-indiana-miami-college-football-playoff/
+
+**Maguire and Martinez dominated Haaland. There's beauty in a centre-back pairing**\
+`Michael Carrick's first game in charge brought scenes not seen at Old Trafford for years – the centre-backs set the tone for United's win`\
+https://nytimes.com/athletic/6979658/2026/01/18/harry-maguire-lisandro-martinez-manchester-united-centre-backs/
+
 **Syrian Government and Kurdish-led Force Agree to Unite After Clashes**\
 `The new unity deal also calls for a cease-fire. Government forces have taken over a number of strategic assets from the Kurdish-led militia in recent days, weakening the force.`\
 https://nytimes.com/2026/01/18/world/middleeast/syria-kurds-ceasefire.html

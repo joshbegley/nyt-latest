@@ -1,3 +1,11 @@
+**Curt Cignetti's CFP plan: 'You don’t go to war with warm milk and cookies'**\
+`In two seasons under Cignetti, the Hoosiers are 26-2 in one of the great turnarounds in sports history.`\
+https://nytimes.com/athletic/6980802/2026/01/18/curt-cignetti-indiana-miami-college-football-playoff/
+
+**Maguire and Martinez dominated Haaland. There's beauty in a centre-back pairing**\
+`Michael Carrick's first game in charge brought scenes not seen at Old Trafford for years – the centre-backs set the tone for United's win`\
+https://nytimes.com/athletic/6979658/2026/01/18/harry-maguire-lisandro-martinez-manchester-united-centre-backs/
+
 **Syrian Government and Kurdish-led Force Agree to Unite After Clashes**\
 `The new unity deal also calls for a cease-fire. Government forces have taken over a number of strategic assets from the Kurdish-led militia in recent days, weakening the force.`\
 https://nytimes.com/2026/01/18/world/middleeast/syria-kurds-ceasefire.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6978183/2026/01/18/edmonton-oilers-depth-charts-sig
 **How to watch Arizona State vs. Houston men's basketball: Time, TV, streaming**\
 `Find out how to watch the Arizona State Sun Devils play the Houston Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6980793/2026/01/18/arizona-state-vs-houston-stream-how-to-watch-jan-18/
-
-**‘These Are the Best Biscuits I Have Ever Made, Hands Down’**\
-`Edna Lewis’s biscuits, served warm with butter and your favorite jam, are a lovely Sunday breakfast.`\
-https://nytimes.com/2026/01/18/dining/these-are-the-best-biscuits-i-have-ever-made-hands-down.html
-
-**The Briefing: Wolves 0 Newcastle 0 - A season defined by strikers? Why the struggle to break through low block?**\
-`Our writers discuss the talking points from Molineux`\
-https://nytimes.com/athletic/6969214/2026/01/18/wolves-newcastle-strand-larsen-strikers/
 
