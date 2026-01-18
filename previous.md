@@ -1,3 +1,11 @@
+**Australian Open Day 1 recap: Carlos Alcaraz rolls through to start pursuit of career Grand Slam**\
+`Alcaraz absorbed a high-level performance from home hope Adam Walton in Melbourne.`\
+https://nytimes.com/athletic/6979717/2026/01/18/tennis-australian-open-recap-results-day-1/
+
+**How to watch Maryland vs. UCLA women's basketball: Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980537/2026/01/18/maryland-vs-ucla-stream-how-to-watch-jan-18/
+
 **How to watch LSU vs. Oklahoma women's basketball: Time, TV, streaming**\
 `Find out how to watch the LSU Tigers play the Oklahoma Sooners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6980524/2026/01/18/lsu-vs-oklahoma-stream-how-to-watch-jan-18/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6979352/2026/01/18/homefield-apparel-indiana-footba
 **For Miami fans, the road back to prominence has been filled with pain, disappointment**\
 `There have been some dark times, but no matter what happens Monday night, there’s a firm belief that the Canes' worst days are behind them.`\
 https://nytimes.com/athletic/6975228/2026/01/18/miami-hurricanes-fans-national-championship/
-
-**Perth Sail Grand Prix: Huge waves, broken boats, Britain on top again**\
-`Britain wins the opening weekend of the season, while USA shows huge improvement by finishing fifth overall`\
-https://nytimes.com/athletic/6980425/2026/01/18/sailgp-perth-season-6-britain-win/
-
-**Did Peyton Manning help pave the way for Indiana's unlikely football breakthrough?**\
-`I grew up in Indiana and saw attitudes about football change with the Colts. Now the Hoosiers are capitalizing in an unlikely Playoff run.`\
-https://nytimes.com/athletic/6978610/2026/01/18/peyton-manning-indiana-football-basketball-colts/
 
