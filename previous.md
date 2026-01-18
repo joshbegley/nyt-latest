@@ -1,3 +1,15 @@
+**At Least 10 Killed in High-Speed Train Derailment in Spain**\
+`After the rear carriages of one train derailed onto the opposite track, another train passing by collided with it.`\
+https://nytimes.com/2026/01/18/world/europe/spain-high-speed-train-derailment.html
+
+**Rangers' Vincent Trocheck, Braden Schneider describe 'shock' of retool letter**\
+`Trocheck and Schneider are among New York's players with higher trade values.`\
+https://nytimes.com/athletic/6981364/2026/01/18/ny-rangers-vincent-trocheck-braden-schneider-letter/
+
+**Patriots outlast Texans in wintry, turnover-filled affair to advance to AFC title game**\
+`With the 28-16 victory, the Patriots advance to face the Broncos in next Sunday’s AFC Championship Game. `\
+https://nytimes.com/athletic/6981390/2026/01/18/texans-patriots-score-result-takeaways-nfl-divisional-round/
+
 **Man Acquitted of Shining a Laser at Marine One With Trump Aboard**\
 `A jury found the man, Jacob Samuel Winkler, not guilty after just 35 minutes of deliberation. He was charged in September with pointing a laser at an aircraft.`\
 https://nytimes.com/2026/01/18/us/politics/marine-laser-trump-acquitted.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6981207/2026/01/18/lorenzo-lucca-nottingham-forest-
 **Flames trade Rasmus Andersson to Vegas for Whitecloud, prospect, two picks: Sources**\
 `The defenseman is in the final year of a six-year contract carrying a $4.55 million cap hit, with Calgary retaining half.`\
 https://nytimes.com/athletic/6442132/2026/01/18/rasmus-andersson-traded-lv-golden-knights-nhl/
-
-**Broncos add QB Ben DiNucci to practice squad with Bo Nix out**\
-`The veteran adds some insurance behind Jarrett Stidham and Sam Ehlinger ahead of the AFC Championship Game.`\
-https://nytimes.com/athletic/6981446/2026/01/18/broncos-ben-dinucci-quarterback-bo-nix/
-
-**Ralph Towner, Eclectic Guitarist With the Ensemble Oregon, Dies at 85**\
-`A composer and pianist as well, he was a prolific recording artist who integrated jazz, classical and world music traditions over six decades.`\
-https://nytimes.com/2026/01/18/arts/ralph-towner-dead.html
-
-**Washington, D.C., sets U.S. women's hockey attendance record**\
-`The game in Washington was part of the PWHL’s 16 neutral-site Takeover Tour across the U.S. and Canada.`\
-https://nytimes.com/athletic/6981354/2026/01/18/pwhl-womens-hockey-attendance-record-washington-dc/
 
