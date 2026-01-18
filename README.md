@@ -1,3 +1,11 @@
+**Syrian Government and Kurdish-led Force Agree to Unite After Clashes**\
+`The new unity deal also calls for a cease-fire. Government forces have taken over a number of strategic assets from the Kurdish-led militia in recent days, weakening the force.`\
+https://nytimes.com/2026/01/18/world/middleeast/syria-kurds-ceasefire.html
+
+**Pentagon Tells 1,500 Troops to Prepare for Possible Deployment to Minnesota**\
+`But President Trump has already backed away from a threat to invoke the Insurrection Act in response to protests against the killing of a woman by a federal immigration agent.`\
+https://nytimes.com/2026/01/18/us/politics/pentagon-troops-minnesota.html
+
 **How to watch Senators vs. Red Wings: Time, TV, streaming**\
 `Find out how to watch the Ottawa Senators play the Detroit Red Wings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6980812/2026/01/18/senators-vs-red-wings-stream-how-to-watch-jan-18/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/18/dining/these-are-the-best-biscuits-i-have-ever-ma
 **The Briefing: Wolves 0 Newcastle 0 - A season defined by strikers? Why the struggle to break through low block?**\
 `Our writers discuss the talking points from Molineux`\
 https://nytimes.com/athletic/6969214/2026/01/18/wolves-newcastle-strand-larsen-strikers/
-
-**Trump’s Campaign Manager Resolves Daily Beast Defamation Suit**\
-`As part of the settlement, The Daily Beast was not required to apologize or issue any payment to Chris LaCivita, who sued the outlet last year.`\
-https://nytimes.com/2026/01/18/business/media/chris-lacivita-daily-beast-defamation-suit.html
-
-**Bleak Times in Copenhagen: Danes Feel Betrayed and Bewildered by Trump**\
-`The American president’s vow to get Greenland, the semiautonomous Danish territory, has thrown the tiny, pro-American Nordic nation into crisis.`\
-https://nytimes.com/2026/01/18/world/europe/denmark-greenland-trump.html
 

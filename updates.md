@@ -1,3 +1,15 @@
+**How to watch Senators vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980812/2026/01/18/senators-vs-red-wings-stream-how-to-watch-jan-18/
+
+**How to watch Pelicans vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980808/2026/01/18/pelicans-vs-rockets-stream-how-to-watch-jan-18/
+
+**How to watch Nets vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980806/2026/01/18/nets-vs-bulls-stream-how-to-watch-jan-18/
+
 **Lowetide: How can the Oilers increase their organizational depth this year?**\
 `The Oilers' prospect pool has spiked with college, junior and European free-agent signings.`\
 https://nytimes.com/athletic/6978183/2026/01/18/edmonton-oilers-depth-charts-signings-2026/
