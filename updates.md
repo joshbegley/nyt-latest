@@ -1,3 +1,15 @@
+**Ralph Towner, Eclectic Guitarist With the Ensemble Oregon, Dies at 85**\
+`A composer and pianist as well, he was a prolific recording artist who integrated jazz, classical and world music traditions over six decades.`\
+https://nytimes.com/2026/01/18/arts/ralph-towner-dead.html
+
+**Washington, D.C., sets U.S. women's hockey attendance record**\
+`The game in Washington was part of the PWHL’s 16 neutral-site Takeover Tour across the U.S. and Canada.`\
+https://nytimes.com/athletic/6981354/2026/01/18/pwhl-womens-hockey-attendance-record-washington-dc/
+
+**Wilbur Wood, Ironman Knuckleballer for the White Sox, Is Dead at 84**\
+`He threw more innings in a season than any player since 1917. A three-time All-Star, he also had four 20-win seasons.`\
+https://nytimes.com/2026/01/18/sports/baseball/wilbur-wood-dead.html
+
 **The Briefing: Senegal 1 Morocco 0 - Spectacular winner overshadowed by chaos after controversial penalty**\
 `Senegal beat Morocco in a controversial final after Senegal's players temporarily walked off the pitch in protest at a Morocco penalty`\
 https://nytimes.com/athletic/6969215/2026/01/18/senegal-1-morocco-0-chaos-controversial-penalty/
