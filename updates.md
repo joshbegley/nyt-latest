@@ -1,3 +1,7 @@
+**Peaking Auston Matthews is keeping Maple Leafs playoff hopes alive**\
+`In the short term, Matthews will need to continue doing much of the heavy lifting offensively to get the Leafs back into a playoff position.`\
+https://nytimes.com/athletic/6980063/2026/01/18/auston-matthews-toronto-maple-leafs-playoff-hunt/
+
 **Slot, Alonso and an air of uncertainty at Liverpool following Burnley draw**\
 `There are no plans to replace Arne Slot as Liverpool head coach, but the Dutchman needs to find momentum to salvage the season.`\
 https://nytimes.com/athletic/6928571/2026/01/18/arne-slot-xabi-alonso-and-an-air-of-uncertainty-at-liverpool-following-burnley-draw/
