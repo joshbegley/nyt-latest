@@ -1,3 +1,7 @@
+**After Broncos' whirlwind night, Sean Payton embracing conference title game challenge**\
+`The Broncos will learn their opponent for next week's AFC Championship Game on Sunday and begin making a game plan for Jarrett Stidham.`\
+https://nytimes.com/athletic/6980992/2026/01/18/sean-payton-embracing-broncos-conference-title-game-challenge-without-bo-nix/
+
 **Ja Morant returns from calf injury, shines for London crowd in Grizzlies win vs. Magic**\
 `Morant, amid trade rumors, returned from injury with a big performance, helping the Memphis Grizzlies top the Orlando Magic in London.`\
 https://nytimes.com/athletic/6981162/2026/01/18/ja-morant-grizzlies-nba-injury-magic-london/
