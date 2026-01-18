@@ -1,3 +1,7 @@
+**Broncos add QB Ben DiNucci to practice squad with Bo Nix out**\
+`The veteran adds some insurance behind Jarrett Stidham and Sam Ehlinger ahead of the AFC Championship Game.`\
+https://nytimes.com/athletic/6981446/2026/01/18/broncos-ben-dinucci-quarterback-bo-nix/
+
 **Ralph Towner, Eclectic Guitarist With the Ensemble Oregon, Dies at 85**\
 `A composer and pianist as well, he was a prolific recording artist who integrated jazz, classical and world music traditions over six decades.`\
 https://nytimes.com/2026/01/18/arts/ralph-towner-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/18/us/sept-11-convictions-overturned-first-amendment
 **Florida transfer QB DJ Lagway makes it official and signs with Baylor**\
 `Baylor had several holes to fill on its roster. None was bigger than QB, where Sawyer Robertson has exhausted his eligibility. `\
 https://nytimes.com/athletic/6963938/2026/01/18/dj-lagway-transfer-baylor-florida-quarterback/
-
-**Senegal win chaotic AFCON final after walking off field in protest**\
-`The game was delayed late in stoppage time as the players went into the dressing room.  `\
-https://nytimes.com/athletic/6981321/2026/01/18/senegal-players-leave-field-in-afcon-final-penalty-protest/
 
