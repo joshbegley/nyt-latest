@@ -1,3 +1,7 @@
+**After whirlwind night, Broncos' Sean Payton embracing conference title game challenge**\
+`The Broncos will work to craft a game plan to match Jarrett Stidham's skill set for the AFC Championship Game.`\
+https://nytimes.com/athletic/6980992/2026/01/18/sean-payton-embracing-broncos-conference-title-game-challenge-without-bo-nix/
+
 **Braves' Ha-Seong Kim to miss 4 to 5 months after undergoing finger surgery**\
 `The Braves re-signed the 30-year-old shortstop in December to a one-year, $20 million deal after claiming him off waivers on Sept. 1.`\
 https://nytimes.com/athletic/6981210/2026/01/18/braves-ha-seong-kim-hand-injury-underwent-surgery/
