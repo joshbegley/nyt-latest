@@ -1,3 +1,7 @@
+**How to watch Lightning vs. Stars: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980550/2026/01/18/lightning-vs-stars-stream-how-to-watch-jan-18/
+
 **Australian Open Day 1 recap: Carlos Alcaraz rolls through to start pursuit of career Grand Slam**\
 `Alcaraz absorbed a high-level performance from home hope Adam Walton in Melbourne.`\
 https://nytimes.com/athletic/6979717/2026/01/18/tennis-australian-open-recap-results-day-1/
