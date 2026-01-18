@@ -1,3 +1,7 @@
+**Syrian Government and Kurdish-Led Force Agree to Unite After Clashes**\
+`The new deal also calls for a cease-fire. Government forces have taken strategic assets from the militia in recent days, weakening the force.`\
+https://nytimes.com/2026/01/18/world/middleeast/syria-kurds-ceasefire.html
+
 **Palace intend to retain Glasner until the end of the season after positive talks**\
 `The Austrian had been critical of the Palace board after Saturday's defeat to Sunderland.`\
 https://nytimes.com/athletic/6980895/2026/01/18/oliver-glasner-crystal-palace-manager-future/
