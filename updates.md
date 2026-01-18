@@ -1,3 +1,7 @@
+**Tina Packer, Powerhouse of Shakespeare Performance, Dies at 87**\
+`She was a founder and the longtime artistic director of Shakespeare & Company, a repertory theater in western Massachusetts, and directed all his plays.`\
+https://nytimes.com/2026/01/18/theater/tina-packer-dead.html
+
 **NFL rules analyst weighs in on controversial Broncos overtime INT vs. Bills**\
 `NFL rules analyst Walt Anderson gives his take on the Denver Broncos' controversial overtime interception against Buffalo Bills.`\
 https://nytimes.com/athletic/6980891/2026/01/18/broncos-bills-controversial-interception-nfl-rules-analyst/
