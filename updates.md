@@ -1,4 +1,12 @@
 **Seahawks RB Zach Charbonnet questionable to return with knee injury**\
+`The Seattle running back was injured in the first half of his team's NFC divisional-round game against the 49ers.`\
+https://nytimes.com/athletic/6979895/2026/01/17/seahawks-zach-charbonnet-knee-injury-49ers-playoffs/
+
+**Broncos win OT thriller for first AFC Championship Game since 2015, but lose Bo Nix**\
+`Four Josh Allen turnovers and five overall sabotaged the Bills in their upset bid of the Broncos, who will now be without Nix.`\
+https://nytimes.com/athletic/6979285/2026/01/17/broncos-bo-nix-win-overtime-thriller-for-first-afc-championship-game-since-2015/
+
+**Seahawks RB Zach Charbonnet questionable to return with knee injury**\
 `The Seattle running back was injured in the first half of his team's NFC divisional game against the 49ers.`\
 https://nytimes.com/athletic/6979895/2026/01/17/seahawks-zach-charbonnet-knee-injury-49ers-playoffs/
 
