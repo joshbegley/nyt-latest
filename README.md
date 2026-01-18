@@ -14,8 +14,8 @@ https://nytimes.com/athletic/6979658/2026/01/18/harry-maguire-lisandro-martinez-
 `Ahead of the Bears' divisional-round playoff game, Case Keenum's role has been valuable, plus a matchup to watch and our game picks.`\
 https://nytimes.com/athletic/6977667/2026/01/18/bears-rams-nfl-playoffs-matchups-predictions/
 
-**Syrian Government and Kurdish-led Force Agree to Unite After Clashes**\
-`The new unity deal also calls for a cease-fire. Government forces have taken over a number of strategic assets from the Kurdish-led militia in recent days, weakening the force.`\
+**Syrian Government and Kurdish-Led Force Agree to Unite After Clashes**\
+`The new deal also calls for a cease-fire. Government forces have taken strategic assets from the militia in recent days, weakening the force.`\
 https://nytimes.com/2026/01/18/world/middleeast/syria-kurds-ceasefire.html
 
 **Pentagon Tells 1,500 Troops to Prepare for Possible Deployment to Minnesota**\

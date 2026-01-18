@@ -1,3 +1,7 @@
+**Palace intend to retain Glasner until the end of the season after positive talks**\
+`The Austrian had been critical of the Palace board after Saturday's defeat to Sunderland.`\
+https://nytimes.com/athletic/6980895/2026/01/18/oliver-glasner-crystal-palace-manager-future/
+
 **How can the Bears beat the Rams? Matchup to watch, game picks for divisional round**\
 `Ahead of the Bears' divisional-round playoff game, Case Keenum's role has been valuable, plus a matchup to watch and our game picks.`\
 https://nytimes.com/athletic/6977667/2026/01/18/bears-rams-nfl-playoffs-matchups-predictions/
