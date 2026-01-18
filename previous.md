@@ -1,3 +1,7 @@
+**Artemi Panarin 'confused' about Rangers' retool plans, plus what I'm hearing about what's next**\
+`Everything Panarin did on the ice Saturday in New York's 6-3 win over Flyers appeared carefree.`\
+https://nytimes.com/athletic/6979529/2026/01/17/artemi-panarin-ny-rangers-retool/
+
 **Trump Threatens New Tariffs To Force Sale of Greenland**\
 `On Saturday morning, President Trump announced in a social media post his latest strategy to seize control of Greenland: He is slapping new tariffs on a group of European nations until they come to the negotiating table to sell Greenland.`\
 https://nytimes.com/video/us/politics/100000010652071/greenland-trump-europe-tariffs.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/17/movies/european-film-awards-sentimental-value.htm
 **Use Your Words**\
 `Rena Cohen’s first Sunday puzzle gives something to everyone.`\
 https://nytimes.com/2026/01/17/crosswords/daily-puzzle-2026-01-18.html
-
-**The 1.18.26 Issue**\
-``\
-https://nytimes.com/issue/magazine/2026/01/17/the-11825-issue
 

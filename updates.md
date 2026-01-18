@@ -1,3 +1,7 @@
+**Artemi Panarin 'confused' about Rangers' retool plans, plus what I'm hearing about what's next**\
+`Everything Panarin did on the ice Saturday in New York's 6-3 win over Flyers appeared carefree.`\
+https://nytimes.com/athletic/6979529/2026/01/17/artemi-panarin-ny-rangers-retool/
+
 **Flyers' nosedive continues as they're blown out again: 'We sucked, plain and simple'**\
 `"You can't really afford to go on slides like this. ... (We'll) try to get out of this hole," Cam York said. `\
 https://nytimes.com/athletic/6979653/2026/01/17/flyers-lose-rangers-streak-continues/
