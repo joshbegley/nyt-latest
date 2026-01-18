@@ -1,3 +1,19 @@
+**Slot, Alonso and an air of uncertainty at Liverpool following Burnley draw**\
+`There are no plans to replace Arne Slot as Liverpool head coach, but the Dutchman needs to find momentum to salvage the season.`\
+https://nytimes.com/athletic/6928571/2026/01/18/arne-slot-xabi-alonso-and-an-air-of-uncertainty-at-liverpool-following-burnley-draw/
+
+**This feels like the end for Glasner at Crystal Palace**\
+`Oliver Glasner did not hold back in his press conference after defeat to Sunderland. There may be no way back for him at Palace.`\
+https://nytimes.com/athletic/6977693/2026/01/18/this-feels-like-the-end-for-oliver-glasner-at-crystal-palace/
+
+**Is Frank's relationship with Tottenham fans broken for good?**\
+`Spurs fans have got used to poor performances and results - but defeat to West Ham was about the damage done to Frank's reputation with them`\
+https://nytimes.com/athletic/6966044/2026/01/18/frank-tottenham-fans-boo-premier-league/
+
+**It's tense at Real Madrid. The fans have the players and Florentino Perez in their sights**\
+`It has been quite the week at the Bernabeu. The fans made their feelings known in Alvaro Arbeloa's first league game in charge `\
+https://nytimes.com/athletic/6978832/2026/01/18/real-madrid-fans-protests-perez-vinicius-bellingham/
+
 **Manchester United are back***\
 `Saturday's display could have been United's best since 2024, but we have been here before with interim managers...`\
 https://nytimes.com/athletic/6979370/2026/01/18/manchester-united-michael-carrick-win/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6977085/2026/01/18/days-that-shook-club-football/
 **A golden generation of Senegal stars is coming to the end. Another is emerging**\
 `The 2026 AFCON final is likely to be the last on the continent for Senegal's ageing stars. But the future appears to be increasingly bright`\
 https://nytimes.com/athletic/6978582/2026/01/18/senegal-new-golden-generation-mane-mbaye-sarr/
-
-**Trump Backs a Potential Primary Challenger to Bill Cassidy, a G.O.P. Senator**\
-`The president urged Representative Julia Letlow of Louisiana to run against Mr. Cassidy, in a move that is likely to further complicate his relationship with Senate Republicans.`\
-https://nytimes.com/2026/01/18/us/politics/trump-bill-cassidy-julia-letlow-primary-challenge-endorsement.html
-
-**The Screwdriver Salesman Behind Trump’s Airstrikes in Nigeria**\
-`Spotty research from a Christian activist has been used by Republican lawmakers to justify U.S. intervention in the country.`\
-https://nytimes.com/2026/01/18/world/africa/nigeria-christmas-bombing-republicans.html
-
-**Quote of the Day: Breathing New Life Into the Oboe**\
-`Quotation of the Day for Sunday, January 18, 2026.`\
-https://nytimes.com/2026/01/18/pageoneplus/quote-of-the-day-breathing-new-life-into-the-oboe.html
-
-**Why London’s Chimney Sweeps Are Enjoying a Resurgence**\
-`The centuries-old trade is enjoying something of a revival, partly driven by rising energy costs. Today’s sweeps use new tools and technology.`\
-https://nytimes.com/2026/01/18/world/europe/london-chimney-sweeps-energy-prices.html
 

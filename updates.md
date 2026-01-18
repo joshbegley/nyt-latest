@@ -1,3 +1,7 @@
+**Manchester United are back***\
+`Saturday's display could have been United's best since 2024, but we have been here before with interim managers...`\
+https://nytimes.com/athletic/6979370/2026/01/18/manchester-united-michael-carrick-win/
+
 **AFCON final, Senegal v Morocco: Can hosts end 50-year wait or will Mane and co spoil the party?**\
 `The home side will begin as favourites but their opponents know what it takes to win this competition`\
 https://nytimes.com/athletic/6976595/2026/01/18/afcon-final-preview-morocco-senegal/
