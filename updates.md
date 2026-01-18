@@ -1,3 +1,11 @@
+**Joe Montgomery, Who Made Bicycles Lighter, Dies at 86**\
+`A founder of Cannondale, he was among the first in the U.S. to mass-produce bikes frames out of large-diameter aluminum tubes, replacing heavier steel.`\
+https://nytimes.com/2026/01/18/obituaries/joe-montgomery-dead.html
+
+**Red Wings' Redmond to take medical absence from TV broadcast**\
+`The iconic broadcaster is set to undergo surgery to address chronic neck issues.`\
+https://nytimes.com/athletic/6981009/2026/01/18/mickey-redmond-red-wings-medical-absence-tv/
+
 **How to watch Michigan State vs. Iowa women's basketball: Time, TV, streaming**\
 `Find out how to watch the Michigan State Spartans play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6981064/2026/01/18/michigan-state-vs-iowa-stream-how-to-watch-jan-18/

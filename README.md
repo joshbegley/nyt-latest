@@ -1,3 +1,19 @@
+**How to watch Raptors vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6981107/2026/01/18/raptors-vs-lakers-stream-how-to-watch-jan-18/
+
+**How to watch Trail Blazers vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6981100/2026/01/18/trail-blazers-vs-kings-stream-how-to-watch-jan-18/
+
+**How to watch Hornets vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6981096/2026/01/18/hornets-vs-nuggets-stream-how-to-watch-jan-18/
+
+**How to watch Blues vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6981094/2026/01/18/blues-vs-oilers-stream-how-to-watch-jan-18/
+
 **Joe Montgomery, Who Made Bicycles Lighter, Dies at 86**\
 `A founder of Cannondale, he was among the first in the U.S. to mass-produce bikes frames out of large-diameter aluminum tubes, replacing heavier steel.`\
 https://nytimes.com/2026/01/18/obituaries/joe-montgomery-dead.html
@@ -17,20 +33,4 @@ https://nytimes.com/2026/01/18/arts/music/springsteen-ice-minneapolis.html
 **Kawhi Leonard to miss next 2 Clippers games with left knee irritation**\
 `The small forward will be reassessed when the Clippers return home before Thursday’s game against the Los Angeles Lakers.`\
 https://nytimes.com/athletic/6980937/2026/01/18/kawhi-leonard-left-knee-injury/
-
-**Forest can mix it with bigger sides - their season could rest on doing so against teams around them**\
-`Dyche's side have done well against clubs near the top of the division - but will need to do so against Leeds and Wolves in coming weeks`\
-https://nytimes.com/athletic/6980344/2026/01/18/forest-can-mix-it-with-bigger-sides-their-season-will-be-defined-by-doing-so-against-teams-around-them/
-
-**Tina Packer, Powerhouse of Shakespeare Performance, Dies at 87**\
-`She was a founder and the longtime artistic director of Shakespeare & Company, a repertory theater in western Massachusetts, and directed all his plays.`\
-https://nytimes.com/2026/01/18/theater/tina-packer-dead.html
-
-**Top Editor at Axel Springer Is Ousted After Workplace Investigation**\
-`Jan Philipp Burgard was one of Axel Springer’s most prominent editors, overseeing its influential German broadsheet Welt.`\
-https://nytimes.com/2026/01/18/business/media/axel-springer-editor-welt.html
-
-**Toulouse turn down increased bid from Wolfsburg for Cresswell**\
-`The defender has played in every league game for the Ligue 1 side this season and has attracted interest from elsewhere too. `\
-https://nytimes.com/athletic/6980964/2026/01/18/charlie-cresswell-toulouse-wolfsburg-bid-rejected/
 
