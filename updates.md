@@ -1,3 +1,11 @@
+**Cole Palmer is not himself. Liam Rosenior must manage his fitness carefully**\
+`Chelsea's best player is still to get fully back up to speed after his return. Will a hectic schedule help? `\
+https://nytimes.com/athletic/6979799/2026/01/18/cole-palmer-chelsea-fitness-liam-rosenior/
+
+**Tennis player interrupts Australian Open match to assist ball kid after collapse**\
+`Qualifier Zeynep Sönmez offered help during her victory over No. 11 seed Ekaterina Alexandrova.`\
+https://nytimes.com/athletic/6980257/2026/01/18/tennis-australian-open-ball-kid-collapse-zeynep-sonmez/
+
 **Lakers coach JJ Redick says officials 'admitted' mistakes in loss to Blazers**\
 `Portland got to the line 34 times in Saturday's 132-116 win over the Lakers Saturday night, including 22 in the first quarter.`\
 https://nytimes.com/athletic/6980249/2026/01/18/lakers-jj-redick-officials-mistakes-loss-blazers/
