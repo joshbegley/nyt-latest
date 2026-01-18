@@ -1,36 +1,36 @@
-**How cafecito — Miami's beloved Cuban espresso — became a pregame Canes tradition**\
-`Cafecito is ubiquitous in Miami’s culture, and a Hurricanes assistant has become the team's pregame barista.`\
-https://nytimes.com/athletic/6979207/2026/01/18/miami-football-cafecito-espresso-pregame/
+**NFL playoffs streaming guide: Texans-Patriots, Rams-Bears in Sunday divisional games**\
+`Sunday looks superb for playoff football. NFL divisional-round action closes with games at Gillette Stadium and Soldier Field. `\
+https://nytimes.com/athletic/6971649/2026/01/18/nfl-playoffs-texans-patriots-rams-bears-tv-streaming/
 
-**Josh Allen's tears should tell the Bills everything: This isn't working**\
-`For their Superman quarterback to take the Bills where they want to go, they’re going to have to find a way to reduce his burden.`\
-https://nytimes.com/athletic/6980124/2026/01/18/josh-allen-crying-bills-broncos/
+**Canadiens win, but again show when the going gets heavy, they must get desperate**\
+`The Canadiens have a lineup crunch on the horizon, and their need to withstand heavy teams could weigh heavily in the balance.`\
+https://nytimes.com/athletic/6980176/2026/01/18/canadiens-win-senators-overtime-cole-caufield/
 
-**The New York Times International Edition in Print for Monday, Jan. 19, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/01/18/todays-new-york-times-international-edition
+**Blue Jackets shrug off late blown lead, beat Penguins on Charlie Coyle's shootout goal**\
+`Coyle led Columbus to a 4-3 win over Pittsburgh, its fourth straight victory. `\
+https://nytimes.com/athletic/6979950/2026/01/18/blue-jackets-win-penguins-charlie-coyle-shootout-goal/
 
-**How to watch Magic vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6980383/2026/01/18/magic-vs-grizzlies-stream-how-to-watch-jan-18/
+**Young Blackhawks still trying to write their own story as recent history looms large**\
+`"We feel obliged to live up to what they did. We have aspirations of doing what they did," Oliver Moore said.`\
+https://nytimes.com/athletic/6980014/2026/01/18/blackhawks-bruins-stanley-cup-team-celebrations/
 
-**How to watch South Carolina vs. Coppin State women's basketball: Time, TV, streaming**\
-`Find out how to watch the South Carolina Gamecocks play the Coppin State Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6980378/2026/01/18/south-carolina-vs-coppin-state-stream-how-to-watch-jan-18/
+**An Old Theory Helps Explain What Happened to Renee Good**\
+`She had no way of knowing she had crossed a line.`\
+https://nytimes.com/2026/01/18/opinion/renee-good-ice-immunity.html
 
-**How to watch Ole Miss vs. Georgia women's basketball: Time, TV, streaming**\
-`Find out how to watch the Ole Miss Rebels play the Georgia Lady Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6980376/2026/01/18/ole-miss-vs-georgia-stream-how-to-watch-jan-18/
+**Broncos vow to 'rise up' for AFC title game despite gut punch of losing Bo Nix**\
+`The Broncos' fight was on display as they knocked off the Bills, but can they make the Super Bowl without their starting quarterback?`\
+https://nytimes.com/athletic/6980029/2026/01/18/broncos-bo-nix-injury-afc-championship/
 
-**How to watch Iowa State vs. Oklahoma State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa State Cyclones play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6980374/2026/01/18/iowa-state-vs-oklahoma-state-stream-how-to-watch-jan-18/
+**Lula: This Hemisphere Belongs to All of Us**\
+`Only together can we overcome the challenges that afflict a hemisphere that belongs to all of us.`\
+https://nytimes.com/2026/01/18/opinion/lula-venezuela-trump.html
 
-**How to watch Louisville vs. NC State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Louisville Cardinals play the NC State Lady Wolfpack, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6980372/2026/01/18/louisville-vs-nc-state-stream-how-to-watch-jan-18/
+**The Message in Renee Good’s Last Words**\
+`The ICE agent who shot Renee Good did not seem to hear what she was really saying.`\
+https://nytimes.com/2026/01/18/opinion/renee-good-last-words.html
 
-**Buttigieg and Booker Lead Push to Hammer Republicans on Health Care**\
-`The potential 2028 presidential candidates showcased a Democratic midterm strategy that would assail G.O.P. votes in favor of cutting Medicaid and allowing health care subsidies to expire.`\
-https://nytimes.com/2026/01/18/us/politics/democrats-health-care-booker-buttigieg.html
+**Senators' goaltending issues loom large after loss to Canadiens**\
+`The Sens' margin of error is thin due to their goaltending. And that problem has never been more evident than in recent weeks.`\
+https://nytimes.com/athletic/6979798/2026/01/18/senators-goaltending-merilainen-reimer-ullmark/
 
