@@ -1,3 +1,7 @@
+**After Trump Reignites a Trade War Over Greenland, Europe Weighs Going All-Out**\
+`Europe’s dependence on the United States for NATO security limits its options. Its strongest response could be retaliating with its own trade “bazooka.”`\
+https://nytimes.com/2026/01/18/world/europe/greenland-us-trade-war.html
+
 **After U.S. Reignites a Trade War Over Greenland, Europe Weighs Going All-Out**\
 `Europe’s dependence on the United States for NATO security limits its options. Its strongest response could be retaliating with its own trade “bazooka.”`\
 https://nytimes.com/2026/01/18/world/europe/greenland-us-trade-war.html
