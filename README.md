@@ -1,3 +1,11 @@
+**Can ICE Do That?**\
+`Times reporters answer readers’ questions about immigration and deportation.`\
+https://nytimes.com/2026/01/18/briefing/can-ice-do-that.html
+
+**Homefield Apparel built its brand on a losing Indiana program. Now they're both all the rage**\
+`When the company launched, "it was deprecating to be an Indiana football fan. It was charming.” On Monday, IU plays for a national title.`\
+https://nytimes.com/athletic/6979352/2026/01/18/homefield-apparel-indiana-football-cfp-national-championship-game/
+
 **For Miami fans, the road back to prominence has been filled with pain, disappointment**\
 `There have been some dark times, but no matter what happens Monday night, there’s a firm belief that the Canes' worst days are behind them.`\
 https://nytimes.com/athletic/6975228/2026/01/18/miami-hurricanes-fans-national-championship/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6977493/2026/01/18/carson-beck-miami-georgia-explai
 **What to know about the NBA's Grizzlies-Magic game in London**\
 `The NBA returns to London for the first time since 2019. Here's how to tune in. `\
 https://nytimes.com/athletic/6977573/2026/01/18/grizzlies-magic-ja-morant-nba-london-game/
-
-**Man United's Martinez responds to Scholes criticism: 'He can come to my house'**\
-`Martinez, speaking after the Manchester derby win, was responding to criticism from Scholes and Nicky Butt on their podcast.`\
-https://nytimes.com/athletic/6978856/2026/01/18/man-united-martinez-scholes-butt/
-
-**Steph and Seth Curry relish upholding their father Dell's NBA legacy**\
-`With their dad in town, the Curry brothers, teammates and their coach discussed their respect for the longtime Charlotte Hornet.`\
-https://nytimes.com/athletic/6980239/2026/01/18/steph-seth-dell-curry-warriors-charlotte-jersey-retirement/
 
