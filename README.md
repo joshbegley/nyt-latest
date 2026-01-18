@@ -1,3 +1,7 @@
+**Palace intend to retain Glasner until the end of the season after positive talks**\
+`The Austrian had been critical of the Palace board after Saturday's defeat to Sunderland.`\
+https://nytimes.com/athletic/6980895/2026/01/18/oliver-glasner-crystal-palace-manager-future/
+
 **Curt Cignetti's CFP plan: 'You don’t go to war with warm milk and cookies'**\
 `In two seasons under Cignetti, the Hoosiers are 26-2 in one of the great turnarounds in sports history.`\
 https://nytimes.com/athletic/6980802/2026/01/18/curt-cignetti-indiana-miami-college-football-playoff/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6980808/2026/01/18/pelicans-vs-rockets-stream-how-t
 **How to watch Nets vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6980806/2026/01/18/nets-vs-bulls-stream-how-to-watch-jan-18/
-
-**Lowetide: How can the Oilers increase their organizational depth this year?**\
-`The Oilers' prospect pool has spiked with college, junior and European free-agent signings.`\
-https://nytimes.com/athletic/6978183/2026/01/18/edmonton-oilers-depth-charts-signings-2026/
 
