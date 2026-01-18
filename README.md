@@ -1,4 +1,4 @@
-**After Broncos' whirlwind night, Sean Payton embracing conference title game challenge**\
+**After whirlwind night, Broncos' Sean Payton embracing conference title game challenge**\
 `The Broncos will learn their opponent for next week's AFC Championship Game on Sunday and begin making a game plan for Jarrett Stidham.`\
 https://nytimes.com/athletic/6980992/2026/01/18/sean-payton-embracing-broncos-conference-title-game-challenge-without-bo-nix/
 
