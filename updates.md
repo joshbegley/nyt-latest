@@ -1,3 +1,7 @@
+**Broncos, Bo Nix win overtime thriller for first AFC championship game since 2015**\
+`Four Josh Allen turnovers and five overall sabotaged the Bills in their upset bid of the top-seeded Broncos.`\
+https://nytimes.com/athletic/6979285/2026/01/17/broncos-bo-nix-win-overtime-thriller-for-first-afc-championship-game-since-2015/
+
 **Packers agree to extension with Matt LaFleur, near deal with GM Brian Gutekunst: Sources**\
 `Team president Ed Policy has said he's generally opposed to having a lame-duck head coach or general manager.`\
 https://nytimes.com/athletic/6962199/2026/01/17/matt-lafleur-packers-contract-extension/
