@@ -1,3 +1,11 @@
+**The Briefing: Senegal 1 Morocco 0 - Spectacular winner overshadowed by chaos after controversial penalty**\
+`Senegal beat Morocco in a controversial final after Senegal's players temporarily walked off the pitch in protest at a Morocco penalty`\
+https://nytimes.com/athletic/6969215/2026/01/18/senegal-1-morocco-0-chaos-controversial-penalty/
+
+**Senegal win chaotic AFCON final after walking off field in protest**\
+`The game was delayed late in stoppage time as the players went into the dressing room.  `\
+https://nytimes.com/athletic/6981321/2026/01/18/senegal-players-leave-field-in-afcon-final-penalty-protest/
+
 **Noem Denies Use of Chemical Agents in Minnesota, Then Backtracks**\
 `Kristi Noem, the homeland security secretary, said officers had not used pepper spray and similar measures limited by a judge’s order, then was confronted with a video that showed chemical agents deployed.`\
 https://nytimes.com/2026/01/18/us/politics/noem-chemical-agents-minnesota.html

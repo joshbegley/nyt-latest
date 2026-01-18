@@ -1,3 +1,7 @@
+**The Briefing: Senegal 1 Morocco 0 - Spectacular winner overshadowed by chaos after controversial penalty**\
+`Senegal beat Morocco in a controversial final after Senegal's players temporarily walked off the pitch in protest at a Morocco penalty`\
+https://nytimes.com/athletic/6969215/2026/01/18/senegal-1-morocco-0-chaos-controversial-penalty/
+
 **Noem Denies Use of Chemical Agents in Minnesota, Then Backtracks**\
 `Kristi Noem, the homeland security secretary, said officers had not used pepper spray and similar measures limited by a judge’s order, then was confronted with a video that showed chemical agents deployed.`\
 https://nytimes.com/2026/01/18/us/politics/noem-chemical-agents-minnesota.html
@@ -14,7 +18,7 @@ https://nytimes.com/2026/01/18/us/sept-11-convictions-overturned-first-amendment
 `Baylor had several holes to fill on its roster. None was bigger than QB, where Sawyer Robertson has exhausted his eligibility. `\
 https://nytimes.com/athletic/6963938/2026/01/18/dj-lagway-transfer-baylor-florida-quarterback/
 
-**Senegal players leave field in AFCON final penalty protest**\
+**Senegal win chaotic AFCON final after walking off field in protest**\
 `The game was delayed late in stoppage time as the players went into the dressing room.  `\
 https://nytimes.com/athletic/6981321/2026/01/18/senegal-players-leave-field-in-afcon-final-penalty-protest/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6981273/2026/01/18/mets-bo-bichette-plans-free-agen
 **Braves' Ha-Seong Kim to miss 4 to 5 months after undergoing finger surgery**\
 `The Braves re-signed the 30-year-old shortstop in December to a one-year, $20 million deal after claiming him off waivers on Sept. 1.`\
 https://nytimes.com/athletic/6981210/2026/01/18/braves-ha-seong-kim-hand-injury-underwent-surgery/
-
-**Still no decision on CFP expansion ahead of Friday deadline to make call on 2026**\
-`The Big Ten's Tony Petitti and the SEC's Greg Sankey hold the keys to expansion, and their conferences have been at an impasse for months.`\
-https://nytimes.com/athletic/6980856/2026/01/18/college-football-playoff-expansion-2026-format/
 
