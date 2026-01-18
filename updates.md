@@ -1,3 +1,7 @@
+**College tennis star Michael Zheng stuns Sebastian Korda at Australian Open**\
+`Columbia student Zheng held his nerve in the face of a comeback from his compatriot to win his first Grand Slam main-draw match.`\
+https://nytimes.com/athletic/6980281/2026/01/18/australian-open-michael-zheng-college-tennis-korda/
+
 **Cole Palmer is not himself. Liam Rosenior must manage his fitness carefully**\
 `Chelsea's best player is still to get fully back up to speed after his return. Will a hectic schedule help? `\
 https://nytimes.com/athletic/6979799/2026/01/18/cole-palmer-chelsea-fitness-liam-rosenior/
