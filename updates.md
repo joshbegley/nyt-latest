@@ -1,3 +1,11 @@
+**Can ICE Do That?**\
+`Times reporters answer readers’ questions about immigration and deportation.`\
+https://nytimes.com/2026/01/18/briefing/can-ice-do-that.html
+
+**Homefield Apparel built its brand on a losing Indiana program. Now they're both all the rage**\
+`When the company launched, "it was deprecating to be an Indiana football fan. It was charming.” On Monday, IU plays for a national title.`\
+https://nytimes.com/athletic/6979352/2026/01/18/homefield-apparel-indiana-football-cfp-national-championship-game/
+
 **For Miami fans, the road back to prominence has been filled with pain, disappointment**\
 `There have been some dark times, but no matter what happens Monday night, there’s a firm belief that the Canes' worst days are behind them.`\
 https://nytimes.com/athletic/6975228/2026/01/18/miami-hurricanes-fans-national-championship/
