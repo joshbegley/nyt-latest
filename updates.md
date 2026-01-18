@@ -1,3 +1,7 @@
+**Forest can mix it with bigger sides - their season could rest on doing so against teams around them**\
+`Dyche's side have done well against clubs near the top of the division - but will need to do so against Leeds and Wolves in coming weeks`\
+https://nytimes.com/athletic/6980344/2026/01/18/forest-can-mix-it-with-bigger-sides-their-season-will-be-defined-by-doing-so-against-teams-around-them/
+
 **NFL rules analyst weighs in on controversial Broncos overtime INT vs. Bills**\
 `NFL rules analyst Walt Anderson gives his take on the Broncos' controversial overtime interception against the Bills.`\
 https://nytimes.com/athletic/6980891/2026/01/18/broncos-bills-controversial-interception-nfl-rules-analyst/

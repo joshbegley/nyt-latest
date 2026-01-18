@@ -1,3 +1,7 @@
+**Forest can mix it with bigger sides - their season could rest on doing so against teams around them**\
+`Dyche's side have done well against clubs near the top of the division - but will need to do so against Leeds and Wolves in coming weeks`\
+https://nytimes.com/athletic/6980344/2026/01/18/forest-can-mix-it-with-bigger-sides-their-season-will-be-defined-by-doing-so-against-teams-around-them/
+
 **Tina Packer, Powerhouse of Shakespeare Performance, Dies at 87**\
 `She was a founder and the longtime artistic director of Shakespeare & Company, a repertory theater in western Massachusetts, and directed all his plays.`\
 https://nytimes.com/2026/01/18/theater/tina-packer-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6980802/2026/01/18/curt-cignetti-indiana-miami-coll
 **Maguire and Martinez dominated Haaland. There's beauty in a centre-back pairing**\
 `Michael Carrick's first game in charge brought scenes not seen at Old Trafford for years – the centre-backs set the tone for United's win`\
 https://nytimes.com/athletic/6979658/2026/01/18/harry-maguire-lisandro-martinez-manchester-united-centre-backs/
-
-**How can the Bears beat the Rams? Matchup to watch, game picks for divisional round**\
-`Ahead of the Bears' divisional-round playoff game, Case Keenum's role has been valuable, plus a matchup to watch and our game picks.`\
-https://nytimes.com/athletic/6977667/2026/01/18/bears-rams-nfl-playoffs-matchups-predictions/
 
