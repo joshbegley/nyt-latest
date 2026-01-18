@@ -1,36 +1,36 @@
-**Ferocious Seahawks overwhelm 49ers, advance to NFC Championship Game**\
-`The Seahawks scored on the opening kickoff and never looked back against the undermanned 49ers.`\
-https://nytimes.com/athletic/6979806/2026/01/17/49ers-seahawks-score-result-takeaways-nfl-divisional-round/
+**AFCON final, Senegal v Morocco: Can hosts end 50-year wait or will Mane and co spoil the party?**\
+`The home side will begin as favourites but their opponents know what it takes to win this competition`\
+https://nytimes.com/athletic/6976595/2026/01/18/afcon-final-preview-morocco-senegal/
 
-**NFL playoff schedule: Seahawks, Broncos advance to conference championships**\
-`The Broncos survived an OT thriller against the Bills to advance, while the Seahawks dominated against the 49ers.`\
-https://nytimes.com/athletic/6979795/2026/01/17/2025-26-nfl-conference-championship-schedule/
+**Manchester City's abject defeat at Old Trafford: Trying to explain the inexplicable**\
+`So much went wrong for Pep Guardiola on Saturday, it is hard to know when to start`\
+https://nytimes.com/athletic/6979009/2026/01/18/manchester-city-manchester-united-defeat/
 
-**Broncos Eliminate Bills in Overtime to Advance in N.F.L. Playoffs**\
-`Denver forced five Buffalo turnovers in a 33-30 victory and will host the winner of New England versus Houston in the A.F.C. Championship game.`\
-https://nytimes.com/video/the-athletic/100000010652397/broncos-eliminate-bills-in-overtime-to-advance-in-nfl-playoffs.html
+**The days that shook club football (and sometimes our reporters)**\
+`There are some days when breaking news absolutely blindsides a football club. Here are some of the moments that have rocked sides in Europe`\
+https://nytimes.com/athletic/6977085/2026/01/18/days-that-shook-club-football/
 
-**President Trump vows to secure exclusive Army-Navy broadcast time**\
-`The CFP management committee has discussed scheduling playoff games before and after the Army-Navy game.`\
-https://nytimes.com/athletic/6979940/2026/01/17/president-trump-army-navy-game-executive-order/
+**A golden generation of Senegal stars is coming to the end. Another is emerging**\
+`The 2026 AFCON final is likely to be the last on the continent for Senegal's ageing stars. But the future appears to be increasingly bright`\
+https://nytimes.com/athletic/6978582/2026/01/18/senegal-new-golden-generation-mane-mbaye-sarr/
 
-**Who is Jarrett Stidham, the Broncos backup QB who will take over for Bo Nix?**\
-`The 2019 fourth-round pick by the New England Patriots who signed with the Broncos in 2023 has made four career starts.`\
-https://nytimes.com/athletic/6979876/2026/01/17/jarrett-stidham-bo-nix-broncos-backup-qb/
+**Trump Backs a Potential Primary Challenger to Bill Cassidy, a G.O.P. Senator**\
+`The president urged Representative Julia Letlow of Louisiana to run against Mr. Cassidy, in a move that is likely to further complicate his relationship with Senate Republicans.`\
+https://nytimes.com/2026/01/18/us/politics/trump-bill-cassidy-julia-letlow-primary-challenge-endorsement.html
 
-**Virginia’s New Governor Moves Swiftly to Overhaul State University Boards**\
-`Abigail Spanberger, a Democrat, appointed new board members at three state schools, hours after she was sworn in as Virginia’s first female governor.`\
-https://nytimes.com/2026/01/17/us/politics/spanberger-virginia-uva-board.html
+**The Screwdriver Salesman Behind Trump’s Airstrikes in Nigeria**\
+`Spotty research from a Christian activist has been used by Republican lawmakers to justify U.S. intervention in the country.`\
+https://nytimes.com/2026/01/18/world/africa/nigeria-christmas-bombing-republicans.html
 
-**These Are the 12 States Vying to Kick Off Democrats’ 2028 Contest**\
-`There were a few surprises, and subtle regional digs, as Democratic state parties angled for early spots on the next presidential primary calendar. The New York Times reviewed their applications.`\
-https://nytimes.com/2026/01/17/us/politics/2028-democratic-primary-states-iowa-south-carolina-nevada-new-hampshire.html
+**Quote of the Day: Breathing New Life Into the Oboe**\
+`Quotation of the Day for Sunday, January 18, 2026.`\
+https://nytimes.com/2026/01/18/pageoneplus/quote-of-the-day-breathing-new-life-into-the-oboe.html
 
-**Bills' Sean McDermott frustrated with officiating on overtime interception**\
-`"I’m standing up for Buffalo, dammit," McDermott said. "What went on — that is not how it should go down, in my estimation."`\
-https://nytimes.com/athletic/6979884/2026/01/17/sean-mcdermott-comments-officiating-bills-broncos-overtime/
+**Why London’s Chimney Sweeps Are Enjoying a Resurgence**\
+`The centuries-old trade is enjoying something of a revival, partly driven by rising energy costs. Today’s sweeps use new tools and technology.`\
+https://nytimes.com/2026/01/18/world/europe/london-chimney-sweeps-energy-prices.html
 
-**Seahawks RB Zach Charbonnet, LT Charles cross injured in win**\
-`Mike Macdonald said the team is optimistic Charbonnet avoided a serious injury, while Cross did not return out of caution.`\
-https://nytimes.com/athletic/6979895/2026/01/17/seahawks-zach-charbonnet-knee-injury-49ers-playoffs/
+**The Dark History of France’s Embassy in Iraq Goes on Trial in Paris**\
+`A Jewish family that fled Iraq generations ago rented its home to France for use as an embassy, but Paris long ago stopped paying it rent, after Iraq stripped Jews of property.`\
+https://nytimes.com/2026/01/18/world/middleeast/jewish-family-iraq-embassy-.html
 

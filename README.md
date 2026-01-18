@@ -1,3 +1,7 @@
+**Manchester United are back***\
+`Saturday's display could have been United's best since 2024, but we have been here before with interim managers...`\
+https://nytimes.com/athletic/6979370/2026/01/18/manchester-united-michael-carrick-win/
+
 **AFCON final, Senegal v Morocco: Can hosts end 50-year wait or will Mane and co spoil the party?**\
 `The home side will begin as favourites but their opponents know what it takes to win this competition`\
 https://nytimes.com/athletic/6976595/2026/01/18/afcon-final-preview-morocco-senegal/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/18/pageoneplus/quote-of-the-day-breathing-new-life-i
 **Why London’s Chimney Sweeps Are Enjoying a Resurgence**\
 `The centuries-old trade is enjoying something of a revival, partly driven by rising energy costs. Today’s sweeps use new tools and technology.`\
 https://nytimes.com/2026/01/18/world/europe/london-chimney-sweeps-energy-prices.html
-
-**The Dark History of France’s Embassy in Iraq Goes on Trial in Paris**\
-`A Jewish family that fled Iraq generations ago rented its home to France for use as an embassy, but Paris long ago stopped paying it rent, after Iraq stripped Jews of property.`\
-https://nytimes.com/2026/01/18/world/middleeast/jewish-family-iraq-embassy-.html
 
