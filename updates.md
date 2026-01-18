@@ -1,3 +1,11 @@
+**Texans LB Azeez Al-Shaair wears ‘stop the genocide’ eye black vs. Patriots**\
+`Al-Shaair's message, first displayed during Monday's wild-card game against the Pittsburgh Steelers, supports the people of Palestine.`\
+https://nytimes.com/athletic/6981232/2026/01/18/texans-azeez-al-shaair-eye-black-patriots-genocide/
+
+**Forest close to loan agreement with Napoli for Lucca**\
+`Lucca has started only four times in the league after signing on loan from Udinese last summer. `\
+https://nytimes.com/athletic/6981207/2026/01/18/lorenzo-lucca-nottingham-forest-napoli-loan-transfer-news/
+
 **Flames trade Rasmus Andersson to Vegas for Whitecloud, prospect, two picks: Sources**\
 `The defenseman is in the final year of a six-year contract carrying a $4.55 million cap hit, with Calgary retaining half.`\
 https://nytimes.com/athletic/6442132/2026/01/18/rasmus-andersson-traded-lv-golden-knights-nhl/

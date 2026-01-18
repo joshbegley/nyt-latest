@@ -1,3 +1,11 @@
+**Comes to Light**\
+`Find your “aha!” moment in Peter Gorman’s puzzle.`\
+https://nytimes.com/2026/01/18/crosswords/daily-puzzle-2026-01-19.html
+
+**A Century of The New York Times in Antarctica**\
+`Our climate reporter Raymond Zhong takes a trip into the New York Times archives to see how our understanding of Antarctica has changed over the past century.`\
+https://nytimes.com/video/climate/100000010542262/a-century-of-the-new-york-times-in-antarctica.html
+
 **Texans LB Azeez Al-Shaair wears ‘stop the genocide’ eye black vs. Patriots**\
 `Al-Shaair's message, first displayed during Monday's wild-card game against the Pittsburgh Steelers, supports the people of Palestine.`\
 https://nytimes.com/athletic/6981232/2026/01/18/texans-azeez-al-shaair-eye-black-patriots-genocide/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6981354/2026/01/18/pwhl-womens-hockey-attendance-re
 **Wilbur Wood, Ironman Knuckleballer for the White Sox, Is Dead at 84**\
 `He threw more innings in a season than any player since 1917. A three-time All-Star, he also had four 20-win seasons.`\
 https://nytimes.com/2026/01/18/sports/baseball/wilbur-wood-dead.html
-
-**The Briefing: Senegal 1 Morocco 0 - Spectacular winner overshadowed by chaos after controversial penalty**\
-`Senegal beat Morocco in a controversial final after Senegal's players temporarily walked off the pitch in protest at a Morocco penalty`\
-https://nytimes.com/athletic/6969215/2026/01/18/senegal-1-morocco-0-chaos-controversial-penalty/
-
-**Noem Denies Use of Chemical Agents in Minnesota, Then Backtracks**\
-`Kristi Noem, the homeland security secretary, said officers had not used pepper spray and similar measures limited by a judge’s order, then was confronted with a video that showed chemical agents deployed.`\
-https://nytimes.com/2026/01/18/us/politics/noem-chemical-agents-minnesota.html
 
