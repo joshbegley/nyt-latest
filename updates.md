@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: European Leaders Condemn U.S. Tariff Threat Over Greenland**\
+``\
+https://nytimes.com/live/2026/01/18/us/trump-news
+
+**On ‘S.N.L.,’ Trump Recaps his Recent ‘Legal-ish’ Activities**\
+`The first episode of 2026, hosted by Finn Wolfhard of “Stranger Things,” satirized that hit Netflix series and conjured a Harry Potter reboot à la “Heated Rivalry.”`\
+https://nytimes.com/2026/01/18/arts/television/snl-trump-recaps-legal-ish-actions.html
+
+**How to watch Lightning vs. Stars: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980550/2026/01/18/lightning-vs-stars-stream-how-to-watch-jan-18/
+
 **Trump’s Campaign Manager Resolves Daily Beast Defamation Suit**\
 `As part of the settlement, The Daily Beast was not required to apologize or issue any payment to Chris LaCivita, who sued the outlet last year.`\
 https://nytimes.com/2026/01/18/business/media/chris-lacivita-daily-beast-defamation-suit.html
