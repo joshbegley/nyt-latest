@@ -1,3 +1,7 @@
+**Perth Sail Grand Prix: Huge waves, broken boats, Britain on top again**\
+`Britain wins the opening weekend of the season, while USA shows huge improvement by finishing fifth overall`\
+https://nytimes.com/athletic/6980425/2026/01/18/sailgp-perth-season-6-britain-win/
+
 **Did Peyton Manning help pave the way for Indiana's unlikely football breakthrough?**\
 `I grew up in Indiana and saw attitudes about football change with the Colts. Now the Hoosiers are capitalizing in an unlikely Playoff run.`\
 https://nytimes.com/athletic/6978610/2026/01/18/peyton-manning-indiana-football-basketball-colts/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6980239/2026/01/18/steph-seth-dell-curry-warriors-c
 **How Alex Bregman’s $175 million Cubs deal came together on epic Chicago sports night**\
 `While the Bears mounted their comeback against the Packers, a longtime Brian Urlacher fan finalized a contract to come to the Windy City.`\
 https://nytimes.com/athletic/6979329/2026/01/18/alex-bregman-cubs-contract-chicago-bears/
-
-**Victor Wembanyama-Anthony Edwards is the new-age rivalry the NBA needs**\
-`The two young stars shined brightest Saturday night, with Edwards scoring a career-high 55 points but Wembanyama's Spurs coming out on top.`\
-https://nytimes.com/athletic/6979867/2026/01/18/victor-wembanyama-anthony-edwards-rivalry-spurs-timberwolves/
 
