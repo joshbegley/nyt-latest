@@ -1,3 +1,7 @@
+**NHL trade grades: Andersson adds punch to Vegas' blue line, but did Flames get enough?**\
+`Vegas sent a player, a prospect and two picks back for the pending UFA defenseman with half salary retained.`\
+https://nytimes.com/athletic/6981549/2026/01/18/nhl-trade-grades-rasmus-andersson-flames-golden-knights/
+
 **At Least 10 Killed in High-Speed Train Derailment in Spain**\
 `After the rear carriages of one train derailed onto the opposite track, another train passing by collided with it.`\
 https://nytimes.com/2026/01/18/world/europe/spain-high-speed-train-derailment.html
