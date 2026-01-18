@@ -1,3 +1,19 @@
+**Psst, Mayor Mamdani: The Upper East Side Is More Fun Than People Think**\
+`Beyond stuffy old money and noisy sports bars, hidden gems abound.`\
+https://nytimes.com/2026/01/18/nyregion/zohran-mamdani-upper-east-side.html
+
+**Mamdani Said He’d Make Buses Faster and Free. Now It’s This Guy’s Job to Do It.**\
+`Mike Flynn, a former intern who rose to the top of the agency, will be under a microscope, but far from the spotlight.`\
+https://nytimes.com/2026/01/18/nyregion/mike-flynn-nyc-transportation-commissioner.html
+
+**‘She Stared Back, Apparently Unfazed by My Rat Ears ’**\
+`A tour guide goes one step beyond, a macaw on the Q and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2026/01/18/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/18/crosswords/spelling-bee-forum.html
+
 **Arsenal and another missed opportunity**\
 `Mikel Arteta's team do not seem to enjoy their trips to Nottingham Forest. They failed to take the chance of going nine points clear`\
 https://nytimes.com/athletic/6979541/2026/01/18/arsenal-arteta-missed-opportunity/
@@ -17,20 +33,4 @@ https://nytimes.com/2026/01/18/opinion/landman-sheridan-oil-accuracy.html
 **The New York Times in Print for Sunday, Jan. 18, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/18/todays-new-york-times
-
-**One Year of Trump. The Time to Act Is Now, While We Still Can.**\
-`The United States is broken, but not in every way.`\
-https://nytimes.com/2026/01/18/opinion/trump-one-year-later.html
-
-**Peaking Auston Matthews is keeping Maple Leafs' playoff hopes alive**\
-`In the short term, Matthews will need to continue doing much of the heavy lifting offensively to get the Leafs back into a playoff position.`\
-https://nytimes.com/athletic/6980063/2026/01/18/auston-matthews-toronto-maple-leafs-playoff-hunt/
-
-**Slot, Alonso and an air of uncertainty at Liverpool following Burnley draw**\
-`There are no plans to replace Arne Slot as Liverpool head coach, but the Dutchman needs to find momentum to salvage the season`\
-https://nytimes.com/athletic/6928571/2026/01/18/arne-slot-xabi-alonso-and-an-air-of-uncertainty-at-liverpool-following-burnley-draw/
-
-**This feels like the end for Glasner at Crystal Palace**\
-`Oliver Glasner did not hold back in his press conference after defeat to Sunderland. There may be no way back for him at Palace.`\
-https://nytimes.com/athletic/6977693/2026/01/18/this-feels-like-the-end-for-oliver-glasner-at-crystal-palace/
 
