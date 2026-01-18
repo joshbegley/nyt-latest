@@ -7,7 +7,7 @@ https://nytimes.com/2026/01/18/business/media/axel-springer-editor-welt.html
 https://nytimes.com/athletic/6980964/2026/01/18/charlie-cresswell-toulouse-wolfsburg-bid-rejected/
 
 **NFL rules analyst weighs in on controversial Broncos overtime INT vs. Bills**\
-`NFL rules analyst Walt Anderson gives his take on the Denver Broncos controversial overtime interception against Buffalo Bills.`\
+`NFL rules analyst Walt Anderson gives his take on the Denver Broncos' controversial overtime interception against Buffalo Bills.`\
 https://nytimes.com/athletic/6980891/2026/01/18/broncos-bills-controversial-interception-nfl-rules-analyst/
 
 **‘Come Help Us’: Wildfires Grip Parts of Chile, Killing at Least 16**\

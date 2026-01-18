@@ -1,3 +1,7 @@
+**Tina Packer, Powerhouse of Shakespeare Performance, Dies at 87**\
+`She was a founder and the longtime artistic director of Shakespeare & Company, a repertory theater in western Massachusetts, and directed all his plays.`\
+https://nytimes.com/2026/01/18/theater/tina-packer-dead.html
+
 **Top Editor at Axel Springer Is Ousted After Workplace Investigation**\
 `Jan Philipp Burgard was one of Axel Springer’s most prominent editors, overseeing its influential German broadsheet Welt.`\
 https://nytimes.com/2026/01/18/business/media/axel-springer-editor-welt.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979658/2026/01/18/harry-maguire-lisandro-martinez-
 **How can the Bears beat the Rams? Matchup to watch, game picks for divisional round**\
 `Ahead of the Bears' divisional-round playoff game, Case Keenum's role has been valuable, plus a matchup to watch and our game picks.`\
 https://nytimes.com/athletic/6977667/2026/01/18/bears-rams-nfl-playoffs-matchups-predictions/
-
-**Syrian Government and Kurdish-Led Force Agree to Unite After Clashes**\
-`The new deal also calls for a cease-fire. Government forces have taken strategic assets from the militia in recent days, weakening the force.`\
-https://nytimes.com/2026/01/18/world/middleeast/syria-kurds-ceasefire.html
 

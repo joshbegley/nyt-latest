@@ -1,3 +1,7 @@
+**NFL rules analyst weighs in on controversial Broncos overtime INT vs. Bills**\
+`NFL rules analyst Walt Anderson gives his take on the Denver Broncos' controversial overtime interception against Buffalo Bills.`\
+https://nytimes.com/athletic/6980891/2026/01/18/broncos-bills-controversial-interception-nfl-rules-analyst/
+
 **Top Editor at Axel Springer Is Ousted After Workplace Investigation**\
 `Jan Philipp Burgard was one of Axel Springer’s most prominent editors, overseeing its influential German broadsheet Welt.`\
 https://nytimes.com/2026/01/18/business/media/axel-springer-editor-welt.html
