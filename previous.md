@@ -1,3 +1,15 @@
+**What ‘Landman’ Understands About Oil**\
+`The show does far more to criticize the oil and gas industry than it does to bolster it.`\
+https://nytimes.com/2026/01/18/opinion/landman-sheridan-oil-accuracy.html
+
+**The New York Times in Print for Sunday, Jan. 18, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/18/todays-new-york-times
+
+**One Year Later, What Kind of Country Have We Become?**\
+`The United States is broken, but not in every way.`\
+https://nytimes.com/2026/01/18/opinion/trump-one-year-later.html
+
 **Peaking Auston Matthews is keeping Maple Leafs playoff hopes alive**\
 `In the short term, Matthews will need to continue doing much of the heavy lifting offensively to get the Leafs back into a playoff position.`\
 https://nytimes.com/athletic/6980063/2026/01/18/auston-matthews-toronto-maple-leafs-playoff-hunt/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6978832/2026/01/18/real-madrid-fans-protests-perez-
 **Manchester United are back***\
 `Saturday's display could have been United's best since 2024, but we have been here before with interim managers...`\
 https://nytimes.com/athletic/6979370/2026/01/18/manchester-united-michael-carrick-win/
-
-**AFCON final, Senegal v Morocco: Can hosts end 50-year wait or will Mane and co spoil the party?**\
-`The home side will begin as favourites but their opponents know what it takes to win this competition`\
-https://nytimes.com/athletic/6976595/2026/01/18/afcon-final-preview-morocco-senegal/
-
-**Manchester City's abject defeat at Old Trafford: Trying to explain the inexplicable**\
-`So much went wrong for Pep Guardiola on Saturday, it is hard to know when to start`\
-https://nytimes.com/athletic/6979009/2026/01/18/manchester-city-manchester-united-defeat/
-
-**The days that shook club football (and sometimes our reporters)**\
-`There are some days when breaking news absolutely blindsides a football club. Here are some of the moments that have rocked sides in Europe`\
-https://nytimes.com/athletic/6977085/2026/01/18/days-that-shook-club-football/
 
