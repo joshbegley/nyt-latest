@@ -1,3 +1,7 @@
+**Man Acquitted of Shining a Laser at Marine One With Trump Aboard**\
+`A jury found the man, Jacob Samuel Winkler, not guilty after just 35 minutes of deliberation. He was charged in September with pointing a laser at an aircraft.`\
+https://nytimes.com/2026/01/18/us/politics/marine-laser-trump-acquitted.html
+
 **Comes to Light**\
 `Find your “aha!” moment in Peter Gorman’s puzzle.`\
 https://nytimes.com/2026/01/18/crosswords/daily-puzzle-2026-01-19.html
