@@ -1,3 +1,7 @@
+**‘Landman’ Isn’t Just Oil Industry Propaganda**\
+`The show does far more to criticize the oil and gas industry than it does to bolster it.`\
+https://nytimes.com/2026/01/18/opinion/landman-sheridan-oil-accuracy.html
+
 **One Year of Trump. The Time to Act Is Now, While We Still Can.**\
 `The United States is broken, but not in every way.`\
 https://nytimes.com/2026/01/18/opinion/trump-one-year-later.html

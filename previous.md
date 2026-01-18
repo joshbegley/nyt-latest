@@ -2,7 +2,7 @@
 `The Democratic Senate candidate is campaigning on his faith.`\
 https://nytimes.com/2026/01/18/briefing/on-james-talarico.html
 
-**What ‘Landman’ Understands About Oil**\
+**‘Landman’ Isn’t Just Oil Industry Propaganda**\
 `The show does far more to criticize the oil and gas industry than it does to bolster it.`\
 https://nytimes.com/2026/01/18/opinion/landman-sheridan-oil-accuracy.html
 
