@@ -1,3 +1,7 @@
+**Broncos, Bo Nix win overtime thriller for first AFC championship game since 2015**\
+`Four Josh Allen turnovers and five overall sabotaged the Bills in their upset bid of the top-seeded Broncos.`\
+https://nytimes.com/athletic/6979285/2026/01/17/broncos-bo-nix-win-overtime-thriller-for-first-afc-championship-game-since-2015/
+
 **Artemi Panarin 'confused' about Rangers' retool plans, plus what I'm hearing about what's next**\
 `Everything Panarin did on the ice Saturday in New York's 6-3 win over Flyers appeared carefree.`\
 https://nytimes.com/athletic/6979529/2026/01/17/artemi-panarin-ny-rangers-retool/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6979548/2026/01/17/sabres-wild-michael-kesselring-o
 **‘Sentimental Value’ Dominates the European Film Awards**\
 `The Norwegian drama collected six awards at the event, which was moved to January this year in hopes of increasing its visibility for Oscar voters.`\
 https://nytimes.com/2026/01/17/movies/european-film-awards-sentimental-value.html
-
-**Use Your Words**\
-`Rena Cohen’s first Sunday puzzle gives something to everyone.`\
-https://nytimes.com/2026/01/17/crosswords/daily-puzzle-2026-01-18.html
 

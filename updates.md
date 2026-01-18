@@ -1,3 +1,7 @@
+**Packers agree to extension with Matt LaFleur, near deal with GM Brian Gutekunst: Sources**\
+`Team president Ed Policy has said he's generally opposed to having a lame-duck head coach or general manager.`\
+https://nytimes.com/athletic/6962199/2026/01/17/matt-lafleur-packers-contract-extension/
+
 **Artemi Panarin 'confused' about Rangers' retool plans, plus what I'm hearing about what's next**\
 `Everything Panarin did on the ice Saturday in New York's 6-3 win over Flyers appeared carefree.`\
 https://nytimes.com/athletic/6979529/2026/01/17/artemi-panarin-ny-rangers-retool/
