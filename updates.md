@@ -1,3 +1,11 @@
+**Snow, Seldom Seen in the South, Comes to Parts of Georgia**\
+`Snow was observed as far South as Florida as temperatures plummeted. New York City could receive up to four inches of snow and up to six inches is possible in Boston.`\
+https://nytimes.com/2026/01/18/us/northeast-winter-snow-storm.html
+
+**Miami's star freshman skipped his senior year, but his instant CFB success is no surprise**\
+`Indiana's biggest challenge may be defending receiver Malachi Toney. Those who saw him in high school can relate.`\
+https://nytimes.com/athletic/6979356/2026/01/18/malachi-toney-miami-high-school-recruiting-indiana/
+
 **After Trump Reignites a Trade War Over Greenland, Europe Weighs Going All-Out**\
 `Europe’s dependence on the United States for NATO security limits its options. Its strongest response could be retaliating with its own trade “bazooka.”`\
 https://nytimes.com/2026/01/18/world/europe/greenland-us-trade-war.html

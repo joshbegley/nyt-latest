@@ -1,3 +1,11 @@
+**Snow, Seldom Seen in the South, Comes to Parts of Georgia**\
+`Snow was observed as far South as Florida as temperatures plummeted. New York City could receive up to four inches of snow and up to six inches is possible in Boston.`\
+https://nytimes.com/2026/01/18/us/northeast-winter-snow-storm.html
+
+**Miami's star freshman skipped his senior year, but his instant CFB success is no surprise**\
+`Indiana's biggest challenge may be defending receiver Malachi Toney. Those who saw him in high school can relate.`\
+https://nytimes.com/athletic/6979356/2026/01/18/malachi-toney-miami-high-school-recruiting-indiana/
+
 **After Trump Reignites a Trade War Over Greenland, Europe Weighs Going All-Out**\
 `Europe’s dependence on the United States for NATO security limits its options. Its strongest response could be retaliating with its own trade “bazooka.”`\
 https://nytimes.com/2026/01/18/world/europe/greenland-us-trade-war.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/18/opinion/renee-good-ice-immunity.html
 **Broncos vow to 'rise up' for AFC title game despite gut punch of losing Bo Nix**\
 `The Broncos' fight was on display as they knocked off the Bills, but can they make the Super Bowl without their starting quarterback?`\
 https://nytimes.com/athletic/6980029/2026/01/18/broncos-bo-nix-injury-afc-championship/
-
-**Lula: This Hemisphere Belongs to All of Us**\
-`Only together can we overcome the challenges that afflict a hemisphere that belongs to all of us.`\
-https://nytimes.com/2026/01/18/opinion/lula-venezuela-trump.html
-
-**The Message in Renee Good’s Last Words**\
-`The ICE agent who shot Renee Good did not seem to hear what she was really saying.`\
-https://nytimes.com/2026/01/18/opinion/renee-good-last-words.html
 

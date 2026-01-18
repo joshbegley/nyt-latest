@@ -1,3 +1,7 @@
+**Venus Williams delivers vintage Australian Open performance in agonizing loss**\
+`The 45-year-old was two games away from a stunning victory over Olga Danilović of Serbia.`\
+https://nytimes.com/athletic/6980387/2026/01/18/tennis-venus-williams-australian-open-olga-danilovic/
+
 **Snow, Seldom Seen in the South, Comes to Parts of Georgia**\
 `Snow was observed as far South as Florida as temperatures plummeted. New York City could receive up to four inches of snow and up to six inches is possible in Boston.`\
 https://nytimes.com/2026/01/18/us/northeast-winter-snow-storm.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6980014/2026/01/18/blackhawks-bruins-stanley-cup-te
 **An Old Theory Helps Explain What Happened to Renee Good**\
 `She had no way of knowing she had crossed a line.`\
 https://nytimes.com/2026/01/18/opinion/renee-good-ice-immunity.html
-
-**Broncos vow to 'rise up' for AFC title game despite gut punch of losing Bo Nix**\
-`The Broncos' fight was on display as they knocked off the Bills, but can they make the Super Bowl without their starting quarterback?`\
-https://nytimes.com/athletic/6980029/2026/01/18/broncos-bo-nix-injury-afc-championship/
 
