@@ -1,3 +1,7 @@
+**Forest close to loan agreement with Napoli for Lucca**\
+`Lucca has started only four times in the league after signing on loan from Udinese last summer. `\
+https://nytimes.com/athletic/6981207/2026/01/18/lorenzo-lucca-nottingham-forest-napoli-loan-transfer-news/
+
 **Flames trade Rasmus Andersson to Vegas for Whitecloud, prospect, two picks: Sources**\
 `The defenseman is in the final year of a six-year contract carrying a $4.55 million cap hit, with Calgary retaining half.`\
 https://nytimes.com/athletic/6442132/2026/01/18/rasmus-andersson-traded-lv-golden-knights-nhl/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/18/us/politics/noem-chemical-agents-minnesota.html
 **Trump’s Ultimatum to Europe**\
 `Trump threatened heavy tariffs on countries standing between him and Greenland. E.U. leaders are scrambling for a response.`\
 https://nytimes.com/2026/01/18/world/greenland-europe-tariffs-kyiv.html
-
-**Islamic Scholar’s Post-Sept. 11 Convictions Are Tossed on Free Speech Grounds**\
-`Federal judges ruled that an Islamic teacher’s statements goading men in Virginia to join an overseas militant group were protected by the First Amendment.`\
-https://nytimes.com/2026/01/18/us/sept-11-convictions-overturned-first-amendment.html
 

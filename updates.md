@@ -1,3 +1,7 @@
+**Flames trade Rasmus Andersson to Vegas for Whitecloud, prospect, two picks: Sources**\
+`The defenseman is in the final year of a six-year contract carrying a $4.55 million cap hit, with Calgary retaining half.`\
+https://nytimes.com/athletic/6442132/2026/01/18/rasmus-andersson-traded-lv-golden-knights-nhl/
+
 **Broncos add QB Ben DiNucci to practice squad with Bo Nix out**\
 `The veteran adds some insurance behind Jarrett Stidham and Sam Ehlinger ahead of the AFC Championship Game.`\
 https://nytimes.com/athletic/6981446/2026/01/18/broncos-ben-dinucci-quarterback-bo-nix/
