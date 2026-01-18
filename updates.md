@@ -1,3 +1,11 @@
+**Matt LaFleur, Packers finalizing terms on multi-year contract extension: Sources**\
+`Team president Ed Policy didn't want a lame-duck head coach in the final year of a contract, so he decided to extend LaFleur.`\
+https://nytimes.com/athletic/6962199/2026/01/17/matt-lafleur-packers-contract-extension/
+
+**Armed Robbers Steal At Least $110,000 Worth of Pokémon Cards**\
+`Three men stole at least $110,00 worth of Pokémon cards from a shop in Lower Manhattan on Wednesday.`\
+https://nytimes.com/video/nyregion/100000010651129/pokemon-card-shop-robbery-new-york-video.html
+
 **Former Capitals assistant Mitch Love named head coach in KHL amid NHL suspension**\
 `Love, who is the new head coach of the Shanghai Dragons, was suspended for the 2025-26 NHL season, reportedly due to alleged domestic abuse.`\
 https://nytimes.com/athletic/6979605/2026/01/17/mitch-love-khl-shanghai-dragons-nhl-suspension/
