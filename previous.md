@@ -1,3 +1,11 @@
+**Springsteen Denounces ICE Deployments and Renee Good’s Killing**\
+`In a surprise appearance in New Jersey, the musician dedicated his song “The Promised Land” to Ms. Good, who was killed by an ICE agent in Minneapolis this month.`\
+https://nytimes.com/2026/01/18/arts/music/springsteen-ice-minneapolis.html
+
+**Kawhi Leonard to miss next 2 Clippers games with left knee irritation**\
+`The small forward will be reassessed when the Clippers return home before Thursday’s game against the Los Angeles Lakers.`\
+https://nytimes.com/athletic/6980937/2026/01/18/kawhi-leonard-left-knee-injury/
+
 **Forest can mix it with bigger sides - their season could rest on doing so against teams around them**\
 `Dyche's side have done well against clubs near the top of the division - but will need to do so against Leeds and Wolves in coming weeks`\
 https://nytimes.com/athletic/6980344/2026/01/18/forest-can-mix-it-with-bigger-sides-their-season-will-be-defined-by-doing-so-against-teams-around-them/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/18/world/americas/chile-wildfires.html
 **Palace intend to retain Glasner until the end of the season after positive talks**\
 `The Austrian had been critical of the Palace board after Saturday's defeat to Sunderland.`\
 https://nytimes.com/athletic/6980895/2026/01/18/oliver-glasner-crystal-palace-manager-future/
-
-**Curt Cignetti's CFP plan: 'You don’t go to war with warm milk and cookies'**\
-`In two seasons under Cignetti, the Hoosiers are 26-2 in one of the great turnarounds in sports history.`\
-https://nytimes.com/athletic/6980802/2026/01/18/curt-cignetti-indiana-miami-college-football-playoff/
-
-**Maguire and Martinez dominated Haaland. There's beauty in a centre-back pairing**\
-`Michael Carrick's first game in charge brought scenes not seen at Old Trafford for years – the centre-backs set the tone for United's win`\
-https://nytimes.com/athletic/6979658/2026/01/18/harry-maguire-lisandro-martinez-manchester-united-centre-backs/
 

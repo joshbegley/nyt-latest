@@ -1,3 +1,11 @@
+**Springsteen Denounces ICE Deployments and Renee Good’s Killing**\
+`In a surprise appearance in New Jersey, the musician dedicated his song “The Promised Land” to Ms. Good, who was killed by an ICE agent in Minneapolis this month.`\
+https://nytimes.com/2026/01/18/arts/music/springsteen-ice-minneapolis.html
+
+**Kawhi Leonard to miss next 2 Clippers games with left knee irritation**\
+`The small forward will be reassessed when the Clippers return home before Thursday’s game against the Los Angeles Lakers.`\
+https://nytimes.com/athletic/6980937/2026/01/18/kawhi-leonard-left-knee-injury/
+
 **Forest can mix it with bigger sides - their season could rest on doing so against teams around them**\
 `Dyche's side have done well against clubs near the top of the division - but will need to do so against Leeds and Wolves in coming weeks`\
 https://nytimes.com/athletic/6980344/2026/01/18/forest-can-mix-it-with-bigger-sides-their-season-will-be-defined-by-doing-so-against-teams-around-them/
