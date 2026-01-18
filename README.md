@@ -1,3 +1,7 @@
+**How to watch Arizona State vs. Houston men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona State Sun Devils play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6980793/2026/01/18/arizona-state-vs-houston-stream-how-to-watch-jan-18/
+
 **‘These Are the Best Biscuits I Have Ever Made, Hands Down’**\
 `Edna Lewis’s biscuits, served warm with butter and your favorite jam, are a lovely Sunday breakfast.`\
 https://nytimes.com/2026/01/18/dining/these-are-the-best-biscuits-i-have-ever-made-hands-down.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6980565/2026/01/18/seahawks-49ers-nfc-playoffs-domi
 **Trump Administration Live Updates: European Officials to Hold Emergency Meeting on Greenland Tariff Threat**\
 ``\
 https://nytimes.com/live/2026/01/18/us/trump-news
-
-**On ‘S.N.L.,’ Trump Recaps His Recent ‘Legal-ish’ Activities**\
-`The first episode of 2026, hosted by Finn Wolfhard of “Stranger Things,” satirized that hit Netflix series and conjured a Harry Potter reboot à la “Heated Rivalry.”`\
-https://nytimes.com/2026/01/18/arts/television/snl-trump-recaps-legal-ish-actions.html
 
