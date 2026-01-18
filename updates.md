@@ -1,3 +1,7 @@
+**For Miami fans, the road back to prominence has been filled with pain, disappointment**\
+`There have been some dark times, but no matter what happens Monday night, there’s a firm belief that the Canes' worst days are behind them.`\
+https://nytimes.com/athletic/6975228/2026/01/18/miami-hurricanes-fans-national-championship/
+
 **Perth Sail Grand Prix: Huge waves, broken boats, Britain on top again**\
 `Britain wins the opening weekend of the season, while USA shows huge improvement by finishing fifth overall`\
 https://nytimes.com/athletic/6980425/2026/01/18/sailgp-perth-season-6-britain-win/

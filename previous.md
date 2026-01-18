@@ -1,3 +1,7 @@
+**For Miami fans, the road back to prominence has been filled with pain, disappointment**\
+`There have been some dark times, but no matter what happens Monday night, there’s a firm belief that the Canes' worst days are behind them.`\
+https://nytimes.com/athletic/6975228/2026/01/18/miami-hurricanes-fans-national-championship/
+
 **Perth Sail Grand Prix: Huge waves, broken boats, Britain on top again**\
 `Britain wins the opening weekend of the season, while USA shows huge improvement by finishing fifth overall`\
 https://nytimes.com/athletic/6980425/2026/01/18/sailgp-perth-season-6-britain-win/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6978856/2026/01/18/man-united-martinez-scholes-butt
 **Steph and Seth Curry relish upholding their father Dell's NBA legacy**\
 `With their dad in town, the Curry brothers, teammates and their coach discussed their respect for the longtime Charlotte Hornet.`\
 https://nytimes.com/athletic/6980239/2026/01/18/steph-seth-dell-curry-warriors-charlotte-jersey-retirement/
-
-**How Alex Bregman’s $175 million Cubs deal came together on epic Chicago sports night**\
-`While the Bears mounted their comeback against the Packers, a longtime Brian Urlacher fan finalized a contract to come to the Windy City.`\
-https://nytimes.com/athletic/6979329/2026/01/18/alex-bregman-cubs-contract-chicago-bears/
 
