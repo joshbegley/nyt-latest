@@ -8,7 +8,7 @@ https://nytimes.com/video/world/europe/100000010653409/deadly-train-crash-in-spa
 
 **In Minneapolis, a Pattern of Misconduct Toward Protesters**\
 `Legal and criminal justice experts said a ruling by a federal judge last week revealed conduct by immigration agents that evokes the civil rights era.`\
-https://nytimes.com/2026/01/18/us/in-minneapolis-a-pattern-of-misconduct-toward-protesters.html
+https://nytimes.com/2026/01/18/us/minneapolis-federal-agents-misconduct-protesters.html
 
 **AFC Championship Game odds: Patriots open as strong road favorites vs. Broncos**\
 `New England is favored by a fair margin as Denver advances without its starting quarterback. `\

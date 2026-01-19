@@ -1,3 +1,7 @@
+**In Minneapolis, a Pattern of Misconduct Toward Protesters**\
+`Legal and criminal justice experts said a ruling by a federal judge last week revealed conduct by immigration agents that evokes the civil rights era.`\
+https://nytimes.com/2026/01/18/us/minneapolis-federal-agents-misconduct-protesters.html
+
 **See You Later, Claude: San Francisco Mourns Its Beloved Alligator**\
 `The 30-year-old albino resident of the California Academy of Sciences died last month. On Sunday, thousands paid tribute.`\
 https://nytimes.com/2026/01/18/us/claude-alligator-san-francisco-funeral.html
