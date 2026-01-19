@@ -1,3 +1,7 @@
+**Cup exit, ‘fake news’ and Dembele magic: Are PSG wobbling or just getting going?**\
+`The European champions are yet to scale the heights of last season's quadruple win, but there are signs they may be about to click into gear`\
+https://nytimes.com/athletic/6980442/2026/01/19/psg-ligue-1-champions-league-luis-enrique/
+
 **No Corrections: Jan. 19, 2026**\
 `No corrections appeared in print on Monday, Jan. 19, 2026.`\
 https://nytimes.com/2026/01/19/corrections/no-corrections-jan-19-2026.html

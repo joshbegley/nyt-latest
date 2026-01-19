@@ -1,3 +1,7 @@
+**Cup exit, ‘fake news’ and Dembele magic: Are PSG wobbling or just getting going?**\
+`The European champions are yet to scale the heights of last season's quadruple win, but there are signs they may be about to click into gear`\
+https://nytimes.com/athletic/6980442/2026/01/19/psg-ligue-1-champions-league-luis-enrique/
+
 **No Corrections: Jan. 19, 2026**\
 `No corrections appeared in print on Monday, Jan. 19, 2026.`\
 https://nytimes.com/2026/01/19/corrections/no-corrections-jan-19-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6981959/2026/01/19/connections-sports-edition-hints
 **What We Know About the Deadly High-Speed Train Crash in Spain**\
 `The collision, caused by the derailment of one of the trains, was the deadliest in Spain since at least 2013.`\
 https://nytimes.com/2026/01/18/world/europe/what-we-know-spain-train-crash.html
-
-**Green Day to do Super Bowl LX pregame performance: 'Right in our backyard!'**\
-`Green Day will perform before Super Bowl LX at Levi's Stadium in Santa Clara, Calif., not too far from Berkeley, where it formed in 1986.`\
-https://nytimes.com/athletic/6981842/2026/01/18/green-day-super-bowl-lx-opening-ceremony/
 
