@@ -1,3 +1,7 @@
+**One Month Later, CBS Airs Postponed ‘60 Minutes’ Report With Few Changes**\
+`A 13-minute segment about Venezuelan men deported by the Trump administration had been pulled at the last minute by CBS News’s editor in chief, Bari Weiss.`\
+https://nytimes.com/2026/01/18/business/media/cbs-60-minutes-venezuela-report.html
+
 **Michela Cava heading to Ottawa Charge in 6-player trade wtih Vancouver Goldeneyes**\
 `Cava, a two-time Walter Cup champion, is heading to Ottawa as part of the largest trade in PWHL history.`\
 https://nytimes.com/athletic/6981513/2026/01/18/michela-cava-pwhl-vancouver-trade/
