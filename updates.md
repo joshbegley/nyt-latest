@@ -1,3 +1,7 @@
+**NFC Championship Game odds: Seahawks open as small favorites against Rams**\
+`The Seahawks are favorites, albeit by less than a field goal, in the NFC Championship Game against the Rams.`\
+https://nytimes.com/athletic/6981895/2026/01/18/nfc-championship-game-odds-seahawks-rams/
+
 **Super Bowl hero Nick Foles trolls Patriots: 'They struggle against backup QBs'**\
 `The former Eagles quarterback offered words of encouragement to Broncos fans after they lost Bo Nix to a broken anke.`\
 https://nytimes.com/athletic/6981810/2026/01/18/nick-foles-bo-nix-broncos-patriots/

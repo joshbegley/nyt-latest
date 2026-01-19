@@ -1,3 +1,11 @@
+**As C.J. Stroud wilts in the biggest moment, Texans stand by their beleaguered QB**\
+`Stroud was hard on himself after a four-turnover performance in the Texans' loss to the Patriots: “I felt like I let a lot of people down."`\
+https://nytimes.com/athletic/6981993/2026/01/18/cj-stroud-texans-loss-patriots-playoffs-struggles/
+
+**‘A Knight of the Seven Kingdoms’ Season 1 Premiere Recap: A Tall Tale**\
+`The latest and most humorous offering in the “Game of Thrones” universe follows the hulking, lovable Ser Duncan, who may or may not be a real knight.`\
+https://nytimes.com/2026/01/18/arts/television/a-knight-of-the-seven-kingdoms-recap-season-1-premiere.html
+
 **NFC Championship Game odds: Seahawks open as small favorites against Rams**\
 `The Seahawks are favorites, albeit by less than a field goal, in the NFC Championship Game against the Rams.`\
 https://nytimes.com/athletic/6981895/2026/01/18/nfc-championship-game-odds-seahawks-rams/
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/6981810/2026/01/18/nick-foles-bo-nix-broncos-patrio
 https://nytimes.com/athletic/6981914/2026/01/18/drake-maye-patriots-texans-playoff-win/
 
 **Patriots' next challenge: Focus on No. 1 seed (Broncos), not No. 2 quarterback (Stidham)**\
-`Vrabel can’t order players to tune out the talk shows and social media. But he find the next team-building exercise to keep them focused.`\
+`Vrabel can’t order players to tune out the talk shows and social media. But he can find the next team-building exercise to keep them hungry.`\
 https://nytimes.com/athletic/6981910/2026/01/18/patriots-texans-afc-championship-broncos/
 
 **Knuckleballer Wilbur Wood, a tireless titan of the 1970s, dies at 84**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6981589/2026/01/18/nfl-draft-order-2026-round-1-bea
 **Thunder's Jalen Williams out vs. Cavaliers with hamstring injury, return TBD**\
 `Williams suffered his injury during the second quarter of the Thunder’s loss Saturday in Miami as he drove to the basket.`\
 https://nytimes.com/athletic/6981889/2026/01/18/jalen-williams-okc-injury-update-right-hamstring/
-
-**Red Wings pass important test in win over Senators: 5 thoughts**\
-`The Red Wings won their second straight game over the Senators, a team that has given them trouble in recent seasons. `\
-https://nytimes.com/athletic/6981823/2026/01/18/red-wings-senators-copp-van-riemsdyk-kasper/
-
-**Patriots Outlast Texans to Advance to A.F.C. Title Game**\
-`New England’s defense forced five turnovers and scored a defensive touchdown on a second-quarter pick six.`\
-https://nytimes.com/video/the-athletic/100000010653552/patriots-outlast-texans-to-advance-to-afc-title-game.html
 
