@@ -1,3 +1,7 @@
+**NFL will have a record-tying 10 head-coaching changes. Who's out and who's in?**\
+`This is the fifth time there have been 10 head-coaching changes in a single offseason and first time it's happened since 2022.`\
+https://nytimes.com/athletic/6983364/2026/01/19/coaching-changes-nfl-record/
+
 **Pau Gasol could have large role as vision for NBA Europe takes shape**\
 `International sources said Gasol is under consideration for a prominent role, but what the role will be is still unclear.`\
 https://nytimes.com/athletic/6983328/2026/01/19/nba-europe-pau-gasol-investors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983447/2026/01/19/rams-cayenne-pepper-in-socks/
 **AP men's hoops Top 25: Arizona unanimous No. 1, unbeaten Miami (Ohio) cracks poll**\
 `UConn, Michigan, Purdue and Duke follow Arizona in the top five of this week's AP poll.`\
 https://nytimes.com/athletic/6983474/2026/01/19/ap-top-25-mens-college-basketball-arizona-uconn-miami-ohio/
-
-**Trump Is Pushing the U.S.-Europe Alliance Onto a Precipice**\
-`As President Trump tries to coerce European leaders over Greenland, they are pondering the unthinkable: Is an 80-year-old alliance doomed?`\
-https://nytimes.com/2026/01/19/world/europe/trump-greenland-europe-nato-alliance.html
 
