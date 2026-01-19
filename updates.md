@@ -1,3 +1,11 @@
+**Curt Cignetti's sideline faces have gone viral. Mario Cristobal is just as intense**\
+`In his demeanor on the sideline and in interviews, Cristobal embodies the program he has built by preaching toughness and physicality.`\
+https://nytimes.com/athletic/6975155/2026/01/19/mario-cristobal-sideline-body-language/
+
+**Bills fire coach Sean McDermott after 9 seasons, will retain GM Brandon Beane: Source**\
+`McDermott went 98-50 over his nine seasons but the Bills have yet to reach a Super Bowl despite the MVP presence of Josh Allen.`\
+https://nytimes.com/athletic/6979852/2026/01/19/buffalo-bills-fire-coach-sean-mcdermott/
+
 **Trump’s Trade Negotiator Says Response to Court Loss Would Be Immediate**\
 `If the Supreme Court rules against its tariffs, the Trump administration would begin replacing them immediately, said Jamieson Greer, the United States Trade Representative.`\
 https://nytimes.com/2026/01/19/us/politics/trumps-trade-negotiator-says-response-to-court-loss-would-be-immediate.html
