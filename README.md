@@ -1,3 +1,7 @@
+**Updated 2026 NFL Draft order: Top 28 picks set after divisional round; Bears hold No. 25**\
+`How does Round 1 shape up after a dramatic conclusion to the divisional round?`\
+https://nytimes.com/athletic/6981589/2026/01/18/nfl-draft-order-2026-round-1-bears-bills/
+
 **Thunder's Jalen Williams out vs. Cavaliers with hamstring injury, return TBD**\
 `Williams suffered his injury during the second quarter of the Thunder’s loss Saturday in Miami as he drove to the basket.`\
 https://nytimes.com/athletic/6981889/2026/01/18/jalen-williams-okc-injury-update-right-hamstring/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/18/business/china-gdp-economy.html
 **Michela Cava heading to Ottawa Charge in 6-player trade wtih Vancouver Goldeneyes**\
 `Cava, a two-time Walter Cup champion, is heading to Ottawa as part of the largest trade in PWHL history.`\
 https://nytimes.com/athletic/6981513/2026/01/18/michela-cava-pwhl-vancouver-trade/
-
-**See You Later, Claude: San Francisco Mourns Its Beloved Alligator**\
-`The 30-year-old albino resident of the California Academy of Sciences died last month. On Sunday, thousands paid tribute.`\
-https://nytimes.com/2026/01/18/us/claude-alligator-san-francisco-funeral.html
 
