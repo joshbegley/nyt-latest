@@ -14,7 +14,7 @@ https://nytimes.com/video/us/politics/100000010654229/minnesota-community-patrol
 `Bieniemy was previously the Chiefs coordinator from 2018 to '22.`\
 https://nytimes.com/athletic/6980824/2026/01/19/chiefs-eric-bieniemy-returns-offensive-coordinator/
 
-**Josh Allen is in his prime. The Bills acted now to fire Sean McDermott before it was too late**\
+**Josh Allen is in his prime. The Bills fired Sean McDermott before it was too late**\
 `The post-game scene after the playoff loss may have been a signal that a change was needed right away.`\
 https://nytimes.com/athletic/6983716/2026/01/19/josh-allen-future-bills-sean-mcdermott-brandon-beane/
 

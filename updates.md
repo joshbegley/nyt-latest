@@ -1,3 +1,7 @@
+**Josh Allen is in his prime. The Bills fired Sean McDermott before it was too late**\
+`The post-game scene after the playoff loss may have been a signal that a change was needed right away.`\
+https://nytimes.com/athletic/6983716/2026/01/19/josh-allen-future-bills-sean-mcdermott-brandon-beane/
+
 **Wintry Weather Leads to 100-Vehicle Pileup on Interstate in Michigan**\
 `Cars and trucks slid into one another and off a highway after a lake-effect snowstorm. Numerous injuries were reported, but no deaths.`\
 https://nytimes.com/2026/01/19/us/michigan-interstate-traffic-pileup.html
