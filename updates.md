@@ -1,3 +1,7 @@
+**MMLR: Will William Nylander have to miss the Olympics?**\
+`The 29-year-old, who continues to lead the Leafs in scoring despite missing 11 games this season, didn’t play in Winnipeg over the weekend.`\
+https://nytimes.com/athletic/6980928/2026/01/19/maple-leafs-william-nylander-injury-olympics-nhl/
+
 **Heroics, mistakes and, for Caleb Williams, a crushing ending to a remarkable Bears season**\
 `Against the Rams, Williams provided flashes of his major talent as well as reminders of how young and unpolished he remains.`\
 https://nytimes.com/athletic/6982296/2026/01/19/bears-caleb-williams-rams-playoffs/
