@@ -1,3 +1,7 @@
+**France Moves Once Again to Pass a Budget With No Vote**\
+`Prime Minister Sébastien Lecornu’s effort to force the measure through Parliament opens his government up to a vote of no confidence.`\
+https://nytimes.com/2026/01/19/world/europe/france-budget-no-confidence-vote.html
+
 **49ers defenders hope Robert Saleh returns, vow to learn from loss to Seahawks**\
 `Deommodore Lenoir and the 49ers' defense didn't have a great finish to the season, and they might have a new boss before too long.`\
 https://nytimes.com/athletic/6983392/2026/01/19/49ers-robert-saleh-playoffs-loss-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6941733/2026/01/19/title-race-analysis-after-matchd
 **Canucks trade Kiefer Sherwood to San Jose Sharks for 2 draft picks, Cole Clayton**\
 `Sherwood is in the final year of a two-year deal, with a modest cap hit of only $1.5 million.`\
 https://nytimes.com/athletic/6977764/2026/01/19/kiefer-sherwood-trade/
-
-**Powell Will Attend Supreme Court Arguments on Trump’s Effort to Fire Fed Official**\
-`A lawsuit by the Fed governor Lisa D. Cook has challenged President Trump’s push to fire her.`\
-https://nytimes.com/2026/01/19/us/politics/powell-will-attend-the-supreme-court-arguments-on-trumps-effort-to-remove-a-fed-governor.html
 
