@@ -1,3 +1,7 @@
+**The transfer portal is closed. Here's how Michigan's offense has changed**\
+`Michigan lost a few key players but avoided the mass exodus that was feared, headlined by the return of quarterback Bryce Underwood.`\
+https://nytimes.com/athletic/6979233/2026/01/19/michigan-football-roster-2026-transfer-portal-offense/
+
 **The Rams keep finding ways to win in these playoffs, even when not at their best**\
 `Matthew Stafford didn't have his best game vs. the Bears, but the Rams' defense and special teams stepped up to help propel them to victory.`\
 https://nytimes.com/athletic/6982211/2026/01/19/rams-divisional-round-playoff-win-bears/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6981530/2026/01/19/college-football-transfer-portal
 **Next up for Blackhawks' Landon Slaggert: Learning how to finish scoring chances**\
 `It's been 12 games since Slaggert returned from an AHL stint, and he's starting to find his groove again with the Blackhawks.`\
 https://nytimes.com/athletic/6981340/2026/01/19/landon-slaggert-blackhawks-scoring-chances/
-
-**Have the Falcons finally found the right fit in head coach Kevin Stefanski?**\
-`Stefanski will be the 20th head coach in franchise history. The Falcons hope it's a while before they have to hire a 21st.`\
-https://nytimes.com/athletic/6981077/2026/01/19/kevin-stefanski-atlanta-falcons-head-coach-fit/
 
