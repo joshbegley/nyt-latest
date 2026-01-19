@@ -1,3 +1,15 @@
+**Green Day to do Super Bowl LX pregame performance: 'Right in our backyard!'**\
+`Green Day will perform before Super Bowl LX at Levi's Stadium in Santa Clara, Calif., not too far from Berkeley, where it formed in 1986.`\
+https://nytimes.com/athletic/6981842/2026/01/18/green-day-super-bowl-lx-opening-ceremony/
+
+**Projecting final 4 NFL playoff teams’ odds to win Super Bowl, with conference championship analysis**\
+`Who among the Seahawks, Rams, Broncos and Patriots has the best chance to get to — and to win — Super Bowl LX?`\
+https://nytimes.com/athletic/6981515/2026/01/18/nfl-super-bowl-playoff-chances-odds-conference-championships/
+
+**Guatemala Declares State of Emergency to Address Gang Violence**\
+`The country has seen a surge of unrest in recent days, including uprisings at prisons and the killing of police officers, which the authorities have blamed on gangs.`\
+https://nytimes.com/2026/01/18/world/americas/guatemala-emergency-drug-cartels.html
+
 **As C.J. Stroud wilts in the biggest moment, Texans stand by their beleaguered QB**\
 `Stroud was hard on himself after a four-turnover performance in the Texans' loss to the Patriots: “I felt like I let a lot of people down."`\
 https://nytimes.com/athletic/6981993/2026/01/18/cj-stroud-texans-loss-patriots-playoffs-struggles/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6981910/2026/01/18/patriots-texans-afc-championship
 **Knuckleballer Wilbur Wood, a tireless titan of the 1970s, dies at 84**\
 `In 1972, Wood worked 376 ⅔ innings, the most by any pitcher since Grover Cleveland Alexander in 1917.`\
 https://nytimes.com/athletic/6982047/2026/01/18/wilbur-wood-knuckleball-white-sox-death/
-
-**Matthew Stafford leads game-winning OT drive as Rams top Bears, advance to NFC title game**\
-`The Rams will travel to Seattle to face the Seahawks for a third time this season with a trip to the Super Bowl on the line. `\
-https://nytimes.com/athletic/6981907/2026/01/18/rams-bears-score-result-takeaways-nfl-divisional-round/
-
-**Updated 2026 NFL Draft order: Top 28 picks set after divisional round; Bears hold No. 25**\
-`How does Round 1 shape up after a dramatic conclusion to the divisional round?`\
-https://nytimes.com/athletic/6981589/2026/01/18/nfl-draft-order-2026-round-1-bears-bills/
-
-**Thunder's Jalen Williams out vs. Cavaliers with hamstring injury, return TBD**\
-`Williams suffered his injury during the second quarter of the Thunder’s loss Saturday in Miami as he drove to the basket.`\
-https://nytimes.com/athletic/6981889/2026/01/18/jalen-williams-okc-injury-update-right-hamstring/
 

@@ -1,3 +1,15 @@
+**Green Day to do Super Bowl LX pregame performance: 'Right in our backyard!'**\
+`Green Day will perform before Super Bowl LX at Levi's Stadium in Santa Clara, Calif., not too far from Berkeley, where it formed in 1986.`\
+https://nytimes.com/athletic/6981842/2026/01/18/green-day-super-bowl-lx-opening-ceremony/
+
+**Projecting final 4 NFL playoff teams’ odds to win Super Bowl, with conference championship analysis**\
+`Who among the Seahawks, Rams, Broncos and Patriots has the best chance to get to — and to win — Super Bowl LX?`\
+https://nytimes.com/athletic/6981515/2026/01/18/nfl-super-bowl-playoff-chances-odds-conference-championships/
+
+**Guatemala Declares State of Emergency to Address Gang Violence**\
+`The country has seen a surge of unrest in recent days, including uprisings at prisons and the killing of police officers, which the authorities have blamed on gangs.`\
+https://nytimes.com/2026/01/18/world/americas/guatemala-emergency-drug-cartels.html
+
 **Patriots' next challenge: Focus on No. 1 seed (Broncos), not No. 2 quarterback (Stidham)**\
 `Vrabel can't order players to tune out the talk shows and social media. But he can find the next team-building exercise to keep them hungry.`\
 https://nytimes.com/athletic/6981910/2026/01/18/patriots-texans-afc-championship-broncos/
