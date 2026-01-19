@@ -1,3 +1,7 @@
+**Dolphins working to hire Jeff Hafley as head coach: Sources**\
+`Hafley will look to end the NFL's longest drought without a postseason win, which extends to the 2000 season.`\
+https://nytimes.com/athletic/6979675/2026/01/19/dolphins-hire-jeff-hafley-head-coach/
+
 **Community Patrols Mobilize Amid ICE Operations in Minnesota**\
 `In parts of Minnesota, volunteers have organized neighborhood patrols and rapid‑response networks to monitor the actions of U.S. Immigration and Customs Enforcement operations in the area.`\
 https://nytimes.com/video/us/politics/100000010654229/minnesota-community-patrols.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010654447/pakistan-mall-fire.html
 **Commanders stay in house for offensive line coach as staff takes shape: Source**\
 `The team promoted Darnell Stapleton to offensive line coach in place of Bobby Johnson, who was let go after the season.`\
 https://nytimes.com/athletic/6983744/2026/01/19/commanders-offensive-line-coach-darnell-stapleton/
-
-**‘Like an Earthquake’: How 40 People Died in a Spanish Train Crash**\
-`The victims of Spain’s deadliest rail crash in more than a decade included a police officer, journalists and a family returning from a musical.`\
-https://nytimes.com/2026/01/19/world/europe/spain-crash-scene-40-train-track.html
 
