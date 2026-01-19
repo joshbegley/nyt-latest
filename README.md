@@ -1,3 +1,23 @@
+**To Their Shock, Cubans in Florida Are Being Deported in Record Numbers**\
+`Cubans had long benefited from legal privileges unavailable to immigrants from other countries. President Trump has changed that.`\
+https://nytimes.com/2026/01/19/us/politics/cubans-florida-deportations-trump.html
+
+**How Trump Made Life Difficult for International Students and UWisconsin**\
+`Last fall, the number of new international undergraduates fell by 25 percent compared to the previous year. That drop poses financial and competitive challenges.`\
+https://nytimes.com/2026/01/19/us/politics/uw-madison-international-students-visas-trump.html
+
+**At a Seattle Port Rocked by Tariffs, There Were 70 Jobs for 600 Workers**\
+`Dock workers are used to uncertainty, but nothing since the Great Recession of 2008 compares to what they have experienced this year.`\
+https://nytimes.com/2026/01/19/us/politics/seattle-dock-workers-tariffs-trump.html
+
+**After Trump Shut the Border, a Texas Shelter for Migrants Emptied**\
+`Sister Pimentel’s shelter in McAllen, one of the poorest cities in America, pivoted to feed the hungry.`\
+https://nytimes.com/2026/01/19/us/politics/sister-norma-pimentel-shelter-texas.html
+
+**A Tennessee Dean Had ‘Zero Sympathy’ for Charlie Kirk. She Was Fired.**\
+`Laura Sosh-Lightsy’s punishment reflects the new power dynamics in the free-speech debate, especially in red states.`\
+https://nytimes.com/2026/01/19/us/politics/middle-tennessee-state-university-dean-fired-charlie-kirk.html
+
 **Columbia University’s Strained Peace: Fewer Protests and Sealed Gates**\
 `The Trump administration has pushed universities all over the country to act against student protesters.`\
 https://nytimes.com/2026/01/19/us/politics/columbia-university-protests-culture-trump.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/19/us/politics/yosemite-national-park-california-sta
 **An Alaska Town Is Now Key to Trump’s Global Ambitions**\
 `Nome, population 3,700, is accessible only by plane outside a few months when boats can pass through. But it will be the home of the nation’s only deepwater Arctic port.`\
 https://nytimes.com/2026/01/19/us/politics/nome-alaska-arctic-port-trump-ambitions.html
-
-**An Alabama Pastor Credits Trump for Putting ‘Christ’ Back in Christmas**\
-`The president has given a new class of evangelists direct access to the White House. In return, many support him without question.`\
-https://nytimes.com/2026/01/19/us/politics/pastor-travis-johnson-evangelicalism-alabama.html
-
-**Indiana Judge and His Wife Are Shot at Their Suburban Home**\
-`The police in Lafayette, Ind., said they were investigating the nonfatal shootings of a Tippecanoe County Superior Court judge and his wife on Sunday.`\
-https://nytimes.com/2026/01/19/us/politics/indiana-judge-and-wife-shot.html
-
-**Sabres can't solve Brandon Bussi in loss to Hurricanes: 5 thoughts**\
-`The Sabres played a hard-fought game against an experienced team that might be a first-round playoff opponent.`\
-https://nytimes.com/athletic/6984075/2026/01/19/sabres-playoffs-power-bussi-hurricanes/
-
-**Wintry Weather Leads to 100-Vehicle Pileup on Interstate in Michigan**\
-`Cars and trucks slid into one another and off a highway after a lake-effect snowstorm. Numerous injuries were reported, but no deaths.`\
-https://nytimes.com/2026/01/19/us/michigan-interstate-traffic-pileup.html
-
-**Dolphins working to hire Jeff Hafley as head coach: Sources**\
-`Hafley will look to end the NFL's longest drought without a postseason win, which extends to the 2000 season.`\
-https://nytimes.com/athletic/6979675/2026/01/19/dolphins-hire-jeff-hafley-head-coach/
 
