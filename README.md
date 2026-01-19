@@ -1,3 +1,11 @@
+**Arsenal's Jesus defends Gyokeres: 'I have been in his position'**\
+`The Sweden international has found it difficult to make an early impact in England, scoring eight goals in 26 games`\
+https://nytimes.com/athletic/6983887/2026/01/19/arsenal-gyokeres-form-jesus-striker-goal/
+
+**Fire at Pakistani Mall Leaves Over 20 Dead**\
+`A fire tore through one of the busiest wholesale markets in downtown Karachi, Pakistan, over the weekend, leaving over 20 dead and dozens still missing on Monday.`\
+https://nytimes.com/video/world/asia/100000010654447/pakistan-mall-fire.html
+
 **Commanders stay in house for offensive line coach as staff takes shape: Source**\
 `The team promoted Darnell Stapleton to offensive line coach in place of Bobby Johnson, who was let go after the season.`\
 https://nytimes.com/athletic/6983744/2026/01/19/commanders-offensive-line-coach-darnell-stapleton/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6983831/2026/01/19/heat-vs-warriors-stream-how-to-w
 **Bobby McMann 'definitely' wants to stay in Toronto as contract talks begin**\
 `Even with McMann's impending status as an unrestricted free agent, he's not that interested in testing the free-agent waters right now.`\
 https://nytimes.com/athletic/6983586/2026/01/19/bobby-mcmann-leafs-contract-talks/
-
-**How to watch Islanders vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6983823/2026/01/19/islanders-vs-canucks-stream-how-to-watch-jan-19/
-
-**How to watch Celtics vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6983821/2026/01/19/celtics-vs-pistons-stream-how-to-watch-jan-19/
 
