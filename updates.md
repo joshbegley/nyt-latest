@@ -1,3 +1,11 @@
+**The transfer portal is closed. Here's how Michigan's offense has changed**\
+`Michigan lost a few key players but avoided the mass exodus that was feared, headlined by the return of quarterback Bryce Underwood.`\
+https://nytimes.com/athletic/6979233/2026/01/19/michigan-football-roster-2026-transfer-portal-offense/
+
+**The Rams keep finding ways to win in these playoffs, even when not at their best**\
+`Matthew Stafford didn't have his best game vs. the Bears, but the Rams' defense and special teams stepped up to help propel them to victory.`\
+https://nytimes.com/athletic/6982211/2026/01/19/rams-divisional-round-playoff-win-bears/
+
 **The Rams keep finding ways to win in these playoffs, even when not at their best**\
 `Matthew Stafford wasn't at his best vs. the Bears, but the Rams' defense and special teams stepped up to help propel them to victory.`\
 https://nytimes.com/athletic/6982211/2026/01/19/rams-divisional-round-playoff-win-bears/
