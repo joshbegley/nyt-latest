@@ -1,3 +1,7 @@
+**A Swath of Spain’s High-Speed Rail Network Will Be Closed on Monday**\
+`The closures were announced after a high-speed train derailed and smashed into another high-speed train, killing at least 39 people and injuring dozens.`\
+https://nytimes.com/2026/01/19/world/europe/spain-high-speed-rail-closed.html
+
 **A Heisman winner and a Stoic? 3 lessons from Indiana QB Fernando Mendoza**\
 `Indiana's Fernando Mendoza isn't just one of the best quarterbacks in the country. He's also full of LinkedIn-style leadership advice.`\
 https://nytimes.com/athletic/6980686/2026/01/19/3-things-anyone-can-learn-from-indiana-qb-fernando-mendozas-stoic-mindset/

@@ -1,3 +1,7 @@
+**A Swath of Spain’s High-Speed Rail Network Will Be Closed on Monday**\
+`The closures were announced after a high-speed train derailed and smashed into another high-speed train, killing at least 39 people and injuring dozens.`\
+https://nytimes.com/2026/01/19/world/europe/spain-high-speed-rail-closed.html
+
 **A Heisman winner and a Stoic? 3 lessons from Indiana QB Fernando Mendoza**\
 `Indiana's Fernando Mendoza isn't just one of the best quarterbacks in the country. He's also full of LinkedIn-style leadership advice.`\
 https://nytimes.com/athletic/6980686/2026/01/19/3-things-anyone-can-learn-from-indiana-qb-fernando-mendozas-stoic-mindset/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6970380/2026/01/19/emiliano-martinez-aston-villa-fo
 **Callum Wilson was leaving West Ham... until he wasn't**\
 `January has been quite the month for Callum Wilson – his goal against Spurs proves he has a lot to offer West Ham's survival fight`\
 https://nytimes.com/athletic/6978751/2026/01/19/callum-wilson-west-ham-nuno-tottenham/
-
-**Nottingham Forest have become one-dimensional: Too many crosses, not enough goals**\
-`Forest have a squad packed with talent but have played their way into a relegation battle. Why are they struggling to score goals?`\
-https://nytimes.com/athletic/6979606/2026/01/19/sean-dyche-nottingham-forest-crosses-one-dimensional/
 
