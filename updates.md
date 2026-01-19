@@ -1,3 +1,11 @@
+**Trump’s Trade Negotiator Says Response to Court Loss Would Be Immediate**\
+`If the Supreme Court rules against its tariffs, the Trump administration would begin replacing them immediately, said Jamieson Greer, the United States Trade Representative.`\
+https://nytimes.com/2026/01/19/us/politics/trumps-trade-negotiator-says-response-to-court-loss-would-be-immediate.html
+
+**Bills fans: Share your thoughts on Buffalo firing Sean McDermott**\
+`Do you think the Bills made the right move if firing their head coach?`\
+https://nytimes.com/athletic/6982966/2026/01/19/sean-mcdermott-fired-discussion-bills-fans/
+
 **Tottenham's Davies to undergo surgery on ankle fracture**\
 `Davies, 32, was taken off on a stretcher during Tottenham's Premier League defeat to West Ham United on Saturday.`\
 https://nytimes.com/athletic/6982911/2026/01/19/ben-davies-tottenham-injury-update/
