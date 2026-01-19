@@ -1,3 +1,15 @@
+**Federal Reserve Inquiry Clouds Trump’s Supreme Court Bid to Oust Lisa Cook**\
+`The court is set to hear Ms. Cook’s case challenging her firing as the Justice Department investigates Jerome H. Powell, the central bank chair.`\
+https://nytimes.com/2026/01/19/us/politics/supreme-court-federal-reserve-cook-powell.html
+
+**A labor union raised concerns last year about Spain’s railway lines.**\
+`By Jason Horowitz`\
+https://nytimes.com/live/2026/01/18/world/spain-high-speed-train-derailment/a-labor-union-raised-concerns-last-year-about-spains-railway-lines
+
+**Serie A Briefing: Malen and Fullkrug's impact, remembering Rocco and the return of Bove?**\
+`Bove looks set to join Watford from Roma, 13 months after suffering a cardiac arrest on the pitch while playing for Fiorentina`\
+https://nytimes.com/athletic/6982552/2026/01/19/bove-watford-roma-malen-fullkrug-milan-fiorentina-rocco/
+
 **Jimmy Butler joins our rankings of the most unflattering sports cards of all time**\
 `A puzzling new patch jumps high up our rankings of memorably bad sports cards. `\
 https://nytimes.com/athletic/6975698/2026/01/19/worst-sports-cards-jimmy-butler/
