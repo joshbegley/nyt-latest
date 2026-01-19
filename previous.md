@@ -1,3 +1,7 @@
+**European Union Officials Lean Toward Negotiating, Not Retaliating, Over Trump Tariff Threat**\
+`European Union ambassadors held an emergency meeting on Sunday, and leaders from across the 27-nation bloc will meet in Brussels later this week.`\
+https://nytimes.com/2026/01/18/world/europe/european-union-respond-trump-greenland.html
+
 **NHL trade grades: Andersson adds punch to Vegas' blue line, but did Flames get enough?**\
 `Vegas sent a player, a prospect and two picks back for the pending UFA defenseman with half salary retained.`\
 https://nytimes.com/athletic/6981549/2026/01/18/nhl-trade-grades-rasmus-andersson-flames-golden-knights/
@@ -29,8 +33,4 @@ https://nytimes.com/video/climate/100000010542262/a-century-of-the-new-york-time
 **Texans LB Azeez Al-Shaair wears ‘stop the genocide’ eye black vs. Patriots**\
 `Al-Shaair's message, first displayed during Monday's wild-card game against the Pittsburgh Steelers, supports the people of Palestine.`\
 https://nytimes.com/athletic/6981232/2026/01/18/texans-azeez-al-shaair-eye-black-patriots-genocide/
-
-**Forest close to loan agreement with Napoli for Lucca**\
-`Lucca has started only four times in the league after signing on loan from Udinese last summer. `\
-https://nytimes.com/athletic/6981207/2026/01/18/lorenzo-lucca-nottingham-forest-napoli-loan-transfer-news/
 
