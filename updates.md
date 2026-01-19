@@ -1,3 +1,11 @@
+**Mbappe says Madrid fans should boo 'whole squad, not just a few players'**\
+`Jude Bellingham and Vinicius Jr were jeered by fans during their win against Levante after being knocked out of the Copa del Rey.`\
+https://nytimes.com/athletic/6982705/2026/01/19/kylian-mbappe-real-madrid-fans-boo-bellingham-vinicius/
+
+**Take our CFP national championship quiz! What you need to know about Indiana-Miami**\
+`The national championship game between Indiana and Miami is finally here. Test your trivia knowledge and catch up on some pregame reading.`\
+https://nytimes.com/athletic/6982743/2026/01/19/indiana-miami-cfp-championship-trivia-quiz/
+
 **How to watch Capitals vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6982821/2026/01/19/capitals-vs-avalanche-stream-how-to-watch-jan-19/
