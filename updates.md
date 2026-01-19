@@ -1,3 +1,7 @@
+**Trains Collide After Derailment in Spain, Killing at Least 21**\
+`A high-speed train smashed into another train after derailing in the southern province of Córdoba, officials said. The cause of the accident was not immediately clear.`\
+https://nytimes.com/live/2026/01/18/world/spain-high-speed-train-derailment
+
 **One Month Later, CBS Airs Postponed ‘60 Minutes’ Report With Few Changes**\
 `A 13-minute segment about Venezuelan men deported by the Trump administration had been pulled at the last minute by CBS News’s editor in chief, Bari Weiss.`\
 https://nytimes.com/2026/01/18/business/media/cbs-60-minutes-venezuela-report.html
