@@ -1,3 +1,7 @@
+**Dolphins working to hire Jeff Hafley as head coach: Sources**\
+`Hafley will look to end the NFL's longest drought without a postseason win, which extends to the 2000 season.`\
+https://nytimes.com/athletic/6979675/2026/01/19/dolphins-hire-jeff-hafley-head-coach/
+
 **Community Patrols Mobilize Amid ICE Operations in Minnesota**\
 `In parts of Minnesota, volunteers have organized neighborhood patrols and rapid‑response networks to monitor the actions of U.S. Immigration and Customs Enforcement operations in the area.`\
 https://nytimes.com/video/us/politics/100000010654229/minnesota-community-patrols.html
