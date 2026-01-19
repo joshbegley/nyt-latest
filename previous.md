@@ -1,3 +1,11 @@
+**LeSean McCoy, DaQuan Jones among Bills stars to rip franchise for firing Sean McDermott**\
+`"Don't make sense but ya got ya wanted," DaQuan Jones said on Instagram.`\
+https://nytimes.com/athletic/6983330/2026/01/19/bills-fire-sean-mcdermott-reactions/
+
+**How the Cleveland Orchestra Stays at the Top of Classical Music**\
+`Our critic tracked one concert, from its first rehearsals to its first performance. Practice is only part of what makes this ensemble excellent.`\
+https://nytimes.com/2026/01/19/arts/music/cleveland-orchestra.html
+
 **Zohran Mamdani to ask Donald Trump to reverse travel bans ahead of World Cup**\
 `Citizens of Senegal, Ivory Coast, Iran and Haiti, four countries that have qualified for the World Cup, cannot currently travel to the U.S.`\
 https://nytimes.com/athletic/6981658/2026/01/19/zohran-mamdani-donald-trump-reverse-travel-bans-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/19/style/prada-milan-mens.html
 **Valentino Garavani, Regal Designer and Fashion’s ‘Last Emperor,’ Dies at 93**\
 `Valentino, as he was called, created one of the most durable and fashionable labels and became an equal of his high society customers.`\
 https://nytimes.com/2026/01/19/style/valentino-garavani-dead.html
-
-**Coaching candidates fly to Miami to meet with Tom Brady, Raiders brass: Sources**\
-`Several candidates Las Vegas Raiders coaching candidates will be in Miami this week to meet with key franchise decision-makers in person.`\
-https://nytimes.com/athletic/6983134/2026/01/19/tom-brady-raiders-coaching-search-miami/
-
-**Super Bowl MVP odds: Sam Darnold jumps Matthew Stafford**\
-`It's the NFC West at the top again in Super Bowl odds. Half of the top 10 contenders are from one team.`\
-https://nytimes.com/athletic/6983103/2026/01/19/super-bowl-2026-mvp-updated-odds-darnold-stafford/
 

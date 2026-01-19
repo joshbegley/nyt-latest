@@ -1,3 +1,11 @@
+**LeSean McCoy, DaQuan Jones among Bills stars to rip franchise for firing Sean McDermott**\
+`"Don't make sense but ya got ya wanted," DaQuan Jones said on Instagram.`\
+https://nytimes.com/athletic/6983330/2026/01/19/bills-fire-sean-mcdermott-reactions/
+
+**How the Cleveland Orchestra Stays at the Top of Classical Music**\
+`Our critic tracked one concert, from its first rehearsals to its first performance. Practice is only part of what makes this ensemble excellent.`\
+https://nytimes.com/2026/01/19/arts/music/cleveland-orchestra.html
+
 **Zohran Mamdani to ask Donald Trump to reverse travel bans ahead of World Cup**\
 `Citizens of Senegal, Ivory Coast, Iran and Haiti, four countries that have qualified for the World Cup, cannot currently travel to the U.S.`\
 https://nytimes.com/athletic/6981658/2026/01/19/zohran-mamdani-donald-trump-reverse-travel-bans-world-cup/
