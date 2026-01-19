@@ -1,3 +1,15 @@
+**Community Patrols Mobilize Amid ICE Operations in Minnesota**\
+`In parts of Minnesota, volunteers have organized neighborhood patrols and rapid‑response networks to monitor the actions of U.S. Immigration and Customs Enforcement operations in the area.`\
+https://nytimes.com/video/us/politics/100000010654229/minnesota-community-patrols.html
+
+**Eric Bieniemy expected to return to Chiefs as offensive coordinator: Source**\
+`Bieniemy was previously the Chiefs coordinator from 2018 to '22.`\
+https://nytimes.com/athletic/6980824/2026/01/19/chiefs-eric-bieniemy-returns-offensive-coordinator/
+
+**Josh Allen is in his prime. The Bills acted now to fire Sean McDermott before it was too late**\
+`The post-game scene after the playoff loss may have been a signal that a change was needed right away.`\
+https://nytimes.com/athletic/6983716/2026/01/19/josh-allen-future-bills-sean-mcdermott-brandon-beane/
+
 **Nick Saban playfully argues NIL era is 'advantage' for Big Ten**\
 `Indiana would be the third straight Big Ten representative to win it all.`\
 https://nytimes.com/athletic/6983954/2026/01/19/nick-saban-nil-advantage-big-ten/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6983744/2026/01/19/commanders-offensive-line-coach-
 **‘Like an Earthquake’: How 40 People Died in a Spanish Train Crash**\
 `The victims of Spain’s deadliest rail crash in more than a decade included a police officer, journalists and a family returning from a musical.`\
 https://nytimes.com/2026/01/19/world/europe/spain-crash-scene-40-train-track.html
-
-**Broncos open J.K. Dobbins' return window, RB could play in AFC title game**\
-`Denver could have its leading rusher back Sunday for a chance to go to the Super Bowl against the Patriots.`\
-https://nytimes.com/athletic/6983775/2026/01/19/broncos-jk-dobbins-injury-afc-championship-game/
-
-**Lions hiring Cardinals' Drew Petzing as next offensive coordinator: Source**\
-`Petzing spent the past three seasons in Arizona and the 38-year-old has held roles in the NFL since 2013.`\
-https://nytimes.com/athletic/6983697/2026/01/19/detroit-lions-hire-drew-petzing-offensive-coordinator/
-
-**Trump Administration to Appeal Limits on Interactions With Minnesota Protesters**\
-`Justice Department lawyers said they would ask an appellate court to review an injunction that imposes limits on the tactics used by immigration agents.`\
-https://nytimes.com/2026/01/19/us/minnesota-protesters-injunction-appeal-trump.html
 
