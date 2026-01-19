@@ -1,3 +1,7 @@
+**Green Day to do Super Bowl LX pregame performance: 'Right in our backyard!'**\
+`Green Day will perform before Super Bowl LX at Levi's Stadium in Santa Clara, Calif., not too far from Berkeley, where it formed in 1986.`\
+https://nytimes.com/athletic/6981842/2026/01/18/green-day-super-bowl-lx-opening-ceremony/
+
 **Projecting final 4 NFL playoff teams’ odds to win Super Bowl, with conference championship analysis**\
 `Who among the Seahawks, Rams, Broncos and Patriots has the best chance to get to — and to win — Super Bowl LX?`\
 https://nytimes.com/athletic/6981515/2026/01/18/nfl-super-bowl-playoff-chances-odds-conference-championships/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6981910/2026/01/18/patriots-texans-afc-championship
 **Knuckleballer Wilbur Wood, a tireless titan of the 1970s, dies at 84**\
 `In 1972, Wood worked 376 ⅔ innings, the most by any pitcher since Grover Cleveland Alexander in 1917.`\
 https://nytimes.com/athletic/6982047/2026/01/18/wilbur-wood-knuckleball-white-sox-death/
-
-**Matthew Stafford leads game-winning OT drive as Rams top Bears, advance to NFC title game**\
-`The Rams will travel to Seattle to face the Seahawks for a third time this season with a trip to the Super Bowl on the line. `\
-https://nytimes.com/athletic/6981907/2026/01/18/rams-bears-score-result-takeaways-nfl-divisional-round/
 
