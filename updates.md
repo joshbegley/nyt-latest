@@ -1,3 +1,11 @@
+**TAFC: AFCON: The most chaotic major final ever? Plus: More manager strife for Frank and Glasner**\
+`Today in TAFC: Walk-offs, fluffed penalty and violence in the AFCON final. Plus: Frank and Glasner on the edge.`\
+https://nytimes.com/athletic/6982454/2026/01/19/afcon-senegal-walk-off-glasner-frank/
+
+**Bears' magic finally ran out in OT loss to the Rams. Here's what they said about it**\
+`The Bears seemed on the precipice of another remarkable comeback win. Instead, they lost on a game-winning, season-ending field goal.`\
+https://nytimes.com/athletic/6982304/2026/01/19/bears-season-ends-reaction-rams-playoffs/
+
 **Miami or Indiana? This quiz will tell you who to root for to win (or lose) it all **\
 `Do you have a soft spot in your heart for a team that historically cheats? What about one that stinks?`\
 https://nytimes.com/athletic/6980962/2026/01/19/indiana-miami-championship-game-quiz/
