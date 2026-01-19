@@ -1,3 +1,7 @@
+**Wintry Weather Leads to 100-Vehicle Pileup on Interstate in Michigan**\
+`Cars and trucks slid into one another and off a highway after a lake-effect snowstorm. Numerous injuries were reported, but no deaths.`\
+https://nytimes.com/2026/01/19/us/michigan-interstate-traffic-pileup.html
+
 **Dolphins working to hire Jeff Hafley as head coach: Sources**\
 `Hafley will look to end the NFL's longest drought without a postseason win, which extends to the 2000 season.`\
 https://nytimes.com/athletic/6979675/2026/01/19/dolphins-hire-jeff-hafley-head-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983887/2026/01/19/arsenal-gyokeres-form-jesus-stri
 **Fire at Pakistani Mall Leaves Over 20 Dead**\
 `A fire tore through one of the busiest wholesale markets in downtown Karachi, Pakistan, over the weekend, leaving over 20 dead and dozens still missing on Monday.`\
 https://nytimes.com/video/world/asia/100000010654447/pakistan-mall-fire.html
-
-**Commanders stay in house for offensive line coach as staff takes shape: Source**\
-`The team promoted Darnell Stapleton to offensive line coach in place of Bobby Johnson, who was let go after the season.`\
-https://nytimes.com/athletic/6983744/2026/01/19/commanders-offensive-line-coach-darnell-stapleton/
 
