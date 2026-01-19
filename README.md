@@ -1,3 +1,7 @@
+**Thunder's Jalen Williams out vs. Cavaliers with hamstring injury, return TBD**\
+`Williams suffered his injury during the second quarter of the Thunder’s loss Saturday in Miami as he drove to the basket.`\
+https://nytimes.com/athletic/6981889/2026/01/18/jalen-williams-okc-injury-update-right-hamstring/
+
 **Red Wings pass important test in win over Senators: 5 thoughts**\
 `The Red Wings won their second straight game over the Senators, a team that has given them trouble in recent seasons. `\
 https://nytimes.com/athletic/6981823/2026/01/18/red-wings-senators-copp-van-riemsdyk-kasper/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6981513/2026/01/18/michela-cava-pwhl-vancouver-trad
 **See You Later, Claude: San Francisco Mourns Its Beloved Alligator**\
 `The 30-year-old albino resident of the California Academy of Sciences died last month. On Sunday, thousands paid tribute.`\
 https://nytimes.com/2026/01/18/us/claude-alligator-san-francisco-funeral.html
-
-**Deadly Train Crash in Spain**\
-`Emergency responders worked to evacuate survivors from the wreckage of a deadly crash between two high-speed trains that derailed in Adamuz, Spain, on Sunday.`\
-https://nytimes.com/video/world/europe/100000010653409/deadly-train-crash-in-spain.html
 
