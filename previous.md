@@ -1,3 +1,15 @@
+**A Heisman winner and a Stoic? 3 lessons from Indiana QB Fernando Mendoza**\
+`Indiana's Fernando Mendoza isn't just one of the best quarterbacks in the country. He's also full of LinkedIn-style leadership advice.`\
+https://nytimes.com/athletic/6980686/2026/01/19/3-things-anyone-can-learn-from-indiana-qb-fernando-mendozas-stoic-mindset/
+
+**Why does Fernando Mendoza talk like that? Earnest, articulate and '100 percent him'**\
+`In a world where athletes are trained to say as little as possible for fear of going viral in a bad way, Mendoza seems to always deliver.`\
+https://nytimes.com/athletic/6980666/2026/01/19/fernando-mendoza-indiana-postgame-interview-speech/
+
+**Indiana vs. Miami predictions: The Athletic's experts and readers pick the CFP championship**\
+`The consensus is clear no matter who you ask in our College Football Playoff national title predictions. So will Indiana or Miami win?`\
+https://nytimes.com/athletic/6980910/2026/01/19/indiana-miami-predictions-cfp-national-championship/
+
 **I’m the Secretary General of the Council of Europe. This Is Something I Thought I’d Never Have to Write.**\
 `International law is either universal or meaningless. Greenland will show which one we choose.`\
 https://nytimes.com/2026/01/19/opinion/greenland-trump-europe.html
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/6978751/2026/01/19/callum-wilson-west-ham-nuno-tott
 **Nottingham Forest have become one-dimensional: Too many crosses, not enough goals**\
 `Forest have a squad packed with talent but have played their way into a relegation battle. Why are they struggling to score goals?`\
 https://nytimes.com/athletic/6979606/2026/01/19/sean-dyche-nottingham-forest-crosses-one-dimensional/
-
-**Darlow has settled Leeds' goalkeeper debate - for now**\
-`Daniel Farke's decision to opt for experience in goal paid off against Fulham but long-term questions remain`\
-https://nytimes.com/athletic/6979327/2026/01/19/leeds-united-karl-darlow-goalkeeper/
-
-**Carlos Baleba is 'ready to play' for Brighton. But will he start vs Bournemouth?**\
-`Hurzeler now has eight central midfielders in the squad for two positions. The conundrum is how Baleba fits into this congested picture`\
-https://nytimes.com/athletic/6973507/2026/01/19/baleba-afcon-brighton/
-
-**Everton needed to change the mood. Now opportunity beckons in a strange Premier League season**\
-`Remarkably, Sunday’s win leaves Everton three points off fifth and four off fourth. It’s been the most bizarre and unpredictable campaign
-`\
-https://nytimes.com/athletic/6981347/2026/01/19/everton-aston-villa-premier-league/
 

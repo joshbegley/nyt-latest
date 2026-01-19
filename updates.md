@@ -1,3 +1,15 @@
+**A Heisman winner and a Stoic? 3 lessons from Indiana QB Fernando Mendoza**\
+`Indiana's Fernando Mendoza isn't just one of the best quarterbacks in the country. He's also full of LinkedIn-style leadership advice.`\
+https://nytimes.com/athletic/6980686/2026/01/19/3-things-anyone-can-learn-from-indiana-qb-fernando-mendozas-stoic-mindset/
+
+**Why does Fernando Mendoza talk like that? Earnest, articulate and '100 percent him'**\
+`In a world where athletes are trained to say as little as possible for fear of going viral in a bad way, Mendoza seems to always deliver.`\
+https://nytimes.com/athletic/6980666/2026/01/19/fernando-mendoza-indiana-postgame-interview-speech/
+
+**Indiana vs. Miami predictions: The Athletic's experts and readers pick the CFP championship**\
+`The consensus is clear no matter who you ask in our College Football Playoff national title predictions. So will Indiana or Miami win?`\
+https://nytimes.com/athletic/6980910/2026/01/19/indiana-miami-predictions-cfp-national-championship/
+
 **Everton needed to change the mood. Now opportunity beckons in a strange Premier League season**\
 `Remarkably, Sunday’s win leaves Everton three points off fifth and four off fourth. It’s been the most bizarre and unpredictable campaign
 `\
