@@ -7,7 +7,7 @@ https://nytimes.com/2026/01/18/business/china-population-data.html
 https://nytimes.com/2026/01/18/business/china-gdp-economy.html
 
 **Michela Cava heading to Ottawa Charge in 6-player trade wtih Vancouver Goldeneyes**\
-`Cava, a two-time Walter Cup champion, is heading to Ottawa as part of a trade between the Charge and Goldeneyes announced Sunday night.`\
+`Cava, a two-time Walter Cup champion, is heading to Ottawa as part of the largest trade in PWHL history.`\
 https://nytimes.com/athletic/6981513/2026/01/18/michela-cava-pwhl-vancouver-trade/
 
 **See You Later, Claude: San Francisco Mourns Its Beloved Alligator**\

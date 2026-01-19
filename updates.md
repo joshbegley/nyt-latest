@@ -1,3 +1,7 @@
+**Michela Cava heading to Ottawa Charge in 6-player trade wtih Vancouver Goldeneyes**\
+`Cava, a two-time Walter Cup champion, is heading to Ottawa as part of the largest trade in PWHL history.`\
+https://nytimes.com/athletic/6981513/2026/01/18/michela-cava-pwhl-vancouver-trade/
+
 **China’s Population Shrinks Again as Policies Fail to Reverse Decline**\
 `With fewer babies and more deaths, China’s population fell for a fourth straight year as policymakers face a demographic crisis in the making.`\
 https://nytimes.com/2026/01/18/business/china-population-data.html
