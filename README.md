@@ -1,3 +1,11 @@
+**Trump’s Trade Negotiator Says Response to Court Loss Would Be Immediate**\
+`If the Supreme Court rules against its tariffs, the Trump administration would begin replacing them immediately, said Jamieson Greer, the United States Trade Representative.`\
+https://nytimes.com/2026/01/19/us/politics/trumps-trade-negotiator-says-response-to-court-loss-would-be-immediate.html
+
+**Bills fans: Share your thoughts on Buffalo firing Sean McDermott**\
+`Do you think the Bills made the right move if firing their head coach?`\
+https://nytimes.com/athletic/6982966/2026/01/19/sean-mcdermott-fired-discussion-bills-fans/
+
 **Tottenham's Davies to undergo surgery on ankle fracture**\
 `Davies, 32, was taken off on a stretcher during Tottenham's Premier League defeat to West Ham United on Saturday.`\
 https://nytimes.com/athletic/6982911/2026/01/19/ben-davies-tottenham-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6981351/2026/01/19/curt-cignetti-google-me-indiana-
 **The inside story of the Giants’ John Harbaugh deal and the talks that saved it**\
 `As late as Saturday, Harbaugh's done deal wasn't done. And the Titans weren’t the only team ready to pounce if the unimaginable happened.`\
 https://nytimes.com/athletic/6982115/2026/01/19/giants-john-harbaugh-hiring-details/
-
-**In need of an edge: Ranking the 49ers' position groups as their offseason begins**\
-`One of the 49ers' offseason decisions: Should they bring back Jauan Jennings to bolster a young and unproven wide receiving corps?`\
-https://nytimes.com/athletic/6981609/2026/01/19/49ers-position-groups-rankings-offseason/
-
-**Top Catholic Clerics Denounce U.S. Foreign Policy**\
-`Citing recent events in Venezuela, Ukraine and Greenland, three cardinals said their statement was inspired by Pope Leo.`\
-https://nytimes.com/2026/01/19/us/catholics-trump-archbishops.html
 
