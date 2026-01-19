@@ -1,3 +1,11 @@
+**Five Knicks trade ideas — and why they would or wouldn't work**\
+`Evaluating and analyzing Knicks trade proposals sent by fans. `\
+https://nytimes.com/athletic/6965271/2026/01/19/knicks-rumors-trade-deadline/
+
+**NBA All-Star Game 2026: Our voters’ picks for East and West starters**\
+`This year's "game" will feature a round-robin tourney with U.S. and international teams.`\
+https://nytimes.com/athletic/6977270/2026/01/19/nba-all-star-voting-ballots-2026-starters/
+
 **Trump is Obsessed With Oil. But Chinese Batteries Will Soon Run the World.**\
 `China isn’t just building gigantic amounts of power. Its businesses are reshaping technological foundations to electrify the world.`\
 https://nytimes.com/2026/01/19/opinion/trump-energy-china-future.html
