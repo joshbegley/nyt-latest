@@ -1,3 +1,23 @@
+**Pau Gasol could have large role as vision for NBA Europe takes shape**\
+`International sources said Gasol is under consideration for a prominent role, but what the role will be is still unclear.`\
+https://nytimes.com/athletic/6983328/2026/01/19/nba-europe-pau-gasol-investors/
+
+**Northern Lights Could Be Visible Across Much of the U.S. Tonight**\
+`A severe solar storm could produce a visible show from Alabama to Northern California.`\
+https://nytimes.com/2026/01/19/weather/northern-lights.html
+
+**Bills promote GM Brandon Beane despite turbulent 2025 season, checkered draft record**\
+`The Bills moved on from head coach Sean McDermott after a divisional round playoff exit.`\
+https://nytimes.com/athletic/6983482/2026/01/19/brandon-beane-promoted-bills-gm-draft-record/
+
+**NBA All-Star starters include 4 past MVPs and 4 first-time honorees**\
+`Giannis Antetokounmpo, Steph Curry and other mainstays earned starter spots, but so did fresher faces like Jaylen Brown and Tyrese Maxey.`\
+https://nytimes.com/athletic/6983596/2026/01/19/nba-all-star-2026-starter-rosters/
+
+**France Moves Once Again to Pass a Budget With No Vote**\
+`Prime Minister Sébastien Lecornu’s effort to force the measure through Parliament opens his government up to a vote of no confidence.`\
+https://nytimes.com/2026/01/19/world/europe/france-budget-no-confidence-vote.html
+
 **49ers defenders hope Robert Saleh returns, vow to learn from loss to Seahawks**\
 `Deommodore Lenoir and the 49ers' defense didn't have a great finish to the season, and they might have a new boss before too long.`\
 https://nytimes.com/athletic/6983392/2026/01/19/49ers-robert-saleh-playoffs-loss-defense/

@@ -1,3 +1,23 @@
+**Pau Gasol could have large role as vision for NBA Europe takes shape**\
+`International sources said Gasol is under consideration for a prominent role, but what the role will be is still unclear.`\
+https://nytimes.com/athletic/6983328/2026/01/19/nba-europe-pau-gasol-investors/
+
+**Northern Lights Could Be Visible Across Much of the U.S. Tonight**\
+`A severe solar storm could produce a visible show from Alabama to Northern California.`\
+https://nytimes.com/2026/01/19/weather/northern-lights.html
+
+**Bills promote GM Brandon Beane despite turbulent 2025 season, checkered draft record**\
+`The Bills moved on from head coach Sean McDermott after a divisional round playoff exit.`\
+https://nytimes.com/athletic/6983482/2026/01/19/brandon-beane-promoted-bills-gm-draft-record/
+
+**NBA All-Star starters include 4 past MVPs and 4 first-time honorees**\
+`Giannis Antetokounmpo, Steph Curry and other mainstays earned starter spots, but so did fresher faces like Jaylen Brown and Tyrese Maxey.`\
+https://nytimes.com/athletic/6983596/2026/01/19/nba-all-star-2026-starter-rosters/
+
+**France Moves Once Again to Pass a Budget With No Vote**\
+`Prime Minister Sébastien Lecornu’s effort to force the measure through Parliament opens his government up to a vote of no confidence.`\
+https://nytimes.com/2026/01/19/world/europe/france-budget-no-confidence-vote.html
+
 **49ers defenders hope Robert Saleh returns, vow to learn from loss to Seahawks**\
 `Deommodore Lenoir and the 49ers' defense didn't have a great finish to the season, and they might have a new boss before too long.`\
 https://nytimes.com/athletic/6983392/2026/01/19/49ers-robert-saleh-playoffs-loss-defense/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6983474/2026/01/19/ap-top-25-mens-college-basketbal
 **Trump Is Pushing the U.S.-Europe Alliance Onto a Precipice**\
 `As President Trump tries to coerce European leaders over Greenland, they are pondering the unthinkable: Is an 80-year-old alliance doomed?`\
 https://nytimes.com/2026/01/19/world/europe/trump-greenland-europe-nato-alliance.html
-
-**Valentino: A Life in Photos**\
-`Valentino Garavani, fashion’s ‘Last Emperor,’ believed in the power of beauty.`\
-https://nytimes.com/2026/01/19/style/valentino-a-life-in-photos.html
-
-**Tyrese Haliburton’s Road to Recovery**\
-`Tyrese Haliburton, a point guard for the Indiana Pacers, was injured at the worst time imaginable — his team was just minutes away from potentially winning a championship in June 2025.`\
-https://nytimes.com/video/the-athletic/100000010654162/tyrese-haliburtons-road-to-recovery.html
-
-**The state of the Premier League title race as contenders all fail to win**\
-`Arsenal couldn't beat Nottingham Forest on Saturday but still extended their lead over Manchester City and Aston Villa`\
-https://nytimes.com/athletic/6941733/2026/01/19/title-race-analysis-after-matchday-22/
-
-**Canucks trade Kiefer Sherwood to San Jose Sharks for 2 draft picks, Cole Clayton**\
-`Sherwood is in the final year of a two-year deal, with a modest cap hit of only $1.5 million.`\
-https://nytimes.com/athletic/6977764/2026/01/19/kiefer-sherwood-trade/
-
-**Powell Will Attend Supreme Court Arguments on Trump’s Effort to Fire Fed Official**\
-`A lawsuit by the Fed governor Lisa D. Cook has challenged President Trump’s push to fire her.`\
-https://nytimes.com/2026/01/19/us/politics/powell-will-attend-the-supreme-court-arguments-on-trumps-effort-to-remove-a-fed-governor.html
 
