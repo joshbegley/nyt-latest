@@ -1,3 +1,7 @@
+**Nick Saban playfully argues NIL era is 'advantage' for Big Ten**\
+`Indiana would be the third straight Big Ten representative to win it all.`\
+https://nytimes.com/athletic/6983954/2026/01/19/nick-saban-nil-advantage-big-ten/
+
 **A Smaller Version of the Sphere in Las Vegas Is Planned for Maryland**\
 `Gov. Wes Moore and the company behind the Sphere said the project in National Harbor, in the Washington metro area, would create jobs and become a landmark attraction.`\
 https://nytimes.com/2026/01/19/us/sphere-maryland-national-harbor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983697/2026/01/19/detroit-lions-hire-drew-petzing-
 **Trump Administration to Appeal Limits on Interactions With Minnesota Protesters**\
 `Justice Department lawyers said they would ask an appellate court to review an injunction that imposes limits on the tactics used by immigration agents.`\
 https://nytimes.com/2026/01/19/us/minnesota-protesters-injunction-appeal-trump.html
-
-**How to watch Suns vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6983834/2026/01/19/suns-vs-nets-stream-how-to-watch-jan-19/
 

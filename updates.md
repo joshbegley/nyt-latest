@@ -1,3 +1,7 @@
+**Nick Saban playfully argues NIL era is 'advantage' for Big Ten**\
+`Indiana would be the third straight Big Ten representative to win it all.`\
+https://nytimes.com/athletic/6983954/2026/01/19/nick-saban-nil-advantage-big-ten/
+
 **A Smaller Version of the Sphere in Las Vegas Is Planned for Maryland**\
 `Gov. Wes Moore and the company behind the Sphere said the project in National Harbor, in the Washington metro area, would create jobs and become a landmark attraction.`\
 https://nytimes.com/2026/01/19/us/sphere-maryland-national-harbor.html
