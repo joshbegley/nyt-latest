@@ -1,3 +1,11 @@
+**See You Later, Claude: San Francisco Mourns Its Beloved Alligator**\
+`The 30-year-old albino resident of the California Academy of Sciences died last month. On Sunday, thousands paid tribute.`\
+https://nytimes.com/2026/01/18/us/claude-alligator-san-francisco-funeral.html
+
+**Deadly Train Crash in Spain**\
+`Emergency responders worked to evacuate survivors from the wreckage of a deadly crash between two high-speed trains that derailed in Adamuz, Spain, on Sunday.`\
+https://nytimes.com/video/world/europe/100000010653409/deadly-train-crash-in-spain.html
+
 **In Minneapolis, a Pattern of Misconduct Toward Protesters**\
 `Legal and criminal justice experts said a ruling by a federal judge last week revealed conduct by immigration agents that evokes the civil rights era.`\
 https://nytimes.com/2026/01/18/us/in-minneapolis-a-pattern-of-misconduct-toward-protesters.html
