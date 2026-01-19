@@ -1,3 +1,11 @@
+**AFC Championship Game odds: Patriots open as strong road favorites against Broncos**\
+`New England is favored by a fair margin as Denver advances without its starting quarterback. `\
+https://nytimes.com/athletic/6980871/2026/01/18/afc-championship-game-odds-patriots-broncos/
+
+**Patriots-Broncos in AFC title game: Initial thoughts as Denver seeks Super Bowl berth**\
+`Can Denver get more impact from rookie running back RJ Harvey to support Jarrett Stidham in his first career playoff start?`\
+https://nytimes.com/athletic/6981626/2026/01/18/patriots-broncos-afc-championship-matchup/
+
 **Yankees hold firm with offer, but has Cody Bellinger's market changed?**\
 `The Yankees would be willing to include opt-outs after Year 2 and Year 3 of a five-year deal worth as much as $160 million, per a source.`\
 https://nytimes.com/athletic/6981548/2026/01/18/yankees-cody-bellinger-offer-opt-outs/

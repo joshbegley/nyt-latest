@@ -1,3 +1,11 @@
+**AFC Championship Game odds: Patriots open as strong road favorites against Broncos**\
+`New England is favored by a fair margin as Denver advances without its starting quarterback. `\
+https://nytimes.com/athletic/6980871/2026/01/18/afc-championship-game-odds-patriots-broncos/
+
+**Patriots-Broncos in AFC title game: Initial thoughts as Denver seeks Super Bowl berth**\
+`Can Denver get more impact from rookie running back RJ Harvey to support Jarrett Stidham in his first career playoff start?`\
+https://nytimes.com/athletic/6981626/2026/01/18/patriots-broncos-afc-championship-matchup/
+
 **Yankees hold firm with offer, but has Cody Bellinger's market changed?**\
 `The Yankees would be willing to include opt-outs after Year 2 and Year 3 of a five-year deal worth as much as $160 million, per a source.`\
 https://nytimes.com/athletic/6981548/2026/01/18/yankees-cody-bellinger-offer-opt-outs/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/18/world/europe/spain-high-speed-train-derailment.ht
 **Rangers' Vincent Trocheck, Braden Schneider describe 'shock' of retool letter**\
 `Trocheck and Schneider are among New York's players with higher trade values.`\
 https://nytimes.com/athletic/6981364/2026/01/18/ny-rangers-vincent-trocheck-braden-schneider-letter/
-
-**Patriots outlast Texans in wintry, turnover-filled affair to advance to AFC title game**\
-`With the 28-16 victory, the Patriots advance to face the Broncos in next Sunday’s AFC Championship Game. `\
-https://nytimes.com/athletic/6981390/2026/01/18/texans-patriots-score-result-takeaways-nfl-divisional-round/
-
-**Man Acquitted of Shining a Laser at Marine One With Trump Aboard**\
-`A jury found the man, Jacob Samuel Winkler, not guilty after just 35 minutes of deliberation. He was charged in September with pointing a laser at an aircraft.`\
-https://nytimes.com/2026/01/18/us/politics/marine-laser-trump-acquitted.html
 
