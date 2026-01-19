@@ -1,3 +1,11 @@
+**China’s Population Shrinks Again as Policies Fail to Reverse Decline**\
+`With fewer babies and more deaths, China’s population fell for a fourth straight year as policymakers face a demographic crisis in the making.`\
+https://nytimes.com/2026/01/18/business/china-population-data.html
+
+**Real Estate Crash Weighs on China’s Economic Growth**\
+`Falling apartment prices have erased the savings of millions of Chinese households, but exports lifted the economy to 5 percent growth last year.`\
+https://nytimes.com/2026/01/18/business/china-gdp-economy.html
+
 **Michela Cava heading to Ottawa Charge in 6-player trade wtih Vancouver Goldeneyes**\
 `Cava, a two-time Walter Cup champion, is heading to Ottawa as part of a trade between the Charge and Goldeneyes announced Sunday night.`\
 https://nytimes.com/athletic/6981513/2026/01/18/michela-cava-pwhl-vancouver-trade/
