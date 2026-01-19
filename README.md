@@ -1,3 +1,15 @@
+**Morocco's Diaz apologises for AFCON final penalty miss: 'My soul hurts'**\
+`Diaz says he takes “full responsibility” for the miss in the latter stages of Morocco's 1-0 loss to Senegal.`\
+https://nytimes.com/athletic/6983138/2026/01/19/afcon-final-diaz-statement-morocco-senegal/
+
+**The Windup: Wild stat on Dodgers' multi-year spending spree**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6983224/2026/01/19/dodgers-spending-kyle-tucker-the-windup/
+
+**NBA Rewind: The Ja Morant trade saga with Memphis Grizzlies continues**\
+`Plus, All-Star voting. And who's hot (Nuggets, Kings) and not (Bucks, Sixers) this week in the NBA. `\
+https://nytimes.com/athletic/6974464/2026/01/19/ja-morant-trade-memphis-grizzlies-nba-rewind/
+
 **How to watch Notre Dame vs. UConn women's basketball: Time, TV, streaming**\
 `Find out how to watch the Notre Dame Fighting Irish play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6983238/2026/01/19/notre-dame-vs-uconn-stream-how-to-watch-jan-19/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6983047/2026/01/19/super-bowl-odds-conference-champ
 **Longtime Blues assistant coach Steve Ott takes over AHL Springfield**\
 `The Blues fired Steve Konowalchuk, who was in his second season as head coach of the Thunderbirds.`\
 https://nytimes.com/athletic/6983012/2026/01/19/steve-ott-blues-ahl-springfield-coach/
-
-**Marc Guehi: Crystal Palace defender completes Man City move**\
-`The defender is City's second signing of the transfer window after the arrival of forward Antoine Semenyo from Bournemouth in a £62.5m move.`\
-https://nytimes.com/athletic/6977024/2026/01/19/marc-guehi-transfer-manchester-city-crystal-palace/
-
-**Red Bull's Ford era has begun. Will results follow the hype in 2026?**\
-`Red Bull's new era with Ford power kicked off with a glitzy launch event in Detroit. Here's how the project is going so far ahead of F1 2026`\
-https://nytimes.com/athletic/6982886/2026/01/19/red-bull-ford-f1-engine/
-
-**Steelers coaching search tracker: Brian Flores, Anthony Weaver set for in-person interviews**\
-`Brian Flores, Jesse Minter, Anthony Weaver, Nate Scheelhaase and Chris Shula are also set to interview.`\
-https://nytimes.com/athletic/6972698/2026/01/19/steelers-coaching-search-tracker/
 
