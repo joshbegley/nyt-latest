@@ -1,3 +1,11 @@
+**Morocco's AFCON dream unravelled. How do fans in the host nation view what happened?**\
+`There may be repercussions following their loss on Sunday, at the end of what was supposed to be a triumphant tournament on home soil`\
+https://nytimes.com/athletic/6983733/2026/01/19/morocco-afcon-final/
+
+**Scoop City: What is a catch, anyways?**\
+`Debating a catch in the NFL, Bills join coaching carousel and we prep for the conference championships`\
+https://nytimes.com/athletic/6983743/2026/01/19/nfl-divisional-round-2-bills-bears-interception-rules-scoop-city/
+
 **Blues assistant Steve Ott takes over AHL Springfield: What it means for the PP — and Ott's future**\
 `Blues coach Jim Montgomery said the move could help Ott's development into an NHL head coach: "I know he's going to do a great job."`\
 https://nytimes.com/athletic/6983012/2026/01/19/steve-ott-blues-ahl-springfield-coach/
@@ -22,19 +30,11 @@ https://nytimes.com/2026/01/19/weather/northern-lights.html
 `The Bills moved on from head coach Sean McDermott after a divisional round playoff exit.`\
 https://nytimes.com/athletic/6983482/2026/01/19/brandon-beane-promoted-bills-gm-draft-record/
 
-**NBA All-Star starters include 4 past MVPs and 4 first-time honorees**\
-`Giannis Antetokounmpo, Steph Curry and other mainstays earned starter spots, but so did fresher faces like Jaylen Brown and Tyrese Maxey.`\
+**NBA All-Star starters include 4 first-time honorees — and no LeBron**\
+`Luka Dončić and other stars earned starter spots, as did fresh faces like Jaylen Brown. LeBron James didn't for the first time in 21 years.`\
 https://nytimes.com/athletic/6983596/2026/01/19/nba-all-star-2026-starter-rosters/
 
 **France Moves Once Again to Pass a Budget With No Vote**\
-`Prime Minister Sébastien Lecornu’s effort to force the measure through Parliament opens his government up to a vote of no confidence.`\
+`Prime Minister Sébastien Lecornu’s effort to force the measure through Parliament opened up his government to a vote of no confidence.`\
 https://nytimes.com/2026/01/19/world/europe/france-budget-no-confidence-vote.html
-
-**49ers defenders hope Robert Saleh returns, vow to learn from loss to Seahawks**\
-`Deommodore Lenoir and the 49ers' defense didn't have a great finish to the season, and they might have a new coordinator before too long.`\
-https://nytimes.com/athletic/6983392/2026/01/19/49ers-robert-saleh-playoffs-loss-defense/
-
-**Protest at Minnesota Church Service Adds to Tensions Over ICE Tactics**\
-`The Justice Department said it would investigate the protest over a pastor’s apparent role in immigration enforcement in the state.`\
-https://nytimes.com/2026/01/19/us/politics/minnesota-church-protest-ice.html
 
