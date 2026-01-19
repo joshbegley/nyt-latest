@@ -22,13 +22,13 @@ https://nytimes.com/2026/01/19/opinion/greenland-trump-europe.html
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/19/todays-new-york-times
 
+**Trump is Obsessed With Oil. But Chinese Batteries Will Soon Run the World.**\
+`China isn’t just building gigantic amounts of power. Its businesses are reshaping technological foundations to electrify the world.`\
+https://nytimes.com/2026/01/19/opinion/trump-energy-china-future.html
+
 **‘Finding Her Edge,’ Plus 8 Things to Watch on TV This Week**\
 `Another ice-skating romance premieres, and a reboot of “Star Search” comes to Netflix.`\
 https://nytimes.com/2026/01/19/arts/television/finding-her-edge-things-to-watch-on-tv-this-week.html
-
-**Trump Is Obsessed With Yesterday’s Energy. China Is Focused on the Future.**\
-`China isn’t just building gigantic amounts of power. Its businesses are reshaping technological foundations to electrify the world.`\
-https://nytimes.com/2026/01/19/opinion/trump-energy-china-future.html
 
 **The sufferings of Emiliano Martinez (and how they are hurting Aston Villa)**\
 `The Argentina international's erratic form this season is not helping his club's push for the top four`\

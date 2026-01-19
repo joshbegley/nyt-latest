@@ -1,3 +1,11 @@
+**Five Knicks trade ideas — and why they would or wouldn't work**\
+`Evaluating and analyzing Knicks trade proposals sent by fans. `\
+https://nytimes.com/athletic/6965271/2026/01/19/knicks-rumors-trade-deadline/
+
+**NBA All-Star Game 2026: Our voters’ picks for East and West starters**\
+`This year's "game" will feature a round-robin tourney with U.S. and international teams.`\
+https://nytimes.com/athletic/6977270/2026/01/19/nba-all-star-voting-ballots-2026-starters/
+
 **A Swath of Spain’s High-Speed Rail Network Will Be Closed on Monday**\
 `The closures were announced after a high-speed train derailed and smashed into another high-speed train, killing at least 39 people and injuring dozens.`\
 https://nytimes.com/2026/01/19/world/europe/spain-high-speed-rail-closed.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/19/opinion/trump-energy-china-future.html
 **‘Finding Her Edge,’ Plus 8 Things to Watch on TV This Week**\
 `Another ice-skating romance premieres, and a reboot of “Star Search” comes to Netflix.`\
 https://nytimes.com/2026/01/19/arts/television/finding-her-edge-things-to-watch-on-tv-this-week.html
-
-**The sufferings of Emiliano Martinez (and how they are hurting Aston Villa)**\
-`The Argentina international's erratic form this season is not helping his club's push for the top four`\
-https://nytimes.com/athletic/6970380/2026/01/19/emiliano-martinez-aston-villa-form/
-
-**Callum Wilson was leaving West Ham... until he wasn't**\
-`January has been quite the month for Callum Wilson – his goal against Spurs proves he has a lot to offer West Ham's survival fight`\
-https://nytimes.com/athletic/6978751/2026/01/19/callum-wilson-west-ham-nuno-tottenham/
 

@@ -1,3 +1,7 @@
+**Trump is Obsessed With Oil. But Chinese Batteries Will Soon Run the World.**\
+`China isn’t just building gigantic amounts of power. Its businesses are reshaping technological foundations to electrify the world.`\
+https://nytimes.com/2026/01/19/opinion/trump-energy-china-future.html
+
 **A Swath of Spain’s High-Speed Rail Network Will Be Closed on Monday**\
 `The closures were announced after a high-speed train derailed and smashed into another high-speed train, killing at least 39 people and injuring dozens.`\
 https://nytimes.com/2026/01/19/world/europe/spain-high-speed-rail-closed.html
