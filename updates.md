@@ -1,3 +1,7 @@
+**Sources: Dynamo finalizing deal to bring Polish winger Bogusz back to MLS**\
+`Houston's remake continues, with Mateusz Bogusz returning to the U.S. after a previous stint with LAFC`\
+https://nytimes.com/athletic/6983443/2026/01/19/mateusz-bogusz-transfer-houston-dynamo-cruz-azul-mls/
+
 **LeSean McCoy, DaQuan Jones among Bills stars to rip franchise for firing Sean McDermott**\
 `"Don't make sense but ya got ya wanted," DaQuan Jones said on Instagram.`\
 https://nytimes.com/athletic/6983330/2026/01/19/bills-fire-sean-mcdermott-reactions/

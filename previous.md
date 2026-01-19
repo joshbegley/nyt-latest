@@ -1,3 +1,7 @@
+**Sources: Dynamo finalizing deal to bring Polish winger Bogusz back to MLS**\
+`Houston's remake continues, with Mateusz Bogusz returning to the U.S. after a previous stint with LAFC`\
+https://nytimes.com/athletic/6983443/2026/01/19/mateusz-bogusz-transfer-houston-dynamo-cruz-azul-mls/
+
 **LeSean McCoy, DaQuan Jones among Bills stars to rip franchise for firing Sean McDermott**\
 `"Don't make sense but ya got ya wanted," DaQuan Jones said on Instagram.`\
 https://nytimes.com/athletic/6983330/2026/01/19/bills-fire-sean-mcdermott-reactions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6982552/2026/01/19/bove-watford-roma-malen-fullkrug
 **Prada Alienates in the Right Way**\
 `The coats at the brand’s latest show felt refreshingly awkward.`\
 https://nytimes.com/2026/01/19/style/prada-milan-mens.html
-
-**Valentino Garavani, Regal Designer and Fashion’s ‘Last Emperor,’ Dies at 93**\
-`Valentino, as he was called, created one of the most durable and fashionable labels and became an equal of his high society customers.`\
-https://nytimes.com/2026/01/19/style/valentino-garavani-dead.html
 
