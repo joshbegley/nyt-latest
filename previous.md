@@ -1,3 +1,7 @@
+**Steelers coaching search tracker: Brian Flores, Anthony Weaver set for in-person interviews**\
+`Brian Flores, Jesse Minter, Anthony Weaver, Nate Scheelhaase and Chris Shula are also set to interview.`\
+https://nytimes.com/athletic/6972698/2026/01/19/steelers-coaching-search-tracker/
+
 **Musk, With a $10 Million Donation, Signals He’s Back for the Midterms**\
 `Elon Musk, the world’s richest person, backed Nate Morris, a Republican businessman, in the primary race to succeed Senator Mitch McConnell in Kentucky.`\
 https://nytimes.com/2026/01/19/us/politics/elon-musk-nate-morris-kentucky-senate-mitch-mcconnell.html
@@ -16,7 +20,7 @@ https://nytimes.com/athletic/6975155/2026/01/19/mario-cristobal-sideline-body-la
 
 **Trump’s Trade Negotiator Says Response to Court Loss Would Be Immediate**\
 `If the Supreme Court rules against its tariffs, the Trump administration would begin replacing them immediately, said Jamieson Greer, the United States Trade Representative.`\
-https://nytimes.com/2026/01/19/us/politics/trumps-trade-negotiator-says-response-to-court-loss-would-be-immediate.html
+https://nytimes.com/2026/01/19/us/politics/trump-tariffs-supreme-court-greer-trade.html
 
 **Bills fans: Share your thoughts on Buffalo firing Sean McDermott**\
 `Do you think the Bills made the right move if firing their head coach?`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6980590/2026/01/19/miami-cubans-fernando-mendoza-ma
 **Bills fire coach Sean McDermott after 9 seasons, will retain GM Brandon Beane: Source**\
 `McDermott went 98-50 over his nine seasons but the Bills have yet to reach a Super Bowl despite the MVP presence of Josh Allen.`\
 https://nytimes.com/athletic/6979852/2026/01/19/buffalo-bills-fire-coach-sean-mcdermott/
-
-**USMNT Player Tracker: Championship strikers make their mark, but more woe for Richards**\
-`The contrasting fortunes endured by Christian Pulisic and Weston McKennie in Italy's Serie A also feature in our weekly round up`\
-https://nytimes.com/athletic/6982716/2026/01/19/usmnt-wright-agyemang-richards-tracker/
 
