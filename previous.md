@@ -1,3 +1,7 @@
+**Indiana Judge and His Wife Are Shot at Their Suburban Home**\
+`The police in Lafayette, Ind., said they were investigating the nonfatal shootings of a Tippecanoe County Superior Court judge and his wife on Sunday.`\
+https://nytimes.com/2026/01/19/us/politics/indiana-judge-and-wife-shot.html
+
 **Sabres can't solve Brandon Bussi in loss to Hurricanes: 5 thoughts**\
 `The Sabres played a hard-fought game against an experienced team that might be a first-round playoff opponent.`\
 https://nytimes.com/athletic/6984075/2026/01/19/sabres-playoffs-power-bussi-hurricanes/
@@ -18,7 +22,7 @@ https://nytimes.com/video/us/politics/100000010654229/minnesota-community-patrol
 `Bieniemy was previously the Chiefs coordinator from 2018 to '22.`\
 https://nytimes.com/athletic/6980824/2026/01/19/chiefs-eric-bieniemy-returns-offensive-coordinator/
 
-**Josh Allen is in his prime. The Bills fired Sean McDermott before it was too late**\
+**Will firing Sean McDermott maximize Josh Allen's prime? Bills are about to find out**\
 `The post-game scene after the playoff loss may have been a signal that a change was needed right away.`\
 https://nytimes.com/athletic/6983716/2026/01/19/josh-allen-future-bills-sean-mcdermott-brandon-beane/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/19/us/sphere-maryland-national-harbor.html
 **Taxing the Ultrarich**\
 `The number of billionaires has exploded, yet they often pay taxes at rates well below average.`\
 https://nytimes.com/2026/01/19/world/taxing-billionaires-spain-train-crash.html
-
-**Arsenal's Jesus defends Gyokeres: 'I have been in his position'**\
-`The Sweden international has found it difficult to make an early impact in England, scoring eight goals in 26 games`\
-https://nytimes.com/athletic/6983887/2026/01/19/arsenal-gyokeres-form-jesus-striker-goal/
 

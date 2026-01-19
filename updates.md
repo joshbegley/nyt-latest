@@ -1,3 +1,11 @@
+**Indiana Judge and His Wife Are Shot at Their Suburban Home**\
+`The police in Lafayette, Ind., said they were investigating the nonfatal shootings of a Tippecanoe County Superior Court judge and his wife on Sunday.`\
+https://nytimes.com/2026/01/19/us/politics/indiana-judge-and-wife-shot.html
+
+**Will firing Sean McDermott maximize Josh Allen's prime? Bills are about to find out**\
+`The post-game scene after the playoff loss may have been a signal that a change was needed right away.`\
+https://nytimes.com/athletic/6983716/2026/01/19/josh-allen-future-bills-sean-mcdermott-brandon-beane/
+
 **Sabres can't solve Brandon Bussi in loss to Hurricanes: 5 thoughts**\
 `The Sabres played a hard-fought game against an experienced team that might be a first-round playoff opponent.`\
 https://nytimes.com/athletic/6984075/2026/01/19/sabres-playoffs-power-bussi-hurricanes/

@@ -1,3 +1,27 @@
+**Columbia University’s Strained Peace: Fewer Protests and Sealed Gates**\
+`The Trump administration has pushed universities all over the country to act against student protesters.`\
+https://nytimes.com/2026/01/19/us/politics/columbia-university-protests-culture-trump.html
+
+**An Idaho City Has New Refugees: White South Afrikans**\
+`Twin Falls and its dairy industry have benefited from an influx of refugees from places like Bosnia, the Democratic Republic of Congo and Myanmar. That era is over.`\
+https://nytimes.com/2026/01/19/us/politics/twin-falls-idaho-afrikaners-trump.html
+
+**When Trump Took a Whack at the C.D.C., Atlanta Lost Something, Too**\
+`The earnest government disease fighter had become a kind of city archetype, alongside aspiring rappers and C-suite strivers. Now scientists are leaving.`\
+https://nytimes.com/2026/01/19/us/politics/cdc-atlanta-trump-cuts.html
+
+**At Yosemite, Rangers Are Scarce and Visitors Have Gone Wild**\
+`After the Trump administration’s cuts, workers at the national park are spread too thin to stop people from littering, flying drones and cliff-diving.`\
+https://nytimes.com/2026/01/19/us/politics/yosemite-national-park-california-staffing-cuts.html
+
+**An Alaska Town Is Now Key to Trump’s Global Ambitions**\
+`Nome, population 3,700, is accessible only by plane outside a few months when boats can pass through. But it will be the home of the nation’s only deepwater Arctic port.`\
+https://nytimes.com/2026/01/19/us/politics/nome-alaska-arctic-port-trump-ambitions.html
+
+**An Alabama Pastor Credits Trump for Putting ‘Christ’ Back in Christmas**\
+`The president has given a new class of evangelists direct access to the White House. In return, many support him without question.`\
+https://nytimes.com/2026/01/19/us/politics/pastor-travis-johnson-evangelicalism-alabama.html
+
 **Indiana Judge and His Wife Are Shot at Their Suburban Home**\
 `The police in Lafayette, Ind., said they were investigating the nonfatal shootings of a Tippecanoe County Superior Court judge and his wife on Sunday.`\
 https://nytimes.com/2026/01/19/us/politics/indiana-judge-and-wife-shot.html
@@ -13,28 +37,4 @@ https://nytimes.com/2026/01/19/us/michigan-interstate-traffic-pileup.html
 **Dolphins working to hire Jeff Hafley as head coach: Sources**\
 `Hafley will look to end the NFL's longest drought without a postseason win, which extends to the 2000 season.`\
 https://nytimes.com/athletic/6979675/2026/01/19/dolphins-hire-jeff-hafley-head-coach/
-
-**Community Patrols Mobilize Amid ICE Operations in Minnesota**\
-`In parts of Minnesota, volunteers have organized neighborhood patrols and rapid‑response networks to monitor the actions of U.S. Immigration and Customs Enforcement operations in the area.`\
-https://nytimes.com/video/us/politics/100000010654229/minnesota-community-patrols.html
-
-**Eric Bieniemy expected to return to Chiefs as offensive coordinator: Source**\
-`Bieniemy was previously the Chiefs coordinator from 2018 to '22.`\
-https://nytimes.com/athletic/6980824/2026/01/19/chiefs-eric-bieniemy-returns-offensive-coordinator/
-
-**Will firing Sean McDermott maximize Josh Allen's prime? Bills are about to find out**\
-`The post-game scene after the playoff loss may have been a signal that a change was needed right away.`\
-https://nytimes.com/athletic/6983716/2026/01/19/josh-allen-future-bills-sean-mcdermott-brandon-beane/
-
-**Nick Saban playfully argues NIL era is 'advantage' for Big Ten**\
-`Indiana would be the third straight Big Ten representative to win it all.`\
-https://nytimes.com/athletic/6983954/2026/01/19/nick-saban-nil-advantage-big-ten/
-
-**A Smaller Version of the Sphere in Las Vegas Is Planned for Maryland**\
-`Gov. Wes Moore and the company behind the Sphere said the project in National Harbor, in the Washington metro area, would create jobs and become a landmark attraction.`\
-https://nytimes.com/2026/01/19/us/sphere-maryland-national-harbor.html
-
-**Taxing the Ultrarich**\
-`The number of billionaires has exploded, yet they often pay taxes at rates well below average.`\
-https://nytimes.com/2026/01/19/world/taxing-billionaires-spain-train-crash.html
 
