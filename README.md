@@ -1,3 +1,11 @@
+**A Smaller Version of the Sphere in Las Vegas Is Planned for Maryland**\
+`Gov. Wes Moore and the company behind the Sphere said the project in National Harbor, in the Washington metro area, would create jobs and become a landmark attraction.`\
+https://nytimes.com/2026/01/19/us/sphere-maryland-national-harbor.html
+
+**Taxing the Ultrarich**\
+`The number of billionaires has exploded, yet they often pay taxes at rates well below average.`\
+https://nytimes.com/2026/01/19/world/taxing-billionaires-spain-train-crash.html
+
 **Arsenal's Jesus defends Gyokeres: 'I have been in his position'**\
 `The Sweden international has found it difficult to make an early impact in England, scoring eight goals in 26 games`\
 https://nytimes.com/athletic/6983887/2026/01/19/arsenal-gyokeres-form-jesus-striker-goal/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/19/us/minnesota-protesters-injunction-appeal-trump.h
 **How to watch Suns vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Phoenix Suns play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6983834/2026/01/19/suns-vs-nets-stream-how-to-watch-jan-19/
-
-**How to watch Heat vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6983831/2026/01/19/heat-vs-warriors-stream-how-to-watch-jan-19/
-
-**Bobby McMann 'definitely' wants to stay in Toronto as contract talks begin**\
-`Even with McMann's impending status as an unrestricted free agent, he's not that interested in testing the free-agent waters right now.`\
-https://nytimes.com/athletic/6983586/2026/01/19/bobby-mcmann-leafs-contract-talks/
 
