@@ -1,3 +1,15 @@
+**Trump Is Pushing the U.S.-Europe Alliance Onto a Precipice**\
+`As President Trump tries to coerce European leaders over Greenland, they are pondering the unthinkable: Is an 80-year-old alliance doomed?`\
+https://nytimes.com/2026/01/19/world/europe/trump-greenland-europe-nato-alliance.html
+
+**Valentino: A Life in Photos**\
+`Valentino Garavani, fashion’s ‘Last Emperor,’ believed in the power of beauty.`\
+https://nytimes.com/2026/01/19/style/valentino-a-life-in-photos.html
+
+**Tyrese Haliburton’s Road to Recovery**\
+`Tyrese Haliburton, a point guard for the Indiana Pacers, was injured at the worst time imaginable — his team was just minutes away from potentially winning a championship in June 2025.`\
+https://nytimes.com/video/the-athletic/100000010654162/tyrese-haliburtons-road-to-recovery.html
+
 **The state of the Premier League title race as contenders all fail to win**\
 `Arsenal couldn't beat Nottingham Forest on Saturday but still extended their lead over Manchester City and Aston Villa`\
 https://nytimes.com/athletic/6941733/2026/01/19/title-race-analysis-after-matchday-22/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/19/world/middleeast/syria-prisons-isis.html
 **A$AP Rocky Clears the Air on His New Drake Diss**\
 `The musician and actor A$AP Rocky sat down with Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, to discuss a new song that fans speculate is aimed at the rapper and pop star Drake.`\
 https://nytimes.com/video/podcasts/100000010654386/aap-rocky-clears-the-air-on-his-new-drake-diss.html
-
-**Sources: Dynamo finalizing deal to bring Polish winger Bogusz back to MLS**\
-`Houston's remake continues, with Mateusz Bogusz returning to the U.S. after a previous stint with LAFC`\
-https://nytimes.com/athletic/6983443/2026/01/19/mateusz-bogusz-transfer-houston-dynamo-cruz-azul-mls/
-
-**LeSean McCoy, DaQuan Jones among Bills stars to rip franchise for firing Sean McDermott**\
-`"Don't make sense but ya got ya wanted," DaQuan Jones said on Instagram.`\
-https://nytimes.com/athletic/6983330/2026/01/19/bills-fire-sean-mcdermott-reactions/
-
-**How the Cleveland Orchestra Stays at the Top of Classical Music**\
-`Our critic tracked one concert, from its first rehearsals to its first performance. Practice is only part of what makes this ensemble excellent.`\
-https://nytimes.com/2026/01/19/arts/music/cleveland-orchestra.html
 

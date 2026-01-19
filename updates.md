@@ -1,3 +1,7 @@
+**The state of the Premier League title race as contenders all fail to win**\
+`Arsenal couldn't beat Nottingham Forest on Saturday but still extended their lead over Manchester City and Aston Villa`\
+https://nytimes.com/athletic/6941733/2026/01/19/title-race-analysis-after-matchday-22/
+
 **Canucks trade Kiefer Sherwood to San Jose Sharks for 2 draft picks, Cole Clayton**\
 `Sherwood is in the final year of a two-year deal, with a modest cap hit of only $1.5 million.`\
 https://nytimes.com/athletic/6977764/2026/01/19/kiefer-sherwood-trade/

@@ -1,3 +1,7 @@
+**The state of the Premier League title race as contenders all fail to win**\
+`Arsenal couldn't beat Nottingham Forest on Saturday but still extended their lead over Manchester City and Aston Villa`\
+https://nytimes.com/athletic/6941733/2026/01/19/title-race-analysis-after-matchday-22/
+
 **Canucks trade Kiefer Sherwood to San Jose Sharks for 2 draft picks, Cole Clayton**\
 `Sherwood is in the final year of a two-year deal, with a modest cap hit of only $1.5 million.`\
 https://nytimes.com/athletic/6977764/2026/01/19/kiefer-sherwood-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983330/2026/01/19/bills-fire-sean-mcdermott-reacti
 **How the Cleveland Orchestra Stays at the Top of Classical Music**\
 `Our critic tracked one concert, from its first rehearsals to its first performance. Practice is only part of what makes this ensemble excellent.`\
 https://nytimes.com/2026/01/19/arts/music/cleveland-orchestra.html
-
-**Zohran Mamdani to ask Donald Trump to reverse travel bans ahead of World Cup**\
-`Citizens of Senegal, Ivory Coast, Iran and Haiti, four countries that have qualified for the World Cup, cannot currently travel to the U.S.`\
-https://nytimes.com/athletic/6981658/2026/01/19/zohran-mamdani-donald-trump-reverse-travel-bans-world-cup/
 
