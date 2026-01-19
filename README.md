@@ -1,3 +1,11 @@
+**See You Later, Claude: San Francisco Mourns Its Beloved Alligator**\
+`The 30-year-old albino resident of the California Academy of Sciences died last month. On Sunday, thousands paid tribute.`\
+https://nytimes.com/2026/01/18/us/claude-alligator-san-francisco-funeral.html
+
+**Deadly Train Crash in Spain**\
+`Emergency responders worked to evacuate survivors from the wreckage of a deadly crash between two high-speed trains that derailed in Adamuz, Spain, on Sunday.`\
+https://nytimes.com/video/world/europe/100000010653409/deadly-train-crash-in-spain.html
+
 **In Minneapolis, a Pattern of Misconduct Toward Protesters**\
 `Legal and criminal justice experts said a ruling by a federal judge last week revealed conduct by immigration agents that evokes the civil rights era.`\
 https://nytimes.com/2026/01/18/us/in-minneapolis-a-pattern-of-misconduct-toward-protesters.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6977022/2026/01/18/arsenal-chelsea-deloitte-finance
 **European Union Officials Lean Toward Negotiating, Not Retaliating, Over Trump Tariff Threat**\
 `European Union ambassadors held an emergency meeting on Sunday, and leaders from across the 27-nation bloc will meet in Brussels later this week.`\
 https://nytimes.com/2026/01/18/world/europe/european-union-respond-trump-greenland.html
-
-**NHL trade grades: Andersson adds punch to Vegas' blue line, but did Flames get enough?**\
-`Vegas sent a player, a prospect and two picks back for the pending UFA defenseman with half salary retained.`\
-https://nytimes.com/athletic/6981549/2026/01/18/nhl-trade-grades-rasmus-andersson-flames-golden-knights/
-
-**At Least 10 Killed in High-Speed Train Derailment in Spain**\
-`After the rear carriages of one train derailed onto the opposite track, another train passing by collided with it.`\
-https://nytimes.com/2026/01/18/world/europe/spain-high-speed-train-derailment.html
 
