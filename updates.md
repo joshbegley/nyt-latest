@@ -1,3 +1,7 @@
+**Michela Cava heading to Ottawa Charge in 6-player trade wtih Vancouver Goldeneyes**\
+`Cava, a two-time Walter Cup champion, is heading to Ottawa as part of a trade between the Charge and Goldeneyes announced Sunday night.`\
+https://nytimes.com/athletic/6981513/2026/01/18/michela-cava-pwhl-vancouver-trade/
+
 **In Minneapolis, a Pattern of Misconduct Toward Protesters**\
 `Legal and criminal justice experts said a ruling by a federal judge last week revealed conduct by immigration agents that evokes the civil rights era.`\
 https://nytimes.com/2026/01/18/us/minneapolis-federal-agents-misconduct-protesters.html

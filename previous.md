@@ -1,3 +1,7 @@
+**Michela Cava heading to Ottawa Charge in 6-player trade wtih Vancouver Goldeneyes**\
+`Cava, a two-time Walter Cup champion, is heading to Ottawa as part of a trade between the Charge and Goldeneyes announced Sunday night.`\
+https://nytimes.com/athletic/6981513/2026/01/18/michela-cava-pwhl-vancouver-trade/
+
 **See You Later, Claude: San Francisco Mourns Its Beloved Alligator**\
 `The 30-year-old albino resident of the California Academy of Sciences died last month. On Sunday, thousands paid tribute.`\
 https://nytimes.com/2026/01/18/us/claude-alligator-san-francisco-funeral.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/18/us/politics/josh-shapiro-memoir-kamala-harris.htm
 **Arsenal top Deloitte rankings for first time as two clubs pass £20m revenue mark**\
 `Revenues in women’s football are plainly growing - generating more money from viewership, in person and on the sofa, is now a target`\
 https://nytimes.com/athletic/6977022/2026/01/18/arsenal-chelsea-deloitte-finances-womens-game/
-
-**European Union Officials Lean Toward Negotiating, Not Retaliating, Over Trump Tariff Threat**\
-`European Union ambassadors held an emergency meeting on Sunday, and leaders from across the 27-nation bloc will meet in Brussels later this week.`\
-https://nytimes.com/2026/01/18/world/europe/european-union-respond-trump-greenland.html
 
