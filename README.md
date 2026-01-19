@@ -1,3 +1,7 @@
+**49ers defenders hope Robert Saleh returns, vow to learn from loss to Seahawks**\
+`Deommodore Lenoir and the 49ers' defense didn't have a great finish to the season, and they might have a new boss before too long.`\
+https://nytimes.com/athletic/6983392/2026/01/19/49ers-robert-saleh-playoffs-loss-defense/
+
 **Protest at Minnesota Church Service Adds to Tensions Over ICE Tactics**\
 `The Justice Department said it would investigate the protest over a pastor’s apparent role in immigration enforcement in the state.`\
 https://nytimes.com/2026/01/19/us/politics/minnesota-church-protest-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6977764/2026/01/19/kiefer-sherwood-trade/
 **Powell Will Attend Supreme Court Arguments on Trump’s Effort to Fire Fed Official**\
 `A lawsuit by the Fed governor Lisa D. Cook has challenged President Trump’s push to fire her.`\
 https://nytimes.com/2026/01/19/us/politics/powell-will-attend-the-supreme-court-arguments-on-trumps-effort-to-remove-a-fed-governor.html
-
-**Seahawks RB Zach Charbonnet out for season with knee injury**\
-`A league source said that Charbonnet, who exited Saturday's win over the 49ers in the second quarter, tore his ACL.`\
-https://nytimes.com/athletic/6983479/2026/01/19/zach-charbonnet-injury-seahawks-playoffs/
 
