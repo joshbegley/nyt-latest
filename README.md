@@ -1,3 +1,7 @@
+**Lions hiring Cardinals' Drew Petzing as next offensive coordinator: Source**\
+`Petzing spent the past three seasons in Arizona and the 38-year-old has held roles in the NFL since 2013.`\
+https://nytimes.com/athletic/6983697/2026/01/19/detroit-lions-hire-drew-petzing-offensive-coordinator/
+
 **Trump Administration Appeals Limits on Interactions With Minnesota Protesters**\
 `Justice Department lawyers said they would ask an appellate court to review an injunction that imposes limits on the tactics used by immigration agents.`\
 https://nytimes.com/2026/01/19/us/minnesota-protesters-injunction-appeal-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983812/2026/01/19/devils-vs-flames-stream-how-to-w
 **How to watch Jets vs. Blackhawks: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Chicago Blackhawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6983808/2026/01/19/jets-vs-blackhawks-stream-how-to-watch-jan-19/
-
-**How to watch Rangers vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6983806/2026/01/19/rangers-vs-ducks-stream-how-to-watch-jan-19/
 
