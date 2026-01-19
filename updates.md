@@ -1,3 +1,7 @@
+**FPL Gameweek 22 review: Man Utd’s winners, Chelsea triple-up, and Saka uncertainty**\
+`Another round of fresh dilemmas hit FPL managers — what looked like a fairly routine set of fixtures instead produced turning points`\
+https://nytimes.com/athletic/6981337/2026/01/19/fantasy-premier-league-fpl-gameweek-22-review/
+
 **The transfer portal is closed. Here's how Michigan's offense has changed**\
 `Michigan lost a few key players but avoided the mass exodus that was feared, headlined by the return of quarterback Bryce Underwood.`\
 https://nytimes.com/athletic/6979233/2026/01/19/michigan-football-roster-2026-transfer-portal-offense/
