@@ -1,3 +1,7 @@
+**Seahawks RB Zach Charbonnet out for season with knee injury**\
+`Charbonnet led the Seahawks with 12 touchdowns during the regular season before being hurt in the divisional playoff game.`\
+https://nytimes.com/athletic/6983479/2026/01/19/zach-charbonnet-injury-seahawks-playoffs/
+
 **A$AP Rocky on How Rihanna Changed His Life**\
 `In an exclusive sit-down, A$AP Rocky discussed the release of “Don’t Be Dumb,” his first new album in eight years, plus settling down with his “boo” Rihanna, life as a family man, his forays into Hollywood, influence on rapper fashion and much more.`\
 https://nytimes.com/video/podcasts/100000010654336/aap-rocky-on-how-rihanna-changed-his-life.html

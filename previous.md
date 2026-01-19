@@ -1,3 +1,7 @@
+**Seahawks RB Zach Charbonnet out for season with knee injury**\
+`Charbonnet led the Seahawks with 12 touchdowns during the regular season before being hurt in the divisional playoff game.`\
+https://nytimes.com/athletic/6983479/2026/01/19/zach-charbonnet-injury-seahawks-playoffs/
+
 **A$AP Rocky on How Rihanna Changed His Life**\
 `In an exclusive sit-down, A$AP Rocky discussed the release of “Don’t Be Dumb,” his first new album in eight years, plus settling down with his “boo” Rihanna, life as a family man, his forays into Hollywood, influence on rapper fashion and much more.`\
 https://nytimes.com/video/podcasts/100000010654336/aap-rocky-on-how-rihanna-changed-his-life.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/19/us/politics/supreme-court-federal-reserve-cook-po
 **A labor union raised concerns last year about Spain’s railway lines.**\
 `By Jason Horowitz`\
 https://nytimes.com/live/2026/01/18/world/spain-high-speed-train-derailment/a-labor-union-raised-concerns-last-year-about-spains-railway-lines
-
-**Jimmy Butler joins our rankings of the most unflattering sports cards of all time**\
-`A puzzling new patch jumps high up our rankings of memorably bad sports cards. `\
-https://nytimes.com/athletic/6975698/2026/01/19/worst-sports-cards-jimmy-butler/
 
