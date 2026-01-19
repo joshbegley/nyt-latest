@@ -1,3 +1,16 @@
+**Everton needed to change the mood. Now opportunity beckons in a strange Premier League season**\
+`Remarkably, Sunday’s win leaves Everton three points off fifth and four off fourth. It’s been the most bizarre and unpredictable campaign
+`\
+https://nytimes.com/athletic/6981347/2026/01/19/everton-aston-villa-premier-league/
+
+**Newcastle and bluntness, a worrying trend away from home**\
+`Newcastle require an offensive change on the road to ensure they remain in the Champions League hunt`\
+https://nytimes.com/athletic/6980409/2026/01/19/newcastle-away-attacking-wolves/
+
+**Is Rob Edwards beginning to succeed in the Premier League's most miserable job?**\
+`Wolves were winless and on two points when the manager took over, but two months on the performances and mood are both vastly improved `\
+https://nytimes.com/athletic/6980889/2026/01/19/wolves-rob-edwards-premier-league-relegation/
+
 **The Briefing: Are managers trying to get sacked? Why are fans so angry? How good were Man Utd?**\
 `Dissecting the major talking points from the Premier League weekend, featuring public outbursts, protests and a strangely good Man Utd`\
 https://nytimes.com/athletic/6980606/2026/01/19/oliver-glasner-sack-fans-angry-man-utd/
@@ -25,16 +38,4 @@ https://nytimes.com/2026/01/19/pageoneplus/quote-of-the-day-chim-chim-cher-ee-sw
 **What to Know About Prince Harry’s Case Against Daily Mail Publisher**\
 `A trial is set to begin on Monday in Harry’s case accusing Associated Newspapers of phone hacking and other unlawful activities. Other claimants include Elton John and Liz Hurley.`\
 https://nytimes.com/2026/01/19/world/europe/prince-harry-trial-daily-mail-associated-newspapers-uk.html
-
-**As Davos Convenes, Deference to Trump Has Replaced Everything**\
-`The traditional rhetoric of the World Economic Forum centered on global integration, climate change and international cooperation. Not anymore.`\
-https://nytimes.com/2026/01/19/business/davos-president-trump.html
-
-**Why Are New Zealanders Moving to Australia? More Money, Better Vibes.**\
-`More than 1 percent of New Zealand’s population left over the year ending in October. Many of the migrants were chasing salaries and opportunities in neighboring Australia.`\
-https://nytimes.com/2026/01/19/world/asia/new-zealand-australia-moving-relocation.html
-
-**Can Vietnam’s Communist Party Supercharge Its Economy With Private Enterprise?**\
-`One of Asia’s most dynamic nations is weighing how to balance government control with raising per capita G.D.P. by about 70 percent in five years.`\
-https://nytimes.com/2026/01/19/world/asia/vietnam-communist-party-congress-economy.html
 

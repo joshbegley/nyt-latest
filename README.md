@@ -1,3 +1,23 @@
+**The sufferings of Emiliano Martinez (and how they are hurting Aston Villa)**\
+`The Argentina international's erratic form this season is not helping his club's push for the top four`\
+https://nytimes.com/athletic/6970380/2026/01/19/emiliano-martinez-aston-villa-form/
+
+**Callum Wilson was leaving West Ham... until he wasn't**\
+`January has been quite the month for Callum Wilson – his goal against Spurs proves he has a lot to offer West Ham's survival fight`\
+https://nytimes.com/athletic/6978751/2026/01/19/callum-wilson-west-ham-nuno-tottenham/
+
+**Nottingham Forest have become one-dimensional: Too many crosses, not enough goals**\
+`Forest have a squad packed with talent but have played their way into a relegation battle. Why are they struggling to score goals?`\
+https://nytimes.com/athletic/6979606/2026/01/19/sean-dyche-nottingham-forest-crosses-one-dimensional/
+
+**Darlow has settled Leeds' goalkeeper debate - for now**\
+`Daniel Farke's decision to opt for experience in goal paid off against Fulham but long-term questions remain`\
+https://nytimes.com/athletic/6979327/2026/01/19/leeds-united-karl-darlow-goalkeeper/
+
+**Carlos Baleba is 'ready to play' for Brighton. But will he start vs Bournemouth?**\
+`Hurzeler now has eight central midfielders in the squad for two positions. The conundrum is how Baleba fits into this congested picture`\
+https://nytimes.com/athletic/6973507/2026/01/19/baleba-afcon-brighton/
+
 **Everton needed to change the mood. Now opportunity beckons in a strange Premier League season**\
 `Remarkably, Sunday’s win leaves Everton three points off fifth and four off fourth. It’s been the most bizarre and unpredictable campaign
 `\
@@ -18,24 +38,4 @@ https://nytimes.com/athletic/6980606/2026/01/19/oliver-glasner-sack-fans-angry-m
 **The Anfield experience in 2026: The good, the bad and the queues**\
 `Liverpool's home ground is one of the world's great arenas but not everyone is satisfied at the matchday experience`\
 https://nytimes.com/athletic/6980404/2026/01/19/anfield-liverpool-fans-experience/
-
-**How Manchester United's attacking rotations left Manchester City in a spin**\
-`Michael Carrick and his staff had the right attacking ideas on Saturday — and it was the players' execution that brought it to life`\
-https://nytimes.com/athletic/6980337/2026/01/19/manchester-united-attacking-rotation-manchester-city-analysis/
-
-**Cup exit, ‘fake news’ and Dembele magic: Are PSG wobbling or just getting going?**\
-`The European champions are yet to scale the heights of last season's quadruple win, but there are signs they may be about to click into gear`\
-https://nytimes.com/athletic/6980442/2026/01/19/psg-ligue-1-champions-league-luis-enrique/
-
-**No Corrections: Jan. 19, 2026**\
-`No corrections appeared in print on Monday, Jan. 19, 2026.`\
-https://nytimes.com/2026/01/19/corrections/no-corrections-jan-19-2026.html
-
-**Quote of the Day: Chim Chim Cher-ee! Sweeps Stage a Comeback in London.**\
-`Quotation of the Day for Monday, January 19, 2026.`\
-https://nytimes.com/2026/01/19/pageoneplus/quote-of-the-day-chim-chim-cher-ee-sweeps-stage-a-comeback-in-london.html
-
-**What to Know About Prince Harry’s Case Against Daily Mail Publisher**\
-`A trial is set to begin on Monday in Harry’s case accusing Associated Newspapers of phone hacking and other unlawful activities. Other claimants include Elton John and Liz Hurley.`\
-https://nytimes.com/2026/01/19/world/europe/prince-harry-trial-daily-mail-associated-newspapers-uk.html
 
