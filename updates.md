@@ -1,3 +1,11 @@
+**Thunder's Jalen Williams out vs. Cavaliers with hamstring injury, return TBD**\
+`Williams suffered his injury during the second quarter of the Thunder’s loss Saturday in Miami as he drove to the basket.`\
+https://nytimes.com/athletic/6981889/2026/01/18/jalen-williams-okc-injury-update-right-hamstring/
+
+**Red Wings pass important test in win over Senators: 5 thoughts**\
+`The Red Wings won their second straight game over the Senators, a team that has given them trouble in recent seasons. `\
+https://nytimes.com/athletic/6981823/2026/01/18/red-wings-senators-copp-van-riemsdyk-kasper/
+
 **Patriots Outlast Texans to Advance to A.F.C. Title Game**\
 `New England’s defense forced five turnovers and scored a defensive touchdown on a second-quarter pick six.`\
 https://nytimes.com/video/the-athletic/100000010653552/patriots-outlast-texans-to-advance-to-afc-title-game.html
