@@ -1,3 +1,7 @@
+**Blues assistant Steve Ott takes over AHL Springfield: What it means for the PP — and Ott's future**\
+`Blues coach Jim Montgomery said the move could help Ott's development into an NHL head coach: "I know he's going to do a great job."`\
+https://nytimes.com/athletic/6983012/2026/01/19/steve-ott-blues-ahl-springfield-coach/
+
 **NHL trade grades: Sharks get Kiefer Sherwood from Canucks without giving up a first-rounder**\
 `Kiefer Sherwood isn't a perfect fit for the Sharks but they had the draft capital and got him for a reasonable price.`\
 https://nytimes.com/athletic/6983594/2026/01/19/nhl-trade-grades-sharks-canucks-kiefer-sherwood/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6983594/2026/01/19/nhl-trade-grades-sharks-canucks-
 `This is the fifth time there have been 10 head-coaching changes in a single offseason and first time it's happened since 2022.`\
 https://nytimes.com/athletic/6983364/2026/01/19/coaching-changes-nfl-record/
 
-**Pau Gasol could have large role as vision for NBA Europe takes shape**\
+**Pau Gasol, Saudi-backed firm among key players in Adam Silver's NBA European venture**\
 `International sources said Gasol is under consideration for a prominent role, but what the role will be is still unclear.`\
 https://nytimes.com/athletic/6983328/2026/01/19/nba-europe-pau-gasol-investors/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983392/2026/01/19/49ers-robert-saleh-playoffs-loss
 **Protest at Minnesota Church Service Adds to Tensions Over ICE Tactics**\
 `The Justice Department said it would investigate the protest over a pastor’s apparent role in immigration enforcement in the state.`\
 https://nytimes.com/2026/01/19/us/politics/minnesota-church-protest-ice.html
-
-**Rams had a spicy secret weapon for Chicago's freezing temperatures**\
-`Sunday wasn't the first time that Poona Ford has used cayenne pepper in his socks.`\
-https://nytimes.com/athletic/6983447/2026/01/19/rams-cayenne-pepper-in-socks/
 

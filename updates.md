@@ -1,3 +1,11 @@
+**Blues assistant Steve Ott takes over AHL Springfield: What it means for the PP — and Ott's future**\
+`Blues coach Jim Montgomery said the move could help Ott's development into an NHL head coach: "I know he's going to do a great job."`\
+https://nytimes.com/athletic/6983012/2026/01/19/steve-ott-blues-ahl-springfield-coach/
+
+**Pau Gasol, Saudi-backed firm among key players in Adam Silver's NBA European venture**\
+`International sources said Gasol is under consideration for a prominent role, but what the role will be is still unclear.`\
+https://nytimes.com/athletic/6983328/2026/01/19/nba-europe-pau-gasol-investors/
+
 **NHL trade grades: Sharks get Kiefer Sherwood from Canucks without giving up a first-rounder**\
 `Kiefer Sherwood isn't a perfect fit for the Sharks but they had the draft capital and got him for a reasonable price.`\
 https://nytimes.com/athletic/6983594/2026/01/19/nhl-trade-grades-sharks-canucks-kiefer-sherwood/
