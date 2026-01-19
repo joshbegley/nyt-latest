@@ -1,3 +1,7 @@
+**Frank says he feels 'trust' of Spurs leadership, confident of winning fans back**\
+`Frank said that he had lunch with CEO Vinai Venkatesham, sporting director Johan Lange and the Lewis family's Nick Beucher on Monday.`\
+https://nytimes.com/athletic/6983126/2026/01/19/thomas-frank-tottenham-future-latest/
+
 **Why a 1930s Bag Has Never Gone Out of Style**\
 `New iterations of a classic accessory, designed to be on the move.`\
 https://nytimes.com/2026/01/19/t-magazine/top-handle-bags.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983262/2026/01/19/mavericks-vs-knicks-stream-how-t
 **Morocco's Brahim apologises for AFCON final penalty miss: 'My soul hurts'**\
 `Brahim says he takes “full responsibility” for the miss in the latter stages of Morocco's 1-0 loss to Senegal.`\
 https://nytimes.com/athletic/6983138/2026/01/19/afcon-final-diaz-statement-morocco-senegal/
-
-**The Windup: Wild stat on Dodgers' multi-year spending spree**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6983224/2026/01/19/dodgers-spending-kyle-tucker-the-windup/
 

@@ -1,3 +1,7 @@
+**Frank says he feels 'trust' of Spurs leadership, confident of winning fans back**\
+`Frank said that he had lunch with CEO Vinai Venkatesham, sporting director Johan Lange and the Lewis family's Nick Beucher on Monday.`\
+https://nytimes.com/athletic/6983126/2026/01/19/thomas-frank-tottenham-future-latest/
+
 **Why a 1930s Bag Has Never Gone Out of Style**\
 `New iterations of a classic accessory, designed to be on the move.`\
 https://nytimes.com/2026/01/19/t-magazine/top-handle-bags.html

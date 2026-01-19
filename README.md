@@ -1,3 +1,7 @@
+**Matthew Tkachuk returns from injury, set to make season debut against San Jose**\
+`Tkachuk will represent the Americans in February at the Olympics.`\
+https://nytimes.com/athletic/6983143/2026/01/19/matthew-tkachuk-panthers-return-injury/
+
 **Frank says he feels 'trust' of Spurs leadership, confident of winning fans back**\
 `Frank said that he had lunch with CEO Vinai Venkatesham, sporting director Johan Lange and the Lewis family's Nick Beucher on Monday.`\
 https://nytimes.com/athletic/6983126/2026/01/19/thomas-frank-tottenham-future-latest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983266/2026/01/19/jazz-vs-spurs-stream-how-to-watc
 **How to watch Mavericks vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6983262/2026/01/19/mavericks-vs-knicks-stream-how-to-watch-jan-19/
-
-**Morocco's Brahim apologises for AFCON final penalty miss: 'My soul hurts'**\
-`Brahim says he takes “full responsibility” for the miss in the latter stages of Morocco's 1-0 loss to Senegal.`\
-https://nytimes.com/athletic/6983138/2026/01/19/afcon-final-diaz-statement-morocco-senegal/
 
