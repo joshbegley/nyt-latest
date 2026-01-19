@@ -1,3 +1,11 @@
+**Yankees hold firm with offer, but has Cody Bellinger's market changed?**\
+`The Yankees would be willing to include opt-outs after Year 2 and Year 3 of a five-year deal worth as much as $160 million, per a source.`\
+https://nytimes.com/athletic/6981548/2026/01/18/yankees-cody-bellinger-offer-opt-outs/
+
+**Josh Shapiro Writes That Harris Team Asked if He Had Ever Been an Israeli Agent**\
+`In his new memoir, the Pennsylvania governor suggests that when Kamala Harris’s team vetted him to be her running mate, aides focused on Israel to an extent he found offensive.`\
+https://nytimes.com/2026/01/18/us/politics/josh-shapiro-memoir-kamala-harris.html
+
 **Arsenal top Deloitte rankings for first time as two clubs pass £20m revenue mark**\
 `Revenues in women’s football are plainly growing - generating more money from viewership, in person and on the sofa, is now a target`\
 https://nytimes.com/athletic/6977022/2026/01/18/arsenal-chelsea-deloitte-finances-womens-game/
