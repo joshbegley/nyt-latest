@@ -1,3 +1,7 @@
+**NHL trade grades: Sharks get Kiefer Sherwood from Canucks without giving up a first-rounder**\
+`Kiefer Sherwood isn't a perfect fit for the Sharks but they had the draft capital and got him for a reasonable price.`\
+https://nytimes.com/athletic/6983594/2026/01/19/nhl-trade-grades-sharks-canucks-kiefer-sherwood/
+
 **NFL will have a record-tying 10 head-coaching changes. Who's out and who's in?**\
 `This is the fifth time there have been 10 head-coaching changes in a single offseason and first time it's happened since 2022.`\
 https://nytimes.com/athletic/6983364/2026/01/19/coaching-changes-nfl-record/
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6983596/2026/01/19/nba-all-star-2026-starter-roster
 https://nytimes.com/2026/01/19/world/europe/france-budget-no-confidence-vote.html
 
 **49ers defenders hope Robert Saleh returns, vow to learn from loss to Seahawks**\
-`Deommodore Lenoir and the 49ers' defense didn't have a great finish to the season, and they might have a new boss before too long.`\
+`Deommodore Lenoir and the 49ers' defense didn't have a great finish to the season, and they might have a new coordinator before too long.`\
 https://nytimes.com/athletic/6983392/2026/01/19/49ers-robert-saleh-playoffs-loss-defense/
 
 **Protest at Minnesota Church Service Adds to Tensions Over ICE Tactics**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/19/us/politics/minnesota-church-protest-ice.html
 **Rams had a spicy secret weapon for Chicago's freezing temperatures**\
 `Sunday wasn't the first time that Poona Ford has used cayenne pepper in his socks.`\
 https://nytimes.com/athletic/6983447/2026/01/19/rams-cayenne-pepper-in-socks/
-
-**AP men's hoops Top 25: Arizona unanimous No. 1, unbeaten Miami (Ohio) cracks poll**\
-`UConn, Michigan, Purdue and Duke follow Arizona in the top five of this week's AP poll.`\
-https://nytimes.com/athletic/6983474/2026/01/19/ap-top-25-mens-college-basketball-arizona-uconn-miami-ohio/
 
