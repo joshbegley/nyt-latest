@@ -1,3 +1,11 @@
+**Protest at Minnesota Church Service Adds to Tensions Over ICE Tactics**\
+`The Justice Department said it would investigate the protest over a pastor’s apparent role in immigration enforcement in the state.`\
+https://nytimes.com/2026/01/19/us/politics/minnesota-church-protest-ice.html
+
+**Powell Will Attend Supreme Court Arguments on Trump’s Effort to Fire Fed Official**\
+`A lawsuit by the Fed governor Lisa D. Cook has challenged President Trump’s push to fire her.`\
+https://nytimes.com/2026/01/19/us/politics/powell-will-attend-the-supreme-court-arguments-on-trumps-effort-to-remove-a-fed-governor.html
+
 **In win over Bears, Rams used cayenne pepper in socks to stay warm**\
 `Sunday wasn't the first time that Poona Ford has used cayenne pepper in his socks.`\
 https://nytimes.com/athletic/6983447/2026/01/19/rams-cayenne-pepper-in-socks/

@@ -2,7 +2,7 @@
 `The Justice Department said it would investigate the protest over a pastor’s apparent role in immigration enforcement in the state.`\
 https://nytimes.com/2026/01/19/us/politics/minnesota-church-protest-ice.html
 
-**In win over Bears, Rams used cayenne pepper in socks to stay warm**\
+**Rams had a spicy secret weapon for Chicago's freezing temperatures**\
 `Sunday wasn't the first time that Poona Ford has used cayenne pepper in his socks.`\
 https://nytimes.com/athletic/6983447/2026/01/19/rams-cayenne-pepper-in-socks/
 
