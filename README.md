@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: U.K. Leader Pushes Back Against Greenland Tariff Threat**\
+``\
+https://nytimes.com/live/2026/01/19/us/trump-news
+
 **Lowetide: Stan Bowman's 5 best and worst moves in his first 18 months with Oilers**\
 `The big moves made by Edmonton under Bowman often involve big money, big assets and some manner of no-movement clause.`\
 https://nytimes.com/athletic/6979701/2026/01/19/edmonton-oilers-trades-signings-stan-bowman-best-worst/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6982211/2026/01/19/rams-divisional-round-playoff-wi
 **Where might Artemi Panarin accept a trade? 10 potential destinations**\
 `Where might the Rangers find a good fit between trade return and Panarin's no-trade clause?`\
 https://nytimes.com/athletic/6981663/2026/01/19/rangers-panarin-potential-trade-destinations/
-
-**Pistons trash-talking their way to the top with new Dawg Pound mentality**\
-`Whether is basketball, volleyball or even barefoot soccer, the Detroit Pistons are running with the big dogs. `\
-https://nytimes.com/athletic/6977056/2026/01/19/nba-pistons-dawg-pound-jalen-duren-isaiah-stewart/
 
