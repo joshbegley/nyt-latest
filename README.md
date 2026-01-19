@@ -1,3 +1,7 @@
+**Denied Peace Prize, Trump Tells Norway He’ll Push for Greenland**\
+`In a text message, President Trump told Norway’s prime minister he no longer felt obliged to “think purely of Peace” and that the world would not be secure until America controlled the island.`\
+https://nytimes.com/2026/01/19/world/europe/trump-norway-greenland-nobel.html
+
 **Trump Administration Live Updates: U.K. Leader Pushes Back Against Greenland Tariff Threat**\
 ``\
 https://nytimes.com/live/2026/01/19/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6979233/2026/01/19/michigan-football-roster-2026-tr
 **The Rams keep finding ways to win in these playoffs, even when not at their best**\
 `Matthew Stafford didn't have his best game vs. the Bears, but the Rams' defense and special teams stepped up to help propel them to victory.`\
 https://nytimes.com/athletic/6982211/2026/01/19/rams-divisional-round-playoff-win-bears/
-
-**Where might Artemi Panarin accept a trade? 10 potential destinations**\
-`Where might the Rangers find a good fit between trade return and Panarin's no-trade clause?`\
-https://nytimes.com/athletic/6981663/2026/01/19/rangers-panarin-potential-trade-destinations/
 
