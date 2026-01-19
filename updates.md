@@ -1,3 +1,7 @@
+**Stan Wawrinka's last Australian Open, with his heart on his sleeve – and his shorts on his shirt**\
+`Wawrinka, 40, became the second-oldest man to win a match at Melbourne Park after beating Laslo Djere of Serbia Monday.`\
+https://nytimes.com/athletic/6982393/2026/01/19/tennis-australian-open-stan-wawrinka/
+
 **'I’m Jurgen Klopp, but I had no clue what that meant'**\
 `Interview: The former Liverpool manager discusses his new life at Red Bull — and why he is no managerial 'gravedigger'`\
 https://nytimes.com/athletic/6980414/2026/01/19/jurgen-klopp-red-bull-interview/

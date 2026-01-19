@@ -1,3 +1,7 @@
+**Stan Wawrinka's last Australian Open, with his heart on his sleeve – and his shorts on his shirt**\
+`Wawrinka, 40, became the second-oldest man to win a match at Melbourne Park after beating Laslo Djere of Serbia Monday.`\
+https://nytimes.com/athletic/6982393/2026/01/19/tennis-australian-open-stan-wawrinka/
+
 **'I’m Jurgen Klopp, but I had no clue what that meant'**\
 `Interview: The former Liverpool manager discusses his new life at Red Bull — and why he is no managerial 'gravedigger'`\
 https://nytimes.com/athletic/6980414/2026/01/19/jurgen-klopp-red-bull-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6980686/2026/01/19/3-things-anyone-can-learn-from-i
 **Why does Fernando Mendoza talk like that? Earnest, articulate and '100 percent him'**\
 `In a world where athletes are trained to say as little as possible for fear of going viral in a bad way, Mendoza seems to always deliver.`\
 https://nytimes.com/athletic/6980666/2026/01/19/fernando-mendoza-indiana-postgame-interview-speech/
-
-**Indiana vs. Miami predictions: The Athletic's experts and readers pick the CFP championship**\
-`The consensus is clear no matter who you ask in our College Football Playoff national title predictions. So will Indiana or Miami win?`\
-https://nytimes.com/athletic/6980910/2026/01/19/indiana-miami-predictions-cfp-national-championship/
 
