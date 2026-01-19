@@ -1,3 +1,7 @@
+**Federal Reserve Inquiry Clouds Trump’s Supreme Court Bid to Oust Lisa Cook**\
+`The court is set to hear Ms. Cook’s case challenging her firing as the Justice Department investigates Jerome H. Powell, the central bank chair.`\
+https://nytimes.com/2026/01/19/us/politics/supreme-court-federal-reserve-cook-powell.html
+
 **A labor union raised concerns last year about Spain’s railway lines.**\
 `By Jason Horowitz`\
 https://nytimes.com/live/2026/01/18/world/spain-high-speed-train-derailment/a-labor-union-raised-concerns-last-year-about-spains-railway-lines
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983103/2026/01/19/super-bowl-2026-mvp-updated-odds
 **Train Crash in Southern Spain Kills Dozens**\
 `A train crash in southern Spain involving two trains killed dozens on Sunday. The cause of the crash, the deadliest in Spain since 2013, was still being investigated on Monday.`\
 https://nytimes.com/video/world/europe/100000010654252/train-crash-in-southern-spain-kills-dozens.html
-
-**Matthew Tkachuk set to make season debut against San Jose**\
-`Tkachuk will represent the Americans in February at the Olympics.`\
-https://nytimes.com/athletic/6983143/2026/01/19/matthew-tkachuk-panthers-return-injury/
 
