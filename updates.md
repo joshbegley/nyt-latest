@@ -1,3 +1,11 @@
+**U.S. Money Makers**\
+`We take a look at President Trump’s impact on government spending.`\
+https://nytimes.com/2026/01/19/briefing/us-money-makers.html
+
+**Inside Barcelona: Refereeing anger and what's the latest with Dro and Bernal?**\
+`Barca's lead at the top of La Liga was cut down this weekend, while there were developments with two La Masia starlets`\
+https://nytimes.com/athletic/6982528/2026/01/19/inside-barcelona-real-sociedad-referees-bernal/
+
 **TAFC: AFCON: The most chaotic major final ever? Plus: More manager strife for Frank and Glasner**\
 `Today in TAFC: Walk-offs, fluffed penalty and violence in the AFCON final. Plus: Frank and Glasner on the edge.`\
 https://nytimes.com/athletic/6982454/2026/01/19/afcon-senegal-walk-off-glasner-frank/

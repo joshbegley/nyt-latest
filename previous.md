@@ -1,3 +1,11 @@
+**U.S. Money Makers**\
+`We take a look at President Trump’s impact on government spending.`\
+https://nytimes.com/2026/01/19/briefing/us-money-makers.html
+
+**Inside Barcelona: Refereeing anger and what's the latest with Dro and Bernal?**\
+`Barca's lead at the top of La Liga was cut down this weekend, while there were developments with two La Masia starlets`\
+https://nytimes.com/athletic/6982528/2026/01/19/inside-barcelona-real-sociedad-referees-bernal/
+
 **TAFC: AFCON: The most chaotic major final ever? Plus: More manager strife for Frank and Glasner**\
 `Today in TAFC: Walk-offs, fluffed penalty and violence in the AFCON final. Plus: Frank and Glasner on the edge.`\
 https://nytimes.com/athletic/6982454/2026/01/19/afcon-senegal-walk-off-glasner-frank/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6982296/2026/01/19/bears-caleb-williams-rams-playof
 **How will Holloway's injury-shortened season affect his next Blues contract?**\
 `The forward, who missed 15 games with a high-ankle sprain, returned to the lineup Sunday in the Blues' 5-0 loss to the Oilers.`\
 https://nytimes.com/athletic/6977248/2026/01/19/blues-dylan-holloway-injuries-contract/
-
-**Japan’s Leader Calls for Snap Election in Bid to Expand Power**\
-`Sanae Takaichi, the first woman to be Japan’s prime minister, is hoping to seize on her popularity by calling a parliamentary election next month.`\
-https://nytimes.com/2026/01/19/world/asia/japan-takaichi-early-election.html
-
-**Jack Harrison joins Fiorentina on loan from Leeds**\
-`The winger has only started once in the Premier League this season.`\
-https://nytimes.com/athletic/6982520/2026/01/19/jack-harrison-fiorentina-leeds-loan/
 
