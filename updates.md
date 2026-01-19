@@ -1,3 +1,15 @@
+**Miami or Indiana? This quiz will tell you who to root for to win (or lose) it all **\
+`Do you have a soft spot in your heart for a team that historically cheats? What about one that stinks?`\
+https://nytimes.com/athletic/6980962/2026/01/19/indiana-miami-championship-game-quiz/
+
+**Inside Real Madrid: Boos at the Bernabeu, but suddenly there's a title race**\
+`After a dramatic week, which saw the sacking of Xabi Alonso and disastrous defeat in the Copa del Rey, tensions remain high at the Bernabeu`\
+https://nytimes.com/athletic/6982471/2026/01/19/real-madrid-vinicius-jr-bellingham-arbeloa-perez/
+
+**The Pulse: The NFL's final four is set**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6981932/2026/01/19/bears-rams-patriots-texans-the-pulse/
+
 **MMLR: Will William Nylander have to miss the Olympics?**\
 `The 29-year-old, who continues to lead the Leafs in scoring despite missing 11 games this season, didn’t play in Winnipeg over the weekend.`\
 https://nytimes.com/athletic/6980928/2026/01/19/maple-leafs-william-nylander-injury-olympics-nhl/

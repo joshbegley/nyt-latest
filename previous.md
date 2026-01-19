@@ -1,3 +1,15 @@
+**Miami or Indiana? This quiz will tell you who to root for to win (or lose) it all **\
+`Do you have a soft spot in your heart for a team that historically cheats? What about one that stinks?`\
+https://nytimes.com/athletic/6980962/2026/01/19/indiana-miami-championship-game-quiz/
+
+**Inside Real Madrid: Boos at the Bernabeu, but suddenly there's a title race**\
+`After a dramatic week, which saw the sacking of Xabi Alonso and disastrous defeat in the Copa del Rey, tensions remain high at the Bernabeu`\
+https://nytimes.com/athletic/6982471/2026/01/19/real-madrid-vinicius-jr-bellingham-arbeloa-perez/
+
+**The Pulse: The NFL's final four is set**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6981932/2026/01/19/bears-rams-patriots-texans-the-pulse/
+
 **MMLR: Will William Nylander have to miss the Olympics?**\
 `The 29-year-old, who continues to lead the Leafs in scoring despite missing 11 games this season, didn’t play in Winnipeg over the weekend.`\
 https://nytimes.com/athletic/6980928/2026/01/19/maple-leafs-william-nylander-injury-olympics-nhl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6981807/2026/01/19/mens-college-basketball-top-25-a
 **Two QBs produced NFL playoff magic — but the old guy had the last word**\
 `Caleb Williams did the unfathomable for the Chicago Bears. Somehow, Matthew Stafford and the Rams found a way to answer.`\
 https://nytimes.com/athletic/6982455/2026/01/19/matthew-stafford-caleb-williams-rams-bears-playoffs/
-
-**Seahawks, Rams will complete trilogy with Super Bowl berth at stake**\
-`The NFC's two best teams split two thrilling regular-season games and there are crucial matchups to watch in the championship game.`\
-https://nytimes.com/athletic/6982147/2026/01/19/seahawks-rams-trilogy-nfc-championship/
-
-**Blue Jackets Monday Gathering: New hire Rick Bowness exudes a contagious confidence**\
-`Columbus' coaching change seems reminiscent of the one it made in the 2006-07 season.`\
-https://nytimes.com/athletic/6979123/2026/01/19/blue-jackets-monday-gathering-new-hire-rick-bowness-exudes-a-contagious-confidence/
-
-**With braces off for this Olympics, Juraj Slafkovský ready to feast on the experience again**\
-`Slafkovský's last trip to the Olympics vaulted him to the No. 1 pick in the NHL Draft. What heights might the upcoming Olympics bring?`\
-https://nytimes.com/athletic/6982267/2026/01/19/juraj-slafkovsky-canadiens-olympics-boost/
 
