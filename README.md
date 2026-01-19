@@ -1,3 +1,11 @@
+**‘Like an Earthquake’: How 40 People Died in a Spanish Train Crash**\
+`The victims of Spain’s deadliest rail crash in more than a decade included a police officer, journalists and a family returning from a musical.`\
+https://nytimes.com/2026/01/19/world/europe/spain-crash-scene-40-train-track.html
+
+**Broncos open J.K. Dobbins' return window, RB could play in AFC title game**\
+`Denver could have its leading rusher back for a chance to go to the Super Bowl against the Patriots on Sunday.`\
+https://nytimes.com/athletic/6983775/2026/01/19/broncos-jk-dobbins-injury-afc-championship-game/
+
 **Lions hiring Cardinals' Drew Petzing as next offensive coordinator: Source**\
 `Petzing spent the past three seasons in Arizona and the 38-year-old has held roles in the NFL since 2013.`\
 https://nytimes.com/athletic/6983697/2026/01/19/detroit-lions-hire-drew-petzing-offensive-coordinator/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6983821/2026/01/19/celtics-vs-pistons-stream-how-to
 **How to watch Flyers vs. Golden Knights: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Vegas Golden Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6983814/2026/01/19/flyers-vs-golden-knights-stream-how-to-watch-jan-19/
-
-**How to watch Devils vs. Flames: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6983812/2026/01/19/devils-vs-flames-stream-how-to-watch-jan-19/
-
-**How to watch Jets vs. Blackhawks: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the Chicago Blackhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6983808/2026/01/19/jets-vs-blackhawks-stream-how-to-watch-jan-19/
 
