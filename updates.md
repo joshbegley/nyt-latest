@@ -1,3 +1,19 @@
+**'I’m Jurgen Klopp, but I had no clue what that meant'**\
+`Interview: The former Liverpool manager discusses his new life at Red Bull — and why he is no managerial 'gravedigger'`\
+https://nytimes.com/athletic/6980414/2026/01/19/jurgen-klopp-red-bull-interview/
+
+**In a State Notorious for Scandal, Corruption Fighters Are Targeted**\
+`An anonymous negative ad campaign has been aimed at New Jersey’s departing attorney general. “It’s a warning to others,” one political scientist said.`\
+https://nytimes.com/2026/01/19/nyregion/new-jersey-corruption-andy-kim-matt-platkin.html
+
+**Could Mamdani’s Child Care Plan Encourage a Baby Boomlet in New York?**\
+`Some New Yorkers hope that raising a child in the city could become more affordable thanks to Mayor Zohran Mamdani’s plans for free child care and preschool.`\
+https://nytimes.com/2026/01/19/nyregion/mamdani-free-child-care-plan-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/19/crosswords/spelling-bee-forum.html
+
 **Five Knicks trade ideas — and why they would or wouldn't work**\
 `Evaluating and analyzing Knicks trade proposals sent by fans. `\
 https://nytimes.com/athletic/6965271/2026/01/19/knicks-rumors-trade-deadline/

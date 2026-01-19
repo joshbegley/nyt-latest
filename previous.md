@@ -1,3 +1,19 @@
+**'I’m Jurgen Klopp, but I had no clue what that meant'**\
+`Interview: The former Liverpool manager discusses his new life at Red Bull — and why he is no managerial 'gravedigger'`\
+https://nytimes.com/athletic/6980414/2026/01/19/jurgen-klopp-red-bull-interview/
+
+**In a State Notorious for Scandal, Corruption Fighters Are Targeted**\
+`An anonymous negative ad campaign has been aimed at New Jersey’s departing attorney general. “It’s a warning to others,” one political scientist said.`\
+https://nytimes.com/2026/01/19/nyregion/new-jersey-corruption-andy-kim-matt-platkin.html
+
+**Could Mamdani’s Child Care Plan Encourage a Baby Boomlet in New York?**\
+`Some New Yorkers hope that raising a child in the city could become more affordable thanks to Mayor Zohran Mamdani’s plans for free child care and preschool.`\
+https://nytimes.com/2026/01/19/nyregion/mamdani-free-child-care-plan-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/19/crosswords/spelling-bee-forum.html
+
 **Five Knicks trade ideas — and why they would or wouldn't work**\
 `Evaluating and analyzing Knicks trade proposals sent by fans. `\
 https://nytimes.com/athletic/6965271/2026/01/19/knicks-rumors-trade-deadline/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6980666/2026/01/19/fernando-mendoza-indiana-postgam
 **Indiana vs. Miami predictions: The Athletic's experts and readers pick the CFP championship**\
 `The consensus is clear no matter who you ask in our College Football Playoff national title predictions. So will Indiana or Miami win?`\
 https://nytimes.com/athletic/6980910/2026/01/19/indiana-miami-predictions-cfp-national-championship/
-
-**I’m the Secretary General of the Council of Europe. This Is Something I Thought I’d Never Have to Write.**\
-`International law is either universal or meaningless. Greenland will show which one we choose.`\
-https://nytimes.com/2026/01/19/opinion/greenland-trump-europe.html
-
-**The New York Times in Print for Monday, Jan. 19, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/01/19/todays-new-york-times
-
-**Trump is Obsessed With Oil. But Chinese Batteries Will Soon Run the World.**\
-`China isn’t just building gigantic amounts of power. Its businesses are reshaping technological foundations to electrify the world.`\
-https://nytimes.com/2026/01/19/opinion/trump-energy-china-future.html
-
-**‘Finding Her Edge,’ Plus 8 Things to Watch on TV This Week**\
-`Another ice-skating romance premieres, and a reboot of “Star Search” comes to Netflix.`\
-https://nytimes.com/2026/01/19/arts/television/finding-her-edge-things-to-watch-on-tv-this-week.html
 
