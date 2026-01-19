@@ -1,3 +1,15 @@
+**Train Crash in Southern Spain Kills Dozens**\
+`A train crash in southern Spain involving two trains killed dozens on Sunday. The cause of the crash, the deadliest in Spain since 2013, was still being investigated on Monday.`\
+https://nytimes.com/video/world/europe/100000010654252/train-crash-in-southern-spain-kills-dozens.html
+
+**Matthew Tkachuk set to make season debut against San Jose**\
+`Tkachuk will represent the Americans in February at the Olympics.`\
+https://nytimes.com/athletic/6983143/2026/01/19/matthew-tkachuk-panthers-return-injury/
+
+**Exactly what role will Marc Guehi take up at Man City, and how might he look to improve?**\
+`Guehi boasts the attributes required to thrive in a Pep Guardiola team - this deal is as safe a bet as they come`\
+https://nytimes.com/athletic/6977560/2026/01/19/marc-guehi-manchester-city-fit-analysis/
+
 **Frank says he feels 'trust' of Spurs leadership, confident of winning fans back**\
 `Frank said that he had lunch with CEO Vinai Venkatesham, sporting director Johan Lange and the Lewis family's Nick Beucher on Monday.`\
 https://nytimes.com/athletic/6983126/2026/01/19/thomas-frank-tottenham-future-latest/
