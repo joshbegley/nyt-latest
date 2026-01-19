@@ -1,3 +1,7 @@
+**Heroics, mistakes and, for Caleb Williams, a crushing ending to a remarkable Bears season**\
+`Against the Rams, Williams provided flashes of his major talent as well as reminders of how young and unpolished he remains.`\
+https://nytimes.com/athletic/6982296/2026/01/19/bears-caleb-williams-rams-playoffs/
+
 **How will Holloway's injury-shortened season affect his next Blues contract?**\
 `The forward, who missed 15 games with a high-ankle sprain, returned to the lineup Sunday in the Blues' 5-0 loss to the Oilers.`\
 https://nytimes.com/athletic/6977248/2026/01/19/blues-dylan-holloway-injuries-contract/
