@@ -1,3 +1,7 @@
+**What We Know About the Deadly High-Speed Train Crash in Spain**\
+`The collision, caused by the derailment of one of the trains, was the deadliest in Spain since at least 2013.`\
+https://nytimes.com/2026/01/18/world/europe/what-we-know-spain-train-crash.html
+
 **Green Day to do Super Bowl LX pregame performance: 'Right in our backyard!'**\
 `Green Day will perform before Super Bowl LX at Levi's Stadium in Santa Clara, Calif., not too far from Berkeley, where it formed in 1986.`\
 https://nytimes.com/athletic/6981842/2026/01/18/green-day-super-bowl-lx-opening-ceremony/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6981914/2026/01/18/drake-maye-patriots-texans-playo
 **Patriots' next challenge: Focus on No. 1 seed (Broncos), not No. 2 quarterback (Stidham)**\
 `Vrabel can't order players to tune out the talk shows and social media. But he can find the next team-building exercise to keep them hungry.`\
 https://nytimes.com/athletic/6981910/2026/01/18/patriots-texans-afc-championship-broncos/
-
-**Knuckleballer Wilbur Wood, a tireless titan of the 1970s, dies at 84**\
-`In 1972, Wood worked 376 ⅔ innings, the most by any pitcher since Grover Cleveland Alexander in 1917.`\
-https://nytimes.com/athletic/6982047/2026/01/18/wilbur-wood-knuckleball-white-sox-death/
 
