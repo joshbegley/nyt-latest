@@ -1,3 +1,23 @@
+**Lowetide: Stan Bowman's 5 best and worst moves in his first 18 months with Oilers**\
+`The big moves made by Edmonton under Bowman often involve big money, big assets and some manner of no-movement clause.`\
+https://nytimes.com/athletic/6979701/2026/01/19/edmonton-oilers-trades-signings-stan-bowman-best-worst/
+
+**Where Nebraska stands after the transfer portal window**\
+`Can this winter's influx of players and staff help Matt Rhule steer the Huskers back onto an upward trajectory?`\
+https://nytimes.com/athletic/6981139/2026/01/19/nebraska-transfer-portal-signings-matt-rhule/
+
+**Haas is no longer F1’s only American team. But that offers new freedoms with Toyota**\
+`As Haas launches its 2026 F1 car, the team is facing a new future as a new American team joins the grid`\
+https://nytimes.com/athletic/6977173/2026/01/19/haas-2026-f1-car-launch/
+
+**Explore a century of Times’s reporting from Antarctica**\
+`(No description)`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/reporting-from-antarctica-pointer
+
+**Australian Open Day 2 recap: Alex Eala, tennis fandom and the wisdom of crowds**\
+`The Filipino star is creating questions over the balance between ranking and popularity when it comes to court assignments.`\
+https://nytimes.com/athletic/6981656/2026/01/19/tennis-australian-open-recap-results-alex-eala-crowd/
+
 **FPL Gameweek 22 review: Man Utd’s winners, Chelsea triple-up, and Saka uncertainty**\
 `Another round of fresh dilemmas hit FPL managers — what looked like a fairly routine set of fixtures instead produced turning points`\
 https://nytimes.com/athletic/6981337/2026/01/19/fantasy-premier-league-fpl-gameweek-22-review/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6981663/2026/01/19/rangers-panarin-potential-trade-
 **Pistons trash-talking their way to the top with new Dawg Pound mentality**\
 `Whether is basketball, volleyball or even barefoot soccer, the Detroit Pistons are running with the big dogs. `\
 https://nytimes.com/athletic/6977056/2026/01/19/nba-pistons-dawg-pound-jalen-duren-isaiah-stewart/
-
-**NBA MLK Day watch guide: Thunder-Cavs, Celtics-Pistons headline holiday lineup**\
-`As is tradition, the NBA celebrates Martin Luther King Jr. Day with wall-to-wall games throughout Monday.`\
-https://nytimes.com/athletic/6978058/2026/01/19/nba-mlk-day-schedule-pistons-celtics-cavaliers-thunder/
-
-**Coretta Scott King Classic watch guide: Top-ranked women's squads clash**\
-`Four ranked teams will take the floor Monday in the second annual women's college basketball showcase.`\
-https://nytimes.com/athletic/6975461/2026/01/19/coretta-scott-king-classic-ohio-state-tcu-michigan-vanderbilt/
-
-**Loud, wild, magical Bears season ends in heartbreak and silence**\
-`You don't see many standing ovations at the end of a Bears season, but this one was special, even in defeat.`\
-https://nytimes.com/athletic/6982266/2026/01/19/bears-rams-nfl-playoffs-heartbreaking-loss/
-
-**Twins' surprising Victor Caratini signing raises questions about disjointed roster**\
-`Caratini is the Twins' first multiyear signing since Carlos Correa three years ago, but further help is needed to compete this season.`\
-https://nytimes.com/athletic/6978642/2026/01/19/minnesota-twins-victor-caratini-free-agent-signing-roster/
-
-**Everything you missed (and still should watch for) in CFB's transfer portal**\
-`More than 3,300 FBS scholarship players entered the portal this month. Here's what you need to know about the biggest moves.`\
-https://nytimes.com/athletic/6981530/2026/01/19/college-football-transfer-portal-window-closed/
 
