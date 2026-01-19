@@ -1,3 +1,11 @@
+**Coaching candidates fly to Miami to meet with Tom Brady, Raiders brass: Sources**\
+`Several candidates Las Vegas Raiders coaching candidates will be in Miami this week to meet with key franchise decision-makers in person.`\
+https://nytimes.com/athletic/6983134/2026/01/19/tom-brady-raiders-coaching-search-miami/
+
+**Super Bowl MVP odds: Sam Darnold jumps Matthew Stafford**\
+`It's the NFC West at the top again in Super Bowl odds. Half of the top 10 contenders are from one team.`\
+https://nytimes.com/athletic/6983103/2026/01/19/super-bowl-2026-mvp-updated-odds-darnold-stafford/
+
 **Train Crash in Southern Spain Kills Dozens**\
 `A train crash in southern Spain involving two trains killed dozens on Sunday. The cause of the crash, the deadliest in Spain since 2013, was still being investigated on Monday.`\
 https://nytimes.com/video/world/europe/100000010654252/train-crash-in-southern-spain-kills-dozens.html

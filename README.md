@@ -1,3 +1,7 @@
+**Valentino Garavani, Regal Designer and Fashion’s ‘Last Emperor,’ Dies at 93**\
+`Valentino, as he was called, created one of the most durable and fashionable labels and became an equal of his high society customers.`\
+https://nytimes.com/2026/01/19/style/valentino-garavani-dead.html
+
 **Coaching candidates fly to Miami to meet with Tom Brady, Raiders brass: Sources**\
 `Several candidates Las Vegas Raiders coaching candidates will be in Miami this week to meet with key franchise decision-makers in person.`\
 https://nytimes.com/athletic/6983134/2026/01/19/tom-brady-raiders-coaching-search-miami/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983276/2026/01/19/pacers-vs-76ers-stream-how-to-wa
 **The crash occurred on a new stretch of high-speed rail track, officials say.**\
 `By Ali Watkins`\
 https://nytimes.com/live/2026/01/18/world/spain-high-speed-train-derailment/the-crash-occurred-on-a-new-stretch-of-high-speed-rail-track-officials-say
-
-**The Bounce: New star rivalry in NBA?**\
-`Welcome to The Bounce, The Athletic's NBA newsletter.`\
-https://nytimes.com/athletic/6983253/2026/01/19/anthony-edwards-victor-wembanyama-nba-rivalry-the-bounce/
 
