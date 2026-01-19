@@ -1,3 +1,7 @@
+**How to watch Bucks vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6982512/2026/01/19/bucks-vs-hawks-stream-how-to-watch-jan-19/
+
 **How to watch TCU vs. Ohio State women's basketball: Time, TV, streaming**\
 `Find out how to watch the TCU Horned Frogs play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6982506/2026/01/19/tcu-vs-ohio-state-stream-how-to-watch-jan-19/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/19/opinion/trump-minneapolis-ice.html
 **Donald Trump’s Middle Finger**\
 `The president doesn’t have ideals. Just enemies.`\
 https://nytimes.com/2026/01/19/opinion/trump-finger-michigan.html
-
-**What to Know About M.L.K. Day**\
-`Since 1986, a federal holiday on the third Monday of January has celebrated the legacy of the Rev. Dr. Martin Luther King Jr.`\
-https://nytimes.com/article/mlk-day-birthday-celebration.html
 

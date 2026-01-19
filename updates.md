@@ -1,3 +1,7 @@
+**How to watch TCU vs. Ohio State women's basketball: Time, TV, streaming**\
+`Find out how to watch the TCU Horned Frogs play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6982506/2026/01/19/tcu-vs-ohio-state-stream-how-to-watch-jan-19/
+
 **FIFA calls for action against Senegal after 'ugly scenes' mar AFCON win**\
 `The final was overshadowed when Senegal's players walked off the pitch before the final whistle and temporarily refused to play.`\
 https://nytimes.com/athletic/6982419/2026/01/19/senegal-morocco-afcon-final-penalty-chaos/

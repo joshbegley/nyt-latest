@@ -1,3 +1,7 @@
+**How to watch TCU vs. Ohio State women's basketball: Time, TV, streaming**\
+`Find out how to watch the TCU Horned Frogs play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6982506/2026/01/19/tcu-vs-ohio-state-stream-how-to-watch-jan-19/
+
 **FIFA calls for action against Senegal after 'ugly scenes' mar AFCON win**\
 `The final was overshadowed when Senegal's players walked off the pitch before the final whistle and temporarily refused to play.`\
 https://nytimes.com/athletic/6982419/2026/01/19/senegal-morocco-afcon-final-penalty-chaos/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/19/opinion/trump-finger-michigan.html
 **What to Know About M.L.K. Day**\
 `Since 1986, a federal holiday on the third Monday of January has celebrated the legacy of the Rev. Dr. Martin Luther King Jr.`\
 https://nytimes.com/article/mlk-day-birthday-celebration.html
-
-**Inside Minnesota Hospitals, ICE Agents Unnerve Staff**\
-`As federal agents swarm the Twin Cities, their presence has also grown in medical centers. Health care workers are pushing back.`\
-https://nytimes.com/2026/01/19/us/inside-minnesota-hospitals-ice-agents-unnerve-staff.html
 
