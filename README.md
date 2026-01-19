@@ -1,3 +1,7 @@
+**NFC Championship Game odds: Seahawks open as small favorites against Rams**\
+`The Seahawks are favorites, albeit by less than a field goal, in the NFC Championship Game against the Rams.`\
+https://nytimes.com/athletic/6981895/2026/01/18/nfc-championship-game-odds-seahawks-rams/
+
 **Super Bowl hero Nick Foles trolls Patriots: 'They struggle against backup QBs'**\
 `The former Eagles quarterback offered words of encouragement to Broncos fans after they lost Bo Nix to a broken anke.`\
 https://nytimes.com/athletic/6981810/2026/01/18/nick-foles-bo-nix-broncos-patriots/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6981823/2026/01/18/red-wings-senators-copp-van-riem
 **Patriots Outlast Texans to Advance to A.F.C. Title Game**\
 `New England’s defense forced five turnovers and scored a defensive touchdown on a second-quarter pick six.`\
 https://nytimes.com/video/the-athletic/100000010653552/patriots-outlast-texans-to-advance-to-afc-title-game.html
-
-**Chris Gotterup makes statement with final-round charge at Sony Open**\
-`Gotterup came from three back to run away with the Sony Open in Honolulu for his third career win on the PGA Tour.`\
-https://nytimes.com/athletic/6981958/2026/01/18/chris-gotterup-sony-open-pga-score/
 

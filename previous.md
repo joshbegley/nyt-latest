@@ -1,3 +1,11 @@
+**Super Bowl hero Nick Foles trolls Patriots: 'They struggle against backup QBs'**\
+`The former Eagles quarterback offered words of encouragement to Broncos fans after they lost Bo Nix to a broken anke.`\
+https://nytimes.com/athletic/6981810/2026/01/18/nick-foles-bo-nix-broncos-patriots/
+
+**Drake Maye, Patriots enjoy another wild win as fairytale season rolls on**\
+`On a day when the offense struggled at times, the defense stepped up to deliver a hard-fought victory at a wintry Gillette Stadium.`\
+https://nytimes.com/athletic/6981914/2026/01/18/drake-maye-patriots-texans-playoff-win/
+
 **Patriots' next challenge: Focus on No. 1 seed (Broncos), not No. 2 quarterback (Stidham)**\
 `Vrabel can’t order players to tune out the talk shows and social media. But he find the next team-building exercise to keep them focused.`\
 https://nytimes.com/athletic/6981910/2026/01/18/patriots-texans-afc-championship-broncos/
@@ -29,12 +37,4 @@ https://nytimes.com/video/the-athletic/100000010653552/patriots-outlast-texans-t
 **Chris Gotterup makes statement with final-round charge at Sony Open**\
 `Gotterup came from three back to run away with the Sony Open in Honolulu for his third career win on the PGA Tour.`\
 https://nytimes.com/athletic/6981958/2026/01/18/chris-gotterup-sony-open-pga-score/
-
-**Live Updates: Trains Collide After Derailment in Spain, Killing at Least 21**\
-`A high-speed train smashed into another train after derailing in the southern province of Córdoba, officials said. The cause of the accident was not immediately clear.`\
-https://nytimes.com/live/2026/01/18/world/spain-high-speed-train-derailment
-
-**One Month Later, CBS Airs Postponed ‘60 Minutes’ Report With Few Changes**\
-`A 13-minute segment about Venezuelan men deported by the Trump administration had been pulled at the last minute by CBS News’s editor in chief, Bari Weiss.`\
-https://nytimes.com/2026/01/18/business/media/cbs-60-minutes-venezuela-report.html
 
