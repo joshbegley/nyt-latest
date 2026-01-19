@@ -1,3 +1,11 @@
+**I.M.F. Raises Forecast for Global Growth as Tariff Drag Fades**\
+`The 3.3 percent rate for 2026 would match last year’s pace. Booming investment in artificial intelligence is buttressing global output.`\
+https://nytimes.com/2026/01/19/business/imf-world-economic-outlook-2026.html
+
+**Much of Spain’s High-Speed Rail Network Will Be Closed on Monday**\
+`The closures were announced after a high-speed train derailed and smashed into another high-speed train, killing at least 39 people and injuring dozens.`\
+https://nytimes.com/2026/01/19/world/europe/spain-high-speed-rail-closed.html
+
 **Rams Outlast Bears in Overtime Playoff Thriller**\
 `The Los Angeles Rams quarterback Matthew Stafford led a game-winning drive against the Chicago Bears to advance to the N.F.C. championship game against the Seattle Seahawks.`\
 https://nytimes.com/video/sports/football/100000010653787/rams-outlast-bears-in-overtime-playoff-thriller.html
