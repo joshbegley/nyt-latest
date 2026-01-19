@@ -1,3 +1,11 @@
+**Canucks trade Kiefer Sherwood to San Jose Sharks**\
+`Sherwood is in the final year of a two-year deal, with a modest cap hit of only $1.5 million.`\
+https://nytimes.com/athletic/6977764/2026/01/19/kiefer-sherwood-trade/
+
+**Powell will attend the Supreme Court arguments on Trump’s effort to remove a Fed governor.**\
+`By Colby Smith`\
+https://nytimes.com/live/2026/01/19/us/trump-news/powell-will-attend-the-supreme-court-arguments-on-trumps-effort-to-remove-a-fed-governor
+
 **Seahawks RB Zach Charbonnet out for season with knee injury**\
 `Charbonnet led the Seahawks with 12 touchdowns during the regular season before being hurt in the divisional playoff game.`\
 https://nytimes.com/athletic/6983479/2026/01/19/zach-charbonnet-injury-seahawks-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/19/arts/music/cleveland-orchestra.html
 **Zohran Mamdani to ask Donald Trump to reverse travel bans ahead of World Cup**\
 `Citizens of Senegal, Ivory Coast, Iran and Haiti, four countries that have qualified for the World Cup, cannot currently travel to the U.S.`\
 https://nytimes.com/athletic/6981658/2026/01/19/zohran-mamdani-donald-trump-reverse-travel-bans-world-cup/
-
-**Federal Reserve Inquiry Clouds Trump’s Supreme Court Bid to Oust Lisa Cook**\
-`The court is set to hear Ms. Cook’s case challenging her firing as the Justice Department investigates Jerome H. Powell, the central bank chair.`\
-https://nytimes.com/2026/01/19/us/politics/supreme-court-federal-reserve-cook-powell.html
-
-**A labor union raised concerns last year about Spain’s railway lines.**\
-`By Jason Horowitz`\
-https://nytimes.com/live/2026/01/18/world/spain-high-speed-train-derailment/a-labor-union-raised-concerns-last-year-about-spains-railway-lines
 
