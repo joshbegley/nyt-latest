@@ -1,3 +1,7 @@
+**Rams Outlast Bears in Overtime Playoff Thriller**\
+`The Los Angeles Rams quarterback Matthew Stafford led a game-winning drive against the Chicago Bears to advance to the N.F.C. championship game against the Seattle Seahawks.`\
+https://nytimes.com/video/sports/football/100000010653787/rams-outlast-bears-in-overtime-playoff-thriller.html
+
 **Stan Wawrinka's last Australian Open, with his heart on his sleeve – and his shorts on his shirt**\
 `Wawrinka, 40, became the second-oldest man to win a match at Melbourne Park after beating Laslo Djere of Serbia Monday.`\
 https://nytimes.com/athletic/6982393/2026/01/19/tennis-australian-open-stan-wawrinka/

@@ -1,3 +1,7 @@
+**Rams Outlast Bears in Overtime Playoff Thriller**\
+`The Los Angeles Rams quarterback Matthew Stafford led a game-winning drive against the Chicago Bears to advance to the N.F.C. championship game against the Seattle Seahawks.`\
+https://nytimes.com/video/sports/football/100000010653787/rams-outlast-bears-in-overtime-playoff-thriller.html
+
 **Stan Wawrinka's last Australian Open, with his heart on his sleeve – and his shorts on his shirt**\
 `Wawrinka, 40, became the second-oldest man to win a match at Melbourne Park after beating Laslo Djere of Serbia Monday.`\
 https://nytimes.com/athletic/6982393/2026/01/19/tennis-australian-open-stan-wawrinka/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/19/world/europe/spain-high-speed-rail-closed.html
 **A Heisman winner and a Stoic? 3 lessons from Indiana QB Fernando Mendoza**\
 `Indiana's Fernando Mendoza isn't just one of the best quarterbacks in the country. He's also full of LinkedIn-style leadership advice.`\
 https://nytimes.com/athletic/6980686/2026/01/19/3-things-anyone-can-learn-from-indiana-qb-fernando-mendozas-stoic-mindset/
-
-**Why does Fernando Mendoza talk like that? Earnest, articulate and '100 percent him'**\
-`In a world where athletes are trained to say as little as possible for fear of going viral in a bad way, Mendoza seems to always deliver.`\
-https://nytimes.com/athletic/6980666/2026/01/19/fernando-mendoza-indiana-postgame-interview-speech/
 
