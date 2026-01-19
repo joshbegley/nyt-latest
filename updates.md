@@ -1,3 +1,15 @@
+**Patriots' next challenge: Focus on No. 1 seed (Broncos), not No. 2 quarterback (Stidham)**\
+`Vrabel can’t order players to tune out the talk shows and social media. But he find the next team-building exercise to keep them focused.`\
+https://nytimes.com/athletic/6981910/2026/01/18/patriots-texans-afc-championship-broncos/
+
+**Knuckleballer Wilbur Wood, a tireless titan of the 1970s, dies at 84**\
+`In 1972, Wood worked 376 ⅔ innings, the most by any pitcher since Grover Cleveland Alexander in 1917.`\
+https://nytimes.com/athletic/6982047/2026/01/18/wilbur-wood-knuckleball-white-sox-death/
+
+**Live Updates: Trains Collide After Derailment in Spain, Killing at Least 21**\
+`A high-speed train smashed into another train after derailing in the southern province of Córdoba, officials said. The cause of the accident was not immediately clear.`\
+https://nytimes.com/live/2026/01/18/world/spain-high-speed-train-derailment
+
 **Matthew Stafford leads game-winning OT drive as Rams top Bears, advance to NFC title game**\
 `The Rams will travel to Seattle to face the Seahawks for a third time this season with a trip to the Super Bowl on the line. `\
 https://nytimes.com/athletic/6981907/2026/01/18/rams-bears-score-result-takeaways-nfl-divisional-round/
