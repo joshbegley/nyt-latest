@@ -1,3 +1,7 @@
+**Starmer Pushes Back Against Greenland Tariff Threat as ‘Completely Wrong’**\
+`The British prime minister said his country “must stand up for its values” after President Trump threatened a new tariff war over acquiring the island.`\
+https://nytimes.com/2026/01/19/us/politics/starmer-uk-greenland.html
+
 **Tottenham's Thomas Frank expected to take charge of Borussia Dortmund game**\
 `Pressure is growing on the Dane with the club 14th in the Premier League with just seven wins in 22 games.`\
 https://nytimes.com/athletic/6982515/2026/01/19/tottenham-thomas-frank-borussia-dortmund/
