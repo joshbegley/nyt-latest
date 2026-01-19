@@ -1,3 +1,7 @@
+**Yankees hold firm with offer, but has Cody Bellinger's market changed?**\
+`The Yankees would be willing to include opt-outs after Year 2 and Year 3 of a five-year deal worth as much as $160 million, per a source.`\
+https://nytimes.com/athletic/6981548/2026/01/18/yankees-cody-bellinger-offer-opt-outs/
+
 **Josh Shapiro Writes That Harris Team Asked if He Had Ever Been an Israeli Agent**\
 `In his new memoir, the Pennsylvania governor suggests that when Kamala Harris’s team vetted him to be her running mate, aides focused on Israel to an extent he found offensive.`\
 https://nytimes.com/2026/01/18/us/politics/josh-shapiro-memoir-kamala-harris.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6981390/2026/01/18/texans-patriots-score-result-tak
 **Man Acquitted of Shining a Laser at Marine One With Trump Aboard**\
 `A jury found the man, Jacob Samuel Winkler, not guilty after just 35 minutes of deliberation. He was charged in September with pointing a laser at an aircraft.`\
 https://nytimes.com/2026/01/18/us/politics/marine-laser-trump-acquitted.html
-
-**Comes to Light**\
-`Find your “aha!” moment in Peter Gorman’s puzzle.`\
-https://nytimes.com/2026/01/18/crosswords/daily-puzzle-2026-01-19.html
 
