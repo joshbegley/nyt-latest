@@ -1,6 +1,14 @@
-**Matthew Tkachuk returns from injury, set to make season debut against San Jose**\
+**Train Crash in Southern Spain Kills Dozens**\
+`A train crash in southern Spain involving two trains killed dozens on Sunday. The cause of the crash, the deadliest in Spain since 2013, was still being investigated on Monday.`\
+https://nytimes.com/video/world/europe/100000010654252/train-crash-in-southern-spain-kills-dozens.html
+
+**Matthew Tkachuk set to make season debut against San Jose**\
 `Tkachuk will represent the Americans in February at the Olympics.`\
 https://nytimes.com/athletic/6983143/2026/01/19/matthew-tkachuk-panthers-return-injury/
+
+**Exactly what role will Marc Guehi take up at Man City, and how might he look to improve?**\
+`Guehi boasts the attributes required to thrive in a Pep Guardiola team - this deal is as safe a bet as they come`\
+https://nytimes.com/athletic/6977560/2026/01/19/marc-guehi-manchester-city-fit-analysis/
 
 **Frank says he feels 'trust' of Spurs leadership, confident of winning fans back**\
 `Frank said that he had lunch with CEO Vinai Venkatesham, sporting director Johan Lange and the Lewis family's Nick Beucher on Monday.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6983272/2026/01/19/sharks-vs-panthers-stream-how-to
 **How to watch Penguins vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6983270/2026/01/19/penguins-vs-kraken-stream-how-to-watch-jan-19/
-
-**How to watch Jazz vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6983266/2026/01/19/jazz-vs-spurs-stream-how-to-watch-jan-19/
-
-**How to watch Mavericks vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6983262/2026/01/19/mavericks-vs-knicks-stream-how-to-watch-jan-19/
 
