@@ -1,3 +1,7 @@
+**Super Bowl odds: The NFC West owns the board**\
+`Could any of the remaining teams upset the favored Seahawks?`\
+https://nytimes.com/athletic/6983047/2026/01/19/super-bowl-odds-conference-championship-seahawks-rams-patriots/
+
 **Longtime Blues assistant coach Steve Ott takes over AHL Springfield**\
 `The Blues fired Steve Konowalchuk, who was in his second season as head coach of the Thunderbirds.`\
 https://nytimes.com/athletic/6983012/2026/01/19/steve-ott-blues-ahl-springfield-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6975155/2026/01/19/mario-cristobal-sideline-body-la
 **Trump’s Trade Negotiator Says Response to Court Loss Would Be Immediate**\
 `If the Supreme Court rules against its tariffs, the Trump administration would begin replacing them immediately, said Jamieson Greer, the United States Trade Representative.`\
 https://nytimes.com/2026/01/19/us/politics/trump-tariffs-supreme-court-greer-trade.html
-
-**Bills fans: Share your thoughts on Buffalo firing Sean McDermott**\
-`Do you think the Bills made the right move if firing their head coach?`\
-https://nytimes.com/athletic/6982966/2026/01/19/sean-mcdermott-fired-discussion-bills-fans/
 
