@@ -1,3 +1,11 @@
+**Where might Artemi Panarin accept a trade? 10 potential destinations**\
+`Where might the Rangers find a good fit between trade return and Panarin's no-trade clause?`\
+https://nytimes.com/athletic/6981663/2026/01/19/rangers-panarin-potential-trade-destinations/
+
+**Pistons trash-talking their way to the top with new Dawg Pound mentality**\
+`Whether is basketball, volleyball or even barefoot soccer, the Detroit Pistons are running with the big dogs. `\
+https://nytimes.com/athletic/6977056/2026/01/19/nba-pistons-dawg-pound-jalen-duren-isaiah-stewart/
+
 **NBA MLK Day watch guide: Thunder-Cavs, Celtics-Pistons headline holiday lineup**\
 `As is tradition, the NBA celebrates Martin Luther King Jr. Day with wall-to-wall games throughout Monday.`\
 https://nytimes.com/athletic/6978058/2026/01/19/nba-mlk-day-schedule-pistons-celtics-cavaliers-thunder/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6981077/2026/01/19/kevin-stefanski-atlanta-falcons-
 **Wild insider: From Trocheck to Stamkos, potential trade fits for Minnesota**\
 `Bill Guerin is still keeping a keen eye on possible trades to bolster the Wild ahead of the deadline.`\
 https://nytimes.com/athletic/6981158/2026/01/19/wild-trade-fits-trocheck-panarin-stamkos/
-
-**Q&A: Flyers' Keith Jones on progress for Michkov, Martone, Ersson and more**\
-`The Flyers' president of hockey operations also had thoughts on the upcoming free-agent class and dressing room atmosphere.`\
-https://nytimes.com/athletic/6980861/2026/01/19/flyers-keith-jones-q-and-a-michkov-martone/
-
-**Without a spot in Cubs' infield, what happens to Matt Shaw?**\
-`With Alex Bregman entrenched at third base, Shaw might serve in a super-utility role if the Cubs don't trade from their infield surplus.`\
-https://nytimes.com/athletic/6981336/2026/01/19/matt-shaw-role-chicago-cubs-roster/
 
