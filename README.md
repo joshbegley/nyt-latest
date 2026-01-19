@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6977764/2026/01/19/kiefer-sherwood-trade/
 https://nytimes.com/2026/01/19/us/politics/powell-will-attend-the-supreme-court-arguments-on-trumps-effort-to-remove-a-fed-governor.html
 
 **Seahawks RB Zach Charbonnet out for season with knee injury**\
-`Charbonnet led the Seahawks with 12 touchdowns during the regular season before being hurt in the divisional playoff game.`\
+`A league source said that Charbonnet, who exited Saturday's win over the 49ers in the second quarter, tore his ACL.`\
 https://nytimes.com/athletic/6983479/2026/01/19/zach-charbonnet-injury-seahawks-playoffs/
 
