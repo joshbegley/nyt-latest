@@ -1,3 +1,11 @@
+**Tottenham's Davies to undergo surgery on ankle fracture**\
+`Davies, 32, was taken off on a stretcher during Tottenham's Premier League defeat to West Ham United on Saturday.`\
+https://nytimes.com/athletic/6982911/2026/01/19/ben-davies-tottenham-injury-update/
+
+**For Miami's Cuban community, the national title game means everything**\
+`Alfred Alvarez, the Canes' Spanish-speaking radio voice, watched games without sound in Cuba to avoid being heard by any nosy neighbors.`\
+https://nytimes.com/athletic/6980590/2026/01/19/miami-cubans-fernando-mendoza-mario-cristobal/
+
 **Bills fire coach Sean McDermott after 9 seasons, no Super Bowl appearances**\
 `McDermott went 98-50 over his nine seasons but the Bills have yet to reach a Super Bowl despite the MVP presence of Josh Allen.`\
 https://nytimes.com/athletic/6979852/2026/01/19/buffalo-bills-fire-coach-sean-mcdermott/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6981609/2026/01/19/49ers-position-groups-rankings-o
 **Top Catholic Clerics Denounce U.S. Foreign Policy**\
 `Citing recent events in Venezuela, Ukraine and Greenland, three cardinals said their statement was inspired by Pope Leo.`\
 https://nytimes.com/2026/01/19/us/catholics-trump-archbishops.html
-
-**The Troubling and Paradoxical Nature of Christian Nationalism**\
-`Readers respond to an Opinion guest essay by Molly Worthen and reflect on church, state and American politics. Also: After a therapist dies.`\
-https://nytimes.com/2026/01/19/opinion/christian-nationalism-politics.html
-
-**Kings and Ducks sit in same place after Freeway Faceoff through very different routes**\
-`A home-and-home over the weekend ended with the Ducks and Kings tied at 51 points, just out of a playoff spot.`\
-https://nytimes.com/athletic/6981490/2026/01/19/kings-ducks-freeway-faceoff-playoffs-injuries/
 

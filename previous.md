@@ -1,3 +1,11 @@
+**Bills fire coach Sean McDermott after 9 seasons, no Super Bowl appearances**\
+`McDermott went 98-50 over his nine seasons but the Bills have yet to reach a Super Bowl despite the MVP presence of Josh Allen.`\
+https://nytimes.com/athletic/6979852/2026/01/19/buffalo-bills-fire-coach-sean-mcdermott/
+
+**USMNT Player Tracker: Championship strikers make their mark, but more woe for Richards**\
+`The contrasting fortunes endured by Christian Pulisic and Weston McKennie in Italy's Serie A also feature in our weekly round up`\
+https://nytimes.com/athletic/6982716/2026/01/19/usmnt-wright-agyemang-richards-tracker/
+
 **Greenlanders Weigh Options as Trump Threatens Takeover**\
 `Some residents of Greenland are hatching plans to flee by boat, while others are committed to remaining as President Trump demands a deal to buy the autonomous territory of Denmark.`\
 https://nytimes.com/video/world/europe/100000010653541/greenland-trump-exit-plan.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/19/opinion/christian-nationalism-politics.html
 **Kings and Ducks sit in same place after Freeway Faceoff through very different routes**\
 `A home-and-home over the weekend ended with the Ducks and Kings tied at 51 points, just out of a playoff spot.`\
 https://nytimes.com/athletic/6981490/2026/01/19/kings-ducks-freeway-faceoff-playoffs-injuries/
-
-**Guatemala Declares State of Emergency as Gang Violence Surges**\
-`President Bernardo Arévalo of Guatemala declared a 30-day state of emergency to address gang violence. A surge of unrest in recent days has included uprisings at three prisons and the killing of eight police officers.`\
-https://nytimes.com/video/world/americas/100000010653979/guatemala-emergency-prisons-gangs.html
-
-**A preview of The Athletic’s live coverage this week**\
-`The Athletic's live coverage this week includes the CFP National Championship and NFL Conference Championship games.`\
-https://nytimes.com/athletic/6982605/2026/01/19/nfl-playoffs-cfp-championship-champions-league/
 
