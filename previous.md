@@ -1,3 +1,7 @@
+**Greenlanders Weigh Options as Trump Threatens Takeover**\
+`Some residents of Greenland are hatching plans to flee by boat, while others are committed to remaining as President Trump demands a deal to buy the autonomous territory of Denmark.`\
+https://nytimes.com/video/world/europe/100000010653541/greenland-trump-exit-plan.html
+
 **Submit your questions for the college basketball mailbag**\
 `Ask us about anything going on in men's college hoops, and we'll do our best to answer.`\
 https://nytimes.com/athletic/6982894/2026/01/19/college-basketball-key-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/americas/100000010653979/guatemala-emergency-pri
 **A preview of The Athletic’s live coverage this week**\
 `The Athletic's live coverage this week includes the CFP National Championship and NFL Conference Championship games.`\
 https://nytimes.com/athletic/6982605/2026/01/19/nfl-playoffs-cfp-championship-champions-league/
-
-**Mbappe says Madrid fans should boo 'whole squad, not just a few players'**\
-`Jude Bellingham and Vinicius Jr were jeered by fans during their win against Levante after being knocked out of the Copa del Rey.`\
-https://nytimes.com/athletic/6982705/2026/01/19/kylian-mbappe-real-madrid-fans-boo-bellingham-vinicius/
 

@@ -1,3 +1,7 @@
+**Greenlanders Weigh Options as Trump Threatens Takeover**\
+`Some residents of Greenland are hatching plans to flee by boat, while others are committed to remaining as President Trump demands a deal to buy the autonomous territory of Denmark.`\
+https://nytimes.com/video/world/europe/100000010653541/greenland-trump-exit-plan.html
+
 **Submit your questions for the college basketball mailbag**\
 `Ask us about anything going on in men's college hoops, and we'll do our best to answer.`\
 https://nytimes.com/athletic/6982894/2026/01/19/college-basketball-key-questions/
