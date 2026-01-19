@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6981347/2026/01/19/everton-aston-villa-premier-leag
 `\
 https://nytimes.com/athletic/6981347/2026/01/19/everton-aston-villa-premier-league/
 
+**Everton needed to change the mood. Now opportunity beckons in a strange Premier League season**\
+`Remarkably, Sunday’s win leaves Everton three points off fifth and four off fourth. It’s been the most bizarre and unpredictable campaign
+`\
+https://nytimes.com/athletic/6981347/2026/01/19/everton-aston-villa-premier-league/
+
 **I’m the Secretary General of the Council of Europe. This Is Something I Thought I’d Never Have to Write.**\
 `International law is either universal or meaningless. Greenland will show which one we choose.`\
 https://nytimes.com/2026/01/19/opinion/greenland-trump-europe.html
