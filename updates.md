@@ -1,3 +1,11 @@
+**‘Like an Earthquake’: How 40 People Died in a Spanish Train Crash**\
+`The victims of Spain’s deadliest rail crash in more than a decade included a police officer, journalists and a family returning from a musical.`\
+https://nytimes.com/2026/01/19/world/europe/spain-crash-scene-40-train-track.html
+
+**Broncos open J.K. Dobbins' return window, RB could play in AFC title game**\
+`Denver could have its leading rusher back for a chance to go to the Super Bowl against the Patriots on Sunday.`\
+https://nytimes.com/athletic/6983775/2026/01/19/broncos-jk-dobbins-injury-afc-championship-game/
+
 **Lions hiring Cardinals' Drew Petzing as next offensive coordinator: Source**\
 `Petzing spent the past three seasons in Arizona and the 38-year-old has held roles in the NFL since 2013.`\
 https://nytimes.com/athletic/6983697/2026/01/19/detroit-lions-hire-drew-petzing-offensive-coordinator/

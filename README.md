@@ -1,3 +1,7 @@
+**Commanders stay in house for offensive line coach as staff takes shape: Source**\
+`The team promoted Darnell Stapleton to offensive line coach in place of Bobby Johnson, who was let go after the season.`\
+https://nytimes.com/athletic/6983744/2026/01/19/commanders-offensive-line-coach-darnell-stapleton/
+
 **‘Like an Earthquake’: How 40 People Died in a Spanish Train Crash**\
 `The victims of Spain’s deadliest rail crash in more than a decade included a police officer, journalists and a family returning from a musical.`\
 https://nytimes.com/2026/01/19/world/europe/spain-crash-scene-40-train-track.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983823/2026/01/19/islanders-vs-canucks-stream-how-
 **How to watch Celtics vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Boston Celtics play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6983821/2026/01/19/celtics-vs-pistons-stream-how-to-watch-jan-19/
-
-**How to watch Flyers vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6983814/2026/01/19/flyers-vs-golden-knights-stream-how-to-watch-jan-19/
 
