@@ -1,3 +1,7 @@
+**One Month Later, CBS Airs Postponed ‘60 Minutes’ Report With Few Changes**\
+`A 13-minute segment about Venezuelan men deported by the Trump administration had been pulled at the last minute by CBS News’s editor in chief, Bari Weiss.`\
+https://nytimes.com/2026/01/18/business/media/cbs-60-minutes-venezuela-report.html
+
 **China’s Population Shrinks Again as Policies Fail to Reverse Decline**\
 `With fewer babies and more deaths, China’s population fell for a fourth straight year as policymakers face a demographic crisis in the making.`\
 https://nytimes.com/2026/01/18/business/china-population-data.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6981626/2026/01/18/patriots-broncos-afc-championshi
 **Yankees hold firm with offer, but has Cody Bellinger's market changed?**\
 `The Yankees would be willing to include opt-outs after Year 2 and Year 3 of a five-year deal worth as much as $160 million, per a source.`\
 https://nytimes.com/athletic/6981548/2026/01/18/yankees-cody-bellinger-offer-opt-outs/
-
-**Josh Shapiro Writes That Harris Team Asked if He Had Ever Been an Israeli Agent**\
-`In his new memoir, the Pennsylvania governor suggests that when Kamala Harris’s team vetted him to be her running mate, aides focused on Israel to an extent he found offensive.`\
-https://nytimes.com/2026/01/18/us/politics/josh-shapiro-memoir-kamala-harris.html
 
