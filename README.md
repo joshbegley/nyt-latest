@@ -1,3 +1,7 @@
+**A labor union raised concerns last year about Spain’s railway lines.**\
+`By Jason Horowitz`\
+https://nytimes.com/live/2026/01/18/world/spain-high-speed-train-derailment/a-labor-union-raised-concerns-last-year-about-spains-railway-lines
+
 **Jimmy Butler joins our rankings of the most unflattering sports cards of all time**\
 `A puzzling new patch jumps high up our rankings of memorably bad sports cards. `\
 https://nytimes.com/athletic/6975698/2026/01/19/worst-sports-cards-jimmy-butler/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/6975698/2026/01/19/worst-sports-cards-jimmy-butler/
 **Read the Texts Between Trump and Norway’s Prime Minister About Greenland**\
 `In the exchange on Sunday, Norway’s leader sought to “de-escalate” the growing conflict over Greenland and Mr. Trump’s latest tariff threat.`\
 https://nytimes.com/2026/01/19/us/politics/read-the-texts-between-trump-and-norways-prime-minister-about-greenland.html
+
+**Serie A Briefing: Malen and Fullkrug's impact, remembering Rocco and the return of Bove?**\
+`Bove looks set to join Watford from Roma, 13 months after suffering a cardiac arrest on the pitch while playing for Fiorentina`\
+https://nytimes.com/athletic/6982552/2026/01/19/bove-watford-roma-malen-fullkrug-milan-fiorentina-rocco/
 
 **Prada Alienates in the Right Way**\
 `The coats at the brand’s latest show felt refreshingly awkward.`\
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010654252/train-crash-in-southern-s
 **Matthew Tkachuk set to make season debut against San Jose**\
 `Tkachuk will represent the Americans in February at the Olympics.`\
 https://nytimes.com/athletic/6983143/2026/01/19/matthew-tkachuk-panthers-return-injury/
-
-**Exactly what role will Marc Guehi take up at Man City, and how might he look to improve?**\
-`Guehi boasts the attributes required to thrive in a Pep Guardiola team - this deal is as safe a bet as they come`\
-https://nytimes.com/athletic/6977560/2026/01/19/marc-guehi-manchester-city-fit-analysis/
-
-**Frank says he feels 'trust' of Spurs leadership, confident of winning fans back**\
-`Frank said that he had lunch with CEO Vinai Venkatesham, sporting director Johan Lange and the Lewis family's Nick Beucher on Monday.`\
-https://nytimes.com/athletic/6983126/2026/01/19/thomas-frank-tottenham-future-latest/
 
