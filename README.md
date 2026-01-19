@@ -1,3 +1,11 @@
+**Mbappe says Madrid fans should boo 'whole squad, not just a few players'**\
+`Jude Bellingham and Vinicius Jr were jeered by fans during their win against Levante after being knocked out of the Copa del Rey.`\
+https://nytimes.com/athletic/6982705/2026/01/19/kylian-mbappe-real-madrid-fans-boo-bellingham-vinicius/
+
+**Take our CFP national championship quiz! What you need to know about Indiana-Miami**\
+`The national championship game between Indiana and Miami is finally here. Test your trivia knowledge and catch up on some pregame reading.`\
+https://nytimes.com/athletic/6982743/2026/01/19/indiana-miami-cfp-championship-trivia-quiz/
+
 **How to watch Capitals vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6982821/2026/01/19/capitals-vs-avalanche-stream-how-to-watch-jan-19/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/19/world/europe/trump-norway-greenland-nobel.html
 **Trump Administration Live Updates: President Linked Greenland Push to Nobel Prize Snub, Officials Say**\
 ``\
 https://nytimes.com/live/2026/01/19/us/trump-news
-
-**Lowetide: Stan Bowman's 5 best and worst moves in his first 18 months with Oilers**\
-`The big moves made by Edmonton under Bowman often involve big money, big assets and some manner of no-movement clause.`\
-https://nytimes.com/athletic/6979701/2026/01/19/edmonton-oilers-trades-signings-stan-bowman-best-worst/
-
-**Wild insider: From Trocheck to Stamkos, potential trade fits for Minnesota**\
-`Bill Guerin is still keeping a keen eye on possible trades to bolster the Wild ahead of the deadline.`\
-https://nytimes.com/athletic/6981158/2026/01/19/wild-trade-fits-trocheck-panarin-stamkos/
 
