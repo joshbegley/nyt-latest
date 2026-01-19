@@ -1,4 +1,4 @@
-**Canucks trade Kiefer Sherwood to San Jose Sharks**\
+**Canucks trade Kiefer Sherwood to San Jose Sharks for 2 draft picks, Cole Clayton**\
 `Sherwood is in the final year of a two-year deal, with a modest cap hit of only $1.5 million.`\
 https://nytimes.com/athletic/6977764/2026/01/19/kiefer-sherwood-trade/
 

@@ -1,3 +1,11 @@
+**Canucks trade Kiefer Sherwood to San Jose Sharks**\
+`Sherwood is in the final year of a two-year deal, with a modest cap hit of only $1.5 million.`\
+https://nytimes.com/athletic/6977764/2026/01/19/kiefer-sherwood-trade/
+
+**Powell will attend the Supreme Court arguments on Trump’s effort to remove a Fed governor.**\
+`By Colby Smith`\
+https://nytimes.com/live/2026/01/19/us/trump-news/powell-will-attend-the-supreme-court-arguments-on-trumps-effort-to-remove-a-fed-governor
+
 **Seahawks RB Zach Charbonnet out for season with knee injury**\
 `Charbonnet led the Seahawks with 12 touchdowns during the regular season before being hurt in the divisional playoff game.`\
 https://nytimes.com/athletic/6983479/2026/01/19/zach-charbonnet-injury-seahawks-playoffs/
