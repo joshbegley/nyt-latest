@@ -1,3 +1,11 @@
+**Matthew Stafford leads game-winning OT drive as Rams top Bears, advance to NFC title game**\
+`The Rams will travel to Seattle to face the Seahawks for a third time this season with a trip to the Super Bowl on the line. `\
+https://nytimes.com/athletic/6981907/2026/01/18/rams-bears-score-result-takeaways-nfl-divisional-round/
+
+**Updated 2026 NFL Draft order: Top 28 picks set after divisional round; Bears hold No. 25**\
+`How does Round 1 shape up after a dramatic conclusion to the divisional round?`\
+https://nytimes.com/athletic/6981589/2026/01/18/nfl-draft-order-2026-round-1-bears-bills/
+
 **Thunder's Jalen Williams out vs. Cavaliers with hamstring injury, return TBD**\
 `Williams suffered his injury during the second quarter of the Thunder’s loss Saturday in Miami as he drove to the basket.`\
 https://nytimes.com/athletic/6981889/2026/01/18/jalen-williams-okc-injury-update-right-hamstring/
