@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6975698/2026/01/19/worst-sports-cards-jimmy-butler/
 
 **Read the Texts Between Trump and Norway’s Prime Minister About Greenland**\
 `In the exchange on Sunday, Norway’s leader sought to “de-escalate” the growing conflict over Greenland and Mr. Trump’s latest tariff threat.`\
-https://nytimes.com/2026/01/19/us/politics/read-the-texts-between-trump-and-norways-prime-minister-about-greenland.html
+https://nytimes.com/2026/01/19/us/politics/trump-norway-prime-minister-texts-greenland.html
 
 **Serie A Briefing: Malen and Fullkrug's impact, remembering Rocco and the return of Bove?**\
 `Bove looks set to join Watford from Roma, 13 months after suffering a cardiac arrest on the pitch while playing for Fiorentina`\

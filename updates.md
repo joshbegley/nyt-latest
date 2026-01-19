@@ -1,3 +1,7 @@
+**Read the Texts Between Trump and Norway’s Prime Minister About Greenland**\
+`In the exchange on Sunday, Norway’s leader sought to “de-escalate” the growing conflict over Greenland and Mr. Trump’s latest tariff threat.`\
+https://nytimes.com/2026/01/19/us/politics/trump-norway-prime-minister-texts-greenland.html
+
 **Federal Reserve Inquiry Clouds Trump’s Supreme Court Bid to Oust Lisa Cook**\
 `The court is set to hear Ms. Cook’s case challenging her firing as the Justice Department investigates Jerome H. Powell, the central bank chair.`\
 https://nytimes.com/2026/01/19/us/politics/supreme-court-federal-reserve-cook-powell.html
