@@ -1,3 +1,7 @@
+**Patriots' next challenge: Focus on No. 1 seed (Broncos), not No. 2 quarterback (Stidham)**\
+`Vrabel can't order players to tune out the talk shows and social media. But he can find the next team-building exercise to keep them hungry.`\
+https://nytimes.com/athletic/6981910/2026/01/18/patriots-texans-afc-championship-broncos/
+
 **As C.J. Stroud wilts in the biggest moment, Texans stand by their beleaguered QB**\
 `Stroud was hard on himself after a four-turnover performance in the Texans' loss to the Patriots: “I felt like I let a lot of people down."`\
 https://nytimes.com/athletic/6981993/2026/01/18/cj-stroud-texans-loss-patriots-playoffs-struggles/

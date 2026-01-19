@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6981810/2026/01/18/nick-foles-bo-nix-broncos-patrio
 https://nytimes.com/athletic/6981914/2026/01/18/drake-maye-patriots-texans-playoff-win/
 
 **Patriots' next challenge: Focus on No. 1 seed (Broncos), not No. 2 quarterback (Stidham)**\
-`Vrabel can’t order players to tune out the talk shows and social media. But he can find the next team-building exercise to keep them hungry.`\
+`Vrabel can't order players to tune out the talk shows and social media. But he can find the next team-building exercise to keep them hungry.`\
 https://nytimes.com/athletic/6981910/2026/01/18/patriots-texans-afc-championship-broncos/
 
 **Knuckleballer Wilbur Wood, a tireless titan of the 1970s, dies at 84**\
