@@ -1,3 +1,15 @@
+**Musk, With a $10 Million Donation, Signals He’s Back for the Midterms**\
+`Elon Musk, the world’s richest person, backed Nate Morris, a Republican businessman, in the primary race to succeed Senator Mitch McConnell in Kentucky.`\
+https://nytimes.com/2026/01/19/us/politics/elon-musk-nate-morris-kentucky-senate-mitch-mcconnell.html
+
+**Slow Emergency Response Blamed in Deadly Fire That Tore Through Pakistani Mall**\
+`The blaze, which killed at least 23 and left dozens more missing during “wedding season,” burned all night and day through a Karachi plaza with hundreds of shops.`\
+https://nytimes.com/2026/01/19/world/asia/pakistan-karachi-fire-mall.html
+
+**Spurs executive Caplehorn to join PL as chief football officer**\
+`The Athletic reported in October that Caplehorn would be leaving the club at the end of the winter transfer window.`\
+https://nytimes.com/athletic/6982998/2026/01/19/premier-league-rebecca-caplehorn-tottenham/
+
 **Curt Cignetti's sideline faces have gone viral. Mario Cristobal is just as intense**\
 `In his demeanor on the sideline and in interviews, Cristobal embodies the program he has built by preaching toughness and physicality.`\
 https://nytimes.com/athletic/6975155/2026/01/19/mario-cristobal-sideline-body-language/
