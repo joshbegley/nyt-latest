@@ -1,3 +1,11 @@
+**Musk, With a $10 Million Donation, Signals He’s Back for the Midterms**\
+`Elon Musk, the world’s richest person, backed Nate Morris, a Republican businessman, in the primary race to succeed Senator Mitch McConnell in Kentucky.`\
+https://nytimes.com/2026/01/19/us/politics/elon-musk-nate-morris-kentucky-senate-mitch-mcconnell.html
+
+**Slow Emergency Response Blamed in Deadly Fire That Tore Through Pakistani Mall**\
+`The blaze, which killed at least 23 and left dozens more missing during “wedding season,” burned all night and day through a Karachi plaza with hundreds of shops.`\
+https://nytimes.com/2026/01/19/world/asia/pakistan-karachi-fire-mall.html
+
 **Spurs executive Caplehorn to join PL as chief football officer**\
 `The Athletic reported in October that Caplehorn would be leaving the club at the end of the winter transfer window.`\
 https://nytimes.com/athletic/6982998/2026/01/19/premier-league-rebecca-caplehorn-tottenham/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6979852/2026/01/19/buffalo-bills-fire-coach-sean-mc
 **USMNT Player Tracker: Championship strikers make their mark, but more woe for Richards**\
 `The contrasting fortunes endured by Christian Pulisic and Weston McKennie in Italy's Serie A also feature in our weekly round up`\
 https://nytimes.com/athletic/6982716/2026/01/19/usmnt-wright-agyemang-richards-tracker/
-
-**Greenlanders Weigh Options as Trump Threatens Takeover**\
-`Some residents of Greenland are hatching plans to flee by boat, while others are committed to remaining as President Trump demands a deal to buy the autonomous territory of Denmark.`\
-https://nytimes.com/video/world/europe/100000010653541/greenland-trump-exit-plan.html
-
-**Submit your questions for the college basketball mailbag**\
-`Ask us about anything going on in men's college hoops, and we'll do our best to answer.`\
-https://nytimes.com/athletic/6982894/2026/01/19/college-basketball-key-questions/
 
