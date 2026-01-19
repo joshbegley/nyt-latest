@@ -1,4 +1,8 @@
-**AFC Championship Game odds: Patriots open as strong road favorites against Broncos**\
+**In Minneapolis, a Pattern of Misconduct Toward Protesters**\
+`Legal and criminal justice experts said a ruling by a federal judge last week revealed conduct by immigration agents that evokes the civil rights era.`\
+https://nytimes.com/2026/01/18/us/in-minneapolis-a-pattern-of-misconduct-toward-protesters.html
+
+**AFC Championship Game odds: Patriots open as strong road favorites vs. Broncos**\
 `New England is favored by a fair margin as Denver advances without its starting quarterback. `\
 https://nytimes.com/athletic/6980871/2026/01/18/afc-championship-game-odds-patriots-broncos/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6981549/2026/01/18/nhl-trade-grades-rasmus-andersso
 **At Least 10 Killed in High-Speed Train Derailment in Spain**\
 `After the rear carriages of one train derailed onto the opposite track, another train passing by collided with it.`\
 https://nytimes.com/2026/01/18/world/europe/spain-high-speed-train-derailment.html
-
-**Rangers' Vincent Trocheck, Braden Schneider describe 'shock' of retool letter**\
-`Trocheck and Schneider are among New York's players with higher trade values.`\
-https://nytimes.com/athletic/6981364/2026/01/18/ny-rangers-vincent-trocheck-braden-schneider-letter/
 
