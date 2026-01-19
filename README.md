@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6983744/2026/01/19/commanders-offensive-line-coach-
 https://nytimes.com/2026/01/19/world/europe/spain-crash-scene-40-train-track.html
 
 **Broncos open J.K. Dobbins' return window, RB could play in AFC title game**\
-`Denver could have its leading rusher back for a chance to go to the Super Bowl against the Patriots on Sunday.`\
+`Denver could have its leading rusher back Sunday for a chance to go to the Super Bowl against the Patriots.`\
 https://nytimes.com/athletic/6983775/2026/01/19/broncos-jk-dobbins-injury-afc-championship-game/
 
 **Lions hiring Cardinals' Drew Petzing as next offensive coordinator: Source**\
