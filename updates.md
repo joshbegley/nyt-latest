@@ -1,3 +1,7 @@
+**The Rams keep finding ways to win in these playoffs, even when not at their best**\
+`Matthew Stafford wasn't at his best vs. the Bears, but the Rams' defense and special teams stepped up to help propel them to victory.`\
+https://nytimes.com/athletic/6982211/2026/01/19/rams-divisional-round-playoff-win-bears/
+
 **Where might Artemi Panarin accept a trade? 10 potential destinations**\
 `Where might the Rangers find a good fit between trade return and Panarin's no-trade clause?`\
 https://nytimes.com/athletic/6981663/2026/01/19/rangers-panarin-potential-trade-destinations/

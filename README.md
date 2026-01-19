@@ -1,5 +1,5 @@
 **The Rams keep finding ways to win in these playoffs, even when not at their best**\
-`Matthew Stafford wasn't at his best vs. the Bears, but the Rams' defense and special teams stepped up to help propel them to victory.`\
+`Matthew Stafford didn't have his best game vs. the Bears, but the Rams' defense and special teams stepped up to help propel them to victory.`\
 https://nytimes.com/athletic/6982211/2026/01/19/rams-divisional-round-playoff-win-bears/
 
 **Where might Artemi Panarin accept a trade? 10 potential destinations**\
