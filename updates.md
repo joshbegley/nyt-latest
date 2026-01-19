@@ -1,3 +1,7 @@
+**Super Bowl odds: The NFC West owns the board**\
+`Could any of the remaining teams upset the favored Seahawks?`\
+https://nytimes.com/athletic/6983047/2026/01/19/super-bowl-odds-conference-championship-seahawks-rams-patriots/
+
 **Longtime Blues assistant coach Steve Ott takes over AHL Springfield**\
 `The Blues fired Steve Konowalchuk, who was in his second season as head coach of the Thunderbirds.`\
 https://nytimes.com/athletic/6983012/2026/01/19/steve-ott-blues-ahl-springfield-coach/
