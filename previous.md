@@ -1,3 +1,7 @@
+**How to watch Notre Dame vs. UConn women's basketball: Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6983238/2026/01/19/notre-dame-vs-uconn-stream-how-to-watch-jan-19/
+
 **What the Canucks' perfect rebuilding trade deadline could look like in 2026**\
 `Here's our blueprint for a Canucks team that should be aggressively looking to add future assets.`\
 https://nytimes.com/athletic/6982390/2026/01/19/vancouver-canucks-trade-deadline-2026-rebuild-perfect/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6982886/2026/01/19/red-bull-ford-f1-engine/
 **Steelers coaching search tracker: Brian Flores, Anthony Weaver set for in-person interviews**\
 `Brian Flores, Jesse Minter, Anthony Weaver, Nate Scheelhaase and Chris Shula are also set to interview.`\
 https://nytimes.com/athletic/6972698/2026/01/19/steelers-coaching-search-tracker/
-
-**Musk, With a $10 Million Donation, Signals He’s Back for the Midterms**\
-`Elon Musk, the world’s richest person, backed Nate Morris, a Republican businessman, in the primary race to succeed Senator Mitch McConnell in Kentucky.`\
-https://nytimes.com/2026/01/19/us/politics/elon-musk-nate-morris-kentucky-senate-mitch-mcconnell.html
 

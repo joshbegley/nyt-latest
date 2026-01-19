@@ -1,3 +1,7 @@
+**How to watch Notre Dame vs. UConn women's basketball: Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6983238/2026/01/19/notre-dame-vs-uconn-stream-how-to-watch-jan-19/
+
 **What the Canucks' perfect rebuilding trade deadline could look like in 2026**\
 `Here's our blueprint for a Canucks team that should be aggressively looking to add future assets.`\
 https://nytimes.com/athletic/6982390/2026/01/19/vancouver-canucks-trade-deadline-2026-rebuild-perfect/
