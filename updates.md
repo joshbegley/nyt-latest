@@ -1,3 +1,11 @@
+**A Smaller Version of the Sphere in Las Vegas Is Planned for Maryland**\
+`Gov. Wes Moore and the company behind the Sphere said the project in National Harbor, in the Washington metro area, would create jobs and become a landmark attraction.`\
+https://nytimes.com/2026/01/19/us/sphere-maryland-national-harbor.html
+
+**Taxing the Ultrarich**\
+`The number of billionaires has exploded, yet they often pay taxes at rates well below average.`\
+https://nytimes.com/2026/01/19/world/taxing-billionaires-spain-train-crash.html
+
 **Arsenal's Jesus defends Gyokeres: 'I have been in his position'**\
 `The Sweden international has found it difficult to make an early impact in England, scoring eight goals in 26 games`\
 https://nytimes.com/athletic/6983887/2026/01/19/arsenal-gyokeres-form-jesus-striker-goal/
