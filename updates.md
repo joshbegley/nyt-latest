@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6981347/2026/01/19/everton-aston-villa-premier-league/
 
+**Everton needed to change the mood. Now opportunity beckons in a strange Premier League season**\
+`Remarkably, Sunday’s win leaves Everton three points off fifth and four off fourth. It’s been the most bizarre and unpredictable campaign
+`\
+https://nytimes.com/athletic/6981347/2026/01/19/everton-aston-villa-premier-league/
+
 **Newcastle and bluntness, a worrying trend away from home**\
 `Newcastle require an offensive change on the road to ensure they remain in the Champions League hunt`\
 https://nytimes.com/athletic/6980409/2026/01/19/newcastle-away-attacking-wolves/
