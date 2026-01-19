@@ -1,3 +1,7 @@
+**Matthew Stafford leads game-winning OT drive as Rams top Bears, advance to NFC title game**\
+`The Rams will travel to Seattle to face the Seahawks for a third time this season with a trip to the Super Bowl on the line. `\
+https://nytimes.com/athletic/6981907/2026/01/18/rams-bears-score-result-takeaways-nfl-divisional-round/
+
 **Updated 2026 NFL Draft order: Top 28 picks set after divisional round; Bears hold No. 25**\
 `How does Round 1 shape up after a dramatic conclusion to the divisional round?`\
 https://nytimes.com/athletic/6981589/2026/01/18/nfl-draft-order-2026-round-1-bears-bills/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/18/business/china-population-data.html
 **Real Estate Crash Weighs on China’s Economic Growth**\
 `Falling apartment prices have erased the savings of millions of Chinese households, but exports lifted the economy to 5 percent growth last year.`\
 https://nytimes.com/2026/01/18/business/china-gdp-economy.html
-
-**Michela Cava heading to Ottawa Charge in 6-player trade wtih Vancouver Goldeneyes**\
-`Cava, a two-time Walter Cup champion, is heading to Ottawa as part of the largest trade in PWHL history.`\
-https://nytimes.com/athletic/6981513/2026/01/18/michela-cava-pwhl-vancouver-trade/
 
