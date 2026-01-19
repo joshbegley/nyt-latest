@@ -1,3 +1,7 @@
+**49ers defenders hope Robert Saleh returns, vow to learn from loss to Seahawks**\
+`Deommodore Lenoir and the 49ers' defense didn't have a great finish to the season, and they might have a new boss before too long.`\
+https://nytimes.com/athletic/6983392/2026/01/19/49ers-robert-saleh-playoffs-loss-defense/
+
 **Rams had a spicy secret weapon for Chicago's freezing temperatures**\
 `Sunday wasn't the first time that Poona Ford has used cayenne pepper in his socks.`\
 https://nytimes.com/athletic/6983447/2026/01/19/rams-cayenne-pepper-in-socks/
