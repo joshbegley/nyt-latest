@@ -1,40 +1,40 @@
-**U.S. Money Makers**\
-`We take a look at President Trump’s impact on government spending.`\
-https://nytimes.com/2026/01/19/briefing/us-money-makers.html
+**Where might Artemi Panarin accept a trade? 10 potential destinations**\
+`Where might the Rangers find a good fit between trade return and Panarin's no-trade clause?`\
+https://nytimes.com/athletic/6981663/2026/01/19/rangers-panarin-potential-trade-destinations/
 
-**Inside Barcelona: Refereeing anger and what's the latest with Dro and Bernal?**\
-`Barca's lead at the top of La Liga was cut down this weekend, while there were developments with two La Masia starlets`\
-https://nytimes.com/athletic/6982528/2026/01/19/inside-barcelona-real-sociedad-referees-bernal/
+**Pistons trash-talking their way to the top with new Dawg Pound mentality**\
+`Whether is basketball, volleyball or even barefoot soccer, the Detroit Pistons are running with the big dogs. `\
+https://nytimes.com/athletic/6977056/2026/01/19/nba-pistons-dawg-pound-jalen-duren-isaiah-stewart/
 
-**TAFC: AFCON: The most chaotic major final ever? Plus: More manager strife for Frank and Glasner**\
-`Today in TAFC: Walk-offs, fluffed penalty and violence in the AFCON final. Plus: Frank and Glasner on the edge.`\
-https://nytimes.com/athletic/6982454/2026/01/19/afcon-senegal-walk-off-glasner-frank/
+**NBA MLK Day watch guide: Thunder-Cavs, Celtics-Pistons headline holiday lineup**\
+`As is tradition, the NBA celebrates Martin Luther King Jr. Day with wall-to-wall games throughout Monday.`\
+https://nytimes.com/athletic/6978058/2026/01/19/nba-mlk-day-schedule-pistons-celtics-cavaliers-thunder/
 
-**Bears' magic finally ran out in OT loss to the Rams. Here's what they said about it**\
-`The Bears seemed on the precipice of another remarkable comeback win. Instead, they lost on a game-winning, season-ending field goal.`\
-https://nytimes.com/athletic/6982304/2026/01/19/bears-season-ends-reaction-rams-playoffs/
+**Coretta Scott King Classic watch guide: Top-ranked women's squads clash**\
+`Four ranked teams will take the floor Monday in the second annual women's college basketball showcase.`\
+https://nytimes.com/athletic/6975461/2026/01/19/coretta-scott-king-classic-ohio-state-tcu-michigan-vanderbilt/
 
-**Miami or Indiana? This quiz will tell you who to root for to win (or lose) it all **\
-`Do you have a soft spot in your heart for a team that historically cheats? What about one that stinks?`\
-https://nytimes.com/athletic/6980962/2026/01/19/indiana-miami-championship-game-quiz/
+**Loud, wild, magical Bears season ends in heartbreak and silence**\
+`You don't see many standing ovations at the end of a Bears season, but this one was special, even in defeat.`\
+https://nytimes.com/athletic/6982266/2026/01/19/bears-rams-nfl-playoffs-heartbreaking-loss/
 
-**Inside Real Madrid: Boos at the Bernabeu, but suddenly there's a title race**\
-`After a dramatic week, which saw the sacking of Xabi Alonso and disastrous defeat in the Copa del Rey, tensions remain high at the Bernabeu`\
-https://nytimes.com/athletic/6982471/2026/01/19/real-madrid-vinicius-jr-bellingham-arbeloa-perez/
+**Twins' surprising Victor Caratini signing raises questions about disjointed roster**\
+`Caratini is the Twins' first multiyear signing since Carlos Correa three years ago, but further help is needed to compete this season.`\
+https://nytimes.com/athletic/6978642/2026/01/19/minnesota-twins-victor-caratini-free-agent-signing-roster/
 
-**The Pulse: The NFL's final four is set**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6981932/2026/01/19/bears-rams-patriots-texans-the-pulse/
+**Everything you missed (and still should watch for) in CFB's transfer portal**\
+`More than 3,300 FBS scholarship players entered the portal this month. Here's what you need to know about the biggest moves.`\
+https://nytimes.com/athletic/6981530/2026/01/19/college-football-transfer-portal-window-closed/
 
-**MMLR: Will William Nylander have to miss the Olympics?**\
-`The 29-year-old, who continues to lead the Leafs in scoring despite missing 11 games this season, didn’t play in Winnipeg over the weekend.`\
-https://nytimes.com/athletic/6980928/2026/01/19/maple-leafs-william-nylander-injury-olympics-nhl/
+**Next up for Blackhawks' Landon Slaggert: Learning how to finish scoring chances**\
+`It's been 12 games since Slaggert returned from an AHL stint, and he's starting to find his groove again with the Blackhawks.`\
+https://nytimes.com/athletic/6981340/2026/01/19/landon-slaggert-blackhawks-scoring-chances/
 
-**Heroics, mistakes and, for Caleb Williams, a crushing ending to a remarkable Bears season**\
-`Against the Rams, Williams provided flashes of his major talent as well as reminders of how young and unpolished he remains.`\
-https://nytimes.com/athletic/6982296/2026/01/19/bears-caleb-williams-rams-playoffs/
+**Have the Falcons finally found the right fit in head coach Kevin Stefanski?**\
+`Stefanski will be the 20th head coach in franchise history. The Falcons hope it's a while before they have to hire a 21st.`\
+https://nytimes.com/athletic/6981077/2026/01/19/kevin-stefanski-atlanta-falcons-head-coach-fit/
 
-**How will Holloway's injury-shortened season affect his next Blues contract?**\
-`The forward, who missed 15 games with a high-ankle sprain, returned to the lineup Sunday in the Blues' 5-0 loss to the Oilers.`\
-https://nytimes.com/athletic/6977248/2026/01/19/blues-dylan-holloway-injuries-contract/
+**Wild insider: From Trocheck to Stamkos, potential trade fits for Minnesota**\
+`Bill Guerin is still keeping a keen eye on possible trades to bolster the Wild ahead of the deadline.`\
+https://nytimes.com/athletic/6981158/2026/01/19/wild-trade-fits-trocheck-panarin-stamkos/
 

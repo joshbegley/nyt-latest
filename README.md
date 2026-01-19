@@ -1,3 +1,7 @@
+**The Rams keep finding ways to win in these playoffs, even when not at their best**\
+`Matthew Stafford wasn't at his best vs. the Bears, but the Rams' defense and special teams stepped up to help propel them to victory.`\
+https://nytimes.com/athletic/6982211/2026/01/19/rams-divisional-round-playoff-win-bears/
+
 **Where might Artemi Panarin accept a trade? 10 potential destinations**\
 `Where might the Rangers find a good fit between trade return and Panarin's no-trade clause?`\
 https://nytimes.com/athletic/6981663/2026/01/19/rangers-panarin-potential-trade-destinations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6981340/2026/01/19/landon-slaggert-blackhawks-scori
 **Have the Falcons finally found the right fit in head coach Kevin Stefanski?**\
 `Stefanski will be the 20th head coach in franchise history. The Falcons hope it's a while before they have to hire a 21st.`\
 https://nytimes.com/athletic/6981077/2026/01/19/kevin-stefanski-atlanta-falcons-head-coach-fit/
-
-**Wild insider: From Trocheck to Stamkos, potential trade fits for Minnesota**\
-`Bill Guerin is still keeping a keen eye on possible trades to bolster the Wild ahead of the deadline.`\
-https://nytimes.com/athletic/6981158/2026/01/19/wild-trade-fits-trocheck-panarin-stamkos/
 
