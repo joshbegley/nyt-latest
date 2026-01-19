@@ -1,3 +1,7 @@
+**MMLR: Will William Nylander have to miss the Olympics?**\
+`The 29-year-old, who continues to lead the Leafs in scoring despite missing 11 games this season, didn’t play in Winnipeg over the weekend.`\
+https://nytimes.com/athletic/6980928/2026/01/19/maple-leafs-william-nylander-injury-olympics-nhl/
+
 **Heroics, mistakes and, for Caleb Williams, a crushing ending to a remarkable Bears season**\
 `Against the Rams, Williams provided flashes of his major talent as well as reminders of how young and unpolished he remains.`\
 https://nytimes.com/athletic/6982296/2026/01/19/bears-caleb-williams-rams-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6979123/2026/01/19/blue-jackets-monday-gathering-ne
 **With braces off for this Olympics, Juraj Slafkovský ready to feast on the experience again**\
 `Slafkovský's last trip to the Olympics vaulted him to the No. 1 pick in the NHL Draft. What heights might the upcoming Olympics bring?`\
 https://nytimes.com/athletic/6982267/2026/01/19/juraj-slafkovsky-canadiens-olympics-boost/
-
-**Rosenthal: On my 2026 Hall of Fame ballot, an opportunity to revisit some past omissions**\
-`Five candidates who hadn't received Ken's vote on previous ballots earned his endorsement for Cooperstown this time.`\
-https://nytimes.com/athletic/6981725/2026/01/19/hall-of-fame-vote-rosenthal-pettitte-utley-beltran-buehrle/
 
