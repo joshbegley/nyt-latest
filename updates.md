@@ -1,3 +1,15 @@
+**As C.J. Stroud wilts in the biggest moment, Texans stand by their beleaguered QB**\
+`Stroud was hard on himself after a four-turnover performance in the Texans' loss to the Patriots: “I felt like I let a lot of people down."`\
+https://nytimes.com/athletic/6981993/2026/01/18/cj-stroud-texans-loss-patriots-playoffs-struggles/
+
+**‘A Knight of the Seven Kingdoms’ Season 1 Premiere Recap: A Tall Tale**\
+`The latest and most humorous offering in the “Game of Thrones” universe follows the hulking, lovable Ser Duncan, who may or may not be a real knight.`\
+https://nytimes.com/2026/01/18/arts/television/a-knight-of-the-seven-kingdoms-recap-season-1-premiere.html
+
+**Patriots' next challenge: Focus on No. 1 seed (Broncos), not No. 2 quarterback (Stidham)**\
+`Vrabel can’t order players to tune out the talk shows and social media. But he can find the next team-building exercise to keep them hungry.`\
+https://nytimes.com/athletic/6981910/2026/01/18/patriots-texans-afc-championship-broncos/
+
 **NFC Championship Game odds: Seahawks open as small favorites against Rams**\
 `The Seahawks are favorites, albeit by less than a field goal, in the NFC Championship Game against the Rams.`\
 https://nytimes.com/athletic/6981895/2026/01/18/nfc-championship-game-odds-seahawks-rams/
