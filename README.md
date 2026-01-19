@@ -1,3 +1,7 @@
+**Red Wings pass important test in win over Senators: 5 thoughts**\
+`The Red Wings won their second straight game over the Senators, a team that has given them trouble in recent seasons. `\
+https://nytimes.com/athletic/6981823/2026/01/18/red-wings-senators-copp-van-riemsdyk-kasper/
+
 **Patriots Outlast Texans to Advance to A.F.C. Title Game**\
 `New England’s defense forced five turnovers and scored a defensive touchdown on a second-quarter pick six.`\
 https://nytimes.com/video/the-athletic/100000010653552/patriots-outlast-texans-to-advance-to-afc-title-game.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/18/us/claude-alligator-san-francisco-funeral.html
 **Deadly Train Crash in Spain**\
 `Emergency responders worked to evacuate survivors from the wreckage of a deadly crash between two high-speed trains that derailed in Adamuz, Spain, on Sunday.`\
 https://nytimes.com/video/world/europe/100000010653409/deadly-train-crash-in-spain.html
-
-**In Minneapolis, a Pattern of Misconduct Toward Protesters**\
-`Legal and criminal justice experts said a ruling by a federal judge last week revealed conduct by immigration agents that evokes the civil rights era.`\
-https://nytimes.com/2026/01/18/us/minneapolis-federal-agents-misconduct-protesters.html
 

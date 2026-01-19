@@ -1,3 +1,11 @@
+**Patriots Outlast Texans to Advance to A.F.C. Title Game**\
+`New England’s defense forced five turnovers and scored a defensive touchdown on a second-quarter pick six.`\
+https://nytimes.com/video/the-athletic/100000010653552/patriots-outlast-texans-to-advance-to-afc-title-game.html
+
+**Chris Gotterup makes statement with final-round charge at Sony Open**\
+`Gotterup came from three back to run away with the Sony Open in Honolulu for his third career win on the PGA Tour.`\
+https://nytimes.com/athletic/6981958/2026/01/18/chris-gotterup-sony-open-pga-score/
+
 **Trains Collide After Derailment in Spain, Killing at Least 21**\
 `A high-speed train smashed into another train after derailing in the southern province of Córdoba, officials said. The cause of the accident was not immediately clear.`\
 https://nytimes.com/live/2026/01/18/world/spain-high-speed-train-derailment
