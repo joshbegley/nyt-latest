@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6982515/2026/01/19/tottenham-thomas-frank-borussia-
 
 **Starmer Pushes Back Against Greenland Tariff Threat as ‘Completely Wrong’**\
 `The British prime minister said his country “must stand up for its values” after President Trump threatened a new tariff war over acquiring the island.`\
-https://nytimes.com/live/2026/01/18/us/trump-news/starmer-uk-greenland
+https://nytimes.com/2026/01/19/us/politics/starmer-uk-greenland.html
 
 **Missing Miami-Indiana title game 'not an option' for some, even with unprecedented prices**\
 `Get-in prices on the secondary market of $3,500-$4,500 have led some fans to a reckoning: How much are they willing to spend?`\
