@@ -1,3 +1,5 @@
+
+
 **Nick Saban playfully argues NIL era is 'advantage' for Big Ten**\
 `Indiana would be the third straight Big Ten representative to win it all.`\
 https://nytimes.com/athletic/6983954/2026/01/19/nick-saban-nil-advantage-big-ten/
