@@ -1,3 +1,7 @@
+**Josh Shapiro Writes That Harris Team Asked if He Had Ever Been an Israeli Agent**\
+`In his new memoir, the Pennsylvania governor suggests that when Kamala Harris’s team vetted him to be her running mate, aides focused on Israel to an extent he found offensive.`\
+https://nytimes.com/2026/01/18/us/politics/josh-shapiro-memoir-kamala-harris.html
+
 **Arsenal top Deloitte rankings for first time as two clubs pass £20m revenue mark**\
 `Revenues in women’s football are plainly growing - generating more money from viewership, in person and on the sofa, is now a target`\
 https://nytimes.com/athletic/6977022/2026/01/18/arsenal-chelsea-deloitte-finances-womens-game/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/18/us/politics/marine-laser-trump-acquitted.html
 **Comes to Light**\
 `Find your “aha!” moment in Peter Gorman’s puzzle.`\
 https://nytimes.com/2026/01/18/crosswords/daily-puzzle-2026-01-19.html
-
-**A Century of The New York Times in Antarctica**\
-`Our climate reporter Raymond Zhong takes a trip into the New York Times archives to see how our understanding of Antarctica has changed over the past century.`\
-https://nytimes.com/video/climate/100000010542262/a-century-of-the-new-york-times-in-antarctica.html
 

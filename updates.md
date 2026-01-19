@@ -1,3 +1,7 @@
+**Arsenal top Deloitte rankings for first time as two clubs pass £20m revenue mark**\
+`Revenues in women’s football are plainly growing - generating more money from viewership, in person and on the sofa, is now a target`\
+https://nytimes.com/athletic/6977022/2026/01/18/arsenal-chelsea-deloitte-finances-womens-game/
+
 **European Union Officials Lean Toward Negotiating, Not Retaliating, Over Trump Tariff Threat**\
 `European Union ambassadors held an emergency meeting on Sunday, and leaders from across the 27-nation bloc will meet in Brussels later this week.`\
 https://nytimes.com/2026/01/18/world/europe/european-union-respond-trump-greenland.html
