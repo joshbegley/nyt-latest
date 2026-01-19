@@ -1,3 +1,11 @@
+**In win over Bears, Rams used cayenne pepper in socks to stay warm**\
+`Sunday wasn't the first time that Poona Ford has used cayenne pepper in his socks.`\
+https://nytimes.com/athletic/6983447/2026/01/19/rams-cayenne-pepper-in-socks/
+
+**AP men's hoops Top 25: Arizona unanimous No. 1, unbeaten Miami (Ohio) cracks poll**\
+`UConn, Michigan, Purdue and Duke follow Arizona in the top five of this week's AP poll.`\
+https://nytimes.com/athletic/6983474/2026/01/19/ap-top-25-mens-college-basketball-arizona-uconn-miami-ohio/
+
 **Trump Is Pushing the U.S.-Europe Alliance Onto a Precipice**\
 `As President Trump tries to coerce European leaders over Greenland, they are pondering the unthinkable: Is an 80-year-old alliance doomed?`\
 https://nytimes.com/2026/01/19/world/europe/trump-greenland-europe-nato-alliance.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6983479/2026/01/19/zach-charbonnet-injury-seahawks-
 **A$AP Rocky on How Rihanna Changed His Life**\
 `In an exclusive sit-down, A$AP Rocky discussed the release of “Don’t Be Dumb,” his first new album in eight years, plus settling down with his “boo” Rihanna, life as a family man, his forays into Hollywood, influence on rapper fashion and much more.`\
 https://nytimes.com/video/podcasts/100000010654336/aap-rocky-on-how-rihanna-changed-his-life.html
-
-**Clashes Erupt Around Syrian Prisons Holding Islamic State Fighters**\
-`New tensions flared a day after a Kurdish-led militia agreed to hand over control of prisons holding some 8,000 Islamic State fighters to the Syrian government.`\
-https://nytimes.com/2026/01/19/world/middleeast/syria-prisons-isis.html
-
-**A$AP Rocky Clears the Air on His New Drake Diss**\
-`The musician and actor A$AP Rocky sat down with Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, to discuss a new song that fans speculate is aimed at the rapper and pop star Drake.`\
-https://nytimes.com/video/podcasts/100000010654386/aap-rocky-clears-the-air-on-his-new-drake-diss.html
 
