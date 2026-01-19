@@ -1,3 +1,11 @@
+**Lions hiring Cardinals' Drew Petzing as next offensive coordinator: Source**\
+`Petzing spent the past three seasons in Arizona and the 38-year-old has held roles in the NFL since 2013.`\
+https://nytimes.com/athletic/6983697/2026/01/19/detroit-lions-hire-drew-petzing-offensive-coordinator/
+
+**Trump Administration to Appeal Limits on Interactions With Minnesota Protesters**\
+`Justice Department lawyers said they would ask an appellate court to review an injunction that imposes limits on the tactics used by immigration agents.`\
+https://nytimes.com/2026/01/19/us/minnesota-protesters-injunction-appeal-trump.html
+
 **Trump Administration Appeals Limits on Interactions With Minnesota Protesters**\
 `Justice Department lawyers said they would ask an appellate court to review an injunction that imposes limits on the tactics used by immigration agents.`\
 https://nytimes.com/2026/01/19/us/minnesota-protesters-injunction-appeal-trump.html
