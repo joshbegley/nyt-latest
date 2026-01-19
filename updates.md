@@ -1,3 +1,19 @@
+**Jimmy Butler joins our rankings of the most unflattering sports cards of all time**\
+`A puzzling new patch jumps high up our rankings of memorably bad sports cards. `\
+https://nytimes.com/athletic/6975698/2026/01/19/worst-sports-cards-jimmy-butler/
+
+**Read the Texts Between Trump and Norway’s Prime Minister About Greenland**\
+`In the exchange on Sunday, Norway’s leader sought to “de-escalate” the growing conflict over Greenland and Mr. Trump’s latest tariff threat.`\
+https://nytimes.com/2026/01/19/us/politics/read-the-texts-between-trump-and-norways-prime-minister-about-greenland.html
+
+**Prada Alienates in the Right Way**\
+`The coats at the brand’s latest show felt refreshingly awkward.`\
+https://nytimes.com/2026/01/19/style/prada-milan-mens.html
+
+**Valentino Garavani, Regal Designer and Fashion’s ‘Last Emperor,’ Dies at 93**\
+`Valentino, as he was called, created one of the most durable and fashionable labels and became an equal of his high society customers.`\
+https://nytimes.com/2026/01/19/style/valentino-garavani-dead.html
+
 **Coaching candidates fly to Miami to meet with Tom Brady, Raiders brass: Sources**\
 `Several candidates Las Vegas Raiders coaching candidates will be in Miami this week to meet with key franchise decision-makers in person.`\
 https://nytimes.com/athletic/6983134/2026/01/19/tom-brady-raiders-coaching-search-miami/
