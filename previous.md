@@ -1,40 +1,40 @@
-**I.M.F. Raises Forecast for Global Growth as Tariff Drag Fades**\
-`The 3.3 percent rate for 2026 would match last year’s pace. Booming investment in artificial intelligence is buttressing global output.`\
-https://nytimes.com/2026/01/19/business/imf-world-economic-outlook-2026.html
+**FIFA calls for action against Senegal after 'ugly scenes' mar AFCON win**\
+`The final was overshadowed when Senegal's players walked off the pitch before the final whistle and temporarily refused to play.`\
+https://nytimes.com/athletic/6982419/2026/01/19/senegal-morocco-afcon-final-penalty-chaos/
 
-**Rams Outlast Bears in Overtime Playoff Thriller**\
-`The Los Angeles Rams quarterback Matthew Stafford led a game-winning drive against the Chicago Bears to advance to the N.F.C. championship game against the Seattle Seahawks.`\
-https://nytimes.com/video/sports/football/100000010653787/rams-outlast-bears-in-overtime-playoff-thriller.html
+**Syria, in Ruins**\
+`A year after the dictator fell, Syrians are returning to a country with no clear plan for rebuilding.`\
+https://nytimes.com/2026/01/19/world/europe/syria-aleppo-damascus-damage-reconstruction.html
 
-**Stan Wawrinka's last Australian Open, with his heart on his sleeve – and his shorts on his shirt**\
-`Wawrinka, 40, became the second-oldest man to win a match at Melbourne Park after beating Laslo Djere of Serbia Monday.`\
-https://nytimes.com/athletic/6982393/2026/01/19/tennis-australian-open-stan-wawrinka/
+**How the AFCON final descended into chaos: A walk off, a fluffed Panenka and ball boys wrestling a sub**\
+`The month-long tournament burst into life in the latter stages of the final as tensions ran high between Senegal and hosts Morocco in Rabat`\
+https://nytimes.com/athletic/6981824/2026/01/19/afcon-final-senegal-morocco-panenka-towel-inside/
 
-**'I’m Jurgen Klopp, but I had no clue what that meant'**\
-`Interview: The former Liverpool manager discusses his new life at Red Bull — and why he is no managerial 'gravedigger'`\
-https://nytimes.com/athletic/6980414/2026/01/19/jurgen-klopp-red-bull-interview/
+**Why Independent Voters Are Not Necessarily Moderate**\
+`These days, the label “independent” does not necessarily signify moderation or centrism.`\
+https://nytimes.com/2026/01/19/opinion/party-affiliation-independents-midterms.html
 
-**In a State Notorious for Scandal, Corruption Fighters Are Targeted**\
-`An anonymous negative ad campaign has been aimed at New Jersey’s departing attorney general. “It’s a warning to others,” one political scientist said.`\
-https://nytimes.com/2026/01/19/nyregion/new-jersey-corruption-andy-kim-matt-platkin.html
+**Trump Has an Offramp on Greenland. He Doesn’t Seem to Want It.**\
+`The strategic importance of Greenland is growing, and NATO has underinvested in Arctic security. But President Trump, intent on ownership, is rebuffing deals with Europe to solve the problem.`\
+https://nytimes.com/2026/01/19/us/politics/trump-greenland-nato.html
 
-**Could Mamdani’s Child Care Plan Encourage a Baby Boomlet in New York?**\
-`Some New Yorkers hope that raising a child in the city could become more affordable thanks to Mayor Zohran Mamdani’s plans for free child care and preschool.`\
-https://nytimes.com/2026/01/19/nyregion/mamdani-free-child-care-plan-nyc.html
+**Search of Reporter’s Home Tests Law With Roots in a Campus Paper’s Suit**\
+`The Stanford Daily lost a 1978 Supreme Court case over the search of its newsroom. But a bipartisan backlash prompted a federal law protecting journalists.`\
+https://nytimes.com/2026/01/19/us/politics/washington-post-search-press-freedom.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/19/crosswords/spelling-bee-forum.html
+**Trump’s Spectacle of Cruelty in Minneapolis**\
+`Minneapolis stands in defiance to Trump’s dark vision of America.`\
+https://nytimes.com/2026/01/19/opinion/trump-minneapolis-ice.html
 
-**Five Knicks trade ideas — and why they would or wouldn't work**\
-`Evaluating and analyzing Knicks trade proposals sent by fans. `\
-https://nytimes.com/athletic/6965271/2026/01/19/knicks-rumors-trade-deadline/
+**Donald Trump’s Middle Finger**\
+`The president doesn’t have ideals. Just enemies.`\
+https://nytimes.com/2026/01/19/opinion/trump-finger-michigan.html
 
-**NBA All-Star Game 2026: Our voters’ picks for East and West starters**\
-`This year's "game" will feature a round-robin tourney with U.S. and international teams.`\
-https://nytimes.com/athletic/6977270/2026/01/19/nba-all-star-voting-ballots-2026-starters/
+**What to Know About M.L.K. Day**\
+`Since 1986, a federal holiday on the third Monday of January has celebrated the legacy of the Rev. Dr. Martin Luther King Jr.`\
+https://nytimes.com/article/mlk-day-birthday-celebration.html
 
-**Much of Spain’s High-Speed Rail Network Will Be Closed on Monday**\
-`The closures were announced after a high-speed train derailed and smashed into another high-speed train, killing at least 39 people and injuring dozens.`\
-https://nytimes.com/2026/01/19/world/europe/spain-high-speed-rail-closed.html
+**Inside Minnesota Hospitals, ICE Agents Unnerve Staff**\
+`As federal agents swarm the Twin Cities, their presence has also grown in medical centers. Health care workers are pushing back.`\
+https://nytimes.com/2026/01/19/us/inside-minnesota-hospitals-ice-agents-unnerve-staff.html
 
