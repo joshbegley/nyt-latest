@@ -1,15 +1,3 @@
-**LeSean McCoy, DaQuan Jones among Bills stars to rip franchise for firing Sean McDermott**\
-`"Don't make sense but ya got ya wanted," DaQuan Jones said on Instagram.`\
-https://nytimes.com/athletic/6983330/2026/01/19/bills-fire-sean-mcdermott-reactions/
-
-**How the Cleveland Orchestra Stays at the Top of Classical Music**\
-`Our critic tracked one concert, from its first rehearsals to its first performance. Practice is only part of what makes this ensemble excellent.`\
-https://nytimes.com/2026/01/19/arts/music/cleveland-orchestra.html
-
-**Zohran Mamdani to ask Donald Trump to reverse travel bans ahead of World Cup**\
-`Citizens of Senegal, Ivory Coast, Iran and Haiti, four countries that have qualified for the World Cup, cannot currently travel to the U.S.`\
-https://nytimes.com/athletic/6981658/2026/01/19/zohran-mamdani-donald-trump-reverse-travel-bans-world-cup/
-
 **Federal Reserve Inquiry Clouds Trump’s Supreme Court Bid to Oust Lisa Cook**\
 `The court is set to hear Ms. Cook’s case challenging her firing as the Justice Department investigates Jerome H. Powell, the central bank chair.`\
 https://nytimes.com/2026/01/19/us/politics/supreme-court-federal-reserve-cook-powell.html
@@ -24,7 +12,7 @@ https://nytimes.com/athletic/6975698/2026/01/19/worst-sports-cards-jimmy-butler/
 
 **Read the Texts Between Trump and Norway’s Prime Minister About Greenland**\
 `In the exchange on Sunday, Norway’s leader sought to “de-escalate” the growing conflict over Greenland and Mr. Trump’s latest tariff threat.`\
-https://nytimes.com/2026/01/19/us/politics/trump-norway-prime-minister-texts-greenland.html
+https://nytimes.com/2026/01/19/us/politics/read-the-texts-between-trump-and-norways-prime-minister-about-greenland.html
 
 **Serie A Briefing: Malen and Fullkrug's impact, remembering Rocco and the return of Bove?**\
 `Bove looks set to join Watford from Roma, 13 months after suffering a cardiac arrest on the pitch while playing for Fiorentina`\
@@ -37,4 +25,16 @@ https://nytimes.com/2026/01/19/style/prada-milan-mens.html
 **Valentino Garavani, Regal Designer and Fashion’s ‘Last Emperor,’ Dies at 93**\
 `Valentino, as he was called, created one of the most durable and fashionable labels and became an equal of his high society customers.`\
 https://nytimes.com/2026/01/19/style/valentino-garavani-dead.html
+
+**Coaching candidates fly to Miami to meet with Tom Brady, Raiders brass: Sources**\
+`Several candidates Las Vegas Raiders coaching candidates will be in Miami this week to meet with key franchise decision-makers in person.`\
+https://nytimes.com/athletic/6983134/2026/01/19/tom-brady-raiders-coaching-search-miami/
+
+**Super Bowl MVP odds: Sam Darnold jumps Matthew Stafford**\
+`It's the NFC West at the top again in Super Bowl odds. Half of the top 10 contenders are from one team.`\
+https://nytimes.com/athletic/6983103/2026/01/19/super-bowl-2026-mvp-updated-odds-darnold-stafford/
+
+**Train Crash in Southern Spain Kills Dozens**\
+`A train crash in southern Spain involving two trains killed dozens on Sunday. The cause of the crash, the deadliest in Spain since 2013, was still being investigated on Monday.`\
+https://nytimes.com/video/world/europe/100000010654252/train-crash-in-southern-spain-kills-dozens.html
 
