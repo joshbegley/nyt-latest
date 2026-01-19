@@ -1,3 +1,11 @@
+**Guatemala Declares State of Emergency as Gang Violence Surges**\
+`President Bernardo Arévalo of Guatemala declared a 30-day state of emergency to address gang violence. A surge of unrest in recent days has included uprisings at three prisons and the killing of eight police officers.`\
+https://nytimes.com/video/world/americas/100000010653979/guatemala-emergency-prisons-gangs.html
+
+**A preview of The Athletic’s live coverage this week**\
+`The Athletic's live coverage this week includes the CFP National Championship and NFL Conference Championship games.`\
+https://nytimes.com/athletic/6982605/2026/01/19/the-athletics-weekly-live-coverage-cfp-national-championship-nfl-conference-championships-and-more/
+
 **Mbappe says Madrid fans should boo 'whole squad, not just a few players'**\
 `Jude Bellingham and Vinicius Jr were jeered by fans during their win against Levante after being knocked out of the Copa del Rey.`\
 https://nytimes.com/athletic/6982705/2026/01/19/kylian-mbappe-real-madrid-fans-boo-bellingham-vinicius/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6982774/2026/01/19/vanderbilt-vs-michigan-stream-ho
 **How to watch Harvard vs. Princeton women's basketball: Time, TV, streaming**\
 `Find out how to watch the Harvard Crimson play the Princeton Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6982771/2026/01/19/harvard-vs-princeton-stream-how-to-watch-jan-19/
-
-**Denied Peace Prize, Trump Tells Norway He’ll Push for Greenland**\
-`In a text message, President Trump told Norway’s prime minister that he no longer felt obliged to “think purely of Peace” and that the world would not be secure until America controlled the island.`\
-https://nytimes.com/2026/01/19/world/europe/trump-norway-greenland-nobel.html
-
-**Trump Administration Live Updates: President Linked Greenland Push to Nobel Prize Snub, Officials Say**\
-``\
-https://nytimes.com/live/2026/01/19/us/trump-news
 
