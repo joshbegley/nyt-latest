@@ -1,3 +1,5 @@
+
+
 **Josh Allen is in his prime. The Bills fired Sean McDermott before it was too late**\
 `The post-game scene after the playoff loss may have been a signal that a change was needed right away.`\
 https://nytimes.com/athletic/6983716/2026/01/19/josh-allen-future-bills-sean-mcdermott-brandon-beane/
