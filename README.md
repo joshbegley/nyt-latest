@@ -1,3 +1,7 @@
+**Scoop City: What is a catch, anyways?**\
+`Debating a catch in the NFL, Bills join coaching carousel and we prep for the conference championships`\
+https://nytimes.com/athletic/6983743/2026/01/19/nfl-divisional-round-2-bills-bears-interception-rules-scoop-city/
+
 **Blues assistant Steve Ott takes over AHL Springfield: What it means for the PP — and Ott's future**\
 `Blues coach Jim Montgomery said the move could help Ott's development into an NHL head coach: "I know he's going to do a great job."`\
 https://nytimes.com/athletic/6983012/2026/01/19/steve-ott-blues-ahl-springfield-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/19/world/europe/france-budget-no-confidence-vote.htm
 **49ers defenders hope Robert Saleh returns, vow to learn from loss to Seahawks**\
 `Deommodore Lenoir and the 49ers' defense didn't have a great finish to the season, and they might have a new coordinator before too long.`\
 https://nytimes.com/athletic/6983392/2026/01/19/49ers-robert-saleh-playoffs-loss-defense/
-
-**Protest at Minnesota Church Service Adds to Tensions Over ICE Tactics**\
-`The Justice Department said it would investigate the protest over a pastor’s apparent role in immigration enforcement in the state.`\
-https://nytimes.com/2026/01/19/us/politics/minnesota-church-protest-ice.html
 
