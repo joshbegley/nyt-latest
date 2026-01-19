@@ -1,3 +1,7 @@
+**Zohran Mamdani to ask Donald Trump to reverse travel bans ahead of World Cup**\
+`Citizens of Senegal, Ivory Coast, Iran and Haiti, four countries that have qualified for the World Cup, cannot currently travel to the U.S.`\
+https://nytimes.com/athletic/6981658/2026/01/19/zohran-mamdani-donald-trump-reverse-travel-bans-world-cup/
+
 **Federal Reserve Inquiry Clouds Trump’s Supreme Court Bid to Oust Lisa Cook**\
 `The court is set to hear Ms. Cook’s case challenging her firing as the Justice Department investigates Jerome H. Powell, the central bank chair.`\
 https://nytimes.com/2026/01/19/us/politics/supreme-court-federal-reserve-cook-powell.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983134/2026/01/19/tom-brady-raiders-coaching-searc
 **Super Bowl MVP odds: Sam Darnold jumps Matthew Stafford**\
 `It's the NFC West at the top again in Super Bowl odds. Half of the top 10 contenders are from one team.`\
 https://nytimes.com/athletic/6983103/2026/01/19/super-bowl-2026-mvp-updated-odds-darnold-stafford/
-
-**Train Crash in Southern Spain Kills Dozens**\
-`A train crash in southern Spain involving two trains killed dozens on Sunday. The cause of the crash, the deadliest in Spain since 2013, was still being investigated on Monday.`\
-https://nytimes.com/video/world/europe/100000010654252/train-crash-in-southern-spain-kills-dozens.html
 
