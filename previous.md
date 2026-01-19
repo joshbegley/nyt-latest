@@ -1,3 +1,15 @@
+**The Briefing: Are managers trying to get sacked? Why are fans so angry? How good were Man Utd?**\
+`Dissecting the major talking points from the Premier League weekend, featuring public outbursts, protests and a strangely good Man Utd`\
+https://nytimes.com/athletic/6980606/2026/01/19/oliver-glasner-sack-fans-angry-man-utd/
+
+**The Anfield experience in 2026: The good, the bad and the queues**\
+`Liverpool's home ground is one of the world's great arenas but not everyone is satisfied at the matchday experience`\
+https://nytimes.com/athletic/6980404/2026/01/19/anfield-liverpool-fans-experience/
+
+**How Manchester United's attacking rotations left Manchester City in a spin**\
+`Michael Carrick and his staff had the right attacking ideas on Saturday — and it was the players' execution that brought it to life`\
+https://nytimes.com/athletic/6980337/2026/01/19/manchester-united-attacking-rotation-manchester-city-analysis/
+
 **Cup exit, ‘fake news’ and Dembele magic: Are PSG wobbling or just getting going?**\
 `The European champions are yet to scale the heights of last season's quadruple win, but there are signs they may be about to click into gear`\
 https://nytimes.com/athletic/6980442/2026/01/19/psg-ligue-1-champions-league-luis-enrique/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/19/world/asia/new-zealand-australia-moving-relocatio
 **Can Vietnam’s Communist Party Supercharge Its Economy With Private Enterprise?**\
 `One of Asia’s most dynamic nations is weighing how to balance government control with raising per capita G.D.P. by about 70 percent in five years.`\
 https://nytimes.com/2026/01/19/world/asia/vietnam-communist-party-congress-economy.html
-
-**Miami vs. Indiana CFP watch guide: TV, broadcast info for national title game**\
-`No. 1 Indiana steamrolled to a 15-0 campaign. Miami shocked the bracket as the 10th seed. The two sides meet in Monday's championship game.`\
-https://nytimes.com/athletic/6975310/2026/01/19/miami-indiana-cfp-national-championship-stream-tv/
-
-**Connections: Sports Edition Coach: Hints for Jan. 19, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6981959/2026/01/19/connections-sports-edition-hints-for-jan-19-2026/
-
-**What We Know About the Deadly High-Speed Train Crash in Spain**\
-`The collision, caused by the derailment of one of the trains, was the deadliest in Spain since at least 2013.`\
-https://nytimes.com/2026/01/18/world/europe/what-we-know-spain-train-crash.html
 

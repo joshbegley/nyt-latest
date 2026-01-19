@@ -1,3 +1,15 @@
+**The Briefing: Are managers trying to get sacked? Why are fans so angry? How good were Man Utd?**\
+`Dissecting the major talking points from the Premier League weekend, featuring public outbursts, protests and a strangely good Man Utd`\
+https://nytimes.com/athletic/6980606/2026/01/19/oliver-glasner-sack-fans-angry-man-utd/
+
+**The Anfield experience in 2026: The good, the bad and the queues**\
+`Liverpool's home ground is one of the world's great arenas but not everyone is satisfied at the matchday experience`\
+https://nytimes.com/athletic/6980404/2026/01/19/anfield-liverpool-fans-experience/
+
+**How Manchester United's attacking rotations left Manchester City in a spin**\
+`Michael Carrick and his staff had the right attacking ideas on Saturday — and it was the players' execution that brought it to life`\
+https://nytimes.com/athletic/6980337/2026/01/19/manchester-united-attacking-rotation-manchester-city-analysis/
+
 **Cup exit, ‘fake news’ and Dembele magic: Are PSG wobbling or just getting going?**\
 `The European champions are yet to scale the heights of last season's quadruple win, but there are signs they may be about to click into gear`\
 https://nytimes.com/athletic/6980442/2026/01/19/psg-ligue-1-champions-league-luis-enrique/
