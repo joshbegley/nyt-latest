@@ -1,3 +1,7 @@
+**Spurs executive Caplehorn to join PL as chief football officer**\
+`The Athletic reported in October that Caplehorn would be leaving the club at the end of the winter transfer window.`\
+https://nytimes.com/athletic/6982998/2026/01/19/premier-league-rebecca-caplehorn-tottenham/
+
 **Curt Cignetti's sideline faces have gone viral. Mario Cristobal is just as intense**\
 `In his demeanor on the sideline and in interviews, Cristobal embodies the program he has built by preaching toughness and physicality.`\
 https://nytimes.com/athletic/6975155/2026/01/19/mario-cristobal-sideline-body-language/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010653541/greenland-trump-exit-plan
 **Submit your questions for the college basketball mailbag**\
 `Ask us about anything going on in men's college hoops, and we'll do our best to answer.`\
 https://nytimes.com/athletic/6982894/2026/01/19/college-basketball-key-questions/
-
-**Curt Cignetti's 'I win. Google me' and the best call-your-shot moments in sports**\
-`From Joe Namath to Muhammad Ali to Tim Tebow, sports figures making bold proclamations is nothing new.`\
-https://nytimes.com/athletic/6981351/2026/01/19/curt-cignetti-google-me-indiana-football-coach/
 
