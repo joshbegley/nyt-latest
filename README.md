@@ -1,3 +1,7 @@
+**FPL Gameweek 22 review: Man Utd’s winners, Chelsea triple-up, and Saka uncertainty**\
+`Another round of fresh dilemmas hit FPL managers — what looked like a fairly routine set of fixtures instead produced turning points`\
+https://nytimes.com/athletic/6981337/2026/01/19/fantasy-premier-league-fpl-gameweek-22-review/
+
 **The transfer portal is closed. Here's how Michigan's offense has changed**\
 `Michigan lost a few key players but avoided the mass exodus that was feared, headlined by the return of quarterback Bryce Underwood.`\
 https://nytimes.com/athletic/6979233/2026/01/19/michigan-football-roster-2026-transfer-portal-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6978642/2026/01/19/minnesota-twins-victor-caratini-
 **Everything you missed (and still should watch for) in CFB's transfer portal**\
 `More than 3,300 FBS scholarship players entered the portal this month. Here's what you need to know about the biggest moves.`\
 https://nytimes.com/athletic/6981530/2026/01/19/college-football-transfer-portal-window-closed/
-
-**Next up for Blackhawks' Landon Slaggert: Learning how to finish scoring chances**\
-`It's been 12 games since Slaggert returned from an AHL stint, and he's starting to find his groove again with the Blackhawks.`\
-https://nytimes.com/athletic/6981340/2026/01/19/landon-slaggert-blackhawks-scoring-chances/
 
