@@ -1,3 +1,19 @@
+**What the Canucks' perfect rebuilding trade deadline could look like in 2026**\
+`Here's our blueprint for a Canucks team that should be aggressively looking to add future assets.`\
+https://nytimes.com/athletic/6982390/2026/01/19/vancouver-canucks-trade-deadline-2026-rebuild-perfect/
+
+**Do Cows Use Tools? This One Does.**\
+`A pet cow named Veronika can scratch her own back with a broom — the first scientifically documented case of tool use in cows, researchers say.`\
+https://nytimes.com/2026/01/19/science/animals-cows-intelligence-tools.html
+
+**Exceedingly Easy With Plenty of Protein**\
+`That’s Hetty Lui McKinnon’s new tofu and sweet potato peanut butter curry, which gets real zip from ginger, curry powder and chile flakes.`\
+https://nytimes.com/2026/01/19/dining/exceedingly-easy-with-plenty-of-protein.html
+
+**NBA Power Rankings: Should every team have an All-Star rep? No, but we'll do it anyway**\
+`All-Star talk aside, the Celtics have made a jump into our top tier, but the top team remains the same.`\
+https://nytimes.com/athletic/6982992/2026/01/19/nba-power-rankings-celtic-warriors-all-star/
+
 **Super Bowl odds: The NFC West owns the board**\
 `Could any of the remaining teams upset the favored Seahawks?`\
 https://nytimes.com/athletic/6983047/2026/01/19/super-bowl-odds-conference-championship-seahawks-rams-patriots/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6972698/2026/01/19/steelers-coaching-search-tracker
 **Musk, With a $10 Million Donation, Signals He’s Back for the Midterms**\
 `Elon Musk, the world’s richest person, backed Nate Morris, a Republican businessman, in the primary race to succeed Senator Mitch McConnell in Kentucky.`\
 https://nytimes.com/2026/01/19/us/politics/elon-musk-nate-morris-kentucky-senate-mitch-mcconnell.html
-
-**Slow Emergency Response Blamed in Deadly Fire That Tore Through Pakistani Mall**\
-`The blaze, which killed at least 23 and left dozens more missing during “wedding season,” burned all night and day through a Karachi plaza with hundreds of shops.`\
-https://nytimes.com/2026/01/19/world/asia/pakistan-karachi-fire-mall.html
-
-**Spurs executive Caplehorn to join PL as chief football officer**\
-`The Athletic reported in October that Caplehorn would be leaving the club at the end of the winter transfer window.`\
-https://nytimes.com/athletic/6982998/2026/01/19/premier-league-rebecca-caplehorn-tottenham/
-
-**Curt Cignetti's sideline faces have gone viral. Mario Cristobal is just as intense**\
-`In his demeanor on the sideline and in interviews, Cristobal embodies the program he has built by preaching toughness and physicality.`\
-https://nytimes.com/athletic/6975155/2026/01/19/mario-cristobal-sideline-body-language/
-
-**Trump’s Trade Negotiator Says Response to Court Loss Would Be Immediate**\
-`If the Supreme Court rules against its tariffs, the Trump administration would begin replacing them immediately, said Jamieson Greer, the United States Trade Representative.`\
-https://nytimes.com/2026/01/19/us/politics/trump-tariffs-supreme-court-greer-trade.html
 
