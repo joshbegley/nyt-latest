@@ -1,3 +1,15 @@
+**Jimmy Butler joins our rankings of the most unflattering sports cards of all time**\
+`A puzzling new patch jumps high up our rankings of memorably bad sports cards. `\
+https://nytimes.com/athletic/6975698/2026/01/19/worst-sports-cards-jimmy-butler/
+
+**Read the Texts Between Trump and Norway’s Prime Minister About Greenland**\
+`In the exchange on Sunday, Norway’s leader sought to “de-escalate” the growing conflict over Greenland and Mr. Trump’s latest tariff threat.`\
+https://nytimes.com/2026/01/19/us/politics/read-the-texts-between-trump-and-norways-prime-minister-about-greenland.html
+
+**Prada Alienates in the Right Way**\
+`The coats at the brand’s latest show felt refreshingly awkward.`\
+https://nytimes.com/2026/01/19/style/prada-milan-mens.html
+
 **Valentino Garavani, Regal Designer and Fashion’s ‘Last Emperor,’ Dies at 93**\
 `Valentino, as he was called, created one of the most durable and fashionable labels and became an equal of his high society customers.`\
 https://nytimes.com/2026/01/19/style/valentino-garavani-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6977560/2026/01/19/marc-guehi-manchester-city-fit-a
 **Frank says he feels 'trust' of Spurs leadership, confident of winning fans back**\
 `Frank said that he had lunch with CEO Vinai Venkatesham, sporting director Johan Lange and the Lewis family's Nick Beucher on Monday.`\
 https://nytimes.com/athletic/6983126/2026/01/19/thomas-frank-tottenham-future-latest/
-
-**Why a 1930s Bag Has Never Gone Out of Style**\
-`New iterations of a classic accessory, designed to be on the move.`\
-https://nytimes.com/2026/01/19/t-magazine/top-handle-bags.html
-
-**How to watch Pacers vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6983276/2026/01/19/pacers-vs-76ers-stream-how-to-watch-jan-19/
-
-**The crash occurred on a new stretch of high-speed rail track, officials say.**\
-`By Ali Watkins`\
-https://nytimes.com/live/2026/01/18/world/spain-high-speed-train-derailment/the-crash-occurred-on-a-new-stretch-of-high-speed-rail-track-officials-say
 
