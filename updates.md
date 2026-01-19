@@ -1,3 +1,7 @@
+**Zohran Mamdani to ask Donald Trump to reverse travel bans ahead of World Cup**\
+`Citizens of Senegal, Ivory Coast, Iran and Haiti, four countries that have qualified for the World Cup, cannot currently travel to the U.S.`\
+https://nytimes.com/athletic/6981658/2026/01/19/zohran-mamdani-donald-trump-reverse-travel-bans-world-cup/
+
 **Read the Texts Between Trump and Norway’s Prime Minister About Greenland**\
 `In the exchange on Sunday, Norway’s leader sought to “de-escalate” the growing conflict over Greenland and Mr. Trump’s latest tariff threat.`\
 https://nytimes.com/2026/01/19/us/politics/trump-norway-prime-minister-texts-greenland.html
