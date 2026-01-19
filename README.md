@@ -20,7 +20,7 @@ https://nytimes.com/athletic/6975155/2026/01/19/mario-cristobal-sideline-body-la
 
 **Trump’s Trade Negotiator Says Response to Court Loss Would Be Immediate**\
 `If the Supreme Court rules against its tariffs, the Trump administration would begin replacing them immediately, said Jamieson Greer, the United States Trade Representative.`\
-https://nytimes.com/2026/01/19/us/politics/trumps-trade-negotiator-says-response-to-court-loss-would-be-immediate.html
+https://nytimes.com/2026/01/19/us/politics/trump-tariffs-supreme-court-greer-trade.html
 
 **Bills fans: Share your thoughts on Buffalo firing Sean McDermott**\
 `Do you think the Bills made the right move if firing their head coach?`\
