@@ -1,3 +1,7 @@
+**Snap Settles Social Media Addiction Lawsuit Ahead of a Landmark Trial**\
+`The settlement means Snap will avoid a trial where plaintiffs had planned to argue that social media platforms are inherently defective and subject to personal injury liability.`\
+https://nytimes.com/2026/01/20/technology/snap-social-media-addiction-lawsuit.html
+
 **Replica of Trump’s Birthday Message to Epstein Appears on National Mall**\
 `An oversize card reproduces a suggestive birthday greeting from 2003, released as part of a congressional inquiry. President Trump has denied that he signed it.`\
 https://nytimes.com/2026/01/20/us/politics/trump-epstein-birthday-card-national-mall.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986703/2026/01/20/raptors-vs-warriors-stream-how-t
 **How to watch Heat vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Miami Heat play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6986698/2026/01/20/heat-vs-kings-stream-how-to-watch-jan-20/
-
-**How to watch Devils vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6986695/2026/01/20/devils-vs-oilers-stream-how-to-watch-jan-20/
 
