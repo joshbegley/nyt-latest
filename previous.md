@@ -1,3 +1,15 @@
+**How to watch Clippers vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6986705/2026/01/20/clippers-vs-bulls-stream-how-to-watch-jan-20/
+
+**How to watch Raptors vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6986703/2026/01/20/raptors-vs-warriors-stream-how-to-watch-jan-20/
+
+**How to watch Heat vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6986698/2026/01/20/heat-vs-kings-stream-how-to-watch-jan-20/
+
 **How to watch Devils vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6986695/2026/01/20/devils-vs-oilers-stream-how-to-watch-jan-20/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6986676/2026/01/20/blues-vs-jets-stream-how-to-watc
 **How to watch Timberwolves vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Minnesota Timberwolves play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6986674/2026/01/20/timberwolves-vs-jazz-stream-how-to-watch-jan-20/
-
-**How to watch Bruins vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6986669/2026/01/20/bruins-vs-stars-stream-how-to-watch-jan-20/
-
-**How to watch Vanderbilt vs. Arkansas men's basketball: Time, TV, streaming**\
-`Find out how to watch the Vanderbilt Commodores play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6986665/2026/01/20/vanderbilt-vs-arkansas-stream-how-to-watch-jan-20/
-
-**How to watch Patriots at Broncos: AFC Championship Game Time, TV, streaming**\
-`Find out how to watch the New England Patriots play the Denver Broncos, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6986660/2026/01/20/patriots-vs-broncos-stream-how-to-watch-jan-25/
 

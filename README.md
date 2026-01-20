@@ -1,3 +1,7 @@
+**Can the Giants still improve their outfield in what's left of the offseason?**\
+`The Giants could use an outfield upgrade, though the remaining options may not improve them as much as addressing other needs.`\
+https://nytimes.com/athletic/6986538/2026/01/20/sf-giants-outfield-improvements-offseason/
+
 **How to watch Clippers vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6986705/2026/01/20/clippers-vs-bulls-stream-how-to-watch-jan-20/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986682/2026/01/20/rangers-vs-kings-stream-how-to-w
 **How to watch Blues vs. Jets: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Winnipeg Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6986676/2026/01/20/blues-vs-jets-stream-how-to-watch-jan-20/
-
-**How to watch Timberwolves vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6986674/2026/01/20/timberwolves-vs-jazz-stream-how-to-watch-jan-20/
 

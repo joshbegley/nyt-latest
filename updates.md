@@ -1,3 +1,15 @@
+**How to watch Clippers vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6986705/2026/01/20/clippers-vs-bulls-stream-how-to-watch-jan-20/
+
+**How to watch Raptors vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6986703/2026/01/20/raptors-vs-warriors-stream-how-to-watch-jan-20/
+
+**How to watch Heat vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6986698/2026/01/20/heat-vs-kings-stream-how-to-watch-jan-20/
+
 **How to watch Devils vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6986695/2026/01/20/devils-vs-oilers-stream-how-to-watch-jan-20/
