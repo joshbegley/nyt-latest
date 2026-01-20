@@ -1,3 +1,7 @@
+**After Four Shark Attacks in 48 Hours, Australia Shuts Dozens of Beaches**\
+`Many of the closed beaches were in Sydney, the site of three of the attacks.`\
+https://nytimes.com/2026/01/20/world/australia/australia-sydney-shark-attacks.html
+
 **Word of the Day: transcend**\
 `This word has appeared in 299 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/20/learning/word-of-the-day-transcend.html
