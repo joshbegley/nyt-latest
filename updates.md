@@ -1,3 +1,8 @@
+**Madison Keys returns to Australian Open and finds her clutch tennis right where she left it**\
+`The defending champion played the stratospheric attacking tennis that won the 2025 title to escape danger against Oleksandra Oliynykova.
+`\
+https://nytimes.com/athletic/6984534/2026/01/19/tennis-australian-open-madison-keys-oliynykova/
+
 **Quote of the Day: Starmer Decries U.S. Threat Of Tariff War Over Greenland**\
 `Quotation of the Day for Tuesday, January 20, 2025.`\
 https://nytimes.com/2026/01/19/pageoneplus/quote-of-the-day-starmer-decries-us-threat-of-tariff-war-over-greenland.html

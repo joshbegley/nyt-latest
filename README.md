@@ -1,3 +1,19 @@
+**Trees for goalposts: The small Scottish park that became a talent hotbed**\
+`A small park in a mining town near Glasgow produced John Robertson, Jimmy Johnstone and a host of other future professional players`\
+https://nytimes.com/athletic/6948117/2026/01/20/robertson-johnstone-scotland-viewpark-glasgow/
+
+**How Manchester United play: What can Michael Carrick build on, and what should he discard?**\
+`The Athletic's series taking the tactical temperature at the Premier League's 'Big Six' concludes with a look at a United side in flux `\
+https://nytimes.com/athletic/6973824/2026/01/20/how-manchester-united-play-premier-league-tactics/
+
+**Bundesliga Briefing: Dayot Upamecano and Michael Olise shine for Bayern, farewell to Timo Werner**\
+`Vincent Kompany's Bayern won emphatically once again despite the best efforts of a spirited RB Leipzig`\
+https://nytimes.com/athletic/6982649/2026/01/20/bundesliga-briefing-bayern-leipzig-upamecano-olise/
+
+**College football 2026-27 national title odds: Ohio State, Notre Dame lead pack**\
+`Indiana just won the national title, but Ohio State and Notre Dame are the co-favorites to win it next year.`\
+https://nytimes.com/athletic/6984544/2026/01/20/2026-27-college-football-national-title-odds-ohio-state-notre-dame-indiana/
+
 **Maguire, Gallagher and four months to make it to the World Cup**\
 `Neither Maguire nor Gallagher appear to be in Tuchel's thoughts, but both are playing under new managers. Can they make it to North America?`\
 https://nytimes.com/athletic/6982888/2026/01/20/maguire-gallagher-england-world-cup-tuchel/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6981689/2026/01/19/tennessee-titans-hire-robert-sal
 **Quote of the Day: Starmer Decries U.S. Threat Of Tariff War Over Greenland**\
 `Quotation of the Day for Tuesday, January 20, 2025.`\
 https://nytimes.com/2026/01/19/pageoneplus/quote-of-the-day-starmer-decries-us-threat-of-tariff-war-over-greenland.html
-
-**Feldman: Why Curt Cignetti is college football's best coach right now**\
-`Curt Cignetti has pushed exactly the right button every time on his way to the top of college football's new world.`\
-https://nytimes.com/athletic/6984649/2026/01/19/curt-cignetti-indiana-college-football-coaches/
-
-**Five pivotal plays that powered Indiana to its first national championship**\
-`Fernando Mendoza's touchdown. Charlie Becker's catches. Jamari Sharpe's interception. These are the plays that won it for IU.`\
-https://nytimes.com/athletic/6984646/2026/01/19/indiana-football-fernando-mendoza-charlie-becker-national-championship/
-
-**Warriors' Jimmy Butler exits game vs. Heat with right knee injury**\
-`Butler stayed on the ground for a couple minutes while Warriors staff members checked on him and the Chase Center crowd fell silent.`\
-https://nytimes.com/athletic/6984698/2026/01/19/jimmy-butler-injury-knee-warriors-heat/
-
-**Post-Luka Dončić trade, Max Christie making mark for Mavericks**\
-`The shooting-starved Mavericks have prodded Christie to take more 3-pointers all year.`\
-https://nytimes.com/athletic/6984484/2026/01/19/mavericks-max-christie-3-pointers-post-luka-doncic/
 
