@@ -1,3 +1,11 @@
+**Cursive Makes a Comeback in New Jersey Schools**\
+`In one of his final acts in office, Gov. Philip D. Murphy signed a bill on Monday requiring third, fourth and fifth graders to learn cursive.`\
+https://nytimes.com/2026/01/20/nyregion/cursive-new-jersey-schools.html
+
+**Ter Stegen joins Girona on loan from Barca**\
+`Ter Stegen wants to play at this summer’s World Cup for Germany and needs to be in regular action at club level to do that.`\
+https://nytimes.com/athletic/6957177/2026/01/20/ter-stegen-barcelona-transfer-girona-loan/
+
 **Snap Settles Social Media Addiction Lawsuit Ahead of a Landmark Trial**\
 `The settlement means Snap will avoid a trial where plaintiffs had planned to argue that social media platforms are inherently defective and subject to personal injury liability.`\
 https://nytimes.com/2026/01/20/technology/snap-social-media-addiction-lawsuit.html
