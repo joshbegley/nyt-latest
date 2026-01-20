@@ -1,3 +1,7 @@
+**Why Liverpool didn't go back in for Marc Guehi - and where it leaves them**\
+`Look at the numbers and there is logic behind Liverpool's decision not to rival City for Guehi this month. But it is also a gamble... `\
+https://nytimes.com/athletic/6982783/2026/01/20/liverpool-marc-guehi-man-city-transfer/
+
 **Marc Guehi was Crystal Palace's greatest centre-half. His departure leaves a void**\
 `The England defender's consistent excellence may only be properly felt now that he has gone, but he departs Selhurst Park as a club hero`\
 https://nytimes.com/athletic/6980601/2026/01/20/marc-guehi-crystal-palace-farewell/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6948117/2026/01/20/robertson-johnstone-scotland-vie
 **How Manchester United play: What can Michael Carrick build on, and what should he discard?**\
 `The Athletic's series taking the tactical temperature at the Premier League's 'Big Six' concludes with a look at a United side in flux `\
 https://nytimes.com/athletic/6973824/2026/01/20/how-manchester-united-play-premier-league-tactics/
-
-**Bundesliga Briefing: Dayot Upamecano and Michael Olise shine for Bayern, farewell to Timo Werner**\
-`Vincent Kompany's Bayern won emphatically once again despite the best efforts of a spirited RB Leipzig`\
-https://nytimes.com/athletic/6982649/2026/01/20/bundesliga-briefing-bayern-leipzig-upamecano-olise/
 

@@ -1,3 +1,7 @@
+**Miami RB Fletcher throws punch at IU lineman, later hugs QB Fernando Mendoza**\
+`Fletcher and Tucker were separated after a postgame altercation. `\
+https://nytimes.com/athletic/6984809/2026/01/20/mark-fletcher-tyrique-tucker-punch-fernando-mendoza/
+
 **Why Liverpool didn't go back in for Marc Guehi - and where it leaves them**\
 `Look at the numbers and there is logic behind Liverpool's decision not to rival City for Guehi this month. But it is also a gamble... `\
 https://nytimes.com/athletic/6982783/2026/01/20/liverpool-marc-guehi-man-city-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6980503/2026/01/20/arsenal-inter-milan-champions-le
 **Trees for goalposts: The small Scottish park that became a talent hotbed**\
 `A small park in a mining town near Glasgow produced John Robertson, Jimmy Johnstone and a host of other future professional players`\
 https://nytimes.com/athletic/6948117/2026/01/20/robertson-johnstone-scotland-viewpark-glasgow/
-
-**How Manchester United play: What can Michael Carrick build on, and what should he discard?**\
-`The Athletic's series taking the tactical temperature at the Premier League's 'Big Six' concludes with a look at a United side in flux `\
-https://nytimes.com/athletic/6973824/2026/01/20/how-manchester-united-play-premier-league-tactics/
 
