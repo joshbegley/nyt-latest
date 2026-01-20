@@ -1,3 +1,19 @@
+**Skies Clear, and a New Outpost Springs Up at the Bottom of the World**\
+`Low clouds have lifted long enough for helicopters to ferry scientists and their gear to a fast-melting glacier on the edge of Antarctica.`\
+https://nytimes.com/2026/01/20/climate/antarctica-camping-thwaites-glacier.html
+
+**A Few Dozen European Troops in Greenland Triggered Trump**\
+`President Trump threatened tariffs on European nations that sent military personnel to Greenland last week. Some have already gone home, but Denmark is now sending about 100 more.`\
+https://nytimes.com/2026/01/20/world/europe/europe-troops-greenland-trump.html
+
+**Northern Lights Shine Over U.K. and Europe**\
+`One of the largest solar radiation storms in decades produced an aurora borealis that illuminated rare hues like red and purple over Britain and parts of continental Europe.`\
+https://nytimes.com/video/world/europe/100000010656397/northern-lights-aurora-borealis.html
+
+**Penguins, Jason Robertson and NHL trade deadline: What I'm hearing**\
+`The Penguins have the assets to make a pitch for Robertson now or next season, and they have plenty of reason to be interested. `\
+https://nytimes.com/athletic/6985881/2026/01/20/penguins-jason-robertson-trade-rumors-nhl/
+
 **The Way ‘Rich’ Once Looked**\
 `The death of the designer Valentino marks the end of an era, not just in fashion but in dressing the part.`\
 https://nytimes.com/2026/01/20/style/valentino-designer-fashion-era.html
@@ -17,20 +33,4 @@ https://nytimes.com/2026/01/20/opinion/trump-nobel-greenland.html
 **Trump Threatens New Trade War as Court Weighs Whether to Check Him**\
 `President Trump may be on the verge of having his authority on imposing tariffs curtailed, but that hasn’t slowed down his threats.`\
 https://nytimes.com/2026/01/20/us/politics/trump-tariffs-supreme-court.html
-
-**Meet the U.S. Olympic bobsled, skeleton and luge teams: Medal hopes in all 3**\
-`The U.S. has legitimate medal chances in all three sliding sports at the 2026 Winter Olympics. Here are the full teams for each.`\
-https://nytimes.com/athletic/6983959/2026/01/20/us-olympics-bobsled-skeleton-luge-team-cortina/
-
-**Spurs, Celtics look like contenders. Should they be active at the trade deadline?**\
-`San Antonio and Boston may be a year ahead of schedule and it may be tempting for both to push in chips sooner than expected.`\
-https://nytimes.com/athletic/6982271/2026/01/20/spurs-celtics-nba-trade-deadline/
-
-**Newcastle's Burn, Osula close to injury returns, Howe says**\
-`The head coach said the pair are "not too far away" and will "feel like new signings" once they return. `\
-https://nytimes.com/athletic/6985991/2026/01/20/dan-burn-william-osula-newcastle-injury-update/
-
-**One Year In, Searching for a Strategy Behind Trump’s Unpredictability**\
-`One great truth of Trump II so far is that nobody has any idea what tomorrow holds.`\
-https://nytimes.com/2026/01/20/us/politics/trump-one-year-unpredicatability.html
 
