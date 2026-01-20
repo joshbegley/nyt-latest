@@ -1,3 +1,7 @@
+**A Vermont Town Was a Foodie Mecca for Canadians. Until Trump’s Threats.**\
+`Greensboro’s economy depended on friendly relations with Canada. But after tariffs and threats to make the country the “51st state,” neighborly ties have frayed.`\
+https://nytimes.com/2026/01/19/us/politics/greensboro-vermont-canada-tariffs-trump.html
+
 **To Their Shock, Cubans in Florida Are Being Deported in Record Numbers**\
 `Cubans had long benefited from legal privileges unavailable to immigrants from other countries. President Trump has changed that.`\
 https://nytimes.com/2026/01/19/us/politics/cubans-florida-deportations-trump.html
