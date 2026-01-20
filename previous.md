@@ -1,3 +1,15 @@
+**Juventus lose legal dispute against Cristiano Ronaldo over €9.8m payment**\
+`The dispute was over the validity of a salary reduction agreement during the Covid-19 pandemic.`\
+https://nytimes.com/athletic/6985670/2026/01/20/cristiano-ronaldo-juventus-legal-dispute/
+
+**Bessent Calls Powell’s Attendance at Supreme Court Arguments on Fed Independence a ‘Mistake’**\
+`The Treasury secretary’s criticism comes after he attended arguments over President Trump’s tariff authority last year.`\
+https://nytimes.com/2026/01/20/us/politics/bessent-powell-supreme-court-fed.html
+
+**A.I., Big Tech and Trump Shine Most Brightly at the Davos Spectacle**\
+`The World Economic Forum is now dominated by global technology companies whose interests shunt aside most others.`\
+https://nytimes.com/2026/01/20/business/davos-trump.html
+
 **Trump Heckles Europe Before Heading to Davos**\
 `As European leaders try to engage with the American president over Greenland and the future of Ukraine, he is mocking them as weak.`\
 https://nytimes.com/2026/01/20/world/europe/davos-trump-europe.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/20/business/stocks-trump-greenland-tariffs.html
 **Infinite Pancakes, Anyone?**\
 `A team of mathematicians seeks to cut an infinitely large pancake into as many pieces as possible, in a new take on an old puzzle.`\
 https://nytimes.com/2026/01/20/science/infinite-pancake-math-puzzle.html
-
-**Now Boarding the Freedom Plane: Precious Founding-Era Documents**\
-`The plane, organized by the National Archives, will take rare 18th-century documents around the country in a tour loosely inspired by the Bicentennial’s Freedom Train.`\
-https://nytimes.com/2026/01/20/arts/design/plane-america-250-archives.html
-
-**Mendoza says rare postgame curse was 'fitting' after Indiana's title win**\
-`The Indiana quarterback's polished persona is real, but after leading the Hoosiers to a championship, Mendoza didn't hold back.`\
-https://nytimes.com/athletic/6985283/2026/01/20/college-football-indiana-fernando-mendoza-swear-championship-game/
-
-**Does Work Wellbeing Work?**\
-`Work wellbeing benefits both employees and employers.`\
-https://nytimes.com/paidpost/indeed/does-work-wellbeing-work.html
 

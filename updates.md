@@ -1,3 +1,15 @@
+**Juventus lose legal dispute against Cristiano Ronaldo over €9.8m payment**\
+`The dispute was over the validity of a salary reduction agreement during the Covid-19 pandemic.`\
+https://nytimes.com/athletic/6985670/2026/01/20/cristiano-ronaldo-juventus-legal-dispute/
+
+**Bessent Calls Powell’s Attendance at Supreme Court Arguments on Fed Independence a ‘Mistake’**\
+`The Treasury secretary’s criticism comes after he attended arguments over President Trump’s tariff authority last year.`\
+https://nytimes.com/2026/01/20/us/politics/bessent-powell-supreme-court-fed.html
+
+**A.I., Big Tech and Trump Shine Most Brightly at the Davos Spectacle**\
+`The World Economic Forum is now dominated by global technology companies whose interests shunt aside most others.`\
+https://nytimes.com/2026/01/20/business/davos-trump.html
+
 **Trump Heckles Europe Before Heading to Davos**\
 `As European leaders try to engage with the American president over Greenland and the future of Ukraine, he is mocking them as weak.`\
 https://nytimes.com/2026/01/20/world/europe/davos-trump-europe.html
