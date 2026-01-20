@@ -1,3 +1,7 @@
+**Fernando Mendoza's championship performance shows why he's likely No. 1 NFL Draft pick**\
+`Miami's defense put pressure on Mendoza throughout the championship game, but Indiana's quarterback delivered when it mattered.`\
+https://nytimes.com/athletic/6984228/2026/01/20/fernando-mendoza-indiana-number-1-nfl-draft-pick/
+
 **After Four Shark Attacks in 48 Hours, Australia Shuts Dozens of Beaches**\
 `Many of the closed beaches were in Sydney, the site of three of the attacks.`\
 https://nytimes.com/2026/01/20/world/australia/australia-sydney-shark-attacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/20/world/asia/china-ocean-flower-island-real-estate.
 **Miami RB Fletcher throws punch at IU lineman, later hugs QB Fernando Mendoza**\
 `Fletcher and Tucker were separated after a postgame altercation. `\
 https://nytimes.com/athletic/6984809/2026/01/20/mark-fletcher-tyrique-tucker-punch-fernando-mendoza/
-
-**Why Liverpool didn't go back in for Marc Guehi - and where it leaves them**\
-`Look at the numbers and there is logic behind Liverpool's decision not to rival City for Guehi this month. But it is also a gamble... `\
-https://nytimes.com/athletic/6982783/2026/01/20/liverpool-marc-guehi-man-city-transfer/
 

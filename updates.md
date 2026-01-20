@@ -1,3 +1,7 @@
+**Fernando Mendoza's championship performance shows why he's likely No. 1 NFL Draft pick**\
+`Miami's defense put pressure on Mendoza throughout the championship game, but Indiana's quarterback delivered when it mattered.`\
+https://nytimes.com/athletic/6984228/2026/01/20/fernando-mendoza-indiana-number-1-nfl-draft-pick/
+
 **After Four Shark Attacks in 48 Hours, Australia Shuts Dozens of Beaches**\
 `Many of the closed beaches were in Sydney, the site of three of the attacks.`\
 https://nytimes.com/2026/01/20/world/australia/australia-sydney-shark-attacks.html
