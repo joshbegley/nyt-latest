@@ -1,3 +1,19 @@
+**Hoo-Hoo-Hoo Hoosiers revel in once unthinkable Indiana football national title**\
+`A scene that was bustling before kickoff turned berserk as Indiana fans in Bloomington celebrated the school's first football championship.`\
+https://nytimes.com/athletic/6985491/2026/01/20/indiana-football-national-title-fans-celebration/
+
+**Stocks and Bonds Fall on Trump’s Greenland Threats**\
+`The S&P 500 dropped over 1 percent Tuesday morning, its lowest decline at the start of the trading day since April, when President Trump first announced his sweeping tariffs.`\
+https://nytimes.com/2026/01/20/business/stocks-trump-greenland-tariffs.html
+
+**Infinite Pancakes, Anyone?**\
+`A team of mathematicians seeks to cut an infinitely large pancake into as many pieces as possible, in a new take on an old puzzle.`\
+https://nytimes.com/2026/01/20/science/infinite-pancake-math-puzzle.html
+
+**Now Boarding the Freedom Plane: Precious Founding-Era Documents**\
+`The plane, organized by the National Archives, will take rare 18th-century documents around the country in a tour loosely inspired by the Bicentennial’s Freedom Train.`\
+https://nytimes.com/2026/01/20/arts/design/plane-america-250-archives.html
+
 **Mendoza says rare postgame curse was 'fitting' after Indiana's title win**\
 `The Indiana quarterback's polished persona is real, but after leading the Hoosiers to a championship, Mendoza didn't hold back.`\
 https://nytimes.com/athletic/6985283/2026/01/20/college-football-indiana-fernando-mendoza-swear-championship-game/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6985400/2026/01/20/naomi-osaka-australian-open-outf
 **Dodgers continue to engage on Freddy Peralta: What it says about their rotation**\
 `If the Brewers decide to trade Peralta, the Dodgers have a bounty of budget-friendly young pitchers in their system.`\
 https://nytimes.com/athletic/6983535/2026/01/20/dodgers-freddy-peralta-trade-possibility/
-
-**Inside the Kazakhstani club that developed talents like Bay FC forward Racheal Kundananji**\
-`BIIK-Shymkent was the first step towards Europe and NWSL for many future talents, but the big clubs are catching on and making life harder`\
-https://nytimes.com/athletic/6972691/2026/01/20/womens-soccer-development-biik-shymkent-nwsl-bay-fc/
-
-**A Trench Coat Worth Waiting For**\
-`Finishing a handbag designer’s outfit was outerwear that he said he had long desired.`\
-https://nytimes.com/2026/01/20/style/street-style-look-mens-trench-coat.html
-
-**Does Jimmy Butler's injury herald the end of Golden State's dynasty?**\
-`There was a sense the Warriors could contend despite their slow start and the Jonathan Kuminga drama. Butler's injury changes everything.`\
-https://nytimes.com/athletic/6985126/2026/01/20/warriors-jimmy-butler-injury-future-roster/
-
-**Indiana backup QB Alberto Mendoza enters transfer portal after title game**\
-`The younger brother of the Hoosiers' Heisman-winning quarterback will likely look for a starting opportunity elsewhere.`\
-https://nytimes.com/athletic/6985409/2026/01/20/alberto-mendoza-indiana-transfer-portal/
 
