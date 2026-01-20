@@ -1,3 +1,11 @@
+**Ex-USC LB Abdul-Malik McClain sentenced in COVID-19 benefits scheme case**\
+`McClain was accused of orchestrating a scheme that fraudulently sought more than $1 million in pandemic-related unemployment benefits.`\
+https://nytimes.com/athletic/6986368/2026/01/20/usc-football-abdul-malik-mcclain-sentenced/
+
+**How Norway's ski jumping scandal rocked a proud nation and bedrock Olympic sport**\
+`With the Olympics near, Norway's ski jumping scandal took its latest turn last week, a controversy that has roiled the sport and country.`\
+https://nytimes.com/athletic/6961222/2026/01/20/olympics-norway-ski-jumping-scandal-suspensions/
+
 **Trump Mocks European Leaders Before Meeting With Them**\
 `Also, fewer people are jumping off the Golden Gate Bridge. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2026/01/20/briefing/trump-europe-leaders-davos-spain-train-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6985993/2026/01/20/baseball-hall-of-fame-election-2
 **MLB owners 'raging' at Tucker-Dodgers deal, will '100 percent' push for salary cap**\
 `It's believed that only the Los Angeles Dodgers and New York Mets might remain in opposition to a salary cap proposal, a source said.`\
 https://nytimes.com/athletic/6986854/2026/01/20/mlb-owners-salary-cap-push-dodgers-kyle-tucker/
-
-**Trumpism Is Doomed Without Restraint**\
-`The president needs counterforces to save him from himself.`\
-https://nytimes.com/2026/01/20/opinion/greenland-trump.html
-
-**Trump Ratchets Up Tensions With Europe as He Rejects Diplomatic Overtures**\
-`President Trump’s bellicose demands about Greenland and participation in his “board of peace” are deepening worries about the fate of the trans-Atlantic alliance.`\
-https://nytimes.com/2026/01/20/us/politics/trump-europe-tensions-greenland.html
 
