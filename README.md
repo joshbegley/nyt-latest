@@ -1,3 +1,7 @@
+**What Are the Chagos Islands and the Diego Garcia Base?**\
+`The islands, which Britain has agreed to hand over to Mauritius, are home to a strategically important U.S.-British military base.`\
+https://nytimes.com/2026/01/20/world/africa/chagos-islands-diego-garcia.html
+
 **At Long Count, Ravi Derossi Goes All In on Aged Wines**\
 `The restaurant will serve wines that are at least 10 years old by the full pour, half-pour and bottle, alongside vegan dishes.`\
 https://nytimes.com/2026/01/20/dining/nyc-restaurant-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/20/style/valentino-designer-fashion-era.html
 **Phillies losing Bo Bichette to Mets a 'gut punch,' Dave Dombrowski says**\
 `"We thought we were very close to having a deal done. We thought it was going to happen. But it wasn't done."`\
 https://nytimes.com/athletic/6986089/2026/01/20/phillies-lose-bo-bichette-mets-gut-punch/
-
-**Inside the Andersson trade, and what's next for Flames: Move Kadri? Coleman?**\
-`The Flames general manager explained the Andersson trade from his end and the organization's current thinking on other in-demand veterans.`\
-https://nytimes.com/athletic/6985771/2026/01/20/flames-trade-andersson-kadri-coleman/
 

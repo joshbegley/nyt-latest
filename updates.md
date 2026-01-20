@@ -1,3 +1,7 @@
+**At Long Count, Ravi Derossi Goes All In on Aged Wines**\
+`The restaurant will serve wines that are at least 10 years old by the full pour, half-pour and bottle, alongside vegan dishes.`\
+https://nytimes.com/2026/01/20/dining/nyc-restaurant-news.html
+
 **At last, the team pitches tents on the Thwaites Glacier.**\
 `By Raymond Zhong`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/at-last-the-team-pitches-tents-on-the-thwaites-glacier
