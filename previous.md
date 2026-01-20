@@ -1,3 +1,7 @@
+**The Way ‘Rich’ Once Looked**\
+`The death of the designer Valentino marks the end of an era, not just in fashion but in dressing the part.`\
+https://nytimes.com/2026/01/20/style/valentino-designer-fashion-era.html
+
 **Phillies losing Bo Bichette to Mets a 'gut punch,' Dave Dombrowski says**\
 `"We thought we were very close to having a deal done. We thought it was going to happen. But it wasn't done."`\
 https://nytimes.com/athletic/6986089/2026/01/20/phillies-lose-bo-bichette-mets-gut-punch/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6985991/2026/01/20/dan-burn-william-osula-newcastle
 **One Year In, Searching for a Strategy Behind Trump’s Unpredictability**\
 `One great truth of Trump II so far is that nobody has any idea what tomorrow holds.`\
 https://nytimes.com/2026/01/20/us/politics/trump-one-year-unpredicatability.html
-
-**Russia's path back to Olympic hockey? IIHF to meet on implications of IOC guidance and next steps**\
-`The IOC's recommendation that youth athletes be allowed to participate could be the first step to the IIHF reintegrating banned countries.`\
-https://nytimes.com/athletic/6984463/2026/01/20/russia-olympic-hockey-future-iihf-ioc/
 

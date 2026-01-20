@@ -1,3 +1,7 @@
+**The Way ‘Rich’ Once Looked**\
+`The death of the designer Valentino marks the end of an era, not just in fashion but in dressing the part.`\
+https://nytimes.com/2026/01/20/style/valentino-designer-fashion-era.html
+
 **Phillies losing Bo Bichette to Mets a 'gut punch,' Dave Dombrowski says**\
 `"We thought we were very close to having a deal done. We thought it was going to happen. But it wasn't done."`\
 https://nytimes.com/athletic/6986089/2026/01/20/phillies-lose-bo-bichette-mets-gut-punch/
