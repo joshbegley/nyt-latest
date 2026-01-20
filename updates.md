@@ -1,3 +1,7 @@
+**A field trip to Boston helped Pistons visualize their current goals**\
+`"We learned a lot from it," Cade Cunningham says of his 2022 trip to the Eastern Conference finals to watch the Celtics beat the Heat. `\
+https://nytimes.com/athletic/6984958/2026/01/20/cade-cunningham-pistons-win-boston-celtics/
+
 **Until Saturday: No such thing as Indiana hyperbole**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6985543/2026/01/20/indiana-football-championship-until-saturday/

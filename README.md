@@ -1,3 +1,7 @@
+**Does Work Wellbeing Work?**\
+`Work wellbeing benefits both employees and employers.`\
+https://nytimes.com/paidpost/indeed/does-work-wellbeing-work.html
+
 **A field trip to Boston helped Pistons visualize their current goals**\
 `"We learned a lot from it," Cade Cunningham says of his 2022 trip to the Eastern Conference finals to watch the Celtics beat the Heat. `\
 https://nytimes.com/athletic/6984958/2026/01/20/cade-cunningham-pistons-win-boston-celtics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6985409/2026/01/20/alberto-mendoza-indiana-transfer
 **It wasn't perfect, but Doc Rivers' rotation change sparks Bucks in Atlanta**\
 `Rivers was trying to accomplish two things with the shake-up: more size in the starting lineup and more scoring when Giannis sits.`\
 https://nytimes.com/athletic/6984512/2026/01/20/bucks-hawks-pete-nance-giannis/
-
-**Bills leadership roundtable: How Brandon Beane's promotion will impact the team's future**\
-`The search for a new head coach has begun in Buffalo.`\
-https://nytimes.com/athletic/6984517/2026/01/20/nfl-bills-coach-leadership-gm-changes-future/
 
