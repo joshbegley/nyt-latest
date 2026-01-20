@@ -3,6 +3,16 @@
 `\
 https://nytimes.com/athletic/6986107/2026/01/20/senators-jake-sanderson-leevi-merilainen-comments/
 
+**'I felt like I lost myself': Linus Ullmark opens up about personal leave**\
+`Ullmark spoke to TSN about why he took a leave of absence, his reaction to the rumors, Steve Staios' statement and his teammates' support.
+`\
+https://nytimes.com/athletic/6985417/2026/01/20/nhl-senators-linus-ullmark-personal-leave-health/
+
+**'I'm pretty embarrassed': Jake Sanderson apologizes for comments toward Leevi Meriläinen**\
+`Sanderson had regrets about his evaluation of Ottawa's goaltending on Saturday, after Meriläinen allowed six goals in a loss to Montreal.
+`\
+https://nytimes.com/athletic/6986107/2026/01/20/senators-jake-sanderson-leevi-merilainen-comments/
+
 **Prosecutors Subpoena Minnesota Democrats as Part of Federal Inquiry**\
 `The subpoenas signaled a significant expansion of the Justice Department’s investigation into the state’s leaders, including Gov. Tim Walz and Mayor Jacob Frey of Minneapolis.`\
 https://nytimes.com/2026/01/20/us/politics/subpoena-minnesota-democrats-immigration.html
