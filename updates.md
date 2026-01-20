@@ -1,3 +1,8 @@
+**'I felt like I lost myself': Linus Ullmark opens up about personal leave**\
+`Ullmark spoke to TSN about why he took a leave of absence, his reaction to the rumors, Steve Staios' statement and his teammates' support.
+`\
+https://nytimes.com/athletic/6985417/2026/01/20/nhl-senators-linus-ullmark-personal-leave-health/
+
 **As Brutal Cold Settles In, Forecasters Warn a Major Storm Is Brewing for the South**\
 `One meteorologist warns that “the main ingredients” are fitting into place for a disruptive winter storm later this week.`\
 https://nytimes.com/2026/01/20/weather/winter-cold-ice-snow-forecast-storm.html
