@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6977389/2026/01/20/real-madrid-6-monaco-1-vinicius-
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6986973/2026/01/20/nwsl-schedule-2026-full-time/
 
-**The Briefing: Inter 1 Arsenal 3 - Gabriel Jesus and Viktor Gyokeres guide Arsenal to top two finish in Champions League**\
+**The Briefing: Inter 1 Arsenal 3 – Gabriel Jesus and Viktor Gyokeres guide Arsenal to top two finish in Champions League**\
 `The Athletic's writers analyse Tuesday night's heavyweight Champions League clash at San Siro`\
 https://nytimes.com/athletic/6977390/2026/01/20/inter-arsenal-champions-league-analysis/
 

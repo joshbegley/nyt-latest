@@ -1,3 +1,7 @@
+**The Briefing: Inter 1 Arsenal 3 – Gabriel Jesus and Viktor Gyokeres guide Arsenal to top two finish in Champions League**\
+`The Athletic's writers analyse Tuesday night's heavyweight Champions League clash at San Siro`\
+https://nytimes.com/athletic/6977390/2026/01/20/inter-arsenal-champions-league-analysis/
+
 **California Republicans Ask Supreme Court to Block New Congressional Map**\
 `Republicans asked the justices to step in after a federal court rejected their claims that the state’s new congressional map violated the Constitution.`\
 https://nytimes.com/2026/01/20/us/politics/california-supreme-court-congressional-map.html
