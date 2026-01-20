@@ -1,3 +1,7 @@
+**Some Republicans Begin to Echo Trump’s Case to Acquire Greenland**\
+`While the party remains split as President Trump presses to “take” Greenland, some in his party are publicly embracing his reasoning for wanting to control the territory.`\
+https://nytimes.com/2026/01/20/us/politics/republicans-trump-greenland.html
+
 **White Students Hurt by L.A. Desegregation Policy, Lawsuit Says**\
 `Schools with more white children miss out on smaller class sizes and other benefits, the lawsuit says. The policy dates back to desegregation efforts in the 1970s.`\
 https://nytimes.com/2026/01/20/us/los-angeles-schools-desegregation-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/20/technology/ftc-meta-antitrust-appeal.html
 **Macron Vows France Will Not Capitulate to Bullying From Trump**\
 `“We are reaching a time of instability and imbalances,” the French president said in remarks at the World Economic Forum, urging more cooperation among nations.`\
 https://nytimes.com/2026/01/20/us/politics/macron-france-trump-world-economic-forum.html
-
-**Comer Rejects Clinton Interview on Epstein, Setting Up Contempt Vote**\
-`The Republican chairman of the Oversight Committee refused an offer to interview the former president under oath, rejecting terms he said were unreasonable.`\
-https://nytimes.com/2026/01/20/us/politics/comer-clinton-interview-epstein.html
 

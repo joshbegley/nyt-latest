@@ -1,3 +1,11 @@
+**White Students Hurt by L.A. Desegregation Policy, Lawsuit Says**\
+`Schools with more white children miss out on smaller class sizes and other benefits, the lawsuit says. The policy dates back to desegregation efforts in the 1970s.`\
+https://nytimes.com/2026/01/20/us/los-angeles-schools-desegregation-lawsuit.html
+
+**Hidden In a Stream, New Clues About Cause of Spain Rail Crash**\
+`Officials said they had located a previously unreported train undercarriage down a gully near the site of a train crash in Spain that killed 42 people. Experts said the finding could help investigators clarify what caused the disaster.`\
+https://nytimes.com/2026/01/20/world/spain-missing-part-undercarriage-key-investigation.html
+
 **Cursive Makes a Comeback in New Jersey Schools**\
 `In one of his final acts in office, Gov. Philip D. Murphy signed a bill on Monday requiring third, fourth and fifth graders to learn cursive.`\
 https://nytimes.com/2026/01/20/nyregion/cursive-new-jersey-schools.html
