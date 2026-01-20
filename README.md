@@ -1,3 +1,7 @@
+**Ter Stegen joins Girona on loan from Barca**\
+`Ter Stegen wants to play at this summer’s World Cup for Germany and needs to be in regular action at club level to do that.`\
+https://nytimes.com/athletic/6957177/2026/01/20/ter-stegen-barcelona-transfer-girona-loan/
+
 **Snap Settles Social Media Addiction Lawsuit Ahead of a Landmark Trial**\
 `The settlement means Snap will avoid a trial where plaintiffs had planned to argue that social media platforms are inherently defective and subject to personal injury liability.`\
 https://nytimes.com/2026/01/20/technology/snap-social-media-addiction-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986705/2026/01/20/clippers-vs-bulls-stream-how-to-
 **How to watch Raptors vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6986703/2026/01/20/raptors-vs-warriors-stream-how-to-watch-jan-20/
-
-**How to watch Heat vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6986698/2026/01/20/heat-vs-kings-stream-how-to-watch-jan-20/
 

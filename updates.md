@@ -1,3 +1,11 @@
+**Snap Settles Social Media Addiction Lawsuit Ahead of a Landmark Trial**\
+`The settlement means Snap will avoid a trial where plaintiffs had planned to argue that social media platforms are inherently defective and subject to personal injury liability.`\
+https://nytimes.com/2026/01/20/technology/snap-social-media-addiction-lawsuit.html
+
+**Replica of Trump’s Birthday Message to Epstein Appears on National Mall**\
+`An oversize card reproduces a suggestive birthday greeting from 2003, released as part of a congressional inquiry. President Trump has denied that he signed it.`\
+https://nytimes.com/2026/01/20/us/politics/trump-epstein-birthday-card-national-mall.html
+
 **Trump, Venezuela and Oil**\
 `The president’s message since sending troops into Venezuela has been clear: This is about oil, not democracy.`\
 https://nytimes.com/2026/01/20/world/venezuela-oil-trump-greenland-davos.html
