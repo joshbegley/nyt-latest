@@ -1,40 +1,40 @@
-**Champions League league phase: Analysis and predictions ahead of final games**\
-`How the final matches of the Champions League league phases are shaping up with two games to go`\
-https://nytimes.com/athletic/6985106/2026/01/20/champions-league-state-of-play-final-games-premier-league/
+**Analyzing the Cowboys' defensive roster: Do they bring back Jadeveon Clowney?**\
+`It's clear that the Cowboys need a lot of help on the defensive side of the ball. Which players will form their nucleus in 2026?`\
+https://nytimes.com/athletic/6983855/2026/01/20/cowboys-defensive-roster-analysis/
 
-**You read that right/: Indiana is college football's champion**\
-`In two seasons, the Hoosiers went from 3-9 and a coaching change to the first major college football program to go 16-0 since 1894.`\
-https://nytimes.com/athletic/6984983/2026/01/20/indiana-hoosiers-college-football-championship/
+**Who will Packers' next defensive coordinator be? Here are 10 candidates**\
+`Matt LaFleur is about to be on his fourth defensive coordinator entering his eighth season as Packers head coach.`\
+https://nytimes.com/athletic/6979383/2026/01/20/packers-defensive-coordinator-candidates-hafley/
 
-**Women's college basketball power rankings: South Carolina's Raven Johnson finds her touch**\
-`Is Imari Berry the country's most exciting player? Is Charlisse Leger-Walker a difference-maker for UCLA?`\
-https://nytimes.com/athletic/6984543/2026/01/20/womens-college-basketball-power-rankings-south-carolina-texas/
+**What Tiger's Jupiter Links needs to do for first win of TGL Season 2**\
+`Jupiter Links Golf Club hasn't won inside the SoFi Center in a year and faces heavy favorite Los Angeles Golf Club on Tuesday night.`\
+https://nytimes.com/athletic/6983849/2026/01/20/tgl-match-5-jupiter-links-los-angeles-preview/
 
-**To pay or not to pay Bryce Young — that's (among) the questions surrounding Panthers QB**\
-`Carolina exercised Young's fifth-year option. Will the team go ahead and sign their QB to a long-term contract?`\
-https://nytimes.com/athletic/6983537/2026/01/20/panthers-bryce-young-future-contract/
+**Heartbroken Miami can play the what-if game, but The U is back to stay**\
+`The Canes failed to win the ultimate prize Monday night, but the program is finally set up for sustained success. `\
+https://nytimes.com/athletic/6985173/2026/01/20/miami-hurricanes-cfb-title-game-loss-indiana/
 
-**The Pulse: The most incredible story in CFB history**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6983964/2026/01/20/indiana-fernando-mendoza-national-title-the-pulse/
+**Alternative AFCON awards: Three goalkeepers, a tumbling linesman, and a ‘jealousy’ rant**\
+`After all of the drama, it is time to look back at the entire tournament and hand out some left-field awards`\
+https://nytimes.com/athletic/6982703/2026/01/20/alternative-afcon-awards/
 
-**Starmer Approves Contentious Chinese Mega-Embassy in London**\
-`The government approved plans for a massive new Chinese Embassy near Tower Bridge, disappointing critics who fear it will enable spying.`\
-https://nytimes.com/2026/01/20/world/europe/chinese-embassy-london-starmer.html
+**49ers' George Kittle, Fred Warner, Mykel Williams upbeat about recovery, eye early returns**\
+`Kittle said a bevy of famous Achilles-tear patients reached out to him, including Indiana Pacers guard Tyrese Haliburton.`\
+https://nytimes.com/athletic/6984124/2026/01/20/george-kittle-injury-timeline-49ers/
 
-**As Spain Mourns Train Crash Victims, Investigators Focus on Track**\
-`Officials on Tuesday were struggling to identify bodies from the crash near the southern city of Córdoba, which killed at least 41 people.`\
-https://nytimes.com/2026/01/20/world/europe/spain-train-crash-track-investigation.html
+**NCAA Tournament Bracket Watch: These mid-majors aren’t ‘mid’ — they’re making moves**\
+`It’s a tough era for the mid-major in men’s college basketball. But it’s a good week, thanks in part to some heroics from Miami (Ohio).`\
+https://nytimes.com/athletic/6983435/2026/01/20/ncaa-tournament-bracket-projections-miami-ohio-mid-majors/
 
-**Analyzing Drew Petzing: Who and what are the Lions getting in their next OC?**\
-`Petzing's rushing scheme is physical, downhill and explosive and his play-action preferences should pair well with Jared Goff. `\
-https://nytimes.com/athletic/6984131/2026/01/20/lions-drew-petzing-offensive-coordinator-analysis/
+**What can Bedard learn from Toews' legendary run as Blackhawks captain?**\
+`Jonathan Toews became Blackhawks captain at 20. Connor Bedard might follow in his footsteps at much the same age.`\
+https://nytimes.com/athletic/6984469/2026/01/20/blackhawks-captain-bedard-toews/
 
-**Flyers, Ersson end brutal losing streak, but lack of discipline is still a problem**\
-`Travis Konecny scored both of the Flyers' goals to pull off one of the unlikeliest wins this season for Philadelphia.`\
-https://nytimes.com/athletic/6984803/2026/01/20/flyers-ersson-konecny-penalties-golden-knights/
+**Rasmus Andersson trade upgrades a specific, crucial area for Golden Knights**\
+`Andersson has proven to be an excellent puck mover, which is something the Golden Knights felt they needed. `\
+https://nytimes.com/athletic/6984685/2026/01/20/golden-knights-rasmus-andersson-trade-breakouts-upgrade/
 
-**How ESPN's Australian Open coverage left some American tennis fans cold**\
-`The decision to put the three biggest Australian Open courts behind an additional paywall sparked anger among fans.`\
-https://nytimes.com/athletic/6984941/2026/01/20/australian-open-espn-tennis-channels-cost-how-to-watch/
+**Red Wings prospects midseason update: Checking in on Detroit's top 10**\
+`Could this be the year the Red Wings trade from their deep pool of prospects? Which ones might earn NHL promotions soon?`\
+https://nytimes.com/athletic/6983756/2026/01/20/red-wings-prospects-update-danielson-cossa-augustine/
 
