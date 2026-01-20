@@ -1,3 +1,15 @@
+**Until Saturday: No such thing as Indiana hyperbole**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6985543/2026/01/20/indiana-football-championship-until-saturday/
+
+**Naomi Osaka's Australian Open outfit and a high couture moment for tennis fashion**\
+`The four-time Grand Slam champion's stunning looks have become a hallmark of on-court expression.`\
+https://nytimes.com/athletic/6985400/2026/01/20/naomi-osaka-australian-open-outfit-tennis-fashion/
+
+**Indiana backup QB Alberto Mendoza enters transfer portal after title game**\
+`The younger brother of the Hoosiers' Heisman-winning quarterback will likely look for a starting opportunity elsewhere.`\
+https://nytimes.com/athletic/6985409/2026/01/20/alberto-mendoza-indiana-transfer-portal/
+
 **Dodgers continue to engage on Freddy Peralta: What it says about their rotation**\
 `If the Brewers decide to trade Peralta, the Dodgers have a bounty of budget-friendly young pitchers in their system.`\
 https://nytimes.com/athletic/6983535/2026/01/20/dodgers-freddy-peralta-trade-possibility/
