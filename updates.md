@@ -1,3 +1,7 @@
+**Blackhawks fans give Jonathan Toews 3-minute ovation in return to Chicago**\
+`Jonathan Toews spent 15 years as a Blackhawks player before taking two years off and returning with his hometown Jets at 37.`\
+https://nytimes.com/athletic/6984419/2026/01/19/jonathan-toews-blackhawks-return-ovation-jets/
+
 **Death Toll Rises in Guatemalan Gang Riots**\
 `Uprisings in three prisons have killed nine police officers, presenting another challenge for President Bernardo Arévalo in his fight against corruption and organized crime.`\
 https://nytimes.com/2026/01/19/world/americas/death-toll-rises-in-guatemalan-gang-riots.html
