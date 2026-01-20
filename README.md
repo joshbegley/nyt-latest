@@ -1,3 +1,7 @@
+**Veltman 'keeping options open' with Brighton contract expiring in summer**\
+`The Dutch defender, who turned 34 last week, has been at the club since July 2020.`\
+https://nytimes.com/athletic/6985068/2026/01/20/brighton-joel-veltman-contract-future/
+
 **Maps: How the Train Crash in Spain Unfolded**\
 `Two trains collided on Sunday in southern Spain, killing at least 40 people. Here is what happened.`\
 https://nytimes.com/interactive/2026/01/20/world/europe/spain-train-crash-maps.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/20/learning/your-favorite-current-songs.html
 **A Bite-Size Column About Delight and Wonder in Science**\
 `In Trilobites, reporters aim to share new findings in the science world, be it interspecies friendships or discoveries of ancient fossils.`\
 https://nytimes.com/2026/01/20/insider/trilobites-column.html
-
-**Nature’s Super Feather**\
-`Filoplumes may be tiny, but these hairlike feathers enable nonstop flights that span thousands of miles.`\
-https://nytimes.com/2026/01/20/science/birds-feathers-filoplumes-cornell.html
 
