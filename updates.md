@@ -1,3 +1,7 @@
+**Starmer Approves Contentious Chinese Mega-Embassy in London**\
+`The government approved plans for a massive new Chinese Embassy near Tower Bridge, disappointing critics who fear it will enable spying.`\
+https://nytimes.com/2026/01/20/world/europe/chinese-embassy-london-starmer.html
+
 **Analyzing Drew Petzing: Who and what are the Lions getting in their next OC?**\
 `Petzing's rushing scheme is physical, downhill and explosive and his play-action preferences should pair well with Jared Goff. `\
 https://nytimes.com/athletic/6984131/2026/01/20/lions-drew-petzing-offensive-coordinator-analysis/

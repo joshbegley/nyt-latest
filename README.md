@@ -1,3 +1,7 @@
+**The Pulse: The most incredible story in CFB history**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6983964/2026/01/20/indiana-fernando-mendoza-national-title-the-pulse/
+
 **Starmer Approves Contentious Chinese Mega-Embassy in London**\
 `The government approved plans for a massive new Chinese Embassy near Tower Bridge, disappointing critics who fear it will enable spying.`\
 https://nytimes.com/2026/01/20/world/europe/chinese-embassy-london-starmer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6984442/2026/01/20/knicks-lose-mavericks-consider-t
 **NFL overreactions: All signs point to a Patriots-Seahawks Super Bowl**\
 `Toby Mergler has his thoughts on the AFC and NFC championship games, with an eye toward the favorites.`\
 https://nytimes.com/athletic/6983396/2026/01/20/nfl-overreactions-patriots-seahawks-super-bowl/
-
-**State of the Blue Jays: Lineup projections, pitching upgrades and moves left to make**\
-`After a busy week for big transactions, let's take stock of Toronto’s roster and whether there’s a move left for the Jays to make.`\
-https://nytimes.com/athletic/6983992/2026/01/20/blue-jays-lineup-projection-pitching/
 
