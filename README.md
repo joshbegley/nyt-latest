@@ -1,5 +1,9 @@
+**IU's Curt Cignetti blasts refs for not penalizing hits on Fernando Mendoza**\
+`“I’m all for letting them play, but when you cross the line, you gotta call it," Cignetti told ESPN.`\
+https://nytimes.com/athletic/6984445/2026/01/19/curt-cignetti-referee-comments-fernando-mendoza-personal-fouls/
+
 **Blackhawks fans give Jonathan Toews 3-minute ovation in return to Chicago**\
-`Jonathan Toews spent 15 years as a Blackhawks player before taking two years off and returning with his hometown Jets at 37.`\
+`Toews spent 15 years with the Blackhawks before taking two years off and returning with his hometown Winnipeg Jets at 37.`\
 https://nytimes.com/athletic/6984419/2026/01/19/jonathan-toews-blackhawks-return-ovation-jets/
 
 **Death Toll Rises in Guatemalan Gang Riots**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010654783/snowstorm-causes-100-vehicle-pileup
 **Kansas' Bill Self hospitalized out of 'caution,' doesn't travel with team**\
 `Self was previously admitted to Lawrence Memorial Hospital in July and had two stents inserted.`\
 https://nytimes.com/athletic/6984222/2026/01/19/kansas-bill-self-hospitalized-health-caution/
-
-**A City on Edge: Protesters Clash in Minneapolis**\
-`Jake Lang, a prominent right-wing activist, held a small pro-ICE rally in Minneapolis on Saturday. Within minutes, counterprotesters closed in and the confrontation turned violent.`\
-https://nytimes.com/video/us/100000010652966/protesters-clash-ice-minneapolis.html
 
