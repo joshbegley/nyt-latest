@@ -1,3 +1,29 @@
+**Hochul Unveils $260 Billion N.Y. Budget That Avoids Raising Taxes**\
+`Gov. Kathy Hochul of New York, who faces re-election this year, said that the state budget faced “real volatility” because of threats from President Trump.`\
+https://nytimes.com/2026/01/20/nyregion/hochul-budget-childcare-taxes.html
+
+**10 Gloriously Nonsensical Songs of Pop Gibberish**\
+`“Sussudio,” “Di Doo Dah,” “Da Doo Ron Ron” and more.`\
+https://nytimes.com/2026/01/20/arts/music/amplifier-newsletter-nonsense-songs.html
+
+**'I'm pretty embarrassed': Jake Sanderson apologizes for comments toward Leevi Meriläinen**\
+`Sanderson had regrets about his evaluation of Ottawa's goaltending on Saturday, after Meriläinen allowed six goals in a loss to Montreal.
+`\
+https://nytimes.com/athletic/6986107/2026/01/20/senators-jake-sanderson-leevi-merilainen-comments/
+
+**Prosecutors Subpoena Minnesota Democrats as Part of Federal Inquiry**\
+`The move showed a significant expansion of the Justice Department’s investigation into the state’s leaders, including Gov. Tim Walz and Mayor Jacob Frey of Minneapolis.`\
+https://nytimes.com/2026/01/20/us/politics/subpoena-minnesota-democrats-immigration.html
+
+**Falcons offensive coordinator search: 5 options, including the clear front-runner**\
+`Tommy Rees is expected to be named the Falcons' new offensive coordinator under Kevin Stefanski, but there are other options.`\
+https://nytimes.com/athletic/6985858/2026/01/20/falcons-offensive-coordinator-search-tommy-rees/
+
+**'I felt like I lost myself': Linus Ullmark opens up about personal leave**\
+`Ullmark spoke to TSN about why he took a leave of absence, his reaction to the rumors, Steve Staios' statement and his teammates' support.
+`\
+https://nytimes.com/athletic/6985417/2026/01/20/nhl-senators-linus-ullmark-personal-leave-health/
+
 **'I'm pretty embarrassed': Jake Sanderson apologizes for comments toward Leevi Meriläinen**\
 `Sanderson had regrets about his evaluation of Ottawa's goaltending on Saturday, after Meriläinen allowed six goals in a loss to Montreal.
 `\

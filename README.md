@@ -1,3 +1,11 @@
+**Why Anthony Stolarz is going to the Marlies on a conditioning stint**\
+`Stolarz is eligible to play games for the Marlies, but the expectation is that he'll be there to get extra practice time.`\
+https://nytimes.com/athletic/6986068/2026/01/20/anthony-stolarz-maple-leafs-marlies-conditioning-stint/
+
+**Audi reveals first F1 car for 2026 after Sauber rebrand**\
+`Gernot Döllner, the CEO of Audi, restated the target to be fighting for the world championship by 2030 in the launch. `\
+https://nytimes.com/athletic/6985708/2026/01/20/audi-f1-car-sauber/
+
 **Hochul Unveils $260 Billion N.Y. Budget That Avoids Raising Taxes**\
 `Gov. Kathy Hochul of New York, who faces re-election this year, said that the state budget faced “real volatility” because of threats from President Trump.`\
 https://nytimes.com/2026/01/20/nyregion/hochul-budget-childcare-taxes.html
@@ -30,13 +38,4 @@ https://nytimes.com/2026/01/20/weather/winter-cold-ice-snow-forecast-storm.html
 **U.S. Ski & Snowboard reveals Milan-Cortina uniforms inspired by Olympic nostalgia**\
 `"This uniform represents everything we want our teams to feel ... united, confident and ready to perform at the highest level."`\
 https://nytimes.com/athletic/6986094/2026/01/20/olympics-winter-uniforms-team-usa-fashion/
-
-**'I felt like I lost myself': Linus Ullmark opens up about personal leave**\
-`Ullmark spoke to TSN about why he took a leave of absence, his reaction to the rumors, Steve Staios' statement and his teammates' support.
-`\
-https://nytimes.com/athletic/6985417/2026/01/20/nhl-senators-linus-ullmark-personal-leave-health/
-
-**Trespassing charge against Vikings WR Jordan Addison dropped**\
-`Vikings receiver Jordan Addison was arrested early last Monday morning on a trespassing charge in Hillsborough County, Fla.`\
-https://nytimes.com/athletic/6986091/2026/01/20/jordan-addison-vikings-trespassing-charge-dropped/
 
