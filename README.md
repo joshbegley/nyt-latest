@@ -6,7 +6,7 @@ https://nytimes.com/2026/01/20/style/brooklyn-beckham-parents-wedding.html
 `Jonathan Haidt, author of “The Anxious Generation,” returns to the “Hard Fork” podcast to discuss new research about how social media is harming teens and what it’s been like to become the face of a global movement against the platforms.`\
 https://nytimes.com/video/podcasts/100000010657438/whos-to-blame-for-teens-social-media-addiction.html
 
-**Pentagon Hasn’t Been Asked to Plan Greenland Invasion Amid Trump Threats, Officials Say**\
+**Pentagon Hasn’t Yet Been Asked to Plan Greenland Invasion Amid Trump Threats**\
 `Pentagon officials plan for all sorts of military contingencies, but they have not yet been asked to draw up an invasion of Greenland or the aftermath of such an operation.`\
 https://nytimes.com/2026/01/20/us/politics/pentagon-greenland-invasion-plans.html
 
