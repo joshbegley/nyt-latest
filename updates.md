@@ -1,3 +1,15 @@
+**Pushing the Boundaries of Tennis Clothes**\
+`Arriving to her first match at the Australian Open, Naomi Osaka wore couture designs with athletic wear. Was it a sign of outfits to come?`\
+https://nytimes.com/2026/01/20/style/naomi-osaka-jellyfish-australian-open.html
+
+**Vances Say They’re Expecting Their Fourth Child**\
+`It is the first known time that a sitting second lady is expecting a baby while her husband is in office.`\
+https://nytimes.com/2026/01/20/us/politics/jd-usha-vance-baby-pregnant.html
+
+**Chris Mara on his increased role — and Tom Coughlin's advice — in the John Harbaugh chase**\
+`The younger brother of John Mara addressed reporters after John Harbaugh's introductory press conference.`\
+https://nytimes.com/athletic/6986998/2026/01/20/john-harbaugh-new-york-giants-hiring-process-salary/
+
 **Pats owner Robert Kraft pushing for 18-game schedule, international game for every team**\
 `Kraft says revenue growth from a longer season will help keep labor peace.`\
 https://nytimes.com/athletic/6987162/2026/01/20/patriots-robert-kraft-18-game-schedule/

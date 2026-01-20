@@ -1,3 +1,15 @@
+**Pushing the Boundaries of Tennis Clothes**\
+`Arriving to her first match at the Australian Open, Naomi Osaka wore couture designs with athletic wear. Was it a sign of outfits to come?`\
+https://nytimes.com/2026/01/20/style/naomi-osaka-jellyfish-australian-open.html
+
+**Vances Say They’re Expecting Their Fourth Child**\
+`It is the first known time that a sitting second lady is expecting a baby while her husband is in office.`\
+https://nytimes.com/2026/01/20/us/politics/jd-usha-vance-baby-pregnant.html
+
+**Chris Mara on his increased role — and Tom Coughlin's advice — in the John Harbaugh chase**\
+`The younger brother of John Mara addressed reporters after John Harbaugh's introductory press conference.`\
+https://nytimes.com/athletic/6986998/2026/01/20/john-harbaugh-new-york-giants-hiring-process-salary/
+
 **Pats owner Robert Kraft pushing for 18-game schedule, international game for every team**\
 `Kraft says revenue growth from a longer season will help keep labor peace.`\
 https://nytimes.com/athletic/6987162/2026/01/20/patriots-robert-kraft-18-game-schedule/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/20/style/brooklyn-beckham-parents-wedding.html
 **Who’s to Blame for Teens’ Social Media Addiction?**\
 `Jonathan Haidt, author of “The Anxious Generation,” returns to the “Hard Fork” podcast to discuss new research about how social media is harming teens and what it’s been like to become the face of a global movement against the platforms.`\
 https://nytimes.com/video/podcasts/100000010657438/whos-to-blame-for-teens-social-media-addiction.html
-
-**Pentagon Hasn’t Yet Been Asked to Plan Greenland Invasion Amid Trump Threats**\
-`Pentagon officials plan for all sorts of military contingencies, but they have not yet been asked to draw up an invasion of Greenland or the aftermath of such an operation.`\
-https://nytimes.com/2026/01/20/us/politics/pentagon-greenland-invasion-plans.html
-
-**A Phillies-J.T. Realmuto reunion was expected, but not like this**\
-`An expected reunion for three years, $45 million between catcher and club has come with some awkwardness — thanks to the Bo Bichette. `\
-https://nytimes.com/athletic/6986777/2026/01/20/phillies-jt-realmuto-reunion-bo-bichette/
-
-**Five things we learned from the 2026 Baseball Hall of Fame election**\
-`COOPERSTOWN, N.`\
-https://nytimes.com/athletic/6985993/2026/01/20/baseball-hall-of-fame-election-2026-takeaways/
 
