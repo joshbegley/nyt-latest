@@ -1,3 +1,7 @@
+**Pats owner Robert Kraft pushing for 18-game schedule, international game for every team**\
+`Kraft says revenue growth from a longer season will help keep labor peace.`\
+https://nytimes.com/athletic/6987162/2026/01/20/patriots-robert-kraft-18-game-schedule/
+
 **Ex-USC LB Abdul-Malik McClain sentenced in COVID-19 benefits scheme case**\
 `McClain was accused of orchestrating a scheme that fraudulently sought more than $1 million in pandemic-related unemployment benefits.`\
 https://nytimes.com/athletic/6986368/2026/01/20/usc-football-abdul-malik-mcclain-sentenced/
