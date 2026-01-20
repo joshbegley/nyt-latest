@@ -1,3 +1,11 @@
+**Quote of the Day: Starmer Decries U.S. Threat Of Tariff War Over Greenland**\
+`Quotation of the Day for Tuesday, January 20, 2025.`\
+https://nytimes.com/2026/01/19/pageoneplus/quote-of-the-day-starmer-decries-us-threat-of-tariff-war-over-greenland.html
+
+**Feldman: Why Curt Cignetti is college football's best coach right now**\
+`Curt Cignetti has pushed exactly the right button every time on his way to the top of college football's new world.`\
+https://nytimes.com/athletic/6984649/2026/01/19/curt-cignetti-indiana-college-football-coaches/
+
 **Five pivotal plays that powered Indiana to its first national championship**\
 `Fernando Mendoza's touchdown. Charlie Becker's catches. Jamari Sharpe's interception. These are the plays that won it for IU.`\
 https://nytimes.com/athletic/6984646/2026/01/19/indiana-football-fernando-mendoza-charlie-becker-national-championship/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6984534/2026/01/19/tennis-australian-open-madison-k
 **Avs' Valeri Nichushkin involved in car accident, misses game with 'minor' injuries**\
 `Avs coach Jared Bednar said Denver-area roads were icy Monday morning in the wake of overnight snow.`\
 https://nytimes.com/athletic/6984399/2026/01/19/valeri-nichushkin-avalanche-car-accident/
-
-**Visibly Disdainful**\
-`A debut by Jonathan Raksin? Sounds great!`\
-https://nytimes.com/2026/01/19/crosswords/daily-puzzle-2026-01-20.html
-
-**Red-hot Penguins steamroll Kraken with contributions from everyone to open road trip**\
-`The Penguins never trailed with a workmanlike performance to put Seattle away, including two goals from Connor Dewar.`\
-https://nytimes.com/athletic/6984267/2026/01/19/penguins-dewar-depth-defense-kraken/
 
