@@ -1,3 +1,7 @@
+**In a chaotic Premier League season, Brighton can win the race for Europe**\
+`They may have only drawn with Bournemouth, but Monday evening's match offered a reminder of their crucial depth`\
+https://nytimes.com/athletic/6983554/2026/01/20/brighton-europe-contenders/
+
 **The historic absurdity of Indiana's national championship in 10 numbers**\
 `Indiana has mostly known losing for more than a century. Now, improbably, Curt Cignetti has the Hoosiers on top of college football.`\
 https://nytimes.com/athletic/6984818/2026/01/20/indiana-football-national-championship-history-stats-records/
