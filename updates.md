@@ -1,3 +1,15 @@
+**Analyzing Drew Petzing: Who and what are the Lions getting in their next OC?**\
+`Petzing's rushing scheme is physical, downhill and explosive and his play-action preferences should pair well with Jared Goff. `\
+https://nytimes.com/athletic/6984131/2026/01/20/lions-drew-petzing-offensive-coordinator-analysis/
+
+**How ESPN's Australian Open coverage left some American tennis fans cold**\
+`The decision to put the three biggest Australian Open courts behind an additional paywall sparked anger among fans.`\
+https://nytimes.com/athletic/6984941/2026/01/20/australian-open-espn-tennis-channels-cost-how-to-watch/
+
+**Inside the deal: How Manchester City fought off rivals — in England and abroad — for Marc Guehi**\
+`City moved early to fight off fierce competition from Premier League rivals and European suitors to sign the England international defender`\
+https://nytimes.com/athletic/6983286/2026/01/20/marc-guehi-manchester-deal/
+
 **As Spain Mourns Train Crash Victims, Investigators Focus on Track**\
 `Officials on Tuesday were struggling to identify bodies from the crash near the southern city of Córdoba, which killed at least 41 people.`\
 https://nytimes.com/2026/01/20/world/europe/spain-train-crash-track-investigation.html

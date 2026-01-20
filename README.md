@@ -1,3 +1,7 @@
+**Starmer Approves Contentious Chinese Mega-Embassy in London**\
+`The government approved plans for a massive new Chinese Embassy near Tower Bridge, disappointing critics who fear it will enable spying.`\
+https://nytimes.com/2026/01/20/world/europe/chinese-embassy-london-starmer.html
+
 **As Spain Mourns Train Crash Victims, Investigators Focus on Track**\
 `Officials on Tuesday were struggling to identify bodies from the crash near the southern city of Córdoba, which killed at least 41 people.`\
 https://nytimes.com/2026/01/20/world/europe/spain-train-crash-track-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983396/2026/01/20/nfl-overreactions-patriots-seaha
 **State of the Blue Jays: Lineup projections, pitching upgrades and moves left to make**\
 `After a busy week for big transactions, let's take stock of Toronto’s roster and whether there’s a move left for the Jays to make.`\
 https://nytimes.com/athletic/6983992/2026/01/20/blue-jays-lineup-projection-pitching/
-
-**Dan Pitcher, Brian Callahan and potential coach carousel impact on the Bengals**\
-`The Bengals offensive coordinator has only talked to one team about a head coach job, but other opportunities could arise.`\
-https://nytimes.com/athletic/6983940/2026/01/20/dan-pitcher-brian-callahan-bengals/
 
