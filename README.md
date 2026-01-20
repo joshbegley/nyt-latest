@@ -1,7 +1,3 @@
-**Avs' Valeri Nichushkin involved in car accident, misses game with 'minor' injuries**\
-`Avs coach Jared Bednar said Denver-area roads were icy Monday morning in the wake of overnight snow.`\
-https://nytimes.com/athletic/6984399/2026/01/19/valeri-nichushkin-avalanche-car-accident/
-
 **Visibly Disdainful**\
 `A debut by Jonathan Raksin? Sounds great!`\
 https://nytimes.com/2026/01/19/crosswords/daily-puzzle-2026-01-20.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6984099/2026/01/19/vancouver-canucks-trades-kiefer-
 **Goalie fight: Bobrovsky, Nedeljkovic throw down in Sharks vs. Panthers**\
 `The fight occurred six minutes into the third period when the Sharks took exception to an Evan Rodrigues hit behind their net.`\
 https://nytimes.com/athletic/6984337/2026/01/19/nhl-goalie-fight-bobrovsky-nedeljkovic-sharks-panthers/
+
+**How Trump Is Remaking America, State by State**\
+`Change is everywhere, manifestations of the sharp right turn that the president has promised for the country.`\
+https://nytimes.com/interactive/2026/01/19/us/trump-impact-on-states.html
 
