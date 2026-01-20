@@ -1,3 +1,11 @@
+**Minnesota Police Leaders Criticize Federal Tactics in ICE Surge**\
+`Chief Axel Henry of the St. Paul police said that residents, including those with legal status, were “scared to death.”`\
+https://nytimes.com/2026/01/20/us/ice-minnesota-police-axel-henry.html
+
+**TRANSCRIPT: Prime Minister Mark Carney of Canada Rebukes U.S. Primacy at Davos**\
+`The Canadian leader warned that middle powers need to stand together or they’ll find themselves “on the menu.”`\
+https://nytimes.com/interactive/2026/01/20/world/carney-transcript-davos.html
+
 **NBA unveils 2026 Finals schedule with notable changes, no Sunday games**\
 `The NBA Finals do not have a Sunday game scheduled for the first time in more than 50 years.`\
 https://nytimes.com/athletic/6986286/2026/01/20/2026-nba-finals-schedule-announced/

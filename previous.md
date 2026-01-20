@@ -1,3 +1,11 @@
+**Minnesota Police Leaders Criticize Federal Tactics in ICE Surge**\
+`Chief Axel Henry of the St. Paul police said that residents, including those with legal status, were “scared to death.”`\
+https://nytimes.com/2026/01/20/us/ice-minnesota-police-axel-henry.html
+
+**TRANSCRIPT: Prime Minister Mark Carney of Canada Rebukes U.S. Primacy at Davos**\
+`The Canadian leader warned that middle powers need to stand together or they’ll find themselves “on the menu.”`\
+https://nytimes.com/interactive/2026/01/20/world/carney-transcript-davos.html
+
 **NBA unveils 2026 Finals schedule with notable changes, no Sunday games**\
 `The NBA Finals do not have a Sunday game scheduled for the first time in more than 50 years.`\
 https://nytimes.com/athletic/6986286/2026/01/20/2026-nba-finals-schedule-announced/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/20/opinion/trump-federal-reserve-independence.html
 **Our favorite CFB national championship plays: Fernando Mendoza run will go down in history**\
 `Mendoza joins the likes of Vince Young, Maurice Clarett, Tua Tagovailoa, Hunter Renfrow and more with iconic BCS and CFP championship plays.`\
 https://nytimes.com/athletic/6986231/2026/01/20/fernando-mendoza-best-college-football-championship-plays/
-
-**Why Anthony Stolarz is going to the Marlies on a conditioning stint**\
-`Stolarz is eligible to play games for the Marlies, but the expectation is that he'll be there to get extra practice time.`\
-https://nytimes.com/athletic/6986068/2026/01/20/anthony-stolarz-maple-leafs-marlies-conditioning-stint/
-
-**Audi reveals first F1 car for 2026 after Sauber rebrand**\
-`Gernot Döllner, the CEO of Audi, restated the target to be fighting for the world championship by 2030 in the launch. `\
-https://nytimes.com/athletic/6985708/2026/01/20/audi-f1-car-sauber/
 
