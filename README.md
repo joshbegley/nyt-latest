@@ -1,3 +1,7 @@
+**Indiana's blocked punt, Beck's INT and how the Hoosiers won it all: Coaches confidential**\
+`Coaches from around the country shared their thoughts during Indiana's thrilling win over Miami to win the national title. `\
+https://nytimes.com/athletic/6985334/2026/01/20/college-football-indiana-championship-game-miami-analysis/
+
 **Aston Villa interested in Palace's Mateta, Palace eye Villa's Guessand**\
 `Villa are keen to strengthen their front line but there has been no breakthrough in talks with Besiktas over a deal for Tammy Abraham.`\
 https://nytimes.com/athletic/6978612/2026/01/20/jean-philippe-mateta-transfer-palace-villa-guessand/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6984958/2026/01/20/cade-cunningham-pistons-win-bost
 **Until Saturday: No such thing as Indiana hyperbole**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6985543/2026/01/20/indiana-football-championship-until-saturday/
-
-**Naomi Osaka's Australian Open outfit and a high couture moment for tennis fashion**\
-`The four-time Grand Slam champion's stunning looks have become a hallmark of on-court expression.`\
-https://nytimes.com/athletic/6985400/2026/01/20/naomi-osaka-australian-open-outfit-tennis-fashion/
 
