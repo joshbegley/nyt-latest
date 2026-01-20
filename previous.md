@@ -1,3 +1,7 @@
+**For the Patriots, will anything less than a Super Bowl berth be a disappointment?**\
+`Coming off two 4-13 seasons and muted expectations to begin 2025, the Patriots should be playing with house money. They're not anymore.`\
+https://nytimes.com/athletic/6983874/2026/01/20/patriots-broncos-mike-vrabel-super-bowl/
+
 **With Threats to Greenland, Trump Sets America on the Road to Conquest**\
 `After a century of defending other countries against foreign aggression, the United States is now positioned as an imperial power trying to seize another nation’s land.`\
 https://nytimes.com/2026/01/20/us/politics/trump-greenland-america-conquest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/20/dining/calorie-counting-weight-loss-nutrition.htm
 **Supreme Court to Hear Case Testing Limits of Hawaii Gun Law**\
 `The justices will hear arguments over whether a Hawaii law that imposes restrictions on carrying concealed weapons violates the Second Amendment.`\
 https://nytimes.com/2026/01/20/us/politics/supreme-court-hawaii-gun-law.html
-
-**2 Women, 4 Cats and 1 Home in a Best-Selling Korean Memoir**\
-`In “Two Women Living Together,” the authors reflect on the joys of platonic cohabitation.`\
-https://nytimes.com/2026/01/20/books/review/two-women-living-together-kim-hana-hwang-sunwoo.html
 

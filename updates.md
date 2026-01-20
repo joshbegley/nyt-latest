@@ -1,3 +1,7 @@
+**For the Patriots, will anything less than a Super Bowl berth be a disappointment?**\
+`Coming off two 4-13 seasons and muted expectations to begin 2025, the Patriots should be playing with house money. They're not anymore.`\
+https://nytimes.com/athletic/6983874/2026/01/20/patriots-broncos-mike-vrabel-super-bowl/
+
 **With Threats to Greenland, Trump Sets America on the Road to Conquest**\
 `After a century of defending other countries against foreign aggression, the United States is now positioned as an imperial power trying to seize another nation’s land.`\
 https://nytimes.com/2026/01/20/us/politics/trump-greenland-america-conquest.html
