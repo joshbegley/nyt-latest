@@ -1,5 +1,5 @@
-**Red-hot Penguins steamroll Seattle with contributions from everyone to open road trip**\
-`The Penguins never trailed with a workmanlike performance to put the Kraken away, including two goals from Connor Dewar.`\
+**Red-hot Penguins steamroll Kraken with contributions from everyone to open road trip**\
+`The Penguins never trailed with a workmanlike performance to put Seattle away, including two goals from Connor Dewar.`\
 https://nytimes.com/athletic/6984267/2026/01/19/penguins-dewar-depth-defense-kraken/
 
 **IU's Curt Cignetti blasts refs for not penalizing hits on Fernando Mendoza**\
