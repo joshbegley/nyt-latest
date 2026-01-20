@@ -1,3 +1,11 @@
+**Trumpism Is Doomed Without Restraint**\
+`The president needs counterforces to save him from himself.`\
+https://nytimes.com/2026/01/20/opinion/greenland-trump.html
+
+**Real Madrid 6 Monaco 1 – Vinicius Jr silences the boos, Mbappe equals Ronaldo record**\
+`Madrid produced a fine win on Alvaro Arbeloa's Champions League debut as their coach`\
+https://nytimes.com/athletic/6977389/2026/01/20/real-madrid-6-monaco-1-vinicius-jr-mbappe/
+
 **Rejecting Diplomatic Overtures, Trump Ratchets Up Tensions with Europe**\
 `President Trump’s bellicose demands about Greenland and participation in his “board of peace” are deepening worries about the fate of the trans-Atlantic alliance.`\
 https://nytimes.com/2026/01/20/us/politics/trump-europe-tensions-greenland.html

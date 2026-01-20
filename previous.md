@@ -1,3 +1,7 @@
+**Trumpism Is Doomed Without Restraint**\
+`The president needs counterforces to save him from himself.`\
+https://nytimes.com/2026/01/20/opinion/greenland-trump.html
+
 **Rejecting Diplomatic Overtures, Trump Ratchets Up Tensions with Europe**\
 `President Trump’s bellicose demands about Greenland and participation in his “board of peace” are deepening worries about the fate of the trans-Atlantic alliance.`\
 https://nytimes.com/2026/01/20/us/politics/trump-europe-tensions-greenland.html
@@ -22,7 +26,7 @@ https://nytimes.com/2026/01/20/us/politics/cia-operation-venezuela.html
 `Republicans asked the justices to step in after a federal court rejected their claims that the state’s new congressional map violated the Constitution.`\
 https://nytimes.com/2026/01/20/us/politics/california-supreme-court-congressional-map.html
 
-**Real Madrid 6 Monaco 1 — Vinicius Jr silences the boos, Mbappe equals Ronaldo record**\
+**Real Madrid 6 Monaco 1 – Vinicius Jr silences the boos, Mbappe equals Ronaldo record**\
 `Madrid produced a fine win on Alvaro Arbeloa's Champions League debut as their coach`\
 https://nytimes.com/athletic/6977389/2026/01/20/real-madrid-6-monaco-1-vinicius-jr-mbappe/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986973/2026/01/20/nwsl-schedule-2026-full-time/
 **The Briefing: Inter 1 Arsenal 3 – Gabriel Jesus and Viktor Gyokeres guide Arsenal to top two finish in Champions League**\
 `The Athletic's writers analyse Tuesday night's heavyweight Champions League clash at San Siro`\
 https://nytimes.com/athletic/6977390/2026/01/20/inter-arsenal-champions-league-analysis/
-
-**How Trump Is Talking Differently in His Second Term**\
-`He’s speaking far more words in public than in 2017, but much less about Obamacare and much more about foreign countries.`\
-https://nytimes.com/interactive/2026/01/20/upshot/trump-speech-words-list.html
 
