@@ -1,5 +1,9 @@
+**Until Saturday: No such thing as Indiana hyperbole**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6985543/2026/01/20/indiana-football-championship-until-saturday/
+
 **Naomi Osaka's Australian Open outfit and a high couture moment for tennis fashion**\
-`The four-time Grand Slam champion's stunning couture outfits have become a hallmark of tennis fashion.`\
+`The four-time Grand Slam champion's stunning looks have become a hallmark of on-court expression.`\
 https://nytimes.com/athletic/6985400/2026/01/20/naomi-osaka-australian-open-outfit-tennis-fashion/
 
 **Dodgers continue to engage on Freddy Peralta: What it says about their rotation**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6984517/2026/01/20/nfl-bills-coach-leadership-gm-ch
 **‘This Is Trump’s Goon Squad, for Christ’s Sake’**\
 `Who will watch the watchmen?`\
 https://nytimes.com/2026/01/20/opinion/trump-vance-miller-ice.html
-
-**What I’m hearing about the Washington Wizards ahead of the NBA trade deadline**\
-`Team sources and league sources said they expect the Wizards to remain active until the NBA trade deadline arrives on Feb. 5.`\
-https://nytimes.com/athletic/6984780/2026/01/20/washington-wizards-nba-trade-deadline-2026/
 
