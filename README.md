@@ -1,3 +1,11 @@
+**White Students Hurt by L.A. Desegregation Policy, Lawsuit Says**\
+`Schools with more white children miss out on smaller class sizes and other benefits, the lawsuit says. The policy dates back to desegregation efforts in the 1970s.`\
+https://nytimes.com/2026/01/20/us/los-angeles-schools-desegregation-lawsuit.html
+
+**Hidden In a Stream, New Clues About Cause of Spain Rail Crash**\
+`Officials said they had located a previously unreported train undercarriage down a gully near the site of a train crash in Spain that killed 42 people. Experts said the finding could help investigators clarify what caused the disaster.`\
+https://nytimes.com/2026/01/20/world/spain-missing-part-undercarriage-key-investigation.html
+
 **Cursive Makes a Comeback in New Jersey Schools**\
 `In one of his final acts in office, Gov. Philip D. Murphy signed a bill on Monday requiring third, fourth and fifth graders to learn cursive.`\
 https://nytimes.com/2026/01/20/nyregion/cursive-new-jersey-schools.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/20/us/politics/macron-france-trump-world-economic-fo
 **Comer Rejects Clinton Interview on Epstein, Setting Up Contempt Vote**\
 `The Republican chairman of the Oversight Committee refused an offer to interview the former president under oath, rejecting terms he said were unreasonable.`\
 https://nytimes.com/2026/01/20/us/politics/comer-clinton-interview-epstein.html
-
-**Can the Giants still improve their outfield in what's left of the offseason?**\
-`The Giants could use an outfield upgrade, though the remaining options may not improve them as much as addressing other needs.`\
-https://nytimes.com/athletic/6986538/2026/01/20/sf-giants-outfield-improvements-offseason/
-
-**How to watch Clippers vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6986705/2026/01/20/clippers-vs-bulls-stream-how-to-watch-jan-20/
 
