@@ -1,3 +1,11 @@
+**Trump, Venezuela and Oil**\
+`The president’s message since sending troops into Venezuela has been clear: This is about oil, not democracy.`\
+https://nytimes.com/2026/01/20/world/venezuela-oil-trump-greenland-davos.html
+
+**F.T.C. Appeals Loss in Meta Antitrust Case**\
+`The agency is aiming to reverse a setback in the government’s campaign to rein in the power of the biggest tech companies.`\
+https://nytimes.com/2026/01/20/technology/ftc-meta-antitrust-appeal.html
+
 **Macron Vows France Will Not Capitulate to Bullying From Trump**\
 `“We are reaching a time of instability and imbalances,” the French president said in remarks at the World Economic Forum, urging more cooperation among nations.`\
 https://nytimes.com/2026/01/20/us/politics/macron-france-trump-world-economic-forum.html

@@ -1,3 +1,7 @@
+**Replica of Trump’s Birthday Message to Epstein Appears on National Mall**\
+`An oversize card reproduces a suggestive birthday greeting from 2003, released as part of a congressional inquiry. President Trump has denied that he signed it.`\
+https://nytimes.com/2026/01/20/us/politics/trump-epstein-birthday-card-national-mall.html
+
 **Trump, Venezuela and Oil**\
 `The president’s message since sending troops into Venezuela has been clear: This is about oil, not democracy.`\
 https://nytimes.com/2026/01/20/world/venezuela-oil-trump-greenland-davos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986698/2026/01/20/heat-vs-kings-stream-how-to-watc
 **How to watch Devils vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6986695/2026/01/20/devils-vs-oilers-stream-how-to-watch-jan-20/
-
-**How to watch Lakers vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6986691/2026/01/20/lakers-vs-nuggets-stream-how-to-watch-jan-20/
 
