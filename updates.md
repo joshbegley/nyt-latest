@@ -1,3 +1,11 @@
+**Visibly Disdainful**\
+`A debut by Jonathan Raksin? Sounds great!`\
+https://nytimes.com/2026/01/19/crosswords/daily-puzzle-2026-01-20.html
+
+**Red-hot Penguins steamroll Kraken with contributions from everyone to open road trip**\
+`The Penguins never trailed with a workmanlike performance to put Seattle away, including two goals from Connor Dewar.`\
+https://nytimes.com/athletic/6984267/2026/01/19/penguins-dewar-depth-defense-kraken/
+
 **Red-hot Penguins steamroll Seattle with contributions from everyone to open road trip**\
 `The Penguins never trailed with a workmanlike performance to put the Kraken away, including two goals from Connor Dewar.`\
 https://nytimes.com/athletic/6984267/2026/01/19/penguins-dewar-depth-defense-kraken/

@@ -1,5 +1,9 @@
-**Red-hot Penguins steamroll Seattle with contributions from everyone to open road trip**\
-`The Penguins never trailed with a workmanlike performance to put the Kraken away, including two goals from Connor Dewar.`\
+**Visibly Disdainful**\
+`A debut by Jonathan Raksin? Sounds great!`\
+https://nytimes.com/2026/01/19/crosswords/daily-puzzle-2026-01-20.html
+
+**Red-hot Penguins steamroll Kraken with contributions from everyone to open road trip**\
+`The Penguins never trailed with a workmanlike performance to put Seattle away, including two goals from Connor Dewar.`\
 https://nytimes.com/athletic/6984267/2026/01/19/penguins-dewar-depth-defense-kraken/
 
 **IU's Curt Cignetti blasts refs for not penalizing hits on Fernando Mendoza**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6984337/2026/01/19/nhl-goalie-fight-bobrovsky-nedel
 **How Trump Is Remaking America, State by State**\
 `Change is everywhere, manifestations of the sharp right turn that the president has promised for the country.`\
 https://nytimes.com/interactive/2026/01/19/us/trump-impact-on-states.html
-
-**Snowstorm Causes 100-Vehicle Pileup in Michigan**\
-`More than 100 vehicles slipped and crashed into one another in a chain-reaction pileup on a Michigan interstate on Monday.`\
-https://nytimes.com/video/us/100000010654783/snowstorm-causes-100-vehicle-pileup-in-michigan.html
 
