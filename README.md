@@ -1,3 +1,7 @@
+**Cursive Makes a Comeback in New Jersey Schools**\
+`In one of his final acts in office, Gov. Philip D. Murphy signed a bill on Monday requiring third, fourth and fifth graders to learn cursive.`\
+https://nytimes.com/2026/01/20/nyregion/cursive-new-jersey-schools.html
+
 **Ter Stegen joins Girona on loan from Barca**\
 `Ter Stegen wants to play at this summer’s World Cup for Germany and needs to be in regular action at club level to do that.`\
 https://nytimes.com/athletic/6957177/2026/01/20/ter-stegen-barcelona-transfer-girona-loan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986538/2026/01/20/sf-giants-outfield-improvements-
 **How to watch Clippers vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6986705/2026/01/20/clippers-vs-bulls-stream-how-to-watch-jan-20/
-
-**How to watch Raptors vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6986703/2026/01/20/raptors-vs-warriors-stream-how-to-watch-jan-20/
 
