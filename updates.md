@@ -1,3 +1,24 @@
+**Quote of the Day: Starmer Decries U.S. Threat Of Tariff War Over Greenland**\
+`Quotation of the Day for Tuesday, January 20, 2025.`\
+https://nytimes.com/2026/01/19/pageoneplus/quote-of-the-day-starmer-decries-us-threat-of-tariff-war-over-greenland.html
+
+**Feldman: Why Curt Cignetti is college football's best coach right now**\
+`Curt Cignetti has pushed exactly the right button every time on his way to the top of college football's new world.`\
+https://nytimes.com/athletic/6984649/2026/01/19/curt-cignetti-indiana-college-football-coaches/
+
+**Five pivotal plays that powered Indiana to its first national championship**\
+`Fernando Mendoza's touchdown. Charlie Becker's catches. Jamari Sharpe's interception. These are the plays that won it for IU.`\
+https://nytimes.com/athletic/6984646/2026/01/19/indiana-football-fernando-mendoza-charlie-becker-national-championship/
+
+**Warriors' Jimmy Butler injures right knee vs. Heat, exits game with help**\
+`Butler stayed on the ground for a couple minutes while Warriors staff members checked on him and the Chase Center crowd fell silent.`\
+https://nytimes.com/athletic/6984698/2026/01/19/jimmy-butler-injury-knee-warriors-heat/
+
+**Madison Keys returns to Australian Open and finds her clutch tennis right where she left it**\
+`The defending champion played the stratospheric attacking tennis that won the 2025 title to escape danger against Oleksandra Oliynykova.
+`\
+https://nytimes.com/athletic/6984534/2026/01/19/tennis-australian-open-madison-keys-oliynykova/
+
 **Madison Keys returns to Australian Open and finds her clutch tennis right where she left it**\
 `The defending champion played the stratospheric attacking tennis that won the 2025 title to escape danger against Oleksandra Oliynykova.
 `\

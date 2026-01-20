@@ -1,3 +1,19 @@
+**Quote of the Day: Starmer Decries U.S. Threat Of Tariff War Over Greenland**\
+`Quotation of the Day for Tuesday, January 20, 2025.`\
+https://nytimes.com/2026/01/19/pageoneplus/quote-of-the-day-starmer-decries-us-threat-of-tariff-war-over-greenland.html
+
+**Feldman: Why Curt Cignetti is college football's best coach right now**\
+`Curt Cignetti has pushed exactly the right button every time on his way to the top of college football's new world.`\
+https://nytimes.com/athletic/6984649/2026/01/19/curt-cignetti-indiana-college-football-coaches/
+
+**Five pivotal plays that powered Indiana to its first national championship**\
+`Fernando Mendoza's touchdown. Charlie Becker's catches. Jamari Sharpe's interception. These are the plays that won it for IU.`\
+https://nytimes.com/athletic/6984646/2026/01/19/indiana-football-fernando-mendoza-charlie-becker-national-championship/
+
+**Warriors' Jimmy Butler injures right knee vs. Heat, exits game with help**\
+`Butler stayed on the ground for a couple minutes while Warriors staff members checked on him and the Chase Center crowd fell silent.`\
+https://nytimes.com/athletic/6984698/2026/01/19/jimmy-butler-injury-knee-warriors-heat/
+
 **Post-Luka Dončić trade, Max Christie making mark for Mavericks**\
 `The shooting-starved Mavericks have prodded Christie to take more 3-pointers all year.`\
 https://nytimes.com/athletic/6984484/2026/01/19/mavericks-max-christie-3-pointers-post-luka-doncic/
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/6984534/2026/01/19/tennis-australian-open-madison-k
 **Avs' Valeri Nichushkin involved in car accident, misses game with 'minor' injuries**\
 `Avs coach Jared Bednar said Denver-area roads were icy Monday morning in the wake of overnight snow.`\
 https://nytimes.com/athletic/6984399/2026/01/19/valeri-nichushkin-avalanche-car-accident/
-
-**Visibly Disdainful**\
-`A debut by Jonathan Raksin? Sounds great!`\
-https://nytimes.com/2026/01/19/crosswords/daily-puzzle-2026-01-20.html
-
-**Red-hot Penguins steamroll Kraken with contributions from everyone to open road trip**\
-`The Penguins never trailed with a workmanlike performance to put Seattle away, including two goals from Connor Dewar.`\
-https://nytimes.com/athletic/6984267/2026/01/19/penguins-dewar-depth-defense-kraken/
-
-**IU's Curt Cignetti blasts refs for not penalizing hits on Fernando Mendoza**\
-`"I'm all for letting them play, but when you cross the line, you gotta call it," Cignetti told ESPN.`\
-https://nytimes.com/athletic/6984445/2026/01/19/curt-cignetti-referee-comments-fernando-mendoza-personal-fouls/
-
-**Blackhawks fans give Jonathan Toews 3-minute ovation in return to Chicago**\
-`Toews spent 15 years with the Blackhawks before taking two years off and returning with his hometown Winnipeg Jets at 37.`\
-https://nytimes.com/athletic/6984419/2026/01/19/jonathan-toews-blackhawks-return-ovation-jets/
 
