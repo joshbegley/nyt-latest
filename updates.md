@@ -1,7 +1,3 @@
-**A Vermont Town Was a Foodie Mecca for Canadians. Until Trump’s Threats.**\
-`Greensboro’s economy depended on friendly relations with Canada. But after tariffs and threats to make the country the “51st state,” neighborly ties have frayed.`\
-https://nytimes.com/2026/01/19/us/politics/greensboro-vermont-canada-tariffs-trump.html
-
 **To Their Shock, Cubans in Florida Are Being Deported in Record Numbers**\
 `Cubans had long benefited from legal privileges unavailable to immigrants from other countries. President Trump has changed that.`\
 https://nytimes.com/2026/01/19/us/politics/cubans-florida-deportations-trump.html
@@ -37,4 +33,8 @@ https://nytimes.com/2026/01/19/us/politics/cdc-atlanta-trump-cuts.html
 **At Yosemite, Rangers Are Scarce and Visitors Have Gone Wild**\
 `After the Trump administration’s cuts, workers at the national park are spread too thin to stop people from littering, flying drones and cliff-diving.`\
 https://nytimes.com/2026/01/19/us/politics/yosemite-national-park-california-staffing-cuts.html
+
+**An Alaska Town Is Now Key to Trump’s Global Ambitions**\
+`Nome, population 3,700, is accessible only by plane outside a few months when boats can pass through. But it will be the home of the nation’s only deepwater Arctic port.`\
+https://nytimes.com/2026/01/19/us/politics/nome-alaska-arctic-port-trump-ambitions.html
 
