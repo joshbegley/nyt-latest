@@ -1,3 +1,7 @@
+**Champions League league phase: Analysis and predictions ahead of final games**\
+`How the final matches of the Champions League league phases are shaping up with two games to go`\
+https://nytimes.com/athletic/6985106/2026/01/20/champions-league-state-of-play-final-games-premier-league/
+
 **You read that right/: Indiana is college football's champion**\
 `In two seasons, the Hoosiers went from 3-9 and a coaching change to the first major college football program to go 16-0 since 1894.`\
 https://nytimes.com/athletic/6984983/2026/01/20/indiana-hoosiers-college-football-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6984803/2026/01/20/flyers-ersson-konecny-penalties-
 **How ESPN's Australian Open coverage left some American tennis fans cold**\
 `The decision to put the three biggest Australian Open courts behind an additional paywall sparked anger among fans.`\
 https://nytimes.com/athletic/6984941/2026/01/20/australian-open-espn-tennis-channels-cost-how-to-watch/
-
-**Rosenthal: Why a potential lockout doesn’t seem to be impacting the MLB offseason**\
-`Plus notes on the Athletics' ill-fated Arenado pursuit and what could be next for the Pirates' roster.`\
-https://nytimes.com/athletic/6984298/2026/01/20/mlb-free-agency-lockout-impact/
 
