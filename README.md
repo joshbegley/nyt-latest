@@ -1,3 +1,11 @@
+**Trump Mocks European Leaders Before Meeting With Them**\
+`Also, fewer people are jumping off the Golden Gate Bridge. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/01/20/briefing/trump-europe-leaders-davos-spain-train-crash.html
+
+**FIFA exec Ellis wary of U.S. hypocrisy over Qatar as women’s football host**\
+`The inaugural Women's Club World Cup will take place in January 2028. `\
+https://nytimes.com/athletic/6986710/2026/01/20/fifa-womens-club-world-cup-host-qatar/
+
 **The Beckhams Are Fighting. Here’s What’s Going On.**\
 `On Monday, the eldest Beckham son posted one-sided explosive accusations against his parents on Instagram. His parents have not responded directly.`\
 https://nytimes.com/2026/01/20/style/brooklyn-beckham-parents-wedding.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/20/opinion/greenland-trump.html
 **Trump Ratchets Up Tensions With Europe as He Rejects Diplomatic Overtures**\
 `President Trump’s bellicose demands about Greenland and participation in his “board of peace” are deepening worries about the fate of the trans-Atlantic alliance.`\
 https://nytimes.com/2026/01/20/us/politics/trump-europe-tensions-greenland.html
-
-**'The Athletic Football Show': Are the Bills looking in the wrong place for their new coach?**\
-`With Josh Allen at quarterback, would the Bills be better served focusing on an offensive-minded or defensive-minded head coach?`\
-https://nytimes.com/athletic/6986804/2026/01/20/athletic-football-show-bills-new-coach/
-
-**What Is Your Reaction to President Trump’s Campaign to Seize Greenland?**\
-`The president says he wants the United States to own the semiautonomous Danish territory. European leaders are outraged. What do you think about what is happening?`\
-https://nytimes.com/2026/01/20/learning/what-is-your-reaction-to-president-trumps-campaign-to-seize-greenland.html
 

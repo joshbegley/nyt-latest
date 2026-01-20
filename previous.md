@@ -1,3 +1,19 @@
+**The Beckhams Are Fighting. Here’s What’s Going On.**\
+`On Monday, the eldest Beckham son posted one-sided explosive accusations against his parents on Instagram. His parents have not responded directly.`\
+https://nytimes.com/2026/01/20/style/brooklyn-beckham-parents-wedding.html
+
+**Who’s to Blame for Teens’ Social Media Addiction?**\
+`Jonathan Haidt, author of “The Anxious Generation,” returns to the “Hard Fork” podcast to discuss new research about how social media is harming teens and what it’s been like to become the face of a global movement against the platforms.`\
+https://nytimes.com/video/podcasts/100000010657438/whos-to-blame-for-teens-social-media-addiction.html
+
+**Pentagon Hasn’t Yet Been Asked to Plan Greenland Invasion Amid Trump Threats**\
+`Pentagon officials plan for all sorts of military contingencies, but they have not yet been asked to draw up an invasion of Greenland or the aftermath of such an operation.`\
+https://nytimes.com/2026/01/20/us/politics/pentagon-greenland-invasion-plans.html
+
+**A Phillies-J.T. Realmuto reunion was expected, but not like this**\
+`An expected reunion for three years, $45 million between catcher and club has come with some awkwardness — thanks to the Bo Bichette. `\
+https://nytimes.com/athletic/6986777/2026/01/20/phillies-jt-realmuto-reunion-bo-bichette/
+
 **Five things we learned from the 2026 Baseball Hall of Fame election**\
 `COOPERSTOWN, N.`\
 https://nytimes.com/athletic/6985993/2026/01/20/baseball-hall-of-fame-election-2026-takeaways/
@@ -10,7 +26,7 @@ https://nytimes.com/athletic/6986854/2026/01/20/mlb-owners-salary-cap-push-dodge
 `The president needs counterforces to save him from himself.`\
 https://nytimes.com/2026/01/20/opinion/greenland-trump.html
 
-**Rejecting Diplomatic Overtures, Trump Ratchets Up Tensions with Europe**\
+**Trump Ratchets Up Tensions With Europe as He Rejects Diplomatic Overtures**\
 `President Trump’s bellicose demands about Greenland and participation in his “board of peace” are deepening worries about the fate of the trans-Atlantic alliance.`\
 https://nytimes.com/2026/01/20/us/politics/trump-europe-tensions-greenland.html
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6986804/2026/01/20/athletic-football-show-bills-new
 **What Is Your Reaction to President Trump’s Campaign to Seize Greenland?**\
 `The president says he wants the United States to own the semiautonomous Danish territory. European leaders are outraged. What do you think about what is happening?`\
 https://nytimes.com/2026/01/20/learning/what-is-your-reaction-to-president-trumps-campaign-to-seize-greenland.html
-
-**Canada’s Leader Warns of ‘Rupture’ in World Order**\
-`At the World Economic Forum, Prime Minister Mark Carney of Canada took a stand against President Trump’s desire for the United States to own Greenland, and called on medium-size countries to stand up to larger powers.`\
-https://nytimes.com/video/world/europe/100000010657121/carney-davos-greenland.html
-
-**C.I.A.’s New Focus on Latin America Reflected in Raid to Seize Maduro**\
-`A senior U.S. official declined to confirm the specific operations in Venezuela, but said a covert team provided real-time support for the military.`\
-https://nytimes.com/2026/01/20/us/politics/cia-operation-venezuela.html
-
-**California Republicans Ask Supreme Court to Block New Congressional Map**\
-`Republicans asked the justices to step in after a federal court rejected their claims that the state’s new congressional map violated the Constitution.`\
-https://nytimes.com/2026/01/20/us/politics/california-supreme-court-congressional-map.html
-
-**Real Madrid 6 Monaco 1 – Vinicius Jr silences the boos, Mbappe equals Ronaldo record**\
-`Madrid produced a fine win on Alvaro Arbeloa's Champions League debut as their coach`\
-https://nytimes.com/athletic/6977389/2026/01/20/real-madrid-6-monaco-1-vinicius-jr-mbappe/
 
