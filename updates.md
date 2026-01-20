@@ -1,3 +1,7 @@
+**Bournemouth complete signing of Alex Toth from Ferencvaros**\
+`The 20-year-old midfielder has signed a five-and-a-half-year contract with the Premier League side.`\
+https://nytimes.com/athletic/6977826/2026/01/20/alex-toth-bournemouth-transfer/
+
 **Trump Threatens 200 Percent Tariffs on French Wine**\
 `France has said it will not join President Trump’s “Board for Peace.” France’s agriculture minister described the tariff threat as “blackmail.”`\
 https://nytimes.com/2026/01/20/us/politics/trump-france-wine-gaza.html

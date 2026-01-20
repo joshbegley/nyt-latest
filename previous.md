@@ -1,3 +1,7 @@
+**Bournemouth complete signing of Alex Toth from Ferencvaros**\
+`The 20-year-old midfielder has signed a five-and-a-half-year contract with the Premier League side.`\
+https://nytimes.com/athletic/6977826/2026/01/20/alex-toth-bournemouth-transfer/
+
 **Trump Threatens 200 Percent Tariffs on French Wine**\
 `France has said it will not join President Trump’s “Board for Peace.” France’s agriculture minister described the tariff threat as “blackmail.”`\
 https://nytimes.com/2026/01/20/us/politics/trump-france-wine-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6980553/2026/01/20/transfer-news-premier-league-lat
 **Mikie Sherrill to Be Sworn In as Governor in New Jersey**\
 `Ms. Sherrill beat a Republican endorsed by President Trump and did what no politician in New Jersey has done since 1961: win her party a third consecutive term in the governor’s office.`\
 https://nytimes.com/2026/01/20/nyregion/mikie-sherrill-nj-governor.html
-
-**Your Favorite Current Songs**\
-`What are you listening to right now?`\
-https://nytimes.com/2026/01/20/learning/your-favorite-current-songs.html
 
