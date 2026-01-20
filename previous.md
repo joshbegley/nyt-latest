@@ -1,5 +1,10 @@
+**'I'm pretty embarrassed': Jake Sanderson apologizes for comments toward Leevi Meriläinen**\
+`Sanderson had regrets about his evaluation of Ottawa's goaltending on Saturday, after Meriläinen allowed six goals in a loss to Montreal.
+`\
+https://nytimes.com/athletic/6986107/2026/01/20/senators-jake-sanderson-leevi-merilainen-comments/
+
 **Prosecutors Subpoena Minnesota Democrats as Part of Federal Inquiry**\
-`The issuance of the subpoenas is a significant expansion of the Justice Department’s investigation into the state’s leaders, including Gov. Tim Walz and Mayor Jacob Frey of Minneapolis.`\
+`The subpoenas signaled a significant expansion of the Justice Department’s investigation into the state’s leaders, including Gov. Tim Walz and Mayor Jacob Frey of Minneapolis.`\
 https://nytimes.com/2026/01/20/us/politics/subpoena-minnesota-democrats-immigration.html
 
 **In Final Hours as Governor, Murphy Vetoes 2 Immigrant Rights Bills**\
@@ -34,8 +39,4 @@ https://nytimes.com/2026/01/20/world/africa/chagos-islands-diego-garcia.html
 **At Long Count, Ravi Derossi Goes All In on Aged Wines**\
 `The restaurant will serve wines that are at least 10 years old by the full pour, half-pour and bottle, alongside vegan dishes.`\
 https://nytimes.com/2026/01/20/dining/nyc-restaurant-news.html
-
-**At last, the team pitches tents on the Thwaites Glacier.**\
-`By Raymond Zhong`\
-https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/at-last-the-team-pitches-tents-on-the-thwaites-glacier
 
