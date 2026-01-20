@@ -1,3 +1,16 @@
+**Why Anthony Stolarz is going to the Marlies on a conditioning stint**\
+`Stolarz is eligible to play games for the Marlies, but the expectation is that he'll be there to get extra practice time.`\
+https://nytimes.com/athletic/6986068/2026/01/20/anthony-stolarz-maple-leafs-marlies-conditioning-stint/
+
+**Audi reveals first F1 car for 2026 after Sauber rebrand**\
+`Gernot Döllner, the CEO of Audi, restated the target to be fighting for the world championship by 2030 in the launch. `\
+https://nytimes.com/athletic/6985708/2026/01/20/audi-f1-car-sauber/
+
+**'I'm pretty embarrassed': Jake Sanderson apologizes for comments toward Leevi Meriläinen**\
+`Sanderson had regrets about his evaluation of Ottawa's goaltending on Saturday, after Meriläinen allowed six goals in a loss to Montreal.
+`\
+https://nytimes.com/athletic/6986107/2026/01/20/senators-jake-sanderson-leevi-merilainen-comments/
+
 **Hochul Unveils $260 Billion N.Y. Budget That Avoids Raising Taxes**\
 `Gov. Kathy Hochul of New York, who faces re-election this year, said that the state budget faced “real volatility” because of threats from President Trump.`\
 https://nytimes.com/2026/01/20/nyregion/hochul-budget-childcare-taxes.html

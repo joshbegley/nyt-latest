@@ -1,3 +1,7 @@
+**Our favorite CFB national championship plays: Fernando Mendoza run will go down in history**\
+`Indiana came up with a long list of pivotal plays to beat Miami and win its first national championship on Monday, none more memorable than Heisman Trophy winner Fernando Mendoza&#8217;s gritty 12-yard touchdown run on fourth-and-5 to put the Hoosiers up by 10 in the fourth quarter of a game they&#8217;d go on to win 27-21.`\
+https://nytimes.com/athletic/6986231/2026/01/20/fernando-mendoza-best-college-football-championship-plays/
+
 **Why Anthony Stolarz is going to the Marlies on a conditioning stint**\
 `Stolarz is eligible to play games for the Marlies, but the expectation is that he'll be there to get extra practice time.`\
 https://nytimes.com/athletic/6986068/2026/01/20/anthony-stolarz-maple-leafs-marlies-conditioning-stint/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6985858/2026/01/20/falcons-offensive-coordinator-se
 **As Brutal Cold Settles In, Forecasters Warn a Major Storm Is Brewing for the South**\
 `One meteorologist warns that “the main ingredients” are fitting into place for a disruptive winter storm later this week.`\
 https://nytimes.com/2026/01/20/weather/winter-cold-ice-snow-forecast-storm.html
-
-**U.S. Ski & Snowboard reveals Milan-Cortina uniforms inspired by Olympic nostalgia**\
-`"This uniform represents everything we want our teams to feel ... united, confident and ready to perform at the highest level."`\
-https://nytimes.com/athletic/6986094/2026/01/20/olympics-winter-uniforms-team-usa-fashion/
 
