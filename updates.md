@@ -1,3 +1,11 @@
+**Spanish Authorities Struggle to Identify Victims of Train Crash**\
+`The Spanish authorities have struggled to recognize the victims of a train crash on Sunday that killed dozens of people. One local official said the impact was so severe that bodies had been found hundreds of meters from the accident.`\
+https://nytimes.com/video/world/europe/100000010655701/spain-train-crash-victims.html
+
+**Struck Again by Hatred, a Mississippi Temple Says There Is More to Its Story**\
+`An arson attack at a synagogue in Mississippi was a reminder of the threat Jews face, but also of the strength of a small community forged over generations.`\
+https://nytimes.com/2026/01/20/us/mississippi-beth-israel-temple-judaism.html
+
 **Juventus lose legal dispute against Cristiano Ronaldo over €9.8m payment**\
 `The dispute was over the validity of a salary reduction agreement during the Covid-19 pandemic.`\
 https://nytimes.com/athletic/6985670/2026/01/20/cristiano-ronaldo-juventus-legal-dispute/
