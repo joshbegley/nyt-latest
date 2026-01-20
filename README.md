@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6984267/2026/01/19/penguins-dewar-depth-defense-kraken/
 
 **IU's Curt Cignetti blasts refs for not penalizing hits on Fernando Mendoza**\
-`“I’m all for letting them play, but when you cross the line, you gotta call it," Cignetti told ESPN.`\
+`"I'm all for letting them play, but when you cross the line, you gotta call it," Cignetti told ESPN.`\
 https://nytimes.com/athletic/6984445/2026/01/19/curt-cignetti-referee-comments-fernando-mendoza-personal-fouls/
 
 **Blackhawks fans give Jonathan Toews 3-minute ovation in return to Chicago**\
