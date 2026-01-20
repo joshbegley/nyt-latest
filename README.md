@@ -1,5 +1,5 @@
 **Maps: How the Train Crash in Spain Unfolded**\
-`Two trains collided on Sunday in southern Spain, killing at least 40 people, here is what happened.`\
+`Two trains collided on Sunday in southern Spain, killing at least 40 people. Here is what happened.`\
 https://nytimes.com/interactive/2026/01/20/world/europe/spain-train-crash-maps.html
 
 **Live Updates: Trump’s Greenland Threats Hang Over Davos Summit**\

@@ -1,3 +1,23 @@
+**Maps: How the Train Crash in Spain Unfolded**\
+`Two trains collided on Sunday in southern Spain, killing at least 40 people, here is what happened.`\
+https://nytimes.com/interactive/2026/01/20/world/europe/spain-train-crash-maps.html
+
+**Live Updates: Trump’s Greenland Threats Hang Over Davos Summit**\
+``\
+https://nytimes.com/live/2026/01/20/us/trump-news
+
+**Trump Texts Link Nobel Peace Prize Snub to Greenland**\
+`In a text message exchange with the Norwegian prime minister, President Trump linked his Nobel Peace Prize snub to his plans to acquire Greenland. As he doubled down on his threats, European leaders met at the World Economic Forum.`\
+https://nytimes.com/video/us/politics/100000010655180/trump-norway-prime-minister-texts-greenland.html
+
+**Warriors' Jimmy Butler tears ACL, expected to miss the rest of the season: Source**\
+`The Warriors' star wing suffered the injury after coming down awkwardly in the third quarter of Monday night's win over the Heat.`\
+https://nytimes.com/athletic/6985026/2026/01/20/jimmy-butler-warriors-tears-acl/
+
+**Islamic State Claims Deadly Attack on Chinese Restaurant in Afghanistan**\
+`A bombing that killed seven people and injured a dozen more at a noodle restaurant in a busy area of Kabul is likely to heighten China’s growing security concerns in Afghanistan.`\
+https://nytimes.com/2026/01/20/world/asia/isis-kabul-bomb-china.html
+
 **The Transfer DealSheet: The latest on your club's transfer window plans**\
 `Welcome to The Athletic's weekly look at the transfer market during the January window`\
 https://nytimes.com/athletic/6980553/2026/01/20/transfer-news-premier-league-latest/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/20/insider/trilobites-column.html
 **Nature’s Super Feather**\
 `Filoplumes may be tiny, but these hairlike feathers enable nonstop flights that span thousands of miles.`\
 https://nytimes.com/2026/01/20/science/birds-feathers-filoplumes-cornell.html
-
-**As Mamdani Focuses on Child Care, Plan to Tax the Rich Is Put Aside**\
-`Mayor Zohran Mamdani campaigned on a proposal to increase taxes on those earning more than $1 million. For now, at least, he isn’t pushing.`\
-https://nytimes.com/2026/01/20/nyregion/mamdani-hochul-taxes-child-care.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/20/crosswords/spelling-bee-forum.html
-
-**Jimmy Fallon Teases Trump Over Secondhand Prize**\
-`The “Tonight Show” host joked that President Trump hung his new Nobel Prize on the wall “right next to his McDonald’s customer of the month plaque.”`\
-https://nytimes.com/2026/01/20/arts/television/jimmy-fallon-trump-nobel-prize.html
-
-**Fernando Mendoza's championship performance shows why he's likely No. 1 NFL Draft pick**\
-`Miami's defense put pressure on Mendoza throughout the championship game, but Indiana's quarterback delivered when it mattered.`\
-https://nytimes.com/athletic/6984228/2026/01/20/fernando-mendoza-indiana-number-1-nfl-draft-pick/
-
-**After Four Shark Attacks in 48 Hours, Australia Shuts Dozens of Beaches**\
-`Many of the closed beaches were in Sydney, the site of three of the attacks.`\
-https://nytimes.com/2026/01/20/world/australia/australia-sydney-shark-attacks.html
 
