@@ -1,3 +1,11 @@
+**Marc Guehi was Crystal Palace's greatest centre-half. His departure leaves a void**\
+`The England defender's consistent excellence may only be properly felt now that he has gone, but he departs Selhurst Park as a club hero`\
+https://nytimes.com/athletic/6980601/2026/01/20/marc-guehi-crystal-palace-farewell/
+
+**What impact does AFCON final chaos have on Morocco and World Cup 2030?**\
+`What happened at the AFCON final? What have FIFA and CAF said? And what are the concerns ahead of the 2030 World Cup?`\
+https://nytimes.com/athletic/6983664/2026/01/20/afcon-final-morocco-world-cup/
+
 **French police, football fans, and a history of violence: 'They don’t care'**\
 `Liverpool's trip to Marseille has sparked fears of more problems from a police force with a reputation for heavy-handed tactics`\
 https://nytimes.com/athletic/6976778/2026/01/20/french-police-football-fans-and-a-history-of-violence-they-dont-care/
