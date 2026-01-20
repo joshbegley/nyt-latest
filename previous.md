@@ -1,3 +1,15 @@
+**Prosecutors Subpoena Minnesota Democrats as Part of Federal Inquiry**\
+`The issuance of the subpoenas is a significant expansion of the Justice Department’s investigation into the state’s leaders, including Gov. Tim Walz and Mayor Jacob Frey of Minneapolis.`\
+https://nytimes.com/2026/01/20/us/politics/subpoena-minnesota-democrats-immigration.html
+
+**In Final Hours as Governor, Murphy Vetoes 2 Immigrant Rights Bills**\
+`Philip D. Murphy, New Jersey’s former governor, did enact legislation to protect the rights of undocumented residents at schools, courthouses and health care facilities.`\
+https://nytimes.com/2026/01/20/nyregion/phil-murphy-immigration-new-jersey.html
+
+**Falcons offensive coordinator search: 5 options, including the clear front-runner**\
+`Tommy Rees is expected to be named the Falcons' new offensive coordinator under Kevin Stefanski, but there are other options out there.`\
+https://nytimes.com/athletic/6985858/2026/01/20/falcons-offensive-coordinator-search-tommy-rees/
+
 **As Brutal Cold Settles In, Forecasters Warn a Major Storm Is Brewing for the South**\
 `One meteorologist warns that “the main ingredients” are fitting into place for a disruptive winter storm later this week.`\
 https://nytimes.com/2026/01/20/weather/winter-cold-ice-snow-forecast-storm.html
@@ -26,16 +38,4 @@ https://nytimes.com/2026/01/20/dining/nyc-restaurant-news.html
 **At last, the team pitches tents on the Thwaites Glacier.**\
 `By Raymond Zhong`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/at-last-the-team-pitches-tents-on-the-thwaites-glacier
-
-**Has France’s President Finally Lost His Personal Touch With Trump?**\
-`For years, Emmanuel Macron has used friendship to temper President Trump’s most impulsive moves. It’s unclear whether that can still work.`\
-https://nytimes.com/2026/01/20/trump-macron-relationship-texts.html
-
-**Skies Clear, and a New Outpost Springs Up at the Bottom of the World**\
-`Low clouds have lifted long enough for helicopters to ferry scientists and their gear to a fast-melting glacier on the edge of Antarctica.`\
-https://nytimes.com/2026/01/20/climate/antarctica-camping-thwaites-glacier.html
-
-**A Few Dozen European Troops in Greenland Triggered Trump**\
-`President Trump threatened tariffs on European nations that sent military personnel to Greenland last week. Some have already gone home, but Denmark is now sending about 100 more.`\
-https://nytimes.com/2026/01/20/world/europe/europe-troops-greenland-trump.html
 
