@@ -1,3 +1,7 @@
+**Newcastle's Burn, Osula close to injury returns, Howe says**\
+`The head coach said the pair are "not too far away" and will feel like "new signings" once they return. `\
+https://nytimes.com/athletic/6985991/2026/01/20/dan-burn-william-osula-newcastle-injury-update/
+
 **One Year In, Searching for a Strategy Behind Trump’s Unpredictability**\
 `One great truth of Trump II so far is that nobody has any idea what tomorrow holds.`\
 https://nytimes.com/2026/01/20/us/politics/trump-one-year-unpredicatability.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/20/style/armani-without-armani.html
 **To Race in Formula 1, Colton Herta Goes Backward to Go Forward**\
 `He left the IndyCar Series to pursue a Formula 1 career, by way of Formula 2.`\
 https://nytimes.com/2026/01/20/sports/f1-colton-herta-daytona-racing.html
-
-**FIFA, UEFA presidents intervene to save West Bank soccer pitch from destruction**\
-`The IDF had been scheduled to demolish the pitch this week but that has been suspended after negotiations, sources said.`\
-https://nytimes.com/athletic/6985955/2026/01/20/infantino-ceferin-west-bank-soccer-idf/
 
