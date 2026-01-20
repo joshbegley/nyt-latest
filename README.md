@@ -1,3 +1,35 @@
+**The Bounce: The biggest All-Star starter snub**\
+`Welcome to The Bounce, The Athletic's NBA newsletter.`\
+https://nytimes.com/athletic/6985799/2026/01/20/anthony-edwards-all-star-starter-snub-the-bounce/
+
+**How to watch Saint Louis vs. Duquesne men's basketball: Time, TV, streaming**\
+`Find out how to watch the Saint Louis Billikens play the Duquesne Dukes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6985828/2026/01/20/saint-louis-vs-duquesne-stream-how-to-watch-jan-20/
+
+**Scouting Dylan Harper: Spurs rookie becoming a problem in the paint**\
+`Even with the long-range shooting issues, the second pick in last year's draft is having a solid first year.`\
+https://nytimes.com/athletic/6985780/2026/01/20/scouting-dylan-harper-spurs-rookie-becoming-a-problem-in-the-paint/
+
+**How to watch Indiana vs. Michigan men's basketball: Time, TV, streaming**\
+`Find out how to watch the Indiana Hoosiers play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6985823/2026/01/20/indiana-vs-michigan-stream-how-to-watch-jan-20/
+
+**Rosenior welcomes Disasi back to Chelsea training as Tosin ruled out for 'weeks'**\
+`Disasi has interest from clubs in England, Italy and France but Rosenior says the club is working "to get him up to speed".`\
+https://nytimes.com/athletic/6985790/2026/01/20/tosin-adarabioyo-injury-chelsea-axel-disasi/
+
+**How to watch LSU vs. Florida men's basketball: Time, TV, streaming**\
+`Find out how to watch the LSU Tigers play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6985818/2026/01/20/lsu-vs-florida-stream-how-to-watch-jan-20/
+
+**How to watch UCF vs. Iowa State men's basketball: Time, TV, streaming**\
+`Find out how to watch the UCF Knights play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6985815/2026/01/20/ucf-vs-iowa-state-stream-how-to-watch-jan-20/
+
+**How to watch NC State vs. Clemson men's basketball: Time, TV, streaming**\
+`Find out how to watch the NC State Wolfpack play the Clemson Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6985813/2026/01/20/nc-state-vs-clemson-stream-how-to-watch-jan-20/
+
 **Fluoridation Is Not Tied to Birth Weight, New Study Shows**\
 `Researchers looked at birth weight, an important predictor of long-term health, in 11 million babies born in the United States.`\
 https://nytimes.com/2026/01/20/well/fluoride-baby-weight-study.html
@@ -5,36 +37,4 @@ https://nytimes.com/2026/01/20/well/fluoride-baby-weight-study.html
 **Life Resembles ‘The Addams Family’ With Thing-Like Robotic Hand**\
 `The very capable robotic picker-upper can grasp things on both sides and roam around freely.`\
 https://nytimes.com/2026/01/20/science/robot-hand-thing-addams-family.html
-
-**Sticky Miso Salmon, Lemony Chicken and a Brothy Thai Curry**\
-`Quick and cozy weeknight meals to help you stick to (or revive) your healthy eating goals.`\
-https://nytimes.com/2026/01/20/dining/sticky-miso-salmon-lemony-chicken-and-a-brothy-thai-curry.html
-
-**Curt Cignetti gave Indiana football fans something we never dared even dream**\
-`From Section 352 in Hard Rock Stadium, this Indiana alum watched the Hoosiers become national champs. He's more shocked than you are.`\
-https://nytimes.com/athletic/6985575/2026/01/20/indiana-football-national-championship-fans-cignetti/
-
-**On ‘Late Night,’ in the Club and at the Gym: ‘Heated Rivalry’ Is Everywhere**\
-`The breakout show about two hockey players in love has gone from a TV hit to IRL social sensation.`\
-https://nytimes.com/2026/01/20/arts/television/heated-rivalry-fandom.html
-
-**Democrats Seek Investigation of $3.5 Million Deal by Interior Official’s Husband**\
-`Records show that Karen Budd-Falen, a top Interior Department official, didn’t disclose a contract between her husband and the developers of a mine approved by the agency.`\
-https://nytimes.com/2026/01/20/climate/nevada-mine-interior-department-karen-budd-falen-water-investigation.html
-
-**Canada’s Prime Minister Says There Has Been a ‘Rupture’ in the World Order**\
-`As President Trump continued his quest for Greenland, Prime Minister Mark Carney said great powers were unrestrained and urged medium-size countries to band together.`\
-https://nytimes.com/2026/01/20/us/politics/canadas-prime-minister-says-there-has-been-a-rupture-in-the-world-order.html
-
-**From goalie scraps to trade maps, NHL silly season is here**\
-`With the Olympics looming, action is heating up with trades, separation in the standings and, yes, goalies dropping the gloves.`\
-https://nytimes.com/athletic/6985680/2026/01/20/nhl-goalie-fight-trade-deadline-red-light/
-
-**Spanish Authorities Struggle to Identify Victims of Train Crash**\
-`The Spanish authorities have struggled to recognize the victims of a train crash on Sunday that killed dozens of people. One local official said the impact was so severe that bodies had been found hundreds of meters from the accident.`\
-https://nytimes.com/video/world/europe/100000010655701/spain-train-crash-victims.html
-
-**Struck Again by Hatred, a Mississippi Temple Says There Is More to Its Story**\
-`An arson attack at a synagogue in Mississippi was a reminder of the threat Jews face, but also of the strength of a small community forged over generations.`\
-https://nytimes.com/2026/01/20/us/mississippi-beth-israel-temple-judaism.html
 
