@@ -1,3 +1,15 @@
+**Which African country will go furthest at the 2026 World Cup? Ranking 10 teams' prospects**\
+`Now the 2025 Africa Cup of Nations (AFCON) has finished, the World Cup is the next major international tournament on the horizon`\
+https://nytimes.com/athletic/6982679/2026/01/20/african-teams-ranked-world-cup/
+
+**The World’s Reigning Carmen Breaks Down Her Signature Aria**\
+`Aigul Akhmetshina, performing now at the Met, shares her thoughts on what it takes to bring the famous Habanera to life.`\
+https://nytimes.com/2026/01/20/arts/music/carmen-habanera-aigul-akhmetshina.html
+
+**Armani Without Armani**\
+`The brand’s first men’s show after the death of its founder checked all the boxes but left something to be desired.`\
+https://nytimes.com/2026/01/20/style/armani-without-armani.html
+
 **To Race in Formula 1, Colton Herta Goes Backward to Go Forward**\
 `He left the IndyCar Series to pursue a Formula 1 career, by way of Formula 2.`\
 https://nytimes.com/2026/01/20/sports/f1-colton-herta-daytona-racing.html
@@ -27,16 +39,4 @@ https://nytimes.com/athletic/6985977/2026/01/20/sharks-vs-lightning-stream-how-t
 **Paige Bueckers wins $50K free-throw challenge, drops 37 in Breeze win**\
 `The reigning WNBA rookie of the year has been a standout performer in her first season with the 3x3 pro women's basketball league.`\
 https://nytimes.com/athletic/6985606/2026/01/20/womens-basketball-paige-bueckers-unrivaled-50k-free-throw-challenge/
-
-**Porsche Penske Motorsport Is Shaking Things Up**\
-`Its driver lineup at Daytona is changing, and the team has also dropped out of the World Endurance Championship.`\
-https://nytimes.com/2026/01/20/sports/porsche-penske-motorsport-imsa-daytona.html
-
-**Trump-Backed Challenger Enters Race to Unseat Senator Bill Cassidy**\
-`Days after President Trump urged her to run, Representative Julia Letlow said she would challenge Mr. Cassidy, a Louisiana Republican who voted to convict Mr. Trump in his second impeachment trial.`\
-https://nytimes.com/2026/01/20/us/politics/julia-letlow-trump-louisiana-senate-bill-cassidy.html
-
-**AP Top 25: Indiana final No. 1 for first time; Miami has best finish since 2002**\
-`Indiana and Miami are atop the final AP poll, with Ole Miss earning its first top five since 1962 and Texas Tech its first top 10 ever.`\
-https://nytimes.com/athletic/6985346/2026/01/20/ap-top-25-final-poll-indiana-miami-rankings/
 
