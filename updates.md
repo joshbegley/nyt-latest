@@ -1,3 +1,11 @@
+**Bailey returns to Villa after Roma loan ended**\
+`Roma did not have a break clause in the deal, with Villa needing to agree to the termination of the loan spell.`\
+https://nytimes.com/athletic/6985296/2026/01/20/leon-bailey-aston-villa-roma-loan-return/
+
+**Marseille reach Nwaneri loan agreement with Arsenal**\
+`The north London club hope that the 18-year-old willd travel to France on Wednesday to complete the deal.`\
+https://nytimes.com/athletic/6951909/2026/01/20/ethan-nwaneri-transfer-arsenal-marseille-loan-update/
+
 **‘Make America Go Away’ Caps Surge in Popularity as Trump Eyes Greenland**\
 `The hats have become a conspicuous presence at protests against President Trump in Greenland and Denmark.`\
 https://nytimes.com/2026/01/20/us/make-america-go-away-hats-greenland-trump.html
