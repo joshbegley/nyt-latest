@@ -1,3 +1,20 @@
+**There’s Much More at Stake in the Fed Case Than Interest Rates**\
+`Will the president will be able to escape one of the central constraints on executive power in our constitutional system?`\
+https://nytimes.com/2026/01/20/opinion/trump-federal-reserve-independence.html
+
+**Our favorite CFB national championship plays: Fernando Mendoza run will go down in history**\
+`Mendoza joins the likes of Vince Young, Maurice Clarett, Tua Tagovailoa, Hunter Renfrow and more with iconic BCS and CFP championship plays.`\
+https://nytimes.com/athletic/6986231/2026/01/20/fernando-mendoza-best-college-football-championship-plays/
+
+**Kansas' Self won't coach at Colorado after hospitalization, says he's 'feeling much better'**\
+`Self was previously admitted to Lawrence Memorial Hospital in July and had two stents inserted.`\
+https://nytimes.com/athletic/6984222/2026/01/20/kansas-bill-self-hospitalized-health-caution/
+
+**'I'm pretty embarrassed': Jake Sanderson apologizes for comments toward Leevi Meriläinen**\
+`Sanderson had regrets about his evaluation of Ottawa's goaltending on Saturday, after Meriläinen allowed six goals in a loss to Montreal.
+`\
+https://nytimes.com/athletic/6986107/2026/01/20/senators-jake-sanderson-leevi-merilainen-comments/
+
 **'I'm pretty embarrassed': Jake Sanderson apologizes for comments toward Leevi Meriläinen**\
 `Sanderson had regrets about his evaluation of Ottawa's goaltending on Saturday, after Meriläinen allowed six goals in a loss to Montreal.
 `\
