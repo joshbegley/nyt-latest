@@ -1,3 +1,7 @@
+**Australian Open recap: Record crowds enjoy scintillating tennis – but at what cost to fan experience?**\
+`Melbourne Park has been buzzing since the start of the tournament, but full courts lead to fans waiting to see what they came for.`\
+https://nytimes.com/athletic/6984022/2026/01/20/tennis-australian-open-recap-results-day-3/
+
 **Australia Passes Tighter Gun Control Laws, Weeks After Bondi Massacre**\
 `Critics said the government had rushed the legislation, along with a bill targeting hate speech, in the wake of the mass shooting in Sydney.`\
 https://nytimes.com/2026/01/20/world/australia/gun-control-buyback.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983855/2026/01/20/cowboys-defensive-roster-analysi
 **Who will Packers' next defensive coordinator be? Here are 10 candidates**\
 `Matt LaFleur is about to be on his fourth defensive coordinator entering his eighth season as Packers head coach.`\
 https://nytimes.com/athletic/6979383/2026/01/20/packers-defensive-coordinator-candidates-hafley/
-
-**What Tiger's Jupiter Links needs to do for first win of TGL Season 2**\
-`Jupiter Links Golf Club hasn't won inside the SoFi Center in a year and faces heavy favorite Los Angeles Golf Club on Tuesday night.`\
-https://nytimes.com/athletic/6983849/2026/01/20/tgl-match-5-jupiter-links-los-angeles-preview/
 
