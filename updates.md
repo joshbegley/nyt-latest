@@ -1,3 +1,15 @@
+**The Bills built up a lot of goodwill with their fans. It vanished on Monday.**\
+`The Bills made arguably the riskiest move in franchise history when they fired Sean McDermott and promoted Brandon Beane.`\
+https://nytimes.com/athletic/6985985/2026/01/20/bills-fans-mcdermott-fired-beane/
+
+**David Rosen, 95, Dies; Video Game Visionary and Co-Founder of Sega**\
+`He transformed his Japanese photo booth business into a gaming industry game giant that created Mortal Kombat, Sonic the Hedgehog and more.`\
+https://nytimes.com/2026/01/20/business/david-rosen-dead.html
+
+**Despite Drastic Financial Steps, Met Opera Turns to Layoffs and Cuts**\
+`The largest performing arts organization in the country will lay off workers, cut salaries and reduce its offerings. It may also sell its Chagall murals that are valued at $55 million.`\
+https://nytimes.com/2026/01/20/arts/music/met-opera-budget-cuts.html
+
 **Minnesota Police Leaders Criticize Federal Tactics in ICE Surge**\
 `Chief Axel Henry of the St. Paul police said that residents, including those with legal status, were “scared to death.”`\
 https://nytimes.com/2026/01/20/us/ice-minnesota-police-axel-henry.html
