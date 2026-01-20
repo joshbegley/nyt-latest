@@ -1,3 +1,15 @@
+**All Sides Agreed on Shutting a Coal Plant. Then Trump Stepped In.**\
+`The administration has thrown into chaos a deal that Washington State worked out with local leaders, environmentalists and industry.`\
+https://nytimes.com/2026/01/20/climate/trump-coal-plant-centralia-washington.html
+
+**Valentino Was the Last of Fashion’s Old Guard**\
+`For Mr. Garavani, beauty was not so much an antidote to the trials and stresses of life but something akin to a value system.`\
+https://nytimes.com/2026/01/20/opinion/valentino-was-the-last-of-fashions-old-guard.html
+
+**Bodo/Glimt 3 Manchester City 1 - Guehi cannot arrive soon enough and what was Rodri thinking?**\
+`Pep Guardiola's side were comprehensively beaten in Norway, ending the game with 10 men after Rodri was sent off`\
+https://nytimes.com/athletic/6977387/2026/01/20/bodo-glimt-3-manchester-city-1/
+
 **Everton's Grealish feared out for multiple months with suspected foot stress fracture**\
 `The attacker has played 20 league matches this season.`\
 https://nytimes.com/athletic/6986263/2026/01/20/grealish-everton-foot-injury-news/
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/6985708/2026/01/20/audi-f1-car-sauber/
 **Kansas' Self won't coach at Colorado after hospitalization, says he's 'feeling much better'**\
 `Self was previously admitted to Lawrence Memorial Hospital in July and had two stents inserted.`\
 https://nytimes.com/athletic/6984222/2026/01/20/kansas-bill-self-hospitalized-health-caution/
-
-**Hochul Unveils $260 Billion N.Y. Budget That Avoids Raising Taxes**\
-`Gov. Kathy Hochul of New York, who faces re-election this year, said that the state budget faced “real volatility” because of threats from President Trump.`\
-https://nytimes.com/2026/01/20/nyregion/hochul-budget-childcare-taxes.html
-
-**10 Gloriously Nonsensical Songs of Pop Gibberish**\
-`“Sussudio,” “Di Doo Dah,” “Da Doo Ron Ron” and more.`\
-https://nytimes.com/2026/01/20/arts/music/amplifier-newsletter-nonsense-songs.html
-
-**'I'm pretty embarrassed': Jake Sanderson apologizes for comments toward Leevi Meriläinen**\
-`Sanderson had regrets about his evaluation of Ottawa's goaltending on Saturday, after Meriläinen allowed six goals in a loss to Montreal.
-`\
-https://nytimes.com/athletic/6986107/2026/01/20/senators-jake-sanderson-leevi-merilainen-comments/
 

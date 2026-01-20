@@ -1,3 +1,15 @@
+**All Sides Agreed on Shutting a Coal Plant. Then Trump Stepped In.**\
+`The administration has thrown into chaos a deal that Washington State worked out with local leaders, environmentalists and industry.`\
+https://nytimes.com/2026/01/20/climate/trump-coal-plant-centralia-washington.html
+
+**Valentino Was the Last of Fashion’s Old Guard**\
+`For Mr. Garavani, beauty was not so much an antidote to the trials and stresses of life but something akin to a value system.`\
+https://nytimes.com/2026/01/20/opinion/valentino-was-the-last-of-fashions-old-guard.html
+
+**Bodo/Glimt 3 Manchester City 1 - Guehi cannot arrive soon enough and what was Rodri thinking?**\
+`Pep Guardiola's side were comprehensively beaten in Norway, ending the game with 10 men after Rodri was sent off`\
+https://nytimes.com/athletic/6977387/2026/01/20/bodo-glimt-3-manchester-city-1/
+
 **'I'm pretty embarrassed': Jake Sanderson apologizes for comments toward Leevi Meriläinen**\
 `Sanderson had regrets about his evaluation of Ottawa's goaltending on Saturday, after Meriläinen allowed six goals in a loss to Montreal.
 `\

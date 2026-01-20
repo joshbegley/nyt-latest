@@ -1,3 +1,7 @@
+**NBA unveils 2026 Finals schedule with notable changes, no Sunday games**\
+`The NBA Finals do not have a Sunday game scheduled for the first time in more than 50 years.`\
+https://nytimes.com/athletic/6986286/2026/01/20/2026-nba-finals-schedule-announced/
+
 **All Sides Agreed on Shutting a Coal Plant. Then Trump Stepped In.**\
 `The administration has thrown into chaos a deal that Washington State worked out with local leaders, environmentalists and industry.`\
 https://nytimes.com/2026/01/20/climate/trump-coal-plant-centralia-washington.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986068/2026/01/20/anthony-stolarz-maple-leafs-marl
 **Audi reveals first F1 car for 2026 after Sauber rebrand**\
 `Gernot Döllner, the CEO of Audi, restated the target to be fighting for the world championship by 2030 in the launch. `\
 https://nytimes.com/athletic/6985708/2026/01/20/audi-f1-car-sauber/
-
-**Kansas' Self won't coach at Colorado after hospitalization, says he's 'feeling much better'**\
-`Self was previously admitted to Lawrence Memorial Hospital in July and had two stents inserted.`\
-https://nytimes.com/athletic/6984222/2026/01/20/kansas-bill-self-hospitalized-health-caution/
 
