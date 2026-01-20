@@ -1,3 +1,11 @@
+**Five things we learned from the 2026 Baseball Hall of Fame election**\
+`COOPERSTOWN, N.`\
+https://nytimes.com/athletic/6985993/2026/01/20/baseball-hall-of-fame-election-2026-takeaways/
+
+**MLB owners 'raging' at Tucker-Dodgers deal, will '100 percent' push for salary cap**\
+`It's believed that only the Los Angeles Dodgers and New York Mets might remain in opposition to a salary cap proposal, a source said.`\
+https://nytimes.com/athletic/6986854/2026/01/20/mlb-owners-salary-cap-push-dodgers-kyle-tucker/
+
 **Trumpism Is Doomed Without Restraint**\
 `The president needs counterforces to save him from himself.`\
 https://nytimes.com/2026/01/20/opinion/greenland-trump.html
