@@ -1,3 +1,7 @@
+**Indiana completes one of sport's most astonishing turnarounds with first national title**\
+`Indiana wins the national championship and breaks college football in the process. `\
+https://nytimes.com/athletic/6984236/2026/01/19/miami-indiana-score-results-cfp-national-championship-game/
+
 **Madison Keys returns to Australian Open and finds her clutch tennis right where she left it**\
 `The defending champion played the stratospheric attacking tennis that won the 2025 title to escape danger against Oleksandra Oliynykova.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6984400/2026/01/19/indiana-miami-espn-4k-couple-cfp
 **Map: 4.9-Magnitude Earthquake Shakes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/01/19/us/quake-tracker-southern-california.html
-
-**Why Canucks made this Sherwood trade, and what I'm hearing about what's next**\
-`The direction of Vancouver's rebuilding began to take clearer shape after trading Kiefer Sherwood.`\
-https://nytimes.com/athletic/6984099/2026/01/19/vancouver-canucks-trades-kiefer-sherwood/
 

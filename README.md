@@ -1,3 +1,7 @@
+**Trump Issues M.L.K. Day Proclamation After Criticism**\
+`Civil rights groups had criticized President Trump for failing to issue a proclamation honoring Martin Luther King Jr. and not attending commemorative events.`\
+https://nytimes.com/2026/01/19/us/politics/trump-mlk-day-proclamation.html
+
 **Indiana completes one of sport's most astonishing turnarounds with first national title**\
 `Indiana wins the national championship and breaks college football in the process. `\
 https://nytimes.com/athletic/6984236/2026/01/19/miami-indiana-score-results-cfp-national-championship-game/
@@ -34,8 +38,4 @@ https://nytimes.com/2026/01/19/world/americas/death-toll-rises-in-guatemalan-gan
 **As Indiana, Miami clash, '4K couple' steals attention on ESPN broadcast**\
 `The 4K broadcast doesn't cut to commercials, and a couple of fans got plenty of early airtime.`\
 https://nytimes.com/athletic/6984400/2026/01/19/indiana-miami-espn-4k-couple-cfp-championship/
-
-**Map: 4.9-Magnitude Earthquake Shakes Southern California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2026/01/19/us/quake-tracker-southern-california.html
 
