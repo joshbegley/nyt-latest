@@ -1,3 +1,11 @@
+**Five things we learned from the 2026 Baseball Hall of Fame election**\
+`COOPERSTOWN, N.`\
+https://nytimes.com/athletic/6985993/2026/01/20/baseball-hall-of-fame-election-2026-takeaways/
+
+**MLB owners 'raging' at Tucker-Dodgers deal, will '100 percent' push for salary cap**\
+`It's believed that only the Los Angeles Dodgers and New York Mets might remain in opposition to a salary cap proposal, a source said.`\
+https://nytimes.com/athletic/6986854/2026/01/20/mlb-owners-salary-cap-push-dodgers-kyle-tucker/
+
 **Trumpism Is Doomed Without Restraint**\
 `The president needs counterforces to save him from himself.`\
 https://nytimes.com/2026/01/20/opinion/greenland-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/20/us/politics/california-supreme-court-congressiona
 **Real Madrid 6 Monaco 1 – Vinicius Jr silences the boos, Mbappe equals Ronaldo record**\
 `Madrid produced a fine win on Alvaro Arbeloa's Champions League debut as their coach`\
 https://nytimes.com/athletic/6977389/2026/01/20/real-madrid-6-monaco-1-vinicius-jr-mbappe/
-
-**Full Time: The NWSL schedule, and actor taking on Mia Hamm**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6986973/2026/01/20/nwsl-schedule-2026-full-time/
-
-**The Briefing: Inter 1 Arsenal 3 – Gabriel Jesus and Viktor Gyokeres guide Arsenal to top two finish in Champions League**\
-`The Athletic's writers analyse Tuesday night's heavyweight Champions League clash at San Siro`\
-https://nytimes.com/athletic/6977390/2026/01/20/inter-arsenal-champions-league-analysis/
 
