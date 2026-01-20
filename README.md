@@ -1,3 +1,7 @@
+**Meet the U.S. Olympic bobsled, skeleton and luge teams: Medal hopes in all 3**\
+`The U.S. has legitimate medal chances in all three sliding sports at the 2026 Winter Olympics. Here are the full teams for each.`\
+https://nytimes.com/athletic/6983959/2026/01/20/us-olympics-bobsled-skeleton-luge-team-cortina/
+
 **Spurs, Celtics look like contenders. Should they be active at the trade deadline?**\
 `San Antonio and Boston may be a year ahead of schedule and it may be tempting for both to push in chips sooner than expected.`\
 https://nytimes.com/athletic/6982271/2026/01/20/spurs-celtics-nba-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6982679/2026/01/20/african-teams-ranked-world-cup/
 **The World’s Reigning Carmen Breaks Down Her Signature Aria**\
 `Aigul Akhmetshina, performing now at the Met, shares her thoughts on what it takes to bring the famous Habanera to life.`\
 https://nytimes.com/2026/01/20/arts/music/carmen-habanera-aigul-akhmetshina.html
-
-**Armani Without Armani**\
-`The brand’s first men’s show after the death of its founder checked all the boxes but left something to be desired.`\
-https://nytimes.com/2026/01/20/style/armani-without-armani.html
 
