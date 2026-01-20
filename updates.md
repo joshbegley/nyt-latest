@@ -1,3 +1,16 @@
+**Everton's Grealish feared out for multiple months with suspected foot stress fracture**\
+`The attacker has played 20 league matches this season.`\
+https://nytimes.com/athletic/6986263/2026/01/20/grealish-everton-foot-injury-news/
+
+**‘Mel Brooks: The 99 Year Old Man!’ Is a Funny, Bittersweet Tribute**\
+`Co-directed by Judd Apatow, the two-part HBO series is an exhaustive look at Brooks’s life and comedy. It is also about longevity and loneliness.`\
+https://nytimes.com/2026/01/20/arts/television/mel-brooks-the-99-year-old-man-hbo.html
+
+**'I'm pretty embarrassed': Jake Sanderson apologizes for comments toward Leevi Meriläinen**\
+`Sanderson had regrets about his evaluation of Ottawa's goaltending on Saturday, after Meriläinen allowed six goals in a loss to Montreal.
+`\
+https://nytimes.com/athletic/6986107/2026/01/20/senators-jake-sanderson-leevi-merilainen-comments/
+
 **'I'm pretty embarrassed': Jake Sanderson apologizes for comments toward Leevi Meriläinen**\
 `Sanderson had regrets about his evaluation of Ottawa's goaltending on Saturday, after Meriläinen allowed six goals in a loss to Montreal.
 `\
