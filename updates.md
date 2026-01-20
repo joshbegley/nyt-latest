@@ -1,3 +1,8 @@
+**'I'm pretty embarrassed': Jake Sanderson apologizes for comments toward Leevi Meriläinen**\
+`Sanderson had regrets about his evaluation of Ottawa's goaltending on Saturday, after Meriläinen allowed six goals in a loss to Montreal.
+`\
+https://nytimes.com/athletic/6986107/2026/01/20/senators-jake-sanderson-leevi-merilainen-comments/
+
 **Why Anthony Stolarz is going to the Marlies on a conditioning stint**\
 `Stolarz is eligible to play games for the Marlies, but the expectation is that he'll be there to get extra practice time.`\
 https://nytimes.com/athletic/6986068/2026/01/20/anthony-stolarz-maple-leafs-marlies-conditioning-stint/
