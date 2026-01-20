@@ -1,4 +1,12 @@
-**The Bills built up a lot of goodwill with their fans. It vanished on Monday.**\
+**Penn Rebukes Government for Demanding Information About Jewish Staff**\
+`The federal government has sued the University of Pennsylvania for lists of Jewish employees. The university said the request recalls a “frightening” history.`\
+https://nytimes.com/2026/01/20/us/university-of-pennsylvania-trump-jewish-staff.html
+
+**Duke lawsuit can't prevent star QB Mensah's last-minute transfer portal move, judge says**\
+`Duke sought a preliminary injunction that would prevent it from entering Mensah into the transfer portal while seeking arbitration.`\
+https://nytimes.com/athletic/6986375/2026/01/20/duke-darian-mensah-lawsuit-transfer-portal/
+
+**The Bills built up a lot of goodwill with their fans. It vanished Monday**\
 `The Bills made arguably the riskiest move in franchise history when they fired Sean McDermott and promoted Brandon Beane.`\
 https://nytimes.com/athletic/6985985/2026/01/20/bills-fans-mcdermott-fired-beane/
 
@@ -18,7 +26,7 @@ https://nytimes.com/2026/01/20/us/ice-minnesota-police-axel-henry.html
 `The Canadian leader warned that middle powers need to stand together or they’ll find themselves “on the menu.”`\
 https://nytimes.com/interactive/2026/01/20/world/carney-transcript-davos.html
 
-**NBA unveils 2026 Finals schedule with notable changes, no Sunday games**\
+**NBA Finals schedule features notable changes, no Sunday games**\
 `The NBA Finals do not have a Sunday game scheduled for the first time in more than 50 years.`\
 https://nytimes.com/athletic/6986286/2026/01/20/2026-nba-finals-schedule-announced/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/20/climate/trump-coal-plant-centralia-washington.htm
 **Valentino Was the Last of Fashion’s Old Guard**\
 `For Mr. Garavani, beauty was not so much an antidote to the trials and stresses of life but something akin to a value system.`\
 https://nytimes.com/2026/01/20/opinion/valentino-was-the-last-of-fashions-old-guard.html
-
-**Bodo/Glimt 3 Manchester City 1 - Guehi cannot arrive soon enough and what was Rodri thinking?**\
-`Pep Guardiola's side were comprehensively beaten in Norway, ending the game with 10 men after Rodri was sent off`\
-https://nytimes.com/athletic/6977387/2026/01/20/bodo-glimt-3-manchester-city-1/
-
-**Everton's Grealish feared out for multiple months with suspected foot stress fracture**\
-`The attacker has played 20 league matches this season.`\
-https://nytimes.com/athletic/6986263/2026/01/20/grealish-everton-foot-injury-news/
 
