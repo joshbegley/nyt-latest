@@ -1,3 +1,7 @@
+**The historic absurdity of Indiana's national championship in 10 numbers**\
+`Indiana has mostly known losing for more than a century. Now, improbably, Curt Cignetti has the Hoosiers on top of college football.`\
+https://nytimes.com/athletic/6984818/2026/01/20/indiana-football-national-championship-history-stats-records/
+
 **The New York Times in Print for Tuesday, Jan. 20, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/20/todays-new-york-times
