@@ -1,3 +1,7 @@
+**Trump, Venezuela and Oil**\
+`The president’s message since sending troops into Venezuela has been clear: This is about oil, not democracy.`\
+https://nytimes.com/2026/01/20/world/venezuela-oil-trump-greenland-davos.html
+
 **F.T.C. Appeals Loss in Meta Antitrust Case**\
 `The agency is aiming to reverse a setback in the government’s campaign to rein in the power of the biggest tech companies.`\
 https://nytimes.com/2026/01/20/technology/ftc-meta-antitrust-appeal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986695/2026/01/20/devils-vs-oilers-stream-how-to-w
 **How to watch Lakers vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6986691/2026/01/20/lakers-vs-nuggets-stream-how-to-watch-jan-20/
-
-**How to watch Sabres vs. Predators: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6986688/2026/01/20/sabres-vs-predators-stream-how-to-watch-jan-20/
 
