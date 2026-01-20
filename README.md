@@ -1,3 +1,7 @@
+**Comer Rejects Clinton Interview on Epstein, Setting Up Contempt Vote**\
+`The Republican chairman of the Oversight Committee refused an offer to interview the former president under oath, rejecting terms he said were unreasonable.`\
+https://nytimes.com/2026/01/20/us/politics/comer-clinton-interview-epstein.html
+
 **Can the Giants still improve their outfield in what's left of the offseason?**\
 `The Giants could use an outfield upgrade, though the remaining options may not improve them as much as addressing other needs.`\
 https://nytimes.com/athletic/6986538/2026/01/20/sf-giants-outfield-improvements-offseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986684/2026/01/20/spurs-vs-rockets-stream-how-to-w
 **How to watch Rangers vs. Kings: Time, TV, streaming**\
 `Find out how to watch the New York Rangers play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6986682/2026/01/20/rangers-vs-kings-stream-how-to-watch-jan-20/
-
-**How to watch Blues vs. Jets: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6986676/2026/01/20/blues-vs-jets-stream-how-to-watch-jan-20/
 
