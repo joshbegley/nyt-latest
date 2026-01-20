@@ -1,3 +1,12 @@
+**Post-Luka Dončić trade, Max Christie making mark for Mavericks**\
+`The shooting-starved Mavericks have prodded Christie to take more 3-pointers all year.`\
+https://nytimes.com/athletic/6984484/2026/01/19/mavericks-max-christie-3-pointers-post-luka-doncic/
+
+**Madison Keys returns to Australian Open and finds her clutch tennis right where she left it**\
+`The defending champion played the stratospheric attacking tennis that won the 2025 title to escape danger against Oleksandra Oliynykova.
+`\
+https://nytimes.com/athletic/6984534/2026/01/19/tennis-australian-open-madison-keys-oliynykova/
+
 **Trump Issues M.L.K. Day Proclamation After Criticism**\
 `Civil rights groups had criticized President Trump for failing to issue a proclamation honoring Martin Luther King Jr. and not attending commemorative events.`\
 https://nytimes.com/2026/01/19/us/politics/trump-mlk-day-proclamation.html
