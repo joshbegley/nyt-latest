@@ -1,3 +1,11 @@
+**In Colorado, the Options for Ari, a Transgender Teen, Begin to Disappear**\
+`The Trump administration has used an array of pressure tactics to try to end treatments for minors, even in states that want to keep them.`\
+https://nytimes.com/2026/01/19/us/politics/colorado-transgender-treatments-trump.html
+
+**An Idaho City Has New Refugees: White South Africans**\
+`Twin Falls and its dairy industry have benefited from an influx of refugees from places like Bosnia, the Democratic Republic of Congo and Myanmar. That era is over.`\
+https://nytimes.com/2026/01/19/us/politics/twin-falls-idaho-afrikaners-trump.html
+
 **A Vermont Town Was a Foodie Mecca for Canadians. Until Trump’s Threats.**\
 `Greensboro’s economy depended on friendly relations with Canada. But after tariffs and threats to make the country the “51st state,” neighborly ties have frayed.`\
 https://nytimes.com/2026/01/19/us/politics/greensboro-vermont-canada-tariffs-trump.html
