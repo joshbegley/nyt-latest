@@ -1,3 +1,7 @@
+**Trump Heckles Europe Before Heading to Davos**\
+`As European leaders try to engage with the American president over Greenland and the future of Ukraine, he is mocking them as weak.`\
+https://nytimes.com/2026/01/20/world/europe/davos-trump-europe.html
+
 **‘Chaos’ as Kurdish-Led Forces Stop Guarding Camp for ISIS Families**\
 `The Syrian Democratic Forces withdrew abruptly from the sprawling Al Hol camp, according to Syrian and Kurdish officials, during a conflict with the government.`\
 https://nytimes.com/2026/01/20/world/middleeast/syria-isis-camp-al-hol-kurds.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6985283/2026/01/20/college-football-indiana-fernand
 **Does Work Wellbeing Work?**\
 `Work wellbeing benefits both employees and employers.`\
 https://nytimes.com/paidpost/indeed/does-work-wellbeing-work.html
-
-**A field trip to Boston helped Pistons visualize their current goals**\
-`"We learned a lot from it," Cade Cunningham says of his 2022 trip to the Eastern Conference finals to watch the Celtics beat the Heat. `\
-https://nytimes.com/athletic/6984958/2026/01/20/cade-cunningham-pistons-win-boston-celtics/
 

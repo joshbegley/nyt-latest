@@ -1,3 +1,7 @@
+**Trump Heckles Europe Before Heading to Davos**\
+`As European leaders try to engage with the American president over Greenland and the future of Ukraine, he is mocking them as weak.`\
+https://nytimes.com/2026/01/20/world/europe/davos-trump-europe.html
+
 **‘Chaos’ as Kurdish-Led Forces Stop Guarding Camp for ISIS Families**\
 `The Syrian Democratic Forces withdrew abruptly from the sprawling Al Hol camp, according to Syrian and Kurdish officials, during a conflict with the government.`\
 https://nytimes.com/2026/01/20/world/middleeast/syria-isis-camp-al-hol-kurds.html
