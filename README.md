@@ -1,3 +1,7 @@
+**Naomi Osaka's Australian Open outfit and a high couture moment for tennis fashion**\
+`The four-time Grand Slam champion's stunning couture outfits have become a hallmark of tennis fashion.`\
+https://nytimes.com/athletic/6985400/2026/01/20/naomi-osaka-australian-open-outfit-tennis-fashion/
+
 **Dodgers continue to engage on Freddy Peralta: What it says about their rotation**\
 `If the Brewers decide to trade Peralta, the Dodgers have a bounty of budget-friendly young pitchers in their system.`\
 https://nytimes.com/athletic/6983535/2026/01/20/dodgers-freddy-peralta-trade-possibility/
@@ -14,7 +18,7 @@ https://nytimes.com/2026/01/20/style/street-style-look-mens-trench-coat.html
 `There was a sense the Warriors could contend despite their slow start and the Jonathan Kuminga drama. Butler's injury changes everything.`\
 https://nytimes.com/athletic/6985126/2026/01/20/warriors-jimmy-butler-injury-future-roster/
 
-**Indiana quarterback Alberto Mendoza enters transfer portal after title game**\
+**Indiana backup QB Alberto Mendoza enters transfer portal after title game**\
 `The younger brother of the Hoosiers' Heisman-winning quarterback will likely look for a starting opportunity elsewhere.`\
 https://nytimes.com/athletic/6985409/2026/01/20/alberto-mendoza-indiana-transfer-portal/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/20/opinion/trump-vance-miller-ice.html
 **What I’m hearing about the Washington Wizards ahead of the NBA trade deadline**\
 `Team sources and league sources said they expect the Wizards to remain active until the NBA trade deadline arrives on Feb. 5.`\
 https://nytimes.com/athletic/6984780/2026/01/20/washington-wizards-nba-trade-deadline-2026/
-
-**For Syria’s Government, Kurdish Deal Is a Big Win**\
-`As the government moves to assert control over areas under Kurdish rule, it will be the latest test of President Ahmed al-Sharaa’s pledge to form an inclusive administration that empowers minorities.`\
-https://nytimes.com/2026/01/20/world/middleeast/for-syrias-government-kurdish-deal-is-a-big-win.html
 
