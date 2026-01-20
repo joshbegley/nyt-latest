@@ -1,5 +1,5 @@
 **Mendoza says rare postgame curse was 'fitting' after Indiana's title win**\
-`The Indiana quarterback's polished persona is real, but after leading the Hoosiers to a championship, Mendoza didn't hold back an F-bomb.`\
+`The Indiana quarterback's polished persona is real, but after leading the Hoosiers to a championship, Mendoza didn't hold back.`\
 https://nytimes.com/athletic/6985283/2026/01/20/college-football-indiana-fernando-mendoza-swear-championship-game/
 
 **Does Work Wellbeing Work?**\
