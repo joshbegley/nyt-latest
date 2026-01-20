@@ -1,3 +1,7 @@
+**Canada Flexes on Global Stage With an Eye to Its Own Survival**\
+`Prime Minister Mark Carney got a standing ovation in Davos for starkly describing the end of Pax Americana. He is looking for new allies to help his country survive it.`\
+https://nytimes.com/2026/01/20/world/canada/carney-speech-davos-trump.html
+
 **Carlos Beltrán, Andruw Jones elected to Baseball Hall of Fame**\
 `The center fielders will join Jeff Kent – who was elected last month by the Contemporary Baseball Era Committee – in Cooperstown in July.`\
 https://nytimes.com/athletic/6983277/2026/01/20/baseball-hall-of-fame-beltran-jones-cooperstown/
