@@ -1,3 +1,7 @@
+**Miami RB Fletcher throws punch at IU lineman, later hugs QB Fernando Mendoza**\
+`Fletcher and Tucker were separated after a postgame altercation. `\
+https://nytimes.com/athletic/6984809/2026/01/20/mark-fletcher-tyrique-tucker-punch-fernando-mendoza/
+
 **Why Liverpool didn't go back in for Marc Guehi - and where it leaves them**\
 `Look at the numbers and there is logic behind Liverpool's decision not to rival City for Guehi this month. But it is also a gamble... `\
 https://nytimes.com/athletic/6982783/2026/01/20/liverpool-marc-guehi-man-city-transfer/

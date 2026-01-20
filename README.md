@@ -1,3 +1,7 @@
+**The Chinese Island Where Dreams of Real Estate Glory Never Die**\
+`Intended as China’s version of Dubai’s palm-shaped artificial island, Ocean Flower Island is a $12 billion monument to debt-fueled economic excess.`\
+https://nytimes.com/2026/01/20/world/asia/china-ocean-flower-island-real-estate.html
+
 **Miami RB Fletcher throws punch at IU lineman, later hugs QB Fernando Mendoza**\
 `Fletcher and Tucker were separated after a postgame altercation. `\
 https://nytimes.com/athletic/6984809/2026/01/20/mark-fletcher-tyrique-tucker-punch-fernando-mendoza/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983342/2026/01/20/real-madrid-florentino-perez-pro
 **'Bergkamp was seen as Arsenal's Cantona' - assessing the Dutchman's impact after his 1995 move from Inter**\
 `In an edited transcript, James Richardson, Duncan Alexander, Michael Cox and Adrian Clarke discuss the legacy of Dennis Bergkamp at Arsenal`\
 https://nytimes.com/athletic/6980503/2026/01/20/arsenal-inter-milan-champions-league-dennis-bergkamp/
-
-**Trees for goalposts: The small Scottish park that became a talent hotbed**\
-`A small park in a mining town near Glasgow produced John Robertson, Jimmy Johnstone and a host of other future professional players`\
-https://nytimes.com/athletic/6948117/2026/01/20/robertson-johnstone-scotland-viewpark-glasgow/
 
