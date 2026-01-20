@@ -1,3 +1,8 @@
+**'I'm pretty embarrassed': Jake Sanderson apologizes for comments toward Leevi Meriläinen**\
+`Sanderson had regrets about his evaluation of Ottawa's goaltending on Saturday, after Meriläinen allowed six goals in a loss to Montreal.
+`\
+https://nytimes.com/athletic/6986107/2026/01/20/senators-jake-sanderson-leevi-merilainen-comments/
+
 **Everton's Grealish feared out for multiple months with suspected foot stress fracture**\
 `The attacker has played 20 league matches this season.`\
 https://nytimes.com/athletic/6986263/2026/01/20/grealish-everton-foot-injury-news/
