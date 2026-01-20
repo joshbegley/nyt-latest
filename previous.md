@@ -1,3 +1,7 @@
+**Kansas' Bill Self hospitalized out of 'caution,' doesn't travel with team to Colorado**\
+`Self was previously admitted to Lawrence Memorial Hospital in July and had two stents inserted.`\
+https://nytimes.com/athletic/6984222/2026/01/19/kansas-bill-self-hospitalized-health-caution/
+
 **A City on Edge: Protesters Clash in Minneapolis**\
 `Jake Lang, a prominent right-wing activist, held a small pro-ICE rally in Minneapolis on Saturday. Within minutes, counterprotesters closed in and the confrontation turned violent.`\
 https://nytimes.com/video/us/100000010652966/protesters-clash-ice-minneapolis.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6754590/2026/01/19/fantasy-hockey-rest-of-season-ra
 **A Vermont Town Was a Foodie Mecca for Canadians. Until Trump’s Threats.**\
 `Greensboro’s economy depended on friendly relations with Canada. But after tariffs and threats to make the country the “51st state,” neighborly ties have frayed.`\
 https://nytimes.com/2026/01/19/us/politics/greensboro-vermont-canada-tariffs-trump.html
-
-**To Their Shock, Cubans in Florida Are Being Deported in Record Numbers**\
-`Cubans had long benefited from legal privileges unavailable to immigrants from other countries. President Trump has changed that.`\
-https://nytimes.com/2026/01/19/us/politics/cubans-florida-deportations-trump.html
 
