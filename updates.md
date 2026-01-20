@@ -1,3 +1,7 @@
+**Why Canucks made this Sherwood trade, and what I'm hearing about what's next**\
+`The direction of Vancouver's rebuilding began to take clearer shape after trading Kiefer Sherwood.`\
+https://nytimes.com/athletic/6984099/2026/01/19/vancouver-canucks-trades-kiefer-sherwood/
+
 **Goalie fight: Bobrovsky, Nedeljkovic throw down in Sharks vs. Panthers**\
 `The fight occurred six minutes into the third period when the Sharks took exception to an Evan Rodrigues hit behind their net.`\
 https://nytimes.com/athletic/6984337/2026/01/19/nhl-goalie-fight-bobrovsky-nedeljkovic-sharks-panthers/

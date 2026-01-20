@@ -1,3 +1,7 @@
+**Why Canucks made this Sherwood trade, and what I'm hearing about what's next**\
+`The direction of Vancouver's rebuilding began to take clearer shape after trading Kiefer Sherwood.`\
+https://nytimes.com/athletic/6984099/2026/01/19/vancouver-canucks-trades-kiefer-sherwood/
+
 **Goalie fight: Bobrovsky, Nedeljkovic throw down in Sharks vs. Panthers**\
 `The fight occurred six minutes into the third period when the Sharks took exception to an Evan Rodrigues hit behind their net.`\
 https://nytimes.com/athletic/6984337/2026/01/19/nhl-goalie-fight-bobrovsky-nedeljkovic-sharks-panthers/
@@ -33,10 +37,4 @@ https://nytimes.com/athletic/6984165/2026/01/19/jason-tatum-celtics-workout-joe-
 **Judge Allows Policy Restricting Lawmakers’ Access to ICE Facilities**\
 `The decision permitted the Trump administration to continue restricting inspections of the conditions inside immigration detention compounds.`\
 https://nytimes.com/2026/01/19/us/politics/ice-detention-lawmakers-oversight.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>And so, the longest seven-plus months of the year begin. But first, let&#8217;s close the door on the 2025 season.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6984213/2026/01/19/submit-a-question-for-stewart-mandels-college-football-mailbag-331/
 
