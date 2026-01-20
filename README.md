@@ -1,3 +1,19 @@
+**Does Jimmy Butler's injury herald the end of Golden State's dynasty?**\
+`There was a sense the Warriors could contend despite their slow start and the Jonathan Kuminga drama. Butler's injury changes everything.`\
+https://nytimes.com/athletic/6985126/2026/01/20/warriors-jimmy-butler-injury-future-roster/
+
+**Indiana quarterback Alberto Mendoza enters transfer portal after title game**\
+`The younger brother of the Hoosiers' Heisman-winning quarterback will likely look for a starting opportunity elsewhere.`\
+https://nytimes.com/athletic/6985409/2026/01/20/alberto-mendoza-indiana-transfer-portal/
+
+**It wasn't perfect, but Doc Rivers' rotation change sparks Bucks in Atlanta**\
+`Rivers was trying to accomplish two things with the shake-up: more size in the starting lineup and more scoring when Giannis sits.`\
+https://nytimes.com/athletic/6984512/2026/01/20/bucks-hawks-pete-nance-giannis/
+
+**Bills leadership roundtable: How Brandon Beane's promotion will impact the team's future**\
+`The search for a new head coach has begun in Buffalo.`\
+https://nytimes.com/athletic/6984517/2026/01/20/nfl-bills-coach-leadership-gm-changes-future/
+
 **‘This Is Trump’s Goon Squad, for Christ’s Sake’**\
 `Who will watch the watchmen?`\
 https://nytimes.com/2026/01/20/opinion/trump-vance-miller-ice.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6985296/2026/01/20/leon-bailey-aston-villa-roma-loa
 **‘Make America Go Away’ Caps Surge in Popularity as Trump Eyes Greenland**\
 `The hats have become a conspicuous presence at protests against President Trump in Greenland and Denmark.`\
 https://nytimes.com/2026/01/20/us/make-america-go-away-hats-greenland-trump.html
-
-**Marseille reach Nwaneri loan agreement with Arsenal**\
-`The north London club hope that the 18-year-old will travel to France on Wednesday to complete the deal.`\
-https://nytimes.com/athletic/6951909/2026/01/20/ethan-nwaneri-transfer-arsenal-marseille-loan-update/
-
-**Vikings coaching staff in flux: What we're hearing about the offensive line and defense**\
-`With important questions to be answered, who will coach the Vikings' offensive line? And what would happen if Brian Flores leaves?`\
-https://nytimes.com/athletic/6983767/2026/01/20/vikings-coaching-staff-offensive-line-defense/
-
-**Man handed restraining order, community service for stalking Liverpool's Marie Hobinger**\
-`Mangal Dalal had pleaded guilty in December and was sentenced at Westminster Magistrates' Court on Tuesday.`\
-https://nytimes.com/athletic/6985150/2026/01/20/marie-hobinger-stalker-liverpool/
-
-**From Nick Foles to Tom Brady: The exclusive backup QB club Jarrett Stidham hopes to join**\
-`Stidham wouldn't be the first backup quarterback to enter midseason and lead his team to a championship. `\
-https://nytimes.com/athletic/6983568/2026/01/20/jarrett-stidham-backup-qb-super-bowl-nick-foles/
 
