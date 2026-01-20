@@ -1,3 +1,15 @@
+**Phillies losing Bo Bichette to Mets a 'gut punch,' Dave Dombrowski says**\
+`"We thought we were very close to having a deal done. We thought it was going to happen. But it wasn't done."`\
+https://nytimes.com/athletic/6986089/2026/01/20/phillies-lose-bo-bichette-mets-gut-punch/
+
+**Inside the Andersson trade, and what's next for Flames: Move Kadri? Coleman?**\
+`The Flames general manager explained the Andersson trade from his end and the organization's current thinking on other in-demand veterans.`\
+https://nytimes.com/athletic/6985771/2026/01/20/flames-trade-andersson-kadri-coleman/
+
+**Trump Wanted a Nobel. Now It’s Greenland.**\
+`Readers respond to news articles about President Trump’s threat to take over Greenland. Also: Minnesota prosecutors’ resignations; Holocaust generations.`\
+https://nytimes.com/2026/01/20/opinion/trump-nobel-greenland.html
+
 **Trump Threatens New Trade War as Court Weighs Whether to Check Him**\
 `President Trump may be on the verge of having his authority on imposing tariffs curtailed, but that hasn’t slowed down his threats.`\
 https://nytimes.com/2026/01/20/us/politics/trump-tariffs-supreme-court.html

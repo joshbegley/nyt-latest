@@ -1,3 +1,15 @@
+**Phillies losing Bo Bichette to Mets a 'gut punch,' Dave Dombrowski says**\
+`"We thought we were very close to having a deal done. We thought it was going to happen. But it wasn't done."`\
+https://nytimes.com/athletic/6986089/2026/01/20/phillies-lose-bo-bichette-mets-gut-punch/
+
+**Inside the Andersson trade, and what's next for Flames: Move Kadri? Coleman?**\
+`The Flames general manager explained the Andersson trade from his end and the organization's current thinking on other in-demand veterans.`\
+https://nytimes.com/athletic/6985771/2026/01/20/flames-trade-andersson-kadri-coleman/
+
+**Trump Wanted a Nobel. Now It’s Greenland.**\
+`Readers respond to news articles about President Trump’s threat to take over Greenland. Also: Minnesota prosecutors’ resignations; Holocaust generations.`\
+https://nytimes.com/2026/01/20/opinion/trump-nobel-greenland.html
+
 **Trump Threatens New Trade War as Court Weighs Whether to Check Him**\
 `President Trump may be on the verge of having his authority on imposing tariffs curtailed, but that hasn’t slowed down his threats.`\
 https://nytimes.com/2026/01/20/us/politics/trump-tariffs-supreme-court.html
@@ -21,20 +33,4 @@ https://nytimes.com/2026/01/20/us/politics/trump-one-year-unpredicatability.html
 **Russia's path back to Olympic hockey? IIHF to meet on implications of IOC guidance and next steps**\
 `The IOC's recommendation that youth athletes be allowed to participate could be the first step to the IIHF reintegrating banned countries.`\
 https://nytimes.com/athletic/6984463/2026/01/20/russia-olympic-hockey-future-iihf-ioc/
-
-**In U.S. Attorney Standoff, Judges in Virginia Seek to Fill Top Prosecutor Job**\
-`Some judges have expressed frustration that Lindsey Halligan continues to claim she is the U.S. attorney for the Eastern District of Virginia, despite a ruling in November declaring her appointment invalid.`\
-https://nytimes.com/2026/01/20/us/politics/judges-seek-to-fill-top-prosecutor-job-in-virginia.html
-
-**Israel Seizes U.N. Agency’s Jerusalem Headquarters**\
-`Bulldozers leveled some structures in a compound that belonged to UNRWA, the United Nations agency for Palestinian refugees, escalating Israel’s crackdown on the organization.`\
-https://nytimes.com/2026/01/20/world/middleeast/israel-unrwa-jerusalem.html
-
-**Greenland’s Leader Says He Cannot Rule Out an American Attack**\
-`Jens-Frederik Nielsen, Greenland’s prime minister, said that an attack on the territory by the United States was “not likely” — but said that he could not rule one out.`\
-https://nytimes.com/2026/01/20/us/politics/trump-greenland-denmark-supplies-davos.html
-
-**Which African country will go furthest at the 2026 World Cup? Ranking 10 teams' prospects**\
-`Now the 2025 Africa Cup of Nations (AFCON) has finished, the World Cup is the next major international tournament on the horizon`\
-https://nytimes.com/athletic/6982679/2026/01/20/african-teams-ranked-world-cup/
 
