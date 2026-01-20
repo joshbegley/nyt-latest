@@ -1,3 +1,7 @@
+**The Trump Drama Hits Davos**\
+`Greenland, tariffs and wobbling markets are the talk of the town at the World Economic Forum ahead of the president’s arrival on Wednesday.`\
+https://nytimes.com/2026/01/20/business/dealbook/trump-davos-tariffs-greenland.html
+
 **Bailey returns to Villa after Roma loan ended**\
 `Roma did not have a break clause in the deal, with Villa needing to agree to the termination of the loan spell.`\
 https://nytimes.com/athletic/6985296/2026/01/20/leon-bailey-aston-villa-roma-loan-return/

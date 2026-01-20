@@ -1,3 +1,7 @@
+**The Trump Drama Hits Davos**\
+`Greenland, tariffs and wobbling markets are the talk of the town at the World Economic Forum ahead of the president’s arrival on Wednesday.`\
+https://nytimes.com/2026/01/20/business/dealbook/trump-davos-tariffs-greenland.html
+
 **Bailey returns to Villa after Roma loan ended**\
 `Roma did not have a break clause in the deal, with Villa needing to agree to the termination of the loan spell.`\
 https://nytimes.com/athletic/6985296/2026/01/20/leon-bailey-aston-villa-roma-loan-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6984695/2026/01/20/indiana-miami-college-football-p
 **Texans maintain belief despite another divisional-round loss, looming offseason questions**\
 `C.J. Stroud: “I think the future is bright for us, and I'm excited to be in it and to be on this team and in this city."`\
 https://nytimes.com/athletic/6983816/2026/01/20/houston-texans-future-belief-offseason-questions/
-
-**Top potential Bills head coach candidates: Brian Daboll, Mike Tomlin, Mike McDaniel, and more**\
-`After years of having a defensive-minded coach, it might be time for the Bills to look at someone with an offensive background.`\
-https://nytimes.com/athletic/6984117/2026/01/20/nfl-bills-coaching-candidates-tomlin-daboll/
 
