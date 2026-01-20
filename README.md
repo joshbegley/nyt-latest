@@ -1,3 +1,7 @@
+**The New York Times in Print for Tuesday, Jan. 20, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/20/todays-new-york-times
+
 **Warriors Windup: Jimmy Butler's knee injury hovers over win vs. Heat**\
 `The Golden State Warriors earned their 12th win in 16 tries Monday night in a 135-112 win over the Miami Heat.`\
 https://nytimes.com/athletic/6984530/2026/01/20/warriors-heat-score-results-stats-steph-curry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6976778/2026/01/20/french-police-football-fans-and-
 **Many expected Thomas Frank's Spurs tenure to end this week. How has he survived?**\
 `When Thomas Frank was booed off the pitch by thousands of Tottenham fans just after 5pm on Saturday, it felt like the end...`\
 https://nytimes.com/athletic/6979493/2026/01/20/thomas-frank-tottenham-manager-fans-dortmund/
-
-**Kylian Mbappe at Monaco: Teenage tensions, a title triumph and a fast track to stardom**\
-`Monaco is where it all began for Mbappe. Now he faces them with Real Madrid as the global star he always seemed destined to become`\
-https://nytimes.com/athletic/6982672/2026/01/20/kylian-mbappe-monaco-real-madrid-champions-league/
 

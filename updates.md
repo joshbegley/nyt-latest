@@ -1,3 +1,11 @@
+**Warriors Windup: Jimmy Butler's knee injury hovers over win vs. Heat**\
+`The Golden State Warriors earned their 12th win in 16 tries Monday night in a 135-112 win over the Miami Heat.`\
+https://nytimes.com/athletic/6984530/2026/01/20/warriors-heat-score-results-stats-steph-curry/
+
+**LeBron James' MLK shoes modeled after Lorraine Motel look cool but miss the mark**\
+`But if we’re going to remember King, let’s remember how he lived and what he fought for, not where his life ended.`\
+https://nytimes.com/athletic/6984139/2026/01/20/lebron-james-nike-mlk-shoe-controversy/
+
 **The Chinese Island Where Dreams of Real Estate Glory Never Die**\
 `Intended as China’s version of Dubai’s palm-shaped artificial island, Ocean Flower Island is a $12 billion monument to debt-fueled economic excess.`\
 https://nytimes.com/2026/01/20/world/asia/china-ocean-flower-island-real-estate.html
