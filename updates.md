@@ -1,3 +1,11 @@
+**Carlos Beltrán, Andruw Jones elected to Baseball Hall of Fame**\
+`The center fielders will join Jeff Kent – who was elected last month by the Contemporary Baseball Era Committee – in Cooperstown in July.`\
+https://nytimes.com/athletic/6983277/2026/01/20/baseball-hall-of-fame-beltran-jones-cooperstown/
+
+**Scoop City: Mendoza seals fate, Dolphins and Titans nab coaches**\
+`Draft takeaways from college football championship, updates on coaching carousel and priorities for the Bills, 49ers, Bears, Texans`\
+https://nytimes.com/athletic/6987327/2026/01/20/nfl-titans-dolphins-coach-indiana-bears-bills-49ers-texans/
+
 **Pushing the Boundaries of Tennis Clothes**\
 `Arriving to her first match at the Australian Open, Naomi Osaka wore couture designs with athletic wear. Was it a sign of outfits to come?`\
 https://nytimes.com/2026/01/20/style/naomi-osaka-jellyfish-australian-open.html
