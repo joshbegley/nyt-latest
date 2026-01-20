@@ -1,3 +1,7 @@
+**Greenland’s Leader Says He Cannot Rule Out an American Attack**\
+`Jens-Frederik Nielsen, Greenland’s prime minister, said that an attack on the territory by the United States was “not likely” — but said that he could not rule one out.`\
+https://nytimes.com/2026/01/20/us/politics/trump-greenland-denmark-supplies-davos.html
+
 **Which African country will go furthest at the 2026 World Cup? Ranking 10 teams' prospects**\
 `Now the 2025 Africa Cup of Nations (AFCON) has finished, the World Cup is the next major international tournament on the horizon`\
 https://nytimes.com/athletic/6982679/2026/01/20/african-teams-ranked-world-cup/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6985852/2026/01/20/jonas-brodin-leo-carlsson-injuri
 **How to watch Sharks vs. Lightning: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6985977/2026/01/20/sharks-vs-lightning-stream-how-to-watch-jan-20/
-
-**Paige Bueckers wins $50K free-throw challenge, drops 37 in Breeze win**\
-`The reigning WNBA rookie of the year has been a standout performer in her first season with the 3x3 pro women's basketball league.`\
-https://nytimes.com/athletic/6985606/2026/01/20/womens-basketball-paige-bueckers-unrivaled-50k-free-throw-challenge/
 

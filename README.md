@@ -1,3 +1,11 @@
+**Judges Seek to Fill Top Prosecutor Job in Virginia**\
+`The move highlights a continuing standoff between the president and the courts over his selection of Lindsey Halligan to run the office and indict his foes.`\
+https://nytimes.com/2026/01/20/us/politics/judges-seek-to-fill-top-prosecutor-job-in-virginia.html
+
+**Israel Seizes U.N. Agency’s Jerusalem Headquarters**\
+`Bulldozers leveled some structures in a compound that belonged to UNRWA, the United Nations agency for Palestinian refugees, escalating Israel’s crackdown on the organization.`\
+https://nytimes.com/2026/01/20/world/middleeast/israel-unrwa-jerusalem.html
+
 **Greenland’s Leader Says He Cannot Rule Out an American Attack**\
 `Jens-Frederik Nielsen, Greenland’s prime minister, said that an attack on the territory by the United States was “not likely” — but said that he could not rule one out.`\
 https://nytimes.com/2026/01/20/us/politics/trump-greenland-denmark-supplies-davos.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6984213/2026/01/20/submit-a-question-for-stewart-ma
 **Alex Palou Crushed 2025 in IndyCar. Now He Aims for Daytona.**\
 `He won the Indianapolis 500 and is the reigning IndyCar Series champion, a title he has claimed four times.`\
 https://nytimes.com/2026/01/20/sports/alex-palou-indycar-indianapolis-500-daytona.html
-
-**Wild's Jonas Brodin out for Olympics, and Sweden also expecting to be without Ducks' Leo Carlsson**\
-`Brodin is expected to miss six to eight weeks, according to a league source. Sweden is still awaiting final word on Carlsson.`\
-https://nytimes.com/athletic/6985852/2026/01/20/jonas-brodin-leo-carlsson-injuries-olympics/
-
-**How to watch Sharks vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6985977/2026/01/20/sharks-vs-lightning-stream-how-to-watch-jan-20/
 
