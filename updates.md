@@ -1,3 +1,7 @@
+**The Pulse: The most incredible story in CFB history**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6983964/2026/01/20/indiana-fernando-mendoza-national-title-the-pulse/
+
 **Starmer Approves Contentious Chinese Mega-Embassy in London**\
 `The government approved plans for a massive new Chinese Embassy near Tower Bridge, disappointing critics who fear it will enable spying.`\
 https://nytimes.com/2026/01/20/world/europe/chinese-embassy-london-starmer.html
