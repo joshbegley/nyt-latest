@@ -1,3 +1,7 @@
+**Pats owner Robert Kraft pushing for 18-game schedule, international game for every team**\
+`Kraft says revenue growth from a longer season will help keep labor peace.`\
+https://nytimes.com/athletic/6987162/2026/01/20/patriots-robert-kraft-18-game-schedule/
+
 **Ex-USC LB Abdul-Malik McClain sentenced in COVID-19 benefits scheme case**\
 `McClain was accused of orchestrating a scheme that fraudulently sought more than $1 million in pandemic-related unemployment benefits.`\
 https://nytimes.com/athletic/6986368/2026/01/20/usc-football-abdul-malik-mcclain-sentenced/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986777/2026/01/20/phillies-jt-realmuto-reunion-bo-
 **Five things we learned from the 2026 Baseball Hall of Fame election**\
 `COOPERSTOWN, N.`\
 https://nytimes.com/athletic/6985993/2026/01/20/baseball-hall-of-fame-election-2026-takeaways/
-
-**MLB owners 'raging' at Tucker-Dodgers deal, will '100 percent' push for salary cap**\
-`It's believed that only the Los Angeles Dodgers and New York Mets might remain in opposition to a salary cap proposal, a source said.`\
-https://nytimes.com/athletic/6986854/2026/01/20/mlb-owners-salary-cap-push-dodgers-kyle-tucker/
 

@@ -1,3 +1,19 @@
+**Ex-USC LB Abdul-Malik McClain sentenced in COVID-19 benefits scheme case**\
+`McClain was accused of orchestrating a scheme that fraudulently sought more than $1 million in pandemic-related unemployment benefits.`\
+https://nytimes.com/athletic/6986368/2026/01/20/usc-football-abdul-malik-mcclain-sentenced/
+
+**How Norway's ski jumping scandal rocked a proud nation and bedrock Olympic sport**\
+`With the Olympics near, Norway's ski jumping scandal took its latest turn last week, a controversy that has roiled the sport and country.`\
+https://nytimes.com/athletic/6961222/2026/01/20/olympics-norway-ski-jumping-scandal-suspensions/
+
+**Trump Mocks European Leaders Before Meeting With Them**\
+`Also, fewer people are jumping off the Golden Gate Bridge. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/01/20/briefing/trump-europe-leaders-davos-spain-train-crash.html
+
+**FIFA exec Ellis wary of U.S. hypocrisy over Qatar as women’s football host**\
+`The inaugural Women's Club World Cup will take place in January 2028. `\
+https://nytimes.com/athletic/6986710/2026/01/20/fifa-womens-club-world-cup-host-qatar/
+
 **The Beckhams Are Fighting. Here’s What’s Going On.**\
 `On Monday, the eldest Beckham son posted one-sided explosive accusations against his parents on Instagram. His parents have not responded directly.`\
 https://nytimes.com/2026/01/20/style/brooklyn-beckham-parents-wedding.html
