@@ -1,3 +1,7 @@
+**Jimmy Fallon Teases Trump Over Secondhand Prize**\
+`The “Tonight Show” host joked that President Trump hung his new Nobel Prize on the wall “right next to his McDonald’s customer of the month plaque.”`\
+https://nytimes.com/2026/01/20/arts/television/jimmy-fallon-trump-nobel-prize.html
+
 **Fernando Mendoza's championship performance shows why he's likely No. 1 NFL Draft pick**\
 `Miami's defense put pressure on Mendoza throughout the championship game, but Indiana's quarterback delivered when it mattered.`\
 https://nytimes.com/athletic/6984228/2026/01/20/fernando-mendoza-indiana-number-1-nfl-draft-pick/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6984139/2026/01/20/lebron-james-nike-mlk-shoe-contr
 **The Chinese Island Where Dreams of Real Estate Glory Never Die**\
 `Intended as China’s version of Dubai’s palm-shaped artificial island, Ocean Flower Island is a $12 billion monument to debt-fueled economic excess.`\
 https://nytimes.com/2026/01/20/world/asia/china-ocean-flower-island-real-estate.html
-
-**Miami RB Fletcher throws punch at IU lineman, later hugs QB Fernando Mendoza**\
-`Fletcher and Tucker were separated after a postgame altercation. `\
-https://nytimes.com/athletic/6984809/2026/01/20/mark-fletcher-tyrique-tucker-punch-fernando-mendoza/
 
