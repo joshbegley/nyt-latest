@@ -1,3 +1,7 @@
+**In Colorado, the Options for Ari, a Transgender Teen, Begin to Disappear**\
+`The Trump administration has used an array of pressure tactics to try to end treatments for minors, even in states that want to keep them.`\
+https://nytimes.com/2026/01/19/us/politics/colorado-transgender-treatments-trump.html
+
 **A Vermont Town Was a Foodie Mecca for Canadians. Until Trump’s Threats.**\
 `Greensboro’s economy depended on friendly relations with Canada. But after tariffs and threats to make the country the “51st state,” neighborly ties have frayed.`\
 https://nytimes.com/2026/01/19/us/politics/greensboro-vermont-canada-tariffs-trump.html
@@ -26,15 +30,11 @@ https://nytimes.com/2026/01/19/us/politics/middle-tennessee-state-university-dea
 `The Trump administration has pushed universities all over the country to act against student protesters.`\
 https://nytimes.com/2026/01/19/us/politics/columbia-university-protests-culture-trump.html
 
-**An Idaho City Has New Refugees: White South Afrikans**\
+**An Idaho City Has New Refugees: White South Africans**\
 `Twin Falls and its dairy industry have benefited from an influx of refugees from places like Bosnia, the Democratic Republic of Congo and Myanmar. That era is over.`\
 https://nytimes.com/2026/01/19/us/politics/twin-falls-idaho-afrikaners-trump.html
 
 **When Trump Took a Whack at the C.D.C., Atlanta Lost Something, Too**\
 `The earnest government disease fighter had become a kind of city archetype, alongside aspiring rappers and C-suite strivers. Now scientists are leaving.`\
 https://nytimes.com/2026/01/19/us/politics/cdc-atlanta-trump-cuts.html
-
-**At Yosemite, Rangers Are Scarce and Visitors Have Gone Wild**\
-`After the Trump administration’s cuts, workers at the national park are spread too thin to stop people from littering, flying drones and cliff-diving.`\
-https://nytimes.com/2026/01/19/us/politics/yosemite-national-park-california-staffing-cuts.html
 
