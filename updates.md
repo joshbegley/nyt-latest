@@ -1,3 +1,15 @@
+**Meet the U.S. Olympic bobsled, skeleton and luge teams: Medal hopes in all 3**\
+`The U.S. has legitimate medal chances in all three sliding sports at the 2026 Winter Olympics. Here are the full teams for each.`\
+https://nytimes.com/athletic/6983959/2026/01/20/us-olympics-bobsled-skeleton-luge-team-cortina/
+
+**Spurs, Celtics look like contenders. Should they be active at the trade deadline?**\
+`San Antonio and Boston may be a year ahead of schedule and it may be tempting for both to push in chips sooner than expected.`\
+https://nytimes.com/athletic/6982271/2026/01/20/spurs-celtics-nba-trade-deadline/
+
+**Newcastle's Burn, Osula close to injury returns, Howe says**\
+`The head coach said the pair are "not too far away" and will "feel like new signings" once they return. `\
+https://nytimes.com/athletic/6985991/2026/01/20/dan-burn-william-osula-newcastle-injury-update/
+
 **Newcastle's Burn, Osula close to injury returns, Howe says**\
 `The head coach said the pair are "not too far away" and will feel like "new signings" once they return. `\
 https://nytimes.com/athletic/6985991/2026/01/20/dan-burn-william-osula-newcastle-injury-update/

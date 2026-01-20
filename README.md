@@ -1,3 +1,7 @@
+**Trump Threatens New Trade War as Court Weighs Whether to Check Him**\
+`President Trump may be on the verge of having his authority on imposing tariffs curtailed, but that hasn’t slowed down his threats.`\
+https://nytimes.com/2026/01/20/us/politics/trump-tariffs-supreme-court.html
+
 **Meet the U.S. Olympic bobsled, skeleton and luge teams: Medal hopes in all 3**\
 `The U.S. has legitimate medal chances in all three sliding sports at the 2026 Winter Olympics. Here are the full teams for each.`\
 https://nytimes.com/athletic/6983959/2026/01/20/us-olympics-bobsled-skeleton-luge-team-cortina/
@@ -18,8 +22,8 @@ https://nytimes.com/2026/01/20/us/politics/trump-one-year-unpredicatability.html
 `The IOC's recommendation that youth athletes be allowed to participate could be the first step to the IIHF reintegrating banned countries.`\
 https://nytimes.com/athletic/6984463/2026/01/20/russia-olympic-hockey-future-iihf-ioc/
 
-**Judges Seek to Fill Top Prosecutor Job in Virginia**\
-`The move highlights a continuing standoff between the president and the courts over his selection of Lindsey Halligan to run the office and indict his foes.`\
+**In U.S. Attorney Standoff, Judges in Virginia Seek to Fill Top Prosecutor Job**\
+`Some judges have expressed frustration that Lindsey Halligan continues to claim she is the U.S. attorney for the Eastern District of Virginia, despite a ruling in November declaring her appointment invalid.`\
 https://nytimes.com/2026/01/20/us/politics/judges-seek-to-fill-top-prosecutor-job-in-virginia.html
 
 **Israel Seizes U.N. Agency’s Jerusalem Headquarters**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/20/us/politics/trump-greenland-denmark-supplies-davo
 **Which African country will go furthest at the 2026 World Cup? Ranking 10 teams' prospects**\
 `Now the 2025 Africa Cup of Nations (AFCON) has finished, the World Cup is the next major international tournament on the horizon`\
 https://nytimes.com/athletic/6982679/2026/01/20/african-teams-ranked-world-cup/
-
-**The World’s Reigning Carmen Breaks Down Her Signature Aria**\
-`Aigul Akhmetshina, performing now at the Met, shares her thoughts on what it takes to bring the famous Habanera to life.`\
-https://nytimes.com/2026/01/20/arts/music/carmen-habanera-aigul-akhmetshina.html
 
