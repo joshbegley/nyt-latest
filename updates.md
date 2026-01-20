@@ -1,3 +1,15 @@
+**Australian Open recap: Record crowds enjoy scintillating tennis – but at what cost to fan experience?**\
+`Melbourne Park has been buzzing since the start of the tournament, but full courts lead to fans waiting to see what they came for.`\
+https://nytimes.com/athletic/6984022/2026/01/20/tennis-australian-open-recap-results-day-3/
+
+**Australia Passes Tighter Gun Control Laws, Weeks After Bondi Massacre**\
+`Critics said the government had rushed the legislation, along with a bill targeting hate speech, in the wake of the mass shooting in Sydney.`\
+https://nytimes.com/2026/01/20/world/australia/gun-control-buyback.html
+
+**Eagles offseason questions: Who's the next OC, what's on Jeffrey Lurie's mind, and more**\
+`Plus, a look at potential offseason player moves.`\
+https://nytimes.com/athletic/6979271/2026/01/20/eagles-offseason-questions-offensive-coordinator-jeffrey-lurie/
+
 **Meeting the Moment**\
 `Four top athletes reveal how they win. `\
 https://nytimes.com/paidpost/loreal-groupe/video/meeting-the-moment.html
