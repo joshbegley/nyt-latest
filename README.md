@@ -1,3 +1,7 @@
+**Trump Calls Britain’s Chagos Deal ‘Act of Great Stupidity,’ in Blow to Starmer**\
+`President Trump’s criticism reversed his administration’s previous support for the deal, in which Britain relinquished control of the Indian Ocean islands to Mauritius.`\
+https://nytimes.com/2026/01/20/us/politics/trump-uk-chagos-islands-deal.html
+
 **If You Were Inspired by the Northern Lights, You’re Not Alone**\
 `The aurora borealis has animated myths, art, poetry and music for thousands of years. Here are some examples.`\
 https://nytimes.com/2026/01/20/us/northern-lights-aurora-inspiration-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6985142/2026/01/20/aston-villa-news-kamara-knee-inj
 **Mercedes lead designer John Owen to leave team during 2026 F1 season**\
 `Owen’s role will be taken over by Giacomo Tortora, who currently acts as Mercedes’ engineering director.`\
 https://nytimes.com/athletic/6985124/2026/01/20/mercedes-designer-john-owen-leaves-f1/
-
-**‘No Going Back’: Trump Doubles Down on Greenland Threats**\
-`President Trump posted private messages from France’s president and repeated his desire to take over Greenland in an overnight social media storm.`\
-https://nytimes.com/2026/01/20/world/europe/trump-greenland-europe-macron-rutte.html
 

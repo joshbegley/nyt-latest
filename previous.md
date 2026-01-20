@@ -1,3 +1,7 @@
+**If You Were Inspired by the Northern Lights, You’re Not Alone**\
+`The aurora borealis has animated myths, art, poetry and music for thousands of years. Here are some examples.`\
+https://nytimes.com/2026/01/20/us/northern-lights-aurora-inspiration-history.html
+
 **Ukrainian tennis player asks sporting world to 'protect children and women' at Australian Open**\
 `Oleksandra Oliynykova used her news conference after defeat to Madison Keys to speak about Russia's invasion of Ukraine.`\
 https://nytimes.com/athletic/6984945/2026/01/20/tennis-australian-open-oleksandra-oliynykova-ukraine-war-russia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6985124/2026/01/20/mercedes-designer-john-owen-leav
 **‘No Going Back’: Trump Doubles Down on Greenland Threats**\
 `President Trump posted private messages from France’s president and repeated his desire to take over Greenland in an overnight social media storm.`\
 https://nytimes.com/2026/01/20/world/europe/trump-greenland-europe-macron-rutte.html
-
-**Fresh Russian Strikes Cut Heat to Thousands in Ukraine’s Freezing Capital**\
-`Ukrainian authorities say that the repeated attacks on energy infrastructure are an attempt to force the country into submission.`\
-https://nytimes.com/2026/01/20/world/europe/ukraine-russia-kyiv-heat-cold.html
 
