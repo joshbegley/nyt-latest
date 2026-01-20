@@ -1,3 +1,7 @@
+**Jayson Tatum's Achilles recovery continues with hour-long workout**\
+`If Tatum does return this season, his presence would fortify a Boston team that has played like a contender in his absence.`\
+https://nytimes.com/athletic/6984165/2026/01/19/jason-tatum-celtics-workout-joe-mazzulla/
+
 **Kansas' Bill Self hospitalized out of 'caution,' doesn't travel with team to Colorado**\
 `Self was previously admitted to Lawrence Memorial Hospital in July and had two stents inserted.`\
 https://nytimes.com/athletic/6984222/2026/01/19/kansas-bill-self-hospitalized-health-caution/

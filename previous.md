@@ -15,7 +15,7 @@ https://nytimes.com/2026/01/19/us/minnesota-ice-lawsuit-trump-administration.htm
 https://nytimes.com/athletic/6984163/2026/01/19/sean-mcdermott-statement-thanks-buffalo-organization-bills-mafia/
 
 **Jayson Tatum's Achilles recovery continues with hour-long workout**\
-`If Tatum does return this season, his presence would fortify a team that has played like a contender in his absence.`\
+`If Tatum does return this season, his presence would fortify a Boston team that has played like a contender in his absence.`\
 https://nytimes.com/athletic/6984165/2026/01/19/jason-tatum-celtics-workout-joe-mazzulla/
 
 **Judge Allows Policy Restricting Lawmakers’ Access to ICE Facilities**\

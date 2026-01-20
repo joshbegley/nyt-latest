@@ -1,4 +1,4 @@
-**Kansas' Bill Self hospitalized out of 'caution,' doesn't travel with team to Colorado**\
+**Kansas' Bill Self hospitalized out of 'caution,' doesn't travel with team**\
 `Self was previously admitted to Lawrence Memorial Hospital in July and had two stents inserted.`\
 https://nytimes.com/athletic/6984222/2026/01/19/kansas-bill-self-hospitalized-health-caution/
 
