@@ -1,8 +1,12 @@
+**Bailey returns to Villa after Roma loan ended**\
+`Roma did not have a break clause in the deal, with Villa needing to agree to the termination of the loan spell.`\
+https://nytimes.com/athletic/6985296/2026/01/20/leon-bailey-aston-villa-roma-loan-return/
+
 **‘Make America Go Away’ Caps Surge in Popularity as Trump Eyes Greenland**\
 `The hats have become a conspicuous presence at protests against President Trump in Greenland and Denmark.`\
 https://nytimes.com/2026/01/20/us/make-america-go-away-hats-greenland-trump.html
 
-**Arsenal reach agreement with Marseille over Nwaneri loan deal until end of season**\
+**Marseille reach Nwaneri loan agreement with Arsenal**\
 `The north London club hope that the 18-year-old willd travel to France on Wednesday to complete the deal.`\
 https://nytimes.com/athletic/6951909/2026/01/20/ethan-nwaneri-transfer-arsenal-marseille-loan-update/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983816/2026/01/20/houston-texans-future-belief-off
 **Top potential Bills head coach candidates: Brian Daboll, Mike Tomlin, Mike McDaniel, and more**\
 `After years of having a defensive-minded coach, it might be time for the Bills to look at someone with an offensive background.`\
 https://nytimes.com/athletic/6984117/2026/01/20/nfl-bills-coaching-candidates-tomlin-daboll/
-
-**Australian Open recap: Record crowds enjoy scintillating tennis – but at what cost to fan experience?**\
-`Melbourne Park has been buzzing since the start of the tournament, but full courts lead to fans waiting to see what they came for.`\
-https://nytimes.com/athletic/6984022/2026/01/20/tennis-australian-open-recap-results-day-3/
 
