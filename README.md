@@ -1,3 +1,7 @@
+**Macron Vows France Will Not Capitulate to Bullying From Trump**\
+`“We are reaching a time of instability and imbalances,” the French president said in remarks at the World Economic Forum, urging more cooperation among nations.`\
+https://nytimes.com/2026/01/20/us/politics/macron-france-trump-world-economic-forum.html
+
 **Comer Rejects Clinton Interview on Epstein, Setting Up Contempt Vote**\
 `The Republican chairman of the Oversight Committee refused an offer to interview the former president under oath, rejecting terms he said were unreasonable.`\
 https://nytimes.com/2026/01/20/us/politics/comer-clinton-interview-epstein.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986688/2026/01/20/sabres-vs-predators-stream-how-t
 **How to watch Spurs vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6986684/2026/01/20/spurs-vs-rockets-stream-how-to-watch-jan-20/
-
-**How to watch Rangers vs. Kings: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6986682/2026/01/20/rangers-vs-kings-stream-how-to-watch-jan-20/
 
