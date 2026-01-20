@@ -1,3 +1,11 @@
+**One Year In, Searching for a Strategy Behind Trump’s Unpredictability**\
+`One great truth of Trump II so far is that nobody has any idea what tomorrow holds.`\
+https://nytimes.com/2026/01/20/us/politics/trump-one-year-unpredicatability.html
+
+**Russia's path back to Olympic hockey? IIHF to meet on implications of IOC guidance and next steps**\
+`The IOC's recommendation that youth athletes be allowed to participate could be the first step to the IIHF reintegrating banned countries.`\
+https://nytimes.com/athletic/6984463/2026/01/20/russia-olympic-hockey-future-iihf-ioc/
+
 **Judges Seek to Fill Top Prosecutor Job in Virginia**\
 `The move highlights a continuing standoff between the president and the courts over his selection of Lindsey Halligan to run the office and indict his foes.`\
 https://nytimes.com/2026/01/20/us/politics/judges-seek-to-fill-top-prosecutor-job-in-virginia.html
@@ -29,14 +37,4 @@ https://nytimes.com/2026/01/20/sports/f1-colton-herta-daytona-racing.html
 **FIFA, UEFA presidents intervene to save West Bank soccer pitch from destruction**\
 `The IDF had been scheduled to demolish the pitch this week but that has been suspended after negotiations, sources said.`\
 https://nytimes.com/athletic/6985955/2026/01/20/infantino-ceferin-west-bank-soccer-idf/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>And so, the longest seven-plus months of the year begin. But first, let&#8217;s close the door on the 2025 season.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6984213/2026/01/20/submit-a-question-for-stewart-mandels-college-football-mailbag-331/
-
-**Alex Palou Crushed 2025 in IndyCar. Now He Aims for Daytona.**\
-`He won the Indianapolis 500 and is the reigning IndyCar Series champion, a title he has claimed four times.`\
-https://nytimes.com/2026/01/20/sports/alex-palou-indycar-indianapolis-500-daytona.html
 
