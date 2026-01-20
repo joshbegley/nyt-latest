@@ -1,3 +1,7 @@
+**Indiana never trailed in the Playoff. These stats help explain why**\
+`This was a group that didn't make mistakes and for the most part, stayed out of its own way.`\
+https://nytimes.com/athletic/6984783/2026/01/20/indiana-football-playoff-stats-cfp/
+
 **Our Man in Caracas**\
 `We have a conversation with a Times correspondent who is reporting from Venezuela.`\
 https://nytimes.com/2026/01/20/briefing/our-man-in-caracas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6984124/2026/01/20/george-kittle-injury-timeline-49
 **NCAA Tournament Bracket Watch: These mid-majors aren’t ‘mid’ — they’re making moves**\
 `It’s a tough era for the mid-major in men’s college basketball. But it’s a good week, thanks in part to some heroics from Miami (Ohio).`\
 https://nytimes.com/athletic/6983435/2026/01/20/ncaa-tournament-bracket-projections-miami-ohio-mid-majors/
-
-**What can Bedard learn from Toews' legendary run as Blackhawks captain?**\
-`Jonathan Toews became Blackhawks captain at 20. Connor Bedard might follow in his footsteps at much the same age.`\
-https://nytimes.com/athletic/6984469/2026/01/20/blackhawks-captain-bedard-toews/
 
