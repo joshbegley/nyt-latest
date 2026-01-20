@@ -1,40 +1,40 @@
-**Trump Calls Britain’s Chagos Deal ‘Act of Great Stupidity,’ in Blow to Starmer**\
-`President Trump’s criticism reversed his administration’s previous support for the deal, in which Britain relinquished control of the Indian Ocean islands to Mauritius.`\
-https://nytimes.com/2026/01/20/us/politics/trump-uk-chagos-islands-deal.html
+**As Spain Mourns Train Crash Victims, Investigators Focus on Track**\
+`Officials on Tuesday were struggling to identify bodies from the crash near the southern city of Córdoba, which killed at least 41 people.`\
+https://nytimes.com/2026/01/20/world/europe/spain-train-crash-track-investigation.html
 
-**If You Were Inspired by the Northern Lights, You’re Not Alone**\
-`The aurora borealis has animated myths, art, poetry and music for thousands of years. Here are some examples.`\
-https://nytimes.com/2026/01/20/us/northern-lights-aurora-inspiration-history.html
+**Analzying Drew Petzing: Who and what are the Lions getting in their next OC?**\
+`Petzing's rushing scheme is physical, downhill and explosive and his play-action preferences should pair well with Jared Goff. `\
+https://nytimes.com/athletic/6984131/2026/01/20/lions-drew-petzing-offensive-coordinator-analysis/
 
-**Ukrainian tennis player asks sporting world to 'protect children and women' at Australian Open**\
-`Oleksandra Oliynykova used her news conference after defeat to Madison Keys to speak about Russia's invasion of Ukraine.`\
-https://nytimes.com/athletic/6984945/2026/01/20/tennis-australian-open-oleksandra-oliynykova-ukraine-war-russia/
+**Flyers, Ersson end brutal losing streak, but lack of discipline is still a problem**\
+`Travis Konecny scored both of the Flyers' goals to pull off one of the unlikeliest wins this season for Philadelphia.`\
+https://nytimes.com/athletic/6984803/2026/01/20/flyers-ersson-konecny-penalties-golden-knights/
 
-**What are Aaron Rodgers' options for 2026? His playing and post-retirement possibilities**\
-`The 42-year-old free agent will likely have options if he decides to keep playing — or off-the-field options if he doesn't.`\
-https://nytimes.com/athletic/6983740/2026/01/20/aaron-rodgers-free-agency-teams-retirement/
+**Rosenthal: Why a potential lockout doesn’t seem to be impacting the MLB offseason**\
+`Plus notes on the Athletics' ill-fated Arenado pursuit and what could be next for the Pirates' roster.`\
+https://nytimes.com/athletic/6984298/2026/01/20/mlb-free-agency-lockout-impact/
 
-**Why did the Bills and Ravens make coaching changes? Blame it on Mahomes**\
-`Patrick Mahomes and the Chiefs finally left the AFC door open. The Bills and Ravens couldn't capitalize, and it cost two coaches their jobs.`\
-https://nytimes.com/athletic/6984497/2026/01/20/sean-mcdermott-bills-john-harbaugh-ravens-patrick-mahomes/
+**The Knicks keep losing, and a big trade should be strongly considered**\
+`It feels like the roster needs to change ... quickly. New York has nine losses in its last 11 games. `\
+https://nytimes.com/athletic/6984442/2026/01/20/knicks-lose-mavericks-consider-trade/
 
-**MLB offseason tiers: Which teams are actually trying this winter, and which are sitting it out?**\
-`Some teams are going for it. Others are clearly standing still. And others ... well it's hard to tell exactly what they're doing. `\
-https://nytimes.com/athletic/6984114/2026/01/20/mlb-offseason-tiers-teams-trying/
+**NFL overreactions: All signs point to a Patriots-Seahawks Super Bowl**\
+`Toby Mergler has his thoughts on the AFC and NFC championship games, with an eye toward the favorites.`\
+https://nytimes.com/athletic/6983396/2026/01/20/nfl-overreactions-patriots-seahawks-super-bowl/
 
-**Mandel's way too early Top 25 for the 2026 college football season**\
-`Could the Big Ten win a fourth straight national title? Two Big Ten teams are atop my initial Top 25 for the 2026 college football season.`\
-https://nytimes.com/athletic/6983984/2026/01/20/college-football-top-25-rankings-2026-predictions/
+**State of the Blue Jays: Lineup projections, pitching upgrades and moves left to make**\
+`After a busy week for big transactions, let's take stock of Toronto’s roster and whether there’s a move left for the Jays to make.`\
+https://nytimes.com/athletic/6983992/2026/01/20/blue-jays-lineup-projection-pitching/
 
-**The New York Times International Edition in Print for Wednesday, Jan. 21, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/01/20/todays-new-york-times-international-edition
+**Dan Pitcher, Brian Callahan and potential coach carousel impact on the Bengals**\
+`The Bengals offensive coordinator has only talked to one team about a head coach job, but other opportunities could arise.`\
+https://nytimes.com/athletic/6983940/2026/01/20/dan-pitcher-brian-callahan-bengals/
 
-**Villa's Kamara expected to miss rest of season with knee injury**\
-`Kamara ruptured his anterior cruciate ligament in February 2024, keeping him out for eight months.`\
-https://nytimes.com/athletic/6985142/2026/01/20/aston-villa-news-kamara-knee-injury/
+**How Macklin Celebrini entered the MVP conversation as a one-man show**\
+`The 19-year-old is putting up remarkable numbers in San Jose, made all the more remarkable by his comparables.`\
+https://nytimes.com/athletic/6983682/2026/01/20/macklin-celebrini-nhl-hart-mvp-teammates/
 
-**Mercedes lead designer John Owen to leave team during 2026 F1 season**\
-`Owen’s role will be taken over by Giacomo Tortora, who currently acts as Mercedes’ engineering director.`\
-https://nytimes.com/athletic/6985124/2026/01/20/mercedes-designer-john-owen-leaves-f1/
+**LeBron James' MLK shoes modeled after Lorraine Motel look cool but miss the mark**\
+`But if we’re going to remember King, let’s remember how he lived and what he fought for, not where his life ended.`\
+https://nytimes.com/athletic/6984139/2026/01/20/lebron-james-nike-mlk-shoe-controversy/
 
