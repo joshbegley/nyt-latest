@@ -1,3 +1,11 @@
+**Everton's Grealish feared out for multiple months with suspected foot stress fracture**\
+`The attacker has played 20 league matches this season.`\
+https://nytimes.com/athletic/6986263/2026/01/20/grealish-everton-foot-injury-news/
+
+**‘Mel Brooks: The 99 Year Old Man!’ Is a Funny, Bittersweet Tribute**\
+`Co-directed by Judd Apatow, the two-part HBO series is an exhaustive look at Brooks’s life and comedy. It is also about longevity and loneliness.`\
+https://nytimes.com/2026/01/20/arts/television/mel-brooks-the-99-year-old-man-hbo.html
+
 **There’s Much More at Stake in the Fed Case Than Interest Rates**\
 `Will the president will be able to escape one of the central constraints on executive power in our constitutional system?`\
 https://nytimes.com/2026/01/20/opinion/trump-federal-reserve-independence.html
@@ -30,12 +38,4 @@ https://nytimes.com/2026/01/20/arts/music/amplifier-newsletter-nonsense-songs.ht
 `Sanderson had regrets about his evaluation of Ottawa's goaltending on Saturday, after Meriläinen allowed six goals in a loss to Montreal.
 `\
 https://nytimes.com/athletic/6986107/2026/01/20/senators-jake-sanderson-leevi-merilainen-comments/
-
-**Prosecutors Subpoena Minnesota Democrats as Part of Federal Inquiry**\
-`The move showed a significant expansion of the Justice Department’s investigation into the state’s leaders, including Gov. Tim Walz and Mayor Jacob Frey of Minneapolis.`\
-https://nytimes.com/2026/01/20/us/politics/subpoena-minnesota-democrats-immigration.html
-
-**In Final Hours as Governor, Murphy Vetoes 2 Immigrant Rights Bills**\
-`Philip D. Murphy, New Jersey’s former governor, did enact legislation to protect the rights of undocumented residents at schools, courthouses and health care facilities.`\
-https://nytimes.com/2026/01/20/nyregion/phil-murphy-immigration-new-jersey.html
 
