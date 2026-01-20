@@ -1,3 +1,7 @@
+**The New York Times in Print for Tuesday, Jan. 20, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/20/todays-new-york-times
+
 **Warriors Windup: Jimmy Butler's knee injury hovers over win vs. Heat**\
 `The Golden State Warriors earned their 12th win in 16 tries Monday night in a 135-112 win over the Miami Heat.`\
 https://nytimes.com/athletic/6984530/2026/01/20/warriors-heat-score-results-stats-steph-curry/

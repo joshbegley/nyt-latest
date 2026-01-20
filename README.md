@@ -1,3 +1,7 @@
+**The historic absurdity of Indiana's national championship in 10 numbers**\
+`Indiana has mostly known losing for more than a century. Now, improbably, Curt Cignetti has the Hoosiers on top of college football.`\
+https://nytimes.com/athletic/6984818/2026/01/20/indiana-football-national-championship-history-stats-records/
+
 **The New York Times in Print for Tuesday, Jan. 20, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/20/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983664/2026/01/20/afcon-final-morocco-world-cup/
 **French police, football fans, and a history of violence: 'They don’t care'**\
 `Liverpool's trip to Marseille has sparked fears of more problems from a police force with a reputation for heavy-handed tactics`\
 https://nytimes.com/athletic/6976778/2026/01/20/french-police-football-fans-and-a-history-of-violence-they-dont-care/
-
-**Many expected Thomas Frank's Spurs tenure to end this week. How has he survived?**\
-`When Thomas Frank was booed off the pitch by thousands of Tottenham fans just after 5pm on Saturday, it felt like the end...`\
-https://nytimes.com/athletic/6979493/2026/01/20/thomas-frank-tottenham-manager-fans-dortmund/
 
