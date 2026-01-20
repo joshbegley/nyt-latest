@@ -1,3 +1,7 @@
+**The Chinese Island Where Dreams of Real Estate Glory Never Die**\
+`Intended as China’s version of Dubai’s palm-shaped artificial island, Ocean Flower Island is a $12 billion monument to debt-fueled economic excess.`\
+https://nytimes.com/2026/01/20/world/asia/china-ocean-flower-island-real-estate.html
+
 **Miami RB Fletcher throws punch at IU lineman, later hugs QB Fernando Mendoza**\
 `Fletcher and Tucker were separated after a postgame altercation. `\
 https://nytimes.com/athletic/6984809/2026/01/20/mark-fletcher-tyrique-tucker-punch-fernando-mendoza/
