@@ -16,7 +16,7 @@ https://nytimes.com/2026/01/19/us/politics/greensboro-vermont-canada-tariffs-tru
 `Cubans had long benefited from legal privileges unavailable to immigrants from other countries. President Trump has changed that.`\
 https://nytimes.com/2026/01/19/us/politics/cubans-florida-deportations-trump.html
 
-**How Trump Made Life Difficult for International Students and UWisconsin**\
+**How Trump Made Life Difficult for International Students and Wisconsin**\
 `Last fall, the number of new international undergraduates fell by 25 percent compared to the previous year. That drop poses financial and competitive challenges.`\
 https://nytimes.com/2026/01/19/us/politics/uw-madison-international-students-visas-trump.html
 

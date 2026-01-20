@@ -1,3 +1,7 @@
+**How Trump Made Life Difficult for International Students and Wisconsin**\
+`Last fall, the number of new international undergraduates fell by 25 percent compared to the previous year. That drop poses financial and competitive challenges.`\
+https://nytimes.com/2026/01/19/us/politics/uw-madison-international-students-visas-trump.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>And so, the longest seven-plus months of the year begin. But first, let&#8217;s close the door on the 2025 season.</p>
 <p>Leave your questions here. Please include your city.</p>
