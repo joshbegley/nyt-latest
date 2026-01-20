@@ -1,3 +1,11 @@
+**Canada’s Leader Warns of ‘Rupture’ in World Order**\
+`At the World Economic Forum, Prime Minister Mark Carney of Canada took a stand against President Trump’s desire for the United States to own Greenland, and called on medium-size countries to stand up to larger powers.`\
+https://nytimes.com/video/world/europe/100000010657121/carney-davos-greenland.html
+
+**C.I.A.’s New Focus on Latin America Reflected in Raid to Seize Maduro**\
+`A senior U.S. official declined to confirm the specific operations in Venezuela, but said a covert team provided real-time support for the military.`\
+https://nytimes.com/2026/01/20/us/politics/cia-operation-venezuela.html
+
 **California Republicans Ask Supreme Court to Block New Congressional Map**\
 `Republicans asked the justices to step in after a federal court rejected their claims that the state’s new congressional map violated the Constitution.`\
 https://nytimes.com/2026/01/20/us/politics/california-supreme-court-congressional-map.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/20/us/politics/republicans-trump-greenland.html
 **White Students Hurt by L.A. Desegregation Policy, Lawsuit Says**\
 `Schools with more white children miss out on smaller class sizes and other benefits, the lawsuit says. The policy dates back to desegregation efforts in the 1970s.`\
 https://nytimes.com/2026/01/20/us/los-angeles-schools-desegregation-lawsuit.html
-
-**Hidden In a Stream, New Clues About Cause of Spain Rail Crash**\
-`Officials said they had located a previously unreported train undercarriage down a gully near the site of a train crash in Spain that killed 42 people. Experts said the finding could help investigators clarify what caused the disaster.`\
-https://nytimes.com/2026/01/20/world/spain-missing-part-undercarriage-key-investigation.html
-
-**Cursive Makes a Comeback in New Jersey Schools**\
-`In one of his final acts in office, Gov. Philip D. Murphy signed a bill on Monday requiring third, fourth and fifth graders to learn cursive.`\
-https://nytimes.com/2026/01/20/nyregion/cursive-new-jersey-schools.html
 

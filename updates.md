@@ -1,3 +1,11 @@
+**Canada’s Leader Warns of ‘Rupture’ in World Order**\
+`At the World Economic Forum, Prime Minister Mark Carney of Canada took a stand against President Trump’s desire for the United States to own Greenland, and called on medium-size countries to stand up to larger powers.`\
+https://nytimes.com/video/world/europe/100000010657121/carney-davos-greenland.html
+
+**C.I.A.’s New Focus on Latin America Reflected in Raid to Seize Maduro**\
+`A senior U.S. official declined to confirm the specific operations in Venezuela, but said a covert team provided real-time support for the military.`\
+https://nytimes.com/2026/01/20/us/politics/cia-operation-venezuela.html
+
 **The Briefing: Inter 1 Arsenal 3 – Gabriel Jesus and Viktor Gyokeres guide Arsenal to top two finish in Champions League**\
 `The Athletic's writers analyse Tuesday night's heavyweight Champions League clash at San Siro`\
 https://nytimes.com/athletic/6977390/2026/01/20/inter-arsenal-champions-league-analysis/
