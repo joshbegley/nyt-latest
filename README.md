@@ -1,3 +1,15 @@
+**How to watch Sharks vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6985977/2026/01/20/sharks-vs-lightning-stream-how-to-watch-jan-20/
+
+**Paige Bueckers wins $50K free-throw challenge, drops 37 in Breeze win**\
+`The reigning WNBA rookie of the year has been a standout performer in her first season with the 3x3 pro women's basketball league.`\
+https://nytimes.com/athletic/6985606/2026/01/20/womens-basketball-paige-bueckers-unrivaled-50k-free-throw-challenge/
+
+**Porsche Penske Motorsport Is Shaking Things Up**\
+`Its driver lineup at Daytona is changing, and the team has also dropped out of the World Endurance Championship.`\
+https://nytimes.com/2026/01/20/sports/porsche-penske-motorsport-imsa-daytona.html
+
 **Trump-Backed Challenger Enters Race to Unseat Senator Bill Cassidy**\
 `Days after President Trump urged her to run, Representative Julia Letlow said she would challenge Mr. Cassidy, a Louisiana Republican who voted to convict Mr. Trump in his second impeachment trial.`\
 https://nytimes.com/2026/01/20/us/politics/julia-letlow-trump-louisiana-senate-bill-cassidy.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6985883/2026/01/20/senators-vs-blue-jackets-stream-
 **Swan Seeks Mate: Must Like Cold Lake and Small Flock**\
 `An Illinois parks department sought help from the community to find mates for two swans after they lost their companions. Residents responded.`\
 https://nytimes.com/2026/01/20/us/swan-mates-fundraiser-troy-illinois.html
-
-**How to watch Wild vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6985880/2026/01/20/wild-vs-canadiens-stream-how-to-watch-jan-20/
-
-**The Bounce: The biggest All-Star starter snub**\
-`Welcome to The Bounce, The Athletic's NBA newsletter.`\
-https://nytimes.com/athletic/6985799/2026/01/20/anthony-edwards-all-star-starter-snub-the-bounce/
-
-**How to watch Saint Louis vs. Duquesne men's basketball: Time, TV, streaming**\
-`Find out how to watch the Saint Louis Billikens play the Duquesne Dukes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6985828/2026/01/20/saint-louis-vs-duquesne-stream-how-to-watch-jan-20/
 

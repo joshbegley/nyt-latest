@@ -1,3 +1,19 @@
+**Trump-Backed Challenger Enters Race to Unseat Senator Bill Cassidy**\
+`Days after President Trump urged her to run, Representative Julia Letlow said she would challenge Mr. Cassidy, a Louisiana Republican who voted to convict Mr. Trump in his second impeachment trial.`\
+https://nytimes.com/2026/01/20/us/politics/julia-letlow-trump-louisiana-senate-bill-cassidy.html
+
+**AP Top 25: Indiana final No. 1 for first time; Miami has best finish since 2002**\
+`Indiana and Miami are atop the final AP poll, with Ole Miss earning its first top five since 1962 and Texas Tech its first top 10 ever.`\
+https://nytimes.com/athletic/6985346/2026/01/20/ap-top-25-final-poll-indiana-miami-rankings/
+
+**Reigning NCAA champion Michael La Sasso leaving Ole Miss to join LIV Golf**\
+`La Sasso will forfeit the remainder of his college eligibility to become a member of Phil Mickelson’s LIV team.`\
+https://nytimes.com/athletic/6985761/2026/01/20/michael-la-sasso-liv-golf-ole-miss/
+
+**How to watch Suns vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6985907/2026/01/20/suns-vs-76ers-stream-how-to-watch-jan-20/
+
 **What to Know About California’s Proposed Tax on Billionaires**\
 `The wealth tax ballot proposal has set off a feverish debate in California, as well as plenty of confusion.`\
 https://nytimes.com/2026/01/20/us/california-billionaires-wealth-tax.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6985799/2026/01/20/anthony-edwards-all-star-starter
 **How to watch Saint Louis vs. Duquesne men's basketball: Time, TV, streaming**\
 `Find out how to watch the Saint Louis Billikens play the Duquesne Dukes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6985828/2026/01/20/saint-louis-vs-duquesne-stream-how-to-watch-jan-20/
-
-**Scouting Dylan Harper: Spurs rookie becoming a problem in the paint**\
-`Even with the long-range shooting issues, the second pick in last year's draft is having a solid first year.`\
-https://nytimes.com/athletic/6985780/2026/01/20/scouting-dylan-harper-spurs-rookie-becoming-a-problem-in-the-paint/
-
-**How to watch Indiana vs. Michigan men's basketball: Time, TV, streaming**\
-`Find out how to watch the Indiana Hoosiers play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6985823/2026/01/20/indiana-vs-michigan-stream-how-to-watch-jan-20/
-
-**Rosenior welcomes Disasi back to Chelsea training as Tosin ruled out for 'weeks'**\
-`Disasi has interest from clubs in England, Italy and France but Rosenior says the club is working "to get him up to speed".`\
-https://nytimes.com/athletic/6985790/2026/01/20/tosin-adarabioyo-injury-chelsea-axel-disasi/
-
-**How to watch LSU vs. Florida men's basketball: Time, TV, streaming**\
-`Find out how to watch the LSU Tigers play the Florida Gators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6985818/2026/01/20/lsu-vs-florida-stream-how-to-watch-jan-20/
 
