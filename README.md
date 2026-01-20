@@ -1,3 +1,11 @@
+**At last, the team pitches tents on the Thwaites Glacier.**\
+`By Raymond Zhong`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/at-last-the-team-pitches-tents-on-the-thwaites-glacier
+
+**Has France’s President Finally Lost His Personal Touch With Trump?**\
+`For years, Emmanuel Macron has used friendship to temper President Trump’s most impulsive moves. It’s unclear whether that can still work.`\
+https://nytimes.com/2026/01/20/trump-macron-relationship-texts.html
+
 **Skies Clear, and a New Outpost Springs Up at the Bottom of the World**\
 `Low clouds have lifted long enough for helicopters to ferry scientists and their gear to a fast-melting glacier on the edge of Antarctica.`\
 https://nytimes.com/2026/01/20/climate/antarctica-camping-thwaites-glacier.html
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/6985771/2026/01/20/flames-trade-andersson-kadri-col
 **Trump Wanted a Nobel. Now It’s Greenland.**\
 `Readers respond to news articles about President Trump’s threat to take over Greenland. Also: Minnesota prosecutors’ resignations; Holocaust generations.`\
 https://nytimes.com/2026/01/20/opinion/trump-nobel-greenland.html
-
-**Trump Threatens New Trade War as Court Weighs Whether to Check Him**\
-`President Trump may be on the verge of having his authority on imposing tariffs curtailed, but that hasn’t slowed down his threats.`\
-https://nytimes.com/2026/01/20/us/politics/trump-tariffs-supreme-court.html
 
