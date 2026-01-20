@@ -1,3 +1,8 @@
+**'I'm pretty embarrassed': Jake Sanderson apologizes for comments toward Leevi Meriläinen**\
+`Sanderson had regrets about his evaluation of Ottawa's goaltending on Saturday, after Meriläinen allowed six goals in a loss to Montreal.
+`\
+https://nytimes.com/athletic/6986107/2026/01/20/senators-jake-sanderson-leevi-merilainen-comments/
+
 **There’s Much More at Stake in the Fed Case Than Interest Rates**\
 `Will the president will be able to escape one of the central constraints on executive power in our constitutional system?`\
 https://nytimes.com/2026/01/20/opinion/trump-federal-reserve-independence.html
