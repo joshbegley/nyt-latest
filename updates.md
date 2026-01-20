@@ -1,3 +1,7 @@
+**What Are the Chagos Islands and the Diego Garcia Base?**\
+`The islands, which Britain has agreed to hand over to Mauritius, are home to a strategically important U.S.-British military base.`\
+https://nytimes.com/2026/01/20/world/africa/chagos-islands-diego-garcia.html
+
 **At Long Count, Ravi Derossi Goes All In on Aged Wines**\
 `The restaurant will serve wines that are at least 10 years old by the full pour, half-pour and bottle, alongside vegan dishes.`\
 https://nytimes.com/2026/01/20/dining/nyc-restaurant-news.html
