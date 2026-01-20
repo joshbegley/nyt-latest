@@ -1,3 +1,16 @@
+**Trump Issues M.L.K. Day Proclamation After Criticism**\
+`Civil rights groups had criticized President Trump for failing to issue a proclamation honoring Martin Luther King Jr. and not attending commemorative events.`\
+https://nytimes.com/2026/01/19/us/politics/trump-mlk-day-proclamation.html
+
+**College Football Playoff 2025 bracket projections: Who's the national title favorite?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2026/01/19/college-football-playoff-bracket-projections-odds/
+
+**Madison Keys returns to Australian Open and finds her clutch tennis right where she left it**\
+`The defending champion played the stratospheric attacking tennis that won the 2025 title to escape danger against Oleksandra Oliynykova.
+`\
+https://nytimes.com/athletic/6984534/2026/01/19/tennis-australian-open-madison-keys-oliynykova/
+
 **Madison Keys returns to Australian Open and finds her clutch tennis right where she left it**\
 `The defending champion played the stratospheric attacking tennis that won the 2025 title to escape danger against Oleksandra Oliynykova.
 `\

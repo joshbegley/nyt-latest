@@ -1,3 +1,7 @@
+**Post-Luka Dončić trade, Max Christie making mark for Mavericks**\
+`The shooting-starved Mavericks have prodded Christie to take more 3-pointers all year.`\
+https://nytimes.com/athletic/6984484/2026/01/19/mavericks-max-christie-3-pointers-post-luka-doncic/
+
 **Trump Issues M.L.K. Day Proclamation After Criticism**\
 `Civil rights groups had criticized President Trump for failing to issue a proclamation honoring Martin Luther King Jr. and not attending commemorative events.`\
 https://nytimes.com/2026/01/19/us/politics/trump-mlk-day-proclamation.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6984445/2026/01/19/curt-cignetti-referee-comments-f
 **Blackhawks fans give Jonathan Toews 3-minute ovation in return to Chicago**\
 `Toews spent 15 years with the Blackhawks before taking two years off and returning with his hometown Winnipeg Jets at 37.`\
 https://nytimes.com/athletic/6984419/2026/01/19/jonathan-toews-blackhawks-return-ovation-jets/
-
-**Death Toll Rises in Guatemalan Gang Riots**\
-`Uprisings in three prisons have killed nine police officers, presenting another challenge for President Bernardo Arévalo in his fight against corruption and organized crime.`\
-https://nytimes.com/2026/01/19/world/americas/death-toll-rises-in-guatemalan-gang-riots.html
 
