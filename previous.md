@@ -1,3 +1,11 @@
+**Our Man in Caracas**\
+`We have a conversation with a Times correspondent who is reporting from Venezuela.`\
+https://nytimes.com/2026/01/20/briefing/our-man-in-caracas.html
+
+**Netflix Revamps Its Warner Bros. Bid, Seeking to Thwart Paramount**\
+`Netflix will pay all cash for the $83 billion deal to acquire major parts of Warner Bros. Discovery, instead of a mix of cash and stock.`\
+https://nytimes.com/2026/01/20/business/netflix-warner-bros-discovery-paramount-takeover.html
+
 **Analyzing the Cowboys' defensive roster: Do they bring back Jadeveon Clowney?**\
 `It's clear that the Cowboys need a lot of help on the defensive side of the ball. Which players will form their nucleus in 2026?`\
 https://nytimes.com/athletic/6983855/2026/01/20/cowboys-defensive-roster-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6983435/2026/01/20/ncaa-tournament-bracket-projecti
 **What can Bedard learn from Toews' legendary run as Blackhawks captain?**\
 `Jonathan Toews became Blackhawks captain at 20. Connor Bedard might follow in his footsteps at much the same age.`\
 https://nytimes.com/athletic/6984469/2026/01/20/blackhawks-captain-bedard-toews/
-
-**Rasmus Andersson trade upgrades a specific, crucial area for Golden Knights**\
-`Andersson has proven to be an excellent puck mover, which is something the Golden Knights felt they needed. `\
-https://nytimes.com/athletic/6984685/2026/01/20/golden-knights-rasmus-andersson-trade-breakouts-upgrade/
-
-**Red Wings prospects midseason update: Checking in on Detroit's top 10**\
-`Could this be the year the Red Wings trade from their deep pool of prospects? Which ones might earn NHL promotions soon?`\
-https://nytimes.com/athletic/6983756/2026/01/20/red-wings-prospects-update-danielson-cossa-augustine/
 

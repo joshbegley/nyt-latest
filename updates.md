@@ -1,3 +1,11 @@
+**Our Man in Caracas**\
+`We have a conversation with a Times correspondent who is reporting from Venezuela.`\
+https://nytimes.com/2026/01/20/briefing/our-man-in-caracas.html
+
+**Netflix Revamps Its Warner Bros. Bid, Seeking to Thwart Paramount**\
+`Netflix will pay all cash for the $83 billion deal to acquire major parts of Warner Bros. Discovery, instead of a mix of cash and stock.`\
+https://nytimes.com/2026/01/20/business/netflix-warner-bros-discovery-paramount-takeover.html
+
 **Analyzing the Cowboys' defensive roster: Do they bring back Jadeveon Clowney?**\
 `It's clear that the Cowboys need a lot of help on the defensive side of the ball. Which players will form their nucleus in 2026?`\
 https://nytimes.com/athletic/6983855/2026/01/20/cowboys-defensive-roster-analysis/
