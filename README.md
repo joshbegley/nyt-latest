@@ -1,3 +1,7 @@
+**Falcons offensive coordinator search: 5 options, including the clear front-runner**\
+`Tommy Rees is expected to be named the Falcons' new offensive coordinator under Kevin Stefanski, but there are other options out there.`\
+https://nytimes.com/athletic/6985858/2026/01/20/falcons-offensive-coordinator-search-tommy-rees/
+
 **As Brutal Cold Settles In, Forecasters Warn a Major Storm Is Brewing for the South**\
 `One meteorologist warns that “the main ingredients” are fitting into place for a disruptive winter storm later this week.`\
 https://nytimes.com/2026/01/20/weather/winter-cold-ice-snow-forecast-storm.html
@@ -34,8 +38,4 @@ https://nytimes.com/2026/01/20/trump-macron-relationship-texts.html
 **Skies Clear, and a New Outpost Springs Up at the Bottom of the World**\
 `Low clouds have lifted long enough for helicopters to ferry scientists and their gear to a fast-melting glacier on the edge of Antarctica.`\
 https://nytimes.com/2026/01/20/climate/antarctica-camping-thwaites-glacier.html
-
-**A Few Dozen European Troops in Greenland Triggered Trump**\
-`President Trump threatened tariffs on European nations that sent military personnel to Greenland last week. Some have already gone home, but Denmark is now sending about 100 more.`\
-https://nytimes.com/2026/01/20/world/europe/europe-troops-greenland-trump.html
 
