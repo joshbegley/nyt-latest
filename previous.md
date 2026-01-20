@@ -1,3 +1,7 @@
+**Fresh Russian Strikes Cut Heat to Thousands in Ukraine’s Freezing Capital**\
+`Ukrainian authorities say that the repeated attacks on energy infrastructure are an attempt to force the country into submission.`\
+https://nytimes.com/2026/01/20/world/europe/ukraine-russia-kyiv-heat-cold.html
+
 **For the Patriots, will anything less than a Super Bowl berth be a disappointment?**\
 `Coming off two 4-13 seasons and muted expectations to begin 2025, the Patriots should be playing with house money. They're not anymore.`\
 https://nytimes.com/athletic/6983874/2026/01/20/patriots-broncos-mike-vrabel-super-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/20/opinion/bach-classical-music.html
 **Is America Breaking Up With the Calorie?**\
 `Long held up as the big benchmark of nutrition, the calorie is losing its clout in the age of GLP-1s and a sharper focus on nutrients.`\
 https://nytimes.com/2026/01/20/dining/calorie-counting-weight-loss-nutrition.html
-
-**Supreme Court to Hear Case Testing Limits of Hawaii Gun Law**\
-`The justices will hear arguments over whether a Hawaii law that imposes restrictions on carrying concealed weapons violates the Second Amendment.`\
-https://nytimes.com/2026/01/20/us/politics/supreme-court-hawaii-gun-law.html
 

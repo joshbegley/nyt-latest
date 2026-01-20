@@ -1,3 +1,7 @@
+**‘No Going Back’: Trump Doubles Down on Greenland Threats**\
+`President Trump posted private messages from France’s president and repeated his desire to take over Greenland in an overnight social media storm.`\
+https://nytimes.com/2026/01/20/world/europe/trump-greenland-europe-macron-rutte.html
+
 **Fresh Russian Strikes Cut Heat to Thousands in Ukraine’s Freezing Capital**\
 `Ukrainian authorities say that the repeated attacks on energy infrastructure are an attempt to force the country into submission.`\
 https://nytimes.com/2026/01/20/world/europe/ukraine-russia-kyiv-heat-cold.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/20/movies/oscar-nominations-predictions.html
 **Bach Doesn’t Need a Glow-Up**\
 `Concert halls and symphony orchestras try to lure younger listeners by mutilating the music. There’s a better way.`\
 https://nytimes.com/2026/01/20/opinion/bach-classical-music.html
-
-**Is America Breaking Up With the Calorie?**\
-`Long held up as the big benchmark of nutrition, the calorie is losing its clout in the age of GLP-1s and a sharper focus on nutrients.`\
-https://nytimes.com/2026/01/20/dining/calorie-counting-weight-loss-nutrition.html
 
