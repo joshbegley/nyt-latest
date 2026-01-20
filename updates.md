@@ -1,3 +1,7 @@
+**Aston Villa interested in Palace's Mateta, Palace eye Villa's Guessand**\
+`Villa are keen to strengthen their front line but there has been no breakthrough in talks with Besiktas over a deal for Tammy Abraham.`\
+https://nytimes.com/athletic/6978612/2026/01/20/jean-philippe-mateta-transfer-palace-villa-guessand/
+
 **Hoo-Hoo-Hoo Hoosiers revel in once unthinkable Indiana football national title**\
 `A scene that was bustling before kickoff turned berserk as Indiana fans in Bloomington celebrated the school's first football championship.`\
 https://nytimes.com/athletic/6985491/2026/01/20/indiana-football-national-title-fans-celebration/

@@ -1,3 +1,7 @@
+**Aston Villa interested in Palace's Mateta, Palace eye Villa's Guessand**\
+`Villa are keen to strengthen their front line but there has been no breakthrough in talks with Besiktas over a deal for Tammy Abraham.`\
+https://nytimes.com/athletic/6978612/2026/01/20/jean-philippe-mateta-transfer-palace-villa-guessand/
+
 **Hoo-Hoo-Hoo Hoosiers revel in once unthinkable Indiana football national title**\
 `A scene that was bustling before kickoff turned berserk as Indiana fans in Bloomington celebrated the school's first football championship.`\
 https://nytimes.com/athletic/6985491/2026/01/20/indiana-football-national-title-fans-celebration/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6985543/2026/01/20/indiana-football-championship-un
 **Naomi Osaka's Australian Open outfit and a high couture moment for tennis fashion**\
 `The four-time Grand Slam champion's stunning looks have become a hallmark of on-court expression.`\
 https://nytimes.com/athletic/6985400/2026/01/20/naomi-osaka-australian-open-outfit-tennis-fashion/
-
-**Dodgers continue to engage on Freddy Peralta: What it says about their rotation**\
-`If the Brewers decide to trade Peralta, the Dodgers have a bounty of budget-friendly young pitchers in their system.`\
-https://nytimes.com/athletic/6983535/2026/01/20/dodgers-freddy-peralta-trade-possibility/
 
