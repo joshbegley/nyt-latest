@@ -1,3 +1,15 @@
+**Villa's Kamara expected to miss rest of season with knee injury**\
+`Aston Villa midfielder Boubacar Kamara is expected to miss the rest of the season due to a knee injury.`\
+https://nytimes.com/athletic/6985142/2026/01/20/aston-villa-news-kamara-knee-injury/
+
+**Mercedes lead designer John Owen to leave team during 2026 F1 season**\
+`Owen’s role will be taken over by Giacomo Tortora, who currently acts as Mercedes’ engineering director.`\
+https://nytimes.com/athletic/6985124/2026/01/20/mercedes-designer-john-owen-leaves-f1/
+
+**‘No Going Back’: Trump Doubles Down on Greenland Threats**\
+`President Trump posted private messages from France’s president and repeated his desire to take over Greenland in an overnight social media storm.`\
+https://nytimes.com/2026/01/20/world/europe/trump-greenland-europe-macron-rutte.html
+
 **Fresh Russian Strikes Cut Heat to Thousands in Ukraine’s Freezing Capital**\
 `Ukrainian authorities say that the repeated attacks on energy infrastructure are an attempt to force the country into submission.`\
 https://nytimes.com/2026/01/20/world/europe/ukraine-russia-kyiv-heat-cold.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/20/business/trump-first-year-economy.html
 **A Venezuelan Political Prisoner Finally Comes Home**\
 `Ángel Godoy was thrown into jail after writing columns that angered the government of President Nicolás Maduro. Now his family is trying to make up for lost time.`\
 https://nytimes.com/2026/01/20/world/americas/venezuela-prisoner-release.html
-
-**Predicting the 2026 Oscar Nominations: Who’s In? Who’s Out?**\
-`“Sinners” and “One Battle After Another” could set a record. Expect them to be up for best picture with “Hamnet,” “Frankenstein” and “Marty Supreme.”`\
-https://nytimes.com/2026/01/20/movies/oscar-nominations-predictions.html
-
-**Bach Doesn’t Need a Glow-Up**\
-`Concert halls and symphony orchestras try to lure younger listeners by mutilating the music. There’s a better way.`\
-https://nytimes.com/2026/01/20/opinion/bach-classical-music.html
-
-**Is America Breaking Up With the Calorie?**\
-`Long held up as the big benchmark of nutrition, the calorie is losing its clout in the age of GLP-1s and a sharper focus on nutrients.`\
-https://nytimes.com/2026/01/20/dining/calorie-counting-weight-loss-nutrition.html
 

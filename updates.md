@@ -1,3 +1,15 @@
+**Villa's Kamara expected to miss rest of season with knee injury**\
+`Aston Villa midfielder Boubacar Kamara is expected to miss the rest of the season due to a knee injury.`\
+https://nytimes.com/athletic/6985142/2026/01/20/aston-villa-news-kamara-knee-injury/
+
+**Mercedes lead designer John Owen to leave team during 2026 F1 season**\
+`Owen’s role will be taken over by Giacomo Tortora, who currently acts as Mercedes’ engineering director.`\
+https://nytimes.com/athletic/6985124/2026/01/20/mercedes-designer-john-owen-leaves-f1/
+
+**‘No Going Back’: Trump Doubles Down on Greenland Threats**\
+`President Trump posted private messages from France’s president and repeated his desire to take over Greenland in an overnight social media storm.`\
+https://nytimes.com/2026/01/20/world/europe/trump-greenland-europe-macron-rutte.html
+
 **Fresh Russian Strikes Cut Heat to Thousands in Ukraine’s Freezing Capital**\
 `Ukrainian authorities say that the repeated attacks on energy infrastructure are an attempt to force the country into submission.`\
 https://nytimes.com/2026/01/20/world/europe/ukraine-russia-kyiv-heat-cold.html
