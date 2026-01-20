@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6984534/2026/01/19/tennis-australian-open-madison-k
 `\
 https://nytimes.com/athletic/6984534/2026/01/19/tennis-australian-open-madison-keys-oliynykova/
 
+**Madison Keys returns to Australian Open and finds her clutch tennis right where she left it**\
+`The defending champion played the stratospheric attacking tennis that won the 2025 title to escape danger against Oleksandra Oliynykova.
+`\
+https://nytimes.com/athletic/6984534/2026/01/19/tennis-australian-open-madison-keys-oliynykova/
+
 **Post-Luka Dončić trade, Max Christie making mark for Mavericks**\
 `The shooting-starved Mavericks have prodded Christie to take more 3-pointers all year.`\
 https://nytimes.com/athletic/6984484/2026/01/19/mavericks-max-christie-3-pointers-post-luka-doncic/

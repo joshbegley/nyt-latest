@@ -1,3 +1,11 @@
+**Five pivotal plays that powered Indiana to its first national championship**\
+`Fernando Mendoza's touchdown. Charlie Becker's catches. Jamari Sharpe's interception. These are the plays that won it for IU.`\
+https://nytimes.com/athletic/6984646/2026/01/19/indiana-football-fernando-mendoza-charlie-becker-national-championship/
+
+**Warriors' Jimmy Butler injures right knee vs. Heat, exits game with help**\
+`Butler stayed on the ground for a couple minutes while Warriors staff members checked on him and the Chase Center crowd fell silent.`\
+https://nytimes.com/athletic/6984698/2026/01/19/jimmy-butler-injury-knee-warriors-heat/
+
 **Post-Luka Dončić trade, Max Christie making mark for Mavericks**\
 `The shooting-starved Mavericks have prodded Christie to take more 3-pointers all year.`\
 https://nytimes.com/athletic/6984484/2026/01/19/mavericks-max-christie-3-pointers-post-luka-doncic/
@@ -30,12 +38,4 @@ https://nytimes.com/2026/01/19/crosswords/daily-puzzle-2026-01-20.html
 **Red-hot Penguins steamroll Kraken with contributions from everyone to open road trip**\
 `The Penguins never trailed with a workmanlike performance to put Seattle away, including two goals from Connor Dewar.`\
 https://nytimes.com/athletic/6984267/2026/01/19/penguins-dewar-depth-defense-kraken/
-
-**IU's Curt Cignetti blasts refs for not penalizing hits on Fernando Mendoza**\
-`"I'm all for letting them play, but when you cross the line, you gotta call it," Cignetti told ESPN.`\
-https://nytimes.com/athletic/6984445/2026/01/19/curt-cignetti-referee-comments-fernando-mendoza-personal-fouls/
-
-**Blackhawks fans give Jonathan Toews 3-minute ovation in return to Chicago**\
-`Toews spent 15 years with the Blackhawks before taking two years off and returning with his hometown Winnipeg Jets at 37.`\
-https://nytimes.com/athletic/6984419/2026/01/19/jonathan-toews-blackhawks-return-ovation-jets/
 
