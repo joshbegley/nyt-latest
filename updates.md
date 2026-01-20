@@ -1,3 +1,15 @@
+**You read that right/: Indiana is college football's champion**\
+`In two seasons, the Hoosiers went from 3-9 and a coaching change to the first major college football program to go 16-0 since 1894.`\
+https://nytimes.com/athletic/6984983/2026/01/20/indiana-hoosiers-college-football-championship/
+
+**Women's college basketball power rankings: South Carolina's Raven Johnson finds her touch**\
+`Is Imari Berry the country's most exciting player? Is Charlisse Leger-Walker a difference-maker for UCLA?`\
+https://nytimes.com/athletic/6984543/2026/01/20/womens-college-basketball-power-rankings-south-carolina-texas/
+
+**To pay or not to pay Bryce Young — that's (among) the questions surrounding Panthers QB**\
+`Carolina exercised Young's fifth-year option. Will the team go ahead and sign their QB to a long-term contract?`\
+https://nytimes.com/athletic/6983537/2026/01/20/panthers-bryce-young-future-contract/
+
 **The Pulse: The most incredible story in CFB history**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6983964/2026/01/20/indiana-fernando-mendoza-national-title-the-pulse/

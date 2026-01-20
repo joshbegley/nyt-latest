@@ -1,3 +1,15 @@
+**You read that right/: Indiana is college football's champion**\
+`In two seasons, the Hoosiers went from 3-9 and a coaching change to the first major college football program to go 16-0 since 1894.`\
+https://nytimes.com/athletic/6984983/2026/01/20/indiana-hoosiers-college-football-championship/
+
+**Women's college basketball power rankings: South Carolina's Raven Johnson finds her touch**\
+`Is Imari Berry the country's most exciting player? Is Charlisse Leger-Walker a difference-maker for UCLA?`\
+https://nytimes.com/athletic/6984543/2026/01/20/womens-college-basketball-power-rankings-south-carolina-texas/
+
+**To pay or not to pay Bryce Young — that's (among) the questions surrounding Panthers QB**\
+`Carolina exercised Young's fifth-year option. Will the team go ahead and sign their QB to a long-term contract?`\
+https://nytimes.com/athletic/6983537/2026/01/20/panthers-bryce-young-future-contract/
+
 **The Pulse: The most incredible story in CFB history**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6983964/2026/01/20/indiana-fernando-mendoza-national-title-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6984941/2026/01/20/australian-open-espn-tennis-chan
 **Rosenthal: Why a potential lockout doesn’t seem to be impacting the MLB offseason**\
 `Plus notes on the Athletics' ill-fated Arenado pursuit and what could be next for the Pirates' roster.`\
 https://nytimes.com/athletic/6984298/2026/01/20/mlb-free-agency-lockout-impact/
-
-**Inside the deal: How Manchester City fought off rivals — in England and abroad — for Marc Guehi**\
-`City moved early to fight off fierce competition from Premier League rivals and European suitors to sign the England international defender`\
-https://nytimes.com/athletic/6983286/2026/01/20/marc-guehi-manchester-deal/
-
-**The Knicks keep losing, and a big trade should be strongly considered**\
-`It feels like the roster needs to change ... quickly. New York has nine losses in its last 11 games. `\
-https://nytimes.com/athletic/6984442/2026/01/20/knicks-lose-mavericks-consider-trade/
-
-**NFL overreactions: All signs point to a Patriots-Seahawks Super Bowl**\
-`Toby Mergler has his thoughts on the AFC and NFC championship games, with an eye toward the favorites.`\
-https://nytimes.com/athletic/6983396/2026/01/20/nfl-overreactions-patriots-seahawks-super-bowl/
 
