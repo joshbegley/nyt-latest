@@ -1,3 +1,7 @@
+**How Trump Is Remaking America, State by State**\
+`Change is everywhere, manifestations of the sharp right turn that the president has promised for the country.`\
+https://nytimes.com/interactive/2026/01/19/us/trump-impact-on-states.html
+
 **Snowstorm Causes 100-Vehicle Pileup in Michigan**\
 `More than 100 vehicles slipped and crashed into one another in a chain-reaction pileup on a Michigan interstate on Monday.`\
 https://nytimes.com/video/us/100000010654783/snowstorm-causes-100-vehicle-pileup-in-michigan.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6984213/2026/01/19/submit-a-question-for-stewart-ma
 **In Colorado, the Options for Ari, a Transgender Teen, Begin to Disappear**\
 `The Trump administration has used an array of pressure tactics to try to end treatments for minors, even in states that want to keep them.`\
 https://nytimes.com/2026/01/19/us/politics/colorado-transgender-treatments-trump.html
-
-**Fantasy hockey: Rest of season rankings and player projections for 2025-26**\
-`Dom Luszczyszyn offers up his sixth in-season update to his 2025-26 fantasy hockey rest-of-season rankings and player projections.`\
-https://nytimes.com/athletic/6754590/2026/01/19/fantasy-hockey-rest-of-season-rankings-player-projections-2025-26/
 

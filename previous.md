@@ -1,4 +1,8 @@
-**Kansas' Bill Self hospitalized out of 'caution,' doesn't travel with team to Colorado**\
+**Snowstorm Causes 100-Vehicle Pileup in Michigan**\
+`More than 100 vehicles slipped and crashed into one another in a chain-reaction pileup on a Michigan interstate on Monday.`\
+https://nytimes.com/video/us/100000010654783/snowstorm-causes-100-vehicle-pileup-in-michigan.html
+
+**Kansas' Bill Self hospitalized out of 'caution,' doesn't travel with team**\
 `Self was previously admitted to Lawrence Memorial Hospital in July and had two stents inserted.`\
 https://nytimes.com/athletic/6984222/2026/01/19/kansas-bill-self-hospitalized-health-caution/
 
@@ -35,8 +39,4 @@ https://nytimes.com/2026/01/19/us/politics/colorado-transgender-treatments-trump
 **Fantasy hockey: Rest of season rankings and player projections for 2025-26**\
 `Dom Luszczyszyn offers up his sixth in-season update to his 2025-26 fantasy hockey rest-of-season rankings and player projections.`\
 https://nytimes.com/athletic/6754590/2026/01/19/fantasy-hockey-rest-of-season-rankings-player-projections-2025-26/
-
-**A Vermont Town Was a Foodie Mecca for Canadians. Until Trump’s Threats.**\
-`Greensboro’s economy depended on friendly relations with Canada. But after tariffs and threats to make the country the “51st state,” neighborly ties have frayed.`\
-https://nytimes.com/2026/01/19/us/politics/greensboro-vermont-canada-tariffs-trump.html
 
