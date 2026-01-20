@@ -1,3 +1,7 @@
+**Goalie fight: Bobrovsky, Nedeljkovic throw down in Sharks vs. Panthers**\
+`The fight occurred about halfway through the third period when the Sharks took exception to an Evan Rodrigues hit behind their net.`\
+https://nytimes.com/athletic/6984337/2026/01/19/nhl-goalie-fight-bobrovsky-nedeljkovic-sharks-panthers/
+
 **How Trump Is Remaking America, State by State**\
 `Change is everywhere, manifestations of the sharp right turn that the president has promised for the country.`\
 https://nytimes.com/interactive/2026/01/19/us/trump-impact-on-states.html
@@ -35,8 +39,4 @@ https://nytimes.com/2026/01/19/us/politics/ice-detention-lawmakers-oversight.htm
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/6984213/2026/01/19/submit-a-question-for-stewart-mandels-college-football-mailbag-331/
-
-**In Colorado, the Options for Ari, a Transgender Teen, Begin to Disappear**\
-`The Trump administration has used an array of pressure tactics to try to end treatments for minors, even in states that want to keep them.`\
-https://nytimes.com/2026/01/19/us/politics/colorado-transgender-treatments-trump.html
 
