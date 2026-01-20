@@ -1,3 +1,7 @@
+**What impact does AFCON final chaos have on Morocco and World Cup 2030?**\
+`What happened at the AFCON final? What have FIFA and CAF said? And what are the concerns ahead of the 2030 World Cup?`\
+https://nytimes.com/athletic/6983664/2026/01/20/afcon-final-morocco-world-cup/
+
 **French police, football fans, and a history of violence: 'They don’t care'**\
 `Liverpool's trip to Marseille has sparked fears of more problems from a police force with a reputation for heavy-handed tactics`\
 https://nytimes.com/athletic/6976778/2026/01/20/french-police-football-fans-and-a-history-of-violence-they-dont-care/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6982649/2026/01/20/bundesliga-briefing-bayern-leipz
 **College football 2026-27 national title odds: Ohio State, Notre Dame lead pack**\
 `Indiana just won the national title, but Ohio State and Notre Dame are the co-favorites to win it next year.`\
 https://nytimes.com/athletic/6984544/2026/01/20/2026-27-college-football-national-title-odds-ohio-state-notre-dame-indiana/
-
-**Maguire, Gallagher and four months to make it to the World Cup**\
-`Neither Maguire nor Gallagher appear to be in Tuchel's thoughts, but both are playing under new managers. Can they make it to North America?`\
-https://nytimes.com/athletic/6982888/2026/01/20/maguire-gallagher-england-world-cup-tuchel/
 

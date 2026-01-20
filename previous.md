@@ -1,3 +1,23 @@
+**French police, football fans, and a history of violence: 'They don’t care'**\
+`Liverpool's trip to Marseille has sparked fears of more problems from a police force with a reputation for heavy-handed tactics`\
+https://nytimes.com/athletic/6976778/2026/01/20/french-police-football-fans-and-a-history-of-violence-they-dont-care/
+
+**Many expected Thomas Frank's Spurs tenure to end this week. How has he survived?**\
+`When Thomas Frank was booed off the pitch by thousands of Tottenham fans just after 5pm on Saturday, it felt like the end...`\
+https://nytimes.com/athletic/6979493/2026/01/20/thomas-frank-tottenham-manager-fans-dortmund/
+
+**Kylian Mbappe at Monaco: Teenage tensions, a title triumph and a fast track to stardom**\
+`Monaco is where it all began for Mbappe. Now he faces them with Real Madrid as the global star he always seemed destined to become`\
+https://nytimes.com/athletic/6982672/2026/01/20/kylian-mbappe-monaco-real-madrid-champions-league/
+
+**Why Real Madrid fans are taking aim at Florentino Perez, and what might happen next**\
+`The 78-year-old was in the spotlight on Saturday as home fans jeered and called for him to resign`\
+https://nytimes.com/athletic/6983342/2026/01/20/real-madrid-florentino-perez-protests-bernabeu/
+
+**'Bergkamp was seen as Arsenal's Cantona' - assessing the Dutchman's impact after his 1995 move from Inter**\
+`In an edited transcript, James Richardson, Duncan Alexander, Michael Cox and Adrian Clarke discuss the legacy of Dennis Bergkamp at Arsenal`\
+https://nytimes.com/athletic/6980503/2026/01/20/arsenal-inter-milan-champions-league-dennis-bergkamp/
+
 **Trees for goalposts: The small Scottish park that became a talent hotbed**\
 `A small park in a mining town near Glasgow produced John Robertson, Jimmy Johnstone and a host of other future professional players`\
 https://nytimes.com/athletic/6948117/2026/01/20/robertson-johnstone-scotland-viewpark-glasgow/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6984544/2026/01/20/2026-27-college-football-nationa
 **Maguire, Gallagher and four months to make it to the World Cup**\
 `Neither Maguire nor Gallagher appear to be in Tuchel's thoughts, but both are playing under new managers. Can they make it to North America?`\
 https://nytimes.com/athletic/6982888/2026/01/20/maguire-gallagher-england-world-cup-tuchel/
-
-**Marcus Foligno records first career hat trick in front of his dad: Takeaways**\
-`Vladimir Tarasenko passed up on recording a hat trick of his own to pass Foligno the puck for an empty-netter.`\
-https://nytimes.com/athletic/6984167/2026/01/20/wild-foligno-hat-trick-hughes-leafs/
-
-**Connections: Sports Edition Coach: Hints for Jan. 20, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6983295/2026/01/20/connections-sports-edition-hints-for-jan-20-2026/
-
-**Corrections: Jan. 20, 2026**\
-`Corrections that appeared in print on Tuesday, Jan. 20, 2026.`\
-https://nytimes.com/2026/01/20/pageoneplus/corrections-jan-20-2026.html
-
-**Titans to hire 49ers defensive coordinator Robert Saleh as head coach: Source**\
-`Saleh gets another crack at a head-coaching job after going 20-36 in three-plus seasons with the Jets from 2021 to 2024.`\
-https://nytimes.com/athletic/6981689/2026/01/19/tennessee-titans-hire-robert-saleh-49ers-dc/
-
-**Quote of the Day: Starmer Decries U.S. Threat Of Tariff War Over Greenland**\
-`Quotation of the Day for Tuesday, January 20, 2025.`\
-https://nytimes.com/2026/01/19/pageoneplus/quote-of-the-day-starmer-decries-us-threat-of-tariff-war-over-greenland.html
 
