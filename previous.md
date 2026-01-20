@@ -1,3 +1,31 @@
+**Dodgers continue to engage on Freddy Peralta: What it says about their rotation**\
+`If the Brewers decide to trade Peralta, the Dodgers have a bounty of budget-friendly young pitchers in their system.`\
+https://nytimes.com/athletic/6983535/2026/01/20/dodgers-freddy-peralta-trade-possibility/
+
+**Inside the Kazakhstani club that developed talents like Bay FC forward Racheal Kundananji**\
+`BIIK-Shymkent was the first step towards Europe and NWSL for many future talents, but the big clubs are catching on and making life harder`\
+https://nytimes.com/athletic/6972691/2026/01/20/womens-soccer-development-biik-shymkent-nwsl-bay-fc/
+
+**A Trench Coat Worth Waiting For**\
+`Finishing a handbag designer’s outfit was outerwear that he said he had long desired.`\
+https://nytimes.com/2026/01/20/style/street-style-look-mens-trench-coat.html
+
+**Does Jimmy Butler's injury herald the end of Golden State's dynasty?**\
+`There was a sense the Warriors could contend despite their slow start and the Jonathan Kuminga drama. Butler's injury changes everything.`\
+https://nytimes.com/athletic/6985126/2026/01/20/warriors-jimmy-butler-injury-future-roster/
+
+**Indiana quarterback Alberto Mendoza enters transfer portal after title game**\
+`The younger brother of the Hoosiers' Heisman-winning quarterback will likely look for a starting opportunity elsewhere.`\
+https://nytimes.com/athletic/6985409/2026/01/20/alberto-mendoza-indiana-transfer-portal/
+
+**It wasn't perfect, but Doc Rivers' rotation change sparks Bucks in Atlanta**\
+`Rivers was trying to accomplish two things with the shake-up: more size in the starting lineup and more scoring when Giannis sits.`\
+https://nytimes.com/athletic/6984512/2026/01/20/bucks-hawks-pete-nance-giannis/
+
+**Bills leadership roundtable: How Brandon Beane's promotion will impact the team's future**\
+`The search for a new head coach has begun in Buffalo.`\
+https://nytimes.com/athletic/6984517/2026/01/20/nfl-bills-coach-leadership-gm-changes-future/
+
 **‘This Is Trump’s Goon Squad, for Christ’s Sake’**\
 `Who will watch the watchmen?`\
 https://nytimes.com/2026/01/20/opinion/trump-vance-miller-ice.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6984780/2026/01/20/washington-wizards-nba-trade-dea
 **For Syria’s Government, Kurdish Deal Is a Big Win**\
 `As the government moves to assert control over areas under Kurdish rule, it will be the latest test of President Ahmed al-Sharaa’s pledge to form an inclusive administration that empowers minorities.`\
 https://nytimes.com/2026/01/20/world/middleeast/for-syrias-government-kurdish-deal-is-a-big-win.html
-
-**The Trump Drama Hits Davos**\
-`Greenland, tariffs and wobbling markets are the talk of the town at the World Economic Forum ahead of the president’s arrival on Wednesday.`\
-https://nytimes.com/2026/01/20/business/dealbook/trump-davos-tariffs-greenland.html
-
-**Bailey returns to Villa after Roma loan ended**\
-`Roma did not have a break clause in the deal, with Villa needing to agree to the termination of the loan spell.`\
-https://nytimes.com/athletic/6985296/2026/01/20/leon-bailey-aston-villa-roma-loan-return/
-
-**‘Make America Go Away’ Caps Surge in Popularity as Trump Eyes Greenland**\
-`The hats have become a conspicuous presence at protests against President Trump in Greenland and Denmark.`\
-https://nytimes.com/2026/01/20/us/make-america-go-away-hats-greenland-trump.html
-
-**Marseille reach Nwaneri loan agreement with Arsenal**\
-`The north London club hope that the 18-year-old will travel to France on Wednesday to complete the deal.`\
-https://nytimes.com/athletic/6951909/2026/01/20/ethan-nwaneri-transfer-arsenal-marseille-loan-update/
-
-**Vikings coaching staff in flux: What we're hearing about the offensive line and defense**\
-`With important questions to be answered, who will coach the Vikings' offensive line? And what would happen if Brian Flores leaves?`\
-https://nytimes.com/athletic/6983767/2026/01/20/vikings-coaching-staff-offensive-line-defense/
-
-**Man handed restraining order, community service for stalking Liverpool's Marie Hobinger**\
-`Mangal Dalal had pleaded guilty in December and was sentenced at Westminster Magistrates' Court on Tuesday.`\
-https://nytimes.com/athletic/6985150/2026/01/20/marie-hobinger-stalker-liverpool/
-
-**From Nick Foles to Tom Brady: The exclusive backup QB club Jarrett Stidham hopes to join**\
-`Stidham wouldn't be the first backup quarterback to enter midseason and lead his team to a championship. `\
-https://nytimes.com/athletic/6983568/2026/01/20/jarrett-stidham-backup-qb-super-bowl-nick-foles/
 
