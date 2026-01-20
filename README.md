@@ -1,3 +1,7 @@
+**Death Toll Rises in Guatemalan Gang Riots**\
+`Uprisings in three prisons have killed nine police officers, presenting another challenge for President Bernardo Arévalo in his fight against corruption and organized crime.`\
+https://nytimes.com/2026/01/19/world/americas/death-toll-rises-in-guatemalan-gang-riots.html
+
 **As Indiana, Miami clash, '4K couple' steals attention on ESPN broadcast**\
 `The 4K broadcast doesn't cut to commercials, and a couple of fans got plenty of early airtime.`\
 https://nytimes.com/athletic/6984400/2026/01/19/indiana-miami-espn-4k-couple-cfp-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010652966/protesters-clash-ice-minneapolis.ht
 **Trump Administration Asks Judge to Reject Minnesota’s Call to Block ICE Surge**\
 `Lawyers for the state and the cities of Minneapolis and St. Paul have sued over the deployment of some 3,000 federal agents to Minnesota.`\
 https://nytimes.com/2026/01/19/us/minnesota-ice-lawsuit-trump-administration.html
-
-**Sean McDermott speaks out after being fired by the Bills**\
-`McDermott was let go after nine seasons as head coach of the Bills and a divisional-round loss to the Broncos.`\
-https://nytimes.com/athletic/6984163/2026/01/19/sean-mcdermott-statement-thanks-buffalo-organization-bills-mafia/
 
