@@ -1,3 +1,7 @@
+**Indiana never trailed in the Playoff. These stats help explain why**\
+`This was a group that didn't make mistakes and for the most part, stayed out of its own way.`\
+https://nytimes.com/athletic/6984783/2026/01/20/indiana-football-playoff-stats-cfp/
+
 **Our Man in Caracas**\
 `We have a conversation with a Times correspondent who is reporting from Venezuela.`\
 https://nytimes.com/2026/01/20/briefing/our-man-in-caracas.html
