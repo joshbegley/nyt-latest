@@ -1,3 +1,11 @@
+**As Indiana, Miami clash, '4K couple' steals attention on ESPN broadcast**\
+`The 4K broadcast doesn't cut to commercials, and a couple of fans got plenty of early airtime.`\
+https://nytimes.com/athletic/6984400/2026/01/19/indiana-miami-espn-4k-couple-cfp-championship/
+
+**Map: 4.9-Magnitude Earthquake Shakes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/01/19/us/quake-tracker-southern-california.html
+
 **Why Canucks made this Sherwood trade, and what I'm hearing about what's next**\
 `The direction of Vancouver's rebuilding began to take clearer shape after trading Kiefer Sherwood.`\
 https://nytimes.com/athletic/6984099/2026/01/19/vancouver-canucks-trades-kiefer-sherwood/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/19/us/minnesota-ice-lawsuit-trump-administration.htm
 **Sean McDermott speaks out after being fired by the Bills**\
 `McDermott was let go after nine seasons as head coach of the Bills and a divisional-round loss to the Broncos.`\
 https://nytimes.com/athletic/6984163/2026/01/19/sean-mcdermott-statement-thanks-buffalo-organization-bills-mafia/
-
-**Jayson Tatum's Achilles recovery continues with hour-long workout**\
-`If Tatum does return this season, his presence would fortify a Boston team that has played like a contender in his absence.`\
-https://nytimes.com/athletic/6984165/2026/01/19/jason-tatum-celtics-workout-joe-mazzulla/
-
-**Judge Allows Policy Restricting Lawmakers’ Access to ICE Facilities**\
-`The decision permitted the Trump administration to continue restricting inspections of the conditions inside immigration detention compounds.`\
-https://nytimes.com/2026/01/19/us/politics/ice-detention-lawmakers-oversight.html
 
