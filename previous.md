@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>And so, the longest seven-plus months of the year begin. But first, let&#8217;s close the door on the 2025 season.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6984213/2026/01/19/submit-a-question-for-stewart-mandels-college-football-mailbag-331/
+
 **In Colorado, the Options for Ari, a Transgender Teen, Begin to Disappear**\
 `The Trump administration has used an array of pressure tactics to try to end treatments for minors, even in states that want to keep them.`\
 https://nytimes.com/2026/01/19/us/politics/colorado-transgender-treatments-trump.html
@@ -33,8 +39,4 @@ https://nytimes.com/2026/01/19/us/politics/columbia-university-protests-culture-
 **An Idaho City Has New Refugees: White South Africans**\
 `Twin Falls and its dairy industry have benefited from an influx of refugees from places like Bosnia, the Democratic Republic of Congo and Myanmar. That era is over.`\
 https://nytimes.com/2026/01/19/us/politics/twin-falls-idaho-afrikaners-trump.html
-
-**When Trump Took a Whack at the C.D.C., Atlanta Lost Something, Too**\
-`The earnest government disease fighter had become a kind of city archetype, alongside aspiring rappers and C-suite strivers. Now scientists are leaving.`\
-https://nytimes.com/2026/01/19/us/politics/cdc-atlanta-trump-cuts.html
 

@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>And so, the longest seven-plus months of the year begin. But first, let&#8217;s close the door on the 2025 season.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6984213/2026/01/19/submit-a-question-for-stewart-mandels-college-football-mailbag-331/
+
 **In Colorado, the Options for Ari, a Transgender Teen, Begin to Disappear**\
 `The Trump administration has used an array of pressure tactics to try to end treatments for minors, even in states that want to keep them.`\
 https://nytimes.com/2026/01/19/us/politics/colorado-transgender-treatments-trump.html
