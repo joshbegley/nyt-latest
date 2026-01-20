@@ -1,3 +1,7 @@
+**Can the Giants still improve their outfield in what's left of the offseason?**\
+`The Giants could use an outfield upgrade, though the remaining options may not improve them as much as addressing other needs.`\
+https://nytimes.com/athletic/6986538/2026/01/20/sf-giants-outfield-improvements-offseason/
+
 **How to watch Clippers vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6986705/2026/01/20/clippers-vs-bulls-stream-how-to-watch-jan-20/
