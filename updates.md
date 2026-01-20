@@ -1,3 +1,11 @@
+**Trump Threatens New Trade War as Court Weighs Whether to Check Him**\
+`President Trump may be on the verge of having his authority on imposing tariffs curtailed, but that hasn’t slowed down his threats.`\
+https://nytimes.com/2026/01/20/us/politics/trump-tariffs-supreme-court.html
+
+**In U.S. Attorney Standoff, Judges in Virginia Seek to Fill Top Prosecutor Job**\
+`Some judges have expressed frustration that Lindsey Halligan continues to claim she is the U.S. attorney for the Eastern District of Virginia, despite a ruling in November declaring her appointment invalid.`\
+https://nytimes.com/2026/01/20/us/politics/judges-seek-to-fill-top-prosecutor-job-in-virginia.html
+
 **Meet the U.S. Olympic bobsled, skeleton and luge teams: Medal hopes in all 3**\
 `The U.S. has legitimate medal chances in all three sliding sports at the 2026 Winter Olympics. Here are the full teams for each.`\
 https://nytimes.com/athletic/6983959/2026/01/20/us-olympics-bobsled-skeleton-luge-team-cortina/
