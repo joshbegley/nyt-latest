@@ -1,3 +1,7 @@
+**How to watch Suns vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6985907/2026/01/20/suns-vs-76ers-stream-how-to-watch-jan-20/
+
 **What to Know About California’s Proposed Tax on Billionaires**\
 `The wealth tax ballot proposal has set off a feverish debate in California, as well as plenty of confusion.`\
 https://nytimes.com/2026/01/20/us/california-billionaires-wealth-tax.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6985823/2026/01/20/indiana-vs-michigan-stream-how-t
 **Rosenior welcomes Disasi back to Chelsea training as Tosin ruled out for 'weeks'**\
 `Disasi has interest from clubs in England, Italy and France but Rosenior says the club is working "to get him up to speed".`\
 https://nytimes.com/athletic/6985790/2026/01/20/tosin-adarabioyo-injury-chelsea-axel-disasi/
-
-**How to watch LSU vs. Florida men's basketball: Time, TV, streaming**\
-`Find out how to watch the LSU Tigers play the Florida Gators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6985818/2026/01/20/lsu-vs-florida-stream-how-to-watch-jan-20/
 
