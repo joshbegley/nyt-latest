@@ -1,40 +1,40 @@
-**The Bills built up a lot of goodwill with their fans. It vanished on Monday.**\
+**How to watch Patriots at Broncos: AFC Championship Game Time, TV, streaming**\
+`Find out how to watch the New England Patriots play the Denver Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6986660/2026/01/20/patriots-vs-broncos-stream-how-to-watch-jan-25/
+
+**How to watch Kansas vs. Colorado men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the Colorado Buffaloes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6986656/2026/01/20/kansas-vs-colorado-stream-how-to-watch-jan-20/
+
+**How to watch Michigan State vs. Oregon men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6986653/2026/01/20/michigan-state-vs-oregon-stream-how-to-watch-jan-20/
+
+**How to watch Georgia vs. Missouri men's basketball: Time, TV, streaming**\
+`Find out how to watch the Georgia Bulldogs play the Missouri Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6986651/2026/01/20/georgia-vs-missouri-stream-how-to-watch-jan-20/
+
+**How to watch Texas Tech vs. Baylor men's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Red Raiders play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6986647/2026/01/20/texas-tech-vs-baylor-stream-how-to-watch-jan-20/
+
+**How to watch Purdue vs. UCLA men's basketball: Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6986645/2026/01/20/purdue-vs-ucla-stream-how-to-watch-jan-20/
+
+**Penn Rebukes Government for Demanding Information About Jewish Staff**\
+`The federal government has sued the University of Pennsylvania for lists of Jewish employees. The university said the request recalls a “frightening” history.`\
+https://nytimes.com/2026/01/20/us/university-of-pennsylvania-trump-jewish-staff.html
+
+**Duke lawsuit can't prevent star QB Mensah's last-minute transfer portal move, judge says**\
+`Duke sought a preliminary injunction that would prevent it from entering Mensah into the transfer portal while seeking arbitration.`\
+https://nytimes.com/athletic/6986375/2026/01/20/duke-darian-mensah-lawsuit-transfer-portal/
+
+**The Bills built up a lot of goodwill with their fans. It vanished Monday**\
 `The Bills made arguably the riskiest move in franchise history when they fired Sean McDermott and promoted Brandon Beane.`\
 https://nytimes.com/athletic/6985985/2026/01/20/bills-fans-mcdermott-fired-beane/
 
 **David Rosen, 95, Dies; Video Game Visionary and Co-Founder of Sega**\
 `He transformed his Japanese photo booth business into a gaming industry game giant that created Mortal Kombat, Sonic the Hedgehog and more.`\
 https://nytimes.com/2026/01/20/business/david-rosen-dead.html
-
-**Despite Drastic Financial Steps, Met Opera Turns to Layoffs and Cuts**\
-`The largest performing arts organization in the country will lay off workers, cut salaries and reduce its offerings. It may also sell its Chagall murals that are valued at $55 million.`\
-https://nytimes.com/2026/01/20/arts/music/met-opera-budget-cuts.html
-
-**Minnesota Police Leaders Criticize Federal Tactics in ICE Surge**\
-`Chief Axel Henry of the St. Paul police said that residents, including those with legal status, were “scared to death.”`\
-https://nytimes.com/2026/01/20/us/ice-minnesota-police-axel-henry.html
-
-**TRANSCRIPT: Prime Minister Mark Carney of Canada Rebukes U.S. Primacy at Davos**\
-`The Canadian leader warned that middle powers need to stand together or they’ll find themselves “on the menu.”`\
-https://nytimes.com/interactive/2026/01/20/world/carney-transcript-davos.html
-
-**NBA unveils 2026 Finals schedule with notable changes, no Sunday games**\
-`The NBA Finals do not have a Sunday game scheduled for the first time in more than 50 years.`\
-https://nytimes.com/athletic/6986286/2026/01/20/2026-nba-finals-schedule-announced/
-
-**All Sides Agreed on Shutting a Coal Plant. Then Trump Stepped In.**\
-`The administration has thrown into chaos a deal that Washington State worked out with local leaders, environmentalists and industry.`\
-https://nytimes.com/2026/01/20/climate/trump-coal-plant-centralia-washington.html
-
-**Valentino Was the Last of Fashion’s Old Guard**\
-`For Mr. Garavani, beauty was not so much an antidote to the trials and stresses of life but something akin to a value system.`\
-https://nytimes.com/2026/01/20/opinion/valentino-was-the-last-of-fashions-old-guard.html
-
-**Bodo/Glimt 3 Manchester City 1 - Guehi cannot arrive soon enough and what was Rodri thinking?**\
-`Pep Guardiola's side were comprehensively beaten in Norway, ending the game with 10 men after Rodri was sent off`\
-https://nytimes.com/athletic/6977387/2026/01/20/bodo-glimt-3-manchester-city-1/
-
-**Everton's Grealish feared out for multiple months with suspected foot stress fracture**\
-`The attacker has played 20 league matches this season.`\
-https://nytimes.com/athletic/6986263/2026/01/20/grealish-everton-foot-injury-news/
 
