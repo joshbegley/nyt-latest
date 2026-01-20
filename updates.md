@@ -1,3 +1,11 @@
+**‘This Is Trump’s Goon Squad, for Christ’s Sake’**\
+`Who will watch the watchmen?`\
+https://nytimes.com/2026/01/20/opinion/trump-vance-miller-ice.html
+
+**What I’m hearing about the Washington Wizards ahead of the NBA trade deadline**\
+`Team sources and league sources said they expect the Wizards to remain active until the NBA trade deadline arrives on Feb. 5.`\
+https://nytimes.com/athletic/6984780/2026/01/20/washington-wizards-nba-trade-deadline-2026/
+
 **For Syria’s Government, Kurdish Deal Is a Big Win**\
 `As the government moves to assert control over areas under Kurdish rule, it will be the latest test of President Ahmed al-Sharaa’s pledge to form an inclusive administration that empowers minorities.`\
 https://nytimes.com/2026/01/20/world/middleeast/for-syrias-government-kurdish-deal-is-a-big-win.html

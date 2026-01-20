@@ -1,3 +1,11 @@
+**‘This Is Trump’s Goon Squad, for Christ’s Sake’**\
+`Who will watch the watchmen?`\
+https://nytimes.com/2026/01/20/opinion/trump-vance-miller-ice.html
+
+**What I’m hearing about the Washington Wizards ahead of the NBA trade deadline**\
+`Team sources and league sources said they expect the Wizards to remain active until the NBA trade deadline arrives on Feb. 5.`\
+https://nytimes.com/athletic/6984780/2026/01/20/washington-wizards-nba-trade-deadline-2026/
+
 **For Syria’s Government, Kurdish Deal Is a Big Win**\
 `As the government moves to assert control over areas under Kurdish rule, it will be the latest test of President Ahmed al-Sharaa’s pledge to form an inclusive administration that empowers minorities.`\
 https://nytimes.com/2026/01/20/world/middleeast/for-syrias-government-kurdish-deal-is-a-big-win.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6985150/2026/01/20/marie-hobinger-stalker-liverpool
 **From Nick Foles to Tom Brady: The exclusive backup QB club Jarrett Stidham hopes to join**\
 `Stidham wouldn't be the first backup quarterback to enter midseason and lead his team to a championship. `\
 https://nytimes.com/athletic/6983568/2026/01/20/jarrett-stidham-backup-qb-super-bowl-nick-foles/
-
-**Do You Know These Book Titles Inspired by Shakespeare?**\
-`See how many novels you can connect with phrases from the plays of William Shakespeare.`\
-https://nytimes.com/interactive/2026/01/20/books/review/shakespeare-book-titles.html
-
-**Mandel's Final Thoughts: Indiana’s title run stands alone and shows how much everything has changed**\
-`Only two years ago, Indiana winning a title was unthinkable. Then, it seemed inevitable the Hoosiers would win. `\
-https://nytimes.com/athletic/6984695/2026/01/20/indiana-miami-college-football-playoff-national-championship-takeaways/
 
