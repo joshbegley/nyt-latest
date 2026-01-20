@@ -1,3 +1,7 @@
+**‘Chaos’ as Kurdish-Led Forces Stop Guarding Camp for ISIS Families**\
+`The Syrian Democratic Forces withdrew abruptly from the sprawling Al Hol camp, according to Syrian and Kurdish officials, during a conflict with the government.`\
+https://nytimes.com/2026/01/20/world/middleeast/syria-isis-camp-al-hol-kurds.html
+
 **Indiana's blocked punt, Beck's INT and how the Hoosiers won it all: Coaches confidential**\
 `Coaches from around the country shared their thoughts during Indiana's thrilling win over Miami to win the national title. `\
 https://nytimes.com/athletic/6985334/2026/01/20/college-football-indiana-championship-game-miami-analysis/
