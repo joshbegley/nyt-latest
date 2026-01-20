@@ -1,3 +1,11 @@
+**For Syria’s Government, Kurdish Deal Is a Big Win**\
+`As the government moves to assert control over areas under Kurdish rule, it will be the latest test of President Ahmed al-Sharaa’s pledge to form an inclusive administration that empowers minorities.`\
+https://nytimes.com/2026/01/20/world/middleeast/for-syrias-government-kurdish-deal-is-a-big-win.html
+
+**Marseille reach Nwaneri loan agreement with Arsenal**\
+`The north London club hope that the 18-year-old will travel to France on Wednesday to complete the deal.`\
+https://nytimes.com/athletic/6951909/2026/01/20/ethan-nwaneri-transfer-arsenal-marseille-loan-update/
+
 **For Syria’s Government, Kurdish Deal is a Big Win**\
 `As the government moves to assert control over areas under Kurdish rule, it will be the latest test of President Ahmed al-Sharaa’s pledge to form an inclusive administration that empowers minorities.`\
 https://nytimes.com/2026/01/20/world/middleeast/for-syrias-government-kurdish-deal-is-a-big-win.html
