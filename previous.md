@@ -1,3 +1,7 @@
+**Word of the Day: transcend**\
+`This word has appeared in 299 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/20/learning/word-of-the-day-transcend.html
+
 **In a chaotic Premier League season, Brighton can win the race for Europe**\
 `They may have only drawn with Bournemouth, but Monday evening's match offered a reminder of their crucial depth`\
 https://nytimes.com/athletic/6983554/2026/01/20/brighton-europe-contenders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6982783/2026/01/20/liverpool-marc-guehi-man-city-tr
 **Marc Guehi was Crystal Palace's greatest centre-half. His departure leaves a void**\
 `The England defender's consistent excellence may only be properly felt now that he has gone, but he departs Selhurst Park as a club hero`\
 https://nytimes.com/athletic/6980601/2026/01/20/marc-guehi-crystal-palace-farewell/
-
-**What impact does AFCON final chaos have on Morocco and World Cup 2030?**\
-`What happened at the AFCON final? What have FIFA and CAF said? And what are the concerns ahead of the 2030 World Cup?`\
-https://nytimes.com/athletic/6983664/2026/01/20/afcon-final-morocco-world-cup/
 

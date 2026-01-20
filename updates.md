@@ -1,3 +1,7 @@
+**Word of the Day: transcend**\
+`This word has appeared in 299 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/20/learning/word-of-the-day-transcend.html
+
 **In a chaotic Premier League season, Brighton can win the race for Europe**\
 `They may have only drawn with Bournemouth, but Monday evening's match offered a reminder of their crucial depth`\
 https://nytimes.com/athletic/6983554/2026/01/20/brighton-europe-contenders/
