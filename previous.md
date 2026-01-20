@@ -1,4 +1,20 @@
-**Judge, for Now, Allows Policy Restricting Lawmakers’ Access to ICE Facilities**\
+**A City on Edge: Protesters Clash in Minneapolis**\
+`Jake Lang, a prominent right-wing activist, held a small pro-ICE rally in Minneapolis on Saturday. Within minutes, counterprotesters closed in and the confrontation turned violent.`\
+https://nytimes.com/video/us/100000010652966/protesters-clash-ice-minneapolis.html
+
+**Trump Administration Asks Judge to Reject Minnesota’s Call to Block ICE Surge**\
+`Lawyers for the state and the cities of Minneapolis and St. Paul have sued over the deployment of some 3,000 federal agents to Minnesota.`\
+https://nytimes.com/2026/01/19/us/minnesota-ice-lawsuit-trump-administration.html
+
+**Sean McDermott speaks out after being fired by the Bills**\
+`McDermott was let go after nine seasons as head coach of the Bills and a divisional-round loss to the Broncos.`\
+https://nytimes.com/athletic/6984163/2026/01/19/sean-mcdermott-statement-thanks-buffalo-organization-bills-mafia/
+
+**Jayson Tatum's Achilles recovery continues with hour-long workout**\
+`If Tatum does return this season, his presence would fortify a team that has played like a contender in his absence.`\
+https://nytimes.com/athletic/6984165/2026/01/19/jason-tatum-celtics-workout-joe-mazzulla/
+
+**Judge Allows Policy Restricting Lawmakers’ Access to ICE Facilities**\
 `The decision permitted the Trump administration to continue restricting inspections of the conditions inside immigration detention compounds.`\
 https://nytimes.com/2026/01/19/us/politics/ice-detention-lawmakers-oversight.html
 
@@ -12,6 +28,10 @@ https://nytimes.com/athletic/6984213/2026/01/19/submit-a-question-for-stewart-ma
 `The Trump administration has used an array of pressure tactics to try to end treatments for minors, even in states that want to keep them.`\
 https://nytimes.com/2026/01/19/us/politics/colorado-transgender-treatments-trump.html
 
+**Fantasy hockey: Rest of season rankings and player projections for 2025-26**\
+`Dom Luszczyszyn offers up his sixth in-season update to his 2025-26 fantasy hockey rest-of-season rankings and player projections.`\
+https://nytimes.com/athletic/6754590/2026/01/19/fantasy-hockey-rest-of-season-rankings-player-projections-2025-26/
+
 **A Vermont Town Was a Foodie Mecca for Canadians. Until Trump’s Threats.**\
 `Greensboro’s economy depended on friendly relations with Canada. But after tariffs and threats to make the country the “51st state,” neighborly ties have frayed.`\
 https://nytimes.com/2026/01/19/us/politics/greensboro-vermont-canada-tariffs-trump.html
@@ -19,24 +39,4 @@ https://nytimes.com/2026/01/19/us/politics/greensboro-vermont-canada-tariffs-tru
 **To Their Shock, Cubans in Florida Are Being Deported in Record Numbers**\
 `Cubans had long benefited from legal privileges unavailable to immigrants from other countries. President Trump has changed that.`\
 https://nytimes.com/2026/01/19/us/politics/cubans-florida-deportations-trump.html
-
-**How Trump Made Life Difficult for International Students and Wisconsin**\
-`Last fall, the number of new international undergraduates fell by 25 percent compared to the previous year. That drop poses financial and competitive challenges.`\
-https://nytimes.com/2026/01/19/us/politics/uw-madison-international-students-visas-trump.html
-
-**At a Seattle Port Rocked by Tariffs, There Were 70 Jobs for 600 Workers**\
-`Dock workers are used to uncertainty, but nothing since the Great Recession of 2008 compares to what they have experienced this year.`\
-https://nytimes.com/2026/01/19/us/politics/seattle-dock-workers-tariffs-trump.html
-
-**After Trump Shut the Border, a Texas Shelter for Migrants Emptied**\
-`Sister Pimentel’s shelter in McAllen, one of the poorest cities in America, pivoted to feed the hungry.`\
-https://nytimes.com/2026/01/19/us/politics/sister-norma-pimentel-shelter-texas.html
-
-**A Tennessee Dean Had ‘Zero Sympathy’ for Charlie Kirk. She Was Fired.**\
-`Laura Sosh-Lightsy’s punishment reflects the new power dynamics in the free-speech debate, especially in red states.`\
-https://nytimes.com/2026/01/19/us/politics/middle-tennessee-state-university-dean-fired-charlie-kirk.html
-
-**Columbia University’s Strained Peace: Fewer Protests and Sealed Gates**\
-`The Trump administration has pushed universities all over the country to act against student protesters.`\
-https://nytimes.com/2026/01/19/us/politics/columbia-university-protests-culture-trump.html
 
