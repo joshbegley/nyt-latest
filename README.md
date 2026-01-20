@@ -1,3 +1,15 @@
+**Dodgers continue to engage on Freddy Peralta: What it says about their rotation**\
+`If the Brewers decide to trade Peralta, the Dodgers have a bounty of budget-friendly young pitchers in their system.`\
+https://nytimes.com/athletic/6983535/2026/01/20/dodgers-freddy-peralta-trade-possibility/
+
+**Inside the Kazakhstani club that developed talents like Bay FC forward Racheal Kundananji**\
+`BIIK-Shymkent was the first step towards Europe and NWSL for many future talents, but the big clubs are catching on and making life harder`\
+https://nytimes.com/athletic/6972691/2026/01/20/womens-soccer-development-biik-shymkent-nwsl-bay-fc/
+
+**A Trench Coat Worth Waiting For**\
+`Finishing a handbag designer’s outfit was outerwear that he said he had long desired.`\
+https://nytimes.com/2026/01/20/style/street-style-look-mens-trench-coat.html
+
 **Does Jimmy Butler's injury herald the end of Golden State's dynasty?**\
 `There was a sense the Warriors could contend despite their slow start and the Jonathan Kuminga drama. Butler's injury changes everything.`\
 https://nytimes.com/athletic/6985126/2026/01/20/warriors-jimmy-butler-injury-future-roster/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6984780/2026/01/20/washington-wizards-nba-trade-dea
 **For Syria’s Government, Kurdish Deal Is a Big Win**\
 `As the government moves to assert control over areas under Kurdish rule, it will be the latest test of President Ahmed al-Sharaa’s pledge to form an inclusive administration that empowers minorities.`\
 https://nytimes.com/2026/01/20/world/middleeast/for-syrias-government-kurdish-deal-is-a-big-win.html
-
-**The Trump Drama Hits Davos**\
-`Greenland, tariffs and wobbling markets are the talk of the town at the World Economic Forum ahead of the president’s arrival on Wednesday.`\
-https://nytimes.com/2026/01/20/business/dealbook/trump-davos-tariffs-greenland.html
-
-**Bailey returns to Villa after Roma loan ended**\
-`Roma did not have a break clause in the deal, with Villa needing to agree to the termination of the loan spell.`\
-https://nytimes.com/athletic/6985296/2026/01/20/leon-bailey-aston-villa-roma-loan-return/
-
-**‘Make America Go Away’ Caps Surge in Popularity as Trump Eyes Greenland**\
-`The hats have become a conspicuous presence at protests against President Trump in Greenland and Denmark.`\
-https://nytimes.com/2026/01/20/us/make-america-go-away-hats-greenland-trump.html
 
