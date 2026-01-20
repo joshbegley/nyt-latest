@@ -1,5 +1,5 @@
 **Goalie fight: Bobrovsky, Nedeljkovic throw down in Sharks vs. Panthers**\
-`The fight occurred about halfway through the third period when the Sharks took exception to an Evan Rodrigues hit behind their net.`\
+`The fight occurred six minutes into the third period when the Sharks took exception to an Evan Rodrigues hit behind their net.`\
 https://nytimes.com/athletic/6984337/2026/01/19/nhl-goalie-fight-bobrovsky-nedeljkovic-sharks-panthers/
 
 **How Trump Is Remaking America, State by State**\
