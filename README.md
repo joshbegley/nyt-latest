@@ -2,6 +2,10 @@
 `Civil rights groups had criticized President Trump for failing to issue a proclamation honoring Martin Luther King Jr. and not attending commemorative events.`\
 https://nytimes.com/2026/01/19/us/politics/trump-mlk-day-proclamation.html
 
+**College Football Playoff 2025 bracket projections: Who's the national title favorite?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2026/01/19/college-football-playoff-bracket-projections-odds/
+
 **Indiana completes one of sport's most astonishing turnarounds with first national title**\
 `Indiana wins the national championship and breaks college football in the process. `\
 https://nytimes.com/athletic/6984236/2026/01/19/miami-indiana-score-results-cfp-national-championship-game/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6984419/2026/01/19/jonathan-toews-blackhawks-return
 **Death Toll Rises in Guatemalan Gang Riots**\
 `Uprisings in three prisons have killed nine police officers, presenting another challenge for President Bernardo Arévalo in his fight against corruption and organized crime.`\
 https://nytimes.com/2026/01/19/world/americas/death-toll-rises-in-guatemalan-gang-riots.html
-
-**As Indiana, Miami clash, '4K couple' steals attention on ESPN broadcast**\
-`The 4K broadcast doesn't cut to commercials, and a couple of fans got plenty of early airtime.`\
-https://nytimes.com/athletic/6984400/2026/01/19/indiana-miami-espn-4k-couple-cfp-championship/
 

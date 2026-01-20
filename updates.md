@@ -1,3 +1,8 @@
+**Madison Keys returns to Australian Open and finds her clutch tennis right where she left it**\
+`The defending champion played the stratospheric attacking tennis that won the 2025 title to escape danger against Oleksandra Oliynykova.
+`\
+https://nytimes.com/athletic/6984534/2026/01/19/tennis-australian-open-madison-keys-oliynykova/
+
 **Indiana completes one of sport's most astonishing turnarounds with first national title**\
 `Indiana wins the national championship and breaks college football in the process. `\
 https://nytimes.com/athletic/6984236/2026/01/19/miami-indiana-score-results-cfp-national-championship-game/
