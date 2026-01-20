@@ -1,3 +1,7 @@
+**Judge, for Now, Allows Policy Restricting Lawmakers’ Access to ICE Facilities**\
+`The decision permitted the Trump administration to continue restricting inspections of the conditions inside immigration detention compounds.`\
+https://nytimes.com/2026/01/19/us/politics/ice-detention-lawmakers-oversight.html
+
 **How Trump Made Life Difficult for International Students and Wisconsin**\
 `Last fall, the number of new international undergraduates fell by 25 percent compared to the previous year. That drop poses financial and competitive challenges.`\
 https://nytimes.com/2026/01/19/us/politics/uw-madison-international-students-visas-trump.html

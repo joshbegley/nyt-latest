@@ -1,3 +1,7 @@
+**Judge, for Now, Allows Policy Restricting Lawmakers’ Access to ICE Facilities**\
+`The decision permitted the Trump administration to continue restricting inspections of the conditions inside immigration detention compounds.`\
+https://nytimes.com/2026/01/19/us/politics/ice-detention-lawmakers-oversight.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>And so, the longest seven-plus months of the year begin. But first, let&#8217;s close the door on the 2025 season.</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/2026/01/19/us/politics/middle-tennessee-state-university-dea
 **Columbia University’s Strained Peace: Fewer Protests and Sealed Gates**\
 `The Trump administration has pushed universities all over the country to act against student protesters.`\
 https://nytimes.com/2026/01/19/us/politics/columbia-university-protests-culture-trump.html
-
-**An Idaho City Has New Refugees: White South Africans**\
-`Twin Falls and its dairy industry have benefited from an influx of refugees from places like Bosnia, the Democratic Republic of Congo and Myanmar. That era is over.`\
-https://nytimes.com/2026/01/19/us/politics/twin-falls-idaho-afrikaners-trump.html
 
