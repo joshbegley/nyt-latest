@@ -1,3 +1,11 @@
+**Warriors' Jimmy Butler tears ACL, expected to miss the rest of the season: Sources**\
+`The Warriors' star wing suffered the injury after coming down awkwardly in the third quarter of Monday night's win over the Heat.`\
+https://nytimes.com/athletic/6985026/2026/01/20/jimmy-butler-warriors-tears-acl/
+
+**Islamic State Claims Deadly Attack on Chinese Restaurant in Afghanistan**\
+`A bombing that killed seven people and injured a dozen more at a noodle restaurant in a busy area of Kabul is likely to heighten China’s growing security concerns in Afghanistan.`\
+https://nytimes.com/2026/01/20/world/asia/isis-kabul-bomb-china.html
+
 **The Transfer DealSheet: The latest on your club's transfer window plans**\
 `Welcome to The Athletic's weekly look at the transfer market during the January window`\
 https://nytimes.com/athletic/6980553/2026/01/20/transfer-news-premier-league-latest/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/20/crosswords/spelling-bee-forum.html
 **Jimmy Fallon Teases Trump Over Secondhand Prize**\
 `The “Tonight Show” host joked that President Trump hung his new Nobel Prize on the wall “right next to his McDonald’s customer of the month plaque.”`\
 https://nytimes.com/2026/01/20/arts/television/jimmy-fallon-trump-nobel-prize.html
-
-**Fernando Mendoza's championship performance shows why he's likely No. 1 NFL Draft pick**\
-`Miami's defense put pressure on Mendoza throughout the championship game, but Indiana's quarterback delivered when it mattered.`\
-https://nytimes.com/athletic/6984228/2026/01/20/fernando-mendoza-indiana-number-1-nfl-draft-pick/
-
-**After Four Shark Attacks in 48 Hours, Australia Shuts Dozens of Beaches**\
-`Many of the closed beaches were in Sydney, the site of three of the attacks.`\
-https://nytimes.com/2026/01/20/world/australia/australia-sydney-shark-attacks.html
 
