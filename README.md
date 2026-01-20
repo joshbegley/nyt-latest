@@ -1,3 +1,7 @@
+**Blackhawks fans give Jonathan Toews 3-minute ovation in return to Chicago**\
+`Jonathan Toews spent 15 years as a Blackhawks player before taking two years off and returning with his hometown Jets at 37.`\
+https://nytimes.com/athletic/6984419/2026/01/19/jonathan-toews-blackhawks-return-ovation-jets/
+
 **Death Toll Rises in Guatemalan Gang Riots**\
 `Uprisings in three prisons have killed nine police officers, presenting another challenge for President Bernardo Arévalo in his fight against corruption and organized crime.`\
 https://nytimes.com/2026/01/19/world/americas/death-toll-rises-in-guatemalan-gang-riots.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6984222/2026/01/19/kansas-bill-self-hospitalized-he
 **A City on Edge: Protesters Clash in Minneapolis**\
 `Jake Lang, a prominent right-wing activist, held a small pro-ICE rally in Minneapolis on Saturday. Within minutes, counterprotesters closed in and the confrontation turned violent.`\
 https://nytimes.com/video/us/100000010652966/protesters-clash-ice-minneapolis.html
-
-**Trump Administration Asks Judge to Reject Minnesota’s Call to Block ICE Surge**\
-`Lawyers for the state and the cities of Minneapolis and St. Paul have sued over the deployment of some 3,000 federal agents to Minnesota.`\
-https://nytimes.com/2026/01/19/us/minnesota-ice-lawsuit-trump-administration.html
 
