@@ -1,3 +1,7 @@
+**Red-hot Penguins steamroll Seattle with contributions from everyone to open road trip**\
+`The Penguins never trailed with a workmanlike performance to put the Kraken away, including two goals from Connor Dewar.`\
+https://nytimes.com/athletic/6984267/2026/01/19/penguins-dewar-depth-defense-kraken/
+
 **IU's Curt Cignetti blasts refs for not penalizing hits on Fernando Mendoza**\
 `“I’m all for letting them play, but when you cross the line, you gotta call it," Cignetti told ESPN.`\
 https://nytimes.com/athletic/6984445/2026/01/19/curt-cignetti-referee-comments-fernando-mendoza-personal-fouls/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/01/19/us/trump-impact-on-states.html
 **Snowstorm Causes 100-Vehicle Pileup in Michigan**\
 `More than 100 vehicles slipped and crashed into one another in a chain-reaction pileup on a Michigan interstate on Monday.`\
 https://nytimes.com/video/us/100000010654783/snowstorm-causes-100-vehicle-pileup-in-michigan.html
-
-**Kansas' Bill Self hospitalized out of 'caution,' doesn't travel with team**\
-`Self was previously admitted to Lawrence Memorial Hospital in July and had two stents inserted.`\
-https://nytimes.com/athletic/6984222/2026/01/19/kansas-bill-self-hospitalized-health-caution/
 
