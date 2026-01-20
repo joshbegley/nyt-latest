@@ -1,3 +1,7 @@
+**NBA unveils 2026 Finals schedule with notable changes, no Sunday games**\
+`The NBA Finals do not have a Sunday game scheduled for the first time in more than 50 years.`\
+https://nytimes.com/athletic/6986286/2026/01/20/2026-nba-finals-schedule-announced/
+
 **All Sides Agreed on Shutting a Coal Plant. Then Trump Stepped In.**\
 `The administration has thrown into chaos a deal that Washington State worked out with local leaders, environmentalists and industry.`\
 https://nytimes.com/2026/01/20/climate/trump-coal-plant-centralia-washington.html
