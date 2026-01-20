@@ -1,3 +1,19 @@
+**What to Know About California’s Proposed Tax on Billionaires**\
+`The wealth tax ballot proposal has set off a feverish debate in California, as well as plenty of confusion.`\
+https://nytimes.com/2026/01/20/us/california-billionaires-wealth-tax.html
+
+**How to watch Senators vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6985883/2026/01/20/senators-vs-blue-jackets-stream-how-to-watch-jan-20/
+
+**Swan Seeks Mate: Must Like Cold Lake and Small Flock**\
+`An Illinois parks department sought help from the community to find mates for two swans after they lost their companions. Residents responded.`\
+https://nytimes.com/2026/01/20/us/swan-mates-fundraiser-troy-illinois.html
+
+**How to watch Wild vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6985880/2026/01/20/wild-vs-canadiens-stream-how-to-watch-jan-20/
+
 **The Bounce: The biggest All-Star starter snub**\
 `Welcome to The Bounce, The Athletic's NBA newsletter.`\
 https://nytimes.com/athletic/6985799/2026/01/20/anthony-edwards-all-star-starter-snub-the-bounce/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6985790/2026/01/20/tosin-adarabioyo-injury-chelsea-
 **How to watch LSU vs. Florida men's basketball: Time, TV, streaming**\
 `Find out how to watch the LSU Tigers play the Florida Gators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6985818/2026/01/20/lsu-vs-florida-stream-how-to-watch-jan-20/
-
-**How to watch UCF vs. Iowa State men's basketball: Time, TV, streaming**\
-`Find out how to watch the UCF Knights play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6985815/2026/01/20/ucf-vs-iowa-state-stream-how-to-watch-jan-20/
-
-**How to watch NC State vs. Clemson men's basketball: Time, TV, streaming**\
-`Find out how to watch the NC State Wolfpack play the Clemson Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6985813/2026/01/20/nc-state-vs-clemson-stream-how-to-watch-jan-20/
-
-**Fluoridation Is Not Tied to Birth Weight, New Study Shows**\
-`Researchers looked at birth weight, an important predictor of long-term health, in 11 million babies born in the United States.`\
-https://nytimes.com/2026/01/20/well/fluoride-baby-weight-study.html
-
-**Life Resembles ‘The Addams Family’ With Thing-Like Robotic Hand**\
-`The very capable robotic picker-upper can grasp things on both sides and roam around freely.`\
-https://nytimes.com/2026/01/20/science/robot-hand-thing-addams-family.html
 
