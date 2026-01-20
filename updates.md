@@ -1,3 +1,7 @@
+**Avs' Valeri Nichushkin involved in car accident, misses game with 'minor' injuries**\
+`Avs coach Jared Bednar said Denver-area roads were icy Monday morning in the wake of overnight snow.`\
+https://nytimes.com/athletic/6984399/2026/01/19/valeri-nichushkin-avalanche-car-accident/
+
 **Visibly Disdainful**\
 `A debut by Jonathan Raksin? Sounds great!`\
 https://nytimes.com/2026/01/19/crosswords/daily-puzzle-2026-01-20.html
