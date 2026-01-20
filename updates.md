@@ -1,3 +1,7 @@
+**Comer Rejects Clinton Interview on Epstein, Setting Up Contempt Vote**\
+`The Republican chairman of the Oversight Committee refused an offer to interview the former president under oath, rejecting terms he said were unreasonable.`\
+https://nytimes.com/2026/01/20/us/politics/comer-clinton-interview-epstein.html
+
 **Can the Giants still improve their outfield in what's left of the offseason?**\
 `The Giants could use an outfield upgrade, though the remaining options may not improve them as much as addressing other needs.`\
 https://nytimes.com/athletic/6986538/2026/01/20/sf-giants-outfield-improvements-offseason/
