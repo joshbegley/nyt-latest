@@ -1,3 +1,11 @@
+**Meeting the Moment**\
+`Four top athletes reveal how they win. `\
+https://nytimes.com/paidpost/loreal-groupe/video/meeting-the-moment.html
+
+**Church Leaders Say Over 160 Were Kidnapped in Nigeria, but Officials Deny It**\
+`Christian groups said gunmen abducted congregants during Sunday services at three churches, but security and government officials dismissed the reports as fear-mongering.`\
+https://nytimes.com/2026/01/20/world/africa/nigeria-christian-church-kidnapping.html
+
 **Indiana never trailed in the Playoff. These stats help explain why**\
 `This was a group that didn't make mistakes and for the most part, stayed out of its own way.`\
 https://nytimes.com/athletic/6984783/2026/01/20/indiana-football-playoff-stats-cfp/

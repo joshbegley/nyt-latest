@@ -1,3 +1,11 @@
+**Australia Passes Tighter Gun Control Laws, Weeks After Bondi Massacre**\
+`Critics said the government had rushed the legislation, along with a bill targeting hate speech, in the wake of the mass shooting in Sydney.`\
+https://nytimes.com/2026/01/20/world/australia/gun-control-buyback.html
+
+**Eagles offseason questions: Who's the next OC, what's on Jeffrey Lurie's mind, and more**\
+`Plus, a look at potential offseason player moves.`\
+https://nytimes.com/athletic/6979271/2026/01/20/eagles-offseason-questions-offensive-coordinator-jeffrey-lurie/
+
 **Meeting the Moment**\
 `Four top athletes reveal how they win. `\
 https://nytimes.com/paidpost/loreal-groupe/video/meeting-the-moment.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6979383/2026/01/20/packers-defensive-coordinator-ca
 **What Tiger's Jupiter Links needs to do for first win of TGL Season 2**\
 `Jupiter Links Golf Club hasn't won inside the SoFi Center in a year and faces heavy favorite Los Angeles Golf Club on Tuesday night.`\
 https://nytimes.com/athletic/6983849/2026/01/20/tgl-match-5-jupiter-links-los-angeles-preview/
-
-**Heartbroken Miami can play the what-if game, but The U is back to stay**\
-`The Canes failed to win the ultimate prize Monday night, but the program is finally set up for sustained success. `\
-https://nytimes.com/athletic/6985173/2026/01/20/miami-hurricanes-cfb-title-game-loss-indiana/
-
-**Alternative AFCON awards: Three goalkeepers, a tumbling linesman, and a ‘jealousy’ rant**\
-`After all of the drama, it is time to look back at the entire tournament and hand out some left-field awards`\
-https://nytimes.com/athletic/6982703/2026/01/20/alternative-afcon-awards/
 
