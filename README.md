@@ -1,4 +1,16 @@
-**Warriors' Jimmy Butler tears ACL, expected to miss the rest of the season: Sources**\
+**Maps: How the Train Crash in Spain Unfolded**\
+`Two trains collided on Sunday in southern Spain, killing at least 40 people, here is what happened.`\
+https://nytimes.com/interactive/2026/01/20/world/europe/spain-train-crash-maps.html
+
+**Live Updates: Trump’s Greenland Threats Hang Over Davos Summit**\
+``\
+https://nytimes.com/live/2026/01/20/us/trump-news
+
+**Trump Texts Link Nobel Peace Prize Snub to Greenland**\
+`In a text message exchange with the Norwegian prime minister, President Trump linked his Nobel Peace Prize snub to his plans to acquire Greenland. As he doubled down on his threats, European leaders met at the World Economic Forum.`\
+https://nytimes.com/video/us/politics/100000010655180/trump-norway-prime-minister-texts-greenland.html
+
+**Warriors' Jimmy Butler tears ACL, expected to miss the rest of the season: Source**\
 `The Warriors' star wing suffered the injury after coming down awkwardly in the third quarter of Monday night's win over the Heat.`\
 https://nytimes.com/athletic/6985026/2026/01/20/jimmy-butler-warriors-tears-acl/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/20/insider/trilobites-column.html
 **Nature’s Super Feather**\
 `Filoplumes may be tiny, but these hairlike feathers enable nonstop flights that span thousands of miles.`\
 https://nytimes.com/2026/01/20/science/birds-feathers-filoplumes-cornell.html
-
-**As Mamdani Focuses on Child Care, Plan to Tax the Rich Is Put Aside**\
-`Mayor Zohran Mamdani campaigned on a proposal to increase taxes on those earning more than $1 million. For now, at least, he isn’t pushing.`\
-https://nytimes.com/2026/01/20/nyregion/mamdani-hochul-taxes-child-care.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/20/crosswords/spelling-bee-forum.html
-
-**Jimmy Fallon Teases Trump Over Secondhand Prize**\
-`The “Tonight Show” host joked that President Trump hung his new Nobel Prize on the wall “right next to his McDonald’s customer of the month plaque.”`\
-https://nytimes.com/2026/01/20/arts/television/jimmy-fallon-trump-nobel-prize.html
 
