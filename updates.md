@@ -1,3 +1,7 @@
+**Macron Vows France Will Not Capitulate to Bullying From Trump**\
+`“We are reaching a time of instability and imbalances,” the French president said in remarks at the World Economic Forum, urging more cooperation among nations.`\
+https://nytimes.com/2026/01/20/us/politics/macron-france-trump-world-economic-forum.html
+
 **Comer Rejects Clinton Interview on Epstein, Setting Up Contempt Vote**\
 `The Republican chairman of the Oversight Committee refused an offer to interview the former president under oath, rejecting terms he said were unreasonable.`\
 https://nytimes.com/2026/01/20/us/politics/comer-clinton-interview-epstein.html
