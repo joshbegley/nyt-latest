@@ -1,3 +1,15 @@
+**Rejecting Diplomatic Overtures, Trump Ratchets Up Tensions with Europe**\
+`President Trump’s bellicose demands about Greenland and participation in his “board of peace” are deepening worries about the fate of the trans-Atlantic alliance.`\
+https://nytimes.com/2026/01/20/us/politics/trump-europe-tensions-greenland.html
+
+**'The Athletic Football Show': Are the Bills looking in the wrong place for their new coach?**\
+`With Josh Allen at quarterback, would the Bills be better served focusing on an offensive-minded or defensive-minded head coach?`\
+https://nytimes.com/athletic/6986804/2026/01/20/athletic-football-show-bills-new-coach/
+
+**What Is Your Reaction to President Trump’s Campaign to Seize Greenland?**\
+`The president says he wants the United States to own the semiautonomous Danish territory. European leaders are outraged. What do you think about what is happening?`\
+https://nytimes.com/2026/01/20/learning/what-is-your-reaction-to-president-trumps-campaign-to-seize-greenland.html
+
 **Canada’s Leader Warns of ‘Rupture’ in World Order**\
 `At the World Economic Forum, Prime Minister Mark Carney of Canada took a stand against President Trump’s desire for the United States to own Greenland, and called on medium-size countries to stand up to larger powers.`\
 https://nytimes.com/video/world/europe/100000010657121/carney-davos-greenland.html
