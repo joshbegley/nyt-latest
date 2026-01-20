@@ -1,3 +1,11 @@
+**Spanish Authorities Struggle to Identify Victims of Train Crash**\
+`The Spanish authorities have struggled to recognize the victims of a train crash on Sunday that killed dozens of people. One local official said the impact was so severe that bodies had been found hundreds of meters from the accident.`\
+https://nytimes.com/video/world/europe/100000010655701/spain-train-crash-victims.html
+
+**Struck Again by Hatred, a Mississippi Temple Says There Is More to Its Story**\
+`An arson attack at a synagogue in Mississippi was a reminder of the threat Jews face, but also of the strength of a small community forged over generations.`\
+https://nytimes.com/2026/01/20/us/mississippi-beth-israel-temple-judaism.html
+
 **Juventus lose legal dispute against Cristiano Ronaldo over €9.8m payment**\
 `The dispute was over the validity of a salary reduction agreement during the Covid-19 pandemic.`\
 https://nytimes.com/athletic/6985670/2026/01/20/cristiano-ronaldo-juventus-legal-dispute/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6978612/2026/01/20/jean-philippe-mateta-transfer-pa
 **Hoo-Hoo-Hoo Hoosiers revel in once unthinkable Indiana football national title**\
 `A scene that was bustling before kickoff turned berserk as Indiana fans in Bloomington celebrated the school's first football championship.`\
 https://nytimes.com/athletic/6985491/2026/01/20/indiana-football-national-title-fans-celebration/
-
-**Stocks and Bonds Fall on Trump’s Greenland Threats**\
-`The S&P 500 dropped over 1 percent Tuesday morning, its lowest decline at the start of the trading day since April, when President Trump first announced his sweeping tariffs.`\
-https://nytimes.com/2026/01/20/business/stocks-trump-greenland-tariffs.html
-
-**Infinite Pancakes, Anyone?**\
-`A team of mathematicians seeks to cut an infinitely large pancake into as many pieces as possible, in a new take on an old puzzle.`\
-https://nytimes.com/2026/01/20/science/infinite-pancake-math-puzzle.html
 
