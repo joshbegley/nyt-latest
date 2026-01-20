@@ -1,3 +1,7 @@
+**Newcastle's Burn, Osula close to injury returns, Howe says**\
+`The head coach said the pair are "not too far away" and will feel like "new signings" once they return. `\
+https://nytimes.com/athletic/6985991/2026/01/20/dan-burn-william-osula-newcastle-injury-update/
+
 **One Year In, Searching for a Strategy Behind Trump’s Unpredictability**\
 `One great truth of Trump II so far is that nobody has any idea what tomorrow holds.`\
 https://nytimes.com/2026/01/20/us/politics/trump-one-year-unpredicatability.html
