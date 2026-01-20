@@ -1,3 +1,11 @@
+**Alex Palou Crushed 2025 in IndyCar. Now He Aims for Daytona.**\
+`He won the Indianapolis 500 and is the reigning IndyCar Series champion, a title he has claimed four times.`\
+https://nytimes.com/2026/01/20/sports/alex-palou-indycar-indianapolis-500-daytona.html
+
+**Wild's Jonas Brodin out for Olympics, and Sweden also expecting to be without Ducks' Leo Carlsson**\
+`Brodin is expected to miss six to eight weeks, according to a league source. Sweden is still awaiting final word on Carlsson.`\
+https://nytimes.com/athletic/6985852/2026/01/20/jonas-brodin-leo-carlsson-injuries-olympics/
+
 **How to watch Sharks vs. Lightning: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6985977/2026/01/20/sharks-vs-lightning-stream-how-to-watch-jan-20/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6985907/2026/01/20/suns-vs-76ers-stream-how-to-watc
 **What to Know About California’s Proposed Tax on Billionaires**\
 `The wealth tax ballot proposal has set off a feverish debate in California, as well as plenty of confusion.`\
 https://nytimes.com/2026/01/20/us/california-billionaires-wealth-tax.html
-
-**How to watch Senators vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6985883/2026/01/20/senators-vs-blue-jackets-stream-how-to-watch-jan-20/
-
-**Swan Seeks Mate: Must Like Cold Lake and Small Flock**\
-`An Illinois parks department sought help from the community to find mates for two swans after they lost their companions. Residents responded.`\
-https://nytimes.com/2026/01/20/us/swan-mates-fundraiser-troy-illinois.html
 
