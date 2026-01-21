@@ -6,7 +6,7 @@ https://nytimes.com/2026/01/21/us/politics/lisa-cook-mortgage-fraud-accusation.h
 `Gov. Gavin Newsom of California told world leaders to “stop being complicit” and to “have a backbone” in dealing with President Trump and his threats to Greenland.`\
 https://nytimes.com/video/world/europe/100000010658327/newsom-trump-leaders-pathetic.html
 
-**City refund away supporters after 3-1 loss at Bodo/Glimt**\
+**City players refund away supporters after 3-1 loss at Bodo/Glimt**\
 `City's captains said it was "the least we could do" for the 374 fans who made the trip to the Arctic Circle.`\
 https://nytimes.com/athletic/6988496/2026/01/21/manchester-city-bodo-glimt-refund/
 
