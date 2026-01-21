@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6987856/2026/01/21/mets-luis-robert-trade-white-sox
 `\
 https://nytimes.com/athletic/6987856/2026/01/21/mets-luis-robert-trade-white-sox-mlb/
 
+**Mets bolster outfield defense by acquiring Luis Robert Jr. from White Sox**\
+`David Stearns and the New York Mets hope the fifth time is the charm.
+`\
+https://nytimes.com/athletic/6987856/2026/01/21/mets-luis-robert-trade-white-sox-mlb/
+
 **Botman's contract commitment is a vote of confidence in Newcastle and Eddie Howe**\
 `Defender agreeing to give the best years of his career to the club during a season of sweat and labour is a vote of confidence in Eddie Howe`\
 https://nytimes.com/athletic/6986164/2026/01/21/sven-botman-new-contract-newcastle/
