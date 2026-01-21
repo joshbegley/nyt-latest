@@ -1,40 +1,40 @@
-**An Anxious Japan Restarts the World’s Biggest Nuclear Plant**\
-`Japan is reviving nuclear power, balancing the need for more clean energy against the lingering trauma of the 2011 Fukushima Daiichi disaster.`\
-https://nytimes.com/2026/01/21/business/japan-nuclear-restart.html
+**Supreme Court To Weigh Trump’s Bid to Fire Lisa Cook**\
+`The Supreme Court is hearing oral arguments on Wednesday in the case of Lisa Cook, the Federal Reserve governor whom President Trump is attempting to fire. Our reporter Colby Smith describes the importance of Cook’s case for the independence of the central bank.`\
+https://nytimes.com/video/us/100000010651242/supreme-court-to-weigh-trumps-bid-to-fire-lisa-cook.html
 
-**NATO brass meet for ‘frank’ talks amid the Greenland feud.**\
-`By Lara Jakes`\
-https://nytimes.com/live/2026/01/21/us/trump-davos-greenland-news/nato-brass-meet-for-frank-talks-amid-the-greenland-feud
+**Greenland Tensions Rattle Global Markets**\
+`A slump in U.S. stocks spilled into markets in Asia and Europe on Wednesday, ending a period of relative calm.`\
+https://nytimes.com/2026/01/21/business/greenland-stocks-bonds-dollar-gold.html
 
-**In Latin America, Loathing of Maduro Smothers Outcry Over U.S. Raid**\
-`Several polls show that a majority of Latin Americans who were questioned endorsed the intervention, suggesting a shift, at least for now, from ideology to pragmatism.`\
-https://nytimes.com/2026/01/21/world/americas/in-latin-america-loathing-of-maduro-smothers-outcry-over-us-raid.html
+**A deeper dive into the Steelers' leading head coach candidates**\
+`The Athletic's beat writers share their insights on the coaches the Steelers are considering.`\
+https://nytimes.com/athletic/6986504/2026/01/21/steelers-coach-search-candidates/
 
-**New Yorkers Have Failed to Spend $55 Million in Gift Cards**\
-`The unused card balances are monitored by the state comptroller’s office. Manhattan is the worst offender.`\
-https://nytimes.com/2026/01/21/nyregion/gift-card-balances-new-york.html
+**John Harbaugh is the Giants' 'most important cog' — now, Joe Schoen must figure out how to fit in**\
+`The coach demanded the Giants change their organizational structure. They did just that.`\
+https://nytimes.com/athletic/6987761/2026/01/21/john-harbaugh-joe-schoen-new-york-giants/
 
-**Supreme Court Considers Trump’s Attempt to Fire Fed Governor Lisa Cook**\
-`The justices deferred a decision on the president’s efforts to oust Cook, agreeing to hear arguments on Wednesday instead.`\
-https://nytimes.com/2026/01/21/us/politics/supreme-court-trump-fed-cook.html
+**The Baseball Hall of Fame in 2027: Land of the Giants**\
+`Next year could see Buster Posey elected, along with former Giants managers Bruce Bochy and Dusty Baker. Here's what else we'll be watching.`\
+https://nytimes.com/athletic/6987618/2026/01/21/baseball-hall-of-fame-2027-posey-giants/
 
-**How Patriots deep threat Kayshon Boutte became one of the NFL's most dangerous WRs**\
-`Boutte may be best known for his stunning touchdown grabs, but the young receiver has gone through a great deal of turmoil to get here.`\
-https://nytimes.com/athletic/6985870/2026/01/21/kayshon-boutte-patriots-nfl-playoffs/
+**Buffalo or Baltimore? NFL coaches and execs vote on best job openings**\
+`Plus, where the four openings that are already filled fell.`\
+https://nytimes.com/athletic/6986420/2026/01/21/ranking-nfl-head-coach-openings-bills-giants-browns-ravens/
 
-**After Maduro’s Last Dance, a New Rhythm Goes Viral in Venezuela**\
-`For years, Nicolás Maduro and his movement used song and dance to rally support. Now, millions of Venezuelans are dancing to a different political tune.`\
-https://nytimes.com/2026/01/21/world/americas/maduro-venezuela-dancing-tiktok.html
+**PWHL player poll: Olympic picks, best trash talker, most underrated and expansion**\
+`In our first ever PWHL player poll, more than a quarter of the league weighs in on everything from expansion markets to the Olympics.`\
+https://nytimes.com/athletic/6983086/2026/01/21/pwhl-player-poll-expansion-olympics-trash-talker/
 
-**‘Marty Supreme’ Has a Lot to Say About Being Jewish in America**\
-`The film’s unapologetic depiction of the experience in all of its complications rejects the idea that such characters have to suffer.`\
-https://nytimes.com/2026/01/21/movies/marty-supreme-jewish-america.html
+**Colts mock draft reaction: Edge rusher needed, but are there other positions to consider?**\
+`Dane Brugler has the Colts taking Oklahoma edge rusher R Mason Thomas in the second round. Is he the ideal fit for the Indy defense?`\
+https://nytimes.com/athletic/6987212/2026/01/21/colts-mock-draft-reaction-r-mason-thomas/
 
-**$300,000 Homes in Georgia, Kentucky and Pennsylvania**\
-`A craftsman in Washington, a condo in Lexington and a rowhouse in Pittsburgh`\
-https://nytimes.com/2026/01/21/realestate/300000-dollar-homes-in-lexington-ky-washington-ga-pittsburgh.html
+**Adaptable Norman Powell gets leg up on competition with Heat**\
+`“He has that chip on his shoulder," says Miami head coach Erik Spolestra of Norman Powell.`\
+https://nytimes.com/athletic/6986782/2026/01/21/heat-norman-powell-stats-adaptability-production/
 
-**Trump rompió el orden mundial. ¿Y ahora qué?**\
-`El mundo que conocemos está llegando a su fin. Algo nuevo ha comenzado.`\
-https://nytimes.com/interactive/2026/01/21/espanol/opinion/trump-nuevo-orden-mundial.html
+**The New York Times International Edition in Print for Thursday, Jan. 22, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/21/todays-new-york-times-international-edition
 

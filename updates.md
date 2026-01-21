@@ -1,3 +1,7 @@
+**An Anxious Japan Restarts the World’s Biggest Nuclear Plant**\
+`Japan is reviving nuclear power, balancing the need for more clean energy against the lingering trauma of the 2011 Fukushima Daiichi disaster.`\
+https://nytimes.com/2026/01/21/business/japan-nuclear-restart.html
+
 **NATO brass meet for ‘frank’ talks amid the Greenland feud.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2026/01/21/us/trump-davos-greenland-news/nato-brass-meet-for-frank-talks-amid-the-greenland-feud

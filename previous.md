@@ -1,3 +1,7 @@
+**An Anxious Japan Restarts the World’s Biggest Nuclear Plant**\
+`Japan is reviving nuclear power, balancing the need for more clean energy against the lingering trauma of the 2011 Fukushima Daiichi disaster.`\
+https://nytimes.com/2026/01/21/business/japan-nuclear-restart.html
+
 **NATO brass meet for ‘frank’ talks amid the Greenland feud.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2026/01/21/us/trump-davos-greenland-news/nato-brass-meet-for-frank-talks-amid-the-greenland-feud
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/21/realestate/300000-dollar-homes-in-lexington-ky-wa
 **Trump rompió el orden mundial. ¿Y ahora qué?**\
 `El mundo que conocemos está llegando a su fin. Algo nuevo ha comenzado.`\
 https://nytimes.com/interactive/2026/01/21/espanol/opinion/trump-nuevo-orden-mundial.html
-
-**Tour Actress Kathleen Chalfant’s Art-Filled Home**\
-`The theater legend and ‘Familiar Touch’ star hosts friends and artists in her expansive Brooklyn brownstone.`\
-https://nytimes.com/interactive/2026/01/21/realestate/kathleen-chalfant-copenhagen-test-home-tour.html
 
