@@ -1,3 +1,7 @@
+**South Korean Ex-Premier Gets 23 Years in Prison for Role in Martial Law**\
+`Han Duck-soo was convicted of playing a key role in former President Yoon Suk Yeol’s imposition of martial law, which a court said was an insurrection.`\
+https://nytimes.com/2026/01/21/world/asia/south-korea-prime-minister-martial-law.html
+
 **Why Was Macron Wearing Sunglasses at Davos?**\
 `An eye condition, not a style choice, prompted President Emmanuel Macron of France to don aviators to address the World Economic Forum.`\
 https://nytimes.com/2026/01/21/world/europe/macron-sunglasses-davos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/21/learning/a-year-of-trump-2-0.html
 **New York’s Odd Couple: The Mayor and the Police Commissioner**\
 `Zohran Mamdani and Jessica Tisch have little in common. But both of their political futures hinge on the safety of the city.`\
 https://nytimes.com/2026/01/21/nyregion/zohran-mamdani-jessica-tisch-nypd.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/21/crosswords/spelling-bee-forum.html
 
