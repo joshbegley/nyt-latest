@@ -18,6 +18,10 @@ https://nytimes.com/2026/01/21/opinion/trump-greenland-europe-nato.html
 `For now, Europe’s anti-coercion instrument is less a bazooka than a waterlogged firecracker.`\
 https://nytimes.com/2026/01/21/opinion/europe-independence-trump-greenland.html
 
+**Wrexham have dropped 20 points from winning positions this season. It needs to stop**\
+`Wrexham were caught out again late on against Leicester. If they were better at defending leads they would be comfortably in playoff spots`\
+https://nytimes.com/athletic/6987003/2026/01/21/wrexham-dropped-points-winning-positions/
+
 **Botman's contract commitment is a vote of confidence in Newcastle and Eddie Howe**\
 `Defender agreeing to give the best years of his career to the club during a season of sweat and labour is a vote of confidence in Eddie Howe`\
 https://nytimes.com/athletic/6986164/2026/01/21/sven-botman-new-contract-newcastle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986127/2026/01/21/manchester-united-derby-win-carr
 **Why Barcelona want to keep Marcus Rashford**\
 `The 28-year-old England international joined Barca on loan in the summer, and the Spanish champions want him to stay`\
 https://nytimes.com/athletic/6985595/2026/01/21/barcelona-rashford-man-utd-transfer/
-
-**Mohamed Salah is back with Liverpool – so what happens now?**\
-`As Slot and co prepare for a crucial Champions League game with Marseille, the Egyptian's return from AFCON could be extremely well-timed`\
-https://nytimes.com/athletic/6985455/2026/01/21/salah-return-liverpool-champions-league-slot/
 
