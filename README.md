@@ -3,7 +3,7 @@
 https://nytimes.com/live/2026/01/21/us/trump-davos-greenland-news
 
 **Air Force One Turns Around With Trump Aboard**\
-`Air Force One turned around while carrying President Trump due to a “minor electrical issue,” an official said. Trump was on his way to Davos, Switzerland for the World Economic Forum.`\
+`Air Force One turned around while carrying President Trump due to a “minor electrical issue,” an official said. Trump was on his way to Davos, Switzerland, for the World Economic Forum.`\
 https://nytimes.com/video/us/100000010657831/air-force-one-trump-turn-around.html
 
 **90% of English football clubs expected to post losses for 2025, report finds**\
