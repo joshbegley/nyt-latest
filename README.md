@@ -1,3 +1,35 @@
+**Judge temporarily clears ex-Alabama player to return, nearly 3 years after entering NBA Draft**\
+`Bediako's lawsuit follows a wave of former G League players and international pros joining college basketball this season.`\
+https://nytimes.com/athletic/6987689/2026/01/21/charles-bediako-alabama-ncaa-lawsuit-basketball-eligibility/
+
+**What Do Young Travelers Want? Exclusive Experiences.**\
+`More millennials and Gen Z-ers are planning trips around experiences, and the industry is responding with concerts, dinners and V.I.P. events.`\
+https://nytimes.com/2026/01/21/travel/experiences-millennials-gen-z.html
+
+**At Check-In, Your Face Is Increasingly Your ID**\
+`Facial recognition at security and immigration checkpoints and gates could ease airport hassles, even as the technology raises privacy concerns.`\
+https://nytimes.com/2026/01/21/travel/facial-recognition-airports.html
+
+**A Widespread Winter Storm Is Looming, but Where It Hits Is Still Fuzzy**\
+`People across a large section of the central and eastern United States are facing predictions for heavy snow and ice starting Friday.`\
+https://nytimes.com/2026/01/21/weather/winter-storm-ice-snow-forecast.html
+
+**Getting Travel Rewards Is Getting Easier**\
+`Program updates and new navigation tools help travelers negotiate the increasingly complicated universe of points.`\
+https://nytimes.com/2026/01/21/travel/loyalty-programs.html
+
+**The New Wave in Wellness Travel: Sound**\
+`Wellness destinations are catering to guests with live music, vibration treatments and special domes built to calm nerves and soothe frazzled spirits.`\
+https://nytimes.com/2026/01/21/travel/sound-domes-wellness-spa.html
+
+**In Europe, the Allure of Summer Travel Keeps Dimming**\
+`A big shift to spring, fall or even winter vacations in touristy, hot-weather cities like Barcelona, Florence and Athens shows no signs of slowing down.`\
+https://nytimes.com/2026/01/21/travel/europe-offseason-vacations.html
+
+**Fed’s Independence in Flux as Supreme Court Weighs Lisa Cook’s Ouster**\
+`How the justices rule in the case between President Trump and the Federal Reserve governor will affect the central bank’s ability to set policy without political interference.`\
+https://nytimes.com/2026/01/21/us/politics/fed-independence-supreme-court.html
+
 **For Travelers in 2026, Prices Are All Over the Map**\
 `Luxury travelers can expect to pay more than they did last year, while budget travelers might get a break.`\
 https://nytimes.com/2026/01/21/travel/prices-are-all-over-the-map.html
@@ -5,36 +37,4 @@ https://nytimes.com/2026/01/21/travel/prices-are-all-over-the-map.html
 **The New Wild Card on Travelers’ Itineraries: Uncertainty**\
 `Politics, military action and climate change have increased risk for destinations that once seemed like sure bets, forcing travelers to change how they plan.`\
 https://nytimes.com/2026/01/21/travel/uncertainty-is-the-only-certainty.html
-
-**Prince Harry Gives Emotional Testimony About Effects of U.K. News Coverage**\
-`Harry said in court that reading articles about him published by Associated Newspapers, which he has accused of acting unlawfully, had been “traumatic.”`\
-https://nytimes.com/2026/01/21/world/europe/prince-harry-emotional-court-daily-mail.html
-
-**The Bounce: The Warriors' season is over. Can the Knicks save theirs?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6988531/2026/01/21/warriors-knicks-nba-the-bounce/
-
-**Court Denies Lawmakers Seeking Independent Monitor of Epstein Files**\
-`A federal judge said he did not have the authority to supervise the Justice Department’s release of the documents.`\
-https://nytimes.com/2026/01/21/nyregion/epstein-independent-monitor.html
-
-**The fate of the Fed may turn on two words: ‘for cause.’**\
-`The Supreme Court has said the Federal Reserve Board’s independence warrants protection. President Trump’s effort to fire a member will test that commitment.`\
-https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook/the-fate-of-the-fed-may-turn-on-two-words-for-cause
-
-**Mets pay up to take a chance on Luis Robert: MLB Trade Grades**\
-`The Mets can take financial risks that few other organizations can afford. `\
-https://nytimes.com/athletic/6988482/2026/01/21/luis-robert-mets-white-sox-mlb-trade-grades/
-
-**Ben Kindel’s Calgary homecoming is about more than his rise with the Penguins**\
-`Kindel's time in Calgary made those around him believe that his path to the NHL would be quick — and not only because of his on-ice talent.`\
-https://nytimes.com/athletic/6987182/2026/01/21/penguins-ben-kindel-billet-family-nhl/
-
-**Who are the lawyers arguing over Trump’s effort to fire Lisa Cook?**\
-`By Abbie VanSickle`\
-https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook/who-are-the-lawyers-arguing-over-trumps-effort-to-fire-lisa-cook
-
-**Diagnosing Justin Jefferson's fantasy football decline, George Pickens' ascent**\
-`Jake Ciely runs through the biggest fantasy football 2025 hits and misses at the WR and TE positions, searching for lessons learned.`\
-https://nytimes.com/athletic/6984096/2026/01/21/fantasy-football-wide-receivers-tight-ends-review-overperformers-underperformers/
 
