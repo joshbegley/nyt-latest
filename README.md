@@ -1,3 +1,7 @@
+**Another Train Crash in Spain Kills 1 and Hurts 37, Officials Say**\
+`Train service in the Catalonia region will be suspended until it is safe to resume rail traffic, the local operator said.`\
+https://nytimes.com/2026/01/20/world/europe/train-crash-catalonia-spain.html
+
 **On Day 1, Mikie Sherrill Focuses on Utility Costs and Children’s Safety**\
 `The new governor of New Jersey signed six executive orders after taking office on Tuesday. They matched the priorities she campaigned on last year.`\
 https://nytimes.com/2026/01/20/nyregion/mikie-sherrill-executive-orders-new-jersey.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983277/2026/01/20/baseball-hall-of-fame-beltran-jo
 **Scoop City: Mendoza seals fate, Dolphins and Titans nab coaches**\
 `Draft takeaways from college football championship, updates on coaching carousel and priorities for the Bills, 49ers, Bears, Texans`\
 https://nytimes.com/athletic/6987327/2026/01/20/nfl-titans-dolphins-coach-indiana-bears-bills-49ers-texans/
-
-**Pushing the Boundaries of Tennis Clothes**\
-`Arriving to her first match at the Australian Open, Naomi Osaka wore couture designs with athletic wear. Was it a sign of outfits to come?`\
-https://nytimes.com/2026/01/20/style/naomi-osaka-jellyfish-australian-open.html
 
