@@ -1,3 +1,7 @@
+**How to watch Rams at Seahawks: NFC Championship Game Time, TV, streaming**\
+`Find out how to watch the Los Angeles Rams play the Seattle Seahawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6987418/2026/01/20/how-to-watch-rams-vs-seahawks-nfc-championship-game-tv-channel-and-streaming-options-for-january-25/
+
 **Pressured by Trump, Mexico Sends 37 Accused Criminals to U.S.**\
 `Mexico has sought to do more to combat its cartels in an effort to stave off airstrikes threatened by President Trump.`\
 https://nytimes.com/2026/01/20/world/americas/mexico-cartels-suspects-trump.html
