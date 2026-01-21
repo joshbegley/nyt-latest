@@ -1,3 +1,7 @@
+**As Europe Tries to Diversify Trade, a Major Deal With South America Stumbles**\
+`The move by the European Parliament delays a push by the bloc to find new trading partners, as President Trump has threatened escalating U.S. tariffs.`\
+https://nytimes.com/2026/01/21/us/politics/mercosur-trade-deal-eu.html
+
 **City players refund away supporters after 3-1 loss at Bodo/Glimt**\
 `City's captains said it was "the least we could do" for the 374 fans who made the trip to the Arctic Circle.`\
 https://nytimes.com/athletic/6988496/2026/01/21/manchester-city-bodo-glimt-refund/

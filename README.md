@@ -1,3 +1,7 @@
+**For Trump, the Supreme Court Case Reflects Goal to Remake the Fed**\
+`The president has spoken repeatedly of his desire to install a majority of political loyalists on the board of the rate-setting central bank.`\
+https://nytimes.com/2026/01/21/us/politics/trump-supreme-court-fed.html
+
 **As Europe Tries to Diversify Trade, a Major Deal With South America Stumbles**\
 `The move by the European Parliament delays a push by the bloc to find new trading partners, as President Trump has threatened escalating U.S. tariffs.`\
 https://nytimes.com/2026/01/21/us/politics/mercosur-trade-deal-eu.html
@@ -29,12 +33,4 @@ https://nytimes.com/2026/01/21/movies/la-clef-paris.html
 **A Brief From Every Living Former Fed Chair Could Sway the Justices**\
 `The filing, also signed by six former Treasury secretaries, said that letting President Trump fire Lisa Cook would deal a blow to the credibility of the nation’s monetary policy.`\
 https://nytimes.com/2026/01/21/us/politics/fed-governors-lisa-cook.html
-
-**Here’s the latest.**\
-`By Ann E. Marimow`\
-https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook/heres-the-latest
-
-**Live Updates: Supreme Court Hears Case on Trump’s Power Over Fed**\
-`The justices have signaled they are likely to allow the president to expand his power over executive agencies but that his efforts to fire Lisa Cook may be different.`\
-https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook
 

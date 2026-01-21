@@ -1,3 +1,7 @@
+**As Europe Tries to Diversify Trade, a Major Deal With South America Stumbles**\
+`The move by the European Parliament delays a push by the bloc to find new trading partners, as President Trump has threatened escalating U.S. tariffs.`\
+https://nytimes.com/2026/01/21/us/politics/mercosur-trade-deal-eu.html
+
 **What Is Lisa Cook, the Fed Governor, Accused of Doing?**\
 `The Trump administration has accused Lisa D. Cook, a Fed governor, of engaging in mortgage fraud, but financial documents cast doubt on the claims.`\
 https://nytimes.com/2026/01/21/us/politics/lisa-cook-mortgage-fraud-accusation.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook/heres-the-lat
 **Live Updates: Supreme Court Hears Case on Trump’s Power Over Fed**\
 `The justices have signaled they are likely to allow the president to expand his power over executive agencies but that his efforts to fire Lisa Cook may be different.`\
 https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook
-
-**How a Pro-Greenland Song Became a Protest Anthem**\
-`Locals are speaking out against President Trump’s gestures toward annexing the territory, and the song “Greenland Belongs to Greenlanders” has become “a soundtrack of the movement.”`\
-https://nytimes.com/2026/01/21/arts/music/greenland-protest-song-trump.html
 
