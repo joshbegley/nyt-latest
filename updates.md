@@ -1,3 +1,11 @@
+**McKennie on target again as Juventus cruise in Champions League win**\
+`European competition has brought out the best in McKennie months before the World Cup`\
+https://nytimes.com/athletic/6989978/2026/01/21/weston-mckennie-on-target-again-as-juventus-cruise-in-champions-league-win/
+
+**The Briefing: Slavia Prague 2 Barcelona 4 - Top-eight boost but Pedri injury worry**\
+`Barcelona ease to victory and move to ninth in the Champions League, boosting their chances of automatic qualification to the knockout phase`\
+https://nytimes.com/athletic/6983725/2026/01/21/slavia-prague-2-barcelona-4-pedri-injury-top-eight-boost/
+
 **Heart Disease and Stroke Behind Quarter of All Deaths in U.S.**\
 `Deaths from both causes are down, but they still eclipse all other causes, according to new statistics.`\
 https://nytimes.com/2026/01/21/well/us-leading-death-cause-stroke-heart-disease.html

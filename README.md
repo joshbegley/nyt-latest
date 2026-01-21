@@ -1,3 +1,7 @@
+**Judge Rules N.Y. Democrats Can Redraw Staten Island House District**\
+`The ruling, which is expected to be appealed, allows the state to change the boundary lines of a district held by a Republican since 2021.`\
+https://nytimes.com/2026/01/21/nyregion/redistricting-congress-new-york.html
+
 **McKennie on target again as Juventus cruise in Champions League win**\
 `European competition has brought out the best in McKennie months before the World Cup`\
 https://nytimes.com/athletic/6989978/2026/01/21/weston-mckennie-on-target-again-as-juventus-cruise-in-champions-league-win/
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6983722/2026/01/21/chelsea-pafos-rosenior-delap-cai
 **18-Year-Old Pleads Guilty in North Carolina Shooting That Left 5 Dead**\
 `It is highly uncommon for mass shooters to plead guilty in a country where such attacks seem all too frequent. The man’s lawyers said he wanted to spare the community from further trauma.`\
 https://nytimes.com/2026/01/21/us/austin-thompson-shooting-guilty-plea.html
-
-**The Briefing: Slavia Prague 2 Barcelona 4 - Top-eight boost but Pedri injury worry**\
-`Barcelona ease to victory and move to ninth in the Champions League, boosting their chances of automatic qualification to the knockout phase`\
-https://nytimes.com/athletic/6983725/2026/01/21/slavia-prague-2-barcelona-4-pedri-injury-top-eight-boost/
 
