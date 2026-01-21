@@ -1,3 +1,5 @@
+
+
 **Here’s a Look at Everything (and Everyone) Trump Assailed at Davos**\
 `President Trump’s verbal broadsides drew gasps and nervous laughter at the annual gathering of political and business leaders.`\
 https://nytimes.com/2026/01/21/us/politics/trump-davos-speech-takeaways.html
