@@ -1,3 +1,15 @@
+**No QB angst in Chicago as Bears GM Ryan Poles, coach Ben Johnson rave about Caleb Williams**\
+`What we learned from the Bears' leaders on Wednesday, including thoughts about DJ Moore, Kevin Byard and an update on injured players.`\
+https://nytimes.com/athletic/6989258/2026/01/21/bears-ben-johnson-ryan-poles-caleb-williams/
+
+**A Night With ‘The Funniest Person Who Ever Lived’**\
+`Mel Brooks joined Judd Apatow and Patton Oswalt at the Los Angeles premiere of “Mel Brooks: The 99 Year Old Man!”`\
+https://nytimes.com/2026/01/21/style/mel-brooks-the-99-year-old-man-premiere-party.html
+
+**Bills owner says coaching staff 'pushed' for Coleman draft pick**\
+`The Bills had high hopes for the second-year player drafted in the second round.`\
+https://nytimes.com/athletic/6989143/2026/01/21/pegula-bills-coaches-coleman-beane-team-player/
+
 **How Has Being Perpetually Single Affected You as a Man?**\
 `We want to hear from men over the age of 30 who feel as if they have not yet had a meaningful romantic relationship for a New York Times Magazine feature.`\
 https://nytimes.com/2026/01/21/magazine/forever-single-men-relationships-submissions.html
