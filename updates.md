@@ -1,3 +1,7 @@
+**Late Night Cringes Over Trump’s Texting Spree**\
+`Jimmy Kimmel quipped that the president “can do so much damage in one three-day weekend — I don’t know if anybody has ever done more.”`\
+https://nytimes.com/2026/01/21/arts/television/late-night-trump-greenland-nobel.html
+
 **Word of the Day: dearth**\
 `This word has appeared in 229 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/21/learning/word-of-the-day-dearth.html
