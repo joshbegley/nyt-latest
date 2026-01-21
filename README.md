@@ -1,3 +1,7 @@
+**The Bounce: The Warriors' season is over. Can the Knicks save theirs?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6988531/2026/01/21/warriors-knicks-nba-the-bounce/
+
 **Court Denies Lawmakers Seeking Independent Monitor of Epstein Files**\
 `A federal judge said he did not have the authority to supervise the Justice Department’s release of the documents.`\
 https://nytimes.com/2026/01/21/nyregion/epstein-independent-monitor.html
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6987182/2026/01/21/penguins-ben-kindel-billet-famil
 `By Abbie VanSickle`\
 https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook/who-are-the-lawyers-arguing-over-trumps-effort-to-fire-lisa-cook
 
-**Fantasy football WR and TE review: Justin Jefferson crashes, George Pickens soars and more**\
+**Diagnosing Justin Jefferson's fantasy football decline, George Pickens' ascent**\
 `Jake Ciely runs through the biggest fantasy football 2025 hits and misses at the WR and TE positions, searching for lessons learned.`\
 https://nytimes.com/athletic/6984096/2026/01/21/fantasy-football-wide-receivers-tight-ends-review-overperformers-underperformers/
 
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/21/us/politics/trump-supreme-court-fed.html
 **As Europe Tries to Diversify Trade, a Major Deal With South America Stumbles**\
 `The move by the European Parliament delays a push by the bloc to find new trading partners, as President Trump has threatened escalating U.S. tariffs.`\
 https://nytimes.com/2026/01/21/us/politics/mercosur-trade-deal-eu.html
-
-**What Is Lisa Cook, the Fed Governor, Accused of Doing?**\
-`The Trump administration has accused Lisa D. Cook, a Fed governor, of engaging in mortgage fraud, but financial documents cast doubt on the claims.`\
-https://nytimes.com/2026/01/21/us/politics/lisa-cook-mortgage-fraud-accusation.html
 
