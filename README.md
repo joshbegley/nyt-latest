@@ -1,3 +1,7 @@
+**Judge Blocks Government From Reviewing Seized Washington Post Devices**\
+`The Post, in its first legal filing since the government searched the home of a reporter last week, had demanded the return of the seized materials.`\
+https://nytimes.com/2026/01/21/business/media/washington-post-reporter-search-first-amendment.html
+
 **Trump’s Moves on Greenland**\
 `After assailing Europe in a long speech at Davos, the president said he had won an agreement on the future of the Arctic territory.`\
 https://nytimes.com/2026/01/21/world/trumps-greenland-davos-isis-syria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6989576/2026/01/21/nhl-draft-2026-questions-scott-w
 **House Panel Votes to Hold Clintons in Contempt in Epstein Inquiry**\
 `The votes by the Oversight Committee were bipartisan, though many Democrats said the charges were extreme given Bill and Hillary Clinton’s willingness to answer questions.`\
 https://nytimes.com/2026/01/21/us/politics/house-clintons-contempt-epstein.html
-
-**How to watch Flyers vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6989604/2026/01/21/flyers-vs-mammoth-stream-how-to-watch-jan-21/
 

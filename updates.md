@@ -1,3 +1,7 @@
+**Trump’s Moves on Greenland**\
+`After assailing Europe in a long speech at Davos, the president said he had won an agreement on the future of the Arctic territory.`\
+https://nytimes.com/2026/01/21/world/trumps-greenland-davos-isis-syria.html
+
 **Source: Inter Miami finalizing Berterame transfer, had Bouanga bid rejected**\
 `Inter Miami keeps thinking big as it builds out its roster, and that includes making a play for one of the most productive wingers in MLS`\
 https://nytimes.com/athletic/6989651/2026/01/21/inter-miami-german-berterame-transfer-denis-bouanga-bid-mls/
