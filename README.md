@@ -1,40 +1,40 @@
-**How to watch Pepperdine vs. Gonzaga men's basketball: Time, TV, streaming**\
-`Find out how to watch the Pepperdine Waves play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6989566/2026/01/21/pepperdine-vs-gonzaga-stream-how-to-watch-jan-21/
+**How to watch Flyers vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6989604/2026/01/21/flyers-vs-mammoth-stream-how-to-watch-jan-21/
 
-**How to watch Texas Tech vs. BYU women's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Tech Lady Raiders play the BYU Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6989564/2026/01/21/texas-tech-vs-byu-stream-how-to-watch-jan-21/
+**How to watch Penguins vs. Flames: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6989602/2026/01/21/penguins-vs-flames-stream-how-to-watch-jan-21/
 
-**How to watch Purdue vs. UCLA women's basketball: Time, TV, streaming**\
-`Find out how to watch the Purdue Boilermakers play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6989559/2026/01/21/purdue-vs-ucla-stream-how-to-watch-jan-21/
+**How to watch Thunder vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Oklahoma City Thunder play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6989600/2026/01/21/thunder-vs-bucks-stream-how-to-watch-jan-21/
 
-**How to watch Washington vs. Nebraska men's basketball: Time, TV, streaming**\
-`Find out how to watch the Washington Huskies play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6989557/2026/01/21/washington-vs-nebraska-stream-how-to-watch-jan-21/
+**Appeals Court Stays Restrictions on Federal Tactics in Minnesota**\
+`The Eighth Circuit granted the Trump administration’s request to block, at least for now, a lower court’s injunction limiting how federal agents interact with protesters in the state.`\
+https://nytimes.com/2026/01/21/us/minnesota-injunction-protest-appeal.html
 
-**4 Takeaways from Supreme Court Hearing on Trump’s Firing of Fed Official**\
-`The justices were alert to the central bank’s crucial role and wary of issuing a broad ruling based on rushed briefing and incomplete information.`\
-https://nytimes.com/2026/01/21/us/politics/4-takeaways-supreme-court-fed-hearing.html
+**How to watch Hawks vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6989596/2026/01/21/hawks-vs-grizzlies-stream-how-to-watch-jan-21/
 
-**Freiburg fan groups to boycott Maccabi Tel Aviv game over security measures**\
-`The two sides are set to meet in the Europa League on Thursday.`\
-https://nytimes.com/athletic/6989209/2026/01/21/freiburg-maccabi-tel-aviv-fan-boycott/
+**How to watch Pacers vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6989593/2026/01/21/pacers-vs-celtics-stream-how-to-watch-jan-21/
 
-**America Has Given Up on the Cold War Against China**\
-`Is a Chinese century now dawning?`\
-https://nytimes.com/2026/01/21/opinion/us-china-cold-war-tariffs-trump.html
+**How to watch Nets vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6989589/2026/01/21/nets-vs-knicks-stream-how-to-watch-jan-21/
 
-**Greenland Advises Residents to Have 5 Days of Supplies**\
-`The semiautonomous Danish territory issued its guidance as President Trump told European leaders that he wouldn’t send troops to seize it. Greenland said it was responding to power cuts, not geopolitics.`\
-https://nytimes.com/2026/01/21/us/politics/greenland-supplies-prepared-power-cuts.html
+**How to watch UCF vs. Baylor women's basketball: Time, TV, streaming**\
+`Find out how to watch the UCF Knights play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6989587/2026/01/21/ucf-vs-baylor-stream-how-to-watch-jan-21/
 
-**Rahm Emanuel Calls for Age Limit of 75 for President, Congress and Judges**\
-`The former Chicago mayor, who is trying to shape the Democratic Party’s future and might run for president, said that “across all three branches of government, 75 years — you’re out.”`\
-https://nytimes.com/2026/01/21/us/politics/rahm-emanuel-age-limit-75.html
+**How to watch Pistons vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6989584/2026/01/21/pistons-vs-pelicans-stream-how-to-watch-jan-21/
 
-**Everything You Could Possibly Want to Know About This Winter Storm**\
-`Here’s a look at the latest forecasts, and how to prepare.`\
-https://nytimes.com/2026/01/21/weather/winter-storm-forecast.html
+**How to watch Capitals vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6989582/2026/01/21/capitals-vs-canucks-stream-how-to-watch-jan-21/
 
