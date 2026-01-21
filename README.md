@@ -1,4 +1,8 @@
-**Trump Calls Renee Good Killing a ‘Tragedy’ and Says ICE Agents Will Make Mistakes**\
+**‘God Is Very Proud’: Trump Marks Anniversary With a Victory Lap**\
+`For roughly an hour and 45 minutes, President Trump meandered through his accomplishments and grievances, attacked perceived enemies and threatened allies.`\
+https://nytimes.com/2026/01/20/us/politics/trump-anniversary-briefing.html
+
+**Trump Calls Renee Good’s Killing a ‘Tragedy’ and Says ICE Agents Will Make Mistakes**\
 `The change in tone was stark for the president, who said he had been told that Ms. Good’s father was a strong Trump supporter.`\
 https://nytimes.com/2026/01/20/us/politics/trump-renee-good-ice-shooting.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/20/us/politics/doge-employees-social-security-data.h
 **The Buffalo Bills Will Break Your Heart**\
 `My hometown needs a win.`\
 https://nytimes.com/2026/01/20/opinion/culture/the-buffalo-bills-playoffs-loss-super-bowl-josh-allen.html
-
-**Ex-N.Y.P.D. Officer Cleared of Spying for China Sues Over Firing**\
-`Federal prosecutors quietly dropped their case against the officer, but a Police Department investigation based on the charges led to his firing, the suit says.`\
-https://nytimes.com/2026/01/20/nyregion/nypd-officer-spying-china.html
 
