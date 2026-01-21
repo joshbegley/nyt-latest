@@ -1,3 +1,11 @@
+**Quote of the Day: Trump Mocks Allies in E.U. Before Davos**\
+`Quotation of the Day for Wednesday, January 21, 2025.`\
+https://nytimes.com/2026/01/20/pageoneplus/quote-of-the-day-trump-mocks-allies-in-eu-before-davos.html
+
+**Man Gets Life in Prison for Killing Shinzo Abe, Former Leader of Japan**\
+`Tetsuya Yamagami, 45, had admitted to shooting Mr. Abe, Japan’s longest-serving prime minister, with a homemade gun at a political rally in 2022.`\
+https://nytimes.com/2026/01/20/world/asia/japan-shinzo-abe-killer-verdict.html
+
 **Cuban Immigrant Was Killed in ICE Custody, Family Says in Legal Filing**\
 `The family of Geraldo Lunas Campos said a witness saw him choked by guards in an El Paso detention facility this month. Federal officials said he died by suicide.`\
 https://nytimes.com/2026/01/20/us/politics/cuban-immigrant-death-ice-custody.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6987752/2026/01/20/baseball-hall-of-fame-questions-
 **Ex-Alabama player sues NCAA to try to return to college, nearly 3 years after entering NBA Draft**\
 `Bediako's lawsuit follows a wave of former G League players and international pros joining college basketball this season.`\
 https://nytimes.com/athletic/6987689/2026/01/20/charles-bediako-alabama-ncaa-lawsuit-basketball-eligibility/
-
-**They Might Be Foiled**\
-`Ginny Too and Avery Gee Katz make their collaboration debut in the New York Times Crossword.`\
-https://nytimes.com/2026/01/20/crosswords/daily-puzzle-2026-01-21.html
-
-**Bill Kennedy, Robin Roberts, Rick Welts highlight LGBTQ Sports Hall of Fame inductees**\
-`The LGBTQ Sports Hall of Fame announced its 2026 Hall of Fame class of, four of whom have basketball ties.`\
-https://nytimes.com/athletic/6987614/2026/01/20/bill-kennedy-lgbtq-sports-hof-collins-welts-roberts-2/
 

@@ -1,3 +1,7 @@
+**Cuban Immigrant Was Killed in ICE Custody, Family Says in Legal Filing**\
+`The family of Geraldo Lunas Campos said a witness saw him choked by guards in an El Paso detention facility this month. Federal officials said he died by suicide.`\
+https://nytimes.com/2026/01/20/us/politics/cuban-immigrant-death-ice-custody.html
+
 **Sloppy final shifts cost Wild as Caufield snipes last-minute winner: Takeaways**\
 `The Wild were left without a point after Caufield scored the winner with 15 seconds left in regulation.`\
 https://nytimes.com/athletic/6987374/2026/01/20/wild-fatigue-tarasenko-caufield-canadiens/
