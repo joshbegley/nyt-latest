@@ -1,3 +1,7 @@
+**‘Adaptive Normalcy’ as the Trump Show Arrives at Davos**\
+`The president’s address at the World Economic Forum in Switzerland has trading partners and business executives on edge.`\
+https://nytimes.com/2026/01/21/business/dealbook/davos-trump-speech.html
+
 **Manchester United agree deal to create 'The Crown'-style TV series**\
 `Club are developing plans with North American production company Lionsgate for a drama chronicling their history`\
 https://nytimes.com/athletic/6987789/2026/01/21/manchester-united-tv-series-crown-lionsgate/
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6988230/2026/01/21/college-football-team-postseason
 https://nytimes.com/athletic/6986406/2026/01/21/michigan-football-transfer-portal-defense/
 
 **With Chargers, Mike McDaniel may get to show the NFL world what he’s really made of**\
-`Jim Harbaugh can recognize what some critics have missed: that Mike McDaniel is a 'football guy' through and through.`\
+`Jim Harbaugh can recognize what some critics have missed: that McDaniel is a 'football guy' through and through.`\
 https://nytimes.com/athletic/6988196/2026/01/21/mike-mcdaniel-chargers-jim-harbaugh/
 
 **What's the biggest issue in women's hockey today? PWHL players talk salary, schedules, more**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/21/us/politics/greenland-ukraine-nato-rutte.html
 **Did Ohio State succeed in the transfer portal? Thoughts on all 16 new additions**\
 `Ohio State started slow but finished strong in the transfer portal window. Here's what to know about all the new players.`\
 https://nytimes.com/athletic/6986974/2026/01/21/ohio-state-transfer-portal-commitments-players/
-
-**Trump 2.0**\
-`We look at the first year of the president’s second term.`\
-https://nytimes.com/2026/01/21/briefing/trump-first-year-back.html
 

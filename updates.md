@@ -1,3 +1,11 @@
+**‘Adaptive Normalcy’ as the Trump Show Arrives at Davos**\
+`The president’s address at the World Economic Forum in Switzerland has trading partners and business executives on edge.`\
+https://nytimes.com/2026/01/21/business/dealbook/davos-trump-speech.html
+
+**With Chargers, Mike McDaniel may get to show the NFL world what he’s really made of**\
+`Jim Harbaugh can recognize what some critics have missed: that McDaniel is a 'football guy' through and through.`\
+https://nytimes.com/athletic/6988196/2026/01/21/mike-mcdaniel-chargers-jim-harbaugh/
+
 **Manchester United agree deal to create 'The Crown'-style TV series**\
 `Club are developing plans with North American production company Lionsgate for a drama chronicling their history`\
 https://nytimes.com/athletic/6987789/2026/01/21/manchester-united-tv-series-crown-lionsgate/
