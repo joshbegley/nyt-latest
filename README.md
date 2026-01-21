@@ -1,4 +1,4 @@
-**Why Was Macron Wearing Sunglasses in Davos?**\
+**Why Was Macron Wearing Sunglasses at Davos?**\
 `An eye condition, not a style choice, prompted President Emmanuel Macron of France to don aviators to address the World Economic Forum.`\
 https://nytimes.com/2026/01/21/world/europe/macron-sunglasses-davos.html
 
