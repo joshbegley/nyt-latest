@@ -1,3 +1,19 @@
+**Warriors Windup: Raptors win big as Steph Curry, Golden State adjust without Jimmy Butler**\
+`The Warriors couldn't keep pace against a more athletic and aggressive Raptors team.`\
+https://nytimes.com/athletic/6987809/2026/01/21/warriors-raptors-score-results-stats-steph-curry-jimmy-butler/
+
+**The New York Times in Print for Wednesday, Jan. 21, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/21/todays-new-york-times
+
+**Trump’s Politics Are Not America First. They’re Me First.**\
+`Donald Trump is the most un-American president in our history. And in his second term, there is no one to constrain his un-American impulses.`\
+https://nytimes.com/2026/01/21/opinion/trump-greenland-europe-nato.html
+
+**Europe Has a Bazooka. Time to Use It.**\
+`For now, Europe’s anti-coercion instrument is less a bazooka than a waterlogged firecracker.`\
+https://nytimes.com/2026/01/21/opinion/europe-independence-trump-greenland.html
+
 **Mets bolster outfield defense by acquiring Luis Robert Jr. from White Sox**\
 `David Stearns and the New York Mets hope the fifth time is the charm.
 `\
