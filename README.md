@@ -26,6 +26,10 @@ https://nytimes.com/athletic/6982800/2026/01/21/crystal-palace-demise-lessons/
 `Out-of-work managers need to make sure they stand out when clubs put out feelers for their ideal candidates, but how do they do that?`\
 https://nytimes.com/athletic/6973864/2026/01/21/premier-league-managers-next-first-job-preparation/
 
+**Ranking the 2026 Ballon d’Or contenders: Is Harry Kane the winter leader?**\
+`The mid-season contenders for men's football's biggest individual prize, due to be awarded in October`\
+https://nytimes.com/athletic/6982504/2026/01/21/2026-ballon-dor-contenders-kane-yamal-haaland-messi/
+
 **Alysson's journey from Brazil to Villa: Idolising Neymar, taking up snooker and growth spurts**\
 `The story of Villa's new teenage forward, his upbringing in Brazil, how he is acclimatising to England — and the club's plans for him`\
 https://nytimes.com/athletic/6973757/2026/01/21/alyssons-aston-villa-brazil-transfer/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6973757/2026/01/21/alyssons-aston-villa-brazil-tran
 `David Stearns and the New York Mets hope the fifth time is the charm.
 `\
 https://nytimes.com/athletic/6987856/2026/01/21/mets-luis-robert-trade-white-sox-mlb/
-
-**Ranking the 2026 Ballon d’Or contenders: Is Harry Kane the winter leader?**\
-`The mid-season contenders for men's football's biggest individual prize, due to be awarded in October`\
-https://nytimes.com/athletic/6982504/2026/01/21/2026-ballon-dor-contenders-kane-yamal-haaland-messi/
 
