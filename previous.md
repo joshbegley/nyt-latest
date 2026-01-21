@@ -1,3 +1,7 @@
+**Here’s a Look at Everything (and Everyone) Trump Assailed at Davos**\
+`President Trump’s verbal broadsides drew gasps and nervous laughter at the annual gathering of political and business leaders.`\
+https://nytimes.com/2026/01/21/us/politics/trump-davos-speech-takeaways.html
+
 **Introducing Cross Bot**\
 `Cross Bot will analyze your games in Crossplay, a new two-player word game from The Times.`\
 https://nytimes.com/2026/01/21/upshot/introducing-cross-bot.html
@@ -19,14 +23,10 @@ https://nytimes.com/athletic/6988180/2026/01/21/alao-chelsea-manchester-united-t
 https://nytimes.com/live/2026/01/21/us/trump-davos-greenland-news/after-promising-new-us-housing-policies-in-davos-speech-trump-offers-few-details
 
 **Trump Calls Out Mark Carney’s Davos Speech in Rebuke to Canada**\
-`“I watched your prime minister yesterday,” the president said in a speech on Wednesday. “He wasn’t so grateful — they should be grateful to us, Canada. Canada lives because of the United States.`\
+`“I watched your prime minister yesterday,” the president said in a speech on Wednesday. “He wasn’t so grateful — they should be grateful to us, Canada. Canada lives because of the United States.”`\
 https://nytimes.com/2026/01/21/us/politics/trump-mark-carney-davos-speech.html
 
 **Jackson LaCombe named to Team USA for Olympics, replaces injured Seth Jones**\
 `Jones was declared unable to participate in the upcoming men's tournament in northern Italy.`\
 https://nytimes.com/athletic/6988931/2026/01/21/jackson-lacombe-olympics-hockey-seth-jones/
-
-**U.S. Pivot in Syria Leaves an Old Ally in the Lurch**\
-`A Kurdish force that helped defeat the Islamic State is collapsing as the Trump administration turns to back the new Syrian government.`\
-https://nytimes.com/2026/01/21/world/middleeast/us-pivot-in-syria-leaves-an-old-ally-in-the-lurch.html
 

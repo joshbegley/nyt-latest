@@ -1,3 +1,11 @@
+**Here’s a Look at Everything (and Everyone) Trump Assailed at Davos**\
+`President Trump’s verbal broadsides drew gasps and nervous laughter at the annual gathering of political and business leaders.`\
+https://nytimes.com/2026/01/21/us/politics/trump-davos-speech-takeaways.html
+
+**Trump Calls Out Mark Carney’s Davos Speech in Rebuke to Canada**\
+`“I watched your prime minister yesterday,” the president said in a speech on Wednesday. “He wasn’t so grateful — they should be grateful to us, Canada. Canada lives because of the United States.”`\
+https://nytimes.com/2026/01/21/us/politics/trump-mark-carney-davos-speech.html
+
 **Introducing Cross Bot**\
 `Cross Bot will analyze your games in Crossplay, a new two-player word game from The Times.`\
 https://nytimes.com/2026/01/21/upshot/introducing-cross-bot.html
