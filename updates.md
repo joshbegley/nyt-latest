@@ -1,3 +1,7 @@
+**In Court Record, Official Describes Assault Before ICE Agent Shot Man in Minneapolis**\
+`The agent told an investigator that he was assaulted with a broom and a shovel before he fired a single shot that wounded a Venezuelan man.`\
+https://nytimes.com/2026/01/20/us/ice-shooting-minneapolis-charges.html
+
 **Ex-Alabama player sues NCAA to try to return to college, nearly 3 years after entering NBA Draft**\
 `Bediako's lawsuit follows a wave of former G League players and international pros joining college basketball this season.`\
 https://nytimes.com/athletic/6987689/2026/01/20/charles-bediako-alabama-ncaa-lawsuit-basketball-eligibility/
