@@ -1,3 +1,11 @@
+**Trump Calls Renee Good Killing a ‘Tragedy’ and Says ICE Agents Will Make Mistakes**\
+`The change in tone was stark for the president, who said he had been told that Ms. Good’s father was a strong Trump supporter.`\
+https://nytimes.com/2026/01/20/us/politics/trump-renee-good-ice-shooting.html
+
+**ICE Arrest of a Citizen, Barely Dressed, Sows Fear in Twin Cities**\
+`A Hmong immigrant, who is a U.S. citizen, was released after being questioned for an hour. Federal officials said they had been seeking sex offenders.`\
+https://nytimes.com/2026/01/20/us/chongly-scott-thao-ice-arrest.html
+
 **Timothy Busfield Ordered Released From Jail Ahead of Sex Abuse Trial**\
 `The “Thirtysomething” star is accused of inappropriately touching a child actor on the set of a TV series. His lawyers have called the allegations “manufactured.”`\
 https://nytimes.com/2026/01/20/us/timothy-busfield-charges-release.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/20/opinion/culture/the-buffalo-bills-playoffs-loss-s
 **Ex-N.Y.P.D. Officer Cleared of Spying for China Sues Over Firing**\
 `Federal prosecutors quietly dropped their case against the officer, but a Police Department investigation based on the charges led to his firing, the suit says.`\
 https://nytimes.com/2026/01/20/nyregion/nypd-officer-spying-china.html
-
-**Georges Borchardt, 97, Dies; Literary Agent Championed Wiesel’s ‘Night’**\
-`Renowned in his field, he counted among his clients five Nobel laureates, including Elie Wiesel, and eight Pulitzer winners as well as the estates of Tennessee Williams and Aldous Huxley.`\
-https://nytimes.com/2026/01/20/obituaries/georges-borchardt-dead.html
-
-**Canada Flexes on Global Stage With an Eye to Its Own Survival**\
-`Prime Minister Mark Carney got a standing ovation in Davos for starkly describing the end of Pax Americana. He is looking for new allies to help his country survive it.`\
-https://nytimes.com/2026/01/20/world/canada/carney-speech-davos-trump.html
 

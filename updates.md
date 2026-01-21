@@ -1,3 +1,15 @@
+**Timothy Busfield Ordered Released From Jail Ahead of Sex Abuse Trial**\
+`The “Thirtysomething” star is accused of inappropriately touching a child actor on the set of a TV series. His lawyers have called the allegations “manufactured.”`\
+https://nytimes.com/2026/01/20/us/timothy-busfield-charges-release.html
+
+**Who will be the 49ers' fifth defensive coordinator in 5 years? Here's the list**\
+`Less than 48 hours after his season ended Saturday night, San Francisco 49ers coach Kyle Shanahan was back on the clock.`\
+https://nytimes.com/athletic/6987209/2026/01/20/49ers-defensive-coordinator-potential-candidates-list/
+
+**Another Train Crash in Spain Kills 1 and Hurts 37, Officials Say**\
+`Train service in the Catalonia region will be suspended until it is safe to resume rail traffic, the local operator said.`\
+https://nytimes.com/2026/01/20/world/europe/train-crash-catalonia-spain.html
+
 **On Day 1, Mikie Sherrill Focuses on Utility Costs and Children’s Safety**\
 `The new governor of New Jersey signed six executive orders after taking office on Tuesday. They matched the priorities she campaigned on last year.`\
 https://nytimes.com/2026/01/20/nyregion/mikie-sherrill-executive-orders-new-jersey.html
