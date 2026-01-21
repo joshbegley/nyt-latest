@@ -1,3 +1,7 @@
+**What the Mets might do next after trading for Luis Robert Jr.**\
+`There's a slightly higher chance of the Mets trading for a starter than signing one in free agency, sources said.`\
+https://nytimes.com/athletic/6988891/2026/01/21/mets-offseason-luis-robert-free-agency/
+
 **Giants Introduced Harbaugh as Head Coach. Now What Happens?**\
 `The New York Giants introduced John Harbaugh as their new head coach on Jan. 20, landing the top candidate available for the role. The Athletic’s Charlotte Carroll reports on what Harbaugh has changed in the front office already.`\
 https://nytimes.com/video/the-athletic/100000010658851/giants-introduced-harbaugh-as-head-coach-now-what-happens.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6988777/2026/01/21/phillies-offseason-roster-analys
 `“Our stock market took the first dip yesterday because of Iceland,” the president said, referring to market shifts related to his repeated threats to seize Greenland. “So Iceland’s already cost us a lot of money.”`\
 https://nytimes.com/2026/01/21/us/politics/trump-greenland-iceland-confusion.html
 
-**Prue Leith Says She Is Leaving ‘The Great British Bake Off’**\
+**Prue Leith Says She Is Leaving ‘The Great British Baking Show’**\
 `Ms. Leith, 86, presided over more than 400 challenges in nine seasons of the TV baking competition, and says it “feels like the right time.”`\
 https://nytimes.com/2026/01/21/arts/television/prue-leith-great-british-bake-off-judge-leaving.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6988812/2026/01/21/cadillac-f1-job-applications-gra
 **Eye Condition Causes Macron to Take Stage in Shades at Davos**\
 `A medical issue, not the dictates of fashion, led President Emanuel Macron of France to address the World Economic Forum in Davos, Switzerland, wearing sunglasses. The condition typically goes away without treatment within two weeks.`\
 https://nytimes.com/video/world/europe/100000010658206/eye-condition-causes-macron-to-take-stage-in-shades-at-davos.html
-
-**Bills early candidate list includes Brian Daboll, Joe Brady, Lou Anarumo**\
-`The Bills already have a list of six candidates for their head coaching job, a number that is expected to grow. `\
-https://nytimes.com/athletic/6988732/2026/01/21/bills-head-coach-candidates-brian-daboll-joe-brady/
 

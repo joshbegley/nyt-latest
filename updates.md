@@ -1,3 +1,11 @@
+**What the Mets might do next after trading for Luis Robert Jr.**\
+`There's a slightly higher chance of the Mets trading for a starter than signing one in free agency, sources said.`\
+https://nytimes.com/athletic/6988891/2026/01/21/mets-offseason-luis-robert-free-agency/
+
+**Prue Leith Says She Is Leaving ‘The Great British Baking Show’**\
+`Ms. Leith, 86, presided over more than 400 challenges in nine seasons of the TV baking competition, and says it “feels like the right time.”`\
+https://nytimes.com/2026/01/21/arts/television/prue-leith-great-british-bake-off-judge-leaving.html
+
 **Giants Introduced Harbaugh as Head Coach. Now What Happens?**\
 `The New York Giants introduced John Harbaugh as their new head coach on Jan. 20, landing the top candidate available for the role. The Athletic’s Charlotte Carroll reports on what Harbaugh has changed in the front office already.`\
 https://nytimes.com/video/the-athletic/100000010658851/giants-introduced-harbaugh-as-head-coach-now-what-happens.html
