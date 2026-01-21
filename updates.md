@@ -1,3 +1,11 @@
+**South Korean Ex-Premier Gets 23 Years in Prison for Role in Martial Law**\
+`Han Duck-soo was convicted of playing a key role in former President Yoon Suk Yeol’s imposition of martial law, which a court said was an insurrection.`\
+https://nytimes.com/2026/01/21/world/asia/south-korea-prime-minister-martial-law.html
+
+**Why Was Macron Wearing Sunglasses at Davos?**\
+`An eye condition, not a style choice, prompted President Emmanuel Macron of France to don aviators to address the World Economic Forum.`\
+https://nytimes.com/2026/01/21/world/europe/macron-sunglasses-davos.html
+
 **Why Was Macron Wearing Sunglasses in Davos?**\
 `An eye condition, not a style choice, prompted President Emmanuel Macron of France to don aviators to address the World Economic Forum.`\
 https://nytimes.com/2026/01/21/world/europe/macron-sunglasses-davos.html
