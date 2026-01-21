@@ -1,3 +1,11 @@
+**Baker Mayfield swipes at Kevin Stefanski: 'Can’t wait to see you twice a year'**\
+`It seems Mayfield is still unhappy with how his time in Cleveland ended.`\
+https://nytimes.com/athletic/6987483/2026/01/20/baker-mayfield-kevin-stefanski-social-media/
+
+**House Foreign Affairs Members Call for Machado to Govern Venezuela**\
+`The Venezuelan opposition leader stressed the need for free elections in her latest bipartisan meeting with lawmakers.`\
+https://nytimes.com/2026/01/20/us/politics/house-foreign-affairs-machado-venezuela.html
+
 **Chargers to hire former Dolphins head coach Mike McDaniel as OC: Sources**\
 `McDaniel replaces Greg Roman, who was fired by the Chargers after two seasons and two early playoff exits.`\
 https://nytimes.com/athletic/6987350/2026/01/20/chargers-hire-mike-mcdaniel-offensive-coordinator/

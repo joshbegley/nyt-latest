@@ -1,3 +1,7 @@
+**Baker Mayfield swipes at Kevin Stefanski: 'Can’t wait to see you twice a year'**\
+`It seems Mayfield is still unhappy with how his time in Cleveland ended.`\
+https://nytimes.com/athletic/6987483/2026/01/20/baker-mayfield-kevin-stefanski-social-media/
+
 **Chargers to hire former Dolphins head coach Mike McDaniel as OC: Sources**\
 `McDaniel replaces Greg Roman, who was fired by the Chargers after two seasons and two early playoff exits.`\
 https://nytimes.com/athletic/6987350/2026/01/20/chargers-hire-mike-mcdaniel-offensive-coordinator/
@@ -8,7 +12,7 @@ https://nytimes.com/2026/01/20/us/tate-brothers-miami-heil-hitler-kanye-west.htm
 
 **House Foreign Affairs Members Call for Machado to Govern Venezuela**\
 `The Venezuelan opposition leader stressed the need for free elections in her latest bipartisan meeting with lawmakers.`\
-https://nytimes.com/2026/01/20/us/politics/house-foreign-affairs-members-call-for-machado-to-govern-venezuela.html
+https://nytimes.com/2026/01/20/us/politics/house-foreign-affairs-machado-venezuela.html
 
 **Pressured by Trump, Mexico Sends 37 Accused Criminals to U.S.**\
 `Mexico has sought to do more to combat its cartels in an effort to stave off airstrikes threatened by President Trump.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/20/us/timothy-busfield-charges-release.html
 **Who will be the 49ers' fifth defensive coordinator in 5 years? Here's the list**\
 `Less than 48 hours after his season ended Saturday night, San Francisco 49ers coach Kyle Shanahan was back on the clock.`\
 https://nytimes.com/athletic/6987209/2026/01/20/49ers-defensive-coordinator-potential-candidates-list/
-
-**Another Train Crash in Spain Kills 1 and Hurts 37, Officials Say**\
-`Train service in the Catalonia region will be suspended until it is safe to resume rail traffic, the local operator said.`\
-https://nytimes.com/2026/01/20/world/europe/train-crash-catalonia-spain.html
 
