@@ -1,3 +1,11 @@
+**The Briefing: Chelsea 1 Pafos 0 - Low-block toils, set-piece reward but will this do in Naples?**\
+`Liam Rosenior's side dominated against the Cypriot minnows but only prevailed with a goal from a set piece 12 minutes from the end`\
+https://nytimes.com/athletic/6983722/2026/01/21/chelsea-pafos-rosenior-delap-caicedo-ucl/
+
+**18-Year-Old Pleads Guilty in North Carolina Shooting That Left 5 Dead**\
+`It is highly uncommon for mass shooters to plead guilty in a country where such attacks seem all too frequent. The man’s lawyers said he wanted to spare the community from further trauma.`\
+https://nytimes.com/2026/01/21/us/austin-thompson-shooting-guilty-plea.html
+
 **The Briefing: Slavia Prague 2 Barcelona 4 - Top-eight boost but Pedri injury worry**\
 `Barcelona ease to victory and move to ninth in the Champions League, boosting their chances of automatic qualification to the knockout phase`\
 https://nytimes.com/athletic/6983725/2026/01/21/slavia-prague-2-barcelona-4-pedri-injury-top-eight-boost/
@@ -25,12 +33,4 @@ https://nytimes.com/news-event/2026-midterm-elections
 **Quick! What Are Your Dating Rules?**\
 `Advice abounds on how, when and whom to date. What are your best rules for navigating early romance?`\
 https://nytimes.com/2026/01/21/style/modern-love-what-are-your-dating-rules.html
-
-**Federal Agent Fires Gun During Immigration Operation in L.A. Area, Officials Say**\
-`The authorities said an agent fired his weapon at a man in Compton, Calif., who was being pursued over a human smuggling operation. The man was not struck.`\
-https://nytimes.com/2026/01/21/us/los-angeles-shooting-ice.html
-
-**Military Police Troops Put on Alert for Possible Deployment to Minnesota**\
-`The move was described as precautionary in the event that President Trump invokes the Insurrection Act in response to protests.`\
-https://nytimes.com/2026/01/21/us/politics/military-police-alert-minneapolis.html
 
