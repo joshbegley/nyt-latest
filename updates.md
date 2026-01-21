@@ -1,3 +1,7 @@
+**Air Force One Turns Back After Electrical Issue**\
+`The plane carrying President Trump was bound for Switzerland. The White House press secretary said there had been a minor electrical issue.`\
+https://nytimes.com/2026/01/20/us/politics/air-force-one-trump-turn-around.html
+
 **In Court Record, Official Describes Assault Before ICE Agent Shot Man in Minneapolis**\
 `The agent told an investigator that he was assaulted with a broom and a shovel before he fired a single shot that wounded a Venezuelan man.`\
 https://nytimes.com/2026/01/20/us/ice-shooting-minneapolis-charges.html
