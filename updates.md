@@ -1,3 +1,15 @@
+**Trump’s retribution efforts have struggled with mortgage cases.**\
+`The sputtering push to bring charges against Letitia James, the New York attorney general, underscores the challenges the administration has faced in accusing her of mortgage fraud.`\
+https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook/trumps-retribution-efforts-have-struggled-with-mortgage-cases
+
+**Spirit finalizing deal for Claudia Martinez, says Club Olimpia president**\
+`“The conversations are very advanced. We are currently in the contract-drafting stage,” Rodrigo Nogués told The Athletic.`\
+https://nytimes.com/athletic/6988391/2026/01/21/claudia-martinez-washington-spirit-olimpia/
+
+**Saving a Paris Movie Theater, With Help From Scorsese and Tarantino**\
+`After a saga that kept its supporters on the edge of their seats for years, a beloved art-house cinema is now open for business once more, run by volunteers this time.`\
+https://nytimes.com/2026/01/21/movies/la-clef-paris.html
+
 **A Brief From Every Living Former Fed Chair Could Sway the Justices**\
 `The filing, also signed by six former Treasury secretaries, said that letting President Trump fire Lisa Cook would deal a blow to the credibility of the nation’s monetary policy.`\
 https://nytimes.com/2026/01/21/us/politics/fed-governors-lisa-cook.html

@@ -1,3 +1,11 @@
+**Newsom Calls World Leaders ‘Pathetic’ for ‘Rolling Over’ to Trump**\
+`Gov. Gavin Newsom of California told world leaders to “stop being complicit” and to “have a backbone” in dealing with President Trump and his threats to Greenland.`\
+https://nytimes.com/video/world/europe/100000010658327/newsom-trump-leaders-pathetic.html
+
+**City refund away supporters after 3-1 loss at Bodo/Glimt**\
+`City's captains said it was "the least we could do" for the 374 fans who made the trip to the Arctic Circle.`\
+https://nytimes.com/athletic/6988496/2026/01/21/manchester-city-bodo-glimt-refund/
+
 **Trump’s retribution efforts have struggled with mortgage cases.**\
 `The sputtering push to bring charges against Letitia James, the New York attorney general, underscores the challenges the administration has faced in accusing her of mortgage fraud.`\
 https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook/trumps-retribution-efforts-have-struggled-with-mortgage-cases
@@ -19,7 +27,7 @@ https://nytimes.com/2026/01/21/us/politics/fed-governors-lisa-cook.html
 https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook/heres-the-latest
 
 **Live Updates: Supreme Court Hears Case on Trump’s Power Over Fed**\
-`The justices have temporarily allowed the president to fire other leaders of independent agencies but have signaled that the Federal Reserve may be different.`\
+`The justices have signaled they are likely to allow the president to expand his power over executive agencies but that his efforts to fire Lisa Cook may be different.`\
 https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook
 
 **How a Pro-Greenland Song Became a Protest Anthem**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/21/arts/music/greenland-protest-song-trump.html
 **College basketball mailbag: Where can the top 10 teams improve? Is Miami (Ohio) at-large worthy?**\
 `Does Marquette need to change its philosophy? Who are the bottom teams at the power-conference level this year?`\
 https://nytimes.com/athletic/6988365/2026/01/21/college-basketball-mailbag-arizona-marquette-miami-ohio/
-
-**Dodgers roster projection 1.0: Pretty, pretty, pretty good**\
-`It’s an eye-popping collection of talent, even before considering that the Dodgers might not be done.`\
-https://nytimes.com/athletic/6986546/2026/01/21/dogers-roster-projection-2026/
-
-**The Conservative Conspiracy Against Women’s Progress Is Real**\
-`This is how the Heritage Foundation wants to turn back the clock.`\
-https://nytimes.com/2026/01/21/opinion/heritage-foundation-women.html
 
