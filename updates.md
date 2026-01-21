@@ -1,3 +1,7 @@
+**Chargers to hire former Dolphins head coach Mike McDaniel as OC: Sources**\
+`McDaniel would replace Greg Roman, who was fired by the Chargers after two seasons and two early playoff exits.`\
+https://nytimes.com/athletic/6987350/2026/01/20/chargers-hire-mike-mcdaniel-offensive-coordinator/
+
 **Baker Mayfield swipes at Kevin Stefanski: 'Can’t wait to see you twice a year'**\
 `It seems Mayfield is still unhappy with how his time in Cleveland ended.`\
 https://nytimes.com/athletic/6987483/2026/01/20/baker-mayfield-kevin-stefanski-social-media/

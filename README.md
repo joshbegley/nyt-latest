@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6987483/2026/01/20/baker-mayfield-kevin-stefanski-s
 https://nytimes.com/athletic/6987350/2026/01/20/chargers-hire-mike-mcdaniel-offensive-coordinator/
 
 **Miami Beach Nightclub Is Condemned for Playing Ye’s Song ‘Heil Hitler’**\
-`The club, Vendôme, was hosting several right-wing influencers, including Andrew and Tristan Tate, the brothers who are being investigated in Europe for alleged human trafficking.`\
+`The club, Vendôme, was hosting several right-wing influencers, including Andrew and Tristan Tate, the brothers who are being investigated in Europe in connection with human trafficking.`\
 https://nytimes.com/2026/01/20/us/tate-brothers-miami-heil-hitler-kanye-west.html
 
 **House Foreign Affairs Members Call for Machado to Govern Venezuela**\
