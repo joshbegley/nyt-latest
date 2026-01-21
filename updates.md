@@ -1,3 +1,7 @@
+**Georges Borchardt, 97, Dies; Literary Agent Championed Wiesel’s ‘Night’**\
+`Renowned in his field, he counted among his clients five Nobel laureates, including Elie Wiesel, and eight Pulitzer winners as well as the estates of Tennessee Williams and Aldous Huxley.`\
+https://nytimes.com/2026/01/20/obituaries/georges-borchardt-dead.html
+
 **Canada Flexes on Global Stage With an Eye to Its Own Survival**\
 `Prime Minister Mark Carney got a standing ovation in Davos for starkly describing the end of Pax Americana. He is looking for new allies to help his country survive it.`\
 https://nytimes.com/2026/01/20/world/canada/carney-speech-davos-trump.html

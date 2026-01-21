@@ -1,3 +1,11 @@
+**The Buffalo Bills Will Break Your Heart**\
+`My hometown needs a win.`\
+https://nytimes.com/2026/01/20/opinion/culture/the-buffalo-bills-playoffs-loss-super-bowl-josh-allen.html
+
+**Ex-N.Y.P.D. Officer Cleared of Spying for China Sues Over Firing**\
+`Federal prosecutors quietly dropped their case against the officer, but a Police Department investigation based on the charges led to his firing, the suit says.`\
+https://nytimes.com/2026/01/20/nyregion/nypd-officer-spying-china.html
+
 **Georges Borchardt, 97, Dies; Literary Agent Championed Wiesel’s ‘Night’**\
 `Renowned in his field, he counted among his clients five Nobel laureates, including Elie Wiesel, and eight Pulitzer winners as well as the estates of Tennessee Williams and Aldous Huxley.`\
 https://nytimes.com/2026/01/20/obituaries/georges-borchardt-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6986998/2026/01/20/john-harbaugh-new-york-giants-hi
 **Pats owner Robert Kraft pushing for 18-game schedule, international game for every team**\
 `Kraft says revenue growth from a longer season will help keep labor peace.`\
 https://nytimes.com/athletic/6987162/2026/01/20/patriots-robert-kraft-18-game-schedule/
-
-**Ex-USC LB Abdul-Malik McClain sentenced in COVID-19 benefits scheme case**\
-`McClain was accused of orchestrating a scheme that fraudulently sought more than $1 million in pandemic-related unemployment benefits.`\
-https://nytimes.com/athletic/6986368/2026/01/20/usc-football-abdul-malik-mcclain-sentenced/
-
-**How Norway's ski jumping scandal rocked a proud nation and bedrock Olympic sport**\
-`With the Olympics near, Norway's ski jumping scandal took its latest turn last week, a controversy that has roiled the sport and country.`\
-https://nytimes.com/athletic/6961222/2026/01/20/olympics-norway-ski-jumping-scandal-suspensions/
 

@@ -1,3 +1,7 @@
+**Georges Borchardt, 97, Dies; Literary Agent Championed Wiesel’s ‘Night’**\
+`Renowned in his field, he counted among his clients five Nobel laureates, including Elie Wiesel, and eight Pulitzer winners as well as the estates of Tennessee Williams and Aldous Huxley.`\
+https://nytimes.com/2026/01/20/obituaries/georges-borchardt-dead.html
+
 **Canada Flexes on Global Stage With an Eye to Its Own Survival**\
 `Prime Minister Mark Carney got a standing ovation in Davos for starkly describing the end of Pax Americana. He is looking for new allies to help his country survive it.`\
 https://nytimes.com/2026/01/20/world/canada/carney-speech-davos-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986368/2026/01/20/usc-football-abdul-malik-mcclain
 **How Norway's ski jumping scandal rocked a proud nation and bedrock Olympic sport**\
 `With the Olympics near, Norway's ski jumping scandal took its latest turn last week, a controversy that has roiled the sport and country.`\
 https://nytimes.com/athletic/6961222/2026/01/20/olympics-norway-ski-jumping-scandal-suspensions/
-
-**Trump Mocks European Leaders Before Meeting With Them**\
-`Also, fewer people are jumping off the Golden Gate Bridge. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2026/01/20/briefing/trump-europe-leaders-davos-spain-train-crash.html
 
