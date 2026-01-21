@@ -1,3 +1,15 @@
+**Bills early candidate list includes Brian Daboll, Joe Brady, Lou Anarumo**\
+`The Bills already have a list of six candidates for their head coaching job, a number that is expected to grow. `\
+https://nytimes.com/athletic/6988732/2026/01/21/bills-head-coach-candidates-brian-daboll-joe-brady/
+
+**Is America Ready for a Female President? Michelle Obama and Whitmer Disagree.**\
+`As Mrs. Obama defended her remarks from November that the country wasn’t ready for a woman as president, Gov. Gretchen Whitmer of Michigan offered a different view.`\
+https://nytimes.com/2026/01/21/us/politics/michelle-obama-gretchen-whitmer-female-president.html
+
+**Bills owner Terry Pegula explains Sean McDermott's firing: 'I know we can do better'**\
+`The Bills' playoff loss to the Denver Broncos led to the decision, Pegula said.`\
+https://nytimes.com/athletic/6988685/2026/01/21/nfl-bills-firing-mcdermott-coach-gm-owner/
+
 **How to watch Cavaliers vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6988827/2026/01/21/cavaliers-vs-hornets-stream-how-to-watch-jan-21/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6988789/2026/01/21/maryland-vs-illinois-stream-how-
 **How to watch Notre Dame vs. North Carolina men's basketball: Time, TV, streaming**\
 `Find out how to watch the Notre Dame Fighting Irish play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6988784/2026/01/21/notre-dame-vs-north-carolina-stream-how-to-watch-jan-21/
-
-**Former Flight Attendant Posed as Pilot to Get Free Flights, Prosecutors Say**\
-`Federal prosecutors accused Dallas Pokornik of using a false I.D. to get hundreds of free flights from three unnamed airlines, which he denied.`\
-https://nytimes.com/2026/01/21/us/flight-attendant-fraud-canada-us-airlines.html
-
-**Canucks trade tiers: Who else could move before the 2026 deadline?**\
-`The Canucks are one of a small handful of confirmed sellers going into the NHL trade deadline.`\
-https://nytimes.com/athletic/6988047/2026/01/21/vancouver-canucks-trade-tiers-2026-nhl-deadline/
-
-**How would 2008 Man United really get on against present-day Arsenal?**\
-`Wayne Rooney reckons his old team would 'batter' modern-day Arsenal - our writers discuss the hypothetical match-up`\
-https://nytimes.com/athletic/6988480/2026/01/21/man-united-arsenal-rooney/
 

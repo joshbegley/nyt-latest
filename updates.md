@@ -1,3 +1,7 @@
+**How to watch Cavaliers vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6988827/2026/01/21/cavaliers-vs-hornets-stream-how-to-watch-jan-21/
+
 **How to watch Red Wings vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Detroit Red Wings play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6988822/2026/01/21/red-wings-vs-maple-leafs-stream-how-to-watch-jan-21/
