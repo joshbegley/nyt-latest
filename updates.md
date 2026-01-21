@@ -1,3 +1,7 @@
+**Alysson's journey from Brazil to Villa: Idolising Neymar, taking up snooker and growth spurts**\
+`The story of Villa's new teenage forward, his upbringing in Brazil, how he is acclimatising to England — and the club's plans for him`\
+https://nytimes.com/athletic/6973757/2026/01/21/alyssons-aston-villa-brazil-transfer/
+
 **Mets bolster outfield defense by acquiring Luis Robert Jr. from White Sox**\
 `David Stearns and the New York Mets hope the fifth time is the charm.`\
 https://nytimes.com/athletic/6987856/2026/01/21/mets-luis-robert-trade-white-sox-mlb/
