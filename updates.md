@@ -1,3 +1,15 @@
+**Heart Disease and Stroke Behind Quarter of All Deaths in U.S.**\
+`Deaths from both causes are down, but they still eclipse all other causes, according to new statistics.`\
+https://nytimes.com/2026/01/21/well/us-leading-death-cause-stroke-heart-disease.html
+
+**Who Needs A.I. Music When We Have Bruno Mars?**\
+`Our critic Jon Caramanica on the smooth pop sound of Bruno Mars’s new single.`\
+https://nytimes.com/video/podcasts/100000010659530/who-needs-ai-music-when-we-have-bruno-mars.html
+
+**The Briefing: Slavia Prague 2 Barcelona 4 - Top-eight boost, Lewandowski scores, Pedri injury worry**\
+`Barcelona ease to victory and move to ninth in the Champions League, boosting their chances of automatic qualification to the knockout phase`\
+https://nytimes.com/athletic/6983725/2026/01/21/slavia-prague-2-barcelona-4-pedri-injury-top-eight-boost/
+
 **Federal Regulators Take New Aim at Late-Night TV**\
 `The F.C.C. said it planned to enforce long-dormant rules on appearances by political candidates on network talk shows.`\
 https://nytimes.com/2026/01/21/business/media/fcc-late-night-stephen-colbert-jimmy-kimmel.html
