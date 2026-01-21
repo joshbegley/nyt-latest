@@ -1,3 +1,11 @@
+**Travel Trends in 2026: Uncertainty, Face Scans and ‘Microvacations’**\
+`Global travel is surging. So is international apprehension. Here’s a look at what travelers can expect in the coming year.`\
+https://nytimes.com/explain/2026/01/21/travel/2026-travel-trends-vacation
+
+**Travel’s Latest Buzzword: ‘Microvacations’**\
+`Travelers short on vacation time are embarking on one- to three-day trips that take advantage of time zones and credit card points.`\
+https://nytimes.com/2026/01/21/travel/short-microvacations.html
+
 **Judge temporarily clears ex-Alabama player to return, nearly 3 years after entering NBA Draft**\
 `Bediako's lawsuit follows a wave of former G League players and international pros joining college basketball this season.`\
 https://nytimes.com/athletic/6987689/2026/01/21/charles-bediako-alabama-ncaa-lawsuit-basketball-eligibility/
