@@ -1,3 +1,15 @@
+**Ex-Alabama player sues NCAA to try to return to college, nearly 3 years after entering NBA Draft**\
+`Bediako is believed to be the first modern example of a former college player attempting to return to college after entering the NBA Draft.`\
+https://nytimes.com/athletic/6987689/2026/01/20/charles-bediako-alabama-ncaa-lawsuit-basketball-eligibility/
+
+**They Might Be Foiled**\
+`Ginny Too and Avery Gee Katz make their collaboration debut in the New York Times Crossword.`\
+https://nytimes.com/2026/01/20/crosswords/daily-puzzle-2026-01-21.html
+
+**Bill Kennedy, Robin Roberts, Rick Welts highlight LGBTQ Sports Hall of Fame inductees**\
+`The LGBTQ Sports Hall of Fame announced its 2026 Hall of Fame class of, four of whom have basketball ties.`\
+https://nytimes.com/athletic/6987614/2026/01/20/bill-kennedy-lgbtq-sports-hof-collins-welts-roberts-2/
+
 **ICE Arrest of a Citizen, Barely Dressed, Sows Fear in Twin Cities**\
 `A Hmong immigrant, who is a U.S. citizen, was released after being questioned for an hour. Federal officials said they had been seeking sex offenders.`\
 https://nytimes.com/2026/01/20/us/chongly-scott-thao-ice-arrest.html

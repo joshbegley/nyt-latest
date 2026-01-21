@@ -1,3 +1,15 @@
+**Ex-Alabama player sues NCAA to try to return to college, nearly 3 years after entering NBA Draft**\
+`Bediako is believed to be the first modern example of a former college player attempting to return to college after entering the NBA Draft.`\
+https://nytimes.com/athletic/6987689/2026/01/20/charles-bediako-alabama-ncaa-lawsuit-basketball-eligibility/
+
+**They Might Be Foiled**\
+`Ginny Too and Avery Gee Katz make their collaboration debut in the New York Times Crossword.`\
+https://nytimes.com/2026/01/20/crosswords/daily-puzzle-2026-01-21.html
+
+**Bill Kennedy, Robin Roberts, Rick Welts highlight LGBTQ Sports Hall of Fame inductees**\
+`The LGBTQ Sports Hall of Fame announced its 2026 Hall of Fame class of, four of whom have basketball ties.`\
+https://nytimes.com/athletic/6987614/2026/01/20/bill-kennedy-lgbtq-sports-hof-collins-welts-roberts-2/
+
 **Steve Kerr on whether he thinks Jonathan Kuminga wants to play for Warriors again: 'I do'**\
 `When asked whether he thought Kuminga wanted to be part of the rotation again, Kerr was quick with his answer. `\
 https://nytimes.com/athletic/6987541/2026/01/20/steve-kerr-jonathan-kuminga-could-rejoin-warriors-rotation/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/20/world/americas/mexico-cartels-suspects-trump.html
 **‘God Is Very Proud’: Trump Marks Anniversary With a Victory Lap**\
 `For roughly one hour 45 minutes, President Trump meandered through his accomplishments and grievances, attacked perceived enemies and threatened allies.`\
 https://nytimes.com/2026/01/20/us/politics/trump-anniversary-briefing.html
-
-**Trump Calls Renee Good’s Killing a ‘Tragedy’ and Says ICE Agents Will Make Mistakes**\
-`The change in tone was stark for the president, who said he had been told that Ms. Good’s father was a strong Trump supporter.`\
-https://nytimes.com/2026/01/20/us/politics/trump-renee-good-ice-shooting.html
-
-**ICE Arrest of a Citizen, Barely Dressed, Sows Fear in Twin Cities**\
-`A Hmong immigrant, who is a U.S. citizen, was released after being questioned for an hour. Federal officials said they had been seeking sex offenders.`\
-https://nytimes.com/2026/01/20/us/chongly-scott-thao-ice-arrest.html
-
-**Timothy Busfield Ordered Released From Jail Ahead of Sex Abuse Trial**\
-`The “Thirtysomething” star is accused of inappropriately touching a child actor on the set of a TV series. His lawyers have called the allegations “manufactured.”`\
-https://nytimes.com/2026/01/20/us/timothy-busfield-charges-release.html
 
