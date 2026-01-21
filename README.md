@@ -1,3 +1,7 @@
+**TAFC: Ex-MLS coach reveals kidnap nightmare, Man City stunned, and save of the season?**\
+`Today in TAFC: A former MLS coach reveals how he was kidnapped in Morocco, Man City stunned in Norway, and FIFA, UEFA save a West Bank pitch`\
+https://nytimes.com/athletic/6988107/2026/01/21/mls-coach-heath-kidnap-man-city-bodo-glimnt/
+
 **Preston's Osmajic's suspension tally reaches 20 games after 'unacceptable' headbutt**\
 `Osmajic, 26, has previously been banned for biting Owen Beck and racially abusing Hannibal Mejbri.`\
 https://nytimes.com/athletic/6988188/2026/01/21/milutin-osmajic-ban-red-card-headbutt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986329/2026/01/21/bears-playoff-loss-sudden-silenc
 **What fans can expect as UFC moves into its new TV era with Paramount+**\
 `On Friday night, UFC moves from $79 pay-per-view to $9 pay-by-the-month.`\
 https://nytimes.com/athletic/6987319/2026/01/21/ufc-paramount-plus-espn-dana-white-streaming/
-
-**Helenius becomes latest rookie to boost Sabres in bounce-back win: 3 thoughts**\
-`The 19-year-old set up two goals and scored one of his own in the first period of his second NHL game.`\
-https://nytimes.com/athletic/6987893/2026/01/21/sabres-konsta-helenius-ostlund-benson-predators/
 
