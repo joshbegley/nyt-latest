@@ -1,3 +1,7 @@
+**Ex-Alabama player sues NCAA to try to return to college, nearly 3 years after entering NBA Draft**\
+`Bediako's lawsuit follows a wave of former G League players and international pros joining college basketball this season.`\
+https://nytimes.com/athletic/6987689/2026/01/20/charles-bediako-alabama-ncaa-lawsuit-basketball-eligibility/
+
 **Submit questions for Jayson Stark’s Baseball Hall of Fame mailbag**\
 `Got Hall of Fame questions? Submit them here for Jayson Stark. `\
 https://nytimes.com/athletic/6987752/2026/01/20/baseball-hall-of-fame-questions-stark/
