@@ -1,3 +1,7 @@
+**Greenland Shouldn’t Overshadow Ukraine, NATO Chief Says**\
+`Helping Ukraine defend against Russian aggression should be Europe’s “No. 1 priority,” Mark Rutte, the secretary general of NATO, said in Davos.`\
+https://nytimes.com/2026/01/21/us/politics/greenland-ukraine-nato-rutte.html
+
 **Did Ohio State succeed in the transfer portal? Thoughts on all 16 new additions**\
 `Ohio State started slow but finished strong in the transfer portal window. Here's what to know about all the new players.`\
 https://nytimes.com/athletic/6986974/2026/01/21/ohio-state-transfer-portal-commitments-players/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986901/2026/01/21/patriots-broncos-afc-championshi
 **Analyzing the Red Sox payroll: Where things currently stand and what might change**\
 `The Red Sox currently sit above the second luxury-tax threshold. What does that mean? And how might that impact any additional moves?`\
 https://nytimes.com/athletic/6986897/2026/01/21/red-sox-payroll-analysis/
-
-**Everton spied potential in Merlin Rohl. Their patience may now be paying off**\
-`The young German midfielder has endured injury issues since moving to Merseyside, but he offered flashes of his quality in the win at Villa`\
-https://nytimes.com/athletic/6985641/2026/01/21/merlin-rohl-everton-germany/
 
