@@ -1,3 +1,19 @@
+**America Has Given Up on the Cold War Against China**\
+`Is a Chinese century now dawning?`\
+https://nytimes.com/2026/01/21/opinion/us-china-cold-war-tariffs-trump.html
+
+**Greenland Advises Residents to Have 5 Days of Supplies**\
+`The semiautonomous Danish territory issued its guidance as President Trump told European leaders that he wouldn’t send troops to seize it. Greenland said it was responding to power cuts, not geopolitics.`\
+https://nytimes.com/2026/01/21/us/politics/greenland-supplies-prepared-power-cuts.html
+
+**Rahm Emanuel Calls for Age Limit of 75 for President, Congress and Judges**\
+`The former Chicago mayor, who is trying to shape the Democratic Party’s future and might run for president, said that “across all three branches of government, 75 years — you’re out.”`\
+https://nytimes.com/2026/01/21/us/politics/rahm-emanuel-age-limit-75.html
+
+**Bills owner says coaching staff 'pushed' for Keon Coleman draft pick**\
+`The Bills had high hopes for the second-year player drafted in the second round.`\
+https://nytimes.com/athletic/6989143/2026/01/21/pegula-bills-coaches-coleman-beane-team-player/
+
 **Everything You Could Possibly Want to Know About This Winter Storm**\
 `Here’s a look at the latest forecasts, and how to prepare.`\
 https://nytimes.com/2026/01/21/weather/winter-storm-forecast.html
