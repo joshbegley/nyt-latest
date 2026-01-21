@@ -1,3 +1,19 @@
+**Warriors Windup: Raptors win big as Steph Curry, Golden State adjust without Jimmy Butler**\
+`The Warriors couldn't keep pace against a more athletic and aggressive Raptors team.`\
+https://nytimes.com/athletic/6987809/2026/01/21/warriors-raptors-score-results-stats-steph-curry-jimmy-butler/
+
+**The New York Times in Print for Wednesday, Jan. 21, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/21/todays-new-york-times
+
+**Trump’s Politics Are Not America First. They’re Me First.**\
+`Donald Trump is the most un-American president in our history. And in his second term, there is no one to constrain his un-American impulses.`\
+https://nytimes.com/2026/01/21/opinion/trump-greenland-europe-nato.html
+
+**Europe Has a Bazooka. Time to Use It.**\
+`For now, Europe’s anti-coercion instrument is less a bazooka than a waterlogged firecracker.`\
+https://nytimes.com/2026/01/21/opinion/europe-independence-trump-greenland.html
+
 **Botman's contract commitment is a vote of confidence in Newcastle and Eddie Howe**\
 `Defender agreeing to give the best years of his career to the club during a season of sweat and labour is a vote of confidence in Eddie Howe`\
 https://nytimes.com/athletic/6986164/2026/01/21/sven-botman-new-contract-newcastle/
@@ -21,21 +37,4 @@ https://nytimes.com/athletic/6985455/2026/01/21/salah-return-liverpool-champions
 **The moral of Palace's demise? Smaller clubs can't have nice things**\
 `Seeing Palace asset-stripped by bigger rivals should be a cause of regret way beyond south London`\
 https://nytimes.com/athletic/6982800/2026/01/21/crystal-palace-demise-lessons/
-
-**What managers do to prepare for their next job - or their first stint in the dugout**\
-`Out-of-work managers need to make sure they stand out when clubs put out feelers for their ideal candidates, but how do they do that?`\
-https://nytimes.com/athletic/6973864/2026/01/21/premier-league-managers-next-first-job-preparation/
-
-**Ranking the 2026 Ballon d’Or contenders: Is Harry Kane the winter leader?**\
-`The mid-season contenders for men's football's biggest individual prize, due to be awarded in October`\
-https://nytimes.com/athletic/6982504/2026/01/21/2026-ballon-dor-contenders-kane-yamal-haaland-messi/
-
-**Alysson's journey from Brazil to Villa: Idolising Neymar, taking up snooker and growth spurts**\
-`The story of Villa's new teenage forward, his upbringing in Brazil, how he is acclimatising to England — and the club's plans for him`\
-https://nytimes.com/athletic/6973757/2026/01/21/alyssons-aston-villa-brazil-transfer/
-
-**Mets bolster outfield defense by acquiring Luis Robert Jr. from White Sox**\
-`David Stearns and the New York Mets hope the fifth time is the charm.
-`\
-https://nytimes.com/athletic/6987856/2026/01/21/mets-luis-robert-trade-white-sox-mlb/
 
