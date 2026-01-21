@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6988230/2026/01/21/college-football-team-postseason
 https://nytimes.com/athletic/6986406/2026/01/21/michigan-football-transfer-portal-defense/
 
 **With Chargers, Mike McDaniel may get to show the NFL world what he’s really made of**\
-`Jim Harbaugh can recognize what some critics have missed: that Mike McDaniel is a 'football guy' through and through.`\
+`Jim Harbaugh can recognize what some critics have missed: that McDaniel is a 'football guy' through and through.`\
 https://nytimes.com/athletic/6988196/2026/01/21/mike-mcdaniel-chargers-jim-harbaugh/
 
 **What's the biggest issue in women's hockey today? PWHL players talk salary, schedules, more**\

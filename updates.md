@@ -1,3 +1,7 @@
+**Manchester United agree deal to create 'The Crown'-style TV series**\
+`Club are developing plans with North American production company Lionsgate for a drama chronicling their history`\
+https://nytimes.com/athletic/6987789/2026/01/21/manchester-united-tv-series-crown-lionsgate/
+
 **Inaugural FIFA Women’s Club World Cup could be 'catastrophic' for WSL**\
 `WSL Football fears the timing of FIFA’s new competition could be detrimental to English football's competitions.`\
 https://nytimes.com/athletic/6988245/2026/01/21/womens-club-world-cup-wsl-fifa/
