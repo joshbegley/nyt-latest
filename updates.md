@@ -1,3 +1,15 @@
+**Bills early candidate list includes Brian Daboll, Joe Brady, Lou Anarumo**\
+`The Bills already have a list of six candidates for their head coaching job, a number that is expected to grow. `\
+https://nytimes.com/athletic/6988732/2026/01/21/bills-head-coach-candidates-brian-daboll-joe-brady/
+
+**Is America Ready for a Female President? Michelle Obama and Whitmer Disagree.**\
+`As Mrs. Obama defended her remarks from November that the country wasn’t ready for a woman as president, Gov. Gretchen Whitmer of Michigan offered a different view.`\
+https://nytimes.com/2026/01/21/us/politics/michelle-obama-gretchen-whitmer-female-president.html
+
+**Bills owner Terry Pegula explains Sean McDermott's firing: 'I know we can do better'**\
+`The Bills' playoff loss to the Denver Broncos led to the decision, Pegula said.`\
+https://nytimes.com/athletic/6988685/2026/01/21/nfl-bills-firing-mcdermott-coach-gm-owner/
+
 **How to watch Cavaliers vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6988827/2026/01/21/cavaliers-vs-hornets-stream-how-to-watch-jan-21/
