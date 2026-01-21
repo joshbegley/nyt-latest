@@ -1,3 +1,7 @@
+**Barbara Aronstein Black, a First as a Law School Dean, Dies at 92**\
+`A legal historian, she broke a gender barrier as the first woman to lead an Ivy League law school, serving as dean of Columbia Law from 1986 to 1991.`\
+https://nytimes.com/2026/01/21/us/barbara-aronstein-black-dead.html
+
 **Edin Dzeko set to join Schalke from Fiorentina**\
 `Dzeko, 39, joined Fiorentina from Fenerbahce last summer but has scored just two goals for the Italian side and none in Serie A.`\
 https://nytimes.com/athletic/6989264/2026/01/21/edin-dzeko-schalke-transfer-fiorentina/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010658354/trump-davos-greenland-ukra
 **With Cody Bellinger back in fold, Yankees' next target should be Freddy Peralta**\
 `The Yankees should now remind the baseball world that — like the Dodgers and Mets — they, too, can land top talent on the market. `\
 https://nytimes.com/athletic/6989284/2026/01/21/yankees-cody-bellinger-freddy-peralta-trade/
-
-**Kyle Shanahan on possibility of Mac Jones trade: 'I'd be very surprised'**\
-`Meanwhile, general manager John Lynch acknowledged that Brandon Aiyuk has "played his last snap as a 49er."`\
-https://nytimes.com/athletic/6989526/2026/01/21/mac-jones-trade-49ers-kyle-shanahan/
 
