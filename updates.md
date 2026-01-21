@@ -1,3 +1,7 @@
+**Another Train Crash in Spain Kills 1 and Injures Dozens**\
+`A train crash in the Catalonia region of Spain killed one person and injured dozens more, officials said. It was the country’s second deadly rail accident this week.`\
+https://nytimes.com/video/world/europe/100000010657710/train-crash-catalonia-spain.html
+
 **Air Force One Turns Back After Electrical Issue**\
 `The plane carrying President Trump was heading for Switzerland when it turned back for Joint Base Andrews. A White House official said there had been a minor electrical issue.`\
 https://nytimes.com/2026/01/20/us/politics/air-force-one-trump-turn-around.html

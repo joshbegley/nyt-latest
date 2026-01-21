@@ -1,3 +1,7 @@
+**Another Train Crash in Spain Kills 1 and Injures Dozens**\
+`A train crash in the Catalonia region of Spain killed one person and injured dozens more, officials said. It was the country’s second deadly rail accident this week.`\
+https://nytimes.com/video/world/europe/100000010657710/train-crash-catalonia-spain.html
+
 **Air Force One Turns Back After Electrical Issue**\
 `The plane carrying President Trump was heading for Switzerland when it turned back for Joint Base Andrews. A White House official said there had been a minor electrical issue.`\
 https://nytimes.com/2026/01/20/us/politics/air-force-one-trump-turn-around.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6987483/2026/01/20/baker-mayfield-kevin-stefanski-s
 **Chargers to hire former Dolphins head coach Mike McDaniel as OC: Sources**\
 `McDaniel would replace Greg Roman, who was fired by the Chargers after two seasons and two early playoff exits.`\
 https://nytimes.com/athletic/6987350/2026/01/20/chargers-hire-mike-mcdaniel-offensive-coordinator/
-
-**Miami Beach Nightclub Is Condemned for Playing Ye’s Song ‘Heil Hitler’**\
-`The club, Vendôme, was hosting several right-wing influencers, including Andrew and Tristan Tate, the brothers who are being investigated in Europe in connection with human trafficking.`\
-https://nytimes.com/2026/01/20/us/tate-brothers-miami-heil-hitler-kanye-west.html
 
