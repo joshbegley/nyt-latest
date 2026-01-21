@@ -1,3 +1,7 @@
+**Why Was Macron Wearing Sunglasses in Davos?**\
+`An eye condition, not a style choice, prompted President Emmanuel Macron of France to don aviators to address the World Economic Forum.`\
+https://nytimes.com/2026/01/21/world/europe/macron-sunglasses-davos.html
+
 **Harry Brook 'lucky' to remain England captain and pledges to regain trust of his players**\
 `The white-ball skipper has apologised after being disciplined following a late-night altercation with a bouncer in New Zealand last October`\
 https://nytimes.com/athletic/6987188/2026/01/21/harry-brook-england-captain-apology/
