@@ -1,3 +1,15 @@
+**As Browns' head-coaching search continues, other key decisions are fast approaching**\
+`Cleveland has entered a crucial period of change. Hiring the next head coach is just the first step of a long offseason. `\
+https://nytimes.com/athletic/6987084/2026/01/21/browns-head-coach-search-free-agency-nfl-draft/
+
+**Leitch: Four scenarios for college football in 2026 after Indiana's jaw-dropping title**\
+`All the lessons we think one college football season teaches us often turn out to be wrong. So what comes after an Indiana championship?`\
+https://nytimes.com/athletic/6986648/2026/01/21/indiana-cignetti-college-football-predictions-2026/
+
+**Ravens remain patient in search for next head coach, but there are risks involved**\
+`While Baltimore is doing its due diligence in its head-coaching search, the team knows it can't miss on this hire. `\
+https://nytimes.com/athletic/6987409/2026/01/21/ravens-head-coach-search-jesse-minter-anthony-weaver/
+
 **Supreme Court To Weigh Trump’s Bid to Fire Lisa Cook**\
 `The Supreme Court is hearing oral arguments on Wednesday in the case of Lisa Cook, the Federal Reserve governor whom President Trump is attempting to fire. Our reporter Colby Smith describes the importance of Cook’s case for the independence of the central bank.`\
 https://nytimes.com/video/us/100000010651242/supreme-court-to-weigh-trumps-bid-to-fire-lisa-cook.html

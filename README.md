@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6986648/2026/01/21/indiana-cignetti-college-footbal
 `While Baltimore is doing its due diligence in its head-coaching search, the team knows it can't miss on this hire. `\
 https://nytimes.com/athletic/6987409/2026/01/21/ravens-head-coach-search-jesse-minter-anthony-weaver/
 
-**Supreme Court To Weigh Trump’s Bid to Fire Lisa Cook**\
-`The Supreme Court is hearing oral arguments on Wednesday in the case of Lisa Cook, the Federal Reserve governor whom President Trump is attempting to fire. Our reporter Colby Smith describes the importance of Cook’s case for the independence of the central bank.`\
+**Supreme Court to Weigh Trump’s Bid to Fire Lisa Cook**\
+`The Supreme Court is hearing oral arguments on Wednesday in the case of Lisa Cook, the Federal Reserve governor whom President Trump is trying to fire. Our reporter Colby Smith describes the importance of Cook’s case for the independence of the central bank.`\
 https://nytimes.com/video/us/100000010651242/supreme-court-to-weigh-trumps-bid-to-fire-lisa-cook.html
 
 **Greenland Tensions Rattle Global Markets**\
