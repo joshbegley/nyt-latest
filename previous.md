@@ -27,7 +27,7 @@ https://nytimes.com/2026/01/21/opinion/trump-greenland-europe-nato.html
 https://nytimes.com/2026/01/21/opinion/europe-independence-trump-greenland.html
 
 **Wrexham have dropped 20 points from winning positions this season. It needs to stop**\
-`Wrexham were caught out again late on against Leicester. If they were better at defending leads they would be comfortably in playoff spots`\
+`Wrexham were caught out again late on against Leicester. If they were better at defending leads, they would be comfortably in play-off spots`\
 https://nytimes.com/athletic/6987003/2026/01/21/wrexham-dropped-points-winning-positions/
 
 **Botman's contract commitment is a vote of confidence in Newcastle and Eddie Howe**\

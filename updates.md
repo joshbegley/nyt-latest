@@ -1,3 +1,7 @@
+**Wrexham have dropped 20 points from winning positions this season. It needs to stop**\
+`Wrexham were caught out again late on against Leicester. If they were better at defending leads, they would be comfortably in play-off spots`\
+https://nytimes.com/athletic/6987003/2026/01/21/wrexham-dropped-points-winning-positions/
+
 **Late Night Cringes Over Trump’s Texting Spree**\
 `Jimmy Kimmel quipped that the president “can do so much damage in one three-day weekend — I don’t know if anybody has ever done more.”`\
 https://nytimes.com/2026/01/21/arts/television/late-night-trump-greenland-nobel.html
