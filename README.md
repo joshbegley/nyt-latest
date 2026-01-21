@@ -32,7 +32,7 @@ https://nytimes.com/2026/01/20/nyregion/mikie-sherrill-executive-orders-new-jers
 
 **How to watch Rams at Seahawks: NFC Championship Game Time, TV, streaming**\
 `Find out how to watch the Los Angeles Rams play the Seattle Seahawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6987418/2026/01/20/rams-vs-seahawks-stream-how-to-watch-jan-25/
+https://nytimes.com/athletic/6987418/2026/01/20/how-to-watch-rams-vs-seahawks-nfc-championship-game-tv-channel-and-streaming-options-for-january-25/
 
 **DOGE Employees Shared Social Security Data, Court Filing Shows**\
 `Employees detailed to the Social Security Administration shared sensitive data through a nonsecure server, the Justice Department disclosed.`\
