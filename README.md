@@ -1,3 +1,11 @@
+**Sources: LA Galaxy in talks with St. Louis over Klauss trade**\
+`The pending move continues a busy offseason for the Galaxy and would open up a DP spot for St. Louis`\
+https://nytimes.com/athletic/6988627/2026/01/21/la-galaxy-klauss-trade-st-louis-city-mls/
+
+**Browns' assessment of Baker Mayfield was correct. Their solution was catastrophic**\
+`As Cleveland continues its hunt for a franchise QB, now seems like a perfect time to talk about Mayfield, who is back to his toxic self.`\
+https://nytimes.com/athletic/6988963/2026/01/21/browns-baker-mayfield-narratives-deshaun-watson/
+
 **Sports-Betting Scandals Are Ubiquitous. Whether Fans Will Care Is an Open Question.**\
 `Breaches of ethics in sports are almost as old as professional competitions. Here’s when they have affected the business — and when they haven’t.`\
 https://nytimes.com/2026/01/21/business/sports-betting-scandals-fans.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/21/us/politics/trump-switzerland-tariffs-personal-fr
 **Man Utd's Amass and Collyer set for loan moves to Championship clubs**\
 `Amass spent the first half of the season at Sheffield Wednesday while Collyer returned from a loan spell at West Bromwich Albion.`\
 https://nytimes.com/athletic/6989083/2026/01/21/manchester-united-transfers-amass-norwich-collyer-hull/
-
-**Trump’s Threats to the World Order**\
-`Readers fear that the president is alienating NATO allies and that America is becoming a “global pariah.” Also: Activism by the elderly.`\
-https://nytimes.com/2026/01/21/opinion/trump-europe-davos-greenland.html
-
-**U.S. Starts Moving ISIS Detainees From Syria to Iraq**\
-`The U.S. military said it has transferred 150 and could eventually move as many as 7,000 Islamic State fighters out of prisons in Syria’s northeast to Iraq, as the Syrian government wrestles for control of the region from Kurdish-led forces.`\
-https://nytimes.com/2026/01/21/world/middleeast/isis-syria-prisons-iraq.html
 
