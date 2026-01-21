@@ -1,3 +1,11 @@
+**Greenland Advises Residents to Have 5 Days of Supplies**\
+`The semiautonomous Danish territory issued its guidance as President Trump told European leaders that he wouldn’t send troops to seize it. Greenland said it was responding to power cuts, not geopolitics.`\
+https://nytimes.com/2026/01/21/us/politics/greenland-supplies-prepared-power-cuts.html
+
+**Rahm Emanuel Calls for Age Limit of 75 for President, Congress and Judges**\
+`The former Chicago mayor, who is trying to shape the Democratic Party’s future and might run for president, said that “across all three branches of government, 75 years — you’re out.”`\
+https://nytimes.com/2026/01/21/us/politics/rahm-emanuel-age-limit-75.html
+
 **Everything You Could Possibly Want to Know About This Winter Storm**\
 `Here’s a look at the latest forecasts, and how to prepare.`\
 https://nytimes.com/2026/01/21/weather/winter-storm-forecast.html
@@ -22,19 +30,11 @@ https://nytimes.com/2026/01/21/magazine/forever-single-men-relationships-submiss
 `I wanted to explain why officials got it wrong this weekend. But I can't. Plus an updated coaching interview tracker.`\
 https://nytimes.com/athletic/6989305/2026/01/21/nfl-catch-rules-why-officials-correct-bills-broncos-bears-rams/
 
-**Bills owner says coaching staff 'pushed' for Coleman draft pick**\
+**Bills owner says coaching staff 'pushed' for Keon Coleman draft pick**\
 `The Bills had high hopes for the second-year player drafted in the second round.`\
 https://nytimes.com/athletic/6989143/2026/01/21/pegula-bills-coaches-coleman-beane-team-player/
 
 **Trump Administration Drops Appeal in School D.E.I. Lawsuit**\
 `The administration withdrew its challenge to a ruling halting its effort to strip funding from schools and colleges with D.E.I. programs. It did not say why.`\
 https://nytimes.com/2026/01/21/us/trump-administration-dei-schools-lawsuit.html
-
-**Sexual Abuse Case Involving Basketball Legend Is Settled, Decades Later**\
-`Numerous lawsuits have now been filed against Riverside Church over sexual abuse allegations involving Ernest Lorch, who led its prestigious basketball team in Harlem.`\
-https://nytimes.com/2026/01/21/nyregion/riverside-church-sexual-abuse-settlement.html
-
-**Job Applicants Sue to Open ‘Black Box’ of A.I. Hiring Decisions**\
-`A recently filed lawsuit claims the ratings assigned by A.I. screening software are similar to those of a credit agency and should be subject to the same laws.`\
-https://nytimes.com/2026/01/21/business/ai-hiring-tools-lawsuit-eightfold-fcra.html
 

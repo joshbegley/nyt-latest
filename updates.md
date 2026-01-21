@@ -1,3 +1,11 @@
+**Everything You Could Possibly Want to Know About This Winter Storm**\
+`Here’s a look at the latest forecasts, and how to prepare.`\
+https://nytimes.com/2026/01/21/weather/winter-storm-forecast.html
+
+**NFL conference championship confidence picks: Drake Maye is the key**\
+`KC Joyner gives his straight-up and against-the-spread picks for Sunday's NFL conference championship games.`\
+https://nytimes.com/athletic/6987910/2026/01/21/nfl-conference-championship-confidence-picks-patriots-seahawks/
+
 **No QB angst in Chicago as Bears GM Ryan Poles, coach Ben Johnson rave about Caleb Williams**\
 `What we learned from the Bears' leaders on Wednesday, including thoughts about DJ Moore, Kevin Byard and an update on injured players.`\
 https://nytimes.com/athletic/6989258/2026/01/21/bears-ben-johnson-ryan-poles-caleb-williams/

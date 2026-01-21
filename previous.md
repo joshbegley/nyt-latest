@@ -1,3 +1,11 @@
+**Everything You Could Possibly Want to Know About This Winter Storm**\
+`Here’s a look at the latest forecasts, and how to prepare.`\
+https://nytimes.com/2026/01/21/weather/winter-storm-forecast.html
+
+**NFL conference championship confidence picks: Drake Maye is the key**\
+`KC Joyner gives his straight-up and against-the-spread picks for Sunday's NFL conference championship games.`\
+https://nytimes.com/athletic/6987910/2026/01/21/nfl-conference-championship-confidence-picks-patriots-seahawks/
+
 **No QB angst in Chicago as Bears GM Ryan Poles, coach Ben Johnson rave about Caleb Williams**\
 `What we learned from the Bears' leaders on Wednesday, including thoughts about DJ Moore, Kevin Byard and an update on injured players.`\
 https://nytimes.com/athletic/6989258/2026/01/21/bears-ben-johnson-ryan-poles-caleb-williams/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/21/nyregion/riverside-church-sexual-abuse-settlement
 **Job Applicants Sue to Open ‘Black Box’ of A.I. Hiring Decisions**\
 `A recently filed lawsuit claims the ratings assigned by A.I. screening software are similar to those of a credit agency and should be subject to the same laws.`\
 https://nytimes.com/2026/01/21/business/ai-hiring-tools-lawsuit-eightfold-fcra.html
-
-**Which NHL players might miss the Olympics due to injury?**\
-`Several injured NHL players are hoping to get back on the ice before the Olympics.`\
-https://nytimes.com/athletic/6988754/2026/01/21/olympics-hockey-injuries-nhl-players/
-
-**Fact-Checking President Trump’s Davos Speech**\
-`The president gave misleading accounts of the U.S. role in Greenland’s history and the North Atlantic Treaty Organization, among other claims.`\
-https://nytimes.com/2026/01/21/us/politics/fact-check-trump-davos-speech.html
 
