@@ -1,3 +1,11 @@
+**Chargers to hire former Dolphins head coach Mike McDaniel as OC: Sources**\
+`McDaniel replaces Greg Roman, who was fired by the Chargers after two seasons and two early playoff exits.`\
+https://nytimes.com/athletic/6987350/2026/01/20/chargers-hire-mike-mcdaniel-offensive-coordinator/
+
+**Miami Beach Nightclub Is Condemned for Playing Ye’s Song ‘Heil Hitler’**\
+`The club, Vendôme, was hosting several right-wing influencers, including Andrew and Tristan Tate, the brothers who are being investigated in Europe for alleged human trafficking.`\
+https://nytimes.com/2026/01/20/us/tate-brothers-miami-heil-hitler-kanye-west.html
+
 **House Foreign Affairs Members Call for Machado to Govern Venezuela**\
 `The Venezuelan opposition leader stressed the need for free elections in her latest bipartisan meeting with lawmakers.`\
 https://nytimes.com/2026/01/20/us/politics/house-foreign-affairs-members-call-for-machado-to-govern-venezuela.html
