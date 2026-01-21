@@ -1,3 +1,7 @@
+**Sports-Betting Scandals Are Ubiquitous. Whether Fans Will Care Is an Open Question.**\
+`Breaches of ethics in sports are almost as old as professional competitions. Here’s when they have affected the business — and when they haven’t.`\
+https://nytimes.com/2026/01/21/business/sports-betting-scandals-fans.html
+
 **Commissioners of NFL, NBA, NHL and MLB to meet with Trump over America 250 plans**\
 `Roger Goodell, Adam Silver and others are set to be in attendance as the latest plans for America's semiquincentennial are unveiled.`\
 https://nytimes.com/athletic/6988774/2026/01/21/america-250-trump-sports-commissioners-meeting/
@@ -10,7 +14,7 @@ https://nytimes.com/2026/01/21/us/politics/newsom-davos-trump.html
 `Most Big 12 teams will test themselves with major non-conference opponents early in the season.`\
 https://nytimes.com/athletic/6989116/2026/01/21/big-12-schedule-college-football/
 
-**Michelle Tafoya, longtime NFL sideline reporter, announces run for Minnesota Senate seat**\
+**Michele Tafoya, longtime NFL sideline reporter, announces run for Minnesota Senate seat**\
 `Tafoya entered politics in 2022 after departing from NBC Sports, joining Minnesota gubernatorial candidate Kendall Qualls' campaign.`\
 https://nytimes.com/athletic/6988916/2026/01/21/michelle-tafoya-senate-campaign-minnesota/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/21/opinion/trump-europe-davos-greenland.html
 **U.S. Starts Moving ISIS Detainees From Syria to Iraq**\
 `The U.S. military said it has transferred 150 and could eventually move as many as 7,000 Islamic State fighters out of prisons in Syria’s northeast to Iraq, as the Syrian government wrestles for control of the region from Kurdish-led forces.`\
 https://nytimes.com/2026/01/21/world/middleeast/isis-syria-prisons-iraq.html
-
-**Yankees, Cody Bellinger agree to 5-year, $162.5 million deal**\
-`Bellinger, who batted .272/.334/.480 with 29 homers last season for the Yankees, was the top remaining free-agent hitter.`\
-https://nytimes.com/athletic/6808699/2026/01/21/cody-bellinger-yankees-free-agency-signing/
 
