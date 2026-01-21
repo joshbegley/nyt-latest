@@ -1,3 +1,19 @@
+**How to watch Pepperdine vs. Gonzaga men's basketball: Time, TV, streaming**\
+`Find out how to watch the Pepperdine Waves play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6989566/2026/01/21/pepperdine-vs-gonzaga-stream-how-to-watch-jan-21/
+
+**How to watch Texas Tech vs. BYU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Lady Raiders play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6989564/2026/01/21/texas-tech-vs-byu-stream-how-to-watch-jan-21/
+
+**How to watch Purdue vs. UCLA women's basketball: Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6989559/2026/01/21/purdue-vs-ucla-stream-how-to-watch-jan-21/
+
+**How to watch Washington vs. Nebraska men's basketball: Time, TV, streaming**\
+`Find out how to watch the Washington Huskies play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6989557/2026/01/21/washington-vs-nebraska-stream-how-to-watch-jan-21/
+
 **4 Takeaways from Supreme Court Hearing on Trump’s Firing of Fed Official**\
 `The justices were alert to the central bank’s crucial role and wary of issuing a broad ruling based on rushed briefing and incomplete information.`\
 https://nytimes.com/2026/01/21/us/politics/4-takeaways-supreme-court-fed-hearing.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/21/us/politics/rahm-emanuel-age-limit-75.html
 **Everything You Could Possibly Want to Know About This Winter Storm**\
 `Here’s a look at the latest forecasts, and how to prepare.`\
 https://nytimes.com/2026/01/21/weather/winter-storm-forecast.html
-
-**NFL conference championship confidence picks: Drake Maye is the key**\
-`KC Joyner gives his straight-up and against-the-spread picks for Sunday's NFL conference championship games.`\
-https://nytimes.com/athletic/6987910/2026/01/21/nfl-conference-championship-confidence-picks-patriots-seahawks/
-
-**No QB angst in Chicago as Bears GM Ryan Poles, coach Ben Johnson rave about Caleb Williams**\
-`What we learned from the Bears' leaders on Wednesday, including thoughts about DJ Moore, Kevin Byard and an update on injured players.`\
-https://nytimes.com/athletic/6989258/2026/01/21/bears-ben-johnson-ryan-poles-caleb-williams/
-
-**A Night With ‘The Funniest Person Who Ever Lived’**\
-`Mel Brooks joined Judd Apatow and Patton Oswalt at the Los Angeles premiere of “Mel Brooks: The 99 Year Old Man!”`\
-https://nytimes.com/2026/01/21/style/mel-brooks-the-99-year-old-man-premiere-party.html
-
-**How Has Being Perpetually Single Affected You as a Man?**\
-`We want to hear from men over the age of 30 who feel as if they have not yet had a meaningful romantic relationship for a New York Times Magazine feature.`\
-https://nytimes.com/2026/01/21/magazine/forever-single-men-relationships-submissions.html
 

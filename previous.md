@@ -1,3 +1,11 @@
+**4 Takeaways from Supreme Court Hearing on Trump’s Firing of Fed Official**\
+`The justices were alert to the central bank’s crucial role and wary of issuing a broad ruling based on rushed briefing and incomplete information.`\
+https://nytimes.com/2026/01/21/us/politics/4-takeaways-supreme-court-fed-hearing.html
+
+**Freiburg fan groups to boycott Maccabi Tel Aviv game over security measures**\
+`The two sides are set to meet in the Europa League on Thursday.`\
+https://nytimes.com/athletic/6989209/2026/01/21/freiburg-maccabi-tel-aviv-fan-boycott/
+
 **America Has Given Up on the Cold War Against China**\
 `Is a Chinese century now dawning?`\
 https://nytimes.com/2026/01/21/opinion/us-china-cold-war-tariffs-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/21/style/mel-brooks-the-99-year-old-man-premiere-par
 **How Has Being Perpetually Single Affected You as a Man?**\
 `We want to hear from men over the age of 30 who feel as if they have not yet had a meaningful romantic relationship for a New York Times Magazine feature.`\
 https://nytimes.com/2026/01/21/magazine/forever-single-men-relationships-submissions.html
-
-**Scoop City: Why officials got it right**\
-`I wanted to explain why officials got it wrong this weekend. But I can't. Plus an updated coaching interview tracker.`\
-https://nytimes.com/athletic/6989305/2026/01/21/nfl-catch-rules-why-officials-correct-bills-broncos-bears-rams/
-
-**Bills owner says coaching staff 'pushed' for Keon Coleman draft pick**\
-`The Bills had high hopes for the second-year player drafted in the second round.`\
-https://nytimes.com/athletic/6989143/2026/01/21/pegula-bills-coaches-coleman-beane-team-player/
 

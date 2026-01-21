@@ -1,3 +1,11 @@
+**4 Takeaways from Supreme Court Hearing on Trump’s Firing of Fed Official**\
+`The justices were alert to the central bank’s crucial role and wary of issuing a broad ruling based on rushed briefing and incomplete information.`\
+https://nytimes.com/2026/01/21/us/politics/4-takeaways-supreme-court-fed-hearing.html
+
+**Freiburg fan groups to boycott Maccabi Tel Aviv game over security measures**\
+`The two sides are set to meet in the Europa League on Thursday.`\
+https://nytimes.com/athletic/6989209/2026/01/21/freiburg-maccabi-tel-aviv-fan-boycott/
+
 **America Has Given Up on the Cold War Against China**\
 `Is a Chinese century now dawning?`\
 https://nytimes.com/2026/01/21/opinion/us-china-cold-war-tariffs-trump.html
