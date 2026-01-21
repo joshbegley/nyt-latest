@@ -1,3 +1,11 @@
+**WNBA releases 2026 schedule amid CBA negotiations**\
+`Opening weekend will feature new expansion teams and a Clark-Bueckers showdown. `\
+https://nytimes.com/athletic/6989820/2026/01/21/wnba-2026-schedule-cba/
+
+**Tiny Love Stories: ‘Anger Drains Into Shame’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/01/21/style/tiny-modern-love-stories-anger-drains-into-shame.html
+
 **Chelsea and Man United to meet in Women's League Cup final**\
 `The League Cup final will take place on March 15 at Bristol City's Ashton Gate.`\
 https://nytimes.com/athletic/6989657/2026/01/21/chelsea-man-united-womens-league-cup/
