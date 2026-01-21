@@ -1,3 +1,7 @@
+**House Foreign Affairs Members Call for Machado to Govern Venezuela**\
+`The Venezuelan opposition leader stressed the need for free elections in her latest bipartisan meeting with lawmakers.`\
+https://nytimes.com/2026/01/20/us/politics/house-foreign-affairs-members-call-for-machado-to-govern-venezuela.html
+
 **How to watch Rams at Seahawks: NFC Championship Game Time, TV, streaming**\
 `Find out how to watch the Los Angeles Rams play the Seattle Seahawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6987418/2026/01/20/how-to-watch-rams-vs-seahawks-nfc-championship-game-tv-channel-and-streaming-options-for-january-25/
