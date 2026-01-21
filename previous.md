@@ -1,3 +1,27 @@
+**NATO brass meet for ‘frank’ talks amid the Greenland feud.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2026/01/21/us/trump-davos-greenland-news/nato-brass-meet-for-frank-talks-amid-the-greenland-feud
+
+**In Latin America, Loathing of Maduro Smothers Outcry Over U.S. Raid**\
+`Several polls show that a majority of Latin Americans who were questioned endorsed the intervention, suggesting a shift, at least for now, from ideology to pragmatism.`\
+https://nytimes.com/2026/01/21/world/americas/in-latin-america-loathing-of-maduro-smothers-outcry-over-us-raid.html
+
+**New Yorkers Have Failed to Spend $55 Million in Gift Cards**\
+`The unused card balances are monitored by the state comptroller’s office. Manhattan is the worst offender.`\
+https://nytimes.com/2026/01/21/nyregion/gift-card-balances-new-york.html
+
+**Supreme Court Considers Trump’s Attempt to Fire Fed Governor Lisa Cook**\
+`The justices deferred a decision on the president’s efforts to oust Cook, agreeing to hear arguments on Wednesday instead.`\
+https://nytimes.com/2026/01/21/us/politics/supreme-court-trump-fed-cook.html
+
+**How Patriots deep threat Kayshon Boutte became one of the NFL's most dangerous WRs**\
+`Boutte may be best known for his stunning touchdown grabs, but the young receiver has gone through a great deal of turmoil to get here.`\
+https://nytimes.com/athletic/6985870/2026/01/21/kayshon-boutte-patriots-nfl-playoffs/
+
+**After Maduro’s Last Dance, a New Rhythm Goes Viral in Venezuela**\
+`For years, Nicolás Maduro and his movement used song and dance to rally support. Now, millions of Venezuelans are dancing to a different political tune.`\
+https://nytimes.com/2026/01/21/world/americas/maduro-venezuela-dancing-tiktok.html
+
 **‘Marty Supreme’ Has a Lot to Say About Being Jewish in America**\
 `The film’s unapologetic depiction of the experience in all of its complications rejects the idea that such characters have to suffer.`\
 https://nytimes.com/2026/01/21/movies/marty-supreme-jewish-america.html
@@ -13,28 +37,4 @@ https://nytimes.com/interactive/2026/01/21/espanol/opinion/trump-nuevo-orden-mun
 **Tour Actress Kathleen Chalfant’s Art-Filled Home**\
 `The theater legend and ‘Familiar Touch’ star hosts friends and artists in her expansive Brooklyn brownstone.`\
 https://nytimes.com/interactive/2026/01/21/realestate/kathleen-chalfant-copenhagen-test-home-tour.html
-
-**How Ralph Fiennes Rocks Out to Iron Maiden in ‘The Bone Temple’**\
-`One scene from the continuation of “28 Years Later” has Fiennes’s character performing to the song “The Number of the Beast.” A look at how the filmmakers pulled it off.`\
-https://nytimes.com/2026/01/21/movies/ralph-fiennes-iron-maiden-scene-the-bone-temple.html
-
-**I Tried to Toughen Up My Son. He Had Other Ideas.**\
-`How a road trip with his son led Sam Graham-Felsen to a different understanding of “tough.”`\
-https://nytimes.com/2026/01/21/podcasts/father-son-road-trip-badlands-national-park.html
-
-**How ‘Wine Moms’ Entered the Conversation About ICE**\
-`The insult wielded against protesters taps into a long tradition of casting wine drinkers as out-of-touch elitists.`\
-https://nytimes.com/2026/01/21/dining/drinks/wine-moms-ice-protests.html
-
-**I’ve Covered Police Abuse for 20 Years. What ICE Is Doing Is Different.**\
-`ICE is operating in a scary new way.`\
-https://nytimes.com/2026/01/21/opinion/ice-shooting-renee-good.html
-
-**Trump’s ‘Dear Jonas’ Letter Is No Prize**\
-`We have three years left with a mad king. It doesn’t feel sustainable.`\
-https://nytimes.com/2026/01/21/opinion/trump-norway-letter.html
-
-**A Green ‘Monster’ Hides on a Quiet London Street**\
-`A Kennington home — expanded but still compact at 1,000 square feet and trimmed in green brick — was named the Jealous House by its architect.`\
-https://nytimes.com/2026/01/21/realestate/a-green-monster-hides-on-a-quiet-london-street.html
 
