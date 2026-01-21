@@ -1,3 +1,7 @@
+**Stephen Hess, 92, an Eminent, and Quotable, Political Scientist, Dies**\
+`A Brookings Institution scholar, he advised presidents and wrote books on the media (assessing reporters in one) and government (including a study of beleaguered press officers).`\
+https://nytimes.com/2026/01/21/us/stephen-hess-dead.html
+
 **Sources: LA Galaxy in talks with St. Louis over Klauss trade**\
 `The pending move continues a busy offseason for the Galaxy and would open up a DP spot for St. Louis`\
 https://nytimes.com/athletic/6988627/2026/01/21/la-galaxy-klauss-trade-st-louis-city-mls/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6988990/2026/01/21/psg-hernandez-trafficiking-case-
 **‘She Just Rubbed Me the Wrong Way’: Trump Suggests Swiss Tariffs Were Personal**\
 `Speaking at the World Economic Forum on Wednesday, Mr. Trump said he raised tariffs on Switzerland last year to among the highest in the world after a phone call with the country’s president.`\
 https://nytimes.com/2026/01/21/us/politics/trump-switzerland-tariffs-personal-friction.html
-
-**Man Utd's Amass and Collyer set for loan moves to Championship clubs**\
-`Amass spent the first half of the season at Sheffield Wednesday while Collyer returned from a loan spell at West Bromwich Albion.`\
-https://nytimes.com/athletic/6989083/2026/01/21/manchester-united-transfers-amass-norwich-collyer-hull/
 

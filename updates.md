@@ -1,3 +1,7 @@
+**Stephen Hess, 92, an Eminent, and Quotable, Political Scientist, Dies**\
+`A Brookings Institution scholar, he advised presidents and wrote books on the media (assessing reporters in one) and government (including a study of beleaguered press officers).`\
+https://nytimes.com/2026/01/21/us/stephen-hess-dead.html
+
 **Sources: LA Galaxy in talks with St. Louis over Klauss trade**\
 `The pending move continues a busy offseason for the Galaxy and would open up a DP spot for St. Louis`\
 https://nytimes.com/athletic/6988627/2026/01/21/la-galaxy-klauss-trade-st-louis-city-mls/
