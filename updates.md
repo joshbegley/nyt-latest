@@ -1,3 +1,7 @@
+**Greenland Shouldn’t Overshadow Ukraine, NATO Chief Says**\
+`Helping Ukraine defend against Russian aggression should be Europe’s “No. 1 priority,” Mark Rutte, the secretary general of NATO, said in Davos.`\
+https://nytimes.com/2026/01/21/us/politics/greenland-ukraine-nato-rutte.html
+
 **Did Ohio State succeed in the transfer portal? Thoughts on all 16 new additions**\
 `Ohio State started slow but finished strong in the transfer portal window. Here's what to know about all the new players.`\
 https://nytimes.com/athletic/6986974/2026/01/21/ohio-state-transfer-portal-commitments-players/
