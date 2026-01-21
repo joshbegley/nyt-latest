@@ -1,3 +1,7 @@
+**Late Night Cringes Over Trump’s Texting Spree**\
+`Jimmy Kimmel quipped that the president “can do so much damage in one three-day weekend — I don’t know if anybody has ever done more.”`\
+https://nytimes.com/2026/01/21/arts/television/late-night-trump-greenland-nobel.html
+
 **Word of the Day: dearth**\
 `This word has appeared in 229 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/21/learning/word-of-the-day-dearth.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986164/2026/01/21/sven-botman-new-contract-newcast
 **Gabriel Jesus has given Mikel Arteta a decision to make**\
 `The Brazilian has not started a Premier League game since January 2025, but his display against Inter suggested he is ready to face Man Utd`\
 https://nytimes.com/athletic/6986842/2026/01/21/gabriel-jesus-arsenal-strikers-gyokeres-havertz-arteta/
-
-**Inside Manchester United post-derby day: New faces, old songs and shoots of optimism**\
-`It was one win, but it was much needed after Amorim's exit - how United fans and players reacted to the start of the Carrick era`\
-https://nytimes.com/athletic/6986127/2026/01/21/manchester-united-derby-win-carrick/
 

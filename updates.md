@@ -1,3 +1,7 @@
+**Word of the Day: dearth**\
+`This word has appeared in 229 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/21/learning/word-of-the-day-dearth.html
+
 **Wrexham have dropped 20 points from winning positions this season. It needs to stop**\
 `Wrexham were caught out again late on against Leicester. If they were better at defending leads they would be comfortably in playoff spots`\
 https://nytimes.com/athletic/6987003/2026/01/21/wrexham-dropped-points-winning-positions/
