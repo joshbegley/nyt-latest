@@ -1,3 +1,11 @@
+**Trump’s Threats to the World Order**\
+`Readers fear that the president is alienating NATO allies and that America is becoming a “global pariah.” Also: Activism by the elderly.`\
+https://nytimes.com/2026/01/21/opinion/trump-europe-davos-greenland.html
+
+**U.S. Starts Moving ISIS Detainees From Syria to Iraq**\
+`The U.S. military said it has transferred 150 and could eventually move as many as 7,000 Islamic State fighters out of prisons in Syria’s northeast to Iraq, as the Syrian government wrestles for control of the region from Kurdish-led forces.`\
+https://nytimes.com/2026/01/21/world/middleeast/isis-syria-prisons-iraq.html
+
 **Yankees, Cody Bellinger agree to 5-year, $162.5 million deal: Source**\
 `Bellinger, who batted .272/.334/.480 with 29 homers last season for the Yankees, was the top remaining free-agent hitter.`\
 https://nytimes.com/athletic/6808699/2026/01/21/cody-bellinger-yankees-free-agency-signing/
