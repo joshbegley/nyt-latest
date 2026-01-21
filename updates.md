@@ -1,3 +1,7 @@
+**They Might Be Foiled**\
+`Ginny Too and Avery Gee Katz make their collaboration debut in the New York Times Crossword.`\
+https://nytimes.com/2026/01/20/crosswords/daily-puzzle-2026-01-21.html
+
 **Bill Kennedy, Robin Roberts, Rick Welts highlight LGBTQ Sports Hall of Fame inductees**\
 `The LGBTQ Sports Hall of Fame announced its 2026 Hall of Fame class of, four of whom have basketball ties.`\
 https://nytimes.com/athletic/6987614/2026/01/20/bill-kennedy-lgbtq-sports-hof-collins-welts-roberts-2/
