@@ -6,8 +6,8 @@ https://nytimes.com/2026/01/21/us/barbara-aronstein-black-dead.html
 `Dzeko, 39, joined Fiorentina from Fenerbahce last summer but has scored just two goals for the Italian side and none in Serie A.`\
 https://nytimes.com/athletic/6989264/2026/01/21/edin-dzeko-schalke-transfer-fiorentina/
 
-**Chelsea and Man United to meet in Women's League Cup final on March 15**\
-`The League Cup final will take place on March 15 at 2:15 pm (9:15am ET; 6:15 PT) at Bristol City's Ashton Gate.`\
+**Chelsea and Man United to meet in Women's League Cup final**\
+`The League Cup final will take place on March 15 at Bristol City's Ashton Gate.`\
 https://nytimes.com/athletic/6989657/2026/01/21/chelsea-man-united-womens-league-cup/
 
 **Judge Blocks Government From Reviewing Seized Washington Post Devices**\
