@@ -1,3 +1,15 @@
+**A Brief From Every Living Former Fed Chair Could Sway the Justices**\
+`The filing, also signed by six former Treasury secretaries, said that letting President Trump fire Lisa Cook would deal a blow to the credibility of the nation’s monetary policy.`\
+https://nytimes.com/2026/01/21/us/politics/fed-governors-lisa-cook.html
+
+**Here’s the latest.**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook/heres-the-latest
+
+**Live Updates: Supreme Court Hears Case on Trump’s Power Over Fed**\
+`The justices have temporarily allowed the president to fire other leaders of independent agencies but have signaled that the Federal Reserve may be different.`\
+https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook
+
 **How a Pro-Greenland Song Became a Protest Anthem**\
 `Locals are speaking out against President Trump’s gestures toward annexing the territory, and the song “Greenland Belongs to Greenlanders” has become “a soundtrack of the movement.”`\
 https://nytimes.com/2026/01/21/arts/music/greenland-protest-song-trump.html
