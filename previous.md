@@ -1,3 +1,7 @@
+**Submit questions for Jayson Stark’s Baseball Hall of Fame mailbag**\
+`Got Hall of Fame questions? Submit them here for Jayson Stark. `\
+https://nytimes.com/athletic/6987752/2026/01/20/baseball-hall-of-fame-questions-stark/
+
 **Ex-Alabama player sues NCAA to try to return to college, nearly 3 years after entering NBA Draft**\
 `Bediako is believed to be the first modern example of a former college player attempting to return to college after entering the NBA Draft.`\
 https://nytimes.com/athletic/6987689/2026/01/20/charles-bediako-alabama-ncaa-lawsuit-basketball-eligibility/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/20/us/politics/house-foreign-affairs-machado-venezue
 **Pressured by Trump, Mexico Sends 37 Accused Criminals to U.S.**\
 `Mexico has sought to do more to combat its cartels in an effort to stave off airstrikes threatened by President Trump.`\
 https://nytimes.com/2026/01/20/world/americas/mexico-cartels-suspects-trump.html
-
-**‘God Is Very Proud’: Trump Marks Anniversary With a Victory Lap**\
-`For roughly one hour 45 minutes, President Trump meandered through his accomplishments and grievances, attacked perceived enemies and threatened allies.`\
-https://nytimes.com/2026/01/20/us/politics/trump-anniversary-briefing.html
 
