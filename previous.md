@@ -6,15 +6,15 @@ https://nytimes.com/2026/01/21/us/politics/michele-tafoya-senate-minnesota.html
 `The Brazilian left-back, was one of three players signed from Botafogo last summer but is yet to make a senior Forest appearance.`\
 https://nytimes.com/athletic/6988329/2026/01/21/nottingham-forest-transfers-cuiabano-kostas-tsimikas/
 
-**Reed Sheppard’s big fourth-quarter against Spurs shows how Rockets can contend**\
+**Reed Sheppard's big fourth-quarter against Spurs shows how Rockets can contend**\
 `With Steven Adams sidelined for a while, Houston needs complementary players like Sheppard to step up. They did against San Antonio.`\
-https://nytimes.com/athletic/6988153/2026/01/21/reed-sheppards-rockets-win-spurs/
+https://nytimes.com/athletic/6988153/2026/01/21/rockets-reed-sheppard-spurs-durant-wemby/
 
 **Next Manchester United manager: Money surges on Carrick after big win, Glasner in the mix**\
 `The list of favourites for the Manchester United job is evolving as the club begin the long search for their next permanent boss`\
 https://nytimes.com/athletic/6988170/2026/01/21/manchester-united-next-manager-odds-carrick-glasner/
 
-**Mandel's Mailbag: Indiana changed what success looks like in college football**\
+**Mandel's Mailbag: Is Indiana here to stay? And what about everyone else?**\
 `Indiana's turnaround and title shifted expectations in the sport. Plus, how much does Miami reaching the title game help the ACC?`\
 https://nytimes.com/athletic/6987685/2026/01/21/indiana-championship-success-mandels-mailbag/
 

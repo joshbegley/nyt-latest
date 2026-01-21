@@ -1,3 +1,11 @@
+**Reed Sheppard's big fourth-quarter against Spurs shows how Rockets can contend**\
+`With Steven Adams sidelined for a while, Houston needs complementary players like Sheppard to step up. They did against San Antonio.`\
+https://nytimes.com/athletic/6988153/2026/01/21/rockets-reed-sheppard-spurs-durant-wemby/
+
+**Mandel's Mailbag: Is Indiana here to stay? And what about everyone else?**\
+`Indiana's turnaround and title shifted expectations in the sport. Plus, how much does Miami reaching the title game help the ACC?`\
+https://nytimes.com/athletic/6987685/2026/01/21/indiana-championship-success-mandels-mailbag/
+
 **Michele Tafoya Announces Senate Run in Minnesota**\
 `Ms. Tafoya, once a sideline reporter for N.F.L. games, has more recently turned her focus to Republican politics. She is seeking an open seat now held by a Democrat.`\
 https://nytimes.com/2026/01/21/us/politics/michele-tafoya-senate-minnesota.html
