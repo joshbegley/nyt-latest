@@ -1,3 +1,27 @@
+**Mets bolster outfield defense by acquiring Luis Robert Jr. from White Sox**\
+`David Stearns and the New York Mets hope the fifth time is the charm.`\
+https://nytimes.com/athletic/6987856/2026/01/21/mets-luis-robert-trade-white-sox-mlb/
+
+**Ranking the 2026 Ballon d’Or contenders: Is Harry Kane the winter leader?**\
+`The mid-season contenders for men's football's biggest individual prize, due to be awarded in October`\
+https://nytimes.com/athletic/6982504/2026/01/21/2026-ballon-dor-contenders-kane-yamal-haaland-messi/
+
+**Trump Heads to Davos Amid Deep Worries About U.S.-European Alliance**\
+`The gathering of the global elite is set to serve as an all-hands effort to de-escalate tensions between President Trump and America’s allies over his insistence on acquiring Greenland.`\
+https://nytimes.com/2026/01/21/us/politics/trump-davos.html
+
+**Taiwan’s $40 Billion Military Spending Plan Stalled by Political Impasse**\
+`Taiwan’s domestic gridlock is revealing a deep-seated fracture over how the island should defend itself and how much it can depend on the United States.`\
+https://nytimes.com/2026/01/21/world/asia/taiwan-trump-military-gridlock-china.html
+
+**Corrections: Jan. 21, 2026**\
+`Corrections that appeared in print on Wednesday, Jan. 21, 2026.`\
+https://nytimes.com/2026/01/21/pageoneplus/corrections-jan-21-2026.html
+
+**Connections: Sports Edition Coach: Hints for Jan. 21, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6985466/2026/01/21/connections-sports-edition-hints-for-jan-21-2026/
+
 **Quote of the Day: Trump Mocks Allies in E.U. Before Davos**\
 `Quotation of the Day for Wednesday, January 21, 2025.`\
 https://nytimes.com/2026/01/20/pageoneplus/quote-of-the-day-trump-mocks-allies-in-eu-before-davos.html
@@ -13,28 +37,4 @@ https://nytimes.com/2026/01/20/us/politics/cuban-immigrant-death-ice-custody.htm
 **Sloppy final shifts cost Wild as Caufield snipes last-minute winner: Takeaways**\
 `The Wild were left without a point after Caufield scored the winner with 15 seconds left in regulation.`\
 https://nytimes.com/athletic/6987374/2026/01/20/wild-fatigue-tarasenko-caufield-canadiens/
-
-**Blue Jackets start slow again, suffer first defeat under Rick Bowness**\
-`The Senators won 4-1 and took advantage of the slow-starting Blue Jackets, who never held a lead and never seemed to find their game.`\
-https://nytimes.com/athletic/6987628/2026/01/20/blue-jackets-senators-rick-bowness/
-
-**Another Train Crash in Spain Kills 1 and Injures Dozens**\
-`A train crash in the Catalonia region of Spain killed one person and injured dozens more, officials said. It was the country’s second deadly rail accident this week.`\
-https://nytimes.com/video/world/europe/100000010657710/train-crash-catalonia-spain.html
-
-**Air Force One Turns Back After Electrical Issue**\
-`The plane carrying President Trump was heading for Switzerland when it turned back for Joint Base Andrews. A White House official said there had been a minor electrical issue.`\
-https://nytimes.com/2026/01/20/us/politics/air-force-one-trump-turn-around.html
-
-**In Court Record, Official Describes Assault Before ICE Agent Shot Man in Minneapolis**\
-`The agent told an investigator that he was assaulted with a broom and a shovel before he fired a single shot that wounded a Venezuelan man.`\
-https://nytimes.com/2026/01/20/us/ice-shooting-minneapolis-charges.html
-
-**Submit questions for Jayson Stark’s Baseball Hall of Fame mailbag**\
-`Got Hall of Fame questions? Submit them here for Jayson Stark. `\
-https://nytimes.com/athletic/6987752/2026/01/20/baseball-hall-of-fame-questions-stark/
-
-**Ex-Alabama player sues NCAA to try to return to college, nearly 3 years after entering NBA Draft**\
-`Bediako's lawsuit follows a wave of former G League players and international pros joining college basketball this season.`\
-https://nytimes.com/athletic/6987689/2026/01/20/charles-bediako-alabama-ncaa-lawsuit-basketball-eligibility/
 
