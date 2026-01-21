@@ -1,3 +1,19 @@
+**How to watch Pepperdine vs. Gonzaga men's basketball: Time, TV, streaming**\
+`Find out how to watch the Pepperdine Waves play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6989566/2026/01/21/pepperdine-vs-gonzaga-stream-how-to-watch-jan-21/
+
+**How to watch Texas Tech vs. BYU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Lady Raiders play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6989564/2026/01/21/texas-tech-vs-byu-stream-how-to-watch-jan-21/
+
+**How to watch Purdue vs. UCLA women's basketball: Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6989559/2026/01/21/purdue-vs-ucla-stream-how-to-watch-jan-21/
+
+**How to watch Washington vs. Nebraska men's basketball: Time, TV, streaming**\
+`Find out how to watch the Washington Huskies play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6989557/2026/01/21/washington-vs-nebraska-stream-how-to-watch-jan-21/
+
 **4 Takeaways from Supreme Court Hearing on Trump’s Firing of Fed Official**\
 `The justices were alert to the central bank’s crucial role and wary of issuing a broad ruling based on rushed briefing and incomplete information.`\
 https://nytimes.com/2026/01/21/us/politics/4-takeaways-supreme-court-fed-hearing.html
