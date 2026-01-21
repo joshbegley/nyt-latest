@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6989305/2026/01/21/nfl-catch-rules-why-officials-co
 
 **Bills owner says coaching staff 'pushed' for Coleman draft pick**\
 `The Bills had high hopes for the second-year player drafted in the second round.`\
-https://nytimes.com/athletic/6989143/2026/01/21/pegula-says-bills-coaches-pushed-for-coleman-pick-beane-was-a-team-player/
+https://nytimes.com/athletic/6989143/2026/01/21/pegula-bills-coaches-coleman-beane-team-player/
 
 **Trump Administration Drops Appeal in School D.E.I. Lawsuit**\
 `The administration withdrew its challenge to a ruling halting its effort to strip funding from schools and colleges with D.E.I. programs. It did not say why.`\
