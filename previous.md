@@ -1,3 +1,11 @@
+**Parents of Autistic Teen Sue Residential Home Over Abuse by Employee**\
+`Anil and Shalini Babbar said they would not have known about the abuse their son was enduring at the home in upstate New York if a whistle-blower had not sent footage of an assault.`\
+https://nytimes.com/2026/01/21/nyregion/anderson-autism-center-suit.html
+
+**Eric Bieniemy returning to Chiefs as offensive coordinator: Source**\
+`Bieniemy was previously the Chiefs coordinator from 2018 to '22 when the team featured some of its most high-powered offenses.`\
+https://nytimes.com/athletic/6980824/2026/01/21/chiefs-eric-bieniemy-returns-offensive-coordinator/
+
 **Supreme Court Hearing Reveals Unease Over Threats to Fed Independence**\
 `As the justices weighed the consequences of allowing President Trump to fire a Federal Reserve official, the president reprised his pressure campaign on the central bank.`\
 https://nytimes.com/2026/01/21/us/politics/supreme-court-trump-fed-independence.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6989997/2026/01/21/bo-nix-broncos-surgery-jarrett-s
 **Kennedy, Kicking Off National Tour, Says He’s Not Running for President**\
 `Health Secretary Robert F. Kennedy Jr. rallied supporters at the Pennsylvania State Capitol, where he promoted his new dietary guidelines.`\
 https://nytimes.com/2026/01/21/us/politics/kennedy-rfk-pennsylvania.html
-
-**Judge Rules for Democrats in Push to Redraw N.Y.C. House District**\
-`The ruling, which is expected to be appealed, allows the state to change the boundary lines of a district held by a Staten Island Republican since 2021.`\
-https://nytimes.com/2026/01/21/nyregion/redistricting-congress-new-york.html
-
-**McKennie on target again as Juventus cruise in Champions League win**\
-`European competition has brought out the best in McKennie months before the World Cup.`\
-https://nytimes.com/athletic/6989978/2026/01/21/weston-mckennie-on-target-again-as-juventus-cruise-in-champions-league-win/
 

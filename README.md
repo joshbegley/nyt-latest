@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6989887/2026/01/21/broncos-bills-most-watched-satur
 `Two leaders of a political security group talked about what they’re seeing and hearing.`\
 https://nytimes.com/2026/01/21/us/politics/us-political-violence-2026-elections.html
 
-**Sabres sign Josh Doan to 7-year, $6.95 million AAV extension**\
+**Sabres sign Josh Doan to 7-year, $6.95 million AAV contract extension**\
 `Doan has been a home-run addition for Buffalo after joining the team in the offseason as part of the JJ Peterka trade with Utah.`\
 https://nytimes.com/athletic/6990013/2026/01/21/sabres-josh-doan-contract-extension/
 
