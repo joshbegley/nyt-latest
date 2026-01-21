@@ -1,3 +1,7 @@
+**Nottingham Forest open to Cuiabano exit, eyeing Liverpool's Tsimikas**\
+`The Brazilian left-back, was one of three players signed from Botafogo last summer but is yet to make a senior Forest appearance.`\
+https://nytimes.com/athletic/6988329/2026/01/21/nottingham-forest-transfers-cuiabano-kostas-tsimikas/
+
 **Reed Sheppard’s big fourth-quarter against Spurs shows how Rockets can contend**\
 `With Steven Adams sidelined for a while, Houston needs complementary players like Sheppard to step up. They did against San Antonio.`\
 https://nytimes.com/athletic/6988153/2026/01/21/reed-sheppards-rockets-win-spurs/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/21/business/dealbook/davos-trump-speech.html
 **Manchester United agree deal to create 'The Crown'-style TV series**\
 `Club are developing plans with North American production company Lionsgate for a drama chronicling their history`\
 https://nytimes.com/athletic/6987789/2026/01/21/manchester-united-tv-series-crown-lionsgate/
-
-**Inaugural FIFA Women’s Club World Cup could be 'catastrophic' for WSL**\
-`WSL Football fears the timing of FIFA’s new competition could be detrimental to English football's competitions.`\
-https://nytimes.com/athletic/6988245/2026/01/21/womens-club-world-cup-wsl-fifa/
 
