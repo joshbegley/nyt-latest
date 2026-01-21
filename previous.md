@@ -1,3 +1,7 @@
+**Sloppy final shifts cost Wild as Caufield snipes last-minute winner: Takeaways**\
+`The Wild were left without a point after Caufield scored the winner with 15 seconds left in regulation.`\
+https://nytimes.com/athletic/6987374/2026/01/20/wild-fatigue-tarasenko-caufield-canadiens/
+
 **Blue Jackets start slow again, suffer first defeat under Rick Bowness**\
 `The Senators won 4-1 and took advantage of the slow-starting Blue Jackets, who never held a lead and never seemed to find their game.`\
 https://nytimes.com/athletic/6987628/2026/01/20/blue-jackets-senators-rick-bowness/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6987614/2026/01/20/bill-kennedy-lgbtq-sports-hof-co
 **Steve Kerr on whether he thinks Jonathan Kuminga wants to play for Warriors again: 'I do'**\
 `When asked whether he thought Kuminga wanted to be part of the rotation again, Kerr was quick with his answer. `\
 https://nytimes.com/athletic/6987541/2026/01/20/steve-kerr-jonathan-kuminga-could-rejoin-warriors-rotation/
-
-**Baker Mayfield swipes at Kevin Stefanski: 'Can’t wait to see you twice a year'**\
-`It seems Mayfield is still unhappy with how his time in Cleveland ended.`\
-https://nytimes.com/athletic/6987483/2026/01/20/baker-mayfield-kevin-stefanski-social-media/
 

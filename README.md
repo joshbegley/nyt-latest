@@ -1,3 +1,7 @@
+**Cuban Immigrant Was Killed in ICE Custody, Family Says in Legal Filing**\
+`The family of Geraldo Lunas Campos said a witness saw him choked by guards in an El Paso detention facility this month. Federal officials said he died by suicide.`\
+https://nytimes.com/2026/01/20/us/politics/cuban-immigrant-death-ice-custody.html
+
 **Sloppy final shifts cost Wild as Caufield snipes last-minute winner: Takeaways**\
 `The Wild were left without a point after Caufield scored the winner with 15 seconds left in regulation.`\
 https://nytimes.com/athletic/6987374/2026/01/20/wild-fatigue-tarasenko-caufield-canadiens/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/20/crosswords/daily-puzzle-2026-01-21.html
 **Bill Kennedy, Robin Roberts, Rick Welts highlight LGBTQ Sports Hall of Fame inductees**\
 `The LGBTQ Sports Hall of Fame announced its 2026 Hall of Fame class of, four of whom have basketball ties.`\
 https://nytimes.com/athletic/6987614/2026/01/20/bill-kennedy-lgbtq-sports-hof-collins-welts-roberts-2/
-
-**Steve Kerr on whether he thinks Jonathan Kuminga wants to play for Warriors again: 'I do'**\
-`When asked whether he thought Kuminga wanted to be part of the rotation again, Kerr was quick with his answer. `\
-https://nytimes.com/athletic/6987541/2026/01/20/steve-kerr-jonathan-kuminga-could-rejoin-warriors-rotation/
 
