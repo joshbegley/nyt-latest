@@ -1,3 +1,11 @@
+**How to watch Red Wings vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6988822/2026/01/21/red-wings-vs-maple-leafs-stream-how-to-watch-jan-21/
+
+**Old Is New Again: Salonen Returns to the Los Angeles Philharmonic**\
+`Esa-Pekka Salonen, the orchestra’s longtime music director, came back to lead his first concerts since being named its creative director.`\
+https://nytimes.com/2026/01/21/arts/music/esa-pekka-salonen-los-angeles-philharmonic.html
+
 **How to watch Arizona State vs. West Virginia women's basketball: Time, TV, streaming**\
 `Find out how to watch the Arizona State Sun Devils play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6988801/2026/01/21/arizona-state-vs-west-virginia-stream-how-to-watch-jan-21/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6988480/2026/01/21/man-united-arsenal-rooney/
 **Finally, fans get what feels like a sports TV bargain: MoneyCall**\
 `The latest sports-business newsletter from The Athletic.`\
 https://nytimes.com/athletic/6988701/2026/01/21/ufc-ppv-streaming-paramount-moneycall/
-
-**Too Many Media Newsletters? Now There’s a Media Newsletter for That.**\
-`A new daily email from Mediaite intends to cut through the cacophony of online media news.`\
-https://nytimes.com/2026/01/21/business/media/mediaite-media-newsletter.html
-
-**Is Your Medicine Cabinet a Mess?**\
-`Here’s what to toss, what to keep and how to store your drugs safely.`\
-https://nytimes.com/2026/01/21/well/medicine-cabinet.html
 
