@@ -1,3 +1,15 @@
+**Kennedy, Kicking Off National Tour, Says He’s Not Running for President**\
+`Health Secretary Robert F. Kennedy Jr. rallied supporters at the Pennsylvania State Capitol, where he promoted his new dietary guidelines.`\
+https://nytimes.com/2026/01/21/us/politics/kennedy-rfk-pennsylvania.html
+
+**Judge Rules for Democrats in Push to Redraw N.Y.C. House District**\
+`The ruling, which is expected to be appealed, allows the state to change the boundary lines of a Staten Island district held by a Republican since 2021.`\
+https://nytimes.com/2026/01/21/nyregion/redistricting-congress-new-york.html
+
+**McKennie on target again as Juventus cruise in Champions League win**\
+`European competition has brought out the best in McKennie months before the World Cup.`\
+https://nytimes.com/athletic/6989978/2026/01/21/weston-mckennie-on-target-again-as-juventus-cruise-in-champions-league-win/
+
 **McKennie on target again as Juventus cruise in Champions League win**\
 `European competition has brought out the best in McKennie months before the World Cup`\
 https://nytimes.com/athletic/6989978/2026/01/21/weston-mckennie-on-target-again-as-juventus-cruise-in-champions-league-win/
