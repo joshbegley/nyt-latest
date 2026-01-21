@@ -1,3 +1,7 @@
+**How a Pro-Greenland Song Became a Protest Anthem**\
+`Locals are speaking out against President Trump’s gestures toward annexing the territory, and the song “Greenland Belongs to Greenlanders” has become “a soundtrack of the movement.”`\
+https://nytimes.com/2026/01/21/arts/music/greenland-protest-song-trump.html
+
 **College basketball mailbag: Where can the top 10 teams improve? Is Miami (Ohio) at-large worthy?**\
 `Does Marquette need to change its philosophy? Who are the bottom teams at the power-conference level this year?`\
 https://nytimes.com/athletic/6988365/2026/01/21/college-basketball-mailbag-arizona-marquette-miami-ohio/
