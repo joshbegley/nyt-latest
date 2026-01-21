@@ -1,3 +1,11 @@
+**What to know about the 2026 Big 12 college football schedule**\
+`Most Big 12 teams will test themselves with major non-conference opponents early in the season.`\
+https://nytimes.com/athletic/6989116/2026/01/21/big-12-schedule-college-football/
+
+**Michelle Tafoya, longtime NFL sideline reporter, announces run for Minnesota Senate seat**\
+`Tafoya entered politics in 2022 after departing from NBC Sports, joining Minnesota gubernatorial candidate Kendall Qualls' campaign.`\
+https://nytimes.com/athletic/6988916/2026/01/21/michelle-tafoya-senate-campaign-minnesota/
+
 **PSG's Hernandez denies charges of human trafficking and undeclared work**\
 `The Versailles Judicial Court have confirmed that an investigation is underway. Hernandez denies the charges.`\
 https://nytimes.com/athletic/6988990/2026/01/21/psg-hernandez-trafficiking-case-news/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6808699/2026/01/21/cody-bellinger-yankees-free-agen
 **Manolo Villaverde, Tender Father on Bilingual TV Show, Dies at 89**\
 `He played Pepe Peña on “¿Qué Pasa, U.S.A.?,” a series about a Cuban American family that is believed to be the United States’ first bilingual sitcom.`\
 https://nytimes.com/2026/01/21/arts/television/manolo-villaverde-dead.html
-
-**Duke to enter Mensah into transfer portal as legal battle continues: Source**\
-`Entry into the portal would allow schools to officially contact Mensah. Miami was considered the favorite to land him.`\
-https://nytimes.com/athletic/6988921/2026/01/21/darian-mensah-duke-transfer-portal-lawsuit/
-
-**Israeli Strikes in Gaza Kill 11, Including Three Journalists**\
-`The three journalists were operating a drone near the town of Al-Zahra.`\
-https://nytimes.com/2026/01/21/world/middleeast/israeli-strikes-in-gaza-kill-11-including-three-journalists.html
 
