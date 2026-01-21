@@ -1,40 +1,40 @@
-**Travel Trends in 2026: Uncertainty, Face Scans and ‘Microvacations’**\
-`Global travel is surging. So is international apprehension. Here’s a look at what travelers can expect in the coming year.`\
-https://nytimes.com/explain/2026/01/21/travel/2026-travel-trends-vacation
+**How to watch Maryland vs. Illinois men's basketball: Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6988789/2026/01/21/maryland-vs-illinois-stream-how-to-watch-jan-21/
 
-**Travel’s Latest Buzzword: ‘Microvacations’**\
-`Travelers short on vacation time are embarking on one- to three-day trips that take advantage of time zones and credit card points.`\
-https://nytimes.com/2026/01/21/travel/short-microvacations.html
+**How to watch Notre Dame vs. North Carolina men's basketball: Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6988784/2026/01/21/notre-dame-vs-north-carolina-stream-how-to-watch-jan-21/
 
-**Judge temporarily clears ex-Alabama player to return, nearly 3 years after entering NBA Draft**\
-`Bediako's lawsuit follows a wave of former G League players and international pros joining college basketball this season.`\
-https://nytimes.com/athletic/6987689/2026/01/21/charles-bediako-alabama-ncaa-lawsuit-basketball-eligibility/
+**Former Flight Attendant Posed as Pilot to Get Free Flights, Prosecutors Say**\
+`Federal prosecutors accused Dallas Pokornik of using a false I.D. to get hundreds of free flights from three unnamed airlines, which he denied.`\
+https://nytimes.com/2026/01/21/us/flight-attendant-fraud-canada-us-airlines.html
 
-**What Do Young Travelers Want? Exclusive Experiences.**\
-`More millennials and Gen Z-ers are planning trips around experiences, and the industry is responding with concerts, dinners and V.I.P. events.`\
-https://nytimes.com/2026/01/21/travel/experiences-millennials-gen-z.html
+**Canucks trade tiers: Who else could move before the 2026 deadline?**\
+`The Canucks are one of a small handful of confirmed sellers going into the NHL trade deadline.`\
+https://nytimes.com/athletic/6988047/2026/01/21/vancouver-canucks-trade-tiers-2026-nhl-deadline/
 
-**At Check-In, Your Face Is Increasingly Your ID**\
-`Facial recognition at security and immigration checkpoints and gates could ease airport hassles, even as the technology raises privacy concerns.`\
-https://nytimes.com/2026/01/21/travel/facial-recognition-airports.html
+**How would 2008 Man United really get on against present-day Arsenal?**\
+`Wayne Rooney reckons his old team would 'batter' modern-day Arsenal - our writers discuss the hypothetical match-up`\
+https://nytimes.com/athletic/6988480/2026/01/21/man-united-arsenal-rooney/
 
-**A Widespread Winter Storm Is Looming, but Where It Hits Is Still Fuzzy**\
-`People across a large section of the central and eastern United States are facing predictions for heavy snow and ice starting Friday.`\
-https://nytimes.com/2026/01/21/weather/winter-storm-ice-snow-forecast.html
+**Finally, fans get what feels like a sports TV bargain: MoneyCall**\
+`The latest sports-business newsletter from The Athletic.`\
+https://nytimes.com/athletic/6988701/2026/01/21/ufc-ppv-streaming-paramount-moneycall/
 
-**Getting Travel Rewards Is Getting Easier**\
-`Program updates and new navigation tools help travelers negotiate the increasingly complicated universe of points.`\
-https://nytimes.com/2026/01/21/travel/loyalty-programs.html
+**Too Many Media Newsletters? Now There’s a Media Newsletter for That.**\
+`A new daily email from Mediaite intends to cut through the cacophony of online media news.`\
+https://nytimes.com/2026/01/21/business/media/mediaite-media-newsletter.html
 
-**The New Wave in Wellness Travel: Sound**\
-`Wellness destinations are catering to guests with live music, vibration treatments and special domes built to calm nerves and soothe frazzled spirits.`\
-https://nytimes.com/2026/01/21/travel/sound-domes-wellness-spa.html
+**Is Your Medicine Cabinet a Mess?**\
+`Here’s what to toss, what to keep and how to store your drugs safely.`\
+https://nytimes.com/2026/01/21/well/medicine-cabinet.html
 
-**In Europe, the Allure of Summer Travel Keeps Dimming**\
-`A big shift to spring, fall or even winter vacations in touristy, hot-weather cities like Barcelona, Florence and Athens shows no signs of slowing down.`\
-https://nytimes.com/2026/01/21/travel/europe-offseason-vacations.html
+**Fewer Dishes and Better Flavor**\
+`My new one-pot pasta demonstrates how, when cooked with aromatics and in broth instead of water, pasta gains an impressive depth of flavor.`\
+https://nytimes.com/2026/01/21/dining/fewer-dishes-and-better-flavor.html
 
-**Fed’s Independence in Flux as Supreme Court Weighs Lisa Cook’s Ouster**\
-`How the justices rule in the case between President Trump and the Federal Reserve governor will affect the central bank’s ability to set policy without political interference.`\
-https://nytimes.com/2026/01/21/us/politics/fed-independence-supreme-court.html
+**Trump Tried to Fire Lisa Cook on Social Media. Is That Due Process?**\
+`In addition to disputing whether the president had sufficient cause to remove her, the Fed governor said the way he went about it was a separate problem.`\
+https://nytimes.com/2026/01/21/us/politics/trump-fire-lisa-cook-due-process.html
 

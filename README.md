@@ -1,3 +1,11 @@
+**How to watch Arizona State vs. West Virginia women's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona State Sun Devils play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6988801/2026/01/21/arizona-state-vs-west-virginia-stream-how-to-watch-jan-21/
+
+**Karamo Brown Says He Felt ‘Emotionally Abused’ During ‘Queer Eye’ Run**\
+`Mr. Brown, the makeover show’s mental health expert, skipped planned appearances on “CBS Mornings” and the “Today” show, citing a need to “protect himself and his peace.”`\
+https://nytimes.com/2026/01/21/style/karamo-brown-queer-eye-emotional-abuse.html
+
 **How to watch Maryland vs. Illinois men's basketball: Time, TV, streaming**\
 `Find out how to watch the Maryland Terrapins play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6988789/2026/01/21/maryland-vs-illinois-stream-how-to-watch-jan-21/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/21/business/media/mediaite-media-newsletter.html
 **Is Your Medicine Cabinet a Mess?**\
 `Here’s what to toss, what to keep and how to store your drugs safely.`\
 https://nytimes.com/2026/01/21/well/medicine-cabinet.html
-
-**Fewer Dishes and Better Flavor**\
-`My new one-pot pasta demonstrates how, when cooked with aromatics and in broth instead of water, pasta gains an impressive depth of flavor.`\
-https://nytimes.com/2026/01/21/dining/fewer-dishes-and-better-flavor.html
-
-**Trump Tried to Fire Lisa Cook on Social Media. Is That Due Process?**\
-`In addition to disputing whether the president had sufficient cause to remove her, the Fed governor said the way he went about it was a separate problem.`\
-https://nytimes.com/2026/01/21/us/politics/trump-fire-lisa-cook-due-process.html
 
