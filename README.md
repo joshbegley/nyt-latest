@@ -1,40 +1,40 @@
-**Does a Giannis-Knicks trade make more sense now with recent struggles?**\
-`Is there a world where Giannis joins the Knicks this season? Would the Bucks be interested in Karl-Anthony Towns?`\
-https://nytimes.com/athletic/6979788/2026/01/21/giannis-knicks-karl-anthony-towns-trade/
+**Did Ohio State succeed in the transfer portal? Thoughts on all 16 new additions**\
+`Ohio State started slow but finished strong in the transfer portal window. Here's what to know about all the new players.`\
+https://nytimes.com/athletic/6986974/2026/01/21/ohio-state-transfer-portal-commitments-players/
 
-**Sudden silence at Soldier Field is a reminder that nothing is promised for the Bears**\
-`An extraordinary run that had been built on a team's belief ended Sunday with a painful brand of disbelief. So now what?`\
-https://nytimes.com/athletic/6986329/2026/01/21/bears-playoff-loss-sudden-silence/
+**Trump 2.0**\
+`We look at the first year of the president’s second term.`\
+https://nytimes.com/2026/01/21/briefing/trump-first-year-back.html
 
-**What fans can expect as UFC moves into its new TV era with Paramount+**\
-`On Friday night, UFC moves from $79 pay-per-view to $9 pay-by-the-month.`\
-https://nytimes.com/athletic/6987319/2026/01/21/ufc-paramount-plus-espn-dana-white-streaming/
+**Indiana gives hope and joy, but which programs should actually feel bad about this?**\
+`There are a lot of coaches who, if pressed, could not come up with tangible explanation of why Indiana went 16-0 and they didn't come close.`\
+https://nytimes.com/athletic/6986926/2026/01/21/indiana-national-championship-penn-state-tennessee-usc-notre-dame/
 
-**Helenius becomes latest rookie to boost Sabres in bounce-back win: 3 thoughts**\
-`The 19-year-old set up two goals and scored one of his own in the first period of his second NHL game.`\
-https://nytimes.com/athletic/6987893/2026/01/21/sabres-konsta-helenius-ostlund-benson-predators/
+**Jon Lester made Cubs, Red Sox HOFs this month. He belongs in Cooperstown next**\
+`Lester is one of baseball’s best storytellers, one of the best teammates and, most important, one of the best pitchers of his generation. `\
+https://nytimes.com/athletic/6986569/2026/01/21/cubs-jon-lester-baseball-hall-of-fame-red-sox/
 
-**Rangers goalie Jonathan Quick's remaining games in Los Angeles should be savored**\
-`Quick saw a large show of support from Kings fans during Tuesday night's Rangers loss in what could be his last appearance in L.A.`\
-https://nytimes.com/athletic/6988003/2026/01/21/rangers-jonathan-quick-los-angeles-kings/
+**How are teams trying to stop Arsenal's threat from corners?**\
+`Most sides know what's coming by now, but shutting down the threat is easier said than done...`\
+https://nytimes.com/athletic/6973572/2026/01/21/how-do-you-stop-arsenals-threat-from-corners/
 
-**The Pulse: An Olympic sport ripped at its seams**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6986250/2026/01/21/norwegian-ski-jumping-scandal-the-pulse/
+**Broncos' defense is suddenly taking the ball away. Is it their ticket to the Super Bowl?**\
+`The five takeaways the Broncos produced against the Bills represented more than a third of their regular-season total.`\
+https://nytimes.com/athletic/6987309/2026/01/21/broncos-defense-turnover-advantage-patriots/
 
-**Deni Avdija's unexpected rise to NBA's new breakout star — and Israel's greatest player ever**\
-`The foundation of Deni Avdija's rise was set in Israel. His catapult into stardom took place in a closed-door meeting in Portland.`\
-https://nytimes.com/athletic/6975290/2026/01/21/deni-avdijia-trail-blazers-wizards-israel-nba/
+**What would a Robert Thomas trade look like for the Blues? Comps, return — and would it be worth it?**\
+`Thomas ranks No. 15 on The Athletic's NHL trade board — but would the Blues actually move him, and if so, what could they get?`\
+https://nytimes.com/athletic/6963369/2026/01/21/blues-trade-robert-thomas-comps-return/
 
-**Which NHL goalie can build the best roster of players who scored their first goal on him?**\
-`Most NHL players do score their first goals against a manned net. But which goalie has the most potent lineup of first goals allowed?`\
-https://nytimes.com/athletic/6986810/2026/01/21/nhl-goalie-roster-building-first-goal-fleury-lundqvist/
+**Current events suggest Patriots will have easy time in Denver. History would like a word**\
+`The Pats have not fared well in postseason games played in Denver, losing four games in four tries, three of them with Tom Brady at QB.`\
+https://nytimes.com/athletic/6986901/2026/01/21/patriots-broncos-afc-championship-game-nfl-playoffs/
 
-**Canadiens' Lane Hutson and Ivan Demidov find inspiration on the way to a win**\
-`Hutson and Demidov faced role models in Minnesota's Quinn Hughes and Kirill Kaprizov and helped drive Montreal to a well-deserved victory.`\
-https://nytimes.com/athletic/6987976/2026/01/21/lane-hutson-ivan-demidov-canadiens-win/
+**Analyzing the Red Sox payroll: Where things currently stand and what might change**\
+`The Red Sox currently sit above the second luxury-tax threshold. What does that mean? And how might that impact any additional moves?`\
+https://nytimes.com/athletic/6986897/2026/01/21/red-sox-payroll-analysis/
 
-**Can Italy do for the Winter Olympics what Paris did for the Summer Games?**\
-`The Winter Olympics face many challenges, including sagging viewer interest over the past decade. The Milan-Cortina Games could change that.`\
-https://nytimes.com/athletic/6964642/2026/01/21/winter-olympics-italy-fans-viewership-paris/
+**Everton spied potential in Merlin Rohl. Their patience may now be paying off**\
+`The young German midfielder has endured injury issues since moving to Merseyside, but he offered flashes of his quality in the win at Villa`\
+https://nytimes.com/athletic/6985641/2026/01/21/merlin-rohl-everton-germany/
 
