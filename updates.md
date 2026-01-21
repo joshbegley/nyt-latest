@@ -1,3 +1,7 @@
+**'Not just quite yet': When will the Kings fully trust Brandt Clarke?**\
+`When the Kings are protecting a late lead, Clarke stays on the bench, even though his metrics are improving.`\
+https://nytimes.com/athletic/6989394/2026/01/21/brandt-clarke-la-kings-defense/
+
 **Trump Targets European Allies in Lengthy Speech at Davos**\
 `In a speech at the World Economic Forum in Switzerland on Wednesday, President Trump reasserted his ambitions to seize Greenland, but pledged to not use force.`\
 https://nytimes.com/video/us/politics/100000010658354/trump-davos-greenland-ukraine-russia.html
