@@ -1,3 +1,7 @@
+**Bill Kennedy, Robin Roberts, Rick Welts highlight LGBTQ Sports Hall of Fame inductees**\
+`The LGBTQ Sports Hall of Fame announced its 2026 Hall of Fame class of, four of whom have basketball ties.`\
+https://nytimes.com/athletic/6987614/2026/01/20/bill-kennedy-lgbtq-sports-hof-collins-welts-roberts-2/
+
 **Steve Kerr on whether he thinks Jonathan Kuminga wants to play for Warriors again: 'I do'**\
 `When asked whether he thought Kuminga wanted to be part of the rotation again, Kerr was quick with his answer. `\
 https://nytimes.com/athletic/6987541/2026/01/20/steve-kerr-jonathan-kuminga-could-rejoin-warriors-rotation/
