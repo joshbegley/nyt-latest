@@ -1,3 +1,7 @@
+**Steve Kerr on whether he thinks Jonathan Kuminga wants to play for Warriors again: 'I do'**\
+`When asked whether he thought Kuminga wanted to be part of the rotation again, Kerr was quick with his answer. `\
+https://nytimes.com/athletic/6987541/2026/01/20/steve-kerr-jonathan-kuminga-could-rejoin-warriors-rotation/
+
 **Baker Mayfield swipes at Kevin Stefanski: 'Can’t wait to see you twice a year'**\
 `It seems Mayfield is still unhappy with how his time in Cleveland ended.`\
 https://nytimes.com/athletic/6987483/2026/01/20/baker-mayfield-kevin-stefanski-social-media/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/20/us/chongly-scott-thao-ice-arrest.html
 **Timothy Busfield Ordered Released From Jail Ahead of Sex Abuse Trial**\
 `The “Thirtysomething” star is accused of inappropriately touching a child actor on the set of a TV series. His lawyers have called the allegations “manufactured.”`\
 https://nytimes.com/2026/01/20/us/timothy-busfield-charges-release.html
-
-**Who will be the 49ers' fifth defensive coordinator in 5 years? Here's the list**\
-`Less than 48 hours after his season ended Saturday night, San Francisco 49ers coach Kyle Shanahan was back on the clock.`\
-https://nytimes.com/athletic/6987209/2026/01/20/49ers-defensive-coordinator-potential-candidates-list/
 
