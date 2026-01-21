@@ -1,3 +1,7 @@
+**TAFC: Ex-MLS coach reveals kidnap nightmare, Man City stunned, and save of the season?**\
+`Today in TAFC: A former MLS coach reveals how he was kidnapped in Morocco, Man City stunned in Norway, and FIFA, UEFA save a West Bank pitch`\
+https://nytimes.com/athletic/6988107/2026/01/21/mls-coach-heath-kidnap-man-city-bodo-glimnt/
+
 **Preston's Osmajic's suspension tally reaches 20 games after 'unacceptable' headbutt**\
 `Osmajic, 26, has previously been banned for biting Owen Beck and racially abusing Hannibal Mejbri.`\
 https://nytimes.com/athletic/6988188/2026/01/21/milutin-osmajic-ban-red-card-headbutt/
