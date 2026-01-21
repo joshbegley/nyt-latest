@@ -1,3 +1,11 @@
+**Chargers to hire former Dolphins head coach Mike McDaniel as OC: Sources**\
+`McDaniel replaces Greg Roman, who was fired by the Chargers after two seasons and two early playoff exits.`\
+https://nytimes.com/athletic/6987350/2026/01/20/chargers-hire-mike-mcdaniel-offensive-coordinator/
+
+**Miami Beach Nightclub Is Condemned for Playing Ye’s Song ‘Heil Hitler’**\
+`The club, Vendôme, was hosting several right-wing influencers, including Andrew and Tristan Tate, the brothers who are being investigated in Europe for alleged human trafficking.`\
+https://nytimes.com/2026/01/20/us/tate-brothers-miami-heil-hitler-kanye-west.html
+
 **House Foreign Affairs Members Call for Machado to Govern Venezuela**\
 `The Venezuelan opposition leader stressed the need for free elections in her latest bipartisan meeting with lawmakers.`\
 https://nytimes.com/2026/01/20/us/politics/house-foreign-affairs-members-call-for-machado-to-govern-venezuela.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6987209/2026/01/20/49ers-defensive-coordinator-pote
 **Another Train Crash in Spain Kills 1 and Hurts 37, Officials Say**\
 `Train service in the Catalonia region will be suspended until it is safe to resume rail traffic, the local operator said.`\
 https://nytimes.com/2026/01/20/world/europe/train-crash-catalonia-spain.html
-
-**On Day 1, Mikie Sherrill Focuses on Utility Costs and Children’s Safety**\
-`The new governor of New Jersey signed six executive orders after taking office on Tuesday. They matched the priorities she campaigned on last year.`\
-https://nytimes.com/2026/01/20/nyregion/mikie-sherrill-executive-orders-new-jersey.html
-
-**How to watch Rams at Seahawks: NFC Championship Game Time, TV, streaming**\
-`Find out how to watch the Los Angeles Rams play the Seattle Seahawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6987418/2026/01/20/how-to-watch-rams-vs-seahawks-nfc-championship-game-tv-channel-and-streaming-options-for-january-25/
 
