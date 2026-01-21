@@ -1,5 +1,9 @@
-**Parents of Autistic Teen Sue Residential Home Over Abuse by Employee**\
-`Anil and Shalini Babbar said they would not have known about the abuse their son was enduring at the home in upstate New York if a whistle-blower had not sent footage of an assault.`\
+**Dozens Are Sickened by a Rare Fungal Infection in Tennessee**\
+`One person who contracted it died. The fungus is commonly found in soil in the Ohio River and Mississippi River valleys, and the illness is not contagious.`\
+https://nytimes.com/2026/01/21/us/histoplasmosis-outbreak-tennessee.html
+
+**Parents Sue Residential Home Over Abuse of Their Autistic Son**\
+`Anil and Shalini Babbar said they would not have known about the abuse their teenager was enduring at the home in upstate New York if a whistle-blower had not sent footage of an assault.`\
 https://nytimes.com/2026/01/21/nyregion/anderson-autism-center-suit.html
 
 **Eric Bieniemy returning to Chiefs as offensive coordinator: Source**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/21/briefing/trump-greenland-davos-supreme-court-fed.
 **Bo Nix expresses faith in Stidham, Broncos after surgery 'went well'**\
 `The QB shared on Instagram the devastation caused by his injury and confidence in his backup in the AFC title game.`\
 https://nytimes.com/athletic/6989997/2026/01/21/bo-nix-broncos-surgery-jarrett-stidham/
-
-**Kennedy, Kicking Off National Tour, Says He’s Not Running for President**\
-`Health Secretary Robert F. Kennedy Jr. rallied supporters at the Pennsylvania State Capitol, where he promoted his new dietary guidelines.`\
-https://nytimes.com/2026/01/21/us/politics/kennedy-rfk-pennsylvania.html
 

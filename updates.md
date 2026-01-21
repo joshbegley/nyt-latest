@@ -1,3 +1,7 @@
+**Sabres sign Josh Doan to 7-year, $6.95 million AAV contract extension**\
+`Doan has been a home-run addition for Buffalo after joining the team in the offseason as part of the JJ Peterka trade with Utah.`\
+https://nytimes.com/athletic/6990013/2026/01/21/sabres-josh-doan-contract-extension/
+
 **Parents of Autistic Teen Sue Residential Home Over Abuse by Employee**\
 `Anil and Shalini Babbar said they would not have known about the abuse their son was enduring at the home in upstate New York if a whistle-blower had not sent footage of an assault.`\
 https://nytimes.com/2026/01/21/nyregion/anderson-autism-center-suit.html
