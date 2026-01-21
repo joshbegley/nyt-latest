@@ -1,3 +1,11 @@
+**Travel Trends in 2026: Uncertainty, Face Scans and ‘Microvacations’**\
+`Global travel is surging. So is international apprehension. Here’s a look at what travelers can expect in the coming year.`\
+https://nytimes.com/explain/2026/01/21/travel/2026-travel-trends-vacation
+
+**Travel’s Latest Buzzword: ‘Microvacations’**\
+`Travelers short on vacation time are embarking on one- to three-day trips that take advantage of time zones and credit card points.`\
+https://nytimes.com/2026/01/21/travel/short-microvacations.html
+
 **Judge temporarily clears ex-Alabama player to return, nearly 3 years after entering NBA Draft**\
 `Bediako's lawsuit follows a wave of former G League players and international pros joining college basketball this season.`\
 https://nytimes.com/athletic/6987689/2026/01/21/charles-bediako-alabama-ncaa-lawsuit-basketball-eligibility/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/21/travel/europe-offseason-vacations.html
 **Fed’s Independence in Flux as Supreme Court Weighs Lisa Cook’s Ouster**\
 `How the justices rule in the case between President Trump and the Federal Reserve governor will affect the central bank’s ability to set policy without political interference.`\
 https://nytimes.com/2026/01/21/us/politics/fed-independence-supreme-court.html
-
-**For Travelers in 2026, Prices Are All Over the Map**\
-`Luxury travelers can expect to pay more than they did last year, while budget travelers might get a break.`\
-https://nytimes.com/2026/01/21/travel/prices-are-all-over-the-map.html
-
-**The New Wild Card on Travelers’ Itineraries: Uncertainty**\
-`Politics, military action and climate change have increased risk for destinations that once seemed like sure bets, forcing travelers to change how they plan.`\
-https://nytimes.com/2026/01/21/travel/uncertainty-is-the-only-certainty.html
 
