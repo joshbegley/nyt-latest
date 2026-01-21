@@ -1,3 +1,15 @@
+**Does a Giannis-Knicks trade make more sense now with recent struggles?**\
+`Is there a world where Giannis joins the Knicks this season? Would the Bucks be interested in Karl-Anthony Towns?`\
+https://nytimes.com/athletic/6979788/2026/01/21/giannis-knicks-karl-anthony-towns-trade/
+
+**Sudden silence at Soldier Field is a reminder that nothing is promised for the Bears**\
+`An extraordinary run that had been built on a team's belief ended Sunday with a painful brand of disbelief. So now what?`\
+https://nytimes.com/athletic/6986329/2026/01/21/bears-playoff-loss-sudden-silence/
+
+**What fans can expect as UFC moves into its new TV era with Paramount+**\
+`On Friday night, UFC moves from $79 pay-per-view to $9 pay-by-the-month.`\
+https://nytimes.com/athletic/6987319/2026/01/21/ufc-paramount-plus-espn-dana-white-streaming/
+
 **Helenius becomes latest rookie to boost Sabres in bounce-back win: 3 thoughts**\
 `The 19-year-old set up two goals and scored one of his own in the first period of his second NHL game.`\
 https://nytimes.com/athletic/6987893/2026/01/21/sabres-konsta-helenius-ostlund-benson-predators/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6987976/2026/01/21/lane-hutson-ivan-demidov-canadie
 **Can Italy do for the Winter Olympics what Paris did for the Summer Games?**\
 `The Winter Olympics face many challenges, including sagging viewer interest over the past decade. The Milan-Cortina Games could change that.`\
 https://nytimes.com/athletic/6964642/2026/01/21/winter-olympics-italy-fans-viewership-paris/
-
-**Jarret Stidham football cards are having a moment**\
-`Stidham cards are selling just as well, if not better, than those of the bigger name quarterbacks still gunning for the Super Bowl.`\
-https://nytimes.com/athletic/6986175/2026/01/21/jarrett-stidham-football-cards/
-
-**Ten times a late-season injury has changed a team's fortunes across sports**\
-`From Bo Nix to Tyrese Haliburton and others, a major injury to a key player can significantly alter a team's championship hopes.`\
-https://nytimes.com/athletic/6986204/2026/01/21/sports-injury-team-impact-nix-durant-irving-purdy/
-
-**After a national championship, how is Indiana reshaping its roster for 2026?**\
-`Indiana's season ended Monday night, but the Hoosiers next roster is already coming into focus. `\
-https://nytimes.com/athletic/6987575/2026/01/21/indiana-roster-national-championship-ransfer-portal-2026/
 
