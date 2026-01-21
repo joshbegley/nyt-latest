@@ -1,3 +1,11 @@
+**Sources: LA Galaxy in talks with St. Louis over Klauss trade**\
+`The pending move continues a busy offseason for the Galaxy and would open up a DP spot for St. Louis`\
+https://nytimes.com/athletic/6988627/2026/01/21/la-galaxy-klauss-trade-st-louis-city-mls/
+
+**Browns' assessment of Baker Mayfield was correct. Their solution was catastrophic**\
+`As Cleveland continues its hunt for a franchise QB, now seems like a perfect time to talk about Mayfield, who is back to his toxic self.`\
+https://nytimes.com/athletic/6988963/2026/01/21/browns-baker-mayfield-narratives-deshaun-watson/
+
 **Sports-Betting Scandals Are Ubiquitous. Whether Fans Will Care Is an Open Question.**\
 `Breaches of ethics in sports are almost as old as professional competitions. Here’s when they have affected the business — and when they haven’t.`\
 https://nytimes.com/2026/01/21/business/sports-betting-scandals-fans.html
