@@ -1,3 +1,7 @@
+**Wrexham have dropped 20 points from winning positions this season. It needs to stop**\
+`Wrexham were caught out again late on against Leicester. If they were better at defending leads they would be comfortably in playoff spots`\
+https://nytimes.com/athletic/6987003/2026/01/21/wrexham-dropped-points-winning-positions/
+
 **Gone in 58 seconds: What Rodri's red card said about him and Man City**\
 `The Spain international is struggling to recapture his pre-injury form but is also being exposed by City's system`\
 https://nytimes.com/athletic/6987242/2026/01/21/rodri-manchester-city-bodo-glymt/

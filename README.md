@@ -1,3 +1,7 @@
+**Word of the Day: dearth**\
+`This word has appeared in 229 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/21/learning/word-of-the-day-dearth.html
+
 **Gone in 58 seconds: What Rodri's red card said about him and Man City**\
 `The Spain international is struggling to recapture his pre-injury form but is also being exposed by City's system`\
 https://nytimes.com/athletic/6987242/2026/01/21/rodri-manchester-city-bodo-glymt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986842/2026/01/21/gabriel-jesus-arsenal-strikers-g
 **Inside Manchester United post-derby day: New faces, old songs and shoots of optimism**\
 `It was one win, but it was much needed after Amorim's exit - how United fans and players reacted to the start of the Carrick era`\
 https://nytimes.com/athletic/6986127/2026/01/21/manchester-united-derby-win-carrick/
-
-**Why Barcelona want to keep Marcus Rashford**\
-`The 28-year-old England international joined Barca on loan in the summer, and the Spanish champions want him to stay`\
-https://nytimes.com/athletic/6985595/2026/01/21/barcelona-rashford-man-utd-transfer/
 
