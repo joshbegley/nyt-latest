@@ -1,3 +1,11 @@
+**The Bounce: The Warriors' season is over. Can the Knicks save theirs?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6988531/2026/01/21/warriors-knicks-nba-the-bounce/
+
+**Diagnosing Justin Jefferson's fantasy football decline, George Pickens' ascent**\
+`Jake Ciely runs through the biggest fantasy football 2025 hits and misses at the WR and TE positions, searching for lessons learned.`\
+https://nytimes.com/athletic/6984096/2026/01/21/fantasy-football-wide-receivers-tight-ends-review-overperformers-underperformers/
+
 **Court Denies Lawmakers Seeking Independent Monitor of Epstein Files**\
 `A federal judge said he did not have the authority to supervise the Justice Department’s release of the documents.`\
 https://nytimes.com/2026/01/21/nyregion/epstein-independent-monitor.html
