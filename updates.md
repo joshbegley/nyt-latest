@@ -1,3 +1,11 @@
+**Steve Kerr on whether he thinks Jonathan Kuminga wants to play for Warriors again: 'I do'**\
+`When asked whether he thought Kuminga wanted to be part of the rotation again, Kerr was quick with his answer. `\
+https://nytimes.com/athletic/6987541/2026/01/20/steve-kerr-jonathan-kuminga-could-rejoin-warriors-rotation/
+
+**Miami Beach Nightclub Is Condemned for Playing Ye’s Song ‘Heil Hitler’**\
+`The club, Vendôme, was hosting several right-wing influencers, including Andrew and Tristan Tate, the brothers who are being investigated in Europe in connection with human trafficking.`\
+https://nytimes.com/2026/01/20/us/tate-brothers-miami-heil-hitler-kanye-west.html
+
 **Chargers to hire former Dolphins head coach Mike McDaniel as OC: Sources**\
 `McDaniel would replace Greg Roman, who was fired by the Chargers after two seasons and two early playoff exits.`\
 https://nytimes.com/athletic/6987350/2026/01/20/chargers-hire-mike-mcdaniel-offensive-coordinator/
