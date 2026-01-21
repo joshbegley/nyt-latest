@@ -1,3 +1,7 @@
+**Court Denies Lawmakers Seeking Independent Monitor of Epstein Files**\
+`A federal judge said he did not have the authority to supervise the Justice Department’s release of the documents.`\
+https://nytimes.com/2026/01/21/nyregion/epstein-independent-monitor.html
+
 **The fate of the Fed may turn on two words: ‘for cause.’**\
 `The Supreme Court has said the Federal Reserve Board’s independence warrants protection. President Trump’s effort to fire a member will test that commitment.`\
 https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook/the-fate-of-the-fed-may-turn-on-two-words-for-cause
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/21/us/politics/mercosur-trade-deal-eu.html
 **What Is Lisa Cook, the Fed Governor, Accused of Doing?**\
 `The Trump administration has accused Lisa D. Cook, a Fed governor, of engaging in mortgage fraud, but financial documents cast doubt on the claims.`\
 https://nytimes.com/2026/01/21/us/politics/lisa-cook-mortgage-fraud-accusation.html
-
-**Newsom Calls World Leaders ‘Pathetic’ for ‘Rolling Over’ to Trump**\
-`Gov. Gavin Newsom of California told world leaders to “stop being complicit” and to “have a backbone” in dealing with President Trump and his threats to Greenland.`\
-https://nytimes.com/video/world/europe/100000010658327/newsom-trump-leaders-pathetic.html
 
