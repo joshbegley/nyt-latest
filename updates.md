@@ -1,3 +1,11 @@
+**ICE Arrest of a Citizen, Barely Dressed, Sows Fear in Twin Cities**\
+`A Hmong immigrant, who is a U.S. citizen, was released after being questioned for an hour. Federal officials said they had been seeking sex offenders.`\
+https://nytimes.com/2026/01/20/us/chongly-scott-thao-ice-arrest.html
+
+**Timothy Busfield Ordered Released From Jail Ahead of Sex Abuse Trial**\
+`The “Thirtysomething” star is accused of inappropriately touching a child actor on the set of a TV series. His lawyers have called the allegations “manufactured.”`\
+https://nytimes.com/2026/01/20/us/timothy-busfield-charges-release.html
+
 **They Might Be Foiled**\
 `Ginny Too and Avery Gee Katz make their collaboration debut in the New York Times Crossword.`\
 https://nytimes.com/2026/01/20/crosswords/daily-puzzle-2026-01-21.html
