@@ -1,3 +1,7 @@
+**U.S. Pivot in Syria Leaves an Old Ally in the Lurch**\
+`A Kurdish force that helped defeat the Islamic State is collapsing as the Trump administration turns to back the new Syrian government.`\
+https://nytimes.com/2026/01/21/world/middleeast/us-pivot-in-syria-leaves-an-old-ally-in-the-lurch.html
+
 **Tariffs Case Pending as Supreme Court Takes Up 2nd Case With Economic Consequences**\
 `The timing of the court’s decision has been the subject of much speculation and anticipation. But now it may not land for at least several more weeks.`\
 https://nytimes.com/2026/01/21/us/politics/supreme-court-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/21/magazine/family-reunion-ethics.html
 **Months After a Tragedy, the Chess World Remains Divided**\
 `The death of Daniel Naroditsky exposed the conflicts between the game’s traditional wing and its many online stars.`\
 https://nytimes.com/2026/01/21/arts/chess-online-naroditsky-kramnik.html
-
-**Cadillac team principal says F1 team received more than 140,000 job applications**\
-`Lowdon added that the team had only advertised 595 positions, with the majority to be filled by December 2025.`\
-https://nytimes.com/athletic/6988812/2026/01/21/cadillac-f1-job-applications-graeme-lowdon/
 

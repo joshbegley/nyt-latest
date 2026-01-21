@@ -1,3 +1,7 @@
+**Tariffs Case Pending as Supreme Court Takes Up 2nd Case With Economic Consequences**\
+`The timing of the court’s decision has been the subject of much speculation and anticipation. But now it may not land for at least several more weeks.`\
+https://nytimes.com/2026/01/21/us/politics/supreme-court-tariffs.html
+
 **What the Mets might do next after trading for Luis Robert Jr.**\
 `There's a slightly higher chance of the Mets trading for a starter than signing one in free agency, sources said.`\
 https://nytimes.com/athletic/6988891/2026/01/21/mets-offseason-luis-robert-free-agency/
