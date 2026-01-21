@@ -1,31 +1,3 @@
-**TAFC: Ex-MLS coach reveals kidnap nightmare, Man City stunned, and save of the season?**\
-`Today in TAFC: A former MLS coach reveals how he was kidnapped in Morocco, Man City stunned in Norway, and FIFA, UEFA save a West Bank pitch`\
-https://nytimes.com/athletic/6988107/2026/01/21/mls-coach-heath-kidnap-man-city-bodo-glimnt/
-
-**Preston's Osmajic's suspension tally reaches 20 games after 'unacceptable' headbutt**\
-`Osmajic, 26, has previously been banned for biting Owen Beck and racially abusing Hannibal Mejbri.`\
-https://nytimes.com/athletic/6988188/2026/01/21/milutin-osmajic-ban-red-card-headbutt/
-
-**No NIL, little attention, just winning. How NYU women's basketball quietly became DIII's No.1 team**\
-`The Violets play in the shadows of Division III and mostly anonymously in New York City. But their dominance can't be denied.`\
-https://nytimes.com/athletic/6986856/2026/01/21/nyu-womens-basketball-diii-winning-streak/
-
-**What are the Cubs getting in Alex Bregman? Allow Dansby Swanson to explain**\
-`Swanson and Bregman have had their careers linked since their days in college baseball through the 2021 World Series as opponents.`\
-https://nytimes.com/athletic/6987673/2026/01/21/chicago-cubs-alex-bregman-dansby-swanson-teammates/
-
-**The secret to great NFL defense in this era? Having a premium nickel**\
-`How players such as Nick Emmanwori, Kyle Hamilton, Derwin James and Cooper DeJean have made the nickel a valuable position.`\
-https://nytimes.com/athletic/6978455/2026/01/21/the-secret-to-great-nfl-defense-in-this-era-having-a-premium-nickel/
-
-**What's the worst arena in the PWHL? Players sound off on New York, Ottawa**\
-`PWHL players give their anonymous take on the best and worst venues in the league.`\
-https://nytimes.com/athletic/6983035/2026/01/21/pwhl-player-poll-worst-arena-new-york-ottawa/
-
-**With Cody Bellinger's free agency unresolved, is Jasson Domínguez ready for a starring role?**\
-`With more experience, Domínguez could certainly improve his offense from the right side and get more comfortable as a defender.`\
-https://nytimes.com/athletic/6986767/2026/01/21/new-york-yankees-jasson-dominguez-starring-role/
-
 **Does a Giannis-Knicks trade make more sense now with recent struggles?**\
 `Is there a world where Giannis joins the Knicks this season? Would the Bucks be interested in Karl-Anthony Towns?`\
 https://nytimes.com/athletic/6979788/2026/01/21/giannis-knicks-karl-anthony-towns-trade/
@@ -37,4 +9,32 @@ https://nytimes.com/athletic/6986329/2026/01/21/bears-playoff-loss-sudden-silenc
 **What fans can expect as UFC moves into its new TV era with Paramount+**\
 `On Friday night, UFC moves from $79 pay-per-view to $9 pay-by-the-month.`\
 https://nytimes.com/athletic/6987319/2026/01/21/ufc-paramount-plus-espn-dana-white-streaming/
+
+**Helenius becomes latest rookie to boost Sabres in bounce-back win: 3 thoughts**\
+`The 19-year-old set up two goals and scored one of his own in the first period of his second NHL game.`\
+https://nytimes.com/athletic/6987893/2026/01/21/sabres-konsta-helenius-ostlund-benson-predators/
+
+**Rangers goalie Jonathan Quick's remaining games in Los Angeles should be savored**\
+`Quick saw a large show of support from Kings fans during Tuesday night's Rangers loss in what could be his last appearance in L.A.`\
+https://nytimes.com/athletic/6988003/2026/01/21/rangers-jonathan-quick-los-angeles-kings/
+
+**The Pulse: An Olympic sport ripped at its seams**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6986250/2026/01/21/norwegian-ski-jumping-scandal-the-pulse/
+
+**Deni Avdija's unexpected rise to NBA's new breakout star — and Israel's greatest player ever**\
+`The foundation of Deni Avdija's rise was set in Israel. His catapult into stardom took place in a closed-door meeting in Portland.`\
+https://nytimes.com/athletic/6975290/2026/01/21/deni-avdijia-trail-blazers-wizards-israel-nba/
+
+**Which NHL goalie can build the best roster of players who scored their first goal on him?**\
+`Most NHL players do score their first goals against a manned net. But which goalie has the most potent lineup of first goals allowed?`\
+https://nytimes.com/athletic/6986810/2026/01/21/nhl-goalie-roster-building-first-goal-fleury-lundqvist/
+
+**Canadiens' Lane Hutson and Ivan Demidov find inspiration on the way to a win**\
+`Hutson and Demidov faced role models in Minnesota's Quinn Hughes and Kirill Kaprizov and helped drive Montreal to a well-deserved victory.`\
+https://nytimes.com/athletic/6987976/2026/01/21/lane-hutson-ivan-demidov-canadiens-win/
+
+**Can Italy do for the Winter Olympics what Paris did for the Summer Games?**\
+`The Winter Olympics face many challenges, including sagging viewer interest over the past decade. The Milan-Cortina Games could change that.`\
+https://nytimes.com/athletic/6964642/2026/01/21/winter-olympics-italy-fans-viewership-paris/
 
