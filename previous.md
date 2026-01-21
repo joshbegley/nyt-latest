@@ -1,3 +1,7 @@
+**Eye Condition Causes Macron to Take Stage in Shades at Davos**\
+`A medical issue, not the dictates of fashion, led President Emanuel Macron of France to address the World Economic Forum in Davos, Switzerland, wearing sunglasses. The condition typically goes away without treatment within two weeks.`\
+https://nytimes.com/video/world/europe/100000010658206/eye-condition-causes-macron-to-take-stage-in-shades-at-davos.html
+
 **Bills early candidate list includes Brian Daboll, Joe Brady, Lou Anarumo**\
 `The Bills already have a list of six candidates for their head coaching job, a number that is expected to grow. `\
 https://nytimes.com/athletic/6988732/2026/01/21/bills-head-coach-candidates-brian-daboll-joe-brady/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/21/style/karamo-brown-queer-eye-emotional-abuse.html
 **How to watch Maryland vs. Illinois men's basketball: Time, TV, streaming**\
 `Find out how to watch the Maryland Terrapins play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6988789/2026/01/21/maryland-vs-illinois-stream-how-to-watch-jan-21/
-
-**How to watch Notre Dame vs. North Carolina men's basketball: Time, TV, streaming**\
-`Find out how to watch the Notre Dame Fighting Irish play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6988784/2026/01/21/notre-dame-vs-north-carolina-stream-how-to-watch-jan-21/
 

@@ -1,3 +1,7 @@
+**Eye Condition Causes Macron to Take Stage in Shades at Davos**\
+`A medical issue, not the dictates of fashion, led President Emanuel Macron of France to address the World Economic Forum in Davos, Switzerland, wearing sunglasses. The condition typically goes away without treatment within two weeks.`\
+https://nytimes.com/video/world/europe/100000010658206/eye-condition-causes-macron-to-take-stage-in-shades-at-davos.html
+
 **Bills early candidate list includes Brian Daboll, Joe Brady, Lou Anarumo**\
 `The Bills already have a list of six candidates for their head coaching job, a number that is expected to grow. `\
 https://nytimes.com/athletic/6988732/2026/01/21/bills-head-coach-candidates-brian-daboll-joe-brady/
