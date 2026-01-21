@@ -1,3 +1,7 @@
+**Federal Regulators Take New Aim at Late-Night TV**\
+`The F.C.C. said it planned to enforce long-dormant rules on appearances by political candidates on network talk shows.`\
+https://nytimes.com/2026/01/21/business/media/fcc-late-night-stephen-colbert-jimmy-kimmel.html
+
 **N.Y.C. Sues to Block Adams-Approved Police Reality Show With Dr. Phil**\
 `Dr. Phil, the celebrity psychologist, and Eric Adams agreed to collaborate on “Behind the Badge.” Now the city is suing to prevent the airing of “extremely problematic” footage.`\
 https://nytimes.com/2026/01/21/nyregion/new-york-city-police-reality-show-dr-phil.html
@@ -29,8 +33,4 @@ https://nytimes.com/card/2026/01/21/arts/editors-recommendations-undercover
 **Marseille 0 Liverpool 3 - Was Szoboszlai free kick planned? How did Salah do? What's needed in final match?**\
 `Our writers break down the action from Liverpool's win in Marseille`\
 https://nytimes.com/athletic/6983723/2026/01/21/liverpool-szoboszlai-free-kick-champions-league/
-
-**2026 Midterm Elections**\
-``\
-https://nytimes.com/news-event/2026-midterm-elections
 
