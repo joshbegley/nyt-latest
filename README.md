@@ -1,3 +1,19 @@
+**College basketball mailbag: Where can the top 10 teams improve? Is Miami (Ohio) at-large worthy?**\
+`Does Marquette need to change its philosophy? Who are the bottom teams at the power-conference level this year?`\
+https://nytimes.com/athletic/6988365/2026/01/21/college-basketball-mailbag-arizona-marquette-miami-ohio/
+
+**Dodgers roster projection 1.0: Pretty, pretty, pretty good**\
+`It’s an eye-popping collection of talent, even before considering that the Dodgers might not be done.`\
+https://nytimes.com/athletic/6986546/2026/01/21/dogers-roster-projection-2026/
+
+**The Conservative Conspiracy Against Women’s Progress Is Real**\
+`This is how the Heritage Foundation wants to turn back the clock.`\
+https://nytimes.com/2026/01/21/opinion/heritage-foundation-women.html
+
+**Our Friend Won’t Stop Talking About Her Daughter’s Boyfriend. Help!**\
+`An extended friend group has had it with the boyfriend updates, but apart from oblique jokes, no one is willing to address their friend’s fixation directly.`\
+https://nytimes.com/2026/01/21/style/friend-group-conversation-monopolizers.html
+
 **Senegal president awards AFCON winners plot of land on coastline**\
 `Bassirou Diomaye Faye has announced each member of the Africa Cup of Nations-winning squad will receive bonuses and land.`\
 https://nytimes.com/athletic/6988373/2026/01/21/senegal-afcon-bonuses-beach/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6988170/2026/01/21/manchester-united-next-manager-o
 **Mandel's Mailbag: Is Indiana here to stay? And what about everyone else?**\
 `Indiana's turnaround and title shifted expectations in the sport. Plus, how much does Miami reaching the title game help the ACC?`\
 https://nytimes.com/athletic/6987685/2026/01/21/indiana-championship-success-mandels-mailbag/
-
-**Ten Guardians prospects who could debut in 2026, including No. 1 pick Travis Bazzana**\
-`The Guardians will enter 2026 with one of the league's youngest rosters. Some debuts will surprise us. Some we've waited on for years.`\
-https://nytimes.com/athletic/6985494/2026/01/21/guardians-prospects-2026-travis-bazzana/
-
-**Lowetide: Appreciating Ryan Nugent-Hopkins' brilliance after 1,000 NHL games**\
-`Edmonton's No. 1 pick in 2011, Nugent-Hopkins has emerged as a leader, a complete player and a fan favourite.`\
-https://nytimes.com/athletic/6984682/2026/01/21/edmonton-oilers-ryan-nugent-hopkins-nhl-1000-games/
-
-**The 'other' Luis Suárez is poised to teach the world his name**\
-`Colombia's in-form striker is seeking to forge his own identity and claim a World Cup spot`\
-https://nytimes.com/athletic/6987736/2026/01/21/luis-suarez-sporting-cp-colombia-world-cup-champions-league/
-
-**Australian Open recap: Emma Raducanu says she will change her tennis after loss on Day 4**\
-`The 2021 U.S. Open champion said she needs to change her game after a second-round loss in Melbourne.`\
-https://nytimes.com/athletic/6987269/2026/01/21/tennis-australian-recap-results-matches-day-4/
 
