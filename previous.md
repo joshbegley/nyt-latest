@@ -1,3 +1,35 @@
+**Nottingham Forest open to Cuiabano exit, eyeing Liverpool's Tsimikas**\
+`The Brazilian left-back, was one of three players signed from Botafogo last summer but is yet to make a senior Forest appearance.`\
+https://nytimes.com/athletic/6988329/2026/01/21/nottingham-forest-transfers-cuiabano-kostas-tsimikas/
+
+**Reed Sheppard’s big fourth-quarter against Spurs shows how Rockets can contend**\
+`With Steven Adams sidelined for a while, Houston needs complementary players like Sheppard to step up. They did against San Antonio.`\
+https://nytimes.com/athletic/6988153/2026/01/21/reed-sheppards-rockets-win-spurs/
+
+**Next Manchester United manager: Money surges on Carrick after big win, Glasner in the mix**\
+`The list of favourites for the Manchester United job is evolving as the club begin the long search for their next permanent boss`\
+https://nytimes.com/athletic/6988170/2026/01/21/manchester-united-next-manager-odds-carrick-glasner/
+
+**Mandel's Mailbag: Indiana changed what success looks like in college football**\
+`Indiana's turnaround and title shifted expectations in the sport. Plus, how much does Miami reaching the title game help the ACC?`\
+https://nytimes.com/athletic/6987685/2026/01/21/indiana-championship-success-mandels-mailbag/
+
+**Ten Guardians prospects who could debut in 2026, including No. 1 pick Travis Bazzana**\
+`The Guardians will enter 2026 with one of the league's youngest rosters. Some debuts will surprise us. Some we've waited on for years.`\
+https://nytimes.com/athletic/6985494/2026/01/21/guardians-prospects-2026-travis-bazzana/
+
+**Lowetide: Appreciating Ryan Nugent-Hopkins' brilliance after 1,000 NHL games**\
+`Edmonton's No. 1 pick in 2011, Nugent-Hopkins has emerged as a leader, a complete player and a fan favourite.`\
+https://nytimes.com/athletic/6984682/2026/01/21/edmonton-oilers-ryan-nugent-hopkins-nhl-1000-games/
+
+**The 'other' Luis Suárez is poised to teach the world his name**\
+`Colombia's in-form striker is seeking to forge his own identity and claim a World Cup spot`\
+https://nytimes.com/athletic/6987736/2026/01/21/luis-suarez-sporting-cp-colombia-world-cup-champions-league/
+
+**Australian Open recap: Emma Raducanu says she will change her tennis after loss on Day 4**\
+`The 2021 U.S. Open champion said she needs to change her game after a second-round loss in Melbourne.`\
+https://nytimes.com/athletic/6987269/2026/01/21/tennis-australian-recap-results-matches-day-4/
+
 **‘Adaptive Normalcy’ as the Trump Show Arrives at Davos**\
 `The president’s address at the World Economic Forum in Switzerland has trading partners and business executives on edge.`\
 https://nytimes.com/2026/01/21/business/dealbook/davos-trump-speech.html
@@ -5,36 +37,4 @@ https://nytimes.com/2026/01/21/business/dealbook/davos-trump-speech.html
 **Manchester United agree deal to create 'The Crown'-style TV series**\
 `Club are developing plans with North American production company Lionsgate for a drama chronicling their history`\
 https://nytimes.com/athletic/6987789/2026/01/21/manchester-united-tv-series-crown-lionsgate/
-
-**Inaugural FIFA Women’s Club World Cup could be 'catastrophic' for WSL**\
-`WSL Football fears the timing of FIFA’s new competition could be detrimental to English football's competitions.`\
-https://nytimes.com/athletic/6988245/2026/01/21/womens-club-world-cup-wsl-fifa/
-
-**Wolves have a glaring need at trade deadline: another bench scorer**\
-`A dispiriting road loss in Utah might have clarified the team's mission before the Feb. 5 deadline.`\
-https://nytimes.com/athletic/6987598/2026/01/21/timberwolves-trade-rumors-bench-scorer-point-guard/
-
-**The Athletic 136: Indiana celebrates, other surprises rise in final rankings of 2025-26**\
-`Last year’s expanded College Football Playoff made for the most difficult end-of-season ranking ever. This year, not nearly as much.`\
-https://nytimes.com/athletic/6988230/2026/01/21/college-football-team-postseason-rankings-136/
-
-**Can Kyle Whittingham build a dominant Michigan defense? What we learned in the portal**\
-`What Michigan wants to be and what its roster will dictate could be two different things on defense in Whittingham's first season.`\
-https://nytimes.com/athletic/6986406/2026/01/21/michigan-football-transfer-portal-defense/
-
-**With Chargers, Mike McDaniel may get to show the NFL world what he’s really made of**\
-`Jim Harbaugh can recognize what some critics have missed: that McDaniel is a 'football guy' through and through.`\
-https://nytimes.com/athletic/6988196/2026/01/21/mike-mcdaniel-chargers-jim-harbaugh/
-
-**What's the biggest issue in women's hockey today? PWHL players talk salary, schedules, more**\
-`What do PWHL players think about the issues facing their sport, including salaries, officiating and the international schedule?`\
-https://nytimes.com/athletic/6984187/2026/01/21/pwhl-salaries-womens-hockey-player-poll/
-
-**Greenland Shouldn’t Overshadow Ukraine, NATO Chief Says**\
-`Helping Ukraine defend against Russian aggression should be Europe’s “No. 1 priority,” Mark Rutte, the secretary general of NATO, said in Davos.`\
-https://nytimes.com/2026/01/21/us/politics/greenland-ukraine-nato-rutte.html
-
-**Did Ohio State succeed in the transfer portal? Thoughts on all 16 new additions**\
-`Ohio State started slow but finished strong in the transfer portal window. Here's what to know about all the new players.`\
-https://nytimes.com/athletic/6986974/2026/01/21/ohio-state-transfer-portal-commitments-players/
 
