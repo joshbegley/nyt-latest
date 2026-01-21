@@ -1,3 +1,11 @@
+**Fantasy football WR and TE review: Justin Jefferson crashes, George Pickens soars and more**\
+`Jake Ciely runs through the biggest fantasy football 2025 hits and misses at the WR and TE positions, searching for lessons learned.`\
+https://nytimes.com/athletic/6984096/2026/01/21/fantasy-football-wide-receivers-tight-ends-review-overperformers-underperformers/
+
+**For Trump, the Supreme Court Case Reflects Goal to Remake the Fed**\
+`The president has spoken repeatedly of his desire to install a majority of political loyalists on the board of the rate-setting central bank.`\
+https://nytimes.com/2026/01/21/us/politics/trump-supreme-court-fed.html
+
 **As Europe Tries to Diversify Trade, a Major Deal With South America Stumbles**\
 `The move by the European Parliament delays a push by the bloc to find new trading partners, as President Trump has threatened escalating U.S. tariffs.`\
 https://nytimes.com/2026/01/21/us/politics/mercosur-trade-deal-eu.html
