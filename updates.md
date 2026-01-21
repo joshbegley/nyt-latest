@@ -1,3 +1,15 @@
+**Fact-Checking President Trump’s Davos Speech**\
+`The president gave misleading accounts of the U.S. role in Greenland’s history and the North Atlantic Treaty Organization, among other claims.`\
+https://nytimes.com/2026/01/21/us/politics/fact-check-trump-davos-speech.html
+
+**Michele Tafoya, longtime NFL sideline reporter, announces run for Minnesota Senate seat**\
+`Tafoya entered politics in 2022 after departing from NBC Sports, joining Minnesota gubernatorial candidate Kendall Qualls' campaign.`\
+https://nytimes.com/athletic/6988916/2026/01/21/michele-tafoya-senate-campaign-minnesota/
+
+**PSG's Hernandez denies charges of human trafficking and undeclared work**\
+`The Versailles Judicial Court have confirmed that an investigation is underway. Hernandez denies the charges.`\
+https://nytimes.com/athletic/6988990/2026/01/21/psg-lucas-hernandez-trafficking-case/
+
 **Stephen Hess, 92, an Eminent, and Quotable, Political Scientist, Dies**\
 `A Brookings Institution scholar, he advised presidents and wrote books on the media (assessing reporters in one) and government (including a study of beleaguered press officers).`\
 https://nytimes.com/2026/01/21/us/stephen-hess-dead.html
