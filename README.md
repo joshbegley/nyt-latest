@@ -1,3 +1,11 @@
+**The fate of the Fed may turn on two words: ‘for cause.’**\
+`The Supreme Court has said the Federal Reserve Board’s independence warrants protection. President Trump’s effort to fire a member will test that commitment.`\
+https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook/the-fate-of-the-fed-may-turn-on-two-words-for-cause
+
+**Mets pay up to take a chance on Luis Robert: MLB Trade Grades**\
+`The Mets can take financial risks that few other organizations can afford. `\
+https://nytimes.com/athletic/6988482/2026/01/21/luis-robert-mets-white-sox-mlb-trade-grades/
+
 **Ben Kindel’s Calgary homecoming is about more than his rise with the Penguins**\
 `Kindel's time in Calgary made those around him believe that his path to the NHL would be quick — and not only because of his on-ice talent.`\
 https://nytimes.com/athletic/6987182/2026/01/21/penguins-ben-kindel-billet-family-nhl/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/21/us/politics/lisa-cook-mortgage-fraud-accusation.h
 **Newsom Calls World Leaders ‘Pathetic’ for ‘Rolling Over’ to Trump**\
 `Gov. Gavin Newsom of California told world leaders to “stop being complicit” and to “have a backbone” in dealing with President Trump and his threats to Greenland.`\
 https://nytimes.com/video/world/europe/100000010658327/newsom-trump-leaders-pathetic.html
-
-**City players refund away supporters after 3-1 loss at Bodo/Glimt**\
-`City's captains said it was "the least we could do" for the 374 fans who made the trip to the Arctic Circle.`\
-https://nytimes.com/athletic/6988496/2026/01/21/manchester-city-bodo-glimt-refund/
-
-**Trump’s retribution efforts have struggled with mortgage cases.**\
-`The sputtering push to bring charges against Letitia James, the New York attorney general, underscores the challenges the administration has faced in accusing her of mortgage fraud.`\
-https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook/trumps-retribution-efforts-have-struggled-with-mortgage-cases
 
