@@ -1,40 +1,40 @@
-**South Korean Ex-Premier Gets 23 Years in Prison for Role in Martial Law**\
-`Han Duck-soo was convicted of playing a key role in former President Yoon Suk Yeol’s imposition of martial law, which a court said was an insurrection.`\
-https://nytimes.com/2026/01/21/world/asia/south-korea-prime-minister-martial-law.html
+**‘Marty Supreme’ Has a Lot to Say About Being Jewish in America**\
+`The film’s unapologetic depiction of the experience in all of its complications rejects the idea that such characters have to suffer.`\
+https://nytimes.com/2026/01/21/movies/marty-supreme-jewish-america.html
 
-**Why Was Macron Wearing Sunglasses at Davos?**\
-`An eye condition, not a style choice, prompted President Emmanuel Macron of France to don aviators to address the World Economic Forum.`\
-https://nytimes.com/2026/01/21/world/europe/macron-sunglasses-davos.html
+**$300,000 Homes in Georgia, Kentucky and Pennsylvania**\
+`A craftsman in Washington, a condo in Lexington and a rowhouse in Pittsburgh`\
+https://nytimes.com/2026/01/21/realestate/300000-dollar-homes-in-lexington-ky-washington-ga-pittsburgh.html
 
-**Harry Brook 'lucky' to remain England captain and pledges to regain trust of his players**\
-`The white-ball skipper has apologised after being disciplined following a late-night altercation with a bouncer in New Zealand last October`\
-https://nytimes.com/athletic/6987188/2026/01/21/harry-brook-england-captain-apology/
+**Trump rompió el orden mundial. ¿Y ahora qué?**\
+`El mundo que conocemos está llegando a su fin. Algo nuevo ha comenzado.`\
+https://nytimes.com/interactive/2026/01/21/espanol/opinion/trump-nuevo-orden-mundial.html
 
-**Kuminga Mania takes another turn for Jimmy Butler-less Warriors**\
-`Jonathan Kuminga returned to action for the Warriors in Tuesday night's loss to Toronto, scoring 20 points in 21 minutes off the bench.`\
-https://nytimes.com/athletic/6988065/2026/01/21/jonathan-kuminga-warriors-jimmy-butler/
+**Tour Actress Kathleen Chalfant’s Art-Filled Home**\
+`The theater legend and ‘Familiar Touch’ star hosts friends and artists in her expansive Brooklyn brownstone.`\
+https://nytimes.com/interactive/2026/01/21/realestate/kathleen-chalfant-copenhagen-test-home-tour.html
 
-**The extraordinary story of a soccer coach, a kidnapping and a Saudi job that didn't exist**\
-`Adrian Heath was duped into thinking he was on the verge of a new job – only to be held at knifepoint in Morocco. Turns out he's not alone`\
-https://nytimes.com/athletic/6985628/2026/01/21/adrian-heath-kidnapped-morocco-manager-saudi-arabia-scam/
+**How Ralph Fiennes Rocks Out to Iron Maiden in ‘The Bone Temple’**\
+`One scene from the continuation of “28 Years Later” has Fiennes’s character performing to the song “The Number of the Beast.” A look at how the filmmakers pulled it off.`\
+https://nytimes.com/2026/01/21/movies/ralph-fiennes-iron-maiden-scene-the-bone-temple.html
 
-**Live Updates: NATO Faces Pressure as Trump Brings Greenland Dispute to Davos**\
-``\
-https://nytimes.com/live/2026/01/21/us/trump-davos-greenland-news
+**I Tried to Toughen Up My Son. He Had Other Ideas.**\
+`How a road trip with his son led Sam Graham-Felsen to a different understanding of “tough.”`\
+https://nytimes.com/2026/01/21/podcasts/father-son-road-trip-badlands-national-park.html
 
-**Air Force One Turns Around With Trump Aboard**\
-`Air Force One turned around while carrying President Trump due to a “minor electrical issue,” an official said. Trump was on his way to Davos, Switzerland, for the World Economic Forum.`\
-https://nytimes.com/video/us/100000010657831/air-force-one-trump-turn-around.html
+**How ‘Wine Moms’ Entered the Conversation About ICE**\
+`The insult wielded against protesters taps into a long tradition of casting wine drinkers as out-of-touch elitists.`\
+https://nytimes.com/2026/01/21/dining/drinks/wine-moms-ice-protests.html
 
-**90% of English football clubs expected to post losses for 2025, report finds**\
-`A survey of club finance directors by accountancy firm BDO found over a quarter said their club finances were “in need of attention”.`\
-https://nytimes.com/athletic/6988000/2026/01/21/football-finance-report-bdo/
+**I’ve Covered Police Abuse for 20 Years. What ICE Is Doing Is Different.**\
+`ICE is operating in a scary new way.`\
+https://nytimes.com/2026/01/21/opinion/ice-shooting-renee-good.html
 
-**A Year of Trump 2.0**\
-`What is your opinion of what President Trump has done in the first year of his second term? Why?`\
-https://nytimes.com/2026/01/21/learning/a-year-of-trump-2-0.html
+**Trump’s ‘Dear Jonas’ Letter Is No Prize**\
+`We have three years left with a mad king. It doesn’t feel sustainable.`\
+https://nytimes.com/2026/01/21/opinion/trump-norway-letter.html
 
-**New York’s Odd Couple: The Mayor and the Police Commissioner**\
-`Zohran Mamdani and Jessica Tisch have little in common. But both of their political futures hinge on the safety of the city.`\
-https://nytimes.com/2026/01/21/nyregion/zohran-mamdani-jessica-tisch-nypd.html
+**A Green ‘Monster’ Hides on a Quiet London Street**\
+`A Kennington home — expanded but still compact at 1,000 square feet and trimmed in green brick — was named the Jealous House by its architect.`\
+https://nytimes.com/2026/01/21/realestate/a-green-monster-hides-on-a-quiet-london-street.html
 
