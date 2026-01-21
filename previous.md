@@ -1,3 +1,7 @@
+**Blue Jackets start slow again, suffer first defeat under Rick Bowness**\
+`The Senators won 4-1 and took advantage of the slow-starting Blue Jackets, who never held a lead and never seemed to find their game.`\
+https://nytimes.com/athletic/6987628/2026/01/20/blue-jackets-senators-rick-bowness/
+
 **Another Train Crash in Spain Kills 1 and Injures Dozens**\
 `A train crash in the Catalonia region of Spain killed one person and injured dozens more, officials said. It was the country’s second deadly rail accident this week.`\
 https://nytimes.com/video/world/europe/100000010657710/train-crash-catalonia-spain.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6987541/2026/01/20/steve-kerr-jonathan-kuminga-coul
 **Baker Mayfield swipes at Kevin Stefanski: 'Can’t wait to see you twice a year'**\
 `It seems Mayfield is still unhappy with how his time in Cleveland ended.`\
 https://nytimes.com/athletic/6987483/2026/01/20/baker-mayfield-kevin-stefanski-social-media/
-
-**Chargers to hire former Dolphins head coach Mike McDaniel as OC: Sources**\
-`McDaniel would replace Greg Roman, who was fired by the Chargers after two seasons and two early playoff exits.`\
-https://nytimes.com/athletic/6987350/2026/01/20/chargers-hire-mike-mcdaniel-offensive-coordinator/
 

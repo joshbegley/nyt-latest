@@ -1,3 +1,7 @@
+**Blue Jackets start slow again, suffer first defeat under Rick Bowness**\
+`The Senators won 4-1 and took advantage of the slow-starting Blue Jackets, who never held a lead and never seemed to find their game.`\
+https://nytimes.com/athletic/6987628/2026/01/20/blue-jackets-senators-rick-bowness/
+
 **Another Train Crash in Spain Kills 1 and Injures Dozens**\
 `A train crash in the Catalonia region of Spain killed one person and injured dozens more, officials said. It was the country’s second deadly rail accident this week.`\
 https://nytimes.com/video/world/europe/100000010657710/train-crash-catalonia-spain.html
