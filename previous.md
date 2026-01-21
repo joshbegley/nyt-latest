@@ -1,3 +1,15 @@
+**A Year of Trump 2.0**\
+`What is your opinion of what President Trump has done in the first year of his second term? Why?`\
+https://nytimes.com/2026/01/21/learning/a-year-of-trump-2-0.html
+
+**New York’s Odd Couple: The Mayor and the Police Commissioner**\
+`Zohran Mamdani and Jessica Tisch have little in common. But both of their political futures hinge on the safety of the city.`\
+https://nytimes.com/2026/01/21/nyregion/zohran-mamdani-jessica-tisch-nypd.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/21/crosswords/spelling-bee-forum.html
+
 **Late Night Cringes Over Trump’s Texting Spree**\
 `Jimmy Kimmel quipped that the president “can do so much damage in one three-day weekend — I don’t know if anybody has ever done more.”`\
 https://nytimes.com/2026/01/21/arts/television/late-night-trump-greenland-nobel.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/21/opinion/trump-greenland-europe-nato.html
 **Europe Has a Bazooka. Time to Use It.**\
 `For now, Europe’s anti-coercion instrument is less a bazooka than a waterlogged firecracker.`\
 https://nytimes.com/2026/01/21/opinion/europe-independence-trump-greenland.html
-
-**Wrexham have dropped 20 points from winning positions this season. It needs to stop**\
-`Wrexham were caught out again late on against Leicester. If they were better at defending leads, they would be comfortably in play-off spots`\
-https://nytimes.com/athletic/6987003/2026/01/21/wrexham-dropped-points-winning-positions/
-
-**Botman's contract commitment is a vote of confidence in Newcastle and Eddie Howe**\
-`Defender agreeing to give the best years of his career to the club during a season of sweat and labour is a vote of confidence in Eddie Howe`\
-https://nytimes.com/athletic/6986164/2026/01/21/sven-botman-new-contract-newcastle/
-
-**Gabriel Jesus has given Mikel Arteta a decision to make**\
-`The Brazilian has not started a Premier League game since January 2025, but his display against Inter suggested he is ready to face Man Utd`\
-https://nytimes.com/athletic/6986842/2026/01/21/gabriel-jesus-arsenal-strikers-gyokeres-havertz-arteta/
 

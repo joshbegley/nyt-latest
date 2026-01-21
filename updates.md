@@ -1,3 +1,15 @@
+**A Year of Trump 2.0**\
+`What is your opinion of what President Trump has done in the first year of his second term? Why?`\
+https://nytimes.com/2026/01/21/learning/a-year-of-trump-2-0.html
+
+**New York’s Odd Couple: The Mayor and the Police Commissioner**\
+`Zohran Mamdani and Jessica Tisch have little in common. But both of their political futures hinge on the safety of the city.`\
+https://nytimes.com/2026/01/21/nyregion/zohran-mamdani-jessica-tisch-nypd.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/21/crosswords/spelling-bee-forum.html
+
 **Wrexham have dropped 20 points from winning positions this season. It needs to stop**\
 `Wrexham were caught out again late on against Leicester. If they were better at defending leads, they would be comfortably in play-off spots`\
 https://nytimes.com/athletic/6987003/2026/01/21/wrexham-dropped-points-winning-positions/
