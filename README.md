@@ -1,3 +1,7 @@
+**Trump Targets European Allies in Lengthy Speech at Davos**\
+`In a speech at the World Economic Forum in Switzerland on Wednesday, President Trump reasserted his ambitions to seize Greenland, but pledged to not use force.`\
+https://nytimes.com/video/us/politics/100000010658354/trump-davos-greenland-ukraine-russia.html
+
 **With Cody Bellinger back in fold, Yankees' next target should be Freddy Peralta**\
 `The Yankees should now remind the baseball world that — like the Dodgers and Mets — they, too, can land top talent on the market. `\
 https://nytimes.com/athletic/6989284/2026/01/21/yankees-cody-bellinger-freddy-peralta-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/21/us/minnesota-injunction-protest-appeal.html
 **How to watch Hawks vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the Atlanta Hawks play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6989596/2026/01/21/hawks-vs-grizzlies-stream-how-to-watch-jan-21/
-
-**How to watch Pacers vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6989593/2026/01/21/pacers-vs-celtics-stream-how-to-watch-jan-21/
 
