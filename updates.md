@@ -1,3 +1,7 @@
+**Judge Blocks Government From Reviewing Seized Washington Post Devices**\
+`The Post, in its first legal filing since the government searched the home of a reporter last week, had demanded the return of the seized materials.`\
+https://nytimes.com/2026/01/21/business/media/washington-post-reporter-search-first-amendment.html
+
 **Trump’s Moves on Greenland**\
 `After assailing Europe in a long speech at Davos, the president said he had won an agreement on the future of the Arctic territory.`\
 https://nytimes.com/2026/01/21/world/trumps-greenland-davos-isis-syria.html

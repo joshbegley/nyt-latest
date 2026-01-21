@@ -1,3 +1,11 @@
+**Edin Dzeko set to join Schalke from Fiorentina**\
+`Dzeko, 39, joined Fiorentina from Fenerbahce last summer but has scored just two goals for the Italian side and none in Serie A.`\
+https://nytimes.com/athletic/6989264/2026/01/21/edin-dzeko-schalke-transfer-fiorentina/
+
+**Chelsea and Man United to meet in Women's League Cup final on March 15**\
+`The League Cup final will take place on March 15 at 2:15 pm (9:15am ET; 6:15 PT) at Bristol City's Ashton Gate.`\
+https://nytimes.com/athletic/6989657/2026/01/21/chelsea-man-united-womens-league-cup/
+
 **Judge Blocks Government From Reviewing Seized Washington Post Devices**\
 `The Post, in its first legal filing since the government searched the home of a reporter last week, had demanded the return of the seized materials.`\
 https://nytimes.com/2026/01/21/business/media/washington-post-reporter-search-first-amendment.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6989284/2026/01/21/yankees-cody-bellinger-freddy-pe
 **Kyle Shanahan on possibility of Mac Jones trade: 'I'd be very surprised'**\
 `Meanwhile, general manager John Lynch acknowledged that Brandon Aiyuk has "played his last snap as a 49er."`\
 https://nytimes.com/athletic/6989526/2026/01/21/mac-jones-trade-49ers-kyle-shanahan/
-
-**Submit your 2026 NHL Draft questions for Scott Wheeler's midseason mailbag**\
-`Have a question about this year's class, his list, his process, or one of your team's prospects?`\
-https://nytimes.com/athletic/6989576/2026/01/21/nhl-draft-2026-questions-scott-wheeler-mailbag/
-
-**House Panel Votes to Hold Clintons in Contempt in Epstein Inquiry**\
-`The votes by the Oversight Committee were bipartisan, though many Democrats said the charges were extreme given Bill and Hillary Clinton’s willingness to answer questions.`\
-https://nytimes.com/2026/01/21/us/politics/house-clintons-contempt-epstein.html
 
