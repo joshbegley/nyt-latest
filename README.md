@@ -1,3 +1,7 @@
+**Ex-Alabama player sues NCAA to try to return to college, nearly 3 years after entering NBA Draft**\
+`Bediako is believed to be the first modern example of a former college player attempting to return to college after entering the NBA Draft.`\
+https://nytimes.com/athletic/6987689/2026/01/20/charles-bediako-alabama-ncaa-lawsuit-basketball-eligibility/
+
 **They Might Be Foiled**\
 `Ginny Too and Avery Gee Katz make their collaboration debut in the New York Times Crossword.`\
 https://nytimes.com/2026/01/20/crosswords/daily-puzzle-2026-01-21.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/20/world/americas/mexico-cartels-suspects-trump.html
 **‘God Is Very Proud’: Trump Marks Anniversary With a Victory Lap**\
 `For roughly one hour 45 minutes, President Trump meandered through his accomplishments and grievances, attacked perceived enemies and threatened allies.`\
 https://nytimes.com/2026/01/20/us/politics/trump-anniversary-briefing.html
-
-**Trump Calls Renee Good’s Killing a ‘Tragedy’ and Says ICE Agents Will Make Mistakes**\
-`The change in tone was stark for the president, who said he had been told that Ms. Good’s father was a strong Trump supporter.`\
-https://nytimes.com/2026/01/20/us/politics/trump-renee-good-ice-shooting.html
 
