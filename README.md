@@ -1,3 +1,7 @@
+**Trump’s Moves on Greenland**\
+`After assailing Europe in a long speech at Davos, the president said he had won an agreement on the future of the Arctic territory.`\
+https://nytimes.com/2026/01/21/world/trumps-greenland-davos-isis-syria.html
+
 **Source: Inter Miami finalizing Berterame transfer, had Bouanga bid rejected**\
 `Inter Miami keeps thinking big as it builds out its roster, and that includes making a play for one of the most productive wingers in MLS`\
 https://nytimes.com/athletic/6989651/2026/01/21/inter-miami-german-berterame-transfer-denis-bouanga-bid-mls/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/21/us/politics/house-clintons-contempt-epstein.html
 **How to watch Flyers vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6989604/2026/01/21/flyers-vs-mammoth-stream-how-to-watch-jan-21/
-
-**How to watch Penguins vs. Flames: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Penguins play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6989602/2026/01/21/penguins-vs-flames-stream-how-to-watch-jan-21/
 

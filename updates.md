@@ -1,3 +1,11 @@
+**Source: Inter Miami finalizing Berterame transfer, had Bouanga bid rejected**\
+`Inter Miami keeps thinking big as it builds out its roster, and that includes making a play for one of the most productive wingers in MLS`\
+https://nytimes.com/athletic/6989651/2026/01/21/inter-miami-german-berterame-transfer-denis-bouanga-bid-mls/
+
+**Iran’s Protests Have Been Completely Squashed, Government Says**\
+`After a crackdown that killed thousands, Iran’s prosecutor general said on Wednesday that “the sedition is over now,”  vowing to punish those responsible for the protests.`\
+https://nytimes.com/2026/01/21/world/middleeast/iran-protests-crushed.html
+
 **'Not just quite yet': When will the Kings fully trust Brandt Clarke?**\
 `When the Kings are protecting a late lead, Clarke stays on the bench, even though his metrics are improving.`\
 https://nytimes.com/athletic/6989394/2026/01/21/brandt-clarke-la-kings-defense/

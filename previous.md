@@ -1,3 +1,11 @@
+**Source: Inter Miami finalizing Berterame transfer, had Bouanga bid rejected**\
+`Inter Miami keeps thinking big as it builds out its roster, and that includes making a play for one of the most productive wingers in MLS`\
+https://nytimes.com/athletic/6989651/2026/01/21/inter-miami-german-berterame-transfer-denis-bouanga-bid-mls/
+
+**Iran’s Protests Have Been Completely Squashed, Government Says**\
+`After a crackdown that killed thousands, Iran’s prosecutor general said on Wednesday that “the sedition is over now,”  vowing to punish those responsible for the protests.`\
+https://nytimes.com/2026/01/21/world/middleeast/iran-protests-crushed.html
+
 **'Not just quite yet': When will the Kings fully trust Brandt Clarke?**\
 `When the Kings are protecting a late lead, Clarke stays on the bench, even though his metrics are improving.`\
 https://nytimes.com/athletic/6989394/2026/01/21/brandt-clarke-la-kings-defense/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6989604/2026/01/21/flyers-vs-mammoth-stream-how-to-
 **How to watch Penguins vs. Flames: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6989602/2026/01/21/penguins-vs-flames-stream-how-to-watch-jan-21/
-
-**How to watch Thunder vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6989600/2026/01/21/thunder-vs-bucks-stream-how-to-watch-jan-21/
-
-**Appeals Court Stays Restrictions on Federal Tactics in Minnesota**\
-`The Eighth Circuit granted the Trump administration’s request to block, at least for now, a lower court’s injunction limiting how federal agents interact with protesters in the state.`\
-https://nytimes.com/2026/01/21/us/minnesota-injunction-protest-appeal.html
 
