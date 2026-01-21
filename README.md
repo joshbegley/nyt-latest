@@ -1,3 +1,11 @@
+**How to watch Rams at Seahawks: NFC Championship Game Time, TV, streaming**\
+`Find out how to watch the Los Angeles Rams play the Seattle Seahawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6987418/2026/01/20/rams-vs-seahawks-stream-how-to-watch-jan-25/
+
+**DOGE Employees Shared Social Security Data, Court Filing Shows**\
+`Employees detailed to the Social Security Administration shared sensitive data through a nonsecure server, the Justice Department disclosed.`\
+https://nytimes.com/2026/01/20/us/politics/doge-employees-social-security-data.html
+
 **The Buffalo Bills Will Break Your Heart**\
 `My hometown needs a win.`\
 https://nytimes.com/2026/01/20/opinion/culture/the-buffalo-bills-playoffs-loss-super-bowl-josh-allen.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/20/style/naomi-osaka-jellyfish-australian-open.html
 **Vances Say They’re Expecting Their Fourth Child**\
 `It is the first known time that a sitting second lady is expecting a baby while her husband is in office.`\
 https://nytimes.com/2026/01/20/us/politics/jd-usha-vance-baby-pregnant.html
-
-**Chris Mara on his increased role — and Tom Coughlin's advice — in the John Harbaugh chase**\
-`The younger brother of John Mara addressed reporters after John Harbaugh's introductory press conference.`\
-https://nytimes.com/athletic/6986998/2026/01/20/john-harbaugh-new-york-giants-hiring-process-salary/
-
-**Pats owner Robert Kraft pushing for 18-game schedule, international game for every team**\
-`Kraft says revenue growth from a longer season will help keep labor peace.`\
-https://nytimes.com/athletic/6987162/2026/01/20/patriots-robert-kraft-18-game-schedule/
 
