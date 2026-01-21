@@ -1,3 +1,7 @@
+**Bo Nix expresses faith in Stidham, Broncos after surgery 'went well'**\
+`The QB shared on Instagram the devastation caused by his injury and confidence in his backup in the AFC title game.`\
+https://nytimes.com/athletic/6989997/2026/01/21/bo-nix-broncos-surgery-jarrett-stidham/
+
 **Kennedy, Kicking Off National Tour, Says He’s Not Running for President**\
 `Health Secretary Robert F. Kennedy Jr. rallied supporters at the Pennsylvania State Capitol, where he promoted his new dietary guidelines.`\
 https://nytimes.com/2026/01/21/us/politics/kennedy-rfk-pennsylvania.html

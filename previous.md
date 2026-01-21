@@ -1,3 +1,7 @@
+**Bo Nix expresses faith in Stidham, Broncos after surgery 'went well'**\
+`The QB shared on Instagram the devastation caused by his injury and confidence in his backup in the AFC title game.`\
+https://nytimes.com/athletic/6989997/2026/01/21/bo-nix-broncos-surgery-jarrett-stidham/
+
 **Kennedy, Kicking Off National Tour, Says He’s Not Running for President**\
 `Health Secretary Robert F. Kennedy Jr. rallied supporters at the Pennsylvania State Capitol, where he promoted his new dietary guidelines.`\
 https://nytimes.com/2026/01/21/us/politics/kennedy-rfk-pennsylvania.html
@@ -25,8 +29,4 @@ https://nytimes.com/2026/01/21/business/media/fcc-late-night-stephen-colbert-jim
 **N.Y.C. Sues to Block Adams-Approved Police Reality Show With Dr. Phil**\
 `Dr. Phil, the celebrity psychologist, and Eric Adams agreed to collaborate on “Behind the Badge.” Now the city is suing to prevent the airing of “extremely problematic” footage.`\
 https://nytimes.com/2026/01/21/nyregion/new-york-city-police-reality-show-dr-phil.html
-
-**The Briefing: Chelsea 1 Pafos 0 - Low-block toils, set-piece reward but will this do in Naples?**\
-`Liam Rosenior's side dominated against the Cypriot minnows but only prevailed with a goal from a set piece 12 minutes from the end`\
-https://nytimes.com/athletic/6983722/2026/01/21/chelsea-pafos-rosenior-delap-caicedo-ucl/
 
