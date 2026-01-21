@@ -1,3 +1,7 @@
+**'Not just quite yet': When will the Kings fully trust Brandt Clarke?**\
+`When the Kings are protecting a late lead, Clarke stays on the bench, even though his metrics are improving.`\
+https://nytimes.com/athletic/6989394/2026/01/21/brandt-clarke-la-kings-defense/
+
 **Trump Targets European Allies in Lengthy Speech at Davos**\
 `In a speech at the World Economic Forum in Switzerland on Wednesday, President Trump reasserted his ambitions to seize Greenland, but pledged to not use force.`\
 https://nytimes.com/video/us/politics/100000010658354/trump-davos-greenland-ukraine-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6989600/2026/01/21/thunder-vs-bucks-stream-how-to-w
 **Appeals Court Stays Restrictions on Federal Tactics in Minnesota**\
 `The Eighth Circuit granted the Trump administration’s request to block, at least for now, a lower court’s injunction limiting how federal agents interact with protesters in the state.`\
 https://nytimes.com/2026/01/21/us/minnesota-injunction-protest-appeal.html
-
-**How to watch Hawks vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6989596/2026/01/21/hawks-vs-grizzlies-stream-how-to-watch-jan-21/
 
