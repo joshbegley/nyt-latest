@@ -1,3 +1,7 @@
+**Fantasy football WR and TE review: Justin Jefferson crashes, George Pickens soars and more**\
+`Jake Ciely runs through the biggest fantasy football 2025 hits and misses at the WR and TE positions, searching for lessons learned.`\
+https://nytimes.com/athletic/6984096/2026/01/21/fantasy-football-wide-receivers-tight-ends-review-overperformers-underperformers/
+
 **For Trump, the Supreme Court Case Reflects Goal to Remake the Fed**\
 `The president has spoken repeatedly of his desire to install a majority of political loyalists on the board of the rate-setting central bank.`\
 https://nytimes.com/2026/01/21/us/politics/trump-supreme-court-fed.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6988391/2026/01/21/claudia-martinez-washington-spir
 **Saving a Paris Movie Theater, With Help From Scorsese and Tarantino**\
 `After a saga that kept its supporters on the edge of their seats for years, a beloved art-house cinema is now open for business once more, run by volunteers this time.`\
 https://nytimes.com/2026/01/21/movies/la-clef-paris.html
-
-**A Brief From Every Living Former Fed Chair Could Sway the Justices**\
-`The filing, also signed by six former Treasury secretaries, said that letting President Trump fire Lisa Cook would deal a blow to the credibility of the nation’s monetary policy.`\
-https://nytimes.com/2026/01/21/us/politics/fed-governors-lisa-cook.html
 
