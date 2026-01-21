@@ -1,3 +1,7 @@
+**In Court Record, Official Describes Assault Before ICE Agent Shot Man in Minneapolis**\
+`The agent told an investigator that he was assaulted with a broom and a shovel before he fired a single shot that wounded a Venezuelan man.`\
+https://nytimes.com/2026/01/20/us/ice-shooting-minneapolis-charges.html
+
 **Submit questions for Jayson Stark’s Baseball Hall of Fame mailbag**\
 `Got Hall of Fame questions? Submit them here for Jayson Stark. `\
 https://nytimes.com/athletic/6987752/2026/01/20/baseball-hall-of-fame-questions-stark/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/20/us/tate-brothers-miami-heil-hitler-kanye-west.htm
 **House Foreign Affairs Members Call for Machado to Govern Venezuela**\
 `The Venezuelan opposition leader stressed the need for free elections in her latest bipartisan meeting with lawmakers.`\
 https://nytimes.com/2026/01/20/us/politics/house-foreign-affairs-machado-venezuela.html
-
-**Pressured by Trump, Mexico Sends 37 Accused Criminals to U.S.**\
-`Mexico has sought to do more to combat its cartels in an effort to stave off airstrikes threatened by President Trump.`\
-https://nytimes.com/2026/01/20/world/americas/mexico-cartels-suspects-trump.html
 
