@@ -1,3 +1,7 @@
+**90% of English football clubs expected to post losses for 2025, report finds**\
+`A survey of club finance directors by accountancy firm BDO found over a quarter said their club finances were “in need of attention”.`\
+https://nytimes.com/athletic/6988000/2026/01/21/football-finance-report-bdo/
+
 **A Year of Trump 2.0**\
 `What is your opinion of what President Trump has done in the first year of his second term? Why?`\
 https://nytimes.com/2026/01/21/learning/a-year-of-trump-2-0.html
@@ -19,7 +23,7 @@ https://nytimes.com/2026/01/21/arts/television/late-night-trump-greenland-nobel.
 https://nytimes.com/2026/01/21/learning/word-of-the-day-dearth.html
 
 **Gone in 58 seconds: What Rodri's red card said about him and Man City**\
-`The Spain international is struggling to recapture his pre-injury form but is also being exposed by City's system`\
+`The Spain international is struggling to recapture his pre-injury form, but is also being exposed by City's system`\
 https://nytimes.com/athletic/6987242/2026/01/21/rodri-manchester-city-bodo-glymt/
 
 **Warriors Windup: Raptors win big as Steph Curry, Golden State adjust without Jimmy Butler**\
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/01/21/todays-new-york-times
 **Trump’s Politics Are Not America First. They’re Me First.**\
 `Donald Trump is the most un-American president in our history. And in his second term, there is no one to constrain his un-American impulses.`\
 https://nytimes.com/2026/01/21/opinion/trump-greenland-europe-nato.html
-
-**Europe Has a Bazooka. Time to Use It.**\
-`For now, Europe’s anti-coercion instrument is less a bazooka than a waterlogged firecracker.`\
-https://nytimes.com/2026/01/21/opinion/europe-independence-trump-greenland.html
 

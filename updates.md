@@ -1,3 +1,11 @@
+**90% of English football clubs expected to post losses for 2025, report finds**\
+`A survey of club finance directors by accountancy firm BDO found over a quarter said their club finances were “in need of attention”.`\
+https://nytimes.com/athletic/6988000/2026/01/21/football-finance-report-bdo/
+
+**Gone in 58 seconds: What Rodri's red card said about him and Man City**\
+`The Spain international is struggling to recapture his pre-injury form, but is also being exposed by City's system`\
+https://nytimes.com/athletic/6987242/2026/01/21/rodri-manchester-city-bodo-glymt/
+
 **A Year of Trump 2.0**\
 `What is your opinion of what President Trump has done in the first year of his second term? Why?`\
 https://nytimes.com/2026/01/21/learning/a-year-of-trump-2-0.html

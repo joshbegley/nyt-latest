@@ -1,3 +1,7 @@
+**Air Force One Turns Around With Trump Aboard**\
+`Air Force One turned around while carrying President Trump due to a “minor electrical issue,” an official said. Trump was on his way to Davos, Switzerland for the World Economic Forum.`\
+https://nytimes.com/video/us/100000010657831/air-force-one-trump-turn-around.html
+
 **90% of English football clubs expected to post losses for 2025, report finds**\
 `A survey of club finance directors by accountancy firm BDO found over a quarter said their club finances were “in need of attention”.`\
 https://nytimes.com/athletic/6988000/2026/01/21/football-finance-report-bdo/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6987809/2026/01/21/warriors-raptors-score-results-s
 **The New York Times in Print for Wednesday, Jan. 21, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/21/todays-new-york-times
-
-**Trump’s Politics Are Not America First. They’re Me First.**\
-`Donald Trump is the most un-American president in our history. And in his second term, there is no one to constrain his un-American impulses.`\
-https://nytimes.com/2026/01/21/opinion/trump-greenland-europe-nato.html
 
