@@ -1,3 +1,19 @@
+**The fate of the Fed may turn on two words: ‘for cause.’**\
+`The Supreme Court has said the Federal Reserve Board’s independence warrants protection. President Trump’s effort to fire a member will test that commitment.`\
+https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook/the-fate-of-the-fed-may-turn-on-two-words-for-cause
+
+**Mets pay up to take a chance on Luis Robert: MLB Trade Grades**\
+`The Mets can take financial risks that few other organizations can afford. `\
+https://nytimes.com/athletic/6988482/2026/01/21/luis-robert-mets-white-sox-mlb-trade-grades/
+
+**Ben Kindel’s Calgary homecoming is about more than his rise with the Penguins**\
+`Kindel's time in Calgary made those around him believe that his path to the NHL would be quick — and not only because of his on-ice talent.`\
+https://nytimes.com/athletic/6987182/2026/01/21/penguins-ben-kindel-billet-family-nhl/
+
+**Who are the lawyers arguing over Trump’s effort to fire Lisa Cook?**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook/who-are-the-lawyers-arguing-over-trumps-effort-to-fire-lisa-cook
+
 **Fantasy football WR and TE review: Justin Jefferson crashes, George Pickens soars and more**\
 `Jake Ciely runs through the biggest fantasy football 2025 hits and misses at the WR and TE positions, searching for lessons learned.`\
 https://nytimes.com/athletic/6984096/2026/01/21/fantasy-football-wide-receivers-tight-ends-review-overperformers-underperformers/
@@ -17,20 +33,4 @@ https://nytimes.com/2026/01/21/us/politics/lisa-cook-mortgage-fraud-accusation.h
 **Newsom Calls World Leaders ‘Pathetic’ for ‘Rolling Over’ to Trump**\
 `Gov. Gavin Newsom of California told world leaders to “stop being complicit” and to “have a backbone” in dealing with President Trump and his threats to Greenland.`\
 https://nytimes.com/video/world/europe/100000010658327/newsom-trump-leaders-pathetic.html
-
-**City players refund away supporters after 3-1 loss at Bodo/Glimt**\
-`City's captains said it was "the least we could do" for the 374 fans who made the trip to the Arctic Circle.`\
-https://nytimes.com/athletic/6988496/2026/01/21/manchester-city-bodo-glimt-refund/
-
-**Trump’s retribution efforts have struggled with mortgage cases.**\
-`The sputtering push to bring charges against Letitia James, the New York attorney general, underscores the challenges the administration has faced in accusing her of mortgage fraud.`\
-https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook/trumps-retribution-efforts-have-struggled-with-mortgage-cases
-
-**Spirit finalizing deal for Claudia Martinez, says Club Olimpia president**\
-`“The conversations are very advanced. We are currently in the contract-drafting stage,” Rodrigo Nogués told The Athletic.`\
-https://nytimes.com/athletic/6988391/2026/01/21/claudia-martinez-washington-spirit-olimpia/
-
-**Saving a Paris Movie Theater, With Help From Scorsese and Tarantino**\
-`After a saga that kept its supporters on the edge of their seats for years, a beloved art-house cinema is now open for business once more, run by volunteers this time.`\
-https://nytimes.com/2026/01/21/movies/la-clef-paris.html
 
