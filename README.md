@@ -1,3 +1,7 @@
+**Manchester United agree deal to create 'The Crown'-style TV series**\
+`Club are developing plans with North American production company Lionsgate for a drama chronicling their history`\
+https://nytimes.com/athletic/6987789/2026/01/21/manchester-united-tv-series-crown-lionsgate/
+
 **Inaugural FIFA Women’s Club World Cup could be 'catastrophic' for WSL**\
 `WSL Football fears the timing of FIFA’s new competition could be detrimental to English football's competitions.`\
 https://nytimes.com/athletic/6988245/2026/01/21/womens-club-world-cup-wsl-fifa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986974/2026/01/21/ohio-state-transfer-portal-commi
 **Trump 2.0**\
 `We look at the first year of the president’s second term.`\
 https://nytimes.com/2026/01/21/briefing/trump-first-year-back.html
-
-**Indiana gives hope and joy, but which programs should actually feel bad about this?**\
-`There are a lot of coaches who, if pressed, could not come up with tangible explanation of why Indiana went 16-0 and they didn't come close.`\
-https://nytimes.com/athletic/6986926/2026/01/21/indiana-national-championship-penn-state-tennessee-usc-notre-dame/
 
