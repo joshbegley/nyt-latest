@@ -1,3 +1,5 @@
+
+
 **Eye Condition Causes Macron to Take Stage in Shades at Davos**\
 `A medical issue, not the dictates of fashion, led President Emanuel Macron of France to address the World Economic Forum in Davos, Switzerland, wearing sunglasses. The condition typically goes away without treatment within two weeks.`\
 https://nytimes.com/video/world/europe/100000010658206/eye-condition-causes-macron-to-take-stage-in-shades-at-davos.html
