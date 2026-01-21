@@ -1,3 +1,7 @@
+**On Day 1, Mikie Sherrill Focuses on Utility Costs and Children’s Safety**\
+`The new governor of New Jersey signed six executive orders after taking office on Tuesday. They matched the priorities she campaigned on last year.`\
+https://nytimes.com/2026/01/20/nyregion/mikie-sherrill-executive-orders-new-jersey.html
+
 **How to watch Rams at Seahawks: NFC Championship Game Time, TV, streaming**\
 `Find out how to watch the Los Angeles Rams play the Seattle Seahawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6987418/2026/01/20/rams-vs-seahawks-stream-how-to-watch-jan-25/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6987327/2026/01/20/nfl-titans-dolphins-coach-indian
 **Pushing the Boundaries of Tennis Clothes**\
 `Arriving to her first match at the Australian Open, Naomi Osaka wore couture designs with athletic wear. Was it a sign of outfits to come?`\
 https://nytimes.com/2026/01/20/style/naomi-osaka-jellyfish-australian-open.html
-
-**Vances Say They’re Expecting Their Fourth Child**\
-`It is the first known time that a sitting second lady is expecting a baby while her husband is in office.`\
-https://nytimes.com/2026/01/20/us/politics/jd-usha-vance-baby-pregnant.html
 

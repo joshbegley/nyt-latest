@@ -1,3 +1,19 @@
+**How to watch Rams at Seahawks: NFC Championship Game Time, TV, streaming**\
+`Find out how to watch the Los Angeles Rams play the Seattle Seahawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6987418/2026/01/20/rams-vs-seahawks-stream-how-to-watch-jan-25/
+
+**DOGE Employees Shared Social Security Data, Court Filing Shows**\
+`Employees detailed to the Social Security Administration shared sensitive data through a nonsecure server, the Justice Department disclosed.`\
+https://nytimes.com/2026/01/20/us/politics/doge-employees-social-security-data.html
+
+**The Buffalo Bills Will Break Your Heart**\
+`My hometown needs a win.`\
+https://nytimes.com/2026/01/20/opinion/culture/the-buffalo-bills-playoffs-loss-super-bowl-josh-allen.html
+
+**Ex-N.Y.P.D. Officer Cleared of Spying for China Sues Over Firing**\
+`Federal prosecutors quietly dropped their case against the officer, but a Police Department investigation based on the charges led to his firing, the suit says.`\
+https://nytimes.com/2026/01/20/nyregion/nypd-officer-spying-china.html
+
 **Georges Borchardt, 97, Dies; Literary Agent Championed Wiesel’s ‘Night’**\
 `Renowned in his field, he counted among his clients five Nobel laureates, including Elie Wiesel, and eight Pulitzer winners as well as the estates of Tennessee Williams and Aldous Huxley.`\
 https://nytimes.com/2026/01/20/obituaries/georges-borchardt-dead.html
