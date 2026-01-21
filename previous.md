@@ -1,3 +1,11 @@
+**Giants Introduced Harbaugh as Head Coach. Now What Happens?**\
+`The New York Giants introduced John Harbaugh as their new head coach on Jan. 20, landing the top candidate available for the role. The Athletic’s Charlotte Carroll reports on what Harbaugh has changed in the front office already.`\
+https://nytimes.com/video/the-athletic/100000010658851/giants-introduced-harbaugh-as-head-coach-now-what-happens.html
+
+**Are the 'content' Phillies better than the 2025 team?**\
+`It's difficult to conclude they're better. It's just as hard to say they're measurably worse. But their vulnerable points look more exposed.`\
+https://nytimes.com/athletic/6988777/2026/01/21/phillies-offseason-roster-analysis/
+
 **Trump Appears to Confuse Iceland and Greenland**\
 `“Our stock market took the first dip yesterday because of Iceland,” the president said, referring to market shifts related to his repeated threats to seize Greenland. “So Iceland’s already cost us a lot of money.”`\
 https://nytimes.com/2026/01/21/us/politics/trump-greenland-iceland-confusion.html
@@ -18,7 +26,7 @@ https://nytimes.com/2026/01/21/magazine/family-reunion-ethics.html
 `The death of Daniel Naroditsky exposed the conflicts between the game’s traditional wing and its many online stars.`\
 https://nytimes.com/2026/01/21/arts/chess-online-naroditsky-kramnik.html
 
-**Cadillac team principal says F1 team received more than 140,000 applications**\
+**Cadillac team principal says F1 team received more than 140,000 job applications**\
 `Lowdon added that the team had only advertised 595 positions, with the majority to be filled by December 2025.`\
 https://nytimes.com/athletic/6988812/2026/01/21/cadillac-f1-job-applications-graeme-lowdon/
 
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010658206/eye-condition-causes-macr
 **Bills early candidate list includes Brian Daboll, Joe Brady, Lou Anarumo**\
 `The Bills already have a list of six candidates for their head coaching job, a number that is expected to grow. `\
 https://nytimes.com/athletic/6988732/2026/01/21/bills-head-coach-candidates-brian-daboll-joe-brady/
-
-**Is America Ready for a Female President? Michelle Obama and Whitmer Disagree.**\
-`As Mrs. Obama defended her remarks from November that the country wasn’t ready for a woman as president, Gov. Gretchen Whitmer of Michigan offered a different view.`\
-https://nytimes.com/2026/01/21/us/politics/michelle-obama-gretchen-whitmer-female-president.html
-
-**Bills owner Terry Pegula explains Sean McDermott's firing: 'I know we can do better'**\
-`The Bills' playoff loss to the Denver Broncos led to the decision, Pegula said.`\
-https://nytimes.com/athletic/6988685/2026/01/21/nfl-bills-firing-mcdermott-coach-gm-owner/
 
