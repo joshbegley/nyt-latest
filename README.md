@@ -1,3 +1,7 @@
+**Kuminga Mania takes another turn for Jimmy Butler-less Warriors**\
+`Jonathan Kuminga returned to action for the Warriors in Tuesday night's loss to Toronto, scoring 20 points in 21 minutes off the bench.`\
+https://nytimes.com/athletic/6988065/2026/01/21/jonathan-kuminga-warriors-jimmy-butler/
+
 **Live Updates: NATO Faces Pressure as Trump Brings Greenland Dispute to Davos**\
 ``\
 https://nytimes.com/live/2026/01/21/us/trump-davos-greenland-news
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/21/learning/word-of-the-day-dearth.html
 **Gone in 58 seconds: What Rodri's red card said about him and Man City**\
 `The Spain international is struggling to recapture his pre-injury form, but is also being exposed by City's system`\
 https://nytimes.com/athletic/6987242/2026/01/21/rodri-manchester-city-bodo-glymt/
-
-**Warriors Windup: Raptors win big as Steph Curry, Golden State adjust without Jimmy Butler**\
-`The Warriors couldn't keep pace against a more athletic and aggressive Raptors team.`\
-https://nytimes.com/athletic/6987809/2026/01/21/warriors-raptors-score-results-stats-steph-curry-jimmy-butler/
 
