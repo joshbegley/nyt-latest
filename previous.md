@@ -1,3 +1,7 @@
+**N.Y.C. Sues to Block Adams-Approved Police Reality Show With Dr. Phil**\
+`Dr. Phil, the celebrity psychologist, and Eric Adams agreed to collaborate on “Behind the Badge.” Now the city is suing to prevent the airing of “extremely problematic” footage.`\
+https://nytimes.com/2026/01/21/nyregion/new-york-city-police-reality-show-dr-phil.html
+
 **The Briefing: Chelsea 1 Pafos 0 - Low-block toils, set-piece reward but will this do in Naples?**\
 `Liam Rosenior's side dominated against the Cypriot minnows but only prevailed with a goal from a set piece 12 minutes from the end`\
 https://nytimes.com/athletic/6983722/2026/01/21/chelsea-pafos-rosenior-delap-caicedo-ucl/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6983723/2026/01/21/liverpool-szoboszlai-free-kick-c
 **2026 Midterm Elections**\
 ``\
 https://nytimes.com/news-event/2026-midterm-elections
-
-**Quick! What Are Your Dating Rules?**\
-`Advice abounds on how, when and whom to date. What are your best rules for navigating early romance?`\
-https://nytimes.com/2026/01/21/style/modern-love-what-are-your-dating-rules.html
 
