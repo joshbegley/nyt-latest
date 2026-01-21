@@ -1,3 +1,7 @@
+**Prince Harry Gives Emotional Testimony About Effects of U.K. News Coverage**\
+`Harry said in court that reading articles about him published by Associated Newspapers, which he has accused of acting unlawfully, had been “traumatic.”`\
+https://nytimes.com/2026/01/21/world/europe/prince-harry-emotional-court-daily-mail.html
+
 **The Bounce: The Warriors' season is over. Can the Knicks save theirs?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6988531/2026/01/21/warriors-knicks-nba-the-bounce/

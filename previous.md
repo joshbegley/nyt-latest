@@ -1,3 +1,7 @@
+**Prince Harry Gives Emotional Testimony About Effects of U.K. News Coverage**\
+`Harry said in court that reading articles about him published by Associated Newspapers, which he has accused of acting unlawfully, had been “traumatic.”`\
+https://nytimes.com/2026/01/21/world/europe/prince-harry-emotional-court-daily-mail.html
+
 **The Bounce: The Warriors' season is over. Can the Knicks save theirs?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6988531/2026/01/21/warriors-knicks-nba-the-bounce/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6984096/2026/01/21/fantasy-football-wide-receivers-
 **For Trump, the Supreme Court Case Reflects Goal to Remake the Fed**\
 `The president has spoken repeatedly of his desire to install a majority of political loyalists on the board of the rate-setting central bank.`\
 https://nytimes.com/2026/01/21/us/politics/trump-supreme-court-fed.html
-
-**As Europe Tries to Diversify Trade, a Major Deal With South America Stumbles**\
-`The move by the European Parliament delays a push by the bloc to find new trading partners, as President Trump has threatened escalating U.S. tariffs.`\
-https://nytimes.com/2026/01/21/us/politics/mercosur-trade-deal-eu.html
 

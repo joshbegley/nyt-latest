@@ -1,3 +1,11 @@
+**For Travelers in 2026, Prices Are All Over the Map**\
+`Luxury travelers can expect to pay more than they did last year, while budget travelers might get a break.`\
+https://nytimes.com/2026/01/21/travel/prices-are-all-over-the-map.html
+
+**The New Wild Card on Travelers’ Itineraries: Uncertainty**\
+`Politics, military action and climate change have increased risk for destinations that once seemed like sure bets, forcing travelers to change how they plan.`\
+https://nytimes.com/2026/01/21/travel/uncertainty-is-the-only-certainty.html
+
 **Prince Harry Gives Emotional Testimony About Effects of U.K. News Coverage**\
 `Harry said in court that reading articles about him published by Associated Newspapers, which he has accused of acting unlawfully, had been “traumatic.”`\
 https://nytimes.com/2026/01/21/world/europe/prince-harry-emotional-court-daily-mail.html
@@ -29,8 +37,4 @@ https://nytimes.com/live/2026/01/21/us/supreme-court-fed-lisa-cook/who-are-the-l
 **Diagnosing Justin Jefferson's fantasy football decline, George Pickens' ascent**\
 `Jake Ciely runs through the biggest fantasy football 2025 hits and misses at the WR and TE positions, searching for lessons learned.`\
 https://nytimes.com/athletic/6984096/2026/01/21/fantasy-football-wide-receivers-tight-ends-review-overperformers-underperformers/
-
-**For Trump, the Supreme Court Case Reflects Goal to Remake the Fed**\
-`The president has spoken repeatedly of his desire to install a majority of political loyalists on the board of the rate-setting central bank.`\
-https://nytimes.com/2026/01/21/us/politics/trump-supreme-court-fed.html
 
