@@ -1,3 +1,15 @@
+**Harry Brook 'lucky' to remain England captain and pledges to regain trust of his players**\
+`The white-ball skipper has apologised after being disciplined following a late-night altercation with a bouncer in New Zealand last October`\
+https://nytimes.com/athletic/6987188/2026/01/21/harry-brook-england-captain-apology/
+
+**Kuminga Mania takes another turn for Jimmy Butler-less Warriors**\
+`Jonathan Kuminga returned to action for the Warriors in Tuesday night's loss to Toronto, scoring 20 points in 21 minutes off the bench.`\
+https://nytimes.com/athletic/6988065/2026/01/21/jonathan-kuminga-warriors-jimmy-butler/
+
+**The extraordinary story of a soccer coach, a kidnapping and a Saudi job that didn't exist**\
+`Adrian Heath was duped into thinking he was on the verge of a new job – only to be held at knifepoint in Morocco. Turns out he's not alone`\
+https://nytimes.com/athletic/6985628/2026/01/21/adrian-heath-kidnapped-morocco-manager-saudi-arabia-scam/
+
 **Live Updates: NATO Faces Pressure as Trump Brings Greenland Dispute to Davos**\
 ``\
 https://nytimes.com/live/2026/01/21/us/trump-davos-greenland-news
