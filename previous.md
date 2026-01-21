@@ -1,3 +1,7 @@
+**Senegal president awards AFCON winners plot of land on coastline**\
+`Bassirou Diomaye Faye has announced each member of the Africa Cup of Nations-winning squad will receive bonuses and land.`\
+https://nytimes.com/athletic/6988373/2026/01/21/senegal-afcon-bonuses-beach/
+
 **Michele Tafoya Announces Senate Run in Minnesota**\
 `Ms. Tafoya, once a sideline reporter for N.F.L. games, has more recently turned her focus to Republican politics. She is seeking an open seat now held by a Democrat.`\
 https://nytimes.com/2026/01/21/us/politics/michele-tafoya-senate-minnesota.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6987736/2026/01/21/luis-suarez-sporting-cp-colombia
 **Australian Open recap: Emma Raducanu says she will change her tennis after loss on Day 4**\
 `The 2021 U.S. Open champion said she needs to change her game after a second-round loss in Melbourne.`\
 https://nytimes.com/athletic/6987269/2026/01/21/tennis-australian-recap-results-matches-day-4/
-
-**‘Adaptive Normalcy’ as the Trump Show Arrives at Davos**\
-`The president’s address at the World Economic Forum in Switzerland has trading partners and business executives on edge.`\
-https://nytimes.com/2026/01/21/business/dealbook/davos-trump-speech.html
 

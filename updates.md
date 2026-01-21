@@ -1,3 +1,7 @@
+**Senegal president awards AFCON winners plot of land on coastline**\
+`Bassirou Diomaye Faye has announced each member of the Africa Cup of Nations-winning squad will receive bonuses and land.`\
+https://nytimes.com/athletic/6988373/2026/01/21/senegal-afcon-bonuses-beach/
+
 **Reed Sheppard's big fourth-quarter against Spurs shows how Rockets can contend**\
 `With Steven Adams sidelined for a while, Houston needs complementary players like Sheppard to step up. They did against San Antonio.`\
 https://nytimes.com/athletic/6988153/2026/01/21/rockets-reed-sheppard-spurs-durant-wemby/
