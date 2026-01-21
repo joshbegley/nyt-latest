@@ -1,3 +1,11 @@
+**WNBA releases 2026 schedule amid CBA negotiations**\
+`Opening weekend will feature new expansion teams and a Clark-Bueckers showdown. `\
+https://nytimes.com/athletic/6989820/2026/01/21/wnba-2026-schedule-cba/
+
+**Tiny Love Stories: ‘Anger Drains Into Shame’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/01/21/style/tiny-modern-love-stories-anger-drains-into-shame.html
+
 **Barbara Aronstein Black, a First as a Law School Dean, Dies at 92**\
 `A legal historian, she broke a gender barrier as the first woman to lead an Ivy League law school, serving as dean of Columbia Law from 1986 to 1991.`\
 https://nytimes.com/2026/01/21/us/barbara-aronstein-black-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/21/world/middleeast/iran-protests-crushed.html
 **'Not just quite yet': When will the Kings fully trust Brandt Clarke?**\
 `When the Kings are protecting a late lead, Clarke stays on the bench, even though his metrics are improving.`\
 https://nytimes.com/athletic/6989394/2026/01/21/brandt-clarke-la-kings-defense/
-
-**Trump Targets European Allies in Lengthy Speech at Davos**\
-`In a speech at the World Economic Forum in Switzerland on Wednesday, President Trump reasserted his ambitions to seize Greenland, but pledged to not use force.`\
-https://nytimes.com/video/us/politics/100000010658354/trump-davos-greenland-ukraine-russia.html
-
-**With Cody Bellinger back in fold, Yankees' next target should be Freddy Peralta**\
-`The Yankees should now remind the baseball world that — like the Dodgers and Mets — they, too, can land top talent on the market. `\
-https://nytimes.com/athletic/6989284/2026/01/21/yankees-cody-bellinger-freddy-peralta-trade/
 

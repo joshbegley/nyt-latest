@@ -1,3 +1,7 @@
+**Chelsea and Man United to meet in Women's League Cup final**\
+`The League Cup final will take place on March 15 at Bristol City's Ashton Gate.`\
+https://nytimes.com/athletic/6989657/2026/01/21/chelsea-man-united-womens-league-cup/
+
 **Barbara Aronstein Black, a First as a Law School Dean, Dies at 92**\
 `A legal historian, she broke a gender barrier as the first woman to lead an Ivy League law school, serving as dean of Columbia Law from 1986 to 1991.`\
 https://nytimes.com/2026/01/21/us/barbara-aronstein-black-dead.html
