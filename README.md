@@ -1,3 +1,15 @@
+**Supreme Court Hearing Reveals Unease Over Threats to Fed Independence**\
+`As the justices weighed the consequences of allowing President Trump to fire a Federal Reserve official, the president reprised his pressure campaign on the central bank.`\
+https://nytimes.com/2026/01/21/us/politics/supreme-court-trump-fed-independence.html
+
+**Greenlanders and Danes Hopeful but Some Are Upset by Talk of a ‘Deal’**\
+`A lot of confusion was swirling in Denmark and Greenland after President Trump’s bombshell of a post on social media.`\
+https://nytimes.com/2026/01/21/world/asia/trump-greenland-deal-news.html
+
+**CBS says Broncos-Bills clash was most-watched Saturday NFL playoff game ever**\
+`CBS said the Broncos-Bills game was the most-watched Saturday telecast since the 1994 Winter Olympics.`\
+https://nytimes.com/athletic/6989887/2026/01/21/broncos-bills-most-watched-saturday-nfl-playoff-game/
+
 **This Group Wants to Protect Candidates From a ‘Cloud’ of Political Violence**\
 `Two leaders of a political security group talked about what they’re seeing and hearing.`\
 https://nytimes.com/2026/01/21/us/politics/us-political-violence-2026-elections.html
@@ -19,18 +31,10 @@ https://nytimes.com/athletic/6989997/2026/01/21/bo-nix-broncos-surgery-jarrett-s
 https://nytimes.com/2026/01/21/us/politics/kennedy-rfk-pennsylvania.html
 
 **Judge Rules for Democrats in Push to Redraw N.Y.C. House District**\
-`The ruling, which is expected to be appealed, allows the state to change the boundary lines of a district largely based on Staten Island and held by a Republican since 2021.`\
+`The ruling, which is expected to be appealed, allows the state to change the boundary lines of a district held by a Staten Island Republican since 2021.`\
 https://nytimes.com/2026/01/21/nyregion/redistricting-congress-new-york.html
 
 **McKennie on target again as Juventus cruise in Champions League win**\
 `European competition has brought out the best in McKennie months before the World Cup.`\
 https://nytimes.com/athletic/6989978/2026/01/21/weston-mckennie-on-target-again-as-juventus-cruise-in-champions-league-win/
-
-**Heart Disease and Stroke Behind Quarter of All Deaths in U.S.**\
-`Deaths from both causes are down, but they still eclipse all other causes, according to new statistics.`\
-https://nytimes.com/2026/01/21/well/us-leading-death-cause-stroke-heart-disease.html
-
-**Who Needs A.I. Music When We Have Bruno Mars?**\
-`Our critic Jon Caramanica on the smooth pop sound of Bruno Mars’s new single.`\
-https://nytimes.com/video/podcasts/100000010659530/who-needs-ai-music-when-we-have-bruno-mars.html
 

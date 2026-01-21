@@ -1,3 +1,19 @@
+**This Group Wants to Protect Candidates From a ‘Cloud’ of Political Violence**\
+`Two leaders of a political security group talked about what they’re seeing and hearing.`\
+https://nytimes.com/2026/01/21/us/politics/us-political-violence-2026-elections.html
+
+**Sabres sign Josh Doan to 7-year, $6.95 million AAV extension**\
+`Doan has been a home-run addition for Buffalo after joining the team in the offseason as part of the JJ Peterka trade with Utah.`\
+https://nytimes.com/athletic/6990013/2026/01/21/sabres-josh-doan-contract-extension/
+
+**Trump Said He Reached a Deal Over the Future of Greenland**\
+`Also, the Supreme Court seems skeptical of Trump’s attempt to fire a Fed governor. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2026/01/21/briefing/trump-greenland-davos-supreme-court-fed.html
+
+**Judge Rules for Democrats in Push to Redraw N.Y.C. House District**\
+`The ruling, which is expected to be appealed, allows the state to change the boundary lines of a district largely based on Staten Island and held by a Republican since 2021.`\
+https://nytimes.com/2026/01/21/nyregion/redistricting-congress-new-york.html
+
 **Bo Nix expresses faith in Stidham, Broncos after surgery 'went well'**\
 `The QB shared on Instagram the devastation caused by his injury and confidence in his backup in the AFC title game.`\
 https://nytimes.com/athletic/6989997/2026/01/21/bo-nix-broncos-surgery-jarrett-stidham/
