@@ -1,3 +1,7 @@
+**Gone in 58 seconds: What Rodri's red card said about him and Man City**\
+`The Spain international is struggling to recapture his pre-injury form but is also being exposed by City's system`\
+https://nytimes.com/athletic/6987242/2026/01/21/rodri-manchester-city-bodo-glymt/
+
 **Warriors Windup: Raptors win big as Steph Curry, Golden State adjust without Jimmy Butler**\
 `The Warriors couldn't keep pace against a more athletic and aggressive Raptors team.`\
 https://nytimes.com/athletic/6987809/2026/01/21/warriors-raptors-score-results-stats-steph-curry-jimmy-butler/
