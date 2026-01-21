@@ -1,3 +1,11 @@
+**Sabres sign Josh Doan to 7-year, $6.95 million AAV extension**\
+`Doan was acquired by Buffalo in the offseason from the Utah Mammoth as part of the JJ Peterka trade.`\
+https://nytimes.com/athletic/6990013/2026/01/21/sabres-josh-doan-contract-extension/
+
+**Trump Said He Reached a Deal Over the Future of Greenland**\
+`Also, the Supreme Court seems skeptical of Trump’s attempt to fire a Fed governor. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2026/01/21/briefing/trump-greenland-davos-supreme-court-fed.html
+
 **Bo Nix expresses faith in Stidham, Broncos after surgery 'went well'**\
 `The QB shared on Instagram the devastation caused by his injury and confidence in his backup in the AFC title game.`\
 https://nytimes.com/athletic/6989997/2026/01/21/bo-nix-broncos-surgery-jarrett-stidham/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/6989997/2026/01/21/bo-nix-broncos-surgery-jarrett-s
 https://nytimes.com/2026/01/21/us/politics/kennedy-rfk-pennsylvania.html
 
 **Judge Rules for Democrats in Push to Redraw N.Y.C. House District**\
-`The ruling, which is expected to be appealed, allows the state to change the boundary lines of a Staten Island district held by a Republican since 2021.`\
+`The ruling, which is expected to be appealed, allows the state to change the boundary lines of a district largely based on Staten Island and held by a Republican since 2021.`\
 https://nytimes.com/2026/01/21/nyregion/redistricting-congress-new-york.html
 
 **McKennie on target again as Juventus cruise in Champions League win**\
@@ -25,8 +33,4 @@ https://nytimes.com/video/podcasts/100000010659530/who-needs-ai-music-when-we-ha
 **Federal Regulators Take New Aim at Late-Night TV**\
 `The F.C.C. said it planned to enforce long-dormant rules on appearances by political candidates on network talk shows.`\
 https://nytimes.com/2026/01/21/business/media/fcc-late-night-stephen-colbert-jimmy-kimmel.html
-
-**N.Y.C. Sues to Block Adams-Approved Police Reality Show With Dr. Phil**\
-`Dr. Phil, the celebrity psychologist, and Eric Adams agreed to collaborate on “Behind the Badge.” Now the city is suing to prevent the airing of “extremely problematic” footage.`\
-https://nytimes.com/2026/01/21/nyregion/new-york-city-police-reality-show-dr-phil.html
 
