@@ -1,3 +1,7 @@
+**City players refund away supporters after 3-1 loss at Bodo/Glimt**\
+`City's captains said it was "the least we could do" for the 374 fans who made the trip to the Arctic Circle.`\
+https://nytimes.com/athletic/6988496/2026/01/21/manchester-city-bodo-glimt-refund/
+
 **What Is Lisa Cook, the Fed Governor, Accused of Doing?**\
 `The Trump administration has accused Lisa D. Cook, a Fed governor, of engaging in mortgage fraud, but financial documents cast doubt on the claims.`\
 https://nytimes.com/2026/01/21/us/politics/lisa-cook-mortgage-fraud-accusation.html
