@@ -1,3 +1,7 @@
+**Pressured by Trump, Mexico Sends 37 Accused Criminals to U.S.**\
+`Mexico has sought to do more to combat its cartels in an effort to stave off airstrikes threatened by President Trump.`\
+https://nytimes.com/2026/01/20/world/americas/mexico-cartels-suspects-trump.html
+
 **‘God Is Very Proud’: Trump Marks Anniversary With a Victory Lap**\
 `For roughly one hour 45 minutes, President Trump meandered through his accomplishments and grievances, attacked perceived enemies and threatened allies.`\
 https://nytimes.com/2026/01/20/us/politics/trump-anniversary-briefing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6987418/2026/01/20/rams-vs-seahawks-stream-how-to-w
 **DOGE Employees Shared Social Security Data, Court Filing Shows**\
 `Employees detailed to the Social Security Administration shared sensitive data through a nonsecure server, the Justice Department disclosed.`\
 https://nytimes.com/2026/01/20/us/politics/doge-employees-social-security-data.html
-
-**The Buffalo Bills Will Break Your Heart**\
-`My hometown needs a win.`\
-https://nytimes.com/2026/01/20/opinion/culture/the-buffalo-bills-playoffs-loss-super-bowl-josh-allen.html
 
