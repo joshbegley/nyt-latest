@@ -1,3 +1,11 @@
+**Dozens Are Sickened by a Rare Fungal Infection in Tennessee**\
+`One person who contracted it died. The fungus is commonly found in soil in the Ohio River and Mississippi River valleys, and the illness is not contagious.`\
+https://nytimes.com/2026/01/21/us/histoplasmosis-outbreak-tennessee.html
+
+**Parents Sue Residential Home Over Abuse of Their Autistic Son**\
+`Anil and Shalini Babbar said they would not have known about the abuse their teenager was enduring at the home in upstate New York if a whistle-blower had not sent footage of an assault.`\
+https://nytimes.com/2026/01/21/nyregion/anderson-autism-center-suit.html
+
 **Sabres sign Josh Doan to 7-year, $6.95 million AAV contract extension**\
 `Doan has been a home-run addition for Buffalo after joining the team in the offseason as part of the JJ Peterka trade with Utah.`\
 https://nytimes.com/athletic/6990013/2026/01/21/sabres-josh-doan-contract-extension/
