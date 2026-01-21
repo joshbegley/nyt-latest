@@ -1,3 +1,7 @@
+**Michele Tafoya Announces Senate Run in Minnesota**\
+`Ms. Tafoya, once a sideline reporter for N.F.L. games, has more recently turned her focus to Republican politics. She is seeking an open seat now held by a Democrat.`\
+https://nytimes.com/2026/01/21/us/politics/michele-tafoya-senate-minnesota.html
+
 **Nottingham Forest open to Cuiabano exit, eyeing Liverpool's Tsimikas**\
 `The Brazilian left-back, was one of three players signed from Botafogo last summer but is yet to make a senior Forest appearance.`\
 https://nytimes.com/athletic/6988329/2026/01/21/nottingham-forest-transfers-cuiabano-kostas-tsimikas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6987269/2026/01/21/tennis-australian-recap-results-
 **‘Adaptive Normalcy’ as the Trump Show Arrives at Davos**\
 `The president’s address at the World Economic Forum in Switzerland has trading partners and business executives on edge.`\
 https://nytimes.com/2026/01/21/business/dealbook/davos-trump-speech.html
-
-**Manchester United agree deal to create 'The Crown'-style TV series**\
-`Club are developing plans with North American production company Lionsgate for a drama chronicling their history`\
-https://nytimes.com/athletic/6987789/2026/01/21/manchester-united-tv-series-crown-lionsgate/
 
