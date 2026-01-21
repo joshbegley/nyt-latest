@@ -2,7 +2,7 @@
 `A similar operation that unfolded in Minnesota became a flashpoint between protesters and immigration authorities.`\
 https://nytimes.com/2026/01/21/us/maine-somali-immigration-enforcement.html
 
-**Chelsea close on signing Sheffield Wednesday's Alao, Man Utd remain in talks**\
+**Chelsea close on signing Sheff Weds' Alao, Man Utd remain in talks**\
 `Alao has made five appearances for Wednesday’s first-team this season, playing a total of 186 minutes across all competitions.`\
 https://nytimes.com/athletic/6988180/2026/01/21/alao-chelsea-manchester-united-transfer-news/
 

@@ -1,3 +1,11 @@
+**Trump Administration Starts Immigration Operation in Maine**\
+`A similar operation that unfolded in Minnesota became a flashpoint between protesters and immigration authorities.`\
+https://nytimes.com/2026/01/21/us/maine-somali-immigration-enforcement.html
+
+**Chelsea close on signing Sheffield Wednesday's Alao, Man Utd remain in talks**\
+`Alao has made five appearances for Wednesday’s first-team this season, playing a total of 186 minutes across all competitions.`\
+https://nytimes.com/athletic/6988180/2026/01/21/alao-chelsea-manchester-united-transfer-news/
+
 **After promising new U.S. housing policies in Davos speech, Trump offers few details.**\
 `President Trump and his aides have mentioned various ideas for improving housing affordability, but the specifics are still unclear.`\
 https://nytimes.com/live/2026/01/21/us/trump-davos-greenland-news/after-promising-new-us-housing-policies-in-davos-speech-trump-offers-few-details
