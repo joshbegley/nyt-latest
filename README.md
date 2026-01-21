@@ -1,5 +1,5 @@
 **‘God Is Very Proud’: Trump Marks Anniversary With a Victory Lap**\
-`For roughly an hour and 45 minutes, President Trump meandered through his accomplishments and grievances, attacked perceived enemies and threatened allies.`\
+`For roughly one hour 45 minutes, President Trump meandered through his accomplishments and grievances, attacked perceived enemies and threatened allies.`\
 https://nytimes.com/2026/01/20/us/politics/trump-anniversary-briefing.html
 
 **Trump Calls Renee Good’s Killing a ‘Tragedy’ and Says ICE Agents Will Make Mistakes**\
