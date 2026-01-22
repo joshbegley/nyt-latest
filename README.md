@@ -10,10 +10,6 @@ https://nytimes.com/2026/01/22/learning/word-of-the-day-strident.html
 `Eddie Howe's side have not had a free midweek since August but this is what they want: to still be in competitions when it really matters`\
 https://nytimes.com/athletic/6990142/2026/01/22/newcastle-psv-champions-league-games/
 
-**Set-piece problems? Curiously, Liverpool lead the way in the Champions League**\
-`Set pieces at both ends of the pitch have been a big issue for the club this season, but there are no such problems in the Champions League`\
-https://nytimes.com/athletic/6990356/2026/01/22/liverpool-marseille-set-pieces/
-
 **The New York Times in Print for Thursday, Jan. 22, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/22/todays-new-york-times
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6988925/2026/01/22/jota-silva-interview-summer-of-u
 **Why do Brighton have so few 'peak age' players in their ranks?**\
 `Fabian Hurzeler's squad largely comprises either youngsters brimming with potential or elder statesmen, with not much else in between`\
 https://nytimes.com/athletic/6985229/2026/01/22/brighton-hurzeler-peak-age-recruitment-squad/
+
+**Why Nwaneri is heading to Marseille and what Arsenal - and Arteta - hope he gets from it**\
+`Nwaneri has made his contribution to Arsenal’s campaign. The plan now is to develop under a coach Arteta respects and knows well`\
+https://nytimes.com/athletic/6988693/2026/01/22/ethan-nwaneri-arsenal-marseille-loan/
 
