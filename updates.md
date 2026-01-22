@@ -1,3 +1,7 @@
+**Champions League projections: Arsenal strong favourites for overall win, improving Liverpool up to third**\
+`All the risers and fallers ahead of a seismic final set of 18 league-phase games next Wednesday`\
+https://nytimes.com/athletic/6991145/2026/01/22/champions-projections-md7-arsenal-bayern-liverpool-barcelona/
+
 **Consumer Prices Rose 2.8 Percent Through November, a Sign of Sticky Inflation**\
 `The Federal Reserve’s preferred gauge for inflation in October and November was released belatedly after the government shutdown.`\
 https://nytimes.com/2026/01/22/business/consumer-prices-inflation-economy.html

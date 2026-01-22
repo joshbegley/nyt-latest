@@ -1,3 +1,7 @@
+**Champions League projections: Arsenal strong favourites for overall win, improving Liverpool up to third**\
+`All the risers and fallers ahead of a seismic final set of 18 league-phase games next Wednesday`\
+https://nytimes.com/athletic/6991145/2026/01/22/champions-projections-md7-arsenal-bayern-liverpool-barcelona/
+
 **Consumer Prices Rose 2.8 Percent Through November, a Sign of Sticky Inflation**\
 `The Federal Reserve’s preferred gauge for inflation in October and November was released belatedly after the government shutdown.`\
 https://nytimes.com/2026/01/22/business/consumer-prices-inflation-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6986317/2026/01/22/zac-robinson-buccaneers-offensiv
 **IIHF signals Russia could be allowed to return to U-18 hockey events in 2028**\
 `Having Russian and Belarusian players return for under-18 tournaments would be the first step to a full-scale reintegration.`\
 https://nytimes.com/athletic/6991252/2026/01/22/russia-sanctions-international-hockey/
-
-**Why the Women's League Cup will exclude UWCL clubs from next season**\
-`English teams who qualify for the Women's Champions League will not participate in the Women's League Cup from next season`\
-https://nytimes.com/athletic/6991305/2026/01/22/womens-league-cup-wsl-uwcl/
 
