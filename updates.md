@@ -1,3 +1,7 @@
+**49ers to look at 'everything' regarding injuries, including a substation**\
+`Several of the team's top players went down this season, and some are blaming electromagnetic waves next to the practice field.`\
+https://nytimes.com/athletic/6990321/2026/01/21/san-francisco-49ers-injuries-electrical-substation/
+
 **Ja Morant continues productive return to Grizzlies lineup after six-game absence**\
 `Morant finished with 23 points on 7-of-15 overall shooting, 12 assists, two rebounds, one steal and three blocks in the 124-122 loss.`\
 https://nytimes.com/athletic/6990496/2026/01/21/ja-morant-memphis-grizzlies-trade-rumors/

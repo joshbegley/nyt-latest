@@ -1,3 +1,7 @@
+**49ers to look at 'everything' regarding injuries, including a substation**\
+`Several of the team's top players went down this season, and some are blaming electromagnetic waves next to the practice field.`\
+https://nytimes.com/athletic/6990321/2026/01/21/san-francisco-49ers-injuries-electrical-substation/
+
 **Ja Morant continues productive return to Grizzlies lineup after six-game absence**\
 `Morant finished with 23 points on 7-of-15 overall shooting, 12 assists, two rebounds, one steal and three blocks in the 124-122 loss.`\
 https://nytimes.com/athletic/6990496/2026/01/21/ja-morant-memphis-grizzlies-trade-rumors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6894446/2026/01/21/mlb-freddy-peralta-trade-mets/
 **Cuban Detainee in El Paso ICE Facility Died by Homicide, Autopsy Shows**\
 `The report from the county medical examiner said the detainee, Geraldo Lunas Campos, was asphyxiated and restrained by law enforcement. Federal officials described his death as a suicide.`\
 https://nytimes.com/2026/01/21/us/el-paso-ice-detainee-homicide.html
-
-**Ex-Uvalde Officer Found Not Guilty of Endangering Children in Mass Shooting**\
-`Adrian Gonzales had faced 29 charges for his actions in the 2022 shooting, in which 19 children were killed by a gunman at Robb Elementary School in Texas.`\
-https://nytimes.com/2026/01/21/us/former-police-officer-who-failed-to-confront-uvalde-gunman-found-not-guilty.html
 
