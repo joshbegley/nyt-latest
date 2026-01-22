@@ -1,3 +1,19 @@
+**Vikings, defensive coordinator Brian Flores agree to new contract**\
+`Flores will return for his fourth season as the team's defensive coordinator — unless he gets a head coaching position elsewhere this cycle.`\
+https://nytimes.com/athletic/6990267/2026/01/21/vikings-brian-flores-defensive-coordinator-contract/
+
+**Lakers' Jeanie Buss laments LeBron James being 'pulled into my family drama'**\
+`Buss' comments were in response to story about a family rift that led to the sale of the franchise.`\
+https://nytimes.com/athletic/6990015/2026/01/21/lakers-jeanie-buss-lebron-james-relationship-comments/
+
+**With Kyle Tucker, Dodgers continue to be the place where the stars want to be**\
+`The fact that the team continues to sign so many of the game’s best, however, remains the biggest topic of conversation in the sport.`\
+https://nytimes.com/athletic/6990099/2026/01/21/kyle-tucker-dodgers-mlb-signing-spending/
+
+**An Unhinged President on the Magic Mountain**\
+`Trump’s Davos speech could have been ghostwritten by Mario Puzo.`\
+https://nytimes.com/2026/01/21/opinion/trump-davos-speech-nato.html
+
 **Illinois Investigates Claim That Landlord Tipped Off High-Profile ICE Raid**\
 `The state said it has opened an investigation into whether the management of a troubled South Side building may have called federal agents to try to help clear out Black and Hispanic tenants.`\
 https://nytimes.com/2026/01/21/us/chicago-building-ice-raid-investigation.html
