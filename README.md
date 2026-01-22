@@ -1,5 +1,9 @@
+**In Davos, Trump Brings a Spirit of Fear**\
+`Trump’s speech could have been ghostwritten by Mario Puzo.`\
+https://nytimes.com/2026/01/21/opinion/trump-davos-speech-nato.html
+
 **Pegula and Beane deliver an unforgettable Bills presser fans won't soon forget. What stood out?**\
-`The news conference to explain the decision seems to have led to more questions.`\
+`The owner's and GM's inability to fully explain the decision to fire Sean McDermott leads to more questions than answers.`\
 https://nytimes.com/athletic/6989614/2026/01/21/pegula-beane-bills-press-conference-takeaways/
 
 **English elite fall behind in football 'rich list'; Madrid and Barca on top**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6980824/2026/01/21/chiefs-eric-bieniemy-returns-off
 **Supreme Court Hearing Reveals Unease Over Threats to Fed Independence**\
 `As the justices weighed the consequences of allowing President Trump to fire a Federal Reserve official, the president reprised his pressure campaign on the central bank.`\
 https://nytimes.com/2026/01/21/us/politics/supreme-court-trump-fed-independence.html
-
-**Greenlanders and Danes Hopeful but Some Are Upset by Talk of a ‘Deal’**\
-`A lot of confusion was swirling in Denmark and Greenland after President Trump’s bombshell of a post on social media.`\
-https://nytimes.com/2026/01/21/world/asia/trump-greenland-deal-news.html
 
