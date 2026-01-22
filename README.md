@@ -1,3 +1,11 @@
+**Barcelona's Pedri out for a month with hamstring injury**\
+`The 23-year-old sustained the injury during Wednesday's Champions League victory at Slavia Prague and he may miss up to seven matches.`\
+https://nytimes.com/athletic/6989913/2026/01/22/pedri-barcelona-injury-news-update/
+
+**Luke Wright to step down from England national team selector role**\
+`The former white-ball international has cited 'significant travel and time away from home' as reasons for his decision to leave the role.`\
+https://nytimes.com/athletic/6991015/2026/01/22/england-luke-wright-selector-resigns/
+
 **Trump Takes Davos**\
 `We look at the news coming out of the World Economic Forum in Switzerland.`\
 https://nytimes.com/2026/01/22/briefing/trump-takes-davos.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6990432/2026/01/22/patriots-broncos-vibe-afc-champi
 **Brandon Aiyuk is gone. What’s next for the 49ers at wide receiver? How about some speed?**\
 `Meanwhile, Kyle Shanahan said Gus Bradley is the top internal candidate to replace Robert Saleh at defensive coordinator.`\
 https://nytimes.com/athletic/6990139/2026/01/22/brandon-aiyuk-49ers-wide-receiver-needs/
-
-**NBA Awards Watch: MVP Jaylen Brown? It's not that far-fetched**\
-`Last week, we ranked by BetMGM odds; this week, we're making the lists our own.`\
-https://nytimes.com/athletic/6982345/2026/01/22/jaylen-brown-celtics-nba-mvp-odds-awards/
-
-**The Dark Side's toughest test: Can the Seahawks' defense contain Matthew Stafford?**\
-`Facing the NFL's top scoring offense and the likely MVP in Stafford, the top scoring defense has a chance to solidify its place in history.`\
-https://nytimes.com/athletic/6990167/2026/01/22/seahawks-rams-playoffs-matthew-stafford/
 
