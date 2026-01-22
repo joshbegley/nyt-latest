@@ -1,5 +1,17 @@
-**Former Police Officer Who Failed to Confront Uvalde Gunman Found Not Guilty**\
-`A jury in Corpus Christi found Adrian Gonzales not guilty of 29 counts of endangering the children who were left trapped with a gunman at Robb Elementary School in Texas.`\
+**ICE Said Agents Can Enter Homes Without Judicial Warrant, Group Claims**\
+`A whistle-blower group said a memo apparently signed by the leader of Immigration and Customs Enforcement violated constitutional protections against unreasonable search and seizure.`\
+https://nytimes.com/2026/01/21/us/politics/ice-warrant-whistleblower.html
+
+**Mets trade for Brewers' ace Freddy Peralta, fill glaring rotation need: Sources**\
+`In trading Peralta, the Brewers are putting faith in a young rotation to sustain them. The Mets, meanwhile, get a top-of-the-rotation arm.`\
+https://nytimes.com/athletic/6894446/2026/01/21/mlb-freddy-peralta-trade-mets/
+
+**Cuban Detainee in El Paso ICE Facility Died by Homicide, Autopsy Shows**\
+`The report from the county medical examiner said the detainee, Geraldo Lunas Campos, was asphyxiated and restrained by law enforcement. Federal officials described his death as a suicide.`\
+https://nytimes.com/2026/01/21/us/el-paso-ice-detainee-homicide.html
+
+**Ex-Uvalde Officer Found Not Guilty of Endangering Children in Mass Shooting**\
+`Adrian Gonzales had faced 29 charges for his actions in the 2022 shooting, in which 19 children were killed by a gunman at Robb Elementary School in Texas.`\
 https://nytimes.com/2026/01/21/us/former-police-officer-who-failed-to-confront-uvalde-gunman-found-not-guilty.html
 
 **Indianapolis to continue hosting NFL Scouting Combine through at least 2028**\
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/21/us/chicago-building-ice-raid-investigation.html
 **Rifaat al-Assad, Paramilitary Leader and ‘Butcher of Hama,’ Dies at 88**\
 `The brother and uncle of Syrian tyrants, he commanded a unit that killed up to 40,000 civilians in a 1982 uprising against his family’s rule.`\
 https://nytimes.com/2026/01/21/world/middleeast/rifaat-al-assad-dead.html
-
-**Trump’s ‘Board of Peace’ Would Have Global Scope but One Man in Charge**\
-`The initiative is the latest example of the president dismantling the post-World War II international system and building a new one, with himself at the center.`\
-https://nytimes.com/2026/01/21/us/politics/trump-board-peace-united-nations.html
-
-**An Unhinged President on the Magic Mountain**\
-`Trump’s Davos speech could have been ghostwritten by Mario Puzo.`\
-https://nytimes.com/2026/01/21/opinion/trump-davos-speech-nato.html
-
-**Pegula and Beane deliver a Bills presser fans won't soon forget. What stood out?**\
-`The owner's and GM's inability to fully explain the decision to fire Sean McDermott leads to more questions than answers.`\
-https://nytimes.com/athletic/6989614/2026/01/21/pegula-beane-bills-press-conference-takeaways/
 
