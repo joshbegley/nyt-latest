@@ -1,3 +1,11 @@
+**Where to Stream the 2026 Oscar Nominees**\
+`Many of the top contenders can be watched at home. Here’s a guide to help you get a jump on the field.`\
+https://nytimes.com/2026/01/22/movies/oscar-nominees-2026-how-to-watch.html
+
+**Cowboys working to hire Eagles' Christian Parker as defensive coordinator**\
+`The 34-year-old Parker was one of three candidates who interviewed for the Cowboys' DC job in person.`\
+https://nytimes.com/athletic/6991960/2026/01/22/cowboys-christian-parker-defensive-coordinator-eagles/
+
 **Falcons hire former Browns OC Tommy Rees as offensive coordinator**\
 `Rees, 33, worked under Kevin Stefanski with the Browns and previously held roles as the offensive coordinator at Notre Dame and Alabama.`\
 https://nytimes.com/athletic/6991914/2026/01/22/falcons-tommy-rees-offensive-coordinator-hire/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/22/learning/open-letters-our-opinion-writing-contest
 **As the Bucks struggle, why is Giannis Antetokounmpo getting fewer shots?**\
 `Antetokounmpo is currently on a limit of roughly 31 minutes.`\
 https://nytimes.com/athletic/6991826/2026/01/22/as-the-bucks-struggle-why-is-giannis-antetokounmpo-getting-fewer-shots/
-
-**Creamy Chickpea Spinach Masala With Tadka**\
-`Tadka is the process of blooming spices (and sometimes aromatics) in a fat, such as oil. Drizzling it on top of chickpea masala just before serving takes this meal from great to excellent.`\
-https://nytimes.com/video/dining/100000010659009/creamy-chickpea-spinach-masala-with-tadka.html
-
-**McLaughlin-Levrone, 400m record holder, announces pregnancy**\
-`The 28-year-old, who married former NFL player Andre Levrone Junior in 2022, made the announcement on Instagram.`\
-https://nytimes.com/athletic/6991895/2026/01/22/sydney-mclaughlin-levrone-400m-pregnancy/
 
