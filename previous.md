@@ -7,7 +7,7 @@ https://nytimes.com/2026/01/22/us/indonesia-handprint-rock-art-research.html
 https://nytimes.com/interactive/2026/01/22/us/quake-salt-lake-utah.html
 
 **Trump Returns to a Familiar Role: Sowing Trade Chaos**\
-`The president’s quick reversal on tariffs over Greenland were another sign of his willingness to rip up the international order — even parts of it that he himself has made.`\
+`The president’s quick reversal on tariffs over Greenland was another sign of his willingness to rip up the international order — even parts of it that he himself has made.`\
 https://nytimes.com/2026/01/22/us/politics/trump-trade-chaos.html
 
 **Southerners Scramble to Prepare as Ice, Snow and Bitter Cold Threaten**\

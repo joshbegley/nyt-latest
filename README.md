@@ -1,3 +1,11 @@
+**Consumer Prices Rose 2.8 Percent Through November, a Sign of Sticky Inflation**\
+`The Federal Reserve’s preferred gauge for inflation in October and November was released belatedly after the government shutdown.`\
+https://nytimes.com/2026/01/22/business/consumer-prices-inflation-economy.html
+
+**Forest agree loan deal with Napoli for Lucca**\
+`The 25-year-old scored twice in 23 games for the Italian champions this term. `\
+https://nytimes.com/athletic/6991050/2026/01/22/lorenzo-lucca-nottingham-forest-napoli-deal-transfer-news/
+
 **A 67,800-Year-Old Handprint May Be the World’s Oldest Rock Art**\
 `“It was hiding in plain sight all this time,” one researcher said.`\
 https://nytimes.com/2026/01/22/us/indonesia-handprint-rock-art-research.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6991252/2026/01/22/russia-sanctions-international-h
 **Why the Women's League Cup will exclude UWCL clubs from next season**\
 `English teams who qualify for the Women's Champions League will not participate in the Women's League Cup from next season`\
 https://nytimes.com/athletic/6991305/2026/01/22/womens-league-cup-wsl-uwcl/
-
-**Hecklers Roast My $800 Stroller Wagon. After 650 Miles, I Still Love It.**\
-`After pushing through snow, sand, and mud, my family of four has come to view the luxury stroller wagon as a necessity..`\
-https://nytimes.com/wirecutter/blog/veer-cruiser-xl-stroller-wagon-review/
-
-**Some Immune Systems Defeat Cancer. Could That Become a Drug?**\
-`Researchers found an antibody that seems to play a role in people with better lung cancer prognoses, but turning it into a treatment could be difficult.`\
-https://nytimes.com/2026/01/22/health/lung-cancer-antibodies-immune-system.html
 

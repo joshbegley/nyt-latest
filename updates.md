@@ -1,3 +1,7 @@
+**Trump Returns to a Familiar Role: Sowing Trade Chaos**\
+`The president’s quick reversal on tariffs over Greenland was another sign of his willingness to rip up the international order — even parts of it that he himself has made.`\
+https://nytimes.com/2026/01/22/us/politics/trump-trade-chaos.html
+
 **A 67,800-Year-Old Handprint May Be the World’s Oldest Rock Art**\
 `“It was hiding in plain sight all this time,” one researcher said.`\
 https://nytimes.com/2026/01/22/us/indonesia-handprint-rock-art-research.html
