@@ -1,3 +1,15 @@
+**House Votes to Strip Senators of New Avenue to Sue Government**\
+`The unanimous vote amounted to a bipartisan rebuke of the Senate after leaders in that chamber slipped the legal provision into legislation to reopen the government.`\
+https://nytimes.com/2026/01/22/us/politics/house-votes-to-strip-senators-of-new-avenue-to-sue-government.html
+
+**Why Climate Isn’t a Top Business Priority at Davos**\
+`The World Economic Forum in Davos, Switzerland, was once ground zero for an unofficial climate movement in the business community. David Gelles, a climate reporter for The Times, describes why climate is no longer a key focus in Davos today.`\
+https://nytimes.com/video/climate/100000010642995/why-climate-isnt-a-top-business-priority-at-davos.html
+
+**Amy Klobuchar Files Papers for Run to Succeed Tim Walz as Minnesota Governor**\
+`The Minnesota senator, a potential 2028 presidential candidate, appears set to enter a race that has been transformed by President Trump’s immigration crackdown in the state and protests against it.`\
+https://nytimes.com/2026/01/22/us/politics/amy-klobuchar-minnesota-governor-tim-walz.html
+
 **Why Trump’s Reversal on Greenland Still Leaves Europe on Edge**\
 `Andrew Ross Sorkin, editor at large of DealBook, describes how leaders at the World Economic Forum in Davos remain on edge after President Trump, for now, backed down from threats of using tariffs or military force to gain Greenland.`\
 https://nytimes.com/video/business/economy/100000010656157/why-trumps-reversal-on-greenland-still-leaves-europe-on-edge.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6991915/2026/01/22/nhl-trades-maple-leafs-oilers-ra
 **Where to Stream the 2026 Oscar Nominees**\
 `Many of the top contenders can be watched at home. Here’s a guide to help you get a jump on the field.`\
 https://nytimes.com/2026/01/22/movies/oscar-nominees-2026-how-to-watch.html
-
-**Cowboys working to hire Eagles' Christian Parker as defensive coordinator**\
-`The 34-year-old Parker was one of three candidates who interviewed for the Cowboys' DC job in person.`\
-https://nytimes.com/athletic/6991960/2026/01/22/cowboys-christian-parker-defensive-coordinator-eagles/
-
-**Falcons hire former Browns OC Tommy Rees as offensive coordinator**\
-`Rees, 33, worked under Kevin Stefanski with the Browns and previously held roles as the offensive coordinator at Notre Dame and Alabama.`\
-https://nytimes.com/athletic/6991914/2026/01/22/falcons-tommy-rees-offensive-coordinator-hire/
-
-**Harry Styles Books 30 Dates at the Garden for New Concert Residency**\
-`The pop star is returning with his fourth solo album on March 6. His Together, Together tour, which will hit seven cities, is scheduled to begin in May.`\
-https://nytimes.com/2026/01/22/arts/music/harry-styles-together-together-tour-residency.html
 
