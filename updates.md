@@ -1,3 +1,15 @@
+**Trump Reaches Framework Greenland Deal**\
+`President Trump said he reached a framework for a deal on the future of Greenland. Some Greenlanders were relieved, but stayed cautious after Trump backed down from his threat to use force.`\
+https://nytimes.com/video/world/europe/100000010660158/trump-greenland-threats-diplomacy-force.html
+
+**Three Dead After Shooting in Rural Australian Town**\
+`The gunman was holed up in the town, local news media reported. The shooting happened on the day Australians were honoring the victims of the Bondi Beach massacre.`\
+https://nytimes.com/2026/01/22/world/australia/australia-lake-cargelligo-shooting.html
+
+**Kimmel Says Comedy Is Political Lately Because Politics Are Comedic**\
+`“We didn’t come to them, they came to us,” the late night host said about news infiltrating comedy while discussing President Trump’s latest stab for Greenland.`\
+https://nytimes.com/2026/01/22/arts/television/late-night-trump-greenland.html
+
 **Filipino Journalist Gets Prison in Case Seen as Attack on Free Press**\
 `Frenchie Mae Cumpio and her former roommate were convicted of financing terrorism and sentenced to up to 18 years in prison.`\
 https://nytimes.com/2026/01/22/world/asia/philippines-cumpio-journalist-prison.html

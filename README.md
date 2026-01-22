@@ -1,3 +1,7 @@
+**Live Updates: Trump to Host ‘Board of Peace’ Signing Ceremony in Davos**\
+``\
+https://nytimes.com/live/2026/01/22/us/trump-davos-news
+
 **Trump Reaches Framework Greenland Deal**\
 `President Trump said he reached a framework for a deal on the future of Greenland. Some Greenlanders were relieved, but stayed cautious after Trump backed down from his threat to use force.`\
 https://nytimes.com/video/world/europe/100000010660158/trump-greenland-threats-diplomacy-force.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/crosswords/spelling-bee-forum.html
 **Real Madrid and Vinicius Jr's contract stand-off: A year on, what's the latest?**\
 `The 25-year-old Brazil forward's contract expires at the end of June 2027, and talks over a renewal began a year ago`\
 https://nytimes.com/athletic/6989245/2026/01/22/vinicius-jr-real-madrid-contract-renewal-latest/
-
-**Why McLaren will wait as long as it can to test its 2026 F1 car**\
-`McLaren won't be one of the teams hitting the track first when F1 preseason testing starts in 2026. But it has planned for a late test debut`\
-https://nytimes.com/athletic/6990596/2026/01/22/mclaren-2026-f1-car-barcelona-test/
 
