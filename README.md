@@ -1,3 +1,7 @@
+**Trump Sues JPMorgan for Closing His Bank Accounts for Political Reasons**\
+`The lawsuit, citing “political discrimination,” said the banking giant told President Trump shortly after the Jan. 6 attack on the Capitol that it would close his accounts.`\
+https://nytimes.com/2026/01/22/business/jpmorgan-trump-lawsuit.html
+
 **Brandin Cooks insists ‘it was a catch’ after Bills’ heartbreaking loss**\
 `Cooks says he caught the ball, but a controversial call in overtime ended Buffalo's season.`\
 https://nytimes.com/athletic/6991929/2026/01/22/brandin-cooks-controversial-catch-interception-bills-broncos/
@@ -33,8 +37,4 @@ https://nytimes.com/video/business/economy/100000010656157/why-trumps-reversal-o
 **Sonic Booms and Seismic Waves Can Reveal Where Space Junk Crash-Lands**\
 `The sensors used to listen for earthquakes could help protect people from the hazards created by falling spacecraft.`\
 https://nytimes.com/2026/01/22/science/space-junk-seismographs.html
-
-**7 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2026/01/22/books/review/new-recommended-books.html
 
