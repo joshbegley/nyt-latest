@@ -1,3 +1,19 @@
+**Set-piece problems? Curiously, Liverpool lead the way in the Champions League**\
+`Set pieces at both ends of the pitch have been a big issue for the club this season, but there are no such problems in the Champions League`\
+https://nytimes.com/athletic/6990356/2026/01/22/liverpool-marseille-set-pieces/
+
+**The New York Times in Print for Thursday, Jan. 22, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/22/todays-new-york-times
+
+**My Rohingya People Are Running Out of Time**\
+`Genocide hearings in The Hague offer a ray of hope for the Rohingya, but aid cuts are worsening a humanitarian crisis in refugee camps.`\
+https://nytimes.com/2026/01/22/opinion/rohingya-aid-trump-help-genocide.html
+
+**Marginal gains, deception and entertainment: This is why players take Panenkas**\
+`Chipping a penalty down the middle is seen as a huge risk — great when it works, disastrous when it doesn't. But it's not quite that simple`\
+https://nytimes.com/athletic/6985903/2026/01/22/panenka-penalties-why-players-take-them/
+
 **New manager, new danger: Why footballers are more susceptible to injuries after a coaching change**\
 `Changing position or role can introduce different physical and biomechanical stresses to a player's body – with predictable consequences`\
 https://nytimes.com/athletic/6983180/2026/01/22/new-manager-new-danger-why-footballers-are-more-susceptible-to-injuries-after-a-coaching-change/
