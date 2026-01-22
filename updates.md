@@ -1,3 +1,15 @@
+**What to Know About the Elizabeth Smart Kidnapping Case**\
+`A new Netflix documentary, “Kidnapped: Elizabeth Smart,” revisits her abduction from her home in Salt Lake City in 2002, when she was 14. She was held captive for nine months.`\
+https://nytimes.com/2026/01/22/us/elizabeth-smart-kidnapping.html
+
+**Successful World Cup ticket applicants may use resale sites, Infantino says**\
+`“In the U.S., it is perfectly legal to resell tickets on resale platforms — there is a law for that, so we have to allow (it),” he said.`\
+https://nytimes.com/athletic/6991940/2026/01/22/fifa-world-cup-tickets-resale/
+
+**NHL rumblings: Maple Leafs scour defense market, Oilers' trade targets, Rangers' no-move list, more**\
+`Also around the NHL: The Panthers are making calls as they continue to struggle, and Sweden's injury nightmare gets even worse.`\
+https://nytimes.com/athletic/6991915/2026/01/22/nhl-trades-maple-leafs-oilers-rangers-rumblings/
+
 **Where to Stream the 2026 Oscar Nominees**\
 `Many of the top contenders can be watched at home. Here’s a guide to help you get a jump on the field.`\
 https://nytimes.com/2026/01/22/movies/oscar-nominees-2026-how-to-watch.html
