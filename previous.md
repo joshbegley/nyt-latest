@@ -1,3 +1,15 @@
+**Big Insurers Try to Shift Blame for High Health Costs to Hospitals and Drug Makers**\
+`At two congressional hearings, lawmakers slammed executives of major companies, saying they were failing to rein in the cost of medical care for consumers.`\
+https://nytimes.com/2026/01/22/health/health-insurers-obamacare-congress.html
+
+**U.S. Formally Withdraws from World Health Organization**\
+`Global health experts worry that a lack of international coordination will lead to death and disaster.`\
+https://nytimes.com/2026/01/22/us/politics/united-states-withdraws-world-health-organization.html
+
+**New U.S. Rule Aims to Speed Up Mining of the Seafloor**\
+`The Metals Company, a prominent seabed-mining company, applauded the change and filed a new application more than doubling the area it hopes to mine.`\
+https://nytimes.com/2026/01/22/climate/noaa-seabed-mining-rules.html
+
 **According to Vance, ICE Officers No Longer Have ‘Absolute Immunity’**\
 `Vice President JD Vance appeared to backtrack a previous statement that ICE agents were “protected by absolute immunity” during a press conference on Thursday, after meeting with immigration agents in Minneapolis.`\
 https://nytimes.com/video/us/politics/100000010662338/according-to-vance-ice-officers-no-longer-have-absolute-immunity.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/22/briefing/trump-greenland-talks-jack-smith-congres
 **Indiana's national championship win tops more than 30 million viewers**\
 `This was the second most-watched CFP National Championship Game.`\
 https://nytimes.com/athletic/6992555/2026/01/22/indiana-national-championship-30-million-viewers/
-
-**Kennedy Plan to Test a Vaccine in West African Babies Is Blocked**\
-`A planned U.S.-funded study of a hepatitis B vaccine drew widespread condemnation from researchers. Now the host country says it cannot proceed.`\
-https://nytimes.com/2026/01/22/health/hepatitis-b-vaccine-africa-study.html
-
-**Why Trees Go Pop in the Freezing Cold**\
-`While the weight of freezing rain, ice and snow can damage branches, there is another kind of injury that comes with the extreme cold, experts say.`\
-https://nytimes.com/2026/01/22/weather/extreme-cold-explode-trees.html
-
-**House Rejects Measure to Bar Military Force in Venezuela**\
-`In a tie vote, the House defeated an effort to prohibit the president from using the U.S. military in Venezuela weeks after the raid he ordered that captured the country’s leader.`\
-https://nytimes.com/2026/01/22/us/politics/trump-war-powers-house-vote.html
 

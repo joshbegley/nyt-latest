@@ -1,8 +1,12 @@
+**Rangers pay big price for MacKenzie Gore, sending first-rounder Gavin Fien to Nats**\
+`The Rangers are giving up a decent haul, including a potential top-20 prospect in Fien, but Gore makes them instantly 2-3 wins better.`\
+https://nytimes.com/athletic/6992500/2026/01/22/mackenzie-gore-rangers-nationals-trade-analysis-gavin-fien/
+
 **Big Insurers Try to Shift Blame for High Health Costs to Hospitals and Drug Makers**\
 `At two congressional hearings, lawmakers slammed executives of major companies, saying they were failing to rein in the cost of medical care for consumers.`\
 https://nytimes.com/2026/01/22/health/health-insurers-obamacare-congress.html
 
-**U.S. Formally Withdraws from World Health Organization**\
+**U.S. Formally Withdraws From World Health Organization**\
 `Global health experts worry that a lack of international coordination will lead to death and disaster.`\
 https://nytimes.com/2026/01/22/us/politics/united-states-withdraws-world-health-organization.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/us/politics/trump-qatar-air-force-one.html
 **European Leaders Scramble to Find a Path Forward With Trump**\
 `Also, Jack Smith defended his decision to prosecute Trump. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2026/01/22/briefing/trump-greenland-talks-jack-smith-congress.html
-
-**Indiana's national championship win tops more than 30 million viewers**\
-`This was the second most-watched CFP National Championship Game.`\
-https://nytimes.com/athletic/6992555/2026/01/22/indiana-national-championship-30-million-viewers/
 

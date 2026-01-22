@@ -1,3 +1,15 @@
+**Big Insurers Try to Shift Blame for High Health Costs to Hospitals and Drug Makers**\
+`At two congressional hearings, lawmakers slammed executives of major companies, saying they were failing to rein in the cost of medical care for consumers.`\
+https://nytimes.com/2026/01/22/health/health-insurers-obamacare-congress.html
+
+**U.S. Formally Withdraws from World Health Organization**\
+`Global health experts worry that a lack of international coordination will lead to death and disaster.`\
+https://nytimes.com/2026/01/22/us/politics/united-states-withdraws-world-health-organization.html
+
+**New U.S. Rule Aims to Speed Up Mining of the Seafloor**\
+`The Metals Company, a prominent seabed-mining company, applauded the change and filed a new application more than doubling the area it hopes to mine.`\
+https://nytimes.com/2026/01/22/climate/noaa-seabed-mining-rules.html
+
 **According to Vance, ICE Officers No Longer Have ‘Absolute Immunity’**\
 `Vice President JD Vance appeared to backtrack a previous statement that ICE agents were “protected by absolute immunity” during a press conference on Thursday, after meeting with immigration agents in Minneapolis.`\
 https://nytimes.com/video/us/politics/100000010662338/according-to-vance-ice-officers-no-longer-have-absolute-immunity.html
