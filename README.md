@@ -1,3 +1,7 @@
+**IIHF signals Russia could be allowed to return to U-18 hockey events in 2028**\
+`Having Russian and Belarusian players return for under-18 tournaments would be the first step to a full-scale reintegration.`\
+https://nytimes.com/athletic/6991252/2026/01/22/russia-sanctions-international-hockey/
+
 **Why the Women's League Cup will exclude UWCL clubs from next season**\
 `English teams who qualify for the Women's Champions League will not participate in the Women's League Cup from next season`\
 https://nytimes.com/athletic/6991305/2026/01/22/womens-league-cup-wsl-uwcl/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/movies/sinners-oscars-record-nominations.html
 **Leafs after 50: Bad asset management leaves Toronto without solutions to solvable problems**\
 `Blues' Robert Thomas would solve a lot of problems in Toronto, and it cannot be understated how perfect he would fit on the Maple Leafs. `\
 https://nytimes.com/athletic/6989449/2026/01/22/maple-leafs-robert-thomas-blues-trade/
-
-**Grant Fisher and the 'freedom' of switching events: 'It’s fun to shake things up'**\
-`In an exclusive interview, Grant Fisher talks about making his debut on the road at next month's New York half marathon. `\
-https://nytimes.com/athletic/6985115/2026/01/22/grant-fisher-new-york-half-marathon/
 
