@@ -1,4 +1,4 @@
-**Denmark Bristles at Idea of Giving UpAny Sovereignty in Greenland**\
+**Denmark Bristles at Idea of Giving Up Any Sovereignty in Greenland**\
 `American and NATO officials have discussed giving the United States sovereignty over U.S. military bases in Greenland. The Danes don’t seem to like that.`\
 https://nytimes.com/2026/01/22/world/europe/denmark-greenland-trump-us-reaction.html
 
@@ -35,6 +35,6 @@ https://nytimes.com/2026/01/22/arts/design/winter-armory-fair.html
 https://nytimes.com/2026/01/22/world/middleeast/us-gaza-peace-trump-kushner-davos.html
 
 **Baltimore to host South Africa vs New Zealand rugby union test match in September**\
-`The match will see the two highest-ranked rugby union nations arrives in the United States for the first time.`\
+`The match will see the two highest-ranked rugby union nations arrive in the United States for the first time.`\
 https://nytimes.com/athletic/6991745/2026/01/22/south-africa-new-zealand-rugby-union-unites-states-september-2026/
 
