@@ -1,3 +1,15 @@
+**Mark Carney Says Firmly That ‘Canada Doesn’t Live Because of the United States’**\
+`The Canadian prime minister spoke after returning from the World Economic Forum where he urged middle powers to team up in resisting President Trump.`\
+https://nytimes.com/2026/01/22/world/canada/carney-trump-canada-speech.html
+
+**Rodman, Spirit agree on new deal to keep USWNT star in NWSL**\
+`Rodman's signing ends a prolonged NWSL saga and keeps the U.S. women's national team star in the nation's capital`\
+https://nytimes.com/athletic/6986284/2026/01/22/trinity-rodman-contract-washington-spirit-nwsl/
+
+**Jarmo Kekäläinen on Sabres buying at the deadline, Doan contract and more**\
+`As much as the Sabres have been rolling lately, there are still some areas where the team could improve.`\
+https://nytimes.com/athletic/6992611/2026/01/22/sabres-josh-doan-trades-jarmo-kekalainen/
+
 **Trump Could Begin Flying on Jet Donated by Qatar by This Summer**\
 `It remains unclear whether the aircraft would get the full Air Force One security upgrades, which industry experts said could take up to two years to complete.`\
 https://nytimes.com/2026/01/22/us/politics/trump-qatar-air-force-one.html

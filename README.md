@@ -1,8 +1,12 @@
+**According to Vance, ICE Officers No Longer Have ‘Absolute Immunity’**\
+`Vice President JD Vance appeared to backtrack a previous statement that ICE agents were “protected by absolute immunity” during a press conference on Thursday, after meeting with immigration agents in Minneapolis.`\
+https://nytimes.com/video/us/politics/100000010662338/according-to-vance-ice-officers-no-longer-have-absolute-immunity.html
+
 **Mark Carney Says Firmly That ‘Canada Doesn’t Live Because of the United States’**\
 `The Canadian prime minister spoke after returning from the World Economic Forum where he urged middle powers to team up in resisting President Trump.`\
 https://nytimes.com/2026/01/22/world/canada/carney-trump-canada-speech.html
 
-**Rodman, Spirit agree on new deal to keep USWNT star in NWSL**\
+**Rodman, Spirit agree on new deal to keep USWNT star in NWSL through 2028**\
 `Rodman's signing ends a prolonged NWSL saga and keeps the U.S. women's national team star in the nation's capital`\
 https://nytimes.com/athletic/6986284/2026/01/22/trinity-rodman-contract-washington-spirit-nwsl/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/weather/extreme-cold-explode-trees.html
 **House Rejects Measure to Bar Military Force in Venezuela**\
 `In a tie vote, the House defeated an effort to prohibit the president from using the U.S. military in Venezuela weeks after the raid he ordered that captured the country’s leader.`\
 https://nytimes.com/2026/01/22/us/politics/trump-war-powers-house-vote.html
-
-**Energy Dept. Says It Is Canceling $30 Billion in Clean Energy Loans**\
-`Many of the cancellations had been known for months, but the announcement underscored the drastic change in the energy landscape under President Trump.`\
-https://nytimes.com/2026/01/22/climate/energy-dept-says-it-is-canceling-30-billion-in-clean-energy-loans.html
 
