@@ -1,3 +1,11 @@
+**German Chancellor Urges Europe to Cut Red Tape and Spend Big on Defense**\
+`Speaking in Davos, Chancellor Friedrich Merz also implicitly criticized President Trump’s demeaning treatment of European allies.`\
+https://nytimes.com/2026/01/22/us/politics/merz-germany-davos-europe-militaries.html
+
+**Tottenham's Bergvall set for period on sidelines with ankle injury**\
+`The 19-year-old suffered an ankle injury during Tuesday's win over Borussia Dortmund.`\
+https://nytimes.com/athletic/6989926/2026/01/22/lucas-bergvall-tottenham-injury-news/
+
 **Alisha Lehmann trains with Leicester ahead of transfer from FC Como**\
 `The forward is the most-followed female footballer in the world, with nearly 16 million followers on Instagram.`\
 https://nytimes.com/athletic/6990974/2026/01/22/alisha-lehmann-fc-como-leicester-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/22/weather/winter-storm-forecast-snow-ice.html
 **Why the Patriots should be worried about their offensive line against the Broncos**\
 `In their two playoff wins, the Patriots have allowed 10 sacks and QB Drake Maye has six fumbles. That could be a serious problem in Denver.`\
 https://nytimes.com/athletic/6989764/2026/01/22/patriots-offensive-line-drake-maye-broncos-afc-championship/
-
-**How Do You Preserve the Free World When America Goes Rogue?**\
-`Asking for a friend.`\
-https://nytimes.com/2026/01/22/opinion/canada-carney-trump-greenland-nato.html
-
-**Donald Trump, Live From Davos**\
-`It’s striking how clearheadedly and defiantly Europeans are reacting to the president’s provocations.`\
-https://nytimes.com/2026/01/22/opinion/trump-davos-greenland-minnesota.html
 

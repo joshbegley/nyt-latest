@@ -1,3 +1,11 @@
+**German Chancellor Urges Europe to Cut Red Tape and Spend Big on Defense**\
+`Speaking in Davos, Chancellor Friedrich Merz also implicitly criticized President Trump’s demeaning treatment of European allies.`\
+https://nytimes.com/2026/01/22/us/politics/merz-germany-davos-europe-militaries.html
+
+**Tottenham's Bergvall set for period on sidelines with ankle injury**\
+`The 19-year-old suffered an ankle injury during Tuesday's win over Borussia Dortmund.`\
+https://nytimes.com/athletic/6989926/2026/01/22/lucas-bergvall-tottenham-injury-news/
+
 **Alisha Lehmann trains with Leicester ahead of transfer from FC Como**\
 `The forward is the most-followed female footballer in the world, with nearly 16 million followers on Instagram.`\
 https://nytimes.com/athletic/6990974/2026/01/22/alisha-lehmann-fc-como-leicester-transfer/

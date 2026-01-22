@@ -1,40 +1,40 @@
-**German Chancellor Urges Europe to Cut Red Tape and Spend Big on Defense**\
-`Speaking in Davos, Chancellor Friedrich Merz also implicitly criticized President Trump’s demeaning treatment of European allies.`\
-https://nytimes.com/2026/01/22/us/politics/merz-germany-davos-europe-militaries.html
+**Vikings free-agency predictions: Who stays? Who goes? Where will they need help?**\
+`The Vikings have a bevy of players whose contracts will expire before the flurry of free agency in March.`\
+https://nytimes.com/athletic/6989239/2026/01/22/vikings-nfl-free-agency-predictions-jalen-nailor/
 
-**Tottenham's Bergvall set for period on sidelines with ankle injury**\
-`The 19-year-old suffered an ankle injury during Tuesday's win over Borussia Dortmund.`\
-https://nytimes.com/athletic/6989926/2026/01/22/lucas-bergvall-tottenham-injury-news/
+**Forecasting Drew Petzing's Lions impact: How he might affect each position**\
+`Petzing and Jared Goff feels like a partnership that could flourish in ways it didn’t under John Morton.`\
+https://nytimes.com/athletic/6990286/2026/01/22/lions-drew-petzing-offense-jared-goff-positions/
 
-**Alisha Lehmann trains with Leicester ahead of transfer from FC Como**\
-`The forward is the most-followed female footballer in the world, with nearly 16 million followers on Instagram.`\
-https://nytimes.com/athletic/6990974/2026/01/22/alisha-lehmann-fc-como-leicester-transfer/
+**Panthers offseason priorities: Lengthy to-do list follows long-awaited trip to playoffs**\
+`The Panthers need pass rushers, a plan for Ikem Ekwonu's absence and possibly a long-term deal for Jalen Coker.`\
+https://nytimes.com/athletic/6989897/2026/01/22/panthers-offseason-priorities-edge-rusher-left-tackle/
 
-**What to expect when John Harbaugh's first Giants staff takes shape**\
-`Plus, a front-office shakeup, and the latest on Cam Skattebo and Malik Nabers.`\
-https://nytimes.com/athletic/6989769/2026/01/22/john-harbaugh-new-york-giants-coaching-staff/
+**Red Wings are rising to meet the moment of a playoff chase: 5 thoughts**\
+`The Red Wings' overtime win in Toronto clinched a season sweep of the Maple Leafs and highlighted some of their most encouraging trends.`\
+https://nytimes.com/athletic/6990564/2026/01/22/red-wings-playoff-push-larkin-gibson-seider/
 
-**Lakers by the numbers: Evaluating tough stretch, familiar problems and the road ahead**\
-`As the trade deadline nears, here's what the Lakers' second-quarter numbers say about what's working and what's not. `\
-https://nytimes.com/athletic/6988471/2026/01/22/lakers-second-quarter-season-stretch/
+**Who will be the Cowboys' next DC? Ranking the candidates from most to least likely**\
+`Dallas is taking its time finding the right candidate to replace Matt Eberflus. Nine candidates have been interviewed.`\
+https://nytimes.com/athletic/6989676/2026/01/22/cowboys-defensive-coordinator-candidate-rankings/
 
-**The New York Times International Edition in Print for Friday, Jan. 23, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/01/22/todays-new-york-times-international-edition
+**Can the Leafs contend for a playoff spot if Oliver Ekman-Larsson misses time?**\
+`Another seemingly harmless play, another reminder of just how close this Maple Leafs season is from going one way or the other.`\
+https://nytimes.com/athletic/6990728/2026/01/22/oliver-ekman-larsson-injury-leafs-red-wings-ramifications/
 
-**'Vendetta Is the Best Word for What They’re Doing': Inside Kash Patel's F.B.I.**\
-`Forty-five current and former employees on the changes they say are undermining the agency and making America less safe.`\
-https://nytimes.com/interactive/2026/01/22/magazine/trump-kash-patel-fbi-agents.html
+**The scientific case for ping pong: Why athletes — and you — should play more table tennis**\
+`Most athletes play ping pong to whet their competitive instincts or kill time. But what if it could actually improve performance?`\
+https://nytimes.com/athletic/6900944/2026/01/22/ping-pong-why-athletes-should-play-more-table-tennis/
 
-**A Trattoria That’s ‘a Passing of the Torch’**\
-`Plus: a new hotel at Utah’s Sundance Resort, an exhibition of Sarah Sze’s artwork in Los Angeles and more recommendations from T Magazine.`\
-https://nytimes.com/2026/01/22/t-magazine/tiella-trattoria-london.html
+**Jordan Stolz and this U.S. speed skating Olympic team could be historically good**\
+`The 21-year-old Stolz is the headliner, but Team USA's Olympic medal potential in long track goes much deeper.`\
+https://nytimes.com/athletic/6961428/2026/01/22/jordan-stolz-us-speed-skating-olympic-team-medals/
 
-**This Is Not an Average Winter Storm, Weather Experts Warn**\
-`Half the U.S. population will likely see some effect from the sprawling storm that will move across the country this weekend, meteorologists said.`\
-https://nytimes.com/2026/01/22/weather/winter-storm-forecast-snow-ice.html
+**NBA Trade Board 2.0: Ja Morant, Michael Porter Jr. join list as deadline looms**\
+`A lot could change before Feb. 5, and not listing players now doesn't mean that talks won't ramp up soon.`\
+https://nytimes.com/athletic/6988626/2026/01/22/nba-trade-rumors-ja-morant-michael-porter/
 
-**Why the Patriots should be worried about their offensive line against the Broncos**\
-`In their two playoff wins, the Patriots have allowed 10 sacks and QB Drake Maye has six fumbles. That could be a serious problem in Denver.`\
-https://nytimes.com/athletic/6989764/2026/01/22/patriots-offensive-line-drake-maye-broncos-afc-championship/
+**With Mitch Marner's return to Toronto, there should be plenty of boos to go around**\
+`For Maple Leafs fans, booing Marner on Friday night in Toronto is entirely understandable, given the way this era of the franchise has gone.`\
+https://nytimes.com/athletic/6989605/2026/01/22/mitch-marner-toronto-maple-leafs-return-boos/
 
