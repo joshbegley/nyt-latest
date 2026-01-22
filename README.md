@@ -1,3 +1,11 @@
+**Lakers' Jeanie Buss laments LeBron James being 'pulled into my family drama'**\
+`Buss' comments were in response to story about a family rift that led to the sale of the franchise.`\
+https://nytimes.com/athletic/6990015/2026/01/21/lakers-jeanie-buss-lebron-james-relationship-comments/
+
+**With Kyle Tucker, Dodgers continue to be the place where the stars want to be**\
+`The fact that the team continues to sign so many of the game’s best, however, remains the biggest topic of conversation in the sport.`\
+https://nytimes.com/athletic/6990099/2026/01/21/kyle-tucker-dodgers-mlb-signing-spending/
+
 **Illinois Investigates Claim That Landlord Tipped Off High-Profile ICE Raid**\
 `The state said it has opened an investigation into whether the management of a troubled South Side building may have called federal agents to try to help clear out Black and Hispanic tenants.`\
 https://nytimes.com/2026/01/21/us/chicago-building-ice-raid-investigation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/21/us/politics/davos-trump-speech-greenland-deal.htm
 **T.S.A. Leader Defends Working With ICE to Congress**\
 `At an oversight hearing, Democratic lawmakers peppered the agency’s acting director over the Transportation Security Administration’s role in Trump’s immigration crackdown.`\
 https://nytimes.com/2026/01/21/us/politics/tsa-ice-agents-congress.html
-
-**Inside the pivot that led the Red Sox to double down on pitching, add Ranger Suárez**\
-`After Alex Bregman signed with the Cubs, the Red Sox immediately shifted their attention to pitching, specifically Ranger Suárez.`\
-https://nytimes.com/athletic/6989837/2026/01/21/boston-red-sox-ranger-suarez-signing-timeline/
-
-**Dozens Are Sickened by a Rare Fungal Infection in Tennessee**\
-`One person who contracted it died. The fungus is commonly found in soil in the Ohio River and Mississippi River valleys, and the illness is not contagious.`\
-https://nytimes.com/2026/01/21/us/histoplasmosis-outbreak-tennessee.html
 
