@@ -1,3 +1,7 @@
+**Ravens to hire Chargers defensive coordinator Jesse Minter as head coach**\
+`Minter, who takes over for John Harbaugh, becomes just the fourth head coach in the Ravens' 31-year history. `\
+https://nytimes.com/athletic/6989606/2026/01/22/ravens-jesse-minter-head-coach-chargers/
+
 **Trump to Expand ‘Mexico City’ Abortion Rule to Include D.E.I and Gender**\
 `The policy has traditionally been aimed at keeping organizations that receive U.S. tax dollars from performing or promoting abortion as a method of family planning.`\
 https://nytimes.com/2026/01/22/us/politics/trump-to-expand-mexico-city-abortion-rule-to-include-dei-and-gender.html
@@ -33,8 +37,4 @@ https://nytimes.com/wirecutter/blog/veer-cruiser-xl-stroller-wagon-review/
 **Davos Stops Pretending**\
 `Buzzwords like social justice and sustainability have vanished as the elite summit seeks Trump’s favor.`\
 https://nytimes.com/2026/01/22/world/davos-trump-greenland-ukraine.html
-
-**4 Takeaways From Jack Smith’s Testimony Before Lawmakers**\
-`In his remarks, the former special counsel repeatedly denied that he had acted out of partisan animus and bemoaned the Trump administration’s efforts to go after the president’s perceived enemies.`\
-https://nytimes.com/2026/01/22/us/politics/takeaways-jack-smith-congress-testimony.html
 
