@@ -1,3 +1,19 @@
+**3 Films Used to Hold the Record for Oscar Nominations (Thanks to Some Quirks)**\
+`As categories evolved over time, the way to make academy history did, too. But for decades, no film topped 14 nods, until “Sinners” smashed the record.`\
+https://nytimes.com/2026/01/22/movies/sinners-oscars-record-nominations.html
+
+**Leafs after 50: Bad asset management leaves Toronto without solutions to solvable problems**\
+`Blues' Robert Thomas would solve a lot of problems in Toronto, and it cannot be understated how perfect he would fit on the Maple Leafs. `\
+https://nytimes.com/athletic/6989449/2026/01/22/maple-leafs-robert-thomas-blues-trade/
+
+**Grant Fisher and the 'freedom' of switching events: 'It’s fun to shake things up'**\
+`In an exclusive interview, Grant Fisher talks about making his debut on the road at next month's New York half marathon. `\
+https://nytimes.com/athletic/6985115/2026/01/22/grant-fisher-new-york-half-marathon/
+
+**Dodgers held firm on 4-year offer to Kyle Tucker, who had a longer deal on the table**\
+`Selling a destination becomes easier when you're the Dodgers and your pitch includes back-to-back World Series championships.`\
+https://nytimes.com/athletic/6989870/2026/01/22/dodgers-kyle-tucker-negotiations-mlb-spending/
+
 **No Corrections: Jan. 22, 2026**\
 `No corrections appeared in print on Thursday, Jan. 22, 2026.`\
 https://nytimes.com/2026/01/22/pageoneplus/no-corrections-jan-22-2026.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/22/business/dealbook/trump-taco-davos.html
 **Way-too-early SEC vibes rankings for 2026: Indiana and an identity crisis**\
 `We know the vibe in the SEC: An identity crisis, three straight years without a championship. Let’s now take a look at individual teams.`\
 https://nytimes.com/athletic/6987794/2026/01/22/sec-football-rankings-offseason-2026/
-
-**I've been ranking Twins prospects for 20 years: Here are the 20 best, from stars to busts**\
-`How does current Twins top prospect Walker Jenkins compare to Minnesota's most-hyped prospects of the past two decades?`\
-https://nytimes.com/athletic/6974049/2026/01/22/top-twins-prospects-last-20-years/
-
-**Cyndi Lauper Cleans Out Her Closet**\
-`Fans lined up for a chance to buy a piece of the pop star’s wardrobe, even without her at the sale.`\
-https://nytimes.com/2026/01/22/style/cyndi-lauper-cleans-out-her-closet.html
-
-**2026 Oscar Nominations: Updating List**\
-`The movies competing for the 98th Academy Awards. The ceremony will air on March 15.`\
-https://nytimes.com/2026/01/22/movies/2026-oscar-nominees-list.html
-
-**Court Vision: Is Nebraska basketball bound to be next incredible turnaround?**\
-`Don't look now, but here comes Florida. Plus, snubs from The Athletic's midseason All-America team.`\
-https://nytimes.com/athletic/6989424/2026/01/22/college-basketball-nebraska-florida/
 
