@@ -1,40 +1,40 @@
-**German Chancellor Urges Europe to Cut Red Tape and Spend Big on Defense**\
-`Speaking in Davos, Chancellor Friedrich Merz also implicitly criticized President Trump’s demeaning treatment of European allies.`\
-https://nytimes.com/2026/01/22/us/politics/merz-germany-davos-europe-militaries.html
+**36 Hours in Mexico City**\
+`North America’s greatest metropolis is constantly changing, uncommonly warm and never less than thrilling.`\
+https://nytimes.com/interactive/2026/01/22/travel/things-to-do-mexico-city.html
 
-**Tottenham's Bergvall set for period on sidelines with ankle injury**\
-`The 19-year-old suffered an ankle injury during Tuesday's win over Borussia Dortmund.`\
-https://nytimes.com/athletic/6989926/2026/01/22/lucas-bergvall-tottenham-injury-news/
+**After a remarkable Year 1 run, Bears coach Ben Johnson already calling for greater urgency**\
+`Johnson's "not good enough" messaging felt striking but far from surprising as reality-check motivation for Bears players and coaches.`\
+https://nytimes.com/athletic/6989577/2026/01/22/bears-ben-johnson-not-good-enough/
 
-**Alisha Lehmann trains with Leicester ahead of transfer from FC Como**\
-`The forward is the most-followed female footballer in the world, with nearly 16 million followers on Instagram.`\
-https://nytimes.com/athletic/6990974/2026/01/22/alisha-lehmann-fc-como-leicester-transfer/
+**Chiefs 2025 offense: What needs to be fixed (and what doesn't) after disappointing year**\
+`The Chiefs aren't likely to reinvent the offense this offseason after a disappointing 6-11 season. But they still need these fixes.`\
+https://nytimes.com/athletic/6988815/2026/01/22/chiefs-2025-offense-what-needs-to-be-fixed/
 
-**What to expect when John Harbaugh's first Giants staff takes shape**\
-`Plus, a front-office shakeup, and the latest on Cam Skattebo and Malik Nabers.`\
-https://nytimes.com/athletic/6989769/2026/01/22/john-harbaugh-new-york-giants-coaching-staff/
+**Yes, the Yankees seem to be running it back. No, that's not a bad thing**\
+`With Cody Bellinger, Trent Grisham and company returning, New York will look similar to last year's team. But don't despair, Yankees fans. `\
+https://nytimes.com/athletic/6990415/2026/01/22/yankees-running-it-back-bellinger/
 
-**Lakers by the numbers: Evaluating tough stretch, familiar problems and the road ahead**\
-`As the trade deadline nears, here's what the Lakers' second-quarter numbers say about what's working and what's not. `\
-https://nytimes.com/athletic/6988471/2026/01/22/lakers-second-quarter-season-stretch/
+**Giannis? Trey Murphy? Domantas Sabonis? Assessing your Toronto Raptors fake trades**\
+`The Raptors' long-term deals complicate their outlook, but they should still have many offers to consider as the Feb. 5 deadline nears.`\
+https://nytimes.com/athletic/6989329/2026/01/22/raptors-giannis-trades-trey-murphy-domantas-sabonis/
 
-**The New York Times International Edition in Print for Friday, Jan. 23, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/01/22/todays-new-york-times-international-edition
+**Tom Brady knew he needed to improve on TV. So he channeled his ‘quarterback’ days**\
+`Brady and the Fox team around him describe how Brady made a leap this season in his NFL TV analysis.`\
+https://nytimes.com/athletic/6990290/2026/01/22/tom-brady-fox-nfl-afc-championship/
 
-**'Vendetta Is the Best Word for What They’re Doing': Inside Kash Patel's F.B.I.**\
-`Forty-five current and former employees on the changes they say are undermining the agency and making America less safe.`\
-https://nytimes.com/interactive/2026/01/22/magazine/trump-kash-patel-fbi-agents.html
+**Vikings free-agency predictions: Who stays? Who goes? Where will they need help?**\
+`The Vikings have a bevy of players whose contracts will expire before the flurry of free agency in March.`\
+https://nytimes.com/athletic/6989239/2026/01/22/vikings-nfl-free-agency-predictions-jalen-nailor/
 
-**A Trattoria That’s ‘a Passing of the Torch’**\
-`Plus: a new hotel at Utah’s Sundance Resort, an exhibition of Sarah Sze’s artwork in Los Angeles and more recommendations from T Magazine.`\
-https://nytimes.com/2026/01/22/t-magazine/tiella-trattoria-london.html
+**Forecasting Drew Petzing's Lions impact: How he might affect each position**\
+`Petzing and Jared Goff feels like a partnership that could flourish in ways it didn’t under John Morton.`\
+https://nytimes.com/athletic/6990286/2026/01/22/lions-drew-petzing-offense-jared-goff-positions/
 
-**This Is Not an Average Winter Storm, Weather Experts Warn**\
-`Half the U.S. population will likely see some effect from the sprawling storm that will move across the country this weekend, meteorologists said.`\
-https://nytimes.com/2026/01/22/weather/winter-storm-forecast-snow-ice.html
+**Panthers offseason priorities: Lengthy to-do list follows long-awaited trip to playoffs**\
+`The Panthers need pass rushers, a plan for Ikem Ekwonu's absence and possibly a long-term deal for Jalen Coker.`\
+https://nytimes.com/athletic/6989897/2026/01/22/panthers-offseason-priorities-edge-rusher-left-tackle/
 
-**Why the Patriots should be worried about their offensive line against the Broncos**\
-`In their two playoff wins, the Patriots have allowed 10 sacks and QB Drake Maye has six fumbles. That could be a serious problem in Denver.`\
-https://nytimes.com/athletic/6989764/2026/01/22/patriots-offensive-line-drake-maye-broncos-afc-championship/
+**Red Wings are rising to meet the moment of a playoff chase: 5 thoughts**\
+`The Red Wings' overtime win in Toronto clinched a season sweep of the Maple Leafs and highlighted some of their most encouraging trends.`\
+https://nytimes.com/athletic/6990564/2026/01/22/red-wings-playoff-push-larkin-gibson-seider/
 
