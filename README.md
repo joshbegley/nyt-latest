@@ -1,3 +1,11 @@
+**10 years of The Athletic**\
+`As The Athletic turns 10, we offer some of the most memorable stories we've done so far. `\
+https://nytimes.com/athletic/6991132/2026/01/22/the-athletic-10-year-anniversary/
+
+**Watch Live: Former Special Counsel Jack Smith Testifies to House Judiciary Committee**\
+`Jack Smith, the special prosecutor who twice indicted Trump, testifies at a public hearing of the House Judiciary Committee on Thursday in a long-awaited public confrontation.`\
+https://nytimes.com/video/us/politics/100000010660880/jack-smith-house-testimony-trump.html
+
 **Putin Says Russia Could Donate to ‘Board of Peace’ if U.S. Unfroze Assets**\
 `The Kremlin leader said he will discuss the possibility today with Trump administration envoys in Moscow.`\
 https://nytimes.com/2026/01/22/world/europe/putin-board-of-peace-frozen-assets.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6991244/2026/01/22/sec-football-2026-fan-survey/
 **Australian Open Day 5 recap: Osaka and Cîrstea's handshake drama as tournament comes to life**\
 `Amid Czech players starring, tension at the net and upsets coming into play, the tournament finally found its drama.`\
 https://nytimes.com/athletic/6989936/2026/01/22/tennis-australian-open-recap-results-osaka-cirstea/
-
-**The Exacting, Ephemeral Art of Ice Carving**\
-`A look inside a Queens studio where Buddhas, sneakers and swans are carved with reverence and the knowledge that beauty, like ice, is fleeting.`\
-https://nytimes.com/2026/01/22/arts/design/the-exacting-ephemeral-art-of-ice-carving.html
-
-**Trump and ‘Taco!’ Roil Davos**\
-`Business leaders at the World Economic Forum were relieved by the president’s about-face on Greenland, but remain on edge about what could come next.`\
-https://nytimes.com/2026/01/22/business/dealbook/trump-taco-davos.html
 
