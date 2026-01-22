@@ -1,3 +1,7 @@
+**How to stay ahead of FPL's blank and double gameweeks**\
+`Navigating blank and double gameweeks in the second half of the season gives FPL managers a strategic edge with transfers and chip plays`\
+https://nytimes.com/athletic/6987035/2026/01/22/fantasy-premier-league-tips-fpl-gameweek-guide/
+
 **Jhon Duran, Aston Villa and a 'Sliding Doors' moment - what if he had not been sent off?**\
 `Duran comes up against Villa for Fenerbahce on Thursday - we look back at how a controversial red card led to his exit from Villa Park`\
 https://nytimes.com/athletic/6984907/2026/01/22/jhon-duran-newcastle-villa-red-card/

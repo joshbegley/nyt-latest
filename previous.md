@@ -1,3 +1,7 @@
+**How to stay ahead of FPL's blank and double gameweeks**\
+`Navigating blank and double gameweeks in the second half of the season gives FPL managers a strategic edge with transfers and chip plays`\
+https://nytimes.com/athletic/6987035/2026/01/22/fantasy-premier-league-tips-fpl-gameweek-guide/
+
 **Jhon Duran, Aston Villa and a 'Sliding Doors' moment - what if he had not been sent off?**\
 `Duran comes up against Villa for Fenerbahce on Thursday - we look back at how a controversial red card led to his exit from Villa Park`\
 https://nytimes.com/athletic/6984907/2026/01/22/jhon-duran-newcastle-villa-red-card/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6989008/2026/01/22/manchester-united-crown-ferguson
 **The Alternative Premier League Table: No 23 - Ball-in-play time**\
 `Which teams' games see the ball on the field the most and who are the worst offenders when it comes to kicking it out?`\
 https://nytimes.com/athletic/6988782/2026/01/22/the-alternative-premier-league-table-teams-ball-in-play/
-
-**Is Oliver Glasner's tactical approach scalable to a 'Big Six' club?**\
-`He has had cup success with Eintracht Frankfurt and Crystal Palace, but are his transitional methods applicable to possession-heavy sides?`\
-https://nytimes.com/athletic/6985360/2026/01/22/oliver-glasner-tactics-big-six/
 
