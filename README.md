@@ -1,3 +1,7 @@
+**No Corrections: Jan. 22, 2026**\
+`No corrections appeared in print on Thursday, Jan. 22, 2026.`\
+https://nytimes.com/2026/01/22/pageoneplus/no-corrections-jan-22-2026.html
+
 **SEC football fan survey: How worried should the conference be?**\
 `It’s been one of the main topics around college football for more than a year: the end of the SEC's dominance. Now we want to hear from you.`\
 https://nytimes.com/athletic/6991244/2026/01/22/sec-football-2026-fan-survey/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/movies/2026-oscar-nominees-list.html
 **Court Vision: Is Nebraska basketball bound to be next incredible turnaround?**\
 `Don't look now, but here comes Florida. Plus, snubs from The Athletic's midseason All-America team.`\
 https://nytimes.com/athletic/6989424/2026/01/22/college-basketball-nebraska-florida/
-
-**Eight Eagles Thoughts: Latest on OC search, perspective on candidates, desirability of job**\
-`The Eagles have likely missed out on the biggest fish to fill their offensive coordinator position.`\
-https://nytimes.com/athletic/6990663/2026/01/22/eagles-offensive-coordinator-search-candidates/
 
