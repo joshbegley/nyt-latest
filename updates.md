@@ -1,3 +1,7 @@
+**Indianapolis to continue hosting NFL Scouting Combine through at least 2028**\
+`Indiana quarterback Fernando Mendoza is expected to be a huge draw at this year's NFL Scouting Combine in Indianapolis.`\
+https://nytimes.com/athletic/6990261/2026/01/21/indianapolis-host-nfl-scouting-combine-2028/
+
 **Vikings, defensive coordinator Brian Flores agree to new contract**\
 `Flores will return for his fourth season as the team's defensive coordinator — unless he gets a head coaching position elsewhere this cycle.`\
 https://nytimes.com/athletic/6990267/2026/01/21/vikings-brian-flores-defensive-coordinator-contract/
