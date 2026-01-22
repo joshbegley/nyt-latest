@@ -1,3 +1,7 @@
+**SEC football fan survey: How worried should the conference be?**\
+`It’s been one of the main topics around college football for more than a year: the end of the SEC's dominance. Now we want to hear from you.`\
+https://nytimes.com/athletic/6991244/2026/01/22/sec-football-2026-fan-survey/
+
 **Australian Open Day 5 recap: Osaka and Cîrstea's handshake drama as tournament comes to life**\
 `Amid Czech players starring, tension at the net and upsets coming into play, the tournament finally found its drama.`\
 https://nytimes.com/athletic/6989936/2026/01/22/tennis-australian-open-recap-results-osaka-cirstea/
