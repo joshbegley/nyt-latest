@@ -1,3 +1,11 @@
+**Energy Dept. Says It Is Canceling $30 Billion in Clean Energy Loans**\
+`Many of the cancellations had been known for months, but the announcement underscored the drastic change in the energy landscape under President Trump.`\
+https://nytimes.com/2026/01/22/climate/energy-dept-says-it-is-canceling-30-billion-in-clean-energy-loans.html
+
+**James Bernard, a Founding Editor of a Hip-Hop ‘Bible,’ Dies at 58**\
+`One of the most influential voices of the seminal magazine The Source, he chronicled rap’s rise and its explosion into the cultural mainstream.`\
+https://nytimes.com/2026/01/22/arts/music/james-bernard-dead.html
+
 **Jesse Minter is leaving the Chargers: 8 candidates to replace him as DC**\
 `The Chargers have been prepared to lose their star defensive coordinator and now start the process of replacing him.`\
 https://nytimes.com/athletic/6990093/2026/01/22/chargers-defensive-coordinator-candidates/
