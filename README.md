@@ -1,3 +1,19 @@
+**Why the Women's League Cup will exclude UWCL clubs from next season**\
+`English teams who qualify for the Women's Champions League will not participate in the Women's League Cup from next season`\
+https://nytimes.com/athletic/6991305/2026/01/22/womens-league-cup-wsl-uwcl/
+
+**Hecklers Roast My $800 Stroller Wagon. After 650 Miles, I Still Love It.**\
+`After pushing through snow, sand, and mud, my family of four has come to view the luxury stroller wagon as a necessity..`\
+https://nytimes.com/wirecutter/blog/veer-cruiser-xl-stroller-wagon-review/
+
+**Some Immune Systems Defeat Cancer. Could That Become a Drug?**\
+`Researchers found an antibody that seems to play a role in people with better lung cancer prognoses, but turning it into a treatment could be difficult.`\
+https://nytimes.com/2026/01/22/health/lung-cancer-antibodies-immune-system.html
+
+**Giants part ways with Kevin Abrams, long-time front-office exec**\
+`Abrams had been with the organization since 1999.`\
+https://nytimes.com/athletic/6991393/2026/01/22/new-york-giants-exec-kevin-abrams/
+
 **10 years of The Athletic**\
 `As The Athletic turns 10, we offer some of the most memorable stories we've done so far. `\
 https://nytimes.com/athletic/6991132/2026/01/22/the-athletic-10-year-anniversary/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6989449/2026/01/22/maple-leafs-robert-thomas-blues-
 **Grant Fisher and the 'freedom' of switching events: 'It’s fun to shake things up'**\
 `In an exclusive interview, Grant Fisher talks about making his debut on the road at next month's New York half marathon. `\
 https://nytimes.com/athletic/6985115/2026/01/22/grant-fisher-new-york-half-marathon/
-
-**Dodgers held firm on 4-year offer to Kyle Tucker, who had a longer deal on the table**\
-`Selling a destination becomes easier when you're the Dodgers and your pitch includes back-to-back World Series championships.`\
-https://nytimes.com/athletic/6989870/2026/01/22/dodgers-kyle-tucker-negotiations-mlb-spending/
-
-**No Corrections: Jan. 22, 2026**\
-`No corrections appeared in print on Thursday, Jan. 22, 2026.`\
-https://nytimes.com/2026/01/22/pageoneplus/no-corrections-jan-22-2026.html
-
-**SEC football fan survey: How worried should the conference be?**\
-`It’s been one of the main topics around college football for more than a year: the end of the SEC's dominance. Now we want to hear from you.`\
-https://nytimes.com/athletic/6991244/2026/01/22/sec-football-2026-fan-survey/
-
-**Australian Open Day 5 recap: Osaka and Cîrstea's handshake drama as tournament comes to life**\
-`Amid Czech players starring, tension at the net and upsets coming into play, the tournament finally found its drama.`\
-https://nytimes.com/athletic/6989936/2026/01/22/tennis-australian-open-recap-results-osaka-cirstea/
 
