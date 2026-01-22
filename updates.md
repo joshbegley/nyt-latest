@@ -1,3 +1,11 @@
+**NFL conference championship game best bets, numbers to know, projected scores**\
+`A breakdown of the two conference championship games, complete with trends, stats, best bets from our staff and model-projected scores.`\
+https://nytimes.com/athletic/6988882/2026/01/22/nfl-conference-championship-best-bets-projected-scores/
+
+**Was Casemiro worth the estimated £119m he's cost Manchester United over four seasons?**\
+`An appraisal of the 33-year-old midfielder's time at Old Trafford after he announced he will leave the club at the end of the season`\
+https://nytimes.com/athletic/6992145/2026/01/22/casemiro-man-united-exit-contract/
+
 **Was Casemiro worth the estimated £123m he's cost Manchester United over four seasons?**\
 `An appraisal of the 33-year-old midfielder's time at Old Trafford after he announced he will leave the club at the end of the season`\
 https://nytimes.com/athletic/6992145/2026/01/22/casemiro-man-united-exit-contract/
