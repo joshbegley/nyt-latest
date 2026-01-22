@@ -1,10 +1,14 @@
-**Ravens to hire Chargers defensive coordinator Jesse Minter as head coach**\
+**Sense of Relief Spreads Among European Leaders Over De-Escalation of Greenland Crisis**\
+`Some European leaders on Thursday welcomed President Trump’s announcement calling off tariffs on Europe over Greenland, and expressed optimism that it would eventually result in a victory for Arctic security and NATO unity.`\
+https://nytimes.com/video/world/europe/100000010661927/sense-of-relief-spreads-among-european-leaders-over-de-escalation-of-greenland-crisis.html
+
+**Ravens hire Chargers defensive coordinator Jesse Minter as head coach**\
 `Minter, who takes over for John Harbaugh, becomes just the fourth head coach in the Ravens' 31-year history. `\
 https://nytimes.com/athletic/6989606/2026/01/22/ravens-jesse-minter-head-coach-chargers/
 
 **Trump to Expand ‘Mexico City’ Abortion Rule to Include D.E.I and Gender**\
 `The policy has traditionally been aimed at keeping organizations that receive U.S. tax dollars from performing or promoting abortion as a method of family planning.`\
-https://nytimes.com/2026/01/22/us/politics/trump-to-expand-mexico-city-abortion-rule-to-include-dei-and-gender.html
+https://nytimes.com/2026/01/22/us/politics/trump-mexico-city-policy-abortion-dei-gender.html
 
 **Jon-Eric Sullivan, Jeff Hafley say Dolphins' goal is 'chasing championships'**\
 `The Dolphins haven't won a playoff game since 2000, the longest current drought in the NFL.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/arts/music/cliburn-competition-conductors.html
 **Hecklers Roast My $800 Stroller Wagon. After 650 Miles, I Still Love It.**\
 `After pushing through snow, sand, and mud, my family of four has come to view the luxury stroller wagon as a necessity.`\
 https://nytimes.com/wirecutter/blog/veer-cruiser-xl-stroller-wagon-review/
-
-**Davos Stops Pretending**\
-`Buzzwords like social justice and sustainability have vanished as the elite summit seeks Trump’s favor.`\
-https://nytimes.com/2026/01/22/world/davos-trump-greenland-ukraine.html
 
