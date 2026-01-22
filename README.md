@@ -1,4 +1,8 @@
-**Was Casemiro worth the estimated £123m he's cost Manchester United over four seasons?**\
+**NFL conference championship game best bets, numbers to know, projected scores**\
+`A breakdown of the two conference championship games, complete with trends, stats, best bets from our staff and model-projected scores.`\
+https://nytimes.com/athletic/6988882/2026/01/22/nfl-conference-championship-best-bets-projected-scores/
+
+**Was Casemiro worth the estimated £119m he's cost Manchester United over four seasons?**\
 `An appraisal of the 33-year-old midfielder's time at Old Trafford after he announced he will leave the club at the end of the season`\
 https://nytimes.com/athletic/6992145/2026/01/22/casemiro-man-united-exit-contract/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6992300/2026/01/22/panthers-vs-jets-stream-how-to-w
 **How to watch Heat vs. Trail Blazers: Time, TV, streaming**\
 `Find out how to watch the Miami Heat play the Portland Trail Blazers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6992298/2026/01/22/heat-vs-trail-blazers-stream-how-to-watch-jan-22/
-
-**How to watch Bulls vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6992288/2026/01/22/bulls-vs-timberwolves-stream-how-to-watch-jan-22/
 

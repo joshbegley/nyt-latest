@@ -1,3 +1,7 @@
+**Was Casemiro worth the estimated £123m he's cost Manchester United over four seasons?**\
+`An appraisal of the 33-year-old midfielder's time at Old Trafford after he announced he will leave the club at the end of the season`\
+https://nytimes.com/athletic/6992145/2026/01/22/casemiro-man-united-exit-contract/
+
 **Appeals Court Weighs Trump’s Effort to Use War Power for Deportations**\
 `Some Fifth Circuit judges questioned the government’s claim that courts must defer to the president’s finding of an “invasion” by Venezuela.`\
 https://nytimes.com/2026/01/22/us/trump-alien-enemies-act-appeals.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6992298/2026/01/22/heat-vs-trail-blazers-stream-how
 **How to watch Bulls vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6992288/2026/01/22/bulls-vs-timberwolves-stream-how-to-watch-jan-22/
-
-**How to watch Senators vs. Predators: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6992286/2026/01/22/senators-vs-predators-stream-how-to-watch-jan-22/
 

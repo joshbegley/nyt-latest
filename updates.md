@@ -1,3 +1,7 @@
+**Was Casemiro worth the estimated £123m he's cost Manchester United over four seasons?**\
+`An appraisal of the 33-year-old midfielder's time at Old Trafford after he announced he will leave the club at the end of the season`\
+https://nytimes.com/athletic/6992145/2026/01/22/casemiro-man-united-exit-contract/
+
 **Appeals Court Weighs Trump’s Effort to Use War Power for Deportations**\
 `Some Fifth Circuit judges questioned the government’s claim that courts must defer to the president’s finding of an “invasion” by Venezuela.`\
 https://nytimes.com/2026/01/22/us/trump-alien-enemies-act-appeals.html
