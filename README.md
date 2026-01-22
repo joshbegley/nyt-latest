@@ -1,3 +1,7 @@
+**Former Police Officer Who Failed to Confront Uvalde Gunman Found Not Guilty**\
+`A jury in Corpus Christi found Adrian Gonzales not guilty of 29 counts of endangering the children who were left trapped with a gunman at Robb Elementary School in Texas.`\
+https://nytimes.com/2026/01/21/us/former-police-officer-who-failed-to-confront-uvalde-gunman-found-not-guilty.html
+
 **Indianapolis to continue hosting NFL Scouting Combine through at least 2028**\
 `Indiana quarterback Fernando Mendoza is expected to be a huge draw at this year's NFL Scouting Combine in Indianapolis.`\
 https://nytimes.com/athletic/6990261/2026/01/21/indianapolis-host-nfl-scouting-combine-2028/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/21/opinion/trump-davos-speech-nato.html
 **Pegula and Beane deliver a Bills presser fans won't soon forget. What stood out?**\
 `The owner's and GM's inability to fully explain the decision to fire Sean McDermott leads to more questions than answers.`\
 https://nytimes.com/athletic/6989614/2026/01/21/pegula-beane-bills-press-conference-takeaways/
-
-**English elite fall behind in football 'rich list'; Madrid and Barca on top**\
-`This is the first time there has been no English club among the top four of the annual list of biggest earners`\
-https://nytimes.com/athletic/6988105/2026/01/21/deloitte-rich-list-premier-league-real-madrid-barcelona/
 
