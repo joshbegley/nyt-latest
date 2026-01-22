@@ -1,3 +1,15 @@
+**Ja Morant continues productive return to Grizzlies lineup after six-game absence**\
+`Morant finished with 23 points on 7-of-15 overall shooting, 12 assists, two rebounds, one steal and three blocks in the 124-122 loss.`\
+https://nytimes.com/athletic/6990496/2026/01/21/ja-morant-memphis-grizzlies-trade-rumors/
+
+**Mets land ace in Freddy Peralta, but Brewers cash in, too: MLB Trade Grades**\
+`Both teams followed their well-worn formulas: The Brewers traded an ace on his way to free agency, while the Mets went big-game hunting. `\
+https://nytimes.com/athletic/6990554/2026/01/21/freddy-peralta-mets-brewers-mlb-trade-grades/
+
+**Mets trade for Brewers' ace Freddy Peralta, fill glaring rotation need**\
+`In trading Peralta, the Brewers are putting faith in a young rotation to sustain them. The Mets, meanwhile, get a top-of-the-rotation arm.`\
+https://nytimes.com/athletic/6894446/2026/01/21/mlb-freddy-peralta-trade-mets/
+
 **Giants OF Jung Hoo Lee momentarily detained at LAX due to paperwork issue**\
 `Lee, 26, was traveling from Seoul and either misplaced or forgot part of his travel packet, Giants GM Zack Minasian said.`\
 https://nytimes.com/athletic/6990481/2026/01/21/giants-jung-hoo-lee-detained-lax/
