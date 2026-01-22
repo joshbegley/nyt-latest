@@ -1,3 +1,7 @@
+**Vikings, defensive coordinator Brian Flores agree to new contract**\
+`Flores will return for his fourth season as the team's defensive coordinator — unless he gets a head coaching position elsewhere this cycle.`\
+https://nytimes.com/athletic/6990267/2026/01/21/vikings-brian-flores-defensive-coordinator-contract/
+
 **Lakers' Jeanie Buss laments LeBron James being 'pulled into my family drama'**\
 `Buss' comments were in response to story about a family rift that led to the sale of the franchise.`\
 https://nytimes.com/athletic/6990015/2026/01/21/lakers-jeanie-buss-lebron-james-relationship-comments/
@@ -18,8 +22,8 @@ https://nytimes.com/2026/01/21/world/middleeast/rifaat-al-assad-dead.html
 `The initiative is the latest example of the president dismantling the post-World War II international system and building a new one, with himself at the center.`\
 https://nytimes.com/2026/01/21/us/politics/trump-board-peace-united-nations.html
 
-**In Davos, Trump Brings a Spirit of Fear**\
-`Trump’s speech could have been ghostwritten by Mario Puzo.`\
+**An Unhinged President on the Magic Mountain**\
+`Trump’s Davos speech could have been ghostwritten by Mario Puzo.`\
 https://nytimes.com/2026/01/21/opinion/trump-davos-speech-nato.html
 
 **Pegula and Beane deliver a Bills presser fans won't soon forget. What stood out?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6988105/2026/01/21/deloitte-rich-list-premier-leagu
 **At Davos, a Clash Between Trump’s World and the Old World**\
 `For decades, leaders have gathered in Davos to discuss a shared economic and political future. On Wednesday, President Trump turned the forum into a bracing clash between his worldview and theirs.`\
 https://nytimes.com/2026/01/21/us/politics/davos-trump-speech-greenland-deal.html
-
-**T.S.A. Leader Defends Working With ICE to Congress**\
-`At an oversight hearing, Democratic lawmakers peppered the agency’s acting director over the Transportation Security Administration’s role in Trump’s immigration crackdown.`\
-https://nytimes.com/2026/01/21/us/politics/tsa-ice-agents-congress.html
 
