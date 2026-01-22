@@ -1,3 +1,7 @@
+**Giants OF Jung Hoo Lee momentarily detained at LAX due to paperwork issue**\
+`Lee, 26, was traveling from Seoul and either misplaced or forgot part of his travel packet, Giants GM Zack Minasian said.`\
+https://nytimes.com/athletic/6990481/2026/01/21/giants-jung-hoo-lee-detained-lax/
+
 **Private Autopsy Shows Renee Good Was Shot at Least 3 Times, Lawyers Say**\
 `Lawyers for the family of Ms. Good, who was fatally shot by an immigration agent in Minneapolis, have said their firm was conducting an investigation into the shooting.`\
 https://nytimes.com/2026/01/21/us/renee-good-private-autopsy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6990261/2026/01/21/indianapolis-host-nfl-scouting-c
 **Vikings, defensive coordinator Brian Flores agree to new contract**\
 `Flores will return for his fourth season as the team's defensive coordinator — unless he gets a head coaching position elsewhere this cycle.`\
 https://nytimes.com/athletic/6990267/2026/01/21/vikings-brian-flores-defensive-coordinator-contract/
-
-**Lakers' Jeanie Buss laments LeBron James being 'pulled into my family drama'**\
-`Buss' comments were in response to story about a family rift that led to the sale of the franchise.`\
-https://nytimes.com/athletic/6990015/2026/01/21/lakers-jeanie-buss-lebron-james-relationship-comments/
 

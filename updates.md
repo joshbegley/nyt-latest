@@ -1,3 +1,7 @@
+**Giants OF Jung Hoo Lee momentarily detained at LAX due to paperwork issue**\
+`Lee, 26, was traveling from Seoul and either misplaced or forgot part of his travel packet, Giants GM Zack Minasian said.`\
+https://nytimes.com/athletic/6990481/2026/01/21/giants-jung-hoo-lee-detained-lax/
+
 **Private Autopsy Shows Renee Good Was Shot at Least 3 Times, Lawyers Say**\
 `Lawyers for the family of Ms. Good, who was fatally shot by an immigration agent in Minneapolis, have said their firm was conducting an investigation into the shooting.`\
 https://nytimes.com/2026/01/21/us/renee-good-private-autopsy.html
