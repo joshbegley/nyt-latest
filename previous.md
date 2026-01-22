@@ -1,3 +1,15 @@
+**Hecklers Roast My $800 Stroller Wagon. After 650 Miles, I Still Love It.**\
+`After pushing through snow, sand, and mud, my family of four has come to view the luxury stroller wagon as a necessity.`\
+https://nytimes.com/wirecutter/blog/veer-cruiser-xl-stroller-wagon-review/
+
+**Davos Stops Pretending**\
+`Buzzwords like social justice and sustainability have vanished as the elite summit seeks Trump’s favor.`\
+https://nytimes.com/2026/01/22/world/davos-trump-greenland-ukraine.html
+
+**4 Takeaways From Jack Smith’s Testimony Before Lawmakers**\
+`In his remarks, the former special counsel repeatedly denied that he had acted out of partisan animus and bemoaned the Trump administration’s efforts to go after the president’s perceived enemies.`\
+https://nytimes.com/2026/01/22/us/politics/takeaways-jack-smith-congress-testimony.html
+
 **Ex-Iowa Superintendent Who Lied About Being a Citizen Pleads Guilty**\
 `Ian Roberts led Des Moines Public Schools before his arrest by immigration agents. He had embellished his credentials and lied about his citizenship status.`\
 https://nytimes.com/2026/01/22/us/ian-roberts-superintendent-des-moines-iowa-ice.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6992408/2026/01/22/ethan-horvath-rbny-cardiff-trans
 **Why Your Weather App Is Freaking Out About the Snow**\
 `A foot of snow in New York? Two feet? Well, it’s complicated.`\
 https://nytimes.com/2026/01/22/weather/weather-apps-forecast-apple-android.html
-
-**How Britain’s Bases in Cyprus Could Be a Blueprint for Trump’s Greenland Deal**\
-`NATO officials signaled that an agreement with Mr. Trump on Greenland may be modeled on Britain’s Sovereign Base Areas in Cyprus. Here’s what that may mean.`\
-https://nytimes.com/2026/01/22/world/europe/greenland-trump-bases-cyprus.html
-
-**Applications Open for the 2026 New York Portfolio Review**\
-`Apply now for this free event for photographers.`\
-https://nytimes.com/2026/01/22/lens/2026-new-york-portfolio-review.html
-
-**Fantasy basketball hot topics of the week: Jalen Green's return, Jaylon Tyson's hot hand**\
-`Stan Son looks at top NBA news, including Jimmy Buttler's injury and Jalen Green's return, through a fantasy lens to give managers an edge.`\
-https://nytimes.com/athletic/6992152/2026/01/22/fantasy-basketball-hot-topics-jalen-green/
 
