@@ -1,3 +1,27 @@
+**36 Hours in Mexico City**\
+`North America’s greatest metropolis is constantly changing, uncommonly warm and never less than thrilling.`\
+https://nytimes.com/interactive/2026/01/22/travel/things-to-do-mexico-city.html
+
+**After a remarkable Year 1 run, Bears coach Ben Johnson already calling for greater urgency**\
+`Johnson's "not good enough" messaging felt striking but far from surprising as reality-check motivation for Bears players and coaches.`\
+https://nytimes.com/athletic/6989577/2026/01/22/bears-ben-johnson-not-good-enough/
+
+**Chiefs 2025 offense: What needs to be fixed (and what doesn't) after disappointing year**\
+`The Chiefs aren't likely to reinvent the offense this offseason after a disappointing 6-11 season. But they still need these fixes.`\
+https://nytimes.com/athletic/6988815/2026/01/22/chiefs-2025-offense-what-needs-to-be-fixed/
+
+**Yes, the Yankees seem to be running it back. No, that's not a bad thing**\
+`With Cody Bellinger, Trent Grisham and company returning, New York will look similar to last year's team. But don't despair, Yankees fans. `\
+https://nytimes.com/athletic/6990415/2026/01/22/yankees-running-it-back-bellinger/
+
+**Giannis? Trey Murphy? Domantas Sabonis? Assessing your Toronto Raptors fake trades**\
+`The Raptors' long-term deals complicate their outlook, but they should still have many offers to consider as the Feb. 5 deadline nears.`\
+https://nytimes.com/athletic/6989329/2026/01/22/raptors-giannis-trades-trey-murphy-domantas-sabonis/
+
+**Tom Brady knew he needed to improve on TV. So he channeled his ‘quarterback’ days**\
+`Brady and the Fox team around him describe how Brady made a leap this season in his NFL TV analysis.`\
+https://nytimes.com/athletic/6990290/2026/01/22/tom-brady-fox-nfl-afc-championship/
+
 **Vikings free-agency predictions: Who stays? Who goes? Where will they need help?**\
 `The Vikings have a bevy of players whose contracts will expire before the flurry of free agency in March.`\
 https://nytimes.com/athletic/6989239/2026/01/22/vikings-nfl-free-agency-predictions-jalen-nailor/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6989897/2026/01/22/panthers-offseason-priorities-ed
 **Red Wings are rising to meet the moment of a playoff chase: 5 thoughts**\
 `The Red Wings' overtime win in Toronto clinched a season sweep of the Maple Leafs and highlighted some of their most encouraging trends.`\
 https://nytimes.com/athletic/6990564/2026/01/22/red-wings-playoff-push-larkin-gibson-seider/
-
-**Who will be the Cowboys' next DC? Ranking the candidates from most to least likely**\
-`Dallas is taking its time finding the right candidate to replace Matt Eberflus. Nine candidates have been interviewed.`\
-https://nytimes.com/athletic/6989676/2026/01/22/cowboys-defensive-coordinator-candidate-rankings/
-
-**Can the Leafs contend for a playoff spot if Oliver Ekman-Larsson misses time?**\
-`Another seemingly harmless play, another reminder of just how close this Maple Leafs season is from going one way or the other.`\
-https://nytimes.com/athletic/6990728/2026/01/22/oliver-ekman-larsson-injury-leafs-red-wings-ramifications/
-
-**The scientific case for ping pong: Why athletes — and you — should play more table tennis**\
-`Most athletes play ping pong to whet their competitive instincts or kill time. But what if it could actually improve performance?`\
-https://nytimes.com/athletic/6900944/2026/01/22/ping-pong-why-athletes-should-play-more-table-tennis/
-
-**Jordan Stolz and this U.S. speed skating Olympic team could be historically good**\
-`The 21-year-old Stolz is the headliner, but Team USA's Olympic medal potential in long track goes much deeper.`\
-https://nytimes.com/athletic/6961428/2026/01/22/jordan-stolz-us-speed-skating-olympic-team-medals/
-
-**NBA Trade Board 2.0: Ja Morant, Michael Porter Jr. join list as deadline looms**\
-`A lot could change before Feb. 5, and not listing players now doesn't mean that talks won't ramp up soon.`\
-https://nytimes.com/athletic/6988626/2026/01/22/nba-trade-rumors-ja-morant-michael-porter/
-
-**With Mitch Marner's return to Toronto, there should be plenty of boos to go around**\
-`For Maple Leafs fans, booing Marner on Friday night in Toronto is entirely understandable, given the way this era of the franchise has gone.`\
-https://nytimes.com/athletic/6989605/2026/01/22/mitch-marner-toronto-maple-leafs-return-boos/
 
