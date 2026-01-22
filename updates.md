@@ -1,3 +1,7 @@
+**Mets land their target in Freddy Peralta, but Brewers do well in return**\
+`The Mets get a big upgrade in their rotation, but the Brewers make out well to acquire two top-100 prospects who fill team needs.`\
+https://nytimes.com/athletic/6990611/2026/01/21/freddy-peralta-mets-brewers-trade-analysis/
+
 **49ers to look at 'everything' regarding injuries, including a substation**\
 `Several of the team's top players went down this season, and some are blaming electromagnetic waves next to the practice field.`\
 https://nytimes.com/athletic/6990321/2026/01/21/san-francisco-49ers-injuries-electrical-substation/
