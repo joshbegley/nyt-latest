@@ -1,3 +1,15 @@
+**Why McLaren will wait as long as it can to test its 2026 F1 car**\
+`McLaren won't be one of the teams hitting the track first when F1 preseason testing starts in 2026. But it has planned for a late test debut`\
+https://nytimes.com/athletic/6990596/2026/01/22/mclaren-2026-f1-car-barcelona-test/
+
+**Word of the Day: strident**\
+`This word has appeared in 109 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/22/learning/word-of-the-day-strident.html
+
+**Three more Champions League games? It is a rare kind of fixture congestion Newcastle will welcome**\
+`Eddie Howe's side have not had a free midweek since August but this is what they want: to still be in competitions when it really matters`\
+https://nytimes.com/athletic/6990142/2026/01/22/newcastle-psv-champions-league-games/
+
 **Chelsea's must-win game against Napoli and a tantalising reunion with Conte and Lukaku**\
 `Liam Rosenior's side will encounter two hugely familiar figures on their crucial visit to Naples next week`\
 https://nytimes.com/athletic/6990257/2026/01/22/chelsea-napoli-champions-league-antonio-conte-romelu-lukaku/
