@@ -1,3 +1,11 @@
+**Eight Eagles Thoughts: Latest on OC search, perspective on candidates, desirability of job**\
+`The Eagles have likely missed out on the biggest fish to fill their offensive coordinator position.`\
+https://nytimes.com/athletic/6990663/2026/01/22/eagles-offensive-coordinator-search-candidates/
+
+**Europe’s Leaders Scramble to Find a Path Forward With Trump**\
+`Top officials from across the European Union will meet in Brussels on Thursday to discuss Greenland and, more broadly, their dire relationship with America.`\
+https://nytimes.com/2026/01/22/us/politics/europe-trump-greenland-tariffs-eu-meeting.html
+
 **‘It's not in me to give up’: Bub Carrington is the Washington Wizards’ iron man**\
 `The 20-year-old guard is about to play in his 125th consecutive regular-season NBA game. `\
 https://nytimes.com/athletic/6990699/2026/01/22/bub-carrington-washington-wizards-ironman-streak/
