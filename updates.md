@@ -1,3 +1,19 @@
+**A 67,800-Year-Old Handprint May Be the World’s Oldest Rock Art**\
+`“It was hiding in plain sight all this time,” one researcher said.`\
+https://nytimes.com/2026/01/22/us/indonesia-handprint-rock-art-research.html
+
+**Map: 4.7-Magnitude Earthquake Strikes Near Salt Lake City**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/01/22/us/quake-salt-lake-utah.html
+
+**Trump Returns to a Familiar Role: Sowing Trade Chaos**\
+`The president’s quick reversal on tariffs over Greenland were another sign of his willingness to rip up the international order — even parts of it that he himself has made.`\
+https://nytimes.com/2026/01/22/us/politics/trump-trade-chaos.html
+
+**Bucs finalizing deal to hire ex-Falcons OC Zac Robinson for same role**\
+`Robinson was not retained in Atlanta following the firing of head coach Raheem Morris.`\
+https://nytimes.com/athletic/6986317/2026/01/22/zac-robinson-buccaneers-offensive-coordinator/
+
 **Southerners Scramble to Prepare as Ice, Snow and Bitter Cold Threaten**\
 `The path of an approaching winter storm is not clear yet, but much of the country, including places unused to frigid weather, is bracing for the worst.`\
 https://nytimes.com/2026/01/22/us/snow-ice-winter-storm-south-preparations.html
