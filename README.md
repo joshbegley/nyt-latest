@@ -1,3 +1,15 @@
+**Trump Reaches Framework Greenland Deal**\
+`President Trump said he reached a framework for a deal on the future of Greenland. Some Greenlanders were relieved, but stayed cautious after Trump backed down from his threat to use force.`\
+https://nytimes.com/video/world/europe/100000010660158/trump-greenland-threats-diplomacy-force.html
+
+**Three Dead After Shooting in Rural Australian Town**\
+`The gunman was holed up in the town, local news media reported. The shooting happened on the day Australians were honoring the victims of the Bondi Beach massacre.`\
+https://nytimes.com/2026/01/22/world/australia/australia-lake-cargelligo-shooting.html
+
+**Kimmel Says Comedy Is Political Lately Because Politics Are Comedic**\
+`“We didn’t come to them, they came to us,” the late night host said about news infiltrating comedy while discussing President Trump’s latest stab for Greenland.`\
+https://nytimes.com/2026/01/22/arts/television/late-night-trump-greenland.html
+
 **Filipino Journalist Gets Prison in Case Seen as Attack on Free Press**\
 `Frenchie Mae Cumpio and her former roommate were convicted of financing terrorism and sentenced to up to 18 years in prison.`\
 https://nytimes.com/2026/01/22/world/asia/philippines-cumpio-journalist-prison.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6989245/2026/01/22/vinicius-jr-real-madrid-contract
 **Why McLaren will wait as long as it can to test its 2026 F1 car**\
 `McLaren won't be one of the teams hitting the track first when F1 preseason testing starts in 2026. But it has planned for a late test debut`\
 https://nytimes.com/athletic/6990596/2026/01/22/mclaren-2026-f1-car-barcelona-test/
-
-**Word of the Day: strident**\
-`This word has appeared in 109 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/01/22/learning/word-of-the-day-strident.html
-
-**Three more Champions League games? It is a rare kind of fixture congestion Newcastle will welcome**\
-`Eddie Howe's side have not had a free midweek since August but this is what they want: to still be in competitions when it really matters`\
-https://nytimes.com/athletic/6990142/2026/01/22/newcastle-psv-champions-league-games/
-
-**The New York Times in Print for Thursday, Jan. 22, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/01/22/todays-new-york-times
 
