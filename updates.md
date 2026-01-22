@@ -1,3 +1,7 @@
+**Chelsea's must-win game against Napoli and a tantalising reunion with Conte and Lukaku**\
+`Liam Rosenior's side will encounter two hugely familiar figures on their crucial visit to Naples next week`\
+https://nytimes.com/athletic/6990257/2026/01/22/chelsea-napoli-champions-league-antonio-conte-romelu-lukaku/
+
 **Set-piece problems? Curiously, Liverpool lead the way in the Champions League**\
 `Set pieces at both ends of the pitch have been a big issue for the club this season, but there are no such problems in the Champions League`\
 https://nytimes.com/athletic/6990356/2026/01/22/liverpool-marseille-set-pieces/

@@ -1,3 +1,7 @@
+**Chelsea's must-win game against Napoli and a tantalising reunion with Conte and Lukaku**\
+`Liam Rosenior's side will encounter two hugely familiar figures on their crucial visit to Naples next week`\
+https://nytimes.com/athletic/6990257/2026/01/22/chelsea-napoli-champions-league-antonio-conte-romelu-lukaku/
+
 **Set-piece problems? Curiously, Liverpool lead the way in the Champions League**\
 `Set pieces at both ends of the pitch have been a big issue for the club this season, but there are no such problems in the Champions League`\
 https://nytimes.com/athletic/6990356/2026/01/22/liverpool-marseille-set-pieces/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6988693/2026/01/22/ethan-nwaneri-arsenal-marseille-
 **Forget about Dro: Why Barcelona's next La Masia star wants to leave**\
 `Pedro Fernandez, better known as Dro, looks set to leave Barca — despite manager Hansi Flick making the 18-year-old his 'project'`\
 https://nytimes.com/athletic/6988141/2026/01/22/barcelona-dro-transfer-la-masia/
-
-**Marginal gains, deception and entertainment: This is why players take Panenkas**\
-`Chipping a penalty down the middle is seen as a huge risk — great when it works, disastrous when it doesn't. But it's not quite that simple`\
-https://nytimes.com/athletic/6985903/2026/01/22/panenka-penalties-why-players-take-them/
 
