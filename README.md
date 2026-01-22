@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, Jan. 22, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/22/todays-new-york-times
+
+**My Rohingya People Are Running Out of Time**\
+`Genocide hearings in The Hague offer a ray of hope for the Rohingya, but aid cuts are worsening a humanitarian crisis in refugee camps.`\
+https://nytimes.com/2026/01/22/opinion/rohingya-aid-trump-help-genocide.html
+
 **How to stay ahead of FPL's blank and double gameweeks**\
 `Navigating blank and double gameweeks in the second half of the season gives FPL managers a strategic edge with transfers and chip plays`\
 https://nytimes.com/athletic/6987035/2026/01/22/fantasy-premier-league-tips-fpl-gameweek-guide/
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/6988693/2026/01/22/ethan-nwaneri-arsenal-marseille-
 `Pedro Fernandez, better known as Dro, looks set to leave Barca — despite manager Hansi Flick making the 18-year-old his 'project'`\
 https://nytimes.com/athletic/6988141/2026/01/22/barcelona-dro-transfer-la-masia/
 
+**Marginal gains, deception and entertainment: This is why players take Panenkas**\
+`Chipping a penalty down the middle is seen as a huge risk — great when it works, disastrous when it doesn't. But it's not quite that simple`\
+https://nytimes.com/athletic/6985903/2026/01/22/panenka-penalties-why-players-take-them/
+
 **Western Sahara is 'a forgotten country'. It is a thorny issue for 2030 World Cup co-hosts Morocco**\
 `One footballer tells The Athletic about his dream that Western Sahara could one day feature as a nation on the game's global stage`\
 https://nytimes.com/athletic/6977309/2026/01/22/western-sahara-morocco-afcon-world-cup/
-
-**New manager, new danger: Why footballers are more susceptible to injuries after a coaching change**\
-`Changing position or role can introduce different physical and biomechanical stresses to a player's body – with predictable consequences`\
-https://nytimes.com/athletic/6983180/2026/01/22/new-manager-new-danger-why-footballers-are-more-susceptible-to-injuries-after-a-coaching-change/
-
-**Imagining Manchester United's The Crown: Brian Cox as Fergie, but who does Brad Pitt play?**\
-`As Lionsgate contemplates its new series, The Athletic offers some prospective castings to take on Ratcliffe, Beckham and The Holy Trinity`\
-https://nytimes.com/athletic/6989008/2026/01/22/manchester-united-crown-ferguson-ronaldo-pitt-cox-lionsgate/
-
-**The Alternative Premier League Table: No 23 - Ball-in-play time**\
-`Which teams' games see the ball on the field the most and who are the worst offenders when it comes to kicking it out?`\
-https://nytimes.com/athletic/6988782/2026/01/22/the-alternative-premier-league-table-teams-ball-in-play/
 
