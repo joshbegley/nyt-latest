@@ -1,3 +1,7 @@
+**Filipino Journalist Gets Prison in Case Seen as Attack on Free Press**\
+`Frenchie Mae Cumpio and her former roommate were convicted of financing terrorism and sentenced to up to 18 years in prison.`\
+https://nytimes.com/2026/01/22/world/asia/philippines-cumpio-journalist-prison.html
+
 **Witkoff and Kushner Will Meet With Putin for Ukraine Talks**\
 `Steve Witkoff, President Trump’s special envoy, and Jared Kushner, the president’s son-in-law, were expected in Moscow as Mr. Witkoff expressed optimism over a plan to end Russia’s war in Ukraine.`\
 https://nytimes.com/2026/01/22/world/europe/putin-meeting-witkoff-kushner-moscow-us-russia.html
