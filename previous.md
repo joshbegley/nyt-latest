@@ -1,3 +1,11 @@
+**Magistrate Judge Declined to Approve Criminal Complaint Against Don Lemon**\
+`The Justice Department would seek to find other avenues to pursue a case against Mr. Lemon, a senior law enforcement official said.`\
+https://nytimes.com/2026/01/22/us/politics/don-lemon-minnesota-church-charges-rejected-trump-doj.html
+
+**How a Major Winter Storm This Weekend Could Affect Your Travel Plans**\
+`Ice, sleet and possibly significant snowfall are threatening to snarl air travel in much of the eastern U.S. starting on Friday. Here’s what to know.`\
+https://nytimes.com/2026/01/22/travel/winter-storm-travel-airlines.html
+
 **House Votes to Strip Senators of New Avenue to Sue Government**\
 `The unanimous vote amounted to a bipartisan rebuke of the Senate after leaders in that chamber slipped the legal provision into legislation to reopen the government.`\
 https://nytimes.com/2026/01/22/us/politics/house-votes-to-strip-senators-of-new-avenue-to-sue-government.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/22/us/elizabeth-smart-kidnapping.html
 **Successful World Cup ticket applicants may use resale sites, Infantino says**\
 `“In the U.S., it is perfectly legal to resell tickets on resale platforms — there is a law for that, so we have to allow (it),” he said.`\
 https://nytimes.com/athletic/6991940/2026/01/22/fifa-world-cup-tickets-resale/
-
-**NHL rumblings: Leafs looking for D, Oilers' trade targets, Rangers' no-move list, more**\
-`Also around the NHL: The Panthers are making calls as they continue to struggle, and Sweden's injury nightmare gets even worse.`\
-https://nytimes.com/athletic/6991915/2026/01/22/nhl-trades-maple-leafs-oilers-rangers-rumblings/
-
-**Where to Stream the 2026 Oscar Nominees**\
-`Many of the top contenders can be watched at home. Here’s a guide to help you get a jump on the field.`\
-https://nytimes.com/2026/01/22/movies/oscar-nominees-2026-how-to-watch.html
 

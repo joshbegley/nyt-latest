@@ -1,3 +1,11 @@
+**Magistrate Judge Declined to Approve Criminal Complaint Against Don Lemon**\
+`The Justice Department would seek to find other avenues to pursue a case against Mr. Lemon, a senior law enforcement official said.`\
+https://nytimes.com/2026/01/22/us/politics/don-lemon-minnesota-church-charges-rejected-trump-doj.html
+
+**How a Major Winter Storm This Weekend Could Affect Your Travel Plans**\
+`Ice, sleet and possibly significant snowfall are threatening to snarl air travel in much of the eastern U.S. starting on Friday. Here’s what to know.`\
+https://nytimes.com/2026/01/22/travel/winter-storm-travel-airlines.html
+
 **House Votes to Strip Senators of New Avenue to Sue Government**\
 `The unanimous vote amounted to a bipartisan rebuke of the Senate after leaders in that chamber slipped the legal provision into legislation to reopen the government.`\
 https://nytimes.com/2026/01/22/us/politics/house-votes-to-strip-senators-of-new-avenue-to-sue-government.html
