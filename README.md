@@ -1,3 +1,15 @@
+**Jon-Eric Sullivan, Jeff Hafley say Dolphins' goal is 'chasing championships'**\
+`The Dolphins haven't won a playoff game since 2000, the longest current drought in the NFL.`\
+https://nytimes.com/athletic/6992449/2026/01/22/dolphins-coach-gm-jeff-hafley-jon-eric-sullivan/
+
+**Alfred McLaren, 93, Dies; Submariner Led Secret Cold War Missions**\
+`He participated in the first baseball game at the North Pole. Later, he became an expert in the impact of climate change on Arctic ice sheets.`\
+https://nytimes.com/2026/01/22/us/alfred-mclaren-dead.html
+
+**House Passes Spending Package Over Democratic Revolt on ICE**\
+`Approval of the package, which would fund a wide swath of government agencies, brings Congress closer to meeting a Jan. 30 funding deadline.`\
+https://nytimes.com/2026/01/22/us/politics/house-spending-package-ice.html
+
 **Three Simple Breakfast Recipes to Learn by Heart**\
 `Los Angeles-based chefs share their ideas for starting the day right, and without much fuss.`\
 https://nytimes.com/2026/01/22/t-magazine/breakfast-recipe-ideas.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/22/us/politics/takeaways-jack-smith-congress-testimo
 **Ex-Iowa Superintendent Who Lied About Being a Citizen Pleads Guilty**\
 `Ian Roberts led Des Moines Public Schools before his arrest by immigration agents. He had embellished his credentials and lied about his citizenship status.`\
 https://nytimes.com/2026/01/22/us/ian-roberts-superintendent-des-moines-iowa-ice.html
-
-**New York Could See Its Biggest Snowfall in Years**\
-`The National Weather Service warned of “considerable disruption to transportation and daily life” from Sunday into Monday.`\
-https://nytimes.com/2026/01/22/weather/new-york-city-snow-forecast.html
-
-**Fine Arts Panel, Remade by Trump, Indicates Support for His Ballroom Plan**\
-`The Commission of Fine Arts is one of two review panels that Mr. Trump has stacked with allies as he has pushed to construct a 90,000-square-foot building in the place of the East Wing.`\
-https://nytimes.com/2026/01/22/us/politics/commission-trump-white-house-ballroom.html
-
-**An Emboldened Trump’s Whipsaw Approach to the World**\
-`He says there’s a method to the madness. But European allies wonder whether the United States is reliable anymore.`\
-https://nytimes.com/2026/01/22/world/europe/trump-greenland-foreign-policy.html
 
