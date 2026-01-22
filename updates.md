@@ -1,3 +1,7 @@
+**Witkoff and Kushner Will Meet With Putin for Ukraine Talks**\
+`Steve Witkoff, President Trump’s special envoy, and Jared Kushner, the president’s son-in-law, were expected in Moscow as Mr. Witkoff expressed optimism over a plan to end Russia’s war in Ukraine.`\
+https://nytimes.com/2026/01/22/world/europe/putin-meeting-witkoff-kushner-moscow-us-russia.html
+
 **Stan Wawrinka's Australian Open farewell tour rolls on with remarkable five-set win**\
 `The 40-year old beat Arthur Géa of France in four hours and 33 minutes to reach the third round in Melbourne.`\
 https://nytimes.com/athletic/6990939/2026/01/22/stan-wawrinka-australian-open-gea-tennis/
