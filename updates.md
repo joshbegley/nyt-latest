@@ -1,3 +1,5 @@
+
+
 **When a Coat Becomes a Symbol of Conflict**\
 `How the choice of outerwear for Gregory Bovino, the president’s Border Patrol chief, turned into part of the deportation story.`\
 https://nytimes.com/2026/01/22/style/gregory-bovino-ice-coat.html
