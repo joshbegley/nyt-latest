@@ -1,3 +1,15 @@
+**Casemiro to leave Man Utd at end of season**\
+`The midfielder's contract expires at the end of June. He joined United from Real Madrid for a deal wort at least £60m in 2022.`\
+https://nytimes.com/athletic/6985245/2026/01/22/casemiro-manchester-united-contract-transfer/
+
+**Chasing a Remarkable but Elusive Single Malt Scotch**\
+`Springbank is unlike other single malts in almost every way, from location to ownership to production methods. That’s part of what’s driving demand.`\
+https://nytimes.com/2026/01/22/dining/drinks/springbank-single-malt.html
+
+**Twins sign former All-Star closer Taylor Rogers, adding much-needed bullpen help: Source**\
+`After the Rogers signing, the Twins’ payroll sits around $105 million, down from the $135 million range the past two seasons.`\
+https://nytimes.com/athletic/6991707/2026/01/22/mlb-taylor-rogers-free-agency-signing-twins/
+
 **How to watch Nuggets vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6991740/2026/01/22/nuggets-vs-wizards-stream-how-to-watch-jan-22/
