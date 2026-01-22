@@ -1,3 +1,7 @@
+**Igor Jesus a doubt for Forest European tie - who could start up front?**\
+`Igor Jesus has not travelled with the squad but could fly out to Braga on Thursday. If he is deemed unfit, Forest have a problem.`\
+https://nytimes.com/athletic/6990918/2026/01/22/igor-jesus-injury-forest-braga/
+
 **Live Updates: Trump to Host ‘Board of Peace’ Signing Ceremony in Davos**\
 ``\
 https://nytimes.com/live/2026/01/22/us/trump-davos-news
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/nyregion/msg-pension-ownership-bunkeddeko.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/01/22/crosswords/spelling-bee-forum.html
-
-**Real Madrid and Vinicius Jr's contract stand-off: A year on, what's the latest?**\
-`The 25-year-old Brazil forward's contract expires at the end of June 2027, and talks over a renewal began a year ago`\
-https://nytimes.com/athletic/6989245/2026/01/22/vinicius-jr-real-madrid-contract-renewal-latest/
 
