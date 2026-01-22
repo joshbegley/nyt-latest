@@ -18,13 +18,13 @@ https://nytimes.com/interactive/2026/01/22/travel/things-to-do-mexico-city.html
 `Johnson's "not good enough" messaging felt striking but far from surprising as reality-check motivation for Bears players and coaches.`\
 https://nytimes.com/athletic/6989577/2026/01/22/bears-ben-johnson-not-good-enough/
 
-**Chiefs 2025 offense: What needs to be fixed (and what doesn't) after disappointing year**\
-`The Chiefs aren't likely to reinvent the offense this offseason after a disappointing 6-11 season. But they still need these fixes.`\
-https://nytimes.com/athletic/6988815/2026/01/22/chiefs-2025-offense-what-needs-to-be-fixed/
-
 **Yes, the Yankees seem to be running it back. No, that's not a bad thing**\
 `With Cody Bellinger, Trent Grisham and company returning, New York will look similar to last year's team. But don't despair, Yankees fans. `\
 https://nytimes.com/athletic/6990415/2026/01/22/yankees-running-it-back-bellinger/
+
+**Chiefs 2025 offense: What needs to be fixed (and what doesn't) after disappointing year**\
+`The Chiefs aren't likely to reinvent the offense this offseason after a disappointing 6-11 season. But they still need these fixes.`\
+https://nytimes.com/athletic/6988815/2026/01/22/chiefs-2025-offense-what-needs-to-be-fixed/
 
 **Giannis? Trey Murphy? Domantas Sabonis? Assessing your Toronto Raptors fake trades**\
 `The Raptors' long-term deals complicate their outlook, but they should still have many offers to consider as the Feb. 5 deadline nears.`\
