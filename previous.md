@@ -1,3 +1,7 @@
+**'Heated Rivalry' co-stars Hudson Williams, Connor Storrie to carry torch before Winter Games**\
+`Actors Hudson Williams and Connor Storrie will participate in the ongoing event that precedes the opening ceremony.`\
+https://nytimes.com/athletic/6991755/2026/01/22/heated-rivalry-olympics-torch-williams-storrie-tv-show/
+
 **Son-in-Law of Venezuelan Opposition Candidate Freed**\
 `Edmundo González, seen by many as the real winner of Venezuela’s 2024 election, said his son-in-law was freed after more than a year in detention.`\
 https://nytimes.com/2026/01/22/world/americas/edmundo-gonzalez-rafael-tudares-detention.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/world/europe/davos-zelensky.html
 **Denmark Bristles at Idea of Giving Up Any Sovereignty in Greenland**\
 `American and NATO officials have discussed giving the United States sovereignty over U.S. military bases in Greenland. The Danes don’t seem to like that.`\
 https://nytimes.com/2026/01/22/world/europe/denmark-greenland-trump-us-reaction.html
-
-**NFL award finalists: Josh Allen, Drake Maye, Matthew Stafford up for MVP**\
-`The Coach of the Year finalists include first-year head coaches Liam Coen (Jaguars), Ben Johnson (Bears) and Mike Vrabel (Patriots).`\
-https://nytimes.com/athletic/6991413/2026/01/22/nfl-award-finalists-mvp-coach-of-the-year/
 
