@@ -1,3 +1,7 @@
+**Putin Says Russia Could Donate to ‘Board of Peace’ if U.S. Unfroze Assets**\
+`The Kremlin leader said he will discuss the possibility today with Trump administration envoys in Moscow.`\
+https://nytimes.com/2026/01/22/world/europe/putin-board-of-peace-frozen-assets.html
+
 **3 Films Used to Hold the Record for Oscar Nominations (Thanks to Some Quirks)**\
 `As categories evolved over time, the way to make academy history did, too. But for decades, no film topped 14 nods, until “Sinners” smashed the record.`\
 https://nytimes.com/2026/01/22/movies/sinners-oscars-record-nominations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/arts/design/the-exacting-ephemeral-art-of-ice-car
 **Trump and ‘Taco!’ Roil Davos**\
 `Business leaders at the World Economic Forum were relieved by the president’s about-face on Greenland, but remain on edge about what could come next.`\
 https://nytimes.com/2026/01/22/business/dealbook/trump-taco-davos.html
-
-**Way-too-early SEC vibes rankings for 2026: Indiana and an identity crisis**\
-`We know the vibe in the SEC: An identity crisis, three straight years without a championship. Let’s now take a look at individual teams.`\
-https://nytimes.com/athletic/6987794/2026/01/22/sec-football-rankings-offseason-2026/
 
