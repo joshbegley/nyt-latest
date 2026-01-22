@@ -1,3 +1,7 @@
+**Rifaat al-Assad, Paramilitary Leader and ‘Butcher of Hama,’ Dies at 88**\
+`The brother and uncle of Syrian tyrants, he commanded a unit that killed up to 40,000 civilians in a 1982 uprising against his family’s rule.`\
+https://nytimes.com/2026/01/21/world/middleeast/rifaat-al-assad-dead.html
+
 **Trump’s ‘Board of Peace’ Would Have Global Scope but One Man in Charge**\
 `The initiative is the latest example of the president dismantling the post-World War II international system and building a new one, with himself at the center.`\
 https://nytimes.com/2026/01/21/us/politics/trump-board-peace-united-nations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/21/us/histoplasmosis-outbreak-tennessee.html
 **Parents Sue Residential Home Over Abuse of Their Autistic Son**\
 `Anil and Shalini Babbar said they would not have known about the abuse their teenager was enduring at the home in upstate New York if a whistle-blower had not sent footage of an assault.`\
 https://nytimes.com/2026/01/21/nyregion/anderson-autism-center-suit.html
-
-**Eric Bieniemy returning to Chiefs as offensive coordinator: Source**\
-`Bieniemy was previously the Chiefs coordinator from 2018 to '22 when the team featured some of its most high-powered offenses.`\
-https://nytimes.com/athletic/6980824/2026/01/21/chiefs-eric-bieniemy-returns-offensive-coordinator/
 

@@ -1,3 +1,7 @@
+**Rifaat al-Assad, Paramilitary Leader and ‘Butcher of Hama,’ Dies at 88**\
+`The brother and uncle of Syrian tyrants, he commanded a unit that killed up to 40,000 civilians in a 1982 uprising against his family’s rule.`\
+https://nytimes.com/2026/01/21/world/middleeast/rifaat-al-assad-dead.html
+
 **Trump’s ‘Board of Peace’ Would Have Global Scope but One Man in Charge**\
 `The initiative is the latest example of the president dismantling the post-World War II international system and building a new one, with himself at the center.`\
 https://nytimes.com/2026/01/21/us/politics/trump-board-peace-united-nations.html
