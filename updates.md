@@ -1,3 +1,11 @@
+**Rangers pay big price for MacKenzie Gore, sending first-rounder Gavin Fien to Nats**\
+`The Rangers are giving up a decent haul, including a potential top-20 prospect in Fien, but Gore makes them instantly 2-3 wins better.`\
+https://nytimes.com/athletic/6992500/2026/01/22/mackenzie-gore-rangers-nationals-trade-analysis-gavin-fien/
+
+**U.S. Formally Withdraws From World Health Organization**\
+`Global health experts worry that a lack of international coordination will lead to death and disaster.`\
+https://nytimes.com/2026/01/22/us/politics/united-states-withdraws-world-health-organization.html
+
 **Big Insurers Try to Shift Blame for High Health Costs to Hospitals and Drug Makers**\
 `At two congressional hearings, lawmakers slammed executives of major companies, saying they were failing to rein in the cost of medical care for consumers.`\
 https://nytimes.com/2026/01/22/health/health-insurers-obamacare-congress.html
