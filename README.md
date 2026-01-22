@@ -1,3 +1,15 @@
+**What to Know About the Elizabeth Smart Kidnapping Case**\
+`A new Netflix documentary, “Kidnapped: Elizabeth Smart,” revisits her abduction from her home in Salt Lake City in 2002, when she was 14. She was held captive for nine months.`\
+https://nytimes.com/2026/01/22/us/elizabeth-smart-kidnapping.html
+
+**Successful World Cup ticket applicants may use resale sites, Infantino says**\
+`“In the U.S., it is perfectly legal to resell tickets on resale platforms — there is a law for that, so we have to allow (it),” he said.`\
+https://nytimes.com/athletic/6991940/2026/01/22/fifa-world-cup-tickets-resale/
+
+**NHL rumblings: Maple Leafs scour defense market, Oilers' trade targets, Rangers' no-move list, more**\
+`Also around the NHL: The Panthers are making calls as they continue to struggle, and Sweden's injury nightmare gets even worse.`\
+https://nytimes.com/athletic/6991915/2026/01/22/nhl-trades-maple-leafs-oilers-rangers-rumblings/
+
 **Where to Stream the 2026 Oscar Nominees**\
 `Many of the top contenders can be watched at home. Here’s a guide to help you get a jump on the field.`\
 https://nytimes.com/2026/01/22/movies/oscar-nominees-2026-how-to-watch.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/22/opinion/ai-schools.html
 **Rainbow Laces out, pride-themed footballs in? Premier League to launch new LGBTQ+ campaign**\
 `The Premier League's new initiative will be called With Pride and will be held across a double gameweek next month`\
 https://nytimes.com/athletic/6989391/2026/01/22/premier-league-new-lgbtq-campaign/
-
-**Ex-Michigan coach Sherrone Moore appears at court hearing**\
-`Rather than a decision to move the case forward or not, the court agreed to adjourn until at least next month.`\
-https://nytimes.com/athletic/6991291/2026/01/22/sherrone-moore-michigan-court-hearing/
-
-**Open Letters: Our Opinion-Writing Contest**\
-`We invite students to write public-facing letters to people or groups about issues that matter to them. Contest dates: Feb. 25 to April 8, 2026.`\
-https://nytimes.com/2026/01/22/learning/open-letters-our-opinion-writing-contest.html
-
-**As the Bucks struggle, why is Giannis Antetokounmpo getting fewer shots?**\
-`Antetokounmpo is currently on a limit of roughly 31 minutes.`\
-https://nytimes.com/athletic/6991826/2026/01/22/as-the-bucks-struggle-why-is-giannis-antetokounmpo-getting-fewer-shots/
 
