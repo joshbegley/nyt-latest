@@ -1,3 +1,7 @@
+**The Exacting, Ephemeral Art of Ice Carving**\
+`A look inside a Queens studio where Buddhas, sneakers and swans are carved with reverence and the knowledge that beauty, like ice, is fleeting.`\
+https://nytimes.com/2026/01/22/arts/design/the-exacting-ephemeral-art-of-ice-carving.html
+
 **Trump and ‘Taco!’ Roil Davos**\
 `Business leaders at the World Economic Forum were relieved by the president’s about-face on Greenland, but remain on edge about what could come next.`\
 https://nytimes.com/2026/01/22/business/dealbook/trump-taco-davos.html
