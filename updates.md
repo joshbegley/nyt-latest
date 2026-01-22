@@ -1,3 +1,23 @@
+**Jhon Duran, Aston Villa and a 'Sliding Doors' moment - what if he had not been sent off?**\
+`Duran comes up against Villa for Fenerbahce on Thursday - we look back at how a controversial red card led to his exit from Villa Park`\
+https://nytimes.com/athletic/6984907/2026/01/22/jhon-duran-newcastle-villa-red-card/
+
+**Jota Silva interview: Summer of uncertainty, his failed transfer and watching Forest from afar**\
+`The winger is on loan at Besiktas - but he is still watching Forest, and hopes the Arsenal performance can help turn the tide this season`\
+https://nytimes.com/athletic/6988925/2026/01/22/jota-silva-interview-summer-of-uncertainty-his-failed-transfer-and-watching-forest-from-afar/
+
+**Why do Brighton have so few 'peak age' players in their ranks?**\
+`Fabian Hurzeler's squad largely comprises either youngsters brimming with potential or elder statesmen, with not much else in between`\
+https://nytimes.com/athletic/6985229/2026/01/22/brighton-hurzeler-peak-age-recruitment-squad/
+
+**Why Nwaneri is heading to Marseille and what Arsenal - and Arteta - hope he gets from it**\
+`Nwaneri has made his contribution to Arsenal’s campaign. The plan now is to develop under a coach Arteta respects and knows well`\
+https://nytimes.com/athletic/6988693/2026/01/22/ethan-nwaneri-arsenal-marseille-loan/
+
+**Forget about Dro: Why Barcelona's next La Masia star wants to leave**\
+`Pedro Fernandez, better known as Dro, looks set to leave Barca — despite manager Hansi Flick making the 18-year-old his 'project'`\
+https://nytimes.com/athletic/6988141/2026/01/22/barcelona-dro-transfer-la-masia/
+
 **Western Sahara is 'a forgotten country'. It is a thorny issue for 2030 World Cup co-hosts Morocco**\
 `One footballer tells The Athletic about his dream that Western Sahara could one day feature as a nation on the game's global stage`\
 https://nytimes.com/athletic/6977309/2026/01/22/western-sahara-morocco-afcon-world-cup/
