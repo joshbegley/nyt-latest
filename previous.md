@@ -1,3 +1,11 @@
+**At Davos, Talk of Climate Change Retreats to the Sidelines**\
+`The annual gathering of top business leaders and policymakers used to be a center of the global climate movement. Things are much more complicated now.`\
+https://nytimes.com/2026/01/22/climate/davos-climate-change-trump.html
+
+**Man given football ban for racially abusing Muniz after goals vs. Liverpool**\
+`The abuse happened on social media after Muniz scored against Liverpool in December 2024 and April 2025.`\
+https://nytimes.com/athletic/6992045/2026/01/22/rodrigo-muniz-racist-abuse-fulham-liverpool/
+
 **Trump Sues JPMorgan for Closing His Bank Accounts for Political Reasons**\
 `The lawsuit, citing “political discrimination,” said the banking giant told President Trump shortly after the Jan. 6 attack on the Capitol that it would close his accounts.`\
 https://nytimes.com/2026/01/22/business/jpmorgan-trump-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/climate/100000010642995/why-climate-isnt-a-top-busines
 **Amy Klobuchar Files Papers for Run to Succeed Tim Walz as Minnesota Governor**\
 `The Minnesota senator, a potential 2028 presidential candidate, appears set to enter a race that has been transformed by President Trump’s immigration crackdown in the state and protests against it.`\
 https://nytimes.com/2026/01/22/us/politics/amy-klobuchar-minnesota-governor-tim-walz.html
-
-**Why Trump’s Reversal on Greenland Still Leaves Europe on Edge**\
-`Andrew Ross Sorkin, editor at large of DealBook, describes how leaders at the World Economic Forum in Davos remain on edge after President Trump, for now, backed down from threats of using tariffs or military force to gain Greenland.`\
-https://nytimes.com/video/business/economy/100000010656157/why-trumps-reversal-on-greenland-still-leaves-europe-on-edge.html
-
-**Sonic Booms and Seismic Waves Can Reveal Where Space Junk Crash-Lands**\
-`The sensors used to listen for earthquakes could help protect people from the hazards created by falling spacecraft.`\
-https://nytimes.com/2026/01/22/science/space-junk-seismographs.html
 

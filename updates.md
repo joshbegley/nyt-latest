@@ -1,3 +1,11 @@
+**At Davos, Talk of Climate Change Retreats to the Sidelines**\
+`The annual gathering of top business leaders and policymakers used to be a center of the global climate movement. Things are much more complicated now.`\
+https://nytimes.com/2026/01/22/climate/davos-climate-change-trump.html
+
+**Man given football ban for racially abusing Muniz after goals vs. Liverpool**\
+`The abuse happened on social media after Muniz scored against Liverpool in December 2024 and April 2025.`\
+https://nytimes.com/athletic/6992045/2026/01/22/rodrigo-muniz-racist-abuse-fulham-liverpool/
+
 **Trump Sues JPMorgan for Closing His Bank Accounts for Political Reasons**\
 `The lawsuit, citing “political discrimination,” said the banking giant told President Trump shortly after the Jan. 6 attack on the Capitol that it would close his accounts.`\
 https://nytimes.com/2026/01/22/business/jpmorgan-trump-lawsuit.html
