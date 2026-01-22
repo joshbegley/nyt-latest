@@ -1,3 +1,23 @@
+**When a Coat Becomes a Symbol of Conflict**\
+`How the choice of outerwear for Gregory Bovino, the president’s Border Patrol chief, turned into part of the deportation story.`\
+https://nytimes.com/2026/01/22/style/gregory-bovino-ice-coat.html
+
+**Oscar Snubs and Surprises: ‘Sinners’ Makes History, ‘Wicked’ Withers**\
+`Ariana Grande, Chase Infiniti and Paul Mescal were shut out, but voters made room for Delroy Lindo, Kate Hudson and “F1.”`\
+https://nytimes.com/2026/01/22/movies/oscar-snubs-wicked-sinners-bugonia.html
+
+**Fantasy trends and hidden gems: Noah Hanifin reunites with old Flame; Konsta Helenius debuts**\
+`Shayna Goldman identifies the top targets who may be found on the fantasy hockey waiver wire for Week 17.`\
+https://nytimes.com/athletic/6990200/2026/01/22/fantasy-trends-and-hidden-gems-noah-hanifin-reunites-with-old-flame-konsta-helenius-debuts/
+
+**17 Healthy Sheet-Pan Dinners Because Who Has the Time for More Dishes**\
+`These quick and clever one-pan recipes make eating well doable any day of the week.`\
+https://nytimes.com/2026/01/22/dining/healthy-sheet-pan-dinners-recipes.html
+
+**The Bounce: LeBron cameos in Lakers' 'Succession' drama. And we remember Kobe's 81**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6991508/2026/01/22/lebron-james-lakers-drama-kobe-bryant-the-bounce/
+
 **Champions League projections: Arsenal strong favourites for overall win, improving Liverpool up to third**\
 `All the risers and fallers ahead of a seismic final set of 18 league-phase games next Wednesday`\
 https://nytimes.com/athletic/6991145/2026/01/22/champions-projections-md7-arsenal-bayern-liverpool-barcelona/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/22/us/indonesia-handprint-rock-art-research.html
 **Map: 4.7-Magnitude Earthquake Strikes Near Salt Lake City**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/01/22/us/quake-salt-lake-utah.html
-
-**Trump Returns to a Familiar Role: Sowing Trade Chaos**\
-`The president’s quick reversal on tariffs over Greenland was another sign of his willingness to rip up the international order — even parts of it that he himself has made.`\
-https://nytimes.com/2026/01/22/us/politics/trump-trade-chaos.html
-
-**Southerners Scramble to Prepare as Ice, Snow and Bitter Cold Threaten**\
-`The path of an approaching winter storm is not clear yet, but much of the country, including places unused to frigid weather, is bracing for the worst.`\
-https://nytimes.com/2026/01/22/us/snow-ice-winter-storm-south-preparations.html
-
-**Protester Who Interrupted Service at Minnesota Church Is Arrested, Officials Say**\
-`A standoff between demonstrators and congregants at Cities Church in St. Paul, Minn. on Sunday added to tensions around federal immigration enforcement in the state.`\
-https://nytimes.com/2026/01/22/us/nekima-levy-armstrong-arrest-minnesota-church.html
-
-**Bucs finalizing deal to hire ex-Falcons OC Zac Robinson for same role**\
-`Robinson was not retained in Atlanta following the firing of head coach Raheem Morris.`\
-https://nytimes.com/athletic/6986317/2026/01/22/zac-robinson-buccaneers-offensive-coordinator/
-
-**IIHF signals Russia could be allowed to return to U-18 hockey events in 2028**\
-`Having Russian and Belarusian players return for under-18 tournaments would be the first step to a full-scale reintegration.`\
-https://nytimes.com/athletic/6991252/2026/01/22/russia-sanctions-international-hockey/
 
