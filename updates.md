@@ -1,3 +1,11 @@
+**Son-in-Law of Venezuelan Opposition Candidate Freed**\
+`Edmundo González, seen by many as the real winner of Venezuela’s 2024 election, said his son-in-law was freed after more than a year in detention.`\
+https://nytimes.com/2026/01/22/world/americas/edmundo-gonzalez-rafael-tudares-detention.html
+
+**What would an extension look like for the Mets and Freddy Peralta?**\
+`Looking at pitchers such as Joe Musgrove and Tyler Glasnow provides a snapshot of what Peralta could fetch in an extension.`\
+https://nytimes.com/athletic/6991812/2026/01/22/mets-freddy-peralta-contract-extension/
+
 **Trump Hosts ‘Board of Peace’ Signing Ceremony in Davos**\
 `President Trump unveiled his “Board of Peace” during the World Economic Forum in Davos, Switzerland. He initially pitched the organization as part of his vision to rebuild postwar Gaza, but more recently, he has suggested it would have a much bigger role globally.`\
 https://nytimes.com/video/us/politics/100000010661296/trump-peace-board-gaza-un.html
