@@ -1,3 +1,7 @@
+**Trump Takes Davos**\
+`We look at the news coming out of the World Economic Forum in Switzerland.`\
+https://nytimes.com/2026/01/22/briefing/trump-takes-davos.html
+
 **This Week in Sports Trivia: January 22, 2026**\
 `How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
 https://nytimes.com/athletic/6988892/2026/01/22/this-week-in-sports-trivia-january-22-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6982345/2026/01/22/jaylen-brown-celtics-nba-mvp-odd
 **The Dark Side's toughest test: Can the Seahawks' defense contain Matthew Stafford?**\
 `Facing the NFL's top scoring offense and the likely MVP in Stafford, the top scoring defense has a chance to solidify its place in history.`\
 https://nytimes.com/athletic/6990167/2026/01/22/seahawks-rams-playoffs-matthew-stafford/
-
-**Rangers insider: Could Panarin want an extension with a trade? Plus Lafrenière's future, more**\
-`Both Panarin and Lafrenière could be on the move before the trade deadline, but the process of dealing each of them is different.`\
-https://nytimes.com/athletic/6990150/2026/01/22/rangers-artemi-panarin-alexis-lafreniere-trade-rumors/
 

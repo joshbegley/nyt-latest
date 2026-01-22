@@ -1,3 +1,7 @@
+**Trump Takes Davos**\
+`We look at the news coming out of the World Economic Forum in Switzerland.`\
+https://nytimes.com/2026/01/22/briefing/trump-takes-davos.html
+
 **This Week in Sports Trivia: January 22, 2026**\
 `How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
 https://nytimes.com/athletic/6988892/2026/01/22/this-week-in-sports-trivia-january-22-2026/
