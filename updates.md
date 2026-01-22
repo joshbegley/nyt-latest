@@ -1,3 +1,7 @@
+**Filipino Journalist Gets Prison in Case Seen as Attack on Free Press**\
+`Frenchie Mae Cumpio and her former roommate were convicted of financing terrorism and sentenced to up to 18 years in prison.`\
+https://nytimes.com/2026/01/22/world/asia/philippines-cumpio-journalist-prison.html
+
 **Scammers Keep Stealing Food Stamps. New Cards Might Stop Them.**\
 `New York is joining the small group of states switching to chip-and-pin cards to evade skimming devices that siphon money for food from low-income people.`\
 https://nytimes.com/2026/01/22/nyregion/ebt-food-stamp-skimming.html
