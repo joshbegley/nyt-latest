@@ -1,3 +1,19 @@
+**Alisha Lehmann trains with Leicester ahead of transfer from FC Como**\
+`The forward is the most-followed female footballer in the world, with nearly 16 million followers on Instagram.`\
+https://nytimes.com/athletic/6990974/2026/01/22/alisha-lehmann-fc-como-leicester-transfer/
+
+**What to expect when John Harbaugh's first Giants staff takes shape**\
+`Plus, a front-office shakeup, and the latest on Cam Skattebo and Malik Nabers.`\
+https://nytimes.com/athletic/6989769/2026/01/22/john-harbaugh-new-york-giants-coaching-staff/
+
+**Lakers by the numbers: Evaluating tough stretch, familiar problems and the road ahead**\
+`As the trade deadline nears, here's what the Lakers' second-quarter numbers say about what's working and what's not. `\
+https://nytimes.com/athletic/6988471/2026/01/22/lakers-second-quarter-season-stretch/
+
+**The New York Times International Edition in Print for Friday, Jan. 23, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/22/todays-new-york-times-international-edition
+
 **'Vendetta Is the Best Word for What They’re Doing': Inside Kash Patel's F.B.I.**\
 `Forty-five current and former employees on the changes they say are undermining the agency and making America less safe.`\
 https://nytimes.com/interactive/2026/01/22/magazine/trump-kash-patel-fbi-agents.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/22/opinion/canada-carney-trump-greenland-nato.html
 **Donald Trump, Live From Davos**\
 `It’s striking how clearheadedly and defiantly Europeans are reacting to the president’s provocations.`\
 https://nytimes.com/2026/01/22/opinion/trump-davos-greenland-minnesota.html
-
-**The Voters Who Have Taken a U-Turn on Trump**\
-`One year later, the second Trump coalition has come apart, a Times/Siena poll finds.`\
-https://nytimes.com/2026/01/22/upshot/trump-poll-analysis-times-siena.html
-
-**Jack Smith to Testify Before Congress on Trump Investigations**\
-`The appearance provides Mr. Smith with what is likely to be his best opportunity to challenge Mr. Trump’s assertion that he was persecuted for his politics, not for his misdeeds.`\
-https://nytimes.com/2026/01/22/us/politics/jack-smith-trump-testimony-congress.html
-
-**Ask The Morning: Trump and Greenland**\
-`What do you want to know about the U.S. effort to take control of the territory?`\
-https://nytimes.com/2026/01/22/briefing/ask-the-morning-trump-and-greenland.html
-
-**They Tested Their $800,000 Budget on the Edges of Los Angeles County**\
-`After meeting in Phoenix and discovering they were both from Southern California, a couple plotted their return. Here’s what they found at the border of Los Angeles and San Bernardino counties.`\
-https://nytimes.com/interactive/2026/01/22/realestate/california-homes-claremont-rancho-cucamonga-upland.html
 
