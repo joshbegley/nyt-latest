@@ -1,3 +1,15 @@
+**The New York Times in Print for Thursday, Jan. 22, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/22/todays-new-york-times
+
+**My Rohingya People Are Running Out of Time**\
+`Genocide hearings in The Hague offer a ray of hope for the Rohingya, but aid cuts are worsening a humanitarian crisis in refugee camps.`\
+https://nytimes.com/2026/01/22/opinion/rohingya-aid-trump-help-genocide.html
+
+**Marginal gains, deception and entertainment: This is why players take Panenkas**\
+`Chipping a penalty down the middle is seen as a huge risk — great when it works, disastrous when it doesn't. But it's not quite that simple`\
+https://nytimes.com/athletic/6985903/2026/01/22/panenka-penalties-why-players-take-them/
+
 **How to stay ahead of FPL's blank and double gameweeks**\
 `Navigating blank and double gameweeks in the second half of the season gives FPL managers a strategic edge with transfers and chip plays`\
 https://nytimes.com/athletic/6987035/2026/01/22/fantasy-premier-league-tips-fpl-gameweek-guide/
