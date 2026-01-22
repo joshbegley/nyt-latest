@@ -1,3 +1,11 @@
+**Trump’s ‘Board of Peace’ Would Have Global Scope but One Man in Charge**\
+`The initiative is the latest example of the president dismantling the post-World War II international system and building a new one, with himself at the center.`\
+https://nytimes.com/2026/01/21/us/politics/trump-board-peace-united-nations.html
+
+**Pegula and Beane deliver a Bills presser fans won't soon forget. What stood out?**\
+`The owner's and GM's inability to fully explain the decision to fire Sean McDermott leads to more questions than answers.`\
+https://nytimes.com/athletic/6989614/2026/01/21/pegula-beane-bills-press-conference-takeaways/
+
 **In Davos, Trump Brings a Spirit of Fear**\
 `Trump’s speech could have been ghostwritten by Mario Puzo.`\
 https://nytimes.com/2026/01/21/opinion/trump-davos-speech-nato.html

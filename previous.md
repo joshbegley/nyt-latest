@@ -1,8 +1,12 @@
+**Trump’s ‘Board of Peace’ Would Have Global Scope but One Man in Charge**\
+`The initiative is the latest example of the president dismantling the post-World War II international system and building a new one, with himself at the center.`\
+https://nytimes.com/2026/01/21/us/politics/trump-board-peace-united-nations.html
+
 **In Davos, Trump Brings a Spirit of Fear**\
 `Trump’s speech could have been ghostwritten by Mario Puzo.`\
 https://nytimes.com/2026/01/21/opinion/trump-davos-speech-nato.html
 
-**Pegula and Beane deliver an unforgettable Bills presser fans won't soon forget. What stood out?**\
+**Pegula and Beane deliver a Bills presser fans won't soon forget. What stood out?**\
 `The owner's and GM's inability to fully explain the decision to fire Sean McDermott leads to more questions than answers.`\
 https://nytimes.com/athletic/6989614/2026/01/21/pegula-beane-bills-press-conference-takeaways/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/21/nyregion/anderson-autism-center-suit.html
 **Eric Bieniemy returning to Chiefs as offensive coordinator: Source**\
 `Bieniemy was previously the Chiefs coordinator from 2018 to '22 when the team featured some of its most high-powered offenses.`\
 https://nytimes.com/athletic/6980824/2026/01/21/chiefs-eric-bieniemy-returns-offensive-coordinator/
-
-**Supreme Court Hearing Reveals Unease Over Threats to Fed Independence**\
-`As the justices weighed the consequences of allowing President Trump to fire a Federal Reserve official, the president reprised his pressure campaign on the central bank.`\
-https://nytimes.com/2026/01/21/us/politics/supreme-court-trump-fed-independence.html
 
