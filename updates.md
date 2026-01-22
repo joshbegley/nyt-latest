@@ -1,3 +1,11 @@
+**Trump Could Begin Flying on Jet Donated by Qatar by This Summer**\
+`It remains unclear whether the aircraft would get the full Air Force One security upgrades, which industry experts said could take up to two years to complete.`\
+https://nytimes.com/2026/01/22/us/politics/trump-qatar-air-force-one.html
+
+**European Leaders Scramble to Find a Path Forward With Trump**\
+`Also, Jack Smith defended his decision to prosecute Trump. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/01/22/briefing/trump-greenland-talks-jack-smith-congress.html
+
 **Indiana's national championship win tops more than 30 million viewers**\
 `This was the second most-watched CFP National Championship Game.`\
 https://nytimes.com/athletic/6992555/2026/01/22/indiana-national-championship-30-million-viewers/
