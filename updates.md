@@ -1,3 +1,15 @@
+**At Davos, a Clash Between Trump’s World and the Old World**\
+`For decades, leaders have gathered in Davos to discuss a shared economic and political future. On Wednesday, President Trump turned the forum into a bracing clash between his worldview and theirs.`\
+https://nytimes.com/2026/01/21/us/politics/davos-trump-speech-greenland-deal.html
+
+**T.S.A. Leader Defends Working With ICE to Congress**\
+`At an oversight hearing, Democratic lawmakers peppered the agency’s acting director over the Transportation Security Administration’s role in Trump’s immigration crackdown.`\
+https://nytimes.com/2026/01/21/us/politics/tsa-ice-agents-congress.html
+
+**Inside the pivot that led the Red Sox to double down on pitching, add Ranger Suárez**\
+`After Alex Bregman signed with the Cubs, the Red Sox immediately shifted their attention to pitching, specifically Ranger Suárez.`\
+https://nytimes.com/athletic/6989837/2026/01/21/boston-red-sox-ranger-suarez-signing-timeline/
+
 **Dozens Are Sickened by a Rare Fungal Infection in Tennessee**\
 `One person who contracted it died. The fungus is commonly found in soil in the Ohio River and Mississippi River valleys, and the illness is not contagious.`\
 https://nytimes.com/2026/01/21/us/histoplasmosis-outbreak-tennessee.html
