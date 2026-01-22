@@ -1,3 +1,7 @@
+**Stan Wawrinka's Australian Open farewell tour rolls on with remarkable five-set win**\
+`The 40-year old beat Arthur Géa of France in four hours and 33 minutes to reach the third round in Melbourne.`\
+https://nytimes.com/athletic/6990939/2026/01/22/stan-wawrinka-australian-open-gea-tennis/
+
 **Zelensky to Meet Trump at Davos Forum to Discuss Ukraine Peace Deal**\
 `President Trump and Ukraine’s leader, Volodymyr Zelensky, are expected to talk about sticking points in negotiations to end the war with Russia.`\
 https://nytimes.com/2026/01/22/us/politics/zelensky-trump-davos-ukraine-peace-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/arts/television/late-night-trump-greenland.html
 **Filipino Journalist Gets Prison in Case Seen as Attack on Free Press**\
 `Frenchie Mae Cumpio and her former roommate were convicted of financing terrorism and sentenced to up to 18 years in prison.`\
 https://nytimes.com/2026/01/22/world/asia/philippines-cumpio-journalist-prison.html
-
-**Scammers Keep Stealing Food Stamps. New Cards Might Stop Them.**\
-`New York is joining the small group of states switching to chip-and-pin cards to evade skimming devices that siphon money for food from low-income people.`\
-https://nytimes.com/2026/01/22/nyregion/ebt-food-stamp-skimming.html
 
