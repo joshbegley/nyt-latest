@@ -1,3 +1,15 @@
+**Private Autopsy Shows Renee Good Was Shot at Least 3 Times, Lawyers Say**\
+`Lawyers for the family of Ms. Good, who was fatally shot by an immigration agent in Minneapolis, have said their firm was conducting an investigation into the shooting.`\
+https://nytimes.com/2026/01/21/us/renee-good-private-autopsy.html
+
+**Trump’s Rift With Europe Is Clear. Europe Must Decide What to Do About It.**\
+`After President Trump aired his disdain for Europe, its leaders will gather in Brussels Thursday to take stock of what comes next.`\
+https://nytimes.com/2026/01/21/world/europe/trump-rift-europe.html
+
+**Watch Sound**\
+`Make sure you look both ways while solving Joe DiPietro’s crossword.`\
+https://nytimes.com/2026/01/21/crosswords/daily-puzzle-2026-01-22.html
+
 **ICE Said Agents Can Enter Homes Without Judicial Warrant, Group Claims**\
 `A whistle-blower group said a memo apparently signed by the leader of Immigration and Customs Enforcement violated constitutional protections against unreasonable search and seizure.`\
 https://nytimes.com/2026/01/21/us/politics/ice-warrant-whistleblower.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6990267/2026/01/21/vikings-brian-flores-defensive-c
 **Lakers' Jeanie Buss laments LeBron James being 'pulled into my family drama'**\
 `Buss' comments were in response to story about a family rift that led to the sale of the franchise.`\
 https://nytimes.com/athletic/6990015/2026/01/21/lakers-jeanie-buss-lebron-james-relationship-comments/
-
-**With Kyle Tucker, Dodgers continue to be the place where the stars want to be**\
-`The fact that the team continues to sign so many of the game’s best, however, remains the biggest topic of conversation in the sport.`\
-https://nytimes.com/athletic/6990099/2026/01/21/kyle-tucker-dodgers-mlb-signing-spending/
-
-**Illinois Investigates Claim That Landlord Tipped Off High-Profile ICE Raid**\
-`The state said it has opened an investigation into whether the management of a troubled South Side building may have called federal agents to try to help clear out Black and Hispanic tenants.`\
-https://nytimes.com/2026/01/21/us/chicago-building-ice-raid-investigation.html
-
-**Rifaat al-Assad, Paramilitary Leader and ‘Butcher of Hama,’ Dies at 88**\
-`The brother and uncle of Syrian tyrants, he commanded a unit that killed up to 40,000 civilians in a 1982 uprising against his family’s rule.`\
-https://nytimes.com/2026/01/21/world/middleeast/rifaat-al-assad-dead.html
 

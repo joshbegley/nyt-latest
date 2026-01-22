@@ -1,3 +1,15 @@
+**Private Autopsy Shows Renee Good Was Shot at Least 3 Times, Lawyers Say**\
+`Lawyers for the family of Ms. Good, who was fatally shot by an immigration agent in Minneapolis, have said their firm was conducting an investigation into the shooting.`\
+https://nytimes.com/2026/01/21/us/renee-good-private-autopsy.html
+
+**Trump’s Rift With Europe Is Clear. Europe Must Decide What to Do About It.**\
+`After President Trump aired his disdain for Europe, its leaders will gather in Brussels Thursday to take stock of what comes next.`\
+https://nytimes.com/2026/01/21/world/europe/trump-rift-europe.html
+
+**Watch Sound**\
+`Make sure you look both ways while solving Joe DiPietro’s crossword.`\
+https://nytimes.com/2026/01/21/crosswords/daily-puzzle-2026-01-22.html
+
 **ICE Said Agents Can Enter Homes Without Judicial Warrant, Group Claims**\
 `A whistle-blower group said a memo apparently signed by the leader of Immigration and Customs Enforcement violated constitutional protections against unreasonable search and seizure.`\
 https://nytimes.com/2026/01/21/us/politics/ice-warrant-whistleblower.html
