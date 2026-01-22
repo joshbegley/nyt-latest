@@ -1,3 +1,11 @@
+**Indiana's national championship win tops more than 30 million viewers**\
+`This was the second most-watched CFP National Championship Game.`\
+https://nytimes.com/athletic/6992555/2026/01/22/indiana-national-championship-30-million-viewers/
+
+**Kennedy Plan to Test a Vaccine in West African Babies Is Blocked**\
+`A planned U.S.-funded study of a hepatitis B vaccine drew widespread condemnation from researchers. Now the host country says it cannot proceed.`\
+https://nytimes.com/2026/01/22/health/hepatitis-b-vaccine-africa-study.html
+
 **Why Trees Go Pop in the Freezing Cold**\
 `While the weight of freezing rain, ice and snow can damage branches, there is another kind of injury that comes with the extreme cold, experts say.`\
 https://nytimes.com/2026/01/22/weather/extreme-cold-explode-trees.html

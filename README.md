@@ -1,3 +1,11 @@
+**Trump Could Begin Flying on Jet Donated by Qatar by This Summer**\
+`It remains unclear whether the aircraft would get the full Air Force One security upgrades, which industry experts said could take up to two years to complete.`\
+https://nytimes.com/2026/01/22/us/politics/trump-qatar-air-force-one.html
+
+**European Leaders Scramble to Find a Path Forward With Trump**\
+`Also, Jack Smith defended his decision to prosecute Trump. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/01/22/briefing/trump-greenland-talks-jack-smith-congress.html
+
 **Indiana's national championship win tops more than 30 million viewers**\
 `This was the second most-watched CFP National Championship Game.`\
 https://nytimes.com/athletic/6992555/2026/01/22/indiana-national-championship-30-million-viewers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6990093/2026/01/22/chargers-defensive-coordinator-c
 **Sense of Relief Spreads Among European Leaders Over De-Escalation of Greenland Crisis**\
 `Some European leaders on Thursday welcomed President Trump’s announcement calling off tariffs on Europe over Greenland, and expressed optimism that it would eventually result in a victory for Arctic security and NATO unity.`\
 https://nytimes.com/video/world/europe/100000010661927/sense-of-relief-spreads-among-european-leaders-over-de-escalation-of-greenland-crisis.html
-
-**Ravens hire Chargers defensive coordinator Jesse Minter as head coach**\
-`Minter, who takes over for John Harbaugh, becomes just the fourth head coach in the Ravens' 31-year history. `\
-https://nytimes.com/athletic/6989606/2026/01/22/ravens-jesse-minter-head-coach-chargers/
-
-**Trump to Expand ‘Mexico City’ Abortion Rule to Include D.E.I. and Gender**\
-`The policy has traditionally been aimed at keeping organizations that receive U.S. tax dollars from performing or promoting abortion as a method of family planning.`\
-https://nytimes.com/2026/01/22/us/politics/trump-mexico-city-policy-abortion-dei-gender.html
 
