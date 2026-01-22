@@ -1,3 +1,11 @@
+**U.S. Lays Out a Glittering Plan for Gaza, Including Skyscrapers**\
+`Jared Kushner, President Trump’s son-in-law, offered the proposal at a Davos ceremony to inaugurate the president’s “Board of Peace.”`\
+https://nytimes.com/2026/01/22/world/middleeast/us-gaza-peace-trump-kushner-davos.html
+
+**Baltimore to host South Africa vs New Zealand rugby union test match in September**\
+`The match will see the two highest-ranked rugby union nations arrives in the United States for the first time.`\
+https://nytimes.com/athletic/6991745/2026/01/22/south-africa-new-zealand-rugby-union-unites-states-september-2026/
+
 **Casemiro to leave Man Utd at end of season**\
 `The midfielder's contract expires at the end of June. He joined United from Real Madrid for a deal wort at least £60m in 2022.`\
 https://nytimes.com/athletic/6985245/2026/01/22/casemiro-manchester-united-contract-transfer/
