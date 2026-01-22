@@ -1,15 +1,3 @@
-**At Davos, a Clash Between Trump’s World and the Old World**\
-`For decades, leaders have gathered in Davos to discuss a shared economic and political future. On Wednesday, President Trump turned the forum into a bracing clash between his worldview and theirs.`\
-https://nytimes.com/2026/01/21/us/politics/davos-trump-speech-greenland-deal.html
-
-**T.S.A. Leader Defends Working With ICE to Congress**\
-`At an oversight hearing, Democratic lawmakers peppered the agency’s acting director over the Transportation Security Administration’s role in Trump’s immigration crackdown.`\
-https://nytimes.com/2026/01/21/us/politics/tsa-ice-agents-congress.html
-
-**Inside the pivot that led the Red Sox to double down on pitching, add Ranger Suárez**\
-`After Alex Bregman signed with the Cubs, the Red Sox immediately shifted their attention to pitching, specifically Ranger Suárez.`\
-https://nytimes.com/athletic/6989837/2026/01/21/boston-red-sox-ranger-suarez-signing-timeline/
-
 **Dozens Are Sickened by a Rare Fungal Infection in Tennessee**\
 `One person who contracted it died. The fungus is commonly found in soil in the Ohio River and Mississippi River valleys, and the illness is not contagious.`\
 https://nytimes.com/2026/01/21/us/histoplasmosis-outbreak-tennessee.html
@@ -37,4 +25,16 @@ https://nytimes.com/athletic/6989887/2026/01/21/broncos-bills-most-watched-satur
 **This Group Wants to Protect Candidates From a ‘Cloud’ of Political Violence**\
 `Two leaders of a political security group talked about what they’re seeing and hearing.`\
 https://nytimes.com/2026/01/21/us/politics/us-political-violence-2026-elections.html
+
+**Sabres sign Josh Doan to 7-year, $6.95 million AAV contract extension**\
+`Doan has been a home-run addition for Buffalo after joining the team in the offseason as part of the JJ Peterka trade with Utah.`\
+https://nytimes.com/athletic/6990013/2026/01/21/sabres-josh-doan-contract-extension/
+
+**Trump Said He Reached a Deal Over the Future of Greenland**\
+`Also, the Supreme Court seems skeptical of Trump’s attempt to fire a Fed governor. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2026/01/21/briefing/trump-greenland-davos-supreme-court-fed.html
+
+**Bo Nix expresses faith in Stidham, Broncos after surgery 'went well'**\
+`The QB shared on Instagram the devastation caused by his injury and confidence in his backup in the AFC title game.`\
+https://nytimes.com/athletic/6989997/2026/01/21/bo-nix-broncos-surgery-jarrett-stidham/
 
