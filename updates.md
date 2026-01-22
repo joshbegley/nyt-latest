@@ -1,3 +1,15 @@
+**Shiffrin, Vonn, Kim headline U.S. Ski & Snowboard Olympic selections**\
+`Nearly half of those selected to the roster are making their Olympic debut.`\
+https://nytimes.com/athletic/6991711/2026/01/22/usa-ski-snowboard-milan-cortina-olympics/
+
+**Detention of 5-Year-Old by Federal Agents Incenses Minneapolis**\
+`A photo showed the boy with an oversized hat and Spider-Man backpack being held next to a vehicle as his father was detained. A Homeland Security spokeswoman said the man had fled and left the child.`\
+https://nytimes.com/2026/01/22/us/liam-detention-ice-minneapolis.html
+
+**Son-in-Law of Venezuelan Opposition Candidate Freed**\
+`Edmundo González, seen by many as the real winner of Venezuela’s 2024 election, said his son-in-law was released after more than a year in detention.`\
+https://nytimes.com/2026/01/22/world/americas/edmundo-gonzalez-rafael-tudares-detention.html
+
 **Travis Kelce says Eric Bieniemy's return to Chiefs coaching staff is 'awesome'**\
 `Kelce's comments stood out, given the uncertainty surrounding whether he will return next season.`\
 https://nytimes.com/athletic/6991843/2026/01/22/eric-bieniemy-travis-kelce-kansas-city-chiefs/

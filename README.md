@@ -1,3 +1,11 @@
+**Claude Code Made the Internet Fun Again**\
+`Kevin Roose, a technology columnist at The New York Times, shared his recent vibecoding project with his co-host, Casey Newton on the “Hard Fork” podcast.`\
+https://nytimes.com/video/podcasts/100000010658866/claude-code-made-the-internet-fun-again.html
+
+**Grok Puts People in Bikinis. Elon Thinks It’s Funny**\
+`The hosts of “Hard Fork,” Kevin Roose and Casey Newton, speak with The New York Times reporter Kate Conger about Grok’s recent undressing scandal and Elon Musk’s reaction to it.`\
+https://nytimes.com/video/podcasts/100000010658863/grok-puts-people-in-bikinis-elon-thinks-its-funny.html
+
 **Shiffrin, Vonn, Kim headline U.S. Ski & Snowboard Olympic selections**\
 `Nearly half of those selected to the roster are making their Olympic debut.`\
 https://nytimes.com/athletic/6991711/2026/01/22/usa-ski-snowboard-milan-cortina-olympics/
@@ -21,12 +29,4 @@ https://nytimes.com/2026/01/22/world/americas/edmundo-gonzalez-rafael-tudares-de
 **What would an extension look like for the Mets and Freddy Peralta?**\
 `Looking at pitchers such as Joe Musgrove and Tyler Glasnow provides a snapshot of what Peralta could fetch in an extension.`\
 https://nytimes.com/athletic/6991812/2026/01/22/mets-freddy-peralta-contract-extension/
-
-**Trump Hosts ‘Board of Peace’ Signing Ceremony in Davos**\
-`President Trump unveiled his “Board of Peace” during the World Economic Forum in Davos, Switzerland. He initially pitched the organization as part of his vision to rebuild postwar Gaza, but more recently, he has suggested it would have a much bigger role globally.`\
-https://nytimes.com/video/us/politics/100000010661296/trump-peace-board-gaza-un.html
-
-**Bovino Says Activists Are ‘Stalking’ His Federal Agents in Minneapolis**\
-`Protesters made even a bathroom break an ordeal, the Border Patrol official said at a Thursday news conference.`\
-https://nytimes.com/2026/01/22/us/minneapolis-ice-crackdown.html
 

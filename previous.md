@@ -1,3 +1,11 @@
+**Shiffrin, Vonn, Kim headline U.S. Ski & Snowboard Olympic selections**\
+`Nearly half of those selected to the roster are making their Olympic debut.`\
+https://nytimes.com/athletic/6991711/2026/01/22/usa-ski-snowboard-milan-cortina-olympics/
+
+**Detention of 5-Year-Old by Federal Agents Incenses Minneapolis**\
+`A photo showed the boy with an oversized hat and Spider-Man backpack being held next to a vehicle as his father was detained. A Homeland Security spokeswoman said the man had fled and left the child.`\
+https://nytimes.com/2026/01/22/us/liam-detention-ice-minneapolis.html
+
 **Travis Kelce says Eric Bieniemy's return to Chiefs coaching staff is 'awesome'**\
 `Kelce's comments stood out, given the uncertainty surrounding whether he will return next season.`\
 https://nytimes.com/athletic/6991843/2026/01/22/eric-bieniemy-travis-kelce-kansas-city-chiefs/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/6991843/2026/01/22/eric-bieniemy-travis-kelce-kansa
 https://nytimes.com/athletic/6991755/2026/01/22/heated-rivalry-olympics-torch-williams-storrie-tv-show/
 
 **Son-in-Law of Venezuelan Opposition Candidate Freed**\
-`Edmundo González, seen by many as the real winner of Venezuela’s 2024 election, said his son-in-law was freed after more than a year in detention.`\
+`Edmundo González, seen by many as the real winner of Venezuela’s 2024 election, said his son-in-law was released after more than a year in detention.`\
 https://nytimes.com/2026/01/22/world/americas/edmundo-gonzalez-rafael-tudares-detention.html
 
 **What would an extension look like for the Mets and Freddy Peralta?**\
@@ -21,16 +29,4 @@ https://nytimes.com/video/us/politics/100000010661296/trump-peace-board-gaza-un.
 **Bovino Says Activists Are ‘Stalking’ His Federal Agents in Minneapolis**\
 `Protesters made even a bathroom break an ordeal, the Border Patrol official said at a Thursday news conference.`\
 https://nytimes.com/2026/01/22/us/minneapolis-ice-crackdown.html
-
-**After Trump’s Ultimatum, Greenland Talks Include Sovereign U.S. Bases, No Drilling for Russia**\
-`Negotiators have discussed proposals to check Russian and Chinese influence in the Arctic and transfer sovereignty over pockets of Greenlandic land to the United States, an idea opposed by Denmark.`\
-https://nytimes.com/2026/01/22/world/europe/trump-greenland-deal-framework.html
-
-**West Ham's Lucas Paqueta to miss Sunderland match - Nuno**\
-`The 28-year-old asked not to play in West Ham’s FA Cup third-round game against QPR and missed the win at Spurs with a back injury.`\
-https://nytimes.com/athletic/6991269/2026/01/22/lucas-paqueta-west-ham-latest/
-
-**In First Uvalde Trial, Former School Officer Is Found Not Guilty**\
-`A former school police officer was found not guilty of abandoning or endangering children more than three years after a gunman massacred 21 people at Uvalde’s Robb Elementary. Police on the scene did not stop the shooter until well over an hour after he walked into the school.`\
-https://nytimes.com/video/us/100000010660657/in-first-uvalde-trial-former-school-officer-is-found-not-guilty.html
 
