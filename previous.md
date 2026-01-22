@@ -6,7 +6,7 @@ https://nytimes.com/2026/01/22/lens/2026-new-york-portfolio-review.html
 `Stan Son looks at top NBA news, including Jimmy Buttler's injury and Jalen Green's return, through a fantasy lens to give managers an edge.`\
 https://nytimes.com/athletic/6992152/2026/01/22/fantasy-basketball-hot-topics-jalen-green/
 
-**Death Threats or Gossip? Bovino Murder-for-Hire Trial Goes to Jury**\
+**Death Threats or Gossip? Bovino Murder-for-Hire Trial Goes to Jury.**\
 `Prosecutors say a Chicago carpenter offered a bounty for killing Gregory Bovino, a Border Patrol official. Defense lawyers say he was just sharing a social media post.`\
 https://nytimes.com/2026/01/22/us/gregory-bovino-murder-chicago-trial.html
 

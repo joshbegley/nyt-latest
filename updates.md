@@ -1,3 +1,7 @@
+**Death Threats or Gossip? Bovino Murder-for-Hire Trial Goes to Jury.**\
+`Prosecutors say a Chicago carpenter offered a bounty for killing Gregory Bovino, a Border Patrol official. Defense lawyers say he was just sharing a social media post.`\
+https://nytimes.com/2026/01/22/us/gregory-bovino-murder-chicago-trial.html
+
 **Applications Open for the 2026 New York Portfolio Review**\
 `Apply now for this free event for photographers.`\
 https://nytimes.com/2026/01/22/lens/2026-new-york-portfolio-review.html
