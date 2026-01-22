@@ -1,5 +1,13 @@
+**The Pulse: Hey, what are the Bills doing?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6990517/2026/01/22/bills-owner-pegula-press-conference-the-pulse/
+
+**TAFC: Man Utd's version of The Crown, Liverpool look good in Europe, Bouanga deal blocked**\
+`Today in TAFC: A Netflix-style drama series for the Premier League? Plus: Liverpool leave domestic problems behind, and why take Panenkas?`\
+https://nytimes.com/athletic/6990946/2026/01/22/manchester-united-the-crown-liverpool-marseilleiverpool/
+
 **36 Hours in Mexico City**\
-`North America’s greatest metropolis is constantly changing, uncommonly warm and never less than thrilling.`\
+`The Mexican capital is constantly changing, uncommonly warm and never less than thrilling.`\
 https://nytimes.com/interactive/2026/01/22/travel/things-to-do-mexico-city.html
 
 **After a remarkable Year 1 run, Bears coach Ben Johnson already calling for greater urgency**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6989239/2026/01/22/vikings-nfl-free-agency-predicti
 **Forecasting Drew Petzing's Lions impact: How he might affect each position**\
 `Petzing and Jared Goff feels like a partnership that could flourish in ways it didn’t under John Morton.`\
 https://nytimes.com/athletic/6990286/2026/01/22/lions-drew-petzing-offense-jared-goff-positions/
-
-**Panthers offseason priorities: Lengthy to-do list follows long-awaited trip to playoffs**\
-`The Panthers need pass rushers, a plan for Ikem Ekwonu's absence and possibly a long-term deal for Jalen Coker.`\
-https://nytimes.com/athletic/6989897/2026/01/22/panthers-offseason-priorities-edge-rusher-left-tackle/
-
-**Red Wings are rising to meet the moment of a playoff chase: 5 thoughts**\
-`The Red Wings' overtime win in Toronto clinched a season sweep of the Maple Leafs and highlighted some of their most encouraging trends.`\
-https://nytimes.com/athletic/6990564/2026/01/22/red-wings-playoff-push-larkin-gibson-seider/
 

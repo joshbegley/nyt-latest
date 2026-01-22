@@ -1,3 +1,7 @@
+**NFL playoffs: Key matchups between the Rams and Seahawks in NFC Championship Game**\
+`Quarterbacks Matthew Stafford and Sam Darnold will be at the center of determining how this rubber match will play out.`\
+https://nytimes.com/athletic/6989732/2026/01/22/nfl-playoffs-nfc-championship-matchups-seahawks-rams/
+
 **The Pulse: Hey, what are the Bills doing?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6990517/2026/01/22/bills-owner-pegula-press-conference-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6990290/2026/01/22/tom-brady-fox-nfl-afc-championsh
 **Vikings free-agency predictions: Who stays? Who goes? Where will they need help?**\
 `The Vikings have a bevy of players whose contracts will expire before the flurry of free agency in March.`\
 https://nytimes.com/athletic/6989239/2026/01/22/vikings-nfl-free-agency-predictions-jalen-nailor/
-
-**Forecasting Drew Petzing's Lions impact: How he might affect each position**\
-`Petzing and Jared Goff feels like a partnership that could flourish in ways it didn’t under John Morton.`\
-https://nytimes.com/athletic/6990286/2026/01/22/lions-drew-petzing-offense-jared-goff-positions/
 

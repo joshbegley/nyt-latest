@@ -1,3 +1,15 @@
+**The Pulse: Hey, what are the Bills doing?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6990517/2026/01/22/bills-owner-pegula-press-conference-the-pulse/
+
+**TAFC: Man Utd's version of The Crown, Liverpool look good in Europe, Bouanga deal blocked**\
+`Today in TAFC: A Netflix-style drama series for the Premier League? Plus: Liverpool leave domestic problems behind, and why take Panenkas?`\
+https://nytimes.com/athletic/6990946/2026/01/22/manchester-united-the-crown-liverpool-marseilleiverpool/
+
+**36 Hours in Mexico City**\
+`The Mexican capital is constantly changing, uncommonly warm and never less than thrilling.`\
+https://nytimes.com/interactive/2026/01/22/travel/things-to-do-mexico-city.html
+
 **36 Hours in Mexico City**\
 `North America’s greatest metropolis is constantly changing, uncommonly warm and never less than thrilling.`\
 https://nytimes.com/interactive/2026/01/22/travel/things-to-do-mexico-city.html
