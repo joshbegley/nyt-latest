@@ -1,3 +1,7 @@
+**Trump Administration Cuts Off Funding for Fetal Tissue Research. Again.**\
+`The prohibition halts support for projects both inside and outside the N.I.H. President Biden had restored funding after an earlier ban by President Trump during his first term.`\
+https://nytimes.com/2026/01/22/health/fetal-tissue-research-ban-trump-nih.html
+
 **Real Madrid could face trial over complaints of noise pollution at Bernabeu concerts**\
 `Court documents dated January 15, seen by The Athletic, outline the judge's decision in a case that dates back to July 2024.`\
 https://nytimes.com/athletic/6992208/2026/01/22/real-madrid-bernabeu-taylor-swift-trial-concerts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6991970/2026/01/22/kayla-mcbride-lynx-torn-quad-tur
 **Judge Declines to Approve Criminal Complaint Against Don Lemon Over Church Protest**\
 `The Justice Department would seek to find other avenues to pursue a case against Mr. Lemon, a senior law enforcement official said.`\
 https://nytimes.com/2026/01/22/us/politics/don-lemon-minnesota-church-charges-rejected-trump-doj.html
-
-**How a Major Winter Storm This Weekend Could Affect Your Travel Plans**\
-`Ice, sleet and possibly significant snowfall are threatening to snarl air travel in much of the eastern U.S. starting on Friday. Here’s what to know.`\
-https://nytimes.com/2026/01/22/travel/winter-storm-travel-airlines.html
 
