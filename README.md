@@ -1,3 +1,15 @@
+**Jhon Duran, Aston Villa and a 'Sliding Doors' moment - what if he had not been sent off?**\
+`Duran comes up against Villa for Fenerbahce on Thursday - we look back at how a controversial red card led to his exit from Villa Park`\
+https://nytimes.com/athletic/6984907/2026/01/22/jhon-duran-newcastle-villa-red-card/
+
+**Jota Silva interview: Summer of uncertainty, his failed transfer and watching Forest from afar**\
+`The winger is on loan at Besiktas - but he is still watching Forest, and hopes the Arsenal performance can help turn the tide this season`\
+https://nytimes.com/athletic/6988925/2026/01/22/jota-silva-interview-summer-of-uncertainty-his-failed-transfer-and-watching-forest-from-afar/
+
+**Why do Brighton have so few 'peak age' players in their ranks?**\
+`Fabian Hurzeler's squad largely comprises either youngsters brimming with potential or elder statesmen, with not much else in between`\
+https://nytimes.com/athletic/6985229/2026/01/22/brighton-hurzeler-peak-age-recruitment-squad/
+
 **Why Nwaneri is heading to Marseille and what Arsenal - and Arteta - hope he gets from it**\
 `Nwaneri has made his contribution to Arsenal’s campaign. The plan now is to develop under a coach Arteta respects and knows well`\
 https://nytimes.com/athletic/6988693/2026/01/22/ethan-nwaneri-arsenal-marseille-loan/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6988782/2026/01/22/the-alternative-premier-league-t
 **Is Oliver Glasner's tactical approach scalable to a 'Big Six' club?**\
 `He has had cup success with Eintracht Frankfurt and Crystal Palace, but are his transitional methods applicable to possession-heavy sides?`\
 https://nytimes.com/athletic/6985360/2026/01/22/oliver-glasner-tactics-big-six/
-
-**Marginal gains, deception and entertainment: This is why players take Panenkas**\
-`Chipping a penalty down the middle is seen as a huge risk — great when it works, disastrous when it doesn't. But it's not quite that simple`\
-https://nytimes.com/athletic/6985903/2026/01/22/panenka-penalties-why-players-take-them/
-
-**Nebraska breakout freshman Braden Frager exits with ankle injury**\
-`The 6-foot-7 forward, a candidate for Big Ten freshman of the year, landed awkwardly on his left leg in the first half.`\
-https://nytimes.com/athletic/6990690/2026/01/22/nebraska-braden-frager-ankle-injury/
-
-**Brenden Aaronson has gone from jeers to cheers at Leeds. This is how he's done it**\
-`As recently as November, Aaronson's role was a source of frustration at Leeds. He has spoken to The Athletic about how he turned it around`\
-https://nytimes.com/athletic/6985750/2026/01/22/brenden-aaronson-leeds-interview-usmnt-analysis/
 
