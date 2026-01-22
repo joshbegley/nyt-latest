@@ -1,3 +1,7 @@
+**Shiffrin, Vonn, Kim headline U.S. Ski & Snowboard Olympic selections**\
+`Nearly half of those selected to the roster are making their Olympic debut.`\
+https://nytimes.com/athletic/6991711/2026/01/22/usa-ski-snowboard-milan-cortina-olympics/
+
 **Detention of 5-Year-Old by Federal Agents Incenses Minneapolis**\
 `A photo showed the boy with an oversized hat and Spider-Man backpack being held next to a vehicle as his father was detained. A Homeland Security spokeswoman said the man had fled and left the child.`\
 https://nytimes.com/2026/01/22/us/liam-detention-ice-minneapolis.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6991843/2026/01/22/eric-bieniemy-travis-kelce-kansa
 https://nytimes.com/athletic/6991755/2026/01/22/heated-rivalry-olympics-torch-williams-storrie-tv-show/
 
 **Son-in-Law of Venezuelan Opposition Candidate Freed**\
-`Edmundo González, seen by many as the real winner of Venezuela’s 2024 election, said his son-in-law was freed after more than a year in detention.`\
+`Edmundo González, seen by many as the real winner of Venezuela’s 2024 election, said his son-in-law was released after more than a year in detention.`\
 https://nytimes.com/2026/01/22/world/americas/edmundo-gonzalez-rafael-tudares-detention.html
 
 **What would an extension look like for the Mets and Freddy Peralta?**\
@@ -25,12 +29,4 @@ https://nytimes.com/video/us/politics/100000010661296/trump-peace-board-gaza-un.
 **Bovino Says Activists Are ‘Stalking’ His Federal Agents in Minneapolis**\
 `Protesters made even a bathroom break an ordeal, the Border Patrol official said at a Thursday news conference.`\
 https://nytimes.com/2026/01/22/us/minneapolis-ice-crackdown.html
-
-**After Trump’s Ultimatum, Greenland Talks Include Sovereign U.S. Bases, No Drilling for Russia**\
-`Negotiators have discussed proposals to check Russian and Chinese influence in the Arctic and transfer sovereignty over pockets of Greenlandic land to the United States, an idea opposed by Denmark.`\
-https://nytimes.com/2026/01/22/world/europe/trump-greenland-deal-framework.html
-
-**West Ham's Lucas Paqueta to miss Sunderland match - Nuno**\
-`The 28-year-old asked not to play in West Ham’s FA Cup third-round game against QPR and missed the win at Spurs with a back injury.`\
-https://nytimes.com/athletic/6991269/2026/01/22/lucas-paqueta-west-ham-latest/
 
