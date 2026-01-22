@@ -1,3 +1,7 @@
+**The Pulse: Hey, what are the Bills doing?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6990517/2026/01/22/bills-owner-pegula-press-conference-the-pulse/
+
 **TAFC: Man Utd's version of The Crown, Liverpool look good in Europe, Bouanga deal blocked**\
 `Today in TAFC: A Netflix-style drama series for the Premier League? Plus: Liverpool leave domestic problems behind, and why take Panenkas?`\
 https://nytimes.com/athletic/6990946/2026/01/22/manchester-united-the-crown-liverpool-marseilleiverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6989239/2026/01/22/vikings-nfl-free-agency-predicti
 **Forecasting Drew Petzing's Lions impact: How he might affect each position**\
 `Petzing and Jared Goff feels like a partnership that could flourish in ways it didn’t under John Morton.`\
 https://nytimes.com/athletic/6990286/2026/01/22/lions-drew-petzing-offense-jared-goff-positions/
-
-**Panthers offseason priorities: Lengthy to-do list follows long-awaited trip to playoffs**\
-`The Panthers need pass rushers, a plan for Ikem Ekwonu's absence and possibly a long-term deal for Jalen Coker.`\
-https://nytimes.com/athletic/6989897/2026/01/22/panthers-offseason-priorities-edge-rusher-left-tackle/
 
