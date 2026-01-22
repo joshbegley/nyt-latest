@@ -10,10 +10,6 @@ https://nytimes.com/2026/01/22/learning/word-of-the-day-strident.html
 `Eddie Howe's side have not had a free midweek since August but this is what they want: to still be in competitions when it really matters`\
 https://nytimes.com/athletic/6990142/2026/01/22/newcastle-psv-champions-league-games/
 
-**Chelsea's must-win game against Napoli and a tantalising reunion with Conte and Lukaku**\
-`Liam Rosenior's side will encounter two hugely familiar figures on their crucial visit to Naples next week`\
-https://nytimes.com/athletic/6990257/2026/01/22/chelsea-napoli-champions-league-antonio-conte-romelu-lukaku/
-
 **Set-piece problems? Curiously, Liverpool lead the way in the Champions League**\
 `Set pieces at both ends of the pitch have been a big issue for the club this season, but there are no such problems in the Champions League`\
 https://nytimes.com/athletic/6990356/2026/01/22/liverpool-marseille-set-pieces/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6984907/2026/01/22/jhon-duran-newcastle-villa-red-c
 **Jota Silva interview: Summer of uncertainty, his failed transfer and watching Forest from afar**\
 `The winger is on loan at Besiktas - but he is still watching Forest, and hopes the Arsenal performance can help turn the tide this season`\
 https://nytimes.com/athletic/6988925/2026/01/22/jota-silva-interview-summer-of-uncertainty-his-failed-transfer-and-watching-forest-from-afar/
+
+**Why do Brighton have so few 'peak age' players in their ranks?**\
+`Fabian Hurzeler's squad largely comprises either youngsters brimming with potential or elder statesmen, with not much else in between`\
+https://nytimes.com/athletic/6985229/2026/01/22/brighton-hurzeler-peak-age-recruitment-squad/
 

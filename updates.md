@@ -1,3 +1,7 @@
+**Why do Brighton have so few 'peak age' players in their ranks?**\
+`Fabian Hurzeler's squad largely comprises either youngsters brimming with potential or elder statesmen, with not much else in between`\
+https://nytimes.com/athletic/6985229/2026/01/22/brighton-hurzeler-peak-age-recruitment-squad/
+
 **Why McLaren will wait as long as it can to test its 2026 F1 car**\
 `McLaren won't be one of the teams hitting the track first when F1 preseason testing starts in 2026. But it has planned for a late test debut`\
 https://nytimes.com/athletic/6990596/2026/01/22/mclaren-2026-f1-car-barcelona-test/
