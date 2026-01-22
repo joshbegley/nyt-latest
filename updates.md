@@ -1,3 +1,7 @@
+**Former Police Officer Who Failed to Confront Uvalde Gunman Found Not Guilty**\
+`A jury in Corpus Christi found Adrian Gonzales not guilty of 29 counts of endangering the children who were left trapped with a gunman at Robb Elementary School in Texas.`\
+https://nytimes.com/2026/01/21/us/former-police-officer-who-failed-to-confront-uvalde-gunman-found-not-guilty.html
+
 **Indianapolis to continue hosting NFL Scouting Combine through at least 2028**\
 `Indiana quarterback Fernando Mendoza is expected to be a huge draw at this year's NFL Scouting Combine in Indianapolis.`\
 https://nytimes.com/athletic/6990261/2026/01/21/indianapolis-host-nfl-scouting-combine-2028/
