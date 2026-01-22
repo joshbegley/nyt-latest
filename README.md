@@ -1,3 +1,15 @@
+**Casemiro to leave Man Utd at end of season**\
+`The midfielder's contract expires at the end of June. He joined United from Real Madrid for a deal wort at least £60m in 2022.`\
+https://nytimes.com/athletic/6985245/2026/01/22/casemiro-manchester-united-contract-transfer/
+
+**Chasing a Remarkable but Elusive Single Malt Scotch**\
+`Springbank is unlike other single malts in almost every way, from location to ownership to production methods. That’s part of what’s driving demand.`\
+https://nytimes.com/2026/01/22/dining/drinks/springbank-single-malt.html
+
+**Twins sign former All-Star closer Taylor Rogers, adding much-needed bullpen help: Source**\
+`After the Rogers signing, the Twins’ payroll sits around $105 million, down from the $135 million range the past two seasons.`\
+https://nytimes.com/athletic/6991707/2026/01/22/mlb-taylor-rogers-free-agency-signing-twins/
+
 **How to watch Nuggets vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6991740/2026/01/22/nuggets-vs-wizards-stream-how-to-watch-jan-22/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6991727/2026/01/22/sabres-vs-canadiens-stream-how-t
 **How to watch Blackhawks vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6991726/2026/01/22/blackhawks-vs-hurricanes-stream-how-to-watch-jan-22/
-
-**The mind of Chet Holmgren: Thunder star breaks down his defensive play**\
-`"He’s developed very, very high-level tactical instincts," said Thunder head coach Mark Daigneault of Holmgren. `\
-https://nytimes.com/athletic/6991275/2026/01/22/thunder-chet-holmgren-nba-defense-film-breakdown/
-
-**Chelsea considering loan deal to sign Douglas Luiz for rest of season**\
-`Luiz has only made 13 appearances this season for Nottingham Forest while on loan from Juventus.`\
-https://nytimes.com/athletic/6991039/2026/01/22/douglas-luiz-chelsea-transfer-forest/
-
-**MLS extends 2026 summer transfer window to align with European leagues**\
-`MLS has elongated its summer transfer window dates, positioning clubs to take further advantage of a post-World Cup period`\
-https://nytimes.com/athletic/6991673/2026/01/22/mls-2026-transfer-window-summer-dates/
 
