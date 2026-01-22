@@ -1,3 +1,15 @@
+**Real Madrid could face trial over complaints of noise pollution at Bernabeu concerts**\
+`Court documents dated January 15, seen by The Athletic, outline the judge's decision in a case that dates back to July 2024.`\
+https://nytimes.com/athletic/6992208/2026/01/22/real-madrid-bernabeu-taylor-swift-trial-concerts/
+
+**Learn Mandarin in One Word**\
+`He, she, they, them, us. `\
+https://nytimes.com/2026/01/22/opinion/chinese-gender-neutral-pronoun.html
+
+**What’s Going On in This Graph? | Feb. 4, 2026**\
+`Where are insurance companies dropping homeowners?`\
+https://nytimes.com/2026/01/22/learning/whats-going-on-in-this-graph-feb-4-2026.html
+
 **At Davos, Talk of Climate Change Retreats to the Sidelines**\
 `The annual gathering of top business leaders and policymakers used to be a center of the global climate movement. Things are much more complicated now.`\
 https://nytimes.com/2026/01/22/climate/davos-climate-change-trump.html

@@ -1,3 +1,15 @@
+**Real Madrid could face trial over complaints of noise pollution at Bernabeu concerts**\
+`Court documents dated January 15, seen by The Athletic, outline the judge's decision in a case that dates back to July 2024.`\
+https://nytimes.com/athletic/6992208/2026/01/22/real-madrid-bernabeu-taylor-swift-trial-concerts/
+
+**Learn Mandarin in One Word**\
+`He, she, they, them, us. `\
+https://nytimes.com/2026/01/22/opinion/chinese-gender-neutral-pronoun.html
+
+**What’s Going On in This Graph? | Feb. 4, 2026**\
+`Where are insurance companies dropping homeowners?`\
+https://nytimes.com/2026/01/22/learning/whats-going-on-in-this-graph-feb-4-2026.html
+
 **At Davos, Talk of Climate Change Retreats to the Sidelines**\
 `The annual gathering of top business leaders and policymakers used to be a center of the global climate movement. Things are much more complicated now.`\
 https://nytimes.com/2026/01/22/climate/davos-climate-change-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/22/us/politics/don-lemon-minnesota-church-charges-re
 **How a Major Winter Storm This Weekend Could Affect Your Travel Plans**\
 `Ice, sleet and possibly significant snowfall are threatening to snarl air travel in much of the eastern U.S. starting on Friday. Here’s what to know.`\
 https://nytimes.com/2026/01/22/travel/winter-storm-travel-airlines.html
-
-**House Votes to Strip Senators of New Avenue to Sue Government**\
-`The unanimous vote amounted to a bipartisan rebuke of the Senate after leaders in that chamber slipped the legal provision into legislation to reopen the government.`\
-https://nytimes.com/2026/01/22/us/politics/house-votes-to-strip-senators-of-new-avenue-to-sue-government.html
-
-**Why Climate Isn’t a Top Business Priority at Davos**\
-`The World Economic Forum in Davos, Switzerland, was once ground zero for an unofficial climate movement in the business community. David Gelles, a climate reporter for The Times, describes why climate is no longer a key focus in Davos today.`\
-https://nytimes.com/video/climate/100000010642995/why-climate-isnt-a-top-business-priority-at-davos.html
-
-**Amy Klobuchar Files Papers for Run to Succeed Tim Walz as Minnesota Governor**\
-`The Minnesota senator, a potential 2028 presidential candidate, appears set to enter a race that has been transformed by President Trump’s immigration crackdown in the state and protests against it.`\
-https://nytimes.com/2026/01/22/us/politics/amy-klobuchar-minnesota-governor-tim-walz.html
 
