@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6974049/2026/01/22/top-twins-prospects-last-20-year
 `Fans lined up for a chance to buy a piece of the pop star’s wardrobe, even without her at the sale.`\
 https://nytimes.com/2026/01/22/style/cyndi-lauper-cleans-out-her-closet.html
 
-**2026 Oscar Nominations: Updating List**\
+**2026 Oscar Nominations: See the Full List**\
 `The movies competing for the 98th Academy Awards. The ceremony will air on March 15.`\
 https://nytimes.com/2026/01/22/movies/2026-oscar-nominees-list.html
 
