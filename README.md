@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6986284/2026/01/22/trinity-rodman-contract-washingt
 `As much as the Sabres have been rolling lately, there are still some areas where the team could improve.`\
 https://nytimes.com/athletic/6992611/2026/01/22/sabres-josh-doan-trades-jarmo-kekalainen/
 
-**Trump Could Begin Flying on Jet Donated by Qatar by This Summer**\
+**Trump Could Begin Flying on Jet Donated by Qatar by Summer**\
 `It remains unclear whether the aircraft would get the full Air Force One security upgrades, which industry experts said could take up to two years to complete.`\
 https://nytimes.com/2026/01/22/us/politics/trump-qatar-air-force-one.html
 
