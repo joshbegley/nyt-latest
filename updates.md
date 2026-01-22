@@ -1,3 +1,15 @@
+**New York Red Bulls closing in on deal for U.S. goalkeeper Horvath**\
+`Horvath, 30, spent the first half of the season on loan at Sheffield Wednesday from Cardiff.`\
+https://nytimes.com/athletic/6992408/2026/01/22/ethan-horvath-rbny-cardiff-transfer/
+
+**Why Your Weather App Is Freaking Out About the Snow**\
+`A foot of snow in New York? Two feet? Well, it’s complicated.`\
+https://nytimes.com/2026/01/22/weather/weather-apps-forecast-apple-android.html
+
+**How Britain’s Bases in Cyprus Could Be a Blueprint for Trump’s Greenland Deal**\
+`NATO officials signaled that an agreement with Mr. Trump on Greenland may be modeled on Britain’s Sovereign Base Areas in Cyprus. Here’s what that may mean.`\
+https://nytimes.com/2026/01/22/world/europe/greenland-trump-bases-cyprus.html
+
 **Death Threats or Gossip? Bovino Murder-for-Hire Trial Goes to Jury.**\
 `Prosecutors say a Chicago carpenter offered a bounty for killing Gregory Bovino, a Border Patrol official. Defense lawyers say he was just sharing a social media post.`\
 https://nytimes.com/2026/01/22/us/gregory-bovino-murder-chicago-trial.html

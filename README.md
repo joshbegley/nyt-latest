@@ -1,3 +1,11 @@
+**An Emboldened Trump’s Whipsaw Approach to the World**\
+`He says there’s a method to the madness. But European allies wonder whether the United States is reliable anymore.`\
+https://nytimes.com/2026/01/22/world/europe/trump-greenland-foreign-policy.html
+
+**Barron Trump Called U.K. Police After Witnessing Woman ‘Getting Beat Up’ on Video Call**\
+`The details of an emergency call made by President Trump’s youngest son to the London police last year emerged during a trial this week.`\
+https://nytimes.com/2026/01/22/world/europe/barron-trump-london-call-woman-assault.html
+
 **New York Red Bulls closing in on deal for U.S. goalkeeper Horvath**\
 `Horvath, 30, spent the first half of the season on loan at Sheffield Wednesday from Cardiff.`\
 https://nytimes.com/athletic/6992408/2026/01/22/ethan-horvath-rbny-cardiff-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/22/climate/epa-animal-testing-ban.html
 **Missouri transfer Damon Wilson II, DE in legal dispute with Georgia, commits to Miami**\
 `The 6-foot-4, 250-pound former Missouri Tiger and Georgia Bulldog finished third in the SEC this past season with nine sacks.`\
 https://nytimes.com/athletic/6992318/2026/01/22/damon-wilson-missouri-georgia-miami-transfer-lawsuit/
-
-**Where to Dine in Peace and More Reader Questions**\
-`By Becky Hughes`\
-https://nytimes.com/2026/01/22/dining/where-to-dine-in-peace-and-more-reader-questions.html
-
-**The Shifting Gender Balance in American Religion**\
-`The gender gap in American religion is getting smaller. On “Interesting Times,” Ryan Burge, a political scientist and former pastor, explains what this new gender balance could mean for America’s religious institutions.`\
-https://nytimes.com/video/opinion/100000010656347/the-shifting-gender-balance-in-american-religion.html
 

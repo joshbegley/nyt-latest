@@ -1,3 +1,15 @@
+**New York Red Bulls closing in on deal for U.S. goalkeeper Horvath**\
+`Horvath, 30, spent the first half of the season on loan at Sheffield Wednesday from Cardiff.`\
+https://nytimes.com/athletic/6992408/2026/01/22/ethan-horvath-rbny-cardiff-transfer/
+
+**Why Your Weather App Is Freaking Out About the Snow**\
+`A foot of snow in New York? Two feet? Well, it’s complicated.`\
+https://nytimes.com/2026/01/22/weather/weather-apps-forecast-apple-android.html
+
+**How Britain’s Bases in Cyprus Could Be a Blueprint for Trump’s Greenland Deal**\
+`NATO officials signaled that an agreement with Mr. Trump on Greenland may be modeled on Britain’s Sovereign Base Areas in Cyprus. Here’s what that may mean.`\
+https://nytimes.com/2026/01/22/world/europe/greenland-trump-bases-cyprus.html
+
 **Applications Open for the 2026 New York Portfolio Review**\
 `Apply now for this free event for photographers.`\
 https://nytimes.com/2026/01/22/lens/2026-new-york-portfolio-review.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/22/dining/where-to-dine-in-peace-and-more-reader-que
 **The Shifting Gender Balance in American Religion**\
 `The gender gap in American religion is getting smaller. On “Interesting Times,” Ryan Burge, a political scientist and former pastor, explains what this new gender balance could mean for America’s religious institutions.`\
 https://nytimes.com/video/opinion/100000010656347/the-shifting-gender-balance-in-american-religion.html
-
-**‘Good for the Church, but Bad for the Country’**\
-`Why has Christianity in America become politically polarized? Ryan Burge, a political scientist and former pastor, says it is more complicated than you think, on this week’s episode of “Interesting Times.”`\
-https://nytimes.com/video/opinion/100000010656349/good-for-the-church-but-bad-for-the-country.html
-
-**Stream These 8 Titles Before They Leave Netflix in February**\
-`A couple of horror classics, a beloved sitcom and a great Paul Thomas Anderson film are among the gems leaving for U.S. subscribers next month.`\
-https://nytimes.com/2026/01/22/arts/television/stream-these-8-titles-before-they-leave-netflix-in-february.html
-
-**NFL conference championship game best bets, numbers to know, projected scores**\
-`A breakdown of the two conference championship games, complete with trends, stats, best bets from our staff and model-projected scores.`\
-https://nytimes.com/athletic/6988882/2026/01/22/nfl-conference-championship-best-bets-projected-scores/
 
