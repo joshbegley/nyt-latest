@@ -1,3 +1,7 @@
+**Illinois Investigates Claim That Landlord Tipped Off High-Profile ICE Raid**\
+`The state said it has opened an investigation into whether the management of a troubled South Side building may have called federal agents to try to help clear out Black and Hispanic tenants.`\
+https://nytimes.com/2026/01/21/us/chicago-building-ice-raid-investigation.html
+
 **Rifaat al-Assad, Paramilitary Leader and ‘Butcher of Hama,’ Dies at 88**\
 `The brother and uncle of Syrian tyrants, he commanded a unit that killed up to 40,000 civilians in a 1982 uprising against his family’s rule.`\
 https://nytimes.com/2026/01/21/world/middleeast/rifaat-al-assad-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6989837/2026/01/21/boston-red-sox-ranger-suarez-sig
 **Dozens Are Sickened by a Rare Fungal Infection in Tennessee**\
 `One person who contracted it died. The fungus is commonly found in soil in the Ohio River and Mississippi River valleys, and the illness is not contagious.`\
 https://nytimes.com/2026/01/21/us/histoplasmosis-outbreak-tennessee.html
-
-**Parents Sue Residential Home Over Abuse of Their Autistic Son**\
-`Anil and Shalini Babbar said they would not have known about the abuse their teenager was enduring at the home in upstate New York if a whistle-blower had not sent footage of an assault.`\
-https://nytimes.com/2026/01/21/nyregion/anderson-autism-center-suit.html
 

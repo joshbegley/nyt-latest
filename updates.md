@@ -1,3 +1,7 @@
+**Illinois Investigates Claim That Landlord Tipped Off High-Profile ICE Raid**\
+`The state said it has opened an investigation into whether the management of a troubled South Side building may have called federal agents to try to help clear out Black and Hispanic tenants.`\
+https://nytimes.com/2026/01/21/us/chicago-building-ice-raid-investigation.html
+
 **Rifaat al-Assad, Paramilitary Leader and ‘Butcher of Hama,’ Dies at 88**\
 `The brother and uncle of Syrian tyrants, he commanded a unit that killed up to 40,000 civilians in a 1982 uprising against his family’s rule.`\
 https://nytimes.com/2026/01/21/world/middleeast/rifaat-al-assad-dead.html
