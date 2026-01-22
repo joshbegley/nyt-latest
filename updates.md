@@ -1,3 +1,7 @@
+**The Winter Show in 9 Objects**\
+`The sheer range of art and antiquities at the Park Avenue Armory, featuring more than 70 international dealers, is impressive.`\
+https://nytimes.com/2026/01/22/arts/design/winter-armory-fair.html
+
 **U.S. Lays Out a Glittering Plan for Gaza, Including Skyscrapers**\
 `Jared Kushner, President Trump’s son-in-law, offered the proposal at a Davos ceremony to inaugurate the president’s “Board of Peace.”`\
 https://nytimes.com/2026/01/22/world/middleeast/us-gaza-peace-trump-kushner-davos.html
