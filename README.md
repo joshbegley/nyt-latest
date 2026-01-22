@@ -1,3 +1,7 @@
+**Nurses in New York City Say They Deserve $200,000 a Year. Here’s Why.**\
+`As a strike by health workers stretches into its second week, pay is a major issue in negotiations, even if it’s not discussed much on the picket line.`\
+https://nytimes.com/2026/01/22/nyregion/nyc-nurses-strike-pay-raises.html
+
 **Teaching and Learning in the Age of A.I.**\
 `Readers discuss the adoption of artificial intelligence tools in schools. Also: President Trump’s “Board of Peace”; an anti-ICE slogan.`\
 https://nytimes.com/2026/01/22/opinion/ai-schools.html
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6991826/2026/01/22/as-the-bucks-struggle-why-is-gia
 https://nytimes.com/video/dining/100000010659009/creamy-chickpea-spinach-masala-with-tadka.html
 
 **McLaughlin-Levrone, 400m record holder, announces pregnancy**\
-`The 28-year-old, who married former NFL player Andre Levrone Junior in 2022, made the announcement on instagram.`\
+`The 28-year-old, who married former NFL player Andre Levrone Junior in 2022, made the announcement on Instagram.`\
 https://nytimes.com/athletic/6991895/2026/01/22/sydney-mclaughlin-levrone-400m-pregnancy/
 
 **Beef Chops (Meat-Stuffed Potato Cutlets)**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010659006/beef-chops-meat-stuffed-potato-
 **Claude Code Made the Internet Fun Again**\
 `Kevin Roose, a technology columnist at The New York Times, shared his recent vibecoding project with his co-host, Casey Newton on the “Hard Fork” podcast.`\
 https://nytimes.com/video/podcasts/100000010658866/claude-code-made-the-internet-fun-again.html
-
-**Grok Puts People in Bikinis. Elon Thinks It’s Funny**\
-`The hosts of “Hard Fork,” Kevin Roose and Casey Newton, speak with The New York Times reporter Kate Conger about Grok’s recent undressing scandal and Elon Musk’s reaction to it.`\
-https://nytimes.com/video/podcasts/100000010658863/grok-puts-people-in-bikinis-elon-thinks-its-funny.html
 
