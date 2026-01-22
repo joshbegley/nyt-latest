@@ -1,3 +1,23 @@
+**Scammers Keep Stealing Food Stamps. New Cards Might Stop Them.**\
+`New York is joining the small group of states switching to chip-and-pin cards to evade skimming devices that siphon money for food from low-income people.`\
+https://nytimes.com/2026/01/22/nyregion/ebt-food-stamp-skimming.html
+
+**Rainbow**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2026/01/22/learning/rainbow.html
+
+**He Wants New Yorkers to Have a Stake in the Knicks and the Rangers**\
+`Adem Bunkeddeko, a state comptroller candidate, wants to use some of New York’s $290 billion pension fund to buy a percentage of Madison Square Garden Sports.`\
+https://nytimes.com/2026/01/22/nyregion/msg-pension-ownership-bunkeddeko.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/22/crosswords/spelling-bee-forum.html
+
+**Real Madrid and Vinicius Jr's contract stand-off: A year on, what's the latest?**\
+`The 25-year-old Brazil forward's contract expires at the end of June 2027, and talks over a renewal began a year ago`\
+https://nytimes.com/athletic/6989245/2026/01/22/vinicius-jr-real-madrid-contract-renewal-latest/
+
 **Why McLaren will wait as long as it can to test its 2026 F1 car**\
 `McLaren won't be one of the teams hitting the track first when F1 preseason testing starts in 2026. But it has planned for a late test debut`\
 https://nytimes.com/athletic/6990596/2026/01/22/mclaren-2026-f1-car-barcelona-test/
@@ -17,24 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/01/22/todays-new-york-times
 **My Rohingya People Are Running Out of Time**\
 `Genocide hearings in The Hague offer a ray of hope for the Rohingya, but aid cuts are worsening a humanitarian crisis in refugee camps.`\
 https://nytimes.com/2026/01/22/opinion/rohingya-aid-trump-help-genocide.html
-
-**How to stay ahead of FPL's blank and double gameweeks**\
-`Navigating blank and double gameweeks in the second half of the season gives FPL managers a strategic edge with transfers and chip plays`\
-https://nytimes.com/athletic/6987035/2026/01/22/fantasy-premier-league-tips-fpl-gameweek-guide/
-
-**Jhon Duran, Aston Villa and a 'Sliding Doors' moment - what if he had not been sent off?**\
-`Duran comes up against Villa for Fenerbahce on Thursday - we look back at how a controversial red card led to his exit from Villa Park`\
-https://nytimes.com/athletic/6984907/2026/01/22/jhon-duran-newcastle-villa-red-card/
-
-**Jota Silva interview: Summer of uncertainty, his failed transfer and watching Forest from afar**\
-`The winger is on loan at Besiktas - but he is still watching Forest, and hopes the Arsenal performance can help turn the tide this season`\
-https://nytimes.com/athletic/6988925/2026/01/22/jota-silva-interview-summer-of-uncertainty-his-failed-transfer-and-watching-forest-from-afar/
-
-**Why do Brighton have so few 'peak age' players in their ranks?**\
-`Fabian Hurzeler's squad largely comprises either youngsters brimming with potential or elder statesmen, with not much else in between`\
-https://nytimes.com/athletic/6985229/2026/01/22/brighton-hurzeler-peak-age-recruitment-squad/
-
-**Why Nwaneri is heading to Marseille and what Arsenal - and Arteta - hope he gets from it**\
-`Nwaneri has made his contribution to Arsenal’s campaign. The plan now is to develop under a coach Arteta respects and knows well`\
-https://nytimes.com/athletic/6988693/2026/01/22/ethan-nwaneri-arsenal-marseille-loan/
 
