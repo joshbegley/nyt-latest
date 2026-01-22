@@ -1,3 +1,7 @@
+**Trump Hosts ‘Board of Peace’ Signing Ceremony in Davos**\
+`President Trump unveiled his “Board of Peace” during the World Economic Forum in Davos, Switzerland. He initially pitched the organization as part of his vision to rebuild postwar Gaza, but more recently, he has suggested it would have a much bigger role globally.`\
+https://nytimes.com/video/us/politics/100000010661296/trump-peace-board-gaza-un.html
+
 **Bovino Says Activists Are ‘Stalking’ His Federal Agents in Minneapolis**\
 `Protesters made even a bathroom break an ordeal, the Border Patrol official said at a Thursday news conference.`\
 https://nytimes.com/2026/01/22/us/minneapolis-ice-crackdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6989637/2026/01/22/penguins-stuart-skinner-edmonton
 **Dior Could Use a Distillation**\
 `Jonathan Anderson came with some divine inspiration — but was it too much?`\
 https://nytimes.com/2026/01/22/style/dior-anderson-jonathan.html
-
-**‘Clika’ Review: Dreaming of the Stage**\
-`This film about a fieldworker trying to make it in music offers a Mexican American spin on underdog dreamer movies like “8 Mile.”`\
-https://nytimes.com/2026/01/22/movies/clika-review.html
 
