@@ -1,3 +1,11 @@
+**Why Trees Go Pop in the Freezing Cold**\
+`While the weight of freezing rain, ice and snow can damage branches, there is another kind of injury that comes with the extreme cold, experts say.`\
+https://nytimes.com/2026/01/22/weather/extreme-cold-explode-trees.html
+
+**House Rejects Measure to Bar Military Force in Venezuela**\
+`In a tie vote, the House defeated an effort to prohibit the president from using the U.S. military in Venezuela weeks after the raid he ordered that captured the country’s leader.`\
+https://nytimes.com/2026/01/22/us/politics/trump-war-powers-house-vote.html
+
 **Energy Dept. Says It Is Canceling $30 Billion in Clean Energy Loans**\
 `Many of the cancellations had been known for months, but the announcement underscored the drastic change in the energy landscape under President Trump.`\
 https://nytimes.com/2026/01/22/climate/energy-dept-says-it-is-canceling-30-billion-in-clean-energy-loans.html
@@ -18,7 +26,7 @@ https://nytimes.com/video/world/europe/100000010661927/sense-of-relief-spreads-a
 `Minter, who takes over for John Harbaugh, becomes just the fourth head coach in the Ravens' 31-year history. `\
 https://nytimes.com/athletic/6989606/2026/01/22/ravens-jesse-minter-head-coach-chargers/
 
-**Trump to Expand ‘Mexico City’ Abortion Rule to Include D.E.I and Gender**\
+**Trump to Expand ‘Mexico City’ Abortion Rule to Include D.E.I. and Gender**\
 `The policy has traditionally been aimed at keeping organizations that receive U.S. tax dollars from performing or promoting abortion as a method of family planning.`\
 https://nytimes.com/2026/01/22/us/politics/trump-mexico-city-policy-abortion-dei-gender.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6992449/2026/01/22/dolphins-coach-gm-jeff-hafley-jo
 **Alfred McLaren, 93, Dies; Submariner Led Secret Cold War Missions**\
 `He participated in the first baseball game at the North Pole. Later, he became an expert in the impact of climate change on Arctic ice sheets.`\
 https://nytimes.com/2026/01/22/us/alfred-mclaren-dead.html
-
-**House Passes Spending Package Over Democratic Revolt on ICE**\
-`Approval of the package, which would fund a wide swath of government agencies, brings Congress closer to meeting a Jan. 30 funding deadline.`\
-https://nytimes.com/2026/01/22/us/politics/house-spending-package-ice.html
-
-**Three Simple Breakfast Recipes to Learn by Heart**\
-`Los Angeles-based chefs share their ideas for starting the day right, and without much fuss.`\
-https://nytimes.com/2026/01/22/t-magazine/breakfast-recipe-ideas.html
 
