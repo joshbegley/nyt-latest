@@ -1,3 +1,15 @@
+**Stan Wawrinka's Australian Open farewell tour rolls on with remarkable five-set win**\
+`The 40-year old beat Arthur Géa of France in four hours and 33 minutes to reach the third round in Melbourne.`\
+https://nytimes.com/athletic/6990939/2026/01/22/stan-wawrinka-australian-open-gea-tennis/
+
+**Zelensky to Meet Trump at Davos Forum to Discuss Ukraine Peace Deal**\
+`President Trump and Ukraine’s leader, Volodymyr Zelensky, are expected to talk about sticking points in negotiations to end the war with Russia.`\
+https://nytimes.com/2026/01/22/us/politics/zelensky-trump-davos-ukraine-peace-deal.html
+
+**Mercedes unveils first look at new car ahead of 2026 F1 season**\
+`Mercedes is going with a two-part introduction this year, revealing a first look at the 2026 challenger — the W17 — on Thursday.`\
+https://nytimes.com/athletic/6989156/2026/01/22/f1-mercedes-new-car-2026/
+
 **Malfunction Forces Japan to Take Restarted Nuclear Plant Offline**\
 `The setback occurred hours after one of the world’s largest nuclear complexes restarted, ending more than a decade of dormancy following the 2011 Fukushima Daiichi meltdown.`\
 https://nytimes.com/2026/01/22/business/japan-nuclear-offline.html
