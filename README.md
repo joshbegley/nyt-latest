@@ -1,3 +1,7 @@
+**Trump to Expand ‘Mexico City’ Abortion Rule to Include D.E.I and Gender**\
+`The policy has traditionally been aimed at keeping organizations that receive U.S. tax dollars from performing or promoting abortion as a method of family planning.`\
+https://nytimes.com/2026/01/22/us/politics/trump-to-expand-mexico-city-abortion-rule-to-include-dei-and-gender.html
+
 **Jon-Eric Sullivan, Jeff Hafley say Dolphins' goal is 'chasing championships'**\
 `The Dolphins haven't won a playoff game since 2000, the longest current drought in the NFL.`\
 https://nytimes.com/athletic/6992449/2026/01/22/dolphins-coach-gm-jeff-hafley-jon-eric-sullivan/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/world/davos-trump-greenland-ukraine.html
 **4 Takeaways From Jack Smith’s Testimony Before Lawmakers**\
 `In his remarks, the former special counsel repeatedly denied that he had acted out of partisan animus and bemoaned the Trump administration’s efforts to go after the president’s perceived enemies.`\
 https://nytimes.com/2026/01/22/us/politics/takeaways-jack-smith-congress-testimony.html
-
-**Ex-Iowa Superintendent Who Lied About Being a Citizen Pleads Guilty**\
-`Ian Roberts led Des Moines Public Schools before his arrest by immigration agents. He had embellished his credentials and lied about his citizenship status.`\
-https://nytimes.com/2026/01/22/us/ian-roberts-superintendent-des-moines-iowa-ice.html
 
