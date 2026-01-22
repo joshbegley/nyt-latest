@@ -1,3 +1,11 @@
+**Zelensky to Meet Trump at Davos Forum to Discuss Ukraine Peace Deal**\
+`President Trump and Ukraine’s leader, Volodymyr Zelensky, are expected to talk about sticking points in negotiations to end the war with Russia.`\
+https://nytimes.com/2026/01/22/us/politics/zelensky-trump-davos-ukraine-peace-deal.html
+
+**Mercedes unveils first look at new car ahead of 2026 F1 season**\
+`Mercedes is going with a two-part introduction this year, revealing a first look at the 2026 challenger — the W17 — on Thursday.`\
+https://nytimes.com/athletic/6989156/2026/01/22/f1-mercedes-new-car-2026/
+
 **Malfunction Forces Japan to Take Restarted Nuclear Plant Offline**\
 `The setback occurred hours after one of the world’s largest nuclear complexes restarted, ending more than a decade of dormancy following the 2011 Fukushima Daiichi meltdown.`\
 https://nytimes.com/2026/01/22/business/japan-nuclear-offline.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/22/world/asia/philippines-cumpio-journalist-prison.h
 **Scammers Keep Stealing Food Stamps. New Cards Might Stop Them.**\
 `New York is joining the small group of states switching to chip-and-pin cards to evade skimming devices that siphon money for food from low-income people.`\
 https://nytimes.com/2026/01/22/nyregion/ebt-food-stamp-skimming.html
-
-**Rainbow**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2026/01/22/learning/rainbow.html
-
-**He Wants New Yorkers to Have a Stake in the Knicks and the Rangers**\
-`Adem Bunkeddeko, a state comptroller candidate, wants to use some of New York’s $290 billion pension fund to buy a percentage of Madison Square Garden Sports.`\
-https://nytimes.com/2026/01/22/nyregion/msg-pension-ownership-bunkeddeko.html
 
