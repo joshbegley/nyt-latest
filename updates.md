@@ -1,3 +1,7 @@
+**Live Updates: Trump to Host ‘Board of Peace’ Signing Ceremony in Davos**\
+``\
+https://nytimes.com/live/2026/01/22/us/trump-davos-news
+
 **Trump Reaches Framework Greenland Deal**\
 `President Trump said he reached a framework for a deal on the future of Greenland. Some Greenlanders were relieved, but stayed cautious after Trump backed down from his threat to use force.`\
 https://nytimes.com/video/world/europe/100000010660158/trump-greenland-threats-diplomacy-force.html
