@@ -1,3 +1,15 @@
+**Mark Carney Says Firmly That ‘Canada Doesn’t Live Because of the United States’**\
+`The Canadian prime minister spoke after returning from the World Economic Forum where he urged middle powers to team up in resisting President Trump.`\
+https://nytimes.com/2026/01/22/world/canada/carney-trump-canada-speech.html
+
+**Rodman, Spirit agree on new deal to keep USWNT star in NWSL**\
+`Rodman's signing ends a prolonged NWSL saga and keeps the U.S. women's national team star in the nation's capital`\
+https://nytimes.com/athletic/6986284/2026/01/22/trinity-rodman-contract-washington-spirit-nwsl/
+
+**Jarmo Kekäläinen on Sabres buying at the deadline, Doan contract and more**\
+`As much as the Sabres have been rolling lately, there are still some areas where the team could improve.`\
+https://nytimes.com/athletic/6992611/2026/01/22/sabres-josh-doan-trades-jarmo-kekalainen/
+
 **Trump Could Begin Flying on Jet Donated by Qatar by This Summer**\
 `It remains unclear whether the aircraft would get the full Air Force One security upgrades, which industry experts said could take up to two years to complete.`\
 https://nytimes.com/2026/01/22/us/politics/trump-qatar-air-force-one.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/22/us/politics/trump-war-powers-house-vote.html
 **Energy Dept. Says It Is Canceling $30 Billion in Clean Energy Loans**\
 `Many of the cancellations had been known for months, but the announcement underscored the drastic change in the energy landscape under President Trump.`\
 https://nytimes.com/2026/01/22/climate/energy-dept-says-it-is-canceling-30-billion-in-clean-energy-loans.html
-
-**James Bernard, a Founding Editor of a Hip-Hop ‘Bible,’ Dies at 58**\
-`One of the most influential voices of the seminal magazine The Source, he chronicled rap’s rise and its explosion into the cultural mainstream.`\
-https://nytimes.com/2026/01/22/arts/music/james-bernard-dead.html
-
-**Jesse Minter is leaving the Chargers: 8 candidates to replace him as DC**\
-`The Chargers have been prepared to lose their star defensive coordinator and now start the process of replacing him.`\
-https://nytimes.com/athletic/6990093/2026/01/22/chargers-defensive-coordinator-candidates/
-
-**Sense of Relief Spreads Among European Leaders Over De-Escalation of Greenland Crisis**\
-`Some European leaders on Thursday welcomed President Trump’s announcement calling off tariffs on Europe over Greenland, and expressed optimism that it would eventually result in a victory for Arctic security and NATO unity.`\
-https://nytimes.com/video/world/europe/100000010661927/sense-of-relief-spreads-among-european-leaders-over-de-escalation-of-greenland-crisis.html
 
