@@ -1,3 +1,11 @@
+**Ex-Iowa Superintendent Who Lied About Being a Citizen Pleads Guilty**\
+`Ian Roberts led Des Moines Public Schools before his arrest by immigration agents. He had embellished his credentials and lied about his citizenship status.`\
+https://nytimes.com/2026/01/22/us/ian-roberts-superintendent-des-moines-iowa-ice.html
+
+**New York Could See Its Biggest Snowfall in Years**\
+`The National Weather Service warned of “considerable disruption to transportation and daily life” from Sunday into Monday.`\
+https://nytimes.com/2026/01/22/weather/new-york-city-snow-forecast.html
+
 **Fine Arts Panel, Remade by Trump, Indicates Support for His Ballroom Plan**\
 `The Commission of Fine Arts is one of two review panels that Mr. Trump has stacked with allies as he has pushed to construct a 90,000-square-foot building in the place of the East Wing.`\
 https://nytimes.com/2026/01/22/us/politics/commission-trump-white-house-ballroom.html
