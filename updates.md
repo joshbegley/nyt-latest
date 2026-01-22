@@ -1,3 +1,7 @@
+**Jesse Minter is leaving the Chargers: 8 candidates to replace him as DC**\
+`The Chargers have been prepared to lose their star defensive coordinator and now start the process of replacing him.`\
+https://nytimes.com/athletic/6990093/2026/01/22/chargers-defensive-coordinator-candidates/
+
 **Sense of Relief Spreads Among European Leaders Over De-Escalation of Greenland Crisis**\
 `Some European leaders on Thursday welcomed President Trump’s announcement calling off tariffs on Europe over Greenland, and expressed optimism that it would eventually result in a victory for Arctic security and NATO unity.`\
 https://nytimes.com/video/world/europe/100000010661927/sense-of-relief-spreads-among-european-leaders-over-de-escalation-of-greenland-crisis.html

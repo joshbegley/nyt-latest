@@ -1,3 +1,11 @@
+**Energy Dept. Says It Is Canceling $30 Billion in Clean Energy Loans**\
+`Many of the cancellations had been known for months, but the announcement underscored the drastic change in the energy landscape under President Trump.`\
+https://nytimes.com/2026/01/22/climate/energy-dept-says-it-is-canceling-30-billion-in-clean-energy-loans.html
+
+**James Bernard, a Founding Editor of a Hip-Hop ‘Bible,’ Dies at 58**\
+`One of the most influential voices of the seminal magazine The Source, he chronicled rap’s rise and its explosion into the cultural mainstream.`\
+https://nytimes.com/2026/01/22/arts/music/james-bernard-dead.html
+
 **Jesse Minter is leaving the Chargers: 8 candidates to replace him as DC**\
 `The Chargers have been prepared to lose their star defensive coordinator and now start the process of replacing him.`\
 https://nytimes.com/athletic/6990093/2026/01/22/chargers-defensive-coordinator-candidates/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/22/us/politics/house-spending-package-ice.html
 **Three Simple Breakfast Recipes to Learn by Heart**\
 `Los Angeles-based chefs share their ideas for starting the day right, and without much fuss.`\
 https://nytimes.com/2026/01/22/t-magazine/breakfast-recipe-ideas.html
-
-**Did Nats get enough for sending MacKenzie Gore to Texas? MLB Trade Grades**\
-`The Rangers gave up five of their top prospects for MacKenzie Gore, including the 12th pick in the 2025 MLB draft. `\
-https://nytimes.com/athletic/6992447/2026/01/22/mackenzie-gore-texas-rangers-washington-nationals-mlb-trade-grades/
-
-**The Cliburn, Known for Piano Competitions, Will Hold One for Conductors**\
-`The trailblazing conductor Marin Alsop will chair the jury for the inaugural Cliburn International Competition for Conductors in 2028.`\
-https://nytimes.com/2026/01/22/arts/music/cliburn-competition-conductors.html
 

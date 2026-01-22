@@ -1,3 +1,7 @@
+**Jesse Minter is leaving the Chargers: 8 candidates to replace him as DC**\
+`The Chargers have been prepared to lose their star defensive coordinator and now start the process of replacing him.`\
+https://nytimes.com/athletic/6990093/2026/01/22/chargers-defensive-coordinator-candidates/
+
 **Sense of Relief Spreads Among European Leaders Over De-Escalation of Greenland Crisis**\
 `Some European leaders on Thursday welcomed President Trump’s announcement calling off tariffs on Europe over Greenland, and expressed optimism that it would eventually result in a victory for Arctic security and NATO unity.`\
 https://nytimes.com/video/world/europe/100000010661927/sense-of-relief-spreads-among-european-leaders-over-de-escalation-of-greenland-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6992447/2026/01/22/mackenzie-gore-texas-rangers-was
 **The Cliburn, Known for Piano Competitions, Will Hold One for Conductors**\
 `The trailblazing conductor Marin Alsop will chair the jury for the inaugural Cliburn International Competition for Conductors in 2028.`\
 https://nytimes.com/2026/01/22/arts/music/cliburn-competition-conductors.html
-
-**Hecklers Roast My $800 Stroller Wagon. After 650 Miles, I Still Love It.**\
-`After pushing through snow, sand, and mud, my family of four has come to view the luxury stroller wagon as a necessity.`\
-https://nytimes.com/wirecutter/blog/veer-cruiser-xl-stroller-wagon-review/
 
