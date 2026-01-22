@@ -1,3 +1,7 @@
+**Australian Open Day 5 recap: Osaka and Cîrstea's handshake drama as tournament comes to life**\
+`Amid Czech players starring, tension at the net and upsets coming into play, the tournament finally found its drama.`\
+https://nytimes.com/athletic/6989936/2026/01/22/tennis-australian-open-recap-results-osaka-cirstea/
+
 **The Exacting, Ephemeral Art of Ice Carving**\
 `A look inside a Queens studio where Buddhas, sneakers and swans are carved with reverence and the knowledge that beauty, like ice, is fleeting.`\
 https://nytimes.com/2026/01/22/arts/design/the-exacting-ephemeral-art-of-ice-carving.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6990663/2026/01/22/eagles-offensive-coordinator-sea
 **Europe’s Leaders Try to Find a Path Forward With Trump**\
 `Top officials from across the European Union will meet in Brussels on Thursday to discuss Greenland and, more broadly, their dire relationship with America.`\
 https://nytimes.com/2026/01/22/us/politics/europe-trump-greenland-tariffs-eu-meeting.html
-
-**‘It's not in me to give up’: Bub Carrington is the Washington Wizards’ iron man**\
-`The 20-year-old guard is about to play in his 125th consecutive regular-season NBA game. `\
-https://nytimes.com/athletic/6990699/2026/01/22/bub-carrington-washington-wizards-ironman-streak/
 
