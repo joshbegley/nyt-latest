@@ -1,3 +1,7 @@
+**'Vendetta Is the Best Word for What They’re Doing': Inside Kash Patel's F.B.I.**\
+`Forty-five current and former employees on the changes they say are undermining the agency and making America less safe.`\
+https://nytimes.com/interactive/2026/01/22/magazine/trump-kash-patel-fbi-agents.html
+
 **A Trattoria That’s ‘a Passing of the Torch’**\
 `Plus: a new hotel at Utah’s Sundance Resort, an exhibition of Sarah Sze’s artwork in Los Angeles and more recommendations from T Magazine.`\
 https://nytimes.com/2026/01/22/t-magazine/tiella-trattoria-london.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/briefing/ask-the-morning-trump-and-greenland.html
 **They Tested Their $800,000 Budget on the Edges of Los Angeles County**\
 `After meeting in Phoenix and discovering they were both from Southern California, a couple plotted their return. Here’s what they found at the border of Los Angeles and San Bernardino counties.`\
 https://nytimes.com/interactive/2026/01/22/realestate/california-homes-claremont-rancho-cucamonga-upland.html
-
-**Cross-Tabs: January 2026 Times/Siena National Poll of Registered Voters**\
-`Results of a nationwide New York Times/Siena poll of 1,625 registered voters conducted from Jan. 12 to 17, 2026.`\
-https://nytimes.com/interactive/2026/01/22/polls/times-siena-national-poll-crosstabs.html
 
