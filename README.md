@@ -1,3 +1,11 @@
+**Eight Eagles Thoughts: Latest on OC search, perspective on candidates, desirability of job**\
+`The Eagles have likely missed out on the biggest fish to fill their offensive coordinator position.`\
+https://nytimes.com/athletic/6990663/2026/01/22/eagles-offensive-coordinator-search-candidates/
+
+**Europe’s Leaders Scramble to Find a Path Forward With Trump**\
+`Top officials from across the European Union will meet in Brussels on Thursday to discuss Greenland and, more broadly, their dire relationship with America.`\
+https://nytimes.com/2026/01/22/us/politics/europe-trump-greenland-tariffs-eu-meeting.html
+
 **‘It's not in me to give up’: Bub Carrington is the Washington Wizards’ iron man**\
 `The 20-year-old guard is about to play in his 125th consecutive regular-season NBA game. `\
 https://nytimes.com/athletic/6990699/2026/01/22/bub-carrington-washington-wizards-ironman-streak/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6989466/2026/01/22/charles-bediako-ncaa-case-nba-dr
 **'Confidence is everything': Behind Charlie Stramel's resurgence as a top Wild prospect**\
 `Stramel's Michigan State coach: "From who we've played, we're here in January, I don't think I've seen a more pro-ready player."`\
 https://nytimes.com/athletic/6988910/2026/01/22/charlie-stramel-wild-michigan-state-resurgance/
-
-**What I'm hearing about the Blackhawks as the trade deadline approaches**\
-`The Blackhawks aren't sure how the trade deadline will play out yet, but they have some players other teams are showing interest in.`\
-https://nytimes.com/athletic/6989431/2026/01/22/blackhawks-nhl-trade-deadline-plans/
-
-**Caleb Williams does Chicago tour, no word on Bears stadium and White Sox deal Luis Robert**\
-`Williams attended a Blackhawks game with Cubs outfielder Pete Crow-Armstrong and returned with PCA to watch the Bulls beat the Clippers.`\
-https://nytimes.com/athletic/6989695/2026/01/22/caleb-williams-bears-stadium-luis-robert-white-sox/
 
