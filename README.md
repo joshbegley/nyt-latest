@@ -1,3 +1,7 @@
+**Malfunction Forces Japan to Take Restarted Nuclear Plant Offline**\
+`The setback occurred hours after one of the world’s largest nuclear complexes restarted, ending more than a decade of dormancy following the 2011 Fukushima Daiichi meltdown.`\
+https://nytimes.com/2026/01/22/business/japan-nuclear-offline.html
+
 **Igor Jesus a doubt for Forest European tie - who could start up front?**\
 `Igor Jesus has not travelled with the squad but could fly out to Braga on Thursday. If he is deemed unfit, Forest have a problem.`\
 https://nytimes.com/athletic/6990918/2026/01/22/igor-jesus-injury-forest-braga/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/learning/rainbow.html
 **He Wants New Yorkers to Have a Stake in the Knicks and the Rangers**\
 `Adem Bunkeddeko, a state comptroller candidate, wants to use some of New York’s $290 billion pension fund to buy a percentage of Madison Square Garden Sports.`\
 https://nytimes.com/2026/01/22/nyregion/msg-pension-ownership-bunkeddeko.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/22/crosswords/spelling-bee-forum.html
 

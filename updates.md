@@ -1,3 +1,7 @@
+**Igor Jesus a doubt for Forest European tie - who could start up front?**\
+`Igor Jesus has not travelled with the squad but could fly out to Braga on Thursday. If he is deemed unfit, Forest have a problem.`\
+https://nytimes.com/athletic/6990918/2026/01/22/igor-jesus-injury-forest-braga/
+
 **Live Updates: Trump to Host ‘Board of Peace’ Signing Ceremony in Davos**\
 ``\
 https://nytimes.com/live/2026/01/22/us/trump-davos-news
