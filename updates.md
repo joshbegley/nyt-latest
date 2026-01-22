@@ -1,3 +1,11 @@
+**Consumer Prices Rose 2.8 Percent Through November, a Sign of Sticky Inflation**\
+`The Federal Reserve’s preferred gauge for inflation in October and November was released belatedly after the government shutdown.`\
+https://nytimes.com/2026/01/22/business/consumer-prices-inflation-economy.html
+
+**Forest agree loan deal with Napoli for Lucca**\
+`The 25-year-old scored twice in 23 games for the Italian champions this term. `\
+https://nytimes.com/athletic/6991050/2026/01/22/lorenzo-lucca-nottingham-forest-napoli-deal-transfer-news/
+
 **Trump Returns to a Familiar Role: Sowing Trade Chaos**\
 `The president’s quick reversal on tariffs over Greenland was another sign of his willingness to rip up the international order — even parts of it that he himself has made.`\
 https://nytimes.com/2026/01/22/us/politics/trump-trade-chaos.html
