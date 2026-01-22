@@ -1,3 +1,11 @@
+**Indiana's national championship win tops more than 30 million viewers**\
+`This was the second most-watched CFP National Championship Game.`\
+https://nytimes.com/athletic/6992555/2026/01/22/indiana-national-championship-30-million-viewers/
+
+**Kennedy Plan to Test a Vaccine in West African Babies Is Blocked**\
+`A planned U.S.-funded study of a hepatitis B vaccine drew widespread condemnation from researchers. Now the host country says it cannot proceed.`\
+https://nytimes.com/2026/01/22/health/hepatitis-b-vaccine-africa-study.html
+
 **Why Trees Go Pop in the Freezing Cold**\
 `While the weight of freezing rain, ice and snow can damage branches, there is another kind of injury that comes with the extreme cold, experts say.`\
 https://nytimes.com/2026/01/22/weather/extreme-cold-explode-trees.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6989606/2026/01/22/ravens-jesse-minter-head-coach-c
 **Trump to Expand ‘Mexico City’ Abortion Rule to Include D.E.I. and Gender**\
 `The policy has traditionally been aimed at keeping organizations that receive U.S. tax dollars from performing or promoting abortion as a method of family planning.`\
 https://nytimes.com/2026/01/22/us/politics/trump-mexico-city-policy-abortion-dei-gender.html
-
-**Jon-Eric Sullivan, Jeff Hafley say Dolphins' goal is 'chasing championships'**\
-`The Dolphins haven't won a playoff game since 2000, the longest current drought in the NFL.`\
-https://nytimes.com/athletic/6992449/2026/01/22/dolphins-coach-gm-jeff-hafley-jon-eric-sullivan/
-
-**Alfred McLaren, 93, Dies; Submariner Led Secret Cold War Missions**\
-`He participated in the first baseball game at the North Pole. Later, he became an expert in the impact of climate change on Arctic ice sheets.`\
-https://nytimes.com/2026/01/22/us/alfred-mclaren-dead.html
 
