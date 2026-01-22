@@ -1,3 +1,23 @@
+**Scammers Keep Stealing Food Stamps. New Cards Might Stop Them.**\
+`New York is joining the small group of states switching to chip-and-pin cards to evade skimming devices that siphon money for food from low-income people.`\
+https://nytimes.com/2026/01/22/nyregion/ebt-food-stamp-skimming.html
+
+**Rainbow**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2026/01/22/learning/rainbow.html
+
+**He Wants New Yorkers to Have a Stake in the Knicks and the Rangers**\
+`Adem Bunkeddeko, a state comptroller candidate, wants to use some of New York’s $290 billion pension fund to buy a percentage of Madison Square Garden Sports.`\
+https://nytimes.com/2026/01/22/nyregion/msg-pension-ownership-bunkeddeko.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/22/crosswords/spelling-bee-forum.html
+
+**Real Madrid and Vinicius Jr's contract stand-off: A year on, what's the latest?**\
+`The 25-year-old Brazil forward's contract expires at the end of June 2027, and talks over a renewal began a year ago`\
+https://nytimes.com/athletic/6989245/2026/01/22/vinicius-jr-real-madrid-contract-renewal-latest/
+
 **Why Nwaneri is heading to Marseille and what Arsenal - and Arteta - hope he gets from it**\
 `Nwaneri has made his contribution to Arsenal’s campaign. The plan now is to develop under a coach Arteta respects and knows well`\
 https://nytimes.com/athletic/6988693/2026/01/22/ethan-nwaneri-arsenal-marseille-loan/
