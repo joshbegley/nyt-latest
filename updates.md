@@ -1,3 +1,7 @@
+**NFL playoffs: Key matchups between the Rams and Seahawks in NFC Championship Game**\
+`Quarterbacks Matthew Stafford and Sam Darnold will be at the center of determining how this rubber match will play out.`\
+https://nytimes.com/athletic/6989732/2026/01/22/nfl-playoffs-nfc-championship-matchups-seahawks-rams/
+
 **The Pulse: Hey, what are the Bills doing?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6990517/2026/01/22/bills-owner-pegula-press-conference-the-pulse/
