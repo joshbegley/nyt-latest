@@ -1,3 +1,11 @@
+**An Emboldened Trump’s Whipsaw Approach to the World**\
+`He says there’s a method to the madness. But European allies wonder whether the United States is reliable anymore.`\
+https://nytimes.com/2026/01/22/world/europe/trump-greenland-foreign-policy.html
+
+**Barron Trump Called U.K. Police After Witnessing Woman ‘Getting Beat Up’ on Video Call**\
+`The details of an emergency call made by President Trump’s youngest son to the London police last year emerged during a trial this week.`\
+https://nytimes.com/2026/01/22/world/europe/barron-trump-london-call-woman-assault.html
+
 **New York Red Bulls closing in on deal for U.S. goalkeeper Horvath**\
 `Horvath, 30, spent the first half of the season on loan at Sheffield Wednesday from Cardiff.`\
 https://nytimes.com/athletic/6992408/2026/01/22/ethan-horvath-rbny-cardiff-transfer/
