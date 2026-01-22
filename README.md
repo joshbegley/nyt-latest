@@ -1,3 +1,7 @@
+**When a Coat Becomes a Symbol of Conflict**\
+`How the choice of outerwear for Gregory Bovino, the president’s Border Patrol chief, turned into part of the deportation story.`\
+https://nytimes.com/2026/01/22/style/gregory-bovino-ice-coat.html
+
 **Oscar Snubs and Surprises: ‘Sinners’ Makes History, ‘Wicked’ Withers**\
 `Ariana Grande, Chase Infiniti and Paul Mescal were shut out, but voters made room for Delroy Lindo, Kate Hudson and “F1.”`\
 https://nytimes.com/2026/01/22/movies/oscar-snubs-wicked-sinners-bugonia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/us/indonesia-handprint-rock-art-research.html
 **Map: 4.7-Magnitude Earthquake Strikes Near Salt Lake City**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/01/22/us/quake-salt-lake-utah.html
-
-**Trump Returns to a Familiar Role: Sowing Trade Chaos**\
-`The president’s quick reversal on tariffs over Greenland was another sign of his willingness to rip up the international order — even parts of it that he himself has made.`\
-https://nytimes.com/2026/01/22/us/politics/trump-trade-chaos.html
 
