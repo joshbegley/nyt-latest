@@ -1,3 +1,7 @@
+**New York Could See Its Biggest Snowfall in Years**\
+`The National Weather Service warned of “considerable disruption to transportation and daily life” from Sunday into Monday.`\
+https://nytimes.com/2026/01/22/weather/new-york-city-snow-forecast.html
+
 **Fine Arts Panel, Remade by Trump, Indicates Support for His Ballroom Plan**\
 `The Commission of Fine Arts is one of two review panels that Mr. Trump has stacked with allies as he has pushed to construct a 90,000-square-foot building in the place of the East Wing.`\
 https://nytimes.com/2026/01/22/us/politics/commission-trump-white-house-ballroom.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6992152/2026/01/22/fantasy-basketball-hot-topics-ja
 **Death Threats or Gossip? Bovino Murder-for-Hire Trial Goes to Jury.**\
 `Prosecutors say a Chicago carpenter offered a bounty for killing Gregory Bovino, a Border Patrol official. Defense lawyers say he was just sharing a social media post.`\
 https://nytimes.com/2026/01/22/us/gregory-bovino-murder-chicago-trial.html
-
-**E.P.A. Promises a Ban on Animal Testing by 2035**\
-`Lee Zeldin, the E.P.A. administrator, revived a plan created during the first Trump administration to end the testing of chemicals on mammals.`\
-https://nytimes.com/2026/01/22/climate/epa-animal-testing-ban.html
 

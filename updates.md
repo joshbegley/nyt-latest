@@ -1,3 +1,7 @@
+**Fine Arts Panel, Remade by Trump, Indicates Support for His Ballroom Plan**\
+`The Commission of Fine Arts is one of two review panels that Mr. Trump has stacked with allies as he has pushed to construct a 90,000-square-foot building in the place of the East Wing.`\
+https://nytimes.com/2026/01/22/us/politics/commission-trump-white-house-ballroom.html
+
 **An Emboldened Trump’s Whipsaw Approach to the World**\
 `He says there’s a method to the madness. But European allies wonder whether the United States is reliable anymore.`\
 https://nytimes.com/2026/01/22/world/europe/trump-greenland-foreign-policy.html
