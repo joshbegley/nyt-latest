@@ -1,3 +1,7 @@
+**'Vendetta Is the Best Word for What They’re Doing': Inside Kash Patel's F.B.I.**\
+`Forty-five current and former employees on the changes they say are undermining the agency and making America less safe.`\
+https://nytimes.com/interactive/2026/01/22/magazine/trump-kash-patel-fbi-agents.html
+
 **A Trattoria That’s ‘a Passing of the Torch’**\
 `Plus: a new hotel at Utah’s Sundance Resort, an exhibition of Sarah Sze’s artwork in Los Angeles and more recommendations from T Magazine.`\
 https://nytimes.com/2026/01/22/t-magazine/tiella-trattoria-london.html
