@@ -1,3 +1,7 @@
+**NHL rumblings: Leafs looking for D, Oilers' trade targets, Rangers' no-move list, more**\
+`Also around the NHL: The Panthers are making calls as they continue to struggle, and Sweden's injury nightmare gets even worse.`\
+https://nytimes.com/athletic/6991915/2026/01/22/nhl-trades-maple-leafs-oilers-rangers-rumblings/
+
 **Sonic Booms and Seismic Waves Can Reveal Where Space Junk Crash-Lands**\
 `The sensors used to listen for earthquakes could help protect people from the hazards created by falling spacecraft.`\
 https://nytimes.com/2026/01/22/science/space-junk-seismographs.html

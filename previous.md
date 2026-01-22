@@ -14,7 +14,7 @@ https://nytimes.com/2026/01/22/us/elizabeth-smart-kidnapping.html
 `“In the U.S., it is perfectly legal to resell tickets on resale platforms — there is a law for that, so we have to allow (it),” he said.`\
 https://nytimes.com/athletic/6991940/2026/01/22/fifa-world-cup-tickets-resale/
 
-**NHL rumblings: Maple Leafs scour defense market, Oilers' trade targets, Rangers' no-move list, more**\
+**NHL rumblings: Leafs looking for D, Oilers' trade targets, Rangers' no-move list, more**\
 `Also around the NHL: The Panthers are making calls as they continue to struggle, and Sweden's injury nightmare gets even worse.`\
 https://nytimes.com/athletic/6991915/2026/01/22/nhl-trades-maple-leafs-oilers-rangers-rumblings/
 
