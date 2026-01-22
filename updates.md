@@ -1,3 +1,11 @@
+**Sonic Booms and Seismic Waves Can Reveal Where Space Junk Crash-Lands**\
+`The sensors used to listen for earthquakes could help protect people from the hazards created by falling spacecraft.`\
+https://nytimes.com/2026/01/22/science/space-junk-seismographs.html
+
+**7 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2026/01/22/books/review/new-recommended-books.html
+
 **What to Know About the Elizabeth Smart Kidnapping Case**\
 `A new Netflix documentary, “Kidnapped: Elizabeth Smart,” revisits her abduction from her home in Salt Lake City in 2002, when she was 14. She was held captive for nine months.`\
 https://nytimes.com/2026/01/22/us/elizabeth-smart-kidnapping.html

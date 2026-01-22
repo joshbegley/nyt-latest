@@ -1,3 +1,11 @@
+**Sonic Booms and Seismic Waves Can Reveal Where Space Junk Crash-Lands**\
+`The sensors used to listen for earthquakes could help protect people from the hazards created by falling spacecraft.`\
+https://nytimes.com/2026/01/22/science/space-junk-seismographs.html
+
+**7 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2026/01/22/books/review/new-recommended-books.html
+
 **What to Know About the Elizabeth Smart Kidnapping Case**\
 `A new Netflix documentary, “Kidnapped: Elizabeth Smart,” revisits her abduction from her home in Salt Lake City in 2002, when she was 14. She was held captive for nine months.`\
 https://nytimes.com/2026/01/22/us/elizabeth-smart-kidnapping.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/22/arts/music/harry-styles-together-together-tour-re
 **Nurses in New York City Say They Deserve $200,000 a Year. Here’s Why.**\
 `As a strike by health workers stretches into its second week, pay is a major issue in negotiations, even if it’s not discussed much on the picket line.`\
 https://nytimes.com/2026/01/22/nyregion/nyc-nurses-strike-pay-raises.html
-
-**Teaching and Learning in the Age of A.I.**\
-`Readers discuss the adoption of artificial intelligence tools in schools. Also: President Trump’s “Board of Peace”; an anti-ICE slogan.`\
-https://nytimes.com/2026/01/22/opinion/ai-schools.html
-
-**Rainbow Laces out, pride-themed footballs in? Premier League to launch new LGBTQ+ campaign**\
-`The Premier League's new initiative will be called With Pride and will be held across a double gameweek next month`\
-https://nytimes.com/athletic/6989391/2026/01/22/premier-league-new-lgbtq-campaign/
 
