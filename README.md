@@ -1,3 +1,7 @@
+**Mets land their target in Freddy Peralta, but Brewers do well in return**\
+`The Mets get a big upgrade in their rotation, but the Brewers make out well to acquire two top-100 prospects who fill team needs.`\
+https://nytimes.com/athletic/6990611/2026/01/21/freddy-peralta-mets-brewers-trade-analysis/
+
 **49ers to look at 'everything' regarding injuries, including a substation**\
 `Several of the team's top players went down this season, and some are blaming electromagnetic waves next to the practice field.`\
 https://nytimes.com/athletic/6990321/2026/01/21/san-francisco-49ers-injuries-electrical-substation/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/21/us/politics/ice-warrant-whistleblower.html
 **Mets trade for Brewers' ace Freddy Peralta, fill glaring rotation need**\
 `In trading Peralta, the Brewers are putting faith in a young rotation to sustain them. The Mets, meanwhile, get a top-of-the-rotation arm.`\
 https://nytimes.com/athletic/6894446/2026/01/21/mlb-freddy-peralta-trade-mets/
-
-**Cuban Detainee in El Paso ICE Facility Died by Homicide, Autopsy Shows**\
-`The report from the county medical examiner said the detainee, Geraldo Lunas Campos, was asphyxiated and restrained by law enforcement. Federal officials described his death as a suicide.`\
-https://nytimes.com/2026/01/21/us/el-paso-ice-detainee-homicide.html
 
