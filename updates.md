@@ -1,3 +1,11 @@
+**Claude Code Made the Internet Fun Again**\
+`Kevin Roose, a technology columnist at The New York Times, shared his recent vibecoding project with his co-host, Casey Newton on the “Hard Fork” podcast.`\
+https://nytimes.com/video/podcasts/100000010658866/claude-code-made-the-internet-fun-again.html
+
+**Grok Puts People in Bikinis. Elon Thinks It’s Funny**\
+`The hosts of “Hard Fork,” Kevin Roose and Casey Newton, speak with The New York Times reporter Kate Conger about Grok’s recent undressing scandal and Elon Musk’s reaction to it.`\
+https://nytimes.com/video/podcasts/100000010658863/grok-puts-people-in-bikinis-elon-thinks-its-funny.html
+
 **Shiffrin, Vonn, Kim headline U.S. Ski & Snowboard Olympic selections**\
 `Nearly half of those selected to the roster are making their Olympic debut.`\
 https://nytimes.com/athletic/6991711/2026/01/22/usa-ski-snowboard-milan-cortina-olympics/
