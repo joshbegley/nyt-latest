@@ -1,3 +1,7 @@
+**Fine Arts Panel, Remade by Trump, Indicates Support for His Ballroom Plan**\
+`The Commission of Fine Arts is one of two review panels that Mr. Trump has stacked with allies as he has pushed to construct a 90,000-square-foot building in the place of the East Wing.`\
+https://nytimes.com/2026/01/22/us/politics/commission-trump-white-house-ballroom.html
+
 **An Emboldened Trump’s Whipsaw Approach to the World**\
 `He says there’s a method to the madness. But European allies wonder whether the United States is reliable anymore.`\
 https://nytimes.com/2026/01/22/world/europe/trump-greenland-foreign-policy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/us/gregory-bovino-murder-chicago-trial.html
 **E.P.A. Promises a Ban on Animal Testing by 2035**\
 `Lee Zeldin, the E.P.A. administrator, revived a plan created during the first Trump administration to end the testing of chemicals on mammals.`\
 https://nytimes.com/2026/01/22/climate/epa-animal-testing-ban.html
-
-**Missouri transfer Damon Wilson II, DE in legal dispute with Georgia, commits to Miami**\
-`The 6-foot-4, 250-pound former Missouri Tiger and Georgia Bulldog finished third in the SEC this past season with nine sacks.`\
-https://nytimes.com/athletic/6992318/2026/01/22/damon-wilson-missouri-georgia-miami-transfer-lawsuit/
 
