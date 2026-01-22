@@ -1,3 +1,7 @@
+**Why Trump’s Reversal on Greenland Still Leaves Europe on Edge**\
+`Andrew Ross Sorkin, editor at large of DealBook, describes how leaders at the World Economic Forum in Davos remain on edge after President Trump, for now, backed down from threats of using tariffs or military force to gain Greenland.`\
+https://nytimes.com/video/business/economy/100000010656157/why-trumps-reversal-on-greenland-still-leaves-europe-on-edge.html
+
 **NHL rumblings: Leafs looking for D, Oilers' trade targets, Rangers' no-move list, more**\
 `Also around the NHL: The Panthers are making calls as they continue to struggle, and Sweden's injury nightmare gets even worse.`\
 https://nytimes.com/athletic/6991915/2026/01/22/nhl-trades-maple-leafs-oilers-rangers-rumblings/

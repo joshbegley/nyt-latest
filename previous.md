@@ -1,3 +1,7 @@
+**Why Trump’s Reversal on Greenland Still Leaves Europe on Edge**\
+`Andrew Ross Sorkin, editor at large of DealBook, describes how leaders at the World Economic Forum in Davos remain on edge after President Trump, for now, backed down from threats of using tariffs or military force to gain Greenland.`\
+https://nytimes.com/video/business/economy/100000010656157/why-trumps-reversal-on-greenland-still-leaves-europe-on-edge.html
+
 **Sonic Booms and Seismic Waves Can Reveal Where Space Junk Crash-Lands**\
 `The sensors used to listen for earthquakes could help protect people from the hazards created by falling spacecraft.`\
 https://nytimes.com/2026/01/22/science/space-junk-seismographs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6991914/2026/01/22/falcons-tommy-rees-offensive-coo
 **Harry Styles Books 30 Dates at the Garden for New Concert Residency**\
 `The pop star is returning with his fourth solo album on March 6. His Together, Together tour, which will hit seven cities, is scheduled to begin in May.`\
 https://nytimes.com/2026/01/22/arts/music/harry-styles-together-together-tour-residency.html
-
-**Nurses in New York City Say They Deserve $200,000 a Year. Here’s Why.**\
-`As a strike by health workers stretches into its second week, pay is a major issue in negotiations, even if it’s not discussed much on the picket line.`\
-https://nytimes.com/2026/01/22/nyregion/nyc-nurses-strike-pay-raises.html
 
