@@ -1,3 +1,7 @@
+**Harry Styles Books 30 Dates at the Garden for New Concert Residency**\
+`The pop star is returning with his fourth solo album on March 6. His Together, Together tour, which will hit seven cities, is scheduled to begin in May.`\
+https://nytimes.com/2026/01/22/arts/music/harry-styles-together-together-tour-residency.html
+
 **Nurses in New York City Say They Deserve $200,000 a Year. Here’s Why.**\
 `As a strike by health workers stretches into its second week, pay is a major issue in negotiations, even if it’s not discussed much on the picket line.`\
 https://nytimes.com/2026/01/22/nyregion/nyc-nurses-strike-pay-raises.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6991895/2026/01/22/sydney-mclaughlin-levrone-400m-p
 **Beef Chops (Meat-Stuffed Potato Cutlets)**\
 `Also known as potato chops, these treats trace their roots to the kitchens of Christian communities across India, Pakistan and Iraq, where they became a celebratory staple at weddings, holidays and family feasts.`\
 https://nytimes.com/video/dining/100000010659006/beef-chops-meat-stuffed-potato-cutlets.html
-
-**Claude Code Made the Internet Fun Again**\
-`Kevin Roose, a technology columnist at The New York Times, shared his recent vibecoding project with his co-host, Casey Newton on the “Hard Fork” podcast.`\
-https://nytimes.com/video/podcasts/100000010658866/claude-code-made-the-internet-fun-again.html
 

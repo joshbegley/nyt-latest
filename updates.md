@@ -1,3 +1,27 @@
+**Nurses in New York City Say They Deserve $200,000 a Year. Here’s Why.**\
+`As a strike by health workers stretches into its second week, pay is a major issue in negotiations, even if it’s not discussed much on the picket line.`\
+https://nytimes.com/2026/01/22/nyregion/nyc-nurses-strike-pay-raises.html
+
+**Teaching and Learning in the Age of A.I.**\
+`Readers discuss the adoption of artificial intelligence tools in schools. Also: President Trump’s “Board of Peace”; an anti-ICE slogan.`\
+https://nytimes.com/2026/01/22/opinion/ai-schools.html
+
+**Rainbow Laces out, pride-themed footballs in? Premier League to launch new LGBTQ+ campaign**\
+`The Premier League's new initiative will be called With Pride and will be held across a double gameweek next month`\
+https://nytimes.com/athletic/6989391/2026/01/22/premier-league-new-lgbtq-campaign/
+
+**Ex-Michigan coach Sherrone Moore appears at court hearing**\
+`Rather than a decision to move the case forward or not, the court agreed to adjourn until at least next month.`\
+https://nytimes.com/athletic/6991291/2026/01/22/sherrone-moore-michigan-court-hearing/
+
+**Open Letters: Our Opinion-Writing Contest**\
+`We invite students to write public-facing letters to people or groups about issues that matter to them. Contest dates: Feb. 25 to April 8, 2026.`\
+https://nytimes.com/2026/01/22/learning/open-letters-our-opinion-writing-contest.html
+
+**McLaughlin-Levrone, 400m record holder, announces pregnancy**\
+`The 28-year-old, who married former NFL player Andre Levrone Junior in 2022, made the announcement on Instagram.`\
+https://nytimes.com/athletic/6991895/2026/01/22/sydney-mclaughlin-levrone-400m-pregnancy/
+
 **As the Bucks struggle, why is Giannis Antetokounmpo getting fewer shots?**\
 `Antetokounmpo is currently on a limit of roughly 31 minutes.`\
 https://nytimes.com/athletic/6991826/2026/01/22/as-the-bucks-struggle-why-is-giannis-antetokounmpo-getting-fewer-shots/
