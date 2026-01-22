@@ -1,3 +1,7 @@
+**Why Nwaneri is heading to Marseille and what Arsenal - and Arteta - hope he gets from it**\
+`Nwaneri has made his contribution to Arsenal’s campaign. The plan now is to develop under a coach Arteta respects and knows well`\
+https://nytimes.com/athletic/6988693/2026/01/22/ethan-nwaneri-arsenal-marseille-loan/
+
 **Why do Brighton have so few 'peak age' players in their ranks?**\
 `Fabian Hurzeler's squad largely comprises either youngsters brimming with potential or elder statesmen, with not much else in between`\
 https://nytimes.com/athletic/6985229/2026/01/22/brighton-hurzeler-peak-age-recruitment-squad/
