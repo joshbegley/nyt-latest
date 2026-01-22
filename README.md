@@ -1,3 +1,23 @@
+**Nebraska breakout freshman Braden Frager exits with ankle injury**\
+`The 6-foot-7 forward, a candidate for Big Ten freshman of the year, landed awkwardly on his left leg in the first half.`\
+https://nytimes.com/athletic/6990690/2026/01/22/nebraska-braden-frager-ankle-injury/
+
+**Brenden Aaronson has gone from jeers to cheers at Leeds. This is how he's done it**\
+`As recently as November, Aaronson's role was a source of frustration at Leeds. He has spoken to The Athletic about how he turned it around`\
+https://nytimes.com/athletic/6985750/2026/01/22/brenden-aaronson-leeds-interview-usmnt-analysis/
+
+**Connections: Sports Edition Coach: Hints for Jan. 22, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6990583/2026/01/22/connections-sports-edition-hints-for-jan-22-2026/
+
+**China Wins as Trump Cedes Leadership of the Global Economy**\
+`The president used a keynote speech at the World Economic Forum in Switzerland to renounce the last vestiges of the liberal democratic order.`\
+https://nytimes.com/2026/01/22/business/davos-trump-xi-china.html
+
+**Quote of the Day: Latin America Mostly Praises Maduro Ouster**\
+`Quotation of the Day for Thursday, January 22, 2025.`\
+https://nytimes.com/2026/01/21/pageoneplus/quote-of-the-day-latin-america-mostly-praises-maduro-ouster.html
+
 **Mets land their target in Freddy Peralta, but Brewers do well in return**\
 `The Mets get a big upgrade in their rotation, but the Brewers make out well to acquire two top-100 prospects who fill team needs.`\
 https://nytimes.com/athletic/6990611/2026/01/21/freddy-peralta-mets-brewers-trade-analysis/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6990554/2026/01/21/freddy-peralta-mets-brewers-mlb-
 **Giants OF Jung Hoo Lee momentarily detained at LAX due to paperwork issue**\
 `Lee, 26, was traveling from Seoul and either misplaced or forgot part of his travel packet, Giants GM Zack Minasian said.`\
 https://nytimes.com/athletic/6990481/2026/01/21/giants-jung-hoo-lee-detained-lax/
-
-**Private Autopsy Shows Renee Good Was Shot at Least 3 Times, Lawyers Say**\
-`Lawyers for the family of Ms. Good, who was fatally shot by an immigration agent in Minneapolis, have said their firm was conducting an investigation into the shooting.`\
-https://nytimes.com/2026/01/21/us/renee-good-private-autopsy.html
-
-**Trump’s Rift With Europe Is Clear. Europe Must Decide What to Do About It.**\
-`After President Trump aired his disdain for Europe, its leaders will gather in Brussels Thursday to take stock of what comes next.`\
-https://nytimes.com/2026/01/21/world/europe/trump-rift-europe.html
-
-**Watch Sound**\
-`Make sure you look both ways while solving Joe DiPietro’s crossword.`\
-https://nytimes.com/2026/01/21/crosswords/daily-puzzle-2026-01-22.html
-
-**ICE Said Agents Can Enter Homes Without Judicial Warrant, Group Claims**\
-`A whistle-blower group said a memo apparently signed by the leader of Immigration and Customs Enforcement violated constitutional protections against unreasonable search and seizure.`\
-https://nytimes.com/2026/01/21/us/politics/ice-warrant-whistleblower.html
-
-**Mets trade for Brewers' ace Freddy Peralta, fill glaring rotation need**\
-`In trading Peralta, the Brewers are putting faith in a young rotation to sustain them. The Mets, meanwhile, get a top-of-the-rotation arm.`\
-https://nytimes.com/athletic/6894446/2026/01/21/mlb-freddy-peralta-trade-mets/
 
