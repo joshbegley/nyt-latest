@@ -1,3 +1,23 @@
+**Bovino Says Activists Are ‘Stalking’ His Federal Agents in Minneapolis**\
+`Protesters made even a bathroom break an ordeal, the Border Patrol official said at a Thursday news conference.`\
+https://nytimes.com/2026/01/22/us/minneapolis-ice-crackdown.html
+
+**After Trump’s Ultimatum, Greenland Talks Include Sovereign U.S. Bases, No Drilling for Russia**\
+`Negotiators have discussed proposals to check Russian and Chinese influence in the Arctic and transfer sovereignty over pockets of Greenlandic land to the United States, an idea opposed by Denmark.`\
+https://nytimes.com/2026/01/22/world/europe/trump-greenland-deal-framework.html
+
+**West Ham's Lucas Paqueta to miss Sunderland match - Nuno**\
+`The 28-year-old asked not to play in West Ham’s FA Cup third-round game against QPR and missed the win at Spurs with a back injury.`\
+https://nytimes.com/athletic/6991269/2026/01/22/lucas-paqueta-west-ham-latest/
+
+**In First Uvalde Trial, Former School Officer Is Found Not Guilty**\
+`A former school police officer was found not guilty of abandoning or endangering children more than three years after a gunman massacred 21 people at Uvalde’s Robb Elementary. Police on the scene did not stop the shooter until well over an hour after he walked into the school.`\
+https://nytimes.com/video/us/100000010660657/in-first-uvalde-trial-former-school-officer-is-found-not-guilty.html
+
+**Zelensky Laces Into Europe, Saying It Must Step Up or Be Left Behind**\
+`The Ukrainian leader’s speech in Davos, Switzerland, was one of his most scathing critiques of his closest allies.`\
+https://nytimes.com/2026/01/22/world/europe/davos-zelensky.html
+
 **Denmark Bristles at Idea of Giving Up Any Sovereignty in Greenland**\
 `American and NATO officials have discussed giving the United States sovereignty over U.S. military bases in Greenland. The Danes don’t seem to like that.`\
 https://nytimes.com/2026/01/22/world/europe/denmark-greenland-trump-us-reaction.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/22/style/dior-anderson-jonathan.html
 **‘Clika’ Review: Dreaming of the Stage**\
 `This film about a fieldworker trying to make it in music offers a Mexican American spin on underdog dreamer movies like “8 Mile.”`\
 https://nytimes.com/2026/01/22/movies/clika-review.html
-
-**The A.I. Start-Up Soap Opera Riveting Silicon Valley**\
-`Defections, secret conversations, deal talks that fizzled and a battle for control: The turmoil at Thinking Machines Lab is the artificial intelligence industry’s latest drama.`\
-https://nytimes.com/2026/01/22/technology/thinking-machines-ai-startup-openai.html
-
-**Betting on Prediction Markets Is Their Job. They Make Millions.**\
-`Welcome to the era of the Polymarket sharp.`\
-https://nytimes.com/2026/01/22/business/prediction-markets-polymarket-kalshi.html
-
-**The Winter Show in 9 Objects**\
-`The sheer range of art and antiquities at the Park Avenue Armory, featuring more than 70 international dealers, is impressive.`\
-https://nytimes.com/2026/01/22/arts/design/winter-armory-fair.html
-
-**U.S. Lays Out a Glittering Plan for Gaza, Including Skyscrapers**\
-`Jared Kushner, President Trump’s son-in-law, offered the proposal at a Davos ceremony to inaugurate the president’s “Board of Peace.”`\
-https://nytimes.com/2026/01/22/world/middleeast/us-gaza-peace-trump-kushner-davos.html
-
-**Baltimore to host South Africa vs New Zealand rugby union test match in September**\
-`The match will see the two highest-ranked rugby union nations arrive in the United States for the first time.`\
-https://nytimes.com/athletic/6991745/2026/01/22/south-africa-new-zealand-rugby-union-unites-states-september-2026/
 
