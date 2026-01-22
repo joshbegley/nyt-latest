@@ -1,3 +1,27 @@
+**How to watch Red Wings vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6992304/2026/01/22/red-wings-vs-wild-stream-how-to-watch-jan-22/
+
+**How to watch Spurs vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6992302/2026/01/22/spurs-vs-jazz-stream-how-to-watch-jan-22/
+
+**How to watch Panthers vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6992300/2026/01/22/panthers-vs-jets-stream-how-to-watch-jan-22/
+
+**How to watch Heat vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6992298/2026/01/22/heat-vs-trail-blazers-stream-how-to-watch-jan-22/
+
+**How to watch Bulls vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6992288/2026/01/22/bulls-vs-timberwolves-stream-how-to-watch-jan-22/
+
+**How to watch Senators vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6992286/2026/01/22/senators-vs-predators-stream-how-to-watch-jan-22/
+
 **How to watch Penguins vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6992284/2026/01/22/penguins-vs-oilers-stream-how-to-watch-jan-22/
@@ -13,24 +37,4 @@ https://nytimes.com/athletic/6992277/2026/01/22/ole-miss-vs-missouri-stream-how-
 **How to watch USC vs. Michigan State women's basketball: Time, TV, streaming**\
 `Find out how to watch the USC Trojans play the Michigan State Spartans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6992275/2026/01/22/usc-vs-michigan-state-stream-how-to-watch-jan-22/
-
-**How to watch South Carolina vs. Oklahoma women's basketball: Time, TV, streaming**\
-`Find out how to watch the South Carolina Gamecocks play the Oklahoma Sooners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6992272/2026/01/22/south-carolina-vs-oklahoma-stream-how-to-watch-jan-22/
-
-**How to watch Indiana vs. Ohio State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Indiana Hoosiers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6992270/2026/01/22/indiana-vs-ohio-state-stream-how-to-watch-jan-22/
-
-**How to watch LSU vs. Texas A&M women's basketball: Time, TV, streaming**\
-`Find out how to watch the LSU Tigers play the Texas A&M Aggies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6992264/2026/01/22/lsu-vs-texas-a-m-stream-how-to-watch-jan-22/
-
-**How to watch UConn vs. Georgetown women's basketball: Time, TV, streaming**\
-`Find out how to watch the UConn Huskies play the Georgetown Hoyas, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6992262/2026/01/22/uconn-vs-georgetown-stream-how-to-watch-jan-22/
-
-**Nationals trade MacKenzie Gore to Rangers: Source**\
-`The Nationals are trading left-handed starting pitcher MacKenzie Gore to the Rangers.`\
-https://nytimes.com/athletic/6992242/2026/01/22/mackenzie-gore-rangers-nationals-trade/
 
