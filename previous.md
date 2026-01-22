@@ -1,4 +1,12 @@
-**Magistrate Judge Declined to Approve Criminal Complaint Against Don Lemon**\
+**Brandin Cooks insists ‘it was a catch’ after Bills’ heartbreaking loss**\
+`Cooks says he caught the ball, but a controversial call in overtime ended Buffalo's season.`\
+https://nytimes.com/athletic/6991929/2026/01/22/brandin-cooks-controversial-catch-interception-bills-broncos/
+
+**Lynx wing Kayla McBride suffers torn quad while training in Turkey**\
+`McBride, a 13-year veteran, is an unrestricted free agent. The injury puts her status in question for the start of the WNBA season.`\
+https://nytimes.com/athletic/6991970/2026/01/22/kayla-mcbride-lynx-torn-quad-turkey/
+
+**Judge Declines to Approve Criminal Complaint Against Don Lemon Over Church Protest**\
 `The Justice Department would seek to find other avenues to pursue a case against Mr. Lemon, a senior law enforcement official said.`\
 https://nytimes.com/2026/01/22/us/politics/don-lemon-minnesota-church-charges-rejected-trump-doj.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/22/science/space-junk-seismographs.html
 **7 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2026/01/22/books/review/new-recommended-books.html
-
-**What to Know About the Elizabeth Smart Kidnapping Case**\
-`A new Netflix documentary, “Kidnapped: Elizabeth Smart,” revisits her abduction from her home in Salt Lake City in 2002, when she was 14. She was held captive for nine months.`\
-https://nytimes.com/2026/01/22/us/elizabeth-smart-kidnapping.html
-
-**Successful World Cup ticket applicants may use resale sites, Infantino says**\
-`“In the U.S., it is perfectly legal to resell tickets on resale platforms — there is a law for that, so we have to allow (it),” he said.`\
-https://nytimes.com/athletic/6991940/2026/01/22/fifa-world-cup-tickets-resale/
 
