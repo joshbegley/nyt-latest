@@ -1,3 +1,11 @@
+**According to Vance, ICE Officers No Longer Have ‘Absolute Immunity’**\
+`Vice President JD Vance appeared to backtrack a previous statement that ICE agents were “protected by absolute immunity” during a press conference on Thursday, after meeting with immigration agents in Minneapolis.`\
+https://nytimes.com/video/us/politics/100000010662338/according-to-vance-ice-officers-no-longer-have-absolute-immunity.html
+
+**Rodman, Spirit agree on new deal to keep USWNT star in NWSL through 2028**\
+`Rodman's signing ends a prolonged NWSL saga and keeps the U.S. women's national team star in the nation's capital`\
+https://nytimes.com/athletic/6986284/2026/01/22/trinity-rodman-contract-washington-spirit-nwsl/
+
 **Mark Carney Says Firmly That ‘Canada Doesn’t Live Because of the United States’**\
 `The Canadian prime minister spoke after returning from the World Economic Forum where he urged middle powers to team up in resisting President Trump.`\
 https://nytimes.com/2026/01/22/world/canada/carney-trump-canada-speech.html
