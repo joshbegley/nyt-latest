@@ -1,3 +1,7 @@
+**Marginal gains, deception and entertainment: This is why players take Panenkas**\
+`Chipping a penalty down the middle is seen as a huge risk — great when it works, disastrous when it doesn't. But it's not quite that simple`\
+https://nytimes.com/athletic/6985903/2026/01/22/panenka-penalties-why-players-take-them/
+
 **Nebraska breakout freshman Braden Frager exits with ankle injury**\
 `The 6-foot-7 forward, a candidate for Big Ten freshman of the year, landed awkwardly on his left leg in the first half.`\
 https://nytimes.com/athletic/6990690/2026/01/22/nebraska-braden-frager-ankle-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6990496/2026/01/21/ja-morant-memphis-grizzlies-trad
 **Mets land ace in Freddy Peralta, but Brewers cash in, too: MLB Trade Grades**\
 `Both teams followed their well-worn formulas: The Brewers traded an ace on his way to free agency, while the Mets went big-game hunting. `\
 https://nytimes.com/athletic/6990554/2026/01/21/freddy-peralta-mets-brewers-mlb-trade-grades/
-
-**Giants OF Jung Hoo Lee momentarily detained at LAX due to paperwork issue**\
-`Lee, 26, was traveling from Seoul and either misplaced or forgot part of his travel packet, Giants GM Zack Minasian said.`\
-https://nytimes.com/athletic/6990481/2026/01/21/giants-jung-hoo-lee-detained-lax/
 
