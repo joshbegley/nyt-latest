@@ -1,3 +1,15 @@
+**Southerners Scramble to Prepare as Ice, Snow and Bitter Cold Threaten**\
+`The path of an approaching winter storm is not clear yet, but much of the country, including places unused to frigid weather, is bracing for the worst.`\
+https://nytimes.com/2026/01/22/us/snow-ice-winter-storm-south-preparations.html
+
+**Protester Who Interrupted Service at Minnesota Church Is Arrested, Officials Say**\
+`A standoff between demonstrators and congregants at Cities Church in St. Paul, Minn. on Sunday added to tensions around federal immigration enforcement in the state.`\
+https://nytimes.com/2026/01/22/us/nekima-levy-armstrong-arrest-minnesota-church.html
+
+**Buccaneers finalizing deal to hire ex-Falcons' Zac Robinson as OC**\
+`Robinson was not retained in Atlanta following the firing of head coach Raheem Morris.`\
+https://nytimes.com/athletic/6986317/2026/01/22/zac-robinson-buccaneers-offensive-coordinator/
+
 **IIHF signals Russia could be allowed to return to U-18 hockey events in 2028**\
 `Having Russian and Belarusian players return for under-18 tournaments would be the first step to a full-scale reintegration.`\
 https://nytimes.com/athletic/6991252/2026/01/22/russia-sanctions-international-hockey/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6991132/2026/01/22/the-athletic-10-year-anniversary
 **Watch Live: Former Special Counsel Jack Smith Testifies to House Judiciary Committee**\
 `Jack Smith, the special prosecutor who twice indicted Trump, testifies at a public hearing of the House Judiciary Committee on Thursday in a long-awaited public confrontation.`\
 https://nytimes.com/video/us/politics/100000010660880/jack-smith-house-testimony-trump.html
-
-**Putin Says Russia Could Donate to ‘Board of Peace’ if U.S. Unfroze Assets**\
-`The Kremlin leader said he will discuss the possibility today with Trump administration envoys in Moscow.`\
-https://nytimes.com/2026/01/22/world/europe/putin-board-of-peace-frozen-assets.html
-
-**3 Films Used to Hold the Record for Oscar Nominations (Thanks to Some Quirks)**\
-`As categories evolved over time, the way to make academy history did, too. But for decades, no film topped 14 nods, until “Sinners” smashed the record.`\
-https://nytimes.com/2026/01/22/movies/sinners-oscars-record-nominations.html
-
-**Leafs after 50: Bad asset management leaves Toronto without solutions to solvable problems**\
-`Blues' Robert Thomas would solve a lot of problems in Toronto, and it cannot be understated how perfect he would fit on the Maple Leafs. `\
-https://nytimes.com/athletic/6989449/2026/01/22/maple-leafs-robert-thomas-blues-trade/
 

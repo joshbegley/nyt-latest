@@ -1,3 +1,15 @@
+**Southerners Scramble to Prepare as Ice, Snow and Bitter Cold Threaten**\
+`The path of an approaching winter storm is not clear yet, but much of the country, including places unused to frigid weather, is bracing for the worst.`\
+https://nytimes.com/2026/01/22/us/snow-ice-winter-storm-south-preparations.html
+
+**Protester Who Interrupted Service at Minnesota Church Is Arrested, Officials Say**\
+`A standoff between demonstrators and congregants at Cities Church in St. Paul, Minn. on Sunday added to tensions around federal immigration enforcement in the state.`\
+https://nytimes.com/2026/01/22/us/nekima-levy-armstrong-arrest-minnesota-church.html
+
+**Buccaneers finalizing deal to hire ex-Falcons' Zac Robinson as OC**\
+`Robinson was not retained in Atlanta following the firing of head coach Raheem Morris.`\
+https://nytimes.com/athletic/6986317/2026/01/22/zac-robinson-buccaneers-offensive-coordinator/
+
 **IIHF signals Russia could be allowed to return to U-18 hockey events in 2028**\
 `Having Russian and Belarusian players return for under-18 tournaments would be the first step to a full-scale reintegration.`\
 https://nytimes.com/athletic/6991252/2026/01/22/russia-sanctions-international-hockey/
