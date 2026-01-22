@@ -1,3 +1,7 @@
+**Trump Sues JPMorgan for Closing His Bank Accounts for Political Reasons**\
+`The lawsuit, citing “political discrimination,” said the banking giant told President Trump shortly after the Jan. 6 attack on the Capitol that it would close his accounts.`\
+https://nytimes.com/2026/01/22/business/jpmorgan-trump-lawsuit.html
+
 **Brandin Cooks insists ‘it was a catch’ after Bills’ heartbreaking loss**\
 `Cooks says he caught the ball, but a controversial call in overtime ended Buffalo's season.`\
 https://nytimes.com/athletic/6991929/2026/01/22/brandin-cooks-controversial-catch-interception-bills-broncos/
