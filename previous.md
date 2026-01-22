@@ -1,3 +1,23 @@
+**Western Sahara is 'a forgotten country'. It is a thorny issue for 2030 World Cup co-hosts Morocco**\
+`One footballer tells The Athletic about his dream that Western Sahara could one day feature as a nation on the game's global stage`\
+https://nytimes.com/athletic/6977309/2026/01/22/western-sahara-morocco-afcon-world-cup/
+
+**New manager, new danger: Why footballers are more susceptible to injuries after a coaching change**\
+`Changing position or role can introduce different physical and biomechanical stresses to a player's body – with predictable consequences`\
+https://nytimes.com/athletic/6983180/2026/01/22/new-manager-new-danger-why-footballers-are-more-susceptible-to-injuries-after-a-coaching-change/
+
+**Imagining Manchester United's The Crown: Brian Cox as Fergie, but who does Brad Pitt play?**\
+`As Lionsgate contemplates its new series, The Athletic offers some prospective castings to take on Ratcliffe, Beckham and The Holy Trinity`\
+https://nytimes.com/athletic/6989008/2026/01/22/manchester-united-crown-ferguson-ronaldo-pitt-cox-lionsgate/
+
+**The Alternative Premier League Table: No 23 - Ball-in-play time**\
+`Which teams' games see the ball on the field the most and who are the worst offenders when it comes to kicking it out?`\
+https://nytimes.com/athletic/6988782/2026/01/22/the-alternative-premier-league-table-teams-ball-in-play/
+
+**Is Oliver Glasner's tactical approach scalable to a 'Big Six' club?**\
+`He has had cup success with Eintracht Frankfurt and Crystal Palace, but are his transitional methods applicable to possession-heavy sides?`\
+https://nytimes.com/athletic/6985360/2026/01/22/oliver-glasner-tactics-big-six/
+
 **Marginal gains, deception and entertainment: This is why players take Panenkas**\
 `Chipping a penalty down the middle is seen as a huge risk — great when it works, disastrous when it doesn't. But it's not quite that simple`\
 https://nytimes.com/athletic/6985903/2026/01/22/panenka-penalties-why-players-take-them/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6990583/2026/01/22/connections-sports-edition-hints
 **China Wins as Trump Cedes Leadership of the Global Economy**\
 `The president used a keynote speech at the World Economic Forum in Switzerland to renounce the last vestiges of the liberal democratic order.`\
 https://nytimes.com/2026/01/22/business/davos-trump-xi-china.html
-
-**Quote of the Day: Latin America Mostly Praises Maduro Ouster**\
-`Quotation of the Day for Thursday, January 22, 2025.`\
-https://nytimes.com/2026/01/21/pageoneplus/quote-of-the-day-latin-america-mostly-praises-maduro-ouster.html
-
-**Mets land their target in Freddy Peralta, but Brewers do well in return**\
-`The Mets get a big upgrade in their rotation, but the Brewers make out well to acquire two top-100 prospects who fill team needs.`\
-https://nytimes.com/athletic/6990611/2026/01/21/freddy-peralta-mets-brewers-trade-analysis/
-
-**49ers to look at 'everything' regarding injuries, including a substation**\
-`Several of the team's top players went down this season, and some are blaming electromagnetic waves next to the practice field.`\
-https://nytimes.com/athletic/6990321/2026/01/21/san-francisco-49ers-injuries-electrical-substation/
-
-**Ja Morant continues productive return to Grizzlies lineup after six-game absence**\
-`Morant finished with 23 points on 7-of-15 overall shooting, 12 assists, two rebounds, one steal and three blocks in the 124-122 loss.`\
-https://nytimes.com/athletic/6990496/2026/01/21/ja-morant-memphis-grizzlies-trade-rumors/
-
-**Mets land ace in Freddy Peralta, but Brewers cash in, too: MLB Trade Grades**\
-`Both teams followed their well-worn formulas: The Brewers traded an ace on his way to free agency, while the Mets went big-game hunting. `\
-https://nytimes.com/athletic/6990554/2026/01/21/freddy-peralta-mets-brewers-mlb-trade-grades/
 

@@ -1,3 +1,11 @@
+**Why Nwaneri is heading to Marseille and what Arsenal - and Arteta - hope he gets from it**\
+`Nwaneri has made his contribution to Arsenal’s campaign. The plan now is to develop under a coach Arteta respects and knows well`\
+https://nytimes.com/athletic/6988693/2026/01/22/ethan-nwaneri-arsenal-marseille-loan/
+
+**Forget about Dro: Why Barcelona's next La Masia star wants to leave**\
+`Pedro Fernandez, better known as Dro, looks set to leave Barca — despite manager Hansi Flick making the 18-year-old his 'project'`\
+https://nytimes.com/athletic/6988141/2026/01/22/barcelona-dro-transfer-la-masia/
+
 **Western Sahara is 'a forgotten country'. It is a thorny issue for 2030 World Cup co-hosts Morocco**\
 `One footballer tells The Athletic about his dream that Western Sahara could one day feature as a nation on the game's global stage`\
 https://nytimes.com/athletic/6977309/2026/01/22/western-sahara-morocco-afcon-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6990690/2026/01/22/nebraska-braden-frager-ankle-inj
 **Brenden Aaronson has gone from jeers to cheers at Leeds. This is how he's done it**\
 `As recently as November, Aaronson's role was a source of frustration at Leeds. He has spoken to The Athletic about how he turned it around`\
 https://nytimes.com/athletic/6985750/2026/01/22/brenden-aaronson-leeds-interview-usmnt-analysis/
-
-**Connections: Sports Edition Coach: Hints for Jan. 22, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6990583/2026/01/22/connections-sports-edition-hints-for-jan-22-2026/
-
-**China Wins as Trump Cedes Leadership of the Global Economy**\
-`The president used a keynote speech at the World Economic Forum in Switzerland to renounce the last vestiges of the liberal democratic order.`\
-https://nytimes.com/2026/01/22/business/davos-trump-xi-china.html
 
