@@ -1,3 +1,7 @@
+**Falcons hire former Browns OC Tommy Rees as offensive coordinator**\
+`Rees, 33, worked under Kevin Stefanski with the Browns and previously held roles as the offensive coordinator at Notre Dame and Alabama.`\
+https://nytimes.com/athletic/6991914/2026/01/22/falcons-tommy-rees-offensive-coordinator-hire/
+
 **Harry Styles Books 30 Dates at the Garden for New Concert Residency**\
 `The pop star is returning with his fourth solo album on March 6. His Together, Together tour, which will hit seven cities, is scheduled to begin in May.`\
 https://nytimes.com/2026/01/22/arts/music/harry-styles-together-together-tour-residency.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010659009/creamy-chickpea-spinach-masala-
 **McLaughlin-Levrone, 400m record holder, announces pregnancy**\
 `The 28-year-old, who married former NFL player Andre Levrone Junior in 2022, made the announcement on Instagram.`\
 https://nytimes.com/athletic/6991895/2026/01/22/sydney-mclaughlin-levrone-400m-pregnancy/
-
-**Beef Chops (Meat-Stuffed Potato Cutlets)**\
-`Also known as potato chops, these treats trace their roots to the kitchens of Christian communities across India, Pakistan and Iraq, where they became a celebratory staple at weddings, holidays and family feasts.`\
-https://nytimes.com/video/dining/100000010659006/beef-chops-meat-stuffed-potato-cutlets.html
 

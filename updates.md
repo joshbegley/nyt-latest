@@ -1,3 +1,7 @@
+**Harry Styles Books 30 Dates at the Garden for New Concert Residency**\
+`The pop star is returning with his fourth solo album on March 6. His Together, Together tour, which will hit seven cities, is scheduled to begin in May.`\
+https://nytimes.com/2026/01/22/arts/music/harry-styles-together-together-tour-residency.html
+
 **Nurses in New York City Say They Deserve $200,000 a Year. Here’s Why.**\
 `As a strike by health workers stretches into its second week, pay is a major issue in negotiations, even if it’s not discussed much on the picket line.`\
 https://nytimes.com/2026/01/22/nyregion/nyc-nurses-strike-pay-raises.html
