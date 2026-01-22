@@ -1,3 +1,7 @@
+**How to watch Stars vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6991730/2026/01/22/stars-vs-blue-jackets-stream-how-to-watch-jan-22/
+
 **The Winter Show in 9 Objects**\
 `The sheer range of art and antiquities at the Park Avenue Armory, featuring more than 70 international dealers, is impressive.`\
 https://nytimes.com/2026/01/22/arts/design/winter-armory-fair.html
