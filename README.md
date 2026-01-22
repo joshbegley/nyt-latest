@@ -1,3 +1,15 @@
+**Why McLaren will wait as long as it can to test its 2026 F1 car**\
+`McLaren won't be one of the teams hitting the track first when F1 preseason testing starts in 2026. But it has planned for a late test debut`\
+https://nytimes.com/athletic/6990596/2026/01/22/mclaren-2026-f1-car-barcelona-test/
+
+**Word of the Day: strident**\
+`This word has appeared in 109 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/22/learning/word-of-the-day-strident.html
+
+**Three more Champions League games? It is a rare kind of fixture congestion Newcastle will welcome**\
+`Eddie Howe's side have not had a free midweek since August but this is what they want: to still be in competitions when it really matters`\
+https://nytimes.com/athletic/6990142/2026/01/22/newcastle-psv-champions-league-games/
+
 **Chelsea's must-win game against Napoli and a tantalising reunion with Conte and Lukaku**\
 `Liam Rosenior's side will encounter two hugely familiar figures on their crucial visit to Naples next week`\
 https://nytimes.com/athletic/6990257/2026/01/22/chelsea-napoli-champions-league-antonio-conte-romelu-lukaku/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6984907/2026/01/22/jhon-duran-newcastle-villa-red-c
 **Jota Silva interview: Summer of uncertainty, his failed transfer and watching Forest from afar**\
 `The winger is on loan at Besiktas - but he is still watching Forest, and hopes the Arsenal performance can help turn the tide this season`\
 https://nytimes.com/athletic/6988925/2026/01/22/jota-silva-interview-summer-of-uncertainty-his-failed-transfer-and-watching-forest-from-afar/
-
-**Why do Brighton have so few 'peak age' players in their ranks?**\
-`Fabian Hurzeler's squad largely comprises either youngsters brimming with potential or elder statesmen, with not much else in between`\
-https://nytimes.com/athletic/6985229/2026/01/22/brighton-hurzeler-peak-age-recruitment-squad/
-
-**Why Nwaneri is heading to Marseille and what Arsenal - and Arteta - hope he gets from it**\
-`Nwaneri has made his contribution to Arsenal’s campaign. The plan now is to develop under a coach Arteta respects and knows well`\
-https://nytimes.com/athletic/6988693/2026/01/22/ethan-nwaneri-arsenal-marseille-loan/
-
-**Forget about Dro: Why Barcelona's next La Masia star wants to leave**\
-`Pedro Fernandez, better known as Dro, looks set to leave Barca — despite manager Hansi Flick making the 18-year-old his 'project'`\
-https://nytimes.com/athletic/6988141/2026/01/22/barcelona-dro-transfer-la-masia/
 
