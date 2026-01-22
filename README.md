@@ -1,3 +1,11 @@
+**‘It's not in me to give up’: Bub Carrington is the Washington Wizards’ iron man**\
+`The 20-year-old guard is about to play in his 125th consecutive regular-season NBA game. `\
+https://nytimes.com/athletic/6990699/2026/01/22/bub-carrington-washington-wizards-ironman-streak/
+
+**The Leverage That Europe Has Over the U.S. Economy**\
+`After the latest bout of trade turmoil with the United States, European leaders are looking for ways to project strength to the Trump administration, which considers them weak.`\
+https://nytimes.com/2026/01/22/business/europe-trade-trump-bonds.html
+
 **Barcelona's Pedri out for a month with hamstring injury**\
 `The 23-year-old sustained the injury during Wednesday's Champions League victory at Slavia Prague and he may miss up to seven matches.`\
 https://nytimes.com/athletic/6989913/2026/01/22/pedri-barcelona-injury-news-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6989431/2026/01/22/blackhawks-nhl-trade-deadline-pl
 **Caleb Williams does Chicago tour, no word on Bears stadium and White Sox deal Luis Robert**\
 `Williams attended a Blackhawks game with Cubs outfielder Pete Crow-Armstrong and returned with PCA to watch the Bulls beat the Clippers.`\
 https://nytimes.com/athletic/6989695/2026/01/22/caleb-williams-bears-stadium-luis-robert-white-sox/
-
-**How the new-look Patriots are writing Chapter 1 of their own story**\
-`It’s interesting to hear about the Pats being "back." But these players don't have much interest in the past, because it's not their past.`\
-https://nytimes.com/athletic/6990432/2026/01/22/patriots-broncos-vibe-afc-championship-game/
-
-**Brandon Aiyuk is gone. What’s next for the 49ers at wide receiver? How about some speed?**\
-`Meanwhile, Kyle Shanahan said Gus Bradley is the top internal candidate to replace Robert Saleh at defensive coordinator.`\
-https://nytimes.com/athletic/6990139/2026/01/22/brandon-aiyuk-49ers-wide-receiver-needs/
 
