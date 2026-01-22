@@ -1,3 +1,7 @@
+**Travis Kelce says Eric Bieniemy's return to Chiefs coaching staff is 'awesome'**\
+`Kelce's comments stood out, given the uncertainty surrounding whether he will return next season.`\
+https://nytimes.com/athletic/6991843/2026/01/22/eric-bieniemy-travis-kelce-kansas-city-chiefs/
+
 **'Heated Rivalry' co-stars Hudson Williams, Connor Storrie to carry torch before Winter Games**\
 `Actors Hudson Williams and Connor Storrie will participate in the ongoing event that precedes the opening ceremony.`\
 https://nytimes.com/athletic/6991755/2026/01/22/heated-rivalry-olympics-torch-williams-storrie-tv-show/
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/6991269/2026/01/22/lucas-paqueta-west-ham-latest/
 **In First Uvalde Trial, Former School Officer Is Found Not Guilty**\
 `A former school police officer was found not guilty of abandoning or endangering children more than three years after a gunman massacred 21 people at Uvalde’s Robb Elementary. Police on the scene did not stop the shooter until well over an hour after he walked into the school.`\
 https://nytimes.com/video/us/100000010660657/in-first-uvalde-trial-former-school-officer-is-found-not-guilty.html
-
-**Zelensky Laces Into Europe, Saying It Must Step Up or Be Left Behind**\
-`The Ukrainian leader’s speech in Davos, Switzerland, was one of his most scathing critiques of his closest allies.`\
-https://nytimes.com/2026/01/22/world/europe/davos-zelensky.html
-
-**Denmark Bristles at Idea of Giving Up Any Sovereignty in Greenland**\
-`American and NATO officials have discussed giving the United States sovereignty over U.S. military bases in Greenland. The Danes don’t seem to like that.`\
-https://nytimes.com/2026/01/22/world/europe/denmark-greenland-trump-us-reaction.html
 

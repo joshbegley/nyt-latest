@@ -1,3 +1,7 @@
+**Detention of 5-Year-Old by Federal Agents Incenses Minneapolis**\
+`A photo showed the boy with an oversized hat and Spider-Man backpack being held next to a vehicle as his father was detained. A Homeland Security spokeswoman said the man had fled and left the child.`\
+https://nytimes.com/2026/01/22/us/liam-detention-ice-minneapolis.html
+
 **Travis Kelce says Eric Bieniemy's return to Chiefs coaching staff is 'awesome'**\
 `Kelce's comments stood out, given the uncertainty surrounding whether he will return next season.`\
 https://nytimes.com/athletic/6991843/2026/01/22/eric-bieniemy-travis-kelce-kansas-city-chiefs/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/22/world/europe/trump-greenland-deal-framework.html
 **West Ham's Lucas Paqueta to miss Sunderland match - Nuno**\
 `The 28-year-old asked not to play in West Ham’s FA Cup third-round game against QPR and missed the win at Spurs with a back injury.`\
 https://nytimes.com/athletic/6991269/2026/01/22/lucas-paqueta-west-ham-latest/
-
-**In First Uvalde Trial, Former School Officer Is Found Not Guilty**\
-`A former school police officer was found not guilty of abandoning or endangering children more than three years after a gunman massacred 21 people at Uvalde’s Robb Elementary. Police on the scene did not stop the shooter until well over an hour after he walked into the school.`\
-https://nytimes.com/video/us/100000010660657/in-first-uvalde-trial-former-school-officer-is-found-not-guilty.html
 

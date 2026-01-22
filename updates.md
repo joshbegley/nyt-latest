@@ -1,3 +1,7 @@
+**Travis Kelce says Eric Bieniemy's return to Chiefs coaching staff is 'awesome'**\
+`Kelce's comments stood out, given the uncertainty surrounding whether he will return next season.`\
+https://nytimes.com/athletic/6991843/2026/01/22/eric-bieniemy-travis-kelce-kansas-city-chiefs/
+
 **'Heated Rivalry' co-stars Hudson Williams, Connor Storrie to carry torch before Winter Games**\
 `Actors Hudson Williams and Connor Storrie will participate in the ongoing event that precedes the opening ceremony.`\
 https://nytimes.com/athletic/6991755/2026/01/22/heated-rivalry-olympics-torch-williams-storrie-tv-show/
