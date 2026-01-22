@@ -1,40 +1,40 @@
-**Stan Wawrinka's Australian Open farewell tour rolls on with remarkable five-set win**\
-`The 40-year old beat Arthur Géa of France in four hours and 33 minutes to reach the third round in Melbourne.`\
-https://nytimes.com/athletic/6990939/2026/01/22/stan-wawrinka-australian-open-gea-tennis/
+**A Trattoria That’s ‘a Passing of the Torch’**\
+`Plus: a new hotel at Utah’s Sundance Resort, an exhibition of Sarah Sze’s artwork in Los Angeles and more recommendations from T Magazine.`\
+https://nytimes.com/2026/01/22/t-magazine/tiella-trattoria-london.html
 
-**Zelensky to Meet Trump at Davos Forum to Discuss Ukraine Peace Deal**\
-`President Trump and Ukraine’s leader, Volodymyr Zelensky, are expected to talk about sticking points in negotiations to end the war with Russia.`\
-https://nytimes.com/2026/01/22/us/politics/zelensky-trump-davos-ukraine-peace-deal.html
+**This Is Not an Average Winter Storm, Weather Experts Warn**\
+`Half the U.S. population will likely see some effect from the sprawling storm that will move across the country this weekend, meteorologists said.`\
+https://nytimes.com/2026/01/22/weather/winter-storm-forecast-snow-ice.html
 
-**Mercedes unveils first look at new car ahead of 2026 F1 season**\
-`Mercedes is going with a two-part introduction this year, revealing a first look at the 2026 challenger — the W17 — on Thursday.`\
-https://nytimes.com/athletic/6989156/2026/01/22/f1-mercedes-new-car-2026/
+**Why the Patriots should be worried about their offensive line against the Broncos**\
+`In their two playoff wins, the Patriots have allowed 10 sacks and QB Drake Maye has six fumbles. That could be a serious problem in Denver.`\
+https://nytimes.com/athletic/6989764/2026/01/22/patriots-offensive-line-drake-maye-broncos-afc-championship/
 
-**Malfunction Forces Japan to Take Restarted Nuclear Plant Offline**\
-`The setback occurred hours after one of the world’s largest nuclear complexes restarted, ending more than a decade of dormancy following the 2011 Fukushima Daiichi meltdown.`\
-https://nytimes.com/2026/01/22/business/japan-nuclear-offline.html
+**How Do You Preserve the Free World When America Goes Rogue?**\
+`Asking for a friend.`\
+https://nytimes.com/2026/01/22/opinion/canada-carney-trump-greenland-nato.html
 
-**Igor Jesus a doubt for Forest European tie - who could start up front?**\
-`Igor Jesus has not travelled with the squad but could fly out to Braga on Thursday. If he is deemed unfit, Forest have a problem.`\
-https://nytimes.com/athletic/6990918/2026/01/22/igor-jesus-injury-forest-braga/
+**Donald Trump, Live From Davos**\
+`It’s striking how clearheadedly and defiantly Europeans are reacting to the president’s provocations.`\
+https://nytimes.com/2026/01/22/opinion/trump-davos-greenland-minnesota.html
 
-**Live Updates: Trump to Host ‘Board of Peace’ Signing Ceremony in Davos**\
-``\
-https://nytimes.com/live/2026/01/22/us/trump-davos-news
+**The Voters Who Have Taken a U-Turn on Trump**\
+`One year later, the second Trump coalition has come apart, a Times/Siena poll finds.`\
+https://nytimes.com/2026/01/22/upshot/trump-poll-analysis-times-siena.html
 
-**Trump Reaches Framework Greenland Deal**\
-`President Trump said he reached a framework for a deal on the future of Greenland. Some Greenlanders were relieved, but stayed cautious after Trump backed down from his threat to use force.`\
-https://nytimes.com/video/world/europe/100000010660158/trump-greenland-threats-diplomacy-force.html
+**Jack Smith to Testify Before Congress on Trump Investigations**\
+`The appearance provides Mr. Smith with what is likely to be his best opportunity to challenge Mr. Trump’s assertion that he was persecuted for his politics, not for his misdeeds.`\
+https://nytimes.com/2026/01/22/us/politics/jack-smith-trump-testimony-congress.html
 
-**Three Dead After Shooting in Rural Australian Town**\
-`The gunman was holed up in the town, local news media reported. The shooting happened on the day Australians were honoring the victims of the Bondi Beach massacre.`\
-https://nytimes.com/2026/01/22/world/australia/australia-lake-cargelligo-shooting.html
+**Ask The Morning: Trump and Greenland**\
+`What do you want to know about the U.S. effort to take control of the territory?`\
+https://nytimes.com/2026/01/22/briefing/ask-the-morning-trump-and-greenland.html
 
-**Kimmel Says Comedy Is Political Lately Because Politics Are Comedic**\
-`“We didn’t come to them, they came to us,” the late night host said about news infiltrating comedy while discussing President Trump’s latest stab for Greenland.`\
-https://nytimes.com/2026/01/22/arts/television/late-night-trump-greenland.html
+**They Tested Their $800,000 Budget on the Edges of Los Angeles County**\
+`After meeting in Phoenix and discovering they were both from Southern California, a couple plotted their return. Here’s what they found at the border of Los Angeles and San Bernardino counties.`\
+https://nytimes.com/interactive/2026/01/22/realestate/california-homes-claremont-rancho-cucamonga-upland.html
 
-**Filipino Journalist Gets Prison in Case Seen as Attack on Free Press**\
-`Frenchie Mae Cumpio and her former roommate were convicted of financing terrorism and sentenced to up to 18 years in prison.`\
-https://nytimes.com/2026/01/22/world/asia/philippines-cumpio-journalist-prison.html
+**Cross-Tabs: January 2026 Times/Siena National Poll of Registered Voters**\
+`Results of a nationwide New York Times/Siena poll of 1,625 registered voters conducted from Jan. 12 to 17, 2026.`\
+https://nytimes.com/interactive/2026/01/22/polls/times-siena-national-poll-crosstabs.html
 
