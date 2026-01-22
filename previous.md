@@ -1,40 +1,40 @@
-**No Corrections: Jan. 22, 2026**\
-`No corrections appeared in print on Thursday, Jan. 22, 2026.`\
-https://nytimes.com/2026/01/22/pageoneplus/no-corrections-jan-22-2026.html
+**IIHF signals Russia could be allowed to return to U-18 hockey events in 2028**\
+`Having Russian and Belarusian players return for under-18 tournaments would be the first step to a full-scale reintegration.`\
+https://nytimes.com/athletic/6991252/2026/01/22/russia-sanctions-international-hockey/
 
-**SEC football fan survey: How worried should the conference be?**\
-`It’s been one of the main topics around college football for more than a year: the end of the SEC's dominance. Now we want to hear from you.`\
-https://nytimes.com/athletic/6991244/2026/01/22/sec-football-2026-fan-survey/
+**Why the Women's League Cup will exclude UWCL clubs from next season**\
+`English teams who qualify for the Women's Champions League will not participate in the Women's League Cup from next season`\
+https://nytimes.com/athletic/6991305/2026/01/22/womens-league-cup-wsl-uwcl/
 
-**Australian Open Day 5 recap: Osaka and Cîrstea's handshake drama as tournament comes to life**\
-`Amid Czech players starring, tension at the net and upsets coming into play, the tournament finally found its drama.`\
-https://nytimes.com/athletic/6989936/2026/01/22/tennis-australian-open-recap-results-osaka-cirstea/
+**Hecklers Roast My $800 Stroller Wagon. After 650 Miles, I Still Love It.**\
+`After pushing through snow, sand, and mud, my family of four has come to view the luxury stroller wagon as a necessity..`\
+https://nytimes.com/wirecutter/blog/veer-cruiser-xl-stroller-wagon-review/
 
-**The Exacting, Ephemeral Art of Ice Carving**\
-`A look inside a Queens studio where Buddhas, sneakers and swans are carved with reverence and the knowledge that beauty, like ice, is fleeting.`\
-https://nytimes.com/2026/01/22/arts/design/the-exacting-ephemeral-art-of-ice-carving.html
+**Some Immune Systems Defeat Cancer. Could That Become a Drug?**\
+`Researchers found an antibody that seems to play a role in people with better lung cancer prognoses, but turning it into a treatment could be difficult.`\
+https://nytimes.com/2026/01/22/health/lung-cancer-antibodies-immune-system.html
 
-**Trump and ‘Taco!’ Roil Davos**\
-`Business leaders at the World Economic Forum were relieved by the president’s about-face on Greenland, but remain on edge about what could come next.`\
-https://nytimes.com/2026/01/22/business/dealbook/trump-taco-davos.html
+**Giants part ways with Kevin Abrams, long-time front-office exec**\
+`Abrams had been with the organization since 1999.`\
+https://nytimes.com/athletic/6991393/2026/01/22/new-york-giants-exec-kevin-abrams/
 
-**Way-too-early SEC vibes rankings for 2026: Indiana and an identity crisis**\
-`We know the vibe in the SEC: An identity crisis, three straight years without a championship. Let’s now take a look at individual teams.`\
-https://nytimes.com/athletic/6987794/2026/01/22/sec-football-rankings-offseason-2026/
+**10 years of The Athletic**\
+`As The Athletic turns 10, we offer some of the most memorable stories we've done so far. `\
+https://nytimes.com/athletic/6991132/2026/01/22/the-athletic-10-year-anniversary/
 
-**I've been ranking Twins prospects for 20 years: Here are the 20 best, from stars to busts**\
-`How does current Twins top prospect Walker Jenkins compare to Minnesota's most-hyped prospects of the past two decades?`\
-https://nytimes.com/athletic/6974049/2026/01/22/top-twins-prospects-last-20-years/
+**Watch Live: Former Special Counsel Jack Smith Testifies to House Judiciary Committee**\
+`Jack Smith, the special prosecutor who twice indicted Trump, testifies at a public hearing of the House Judiciary Committee on Thursday in a long-awaited public confrontation.`\
+https://nytimes.com/video/us/politics/100000010660880/jack-smith-house-testimony-trump.html
 
-**Cyndi Lauper Cleans Out Her Closet**\
-`Fans lined up for a chance to buy a piece of the pop star’s wardrobe, even without her at the sale.`\
-https://nytimes.com/2026/01/22/style/cyndi-lauper-cleans-out-her-closet.html
+**Putin Says Russia Could Donate to ‘Board of Peace’ if U.S. Unfroze Assets**\
+`The Kremlin leader said he will discuss the possibility today with Trump administration envoys in Moscow.`\
+https://nytimes.com/2026/01/22/world/europe/putin-board-of-peace-frozen-assets.html
 
-**2026 Oscar Nominations: Updating List**\
-`The movies competing for the 98th Academy Awards. The ceremony will air on March 15.`\
-https://nytimes.com/2026/01/22/movies/2026-oscar-nominees-list.html
+**3 Films Used to Hold the Record for Oscar Nominations (Thanks to Some Quirks)**\
+`As categories evolved over time, the way to make academy history did, too. But for decades, no film topped 14 nods, until “Sinners” smashed the record.`\
+https://nytimes.com/2026/01/22/movies/sinners-oscars-record-nominations.html
 
-**Court Vision: Is Nebraska basketball bound to be next incredible turnaround?**\
-`Don't look now, but here comes Florida. Plus, snubs from The Athletic's midseason All-America team.`\
-https://nytimes.com/athletic/6989424/2026/01/22/college-basketball-nebraska-florida/
+**Leafs after 50: Bad asset management leaves Toronto without solutions to solvable problems**\
+`Blues' Robert Thomas would solve a lot of problems in Toronto, and it cannot be understated how perfect he would fit on the Maple Leafs. `\
+https://nytimes.com/athletic/6989449/2026/01/22/maple-leafs-robert-thomas-blues-trade/
 
