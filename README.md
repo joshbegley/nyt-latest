@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6991727/2026/01/22/sabres-vs-canadiens-stream-how-t
 `Find out how to watch the Chicago Blackhawks play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6991726/2026/01/22/blackhawks-vs-hurricanes-stream-how-to-watch-jan-22/
 
-**Inside the mind of Chet Holmgren: Thunder star breaks down his defensive play**\
+**The mind of Chet Holmgren: Thunder star breaks down his defensive play**\
 `"He’s developed very, very high-level tactical instincts," said Thunder head coach Mark Daigneault of Holmgren. `\
 https://nytimes.com/athletic/6991275/2026/01/22/thunder-chet-holmgren-nba-defense-film-breakdown/
 

@@ -1,40 +1,40 @@
-**How to watch Kentucky vs. Tennessee women's basketball: Time, TV, streaming**\
-`Find out how to watch the Kentucky Wildcats play the Tennessee Lady Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6991704/2026/01/22/kentucky-vs-tennessee-stream-how-to-watch-jan-22/
+**How to watch Nuggets vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6991740/2026/01/22/nuggets-vs-wizards-stream-how-to-watch-jan-22/
 
-**F1 The Movie receives four Oscar nominations**\
-`The movie has been nominated for the prestigious Best Picture, in addition to Best Film Editing, Best Sound and Best Visual Effects.`\
-https://nytimes.com/athletic/6991531/2026/01/22/f1-movie-oscars-brad-pitt/
+**How to watch Hornets vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6991735/2026/01/22/hornets-vs-magic-stream-how-to-watch-jan-22/
 
-**How to watch Iowa vs. Maryland women's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa Hawkeyes play the Maryland Terrapins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6991700/2026/01/22/iowa-vs-maryland-stream-how-to-watch-jan-22/
+**How to watch Rockets vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6991737/2026/01/22/rockets-vs-76ers-stream-how-to-watch-jan-22/
 
-**How to watch Michigan vs. Rutgers women's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan Wolverines play the Rutgers Scarlet Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6991698/2026/01/22/michigan-vs-rutgers-stream-how-to-watch-jan-22/
+**How to watch Golden Knights vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6991732/2026/01/22/golden-knights-vs-bruins-stream-how-to-watch-jan-22/
 
-**It’s ‘Psychological Torture’: The Woman Who Was Granted Parole but Not Released**\
-`A lawsuit in California has kept incarcerated people who were granted their freedom in prison for an indeterminate period.`\
-https://nytimes.com/2026/01/22/opinion/its-psychological-torture-the-woman-who-was-granted-parole-but-not-released.html
+**How to watch Stars vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6991730/2026/01/22/stars-vs-blue-jackets-stream-how-to-watch-jan-22/
 
-**Five Fronts in Trump’s Culture War**\
-`In the first year of his second term, President Trump has made sweeping efforts to influence the arts and media in America.`\
-https://nytimes.com/2026/01/22/arts/trump-culture-war-smithsonian-kennedy-center.html
+**How to watch Sabres vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6991727/2026/01/22/sabres-vs-canadiens-stream-how-to-watch-jan-22/
 
-**Your Freezer Wants These Black Bean Burgers**\
-`Make a double batch for burger night tonight, and stash the leftovers in the freezer for burger nights to come.`\
-https://nytimes.com/2026/01/22/dining/your-freezer-wants-these-black-bean-burgers.html
+**How to watch Blackhawks vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6991726/2026/01/22/blackhawks-vs-hurricanes-stream-how-to-watch-jan-22/
 
-**Is That Really Narcissism?**\
-`Narcissism has become a catchall label for a range of frustrating behaviors. Here are some misconceptions about what it means.`\
-https://nytimes.com/2026/01/22/well/mind/narcissist-narcissism-myths-facts.html
+**Inside the mind of Chet Holmgren: Thunder star breaks down his defensive play**\
+`"He’s developed very, very high-level tactical instincts," said Thunder head coach Mark Daigneault of Holmgren. `\
+https://nytimes.com/athletic/6991275/2026/01/22/thunder-chet-holmgren-nba-defense-film-breakdown/
 
-**The Windup: Will this Mets overhaul work?**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6991619/2026/01/22/mets-roster-overhaul-signings-the-windup/
+**Chelsea considering loan deal to sign Douglas Luiz for rest of season**\
+`Luiz has only made 13 appearances this season for Nottingham Forest while on loan from Juventus.`\
+https://nytimes.com/athletic/6991039/2026/01/22/douglas-luiz-chelsea-transfer-forest/
 
-**When a Coat Becomes a Symbol of Conflict**\
-`How the choice of outerwear for Gregory Bovino, the president’s Border Patrol chief, turned into part of the deportation story.`\
-https://nytimes.com/2026/01/22/style/gregory-bovino-ice-coat.html
+**MLS extends 2026 summer transfer window to align with European leagues**\
+`MLS has elongated its summer transfer window dates, positioning clubs to take further advantage of a post-World Cup period`\
+https://nytimes.com/athletic/6991673/2026/01/22/mls-2026-transfer-window-summer-dates/
 
