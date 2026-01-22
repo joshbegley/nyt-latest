@@ -1,3 +1,7 @@
+**The Exacting, Ephemeral Art of Ice Carving**\
+`A look inside a Queens studio where Buddhas, sneakers and swans are carved with reverence and the knowledge that beauty, like ice, is fleeting.`\
+https://nytimes.com/2026/01/22/arts/design/the-exacting-ephemeral-art-of-ice-carving.html
+
 **Trump and ‘Taco!’ Roil Davos**\
 `Business leaders at the World Economic Forum were relieved by the president’s about-face on Greenland, but remain on edge about what could come next.`\
 https://nytimes.com/2026/01/22/business/dealbook/trump-taco-davos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/us/politics/europe-trump-greenland-tariffs-eu-mee
 **‘It's not in me to give up’: Bub Carrington is the Washington Wizards’ iron man**\
 `The 20-year-old guard is about to play in his 125th consecutive regular-season NBA game. `\
 https://nytimes.com/athletic/6990699/2026/01/22/bub-carrington-washington-wizards-ironman-streak/
-
-**The Leverage That Europe Has Over the U.S. Economy**\
-`After the latest bout of trade turmoil with the United States, European leaders are looking for ways to project strength to the Trump administration, which considers them weak.`\
-https://nytimes.com/2026/01/22/business/europe-trade-trump-bonds.html
 
