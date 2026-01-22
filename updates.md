@@ -1,3 +1,19 @@
+**‘It's not in me to give up’: Bub Carrington is the Washington Wizards’ iron man**\
+`The 20-year-old guard is about to play in his 125th consecutive regular-season NBA game. `\
+https://nytimes.com/athletic/6990699/2026/01/22/bub-carrington-washington-wizards-ironman-streak/
+
+**The Leverage That Europe Has Over the U.S. Economy**\
+`After the latest bout of trade turmoil with the United States, European leaders are looking for ways to project strength to the Trump administration, which considers them weak.`\
+https://nytimes.com/2026/01/22/business/europe-trade-trump-bonds.html
+
+**Barcelona's Pedri out for a month with hamstring injury**\
+`The 23-year-old sustained the injury during Wednesday's Champions League victory at Slavia Prague and he may miss up to seven matches.`\
+https://nytimes.com/athletic/6989913/2026/01/22/pedri-barcelona-injury-news-update/
+
+**Luke Wright to step down from England national team selector role**\
+`The former white-ball international has cited 'significant travel and time away from home' as reasons for his decision to leave the role.`\
+https://nytimes.com/athletic/6991015/2026/01/22/england-luke-wright-selector-resigns/
+
 **Trump Takes Davos**\
 `We look at the news coming out of the World Economic Forum in Switzerland.`\
 https://nytimes.com/2026/01/22/briefing/trump-takes-davos.html
