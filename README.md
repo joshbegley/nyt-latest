@@ -1,3 +1,7 @@
+**Putin’s New Competitor in Wielding Unchecked Power Is Trump**\
+`If the United States under President Trump starts acting as if it’s Russia, where does that leave President Vladimir V. Putin?`\
+https://nytimes.com/2026/01/23/world/europe/trump-putin-russia-us-greenland.html
+
 **Chuck Klosterman Has a Lot to Say About Football**\
 `The pop culture critic discusses his new book about the sport and its place in American culture.`\
 https://nytimes.com/2026/01/23/books/review/podcast-chuck-klosterman-football.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/23/world/europe/julio-iglesias-abuse-investigation.h
 **Arch Manning undergoes minor foot surgery to address previous injury**\
 `Manning led Texas to three straight wins to close out the year, highlighted by an upset over rival Texas A&M in the regular-season finale.`\
 https://nytimes.com/athletic/6994351/2026/01/23/arch-manning-foot-surgery-texas/
-
-**Hochul Declares State of Emergency as Mamdani Lays Out Snow Preparations**\
-`Gov. Kathy Hochul advised New Yorkers to stock up on groceries and other essentials, adding that with 12 to 18 inches of snow in the forecast, no corner of the state would be “immune from Mother Nature’s wrath.”`\
-https://nytimes.com/2026/01/23/nyregion/new-york-state-of-emergency-winter-storm-snow.html
 
