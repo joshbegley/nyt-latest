@@ -1,3 +1,15 @@
+**How to Treat Dry Lips**\
+`Expert advice from a musician, a model and an aesthetician.`\
+https://nytimes.com/2026/01/23/t-magazine/dry-chapped-lips-treatment.html
+
+**This Chicken Soup Is as Soothing to Cook as It Is to Eat**\
+`Packed with vegetables and grains, this surprisingly simple from-scratch meal simmers away until it’s nourishing and so warming.`\
+https://nytimes.com/2026/01/23/dining/quick-chicken-soup-recipe.html
+
+**How Many Bases Does America Have in Greenland Now?**\
+`The U.S. once maintained more than a dozen. Now it has one. President Trump wants more.`\
+https://nytimes.com/2026/01/23/world/europe/trump-greenland-military-bases.html
+
 **The Aviation System Is Preparing for Storm-Driven Chaos**\
 `Airlines are canceling hundreds of flights over the weekend in anticipation of frigid weather and ice and now across much of the country.`\
 https://nytimes.com/2026/01/23/business/airlines-travel-storm.html
