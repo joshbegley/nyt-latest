@@ -1,3 +1,7 @@
+**Australian Open adjusts Day 7 schedule for Melbourne heat with 100 degrees forecast**\
+`The second day of the third round will start an hour early, in order to maximize time on courts which have roofs.`\
+https://nytimes.com/athletic/6993143/2026/01/22/australian-open-schedule-weather-tennis-extreme-heat/
+
 **D.H.S. Cited Foreign Students’ Writings and Protests Before Their Arrests**\
 `Documents unsealed by a federal judge on Thursday include dossiers that investigators prepared on pro-Palestinian student activists before they were targeted for deportation.`\
 https://nytimes.com/2026/01/22/us/politics/trump-rubio-student-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/crosswords/daily-puzzle-2026-01-23.html
 **‘The Pitt’ Season 2 Episode 3 Recap: Expect the Unexpected**\
 `The doctors are seeing a lot of rare cases on this Fourth of July. Not even the fireworks-related injuries have been straightforward.`\
 https://nytimes.com/2026/01/22/arts/television/the-pitt-recap-season-2-episode-3.html
-
-**Who Owns TikTok in the U.S. Now?**\
-`Several big companies and investment firms are part of the new American TikTok. Many have ties to one another and President Trump.`\
-https://nytimes.com/2026/01/22/business/media/tiktok-investors-oracle-mgx-silver-lake-bytedance.html
 
