@@ -1,3 +1,11 @@
+**Peak newsletter: The lesson in Josh Allen’s emotional moment**\
+`Peak newsletter 🧠 | This is The Athletic&#8217;s weekly newsletter covering the mental side of sports.`\
+https://nytimes.com/athletic/6992198/2026/01/22/josh-allen-leadership-peak-newsletter/
+
+**TikTok Strikes Deal for New U.S. Entity, Ending Long Legal Saga**\
+`The Chinese parent company for the popular video app said it had sold a majority stake in TikTok’s U.S. operations to avoid a ban in the United States.`\
+https://nytimes.com/2026/01/22/technology/tiktok-deal-oracle-bytedance-china-us.html
+
 **Rodman, Spirit agree on record deal to make USWNT star one of the highest paid women's players**\
 `Rodman's signing ends a prolonged NWSL saga and keeps the U.S. women's national team star in the nation's capital`\
 https://nytimes.com/athletic/6986284/2026/01/22/trinity-rodman-contract-washington-spirit-nwsl/

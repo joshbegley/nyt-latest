@@ -1,3 +1,11 @@
+**Peak newsletter: The lesson in Josh Allen’s emotional moment**\
+`Peak newsletter 🧠 | This is The Athletic&#8217;s weekly newsletter covering the mental side of sports.`\
+https://nytimes.com/athletic/6992198/2026/01/22/josh-allen-leadership-peak-newsletter/
+
+**TikTok Strikes Deal for New U.S. Entity, Ending Long Legal Saga**\
+`The Chinese parent company for the popular video app said it had sold a majority stake in TikTok’s U.S. operations to avoid a ban in the United States.`\
+https://nytimes.com/2026/01/22/technology/tiktok-deal-oracle-bytedance-china-us.html
+
 **Rangers pay big price for MacKenzie Gore, sending first-rounder Gavin Fien to Nats**\
 `The Rangers are giving up a decent haul, including a potential top-20 prospect in Fien, but Gore makes them instantly 2-3 wins better.`\
 https://nytimes.com/athletic/6992500/2026/01/22/mackenzie-gore-rangers-nationals-trade-analysis-gavin-fien/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6986284/2026/01/22/trinity-rodman-contract-washingt
 **Jarmo Kekäläinen on Sabres buying at the deadline, Doan contract and more**\
 `As much as the Sabres have been rolling lately, there are still some areas where the team could improve.`\
 https://nytimes.com/athletic/6992611/2026/01/22/sabres-josh-doan-trades-jarmo-kekalainen/
-
-**Trump Could Begin Flying on Jet Donated by Qatar by Summer**\
-`It remains unclear whether the aircraft would get the full Air Force One security upgrades, which industry experts said could take up to two years to complete.`\
-https://nytimes.com/2026/01/22/us/politics/trump-qatar-air-force-one.html
-
-**European Leaders Scramble to Find a Path Forward With Trump**\
-`Also, Jack Smith defended his decision to prosecute Trump. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2026/01/22/briefing/trump-greenland-talks-jack-smith-congress.html
 
