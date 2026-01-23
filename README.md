@@ -1,3 +1,15 @@
+**Kawhi's return against Lakers marks full circle in Clippers' imperfect turnaround**\
+`Kawhi Leonard returned to the starting lineup, scoring a team-high 24 points in only 25:56 to help the Clippers beat the Lakers 112-104.`\
+https://nytimes.com/athletic/6993533/2026/01/23/kawhi-leonard-clippers-return-lakers/
+
+**For Greenland Tourism, Trump’s Interest Creates Uncertainty**\
+`Bookings to the island increased last year, and there are plans for two new airports. Threats from President Trump may change that.`\
+https://nytimes.com/2026/01/23/travel/greenland-tourism-trump.html
+
+**Rejecting Decades of Science, Vaccine Panel Chair Says Polio and Other Shots Should Be Optional**\
+`Dr. Kirk Milhoan, a pediatric cardiologist who leads the Advisory Committee on Immunization Practices, said a person’s right to refuse a vaccine outweighed concerns about illness or death from infectious diseases.`\
+https://nytimes.com/2026/01/23/health/milhoan-vaccines-optional-polio.html
+
 **Canadian Ex-Snowboarder Accused of Running Drug Ring Is Arrested**\
 `Ryan Wedding, 44, who competed in the Winter Olympics in 2002, has been charged with murder and with smuggling cocaine into the United States.`\
 https://nytimes.com/2026/01/23/world/canada/ryan-wedding-arrest.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/23/arts/design/venice-biennale-south-africa-gabriell
 **How to watch Saint Louis vs. Saint Bonaventure men's basketball: Time, TV, streaming**\
 `Find out how to watch the Saint Louis Billikens play the Saint Bonaventure Bonnies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6994226/2026/01/23/saint-louis-vs-saint-bonaventure-stream-how-to-watch-jan-23/
-
-**Chelsea fined for 'dangerous' water bottle incident after Villa loss**\
-`Chelsea admitted to the charge but the individual responsible for throwing the bottle could not be identified.`\
-https://nytimes.com/athletic/6994100/2026/01/23/chelsea-aston-villa-water-bottle-fine/
-
-**A Republican Vaccine Defender Fights to Hang On**\
-`Senator Bill Cassidy of Louisiana, a physician, reluctantly voted to confirm Robert F. Kennedy Jr. as health secretary. It didn’t appease President Trump.`\
-https://nytimes.com/2026/01/23/us/politics/bill-cassidy-trump-louisiana-senate-race.html
-
-**Creamy Lasagna Soup for a Very Wintry Weekend**\
-`And more reader favorites from this week.`\
-https://nytimes.com/2026/01/23/dining/creamy-lasagna-soup-for-a-very-wintry-weekend.html
 

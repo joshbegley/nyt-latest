@@ -1,3 +1,7 @@
+**Canadian Ex-Snowboarder Accused of Running Drug Ring Is Arrested**\
+`Ryan Wedding, 44, who competed in the Winter Olympics in 2002, has been charged with murder and with smuggling cocaine into the United States.`\
+https://nytimes.com/2026/01/23/world/canada/ryan-wedding-arrest.html
+
 **Can You Achieve Sports Greatness by Thinking Like a Wall Street Trader?**\
 `Max Greyserman is trying to climb to the top of the PGA Tour by using lessons from his father’s time as a quant.`\
 https://nytimes.com/2026/01/23/magazine/max-greyserman-golf-pga-wall-street.html
