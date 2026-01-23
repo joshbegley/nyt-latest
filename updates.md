@@ -1,3 +1,7 @@
+**Jonathan Kuminga exits Warriors' game vs. Mavericks with knee soreness**\
+`Though the injury may not be serious, It is the latest chapter of a season with many twists and turns.`\
+https://nytimes.com/athletic/6993019/2026/01/22/jonathan-kuminga-warriors-injury-update-trade-status/
+
 **Aaliyah Chavez, Oklahoma stun South Carolina in overtime**\
 `Chavez scored 14 of the Sooners’ 19 points in overtime and assisted on two more in their upset of the Gamecocks.`\
 https://nytimes.com/athletic/6993115/2026/01/22/oklahoma-south-carolina-overtime-upset/
