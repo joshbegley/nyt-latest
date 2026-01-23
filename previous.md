@@ -1,3 +1,11 @@
+**Defending His Absence in House, Hunt Celebrates Casting a Vote**\
+`House leaders were forced to rush Representative Wesley Hunt, Republican of Texas, to the Capitol with a police escort to avoid an embarrassing defeat on the floor.`\
+https://nytimes.com/2026/01/23/us/politics/defending-his-absence-in-house-hunt-celebrates-casting-a-vote.html
+
+**Hoping for More From Trump, Abortion Opponents Gather in Washington**\
+`“This is not the direction that we were hoping for,” the president of a leading anti-abortion group said ahead of the March for Life.`\
+https://nytimes.com/2026/01/23/us/march-for-life-trump-vance.html
+
 **Seranthony Domínguez agrees to two-year, $20 million deal with White Sox**\
 `The 31-year-old has 55 holds and 24 saves in the last four seasons, posting a 3.60 ERA for the Orioles, Phillies and Blue Jays.`\
 https://nytimes.com/athletic/6836565/2026/01/23/mlb-seranthony-dominguez-free-agency-signing-white-sox/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6994409/2026/01/23/james-garner-new-everton-contrac
 **Ferrari's new car has one job: Obliterate 2025's failure for Lewis Hamilton and Charles Leclerc**\
 `Ferrari has launched its 2026 F1 car. Lewis Hamilton and Charles Leclerc need it to be a big upgrade on the team's 2025 challenger`\
 https://nytimes.com/athletic/6994342/2026/01/23/2026-new-ferrari-f1-car/
-
-**Returning to Toronto with Vegas, Mitch Marner doesn't want to 'look back'**\
-`The best homegrown player in Maple Leafs history acknowledged that he was feeling mixed emotions ahead of Friday’s visit.`\
-https://nytimes.com/athletic/6994187/2026/01/23/mitch-marner-leafs-golden-knights/
-
-**Women's Champions Cup winners will earn $2.3m**\
-`The intercontinental tournament will be competed for the first time between January 28 and February 1.`\
-https://nytimes.com/athletic/6994295/2026/01/23/womens-champions-cup-prize-money-fifa/
 
