@@ -1,3 +1,11 @@
+**Brooklyn Beckham Is Doing His Best**\
+`Sometimes you have to tell your own messy story.`\
+https://nytimes.com/2026/01/23/opinion/brooklyn-beckham-victoria-david-nicola-peltz-nepo.html
+
+**Couple Receive $200,000 Settlement After ‘Pungent’ Indian Food Complaint**\
+`The University of Colorado, Boulder, denied liability in the civil rights lawsuit, which the couple filed after a comment about a dish that one of them was heating in an office microwave.`\
+https://nytimes.com/2026/01/23/us/palak-paneer-indian-food-racism-settlement.html
+
 **Bovino Says Border Patrol Agents Are ‘Experts in Dealing With Children’**\
 `A picture of a 5-year-old detained by federal authorities near Minneapolis rocketed around the internet and has become an avatar of outrage.`\
 https://nytimes.com/2026/01/23/us/bovino-ice-child-experts.html

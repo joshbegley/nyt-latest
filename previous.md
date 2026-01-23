@@ -1,3 +1,11 @@
+**Brooklyn Beckham Is Doing His Best**\
+`Sometimes you have to tell your own messy story.`\
+https://nytimes.com/2026/01/23/opinion/brooklyn-beckham-victoria-david-nicola-peltz-nepo.html
+
+**Couple Receive $200,000 Settlement After ‘Pungent’ Indian Food Complaint**\
+`The University of Colorado, Boulder, denied liability in the civil rights lawsuit, which the couple filed after a comment about a dish that one of them was heating in an office microwave.`\
+https://nytimes.com/2026/01/23/us/palak-paneer-indian-food-racism-settlement.html
+
 **Bovino Says Border Patrol Agents Are ‘Experts in Dealing With Children’**\
 `A picture of a 5-year-old detained by federal authorities near Minneapolis rocketed around the internet and has become an avatar of outrage.`\
 https://nytimes.com/2026/01/23/us/bovino-ice-child-experts.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/01/23/upshot/flashback.html
 **Putin’s New Competitor in Wielding Unchecked Power Is Trump**\
 `If the United States under President Trump starts acting as if it’s Russia, where does that leave President Vladimir V. Putin?`\
 https://nytimes.com/2026/01/23/world/europe/trump-putin-russia-us-greenland.html
-
-**Chuck Klosterman Has a Lot to Say About Football**\
-`The pop culture critic discusses his new book about the sport and its place in American culture.`\
-https://nytimes.com/2026/01/23/books/review/podcast-chuck-klosterman-football.html
-
-**New York and New Jersey Governors Spar Over a Political Appointment**\
-`In her first week as governor of New Jersey, Mikie Sherrill is playing hardball to get her choice approved for a key role in Port Authority leadership.`\
-https://nytimes.com/2026/01/23/nyregion/garcia-port-authority-sherrill.html
 

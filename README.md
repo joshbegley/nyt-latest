@@ -1,3 +1,11 @@
+**Inside Trump’s Turnabout on Greenland**\
+`Our national security correspondent David Sanger describes how President Trump’s escalations with Europe over Greenland seems to have led to him backing down.`\
+https://nytimes.com/video/world/europe/100000010661528/inside-trumps-turnabout-on-greenland.html
+
+**TikTok Updates Its Terms and Conditions in the U.S.**\
+`The changes came after the app’s Chinese parent company spun out an American entity to run TikTok in the United States.`\
+https://nytimes.com/2026/01/23/business/media/tiktok-updates-its-terms-and-conditions-in-the-us.html
+
 **Brooklyn Beckham Is Doing His Best**\
 `Sometimes you have to tell your own messy story.`\
 https://nytimes.com/2026/01/23/opinion/brooklyn-beckham-victoria-david-nicola-peltz-nepo.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6994155/2026/01/23/ryan-wedding-arrest-fbi-olympics
 **2026 Oscar Nominees: Surprises and Snubs**\
 `Kyle Buchanan, our awards season columnist, breaks down the Academy Award nominations for 2026.`\
 https://nytimes.com/video/movies/100000010656682/2026-oscar-nominees-surprises-and-snubs.html
-
-**Flashback: Your Weekly History Quiz, Jan. 24, 2026**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2026/01/23/upshot/flashback.html
-
-**Putin’s New Competitor in Wielding Unchecked Power Is Trump**\
-`If the United States under President Trump starts acting as if it’s Russia, where does that leave President Vladimir V. Putin?`\
-https://nytimes.com/2026/01/23/world/europe/trump-putin-russia-us-greenland.html
 
