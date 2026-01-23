@@ -1,3 +1,7 @@
+**Croatian tennis player Jana Fett suspended for anti-doping violation**\
+`Fett's suspension stems from a test during the Billie Jean King Cup playoffs in November 2025.`\
+https://nytimes.com/athletic/6994875/2026/01/23/jana-fett-tennis-suspended-croatia/
+
 **Broncos RB J.K. Dobbins won't return for AFC Championship Game**\
 `Dobbins returned to practice this week for the first time since his Nov. 6 foot injury, but he was a limited participant all week`\
 https://nytimes.com/athletic/6994640/2026/01/23/broncos-jk-dobbins-afc-championship-game/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010650073/trumps-170-billion-surveillanc
 **ICE, School District Give Conflicting Accounts of Child’s Detainment**\
 `Liam Conejo Ramos, 5, was detained with his father by immigration authorities on Tuesday. The school district and the federal government have given conflicting accounts of what happened during the arrest.`\
 https://nytimes.com/video/us/politics/100000010663630/ice-arrests-boy-minnesota.html
-
-**Pedro Sanchez, Who Helped Feed the Developing World, Dies at 85**\
-`A soil scientist, he partnered with the United Nations and other organizations to bring productive agricultural practices to uncooperative terrain.`\
-https://nytimes.com/2026/01/23/science/pedro-sanchez-dead.html
 

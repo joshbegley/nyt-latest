@@ -1,3 +1,7 @@
+**Croatian tennis player Jana Fett suspended for anti-doping violation**\
+`Fett's suspension stems from a test during the Billie Jean King Cup playoffs in November 2025.`\
+https://nytimes.com/athletic/6994875/2026/01/23/jana-fett-tennis-suspended-croatia/
+
 **Broncos RB J.K. Dobbins won't return for AFC Championship Game**\
 `Dobbins returned to practice this week for the first time since his Nov. 6 foot injury, but he was a limited participant all week`\
 https://nytimes.com/athletic/6994640/2026/01/23/broncos-jk-dobbins-afc-championship-game/

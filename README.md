@@ -1,3 +1,15 @@
+**Are Republicans Growing a Little Uneasy About the ICE Raids?**\
+`Polls, careful remarks from JD Vance and chats with voters all point to some wariness.`\
+https://nytimes.com/2026/01/23/us/politics/ice-immigration-republicans-voters.html
+
+**Snow and Ice Are Coming. Where Is the Salt?**\
+`Heavy snow, ice and bitter cold are threatening much of the country, but some places are short on a key resource: road salt.`\
+https://nytimes.com/2026/01/23/weather/salt-shortage-snow-storm.html
+
+**National Park Service Removes Slavery Exhibit in Philadelphia**\
+`Following a directive from President Trump, the National Park Service removed a Philadelphia exhibit memorializing nine people enslaved by George Washington. The administration ordered the removal of materials that promote “corrosive ideology” in favor of those highlighting American “greatness.”`\
+https://nytimes.com/video/us/politics/100000010664240/philadelphia-slavery-exhibit-trump.html
+
 **Croatian tennis player Jana Fett suspended for anti-doping violation**\
 `Fett's suspension stems from a test during the Billie Jean King Cup playoffs in November 2025.`\
 https://nytimes.com/athletic/6994875/2026/01/23/jana-fett-tennis-suspended-croatia/
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/canada/100000010665043/ryan-wedding-arrest-video
 **Forecasters Warn ‘Frostbite Can Occur in Minutes’ as Bitter Cold Sweeps Canada**\
 `The lowest temperatures are expected in southern Saskatchewan and southern Manitoba.`\
 https://nytimes.com/2026/01/23/weather/canada-cold-forecast.html
-
-**What Stephen Miller Is Signaling to ICE Officers**\
-`Stephen Miller’s public endorsement of aggressive ICE tactics marks a new chapter in American immigration enforcement, says Caitlin Dickerson, a journalist, on “The Ezra Klein Show.”`\
-https://nytimes.com/video/opinion/100000010650076/what-stephen-miller-is-signaling-to-ice-officers.html
-
-**Trump’s $170 Billion Surveillance Machine**\
-`Caitlin Dickerson, a journalist, explores the unrestrained power and perils of Trump’s immigration enforcement on “The Ezra Klein Show.”`\
-https://nytimes.com/video/opinion/100000010650073/trumps-170-billion-surveillance-machine.html
-
-**ICE, School District Give Conflicting Accounts of Child’s Detainment**\
-`Liam Conejo Ramos, 5, was detained with his father by immigration authorities on Tuesday. The school district and the federal government have given conflicting accounts of what happened during the arrest.`\
-https://nytimes.com/video/us/politics/100000010663630/ice-arrests-boy-minnesota.html
 
