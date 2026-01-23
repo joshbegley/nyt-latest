@@ -1,3 +1,15 @@
+**Fantasy Premier League live Q&A: Gameweek 23 advice from Ben Dinnery**\
+`Ben Dinnery is on hand to offer his expert advice on the players to target, who to avoid, and the fitness doubts you need to be aware`\
+https://nytimes.com/athletic/6993571/2026/01/23/fantasy-premier-league-live-qa-gameweek-23-advice-from-ben-dinnery/
+
+**Wizards must have more than Trae Young and lottery luck to take a leap next season**\
+`Washington is squarely in the middle of Year 3 of its teardown. There should not be a fourth.`\
+https://nytimes.com/athletic/6992770/2026/01/23/trae-young-wizards-draft-lottery-luck/
+
+**‘The Headlines’ News Quiz: Jan. 23, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://nytimes.com/2026/01/23/podcasts/the-headlines/the-headlines-news-quiz-jan-23-2026.html
+
 **What we're hearing about Karl-Anthony Towns' Knicks future, plus more NBA trade intel**\
 `With the Knicks floundering, would they really consider trading Karl-Anthony Towns? Plus more on Lamelo Ball, Ja Morant.`\
 https://nytimes.com/athletic/6993002/2026/01/23/nba-trade-rumors-karl-anthony-towns-knicks/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6992940/2026/01/23/luka-doncic-lakers-mavericks-nba
 **Trump Links Bruise on Hand to Aspirin**\
 `President Trump linked a noticeable dark bruise on his hand to “clipping a table” while taking aspirin.`\
 https://nytimes.com/video/us/politics/100000010663504/trump-links-bruise-on-hand-to-aspirin.html
-
-**Why don't college football programs develop quarterbacks anymore?**\
-`"This era just forces you to constantly win, which removes the ability to have growing pains with a young quarterback," a P4 coach said.`\
-https://nytimes.com/athletic/6992256/2026/01/23/college-football-quarterbacks-transfer-recruiting/
-
-**49ers mailbag: Which assistants could Robert Saleh take with him to Tennessee?**\
-`Among this week's questions: Who could the 49ers add at receiver this offseason, and why has the third round been such a flop?`\
-https://nytimes.com/athletic/6992614/2026/01/23/49ers-coaches-robert-saleh-titans/
-
-**How should Mitch Marner be remembered as a Maple Leaf?**\
-`Marner’s legacy is messier than that of Toronto's other stars, with many of the same highs and lows but also much more baggage.`\
-https://nytimes.com/athletic/6991517/2026/01/23/mitch-marner-maple-leafs-legacy/
 

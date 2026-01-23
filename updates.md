@@ -1,3 +1,19 @@
+**What we're hearing about Karl-Anthony Towns' Knicks future, plus more NBA trade intel**\
+`With the Knicks floundering, would they really consider trading Karl-Anthony Towns? Plus more on Lamelo Ball, Ja Morant.`\
+https://nytimes.com/athletic/6993002/2026/01/23/nba-trade-rumors-karl-anthony-towns-knicks/
+
+**Amen and Ausar Thompson are rising NBA stars. A big brother foresaw the twins' destiny**\
+`Troy Thompson Jr. would tell anyone who'd listen that his younger siblings were "the best players he'd ever seen." And he meant it.`\
+https://nytimes.com/athletic/6993149/2026/01/23/amen-ausar-thompson-twins-brother-troy-rockets-pistons-nba/
+
+**Three Premier League picks: Man Utd aim upset Arsenal, Leeds to overpower Everton**\
+`Where could the Premier League upsets come from this weekend?`\
+https://nytimes.com/athletic/6993581/2026/01/23/premier-league-upset-picks-underdogs-manchester-united-to-surprise-arsenal/
+
+**Trump Says He Bruised His Hand on a Table**\
+`The president also said he was prone to bruising because of the high dose of aspirin he has taken daily for three decades.`\
+https://nytimes.com/2026/01/23/us/politics/trump-hand-bruise-aspirin-table.html
+
 **TAFC: Rodman's new Spirit deal and what it means. Plus: Robertson to Tottenham?**\
 `Today in TAFC: Rodman's new deal and what it means for women's soccer in America and beyond. Plus: Robertson in talks over Tottenham deal.`\
 https://nytimes.com/athletic/6993584/2026/01/23/rodman-spirit-nwsl-deal-robertson-tottenham/

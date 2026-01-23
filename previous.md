@@ -1,3 +1,19 @@
+**What we're hearing about Karl-Anthony Towns' Knicks future, plus more NBA trade intel**\
+`With the Knicks floundering, would they really consider trading Karl-Anthony Towns? Plus more on Lamelo Ball, Ja Morant.`\
+https://nytimes.com/athletic/6993002/2026/01/23/nba-trade-rumors-karl-anthony-towns-knicks/
+
+**Amen and Ausar Thompson are rising NBA stars. A big brother foresaw the twins' destiny**\
+`Troy Thompson Jr. would tell anyone who'd listen that his younger siblings were "the best players he'd ever seen." And he meant it.`\
+https://nytimes.com/athletic/6993149/2026/01/23/amen-ausar-thompson-twins-brother-troy-rockets-pistons-nba/
+
+**Three Premier League picks: Man Utd aim upset Arsenal, Leeds to overpower Everton**\
+`Where could the Premier League upsets come from this weekend?`\
+https://nytimes.com/athletic/6993581/2026/01/23/premier-league-upset-picks-underdogs-manchester-united-to-surprise-arsenal/
+
+**Trump Says He Bruised His Hand on a Table**\
+`The president also said he was prone to bruising because of the high dose of aspirin he has taken daily for three decades.`\
+https://nytimes.com/2026/01/23/us/politics/trump-hand-bruise-aspirin-table.html
+
 **TAFC: Rodman's new Spirit deal and what it means. Plus: Robertson to Tottenham?**\
 `Today in TAFC: Rodman's new deal and what it means for women's soccer in America and beyond. Plus: Robertson in talks over Tottenham deal.`\
 https://nytimes.com/athletic/6993584/2026/01/23/rodman-spirit-nwsl-deal-robertson-tottenham/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6992614/2026/01/23/49ers-coaches-robert-saleh-titan
 **How should Mitch Marner be remembered as a Maple Leaf?**\
 `Marner’s legacy is messier than that of Toronto's other stars, with many of the same highs and lows but also much more baggage.`\
 https://nytimes.com/athletic/6991517/2026/01/23/mitch-marner-maple-leafs-legacy/
-
-**Indiana football recruits enjoying newfound fame after Hoosiers' national title**\
-`For Indiana recruits — who are living their absolute best lives this week — Curt Cignetti's accomplishment is hardly a surprise.`\
-https://nytimes.com/athletic/6991411/2026/01/23/indiana-football-recruits-curt-cignetti/
-
-**He was the 261st-ranked player in his class. Now he could be an NBA lottery pick**\
-`Wagler went mostly overlooked as a high school recruit, but is the leading scorer for a Final Four contender as a freshman.`\
-https://nytimes.com/athletic/6992977/2026/01/23/keaton-wagler-illinois-college-basketball/
-
-**The Athletic’s Friday football quiz question #90**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6980788/2026/01/23/the-athletics-friday-football-quiz-question-90/
-
-**X Games Aspen viewing guide: Schedule, streaming and athletes to watch**\
-`The three-day, pre-Olympics winter weekend is all about landing impossible tricks and defying gravity in the process.`\
-https://nytimes.com/athletic/6987018/2026/01/23/x-games-aspen-2026-how-to-watch/
 
