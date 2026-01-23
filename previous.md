@@ -1,3 +1,7 @@
+**Remote Russian Peninsula Still Buried Under Record Snowfall**\
+`People on the Kamchatka Peninsula in Russia have spent days clearing out mini mountains of snow after the region experienced its biggest snowfall in nearly 60 years.`\
+https://nytimes.com/video/weather/100000010664857/kamchatka-snow-records-russia.html
+
 **Adams Aide Who Was ICE Liaison Is Expected to Join Trump Administration**\
 `Kaz Daughtry, a former deputy mayor under Eric Adams, was a key contact for federal administration officials involved in the White House’s immigration crackdown.`\
 https://nytimes.com/2026/01/23/nyregion/kaz-daughtry-ice-dhs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6994717/2026/01/23/suns-vs-hawks-stream-how-to-watc
 **Patriots' Harold Landry out of AFC Championship Game vs. Broncos**\
 `Landry's absence is a big blow for a Patriots pass rush that will face a Broncos offensive line that's among the NFL’s best.`\
 https://nytimes.com/athletic/6994659/2026/01/23/harold-landry-patriots-broncos-injury-out/
-
-**How to watch Capitals vs. Flames: Time, TV, streaming**\
-`Find out how to watch the Washington Capitals play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6994712/2026/01/23/capitals-vs-flames-stream-how-to-watch-jan-23/
 

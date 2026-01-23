@@ -1,3 +1,7 @@
+**Remote Russian Peninsula Still Buried Under Record Snowfall**\
+`People on the Kamchatka Peninsula in Russia have spent days clearing out mini mountains of snow after the region experienced its biggest snowfall in nearly 60 years.`\
+https://nytimes.com/video/weather/100000010664857/kamchatka-snow-records-russia.html
+
 **Adams Aide Who Was ICE Liaison Is Expected to Join Trump Administration**\
 `Kaz Daughtry, a former deputy mayor under Eric Adams, was a key contact for federal administration officials involved in the White House’s immigration crackdown.`\
 https://nytimes.com/2026/01/23/nyregion/kaz-daughtry-ice-dhs.html
