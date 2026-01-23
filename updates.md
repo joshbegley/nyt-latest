@@ -1,3 +1,15 @@
+**Giants rebuffed after making aggressive pitch for Nationals' CJ Abrams: Source**\
+`After finding it difficult to make trades involving prospects, the Giants may need to turn to the free-agent market to make roster upgrades.`\
+https://nytimes.com/athletic/6994852/2026/01/23/sf-giants-cj-abrams-trade-talks-josuar-gonzalez/
+
+**What to Do Now to Prepare Your Home for the Winter Storm**\
+`Follow these steps to stay warm and safe.`\
+https://nytimes.com/2026/01/23/realestate/winter-storm-preparations-for-home.html
+
+**Kai Rooney, son of Wayne, makes Old Trafford bow in FA Youth Cup**\
+`The United teenager’s parents watched on from the director’s box as their eldest son made his first appearance at the stadium.`\
+https://nytimes.com/athletic/6994843/2026/01/23/kai-rooney-manchester-united-old-trafford-fa-youth-cup/
+
 **Kai Rooney, son of Wayne, makes Old Trafford bow in FA Youth Cup**\
 `The United teenager’s parents watched on from the director’s box as their eldest son made his bow at the stadium.`\
 https://nytimes.com/athletic/6994843/2026/01/23/kai-rooney-manchester-united-old-trafford-fa-youth-cup/
