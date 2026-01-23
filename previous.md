@@ -1,3 +1,7 @@
+**Who Owns TikTok in the U.S. Now?**\
+`Several big companies and investment firms are part of the new American TikTok. Many have ties to one another and President Trump.`\
+https://nytimes.com/2026/01/22/business/media/tiktok-investors-oracle-mgx-silver-lake-bytedance.html
+
 **Applications Open for the 2026 New York Portfolio Review**\
 `Apply now for this free event for photographers.`\
 https://nytimes.com/2026/01/22/lens/2026-new-york-portfolio-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/us/politics/helicopter-restrictions-washington-cr
 **CF Montréal finalizing deal to acquire Tomás Avilés from Inter Miami: Sources**\
 `CF Montréal has been successful in acquiring talented young players in the intra-MLS market.`\
 https://nytimes.com/athletic/6992963/2026/01/22/cf-montreal-tomas-aviles-trade-inter-miami/
-
-**Kyrie Irving still has 'no timeline' for return from injury, Jason Kidd says**\
-`Dallas Mavericks coach Jason Kidd said there's still "no timeline" for Irving's potential return from a torn ACL.`\
-https://nytimes.com/athletic/6992775/2026/01/22/kyrie-irving-playing-injury-status-update-mavericks/
 

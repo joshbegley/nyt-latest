@@ -1,3 +1,7 @@
+**Who Owns TikTok in the U.S. Now?**\
+`Several big companies and investment firms are part of the new American TikTok. Many have ties to one another and President Trump.`\
+https://nytimes.com/2026/01/22/business/media/tiktok-investors-oracle-mgx-silver-lake-bytedance.html
+
 **Applications Open for the 2026 New York Portfolio Review**\
 `Apply now for this free event for photographers.`\
 https://nytimes.com/2026/01/22/lens/2026-new-york-portfolio-review.html
