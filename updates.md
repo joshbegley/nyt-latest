@@ -1,3 +1,7 @@
+**Kuminga exits game with knee soreness, will get MRI Friday**\
+`Though the injury may not be serious, Kuminga will get an MRI. It's the latest chapter of a season with many twists and turns.`\
+https://nytimes.com/athletic/6993019/2026/01/22/jonathan-kuminga-warriors-injury-update-trade-status/
+
 **Referees miss goaltending call on potential Tyrese Maxey game winner in regulation**\
 `The 76ers won in overtime but likely would have prevailed in regulation if a goaltend was called on Maxey's layup with 1.3 seconds left.`\
 https://nytimes.com/athletic/6993071/2026/01/22/sixers-rockets-tyrese-maxey-goaltending-call-referees/
