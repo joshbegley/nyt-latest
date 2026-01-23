@@ -1,3 +1,11 @@
+**Patrick Dorgu is getting better at Manchester United. This is how**\
+`The Denmark international arrived at Old Trafford with rough edges but they are being smoothed out to great effect`\
+https://nytimes.com/athletic/6991175/2026/01/23/patrick-dorgu-manchester-united/
+
+**England's Next Gen: Who are the bright young things offering hope for the future?**\
+`The senior team may be licking their wounds after another Ashes thrashing, but there are promising youngsters emerging through the ranks`\
+https://nytimes.com/athletic/6985349/2026/01/23/england-test-next-gen-rew-flintoff-vaughan/
+
 **TOTD: Carrick – Why is there such a rush to make a decision? Plus: Dorgu's Evra inspiration**\
 `In this week's column, we look at the rush to choose (or discard) the next permanent United manager, and ask if Dorgu is coming of age?`\
 https://nytimes.com/athletic/6991176/2026/01/23/carrick-man-utd-manager-decison-dorgu/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6988335/2026/01/23/fantasy-premier-league-fpl-tips-
 **Special report: Morocco, the 2030 World Cup and accusations of the 'massacre' of street dogs**\
 `In search of the truth behind allegations animals are being brutally killed as part of a clean-up operation ahead of cohosting the World Cup`\
 https://nytimes.com/athletic/6982707/2026/01/23/morocco-dogs-cull-world-cup/
-
-**Is this an outlier season in the Premier League? (No, it is not)**\
-`Pore over some simple numbers over a longer period, and you will see that this season is not quite as anomalous as many have claimed`\
-https://nytimes.com/athletic/6988410/2026/01/23/premier-league-table-outlier-analysis/
-
-**Premier League predictions: Arsenal vs Man Utd, Newcastle vs Aston Villa and rest of matchday 23**\
-`Who's leading after MD22? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 23?`\
-https://nytimes.com/athletic/6988499/2026/01/23/premier-league-predictions-arsenal-vs-man-united-newcastle-vs-villa-and-rest-of-matchday-23/
 
