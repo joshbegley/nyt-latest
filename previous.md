@@ -1,6 +1,18 @@
+**Putin’s New Competitor in Wielding Unchecked Power Is Trump**\
+`If the United States under President Trump starts acting as if it’s Russia, where does that leave President Vladimir V. Putin?`\
+https://nytimes.com/2026/01/23/world/europe/trump-putin-russia-us-greenland.html
+
+**Chuck Klosterman Has a Lot to Say About Football**\
+`The pop culture critic discusses his new book about the sport and its place in American culture.`\
+https://nytimes.com/2026/01/23/books/review/podcast-chuck-klosterman-football.html
+
+**New York and New Jersey Governors Spar Over a Political Appointment**\
+`In her first week as governor of New Jersey, Mikie Sherrill is playing hardball to get her choice approved for a key role in Port Authority leadership.`\
+https://nytimes.com/2026/01/23/nyregion/garcia-port-authority-sherrill.html
+
 **Defending His Absence in House, Hunt Celebrates Casting a Vote**\
 `House leaders were forced to rush Representative Wesley Hunt, Republican of Texas, to the Capitol with a police escort to avoid an embarrassing defeat on the floor.`\
-https://nytimes.com/2026/01/23/us/politics/defending-his-absence-in-house-hunt-celebrates-casting-a-vote.html
+https://nytimes.com/2026/01/23/us/politics/wesley-hunt-texas-vote-house.html
 
 **Hoping for More From Trump, Abortion Opponents Gather in Washington**\
 `“This is not the direction that we were hoping for,” the president of a leading anti-abortion group said ahead of the March for Life.`\
@@ -11,7 +23,7 @@ https://nytimes.com/2026/01/23/us/march-for-life-trump-vance.html
 https://nytimes.com/athletic/6836565/2026/01/23/mlb-seranthony-dominguez-free-agency-signing-white-sox/
 
 **Labor Secretary’s Security Guard Placed on Leave**\
-`The department has been investigating complaints about the conduct of Labor Secretary Lori Chavez-DeRemer.`\
+`The department has been investigating complaints about the conduct of Secretary Lori Chavez-DeRemer.`\
 https://nytimes.com/2026/01/23/us/politics/labor-secretary-security-staff-investigation.html
 
 **How the CFP is changing in 2026: Still 12 teams, but shifts for Notre Dame, money distribution**\
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/23/world/europe/julio-iglesias-abuse-investigation.h
 **Arch Manning undergoes minor foot surgery to address previous injury**\
 `Manning led Texas to three straight wins to close out the year, highlighted by an upset over rival Texas A&M in the regular-season finale.`\
 https://nytimes.com/athletic/6994351/2026/01/23/arch-manning-foot-surgery-texas/
-
-**Hochul Declares State of Emergency as Mamdani Lays Out Snow Preparations**\
-`Gov. Kathy Hochul advised New Yorkers to stock up on groceries and other essentials, adding that with 12 to 18 inches of snow in the forecast, no corner of the state would be “immune from Mother Nature’s wrath.”`\
-https://nytimes.com/2026/01/23/nyregion/new-york-state-of-emergency-winter-storm-snow.html
-
-**Garner signs new Everton contract until 2030**\
-`The 24-year-old, a key performer so far this season, was entering the final six months of his previous deal.`\
-https://nytimes.com/athletic/6994409/2026/01/23/james-garner-new-everton-contract/
-
-**Ferrari's new car has one job: Obliterate 2025's failure for Lewis Hamilton and Charles Leclerc**\
-`Ferrari has launched its 2026 F1 car. Lewis Hamilton and Charles Leclerc need it to be a big upgrade on the team's 2025 challenger`\
-https://nytimes.com/athletic/6994342/2026/01/23/2026-new-ferrari-f1-car/
 

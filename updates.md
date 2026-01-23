@@ -1,3 +1,23 @@
+**Putin’s New Competitor in Wielding Unchecked Power Is Trump**\
+`If the United States under President Trump starts acting as if it’s Russia, where does that leave President Vladimir V. Putin?`\
+https://nytimes.com/2026/01/23/world/europe/trump-putin-russia-us-greenland.html
+
+**Chuck Klosterman Has a Lot to Say About Football**\
+`The pop culture critic discusses his new book about the sport and its place in American culture.`\
+https://nytimes.com/2026/01/23/books/review/podcast-chuck-klosterman-football.html
+
+**New York and New Jersey Governors Spar Over a Political Appointment**\
+`In her first week as governor of New Jersey, Mikie Sherrill is playing hardball to get her choice approved for a key role in Port Authority leadership.`\
+https://nytimes.com/2026/01/23/nyregion/garcia-port-authority-sherrill.html
+
+**Defending His Absence in House, Hunt Celebrates Casting a Vote**\
+`House leaders were forced to rush Representative Wesley Hunt, Republican of Texas, to the Capitol with a police escort to avoid an embarrassing defeat on the floor.`\
+https://nytimes.com/2026/01/23/us/politics/wesley-hunt-texas-vote-house.html
+
+**Labor Secretary’s Security Guard Placed on Leave**\
+`The department has been investigating complaints about the conduct of Secretary Lori Chavez-DeRemer.`\
+https://nytimes.com/2026/01/23/us/politics/labor-secretary-security-staff-investigation.html
+
 **Defending His Absence in House, Hunt Celebrates Casting a Vote**\
 `House leaders were forced to rush Representative Wesley Hunt, Republican of Texas, to the Capitol with a police escort to avoid an embarrassing defeat on the floor.`\
 https://nytimes.com/2026/01/23/us/politics/defending-his-absence-in-house-hunt-celebrates-casting-a-vote.html
