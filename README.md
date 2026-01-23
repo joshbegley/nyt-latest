@@ -1,3 +1,7 @@
+**TAFC: Rodman's new Spirit deal and what it means. Plus: Robertson to Tottenham?**\
+`Today in TAFC: Rodman's new deal and what it means for women's soccer in America and beyond. Plus: Robertson in talks over Tottenham deal.`\
+https://nytimes.com/athletic/6993584/2026/01/23/rodman-spirit-nwsl-deal-robertson-tottenham/
+
 **NBA weekend watch guide: Dončić in Dallas, Thompson twins, return of ABC Saturdays**\
 `Our roundup of this weekend's NBA games on national TV, with a nod to Oscar nominations.`\
 https://nytimes.com/athletic/6992940/2026/01/23/luka-doncic-lakers-mavericks-nba-abc-prime-video/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6980788/2026/01/23/the-athletics-friday-football-qu
 **X Games Aspen viewing guide: Schedule, streaming and athletes to watch**\
 `The three-day, pre-Olympics winter weekend is all about landing impossible tricks and defying gravity in the process.`\
 https://nytimes.com/athletic/6987018/2026/01/23/x-games-aspen-2026-how-to-watch/
-
-**Tigers mailbag, Part 1: Is there any resolution for the Tarik Skubal situation? **\
-`Answering reader questions about all aspects of the Tarik Skubal saga and what could be ahead.`\
-https://nytimes.com/athletic/6992475/2026/01/23/tigers-tarik-skubal-mailbag/
 
