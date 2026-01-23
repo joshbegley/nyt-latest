@@ -1,40 +1,40 @@
-**Newcastle 'hope' to have Guimaraes for Villa game, Burn could return**\
-`Guimaraes sustained an injury midweek, while Burn has not played since December 14.`\
-https://nytimes.com/athletic/6993563/2026/01/23/newcasle-team-news-guimaraes-burn/
+**Falcons general manager candidates: 6 options including a possible front-runner**\
+`The Falcons have requested interviews with six GM candidates as president Matt Ryan looks to rebuild the team's personnel department.`\
+https://nytimes.com/athletic/6991583/2026/01/23/falcons-gm-candidates-ian-cunningham/
 
-**After TikTok Deal, Chinese Companies Search for a New Global Path**\
-`Chinese firms must contend with geopolitical tensions and mistrust to do business in the United States. Some are choosing to avoid the U.S. altogether.`\
-https://nytimes.com/2026/01/23/business/tiktok-china-technology.html
+**Is It OK to Communicate at Work Using Voice Memos?**\
+`A ruling on office correspondence etiquette.`\
+https://nytimes.com/interactive/2026/01/23/magazine/voice-notes-hodgman-quiz.html
 
-**New York City Could Get a Foot of Snow. Mamdani Knows It’s a Test.**\
-`Plenty of New York City mayors have faced blowback over their handling of blizzards. In several appearances this week, Mayor Zohran Mamdani has sought to show he is prepared.`\
-https://nytimes.com/2026/01/23/nyregion/mamdani-snow-nyc.html
+**Peru’s President May Be Ousted Over Secret Meetings With Chinese Businessmen**\
+`Leaked videos have prompted a scandal involving President José Jerí and two Chinese men under investigation.`\
+https://nytimes.com/2026/01/23/world/americas/peru-president-chinese-businessmen-meetings.html
 
-**Gathering Groceries**\
-`Why was this image in the news recently? What is it communicating?`\
-https://nytimes.com/2026/01/23/learning/gathering-groceries.html
+**Storm Poses Big Threats to Power Grids Across U.S.**\
+`Managers of electric grids say freezing temperatures and ice and snow could lead to power outages in many places, potentially leaving millions in the dark.`\
+https://nytimes.com/2026/01/23/business/energy-environment/storm-power-outage.html
 
-**After Pleas From Mamdani and Hochul, Talks Resume in Nurses’ Strike**\
-`Nearly 15,000 health care workers in New York have been off the job since last week in a labor action affecting some of the city’s major hospitals.`\
-https://nytimes.com/2026/01/23/nyregion/nyc-nurses-strike-mamdani-hochul.html
+**In Portland, Maine, Where ‘Everyone Knows Everyone,’ ICE Is Raising Hackles**\
+`The influx of federal agents this week has been hard for locals to ignore. Many are expressing their resistance to the immigration crackdown.`\
+https://nytimes.com/2026/01/23/us/portland-maine-resistance-ice-immigration.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/23/crosswords/spelling-bee-forum.html
+**What Doctors Want You to Know About Supplements**\
+`Read this before you pop that gummy.`\
+https://nytimes.com/2026/01/23/well/doctor-tips-supplements-research.html
 
-**Seth Meyers Says Trump’s Deals Are as Strong as a Pinkie Swear**\
-`“At this point, it’s pretty clear world leaders make deals with Trump the way kids do on the playground,” Meyers said of the president on Wednesday.`\
-https://nytimes.com/2026/01/23/arts/television/seth-meyers-trump-greenland-deal.html
+**More Than 160 Million People Are in the Path of the Storm Set to Sweep the U.S.**\
+`Here are five key things to know about the forecast.`\
+https://nytimes.com/2026/01/23/weather/winter-storm-ice-snow-forecast.html
 
-**States Prepare for Major Winter Storm**\
-`Multiple governors declared states of emergencies and prepared for what could be a disastrous winter storm in the United States this weekend.`\
-https://nytimes.com/video/weather/100000010662814/winter-storm-forecast-snow-ice.html
+**‘Enough Is Enough’: Hundreds of Minnesota Businesses Take Stand Against ICE**\
+`After protesters called for a pause on economic activity and work to strike against the federal immigration crackdown, many business owners won’t open their doors on Friday.`\
+https://nytimes.com/2026/01/23/us/minnesota-businesses-protest-ice.html
 
-**Nick Kurtz MLB Debut Patch card sells for $516,000**\
-`Kurtz's previous record card sale was $86,620. `\
-https://nytimes.com/athletic/6988949/2026/01/23/nick-kurtz-mlb-debut-patch-card/
+**The New York Times News Quiz, Jan. 23, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2026/01/23/briefing/quiz-trump-greenland-oscars-beckham.html
 
-**On frigid night, Kirill Kaprizov scores 2 goals, including 13th career OT winner: Takeaways**\
-`The Wild, who had been on a 12-0-2 run at home, won in St. Paul for the first time since Dec. 20 by snapping a five-game winless streak.`\
-https://nytimes.com/athletic/6993073/2026/01/23/kirill-kaprizov-wild-goals-ot-winner/
+**The Staggering Scale of Trump’s Anti-Immigrant Crackdown**\
+`Caitlin Dickerson, an immigration reporter, explains the different pieces of Trump’s deportation machine.`\
+https://nytimes.com/2026/01/23/opinion/ezra-klein-podcast-caitlin-dickerson.html
 

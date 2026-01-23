@@ -1,3 +1,7 @@
+**Vietnam’s Leader Consolidates Power, Pledging ‘New Era of Prosperity’**\
+`To Lam, the head of Vietnam’s Communist Party, will also become president of the nation. His new stature comes with new risks.`\
+https://nytimes.com/2026/01/23/world/asia/vietnam-lam-power-congress.html
+
 **Falcons general manager candidates: 6 options including a possible front-runner**\
 `The Falcons have requested interviews with six GM candidates as president Matt Ryan looks to rebuild the team's personnel department.`\
 https://nytimes.com/athletic/6991583/2026/01/23/falcons-gm-candidates-ian-cunningham/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/23/us/minnesota-businesses-protest-ice.html
 **The New York Times News Quiz, Jan. 23, 2026**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2026/01/23/briefing/quiz-trump-greenland-oscars-beckham.html
-
-**The Staggering Scale of Trump’s Anti-Immigrant Crackdown**\
-`Caitlin Dickerson, an immigration reporter, explains the different pieces of Trump’s deportation machine.`\
-https://nytimes.com/2026/01/23/opinion/ezra-klein-podcast-caitlin-dickerson.html
 
