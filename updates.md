@@ -1,3 +1,7 @@
+**If Real Madrid need a rebuild, what positions should they target?**\
+`Madrid have problems with their squad that go beyond the sacked Xabi Alonso. Where do they need to reinforce?`\
+https://nytimes.com/athletic/6985332/2026/01/23/real-madrid-rebuild-transfers-vinicius-bellingham/
+
 **The New York Times in Print for Friday, Jan. 23, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/23/todays-new-york-times
