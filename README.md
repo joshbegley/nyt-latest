@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: President Disinvites Canada From Peace Board**\
+``\
+https://nytimes.com/live/2026/01/23/us/trump-news
+
 **No. 1 favorite Fernando Mendoza declares for 2026 NFL Draft fresh off Heisman, national title**\
 `Mendoza, the 2026 Heisman Trophy winner, could be the Las Vegas Raiders' choice at No. 1 in April.`\
 https://nytimes.com/athletic/6929671/2026/01/23/fernando-mendoza-nfl-draft-2026-indiana/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6993149/2026/01/23/amen-ausar-thompson-twins-brothe
 **Three Premier League picks: Man Utd aim upset Arsenal, Leeds to overpower Everton**\
 `Where could the Premier League upsets come from this weekend?`\
 https://nytimes.com/athletic/6993581/2026/01/23/premier-league-upset-picks-underdogs-manchester-united-to-surprise-arsenal/
-
-**Trump Says He Bruised His Hand on a Table**\
-`The president also said he was prone to bruising because of the high dose of aspirin he has taken daily for three decades.`\
-https://nytimes.com/2026/01/23/us/politics/trump-hand-bruise-aspirin-table.html
 
