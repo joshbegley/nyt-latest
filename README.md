@@ -1,3 +1,11 @@
+**Alpine goes left field with its cruise ship reveal for 2026 F1 livery**\
+`Alpine finished last in the standings last year with just 22 points, all of which were scored by Pierre Gasly.`\
+https://nytimes.com/athletic/6993746/2026/01/23/f1-alpine-2026-car-livery/
+
+**$600,000 Homes in Scotland**\
+`This week’s properties are a six-bedroom house overlooking Luce Bay, a converted church from 1767, and a restored seven-bedroom house next to an abbey.`\
+https://nytimes.com/2026/01/23/realestate/600000-homes-in-scotland.html
+
 **The Message Behind Trump’s Lawsuit Against JPMorgan**\
 `The president’s legal efforts against the Wall Street giant and Jamie Dimon, its chief executive, have put Corporate America on edge.`\
 https://nytimes.com/2026/01/23/business/dealbook/trump-lawsuit-jpmorgan-dimon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6929671/2026/01/23/fernando-mendoza-nfl-draft-2026-
 **Australian Open recap: Carlos Alcaraz's spectacular meets his solid in highlight-reel match**\
 `The world No. 1 is a tennis magician, but playing a fellow showman offered a reminder of the simple things he does to impeccable standards.`\
 https://nytimes.com/athletic/6992698/2026/01/23/tennis-australian-open-recap-results-schedule-day-6/
-
-**Derrick Rose wants to (mostly) put basketball behind him, even if you still see an NBA MVP**\
-`The Bulls will hang Rose’s No. 1 jersey in the United Center rafters, and with it, he hopes to take another step toward a new identity.`\
-https://nytimes.com/athletic/6991963/2026/01/23/derrick-rose-bulls-nba-jersey-retirement-flowers/
-
-**Fantasy Premier League live Q&A: Gameweek 23 advice from Ben Dinnery**\
-`Ben Dinnery is on hand to offer his expert advice on the players to target, who to avoid, and the fitness doubts you need to be aware`\
-https://nytimes.com/athletic/6993571/2026/01/23/fantasy-premier-league-live-qa-gameweek-23-advice-from-ben-dinnery/
 
