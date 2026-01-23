@@ -1,3 +1,11 @@
+**Carlos Beltrán: Astros' cheating scandal 'doesn't define' me**\
+`Beltrán conceded that he can never escape the shadows cast by the scandal. But, he said, "that doesn’t really define the person that I am."`\
+https://nytimes.com/athletic/6992812/2026/01/22/carlos-beltran-hall-of-fame-astros-cheating-scandal/
+
+**F.A.A. Says Helicopter Restrictions Imposed After D.C. Crash Will Stay**\
+`The agency said that expanding the restrictions and making them permanent were urgent steps for avoiding another crash.`\
+https://nytimes.com/2026/01/22/us/politics/helicopter-restrictions-washington-crash.html
+
 **CF Montréal finalizing deal to acquire Tomás Avilés from Inter Miami: Sources**\
 `CF Montréal has been successful in acquiring talented young players in the intra-MLS market.`\
 https://nytimes.com/athletic/6992963/2026/01/22/cf-montreal-tomas-aviles-trade-inter-miami/
