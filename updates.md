@@ -1,3 +1,11 @@
+**Inside Trump’s Turnabout on Greenland**\
+`Our national security correspondent David Sanger describes how President Trump’s escalations with Europe over Greenland seems to have led to him backing down.`\
+https://nytimes.com/video/world/europe/100000010661528/inside-trumps-turnabout-on-greenland.html
+
+**TikTok Updates Its Terms and Conditions in the U.S.**\
+`The changes came after the app’s Chinese parent company spun out an American entity to run TikTok in the United States.`\
+https://nytimes.com/2026/01/23/business/media/tiktok-updates-its-terms-and-conditions-in-the-us.html
+
 **Brooklyn Beckham Is Doing His Best**\
 `Sometimes you have to tell your own messy story.`\
 https://nytimes.com/2026/01/23/opinion/brooklyn-beckham-victoria-david-nicola-peltz-nepo.html
