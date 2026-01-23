@@ -1,3 +1,7 @@
+**Seranthony Domínguez agrees to two-year, $20 million deal with White Sox**\
+`The 31-year-old has 55 holds and 24 saves in the last four seasons, posting a 3.60 ERA for the Orioles, Phillies and Blue Jays.`\
+https://nytimes.com/athletic/6836565/2026/01/23/mlb-seranthony-dominguez-free-agency-signing-white-sox/
+
 **Labor Secretary’s Security Guard Placed on Leave**\
 `The department has been investigating complaints about the conduct of Labor Secretary Lori Chavez-DeRemer.`\
 https://nytimes.com/2026/01/23/us/politics/labor-secretary-security-staff-investigation.html
