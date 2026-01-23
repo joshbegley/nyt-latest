@@ -1,3 +1,7 @@
+**Arsenal's Calafiori, Hincapie return to training before Man Utd clash**\
+`Jurrien Timber has been deputising at left-back in Calafiori and Hincapie's absence but their returns provide a boost for Arteta's side.`\
+https://nytimes.com/athletic/6993777/2026/01/23/arsenal-team-news-calafiori-hincapie-man-united/
+
 **5 Arrested in Shooting of Indiana Judge and His Wife**\
 `Three people from Indiana and two from Kentucky are in custody, officials said. The judge, Steven Meyer, and his wife were injured but are recovering.`\
 https://nytimes.com/2026/01/23/us/indiana-judge-steven-meyer-shooting-arrests.html
