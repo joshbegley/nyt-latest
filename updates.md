@@ -1,3 +1,7 @@
+**The Pulse: The Australian Open whirs to life**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6992015/2026/01/23/australian-open-naomi-osaka-the-pulse/
+
 **Reds roster projection 1.0: Still searching for a bat**\
 `The Reds still want another hitter, but should they run back most of last year's roster, here's how things could shake out. `\
 https://nytimes.com/athletic/6992742/2026/01/23/cincinnati-reds-roster-projection-2026/
