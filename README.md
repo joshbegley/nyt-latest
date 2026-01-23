@@ -1,40 +1,40 @@
+**No Beer for You: How British Pubs Fought a Tax Increase**\
+`More than 1,400 pubs declared a ban on Labour lawmakers in response to a plan to raise business rates significantly. The move got attention, and results.`\
+https://nytimes.com/2026/01/23/world/europe/uk-pubs-rates-u-turn.html
+
+**Connections: Sports Edition Coach: Hints for Jan. 23, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6993333/2026/01/23/connections-sports-edition-hints-for-jan-23-2026/
+
+**That ‘Crazy’ Compliment He Never Forgot**\
+`At a birthday party two years ago, Sarah Gall boldly told Holden Rosen Grupp that he was cute and to call her if he was ever single. Several months later, he did just that.`\
+https://nytimes.com/2026/01/23/style/sarah-gall-holden-rosen-grupp-wedding.html
+
+**Corrections: Jan. 23, 2026**\
+`Corrections that appeared in print on Friday, Jan. 23, 2026.`\
+https://nytimes.com/2026/01/23/pageoneplus/corrections-jan-23-2026.html
+
+**A College Film Project Turned Into a Life Together**\
+`Casey DelBasso and Christopher Kelley met on the first day of college and instantly clicked, but it was almost three years before they became a couple.`\
+https://nytimes.com/2026/01/23/style/casey-delbasso-christopher-kelley-wedding.html
+
+**The ‘Invisible Strings’ That Brought Them Together**\
+`Samantha Podell and Robert Mitchell met through a dating app nearly five years ago and soon discovered they had a lot in common.`\
+https://nytimes.com/2026/01/23/style/samantha-podell-robert-mitchell-wedding.html
+
+**Love Found Its Pace in a New York Walking Group**\
+`Margaret Victor and Chuck Barraza met through Shorewalkers, an environmental walking group. On their first date, Ms. Victor was “really thrown” to learn that he was 16 years her senior.`\
+https://nytimes.com/2026/01/23/style/margaret-victor-chuck-barraza-wedding.html
+
+**The Kiss That Stopped Traffic**\
+`If you choose to live your life on the road, you may end up having the best kiss of your life in the middle of the street.`\
+https://nytimes.com/2026/01/23/style/modern-love-the-kiss-that-stopped-traffic.html
+
+**Quote of the Day: Sharp Words Split Alliance**\
+`Quotation of the Day for Friday, January 23, 2025.`\
+https://nytimes.com/2026/01/22/pageoneplus/quote-of-the-day-sharp-words-split-alliance.html
+
 **Australian Open adjusts Day 7 schedule for Melbourne heat with 100 degrees forecast**\
 `The second day of the third round will start an hour early, in order to maximize time on courts which have roofs.`\
 https://nytimes.com/athletic/6993143/2026/01/22/australian-open-schedule-weather-tennis-extreme-heat/
-
-**D.H.S. Cited Foreign Students’ Writings and Protests Before Their Arrests**\
-`Documents unsealed by a federal judge on Thursday include dossiers that investigators prepared on pro-Palestinian student activists before they were targeted for deportation.`\
-https://nytimes.com/2026/01/22/us/politics/trump-rubio-student-speech.html
-
-**National Park Service Dismantles Slavery Exhibit in Philadelphia**\
-`The exhibit memorialized nine people enslaved by George Washington. The Park Service said it was being removed in accordance with a directive from President Trump.`\
-https://nytimes.com/2026/01/22/us/politics/park-service-philadelphia-slavery-exhibit.html
-
-**White House Posts Altered Photo Showing Arrested Minnesota Protester Crying**\
-`The New York Times ran the image posted by Kristi Noem, the homeland security secretary, as well as the one posted by the White House through an A.I. detection system. It concluded that the White House’s version showed signs of manipulation.`\
-https://nytimes.com/2026/01/22/us/politics/nekima-armstrong-photo-white-house.html
-
-**Young Blackhawks battered but not beaten in gutsy win over Hurricanes**\
-`The Blackhawks have skewed young all season, but Thursday night's 4-3 shootout win over Carolina was their youngest look yet.`\
-https://nytimes.com/athletic/6993166/2026/01/22/blackhawks-hurricanes-oliver-moore-shootout/
-
-**Aaliyah Chavez, Oklahoma stun South Carolina in overtime**\
-`Chavez scored 14 of the Sooners’ 19 points in overtime and assisted on two more in their upset of the Gamecocks.`\
-https://nytimes.com/athletic/6993115/2026/01/22/oklahoma-south-carolina-overtime-upset/
-
-**Referees miss goaltending call on potential Tyrese Maxey game winner in regulation**\
-`The 76ers won in overtime but likely would have prevailed in regulation if a goaltend was called on Maxey's layup with 1.3 seconds left.`\
-https://nytimes.com/athletic/6993071/2026/01/22/sixers-rockets-tyrese-maxey-goaltending-call-referees/
-
-**There’s a New American TikTok. What Does That Mean for You?**\
-`The popular short form video app has a new corporate structure in the United States, which could result in some changes for the 200 million Americans who use TikTok.`\
-https://nytimes.com/2026/01/22/business/media/tiktok-sold-app-content-algorithm.html
-
-**On the Level**\
-`Joyce Keller opens our solving weekend.`\
-https://nytimes.com/2026/01/22/crosswords/daily-puzzle-2026-01-23.html
-
-**‘The Pitt’ Season 2 Episode 3 Recap: Expect the Unexpected**\
-`The doctors are seeing a lot of rare cases on this Fourth of July. Not even the fireworks-related injuries have been straightforward.`\
-https://nytimes.com/2026/01/22/arts/television/the-pitt-recap-season-2-episode-3.html
 
