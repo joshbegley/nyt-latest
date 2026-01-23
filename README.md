@@ -1,3 +1,11 @@
+**How the National Park Service Is Deleting American History**\
+`Philadelphia sued the Trump administration after it directed the Park Service to rip out a memorial to slavery. Elsewhere, materials about climate change and labor history were being removed.`\
+https://nytimes.com/2026/01/23/climate/national-park-service-deleting-american-history-slavery.html
+
+**Joint Chiefs Chairman Issues Rare Invitation to Foreign Military Heads**\
+`Top military leaders from 34 countries plan to discuss improving efforts in the Western Hemisphere to fight drug trafficking and transnational criminal organizations.`\
+https://nytimes.com/2026/01/23/us/politics/military-western-hemisphere-leaders.html
+
 **Are Republicans Growing a Little Uneasy About the ICE Raids?**\
 `Polls, careful remarks from JD Vance and chats with voters all point to some wariness.`\
 https://nytimes.com/2026/01/23/us/politics/ice-immigration-republicans-voters.html
@@ -23,18 +31,10 @@ https://nytimes.com/athletic/6994640/2026/01/23/broncos-jk-dobbins-afc-champions
 https://nytimes.com/card/2026/01/23/smarter-living/wirecutter/
 
 **F.B.I. Agent Who Tried to Investigate ICE Officer in Shooting Resigns**\
-`The resignation of the agent, Tracee Mergen, was the only latest shock wave to have emerged from the Justice Department’s handling of the shooting of Renee Good.`\
+`The resignation of the agent, Tracee Mergen, was only the latest shock wave to have emerged from the Justice Department’s handling of the shooting of Renee Good.`\
 https://nytimes.com/2026/01/23/us/fbi-agent-ice-shooting-renee-good.html
 
 **Is This Who Trump Meant by the ‘Worst of the Worst’?**\
 `The columnist Jamelle Bouie argues that the Trump administration’s immigration policy has more in common with ethnic cleansing than actual immigration enforcement.`\
 https://nytimes.com/video/opinion/100000010664980/is-this-who-trump-meant-by-the-worst-of-the-worst.html
-
-**Former Olympian Arrested on Drug Trafficking and Murder Charges**\
-`F.B.I. agents arrested Ryan Wedding, a former Olympic snowboarder, in Mexico on Thursday. Mr. Wedding is accused of smuggling cocaine into the United States and hiring a hitman to kill an F.B.I informant. The ex-snowboarder is expected to appear in court on Monday.`\
-https://nytimes.com/video/world/canada/100000010665043/ryan-wedding-arrest-video.html
-
-**Forecasters Warn ‘Frostbite Can Occur in Minutes’ as Bitter Cold Sweeps Canada**\
-`The lowest temperatures are expected in southern Saskatchewan and southern Manitoba.`\
-https://nytimes.com/2026/01/23/weather/canada-cold-forecast.html
 
