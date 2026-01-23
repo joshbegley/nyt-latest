@@ -1,3 +1,7 @@
+**Seth Meyers Says Trump’s Deals Are as Strong as a Pinkie Swear**\
+`“At this point, it’s pretty clear world leaders make deals with Trump the way kids do on the playground,” Meyers said of the president on Wednesday.`\
+https://nytimes.com/2026/01/23/arts/television/seth-meyers-trump-greenland-deal.html
+
 **States Prepare for Major Winter Storm**\
 `Multiple governors declared states of emergencies and prepared for what could be a disastrous winter storm in the United States this weekend.`\
 https://nytimes.com/video/weather/100000010662814/winter-storm-forecast-snow-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6993214/2026/01/23/penguins-oilers-evgeni-malkin-st
 **The New York Times in Print for Friday, Jan. 23, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/23/todays-new-york-times
-
-**NATO as We Know It Is Coming to an End, and That’s OK**\
-`Europe has a chance to step out of America’s shadow.`\
-https://nytimes.com/2026/01/23/opinion/trump-greenland-nato-europe.html
 
