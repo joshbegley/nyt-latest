@@ -1,3 +1,15 @@
+**How to watch Rockets vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6994242/2026/01/23/rockets-vs-pistons-stream-how-to-watch-jan-23/
+
+**How to watch Lightning vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6994238/2026/01/23/lightning-vs-blackhawks-stream-how-to-watch-jan-23/
+
+**How to watch Golden Knights vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6994236/2026/01/23/golden-knights-vs-maple-leafs-stream-how-to-watch-jan-23/
+
 **Artist Sues Over Venice Biennale Snub in Dispute Over Gaza-Focused Work**\
 `A panel recommended that Gabrielle Goliath represent South Africa at the event. But the culture minister rejected its suggestion.`\
 https://nytimes.com/2026/01/23/arts/design/venice-biennale-south-africa-gabrielle-goliath.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/23/opinion/california-wealth-tax-billionaires.html
 **Five Action Movies to Stream Now**\
 `This month’s picks include lonely swordsmen, buddy cops, and a World War II German tank.`\
 https://nytimes.com/2026/01/23/movies/five-action-movies-to-stream-now.html
-
-**How to Protect Yourself in Extreme Cold**\
-`It’s not just frostbite and hypothermia. Freezing cold can affect almost every part of your body.`\
-https://nytimes.com/2026/01/23/well/winter-cold-weather-safety.html
-
-**Glasner: Palace yet to receive Mateta bids, ‘no regrets’ over board outburst**\
-`The Austrian said the striker has "not handed in a transfer request" and will play against Chelsea on Sunday. `\
-https://nytimes.com/athletic/6994028/2026/01/23/mateta-transfer-news-crystal-palace-glasner/
-
-**NHL's 6 most compelling teams — and the questions that follow them**\
-`As we near the NHL regular season's home stretch, we still have major questions, beginning with "Are the Penguins actually a playoff team?"`\
-https://nytimes.com/athletic/6994039/2026/01/23/nhl-playoff-standings-surprises-red-light/
 

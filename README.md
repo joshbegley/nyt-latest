@@ -1,3 +1,7 @@
+**Can You Achieve Sports Greatness by Thinking Like a Wall Street Trader?**\
+`Max Greyserman is trying to climb to the top of the PGA Tour by using lessons from his father’s time as a quant.`\
+https://nytimes.com/2026/01/23/magazine/max-greyserman-golf-pga-wall-street.html
+
 **How to watch Rockets vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6994242/2026/01/23/rockets-vs-pistons-stream-how-to-watch-jan-23/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/23/dining/creamy-lasagna-soup-for-a-very-wintry-week
 **Simple or Simplistic? Three Experts Spar Over a California Billionaire Tax.**\
 `California Democrats are fighting over a proposed wealth tax. Can our panel of experts sort out the merits?`\
 https://nytimes.com/2026/01/23/opinion/california-wealth-tax-billionaires.html
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include lonely swordsmen, buddy cops, and a World War II German tank.`\
-https://nytimes.com/2026/01/23/movies/five-action-movies-to-stream-now.html
 
