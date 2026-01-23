@@ -1,3 +1,11 @@
+**Kai Rooney, son of Wayne, makes Old Trafford bow in FA Youth Cup**\
+`The United teenager’s parents watched on from the director’s box as their eldest son made his bow at the stadium.`\
+https://nytimes.com/athletic/6994843/2026/01/23/kai-rooney-manchester-united-old-trafford-fa-youth-cup/
+
+**Denmark’s Prime Minister Makes Unannounced Visit to Greenland**\
+`The trip by Prime Minister Mette Frederiksen to the Danish territory came amid pressure from President Trump and appeared to have been meant as reassurance to Greenlanders.`\
+https://nytimes.com/2026/01/23/world/europe/denmark-greenland-prime-minister-trump.html
+
 **Why the Ice Forecast Has Officials Worried Across the South**\
 `Even a little ice can be far more dangerous than snow in some places.`\
 https://nytimes.com/2026/01/23/weather/winter-storm-ice-tennessee-carolina-mississippi.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/23/world/americas/venezuela-trump-ice-deportation-fl
 **What Does Winter Storm Prep Look Like for You?**\
 `We want to hear about your priorities to get through the next few days.`\
 https://nytimes.com/2026/01/23/weather/winter-storm-callout.html
-
-**Trump’s Turnabout on Greenland Shows the Limits of His Coercive Powers**\
-`President Trump’s faith in his ability to wring concessions by taking maximalist positions was on full display this week. So were the costs, as he splintered NATO and then undercut his credibility by climbing down from his threats.`\
-https://nytimes.com/2026/01/23/us/politics/trumps-greenland-power.html
-
-**How to watch Raptors vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6994723/2026/01/23/raptors-vs-trail-blazers-stream-how-to-watch-jan-23/
 
