@@ -1,3 +1,7 @@
+**Ryan Wedding, ex-Olympic snowboarder on FBI's Most Wanted List, arrested**\
+`The arrest ends a multiyear search for the 44-year-old accused of running a transnational drug trafficking operation.`\
+https://nytimes.com/athletic/6994155/2026/01/23/ryan-wedding-arrest-fbi-olympics/
+
 **2026 Oscar Nominees: Surprises and Snubs**\
 `Kyle Buchanan, our awards season columnist, breaks down the Academy Award nominations for 2026.`\
 https://nytimes.com/video/movies/100000010656682/2026-oscar-nominees-surprises-and-snubs.html
