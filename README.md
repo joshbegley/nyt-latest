@@ -1,3 +1,11 @@
+**Friends, Romans, Celebrities Pay Last Respects to Valentino**\
+`The designer Valentino Garavani, who died on Monday at 93, was celebrated in Rome, a city that he “embodied,” according to its mayor.`\
+https://nytimes.com/2026/01/23/world/europe/valentino-funeral.html
+
+**USC hires former TCU head coach Gary Patterson as defensive coordinator: Source**\
+`Patterson will replace D’Anton Lynn, who served as the Trojans' DC the past two seasons and left for the same role at Penn State.`\
+https://nytimes.com/athletic/6970067/2026/01/23/gary-patterson-usc-defensive-coordinator-tcu/
+
 **Leafs' Berube suffers large cut to head, bruised eye in gym accident**\
 `Craig Berube made news Friday morning by saying that he's giving Anthony Stolarz his first start in the Maple Leafs goal since Nov. 11.`\
 https://nytimes.com/athletic/6994264/2026/01/23/leafs-craig-berube-cut-head-injury-gym/
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/6994259/2026/01/23/nfl-bills-coach-philip-rivers-in
 **How Wide Do You Want Your Clothes?**\
 `At the shows for IM Men, Amiri, Rick Owens and Dries Van Noten, the fits varied from slim to ballooning.`\
 https://nytimes.com/2026/01/23/style/owens-dries-miyaki.html
-
-**Kawhi's return against Lakers marks full circle in Clippers' imperfect turnaround**\
-`Kawhi Leonard returned to the starting lineup, scoring a team-high 24 points in only 25:56 to help the Clippers beat the Lakers 112-104.`\
-https://nytimes.com/athletic/6993533/2026/01/23/kawhi-leonard-clippers-return-lakers/
-
-**For Greenland Tourism, Trump’s Interest Creates Uncertainty**\
-`Bookings to the island increased last year, and there are plans for two new airports. Threats from President Trump may change that.`\
-https://nytimes.com/2026/01/23/travel/greenland-tourism-trump.html
-
-**Rejecting Decades of Science, Vaccine Panel Chair Says Polio and Other Shots Should Be Optional**\
-`Dr. Kirk Milhoan, a pediatric cardiologist who leads the Advisory Committee on Immunization Practices, said a person’s right to refuse a vaccine outweighed concerns about illness or death from infectious diseases.`\
-https://nytimes.com/2026/01/23/health/milhoan-vaccines-optional-polio.html
 
