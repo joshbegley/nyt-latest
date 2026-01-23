@@ -6,7 +6,7 @@ https://nytimes.com/2026/01/23/us/indiana-judge-steven-meyer-shooting-arrests.ht
 `It has been a tentative return and Arsenal are clearly taking great care with a player who has effectively missed a year of football`\
 https://nytimes.com/athletic/6993645/2026/01/23/arsenal-havertz-knee-injury-expectations/
 
-**Arsenal's Calafiori and Hincapie return to training ahead of Man United clash**\
+**Arsenal's Calafiori, Hincapie return to training before Man Utd clash**\
 `Jurrien Timber has been deputising at left-back in Calafiori and Hincapie's absence but their returns provide a boost for Arteta's side.`\
 https://nytimes.com/athletic/6993777/2026/01/23/arsenal-team-news-calafiori-hincapie-man-united/
 
@@ -33,8 +33,4 @@ https://nytimes.com/athletic/6993918/2026/01/23/jack-grealish-injury-everton-tra
 **Read Democrats’ Letter to the Justice Department’s Inspector General**\
 `Representatives Jamie Raskin of Maryland and Robert Garcia of California asked the Justice Department’s inspector general, an internal watchdog, to open a criminal investigation into reports of prison employees’ misconduct.`\
 https://nytimes.com/interactive/2026/01/23/us/politics/raskin-garcia-letter-doj-inspector-general.html
-
-**West Ham reject second bid from Flamengo for Paqueta**\
-`It is the second time this month that West Ham have rejected an offer from the Brazilian side for the 28-year-old.`\
-https://nytimes.com/athletic/6993771/2026/01/23/paqueta-transfer-news-west-ham-flamengo-bid/
 
