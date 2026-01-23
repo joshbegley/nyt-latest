@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Jan. 24, 2026**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2026/01/23/upshot/flashback.html
+
 **Putin’s New Competitor in Wielding Unchecked Power Is Trump**\
 `If the United States under President Trump starts acting as if it’s Russia, where does that leave President Vladimir V. Putin?`\
 https://nytimes.com/2026/01/23/world/europe/trump-putin-russia-us-greenland.html
