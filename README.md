@@ -1,3 +1,15 @@
+**The New York Times in Print for Friday, Jan. 23, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/23/todays-new-york-times
+
+**NATO as We Know It Is Coming to an End, and That’s OK**\
+`Europe has a chance to step out of America’s shadow.`\
+https://nytimes.com/2026/01/23/opinion/trump-greenland-nato-europe.html
+
+**Latin Americans Love the Right. Can You Blame Them?**\
+`The right is ascendant in Latin America. How long will it last?`\
+https://nytimes.com/2026/01/23/opinion/latin-america-right-strongmen-trump-venezuela.html
+
 **Patrick Dorgu is getting better at Manchester United. This is how**\
 `The Denmark international arrived at Old Trafford with rough edges but they are being smoothed out to great effect`\
 https://nytimes.com/athletic/6991175/2026/01/23/patrick-dorgu-manchester-united/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6985694/2026/01/23/ollie-scarles-west-ham-malick-di
 **Leeds have the fewest errors leading to shots. It's helping their Premier League survival bid**\
 `Leeds have made the fewest errors leading to shots in the Premier League and are also impressing when it comes to errors leading to goals`\
 https://nytimes.com/athletic/6991227/2026/01/23/leeds-errors-premier-league-analysis/
-
-**If Real Madrid need a rebuild, what positions should they target?**\
-`Madrid have problems with their squad that go beyond the sacked Xabi Alonso. Where do they need to reinforce?`\
-https://nytimes.com/athletic/6985332/2026/01/23/real-madrid-rebuild-transfers-vinicius-bellingham/
-
-**Why investing in Chelsea assets is the smart play for FPL managers**\
-`With Chelsea having promising fixtures from Gameweek 23, there are plenty of options to consider investing in beyond talisman Cole Palmer`\
-https://nytimes.com/athletic/6988335/2026/01/23/fantasy-premier-league-fpl-tips-chelsea-gameweek-23/
-
-**Special report: Morocco, the 2030 World Cup and accusations of the 'massacre' of street dogs**\
-`In search of the truth behind allegations animals are being brutally killed as part of a clean-up operation ahead of cohosting the World Cup`\
-https://nytimes.com/athletic/6982707/2026/01/23/morocco-dogs-cull-world-cup/
 
