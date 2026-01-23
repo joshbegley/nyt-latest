@@ -1,3 +1,7 @@
+**S.E.C. Drops Case Against Cryptocurrency Firm Founded by Winklevoss Twins**\
+`The agency says that victims of an investment offering involving Gemini Trust got their money back, though after a regulatory action brought by the New York attorney general.`\
+https://nytimes.com/2026/01/23/us/politics/sec-crypto-winklevoss.html
+
 **Until Saturday: How much did this CFB 'era' just change?**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6994981/2026/01/23/indiana-college-football-until-saturday/
