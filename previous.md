@@ -1,3 +1,11 @@
+**Australian Open recap: Carlos Alcaraz's spectacular meets his solid in highlight-reel match**\
+`The world No. 1 is a tennis magician, but playing a fellow showman offered a reminder of the simple things he does to impeccable standards.`\
+https://nytimes.com/athletic/6992698/2026/01/23/tennis-australian-open-recap-results-schedule-day-6/
+
+**Derrick Rose wants to (mostly) put basketball behind him, even if you still see an MVP**\
+`The Bulls will hang Rose’s No. 1 jersey in the United Center rafters, and with it, he hopes to take another step toward a new identity.`\
+https://nytimes.com/athletic/6991963/2026/01/23/derrick-rose-bulls-nba-jersey-retirement-flowers/
+
 **Fantasy Premier League live Q&A: Gameweek 23 advice from Ben Dinnery**\
 `Ben Dinnery is on hand to offer his expert advice on the players to target, who to avoid, and the fitness doubts you need to be aware`\
 https://nytimes.com/athletic/6993571/2026/01/23/fantasy-premier-league-live-qa-gameweek-23-advice-from-ben-dinnery/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/23/us/politics/trump-hand-bruise-aspirin-table.html
 **TAFC: Rodman's new Spirit deal and what it means. Plus: Robertson to Tottenham?**\
 `Today in TAFC: Rodman's new deal and what it means for women's soccer in America and beyond. Plus: Robertson in talks over Tottenham deal.`\
 https://nytimes.com/athletic/6993584/2026/01/23/rodman-spirit-nwsl-deal-robertson-tottenham/
-
-**NBA weekend watch guide: Dončić in Dallas, Thompson twins, return of ABC Saturdays**\
-`Our roundup of this weekend's NBA games on national TV, with a nod to Oscar nominations.`\
-https://nytimes.com/athletic/6992940/2026/01/23/luka-doncic-lakers-mavericks-nba-abc-prime-video/
-
-**Trump Links Bruise on Hand to Aspirin**\
-`President Trump linked a noticeable dark bruise on his hand to “clipping a table” while taking aspirin.`\
-https://nytimes.com/video/us/politics/100000010663504/trump-links-bruise-on-hand-to-aspirin.html
 

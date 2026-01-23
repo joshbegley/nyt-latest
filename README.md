@@ -1,3 +1,7 @@
+**No. 1 favorite Fernando Mendoza declares for 2026 NFL Draft fresh off Heisman, national title**\
+`Mendoza, the 2026 Heisman Trophy winner, could be the Las Vegas Raiders' choice at No. 1 in April.`\
+https://nytimes.com/athletic/6929671/2026/01/23/fernando-mendoza-nfl-draft-2026-indiana/
+
 **Australian Open recap: Carlos Alcaraz's spectacular meets his solid in highlight-reel match**\
 `The world No. 1 is a tennis magician, but playing a fellow showman offered a reminder of the simple things he does to impeccable standards.`\
 https://nytimes.com/athletic/6992698/2026/01/23/tennis-australian-open-recap-results-schedule-day-6/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6993581/2026/01/23/premier-league-upset-picks-under
 **Trump Says He Bruised His Hand on a Table**\
 `The president also said he was prone to bruising because of the high dose of aspirin he has taken daily for three decades.`\
 https://nytimes.com/2026/01/23/us/politics/trump-hand-bruise-aspirin-table.html
-
-**TAFC: Rodman's new Spirit deal and what it means. Plus: Robertson to Tottenham?**\
-`Today in TAFC: Rodman's new deal and what it means for women's soccer in America and beyond. Plus: Robertson in talks over Tottenham deal.`\
-https://nytimes.com/athletic/6993584/2026/01/23/rodman-spirit-nwsl-deal-robertson-tottenham/
 
