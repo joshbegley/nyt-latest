@@ -1,3 +1,11 @@
+**From the sunshine of Seville to boos in Braga - was this the game when Nottingham Forest's season unravelled?**\
+`The travelling fans made their frustration clear as Sean Dyche's side missed a penalty, scored an own goal and were reduced to 10 at Braga`\
+https://nytimes.com/athletic/6992985/2026/01/23/nottingham-forest-braga-europa-league-dyche/
+
+**Tiger Woods and LeBron James card sells for record $552,000**\
+`Woods and James were both born on Dec. 30, which they each noted on one special trading card. `\
+https://nytimes.com/athletic/6988938/2026/01/23/tiger-woods-lebron-james-record-card-sale/
+
 **Aston Villa have learned to control away games in volatile atmospheres. It bodes well**\
 `Aston Villa overcame Fenerbahce 1-0 on Thursday night, handling a raucous crowd in the process`\
 https://nytimes.com/athletic/6992376/2026/01/23/aston-villa-fenerbahce-europa-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6985349/2026/01/23/england-test-next-gen-rew-flinto
 **TOTD: Carrick – Why is there such a rush to make a decision? Plus: Dorgu's Evra inspiration**\
 `In this week's column, we look at the rush to choose (or discard) the next permanent United manager, and ask if Dorgu is coming of age?`\
 https://nytimes.com/athletic/6991176/2026/01/23/carrick-man-utd-manager-decison-dorgu/
-
-**Wilson Odobert is starting to justify the hype – and his transfer fee**\
-`It has not exactly been a vintage season at Tottenham so far, but one bright spark has been the form of young players such as Odobert`\
-https://nytimes.com/athletic/6987349/2026/01/23/wilson-odobert-tottenham-burnley/
-
-**Scarles stepped up while Diouf was at AFCON. What happens now?**\
-`Since Diouf departed in mid-December for AFCON duty, Scarles has started six of West Ham's last seven games in all competitions`\
-https://nytimes.com/athletic/6985694/2026/01/23/ollie-scarles-west-ham-malick-diouf/
 
