@@ -1,40 +1,40 @@
-**Ukrainian, Russian and U.S. Officials to Meet in Abu Dhabi for Peace Talks**\
-`Ukrainian and Russian negotiators have rarely met directly in the past, instead relying on Americans to mediate, and it was unclear how the talks would play out.`\
-https://nytimes.com/2026/01/23/world/europe/ukraine-russia-war-us-peace-talks-abu-dhabi.html
+**'It’s a great story': How did a 26-year-old career AHLer make his NHL breakthrough?**\
+`Steeves has played most of the past few seasons in the AHL and didn't make the Bruins out of camp. Now he has a two-year contract.`\
+https://nytimes.com/athletic/6993196/2026/01/23/bruins-alex-steeves-contract-scoring/
 
-**The point-guard mentality didn't just make Sam Darnold better. It's a useful mental trick**\
-`Part of Sam Darnold's resurgence can be attributed to a mental shift that can go beyond playing QB — the power of the point-guard mentality.`\
-https://nytimes.com/athletic/6990248/2026/01/23/the-point-guard-mentality-didnt-just-make-sam-darnold-better-its-a-useful-mental-trick/
+**Buffalo's playoff push looks real after massive win in Montreal: Sabres thoughts**\
+`In a four-point divisional game, the Sabres withstood a Canadiens push to get within two points of third place in the Atlantic Division.`\
+https://nytimes.com/athletic/6993272/2026/01/23/sabres-playoff-push-byram-kesselring-canadiens/
 
-**If Browns want to keep Jim Schwartz, hiring him as head coach might be their best option**\
-`Schwartz, who has led Cleveland's defense since 2023, would bring familiarity to the team as head coach. But what about the offense?`\
-https://nytimes.com/athletic/6992713/2026/01/23/browns-jim-schwartz-nathan-scheelhaase-head-coach-search/
+**Carlos Beltrán, a man of many hats, ponders a career-capping question in Cooperstown**\
+`Mets? Royals? Logoless? Beltrán, who played for seven teams, hasn't said which one he'd like to rep on his plaque. The Hall has final say.`\
+https://nytimes.com/athletic/6993131/2026/01/23/carlos-beltran-hall-of-fame-plaque-hat/
 
-**Why did Jonathan Taylor fall off? Will the Irsays sell the team? Colts mailbag**\
-`Taylor's production fell off after QB Daniel Jones got injured, but there's more to the story.`\
-https://nytimes.com/athletic/6992351/2026/01/23/colt-mailbag-jonathan-taylor-irsays/
+**Timeline of the Rangers’ decline: How New York hit the reset button twice in 8 years**\
+`An aging core, poor drafting and developing, devaluing of speed and skill and a culture of paranoia have put the Rangers in a tough spot.`\
+https://nytimes.com/athletic/6992134/2026/01/23/ny-rangers-retool-rebuild-timeline-nhl/
 
-**What is it about Sean McVay that has the Rams on the cusp of another Super Bowl?**\
-`Rams players, from the veterans to the rookies, appreciate the authenticity they get from their head coach: "He understands we're a family."`\
-https://nytimes.com/athletic/6990881/2026/01/23/sean-mcvay-rams-super-bowl-playoffs-nfc-championship/
+**Ranking the top remaining MLB free agents still on the market**\
+`These seven free agents still need homes for 2026 and could make big impacts on teams this season.`\
+https://nytimes.com/athletic/6992441/2026/01/23/mlb-best-remaining-free-agents-framber-valdez/
 
-**Vic's Picks, conference championships: Are the Broncos overlooked without Bo Nix?**\
-`Nix is out, but the Broncos could get J.K. Dobbins back, and history suggests you should side with a large home underdog in the playoffs.`\
-https://nytimes.com/athletic/6989800/2026/01/23/nfl-conference-championship-picks-predictions-betting-2025/
+**Elias Pettersson a Flyers target? Rasmus Ristolainen on the move? What I'm hearing**\
+`Let's look at whether it makes sense to keep Ristolainen for a playoff push, and the likelihood of a Pettersson-Rick Tocchet reunion.`\
+https://nytimes.com/athletic/6992130/2026/01/23/flyers-trade-pettersson-ristolainen/
 
-**NFL insider playoff predictions: Coaches, execs pick AFC, NFC Championship winners**\
-`Our panelists are 10-for-10 through the playoffs so far — who are they picking in Patriots-Broncos and Seahawks-Rams?`\
-https://nytimes.com/athletic/6992850/2026/01/23/nfl-insider-playoff-predictions-coaches-pick-conference-championships/
+**Why the Packers' defensive coordinator job might be most enticing for candidates**\
+`Calling plays for two All-Pros in Micah Parsons and Xavier McKinney? That sounds like an intriguing opportunity for any defensive coach.`\
+https://nytimes.com/athletic/6991886/2026/01/23/packers-defensive-coordinator-job/
 
-**For U.S. Olympic women's Alpine team, Lindsey Vonn and Mikaela Shiffrin are just the start**\
-`Four years ago, the American women's Alpine team was shut out of the medals in Beijing. Now, their program is as deep as ever.`\
-https://nytimes.com/athletic/6979801/2026/01/23/lindsey-vonn-mikaela-shiffrin-winter-olympics-us-alpine-team/
+**As Luka returns to Dallas again, Mavs still picking up the shocking pieces**\
+`Nearly a year after blockbuster, Dallas has new executives, a fresh face of the franchise and relationships that still need repairing.`\
+https://nytimes.com/athletic/6987588/2026/01/23/luka-doncic-mavericks-lakers-trade-return/
 
-**The New York Times International Edition in Print for Saturday, Jan. 24, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/01/23/todays-new-york-times-international-edition
+**2026 NFL Draft prospects to watch during Shrine Bowl practices**\
+`The Shrine Bowl serves as the unofficial launch to NFL Draft season. Which prospects will scouts be tracking in Frisco, Texas? `\
+https://nytimes.com/athletic/6985896/2026/01/23/shrine-bowl-nfl-draft-2026-prospects-klubnik-perkins/
 
-**The Final Indignities Inflicted on Iran’s Protest Victims**\
-`Witness testimony and videos from Tehran’s largest cemetery show disrespectful treatment of the dead after a brutal government crackdown.`\
-https://nytimes.com/2026/01/23/world/middleeast/iran-protests-victims-bodies.html
+**3 Things to Know About the TikTok Deal, and a New Protest Tactic in Minnesota**\
+`Plus, your Friday news quiz.`\
+https://nytimes.com/2026/01/23/podcasts/the-headlines/tiktok-deal-new-protest-tactic-in-minnesota.html
 
