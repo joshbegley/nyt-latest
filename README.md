@@ -1,3 +1,7 @@
+**Read Democrats’ Letter to the Justice Department’s Inspector General**\
+`Representatives Jamie Raskin of Maryland and Robert Garcia of California asked the Justice Department’s inspector general, an internal watchdog, to open a criminal investigation into reports of prison employees’ misconduct.`\
+https://nytimes.com/interactive/2026/01/23/us/politics/raskin-garcia-letter-doj-inspector-general.html
+
 **West Ham reject second bid from Flamengo for Paqueta**\
 `It is the second time this month that West Ham have rejected an offer from the Brazilian side for the 28-year-old.`\
 https://nytimes.com/athletic/6993771/2026/01/23/paqueta-transfer-news-west-ham-flamengo-bid/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6993771/2026/01/23/paqueta-transfer-news-west-ham-f
 `Representatives Jamie Raskin of Maryland and Robert Garcia of California, the top Democrats on the Judiciary and Oversight Committees, said that more than a dozen people had come forward with whistle-blower complaints about the treatment of Ghislaine Maxwell, the longtime companion of Jeffrey Epstein.`\
 https://nytimes.com/interactive/2026/01/23/us/politics/raskin-garcia-letter-bondi.html
 
-**Mike McDaniel interviewing for Bills head coaching job as Chargers wait**\
+**Mike McDaniel is interviewing for Bills head-coaching job as Chargers wait**\
 `Josh Allen is sitting in on Bills' head-coaching interviews as the team searches for a replacement for Sean McDermott.`\
 https://nytimes.com/athletic/6993830/2026/01/23/mike-mcdaniel-bills-chargers/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6993845/2026/01/23/panthers-mailbag-questions-reade
 **Low Rates Sound Great. But a Trump Fed Could Cause a Painful ‘Sugar High.’**\
 `Dropping rates more than conditions warrant would stimulate the economy in the short term but could lead to trouble, our columnist says.`\
 https://nytimes.com/2026/01/23/business/trump-fed-interest-rates-inflation.html
-
-**New Rules for 401(k) ‘Catch-Up’ Contributions in 2026**\
-`Older high-income workers who make contributions beyond the standard amount will have to put that extra money into a Roth 401(k). That may lower their take-home pay.`\
-https://nytimes.com/2026/01/23/your-money/401k-contributions-catch-up-roth-retirement.html
 
