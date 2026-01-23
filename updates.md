@@ -1,3 +1,15 @@
+**Kawhi's return against Lakers marks full circle in Clippers' imperfect turnaround**\
+`Kawhi Leonard returned to the starting lineup, scoring a team-high 24 points in only 25:56 to help the Clippers beat the Lakers 112-104.`\
+https://nytimes.com/athletic/6993533/2026/01/23/kawhi-leonard-clippers-return-lakers/
+
+**For Greenland Tourism, Trump’s Interest Creates Uncertainty**\
+`Bookings to the island increased last year, and there are plans for two new airports. Threats from President Trump may change that.`\
+https://nytimes.com/2026/01/23/travel/greenland-tourism-trump.html
+
+**Rejecting Decades of Science, Vaccine Panel Chair Says Polio and Other Shots Should Be Optional**\
+`Dr. Kirk Milhoan, a pediatric cardiologist who leads the Advisory Committee on Immunization Practices, said a person’s right to refuse a vaccine outweighed concerns about illness or death from infectious diseases.`\
+https://nytimes.com/2026/01/23/health/milhoan-vaccines-optional-polio.html
+
 **Canadian Ex-Snowboarder Accused of Running Drug Ring Is Arrested**\
 `Ryan Wedding, 44, who competed in the Winter Olympics in 2002, has been charged with murder and with smuggling cocaine into the United States.`\
 https://nytimes.com/2026/01/23/world/canada/ryan-wedding-arrest.html
