@@ -1,3 +1,7 @@
+**There’s a New American TikTok. What Does That Mean for You?**\
+`The popular short form video app has a new corporate structure in the United States, which could result in some changes for the 200 million Americans who use TikTok.`\
+https://nytimes.com/2026/01/22/business/media/tiktok-sold-app-content-algorithm.html
+
 **On the Level**\
 `Joyce Keller opens our solving weekend.`\
 https://nytimes.com/2026/01/22/crosswords/daily-puzzle-2026-01-23.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/us/ice-deports-man-jewel-heist.html
 **Face to Face With History’s Most Dangerous Painter**\
 `Jacques-Louis David, artist and politician of the French Revolution, has beguiled our critic Jason Farago for years — and scared him, too. Let him show you why.`\
 https://nytimes.com/interactive/2026/01/22/arts/jacques-louis-david-painter-french-revolution.html
-
-**Carlos Beltrán: Astros' cheating scandal 'doesn't define' me**\
-`Beltrán conceded that he can never escape the shadows cast by the scandal. But, he said, "that doesn’t really define the person that I am."`\
-https://nytimes.com/athletic/6992812/2026/01/22/carlos-beltran-hall-of-fame-astros-cheating-scandal/
 
