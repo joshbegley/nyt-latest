@@ -1,3 +1,11 @@
+**5 Arrested in Shooting of Indiana Judge and His Wife**\
+`Three people from Indiana and two from Kentucky are in custody, officials said. The judge, Steven Meyer, and his wife were injured but are recovering.`\
+https://nytimes.com/2026/01/23/us/indiana-judge-steven-meyer-shooting-arrests.html
+
+**What can Arsenal expect from Kai Havertz this season?**\
+`It has been a tentative return and Arsenal are clearly taking great care with a player who has effectively missed a year of football`\
+https://nytimes.com/athletic/6993645/2026/01/23/arsenal-havertz-knee-injury-expectations/
+
 **Arsenal's Calafiori and Hincapie return to training ahead of Man United clash**\
 `Jurrien Timber has been deputising at left-back in Calafiori and Hincapie's absence but their returns provide a boost for Arteta's side.`\
 https://nytimes.com/athletic/6993777/2026/01/23/arsenal-team-news-calafiori-hincapie-man-united/
