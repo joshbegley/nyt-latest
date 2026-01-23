@@ -1,3 +1,23 @@
+**How the National Park Service Is Deleting American History**\
+`Philadelphia sued the Trump administration after it directed the Park Service to rip out a memorial to slavery. Elsewhere, materials about climate change and labor history were being removed.`\
+https://nytimes.com/2026/01/23/climate/national-park-service-deleting-american-history-slavery.html
+
+**Joint Chiefs Chairman Issues Rare Invitation to Foreign Military Heads**\
+`Top military leaders from 34 countries plan to discuss improving efforts in the Western Hemisphere to fight drug trafficking and transnational criminal organizations.`\
+https://nytimes.com/2026/01/23/us/politics/military-western-hemisphere-leaders.html
+
+**Are Republicans Growing a Little Uneasy About the ICE Raids?**\
+`Polls, careful remarks from JD Vance and chats with voters all point to some wariness.`\
+https://nytimes.com/2026/01/23/us/politics/ice-immigration-republicans-voters.html
+
+**Snow and Ice Are Coming. Where Is the Salt?**\
+`Heavy snow, ice and bitter cold are threatening much of the country, but some places are short on a key resource: road salt.`\
+https://nytimes.com/2026/01/23/weather/salt-shortage-snow-storm.html
+
+**National Park Service Removes Slavery Exhibit in Philadelphia**\
+`Following a directive from President Trump, the National Park Service removed a Philadelphia exhibit memorializing nine people enslaved by George Washington. The administration ordered the removal of materials that promote “corrosive ideology” in favor of those highlighting American “greatness.”`\
+https://nytimes.com/video/us/politics/100000010664240/philadelphia-slavery-exhibit-trump.html
+
 **Croatian tennis player Jana Fett suspended for anti-doping violation**\
 `Fett's suspension stems from a test during the Billie Jean King Cup playoffs in November 2025.`\
 https://nytimes.com/athletic/6994875/2026/01/23/jana-fett-tennis-suspended-croatia/
@@ -11,30 +31,10 @@ https://nytimes.com/athletic/6994640/2026/01/23/broncos-jk-dobbins-afc-champions
 https://nytimes.com/card/2026/01/23/smarter-living/wirecutter/
 
 **F.B.I. Agent Who Tried to Investigate ICE Officer in Shooting Resigns**\
-`The resignation of the agent, Tracee Mergen, was the only latest shock wave to have emerged from the Justice Department’s handling of the shooting of Renee Good.`\
+`The resignation of the agent, Tracee Mergen, was only the latest shock wave to have emerged from the Justice Department’s handling of the shooting of Renee Good.`\
 https://nytimes.com/2026/01/23/us/fbi-agent-ice-shooting-renee-good.html
 
 **Is This Who Trump Meant by the ‘Worst of the Worst’?**\
 `The columnist Jamelle Bouie argues that the Trump administration’s immigration policy has more in common with ethnic cleansing than actual immigration enforcement.`\
 https://nytimes.com/video/opinion/100000010664980/is-this-who-trump-meant-by-the-worst-of-the-worst.html
-
-**Former Olympian Arrested on Drug Trafficking and Murder Charges**\
-`F.B.I. agents arrested Ryan Wedding, a former Olympic snowboarder, in Mexico on Thursday. Mr. Wedding is accused of smuggling cocaine into the United States and hiring a hitman to kill an F.B.I informant. The ex-snowboarder is expected to appear in court on Monday.`\
-https://nytimes.com/video/world/canada/100000010665043/ryan-wedding-arrest-video.html
-
-**Forecasters Warn ‘Frostbite Can Occur in Minutes’ as Bitter Cold Sweeps Canada**\
-`The lowest temperatures are expected in southern Saskatchewan and southern Manitoba.`\
-https://nytimes.com/2026/01/23/weather/canada-cold-forecast.html
-
-**What Stephen Miller Is Signaling to ICE Officers**\
-`Stephen Miller’s public endorsement of aggressive ICE tactics marks a new chapter in American immigration enforcement, says Caitlin Dickerson, a journalist, on “The Ezra Klein Show.”`\
-https://nytimes.com/video/opinion/100000010650076/what-stephen-miller-is-signaling-to-ice-officers.html
-
-**Trump’s $170 Billion Surveillance Machine**\
-`Caitlin Dickerson, a journalist, explores the unrestrained power and perils of Trump’s immigration enforcement on “The Ezra Klein Show.”`\
-https://nytimes.com/video/opinion/100000010650073/trumps-170-billion-surveillance-machine.html
-
-**ICE, School District Give Conflicting Accounts of Child’s Detainment**\
-`Liam Conejo Ramos, 5, was detained with his father by immigration authorities on Tuesday. The school district and the federal government have given conflicting accounts of what happened during the arrest.`\
-https://nytimes.com/video/us/politics/100000010663630/ice-arrests-boy-minnesota.html
 
