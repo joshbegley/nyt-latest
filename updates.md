@@ -1,3 +1,23 @@
+**Returning to Toronto with Vegas, Mitch Marner doesn't want to 'look back'**\
+`The best homegrown player in Maple Leafs history acknowledged that he was feeling mixed emotions ahead of Friday’s visit.`\
+https://nytimes.com/athletic/6994187/2026/01/23/mitch-marner-leafs-golden-knights/
+
+**Women's Champions Cup winners will earn $2.3m**\
+`The intercontinental tournament will be competed for the first time between January 28 and February 1.`\
+https://nytimes.com/athletic/6994295/2026/01/23/womens-champions-cup-prize-money-fifa/
+
+**To Halt Trump’s Abuse of Power: Vote**\
+`Readers respond to an editorial about President Trump, justice and vengeance. Also: Ordinary Americans who protest; open-ended questions.`\
+https://nytimes.com/2026/01/23/opinion/trump-abuse-power.html
+
+**For His Next Act, Ex-Ford Foundation Leader Heads to Hollywood**\
+`Anonymous Content, a production company whose top investor is Laurene Powell Jobs’s Emerson Collective, has named Darren Walker as president and chief executive.`\
+https://nytimes.com/2026/01/23/arts/design/darren-walker-anonymous-content.html
+
+**The Aviation System Is Preparing for Storm-Driven Chaos**\
+`Airlines are canceling hundreds of flights over the weekend in anticipation of frigid weather and ice and snow across much of the country.`\
+https://nytimes.com/2026/01/23/business/airlines-travel-storm.html
+
 **How to Treat Dry Lips**\
 `Expert advice from a musician, a model and an aesthetician.`\
 https://nytimes.com/2026/01/23/t-magazine/dry-chapped-lips-treatment.html
