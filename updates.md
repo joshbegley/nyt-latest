@@ -22,7 +22,7 @@ https://nytimes.com/video/us/politics/100000010662338/according-to-vance-ice-off
 `The Canadian prime minister spoke after returning from the World Economic Forum where he urged middle powers to team up in resisting President Trump.`\
 https://nytimes.com/2026/01/22/world/canada/carney-trump-canada-speech.html
 
-**Rodman, Spirit agree on record deal to make USWNT star one of the highest paid women's players**\
+**Rodman, Spirit agree on new deal to keep USWNT star in NWSL through 2028**\
 `Rodman's signing ends a prolonged NWSL saga and keeps the U.S. women's national team star in the nation's capital`\
 https://nytimes.com/athletic/6986284/2026/01/22/trinity-rodman-contract-washington-spirit-nwsl/
 
