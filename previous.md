@@ -1,3 +1,7 @@
+**Man Accused in $100 Million Jewel Heist Is Deported, Thwarting Trial**\
+`The move comes as ICE seeks to deport more people charged with crimes, sometimes before their cases are resolved.`\
+https://nytimes.com/2026/01/22/us/ice-deports-man-jewel-heist.html
+
 **Face to Face With History’s Most Dangerous Painter**\
 `Jacques-Louis David, artist and politician of the French Revolution, has beguiled our critic Jason Farago for years — and scared him, too. Let him show you why.`\
 https://nytimes.com/interactive/2026/01/22/arts/jacques-louis-david-painter-french-revolution.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6992367/2026/01/22/curt-cignetti-chipotle-indiana-f
 **ICE Demands More Access to Minnesota Inmates. But It’s Complicated.**\
 `The Trump administration said it would ease its immigration operation in Minnesota in exchange for broader access to inmates. Local leaders say they already cooperate significantly.`\
 https://nytimes.com/2026/01/22/us/ice-minnesota-inmates.html
-
-**Driving in Winter? Follow These Expert Tips to Arrive Safely.**\
-`A storm is expected to bring hazardous driving conditions to much of the United States this weekend. Stay home if you can, but those who must travel should take it slow.`\
-https://nytimes.com/2026/01/22/us/safe-winter-driving-tips.html
 
