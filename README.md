@@ -1,3 +1,7 @@
+**CF Montréal finalizing deal to acquire Tomás Avilés from Inter Miami: Sources**\
+`CF Montréal has been successful in acquiring talented young players in the intra-MLS market.`\
+https://nytimes.com/athletic/6992963/2026/01/22/cf-montreal-tomas-aviles-trade-inter-miami/
+
 **Kyrie Irving still has 'no timeline' for return from injury, Jason Kidd says**\
 `Dallas Mavericks coach Jason Kidd said there's still "no timeline" for Irving's potential return from a torn ACL.`\
 https://nytimes.com/athletic/6992775/2026/01/22/kyrie-irving-playing-injury-status-update-mavericks/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/us/politics/greenland-trump-cold-war.html
 **Peak newsletter: The lesson in Josh Allen’s emotional moment**\
 `Peak newsletter 🧠 | This is The Athletic&#8217;s weekly newsletter covering the mental side of sports.`\
 https://nytimes.com/athletic/6992198/2026/01/22/josh-allen-leadership-peak-newsletter/
-
-**TikTok Strikes Deal for New U.S. Entity, Ending Long Legal Saga**\
-`The Chinese parent company of the popular video app said a group of non-Chinese investors would create an American TikTok to avoid a federal ban.`\
-https://nytimes.com/2026/01/22/technology/tiktok-deal-oracle-bytedance-china-us.html
 
