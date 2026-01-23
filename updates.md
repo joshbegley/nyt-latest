@@ -1,3 +1,11 @@
+**Patrick Dorgu is getting better at Manchester United. This is how**\
+`The Denmark international arrived at Old Trafford with rough edges but they are being smoothed out to great effect`\
+https://nytimes.com/athletic/6991175/2026/01/23/patrick-dorgu-manchester-united/
+
+**England's Next Gen: Who are the bright young things offering hope for the future?**\
+`The senior team may be licking their wounds after another Ashes thrashing, but there are promising youngsters emerging through the ranks`\
+https://nytimes.com/athletic/6985349/2026/01/23/england-test-next-gen-rew-flintoff-vaughan/
+
 **TOTD: Carrick – Why is there such a rush to make a decision? Plus: Dorgu's Evra inspiration**\
 `In this week's column, we look at the rush to choose (or discard) the next permanent United manager, and ask if Dorgu is coming of age?`\
 https://nytimes.com/athletic/6991176/2026/01/23/carrick-man-utd-manager-decison-dorgu/
