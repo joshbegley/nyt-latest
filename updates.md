@@ -1,3 +1,7 @@
+**Alabama to play Bediako on Saturday after court ruling; NCAA meets with DI coaches**\
+`Alabama coach Nate Oats defended Bediako and Alabama on Friday while calling the current system "broken."`\
+https://nytimes.com/athletic/6994955/2026/01/23/alabama-charles-bediako-saturday-ncaa-basketball-eligibility/
+
 **S.E.C. Drops Case Against Cryptocurrency Firm Founded by Winklevoss Twins**\
 `The agency says that victims of an investment offering involving Gemini Trust got their money back, though after a regulatory action brought by the New York attorney general.`\
 https://nytimes.com/2026/01/23/us/politics/sec-crypto-winklevoss.html

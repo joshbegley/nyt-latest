@@ -1,3 +1,11 @@
+**Islanders plan to relocate AHL affiliate from Bridgeport to Hamilton: Sources**\
+`League sources say a deal has yet to be finalized, and hurdles must be cleared before the Bridgeport Islanders can officially make the move.`\
+https://nytimes.com/athletic/6994982/2026/01/23/islanders-ahl-bridgeport-hamilton-relocation-td-coliseum/
+
+**Buffalo Sauce**\
+`Nutty browned butter adds a wonderful underlying note to this otherwise straightforward Buffalo sauce.`\
+https://nytimes.com/video/dining/100000010368742/buffalo-sauce.html
+
 **Alabama to play Bediako on Saturday after court ruling; NCAA meets with DI coaches**\
 `Alabama coach Nate Oats defended Bediako and Alabama on Friday while calling the current system "broken."`\
 https://nytimes.com/athletic/6994955/2026/01/23/alabama-charles-bediako-saturday-ncaa-basketball-eligibility/
@@ -17,16 +25,4 @@ https://nytimes.com/athletic/6994961/2026/01/23/blades-brown-american-express-pg
 **Manhattan Doorman Killed as N.Y.P.D. Sergeant Crashes Into Him Head-On**\
 `The sergeant, Tiffany Howell, 47, was driving the wrong way on the Taconic State Parkway in New York when she crashed into Manuel Boitel, 61, the state police said.`\
 https://nytimes.com/2026/01/23/nyregion/nypd-crash-tiffany-howell.html
-
-**John H. Beyer, 92, Dies; Architect Championed Historic Preservation**\
-`The last surviving founder of Beyer Blinder Belle, he helped safeguard New York City’s past even as developers raced to push the city into the future.`\
-https://nytimes.com/2026/01/23/arts/design/john-h-beyer-dead.html
-
-**Vance Announces Expansion of ‘Mexico City Rule’ to Cover D.E.I. and ‘Radical’ Gender Policies**\
-`The change, which could affect more than $30 billion in foreign assistance, is the Trump administration’s latest move against what the president calls “woke ideology.”`\
-https://nytimes.com/2026/01/23/us/politics/mexico-city-rule-trump-vance.html
-
-**Russia Jails U.S. Navy Veteran for Five Years**\
-`Charles Wayne Zimmerman, who had been fulfilling his dream to sail around the world, appears to be the latest American imprisoned as part of Russia’s “hostage diplomacy.”`\
-https://nytimes.com/2026/01/23/world/europe/russia-jails-american-sailor-chuck-zimmerman.html
 

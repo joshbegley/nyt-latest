@@ -1,3 +1,7 @@
+**Alabama to play Bediako on Saturday after court ruling; NCAA meets with DI coaches**\
+`Alabama coach Nate Oats defended Bediako and Alabama on Friday while calling the current system "broken."`\
+https://nytimes.com/athletic/6994955/2026/01/23/alabama-charles-bediako-saturday-ncaa-basketball-eligibility/
+
 **S.E.C. Drops Case Against Cryptocurrency Firm Founded by Winklevoss Twins**\
 `The agency says that victims of an investment offering involving Gemini Trust got their money back, though after a regulatory action brought by the New York attorney general.`\
 https://nytimes.com/2026/01/23/us/politics/sec-crypto-winklevoss.html
@@ -25,8 +29,4 @@ https://nytimes.com/2026/01/23/us/politics/mexico-city-rule-trump-vance.html
 **Russia Jails U.S. Navy Veteran for Five Years**\
 `Charles Wayne Zimmerman, who had been fulfilling his dream to sail around the world, appears to be the latest American imprisoned as part of Russia’s “hostage diplomacy.”`\
 https://nytimes.com/2026/01/23/world/europe/russia-jails-american-sailor-chuck-zimmerman.html
-
-**America Prepares for a Major Storm**\
-`Also, demonstrators flooded Minneapolis streets to protest ICE. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2026/01/23/briefing/america-prepares-for-a-major-storm.html
 
