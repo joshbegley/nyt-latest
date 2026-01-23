@@ -1,3 +1,11 @@
+**Carlos Beltrán: Astros' cheating scandal 'doesn't define' me**\
+`Beltrán conceded that he can never escape the shadows cast by the scandal. But, he said, "that doesn’t really define the person that I am."`\
+https://nytimes.com/athletic/6992812/2026/01/22/carlos-beltran-hall-of-fame-astros-cheating-scandal/
+
+**F.A.A. Says Helicopter Restrictions Imposed After D.C. Crash Will Stay**\
+`The agency said that expanding the restrictions and making them permanent were urgent steps for avoiding another crash.`\
+https://nytimes.com/2026/01/22/us/politics/helicopter-restrictions-washington-crash.html
+
 **CF Montréal finalizing deal to acquire Tomás Avilés from Inter Miami: Sources**\
 `CF Montréal has been successful in acquiring talented young players in the intra-MLS market.`\
 https://nytimes.com/athletic/6992963/2026/01/22/cf-montreal-tomas-aviles-trade-inter-miami/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/22/us/safe-winter-driving-tips.html
 **Scoop City: Meet the Broncos' new QB**\
 `Why the Broncos' new starting QB could surprise, notes from the Bills' coaching search and eventful news conference`\
 https://nytimes.com/athletic/6992796/2026/01/22/broncos-backup-qb-stidham-bills-news-conference/
-
-**Nazis, Soviets and Trump: America’s Fixation With Greenland**\
-`The idea that Greenland is essential to the United States has returned with a vengeance in the Trump era.`\
-https://nytimes.com/2026/01/22/us/politics/greenland-trump-cold-war.html
-
-**Peak newsletter: The lesson in Josh Allen’s emotional moment**\
-`Peak newsletter 🧠 | This is The Athletic&#8217;s weekly newsletter covering the mental side of sports.`\
-https://nytimes.com/athletic/6992198/2026/01/22/josh-allen-leadership-peak-newsletter/
 
