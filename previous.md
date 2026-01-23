@@ -1,3 +1,11 @@
+**The Message Behind Trump’s Lawsuit Against JPMorgan**\
+`The president’s legal efforts against the Wall Street giant and Jamie Dimon, its chief executive, have put Corporate America on edge.`\
+https://nytimes.com/2026/01/23/business/dealbook/trump-lawsuit-jpmorgan-dimon.html
+
+**British Lawmakers Unite in Anger Over Trump’s Afghanistan War Claim**\
+`President Trump said that NATO soldiers stayed “a little off the front lines” during the conflict. In Britain, which lost 457 soldiers in the war, the response was swift.`\
+https://nytimes.com/2026/01/23/world/europe/uk-soldiers-afghanistan-trump-nato.html
+
 **NFLPA fires lawyer who sued union leaders over alleged retaliation**\
 `Heather McPhee was fired after she sued the union, alleging it conspired to prevent her from serving as a witness in a DOJ investigation.`\
 https://nytimes.com/athletic/6993398/2026/01/23/heather-mcphee-fired-nflpa-lawsuit/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6991963/2026/01/23/derrick-rose-bulls-nba-jersey-re
 **Fantasy Premier League live Q&A: Gameweek 23 advice from Ben Dinnery**\
 `Ben Dinnery is on hand to offer his expert advice on the players to target, who to avoid, and the fitness doubts you need to be aware`\
 https://nytimes.com/athletic/6993571/2026/01/23/fantasy-premier-league-live-qa-gameweek-23-advice-from-ben-dinnery/
-
-**Wizards must have more than Trae Young and lottery luck to take a leap next season**\
-`Washington is squarely in the middle of Year 3 of its teardown. There should not be a fourth.`\
-https://nytimes.com/athletic/6992770/2026/01/23/trae-young-wizards-draft-lottery-luck/
-
-**‘The Headlines’ News Quiz: Jan. 23, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://nytimes.com/2026/01/23/podcasts/the-headlines/the-headlines-news-quiz-jan-23-2026.html
 

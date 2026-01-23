@@ -1,3 +1,11 @@
+**The Message Behind Trump’s Lawsuit Against JPMorgan**\
+`The president’s legal efforts against the Wall Street giant and Jamie Dimon, its chief executive, have put Corporate America on edge.`\
+https://nytimes.com/2026/01/23/business/dealbook/trump-lawsuit-jpmorgan-dimon.html
+
+**British Lawmakers Unite in Anger Over Trump’s Afghanistan War Claim**\
+`President Trump said that NATO soldiers stayed “a little off the front lines” during the conflict. In Britain, which lost 457 soldiers in the war, the response was swift.`\
+https://nytimes.com/2026/01/23/world/europe/uk-soldiers-afghanistan-trump-nato.html
+
 **NFLPA fires lawyer who sued union leaders over alleged retaliation**\
 `Heather McPhee was fired after she sued the union, alleging it conspired to prevent her from serving as a witness in a DOJ investigation.`\
 https://nytimes.com/athletic/6993398/2026/01/23/heather-mcphee-fired-nflpa-lawsuit/
