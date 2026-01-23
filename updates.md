@@ -1,3 +1,7 @@
+**Aston Villa have learned to control away games in volatile atmospheres. It bodes well**\
+`Aston Villa overcame Fenerbahce 1-0 on Thursday night, handling a raucous crowd in the process`\
+https://nytimes.com/athletic/6992376/2026/01/23/aston-villa-fenerbahce-europa-league/
+
 **Penguins earn statement win, and Malkin makes a statement: 'I never said I want to retire'**\
 `The 39-year-old future Hall of Famer helped Pittsburgh notch one of its most impressive wins of the season in Edmonton.`\
 https://nytimes.com/athletic/6993214/2026/01/23/penguins-oilers-evgeni-malkin-statement/
