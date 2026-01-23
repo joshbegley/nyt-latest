@@ -1,3 +1,7 @@
+**Ukrainian, Russian and U.S. Officials to Meet in Abu Dhabi for Peace Talks**\
+`Ukrainian and Russian negotiators have rarely met directly in the past, instead relying on Americans to mediate, and it was unclear how the talks would play out.`\
+https://nytimes.com/2026/01/23/world/europe/ukraine-russia-war-us-peace-talks-abu-dhabi.html
+
 **The point-guard mentality didn't just make Sam Darnold better. It's a useful mental trick**\
 `Part of Sam Darnold's resurgence can be attributed to a mental shift that can go beyond playing QB — the power of the point-guard mentality.`\
 https://nytimes.com/athletic/6990248/2026/01/23/the-point-guard-mentality-didnt-just-make-sam-darnold-better-its-a-useful-mental-trick/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todaysinyt/2026/01/23/todays-new-york-times-internatio
 **The Final Indignities Inflicted on Iran’s Protest Victims**\
 `Witness testimony and videos from Tehran’s largest cemetery show disrespectful treatment of the dead after a brutal government crackdown.`\
 https://nytimes.com/2026/01/23/world/middleeast/iran-protests-victims-bodies.html
-
-**Vietnam’s Leader Consolidates Power, Pledging ‘New Era of Prosperity’**\
-`To Lam, the head of Vietnam’s Communist Party, will also become president of the nation. His new stature comes with new risks.`\
-https://nytimes.com/2026/01/23/world/asia/vietnam-lam-power-congress.html
 
