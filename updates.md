@@ -1,3 +1,7 @@
+**TAFC: Rodman's new Spirit deal and what it means. Plus: Robertson to Tottenham?**\
+`Today in TAFC: Rodman's new deal and what it means for women's soccer in America and beyond. Plus: Robertson in talks over Tottenham deal.`\
+https://nytimes.com/athletic/6993584/2026/01/23/rodman-spirit-nwsl-deal-robertson-tottenham/
+
 **NBA weekend watch guide: Dončić in Dallas, Thompson twins, return of ABC Saturdays**\
 `Our roundup of this weekend's NBA games on national TV, with a nod to Oscar nominations.`\
 https://nytimes.com/athletic/6992940/2026/01/23/luka-doncic-lakers-mavericks-nba-abc-prime-video/
