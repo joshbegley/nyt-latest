@@ -1,3 +1,7 @@
+**Louis E. Brus, Nobel Laureate Who Illuminated the Nanoworld, Dies at 82**\
+`He accidentally created some of the first quantum dots, tiny semiconductors that now power many electronics.`\
+https://nytimes.com/2026/01/23/science/louis-e-brus-dead.html
+
 **What went wrong for Keon Coleman in Buffalo? What's next for the Bills at WR?**\
 `Comments about him from the Bills owner and general manager made waves this week.`\
 https://nytimes.com/athletic/6994412/2026/01/23/nfl-bills-draft-keon-coleman-wr/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/23/nyregion/garcia-port-authority-sherrill.html
 **Defending His Absence in House, Hunt Celebrates Casting a Vote**\
 `House leaders were forced to rush Representative Wesley Hunt, Republican of Texas, to the Capitol with a police escort to avoid an embarrassing defeat on the floor.`\
 https://nytimes.com/2026/01/23/us/politics/wesley-hunt-texas-vote-house.html
-
-**Hoping for More From Trump, Abortion Opponents Gather in Washington**\
-`“This is not the direction that we were hoping for,” the president of a leading anti-abortion group said ahead of the March for Life.`\
-https://nytimes.com/2026/01/23/us/march-for-life-trump-vance.html
 
