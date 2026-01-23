@@ -1,3 +1,7 @@
+**Giants rebuffed after making aggressive pitch for Nationals' CJ Abrams: Source**\
+`After finding it difficult to make trades involving prospects, the Giants may need to turn to the free-agent market to make roster upgrades.`\
+https://nytimes.com/athletic/6994852/2026/01/23/sf-giants-cj-abrams-trade-talks-josuar-gonzalez/
+
 **What to Do Now to Prepare Your Home for the Winter Storm**\
 `Follow these steps to stay warm and safe.`\
 https://nytimes.com/2026/01/23/realestate/winter-storm-preparations-for-home.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/23/nyregion/kaz-daughtry-ice-dhs.html
 **NCAA approves proposal to allow teams to wear sponsorship logo patches**\
 `Teams can begin displaying up to two logo patches of no more than 4 square inches on uniforms starting Aug. 1.`\
 https://nytimes.com/athletic/6994700/2026/01/23/ncaa-logo-patches-college-uniforms/
-
-**Facing U.S. Pressure, Venezuela Agrees to Take More Deportees**\
-`Venezuela’s interim government, in another sign of its willingness to placate the Trump administration, is receiving more deportation flights. Three flights arrived this week.`\
-https://nytimes.com/2026/01/23/world/americas/venezuela-trump-ice-deportation-flights.html
 
