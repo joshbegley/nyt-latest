@@ -1,5 +1,9 @@
+**What to Do Now to Prepare Your Home for the Winter Storm**\
+`Follow these steps to stay warm and safe.`\
+https://nytimes.com/2026/01/23/realestate/winter-storm-preparations-for-home.html
+
 **Kai Rooney, son of Wayne, makes Old Trafford bow in FA Youth Cup**\
-`The United teenager’s parents watched on from the director’s box as their eldest son made his bow at the stadium.`\
+`The United teenager’s parents watched on from the director’s box as their eldest son made his first appearance at the stadium.`\
 https://nytimes.com/athletic/6994843/2026/01/23/kai-rooney-manchester-united-old-trafford-fa-youth-cup/
 
 **Denmark’s Prime Minister Makes Unannounced Visit to Greenland**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6994700/2026/01/23/ncaa-logo-patches-college-unifor
 **Facing U.S. Pressure, Venezuela Agrees to Take More Deportees**\
 `Venezuela’s interim government, in another sign of its willingness to placate the Trump administration, is receiving more deportation flights. Three flights arrived this week.`\
 https://nytimes.com/2026/01/23/world/americas/venezuela-trump-ice-deportation-flights.html
-
-**What Does Winter Storm Prep Look Like for You?**\
-`We want to hear about your priorities to get through the next few days.`\
-https://nytimes.com/2026/01/23/weather/winter-storm-callout.html
 
