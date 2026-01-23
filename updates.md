@@ -1,3 +1,7 @@
+**After Pleas From Mamdani and Hochul, Talks Resume in Nurses’ Strike**\
+`Nearly 15,000 health care workers in New York have been off the job since last week in a labor action affecting some of the city’s major hospitals.`\
+https://nytimes.com/2026/01/23/nyregion/nyc-nurses-strike-mamdani-hochul.html
+
 **After TikTok Deal, Chinese Companies Search for a New Global Path**\
 `Chinese firms must contend with geopolitical tensions and mistrust to do business in the United States. Some are choosing to avoid the U.S. altogether.`\
 https://nytimes.com/2026/01/23/business/tiktok-china-technology.html
