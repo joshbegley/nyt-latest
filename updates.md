@@ -1,3 +1,15 @@
+**Until Saturday: How much did this CFB 'era' just change?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6994981/2026/01/23/indiana-college-football-until-saturday/
+
+**Blades Brown, 18, ties Scottie for AmEx lead with course-record 60**\
+`The known prodigy was playing his sixth round in as many days after starting the week on the Korn Ferry Tour.`\
+https://nytimes.com/athletic/6994961/2026/01/23/blades-brown-american-express-pga-tour-lead-60/
+
+**Manhattan Doorman Killed as N.Y.P.D. Sergeant Crashes Into Him Head-On**\
+`The sergeant, Tiffany Howell, 47, was driving the wrong way on the Taconic State Parkway in New York when she crashed into Manuel Boitel, 61, the state police said.`\
+https://nytimes.com/2026/01/23/nyregion/nypd-crash-tiffany-howell.html
+
 **John H. Beyer, 92, Dies; Architect Championed Historic Preservation**\
 `The last surviving founder of Beyer Blinder Belle, he helped safeguard New York City’s past even as developers raced to push the city into the future.`\
 https://nytimes.com/2026/01/23/arts/design/john-h-beyer-dead.html

@@ -30,11 +30,3 @@ https://nytimes.com/2026/01/23/briefing/america-prepares-for-a-major-storm.html
 `Swinney’s rant was rare in that he openly accused another coach, publicly and by name, of tampering with his players.`\
 https://nytimes.com/athletic/6994804/2026/01/23/dabo-swinney-tampering-ole-miss-luke-ferrelli/
 
-**How the National Park Service Is Deleting American History**\
-`Philadelphia sued the Trump administration after it directed the Park Service to rip out a memorial to slavery. Elsewhere, materials about climate change and labor history were being removed.`\
-https://nytimes.com/2026/01/23/climate/national-park-service-deleting-american-history-slavery.html
-
-**Joint Chiefs Chairman Issues Rare Invitation to Foreign Military Heads**\
-`Top military leaders from 34 countries plan to discuss improving efforts in the Western Hemisphere to fight drug trafficking and transnational criminal organizations.`\
-https://nytimes.com/2026/01/23/us/politics/military-western-hemisphere-leaders.html
-
