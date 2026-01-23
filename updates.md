@@ -1,3 +1,7 @@
+**Newcastle 'hope' to have Guimaraes for Villa game, Burn could return**\
+`Guimaraes sustained an injury midweek, while Burn has not played since December 14.`\
+https://nytimes.com/athletic/6993563/2026/01/23/newcasle-team-news-guimaraes-burn/
+
 **After Pleas From Mamdani and Hochul, Talks Resume in Nurses’ Strike**\
 `Nearly 15,000 health care workers in New York have been off the job since last week in a labor action affecting some of the city’s major hospitals.`\
 https://nytimes.com/2026/01/23/nyregion/nyc-nurses-strike-mamdani-hochul.html
