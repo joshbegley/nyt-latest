@@ -1,3 +1,7 @@
+**Seranthony Domínguez agrees to two-year, $20 million deal with White Sox**\
+`The 31-year-old has 55 holds and 24 saves in the last four seasons, posting a 3.60 ERA for the Orioles, Phillies and Blue Jays.`\
+https://nytimes.com/athletic/6836565/2026/01/23/mlb-seranthony-dominguez-free-agency-signing-white-sox/
+
 **Labor Secretary’s Security Guard Placed on Leave**\
 `The department has been investigating complaints about the conduct of Labor Secretary Lori Chavez-DeRemer.`\
 https://nytimes.com/2026/01/23/us/politics/labor-secretary-security-staff-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6994187/2026/01/23/mitch-marner-leafs-golden-knight
 **Women's Champions Cup winners will earn $2.3m**\
 `The intercontinental tournament will be competed for the first time between January 28 and February 1.`\
 https://nytimes.com/athletic/6994295/2026/01/23/womens-champions-cup-prize-money-fifa/
-
-**To Halt Trump’s Abuse of Power: Vote**\
-`Readers respond to an editorial about President Trump, justice and vengeance. Also: Ordinary Americans who protest; open-ended questions.`\
-https://nytimes.com/2026/01/23/opinion/trump-abuse-power.html
 

@@ -1,3 +1,11 @@
+**Labor Secretary’s Security Guard Placed on Leave**\
+`The department has been investigating complaints about the conduct of Labor Secretary Lori Chavez-DeRemer.`\
+https://nytimes.com/2026/01/23/us/politics/labor-secretary-security-staff-investigation.html
+
+**How the CFP is changing in 2026: Still 12 teams, but shifts for Notre Dame, money distribution**\
+`While the CFP is remaining at 12 teams in 2026, much of the value behind the scenes is about to change in a meaningful way.`\
+https://nytimes.com/athletic/6994393/2026/01/23/college-football-playoff-2026-format-expansion-changes/
+
 **Prosecutors in Spain End Investigation Into Julio Iglesias**\
 `Two women accused the singer, 82, of abusing them in the Caribbean and filed a complaint in Spain, but Spanish officials said that they did not have jurisdiction over the claim.`\
 https://nytimes.com/2026/01/23/world/europe/julio-iglesias-abuse-investigation.html
