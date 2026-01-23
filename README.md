@@ -1,3 +1,11 @@
+**Friends and Family of Valentino Bid Farewell to Fashion Giant**\
+`Famous faces from the worlds of fashion and film descended on Rome on Friday to bid farewell to legendary Italian designer Valentino Garavani, who died on Monday at 93.`\
+https://nytimes.com/video/world/europe/100000010663588/valentino-funeral-rome-celebrity.html
+
+**Philip Rivers interviewing for Bills' head coaching job: Source**\
+`Just weeks after returning to the NFL as a quarterback and then retiring again, the 44-year old Rivers will take a head coaching interview.`\
+https://nytimes.com/athletic/6994259/2026/01/23/nfl-bills-coach-philip-rivers-interview/
+
 **How Wide Do You Want Your Clothes?**\
 `At the shows for IM Men, Amiri, Rick Owens and Dries Van Noten, the fits varied from slim to ballooning.`\
 https://nytimes.com/2026/01/23/style/owens-dries-miyaki.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6994242/2026/01/23/rockets-vs-pistons-stream-how-to
 **How to watch Lightning vs. Blackhawks: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the Chicago Blackhawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6994238/2026/01/23/lightning-vs-blackhawks-stream-how-to-watch-jan-23/
-
-**How to watch Golden Knights vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6994236/2026/01/23/golden-knights-vs-maple-leafs-stream-how-to-watch-jan-23/
-
-**Artist Sues Over Venice Biennale Snub in Dispute Over Gaza-Focused Work**\
-`A panel recommended that Gabrielle Goliath represent South Africa at the event. But the culture minister rejected its suggestion.`\
-https://nytimes.com/2026/01/23/arts/design/venice-biennale-south-africa-gabrielle-goliath.html
 

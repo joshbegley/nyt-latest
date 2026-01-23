@@ -1,3 +1,7 @@
+**How Wide Do You Want Your Clothes?**\
+`At the shows for IM Men, Amiri, Rick Owens and Dries Van Noten, the fits varied from slim to ballooning.`\
+https://nytimes.com/2026/01/23/style/owens-dries-miyaki.html
+
 **Kawhi's return against Lakers marks full circle in Clippers' imperfect turnaround**\
 `Kawhi Leonard returned to the starting lineup, scoring a team-high 24 points in only 25:56 to help the Clippers beat the Lakers 112-104.`\
 https://nytimes.com/athletic/6993533/2026/01/23/kawhi-leonard-clippers-return-lakers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6994236/2026/01/23/golden-knights-vs-maple-leafs-st
 **Artist Sues Over Venice Biennale Snub in Dispute Over Gaza-Focused Work**\
 `A panel recommended that Gabrielle Goliath represent South Africa at the event. But the culture minister rejected its suggestion.`\
 https://nytimes.com/2026/01/23/arts/design/venice-biennale-south-africa-gabrielle-goliath.html
-
-**How to watch Saint Louis vs. Saint Bonaventure men's basketball: Time, TV, streaming**\
-`Find out how to watch the Saint Louis Billikens play the Saint Bonaventure Bonnies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6994226/2026/01/23/saint-louis-vs-saint-bonaventure-stream-how-to-watch-jan-23/
 

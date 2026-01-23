@@ -1,3 +1,7 @@
+**How Wide Do You Want Your Clothes?**\
+`At the shows for IM Men, Amiri, Rick Owens and Dries Van Noten, the fits varied from slim to ballooning.`\
+https://nytimes.com/2026/01/23/style/owens-dries-miyaki.html
+
 **Kawhi's return against Lakers marks full circle in Clippers' imperfect turnaround**\
 `Kawhi Leonard returned to the starting lineup, scoring a team-high 24 points in only 25:56 to help the Clippers beat the Lakers 112-104.`\
 https://nytimes.com/athletic/6993533/2026/01/23/kawhi-leonard-clippers-return-lakers/
