@@ -1,3 +1,7 @@
+**States Prepare for Major Winter Storm**\
+`Multiple governors declared states of emergencies and prepared for what could be a disastrous winter storm in the United States this weekend.`\
+https://nytimes.com/video/weather/100000010662814/winter-storm-forecast-snow-ice.html
+
 **Nick Kurtz MLB Debut Patch card sells for $516,000**\
 `Kurtz's previous record card sale was $86,620. `\
 https://nytimes.com/athletic/6988949/2026/01/23/nick-kurtz-mlb-debut-patch-card/
