@@ -1,3 +1,7 @@
+**S.E.C. Drops Case Against Cryptocurrency Firm Founded by Winklevoss Twins**\
+`The agency says that victims of an investment offering involving Gemini Trust got their money back, though after a regulatory action brought by the New York attorney general.`\
+https://nytimes.com/2026/01/23/us/politics/sec-crypto-winklevoss.html
+
 **Until Saturday: How much did this CFB 'era' just change?**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6994981/2026/01/23/indiana-college-football-until-saturday/
@@ -25,8 +29,4 @@ https://nytimes.com/2026/01/23/world/europe/russia-jails-american-sailor-chuck-z
 **America Prepares for a Major Storm**\
 `Also, demonstrators flooded Minneapolis streets to protest ICE. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2026/01/23/briefing/america-prepares-for-a-major-storm.html
-
-**Clemson's Dabo Swinney accuses Ole Miss of tampering: 'When is enough enough?'**\
-`Swinney’s rant was rare in that he openly accused another coach, publicly and by name, of tampering with his players.`\
-https://nytimes.com/athletic/6994804/2026/01/23/dabo-swinney-tampering-ole-miss-luke-ferrelli/
 
