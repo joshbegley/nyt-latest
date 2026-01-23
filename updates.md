@@ -1,3 +1,15 @@
+**Kuminga exits game with knee soreness; injury not considered serious**\
+`Kuminga's injury, however severe, is the latest chapter of an up-and-down season with many twists and turns.`\
+https://nytimes.com/athletic/6993019/2026/01/22/jonathan-kuminga-warriors-injury-update-trade-status/
+
+**Colts 'aware' of FBI investigation into death of owner Jim Irsay**\
+`Investigators are examining Irsay’s drug use, legal and illegal, and California-based recovery doctor, Dr. Harry Haroutunian.`\
+https://nytimes.com/athletic/6992483/2026/01/22/colts-jim-irsay-fbi-investigation-owner-death/
+
+**Rosenthal: What people around MLB are saying about the MacKenzie Gore deal, plus more offseason notes**\
+`We also detail Max Scherzer's free-agent timeline, the other Freddy Peralta suitors and the impact of local TV uncertainty.`\
+https://nytimes.com/athletic/6993006/2026/01/22/mackenzie-gore-rangers-nationals-max-scherzer/
+
 **Man Accused in $100 Million Jewel Heist Is Deported, Thwarting Trial**\
 `The move comes as ICE seeks to deport more people charged with crimes, sometimes before their cases are resolved.`\
 https://nytimes.com/2026/01/22/us/ice-deports-man-jewel-heist.html

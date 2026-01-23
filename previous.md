@@ -1,3 +1,15 @@
+**Kuminga exits game with knee soreness; injury not considered serious**\
+`Kuminga's injury, however severe, is the latest chapter of an up-and-down season with many twists and turns.`\
+https://nytimes.com/athletic/6993019/2026/01/22/jonathan-kuminga-warriors-injury-update-trade-status/
+
+**Colts 'aware' of FBI investigation into death of owner Jim Irsay**\
+`Investigators are examining Irsay’s drug use, legal and illegal, and California-based recovery doctor, Dr. Harry Haroutunian.`\
+https://nytimes.com/athletic/6992483/2026/01/22/colts-jim-irsay-fbi-investigation-owner-death/
+
+**Rosenthal: What people around MLB are saying about the MacKenzie Gore deal, plus more offseason notes**\
+`We also detail Max Scherzer's free-agent timeline, the other Freddy Peralta suitors and the impact of local TV uncertainty.`\
+https://nytimes.com/athletic/6993006/2026/01/22/mackenzie-gore-rangers-nationals-max-scherzer/
+
 **Man Accused in $100 Million Jewel Heist Is Deported, Thwarting Trial**\
 `The move comes as ICE seeks to deport more people charged with crimes, sometimes before their cases are resolved.`\
 https://nytimes.com/2026/01/22/us/ice-deports-man-jewel-heist.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6992775/2026/01/22/kyrie-irving-playing-injury-stat
 **Dallas County Exonerates Black Man Who Was Executed in 1956**\
 `An all-white jury convicted Tommy Lee Walker of rape and murder, relying on inadmissible evidence and a coerced confession that he immediately recanted, county officials said.`\
 https://nytimes.com/2026/01/22/us/tommy-lee-walker-dallas-execution-innocent.html
-
-**Jack Smith Defends His Trump Indictments During House Hearing**\
-`Jack Smith, the special prosecutor who twice indicted Donald J. Trump, defended his investigation in a tense and long-awaited appearance before a House committee on Thursday.`\
-https://nytimes.com/video/us/politics/100000010662616/jack-smith-trump-testimony-congress-video.html
-
-**I tried Curt Cignetti's Chipotle order. It should enter the transfer portal**\
-`Much like his 16-0 Indiana Hoosiers, Coach Cignetti's "I Win" Chipotle bowl is simple and workmanlike in its execution.`\
-https://nytimes.com/athletic/6992367/2026/01/22/curt-cignetti-chipotle-indiana-football/
-
-**ICE Demands More Access to Minnesota Inmates. But It’s Complicated.**\
-`The Trump administration said it would ease its immigration operation in Minnesota in exchange for broader access to inmates. Local leaders say they already cooperate significantly.`\
-https://nytimes.com/2026/01/22/us/ice-minnesota-inmates.html
 
