@@ -1,3 +1,7 @@
+**Referees miss goaltending call on potential Tyrese Maxey game winner in regulation**\
+`The 76ers won in overtime but likely would have prevailed in regulation if a goaltend was called on Maxey's layup with 1.3 seconds left.`\
+https://nytimes.com/athletic/6993071/2026/01/22/sixers-rockets-tyrese-maxey-goaltending-call-referees/
+
 **There’s a New American TikTok. What Does That Mean for You?**\
 `The popular short form video app has a new corporate structure in the United States, which could result in some changes for the 200 million Americans who use TikTok.`\
 https://nytimes.com/2026/01/22/business/media/tiktok-sold-app-content-algorithm.html

@@ -1,3 +1,7 @@
+**Referees miss goaltending call on potential Tyrese Maxey game winner in regulation**\
+`The 76ers won in overtime but likely would have prevailed in regulation if a goaltend was called on Maxey's layup with 1.3 seconds left.`\
+https://nytimes.com/athletic/6993071/2026/01/22/sixers-rockets-tyrese-maxey-goaltending-call-referees/
+
 **There’s a New American TikTok. What Does That Mean for You?**\
 `The popular short form video app has a new corporate structure in the United States, which could result in some changes for the 200 million Americans who use TikTok.`\
 https://nytimes.com/2026/01/22/business/media/tiktok-sold-app-content-algorithm.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6993006/2026/01/22/mackenzie-gore-rangers-nationals
 **Man Accused in $100 Million Jewel Heist Is Deported, Thwarting Trial**\
 `The move comes as ICE seeks to deport more people charged with crimes, sometimes before their cases are resolved.`\
 https://nytimes.com/2026/01/22/us/ice-deports-man-jewel-heist.html
-
-**Face to Face With History’s Most Dangerous Painter**\
-`Jacques-Louis David, artist and politician of the French Revolution, has beguiled our critic Jason Farago for years — and scared him, too. Let him show you why.`\
-https://nytimes.com/interactive/2026/01/22/arts/jacques-louis-david-painter-french-revolution.html
 
