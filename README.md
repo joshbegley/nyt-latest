@@ -1,3 +1,7 @@
+**Returning to Toronto with Vegas, Mitch Marner doesn't want to 'look back'**\
+`The best homegrown player in Maple Leafs history acknowledged that he was feeling mixed emotions ahead of Friday’s visit.`\
+https://nytimes.com/athletic/6994187/2026/01/23/mitch-marner-leafs-golden-knights/
+
 **Women's Champions Cup winners will earn $2.3m**\
 `The intercontinental tournament will be competed for the first time between January 28 and February 1.`\
 https://nytimes.com/athletic/6994295/2026/01/23/womens-champions-cup-prize-money-fifa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6993837/2026/01/23/sports-schedule-winter-storm/
 **Friends, Romans, Celebrities Pay Last Respects to Valentino**\
 `The designer Valentino Garavani, who died on Monday at 93, was celebrated in Rome, a city that he “embodied,” according to its mayor.`\
 https://nytimes.com/2026/01/23/world/europe/valentino-funeral.html
-
-**USC hires former TCU head coach Gary Patterson as defensive coordinator: Source**\
-`Patterson will replace D’Anton Lynn, who served as the Trojans' DC the past two seasons and left for the same role at Penn State.`\
-https://nytimes.com/athletic/6970067/2026/01/23/gary-patterson-usc-defensive-coordinator-tcu/
 
