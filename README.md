@@ -1,3 +1,11 @@
+**Arizona basketball veterans could've pouted coming off the bench. Instead, they leaned in**\
+`Arizona could have the makeup to make its first Final Four since 2001. And depth is a major part of it.`\
+https://nytimes.com/athletic/6992232/2026/01/23/arizona-wildcats-basketball-depth/
+
+**Hiring Jesse Minter was what the Ravens needed to return to their defensive ways**\
+`Baltimore's defense, which the team has leaned on when at its peak, badly needs to be fixed. Minter seemed like just the man for the job. `\
+https://nytimes.com/athletic/6993515/2026/01/23/ravens-jesse-minter-head-coach-defense/
+
 **Trump Administration Live Updates: President Disinvites Canada From Peace Board**\
 ``\
 https://nytimes.com/live/2026/01/23/us/trump-news
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/6929671/2026/01/23/fernando-mendoza-nfl-draft-2026-
 `The world No. 1 is a tennis magician, but playing a fellow showman offered a reminder of the simple things he does to impeccable standards.`\
 https://nytimes.com/athletic/6992698/2026/01/23/tennis-australian-open-recap-results-schedule-day-6/
 
-**Derrick Rose wants to (mostly) put basketball behind him, even if you still see an MVP**\
+**Derrick Rose wants to (mostly) put basketball behind him, even if you still see an NBA MVP**\
 `The Bulls will hang Rose’s No. 1 jersey in the United Center rafters, and with it, he hopes to take another step toward a new identity.`\
 https://nytimes.com/athletic/6991963/2026/01/23/derrick-rose-bulls-nba-jersey-retirement-flowers/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/23/podcasts/the-headlines/the-headlines-news-quiz-ja
 **What we're hearing about Karl-Anthony Towns' Knicks future, plus more NBA trade intel**\
 `With the Knicks floundering, would they really consider trading Karl-Anthony Towns? Plus more on Lamelo Ball, Ja Morant.`\
 https://nytimes.com/athletic/6993002/2026/01/23/nba-trade-rumors-karl-anthony-towns-knicks/
-
-**Amen and Ausar Thompson are rising NBA stars. A big brother foresaw the twins' destiny**\
-`Troy Thompson Jr. would tell anyone who'd listen that his younger siblings were "the best players he'd ever seen." And he meant it.`\
-https://nytimes.com/athletic/6993149/2026/01/23/amen-ausar-thompson-twins-brother-troy-rockets-pistons-nba/
-
-**Three Premier League picks: Man Utd aim upset Arsenal, Leeds to overpower Everton**\
-`Where could the Premier League upsets come from this weekend?`\
-https://nytimes.com/athletic/6993581/2026/01/23/premier-league-upset-picks-underdogs-manchester-united-to-surprise-arsenal/
 

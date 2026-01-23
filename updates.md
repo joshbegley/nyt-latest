@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: President Disinvites Canada From Peace Board**\
+``\
+https://nytimes.com/live/2026/01/23/us/trump-news
+
+**No. 1 favorite Fernando Mendoza declares for 2026 NFL Draft fresh off Heisman, national title**\
+`Mendoza, the 2026 Heisman Trophy winner, could be the Las Vegas Raiders' choice at No. 1 in April.`\
+https://nytimes.com/athletic/6929671/2026/01/23/fernando-mendoza-nfl-draft-2026-indiana/
+
 **Australian Open recap: Carlos Alcaraz's spectacular meets his solid in highlight-reel match**\
 `The world No. 1 is a tennis magician, but playing a fellow showman offered a reminder of the simple things he does to impeccable standards.`\
 https://nytimes.com/athletic/6992698/2026/01/23/tennis-australian-open-recap-results-schedule-day-6/
