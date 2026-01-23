@@ -1,3 +1,11 @@
+**What went wrong for Keon Coleman in Buffalo? What's next for the Bills at WR?**\
+`Comments about him from the Bills owner and general manager made waves this week.`\
+https://nytimes.com/athletic/6994412/2026/01/23/nfl-bills-draft-keon-coleman-wr/
+
+**Nelson Mandela Memorabilia Can Go to Auction, Court Says**\
+`The anti-apartheid leader’s eldest daughter has won the right to sell some of his personal items after a two-year legal battle.`\
+https://nytimes.com/2026/01/23/world/africa/nelson-mandela-memorabilia-auction.html
+
 **Ryan Wedding, ex-Olympic snowboarder on FBI's Most Wanted List, arrested**\
 `The arrest ends a multiyear search for the 44-year-old accused of running a transnational drug trafficking operation.`\
 https://nytimes.com/athletic/6994155/2026/01/23/ryan-wedding-arrest-fbi-olympics/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/23/us/politics/wesley-hunt-texas-vote-house.html
 **Hoping for More From Trump, Abortion Opponents Gather in Washington**\
 `“This is not the direction that we were hoping for,” the president of a leading anti-abortion group said ahead of the March for Life.`\
 https://nytimes.com/2026/01/23/us/march-for-life-trump-vance.html
-
-**Seranthony Domínguez agrees to two-year, $20 million deal with White Sox**\
-`The 31-year-old has 55 holds and 24 saves in the last four seasons, posting a 3.60 ERA for the Orioles, Phillies and Blue Jays.`\
-https://nytimes.com/athletic/6836565/2026/01/23/mlb-seranthony-dominguez-free-agency-signing-white-sox/
-
-**Labor Secretary’s Security Guard Placed on Leave**\
-`The department has been investigating complaints about the conduct of Secretary Lori Chavez-DeRemer.`\
-https://nytimes.com/2026/01/23/us/politics/labor-secretary-security-staff-investigation.html
 

@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6994412/2026/01/23/nfl-bills-draft-keon-coleman-wr/
 
 **Nelson Mandela Memorabilia Can Go to Auction, Court Says**\
-`The anti-apartheid leader’s eldest daughter has won the right to sell some of his personal items after a two-year legal battle.`\
+`The anti-apartheid leader’s eldest daughter won the right to sell some of his personal items after a two-year legal battle.`\
 https://nytimes.com/2026/01/23/world/africa/nelson-mandela-memorabilia-auction.html
 
 **Ryan Wedding, ex-Olympic snowboarder on FBI's Most Wanted List, arrested**\

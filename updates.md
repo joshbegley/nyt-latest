@@ -1,3 +1,11 @@
+**What went wrong for Keon Coleman in Buffalo? What's next for the Bills at WR?**\
+`Comments about him from the Bills owner and general manager made waves this week.`\
+https://nytimes.com/athletic/6994412/2026/01/23/nfl-bills-draft-keon-coleman-wr/
+
+**Nelson Mandela Memorabilia Can Go to Auction, Court Says**\
+`The anti-apartheid leader’s eldest daughter has won the right to sell some of his personal items after a two-year legal battle.`\
+https://nytimes.com/2026/01/23/world/africa/nelson-mandela-memorabilia-auction.html
+
 **Ryan Wedding, ex-Olympic snowboarder on FBI's Most Wanted List, arrested**\
 `The arrest ends a multiyear search for the 44-year-old accused of running a transnational drug trafficking operation.`\
 https://nytimes.com/athletic/6994155/2026/01/23/ryan-wedding-arrest-fbi-olympics/
