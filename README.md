@@ -1,3 +1,7 @@
+**Prosecutors in Spain End Investigation Into Julio Iglesias**\
+`Two women accused the singer, 82, of abusing them in the Caribbean and filed a complaint in Spain, but Spanish officials said that they did not have jurisdiction over the claim.`\
+https://nytimes.com/2026/01/23/world/europe/julio-iglesias-abuse-investigation.html
+
 **Arch Manning undergoes minor foot surgery to address previous injury**\
 `Manning led Texas to three straight wins to close out the year, highlighted by an upset over rival Texas A&M in the regular-season finale.`\
 https://nytimes.com/athletic/6994351/2026/01/23/arch-manning-foot-surgery-texas/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/23/arts/design/darren-walker-anonymous-content.html
 **How to Treat Dry Lips**\
 `Expert advice from a musician, a model and an aesthetician.`\
 https://nytimes.com/2026/01/23/t-magazine/dry-chapped-lips-treatment.html
-
-**This Chicken Soup Is as Soothing to Cook as It Is to Eat**\
-`Packed with vegetables and grains, this surprisingly simple from-scratch meal simmers away until it’s nourishing and so warming.`\
-https://nytimes.com/2026/01/23/dining/quick-chicken-soup-recipe.html
 
