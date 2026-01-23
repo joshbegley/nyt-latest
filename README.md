@@ -1,3 +1,7 @@
+**Adams Aide Who Was ICE Liaison Is Expected to Join Trump Administration**\
+`Kaz Daughtry, a former deputy mayor under Eric Adams, was a key contact for federal administration officials involved in the White House’s immigration crackdown.`\
+https://nytimes.com/2026/01/23/nyregion/kaz-daughtry-ice-dhs.html
+
 **NCAA approves proposal to allow teams to wear sponsorship logo patches**\
 `Teams can begin displaying up to two logo patches of no more than 4 square inches on uniforms starting Aug. 1.`\
 https://nytimes.com/athletic/6994700/2026/01/23/ncaa-logo-patches-college-uniforms/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6994659/2026/01/23/harold-landry-patriots-broncos-i
 **How to watch Capitals vs. Flames: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6994712/2026/01/23/capitals-vs-flames-stream-how-to-watch-jan-23/
-
-**How to watch Kings vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6994711/2026/01/23/kings-vs-cavaliers-stream-how-to-watch-jan-23/
 
