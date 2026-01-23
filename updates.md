@@ -1,3 +1,7 @@
+**TikTok Strikes Deal for New U.S. Entity, Ending Long Legal Saga**\
+`The Chinese parent company of the popular video app said a group of non-Chinese investors would create an American TikTok to avoid a federal ban.`\
+https://nytimes.com/2026/01/22/technology/tiktok-deal-oracle-bytedance-china-us.html
+
 **Kyrie Irving still has 'no timeline' for return from injury, Jason Kidd says**\
 `Dallas Mavericks coach Jason Kidd said there's still "no timeline" for Irving's potential return from a torn ACL.`\
 https://nytimes.com/athletic/6992775/2026/01/22/kyrie-irving-playing-injury-status-update-mavericks/
