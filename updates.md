@@ -1,3 +1,7 @@
+**Penguins earn statement win, and Evgeni Malkin also makes a statement: 'I never said I want to retire'**\
+`The 39-year-old future Hall of Famer helped Pittsburgh notch one of their most impressive wins of the season in Edmonton.`\
+https://nytimes.com/athletic/6993214/2026/01/23/penguins-oilers-evgeni-malkin-statement/
+
 **If Real Madrid need a rebuild, what positions should they target?**\
 `Madrid have problems with their squad that go beyond the sacked Xabi Alonso. Where do they need to reinforce?`\
 https://nytimes.com/athletic/6985332/2026/01/23/real-madrid-rebuild-transfers-vinicius-bellingham/

@@ -1,3 +1,7 @@
+**Penguins earn statement win, and Evgeni Malkin also makes a statement: 'I never said I want to retire'**\
+`The 39-year-old future Hall of Famer helped Pittsburgh notch one of their most impressive wins of the season in Edmonton.`\
+https://nytimes.com/athletic/6993214/2026/01/23/penguins-oilers-evgeni-malkin-statement/
+
 **The New York Times in Print for Friday, Jan. 23, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/23/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6985694/2026/01/23/ollie-scarles-west-ham-malick-di
 **Leeds have the fewest errors leading to shots. It's helping their Premier League survival bid**\
 `Leeds have made the fewest errors leading to shots in the Premier League and are also impressing when it comes to errors leading to goals`\
 https://nytimes.com/athletic/6991227/2026/01/23/leeds-errors-premier-league-analysis/
-
-**If Real Madrid need a rebuild, what positions should they target?**\
-`Madrid have problems with their squad that go beyond the sacked Xabi Alonso. Where do they need to reinforce?`\
-https://nytimes.com/athletic/6985332/2026/01/23/real-madrid-rebuild-transfers-vinicius-bellingham/
 
