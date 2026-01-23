@@ -1,3 +1,11 @@
+**Steph Curry faces one of his biggest challenges after Jimmy Butler injury**\
+`"It's no secret this is difficult for everybody," Curry said after Thursday's loss to Dallas.`\
+https://nytimes.com/athletic/6993482/2026/01/23/stephen-curry-warriors-jimmy-butler-injury/
+
+**Trump Says U.S. ‘Armada’ Is Heading to Iran**\
+`President Trump said the United States was “watching Iran” and sending a naval force there, despite also saying this week that his threats had halted executions.`\
+https://nytimes.com/2026/01/23/world/middleeast/trump-armada-iran-naval-force.html
+
 **Alpine goes left field with its cruise ship reveal for 2026 F1 livery**\
 `Alpine finished last in the standings last year with just 22 points, all of which were scored by Pierre Gasly.`\
 https://nytimes.com/athletic/6993746/2026/01/23/f1-alpine-2026-car-livery/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6993515/2026/01/23/ravens-jesse-minter-head-coach-d
 **Trump Administration Live Updates: President Disinvites Canada From Peace Board**\
 ``\
 https://nytimes.com/live/2026/01/23/us/trump-news
-
-**No. 1 favorite Fernando Mendoza declares for 2026 NFL Draft fresh off Heisman, national title**\
-`Mendoza, the 2026 Heisman Trophy winner, could be the Las Vegas Raiders' choice at No. 1 in April.`\
-https://nytimes.com/athletic/6929671/2026/01/23/fernando-mendoza-nfl-draft-2026-indiana/
-
-**Australian Open recap: Carlos Alcaraz's spectacular meets his solid in highlight-reel match**\
-`The world No. 1 is a tennis magician, but playing a fellow showman offered a reminder of the simple things he does to impeccable standards.`\
-https://nytimes.com/athletic/6992698/2026/01/23/tennis-australian-open-recap-results-schedule-day-6/
 
