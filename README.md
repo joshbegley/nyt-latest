@@ -1,3 +1,11 @@
+**Spurs working on deal to sign Robertson from Liverpool**\
+`Robertson's Liverpool contract expires at the end of June.`\
+https://nytimes.com/athletic/6992174/2026/01/23/andy-robertson-tottenham-transfer-liverpool/
+
+**Health of Knicks offense, clock-draining Rockets and more NBA trends I'm watching**\
+`The Knicks drives are down. Their 3-pointers as high quality. The offense, in turn, has waned.`\
+https://nytimes.com/athletic/6992875/2026/01/23/knicks-offense-rockets-suns-royce-oneal/
+
 **'It’s a great story': How did a 26-year-old career AHLer make his NHL breakthrough?**\
 `Steeves has played most of the past few seasons in the AHL and didn't make the Bruins out of camp. Now he has a two-year contract.`\
 https://nytimes.com/athletic/6993196/2026/01/23/bruins-alex-steeves-contract-scoring/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6991886/2026/01/23/packers-defensive-coordinator-jo
 **As Luka returns to Dallas again, Mavs still picking up the shocking pieces**\
 `Nearly a year after blockbuster, Dallas has new executives, a fresh face of the franchise and relationships that still need repairing.`\
 https://nytimes.com/athletic/6987588/2026/01/23/luka-doncic-mavericks-lakers-trade-return/
-
-**2026 NFL Draft prospects to watch during Shrine Bowl practices**\
-`The Shrine Bowl serves as the unofficial launch to NFL Draft season. Which prospects will scouts be tracking in Frisco, Texas? `\
-https://nytimes.com/athletic/6985896/2026/01/23/shrine-bowl-nfl-draft-2026-prospects-klubnik-perkins/
-
-**3 Things to Know About the TikTok Deal, and a New Protest Tactic in Minnesota**\
-`Plus, your Friday news quiz.`\
-https://nytimes.com/2026/01/23/podcasts/the-headlines/tiktok-deal-new-protest-tactic-in-minnesota.html
 
