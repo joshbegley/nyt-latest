@@ -1,3 +1,7 @@
+**Bovino Says Border Patrol Agents Are ‘Experts in Dealing With Children’**\
+`A picture of a 5-year-old detained by federal authorities near Minneapolis rocketed around the internet and has become an avatar of outrage.`\
+https://nytimes.com/2026/01/23/us/bovino-ice-child-experts.html
+
 **Louis E. Brus, Nobel Laureate Who Illuminated the Nanoworld, Dies at 82**\
 `He accidentally created some of the first quantum dots, tiny semiconductors that now power many electronics.`\
 https://nytimes.com/2026/01/23/science/louis-e-brus-dead.html
