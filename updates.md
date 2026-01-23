@@ -1,3 +1,7 @@
+**CF Montréal finalizing deal to acquire Tomás Avilés from Inter Miami: Sources**\
+`CF Montréal has been successful in acquiring talented young players in the intra-MLS market.`\
+https://nytimes.com/athletic/6992963/2026/01/22/cf-montreal-tomas-aviles-trade-inter-miami/
+
 **TikTok Strikes Deal for New U.S. Entity, Ending Long Legal Saga**\
 `The Chinese parent company of the popular video app said a group of non-Chinese investors would create an American TikTok to avoid a federal ban.`\
 https://nytimes.com/2026/01/22/technology/tiktok-deal-oracle-bytedance-china-us.html
