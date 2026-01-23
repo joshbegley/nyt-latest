@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6993771/2026/01/23/paqueta-transfer-news-west-ham-f
 `Representatives Jamie Raskin of Maryland and Robert Garcia of California, the top Democrats on the Judiciary and Oversight Committees, said that more than a dozen people had come forward with whistle-blower complaints about the treatment of Ghislaine Maxwell, the longtime companion of Jeffrey Epstein.`\
 https://nytimes.com/interactive/2026/01/23/us/politics/raskin-garcia-letter-bondi.html
 
-**Mike McDaniel is interviewing for Bills head-coaching job as Chargers wait**\
+**Mike McDaniel is interviewing for Bills' head-coaching job as Chargers wait**\
 `Josh Allen is sitting in on Bills' head-coaching interviews as the team searches for a replacement for Sean McDermott.`\
 https://nytimes.com/athletic/6993830/2026/01/23/mike-mcdaniel-bills-chargers/
 

@@ -1,3 +1,11 @@
+**Chelsea's Essugo to miss more than a month after suffering injury in training**\
+`The 20-year-old has not played for the club all season having suffered a serious thigh injury in September.`\
+https://nytimes.com/athletic/6993916/2026/01/23/dario-essugo-chelsea-injury-latest/
+
+**Moyes says Grealish injury 'adds to Everton thinking' in transfer market**\
+`Moyes confirmed Grealish has suffered a stress fracture in his foot and said the club would assess whether to move for a replacement.`\
+https://nytimes.com/athletic/6993918/2026/01/23/jack-grealish-injury-everton-transfers/
+
 **Read Democrats’ Letter to the Justice Department’s Inspector General**\
 `Representatives Jamie Raskin of Maryland and Robert Garcia of California asked the Justice Department’s inspector general, an internal watchdog, to open a criminal investigation into reports of prison employees’ misconduct.`\
 https://nytimes.com/interactive/2026/01/23/us/politics/raskin-garcia-letter-doj-inspector-general.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6992491/2026/01/23/dodgers-kyle-tucker-projected-li
 **Democrats Seek Maxwell Prison Visit, Citing Preferential Treatment**\
 `House Democrats told the attorney general that more than a dozen whistle-blowers had come forward with reports of Ghislaine Maxwell receiving perks in prison.`\
 https://nytimes.com/2026/01/23/us/politics/ghislaine-maxwell-prison-preferential-treatment.html
-
-**Send Joe Person your Panthers mailbag questions**\
-`It's the offseason for the Panthers and after a trip to the playoffs, we want to hear your questions for a mailbag next week.`\
-https://nytimes.com/athletic/6993845/2026/01/23/panthers-mailbag-questions-readers/
-
-**Low Rates Sound Great. But a Trump Fed Could Cause a Painful ‘Sugar High.’**\
-`Dropping rates more than conditions warrant would stimulate the economy in the short term but could lead to trouble, our columnist says.`\
-https://nytimes.com/2026/01/23/business/trump-fed-interest-rates-inflation.html
 
