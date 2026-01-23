@@ -1,3 +1,11 @@
+**Broncos RB J.K. Dobbins won't return for AFC Championship Game**\
+`Dobbins returned to practice this week for the first time since his Nov. 6 foot injury, but he was a limited participant all week`\
+https://nytimes.com/athletic/6994640/2026/01/23/broncos-jk-dobbins-afc-championship-game/
+
+**Leggings That We Love **\
+`Text by Ingrid Skjong`\
+https://nytimes.com/card/2026/01/23/smarter-living/wirecutter/
+
 **F.B.I. Agent Who Tried to Investigate ICE Officer in Shooting Resigns**\
 `The resignation of the agent, Tracee Mergen, was the only latest shock wave to have emerged from the Justice Department’s handling of the shooting of Renee Good.`\
 https://nytimes.com/2026/01/23/us/fbi-agent-ice-shooting-renee-good.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010663630/ice-arrests-boy-minnesota.
 **Pedro Sanchez, Who Helped Feed the Developing World, Dies at 85**\
 `A soil scientist, he partnered with the United Nations and other organizations to bring productive agricultural practices to uncooperative terrain.`\
 https://nytimes.com/2026/01/23/science/pedro-sanchez-dead.html
-
-**Giants rebuffed after making aggressive pitch for Nationals' CJ Abrams: Source**\
-`After finding it difficult to make trades involving prospects, the Giants may need to turn to the free-agent market to make roster upgrades.`\
-https://nytimes.com/athletic/6994852/2026/01/23/sf-giants-cj-abrams-trade-talks-josuar-gonzalez/
-
-**What to Do Now to Prepare Your Home for the Winter Storm**\
-`Follow these steps to stay warm and safe.`\
-https://nytimes.com/2026/01/23/realestate/winter-storm-preparations-for-home.html
 

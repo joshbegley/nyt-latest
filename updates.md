@@ -1,3 +1,11 @@
+**F.B.I. Agent Who Tried to Investigate ICE Officer in Shooting Resigns**\
+`The resignation of the agent, Tracee Mergen, was the only latest shock wave to have emerged from the Justice Department’s handling of the shooting of Renee Good.`\
+https://nytimes.com/2026/01/23/us/fbi-agent-ice-shooting-renee-good.html
+
+**Is This Who Trump Meant by the ‘Worst of the Worst’?**\
+`The columnist Jamelle Bouie argues that the Trump administration’s immigration policy has more in common with ethnic cleansing than actual immigration enforcement.`\
+https://nytimes.com/video/opinion/100000010664980/is-this-who-trump-meant-by-the-worst-of-the-worst.html
+
 **Former Olympian Arrested on Drug Trafficking and Murder Charges**\
 `F.B.I. agents arrested Ryan Wedding, a former Olympic snowboarder, in Mexico on Thursday. Mr. Wedding is accused of smuggling cocaine into the United States and hiring a hitman to kill an F.B.I informant. The ex-snowboarder is expected to appear in court on Monday.`\
 https://nytimes.com/video/world/canada/100000010665043/ryan-wedding-arrest-video.html
