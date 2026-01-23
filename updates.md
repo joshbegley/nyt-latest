@@ -1,3 +1,11 @@
+**Read Democrats’ Letter to the Justice Department’s Inspector General**\
+`Representatives Jamie Raskin of Maryland and Robert Garcia of California asked the Justice Department’s inspector general, an internal watchdog, to open a criminal investigation into reports of prison employees’ misconduct.`\
+https://nytimes.com/interactive/2026/01/23/us/politics/raskin-garcia-letter-doj-inspector-general.html
+
+**Mike McDaniel is interviewing for Bills head-coaching job as Chargers wait**\
+`Josh Allen is sitting in on Bills' head-coaching interviews as the team searches for a replacement for Sean McDermott.`\
+https://nytimes.com/athletic/6993830/2026/01/23/mike-mcdaniel-bills-chargers/
+
 **West Ham reject second bid from Flamengo for Paqueta**\
 `It is the second time this month that West Ham have rejected an offer from the Brazilian side for the 28-year-old.`\
 https://nytimes.com/athletic/6993771/2026/01/23/paqueta-transfer-news-west-ham-flamengo-bid/
