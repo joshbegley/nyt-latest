@@ -1,3 +1,7 @@
+**Applications Open for the 2026 New York Portfolio Review**\
+`Apply now for this free event for photographers.`\
+https://nytimes.com/2026/01/22/lens/2026-new-york-portfolio-review.html
+
 **Kuminga exits game with knee soreness; injury not considered serious**\
 `Kuminga's injury, however severe, is the latest chapter of an up-and-down season with many twists and turns.`\
 https://nytimes.com/athletic/6993019/2026/01/22/jonathan-kuminga-warriors-injury-update-trade-status/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6992963/2026/01/22/cf-montreal-tomas-aviles-trade-i
 **Kyrie Irving still has 'no timeline' for return from injury, Jason Kidd says**\
 `Dallas Mavericks coach Jason Kidd said there's still "no timeline" for Irving's potential return from a torn ACL.`\
 https://nytimes.com/athletic/6992775/2026/01/22/kyrie-irving-playing-injury-status-update-mavericks/
-
-**Dallas County Exonerates Black Man Who Was Executed in 1956**\
-`An all-white jury convicted Tommy Lee Walker of rape and murder, relying on inadmissible evidence and a coerced confession that he immediately recanted, county officials said.`\
-https://nytimes.com/2026/01/22/us/tommy-lee-walker-dallas-execution-innocent.html
 
