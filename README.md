@@ -1,3 +1,7 @@
+**Towering Snowdrifts Bury City on Remote Russian Peninsula**\
+`It’s the biggest snowfall the Kamchatka Peninsula has seen in nearly 60 years.`\
+https://nytimes.com/2026/01/23/weather/towering-snowdrifts-bury-city-on-remote-russian-peninsula.html
+
 **LeBron James responds to reported fracture with Jeanie Buss: 'I'm good'**\
 `"Quite frankly, I don't really care about articles," James said. "I really don't."`\
 https://nytimes.com/athletic/6993510/2026/01/23/lebron-james-responds-report-jeanie-buss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6991419/2026/01/23/why-andy-robertson-could-be-such
 **Spurs working on deal to sign Robertson from Liverpool**\
 `Robertson's Liverpool contract expires at the end of June.`\
 https://nytimes.com/athletic/6992174/2026/01/23/andy-robertson-tottenham-transfer-liverpool/
-
-**Health of Knicks offense, clock-draining Rockets and more NBA trends I'm watching**\
-`The Knicks drives are down. Their 3-pointers as high quality. The offense, in turn, has waned.`\
-https://nytimes.com/athletic/6992875/2026/01/23/knicks-offense-rockets-suns-royce-oneal/
 
