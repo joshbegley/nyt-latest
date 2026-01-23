@@ -1,3 +1,7 @@
+**There’s a New American TikTok. What Does That Mean for You?**\
+`The popular short form video app has a new corporate structure in the United States, which could result in some changes for the 200 million Americans who use TikTok.`\
+https://nytimes.com/2026/01/22/business/media/tiktok-sold-app-content-algorithm.html
+
 **On the Level**\
 `Joyce Keller opens our solving weekend.`\
 https://nytimes.com/2026/01/22/crosswords/daily-puzzle-2026-01-23.html
