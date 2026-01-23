@@ -1,3 +1,7 @@
+**Kuminga exits game with knee soreness; injury not considered serious**\
+`Kuminga's injury, however severe, is the latest chapter of an up-and-down season with many twists and turns.`\
+https://nytimes.com/athletic/6993019/2026/01/22/jonathan-kuminga-warriors-injury-update-trade-status/
+
 **Colts 'aware' of FBI investigation into death of owner Jim Irsay**\
 `Investigators are examining Irsay’s drug use, legal and illegal, and California-based recovery doctor, Dr. Harry Haroutunian.`\
 https://nytimes.com/athletic/6992483/2026/01/22/colts-jim-irsay-fbi-investigation-owner-death/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6992775/2026/01/22/kyrie-irving-playing-injury-stat
 **Dallas County Exonerates Black Man Who Was Executed in 1956**\
 `An all-white jury convicted Tommy Lee Walker of rape and murder, relying on inadmissible evidence and a coerced confession that he immediately recanted, county officials said.`\
 https://nytimes.com/2026/01/22/us/tommy-lee-walker-dallas-execution-innocent.html
-
-**Jack Smith Defends His Trump Indictments During House Hearing**\
-`Jack Smith, the special prosecutor who twice indicted Donald J. Trump, defended his investigation in a tense and long-awaited appearance before a House committee on Thursday.`\
-https://nytimes.com/video/us/politics/100000010662616/jack-smith-trump-testimony-congress-video.html
 
