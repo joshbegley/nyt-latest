@@ -2,8 +2,8 @@
 `The last surviving founder of Beyer Blinder Belle, he helped safeguard New York City’s past even as developers raced to push the city into the future.`\
 https://nytimes.com/2026/01/23/arts/design/john-h-beyer-dead.html
 
-**Vance Announces Expansion of ‘Mexico City’ Rule to Cover D.E.I. and ‘Radical’ Gender Policies**\
-`The change, which could affect more than $30 billion in foreign assistance, is the Trump administration’s latest move against what President Trump calls “woke ideology.”`\
+**Vance Announces Expansion of ‘Mexico City Rule’ to Cover D.E.I. and ‘Radical’ Gender Policies**\
+`The change, which could affect more than $30 billion in foreign assistance, is the Trump administration’s latest move against what the president calls “woke ideology.”`\
 https://nytimes.com/2026/01/23/us/politics/mexico-city-rule-trump-vance.html
 
 **Russia Jails U.S. Navy Veteran for Five Years**\
