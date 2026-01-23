@@ -1,3 +1,19 @@
+**Arch Manning undergoes minor foot surgery to address previous injury**\
+`Manning led Texas to three straight wins to close out the year, highlighted by an upset over rival Texas A&M in the regular-season finale.`\
+https://nytimes.com/athletic/6994351/2026/01/23/arch-manning-foot-surgery-texas/
+
+**Hochul Declares State of Emergency as Mamdani Lays Out Snow Preparations**\
+`Gov. Kathy Hochul advised New Yorkers to stock up on groceries and other essentials, adding that with 12 to 18 inches of snow in the forecast, no corner of the state would be “immune from Mother Nature’s wrath.”`\
+https://nytimes.com/2026/01/23/nyregion/new-york-state-of-emergency-winter-storm-snow.html
+
+**Garner signs new Everton contract until 2030**\
+`The 24-year-old, a key performer so far this season, was entering the final six months of his previous deal.`\
+https://nytimes.com/athletic/6994409/2026/01/23/james-garner-new-everton-contract/
+
+**Ferrari's new car has one job: Obliterate 2025's failure for Lewis Hamilton and Charles Leclerc**\
+`Ferrari has launched its 2026 F1 car. Lewis Hamilton and Charles Leclerc need it to be a big upgrade on the team's 2025 challenger`\
+https://nytimes.com/athletic/6994342/2026/01/23/2026-new-ferrari-f1-car/
+
 **Returning to Toronto with Vegas, Mitch Marner doesn't want to 'look back'**\
 `The best homegrown player in Maple Leafs history acknowledged that he was feeling mixed emotions ahead of Friday’s visit.`\
 https://nytimes.com/athletic/6994187/2026/01/23/mitch-marner-leafs-golden-knights/
