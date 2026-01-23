@@ -1,3 +1,15 @@
+**Williams will miss F1 Barcelona shakedown test after 'delays'**\
+`The team said in a statement that they will "continue to push for maximum car performance" as they prepare for preseason testing.`\
+https://nytimes.com/athletic/6993823/2026/01/23/williams-f1-barcelona-shakedown-delays/
+
+**Scuffling Wolves need Anthony Edwards, Julius Randle to step up on defense**\
+`"We have no defensive personality right now," coach Chris Finch said after Minnesota lost its fourth straight game Thursday.`\
+https://nytimes.com/athletic/6992847/2026/01/23/anthony-edwards-julius-randle-timberwolves-defense-losing-streak/
+
+**Women’s NCAA Tournament Bracket Watch: Welcome Vanderbilt, a new No. 1 seed**\
+`Maryland and Texas Tech fall out of hosting after important losses this week, but Princeton is representing the midmajors well.`\
+https://nytimes.com/athletic/6993165/2026/01/23/ncaa-tournament-bracket-watch-vanderbilt-1-seed/
+
 **Steph Curry faces one of his biggest challenges after Jimmy Butler injury**\
 `"It's no secret this is difficult for everybody," Curry said after Thursday's loss to Dallas.`\
 https://nytimes.com/athletic/6993482/2026/01/23/stephen-curry-warriors-jimmy-butler-injury/

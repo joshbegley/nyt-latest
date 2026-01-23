@@ -1,3 +1,15 @@
+**Williams will miss F1 Barcelona shakedown test after 'delays'**\
+`The team said in a statement that they will "continue to push for maximum car performance" as they prepare for preseason testing.`\
+https://nytimes.com/athletic/6993823/2026/01/23/williams-f1-barcelona-shakedown-delays/
+
+**Scuffling Wolves need Anthony Edwards, Julius Randle to step up on defense**\
+`"We have no defensive personality right now," coach Chris Finch said after Minnesota lost its fourth straight game Thursday.`\
+https://nytimes.com/athletic/6992847/2026/01/23/anthony-edwards-julius-randle-timberwolves-defense-losing-streak/
+
+**Women’s NCAA Tournament Bracket Watch: Welcome Vanderbilt, a new No. 1 seed**\
+`Maryland and Texas Tech fall out of hosting after important losses this week, but Princeton is representing the midmajors well.`\
+https://nytimes.com/athletic/6993165/2026/01/23/ncaa-tournament-bracket-watch-vanderbilt-1-seed/
+
 **Steph Curry faces one of his biggest challenges after Jimmy Butler injury**\
 `"It's no secret this is difficult for everybody," Curry said after Thursday's loss to Dallas.`\
 https://nytimes.com/athletic/6993482/2026/01/23/stephen-curry-warriors-jimmy-butler-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/23/world/europe/uk-soldiers-afghanistan-trump-nato.h
 **NFLPA fires lawyer who sued union leaders over alleged retaliation**\
 `Heather McPhee was fired after she sued the union, alleging it conspired to prevent her from serving as a witness in a DOJ investigation.`\
 https://nytimes.com/athletic/6993398/2026/01/23/heather-mcphee-fired-nflpa-lawsuit/
-
-**Arizona basketball veterans could've pouted coming off the bench. Instead, they leaned in**\
-`Arizona could have the makeup to make its first Final Four since 2001. And depth is a major part of it.`\
-https://nytimes.com/athletic/6992232/2026/01/23/arizona-wildcats-basketball-depth/
-
-**Hiring Jesse Minter was what the Ravens needed to return to their defensive ways**\
-`Baltimore's defense, which the team has leaned on when at its peak, badly needs to be fixed. Minter seemed like just the man for the job. `\
-https://nytimes.com/athletic/6993515/2026/01/23/ravens-jesse-minter-head-coach-defense/
-
-**Trump Administration Live Updates: President Disinvites Canada From Peace Board**\
-``\
-https://nytimes.com/live/2026/01/23/us/trump-news
 
