@@ -1,3 +1,11 @@
+**The Aviation System Is Preparing for Storm-Driven Chaos**\
+`Airlines are canceling hundreds of flights over the weekend in anticipation of frigid weather and ice and now across much of the country.`\
+https://nytimes.com/2026/01/23/business/airlines-travel-storm.html
+
+**Which sports will be affected by the winter storm?**\
+`An impending winter storm forces schedule changes across college basketball.`\
+https://nytimes.com/athletic/6993837/2026/01/23/sports-schedule-winter-storm/
+
 **Friends, Romans, Celebrities Pay Last Respects to Valentino**\
 `The designer Valentino Garavani, who died on Monday at 93, was celebrated in Rome, a city that he “embodied,” according to its mayor.`\
 https://nytimes.com/2026/01/23/world/europe/valentino-funeral.html
@@ -6,8 +14,8 @@ https://nytimes.com/2026/01/23/world/europe/valentino-funeral.html
 `Patterson will replace D’Anton Lynn, who served as the Trojans' DC the past two seasons and left for the same role at Penn State.`\
 https://nytimes.com/athletic/6970067/2026/01/23/gary-patterson-usc-defensive-coordinator-tcu/
 
-**Leafs' Berube suffers large cut to head, bruised eye in gym accident**\
-`Craig Berube made news Friday morning by saying that he's giving Anthony Stolarz his first start in the Maple Leafs goal since Nov. 11.`\
+**Leafs' Craig Berube suffers large cut to head, bruised eye in gym accident**\
+`Berube made more news Friday morning by saying that he's giving Anthony Stolarz his first start in the Maple Leafs goal since Nov. 11.`\
 https://nytimes.com/athletic/6994264/2026/01/23/leafs-craig-berube-cut-head-injury-gym/
 
 **Trump Wants U.S. Investment in Venezuela, but Sanctions Still Complicate It**\
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6959733/2026/01/23/tammy-abraham-aston-villa-transf
 **Friends and Family of Valentino Bid Farewell to Fashion Giant**\
 `Famous faces from the worlds of fashion and film descended on Rome on Friday to bid farewell to legendary Italian designer Valentino Garavani, who died on Monday at 93.`\
 https://nytimes.com/video/world/europe/100000010663588/valentino-funeral-rome-celebrity.html
-
-**Philip Rivers interviewing for Bills' head coaching job: Source**\
-`Just weeks after returning to the NFL as a quarterback and then retiring again, the 44-year old Rivers will take a head coaching interview.`\
-https://nytimes.com/athletic/6994259/2026/01/23/nfl-bills-coach-philip-rivers-interview/
-
-**How Wide Do You Want Your Clothes?**\
-`At the shows for IM Men, Amiri, Rick Owens and Dries Van Noten, the fits varied from slim to ballooning.`\
-https://nytimes.com/2026/01/23/style/owens-dries-miyaki.html
 

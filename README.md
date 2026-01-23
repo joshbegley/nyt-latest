@@ -1,3 +1,15 @@
+**How to Treat Dry Lips**\
+`Expert advice from a musician, a model and an aesthetician.`\
+https://nytimes.com/2026/01/23/t-magazine/dry-chapped-lips-treatment.html
+
+**This Chicken Soup Is as Soothing to Cook as It Is to Eat**\
+`Packed with vegetables and grains, this surprisingly simple from-scratch meal simmers away until it’s nourishing and so warming.`\
+https://nytimes.com/2026/01/23/dining/quick-chicken-soup-recipe.html
+
+**How Many Bases Does America Have in Greenland Now?**\
+`The U.S. once maintained more than a dozen. Now it has one. President Trump wants more.`\
+https://nytimes.com/2026/01/23/world/europe/trump-greenland-military-bases.html
+
 **The Aviation System Is Preparing for Storm-Driven Chaos**\
 `Airlines are canceling hundreds of flights over the weekend in anticipation of frigid weather and ice and now across much of the country.`\
 https://nytimes.com/2026/01/23/business/airlines-travel-storm.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6994264/2026/01/23/leafs-craig-berube-cut-head-inju
 **Trump Wants U.S. Investment in Venezuela, but Sanctions Still Complicate It**\
 `With tight business restrictions still in place, companies may find it challenging to even assess what opportunities exist for them in the South American nation.`\
 https://nytimes.com/2026/01/23/business/venezuela-sanctions.html
-
-**Who are the head-coaching candidates to watch in Sunday's NFL championship games?**\
-`Several head-coaching candidates will be on display when the Patriots play the Broncos and the Rams face the Seahawks.`\
-https://nytimes.com/athletic/6989625/2026/01/23/nfl-championship-games-head-coach-candidates/
-
-**Abraham travelling for Villa medical after deal agreed with Besiktas**\
-`The forward, 28, is set to sign a four-and-a-half-year deal with Villa.`\
-https://nytimes.com/athletic/6959733/2026/01/23/tammy-abraham-aston-villa-transfer-besiktas/
-
-**Friends and Family of Valentino Bid Farewell to Fashion Giant**\
-`Famous faces from the worlds of fashion and film descended on Rome on Friday to bid farewell to legendary Italian designer Valentino Garavani, who died on Monday at 93.`\
-https://nytimes.com/video/world/europe/100000010663588/valentino-funeral-rome-celebrity.html
 

@@ -1,3 +1,15 @@
+**The Aviation System Is Preparing for Storm-Driven Chaos**\
+`Airlines are canceling hundreds of flights over the weekend in anticipation of frigid weather and ice and now across much of the country.`\
+https://nytimes.com/2026/01/23/business/airlines-travel-storm.html
+
+**Which sports will be affected by the winter storm?**\
+`An impending winter storm forces schedule changes across college basketball.`\
+https://nytimes.com/athletic/6993837/2026/01/23/sports-schedule-winter-storm/
+
+**Leafs' Craig Berube suffers large cut to head, bruised eye in gym accident**\
+`Berube made more news Friday morning by saying that he's giving Anthony Stolarz his first start in the Maple Leafs goal since Nov. 11.`\
+https://nytimes.com/athletic/6994264/2026/01/23/leafs-craig-berube-cut-head-injury-gym/
+
 **Friends, Romans, Celebrities Pay Last Respects to Valentino**\
 `The designer Valentino Garavani, who died on Monday at 93, was celebrated in Rome, a city that he “embodied,” according to its mayor.`\
 https://nytimes.com/2026/01/23/world/europe/valentino-funeral.html
