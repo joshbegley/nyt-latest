@@ -10,7 +10,7 @@ https://nytimes.com/2026/01/23/nyregion/mamdani-snow-nyc.html
 `Why was this image in the news recently? What is it communicating?`\
 https://nytimes.com/2026/01/23/learning/gathering-groceries.html
 
-**After Pleas from Mamdani and Hochul, Talks Resume in Nurses’ Strike**\
+**After Pleas From Mamdani and Hochul, Talks Resume in Nurses’ Strike**\
 `Nearly 15,000 health care workers in New York have been off the job since last week in a labor action affecting some of the city’s major hospitals.`\
 https://nytimes.com/2026/01/23/nyregion/nyc-nurses-strike-mamdani-hochul.html
 
