@@ -1,3 +1,7 @@
+**Penguins earn statement win, and Malkin makes a statement: 'I never said I want to retire'**\
+`The 39-year-old future Hall of Famer helped Pittsburgh notch one of its most impressive wins of the season in Edmonton.`\
+https://nytimes.com/athletic/6993214/2026/01/23/penguins-oilers-evgeni-malkin-statement/
+
 **Penguins earn statement win, and Evgeni Malkin also makes a statement: 'I never said I want to retire'**\
 `The 39-year-old future Hall of Famer helped Pittsburgh notch one of their most impressive wins of the season in Edmonton.`\
 https://nytimes.com/athletic/6993214/2026/01/23/penguins-oilers-evgeni-malkin-statement/
