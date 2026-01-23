@@ -1,3 +1,7 @@
+**Rodman, Spirit agree on record deal to make USWNT star one of the highest paid women's players**\
+`Rodman's signing ends a prolonged NWSL saga and keeps the U.S. women's national team star in the nation's capital`\
+https://nytimes.com/athletic/6986284/2026/01/22/trinity-rodman-contract-washington-spirit-nwsl/
+
 **Rangers pay big price for MacKenzie Gore, sending first-rounder Gavin Fien to Nats**\
 `The Rangers are giving up a decent haul, including a potential top-20 prospect in Fien, but Gore makes them instantly 2-3 wins better.`\
 https://nytimes.com/athletic/6992500/2026/01/22/mackenzie-gore-rangers-nationals-trade-analysis-gavin-fien/
