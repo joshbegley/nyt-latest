@@ -1,3 +1,7 @@
+**After TikTok Deal, Chinese Companies Search for a New Global Path**\
+`Chinese firms must contend with geopolitical tensions and mistrust to do business in the United States. Some are choosing to avoid the U.S. altogether.`\
+https://nytimes.com/2026/01/23/business/tiktok-china-technology.html
+
 **New York City Could Get a Foot of Snow. Mamdani Knows It’s a Test.**\
 `Plenty of New York City mayors have faced blowback over their handling of blizzards. In several appearances this week, Mayor Zohran Mamdani has sought to show he is prepared.`\
 https://nytimes.com/2026/01/23/nyregion/mamdani-snow-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6993073/2026/01/23/kirill-kaprizov-wild-goals-ot-wi
 **Word of the Day: voracious**\
 `This word has appeared in 103 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/23/learning/word-of-the-day-voracious.html
-
-**From the sunshine of Seville to boos in Braga - was this the game when Nottingham Forest's season unravelled?**\
-`The travelling fans made their frustration clear as Sean Dyche's side missed a penalty, scored an own goal and were reduced to 10 at Braga`\
-https://nytimes.com/athletic/6992985/2026/01/23/nottingham-forest-braga-europa-league-dyche/
 
