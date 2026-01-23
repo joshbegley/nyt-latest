@@ -1,3 +1,11 @@
+**Driving in Winter? Follow These Expert Tips to Arrive Safely.**\
+`A storm is expected to bring hazardous driving conditions to much of the United States this weekend. Stay home if you can, but those who must travel should take it slow.`\
+https://nytimes.com/2026/01/22/us/safe-winter-driving-tips.html
+
+**Scoop City: Meet the Broncos' new QB**\
+`Why the Broncos' new starting QB could surprise, notes from the Bills' coaching search and eventful news conference`\
+https://nytimes.com/athletic/6992796/2026/01/22/broncos-backup-qb-stidham-bills-news-conference/
+
 **Nazis, Soviets and Trump: America’s Fixation With Greenland**\
 `The idea that Greenland is essential to the United States has returned with a vengeance in the Trump era.`\
 https://nytimes.com/2026/01/22/us/politics/greenland-trump-cold-war.html
