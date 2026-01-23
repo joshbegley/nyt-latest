@@ -1,3 +1,7 @@
+**Arch Manning undergoes minor foot surgery to address previous injury**\
+`Manning led Texas to three straight wins to close out the year, highlighted by an upset over rival Texas A&M in the regular-season finale.`\
+https://nytimes.com/athletic/6994351/2026/01/23/arch-manning-foot-surgery-texas/
+
 **Hochul Declares State of Emergency as Mamdani Lays Out Snow Preparations**\
 `Gov. Kathy Hochul advised New Yorkers to stock up on groceries and other essentials, adding that with 12 to 18 inches of snow in the forecast, no corner of the state would be “immune from Mother Nature’s wrath.”`\
 https://nytimes.com/2026/01/23/nyregion/new-york-state-of-emergency-winter-storm-snow.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/23/t-magazine/dry-chapped-lips-treatment.html
 **This Chicken Soup Is as Soothing to Cook as It Is to Eat**\
 `Packed with vegetables and grains, this surprisingly simple from-scratch meal simmers away until it’s nourishing and so warming.`\
 https://nytimes.com/2026/01/23/dining/quick-chicken-soup-recipe.html
-
-**How Many Bases Does America Have in Greenland Now?**\
-`The U.S. once maintained more than a dozen. Now it has one. President Trump wants more.`\
-https://nytimes.com/2026/01/23/world/europe/trump-greenland-military-bases.html
 
