@@ -1,3 +1,11 @@
+**On frigid night, Kirill Kaprizov scores 2 goals, including 13th career OT winner: Takeaways**\
+`The Wild, who had been on a 12-0-2 run at home, won in St. Paul for the first time since Dec. 20 by snapping a five-game winless streak.`\
+https://nytimes.com/athletic/6993073/2026/01/23/kirill-kaprizov-wild-goals-ot-winner/
+
+**Word of the Day: voracious**\
+`This word has appeared in 103 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/23/learning/word-of-the-day-voracious.html
+
 **From the sunshine of Seville to boos in Braga - was this the game when Nottingham Forest's season unravelled?**\
 `The travelling fans made their frustration clear as Sean Dyche's side missed a penalty, scored an own goal and were reduced to 10 at Braga`\
 https://nytimes.com/athletic/6992985/2026/01/23/nottingham-forest-braga-europa-league-dyche/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/23/opinion/latin-america-right-strongmen-trump-venez
 **Patrick Dorgu is getting better at Manchester United. This is how**\
 `The Denmark international arrived at Old Trafford with rough edges but they are being smoothed out to great effect`\
 https://nytimes.com/athletic/6991175/2026/01/23/patrick-dorgu-manchester-united/
-
-**England's Next Gen: Who are the bright young things offering hope for the future?**\
-`The senior team may be licking their wounds after another Ashes thrashing, but there are promising youngsters emerging through the ranks`\
-https://nytimes.com/athletic/6985349/2026/01/23/england-test-next-gen-rew-flintoff-vaughan/
-
-**TOTD: Carrick – Why is there such a rush to make a decision? Plus: Dorgu's Evra inspiration**\
-`In this week's column, we look at the rush to choose (or discard) the next permanent United manager, and ask if Dorgu is coming of age?`\
-https://nytimes.com/athletic/6991176/2026/01/23/carrick-man-utd-manager-decison-dorgu/
 
