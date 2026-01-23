@@ -1,3 +1,11 @@
+**Mike McDaniel interviewing for Bills head coaching job as Chargers wait**\
+`Josh Allen is sitting in on Bills' head-coaching interviews as the team searches for a replacement for Sean McDermott.`\
+https://nytimes.com/athletic/6993830/2026/01/23/mike-mcdaniel-bills-chargers/
+
+**Deer Sets Off Burglar Alarm in a New York Bank**\
+`Police officers on Long Island responded to an alarm at a bank to find that the culprit was a deer that had crashed through a window.`\
+https://nytimes.com/video/nyregion/100000010663580/deer-bank-window-new-york.html
+
 **McLaren awarded more than $12m in legal case against IndyCar champion Alex Palou**\
 `The dispute dates back to October 2022, when Palou agreed to sign for McLaren’s IndyCar team, Arrow McLaren.`\
 https://nytimes.com/athletic/6993801/2026/01/23/mclaren-alex-palou-case/
