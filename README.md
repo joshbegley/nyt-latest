@@ -1,40 +1,40 @@
-**How to watch Kings vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6994711/2026/01/23/kings-vs-cavaliers-stream-how-to-watch-jan-23/
+**Facing U.S. Pressure, Venezuela Agrees to Take More Deportees**\
+`Venezuela’s interim government, in another sign of its willingness to placate the Trump administration, is receiving more deportation flights. Three flights arrived this week.`\
+https://nytimes.com/2026/01/23/world/americas/venezuela-trump-ice-deportation-flights.html
+
+**What Does Winter Storm Prep Look Like for You?**\
+`We want to hear about your priorities to get through the next few days.`\
+https://nytimes.com/2026/01/23/weather/winter-storm-callout.html
+
+**Trump’s Turnabout on Greenland Shows the Limits of His Coercive Powers**\
+`President Trump’s faith in his ability to wring concessions by taking maximalist positions was on full display this week. So were the costs, as he splintered NATO and then undercut his credibility by climbing down from his threats.`\
+https://nytimes.com/2026/01/23/us/politics/trumps-greenland-power.html
+
+**How to watch Raptors vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6994723/2026/01/23/raptors-vs-trail-blazers-stream-how-to-watch-jan-23/
+
+**How to watch Celtics vs. Nets: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6994721/2026/01/23/celtics-vs-nets-stream-how-to-watch-jan-23/
+
+**How to watch Suns vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6994717/2026/01/23/suns-vs-hawks-stream-how-to-watch-jan-23/
+
+**Patriots' Harold Landry out of AFC Championship Game vs. Broncos**\
+`Landry's absence is a big blow for a Patriots pass rush that will face a Broncos offensive line that's among the NFL’s best.`\
+https://nytimes.com/athletic/6994659/2026/01/23/harold-landry-patriots-broncos-injury-out/
 
 **How to watch Capitals vs. Flames: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6994712/2026/01/23/capitals-vs-flames-stream-how-to-watch-jan-23/
 
+**How to watch Kings vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6994711/2026/01/23/kings-vs-cavaliers-stream-how-to-watch-jan-23/
+
 **How to watch Ducks vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Anaheim Ducks play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6994708/2026/01/23/ducks-vs-kraken-stream-how-to-watch-jan-23/
-
-**How to watch Devils vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6994706/2026/01/23/devils-vs-canucks-stream-how-to-watch-jan-23/
-
-**How to watch Nuggets vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6994704/2026/01/23/nuggets-vs-bucks-stream-how-to-watch-jan-23/
-
-**How to watch Blues vs. Stars: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6994702/2026/01/23/blues-vs-stars-stream-how-to-watch-jan-23/
-
-**How to watch Pacers vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6994699/2026/01/23/pacers-vs-thunder-stream-how-to-watch-jan-23/
-
-**How to watch Pelicans vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6994697/2026/01/23/pelicans-vs-grizzlies-stream-how-to-watch-jan-23/
-
-**Scoop City: AFC & NFC Championship preview**\
-`Championship preview, plus: Ravens land Minter, Rivers enters the chat`\
-https://nytimes.com/athletic/6994661/2026/01/23/rams-seahawks-patriots-broncos-preview-nfl-playoffs-scoop-city/
-
-**How to watch Rangers vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6994692/2026/01/23/rangers-vs-sharks-stream-how-to-watch-jan-23/
 

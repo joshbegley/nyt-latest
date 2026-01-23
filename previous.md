@@ -1,40 +1,40 @@
-**Inside Trump’s Turnabout on Greenland**\
-`Our national security correspondent David Sanger describes how President Trump’s escalations with Europe over Greenland seems to have led to him backing down.`\
-https://nytimes.com/video/world/europe/100000010661528/inside-trumps-turnabout-on-greenland.html
+**How to watch Kings vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6994711/2026/01/23/kings-vs-cavaliers-stream-how-to-watch-jan-23/
 
-**TikTok Updates Its Terms and Conditions in the U.S.**\
-`The changes came after the app’s Chinese parent company spun out an American entity to run TikTok in the United States.`\
-https://nytimes.com/2026/01/23/business/media/tiktok-updates-its-terms-and-conditions-in-the-us.html
+**How to watch Capitals vs. Flames: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6994712/2026/01/23/capitals-vs-flames-stream-how-to-watch-jan-23/
 
-**Brooklyn Beckham Is Doing His Best**\
-`Sometimes you have to tell your own messy story.`\
-https://nytimes.com/2026/01/23/opinion/brooklyn-beckham-victoria-david-nicola-peltz-nepo.html
+**How to watch Ducks vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6994708/2026/01/23/ducks-vs-kraken-stream-how-to-watch-jan-23/
 
-**Couple Receive $200,000 Settlement After ‘Pungent’ Indian Food Complaint**\
-`The University of Colorado, Boulder, denied liability in the civil rights lawsuit, which the couple filed after a comment about a dish that one of them was heating in an office microwave.`\
-https://nytimes.com/2026/01/23/us/palak-paneer-indian-food-racism-settlement.html
+**How to watch Devils vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6994706/2026/01/23/devils-vs-canucks-stream-how-to-watch-jan-23/
 
-**Bovino Says Border Patrol Agents Are ‘Experts in Dealing With Children’**\
-`A picture of a 5-year-old detained by federal authorities near Minneapolis rocketed around the internet and has become an avatar of outrage.`\
-https://nytimes.com/2026/01/23/us/bovino-ice-child-experts.html
+**How to watch Nuggets vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6994704/2026/01/23/nuggets-vs-bucks-stream-how-to-watch-jan-23/
 
-**Louis E. Brus, Nobel Laureate Who Illuminated the Nanoworld, Dies at 82**\
-`He accidentally created some of the first quantum dots, tiny semiconductors that now power many electronics.`\
-https://nytimes.com/2026/01/23/science/louis-e-brus-dead.html
+**How to watch Blues vs. Stars: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6994702/2026/01/23/blues-vs-stars-stream-how-to-watch-jan-23/
 
-**What went wrong for Keon Coleman in Buffalo? What's next for the Bills at WR?**\
-`Comments about him from the Bills owner and general manager made waves this week.`\
-https://nytimes.com/athletic/6994412/2026/01/23/nfl-bills-draft-keon-coleman-wr/
+**How to watch Pacers vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6994699/2026/01/23/pacers-vs-thunder-stream-how-to-watch-jan-23/
 
-**Nelson Mandela Memorabilia Can Go to Auction, Court Says**\
-`The anti-apartheid leader’s eldest daughter won the right to sell some of his personal items after a two-year legal battle.`\
-https://nytimes.com/2026/01/23/world/africa/nelson-mandela-memorabilia-auction.html
+**How to watch Pelicans vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6994697/2026/01/23/pelicans-vs-grizzlies-stream-how-to-watch-jan-23/
 
-**Ryan Wedding, ex-Olympic snowboarder on FBI's Most Wanted List, arrested**\
-`The arrest ends a multiyear search for the 44-year-old accused of running a transnational drug trafficking operation.`\
-https://nytimes.com/athletic/6994155/2026/01/23/ryan-wedding-arrest-fbi-olympics/
+**Scoop City: AFC & NFC Championship preview**\
+`Championship preview, plus: Ravens land Minter, Rivers enters the chat`\
+https://nytimes.com/athletic/6994661/2026/01/23/rams-seahawks-patriots-broncos-preview-nfl-playoffs-scoop-city/
 
-**2026 Oscar Nominees: Surprises and Snubs**\
-`Kyle Buchanan, our awards season columnist, breaks down the Academy Award nominations for 2026.`\
-https://nytimes.com/video/movies/100000010656682/2026-oscar-nominees-surprises-and-snubs.html
+**How to watch Rangers vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6994692/2026/01/23/rangers-vs-sharks-stream-how-to-watch-jan-23/
 
