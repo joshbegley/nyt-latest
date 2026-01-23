@@ -1,3 +1,15 @@
+**Hochul Declares State of Emergency as Mamdani Lays Out Snow Preparations**\
+`Gov. Kathy Hochul advised New Yorkers to stock up on groceries and other essentials, adding that with 12 to 18 inches of snow in the forecast, no corner of the state would be “immune from Mother Nature’s wrath.”`\
+https://nytimes.com/2026/01/23/nyregion/new-york-state-of-emergency-winter-storm-snow.html
+
+**Garner signs new Everton contract until 2030**\
+`The 24-year-old, a key performer so far this season, was entering the final six months of his previous deal.`\
+https://nytimes.com/athletic/6994409/2026/01/23/james-garner-new-everton-contract/
+
+**Ferrari's new car has one job: Obliterate 2025's failure for Lewis Hamilton and Charles Leclerc**\
+`Ferrari has launched its 2026 F1 car. Lewis Hamilton and Charles Leclerc need it to be a big upgrade on the team's 2025 challenger`\
+https://nytimes.com/athletic/6994342/2026/01/23/2026-new-ferrari-f1-car/
+
 **Returning to Toronto with Vegas, Mitch Marner doesn't want to 'look back'**\
 `The best homegrown player in Maple Leafs history acknowledged that he was feeling mixed emotions ahead of Friday’s visit.`\
 https://nytimes.com/athletic/6994187/2026/01/23/mitch-marner-leafs-golden-knights/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/23/dining/quick-chicken-soup-recipe.html
 **How Many Bases Does America Have in Greenland Now?**\
 `The U.S. once maintained more than a dozen. Now it has one. President Trump wants more.`\
 https://nytimes.com/2026/01/23/world/europe/trump-greenland-military-bases.html
-
-**The Aviation System Is Preparing for Storm-Driven Chaos**\
-`Airlines are canceling hundreds of flights over the weekend in anticipation of frigid weather and ice and snow across much of the country.`\
-https://nytimes.com/2026/01/23/business/airlines-travel-storm.html
-
-**Which sports will be affected by the winter storm?**\
-`An impending winter storm forces schedule changes across college basketball.`\
-https://nytimes.com/athletic/6993837/2026/01/23/sports-schedule-winter-storm/
-
-**Friends, Romans, Celebrities Pay Last Respects to Valentino**\
-`The designer Valentino Garavani, who died on Monday at 93, was celebrated in Rome, a city that he “embodied,” according to its mayor.`\
-https://nytimes.com/2026/01/23/world/europe/valentino-funeral.html
 
