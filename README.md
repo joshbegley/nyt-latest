@@ -1,3 +1,11 @@
+**Leafs' Berube suffers large cut to head, bruised eye in gym accident**\
+`Craig Berube made news Friday morning by saying that he's giving Anthony Stolarz his first start in the Maple Leafs goal since Nov. 11.`\
+https://nytimes.com/athletic/6994264/2026/01/23/leafs-craig-berube-cut-head-injury-gym/
+
+**Trump Wants U.S. Investment in Venezuela, but Sanctions Still Complicate It**\
+`With tight business restrictions still in place, companies may find it challenging to even assess what opportunities exist for them in the South American nation.`\
+https://nytimes.com/2026/01/23/business/venezuela-sanctions.html
+
 **Who are the head-coaching candidates to watch in Sunday's NFL championship games?**\
 `Several head-coaching candidates will be on display when the Patriots play the Broncos and the Rams face the Seahawks.`\
 https://nytimes.com/athletic/6989625/2026/01/23/nfl-championship-games-head-coach-candidates/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/23/travel/greenland-tourism-trump.html
 **Rejecting Decades of Science, Vaccine Panel Chair Says Polio and Other Shots Should Be Optional**\
 `Dr. Kirk Milhoan, a pediatric cardiologist who leads the Advisory Committee on Immunization Practices, said a person’s right to refuse a vaccine outweighed concerns about illness or death from infectious diseases.`\
 https://nytimes.com/2026/01/23/health/milhoan-vaccines-optional-polio.html
-
-**Canadian Ex-Snowboarder Accused of Running Drug Ring Is Arrested**\
-`Ryan Wedding, 44, who competed in the Winter Olympics in 2002, has been charged with murder and with smuggling cocaine into the United States.`\
-https://nytimes.com/2026/01/23/world/canada/ryan-wedding-arrest.html
-
-**Can You Achieve Sports Greatness by Thinking Like a Wall Street Trader?**\
-`Max Greyserman is trying to climb to the top of the PGA Tour by using lessons from his father’s time as a quant.`\
-https://nytimes.com/2026/01/23/magazine/max-greyserman-golf-pga-wall-street.html
 
