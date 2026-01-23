@@ -1,3 +1,11 @@
+**Andy Robertson is a Liverpool legend. Him leaving for Tottenham would mark the end of a era**\
+`Liverpool are in talks with Tottenham over the sale of Robertson, which would mark the end of a momentous chapter at the club`\
+https://nytimes.com/athletic/6992513/2026/01/23/liverpool-robertson-tottenham-transfer-legacy/
+
+**Why Andy Robertson could be such a surprising - and important - signing for Tottenham**\
+`Spurs have needed a new experienced voice all season — someone who can help to guide them through difficult moments and keep them together`\
+https://nytimes.com/athletic/6991419/2026/01/23/why-andy-robertson-could-be-such-a-surprising-and-important-signing-for-tottenham/
+
 **Spurs working on deal to sign Robertson from Liverpool**\
 `Robertson's Liverpool contract expires at the end of June.`\
 https://nytimes.com/athletic/6992174/2026/01/23/andy-robertson-tottenham-transfer-liverpool/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6992441/2026/01/23/mlb-best-remaining-free-agents-f
 **Elias Pettersson a Flyers target? Rasmus Ristolainen on the move? What I'm hearing**\
 `Let's look at whether it makes sense to keep Ristolainen for a playoff push, and the likelihood of a Pettersson-Rick Tocchet reunion.`\
 https://nytimes.com/athletic/6992130/2026/01/23/flyers-trade-pettersson-ristolainen/
-
-**Why the Packers' defensive coordinator job might be most enticing for candidates**\
-`Calling plays for two All-Pros in Micah Parsons and Xavier McKinney? That sounds like an intriguing opportunity for any defensive coach.`\
-https://nytimes.com/athletic/6991886/2026/01/23/packers-defensive-coordinator-job/
-
-**As Luka returns to Dallas again, Mavs still picking up the shocking pieces**\
-`Nearly a year after blockbuster, Dallas has new executives, a fresh face of the franchise and relationships that still need repairing.`\
-https://nytimes.com/athletic/6987588/2026/01/23/luka-doncic-mavericks-lakers-trade-return/
 

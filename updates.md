@@ -1,3 +1,11 @@
+**Andy Robertson is a Liverpool legend. Him leaving for Tottenham would mark the end of a era**\
+`Liverpool are in talks with Tottenham over the sale of Robertson, which would mark the end of a momentous chapter at the club`\
+https://nytimes.com/athletic/6992513/2026/01/23/liverpool-robertson-tottenham-transfer-legacy/
+
+**Why Andy Robertson could be such a surprising - and important - signing for Tottenham**\
+`Spurs have needed a new experienced voice all season — someone who can help to guide them through difficult moments and keep them together`\
+https://nytimes.com/athletic/6991419/2026/01/23/why-andy-robertson-could-be-such-a-surprising-and-important-signing-for-tottenham/
+
 **Spurs working on deal to sign Robertson from Liverpool**\
 `Robertson's Liverpool contract expires at the end of June.`\
 https://nytimes.com/athletic/6992174/2026/01/23/andy-robertson-tottenham-transfer-liverpool/

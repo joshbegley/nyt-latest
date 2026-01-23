@@ -1,8 +1,20 @@
+**Reds roster projection 1.0: Still searching for a bat**\
+`The Reds still want another hitter, but should they run back most of last year's roster, here's how things could shake out. `\
+https://nytimes.com/athletic/6992742/2026/01/23/cincinnati-reds-roster-projection-2026/
+
+**Meet the man who hired Curt Cignetti and others before they were coaching stars**\
+`In 2018, Jeff Bourne chose Cignetti as James Madison's football coach. For Bourne, Cignetti’s success wasn’t an outlier. It was a pattern`\
+https://nytimes.com/athletic/6990380/2026/01/23/curt-cignetti-jeff-bourne-james-madison-ad/
+
+**NFL playoffs: Key matchups between Patriots and Broncos in AFC Championship Game**\
+`Broncos backup QB Jarrett Stidham has a big test against the Patriots' defense, while rookie Will Campbell will need to protect Drake Maye.`\
+https://nytimes.com/athletic/6992369/2026/01/23/nfl-playoffs-afc-championship-matchups-patriots-broncos/
+
 **Andy Robertson is a Liverpool legend. Him leaving for Tottenham would mark the end of a era**\
 `Liverpool are in talks with Tottenham over the sale of Robertson, which would mark the end of a momentous chapter at the club`\
 https://nytimes.com/athletic/6992513/2026/01/23/liverpool-robertson-tottenham-transfer-legacy/
 
-**Why Andy Robertson could be such a surprising - and important - signing for Tottenham**\
+**Why Andy Robertson would be such a surprising - and important - signing for Tottenham**\
 `Spurs have needed a new experienced voice all season — someone who can help to guide them through difficult moments and keep them together`\
 https://nytimes.com/athletic/6991419/2026/01/23/why-andy-robertson-could-be-such-a-surprising-and-important-signing-for-tottenham/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6993272/2026/01/23/sabres-playoff-push-byram-kessel
 **Carlos Beltrán, a man of many hats, ponders a career-capping question in Cooperstown**\
 `Mets? Royals? Logoless? Beltrán, who played for seven teams, hasn't said which one he'd like to rep on his plaque. The Hall has final say.`\
 https://nytimes.com/athletic/6993131/2026/01/23/carlos-beltran-hall-of-fame-plaque-hat/
-
-**Timeline of the Rangers’ decline: How New York hit the reset button twice in 8 years**\
-`An aging core, poor drafting and developing, devaluing of speed and skill and a culture of paranoia have put the Rangers in a tough spot.`\
-https://nytimes.com/athletic/6992134/2026/01/23/ny-rangers-retool-rebuild-timeline-nhl/
-
-**Ranking the top remaining MLB free agents still on the market**\
-`These seven free agents still need homes for 2026 and could make big impacts on teams this season.`\
-https://nytimes.com/athletic/6992441/2026/01/23/mlb-best-remaining-free-agents-framber-valdez/
-
-**Elias Pettersson a Flyers target? Rasmus Ristolainen on the move? What I'm hearing**\
-`Let's look at whether it makes sense to keep Ristolainen for a playoff push, and the likelihood of a Pettersson-Rick Tocchet reunion.`\
-https://nytimes.com/athletic/6992130/2026/01/23/flyers-trade-pettersson-ristolainen/
 
