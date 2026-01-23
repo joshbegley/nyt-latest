@@ -1,3 +1,11 @@
+**Louis E. Brus, Nobel Laureate Who Illuminated the Nanoworld, Dies at 82**\
+`He accidentally created some of the first quantum dots, tiny semiconductors that now power many electronics.`\
+https://nytimes.com/2026/01/23/science/louis-e-brus-dead.html
+
+**Nelson Mandela Memorabilia Can Go to Auction, Court Says**\
+`The anti-apartheid leader’s eldest daughter won the right to sell some of his personal items after a two-year legal battle.`\
+https://nytimes.com/2026/01/23/world/africa/nelson-mandela-memorabilia-auction.html
+
 **What went wrong for Keon Coleman in Buffalo? What's next for the Bills at WR?**\
 `Comments about him from the Bills owner and general manager made waves this week.`\
 https://nytimes.com/athletic/6994412/2026/01/23/nfl-bills-draft-keon-coleman-wr/

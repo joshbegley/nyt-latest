@@ -1,3 +1,7 @@
+**Bovino Says Border Patrol Agents Are ‘Experts in Dealing With Children’**\
+`A picture of a 5-year-old detained by federal authorities near Minneapolis rocketed around the internet and has become an avatar of outrage.`\
+https://nytimes.com/2026/01/23/us/bovino-ice-child-experts.html
+
 **Louis E. Brus, Nobel Laureate Who Illuminated the Nanoworld, Dies at 82**\
 `He accidentally created some of the first quantum dots, tiny semiconductors that now power many electronics.`\
 https://nytimes.com/2026/01/23/science/louis-e-brus-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/23/books/review/podcast-chuck-klosterman-football.ht
 **New York and New Jersey Governors Spar Over a Political Appointment**\
 `In her first week as governor of New Jersey, Mikie Sherrill is playing hardball to get her choice approved for a key role in Port Authority leadership.`\
 https://nytimes.com/2026/01/23/nyregion/garcia-port-authority-sherrill.html
-
-**Defending His Absence in House, Hunt Celebrates Casting a Vote**\
-`House leaders were forced to rush Representative Wesley Hunt, Republican of Texas, to the Capitol with a police escort to avoid an embarrassing defeat on the floor.`\
-https://nytimes.com/2026/01/23/us/politics/wesley-hunt-texas-vote-house.html
 
