@@ -1,3 +1,7 @@
+**2026 Oscar Nominees: Surprises and Snubs**\
+`Kyle Buchanan, our awards season columnist, breaks down the Academy Award nominations for 2026.`\
+https://nytimes.com/video/movies/100000010656682/2026-oscar-nominees-surprises-and-snubs.html
+
 **Flashback: Your Weekly History Quiz, Jan. 24, 2026**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2026/01/23/upshot/flashback.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/23/us/politics/labor-secretary-security-staff-invest
 **How the CFP is changing in 2026: Still 12 teams, but shifts for Notre Dame, money distribution**\
 `While the CFP is remaining at 12 teams in 2026, much of the value behind the scenes is about to change in a meaningful way.`\
 https://nytimes.com/athletic/6994393/2026/01/23/college-football-playoff-2026-format-expansion-changes/
-
-**Prosecutors in Spain End Investigation Into Julio Iglesias**\
-`Two women accused the singer, 82, of abusing them in the Caribbean and filed a complaint in Spain, but Spanish officials said that they did not have jurisdiction over the claim.`\
-https://nytimes.com/2026/01/23/world/europe/julio-iglesias-abuse-investigation.html
 

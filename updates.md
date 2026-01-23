@@ -1,3 +1,7 @@
+**2026 Oscar Nominees: Surprises and Snubs**\
+`Kyle Buchanan, our awards season columnist, breaks down the Academy Award nominations for 2026.`\
+https://nytimes.com/video/movies/100000010656682/2026-oscar-nominees-surprises-and-snubs.html
+
 **Flashback: Your Weekly History Quiz, Jan. 24, 2026**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2026/01/23/upshot/flashback.html

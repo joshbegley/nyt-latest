@@ -1,3 +1,7 @@
+**Ryan Wedding, ex-Olympic snowboarder on FBI's Most Wanted List, arrested**\
+`The arrest ends a multiyear search for the 44-year-old accused of running a transnational drug trafficking operation.`\
+https://nytimes.com/athletic/6994155/2026/01/23/ryan-wedding-arrest-fbi-olympics/
+
 **2026 Oscar Nominees: Surprises and Snubs**\
 `Kyle Buchanan, our awards season columnist, breaks down the Academy Award nominations for 2026.`\
 https://nytimes.com/video/movies/100000010656682/2026-oscar-nominees-surprises-and-snubs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6836565/2026/01/23/mlb-seranthony-dominguez-free-ag
 **Labor Secretary’s Security Guard Placed on Leave**\
 `The department has been investigating complaints about the conduct of Secretary Lori Chavez-DeRemer.`\
 https://nytimes.com/2026/01/23/us/politics/labor-secretary-security-staff-investigation.html
-
-**How the CFP is changing in 2026: Still 12 teams, but shifts for Notre Dame, money distribution**\
-`While the CFP is remaining at 12 teams in 2026, much of the value behind the scenes is about to change in a meaningful way.`\
-https://nytimes.com/athletic/6994393/2026/01/23/college-football-playoff-2026-format-expansion-changes/
 
