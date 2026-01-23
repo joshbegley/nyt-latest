@@ -1,3 +1,19 @@
+**A Republican Vaccine Defender Fights to Hang On**\
+`Senator Bill Cassidy of Louisiana, a physician, reluctantly voted to confirm Robert F. Kennedy Jr. as health secretary. It didn’t appease President Trump.`\
+https://nytimes.com/2026/01/23/us/politics/bill-cassidy-trump-louisiana-senate-race.html
+
+**Creamy Lasagna Soup for a Very Wintry Weekend**\
+`And more reader favorites from this week.`\
+https://nytimes.com/2026/01/23/dining/creamy-lasagna-soup-for-a-very-wintry-weekend.html
+
+**Simple or Simplistic? Three Experts Spar Over a California Billionaire Tax.**\
+`California Democrats are fighting over a proposed wealth tax. Can our panel of experts sort out the merits?`\
+https://nytimes.com/2026/01/23/opinion/california-wealth-tax-billionaires.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include lonely swordsmen, buddy cops, and a World War II German tank.`\
+https://nytimes.com/2026/01/23/movies/five-action-movies-to-stream-now.html
+
 **How to Protect Yourself in Extreme Cold**\
 `It’s not just frostbite and hypothermia. Freezing cold can affect almost every part of your body.`\
 https://nytimes.com/2026/01/23/well/winter-cold-weather-safety.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/23/arts/music/new-york-philharmonic-review.html
 **Messi, Miami in Libertadores? Even for the ambitious MLS club, it's a dream too big**\
 `A team headlined by Lionel Messi playing in South America's top club competition would be a big draw, but it's highly unlikely to happen`\
 https://nytimes.com/athletic/6992679/2026/01/23/inter-miami-copa-libertadores-jorge-mas-messi-mls-conmebol-concacaf/
-
-**Meet the U.S. Olympic Alpine skiing team: Multiple medal hopefuls on a deep roster**\
-`Lindsey Vonn, Mikaela Shiffrin and Ryan Cochran-Siegle headline the U.S. Olympic Alpine skiing team, which heads to Italy with high hopes.`\
-https://nytimes.com/athletic/6980548/2026/01/23/us-olympics-alpine-skiing-team-lindsey-vonn/
-
-**What I’m seeing from the Canucks: Kane’s trade value, Mancini’s future, more**\
-`Evander Kane's improved play could be a bonus for the Canucks at the deadline.`\
-https://nytimes.com/athletic/6993151/2026/01/23/canucks-evander-kane/
-
-**Lowetide: What should the Oilers do now about their goaltender depth chart?**\
-`There's a lot to discuss, with the Oilers loss to Pittsburgh offering an interesting backdrop for the conversation.`\
-https://nytimes.com/athletic/6991785/2026/01/23/oilers-edmonton-goalies-depth-chart-news/
-
-**President Trump Rescinds Canada’s Invitation to His ‘Board of Peace’**\
-`President Trump on Thursday rescinded his invitation to Canada to join his “Board of Peace,” an organization he founded to oversee the Gaza peace deal, after Prime Minister Mark Carney made comments critical of the United States.`\
-https://nytimes.com/video/us/100000010663523/trump-carney-board-peace-canada.html
 
