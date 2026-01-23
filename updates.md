@@ -1,3 +1,19 @@
+**New York City Could Get a Foot of Snow. Mamdani Knows It’s a Test.**\
+`Plenty of New York City mayors have faced blowback over their handling of blizzards. In several appearances this week, Mayor Zohran Mamdani has sought to show he is prepared.`\
+https://nytimes.com/2026/01/23/nyregion/mamdani-snow-nyc.html
+
+**Gathering Groceries**\
+`Why was this image in the news recently? What is it communicating?`\
+https://nytimes.com/2026/01/23/learning/gathering-groceries.html
+
+**After Pleas from Mamdani and Hochul, Talks Resume in Nurses’ Strike**\
+`Nearly 15,000 health care workers in New York have been off the job since last week in a labor action affecting some of the city’s major hospitals.`\
+https://nytimes.com/2026/01/23/nyregion/nyc-nurses-strike-mamdani-hochul.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/23/crosswords/spelling-bee-forum.html
+
 **Seth Meyers Says Trump’s Deals Are as Strong as a Pinkie Swear**\
 `“At this point, it’s pretty clear world leaders make deals with Trump the way kids do on the playground,” Meyers said of the president on Wednesday.`\
 https://nytimes.com/2026/01/23/arts/television/seth-meyers-trump-greenland-deal.html
