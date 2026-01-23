@@ -1,3 +1,15 @@
+**Until Saturday: How much did this CFB 'era' just change?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6994981/2026/01/23/indiana-college-football-until-saturday/
+
+**Blades Brown, 18, ties Scottie for AmEx lead with course-record 60**\
+`The known prodigy was playing his sixth round in as many days after starting the week on the Korn Ferry Tour.`\
+https://nytimes.com/athletic/6994961/2026/01/23/blades-brown-american-express-pga-tour-lead-60/
+
+**Manhattan Doorman Killed as N.Y.P.D. Sergeant Crashes Into Him Head-On**\
+`The sergeant, Tiffany Howell, 47, was driving the wrong way on the Taconic State Parkway in New York when she crashed into Manuel Boitel, 61, the state police said.`\
+https://nytimes.com/2026/01/23/nyregion/nypd-crash-tiffany-howell.html
+
 **John H. Beyer, 92, Dies; Architect Championed Historic Preservation**\
 `The last surviving founder of Beyer Blinder Belle, he helped safeguard New York City’s past even as developers raced to push the city into the future.`\
 https://nytimes.com/2026/01/23/arts/design/john-h-beyer-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/23/climate/national-park-service-deleting-american-h
 **Joint Chiefs Chairman Issues Rare Invitation to Foreign Military Heads**\
 `Top military leaders from 34 countries plan to discuss improving efforts in the Western Hemisphere to fight drug trafficking and transnational criminal organizations.`\
 https://nytimes.com/2026/01/23/us/politics/military-western-hemisphere-leaders.html
-
-**Are Republicans Growing a Little Uneasy About the ICE Raids?**\
-`Polls, careful remarks from JD Vance and chats with voters all point to some wariness.`\
-https://nytimes.com/2026/01/23/us/politics/ice-immigration-republicans-voters.html
-
-**Snow and Ice Are Coming. Where Is the Salt?**\
-`Heavy snow, ice and bitter cold are threatening much of the country, but some places are short on a key resource: road salt.`\
-https://nytimes.com/2026/01/23/weather/salt-shortage-snow-storm.html
-
-**National Park Service Removes Slavery Exhibit in Philadelphia**\
-`Following a directive from President Trump, the National Park Service removed a Philadelphia exhibit memorializing nine people enslaved by George Washington. The administration ordered the removal of materials that promote “corrosive ideology” in favor of those highlighting American “greatness.”`\
-https://nytimes.com/video/us/politics/100000010664240/philadelphia-slavery-exhibit-trump.html
 
