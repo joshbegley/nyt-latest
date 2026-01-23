@@ -1,3 +1,27 @@
+**Arsenal's Calafiori and Hincapie return to training ahead of Man United clash**\
+`Jurrien Timber has been deputising at left-back in Calafiori and Hincapie's absence but their returns provide a boost for Arteta's side.`\
+https://nytimes.com/athletic/6993777/2026/01/23/arsenal-team-news-calafiori-hincapie-man-united/
+
+**Live Updates: New York Declares Emergency as Country Braces for Major Storm**\
+`Gov. Kathy Hochul warned residents to prepare for winter hazards and disruptions to their daily lives. Millions of people from the Rockies to New England are in the path of dangerous weather.`\
+https://nytimes.com/live/2026/01/23/us/winter-storm-snow
+
+**NHL Power Rankings: A new No. 1 plus your team's injury excuse**\
+`This week, we look at what could’ve been if not for a plethora of key injuries around the league. What if your favorite team wasn’t injured?`\
+https://nytimes.com/athletic/6993373/2026/01/23/nhl-power-rankings-lightning/
+
+**Here’s the latest.**\
+`By Amy Graff`\
+https://nytimes.com/live/2026/01/23/us/winter-storm-snow/heres-the-latest
+
+**Chelsea's Essugo to miss more than a month after suffering injury in training**\
+`The 20-year-old has not played for the club all season having suffered a serious thigh injury in September.`\
+https://nytimes.com/athletic/6993916/2026/01/23/dario-essugo-chelsea-injury-latest/
+
+**Moyes says Grealish injury 'adds to Everton thinking' in transfer market**\
+`Moyes confirmed Grealish has suffered a stress fracture in his foot and said the club would assess whether to move for a replacement.`\
+https://nytimes.com/athletic/6993918/2026/01/23/jack-grealish-injury-everton-transfers/
+
 **Mike McDaniel is interviewing for Bills' head-coaching job as Chargers wait**\
 `Josh Allen is sitting in on Bills' head-coaching interviews as the team searches for a replacement for Sean McDermott.`\
 https://nytimes.com/athletic/6993830/2026/01/23/mike-mcdaniel-bills-chargers/

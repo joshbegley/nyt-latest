@@ -1,3 +1,11 @@
+**5 Arrested in Shooting of Indiana Judge and His Wife**\
+`Three people from Indiana and two from Kentucky are in custody, officials said. The judge, Steven Meyer, and his wife were injured but are recovering.`\
+https://nytimes.com/2026/01/23/us/indiana-judge-steven-meyer-shooting-arrests.html
+
+**What can Arsenal expect from Kai Havertz this season?**\
+`It has been a tentative return and Arsenal are clearly taking great care with a player who has effectively missed a year of football`\
+https://nytimes.com/athletic/6993645/2026/01/23/arsenal-havertz-knee-injury-expectations/
+
 **Arsenal's Calafiori and Hincapie return to training ahead of Man United clash**\
 `Jurrien Timber has been deputising at left-back in Calafiori and Hincapie's absence but their returns provide a boost for Arteta's side.`\
 https://nytimes.com/athletic/6993777/2026/01/23/arsenal-team-news-calafiori-hincapie-man-united/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/01/23/us/politics/raskin-garcia-letter-doj-
 **West Ham reject second bid from Flamengo for Paqueta**\
 `It is the second time this month that West Ham have rejected an offer from the Brazilian side for the 28-year-old.`\
 https://nytimes.com/athletic/6993771/2026/01/23/paqueta-transfer-news-west-ham-flamengo-bid/
-
-**Read Democrats’ Letter to Bondi About Maxwell**\
-`Representatives Jamie Raskin of Maryland and Robert Garcia of California, the top Democrats on the Judiciary and Oversight Committees, said that more than a dozen people had come forward with whistle-blower complaints about the treatment of Ghislaine Maxwell, the longtime companion of Jeffrey Epstein.`\
-https://nytimes.com/interactive/2026/01/23/us/politics/raskin-garcia-letter-bondi.html
-
-**Mike McDaniel is interviewing for Bills' head-coaching job as Chargers wait**\
-`Josh Allen is sitting in on Bills' head-coaching interviews as the team searches for a replacement for Sean McDermott.`\
-https://nytimes.com/athletic/6993830/2026/01/23/mike-mcdaniel-bills-chargers/
 
