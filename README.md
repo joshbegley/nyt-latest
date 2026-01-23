@@ -1,3 +1,7 @@
+**D.H.S. Cited Foreign Students’ Writings and Protests Before Their Arrests**\
+`Documents unsealed by a federal judge on Thursday include dossiers that investigators prepared on pro-Palestinian student activists before they were targeted for deportation.`\
+https://nytimes.com/2026/01/22/us/politics/trump-rubio-student-speech.html
+
 **National Park Service Dismantles Slavery Exhibit in Philadelphia**\
 `The exhibit memorialized nine people enslaved by George Washington. The Park Service said it was being removed in accordance with a directive from President Trump.`\
 https://nytimes.com/2026/01/22/us/politics/park-service-philadelphia-slavery-exhibit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/arts/television/the-pitt-recap-season-2-episode-3
 **Who Owns TikTok in the U.S. Now?**\
 `Several big companies and investment firms are part of the new American TikTok. Many have ties to one another and President Trump.`\
 https://nytimes.com/2026/01/22/business/media/tiktok-investors-oracle-mgx-silver-lake-bytedance.html
-
-**Applications Open for the 2026 New York Portfolio Review**\
-`Apply now for this free event for photographers.`\
-https://nytimes.com/2026/01/22/lens/2026-new-york-portfolio-review.html
 

@@ -1,3 +1,15 @@
+**National Park Service Dismantles Slavery Exhibit in Philadelphia**\
+`The exhibit memorialized nine people enslaved by George Washington. The Park Service said it was being removed in accordance with a directive from President Trump.`\
+https://nytimes.com/2026/01/22/us/politics/park-service-philadelphia-slavery-exhibit.html
+
+**White House Posts Altered Photo Showing Arrested Minnesota Protester Crying**\
+`The New York Times ran the image posted by Kristi Noem, the homeland security secretary, as well as the one posted by the White House through an A.I. detection system. It concluded that the White House’s version showed signs of manipulation.`\
+https://nytimes.com/2026/01/22/us/politics/nekima-armstrong-photo-white-house.html
+
+**Young Blackhawks battered but not beaten in gutsy win over Hurricanes**\
+`The Blackhawks have skewed young all season, but Thursday night's 4-3 shootout win over Carolina was their youngest look yet.`\
+https://nytimes.com/athletic/6993166/2026/01/22/blackhawks-hurricanes-oliver-moore-shootout/
+
 **Aaliyah Chavez, Oklahoma stun South Carolina in overtime**\
 `Chavez scored 14 of the Sooners’ 19 points in overtime and assisted on two more in their upset of the Gamecocks.`\
 https://nytimes.com/athletic/6993115/2026/01/22/oklahoma-south-carolina-overtime-upset/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/22/business/media/tiktok-investors-oracle-mgx-silver
 **Applications Open for the 2026 New York Portfolio Review**\
 `Apply now for this free event for photographers.`\
 https://nytimes.com/2026/01/22/lens/2026-new-york-portfolio-review.html
-
-**Jonathan Kuminga exits Warriors' game vs. Mavericks with knee soreness**\
-`Though the injury may not be serious, It is the latest chapter of a season with many twists and turns.`\
-https://nytimes.com/athletic/6993019/2026/01/22/jonathan-kuminga-warriors-injury-update-trade-status/
-
-**Colts 'aware' of FBI investigation into death of owner Jim Irsay**\
-`Investigators are examining Irsay’s drug use, legal and illegal, and California-based recovery doctor, Dr. Harry Haroutunian.`\
-https://nytimes.com/athletic/6992483/2026/01/22/colts-jim-irsay-fbi-investigation-owner-death/
-
-**Rosenthal: What people around MLB are saying about the MacKenzie Gore deal, plus more offseason notes**\
-`We also detail Max Scherzer's free-agent timeline, the other Freddy Peralta suitors and the impact of local TV uncertainty.`\
-https://nytimes.com/athletic/6993006/2026/01/22/mackenzie-gore-rangers-nationals-max-scherzer/
 
