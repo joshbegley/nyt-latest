@@ -1,3 +1,15 @@
+**Artist Sues Over Venice Biennale Snub in Dispute Over Gaza-Focused Work**\
+`A panel recommended that Gabrielle Goliath represent South Africa at the event. But the culture minister rejected its suggestion.`\
+https://nytimes.com/2026/01/23/arts/design/venice-biennale-south-africa-gabrielle-goliath.html
+
+**How to watch Saint Louis vs. Saint Bonaventure men's basketball: Time, TV, streaming**\
+`Find out how to watch the Saint Louis Billikens play the Saint Bonaventure Bonnies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6994226/2026/01/23/saint-louis-vs-saint-bonaventure-stream-how-to-watch-jan-23/
+
+**Chelsea fined for 'dangerous' water bottle incident after Villa loss**\
+`Chelsea admitted to the charge but the individual responsible for throwing the bottle could not be identified.`\
+https://nytimes.com/athletic/6994100/2026/01/23/chelsea-aston-villa-water-bottle-fine/
+
 **A Republican Vaccine Defender Fights to Hang On**\
 `Senator Bill Cassidy of Louisiana, a physician, reluctantly voted to confirm Robert F. Kennedy Jr. as health secretary. It didn’t appease President Trump.`\
 https://nytimes.com/2026/01/23/us/politics/bill-cassidy-trump-louisiana-senate-race.html

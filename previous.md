@@ -1,3 +1,15 @@
+**Artist Sues Over Venice Biennale Snub in Dispute Over Gaza-Focused Work**\
+`A panel recommended that Gabrielle Goliath represent South Africa at the event. But the culture minister rejected its suggestion.`\
+https://nytimes.com/2026/01/23/arts/design/venice-biennale-south-africa-gabrielle-goliath.html
+
+**How to watch Saint Louis vs. Saint Bonaventure men's basketball: Time, TV, streaming**\
+`Find out how to watch the Saint Louis Billikens play the Saint Bonaventure Bonnies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6994226/2026/01/23/saint-louis-vs-saint-bonaventure-stream-how-to-watch-jan-23/
+
+**Chelsea fined for 'dangerous' water bottle incident after Villa loss**\
+`Chelsea admitted to the charge but the individual responsible for throwing the bottle could not be identified.`\
+https://nytimes.com/athletic/6994100/2026/01/23/chelsea-aston-villa-water-bottle-fine/
+
 **A Republican Vaccine Defender Fights to Hang On**\
 `Senator Bill Cassidy of Louisiana, a physician, reluctantly voted to confirm Robert F. Kennedy Jr. as health secretary. It didn’t appease President Trump.`\
 https://nytimes.com/2026/01/23/us/politics/bill-cassidy-trump-louisiana-senate-race.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6994028/2026/01/23/mateta-transfer-news-crystal-pal
 **NHL's 6 most compelling teams — and the questions that follow them**\
 `As we near the NHL regular season's home stretch, we still have major questions, beginning with "Are the Penguins actually a playoff team?"`\
 https://nytimes.com/athletic/6994039/2026/01/23/nhl-playoff-standings-surprises-red-light/
-
-**NFL Draft picks returning to college? The potential domino effect of basketball's eligibility mess**\
-`If Charles Bediako suits up for Alabama the rest of the basketball season, the ripple effects could stretch to other sports.`\
-https://nytimes.com/athletic/6993798/2026/01/23/charles-bediako-alabama-basketball-college-football-eligibility/
-
-**Review: A Warning of American Despair Returns to the Philharmonic**\
-`Thomas Adès led the New York Philharmonic in an expanded version of his “America: A Prophecy” that strikes notes of caution and consolation.`\
-https://nytimes.com/2026/01/23/arts/music/new-york-philharmonic-review.html
-
-**Messi, Miami in Libertadores? Even for the ambitious MLS club, it's a dream too big**\
-`A team headlined by Lionel Messi playing in South America's top club competition would be a big draw, but it's highly unlikely to happen`\
-https://nytimes.com/athletic/6992679/2026/01/23/inter-miami-copa-libertadores-jorge-mas-messi-mls-conmebol-concacaf/
 
