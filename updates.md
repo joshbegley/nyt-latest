@@ -1,3 +1,15 @@
+**The New York Times in Print for Friday, Jan. 23, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/23/todays-new-york-times
+
+**NATO as We Know It Is Coming to an End, and That’s OK**\
+`Europe has a chance to step out of America’s shadow.`\
+https://nytimes.com/2026/01/23/opinion/trump-greenland-nato-europe.html
+
+**Latin Americans Love the Right. Can You Blame Them?**\
+`The right is ascendant in Latin America. How long will it last?`\
+https://nytimes.com/2026/01/23/opinion/latin-america-right-strongmen-trump-venezuela.html
+
 **Patrick Dorgu is getting better at Manchester United. This is how**\
 `The Denmark international arrived at Old Trafford with rough edges but they are being smoothed out to great effect`\
 https://nytimes.com/athletic/6991175/2026/01/23/patrick-dorgu-manchester-united/
