@@ -1,3 +1,7 @@
+**Messi, Miami in Libertadores? Even for the ambitious MLS club, it's a dream too big**\
+`A team headlined by Lionel Messi playing in South America's top club competition would be a big draw, but it's highly unlikely to happen`\
+https://nytimes.com/athletic/6992679/2026/01/23/inter-miami-copa-libertadores-jorge-mas-messi-mls-conmebol-concacaf/
+
 **Meet the U.S. Olympic Alpine skiing team: Multiple medal hopefuls on a deep roster**\
 `Lindsey Vonn, Mikaela Shiffrin and Ryan Cochran-Siegle headline the U.S. Olympic Alpine skiing team, which heads to Italy with high hopes.`\
 https://nytimes.com/athletic/6980548/2026/01/23/us-olympics-alpine-skiing-team-lindsey-vonn/
