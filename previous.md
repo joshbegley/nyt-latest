@@ -1,3 +1,7 @@
+**Aaliyah Chavez, Oklahoma stun South Carolina in overtime**\
+`Chavez scored 14 of the Sooners’ 19 points in overtime and assisted on two more in their upset of the Gamecocks.`\
+https://nytimes.com/athletic/6993115/2026/01/22/oklahoma-south-carolina-overtime-upset/
+
 **Referees miss goaltending call on potential Tyrese Maxey game winner in regulation**\
 `The 76ers won in overtime but likely would have prevailed in regulation if a goaltend was called on Maxey's layup with 1.3 seconds left.`\
 https://nytimes.com/athletic/6993071/2026/01/22/sixers-rockets-tyrese-maxey-goaltending-call-referees/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6992483/2026/01/22/colts-jim-irsay-fbi-investigatio
 **Rosenthal: What people around MLB are saying about the MacKenzie Gore deal, plus more offseason notes**\
 `We also detail Max Scherzer's free-agent timeline, the other Freddy Peralta suitors and the impact of local TV uncertainty.`\
 https://nytimes.com/athletic/6993006/2026/01/22/mackenzie-gore-rangers-nationals-max-scherzer/
-
-**Man Accused in $100 Million Jewel Heist Is Deported, Thwarting Trial**\
-`The move comes as ICE seeks to deport more people charged with crimes, sometimes before their cases are resolved.`\
-https://nytimes.com/2026/01/22/us/ice-deports-man-jewel-heist.html
 
