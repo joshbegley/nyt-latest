@@ -1,3 +1,7 @@
+**Dallas County Exonerates Black Man Who Was Executed in 1956**\
+`An all-white jury convicted Tommy Lee Walker of rape and murder, relying on inadmissible evidence and a coerced confession that he immediately recanted, county officials said.`\
+https://nytimes.com/2026/01/22/us/tommy-lee-walker-dallas-execution-innocent.html
+
 **Dallas Exonerates Black Man Who Was Wrongfully Executed in 1956**\
 `An all-white jury convicted Tommy Lee Walker of rape and murder, relying on inadmissible evidence and a coerced confession that he immediately recanted, county officials said.`\
 https://nytimes.com/2026/01/22/us/tommy-lee-walker-dallas-execution-innocent.html
