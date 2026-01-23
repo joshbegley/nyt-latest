@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6992491/2026/01/23/dodgers-kyle-tucker-projected-li
 https://nytimes.com/2026/01/23/us/politics/ghislaine-maxwell-prison-preferential-treatment.html
 
 **Send Joe Person your Panthers mailbag questions**\
-`<p>The last time we made a call out for reader questions, the Carolina Panthers were riding into the bye week on a high after upsetting the Los Angeles Rams at home.`\
+`It's the offseason for the Panthers and after a trip to the playoffs, we want to hear your questions for a mailbag next week.`\
 https://nytimes.com/athletic/6993845/2026/01/23/panthers-mailbag-questions-readers/
 
 **Low Rates Sound Great. But a Trump Fed Could Cause a Painful ‘Sugar High.’**\
