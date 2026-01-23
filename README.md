@@ -1,3 +1,7 @@
+**NFLPA fires lawyer who sued union leaders over alleged retaliation**\
+`Heather McPhee was fired after she sued the union, alleging it conspired to prevent her from serving as a witness in a DOJ investigation.`\
+https://nytimes.com/athletic/6993398/2026/01/23/heather-mcphee-fired-nflpa-lawsuit/
+
 **Arizona basketball veterans could've pouted coming off the bench. Instead, they leaned in**\
 `Arizona could have the makeup to make its first Final Four since 2001. And depth is a major part of it.`\
 https://nytimes.com/athletic/6992232/2026/01/23/arizona-wildcats-basketball-depth/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6992770/2026/01/23/trae-young-wizards-draft-lottery
 **‘The Headlines’ News Quiz: Jan. 23, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://nytimes.com/2026/01/23/podcasts/the-headlines/the-headlines-news-quiz-jan-23-2026.html
-
-**What we're hearing about Karl-Anthony Towns' Knicks future, plus more NBA trade intel**\
-`With the Knicks floundering, would they really consider trading Karl-Anthony Towns? Plus more on Lamelo Ball, Ja Morant.`\
-https://nytimes.com/athletic/6993002/2026/01/23/nba-trade-rumors-karl-anthony-towns-knicks/
 
