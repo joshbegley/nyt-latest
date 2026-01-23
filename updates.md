@@ -1,3 +1,15 @@
+**Fantasy Premier League live Q&A: Gameweek 23 advice from Ben Dinnery**\
+`Ben Dinnery is on hand to offer his expert advice on the players to target, who to avoid, and the fitness doubts you need to be aware`\
+https://nytimes.com/athletic/6993571/2026/01/23/fantasy-premier-league-live-qa-gameweek-23-advice-from-ben-dinnery/
+
+**Wizards must have more than Trae Young and lottery luck to take a leap next season**\
+`Washington is squarely in the middle of Year 3 of its teardown. There should not be a fourth.`\
+https://nytimes.com/athletic/6992770/2026/01/23/trae-young-wizards-draft-lottery-luck/
+
+**‘The Headlines’ News Quiz: Jan. 23, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://nytimes.com/2026/01/23/podcasts/the-headlines/the-headlines-news-quiz-jan-23-2026.html
+
 **What we're hearing about Karl-Anthony Towns' Knicks future, plus more NBA trade intel**\
 `With the Knicks floundering, would they really consider trading Karl-Anthony Towns? Plus more on Lamelo Ball, Ja Morant.`\
 https://nytimes.com/athletic/6993002/2026/01/23/nba-trade-rumors-karl-anthony-towns-knicks/
