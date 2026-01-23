@@ -1,3 +1,11 @@
+**I tried Curt Cignetti's Chipotle order. It should enter the transfer portal**\
+`Much like his 16-0 Indiana Hoosiers, Coach Cignetti's "I Win" Chipotle bowl is simple and workmanlike in its execution.`\
+https://nytimes.com/athletic/6992367/2026/01/22/curt-cignetti-chipotle-indiana-football/
+
+**TikTok Strikes Deal for New U.S. Entity, Ending Long Legal Saga**\
+`The Chinese parent company for the popular video app said it had struck a deal with a group of non-Chinese investors to create a new American TikTok to avoid a ban in the United States.`\
+https://nytimes.com/2026/01/22/technology/tiktok-deal-oracle-bytedance-china-us.html
+
 **ICE Demands More Access to Minnesota Inmates. But It’s Complicated.**\
 `The Trump administration said it would ease its immigration operation in Minnesota in exchange for broader access to inmates. Local leaders say they already cooperate significantly.`\
 https://nytimes.com/2026/01/22/us/ice-minnesota-inmates.html
