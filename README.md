@@ -1,3 +1,11 @@
+**West Ham reject second bid from Flamengo for Paqueta**\
+`It is the second time this month that West Ham have rejected an offer from the Brazilian side for the 28-year-old.`\
+https://nytimes.com/athletic/6993771/2026/01/23/paqueta-transfer-news-west-ham-flamengo-bid/
+
+**Read Democrats’ Letter to Bondi About Maxwell**\
+`Representatives Jamie Raskin of Maryland and Robert Garcia of California, the top Democrats on the Judiciary and Oversight Committees, said that more than a dozen people had come forward with whistle-blower complaints about the treatment of Ghislaine Maxwell, the longtime companion of Jeffrey Epstein.`\
+https://nytimes.com/interactive/2026/01/23/us/politics/raskin-garcia-letter-bondi.html
+
 **Mike McDaniel interviewing for Bills head coaching job as Chargers wait**\
 `Josh Allen is sitting in on Bills' head-coaching interviews as the team searches for a replacement for Sean McDermott.`\
 https://nytimes.com/athletic/6993830/2026/01/23/mike-mcdaniel-bills-chargers/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/23/business/trump-fed-interest-rates-inflation.html
 **New Rules for 401(k) ‘Catch-Up’ Contributions in 2026**\
 `Older high-income workers who make contributions beyond the standard amount will have to put that extra money into a Roth 401(k). That may lower their take-home pay.`\
 https://nytimes.com/2026/01/23/your-money/401k-contributions-catch-up-roth-retirement.html
-
-**Williams will miss F1 Barcelona shakedown test after 'delays'**\
-`The team said in a statement that they will "continue to push for maximum car performance" as they prepare for preseason testing.`\
-https://nytimes.com/athletic/6993823/2026/01/23/williams-f1-barcelona-shakedown-delays/
-
-**Scuffling Wolves need Anthony Edwards, Julius Randle to step up on defense**\
-`"We have no defensive personality right now," coach Chris Finch said after Minnesota lost its fourth straight game Thursday.`\
-https://nytimes.com/athletic/6992847/2026/01/23/anthony-edwards-julius-randle-timberwolves-defense-losing-streak/
 
