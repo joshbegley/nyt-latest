@@ -1,3 +1,7 @@
+**Nick Kurtz MLB Debut Patch card sells for $516,000**\
+`Kurtz's previous record card sale was $86,620. `\
+https://nytimes.com/athletic/6988949/2026/01/23/nick-kurtz-mlb-debut-patch-card/
+
 **On frigid night, Kirill Kaprizov scores 2 goals, including 13th career OT winner: Takeaways**\
 `The Wild, who had been on a 12-0-2 run at home, won in St. Paul for the first time since Dec. 20 by snapping a five-game winless streak.`\
 https://nytimes.com/athletic/6993073/2026/01/23/kirill-kaprizov-wild-goals-ot-winner/

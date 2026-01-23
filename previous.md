@@ -1,3 +1,7 @@
+**Nick Kurtz MLB Debut Patch card sells for $516,000**\
+`Kurtz's previous record card sale was $86,620. `\
+https://nytimes.com/athletic/6988949/2026/01/23/nick-kurtz-mlb-debut-patch-card/
+
 **On frigid night, Kirill Kaprizov scores 2 goals, including 13th career OT winner: Takeaways**\
 `The Wild, who had been on a 12-0-2 run at home, won in St. Paul for the first time since Dec. 20 by snapping a five-game winless streak.`\
 https://nytimes.com/athletic/6993073/2026/01/23/kirill-kaprizov-wild-goals-ot-winner/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/23/opinion/trump-greenland-nato-europe.html
 **Latin Americans Love the Right. Can You Blame Them?**\
 `The right is ascendant in Latin America. How long will it last?`\
 https://nytimes.com/2026/01/23/opinion/latin-america-right-strongmen-trump-venezuela.html
-
-**Patrick Dorgu is getting better at Manchester United. This is how**\
-`The Denmark international arrived at Old Trafford with rough edges but they are being smoothed out to great effect`\
-https://nytimes.com/athletic/6991175/2026/01/23/patrick-dorgu-manchester-united/
 
