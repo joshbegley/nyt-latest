@@ -1,3 +1,15 @@
+**Meet the U.S. Olympic Alpine skiing team: Multiple medal hopefuls on a deep roster**\
+`Lindsey Vonn, Mikaela Shiffrin and Ryan Cochran-Siegle headline the U.S. Olympic Alpine skiing team, which heads to Italy with high hopes.`\
+https://nytimes.com/athletic/6980548/2026/01/23/us-olympics-alpine-skiing-team-lindsey-vonn/
+
+**What I’m seeing from the Canucks: Kane’s trade value, Mancini’s future, more**\
+`Evander Kane's improved play could be a bonus for the Canucks at the deadline.`\
+https://nytimes.com/athletic/6993151/2026/01/23/canucks-evander-kane/
+
+**Lowetide: What should the Oilers do now about their goaltender depth chart?**\
+`There's a lot to discuss, with the Oilers loss to Pittsburgh offering an interesting backdrop for the conversation.`\
+https://nytimes.com/athletic/6991785/2026/01/23/oilers-edmonton-goalies-depth-chart-news/
+
 **President Trump Rescinds Canada’s Invitation to His ‘Board of Peace’**\
 `President Trump on Thursday rescinded his invitation to Canada to join his “Board of Peace,” an organization he founded to oversee the Gaza peace deal, after Prime Minister Mark Carney made comments critical of the United States.`\
 https://nytimes.com/video/us/100000010663523/trump-carney-board-peace-canada.html

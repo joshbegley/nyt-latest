@@ -1,3 +1,15 @@
+**Meet the U.S. Olympic Alpine skiing team: Multiple medal hopefuls on a deep roster**\
+`Lindsey Vonn, Mikaela Shiffrin and Ryan Cochran-Siegle headline the U.S. Olympic Alpine skiing team, which heads to Italy with high hopes.`\
+https://nytimes.com/athletic/6980548/2026/01/23/us-olympics-alpine-skiing-team-lindsey-vonn/
+
+**What I’m seeing from the Canucks: Kane’s trade value, Mancini’s future, more**\
+`Evander Kane's improved play could be a bonus for the Canucks at the deadline.`\
+https://nytimes.com/athletic/6993151/2026/01/23/canucks-evander-kane/
+
+**Lowetide: What should the Oilers do now about their goaltender depth chart?**\
+`There's a lot to discuss, with the Oilers loss to Pittsburgh offering an interesting backdrop for the conversation.`\
+https://nytimes.com/athletic/6991785/2026/01/23/oilers-edmonton-goalies-depth-chart-news/
+
 **President Trump Rescinds Canada’s Invitation to His ‘Board of Peace’**\
 `President Trump on Thursday rescinded his invitation to Canada to join his “Board of Peace,” an organization he founded to oversee the Gaza peace deal, after Prime Minister Mark Carney made comments critical of the United States.`\
 https://nytimes.com/video/us/100000010663523/trump-carney-board-peace-canada.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6993645/2026/01/23/arsenal-havertz-knee-injury-expe
 **Arsenal's Calafiori, Hincapie return to training before Man Utd clash**\
 `Jurrien Timber has been deputising at left-back in Calafiori and Hincapie's absence but their returns provide a boost for Arteta's side.`\
 https://nytimes.com/athletic/6993777/2026/01/23/arsenal-team-news-calafiori-hincapie-man-united/
-
-**Live Updates: New York Declares Emergency as Country Braces for Major Storm**\
-`Gov. Kathy Hochul warned residents to prepare for winter hazards and disruptions to their daily lives. Millions of people from the Rockies to New England are in the path of dangerous weather.`\
-https://nytimes.com/live/2026/01/23/us/winter-storm-snow
-
-**NHL Power Rankings: A new No. 1 plus your team's injury excuse**\
-`This week, we look at what could’ve been if not for a plethora of key injuries around the league. What if your favorite team wasn’t injured?`\
-https://nytimes.com/athletic/6993373/2026/01/23/nhl-power-rankings-lightning/
-
-**Here’s the latest.**\
-`By Amy Graff`\
-https://nytimes.com/live/2026/01/23/us/winter-storm-snow/heres-the-latest
 
