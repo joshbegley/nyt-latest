@@ -1,3 +1,7 @@
+**Nazis, Soviets and Trump: America’s Fixation With Greenland**\
+`The idea that Greenland is essential to the United States has returned with a vengeance in the Trump era.`\
+https://nytimes.com/2026/01/22/us/politics/greenland-trump-cold-war.html
+
 **Peak newsletter: The lesson in Josh Allen’s emotional moment**\
 `Peak newsletter 🧠 | This is The Athletic&#8217;s weekly newsletter covering the mental side of sports.`\
 https://nytimes.com/athletic/6992198/2026/01/22/josh-allen-leadership-peak-newsletter/
