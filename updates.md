@@ -1,3 +1,7 @@
+**Pedro Sanchez, Who Helped Feed the Developing World, Dies at 85**\
+`A soil scientist, he partnered with the United Nations and other organizations to bring productive agricultural practices to uncooperative terrain.`\
+https://nytimes.com/2026/01/23/science/pedro-sanchez-dead.html
+
 **Giants rebuffed after making aggressive pitch for Nationals' CJ Abrams: Source**\
 `After finding it difficult to make trades involving prospects, the Giants may need to turn to the free-agent market to make roster upgrades.`\
 https://nytimes.com/athletic/6994852/2026/01/23/sf-giants-cj-abrams-trade-talks-josuar-gonzalez/

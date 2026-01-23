@@ -1,3 +1,7 @@
+**Pedro Sanchez, Who Helped Feed the Developing World, Dies at 85**\
+`A soil scientist, he partnered with the United Nations and other organizations to bring productive agricultural practices to uncooperative terrain.`\
+https://nytimes.com/2026/01/23/science/pedro-sanchez-dead.html
+
 **Giants rebuffed after making aggressive pitch for Nationals' CJ Abrams: Source**\
 `After finding it difficult to make trades involving prospects, the Giants may need to turn to the free-agent market to make roster upgrades.`\
 https://nytimes.com/athletic/6994852/2026/01/23/sf-giants-cj-abrams-trade-talks-josuar-gonzalez/
@@ -33,8 +37,4 @@ https://nytimes.com/video/weather/100000010664857/kamchatka-snow-records-russia.
 **Adams Aide Who Was ICE Liaison Is Expected to Join Trump Administration**\
 `Kaz Daughtry, a former deputy mayor under Eric Adams, was a key contact for federal administration officials involved in the White House’s immigration crackdown.`\
 https://nytimes.com/2026/01/23/nyregion/kaz-daughtry-ice-dhs.html
-
-**NCAA approves proposal to allow teams to wear sponsorship logo patches**\
-`Teams can begin displaying up to two logo patches of no more than 4 square inches on uniforms starting Aug. 1.`\
-https://nytimes.com/athletic/6994700/2026/01/23/ncaa-logo-patches-college-uniforms/
 
