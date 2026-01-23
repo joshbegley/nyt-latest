@@ -1,3 +1,11 @@
+**On the Level**\
+`Joyce Keller opens our solving weekend.`\
+https://nytimes.com/2026/01/22/crosswords/daily-puzzle-2026-01-23.html
+
+**‘The Pitt’ Season 2 Episode 3 Recap: Expect the Unexpected**\
+`The doctors are seeing a lot of rare cases on this Fourth of July. Not even the fireworks-related injuries have been straightforward.`\
+https://nytimes.com/2026/01/22/arts/television/the-pitt-recap-season-2-episode-3.html
+
 **Who Owns TikTok in the U.S. Now?**\
 `Several big companies and investment firms are part of the new American TikTok. Many have ties to one another and President Trump.`\
 https://nytimes.com/2026/01/22/business/media/tiktok-investors-oracle-mgx-silver-lake-bytedance.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/01/22/arts/jacques-louis-david-painter-fren
 **Carlos Beltrán: Astros' cheating scandal 'doesn't define' me**\
 `Beltrán conceded that he can never escape the shadows cast by the scandal. But, he said, "that doesn’t really define the person that I am."`\
 https://nytimes.com/athletic/6992812/2026/01/22/carlos-beltran-hall-of-fame-astros-cheating-scandal/
-
-**F.A.A. Says Helicopter Restrictions Imposed After D.C. Crash Will Stay**\
-`The agency said that expanding the restrictions and making them permanent were urgent steps for avoiding another crash.`\
-https://nytimes.com/2026/01/22/us/politics/helicopter-restrictions-washington-crash.html
-
-**CF Montréal finalizing deal to acquire Tomás Avilés from Inter Miami: Sources**\
-`CF Montréal has been successful in acquiring talented young players in the intra-MLS market.`\
-https://nytimes.com/athletic/6992963/2026/01/22/cf-montreal-tomas-aviles-trade-inter-miami/
 
