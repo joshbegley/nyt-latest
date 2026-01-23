@@ -1,3 +1,11 @@
+**Steph Curry faces one of his biggest challenges after Jimmy Butler injury**\
+`"It's no secret this is difficult for everybody," Curry said after Thursday's loss to Dallas.`\
+https://nytimes.com/athletic/6993482/2026/01/23/stephen-curry-warriors-jimmy-butler-injury/
+
+**Trump Says U.S. ‘Armada’ Is Heading to Iran**\
+`President Trump said the United States was “watching Iran” and sending a naval force there, despite also saying this week that his threats had halted executions.`\
+https://nytimes.com/2026/01/23/world/middleeast/trump-armada-iran-naval-force.html
+
 **Alpine goes left field with its cruise ship reveal for 2026 F1 livery**\
 `Alpine finished last in the standings last year with just 22 points, all of which were scored by Pierre Gasly.`\
 https://nytimes.com/athletic/6993746/2026/01/23/f1-alpine-2026-car-livery/
