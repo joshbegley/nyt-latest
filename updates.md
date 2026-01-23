@@ -1,3 +1,7 @@
+**D.H.S. Cited Foreign Students’ Writings and Protests Before Their Arrests**\
+`Documents unsealed by a federal judge on Thursday include dossiers that investigators prepared on pro-Palestinian student activists before they were targeted for deportation.`\
+https://nytimes.com/2026/01/22/us/politics/trump-rubio-student-speech.html
+
 **National Park Service Dismantles Slavery Exhibit in Philadelphia**\
 `The exhibit memorialized nine people enslaved by George Washington. The Park Service said it was being removed in accordance with a directive from President Trump.`\
 https://nytimes.com/2026/01/22/us/politics/park-service-philadelphia-slavery-exhibit.html
