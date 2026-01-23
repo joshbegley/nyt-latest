@@ -1,3 +1,11 @@
+**Labor Secretary’s Security Guard Placed on Leave**\
+`The department has been investigating complaints about the conduct of Labor Secretary Lori Chavez-DeRemer.`\
+https://nytimes.com/2026/01/23/us/politics/labor-secretary-security-staff-investigation.html
+
+**How the CFP is changing in 2026: Still 12 teams, but shifts for Notre Dame, money distribution**\
+`While the CFP is remaining at 12 teams in 2026, much of the value behind the scenes is about to change in a meaningful way.`\
+https://nytimes.com/athletic/6994393/2026/01/23/college-football-playoff-2026-format-expansion-changes/
+
 **Prosecutors in Spain End Investigation Into Julio Iglesias**\
 `Two women accused the singer, 82, of abusing them in the Caribbean and filed a complaint in Spain, but Spanish officials said that they did not have jurisdiction over the claim.`\
 https://nytimes.com/2026/01/23/world/europe/julio-iglesias-abuse-investigation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6994295/2026/01/23/womens-champions-cup-prize-money
 **To Halt Trump’s Abuse of Power: Vote**\
 `Readers respond to an editorial about President Trump, justice and vengeance. Also: Ordinary Americans who protest; open-ended questions.`\
 https://nytimes.com/2026/01/23/opinion/trump-abuse-power.html
-
-**For His Next Act, Ex-Ford Foundation Leader Heads to Hollywood**\
-`Anonymous Content, a production company whose top investor is Laurene Powell Jobs’s Emerson Collective, has named Darren Walker as president and chief executive.`\
-https://nytimes.com/2026/01/23/arts/design/darren-walker-anonymous-content.html
-
-**How to Treat Dry Lips**\
-`Expert advice from a musician, a model and an aesthetician.`\
-https://nytimes.com/2026/01/23/t-magazine/dry-chapped-lips-treatment.html
 
