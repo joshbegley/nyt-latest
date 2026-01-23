@@ -1,3 +1,7 @@
+**The Pulse: The Australian Open whirs to life**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6992015/2026/01/23/australian-open-naomi-osaka-the-pulse/
+
 **Reds roster projection 1.0: Still searching for a bat**\
 `The Reds still want another hitter, but should they run back most of last year's roster, here's how things could shake out. `\
 https://nytimes.com/athletic/6992742/2026/01/23/cincinnati-reds-roster-projection-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6993196/2026/01/23/bruins-alex-steeves-contract-sco
 **Buffalo's playoff push looks real after massive win in Montreal: Sabres thoughts**\
 `In a four-point divisional game, the Sabres withstood a Canadiens push to get within two points of third place in the Atlantic Division.`\
 https://nytimes.com/athletic/6993272/2026/01/23/sabres-playoff-push-byram-kesselring-canadiens/
-
-**Carlos Beltrán, a man of many hats, ponders a career-capping question in Cooperstown**\
-`Mets? Royals? Logoless? Beltrán, who played for seven teams, hasn't said which one he'd like to rep on his plaque. The Hall has final say.`\
-https://nytimes.com/athletic/6993131/2026/01/23/carlos-beltran-hall-of-fame-plaque-hat/
 
