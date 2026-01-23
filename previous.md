@@ -1,3 +1,11 @@
+**Dallas Exonerates Black Man Who Was Wrongfully Executed in 1956**\
+`An all-white jury convicted Tommy Lee Walker of rape and murder, relying on inadmissible evidence and a coerced confession that he immediately recanted, county officials said.`\
+https://nytimes.com/2026/01/22/us/tommy-lee-walker-dallas-execution-innocent.html
+
+**Jack Smith Defends His Trump Indictments During House Hearing**\
+`Jack Smith, the special prosecutor who twice indicted Donald J. Trump, defended his investigation in a tense and long-awaited appearance before a House committee on Thursday.`\
+https://nytimes.com/video/us/politics/100000010662616/jack-smith-trump-testimony-congress-video.html
+
 **I tried Curt Cignetti's Chipotle order. It should enter the transfer portal**\
 `Much like his 16-0 Indiana Hoosiers, Coach Cignetti's "I Win" Chipotle bowl is simple and workmanlike in its execution.`\
 https://nytimes.com/athletic/6992367/2026/01/22/curt-cignetti-chipotle-indiana-football/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/22/technology/tiktok-deal-oracle-bytedance-china-us.
 **Rangers pay big price for MacKenzie Gore, sending first-rounder Gavin Fien to Nats**\
 `The Rangers are giving up a decent haul, including a potential top-20 prospect in Fien, but Gore makes them instantly 2-3 wins better.`\
 https://nytimes.com/athletic/6992500/2026/01/22/mackenzie-gore-rangers-nationals-trade-analysis-gavin-fien/
-
-**Big Insurers Try to Shift Blame for High Health Costs to Hospitals and Drug Makers**\
-`At two congressional hearings, lawmakers slammed executives of major companies, saying they were failing to rein in the cost of medical care for consumers.`\
-https://nytimes.com/2026/01/22/health/health-insurers-obamacare-congress.html
-
-**U.S. Formally Withdraws From World Health Organization**\
-`Global health experts worry that a lack of international coordination will lead to death and disaster.`\
-https://nytimes.com/2026/01/22/us/politics/united-states-withdraws-world-health-organization.html
 
