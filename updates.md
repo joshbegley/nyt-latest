@@ -1,3 +1,7 @@
+**NFLPA fires lawyer who sued union leaders over alleged retaliation**\
+`Heather McPhee was fired after she sued the union, alleging it conspired to prevent her from serving as a witness in a DOJ investigation.`\
+https://nytimes.com/athletic/6993398/2026/01/23/heather-mcphee-fired-nflpa-lawsuit/
+
 **Arizona basketball veterans could've pouted coming off the bench. Instead, they leaned in**\
 `Arizona could have the makeup to make its first Final Four since 2001. And depth is a major part of it.`\
 https://nytimes.com/athletic/6992232/2026/01/23/arizona-wildcats-basketball-depth/
