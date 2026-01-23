@@ -1,3 +1,7 @@
+**Kyrie Irving still has 'no timeline' for return from injury, Jason Kidd says**\
+`Dallas Mavericks coach Jason Kidd said there's still "no timeline" for Irving's potential return from a torn ACL.`\
+https://nytimes.com/athletic/6992775/2026/01/22/kyrie-irving-playing-injury-status-update-mavericks/
+
 **Dallas County Exonerates Black Man Who Was Executed in 1956**\
 `An all-white jury convicted Tommy Lee Walker of rape and murder, relying on inadmissible evidence and a coerced confession that he immediately recanted, county officials said.`\
 https://nytimes.com/2026/01/22/us/tommy-lee-walker-dallas-execution-innocent.html

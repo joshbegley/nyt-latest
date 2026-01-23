@@ -35,6 +35,6 @@ https://nytimes.com/2026/01/22/us/politics/greenland-trump-cold-war.html
 https://nytimes.com/athletic/6992198/2026/01/22/josh-allen-leadership-peak-newsletter/
 
 **TikTok Strikes Deal for New U.S. Entity, Ending Long Legal Saga**\
-`The Chinese parent company for the popular video app said it had struck a deal with a group of non-Chinese investors to create a new American TikTok to avoid a ban in the United States.`\
+`The Chinese parent company of the popular video app said a group of non-Chinese investors would create an American TikTok to avoid a federal ban.`\
 https://nytimes.com/2026/01/22/technology/tiktok-deal-oracle-bytedance-china-us.html
 
