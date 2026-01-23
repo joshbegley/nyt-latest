@@ -1,3 +1,7 @@
+**Face to Face With History’s Most Dangerous Painter**\
+`Jacques-Louis David, artist and politician of the French Revolution, has beguiled our critic Jason Farago for years — and scared him, too. Let him show you why.`\
+https://nytimes.com/interactive/2026/01/22/arts/jacques-louis-david-painter-french-revolution.html
+
 **Carlos Beltrán: Astros' cheating scandal 'doesn't define' me**\
 `Beltrán conceded that he can never escape the shadows cast by the scandal. But, he said, "that doesn’t really define the person that I am."`\
 https://nytimes.com/athletic/6992812/2026/01/22/carlos-beltran-hall-of-fame-astros-cheating-scandal/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/22/us/ice-minnesota-inmates.html
 **Driving in Winter? Follow These Expert Tips to Arrive Safely.**\
 `A storm is expected to bring hazardous driving conditions to much of the United States this weekend. Stay home if you can, but those who must travel should take it slow.`\
 https://nytimes.com/2026/01/22/us/safe-winter-driving-tips.html
-
-**Scoop City: Meet the Broncos' new QB**\
-`Why the Broncos' new starting QB could surprise, notes from the Bills' coaching search and eventful news conference`\
-https://nytimes.com/athletic/6992796/2026/01/22/broncos-backup-qb-stidham-bills-news-conference/
 

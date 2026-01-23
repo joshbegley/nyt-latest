@@ -1,3 +1,7 @@
+**Face to Face With History’s Most Dangerous Painter**\
+`Jacques-Louis David, artist and politician of the French Revolution, has beguiled our critic Jason Farago for years — and scared him, too. Let him show you why.`\
+https://nytimes.com/interactive/2026/01/22/arts/jacques-louis-david-painter-french-revolution.html
+
 **Carlos Beltrán: Astros' cheating scandal 'doesn't define' me**\
 `Beltrán conceded that he can never escape the shadows cast by the scandal. But, he said, "that doesn’t really define the person that I am."`\
 https://nytimes.com/athletic/6992812/2026/01/22/carlos-beltran-hall-of-fame-astros-cheating-scandal/
