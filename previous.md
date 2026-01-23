@@ -1,3 +1,7 @@
+**The Final Indignities Inflicted on Iran’s Protest Victims**\
+`Witness testimony and videos from Tehran’s largest cemetery show disrespectful treatment of the dead after a brutal government crackdown.`\
+https://nytimes.com/2026/01/23/world/middleeast/iran-protests-victims-bodies.html
+
 **Vietnam’s Leader Consolidates Power, Pledging ‘New Era of Prosperity’**\
 `To Lam, the head of Vietnam’s Communist Party, will also become president of the nation. His new stature comes with new risks.`\
 https://nytimes.com/2026/01/23/world/asia/vietnam-lam-power-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/23/weather/winter-storm-ice-snow-forecast.html
 **‘Enough Is Enough’: Hundreds of Minnesota Businesses Take Stand Against ICE**\
 `After protesters called for a pause on economic activity and work to strike against the federal immigration crackdown, many business owners won’t open their doors on Friday.`\
 https://nytimes.com/2026/01/23/us/minnesota-businesses-protest-ice.html
-
-**The New York Times News Quiz, Jan. 23, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2026/01/23/briefing/quiz-trump-greenland-oscars-beckham.html
 
