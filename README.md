@@ -1,3 +1,11 @@
+**Driving in Winter? Follow These Expert Tips to Arrive Safely.**\
+`A storm is expected to bring hazardous driving conditions to much of the United States this weekend. Stay home if you can, but those who must travel should take it slow.`\
+https://nytimes.com/2026/01/22/us/safe-winter-driving-tips.html
+
+**Scoop City: Meet the Broncos' new QB**\
+`Why the Broncos' new starting QB could surprise, notes from the Bills' coaching search and eventful news conference`\
+https://nytimes.com/athletic/6992796/2026/01/22/broncos-backup-qb-stidham-bills-news-conference/
+
 **Nazis, Soviets and Trump: America’s Fixation With Greenland**\
 `The idea that Greenland is essential to the United States has returned with a vengeance in the Trump era.`\
 https://nytimes.com/2026/01/22/us/politics/greenland-trump-cold-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/22/climate/noaa-seabed-mining-rules.html
 **According to Vance, ICE Officers No Longer Have ‘Absolute Immunity’**\
 `Vice President JD Vance appeared to backtrack a previous statement that ICE agents were “protected by absolute immunity” during a press conference on Thursday, after meeting with immigration agents in Minneapolis.`\
 https://nytimes.com/video/us/politics/100000010662338/according-to-vance-ice-officers-no-longer-have-absolute-immunity.html
-
-**Mark Carney Says Firmly That ‘Canada Doesn’t Live Because of the United States’**\
-`The Canadian prime minister spoke after returning from the World Economic Forum where he urged middle powers to team up in resisting President Trump.`\
-https://nytimes.com/2026/01/22/world/canada/carney-trump-canada-speech.html
-
-**Rodman among world's highest-paid women's players after reaching record deal with Spirit**\
-`Rodman's signing ends a prolonged NWSL saga and keeps the U.S. women's national team star in the nation's capital`\
-https://nytimes.com/athletic/6986284/2026/01/22/trinity-rodman-contract-washington-spirit-nwsl/
 
