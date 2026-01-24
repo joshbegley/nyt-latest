@@ -1,3 +1,11 @@
+**Alert! Alert!**\
+`Mark MacLachlan’s latest puzzle has been thoroughly beta-tested.`\
+https://nytimes.com/2026/01/24/crosswords/daily-puzzle-2026-01-25.html
+
+**Sabres thoughts: Alex Lyon's hot streak helps Buffalo climb standings**\
+`Lyon stopped 26 shots for his second shutout of the season and led the Sabres to a 5-0 win over the New York Islanders.`\
+https://nytimes.com/athletic/6996281/2026/01/24/sabres-islanders-alex-lyon-shutout/
+
 **Sabres thoughts: Alex Lyon's hot streak helps Buffalo climb standings with shutout win**\
 `Lyon stopped 26 shots for his second shutout of the season and led the Sabres to a 5-0 win over the New York Islanders.`\
 https://nytimes.com/athletic/6996281/2026/01/24/sabres-islanders-alex-lyon-shutout/
