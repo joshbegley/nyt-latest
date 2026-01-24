@@ -1,3 +1,7 @@
+**Blackhawks take points, lessons from facing Hurricanes, Lightning on consecutive days**\
+`Chicago went toe-to-toe with two of the league's best teams on consecutive nights and can take a positive feeling out of the experience.`\
+https://nytimes.com/athletic/6995217/2026/01/23/blackhawks-lightning-hurricanes-lessons/
+
 **LSU lands top transfer OT Jordan Seaton in Lane Kiffin's latest portal win**\
 `According to 247Sports, LSU has signed 40 players in the transfer portal.`\
 https://nytimes.com/athletic/6995292/2026/01/23/jordan-seaton-transfer-portal-lsu-commits-lane-kiffin/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/23/us/minneapolis-man-pepper-sprayed-pinned-video.ht
 **The 1.25.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/01/23/the-12526-issue
-
-**Thousands of Anti-ICE Protesters Brave Frigid Temperatures in Minneapolis**\
-`Thousands of protesters shut down parts of Minneapolis and St. Paul on Friday as hundreds of businesses closed their doors, and workers and students stayed home to demand an end to the sweeping immigration crackdown that has roiled the Twin Cities for weeks.`\
-https://nytimes.com/video/us/100000010665187/minneapolis-anti-ice-protesters.html
 
