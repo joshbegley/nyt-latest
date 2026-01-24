@@ -1,3 +1,7 @@
+**Renée Fleming Won’t Perform at Kennedy Center Concerts**\
+`The soprano, who previously resigned as an artistic adviser, was scheduled to sing with the National Symphony Orchestra in May.`\
+https://nytimes.com/2026/01/23/arts/music/renee-fleming-kennedy-center.html
+
 **Thousands March Through Manhattan to Protest ICE Crackdowns Across U.S.**\
 `The detention this week of a 5-year-old boy in Minnesota animated protesters in New York City, who faced freezing temperatures.`\
 https://nytimes.com/2026/01/23/nyregion/nyc-ice-protest-union-square.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995078/2026/01/23/tom-brady-raiders-fernando-mendo
 **WATCH: How Patriots' versatile pass rush shuts down opposing quarterbacks**\
 `What's fueling the Pats' Super Bowl run? While the offense is explosive, the pass rush has made New England a threat on both sides.`\
 https://nytimes.com/athletic/6995133/2026/01/23/video-analysis-patriots-playoffs/
-
-**ICE Agent Charged With Misdemeanor Following Scuffle With an Activist**\
-`The police in Brookfield, Ill., filed a battery charge against a federal agent, who was off duty when he scuffled with an immigrant rights activist.`\
-https://nytimes.com/2026/01/23/us/ice-agent-charged-illinois.html
 

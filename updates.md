@@ -1,3 +1,7 @@
+**Renée Fleming Won’t Perform at Kennedy Center Concerts**\
+`The soprano, who previously resigned as an artistic adviser, was scheduled to sing with the National Symphony Orchestra in May.`\
+https://nytimes.com/2026/01/23/arts/music/renee-fleming-kennedy-center.html
+
 **Thousands March Through Manhattan to Protest ICE Crackdowns Across U.S.**\
 `The detention this week of a 5-year-old boy in Minnesota animated protesters in New York City, who faced freezing temperatures.`\
 https://nytimes.com/2026/01/23/nyregion/nyc-ice-protest-union-square.html
