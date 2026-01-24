@@ -1,3 +1,7 @@
+**Judge Dismisses Case Against Real Estate Developer Charged With Bribery**\
+`This is one of five indictments charging Eric Ulrich, the former New York City buildings commissioner under Eric Adams, with taking bribes totaling more than $150,000.`\
+https://nytimes.com/2026/01/23/nyregion/bribery-case-dismissed-eric-adams-eric-ulrich.html
+
 **U.S. Says First Boat Strike Since Maduro’s Capture Killed 2 in Eastern Pacific**\
 `The U.S. Southern Command said it had asked the Coast Guard to search for one survivor.`\
 https://nytimes.com/2026/01/23/us/politics/boat-strike-pacific.html

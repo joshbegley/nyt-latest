@@ -1,3 +1,7 @@
+**Judge Dismisses Case Against Real Estate Developer Charged With Bribery**\
+`This is one of five indictments charging Eric Ulrich, the former New York City buildings commissioner under Eric Adams, with taking bribes totaling more than $150,000.`\
+https://nytimes.com/2026/01/23/nyregion/bribery-case-dismissed-eric-adams-eric-ulrich.html
+
 **U.S. Says First Boat Strike Since Maduro’s Capture Killed 2 in Eastern Pacific**\
 `The U.S. Southern Command said it had asked the Coast Guard to search for one survivor.`\
 https://nytimes.com/2026/01/23/us/politics/boat-strike-pacific.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6994905/2026/01/23/cameron-smotherman-ufc-mma-colla
 **Trinity Rodman could have left the NWSL. The Spirit made it impossible to leave**\
 `Many will claim credit for keeping Rodman in the NWSL, but the rich soccer community in Washington D.C. should not go overlooked.`\
 https://nytimes.com/athletic/6994765/2026/01/23/trinity-rodman-new-contract-washington-spirit-nwsl/
-
-**Mitch Marner booed by Maple Leafs fans in return to Toronto**\
-`Marner faced the ire of Maple Leafs fans in Toronto for the first time since leaving the team this summer.`\
-https://nytimes.com/athletic/6991620/2026/01/23/mitch-marner-maple-leafs-boos-return/
 
