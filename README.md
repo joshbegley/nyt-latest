@@ -1,3 +1,7 @@
+**Astros takeaways: FanFest accentuates imbalanced lineup and untenable infield surplus**\
+`Plus what Carlos Correa thinks led to Houston's 2025 injury issues, and why Spencer Arrighetti is "optimistic going into camp."`\
+https://nytimes.com/athletic/6996337/2026/01/24/astros-infield-trades-carlos-correa-injuries-fanfest/
+
 **Is no water coming out of your faucet? Here’s how to thaw frozen pipes during cold weather.**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/cold-weather-frozen-pipes-water-leak
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6996086/2026/01/24/mike-mccarthy-steelers-head-coac
 **Alex Jeffrey Pretti Was an I.C.U. Nurse at the V.A. Hospital**\
 `Shot and killed by immigration agents on a Minneapolis street, he wanted to be a ‘force of good in the world.’`\
 https://nytimes.com/2026/01/24/us/alex-jeffrey-pretti-was-an-icu-nurse-at-the-va-hospital.html
-
-**3 things meteorologists are watching right now.**\
-`Forecasters are continuing to nail down the details of where the most extreme snow, ice and cold will occur.`\
-https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/3-things-meteorologists-are-watching-right-now
 
