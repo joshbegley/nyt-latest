@@ -1,3 +1,7 @@
+**See How Trump Refashioned the ‘People’s House’**\
+`In a year, the president has altered 10 spaces in the White House.`\
+https://nytimes.com/interactive/2026/01/24/us/trump-white-house-changes-renovations.html
+
 **The storm poses an early test for New Jersey’s new governor.**\
 `“This is going to be a long event,” said David Robinson, New Jersey’s climatologist.`\
 https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/the-storm-poses-an-early-test-for-new-jerseys-new-governor
