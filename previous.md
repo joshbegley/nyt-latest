@@ -1,3 +1,7 @@
+**Pat Montandon, Socialite Who Sought Publicity, and Then World Peace, Dies at 96**\
+`She was known for her lavish parties and her marriage to one of the richest men in San Francisco. After he left her, she found a new purpose: visiting world leaders to plead for peace.`\
+https://nytimes.com/2026/01/24/style/pat-montandon-dead.html
+
 **Scenes From the Winter Storm**\
 `Images from across much of the country illuminate snow-covered streets and preparations for worse still to come.`\
 https://nytimes.com/2026/01/24/us/winter-storm-snow-photos-videos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6996189/2026/01/24/west-virginia-vs-byu-stream-how-
 **How to watch Lakers vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6996186/2026/01/24/lakers-vs-mavericks-stream-how-to-watch-jan-24/
-
-**How to watch Panthers vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6996183/2026/01/24/panthers-vs-wild-stream-how-to-watch-jan-24/
 
