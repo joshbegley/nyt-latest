@@ -1,3 +1,7 @@
+**ICE Is Splitting America in Two**\
+`The Conversation convenes with Aaron Retica, David French and Emily Bazelon discussing the questions reshaping American politics right now, from immigration enforcement to whether the country can still claim to be “one nation, indivisible.”`\
+https://nytimes.com/video/opinion/100000010661256/ice-is-splitting-america-in-two.html
+
 **Cold Comfort**\
 `How can the perpetually shivering warm up to winter?`\
 https://nytimes.com/2026/01/24/briefing/cold-comfort.html
