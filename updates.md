@@ -1,3 +1,11 @@
+**Steelers' Mike McCarthy hire has everything to do with a QB — just not the one you're thinking of**\
+`Aaron Rodgers might reunite with his old coach in Pittsburgh, but McCarthy's tenure will be judged by what comes after.`\
+https://nytimes.com/athletic/6996086/2026/01/24/mike-mccarthy-steelers-head-coach-aaron-rodgers-qb/
+
+**Alex Jeffrey Pretti Was an I.C.U. Nurse at the V.A. Hospital**\
+`Shot and killed by immigration agents on a Minneapolis street, he wanted to be a ‘force of good in the world.’`\
+https://nytimes.com/2026/01/24/us/alex-jeffrey-pretti-was-an-icu-nurse-at-the-va-hospital.html
+
 **3 things meteorologists are watching right now.**\
 `Forecasters are continuing to nail down the details of where the most extreme snow, ice and cold will occur.`\
 https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/3-things-meteorologists-are-watching-right-now
