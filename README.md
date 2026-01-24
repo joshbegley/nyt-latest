@@ -1,3 +1,7 @@
+**Washington Post Tears Up Plans to Cover Winter Olympics**\
+`The abrupt change in direction came just weeks before the Olympic Games are set to begin in Italy.`\
+https://nytimes.com/2026/01/24/business/media/washington-post-winter-olympics.html
+
 **The Public Face of ICE Is Bad Enough**\
 `What’s happening behind the barbed wire?`\
 https://nytimes.com/2026/01/24/opinion/ice-detention-immigrant-rights.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995704/2026/01/24/north-carolina-courage-names-mak
 **WATCH: How the Rams' offense reinvented itself since Super Bowl LVI**\
 `Sean McVay and the Rams offense have found a new way to stay a half step ahead of opposing defenses around the league.`\
 https://nytimes.com/athletic/6995797/2026/01/24/video-analysis-rams-playoffs-sean-mcvay/
-
-**90 Seconds to Bake-Off**\
-`Sticky toffee pudding, mug cake and Nutella pudding cake at the push of a button.`\
-https://nytimes.com/2026/01/24/dining/90-seconds-to-bake-off.html
 
