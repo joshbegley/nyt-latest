@@ -1,3 +1,7 @@
+**Winter weather brings parts of Texas to a halt.**\
+`By Ruth Graham and Mary Beth Gahan`\
+https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/winter-weather-brings-parts-of-texas-to-a-halt
+
 **‘Dolly Plowton’ Debuts in Snowy Nashville**\
 `The new snowplow, named and painted to evoke a Tennessee heroine, is a symbol of how some Southern cities are trying to better prepare for winter storms.`\
 https://nytimes.com/2026/01/24/us/dolly-plowton-debuts-in-snowy-nashville.html
