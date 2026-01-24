@@ -1,3 +1,7 @@
+**LSU lands top transfer OT Jordan Seaton in Lane Kiffin's latest portal win**\
+`According to 247Sports, LSU has signed 40 players in the transfer portal.`\
+https://nytimes.com/athletic/6995292/2026/01/23/jordan-seaton-transfer-portal-lsu-commits-lane-kiffin/
+
 **Australian Open suspends play on outdoor courts in searing Melbourne heat**\
 `The tournament's Heat Stress Scale mandates suspension when conditions exceed a certain level of intensity which goes beyond temperature.`\
 https://nytimes.com/athletic/6995305/2026/01/23/australian-open-play-suspended-heat-tennis-sports/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/magazine/2026/01/23/the-12526-issue
 **Thousands of Anti-ICE Protesters Brave Frigid Temperatures in Minneapolis**\
 `Thousands of protesters shut down parts of Minneapolis and St. Paul on Friday as hundreds of businesses closed their doors, and workers and students stayed home to demand an end to the sweeping immigration crackdown that has roiled the Twin Cities for weeks.`\
 https://nytimes.com/video/us/100000010665187/minneapolis-anti-ice-protesters.html
-
-**Renée Fleming Won’t Perform at Kennedy Center Concerts**\
-`The soprano, who previously resigned as an artistic adviser, was scheduled to sing with the National Symphony Orchestra in May.`\
-https://nytimes.com/2026/01/23/arts/music/renee-fleming-kennedy-center.html
 
