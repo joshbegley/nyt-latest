@@ -1,3 +1,7 @@
+**Sherrone Moore's lawyer: Arrest warrant obtained through 'false statements'**\
+`The ex-Michigan football coach's lawyer says accusations against him are part of a "litigation strategy designed to villainize Mr. Moore."`\
+https://nytimes.com/athletic/6995291/2026/01/23/sherrone-moore-michigan-arrest-false-statements/
+
 **Child Support?**\
 `Adrian Johnson and Ryan McCarty team up on a killer themeless puzzle.`\
 https://nytimes.com/2026/01/23/crosswords/daily-puzzle-2026-01-24.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/23/arts/music/renee-fleming-kennedy-center.html
 **Thousands March Through Manhattan to Protest ICE Crackdowns Across U.S.**\
 `The detention this week of a 5-year-old boy in Minnesota animated protesters in New York City, who faced freezing temperatures.`\
 https://nytimes.com/2026/01/23/nyregion/nyc-ice-protest-union-square.html
-
-**Real Salt Lake finalizing deal to add forward Morgan Guilavogui: Sources**\
-`Guilavogui has had one goal in limited minutes for RC Lens this season.`\
-https://nytimes.com/athletic/6995192/2026/01/23/real-salt-lake-morgan-guilavogui-attack/
 
