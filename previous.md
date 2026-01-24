@@ -1,3 +1,7 @@
+**Australian Boy, 12, Dies After Shark Attack Near Sydney**\
+`Nico Antic died in a hospital after a shark bit him in the legs, the first of several recent shark attacks along Australia’s southeastern coast.`\
+https://nytimes.com/2026/01/24/world/australia/australia-shark-attack-boy-dead.html
+
 **China’s Highest-Ranking General Removed as Xi’s Military Purge Reaches the Top**\
 `General Zhang Youxia had appeared to be President Xi Jinping’s trusted second-in-command. He has now joined the long list of generals and admirals under investigation.`\
 https://nytimes.com/2026/01/24/world/asia/china-top-general-xi-military-purge.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/01/24/todays-new-york-times
 **Giannis expects to miss 4-6 weeks after injuring calf in final seconds of Bucks' latest loss**\
 `Antetokounmpo, who had been laboring throughout the game before landing awkwardly, said he will get an MRI Saturday. `\
 https://nytimes.com/athletic/6995387/2026/01/24/giannis-antetokounmpo-injury-bucks-nuggets/
-
-**Videos Showing Aggressive ICE Tactics in Minnesota Fuel a Backlash**\
-`For weeks, residents have documented the impact of President Trump’s mass deportation campaign and captured many violent confrontations on camera.`\
-https://nytimes.com/interactive/2026/01/24/us/minnesota-ice-violence-tactics-videos.html
 

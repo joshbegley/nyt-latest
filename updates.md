@@ -1,3 +1,7 @@
+**Australian Boy, 12, Dies After Shark Attack Near Sydney**\
+`Nico Antic died in a hospital after a shark bit him in the legs, the first of several recent shark attacks along Australia’s southeastern coast.`\
+https://nytimes.com/2026/01/24/world/australia/australia-shark-attack-boy-dead.html
+
 **China’s Highest-Ranking General Removed as Xi’s Military Purge Reaches the Top**\
 `General Zhang Youxia had appeared to be President Xi Jinping’s trusted second-in-command. He has now joined the long list of generals and admirals under investigation.`\
 https://nytimes.com/2026/01/24/world/asia/china-top-general-xi-military-purge.html
