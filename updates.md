@@ -1,3 +1,11 @@
+**The Briefing: Bournemouth 3 Liverpool 2 - Five without a league win, how damaging is this?**\
+`Liverpool suffered a heart-breaking late defeat at Bournemouth, having coming from 2-0 down earlier in the match`\
+https://nytimes.com/athletic/6989244/2026/01/24/bournemouth-3-liverpool-2/
+
+**Video Shows Moments in Which Agents Killed a Man in Minneapolis**\
+`Several agents tussled with the person before bringing him to his knees. Then, shots rang out.`\
+https://nytimes.com/2026/01/24/us/minneapolis-shooting-federal-agents-video.html
+
 **Ava DuVernay, Ethan Hawke and Patti LuPone Honor Robert Redford at Sundance**\
 `Film lovers celebrated the festival’s final year in Park City, Utah, with a surprise performance by Ms. LuPone.`\
 https://nytimes.com/2026/01/24/style/sundance-robert-redford-ava-duvernay-patti-lupone.html

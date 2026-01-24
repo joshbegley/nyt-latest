@@ -1,3 +1,11 @@
+**Syrian and Kurdish Troops in Standoff as Truce Deadline Passes**\
+`Syria’s government and Kurdish-led forces in the country’s northeast have clashed as President Ahmed al-Sharaa seeks to extend his authority across the entire country.`\
+https://nytimes.com/2026/01/24/world/middleeast/syria-kurdish-militia.html
+
+**In Minnesota, citizens with firearm permits can openly carry handguns.**\
+`By Pooja Salhotra`\
+https://nytimes.com/live/2026/us/minneapolis-shooting-ice/in-minnesota-citizens-with-firearm-permits-can-openly-carry-handguns
+
 **The Briefing: Bournemouth 3 Liverpool 2 - Five without a league win, how damaging is this?**\
 `Liverpool suffered a heart-breaking late defeat at Bournemouth, having coming from 2-0 down earlier in the match`\
 https://nytimes.com/athletic/6989244/2026/01/24/bournemouth-3-liverpool-2/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6996013/2026/01/24/klay-kubiak-49ers-head-coaching-
 **Guardiola criticises referees again, says City success happened 'despite' officials**\
 `Guardiola criticised officials and VAR after City had a goal controversially ruled out during their victory against Newcastle on January 13.`\
 https://nytimes.com/athletic/6996005/2026/01/24/pep-guardiola-manchester-city-var-referees/
-
-**Steelers planning to hire Mike McCarthy as head coach: Sources**\
-`McCarthy, 62, would be the oldest head coach in franchise history.`\
-https://nytimes.com/athletic/6989279/2026/01/24/mike-mccarthy-steelers-head-coach-hc-hired/
-
-**Bad Bunny's NFL merchandise collection released ahead of Super Bowl performance**\
-`The first of two merchandise collaborations between Bad Bunny and the NFL became available for pre-order on Saturday. `\
-https://nytimes.com/athletic/6995985/2026/01/24/bad-bunny-nfl-merchandise-concho/
 
