@@ -1,7 +1,3 @@
-**HUD Demands Public Housing Officials Check for Undocumented Immigrants**\
-`The Department of Housing and Urban Development said it would punish public housing authorities that did not adequately verify tenants’ immigration status within 30 days.`\
-https://nytimes.com/2026/01/23/us/politics/hud-housing-undocumented-immigrants.html
-
 **Islanders plan to relocate AHL affiliate from Bridgeport to Hamilton: Sources**\
 `League sources say a deal has yet to be finalized, and hurdles must be cleared before the Bridgeport Islanders can officially make the move.`\
 https://nytimes.com/athletic/6994982/2026/01/23/islanders-ahl-bridgeport-hamilton-relocation-td-coliseum/
@@ -25,4 +21,8 @@ https://nytimes.com/athletic/6994981/2026/01/23/indiana-college-football-until-s
 **Blades Brown, 18, ties Scottie for AmEx lead with course-record 60**\
 `The known prodigy was playing his sixth round in as many days after starting the week on the Korn Ferry Tour.`\
 https://nytimes.com/athletic/6994961/2026/01/23/blades-brown-american-express-pga-tour-lead-60/
+
+**Manhattan Doorman Killed as N.Y.P.D. Sergeant Crashes Into Him Head-On**\
+`The sergeant, Tiffany Howell, 47, was driving the wrong way on the Taconic State Parkway in New York when she crashed into Manuel Boitel, 61, the state police said.`\
+https://nytimes.com/2026/01/23/nyregion/nypd-crash-tiffany-howell.html
 
