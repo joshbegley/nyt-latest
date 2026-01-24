@@ -1,3 +1,7 @@
+**Australian Open heat rules did not favor Jannik Sinner, but tennis luck did**\
+`The world No. 2's four-set win over Elliot Spizzirri was shaped by the tournament's heat rule, developed for player and spectator welfare.`\
+https://nytimes.com/athletic/6995414/2026/01/24/tennis-jannik-sinner-australian-open-heat-spizzirri/
+
 **John Brodie, a Star Quarterback for the 49ers, Dies at 90**\
 `He endured years of frustration before emerging as the N.F.L.’s most valuable player.`\
 https://nytimes.com/2026/01/24/obituaries/john-brodie-dead.html

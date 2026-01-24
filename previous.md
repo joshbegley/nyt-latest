@@ -1,3 +1,7 @@
+**Australian Open heat rules did not favor Jannik Sinner, but tennis luck did**\
+`The world No. 2's four-set win over Elliot Spizzirri was shaped by the tournament's heat rule, developed for player and spectator welfare.`\
+https://nytimes.com/athletic/6995414/2026/01/24/tennis-jannik-sinner-australian-open-heat-spizzirri/
+
 **The New York Times in Print for Saturday, Jan. 24, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/24/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6988319/2026/01/24/oceania-league-fifa-cross-border
 **In John Heitinga, Tottenham have a highly rated training-ground coach and talent developer**\
 `Having made an outstanding contribution to Liverpool’s title-winning side, Arne Slot had been keen for Heitinga to stay at Anfield`\
 https://nytimes.com/athletic/6993857/2026/01/24/john-heitinga-tottenham-frank/
-
-**Behind the boos: Inside Mitch Marner's return to Toronto**\
-`Marner's return to Toronto after nine seasons with the organization was an anticipated but also strange day for the former Maple Leafs star.`\
-https://nytimes.com/athletic/6995345/2026/01/24/mitch-marner-maple-leafs-golden-knights/
 
