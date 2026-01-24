@@ -1,3 +1,7 @@
+**Ava DuVernay, Ethan Hawke and Patti LuPone Honor Robert Redford at Sundance**\
+`Film lovers celebrated the festival’s final year in Park City, Utah, with a surprise performance by Ms. LuPone.`\
+https://nytimes.com/2026/01/24/style/sundance-robert-redford-ava-duvernay-patti-lupone.html
+
 **Millions of Gallons of Raw Sewage Spill Into the Potomac River**\
 `About 40 million gallons of untreated sewage a day has spilled into the river since a pipeline ruptured in Montgomery County, Md., on Monday, according to a utility company.`\
 https://nytimes.com/2026/01/24/us/potomac-river-untreated-sewage-spill.html

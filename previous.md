@@ -1,3 +1,7 @@
+**Ava DuVernay, Ethan Hawke and Patti LuPone Honor Robert Redford at Sundance**\
+`Film lovers celebrated the festival’s final year in Park City, Utah, with a surprise performance by Ms. LuPone.`\
+https://nytimes.com/2026/01/24/style/sundance-robert-redford-ava-duvernay-patti-lupone.html
+
 **Millions of Gallons of Raw Sewage Spill Into the Potomac River**\
 `About 40 million gallons of untreated sewage a day has spilled into the river since a pipeline ruptured in Montgomery County, Md., on Monday, according to a utility company.`\
 https://nytimes.com/2026/01/24/us/potomac-river-untreated-sewage-spill.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995985/2026/01/24/bad-bunny-nfl-merchandise-concho
 **Senators' Mike Yeo takes over for Nolan Baumgartner as penalty-kill coach**\
 `The change comes one game after the Senators blew a 3-0 lead to the Nashville Predators on Thursday in a 5-3 loss.`\
 https://nytimes.com/athletic/6995928/2026/01/24/senators-yeo-penalty-kill-coach/
-
-**See How Trump Refashioned the ‘People’s House’**\
-`In a year, the president has altered 10 spaces in the White House.`\
-https://nytimes.com/interactive/2026/01/24/us/trump-white-house-changes-renovations.html
 
