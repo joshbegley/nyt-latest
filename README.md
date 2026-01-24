@@ -1,3 +1,7 @@
+**Naomi Osaka withdraws from Australian Open shortly before third-round match**\
+`An abdominal injury has forced the two-time champion to exit the tournament.`\
+https://nytimes.com/athletic/6995530/2026/01/24/naomi-osaka-australian-open-out/
+
 **Australian Boy, 12, Dies After Shark Attack Near Sydney**\
 `Nico Antic died in a hospital after a shark bit him in the legs, the first of several recent shark attacks along Australia’s southeastern coast.`\
 https://nytimes.com/2026/01/24/world/australia/australia-shark-attack-boy-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995414/2026/01/24/tennis-jannik-sinner-australian-
 **The New York Times in Print for Saturday, Jan. 24, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/24/todays-new-york-times
-
-**Giannis expects to miss 4-6 weeks after injuring calf in final seconds of Bucks' latest loss**\
-`Antetokounmpo, who had been laboring throughout the game before landing awkwardly, said he will get an MRI Saturday. `\
-https://nytimes.com/athletic/6995387/2026/01/24/giannis-antetokounmpo-injury-bucks-nuggets/
 
