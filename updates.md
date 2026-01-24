@@ -1,3 +1,7 @@
+**Naomi Osaka withdraws from Australian Open shortly before third-round match**\
+`An abdominal injury has forced the two-time champion to exit the tournament.`\
+https://nytimes.com/athletic/6995530/2026/01/24/naomi-osaka-australian-open-out/
+
 **Australian Boy, 12, Dies After Shark Attack Near Sydney**\
 `Nico Antic died in a hospital after a shark bit him in the legs, the first of several recent shark attacks along Australia’s southeastern coast.`\
 https://nytimes.com/2026/01/24/world/australia/australia-shark-attack-boy-dead.html
