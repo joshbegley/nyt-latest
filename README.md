@@ -1,3 +1,7 @@
+**Cold Comfort**\
+`How can the perpetually shivering warm up to winter?`\
+https://nytimes.com/2026/01/24/briefing/cold-comfort.html
+
 **How to watch Wizards vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995616/2026/01/24/wizards-vs-hornets-stream-how-to-watch-jan-24/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995599/2026/01/24/illinois-vs-nebraska-stream-how-
 **How to watch UConn vs. Seton Hall women's basketball: Time, TV, streaming**\
 `Find out how to watch the UConn Huskies play the Seton Hall Pirates, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995597/2026/01/24/uconn-vs-seton-hall-stream-how-to-watch-jan-24/
-
-**How to watch Villanova vs. UConn men's basketball: Time, TV, streaming**\
-`Find out how to watch the Villanova Wildcats play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995595/2026/01/24/villanova-vs-uconn-stream-how-to-watch-jan-24/
 
