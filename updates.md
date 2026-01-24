@@ -1,3 +1,7 @@
+**Chloé Zhao Is Yearning to Know How to Love**\
+`The “Hamnet” director on trying to overcome her deepest fears — and open her heart.`\
+https://nytimes.com/2026/01/24/magazine/chloe-zhao-interview.html
+
 **The Emotions President Trump Evokes**\
 `We asked voters to describe their emotions about President Trump’s second term so far. Most spoke of happiness or hostility.`\
 https://nytimes.com/interactive/2026/01/24/polls/trump-emotions-poll.html
