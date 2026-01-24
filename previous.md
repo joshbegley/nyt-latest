@@ -1,3 +1,15 @@
+**NFL set return to Real Madrid's Bernabeu in 2026**\
+`Sources briefed on negotiations indicated the NFL and Madrid are considering hosting more matches at the stadium beyond 2026.`\
+https://nytimes.com/athletic/6995625/2026/01/24/nfl-real-madrid-bernabeu/
+
+**Who has the edge in Rams vs. Seahawks? Breaking down the NFC title game**\
+`Who are the X-factors, who has the edge between Sean McVay and Mike Macdonald and, of course, a score prediction. We discuss Sunday's game.`\
+https://nytimes.com/athletic/6994610/2026/01/24/rams-seahawks-nfc-championship-game-preview/
+
+**Josh Allen will help pick the Bills' next head coach. Is that a good idea?**\
+`The Bills want Allen to help them decide who to hire, but allowing the QB to have a say in who becomes his next boss gives some pause.`\
+https://nytimes.com/athletic/6995173/2026/01/24/josh-allen-bills-coach-interviews/
+
 **Ukraine Expects Answers From Russia as Peace Talks Continue, Zelensky Says**\
 `Officials from Russia, Ukraine and the United States are meeting in the United Arab Emirates for rare three-way negotiations.`\
 https://nytimes.com/2026/01/24/world/europe/ukraine-us-russia-peace-talks.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6995151/2026/01/24/john-harbaugh-giants-tom-coughli
 **The Un-American President**\
 `Our national mosaic, crushed beneath the ICE.`\
 https://nytimes.com/2026/01/24/opinion/president-trump-ice-immigration.html
-
-**Can Middle Powers Like Canada Exist Between America and China?**\
-`It might be worth considering the logic of the Carney doctrine.`\
-https://nytimes.com/2026/01/24/opinion/trump-carney-china-rupture.html
-
-**How Trump Is Rewriting America With 230 Executive Orders**\
-`The flurry of actions have pointed the country in a new direction.`\
-https://nytimes.com/interactive/2026/01/24/opinion/trump-executive-orders.html
-
-**Can the Courts Save American Democracy?**\
-`Emily Bazelon, a lawyer and writer, thinks the courts have pushed back against Trump in important ways. But ultimately, as she explains on “The Opinions,” they can’t stop the broader expansion of presidential power on their own.`\
-https://nytimes.com/video/opinion/100000010661272/can-the-courts-save-american-democracy.html
 
