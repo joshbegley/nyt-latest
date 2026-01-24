@@ -1,3 +1,7 @@
+**3 things meteorologists are watching right now.**\
+`Forecasters are continuing to nail down the details of where the most extreme snow, ice and cold will occur.`\
+https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/3-things-meteorologists-are-watching-right-now
+
 **Gunshots rattle a neighborhood known for its food scene.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2026/us/minneapolis-shooting-ice/gunshots-rattle-a-neighborhood-known-for-its-food-scene
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/24/us/trump-administration-minneapolis-shooting.html
 **U.S. asks for extra Olympic quota spot for Katie Uhlaender in skeleton controversy**\
 `A U.S. Olympic official argued it was "undeniable" that Uhlaender deserves to go to the Games after a qualification controversy this month.`\
 https://nytimes.com/athletic/6995628/2026/01/24/olympics-skeleton-controversy-katie-uhlaender-quota-spot/
-
-**West Ham's Rodriguez set to undergo Valencia medical**\
-`The 31-year-old has made 32 appearances for the club but has featured only six times in the Premier League this season.`\
-https://nytimes.com/athletic/6995548/2026/01/24/guido-rodriguez-west-ham-valencia-transfer/
 
