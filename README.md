@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By J. David Goodman, Amy Graff and Judson Jones`\
+https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/heres-the-latest
+
+**Live Updates: America Braces for Severe Winter Storm**\
+`A mix of snow, ice and bitter cold is heading for more than 180 million people across a vast stretch of the country. Airlines, transit systems and schools have announced extensive cancellations.`\
+https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice
+
 **Last year's Australian Open had one teenager in the WTA top 100. Now, many are on the rise**\
 `A rising group of players who have transferred winning habits from the minor leagues to the WTA Tour are now set to make a mark at a major.`\
 https://nytimes.com/athletic/6995453/2026/01/24/tennis-best-young-players-wta-mboko-jovic-valentova/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/01/24/polls/trump-emotions-poll.html
 **How a Photographer Stumbled Upon a Key Picture of the Spain Train Crash**\
 `While seeking views of the disaster, a photographer on assignment for The Times captured an image of wreckage that could provide clues to what went wrong.`\
 https://nytimes.com/2026/01/24/insider/how-a-photographer-stumbled-upon-a-key-picture-of-the-spain-train-crash.html
-
-**Despite Trump’s Words, China and Russia Are Not Threatening Greenland**\
-`U.S. and European officials say they are unaware of any intelligence that shows China and Russia are endangering the island, which is protected by the NATO security umbrella.`\
-https://nytimes.com/2026/01/24/us/politics/trump-china-russia-greenland.html
-
-**Will Leaving My Terrible Job Make Me Look Flaky?**\
-`And, picking up the slack for a colleague with long Covid.`\
-https://nytimes.com/2026/01/24/business/will-leaving-my-terrible-job-make-me-look-flaky.html
 
