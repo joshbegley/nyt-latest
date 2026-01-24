@@ -1,3 +1,11 @@
+**Former NFL player Kevin Johnson killed in homeless encampment stabbing**\
+`The New England Patriots selected the Los Angeles native with a fourth-round pick in the 1993 NFL Draft.`\
+https://nytimes.com/athletic/6995242/2026/01/23/kevin-johnson-former-nfl-player-homeless-stabbed-eagles/
+
+**Federal Judge Extends Deportation Protections for Burmese Migrants**\
+`The ruling represents another setback in the Trump administration’s mass deportation campaign.`\
+https://nytimes.com/2026/01/23/us/politics/burmese-migrants-tps-deportation.html
+
 **Twins' owner personally calls frustrated fans: 'We tripped over ourselves'**\
 `Unlike the past few seasons of poor messaging from the Twins, Pohlad wants to face fans' issues directly.`\
 https://nytimes.com/athletic/6995032/2026/01/23/twins-owner-tom-pohlad-calls-fans/
