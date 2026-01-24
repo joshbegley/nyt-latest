@@ -1,40 +1,40 @@
-**How to watch Houston vs. Texas Tech men's basketball: Time, TV, streaming**\
-`Find out how to watch the Houston Cougars play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995589/2026/01/24/houston-vs-texas-tech-stream-how-to-watch-jan-24/
+**How to watch Vanderbilt vs. Mississippi State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995609/2026/01/24/vanderbilt-vs-mississippi-state-stream-how-to-watch-jan-24/
 
-**How to watch Maryland vs. Michigan State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Maryland Terrapins play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995587/2026/01/24/maryland-vs-michigan-state-stream-how-to-watch-jan-24/
+**How to watch West Virginia vs. Arizona men's basketball: Time, TV, streaming**\
+`Find out how to watch the West Virginia Mountaineers play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995607/2026/01/24/west-virginia-vs-arizona-stream-how-to-watch-jan-24/
 
-**How to watch Princeton vs. Brown women's basketball: Time, TV, streaming**\
-`Find out how to watch the Princeton Tigers play the Brown Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995585/2026/01/24/princeton-vs-brown-stream-how-to-watch-jan-24/
+**How to watch Georgia vs. Kentucky women's basketball: Time, TV, streaming**\
+`Find out how to watch the Georgia Lady Bulldogs play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995605/2026/01/24/georgia-vs-kentucky-stream-how-to-watch-jan-24/
 
-**How to watch Wake Forest vs. Duke men's basketball: Time, TV, streaming**\
-`Find out how to watch the Wake Forest Demon Deacons play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995582/2026/01/24/wake-forest-vs-duke-stream-how-to-watch-jan-24/
+**How to watch TCU vs. UCF women's basketball: Time, TV, streaming**\
+`Find out how to watch the TCU Horned Frogs play the UCF Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995603/2026/01/24/tcu-vs-ucf-stream-how-to-watch-jan-24/
 
-**How to watch North Carolina vs. Virginia men's basketball: Time, TV, streaming**\
-`Find out how to watch the North Carolina Tar Heels play the Virginia Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995580/2026/01/24/north-carolina-vs-virginia-stream-how-to-watch-jan-24/
+**How to watch Nebraska vs. Minnesota men's basketball: Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995601/2026/01/24/nebraska-vs-minnesota-stream-how-to-watch-jan-24/
 
-**Inside Trinity Rodman's record contract and what happens next**\
-`Rodman’s signature on her new contract is not the end, but an inflection point that will change the course of women’s soccer globally. `\
-https://nytimes.com/athletic/6995156/2026/01/24/trinity-rodman-behind-the-deal-washington-spirit/
+**How to watch Illinois vs. Nebraska women's basketball: Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995599/2026/01/24/illinois-vs-nebraska-stream-how-to-watch-jan-24/
 
-**Maple Leafs need more urgency on the ice and off. Will they make a move?**\
-`All of the good vibes from an impressive and uber-rare win over the Avalanche in Colorado earlier in the month have vanished.`\
-https://nytimes.com/athletic/6995360/2026/01/24/maple-leafs-sliding-again-make-move/
+**How to watch UConn vs. Seton Hall women's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the Seton Hall Pirates, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995597/2026/01/24/uconn-vs-seton-hall-stream-how-to-watch-jan-24/
 
-**Owen Tippett's hat trick pushes Flyers to win over league-leading Avalanche**\
-`Two of Tippett's three goals came in the third period, breaking what was a 3-3 tie at the second intermission.`\
-https://nytimes.com/athletic/6995440/2026/01/24/owen-tippetts-hat-trick-pushes-flyers-to-win-over-league-leading-avalanche/
+**How to watch Villanova vs. UConn men's basketball: Time, TV, streaming**\
+`Find out how to watch the Villanova Wildcats play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995595/2026/01/24/villanova-vs-uconn-stream-how-to-watch-jan-24/
 
-**Patriots at Broncos predictions: Experts break down matchups for AFC title game battle**\
-`Can Sean Payton put together a winning game plan with backup QB Jarrett Stidham? Or will Patriots avenge title game misery in Denver?`\
-https://nytimes.com/athletic/6992436/2026/01/24/patriots-broncos-predictions-picks/
+**How to watch Clemson vs. Georgia Tech men's basketball: Time, TV, streaming**\
+`Find out how to watch the Clemson Tigers play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995593/2026/01/24/clemson-vs-georgia-tech-stream-how-to-watch-jan-24/
 
-**'Heated Rivalry' effect? Interest surges in Boston-Montreal NHL game**\
-`Ticketing giant StubHub says it received a surge in interest for Saturday night's Canadiens-Bruins game, six times higher than normal.`\
-https://nytimes.com/athletic/6993009/2026/01/24/heated-rivalry-boston-bruins-montreal-canadiens-nhl/
+**How to watch Georgia vs. Texas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Georgia Bulldogs play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995591/2026/01/24/georgia-vs-texas-stream-how-to-watch-jan-24/
 

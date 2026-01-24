@@ -1,3 +1,23 @@
+**How to watch Houston vs. Texas Tech men's basketball: Time, TV, streaming**\
+`Find out how to watch the Houston Cougars play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995589/2026/01/24/houston-vs-texas-tech-stream-how-to-watch-jan-24/
+
+**How to watch Maryland vs. Michigan State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995587/2026/01/24/maryland-vs-michigan-state-stream-how-to-watch-jan-24/
+
+**How to watch Princeton vs. Brown women's basketball: Time, TV, streaming**\
+`Find out how to watch the Princeton Tigers play the Brown Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995585/2026/01/24/princeton-vs-brown-stream-how-to-watch-jan-24/
+
+**How to watch Wake Forest vs. Duke men's basketball: Time, TV, streaming**\
+`Find out how to watch the Wake Forest Demon Deacons play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995582/2026/01/24/wake-forest-vs-duke-stream-how-to-watch-jan-24/
+
+**How to watch North Carolina vs. Virginia men's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Virginia Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995580/2026/01/24/north-carolina-vs-virginia-stream-how-to-watch-jan-24/
+
 **Inside Trinity Rodman's record contract and what happens next**\
 `Rodman’s signature on her new contract is not the end, but an inflection point that will change the course of women’s soccer globally. `\
 https://nytimes.com/athletic/6995156/2026/01/24/trinity-rodman-behind-the-deal-washington-spirit/
