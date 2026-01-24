@@ -1,3 +1,11 @@
+**Ja Morant out at least three weeks with elbow injury, past Feb. 5 trade deadline**\
+`Morant sprained a ligament in his left elbow during the Grizzlies' loss to the Atlanta Hawks on Wednesday night, the team said.`\
+https://nytimes.com/athletic/6995873/2026/01/24/ja-morant-injury-out-trade-deadline-grizzlies/
+
+**José Ramírez, the Guardians and a match made in heaven (Cleveland)**\
+`Ramírez's new deal means the face of the franchise will stay in Cleveland for the long haul, until his career reaches its final chapter.`\
+https://nytimes.com/athletic/6995779/2026/01/24/jose-ramirez-guardians-cleveland-deal/
+
 **How to watch Red Wings vs. Jets: Time, TV, streaming**\
 `Find out how to watch the Detroit Red Wings play the Winnipeg Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995945/2026/01/24/red-wings-vs-jets-stream-how-to-watch-jan-24/
