@@ -10,8 +10,8 @@ https://nytimes.com/2026/01/24/world/canada/trump-canada-tariffs.html
 `The 33-year-old had played every minute of Sunderland's Premier League campaign before missing the 3-1 defeat at West Ham United.`\
 https://nytimes.com/athletic/6995792/2026/01/24/sunderland-granit-xhaka-injury/
 
-**Live Updates: Minneapolis Authorities Respond to Shooting Involving ICE Agents**\
-`At least two people have been shot this month by ICE agents carrying out a crackdown on immigrants in Minneapolis, including Renee Good.`\
+**Live Updates: Federal Officers Shoot Person in Minneapolis**\
+`The shooting occurred near the intersection of 26th Street and Nicollet Avenue. The scene was cordoned off with crime scene tape, with dozens of protesters, some wearing gas masks and goggles, blowing whistles.`\
 https://nytimes.com/live/2026/01/24/us/minneapolis-shooting-ice
 
 **Here’s the latest.**\

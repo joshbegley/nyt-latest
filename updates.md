@@ -1,3 +1,11 @@
+**The Public Face of ICE Is Bad Enough**\
+`What’s happening behind the barbed wire?`\
+https://nytimes.com/2026/01/24/opinion/ice-detention-immigrant-rights.html
+
+**WATCH: How the Rams' offense reinvented itself since Super Bowl LVI**\
+`Sean McVay and the Rams offense have found a new way to stay a half step ahead of opposing defenses around the league.`\
+https://nytimes.com/athletic/6995797/2026/01/24/video-analysis-rams-playoffs-sean-mcvay/
+
 **Trump Threatens Canada With Tariffs as Post-Davos Fallout Continues**\
 `President Trump said he would impose tariffs if Canada made “a deal with China,” though there is no sign that those countries are discussing a broad trade agreement.`\
 https://nytimes.com/2026/01/24/world/canada/trump-canada-tariffs.html
