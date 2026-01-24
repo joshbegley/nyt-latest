@@ -1,3 +1,7 @@
+**How to watch Tennessee vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the Tennessee Volunteers play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6996167/2026/01/24/tennessee-vs-alabama-stream-how-to-watch-jan-24/
+
 **Timberwolves-Warriors game postponed after fatal ICE shooting in Minneapolis**\
 `The NBA said the decision was made to "prioritize the safety and security of the Minneapolis community."`\
 https://nytimes.com/athletic/6996105/2026/01/24/timberwolves-warriors-game-postponed-ice-shooting-minnesota/

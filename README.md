@@ -1,3 +1,23 @@
+**How to watch West Virginia vs. BYU women's basketball: Time, TV, streaming**\
+`Find out how to watch the West Virginia Mountaineers play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6996189/2026/01/24/west-virginia-vs-byu-stream-how-to-watch-jan-24/
+
+**How to watch Lakers vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6996186/2026/01/24/lakers-vs-mavericks-stream-how-to-watch-jan-24/
+
+**How to watch Panthers vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6996183/2026/01/24/panthers-vs-wild-stream-how-to-watch-jan-24/
+
+**How to watch Heat vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6996181/2026/01/24/heat-vs-jazz-stream-how-to-watch-jan-24/
+
+**How to watch Capitals vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6996172/2026/01/24/capitals-vs-oilers-stream-how-to-watch-jan-24/
+
 **How to watch Tennessee vs. Alabama men's basketball: Time, TV, streaming**\
 `Find out how to watch the Tennessee Volunteers play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6996167/2026/01/24/tennessee-vs-alabama-stream-how-to-watch-jan-24/
@@ -17,24 +37,4 @@ https://nytimes.com/live/2026/us/minneapolis-shooting-ice/in-minnesota-citizens-
 **The Briefing: Bournemouth 3 Liverpool 2 - Five without a league win, how damaging is this?**\
 `Liverpool suffered a heart-breaking late defeat at Bournemouth, having coming from 2-0 down earlier in the match`\
 https://nytimes.com/athletic/6989244/2026/01/24/bournemouth-3-liverpool-2/
-
-**Ava DuVernay, Ethan Hawke and Patti LuPone Honor Robert Redford at Sundance**\
-`Film lovers celebrated the festival’s final year in Park City, Utah, with a surprise performance by Ms. LuPone.`\
-https://nytimes.com/2026/01/24/style/sundance-robert-redford-ava-duvernay-patti-lupone.html
-
-**Millions of Gallons of Raw Sewage Spill Into the Potomac River**\
-`About 40 million gallons of untreated sewage a day has spilled into the river since a pipeline ruptured in Montgomery County, Md., on Monday, according to a utility company.`\
-https://nytimes.com/2026/01/24/us/potomac-river-untreated-sewage-spill.html
-
-**Frank Carone, a Brooklyn Power Broker, Is Under Federal Investigation**\
-`Federal prosecutors and the F.B.I. are scrutinizing Mr. Carone, who served as chief of staff during Eric Adams’s first year as mayor of New York.`\
-https://nytimes.com/2026/01/24/nyregion/nyc-frank-carone-corruption-investigation.html
-
-**Betting for (by) dummies: Here's why Denver will cover**\
-`Jon Greenberg and Zac Jackson take another crack at predicting NFL playoffs.`\
-https://nytimes.com/athletic/6996000/2026/01/24/nfl-betting-picks-props-patriots-broncos-rams-seahawks/
-
-**Video Shows Moments in Which Agents Killed a Man in Minneapolis**\
-`Several agents tussled with the person before bringing him to his knees. Then, shots rang out.`\
-https://nytimes.com/2026/01/24/us/minneapolis-shooting-federal-agents-video.html
 
