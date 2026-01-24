@@ -1,3 +1,11 @@
+**Arne Slot: Liverpool players 'ran out of energy' in Bournemouth defeat**\
+`The 47-year-old said he was being forced to manage the minutes of some players due to the team's busy schedule.`\
+https://nytimes.com/athletic/6996227/2026/01/24/arne-slot-liverpool-bournemouth-schedule/
+
+**What We Know About a Second Fatal Shooting by Federal Agents in Minneapolis**\
+`Federal agents shot and killed a 37-year-old Minneapolis resident on Saturday, the city’s police chief said.`\
+https://nytimes.com/2026/01/24/us/politics/second-ice-shooting-minneapolis.html
+
 **Pat Montandon, Socialite Who Sought Publicity, and Then World Peace, Dies at 96**\
 `She was known for her lavish parties and her marriage to one of the richest men in San Francisco. After he left her, she found a new purpose: visiting world leaders to plead for peace.`\
 https://nytimes.com/2026/01/24/style/pat-montandon-dead.html
