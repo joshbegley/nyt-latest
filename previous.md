@@ -1,3 +1,7 @@
+**Timberwolves-Warriors game postponed after fatal ICE shooting in Minneapolis**\
+`The NBA said the decision was made to "prioritize the safety and security of the Minneapolis community."`\
+https://nytimes.com/athletic/6996105/2026/01/24/timberwolves-warriors-game-postponed-ice-shooting-minnesota/
+
 **Syrian and Kurdish Troops in Standoff as Truce Deadline Passes**\
 `Syria’s government and Kurdish-led forces in the country’s northeast have clashed as President Ahmed al-Sharaa seeks to extend his authority across the entire country.`\
 https://nytimes.com/2026/01/24/world/middleeast/syria-kurdish-militia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/24/us/minneapolis-shooting-federal-agents-video.html
 **49ers' Klay Kubiak removes himself from head-coaching jobs consideration: Sources**\
 `Kubiak's been with San Francisco since 2021 and risen through the ranks of head coach Kyle Shanahan's staff.`\
 https://nytimes.com/athletic/6996013/2026/01/24/klay-kubiak-49ers-head-coaching-jobs/
-
-**Guardiola criticises referees again, says City success happened 'despite' officials**\
-`Guardiola criticised officials and VAR after City had a goal controversially ruled out during their victory against Newcastle on January 13.`\
-https://nytimes.com/athletic/6996005/2026/01/24/pep-guardiola-manchester-city-var-referees/
 

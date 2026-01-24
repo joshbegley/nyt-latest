@@ -1,3 +1,7 @@
+**Timberwolves-Warriors game postponed after fatal ICE shooting in Minneapolis**\
+`The NBA said the decision was made to "prioritize the safety and security of the Minneapolis community."`\
+https://nytimes.com/athletic/6996105/2026/01/24/timberwolves-warriors-game-postponed-ice-shooting-minnesota/
+
 **Syrian and Kurdish Troops in Standoff as Truce Deadline Passes**\
 `Syria’s government and Kurdish-led forces in the country’s northeast have clashed as President Ahmed al-Sharaa seeks to extend his authority across the entire country.`\
 https://nytimes.com/2026/01/24/world/middleeast/syria-kurdish-militia.html
