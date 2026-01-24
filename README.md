@@ -1,5 +1,9 @@
-**Giannis injures leg in final seconds of Bucks' loss to Nuggets**\
-`Antetokounmpo, who had been laboring throughout the game, landed awkwardly with 34.2 seconds left and had to leave the game. `\
+**The New York Times in Print for Saturday, Jan. 24, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/24/todays-new-york-times
+
+**Giannis expects to miss 4-6 weeks after injuring calf in final seconds of Bucks' latest loss**\
+`Antetokounmpo, who had been laboring throughout the game before landing awkwardly, said he will get an MRI Saturday. `\
 https://nytimes.com/athletic/6995387/2026/01/24/giannis-antetokounmpo-injury-bucks-nuggets/
 
 **Videos Showing Aggressive ICE Tactics in Minnesota Fuel a Backlash**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6993857/2026/01/24/john-heitinga-tottenham-frank/
 **Behind the boos: Inside Mitch Marner's return to Toronto**\
 `Marner's return to Toronto after nine seasons with the organization was an anticipated but also strange day for the former Maple Leafs star.`\
 https://nytimes.com/athletic/6995345/2026/01/24/mitch-marner-maple-leafs-golden-knights/
-
-**An Unlikely Source of Crypto Innovation: Afghanistan**\
-`The repressive Taliban government is suspicious of the internet. But a start-up in the country is building blockchain-based tools to transform humanitarian aid.`\
-https://nytimes.com/2026/01/24/world/asia/crypto-innovation-afghanistan.html
 
