@@ -1,3 +1,15 @@
+**Is no water coming out of your faucet? Here’s how to thaw frozen pipes during cold weather.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/cold-weather-frozen-pipes-water-leak
+
+**Yu Darvish says 'final details are yet to be decided' after report he'll retire**\
+`"Yu has not made a final decision yet," Darvish's agent, Joel Wolfe, said in a statement.`\
+https://nytimes.com/athletic/6996261/2026/01/24/yu-darvish-retirement-report-mlb-padres/
+
+**Rick Pitino earns 900th victory as St. John's wins 'Pitino Bowl' at Xavier**\
+`The Red Storm downed the Musketeers for their sixth straight win as they chase No. 2 UConn in the Big East.`\
+https://nytimes.com/athletic/6996294/2026/01/24/rick-pitino-st-johns-richard-xavier/
+
 **Alert! Alert!**\
 `Mark MacLachlan’s latest puzzle has been thoroughly beta-tested.`\
 https://nytimes.com/2026/01/24/crosswords/daily-puzzle-2026-01-25.html

@@ -1,3 +1,15 @@
+**Is no water coming out of your faucet? Here’s how to thaw frozen pipes during cold weather.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/cold-weather-frozen-pipes-water-leak
+
+**Yu Darvish says 'final details are yet to be decided' after report he'll retire**\
+`"Yu has not made a final decision yet," Darvish's agent, Joel Wolfe, said in a statement.`\
+https://nytimes.com/athletic/6996261/2026/01/24/yu-darvish-retirement-report-mlb-padres/
+
+**Rick Pitino earns 900th victory as St. John's wins 'Pitino Bowl' at Xavier**\
+`The Red Storm downed the Musketeers for their sixth straight win as they chase No. 2 UConn in the Big East.`\
+https://nytimes.com/athletic/6996294/2026/01/24/rick-pitino-st-johns-richard-xavier/
+
 **Alert! Alert!**\
 `Mark MacLachlan’s latest puzzle has been thoroughly beta-tested.`\
 https://nytimes.com/2026/01/24/crosswords/daily-puzzle-2026-01-25.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/24/us/alex-jeffrey-pretti-was-an-icu-nurse-at-the-va
 **3 things meteorologists are watching right now.**\
 `Forecasters are continuing to nail down the details of where the most extreme snow, ice and cold will occur.`\
 https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/3-things-meteorologists-are-watching-right-now
-
-**Gunshots rattle a neighborhood known for its food scene.**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2026/us/minneapolis-shooting-ice/gunshots-rattle-a-neighborhood-known-for-its-food-scene
-
-**Arne Slot: Liverpool players 'ran out of energy' in Bournemouth defeat**\
-`The 47-year-old said he was being forced to manage the minutes of some players due to the team's busy schedule.`\
-https://nytimes.com/athletic/6996227/2026/01/24/arne-slot-liverpool-bournemouth-schedule/
-
-**What We Know About a Second Fatal Shooting by Federal Agents in Minneapolis**\
-`Federal agents shot and killed a 37-year-old Minneapolis resident on Saturday, the city’s police chief said.`\
-https://nytimes.com/2026/01/24/us/politics/second-ice-shooting-minneapolis.html
 
