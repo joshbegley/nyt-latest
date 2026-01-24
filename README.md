@@ -1,3 +1,7 @@
+**ICE Is Splitting America in Two**\
+`The Conversation convenes with Aaron Retica, David French and Emily Bazelon discussing the questions reshaping American politics right now, from immigration enforcement to whether the country can still claim to be “one nation, indivisible.”`\
+https://nytimes.com/video/opinion/100000010661256/ice-is-splitting-america-in-two.html
+
 **Cold Comfort**\
 `How can the perpetually shivering warm up to winter?`\
 https://nytimes.com/2026/01/24/briefing/cold-comfort.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995601/2026/01/24/nebraska-vs-minnesota-stream-how
 **How to watch Illinois vs. Nebraska women's basketball: Time, TV, streaming**\
 `Find out how to watch the Illinois Fighting Illini play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995599/2026/01/24/illinois-vs-nebraska-stream-how-to-watch-jan-24/
-
-**How to watch UConn vs. Seton Hall women's basketball: Time, TV, streaming**\
-`Find out how to watch the UConn Huskies play the Seton Hall Pirates, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995597/2026/01/24/uconn-vs-seton-hall-stream-how-to-watch-jan-24/
 
