@@ -1,3 +1,7 @@
+**Behind the boos: Inside Mitch Marner’s return to Toronto**\
+`Marner’s return to Toronto after nine seasons with the organization was an anticipated but also strange day for the former Maple Leafs star.`\
+https://nytimes.com/athletic/6995345/2026/01/24/mitch-marner-maple-leafs-golden-knights/
+
 **An Unlikely Source of Crypto Innovation: Afghanistan**\
 `The repressive Taliban government is suspicious of the internet. But a start-up in the country is building blockchain-based tools to transform humanitarian aid.`\
 https://nytimes.com/2026/01/24/world/asia/crypto-innovation-afghanistan.html
