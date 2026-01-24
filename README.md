@@ -1,3 +1,11 @@
+**Arne Slot: Liverpool players 'ran out of energy' in Bournemouth defeat**\
+`The 47-year-old said he was being forced to manage the minutes of some players due to the team's busy schedule.`\
+https://nytimes.com/athletic/6996227/2026/01/24/arne-slot-liverpool-bournemouth-schedule/
+
+**What We Know About a Second Fatal Shooting by Federal Agents in Minneapolis**\
+`Federal agents shot and killed a 37-year-old Minneapolis resident on Saturday, the city’s police chief said.`\
+https://nytimes.com/2026/01/24/us/politics/second-ice-shooting-minneapolis.html
+
 **Pat Montandon, Socialite Who Sought Publicity, and Then World Peace, Dies at 96**\
 `She was known for her lavish parties and her marriage to one of the richest men in San Francisco. After he left her, she found a new purpose: visiting world leaders to plead for peace.`\
 https://nytimes.com/2026/01/24/style/pat-montandon-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6995548/2026/01/24/guido-rodriguez-west-ham-valenci
 **Is climate change weakening the polar vortex?**\
 `Rising Arctic temperatures and melting sea ice could be causing cold air to flow into the Northern Hemisphere. But not all scientists agree.`\
 https://nytimes.com/2026/01/24/climate/climate-change-polar-vortex.html
-
-**How to watch West Virginia vs. BYU women's basketball: Time, TV, streaming**\
-`Find out how to watch the West Virginia Mountaineers play the BYU Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6996189/2026/01/24/west-virginia-vs-byu-stream-how-to-watch-jan-24/
-
-**How to watch Lakers vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6996186/2026/01/24/lakers-vs-mavericks-stream-how-to-watch-jan-24/
 
