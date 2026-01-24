@@ -1,3 +1,7 @@
+**How to watch Sabres vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995613/2026/01/24/sabres-vs-islanders-stream-how-to-watch-jan-24/
+
 **How to watch Vanderbilt vs. Mississippi State men's basketball: Time, TV, streaming**\
 `Find out how to watch the Vanderbilt Commodores play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995609/2026/01/24/vanderbilt-vs-mississippi-state-stream-how-to-watch-jan-24/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995595/2026/01/24/villanova-vs-uconn-stream-how-to
 **How to watch Clemson vs. Georgia Tech men's basketball: Time, TV, streaming**\
 `Find out how to watch the Clemson Tigers play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995593/2026/01/24/clemson-vs-georgia-tech-stream-how-to-watch-jan-24/
-
-**How to watch Georgia vs. Texas men's basketball: Time, TV, streaming**\
-`Find out how to watch the Georgia Bulldogs play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995591/2026/01/24/georgia-vs-texas-stream-how-to-watch-jan-24/
 
