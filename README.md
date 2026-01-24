@@ -1,3 +1,19 @@
+**An Unlikely Source of Crypto Innovation: Afghanistan**\
+`The repressive Taliban government is suspicious of the internet. But a start-up in the country is building blockchain-based tools to transform humanitarian aid.`\
+https://nytimes.com/2026/01/24/world/asia/crypto-innovation-afghanistan.html
+
+**What Europe Learned From the Greenland Crisis**\
+`Territorial integrity is a core tenet of Europe that is at risk from Russian and American imperialism. Brussels has fought back.`\
+https://nytimes.com/2026/01/24/world/europe/sovereignty-european-union-nato.html
+
+**Connections: Sports Edition Coach: Hints for Jan. 24, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6995076/2026/01/24/connections-sports-edition-hints-for-jan-24-2026-puzzle-no-488/
+
+**Corrections: Jan. 24, 2026**\
+`Corrections that appeared in print on Saturday, Jan. 24, 2026.`\
+https://nytimes.com/2026/01/24/pageoneplus/corrections-jan-24-2026.html
+
 **Quote of the Day: Big Perks Get Mobile Gamers to Keep Spending**\
 `Quotation of the Day for Saturday, January 24, 2025.`\
 https://nytimes.com/2026/01/23/pageoneplus/quote-of-the-day-big-perks-get-mobile-gamers-to-keep-spending.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6995291/2026/01/23/sherrone-moore-michigan-arrest-f
 **Child Support?**\
 `Adrian Johnson and Ryan McCarty team up on a killer themeless puzzle.`\
 https://nytimes.com/2026/01/23/crosswords/daily-puzzle-2026-01-24.html
-
-**Former NFL player Kevin Johnson killed in homeless encampment stabbing**\
-`The New England Patriots selected the Los Angeles native with a fourth-round pick in the 1993 NFL Draft.`\
-https://nytimes.com/athletic/6995242/2026/01/23/kevin-johnson-former-nfl-player-homeless-stabbed-eagles/
-
-**Federal Judge Extends Deportation Protections for Burmese Migrants**\
-`The ruling represents another setback in the Trump administration’s mass deportation campaign.`\
-https://nytimes.com/2026/01/23/us/politics/burmese-migrants-tps-deportation.html
-
-**Twins' owner personally calls frustrated fans: 'We tripped over ourselves'**\
-`Unlike the past few seasons of poor messaging from the Twins, Pohlad wants to face fans' issues directly.`\
-https://nytimes.com/athletic/6995032/2026/01/23/twins-owner-tom-pohlad-calls-fans/
-
-**Pepper-Sprayed While Pinned Down: A Searing Scene Provokes Outrage**\
-`Images of a man getting pepper-sprayed at close range while being held down by Border Patrol agents fueled more tension in Minneapolis.`\
-https://nytimes.com/2026/01/23/us/minneapolis-man-pepper-sprayed-pinned-video.html
 
