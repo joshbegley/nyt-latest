@@ -1,3 +1,11 @@
+**Twins' owner personally calls frustrated fans: 'We tripped over ourselves'**\
+`Unlike the past few seasons of poor messaging from the Twins, Pohlad wants to face fans' issues directly.`\
+https://nytimes.com/athletic/6995032/2026/01/23/twins-owner-tom-pohlad-calls-fans/
+
+**Pepper-Sprayed While Pinned Down: A Searing Scene Provokes Outrage**\
+`Images of a man getting pepper-sprayed at close range while being held down by Border Patrol agents fueled more tension in Minneapolis.`\
+https://nytimes.com/2026/01/23/us/minneapolis-man-pepper-sprayed-pinned-video.html
+
 **The 1.25.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/01/23/the-12526-issue
@@ -20,7 +28,7 @@ https://nytimes.com/athletic/6995192/2026/01/23/real-salt-lake-morgan-guilavogui
 
 **Interactive Maps and Charts: Tracking the U.S. Winter Storm**\
 `See where dangerous conditions, including snow, ice and below-freezing temperatures, are expected.`\
-https://nytimes.com/interactive/2026/01/23/weather/january-snow-storm-2026.html
+https://nytimes.com/interactive/2026/01/23/weather/winter-storm-snow-maps.html
 
 **John Brodie, longtime 49ers quarterback and 1970 NFL MVP, dies at 90**\
 `Brodie was selected third in the 1957 NFL Draft and played a then-franchise-best 201 games, solidifying his place in 49ers history.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6994977/2026/01/23/john-brodie-49ers-quarterback-di
 **Judge Dismisses Case Against Real Estate Developer Charged With Bribery**\
 `This is one of five indictments charging Eric Ulrich, the former New York City buildings commissioner under Eric Adams, with taking bribes totaling more than $150,000.`\
 https://nytimes.com/2026/01/23/nyregion/bribery-case-dismissed-eric-adams-eric-ulrich.html
-
-**U.S. Says First Boat Strike Since Maduro’s Capture Killed 2 in Eastern Pacific**\
-`The U.S. Southern Command said it had asked the Coast Guard to search for one survivor.`\
-https://nytimes.com/2026/01/23/us/politics/boat-strike-pacific.html
-
-**Setting Foot on the Melting Thwaites Glacier**\
-`Bad weather ​delayed expedition scientists’​ ​efforts to set up camp on Thwaites Glacier ​in Antarctica ​and take measurements ​to determine how quickly it is melting. After the skies cleared, our journalists​, Raymond Zhong and Chang W. Lee​, took us along for their first steps on Thwaites.`\
-https://nytimes.com/video/climate/100000010658848/setting-foot-on-the-melting-thwaites-glacier.html
 

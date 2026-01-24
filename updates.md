@@ -1,3 +1,15 @@
+**Twins' owner personally calls frustrated fans: 'We tripped over ourselves'**\
+`Unlike the past few seasons of poor messaging from the Twins, Pohlad wants to face fans' issues directly.`\
+https://nytimes.com/athletic/6995032/2026/01/23/twins-owner-tom-pohlad-calls-fans/
+
+**Pepper-Sprayed While Pinned Down: A Searing Scene Provokes Outrage**\
+`Images of a man getting pepper-sprayed at close range while being held down by Border Patrol agents fueled more tension in Minneapolis.`\
+https://nytimes.com/2026/01/23/us/minneapolis-man-pepper-sprayed-pinned-video.html
+
+**Interactive Maps and Charts: Tracking the U.S. Winter Storm**\
+`See where dangerous conditions, including snow, ice and below-freezing temperatures, are expected.`\
+https://nytimes.com/interactive/2026/01/23/weather/winter-storm-snow-maps.html
+
 **The 1.25.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/01/23/the-12526-issue
