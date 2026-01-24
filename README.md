@@ -1,3 +1,7 @@
+**Authorities in Minneapolis Respond to Reports of Shooting Involving Federal Agents**\
+`At least two people have been shot by agents in Minneapolis this month, including Renee Good, 37, who was killed in her car.`\
+https://nytimes.com/2026/01/24/us/authorities-in-minneapolis-respond-to-reports-of-shooting-involving-federal-agents.html
+
 **This Roast Chicken Is Heavenly**\
 `Melissa Clark’s five-star green goddess roast chicken pairs inherently likable roast chicken with a zippy, herby, anchovy-enhanced marinade.`\
 https://nytimes.com/2026/01/24/dining/this-roast-chicken-is-heavenly.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995684/2026/01/24/erling-haaland-manchester-city-w
 **Why the Power May Not Go Out Until After the Storm Has Passed**\
 `The steady accumulation of snow and freezing rain and a rise in demand for electricity can cause problems long after the sky clears, energy experts said.`\
 https://nytimes.com/2026/01/24/business/energy-environment/storm-power-outages.html
-
-**Guardians, José Ramírez working toward long-term contract extension: Source**\
-`The deal would keep Ramírez in Cleveland through his 40th birthday, a league source told The Athletic.`\
-https://nytimes.com/athletic/6995697/2026/01/24/jose-ramirez-guardians-contract-extension/
 

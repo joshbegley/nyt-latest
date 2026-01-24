@@ -1,3 +1,7 @@
+**This Roast Chicken Is Heavenly**\
+`Melissa Clark’s five-star green goddess roast chicken pairs inherently likable roast chicken with a zippy, herby, anchovy-enhanced marinade.`\
+https://nytimes.com/2026/01/24/dining/this-roast-chicken-is-heavenly.html
+
 **Pistons' need for a second scorer alongside Cade Cunningham is evident in loss to Rockets**\
 `The loss to the Rockets illustrated just how much the Pistons need a player other than Cunningham who can produce a steady 20 points.`\
 https://nytimes.com/athletic/6995438/2026/01/24/pistons-rockets-cade-cunningham/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/24/business/energy-environment/storm-power-outages.h
 **Guardians, José Ramírez working toward long-term contract extension: Source**\
 `The deal would keep Ramírez in Cleveland through his 40th birthday, a league source told The Athletic.`\
 https://nytimes.com/athletic/6995697/2026/01/24/jose-ramirez-guardians-contract-extension/
-
-**How to watch Knicks vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995750/2026/01/24/knicks-vs-76ers-stream-how-to-watch-jan-24/
 

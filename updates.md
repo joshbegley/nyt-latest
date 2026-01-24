@@ -1,3 +1,7 @@
+**This Roast Chicken Is Heavenly**\
+`Melissa Clark’s five-star green goddess roast chicken pairs inherently likable roast chicken with a zippy, herby, anchovy-enhanced marinade.`\
+https://nytimes.com/2026/01/24/dining/this-roast-chicken-is-heavenly.html
+
 **WATCH: How the Rams' offense reinvented itself since Super Bowl LVI**\
 `Sean McVay and the Rams have found a new way to stay a half step ahead of other offenses around the league.`\
 https://nytimes.com/athletic/6995797/2026/01/24/video-analysis-rams-playoffs-sean-mcvay/
