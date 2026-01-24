@@ -1,3 +1,11 @@
+**How to watch Wizards vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995616/2026/01/24/wizards-vs-hornets-stream-how-to-watch-jan-24/
+
+**How to watch Sabres vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995613/2026/01/24/sabres-vs-islanders-stream-how-to-watch-jan-24/
+
 **How to watch Vanderbilt vs. Mississippi State men's basketball: Time, TV, streaming**\
 `Find out how to watch the Vanderbilt Commodores play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995609/2026/01/24/vanderbilt-vs-mississippi-state-stream-how-to-watch-jan-24/
