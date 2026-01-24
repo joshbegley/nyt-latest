@@ -1,3 +1,7 @@
+**See How Trump Refashioned the ‘People’s House’**\
+`In a year, the president has altered 10 spaces in the White House.`\
+https://nytimes.com/interactive/2026/01/24/us/trump-white-house-changes-renovations.html
+
 **The storm poses an early test for New Jersey’s new governor.**\
 `“This is going to be a long event,” said David Robinson, New Jersey’s climatologist.`\
 https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/the-storm-poses-an-early-test-for-new-jerseys-new-governor
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995936/2026/01/24/lightning-vs-blue-jackets-stream
 **How to watch Warriors vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995933/2026/01/24/warriors-vs-timberwolves-stream-how-to-watch-jan-24/
-
-**Edith Flanigen, Award-Winning Research Chemist, Dies at 96**\
-`She and her staff at Union Carbide created synthetic materials that improved various industrial processes, including purifying water. She also developed a way to make emeralds.`\
-https://nytimes.com/2026/01/24/science/edith-flanigen-dead.html
 

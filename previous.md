@@ -1,3 +1,7 @@
+**The storm poses an early test for New Jersey’s new governor.**\
+`“This is going to be a long event,” said David Robinson, New Jersey’s climatologist.`\
+https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/the-storm-poses-an-early-test-for-new-jerseys-new-governor
+
 **Ja Morant out at least three weeks with elbow injury, past Feb. 5 trade deadline**\
 `Morant sprained a ligament in his left elbow during the Grizzlies' loss to the Atlanta Hawks on Wednesday night, the team said.`\
 https://nytimes.com/athletic/6995873/2026/01/24/ja-morant-injury-out-trade-deadline-grizzlies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995933/2026/01/24/warriors-vs-timberwolves-stream-
 **Edith Flanigen, Award-Winning Research Chemist, Dies at 96**\
 `She and her staff at Union Carbide created synthetic materials that improved various industrial processes, including purifying water. She also developed a way to make emeralds.`\
 https://nytimes.com/2026/01/24/science/edith-flanigen-dead.html
-
-**How to watch Celtics vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995925/2026/01/24/celtics-vs-bulls-stream-how-to-watch-jan-24/
 
