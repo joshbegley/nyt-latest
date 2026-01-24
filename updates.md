@@ -1,3 +1,7 @@
+**Beatriz González, Who Chronicled Colombia’s Turmoil in Paint, Dies at 93**\
+`Often drawing from reproduced images or newspaper photos, she made work that quietly yet memorably critiqued her country’s social and political order.`\
+https://nytimes.com/2026/01/24/arts/design/beatriz-gonzalez-dead.html
+
 **Trump and other federal officials put blame on local officials and man who was killed.**\
 `By Katie Rogers and Hamed Aleaziz`\
 https://nytimes.com/live/2026/us/minneapolis-shooting-ice/trump-and-other-federal-officials-put-blame-on-local-officials-and-man-who-was-killed
