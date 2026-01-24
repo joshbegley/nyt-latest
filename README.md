@@ -1,3 +1,23 @@
+**How to watch Iowa State vs. Oklahoma State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Oklahoma State Cowboys, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995725/2026/01/24/iowa-state-vs-oklahoma-state-stream-how-to-watch-jan-24/
+
+**How to watch Virginia Tech vs. Louisville men's basketball: Time, TV, streaming**\
+`Find out how to watch the Virginia Tech Hokies play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995723/2026/01/24/virginia-tech-vs-louisville-stream-how-to-watch-jan-24/
+
+**How to watch Duke vs. Pittsburgh women's basketball: Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the Pittsburgh Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995717/2026/01/24/duke-vs-pittsburgh-stream-how-to-watch-jan-24/
+
+**How to watch Illinois vs. Purdue men's basketball: Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995715/2026/01/24/illinois-vs-purdue-stream-how-to-watch-jan-24/
+
+**How to watch Auburn vs. Florida men's basketball: Time, TV, streaming**\
+`Find out how to watch the Auburn Tigers play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995713/2026/01/24/auburn-vs-florida-stream-how-to-watch-jan-24/
+
 **The Pulse: College hoops catch-up**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6995057/2026/01/24/be-caught-up-with-college-hoops-in-three-minutes-plus-bills-weirdness/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6994610/2026/01/24/rams-seahawks-nfc-championship-g
 **Josh Allen will help pick the Bills' next head coach. Is that a good idea?**\
 `The Bills want Allen to help them decide who to hire, but allowing the QB to have a say in who becomes his next boss gives some pause.`\
 https://nytimes.com/athletic/6995173/2026/01/24/josh-allen-bills-coach-interviews/
-
-**Ukraine Expects Answers From Russia as Peace Talks Continue, Zelensky Says**\
-`Officials from Russia, Ukraine and the United States are meeting in the United Arab Emirates for rare three-way negotiations.`\
-https://nytimes.com/2026/01/24/world/europe/ukraine-us-russia-peace-talks.html
-
-**As Rick and Richard Pitino face off again, look back at the father-son duo's past matchups**\
-`Rick Pitino will look for his 900th career win when St. John’s faces his son Richard’s Xavier squad Saturday.`\
-https://nytimes.com/athletic/6994253/2026/01/24/st-johns-xavier-basketball-rick-pitino-richard-father-son/
-
-**When will the Blues' sell-off begin? Who goes first? 2026-27 starting lineup? Mailbag, part 2**\
-`Also in the Blues mailbag: Could Jordan Binnington increase his trade value with a standout Olympic performance?`\
-https://nytimes.com/athletic/6988940/2026/01/24/blues-trades-future-lineup-mailbag/
-
-**After years of zingers, Paddy Pimblett is ready to carry UFC gold: 'He's a master orator'**\
-`"I'm going to win this belt and blow up just like Conor did and become a household name."`\
-https://nytimes.com/athletic/6991335/2026/01/24/paddy-pimblett-ufc-324-preview/
-
-**Why do we love football? Chuck Klosterman explores America's obsession in new book**\
-`Football makes us feel something personal and something communal. That's why we put up with everything that comes along with it.`\
-https://nytimes.com/athletic/6994340/2026/01/24/chuck-klosterman-book-football-american-obsession/
 
