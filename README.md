@@ -1,3 +1,11 @@
+**How to watch Knicks vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995750/2026/01/24/knicks-vs-76ers-stream-how-to-watch-jan-24/
+
+**How to watch Mammoth vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995745/2026/01/24/mammoth-vs-predators-stream-how-to-watch-jan-24/
+
 **Sara Hector, Paula Moltzan on top, Mikaela Shiffrin returns to podium in giant slalom**\
 `Sara Hector edged out Paula Moltzan and Mikaela Shiffrin on Saturday in the final women's giant slalom before the Olympics.`\
 https://nytimes.com/athletic/6995657/2026/01/24/mikaela-shiffrin-olympics-giant-slalom-paula-moltzan-sara-hector/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6995717/2026/01/24/duke-vs-pittsburgh-stream-how-to
 **How to watch Illinois vs. Purdue men's basketball: Time, TV, streaming**\
 `Find out how to watch the Illinois Fighting Illini play the Purdue Boilermakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995715/2026/01/24/illinois-vs-purdue-stream-how-to-watch-jan-24/
-
-**How to watch Auburn vs. Florida men's basketball: Time, TV, streaming**\
-`Find out how to watch the Auburn Tigers play the Florida Gators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995713/2026/01/24/auburn-vs-florida-stream-how-to-watch-jan-24/
-
-**The Pulse: College hoops catch-up**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6995057/2026/01/24/be-caught-up-with-college-hoops-in-three-minutes-plus-bills-weirdness/
 
