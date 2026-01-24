@@ -1,4 +1,8 @@
-**Authorities in Minneapolis Respond to Reports of Shooting Involving Federal Agents**\
+**Live Updates: Minneapolis Authorities Respond to Shooting Involving ICE Agents**\
+`At least two people have been shot this month by ICE agents carrying out a crackdown on immigrants in Minneapolis, including Renee Good.`\
+https://nytimes.com/live/2026/01/24/us/minneapolis-shooting-ice
+
+**Authorities in Minneapolis Respond to Reports of Shooting Involving Federal Agentsat.**\
 `At least two people have been shot by agents in Minneapolis this month, including Renee Good, 37, who was killed in her car.`\
 https://nytimes.com/2026/01/24/us/authorities-in-minneapolis-respond-to-reports-of-shooting-involving-federal-agents.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/24/business/dealbook/law-school-ai.html
 **Guardiola says Haaland omission for Man City due to 'a lot of games'**\
 `Omar Marmoush was selected to start up front for City in the Norway international's place against Wolves.`\
 https://nytimes.com/athletic/6995684/2026/01/24/erling-haaland-manchester-city-wolves/
-
-**Why the Power May Not Go Out Until After the Storm Has Passed**\
-`The steady accumulation of snow and freezing rain and a rise in demand for electricity can cause problems long after the sky clears, energy experts said.`\
-https://nytimes.com/2026/01/24/business/energy-environment/storm-power-outages.html
 

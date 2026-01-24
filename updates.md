@@ -1,3 +1,7 @@
+**Authorities in Minneapolis Respond to Reports of Shooting Involving Federal Agents**\
+`At least two people have been shot by agents in Minneapolis this month, including Renee Good, 37, who was killed in her car.`\
+https://nytimes.com/2026/01/24/us/authorities-in-minneapolis-respond-to-reports-of-shooting-involving-federal-agents.html
+
 **This Roast Chicken Is Heavenly**\
 `Melissa Clark’s five-star green goddess roast chicken pairs inherently likable roast chicken with a zippy, herby, anchovy-enhanced marinade.`\
 https://nytimes.com/2026/01/24/dining/this-roast-chicken-is-heavenly.html
