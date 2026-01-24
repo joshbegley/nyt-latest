@@ -1,3 +1,7 @@
+**Child Support?**\
+`Adrian Johnson and Ryan McCarty team up on a killer themeless puzzle.`\
+https://nytimes.com/2026/01/23/crosswords/daily-puzzle-2026-01-24.html
+
 **Former NFL player Kevin Johnson killed in homeless encampment stabbing**\
 `The New England Patriots selected the Los Angeles native with a fourth-round pick in the 1993 NFL Draft.`\
 https://nytimes.com/athletic/6995242/2026/01/23/kevin-johnson-former-nfl-player-homeless-stabbed-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/23/nyregion/nyc-ice-protest-union-square.html
 **Real Salt Lake finalizing deal to add forward Morgan Guilavogui: Sources**\
 `Guilavogui has had one goal in limited minutes for RC Lens this season.`\
 https://nytimes.com/athletic/6995192/2026/01/23/real-salt-lake-morgan-guilavogui-attack/
-
-**Interactive Maps and Charts: Tracking the U.S. Winter Storm**\
-`See where dangerous conditions, including snow, ice and below-freezing temperatures, are expected.`\
-https://nytimes.com/interactive/2026/01/23/weather/winter-storm-snow-maps.html
 
