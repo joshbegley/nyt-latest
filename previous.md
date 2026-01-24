@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6995438/2026/01/24/pistons-rockets-cade-cunningham/
 `The 37-year-old Swedish coach is the third head coach to take charge in the team’s nine-year history.`\
 https://nytimes.com/athletic/6995704/2026/01/24/north-carolina-courage-names-mak-lind-as-next-head-coach-nwsl/
 
+**WATCH: How the Rams' offense reinvented itself since Super Bowl LVI**\
+`Sean McVay and the Rams have found a new way to stay a half step ahead of other offenses around the league.`\
+https://nytimes.com/athletic/6995797/2026/01/24/video-analysis-rams-playoffs-sean-mcvay/
+
 **90 Seconds to Bake-Off**\
 `Sticky toffee pudding, mug cake and Nutella pudding cake at the push of a button.`\
 https://nytimes.com/2026/01/24/dining/90-seconds-to-bake-off.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995697/2026/01/24/jose-ramirez-guardians-contract-
 **How to watch Knicks vs. 76ers: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the Philadelphia 76ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995750/2026/01/24/knicks-vs-76ers-stream-how-to-watch-jan-24/
-
-**How to watch Mammoth vs. Predators: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995745/2026/01/24/mammoth-vs-predators-stream-how-to-watch-jan-24/
 

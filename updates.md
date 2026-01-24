@@ -1,3 +1,7 @@
+**WATCH: How the Rams' offense reinvented itself since Super Bowl LVI**\
+`Sean McVay and the Rams have found a new way to stay a half step ahead of other offenses around the league.`\
+https://nytimes.com/athletic/6995797/2026/01/24/video-analysis-rams-playoffs-sean-mcvay/
+
 **Pistons' need for a second scorer alongside Cade Cunningham is evident in loss to Rockets**\
 `The loss to the Rockets illustrated just how much the Pistons need a player other than Cunningham who can produce a steady 20 points.`\
 https://nytimes.com/athletic/6995438/2026/01/24/pistons-rockets-cade-cunningham/
