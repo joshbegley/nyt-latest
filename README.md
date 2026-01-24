@@ -20,7 +20,7 @@ https://nytimes.com/athletic/6995192/2026/01/23/real-salt-lake-morgan-guilavogui
 
 **Interactive Maps and Charts: Tracking the U.S. Winter Storm**\
 `See where dangerous conditions, including snow, ice and below-freezing temperatures, are expected.`\
-https://nytimes.com/interactive/2026/01/23/weather/january-snow-storm-2026.html
+https://nytimes.com/interactive/2026/01/23/weather/winter-storm-snow-maps.html
 
 **John Brodie, longtime 49ers quarterback and 1970 NFL MVP, dies at 90**\
 `Brodie was selected third in the 1957 NFL Draft and played a then-franchise-best 201 games, solidifying his place in 49ers history.`\

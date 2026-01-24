@@ -1,3 +1,7 @@
+**The 1.25.26 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/01/23/the-12526-issue
+
 **Thousands of Anti-ICE Protesters Brave Frigid Temperatures in Minneapolis**\
 `Thousands of protesters shut down parts of Minneapolis and St. Paul on Friday as hundreds of businesses closed their doors, and workers and students stayed home to demand an end to the sweeping immigration crackdown that has roiled the Twin Cities for weeks.`\
 https://nytimes.com/video/us/100000010665187/minneapolis-anti-ice-protesters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/23/us/politics/boat-strike-pacific.html
 **Setting Foot on the Melting Thwaites Glacier**\
 `Bad weather ​delayed expedition scientists’​ ​efforts to set up camp on Thwaites Glacier ​in Antarctica ​and take measurements ​to determine how quickly it is melting. After the skies cleared, our journalists​, Raymond Zhong and Chang W. Lee​, took us along for their first steps on Thwaites.`\
 https://nytimes.com/video/climate/100000010658848/setting-foot-on-the-melting-thwaites-glacier.html
-
-**Tom Brady after watching Fernando Mendoza: 'He's got a bright future'**\
-`In his role as minority owner of the Raiders, Brady is expected to have a prominent voice for the team holding the NFL Draft's top pick.`\
-https://nytimes.com/athletic/6995078/2026/01/23/tom-brady-raiders-fernando-mendoza-qb/
 
