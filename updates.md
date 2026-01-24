@@ -1,3 +1,7 @@
+**How to watch Boston College vs. Louisville women's basketball: Time, TV, streaming**\
+`Find out how to watch the Boston College Eagles play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995517/2026/01/24/boston-college-vs-louisville-stream-how-to-watch-jan-24/
+
 **Mamdani Joined Nurses on the Picket Lines. That’s Unusual for Mayors.**\
 `The current mayor of New York City has diverged from his predecessors by joining the striking nurses. Past labor disputes have often involved scolding.`\
 https://nytimes.com/2026/01/24/nyregion/nyc-mayors-labor-strikes.html

@@ -1,3 +1,7 @@
+**How to watch Boston College vs. Louisville women's basketball: Time, TV, streaming**\
+`Find out how to watch the Boston College Eagles play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995517/2026/01/24/boston-college-vs-louisville-stream-how-to-watch-jan-24/
+
 **Mamdani Joined Nurses on the Picket Lines. That’s Unusual for Mayors.**\
 `The current mayor of New York City has diverged from his predecessors by joining the striking nurses. Past labor disputes have often involved scolding.`\
 https://nytimes.com/2026/01/24/nyregion/nyc-mayors-labor-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/01/24/us/minnesota-ice-violence-tactics-vid
 **After week of acrimony at Crystal Palace, Oliver Glasner lowers the temperature**\
 `Those expecting another outburst from the Palace manager were left disappointed as he addressed the press in more measured terms`\
 https://nytimes.com/athletic/6985740/2026/01/24/after-week-of-acrimony-at-crystal-palace-oliver-glasner-lowers-the-temperature/
-
-**The rise of LinkedIn manager-speak. Yes, it can be cringey. But does it work?**\
-`It is easy to ridicule the way some of the new generation of managers talk about the game, but that does not mean it can't be effective`\
-https://nytimes.com/athletic/6994243/2026/01/24/linkedin-manager-speak-rosenior/
 
