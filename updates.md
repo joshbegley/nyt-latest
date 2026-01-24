@@ -1,3 +1,15 @@
+**Setting Foot on the Melting Thwaites Glacier**\
+`Bad weather ​delayed expedition scientists’​ ​efforts to set up camp on Thwaites Glacier ​in Antarctica ​and take measurements ​to determine how quickly it is melting. After the skies cleared, our journalists​, Raymond Zhong and Chang W. Lee​, took us along for their first steps on Thwaites.`\
+https://nytimes.com/video/climate/100000010658848/setting-foot-on-the-melting-thwaites-glacier.html
+
+**Tom Brady after watching Fernando Mendoza: 'He's got a bright future'**\
+`In his role as minority owner of the Raiders, Brady is expected to have a prominent voice for the team holding the NFL Draft's top pick.`\
+https://nytimes.com/athletic/6995078/2026/01/23/tom-brady-raiders-fernando-mendoza-qb/
+
+**UFC fighter Cameron Smotherman hospitalized following weigh-in collapse**\
+`Smotherman weighed in at 135.5 pounds ahead of a fight Saturday but stumbled before falling to the ground and being helped by medical staff.`\
+https://nytimes.com/athletic/6994905/2026/01/23/cameron-smotherman-ufc-mma-collapse-hospital/
+
 **WATCH: How Patriots' versatile pass rush shuts down opposing quarterbacks**\
 `What's fueling the Pats' Super Bowl run? While the offense is explosive, the pass rush has made New England a threat on both sides.`\
 https://nytimes.com/athletic/6995133/2026/01/23/video-analysis-patriots-playoffs/
