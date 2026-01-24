@@ -1,3 +1,7 @@
+**Bayern lose first Bundesliga game in 10 months with Augsburg defeat**\
+`Bayern suffered a 2-1 defeat to relegation-threatened Augsburg on Saturday, ending a 27-game unbeaten run in the Bundesliga.`\
+https://nytimes.com/athletic/6995863/2026/01/24/bayern-munich-augsburg-bundesliga-loss/
+
 **Washington Post Tears Up Plans to Cover Winter Olympics**\
 `The abrupt change in direction came just weeks before the Olympic Games are set to begin in Italy.`\
 https://nytimes.com/2026/01/24/business/media/washington-post-winter-olympics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995438/2026/01/24/pistons-rockets-cade-cunningham/
 **‘I'm obsessed with scoring goals’: Mak Lind named head coach of Courage**\
 `The 37-year-old Swedish coach is the third head coach to take charge in the team’s nine-year history.`\
 https://nytimes.com/athletic/6995704/2026/01/24/north-carolina-courage-names-mak-lind-as-next-head-coach-nwsl/
-
-**WATCH: How the Rams' offense reinvented itself since Super Bowl LVI**\
-`Sean McVay and the Rams offense have found a new way to stay a half step ahead of opposing defenses around the league.`\
-https://nytimes.com/athletic/6995797/2026/01/24/video-analysis-rams-playoffs-sean-mcvay/
 
