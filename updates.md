@@ -1,3 +1,7 @@
+**3 things meteorologists are watching right now.**\
+`Forecasters are continuing to nail down the details of where the most extreme snow, ice and cold will occur.`\
+https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/3-things-meteorologists-are-watching-right-now
+
 **Trump and Federal Officials Blame Minnesota Authorities and Slain Man**\
 `They called Alex Jeffrey Pretti a “domestic terrorist” and said the governor and Minneapolis mayor were inciting rebellion.`\
 https://nytimes.com/2026/01/24/us/trump-administration-minneapolis-shooting.html
