@@ -1,3 +1,7 @@
+**Pistons' need for a second scorer alongside Cade Cunningham is evident in loss to Rockets**\
+`The loss to the Rockets illustrated just how much the Pistons need a player other than Cunningham who can produce a steady 20 points.`\
+https://nytimes.com/athletic/6995438/2026/01/24/pistons-rockets-cade-cunningham/
+
 **Sara Hector, Paula Moltzan on top, Mikaela Shiffrin returns to podium in giant slalom**\
 `Hector edged out Moltzan and Shiffrin on Saturday in the final women's giant slalom before the Olympics.`\
 https://nytimes.com/athletic/6995657/2026/01/24/mikaela-shiffrin-olympics-giant-slalom-paula-moltzan-sara-hector/
