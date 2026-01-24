@@ -1,3 +1,7 @@
+**Beatriz González, Who Chronicled Colombia’s Turmoil in Paint, Dies at 93**\
+`Often drawing from reproduced images or newspaper photos, she made work that quietly yet memorably critiqued her country’s social and political order.`\
+https://nytimes.com/2026/01/24/arts/design/beatriz-gonzalez-dead.html
+
 **Trump and other federal officials put blame on local officials and man who was killed.**\
 `By Katie Rogers and Hamed Aleaziz`\
 https://nytimes.com/live/2026/us/minneapolis-shooting-ice/trump-and-other-federal-officials-put-blame-on-local-officials-and-man-who-was-killed
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6996181/2026/01/24/heat-vs-jazz-stream-how-to-watch
 **How to watch Capitals vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6996172/2026/01/24/capitals-vs-oilers-stream-how-to-watch-jan-24/
-
-**How to watch Tennessee vs. Alabama men's basketball: Time, TV, streaming**\
-`Find out how to watch the Tennessee Volunteers play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6996167/2026/01/24/tennessee-vs-alabama-stream-how-to-watch-jan-24/
 

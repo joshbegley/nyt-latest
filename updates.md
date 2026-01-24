@@ -1,3 +1,7 @@
+**Trump and other federal officials put blame on local officials and man who was killed.**\
+`By Katie Rogers and Hamed Aleaziz`\
+https://nytimes.com/live/2026/us/minneapolis-shooting-ice/trump-and-other-federal-officials-put-blame-on-local-officials-and-man-who-was-killed
+
 **U.S. asks for extra Olympic quota spot for Katie Uhlaender in skeleton controversy**\
 `A U.S. Olympic official argued it was "undeniable" that Uhlaender deserves to go to the Games after a qualification controversy this month.`\
 https://nytimes.com/athletic/6995628/2026/01/24/olympics-skeleton-controversy-katie-uhlaender-quota-spot/
