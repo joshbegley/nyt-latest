@@ -1,3 +1,11 @@
+**How to watch Texas Tech vs. Utah women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Lady Raiders play the Utah Utes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995908/2026/01/24/texas-tech-vs-utah-stream-how-to-watch-jan-24/
+
+**How to watch Utah vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Utah Utes play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995906/2026/01/24/utah-vs-byu-stream-how-to-watch-jan-24/
+
 **How to watch San Francisco vs. Gonzaga men's basketball: Time, TV, streaming**\
 `Find out how to watch the San Francisco Dons play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995904/2026/01/24/san-francisco-vs-gonzaga-stream-how-to-watch-jan-24/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6995863/2026/01/24/bayern-munich-augsburg-bundeslig
 **Washington Post Tears Up Plans to Cover Winter Olympics**\
 `The abrupt change in direction came just weeks before the Olympic Games are set to begin in Italy.`\
 https://nytimes.com/2026/01/24/business/media/washington-post-winter-olympics.html
-
-**The Public Face of ICE Is Bad Enough**\
-`What’s happening behind the barbed wire?`\
-https://nytimes.com/2026/01/24/opinion/ice-detention-immigrant-rights.html
-
-**Trump Threatens Canada With Tariffs as Post-Davos Fallout Continues**\
-`President Trump said he would impose tariffs if Canada made “a deal with China,” though there is no sign that those countries are discussing a broad trade agreement.`\
-https://nytimes.com/2026/01/24/world/canada/trump-canada-tariffs.html
 
