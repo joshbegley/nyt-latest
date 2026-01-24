@@ -1,3 +1,7 @@
+**Burnley 2 Tottenham 2: Did Romero just save Frank? Spurs too reliant on centre-backs again**\
+`Cristian Romero scored a late equaliser for Tottenham as they rescued a point against Burnley. Is it enough to save Thomas Frank?`\
+https://nytimes.com/athletic/6989242/2026/01/24/burnley-2-tottenham-2-premier-league-result/
+
 **Here’s the forecast, city by city**\
 `Ice, sleet and snow are expected for several cities in the path of the storm.`\
 https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/heres-the-forecast-city-by-city
@@ -31,10 +35,6 @@ https://nytimes.com/2026/01/24/world/canada/trump-canada-tariffs.html
 https://nytimes.com/athletic/6995792/2026/01/24/sunderland-granit-xhaka-injury/
 
 **Live Updates: Federal Officers Shoot Person in Minneapolis**\
-`The shooting occurred near the intersection of 26th Street and Nicollet Avenue. The scene was cordoned off with crime scene tape, with dozens of protesters, some wearing gas masks and goggles, blowing whistles.`\
+`The shooting prompted a clash between ICE agents and more than 100 protesters who swarmed the scene, near the intersection of 26th Street and Nicollet Avenue.`\
 https://nytimes.com/live/2026/01/24/us/minneapolis-shooting-ice
-
-**Here’s the latest.**\
-`At least two people have been shot by agents in Minneapolis this month, including Renee Good, 37, who was killed in her car.`\
-https://nytimes.com/live/2026/01/24/us/minneapolis-shooting-ice/authorities-in-minneapolis-respond-to-reports-of-shooting-involving-federal-agents
 
