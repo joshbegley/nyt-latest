@@ -1,3 +1,7 @@
+**The Briefing: Bournemouth 3 Liverpool 2 - Five without a league win, how damaging is this?**\
+`Liverpool suffered a heart-breaking late defeat at Bournemouth, having coming from 2-0 down earlier in the match`\
+https://nytimes.com/athletic/6989244/2026/01/24/bournemouth-3-liverpool-2/
+
 **Ava DuVernay, Ethan Hawke and Patti LuPone Honor Robert Redford at Sundance**\
 `Film lovers celebrated the festival’s final year in Park City, Utah, with a surprise performance by Ms. LuPone.`\
 https://nytimes.com/2026/01/24/style/sundance-robert-redford-ava-duvernay-patti-lupone.html
@@ -16,7 +20,7 @@ https://nytimes.com/athletic/6996000/2026/01/24/nfl-betting-picks-props-patriots
 
 **Video Shows Moments in Which Agents Killed a Man in Minneapolis**\
 `Several agents tussled with the person before bringing him to his knees. Then, shots rang out.`\
-https://nytimes.com/2026/01/24/us/video-shows-moments-in-which-agents-killed-a-man-in-minneapolis.html
+https://nytimes.com/2026/01/24/us/minneapolis-shooting-federal-agents-video.html
 
 **49ers' Klay Kubiak removes himself from head-coaching jobs consideration: Sources**\
 `Kubiak's been with San Francisco since 2021 and risen through the ranks of head coach Kyle Shanahan's staff.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6989279/2026/01/24/mike-mccarthy-steelers-head-coac
 **Bad Bunny's NFL merchandise collection released ahead of Super Bowl performance**\
 `The first of two merchandise collaborations between Bad Bunny and the NFL became available for pre-order on Saturday. `\
 https://nytimes.com/athletic/6995985/2026/01/24/bad-bunny-nfl-merchandise-concho/
-
-**Senators' Mike Yeo takes over for Nolan Baumgartner as penalty-kill coach**\
-`The change comes one game after the Senators blew a 3-0 lead to the Nashville Predators on Thursday in a 5-3 loss.`\
-https://nytimes.com/athletic/6995928/2026/01/24/senators-yeo-penalty-kill-coach/
 
