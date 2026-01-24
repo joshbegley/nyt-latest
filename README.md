@@ -1,4 +1,8 @@
-**Sabres thoughts: Alex Lyon's hot streak helps Buffalo climb standings with shutout win**\
+**Alert! Alert!**\
+`Mark MacLachlan’s latest puzzle has been thoroughly beta-tested.`\
+https://nytimes.com/2026/01/24/crosswords/daily-puzzle-2026-01-25.html
+
+**Sabres thoughts: Alex Lyon's hot streak helps Buffalo climb standings**\
 `Lyon stopped 26 shots for his second shutout of the season and led the Sabres to a 5-0 win over the New York Islanders.`\
 https://nytimes.com/athletic/6996281/2026/01/24/sabres-islanders-alex-lyon-shutout/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6996227/2026/01/24/arne-slot-liverpool-bournemouth-
 **What We Know About a Second Fatal Shooting by Federal Agents in Minneapolis**\
 `Federal agents shot and killed a 37-year-old Minneapolis resident on Saturday, the city’s police chief said.`\
 https://nytimes.com/2026/01/24/us/politics/second-ice-shooting-minneapolis.html
-
-**Pat Montandon, Socialite Who Sought Publicity, and Then World Peace, Dies at 96**\
-`She was known for her lavish parties and her marriage to one of the richest men in San Francisco. After he left her, she found a new purpose: visiting world leaders to plead for peace.`\
-https://nytimes.com/2026/01/24/style/pat-montandon-dead.html
 
