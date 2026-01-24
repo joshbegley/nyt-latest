@@ -1,3 +1,7 @@
+**Thousands of Anti-ICE Protesters Brave Frigid Temperatures in Minneapolis**\
+`Thousands of protesters shut down parts of Minneapolis and St. Paul on Friday as hundreds of businesses closed their doors, and workers and students stayed home to demand an end to the sweeping immigration crackdown that has roiled the Twin Cities for weeks.`\
+https://nytimes.com/video/us/100000010665187/minneapolis-anti-ice-protesters.html
+
 **Renée Fleming Won’t Perform at Kennedy Center Concerts**\
 `The soprano, who previously resigned as an artistic adviser, was scheduled to sing with the National Symphony Orchestra in May.`\
 https://nytimes.com/2026/01/23/arts/music/renee-fleming-kennedy-center.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/climate/100000010658848/setting-foot-on-the-melting-th
 **Tom Brady after watching Fernando Mendoza: 'He's got a bright future'**\
 `In his role as minority owner of the Raiders, Brady is expected to have a prominent voice for the team holding the NFL Draft's top pick.`\
 https://nytimes.com/athletic/6995078/2026/01/23/tom-brady-raiders-fernando-mendoza-qb/
-
-**WATCH: How Patriots' versatile pass rush shuts down opposing quarterbacks**\
-`What's fueling the Pats' Super Bowl run? While the offense is explosive, the pass rush has made New England a threat on both sides.`\
-https://nytimes.com/athletic/6995133/2026/01/23/video-analysis-patriots-playoffs/
 
