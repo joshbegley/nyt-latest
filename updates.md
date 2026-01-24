@@ -1,3 +1,7 @@
+**Guardiola says Haaland omission for Man City due to 'a lot of games'**\
+`Omar Marmoush was selected to start up front for City in the Norway international's place against Wolves.`\
+https://nytimes.com/athletic/6995684/2026/01/24/erling-haaland-manchester-city-wolves/
+
 **Why the Power May Not Go Out Until After the Storm Has Passed**\
 `The steady accumulation of snow and freezing rain and a rise in demand for electricity can cause problems long after the sky clears, energy experts said.`\
 https://nytimes.com/2026/01/24/business/energy-environment/storm-power-outages.html

@@ -1,3 +1,7 @@
+**Guardiola says Haaland omission for Man City due to 'a lot of games'**\
+`Omar Marmoush was selected to start up front for City in the Norway international's place against Wolves.`\
+https://nytimes.com/athletic/6995684/2026/01/24/erling-haaland-manchester-city-wolves/
+
 **Why the Power May Not Go Out Until After the Storm Has Passed**\
 `The steady accumulation of snow and freezing rain and a rise in demand for electricity can cause problems long after the sky clears, energy experts said.`\
 https://nytimes.com/2026/01/24/business/energy-environment/storm-power-outages.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995728/2026/01/24/lsu-vs-arkansas-stream-how-to-wa
 **How to watch Iowa State vs. Oklahoma State men's basketball: Time, TV, streaming**\
 `Find out how to watch the Iowa State Cyclones play the Oklahoma State Cowboys, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995725/2026/01/24/iowa-state-vs-oklahoma-state-stream-how-to-watch-jan-24/
-
-**How to watch Virginia Tech vs. Louisville men's basketball: Time, TV, streaming**\
-`Find out how to watch the Virginia Tech Hokies play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995723/2026/01/24/virginia-tech-vs-louisville-stream-how-to-watch-jan-24/
 
