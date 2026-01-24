@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6985740/2026/01/24/after-week-of-acrimony-at-crysta
 https://nytimes.com/athletic/6994243/2026/01/24/linkedin-manager-speak-rosenior/
 
 **John Brodie, Former Star Quarterback for the 49ers, Dies at 90**\
-`The longtime San Francisco star endured years of frustration before emerging as the N.F.L.’s most valuable player.`\
+`He endured years of frustration before emerging as the N.F.L.’s most valuable player.`\
 https://nytimes.com/2026/01/24/obituaries/john-brodie-dead.html
 
 **The key to being a top-level manager? Being slow as a player**\
