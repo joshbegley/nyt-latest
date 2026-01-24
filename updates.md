@@ -1,3 +1,7 @@
+**1 Killed and 14 Injured in Fire at Bronx Apartment Building**\
+`About 150 homes were evacuated overnight on Saturday after a gas explosion set off a four-alarm blaze in a public housing complex.`\
+https://nytimes.com/2026/01/24/nyregion/bronx-fire-explosion-evacuation.html
+
 **NFL set for return to Real Madrid's Bernabeu in 2026: Sources**\
 `Sources briefed on negotiations indicated the NFL and Madrid are considering hosting more matches at the stadium beyond 2026.`\
 https://nytimes.com/athletic/6995625/2026/01/24/nfl-real-madrid-bernabeu/
