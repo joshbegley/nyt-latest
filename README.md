@@ -1,4 +1,4 @@
-**NFL set return to Real Madrid's Bernabeu in 2026**\
+**NFL set for return to Real Madrid's Bernabeu in 2026: Sources**\
 `Sources briefed on negotiations indicated the NFL and Madrid are considering hosting more matches at the stadium beyond 2026.`\
 https://nytimes.com/athletic/6995625/2026/01/24/nfl-real-madrid-bernabeu/
 
