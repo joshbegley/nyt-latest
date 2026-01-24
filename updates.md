@@ -1,3 +1,11 @@
+**Bad Bunny's NFL merchandise collection released ahead of Super Bowl performance**\
+`The first of two merchandise collaborations between Bad Bunny and the NFL became available for pre-order on Saturday. `\
+https://nytimes.com/athletic/6995985/2026/01/24/bad-bunny-nfl-merchandise-concho/
+
+**Senators' Mike Yeo takes over for Nolan Baumgartner as penalty kill coach**\
+`The change comes one game after the Senators blew a 3-0 lead to the Nashville Predators on Thursday in a 5-3 loss.`\
+https://nytimes.com/athletic/6995928/2026/01/24/senators-yeo-penalty-kill-coach/
+
 **See How Trump Refashioned the ‘People’s House’**\
 `In a year, the president has altered 10 spaces in the White House.`\
 https://nytimes.com/interactive/2026/01/24/us/trump-white-house-changes-renovations.html

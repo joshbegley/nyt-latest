@@ -1,3 +1,11 @@
+**Bad Bunny's NFL merchandise collection released ahead of Super Bowl performance**\
+`The first of two merchandise collaborations between Bad Bunny and the NFL became available for pre-order on Saturday. `\
+https://nytimes.com/athletic/6995985/2026/01/24/bad-bunny-nfl-merchandise-concho/
+
+**Senators' Mike Yeo takes over for Nolan Baumgartner as penalty kill coach**\
+`The change comes one game after the Senators blew a 3-0 lead to the Nashville Predators on Thursday in a 5-3 loss.`\
+https://nytimes.com/athletic/6995928/2026/01/24/senators-yeo-penalty-kill-coach/
+
 **See How Trump Refashioned the ‘People’s House’**\
 `In a year, the president has altered 10 spaces in the White House.`\
 https://nytimes.com/interactive/2026/01/24/us/trump-white-house-changes-renovations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6995940/2026/01/24/canadiens-vs-bruins-stream-how-t
 **How to watch Kings vs. Blues: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the St. Louis Blues, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995938/2026/01/24/kings-vs-blues-stream-how-to-watch-jan-24/
-
-**How to watch Lightning vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995936/2026/01/24/lightning-vs-blue-jackets-stream-how-to-watch-jan-24/
-
-**How to watch Warriors vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995933/2026/01/24/warriors-vs-timberwolves-stream-how-to-watch-jan-24/
 
