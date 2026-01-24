@@ -1,3 +1,23 @@
+**Millions of Gallons of Raw Sewage Spill Into the Potomac River**\
+`About 40 million gallons of untreated sewage a day has spilled into the river since a pipeline ruptured in Montgomery County, Md., on Monday, according to a utility company.`\
+https://nytimes.com/2026/01/24/us/potomac-river-untreated-sewage-spill.html
+
+**Frank Carone, a Brooklyn Power Broker, Is Under Federal Investigation**\
+`Federal prosecutors and the F.B.I. are scrutinizing Mr. Carone, who served as chief of staff during Eric Adams’s first year as mayor of New York.`\
+https://nytimes.com/2026/01/24/nyregion/nyc-frank-carone-corruption-investigation.html
+
+**Betting for (by) dummies: Here's why Denver will cover**\
+`Jon Greenberg and Zac Jackson take another crack at predicting NFL playoffs.`\
+https://nytimes.com/athletic/6996000/2026/01/24/nfl-betting-picks-props-patriots-broncos-rams-seahawks/
+
+**Video Shows Moments in Which Agents Killed a Man in Minneapolis**\
+`Several agents tussled with the person before bringing him to his knees. Then, shots rang out.`\
+https://nytimes.com/2026/01/24/us/video-shows-moments-in-which-agents-killed-a-man-in-minneapolis.html
+
+**49ers' Klay Kubiak removes himself from head-coaching jobs consideration: Sources**\
+`Kubiak's been with San Francisco since 2021 and risen through the ranks of head coach Kyle Shanahan's staff.`\
+https://nytimes.com/athletic/6996013/2026/01/24/klay-kubiak-49ers-head-coaching-jobs/
+
 **Guardiola criticises referees again, says City success happened 'despite' officials**\
 `Guardiola criticised officials and VAR after City had a goal controversially ruled out during their victory against Newcastle on January 13.`\
 https://nytimes.com/athletic/6996005/2026/01/24/pep-guardiola-manchester-city-var-referees/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6995928/2026/01/24/senators-yeo-penalty-kill-coach/
 **See How Trump Refashioned the ‘People’s House’**\
 `In a year, the president has altered 10 spaces in the White House.`\
 https://nytimes.com/interactive/2026/01/24/us/trump-white-house-changes-renovations.html
-
-**The storm poses an early test for New Jersey’s new governor.**\
-`“This is going to be a long event,” said David Robinson, New Jersey’s climatologist.`\
-https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/the-storm-poses-an-early-test-for-new-jerseys-new-governor
-
-**Ja Morant out at least three weeks with elbow injury, past Feb. 5 trade deadline**\
-`Morant sprained a ligament in his left elbow during the Grizzlies' loss to the Atlanta Hawks on Wednesday night, the team said.`\
-https://nytimes.com/athletic/6995873/2026/01/24/ja-morant-injury-out-trade-deadline-grizzlies/
-
-**José Ramírez, the Guardians and a match made in heaven (Cleveland)**\
-`Ramírez's new deal means the face of the franchise will stay in Cleveland for the long haul, until his career reaches its final chapter.`\
-https://nytimes.com/athletic/6995779/2026/01/24/jose-ramirez-guardians-cleveland-deal/
-
-**How to watch Red Wings vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995945/2026/01/24/red-wings-vs-jets-stream-how-to-watch-jan-24/
-
-**How to watch Hurricanes vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995943/2026/01/24/hurricanes-vs-senators-stream-how-to-watch-jan-24/
 
