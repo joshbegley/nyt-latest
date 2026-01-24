@@ -1,3 +1,7 @@
+**Chloé Zhao Is Yearning to Know How to Love**\
+`The “Hamnet” director on trying to overcome her deepest fears — and open her heart.`\
+https://nytimes.com/2026/01/24/magazine/chloe-zhao-interview.html
+
 **The Emotions President Trump Evokes**\
 `We asked voters to describe their emotions about President Trump’s second term so far. Most spoke of happiness or hostility.`\
 https://nytimes.com/interactive/2026/01/24/polls/trump-emotions-poll.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/24/world/americas/venezuela-arrests-repression.html
 **U.S. Automakers’ Foreign Troubles Now Extend to Canada**\
 `U.S. trade policy has devastated the Canadian auto industry and pushed the country to reach an agreement that will make it easier for Chinese companies to sell cars there.`\
 https://nytimes.com/2026/01/24/business/general-motors-ford-canada-china.html
-
-**Sophie Turner Swears By a Chaotic Spotify Playlist**\
-`“One minute it’s playing Ludovico Einaudi, and then the next minute it’s playing stuff from the ’60s or two days ago,” said the “Game of Thrones” actress.`\
-https://nytimes.com/2026/01/24/arts/sophie-turner-steal-game-of-thrones.html
 
