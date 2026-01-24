@@ -28,7 +28,7 @@ https://nytimes.com/2026/01/24/arts/design/beatriz-gonzalez-dead.html
 
 **Trump and other federal officials try to put blame on local officials and man who was killed.**\
 `By Katie Rogers and Hamed Aleaziz`\
-https://nytimes.com/live/2026/us/minneapolis-shooting-ice/trump-and-other-federal-officials-put-blame-on-local-officials-and-man-who-was-killed
+https://nytimes.com/2026/01/24/us/trump-administration-minneapolis-shooting.html
 
 **U.S. asks for extra Olympic quota spot for Katie Uhlaender in skeleton controversy**\
 `A U.S. Olympic official argued it was "undeniable" that Uhlaender deserves to go to the Games after a qualification controversy this month.`\

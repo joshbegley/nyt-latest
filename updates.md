@@ -1,3 +1,7 @@
+**Gunshots rattle a neighborhood known for its food scene.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2026/us/minneapolis-shooting-ice/gunshots-rattle-a-neighborhood-known-for-its-food-scene
+
 **Arne Slot: Liverpool players 'ran out of energy' in Bournemouth defeat**\
 `The 47-year-old said he was being forced to manage the minutes of some players due to the team's busy schedule.`\
 https://nytimes.com/athletic/6996227/2026/01/24/arne-slot-liverpool-bournemouth-schedule/
