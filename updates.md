@@ -1,3 +1,23 @@
+**How to watch Texas Tech vs. Utah women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Lady Raiders play the Utah Utes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995908/2026/01/24/texas-tech-vs-utah-stream-how-to-watch-jan-24/
+
+**How to watch Utah vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Utah Utes play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995906/2026/01/24/utah-vs-byu-stream-how-to-watch-jan-24/
+
+**How to watch San Francisco vs. Gonzaga men's basketball: Time, TV, streaming**\
+`Find out how to watch the San Francisco Dons play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995904/2026/01/24/san-francisco-vs-gonzaga-stream-how-to-watch-jan-24/
+
+**How to watch Kansas vs. Kansas State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the Kansas State Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995902/2026/01/24/kansas-vs-kansas-state-stream-how-to-watch-jan-24/
+
+**Here’s the forecast, city by city.**\
+`Ice, sleet and snow are expected for several cities in the path of the storm.`\
+https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/heres-the-forecast-city-by-city
+
 **Burnley 2 Tottenham 2: Did Romero just save Frank? Spurs too reliant on centre-backs again**\
 `Cristian Romero scored a late equaliser for Tottenham as they rescued a point against Burnley. Is it enough to save Thomas Frank?`\
 https://nytimes.com/athletic/6989242/2026/01/24/burnley-2-tottenham-2-premier-league-result/

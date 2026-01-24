@@ -1,8 +1,24 @@
+**How to watch Texas Tech vs. Utah women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Lady Raiders play the Utah Utes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995908/2026/01/24/texas-tech-vs-utah-stream-how-to-watch-jan-24/
+
+**How to watch Utah vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Utah Utes play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995906/2026/01/24/utah-vs-byu-stream-how-to-watch-jan-24/
+
+**How to watch San Francisco vs. Gonzaga men's basketball: Time, TV, streaming**\
+`Find out how to watch the San Francisco Dons play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995904/2026/01/24/san-francisco-vs-gonzaga-stream-how-to-watch-jan-24/
+
+**How to watch Kansas vs. Kansas State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the Kansas State Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6995902/2026/01/24/kansas-vs-kansas-state-stream-how-to-watch-jan-24/
+
 **Burnley 2 Tottenham 2: Did Romero just save Frank? Spurs too reliant on centre-backs again**\
 `Cristian Romero scored a late equaliser for Tottenham as they rescued a point against Burnley. Is it enough to save Thomas Frank?`\
 https://nytimes.com/athletic/6989242/2026/01/24/burnley-2-tottenham-2-premier-league-result/
 
-**Here’s the forecast, city by city**\
+**Here’s the forecast, city by city.**\
 `Ice, sleet and snow are expected for several cities in the path of the storm.`\
 https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/heres-the-forecast-city-by-city
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6995863/2026/01/24/bayern-munich-augsburg-bundeslig
 **Washington Post Tears Up Plans to Cover Winter Olympics**\
 `The abrupt change in direction came just weeks before the Olympic Games are set to begin in Italy.`\
 https://nytimes.com/2026/01/24/business/media/washington-post-winter-olympics.html
-
-**The Public Face of ICE Is Bad Enough**\
-`What’s happening behind the barbed wire?`\
-https://nytimes.com/2026/01/24/opinion/ice-detention-immigrant-rights.html
-
-**Trump Threatens Canada With Tariffs as Post-Davos Fallout Continues**\
-`President Trump said he would impose tariffs if Canada made “a deal with China,” though there is no sign that those countries are discussing a broad trade agreement.`\
-https://nytimes.com/2026/01/24/world/canada/trump-canada-tariffs.html
-
-**Xhaka out for two weeks with injury, Le Bris plays down West Ham fan dispute**\
-`The 33-year-old had played every minute of Sunderland's Premier League campaign before missing the 3-1 defeat at West Ham United.`\
-https://nytimes.com/athletic/6995792/2026/01/24/sunderland-granit-xhaka-injury/
-
-**Live Updates: Federal Officers Shoot Person in Minneapolis**\
-`The shooting prompted a clash between ICE agents and more than 100 protesters who swarmed the scene, near the intersection of 26th Street and Nicollet Avenue.`\
-https://nytimes.com/live/2026/01/24/us/minneapolis-shooting-ice
 
