@@ -1,3 +1,15 @@
+**Novak Djokovic narrowly avoids Australian Open disqualification after striking ball in anger**\
+`MELBOURNE, Australia — Novak Djokovic narrowly avoided a possible disqualification from the Australian Open after a ball he smacked away in frustration just avoided hitting a ball kid.`\
+https://nytimes.com/athletic/6995553/2026/01/24/tennis-australian-open-novak-djokovic-ballkid/
+
+**Here’s the latest.**\
+`By J. David Goodman, Amy Graff and Judson Jones`\
+https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/heres-the-latest
+
+**Live Updates: America Braces for Severe Winter Storm**\
+`A mix of snow, ice and bitter cold is heading for more than 180 million people across a vast stretch of the country. Airlines, transit systems and schools have announced extensive cancellations.`\
+https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice
+
 **Last year's Australian Open had one teenager in the WTA top 100. Now, many are on the rise**\
 `A rising group of players who have transferred winning habits from the minor leagues to the WTA Tour are now set to make a mark at a major.`\
 https://nytimes.com/athletic/6995453/2026/01/24/tennis-best-young-players-wta-mboko-jovic-valentova/
