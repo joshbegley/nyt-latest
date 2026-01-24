@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6995750/2026/01/24/knicks-vs-76ers-stream-how-to-wa
 https://nytimes.com/athletic/6995745/2026/01/24/mammoth-vs-predators-stream-how-to-watch-jan-24/
 
 **Sara Hector, Paula Moltzan on top, Mikaela Shiffrin returns to podium in giant slalom**\
-`Sara Hector edged out Paula Moltzan and Mikaela Shiffrin on Saturday in the final women's giant slalom before the Olympics.`\
+`Hector edged out Moltzan and Shiffrin on Saturday in the final women's giant slalom before the Olympics.`\
 https://nytimes.com/athletic/6995657/2026/01/24/mikaela-shiffrin-olympics-giant-slalom-paula-moltzan-sara-hector/
 
