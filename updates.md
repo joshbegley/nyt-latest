@@ -1,3 +1,7 @@
+**Washington Post Tears Up Plans to Cover Winter Olympics**\
+`The abrupt change in direction came just weeks before the Olympic Games are set to begin in Italy.`\
+https://nytimes.com/2026/01/24/business/media/washington-post-winter-olympics.html
+
 **Live Updates: Federal Officers Shoot Person in Minneapolis**\
 `The shooting occurred near the intersection of 26th Street and Nicollet Avenue. The scene was cordoned off with crime scene tape, with dozens of protesters, some wearing gas masks and goggles, blowing whistles.`\
 https://nytimes.com/live/2026/01/24/us/minneapolis-shooting-ice
