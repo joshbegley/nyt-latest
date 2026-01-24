@@ -1,3 +1,7 @@
+**Pistons' need for a second scorer alongside Cade Cunningham is evident in loss to Rockets**\
+`The loss to the Rockets illustrated just how much the Pistons need a player other than Cunningham who can produce a steady 20 points.`\
+https://nytimes.com/athletic/6995438/2026/01/24/pistons-rockets-cade-cunningham/
+
 **‘I'm obsessed with scoring goals’: Mak Lind named head coach of Courage**\
 `The 37-year-old Swedish coach is the third head coach to take charge in the team’s nine-year history.`\
 https://nytimes.com/athletic/6995704/2026/01/24/north-carolina-courage-names-mak-lind-as-next-head-coach-nwsl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995750/2026/01/24/knicks-vs-76ers-stream-how-to-wa
 **How to watch Mammoth vs. Predators: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the Nashville Predators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995745/2026/01/24/mammoth-vs-predators-stream-how-to-watch-jan-24/
-
-**Sara Hector, Paula Moltzan on top, Mikaela Shiffrin returns to podium in giant slalom**\
-`Hector edged out Moltzan and Shiffrin on Saturday in the final women's giant slalom before the Olympics.`\
-https://nytimes.com/athletic/6995657/2026/01/24/mikaela-shiffrin-olympics-giant-slalom-paula-moltzan-sara-hector/
 
