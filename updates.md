@@ -1,3 +1,23 @@
+**How to watch West Virginia vs. BYU women's basketball: Time, TV, streaming**\
+`Find out how to watch the West Virginia Mountaineers play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6996189/2026/01/24/west-virginia-vs-byu-stream-how-to-watch-jan-24/
+
+**How to watch Lakers vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6996186/2026/01/24/lakers-vs-mavericks-stream-how-to-watch-jan-24/
+
+**How to watch Panthers vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6996183/2026/01/24/panthers-vs-wild-stream-how-to-watch-jan-24/
+
+**How to watch Heat vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6996181/2026/01/24/heat-vs-jazz-stream-how-to-watch-jan-24/
+
+**How to watch Capitals vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6996172/2026/01/24/capitals-vs-oilers-stream-how-to-watch-jan-24/
+
 **How to watch Tennessee vs. Alabama men's basketball: Time, TV, streaming**\
 `Find out how to watch the Tennessee Volunteers play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6996167/2026/01/24/tennessee-vs-alabama-stream-how-to-watch-jan-24/
