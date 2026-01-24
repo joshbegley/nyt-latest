@@ -1,4 +1,8 @@
-**Steelers planning to hire Mike McCarthy as head coach**\
+**Guardiola criticises referees again, says City success happened 'despite' officials**\
+`Guardiola criticised officials and VAR after City had a goal controversially ruled out during their victory against Newcastle on January 13.`\
+https://nytimes.com/athletic/6996005/2026/01/24/pep-guardiola-manchester-city-var-referees/
+
+**Steelers planning to hire Mike McCarthy as head coach: Sources**\
 `McCarthy, 62, would be the oldest head coach in franchise history.`\
 https://nytimes.com/athletic/6989279/2026/01/24/mike-mccarthy-steelers-head-coach-hc-hired/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995945/2026/01/24/red-wings-vs-jets-stream-how-to-
 **How to watch Hurricanes vs. Senators: Time, TV, streaming**\
 `Find out how to watch the Carolina Hurricanes play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995943/2026/01/24/hurricanes-vs-senators-stream-how-to-watch-jan-24/
-
-**How to watch Canadiens vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995940/2026/01/24/canadiens-vs-bruins-stream-how-to-watch-jan-24/
 

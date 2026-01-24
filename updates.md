@@ -1,3 +1,11 @@
+**Guardiola criticises referees again, says City success happened 'despite' officials**\
+`Guardiola criticised officials and VAR after City had a goal controversially ruled out during their victory against Newcastle on January 13.`\
+https://nytimes.com/athletic/6996005/2026/01/24/pep-guardiola-manchester-city-var-referees/
+
+**Steelers planning to hire Mike McCarthy as head coach: Sources**\
+`McCarthy, 62, would be the oldest head coach in franchise history.`\
+https://nytimes.com/athletic/6989279/2026/01/24/mike-mccarthy-steelers-head-coach-hc-hired/
+
 **Steelers planning to hire Mike McCarthy as head coach**\
 `McCarthy, 62, would be the oldest head coach in franchise history.`\
 https://nytimes.com/athletic/6989279/2026/01/24/mike-mccarthy-steelers-head-coach-hc-hired/
