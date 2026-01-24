@@ -1,3 +1,7 @@
+**Giannis Antetokounmpo injures leg in closing seconds as Bucks lose to undermanned Nuggets**\
+`Antetokounmpo, who had been laboring throughout the game, landed awkwardly with 34.2 seconds left and had to leave the game. `\
+https://nytimes.com/athletic/6995387/2026/01/24/giannis-antetokounmpo-injury-bucks-nuggets/
+
 **Videos Showing Aggressive ICE Tactics in Minnesota Fuel a Backlash**\
 `For weeks, residents have documented the impact of President Trump’s mass deportation campaign and captured many violent confrontations on camera.`\
 https://nytimes.com/interactive/2026/01/24/us/minnesota-ice-violence-tactics-videos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995345/2026/01/24/mitch-marner-maple-leafs-golden-
 **An Unlikely Source of Crypto Innovation: Afghanistan**\
 `The repressive Taliban government is suspicious of the internet. But a start-up in the country is building blockchain-based tools to transform humanitarian aid.`\
 https://nytimes.com/2026/01/24/world/asia/crypto-innovation-afghanistan.html
-
-**What Europe Learned From the Greenland Crisis**\
-`Territorial integrity is a core tenet of Europe that is at risk from Russian and American imperialism. Brussels has fought back.`\
-https://nytimes.com/2026/01/24/world/europe/sovereignty-european-union-nato.html
 

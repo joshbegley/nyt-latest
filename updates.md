@@ -1,3 +1,7 @@
+**Giannis Antetokounmpo injures leg in closing seconds as Bucks lose to undermanned Nuggets**\
+`Antetokounmpo, who had been laboring throughout the game, landed awkwardly with 34.2 seconds left and had to leave the game. `\
+https://nytimes.com/athletic/6995387/2026/01/24/giannis-antetokounmpo-injury-bucks-nuggets/
+
 **Videos Showing Aggressive ICE Tactics in Minnesota Fuel a Backlash**\
 `For weeks, residents have documented the impact of President Trump’s mass deportation campaign and captured many violent confrontations on camera.`\
 https://nytimes.com/interactive/2026/01/24/us/minnesota-ice-violence-tactics-videos.html
