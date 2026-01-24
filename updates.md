@@ -1,3 +1,19 @@
+**Trump Threatens Canada With Tariffs as Post-Davos Fallout Continues**\
+`President Trump said he would impose tariffs if Canada made “a deal with China,” though there is no sign that those countries are discussing a broad trade agreement.`\
+https://nytimes.com/2026/01/24/world/canada/trump-canada-tariffs.html
+
+**Xhaka out for two weeks with injury, Le Bris plays down West Ham fan dispute**\
+`The 33-year-old had played every minute of Sunderland's Premier League campaign before missing the 3-1 defeat at West Ham United.`\
+https://nytimes.com/athletic/6995792/2026/01/24/sunderland-granit-xhaka-injury/
+
+**Live Updates: Minneapolis Authorities Respond to Shooting Involving ICE Agents**\
+`At least two people have been shot this month by ICE agents carrying out a crackdown on immigrants in Minneapolis, including Renee Good.`\
+https://nytimes.com/live/2026/01/24/us/minneapolis-shooting-ice
+
+**Here’s the latest.**\
+`At least two people have been shot by agents in Minneapolis this month, including Renee Good, 37, who was killed in her car.`\
+https://nytimes.com/live/2026/01/24/us/minneapolis-shooting-ice/authorities-in-minneapolis-respond-to-reports-of-shooting-involving-federal-agents
+
 **Authorities in Minneapolis Respond to Reports of Shooting Involving Federal Agents**\
 `At least two people have been shot by agents in Minneapolis this month, including Renee Good, 37, who was killed in her car.`\
 https://nytimes.com/2026/01/24/us/authorities-in-minneapolis-respond-to-reports-of-shooting-involving-federal-agents.html

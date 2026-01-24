@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6995438/2026/01/24/pistons-rockets-cade-cunningham/
 https://nytimes.com/athletic/6995704/2026/01/24/north-carolina-courage-names-mak-lind-as-next-head-coach-nwsl/
 
 **WATCH: How the Rams' offense reinvented itself since Super Bowl LVI**\
-`Sean McVay and the Rams have found a new way to stay a half step ahead of other offenses around the league.`\
+`Sean McVay and the Rams offense have found a new way to stay a half step ahead of opposing defenses around the league.`\
 https://nytimes.com/athletic/6995797/2026/01/24/video-analysis-rams-playoffs-sean-mcvay/
 
 **90 Seconds to Bake-Off**\
