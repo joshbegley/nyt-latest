@@ -1,3 +1,15 @@
+**What I Love About This Year’s Oscars**\
+`The Oscar nominations are out, and the best picture category includes “Sinners,” “One Battle After Another,” “The Secret Agent” and “Marty Supreme.” These four movies tie history to our present moment, says Wesley Morris, and could make this year’s Academy Awards show one to watch.`\
+https://nytimes.com/video/podcasts/100000010665474/cannonball-oscars.html
+
+**UFC fighter Cameron Smotherman hospitalized after collapsing during weigh-in**\
+`Smotherman weighed in at 135.5 pounds ahead of a fight Saturday but stumbled before falling to the ground and being helped by medical staff.`\
+https://nytimes.com/athletic/6994905/2026/01/23/cameron-smotherman-ufc-mma-collapse-hospital/
+
+**Trinity Rodman could have left the NWSL. The Spirit made it impossible to leave**\
+`Many will claim credit for keeping Rodman in the NWSL, but the rich soccer community in Washington D.C. should not go overlooked.`\
+https://nytimes.com/athletic/6994765/2026/01/23/trinity-rodman-new-contract-washington-spirit-nwsl/
+
 **Mitch Marner booed by Maple Leafs fans in return to Toronto**\
 `Marner faced the ire of Maple Leafs fans in Toronto for the first time since leaving the team this summer.`\
 https://nytimes.com/athletic/6991620/2026/01/23/mitch-marner-maple-leafs-boos-return/

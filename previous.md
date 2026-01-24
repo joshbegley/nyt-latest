@@ -1,3 +1,15 @@
+**What I Love About This Year’s Oscars**\
+`The Oscar nominations are out, and the best picture category includes “Sinners,” “One Battle After Another,” “The Secret Agent” and “Marty Supreme.” These four movies tie history to our present moment, says Wesley Morris, and could make this year’s Academy Awards show one to watch.`\
+https://nytimes.com/video/podcasts/100000010665474/cannonball-oscars.html
+
+**UFC fighter Cameron Smotherman hospitalized after collapsing during weigh-in**\
+`Smotherman weighed in at 135.5 pounds ahead of a fight Saturday but stumbled before falling to the ground and being helped by medical staff.`\
+https://nytimes.com/athletic/6994905/2026/01/23/cameron-smotherman-ufc-mma-collapse-hospital/
+
+**Trinity Rodman could have left the NWSL. The Spirit made it impossible to leave**\
+`Many will claim credit for keeping Rodman in the NWSL, but the rich soccer community in Washington D.C. should not go overlooked.`\
+https://nytimes.com/athletic/6994765/2026/01/23/trinity-rodman-new-contract-washington-spirit-nwsl/
+
 **Mitch Marner booed by Maple Leafs fans in return to Toronto**\
 `Marner faced the ire of Maple Leafs fans in Toronto for the first time since leaving the team this summer.`\
 https://nytimes.com/athletic/6991620/2026/01/23/mitch-marner-maple-leafs-boos-return/
@@ -21,16 +33,4 @@ https://nytimes.com/2026/01/23/us/politics/hud-housing-undocumented-immigrants.h
 **Islanders plan to relocate AHL affiliate from Bridgeport to Hamilton: Sources**\
 `League sources say a deal has yet to be finalized, and hurdles must be cleared before the Bridgeport Islanders can officially make the move.`\
 https://nytimes.com/athletic/6994982/2026/01/23/islanders-ahl-bridgeport-hamilton-relocation-td-coliseum/
-
-**Buffalo Sauce**\
-`Nutty browned butter adds a wonderful underlying note to this otherwise straightforward Buffalo sauce.`\
-https://nytimes.com/video/dining/100000010368742/buffalo-sauce.html
-
-**Alabama to play Bediako on Saturday after court ruling; NCAA meets with DI coaches**\
-`Alabama coach Nate Oats defended Bediako and Alabama on Friday while calling the current system "broken."`\
-https://nytimes.com/athletic/6994955/2026/01/23/alabama-charles-bediako-saturday-ncaa-basketball-eligibility/
-
-**S.E.C. Drops Case Against Cryptocurrency Firm Founded by Winklevoss Twins**\
-`The agency says that victims of an investment offering involving Gemini Trust got their money back, though after a regulatory action brought by the New York attorney general.`\
-https://nytimes.com/2026/01/23/us/politics/sec-crypto-winklevoss.html
 
