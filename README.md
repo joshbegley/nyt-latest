@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6985740/2026/01/24/after-week-of-acrimony-at-crysta
 `It is easy to ridicule the way some of the new generation of managers talk about the game, but that does not mean it can't be effective`\
 https://nytimes.com/athletic/6994243/2026/01/24/linkedin-manager-speak-rosenior/
 
-**John Brodie, Former Star Quarterback for the 49ers, Dies at 90**\
+**John Brodie, a Star Quarterback for the 49ers, Dies at 90**\
 `He endured years of frustration before emerging as the N.F.L.’s most valuable player.`\
 https://nytimes.com/2026/01/24/obituaries/john-brodie-dead.html
 
