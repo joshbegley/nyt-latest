@@ -1,3 +1,7 @@
+**LSU lands top transfer OT Jordan Seaton in Lane Kiffin's latest portal win**\
+`According to 247Sports, LSU has signed 40 players in the transfer portal.`\
+https://nytimes.com/athletic/6995292/2026/01/23/jordan-seaton-transfer-portal-lsu-commits-lane-kiffin/
+
 **Australian Open suspends play on outdoor courts in searing Melbourne heat**\
 `The tournament's Heat Stress Scale mandates suspension when conditions exceed a certain level of intensity which goes beyond temperature.`\
 https://nytimes.com/athletic/6995305/2026/01/23/australian-open-play-suspended-heat-tennis-sports/
