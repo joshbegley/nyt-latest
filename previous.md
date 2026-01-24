@@ -1,40 +1,40 @@
-**Naomi Osaka withdraws from Australian Open shortly before third-round match**\
-`An abdominal injury has forced the two-time champion to exit the tournament.`\
-https://nytimes.com/athletic/6995530/2026/01/24/naomi-osaka-australian-open-out/
+**The Emotions President Trump Evokes**\
+`We asked voters to describe their emotions about President Trump’s second term so far. Most spoke of happiness or hostility.`\
+https://nytimes.com/interactive/2026/01/24/polls/trump-emotions-poll.html
 
-**Australian Boy, 12, Dies After Shark Attack Near Sydney**\
-`Nico Antic died in a hospital after a shark bit him in the legs, the first of several recent shark attacks along Australia’s southeastern coast.`\
-https://nytimes.com/2026/01/24/world/australia/australia-shark-attack-boy-dead.html
+**How a Photographer Stumbled Upon a Key Picture of the Spain Train Crash**\
+`While seeking views of the disaster, a photographer on assignment for The Times captured an image of wreckage that could provide clues to what went wrong.`\
+https://nytimes.com/2026/01/24/insider/how-a-photographer-stumbled-upon-a-key-picture-of-the-spain-train-crash.html
 
-**China’s Highest-Ranking General Removed as Xi’s Military Purge Reaches the Top**\
-`General Zhang Youxia had appeared to be President Xi Jinping’s trusted second-in-command. He has now joined the long list of generals and admirals under investigation.`\
-https://nytimes.com/2026/01/24/world/asia/china-top-general-xi-military-purge.html
+**Despite Trump’s Words, China and Russia Are Not Threatening Greenland**\
+`U.S. and European officials say they are unaware of any intelligence that shows China and Russia are endangering the island, which is protected by the NATO security umbrella.`\
+https://nytimes.com/2026/01/24/us/politics/trump-china-russia-greenland.html
 
-**How to watch Boston College vs. Louisville women's basketball: Time, TV, streaming**\
-`Find out how to watch the Boston College Eagles play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995517/2026/01/24/boston-college-vs-louisville-stream-how-to-watch-jan-24/
+**Will Leaving My Terrible Job Make Me Look Flaky?**\
+`And, picking up the slack for a colleague with long Covid.`\
+https://nytimes.com/2026/01/24/business/will-leaving-my-terrible-job-make-me-look-flaky.html
 
-**Mamdani Joined Nurses on the Picket Lines. That’s Unusual for Mayors.**\
-`The current mayor of New York City has diverged from his predecessors by joining the striking nurses. Past labor disputes have often involved scolding.`\
-https://nytimes.com/2026/01/24/nyregion/nyc-mayors-labor-strikes.html
+**How a Year of Trump Changed Britain**\
+`Prime Minister Keir Starmer stood firm over Greenland. But his center-left government and the country as a whole have been buffeted by President Trump.`\
+https://nytimes.com/2026/01/24/world/europe/trump-uk-changes.html
 
-**As They Wait (and Wait) for ‘S.N.L.’ Tickets, These Fans Become Friends**\
-`Getting a seat inside the studio at “Saturday Night Live” involves persistence and good humor. Some people build their weekends around it.`\
-https://nytimes.com/2026/01/24/nyregion/saturday-night-live-ticket-line.html
+**As Trump Focuses Abroad, G.O.P. Toils to Hone Election Message**\
+`A new poll shows that voters who will decide control of Congress see a lack of presidential emphasis on critical domestic issues.`\
+https://nytimes.com/2026/01/24/us/gop-election-message-trump.html
 
-**How a Family of 5 Lives on $140,000 a Year in Morningside Heights**\
-`New York City is among the most expensive cities in the world. Here is one family’s strategy for making it work.`\
-https://nytimes.com/interactive/2026/01/24/nyregion/nyc-budgeting-affordability-family-140k.html
+**How the 'dogs' of college tennis took over Australian Open: 'They're willing to go out and get it'**\
+`College tennis players succeeding at Grand Slams used to be seen as a quirk. Now it is a feature of the tennis elite.`\
+https://nytimes.com/athletic/6993538/2026/01/24/tennis-college-professional-australian-open-benefits-training/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/24/crosswords/spelling-bee-forum.html
+**How a Water Balloon Fight in Venezuela Ended in Charges of Treason**\
+`Venezuela’s interim government has been praised by President Trump. It has also maintained its state security apparatus to stamp out any perceived dissent.`\
+https://nytimes.com/2026/01/24/world/americas/venezuela-arrests-repression.html
 
-**Australian Open heat rules did not favor Jannik Sinner, but tennis luck did**\
-`The world No. 2's four-set win over Elliot Spizzirri was shaped by the tournament's heat rule, developed for player and spectator welfare.`\
-https://nytimes.com/athletic/6995414/2026/01/24/tennis-jannik-sinner-australian-open-heat-spizzirri/
+**U.S. Automakers’ Foreign Troubles Now Extend to Canada**\
+`U.S. trade policy has devastated the Canadian auto industry and pushed the country to reach an agreement that will make it easier for Chinese companies to sell cars there.`\
+https://nytimes.com/2026/01/24/business/general-motors-ford-canada-china.html
 
-**The New York Times in Print for Saturday, Jan. 24, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/01/24/todays-new-york-times
+**Sophie Turner Swears By a Chaotic Spotify Playlist**\
+`“One minute it’s playing Ludovico Einaudi, and then the next minute it’s playing stuff from the ’60s or two days ago,” said the “Game of Thrones” actress.`\
+https://nytimes.com/2026/01/24/arts/sophie-turner-steal-game-of-thrones.html
 
