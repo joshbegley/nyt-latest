@@ -1,3 +1,7 @@
+**Bayern lose first Bundesliga game in 10 months with Augsburg defeat**\
+`Bayern suffered a 2-1 defeat to relegation-threatened Augsburg on Saturday, ending a 27-game unbeaten run in the Bundesliga.`\
+https://nytimes.com/athletic/6995863/2026/01/24/bayern-munich-augsburg-bundesliga-loss/
+
 **Washington Post Tears Up Plans to Cover Winter Olympics**\
 `The abrupt change in direction came just weeks before the Olympic Games are set to begin in Italy.`\
 https://nytimes.com/2026/01/24/business/media/washington-post-winter-olympics.html
