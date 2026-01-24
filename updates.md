@@ -1,3 +1,7 @@
+**Sara Hector, Paula Moltzan on top, Mikaela Shiffrin returns to podium in giant slalom**\
+`Hector edged out Moltzan and Shiffrin on Saturday in the final women's giant slalom before the Olympics.`\
+https://nytimes.com/athletic/6995657/2026/01/24/mikaela-shiffrin-olympics-giant-slalom-paula-moltzan-sara-hector/
+
 **‘I'm obsessed with scoring goals’: Mak Lind named head coach of Courage**\
 `The 37-year-old Swedish coach is the third head coach to take charge in the team’s nine-year history.`\
 https://nytimes.com/athletic/6995704/2026/01/24/north-carolina-courage-names-mak-lind-as-next-head-coach-nwsl/
