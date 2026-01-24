@@ -1,3 +1,11 @@
+**Why the Power May Not Go Out Until After the Storm Has Passed**\
+`The steady accumulation of snow and freezing rain and a rise in demand for electricity can cause problems long after the sky clears, energy experts said.`\
+https://nytimes.com/2026/01/24/business/energy-environment/storm-power-outages.html
+
+**Guardians, José Ramírez working toward long-term contract extension: Source**\
+`The deal would keep Ramírez in Cleveland through his 40th birthday, a league source told The Athletic.`\
+https://nytimes.com/athletic/6995697/2026/01/24/jose-ramirez-guardians-contract-extension/
+
 **How to watch Knicks vs. 76ers: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the Philadelphia 76ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995750/2026/01/24/knicks-vs-76ers-stream-how-to-watch-jan-24/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6995725/2026/01/24/iowa-state-vs-oklahoma-state-str
 **How to watch Virginia Tech vs. Louisville men's basketball: Time, TV, streaming**\
 `Find out how to watch the Virginia Tech Hokies play the Louisville Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995723/2026/01/24/virginia-tech-vs-louisville-stream-how-to-watch-jan-24/
-
-**How to watch Duke vs. Pittsburgh women's basketball: Time, TV, streaming**\
-`Find out how to watch the Duke Blue Devils play the Pittsburgh Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995717/2026/01/24/duke-vs-pittsburgh-stream-how-to-watch-jan-24/
-
-**How to watch Illinois vs. Purdue men's basketball: Time, TV, streaming**\
-`Find out how to watch the Illinois Fighting Illini play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995715/2026/01/24/illinois-vs-purdue-stream-how-to-watch-jan-24/
 
