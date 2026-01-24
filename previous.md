@@ -1,3 +1,7 @@
+**China’s Highest-Ranking General Removed as Xi’s Military Purge Reaches the Top**\
+`General Zhang Youxia had appeared to be President Xi Jinping’s trusted second-in-command. He has now joined the long list of generals and admirals under investigation.`\
+https://nytimes.com/2026/01/24/world/asia/china-top-general-xi-military-purge.html
+
 **How to watch Boston College vs. Louisville women's basketball: Time, TV, streaming**\
 `Find out how to watch the Boston College Eagles play the Louisville Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995517/2026/01/24/boston-college-vs-louisville-stream-how-to-watch-jan-24/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995387/2026/01/24/giannis-antetokounmpo-injury-buc
 **Videos Showing Aggressive ICE Tactics in Minnesota Fuel a Backlash**\
 `For weeks, residents have documented the impact of President Trump’s mass deportation campaign and captured many violent confrontations on camera.`\
 https://nytimes.com/interactive/2026/01/24/us/minnesota-ice-violence-tactics-videos.html
-
-**After week of acrimony at Crystal Palace, Oliver Glasner lowers the temperature**\
-`Those expecting another outburst from the Palace manager were left disappointed as he addressed the press in more measured terms`\
-https://nytimes.com/athletic/6985740/2026/01/24/after-week-of-acrimony-at-crystal-palace-oliver-glasner-lowers-the-temperature/
 

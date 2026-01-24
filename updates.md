@@ -1,3 +1,7 @@
+**China’s Highest-Ranking General Removed as Xi’s Military Purge Reaches the Top**\
+`General Zhang Youxia had appeared to be President Xi Jinping’s trusted second-in-command. He has now joined the long list of generals and admirals under investigation.`\
+https://nytimes.com/2026/01/24/world/asia/china-top-general-xi-military-purge.html
+
 **How to watch Boston College vs. Louisville women's basketball: Time, TV, streaming**\
 `Find out how to watch the Boston College Eagles play the Louisville Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995517/2026/01/24/boston-college-vs-louisville-stream-how-to-watch-jan-24/
