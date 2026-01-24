@@ -1,3 +1,7 @@
+**Astros takeaways: FanFest accentuates imbalanced lineup and untenable infield surplus**\
+`Plus what Carlos Correa thinks led to Houston's 2025 injury issues, and why Spencer Arrighetti is "optimistic going into camp."`\
+https://nytimes.com/athletic/6996337/2026/01/24/astros-infield-trades-carlos-correa-injuries-fanfest/
+
 **Is no water coming out of your faucet? Here’s how to thaw frozen pipes during cold weather.**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/cold-weather-frozen-pipes-water-leak
