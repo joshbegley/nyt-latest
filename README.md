@@ -1,3 +1,11 @@
+**Thousands March Through Manhattan to Protest ICE Crackdowns Across U.S.**\
+`The detention this week of a 5-year-old boy in Minnesota animated protesters in New York City, who faced freezing temperatures.`\
+https://nytimes.com/2026/01/23/nyregion/nyc-ice-protest-union-square.html
+
+**Real Salt Lake finalizing deal to add forward Morgan Guilavogui: Sources**\
+`Guilavogui has had one goal in limited minutes for RC Lens this season.`\
+https://nytimes.com/athletic/6995192/2026/01/23/real-salt-lake-morgan-guilavogui-attack/
+
 **Interactive Maps and Charts: Tracking the U.S. Winter Storm**\
 `See where dangerous conditions, including snow, ice and below-freezing temperatures, are expected.`\
 https://nytimes.com/interactive/2026/01/23/weather/january-snow-storm-2026.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6995133/2026/01/23/video-analysis-patriots-playoffs
 **ICE Agent Charged With Misdemeanor Following Scuffle With an Activist**\
 `The police in Brookfield, Ill., filed a battery charge against a federal agent, who was off duty when he scuffled with an immigrant rights activist.`\
 https://nytimes.com/2026/01/23/us/ice-agent-charged-illinois.html
-
-**Tremors in Japan Prompt Treasury to Weigh Currency Intervention**\
-`New York Fed inquiries about the cost of exchanging yen for dollars signaled to traders on Friday that the U.S. government might make a large purchase of the Japanese currency.`\
-https://nytimes.com/2026/01/23/business/yen-dollar-treasury-bessent.html
-
-**What I Love About This Year’s Oscars**\
-`The Oscar nominations are out, and the best picture category includes “Sinners,” “One Battle After Another,” “The Secret Agent” and “Marty Supreme.” These four movies tie history to our present moment, says Wesley Morris, and could make this year’s Academy Awards show one to watch.`\
-https://nytimes.com/video/podcasts/100000010665474/cannonball-oscars.html
 

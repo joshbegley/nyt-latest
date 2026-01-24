@@ -1,3 +1,11 @@
+**Interactive Maps and Charts: Tracking the U.S. Winter Storm**\
+`See where dangerous conditions, including snow, ice and below-freezing temperatures, are expected.`\
+https://nytimes.com/interactive/2026/01/23/weather/january-snow-storm-2026.html
+
+**John Brodie, longtime 49ers quarterback and 1970 NFL MVP, dies at 90**\
+`Brodie was selected third in the 1957 NFL Draft and played a then-franchise-best 201 games, solidifying his place in 49ers history.`\
+https://nytimes.com/athletic/6994977/2026/01/23/john-brodie-49ers-quarterback-dies-nfl/
+
 **Judge Dismisses Case Against Real Estate Developer Charged With Bribery**\
 `This is one of five indictments charging Eric Ulrich, the former New York City buildings commissioner under Eric Adams, with taking bribes totaling more than $150,000.`\
 https://nytimes.com/2026/01/23/nyregion/bribery-case-dismissed-eric-adams-eric-ulrich.html
