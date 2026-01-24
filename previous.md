@@ -1,3 +1,11 @@
+**West Ham's Rodriguez set to undergo Valencia medical**\
+`The 31-year-old has made 32 appearances for the club but has featured only six times in the Premier League this season.`\
+https://nytimes.com/athletic/6995548/2026/01/24/guido-rodriguez-west-ham-valencia-transfer/
+
+**Is climate change weakening the polar vortex?**\
+`Rising Arctic temperatures and melting sea ice could be causing cold air to flow into the Northern Hemisphere. But not all scientists agree.`\
+https://nytimes.com/2026/01/24/climate/is-climate-change-weakening-the-polar-vortex.html
+
 **How to watch West Virginia vs. BYU women's basketball: Time, TV, streaming**\
 `Find out how to watch the West Virginia Mountaineers play the BYU Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6996189/2026/01/24/west-virginia-vs-byu-stream-how-to-watch-jan-24/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6996105/2026/01/24/timberwolves-warriors-game-postp
 **Syrian and Kurdish Troops in Standoff as Truce Deadline Passes**\
 `Syria’s government and Kurdish-led forces in the country’s northeast have clashed as President Ahmed al-Sharaa seeks to extend his authority across the entire country.`\
 https://nytimes.com/2026/01/24/world/middleeast/syria-kurdish-militia.html
-
-**In Minnesota, citizens with firearm permits can openly carry handguns.**\
-`By Pooja Salhotra`\
-https://nytimes.com/live/2026/us/minneapolis-shooting-ice/in-minnesota-citizens-with-firearm-permits-can-openly-carry-handguns
-
-**The Briefing: Bournemouth 3 Liverpool 2 - Five without a league win, how damaging is this?**\
-`Liverpool suffered a heart-breaking late defeat at Bournemouth, having coming from 2-0 down earlier in the match`\
-https://nytimes.com/athletic/6989244/2026/01/24/bournemouth-3-liverpool-2/
 

@@ -1,3 +1,11 @@
+**West Ham's Rodriguez set to undergo Valencia medical**\
+`The 31-year-old has made 32 appearances for the club but has featured only six times in the Premier League this season.`\
+https://nytimes.com/athletic/6995548/2026/01/24/guido-rodriguez-west-ham-valencia-transfer/
+
+**Is climate change weakening the polar vortex?**\
+`Rising Arctic temperatures and melting sea ice could be causing cold air to flow into the Northern Hemisphere. But not all scientists agree.`\
+https://nytimes.com/2026/01/24/climate/is-climate-change-weakening-the-polar-vortex.html
+
 **How to watch West Virginia vs. BYU women's basketball: Time, TV, streaming**\
 `Find out how to watch the West Virginia Mountaineers play the BYU Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6996189/2026/01/24/west-virginia-vs-byu-stream-how-to-watch-jan-24/
