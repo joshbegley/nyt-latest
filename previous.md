@@ -1,3 +1,19 @@
+**Mamdani Joined Nurses on the Picket Lines. That’s Unusual for Mayors.**\
+`The current mayor of New York City has diverged from his predecessors by joining the striking nurses. Past labor disputes have often involved scolding.`\
+https://nytimes.com/2026/01/24/nyregion/nyc-mayors-labor-strikes.html
+
+**As They Wait (and Wait) for ‘S.N.L.’ Tickets, These Fans Become Friends**\
+`Getting a seat inside the studio at “Saturday Night Live” involves persistence and good humor. Some people build their weekends around it.`\
+https://nytimes.com/2026/01/24/nyregion/saturday-night-live-ticket-line.html
+
+**How a Family of 5 Lives on $140,000 a Year in Morningside Heights**\
+`New York City is among the most expensive cities in the world. Here is one family’s strategy for making it work.`\
+https://nytimes.com/interactive/2026/01/24/nyregion/nyc-budgeting-affordability-family-140k.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/24/crosswords/spelling-bee-forum.html
+
 **Australian Open heat rules did not favor Jannik Sinner, but tennis luck did**\
 `The world No. 2's four-set win over Elliot Spizzirri was shaped by the tournament's heat rule, developed for player and spectator welfare.`\
 https://nytimes.com/athletic/6995414/2026/01/24/tennis-jannik-sinner-australian-open-heat-spizzirri/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6985740/2026/01/24/after-week-of-acrimony-at-crysta
 **The rise of LinkedIn manager-speak. Yes, it can be cringey. But does it work?**\
 `It is easy to ridicule the way some of the new generation of managers talk about the game, but that does not mean it can't be effective`\
 https://nytimes.com/athletic/6994243/2026/01/24/linkedin-manager-speak-rosenior/
-
-**John Brodie, a Star Quarterback for the 49ers, Dies at 90**\
-`He endured years of frustration before emerging as the N.F.L.’s most valuable player.`\
-https://nytimes.com/2026/01/24/obituaries/john-brodie-dead.html
-
-**The key to being a top-level manager? Being slow as a player**\
-`The fact that Mikel Arteta and Michael Carrick are facing each other as managers on Sunday makes stylistic sense `\
-https://nytimes.com/athletic/6993906/2026/01/24/arteta-carrick-slow-manager-profile-premier-league/
-
-**Football's newest league crosses borders - and may set a blueprint for the sport's future**\
-`Eight clubs from seven nations across Oceania are competing in the inaugural OFC Professional League, which began this month`\
-https://nytimes.com/athletic/6988319/2026/01/24/oceania-league-fifa-cross-border/
-
-**In John Heitinga, Tottenham have a highly rated training-ground coach and talent developer**\
-`Having made an outstanding contribution to Liverpool’s title-winning side, Arne Slot had been keen for Heitinga to stay at Anfield`\
-https://nytimes.com/athletic/6993857/2026/01/24/john-heitinga-tottenham-frank/
 
