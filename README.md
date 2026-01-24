@@ -1,3 +1,7 @@
+**The Public Face of ICE Is Bad Enough**\
+`What’s happening behind the barbed wire?`\
+https://nytimes.com/2026/01/24/opinion/ice-detention-immigrant-rights.html
+
 **Trump Threatens Canada With Tariffs as Post-Davos Fallout Continues**\
 `President Trump said he would impose tariffs if Canada made “a deal with China,” though there is no sign that those countries are discussing a broad trade agreement.`\
 https://nytimes.com/2026/01/24/world/canada/trump-canada-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995797/2026/01/24/video-analysis-rams-playoffs-sea
 **90 Seconds to Bake-Off**\
 `Sticky toffee pudding, mug cake and Nutella pudding cake at the push of a button.`\
 https://nytimes.com/2026/01/24/dining/90-seconds-to-bake-off.html
-
-**Kent Hughes says Canadiens will be prudent around NHL trade deadline**\
-`Canadiens GM Kent Hughes is keeping a measured approach to how his team is performing this season, knowing the best is yet to come.`\
-https://nytimes.com/athletic/6995503/2026/01/24/nhl-trade-deadline-canadiens-strategy/
 
