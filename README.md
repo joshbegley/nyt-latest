@@ -1,3 +1,11 @@
+**Videos Showing Aggressive ICE Tactics in Minnesota Fuel a Backlash**\
+`For weeks, residents have documented the impact of President Trump’s mass deportation campaign and captured many violent confrontations on camera.`\
+https://nytimes.com/interactive/2026/01/24/us/minnesota-ice-violence-tactics-videos.html
+
+**After week of acrimony at Crystal Palace, Oliver Glasner lowers the temperature**\
+`Those expecting another outburst from the Palace manager were left disappointed as he addressed the press in more measured terms`\
+https://nytimes.com/athletic/6985740/2026/01/24/after-week-of-acrimony-at-crystal-palace-oliver-glasner-lowers-the-temperature/
+
 **The rise of LinkedIn manager-speak. Yes, it can be cringey. But does it work?**\
 `It is easy to ridicule the way some of the new generation of managers talk about the game, but that does not mean it can't be effective`\
 https://nytimes.com/athletic/6994243/2026/01/24/linkedin-manager-speak-rosenior/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/24/world/asia/crypto-innovation-afghanistan.html
 **What Europe Learned From the Greenland Crisis**\
 `Territorial integrity is a core tenet of Europe that is at risk from Russian and American imperialism. Brussels has fought back.`\
 https://nytimes.com/2026/01/24/world/europe/sovereignty-european-union-nato.html
-
-**Connections: Sports Edition Coach: Hints for Jan. 24, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6995076/2026/01/24/connections-sports-edition-hints-for-jan-24-2026-puzzle-no-488/
-
-**Corrections: Jan. 24, 2026**\
-`Corrections that appeared in print on Saturday, Jan. 24, 2026.`\
-https://nytimes.com/2026/01/24/pageoneplus/corrections-jan-24-2026.html
 
