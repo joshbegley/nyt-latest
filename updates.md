@@ -1,3 +1,15 @@
+**Here’s the forecast, city by city**\
+`Ice, sleet and snow are expected for several cities in the path of the storm.`\
+https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/heres-the-forecast-city-by-city
+
+**The Briefing: Man City 2 Wolves 0 - How did Guehi's debut go? Did Marmoush impress? Are recent issues fixed?**\
+`Sam Lee analyses Manchester City's game against Wolves – their first Premier League win in five games `\
+https://nytimes.com/athletic/6989243/2026/01/24/man-city-wolves-premier-league-analysis-haaland/
+
+**A Revelation in Paris**\
+`At Paris Fashion week, a stirring new discovery overshadowed all the runway theatrics.`\
+https://nytimes.com/2026/01/24/style/comme-watanabe-lundman.html
+
 **Bayern lose first Bundesliga game in 10 months with Augsburg defeat**\
 `Bayern suffered a 2-1 defeat to relegation-threatened Augsburg on Saturday, ending a 27-game unbeaten run in the Bundesliga.`\
 https://nytimes.com/athletic/6995863/2026/01/24/bayern-munich-augsburg-bundesliga-loss/

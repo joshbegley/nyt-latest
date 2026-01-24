@@ -1,3 +1,15 @@
+**Here’s the forecast, city by city**\
+`Ice, sleet and snow are expected for several cities in the path of the storm.`\
+https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/heres-the-forecast-city-by-city
+
+**The Briefing: Man City 2 Wolves 0 - How did Guehi's debut go? Did Marmoush impress? Are recent issues fixed?**\
+`Sam Lee analyses Manchester City's game against Wolves – their first Premier League win in five games `\
+https://nytimes.com/athletic/6989243/2026/01/24/man-city-wolves-premier-league-analysis-haaland/
+
+**A Revelation in Paris**\
+`At Paris Fashion week, a stirring new discovery overshadowed all the runway theatrics.`\
+https://nytimes.com/2026/01/24/style/comme-watanabe-lundman.html
+
 **Bayern lose first Bundesliga game in 10 months with Augsburg defeat**\
 `Bayern suffered a 2-1 defeat to relegation-threatened Augsburg on Saturday, ending a 27-game unbeaten run in the Bundesliga.`\
 https://nytimes.com/athletic/6995863/2026/01/24/bayern-munich-augsburg-bundesliga-loss/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/01/24/us/minneapolis-shooting-ice
 **Here’s the latest.**\
 `At least two people have been shot by agents in Minneapolis this month, including Renee Good, 37, who was killed in her car.`\
 https://nytimes.com/live/2026/01/24/us/minneapolis-shooting-ice/authorities-in-minneapolis-respond-to-reports-of-shooting-involving-federal-agents
-
-**This Roast Chicken Is Heavenly**\
-`Melissa Clark’s five-star green goddess roast chicken pairs inherently likable roast chicken with a zippy, herby, anchovy-enhanced marinade.`\
-https://nytimes.com/2026/01/24/dining/this-roast-chicken-is-heavenly.html
-
-**Pistons' need for a second scorer alongside Cade Cunningham is evident in loss to Rockets**\
-`The loss to the Rockets illustrated just how much the Pistons need a player other than Cunningham who can produce a steady 20 points.`\
-https://nytimes.com/athletic/6995438/2026/01/24/pistons-rockets-cade-cunningham/
-
-**‘I'm obsessed with scoring goals’: Mak Lind named head coach of Courage**\
-`The 37-year-old Swedish coach is the third head coach to take charge in the team’s nine-year history.`\
-https://nytimes.com/athletic/6995704/2026/01/24/north-carolina-courage-names-mak-lind-as-next-head-coach-nwsl/
 
