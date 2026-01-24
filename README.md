@@ -1,3 +1,7 @@
+**Quote of the Day: Big Perks Get Mobile Gamers to Keep Spending**\
+`Quotation of the Day for Saturday, January 24, 2025.`\
+https://nytimes.com/2026/01/23/pageoneplus/quote-of-the-day-big-perks-get-mobile-gamers-to-keep-spending.html
+
 **Blackhawks take points, lessons from facing Hurricanes, Lightning on consecutive days**\
 `Chicago went toe-to-toe with two of the league's best teams on consecutive nights and can take a positive feeling out of the experience.`\
 https://nytimes.com/athletic/6995217/2026/01/23/blackhawks-lightning-hurricanes-lessons/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995032/2026/01/23/twins-owner-tom-pohlad-calls-fan
 **Pepper-Sprayed While Pinned Down: A Searing Scene Provokes Outrage**\
 `Images of a man getting pepper-sprayed at close range while being held down by Border Patrol agents fueled more tension in Minneapolis.`\
 https://nytimes.com/2026/01/23/us/minneapolis-man-pepper-sprayed-pinned-video.html
-
-**The 1.25.26 Issue**\
-``\
-https://nytimes.com/issue/magazine/2026/01/23/the-12526-issue
 
