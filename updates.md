@@ -1,3 +1,7 @@
+**Cold Comfort**\
+`How can the perpetually shivering warm up to winter?`\
+https://nytimes.com/2026/01/24/briefing/cold-comfort.html
+
 **How to watch Wizards vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995616/2026/01/24/wizards-vs-hornets-stream-how-to-watch-jan-24/
