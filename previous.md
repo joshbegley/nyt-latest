@@ -1,3 +1,11 @@
+**Patriots activate WR Mack Hollins from IR ahead of AFC Championship**\
+`Hollins had been on injured reserve since Week 17 with an abdominal injury.`\
+https://nytimes.com/athletic/6996260/2026/01/24/patriots-activate-mack-hollins-afc-championship/
+
+**Appeals Court Rejects Justice Dept. Push for Arrest Warrant for Don Lemon**\
+`The department had made an extraordinary request for the appeals court to force a judge to issue warrants for Mr. Lemon and four other people in connection with a church protest in Minneapolis.`\
+https://nytimes.com/2026/01/24/us/politics/don-lemon-arrest-warrant.html
+
 **Steelers' Mike McCarthy hire has everything to do with a QB — just not the one you're thinking of**\
 `Aaron Rodgers might reunite with his old coach in Pittsburgh, but McCarthy's tenure will be judged by what comes after.`\
 https://nytimes.com/athletic/6996086/2026/01/24/mike-mccarthy-steelers-head-coach-aaron-rodgers-qb/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/24/style/pat-montandon-dead.html
 **Scenes From the Winter Storm**\
 `Images from across much of the country illuminate snow-covered streets and preparations for worse still to come.`\
 https://nytimes.com/2026/01/24/us/winter-storm-snow-photos-videos.html
-
-**Democrats condemn shooting as senators prepare to consider funding for ICE.**\
-`By Catie Edmondson`\
-https://nytimes.com/live/2026/us/minneapolis-shooting-ice/democrats-congress-reaction
-
-**Beatriz González, Who Chronicled Colombia’s Turmoil in Paint, Dies at 93**\
-`Often drawing from reproduced images or newspaper photos, she made work that quietly yet memorably critiqued her country’s social and political order.`\
-https://nytimes.com/2026/01/24/arts/design/beatriz-gonzalez-dead.html
 
