@@ -1,3 +1,7 @@
+**Behind the boos: Inside Mitch Marner's return to Toronto**\
+`Marner's return to Toronto after nine seasons with the organization was an anticipated but also strange day for the former Maple Leafs star.`\
+https://nytimes.com/athletic/6995345/2026/01/24/mitch-marner-maple-leafs-golden-knights/
+
 **Giannis Antetokounmpo injures leg in closing seconds as Bucks lose to undermanned Nuggets**\
 `Antetokounmpo, who had been laboring throughout the game, landed awkwardly with 34.2 seconds left and had to leave the game. `\
 https://nytimes.com/athletic/6995387/2026/01/24/giannis-antetokounmpo-injury-bucks-nuggets/
