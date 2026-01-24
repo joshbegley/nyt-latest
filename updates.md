@@ -1,3 +1,7 @@
+**John Brodie, a Star Quarterback for the 49ers, Dies at 90**\
+`He endured years of frustration before emerging as the N.F.L.’s most valuable player.`\
+https://nytimes.com/2026/01/24/obituaries/john-brodie-dead.html
+
 **John Brodie, Former Star Quarterback for the 49ers, Dies at 90**\
 `He endured years of frustration before emerging as the N.F.L.’s most valuable player.`\
 https://nytimes.com/2026/01/24/obituaries/john-brodie-dead.html
