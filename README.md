@@ -1,3 +1,7 @@
+**1 Killed and 14 Injured in Fire at Bronx Apartment Building**\
+`About 150 homes were evacuated overnight on Saturday after a gas explosion set off a four-alarm blaze in a public housing complex.`\
+https://nytimes.com/2026/01/24/nyregion/bronx-fire-explosion-evacuation.html
+
 **NFL set for return to Real Madrid's Bernabeu in 2026: Sources**\
 `Sources briefed on negotiations indicated the NFL and Madrid are considering hosting more matches at the stadium beyond 2026.`\
 https://nytimes.com/athletic/6995625/2026/01/24/nfl-real-madrid-bernabeu/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6994340/2026/01/24/chuck-klosterman-book-football-a
 **John Harbaugh is Giants’ next Tom Coughlin … after Darius Slayton spoke it into existence**\
 `"It takes a certain type of person to be a head coach in New York," Slayton said when considering the team's next coach. Enter Harbaugh. `\
 https://nytimes.com/athletic/6995151/2026/01/24/john-harbaugh-giants-tom-coughlin-darius-slayton/
-
-**The Un-American President**\
-`Our national mosaic, crushed beneath the ICE.`\
-https://nytimes.com/2026/01/24/opinion/president-trump-ice-immigration.html
 
