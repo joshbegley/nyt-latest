@@ -1,3 +1,7 @@
+**The Pulse: College hoops catch-up**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6995057/2026/01/24/be-caught-up-with-college-hoops-in-three-minutes-plus-bills-weirdness/
+
 **1 Killed and 14 Injured in Fire at Bronx Apartment Building**\
 `About 150 homes were evacuated overnight on Saturday after a gas explosion set off a four-alarm blaze in a public housing complex.`\
 https://nytimes.com/2026/01/24/nyregion/bronx-fire-explosion-evacuation.html
