@@ -1,3 +1,7 @@
+**WATCH: How Patriots' versatile pass rush shuts down opposing quarterbacks**\
+`What's fueling the Pats' Super Bowl run? While the offense is explosive, the pass rush has made New England a threat on both sides.`\
+https://nytimes.com/athletic/6995133/2026/01/23/video-analysis-patriots-playoffs/
+
 **ICE Agent Charged With Misdemeanor Following Scuffle With an Activist**\
 `The police in Brookfield, Ill., filed a battery charge against a federal agent, who was off duty when he scuffled with an immigrant rights activist.`\
 https://nytimes.com/2026/01/23/us/ice-agent-charged-illinois.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010369188/cacio-e-pepe-ramen.html
 **Sheet-Pan Pierogies With Brussels Sprouts and Kimchi**\
 `Roasting pierogies yields a crisp, golden skin with a soft, pillowy interior but, if you don’t have pierogies, you could use gnocchi in their place.`\
 https://nytimes.com/video/dining/100000010368995/sheet-pan-pierogies-with-brussels-sprouts-and-kimchi.html
-
-**HUD Demands Public Housing Officials Check for Undocumented Immigrants**\
-`The Department of Housing and Urban Development said it would punish public housing authorities that did not adequately verify tenants’ immigration status within 30 days.`\
-https://nytimes.com/2026/01/23/us/politics/hud-housing-undocumented-immigrants.html
 

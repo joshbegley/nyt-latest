@@ -1,3 +1,11 @@
+**ICE Agent Charged With Misdemeanor Following Scuffle With an Activist**\
+`The police in Brookfield, Ill., filed a battery charge against a federal agent, who was off duty when he scuffled with an immigrant rights activist.`\
+https://nytimes.com/2026/01/23/us/ice-agent-charged-illinois.html
+
+**Tremors in Japan Prompt Treasury to Weigh Currency Intervention**\
+`New York Fed inquiries about the cost of exchanging yen for dollars signaled to traders on Friday that the U.S. government might make a large purchase of the Japanese currency.`\
+https://nytimes.com/2026/01/23/business/yen-dollar-treasury-bessent.html
+
 **What I Love About This Year’s Oscars**\
 `The Oscar nominations are out, and the best picture category includes “Sinners,” “One Battle After Another,” “The Secret Agent” and “Marty Supreme.” These four movies tie history to our present moment, says Wesley Morris, and could make this year’s Academy Awards show one to watch.`\
 https://nytimes.com/video/podcasts/100000010665474/cannonball-oscars.html
