@@ -1,3 +1,7 @@
+**The Pulse: College hoops catch-up**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6995057/2026/01/24/be-caught-up-with-college-hoops-in-three-minutes-plus-bills-weirdness/
+
 **1 Killed and 14 Injured in Fire at Bronx Apartment Building**\
 `About 150 homes were evacuated overnight on Saturday after a gas explosion set off a four-alarm blaze in a public housing complex.`\
 https://nytimes.com/2026/01/24/nyregion/bronx-fire-explosion-evacuation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6991335/2026/01/24/paddy-pimblett-ufc-324-preview/
 **Why do we love football? Chuck Klosterman explores America's obsession in new book**\
 `Football makes us feel something personal and something communal. That's why we put up with everything that comes along with it.`\
 https://nytimes.com/athletic/6994340/2026/01/24/chuck-klosterman-book-football-american-obsession/
-
-**John Harbaugh is Giants’ next Tom Coughlin … after Darius Slayton spoke it into existence**\
-`"It takes a certain type of person to be a head coach in New York," Slayton said when considering the team's next coach. Enter Harbaugh. `\
-https://nytimes.com/athletic/6995151/2026/01/24/john-harbaugh-giants-tom-coughlin-darius-slayton/
 
