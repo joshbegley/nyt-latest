@@ -1,3 +1,7 @@
+**Ukraine Expects Answers From Russia as Peace Talks Continue, Zelensky Says**\
+`Officials from Russia, Ukraine and the United States are meeting in the United Arab Emirates for rare three-way negotiations.`\
+https://nytimes.com/2026/01/24/world/europe/ukraine-us-russia-peace-talks.html
+
 **As Rick and Richard Pitino face off again, look back at the father-son duo's past matchups**\
 `Rick Pitino will look for his 900th career win when St. John’s faces his son Richard’s Xavier squad Saturday.`\
 https://nytimes.com/athletic/6994253/2026/01/24/st-johns-xavier-basketball-rick-pitino-richard-father-son/

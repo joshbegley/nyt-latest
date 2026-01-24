@@ -1,3 +1,7 @@
+**Ukraine Expects Answers From Russia as Peace Talks Continue, Zelensky Says**\
+`Officials from Russia, Ukraine and the United States are meeting in the United Arab Emirates for rare three-way negotiations.`\
+https://nytimes.com/2026/01/24/world/europe/ukraine-us-russia-peace-talks.html
+
 **As Rick and Richard Pitino face off again, look back at the father-son duo's past matchups**\
 `Rick Pitino will look for his 900th career win when St. John’s faces his son Richard’s Xavier squad Saturday.`\
 https://nytimes.com/athletic/6994253/2026/01/24/st-johns-xavier-basketball-rick-pitino-richard-father-son/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/01/24/opinion/trump-executive-orders.html
 **Can the Courts Save American Democracy?**\
 `Emily Bazelon, a lawyer and writer, thinks the courts have pushed back against Trump in important ways. But ultimately, as she explains on “The Opinions,” they can’t stop the broader expansion of presidential power on their own.`\
 https://nytimes.com/video/opinion/100000010661272/can-the-courts-save-american-democracy.html
-
-**We Don’t Need Greenland. We Need Allies.**\
-`It is time for Americans to step up and defend NATO and our country’s vital interests in its survival.`\
-https://nytimes.com/2026/01/24/opinion/trump-nato-greenland.html
 
