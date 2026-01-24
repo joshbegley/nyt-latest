@@ -1,8 +1,12 @@
+**Steelers planning to hire Mike McCarthy as head coach**\
+`McCarthy, 62, would be the oldest head coach in franchise history.`\
+https://nytimes.com/athletic/6989279/2026/01/24/mike-mccarthy-steelers-head-coach-hc-hired/
+
 **Bad Bunny's NFL merchandise collection released ahead of Super Bowl performance**\
 `The first of two merchandise collaborations between Bad Bunny and the NFL became available for pre-order on Saturday. `\
 https://nytimes.com/athletic/6995985/2026/01/24/bad-bunny-nfl-merchandise-concho/
 
-**Senators' Mike Yeo takes over for Nolan Baumgartner as penalty kill coach**\
+**Senators' Mike Yeo takes over for Nolan Baumgartner as penalty-kill coach**\
 `The change comes one game after the Senators blew a 3-0 lead to the Nashville Predators on Thursday in a 5-3 loss.`\
 https://nytimes.com/athletic/6995928/2026/01/24/senators-yeo-penalty-kill-coach/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995943/2026/01/24/hurricanes-vs-senators-stream-ho
 **How to watch Canadiens vs. Bruins: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the Boston Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6995940/2026/01/24/canadiens-vs-bruins-stream-how-to-watch-jan-24/
-
-**How to watch Kings vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6995938/2026/01/24/kings-vs-blues-stream-how-to-watch-jan-24/
 
