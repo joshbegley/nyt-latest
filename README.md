@@ -1,4 +1,4 @@
-**Giannis Antetokounmpo injures leg in final seconds as Bucks lose to Nuggets**\
+**Giannis injures leg in final seconds of Bucks' loss to Nuggets**\
 `Antetokounmpo, who had been laboring throughout the game, landed awkwardly with 34.2 seconds left and had to leave the game. `\
 https://nytimes.com/athletic/6995387/2026/01/24/giannis-antetokounmpo-injury-bucks-nuggets/
 
