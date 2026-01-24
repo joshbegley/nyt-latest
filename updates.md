@@ -1,3 +1,7 @@
+**U.S. Says First Boat Strike Since Maduro’s Capture Killed 2 in Eastern Pacific**\
+`The U.S. Southern Command said it had asked the Coast Guard to search for one survivor.`\
+https://nytimes.com/2026/01/23/us/politics/boat-strike-pacific.html
+
 **Setting Foot on the Melting Thwaites Glacier**\
 `Bad weather ​delayed expedition scientists’​ ​efforts to set up camp on Thwaites Glacier ​in Antarctica ​and take measurements ​to determine how quickly it is melting. After the skies cleared, our journalists​, Raymond Zhong and Chang W. Lee​, took us along for their first steps on Thwaites.`\
 https://nytimes.com/video/climate/100000010658848/setting-foot-on-the-melting-thwaites-glacier.html
