@@ -1,3 +1,15 @@
+**Scenes From the Winter Storm**\
+`Images from across much of the country illuminate snow-covered streets and preparations for worse still to come.`\
+https://nytimes.com/2026/01/24/us/winter-storm-snow-photos-videos.html
+
+**Democrats condemn shooting as senators prepare to consider funding for ICE.**\
+`By Catie Edmondson`\
+https://nytimes.com/live/2026/us/minneapolis-shooting-ice/democrats-congress-reaction
+
+**Trump and other federal officials try to put blame on local officials and man who was killed.**\
+`By Katie Rogers and Hamed Aleaziz`\
+https://nytimes.com/live/2026/us/minneapolis-shooting-ice/trump-and-other-federal-officials-put-blame-on-local-officials-and-man-who-was-killed
+
 **Beatriz González, Who Chronicled Colombia’s Turmoil in Paint, Dies at 93**\
 `Often drawing from reproduced images or newspaper photos, she made work that quietly yet memorably critiqued her country’s social and political order.`\
 https://nytimes.com/2026/01/24/arts/design/beatriz-gonzalez-dead.html
