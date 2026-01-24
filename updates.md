@@ -1,3 +1,7 @@
+**Trump and other federal officials try to put blame on local officials and man who was killed.**\
+`By Katie Rogers and Hamed Aleaziz`\
+https://nytimes.com/2026/01/24/us/trump-administration-minneapolis-shooting.html
+
 **Gunshots rattle a neighborhood known for its food scene.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2026/us/minneapolis-shooting-ice/gunshots-rattle-a-neighborhood-known-for-its-food-scene
