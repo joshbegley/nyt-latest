@@ -1,3 +1,15 @@
+**Cacio e Pepe Ramen**\
+`Ramen noodles bring a bouncy twist to this classic Roman pasta dish. You’ll want the black pepper to be very coarse so that it can infuse the butter and achieve that fruity heat without burning.`\
+https://nytimes.com/video/dining/100000010369188/cacio-e-pepe-ramen.html
+
+**Sheet-Pan Pierogies With Brussels Sprouts and Kimchi**\
+`Roasting pierogies yields a crisp, golden skin with a soft, pillowy interior but, if you don’t have pierogies, you could use gnocchi in their place.`\
+https://nytimes.com/video/dining/100000010368995/sheet-pan-pierogies-with-brussels-sprouts-and-kimchi.html
+
+**HUD Demands Public Housing Officials Check for Undocumented Immigrants**\
+`The Department of Housing and Urban Development said it would punish public housing authorities that did not adequately verify tenants’ immigration status within 30 days.`\
+https://nytimes.com/2026/01/23/us/politics/hud-housing-undocumented-immigrants.html
+
 **Islanders plan to relocate AHL affiliate from Bridgeport to Hamilton: Sources**\
 `League sources say a deal has yet to be finalized, and hurdles must be cleared before the Bridgeport Islanders can officially make the move.`\
 https://nytimes.com/athletic/6994982/2026/01/23/islanders-ahl-bridgeport-hamilton-relocation-td-coliseum/
@@ -13,16 +25,4 @@ https://nytimes.com/athletic/6994955/2026/01/23/alabama-charles-bediako-saturday
 **S.E.C. Drops Case Against Cryptocurrency Firm Founded by Winklevoss Twins**\
 `The agency says that victims of an investment offering involving Gemini Trust got their money back, though after a regulatory action brought by the New York attorney general.`\
 https://nytimes.com/2026/01/23/us/politics/sec-crypto-winklevoss.html
-
-**Until Saturday: How much did this CFB 'era' just change?**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6994981/2026/01/23/indiana-college-football-until-saturday/
-
-**Blades Brown, 18, ties Scottie for AmEx lead with course-record 60**\
-`The known prodigy was playing his sixth round in as many days after starting the week on the Korn Ferry Tour.`\
-https://nytimes.com/athletic/6994961/2026/01/23/blades-brown-american-express-pga-tour-lead-60/
-
-**Manhattan Doorman Killed as N.Y.P.D. Sergeant Crashes Into Him Head-On**\
-`The sergeant, Tiffany Howell, 47, was driving the wrong way on the Taconic State Parkway in New York when she crashed into Manuel Boitel, 61, the state police said.`\
-https://nytimes.com/2026/01/23/nyregion/nypd-crash-tiffany-howell.html
 
