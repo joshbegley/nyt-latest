@@ -1,3 +1,7 @@
+**Novak Djokovic narrowly avoids Australian Open disqualification after striking ball in anger**\
+`MELBOURNE, Australia — Novak Djokovic narrowly avoided a possible disqualification from the Australian Open after a ball he smacked away in frustration just avoided hitting a ball kid.`\
+https://nytimes.com/athletic/6995553/2026/01/24/tennis-australian-open-novak-djokovic-ballkid/
+
 **Here’s the latest.**\
 `By J. David Goodman, Amy Graff and Judson Jones`\
 https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/24/magazine/chloe-zhao-interview.html
 **The Emotions President Trump Evokes**\
 `We asked voters to describe their emotions about President Trump’s second term so far. Most spoke of happiness or hostility.`\
 https://nytimes.com/interactive/2026/01/24/polls/trump-emotions-poll.html
-
-**How a Photographer Stumbled Upon a Key Picture of the Spain Train Crash**\
-`While seeking views of the disaster, a photographer on assignment for The Times captured an image of wreckage that could provide clues to what went wrong.`\
-https://nytimes.com/2026/01/24/insider/how-a-photographer-stumbled-upon-a-key-picture-of-the-spain-train-crash.html
 
