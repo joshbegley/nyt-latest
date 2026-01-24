@@ -1,3 +1,7 @@
+**WATCH: How Patriots' versatile pass rush shuts down opposing quarterbacks**\
+`What's fueling the Pats' Super Bowl run? While the offense is explosive, the pass rush has made New England a threat on both sides.`\
+https://nytimes.com/athletic/6995133/2026/01/23/video-analysis-patriots-playoffs/
+
 **ICE Agent Charged With Misdemeanor Following Scuffle With an Activist**\
 `The police in Brookfield, Ill., filed a battery charge against a federal agent, who was off duty when he scuffled with an immigrant rights activist.`\
 https://nytimes.com/2026/01/23/us/ice-agent-charged-illinois.html

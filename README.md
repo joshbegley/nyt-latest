@@ -14,7 +14,7 @@ https://nytimes.com/2026/01/23/business/yen-dollar-treasury-bessent.html
 `The Oscar nominations are out, and the best picture category includes “Sinners,” “One Battle After Another,” “The Secret Agent” and “Marty Supreme.” These four movies tie history to our present moment, says Wesley Morris, and could make this year’s Academy Awards show one to watch.`\
 https://nytimes.com/video/podcasts/100000010665474/cannonball-oscars.html
 
-**UFC fighter Cameron Smotherman hospitalized after collapsing during weigh-in**\
+**UFC fighter Cameron Smotherman hospitalized following weigh-in collapse**\
 `Smotherman weighed in at 135.5 pounds ahead of a fight Saturday but stumbled before falling to the ground and being helped by medical staff.`\
 https://nytimes.com/athletic/6994905/2026/01/23/cameron-smotherman-ufc-mma-collapse-hospital/
 
