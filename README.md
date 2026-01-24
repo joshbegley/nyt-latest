@@ -26,8 +26,8 @@ https://nytimes.com/live/2026/us/minneapolis-shooting-ice/democrats-congress-rea
 `Often drawing from reproduced images or newspaper photos, she made work that quietly yet memorably critiqued her country’s social and political order.`\
 https://nytimes.com/2026/01/24/arts/design/beatriz-gonzalez-dead.html
 
-**Trump and other federal officials try to put blame on local officials and man who was killed.**\
-`By Katie Rogers and Hamed Aleaziz`\
+**Trump and Federal Officials Blame Minnesota Authorities and Slain Man**\
+`They called Alex Jeffrey Pretti a “domestic terrorist” and said the governor and Minneapolis mayor were inciting rebellion.`\
 https://nytimes.com/2026/01/24/us/trump-administration-minneapolis-shooting.html
 
 **U.S. asks for extra Olympic quota spot for Katie Uhlaender in skeleton controversy**\
