@@ -1,3 +1,7 @@
+**‘Dolly Plowton’ Debuts in Snowy Nashville**\
+`The new snowplow, named and painted to evoke a Tennessee heroine, is a symbol of how some Southern cities are trying to better prepare for winter storms.`\
+https://nytimes.com/2026/01/24/us/dolly-plowton-debuts-in-snowy-nashville.html
+
 **Astros takeaways: FanFest accentuates imbalanced lineup and untenable infield surplus**\
 `Plus what Carlos Correa thinks led to Houston's 2025 injury issues, and why Spencer Arrighetti is "optimistic going into camp."`\
 https://nytimes.com/athletic/6996337/2026/01/24/astros-infield-trades-carlos-correa-injuries-fanfest/

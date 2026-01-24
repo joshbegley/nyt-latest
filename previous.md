@@ -1,3 +1,7 @@
+**‘Dolly Plowton’ Debuts in Snowy Nashville**\
+`The new snowplow, named and painted to evoke a Tennessee heroine, is a symbol of how some Southern cities are trying to better prepare for winter storms.`\
+https://nytimes.com/2026/01/24/us/dolly-plowton-debuts-in-snowy-nashville.html
+
 **Astros takeaways: FanFest accentuates imbalanced lineup and untenable infield surplus**\
 `Plus what Carlos Correa thinks led to Houston's 2025 injury issues, and why Spencer Arrighetti is "optimistic going into camp."`\
 https://nytimes.com/athletic/6996337/2026/01/24/astros-infield-trades-carlos-correa-injuries-fanfest/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/24/us/politics/don-lemon-arrest-warrant.html
 **Steelers' Mike McCarthy hire has everything to do with a QB — just not the one you're thinking of**\
 `Aaron Rodgers might reunite with his old coach in Pittsburgh, but McCarthy's tenure will be judged by what comes after.`\
 https://nytimes.com/athletic/6996086/2026/01/24/mike-mccarthy-steelers-head-coach-aaron-rodgers-qb/
-
-**Alex Jeffrey Pretti Was an I.C.U. Nurse at the V.A. Hospital**\
-`Shot and killed by immigration agents on a Minneapolis street, he wanted to be a ‘force of good in the world.’`\
-https://nytimes.com/2026/01/24/us/alex-jeffrey-pretti-was-an-icu-nurse-at-the-va-hospital.html
 
