@@ -1,3 +1,7 @@
+**Sherrone Moore's lawyer: Arrest warrant obtained through 'false statements'**\
+`The ex-Michigan football coach's lawyer says accusations against him are part of a "litigation strategy designed to villainize Mr. Moore."`\
+https://nytimes.com/athletic/6995291/2026/01/23/sherrone-moore-michigan-arrest-false-statements/
+
 **Child Support?**\
 `Adrian Johnson and Ryan McCarty team up on a killer themeless puzzle.`\
 https://nytimes.com/2026/01/23/crosswords/daily-puzzle-2026-01-24.html
