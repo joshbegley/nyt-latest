@@ -1,3 +1,7 @@
+**Behind the boos: Inside Mitch Marner’s return to Toronto**\
+`Marner’s return to Toronto after nine seasons with the organization was an anticipated but also strange day for the former Maple Leafs star.`\
+https://nytimes.com/athletic/6995345/2026/01/24/mitch-marner-maple-leafs-golden-knights/
+
 **An Unlikely Source of Crypto Innovation: Afghanistan**\
 `The repressive Taliban government is suspicious of the internet. But a start-up in the country is building blockchain-based tools to transform humanitarian aid.`\
 https://nytimes.com/2026/01/24/world/asia/crypto-innovation-afghanistan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995305/2026/01/23/australian-open-play-suspended-h
 **Sherrone Moore's lawyer: Arrest warrant obtained through 'false statements'**\
 `The ex-Michigan football coach's lawyer says accusations against him are part of a "litigation strategy designed to villainize Mr. Moore."`\
 https://nytimes.com/athletic/6995291/2026/01/23/sherrone-moore-michigan-arrest-false-statements/
-
-**Child Support?**\
-`Adrian Johnson and Ryan McCarty team up on a killer themeless puzzle.`\
-https://nytimes.com/2026/01/23/crosswords/daily-puzzle-2026-01-24.html
 

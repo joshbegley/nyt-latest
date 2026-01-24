@@ -1,3 +1,23 @@
+**An Unlikely Source of Crypto Innovation: Afghanistan**\
+`The repressive Taliban government is suspicious of the internet. But a start-up in the country is building blockchain-based tools to transform humanitarian aid.`\
+https://nytimes.com/2026/01/24/world/asia/crypto-innovation-afghanistan.html
+
+**What Europe Learned From the Greenland Crisis**\
+`Territorial integrity is a core tenet of Europe that is at risk from Russian and American imperialism. Brussels has fought back.`\
+https://nytimes.com/2026/01/24/world/europe/sovereignty-european-union-nato.html
+
+**Connections: Sports Edition Coach: Hints for Jan. 24, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6995076/2026/01/24/connections-sports-edition-hints-for-jan-24-2026-puzzle-no-488/
+
+**Corrections: Jan. 24, 2026**\
+`Corrections that appeared in print on Saturday, Jan. 24, 2026.`\
+https://nytimes.com/2026/01/24/pageoneplus/corrections-jan-24-2026.html
+
+**Quote of the Day: Big Perks Get Mobile Gamers to Keep Spending**\
+`Quotation of the Day for Saturday, January 24, 2025.`\
+https://nytimes.com/2026/01/23/pageoneplus/quote-of-the-day-big-perks-get-mobile-gamers-to-keep-spending.html
+
 **Blackhawks take points, lessons from facing Hurricanes, Lightning on consecutive days**\
 `Chicago went toe-to-toe with two of the league's best teams on consecutive nights and can take a positive feeling out of the experience.`\
 https://nytimes.com/athletic/6995217/2026/01/23/blackhawks-lightning-hurricanes-lessons/
