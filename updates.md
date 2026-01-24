@@ -1,3 +1,7 @@
+**Child Support?**\
+`Adrian Johnson and Ryan McCarty team up on a killer themeless puzzle.`\
+https://nytimes.com/2026/01/23/crosswords/daily-puzzle-2026-01-24.html
+
 **Former NFL player Kevin Johnson killed in homeless encampment stabbing**\
 `The New England Patriots selected the Los Angeles native with a fourth-round pick in the 1993 NFL Draft.`\
 https://nytimes.com/athletic/6995242/2026/01/23/kevin-johnson-former-nfl-player-homeless-stabbed-eagles/
