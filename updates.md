@@ -1,3 +1,11 @@
+**Syrian and Kurdish Troops in Standoff as Truce Deadline Passes**\
+`Syria’s government and Kurdish-led forces in the country’s northeast have clashed as President Ahmed al-Sharaa seeks to extend his authority across the entire country.`\
+https://nytimes.com/2026/01/24/world/middleeast/syria-kurdish-militia.html
+
+**In Minnesota, citizens with firearm permits can openly carry handguns.**\
+`By Pooja Salhotra`\
+https://nytimes.com/live/2026/us/minneapolis-shooting-ice/in-minnesota-citizens-with-firearm-permits-can-openly-carry-handguns
+
 **The Briefing: Bournemouth 3 Liverpool 2 - Five without a league win, how damaging is this?**\
 `Liverpool suffered a heart-breaking late defeat at Bournemouth, having coming from 2-0 down earlier in the match`\
 https://nytimes.com/athletic/6989244/2026/01/24/bournemouth-3-liverpool-2/
