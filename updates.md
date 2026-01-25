@@ -1,3 +1,23 @@
+**Pro-Israel Group Targets a Former Ally in an Early Congressional Race**\
+`A super PAC affiliated with the American Israel Public Affairs Committee is running ads against Tom Malinowski, who is hoping to replace Gov. Mikie Sherrill of New Jersey in the House.`\
+https://nytimes.com/2026/01/25/nyregion/new-jersey-malinowski-israel-aipac.html
+
+**‘Gripping My Collar, I Began to Sprint South’**\
+`A friendly encounter on a slow train, Penn Station problems and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2026/01/25/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/25/crosswords/spelling-bee-forum.html
+
+**Read a Witness Statement on the Pretti Shooting**\
+`A doctor described in a sworn court filing how agents initially hesitated when the doctor tried to approach and render aid to Alex Jeffrey Pretti in Minneapolis on Saturday.`\
+https://nytimes.com/interactive/2026/01/25/us/pretti-witness-statement-from-doctor.html
+
+**Read a Witness Statement on the Pretti Shooting**\
+`A person who described themselves as a children’s entertainer said they witnessed the shooting of Alex Jeffrey Pretti in Minneapolis on Saturday.`\
+https://nytimes.com/interactive/2026/01/25/us/govuscourtsmnd22975810701.html
+
 **Read a Witness Statement on the Pretti Shooting**\
 `A person who described themselves as a children’s entertainer said they witnessed the shooting of Alex Pretti in Minneapolis on Saturday.`\
 https://nytimes.com/interactive/2026/01/25/us/govuscourtsmnd22975810701.html
