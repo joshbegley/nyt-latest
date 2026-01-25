@@ -1,4 +1,8 @@
 **Trump Just Proved Carney’s Point**\
+`Canada’s prime minister sees the president all too well.`\
+https://nytimes.com/2026/01/25/opinion/trump-carney-davos-canada-greenland.html
+
+**Trump Just Proved Carney’s Point**\
 `The prime minister sees Trump all too well.`\
 https://nytimes.com/2026/01/25/opinion/trump-carney-davos-canada-greenland.html
 
