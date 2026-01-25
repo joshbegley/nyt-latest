@@ -1,3 +1,11 @@
+**The problems are glaring. Liverpool need major surgery this summer and it won't come cheap**\
+`Pressure and scrutiny have once again been cranked up on Arne Slot after Liverpool's undefeated run was ended by Bournemouth`\
+https://nytimes.com/athletic/6995571/2026/01/25/liverpool-bournemouth-premier-league-analysis/
+
+**Wild fall to defending champion Panthers in OT in Matt Boldy's return: Takeaways**\
+`The Wild are tied with the Kings with an NHL-high 20 overtime games, including six of their last nine.`\
+https://nytimes.com/athletic/6996737/2026/01/25/wild-fall-to-defending-champ-panthers-overtime-takeaways/
+
 **It’s So Hard Not to Be Consumed by Rage**\
 `I worry that for some of us, our antipathy to Trump has become part of who we are, and it can be something of a personal poison.`\
 https://nytimes.com/2026/01/25/opinion/ice-rage-identity.html

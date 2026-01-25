@@ -1,3 +1,11 @@
+**The problems are glaring. Liverpool need major surgery this summer and it won't come cheap**\
+`Pressure and scrutiny have once again been cranked up on Arne Slot after Liverpool's undefeated run was ended by Bournemouth`\
+https://nytimes.com/athletic/6995571/2026/01/25/liverpool-bournemouth-premier-league-analysis/
+
+**Wild fall to defending champion Panthers in OT in Matt Boldy's return: Takeaways**\
+`The Wild are tied with the Kings with an NHL-high 20 overtime games, including six of their last nine.`\
+https://nytimes.com/athletic/6996737/2026/01/25/wild-fall-to-defending-champ-panthers-overtime-takeaways/
+
 **Why the Carney Fire Is Still Burning**\
 `The prime minister sees Trump all too well.`\
 https://nytimes.com/2026/01/25/opinion/trump-carney-davos-canada-greenland.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6996027/2026/01/25/edwards-expects-late-action-for-
 **West Ham's improving attack can keep them up, their defence could still send them down**\
 `The first half against Sunderland showed the team's attacking identity is crystallising; the second period showed there is still work to do`\
 https://nytimes.com/athletic/6995827/2026/01/25/west-ham-attacking-improvement-defensive-issues/
-
-**Should a club ever give their caretaker manager the permanent job?**\
-`In the 34 years of the Premier League, there have been 21 occasions when a caretaker manager/head coach has graduated to permanent status`\
-https://nytimes.com/athletic/6988950/2026/01/25/appointing-caretaker-manager/
-
-**Arsenal vs Man Utd: How will Arteta set up? Sesko vs Gyokeres? Carrick’s tactics?**\
-`Fluctuating fortunes over the past 20 years have meant it's a long time since these clubs were the top two, vying for the league title`\
-https://nytimes.com/athletic/6991043/2026/01/25/arsenal-man-united-sesko-gyokeres/
 
