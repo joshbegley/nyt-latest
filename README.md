@@ -1,3 +1,7 @@
+**Read Bondi’s Letter to Minnesota’s Governor**\
+`Attorney General Pam Bondi sent a letter to Gov. Tim Walz of Minnesota on Saturday that blamed him and other Democratic officials for allowing “lawlessness” in the state. It was not immediately clear if the letter had been sent before or after the fatal shooting of Alex Pretti.`\
+https://nytimes.com/interactive/2026/01/24/us/pam-bondi-walz-doc.html
+
 **AHL announcer braves -8 temperatures to call game: 'I would do it again'**\
 `Milwaukee Admirals announcer Aaron Sims called the coldest outdoor professional hockey game in AHL and NHL history Wednesday.`\
 https://nytimes.com/athletic/6996317/2026/01/24/aaron-sims-ahl-coldest-hockey-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/24/weather/new-york-snow-forecst.html
 **Dolphins tab Bobby Slowik as offensive coordinator: Source**\
 `Slowik was retained from former coach Mike McDaniel's staff.`\
 https://nytimes.com/athletic/6996381/2026/01/24/dolphins-hiring-bobby-slowik-offensive-coordinator/
-
-**Democrats Running for U.S. Senate in Texas Call for Overhaul of ICE**\
-`In a debate, Jasmine Crockett and James Talarico differed in their political styles but agreed that violent immigration agents needed to be held to account.`\
-https://nytimes.com/2026/01/24/us/politics/texas-debate-senate-jasmine-crockett-james-talarico-democrats.html
 
