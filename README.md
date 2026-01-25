@@ -1,3 +1,7 @@
+**NFC Championship Game viewing guide for Rams vs. Seahawks, Part III**\
+`The last Rams vs. Seahawks game was a classic. Sunday's rematch is for the conference title and a trip to the Super Bowl.`\
+https://nytimes.com/athletic/6990927/2026/01/25/rams-seahawks-nfc-championship-nfl-playoff-records/
+
 **Who is Blades Brown, the 18-year-old who shot a 60 at The American Express?**\
 `The teenager from Nashville ,Tenn., certainly seems to be on track to become a well-known name on the PGA Tour.`\
 https://nytimes.com/athletic/6996496/2026/01/25/who-is-blades-brown-amex-pga-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6996602/2026/01/25/bruins-andrew-peeke-nhl-trade-de
 **Minneapolis and Gaza Now Share the Same Violent Language**\
 `When ICE and Hamas start looking the same, we are all in trouble.`\
 https://nytimes.com/2026/01/25/opinion/minneapolis-gaza-masked-violence.html
-
-**How College Can Tear Us Apart**\
-`If illiberalism is the problem, what is the cure?`\
-https://nytimes.com/2026/01/25/opinion/college-thinking-illiberalism.html
 
