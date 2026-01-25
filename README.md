@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 2 Man Utd 3 - Did composure cost Arteta's side? How good was Dorgu? What does this mean for Carrick?**\
+`Our writers break down the talking points from an enthralling encounter at the Emirates.`\
+https://nytimes.com/athletic/6990978/2026/01/25/arsenal-man-utd-carrick-dorgu-arteta/
+
 **Minnesota’s Biggest Companies Call for ‘De-escalation’ of Tensions**\
 `The letter from chief executives at some of the state’s most recognizable companies like Target and Cargill stops short of condemning the recent killings by federal immigration agents.`\
 https://nytimes.com/2026/01/25/business/minnesota-target-general-mills-ceo-letter.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6997246/2026/01/25/pelicans-vs-spurs-stream-how-to-
 **How to watch Raptors vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6997243/2026/01/25/raptors-vs-thunder-stream-how-to-watch-jan-25/
-
-**How to watch Golden Knights vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6997235/2026/01/25/golden-knights-vs-senators-stream-how-to-watch-jan-25/
 
