@@ -1,3 +1,7 @@
+**Craig Kimbrel, Mets agree to minor league deal: Sources**\
+`The 37-year-old reliever will earn a base salary of $2.5 million if he cracks the Mets' roster, league sources said.`\
+https://nytimes.com/athletic/6996486/2026/01/24/craig-kimbrel-mets-deal-minors/
+
 **Giants, Logan Webb draw a record crowd as FanFest branches out to the East Bay**\
 `It was a deliberate choice for the Giants to add a new stop on their caravan in territory that used to belong to their Bay Area rivals.`\
 https://nytimes.com/athletic/6996442/2026/01/24/sf-giants-logan-webb-record-crowd-east-bay-fanfest-athletics/

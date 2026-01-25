@@ -1,3 +1,7 @@
+**AHL announcer braves -8 temperatures to call game: 'I would do it again'**\
+`Milwaukee Admirals announcer Aaron Sims called the coldest outdoor professional hockey game in AHL and NHL history Wednesday.`\
+https://nytimes.com/athletic/6996317/2026/01/24/aaron-sims-ahl-coldest-hockey-game/
+
 **Craig Kimbrel, Mets agree to minor league deal: Sources**\
 `The 37-year-old reliever will earn a base salary of $2.5 million if he cracks the Mets' roster, league sources said.`\
 https://nytimes.com/athletic/6996486/2026/01/24/craig-kimbrel-mets-deal-minors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6996381/2026/01/24/dolphins-hiring-bobby-slowik-off
 **Democrats Running for U.S. Senate in Texas Call for Overhaul of ICE**\
 `In a debate, Jasmine Crockett and James Talarico differed in their political styles but agreed that violent immigration agents needed to be held to account.`\
 https://nytimes.com/2026/01/24/us/politics/texas-debate-senate-jasmine-crockett-james-talarico-democrats.html
-
-**How two hardy North Dakotans were almost thwarted by an ice storm.**\
-`Jackie Gaddie and Craig Pietruszewski had been anticipating the trip of a lifetime, to Antarctica of all places. Then, a storm got in the way.`\
-https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/how-two-hardy-north-dakotans-were-almost-thwarted-by-an-ice-storm
 

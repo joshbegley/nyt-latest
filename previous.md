@@ -1,3 +1,7 @@
+**Craig Kimbrel, Mets agree to minor league deal: Sources**\
+`The 37-year-old reliever will earn a base salary of $2.5 million if he cracks the Mets' roster, league sources said.`\
+https://nytimes.com/athletic/6996486/2026/01/24/craig-kimbrel-mets-deal-minors/
+
 **Giants, Logan Webb draw a record crowd as FanFest branches out to the East Bay**\
 `It was a deliberate choice for the Giants to add a new stop on their caravan in territory that used to belong to their Bay Area rivals.`\
 https://nytimes.com/athletic/6996442/2026/01/24/sf-giants-logan-webb-record-crowd-east-bay-fanfest-athletics/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/24/us/politics/texas-debate-senate-jasmine-crockett-
 **How two hardy North Dakotans were almost thwarted by an ice storm.**\
 `Jackie Gaddie and Craig Pietruszewski had been anticipating the trip of a lifetime, to Antarctica of all places. Then, a storm got in the way.`\
 https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/how-two-hardy-north-dakotans-were-almost-thwarted-by-an-ice-storm
-
-**Over a Thousand Protesters in New York Denounce ICE After Latest Killing**\
-`The demonstrators braved frigid temperatures in Manhattan following the death of 37-year-old Alex Jeffrey Pretti in Minneapolis.`\
-https://nytimes.com/2026/01/24/us/nyc-ice-protest-alex-pretti.html
 
