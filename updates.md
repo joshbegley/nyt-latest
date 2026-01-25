@@ -1,3 +1,11 @@
+**NYCFC finalising deal for Schalke forward Moussa Sylla**\
+`The Mali international has registered four goals and two assists in 17 appearances for the German second-tier leaders this season.`\
+https://nytimes.com/athletic/6997088/2026/01/25/moussa-sylla-nycfc-schalke-deal-transfer-news/
+
+**‘S.N.L.’: The Big Winner of the First Trump Awards? Guess Who.**\
+`A covetous president grabbed up all the trophies on this week’s “Saturday Night Live” broadcast, hosted by Teyana Taylor, star of “One Battle After Another.”`\
+https://nytimes.com/2026/01/25/arts/television/snl-trump-awards-teyana-taylor.html
+
 **The Pulse: A super cold open in Denver**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6996668/2026/01/25/you-dont-realize-just-how-long-jarrett-stidham-has-been-idling/
