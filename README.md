@@ -1,3 +1,7 @@
+**Why Japan’s Leader Won’t Enter the Male-Dominated Sumo Ring**\
+`Sanae Takaichi, the first woman to lead Japan as prime minister, skipped a sumo awards ceremony, reflecting her cautious approach to gender issues.`\
+https://nytimes.com/2026/01/25/world/asia/japan-takaichi-sumo-gender.html
+
 **Pro-Israel Group Targets a Former Ally in an Early Congressional Race**\
 `A super PAC affiliated with the American Israel Public Affairs Committee is running ads against Tom Malinowski, who is hoping to replace Gov. Mikie Sherrill of New Jersey in the House.`\
 https://nytimes.com/2026/01/25/nyregion/new-jersey-malinowski-israel-aipac.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/25/opinion/trump-carney-davos-canada-greenland.html
 **The New York Times in Print for Sunday, Jan. 25, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/25/todays-new-york-times
-
-**It’s So Hard Not to Be Consumed by Rage**\
-`I worry that for some of us, our antipathy to Trump has become part of who we are, and it can be something of a personal poison.`\
-https://nytimes.com/2026/01/25/opinion/ice-rage-identity.html
 
