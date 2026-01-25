@@ -1,3 +1,7 @@
+**Branches and power lines come crashing down in Nashville under sheaths of ice.**\
+`By Emily Cochrane and Jamie McGee`\
+https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/branches-and-power-lines-come-crashing-down-in-nashville-under-sheaths-of-ice
+
 **Stewart, Haliburton, other athletes protest after fatal Minneapolis shooting**\
 `Stewart, the two-time WNBA MVP, held an “Abolish ICE” sign during player introductions ahead of her Unrivaled matchup.`\
 https://nytimes.com/athletic/6997426/2026/01/25/minneapolis-shooting-athlete-protests-tyrese-haliburton-breanna-stewart/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/25/us/alex-pretti-family-statement.html
 **Eleanor Holmes Norton Files to End Re-election Campaign**\
 `It was not clear whether Washington’s 88-year-old veteran delegate, who has been in declining health but has insisted she would seek re-election, was aware of the filing.`\
 https://nytimes.com/2026/01/25/us/politics/eleanor-holmes-norton-re-election-campaign.html
-
-**Floyd Vivino, Throwback Comedian Known as Uncle Floyd, Dies at 74**\
-`His silly, vaudeville-style variety show was filled with his piano playing, skits, puppets and guest stars like Cyndi Lauper and Bon Jovi.`\
-https://nytimes.com/2026/01/25/nyregion/floyd-vivino-dead.html
 
