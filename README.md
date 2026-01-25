@@ -1,9 +1,13 @@
+**She's back. Trinity Rodman scores goal in first USWNT game as captain**\
+`"When it went in, I was, like, 'All right, it's my time to shine,’" Rodman said. `\
+https://nytimes.com/athletic/6996572/2026/01/24/trinity-rodman-uswnt-first-goal-captain/
+
 **In Court Filings, Witnesses Describe Fatal Minneapolis Shooting of Alex Pretti**\
 `The filings raise further questions about the federal government’s narrative of what happened before federal agents shot Alex Jeffrey Pretti on Saturday.`\
 https://nytimes.com/2026/01/24/us/witnesses-alex-pretti-shooting.html
 
 **Alabama's Charles Bediako returns for Alabama despite G League stint**\
-`Bediako spent three seasons on a two-way contract with the San Antonio Spurs, but has never logged any NBA minutes.`\
+`Bediako spent three seasons on a two-way contract with the San Antonio Spurs, but he never logged any NBA minutes.`\
 https://nytimes.com/athletic/6996600/2026/01/24/alabama-charles-bediako-eligibility-g-league/
 
 **In his second return to Dallas, Luka Dončić leads a high-energy Lakers rally**\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/01/24/us/minneapolis-shooting-alex-pretti-t
 **William H. Foege, Key Figure in the Eradication of Smallpox, Dies at 89**\
 `His containment strategy helped wipe out the disease in the 1970s, one of the world’s greatest public health triumphs. He also led the C.D.C. and promoted childhood vaccination worldwide.`\
 https://nytimes.com/2026/01/24/us/william-h-foege-dead.html
-
-**Read Bondi’s Letter to Minnesota’s Governor**\
-`Attorney General Pam Bondi sent a letter to Gov. Tim Walz of Minnesota on Saturday that blamed him and other Democratic officials for allowing “lawlessness” in the state. It was not immediately clear if the letter had been sent before or after the fatal shooting of Alex Pretti.`\
-https://nytimes.com/interactive/2026/01/24/us/pam-bondi-walz-doc.html
 
