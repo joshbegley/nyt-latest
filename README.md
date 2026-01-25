@@ -1,3 +1,7 @@
+**William H. Foege, Key Figure in the Eradication of Smallpox, Dies at 89**\
+`His containment strategy helped wipe out the disease in the 1970s, one of the world’s greatest public health triumphs. He also led the C.D.C. and promoted childhood vaccination worldwide.`\
+https://nytimes.com/2026/01/24/us/william-h-foege-dead.html
+
 **Read Bondi’s Letter to Minnesota’s Governor**\
 `Attorney General Pam Bondi sent a letter to Gov. Tim Walz of Minnesota on Saturday that blamed him and other Democratic officials for allowing “lawlessness” in the state. It was not immediately clear if the letter had been sent before or after the fatal shooting of Alex Pretti.`\
 https://nytimes.com/interactive/2026/01/24/us/pam-bondi-walz-doc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/24/opinion/state-terror-has-arrived.html
 **New York’s Latest Forecast Shows Heavy Snow, Then Sleet**\
 `The National Weather Service said Central Park could see up to a foot of snow by Monday.`\
 https://nytimes.com/2026/01/24/weather/new-york-snow-forecst.html
-
-**Dolphins tab Bobby Slowik as offensive coordinator: Source**\
-`Slowik was retained from former coach Mike McDaniel's staff.`\
-https://nytimes.com/athletic/6996381/2026/01/24/dolphins-hiring-bobby-slowik-offensive-coordinator/
 

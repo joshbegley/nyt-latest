@@ -1,3 +1,11 @@
+**Read Bondi’s Letter to Minnesota’s Governor**\
+`Attorney General Pam Bondi sent a letter to Gov. Tim Walz of Minnesota on Saturday that blamed him and other Democratic officials for allowing “lawlessness” in the state. It was not immediately clear if the letter had been sent before or after the fatal shooting of Alex Pretti.`\
+https://nytimes.com/interactive/2026/01/24/us/pam-bondi-walz-doc.html
+
+**AHL announcer braves -8 temperatures to call game: 'I would do it again'**\
+`Milwaukee Admirals announcer Aaron Sims called the coldest outdoor professional hockey game in AHL and NHL history Wednesday.`\
+https://nytimes.com/athletic/6996317/2026/01/24/aaron-sims-ahl-coldest-hockey-game/
+
 **Craig Kimbrel, Mets agree to minor league deal: Sources**\
 `The 37-year-old reliever will earn a base salary of $2.5 million if he cracks the Mets' roster, league sources said.`\
 https://nytimes.com/athletic/6996486/2026/01/24/craig-kimbrel-mets-deal-minors/
