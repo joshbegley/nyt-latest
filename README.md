@@ -1,3 +1,7 @@
+**Minnesota’s Biggest Companies Call for ‘De-escalation’ of Tensions**\
+`The letter from chief executives at some of the state’s most recognizable companies like Target and Cargill stops short of condemning the recent killings by federal immigration agents.`\
+https://nytimes.com/2026/01/25/business/minnesota-target-general-mills-ceo-letter.html
+
 **Chelsea activate recall option for Anselmino from Dortmund**\
 `The 20-year-old Argentina youth international moved to Germany in August on a season-long agreement.`\
 https://nytimes.com/athletic/6996880/2026/01/25/aaron-anselmino-chelsea-borussia-dortmund-loan-recall/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6997243/2026/01/25/raptors-vs-thunder-stream-how-to
 **How to watch Golden Knights vs. Senators: Time, TV, streaming**\
 `Find out how to watch the Vegas Golden Knights play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6997235/2026/01/25/golden-knights-vs-senators-stream-how-to-watch-jan-25/
-
-**How to watch Panthers vs. Blackhawks: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the Chicago Blackhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6997233/2026/01/25/panthers-vs-blackhawks-stream-how-to-watch-jan-25/
 
