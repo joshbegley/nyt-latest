@@ -1,3 +1,7 @@
+**Family of Alex Pretti Says It Is Heartbroken and ‘Very Angry’**\
+`In a statement, the parents of the man slain in Minneapolis said that their son “wanted to make a difference.”`\
+https://nytimes.com/2026/01/25/us/alex-pretti-family-statement.html
+
 **Eleanor Holmes Norton Files to End Re-election Campaign**\
 `It was not clear whether Washington’s 88-year-old veteran delegate, who has been in declining health but has insisted she would seek re-election, was aware of the filing.`\
 https://nytimes.com/2026/01/25/us/politics/eleanor-holmes-norton-re-election-campaign.html

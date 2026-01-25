@@ -1,3 +1,7 @@
+**Family of Alex Pretti Says It Is Heartbroken and ‘Very Angry’**\
+`In a statement, the parents of the man slain in Minneapolis said that their son “wanted to make a difference.”`\
+https://nytimes.com/2026/01/25/us/alex-pretti-family-statement.html
+
 **Eleanor Holmes Norton Files to End Re-election Campaign**\
 `It was not clear whether Washington’s 88-year-old veteran delegate, who has been in declining health but has insisted she would seek re-election, was aware of the filing.`\
 https://nytimes.com/2026/01/25/us/politics/eleanor-holmes-norton-re-election-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/25/weather/another-storm-forecast-noreaster.html
 **The Trump Administration Is Lying to Our Faces. Congress Must Act.**\
 `The Trump administration is once again engaged in a perversion of justice.`\
 https://nytimes.com/2026/01/25/opinion/alex-pretti-minneapolis-shooting-border-patrol.html
-
-**The Briefing: Arsenal 2 Man Utd 3 – Did composure cost Arteta's side? How good was Dorgu? What does this mean for Carrick?**\
-`Our writers break down the talking points from an enthralling encounter at the Emirates.`\
-https://nytimes.com/athletic/6990978/2026/01/25/arsenal-man-utd-carrick-dorgu-arteta/
 
