@@ -1,3 +1,7 @@
+**Eleanor Holmes Norton Files to End Re-election Campaign**\
+`It was not clear whether Washington’s 88-year-old veteran delegate, who has been in declining health but has insisted she would seek re-election, was aware of the filing.`\
+https://nytimes.com/2026/01/25/us/politics/eleanor-holmes-norton-re-election-campaign.html
+
 **Floyd Vivino, Throwback Comedian Known as Uncle Floyd, Dies at 74**\
 `His silly, vaudeville-style variety show was filled with his piano playing, skits, puppets and guest stars like Cyndi Lauper and Bon Jovi.`\
 https://nytimes.com/2026/01/25/nyregion/floyd-vivino-dead.html
