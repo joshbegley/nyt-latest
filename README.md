@@ -1,3 +1,11 @@
+**Democrats Running for U.S. Senate in Texas Call for Overhaul of ICE**\
+`In a debate, Jasmine Crockett and James Talarico differed in their political styles but agreed that violent immigration agents needed to be held to account.`\
+https://nytimes.com/2026/01/24/us/politics/texas-debate-senate-jasmine-crockett-james-talarico-democrats.html
+
+**How two hardy North Dakotans were almost thwarted by an ice storm.**\
+`Jackie Gaddie and Craig Pietruszewski had been anticipating the trip of a lifetime, to Antarctica of all places. Then, a storm got in the way.`\
+https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/how-two-hardy-north-dakotans-were-almost-thwarted-by-an-ice-storm
+
 **Over a Thousand Protesters in New York Denounce ICE After Latest Killing**\
 `The demonstrators braved frigid temperatures in Manhattan following the death of 37-year-old Alex Jeffrey Pretti in Minneapolis.`\
 https://nytimes.com/2026/01/24/us/nyc-ice-protest-alex-pretti.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6996294/2026/01/24/rick-pitino-st-johns-richard-xav
 **Alert! Alert!**\
 `Mark MacLachlan’s latest puzzle has been thoroughly beta-tested.`\
 https://nytimes.com/2026/01/24/crosswords/daily-puzzle-2026-01-25.html
-
-**Sabres thoughts: Alex Lyon's hot streak helps Buffalo climb standings**\
-`Lyon stopped 26 shots for his second shutout of the season and led the Sabres to a 5-0 win over the New York Islanders.`\
-https://nytimes.com/athletic/6996281/2026/01/24/sabres-islanders-alex-lyon-shutout/
-
-**Patriots activate WR Mack Hollins from IR ahead of AFC Championship**\
-`Hollins had been on injured reserve since Week 17 with an abdominal injury.`\
-https://nytimes.com/athletic/6996260/2026/01/24/patriots-activate-mack-hollins-afc-championship/
 
