@@ -1,3 +1,7 @@
+**In Luka's return to Dallas, winter storm doesn't prevent Mavs fans showing full support**\
+`Mavericks fans still love Dončić, and Saturday showed an impressive crowd turnout considering the weather conditions affecting north Texas.`\
+https://nytimes.com/athletic/6996762/2026/01/25/luka-doncic-mavericks-lakers-fans-support-nba/
+
 **‘S.N.L.’: The Big Winner of the First Trump Awards? Guess Who.**\
 `A covetous president grabbed up all the trophies on this week’s “Saturday Night Live” broadcast, hosted by Teyana Taylor, star of “One Battle After Another.”`\
 https://nytimes.com/2026/01/25/arts/television/snl-the-big-winner-of-the-first-trump-awards-guess-who.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6996961/2026/01/25/devils-vs-kraken-stream-how-to-w
 **How to watch Avalanche vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6996958/2026/01/25/avalanche-vs-maple-leafs-stream-how-to-watch-jan-25/
-
-**How to watch Mississippi State vs. Alabama women's basketball: Time, TV, streaming**\
-`Find out how to watch the Mississippi State Bulldogs play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6996946/2026/01/25/mississippi-state-vs-alabama-stream-how-to-watch-jan-25/
 

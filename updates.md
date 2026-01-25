@@ -1,3 +1,7 @@
+**In Luka's return to Dallas, winter storm doesn't prevent Mavs fans showing full support**\
+`Mavericks fans still love Dončić, and Saturday showed an impressive crowd turnout considering the weather conditions affecting north Texas.`\
+https://nytimes.com/athletic/6996762/2026/01/25/luka-doncic-mavericks-lakers-fans-support-nba/
+
 **‘S.N.L.’: The Big Winner of the First Trump Awards? Guess Who.**\
 `A covetous president grabbed up all the trophies on this week’s “Saturday Night Live” broadcast, hosted by Teyana Taylor, star of “One Battle After Another.”`\
 https://nytimes.com/2026/01/25/arts/television/snl-the-big-winner-of-the-first-trump-awards-guess-who.html
