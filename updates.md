@@ -1,3 +1,7 @@
+**What the odds sheet tells us about 2025 Topps Stadium Club Baseball**\
+`Our writer calculates what Topps' odds sheet reveals about what is and isn't in 2025 Stadium Club. `\
+https://nytimes.com/athletic/6994084/2026/01/25/2025-topps-stadium-club-baseball-odds-analysis/
+
 **How to watch Kings vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Sacramento Kings play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6996966/2026/01/25/kings-vs-pistons-stream-how-to-watch-jan-25/
