@@ -1,3 +1,7 @@
+**Dolphins tab Bobby Slowik as offensive coordinator: Source**\
+`Slowik was retained from former coach Mike McDaniel's staff.`\
+https://nytimes.com/athletic/6996381/2026/01/24/dolphins-hiring-bobby-slowik-offensive-coordinator/
+
 **Democrats Running for U.S. Senate in Texas Call for Overhaul of ICE**\
 `In a debate, Jasmine Crockett and James Talarico differed in their political styles but agreed that violent immigration agents needed to be held to account.`\
 https://nytimes.com/2026/01/24/us/politics/texas-debate-senate-jasmine-crockett-james-talarico-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6996261/2026/01/24/yu-darvish-retirement-report-mlb
 **Rick Pitino earns 900th victory as St. John's wins 'Pitino Bowl' at Xavier**\
 `The Red Storm downed the Musketeers for their sixth straight win as they chase No. 2 UConn in the Big East.`\
 https://nytimes.com/athletic/6996294/2026/01/24/rick-pitino-st-johns-richard-xavier/
-
-**Alert! Alert!**\
-`Mark MacLachlan’s latest puzzle has been thoroughly beta-tested.`\
-https://nytimes.com/2026/01/24/crosswords/daily-puzzle-2026-01-25.html
 
