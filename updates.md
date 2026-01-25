@@ -1,3 +1,15 @@
+**Flamengo in advanced Paqueta talks with West Ham after new bid**\
+`The Brazilian has not featured in West Ham's last two games.`\
+https://nytimes.com/athletic/6997060/2026/01/25/west-ham-lucas-paqueta-flamengo-transfer/
+
+**For Trump, the Truth in Minneapolis Is What He Says It Is**\
+`The Trump team has advanced one-sided narratives to justify each of the killings, even when bystander video shows something else entirely.`\
+https://nytimes.com/2026/01/25/us/politics/trump-truth-minneapolis-shootings.html
+
+**Another East Coast Storm? Don’t Buy the Hype Just Yet.**\
+`After a computer model began hinting that another storm could be on the way, meteorologists sought to tamp down speculation.`\
+https://nytimes.com/2026/01/25/weather/another-storm-forecast-noreaster.html
+
 **The Briefing: Arsenal 2 Man Utd 3 – Did composure cost Arteta's side? How good was Dorgu? What does this mean for Carrick?**\
 `Our writers break down the talking points from an enthralling encounter at the Emirates.`\
 https://nytimes.com/athletic/6990978/2026/01/25/arsenal-man-utd-carrick-dorgu-arteta/
