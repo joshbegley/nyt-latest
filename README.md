@@ -1,3 +1,11 @@
+**Chelsea activate recall option for Anselmino from Dortmund**\
+`The 20-year-old Argentina youth international moved to Germany in August on a season-long agreement.`\
+https://nytimes.com/athletic/6996880/2026/01/25/aaron-anselmino-chelsea-borussia-dortmund-loan-recall/
+
+**Amid Two-Week Internet Blackout, Some Iranians Are Getting Back Online**\
+`Many in Iran are gaining brief and unexplained windows of online connectivity, offering a widening glimpse of the extent of the government crackdown.`\
+https://nytimes.com/2026/01/25/world/middleeast/iran-internet.html
+
 **Marian Goodman, Eminent New York Art Dealer, Dies at 97**\
 `Although known for promoting German painters, she also sought out artists who shunned painting in favor of newer mediums, like photography and film.`\
 https://nytimes.com/2026/01/25/obituaries/marian-goodman-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6997235/2026/01/25/golden-knights-vs-senators-strea
 **How to watch Panthers vs. Blackhawks: Time, TV, streaming**\
 `Find out how to watch the Florida Panthers play the Chicago Blackhawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6997233/2026/01/25/panthers-vs-blackhawks-stream-how-to-watch-jan-25/
-
-**How to watch Penguins vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Penguins play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6997231/2026/01/25/penguins-vs-canucks-stream-how-to-watch-jan-25/
-
-**Museums From Texas to Massachusetts Close for Storm, but Broadway Shows Go On**\
-`The Smithsonian said all of its museums, research centers and the National Zoo would be closed on Sunday and Monday. Most Broadway shows were still expected to make their curtains.`\
-https://nytimes.com/2026/01/25/us/museums-broadway-storm-closed.html
 
