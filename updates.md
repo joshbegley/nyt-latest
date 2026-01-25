@@ -1,3 +1,11 @@
+**What Causes Thundersnow, One of Weather’s Rarest Spectacles**\
+`A clap of thunder can come as a surprise in the steady calm of falling snow. Here’s what causes it.`\
+https://nytimes.com/article/what-is-thundersnow.html
+
+**Miami LB Mohamed Toure will return for eighth season: Reports**\
+`Toure, who has two lost seasons to injury, joined the Hurricanes for the 2025 season.`\
+https://nytimes.com/athletic/6997346/2026/01/25/miami-lb-mohamed-toure-return/
+
 **While many churches canceled Sunday services, some carried on for a hardy few.**\
 `By Ruth Graham`\
 https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/churches

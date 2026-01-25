@@ -1,3 +1,11 @@
+**What Causes Thundersnow, One of Weather’s Rarest Spectacles**\
+`A clap of thunder can come as a surprise in the steady calm of falling snow. Here’s what causes it.`\
+https://nytimes.com/article/what-is-thundersnow.html
+
+**Miami LB Mohamed Toure will return for eighth season: Reports**\
+`Toure, who has two lost seasons to injury, joined the Hurricanes for the 2025 season.`\
+https://nytimes.com/athletic/6997346/2026/01/25/miami-lb-mohamed-toure-return/
+
 **While many churches canceled Sunday services, some carried on for a hardy few.**\
 `By Ruth Graham`\
 https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/churches
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6997501/2026/01/25/nets-vs-clippers-stream-how-to-w
 **How to watch Heat vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Miami Heat play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6997496/2026/01/25/heat-vs-suns-stream-how-to-watch-jan-25/
-
-**How to watch Ducks vs. Flames: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6997476/2026/01/25/ducks-vs-flames-stream-how-to-watch-jan-25/
-
-**Flamengo in advanced Paqueta talks with West Ham after new bid**\
-`The Brazilian has not featured in West Ham's last two games.`\
-https://nytimes.com/athletic/6997060/2026/01/25/west-ham-lucas-paqueta-flamengo-transfer/
 

@@ -1,3 +1,7 @@
+**Deputy attorney general takes a measured tone after Trump officials call the shooting victim a terrorist.**\
+`Other senior officials in the Trump administration continued to cast blame on the man shot by federal agents.`\
+https://nytimes.com/live/2026/01/25/us/minneapolis-shooting-ice/deputy-attorney-general-takes-a-measured-tone-after-trump-officials-call-the-shooting-victim-a-terrorist
+
 **What Causes Thundersnow, One of Weather’s Rarest Spectacles**\
 `A clap of thunder can come as a surprise in the steady calm of falling snow. Here’s what causes it.`\
 https://nytimes.com/article/what-is-thundersnow.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/25/nyregion/floyd-vivino-dead.html
 **How to watch Nets vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6997501/2026/01/25/nets-vs-clippers-stream-how-to-watch-jan-25/
-
-**How to watch Heat vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6997496/2026/01/25/heat-vs-suns-stream-how-to-watch-jan-25/
 
