@@ -1,4 +1,4 @@
-**South Carolina cruises past Vanderbilt, ending their undefeated season**\
+**South Carolina cruises past Vanderbilt, ending its undefeated season**\
 `With Vandy's loss, UConn is now the lone undefeated team in the top 25.`\
 https://nytimes.com/athletic/6997834/2026/01/25/south-carolina-vanderbilt-first-loss-of-season/
 

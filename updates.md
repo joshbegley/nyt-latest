@@ -1,3 +1,15 @@
+**South Carolina cruises past Vanderbilt, ending their undefeated season**\
+`With Vandy's loss, UConn is now the lone undefeated team in the top 25.`\
+https://nytimes.com/athletic/6997834/2026/01/25/south-carolina-vanderbilt-first-loss-of-season/
+
+**Most Fox News Reporting on Minneapolis Shooting Supports Official Version**\
+`Fox anchors were laser focused on promoting the Trump administration’s narrative that the slain protester, Alex Pretti, had brought the violence upon himself.`\
+https://nytimes.com/2026/01/25/business/media/fox-news-minneapolis-shooting.html
+
+**Steelers owner: 'We've left the door open' for Aaron Rodgers' return**\
+`Art Rooney II made the comments to a reporter from the team's official website.`\
+https://nytimes.com/athletic/6997806/2026/01/25/pittsburgh-steelers-aaron-rodgers-return/
+
 **The snow will still fall in Maine, just later than everywhere else.**\
 `By Jenna Russell and Sydney Cromwell`\
 https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/the-snow-will-still-fall-in-maine-just-later-than-everywhere-else
