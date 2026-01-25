@@ -1,5 +1,5 @@
 **Jakub Menšík withdraws from Australian Open, sending Novak Djokovic into quarterfinals**\
-`The highly rated Czech said he could not play his fourth-round match due to an abdominal injury.`\
+`The highly-rated Czech said he could not play his fourth-round match due to an abdominal injury.`\
 https://nytimes.com/athletic/6996824/2026/01/25/australian-open-mensik-out-djokovic-quarterfinals/
 
 **Rep. Maxwell Alejandro Frost Is Assaulted at Sundance Film Festival**\
