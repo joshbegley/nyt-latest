@@ -1,3 +1,7 @@
+**Trump Just Proved Carney’s Point**\
+`The prime minister sees Trump all too well.`\
+https://nytimes.com/2026/01/25/opinion/trump-carney-davos-canada-greenland.html
+
 **Pro-Israel Group Targets a Former Ally in an Early Congressional Race**\
 `A super PAC affiliated with the American Israel Public Affairs Committee is running ads against Tom Malinowski, who is hoping to replace Gov. Mikie Sherrill of New Jersey in the House.`\
 https://nytimes.com/2026/01/25/nyregion/new-jersey-malinowski-israel-aipac.html

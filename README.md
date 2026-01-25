@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6995571/2026/01/25/liverpool-bournemouth-premier-le
 https://nytimes.com/athletic/6996737/2026/01/25/wild-fall-to-defending-champ-panthers-overtime-takeaways/
 
 **Trump Just Proved Carney’s Point**\
-`The prime minister sees Trump all too well.`\
+`Canada’s prime minister sees the president all too well.`\
 https://nytimes.com/2026/01/25/opinion/trump-carney-davos-canada-greenland.html
 
 **The New York Times in Print for Sunday, Jan. 25, 2026**\
