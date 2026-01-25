@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6995571/2026/01/25/liverpool-bournemouth-premier-le
 `The Wild are tied with the Kings with an NHL-high 20 overtime games, including six of their last nine.`\
 https://nytimes.com/athletic/6996737/2026/01/25/wild-fall-to-defending-champ-panthers-overtime-takeaways/
 
-**Why the Carney Fire Is Still Burning**\
+**Trump Just Proved Carney’s Point**\
 `The prime minister sees Trump all too well.`\
 https://nytimes.com/2026/01/25/opinion/trump-carney-davos-canada-greenland.html
 
