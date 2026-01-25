@@ -1,3 +1,15 @@
+**Chris Finch, Steve Kerr address unrest in Minnesota: 'We are heartbroken'**\
+`Before Sunday's Timberwolves-Warriors game, coaches stress calm, community and thoughtfulness.`\
+https://nytimes.com/athletic/6997878/2026/01/25/chris-finch-steve-kerr-unrest-minnesota/
+
+**George Cabot Lodge, Last of His Family to Battle a Kennedy, Dies at 98**\
+`The two Massachusetts clans faced off in elections for decades, until a final 1962 Senate race. Despite his loss, Mr. Lodge praised his opponent, Ted Kennedy.`\
+https://nytimes.com/2026/01/25/obituaries/george-cabot-lodge-dead.html
+
+**'Wienie 500' to return to Indianapolis Motor Speedway for second helping of viral race**\
+`The 2026 edition of the race will be held on May 22, two days before the Indy 500, and broadcast live on Fox. `\
+https://nytimes.com/athletic/6995843/2026/01/25/wienie-500-indianapolis-motor-speedway-returns/
+
 **Patriots hold off Broncos in wintry AFC Championship Game, advance to Super Bowl LX**\
 `A third-quarter field goal from Andy Borregales proved to be the difference as the Patriots earned a hard-fought, 10-7 victory on the road.`\
 https://nytimes.com/athletic/6997739/2026/01/25/patriots-broncos-score-result-takeaways-afc-championship-game/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/25/business/media/fox-news-minneapolis-shooting.html
 **Steelers owner: 'We've left the door open' for Aaron Rodgers' return**\
 `Art Rooney II made the comments to a reporter from the team's official website.`\
 https://nytimes.com/athletic/6997806/2026/01/25/pittsburgh-steelers-aaron-rodgers-return/
-
-**The snow will still fall in Maine, just later than everywhere else.**\
-`By Jenna Russell and Sydney Cromwell`\
-https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/the-snow-will-still-fall-in-maine-just-later-than-everywhere-else
-
-**Liverpool unwilling to sanction Robertson's Spurs move at present**\
-`The Athletic reported on Friday that Tottenham were working on a deal to sign Robertson this window.`\
-https://nytimes.com/athletic/6997743/2026/01/25/andy-robertson-transfer-liverpool-tottenham/
-
-**Longtime Chicago sports talk radio host Terry Boers dies at 75**\
-`Boers transitioned from a career as a reporter to a sports talk radio role in the early 1990s.`\
-https://nytimes.com/athletic/6997656/2026/01/25/chicago-sports-radio-terry-boers-dies/
 
