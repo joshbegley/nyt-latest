@@ -1,3 +1,11 @@
+**Longtime Chicago sports talk radio host Terry Boers dies at 75**\
+`Boers transitioned from a career as a reporter to a sports talk radio role in the early 1990s.`\
+https://nytimes.com/athletic/6997656/2026/01/25/chicago-sports-radio-terry-boers-dies/
+
+**Columbia Selects University of Wisconsin Chancellor as Its President**\
+`Jennifer Mnookin has led the flagship campus of the state university system since 2022.`\
+https://nytimes.com/2026/01/25/nyregion/columbia-president-wisconsin-mnookin.html
+
 **People Protest Federal Immigration Agents After Fatal Shooting**\
 `People protested the death of Alex Jeffrey Pretti, whom federal agents fatally shot during demonstrations against a ramped-up immigration enforcement effort by the Trump administration.`\
 https://nytimes.com/video/us/politics/100000010667105/ice-minneapolis-minnesota-alex-pretti.html

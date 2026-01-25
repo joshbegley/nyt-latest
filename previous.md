@@ -1,3 +1,11 @@
+**Longtime Chicago sports talk radio host Terry Boers dies at 75**\
+`Boers transitioned from a career as a reporter to a sports talk radio role in the early 1990s.`\
+https://nytimes.com/athletic/6997656/2026/01/25/chicago-sports-radio-terry-boers-dies/
+
+**Columbia Selects University of Wisconsin Chancellor as Its President**\
+`Jennifer Mnookin has led the flagship campus of the state university system since 2022.`\
+https://nytimes.com/2026/01/25/nyregion/columbia-president-wisconsin-mnookin.html
+
 **People Protest Federal Immigration Agents After Fatal Shooting**\
 `People protested the death of Alex Jeffrey Pretti, whom federal agents fatally shot during demonstrations against a ramped-up immigration enforcement effort by the Trump administration.`\
 https://nytimes.com/video/us/politics/100000010667105/ice-minneapolis-minnesota-alex-pretti.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6997426/2026/01/25/minneapolis-shooting-athlete-pro
 **Deputy attorney general takes a measured tone after Trump officials call the shooting victim a terrorist.**\
 `Other senior officials in the Trump administration continued to cast blame on the man shot by federal agents.`\
 https://nytimes.com/live/2026/01/25/us/minneapolis-shooting-ice/deputy-attorney-general-takes-a-measured-tone-after-trump-officials-call-the-shooting-victim-a-terrorist
-
-**What Causes Thundersnow, One of Weather’s Rarest Spectacles**\
-`A clap of thunder can come as a surprise in the steady calm of falling snow. Here’s what causes it.`\
-https://nytimes.com/article/what-is-thundersnow.html
-
-**Miami LB Mohamed Toure will return for eighth season: Reports**\
-`Toure, who has two lost seasons to injury, joined the Hurricanes for the 2025 season.`\
-https://nytimes.com/athletic/6997346/2026/01/25/miami-lb-mohamed-toure-return/
 
