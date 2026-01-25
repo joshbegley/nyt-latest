@@ -1,3 +1,7 @@
+**Pie Nut**\
+`There’s a lot to love in Erica Hsiung Wojcik’s punny puzzle.`\
+https://nytimes.com/2026/01/25/crosswords/daily-puzzle-2026-01-26.html
+
 **On Broadway, frustration mounts as curtains rise amid the snowfall.**\
 `By Taylor Robinson and Derrick Bryson Taylor`\
 https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/broadway-winter-storm-closures
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/25/nyregion/columbia-president-wisconsin-mnookin.htm
 **People Protest Federal Immigration Agents After Fatal Shooting**\
 `People protested the death of Alex Jeffrey Pretti, whom federal agents fatally shot during demonstrations against a ramped-up immigration enforcement effort by the Trump administration.`\
 https://nytimes.com/video/us/politics/100000010667105/ice-minneapolis-minnesota-alex-pretti.html
-
-**Suns star Devin Booker to miss at least a week with ankle injury**\
-`Booker had scored 31 points Friday before stepping on the foot of Atlanta center Onyeka Okongwu.`\
-https://nytimes.com/athletic/6997783/2026/01/25/devin-booker-injury-status-right-ankle-sprain/
 
