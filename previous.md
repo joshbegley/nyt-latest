@@ -1,3 +1,11 @@
+**Alabama's Charles Bediako returns for Alabama despite G League stint**\
+`Bediako spent three seasons on a two-way contract with the San Antonio Spurs, but has never logged any NBA minutes.`\
+https://nytimes.com/athletic/6996600/2026/01/24/alabama-charles-bediako-eligibility-g-league/
+
+**Luka Dončić, Lakers cap 15-point comeback vs. Mavericks with high-energy finish**\
+`Dončić sealed the win with a magical side-stepping layup, immediately followed by a drawn charge.`\
+https://nytimes.com/athletic/6996629/2026/01/24/luka-doncic-lebron-james-lakers-mavericks-comeback/
+
 **Officials aren't helping 76ers, but inconsistency remains bigger issue**\
 `Watching the 76ers play, the upside is clear. But recurring issues could keep them from reaching their ceiling.`\
 https://nytimes.com/athletic/6996389/2026/01/24/76ers-loss-knicks-tyrese-maxey-joel-embiid-struggles/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6996317/2026/01/24/aaron-sims-ahl-coldest-hockey-ga
 **Craig Kimbrel, Mets agree to minor league deal: Sources**\
 `The 37-year-old reliever will earn a base salary of $2.5 million if he cracks the Mets' roster, league sources said.`\
 https://nytimes.com/athletic/6996486/2026/01/24/craig-kimbrel-mets-deal-minors/
-
-**Giants, Logan Webb draw a record crowd as FanFest branches out to the East Bay**\
-`It was a deliberate choice for the Giants to add a new stop on their caravan in territory that used to belong to their Bay Area rivals.`\
-https://nytimes.com/athletic/6996442/2026/01/24/sf-giants-logan-webb-record-crowd-east-bay-fanfest-athletics/
-
-**In Nashville, enduring the cold, for the right shot.**\
-`By Jamie McGee`\
-https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/nashville-snow-music-video
 

@@ -1,3 +1,11 @@
+**Alabama's Charles Bediako returns for Alabama despite G League stint**\
+`Bediako spent three seasons on a two-way contract with the San Antonio Spurs, but has never logged any NBA minutes.`\
+https://nytimes.com/athletic/6996600/2026/01/24/alabama-charles-bediako-eligibility-g-league/
+
+**Luka Dončić, Lakers cap 15-point comeback vs. Mavericks with high-energy finish**\
+`Dončić sealed the win with a magical side-stepping layup, immediately followed by a drawn charge.`\
+https://nytimes.com/athletic/6996629/2026/01/24/luka-doncic-lebron-james-lakers-mavericks-comeback/
+
 **Officials aren't helping 76ers, but inconsistency remains bigger issue**\
 `Watching the 76ers play, the upside is clear. But recurring issues could keep them from reaching their ceiling.`\
 https://nytimes.com/athletic/6996389/2026/01/24/76ers-loss-knicks-tyrese-maxey-joel-embiid-struggles/
