@@ -1,3 +1,11 @@
+**Patriots hold off Broncos in wintry AFC Championship Game, advance to Super Bowl LX**\
+`A third-quarter field goal from Andy Borregales proved to be the difference as the Patriots earned a hard-fought, 10-7 victory on the road.`\
+https://nytimes.com/athletic/6997739/2026/01/25/patriots-broncos-score-result-takeaways-afc-championship-game/
+
+**In Visits to Dealerships, Pair Schemed to Steal High-End Vehicles, Police Say**\
+`An organized theft ring in Connecticut, New Jersey and New York swapped or quickly cloned key fobs to steal millions of dollars’ worth of vehicles, officials said.`\
+https://nytimes.com/2026/01/25/nyregion/car-theft-ring.html
+
 **Pie Nut**\
 `There’s a lot to love in Erica Hsiung Wojcik’s punny puzzle.`\
 https://nytimes.com/2026/01/25/crosswords/daily-puzzle-2026-01-26.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6997743/2026/01/25/andy-robertson-transfer-liverpoo
 **Longtime Chicago sports talk radio host Terry Boers dies at 75**\
 `Boers transitioned from a career as a reporter to a sports talk radio role in the early 1990s.`\
 https://nytimes.com/athletic/6997656/2026/01/25/chicago-sports-radio-terry-boers-dies/
-
-**Columbia Selects University of Wisconsin Chancellor as Its President**\
-`Jennifer Mnookin has led the flagship campus of the state university system since 2022.`\
-https://nytimes.com/2026/01/25/nyregion/columbia-president-wisconsin-mnookin.html
-
-**People Protest Federal Immigration Agents After Fatal Shooting**\
-`People protested the death of Alex Jeffrey Pretti, whom federal agents fatally shot during demonstrations against a ramped-up immigration enforcement effort by the Trump administration.`\
-https://nytimes.com/video/us/politics/100000010667105/ice-minneapolis-minnesota-alex-pretti.html
 

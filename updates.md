@@ -1,3 +1,7 @@
+**Pie Nut**\
+`There’s a lot to love in Erica Hsiung Wojcik’s punny puzzle.`\
+https://nytimes.com/2026/01/25/crosswords/daily-puzzle-2026-01-26.html
+
 **On Broadway, frustration mounts as curtains rise amid the snowfall.**\
 `By Taylor Robinson and Derrick Bryson Taylor`\
 https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/broadway-winter-storm-closures
