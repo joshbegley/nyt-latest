@@ -1,3 +1,15 @@
+**How to watch Vanderbilt vs. South Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6996940/2026/01/25/vanderbilt-vs-south-carolina-stream-how-to-watch-jan-25/
+
+**How to watch USC vs. Michigan women's basketball: Time, TV, streaming**\
+`Find out how to watch the USC Trojans play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6996936/2026/01/25/usc-vs-michigan-stream-how-to-watch-jan-25/
+
+**How to watch UCLA vs. Northwestern women's basketball: Time, TV, streaming**\
+`Find out how to watch the UCLA Bruins play the Northwestern Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6996934/2026/01/25/ucla-vs-northwestern-stream-how-to-watch-jan-25/
+
 **Leicester City board to hold talks over manager Cifuentes' future**\
 `Leicester are nine points above the relegation zone and face a possible points deduction for breaches of profit and sustainability rules.`\
 https://nytimes.com/athletic/6996890/2026/01/25/marti-cifuentes-leicester-manager-future/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/25/briefing/a-shooting-in-minneapolis.html
 **Mikaela Shiffrin dominates final slalom before Olympics, gets 108th World Cup win**\
 `Shiffrin won for the seventh time in eight slalom races this year, clinching the crystal globe and stamping her place as Olympic favorite.`\
 https://nytimes.com/athletic/6996884/2026/01/25/mikaela-shiffrin-olympics-world-cup-slalom-spindleruv/
-
-**NFC Championship Game viewing guide for Rams vs. Seahawks, Part III**\
-`The last Rams vs. Seahawks game was a classic. Sunday's rematch is for the conference title and a trip to the Super Bowl.`\
-https://nytimes.com/athletic/6990927/2026/01/25/rams-seahawks-nfc-championship-nfl-playoff-records/
-
-**Who is Blades Brown, the 18-year-old who shot a 60 at The American Express?**\
-`The teenager from Nashville ,Tenn., certainly seems to be on track to become a well-known name on the PGA Tour.`\
-https://nytimes.com/athletic/6996496/2026/01/25/who-is-blades-brown-amex-pga-tournament/
-
-**'Our trophy': Derrick Rose's No. 1 banner will fly forever in Chicago**\
-`Rose's image was everywhere at the sold-out United Center as Chicago celebrated who he was and still is, someone very special to the city.`\
-https://nytimes.com/athletic/6996694/2026/01/25/derrick-rose-bulls-jersey-retired-no-1/
 

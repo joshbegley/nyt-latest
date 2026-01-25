@@ -1,3 +1,15 @@
+**How to watch Vanderbilt vs. South Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6996940/2026/01/25/vanderbilt-vs-south-carolina-stream-how-to-watch-jan-25/
+
+**How to watch USC vs. Michigan women's basketball: Time, TV, streaming**\
+`Find out how to watch the USC Trojans play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6996936/2026/01/25/usc-vs-michigan-stream-how-to-watch-jan-25/
+
+**How to watch UCLA vs. Northwestern women's basketball: Time, TV, streaming**\
+`Find out how to watch the UCLA Bruins play the Northwestern Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6996934/2026/01/25/ucla-vs-northwestern-stream-how-to-watch-jan-25/
+
 **Leicester City board to hold talks over manager Cifuentes' future**\
 `Leicester are nine points above the relegation zone and face a possible points deduction for breaches of profit and sustainability rules.`\
 https://nytimes.com/athletic/6996890/2026/01/25/marti-cifuentes-leicester-manager-future/
