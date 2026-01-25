@@ -1,3 +1,7 @@
+**Most coaches would be thrilled to be 19-1. Not UConn's Dan Hurley**\
+`Hurley's UConn team might still be a work in progress, but one that, no matter what, just wins anyway.`\
+https://nytimes.com/athletic/6996402/2026/01/24/dan-hurley-uconn-quest-for-perfection-record/
+
 **AHL announcer braves -8 temperatures to call game: 'I would do it again'**\
 `Milwaukee Admirals announcer Aaron Sims called the coldest outdoor professional hockey game in AHL and NHL history Friday.`\
 https://nytimes.com/athletic/6996317/2026/01/24/aaron-sims-ahl-coldest-hockey-game/
