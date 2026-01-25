@@ -1,40 +1,40 @@
-**Here’s the latest.**\
-`By J. David Goodman, Amy Graff, Judson Jones, Jonathan Wolfe and Mike Ives`\
-https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/heres-the-latest
+**For Brady and Matthew Tkachuk, the Olympics are a dream — and a chance to build on a family legacy**\
+`Matthew and Brady Tkachuk represented the U.S. at 4 Nations but say the Olympics will be "a dream come true."`\
+https://nytimes.com/athletic/6992102/2026/01/25/brady-matthew-keith-tkachuk-olympics-legacy/
 
-**Live Updates: Major Storm to Pound Northeast With Snow and Ice**\
-``\
-https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice
+**Trade or re-sign? Bruins have a pending decision with Andrew Peeke**\
+`Trade uncertainty isn't new for Peeke, and his fate depends on the Bruins’ progress before the March 8 deadline.`\
+https://nytimes.com/athletic/6996602/2026/01/25/bruins-andrew-peeke-nhl-trade-deadline/
 
-**Rams-Seahawks chess match, Broncos' mission impossible among NFL title game storylines**\
-`Can Jarrett Stidham join the ranks of backup QBs to go on a Super Bowl run? Who wins Round 3 of the Sean McVay-Mike Macdonald showdown?`\
-https://nytimes.com/athletic/6991438/2026/01/25/nfl-nfc-afc-conference-championship-patriots-broncos-rams-seahawks/
+**Minneapolis and Gaza Now Share the Same Violent Language**\
+`When ICE and Hamas start looking the same, we are all in trouble.`\
+https://nytimes.com/2026/01/25/opinion/minneapolis-gaza-masked-violence.html
 
-**The New York Times International Edition in Print for Monday, Jan. 26, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/01/25/todays-new-york-times-international-edition
+**How College Can Tear Us Apart**\
+`If illiberalism is the problem, what is the cure?`\
+https://nytimes.com/2026/01/25/opinion/college-thinking-illiberalism.html
 
-**Watching America Unravel in Minneapolis**\
-`What I saw, as federal agents stormed the city and residents banded together to protect themselves, was a dark, dystopian future becoming reality.`\
-https://nytimes.com/2026/01/25/magazine/minneapolis-trump-ice-protests-minnesota.html
+**After all of these years, Sidney Crosby's impact remains as strong as ever**\
+`Crosby's impact on hockey fans — young and old — is perhaps unlike anything we've ever seen in the sport. `\
+https://nytimes.com/athletic/6996379/2026/01/25/penguins-sidney-crosby-nhl-canucks/
 
-**He Helped Make Mamdani. Can He Make Others?**\
-`Part casting director, part media guru, Morris Katz is behind the biggest Democratic campaigns this cycle.`\
-https://nytimes.com/2026/01/25/style/morris-katz-political-strategest-mamdani.html
+**John Kerry: We’ll Miss Alliances When They’re Gone**\
+`The former U.S. secretary of state warns that, between the Greenland deal and Trump’s trashing of the world order, America is losing.`\
+https://nytimes.com/2026/01/25/opinion/john-kerry-greenland-alliances.html
 
-**Trump Pushes A.I. Data Centers, but the G.O.P. Is Cool to One in Alabama**\
-`Residents also oppose a data center the size of 18 Walmarts that is set to be built in pristine woodland outside Bessemer, Ala. “All this will be gone,” one said.`\
-https://nytimes.com/2026/01/25/us/politics/trump-ai.html
+**Mason Marchment continues to impress after trade as Blue Jackets keep rolling**\
+`Marchment's third career hat trick led the way for the resurgent Blue Jackets, who beat the Tampa Bay Lightning 8-5 on Saturday,`\
+https://nytimes.com/athletic/6996562/2026/01/25/mason-marchment-blue-jackets-hat-trick/
 
-**High January Is the New Dry January**\
-`Sales of beverages containing hemp-derived THC are rising as consumers look for the buzz without the booze. But a new federal law could push them off shelves.`\
-https://nytimes.com/2026/01/25/business/cannabis-thc-alcoholic-beverages.html
+**The Sunday Daily: We Underestimated the Neanderthal**\
+`DNA mapping has revealed a closer connection to our evolutionary relatives.`\
+https://nytimes.com/2026/01/25/podcasts/the-daily/the-sunday-daily-we-underestimated-the-neanderthal.html
 
-**In Venezuela, Families Search for Relatives Who Are Detained and Missing**\
-`Even as dozens of political prisoners have been freed, at least 66 people taken by state authorities and never heard from again remain missing, relatives and rights groups say.`\
-https://nytimes.com/2026/01/25/world/americas/in-venezuela-families-search-for-relatives-who-are-detained-and-missing.html
+**AFC Championship Game watch guide: Patriots-Broncos broadcast notes, playoff history**\
+`Denver and New England meet for the sixth time in the playoffs. Sunday's winner will rep the AFC in the Super Bowl.`\
+https://nytimes.com/athletic/6990228/2026/01/25/patriots-broncos-afc-championship-game-tv-nfl-playoffs/
 
-**For Leonard Williams of the Seahawks, Florida Is the End Zone**\
-`In the football offseason, the defensive tackle for Seattle, and his wife, Hailey, return to their sunny place.`\
-https://nytimes.com/2026/01/25/realestate/seattle-seahawk-leonard-williams-florida-home.html
+**Trump Is Right About the Arctic. He’s Wrong About Greenland.**\
+`The area most U.S. Arctic strategists think needs the most immediate development is not Greenland but the Bering Sea, almost 3,000 miles away.`\
+https://nytimes.com/2026/01/25/opinion/trump-arctic-greenland.html
 
