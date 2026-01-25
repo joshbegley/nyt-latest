@@ -1,3 +1,7 @@
+**What the odds sheet tells us about 2025 Topps Stadium Club Baseball**\
+`Our writer calculates what Topps' odds sheet reveals about what is and isn't in 2025 Stadium Club. `\
+https://nytimes.com/athletic/6994084/2026/01/25/2025-topps-stadium-club-baseball-odds-analysis/
+
 **How to watch Kings vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Sacramento Kings play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6996966/2026/01/25/kings-vs-pistons-stream-how-to-watch-jan-25/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6996940/2026/01/25/vanderbilt-vs-south-carolina-str
 **How to watch USC vs. Michigan women's basketball: Time, TV, streaming**\
 `Find out how to watch the USC Trojans play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6996936/2026/01/25/usc-vs-michigan-stream-how-to-watch-jan-25/
-
-**How to watch UCLA vs. Northwestern women's basketball: Time, TV, streaming**\
-`Find out how to watch the UCLA Bruins play the Northwestern Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6996934/2026/01/25/ucla-vs-northwestern-stream-how-to-watch-jan-25/
 
