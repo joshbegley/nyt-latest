@@ -1,3 +1,7 @@
+**Floyd Vivino, Throwback Comedian Known as Uncle Floyd, Dies at 74**\
+`His silly, vaudeville-style variety show was filled with his piano playing, skits, puppets and guest stars like Cyndi Lauper and Bon Jovi.`\
+https://nytimes.com/2026/01/25/nyregion/floyd-vivino-dead.html
+
 **How to watch Nets vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6997501/2026/01/25/nets-vs-clippers-stream-how-to-watch-jan-25/
