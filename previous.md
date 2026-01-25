@@ -1,3 +1,11 @@
+**Rams-Seahawks chess match, Broncos' mission impossible among NFL title game storylines**\
+`Can Jarrett Stidham join the ranks of backup QBs to go on a Super Bowl run? Who wins Round 3 of the Sean McVay-Mike Macdonald showdown?`\
+https://nytimes.com/athletic/6991438/2026/01/25/nfl-nfc-afc-conference-championship-patriots-broncos-rams-seahawks/
+
+**The New York Times International Edition in Print for Monday, Jan. 26, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/25/todays-new-york-times-international-edition
+
 **Watching America Unravel in Minneapolis**\
 `What I saw, as federal agents stormed the city and residents banded together to protect themselves, was a dark, dystopian future becoming reality.`\
 https://nytimes.com/2026/01/25/magazine/minneapolis-trump-ice-protests-minnesota.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/25/arts/robert-burns-portrait-henry-raeburn.html
 **How Iran Crushed a Citizen Uprising With Lethal Force**\
 `After scattered protests started last month, Iranians revolted en masse. The security forces cracked down, and the death toll has now reached 5,200.`\
 https://nytimes.com/2026/01/25/world/middleeast/iran-how-crackdown-was-done.html
-
-**Madison Keys and Jessica Pegula, key to tennis' push for change, meet at Australian Open**\
-`Two of the top American players are close friends, fierce rivals — and drivers of a campaign for change in tennis.`\
-https://nytimes.com/athletic/6996656/2026/01/25/madison-keys-and-jessica-pegula-key-to-tennis-push-for-change-meet-at-australian-open/
-
-**Is a Novel Her Revenge? Or Does She Have Worse in Mind?**\
-`An artist knocked off her path by a manipulative professor is at the center of Larissa Pham’s spare and troubling new book, “Discipline.”`\
-https://nytimes.com/2026/01/25/books/review/discipline-larissa-pham.html
 

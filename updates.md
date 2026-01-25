@@ -1,3 +1,11 @@
+**Rams-Seahawks chess match, Broncos' mission impossible among NFL title game storylines**\
+`Can Jarrett Stidham join the ranks of backup QBs to go on a Super Bowl run? Who wins Round 3 of the Sean McVay-Mike Macdonald showdown?`\
+https://nytimes.com/athletic/6991438/2026/01/25/nfl-nfc-afc-conference-championship-patriots-broncos-rams-seahawks/
+
+**The New York Times International Edition in Print for Monday, Jan. 26, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/25/todays-new-york-times-international-edition
+
 **Watching America Unravel in Minneapolis**\
 `What I saw, as federal agents stormed the city and residents banded together to protect themselves, was a dark, dystopian future becoming reality.`\
 https://nytimes.com/2026/01/25/magazine/minneapolis-trump-ice-protests-minnesota.html
