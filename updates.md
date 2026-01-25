@@ -1,3 +1,7 @@
+**Branches and power lines come crashing down in Nashville under sheaths of ice.**\
+`By Emily Cochrane and Jamie McGee`\
+https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/branches-and-power-lines-come-crashing-down-in-nashville-under-sheaths-of-ice
+
 **Stewart, Haliburton, other athletes protest after fatal Minneapolis shooting**\
 `Stewart, the two-time WNBA MVP, held an “Abolish ICE” sign during player introductions ahead of her Unrivaled matchup.`\
 https://nytimes.com/athletic/6997426/2026/01/25/minneapolis-shooting-athlete-protests-tyrese-haliburton-breanna-stewart/
