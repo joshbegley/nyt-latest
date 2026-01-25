@@ -1,3 +1,11 @@
+**She's back. Trinity Rodman scores goal in first USWNT game as captain**\
+`"When it went in, I was, like, 'All right, it's my time to shine,’" Rodman said. `\
+https://nytimes.com/athletic/6996572/2026/01/24/trinity-rodman-uswnt-first-goal-captain/
+
+**Alabama's Charles Bediako returns for Alabama despite G League stint**\
+`Bediako spent three seasons on a two-way contract with the San Antonio Spurs, but he never logged any NBA minutes.`\
+https://nytimes.com/athletic/6996600/2026/01/24/alabama-charles-bediako-eligibility-g-league/
+
 **In Court Filings, Witnesses Describe Fatal Minneapolis Shooting of Alex Pretti**\
 `The filings raise further questions about the federal government’s narrative of what happened before federal agents shot Alex Jeffrey Pretti on Saturday.`\
 https://nytimes.com/2026/01/24/us/witnesses-alex-pretti-shooting.html
