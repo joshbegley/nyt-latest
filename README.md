@@ -1,3 +1,15 @@
+**Pistons' J.B. Bickerstaff to coach one of three All-Star teams**\
+`Bickerstaff becomes the first Detroit All-Star head coach since the late Flip Saunders, who coached during the 2006 All-Star game.`\
+https://nytimes.com/athletic/6996596/2026/01/25/jb-bickerstaff-pistons-coach-nba-all-star-game/
+
+**Beth Mead still has huge value to Arsenal, despite questions over her future**\
+`Mead scored her first WSL goal of the season, as Arsenal won at Chelsea for the first time since 2018...`\
+https://nytimes.com/athletic/6995798/2026/01/25/beth-mead-still-has-huge-value-to-arsenal-despite-questions-over-her-future/
+
+**How France won the 1998 World Cup: A resolute defence, Zidane's headers and a fanbase who fell in love**\
+`Michael Cox's history of World Cup winners reaches 1998 and France's triumphant victory on home soil`\
+https://nytimes.com/athletic/6993634/2026/01/25/how-france-won-1998-world-cup/
+
 **The Plotzes and Zetzes of a Life in the Musical Trenches**\
 `Broadway, Hollywood and television have been kind to Marc Shaiman. But there’s a reason the subtitle of his new memoir is “Showbiz Stories From a Sore Winner.”`\
 https://nytimes.com/2026/01/25/theater/marc-shaiman-hairspray-memoir.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6995669/2026/01/25/connections-sports-edition-hints
 **Brady Tkachuk on the NHL's return To Olympic hockey and the USA-Canada rivalry**\
 `In two weeks, the Milan-Cortina Winter Olympics will begin in Italy, and anticipation is mounting for one of the biggest rematches in world hockey.`\
 https://nytimes.com/athletic/6994222/2026/01/25/the-athletic-show-brady-tkachuk-team-usa-olympics-hockey/
-
-**No corrections appeared in print on Sunday, Jan. 25, 2026.**\
-`Corrections that appeared in print on Sunday, Jan. 25, 2026.`\
-https://nytimes.com/2026/01/25/pageoneplus/no-corrections-appeared-in-print-on-sunday-jan-25-2026.html
-
-**She's back. Trinity Rodman scores goal in first USWNT game as captain**\
-`"When it went in, I was, like, 'All right, it's my time to shine,’" Rodman said. `\
-https://nytimes.com/athletic/6996572/2026/01/24/trinity-rodman-uswnt-first-goal-captain/
-
-**In Court Filings, Witnesses Describe Fatal Minneapolis Shooting of Alex Pretti**\
-`The filings raise further questions about the federal government’s narrative of what happened before federal agents shot Alex Jeffrey Pretti on Saturday.`\
-https://nytimes.com/2026/01/24/us/witnesses-alex-pretti-shooting.html
 
