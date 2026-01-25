@@ -1,3 +1,11 @@
+**On Being Inconvenienced**\
+`After an alleged arson attack on a synagogue, one church in Jackson, Miss. opened its doors.`\
+https://nytimes.com/2026/01/25/briefing/on-being-inconvenienced.html
+
+**President Trump announces he will not attend Super Bowl this year**\
+`Trump attended the Super Bowl last year in New Orleans.`\
+https://nytimes.com/athletic/6997918/2026/01/25/trump-skipping-super-bowl-halftime-bad-bunny-green-day/
+
 **Chris Finch, Steve Kerr address unrest in Minnesota: 'We are heartbroken'**\
 `Before Sunday's Timberwolves-Warriors game, coaches stress calm, community and thoughtfulness.`\
 https://nytimes.com/athletic/6997878/2026/01/25/chris-finch-steve-kerr-unrest-minnesota/

@@ -1,3 +1,11 @@
+**On Being Inconvenienced**\
+`After an alleged arson attack on a synagogue, one church in Jackson, Miss. opened its doors.`\
+https://nytimes.com/2026/01/25/briefing/on-being-inconvenienced.html
+
+**President Trump announces he will not attend Super Bowl this year**\
+`Trump attended the Super Bowl last year in New Orleans.`\
+https://nytimes.com/athletic/6997918/2026/01/25/trump-skipping-super-bowl-halftime-bad-bunny-green-day/
+
 **Chris Finch, Steve Kerr address unrest in Minnesota: 'We are heartbroken'**\
 `Before Sunday's Timberwolves-Warriors game, coaches stress calm, community and thoughtfulness.`\
 https://nytimes.com/athletic/6997878/2026/01/25/chris-finch-steve-kerr-unrest-minnesota/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/broadway-winter-sto
 **South Carolina cruises past Vanderbilt, ending its undefeated season**\
 `With Vandy's loss, UConn is now the lone undefeated team in the top 25.`\
 https://nytimes.com/athletic/6997834/2026/01/25/south-carolina-vanderbilt-first-loss-of-season/
-
-**Most Fox News Reporting on Minneapolis Shooting Supports Official Version**\
-`Fox anchors were laser focused on promoting the Trump administration’s narrative that the slain protester, Alex Pretti, had brought the violence upon himself.`\
-https://nytimes.com/2026/01/25/business/media/fox-news-minneapolis-shooting.html
-
-**Steelers owner: 'We've left the door open' for Aaron Rodgers' return**\
-`Art Rooney II made the comments to a reporter from the team's official website.`\
-https://nytimes.com/athletic/6997806/2026/01/25/pittsburgh-steelers-aaron-rodgers-return/
 
