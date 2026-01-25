@@ -1,3 +1,7 @@
+**Read a Witness Statement on the Pretti Shooting**\
+`A person who described themselves as a children’s entertainer said they witnessed the shooting of Alex Pretti in Minneapolis on Saturday.`\
+https://nytimes.com/interactive/2026/01/25/us/govuscourtsmnd22975810701.html
+
 **The problems are glaring. Liverpool need major surgery this summer and it won't come cheap**\
 `Pressure and scrutiny have once again been cranked up on Arne Slot after Liverpool's undefeated run was ended by Bournemouth`\
 https://nytimes.com/athletic/6995571/2026/01/25/liverpool-bournemouth-premier-league-analysis/

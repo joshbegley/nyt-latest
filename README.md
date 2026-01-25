@@ -1,5 +1,9 @@
 **Read a Witness Statement on the Pretti Shooting**\
-`A person who described themselves as a children’s entertainer said they witnessed the shooting of Alex Pretti in Minneapolis on Saturday.`\
+`A doctor described in a sworn court filing how agents initially hesitated when the doctor tried to approach and render aid to Alex Jeffrey Pretti in Minneapolis on Saturday.`\
+https://nytimes.com/interactive/2026/01/25/us/pretti-witness-statement-from-doctor.html
+
+**Read a Witness Statement on the Pretti Shooting**\
+`A person who described themselves as a children’s entertainer said they witnessed the shooting of Alex Jeffrey Pretti in Minneapolis on Saturday.`\
 https://nytimes.com/interactive/2026/01/25/us/govuscourtsmnd22975810701.html
 
 **The problems are glaring. Liverpool need major surgery this summer and it won't come cheap**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995991/2026/01/25/haaland-man-city-left-out-wolves
 **Arsenal showed Chelsea are beatable. What does that mean for the title race?**\
 `Arsenal punctured Chelsea's air of invincibility... could it be a game-changer for other teams as well?`\
 https://nytimes.com/athletic/6995917/2026/01/25/chelsea-arsenal-wsl-title-race/
-
-**Edwards expects late 'action' for Wolves in transfer window. But it's a delicate balance...**\
-`Wolves need to 'freshen up' their squad before the transfer window closes. But they must be wary of building momentum too`\
-https://nytimes.com/athletic/6996027/2026/01/25/edwards-expects-late-action-for-wolves-in-transfer-window-but-its-a-delicate-balance/
 
