@@ -1,3 +1,7 @@
+**Museums From Texas to Massachusetts Close for Storm, but Broadway Shows Go On**\
+`The Smithsonian said all of its museums, research centers and the National Zoo would be closed on Sunday and Monday. Most Broadway shows were still expected to make their curtains.`\
+https://nytimes.com/2026/01/25/us/museums-broadway-storm-closed.html
+
 **Winter Storm Drives U.S. Flight Cancellations to Pandemic-Level Numbers**\
 `More than 8,230 departures were canceled on Sunday, more than on any other day since the beginning of the Covid-19 pandemic.`\
 https://nytimes.com/2026/01/25/weather/winter-storm-flight-delays-cancellations.html
@@ -18,11 +22,11 @@ https://nytimes.com/2026/01/25/dining/when-pancakes-met-oatmeal.html
 `The 31-year-old will miss a crucial run of fixtures for his club but should recover in time for Scotland's first World Cup in 28 years.`\
 https://nytimes.com/athletic/6996806/2026/01/25/john-mcginn-aston-villa-injury-news-scotland/
 
-**The Briefing: Palace 1 Chelsea 3 - Estevao X-factor, penalty explained and Palmer absence**\
+**Crystal Palace 1 Chelsea 3 – Estevao X-factor, why were Chelsea given penalty and Palmer absence**\
 `Chelsea beat Crystal Palace 3-1 on Sunday afternoon to continue Liam Rosenior's good start to life in the dugout`\
 https://nytimes.com/athletic/6990972/2026/01/25/crystal-palace-chelsea-result-report-analysis/
 
-**NYCFC finalising deal for Schalke forward Moussa Sylla**\
+**NYCFC finalizing deal for Schalke forward Moussa Sylla**\
 `The Mali international has registered four goals and two assists in 17 appearances for the German second-tier leaders this season.`\
 https://nytimes.com/athletic/6997088/2026/01/25/moussa-sylla-nycfc-schalke-deal-transfer-news/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6996668/2026/01/25/you-dont-realize-just-how-long-j
 **Packers hiring ex-Cardinals HC Jonathan Gannon as defensive coordinator**\
 `The Packers have several looming questions on defense that will get answers this offseason.`\
 https://nytimes.com/athletic/6997068/2026/01/25/jonathan-gannon-packers-defensive-coordinator-cardinals-eagles/
-
-**G.O.P. Senator Cassidy Calls for Investigation of Fatal Minnesota Shooting**\
-`The Louisiana Republican, who is facing a primary opponent backed by President Trump, said there should be a joint state and federal inquiry into the shooting death of 37-year-old Minneapolis man.`\
-https://nytimes.com/2026/01/25/us/bill-cassidy-minneapolis-investigation.html
 

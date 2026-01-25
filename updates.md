@@ -1,3 +1,7 @@
+**Winter Storm Drives U.S. Flight Cancellations to Pandemic-Level Numbers**\
+`More than 8,230 departures were canceled on Sunday, more than on any other day since the beginning of the Covid-19 pandemic.`\
+https://nytimes.com/2026/01/25/weather/winter-storm-flight-delays-cancellations.html
+
 **Newcastle 0 Aston Villa 2 - A game of spurned chances? How much did they miss Guimaraes?**\
 `Newcastle United lost at home in the Premier League for the first time since September as Aston Villa left St James' Park with a 2-0 victory`\
 https://nytimes.com/athletic/6990973/2026/01/25/newcastle-0-aston-villa-2/
