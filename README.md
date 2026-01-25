@@ -1,3 +1,15 @@
+**Flamengo in advanced Paqueta talks with West Ham after new bid**\
+`The Brazilian has not featured in West Ham's last two games.`\
+https://nytimes.com/athletic/6997060/2026/01/25/west-ham-lucas-paqueta-flamengo-transfer/
+
+**For Trump, the Truth in Minneapolis Is What He Says It Is**\
+`The Trump team has advanced one-sided narratives to justify each of the killings, even when bystander video shows something else entirely.`\
+https://nytimes.com/2026/01/25/us/politics/trump-truth-minneapolis-shootings.html
+
+**Another East Coast Storm? Don’t Buy the Hype Just Yet.**\
+`After a computer model began hinting that another storm could be on the way, meteorologists sought to tamp down speculation.`\
+https://nytimes.com/2026/01/25/weather/another-storm-forecast-noreaster.html
+
 **The Trump Administration Is Lying to Our Faces. Congress Must Act.**\
 `The Trump administration is once again engaged in a perversion of justice.`\
 https://nytimes.com/2026/01/25/opinion/alex-pretti-minneapolis-shooting-border-patrol.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/25/obituaries/marian-goodman-dead.html
 **Geese Gives ‘Saturday Night Live’ Viewers Something to Talk About**\
 `The buzzy Brooklyn band brought its off-kilter aesthetic to network TV this weekend, with performances that were both confounding and audacious.`\
 https://nytimes.com/2026/01/25/arts/music/geese-cameron-winter-saturday-night-live-snl.html
-
-**Soccer agent ‘threatened to kill’ alleged victim and her children, says court filing**\
-`Jonathan Barnett has denied all accusations against him.`\
-https://nytimes.com/athletic/6997252/2026/01/25/jonathan-barnett-lawsuit-kill/
-
-**How to watch Mavericks vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6997251/2026/01/25/mavericks-vs-bucks-stream-how-to-watch-jan-25/
-
-**How to watch Pelicans vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6997246/2026/01/25/pelicans-vs-spurs-stream-how-to-watch-jan-25/
 
