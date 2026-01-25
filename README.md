@@ -1,3 +1,11 @@
+**The snow will still fall in Maine, just later than everywhere else.**\
+`By Jenna Russell and Sydney Cromwell`\
+https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/the-snow-will-still-fall-in-maine-just-later-than-everywhere-else
+
+**Liverpool unwilling to sanction Robertson's Spurs move at present**\
+`The Athletic reported on Friday that Tottenham were working on a deal to sign Robertson this window.`\
+https://nytimes.com/athletic/6997743/2026/01/25/andy-robertson-transfer-liverpool-tottenham/
+
 **Longtime Chicago sports talk radio host Terry Boers dies at 75**\
 `Boers transitioned from a career as a reporter to a sports talk radio role in the early 1990s.`\
 https://nytimes.com/athletic/6997656/2026/01/25/chicago-sports-radio-terry-boers-dies/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/25/world/minneapolis-ice-shooting-press-freedom.html
 **Branches and power lines come crashing down in Nashville under sheaths of ice.**\
 `By Emily Cochrane and Jamie McGee`\
 https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/branches-and-power-lines-come-crashing-down-in-nashville-under-sheaths-of-ice
-
-**Stewart, Haliburton, Kerr, others protest after fatal Minneapolis shooting**\
-`Stewart, the two-time WNBA MVP, held an “Abolish ICE” sign during player introductions ahead of her Unrivaled matchup.`\
-https://nytimes.com/athletic/6997426/2026/01/25/minneapolis-shooting-athlete-protests-tyrese-haliburton-breanna-stewart/
-
-**Deputy attorney general takes a measured tone after Trump officials call the shooting victim a terrorist.**\
-`Other senior officials in the Trump administration continued to cast blame on the man shot by federal agents.`\
-https://nytimes.com/live/2026/01/25/us/minneapolis-shooting-ice/deputy-attorney-general-takes-a-measured-tone-after-trump-officials-call-the-shooting-victim-a-terrorist
 
