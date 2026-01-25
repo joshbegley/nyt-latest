@@ -1,3 +1,7 @@
+**‘S.N.L.’: The Big Winner of the First Trump Awards? Guess Who.**\
+`A covetous president grabbed up all the trophies on this week’s “Saturday Night Live” broadcast, hosted by Teyana Taylor, star of “One Battle After Another.”`\
+https://nytimes.com/2026/01/25/arts/television/snl-the-big-winner-of-the-first-trump-awards-guess-who.html
+
 **S.N.L.: The Big Winner of the First Trump Awards? Guess Who**\
 `A covetous president grabbed up all the trophies on this week’s “Saturday Night Live” broadcast, hosted by Teyana Taylor, star of “One Battle After Another.”`\
 https://nytimes.com/2026/01/25/arts/television/snl-the-big-winner-of-the-first-trump-awards-guess-who.html
