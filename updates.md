@@ -1,3 +1,7 @@
+**Officials aren't helping 76ers, but inconsistency remains bigger issue**\
+`Watching the 76ers play, the upside is clear. But recurring issues could keep them from reaching their ceiling.`\
+https://nytimes.com/athletic/6996389/2026/01/24/76ers-loss-knicks-tyrese-maxey-joel-embiid-struggles/
+
 **Gun Activists Bridle at Suggestion That Pistol Justified Killing**\
 `The National Rifle Association and others have argued citizens need guns to fend off government. The killing of Alex Jeffrey Pretti, who carried a pistol, set off debate.`\
 https://nytimes.com/2026/01/24/us/minneapolis-shooting-second-amendment.html
