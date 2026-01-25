@@ -1,3 +1,7 @@
+**Vine wins Tour Down Under after two kangaroos cause mass crash**\
+`Australia's "most dangerous thing" caused multiple riders to drop out only a day after an "extreme" fire danger rating caused disruption.`\
+https://nytimes.com/athletic/6996876/2026/01/25/tour-down-under-kangaroos-crash/
+
 **What the odds sheet tells us about 2025 Topps Stadium Club Baseball**\
 `Our writer calculates what Topps' odds sheet reveals about what is and isn't in 2025 Stadium Club. `\
 https://nytimes.com/athletic/6994084/2026/01/25/2025-topps-stadium-club-baseball-odds-analysis/
