@@ -1,3 +1,15 @@
+**Why the Carney Fire Is Still Burning**\
+`The prime minister sees Trump all too well.`\
+https://nytimes.com/2026/01/25/opinion/trump-carney-davos-canada-greenland.html
+
+**The New York Times in Print for Sunday, Jan. 25, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/25/todays-new-york-times
+
+**We Can’t Let Our Rage Define Us**\
+`I worry that for some of us, our antipathy to Trump has become part of who we are, and it can be something of a personal poison.`\
+https://nytimes.com/2026/01/25/opinion/ice-rage-identity.html
+
 **Thomas Frank has failed to do what he was brought to Tottenham Hotspur to do**\
 `Ange Postecoglou was sacked because he could not get Spurs to compete domestically as well as in Europe - Thomas Frank has the same problem`\
 https://nytimes.com/athletic/6992430/2026/01/25/frank-tottenham-burnley/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6988950/2026/01/25/appointing-caretaker-manager/
 **Arsenal vs Man Utd: How will Arteta set up? Sesko vs Gyokeres? Carrick’s tactics?**\
 `Fluctuating fortunes over the past 20 years have meant it's a long time since these clubs were the top two, vying for the league title`\
 https://nytimes.com/athletic/6991043/2026/01/25/arsenal-man-united-sesko-gyokeres/
-
-**Pistons' J.B. Bickerstaff to coach one of three All-Star teams**\
-`Bickerstaff becomes the first Detroit All-Star head coach since the late Flip Saunders, who coached during the 2006 All-Star game.`\
-https://nytimes.com/athletic/6996596/2026/01/25/jb-bickerstaff-pistons-coach-nba-all-star-game/
-
-**Beth Mead still has huge value to Arsenal, despite questions over her future**\
-`Mead scored her first WSL goal of the season, as Arsenal won at Chelsea for the first time since 2018...`\
-https://nytimes.com/athletic/6995798/2026/01/25/beth-mead-still-has-huge-value-to-arsenal-despite-questions-over-her-future/
-
-**How France won the 1998 World Cup: A resolute defence, Zidane's headers and a fanbase who fell in love**\
-`Michael Cox's history of World Cup winners reaches 1998 and France's triumphant victory on home soil`\
-https://nytimes.com/athletic/6993634/2026/01/25/how-france-won-1998-world-cup/
 

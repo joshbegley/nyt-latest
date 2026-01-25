@@ -1,3 +1,15 @@
+**Why the Carney Fire Is Still Burning**\
+`The prime minister sees Trump all too well.`\
+https://nytimes.com/2026/01/25/opinion/trump-carney-davos-canada-greenland.html
+
+**The New York Times in Print for Sunday, Jan. 25, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/25/todays-new-york-times
+
+**We Can’t Let Our Rage Define Us**\
+`I worry that for some of us, our antipathy to Trump has become part of who we are, and it can be something of a personal poison.`\
+https://nytimes.com/2026/01/25/opinion/ice-rage-identity.html
+
 **Thomas Frank has failed to do what he was brought to Tottenham Hotspur to do**\
 `Ange Postecoglou was sacked because he could not get Spurs to compete domestically as well as in Europe - Thomas Frank has the same problem`\
 https://nytimes.com/athletic/6992430/2026/01/25/frank-tottenham-burnley/
