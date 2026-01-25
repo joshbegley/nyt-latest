@@ -1,3 +1,7 @@
+**Newcastle 0 Aston Villa 2 - A game of spurned chances? How much did they miss Guimaraes?**\
+`Newcastle United lost at home in the Premier League for the first time since September as Aston Villa left St James' Park with a 2-0 victory`\
+https://nytimes.com/athletic/6990973/2026/01/25/newcastle-0-aston-villa-2/
+
 **Leicester announce Cifuentes departure with immediate effect**\
 `The club are 14th in the Championship table and are on a three-game winless streak after a defeat to Oxford United on Saturday.`\
 https://nytimes.com/athletic/6770704/2026/01/25/marti-cifuentes-leicester-city-departure/
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6997088/2026/01/25/moussa-sylla-nycfc-schalke-deal-
 https://nytimes.com/athletic/6996668/2026/01/25/you-dont-realize-just-how-long-jarrett-stidham-has-been-idling/
 
 **Packers hiring ex-Cardinals HC Jonathan Gannon as defensive coordinator**\
-`Gannon replaces outgoing DC Jeff Hafley in Green Bay after he was recently hired as the Miami Dolphins' head coach.`\
+`The Packers have several looming questions on defense that will get answers this offseason.`\
 https://nytimes.com/athletic/6997068/2026/01/25/jonathan-gannon-packers-defensive-coordinator-cardinals-eagles/
 
 **G.O.P. Senator Cassidy Calls for Investigation of Fatal Minnesota Shooting**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/25/us/bill-cassidy-minneapolis-investigation.html
 **New York City Schools Announce Remote Learning Day in Response to Storm**\
 `With as much as a foot of snow expected to fall across the city, school buildings will be closed on Monday, Mayor Zohran Mamdani said.`\
 https://nytimes.com/2026/01/25/us/nyc-school-closure-remote-learning-storm.html
-
-**Winter storm doesn't keep Mavs fans from showing love to Luka**\
-`Mavericks fans still love Dončić, and Saturday showed an impressive crowd turnout considering the weather conditions affecting North Texas.`\
-https://nytimes.com/athletic/6996762/2026/01/25/luka-doncic-mavericks-lakers-fans-support-nba/
 
