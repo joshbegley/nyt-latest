@@ -1,3 +1,7 @@
+**Soccer agent ‘threatened to kill’ alleged victim and her children, says court filing**\
+`Jonathan Barnett has denied all accusations against him.`\
+https://nytimes.com/athletic/6997252/2026/01/25/jonathan-barnett-lawsuit-kill/
+
 **How to watch Mavericks vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6997251/2026/01/25/mavericks-vs-bucks-stream-how-to-watch-jan-25/
