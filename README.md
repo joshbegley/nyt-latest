@@ -1,3 +1,7 @@
+**Winter Storm Drives U.S. Flight Cancellations to Pandemic-Level Numbers**\
+`More than 8,230 departures were canceled on Sunday, more than on any other day since the beginning of the Covid-19 pandemic.`\
+https://nytimes.com/2026/01/25/weather/winter-storm-flight-delays-cancellations.html
+
 **Newcastle 0 Aston Villa 2 - A game of spurned chances? How much did they miss Guimaraes?**\
 `Newcastle United lost at home in the Premier League for the first time since September as Aston Villa left St James' Park with a 2-0 victory`\
 https://nytimes.com/athletic/6990973/2026/01/25/newcastle-0-aston-villa-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6997068/2026/01/25/jonathan-gannon-packers-defensiv
 **G.O.P. Senator Cassidy Calls for Investigation of Fatal Minnesota Shooting**\
 `The Louisiana Republican, who is facing a primary opponent backed by President Trump, said there should be a joint state and federal inquiry into the shooting death of 37-year-old Minneapolis man.`\
 https://nytimes.com/2026/01/25/us/bill-cassidy-minneapolis-investigation.html
-
-**New York City Schools Announce Remote Learning Day in Response to Storm**\
-`With as much as a foot of snow expected to fall across the city, school buildings will be closed on Monday, Mayor Zohran Mamdani said.`\
-https://nytimes.com/2026/01/25/us/nyc-school-closure-remote-learning-storm.html
 
