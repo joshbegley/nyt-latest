@@ -1,3 +1,7 @@
+**Arthur Smith to be named Ohio State offensive coordinator: Source**\
+`Smith had conversations with the Philadelphia Eagles and Tennessee Titans before ultimately deciding to take the OC job with Ohio State.`\
+https://nytimes.com/athletic/6996399/2026/01/24/arthur-smith-ohio-state-oc-steelers/
+
 **State Terror Has Arrived**\
 `Minneapolis has made it plain.`\
 https://nytimes.com/2026/01/24/opinion/state-terror-has-arrived.html

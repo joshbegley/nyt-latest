@@ -1,3 +1,7 @@
+**Arthur Smith to be named Ohio State offensive coordinator: Source**\
+`Smith had conversations with the Philadelphia Eagles and Tennessee Titans before ultimately deciding to take the OC job with Ohio State.`\
+https://nytimes.com/athletic/6996399/2026/01/24/arthur-smith-ohio-state-oc-steelers/
+
 **State Terror Has Arrived**\
 `Minneapolis has made it plain.`\
 https://nytimes.com/2026/01/24/opinion/state-terror-has-arrived.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/24/us/dolly-plowton-debuts-in-snowy-nashville.html
 **Astros takeaways: FanFest accentuates imbalanced lineup and untenable infield surplus**\
 `Plus what Carlos Correa thinks led to Houston's 2025 injury issues, and why Spencer Arrighetti is "optimistic going into camp."`\
 https://nytimes.com/athletic/6996337/2026/01/24/astros-infield-trades-carlos-correa-injuries-fanfest/
-
-**Is no water coming out of your faucet? Here’s how to thaw frozen pipes during cold weather.**\
-`By Ashley Ahn`\
-https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/cold-weather-frozen-pipes-water-leak
 
