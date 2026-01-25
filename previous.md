@@ -1,5 +1,13 @@
+**People Protest Federal Immigration Agents After Fatal Shooting**\
+`People protested the death of Alex Jeffrey Pretti, whom federal agents fatally shot during demonstrations against a ramped-up immigration enforcement effort by the Trump administration.`\
+https://nytimes.com/video/us/politics/100000010667105/ice-minneapolis-minnesota-alex-pretti.html
+
+**Suns star Devin Booker to miss at least a week with ankle injury**\
+`Booker had scored 31 points Friday before stepping on the foot of Atlanta center Onyeka Okongwu.`\
+https://nytimes.com/athletic/6997783/2026/01/25/devin-booker-injury-status-right-ankle-sprain/
+
 **Referees' early whistle costs Patriots a touchdown, but they score 2 plays later**\
-`Had officials let Jarrett Stidham's backwards pass play out, the Patriots' Elijah Ponder would have scored a defensive touchdown.`\
+`Had officials let Jarrett Stidham's backward pass play out, the Patriots' Elijah Ponder would have scored a defensive touchdown.`\
 https://nytimes.com/athletic/6997676/2026/01/25/patriots-broncos-early-whistle-backwards-pass-fumble/
 
 **Giants coaching hires: Dennard Wilson as defensive coordinator, Chris Horton as special teams coordinator**\
@@ -29,12 +37,4 @@ https://nytimes.com/article/what-is-thundersnow.html
 **Miami LB Mohamed Toure will return for eighth season: Reports**\
 `Toure, who has two lost seasons to injury, joined the Hurricanes for the 2025 season.`\
 https://nytimes.com/athletic/6997346/2026/01/25/miami-lb-mohamed-toure-return/
-
-**While many churches canceled Sunday services, some carried on for a hardy few.**\
-`By Ruth Graham`\
-https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/churches
-
-**Once Again, Federal Officials Exclude Minnesota From Investigation of a Fatal Shooting**\
-`State officials have resorted to unconventional methods as they press forward with their own inquiries into the killings of Alex Jeffrey Pretti and Renee Good.`\
-https://nytimes.com/2026/01/25/us/federal-exclude-minnesota-shooting-investigations.html
 

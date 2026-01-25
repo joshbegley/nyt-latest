@@ -1,3 +1,15 @@
+**People Protest Federal Immigration Agents After Fatal Shooting**\
+`People protested the death of Alex Jeffrey Pretti, whom federal agents fatally shot during demonstrations against a ramped-up immigration enforcement effort by the Trump administration.`\
+https://nytimes.com/video/us/politics/100000010667105/ice-minneapolis-minnesota-alex-pretti.html
+
+**Suns star Devin Booker to miss at least a week with ankle injury**\
+`Booker had scored 31 points Friday before stepping on the foot of Atlanta center Onyeka Okongwu.`\
+https://nytimes.com/athletic/6997783/2026/01/25/devin-booker-injury-status-right-ankle-sprain/
+
+**Referees' early whistle costs Patriots a touchdown, but they score 2 plays later**\
+`Had officials let Jarrett Stidham's backward pass play out, the Patriots' Elijah Ponder would have scored a defensive touchdown.`\
+https://nytimes.com/athletic/6997676/2026/01/25/patriots-broncos-early-whistle-backwards-pass-fumble/
+
 **Referees' early whistle costs Patriots a touchdown, but they score 2 plays later**\
 `Had officials let Jarrett Stidham's backwards pass play out, the Patriots' Elijah Ponder would have scored a defensive touchdown.`\
 https://nytimes.com/athletic/6997676/2026/01/25/patriots-broncos-early-whistle-backwards-pass-fumble/
