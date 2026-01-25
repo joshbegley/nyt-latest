@@ -1,3 +1,7 @@
+**Marian Goodman, Eminent New York Art Dealer, Dies at 97**\
+`Although known for promoting German painters, she also sought out artists who shunned painting in favor of newer mediums, like photography and film.`\
+https://nytimes.com/2026/01/25/obituaries/marian-goodman-dead.html
+
 **Geese Gives ‘Saturday Night Live’ Viewers Something to Talk About**\
 `The buzzy Brooklyn band brought its off-kilter aesthetic to network TV this weekend, with performances that were both confounding and audacious.`\
 https://nytimes.com/2026/01/25/arts/music/geese-cameron-winter-saturday-night-live-snl.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6997231/2026/01/25/penguins-vs-canucks-stream-how-t
 **Museums From Texas to Massachusetts Close for Storm, but Broadway Shows Go On**\
 `The Smithsonian said all of its museums, research centers and the National Zoo would be closed on Sunday and Monday. Most Broadway shows were still expected to make their curtains.`\
 https://nytimes.com/2026/01/25/us/museums-broadway-storm-closed.html
-
-**Winter Storm Drives U.S. Flight Cancellations to Pandemic-Level Numbers**\
-`More than 8,230 departures were canceled on Sunday, more than on any other day since the beginning of the Covid-19 pandemic.`\
-https://nytimes.com/2026/01/25/weather/winter-storm-flight-delays-cancellations.html
 

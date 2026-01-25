@@ -1,3 +1,7 @@
+**Marian Goodman, Eminent New York Art Dealer, Dies at 97**\
+`Although known for promoting German painters, she also sought out artists who shunned painting in favor of newer mediums, like photography and film.`\
+https://nytimes.com/2026/01/25/obituaries/marian-goodman-dead.html
+
 **Geese Gives ‘Saturday Night Live’ Viewers Something to Talk About**\
 `The buzzy Brooklyn band brought its off-kilter aesthetic to network TV this weekend, with performances that were both confounding and audacious.`\
 https://nytimes.com/2026/01/25/arts/music/geese-cameron-winter-saturday-night-live-snl.html
