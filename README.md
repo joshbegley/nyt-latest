@@ -1,3 +1,15 @@
+**S.N.L.: The Big Winner of the First Trump Awards? Guess Who**\
+`A covetous president grabbed up all the trophies on this week’s “Saturday Night Live” broadcast, hosted by Teyana Taylor, star of “One Battle After Another.”`\
+https://nytimes.com/2026/01/25/arts/television/snl-the-big-winner-of-the-first-trump-awards-guess-who.html
+
+**Why Campuses Are Still Failing at Free Speech**\
+`Readers respond to a guest essay by a student at Harvard. Also: Our phone choices; falling behind China on energy.`\
+https://nytimes.com/2026/01/25/opinion/free-speech-colleges-universities.html
+
+**Humans Possess One Thing That A.I. Does Not: Judgment**\
+`Computers still don’t do well with vagueness and uncertainty.`\
+https://nytimes.com/2026/01/25/opinion/ai-human-judgment.html
+
 **Vine wins Tour Down Under after two kangaroos cause mass crash**\
 `Australia's "most dangerous thing" caused multiple riders to drop out only a day after an "extreme" fire danger rating caused disruption.`\
 https://nytimes.com/athletic/6996876/2026/01/25/tour-down-under-kangaroos-crash/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6996958/2026/01/25/avalanche-vs-maple-leafs-stream-
 **How to watch Mississippi State vs. Alabama women's basketball: Time, TV, streaming**\
 `Find out how to watch the Mississippi State Bulldogs play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6996946/2026/01/25/mississippi-state-vs-alabama-stream-how-to-watch-jan-25/
-
-**How to watch Ohio State vs. Iowa women's basketball: Time, TV, streaming**\
-`Find out how to watch the Ohio State Buckeyes play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6996944/2026/01/25/ohio-state-vs-iowa-stream-how-to-watch-jan-25/
-
-**How to watch Oklahoma vs. Auburn women's basketball: Time, TV, streaming**\
-`Find out how to watch the Oklahoma Sooners play the Auburn Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6996942/2026/01/25/oklahoma-vs-auburn-stream-how-to-watch-jan-25/
-
-**How to watch Vanderbilt vs. South Carolina women's basketball: Time, TV, streaming**\
-`Find out how to watch the Vanderbilt Commodores play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6996940/2026/01/25/vanderbilt-vs-south-carolina-stream-how-to-watch-jan-25/
 
