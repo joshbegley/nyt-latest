@@ -1,3 +1,7 @@
+**Soccer agent ‘threatened to kill’ alleged victim and her children, says court filing**\
+`Jonathan Barnett has denied all accusations against him.`\
+https://nytimes.com/athletic/6997252/2026/01/25/jonathan-barnett-lawsuit-kill/
+
 **How to watch Mavericks vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6997251/2026/01/25/mavericks-vs-bucks-stream-how-to-watch-jan-25/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/25/weather/winter-storm-flight-delays-cancellations.
 **Newcastle 0 Aston Villa 2 - A game of spurned chances? How much did they miss Guimaraes?**\
 `Newcastle United lost at home in the Premier League for the first time since September as Aston Villa left St James' Park with a 2-0 victory`\
 https://nytimes.com/athletic/6990973/2026/01/25/newcastle-0-aston-villa-2/
-
-**Leicester announce Cifuentes departure with immediate effect**\
-`The club are 14th in the Championship table and are on a three-game winless streak after a defeat to Oxford United on Saturday.`\
-https://nytimes.com/athletic/6770704/2026/01/25/marti-cifuentes-leicester-city-departure/
 
