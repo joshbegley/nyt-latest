@@ -1,3 +1,7 @@
+**Gun Activists Bridle at Suggestion That Pistol Justified Killing**\
+`The National Rifle Association and others have argued citizens need guns to fend off government. The killing of Alex Jeffrey Pretti, who carried a pistol, set off debate.`\
+https://nytimes.com/2026/01/24/us/minneapolis-shooting-second-amendment.html
+
 **Most coaches would be thrilled to be 19-1. Not UConn's Dan Hurley**\
 `Hurley's UConn team might still be a work in progress, but one that, no matter what, just wins anyway.`\
 https://nytimes.com/athletic/6996402/2026/01/24/dan-hurley-uconn-quest-for-perfection-record/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/nashville-snow
 **As Bulls retire Derrick Rose's jersey, former MVP reflects: 'It was always meant to be'**\
 `Rose would have been loved in any market for how he played and what he accomplished before injuries waylaid his career.`\
 https://nytimes.com/athletic/6996380/2026/01/24/derrick-rose-bulls-jersey-retirement-ceremony/
-
-**Arthur Smith to be named Ohio State offensive coordinator: Source**\
-`Smith had conversations with the Philadelphia Eagles and Tennessee Titans before ultimately deciding to take the OC job with Ohio State.`\
-https://nytimes.com/athletic/6996399/2026/01/24/arthur-smith-ohio-state-oc-steelers/
 

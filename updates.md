@@ -1,3 +1,7 @@
+**Gun Activists Bridle at Suggestion That Pistol Justified Killing**\
+`The National Rifle Association and others have argued citizens need guns to fend off government. The killing of Alex Jeffrey Pretti, who carried a pistol, set off debate.`\
+https://nytimes.com/2026/01/24/us/minneapolis-shooting-second-amendment.html
+
 **Most coaches would be thrilled to be 19-1. Not UConn's Dan Hurley**\
 `Hurley's UConn team might still be a work in progress, but one that, no matter what, just wins anyway.`\
 https://nytimes.com/athletic/6996402/2026/01/24/dan-hurley-uconn-quest-for-perfection-record/
