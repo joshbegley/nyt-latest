@@ -1,3 +1,7 @@
+**Arsenal vs Man Utd: How will Arteta set up? Sesko vs Gyokeres? Carrick’s tactics?**\
+`Fluctuating fortunes over the past 20 years have meant it's a long time since these clubs were the top two, vying for the league title`\
+https://nytimes.com/athletic/6991043/2026/01/25/arsenal-man-united-sesko-gyokeres/
+
 **Pistons' J.B. Bickerstaff to coach one of three All-Star teams**\
 `Bickerstaff becomes the first Detroit All-Star head coach since the late Flip Saunders, who coached during the 2006 All-Star game.`\
 https://nytimes.com/athletic/6996596/2026/01/25/jb-bickerstaff-pistons-coach-nba-all-star-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/25/world/europe/the-woman-who-stands-between-donald-
 **Connections: Sports Edition Coach: Hints for Jan. 25, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6995669/2026/01/25/connections-sports-edition-hints-for-jan-25-2026/
-
-**Brady Tkachuk on the NHL's return To Olympic hockey and the USA-Canada rivalry**\
-`In two weeks, the Milan-Cortina Winter Olympics will begin in Italy, and anticipation is mounting for one of the biggest rematches in world hockey.`\
-https://nytimes.com/athletic/6994222/2026/01/25/the-athletic-show-brady-tkachuk-team-usa-olympics-hockey/
 
