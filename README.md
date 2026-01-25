@@ -1,3 +1,7 @@
+**Officials aren't helping 76ers, but inconsistency remains bigger issue**\
+`Watching the 76ers play, the upside is clear. But recurring issues could keep them from reaching their ceiling.`\
+https://nytimes.com/athletic/6996389/2026/01/24/76ers-loss-knicks-tyrese-maxey-joel-embiid-struggles/
+
 **Gun Activists Bridle at Suggestion That Pistol Justified Killing**\
 `The National Rifle Association and others have argued citizens need guns to fend off government. The killing of Alex Jeffrey Pretti, who carried a pistol, set off debate.`\
 https://nytimes.com/2026/01/24/us/minneapolis-shooting-second-amendment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6996442/2026/01/24/sf-giants-logan-webb-record-crow
 **In Nashville, enduring the cold, for the right shot.**\
 `By Jamie McGee`\
 https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/nashville-snow-music-video
-
-**As Bulls retire Derrick Rose's jersey, former MVP reflects: 'It was always meant to be'**\
-`Rose would have been loved in any market for how he played and what he accomplished before injuries waylaid his career.`\
-https://nytimes.com/athletic/6996380/2026/01/24/derrick-rose-bulls-jersey-retirement-ceremony/
 
