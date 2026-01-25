@@ -1,3 +1,7 @@
+**How to watch Mavericks vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6997251/2026/01/25/mavericks-vs-bucks-stream-how-to-watch-jan-25/
+
 **How to watch Pelicans vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6997246/2026/01/25/pelicans-vs-spurs-stream-how-to-watch-jan-25/

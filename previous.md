@@ -1,3 +1,7 @@
+**How to watch Mavericks vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6997251/2026/01/25/mavericks-vs-bucks-stream-how-to-watch-jan-25/
+
 **How to watch Pelicans vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6997246/2026/01/25/pelicans-vs-spurs-stream-how-to-watch-jan-25/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6990973/2026/01/25/newcastle-0-aston-villa-2/
 **Leicester announce Cifuentes departure with immediate effect**\
 `The club are 14th in the Championship table and are on a three-game winless streak after a defeat to Oxford United on Saturday.`\
 https://nytimes.com/athletic/6770704/2026/01/25/marti-cifuentes-leicester-city-departure/
-
-**When Pancakes Met Oatmeal**\
-`My oatmeal pancakes are browned and crackly-edged on the outside, creamy and soft on the inside.`\
-https://nytimes.com/2026/01/25/dining/when-pancakes-met-oatmeal.html
 
