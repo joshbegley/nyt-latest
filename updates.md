@@ -1,3 +1,11 @@
+**Patriots hold off Broncos in wintry AFC Championship Game, advance to Super Bowl LX**\
+`A third-quarter field goal from Andy Borregales proved to be the difference as the Patriots earned a hard-fought, 10-7 victory on the road.`\
+https://nytimes.com/athletic/6997739/2026/01/25/patriots-broncos-score-result-takeaways-afc-championship-game/
+
+**In Visits to Dealerships, Pair Schemed to Steal High-End Vehicles, Police Say**\
+`An organized theft ring in Connecticut, New Jersey and New York swapped or quickly cloned key fobs to steal millions of dollars’ worth of vehicles, officials said.`\
+https://nytimes.com/2026/01/25/nyregion/car-theft-ring.html
+
 **Pie Nut**\
 `There’s a lot to love in Erica Hsiung Wojcik’s punny puzzle.`\
 https://nytimes.com/2026/01/25/crosswords/daily-puzzle-2026-01-26.html
