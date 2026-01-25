@@ -1,3 +1,7 @@
+**Jakub Menšík withdraws from Australian Open, sending Novak Djokovic into quarterfinals**\
+`The highly rated Czech said he could not play his fourth-round match due to an abdominal injury.`\
+https://nytimes.com/athletic/6996824/2026/01/25/australian-open-mensik-out-djokovic-quarterfinals/
+
 **Rep. Maxwell Alejandro Frost Is Assaulted at Sundance Film Festival**\
 `Mr. Frost, Democrat of Florida, said he was punched by a man who said the lawmaker would be deported. The man was arrested on charges of aggravated burglary and assault.`\
 https://nytimes.com/2026/01/25/us/maxwell-alejandro-frost-assaulted-sundance-festival.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995571/2026/01/25/liverpool-bournemouth-premier-le
 **Wild fall to defending champion Panthers in OT in Matt Boldy's return: Takeaways**\
 `The Wild are tied with the Kings with an NHL-high 20 overtime games, including six of their last nine.`\
 https://nytimes.com/athletic/6996737/2026/01/25/wild-fall-to-defending-champ-panthers-overtime-takeaways/
-
-**Trump Just Proved Carney’s Point**\
-`Canada’s prime minister sees the president all too well.`\
-https://nytimes.com/2026/01/25/opinion/trump-carney-davos-canada-greenland.html
 
