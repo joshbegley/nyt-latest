@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By J. David Goodman, Amy Graff, Judson Jones, Jonathan Wolfe and Mike Ives`\
+https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/heres-the-latest
+
+**Live Updates: Major Storm to Pound Northeast With Snow and Ice**\
+``\
+https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice
+
 **Rams-Seahawks chess match, Broncos' mission impossible among NFL title game storylines**\
 `Can Jarrett Stidham join the ranks of backup QBs to go on a Super Bowl run? Who wins Round 3 of the Sean McVay-Mike Macdonald showdown?`\
 https://nytimes.com/athletic/6991438/2026/01/25/nfl-nfc-afc-conference-championship-patriots-broncos-rams-seahawks/
