@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By J. David Goodman, Amy Graff, Judson Jones, Jonathan Wolfe and Mike Ives`\
+https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/heres-the-latest
+
+**Live Updates: Major Storm to Pound Northeast With Snow and Ice**\
+``\
+https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice
+
 **Rams-Seahawks chess match, Broncos' mission impossible among NFL title game storylines**\
 `Can Jarrett Stidham join the ranks of backup QBs to go on a Super Bowl run? Who wins Round 3 of the Sean McVay-Mike Macdonald showdown?`\
 https://nytimes.com/athletic/6991438/2026/01/25/nfl-nfc-afc-conference-championship-patriots-broncos-rams-seahawks/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/25/world/americas/in-venezuela-families-search-for-r
 **For Leonard Williams of the Seahawks, Florida Is the End Zone**\
 `In the football offseason, the defensive tackle for Seattle, and his wife, Hailey, return to their sunny place.`\
 https://nytimes.com/2026/01/25/realestate/seattle-seahawk-leonard-williams-florida-home.html
-
-**A 200-Year Mystery: Finding the Missing Portrait of Scotland’s Top Poet**\
-`The whereabouts of a painting of Robert Burns by Henry Raeburn was unknown for two centuries. Now, the work is on display in time for the annual Burns Night honoring the writer.`\
-https://nytimes.com/2026/01/25/arts/robert-burns-portrait-henry-raeburn.html
-
-**How Iran Crushed a Citizen Uprising With Lethal Force**\
-`After scattered protests started last month, Iranians revolted en masse. The security forces cracked down, and the death toll has now reached 5,200.`\
-https://nytimes.com/2026/01/25/world/middleeast/iran-how-crackdown-was-done.html
 
