@@ -1,3 +1,15 @@
+**Dolphins tab Bobby Slowik as offensive coordinator: Source**\
+`Slowik was retained from former coach Mike McDaniel's staff.`\
+https://nytimes.com/athletic/6996381/2026/01/24/dolphins-hiring-bobby-slowik-offensive-coordinator/
+
+**Democrats Running for U.S. Senate in Texas Call for Overhaul of ICE**\
+`In a debate, Jasmine Crockett and James Talarico differed in their political styles but agreed that violent immigration agents needed to be held to account.`\
+https://nytimes.com/2026/01/24/us/politics/texas-debate-senate-jasmine-crockett-james-talarico-democrats.html
+
+**How two hardy North Dakotans were almost thwarted by an ice storm.**\
+`Jackie Gaddie and Craig Pietruszewski had been anticipating the trip of a lifetime, to Antarctica of all places. Then, a storm got in the way.`\
+https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/how-two-hardy-north-dakotans-were-almost-thwarted-by-an-ice-storm
+
 **Over a Thousand Protesters in New York Denounce ICE After Latest Killing**\
 `The demonstrators braved frigid temperatures in Manhattan following the death of 37-year-old Alex Jeffrey Pretti in Minneapolis.`\
 https://nytimes.com/2026/01/24/us/nyc-ice-protest-alex-pretti.html
