@@ -1,3 +1,7 @@
+**William H. Foege, Key Figure in the Eradication of Smallpox, Dies at 89**\
+`His containment strategy helped wipe out the disease in the 1970s, one of the world’s greatest public health triumphs. He also led the C.D.C. and promoted childhood vaccination worldwide.`\
+https://nytimes.com/2026/01/24/us/william-h-foege-dead.html
+
 **Read Bondi’s Letter to Minnesota’s Governor**\
 `Attorney General Pam Bondi sent a letter to Gov. Tim Walz of Minnesota on Saturday that blamed him and other Democratic officials for allowing “lawlessness” in the state. It was not immediately clear if the letter had been sent before or after the fatal shooting of Alex Pretti.`\
 https://nytimes.com/interactive/2026/01/24/us/pam-bondi-walz-doc.html
