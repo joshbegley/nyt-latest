@@ -1,3 +1,15 @@
+**Referees' early whistle costs Patriots a touchdown, but they score 2 plays later**\
+`Had officials let Jarrett Stidham's backwards pass play out, the Patriots' Elijah Ponder would have scored a defensive touchdown.`\
+https://nytimes.com/athletic/6997676/2026/01/25/patriots-broncos-early-whistle-backwards-pass-fumble/
+
+**Giants coaching hires: Dennard Wilson as defensive coordinator, Chris Horton as special teams coordinator**\
+`John Harbaugh's first Giants staff is beginning to take shape.`\
+https://nytimes.com/athletic/6997730/2026/01/25/ny-giants-hiring-dennard-wilson-dc-chris-horton/
+
+**Stewart, Haliburton, Kerr, others protest after fatal Minneapolis shooting**\
+`Stewart, the two-time WNBA MVP, held an “Abolish ICE” sign during player introductions ahead of her Unrivaled matchup.`\
+https://nytimes.com/athletic/6997426/2026/01/25/minneapolis-shooting-athlete-protests-tyrese-haliburton-breanna-stewart/
+
 **Another Fatal Shooting in Minneapolis**\
 `Events like this, where eyewitness video and independent reporting contradict the government’s account, highlight the importance of press freedom.`\
 https://nytimes.com/2026/01/25/world/minneapolis-ice-shooting-press-freedom.html

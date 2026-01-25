@@ -1,5 +1,5 @@
 **Referees' early whistle costs Patriots a touchdown, but they score 2 plays later**\
-`Had officials let Jarrett Stidham's backwards pass play out, the Patriots' Elijah Ponder would have scored a defensive touchdown.`\
+`Had officials let Jarrett Stidham's backward pass play out, the Patriots' Elijah Ponder would have scored a defensive touchdown.`\
 https://nytimes.com/athletic/6997676/2026/01/25/patriots-broncos-early-whistle-backwards-pass-fumble/
 
 **Giants coaching hires: Dennard Wilson as defensive coordinator, Chris Horton as special teams coordinator**\
