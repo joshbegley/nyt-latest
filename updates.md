@@ -1,3 +1,7 @@
+**Over a Thousand Protesters in New York Denounce ICE After Latest Killing**\
+`The demonstrators braved frigid temperatures in Manhattan following the death of 37-year-old Alex Jeffrey Pretti in Minneapolis.`\
+https://nytimes.com/2026/01/24/us/nyc-ice-protest-alex-pretti.html
+
 **Winter weather brings parts of Texas to a halt.**\
 `By Ruth Graham and Mary Beth Gahan`\
 https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/winter-weather-brings-parts-of-texas-to-a-halt
