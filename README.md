@@ -1,3 +1,7 @@
+**Read a Witness Statement on the Pretti Shooting**\
+`A person who described themselves as a children’s entertainer said they witnessed the shooting of Alex Pretti in Minneapolis on Saturday.`\
+https://nytimes.com/interactive/2026/01/25/us/govuscourtsmnd22975810701.html
+
 **The problems are glaring. Liverpool need major surgery this summer and it won't come cheap**\
 `Pressure and scrutiny have once again been cranked up on Arne Slot after Liverpool's undefeated run was ended by Bournemouth`\
 https://nytimes.com/athletic/6995571/2026/01/25/liverpool-bournemouth-premier-league-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995917/2026/01/25/chelsea-arsenal-wsl-title-race/
 **Edwards expects late 'action' for Wolves in transfer window. But it's a delicate balance...**\
 `Wolves need to 'freshen up' their squad before the transfer window closes. But they must be wary of building momentum too`\
 https://nytimes.com/athletic/6996027/2026/01/25/edwards-expects-late-action-for-wolves-in-transfer-window-but-its-a-delicate-balance/
-
-**West Ham's improving attack can keep them up, their defence could still send them down**\
-`The first half against Sunderland showed the team's attacking identity is crystallising; the second period showed there is still work to do`\
-https://nytimes.com/athletic/6995827/2026/01/25/west-ham-attacking-improvement-defensive-issues/
 
