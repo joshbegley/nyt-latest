@@ -1,3 +1,7 @@
+**Another Fatal Shooting in Minneapolis**\
+`Events like this, where eyewitness video and independent reporting contradict the government’s account, highlight the importance of press freedom.`\
+https://nytimes.com/2026/01/25/world/minneapolis-ice-shooting-press-freedom.html
+
 **Branches and power lines come crashing down in Nashville under sheaths of ice.**\
 `By Emily Cochrane and Jamie McGee`\
 https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/branches-and-power-lines-come-crashing-down-in-nashville-under-sheaths-of-ice
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6997560/2026/01/25/ricardo-pepi-fulham-transfer-usm
 **Family of Alex Pretti Says It Is Heartbroken and ‘Very Angry’**\
 `In a statement, the parents of the man slain in Minneapolis said that their son “wanted to make a difference.”`\
 https://nytimes.com/2026/01/25/us/alex-pretti-family-statement.html
-
-**Eleanor Holmes Norton Files to End Re-election Campaign**\
-`It was not clear whether Washington’s 88-year-old veteran delegate, who has been in declining health but has insisted she would seek re-election, was aware of the filing.`\
-https://nytimes.com/2026/01/25/us/politics/eleanor-holmes-norton-re-election-campaign.html
 
