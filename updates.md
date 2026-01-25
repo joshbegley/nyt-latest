@@ -1,7 +1,3 @@
-**Over a Thousand Protesters in New York Denounce ICE After Latest Killing**\
-`The demonstrators braved frigid temperatures in Manhattan following the death of 37-year-old Alex Jeffrey Pretti in Minneapolis.`\
-https://nytimes.com/2026/01/24/us/nyc-ice-protest-alex-pretti.html
-
 **Winter weather brings parts of Texas to a halt.**\
 `By Ruth Graham and Mary Beth Gahan`\
 https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/winter-weather-brings-parts-of-texas-to-a-halt
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6996281/2026/01/24/sabres-islanders-alex-lyon-shuto
 **Patriots activate WR Mack Hollins from IR ahead of AFC Championship**\
 `Hollins had been on injured reserve since Week 17 with an abdominal injury.`\
 https://nytimes.com/athletic/6996260/2026/01/24/patriots-activate-mack-hollins-afc-championship/
+
+**Appeals Court Rejects Justice Dept. Push for Arrest Warrant for Don Lemon**\
+`The department had made an extraordinary request for the appeals court to force a judge to issue warrants for Mr. Lemon and four other people in connection with a church protest in Minneapolis.`\
+https://nytimes.com/2026/01/24/us/politics/don-lemon-arrest-warrant.html
 
