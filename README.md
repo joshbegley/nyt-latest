@@ -1,3 +1,7 @@
+**New York’s Latest Forecast Shows Heavy Snow, Then Sleet**\
+`The National Weather Service said Central Park could see up to a foot of snow by Monday.`\
+https://nytimes.com/2026/01/24/weather/new-york-snow-forecst.html
+
 **Dolphins tab Bobby Slowik as offensive coordinator: Source**\
 `Slowik was retained from former coach Mike McDaniel's staff.`\
 https://nytimes.com/athletic/6996381/2026/01/24/dolphins-hiring-bobby-slowik-offensive-coordinator/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/cold-weather-f
 **Yu Darvish says 'final details are yet to be decided' after report he'll retire**\
 `"Yu has not made a final decision yet," Darvish's agent, Joel Wolfe, said in a statement.`\
 https://nytimes.com/athletic/6996261/2026/01/24/yu-darvish-retirement-report-mlb-padres/
-
-**Rick Pitino earns 900th victory as St. John's wins 'Pitino Bowl' at Xavier**\
-`The Red Storm downed the Musketeers for their sixth straight win as they chase No. 2 UConn in the Big East.`\
-https://nytimes.com/athletic/6996294/2026/01/24/rick-pitino-st-johns-richard-xavier/
 
