@@ -1,3 +1,7 @@
+**State Terror Has Arrived**\
+`Minneapolis has made it plain.`\
+https://nytimes.com/2026/01/24/opinion/state-terror-has-arrived.html
+
 **New York’s Latest Forecast Shows Heavy Snow, Then Sleet**\
 `The National Weather Service said Central Park could see up to a foot of snow by Monday.`\
 https://nytimes.com/2026/01/24/weather/new-york-snow-forecst.html
