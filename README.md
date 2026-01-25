@@ -1,3 +1,7 @@
+**State Terror Has Arrived**\
+`Minneapolis has made it plain.`\
+https://nytimes.com/2026/01/24/opinion/state-terror-has-arrived.html
+
 **New York’s Latest Forecast Shows Heavy Snow, Then Sleet**\
 `The National Weather Service said Central Park could see up to a foot of snow by Monday.`\
 https://nytimes.com/2026/01/24/weather/new-york-snow-forecst.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6996337/2026/01/24/astros-infield-trades-carlos-cor
 **Is no water coming out of your faucet? Here’s how to thaw frozen pipes during cold weather.**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/cold-weather-frozen-pipes-water-leak
-
-**Yu Darvish says 'final details are yet to be decided' after report he'll retire**\
-`"Yu has not made a final decision yet," Darvish's agent, Joel Wolfe, said in a statement.`\
-https://nytimes.com/athletic/6996261/2026/01/24/yu-darvish-retirement-report-mlb-padres/
 
