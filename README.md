@@ -1,3 +1,7 @@
+**How to watch Penguins vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6997231/2026/01/25/penguins-vs-canucks-stream-how-to-watch-jan-25/
+
 **Museums From Texas to Massachusetts Close for Storm, but Broadway Shows Go On**\
 `The Smithsonian said all of its museums, research centers and the National Zoo would be closed on Sunday and Monday. Most Broadway shows were still expected to make their curtains.`\
 https://nytimes.com/2026/01/25/us/museums-broadway-storm-closed.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6997088/2026/01/25/moussa-sylla-nycfc-schalke-deal-
 **The Pulse: A super cold open in Denver**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6996668/2026/01/25/you-dont-realize-just-how-long-jarrett-stidham-has-been-idling/
-
-**Packers hiring ex-Cardinals HC Jonathan Gannon as defensive coordinator**\
-`The Packers have several looming questions on defense that will get answers this offseason.`\
-https://nytimes.com/athletic/6997068/2026/01/25/jonathan-gannon-packers-defensive-coordinator-cardinals-eagles/
 

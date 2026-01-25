@@ -1,3 +1,15 @@
+**Museums From Texas to Massachusetts Close for Storm, but Broadway Shows Go On**\
+`The Smithsonian said all of its museums, research centers and the National Zoo would be closed on Sunday and Monday. Most Broadway shows were still expected to make their curtains.`\
+https://nytimes.com/2026/01/25/us/museums-broadway-storm-closed.html
+
+**Crystal Palace 1 Chelsea 3 – Estevao X-factor, why were Chelsea given penalty and Palmer absence**\
+`Chelsea beat Crystal Palace 3-1 on Sunday afternoon to continue Liam Rosenior's good start to life in the dugout`\
+https://nytimes.com/athletic/6990972/2026/01/25/crystal-palace-chelsea-result-report-analysis/
+
+**NYCFC finalizing deal for Schalke forward Moussa Sylla**\
+`The Mali international has registered four goals and two assists in 17 appearances for the German second-tier leaders this season.`\
+https://nytimes.com/athletic/6997088/2026/01/25/moussa-sylla-nycfc-schalke-deal-transfer-news/
+
 **Winter Storm Drives U.S. Flight Cancellations to Pandemic-Level Numbers**\
 `More than 8,230 departures were canceled on Sunday, more than on any other day since the beginning of the Covid-19 pandemic.`\
 https://nytimes.com/2026/01/25/weather/winter-storm-flight-delays-cancellations.html
