@@ -1,3 +1,7 @@
+**It’s So Hard Not to Be Consumed by Rage**\
+`I worry that for some of us, our antipathy to Trump has become part of who we are, and it can be something of a personal poison.`\
+https://nytimes.com/2026/01/25/opinion/ice-rage-identity.html
+
 **Why the Carney Fire Is Still Burning**\
 `The prime minister sees Trump all too well.`\
 https://nytimes.com/2026/01/25/opinion/trump-carney-davos-canada-greenland.html
