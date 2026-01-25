@@ -1,3 +1,7 @@
+**Stewart, Haliburton, other athletes protest after fatal Minneapolis shooting**\
+`Stewart, the two-time WNBA MVP, held an “Abolish ICE” sign during player introductions ahead of her Unrivaled matchup.`\
+https://nytimes.com/athletic/6997426/2026/01/25/minneapolis-shooting-athlete-protests-tyrese-haliburton-breanna-stewart/
+
 **Deputy attorney general takes a measured tone after Trump officials call the shooting victim a terrorist.**\
 `Other senior officials in the Trump administration continued to cast blame on the man shot by federal agents.`\
 https://nytimes.com/live/2026/01/25/us/minneapolis-shooting-ice/deputy-attorney-general-takes-a-measured-tone-after-trump-officials-call-the-shooting-victim-a-terrorist
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/25/us/politics/eleanor-holmes-norton-re-election-cam
 **Floyd Vivino, Throwback Comedian Known as Uncle Floyd, Dies at 74**\
 `His silly, vaudeville-style variety show was filled with his piano playing, skits, puppets and guest stars like Cyndi Lauper and Bon Jovi.`\
 https://nytimes.com/2026/01/25/nyregion/floyd-vivino-dead.html
-
-**How to watch Nets vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6997501/2026/01/25/nets-vs-clippers-stream-how-to-watch-jan-25/
 

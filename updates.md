@@ -1,3 +1,7 @@
+**Stewart, Haliburton, other athletes protest after fatal Minneapolis shooting**\
+`Stewart, the two-time WNBA MVP, held an “Abolish ICE” sign during player introductions ahead of her Unrivaled matchup.`\
+https://nytimes.com/athletic/6997426/2026/01/25/minneapolis-shooting-athlete-protests-tyrese-haliburton-breanna-stewart/
+
 **Deputy attorney general takes a measured tone after Trump officials call the shooting victim a terrorist.**\
 `Other senior officials in the Trump administration continued to cast blame on the man shot by federal agents.`\
 https://nytimes.com/live/2026/01/25/us/minneapolis-shooting-ice/deputy-attorney-general-takes-a-measured-tone-after-trump-officials-call-the-shooting-victim-a-terrorist
