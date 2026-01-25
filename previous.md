@@ -1,3 +1,23 @@
+**How to watch Pelicans vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6997246/2026/01/25/pelicans-vs-spurs-stream-how-to-watch-jan-25/
+
+**How to watch Raptors vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6997243/2026/01/25/raptors-vs-thunder-stream-how-to-watch-jan-25/
+
+**How to watch Golden Knights vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6997235/2026/01/25/golden-knights-vs-senators-stream-how-to-watch-jan-25/
+
+**How to watch Panthers vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6997233/2026/01/25/panthers-vs-blackhawks-stream-how-to-watch-jan-25/
+
+**How to watch Penguins vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6997231/2026/01/25/penguins-vs-canucks-stream-how-to-watch-jan-25/
+
 **Museums From Texas to Massachusetts Close for Storm, but Broadway Shows Go On**\
 `The Smithsonian said all of its museums, research centers and the National Zoo would be closed on Sunday and Monday. Most Broadway shows were still expected to make their curtains.`\
 https://nytimes.com/2026/01/25/us/museums-broadway-storm-closed.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6770704/2026/01/25/marti-cifuentes-leicester-city-d
 **When Pancakes Met Oatmeal**\
 `My oatmeal pancakes are browned and crackly-edged on the outside, creamy and soft on the inside.`\
 https://nytimes.com/2026/01/25/dining/when-pancakes-met-oatmeal.html
-
-**Villa's McGinn expected to miss around six weeks with knee injury**\
-`The 31-year-old will miss a crucial run of fixtures for his club but should recover in time for Scotland's first World Cup in 28 years.`\
-https://nytimes.com/athletic/6996806/2026/01/25/john-mcginn-aston-villa-injury-news-scotland/
-
-**Crystal Palace 1 Chelsea 3 – Estevao X-factor, why were Chelsea given penalty and Palmer absence**\
-`Chelsea beat Crystal Palace 3-1 on Sunday afternoon to continue Liam Rosenior's good start to life in the dugout`\
-https://nytimes.com/athletic/6990972/2026/01/25/crystal-palace-chelsea-result-report-analysis/
-
-**NYCFC finalizing deal for Schalke forward Moussa Sylla**\
-`The Mali international has registered four goals and two assists in 17 appearances for the German second-tier leaders this season.`\
-https://nytimes.com/athletic/6997088/2026/01/25/moussa-sylla-nycfc-schalke-deal-transfer-news/
-
-**The Pulse: A super cold open in Denver**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6996668/2026/01/25/you-dont-realize-just-how-long-jarrett-stidham-has-been-idling/
-
-**Packers hiring ex-Cardinals HC Jonathan Gannon as defensive coordinator**\
-`The Packers have several looming questions on defense that will get answers this offseason.`\
-https://nytimes.com/athletic/6997068/2026/01/25/jonathan-gannon-packers-defensive-coordinator-cardinals-eagles/
 
