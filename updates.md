@@ -1,3 +1,11 @@
+**Major U.S. Public Transit Systems Brace for Storm With Detours and Warnings**\
+`Officials in several cities, including Boston, New York and Philadelphia, advised residents to avoid traveling if possible through the weekend.`\
+https://nytimes.com/2026/01/25/weather/winter-storm-public-transit-new-york-philadelphia.html
+
+**Vasco da Gama's Rayan travels for medical ahead of Bournemouth move**\
+`The 19-year-old became the youngest player in Vasco's history after making his senior debut in 2023 aged 16 years, five months and 16 days.`\
+https://nytimes.com/athletic/6995567/2026/01/25/rayan-bournemouth-medical-transfer-vasco/
+
 **For Brady and Matthew Tkachuk, the Olympics are a dream — and a chance to build on a family legacy**\
 `Matthew and Brady Tkachuk represented the U.S. at 4 Nations but say the Olympics will be "a dream come true."`\
 https://nytimes.com/athletic/6992102/2026/01/25/brady-matthew-keith-tkachuk-olympics-legacy/
