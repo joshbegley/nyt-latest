@@ -1,3 +1,7 @@
+**On Broadway, frustration mounts as curtains rise amid the snowfall.**\
+`By Taylor Robinson and Derrick Bryson Taylor`\
+https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/broadway-winter-storm-closures
+
 **South Carolina cruises past Vanderbilt, ending its undefeated season**\
 `With Vandy's loss, UConn is now the lone undefeated team in the top 25.`\
 https://nytimes.com/athletic/6997834/2026/01/25/south-carolina-vanderbilt-first-loss-of-season/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010667105/ice-minneapolis-minnesota-
 **Suns star Devin Booker to miss at least a week with ankle injury**\
 `Booker had scored 31 points Friday before stepping on the foot of Atlanta center Onyeka Okongwu.`\
 https://nytimes.com/athletic/6997783/2026/01/25/devin-booker-injury-status-right-ankle-sprain/
-
-**Referees' early whistle costs Patriots a touchdown, but they score 2 plays later**\
-`Had officials let Jarrett Stidham's backward pass play out, the Patriots' Elijah Ponder would have scored a defensive touchdown.`\
-https://nytimes.com/athletic/6997676/2026/01/25/patriots-broncos-early-whistle-backwards-pass-fumble/
 
