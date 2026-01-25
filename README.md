@@ -1,3 +1,11 @@
+**In Nashville, enduring the cold, for the right shot.**\
+`By Jamie McGee`\
+https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/nashville-snow-music-video
+
+**As Bulls retire Derrick Rose's jersey, former MVP reflects: 'It was always meant to be'**\
+`Rose would have been loved in any market for how he played and what he accomplished before injuries waylaid his career.`\
+https://nytimes.com/athletic/6996380/2026/01/24/derrick-rose-bulls-jersey-retirement-ceremony/
+
 **Arthur Smith to be named Ohio State offensive coordinator: Source**\
 `Smith had conversations with the Philadelphia Eagles and Tennessee Titans before ultimately deciding to take the OC job with Ohio State.`\
 https://nytimes.com/athletic/6996399/2026/01/24/arthur-smith-ohio-state-oc-steelers/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/24/us/nyc-ice-protest-alex-pretti.html
 **Winter weather brings parts of Texas to a halt.**\
 `By Ruth Graham and Mary Beth Gahan`\
 https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/winter-weather-brings-parts-of-texas-to-a-halt
-
-**‘Dolly Plowton’ Debuts in Snowy Nashville**\
-`The new snowplow, named and painted to evoke a Tennessee heroine, is a symbol of how some Southern cities are trying to better prepare for winter storms.`\
-https://nytimes.com/2026/01/24/us/dolly-plowton-debuts-in-snowy-nashville.html
-
-**Astros takeaways: FanFest accentuates imbalanced lineup and untenable infield surplus**\
-`Plus what Carlos Correa thinks led to Houston's 2025 injury issues, and why Spencer Arrighetti is "optimistic going into camp."`\
-https://nytimes.com/athletic/6996337/2026/01/24/astros-infield-trades-carlos-correa-injuries-fanfest/
 
