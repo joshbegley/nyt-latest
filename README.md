@@ -1,3 +1,7 @@
+**The Pulse: A super cold open in Denver**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6996668/2026/01/25/you-dont-realize-just-how-long-jarrett-stidham-has-been-idling/
+
 **Packers hiring ex-Cardinals HC Jonathan Gannon as defensive coordinator**\
 `Gannon replaces outgoing DC Jeff Hafley in Green Bay after he was recently hired as the Miami Dolphins' head coach.`\
 https://nytimes.com/athletic/6997068/2026/01/25/jonathan-gannon-packers-defensive-coordinator-cardinals-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6996876/2026/01/25/tour-down-under-kangaroos-crash/
 **What the odds sheet tells us about 2025 Topps Stadium Club Baseball**\
 `Our writer calculates what Topps' odds sheet reveals about what is and isn't in 2025 Stadium Club. `\
 https://nytimes.com/athletic/6994084/2026/01/25/2025-topps-stadium-club-baseball-odds-analysis/
-
-**How to watch Kings vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6996966/2026/01/25/kings-vs-pistons-stream-how-to-watch-jan-25/
 
