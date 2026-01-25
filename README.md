@@ -1,3 +1,7 @@
+**NYCFC finalising deal for Schalke forward Moussa Sylla**\
+`The Mali international has registered four goals and two assists in 17 appearances for the German second-tier leaders this season.`\
+https://nytimes.com/athletic/6997088/2026/01/25/moussa-sylla-nycfc-schalke-deal-transfer-news/
+
 **The Pulse: A super cold open in Denver**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6996668/2026/01/25/you-dont-realize-just-how-long-jarrett-stidham-has-been-idling/
@@ -20,7 +24,7 @@ https://nytimes.com/athletic/6996762/2026/01/25/luka-doncic-mavericks-lakers-fan
 
 **‘S.N.L.’: The Big Winner of the First Trump Awards? Guess Who.**\
 `A covetous president grabbed up all the trophies on this week’s “Saturday Night Live” broadcast, hosted by Teyana Taylor, star of “One Battle After Another.”`\
-https://nytimes.com/2026/01/25/arts/television/snl-the-big-winner-of-the-first-trump-awards-guess-who.html
+https://nytimes.com/2026/01/25/arts/television/snl-trump-awards-teyana-taylor.html
 
 **Why Campuses Are Still Failing at Free Speech**\
 `Readers respond to a guest essay by a student at Harvard. Also: Our phone choices; falling behind China on energy.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/25/opinion/ai-human-judgment.html
 **Vine wins Tour Down Under after two kangaroos cause mass crash**\
 `Australia's "most dangerous thing" caused multiple riders to drop out only a day after an "extreme" fire danger rating caused disruption.`\
 https://nytimes.com/athletic/6996876/2026/01/25/tour-down-under-kangaroos-crash/
-
-**What the odds sheet tells us about 2025 Topps Stadium Club Baseball**\
-`Our writer calculates what Topps' odds sheet reveals about what is and isn't in 2025 Stadium Club. `\
-https://nytimes.com/athletic/6994084/2026/01/25/2025-topps-stadium-club-baseball-odds-analysis/
 
