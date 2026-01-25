@@ -1,3 +1,7 @@
+**Deputy attorney general takes a measured tone after Trump officials call the shooting victim a terrorist.**\
+`Other senior officials in the Trump administration continued to cast blame on the man shot by federal agents.`\
+https://nytimes.com/live/2026/01/25/us/minneapolis-shooting-ice/deputy-attorney-general-takes-a-measured-tone-after-trump-officials-call-the-shooting-victim-a-terrorist
+
 **What Causes Thundersnow, One of Weather’s Rarest Spectacles**\
 `A clap of thunder can come as a surprise in the steady calm of falling snow. Here’s what causes it.`\
 https://nytimes.com/article/what-is-thundersnow.html
