@@ -1,3 +1,7 @@
+**Geese Gives ‘Saturday Night Live’ Viewers Something to Talk About**\
+`The buzzy Brooklyn band brought its off-kilter aesthetic to network TV this weekend, with performances that were both confounding and audacious.`\
+https://nytimes.com/2026/01/25/arts/music/geese-cameron-winter-saturday-night-live-snl.html
+
 **Soccer agent ‘threatened to kill’ alleged victim and her children, says court filing**\
 `Jonathan Barnett has denied all accusations against him.`\
 https://nytimes.com/athletic/6997252/2026/01/25/jonathan-barnett-lawsuit-kill/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/25/us/museums-broadway-storm-closed.html
 **Winter Storm Drives U.S. Flight Cancellations to Pandemic-Level Numbers**\
 `More than 8,230 departures were canceled on Sunday, more than on any other day since the beginning of the Covid-19 pandemic.`\
 https://nytimes.com/2026/01/25/weather/winter-storm-flight-delays-cancellations.html
-
-**Newcastle 0 Aston Villa 2 - A game of spurned chances? How much did they miss Guimaraes?**\
-`Newcastle United lost at home in the Premier League for the first time since September as Aston Villa left St James' Park with a 2-0 victory`\
-https://nytimes.com/athletic/6990973/2026/01/25/newcastle-0-aston-villa-2/
 
