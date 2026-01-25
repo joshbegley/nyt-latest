@@ -1,3 +1,7 @@
+**Fulham back in talks for USMNT's Pepi after new $38m bid**\
+`Pepi has averaged a goal every other game for PSV this season, but suffered a serious arm injury earlier this month.`\
+https://nytimes.com/athletic/6997560/2026/01/25/ricardo-pepi-fulham-transfer-usmnt/
+
 **Family of Alex Pretti Says It Is Heartbroken and ‘Very Angry’**\
 `In a statement, the parents of the man slain in Minneapolis said that their son “wanted to make a difference.”`\
 https://nytimes.com/2026/01/25/us/alex-pretti-family-statement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/25/us/politics/trump-truth-minneapolis-shootings.htm
 **Another East Coast Storm? Don’t Buy the Hype Just Yet.**\
 `After a computer model began hinting that another storm could be on the way, meteorologists sought to tamp down speculation.`\
 https://nytimes.com/2026/01/25/weather/another-storm-forecast-noreaster.html
-
-**The Trump Administration Is Lying to Our Faces. Congress Must Act.**\
-`The Trump administration is once again engaged in a perversion of justice.`\
-https://nytimes.com/2026/01/25/opinion/alex-pretti-minneapolis-shooting-border-patrol.html
 
