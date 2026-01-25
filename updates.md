@@ -1,3 +1,7 @@
+**Another Fatal Shooting in Minneapolis**\
+`Events like this, where eyewitness video and independent reporting contradict the government’s account, highlight the importance of press freedom.`\
+https://nytimes.com/2026/01/25/world/minneapolis-ice-shooting-press-freedom.html
+
 **Branches and power lines come crashing down in Nashville under sheaths of ice.**\
 `By Emily Cochrane and Jamie McGee`\
 https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/branches-and-power-lines-come-crashing-down-in-nashville-under-sheaths-of-ice
