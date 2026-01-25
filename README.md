@@ -1,3 +1,11 @@
+**Referees' early whistle costs Patriots a touchdown, but they score 2 plays later**\
+`Had officials let Jarrett Stidham's backwards pass play out, the Patriots' Elijah Ponder would have scored a defensive touchdown.`\
+https://nytimes.com/athletic/6997676/2026/01/25/patriots-broncos-early-whistle-backwards-pass-fumble/
+
+**Giants coaching hires: Dennard Wilson as defensive coordinator, Chris Horton as special teams coordinator**\
+`John Harbaugh's first Giants staff is beginning to take shape.`\
+https://nytimes.com/athletic/6997730/2026/01/25/ny-giants-hiring-dennard-wilson-dc-chris-horton/
+
 **Another Fatal Shooting in Minneapolis**\
 `Events like this, where eyewitness video and independent reporting contradict the government’s account, highlight the importance of press freedom.`\
 https://nytimes.com/2026/01/25/world/minneapolis-ice-shooting-press-freedom.html
@@ -6,7 +14,7 @@ https://nytimes.com/2026/01/25/world/minneapolis-ice-shooting-press-freedom.html
 `By Emily Cochrane and Jamie McGee`\
 https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/branches-and-power-lines-come-crashing-down-in-nashville-under-sheaths-of-ice
 
-**Stewart, Haliburton, other athletes protest after fatal Minneapolis shooting**\
+**Stewart, Haliburton, Kerr, others protest after fatal Minneapolis shooting**\
 `Stewart, the two-time WNBA MVP, held an “Abolish ICE” sign during player introductions ahead of her Unrivaled matchup.`\
 https://nytimes.com/athletic/6997426/2026/01/25/minneapolis-shooting-athlete-protests-tyrese-haliburton-breanna-stewart/
 
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/churches
 **Once Again, Federal Officials Exclude Minnesota From Investigation of a Fatal Shooting**\
 `State officials have resorted to unconventional methods as they press forward with their own inquiries into the killings of Alex Jeffrey Pretti and Renee Good.`\
 https://nytimes.com/2026/01/25/us/federal-exclude-minnesota-shooting-investigations.html
-
-**Fulham back in talks for USMNT's Pepi after new $38m bid**\
-`Pepi has averaged a goal every other game for PSV this season, but suffered a serious arm injury earlier this month.`\
-https://nytimes.com/athletic/6997560/2026/01/25/ricardo-pepi-fulham-transfer-usmnt/
-
-**Family of Alex Pretti Says It Is Heartbroken and ‘Very Angry’**\
-`In a statement, the parents of the man slain in Minneapolis said that their son “wanted to make a difference.”`\
-https://nytimes.com/2026/01/25/us/alex-pretti-family-statement.html
 
