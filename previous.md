@@ -1,3 +1,23 @@
+**NFC Championship Game viewing guide for Rams vs. Seahawks, Part III**\
+`The last Rams vs. Seahawks game was a classic. Sunday's rematch is for the conference title and a trip to the Super Bowl.`\
+https://nytimes.com/athletic/6990927/2026/01/25/rams-seahawks-nfc-championship-nfl-playoff-records/
+
+**Who is Blades Brown, the 18-year-old who shot a 60 at The American Express?**\
+`The teenager from Nashville ,Tenn., certainly seems to be on track to become a well-known name on the PGA Tour.`\
+https://nytimes.com/athletic/6996496/2026/01/25/who-is-blades-brown-amex-pga-tournament/
+
+**'Our trophy': Derrick Rose's No. 1 banner will fly forever in Chicago**\
+`Rose's image was everywhere at the sold-out United Center as Chicago celebrated who he was and still is, someone very special to the city.`\
+https://nytimes.com/athletic/6996694/2026/01/25/derrick-rose-bulls-jersey-retired-no-1/
+
+**The 99 seconds that saw Wrexham go from defeat to victory and surge into the play-off places**\
+`Ninety nine seconds. That's how long it took for Wrexham's Championship season to achieve lift-off`\
+https://nytimes.com/athletic/6995900/2026/01/25/wrexham-qpr-comeback/
+
+**Which NFL teams have the most Super Bowl wins? All 32 franchises sorted by title history**\
+`The two winningest franchises combine for 12 championships — while 12 others are totally ringless.`\
+https://nytimes.com/athletic/6994493/2026/01/25/nfl-super-bowl-records-team-history/
+
 **Major U.S. Public Transit Systems Brace for Storm With Detours and Warnings**\
 `Officials in several cities, including Boston, New York and Philadelphia, advised residents to avoid traveling if possible through the weekend.`\
 https://nytimes.com/2026/01/25/weather/winter-storm-public-transit-new-york-philadelphia.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6996602/2026/01/25/bruins-andrew-peeke-nhl-trade-de
 **Minneapolis and Gaza Now Share the Same Violent Language**\
 `When ICE and Hamas start looking the same, we are all in trouble.`\
 https://nytimes.com/2026/01/25/opinion/minneapolis-gaza-masked-violence.html
-
-**How College Can Tear Us Apart**\
-`If illiberalism is the problem, what is the cure?`\
-https://nytimes.com/2026/01/25/opinion/college-thinking-illiberalism.html
-
-**After all of these years, Sidney Crosby's impact remains as strong as ever**\
-`Crosby's impact on hockey fans — young and old — is perhaps unlike anything we've ever seen in the sport. `\
-https://nytimes.com/athletic/6996379/2026/01/25/penguins-sidney-crosby-nhl-canucks/
-
-**John Kerry: We’ll Miss Alliances When They’re Gone**\
-`The former U.S. secretary of state warns that, between the Greenland deal and Trump’s trashing of the world order, America is losing.`\
-https://nytimes.com/2026/01/25/opinion/john-kerry-greenland-alliances.html
-
-**Mason Marchment continues to impress after trade as Blue Jackets keep rolling**\
-`Marchment's third career hat trick led the way for the resurgent Blue Jackets, who beat the Tampa Bay Lightning 8-5 on Saturday,`\
-https://nytimes.com/athletic/6996562/2026/01/25/mason-marchment-blue-jackets-hat-trick/
-
-**The Sunday Daily: We Underestimated the Neanderthal**\
-`DNA mapping has revealed a closer connection to our evolutionary relatives.`\
-https://nytimes.com/2026/01/25/podcasts/the-daily/the-sunday-daily-we-underestimated-the-neanderthal.html
 
