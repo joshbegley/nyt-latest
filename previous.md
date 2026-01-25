@@ -1,3 +1,7 @@
+**Mikaela Shiffrin dominates final slalom before Olympics, gets 108th World Cup win**\
+`Shiffrin won for the seventh time in eight slalom races this year, clinching the crystal globe and stamping her place as Olympic favorite.`\
+https://nytimes.com/athletic/6996884/2026/01/25/mikaela-shiffrin-olympics-world-cup-slalom-spindleruv/
+
 **NFC Championship Game viewing guide for Rams vs. Seahawks, Part III**\
 `The last Rams vs. Seahawks game was a classic. Sunday's rematch is for the conference title and a trip to the Super Bowl.`\
 https://nytimes.com/athletic/6990927/2026/01/25/rams-seahawks-nfc-championship-nfl-playoff-records/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6992102/2026/01/25/brady-matthew-keith-tkachuk-olym
 **Trade or re-sign? Bruins have a pending decision with Andrew Peeke**\
 `Trade uncertainty isn't new for Peeke, and his fate depends on the Bruins’ progress before the March 8 deadline.`\
 https://nytimes.com/athletic/6996602/2026/01/25/bruins-andrew-peeke-nhl-trade-deadline/
-
-**Minneapolis and Gaza Now Share the Same Violent Language**\
-`When ICE and Hamas start looking the same, we are all in trouble.`\
-https://nytimes.com/2026/01/25/opinion/minneapolis-gaza-masked-violence.html
 

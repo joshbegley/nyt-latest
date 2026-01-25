@@ -1,3 +1,7 @@
+**Mikaela Shiffrin dominates final slalom before Olympics, gets 108th World Cup win**\
+`Shiffrin won for the seventh time in eight slalom races this year, clinching the crystal globe and stamping her place as Olympic favorite.`\
+https://nytimes.com/athletic/6996884/2026/01/25/mikaela-shiffrin-olympics-world-cup-slalom-spindleruv/
+
 **NFC Championship Game viewing guide for Rams vs. Seahawks, Part III**\
 `The last Rams vs. Seahawks game was a classic. Sunday's rematch is for the conference title and a trip to the Super Bowl.`\
 https://nytimes.com/athletic/6990927/2026/01/25/rams-seahawks-nfc-championship-nfl-playoff-records/
