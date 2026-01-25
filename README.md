@@ -1,3 +1,7 @@
+**Steelers owner: 'We've left the door open' for Aaron Rodgers' return**\
+`Art Rooney II made the comments to a reporter from the team's official website.`\
+https://nytimes.com/athletic/6997806/2026/01/25/pittsburgh-steelers-aaron-rodgers-return/
+
 **The snow will still fall in Maine, just later than everywhere else.**\
 `By Jenna Russell and Sydney Cromwell`\
 https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/the-snow-will-still-fall-in-maine-just-later-than-everywhere-else
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6997730/2026/01/25/ny-giants-hiring-dennard-wilson-
 **Another Fatal Shooting in Minneapolis**\
 `Events like this, where eyewitness video and independent reporting contradict the government’s account, highlight the importance of press freedom.`\
 https://nytimes.com/2026/01/25/world/minneapolis-ice-shooting-press-freedom.html
-
-**Branches and power lines come crashing down in Nashville under sheaths of ice.**\
-`By Emily Cochrane and Jamie McGee`\
-https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/branches-and-power-lines-come-crashing-down-in-nashville-under-sheaths-of-ice
 

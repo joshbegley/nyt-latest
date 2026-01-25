@@ -1,3 +1,11 @@
+**The snow will still fall in Maine, just later than everywhere else.**\
+`By Jenna Russell and Sydney Cromwell`\
+https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/the-snow-will-still-fall-in-maine-just-later-than-everywhere-else
+
+**Liverpool unwilling to sanction Robertson's Spurs move at present**\
+`The Athletic reported on Friday that Tottenham were working on a deal to sign Robertson this window.`\
+https://nytimes.com/athletic/6997743/2026/01/25/andy-robertson-transfer-liverpool-tottenham/
+
 **Longtime Chicago sports talk radio host Terry Boers dies at 75**\
 `Boers transitioned from a career as a reporter to a sports talk radio role in the early 1990s.`\
 https://nytimes.com/athletic/6997656/2026/01/25/chicago-sports-radio-terry-boers-dies/
