@@ -1,3 +1,15 @@
+**In Court Filings, Witnesses Describe Fatal Minneapolis Shooting of Alex Pretti**\
+`The filings raise further questions about the federal government’s narrative of what happened before federal agents shot Alex Jeffrey Pretti on Saturday.`\
+https://nytimes.com/2026/01/24/us/witnesses-alex-pretti-shooting.html
+
+**In his second return to Dallas, Luka Dončić leads a high-energy Lakers rally**\
+`Dončić, whom the Mavs traded nearly a year ago, sealed the win with a magical side-stepping layup, immediately followed by a drawn charge.`\
+https://nytimes.com/athletic/6996629/2026/01/24/luka-doncic-lebron-james-lakers-mavericks-comeback/
+
+**The rising teenage stars of women's tennis leave their mark on the Australian Open, win or lose**\
+`A rising group of players who have transferred winning habits from the minor leagues to the WTA Tour are now set to make a mark at a major.`\
+https://nytimes.com/athletic/6995453/2026/01/24/tennis-best-young-players-wta-mboko-jovic-valentova/
+
 **Alabama's Charles Bediako returns for Alabama despite G League stint**\
 `Bediako spent three seasons on a two-way contract with the San Antonio Spurs, but has never logged any NBA minutes.`\
 https://nytimes.com/athletic/6996600/2026/01/24/alabama-charles-bediako-eligibility-g-league/

@@ -1,14 +1,22 @@
+**In Court Filings, Witnesses Describe Fatal Minneapolis Shooting of Alex Pretti**\
+`The filings raise further questions about the federal government’s narrative of what happened before federal agents shot Alex Jeffrey Pretti on Saturday.`\
+https://nytimes.com/2026/01/24/us/witnesses-alex-pretti-shooting.html
+
 **Alabama's Charles Bediako returns for Alabama despite G League stint**\
 `Bediako spent three seasons on a two-way contract with the San Antonio Spurs, but has never logged any NBA minutes.`\
 https://nytimes.com/athletic/6996600/2026/01/24/alabama-charles-bediako-eligibility-g-league/
 
-**Luka Dončić, Lakers cap 15-point comeback vs. Mavericks with high-energy finish**\
-`Dončić sealed the win with a magical side-stepping layup, immediately followed by a drawn charge.`\
+**In his second return to Dallas, Luka Dončić leads a high-energy Lakers rally**\
+`Dončić, whom the Mavs traded nearly a year ago, sealed the win with a magical side-stepping layup, immediately followed by a drawn charge.`\
 https://nytimes.com/athletic/6996629/2026/01/24/luka-doncic-lebron-james-lakers-mavericks-comeback/
 
 **Officials aren't helping 76ers, but inconsistency remains bigger issue**\
 `Watching the 76ers play, the upside is clear. But recurring issues could keep them from reaching their ceiling.`\
 https://nytimes.com/athletic/6996389/2026/01/24/76ers-loss-knicks-tyrese-maxey-joel-embiid-struggles/
+
+**The rising teenage stars of women's tennis leave their mark on the Australian Open, win or lose**\
+`A rising group of players who have transferred winning habits from the minor leagues to the WTA Tour are now set to make a mark at a major.`\
+https://nytimes.com/athletic/6995453/2026/01/24/tennis-best-young-players-wta-mboko-jovic-valentova/
 
 **Gun Activists Bridle at Suggestion That Pistol Justified Killing**\
 `The National Rifle Association and others have argued citizens need guns to fend off government. The killing of Alex Jeffrey Pretti, who carried a pistol, set off debate.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/24/us/william-h-foege-dead.html
 **Read Bondi’s Letter to Minnesota’s Governor**\
 `Attorney General Pam Bondi sent a letter to Gov. Tim Walz of Minnesota on Saturday that blamed him and other Democratic officials for allowing “lawlessness” in the state. It was not immediately clear if the letter had been sent before or after the fatal shooting of Alex Pretti.`\
 https://nytimes.com/interactive/2026/01/24/us/pam-bondi-walz-doc.html
-
-**AHL announcer braves -8 temperatures to call game: 'I would do it again'**\
-`Milwaukee Admirals announcer Aaron Sims called the coldest outdoor professional hockey game in AHL and NHL history Friday.`\
-https://nytimes.com/athletic/6996317/2026/01/24/aaron-sims-ahl-coldest-hockey-game/
-
-**Craig Kimbrel, Mets agree to minor league deal: Sources**\
-`The 37-year-old reliever will earn a base salary of $2.5 million if he cracks the Mets' roster, league sources said.`\
-https://nytimes.com/athletic/6996486/2026/01/24/craig-kimbrel-mets-deal-minors/
 
