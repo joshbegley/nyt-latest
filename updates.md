@@ -1,3 +1,11 @@
+**While many churches canceled Sunday services, some carried on for a hardy few.**\
+`By Ruth Graham`\
+https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/churches
+
+**Once Again, Federal Officials Exclude Minnesota From Investigation of a Fatal Shooting**\
+`State officials have resorted to unconventional methods as they press forward with their own inquiries into the killings of Alex Jeffrey Pretti and Renee Good.`\
+https://nytimes.com/2026/01/25/us/federal-exclude-minnesota-shooting-investigations.html
+
 **Fulham back in talks for USMNT's Pepi after new $38m bid**\
 `Pepi has averaged a goal every other game for PSV this season, but suffered a serious arm injury earlier this month.`\
 https://nytimes.com/athletic/6997560/2026/01/25/ricardo-pepi-fulham-transfer-usmnt/
