@@ -1,3 +1,7 @@
+**Timeline: How the Shooting of Alex Jeffrey Pretti Unfolded**\
+`A moment-by-moment analysis of video from the scene shows that Mr. Pretti was already restrained when fatal shots were fired, which appears to contradict the federal government’s account of the event.`\
+https://nytimes.com/interactive/2026/01/24/us/minneapolis-shooting-alex-pretti-timeline.html
+
 **William H. Foege, Key Figure in the Eradication of Smallpox, Dies at 89**\
 `His containment strategy helped wipe out the disease in the 1970s, one of the world’s greatest public health triumphs. He also led the C.D.C. and promoted childhood vaccination worldwide.`\
 https://nytimes.com/2026/01/24/us/william-h-foege-dead.html
