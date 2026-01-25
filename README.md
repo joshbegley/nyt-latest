@@ -1,3 +1,7 @@
+**Most coaches would be thrilled to be 19-1. Not UConn's Dan Hurley**\
+`Hurley's UConn team might still be a work in progress, but one that, no matter what, just wins anyway.`\
+https://nytimes.com/athletic/6996402/2026/01/24/dan-hurley-uconn-quest-for-perfection-record/
+
 **Timeline: How the Shooting of Alex Jeffrey Pretti Unfolded**\
 `A moment-by-moment analysis of video from the scene shows that Mr. Pretti was already restrained when fatal shots were fired, which appears to contradict the federal government’s account of the event.`\
 https://nytimes.com/interactive/2026/01/24/us/minneapolis-shooting-alex-pretti-timeline.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6996380/2026/01/24/derrick-rose-bulls-jersey-retire
 **Arthur Smith to be named Ohio State offensive coordinator: Source**\
 `Smith had conversations with the Philadelphia Eagles and Tennessee Titans before ultimately deciding to take the OC job with Ohio State.`\
 https://nytimes.com/athletic/6996399/2026/01/24/arthur-smith-ohio-state-oc-steelers/
-
-**State Terror Has Arrived**\
-`Minneapolis has made it plain.`\
-https://nytimes.com/2026/01/24/opinion/state-terror-has-arrived.html
 

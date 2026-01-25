@@ -1,3 +1,7 @@
+**AHL announcer braves -8 temperatures to call game: 'I would do it again'**\
+`Milwaukee Admirals announcer Aaron Sims called the coldest outdoor professional hockey game in AHL and NHL history Friday.`\
+https://nytimes.com/athletic/6996317/2026/01/24/aaron-sims-ahl-coldest-hockey-game/
+
 **Timeline: How the Shooting of Alex Jeffrey Pretti Unfolded**\
 `A moment-by-moment analysis of video from the scene shows that Mr. Pretti was already restrained when fatal shots were fired, which appears to contradict the federal government’s account of the event.`\
 https://nytimes.com/interactive/2026/01/24/us/minneapolis-shooting-alex-pretti-timeline.html

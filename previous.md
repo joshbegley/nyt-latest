@@ -11,7 +11,7 @@ https://nytimes.com/2026/01/24/us/william-h-foege-dead.html
 https://nytimes.com/interactive/2026/01/24/us/pam-bondi-walz-doc.html
 
 **AHL announcer braves -8 temperatures to call game: 'I would do it again'**\
-`Milwaukee Admirals announcer Aaron Sims called the coldest outdoor professional hockey game in AHL and NHL history Wednesday.`\
+`Milwaukee Admirals announcer Aaron Sims called the coldest outdoor professional hockey game in AHL and NHL history Friday.`\
 https://nytimes.com/athletic/6996317/2026/01/24/aaron-sims-ahl-coldest-hockey-game/
 
 **Craig Kimbrel, Mets agree to minor league deal: Sources**\
