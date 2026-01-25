@@ -1,8 +1,12 @@
+**G.O.P. Senator Cassidy Calls for Investigation of Fatal Minnesota Shooting**\
+`The Louisiana Republican, who is facing a primary opponent backed by President Trump, said there should be a joint state and federal inquiry into the shooting death of 37-year-old Minneapolis man.`\
+https://nytimes.com/2026/01/25/us/bill-cassidy-minneapolis-investigation.html
+
 **New York City Schools Announce Remote Learning Day in Response to Storm**\
 `With as much as a foot of snow expected to fall across the city, school buildings will be closed on Monday, Mayor Zohran Mamdani said.`\
 https://nytimes.com/2026/01/25/us/nyc-school-closure-remote-learning-storm.html
 
-**In Luka's return to Dallas, winter storm doesn't prevent Mavs fans showing full support**\
+**Winter storm doesn't keep Mavs fans from showing love to Luka**\
 `Mavericks fans still love Dončić, and Saturday showed an impressive crowd turnout considering the weather conditions affecting north Texas.`\
 https://nytimes.com/athletic/6996762/2026/01/25/luka-doncic-mavericks-lakers-fans-support-nba/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6996966/2026/01/25/kings-vs-pistons-stream-how-to-w
 **How to watch Nuggets vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6996964/2026/01/25/nuggets-vs-grizzlies-stream-how-to-watch-jan-25/
-
-**How to watch Devils vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6996961/2026/01/25/devils-vs-kraken-stream-how-to-watch-jan-25/
 
