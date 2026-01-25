@@ -1,3 +1,7 @@
+**Giants, Logan Webb draw a record crowd as FanFest branches out to the East Bay**\
+`It was a deliberate choice for the Giants to add a new stop on their caravan in territory that used to belong to their Bay Area rivals.`\
+https://nytimes.com/athletic/6996442/2026/01/24/sf-giants-logan-webb-record-crowd-east-bay-fanfest-athletics/
+
 **In Nashville, enduring the cold, for the right shot.**\
 `By Jamie McGee`\
 https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/nashville-snow-music-video
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/how-two-hardy-
 **Over a Thousand Protesters in New York Denounce ICE After Latest Killing**\
 `The demonstrators braved frigid temperatures in Manhattan following the death of 37-year-old Alex Jeffrey Pretti in Minneapolis.`\
 https://nytimes.com/2026/01/24/us/nyc-ice-protest-alex-pretti.html
-
-**Winter weather brings parts of Texas to a halt.**\
-`By Ruth Graham and Mary Beth Gahan`\
-https://nytimes.com/live/2026/01/24/weather/winter-storm-snow-ice/winter-weather-brings-parts-of-texas-to-a-halt
 
