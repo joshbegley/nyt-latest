@@ -1,3 +1,7 @@
+**Why Japan’s Leader Won’t Enter the Male-Dominated Sumo Ring**\
+`Sanae Takaichi, the first woman to lead Japan as prime minister, skipped a sumo awards ceremony, reflecting her cautious approach to gender issues.`\
+https://nytimes.com/2026/01/25/world/asia/japan-takaichi-sumo-gender.html
+
 **Trump Just Proved Carney’s Point**\
 `Canada’s prime minister sees the president all too well.`\
 https://nytimes.com/2026/01/25/opinion/trump-carney-davos-canada-greenland.html
