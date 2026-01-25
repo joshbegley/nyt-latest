@@ -1,3 +1,7 @@
+**Geese Gives ‘Saturday Night Live’ Viewers Something to Talk About**\
+`The buzzy Brooklyn band brought its off-kilter aesthetic to network TV this weekend, with performances that were both confounding and audacious.`\
+https://nytimes.com/2026/01/25/arts/music/geese-cameron-winter-saturday-night-live-snl.html
+
 **Soccer agent ‘threatened to kill’ alleged victim and her children, says court filing**\
 `Jonathan Barnett has denied all accusations against him.`\
 https://nytimes.com/athletic/6997252/2026/01/25/jonathan-barnett-lawsuit-kill/
