@@ -2,7 +2,7 @@
 `The Trump administration is once again engaged in a perversion of justice.`\
 https://nytimes.com/2026/01/25/opinion/alex-pretti-minneapolis-shooting-border-patrol.html
 
-**The Briefing: Arsenal 2 Man Utd 3 - Did composure cost Arteta's side? How good was Dorgu? What does this mean for Carrick?**\
+**The Briefing: Arsenal 2 Man Utd 3 – Did composure cost Arteta's side? How good was Dorgu? What does this mean for Carrick?**\
 `Our writers break down the talking points from an enthralling encounter at the Emirates.`\
 https://nytimes.com/athletic/6990978/2026/01/25/arsenal-man-utd-carrick-dorgu-arteta/
 

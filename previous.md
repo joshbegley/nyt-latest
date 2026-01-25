@@ -1,3 +1,7 @@
+**The Trump Administration Is Lying to Our Faces. Congress Must Act.**\
+`The Trump administration is once again engaged in a perversion of justice.`\
+https://nytimes.com/2026/01/25/opinion/alex-pretti-minneapolis-shooting-border-patrol.html
+
 **The Briefing: Arsenal 2 Man Utd 3 - Did composure cost Arteta's side? How good was Dorgu? What does this mean for Carrick?**\
 `Our writers break down the talking points from an enthralling encounter at the Emirates.`\
 https://nytimes.com/athletic/6990978/2026/01/25/arsenal-man-utd-carrick-dorgu-arteta/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6997251/2026/01/25/mavericks-vs-bucks-stream-how-to
 **How to watch Pelicans vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6997246/2026/01/25/pelicans-vs-spurs-stream-how-to-watch-jan-25/
-
-**How to watch Raptors vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6997243/2026/01/25/raptors-vs-thunder-stream-how-to-watch-jan-25/
 
