@@ -1,3 +1,7 @@
+**Arsenal vs Man Utd: How will Arteta set up? Sesko vs Gyokeres? Carrick’s tactics?**\
+`Fluctuating fortunes over the past 20 years have meant it's a long time since these clubs were the top two, vying for the league title`\
+https://nytimes.com/athletic/6991043/2026/01/25/arsenal-man-united-sesko-gyokeres/
+
 **Pistons' J.B. Bickerstaff to coach one of three All-Star teams**\
 `Bickerstaff becomes the first Detroit All-Star head coach since the late Flip Saunders, who coached during the 2006 All-Star game.`\
 https://nytimes.com/athletic/6996596/2026/01/25/jb-bickerstaff-pistons-coach-nba-all-star-game/
