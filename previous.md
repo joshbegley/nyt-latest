@@ -1,3 +1,15 @@
+**How to watch Nets vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6997501/2026/01/25/nets-vs-clippers-stream-how-to-watch-jan-25/
+
+**How to watch Heat vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6997496/2026/01/25/heat-vs-suns-stream-how-to-watch-jan-25/
+
+**How to watch Ducks vs. Flames: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6997476/2026/01/25/ducks-vs-flames-stream-how-to-watch-jan-25/
+
 **Flamengo in advanced Paqueta talks with West Ham after new bid**\
 `The Brazilian has not featured in West Ham's last two games.`\
 https://nytimes.com/athletic/6997060/2026/01/25/west-ham-lucas-paqueta-flamengo-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/25/business/minnesota-target-general-mills-ceo-lette
 **Chelsea activate recall option for Anselmino from Dortmund**\
 `The 20-year-old Argentina youth international moved to Germany in August on a season-long agreement.`\
 https://nytimes.com/athletic/6996880/2026/01/25/aaron-anselmino-chelsea-borussia-dortmund-loan-recall/
-
-**Amid Two-Week Internet Blackout, Some Iranians Are Getting Back Online**\
-`Many in Iran are gaining brief and unexplained windows of online connectivity, offering a widening glimpse of the extent of the government crackdown.`\
-https://nytimes.com/2026/01/25/world/middleeast/iran-internet.html
-
-**Marian Goodman, Eminent New York Art Dealer, Dies at 97**\
-`Although known for promoting German painters, she also sought out artists who shunned painting in favor of newer mediums, like photography and film.`\
-https://nytimes.com/2026/01/25/obituaries/marian-goodman-dead.html
-
-**Geese Gives ‘Saturday Night Live’ Viewers Something to Talk About**\
-`The buzzy Brooklyn band brought its off-kilter aesthetic to network TV this weekend, with performances that were both confounding and audacious.`\
-https://nytimes.com/2026/01/25/arts/music/geese-cameron-winter-saturday-night-live-snl.html
 
