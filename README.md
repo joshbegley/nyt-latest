@@ -1,3 +1,7 @@
+**Winter Storm Pummels Toronto With Near-Record Snowfall**\
+`Toronto Pearson International Airport had received about 18 inches by 10 p.m. on Sunday, the airport said, and snow was still falling.`\
+https://nytimes.com/2026/01/25/world/americas/toronto-snow-winter-storm.html
+
 **Bedard and Blackhawks still searching for consistency since injury return**\
 `Connor Bedard was playing at an MVP candidate level before his injury. He hasn't quite bounced back yet, and neither has his team.`\
 https://nytimes.com/athletic/6998352/2026/01/25/blackhawks-bedard-consistency-levshunov-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6998231/2026/01/25/super-bowl-60-odds-seahawks-patr
 **'There's always regrets:' Broncos left to grapple with the hurt of a season's abrupt end**\
 `The Broncos missed field goals, dropped passes, and saw the game's most pivotal coaching decision fall short. Now, a long offseason awaits.`\
 https://nytimes.com/athletic/6998165/2026/01/25/broncos-grapple-with-what-ifs-after-super-bowl-chases-abrupt-end-in-afc-title-game/
-
-**Updated 2026 NFL Draft order: Top 30 set; Rams hold picks 13 and 29 in Round 1**\
-`How does Round 1 shape up following the conclusion of Sunday's conference championship games?`\
-https://nytimes.com/athletic/6998080/2026/01/25/updated-2026-nfl-draft-order-top-30-rams/
 
