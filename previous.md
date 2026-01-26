@@ -1,3 +1,27 @@
+**Ask a Journalist: Reporting on TV Shows and Cultural Trends**\
+`Shivani Gonzalez, a TV reporter, joins us in February to chat with teenagers about finding shows worth watching. Post your comments and questions for her by Feb. 15.`\
+https://nytimes.com/2026/01/26/learning/lesson-plans/ask-a-journalist-reporting-on-tv-shows-and-cultural-trends.html
+
+**Bayern in talks with Kane over new contract**\
+`The 32-year-old has scored 34 goals in all competitions for the German champions so far this season.`\
+https://nytimes.com/athletic/6999469/2026/01/26/bayern-munich-harry-kane-new-contract/
+
+**Eilish McColgan interview: Racing the London marathon again, breaking records, and dealing with the family name**\
+`Although firmly ensconced in the pantheon of British women’s distance running, McColgan still has chapters of her career to write `\
+https://nytimes.com/athletic/6993989/2026/01/26/eilish-mccolgan-interview-racing-the-london-marathon-again-breaking-records-and-dealing-with-the-family-name/
+
+**Five No-Chop Dinners, and Brownies**\
+`Including one-pan creamed spinach with eggs, sheet-pan quesadillas and Sam Sifton’s five-star miso chicken.`\
+https://nytimes.com/2026/01/26/dining/five-no-chop-dinners-and-brownies.html
+
+**I Let My Kid Watch Bad TV. In Fact, I Watch It, Too.**\
+`Yes, I feel guilty when I plop my kid in front of the TV. That’s why I plop myself down beside him.`\
+https://nytimes.com/2026/01/26/opinion/parenting-too-much-tv.html
+
+**3 Handbags Under $500 That Wowed Us**\
+`Style writer Nicola Fumo set out to find great-looking, functional, high-quality everyday bags that will hold up for years — all for $500 or less. With the help of a team of testers, she landed on seven options that will last for seasons to come.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010668695/3-handbags-under-500-that-wowed-us.html
+
 **Bundesliga announces record combined revenues of €6.33billion**\
 `It represented a 7.9 per cent increase on the €5.87bn made during the previous season, which itself was a record.`\
 https://nytimes.com/athletic/6998893/2026/01/26/bundesliga-record-revenues-six-billion/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6999133/2026/01/26/usmnt-tracker-scally-mckennie-tr
 **The Windup: Keith Law's top 2026 prospects**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6999403/2026/01/26/keith-laws-top-2026-prospects-the-windup/
-
-**Inquest into death of ex-player McQueen finds heading 'likely' contributed to brain disease**\
-`"It is likely that repetitive head impacts, sustained by heading the ball while playing football, contributed to CTE,” the coroner said.`\
-https://nytimes.com/athletic/6999381/2026/01/26/gordon-mcqueen-heading-death-cte/
-
-**Submit questions for Charlotte Varnes' Phillies mailbag**\
-`Pitcher and catchers report to spring training in about two weeks, so it's as good a time as any to discuss the Phillies.`\
-https://nytimes.com/athletic/6999359/2026/01/26/phillies-questions-charlotte-varnes/
-
-**Winter Storm Will Plunge Much of the U.S. Into Intense Cold**\
-`Forecasters said temperatures below zero were expected this week from the Northern Plains through the Ohio Valley and into the Northeast.`\
-https://nytimes.com/2026/01/26/weather/winter-storm-cold-temps-central-east-us.html
-
-**A Gentler Disinfectant than Bleach**\
-`This make-at-home spray promises to replace both multi-surface cleaners and disinfectants by harnessing hypochlorous acid — does it live up to those claims? Cleaning reporter Caroline Mullen tested the Force of Nature starter kit to find out.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010668609/a-gentler-disinfectant-than-bleach.html
-
-**Trump Is Sending Tom Homan, His Border Czar, to Minnesota**\
-`“He has not been involved in that area, but knows and likes many of the people there,” President Trump wrote on Truth Social on Monday.`\
-https://nytimes.com/2026/01/26/us/politics/homan-minnesota-ice-trump.html
-
-**The ‘R-Word’ Returns, Dismaying Those Who Fought to Oust It**\
-`The term, long considered a slur for those with intellectual disabilities, is seeing a resurgence on social media and across the political right.`\
-https://nytimes.com/2026/01/26/us/r-word-slur-disability.html
 
