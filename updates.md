@@ -1,3 +1,7 @@
+**Scottie Scheffler wins Amex in first start of year, makes history along way**\
+`Scheffler joins Tiger Woods and Jack Nicklaus as only golfers to win 20 PGA Tour events and four majors before turning 30.`\
+https://nytimes.com/athletic/6998020/2026/01/25/scottie-scheffler-wins-amex-history/
+
 **Winter Storm Blankets Eastern U.S. With Heavy Snow**\
 `A powerful winter storm brought heavy snow, ice and freezing cold from Texas to New England. Parts of the Northeast were expecting 12 to 18 inches of snow.`\
 https://nytimes.com/video/weather/100000010667696/winter-storm-eastern-us-snow-ice-video.html
