@@ -1,3 +1,7 @@
+**Mike Vrabel's turnaround of the Patriots is nearly complete: 'It’s all about the coach'**\
+`In his first season back in New England, Vrabel outmaneuvered Sean Payton on the way to his first Super Bowl as a head coach.`\
+https://nytimes.com/athletic/6998266/2026/01/25/mike-vrabel-patriots-broncos-afc-championship-game/
+
 **‘A Knight of the Seven Kingdoms’ Season 1 Episode 2 Recap: A Man Among Princes**\
 `A certain royal family known for dragons and blond hair arrives on the scene. One of our heroes, at least, seems appropriately wary.`\
 https://nytimes.com/2026/01/25/arts/television/knight-of-the-seven-kingdoms-recap-season-1-episode-2.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6997977/2026/01/25/super-bowl-2026-preview-odds-pat
 **Patriots vs. Seahawks in Super Bowl 60: What to know about matchup, halftime show, more**\
 `The Patriots are looking for their record seventh Super Bowl title, while the Seahawks are looking for their second championship.`\
 https://nytimes.com/athletic/6997991/2026/01/25/super-bowl-patriots-seahawks-bad-bunny-pro-bowl/
-
-**Private Jet With 8 People Aboard Crashes at Maine Airport, F.A.A. Says**\
-`A Bombardier Challenger 600 crashed during takeoff at the Bangor airport, according to officials, as a paralyzing winter storm lashed the East Coast.`\
-https://nytimes.com/2026/01/25/us/bangor-maine-airport-crash.html
 

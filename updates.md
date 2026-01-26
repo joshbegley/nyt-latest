@@ -1,3 +1,7 @@
+**Mike Vrabel's turnaround of the Patriots is nearly complete: 'It’s all about the coach'**\
+`In his first season back in New England, Vrabel outmaneuvered Sean Payton on the way to his first Super Bowl as a head coach.`\
+https://nytimes.com/athletic/6998266/2026/01/25/mike-vrabel-patriots-broncos-afc-championship-game/
+
 **‘A Knight of the Seven Kingdoms’ Season 1 Episode 2 Recap: A Man Among Princes**\
 `A certain royal family known for dragons and blond hair arrives on the scene. One of our heroes, at least, seems appropriately wary.`\
 https://nytimes.com/2026/01/25/arts/television/knight-of-the-seven-kingdoms-recap-season-1-episode-2.html
