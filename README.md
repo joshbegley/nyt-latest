@@ -1,3 +1,7 @@
+**How to watch Islanders vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6999565/2026/01/26/islanders-vs-flyers-stream-how-to-watch-jan-26/
+
 **How to watch Bruins vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6999561/2026/01/26/bruins-vs-rangers-stream-how-to-watch-jan-26/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6993989/2026/01/26/eilish-mccolgan-interview-racing
 **Five No-Chop Dinners, and Brownies**\
 `Including one-pan creamed spinach with eggs, sheet-pan quesadillas and Sam Sifton’s five-star miso chicken.`\
 https://nytimes.com/2026/01/26/dining/five-no-chop-dinners-and-brownies.html
-
-**I Let My Kid Watch Bad TV. In Fact, I Watch It, Too.**\
-`Yes, I feel guilty when I plop my kid in front of the TV. That’s why I plop myself down beside him.`\
-https://nytimes.com/2026/01/26/opinion/parenting-too-much-tv.html
 
