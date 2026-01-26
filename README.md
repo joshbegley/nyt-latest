@@ -1,15 +1,3 @@
-**Barcelona's Fermin set to extend contract through to 2031**\
-`The 22-year-old has scored 10 goals for Hansi Flick's side this season and has provided six assists, despite groin injury setbacks.`\
-https://nytimes.com/athletic/7000018/2026/01/26/fermin-lopez-barcelona-contract/
-
-**Why Chiefs’ Andy Reid was fired up talking about Eric Bieniemy — and Matt Nagy**\
-`Reid was animated with reporters during a Monday news conference. Here's what fired him up.`\
-https://nytimes.com/athletic/7000103/2026/01/26/chiefs-andy-reid-matt-nagy-eric-bieniemy/
-
-**As Tech Chiefs Woo Trump, Silicon Valley Seethes Over Minneapolis Shootings**\
-`Executives, investors and engineers are speaking out against the Trump administration after the killings of Alex Pretti and another protester in moves reminiscent of Silicon Valley a decade ago.`\
-https://nytimes.com/2026/01/26/technology/ice-minnesota-protests-tech.html
-
 **Senators demand answers on Trump's takeover of D.C. golf courses**\
 `Four Democratic senators from Maryland and Virginia have come out in opposition of the effort to revoke the lease on three courses.`\
 https://nytimes.com/athletic/7000058/2026/01/26/lawmakers-oppose-trump-takeover-dc-municipal-golf-courses/
@@ -37,4 +25,16 @@ https://nytimes.com/athletic/7000256/2026/01/26/warriors-vs-timberwolves-stream-
 **How to watch Trail Blazers vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7000254/2026/01/26/trail-blazers-vs-celtics-stream-how-to-watch-jan-26/
+
+**How to watch Ducks vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7000245/2026/01/26/ducks-vs-oilers-stream-how-to-watch-jan-26/
+
+**How to watch Arizona vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7000205/2026/01/26/arizona-vs-byu-stream-how-to-watch-jan-26/
+
+**A New Way to Flirt: Dazzle Potential Mates With Patterns Invisible to Humans**\
+`Cuttlefish attract prospective sexual partners by creating a pattern on their skin, based on the orientation of light waves.`\
+https://nytimes.com/2026/01/26/science/cuttlefish-camouflage-sexual-display.html
 

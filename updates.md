@@ -1,3 +1,15 @@
+**Barcelona's Fermin set to extend contract through to 2031**\
+`The 22-year-old has scored 10 goals for Hansi Flick's side this season and has provided six assists, despite groin injury setbacks.`\
+https://nytimes.com/athletic/7000018/2026/01/26/fermin-lopez-barcelona-contract/
+
+**Why Chiefs’ Andy Reid was fired up talking about Eric Bieniemy — and Matt Nagy**\
+`Reid was animated with reporters during a Monday news conference. Here's what fired him up.`\
+https://nytimes.com/athletic/7000103/2026/01/26/chiefs-andy-reid-matt-nagy-eric-bieniemy/
+
+**As Tech Chiefs Woo Trump, Silicon Valley Seethes Over Minneapolis Shootings**\
+`Executives, investors and engineers are speaking out against the Trump administration after the killings of Alex Pretti and another protester in moves reminiscent of Silicon Valley a decade ago.`\
+https://nytimes.com/2026/01/26/technology/ice-minnesota-protests-tech.html
+
 **Senators demand answers on Trump's takeover of D.C. golf courses**\
 `Four Democratic senators from Maryland and Virginia have come out in opposition of the effort to revoke the lease on three courses.`\
 https://nytimes.com/athletic/7000058/2026/01/26/lawmakers-oppose-trump-takeover-dc-municipal-golf-courses/
