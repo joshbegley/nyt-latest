@@ -1,3 +1,15 @@
+**Senators demand answers on Trump's takeover of D.C. golf courses**\
+`Four Democratic senators from Maryland and Virginia have come out in opposition of the effort to revoke the lease on three courses.`\
+https://nytimes.com/athletic/7000058/2026/01/26/lawmakers-oppose-trump-takeover-dc-municipal-golf-courses/
+
+**olympics-panel**\
+``\
+https://nytimes.com/panel/live/olympics-panel
+
+**On Foreign Policy, Trump’s Fans Give Him the Benefit of the Doubt**\
+`At least so far, President Trump has managed to bring along even those conservative supporters who are skeptical of foreign interventions.`\
+https://nytimes.com/2026/01/26/us/politics/trump-supporters-foreign-policy-greenland-iran.html
+
 **How to watch Grizzlies vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7000271/2026/01/26/grizzlies-vs-rockets-stream-how-to-watch-jan-26/
