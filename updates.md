@@ -1,3 +1,7 @@
+**Pretti Shooting Was Flawed From the Start, Policing Experts Say**\
+`Law enforcement experts say federal agents deviated from standard practice before and during the shooting of Alex Pretti in Minneapolis, based on videos.`\
+https://nytimes.com/2026/01/26/us/alex-pretti-shooting-federal-agents-force.html
+
 **For a road supervisor in rural Ohio, the storm means long hours of plowing, salting and roadside rescues.**\
 `By Kevin Williams`\
 https://nytimes.com/live/2026/01/26/weather/weather-snow-updates-ice-cold/for-a-road-supervisor-in-rural-ohio-the-storm-means-long-hours-of-plowing-salting-and-roadside-rescues

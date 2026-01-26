@@ -1,3 +1,7 @@
+**Pretti Shooting Was Flawed From the Start, Policing Experts Say**\
+`Law enforcement experts say federal agents deviated from standard practice before and during the shooting of Alex Pretti in Minneapolis, based on videos.`\
+https://nytimes.com/2026/01/26/us/alex-pretti-shooting-federal-agents-force.html
+
 **For a road supervisor in rural Ohio, the storm means long hours of plowing, salting and roadside rescues.**\
 `By Kevin Williams`\
 https://nytimes.com/live/2026/01/26/weather/weather-snow-updates-ice-cold/for-a-road-supervisor-in-rural-ohio-the-storm-means-long-hours-of-plowing-salting-and-roadside-rescues
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7000395/2026/01/26/wolves-transfers-fer-lopez-celta
 **NATO Chief Says Europe Is ‘Dreaming’ if It Thinks It Can Defend Itself Without U.S.**\
 `Mark Rutte, the secretary general of the alliance, told members of the European Parliament that President Trump was “doing a lot of good stuff.”`\
 https://nytimes.com/2026/01/26/world/europe/nato-chief-europe-greenland-trump-us.html
-
-**Court Affirms Ruling That Alina Habba Served Unlawfully as U.S. Attorney**\
-`The Justice Department lost a bid to challenge a decision that had found Ms. Habba was serving unlawfully as New Jersey’s top federal prosecutor.`\
-https://nytimes.com/2026/01/26/nyregion/alina-habba-appeal.html
 
