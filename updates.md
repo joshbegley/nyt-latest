@@ -1,3 +1,7 @@
+**Chloé Zhao Is Yearning to Know How to Love**\
+`The “Hamnet” director Chloé Zhao spoke with David Marchese about trying to overcome her deepest fears — and open her heart.`\
+https://nytimes.com/video/podcasts/100000010668318/chloe-zhao-is-yearning-to-know-how-to-love.html
+
 **Elon Musk’s X Faces European Inquiry Over Sexualized A.I. Images**\
 `Regulators said the company’s lack of controls had led to the widespread use of deepfakes created with the chatbot Grok.`\
 https://nytimes.com/2026/01/26/business/european-union-x-grok-ai-images-musk.html
