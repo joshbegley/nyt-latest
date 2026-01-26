@@ -1,3 +1,7 @@
+**Ice Storm Leaves Thousands Without Power in a Mississippi County**\
+`More than 20,000 households had no power late Sunday in Lafayette County, a day after freezing rain hit the Oxford area.`\
+https://nytimes.com/2026/01/26/us/ice-storm-mississippi-oxford.html
+
 **Pedro Lives in a Hospital. His Nurses Are on Strike. He Misses Them.**\
 `Pedro, a 2-year-old, needs a new heart and has spent months in a New York hospital. With his nurses on the picket line, replacement workers care for him.`\
 https://nytimes.com/2026/01/26/nyregion/nyc-nurses-strike-patients-children.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6998564/2026/01/26/sean-mcvay-snaps-matthew-staffor
 **The New York Times in Print for Monday, Jan. 26, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/26/todays-new-york-times
-
-**This Theory Explains Trump’s Baffling Foreign Policy**\
-`The president’s approach is not just chaos or an updated version of 19th-century great-power competition.`\
-https://nytimes.com/2026/01/26/opinion/trump-foreign-policy-neo-royalist.html
 

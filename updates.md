@@ -1,3 +1,7 @@
+**Ice Storm Leaves Thousands Without Power in a Mississippi County**\
+`More than 20,000 households had no power late Sunday in Lafayette County, a day after freezing rain hit the Oxford area.`\
+https://nytimes.com/2026/01/26/us/ice-storm-mississippi-oxford.html
+
 **Pedro Lives in a Hospital. His Nurses Are on Strike. He Misses Them.**\
 `Pedro, a 2-year-old, needs a new heart and has spent months in a New York hospital. With his nurses on the picket line, replacement workers care for him.`\
 https://nytimes.com/2026/01/26/nyregion/nyc-nurses-strike-patients-children.html
