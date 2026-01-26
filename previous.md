@@ -1,3 +1,7 @@
+**The Briefing: Everton 1 Leeds 1 - versatile Justin, Calvert-Lewin's near miss and a point closer to safety**\
+`Beren Cross analyses the main talking points from Leeds' draw with Everton at Hill Dickinson Stadium`\
+https://nytimes.com/athletic/6999814/2026/01/26/everton-leeds-analysis/
+
 **Lopez rejoins Celta on loan, six months after £19.5m Wolves transfer**\
 `The 21-year-old has started just three Premier League games and made seven substitute appearances in half a season at Molineux.`\
 https://nytimes.com/athletic/7000395/2026/01/26/wolves-transfers-fer-lopez-celta/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6982591/2026/01/26/psg-transfer-news-dro-fernandez-
 **Clippers' surprising resurgence has blogger set to (literally) eat his words**\
 `Robert Flom, owner of a Clippers fan blog, said he would "eat this tweet" is the team could muster a 15-3 stretch. `\
 https://nytimes.com/athletic/7000068/2026/01/26/clippers-blogger-eat-tweet-213hoops/
-
-**Yoshinobu Yamamoto joins Shohei Ohtani on Team Japan's WBC roster**\
-`After months of speculation, Los Angeles Dodgers star Yoshinobu Yamamoto was named to Team Japan&#8217;s roster Monday and will pitch in the 2026 World Baseball Classic.`\
-https://nytimes.com/athletic/7000331/2026/01/26/yoshinobu-yamamoto-dodgers-wbc/
 

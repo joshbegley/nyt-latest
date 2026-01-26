@@ -1,3 +1,7 @@
+**The Briefing: Everton 1 Leeds 1 - versatile Justin, Calvert-Lewin's near miss and a point closer to safety**\
+`Beren Cross analyses the main talking points from Leeds' draw with Everton at Hill Dickinson Stadium`\
+https://nytimes.com/athletic/6999814/2026/01/26/everton-leeds-analysis/
+
 **Court Affirms Ruling That Alina Habba Served Unlawfully as U.S. Attorney**\
 `The Justice Department lost a bid to challenge a decision that had found Ms. Habba was serving unlawfully as New Jersey’s top federal prosecutor.`\
 https://nytimes.com/2026/01/26/nyregion/alina-habba-appeal.html
