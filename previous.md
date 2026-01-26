@@ -1,3 +1,7 @@
+**The Windup: Keith Law's top 2026 prospects**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6999403/2026/01/26/keith-laws-top-2026-prospects-the-windup/
+
 **Inquest into death of ex-player McQueen finds heading 'likely' contributed to brain disease**\
 `"It is likely that repetitive head impacts, sustained by heading the ball while playing football, contributed to CTE,” the coroner said.`\
 https://nytimes.com/athletic/6999381/2026/01/26/gordon-mcqueen-heading-death-cte/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6999253/2026/01/26/the-bounce-giannis-hornets-nba/
 **New Videos of the Beckham Feud Are Fake. Nobody Seems to Care.**\
 `A.I.-generated content of Victoria Beckham has spread as wedding drama has engulfed the celebrity clan and the public has clamored for receipts (even fabricated ones).`\
 https://nytimes.com/2026/01/26/business/media/brooklyn-beckham-victoria-feud-ai-videos-dancing.html
-
-**Searching for Memories of a Brother Lost to an Institution**\
-`A Times reporter covering the disability community set out to explore a dark moment in history, and found a man looking for a brother he never knew.`\
-https://nytimes.com/2026/01/26/insider/searching-for-memories-of-a-brother-lost-to-an-institution.html
 

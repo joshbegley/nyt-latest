@@ -1,3 +1,7 @@
+**The Windup: Keith Law's top 2026 prospects**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6999403/2026/01/26/keith-laws-top-2026-prospects-the-windup/
+
 **Inquest into death of ex-player McQueen finds heading 'likely' contributed to brain disease**\
 `"It is likely that repetitive head impacts, sustained by heading the ball while playing football, contributed to CTE,” the coroner said.`\
 https://nytimes.com/athletic/6999381/2026/01/26/gordon-mcqueen-heading-death-cte/
