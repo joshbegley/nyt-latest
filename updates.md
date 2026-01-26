@@ -1,3 +1,11 @@
+**Philip Rivers removes himself from Bills coaching consideration: Sources**\
+`Rivers, 44, has no NFL coaching experience, but addressed the idea after the Colts final regular-season game in early January.`\
+https://nytimes.com/athletic/6999091/2026/01/26/philip-rivers-bills-coaching-candidacy/
+
+**Patriots vs. Seahawks in Super Bowl 60: What to know about matchup, halftime show, more**\
+`The Patriots are looking for their record seventh Super Bowl title, while the Seahawks are looking for their second championship.`\
+https://nytimes.com/athletic/6997991/2026/01/26/super-bowl-patriots-seahawks-bad-bunny-pro-bowl/
+
 **Business Leaders Face a Test in Minneapolis**\
 `Some companies have begun to respond to the fatal shooting of Alex Jeffrey Pretti and the immigration crackdown. But others have stayed silent.`\
 https://nytimes.com/2026/01/26/business/dealbook/business-leaders-minnesota-ice.html
