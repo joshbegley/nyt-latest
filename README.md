@@ -1,3 +1,7 @@
+**Alex Pretti’s Friends and Family Denounce ‘Sickening Lies’ About His Life**\
+`People who knew a man fatally shot by federal agents pushed back against what they called a smear campaign by federal officials. “He was a good man,” his family said.`\
+https://nytimes.com/2026/01/25/us/alex-pretti-minneapolis-shooting.html
+
 **Patriots Hold Off Broncos in Frigid Conditions to Advance to Super Bowl**\
 `Quarterback Drake Maye’s 65 yards and a touchdown on the ground made the difference for New England against Denver, landing the Patriots the win and a ticket to the Super Bowl.`\
 https://nytimes.com/video/the-athletic/100000010667839/patriots-hold-off-broncos-in-frigid-conditions-to-advance-to-super-bowl.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/25/nyregion/snow-storm-new-york.html
 **Alan Page after false claim he attended ICE protest: 'Why would somebody make that up?'**\
 `The Vikings Hall of Famer received messages from friends asking if he attended an ICE protest after a photo of him went viral.`\
 https://nytimes.com/athletic/6997720/2026/01/25/alan-page-ice-protests-minneapolis-social-media/
-
-**On Being Inconvenienced**\
-`After an alleged arson attack on a synagogue, one church in Jackson, Miss. opened its doors.`\
-https://nytimes.com/2026/01/25/briefing/on-being-inconvenienced.html
 
