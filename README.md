@@ -1,3 +1,11 @@
+**Pedro Lives in a Hospital. His Nurses Are on Strike. He Misses Them.**\
+`Pedro, a 2-year-old, needs a new heart and has spent months in a New York hospital. With his nurses on the picket line, replacement workers care for him.`\
+https://nytimes.com/2026/01/26/nyregion/nyc-nurses-strike-patients-children.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/26/crosswords/spelling-bee-forum.html
+
 **In Xi’s China, Even the Mightiest General Can Fall**\
 `A combat veteran, Zhang Youxia was once seen as the most trusted man in Xi Jinping’s military. Now he is the most public example of disloyalty to Mr. Xi.`\
 https://nytimes.com/2026/01/26/world/asia/china-xi-zhang-youxia-military.html
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/01/26/todays-new-york-times
 **This Theory Explains Trump’s Baffling Foreign Policy**\
 `The president’s approach is not just chaos or an updated version of 19th-century great-power competition.`\
 https://nytimes.com/2026/01/26/opinion/trump-foreign-policy-neo-royalist.html
-
-**‘Bridgerton,’ Plus 5 Things to Watch on TV This Week**\
-`This Regency-era drama is back for a fourth season, and the 2026 Grammy Awards will air.`\
-https://nytimes.com/2026/01/26/arts/television/bridgerton-plus-5-things-to-watch-on-tv-this-week.html
-
-**Stuart Skinner's brilliance propels Penguins to perfect trip**\
-`Skinner put on a show as the Penguins finished with a 3-2 win against the Canucks. `\
-https://nytimes.com/athletic/6997518/2026/01/26/penguins-perfect-trip-stuart-skinner/
 
