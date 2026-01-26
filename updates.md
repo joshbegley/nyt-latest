@@ -1,3 +1,15 @@
+**Winter Storm Pummels Toronto With Near-Record Snowfall**\
+`Toronto Pearson International Airport had received about 18 inches by 10 p.m. on Sunday, the airport said, and snow was still falling.`\
+https://nytimes.com/2026/01/25/world/americas/toronto-snow-winter-storm.html
+
+**Bedard and Blackhawks still searching for consistency since injury return**\
+`Connor Bedard was playing at an MVP candidate level before his injury. He hasn't quite bounced back yet, and neither has his team.`\
+https://nytimes.com/athletic/6998352/2026/01/25/blackhawks-bedard-consistency-levshunov-panthers/
+
+**Scottie Barnes for Defensive Player of the Year? This block strengthens his case**\
+`The 6-foot-8 Raptor made a defensive gem against OKC's Chet Holmgren and also shut down Shai Gilgeous-Alexander.`\
+https://nytimes.com/athletic/6998302/2026/01/25/scottie-barnes-raptors-defensive-play-chet-holmgren-dpoy-contender/
+
 **Storm Dumps a Foot of Snow in 18 States**\
 `Bonito Lake, N.M., received 31 inches, the most in the country this weekend, the National Weather Service said.`\
 https://nytimes.com/2026/01/25/us/snow-totals.html
