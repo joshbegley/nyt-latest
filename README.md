@@ -1,3 +1,11 @@
+**Ask a Journalist: Reporting on TV Shows and Cultural Trends**\
+`Shivani Gonzalez, a TV reporter, joins us in February to chat with teenagers about finding shows worth watching. Post your comments and questions for her by Feb. 15.`\
+https://nytimes.com/2026/01/26/learning/lesson-plans/ask-a-journalist-reporting-on-tv-shows-and-cultural-trends.html
+
+**Bayern in talks with Kane over new contract**\
+`The 32-year-old has scored 34 goals in all competitions for the German champions so far this season.`\
+https://nytimes.com/athletic/6999469/2026/01/26/bayern-munich-harry-kane-new-contract/
+
 **Eilish McColgan interview: Racing the London marathon again, breaking records, and dealing with the family name**\
 `Although firmly ensconced in the pantheon of British women’s distance running, McColgan still has chapters of her career to write `\
 https://nytimes.com/athletic/6993989/2026/01/26/eilish-mccolgan-interview-racing-the-london-marathon-again-breaking-records-and-dealing-with-the-family-name/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6999133/2026/01/26/usmnt-tracker-scally-mckennie-tr
 **The Windup: Keith Law's top 2026 prospects**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6999403/2026/01/26/keith-laws-top-2026-prospects-the-windup/
-
-**Inquest into death of ex-player McQueen finds heading 'likely' contributed to brain disease**\
-`"It is likely that repetitive head impacts, sustained by heading the ball while playing football, contributed to CTE,” the coroner said.`\
-https://nytimes.com/athletic/6999381/2026/01/26/gordon-mcqueen-heading-death-cte/
-
-**Submit questions for Charlotte Varnes' Phillies mailbag**\
-`Pitcher and catchers report to spring training in about two weeks, so it's as good a time as any to discuss the Phillies.`\
-https://nytimes.com/athletic/6999359/2026/01/26/phillies-questions-charlotte-varnes/
 
