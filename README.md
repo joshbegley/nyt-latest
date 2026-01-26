@@ -1,3 +1,11 @@
+**A Showdown in Minnesota**\
+`We look at the death of Alex Pretti in Minneapolis.`\
+https://nytimes.com/2026/01/26/briefing/a-showdown-in-minnesota.html
+
+**New York City Schools Opt for Remote Learning After Storm Pummels Region**\
+`Mayor Zohran Mamdani said classes would be remote, not canceled, after a winter storm covered the city in nearly a foot of snow.`\
+https://nytimes.com/2026/01/26/weather/new-york-city-schools-remote-learning-storm.html
+
 **Here’s the latest.**\
 `By Mitch Smith and Yan Zhuang`\
 https://nytimes.com/live/2026/01/26/us/minneapolis-shooting-ice/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6997715/2026/01/26/eli-raridon-notre-dame-draft-int
 **Mets roster projection: How lineup and pitching staff look after big offseason changes**\
 `It looks like on Opening Day, the Mets will have nine players new to the organization.`\
 https://nytimes.com/athletic/6998072/2026/01/26/mets-roster-projection-lineup-pitching-staff/
-
-**The Rams thought they were done with Cooper Kupp. They know better now**\
-`Facing his former team, Cooper Kupp came alive when it mattered most, making three of the most pivotal plays in a 31-27 Seattle victory.`\
-https://nytimes.com/athletic/6998767/2026/01/26/cooper-kupp-seahawks-rams-nfc-championship-game/
-
-**Wild insider: Could we see Fleury unretire? Plus trade rumblings, TV tweaks**\
-`The beloved goalie hung up the skates at the end of last season, but the Wild may be in a unique position to coax him out again.`\
-https://nytimes.com/athletic/6997270/2026/01/26/wild-fleury-unretire-goalie-fanduel-foligno/
 
