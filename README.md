@@ -1,40 +1,40 @@
-**Here’s the latest.**\
-`By Max Kim and Yan Zhuang`\
-https://nytimes.com/live/2026/01/26/weather/weather-snow-updates-ice-cold/heres-the-latest
+**Xavier Legette's future and heightened attention to OT Panthers mailbag**\
+`Left tackle Ikem Ekwonu's knee injury is a concern but taking a tackle with the 19th pick is unlikely.`\
+https://nytimes.com/athletic/6995952/2026/01/26/panthers-mailbag-xavier-legette-offensive-tackle/
 
-**Live Updates: Winter Storm Pummels U.S. With Ice, Snow and Frigid Temperatures**\
-`Millions across the country faced dangerous cold after the storm dumped snow in at least 18 states, disrupting travel and causing power outages.`\
-https://nytimes.com/live/2026/01/26/weather/weather-snow-updates-ice-cold
+**Why William Carrier — 'strong as an ox' — is a key cog in Hurricanes’ relentless style**\
+`“I think anytime Will’s out there, you notice him,” coach Rod Brind'Amour said.`\
+https://nytimes.com/athletic/6997509/2026/01/26/william-carrier-hurricanes-roster/
 
-**2026 Top 100 MLB prospects from Keith Law: Pirates' Konnor Griffin tops the list**\
-`Konnor Griffin, the most exciting prospect in the minors since Mike Trout, leads a talented top 100 group heavy on position players.`\
-https://nytimes.com/athletic/6985939/2026/01/26/top-mlb-prospects-2026-keith-law-konnor-griffin/
+**What I'm hearing about the Mavericks with the NBA trade deadline 10 days away**\
+`Will the Mavericks make any big moves before the NBA trade deadline approaches?`\
+https://nytimes.com/athletic/6997836/2026/01/26/mavericks-trade-deadline-player-demand-davis-marshall/
 
-**Who should Ravens coach Jesse Minter hire as his offensive, defensive coordinators?**\
-`Minter is now entrenched as Baltimore's next head coach. His first priority will be filling out his staff.`\
-https://nytimes.com/athletic/6997404/2026/01/26/ravens-offensive-defensive-coordinator-oc-dc-jesse-minter/
+**NHL weekend rankings: Yo-yo Penguins, soaring Sharks and an ugly weekend in Toronto**\
+`Leafs coach Craig Berube has a baffling and enormous head wound, and that wasn't even the worst thing to look at in Toronto this weekend.`\
+https://nytimes.com/athletic/6998163/2026/01/26/nhl-weekend-rankings-penguins-sharks-leafs/
 
-**Jalen Johnson has finally arrived. And for the Hawks, 'he's that guy now'**\
-`“Not everything’s gonna be linear all the time,” Johnson says of his path to Hawks centerpiece. First, he had to learn to set aside his ego.`\
-https://nytimes.com/athletic/6995660/2026/01/26/jalen-johnson-hawks-nba-all-star-trae-young-trade/
+**Nick Goepper was 'lost,' then the three-time Olympic medalist made a major change**\
+`After three Olympic slopestyle medals, the American freestyle skier thought he was done, before a switch to halfpipe revitalized him.`\
+https://nytimes.com/athletic/6971923/2026/01/26/nick-goepper-us-olympics-freestyle-skiing-halfpipe/
 
-**Memory and Speech Are Their Everyday Struggles. Then They Get to Sing.**\
-`At the Singing Circle in Amsterdam, people with cognitive decline join together to lift their spirits and improve their lives.`\
-https://nytimes.com/2026/01/26/arts/music/amsterdam-concertgebouw-singing-circle.html
+**Why Raptors fans have reason to believe what they've seen isn't a mirage**\
+`Winning the final four games of a Western trip pushed Toronto's road record to 16-9 - among the NBA's best.`\
+https://nytimes.com/athletic/6998471/2026/01/26/raptors-earned-mounting-respect-and-belief-with-successful-western-conference-road-trip/
 
-**Yasiel Puig was once one of MLB's most exciting players. Now he's on trial**\
-`The trial over whether Yasiel Puig lied to federal investigators about his gambling conduct is expected to conclude soon. `\
-https://nytimes.com/athletic/6998309/2026/01/26/yasiel-puig-mlb-trial-federal-gambling-charges/
+**Explained: How F1’s first 2026 test will work — and why you can’t watch it**\
+`The F1 teams are testing their 2026 cars at the Barcelona track this week. But why is the action not open to the public?`\
+https://nytimes.com/athletic/6994763/2026/01/26/barcelona-f1-test-2026/
 
-**Super Bowl teams bucked coaching trends in rapid rebuilds**\
-`The Super Bowl will feature teams led by defensive coaches for the first time in nine years.`\
-https://nytimes.com/athletic/6998506/2026/01/26/seahawks-patriots-super-bowl-coaches/
+**Jarrett Stidham's golden opportunity with Broncos squandered by costly gaffe**\
+`The Patriots' only touchdown came after Stidham gift-wrapped them great field position. "I can't put our team in a bad position like that."`\
+https://nytimes.com/athletic/6998210/2026/01/26/jarrett-stidham-broncos-patriots-loss-afc-championship/
 
-**A Rams season filled with joy ends in heartbreak: 'It's hard to fathom that it's over'**\
-`For the Rams and 37-year-old MVP candidate Matthew Stafford, it was a season they'll never forget. But now they must say goodbye.`\
-https://nytimes.com/athletic/6998489/2026/01/26/rams-season-loss-nfc-championship-seahawks/
+**Brady Anderson just landed his first formal coaching job at 62. He's been teaching players for years**\
+`As Anderson prepares for his role as Angels hitting coach, former Orioles players and coaches praise his player development skills. `\
+https://nytimes.com/athletic/6997896/2026/01/26/brady-anderson-angels-hitting-coach-orioles/
 
-**Secret to Isaiah Stewart's shot-blocking prowess? 'You can't be scared to get punched'**\
-`"I truly believe I am the best defender in the league," says the Pistons' Stewart. `\
-https://nytimes.com/athletic/6975321/2026/01/26/pistons-isaiah-stewart-shot-blocking/
+**Who is the next Blake Coleman? This year’s utility players to watch**\
+`They may not be household names, but these utility players can help make or break a playoff run. Who could be on the market this season? `\
+https://nytimes.com/athletic/6998106/2026/01/26/nhl-trade-deadline-utility-players-blake-coleman/
 
