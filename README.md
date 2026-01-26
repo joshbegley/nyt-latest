@@ -1,3 +1,17 @@
+**Defending Australian Open champion Madison Keys falls to Jessica Pegula in fourth round**\
+`Keys' reign ended in a straight-sets defeat to her compatriot and close friend.`\
+https://nytimes.com/athletic/6998147/2026/01/25/tennis-australian-open-madison-keys-jessica-pegula-result-analysis/
+
+**Patriots will celebrate AFC title with extra night in Denver due to winter weather**\
+`Patriots coach Mike Vrabel told the team they'll have no curfew but need to be on the bus that leaves for the airport at 8 a.m. Monday.`\
+https://nytimes.com/athletic/6998133/2026/01/25/patriots-stay-overnight-denver-weather/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>I thought college football would slow down post-CFP, but instead we got Duke suing Darian Mensah and Dabo putting Pete Golding on blast.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6998160/2026/01/25/submit-a-question-for-stewart-mandels-college-football-mailbag-332/
+
 **Trump Blames Democrats for ‘Tragic’ Deaths as Agents Clash With Protesters**\
 `Top administration officials had earlier, and without evidence, accused each of the shooting victims in Minneapolis of “domestic terrorism.”`\
 https://nytimes.com/2026/01/25/us/politics/trump-blames-democrats-minneapolis-killings.html
@@ -25,16 +39,4 @@ https://nytimes.com/2026/01/25/us/trump-administration-minneapolis-shooting-resp
 **False Posts and Altered Images Distort Views of Minnesota Shooting**\
 `Some social media posts tried to warp the evidence of the killing of a nurse in Minneapolis, including in ways intended to support the Trump administration’s narrative about it.`\
 https://nytimes.com/2026/01/25/us/minnesota-shooting-false-posts.html
-
-**Scottie Scheffler wins Amex in first start of year, makes history along way**\
-`Scheffler joins Tiger Woods and Jack Nicklaus as the only golfers to win 20 PGA Tour events and four majors before turning 30.`\
-https://nytimes.com/athletic/6998020/2026/01/25/scottie-scheffler-wins-amex-history/
-
-**Winter Storm Blankets Eastern U.S. With Heavy Snow**\
-`A powerful winter storm brought heavy snow, ice and freezing cold from Texas to New England. Parts of the Northeast were expecting 12 to 18 inches of snow.`\
-https://nytimes.com/video/weather/100000010667696/winter-storm-eastern-us-snow-ice-video.html
-
-**A Sunday Snowstorm Blankets New York**\
-`The city got about nine inches of snow and at least one person died from exposure to the cold as Mayor Zohran Mamdani faced his first big test in nuts-and-bolts governing.`\
-https://nytimes.com/2026/01/25/nyregion/snow-storm-new-york.html
 
