@@ -1,3 +1,7 @@
+**Power Outages Could Rise as Freezing Temperatures Persist**\
+`Electrical grids appeared to have handled the storm over the weekend relatively well, but energy experts said the risk of more outages remained.`\
+https://nytimes.com/2026/01/26/business/energy-environment/storm-electric-grid-power-outages.html
+
 **Public Media Holds Its Apocalypse at Bay, for Now**\
 `Though Congress cut $500 million from NPR and PBS stations, vanishingly few have closed their doors. Angst about their long-term future remains.`\
 https://nytimes.com/2026/01/26/business/media/npr-pbs-stations-funding.html
