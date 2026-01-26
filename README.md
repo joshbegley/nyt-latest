@@ -1,3 +1,11 @@
+**'There's always regrets:' Broncos left to grapple with the hurt of a season's abrupt end**\
+`The Broncos missed field goals, dropped passes, and saw the game's most pivotal coaching decision fall short. Now, a long offseason awaits.`\
+https://nytimes.com/athletic/6998165/2026/01/25/broncos-grapple-with-what-ifs-after-super-bowl-chases-abrupt-end-in-afc-title-game/
+
+**Updated 2026 NFL Draft order: Top 30 set; Rams hold picks 13 and 29 in Round 1**\
+`How does Round 1 shape up following the conclusion of Sunday's conference championship games?`\
+https://nytimes.com/athletic/6998080/2026/01/25/updated-2026-nfl-draft-order-top-30-rams/
+
 **At Least 15 Dead After Ferry Carrying 350 Sinks in the Philippines**\
 `It was not immediately clear how many people were missing after the ferry sank early Monday morning in Basilan Province.`\
 https://nytimes.com/2026/01/25/world/asia/philippines-ferry-sinks-basilan.html
@@ -29,14 +37,4 @@ https://nytimes.com/athletic/6998147/2026/01/25/tennis-australian-open-madison-k
 **Patriots will celebrate AFC title with extra night in Denver due to winter weather**\
 `Patriots coach Mike Vrabel told the team they'll have no curfew but need to be on the bus that leaves for the airport at 8 a.m. Monday.`\
 https://nytimes.com/athletic/6998133/2026/01/25/patriots-stay-overnight-denver-weather/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>I thought college football would slow down post-CFP, but instead we got Duke suing Darian Mensah and Dabo putting Pete Golding on blast.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6998160/2026/01/25/submit-a-question-for-stewart-mandels-college-football-mailbag-332/
-
-**Trump Blames Democrats for ‘Tragic’ Deaths as Agents Clash With Protesters**\
-`Top administration officials had earlier, and without evidence, accused each of the shooting victims in Minneapolis of “domestic terrorism.”`\
-https://nytimes.com/2026/01/25/us/politics/trump-blames-democrats-minneapolis-killings.html
 
