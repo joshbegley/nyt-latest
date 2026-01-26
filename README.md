@@ -1,3 +1,11 @@
+**Inside Barcelona: Lamine Yamal's wondergoal, who replaces Pedri?**\
+`Breaking down a sensational Yamal effort, and why Barca's Spain midfielder is irreplaceable for Hansi Flick`\
+https://nytimes.com/athletic/6998779/2026/01/26/inside-barcelona-lamine-yamal-goal-pedri/
+
+**Submit your questions for Chris Kirschner's Yankees mailbag**\
+`What's on your mind, Yankees fans? Submit your questions for Chris Kirschner, and he’ll answer as many as he can later this week.`\
+https://nytimes.com/athletic/6997575/2026/01/26/yankees-questions-kirschner-mailbag/
+
 **A Showdown in Minnesota**\
 `We look at the death of Alex Pretti in Minneapolis.`\
 https://nytimes.com/2026/01/26/briefing/a-showdown-in-minnesota.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6992628/2026/01/26/vanderbilt-football-basketball-c
 **Blue Jackets Monday Gathering: Greaves is a no-doubt NHL No. 1, ex-goalies say**\
 `"Columbus has its goalie," one former goalie said of 24-year-old Jet Greaves.`\
 https://nytimes.com/athletic/6996983/2026/01/26/blue-jackets-jet-greaves-goalie-monahan-bowness/
-
-**Notre Dame TE relives 2025, CFP shock: 'All of us thought we were going to be in'**\
-`Before he becomes the latest Irish tight end to be drafted, Eli Raridon reflects on his college journey and the program's future.`\
-https://nytimes.com/athletic/6997715/2026/01/26/eli-raridon-notre-dame-draft-interview/
-
-**Mets roster projection: How lineup and pitching staff look after big offseason changes**\
-`It looks like on Opening Day, the Mets will have nine players new to the organization.`\
-https://nytimes.com/athletic/6998072/2026/01/26/mets-roster-projection-lineup-pitching-staff/
 
