@@ -1,3 +1,7 @@
+**Winter Storm Disrupts Air Travel Plans for Thousands on Monday**\
+`Delays and cancellations persisted, a day after more than 11,000 flights were canceled. Airports in the Northeast U.S. were hit the hardest.`\
+https://nytimes.com/2026/01/26/weather/storm-flight-cancellations-delays.html
+
 **FPL GW23 takeaways: No Palmer is no problem for Chelsea, Foden’s time up, and Man Utd march on**\
 `From a cracker at the Emirates to Pep rotation rearing its head (again), here are the main FPL talking points from the weekend's action`\
 https://nytimes.com/athletic/6997615/2026/01/26/fantasy-premier-league-tips-fpl-manchester-united/

@@ -1,3 +1,7 @@
+**Winter Storm Disrupts Air Travel Plans for Thousands on Monday**\
+`Delays and cancellations persisted, a day after more than 11,000 flights were canceled. Airports in the Northeast U.S. were hit the hardest.`\
+https://nytimes.com/2026/01/26/weather/storm-flight-cancellations-delays.html
+
 **FPL GW23 takeaways: No Palmer is no problem for Chelsea, Foden’s time up, and Man Utd march on**\
 `From a cracker at the Emirates to Pep rotation rearing its head (again), here are the main FPL talking points from the weekend's action`\
 https://nytimes.com/athletic/6997615/2026/01/26/fantasy-premier-league-tips-fpl-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/26/us/minneapolis-shooting-ice/heres-the-latest
 **Minneapolis Live Updates: Judge to Consider Legality of Trump’s Immigration Crackdown**\
 `A judge will hear arguments as state and local officials seek to halt the federal deployment of immigration agents in Minnesota. The case has taken on heightened urgency after federal agents killed Alex Jeffrey Pretti.`\
 https://nytimes.com/live/2026/01/26/us/minneapolis-shooting-ice
-
-**Is this season beyond salvaging? Monday Morning Leafs Report**\
-`The Leafs are five points out of the final wild-card spot in the East. There's still a chance, but is it worth pursuing for Brad Treliving?`\
-https://nytimes.com/athletic/6997949/2026/01/26/maple-leafs-treliving-season-decisions-trade-deadline/
 
