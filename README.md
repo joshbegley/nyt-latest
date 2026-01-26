@@ -1,3 +1,15 @@
+**Bundesliga announces record combined revenues of €6.33billion**\
+`It represented a 7.9 per cent increase on the €5.87bn made during the previous season, which itself was a record.`\
+https://nytimes.com/athletic/6998893/2026/01/26/bundesliga-record-revenues-six-billion/
+
+**Lowetide: Is Oilers' Evan Bouchard finding another level to his game?**\
+`Bouchard's high-wire act is highly successful and all that keeps him from his personal outer marker is consistency.`\
+https://nytimes.com/athletic/6997287/2026/01/26/oilers-evan-bouchard-stats-capitals/
+
+**USMNT Tracker: Matches to forget for Pulisic, Scally, Trusty; McKennie's fine form continues**\
+`This week in the USMNT tracker: A Scally own goal, a Trusty red card, but lavish praise for Juventus' McKennie`\
+https://nytimes.com/athletic/6999133/2026/01/26/usmnt-tracker-scally-mckennie-trusty/
+
 **The Windup: Keith Law's top 2026 prospects**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6999403/2026/01/26/keith-laws-top-2026-prospects-the-windup/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/26/us/politics/homan-minnesota-ice-trump.html
 **The ‘R-Word’ Returns, Dismaying Those Who Fought to Oust It**\
 `The term, long considered a slur for those with intellectual disabilities, is seeing a resurgence on social media and across the political right.`\
 https://nytimes.com/2026/01/26/us/r-word-slur-disability.html
-
-**Our Photographer Describes the Scene After the Pretti Shooting**\
-`David Guttenfelder, a Times photographer based in Minneapolis, describes what he saw at the scene where Alex Jeffrey Pretti had been killed by federal agents.`\
-https://nytimes.com/video/us/100000010667387/our-photographer-describes-pretti-shooting-scene.html
-
-**The Bounce: The Giannis story gets weirder. And how about those Hornets?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6999253/2026/01/26/the-bounce-giannis-hornets-nba/
-
-**New Videos of the Beckham Feud Are Fake. Nobody Seems to Care.**\
-`A.I.-generated content of Victoria Beckham has spread as wedding drama has engulfed the celebrity clan and the public has clamored for receipts (even fabricated ones).`\
-https://nytimes.com/2026/01/26/business/media/brooklyn-beckham-victoria-feud-ai-videos-dancing.html
 
