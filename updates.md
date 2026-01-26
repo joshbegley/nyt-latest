@@ -1,3 +1,7 @@
+**Will another NFL coordinator hire work for Ohio State? 7 thoughts on Arthur Smith**\
+`Ryan Day was searching for an experienced play caller to replace Brian Hartline. So what will Smith bring to the Buckeyes?`\
+https://nytimes.com/athletic/6998836/2026/01/26/arthur-smith-ohio-state-offensive-coordinator/
+
 **Dangerously Cold Temperatures Will Remain as Storm Fades**\
 `While some additional snow is expected to fall Monday, frigid conditions will be the primary concern in the coming days.`\
 https://nytimes.com/2026/01/26/weather/winter-storm-weather-forecast-cold-snow.html

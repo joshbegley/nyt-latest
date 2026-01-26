@@ -1,3 +1,7 @@
+**Will another NFL coordinator hire work for Ohio State? 7 thoughts on Arthur Smith**\
+`Ryan Day was searching for an experienced play caller to replace Brian Hartline. So what will Smith bring to the Buckeyes?`\
+https://nytimes.com/athletic/6998836/2026/01/26/arthur-smith-ohio-state-offensive-coordinator/
+
 **Dangerously Cold Temperatures Will Remain as Storm Fades**\
 `While some additional snow is expected to fall Monday, frigid conditions will be the primary concern in the coming days.`\
 https://nytimes.com/2026/01/26/weather/winter-storm-weather-forecast-cold-snow.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6997949/2026/01/26/maple-leafs-treliving-season-dec
 **Red Wings trade targets: Could Faulk, Thomas, Trocheck fit in Detroit?**\
 `The Red Wings need a top-four defenseman, and possibly a top-six forward as well. Who might be available?`\
 https://nytimes.com/athletic/6996224/2026/01/26/red-wings-trade-deadline-targets-thomas-faulk-trocheck/
-
-**Which AD is best at hiring football, basketball coaches? Look to Broadway (the Southern one)**\
-`Sports are thriving at Vanderbilt under the watch of athletic director Candice Lee, a former basketball player for the Commodores.`\
-https://nytimes.com/athletic/6992628/2026/01/26/vanderbilt-football-basketball-candice-lee/
 

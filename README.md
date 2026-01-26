@@ -1,3 +1,7 @@
+**FPL GW23 takeaways: No Palmer is no problem for Chelsea, Foden’s time up, and Man Utd march on**\
+`From a cracker at the Emirates to Pep rotation rearing its head (again), here are the main FPL talking points from the weekend's action`\
+https://nytimes.com/athletic/6997615/2026/01/26/fantasy-premier-league-tips-fpl-manchester-united/
+
 **Will another NFL coordinator hire work for Ohio State? 7 thoughts on Arthur Smith**\
 `Ryan Day was searching for an experienced play caller to replace Brian Hartline. So what will Smith bring to the Buckeyes?`\
 https://nytimes.com/athletic/6998836/2026/01/26/arthur-smith-ohio-state-offensive-coordinator/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/26/us/minneapolis-shooting-ice
 **Is this season beyond salvaging? Monday Morning Leafs Report**\
 `The Leafs are five points out of the final wild-card spot in the East. There's still a chance, but is it worth pursuing for Brad Treliving?`\
 https://nytimes.com/athletic/6997949/2026/01/26/maple-leafs-treliving-season-decisions-trade-deadline/
-
-**Red Wings trade targets: Could Faulk, Thomas, Trocheck fit in Detroit?**\
-`The Red Wings need a top-four defenseman, and possibly a top-six forward as well. Who might be available?`\
-https://nytimes.com/athletic/6996224/2026/01/26/red-wings-trade-deadline-targets-thomas-faulk-trocheck/
 
