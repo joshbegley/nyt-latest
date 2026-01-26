@@ -1,3 +1,15 @@
+**How to watch Warriors vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7000256/2026/01/26/warriors-vs-timberwolves-stream-how-to-watch-jan-26/
+
+**How to watch Trail Blazers vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7000254/2026/01/26/trail-blazers-vs-celtics-stream-how-to-watch-jan-26/
+
+**How to watch Ducks vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7000245/2026/01/26/ducks-vs-oilers-stream-how-to-watch-jan-26/
+
 **How to watch Arizona vs. BYU men's basketball: Time, TV, streaming**\
 `Find out how to watch the Arizona Wildcats play the BYU Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7000205/2026/01/26/arizona-vs-byu-stream-how-to-watch-jan-26/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2026/01/26/travel/mexico-vacation-quiz-game.html
 **Super Bowl MVP odds: The NFL's surprise main character is favored to win the award**\
 `The Seahawks dominate the Super Bowl MVP market, with their QB leading the pack.`\
 https://nytimes.com/athletic/6999333/2026/01/26/super-bowl-mvp-betting-odds-darnold-maye-smith-njigba/
-
-**Browns QB Shedeur Sanders named AFC Pro Bowl replacement**\
-`Sanders, a 2025 fifth-round pick, started seven games as a rookie and threw for 1,400 yards, seven touchdowns and 10 interceptions. `\
-https://nytimes.com/athletic/6999981/2026/01/26/browns-qb-shedeur-sanders-pro-bowl-replacement/
-
-**Art Stars Remember the Legendary Steward Marian Goodman**\
-`William Kentridge, Steve McQueen, Julie Mehretu, Tacita Dean and other leading figures celebrate a ferocious dealer and champion who changed their lives.`\
-https://nytimes.com/2026/01/26/arts/design/mehretu-mcqueen-kentridge-marian-goodman-dealer.html
-
-**Trump Pivots From Attacks on Walz After Call**\
-`President Trump, facing growing criticism of the tactics of immigration agents in Minnesota, shifted from attacking the state’s governor to stressing cooperation.`\
-https://nytimes.com/2026/01/26/us/politics/trump-walz-minneapolis.html
 
