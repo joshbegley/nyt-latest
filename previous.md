@@ -1,4 +1,8 @@
-**Nylander says frustration over injury led to middle finger gesture**\
+**Ye Apologizes for Antisemitic Behavior, Again**\
+`The artist formerly known as Kanye West, who first apologized in 2023 before taking it back, said a four-month manic episode in 2025 had led him to embrace swastikas and Hitler.`\
+https://nytimes.com/2026/01/26/arts/music/ye-kanye-west-apology-antisemitism.html
+
+**Nylander says frustration led to middle finger gesture**\
 `The Leafs have lost four of the five games Nylander has missed during this recent absence and six of seven overall.`\
 https://nytimes.com/athletic/6999840/2026/01/26/william-nylander-leafs-middle-finger-olympics/
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010668491/at-the-awards-table-with-chlo
 **Harrison Bader agrees to two-year deal with the Giants: Source**\
 `The energetic Bader received a two-year deal after delivering a career-best offensive season and providing his customary above-average defense. `\
 https://nytimes.com/athletic/6851962/2026/01/26/mlb-harrison-bader-free-agent-signing-sf-giants/
-
-**Bournemouth close to triggering Jimenez purchase clause: What does this mean for Madrid?**\
-`Bournemouth are two matches away from exercising the mandatory purchase clause that was included in the deal with Milan.`\
-https://nytimes.com/athletic/6999651/2026/01/26/alex-jimenez-bournemouth-milan-real-madrid/
 

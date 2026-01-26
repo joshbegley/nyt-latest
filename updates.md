@@ -1,3 +1,11 @@
+**Ye Apologizes for Antisemitic Behavior, Again**\
+`The artist formerly known as Kanye West, who first apologized in 2023 before taking it back, said a four-month manic episode in 2025 had led him to embrace swastikas and Hitler.`\
+https://nytimes.com/2026/01/26/arts/music/ye-kanye-west-apology-antisemitism.html
+
+**Nylander says frustration led to middle finger gesture**\
+`The Leafs have lost four of the five games Nylander has missed during this recent absence and six of seven overall.`\
+https://nytimes.com/athletic/6999840/2026/01/26/william-nylander-leafs-middle-finger-olympics/
+
 **Nylander says frustration over injury led to middle finger gesture**\
 `The Leafs have lost four of the five games Nylander has missed during this recent absence and six of seven overall.`\
 https://nytimes.com/athletic/6999840/2026/01/26/william-nylander-leafs-middle-finger-olympics/
