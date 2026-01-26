@@ -1,3 +1,15 @@
+**Severe weather forces postponement of Kings-Blue Jackets NHL game**\
+`A heavy snowstorm in Ohio led the league to move the game to March.`\
+https://nytimes.com/athletic/6999754/2026/01/26/nhl-game-postponed-weather-kings-blue-jackets/
+
+**A Six-Figure Income Working From Home? The Sourdough Secret.**\
+`Home bakers are finding devoted customer bases that allow them to stay home with family and still make a decent living — but they do have get up in the middle of the night.`\
+https://nytimes.com/2026/01/26/dining/home-bakers-sourdough-microbakeries.html
+
+**Parts of Minneapolis Carry On, but Talk of Killings Is Everywhere**\
+`“I’m a 48-year-old white guy, and I don’t feel really safe,” one resident said about the continuing federal law enforcement tactics in the city.`\
+https://nytimes.com/2026/01/26/us/minnesota-ice-shootings.html
+
 **Some of Our Favorite Dish Soap Hacks**\
 `Dish soap is taking everybody’s job! See more stuff you can clean with it on Wirecutter.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010669048/some-of-our-favorite-dish-soap-hacks.html

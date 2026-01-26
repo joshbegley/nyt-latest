@@ -1,4 +1,8 @@
-**Severe weather forces postponement of Kings-Blue Jackets NHL game**\
+**Public Media Holds Its Apocalypse at Bay, for Now**\
+`Though Congress cut $500 million from NPR and PBS stations, vanishingly few have closed their doors. Angst about their long-term future remains.`\
+https://nytimes.com/2026/01/26/business/media/npr-pbs-stations-funding.html
+
+**Severe weather forces postponement of Kings-Blue Jackets game**\
 `A heavy snowstorm in Ohio led the league to move the game to March.`\
 https://nytimes.com/athletic/6999754/2026/01/26/nhl-game-postponed-weather-kings-blue-jackets/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6999673/2026/01/26/wellity-lucky-liverpool-hamstrin
 **Charity watchdog opens inquiry into FIA Foundation**\
 `A spokesperson for the FIA said: "The FIA Foundation is independent from the FIA and a UK-registered charity."`\
 https://nytimes.com/athletic/6999668/2026/01/26/fia-foundation-charity-investigation/
-
-**Cleaning a Toilet? Don’t Skip This Step**\
-`If you’re skipping this step, your toilet probably isn’t as clean as you think. Here’s how to do it properly.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010668975/cleaning-a-toilet-dont-skip-this-step.html
 
