@@ -1,3 +1,7 @@
+**Nylander apologizes after giving middle finger to camera during Leafs game**\
+`Nylander made the gesture while in the press box with other injured and scratched players in a 4-1 loss to the Avalanche.`\
+https://nytimes.com/athletic/6998059/2026/01/25/william-nylander-middle-finger-maple-leafs/
+
 **Killing Prompts Only a Defiant Response From Trump**\
 `Even as the second death of a protester in Minnesota brought demands for accountability, the president, insulated from dissenting voices, stuck to his pattern of reflexively blaming opponents.`\
 https://nytimes.com/2026/01/25/us/politics/minneapolis-killing-trump-defiant-response.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/25/briefing/on-being-inconvenienced.html
 **President Trump says he won't attend Super Bowl, criticizes Bad Bunny and Green Day**\
 `Trump, who attended last year's game in New Orleans, said next month's contest in California was "just too far away." `\
 https://nytimes.com/athletic/6997918/2026/01/25/trump-skipping-super-bowl-halftime-bad-bunny-green-day/
-
-**Chris Finch, Steve Kerr address unrest in Minnesota: 'We are heartbroken'**\
-`Before Sunday's Timberwolves-Warriors game, coaches stress calm, community and thoughtfulness.`\
-https://nytimes.com/athletic/6997878/2026/01/25/chris-finch-steve-kerr-unrest-minnesota/
 
