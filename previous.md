@@ -1,3 +1,7 @@
+**Trump Is Sending Tom Homan, His Border Czar, to Minnesota**\
+`“He has not been involved in that area, but knows and likes many of the people there,” President Trump wrote on Truth Social on Monday.`\
+https://nytimes.com/2026/01/26/us/politics/homan-minnesota-ice-trump.html
+
 **The ‘R-Word’ Returns, Dismaying Those Who Fought to Oust It**\
 `The term, long considered a slur for those with intellectual disabilities, is seeing a resurgence on social media and across the political right.`\
 https://nytimes.com/2026/01/26/us/r-word-slur-disability.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/26/nyregion/winter-storm-new-jersey-commute.html
 **NBA Rewind: What does Giannis Antetokounmpo really want?**\
 `Plus, who's hot (Jusuf Nurkić?) and not (the Wizards), as well as three East contenders who need a big week.`\
 https://nytimes.com/athletic/6997417/2026/01/26/giannis-antetokounmpo-bucks-nba-rewind/
-
-**Ramos-led group enters exclusivity talks over Sevilla takeover**\
-`The proposed takeover remains subject to due diligence to analyse the financial health of the club.`\
-https://nytimes.com/athletic/6999103/2026/01/26/sergio-ramos-sevilla-takeover-bid-exclusivity/
 

@@ -1,3 +1,7 @@
+**Trump Is Sending Tom Homan, His Border Czar, to Minnesota**\
+`“He has not been involved in that area, but knows and likes many of the people there,” President Trump wrote on Truth Social on Monday.`\
+https://nytimes.com/2026/01/26/us/politics/homan-minnesota-ice-trump.html
+
 **The ‘R-Word’ Returns, Dismaying Those Who Fought to Oust It**\
 `The term, long considered a slur for those with intellectual disabilities, is seeing a resurgence on social media and across the political right.`\
 https://nytimes.com/2026/01/26/us/r-word-slur-disability.html
