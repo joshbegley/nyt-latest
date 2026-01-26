@@ -1,3 +1,11 @@
+**False Posts and Altered Images Distort Views of Minnesota Shooting**\
+`Some social media posts tried to warp the evidence of the killing of a nurse in Minneapolis, including in ways intended to support the Trump administration’s narrative about it.`\
+https://nytimes.com/2026/01/25/us/minnesota-shooting-false-posts.html
+
+**Scottie Scheffler wins Amex in first start of year, makes history along way**\
+`Scheffler joins Tiger Woods and Jack Nicklaus as the only golfers to win 20 PGA Tour events and four majors before turning 30.`\
+https://nytimes.com/athletic/6998020/2026/01/25/scottie-scheffler-wins-amex-history/
+
 **Scottie Scheffler wins Amex in first start of year, makes history along way**\
 `Scheffler joins Tiger Woods and Jack Nicklaus as only golfers to win 20 PGA Tour events and four majors before turning 30.`\
 https://nytimes.com/athletic/6998020/2026/01/25/scottie-scheffler-wins-amex-history/
