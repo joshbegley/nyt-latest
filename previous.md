@@ -1,3 +1,7 @@
+**Are Vintage Coach Bags Better Than New?**\
+`Are new Coach bags as good as the vintage ones? We investigated.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010668804/are-vintage-coach-bags-better-than-new.html
+
 **Send Colton Pouncy your Lions mailbag questions**\
 `Detroit is coming off a 9-8, no-playoff season. The Lions fired their OC and hired a new one. Send us your mailbag questions.`\
 https://nytimes.com/athletic/6999576/2026/01/26/detroit-lions-mailbag-questions-request-colton-pouncy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6999521/2026/01/26/florida-vs-lsu-stream-how-to-wat
 **Ask a Journalist: Reporting on TV Shows and Cultural Trends**\
 `Shivani Gonzalez, a TV reporter, joins us in February to chat with teenagers about finding shows worth watching. Post your comments and questions for her by Feb. 15.`\
 https://nytimes.com/2026/01/26/learning/lesson-plans/ask-a-journalist-reporting-on-tv-shows-and-cultural-trends.html
-
-**Bayern in talks with Kane over new contract, says club chief**\
-`The 32-year-old has scored 34 goals in all competitions for the German champions so far this season.`\
-https://nytimes.com/athletic/6999469/2026/01/26/bayern-munich-harry-kane-new-contract/
 

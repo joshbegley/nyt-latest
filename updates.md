@@ -1,3 +1,7 @@
+**Are Vintage Coach Bags Better Than New?**\
+`Are new Coach bags as good as the vintage ones? We investigated.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010668804/are-vintage-coach-bags-better-than-new.html
+
 **Send Colton Pouncy your Lions mailbag questions**\
 `Detroit is coming off a 9-8, no-playoff season. The Lions fired their OC and hired a new one. Send us your mailbag questions.`\
 https://nytimes.com/athletic/6999576/2026/01/26/detroit-lions-mailbag-questions-request-colton-pouncy/
