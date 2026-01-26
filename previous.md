@@ -1,13 +1,9 @@
-**Alan Page after false claim he attended ICE protest: 'Why would somebody make that up?'**\
-`The Vikings Hall of Famer received messages from friends asking if he attended an ICE protest after a photo of him went viral.`\
-https://nytimes.com/athletic/6997720/2026/01/25/alan-page-ice-protests-minneapolis-social-media/
-
 **On Being Inconvenienced**\
 `After an alleged arson attack on a synagogue, one church in Jackson, Miss. opened its doors.`\
 https://nytimes.com/2026/01/25/briefing/on-being-inconvenienced.html
 
-**President Trump says he won't attend Super Bowl, criticizes Bad Bunny and Green Day**\
-`Trump, who attended last year's game in New Orleans, said next month's contest in California was "just too far away." `\
+**President Trump announces he will not attend Super Bowl this year**\
+`Trump attended the Super Bowl last year in New Orleans.`\
 https://nytimes.com/athletic/6997918/2026/01/25/trump-skipping-super-bowl-halftime-bad-bunny-green-day/
 
 **Chris Finch, Steve Kerr address unrest in Minnesota: 'We are heartbroken'**\
@@ -37,4 +33,8 @@ https://nytimes.com/2026/01/25/crosswords/daily-puzzle-2026-01-26.html
 **On Broadway, frustration mounts as curtains rise amid the snowfall.**\
 `By Taylor Robinson and Derrick Bryson Taylor`\
 https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/broadway-winter-storm-closures
+
+**South Carolina cruises past Vanderbilt, ending its undefeated season**\
+`With Vandy's loss, UConn is now the lone undefeated team in the top 25.`\
+https://nytimes.com/athletic/6997834/2026/01/25/south-carolina-vanderbilt-first-loss-of-season/
 
