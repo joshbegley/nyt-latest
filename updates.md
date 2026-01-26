@@ -1,3 +1,11 @@
+**Under Biden Administration, Justice Dept. Began Examining Ilhan Omar’s Finances**\
+`The inquiry, initiated by the U.S. attorney’s office in Washington, appears to have stalled for lack of evidence.`\
+https://nytimes.com/2026/01/26/us/politics/ilhan-omar-investigation-finances.html
+
+**Judge Asks Pointed Questions, but Does Not Rule, in Hearing Seeking Block to ICE Surge**\
+`Judge Kate M. Menendez did not say when she might rule on the state of Minnesota’s request for an order halting the surge of immigration enforcement.`\
+https://nytimes.com/2026/01/26/us/minnesota-ice-hearing.html
+
 **Barcelona's Fermin set to extend contract through to 2031**\
 `The 22-year-old has scored 10 goals for Hansi Flick's side this season and has provided six assists, despite groin injury setbacks.`\
 https://nytimes.com/athletic/7000018/2026/01/26/fermin-lopez-barcelona-contract/
