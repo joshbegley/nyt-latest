@@ -1,3 +1,7 @@
+**Seahawks top Rams in thriller, advance to Super Bowl LX to face Patriots**\
+`Seattle will face New England in a rematch of Super Bowl XLIX on Feb. 8. `\
+https://nytimes.com/athletic/6998109/2026/01/25/rams-seahawks-score-result-takeaways-nfc-championship-game/
+
 **Super Bowl 60 odds: Seahawks open as favorites against Patriots**\
 `The Seahawks are favored against the Patriots for Super Bowl 60. Both teams had long odds to win it all before the season started.`\
 https://nytimes.com/athletic/6998231/2026/01/25/super-bowl-60-odds-seahawks-patriots/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6998173/2026/01/25/seahawks-woolen-penalty-puka-nac
 **Mamdani Clears Early Hurdles as Storm Bears Down on New York**\
 `Mayor Zohran Mamdani made use of his strong communication skills, and the Sanitation Department said every road was plowed at least twice by Sunday evening.`\
 https://nytimes.com/2026/01/25/nyregion/mamdani-snowstorm-performance-new-york.html
-
-**Defending Australian Open champion Madison Keys falls to Jessica Pegula in fourth round**\
-`Keys' reign ended in a straight-sets defeat to her compatriot and close friend.`\
-https://nytimes.com/athletic/6998147/2026/01/25/tennis-australian-open-madison-keys-jessica-pegula-result-analysis/
 

@@ -1,3 +1,7 @@
+**Super Bowl 60 odds: Seahawks open as favorites against Patriots**\
+`The Seahawks are favored against the Patriots for Super Bowl 60. Both teams had long odds to win it all before the season started.`\
+https://nytimes.com/athletic/6998231/2026/01/25/super-bowl-60-odds-seahawks-patriots/
+
 **'There's always regrets:' Broncos left to grapple with the hurt of a season's abrupt end**\
 `The Broncos missed field goals, dropped passes, and saw the game's most pivotal coaching decision fall short. Now, a long offseason awaits.`\
 https://nytimes.com/athletic/6998165/2026/01/25/broncos-grapple-with-what-ifs-after-super-bowl-chases-abrupt-end-in-afc-title-game/
