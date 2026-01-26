@@ -1,3 +1,15 @@
+**PSG sign Barcelona's Dro Fernandez in deal worth around €8m**\
+`The teenager is expected to be the final January exit for Barca, who receive a fee of around €8million from the French club.`\
+https://nytimes.com/athletic/6982591/2026/01/26/psg-transfer-news-dro-fernandez-barcelona/
+
+**Clippers' surprising resurgence has blogger set to (literally) eat his words**\
+`Robert Flom, owner of a Clippers fan blog, said he would "eat this tweet" is the team could muster a 15-3 stretch. `\
+https://nytimes.com/athletic/7000068/2026/01/26/clippers-blogger-eat-tweet-213hoops/
+
+**Yoshinobu Yamamoto joins Shohei Ohtani on Team Japan's WBC roster**\
+`After months of speculation, Los Angeles Dodgers star Yoshinobu Yamamoto was named to Team Japan&#8217;s roster Monday and will pitch in the 2026 World Baseball Classic.`\
+https://nytimes.com/athletic/7000331/2026/01/26/yoshinobu-yamamoto-dodgers-wbc/
+
 **Under Biden Administration, Justice Dept. Began Examining Ilhan Omar’s Finances**\
 `The inquiry, initiated by the U.S. attorney’s office in Washington, appears to have stalled for lack of evidence.`\
 https://nytimes.com/2026/01/26/us/politics/ilhan-omar-investigation-finances.html
