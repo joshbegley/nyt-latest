@@ -1,3 +1,7 @@
+**Storm Dumps a Foot of Snow in 18 States**\
+`Bonito Lake, N.M., received 31 inches, the most in the country this weekend, the National Weather Service said.`\
+https://nytimes.com/2026/01/25/us/snow-totals.html
+
 **Mike Vrabel's turnaround of the Patriots is nearly complete: 'It’s all about the coach'**\
 `In his first season back in New England, Vrabel outmaneuvered Sean Payton on the way to his first Super Bowl as a head coach.`\
 https://nytimes.com/athletic/6998266/2026/01/25/mike-vrabel-patriots-broncos-afc-championship-game/

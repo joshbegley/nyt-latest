@@ -1,3 +1,7 @@
+**Storm Dumps a Foot of Snow in 18 States**\
+`Bonito Lake, N.M., received 31 inches, the most in the country this weekend, the National Weather Service said.`\
+https://nytimes.com/2026/01/25/us/snow-totals.html
+
 **Mike Vrabel's turnaround of the Patriots is nearly complete: 'It’s all about the coach'**\
 `In his first season back in New England, Vrabel outmaneuvered Sean Payton on the way to his first Super Bowl as a head coach.`\
 https://nytimes.com/athletic/6998266/2026/01/25/mike-vrabel-patriots-broncos-afc-championship-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/25/world/asia/philippines-ferry-sinks-basilan.html
 **Super Bowl 2026 preview: Analysis of Patriots', Seahawks' chances to win it all**\
 `An early look at Super Bowl LX, a rematch of one of the most memorable title games in NFL history.`\
 https://nytimes.com/athletic/6997977/2026/01/25/super-bowl-2026-preview-odds-patriots-seahawks-analysis/
-
-**Patriots vs. Seahawks in Super Bowl 60: What to know about matchup, halftime show, more**\
-`The Patriots are looking for their record seventh Super Bowl title, while the Seahawks are looking for their second championship.`\
-https://nytimes.com/athletic/6997991/2026/01/25/super-bowl-patriots-seahawks-bad-bunny-pro-bowl/
 
