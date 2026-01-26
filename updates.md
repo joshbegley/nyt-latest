@@ -1,3 +1,7 @@
+**Alex Pretti’s Friends and Family Denounce ‘Sickening Lies’ About His Life**\
+`People who knew a man fatally shot by federal agents pushed back against what they called a smear campaign by federal officials. “He was a good man,” his family said.`\
+https://nytimes.com/2026/01/25/us/alex-pretti-minneapolis-shooting.html
+
 **Patriots Hold Off Broncos in Frigid Conditions to Advance to Super Bowl**\
 `Quarterback Drake Maye’s 65 yards and a touchdown on the ground made the difference for New England against Denver, landing the Patriots the win and a ticket to the Super Bowl.`\
 https://nytimes.com/video/the-athletic/100000010667839/patriots-hold-off-broncos-in-frigid-conditions-to-advance-to-super-bowl.html

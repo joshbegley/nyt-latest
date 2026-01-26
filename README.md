@@ -1,3 +1,7 @@
+**Trump Blames Democrats for ‘Tragic’ Deaths as Agents Clash With Protesters**\
+`Top administration officials had earlier, and without evidence, accused each of the shooting victims in Minneapolis of “domestic terrorism.”`\
+https://nytimes.com/2026/01/25/us/politics/trump-blames-democrats-minneapolis-killings.html
+
 **Alex Pretti’s Friends and Family Denounce ‘Sickening Lies’ About His Life**\
 `People who knew a man fatally shot by federal agents pushed back against what they called a smear campaign by federal officials. “He was a good man,” his family said.`\
 https://nytimes.com/2026/01/25/us/alex-pretti-minneapolis-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/weather/100000010667696/winter-storm-eastern-us-snow-i
 **A Sunday Snowstorm Blankets New York**\
 `The city got about nine inches of snow and at least one person died from exposure to the cold as Mayor Zohran Mamdani faced his first big test in nuts-and-bolts governing.`\
 https://nytimes.com/2026/01/25/nyregion/snow-storm-new-york.html
-
-**Alan Page after false claim he attended ICE protest: 'Why would somebody make that up?'**\
-`The Vikings Hall of Famer received messages from friends asking if he attended an ICE protest after a photo of him went viral.`\
-https://nytimes.com/athletic/6997720/2026/01/25/alan-page-ice-protests-minneapolis-social-media/
 
