@@ -1,3 +1,15 @@
+**How We Determined That Minneapolis Videos Contradicted Federal Officials**\
+`Using more than a dozen videos related to the shooting of Alex Pretti, The Times worked to establish what is called ground truth: what happened, how it happened and who might be responsible.`\
+https://nytimes.com/2026/01/26/insider/minneapolis-ice-shooting-videos-investigation.html
+
+**Broncos, reeling from painful playoff loss, know 'rare' opportunity isn't promised in '26**\
+`Impending free agents like J.K. Dobbins and John Franklin-Myers express desire to return, but Broncos will have different look next season.`\
+https://nytimes.com/athletic/7000092/2026/01/26/broncos-afc-championship-loss-offseason-changes/
+
+**Xi’s Purge of the Chinese Military**\
+`The ousting of China’s most senior general has set off fevered speculation.`\
+https://nytimes.com/2026/01/26/world/china-xi-military-purge-israel-hostage-gaza.html
+
 **PSG sign Barcelona's Dro Fernandez in deal worth around €8m**\
 `The teenager is expected to be the final January exit for Barca, who receive a fee of around €8million from the French club.`\
 https://nytimes.com/athletic/6982591/2026/01/26/psg-transfer-news-dro-fernandez-barcelona/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7000018/2026/01/26/fermin-lopez-barcelona-contract/
 **Why Chiefs’ Andy Reid was fired up talking about Eric Bieniemy — and Matt Nagy**\
 `Reid was animated with reporters during a Monday news conference. Here's what fired him up.`\
 https://nytimes.com/athletic/7000103/2026/01/26/chiefs-andy-reid-matt-nagy-eric-bieniemy/
-
-**As Tech Chiefs Woo Trump, Silicon Valley Seethes Over Minneapolis Shootings**\
-`Executives, investors and engineers are speaking out against the Trump administration after the killings of Alex Pretti and another protester in moves reminiscent of Silicon Valley a decade ago.`\
-https://nytimes.com/2026/01/26/technology/ice-minnesota-protests-tech.html
-
-**Senators demand answers on Trump's takeover of D.C. golf courses**\
-`Four Democratic senators from Maryland and Virginia have come out in opposition of the effort to revoke the lease on three courses.`\
-https://nytimes.com/athletic/7000058/2026/01/26/lawmakers-oppose-trump-takeover-dc-municipal-golf-courses/
-
-**olympics-panel**\
-``\
-https://nytimes.com/panel/live/olympics-panel
 

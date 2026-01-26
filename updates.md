@@ -1,3 +1,15 @@
+**How We Determined That Minneapolis Videos Contradicted Federal Officials**\
+`Using more than a dozen videos related to the shooting of Alex Pretti, The Times worked to establish what is called ground truth: what happened, how it happened and who might be responsible.`\
+https://nytimes.com/2026/01/26/insider/minneapolis-ice-shooting-videos-investigation.html
+
+**Broncos, reeling from painful playoff loss, know 'rare' opportunity isn't promised in '26**\
+`Impending free agents like J.K. Dobbins and John Franklin-Myers express desire to return, but Broncos will have different look next season.`\
+https://nytimes.com/athletic/7000092/2026/01/26/broncos-afc-championship-loss-offseason-changes/
+
+**Xi’s Purge of the Chinese Military**\
+`The ousting of China’s most senior general has set off fevered speculation.`\
+https://nytimes.com/2026/01/26/world/china-xi-military-purge-israel-hostage-gaza.html
+
 **PSG sign Barcelona's Dro Fernandez in deal worth around €8m**\
 `The teenager is expected to be the final January exit for Barca, who receive a fee of around €8million from the French club.`\
 https://nytimes.com/athletic/6982591/2026/01/26/psg-transfer-news-dro-fernandez-barcelona/
