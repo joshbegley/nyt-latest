@@ -1,4 +1,4 @@
-**Nylander says frustration over injury led to middle finger gesture**\
+**Nylander says frustration led to middle finger gesture**\
 `The Leafs have lost four of the five games Nylander has missed during this recent absence and six of seven overall.`\
 https://nytimes.com/athletic/6999840/2026/01/26/william-nylander-leafs-middle-finger-olympics/
 

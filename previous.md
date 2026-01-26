@@ -1,3 +1,27 @@
+**Nylander says frustration over injury led to middle finger gesture**\
+`The Leafs have lost four of the five games Nylander has missed during this recent absence and six of seven overall.`\
+https://nytimes.com/athletic/6999840/2026/01/26/william-nylander-leafs-middle-finger-olympics/
+
+**Justice Dept. Drops Charges Accusing Person of Assaulting an Officer**\
+`It appeared to be the first time that the department has backed away from pursuing a case of an assault against a federal agent in Minnesota since the administration ramped up an immigration crackdown.`\
+https://nytimes.com/2026/01/26/us/politics/justice-dept-drops-charges-assault-officer.html
+
+**Why Is the Trump Administration Demanding Minnesota’s Voter Rolls?**\
+`The Justice Department has urged Minnesota to hand over voters’ private data. It is part of a national push that has raised concerns about the Trump administration’s motives.`\
+https://nytimes.com/2026/01/26/us/politics/minnesota-trump-voter-rolls.html
+
+**A Crisis of Truth and Trust in Minneapolis**\
+`Readers react to the killing of Alex Pretti by federal agents and the constitutional dangers it signals.`\
+https://nytimes.com/2026/01/26/opinion/minneapolis-killing.html
+
+**Rangers on verge of trading Carson Soucy to Islanders: Sources**\
+`Soucy is a defensive-minded defenseman capable of helping a team in a bottom-pair role.`\
+https://nytimes.com/athletic/6987252/2026/01/26/carson-soucy-trade-new-york-rangers-islanders/
+
+**AP men's hoops Top 25: Arizona unanimous No. 1, Nebraska climbs to program-high No. 5**\
+`Undefeated teams will be tested this week, as No. 1 Arizona travels to No. 13 BYU and No. 5 Nebraska faces No. 3 Michigan.`\
+https://nytimes.com/athletic/6999131/2026/01/26/ap-mens-basketball-poll-arizona-uconn-nebraska/
+
 **Social Media vs. the Internet: What Is Better for Kids?**\
 `As a guest on “Hard Fork,” Jonathan Haidt, author of “The Anxious Generation,” discusses why he believes children should have internet access and how that differs from his views on social media.`\
 https://nytimes.com/video/podcasts/100000010668802/social-media-vs-the-internet-what-is-better-for-kids.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6851962/2026/01/26/mlb-harrison-bader-free-agent-si
 **Bournemouth close to triggering Jimenez purchase clause: What does this mean for Madrid?**\
 `Bournemouth are two matches away from exercising the mandatory purchase clause that was included in the deal with Milan.`\
 https://nytimes.com/athletic/6999651/2026/01/26/alex-jimenez-bournemouth-milan-real-madrid/
-
-**Demonstrators Enter Hotel Vestibule, Setting Off a Fracas**\
-`The Minneapolis police said federal agents arrived and used gas on a crowd, refusing further assistance.`\
-https://nytimes.com/2026/01/26/us/demonstrators-hotel-ice-confrontation.html
-
-**Gunmen Open Fire on Soccer Field, Killing at Least 11 People in Mexico**\
-`At least 11 people were killed in Salamanca, Mexico, when gunmen shot at a crowd socializing on a soccer field after a match, according to local officials. The state where the mass shooting occurred has been among the country’s most violent.`\
-https://nytimes.com/video/world/americas/100000010669007/mexico-shooting-cartels-salamanca.html
-
-**Power Outages Could Rise as Freezing Temperatures Persist**\
-`Electrical grids appeared to have handled the storm over the weekend relatively well, but energy experts said the risk of more outages remained.`\
-https://nytimes.com/2026/01/26/business/energy-environment/storm-electric-grid-power-outages.html
-
-**Public Media Holds Its Apocalypse at Bay, for Now**\
-`Though Congress cut $500 million from NPR and PBS stations, vanishingly few have closed their doors. Angst about their long-term future remains.`\
-https://nytimes.com/2026/01/26/business/media/npr-pbs-stations-funding.html
-
-**Severe weather forces postponement of Kings-Blue Jackets game**\
-`A heavy snowstorm in Ohio led the league to move the game to March.`\
-https://nytimes.com/athletic/6999754/2026/01/26/nhl-game-postponed-weather-kings-blue-jackets/
-
-**A Six-Figure Income Working From Home? The Sourdough Secret.**\
-`Home bakers are finding devoted customer bases that allow them to stay home with family and still make a decent living — but they do have get up in the middle of the night.`\
-https://nytimes.com/2026/01/26/dining/home-bakers-sourdough-microbakeries.html
 
