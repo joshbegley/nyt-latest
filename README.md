@@ -1,3 +1,11 @@
+**Demonstrators Enter Hotel Vestibule, Setting Off a Fracas**\
+`The Minneapolis police said federal agents arrived and used gas on a crowd, refusing further assistance.`\
+https://nytimes.com/2026/01/26/us/demonstrators-hotel-ice-confrontation.html
+
+**Gunmen Open Fire on Soccer Field, Killing at Least 11 People in Mexico**\
+`At least 11 people were killed in Salamanca, Mexico, when gunmen shot at a crowd socializing on a soccer field after a match, according to local officials. The state where the mass shooting occurred has been among the country’s most violent.`\
+https://nytimes.com/video/world/americas/100000010669007/mexico-shooting-cartels-salamanca.html
+
 **Power Outages Could Rise as Freezing Temperatures Persist**\
 `Electrical grids appeared to have handled the storm over the weekend relatively well, but energy experts said the risk of more outages remained.`\
 https://nytimes.com/2026/01/26/business/energy-environment/storm-electric-grid-power-outages.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6999636/2026/01/26/packers-rasheed-walker-arrested-
 **Review: How ‘Data’ Channels the Shock of Right Now**\
 `In Matthew Libby’s play, a brilliant young computer programmer finds himself at the center of one of the most contentious issues of the moment: immigration.`\
 https://nytimes.com/2026/01/26/theater/data-review.html
-
-**As U.S. Warships Get Closer, Iran and Allies Ramp Up Retaliation Threats**\
-`Iran and its militia allies say they will respond aggressively in the region if attacked. A U.S. aircraft carrier and warships are approaching the region.`\
-https://nytimes.com/2026/01/26/world/middleeast/us-warships-gulf-waters-iran-retaliation-threats.html
-
-**Liverpool defender Wellity Lucky out for at least two months with hamstring injury**\
-`Liverpool&#8217;s defensive resources have been further depleted after youngster Wellity Lucky was ruled out for at least two months with a hamstring injury.`\
-https://nytimes.com/athletic/6999673/2026/01/26/wellity-lucky-liverpool-hamstring-injury/
 
