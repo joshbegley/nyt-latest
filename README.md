@@ -1,3 +1,7 @@
+**Inquest into death of ex-player McQueen finds heading 'likely' contributed to brain disease**\
+`"It is likely that repetitive head impacts, sustained by heading the ball while playing football, contributed to CTE,” the coroner said.`\
+https://nytimes.com/athletic/6999381/2026/01/26/gordon-mcqueen-heading-death-cte/
+
 **Submit questions for Charlotte Varnes' Phillies mailbag**\
 `Pitcher and catchers report to spring training in about two weeks, so it's as good a time as any to discuss the Phillies.`\
 https://nytimes.com/athletic/6999359/2026/01/26/phillies-questions-charlotte-varnes/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/26/business/media/brooklyn-beckham-victoria-feud-ai-
 **Searching for Memories of a Brother Lost to an Institution**\
 `A Times reporter covering the disability community set out to explore a dark moment in history, and found a man looking for a brother he never knew.`\
 https://nytimes.com/2026/01/26/insider/searching-for-memories-of-a-brother-lost-to-an-institution.html
-
-**NASCAR's Roval playoff race expected to return to Charlotte's oval: Sources**\
-`NASCAR's only playoff road course will be no more. The once-popular quirky circuit has seen a drop in fan sentiment in the Next Gen era.`\
-https://nytimes.com/athletic/6998311/2026/01/26/nascar-roval-playoff-race-charlotte-motor-speedway-oval/
 
