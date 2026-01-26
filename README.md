@@ -1,3 +1,11 @@
+**Hall of Fame mailbag: Top 5 players — excluding PED cases — who should be in Cooperstown**\
+`Who will get in next? Who got my vote for the best players the writers whiffed on? And are you ready for my team of one-vote wonders?`\
+https://nytimes.com/athletic/6998790/2026/01/26/baseball-hall-of-fame-questions-schilling-whitaker-pettitte/
+
+**Submit your college basketball questions for our mailbag**\
+`After a weekend full of superlative performances, what's on your mind?`\
+https://nytimes.com/athletic/6999034/2026/01/26/college-basketball-questions-mailbag/
+
 **Gold Soars to Record High as Global Tensions Grow**\
 `The price of gold surged above $5,000 an ounce as investors sought shelter from geopolitical uncertainty.`\
 https://nytimes.com/2026/01/26/business/gold-prices.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/26/weather/storm-flight-cancellations-delays.html
 **Grand Slam titles are won as darkness falls. Ben Shelton is figuring out his night moves**\
 `Shelton got through No. 12 seed Casper Ruud to reach the Australian Open quarterfinals, where Jannik Sinner awaits.`\
 https://nytimes.com/athletic/6998942/2026/01/26/ben-shelton-australian-open-tennis-night-conditions/
-
-**FPL GW23 takeaways: No Palmer is no problem for Chelsea, Foden’s time up, and Man Utd march on**\
-`From a cracker at the Emirates to Pep rotation rearing its head (again), here are the main FPL talking points from the weekend's action`\
-https://nytimes.com/athletic/6997615/2026/01/26/fantasy-premier-league-tips-fpl-manchester-united/
-
-**Will another NFL coordinator hire work for Ohio State? 7 thoughts on Arthur Smith**\
-`Ryan Day was searching for an experienced play caller to replace Brian Hartline. So what will Smith bring to the Buckeyes?`\
-https://nytimes.com/athletic/6998836/2026/01/26/arthur-smith-ohio-state-offensive-coordinator/
 
