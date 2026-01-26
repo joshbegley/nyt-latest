@@ -1,3 +1,15 @@
+**Business Leaders Face a Test in Minneapolis**\
+`Some companies have begun to respond to the fatal shooting of Alex Jeffrey Pretti and the immigration crackdown. But others have stayed silent.`\
+https://nytimes.com/2026/01/26/business/dealbook/business-leaders-minnesota-ice.html
+
+**After Reports of Progress, Kremlin Says Ukraine Talks Will Continue**\
+`Ukrainian and Russian officials left rare direct talks last weekend in a somewhat optimistic mood. But Russia may be simply stalling for time, analysts said.`\
+https://nytimes.com/2026/01/26/world/europe/russia-ukraine-war-peace-talks.html
+
+**How to watch 76ers vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6999084/2026/01/26/76ers-vs-hornets-stream-how-to-watch-jan-26/
+
 **How to watch Pacers vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Indiana Pacers play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6999082/2026/01/26/pacers-vs-hawks-stream-how-to-watch-jan-26/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6998007/2026/01/26/australian-open-recap-seeds-reco
 **National title or bust for Michigan basketball? A 'monster week' could shape expectations**\
 `Michigan has back-to-back top-10 matchups against undefeated Nebraska and rival Michigan State in a crucial week in the Big Ten slate.`\
 https://nytimes.com/athletic/6998928/2026/01/26/michigan-wolverines-basksetball-record-nebraska-msu/
-
-**49ers face closing Super Bowl window with aging core and $50.3M in cap space**\
-`The 49ers clearly have to get bigger, stronger and faster, and they have plenty of money for someone such as Kyle Pitts or Trey Hendrickson.`\
-https://nytimes.com/athletic/6997423/2026/01/26/49ers-super-bowl-window-cap-space/
-
-**Do You Know the Books Behind These Oscar-Winning Films?**\
-`As you consider last week’s nominations for the Academy Awards, test your knowledge of works that inspired previous winners with this short quiz.`\
-https://nytimes.com/interactive/2026/01/26/books/review/oscar-winning-books.html
-
-**Winter Storm Disrupts Air Travel Plans for Thousands on Monday**\
-`Delays and cancellations persisted, a day after more than 11,000 flights were canceled. Airports in the Northeast U.S. were hit the hardest.`\
-https://nytimes.com/2026/01/26/weather/storm-flight-cancellations-delays.html
 
