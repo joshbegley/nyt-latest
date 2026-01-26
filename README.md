@@ -1,3 +1,15 @@
+**The Briefing: Have Arsenal created a title race? Are Spurs sparking relegation battle?**\
+`Welcome to The Briefing, The Athletic's weekly look at the big questions from the Premier League weekend`\
+https://nytimes.com/athletic/6996802/2026/01/26/arsenal-premier-league-title-tottenham-relegation-briefing/
+
+**Crystal Palace: How the Premier League's feel-good story turned sour**\
+`In just months Palace have gone from winning the FA Cup and going 19 matches unbeaten to tumbling down the Premier League table`\
+https://nytimes.com/athletic/6994427/2026/01/26/crystal-palace-crisis-glasner-chelsea/
+
+**Who is the most important person at your Premier League club?**\
+`From Arsenal's Mikel Arteta to Nathan Shi at Wolves via somebody's beloved kit manager - the most crucial individual at the 20 teams`\
+https://nytimes.com/athletic/6993678/2026/01/26/premier-league-most-important-person-manager-owner/
+
 **Being in WSL is a privilege not a right – relegation risk should be taken seriously**\
 `The side that finishes bottom of WSL and faces a relegation play-off may be in for a nasty surprise...`\
 https://nytimes.com/athletic/6997388/2026/01/26/wsl-relegation-everton-liverpool/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/26/business/europe-natural-gas-united-states-russia.
 **Quote of the Day: Maniacs Are His Specialty**\
 `Quotation of the Day for Monday, January 26, 2026.`\
 https://nytimes.com/2026/01/26/pageoneplus/quote-of-the-day-maniacs-are-his-specialty.html
-
-**Connections: Sports Edition Coach: Hints for Jan. 26, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6996918/2026/01/26/connections-sports-edition-hints-for-jan-26-2026/
-
-**The Taliban Say They’re Ready to Release U.S. Prisoners. But Which Ones?**\
-`Top Afghan officials say they want two American detainees released “as soon as possible,” but the Trump administration says a third one should be included.`\
-https://nytimes.com/2026/01/26/world/asia/taliban-afghanistan-prisoners.html
-
-**No Corrections: Jan. 26, 2026**\
-`No corrections appeared in print on Monday, Jan. 26, 2026.`\
-https://nytimes.com/2026/01/26/pageoneplus/no-corrections-jan-26-2026.html
 
