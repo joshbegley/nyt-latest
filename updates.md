@@ -1,3 +1,11 @@
+**Art Stars Remember the Legendary Steward Marian Goodman**\
+`William Kentridge, Steve McQueen, Julie Mehretu, Tacita Dean and other leading figures celebrate a ferocious dealer and champion who changed their lives.`\
+https://nytimes.com/2026/01/26/arts/design/mehretu-mcqueen-kentridge-marian-goodman-dealer.html
+
+**Trump Pivots From Attacks on Walz After Call**\
+`President Trump, facing growing criticism of the tactics of immigration agents in Minnesota, shifted from attacking the state’s governor to stressing cooperation.`\
+https://nytimes.com/2026/01/26/us/trump-walz-minneapolis.html
+
 **Ye Apologizes for Antisemitic Behavior, Again**\
 `The artist formerly known as Kanye West, who first apologized in 2023 before taking it back, said a four-month manic episode in 2025 had led him to embrace swastikas and Hitler.`\
 https://nytimes.com/2026/01/26/arts/music/ye-kanye-west-apology-antisemitism.html

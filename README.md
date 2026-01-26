@@ -1,3 +1,11 @@
+**Super Bowl MVP odds: The NFL's surprise main character is favored to win the award**\
+`The Seahawks dominate the Super Bowl MVP market, with their QB leading the pack.`\
+https://nytimes.com/athletic/6999333/2026/01/26/super-bowl-mvp-betting-odds-darnold-maye-smith-njigba/
+
+**Browns QB Shedeur Sanders named AFC Pro Bowl replacement**\
+`Sanders, a 2025 fifth-round pick, started seven games as a rookie and threw for 1,400 yards, seven touchdowns and 10 interceptions. `\
+https://nytimes.com/athletic/6999981/2026/01/26/browns-qb-shedeur-sanders-pro-bowl-replacement/
+
 **Art Stars Remember the Legendary Steward Marian Goodman**\
 `William Kentridge, Steve McQueen, Julie Mehretu, Tacita Dean and other leading figures celebrate a ferocious dealer and champion who changed their lives.`\
 https://nytimes.com/2026/01/26/arts/design/mehretu-mcqueen-kentridge-marian-goodman-dealer.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/26/opinion/minneapolis-killing.html
 **Rangers on verge of trading Carson Soucy to Islanders: Sources**\
 `Soucy is a defensive-minded defenseman capable of helping a team in a bottom-pair role.`\
 https://nytimes.com/athletic/6987252/2026/01/26/carson-soucy-trade-new-york-rangers-islanders/
-
-**AP men's hoops Top 25: Arizona unanimous No. 1, Nebraska climbs to program-high No. 5**\
-`Undefeated teams will be tested this week, as No. 1 Arizona travels to No. 13 BYU and No. 5 Nebraska faces No. 3 Michigan.`\
-https://nytimes.com/athletic/6999131/2026/01/26/ap-mens-basketball-poll-arizona-uconn-nebraska/
-
-**Social Media vs. the Internet: What Is Better for Kids?**\
-`As a guest on “Hard Fork,” Jonathan Haidt, author of “The Anxious Generation,” discusses why he believes children should have internet access and how that differs from his views on social media.`\
-https://nytimes.com/video/podcasts/100000010668802/social-media-vs-the-internet-what-is-better-for-kids.html
 
