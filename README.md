@@ -1,3 +1,7 @@
+**AP men's hoops Top 25: Arizona unanimous No. 1, Nebraska climbs to program-high No. 5**\
+`Undefeated teams will be tested this week, as No. 1 Arizona travels to No. 13 BYU and No. 5 Nebraska faces No. 3 Michigan.`\
+https://nytimes.com/athletic/6999131/2026/01/26/ap-mens-basketball-poll-arizona-uconn-nebraska/
+
 **Social Media vs. the Internet: What Is Better for Kids?**\
 `As a guest on “Hard Fork,” Jonathan Haidt, author of “The Anxious Generation,” discusses why he believes children should have internet access and how that differs from his views on social media.`\
 https://nytimes.com/video/podcasts/100000010668802/social-media-vs-the-internet-what-is-better-for-kids.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/26/business/media/npr-pbs-stations-funding.html
 **Severe weather forces postponement of Kings-Blue Jackets game**\
 `A heavy snowstorm in Ohio led the league to move the game to March.`\
 https://nytimes.com/athletic/6999754/2026/01/26/nhl-game-postponed-weather-kings-blue-jackets/
-
-**A Six-Figure Income Working From Home? The Sourdough Secret.**\
-`Home bakers are finding devoted customer bases that allow them to stay home with family and still make a decent living — but they do have get up in the middle of the night.`\
-https://nytimes.com/2026/01/26/dining/home-bakers-sourdough-microbakeries.html
 
