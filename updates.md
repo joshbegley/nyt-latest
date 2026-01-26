@@ -1,3 +1,15 @@
+**For a road supervisor in rural Ohio, the storm means long hours of plowing, salting and roadside rescues.**\
+`By Kevin Williams`\
+https://nytimes.com/live/2026/01/26/weather/weather-snow-updates-ice-cold/for-a-road-supervisor-in-rural-ohio-the-storm-means-long-hours-of-plowing-salting-and-roadside-rescues
+
+**Lions add Mike Kafka to offensive coaching staff: Sources**\
+`Kafka was interviewed for Detroit's offensive coordinator position that went to Drew Petzing.`\
+https://nytimes.com/athletic/7000362/2026/01/26/lions-hire-mike-kafka-offense-giants/
+
+**The Best Weapon You Have in the Fight Against ICE**\
+`We need to protect our right to carry cameras to document ICE’s violence.`\
+https://nytimes.com/2026/01/26/opinion/minnesota-minneapolis-phone-ice-shooting.html
+
 **Remains of Final Israeli Hostage in Gaza Returned to Israel**\
 `The Israeli government announced on Monday that Israel’s last captive in Gaza had been returned home and that it will allow the Rafah crossing to reopen within the next few days.`\
 https://nytimes.com/video/world/middleeast/100000010669114/last-israeli-hostage-recoverd.html
