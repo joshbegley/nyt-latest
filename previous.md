@@ -1,8 +1,20 @@
+**NBA Power Rankings: Let's hand out grades for the season's second quarter**\
+`Every team has played at least 41 games, and spoiler alert: These grades are probably going to be harsher than the first batch.`\
+https://nytimes.com/athletic/6999162/2026/01/26/nba-power-rankings-celtics-rockets-pistons/
+
+**How to watch Louisville vs. Duke men's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6999524/2026/01/26/louisville-vs-duke-stream-how-to-watch-jan-26/
+
+**How to watch Florida vs. LSU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6999521/2026/01/26/florida-vs-lsu-stream-how-to-watch-jan-26/
+
 **Ask a Journalist: Reporting on TV Shows and Cultural Trends**\
 `Shivani Gonzalez, a TV reporter, joins us in February to chat with teenagers about finding shows worth watching. Post your comments and questions for her by Feb. 15.`\
 https://nytimes.com/2026/01/26/learning/lesson-plans/ask-a-journalist-reporting-on-tv-shows-and-cultural-trends.html
 
-**Bayern in talks with Kane over new contract**\
+**Bayern in talks with Kane over new contract, says club chief**\
 `The 32-year-old has scored 34 goals in all competitions for the German champions so far this season.`\
 https://nytimes.com/athletic/6999469/2026/01/26/bayern-munich-harry-kane-new-contract/
 
@@ -25,16 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010668695/3-handbags-u
 **Bundesliga announces record combined revenues of €6.33billion**\
 `It represented a 7.9 per cent increase on the €5.87bn made during the previous season, which itself was a record.`\
 https://nytimes.com/athletic/6998893/2026/01/26/bundesliga-record-revenues-six-billion/
-
-**Lowetide: Is Oilers' Evan Bouchard finding another level to his game?**\
-`Bouchard's high-wire act is highly successful and all that keeps him from his personal outer marker is consistency.`\
-https://nytimes.com/athletic/6997287/2026/01/26/oilers-evan-bouchard-stats-capitals/
-
-**USMNT Tracker: Matches to forget for Pulisic, Scally, Trusty; McKennie's fine form continues**\
-`This week in the USMNT tracker: A Scally own goal, a Trusty red card, but lavish praise for Juventus' McKennie`\
-https://nytimes.com/athletic/6999133/2026/01/26/usmnt-tracker-scally-mckennie-trusty/
-
-**The Windup: Keith Law's top 2026 prospects**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6999403/2026/01/26/keith-laws-top-2026-prospects-the-windup/
 
