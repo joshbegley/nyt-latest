@@ -1,3 +1,11 @@
+**White House event with Trump, sports commissioners delayed by snow: Sources**\
+`The event was expected to involve a presentation of the administration's plans to use sports to help mark America's 250th birthday.`\
+https://nytimes.com/athletic/7000510/2026/01/26/white-house-event-with-trump-sports-commissioners-is-delayed-by-snow-sources/
+
+**How Does Climate Change Affect Winter Storms?**\
+`A warmer atmosphere has the potential to hold more moisture, which can contribute to heavier precipitation in any season, scientists say.`\
+https://nytimes.com/2026/01/26/weather/winter-storm-climate-change-snow.html
+
 **What Minneapolis Means for the Country and Its Politics**\
 `Our reporter who spent time in the city weighed in on how the chaos is changing the political landscape.`\
 https://nytimes.com/2026/01/26/us/politics/minneapolis-protests-midterm-politics.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/26/us/greg-bovino-border-patrol-minneapolis.html
 **G.O.P. Tees Up Spending Package, Leading to Shutdown Showdown**\
 `Days before a spending deadline, Republicans rejected a demand by Democrats to drop money for the Department of Homeland Security from a government funding package.`\
 https://nytimes.com/live/2026/01/26/us/minneapolis-shooting-ice/gop-tees-up-spending-package-leading-to-shutdown-showdown
-
-**Killings in Minneapolis Invert Usual Dynamic Over Policing the Police**\
-`It is far rarer and more difficult for state authorities to try to investigate federal law enforcement officials than the other way around.`\
-https://nytimes.com/2026/01/26/us/politics/minneapolis-killings-federal-state-police.html
-
-**Winter Storm Linked to at Least 22 Deaths in the U.S.**\
-`The storm deaths were reported in New York, Tennessee, Louisiana, Kansas, Texas, Massachusetts, Arkansas, Ohio, Pennsylvania, Mississippi, Kentucky and New Jersey, and other deaths were under investigation.`\
-https://nytimes.com/2026/01/26/weather/winter-storm-death-toll-snow.html
 
