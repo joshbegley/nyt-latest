@@ -1,3 +1,11 @@
+**Send Colton Pouncy your Lions mailbag questions**\
+`Detroit is coming off a 9-8, no-playoff season. The Lions fired their OC and hired a new one. Send us your mailbag questions.`\
+https://nytimes.com/athletic/6999576/2026/01/26/detroit-lions-mailbag-questions-request-colton-pouncy/
+
+**How to watch Mammoth vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6999591/2026/01/26/mammoth-vs-lightning-stream-how-to-watch-jan-26/
+
 **How to watch Islanders vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6999565/2026/01/26/islanders-vs-flyers-stream-how-to-watch-jan-26/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/26/learning/lesson-plans/ask-a-journalist-reporting-
 **Bayern in talks with Kane over new contract, says club chief**\
 `The 32-year-old has scored 34 goals in all competitions for the German champions so far this season.`\
 https://nytimes.com/athletic/6999469/2026/01/26/bayern-munich-harry-kane-new-contract/
-
-**Eilish McColgan interview: Racing the London marathon again, breaking records, and dealing with the family name**\
-`Although firmly ensconced in the pantheon of British women’s distance running, McColgan still has chapters of her career to write `\
-https://nytimes.com/athletic/6993989/2026/01/26/eilish-mccolgan-interview-racing-the-london-marathon-again-breaking-records-and-dealing-with-the-family-name/
-
-**Five No-Chop Dinners, and Brownies**\
-`Including one-pan creamed spinach with eggs, sheet-pan quesadillas and Sam Sifton’s five-star miso chicken.`\
-https://nytimes.com/2026/01/26/dining/five-no-chop-dinners-and-brownies.html
 
