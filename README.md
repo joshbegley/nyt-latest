@@ -1,3 +1,11 @@
+**With center fielder Harrison Bader, Giants get the dynamic defender they needed**\
+`After the Giants' outfield ranked among the league's worst defensive units in 2025, Bader's glove should provide some stability.`\
+https://nytimes.com/athletic/7000467/2026/01/26/sf-giants-harrison-bader-free-agent-signing-outfield-defense/
+
+**A Year Past a Fatal Crash, Concerns About Safety at Reagan Airport Continue**\
+`The Federal Aviation Administration says it has reduced traffic in and out of the airport and resigned safer routes. Crash victims’ families want more.`\
+https://nytimes.com/2026/01/26/us/politics/reagan-national-airport-crash.html
+
 **White House event with Trump, sports commissioners delayed by snow: Sources**\
 `The event was expected to involve a presentation of the administration's plans to use sports to help mark America's 250th birthday.`\
 https://nytimes.com/athletic/7000510/2026/01/26/white-house-event-with-trump-sports-commissioners-is-delayed-by-snow-sources/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/01/26/learning/26StudentNewsQuiz.html
 **Federal Investigation Into Shooting of Pretti Appears Limited**\
 `A use-of-force review is far different than a criminal investigation of the killing of Alex Pretti by Border Patrol agents in Minneapolis.`\
 https://nytimes.com/2026/01/26/us/pretti-minneapolis-shooting-dhs-investigation.html
-
-**Border Patrol Official Gregory Bovino Is Set to Leave Minnesota**\
-`The news of Mr. Bovino’s impending departure came hours after President Trump sent his border czar, Tom Homan, to take control of ICE operations in the state.`\
-https://nytimes.com/2026/01/26/us/greg-bovino-border-patrol-minneapolis.html
-
-**G.O.P. Tees Up Spending Package, Leading to Shutdown Showdown**\
-`Days before a spending deadline, Republicans rejected a demand by Democrats to drop money for the Department of Homeland Security from a government funding package.`\
-https://nytimes.com/live/2026/01/26/us/minneapolis-shooting-ice/gop-tees-up-spending-package-leading-to-shutdown-showdown
 
