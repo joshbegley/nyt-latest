@@ -1,3 +1,15 @@
+**After Mamdani Nods to ‘Heated Rivalry,’ Library E-Book Downloads Surge**\
+`As a snowstorm arrived, Mayor Zohran Mamdani reminded New Yorkers that they could access the romance series that inspired the TV show through their public library.`\
+https://nytimes.com/2026/01/26/nyregion/mamdani-heated-rivalry-library.html
+
+**Weekly Student News Quiz: Minnesota Killing, Snow Storm, College Football**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2026/01/26/learning/26StudentNewsQuiz.html
+
+**Federal Investigation Into Shooting of Pretti Appears Limited**\
+`A use-of-force review is far different than a criminal investigation of the killing of Alex Pretti by Border Patrol agents in Minneapolis.`\
+https://nytimes.com/2026/01/26/us/pretti-minneapolis-shooting-dhs-investigation.html
+
 **Border Patrol Official Gregory Bovino Is Set to Leave Minnesota**\
 `The news of Mr. Bovino’s impending departure came hours after President Trump sent his border czar, Tom Homan, to take control of ICE operations in the state.`\
 https://nytimes.com/2026/01/26/us/greg-bovino-border-patrol-minneapolis.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/26/us/alex-pretti-shooting-federal-agents-force.html
 **For a road supervisor in rural Ohio, the storm means long hours of plowing, salting and roadside rescues.**\
 `By Kevin Williams`\
 https://nytimes.com/live/2026/01/26/weather/weather-snow-updates-ice-cold/for-a-road-supervisor-in-rural-ohio-the-storm-means-long-hours-of-plowing-salting-and-roadside-rescues
-
-**Lions add Mike Kafka to offensive coaching staff: Sources**\
-`Kafka was interviewed for Detroit's offensive coordinator position that went to Drew Petzing.`\
-https://nytimes.com/athletic/7000362/2026/01/26/lions-hire-mike-kafka-offense-giants/
-
-**Remains of Final Israeli Hostage in Gaza Returned to Israel**\
-`The Israeli government announced on Monday that Israel’s last captive in Gaza had been returned home and that it will allow the Rafah crossing to reopen within the next few days.`\
-https://nytimes.com/video/world/middleeast/100000010669114/last-israeli-hostage-recoverd.html
-
-**Canadian Beluga Whales Could Find New Homes in United States**\
-`Marineland, a closed aquatic park in Ontario, had threatened to euthanize its whales after the government denied an application to send them to China.`\
-https://nytimes.com/2026/01/26/world/canada/canada-marineland-beluga-whales.html
 
