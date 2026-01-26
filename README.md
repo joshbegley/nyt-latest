@@ -1,3 +1,7 @@
+**Lions add Mike Kafka to offensive coaching staff: Sources**\
+`Kafka was interviewed for Detroit's offensive coordinator position that went to Drew Petzing.`\
+https://nytimes.com/athletic/7000362/2026/01/26/lions-hire-mike-kafka-offense-giants/
+
 **Remains of Final Israeli Hostage in Gaza Returned to Israel**\
 `The Israeli government announced on Monday that Israel’s last captive in Gaza had been returned home and that it will allow the Rafah crossing to reopen within the next few days.`\
 https://nytimes.com/video/world/middleeast/100000010669114/last-israeli-hostage-recoverd.html
@@ -6,7 +10,7 @@ https://nytimes.com/video/world/middleeast/100000010669114/last-israeli-hostage-
 `Marineland, a closed aquatic park in Ontario, had threatened to euthanize its whales after the government denied an application to send them to China.`\
 https://nytimes.com/2026/01/26/world/canada/canada-marineland-beluga-whales.html
 
-**We Need a New Amendment: The Right to Bear Phones**\
+**The Best Weapon You Have in the Fight Against ICE**\
 `We need to protect our right to carry cameras to document ICE’s violence.`\
 https://nytimes.com/2026/01/26/opinion/minnesota-minneapolis-phone-ice-shooting.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/26/nyregion/alina-habba-appeal.html
 **Democrats Embrace a Shutdown Fight They Wanted to Avoid**\
 `After a second fatal shooting of a U.S. citizen in Minneapolis, Democrats say public opinion is on their side and they are willing to risk a backlash to counter what they see as police-state tactics.`\
 https://nytimes.com/2026/01/26/us/politics/democrats-shutdown-ice-shooting.html
-
-**How We Determined That Minneapolis Videos Contradicted Federal Officials**\
-`Using more than a dozen videos related to the shooting of Alex Pretti, The Times worked to establish what is called ground truth: what happened, how it happened and who might be responsible.`\
-https://nytimes.com/2026/01/26/insider/minneapolis-ice-shooting-videos-investigation.html
 

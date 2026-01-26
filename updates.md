@@ -1,3 +1,11 @@
+**Remains of Final Israeli Hostage in Gaza Returned to Israel**\
+`The Israeli government announced on Monday that Israel’s last captive in Gaza had been returned home and that it will allow the Rafah crossing to reopen within the next few days.`\
+https://nytimes.com/video/world/middleeast/100000010669114/last-israeli-hostage-recoverd.html
+
+**Canadian Beluga Whales Could Find New Homes in United States**\
+`Marineland, a closed aquatic park in Ontario, had threatened to euthanize its whales after the government denied an application to send them to China.`\
+https://nytimes.com/2026/01/26/world/canada/canada-marineland-beluga-whales.html
+
 **We Need a New Amendment: The Right to Bear Phones**\
 `We need to protect our right to carry cameras to document ICE’s violence.`\
 https://nytimes.com/2026/01/26/opinion/minnesota-minneapolis-phone-ice-shooting.html

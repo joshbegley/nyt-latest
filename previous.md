@@ -1,3 +1,11 @@
+**Remains of Final Israeli Hostage in Gaza Returned to Israel**\
+`The Israeli government announced on Monday that Israel’s last captive in Gaza had been returned home and that it will allow the Rafah crossing to reopen within the next few days.`\
+https://nytimes.com/video/world/middleeast/100000010669114/last-israeli-hostage-recoverd.html
+
+**Canadian Beluga Whales Could Find New Homes in United States**\
+`Marineland, a closed aquatic park in Ontario, had threatened to euthanize its whales after the government denied an application to send them to China.`\
+https://nytimes.com/2026/01/26/world/canada/canada-marineland-beluga-whales.html
+
 **We Need a New Amendment: The Right to Bear Phones**\
 `We need to protect our right to carry cameras to document ICE’s violence.`\
 https://nytimes.com/2026/01/26/opinion/minnesota-minneapolis-phone-ice-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/26/us/politics/democrats-shutdown-ice-shooting.html
 **How We Determined That Minneapolis Videos Contradicted Federal Officials**\
 `Using more than a dozen videos related to the shooting of Alex Pretti, The Times worked to establish what is called ground truth: what happened, how it happened and who might be responsible.`\
 https://nytimes.com/2026/01/26/insider/minneapolis-ice-shooting-videos-investigation.html
-
-**Broncos, reeling from painful playoff loss, know 'rare' opportunity isn't promised in '26**\
-`Impending free agents like J.K. Dobbins and John Franklin-Myers express desire to return, but Broncos will have different look next season.`\
-https://nytimes.com/athletic/7000092/2026/01/26/broncos-afc-championship-loss-offseason-changes/
-
-**Xi’s Purge of the Chinese Military**\
-`The ousting of China’s most senior general has set off fevered speculation.`\
-https://nytimes.com/2026/01/26/world/china-xi-military-purge-israel-hostage-gaza.html
 
