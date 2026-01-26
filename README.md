@@ -34,7 +34,7 @@ https://nytimes.com/2026/01/26/business/gold-prices.html
 `The Rafah crossing will open at the end of Israel’s search for the remains of the last captive in Gaza.`\
 https://nytimes.com/2026/01/26/world/middleeast/israel-gaza-egypt-rafah-crossing.html
 
-**Australian Open recap: Chalkiest Grand Slam in recent tennis history heads for quarterfinals**\
-`Plus: a star with an injury quandary and yet another strong tournament for U.S. women.`\
-https://nytimes.com/athletic/6998007/2026/01/26/australian-open-recap-seeds-record-open-era/
+**Patriots vs. Seahawks in Super Bowl 60: What to know about matchup, halftime show, more**\
+`The Patriots are looking for their record seventh Super Bowl title, while the Seahawks are looking for their second championship.`\
+https://nytimes.com/athletic/6997991/2026/01/26/super-bowl-patriots-seahawks-bad-bunny-pro-bowl/
 
