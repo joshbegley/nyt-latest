@@ -1,3 +1,7 @@
+**Winter Storm Blankets Eastern U.S. With Heavy Snow**\
+`A powerful winter storm brought heavy snow, ice and freezing cold from Texas to New England. Parts of the Northeast were expecting 12 to 18 inches of snow.`\
+https://nytimes.com/video/weather/100000010667696/winter-storm-eastern-us-snow-ice-video.html
+
 **A Sunday Snowstorm Blankets New York**\
 `The city got about nine inches of snow and at least one person died from exposure to the cold as Mayor Zohran Mamdani faced his first big test in nuts-and-bolts governing.`\
 https://nytimes.com/2026/01/25/nyregion/snow-storm-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6997739/2026/01/25/patriots-broncos-score-result-ta
 **In Visits to Dealerships, Pair Schemed to Steal High-End Vehicles, Police Say**\
 `An organized theft ring in Connecticut, New Jersey and New York swapped or quickly cloned key fobs to steal millions of dollars’ worth of vehicles, officials said.`\
 https://nytimes.com/2026/01/25/nyregion/car-theft-ring.html
-
-**Pie Nut**\
-`There’s a lot to love in Erica Hsiung Wojcik’s punny puzzle.`\
-https://nytimes.com/2026/01/25/crosswords/daily-puzzle-2026-01-26.html
 
