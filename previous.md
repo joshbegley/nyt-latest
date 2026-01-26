@@ -1,3 +1,15 @@
+**Lopez rejoins Celta on loan, six months after £19.5m Wolves transfer**\
+`The 21-year-old has started just three Premier League games and made seven substitute appearances in half a season at Molineux.`\
+https://nytimes.com/athletic/7000395/2026/01/26/wolves-transfers-fer-lopez-celta/
+
+**NATO Chief Says Europe Is ‘Dreaming’ if It Thinks It Can Defend Itself Without U.S.**\
+`Mark Rutte, the secretary general of the alliance, told members of the European Parliament that President Trump was “doing a lot of good stuff.”`\
+https://nytimes.com/2026/01/26/world/europe/nato-chief-europe-greenland-trump-us.html
+
+**Court Affirms Ruling That Alina Habba Served Unlawfully as U.S. Attorney**\
+`Ms. Habba lost a bid to challenge a decision that had found she was serving unlawfully as New Jersey’s top federal prosecutor.`\
+https://nytimes.com/2026/01/26/nyregion/alina-habba-appeal.html
+
 **Democrats Embrace a Shutdown Fight They Wanted to Avoid**\
 `After a second fatal shooting of a U.S. citizen in Minneapolis, Democrats say public opinion is on their side and they are willing to risk a backlash to counter what they see as police-state tactics.`\
 https://nytimes.com/2026/01/26/us/politics/democrats-shutdown-ice-shooting.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7000068/2026/01/26/clippers-blogger-eat-tweet-213ho
 **Yoshinobu Yamamoto joins Shohei Ohtani on Team Japan's WBC roster**\
 `After months of speculation, Los Angeles Dodgers star Yoshinobu Yamamoto was named to Team Japan&#8217;s roster Monday and will pitch in the 2026 World Baseball Classic.`\
 https://nytimes.com/athletic/7000331/2026/01/26/yoshinobu-yamamoto-dodgers-wbc/
-
-**Under Biden Administration, Justice Dept. Began Examining Ilhan Omar’s Finances**\
-`The inquiry, initiated by the U.S. attorney’s office in Washington, appears to have stalled for lack of evidence.`\
-https://nytimes.com/2026/01/26/us/politics/ilhan-omar-investigation-finances.html
-
-**Judge Asks Pointed Questions, but Does Not Rule, in Hearing Seeking Block to ICE Surge**\
-`Judge Kate M. Menendez did not say when she might rule on the state of Minnesota’s request for an order halting the surge of immigration enforcement.`\
-https://nytimes.com/2026/01/26/us/minnesota-ice-hearing.html
-
-**Barcelona's Fermin set to extend contract through to 2031**\
-`The 22-year-old has scored 10 goals for Hansi Flick's side this season and has provided six assists, despite groin injury setbacks.`\
-https://nytimes.com/athletic/7000018/2026/01/26/fermin-lopez-barcelona-contract/
 

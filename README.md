@@ -7,7 +7,7 @@ https://nytimes.com/athletic/7000395/2026/01/26/wolves-transfers-fer-lopez-celta
 https://nytimes.com/2026/01/26/world/europe/nato-chief-europe-greenland-trump-us.html
 
 **Court Affirms Ruling That Alina Habba Served Unlawfully as U.S. Attorney**\
-`Ms. Habba lost a bid to challenge a decision that had found she was serving unlawfully as New Jersey’s top federal prosecutor.`\
+`The Justice Department lost a bid to challenge a decision that had found Ms. Habba was serving unlawfully as New Jersey’s top federal prosecutor.`\
 https://nytimes.com/2026/01/26/nyregion/alina-habba-appeal.html
 
 **Democrats Embrace a Shutdown Fight They Wanted to Avoid**\
