@@ -1,3 +1,23 @@
+**They ‘Had Done Everything Right.’ ICE Detained Them Anyway.**\
+`Dozens of refugees with valid status have been sent from Minnesota to Texas to be revetted, prompting a lawsuit. Those released have had to pay their way back.`\
+https://nytimes.com/2026/01/26/us/politics/ice-minnesota-refugees.html
+
+**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
+`Drop your questions here, and The Athletic's Chris Johnston will answer a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/6999678/2026/01/26/nhl-mailbag-trades-olympics-russia-milan/
+
+**Nigella Lawson Joins ‘The Great British Baking Show’ as a Judge**\
+`Ms. Lawson, 66, replaces Prue Leith, who announced her departure this month.`\
+https://nytimes.com/2026/01/26/us/nigella-lawson-great-british-bake-off.html
+
+**Why Celine Works**\
+`Their newish creative director Michael Rider is at the head of the pack.`\
+https://nytimes.com/2026/01/26/style/celine-paris-fashion.html
+
+**Chargers finalize deal with Mike McDaniel. What to expect from his offense?**\
+`McDaniel's scheme plus Herbert's combination of arm strength and athleticism creates limitless potential for the Chargers.`\
+https://nytimes.com/athletic/6992884/2026/01/26/mike-mcdaniel-hired-chargers-scheme-film-justin-herbert/
+
 **Forest in £35m offer for Palace striker Mateta**\
 `Personal terms between Forest and the 28-year-old will not be an issue.`\
 https://nytimes.com/athletic/6999195/2026/01/26/jean-philippe-mateta-forest-palace-transfer/
