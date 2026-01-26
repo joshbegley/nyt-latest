@@ -1,3 +1,11 @@
+**Pedro Lives in a Hospital. His Nurses Are on Strike. He Misses Them.**\
+`Pedro, a 2-year-old, needs a new heart and has spent months in a New York hospital. With his nurses on the picket line, replacement workers care for him.`\
+https://nytimes.com/2026/01/26/nyregion/nyc-nurses-strike-patients-children.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/26/crosswords/spelling-bee-forum.html
+
 **In Xi’s China, Even the Mightiest General Can Fall**\
 `A combat veteran, Zhang Youxia was once seen as the most trusted man in Xi Jinping’s military. Now he is the most public example of disloyalty to Mr. Xi.`\
 https://nytimes.com/2026/01/26/world/asia/china-xi-zhang-youxia-military.html
