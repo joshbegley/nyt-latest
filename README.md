@@ -1,3 +1,11 @@
+**Border Patrol Official Gregory Bovino Is Set to Leave Minnesota**\
+`The news of Mr. Bovino’s impending departure came hours after President Trump sent his border czar, Tom Homan, to take control of ICE operations in the state.`\
+https://nytimes.com/2026/01/26/us/greg-bovino-border-patrol-minneapolis.html
+
+**G.O.P. Tees Up Spending Package, Leading to Shutdown Showdown**\
+`Days before a spending deadline, Republicans rejected a demand by Democrats to drop money for the Department of Homeland Security from a government funding package.`\
+https://nytimes.com/live/2026/01/26/us/minneapolis-shooting-ice/gop-tees-up-spending-package-leading-to-shutdown-showdown
+
 **Killings in Minneapolis Invert Usual Dynamic Over Policing the Police**\
 `It is far rarer and more difficult for state authorities to try to investigate federal law enforcement officials than the other way around.`\
 https://nytimes.com/2026/01/26/us/politics/minneapolis-killings-federal-state-police.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010669114/last-israeli-hostage-
 **Canadian Beluga Whales Could Find New Homes in United States**\
 `Marineland, a closed aquatic park in Ontario, had threatened to euthanize its whales after the government denied an application to send them to China.`\
 https://nytimes.com/2026/01/26/world/canada/canada-marineland-beluga-whales.html
-
-**The Best Weapon You Have in the Fight Against ICE**\
-`We need to protect our right to carry cameras to document ICE’s violence.`\
-https://nytimes.com/2026/01/26/opinion/minnesota-minneapolis-phone-ice-shooting.html
-
-**Japanese Panda Fans Bid Farewell to Furry Ambassadors**\
-`As Japan and China feud, an animal long used in Chinese diplomacy has been summoned back home.`\
-https://nytimes.com/2026/01/26/world/asia/japan-pandas-china.html
 
