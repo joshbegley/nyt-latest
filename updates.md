@@ -1,3 +1,7 @@
+**Cleaning a Toilet? Don’t Skip This Step**\
+`If you’re skipping this step, your toilet probably isn’t as clean as you think. Here’s how to do it properly.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010668975/cleaning-a-toilet-dont-skip-this-step.html
+
 **They ‘Had Done Everything Right.’ ICE Detained Them Anyway.**\
 `Dozens of refugees with valid status have been sent from Minnesota to Texas to be revetted, prompting a lawsuit. Those released have had to pay their way back.`\
 https://nytimes.com/2026/01/26/us/politics/ice-minnesota-refugees.html
