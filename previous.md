@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6998352/2026/01/25/blackhawks-bedard-consistency-le
 `The 6-foot-8 Raptor made a defensive gem against OKC's Chet Holmgren and also shut down Shai Gilgeous-Alexander.`\
 https://nytimes.com/athletic/6998302/2026/01/25/scottie-barnes-raptors-defensive-play-chet-holmgren-dpoy-contender/
 
-**Storm Dumps a Foot of Snow in 18 States**\
-`Bonito Lake, N.M., received 31 inches, the most in the country this weekend, the National Weather Service said.`\
+**Storm Dumps a Foot of Snow in About a Third of U.S. States**\
+`At least 17 states received a foot or more this weekend, the National Weather Service said. Bonito Lake, N.M., received 31 inches, the most in the country.`\
 https://nytimes.com/2026/01/25/us/snow-totals.html
 
 **Mike Vrabel's turnaround of the Patriots is nearly complete: 'It’s all about the coach'**\

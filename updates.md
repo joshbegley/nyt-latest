@@ -1,3 +1,7 @@
+**Storm Dumps a Foot of Snow in About a Third of U.S. States**\
+`At least 17 states received a foot or more this weekend, the National Weather Service said. Bonito Lake, N.M., received 31 inches, the most in the country.`\
+https://nytimes.com/2026/01/25/us/snow-totals.html
+
 **Winter Storm Pummels Toronto With Near-Record Snowfall**\
 `Toronto Pearson International Airport had received about 18 inches by 10 p.m. on Sunday, the airport said, and snow was still falling.`\
 https://nytimes.com/2026/01/25/world/americas/toronto-snow-winter-storm.html
