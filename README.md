@@ -1,3 +1,23 @@
+**Right now, 'nothing feels right' in Minneapolis. An NBA basketball game is no exception**\
+`Minnesotans hoped to "forget everything" for a moment at Warriors-Wolves. But amid city-wide unease, that simply wasn't possible.`\
+https://nytimes.com/athletic/6997890/2026/01/26/minnesota-ice-federal-agents-protestors-nba-game/
+
+**New Jersey’s Commute Is Off to a Rough Start**\
+`Much of the public transit options were limited or not running as of 9 a.m. on Monday.`\
+https://nytimes.com/2026/01/26/nyregion/winter-storm-new-jersey-commute.html
+
+**NBA Rewind: What does Giannis Antetokounmpo really want?**\
+`Plus, who's hot (Jusuf Nurkić?) and not (the Wizards), as well as three East contenders who need a big week.`\
+https://nytimes.com/athletic/6997417/2026/01/26/giannis-antetokounmpo-bucks-nba-rewind/
+
+**Ramos-led group enters exclusivity talks over Sevilla takeover**\
+`The proposed takeover remains subject to due diligence to analyse the financial health of the club.`\
+https://nytimes.com/athletic/6999103/2026/01/26/sergio-ramos-sevilla-takeover-bid-exclusivity/
+
+**Premier League data notebook: Villa's favourable fixtures, centre-back goals, rise of the wonder strike**\
+`Mark Carey and Conor O'Neill crunch the numbers after another unpredictable weekend in the Premier League`\
+https://nytimes.com/athletic/6998891/2026/01/26/premier-league-data-arsenal-villa-man-utd-goals/
+
 **Ferry Sinks in Southern Philippines, Leaving Several Dead**\
 `A ship carrying more than 350 people sank early Monday near the island of Baluk-baluk in the southern province of Basilan, leaving at least 18 dead, according to the Philippine Coast Guard.`\
 https://nytimes.com/video/world/asia/100000010668313/ferry-philippines-sinking.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6998847/2026/01/26/rams-lose-nfc-championship-game-
 **Sam Darnold has his home now. His star is glowing and his redemption is real**\
 `In an era of accelerated verdicts and diminished patience, Darnold's success is the latest proof that QBs must be developed, not anointed.`\
 https://nytimes.com/athletic/6998667/2026/01/26/sam-darnold-redemption-seahawks-super-bowl-rams/
-
-**Can Arsenal win the Premier League without an outstanding attacker?**\
-`It feels like Arteta’s side will require a burst of brilliance from an attacking player if they are to fend off their title rivals`\
-https://nytimes.com/athletic/6998841/2026/01/26/can-arsenal-win-the-premier-league-without-an-outstanding-attacker/
-
-**Philip Rivers removes himself from Bills coaching consideration: Sources**\
-`Rivers, 44, has no NFL coaching experience, but addressed the idea after the Colts' final regular-season game in early January.`\
-https://nytimes.com/athletic/6999091/2026/01/26/philip-rivers-bills-coaching-candidacy/
-
-**Business Leaders Face a Test in Minneapolis**\
-`Some companies have begun to respond to the fatal shooting of Alex Jeffrey Pretti and the immigration crackdown. But others have stayed silent.`\
-https://nytimes.com/2026/01/26/business/dealbook/business-leaders-minnesota-ice.html
-
-**After Reports of Progress, Kremlin Says Ukraine Talks Will Continue**\
-`Ukrainian and Russian officials left rare direct talks last weekend in a somewhat optimistic mood. But Russia may be simply stalling for time, analysts said.`\
-https://nytimes.com/2026/01/26/world/europe/russia-ukraine-war-peace-talks.html
-
-**How to watch 76ers vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6999084/2026/01/26/76ers-vs-hornets-stream-how-to-watch-jan-26/
 
