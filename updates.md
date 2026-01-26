@@ -1,3 +1,5 @@
+
+
 **NASCAR's Roval playoff race expected to return to Charlotte's oval: Sources**\
 `NASCAR's only playoff road course will be no more. The once-popular quirky circuit has seen a drop in fan sentiment in the Next Gen era.`\
 https://nytimes.com/athletic/6998311/2026/01/26/nascar-roval-playoff-race-charlotte-motor-speedway-oval/
