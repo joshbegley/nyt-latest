@@ -1,3 +1,31 @@
+**Paqueta's West Ham exit could end up being a positive. Just look at Fernandes**\
+`Victory over Sunderland made it three consecutive wins in all competitions for West Ham and one player in particular stood out`\
+https://nytimes.com/athletic/6995623/2026/01/26/west-ham-sunderland-lucas-paqueta/
+
+**Heart of Midlothian, Scottish football's unlikely disrupters**\
+`Some cannot get their heads around Hearts being Scottish champions come May. But it can happen. `\
+https://nytimes.com/athletic/6997459/2026/01/26/hearts-celtic-scottish-football/
+
+**Could Chelsea and Rosenior benefit from looking after rather than protecting Estevao?**\
+`Estevao was the difference maker for Chelsea against Crystal Palace on Sunday`\
+https://nytimes.com/athletic/6997428/2026/01/26/estevao-chelsea-liam-rosenior-analysis/
+
+**Dominic Calvert-Lewin returns to Everton a player revived - but still appreciated at his former club**\
+`The striker's Everton career felt as if it had run its course, even if the toils endured by his replacements pushed some towards revisionism`\
+https://nytimes.com/athletic/6993753/2026/01/26/dominic-calvert-lewin-everton-leeds-legacy/
+
+**How Leeds are getting the best out of Calvert-Lewin after four lean seasons at Everton**\
+`The Leeds striker's data shows the different metrics that are making him more effective as a goalscorer this season`\
+https://nytimes.com/athletic/6994847/2026/01/26/calvert-lewin-leeds-everton-goals/
+
+**No Bruno, no victory: Newcastle still can't find a way to win without Guimaraes**\
+`Eddie Howe knows Newcastle are too reliant on their Brazilian captain but can't work out a solution`\
+https://nytimes.com/athletic/6993536/2026/01/26/bruno-guimaraes-absence-newcastle-struggle/
+
+**Awoniyi's moment of joy and a rare sense of relief for Nottingham Forest**\
+`Taiwo Awoniyi scored his first goal for Forest after being left fighting for his life in hospital`\
+https://nytimes.com/athletic/6997356/2026/01/26/taiwo-awoniyi-nottingham-forest-brentford-analysis/
+
 **The Briefing: Have Arsenal created a title race? Are Spurs sparking relegation battle?**\
 `Welcome to The Briefing, The Athletic's weekly look at the big questions from the Premier League weekend`\
 https://nytimes.com/athletic/6996802/2026/01/26/arsenal-premier-league-title-tottenham-relegation-briefing/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6994427/2026/01/26/crystal-palace-crisis-glasner-ch
 **Who is the most important person at your Premier League club?**\
 `From Arsenal's Mikel Arteta to Nathan Shi at Wolves via somebody's beloved kit manager - the most crucial individual at the 20 teams`\
 https://nytimes.com/athletic/6993678/2026/01/26/premier-league-most-important-person-manager-owner/
-
-**Being in WSL is a privilege not a right – relegation risk should be taken seriously**\
-`The side that finishes bottom of WSL and faces a relegation play-off may be in for a nasty surprise...`\
-https://nytimes.com/athletic/6997388/2026/01/26/wsl-relegation-everton-liverpool/
-
-**Luciano Spalletti has breathed new life into Juventus. An identity has taken shape**\
-`Juventus are climbing towards Serie A's top four places after a big win over Napoli`\
-https://nytimes.com/athletic/6997525/2026/01/26/juventus-luciano-spalleti-napoli-analysis/
-
-**FIFA Women's Champions Cup: Who's competing, where - and what is it?**\
-`The Athletic has all you need to know about the inaugural edition of the Champions Cup, which is taking place this week.`\
-https://nytimes.com/athletic/6884641/2026/01/26/fifa-womens-champions-cup-whos-competing-where-and-what-is-it/
-
-**The biggest threat to Arsenal's Premier League title challenge? Arsenal**\
-`Arsenal are now four points clear at the top of the Premier League after their loss to Manchester United`\
-https://nytimes.com/athletic/6997724/2026/01/26/arsenal-premier-league-title-manchester-united-analysis/
-
-**Man Utd are not back yet, but whatever Michael Carrick is building has buy-in**\
-`Manchester United have won two games in a row — but one swallow does not make a summer`\
-https://nytimes.com/athletic/6982736/2026/01/26/manchester-united-michael-carrick-arsenal-analysis/
-
-**As Europe’s Reliance on U.S. Natural Gas Grows, So Does Trump’s Leverage**\
-`Tension over Greenland has prompted worries that the Trump administration could turn the U.S. oil and gas industry into a way to pressure Europe.`\
-https://nytimes.com/2026/01/26/business/europe-natural-gas-united-states-russia.html
-
-**Quote of the Day: Maniacs Are His Specialty**\
-`Quotation of the Day for Monday, January 26, 2026.`\
-https://nytimes.com/2026/01/26/pageoneplus/quote-of-the-day-maniacs-are-his-specialty.html
 
