@@ -1,3 +1,11 @@
+**We Need a New Amendment: The Right to Bear Phones**\
+`We need to protect our right to carry cameras to document ICE’s violence.`\
+https://nytimes.com/2026/01/26/opinion/minnesota-minneapolis-phone-ice-shooting.html
+
+**Japanese Panda Fans Bid Farewell to Furry Ambassadors**\
+`As Japan and China feud, an animal long used in Chinese diplomacy has been summoned back home.`\
+https://nytimes.com/2026/01/26/world/asia/japan-pandas-china.html
+
 **The Briefing: Everton 1 Leeds 1 - versatile Justin, Calvert-Lewin's near miss and a point closer to safety**\
 `Beren Cross analyses the main talking points from Leeds' draw with Everton at Hill Dickinson Stadium`\
 https://nytimes.com/athletic/6999814/2026/01/26/everton-leeds-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7000092/2026/01/26/broncos-afc-championship-loss-of
 **Xi’s Purge of the Chinese Military**\
 `The ousting of China’s most senior general has set off fevered speculation.`\
 https://nytimes.com/2026/01/26/world/china-xi-military-purge-israel-hostage-gaza.html
-
-**PSG sign Barcelona's Dro Fernandez in deal worth around €8m**\
-`The teenager is expected to be the final January exit for Barca, who receive a fee of around €8million from the French club.`\
-https://nytimes.com/athletic/6982591/2026/01/26/psg-transfer-news-dro-fernandez-barcelona/
-
-**Clippers' surprising resurgence has blogger set to (literally) eat his words**\
-`Robert Flom, owner of a Clippers fan blog, said he would "eat this tweet" is the team could muster a 15-3 stretch. `\
-https://nytimes.com/athletic/7000068/2026/01/26/clippers-blogger-eat-tweet-213hoops/
 
