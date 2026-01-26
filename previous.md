@@ -1,3 +1,11 @@
+**Washington Post Reverses Decision on Olympics Coverage**\
+`The newspaper will send a small team of reporters to cover the Olympics after it informed sports journalists on Friday that the paper would not send a group.`\
+https://nytimes.com/2026/01/26/business/media/washington-post-reverses-decision-on-olympics-coverage.html
+
+**Answer 4 Questions. Find Your Dream Mexico Vacation.**\
+`With so many great options, where should you go? We can help.`\
+https://nytimes.com/interactive/2026/01/26/travel/mexico-vacation-quiz-game.html
+
 **Super Bowl MVP odds: The NFL's surprise main character is favored to win the award**\
 `The Seahawks dominate the Super Bowl MVP market, with their QB leading the pack.`\
 https://nytimes.com/athletic/6999333/2026/01/26/super-bowl-mvp-betting-odds-darnold-maye-smith-njigba/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/26/us/politics/justice-dept-drops-charges-assault-of
 **Why Is the Trump Administration Demanding Minnesota’s Voter Rolls?**\
 `The Justice Department has urged Minnesota to hand over voters’ private data. It is part of a national push that has raised concerns about the Trump administration’s motives.`\
 https://nytimes.com/2026/01/26/us/politics/minnesota-trump-voter-rolls.html
-
-**A Crisis of Truth and Trust in Minneapolis**\
-`Readers react to the killing of Alex Pretti by federal agents and the constitutional dangers it signals.`\
-https://nytimes.com/2026/01/26/opinion/minneapolis-killing.html
-
-**Rangers on verge of trading Carson Soucy to Islanders: Sources**\
-`Soucy is a defensive-minded defenseman capable of helping a team in a bottom-pair role.`\
-https://nytimes.com/athletic/6987252/2026/01/26/carson-soucy-trade-new-york-rangers-islanders/
 
