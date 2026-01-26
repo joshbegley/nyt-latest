@@ -1,3 +1,7 @@
+**Seahawks top Rams in thriller, advance to Super Bowl LX to face Patriots**\
+`Seattle will face New England in a rematch of Super Bowl XLIX on Feb. 8. `\
+https://nytimes.com/athletic/6998109/2026/01/25/rams-seahawks-score-result-takeaways-nfc-championship-game/
+
 **Super Bowl 60 odds: Seahawks open as favorites against Patriots**\
 `The Seahawks are favored against the Patriots for Super Bowl 60. Both teams had long odds to win it all before the season started.`\
 https://nytimes.com/athletic/6998231/2026/01/25/super-bowl-60-odds-seahawks-patriots/
