@@ -1,3 +1,7 @@
+**NASCAR's Roval playoff race expected to return to Charlotte's oval: Sources**\
+`NASCAR's only playoff road course will be no more. The once-popular quirky circuit has seen a drop in fan sentiment in the Next Gen era.`\
+https://nytimes.com/athletic/6998311/2026/01/26/nascar-roval-playoff-race-charlotte-motor-speedway-oval/
+
 **Right now, 'nothing feels right' in Minneapolis. An NBA basketball game is no exception**\
 `Minnesotans hoped to "forget everything" for a moment at Warriors-Wolves. But amid city-wide unease, that simply wasn't possible.`\
 https://nytimes.com/athletic/6997890/2026/01/26/minnesota-ice-federal-agents-protestors-nba-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/26/world/middleeast/gaza-hostage-returned-israel.htm
 **The Rams had a Super Bowl team, except for one glaring problem that never went away**\
 `It felt inevitable that special teams would at some point cost the Rams dearly — and that moment came at the worst possible time.`\
 https://nytimes.com/athletic/6998847/2026/01/26/rams-lose-nfc-championship-game-special-teams/
-
-**Sam Darnold has his home now. His star is glowing and his redemption is real**\
-`In an era of accelerated verdicts and diminished patience, Darnold's success is the latest proof that QBs must be developed, not anointed.`\
-https://nytimes.com/athletic/6998667/2026/01/26/sam-darnold-redemption-seahawks-super-bowl-rams/
 
