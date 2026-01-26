@@ -1,3 +1,7 @@
+**Trump Blames Democrats for ‘Tragic’ Deaths as Agents Clash With Protesters**\
+`Top administration officials had earlier, and without evidence, accused each of the shooting victims in Minneapolis of “domestic terrorism.”`\
+https://nytimes.com/2026/01/25/us/politics/trump-blames-democrats-minneapolis-killings.html
+
 **Alex Pretti’s Friends and Family Denounce ‘Sickening Lies’ About His Life**\
 `People who knew a man fatally shot by federal agents pushed back against what they called a smear campaign by federal officials. “He was a good man,” his family said.`\
 https://nytimes.com/2026/01/25/us/alex-pretti-minneapolis-shooting.html
