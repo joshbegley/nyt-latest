@@ -3,7 +3,7 @@
 https://nytimes.com/live/2026/01/26/weather/weather-snow-updates-ice-cold/heres-the-latest
 
 **Live Updates: Winter Storm Pummels U.S. With Ice, Snow and Frigid Temperatures**\
-``\
+`Millions across the country faced dangerous cold after the storm dumped snow in at least 18 states, disrupting travel and causing power outages.`\
 https://nytimes.com/live/2026/01/26/weather/weather-snow-updates-ice-cold
 
 **2026 Top 100 MLB prospects from Keith Law: Pirates' Konnor Griffin tops the list**\
