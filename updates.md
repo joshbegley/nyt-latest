@@ -1,3 +1,11 @@
+**With center fielder Harrison Bader, Giants get the dynamic defender they needed**\
+`After the Giants' outfield ranked among the league's worst defensive units in 2025, Bader's glove should provide some stability.`\
+https://nytimes.com/athletic/7000467/2026/01/26/sf-giants-harrison-bader-free-agent-signing-outfield-defense/
+
+**A Year Past a Fatal Crash, Concerns About Safety at Reagan Airport Continue**\
+`The Federal Aviation Administration says it has reduced traffic in and out of the airport and resigned safer routes. Crash victims’ families want more.`\
+https://nytimes.com/2026/01/26/us/politics/reagan-national-airport-crash.html
+
 **White House event with Trump, sports commissioners delayed by snow: Sources**\
 `The event was expected to involve a presentation of the administration's plans to use sports to help mark America's 250th birthday.`\
 https://nytimes.com/athletic/7000510/2026/01/26/white-house-event-with-trump-sports-commissioners-is-delayed-by-snow-sources/
