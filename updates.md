@@ -1,3 +1,7 @@
+**Seahawks Outlast Rams in Thrilling N.F.C. Championship**\
+`Sam Darnold, a quarterback for the Seattle Seahawks, threw three touchdown passes to help push Seattle past the Los Angeles Rams and secure a spot in the Super Bowl.`\
+https://nytimes.com/video/sports/football/100000010668159/seahawks-outlast-rams-in-thrilling-nfc-championship.html
+
 **Ice Storm Leaves Thousands Without Power in a Mississippi County**\
 `More than 20,000 households had no power late Sunday in Lafayette County, a day after freezing rain hit the Oxford area.`\
 https://nytimes.com/2026/01/26/us/ice-storm-mississippi-oxford.html
