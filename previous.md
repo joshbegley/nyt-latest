@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, Jan. 26, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/26/todays-new-york-times
+
+**Trump’s Foreign Policy Is Stuck in the 16th Century**\
+`The president’s approach is not just chaos or an updated version of 19th-century great-power competition.`\
+https://nytimes.com/2026/01/26/opinion/trump-foreign-policy-neo-royalist.html
+
+**‘Bridgerton,’ Plus 5 Things to Watch on TV This Week**\
+`This Regency-era drama is back for a fourth season, and the 2026 Grammy Awards will air.`\
+https://nytimes.com/2026/01/26/arts/television/bridgerton-plus-5-things-to-watch-on-tv-this-week.html
+
 **Stuart Skinner's brilliance propels Penguins to perfect trip**\
 `Skinner put on a show as the Penguins finished with a 3-2 win against the Canucks. `\
 https://nytimes.com/athletic/6997518/2026/01/26/penguins-perfect-trip-stuart-skinner/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6997459/2026/01/26/hearts-celtic-scottish-football/
 **Could Chelsea and Rosenior benefit from looking after rather than protecting Estevao?**\
 `Estevao was the difference maker for Chelsea against Crystal Palace on Sunday`\
 https://nytimes.com/athletic/6997428/2026/01/26/estevao-chelsea-liam-rosenior-analysis/
-
-**Dominic Calvert-Lewin returns to Everton a player revived - but still appreciated at his former club**\
-`The striker's Everton career felt as if it had run its course, even if the toils endured by his replacements pushed some towards revisionism`\
-https://nytimes.com/athletic/6993753/2026/01/26/dominic-calvert-lewin-everton-leeds-legacy/
-
-**How Leeds are getting the best out of Calvert-Lewin after four lean seasons at Everton**\
-`The Leeds striker's data shows the different metrics that are making him more effective as a goalscorer this season`\
-https://nytimes.com/athletic/6994847/2026/01/26/calvert-lewin-leeds-everton-goals/
-
-**No Bruno, no victory: Newcastle still can't find a way to win without Guimaraes**\
-`Eddie Howe knows Newcastle are too reliant on their Brazilian captain but can't work out a solution`\
-https://nytimes.com/athletic/6993536/2026/01/26/bruno-guimaraes-absence-newcastle-struggle/
 
