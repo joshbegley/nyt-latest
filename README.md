@@ -1,3 +1,19 @@
+**Remains of Last Captive in Gaza Are Retrieved, Closing a Chapter for Israel**\
+`The recovery of Master Sgt. Ran Gvili’s body paves the way for the next stage of the Gaza cease-fire plan, though the path forward is unclear.`\
+https://nytimes.com/2026/01/26/world/middleeast/gaza-hostage-returned-israel.html
+
+**The Rams had a Super Bowl team, except for one glaring problem that never went away**\
+`It felt inevitable that special teams would at some point cost the Rams dearly — and that moment came at the worst possible time.`\
+https://nytimes.com/athletic/6998847/2026/01/26/rams-lose-nfc-championship-game-special-teams/
+
+**Sam Darnold has his home now. His star is glowing and his redemption is real**\
+`In an era of accelerated verdicts and diminished patience, Darnold's success is the latest proof that QBs must be developed, not anointed.`\
+https://nytimes.com/athletic/6998667/2026/01/26/sam-darnold-redemption-seahawks-super-bowl-rams/
+
+**Can Arsenal win the Premier League without an outstanding attacker?**\
+`It feels like Arteta’s side will require a burst of brilliance from an attacking player if they are to fend off their title rivals`\
+https://nytimes.com/athletic/6998841/2026/01/26/can-arsenal-win-the-premier-league-without-an-outstanding-attacker/
+
 **Philip Rivers removes himself from Bills coaching consideration: Sources**\
 `Rivers, 44, has no NFL coaching experience, but addressed the idea after the Colts final regular-season game in early January.`\
 https://nytimes.com/athletic/6999091/2026/01/26/philip-rivers-bills-coaching-candidacy/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6999082/2026/01/26/pacers-vs-hawks-stream-how-to-wa
 **Hall of Fame mailbag: Top 5 players — excluding PED cases — who should be in Cooperstown**\
 `Who will get in next? Who got my vote for the best players the writers whiffed on? And are you ready for my team of one-vote wonders?`\
 https://nytimes.com/athletic/6998790/2026/01/26/baseball-hall-of-fame-questions-schilling-whitaker-pettitte/
-
-**Submit your college basketball questions for our mailbag**\
-`After a weekend full of superlative performances, what's on your mind?`\
-https://nytimes.com/athletic/6999034/2026/01/26/college-basketball-questions-mailbag/
-
-**Gold Soars to Record High as Global Tensions Grow**\
-`The price of gold surged above $5,000 an ounce as investors sought shelter from geopolitical uncertainty.`\
-https://nytimes.com/2026/01/26/business/gold-prices.html
-
-**Israel Says It Will Reopen Gaza-Egypt Border, a Palestinian Lifeline, in Days**\
-`The Rafah crossing will open at the end of Israel’s search for the remains of the last captive in Gaza.`\
-https://nytimes.com/2026/01/26/world/middleeast/israel-gaza-egypt-rafah-crossing.html
-
-**Patriots vs. Seahawks in Super Bowl 60: What to know about matchup, halftime show, more**\
-`The Patriots are looking for their record seventh Super Bowl title, while the Seahawks are looking for their second championship.`\
-https://nytimes.com/athletic/6997991/2026/01/26/super-bowl-patriots-seahawks-bad-bunny-pro-bowl/
 
