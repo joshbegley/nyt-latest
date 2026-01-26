@@ -1,3 +1,11 @@
+**F.A.A. Rolls Out Agency Overhaul for Improving Air Safety**\
+`The announcement of a reorganization comes nearly a year after a midair collision killed 67 people and prompted a public outcry for enhancing the security of aviation travel.`\
+https://nytimes.com/2026/01/26/us/politics/faa-overhaul-safety-modernization.html
+
+**No Snow Day? In New York City Parks, It Felt Like One.**\
+`Some children skipped remote classes in city schools in favor of activities they felt were more important: sledding and snowball fights.`\
+https://nytimes.com/2026/01/26/weather/snow-parks-children-remote-schooling.html
+
 **Steve Ott on taking the Blues' AHL job, what comes next: 'It's a great opportunity'**\
 `"I definitely want to be a head coach in the NHL someday," says Ott, who had been a Blues assistant for nine seasons and wanted a next step.`\
 https://nytimes.com/athletic/6999761/2026/01/26/steve-ott-blues-ahl-springfield-coach-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/26/weather/winter-storm-climate-change-snow.html
 **What Minneapolis Means for the Country and Its Politics**\
 `Our reporter who spent time in the city weighed in on how the chaos is changing the political landscape.`\
 https://nytimes.com/2026/01/26/us/politics/minneapolis-protests-midterm-politics.html
-
-**New York City Races to Help Homeless People as Temperatures Plunge**\
-`The weather underscored how vulnerable people are when they do not have a safe place to shelter. At least eight people have died, including several who had a history with the city’s shelter system.`\
-https://nytimes.com/2026/01/26/nyregion/nyc-snow-homeless.html
-
-**What to Expect for the Morning Commute in the New York Area**\
-`Mass transit is slowly getting back to normal around the city.`\
-https://nytimes.com/2026/01/26/weather/nyc-winter-storm-transit-trains-buses.html
 
