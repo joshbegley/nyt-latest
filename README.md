@@ -1,3 +1,11 @@
+**Bedard and Blackhawks still searching for consistency since injury return**\
+`Connor Bedard was playing at an MVP candidate level before his injury. He hasn't quite bounced back yet, and neither has his team.`\
+https://nytimes.com/athletic/6998352/2026/01/25/blackhawks-bedard-consistency-levshunov-panthers/
+
+**Scottie Barnes for Defensive Player of the Year? This block strengthens his case**\
+`The 6-foot-8 Raptor made a defensive gem against OKC's Chet Holmgren and also shut down Shai Gilgeous-Alexander.`\
+https://nytimes.com/athletic/6998302/2026/01/25/scottie-barnes-raptors-defensive-play-chet-holmgren-dpoy-contender/
+
 **Storm Dumps a Foot of Snow in 18 States**\
 `Bonito Lake, N.M., received 31 inches, the most in the country this weekend, the National Weather Service said.`\
 https://nytimes.com/2026/01/25/us/snow-totals.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6998165/2026/01/25/broncos-grapple-with-what-ifs-af
 **Updated 2026 NFL Draft order: Top 30 set; Rams hold picks 13 and 29 in Round 1**\
 `How does Round 1 shape up following the conclusion of Sunday's conference championship games?`\
 https://nytimes.com/athletic/6998080/2026/01/25/updated-2026-nfl-draft-order-top-30-rams/
-
-**At Least 15 Dead After Ferry Carrying 350 Sinks in the Philippines**\
-`It was not immediately clear how many people were missing after the ferry sank early Monday morning in Basilan Province.`\
-https://nytimes.com/2026/01/25/world/asia/philippines-ferry-sinks-basilan.html
-
-**Super Bowl 2026 preview: Analysis of Patriots', Seahawks' chances to win it all**\
-`An early look at Super Bowl LX, a rematch of one of the most memorable title games in NFL history.`\
-https://nytimes.com/athletic/6997977/2026/01/25/super-bowl-2026-preview-odds-patriots-seahawks-analysis/
 
