@@ -1,40 +1,40 @@
-**Birmingham closing in on signing of Vicente from Alaves**\
-`The 26-year-old is expected to travel to England today and Birmingham are hoping to wrap up the deal in the next 24 hours.`\
-https://nytimes.com/athletic/6998822/2026/01/26/carlos-vicente-birmingham-alaves-transfer/
+**Here’s the latest.**\
+`By Mitch Smith and Yan Zhuang`\
+https://nytimes.com/live/2026/01/26/us/minneapolis-shooting-ice/heres-the-latest
 
-**The Pulse: A longshot Super Bowl**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6998377/2026/01/26/seahawks-patriots-super-bowl-the-pulse/
+**Minneapolis Live Updates: Judge to Consider Legality of Trump’s Immigration Crackdown**\
+`A judge will hear arguments on Monday as state and local officials seek to halt the federal deployment of immigration agents in Minnesota. The case has taken on heightened urgency after federal agents killed Alex Jeffrey Pretti.`\
+https://nytimes.com/live/2026/01/26/us/minneapolis-shooting-ice
 
-**Women's college basketball rankings: Is Duke's 11-game winning streak legit ... or a quirk?**\
-`Dawn Staley's lineup change, Princeton's clutch shooter and more as Sabreena Merchant breaks down the top 25.`\
-https://nytimes.com/athletic/6998381/2026/01/26/womens-college-basketball-rankings-duke-winning-streak/
+**Is this season beyond salvaging? Monday Morning Leafs Report**\
+`The Leafs are five points out of the final wild-card spot in the East. There's still a chance, but is it worth pursuing for Brad Treliving?`\
+https://nytimes.com/athletic/6997949/2026/01/26/maple-leafs-treliving-season-decisions-trade-deadline/
 
-**Do Man Utd already have Carrick dilemma? Plus: Wrexham's 99-second turnaround**\
-`Today in TAFC: Carrick gives Manchester United pause for thought, Wrexham win put promotion in picture, and Rodman's 'relief' over deal`\
-https://nytimes.com/athletic/6998662/2026/01/26/manchester-united-carrick-permanent-manager/
+**Red Wings trade targets: Could Faulk, Thomas, Trocheck fit in Detroit?**\
+`The Red Wings need a top-four defenseman, and possibly a top-six forward as well. Who might be available?`\
+https://nytimes.com/athletic/6996224/2026/01/26/red-wings-trade-deadline-targets-thomas-faulk-trocheck/
 
-**Chloé Zhao Is Yearning to Know How to Love**\
-`The “Hamnet” director Chloé Zhao spoke with David Marchese about trying to overcome her deepest fears — and open her heart.`\
-https://nytimes.com/video/podcasts/100000010668318/chloe-zhao-is-yearning-to-know-how-to-love.html
+**Which AD is best at hiring football, basketball coaches? Look to Broadway (the Southern one)**\
+`Sports are thriving at Vanderbilt under the watch of athletic director Candice Lee, a former basketball player for the Commodores.`\
+https://nytimes.com/athletic/6992628/2026/01/26/vanderbilt-football-basketball-candice-lee/
 
-**Elon Musk’s X Faces European Inquiry Over Sexualized A.I. Images**\
-`Regulators said the company’s lack of controls had led to the widespread use of deepfakes created with the chatbot Grok.`\
-https://nytimes.com/2026/01/26/business/european-union-x-grok-ai-images-musk.html
+**Blue Jackets Monday Gathering: Greaves is a no-doubt NHL No. 1, ex-goalies say**\
+`"Columbus has its goalie," one former goalie said of 24-year-old Jet Greaves.`\
+https://nytimes.com/athletic/6996983/2026/01/26/blue-jackets-jet-greaves-goalie-monahan-bowness/
 
-**Xavier Legette's future and heightened attention to OT Panthers mailbag**\
-`Left tackle Ikem Ekwonu's knee injury is a concern but taking a tackle with the 19th pick is unlikely.`\
-https://nytimes.com/athletic/6995952/2026/01/26/panthers-mailbag-xavier-legette-offensive-tackle/
+**Notre Dame TE relives 2025, CFP shock: 'All of us thought we were going to be in'**\
+`Before he becomes the latest Irish tight end to be drafted, Eli Raridon reflects on his college journey and the program's future.`\
+https://nytimes.com/athletic/6997715/2026/01/26/eli-raridon-notre-dame-draft-interview/
 
-**Why William Carrier — 'strong as an ox' — is a key cog in Hurricanes’ relentless style**\
-`“I think anytime Will’s out there, you notice him,” coach Rod Brind'Amour said.`\
-https://nytimes.com/athletic/6997509/2026/01/26/william-carrier-hurricanes-roster/
+**Mets roster projection: How lineup and pitching staff look after big offseason changes**\
+`It looks like on Opening Day, the Mets will have nine players new to the organization.`\
+https://nytimes.com/athletic/6998072/2026/01/26/mets-roster-projection-lineup-pitching-staff/
 
-**What I'm hearing about the Mavericks with the NBA trade deadline 10 days away**\
-`Will the Mavericks make any big moves before the NBA trade deadline approaches?`\
-https://nytimes.com/athletic/6997836/2026/01/26/mavericks-trade-deadline-player-demand-davis-marshall/
+**The Rams thought they were done with Cooper Kupp. They know better now**\
+`Facing his former team, Cooper Kupp came alive when it mattered most, making three of the most pivotal plays in a 31-27 Seattle victory.`\
+https://nytimes.com/athletic/6998767/2026/01/26/cooper-kupp-seahawks-rams-nfc-championship-game/
 
-**NHL weekend rankings: Yo-yo Penguins, soaring Sharks and an ugly weekend in Toronto**\
-`Leafs coach Craig Berube has a baffling and enormous head wound, and that wasn't even the worst thing to look at in Toronto this weekend.`\
-https://nytimes.com/athletic/6998163/2026/01/26/nhl-weekend-rankings-penguins-sharks-leafs/
+**Wild insider: Could we see Fleury unretire? Plus trade rumblings, TV tweaks**\
+`The beloved goalie hung up the skates at the end of last season, but the Wild may be in a unique position to coax him out again.`\
+https://nytimes.com/athletic/6997270/2026/01/26/wild-fleury-unretire-goalie-fanduel-foligno/
 
