@@ -1,3 +1,19 @@
+**Harrison Bader signs with two-year deal with the Giants: Source**\
+`The energetic Bader received a two-year deal after delivering a career-best offensive season and providing his customary above-average defense. `\
+https://nytimes.com/athletic/6851962/2026/01/26/mlb-harrison-bader-free-agent-signing-sf-giants/
+
+**Bournemouth close to triggering Jimenez purchase clause: What does this mean for Madrid?**\
+`Bournemouth are two matches away from exercising the mandatory purchase clause that was included in the deal with Milan.`\
+https://nytimes.com/athletic/6999651/2026/01/26/alex-jimenez-bournemouth-milan-real-madrid/
+
+**Demonstrators Enter Hotel Vestibule, Setting Off a Fracas**\
+`The Minneapolis police said federal agents arrived and used gas on a crowd, refusing further assistance.`\
+https://nytimes.com/2026/01/26/us/demonstrators-hotel-ice-confrontation.html
+
+**Gunmen Open Fire on Soccer Field, Killing at Least 11 People in Mexico**\
+`At least 11 people were killed in Salamanca, Mexico, when gunmen shot at a crowd socializing on a soccer field after a match, according to local officials. The state where the mass shooting occurred has been among the country’s most violent.`\
+https://nytimes.com/video/world/americas/100000010669007/mexico-shooting-cartels-salamanca.html
+
 **Power Outages Could Rise as Freezing Temperatures Persist**\
 `Electrical grids appeared to have handled the storm over the weekend relatively well, but energy experts said the risk of more outages remained.`\
 https://nytimes.com/2026/01/26/business/energy-environment/storm-electric-grid-power-outages.html
