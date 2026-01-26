@@ -1,3 +1,7 @@
+**For a road supervisor in rural Ohio, the storm means long hours of plowing, salting and roadside rescues.**\
+`By Kevin Williams`\
+https://nytimes.com/live/2026/01/26/weather/weather-snow-updates-ice-cold/for-a-road-supervisor-in-rural-ohio-the-storm-means-long-hours-of-plowing-salting-and-roadside-rescues
+
 **Lions add Mike Kafka to offensive coaching staff: Sources**\
 `Kafka was interviewed for Detroit's offensive coordinator position that went to Drew Petzing.`\
 https://nytimes.com/athletic/7000362/2026/01/26/lions-hire-mike-kafka-offense-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/26/world/europe/nato-chief-europe-greenland-trump-us
 **Court Affirms Ruling That Alina Habba Served Unlawfully as U.S. Attorney**\
 `The Justice Department lost a bid to challenge a decision that had found Ms. Habba was serving unlawfully as New Jersey’s top federal prosecutor.`\
 https://nytimes.com/2026/01/26/nyregion/alina-habba-appeal.html
-
-**Democrats Embrace a Shutdown Fight They Wanted to Avoid**\
-`After a second fatal shooting of a U.S. citizen in Minneapolis, Democrats say public opinion is on their side and they are willing to risk a backlash to counter what they see as police-state tactics.`\
-https://nytimes.com/2026/01/26/us/politics/democrats-shutdown-ice-shooting.html
 
