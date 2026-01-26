@@ -1,3 +1,7 @@
+**Elon Musk’s X Faces European Inquiry Over Sexualized A.I. Images**\
+`Regulators said the company’s lack of controls had led to the widespread use of deepfakes created with the chatbot Grok.`\
+https://nytimes.com/2026/01/26/business/european-union-x-grok-ai-images-musk.html
+
 **Xavier Legette's future and heightened attention to OT Panthers mailbag**\
 `Left tackle Ikem Ekwonu's knee injury is a concern but taking a tackle with the 19th pick is unlikely.`\
 https://nytimes.com/athletic/6995952/2026/01/26/panthers-mailbag-xavier-legette-offensive-tackle/
