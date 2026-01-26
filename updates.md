@@ -1,3 +1,7 @@
+**Court Affirms Ruling That Alina Habba Served Unlawfully as U.S. Attorney**\
+`The Justice Department lost a bid to challenge a decision that had found Ms. Habba was serving unlawfully as New Jersey’s top federal prosecutor.`\
+https://nytimes.com/2026/01/26/nyregion/alina-habba-appeal.html
+
 **Lopez rejoins Celta on loan, six months after £19.5m Wolves transfer**\
 `The 21-year-old has started just three Premier League games and made seven substitute appearances in half a season at Molineux.`\
 https://nytimes.com/athletic/7000395/2026/01/26/wolves-transfers-fer-lopez-celta/
