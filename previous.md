@@ -1,3 +1,15 @@
+**How to watch Islanders vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6999565/2026/01/26/islanders-vs-flyers-stream-how-to-watch-jan-26/
+
+**How to watch Bruins vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6999561/2026/01/26/bruins-vs-rangers-stream-how-to-watch-jan-26/
+
+**How to watch Kings vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6999559/2026/01/26/kings-vs-blue-jackets-stream-how-to-watch-jan-26/
+
 **NBA Power Rankings: Let's hand out grades for the season's second quarter**\
 `Every team has played at least 41 games, and spoiler alert: These grades are probably going to be harsher than the first batch.`\
 https://nytimes.com/athletic/6999162/2026/01/26/nba-power-rankings-celtics-rockets-pistons/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6993989/2026/01/26/eilish-mccolgan-interview-racing
 **Five No-Chop Dinners, and Brownies**\
 `Including one-pan creamed spinach with eggs, sheet-pan quesadillas and Sam Sifton’s five-star miso chicken.`\
 https://nytimes.com/2026/01/26/dining/five-no-chop-dinners-and-brownies.html
-
-**I Let My Kid Watch Bad TV. In Fact, I Watch It, Too.**\
-`Yes, I feel guilty when I plop my kid in front of the TV. That’s why I plop myself down beside him.`\
-https://nytimes.com/2026/01/26/opinion/parenting-too-much-tv.html
-
-**3 Handbags Under $500 That Wowed Us**\
-`Style writer Nicola Fumo set out to find great-looking, functional, high-quality everyday bags that will hold up for years — all for $500 or less. With the help of a team of testers, she landed on seven options that will last for seasons to come.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010668695/3-handbags-under-500-that-wowed-us.html
-
-**Bundesliga announces record combined revenues of €6.33billion**\
-`It represented a 7.9 per cent increase on the €5.87bn made during the previous season, which itself was a record.`\
-https://nytimes.com/athletic/6998893/2026/01/26/bundesliga-record-revenues-six-billion/
 
