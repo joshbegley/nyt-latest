@@ -1,3 +1,15 @@
+**Ferry Sinks in Southern Philippines, Leaving Several Dead**\
+`A ship carrying more than 350 people sank early Monday near the island of Baluk-baluk in the southern province of Basilan, leaving at least 18 dead, according to the Philippine Coast Guard.`\
+https://nytimes.com/video/world/asia/100000010668313/ferry-philippines-sinking.html
+
+**A Place to See Paris as Never Before, Again**\
+`Hotel Costes defined a generation. With his first luxury hotel, a second-generation Costes looks to revolutionize how guests experience Paris. If you can get in, that is.`\
+https://nytimes.com/2026/01/26/style/laventure-hotel-costes-paris.html
+
+**Philip Rivers removes himself from Bills coaching consideration: Sources**\
+`Rivers, 44, has no NFL coaching experience, but addressed the idea after the Colts' final regular-season game in early January.`\
+https://nytimes.com/athletic/6999091/2026/01/26/philip-rivers-bills-coaching-candidacy/
+
 **Remains of Last Captive in Gaza Are Retrieved, Closing a Chapter for Israel**\
 `The recovery of Master Sgt. Ran Gvili’s body paves the way for the next stage of the Gaza cease-fire plan, though the path forward is unclear.`\
 https://nytimes.com/2026/01/26/world/middleeast/gaza-hostage-returned-israel.html
