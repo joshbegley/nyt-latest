@@ -1,3 +1,7 @@
+**Elon Musk’s X Faces European Inquiry Over Sexualized A.I. Images**\
+`Regulators said the company’s lack of controls had led to the widespread use of deepfakes created with the chatbot Grok.`\
+https://nytimes.com/2026/01/26/business/european-union-x-grok-ai-images-musk.html
+
 **Xavier Legette's future and heightened attention to OT Panthers mailbag**\
 `Left tackle Ikem Ekwonu's knee injury is a concern but taking a tackle with the 19th pick is unlikely.`\
 https://nytimes.com/athletic/6995952/2026/01/26/panthers-mailbag-xavier-legette-offensive-tackle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6998210/2026/01/26/jarrett-stidham-broncos-patriots
 **Brady Anderson just landed his first formal coaching job at 62. He's been teaching players for years**\
 `As Anderson prepares for his role as Angels hitting coach, former Orioles players and coaches praise his player development skills. `\
 https://nytimes.com/athletic/6997896/2026/01/26/brady-anderson-angels-hitting-coach-orioles/
-
-**Who is the next Blake Coleman? This year’s utility players to watch**\
-`They may not be household names, but these utility players can help make or break a playoff run. Who could be on the market this season? `\
-https://nytimes.com/athletic/6998106/2026/01/26/nhl-trade-deadline-utility-players-blake-coleman/
 
