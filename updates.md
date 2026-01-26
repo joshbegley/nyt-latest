@@ -1,3 +1,17 @@
+**Defending Australian Open champion Madison Keys falls to Jessica Pegula in fourth round**\
+`Keys' reign ended in a straight-sets defeat to her compatriot and close friend.`\
+https://nytimes.com/athletic/6998147/2026/01/25/tennis-australian-open-madison-keys-jessica-pegula-result-analysis/
+
+**Patriots will celebrate AFC title with extra night in Denver due to winter weather**\
+`Patriots coach Mike Vrabel told the team they'll have no curfew but need to be on the bus that leaves for the airport at 8 a.m. Monday.`\
+https://nytimes.com/athletic/6998133/2026/01/25/patriots-stay-overnight-denver-weather/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>I thought college football would slow down post-CFP, but instead we got Duke suing Darian Mensah and Dabo putting Pete Golding on blast.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6998160/2026/01/25/submit-a-question-for-stewart-mandels-college-football-mailbag-332/
+
 **Trump Blames Democrats for ‘Tragic’ Deaths as Agents Clash With Protesters**\
 `Top administration officials had earlier, and without evidence, accused each of the shooting victims in Minneapolis of “domestic terrorism.”`\
 https://nytimes.com/2026/01/25/us/politics/trump-blames-democrats-minneapolis-killings.html
