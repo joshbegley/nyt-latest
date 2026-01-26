@@ -1,3 +1,7 @@
+**Power Outages Could Rise as Freezing Temperatures Persist**\
+`Electrical grids appeared to have handled the storm over the weekend relatively well, but energy experts said the risk of more outages remained.`\
+https://nytimes.com/2026/01/26/business/energy-environment/storm-electric-grid-power-outages.html
+
 **Public Media Holds Its Apocalypse at Bay, for Now**\
 `Though Congress cut $500 million from NPR and PBS stations, vanishingly few have closed their doors. Angst about their long-term future remains.`\
 https://nytimes.com/2026/01/26/business/media/npr-pbs-stations-funding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/26/world/middleeast/us-warships-gulf-waters-iran-ret
 **Liverpool defender Wellity Lucky out for at least two months with hamstring injury**\
 `Liverpool&#8217;s defensive resources have been further depleted after youngster Wellity Lucky was ruled out for at least two months with a hamstring injury.`\
 https://nytimes.com/athletic/6999673/2026/01/26/wellity-lucky-liverpool-hamstring-injury/
-
-**Charity watchdog opens inquiry into FIA Foundation**\
-`A spokesperson for the FIA said: "The FIA Foundation is independent from the FIA and a UK-registered charity."`\
-https://nytimes.com/athletic/6999668/2026/01/26/fia-foundation-charity-investigation/
 

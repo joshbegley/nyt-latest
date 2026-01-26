@@ -1,3 +1,11 @@
+**Public Media Holds Its Apocalypse at Bay, for Now**\
+`Though Congress cut $500 million from NPR and PBS stations, vanishingly few have closed their doors. Angst about their long-term future remains.`\
+https://nytimes.com/2026/01/26/business/media/npr-pbs-stations-funding.html
+
+**Severe weather forces postponement of Kings-Blue Jackets game**\
+`A heavy snowstorm in Ohio led the league to move the game to March.`\
+https://nytimes.com/athletic/6999754/2026/01/26/nhl-game-postponed-weather-kings-blue-jackets/
+
 **Severe weather forces postponement of Kings-Blue Jackets NHL game**\
 `A heavy snowstorm in Ohio led the league to move the game to March.`\
 https://nytimes.com/athletic/6999754/2026/01/26/nhl-game-postponed-weather-kings-blue-jackets/
