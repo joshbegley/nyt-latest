@@ -1,3 +1,15 @@
+**Bundesliga announces record combined revenues of €6.33billion**\
+`It represented a 7.9 per cent increase on the €5.87bn made during the previous season, which itself was a record.`\
+https://nytimes.com/athletic/6998893/2026/01/26/bundesliga-record-revenues-six-billion/
+
+**Lowetide: Is Oilers' Evan Bouchard finding another level to his game?**\
+`Bouchard's high-wire act is highly successful and all that keeps him from his personal outer marker is consistency.`\
+https://nytimes.com/athletic/6997287/2026/01/26/oilers-evan-bouchard-stats-capitals/
+
+**USMNT Tracker: Matches to forget for Pulisic, Scally, Trusty; McKennie's fine form continues**\
+`This week in the USMNT tracker: A Scally own goal, a Trusty red card, but lavish praise for Juventus' McKennie`\
+https://nytimes.com/athletic/6999133/2026/01/26/usmnt-tracker-scally-mckennie-trusty/
+
 **The Windup: Keith Law's top 2026 prospects**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6999403/2026/01/26/keith-laws-top-2026-prospects-the-windup/
