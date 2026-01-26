@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Max Kim and Yan Zhuang`\
+https://nytimes.com/live/2026/01/26/weather/weather-snow-updates-ice-cold/heres-the-latest
+
+**Live Updates: Winter Storm Pummels U.S. With Ice, Snow and Frigid Temperatures**\
+``\
+https://nytimes.com/live/2026/01/26/weather/weather-snow-updates-ice-cold
+
 **2026 Top 100 MLB prospects from Keith Law: Pirates' Konnor Griffin tops the list**\
 `Konnor Griffin, the most exciting prospect in the minors since Mike Trout, leads a talented top 100 group heavy on position players.`\
 https://nytimes.com/athletic/6985939/2026/01/26/top-mlb-prospects-2026-keith-law-konnor-griffin/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6998489/2026/01/26/rams-season-loss-nfc-championshi
 **Secret to Isaiah Stewart's shot-blocking prowess? 'You can't be scared to get punched'**\
 `"I truly believe I am the best defender in the league," says the Pistons' Stewart. `\
 https://nytimes.com/athletic/6975321/2026/01/26/pistons-isaiah-stewart-shot-blocking/
-
-**Film Club: ‘We Came Here Legally. ICE Locked Us Up Anyway.’**\
-`What do the stories from inside the ICE detention system tell us about the Trump administration’s immigration crackdowns — and America?`\
-https://nytimes.com/2026/01/26/learning/film-club-we-came-here-legally-ice-locked-us-up-anyway.html
-
-**The New York Times International Edition in Print for Tuesday, Jan. 27, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/01/26/todays-new-york-times-international-edition
 
