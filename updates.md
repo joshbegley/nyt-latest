@@ -1,3 +1,11 @@
+**'There's always regrets:' Broncos left to grapple with the hurt of a season's abrupt end**\
+`The Broncos missed field goals, dropped passes, and saw the game's most pivotal coaching decision fall short. Now, a long offseason awaits.`\
+https://nytimes.com/athletic/6998165/2026/01/25/broncos-grapple-with-what-ifs-after-super-bowl-chases-abrupt-end-in-afc-title-game/
+
+**Updated 2026 NFL Draft order: Top 30 set; Rams hold picks 13 and 29 in Round 1**\
+`How does Round 1 shape up following the conclusion of Sunday's conference championship games?`\
+https://nytimes.com/athletic/6998080/2026/01/25/updated-2026-nfl-draft-order-top-30-rams/
+
 **At Least 15 Dead After Ferry Carrying 350 Sinks in the Philippines**\
 `It was not immediately clear how many people were missing after the ferry sank early Monday morning in Basilan Province.`\
 https://nytimes.com/2026/01/25/world/asia/philippines-ferry-sinks-basilan.html

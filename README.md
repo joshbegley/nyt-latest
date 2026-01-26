@@ -1,3 +1,7 @@
+**Super Bowl 60 odds: Seahawks open as favorites against Patriots**\
+`The Seahawks are favored against the Patriots for Super Bowl 60. Both teams had long odds to win it all before the season started.`\
+https://nytimes.com/athletic/6998231/2026/01/25/super-bowl-60-odds-seahawks-patriots/
+
 **'There's always regrets:' Broncos left to grapple with the hurt of a season's abrupt end**\
 `The Broncos missed field goals, dropped passes, and saw the game's most pivotal coaching decision fall short. Now, a long offseason awaits.`\
 https://nytimes.com/athletic/6998165/2026/01/25/broncos-grapple-with-what-ifs-after-super-bowl-chases-abrupt-end-in-afc-title-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/25/nyregion/mamdani-snowstorm-performance-new-york.h
 **Defending Australian Open champion Madison Keys falls to Jessica Pegula in fourth round**\
 `Keys' reign ended in a straight-sets defeat to her compatriot and close friend.`\
 https://nytimes.com/athletic/6998147/2026/01/25/tennis-australian-open-madison-keys-jessica-pegula-result-analysis/
-
-**Patriots will celebrate AFC title with extra night in Denver due to winter weather**\
-`Patriots coach Mike Vrabel told the team they'll have no curfew but need to be on the bus that leaves for the airport at 8 a.m. Monday.`\
-https://nytimes.com/athletic/6998133/2026/01/25/patriots-stay-overnight-denver-weather/
 
