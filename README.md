@@ -1,3 +1,15 @@
+**2026 Top 100 MLB prospects from Keith Law: Pirates' Konnor Griffin tops the list**\
+`Konnor Griffin, the most exciting prospect in the minors since Mike Trout, leads a talented top 100 group heavy on position players.`\
+https://nytimes.com/athletic/6985939/2026/01/26/top-mlb-prospects-2026-keith-law-konnor-griffin/
+
+**Who should Ravens coach Jesse Minter hire as his offensive, defensive coordinators?**\
+`Minter is now entrenched as Baltimore's next head coach. His first priority will be filling out his staff.`\
+https://nytimes.com/athletic/6997404/2026/01/26/ravens-offensive-defensive-coordinator-oc-dc-jesse-minter/
+
+**Jalen Johnson has finally arrived. And for the Hawks, 'he's that guy now'**\
+`“Not everything’s gonna be linear all the time,” Johnson says of his path to Hawks centerpiece. First, he had to learn to set aside his ego.`\
+https://nytimes.com/athletic/6995660/2026/01/26/jalen-johnson-hawks-nba-all-star-trae-young-trade/
+
 **Memory and Speech Are Their Everyday Struggles. Then They Get to Sing.**\
 `At the Singing Circle in Amsterdam, people with cognitive decline join together to lift their spirits and improve their lives.`\
 https://nytimes.com/2026/01/26/arts/music/amsterdam-concertgebouw-singing-circle.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/26/learning/film-club-we-came-here-legally-ice-locke
 **The New York Times International Edition in Print for Tuesday, Jan. 27, 2026**\
 ``\
 https://nytimes.com/issue/todaysinyt/2026/01/26/todays-new-york-times-international-edition
-
-**How Sam Darnold rewarded those who never doubted: 'We'd do anything for him'**\
-`Darnold carried the Seahawks to the Super Bowl, squashing narratives and silencing doubters — but that's not what mattered to him most.`\
-https://nytimes.com/athletic/6998603/2026/01/26/sam-darnold-seahawks-super-bowl-rams/
-
-**The unlikeliest Super Bowl matchup ever, and the far-reaching implications: Sando's Pick Six**\
-`The Seahawks and Patriots each entered the season with Super Bowl odds of 60 to 1 or longer. The long shots will now play for the Lombardi.`\
-https://nytimes.com/athletic/6996097/2026/01/26/seahawks-patriots-super-bowl-rams-broncos-pick-six/
-
-**Tony Romo and Jim Nantz were unremarkable. That's a win for CBS these days**\
-`No game-ending gaffes for the broadcast duo this year, but there was one notable first-half snafu.`\
-https://nytimes.com/athletic/6998128/2026/01/26/tony-romo-jim-nantz-cbs-nfl-broncos-patriots/
 
