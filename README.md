@@ -1,40 +1,40 @@
-**Seahawks Outlast Rams in Thrilling N.F.C. Championship**\
-`Sam Darnold, a quarterback for the Seattle Seahawks, threw three touchdown passes to help push Seattle past the Los Angeles Rams and secure a spot in the Super Bowl.`\
-https://nytimes.com/video/sports/football/100000010668159/seahawks-outlast-rams-in-thrilling-nfc-championship.html
+**Local Prosecution Is the Answer to Federal Lawlessness**\
+`State and local prosecutions could produce deterrent effects that are so desperately needed now.`\
+https://nytimes.com/2026/01/26/opinion/minneapolis-shooting-ice-accountability.html
 
-**Ice Storm Leaves Thousands Without Power in a Mississippi County**\
-`More than 20,000 households had no power late Sunday in Lafayette County, a day after freezing rain hit the Oxford area.`\
-https://nytimes.com/2026/01/26/us/ice-storm-mississippi-oxford.html
+**A Crisis of Confidence for ICE and Border Patrol as Clashes Escalate**\
+`Current and former officials describe growing frustration and disillusionment with the Trump administration’s approach, even as they support the goal of immigration enforcement.`\
+https://nytimes.com/2026/01/26/us/politics/ice-border-patrol-trust.html
 
-**Pedro Lives in a Hospital. His Nurses Are on Strike. He Misses Them.**\
-`Pedro, a 2-year-old, needs a new heart and has spent months in a New York hospital. With his nurses on the picket line, replacement workers care for him.`\
-https://nytimes.com/2026/01/26/nyregion/nyc-nurses-strike-patients-children.html
+**‘We Are Creating the Conditions for a Catastrophe.’ Three Columnists on Minneapolis.**\
+`On immigration raids, the shooting death of Alex Pretti and where we go from here.`\
+https://nytimes.com/2026/01/26/opinion/minneapolis-alex-pretti-ice-shooting.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/26/crosswords/spelling-bee-forum.html
+**Rahm Emanuel Will Speak to You Now**\
+`A Democratic insider with an outside chance at the White House`\
+https://nytimes.com/2026/01/26/opinion/rahm-emanuel-2028.html
 
-**In Xi’s China, Even the Mightiest General Can Fall**\
-`A combat veteran, Zhang Youxia was once seen as the most trusted man in Xi Jinping’s military. Now he is the most public example of disloyalty to Mr. Xi.`\
-https://nytimes.com/2026/01/26/world/asia/china-xi-zhang-youxia-military.html
+**Minnesota Claims the ICE Surge Is Illegal. A Judge Will Hear Arguments on Monday.**\
+`State and local officials say the federal deployment of immigration agents violates the 10th Amendment. The surge, which the Trump administration has defended, has led to three shootings and tense protests.`\
+https://nytimes.com/2026/01/26/us/minnesota-lawsuit-ice-surge-hearing.html
 
-**Winter Storm Causes Travel Chaos, Knocks Out Power**\
-`A massive winter storm over the weekend shattered temperature records, downed power lines and led to travel chaos across the country.`\
-https://nytimes.com/video/video/100000010668092/winter-storm-causes-travel-chaos-knocks-out-power.html
+**Can I Wear a Sweatshirt to Work?**\
+`Trendy and expensive hoodies are everywhere, but our critic offers some words of warning before you wear one to the office.`\
+https://nytimes.com/2026/01/26/fashion/sweatshirt-hoodie-work-office.html
 
-**Minneapolis Nurses Mourn One of Their Own, Alex Pretti**\
-`Nurses in Minneapolis joined a vigil on Sunday to mourn one of their own, Alex Pretti. A 2024 video shows him honoring a patient of his and saying, “freedom is not free. We have to work at it.”`\
-https://nytimes.com/video/us/100000010668000/alex-pretti-minneapolis-shooting.html
+**George Saunders Serves a Heavy Helping of Virtue in a New Novel**\
+`In “Vigil,” an oil tycoon on his deathbed receives a visit from an angel.`\
+https://nytimes.com/2026/01/26/books/review/george-saunders-vigil.html
 
-**Gunmen Kill 11 After Soccer Match in Mexico**\
-`The mass shooting occurred in an area fought over by drug cartels, just as the Mexican government has sought to show Washington that it is combating criminal groups.`\
-https://nytimes.com/2026/01/26/world/americas/mexico-shooting-salamanca-cartels.html
+**Silicon Valley Wants to Build A.I. That Can Improve A.I. on Its Own**\
+`Ricursive Intelligence, founded by two former Google researchers and valued at $4 billion, is among several efforts to automate the creation of artificial intelligence.`\
+https://nytimes.com/2026/01/26/technology/recursive-ai-ricursive.html
 
-**Word of the Day: precursor**\
-`This word has appeared in 310 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/01/26/learning/word-of-the-day-precursor.html
+**Do We All Need a Little More Boredom in Our Lives?**\
+`An online trend encourages people to embrace doing nothing. Does that sound worthwhile — or, well, plain old boring?`\
+https://nytimes.com/2026/01/26/learning/do-we-all-need-a-little-more-boredom-in-our-lives.html
 
-**Sean McVay snaps when asked whether Matthew Stafford is returning next season**\
-`The Rams coach wasn't in the best of moods after his team lost a thriller to the Seahawks in the NFC Championship Game.`\
-https://nytimes.com/athletic/6998564/2026/01/26/sean-mcvay-snaps-matthew-stafford-return/
+**Voters See a Middle-Class Lifestyle as Drifting Out of Reach, Poll Finds**\
+`Concerns about the affordability of education, housing, health care, having a family and retirement are driving economic anxieties, a New York Times/Siena poll found.`\
+https://nytimes.com/2026/01/26/us/politics/affordability-poll.html
 
