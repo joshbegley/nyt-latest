@@ -1,3 +1,23 @@
+**As Europe’s Reliance on U.S. Natural Gas Grows, So Does Trump’s Leverage**\
+`Tension over Greenland has prompted worries that the Trump administration could turn the U.S. oil and gas industry into a way to pressure Europe.`\
+https://nytimes.com/2026/01/26/business/europe-natural-gas-united-states-russia.html
+
+**Quote of the Day: Maniacs Are His Specialty**\
+`Quotation of the Day for Monday, January 26, 2026.`\
+https://nytimes.com/2026/01/26/pageoneplus/quote-of-the-day-maniacs-are-his-specialty.html
+
+**Connections: Sports Edition Coach: Hints for Jan. 26, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6996918/2026/01/26/connections-sports-edition-hints-for-jan-26-2026/
+
+**The Taliban Say They’re Ready to Release U.S. Prisoners. But Which Ones?**\
+`Top Afghan officials say they want two American detainees released “as soon as possible,” but the Trump administration says a third one should be included.`\
+https://nytimes.com/2026/01/26/world/asia/taliban-afghanistan-prisoners.html
+
+**No Corrections: Jan. 26, 2026**\
+`No corrections appeared in print on Monday, Jan. 26, 2026.`\
+https://nytimes.com/2026/01/26/pageoneplus/no-corrections-jan-26-2026.html
+
 **Storm Dumps a Foot of Snow in About a Third of U.S. States**\
 `At least 17 states received a foot or more this weekend, the National Weather Service said. Bonito Lake, N.M., received 31 inches, the most in the country.`\
 https://nytimes.com/2026/01/25/us/snow-totals.html
