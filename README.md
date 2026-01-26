@@ -1,3 +1,7 @@
+**The ‘R-Word’ Returns, Dismaying Those Who Fought to Oust It**\
+`The term, long considered a slur for those with intellectual disabilities, is seeing a resurgence on social media and across the political right.`\
+https://nytimes.com/2026/01/26/us/r-word-slur-disability.html
+
 **Our Photographer Describes the Scene After the Pretti Shooting**\
 `David Guttenfelder, a Times photographer based in Minneapolis, describes what he saw at the scene where Alex Jeffrey Pretti had been killed by federal agents.`\
 https://nytimes.com/video/us/100000010667387/our-photographer-describes-pretti-shooting-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6997417/2026/01/26/giannis-antetokounmpo-bucks-nba-
 **Ramos-led group enters exclusivity talks over Sevilla takeover**\
 `The proposed takeover remains subject to due diligence to analyse the financial health of the club.`\
 https://nytimes.com/athletic/6999103/2026/01/26/sergio-ramos-sevilla-takeover-bid-exclusivity/
-
-**Premier League data notebook: Villa's favourable fixtures, centre-back goals, rise of the wonder strike**\
-`Mark Carey and Conor O'Neill crunch the numbers after another unpredictable weekend in the Premier League`\
-https://nytimes.com/athletic/6998891/2026/01/26/premier-league-data-arsenal-villa-man-utd-goals/
 
