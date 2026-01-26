@@ -1,3 +1,7 @@
+**Forest in £35m offer for Palace striker Mateta**\
+`Personal terms between Forest and the 28-year-old will not be an issue.`\
+https://nytimes.com/athletic/6999195/2026/01/26/jean-philippe-mateta-forest-palace-transfer/
+
 **Are Vintage Coach Bags Better Than New?**\
 `Are new Coach bags as good as the vintage ones? We investigated.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010668804/are-vintage-coach-bags-better-than-new.html

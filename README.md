@@ -1,3 +1,15 @@
+**Nigella Lawson Joins ‘The Great British Baking Show’ as a Judge**\
+`Ms. Lawson, 66, replaces Prue Leith, who announced her departure this month.`\
+https://nytimes.com/2026/01/26/us/nigella-lawson-great-british-bake-off.html
+
+**Why Celine Works**\
+`Their newish creative director Michael Rider is at the head of the pack.`\
+https://nytimes.com/2026/01/26/style/celine-paris-fashion.html
+
+**Chargers finalize deal with Mike McDaniel. What to expect from his offense?**\
+`McDaniel's scheme plus Herbert's combination of arm strength and athleticism creates limitless potential for the Chargers.`\
+https://nytimes.com/athletic/6992884/2026/01/26/mike-mcdaniel-hired-chargers-scheme-film-justin-herbert/
+
 **Forest in £35m offer for Palace striker Mateta**\
 `Personal terms between Forest and the 28-year-old will not be an issue.`\
 https://nytimes.com/athletic/6999195/2026/01/26/jean-philippe-mateta-forest-palace-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6999561/2026/01/26/bruins-vs-rangers-stream-how-to-
 **How to watch Kings vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6999559/2026/01/26/kings-vs-blue-jackets-stream-how-to-watch-jan-26/
-
-**NBA Power Rankings: Let's hand out grades for the season's second quarter**\
-`Every team has played at least 41 games, and spoiler alert: These grades are probably going to be harsher than the first batch.`\
-https://nytimes.com/athletic/6999162/2026/01/26/nba-power-rankings-celtics-rockets-pistons/
-
-**How to watch Louisville vs. Duke men's basketball: Time, TV, streaming**\
-`Find out how to watch the Louisville Cardinals play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6999524/2026/01/26/louisville-vs-duke-stream-how-to-watch-jan-26/
-
-**How to watch Florida vs. LSU women's basketball: Time, TV, streaming**\
-`Find out how to watch the Florida Gators play the LSU Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6999521/2026/01/26/florida-vs-lsu-stream-how-to-watch-jan-26/
 

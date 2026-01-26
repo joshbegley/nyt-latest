@@ -1,3 +1,7 @@
+**Forest in £35m offer for Palace striker Mateta**\
+`Personal terms between Forest and the 28-year-old will not be an issue.`\
+https://nytimes.com/athletic/6999195/2026/01/26/jean-philippe-mateta-forest-palace-transfer/
+
 **Are Vintage Coach Bags Better Than New?**\
 `Are new Coach bags as good as the vintage ones? We investigated.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010668804/are-vintage-coach-bags-better-than-new.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6999524/2026/01/26/louisville-vs-duke-stream-how-to
 **How to watch Florida vs. LSU women's basketball: Time, TV, streaming**\
 `Find out how to watch the Florida Gators play the LSU Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6999521/2026/01/26/florida-vs-lsu-stream-how-to-watch-jan-26/
-
-**Ask a Journalist: Reporting on TV Shows and Cultural Trends**\
-`Shivani Gonzalez, a TV reporter, joins us in February to chat with teenagers about finding shows worth watching. Post your comments and questions for her by Feb. 15.`\
-https://nytimes.com/2026/01/26/learning/lesson-plans/ask-a-journalist-reporting-on-tv-shows-and-cultural-trends.html
 
