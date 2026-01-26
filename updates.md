@@ -1,3 +1,11 @@
+**Minneapolis Nurses Mourn One of Their Own, Alex Pretti**\
+`Nurses in Minneapolis joined a vigil on Sunday to mourn one of their own, Alex Pretti. A 2024 video shows him honoring a patient of his and saying, “freedom is not free. We have to work at it.”`\
+https://nytimes.com/video/us/100000010668000/alex-pretti-minneapolis-shooting.html
+
+**Gunmen Kill 11 After Soccer Match in Mexico**\
+`The mass shooting occurred in an area fought over by drug cartels, just as the Mexican government has sought to show Washington that it is combating criminal groups.`\
+https://nytimes.com/2026/01/26/world/americas/mexico-shooting-salamanca-cartels.html
+
 **Word of the Day: precursor**\
 `This word has appeared in 310 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/26/learning/word-of-the-day-precursor.html
