@@ -1,3 +1,11 @@
+**How to watch Grizzlies vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7000271/2026/01/26/grizzlies-vs-rockets-stream-how-to-watch-jan-26/
+
+**How to watch Lakers vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7000269/2026/01/26/lakers-vs-bulls-stream-how-to-watch-jan-26/
+
 **How to watch Warriors vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7000256/2026/01/26/warriors-vs-timberwolves-stream-how-to-watch-jan-26/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/26/us/democrats-ice-funding-vote-dhs.html
 **Washington Post Reverses Decision on Olympics Coverage**\
 `The newspaper will send a small team of reporters to cover the Olympics after it informed sports journalists on Friday that the paper would not send a group.`\
 https://nytimes.com/2026/01/26/business/media/washington-post-reverses-decision-on-olympics-coverage.html
-
-**Answer 4 Questions. Find Your Dream Mexico Vacation.**\
-`With so many great options, where should you go? We can help.`\
-https://nytimes.com/interactive/2026/01/26/travel/mexico-vacation-quiz-game.html
-
-**Super Bowl MVP odds: The NFL's surprise main character is favored to win the award**\
-`The Seahawks dominate the Super Bowl MVP market, with their QB leading the pack.`\
-https://nytimes.com/athletic/6999333/2026/01/26/super-bowl-mvp-betting-odds-darnold-maye-smith-njigba/
 

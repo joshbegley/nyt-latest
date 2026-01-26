@@ -1,3 +1,15 @@
+**Senators demand answers on Trump's takeover of D.C. golf courses**\
+`Four Democratic senators from Maryland and Virginia have come out in opposition of the effort to revoke the lease on three courses.`\
+https://nytimes.com/athletic/7000058/2026/01/26/lawmakers-oppose-trump-takeover-dc-municipal-golf-courses/
+
+**olympics-panel**\
+``\
+https://nytimes.com/panel/live/olympics-panel
+
+**On Foreign Policy, Trump’s Fans Give Him the Benefit of the Doubt**\
+`At least so far, President Trump has managed to bring along even those conservative supporters who are skeptical of foreign interventions.`\
+https://nytimes.com/2026/01/26/us/politics/trump-supporters-foreign-policy-greenland-iran.html
+
 **How to watch Grizzlies vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7000271/2026/01/26/grizzlies-vs-rockets-stream-how-to-watch-jan-26/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7000205/2026/01/26/arizona-vs-byu-stream-how-to-wat
 **A New Way to Flirt: Dazzle Potential Mates With Patterns Invisible to Humans**\
 `Cuttlefish attract prospective sexual partners by creating a pattern on their skin, based on the orientation of light waves.`\
 https://nytimes.com/2026/01/26/science/cuttlefish-camouflage-sexual-display.html
-
-**430,000-Year-Old Wooden Tools Are the Oldest Ever Found**\
-`The finding, along with the discovery of a 500,000-year-old hammer made of bone, indicates that our human ancestors were making tools even earlier than archaeologists thought.`\
-https://nytimes.com/2026/01/26/science/archaeology-neanderthals-tools.html
-
-**Democrat Who Voted for D.H.S. Funding Suggests He Now Regrets It**\
-`A small group of Democrats who supported a spending bill for the Department of Homeland Security were on the defensive after the fatal shooting by a federal agent in Minneapolis.`\
-https://nytimes.com/2026/01/26/us/democrats-ice-funding-vote-dhs.html
-
-**Washington Post Reverses Decision on Olympics Coverage**\
-`The newspaper will send a small team of reporters to cover the Olympics after it informed sports journalists on Friday that the paper would not send a group.`\
-https://nytimes.com/2026/01/26/business/media/washington-post-reverses-decision-on-olympics-coverage.html
 

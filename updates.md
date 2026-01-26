@@ -1,3 +1,11 @@
+**How to watch Grizzlies vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7000271/2026/01/26/grizzlies-vs-rockets-stream-how-to-watch-jan-26/
+
+**How to watch Lakers vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7000269/2026/01/26/lakers-vs-bulls-stream-how-to-watch-jan-26/
+
 **How to watch Warriors vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7000256/2026/01/26/warriors-vs-timberwolves-stream-how-to-watch-jan-26/
