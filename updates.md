@@ -1,3 +1,7 @@
+**FPL GW23 takeaways: No Palmer is no problem for Chelsea, Foden’s time up, and Man Utd march on**\
+`From a cracker at the Emirates to Pep rotation rearing its head (again), here are the main FPL talking points from the weekend's action`\
+https://nytimes.com/athletic/6997615/2026/01/26/fantasy-premier-league-tips-fpl-manchester-united/
+
 **Will another NFL coordinator hire work for Ohio State? 7 thoughts on Arthur Smith**\
 `Ryan Day was searching for an experienced play caller to replace Brian Hartline. So what will Smith bring to the Buckeyes?`\
 https://nytimes.com/athletic/6998836/2026/01/26/arthur-smith-ohio-state-offensive-coordinator/
