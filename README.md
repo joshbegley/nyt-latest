@@ -1,3 +1,7 @@
+**Patriots Hold Off Broncos in Frigid Conditions to Advance to Super Bowl**\
+`Quarterback Drake Maye’s 65 yards and a touchdown on the ground made the difference for New England against Denver, landing the Patriots the win and a ticket to the Super Bowl.`\
+https://nytimes.com/video/the-athletic/100000010667839/patriots-hold-off-broncos-in-frigid-conditions-to-advance-to-super-bowl.html
+
 **Nylander apologizes after giving middle finger to camera during Leafs game**\
 `Nylander made the gesture while in the press box with other injured and scratched players in a 4-1 loss to the Avalanche.`\
 https://nytimes.com/athletic/6998059/2026/01/25/william-nylander-middle-finger-maple-leafs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6997720/2026/01/25/alan-page-ice-protests-minneapol
 **On Being Inconvenienced**\
 `After an alleged arson attack on a synagogue, one church in Jackson, Miss. opened its doors.`\
 https://nytimes.com/2026/01/25/briefing/on-being-inconvenienced.html
-
-**President Trump says he won't attend Super Bowl, criticizes Bad Bunny and Green Day**\
-`Trump, who attended last year's game in New Orleans, said next month's contest in California was "just too far away." `\
-https://nytimes.com/athletic/6997918/2026/01/25/trump-skipping-super-bowl-halftime-bad-bunny-green-day/
 
