@@ -1,3 +1,7 @@
+**This Theory Explains Trump’s Baffling Foreign Policy**\
+`The president’s approach is not just chaos or an updated version of 19th-century great-power competition.`\
+https://nytimes.com/2026/01/26/opinion/trump-foreign-policy-neo-royalist.html
+
 **The New York Times in Print for Monday, Jan. 26, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/26/todays-new-york-times
