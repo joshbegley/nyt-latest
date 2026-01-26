@@ -1,4 +1,12 @@
-**Harrison Bader signs with two-year deal with the Giants: Source**\
+**Social Media vs. the Internet: What Is Better for Kids?**\
+`As a guest on “Hard Fork,” Jonathan Haidt, author of “The Anxious Generation,” discusses why he believes children should have internet access and how that differs from his views on social media.`\
+https://nytimes.com/video/podcasts/100000010668802/social-media-vs-the-internet-what-is-better-for-kids.html
+
+**At the Awards Table With Chloé Zhao, Director of ‘Hamnet’**\
+`The Oscar-winning director Chloé Zhao has a fear of rejection — something that’s exacerbated by awards season. She discussed the complicated emotions stirred up by competitive prizes on “The Interview.”`\
+https://nytimes.com/video/podcasts/100000010668491/at-the-awards-table-with-chloe-zhao-director-of-hamnet.html
+
+**Harrison Bader signs two-year deal with the Giants: Source**\
 `The energetic Bader received a two-year deal after delivering a career-best offensive season and providing his customary above-average defense. `\
 https://nytimes.com/athletic/6851962/2026/01/26/mlb-harrison-bader-free-agent-signing-sf-giants/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6999754/2026/01/26/nhl-game-postponed-weather-kings
 **A Six-Figure Income Working From Home? The Sourdough Secret.**\
 `Home bakers are finding devoted customer bases that allow them to stay home with family and still make a decent living — but they do have get up in the middle of the night.`\
 https://nytimes.com/2026/01/26/dining/home-bakers-sourdough-microbakeries.html
-
-**Parts of Minneapolis Carry On, but Talk of Killings Is Everywhere**\
-`“I’m a 48-year-old white guy, and I don’t feel really safe,” one resident said about the continuing federal law enforcement tactics in the city.`\
-https://nytimes.com/2026/01/26/us/minnesota-ice-shootings.html
-
-**Some of Our Favorite Dish Soap Hacks**\
-`Dish soap is taking everybody’s job! See more stuff you can clean with it on Wirecutter.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010669048/some-of-our-favorite-dish-soap-hacks.html
 

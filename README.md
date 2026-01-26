@@ -6,7 +6,7 @@ https://nytimes.com/video/podcasts/100000010668802/social-media-vs-the-internet-
 `The Oscar-winning director Chloé Zhao has a fear of rejection — something that’s exacerbated by awards season. She discussed the complicated emotions stirred up by competitive prizes on “The Interview.”`\
 https://nytimes.com/video/podcasts/100000010668491/at-the-awards-table-with-chloe-zhao-director-of-hamnet.html
 
-**Harrison Bader signs two-year deal with the Giants: Source**\
+**Harrison Bader agrees to two-year deal with the Giants: Source**\
 `The energetic Bader received a two-year deal after delivering a career-best offensive season and providing his customary above-average defense. `\
 https://nytimes.com/athletic/6851962/2026/01/26/mlb-harrison-bader-free-agent-signing-sf-giants/
 
