@@ -1,3 +1,11 @@
+**‘A Knight of the Seven Kingdoms’ Season 1 Episode 2 Recap: A Man Among Princes**\
+`A certain royal family known for dragons and blond hair arrives on the scene. One of our heroes, at least, seems appropriately wary.`\
+https://nytimes.com/2026/01/25/arts/television/knight-of-the-seven-kingdoms-recap-season-1-episode-2.html
+
+**Notre Dame's Mike Mickens to join Ravens staff: Sources**\
+`New Ravens head coach Jesse Minter was a graduate assistant at Cincinnati during Mickens’ final two seasons as a player.`\
+https://nytimes.com/athletic/6998260/2026/01/25/noter-dame-mike-mickens-baltimore-ravens/
+
 **Seahawks top Rams in thriller, advance to Super Bowl LX to face Patriots**\
 `Seattle will face New England in a rematch of Super Bowl XLIX on Feb. 8. `\
 https://nytimes.com/athletic/6998109/2026/01/25/rams-seahawks-score-result-takeaways-nfc-championship-game/

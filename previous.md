@@ -1,3 +1,11 @@
+**‘A Knight of the Seven Kingdoms’ Season 1 Episode 2 Recap: A Man Among Princes**\
+`A certain royal family known for dragons and blond hair arrives on the scene. One of our heroes, at least, seems appropriately wary.`\
+https://nytimes.com/2026/01/25/arts/television/knight-of-the-seven-kingdoms-recap-season-1-episode-2.html
+
+**Notre Dame's Mike Mickens to join Ravens staff: Sources**\
+`New Ravens head coach Jesse Minter was a graduate assistant at Cincinnati during Mickens’ final two seasons as a player.`\
+https://nytimes.com/athletic/6998260/2026/01/25/noter-dame-mike-mickens-baltimore-ravens/
+
 **Seahawks top Rams in thriller, advance to Super Bowl LX to face Patriots**\
 `Seattle will face New England in a rematch of Super Bowl XLIX on Feb. 8. `\
 https://nytimes.com/athletic/6998109/2026/01/25/rams-seahawks-score-result-takeaways-nfc-championship-game/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6997991/2026/01/25/super-bowl-patriots-seahawks-bad
 **Private Jet With 8 People Aboard Crashes at Maine Airport, F.A.A. Says**\
 `A Bombardier Challenger 600 crashed during takeoff at the Bangor airport, according to officials, as a paralyzing winter storm lashed the East Coast.`\
 https://nytimes.com/2026/01/25/us/bangor-maine-airport-crash.html
-
-**Riq Woolen's taunting penalty costly for Seahawks after Rams respond with TD**\
-`The penalty on Woolen turned fourth-and-12 into first-and-10 for the Rams. Puka Nacua caught a 34-yard TD reception on the next play.`\
-https://nytimes.com/athletic/6998173/2026/01/25/seahawks-woolen-penalty-puka-nacua-td-rams/
-
-**Mamdani Clears Early Hurdles as Storm Bears Down on New York**\
-`Mayor Zohran Mamdani made use of his strong communication skills, and the Sanitation Department said every road was plowed at least twice by Sunday evening.`\
-https://nytimes.com/2026/01/25/nyregion/mamdani-snowstorm-performance-new-york.html
 
