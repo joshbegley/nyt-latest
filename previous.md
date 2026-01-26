@@ -1,3 +1,7 @@
+**In Xi’s China, Even the Mightiest General Can Fall**\
+`A combat veteran, Zhang Youxia was once seen as the most trusted man in Xi Jinping’s military. Now he is the most public example of disloyalty to Mr. Xi.`\
+https://nytimes.com/2026/01/26/world/asia/china-xi-zhong-youxia-military.html
+
 **Winter Storm Causes Travel Chaos, Knocks Out Power**\
 `A massive winter storm over the weekend shattered temperature records, downed power lines and led to travel chaos across the country.`\
 https://nytimes.com/video/video/100000010668092/winter-storm-causes-travel-chaos-knocks-out-power.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/26/arts/television/bridgerton-plus-5-things-to-watch
 **Stuart Skinner's brilliance propels Penguins to perfect trip**\
 `Skinner put on a show as the Penguins finished with a 3-2 win against the Canucks. `\
 https://nytimes.com/athletic/6997518/2026/01/26/penguins-perfect-trip-stuart-skinner/
-
-**Despite their poor run, Manchester City are still alive in the title race**\
-`Arsenal should have ensured Pep Guardiola's side were out of the equation already`\
-https://nytimes.com/athletic/6997655/2026/01/26/manchester-city-title-race-premier-league-history/
 

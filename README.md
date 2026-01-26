@@ -1,6 +1,6 @@
 **In Xi’s China, Even the Mightiest General Can Fall**\
 `A combat veteran, Zhang Youxia was once seen as the most trusted man in Xi Jinping’s military. Now he is the most public example of disloyalty to Mr. Xi.`\
-https://nytimes.com/2026/01/26/world/asia/china-xi-zhong-youxia-military.html
+https://nytimes.com/2026/01/26/world/asia/china-xi-zhang-youxia-military.html
 
 **Winter Storm Causes Travel Chaos, Knocks Out Power**\
 `A massive winter storm over the weekend shattered temperature records, downed power lines and led to travel chaos across the country.`\
