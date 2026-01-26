@@ -1,3 +1,7 @@
+**Sean McVay snaps when asked whether Matthew Stafford is returning next season**\
+`The Rams coach wasn't in the best of moods after his team lost a thriller to the Seahawks in the NFC Championship Game.`\
+https://nytimes.com/athletic/6998564/2026/01/26/sean-mcvay-snaps-matthew-stafford-return/
+
 **This Theory Explains Trump’s Baffling Foreign Policy**\
 `The president’s approach is not just chaos or an updated version of 19th-century great-power competition.`\
 https://nytimes.com/2026/01/26/opinion/trump-foreign-policy-neo-royalist.html

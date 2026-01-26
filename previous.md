@@ -1,3 +1,7 @@
+**Sean McVay snaps when asked whether Matthew Stafford is returning next season**\
+`The Rams coach wasn't in the best of moods after his team lost a thriller to the Seahawks in the NFC Championship Game.`\
+https://nytimes.com/athletic/6998564/2026/01/26/sean-mcvay-snaps-matthew-stafford-return/
+
 **The New York Times in Print for Monday, Jan. 26, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/26/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995623/2026/01/26/west-ham-sunderland-lucas-paquet
 **Heart of Midlothian, Scottish football's unlikely disrupters**\
 `Some cannot get their heads around Hearts being Scottish champions come May. But it can happen. `\
 https://nytimes.com/athletic/6997459/2026/01/26/hearts-celtic-scottish-football/
-
-**Could Chelsea and Rosenior benefit from looking after rather than protecting Estevao?**\
-`Estevao was the difference maker for Chelsea against Crystal Palace on Sunday`\
-https://nytimes.com/athletic/6997428/2026/01/26/estevao-chelsea-liam-rosenior-analysis/
 
