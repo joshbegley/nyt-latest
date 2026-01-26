@@ -1,40 +1,40 @@
+**Memory and Speech Are Their Everyday Struggles. Then They Get to Sing.**\
+`At the Singing Circle in Amsterdam, people with cognitive decline join together to lift their spirits and improve their lives.`\
+https://nytimes.com/2026/01/26/arts/music/amsterdam-concertgebouw-singing-circle.html
+
+**Yasiel Puig was once one of MLB's most exciting players. Now he's on trial**\
+`The trial over whether Yasiel Puig lied to federal investigators about his gambling conduct is expected to conclude soon. `\
+https://nytimes.com/athletic/6998309/2026/01/26/yasiel-puig-mlb-trial-federal-gambling-charges/
+
+**Super Bowl teams bucked coaching trends in rapid rebuilds**\
+`The Super Bowl will feature teams led by defensive coaches for the first time in nine years.`\
+https://nytimes.com/athletic/6998506/2026/01/26/seahawks-patriots-super-bowl-coaches/
+
+**A Rams season filled with joy ends in heartbreak: 'It's hard to fathom that it's over'**\
+`For the Rams and 37-year-old MVP candidate Matthew Stafford, it was a season they'll never forget. But now they must say goodbye.`\
+https://nytimes.com/athletic/6998489/2026/01/26/rams-season-loss-nfc-championship-seahawks/
+
+**Secret to Isaiah Stewart's shot-blocking prowess? 'You can't be scared to get punched'**\
+`"I truly believe I am the best defender in the league," says the Pistons' Stewart. `\
+https://nytimes.com/athletic/6975321/2026/01/26/pistons-isaiah-stewart-shot-blocking/
+
+**Film Club: ‘We Came Here Legally. ICE Locked Us Up Anyway.’**\
+`What do the stories from inside the ICE detention system tell us about the Trump administration’s immigration crackdowns — and America?`\
+https://nytimes.com/2026/01/26/learning/film-club-we-came-here-legally-ice-locked-us-up-anyway.html
+
+**The New York Times International Edition in Print for Tuesday, Jan. 27, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/26/todays-new-york-times-international-edition
+
+**How Sam Darnold rewarded those who never doubted: 'We'd do anything for him'**\
+`Darnold carried the Seahawks to the Super Bowl, squashing narratives and silencing doubters — but that's not what mattered to him most.`\
+https://nytimes.com/athletic/6998603/2026/01/26/sam-darnold-seahawks-super-bowl-rams/
+
+**The unlikeliest Super Bowl matchup ever, and the far-reaching implications: Sando's Pick Six**\
+`The Seahawks and Patriots each entered the season with Super Bowl odds of 60 to 1 or longer. The long shots will now play for the Lombardi.`\
+https://nytimes.com/athletic/6996097/2026/01/26/seahawks-patriots-super-bowl-rams-broncos-pick-six/
+
 **Tony Romo and Jim Nantz were unremarkable. That's a win for CBS these days**\
 `No game-ending gaffes for the broadcast duo this year, but there was one notable first-half snafu.`\
 https://nytimes.com/athletic/6998128/2026/01/26/tony-romo-jim-nantz-cbs-nfl-broncos-patriots/
-
-**Inside Real Madrid: Has Arbeloa turned things around? What's the latest on Alexander-Arnold?**\
-`Saturday's victory at Villarreal was the best performance yet under Madrid's new coach, who made a terrible start to his time in charge`\
-https://nytimes.com/athletic/6998720/2026/01/26/real-madrid-news-alexander-arnold-mbappe-arbeloa/
-
-**Local Prosecution Is the Answer to Federal Lawlessness**\
-`State and local prosecutions could produce deterrent effects that are so desperately needed now.`\
-https://nytimes.com/2026/01/26/opinion/minneapolis-shooting-ice-accountability.html
-
-**A Crisis of Confidence for ICE and Border Patrol as Clashes Escalate**\
-`Current and former officials describe growing frustration and disillusionment with the Trump administration’s approach, even as they support the goal of immigration enforcement.`\
-https://nytimes.com/2026/01/26/us/politics/ice-border-patrol-trust.html
-
-**‘We Are Creating the Conditions for a Catastrophe.’ Three Columnists on Minneapolis.**\
-`On immigration raids, the shooting death of Alex Pretti and where we go from here.`\
-https://nytimes.com/2026/01/26/opinion/minneapolis-alex-pretti-ice-shooting.html
-
-**Rahm Emanuel Will Speak to You Now**\
-`A Democratic insider with an outside chance at the White House`\
-https://nytimes.com/2026/01/26/opinion/rahm-emanuel-2028.html
-
-**Minnesota Claims the ICE Surge Is Illegal. A Judge Will Hear Arguments on Monday.**\
-`State and local officials say the federal deployment of immigration agents violates the 10th Amendment. The surge, which the Trump administration has defended, has led to three shootings and tense protests.`\
-https://nytimes.com/2026/01/26/us/minnesota-lawsuit-ice-surge-hearing.html
-
-**Can I Wear a Sweatshirt to Work?**\
-`Trendy and expensive hoodies are everywhere, but our critic offers some words of warning before you wear one to the office.`\
-https://nytimes.com/2026/01/26/fashion/sweatshirt-hoodie-work-office.html
-
-**George Saunders Serves a Heavy Helping of Virtue in a New Novel**\
-`In “Vigil,” an oil tycoon on his deathbed receives a visit from an angel.`\
-https://nytimes.com/2026/01/26/books/review/george-saunders-vigil.html
-
-**Silicon Valley Wants to Build A.I. That Can Improve A.I. on Its Own**\
-`Ricursive Intelligence, founded by two former Google researchers and valued at $4 billion, is among several efforts to automate the creation of artificial intelligence.`\
-https://nytimes.com/2026/01/26/technology/recursive-ai-ricursive.html
 
