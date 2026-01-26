@@ -1,3 +1,11 @@
+**They ‘Had Done Everything Right.’ ICE Detained Them Anyway.**\
+`Dozens of refugees with valid status have been sent from Minnesota to Texas to be revetted, prompting a lawsuit. Those released have had to pay their way back.`\
+https://nytimes.com/2026/01/26/us/politics/ice-minnesota-refugees.html
+
+**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
+`Drop your questions here, and The Athletic's Chris Johnston will answer a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/6999678/2026/01/26/nhl-mailbag-trades-olympics-russia-milan/
+
 **Nigella Lawson Joins ‘The Great British Baking Show’ as a Judge**\
 `Ms. Lawson, 66, replaces Prue Leith, who announced her departure this month.`\
 https://nytimes.com/2026/01/26/us/nigella-lawson-great-british-bake-off.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6999591/2026/01/26/mammoth-vs-lightning-stream-how-
 **How to watch Islanders vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6999565/2026/01/26/islanders-vs-flyers-stream-how-to-watch-jan-26/
-
-**How to watch Bruins vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6999561/2026/01/26/bruins-vs-rangers-stream-how-to-watch-jan-26/
-
-**How to watch Kings vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6999559/2026/01/26/kings-vs-blue-jackets-stream-how-to-watch-jan-26/
 
