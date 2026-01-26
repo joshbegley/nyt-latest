@@ -1,3 +1,7 @@
+**A Sunday Snowstorm Blankets New York**\
+`The city got about nine inches of snow and at least one person died from exposure to the cold as Mayor Zohran Mamdani faced his first big test in nuts-and-bolts governing.`\
+https://nytimes.com/2026/01/25/nyregion/snow-storm-new-york.html
+
 **Alan Page after false claim he attended ICE protest: 'Why would somebody make that up?'**\
 `The Vikings Hall of Famer received messages from friends asking if he attended an ICE protest after a photo of him went viral.`\
 https://nytimes.com/athletic/6997720/2026/01/25/alan-page-ice-protests-minneapolis-social-media/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/25/nyregion/car-theft-ring.html
 **Pie Nut**\
 `There’s a lot to love in Erica Hsiung Wojcik’s punny puzzle.`\
 https://nytimes.com/2026/01/25/crosswords/daily-puzzle-2026-01-26.html
-
-**On Broadway, frustration mounts as curtains rise amid the snowfall.**\
-`By Taylor Robinson and Derrick Bryson Taylor`\
-https://nytimes.com/live/2026/01/25/us/winter-storm-snow-ice/broadway-winter-storm-closures
 
