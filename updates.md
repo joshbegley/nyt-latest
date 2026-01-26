@@ -1,3 +1,11 @@
+**Alan Page after false claim he attended ICE protest: 'Why would somebody make that up?'**\
+`The Vikings Hall of Famer received messages from friends asking if he attended an ICE protest after a photo of him went viral.`\
+https://nytimes.com/athletic/6997720/2026/01/25/alan-page-ice-protests-minneapolis-social-media/
+
+**President Trump says he won't attend Super Bowl, criticizes Bad Bunny and Green Day**\
+`Trump, who attended last year's game in New Orleans, said next month's contest in California was "just too far away." `\
+https://nytimes.com/athletic/6997918/2026/01/25/trump-skipping-super-bowl-halftime-bad-bunny-green-day/
+
 **On Being Inconvenienced**\
 `After an alleged arson attack on a synagogue, one church in Jackson, Miss. opened its doors.`\
 https://nytimes.com/2026/01/25/briefing/on-being-inconvenienced.html
