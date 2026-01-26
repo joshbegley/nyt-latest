@@ -1,3 +1,11 @@
+**Harrison Bader signs with two-year deal with the Giants: Source**\
+`The energetic Bader received a two-year deal after delivering a career-best offensive season and providing his customary above-average defense. `\
+https://nytimes.com/athletic/6851962/2026/01/26/mlb-harrison-bader-free-agent-signing-sf-giants/
+
+**Bournemouth close to triggering Jimenez purchase clause: What does this mean for Madrid?**\
+`Bournemouth are two matches away from exercising the mandatory purchase clause that was included in the deal with Milan.`\
+https://nytimes.com/athletic/6999651/2026/01/26/alex-jimenez-bournemouth-milan-real-madrid/
+
 **Demonstrators Enter Hotel Vestibule, Setting Off a Fracas**\
 `The Minneapolis police said federal agents arrived and used gas on a crowd, refusing further assistance.`\
 https://nytimes.com/2026/01/26/us/demonstrators-hotel-ice-confrontation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/26/us/minnesota-ice-shootings.html
 **Some of Our Favorite Dish Soap Hacks**\
 `Dish soap is taking everybody’s job! See more stuff you can clean with it on Wirecutter.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010669048/some-of-our-favorite-dish-soap-hacks.html
-
-**Packers tackle Rasheed Walker arrested at LaGuardia Airport on gun charge**\
-`The tackle mistakenly believed he could travel with a firearm arm legally licensed in Wisconsin, his lawyer said.`\
-https://nytimes.com/athletic/6999636/2026/01/26/packers-rasheed-walker-arrested-gun/
-
-**Review: How ‘Data’ Channels the Shock of Right Now**\
-`In Matthew Libby’s play, a brilliant young computer programmer finds himself at the center of one of the most contentious issues of the moment: immigration.`\
-https://nytimes.com/2026/01/26/theater/data-review.html
 
