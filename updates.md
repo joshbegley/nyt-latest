@@ -1,3 +1,7 @@
+**Word of the Day: precursor**\
+`This word has appeared in 310 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/26/learning/word-of-the-day-precursor.html
+
 **Sean McVay snaps when asked whether Matthew Stafford is returning next season**\
 `The Rams coach wasn't in the best of moods after his team lost a thriller to the Seahawks in the NFC Championship Game.`\
 https://nytimes.com/athletic/6998564/2026/01/26/sean-mcvay-snaps-matthew-stafford-return/

@@ -1,3 +1,7 @@
+**Word of the Day: precursor**\
+`This word has appeared in 310 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/26/learning/word-of-the-day-precursor.html
+
 **Sean McVay snaps when asked whether Matthew Stafford is returning next season**\
 `The Rams coach wasn't in the best of moods after his team lost a thriller to the Seahawks in the NFC Championship Game.`\
 https://nytimes.com/athletic/6998564/2026/01/26/sean-mcvay-snaps-matthew-stafford-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6995770/2026/01/26/brighton-right-backs/
 **Paqueta's West Ham exit could end up being a positive. Just look at Fernandes**\
 `Victory over Sunderland made it three consecutive wins in all competitions for West Ham and one player in particular stood out`\
 https://nytimes.com/athletic/6995623/2026/01/26/west-ham-sunderland-lucas-paqueta/
-
-**Heart of Midlothian, Scottish football's unlikely disrupters**\
-`Some cannot get their heads around Hearts being Scottish champions come May. But it can happen. `\
-https://nytimes.com/athletic/6997459/2026/01/26/hearts-celtic-scottish-football/
 
