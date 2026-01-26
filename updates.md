@@ -1,3 +1,15 @@
+**How to watch Warriors vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7000256/2026/01/26/warriors-vs-timberwolves-stream-how-to-watch-jan-26/
+
+**How to watch Trail Blazers vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7000254/2026/01/26/trail-blazers-vs-celtics-stream-how-to-watch-jan-26/
+
+**How to watch Ducks vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7000245/2026/01/26/ducks-vs-oilers-stream-how-to-watch-jan-26/
+
 **How to watch Arizona vs. BYU men's basketball: Time, TV, streaming**\
 `Find out how to watch the Arizona Wildcats play the BYU Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7000205/2026/01/26/arizona-vs-byu-stream-how-to-watch-jan-26/
