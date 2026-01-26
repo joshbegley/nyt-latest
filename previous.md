@@ -1,3 +1,23 @@
+**F.A.A. Rolls Out Agency Overhaul for Improving Air Safety**\
+`The announcement of a reorganization comes nearly a year after a midair collision killed 67 people and prompted a public outcry for enhancing the security of aviation travel.`\
+https://nytimes.com/2026/01/26/us/politics/faa-overhaul-safety-modernization.html
+
+**No Snow Day? In New York City Parks, It Felt Like One.**\
+`Some children skipped remote classes in city schools in favor of activities they felt were more important: sledding and snowball fights.`\
+https://nytimes.com/2026/01/26/weather/snow-parks-children-remote-schooling.html
+
+**Steve Ott on taking the Blues' AHL job, what comes next: 'It's a great opportunity'**\
+`"I definitely want to be a head coach in the NHL someday," says Ott, who had been a Blues assistant for nine seasons and wanted a next step.`\
+https://nytimes.com/athletic/6999761/2026/01/26/steve-ott-blues-ahl-springfield-coach-interview/
+
+**Trump Changes Course in Minnesota**\
+`Also, large parts of the U.S. are dangerously cold. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2026/01/26/briefing/trump-minnesota-winter-storm-cold.html
+
+**Scoop City: A record-setting Super Bowl, already**\
+`What cost the Broncos and Rams a Super Bowl shot, plus the unlikely Seahawks-Patriots game and what Mike McCarthy brings to Pittsburgh`\
+https://nytimes.com/athletic/7000577/2026/01/26/nfl-super-bowl-seahawks-patriots-steelers-coach-mccarthy/
+
 **With center fielder Harrison Bader, Giants get the dynamic defender they needed**\
 `After the Giants' outfield ranked among the league's worst defensive units in 2025, Bader's glove should provide some stability.`\
 https://nytimes.com/athletic/7000467/2026/01/26/sf-giants-harrison-bader-free-agent-signing-outfield-defense/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/26/weather/winter-storm-climate-change-snow.html
 **What Minneapolis Means for the Country and Its Politics**\
 `Our reporter who spent time in the city weighed in on how the chaos is changing the political landscape.`\
 https://nytimes.com/2026/01/26/us/politics/minneapolis-protests-midterm-politics.html
-
-**New York City Races to Help Homeless People as Temperatures Plunge**\
-`The weather underscored how vulnerable people are when they do not have a safe place to shelter. At least eight people have died, including several who had a history with the city’s shelter system.`\
-https://nytimes.com/2026/01/26/nyregion/nyc-snow-homeless.html
-
-**What to Expect for the Morning Commute in the New York Area**\
-`Mass transit is slowly getting back to normal around the city.`\
-https://nytimes.com/2026/01/26/weather/nyc-winter-storm-transit-trains-buses.html
-
-**After Mamdani Nods to ‘Heated Rivalry,’ Library E-Book Downloads Surge**\
-`As a snowstorm arrived, Mayor Zohran Mamdani reminded New Yorkers that they could access the romance series that inspired the TV show through their public library.`\
-https://nytimes.com/2026/01/26/nyregion/mamdani-heated-rivalry-library.html
-
-**Weekly Student News Quiz: Minnesota Killing, Snow Storm, College Football**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2026/01/26/learning/26StudentNewsQuiz.html
-
-**Federal Investigation Into Shooting of Pretti Appears Limited**\
-`A use-of-force review is far different than a criminal investigation of the killing of Alex Pretti by Border Patrol agents in Minneapolis.`\
-https://nytimes.com/2026/01/26/us/pretti-minneapolis-shooting-dhs-investigation.html
 
