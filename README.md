@@ -1,3 +1,15 @@
+**Some of Our Favorite Dish Soap Hacks**\
+`Dish soap is taking everybody’s job! See more stuff you can clean with it on Wirecutter.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010669048/some-of-our-favorite-dish-soap-hacks.html
+
+**Packers tackle Rasheed Walker arrested at LaGuardia Airport on gun charge**\
+`The tackle mistakenly believed he could travel with a firearm arm legally licensed in Wisconsin, his lawyer said.`\
+https://nytimes.com/athletic/6999636/2026/01/26/packers-rasheed-walker-arrested-gun/
+
+**Review: How ‘Data’ Channels the Shock of Right Now**\
+`In Matthew Libby’s play, a brilliant young computer programmer finds himself at the center of one of the most contentious issues of the moment: immigration.`\
+https://nytimes.com/2026/01/26/theater/data-review.html
+
 **As U.S. Warships Get Closer, Iran and Allies Ramp Up Retaliation Threats**\
 `Iran and its militia allies say they will respond aggressively in the region if attacked. A U.S. aircraft carrier and warships are approaching the region.`\
 https://nytimes.com/2026/01/26/world/middleeast/us-warships-gulf-waters-iran-retaliation-threats.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6999678/2026/01/26/nhl-mailbag-trades-olympics-russ
 **Nigella Lawson Joins ‘The Great British Baking Show’ as a Judge**\
 `Ms. Lawson, 66, replaces Prue Leith, who announced her departure this month.`\
 https://nytimes.com/2026/01/26/us/nigella-lawson-great-british-bake-off.html
-
-**Why Celine Works**\
-`Their newish creative director Michael Rider is at the head of the pack.`\
-https://nytimes.com/2026/01/26/style/celine-paris-fashion.html
-
-**Chargers finalize deal with Mike McDaniel. What to expect from his offense?**\
-`McDaniel's scheme plus Herbert's combination of arm strength and athleticism creates limitless potential for the Chargers.`\
-https://nytimes.com/athletic/6992884/2026/01/26/mike-mcdaniel-hired-chargers-scheme-film-justin-herbert/
-
-**Forest in £35m offer for Palace striker Mateta**\
-`Personal terms between Forest and the 28-year-old will not be an issue.`\
-https://nytimes.com/athletic/6999195/2026/01/26/jean-philippe-mateta-forest-palace-transfer/
 
