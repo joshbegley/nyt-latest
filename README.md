@@ -1,3 +1,7 @@
+**Gold Soars to Record High as Global Tensions Grow**\
+`The price of gold surged above $5,000 an ounce as investors sought shelter from geopolitical uncertainty.`\
+https://nytimes.com/2026/01/26/business/gold-prices.html
+
 **Israel Says It Will Reopen Gaza-Egypt Border, a Palestinian Lifeline, in Days**\
 `The Rafah crossing will open at the end of Israel’s search for the remains of the last captive in Gaza.`\
 https://nytimes.com/2026/01/26/world/middleeast/israel-gaza-egypt-rafah-crossing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6997615/2026/01/26/fantasy-premier-league-tips-fpl-
 **Will another NFL coordinator hire work for Ohio State? 7 thoughts on Arthur Smith**\
 `Ryan Day was searching for an experienced play caller to replace Brian Hartline. So what will Smith bring to the Buckeyes?`\
 https://nytimes.com/athletic/6998836/2026/01/26/arthur-smith-ohio-state-offensive-coordinator/
-
-**Dangerously Cold Temperatures Will Remain as Storm Fades**\
-`While some additional snow is expected to fall Monday, frigid conditions will be the primary concern in the coming days.`\
-https://nytimes.com/2026/01/26/weather/winter-storm-weather-forecast-cold-snow.html
 
