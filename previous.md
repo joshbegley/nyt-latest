@@ -1,3 +1,11 @@
+**Tony Romo and Jim Nantz were unremarkable. That's a win for CBS these days**\
+`No game-ending gaffes for the broadcast duo this year, but there was one notable first-half snafu.`\
+https://nytimes.com/athletic/6998128/2026/01/26/tony-romo-jim-nantz-cbs-nfl-broncos-patriots/
+
+**Inside Real Madrid: Has Arbeloa turned things around? What's the latest on Alexander-Arnold?**\
+`Saturday's victory at Villarreal was the best performance yet under Madrid's new coach, who made a terrible start to his time in charge`\
+https://nytimes.com/athletic/6998720/2026/01/26/real-madrid-news-alexander-arnold-mbappe-arbeloa/
+
 **Local Prosecution Is the Answer to Federal Lawlessness**\
 `State and local prosecutions could produce deterrent effects that are so desperately needed now.`\
 https://nytimes.com/2026/01/26/opinion/minneapolis-shooting-ice-accountability.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/26/books/review/george-saunders-vigil.html
 **Silicon Valley Wants to Build A.I. That Can Improve A.I. on Its Own**\
 `Ricursive Intelligence, founded by two former Google researchers and valued at $4 billion, is among several efforts to automate the creation of artificial intelligence.`\
 https://nytimes.com/2026/01/26/technology/recursive-ai-ricursive.html
-
-**Do We All Need a Little More Boredom in Our Lives?**\
-`An online trend encourages people to embrace doing nothing. Does that sound worthwhile — or, well, plain old boring?`\
-https://nytimes.com/2026/01/26/learning/do-we-all-need-a-little-more-boredom-in-our-lives.html
-
-**Voters See a Middle-Class Lifestyle as Drifting Out of Reach, Poll Finds**\
-`Concerns about the affordability of education, housing, health care, having a family and retirement are driving economic anxieties, a New York Times/Siena poll found.`\
-https://nytimes.com/2026/01/26/us/politics/affordability-poll.html
 

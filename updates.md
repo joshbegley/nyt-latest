@@ -1,3 +1,11 @@
+**Tony Romo and Jim Nantz were unremarkable. That's a win for CBS these days**\
+`No game-ending gaffes for the broadcast duo this year, but there was one notable first-half snafu.`\
+https://nytimes.com/athletic/6998128/2026/01/26/tony-romo-jim-nantz-cbs-nfl-broncos-patriots/
+
+**Inside Real Madrid: Has Arbeloa turned things around? What's the latest on Alexander-Arnold?**\
+`Saturday's victory at Villarreal was the best performance yet under Madrid's new coach, who made a terrible start to his time in charge`\
+https://nytimes.com/athletic/6998720/2026/01/26/real-madrid-news-alexander-arnold-mbappe-arbeloa/
+
 **Local Prosecution Is the Answer to Federal Lawlessness**\
 `State and local prosecutions could produce deterrent effects that are so desperately needed now.`\
 https://nytimes.com/2026/01/26/opinion/minneapolis-shooting-ice-accountability.html
