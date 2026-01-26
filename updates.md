@@ -1,3 +1,7 @@
+**How to watch Arizona vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7000205/2026/01/26/arizona-vs-byu-stream-how-to-watch-jan-26/
+
 **A New Way to Flirt: Dazzle Potential Mates With Patterns Invisible to Humans**\
 `Cuttlefish attract prospective sexual partners by creating a pattern on their skin, based on the orientation of light waves.`\
 https://nytimes.com/2026/01/26/science/cuttlefish-camouflage-sexual-display.html

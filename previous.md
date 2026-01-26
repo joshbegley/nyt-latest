@@ -1,3 +1,7 @@
+**How to watch Arizona vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7000205/2026/01/26/arizona-vs-byu-stream-how-to-watch-jan-26/
+
 **A New Way to Flirt: Dazzle Potential Mates With Patterns Invisible to Humans**\
 `Cuttlefish attract prospective sexual partners by creating a pattern on their skin, based on the orientation of light waves.`\
 https://nytimes.com/2026/01/26/science/cuttlefish-camouflage-sexual-display.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/26/arts/design/mehretu-mcqueen-kentridge-marian-good
 **Trump Pivots From Attacks on Walz After Call**\
 `President Trump, facing growing criticism of the tactics of immigration agents in Minnesota, shifted from attacking the state’s governor to stressing cooperation.`\
 https://nytimes.com/2026/01/26/us/politics/trump-walz-minneapolis.html
-
-**Ye Apologizes for Antisemitic Behavior, Again**\
-`The artist formerly known as Kanye West, who first apologized in 2023 before taking it back, said a four-month manic episode in 2025 had led him to embrace swastikas and Hitler.`\
-https://nytimes.com/2026/01/26/arts/music/ye-kanye-west-apology-antisemitism.html
 
