@@ -1,3 +1,19 @@
+**Super Bowl 2026 preview: Analysis of Patriots', Seahawks' chances to win it all**\
+`An early look at Super Bowl LX, a rematch of one of the most memorable title games in NFL history.`\
+https://nytimes.com/athletic/6997977/2026/01/25/super-bowl-2026-preview-odds-patriots-seahawks-analysis/
+
+**Patriots vs. Seahawks in Super Bowl 60: What to know about matchup, halftime show, more**\
+`The Patriots are looking for their record seventh Super Bowl title while the Seahawks are looking for their second championship.`\
+https://nytimes.com/athletic/6997991/2026/01/25/super-bowl-patriots-seahawks-bad-bunny-pro-bowl/
+
+**Private Jet With 8 People Aboard Crashes at Maine Airport, F.A.A. Says**\
+`A Bombardier Challenger 600 crashed during takeoff at the Bangor airport, according to officials, as a paralyzing winter storm lashed the East Coast.`\
+https://nytimes.com/2026/01/25/us/bangor-maine-airport-crash.html
+
+**Riq Woolen's taunting penalty costly for Seahawks after Rams respond with TD**\
+`The penalty on Woolen turned fourth-and-12 into first-and-10 for the Rams. Puka Nacua caught a 34-yard TD reception on the next play.`\
+https://nytimes.com/athletic/6998173/2026/01/25/seahawks-woolen-penalty-puka-nacua-td-rams/
+
 **Mamdani Clears Early Hurdles as Storm Bears Down on New York**\
 `Mayor Zohran Mamdani made use of his strong communication skills, and the Sanitation Department said every road was plowed at least twice by Sunday evening.`\
 https://nytimes.com/2026/01/25/nyregion/mamdani-snowstorm-performance-new-york.html
@@ -23,20 +39,4 @@ https://nytimes.com/2026/01/25/us/politics/trump-blames-democrats-minneapolis-ki
 **Alex Pretti’s Friends and Family Denounce ‘Sickening Lies’ About His Life**\
 `People who knew a man fatally shot by federal agents pushed back against what they called a smear campaign by federal officials. “He was a good man,” his family said.`\
 https://nytimes.com/2026/01/25/us/alex-pretti-minneapolis-shooting.html
-
-**Patriots Hold Off Broncos in Frigid Conditions to Advance to Super Bowl**\
-`Quarterback Drake Maye’s 65 yards and a touchdown on the ground made the difference for New England against Denver, landing the Patriots the win and a ticket to the Super Bowl.`\
-https://nytimes.com/video/the-athletic/100000010667839/patriots-hold-off-broncos-in-frigid-conditions-to-advance-to-super-bowl.html
-
-**Nylander apologizes after giving middle finger to camera during Leafs game**\
-`Nylander made the gesture while in the press box with other injured and scratched players in a 4-1 loss to the Avalanche.`\
-https://nytimes.com/athletic/6998059/2026/01/25/william-nylander-middle-finger-maple-leafs/
-
-**Killing Prompts Only a Defiant Response From Trump**\
-`Even as the second death of a protester in Minnesota brought demands for accountability, the president, insulated from dissenting voices, stuck to his pattern of reflexively blaming opponents.`\
-https://nytimes.com/2026/01/25/us/politics/minneapolis-killing-trump-defiant-response.html
-
-**How the Trump Administration Rushed to Judgment in Minneapolis Shooting**\
-`The administration was in a race to control the narrative around the killing of Alex Pretti, even as videos emerged that contradicted the government’s account.`\
-https://nytimes.com/2026/01/25/us/trump-administration-minneapolis-shooting-response.html
 
