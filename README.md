@@ -1,3 +1,7 @@
+**Stuart Skinner's brilliance propels Penguins to perfect trip**\
+`Skinner put on a show as the Penguins finished with a 3-2 win against the Canucks. `\
+https://nytimes.com/athletic/6997518/2026/01/26/penguins-perfect-trip-stuart-skinner/
+
 **Despite their poor run, Manchester City are still alive in the title race**\
 `Arsenal should have ensured Pep Guardiola's side were out of the equation already`\
 https://nytimes.com/athletic/6997655/2026/01/26/manchester-city-title-race-premier-league-history/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6994847/2026/01/26/calvert-lewin-leeds-everton-goal
 **No Bruno, no victory: Newcastle still can't find a way to win without Guimaraes**\
 `Eddie Howe knows Newcastle are too reliant on their Brazilian captain but can't work out a solution`\
 https://nytimes.com/athletic/6993536/2026/01/26/bruno-guimaraes-absence-newcastle-struggle/
-
-**Awoniyi's moment of joy and a rare sense of relief for Nottingham Forest**\
-`Taiwo Awoniyi scored his first goal for Forest after being left fighting for his life in hospital`\
-https://nytimes.com/athletic/6997356/2026/01/26/taiwo-awoniyi-nottingham-forest-brentford-analysis/
 
