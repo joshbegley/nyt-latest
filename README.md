@@ -1,3 +1,15 @@
+**As U.S. Warships Get Closer, Iran and Allies Ramp Up Retaliation Threats**\
+`Iran and its militia allies say they will respond aggressively in the region if attacked. A U.S. aircraft carrier and warships are approaching the region.`\
+https://nytimes.com/2026/01/26/world/middleeast/us-warships-gulf-waters-iran-retaliation-threats.html
+
+**Liverpool defender Wellity Lucky out for at least two months with hamstring injury**\
+`Liverpool&#8217;s defensive resources have been further depleted after youngster Wellity Lucky was ruled out for at least two months with a hamstring injury.`\
+https://nytimes.com/athletic/6999673/2026/01/26/wellity-lucky-liverpool-hamstring-injury/
+
+**Charity watchdog opens inquiry into FIA Foundation**\
+`A spokesperson for the FIA said: "The FIA Foundation is independent from the FIA and a UK-registered charity."`\
+https://nytimes.com/athletic/6999668/2026/01/26/fia-foundation-charity-investigation/
+
 **Cleaning a Toilet? Don’t Skip This Step**\
 `If you’re skipping this step, your toilet probably isn’t as clean as you think. Here’s how to do it properly.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010668975/cleaning-a-toilet-dont-skip-this-step.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6992884/2026/01/26/mike-mcdaniel-hired-chargers-sch
 **Forest in £35m offer for Palace striker Mateta**\
 `Personal terms between Forest and the 28-year-old will not be an issue.`\
 https://nytimes.com/athletic/6999195/2026/01/26/jean-philippe-mateta-forest-palace-transfer/
-
-**Are Vintage Coach Bags Better Than New?**\
-`Are new Coach bags as good as the vintage ones? We investigated.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010668804/are-vintage-coach-bags-better-than-new.html
-
-**Send Colton Pouncy your Lions mailbag questions**\
-`Detroit is coming off a 9-8, no-playoff season. The Lions fired their OC and hired a new one. Send us your mailbag questions.`\
-https://nytimes.com/athletic/6999576/2026/01/26/detroit-lions-mailbag-questions-request-colton-pouncy/
-
-**How to watch Mammoth vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6999591/2026/01/26/mammoth-vs-lightning-stream-how-to-watch-jan-26/
 
