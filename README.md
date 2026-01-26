@@ -1,3 +1,11 @@
+**Ferry Sinks in Southern Philippines, Leaving Several Dead**\
+`A ship carrying more than 350 people sank early Monday near the island of Baluk-baluk in the southern province of Basilan, leaving at least 18 dead, according to the Philippine Coast Guard.`\
+https://nytimes.com/video/world/asia/100000010668313/ferry-philippines-sinking.html
+
+**A Place to See Paris as Never Before, Again**\
+`Hotel Costes defined a generation. With his first luxury hotel, a second-generation Costes looks to revolutionize how guests experience Paris. If you can get in, that is.`\
+https://nytimes.com/2026/01/26/style/laventure-hotel-costes-paris.html
+
 **Remains of Last Captive in Gaza Are Retrieved, Closing a Chapter for Israel**\
 `The recovery of Master Sgt. Ran Gvili’s body paves the way for the next stage of the Gaza cease-fire plan, though the path forward is unclear.`\
 https://nytimes.com/2026/01/26/world/middleeast/gaza-hostage-returned-israel.html
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/6998667/2026/01/26/sam-darnold-redemption-seahawks-
 https://nytimes.com/athletic/6998841/2026/01/26/can-arsenal-win-the-premier-league-without-an-outstanding-attacker/
 
 **Philip Rivers removes himself from Bills coaching consideration: Sources**\
-`Rivers, 44, has no NFL coaching experience, but addressed the idea after the Colts final regular-season game in early January.`\
+`Rivers, 44, has no NFL coaching experience, but addressed the idea after the Colts' final regular-season game in early January.`\
 https://nytimes.com/athletic/6999091/2026/01/26/philip-rivers-bills-coaching-candidacy/
 
 **Business Leaders Face a Test in Minneapolis**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/26/world/europe/russia-ukraine-war-peace-talks.html
 **How to watch 76ers vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6999084/2026/01/26/76ers-vs-hornets-stream-how-to-watch-jan-26/
-
-**How to watch Pacers vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6999082/2026/01/26/pacers-vs-hawks-stream-how-to-watch-jan-26/
-
-**Hall of Fame mailbag: Top 5 players — excluding PED cases — who should be in Cooperstown**\
-`Who will get in next? Who got my vote for the best players the writers whiffed on? And are you ready for my team of one-vote wonders?`\
-https://nytimes.com/athletic/6998790/2026/01/26/baseball-hall-of-fame-questions-schilling-whitaker-pettitte/
 
