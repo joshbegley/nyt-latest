@@ -1,3 +1,19 @@
+**Inquest into death of ex-player McQueen finds heading 'likely' contributed to brain disease**\
+`"It is likely that repetitive head impacts, sustained by heading the ball while playing football, contributed to CTE,” the coroner said.`\
+https://nytimes.com/athletic/6999381/2026/01/26/gordon-mcqueen-heading-death-cte/
+
+**Submit questions for Charlotte Varnes' Phillies mailbag**\
+`Pitcher and catchers report to spring training in about two weeks, so it's as good a time as any to discuss the Phillies.`\
+https://nytimes.com/athletic/6999359/2026/01/26/phillies-questions-charlotte-varnes/
+
+**Winter Storm Will Plunge Much of the U.S. Into Intense Cold**\
+`Forecasters said temperatures below zero were expected this week from the Northern Plains through the Ohio Valley and into the Northeast.`\
+https://nytimes.com/2026/01/26/weather/winter-storm-cold-temps-central-east-us.html
+
+**A Gentler Disinfectant than Bleach**\
+`This make-at-home spray promises to replace both multi-surface cleaners and disinfectants by harnessing hypochlorous acid — does it live up to those claims? Cleaning reporter Caroline Mullen tested the Force of Nature starter kit to find out.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010668609/a-gentler-disinfectant-than-bleach.html
+
 **Trump Is Sending Tom Homan, His Border Czar, to Minnesota**\
 `“He has not been involved in that area, but knows and likes many of the people there,” President Trump wrote on Truth Social on Monday.`\
 https://nytimes.com/2026/01/26/us/politics/homan-minnesota-ice-trump.html

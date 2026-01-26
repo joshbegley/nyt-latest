@@ -1,3 +1,19 @@
+**Inquest into death of ex-player McQueen finds heading 'likely' contributed to brain disease**\
+`"It is likely that repetitive head impacts, sustained by heading the ball while playing football, contributed to CTE,” the coroner said.`\
+https://nytimes.com/athletic/6999381/2026/01/26/gordon-mcqueen-heading-death-cte/
+
+**Submit questions for Charlotte Varnes' Phillies mailbag**\
+`Pitcher and catchers report to spring training in about two weeks, so it's as good a time as any to discuss the Phillies.`\
+https://nytimes.com/athletic/6999359/2026/01/26/phillies-questions-charlotte-varnes/
+
+**Winter Storm Will Plunge Much of the U.S. Into Intense Cold**\
+`Forecasters said temperatures below zero were expected this week from the Northern Plains through the Ohio Valley and into the Northeast.`\
+https://nytimes.com/2026/01/26/weather/winter-storm-cold-temps-central-east-us.html
+
+**A Gentler Disinfectant than Bleach**\
+`This make-at-home spray promises to replace both multi-surface cleaners and disinfectants by harnessing hypochlorous acid — does it live up to those claims? Cleaning reporter Caroline Mullen tested the Force of Nature starter kit to find out.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010668609/a-gentler-disinfectant-than-bleach.html
+
 **Trump Is Sending Tom Homan, His Border Czar, to Minnesota**\
 `“He has not been involved in that area, but knows and likes many of the people there,” President Trump wrote on Truth Social on Monday.`\
 https://nytimes.com/2026/01/26/us/politics/homan-minnesota-ice-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/26/business/media/brooklyn-beckham-victoria-feud-ai-
 **Searching for Memories of a Brother Lost to an Institution**\
 `A Times reporter covering the disability community set out to explore a dark moment in history, and found a man looking for a brother he never knew.`\
 https://nytimes.com/2026/01/26/insider/searching-for-memories-of-a-brother-lost-to-an-institution.html
-
-**NASCAR's Roval playoff race expected to return to Charlotte's oval: Sources**\
-`NASCAR's only playoff road course will be no more. The once-popular quirky circuit has seen a drop in fan sentiment in the Next Gen era.`\
-https://nytimes.com/athletic/6998311/2026/01/26/nascar-roval-playoff-race-charlotte-motor-speedway-oval/
-
-**Right now, 'nothing feels right' in Minneapolis. An NBA basketball game is no exception**\
-`Minnesotans hoped to "forget everything" for a moment at Warriors-Wolves. But amid city-wide unease, that simply wasn't possible.`\
-https://nytimes.com/athletic/6997890/2026/01/26/minnesota-ice-federal-agents-protestors-nba-game/
-
-**New Jersey’s Commute Is Off to a Rough Start**\
-`Much of the public transit options were limited or not running as of 9 a.m. on Monday.`\
-https://nytimes.com/2026/01/26/nyregion/winter-storm-new-jersey-commute.html
-
-**NBA Rewind: What does Giannis Antetokounmpo really want?**\
-`Plus, who's hot (Jusuf Nurkić?) and not (the Wizards), as well as three East contenders who need a big week.`\
-https://nytimes.com/athletic/6997417/2026/01/26/giannis-antetokounmpo-bucks-nba-rewind/
 
