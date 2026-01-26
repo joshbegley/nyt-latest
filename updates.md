@@ -1,3 +1,7 @@
+**Winter Storm Causes Travel Chaos, Knocks Out Power**\
+`A massive winter storm over the weekend shattered temperature records, downed power lines and led to travel chaos across the country.`\
+https://nytimes.com/video/video/100000010668092/winter-storm-causes-travel-chaos-knocks-out-power.html
+
 **Minneapolis Nurses Mourn One of Their Own, Alex Pretti**\
 `Nurses in Minneapolis joined a vigil on Sunday to mourn one of their own, Alex Pretti. A 2024 video shows him honoring a patient of his and saying, “freedom is not free. We have to work at it.”`\
 https://nytimes.com/video/us/100000010668000/alex-pretti-minneapolis-shooting.html
