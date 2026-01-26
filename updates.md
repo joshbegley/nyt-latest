@@ -1,3 +1,7 @@
+**Mamdani Clears Early Hurdles as Storm Bears Down on New York**\
+`Mayor Zohran Mamdani made use of his strong communication skills, and the Sanitation Department said every road was plowed at least twice by Sunday evening.`\
+https://nytimes.com/2026/01/25/nyregion/mamdani-snowstorm-performance-new-york.html
+
 **Defending Australian Open champion Madison Keys falls to Jessica Pegula in fourth round**\
 `Keys' reign ended in a straight-sets defeat to her compatriot and close friend.`\
 https://nytimes.com/athletic/6998147/2026/01/25/tennis-australian-open-madison-keys-jessica-pegula-result-analysis/
