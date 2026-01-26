@@ -1,3 +1,15 @@
+**Trump Briefed on Intelligence Saying Iran’s Government Is Weaker**\
+`Protests that erupted late last year shook elements of the Iranian government, according to the reports.`\
+https://nytimes.com/2026/01/26/us/politics/trump-reports-iran-government.html
+
+**Shootings Pose a Hard Question for the Right: Who’s a Conservative, Really?**\
+`Republicans wrestle with Trump administration positions that seem to contradict their beliefs on gun rights, states’ rights and limited use of federal power.`\
+https://nytimes.com/2026/01/26/us/politics/minneapolis-shooting-trump-ice-gop.html
+
+**Trump Says He Will Raise Tariffs on South Korea to 25%**\
+`President Trump threatened to increase tariffs on South Korean exports, including cars, citing the country’s slow ratification of a trade deal.`\
+https://nytimes.com/2026/01/26/business/economy/trump-tariffs-south-korea.html
+
 **F.A.A. Rolls Out Agency Overhaul for Improving Air Safety**\
 `The announcement of a reorganization comes nearly a year after a midair collision killed 67 people and prompted a public outcry for enhancing the security of aviation travel.`\
 https://nytimes.com/2026/01/26/us/politics/faa-overhaul-safety-modernization.html
@@ -23,18 +35,6 @@ https://nytimes.com/athletic/7000577/2026/01/26/nfl-super-bowl-seahawks-patriots
 https://nytimes.com/athletic/7000467/2026/01/26/sf-giants-harrison-bader-free-agent-signing-outfield-defense/
 
 **A Year Past a Fatal Crash, Concerns About Safety at Reagan Airport Continue**\
-`The Federal Aviation Administration says it has reduced traffic in and out of the airport and resigned safer routes. Crash victims’ families want more.`\
+`The Federal Aviation Administration says it has reduced traffic in and out of the airport and designed safer routes. Crash victims’ families want more.`\
 https://nytimes.com/2026/01/26/us/politics/reagan-national-airport-crash.html
-
-**White House event with Trump, sports commissioners delayed by snow: Sources**\
-`The event was expected to involve a presentation of the administration's plans to use sports to help mark America's 250th birthday.`\
-https://nytimes.com/athletic/7000510/2026/01/26/white-house-event-with-trump-sports-commissioners-is-delayed-by-snow-sources/
-
-**How Does Climate Change Affect Winter Storms?**\
-`A warmer atmosphere has the potential to hold more moisture, which can contribute to heavier precipitation in any season, scientists say.`\
-https://nytimes.com/2026/01/26/weather/winter-storm-climate-change-snow.html
-
-**What Minneapolis Means for the Country and Its Politics**\
-`Our reporter who spent time in the city weighed in on how the chaos is changing the political landscape.`\
-https://nytimes.com/2026/01/26/us/politics/minneapolis-protests-midterm-politics.html
 
