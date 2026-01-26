@@ -1,3 +1,11 @@
+**Send Colton Pouncy your Lions mailbag questions**\
+`Detroit is coming off a 9-8, no-playoff season. The Lions fired their OC and hired a new one. Send us your mailbag questions.`\
+https://nytimes.com/athletic/6999576/2026/01/26/detroit-lions-mailbag-questions-request-colton-pouncy/
+
+**How to watch Mammoth vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6999591/2026/01/26/mammoth-vs-lightning-stream-how-to-watch-jan-26/
+
 **How to watch Islanders vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6999565/2026/01/26/islanders-vs-flyers-stream-how-to-watch-jan-26/
