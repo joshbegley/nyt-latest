@@ -1,5 +1,9 @@
+**False Posts and Altered Images Distort Views of Minnesota Shooting**\
+`Some social media posts tried to warp the evidence of the killing of a nurse in Minneapolis, including in ways intended to support the Trump administration’s narrative about it.`\
+https://nytimes.com/2026/01/25/us/minnesota-shooting-false-posts.html
+
 **Scottie Scheffler wins Amex in first start of year, makes history along way**\
-`Scheffler joins Tiger Woods and Jack Nicklaus as only golfers to win 20 PGA Tour events and four majors before turning 30.`\
+`Scheffler joins Tiger Woods and Jack Nicklaus as the only golfers to win 20 PGA Tour events and four majors before turning 30.`\
 https://nytimes.com/athletic/6998020/2026/01/25/scottie-scheffler-wins-amex-history/
 
 **Winter Storm Blankets Eastern U.S. With Heavy Snow**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/25/obituaries/george-cabot-lodge-dead.html
 **'Wienie 500' to return to Indianapolis Motor Speedway for second helping of viral race**\
 `The 2026 edition of the race will be held on May 22, two days before the Indy 500, and broadcast live on Fox. `\
 https://nytimes.com/athletic/6995843/2026/01/25/wienie-500-indianapolis-motor-speedway-returns/
-
-**Patriots hold off Broncos in wintry AFC Championship Game, advance to Super Bowl LX**\
-`A third-quarter field goal from Andy Borregales proved to be the difference as the Patriots earned a hard-fought, 10-7 victory on the road.`\
-https://nytimes.com/athletic/6997739/2026/01/25/patriots-broncos-score-result-takeaways-afc-championship-game/
 
