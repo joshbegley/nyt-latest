@@ -1,3 +1,11 @@
+**Super Bowl MVP odds: The NFL's surprise main character is favored to win the award**\
+`The Seahawks dominate the Super Bowl MVP market, with their QB leading the pack.`\
+https://nytimes.com/athletic/6999333/2026/01/26/super-bowl-mvp-betting-odds-darnold-maye-smith-njigba/
+
+**Browns QB Shedeur Sanders named AFC Pro Bowl replacement**\
+`Sanders, a 2025 fifth-round pick, started seven games as a rookie and threw for 1,400 yards, seven touchdowns and 10 interceptions. `\
+https://nytimes.com/athletic/6999981/2026/01/26/browns-qb-shedeur-sanders-pro-bowl-replacement/
+
 **Art Stars Remember the Legendary Steward Marian Goodman**\
 `William Kentridge, Steve McQueen, Julie Mehretu, Tacita Dean and other leading figures celebrate a ferocious dealer and champion who changed their lives.`\
 https://nytimes.com/2026/01/26/arts/design/mehretu-mcqueen-kentridge-marian-goodman-dealer.html
