@@ -1,3 +1,19 @@
+**Trump Briefed on Intelligence Saying Iran’s Government Is Weaker**\
+`Protests that erupted late last year shook elements of the Iranian government, according to the reports.`\
+https://nytimes.com/2026/01/26/us/politics/trump-reports-iran-government.html
+
+**Shootings Pose a Hard Question for the Right: Who’s a Conservative, Really?**\
+`Republicans wrestle with Trump administration positions that seem to contradict their beliefs on gun rights, states’ rights and limited use of federal power.`\
+https://nytimes.com/2026/01/26/us/politics/minneapolis-shooting-trump-ice-gop.html
+
+**Trump Says He Will Raise Tariffs on South Korea to 25%**\
+`President Trump threatened to increase tariffs on South Korean exports, including cars, citing the country’s slow ratification of a trade deal.`\
+https://nytimes.com/2026/01/26/business/economy/trump-tariffs-south-korea.html
+
+**A Year Past a Fatal Crash, Concerns About Safety at Reagan Airport Continue**\
+`The Federal Aviation Administration says it has reduced traffic in and out of the airport and designed safer routes. Crash victims’ families want more.`\
+https://nytimes.com/2026/01/26/us/politics/reagan-national-airport-crash.html
+
 **F.A.A. Rolls Out Agency Overhaul for Improving Air Safety**\
 `The announcement of a reorganization comes nearly a year after a midair collision killed 67 people and prompted a public outcry for enhancing the security of aviation travel.`\
 https://nytimes.com/2026/01/26/us/politics/faa-overhaul-safety-modernization.html

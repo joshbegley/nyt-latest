@@ -1,3 +1,7 @@
+**Kyle Rittenhouse Is Once Again a Lightning Rod Online**\
+`After the death of Alex Pretti, some people are posting about a different young man who brought a gun to a protest and the treatment he received from law enforcement agents.`\
+https://nytimes.com/2026/01/26/style/alex-pretti-kyle-rittenhouse-online.html
+
 **Trump Briefed on Intelligence Saying Iran’s Government Is Weaker**\
 `Protests that erupted late last year shook elements of the Iranian government, according to the reports.`\
 https://nytimes.com/2026/01/26/us/politics/trump-reports-iran-government.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7000577/2026/01/26/nfl-super-bowl-seahawks-patriots
 **With center fielder Harrison Bader, Giants get the dynamic defender they needed**\
 `After the Giants' outfield ranked among the league's worst defensive units in 2025, Bader's glove should provide some stability.`\
 https://nytimes.com/athletic/7000467/2026/01/26/sf-giants-harrison-bader-free-agent-signing-outfield-defense/
-
-**A Year Past a Fatal Crash, Concerns About Safety at Reagan Airport Continue**\
-`The Federal Aviation Administration says it has reduced traffic in and out of the airport and designed safer routes. Crash victims’ families want more.`\
-https://nytimes.com/2026/01/26/us/politics/reagan-national-airport-crash.html
 
