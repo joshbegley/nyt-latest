@@ -1,3 +1,11 @@
+**Minneapolis Nurses Mourn One of Their Own, Alex Pretti**\
+`Nurses in Minneapolis joined a vigil on Sunday to mourn one of their own, Alex Pretti. A 2024 video shows him honoring a patient of his and saying, “freedom is not free. We have to work at it.”`\
+https://nytimes.com/video/us/100000010668000/alex-pretti-minneapolis-shooting.html
+
+**Gunmen Kill 11 After Soccer Match in Mexico**\
+`The mass shooting occurred in an area fought over by drug cartels, just as the Mexican government has sought to show Washington that it is combating criminal groups.`\
+https://nytimes.com/2026/01/26/world/americas/mexico-shooting-salamanca-cartels.html
+
 **Word of the Day: precursor**\
 `This word has appeared in 310 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/26/learning/word-of-the-day-precursor.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6997655/2026/01/26/manchester-city-title-race-premi
 **Rigorous defensive organisation helps Aston Villa buck St James' Park trend**\
 `This was a defensive performance from Villa that took away Newcastle’s best strengths and made them predictable`\
 https://nytimes.com/athletic/6997294/2026/01/26/aston-villa-newcastle-st-james-park-defensive-organisation/
-
-**A lack of specialist right-backs is hindering Brighton - they need another**\
-`The defensive shortfall came back to bite them during Saturday's 2-1 defeat at Fulham`\
-https://nytimes.com/athletic/6995770/2026/01/26/brighton-right-backs/
-
-**Paqueta's West Ham exit could end up being a positive. Just look at Fernandes**\
-`Victory over Sunderland made it three consecutive wins in all competitions for West Ham and one player in particular stood out`\
-https://nytimes.com/athletic/6995623/2026/01/26/west-ham-sunderland-lucas-paqueta/
 
