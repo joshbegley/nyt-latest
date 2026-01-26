@@ -1,3 +1,7 @@
+**Democrats Embrace a Shutdown Fight They Wanted to Avoid**\
+`After a second fatal shooting of a U.S. citizen in Minneapolis, Democrats say public opinion is on their side and they are willing to risk a backlash to counter what they see as police-state tactics.`\
+https://nytimes.com/2026/01/26/us/politics/democrats-shutdown-ice-shooting.html
+
 **How We Determined That Minneapolis Videos Contradicted Federal Officials**\
 `Using more than a dozen videos related to the shooting of Alex Pretti, The Times worked to establish what is called ground truth: what happened, how it happened and who might be responsible.`\
 https://nytimes.com/2026/01/26/insider/minneapolis-ice-shooting-videos-investigation.html

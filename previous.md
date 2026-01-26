@@ -1,3 +1,7 @@
+**Democrats Embrace a Shutdown Fight They Wanted to Avoid**\
+`After a second fatal shooting of a U.S. citizen in Minneapolis, Democrats say public opinion is on their side and they are willing to risk a backlash to counter what they see as police-state tactics.`\
+https://nytimes.com/2026/01/26/us/politics/democrats-shutdown-ice-shooting.html
+
 **How We Determined That Minneapolis Videos Contradicted Federal Officials**\
 `Using more than a dozen videos related to the shooting of Alex Pretti, The Times worked to establish what is called ground truth: what happened, how it happened and who might be responsible.`\
 https://nytimes.com/2026/01/26/insider/minneapolis-ice-shooting-videos-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/26/us/minnesota-ice-hearing.html
 **Barcelona's Fermin set to extend contract through to 2031**\
 `The 22-year-old has scored 10 goals for Hansi Flick's side this season and has provided six assists, despite groin injury setbacks.`\
 https://nytimes.com/athletic/7000018/2026/01/26/fermin-lopez-barcelona-contract/
-
-**Why Chiefs’ Andy Reid was fired up talking about Eric Bieniemy — and Matt Nagy**\
-`Reid was animated with reporters during a Monday news conference. Here's what fired him up.`\
-https://nytimes.com/athletic/7000103/2026/01/26/chiefs-andy-reid-matt-nagy-eric-bieniemy/
 
