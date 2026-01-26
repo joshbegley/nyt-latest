@@ -1,3 +1,19 @@
+**A New Way to Flirt: Dazzle Potential Mates With Patterns Invisible to Humans**\
+`Cuttlefish attract prospective sexual partners by creating a pattern on their skin, based on the orientation of light waves.`\
+https://nytimes.com/2026/01/26/science/cuttlefish-camouflage-sexual-display.html
+
+**430,000-Year-Old Wooden Tools Are the Oldest Ever Found**\
+`The finding, along with the discovery of a 500,000-year-old hammer made of bone, indicates that our human ancestors were making tools even earlier than archaeologists thought.`\
+https://nytimes.com/2026/01/26/science/archaeology-neanderthals-tools.html
+
+**Democrat Who Voted for D.H.S. Funding Suggests He Now Regrets It**\
+`A small group of Democrats who supported a spending bill for the Department of Homeland Security were on the defensive after the fatal shooting by a federal agent in Minneapolis.`\
+https://nytimes.com/2026/01/26/us/democrats-ice-funding-vote-dhs.html
+
+**Trump Pivots From Attacks on Walz After Call**\
+`President Trump, facing growing criticism of the tactics of immigration agents in Minnesota, shifted from attacking the state’s governor to stressing cooperation.`\
+https://nytimes.com/2026/01/26/us/politics/trump-walz-minneapolis.html
+
 **Washington Post Reverses Decision on Olympics Coverage**\
 `The newspaper will send a small team of reporters to cover the Olympics after it informed sports journalists on Friday that the paper would not send a group.`\
 https://nytimes.com/2026/01/26/business/media/washington-post-reverses-decision-on-olympics-coverage.html
