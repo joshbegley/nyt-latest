@@ -1,3 +1,7 @@
+**Winter Storm Blankets Eastern U.S. With Heavy Snow**\
+`A powerful winter storm brought heavy snow, ice and freezing cold from Texas to New England. Parts of the Northeast were expecting 12 to 18 inches of snow.`\
+https://nytimes.com/video/weather/100000010667696/winter-storm-eastern-us-snow-ice-video.html
+
 **A Sunday Snowstorm Blankets New York**\
 `The city got about nine inches of snow and at least one person died from exposure to the cold as Mayor Zohran Mamdani faced his first big test in nuts-and-bolts governing.`\
 https://nytimes.com/2026/01/25/nyregion/snow-storm-new-york.html
