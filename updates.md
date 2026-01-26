@@ -1,3 +1,11 @@
+**Killing Prompts Only a Defiant Response From Trump**\
+`Even as the second death of a protester in Minnesota brought demands for accountability, the president, insulated from dissenting voices, stuck to his pattern of reflexively blaming opponents.`\
+https://nytimes.com/2026/01/25/us/politics/minneapolis-killing-trump-defiant-response.html
+
+**How the Trump Administration Rushed to Judgment in Minneapolis Shooting**\
+`The administration was in a race to control the narrative around the killing of Alex Pretti, even as videos emerged that contradicted the government’s account.`\
+https://nytimes.com/2026/01/25/us/trump-administration-minneapolis-shooting-response.html
+
 **False Posts and Altered Images Distort Views of Minnesota Shooting**\
 `Some social media posts tried to warp the evidence of the killing of a nurse in Minneapolis, including in ways intended to support the Trump administration’s narrative about it.`\
 https://nytimes.com/2026/01/25/us/minnesota-shooting-false-posts.html
