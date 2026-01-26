@@ -1,3 +1,7 @@
+**How to watch 76ers vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6999084/2026/01/26/76ers-vs-hornets-stream-how-to-watch-jan-26/
+
 **How to watch Pacers vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Indiana Pacers play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6999082/2026/01/26/pacers-vs-hawks-stream-how-to-watch-jan-26/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6997423/2026/01/26/49ers-super-bowl-window-cap-spac
 **Do You Know the Books Behind These Oscar-Winning Films?**\
 `As you consider last week’s nominations for the Academy Awards, test your knowledge of works that inspired previous winners with this short quiz.`\
 https://nytimes.com/interactive/2026/01/26/books/review/oscar-winning-books.html
-
-**Winter Storm Disrupts Air Travel Plans for Thousands on Monday**\
-`Delays and cancellations persisted, a day after more than 11,000 flights were canceled. Airports in the Northeast U.S. were hit the hardest.`\
-https://nytimes.com/2026/01/26/weather/storm-flight-cancellations-delays.html
 
