@@ -1,3 +1,11 @@
+**A timeline of the shifting Department of Homeland Security.**\
+`By Christina Morales`\
+https://nytimes.com/live/2026/01/27/us/minneapolis-shooting-ice-minnesota/dhs-ice-trump-timeline
+
+**Keith Law's top prospects: The baseball card outlooks for the 10 best**\
+`Using Law's latest rankings, we assess the booming baseball card market for the game's best prospects `\
+https://nytimes.com/athletic/7000874/2026/01/27/konnor-griffin-cards-mlb-prospects/
+
 **G.M. Shares Rise as Investors Are Encouraged by 2026 Prospects**\
 `The automaker said that it would buy back stock worth up to $6 billion and that it expected profit to rise this year after it pulled back from electric vehicle production.`\
 https://nytimes.com/2026/01/27/business/general-motors-earnings.html
