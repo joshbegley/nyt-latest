@@ -1,3 +1,15 @@
+**Resurgent Clippers give executive Lawrence Frank contract extension: Sources**\
+`The Clippers began the season 6-21, but are 15-3 in their last 18 games and have climbed into playoff contention.`\
+https://nytimes.com/athletic/7002640/2026/01/27/lawrence-frank-clippers-contract-extension-president-basketball-operations/
+
+**Judge Temporarily Blocks Deportation of 5-Year-Old Detained Near Minneapolis**\
+`An image of the boy, wearing a Spider-Man backpack as he was detained by federal agents, became a symbol of the immigration crackdown in Minnesota.`\
+https://nytimes.com/2026/01/27/us/ice-liam-ramos-minneapolis-deportation.html
+
+**Broncos fire offensive coordinator Joe Lombardi: Source**\
+`Lombardi was a part of head coach Sean Payton's initial staff when he was hired by the Broncos in 2023.`\
+https://nytimes.com/athletic/7002694/2026/01/27/broncos-fire-oc-joe-lombardi/
+
 **The Dream Palace of the Immigration Hard-Liners**\
 `Is this really the only way to enforce the law?`\
 https://nytimes.com/2026/01/27/opinion/ice-minneapolis-immigration-republicans.html

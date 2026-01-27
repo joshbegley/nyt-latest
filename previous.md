@@ -1,3 +1,15 @@
+**Resurgent Clippers give executive Lawrence Frank contract extension: Sources**\
+`The Clippers began the season 6-21, but are 15-3 in their last 18 games and have climbed into playoff contention.`\
+https://nytimes.com/athletic/7002640/2026/01/27/lawrence-frank-clippers-contract-extension-president-basketball-operations/
+
+**Judge Temporarily Blocks Deportation of 5-Year-Old Detained Near Minneapolis**\
+`An image of the boy, wearing a Spider-Man backpack as he was detained by federal agents, became a symbol of the immigration crackdown in Minnesota.`\
+https://nytimes.com/2026/01/27/us/ice-liam-ramos-minneapolis-deportation.html
+
+**Broncos fire offensive coordinator Joe Lombardi: Source**\
+`Lombardi was a part of head coach Sean Payton's initial staff when he was hired by the Broncos in 2023.`\
+https://nytimes.com/athletic/7002694/2026/01/27/broncos-fire-oc-joe-lombardi/
+
 **The Dream Palace of the Immigration Hard-Liners**\
 `Is this really the only way to enforce the law?`\
 https://nytimes.com/2026/01/27/opinion/ice-minneapolis-immigration-republicans.html
@@ -21,16 +33,4 @@ https://nytimes.com/paidpost/triptogo/triptogo-peru/triptogo-in-peru.html
 **Peter H. Duesberg, 89, Renowned Biologist Turned H.I.V. Denialist, Dies**\
 `His pioneering work on the origins of cancer was later overshadowed by his contrarian views, notably his rejection of the established theory that H.I.V. causes AIDS.`\
 https://nytimes.com/2026/01/27/science/peter-duesberg-dead.html
-
-**Should Iran’s Executioners Go Unpunished?**\
-`It’s left to the United States to impose meaningful consequences on the Iranian regime for one of the worst atrocities of this century.`\
-https://nytimes.com/2026/01/27/opinion/iran-regime-killing-protesters.html
-
-**Storm Deaths Reach 10, Testing Mamdani’s Handling of a Weather Emergency**\
-`After first saying that it did not appear that the dead were homeless people, Mayor Zohran Mamdani has vowed to do more to get people into shelters.`\
-https://nytimes.com/2026/01/27/nyregion/mamdani-storm-deaths-homeless.html
-
-**Former French Senator Convicted of Drugging a Colleague, Intending to Assault Her**\
-`The trial took on special resonance in France, a year after a court found Dominique Pelicot and dozens of other men guilty of raping Gisèle Pelicot while she was sedated.`\
-https://nytimes.com/2026/01/27/world/europe/french-senator-drug-assault.html
 
