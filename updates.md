@@ -1,3 +1,11 @@
+**Another Weekend Winter Storm? Here’s How the Forecast Is Shaping Up.**\
+`Meteorologists are watching another storm that could hit the East Coast this weekend.`\
+https://nytimes.com/2026/01/27/weather/next-winter-storm-forecast-snow-ice.html
+
+**Penguins forward Bryan Rust receives 3-game suspension for hit on Canucks' Brock Boeser**\
+`The illegal hit to the head came at the end of the Penguins' 3-2 win Sunday in Vancouver.`\
+https://nytimes.com/athletic/7001997/2026/01/27/penguins-bryan-rust-suspension-brock-boeser-hit/
+
 **Until Saturday: USC's first Super Bowl QB? Seriously?**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/7002159/2026/01/27/sam-darnold-usc-super-bowl-until-saturday/
