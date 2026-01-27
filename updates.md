@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Hamed Aleaziz, Ernesto Londoño, David E. Sanger, Mitch Smith and Max Kim`\
+https://nytimes.com/live/2026/01/27/us/minneapolis-shooting-ice-minnesota/heres-the-latest
+
+**Minneapolis Live Updates: Trump Shakes Up Immigration Crackdown Leadership**\
+`President Trump said his border czar, Tom Homan, will direct ICE operations in Minnesota. Gregory Bovino, a Border Patrol official, is set to depart amid growing anger over a second fatal shooting by federal agents.`\
+https://nytimes.com/live/2026/01/27/us/minneapolis-shooting-ice-minnesota
+
 **Man Utd's Dorgu set to miss around 10 weeks with hamstring injury**\
 `The 21-year-old has featured 22 times in the Premier League this season, recording three goals and three assists.`\
 https://nytimes.com/athletic/7001203/2026/01/27/manchester-uniteds-patrick-dorgu-set-to-miss-around-10-weeks-with-hamstring-injury/
