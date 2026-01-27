@@ -1,3 +1,11 @@
+**The emotional and tactical telepathy of coaching in tennis: 'I just expect them to read my mind'**\
+`Some players want ceaseless encouragement; some want silence; some want a vent — and it can change from point to point.`\
+https://nytimes.com/athletic/7001139/2026/01/27/tennis-players-coaches-dialogue-instruction-tactics/
+
+**Cowboys mock draft reaction: Defensive talent gap too big to ignore with 2 first-rounders**\
+`The Cowboys have needs at cornerback, edge rusher, linebacker and safety and could target those positions with their two first-round picks.`\
+https://nytimes.com/athletic/7001081/2026/01/27/cowboys-mock-draft-reaction-sonny-styles/
+
 **Spain should host 2030 World Cup final, says FA chief after ‘damaging’ AFCON scenes**\
 `Spain, Morocco and Portugal will co-host the 2030 tournament, with Argentina, Paraguay and Uruguay hosting one game each.`\
 https://nytimes.com/athletic/7000501/2026/01/27/world-cup-2030-final-spain-morocco/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7001272/2026/01/27/coco-gauff-racket-smash-australi
 **Perreault, Robertson prove Rangers must turn to youth in a lost season**\
 `The Rangers' youngest players made the biggest splashes against the Bruins, but didn't necessarily receive much ice time.`\
 https://nytimes.com/athletic/7000931/2026/01/27/rangers-youth-perreault-robertson-bruins/
-
-**'John is in our pantheon': Wall and the Wizards have found each other again after a bad breakup**\
-`Wall has been welcomed back with open arms, as teams often do with their franchise's most iconic talents, no matter the previous ending.`\
-https://nytimes.com/athletic/6963343/2026/01/27/john-wall-wizards-appreciation-night-honor/
-
-**How the NHL/NHLPA player assistance program works, from consultation to treatment to release**\
-`To help increase understanding of what the program does — and how — Marty Walsh and several players agreed to share their experiences.`\
-https://nytimes.com/athletic/6227932/2026/01/27/nhl-nhlpa-player-assistance-program-how-it-works/
 

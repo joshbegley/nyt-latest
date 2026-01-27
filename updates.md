@@ -1,3 +1,11 @@
+**The emotional and tactical telepathy of coaching in tennis: 'I just expect them to read my mind'**\
+`Some players want ceaseless encouragement; some want silence; some want a vent — and it can change from point to point.`\
+https://nytimes.com/athletic/7001139/2026/01/27/tennis-players-coaches-dialogue-instruction-tactics/
+
+**Cowboys mock draft reaction: Defensive talent gap too big to ignore with 2 first-rounders**\
+`The Cowboys have needs at cornerback, edge rusher, linebacker and safety and could target those positions with their two first-round picks.`\
+https://nytimes.com/athletic/7001081/2026/01/27/cowboys-mock-draft-reaction-sonny-styles/
+
 **Spain should host 2030 World Cup final, says FA chief after ‘damaging’ AFCON scenes**\
 `Spain, Morocco and Portugal will co-host the 2030 tournament, with Argentina, Paraguay and Uruguay hosting one game each.`\
 https://nytimes.com/athletic/7000501/2026/01/27/world-cup-2030-final-spain-morocco/
