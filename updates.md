@@ -1,3 +1,8 @@
+**Ekholm's hat trick leads Oilers defensemen to historic game vs. Ducks**\
+`Spencer Stastney, Mattias Ekholm and Darnell Nurse combined for the fastest four goals by defensemen in league history against the Ducks.
+`\
+https://nytimes.com/athletic/7001577/2026/01/27/oilers-defencemen-scoring-record/
+
 **Times/Siena Poll Data**\
 `Results from Times/Siena polls conducted since Sept. 2022. Cross-tabs are linked to from the topline results pages.`\
 https://nytimes.com/spotlight/times-siena-polls
