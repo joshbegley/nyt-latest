@@ -1,3 +1,11 @@
+**Michigan Sues Oil Giants, Saying They Collude to Make Energy Costlier**\
+`The lawsuit accuses the companies of raising prices by working against solar and wind power and by downplaying the risks of climate change.`\
+https://nytimes.com/2026/01/27/climate/michigan-oil-companies-lawsuit-antitrust-affordability.html
+
+**Meet the Grammys’ Best New Artist Nominees**\
+`Prepare for the awards on Sunday with a primer on one of the four biggest categories, featuring Olivia Dean, Sombr, Addison Rae and more.`\
+https://nytimes.com/2026/01/27/arts/music/amplifier-newsletter-grammy-best-new-artist.html
+
 **Scanning Ice for Monster Cracks, on This World and Another**\
 `Scientists are using radar to study damaged ice both in Antarctica and, with the help of a NASA spacecraft, on Jupiter’s ocean moon of Europa.`\
 https://nytimes.com/2026/01/27/climate/antarctica-thwaites-radar.html

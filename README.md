@@ -1,3 +1,11 @@
+**Yankees promote Mario Garza to lead beleaguered international scouting department**\
+`After weeks of uncertainty surrounding their international scouting department, the Yankees have promoted Garza as they overhaul the group.`\
+https://nytimes.com/athletic/7002078/2026/01/27/yankees-mario-garza-international-scouting/
+
+**How Computer Warfare Is Becoming Part of the Pentagon’s Arsenal**\
+`The military tested a new approach in Venezuela and during strikes on Iranian nuclear facilities.`\
+https://nytimes.com/2026/01/27/us/politics/pentagon-computer-warfare.html
+
 **Michigan Sues Oil Giants, Saying They Collude to Make Energy Costlier**\
 `The lawsuit accuses the companies of raising prices by working against solar and wind power and by downplaying the risks of climate change.`\
 https://nytimes.com/2026/01/27/climate/michigan-oil-companies-lawsuit-antitrust-affordability.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/27/us/politics/minnesota-politics-immigration-trump.
 **Breaking Silence, Eleanor Holmes Norton Announces Retirement**\
 `The 88-year-old nonvoting delegate for Washington, D.C., who has retreated from her duties amid declining health, made it official that she would retire at the end of her term.`\
 https://nytimes.com/2026/01/27/us/politics/eleanor-holmes-norton-retirement-congress.html
-
-**A Backlash Against ICE’s ‘Army of Occupation’**\
-`Readers react to news and an editorial about the unrest in Minneapolis. Also: Vaccines and health priorities.`\
-https://nytimes.com/2026/01/27/opinion/minneapolis-ice-shooting.html
-
-**How to Improve Your Life**\
-`Guides from T Magazine on everything from organization to travel.`\
-https://nytimes.com/spotlight/how-to-improve-your-life
 
