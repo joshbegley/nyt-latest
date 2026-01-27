@@ -1,3 +1,11 @@
+**NHL's Department of Player Safety will now handle all player discipline calls**\
+`Instead of handling only physical incidents, the DoPS will now determine supplemental discipline for all league rule violations.`\
+https://nytimes.com/athletic/7002816/2026/01/27/nhl-department-of-player-safety-discipline-policy-change/
+
+**Gladys West, Unsung Figure in Development of GPS, Dies at 95**\
+`As a Navy mathematician in the 1950s and beyond, she played an unheralded but foundational role in making possible the global satellite-based mapping system.`\
+https://nytimes.com/2026/01/27/science/gladys-west-dead.html
+
 **Democrats Push to Impeach and Investigate Noem**\
 `Following the fatal shooting in Minneapolis, a drive to impeach the homeland security secretary has drawn dozens more Democratic supporters, including the party’s top three leaders.`\
 https://nytimes.com/2026/01/27/us/kristi-noem-dhs-impeach-minneapolis.html
