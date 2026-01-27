@@ -1,3 +1,7 @@
+**Test Your Brain Rot: Can You Define ‘Lowkenuinely’?**\
+`This is a series about the mysteries of internet speak.`\
+https://nytimes.com/2026/01/27/style/test-your-brain-rot-can-you-define-lowkenuinely.html
+
 **How Iran Crushed an Uprising**\
 `A visual investigation by The New York Times shows the breadth and ferocity of the regime’s crackdown across the country.`\
 https://nytimes.com/2026/01/27/world/iran-protests-crackdown-eu-india-trade.html

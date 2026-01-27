@@ -1,3 +1,7 @@
+**Test Your Brain Rot: Can You Define ‘Lowkenuinely’?**\
+`This is a series about the mysteries of internet speak.`\
+https://nytimes.com/2026/01/27/style/test-your-brain-rot-can-you-define-lowkenuinely.html
+
 **How Iran Crushed an Uprising**\
 `A visual investigation by The New York Times shows the breadth and ferocity of the regime’s crackdown across the country.`\
 https://nytimes.com/2026/01/27/world/iran-protests-crackdown-eu-india-trade.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7002382/2026/01/27/nba-illegal-betting-investigatio
 **Creamy Tomato Hummus Soup**\
 `This delicious, dairy-free alternative to classic tomato soup delivers the same comfort as the original, thanks to a surprising store-bought ingredient: hummus.`\
 https://nytimes.com/video/dining/100000010671368/creamy-tomato-hummus-soup.html
-
-**Texas Moves to Curtail Visas for Skilled Foreign Workers**\
-`Gov. Greg Abbott said the state would investigate public agencies and universities that employ those with H-1B visas, a program the Trump administration has also targeted.`\
-https://nytimes.com/2026/01/27/us/texas-immigrants-h1b-visas.html
 
