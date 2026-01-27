@@ -1,3 +1,7 @@
+**Virginia Judge Blocks Democrats’ Efforts to Redraw Congressional Maps**\
+`Democratic leaders vowed to appeal the lower court ruling, which found that the legislative process behind the redistricting push was improper.`\
+https://nytimes.com/2026/01/27/us/virginia-court-ruling-redistricting.html
+
 **U.S. Population Growth Slows Sharply**\
 `Also, some good news for a Broadway musical. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2026/01/27/briefing/us-population-growth-fema-delays.html

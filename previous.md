@@ -1,3 +1,7 @@
+**Virginia Judge Blocks Democrats’ Efforts to Redraw Congressional Maps**\
+`Democratic leaders vowed to appeal the lower court ruling, which found that the legislative process behind the redistricting push was improper.`\
+https://nytimes.com/2026/01/27/us/virginia-court-ruling-redistricting.html
+
 **U.S. Population Growth Slows Sharply**\
 `Also, some good news for a Broadway musical. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2026/01/27/briefing/us-population-growth-fema-delays.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7002742/2026/01/27/bill-belichick-patriots-hall-of-
 **Resurgent Clippers give executive Lawrence Frank contract extension: Sources**\
 `The Clippers began the season 6-21, but are 15-3 in their last 18 games and have climbed into playoff contention.`\
 https://nytimes.com/athletic/7002640/2026/01/27/lawrence-frank-clippers-contract-extension-president-basketball-operations/
-
-**Judge Temporarily Blocks Deportation of 5-Year-Old Detained in Minneapolis Suburb**\
-`An image of the boy, wearing a Spider-Man backpack as he was detained by federal agents, became a symbol of the immigration crackdown in Minnesota.`\
-https://nytimes.com/2026/01/27/us/ice-liam-ramos-minneapolis-deportation.html
 
