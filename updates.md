@@ -1,3 +1,7 @@
+**Bari Weiss Urges CBS News to Think Like a ‘Start-Up’**\
+`“We are not producing a product enough people want,” Ms. Weiss told employees at her first all-staff meeting at the network.`\
+https://nytimes.com/2026/01/27/business/media/bari-weiss-cbs-news-town-hall.html
+
 **White Bean Shakshuka**\
 `This white bean shakshuka is heartier than the traditional version and takes advantage of two readily available pantry foods: white beans and jarred marinara sauce.`\
 https://nytimes.com/video/dining/100000010671370/white-bean-shakshuka.html

@@ -1,3 +1,7 @@
+**Bari Weiss Urges CBS News to Think Like a ‘Start-Up’**\
+`“We are not producing a product enough people want,” Ms. Weiss told employees at her first all-staff meeting at the network.`\
+https://nytimes.com/2026/01/27/business/media/bari-weiss-cbs-news-town-hall.html
+
 **White Bean Shakshuka**\
 `This white bean shakshuka is heartier than the traditional version and takes advantage of two readily available pantry foods: white beans and jarred marinara sauce.`\
 https://nytimes.com/video/dining/100000010671370/white-bean-shakshuka.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/27/climate/noaa-deep-sea-mining.html
 **Bucking a Global Trend, Spain Offers Undocumented Migrants a Legal Way to Stay**\
 `The measure, unexpectedly approved, comes as other countries are cracking down on immigration.`\
 https://nytimes.com/2026/01/27/world/europe/spain-undocumented-migrants-residency.html
-
-**How to watch Pistons vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7002494/2026/01/27/pistons-vs-nuggets-stream-how-to-watch-jan-27/
 
