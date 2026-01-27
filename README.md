@@ -1,3 +1,7 @@
+**A timeline of the shifting Department of Homeland Security.**\
+`By Christina Morales`\
+https://nytimes.com/live/2026/01/27/us/minneapolis-shooting-ice-minnesota/dhs-ice-trump-timeline
+
 **Keith Law's top prospects: The baseball card outlooks for the 10 best**\
 `Using Law's latest rankings, we assess the booming baseball card market for the game's best prospects `\
 https://nytimes.com/athletic/7000874/2026/01/27/konnor-griffin-cards-mlb-prospects/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7000527/2026/01/27/australian-open-recap-day-10-res
 **How did No. 5 Nebraska — a perennial college basketball loser — get this good?**\
 `Nearly everything has gone right for a Nebraska program whose fans grew accustomed to everything going wrong.`\
 https://nytimes.com/athletic/7001390/2026/01/27/nebraska-basketball-ncaa-tournament-fred-hoiberg/
-
-**Trump Administration Live Updates: President to Focus on Economy in Iowa Speech**\
-``\
-https://nytimes.com/live/2026/01/27/us/trump-news
 
