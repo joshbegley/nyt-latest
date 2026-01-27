@@ -1,3 +1,19 @@
+**Democrats Push to Impeach and Investigate Noem**\
+`Following the fatal shooting in Minneapolis, a drive to impeach the homeland security secretary has drawn dozens more Democratic supporters, including the party’s top three leaders.`\
+https://nytimes.com/2026/01/27/us/kristi-noem-dhs-impeach-minneapolis.html
+
+**Trump Calls for ‘Honest’ Inquiry Into Alex Pretti Shooting**\
+`President Trump said that he will be “watching over” the investigation in the fatal shooting of Alex Pretti. He also said faulted Mr. Pretti for carrying a gun.`\
+https://nytimes.com/video/us/politics/100000010672364/trump-alex-pretti.html
+
+**Atletico Nacional agree deal to sign San Jose's Chicho Arango: Sources**\
+`Arango only signed a new, long-term contract this offseason.`\
+https://nytimes.com/athletic/7002763/2026/01/27/chicho-arango-atletico-nacional-san-jose-transfer/
+
+**Judge Temporarily Blocks Deportation of 5-Year-Old Detained in Minneapolis Suburb**\
+`An image of the boy, wearing a Spider-Man backpack as he was detained by federal agents, became a symbol of the immigration crackdown in Minnesota.`\
+https://nytimes.com/2026/01/27/us/ice-liam-ramos-minneapolis-deportation.html
+
 **Judge Revives Wind Farm That Trump Halted Off Martha’s Vineyard**\
 `The project, known as Vineyard Wind, was already 95 percent complete when the Trump administration ordered construction to stop.`\
 https://nytimes.com/2026/01/27/climate/judge-offshore-wind-vineyard-massachusetts.html
