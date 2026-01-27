@@ -1,3 +1,7 @@
+**Republican Ends His Run for Minnesota Governor, Citing Immigration Crackdown**\
+`Chris Madel, a defense lawyer, called the operation “simply a disaster.” His decision comes two days after a second fatal shooting by federal agents in Minneapolis.`\
+https://nytimes.com/2026/01/26/us/politics/chris-madel-minnesota-governor-immigration.html
+
 **'Upsetting on so many levels': Emma Hayes speaks on fatal Minnesota shooting**\
 `Hayes has joined a growing chorus of sports figures who have spoken out in the days after the fatal shooting.`\
 https://nytimes.com/athletic/7000691/2026/01/26/emma-hayes-uswnt-minnesota-shooting-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/26/us/politics/trump-rare-earth-howard-lutnick.html
 **Twins, Joe Ryan avoid arbitration, agree to deal worth $6.2 million: Sources**\
 `Plus notes on Taylor Rogers' return to Minnesota, Bailey Ober's offseason work and potential plans for Luke Keaschall.`\
 https://nytimes.com/athletic/7000543/2026/01/26/minnesota-twins-joe-ryan-avoid-arbitration-sources/
-
-**Sources: Toulouse bids for Columbus, Canada forward Russell-Rowe**\
-`The Canadian World Cup hopeful is a transfer target for the Ligue 1 side`\
-https://nytimes.com/athletic/7000473/2026/01/26/toulouse-jacen-russell-rowe-transfer-bid-columbus-crew-canada/
 
