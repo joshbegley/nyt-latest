@@ -1,3 +1,11 @@
+**OpenAI’s Altman and More C.E.O.s Weigh In on Minnesota**\
+`Business leaders continue to feel pressure to speak out about the immigration crackdown and the fatal shooting of two U.S. citizens.`\
+https://nytimes.com/2026/01/27/business/dealbook/altman-openai-minnesota.html
+
+**NCAA looking into Dabo Swinney's tampering accusations against Ole Miss**\
+`Though the organization did not provide specifics, officials have been in direct contact with Clemson about Swinney’s allegations.`\
+https://nytimes.com/athletic/7000655/2026/01/27/ncaa-dabo-swinney-ole-miss-tampering/
+
 **Australian Open recap: A home hope gets philosophical about tennis expectations**\
 `Alex de Minaur's Grand Slam record is enviable — but the Sisyphean losses to greats old and new are mounting.`\
 https://nytimes.com/athletic/7000527/2026/01/27/australian-open-recap-day-10-results-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/27/us/body-cam-video-alex-pretti-minneapolis-shootin
 **How will things end between Darian Mensah, Duke and Miami?**\
 `Lawyers specializing in sports, entertainment or employment weigh in about this first-of-its-kind case and where it’s going.`\
 https://nytimes.com/athletic/7000857/2026/01/27/darian-mensah-duke-lawsuit-miami-transfer-portal/
-
-**WSL overseer announces £8.2m loss but profits expected to follow**\
-`The operating loss does not include the impact of the WSL’s improved broadcast deal with Sky Sports and the BBC from the start of this term.`\
-https://nytimes.com/athletic/7001323/2026/01/27/wslf-finances-2024-25-womens-football/
-
-**BAFTA Nominations: ‘One Battle After Another’ and ‘Sinners’ Face Off**\
-`“Hamnet,” “Marty Supreme” and “Sentimental Value” are also in the running for best film at Britain’s equivalent of the Oscars.`\
-https://nytimes.com/2026/01/27/movies/bafta-nominations-one-battle-after-another-sinners.html
 

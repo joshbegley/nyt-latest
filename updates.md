@@ -1,3 +1,7 @@
+**Australian Open recap: A home hope gets philosophical about tennis expectations**\
+`Alex de Minaur's Grand Slam record is enviable — but the Sisyphean losses to greats old and new are mounting.`\
+https://nytimes.com/athletic/7000527/2026/01/27/australian-open-recap-day-10-results-analysis/
+
 **BAFTA Nominations: ‘One Battle After Another’ and ‘Sinners’ Face Off**\
 `“Hamnet,” “Marty Supreme” and “Sentimental Value” are also in the running for best film at Britain’s equivalent of the Oscars.`\
 https://nytimes.com/2026/01/27/movies/bafta-nominations-one-battle-after-another-sinners.html
