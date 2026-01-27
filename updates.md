@@ -1,3 +1,15 @@
+**Senator Warnock Says ‘Soul of Our Nation Is at Stake’ During Visit to Minneapolis**\
+`The Georgia Democrat said he would push to block ICE funding when he returned to Washington.`\
+https://nytimes.com/2026/01/27/us/senator-warnock-minneapolis.html
+
+**Drake Maye 'ready to go' for Super Bowl amid questions about shoulder injury**\
+`Following a less-than-stellar passing performance in the AFC Championship Game, Maye is facing questions about the health of his shoulder.`\
+https://nytimes.com/athletic/7002399/2026/01/27/drake-maye-shoulder-patriots-injury-super-bowl/
+
+**A Shift for NOAA’s Surveys: From Science to Mining**\
+`A $20 million agency project will aid companies prospecting the sea for rare-earth elements.`\
+https://nytimes.com/2026/01/27/climate/noaa-deep-sea-mining.html
+
 **Bucking a Global Trend, Spain Offers Undocumented Migrants a Legal Way to Stay**\
 `The measure, unexpectedly approved, comes as other countries are cracking down on immigration.`\
 https://nytimes.com/2026/01/27/world/europe/spain-undocumented-migrants-residency.html

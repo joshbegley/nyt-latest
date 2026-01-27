@@ -1,3 +1,15 @@
+**Senator Warnock Says ‘Soul of Our Nation Is at Stake’ During Visit to Minneapolis**\
+`The Georgia Democrat said he would push to block ICE funding when he returned to Washington.`\
+https://nytimes.com/2026/01/27/us/senator-warnock-minneapolis.html
+
+**Drake Maye 'ready to go' for Super Bowl amid questions about shoulder injury**\
+`Following a less-than-stellar passing performance in the AFC Championship Game, Maye is facing questions about the health of his shoulder.`\
+https://nytimes.com/athletic/7002399/2026/01/27/drake-maye-shoulder-patriots-injury-super-bowl/
+
+**A Shift for NOAA’s Surveys: From Science to Mining**\
+`A $20 million agency project will aid companies prospecting the sea for rare-earth elements.`\
+https://nytimes.com/2026/01/27/climate/noaa-deep-sea-mining.html
+
 **Bucking a Global Trend, Spain Offers Undocumented Migrants a Legal Way to Stay**\
 `The measure, unexpectedly approved, comes as other countries are cracking down on immigration.`\
 https://nytimes.com/2026/01/27/world/europe/spain-undocumented-migrants-residency.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7002474/2026/01/27/kings-vs-knicks-stream-how-to-wa
 **How to watch Capitals vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7002470/2026/01/27/capitals-vs-kraken-stream-how-to-watch-jan-27/
-
-**How to watch Bucks vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7002468/2026/01/27/bucks-vs-76ers-stream-how-to-watch-jan-27/
-
-**How to watch Sharks vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7002464/2026/01/27/sharks-vs-canucks-stream-how-to-watch-jan-27/
-
-**How to watch Pelicans vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7002462/2026/01/27/pelicans-vs-thunder-stream-how-to-watch-jan-27/
 
