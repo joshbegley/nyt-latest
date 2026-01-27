@@ -1,3 +1,7 @@
+**Winter Storm Debilitates the South, Encasing Cities in Ice and Snow**\
+`The forecasts had predicted that the storm could be among the worst in a generation to hit the region. By Monday, it was clear that is exactly what happened.`\
+https://nytimes.com/2026/01/26/weather/south-us-winter-storm-snow-ice.html
+
 **Women's tennis tour to investigate misconduct allegations against Peyton Stearns' coach**\
 `They concern Rafael Font de Mora’s alleged misconduct and inappropriate relationships with players during his previous time on the tour.`\
 https://nytimes.com/athletic/6999822/2026/01/26/wta-investigation-peyton-stearns-rafael-font-de-mora/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/26/style/alex-pretti-kyle-rittenhouse-online.html
 **Trump Briefed on Intelligence Saying Iran’s Government Is Weaker**\
 `Protests that erupted late last year shook elements of the Iranian government, according to the reports.`\
 https://nytimes.com/2026/01/26/us/politics/trump-reports-iran-government.html
-
-**Shootings Pose a Hard Question for the Right: Who’s a Conservative, Really?**\
-`Republicans wrestle with Trump administration positions that seem to contradict their beliefs on gun rights, states’ rights and limited use of federal power.`\
-https://nytimes.com/2026/01/26/us/politics/minneapolis-shooting-trump-ice-gop.html
 

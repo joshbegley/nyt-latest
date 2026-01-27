@@ -1,3 +1,11 @@
+**Women's tennis tour to investigate misconduct allegations against Peyton Stearns' coach**\
+`They concern Rafael Font de Mora’s alleged misconduct and inappropriate relationships with players during his previous time on the tour.`\
+https://nytimes.com/athletic/6999822/2026/01/26/wta-investigation-peyton-stearns-rafael-font-de-mora/
+
+**Border Patrol Official Gregory Bovino Is Set to Leave Minnesota**\
+`The Trump administration is planning to move Gregory Bovino, a Border Patrol official whose tactics in major American cities have drawn controversy, out of Minneapolis, according to two officials.`\
+https://nytimes.com/video/us/100000010669997/gregory-bovino-minnesota-departure.html
+
 **'Best athlete I've ever seen': The fan who saw Drake Maye's future in 2012**\
 `Justin Farkas remembers watching Maye dominate as a nine-year-old, playing against kids two or three years older than him.`\
 https://nytimes.com/athletic/7000684/2026/01/26/drake-maye-fan-prediction-2012-super-bowl/
