@@ -1,3 +1,7 @@
+**How a wearable caused an Australian Open debate over tennis players' data**\
+`Bands designed to track players' health and performance data on-court are permitted by tennis governing bodies but banned at Grand Slams.`\
+https://nytimes.com/athletic/7001008/2026/01/27/tennis-australian-open-whoop-band-ban-sabalenka-alcaraz/
+
 **Wrexham's window: Targeting three in, potential league record deal, high-profile outgoings?**\
 `With the transfer window now into its final week and up to three signings being chased, it could be a busy few days in north Wales`\
 https://nytimes.com/athletic/6998703/2026/01/27/wrexham-january-transfer-window-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6999136/2026/01/27/champions-league-five-places-pre
 **The Premier League record that may never be broken: ‘I would be devastated’**\
 `Arsenal can no longer beat the 2004-05 Chelsea side's milestone for fewest goals conceded in a season. This is why it might never be done`\
 https://nytimes.com/athletic/6998870/2026/01/27/premier-league-defence-record-chelsea/
-
-**Britain Seeks Trade With China Without Triggering Trump’s Fury**\
-`Prime Minister Keir Starmer hopes to boost his country’s lagging economy with a trip to Beijing. But he must carefully navigate between two superpowers.`\
-https://nytimes.com/2026/01/27/world/europe/uk-china-visit-starmer-trade.html
 

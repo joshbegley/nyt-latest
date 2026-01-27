@@ -1,3 +1,7 @@
+**How a wearable caused an Australian Open debate over tennis players' data**\
+`Bands designed to track players' health and performance data on-court are permitted by tennis governing bodies but banned at Grand Slams.`\
+https://nytimes.com/athletic/7001008/2026/01/27/tennis-australian-open-whoop-band-ban-sabalenka-alcaraz/
+
 **Wrexham's window: Targeting three in, potential league record deal, high-profile outgoings?**\
 `With the transfer window now into its final week and up to three signings being chased, it could be a busy few days in north Wales`\
 https://nytimes.com/athletic/6998703/2026/01/27/wrexham-january-transfer-window-2/
