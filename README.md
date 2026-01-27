@@ -1,3 +1,15 @@
+**Bundesliga Briefing: Dortmund resurgent, Dzeko returns, and Bayern finally defeated**\
+`Vincent Kompany's champions had not lost a game in Germany for 10 months but visitors Augsburg brought that run to an end`\
+https://nytimes.com/athletic/6998749/2026/01/27/bundesliga-briefing-dortmund-resurgent-dzeko-returns-bayern-beaten/
+
+**Why Premier League is dominating the race to secure five Champions League places in 2026-27**\
+`Why clubs as far down the table as Bournemouth in 13th can legitimately target qualification for next season's Champions League`\
+https://nytimes.com/athletic/6999136/2026/01/27/champions-league-five-places-premier-league-uefa/
+
+**The Premier League record that may never be broken: ‘I would be devastated’**\
+`Arsenal can no longer beat the 2004-05 Chelsea side's milestone for fewest goals conceded in a season. This is why it might never be done`\
+https://nytimes.com/athletic/6998870/2026/01/27/premier-league-defence-record-chelsea/
+
 **Britain Seeks Trade With China Without Triggering Trump’s Fury**\
 `Prime Minister Keir Starmer hopes to boost his country’s lagging economy with a trip to Beijing. But he must carefully navigate between two superpowers.`\
 https://nytimes.com/2026/01/27/world/europe/uk-china-visit-starmer-trade.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/27/technology/what-to-know-about-the-social-media-ad
 **Social Media Giants Face Landmark Legal Tests on Child Safety**\
 `Starting this week, a series of trials will test a new legal strategy claiming that Meta, TikTok, Snap and YouTube caused personal injury through addictive products.`\
 https://nytimes.com/2026/01/27/technology/social-media-addiction-trial.html
-
-**Quote of the Day: Economic Fear Running Deep, Times Poll Says**\
-`Quotation of the Day for Tuesday, January 27, 2025.`\
-https://nytimes.com/2026/01/26/pageoneplus/quote-of-the-day-economic-fear-running-deep-times-poll-says.html
-
-**Full Time: The fallout from Rodman’s deal**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/7000973/2026/01/26/trinity-rodman-contract-spirit-full-time/
-
-**NCAA asks for judge's recusal in Charles Bediako case, citing Alabama ties**\
-`Legal representatives say media scrutiny and speculation on the judge's link with the university could give the "appearance of partiality."`\
-https://nytimes.com/athletic/7000888/2026/01/26/charles-bediako-alabama-ncaa-judge-lawsuit/
 
