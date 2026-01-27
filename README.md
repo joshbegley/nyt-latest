@@ -1,3 +1,7 @@
+**USL Premier announced as new professional league, pro-rel launch in 2028**\
+`The comprehensive revamp of American lower league soccer is start to take shape`\
+https://nytimes.com/athletic/7000491/2026/01/27/usl-premier-mls-pro-rel-pyramid/
+
 **OpenAI’s Altman and More C.E.O.s Weigh In on Minnesota**\
 `Business leaders continue to feel pressure to speak out about the immigration crackdown and the fatal shooting of two U.S. citizens.`\
 https://nytimes.com/2026/01/27/business/dealbook/altman-openai-minnesota.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6999645/2026/01/27/nfl-draft-2026-shrine-bowl-prosp
 **Investigators Review Body Camera Video Related to Killing of Alex Pretti**\
 `The Department of Homeland Security said body camera footage, taken from multiple angles, was being examined, as local officials sought to ensure evidence was preserved.`\
 https://nytimes.com/2026/01/27/us/body-cam-video-alex-pretti-minneapolis-shooting.html
-
-**How will things end between Darian Mensah, Duke and Miami?**\
-`Lawyers specializing in sports, entertainment or employment weigh in about this first-of-its-kind case and where it’s going.`\
-https://nytimes.com/athletic/7000857/2026/01/27/darian-mensah-duke-lawsuit-miami-transfer-portal/
 
