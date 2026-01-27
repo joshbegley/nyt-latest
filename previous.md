@@ -1,3 +1,7 @@
+**U.S. Population Growth Slows Sharply**\
+`Also, some good news for a Broadway musical. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/01/27/briefing/us-population-growth-fema-delays.html
+
 **NHL's Department of Player Safety will now handle all player discipline calls**\
 `Instead of handling only physical incidents, the DoPS will now determine supplemental discipline for all league rule violations.`\
 https://nytimes.com/athletic/7002816/2026/01/27/nhl-department-of-player-safety-discipline-policy-change/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7002640/2026/01/27/lawrence-frank-clippers-contract
 **Judge Temporarily Blocks Deportation of 5-Year-Old Detained in Minneapolis Suburb**\
 `An image of the boy, wearing a Spider-Man backpack as he was detained by federal agents, became a symbol of the immigration crackdown in Minnesota.`\
 https://nytimes.com/2026/01/27/us/ice-liam-ramos-minneapolis-deportation.html
-
-**Broncos fire offensive coordinator Joe Lombardi: Source**\
-`Lombardi was a part of head coach Sean Payton's initial staff when he was hired by the Broncos in 2023.`\
-https://nytimes.com/athletic/7002694/2026/01/27/broncos-fire-oc-joe-lombardi/
 
