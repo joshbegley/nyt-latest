@@ -1,3 +1,7 @@
+**Commanders plan to hire Vikings pass game coordinator Daronte Jones as defensive coordinator: Source**\
+`Jones, 47, will be a first-time play caller after taking over for Joe Whitt Jr., fired by the Commanders after two seasons.`\
+https://nytimes.com/athletic/7000117/2026/01/26/daronte-jones-commanders-defensive-coordinator/
+
 **Sources: USMNT, Orlando breakout talent Freeman seals move to Villarreal**\
 `Alex Freeman is headed to Villarreal this winter, continuing his rapid rise after breaking out for Orlando and the U.S. men's national team`\
 https://nytimes.com/athletic/7000765/2026/01/26/alex-freeman-transfer-villarreal-orlando-city-usmnt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7000473/2026/01/26/toulouse-jacen-russell-rowe-tran
 **Cooper Flagg, Kon Knueppel headline NBA's 2026 Rising Stars participants**\
 `Carmelo Anthony, Vince Carter, Tracy McGrady and Austin Rivers will serve as honorary coaches for the four-team Rising Stars tournament.`\
 https://nytimes.com/athletic/7000430/2026/01/26/rising-stars-player-pool-cooper-flagg-kon-knueppel/
-
-**Kyle Rittenhouse Is Once Again a Lightning Rod Online**\
-`After the death of Alex Pretti, some people are posting about a different young man who brought a gun to a protest and the treatment he received from law enforcement agents.`\
-https://nytimes.com/2026/01/26/style/alex-pretti-kyle-rittenhouse-online.html
 
