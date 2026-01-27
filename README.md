@@ -7,7 +7,7 @@ https://nytimes.com/athletic/7000888/2026/01/26/charles-bediako-alabama-ncaa-jud
 https://nytimes.com/athletic/7000612/2026/01/26/hornets-surge-young-core-ball-miller-knueppel/
 
 **Dodgers' Dave Roberts wants to manage U.S. Olympic team, calls it a 'no-brainer'**\
-`Roberts' ties to Los Angeles go beyond the Dodgers, dating back to his time in college at UCLA. `\
+`Roberts' ties to Los Angeles go beyond the Dodgers, dating to his time in college at UCLA. `\
 https://nytimes.com/athletic/7000928/2026/01/26/la-olympics-2028-dave-roberts-baseball-manager/
 
 **Flyers again fail to build off of an emotional win: 'You've got to handle prosperity'**\
