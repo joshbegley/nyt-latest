@@ -1,3 +1,7 @@
+**Former French Senator Convicted of Drugging a Colleague, Intending to Assault Her**\
+`The trial took on special resonance in France, a year after a court found Dominique Pelicot and dozens of other men guilty of raping Gisèle Pelicot while she was sedated.`\
+https://nytimes.com/2026/01/27/world/europe/french-senator-drug-assault.html
+
 **Test Your Brain Rot: Can You Define ‘Lowkenuinely’?**\
 `This is a series about the mysteries of internet speak.`\
 https://nytimes.com/2026/01/27/style/test-your-brain-rot-can-you-define-lowkenuinely.html

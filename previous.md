@@ -1,3 +1,7 @@
+**Former French Senator Convicted of Drugging a Colleague, Intending to Assault Her**\
+`The trial took on special resonance in France, a year after a court found Dominique Pelicot and dozens of other men guilty of raping Gisèle Pelicot while she was sedated.`\
+https://nytimes.com/2026/01/27/world/europe/french-senator-drug-assault.html
+
 **Test Your Brain Rot: Can You Define ‘Lowkenuinely’?**\
 `This is a series about the mysteries of internet speak.`\
 https://nytimes.com/2026/01/27/style/test-your-brain-rot-can-you-define-lowkenuinely.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010671364/pasta-in-rundown-sauce.html
 **Feds investigating more NBA games as part of illegal gambling probe**\
 `The justice department is investigating more NBA games for potential illegal gambling. So far, 34 people have been charged in the probe.`\
 https://nytimes.com/athletic/7002382/2026/01/27/nba-illegal-betting-investigation-feds/
-
-**Creamy Tomato Hummus Soup**\
-`This delicious, dairy-free alternative to classic tomato soup delivers the same comfort as the original, thanks to a surprising store-bought ingredient: hummus.`\
-https://nytimes.com/video/dining/100000010671368/creamy-tomato-hummus-soup.html
 
