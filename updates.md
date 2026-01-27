@@ -1,3 +1,7 @@
+**Word of the Day: sagacious**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/27/learning/word-of-the-day-sagacious.html
+
 **Everton without Jack Grealish: How does it look and how can he be replaced?**\
 `Losing Grealish’s quality is far from the only issue for a side still striving for consistency and clarity.`\
 https://nytimes.com/athletic/7000739/2026/01/27/everton-jack-grealish-injury/

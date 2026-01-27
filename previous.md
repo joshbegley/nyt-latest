@@ -1,3 +1,7 @@
+**Word of the Day: sagacious**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/27/learning/word-of-the-day-sagacious.html
+
 **Everton without Jack Grealish: How does it look and how can he be replaced?**\
 `Losing Grealish’s quality is far from the only issue for a side still striving for consistency and clarity.`\
 https://nytimes.com/athletic/7000739/2026/01/27/everton-jack-grealish-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6999866/2026/01/27/tottenham-relegation-battle/
 **And the longest suffering supporters in English football are...**\
 `The Athletic spends time with fans who have endured miserable results, injustice and the tedium of stagnation in the same division for years`\
 https://nytimes.com/athletic/6982665/2026/01/27/football-support-hard-bristol-rovers-darlington-preston-bury/
-
-**Qarabag, the Champions League disruptors forced to leave their home**\
-`The Azerbaijani side travel to Liverpool with every chance of reaching the play-offs. Their history is bound up with conflict`\
-https://nytimes.com/athletic/6994113/2026/01/27/qarabag-liverpool-champions-league-azerbaijan/
 
