@@ -1,3 +1,11 @@
+**Should Iran’s Executioners Go Unpunished?**\
+`It’s left to the United States to impose meaningful consequences on the Iranian regime for one of the worst atrocities of this century.`\
+https://nytimes.com/2026/01/27/opinion/iran-regime-killing-protesters.html
+
+**Storm Deaths Reach 10, Testing Mamdani’s Handling of a Weather Emergency**\
+`After first saying that it did not appear that the dead were homeless people, Mayor Zohran Mamdani vowed to do more to get people into shelters.`\
+https://nytimes.com/2026/01/27/nyregion/mamdani-storm-deaths-homeless.html
+
 **Former French Senator Convicted of Drugging a Colleague, Intending to Assault Her**\
 `The trial took on special resonance in France, a year after a court found Dominique Pelicot and dozens of other men guilty of raping Gisèle Pelicot while she was sedated.`\
 https://nytimes.com/2026/01/27/world/europe/french-senator-drug-assault.html
