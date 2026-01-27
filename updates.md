@@ -1,3 +1,23 @@
+**Sweden adds Marcus Johansson, Hampus Lindholm to Olympic hockey roster**\
+`Marcus Johansson and Hampus Lindholm will be injury replacements for Leo Carlsson and Jonas Brodin.`\
+https://nytimes.com/athletic/7002013/2026/01/27/sweden-marcus-johansson-hampus-lindholm-olympics-hockey/
+
+**Odo Takes an á La Carte Approach to Classic Kaiseki Fare**\
+`Tacos Fonda comes to the Time Out food hall, Ops in the East Village serves pizza by guest restaurants and more news.`\
+https://nytimes.com/2026/01/27/dining/nyc-restaurant-news.html
+
+**How What You Eat Affects Cancer Risk**\
+`Decades of research suggests that your diet can influence the risk of various cancers. Here’s what we know.`\
+https://nytimes.com/2026/01/27/well/food-diet-nutrition-cancer-risk.html
+
+**How Villa signed Abraham: Emery's role, other options and the striker waiving money to join**\
+`How the Champions League hopefuls solved a problem position with a move for Besiktas' on-loan Roma and England striker`\
+https://nytimes.com/athletic/6998848/2026/01/27/tammy-abraham-aston-villa-transfer/
+
+**Judge Cuts Sentence of Ultra-Orthodox Therapist Convicted of Molestation**\
+`Nechemya Weberman’s sentence for child sexual abuse was reduced to 18 years, making him eligible for release within five years. He admitted his guilt for the first time on Tuesday.`\
+https://nytimes.com/2026/01/27/nyregion/weberman-sexual-molestation-sentence.html
+
 **ICE agents will be at Winter Olympics to provide security help for Vance, Rubio**\
 `News of ICE's role at the Olympics has sparked controversy in Italy, which will host the games from Feb. 6-22.`\
 https://nytimes.com/athletic/7001882/2026/01/27/ice-agents-olympics-security-milan/

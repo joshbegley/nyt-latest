@@ -1,3 +1,7 @@
+**Employment Commission Chair Recasts Workplace Discrimination in Trump’s Image**\
+`Andrea Lucas, the chair of the Equal Employment Opportunity Commission, has said she wants to undo years of what she describes as activist excess around labor law.`\
+https://nytimes.com/2026/01/27/us/politics/eocc-dei-employment-discrimination.html
+
 **Sweden adds Marcus Johansson, Hampus Lindholm to Olympic hockey roster**\
 `Marcus Johansson and Hampus Lindholm will be injury replacements for Leo Carlsson and Jonas Brodin.`\
 https://nytimes.com/athletic/7002013/2026/01/27/sweden-marcus-johansson-hampus-lindholm-olympics-hockey/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6997205/2026/01/27/brian-daboll-titans-offensive-co
 **Ask Russo and Smith: Submit your questions for The Athletic’s Minnesota Wild mailbag**\
 `Have a question about the Wild? Ask here, and Michael Russo and Joe Smith will respond to a selection in their upcoming mailbag.`\
 https://nytimes.com/athletic/7001969/2026/01/27/minnesota-wild-mailbag-january-2026/
-
-**Liverpool's Gomez, Konate unavailable for Qarabag match**\
-`Captain Virgil van Dijk is the Merseyside club's only available senior centre-back for the Champions League fixture on Wednesday. `\
-https://nytimes.com/athletic/7001951/2026/01/27/gomez-konate-liverpool-robertson-slot-squad-update/
 
