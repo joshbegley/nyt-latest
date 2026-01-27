@@ -1,3 +1,11 @@
+**Bucking a Global Trend, Spain Offers Undocumented Migrants a Legal Way to Stay**\
+`The measure, unexpectedly approved, comes as other countries are cracking down on immigration.`\
+https://nytimes.com/2026/01/27/world/europe/spain-undocumented-migrants-residency.html
+
+**How to watch Pistons vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7002494/2026/01/27/pistons-vs-nuggets-stream-how-to-watch-jan-27/
+
 **How to watch Clippers vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7002484/2026/01/27/clippers-vs-jazz-stream-how-to-watch-jan-27/
