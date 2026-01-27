@@ -1,3 +1,11 @@
+**Full Time: The fallout from Rodman’s deal**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/7000973/2026/01/26/trinity-rodman-contract-spirit-full-time/
+
+**NCAA asks for judge's recusal in Charles Bediako case, citing Alabama ties**\
+`Legal representatives argue that "intense media scrutiny and public speculation surrounding the judge's relationship with the university."`\
+https://nytimes.com/athletic/7000888/2026/01/26/charles-bediako-alabama-ncaa-judge-lawsuit/
+
 **NCAA asks for judge’s recusal in Charles Bediako case, citing Alabama ties**\
 `Legal representatives argue that “intense media scrutiny and public speculation surrounding the judge’s relationship with the university."`\
 https://nytimes.com/athletic/7000888/2026/01/26/charles-bediako-alabama-ncaa-judge-lawsuit/

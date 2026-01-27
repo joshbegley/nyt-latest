@@ -1,5 +1,9 @@
-**NCAA asks for judge’s recusal in Charles Bediako case, citing Alabama ties**\
-`Legal representatives argue that “intense media scrutiny and public speculation surrounding the judge’s relationship with the university."`\
+**Full Time: The fallout from Rodman’s deal**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/7000973/2026/01/26/trinity-rodman-contract-spirit-full-time/
+
+**NCAA asks for judge's recusal in Charles Bediako case, citing Alabama ties**\
+`Legal representatives argue that "intense media scrutiny and public speculation surrounding the judge's relationship with the university."`\
 https://nytimes.com/athletic/7000888/2026/01/26/charles-bediako-alabama-ncaa-judge-lawsuit/
 
 **Are the Hornets capable of a playoff run? The last two months could explain**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/26/crosswords/daily-puzzle-2026-01-27.html
 **Republican Ends His Run for Minnesota Governor, Citing Immigration Crackdown**\
 `Chris Madel, a defense lawyer, called the operation “simply a disaster.” His decision comes two days after a second fatal shooting by federal agents in Minneapolis.`\
 https://nytimes.com/2026/01/26/us/politics/chris-madel-minnesota-governor-immigration.html
-
-**'Upsetting on so many levels': Emma Hayes speaks on fatal Minnesota shooting**\
-`Hayes has joined a growing chorus of sports figures who have spoken out in the days after the fatal shooting.`\
-https://nytimes.com/athletic/7000691/2026/01/26/emma-hayes-uswnt-minnesota-shooting-comments/
 
