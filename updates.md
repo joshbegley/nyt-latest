@@ -1,3 +1,19 @@
+**How Iran Crushed an Uprising**\
+`A visual investigation by The New York Times shows the breadth and ferocity of the regime’s crackdown across the country.`\
+https://nytimes.com/2026/01/27/world/iran-protests-crackdown-eu-india-trade.html
+
+**Bills said they needed a new voice. Uninspiring Joe Brady hiring signals more of the same**\
+`The Bills promoted their offensive coordinator to head coach after firing Sean McDermott. `\
+https://nytimes.com/athletic/7002409/2026/01/27/joe-brady-bills-hc-staff-pegula-reaction/
+
+**Minnesota State House Special Election Results**\
+`Get live results from the 2026 Minnesota state legislature special elections in House districts 64A and 47A.`\
+https://nytimes.com/interactive/2026/01/27/us/elections/results-minnesota-state-legislature-special.html
+
+**Vikings announcer apologizes for comments critical of Minneapolis ICE protesters**\
+`Minnesota play-by-play man Paul Allen said he is taking time off after making insensitive on-air comments about anti-ICE demonstrations.`\
+https://nytimes.com/athletic/7002163/2026/01/27/paul-allen-vikings-ice-protesters-comments/
+
 **Bari Weiss Urges CBS News to Think Like a ‘Start-Up’**\
 `“We are not producing a product enough people want,” Ms. Weiss told employees at her first all-staff meeting at the network.`\
 https://nytimes.com/2026/01/27/business/media/bari-weiss-cbs-news-town-hall.html
