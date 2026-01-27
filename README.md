@@ -1,3 +1,7 @@
+**Everton without Jack Grealish: How does it look and how can he be replaced?**\
+`Losing Grealish’s quality is far from the only issue for a side still striving for consistency and clarity.`\
+https://nytimes.com/athletic/7000739/2026/01/27/everton-jack-grealish-injury/
+
 **Top-ranked Arizona flexes contender status as it holds off late BYU comeback**\
 `At 21-0, the Wildcats have matched the best start in program history and are one of three remaining undefeated teams.`\
 https://nytimes.com/athletic/7001067/2026/01/27/arizona-byu-college-basketball-brayden-burries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6982665/2026/01/27/football-support-hard-bristol-ro
 **Qarabag, the Champions League disruptors forced to leave their home**\
 `The Azerbaijani side travel to Liverpool with every chance of reaching the play-offs. Their history is bound up with conflict`\
 https://nytimes.com/athletic/6994113/2026/01/27/qarabag-liverpool-champions-league-azerbaijan/
-
-**Jose Mourinho, Alvaro Arbeloa and the intense tribalism of a Real Madrid legacy**\
-`Real Madrid's new manager was a favourite of Mourinho's during his three years in charge at the Bernabeu, from 2010-2013`\
-https://nytimes.com/athletic/6998837/2026/01/27/alvaro-arbeloa-jose-mourinho-real-madrid-champions-league/
 
