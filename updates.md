@@ -1,3 +1,19 @@
+**Liverpool's Gomez, Konate unavailable for Qarabag match, Slot says**\
+`Captain Virgil van Dijk is the Merseyside club's only available senior centre-back for the Champions League fixture on Wednesday. `\
+https://nytimes.com/athletic/7001951/2026/01/27/gomez-konate-liverpool-robertson-slot-squad-update/
+
+**U.S. Population Growth Slows Sharply as Immigration Plunges**\
+`New census figures show that South Carolina is the nation’s fasting-growing state, while Florida’s growth rate has declined.`\
+https://nytimes.com/2026/01/27/us/politics/census-2025-estimates-population-immigration.html
+
+**Troop Casualties in Ukraine War Near 2 Million, Study Finds**\
+`The number of deaths, injuries and missing is approaching a grim milestone after nearly four years of fighting.`\
+https://nytimes.com/2026/01/27/us/politics/russia-ukraine-casualties.html
+
+**Former Olympian Ryan Wedding pleads not guilty to drug trafficking, murder charges**\
+`Wedding pleaded not guilty to 17 felony counts tied to the sweeping criminal case.`\
+https://nytimes.com/athletic/7001675/2026/01/27/ryan-wedding-pleads-not-guilty-fbi/
+
 **Former Olympian Ryan Wedding pleads not guilty to drug trafficking, murder charges**\
 `Wedding plead not guilty to 17 felony counts tied to the sweeping criminal case.`\
 https://nytimes.com/athletic/7001675/2026/01/27/ryan-wedding-pleads-not-guilty-fbi/
