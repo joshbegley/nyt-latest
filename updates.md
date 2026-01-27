@@ -1,3 +1,7 @@
+**Coco Gauff's Australian Open evaporates in overwhelming loss to Elina Svitolina**\
+`After starting the match with the wrong string tension, the American could not recover from a whirlwind of Svitolina pressure.`\
+https://nytimes.com/athletic/7001166/2026/01/27/australian-open-coco-gauff-elina-svitolina-result-analysis/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/01/27/crosswords/spelling-bee-forum.html

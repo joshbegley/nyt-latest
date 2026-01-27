@@ -1,3 +1,7 @@
+**Coco Gauff's Australian Open evaporates in overwhelming loss to Elina Svitolina**\
+`After starting the match with the wrong string tension, the American could not recover from a whirlwind of Svitolina pressure.`\
+https://nytimes.com/athletic/7001166/2026/01/27/australian-open-coco-gauff-elina-svitolina-result-analysis/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/01/27/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/27/nyregion/oren-tal-alexander-trial-sex-trafficking
 **Everton without Jack Grealish: How does it look and how can he be replaced?**\
 `Losing Grealish’s quality is far from the only issue for a side still striving for consistency and clarity.`\
 https://nytimes.com/athletic/7000739/2026/01/27/everton-jack-grealish-injury/
-
-**The Transfer DealSheet: The latest on your club**\
-`Welcome to The Athletic's fourth edition of The Transfer DealSheet for the 2026 January window`\
-https://nytimes.com/athletic/6998816/2026/01/27/manchester-united-arsenal-transfer-latest-liverpool-real-madrid-chelsea-dealsheet/
 
