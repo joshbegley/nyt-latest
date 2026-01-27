@@ -1,3 +1,7 @@
+**West Ham close to agreeing deal to sign Adama Traore from Fulham**\
+`Igor Julio's season-long loan from Brighton & Hove Albion is also set to be ended early.`\
+https://nytimes.com/athletic/7001597/2026/01/27/adama-traore-west-ham-fulham-transfer/
+
 **The Bounce: Is it Boozer vs. Dybantsa for the No. 1 pick in the NBA draft?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7001553/2026/01/27/nba-draft-cameron-boozer-aj-dybantsa-the-bounce/

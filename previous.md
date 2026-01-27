@@ -1,3 +1,7 @@
+**West Ham close to agreeing deal to sign Adama Traore from Fulham**\
+`Igor Julio's season-long loan from Brighton & Hove Albion is also set to be ended early.`\
+https://nytimes.com/athletic/7001597/2026/01/27/adama-traore-west-ham-fulham-transfer/
+
 **The Bounce: Is it Boozer vs. Dybantsa for the No. 1 pick in the NBA draft?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7001553/2026/01/27/nba-draft-cameron-boozer-aj-dybantsa-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7000874/2026/01/27/konnor-griffin-cards-mlb-prospec
 **G.M. Shares Rise as Investors Are Encouraged by 2026 Prospects**\
 `The automaker said that it would buy back stock worth up to $6 billion and that it expected profit to rise this year after it pulled back from electric vehicle production.`\
 https://nytimes.com/2026/01/27/business/general-motors-earnings.html
-
-**Broadway’s New Musicals Keep Losing Money. Except This One.**\
-`“The Outsiders” is the first new musical to open since 2022 to become profitable.`\
-https://nytimes.com/2026/01/27/theater/outsiders-broadway-musical-profit.html
 

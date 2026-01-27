@@ -1,3 +1,7 @@
+**Financial Tune-up**\
+``\
+https://nytimes.com/spotlight/financial-tune-up
+
 **West Ham close to agreeing deal to sign Adama Traore from Fulham**\
 `Igor Julio's season-long loan from Brighton & Hove Albion is also set to be ended early.`\
 https://nytimes.com/athletic/7001597/2026/01/27/adama-traore-west-ham-fulham-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/27/us/dhs-ice-trump-timeline.html
 **Keith Law's top prospects: The baseball card outlooks for the 10 best**\
 `Using Law's latest rankings, we assess the booming baseball card market for the best MLB prospects.`\
 https://nytimes.com/athletic/7000874/2026/01/27/konnor-griffin-cards-mlb-prospects/
-
-**G.M. Shares Rise as Investors Are Encouraged by 2026 Prospects**\
-`The automaker said that it would buy back stock worth up to $6 billion and that it expected profit to rise this year after it pulled back from electric vehicle production.`\
-https://nytimes.com/2026/01/27/business/general-motors-earnings.html
 
