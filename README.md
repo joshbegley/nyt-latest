@@ -1,5 +1,9 @@
+**Villa seriously considering move to sign midfielder Douglas Luiz**\
+`The midfielder is on loan at Nottingham Forest from Serie A side Juventus but has only made eight top-flight appearances this term.`\
+https://nytimes.com/athletic/6993650/2026/01/27/aston-villa-transfers-douglas-luiz/
+
 **Leeds have developed tactically - but Farke’s in-game management remains questionable**\
-`This was a good point for Leeds, but the lack of a tactical reaction to Moyes’s half-time switch did leave you wondering, ‘what if?’`\
+`This was a good point for Leeds, but the lack of a tactical reaction to Moyes’s half-time switch did leave fans wondering: ‘What if?’`\
 https://nytimes.com/athletic/7001039/2026/01/27/leeds-farke-development-substitutions/
 
 **Word of the Day: sagacious**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6998703/2026/01/27/wrexham-january-transfer-window-
 **Arsenal and why the history of Emirates expectations led to full-time boos**\
 `Is there a way to get fans and players on the same page, enjoying the ride rather than fixating on what it will mean come May?`\
 https://nytimes.com/athletic/6998744/2026/01/27/arsenal-emirates-expectation-boos/
-
-**Have Tottenham been sucked into a relegation scrap?**\
-`Spurs have won just three of 16 Premier League matches and now have a daunting run of fixtures ahead...`\
-https://nytimes.com/athletic/6999866/2026/01/27/tottenham-relegation-battle/
 
