@@ -1,3 +1,7 @@
+**Super Bowl 60 early predictions: Patriots offense testing survivable limits**\
+`Our staff makes score predictions and MVP picks for the Super Bowl.`\
+https://nytimes.com/athletic/7000498/2026/01/27/super-bowl-seahawks-patriots-odds-picks-predictions/
+
 **Mike McCarthy says he wants Aaron Rodgers back with the Steelers in 2026**\
 `"Definitely, I don't see why you wouldn't," McCarthy said at his introductory press conference.`\
 https://nytimes.com/athletic/7002264/2026/01/27/aaron-rodgers-mike-mccarthy-pittsburgh-steelers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6952099/2026/01/27/tanner-engstrand-fired-new-york-
 **Caitlin Clark joining NBC Sports for its new Sunday night NBA pregame show**\
 `Clark's crossover appeal will be on display for a national NBA audience.`\
 https://nytimes.com/athletic/7002228/2026/01/27/caitlin-clark-nbc-sports-nba-wnba/
-
-**Yankees promote Mario Garza to lead beleaguered international scouting department**\
-`After weeks of uncertainty surrounding their international scouting department, the Yankees have promoted Garza as they overhaul the group.`\
-https://nytimes.com/athletic/7002078/2026/01/27/yankees-mario-garza-international-scouting/
 
