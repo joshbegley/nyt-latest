@@ -1,3 +1,11 @@
+**Sources: Toulouse bids for Columbus, Canada forward Russell-Rowe**\
+`The Canadian World Cup hopeful is a transfer target for the Ligue 1 side`\
+https://nytimes.com/athletic/7000473/2026/01/26/toulouse-jacen-russell-rowe-transfer-bid-columbus-crew-canada/
+
+**Cooper Flagg, Kon Knueppel headline NBA's 2026 Rising Stars participants**\
+`Carmelo Anthony, Vince Carter, Tracy McGrady and Austin Rivers will serve as honorary coaches for the four-team Rising Stars tournament.`\
+https://nytimes.com/athletic/7000430/2026/01/26/rising-stars-player-pool-cooper-flagg-kon-knueppel/
+
 **Kyle Rittenhouse Is Once Again a Lightning Rod Online**\
 `After the death of Alex Pretti, some people are posting about a different young man who brought a gun to a protest and the treatment he received from law enforcement agents.`\
 https://nytimes.com/2026/01/26/style/alex-pretti-kyle-rittenhouse-online.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6999761/2026/01/26/steve-ott-blues-ahl-springfield-
 **Trump Changes Course in Minnesota**\
 `Also, large parts of the U.S. are dangerously cold. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2026/01/26/briefing/trump-minnesota-winter-storm-cold.html
-
-**Scoop City: A record-setting Super Bowl, already**\
-`What cost the Broncos and Rams a Super Bowl shot, plus the unlikely Seahawks-Patriots game and what Mike McCarthy brings to Pittsburgh`\
-https://nytimes.com/athletic/7000577/2026/01/26/nfl-super-bowl-seahawks-patriots-steelers-coach-mccarthy/
-
-**With center fielder Harrison Bader, Giants get the dynamic defender they needed**\
-`After the Giants' outfield ranked among the league's worst defensive units in 2025, Bader's glove should provide some stability.`\
-https://nytimes.com/athletic/7000467/2026/01/26/sf-giants-harrison-bader-free-agent-signing-outfield-defense/
 
