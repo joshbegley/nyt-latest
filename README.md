@@ -1,3 +1,15 @@
+**How to watch Mammoth vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7001898/2026/01/27/mammoth-vs-panthers-stream-how-to-watch-jan-27/
+
+**How to watch Sabres vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7001896/2026/01/27/sabres-vs-maple-leafs-stream-how-to-watch-jan-27/
+
+**TikTok Settles Social Media Addiction Lawsuit Ahead of a Landmark Trial**\
+`The settlement means TikTok will avoid a trial where plaintiffs had planned to argue that social media platforms are inherently defective and subject to personal injury liability.`\
+https://nytimes.com/2026/01/27/technology/tiktok-settlement-social-media-addiction-lawsuit.html
+
 **How to watch Virginia vs. Notre Dame men's basketball: Time, TV, streaming**\
 `Find out how to watch the Virginia Cavaliers play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7001877/2026/01/27/virginia-vs-notre-dame-stream-how-to-watch-jan-27/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/27/world/europe/italy-ice-olympics.html
 **Illinois freshman Keaton Wagler has cemented his NBA Draft lottery pick status**\
 `The 261st-ranked prospect in his recruiting class should hear his name called early in the draft this June. `\
 https://nytimes.com/athletic/7001450/2026/01/27/keaton-wagler-nba-draft-lottery-pick-illinois/
-
-**The Friendship Advice Experts Swear By**\
-`Finding friendship and maintaining connections in adulthood is hard. Here’s where to start.`\
-https://nytimes.com/2026/01/27/well/friendship-make-keep-friends.html
-
-**A Quick Weeknight Stew With Slow Weekend Vibes**\
-`By Emily Weinstein`\
-https://nytimes.com/2026/01/27/dining/a-quick-weeknight-stew-with-slow-weekend-vibes.html
-
-**Denmark’s Leader Isn’t Sure How Long America Will Be an Ally**\
-`President Trump’s efforts to pry Greenland from Denmark show that “the old world order is now gone,” Prime Minister Mette Frederiksen warned in Berlin.`\
-https://nytimes.com/2026/01/27/world/europe/mette-frederiksen-greenland-us-ally.html
 
