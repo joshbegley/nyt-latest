@@ -1,3 +1,11 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/27/crosswords/spelling-bee-forum.html
+
+**At Dior, a Major Surprise**\
+`Jonathan Anderson delivers an unexpected guest — and a great collection.`\
+https://nytimes.com/2026/01/27/style/dior-couture-jonathan-anderson-john-galliano.html
+
 **Climbing a Skyscraper**\
 `Alex Honnold scaled a 1,667-foot-tall skyscraper without a rope. Is his feat inspiring? Or terrifyingly reckless?`\
 https://nytimes.com/2026/01/27/learning/climbing-a-skyscraper.html
@@ -22,19 +30,11 @@ https://nytimes.com/2026/01/27/nyregion/alexander-brothers-public-relations-camp
 `Prosecutors say the three men used their money, power and status to sexually assault women, including two underage girls. The men have denied the charges.`\
 https://nytimes.com/2026/01/27/nyregion/oren-tal-alexander-trial-sex-trafficking.html
 
+**Everton without Jack Grealish: How does it look and how can he be replaced?**\
+`Losing Grealish’s quality is far from the only issue for a side still striving for consistency and clarity.`\
+https://nytimes.com/athletic/7000739/2026/01/27/everton-jack-grealish-injury/
+
 **The Transfer DealSheet: The latest on your club**\
 `Welcome to The Athletic's fourth edition of The Transfer DealSheet for the 2026 January window`\
 https://nytimes.com/athletic/6998816/2026/01/27/manchester-united-arsenal-transfer-latest-liverpool-real-madrid-chelsea-dealsheet/
-
-**Vowing Higher Tariffs, Trump Rattles South Korea Months After Trade Deal**\
-`President Trump said Seoul was not moving fast enough to implement the agreement, which calls for South Korea to invest billions in the United States.`\
-https://nytimes.com/2026/01/27/world/asia/korea-trump-higher-tariff.html
-
-**Seth Meyers Won’t Let ICE Co-Opt the Weather**\
-`“Just think about it, ICE is so unpopular, they want FEMA to not use the word ‘ice,’” the late night host said of the immigration enforcement agency.`\
-https://nytimes.com/2026/01/27/arts/television/late-night-ice-fema-weather.html
-
-**In the Shadow of Trump, India and the European Union Expand Trade Ties**\
-`After nearly 20 years of negotiations, the two sides struck a far-reaching agreement that officials called “the mother of all trade deals.”`\
-https://nytimes.com/2026/01/27/business/india-europe-trade-tariffs-trump.html
 
