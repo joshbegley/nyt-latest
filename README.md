@@ -1,3 +1,15 @@
+**Liverpool's Gomez, Konate unavailable for Qarabag match, Slot says**\
+`Captain Virgil van Dijk is the Merseyside club's only available senior centre-back for the Champions League fixture on Wednesday. `\
+https://nytimes.com/athletic/7001951/2026/01/27/gomez-konate-liverpool-robertson-slot-squad-update/
+
+**U.S. Population Growth Slows Sharply as Immigration Plunges**\
+`New census figures show that South Carolina is the nation’s fasting-growing state, while Florida’s growth rate has declined.`\
+https://nytimes.com/2026/01/27/us/politics/census-2025-estimates-population-immigration.html
+
+**Troop Casualties in Ukraine War Near 2 Million, Study Finds**\
+`The number of deaths, injuries and missing is approaching a grim milestone after nearly four years of fighting.`\
+https://nytimes.com/2026/01/27/us/politics/russia-ukraine-casualties.html
+
 **Former Olympian Ryan Wedding pleads not guilty to drug trafficking, murder charges**\
 `Wedding pleaded not guilty to 17 felony counts tied to the sweeping criminal case.`\
 https://nytimes.com/athletic/7001675/2026/01/27/ryan-wedding-pleads-not-guilty-fbi/
@@ -21,16 +33,4 @@ https://nytimes.com/2026/01/27/arts/music/kennedy-center-national-symphony-orche
 **Microsoft Pledged to Save Water. In the A.I. Era, It Expects Water Use to Soar.**\
 `Driven by the artificial intelligence frenzy, Microsoft is internally projecting that water use at its data centers will more than double by 2030 from 2020, including in places that face shortages.`\
 https://nytimes.com/2026/01/27/technology/microsoft-water-ai-data-centers.html
-
-**Pubs in England and Wales can stay open until 2am for World Cup knockouts**\
-`Pubs can stay open until 2am for quarter-finals starting at 10pm, and until 1am for knockout matches starting at or before 9pm.`\
-https://nytimes.com/athletic/7001852/2026/01/27/pubs-england-wales-world-cup-opening/
-
-**Meta Campaigns to Change Opinions on Data Centers**\
-`The tech giant has spent more than $6 million on TV ads in state capitals and Washington, with the message that data centers create jobs.`\
-https://nytimes.com/2026/01/27/technology/meta-data-center-ads.html
-
-**How to watch Golden Knights vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7001911/2026/01/27/golden-knights-vs-canadiens-stream-how-to-watch-jan-27/
 
