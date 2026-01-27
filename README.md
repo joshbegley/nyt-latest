@@ -1,3 +1,7 @@
+**Top-ranked Arizona flexes contender status as it holds off late BYU comeback**\
+`At 21-0, the Wildcats have matched the best start in program history and are one of three remaining undefeated teams.`\
+https://nytimes.com/athletic/7001067/2026/01/27/arizona-byu-college-basketball-brayden-burries/
+
 **The New York Times in Print for Tuesday, Jan. 27, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/27/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6994113/2026/01/27/qarabag-liverpool-champions-leag
 **Jose Mourinho, Alvaro Arbeloa and the intense tribalism of a Real Madrid legacy**\
 `Real Madrid's new manager was a favourite of Mourinho's during his three years in charge at the Bernabeu, from 2010-2013`\
 https://nytimes.com/athletic/6998837/2026/01/27/alvaro-arbeloa-jose-mourinho-real-madrid-champions-league/
-
-**Bundesliga Briefing: Dortmund resurgent, Dzeko returns, and Bayern finally defeated**\
-`Vincent Kompany's champions had not lost a game in Germany for 10 months but visitors Augsburg brought that run to an end`\
-https://nytimes.com/athletic/6998749/2026/01/27/bundesliga-briefing-dortmund-resurgent-dzeko-returns-bayern-beaten/
 
