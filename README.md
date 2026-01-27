@@ -1,3 +1,7 @@
+**'Best athlete I've ever seen': The fan who saw Drake Maye's future in 2012**\
+`Justin Farkas remembers watching Maye dominate as a nine-year-old, playing against kids two or three years older than him.`\
+https://nytimes.com/athletic/7000684/2026/01/26/drake-maye-fan-prediction-2012-super-bowl/
+
 **Trump Administration Takes Another Stake in Rare Earth Sector**\
 `The administration announced a $1.6 billion deal with USA Rare Earth. The firm also does business with Cantor Fitzgerald, which is run by the sons of President Trump’s commerce secretary.`\
 https://nytimes.com/2026/01/26/us/politics/trump-rare-earth-howard-lutnick.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/26/business/economy/trump-tariffs-south-korea.html
 **F.A.A. Rolls Out Agency Overhaul for Improving Air Safety**\
 `The announcement of a reorganization comes nearly a year after a midair collision killed 67 people and prompted a public outcry for enhancing the security of aviation travel.`\
 https://nytimes.com/2026/01/26/us/politics/faa-overhaul-safety-modernization.html
-
-**No Snow Day? In New York City Parks, It Felt Like One.**\
-`Some children skipped remote classes in city schools in favor of activities they felt were more important: sledding and snowball fights.`\
-https://nytimes.com/2026/01/26/weather/snow-parks-children-remote-schooling.html
 

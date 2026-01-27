@@ -1,3 +1,7 @@
+**Trump Administration Takes Another Stake in Rare Earth Sector**\
+`The administration announced a $1.6 billion deal with USA Rare Earth. The firm also does business with Cantor Fitzgerald, which is run by the sons of President Trump’s commerce secretary.`\
+https://nytimes.com/2026/01/26/us/politics/trump-rare-earth-howard-lutnick.html
+
 **Twins, Joe Ryan avoid arbitration, agree to deal worth $6.2 million: Sources**\
 `Plus notes on Taylor Rogers' return to Minnesota, Bailey Ober's offseason work and potential plans for Luke Keaschall.`\
 https://nytimes.com/athletic/7000543/2026/01/26/minnesota-twins-joe-ryan-avoid-arbitration-sources/
