@@ -1,3 +1,11 @@
+**Have Tottenham been sucked into a relegation scrap?**\
+`Spurs have won just three of 16 Premier League matches and now have a daunting run of fixtures ahead...`\
+https://nytimes.com/athletic/6999866/2026/01/27/tottenham-relegation-battle/
+
+**And the longest suffering supporters in English football are...**\
+`The Athletic spends time with fans who have endured miserable results, injustice and the tedium of stagnation in the same division for years`\
+https://nytimes.com/athletic/6982665/2026/01/27/football-support-hard-bristol-rovers-darlington-preston-bury/
+
 **Qarabag, the Champions League disruptors forced to leave their home**\
 `The Azerbaijani side travel to Liverpool with every chance of reaching the play-offs. Their history is bound up with conflict`\
 https://nytimes.com/athletic/6994113/2026/01/27/qarabag-liverpool-champions-league-azerbaijan/

@@ -1,3 +1,11 @@
+**Have Tottenham been sucked into a relegation scrap?**\
+`Spurs have won just three of 16 Premier League matches and now have a daunting run of fixtures ahead...`\
+https://nytimes.com/athletic/6999866/2026/01/27/tottenham-relegation-battle/
+
+**And the longest suffering supporters in English football are...**\
+`The Athletic spends time with fans who have endured miserable results, injustice and the tedium of stagnation in the same division for years`\
+https://nytimes.com/athletic/6982665/2026/01/27/football-support-hard-bristol-rovers-darlington-preston-bury/
+
 **Qarabag, the Champions League disruptors forced to leave their home**\
 `The Azerbaijani side travel to Liverpool with every chance of reaching the play-offs. Their history is bound up with conflict`\
 https://nytimes.com/athletic/6994113/2026/01/27/qarabag-liverpool-champions-league-azerbaijan/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/27/world/asia/myanmar-concert-zat-pwe-war.html
 **Record Debt in the World’s Richest Nations Threatens Global Growth**\
 `The cost of borrowing is already choking crucial public spending in many developing economies. Now it’s raising broader alarms.`\
 https://nytimes.com/2026/01/27/business/economy/government-debt-bonds.html
-
-**Connections: Sports Edition Coach: Hints for Jan. 27, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6999275/2026/01/27/connections-sports-edition-hints-for-jan-27-2026/
-
-**Corrections: Jan. 27, 2026**\
-`Corrections that appeared in print on Tuesday, Jan. 27, 2026.`\
-https://nytimes.com/2026/01/27/pageoneplus/corrections-jan-27-2026.html
 
