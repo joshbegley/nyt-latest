@@ -1,3 +1,11 @@
+**Warriors, Bucks navigating huge dilemmas with stars Steph Curry and Giannis**\
+`If you’re playing in “franchise mode” and you’re running either of these teams, you trade Steph or Antetokounmpo for a mountain of assets.`\
+https://nytimes.com/athletic/6997718/2026/01/27/warriors-bucks-giannis-antetokounmpo-stephen-curry-nba-trade-deadline/
+
+**Which 2026 NFL Draft prospects stood out during Shrine Bowl practices?**\
+`More than 50 Shrine Bowl prospects could wind up hearing their names called in the NFL Draft. Which ones excelled this week?`\
+https://nytimes.com/athletic/6999645/2026/01/27/nfl-draft-2026-shrine-bowl-prospects-heidenreich/
+
 **USL Premier announced as new professional league, pro-rel launch in 2028**\
 `The comprehensive revamp of American lower league soccer is start to take shape`\
 https://nytimes.com/athletic/7000491/2026/01/27/usl-premier-mls-pro-rel-pyramid/
