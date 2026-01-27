@@ -1,9 +1,21 @@
+**Former Olympian Ryan Wedding pleads not guilty to drug trafficking, murder charges**\
+`Wedding plead not guilty to 17 felony counts tied to the sweeping criminal case.`\
+https://nytimes.com/athletic/7001675/2026/01/27/ryan-wedding-pleads-not-guilty-fbi/
+
+**Bills promote Joe Brady to head coach on 5-year deal: Sources**\
+`Brady interviewed for almost three-quarters of this year’s vacancies, including the Cardinals, Falcons, Ravens, Raiders and Dolphins.`\
+https://nytimes.com/athletic/7000201/2026/01/27/bills-joe-brady-head-coach-promotion/
+
+**West Ham confident of loan deal for Spurs' Antonin Kinsky**\
+`Spurs are aware of West Ham's interest in the 22-year-old Czech but there are still a number of outstanding steps before a deal is reached.`\
+https://nytimes.com/athletic/7001180/2026/01/27/west-ham-tottenham-antonin-kinsky-transfer/
+
 **How to watch Predators vs. Bruins: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Boston Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7001918/2026/01/27/predators-vs-bruins-stream-how-to-watch-jan-27/
 
-**As Philip Glass Withdraws, the Kennedy Center’s Symphony Tries to Play On**\
-`Amid cancellations and turmoil, the National Symphony Orchestra is vowing to stay. “I cannot make everybody happy,” its conductor said.`\
+**Philip Glass Withdraws From Kennedy Center, as Its Symphony Vows to Play On**\
+`Amid cancellations and turmoil, the National Symphony Orchestra is planning to stay. “I cannot make everybody happy,” its conductor said.`\
 https://nytimes.com/2026/01/27/arts/music/kennedy-center-national-symphony-orchestra-gianandrea-noseda.html
 
 **Microsoft Pledged to Save Water. In the A.I. Era, It Expects Water Use to Soar.**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7001911/2026/01/27/golden-knights-vs-canadiens-stre
 **How to watch Trail Blazers vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7001908/2026/01/27/trail-blazers-vs-wizards-stream-how-to-watch-jan-27/
-
-**How to watch Jets vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7001906/2026/01/27/jets-vs-devils-stream-how-to-watch-jan-27/
-
-**How to watch Kings vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7001903/2026/01/27/kings-vs-red-wings-stream-how-to-watch-jan-27/
-
-**How to watch Mammoth vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7001898/2026/01/27/mammoth-vs-panthers-stream-how-to-watch-jan-27/
 

@@ -1,5 +1,5 @@
 **Former Olympian Ryan Wedding pleads not guilty to drug trafficking, murder charges**\
-`Wedding plead not guilty to 17 felony counts tied to the sweeping criminal case.`\
+`Wedding pleaded not guilty to 17 felony counts tied to the sweeping criminal case.`\
 https://nytimes.com/athletic/7001675/2026/01/27/ryan-wedding-pleads-not-guilty-fbi/
 
 **Bills promote Joe Brady to head coach on 5-year deal: Sources**\
@@ -33,8 +33,4 @@ https://nytimes.com/2026/01/27/technology/meta-data-center-ads.html
 **How to watch Golden Knights vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the Vegas Golden Knights play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7001911/2026/01/27/golden-knights-vs-canadiens-stream-how-to-watch-jan-27/
-
-**How to watch Trail Blazers vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7001908/2026/01/27/trail-blazers-vs-wizards-stream-how-to-watch-jan-27/
 
