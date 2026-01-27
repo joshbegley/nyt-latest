@@ -1,3 +1,16 @@
+**Ekholm's hat trick leads Oilers defensemen to historic game vs. Ducks**\
+`Spencer Stastney, Mattias Ekholm and Darnell Nurse combined for the fastest four goals by defensemen in league history vs. the Ducks.
+`\
+https://nytimes.com/athletic/7001577/2026/01/27/oilers-defencemen-scoring-record/
+
+**FC Cincinnati finalizing loan deal for Liverpool goalkeeper Mrozek**\
+`The 22-year-old spent the second half of last season on loan at National League side Forest Green. `\
+https://nytimes.com/athletic/7001697/2026/01/27/fabian-mrozek-cincinnati-mls-liverpool-loan-transfer/
+
+**America Officially Leaves the Paris Climate Agreement. For the Second Time.**\
+`The United States is the only country to pull out of the global agreement among nations to fight climate change. European diplomats say the U.S. reputation is suffering.`\
+https://nytimes.com/2026/01/27/climate/paris-climate-agreement-withdrawal.html
+
 **Southern Residents Struggle in Aftermath of Powerful Winter Storm**\
 `Residents in states such as Tennessee and Arkansas dealt with frigid conditions, a loss of electricity and blocked roadways after a huge winter storm system swept through large parts of the United States.`\
 https://nytimes.com/video/weather/100000010670989/snow-storm-south-electricity.html

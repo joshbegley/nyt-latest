@@ -1,3 +1,11 @@
+**F1 teams feared another embarrassing preseason start. They were wrong**\
+`The grid decided to keep the year's first preseason test private after bad memories from 2014 but early data has proved these concerns wrong`\
+https://nytimes.com/athletic/7001647/2026/01/27/f1-teams-private-test-barcelona-mileage/
+
+**Arteta tells Arsenal to 'enjoy' title race after Man Utd debrief**\
+`Arteta says he held a meeting with players after the Manchester United loss and described the reaction as “excellent”.`\
+https://nytimes.com/athletic/7001729/2026/01/27/mikel-arteta-arsenal-premier-league-title-race/
+
 **Ekholm's hat trick leads Oilers defensemen to historic game vs. Ducks**\
 `Spencer Stastney, Mattias Ekholm and Darnell Nurse combined for the fastest four goals by defensemen in league history vs. the Ducks.
 `\
@@ -30,12 +38,4 @@ https://nytimes.com/spotlight/financial-tune-up
 **West Ham close to Traore deal, Ward-Prowse to leave for Burnley**\
 `Igor Julio's season-long loan from Brighton & Hove Albion is also set to be ended early.`\
 https://nytimes.com/athletic/7001597/2026/01/27/adama-traore-west-ham-fulham-transfer/
-
-**The Bounce: Is it Boozer vs. Dybantsa for the No. 1 pick in the NBA draft?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7001553/2026/01/27/nba-draft-cameron-boozer-aj-dybantsa-the-bounce/
-
-**Stanford and Katie Meyer's family settle wrongful death lawsuit**\
-`Stanford and family of former women's soccer captain Katie Meyer reached a resolution in the case related to her 2022 death by suicide.`\
-https://nytimes.com/athletic/7001498/2026/01/27/katie-meyer-stanford-death-lawsuit-settlement/
 
