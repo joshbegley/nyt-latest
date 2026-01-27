@@ -1,3 +1,7 @@
+**Rick Rizzs, ever-faithful voice of Seattle baseball, will retire after one last pennant chase**\
+`'He is Mariners, through and through,' said Dave Sims. 'If he could snap his fingers, that franchise would have five or six rings.'`\
+https://nytimes.com/athletic/7002800/2026/01/27/rick-rizzs-seattle-mariners-retirement/
+
 **After a Second Killing in Minneapolis, How Are You Feeling About Where America Is Heading?**\
 `Federal agents fatally shot a second U.S. citizen on Saturday during protests of President Trump’s immigration crackdown, prompting many Americans to reflect on the state of the country. Teenagers, what do you think?`\
 https://nytimes.com/2026/01/27/learning/after-a-second-killing-in-minneapolis-how-are-you-feeling-about-where-america-is-heading.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/27/science/gladys-west-dead.html
 **Democrats Push to Impeach and Investigate Noem**\
 `Following the fatal shooting in Minneapolis, a drive to impeach the homeland security secretary has drawn dozens more Democratic supporters, including the party’s top three leaders.`\
 https://nytimes.com/2026/01/27/us/kristi-noem-dhs-impeach-minneapolis.html
-
-**Trump Calls for ‘Honest’ Inquiry Into Alex Pretti Shooting**\
-`President Trump said that he will be “watching over” the investigation in the fatal shooting of Alex Pretti. He also said faulted Mr. Pretti for carrying a gun.`\
-https://nytimes.com/video/us/politics/100000010672364/trump-alex-pretti.html
 
