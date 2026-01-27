@@ -1,3 +1,11 @@
+**Sources: Toulouse bids for Columbus, Canada forward Russell-Rowe**\
+`The Canadian World Cup hopeful is a transfer target for the Ligue 1 side`\
+https://nytimes.com/athletic/7000473/2026/01/26/toulouse-jacen-russell-rowe-transfer-bid-columbus-crew-canada/
+
+**Cooper Flagg, Kon Knueppel headline NBA's 2026 Rising Stars participants**\
+`Carmelo Anthony, Vince Carter, Tracy McGrady and Austin Rivers will serve as honorary coaches for the four-team Rising Stars tournament.`\
+https://nytimes.com/athletic/7000430/2026/01/26/rising-stars-player-pool-cooper-flagg-kon-knueppel/
+
 **Kyle Rittenhouse Is Once Again a Lightning Rod Online**\
 `After the death of Alex Pretti, some people are posting about a different young man who brought a gun to a protest and the treatment he received from law enforcement agents.`\
 https://nytimes.com/2026/01/26/style/alex-pretti-kyle-rittenhouse-online.html
