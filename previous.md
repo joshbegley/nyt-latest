@@ -15,7 +15,7 @@ https://nytimes.com/2026/01/27/business/india-europe-trade-tariffs-trump.html
 https://nytimes.com/athletic/6993650/2026/01/27/aston-villa-transfers-douglas-luiz/
 
 **Leeds have developed tactically - but Farke’s in-game management remains questionable**\
-`This was a good point for Leeds, but the lack of a tactical reaction to Moyes’s half-time switch did leave fans wondering: ‘What if?’`\
+`Dropping two points should not raise any new inquiries about survival, but the timing of Farke’s substitutions will raise familiar questions`\
 https://nytimes.com/athletic/7001039/2026/01/27/leeds-farke-development-substitutions/
 
 **Word of the Day: sagacious**\

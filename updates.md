@@ -1,3 +1,7 @@
+**Leeds have developed tactically - but Farke’s in-game management remains questionable**\
+`Dropping two points should not raise any new inquiries about survival, but the timing of Farke’s substitutions will raise familiar questions`\
+https://nytimes.com/athletic/7001039/2026/01/27/leeds-farke-development-substitutions/
+
 **Vowing Higher Tariffs, Trump Rattles South Korea Months After Trade Deal**\
 `President Trump said Seoul was not moving fast enough to implement the agreement, which calls for South Korea to invest billions in the United States.`\
 https://nytimes.com/2026/01/27/world/asia/korea-trump-higher-tariff.html
