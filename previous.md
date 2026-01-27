@@ -1,3 +1,7 @@
+**Jets, Aaron Glenn change course and part ways with offensive coordinator Tanner Engstrand: Sources**\
+`Jets coach Aaron Glenn will now have to find an offensive coordinator and a defensive coordinator this offseason.`\
+https://nytimes.com/athletic/6952099/2026/01/27/tanner-engstrand-fired-new-york-jets/
+
 **Caitlin Clark joining NBC Sports for its new Sunday night NBA pregame show**\
 `Clark's crossover appeal will be on display for a national NBA audience.`\
 https://nytimes.com/athletic/7002228/2026/01/27/caitlin-clark-nbc-sports-nba-wnba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7002159/2026/01/27/sam-darnold-usc-super-bowl-until
 **Penguins forward Bryan Rust receives 3-game suspension for hit on Canucks' Brock Boeser**\
 `The illegal hit to the head came at the end of the Penguins' 3-2 win Sunday in Vancouver.`\
 https://nytimes.com/athletic/7001997/2026/01/27/penguins-bryan-rust-suspension-brock-boeser-hit/
-
-**On Immigration, the G.O.P. Finds Itself in a Shocking Place: On Defense**\
-`Since President Trump’s rise, the issue has been a strength for the party. But now, after the chaos in Minnesota, Democrats see an opening and some Republicans worry that Mr. Trump is going too far.`\
-https://nytimes.com/2026/01/27/us/politics/minnesota-politics-immigration-trump.html
 

@@ -1,3 +1,7 @@
+**Jets, Aaron Glenn change course and part ways with offensive coordinator Tanner Engstrand: Sources**\
+`Jets coach Aaron Glenn will now have to find an offensive coordinator and a defensive coordinator this offseason.`\
+https://nytimes.com/athletic/6952099/2026/01/27/tanner-engstrand-fired-new-york-jets/
+
 **Caitlin Clark joining NBC Sports for its new Sunday night NBA pregame show**\
 `Clark's crossover appeal will be on display for a national NBA audience.`\
 https://nytimes.com/athletic/7002228/2026/01/27/caitlin-clark-nbc-sports-nba-wnba/
