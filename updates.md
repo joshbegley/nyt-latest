@@ -1,3 +1,11 @@
+**Vowing Higher Tariffs, Trump Rattles South Korea Months After Trade Deal**\
+`President Trump said Seoul was not moving fast enough to implement the agreement, which calls for South Korea to invest billions in the United States.`\
+https://nytimes.com/2026/01/27/world/asia/korea-trump-higher-tariff.html
+
+**Seth Meyers Won’t Let ICE Co-Opt the Weather**\
+`“Just think about it, ICE is so unpopular, they want FEMA to not use the word ‘ice,’” the late night host said of the immigration enforcement agency.`\
+https://nytimes.com/2026/01/27/arts/television/late-night-ice-fema-weather.html
+
 **In the Shadow of Trump, India and the European Union Expand Trade Ties**\
 `After nearly 20 years of negotiations, the two sides struck a far-reaching agreement that officials called “the mother of all trade deals.”`\
 https://nytimes.com/2026/01/27/business/india-europe-trade-tariffs-trump.html
