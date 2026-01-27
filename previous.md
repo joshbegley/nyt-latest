@@ -1,3 +1,27 @@
+**Climbing a Skyscraper**\
+`Alex Honnold scaled a 1,667-foot-tall skyscraper without a rope. Is his feat inspiring? Or terrifyingly reckless?`\
+https://nytimes.com/2026/01/27/learning/climbing-a-skyscraper.html
+
+**Leicester City's Khun Top: 'The players need support from the fans, big time. Nobody wants to see us in League One'**\
+`The Championship club's chairman on healing the rift with a disgruntled fanbase, hierarchy changes, relegation and if he will sell up`\
+https://nytimes.com/athletic/6999463/2026/01/27/khun-top-leicester-city-interview/
+
+**An Academic and a Dealmaker Takes on the Challenge of Running Columbia**\
+`Jennifer Mnookin forged compromises with protesters and politicians at the University of Wisconsin-Madison. Now, she faces her biggest test.`\
+https://nytimes.com/2026/01/27/nyregion/columbia-president-jennifer-mnookin.html
+
+**After Cannabis Shake-Up in New York, Hochul’s Leadership Is Questioned**\
+`Efforts to get the state’s Office of Cannabis Management on track have been slow to yield results.`\
+https://nytimes.com/2026/01/27/nyregion/ny-cannabis-management-office-hochul.html
+
+**Brothers Charged With Sex Trafficking Wage Campaign to Shame Accusers**\
+`The Alexander brothers, once titans of the New York party scene, have retained a high-stakes public relations strategist, Juda Engelmayer, whose clients include Harvey Weinstein.`\
+https://nytimes.com/2026/01/27/nyregion/alexander-brothers-public-relations-campaign.html
+
+**Trial to Begin in Sex-Trafficking Case Against Alexander Brothers**\
+`Prosecutors say the three men used their money, power and status to sexually assault women, including two underage girls. The men have denied the charges.`\
+https://nytimes.com/2026/01/27/nyregion/oren-tal-alexander-trial-sex-trafficking.html
+
 **The Transfer DealSheet: The latest on your club**\
 `Welcome to The Athletic's fourth edition of The Transfer DealSheet for the 2026 January window`\
 https://nytimes.com/athletic/6998816/2026/01/27/manchester-united-arsenal-transfer-latest-liverpool-real-madrid-chelsea-dealsheet/
@@ -13,28 +37,4 @@ https://nytimes.com/2026/01/27/arts/television/late-night-ice-fema-weather.html
 **In the Shadow of Trump, India and the European Union Expand Trade Ties**\
 `After nearly 20 years of negotiations, the two sides struck a far-reaching agreement that officials called “the mother of all trade deals.”`\
 https://nytimes.com/2026/01/27/business/india-europe-trade-tariffs-trump.html
-
-**Villa seriously considering move to sign midfielder Douglas Luiz**\
-`The midfielder is on loan at Nottingham Forest from Serie A side Juventus but has only made eight top-flight appearances this term.`\
-https://nytimes.com/athletic/6993650/2026/01/27/aston-villa-transfers-douglas-luiz/
-
-**Leeds have developed tactically - but Farke’s in-game management remains questionable**\
-`Dropping two points should not raise any new inquiries about survival, but the timing of Farke’s substitutions will raise familiar questions`\
-https://nytimes.com/athletic/7001039/2026/01/27/leeds-farke-development-substitutions/
-
-**Word of the Day: sagacious**\
-`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/01/27/learning/word-of-the-day-sagacious.html
-
-**Everton without Jack Grealish: How does it look and how can he be replaced?**\
-`Losing Grealish’s quality is far from the only issue for a side still striving for consistency and clarity.`\
-https://nytimes.com/athletic/7000739/2026/01/27/everton-jack-grealish-injury/
-
-**Top-ranked Arizona flexes contender status as it holds off late BYU comeback**\
-`At 21-0, the Wildcats have matched the best start in program history and are one of three remaining undefeated teams.`\
-https://nytimes.com/athletic/7001067/2026/01/27/arizona-byu-college-basketball-brayden-burries/
-
-**The New York Times in Print for Tuesday, Jan. 27, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/01/27/todays-new-york-times
 
