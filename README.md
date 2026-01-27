@@ -1,3 +1,7 @@
+**State of the Hockey Rivalry: Team U.S.A. vs. Team Canada**\
+`Does the U.`\
+https://nytimes.com/video/the-athletic/100000010665493/state-of-the-hockey-rivalry-team-usa-vs-team-canada.html
+
 **Coco Gauff's Australian Open evaporates in overwhelming loss to Elina Svitolina**\
 `After starting the match with the wrong string tension, the American could not recover from a whirlwind of Svitolina pressure.`\
 https://nytimes.com/athletic/7001166/2026/01/27/australian-open-coco-gauff-elina-svitolina-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/27/nyregion/alexander-brothers-public-relations-camp
 **Trial to Begin in Sex-Trafficking Case Against Alexander Brothers**\
 `Prosecutors say the three men used their money, power and status to sexually assault women, including two underage girls. The men have denied the charges.`\
 https://nytimes.com/2026/01/27/nyregion/oren-tal-alexander-trial-sex-trafficking.html
-
-**Everton without Jack Grealish: How does it look and how can he be replaced?**\
-`Losing Grealish’s quality is far from the only issue for a side still striving for consistency and clarity.`\
-https://nytimes.com/athletic/7000739/2026/01/27/everton-jack-grealish-injury/
 
