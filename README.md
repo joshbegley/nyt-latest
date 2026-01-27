@@ -1,3 +1,31 @@
+**TikTok Blames Technical Problems to Users’ Claims That It Suppressed ICE-Related Posts**\
+`Some users had accused the app of blocking them from posting videos about Immigration and Customs Enforcement. The app said it was a power outage issue.`\
+https://nytimes.com/2026/01/27/us/tiktok-ice-minneapolis-technical-problems.html
+
+**Sean Payton on 4th-down decision: 'There are those moments you wish you had back'**\
+`Payton outlined the upcoming recovery for QB Bo Nix, who is expected to return to the field in May.`\
+https://nytimes.com/athletic/7002140/2026/01/27/broncos-sean-payton-fourth-down-bo-nix/
+
+**Man Went on ‘Trial Run’ Before Killing 4 Homeless Men, Prosecutors Say**\
+`Randy Rodriguez Santos faces four murder charges for the beating deaths of homeless men in Manhattan’s Chinatown in 2019. The killings left the city’s homeless population on edge.`\
+https://nytimes.com/2026/01/27/nyregion/santos-murder-homeless-chintatown-trial.html
+
+**How to watch West Virginia vs. Utah women's basketball: Time, TV, streaming**\
+`Find out how to watch the West Virginia Mountaineers play the Utah Utes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7002440/2026/01/27/west-virginia-vs-utah-stream-how-to-watch-jan-27/
+
+**How to watch UMass vs. Miami (OH) men's basketball: Time, TV, streaming**\
+`Find out how to watch the UMass Minutemen play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7002436/2026/01/27/umass-vs-miami-oh-stream-how-to-watch-jan-27/
+
+**How to watch Kentucky vs. Vanderbilt men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7002433/2026/01/27/kentucky-vs-vanderbilt-stream-how-to-watch-jan-27/
+
+**How to watch Purdue vs. Indiana men's basketball: Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the Indiana Hoosiers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7002431/2026/01/27/purdue-vs-indiana-stream-how-to-watch-jan-27/
+
 **How to watch Providence vs. UConn men's basketball: Time, TV, streaming**\
 `Find out how to watch the Providence Friars play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7002428/2026/01/27/providence-vs-uconn-stream-how-to-watch-jan-27/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7002423/2026/01/27/george-washington-vs-saint-louis
 **How to watch Houston vs. Baylor women's basketball: Time, TV, streaming**\
 `Find out how to watch the Houston Cougars play the Baylor Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7002419/2026/01/27/houston-vs-baylor-stream-how-to-watch-jan-27/
-
-**How to watch Missouri vs. Alabama men's basketball: Time, TV, streaming**\
-`Find out how to watch the Missouri Tigers play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7002415/2026/01/27/missouri-vs-alabama-stream-how-to-watch-jan-27/
-
-**One Person Is Wounded in Shooting Involving Border Patrol in Arizona**\
-`The person, who has not been identified, was in custody at the time of the shooting, which is under investigation.`\
-https://nytimes.com/2026/01/27/us/border-shooting-arizona.html
-
-**Caicedo says he must 'learn' from disciplinary issues but 'it's my style'**\
-`Caicedo has missed five games through suspension this season but explained "sometimes, that's the risk I need to take".`\
-https://nytimes.com/athletic/7002345/2026/01/27/moises-caicedo-chelsea-discipline/
-
-**Shaheen and Murkowski: Congress Must Defend NATO From Trump**\
-`America must defend its greatest asset: Its alliances.`\
-https://nytimes.com/2026/01/27/opinion/senators-congress-nato-trump-greenland.html
-
-**Freddy Peralta taking a wait-and-see approach to potential Mets extension**\
-`The Mets aren't believed to be currently pursuing an extension with Peralta but could be open to it down the road.`\
-https://nytimes.com/athletic/7002325/2026/01/27/freddy-peralta-mets-extension-possibility/
-
-**Quiet change to CFP format removes requirement that G6 team win its league**\
-`The idea that the G6 spot could go to a non-champion has been previously unreported and, in some cases, even forgotten by CFP leaders.`\
-https://nytimes.com/athletic/7002143/2026/01/27/college-football-playoff-format-g5-champions/
-
-**Super Bowl 60 early predictions: Patriots offense testing survivable limits**\
-`Our staff makes score predictions and MVP picks for the Super Bowl.`\
-https://nytimes.com/athletic/7000498/2026/01/27/super-bowl-seahawks-patriots-odds-picks-predictions/
 

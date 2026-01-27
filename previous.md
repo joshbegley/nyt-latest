@@ -1,3 +1,23 @@
+**How to watch Providence vs. UConn men's basketball: Time, TV, streaming**\
+`Find out how to watch the Providence Friars play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7002428/2026/01/27/providence-vs-uconn-stream-how-to-watch-jan-27/
+
+**How to watch George Washington vs. Saint Louis men's basketball: Time, TV, streaming**\
+`Find out how to watch the George Washington Revolutionaries play the Saint Louis Billikens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7002423/2026/01/27/george-washington-vs-saint-louis-stream-how-to-watch-jan-27/
+
+**How to watch Houston vs. Baylor women's basketball: Time, TV, streaming**\
+`Find out how to watch the Houston Cougars play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7002419/2026/01/27/houston-vs-baylor-stream-how-to-watch-jan-27/
+
+**How to watch Missouri vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the Missouri Tigers play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7002415/2026/01/27/missouri-vs-alabama-stream-how-to-watch-jan-27/
+
+**One Person Is Wounded in Shooting Involving Border Patrol in Arizona**\
+`The person, who has not been identified, was in custody at the time of the shooting, which is under investigation.`\
+https://nytimes.com/2026/01/27/us/border-shooting-arizona.html
+
 **Caicedo says he must 'learn' from disciplinary issues but 'it's my style'**\
 `Caicedo has missed five games through suspension this season but explained "sometimes, that's the risk I need to take".`\
 https://nytimes.com/athletic/7002345/2026/01/27/moises-caicedo-chelsea-discipline/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7002143/2026/01/27/college-football-playoff-format-
 **Super Bowl 60 early predictions: Patriots offense testing survivable limits**\
 `Our staff makes score predictions and MVP picks for the Super Bowl.`\
 https://nytimes.com/athletic/7000498/2026/01/27/super-bowl-seahawks-patriots-odds-picks-predictions/
-
-**Mike McCarthy says he wants Aaron Rodgers back with the Steelers in 2026**\
-`"Definitely, I don't see why you wouldn't," McCarthy said at his introductory news conference.`\
-https://nytimes.com/athletic/7002264/2026/01/27/aaron-rodgers-mike-mccarthy-pittsburgh-steelers/
-
-**Canucks goalie Thatcher Demko to have season-ending hip surgery**\
-`Demko, 30, hasn't played since Jan. 10 and has struggled with injuries for the last two years.`\
-https://nytimes.com/athletic/7002268/2026/01/27/canucks-thatcher-demko-injury-surgery-stats/
-
-**For Falcons, new coach Kevin Stefanski's presence outweighs experience with Browns**\
-`The Falcons introduced Stefanski on Tuesday, and he reflected on his time with the Browns: "Smooth seas do not make skillful sailors."`\
-https://nytimes.com/athletic/7002146/2026/01/27/falcons-kevin-stefanski-head-coach-matt-ryan/
-
-**Scoop City: What's next for coaches on Rams, Broncos**\
-`Big offseason questions for the Rams and Broncos, plus updated coaching buzz after the Bills hired Joe Brady`\
-https://nytimes.com/athletic/7002258/2026/01/27/rams-broncos-coaching-stafford-vikings-darnold/
-
-**Bengals mailbag: Send your questions to beat writer Paul Dehner Jr.**\
-`Let us know what's on your mind as free agency and the draft approach.`\
-https://nytimes.com/athletic/7002300/2026/01/27/bengals-mailbag-questions-paul-dehner-jr/
 
