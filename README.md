@@ -1,3 +1,19 @@
+**How Iran Crushed an Uprising**\
+`A visual investigation by The New York Times shows the breadth and ferocity of the regime’s crackdown across the country.`\
+https://nytimes.com/2026/01/27/world/iran-protests-crackdown-eu-india-trade.html
+
+**Bills said they needed a new voice. Uninspiring Joe Brady hiring signals more of the same**\
+`The Bills promoted their offensive coordinator to head coach after firing Sean McDermott. `\
+https://nytimes.com/athletic/7002409/2026/01/27/joe-brady-bills-hc-staff-pegula-reaction/
+
+**Minnesota State House Special Election Results**\
+`Get live results from the 2026 Minnesota state legislature special elections in House districts 64A and 47A.`\
+https://nytimes.com/interactive/2026/01/27/us/elections/results-minnesota-state-legislature-special.html
+
+**Vikings announcer apologizes for comments critical of Minneapolis ICE protesters**\
+`Minnesota play-by-play man Paul Allen said he is taking time off after making insensitive on-air comments about anti-ICE demonstrations.`\
+https://nytimes.com/athletic/7002163/2026/01/27/paul-allen-vikings-ice-protesters-comments/
+
 **Bari Weiss Urges CBS News to Think Like a ‘Start-Up’**\
 `“We are not producing a product enough people want,” Ms. Weiss told employees at her first all-staff meeting at the network.`\
 https://nytimes.com/2026/01/27/business/media/bari-weiss-cbs-news-town-hall.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/dining/100000010671368/creamy-tomato-hummus-soup.html
 **Texas Moves to Curtail Visas for Skilled Foreign Workers**\
 `Gov. Greg Abbott said the state would investigate public agencies and universities that employ those with H-1B visas, a program the Trump administration has also targeted.`\
 https://nytimes.com/2026/01/27/us/texas-immigrants-h1b-visas.html
-
-**Senator Warnock Says ‘Soul of Our Nation Is at Stake’ During Visit to Minneapolis**\
-`The Georgia Democrat said he would push to block ICE funding when he returned to Washington.`\
-https://nytimes.com/2026/01/27/us/senator-warnock-minneapolis.html
-
-**Drake Maye 'ready to go' for Super Bowl amid questions about shoulder injury**\
-`Following a less-than-stellar passing performance in the AFC Championship Game, Maye is facing questions about the health of his shoulder.`\
-https://nytimes.com/athletic/7002399/2026/01/27/drake-maye-shoulder-patriots-injury-super-bowl/
-
-**A Shift for NOAA’s Surveys: From Science to Mining**\
-`A $20 million agency project will aid companies prospecting the sea for rare-earth elements.`\
-https://nytimes.com/2026/01/27/climate/noaa-deep-sea-mining.html
-
-**Bucking a Global Trend, Spain Offers Undocumented Migrants a Legal Way to Stay**\
-`The measure, unexpectedly approved, comes as other countries are cracking down on immigration.`\
-https://nytimes.com/2026/01/27/world/europe/spain-undocumented-migrants-residency.html
 
