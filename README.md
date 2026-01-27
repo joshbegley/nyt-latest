@@ -1,3 +1,7 @@
+**Trump Holds 2-Hour Meeting With Noem Amid Backlash to Minneapolis Shooting**\
+`The meeting is a sign that the president is concerned about the fallout from the killing of Alex Pretti, who was shot by immigration agents.`\
+https://nytimes.com/2026/01/26/us/noem-trump-meeting-minneapolis-ice.html
+
 **New Video Analysis Reveals Flawed and Fatal Decisions in Shooting of Pretti**\
 `A frame-by-frame assessment of actions by Alex Pretti and the two officers who fired 10 times shows how lethal force came to be used against a target who didn’t pose a threat.`\
 https://nytimes.com/video/us/100000010668660/new-video-analysis-reveals-flawed-and-fatal-decisions-in-shooting-of-pretti.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6999822/2026/01/26/wta-investigation-peyton-stearns
 **Border Patrol Official Gregory Bovino Is Set to Leave Minnesota**\
 `The Trump administration is planning to move Gregory Bovino, a Border Patrol official whose tactics in major American cities have drawn controversy, out of Minneapolis, according to two officials.`\
 https://nytimes.com/video/us/100000010669997/gregory-bovino-minnesota-departure.html
-
-**'Best athlete I've ever seen': The fan who saw Drake Maye's future in 2012**\
-`Justin Farkas remembers watching Maye dominate as a nine-year-old, playing against kids two or three years older than him.`\
-https://nytimes.com/athletic/7000684/2026/01/26/drake-maye-fan-prediction-2012-super-bowl/
 
