@@ -1,3 +1,15 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/27/crosswords/spelling-bee-forum.html
+
+**At Dior, a Major Surprise**\
+`Jonathan Anderson delivers an unexpected guest — and a great collection.`\
+https://nytimes.com/2026/01/27/style/dior-couture-jonathan-anderson-john-galliano.html
+
+**Everton without Jack Grealish: How does it look and how can he be replaced?**\
+`Losing Grealish’s quality is far from the only issue for a side still striving for consistency and clarity.`\
+https://nytimes.com/athletic/7000739/2026/01/27/everton-jack-grealish-injury/
+
 **Climbing a Skyscraper**\
 `Alex Honnold scaled a 1,667-foot-tall skyscraper without a rope. Is his feat inspiring? Or terrifyingly reckless?`\
 https://nytimes.com/2026/01/27/learning/climbing-a-skyscraper.html
