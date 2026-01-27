@@ -1,3 +1,7 @@
+**Judge Orders ICE Chief to Appear in Court Over Potential Contempt**\
+`In a brief ruling, the Minnesota judge wrote that unusual order was necessary because “the extent of ICE’s violation of court orders is likewise extraordinary.”`\
+https://nytimes.com/2026/01/27/us/politics/ice-director-minnesota-contempt.html
+
 **A timeline of the shifting Department of Homeland Security.**\
 `By Christina Morales`\
 https://nytimes.com/live/2026/01/27/us/minneapolis-shooting-ice-minnesota/dhs-ice-trump-timeline
@@ -14,7 +18,7 @@ https://nytimes.com/2026/01/27/business/general-motors-earnings.html
 `“The Outsiders” is the first new musical to open since 2022 to become profitable.`\
 https://nytimes.com/2026/01/27/theater/outsiders-broadway-musical-profit.html
 
-**Warriors, Bucks navigating huge dilemmas with stars Steph Curry and Giannis**\
+**Warriors, Bucks navigating huge dilemmas with Steph and Giannis**\
 `If you’re playing in “franchise mode” and you’re running either of these teams, you trade Steph or Antetokounmpo for a mountain of assets.`\
 https://nytimes.com/athletic/6997718/2026/01/27/warriors-bucks-giannis-antetokounmpo-stephen-curry-nba-trade-deadline/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7000655/2026/01/27/ncaa-dabo-swinney-ole-miss-tampe
 **Australian Open recap: A home hope gets philosophical about tennis expectations**\
 `Alex de Minaur's Grand Slam record is enviable — but the Sisyphean losses to greats old and new are mounting.`\
 https://nytimes.com/athletic/7000527/2026/01/27/australian-open-recap-day-10-results-analysis/
-
-**How did No. 5 Nebraska — a perennial college basketball loser — get this good?**\
-`Nearly everything has gone right for a Nebraska program whose fans grew accustomed to everything going wrong.`\
-https://nytimes.com/athletic/7001390/2026/01/27/nebraska-basketball-ncaa-tournament-fred-hoiberg/
 
