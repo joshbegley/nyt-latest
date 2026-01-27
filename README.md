@@ -1,3 +1,7 @@
+**Correa to miss WBC after failing to receive insurance on his contract**\
+`Correa's Astros teammate Jose Altuve will also not play in the WBC due to insurance issues.`\
+https://nytimes.com/athletic/7001980/2026/01/27/astros-carlos-correa-missing-world-baseball-classic-insurance/
+
 **Mark Carney Rejects Suggestions That He Walked Back His Davos Speech to Trump**\
 `Scott Bessent said that the Canadian prime minister had recanted his call on middle powers to no longer accommodate the U.S.`\
 https://nytimes.com/2026/01/27/us/politics/carney-trump-davos-speech-canada-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/27/well/food-diet-nutrition-cancer-risk.html
 **How Villa signed Abraham: Emery's role, other options and the striker waiving money to join**\
 `How the Champions League hopefuls solved a problem position with a move for Besiktas' on-loan Roma and England striker`\
 https://nytimes.com/athletic/6998848/2026/01/27/tammy-abraham-aston-villa-transfer/
-
-**Judge Cuts Sentence of Ultra-Orthodox Therapist Convicted of Molestation**\
-`Nechemya Weberman’s sentence for child sexual abuse was reduced to 18 years, making him eligible for release within five years. He admitted his guilt for the first time on Tuesday.`\
-https://nytimes.com/2026/01/27/nyregion/weberman-sexual-molestation-sentence.html
 
