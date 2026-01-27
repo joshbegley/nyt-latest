@@ -1,40 +1,40 @@
-**Here’s the latest.**\
-`By Hamed Aleaziz, Ernesto Londoño, David E. Sanger, Mitch Smith and Max Kim`\
-https://nytimes.com/live/2026/01/27/us/minneapolis-shooting-ice-minnesota/heres-the-latest
+**'We are seeing people die': German soccer exec wants World Cup boycott discussed**\
+`“It is clearly time to at least discuss a boycott,” Goettlich, who is also president of Bundesliga club St. Pauli, tells The Athletic.`\
+https://nytimes.com/athletic/7001226/2026/01/27/world-cup-boycott-germany-oke-goettlich/
 
-**Minneapolis Live Updates: Trump Shakes Up Immigration Crackdown Leadership**\
-`President Trump said his border czar, Tom Homan, will direct ICE operations in Minnesota. Gregory Bovino, a Border Patrol official, is set to depart amid growing anger over a second fatal shooting by federal agents.`\
-https://nytimes.com/live/2026/01/27/us/minneapolis-shooting-ice-minnesota
+**Colston Loveland eyeing major breakthrough as Bears flip the page to next season**\
+`Loveland's versatility offers promise for the future. So, too, do Ben Johnson's leadership presence and Cairo Santos' kickoff creativity.`\
+https://nytimes.com/athletic/6999812/2026/01/27/bears-colston-loveland-ben-johnson-cairo-santos/
 
-**Man Utd's Dorgu set to miss around 10 weeks with hamstring injury**\
-`The 21-year-old has featured 22 times in the Premier League this season, recording three goals and three assists.`\
-https://nytimes.com/athletic/7001203/2026/01/27/manchester-uniteds-patrick-dorgu-set-to-miss-around-10-weeks-with-hamstring-injury/
+**By ditching Roval, NASCAR continues hot streak of favorable moves**\
+`NASCAR fans have wanted fewer pitfalls and land mines for the top contenders, preferring to see the best of the best race it out.`\
+https://nytimes.com/athletic/6999531/2026/01/27/nascar-roval-playoff-charlotte-oval/
 
-**Villa's Tielemans set for spell on sidelines with ankle injury**\
-`Tielemans suffered the injury in the second half of Villa's 2-0 victory at St James' Park on Sunday.`\
-https://nytimes.com/athletic/7000173/2026/01/27/tielemans-aston-villa-injury-news/
+**Coco Gauff criticizes lack of privacy at Australian Open after racket smash caught on camera**\
+`Gauff broke one of her rackets after a 6-1, 6-2 defeat to Elina Svitolina in the Australian Open quarterfinals.`\
+https://nytimes.com/athletic/7001272/2026/01/27/coco-gauff-racket-smash-australian-open-cameras/
 
-**Mikaela Shiffrin fell under an Olympic hex in 2022. Can she escape it this time?**\
-`The world's greatest Alpine skier went medal-less in six events in Beijing. Now, "there is pressure" to put it behind her.`\
-https://nytimes.com/athletic/6995243/2026/01/27/mikaela-shiffrin-olympics-alpine-skiing-medals-beijing/
+**Perreault, Robertson prove Rangers must turn to youth in a lost season**\
+`The Rangers' youngest players made the biggest splashes against the Bruins, but didn't necessarily receive much ice time.`\
+https://nytimes.com/athletic/7000931/2026/01/27/rangers-youth-perreault-robertson-bruins/
 
-**His family says he designed the HOF's gold jacket, claims 'NFL erased him from history'**\
-`Few outside of his family have ever heard of Vic Maitland, whom they believe came up with one of sports' most distinctive sartorial items.`\
-https://nytimes.com/athletic/6994306/2026/01/27/pro-football-hall-of-fame-gold-jacket-designer-lawsuit/
+**'John is in our pantheon': Wall and the Wizards have found each other again after a bad breakup**\
+`Wall has been welcomed back with open arms, as teams often do with their franchise's most iconic talents, no matter the previous ending.`\
+https://nytimes.com/athletic/6963343/2026/01/27/john-wall-wizards-appreciation-night-honor/
 
-**What Giants defensive coordinator Dennard Wilson brings to John Harbaugh's growing staff**\
-`Wilson's two years with the Titans did nothing to diminish his reputation. He's known as an intense coach who is respected by players.`\
-https://nytimes.com/athletic/7000507/2026/01/27/dennard-wilson-new-york-giants-dc-hire/
+**How the NHL/NHLPA player assistance program works, from consultation to treatment to release**\
+`To help increase understanding of what the program does — and how — Marty Walsh and several players agreed to share their experiences.`\
+https://nytimes.com/athletic/6227932/2026/01/27/nhl-nhlpa-player-assistance-program-how-it-works/
 
-**NBA trade deadline tiers 2.0: Whose goals have changed with Feb. 5 looming?**\
-`A month ago, we examined every team's motivation for making (or not making) moves. But the landscape has shifted for several.`\
-https://nytimes.com/athletic/6994269/2026/01/27/nba-trade-deadline-2026-tiers-warriors-knicks/
+**Seven big names who could be traded before MLB Opening Day**\
+`There have been several big trades already this offseason, but even with spring training on the horizon, there is time for more big deals.`\
+https://nytimes.com/athletic/6999931/2026/01/27/mlb-trade-possibilities-opening-day-tarik-skubal/
 
-**The New York Times International Edition in Print for Wednesday, Jan. 28, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/01/27/todays-new-york-times-international-edition
+**MLS Transfer DealSheet: Latest around the league as 2026 season nears**\
+`The 2026 MLS season is less than a month from kicking off, and clubs are maneuvering to get in shape for opening day`\
+https://nytimes.com/athletic/7001025/2026/01/27/mls-transfer-dealsheet-miami-sargent-freeman-signings/
 
-**Instead of X's and O's, Mike Vrabel opted for 4 H's to spur Patriots' turnaround**\
-`Players say an offseason culture-building activity — sharing their hopes, history, heroes and heartbreaks — helped make them a better team.`\
-https://nytimes.com/athletic/7000043/2026/01/27/mike-vrabel-patriots-broncos-super-bowl-turnaround/
+**Why did the Vikings move on from Sam Darnold? Inside a decision worth revisiting**\
+`Darnold's performance this season, and particularly in Sunday's win over the Rams, has Vikings fans wondering why their team let him go.`\
+https://nytimes.com/athletic/7000249/2026/01/27/sam-darnold-seahawks-vikings-decision-super-bowl/
 
