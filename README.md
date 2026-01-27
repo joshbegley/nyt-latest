@@ -1,3 +1,7 @@
+**F.A.A. Ignored Safety Concerns Prior to Collision Over Potomac, N.T.S.B. Says**\
+`The National Transportation Safety Board said that a “multitude of errors” led to the collision between a military helicopter and a commercial jet, killing 67 people last January.`\
+https://nytimes.com/video/us/politics/100000010671390/dc-crash-ntsb-meeting.html
+
 **Victor Wembanyama on Minneapolis shootings: 'Murder of civilians' unacceptable**\
 `"Every day, I wake up and see the news and I'm horrified," Victor Wembanyama said about violence in Minneapolis by federal agents.`\
 https://nytimes.com/athletic/7002444/2026/01/27/victor-wembanyama-minneapolis-shootings-reaction/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/27/world/iran-protests-crackdown-eu-india-trade.html
 **Bills said they needed a new voice. Uninspiring Joe Brady hiring signals more of the same**\
 `The Bills promoted their offensive coordinator to head coach after firing Sean McDermott. `\
 https://nytimes.com/athletic/7002409/2026/01/27/joe-brady-bills-hc-staff-pegula-reaction/
-
-**Minnesota State House Special Election Results**\
-`Get live results from the 2026 Minnesota state legislature special elections in House districts 64A and 47A.`\
-https://nytimes.com/interactive/2026/01/27/us/elections/results-minnesota-state-legislature-special.html
 

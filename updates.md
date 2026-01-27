@@ -1,3 +1,15 @@
+**Victor Wembanyama on Minneapolis shootings: 'Murder of civilians' unacceptable**\
+`"Every day, I wake up and see the news and I'm horrified," Victor Wembanyama said about violence in Minneapolis by federal agents.`\
+https://nytimes.com/athletic/7002444/2026/01/27/victor-wembanyama-minneapolis-shootings-reaction/
+
+**TripToGo in Peru**\
+`Capturing a captivating culture.`\
+https://nytimes.com/paidpost/triptogo/triptogo-peru/triptogo-in-peru.html
+
+**Storm Deaths Reach 10, Testing Mamdani’s Handling of a Weather Emergency**\
+`After first saying that it did not appear that the dead were homeless people, Mayor Zohran Mamdani has vowed to do more to get people into shelters.`\
+https://nytimes.com/2026/01/27/nyregion/mamdani-storm-deaths-homeless.html
+
 **Peter H. Duesberg, 89, Renowned Biologist Turned H.I.V. Denialist, Dies**\
 `His pioneering work on the origins of cancer was later overshadowed by his contrarian views, notably his rejection of the established theory that H.I.V. causes AIDS.`\
 https://nytimes.com/2026/01/27/science/peter-duesberg-dead.html
