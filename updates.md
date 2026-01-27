@@ -1,3 +1,7 @@
+**State of the Hockey Rivalry: Team U.S.A. vs. Team Canada**\
+`Does the U.`\
+https://nytimes.com/video/the-athletic/100000010665493/state-of-the-hockey-rivalry-team-usa-vs-team-canada.html
+
 **Coco Gauff's Australian Open evaporates in overwhelming loss to Elina Svitolina**\
 `After starting the match with the wrong string tension, the American could not recover from a whirlwind of Svitolina pressure.`\
 https://nytimes.com/athletic/7001166/2026/01/27/australian-open-coco-gauff-elina-svitolina-result-analysis/
