@@ -1,3 +1,11 @@
+**Bucking a Global Trend, Spain Offers Undocumented Migrants a Legal Way to Stay**\
+`The measure, unexpectedly approved, comes as other countries are cracking down on immigration.`\
+https://nytimes.com/2026/01/27/world/europe/spain-undocumented-migrants-residency.html
+
+**How to watch Pistons vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7002494/2026/01/27/pistons-vs-nuggets-stream-how-to-watch-jan-27/
+
 **How to watch Clippers vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7002484/2026/01/27/clippers-vs-jazz-stream-how-to-watch-jan-27/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7002464/2026/01/27/sharks-vs-canucks-stream-how-to-
 **How to watch Pelicans vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7002462/2026/01/27/pelicans-vs-thunder-stream-how-to-watch-jan-27/
-
-**How to watch Blackhawks vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7002459/2026/01/27/blackhawks-vs-wild-stream-how-to-watch-jan-27/
-
-**TikTok Blames Technical Problems After Users Claimed It Blocked ICE Posts**\
-`Some users had accused the app of blocking them from posting videos about Immigration and Customs Enforcement. The app said it was a power outage issue.`\
-https://nytimes.com/2026/01/27/us/tiktok-ice-minneapolis-technical-problems.html
 
