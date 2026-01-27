@@ -1,3 +1,7 @@
+**Florida Republican Says Immigration Crackdown Has ‘Gone Too Far’**\
+`State Senator Ileana Garcia, who is Cuban American, was once such a true believer in President Trump that she co-founded “Latinas for Trump,” a national group.`\
+https://nytimes.com/2026/01/27/us/florida-republican-says-immigration-crackdown-has-gone-too-far.html
+
 **Trinidadian Families File Wrongful Death Lawsuit Over Boat Strike by U.S. Military**\
 `The case tests the Trump administration’s argument that its extrajudicial killings of people suspected of smuggling drugs at sea have been lawful.`\
 https://nytimes.com/2026/01/27/us/politics/trinidad-wrongful-death-lawsuit-boat-strike.html
@@ -6,7 +10,7 @@ https://nytimes.com/2026/01/27/us/politics/trinidad-wrongful-death-lawsuit-boat-
 ``\
 https://nytimes.com/spotlight/financial-tune-up
 
-**West Ham close to agreeing deal to sign Adama Traore from Fulham**\
+**West Ham close to Traore deal, Ward-Prowse to leave for Burnley**\
 `Igor Julio's season-long loan from Brighton & Hove Albion is also set to be ended early.`\
 https://nytimes.com/athletic/7001597/2026/01/27/adama-traore-west-ham-fulham-transfer/
 
@@ -31,10 +35,6 @@ https://nytimes.com/2026/01/27/us/politics/jennifer-homendy-trump-transportation
 https://nytimes.com/athletic/7001586/2026/01/27/duke-darian-mensah-settlement-buyout-transfer/
 
 **Judge Orders ICE Chief to Appear in Court Over Potential Contempt**\
-`In a brief ruling, the Minnesota judge wrote that unusual order was necessary because “the extent of ICE’s violation of court orders is likewise extraordinary.”`\
+`In a brief ruling, the Minnesota judge wrote that the unusual order was necessary because “the extent of ICE’s violation of court orders is likewise extraordinary.”`\
 https://nytimes.com/2026/01/27/us/politics/ice-director-minnesota-contempt.html
-
-**Homeland Security’s Shifting Mission Over the Past Quarter-Century**\
-`Established after the Sept. 11 attacks to protect the country against terrorism, the agency absorbed immigration functions that have become its focus under President Trump.`\
-https://nytimes.com/2026/01/27/us/dhs-ice-trump-timeline.html
 

@@ -1,3 +1,11 @@
+**Trinidadian Families File Wrongful Death Lawsuit Over Boat Strike by U.S. Military**\
+`The case tests the Trump administration’s argument that its extrajudicial killings of people suspected of smuggling drugs at sea have been lawful.`\
+https://nytimes.com/2026/01/27/us/politics/trinidad-wrongful-death-lawsuit-boat-strike.html
+
+**Financial Tune-up**\
+``\
+https://nytimes.com/spotlight/financial-tune-up
+
 **West Ham close to agreeing deal to sign Adama Traore from Fulham**\
 `Igor Julio's season-long loan from Brighton & Hove Albion is also set to be ended early.`\
 https://nytimes.com/athletic/7001597/2026/01/27/adama-traore-west-ham-fulham-transfer/
