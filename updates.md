@@ -1,3 +1,7 @@
+**New Video Analysis Reveals Flawed and Fatal Decisions in Shooting of Pretti**\
+`A frame-by-frame assessment of actions by Alex Pretti and the two officers who fired 10 times shows how lethal force came to be used against a target who didn’t pose a threat.`\
+https://nytimes.com/video/us/100000010668660/new-video-analysis-reveals-flawed-and-fatal-decisions-in-shooting-of-pretti.html
+
 **Wrangler on the Road**\
 `This collaboration by Miranda Kany and Tracy Bennett will give you wings.`\
 https://nytimes.com/2026/01/26/crosswords/daily-puzzle-2026-01-27.html
