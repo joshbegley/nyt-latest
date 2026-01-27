@@ -1,3 +1,11 @@
+**WSL overseer announces £8.2m loss but profits expected to follow**\
+`The operating loss does not include the impact of the WSL’s improved broadcast deal with Sky Sports and the BBC from the start of this term.`\
+https://nytimes.com/athletic/7001323/2026/01/27/wslf-finances-2024-25-womens-football/
+
+**BAFTA Nominations: ‘One Battle After Another’ and ‘Sinners’ Face Off**\
+`‘Hamnet,’ ‘Marty Supreme’ and ‘Sentimental Value’ are also in the running for best film at Britain’s equivalent of the Oscars.`\
+https://nytimes.com/2026/01/27/movies/bafta-nominations-one-battle-after-another-sinners.html
+
 **The Nation’s Mood**\
 `We look at the tensions following the killing of Alex Pretti.`\
 https://nytimes.com/2026/01/27/briefing/the-nations-mood.html

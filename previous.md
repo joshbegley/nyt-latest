@@ -1,3 +1,11 @@
+**WSL overseer announces £8.2m loss but profits expected to follow**\
+`The operating loss does not include the impact of the WSL’s improved broadcast deal with Sky Sports and the BBC from the start of this term.`\
+https://nytimes.com/athletic/7001323/2026/01/27/wslf-finances-2024-25-womens-football/
+
+**BAFTA Nominations: ‘One Battle After Another’ and ‘Sinners’ Face Off**\
+`‘Hamnet,’ ‘Marty Supreme’ and ‘Sentimental Value’ are also in the running for best film at Britain’s equivalent of the Oscars.`\
+https://nytimes.com/2026/01/27/movies/bafta-nominations-one-battle-after-another-sinners.html
+
 **The Nation’s Mood**\
 `We look at the tensions following the killing of Alex Pretti.`\
 https://nytimes.com/2026/01/27/briefing/the-nations-mood.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6999612/2026/01/27/cindy-parlow-cone-us-soccer-pres
 **What coaches say they've learned from Indiana's football turnaround**\
 `"It’s super inspiring. If you can do it at Indiana, you can do it anywhere," one head coach said.`\
 https://nytimes.com/athletic/6999775/2026/01/27/indiana-football-coaches-lessons/
-
-**Ranking the 49ers' 16 future contract players, starting with Sebastian Valdez**\
-`The 49ers' offseason roster includes an intriguing safety with starter experience and a center who could be the top backup when 2026 begins.`\
-https://nytimes.com/athletic/6994614/2026/01/27/49ers-roster-future-contracts-sebastian-valdez/
-
-**What does the future hold for Scott Laughton with the Maple Leafs?**\
-`The pending UFA is interested in staying in Toronto, but the team may be at a turning point where that becomes less feasible.`\
-https://nytimes.com/athletic/7000753/2026/01/27/maple-leafs-scott-laughton-future/
 
