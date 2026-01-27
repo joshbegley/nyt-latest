@@ -1,5 +1,9 @@
+**Sweden adds Marcus Johansson, Hampus Lindholm to Olympic hockey roster**\
+`Marcus Johansson and Hampus Lindholm will be injury replacements for Leo Carlsson and Jonas Brodin.`\
+https://nytimes.com/athletic/7002013/2026/01/27/sweden-marcus-johansson-hampus-lindholm-olympics-hockey/
+
 **Odo Takes an á La Carte Approach to Classic Kaiseki Fare**\
-`Tacos Fonda comes to the Time Out food hall, Ops in the East Village serves food by guest restaurants and more news.`\
+`Tacos Fonda comes to the Time Out food hall, Ops in the East Village serves pizza by guest restaurants and more news.`\
 https://nytimes.com/2026/01/27/dining/nyc-restaurant-news.html
 
 **How What You Eat Affects Cancer Risk**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7001969/2026/01/27/minnesota-wild-mailbag-january-2
 **Liverpool's Gomez, Konate unavailable for Qarabag match**\
 `Captain Virgil van Dijk is the Merseyside club's only available senior centre-back for the Champions League fixture on Wednesday. `\
 https://nytimes.com/athletic/7001951/2026/01/27/gomez-konate-liverpool-robertson-slot-squad-update/
-
-**U.S. Population Growth Slows Sharply as Immigration Plunges**\
-`New census figures show that South Carolina is the nation’s fastest-growing state, while Florida’s growth rate has declined.`\
-https://nytimes.com/2026/01/27/us/politics/census-2025-estimates-population-immigration.html
 
