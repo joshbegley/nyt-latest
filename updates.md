@@ -1,3 +1,5 @@
+
+
 **Correa to miss WBC after failing to receive insurance on his contract**\
 `Correa's Astros teammate Jose Altuve will also not play in the WBC due to insurance issues.`\
 https://nytimes.com/athletic/7001980/2026/01/27/astros-carlos-correa-missing-world-baseball-classic-insurance/
