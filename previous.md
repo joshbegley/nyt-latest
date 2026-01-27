@@ -1,4 +1,8 @@
-**Liverpool's Gomez, Konate unavailable for Qarabag match, Slot says**\
+**Ask Russo and Smith: Submit your questions for The Athletic’s Minnesota Wild mailbag**\
+`Have a question about the Wild? Ask here, and Michael Russo and Joe Smith will respond to a selection in their upcoming mailbag.`\
+https://nytimes.com/athletic/7001969/2026/01/27/minnesota-wild-mailbag-january-2026/
+
+**Liverpool's Gomez, Konate unavailable for Qarabag match**\
 `Captain Virgil van Dijk is the Merseyside club's only available senior centre-back for the Champions League fixture on Wednesday. `\
 https://nytimes.com/athletic/7001951/2026/01/27/gomez-konate-liverpool-robertson-slot-squad-update/
 
@@ -25,12 +29,4 @@ https://nytimes.com/athletic/7001180/2026/01/27/west-ham-tottenham-antonin-kinsk
 **How to watch Predators vs. Bruins: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Boston Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7001918/2026/01/27/predators-vs-bruins-stream-how-to-watch-jan-27/
-
-**Philip Glass Withdraws From Kennedy Center, as Its Symphony Vows to Play On**\
-`Amid cancellations and turmoil, the National Symphony Orchestra is planning to stay. “I cannot make everybody happy,” its conductor said.`\
-https://nytimes.com/2026/01/27/arts/music/kennedy-center-national-symphony-orchestra-gianandrea-noseda.html
-
-**Microsoft Pledged to Save Water. In the A.I. Era, It Expects Water Use to Soar.**\
-`Driven by the artificial intelligence frenzy, Microsoft is internally projecting that water use at its data centers will more than double by 2030 from 2020, including in places that face shortages.`\
-https://nytimes.com/2026/01/27/technology/microsoft-water-ai-data-centers.html
 
