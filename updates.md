@@ -1,3 +1,15 @@
+**Florida Republican Says Immigration Crackdown Has ‘Gone Too Far’**\
+`State Senator Ileana Garcia, who is Cuban American, was once such a true believer in President Trump that she co-founded “Latinas for Trump,” a national group.`\
+https://nytimes.com/2026/01/27/us/florida-republican-says-immigration-crackdown-has-gone-too-far.html
+
+**West Ham close to Traore deal, Ward-Prowse to leave for Burnley**\
+`Igor Julio's season-long loan from Brighton & Hove Albion is also set to be ended early.`\
+https://nytimes.com/athletic/7001597/2026/01/27/adama-traore-west-ham-fulham-transfer/
+
+**Judge Orders ICE Chief to Appear in Court Over Potential Contempt**\
+`In a brief ruling, the Minnesota judge wrote that the unusual order was necessary because “the extent of ICE’s violation of court orders is likewise extraordinary.”`\
+https://nytimes.com/2026/01/27/us/politics/ice-director-minnesota-contempt.html
+
 **Trinidadian Families File Wrongful Death Lawsuit Over Boat Strike by U.S. Military**\
 `The case tests the Trump administration’s argument that its extrajudicial killings of people suspected of smuggling drugs at sea have been lawful.`\
 https://nytimes.com/2026/01/27/us/politics/trinidad-wrongful-death-lawsuit-boat-strike.html
