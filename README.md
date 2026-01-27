@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Hamed Aleaziz, Ernesto Londoño, David E. Sanger, Mitch Smith and Max Kim`\
+https://nytimes.com/live/2026/01/27/us/minneapolis-shooting-ice-minnesota/heres-the-latest
+
+**Minneapolis Live Updates: Trump Shakes Up Immigration Crackdown Leadership**\
+`President Trump said his border czar, Tom Homan, will direct ICE operations in Minnesota. Gregory Bovino, a Border Patrol official, is set to depart amid growing anger over a second fatal shooting by federal agents.`\
+https://nytimes.com/live/2026/01/27/us/minneapolis-shooting-ice-minnesota
+
 **Man Utd's Dorgu set to miss around 10 weeks with hamstring injury**\
 `The 21-year-old has featured 22 times in the Premier League this season, recording three goals and three assists.`\
 https://nytimes.com/athletic/7001203/2026/01/27/manchester-uniteds-patrick-dorgu-set-to-miss-around-10-weeks-with-hamstring-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todaysinyt/2026/01/27/todays-new-york-times-internatio
 **Instead of X's and O's, Mike Vrabel opted for 4 H's to spur Patriots' turnaround**\
 `Players say an offseason culture-building activity — sharing their hopes, history, heroes and heartbreaks — helped make them a better team.`\
 https://nytimes.com/athletic/7000043/2026/01/27/mike-vrabel-patriots-broncos-super-bowl-turnaround/
-
-**A Nation Divided Shares One Worry: What’s Next?**\
-`Scenes from the violent unrest in Minneapolis played on a loop in many American households over the weekend, prompting reflection about where the nation is heading.`\
-https://nytimes.com/2026/01/27/us/alex-pretti-shooting-minneapolis-reaction.html
-
-**Transportation Safety Board Set to Declare Cause of Midair Collision**\
-`The National Transportation Safety Board is set to vote on the probable cause of last year’s crash near Washington and make recommendations.`\
-https://nytimes.com/2026/01/27/us/politics/transportation-safety-board-set-to-declare-cause-of-midair-collision.html
 
