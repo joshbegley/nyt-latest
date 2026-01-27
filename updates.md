@@ -1,3 +1,7 @@
+**Southern Residents Struggle in Aftermath of Powerful Winter Storm**\
+`Residents in states such as Tennessee and Arkansas dealt with frigid conditions, a loss of electricity and blocked roadways after a huge winter storm system swept through large parts of the United States.`\
+https://nytimes.com/video/weather/100000010670989/snow-storm-south-electricity.html
+
 **Florida Republican Says Immigration Crackdown Has ‘Gone Too Far’**\
 `State Senator Ileana Garcia, who is Cuban American, was once such a true believer in President Trump that she co-founded “Latinas for Trump,” a national group.`\
 https://nytimes.com/2026/01/27/us/florida-republican-says-immigration-crackdown-has-gone-too-far.html
