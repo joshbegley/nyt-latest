@@ -1,3 +1,7 @@
+**Twins, Joe Ryan avoid arbitration, agree to deal worth $6.2 million: Sources**\
+`Plus notes on Taylor Rogers' return to Minnesota, Bailey Ober's offseason work and potential plans for Luke Keaschall.`\
+https://nytimes.com/athletic/7000543/2026/01/26/minnesota-twins-joe-ryan-avoid-arbitration-sources/
+
 **Sources: Toulouse bids for Columbus, Canada forward Russell-Rowe**\
 `The Canadian World Cup hopeful is a transfer target for the Ligue 1 side`\
 https://nytimes.com/athletic/7000473/2026/01/26/toulouse-jacen-russell-rowe-transfer-bid-columbus-crew-canada/
@@ -30,11 +34,7 @@ https://nytimes.com/2026/01/26/us/politics/faa-overhaul-safety-modernization.htm
 `Some children skipped remote classes in city schools in favor of activities they felt were more important: sledding and snowball fights.`\
 https://nytimes.com/2026/01/26/weather/snow-parks-children-remote-schooling.html
 
-**Steve Ott on taking the Blues' AHL job, what comes next: 'It's a great opportunity'**\
+**Steve Ott on taking Blues' AHL job, what comes next: 'It's a great opportunity'**\
 `"I definitely want to be a head coach in the NHL someday," says Ott, who had been a Blues assistant for nine seasons and wanted a next step.`\
 https://nytimes.com/athletic/6999761/2026/01/26/steve-ott-blues-ahl-springfield-coach-interview/
-
-**Trump Changes Course in Minnesota**\
-`Also, large parts of the U.S. are dangerously cold. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2026/01/26/briefing/trump-minnesota-winter-storm-cold.html
 
