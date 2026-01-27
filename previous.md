@@ -1,3 +1,11 @@
+**Wrexham's window: Targeting three in, potential league record deal, high-profile outgoings?**\
+`With the transfer window now into its final week and up to three signings being chased, it could be a busy few days in north Wales`\
+https://nytimes.com/athletic/6998703/2026/01/27/wrexham-january-transfer-window-2/
+
+**Arsenal and why the history of Emirates expectations led to full-time boos**\
+`Is there a way to get fans and players on the same page, enjoying the ride rather than fixating on what it will mean come May?`\
+https://nytimes.com/athletic/6998744/2026/01/27/arsenal-emirates-expectation-boos/
+
 **Have Tottenham been sucked into a relegation scrap?**\
 `Spurs have won just three of 16 Premier League matches and now have a daunting run of fixtures ahead...`\
 https://nytimes.com/athletic/6999866/2026/01/27/tottenham-relegation-battle/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6998870/2026/01/27/premier-league-defence-record-ch
 **Britain Seeks Trade With China Without Triggering Trump’s Fury**\
 `Prime Minister Keir Starmer hopes to boost his country’s lagging economy with a trip to Beijing. But he must carefully navigate between two superpowers.`\
 https://nytimes.com/2026/01/27/world/europe/uk-china-visit-starmer-trade.html
-
-**All-Night Concerts Bring Fleeting Normalcy in a War-Ravaged Nation**\
-`But the shows, which combine dance, drama and music, are also part of an effort by Myanmar’s military rulers to project a veneer of legitimacy.`\
-https://nytimes.com/2026/01/27/world/asia/myanmar-concert-zat-pwe-war.html
-
-**Record Debt in the World’s Richest Nations Threatens Global Growth**\
-`The cost of borrowing is already choking crucial public spending in many developing economies. Now it’s raising broader alarms.`\
-https://nytimes.com/2026/01/27/business/economy/government-debt-bonds.html
 
