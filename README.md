@@ -1,3 +1,11 @@
+**Victor Wembanyama on Minneapolis shootings: 'Murder of civilians' unacceptable**\
+`"Every day, I wake up and see the news and I'm horrified," Victor Wembanyama said about violence in Minneapolis by federal agents.`\
+https://nytimes.com/athletic/7002444/2026/01/27/victor-wembanyama-minneapolis-shootings-reaction/
+
+**TripToGo in Peru**\
+`Capturing a captivating culture.`\
+https://nytimes.com/paidpost/triptogo/triptogo-peru/triptogo-in-peru.html
+
 **Peter H. Duesberg, 89, Renowned Biologist Turned H.I.V. Denialist, Dies**\
 `His pioneering work on the origins of cancer was later overshadowed by his contrarian views, notably his rejection of the established theory that H.I.V. causes AIDS.`\
 https://nytimes.com/2026/01/27/science/peter-duesberg-dead.html
@@ -7,7 +15,7 @@ https://nytimes.com/2026/01/27/science/peter-duesberg-dead.html
 https://nytimes.com/2026/01/27/opinion/iran-regime-killing-protesters.html
 
 **Storm Deaths Reach 10, Testing Mamdani’s Handling of a Weather Emergency**\
-`After first saying that it did not appear that the dead were homeless people, Mayor Zohran Mamdani vowed to do more to get people into shelters.`\
+`After first saying that it did not appear that the dead were homeless people, Mayor Zohran Mamdani has vowed to do more to get people into shelters.`\
 https://nytimes.com/2026/01/27/nyregion/mamdani-storm-deaths-homeless.html
 
 **Former French Senator Convicted of Drugging a Colleague, Intending to Assault Her**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7002409/2026/01/27/joe-brady-bills-hc-staff-pegula-
 **Minnesota State House Special Election Results**\
 `Get live results from the 2026 Minnesota state legislature special elections in House districts 64A and 47A.`\
 https://nytimes.com/interactive/2026/01/27/us/elections/results-minnesota-state-legislature-special.html
-
-**Vikings announcer apologizes for comments critical of Minneapolis ICE protesters**\
-`Minnesota play-by-play man Paul Allen said he is taking time off after making insensitive on-air comments about anti-ICE demonstrations.`\
-https://nytimes.com/athletic/7002163/2026/01/27/paul-allen-vikings-ice-protesters-comments/
-
-**Bari Weiss Urges CBS News to Think Like a ‘Start-Up’**\
-`“We are not producing a product enough people want,” Ms. Weiss told employees at her first all-staff meeting at the network.`\
-https://nytimes.com/2026/01/27/business/media/bari-weiss-cbs-news-town-hall.html
 

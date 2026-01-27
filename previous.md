@@ -1,3 +1,7 @@
+**Peter H. Duesberg, 89, Renowned Biologist Turned H.I.V. Denialist, Dies**\
+`His pioneering work on the origins of cancer was later overshadowed by his contrarian views, notably his rejection of the established theory that H.I.V. causes AIDS.`\
+https://nytimes.com/2026/01/27/science/peter-duesberg-dead.html
+
 **Should Iran’s Executioners Go Unpunished?**\
 `It’s left to the United States to impose meaningful consequences on the Iranian regime for one of the worst atrocities of this century.`\
 https://nytimes.com/2026/01/27/opinion/iran-regime-killing-protesters.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7002163/2026/01/27/paul-allen-vikings-ice-protester
 **Bari Weiss Urges CBS News to Think Like a ‘Start-Up’**\
 `“We are not producing a product enough people want,” Ms. Weiss told employees at her first all-staff meeting at the network.`\
 https://nytimes.com/2026/01/27/business/media/bari-weiss-cbs-news-town-hall.html
-
-**White Bean Shakshuka**\
-`This white bean shakshuka is heartier than the traditional version and takes advantage of two readily available pantry foods: white beans and jarred marinara sauce.`\
-https://nytimes.com/video/dining/100000010671370/white-bean-shakshuka.html
 
