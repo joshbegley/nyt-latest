@@ -1,3 +1,7 @@
+**Australian Open recap: A home hope gets philosophical about tennis expectations**\
+`Alex de Minaur's Grand Slam record is enviable — but the Sisyphean losses to greats old and new are mounting.`\
+https://nytimes.com/athletic/7000527/2026/01/27/australian-open-recap-day-10-results-analysis/
+
 **How did No. 5 Nebraska — a perennial college basketball loser — get this good?**\
 `Nearly everything has gone right for a Nebraska program whose fans grew accustomed to everything going wrong.`\
 https://nytimes.com/athletic/7001390/2026/01/27/nebraska-basketball-ncaa-tournament-fred-hoiberg/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7001323/2026/01/27/wslf-finances-2024-25-womens-foo
 **BAFTA Nominations: ‘One Battle After Another’ and ‘Sinners’ Face Off**\
 `“Hamnet,” “Marty Supreme” and “Sentimental Value” are also in the running for best film at Britain’s equivalent of the Oscars.`\
 https://nytimes.com/2026/01/27/movies/bafta-nominations-one-battle-after-another-sinners.html
-
-**The Nation’s Mood**\
-`We look at the tensions following the killing of Alex Pretti.`\
-https://nytimes.com/2026/01/27/briefing/the-nations-mood.html
 
