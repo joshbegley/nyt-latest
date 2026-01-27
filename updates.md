@@ -1,3 +1,11 @@
+**Sources: USMNT, Orlando breakout talent Freeman seals move to Villarreal**\
+`Alex Freeman is headed to Villarreal this winter, continuing his rapid rise after breaking out for Orlando and the U.S. men's national team`\
+https://nytimes.com/athletic/7000765/2026/01/26/alex-freeman-transfer-villarreal-orlando-city-usmnt/
+
+**Winter Storm Debilitates the South, Encasing Cities in Ice and Snow**\
+`The forecasts had predicted that the storm could be among the worst in a generation to hit the region. By Monday, it was clear that is exactly what happened.`\
+https://nytimes.com/2026/01/26/weather/south-us-winter-storm-snow-ice.html
+
 **Women's tennis tour to investigate misconduct allegations against Peyton Stearns' coach**\
 `They concern Rafael Font de Mora’s alleged misconduct and inappropriate relationships with players during his previous time on the tour.`\
 https://nytimes.com/athletic/6999822/2026/01/26/wta-investigation-peyton-stearns-rafael-font-de-mora/
