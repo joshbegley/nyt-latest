@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, Jan. 27, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/27/todays-new-york-times
+
+**The Cost of Inaction Over Iran: ‘We Are Left With Graveyards’**\
+`It is time for the U.S. to intervene militarily in Iran, at least to deter future killings of protesters.`\
+https://nytimes.com/2026/01/27/opinion/iran-protests-military-intervention.html
+
 **How a wearable caused an Australian Open debate over tennis players' data**\
 `Bands designed to track players' health and performance data on-court are permitted by tennis governing bodies but banned at Grand Slams.`\
 https://nytimes.com/athletic/7001008/2026/01/27/tennis-australian-open-whoop-band-ban-sabalenka-alcaraz/
