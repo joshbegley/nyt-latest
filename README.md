@@ -1,3 +1,7 @@
+**Albania Created an ‘A.I. Minister’ to Curb Corruption. Then Its Developers Were Accused of Graft.**\
+`The Albanian avatar known as Diella, a public anticorruption crusader, has been described as the world’s first government minister created by artificial intelligence.`\
+https://nytimes.com/2026/01/27/world/europe/albania-ai-corruption-graft.html
+
 **'We are seeing people die': German soccer exec wants World Cup boycott discussed**\
 `“It is clearly time to at least discuss a boycott,” Goettlich, who is also president of Bundesliga club St. Pauli, tells The Athletic.`\
 https://nytimes.com/athletic/7001226/2026/01/27/world-cup-boycott-germany-oke-goettlich/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6999931/2026/01/27/mlb-trade-possibilities-opening-
 **MLS Transfer DealSheet: Latest around the league as 2026 season nears**\
 `The 2026 MLS season is less than a month from kicking off, and clubs are maneuvering to get in shape for opening day`\
 https://nytimes.com/athletic/7001025/2026/01/27/mls-transfer-dealsheet-miami-sargent-freeman-signings/
-
-**Why did the Vikings move on from Sam Darnold? Inside a decision worth revisiting**\
-`Darnold's performance this season, and particularly in Sunday's win over the Rams, has Vikings fans wondering why their team let him go.`\
-https://nytimes.com/athletic/7000249/2026/01/27/sam-darnold-seahawks-vikings-decision-super-bowl/
 
