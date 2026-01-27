@@ -1,3 +1,7 @@
+**The Transfer DealSheet: The latest on your club**\
+`Welcome to The Athletic's fourth edition of The Transfer DealSheet for the 2026 January window`\
+https://nytimes.com/athletic/6998816/2026/01/27/manchester-united-arsenal-transfer-latest-liverpool-real-madrid-chelsea-dealsheet/
+
 **Leeds have developed tactically - but Farke’s in-game management remains questionable**\
 `Dropping two points should not raise any new inquiries about survival, but the timing of Farke’s substitutions will raise familiar questions`\
 https://nytimes.com/athletic/7001039/2026/01/27/leeds-farke-development-substitutions/

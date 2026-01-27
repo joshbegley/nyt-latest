@@ -1,3 +1,7 @@
+**The Transfer DealSheet: The latest on your club**\
+`Welcome to The Athletic's fourth edition of The Transfer DealSheet for the 2026 January window`\
+https://nytimes.com/athletic/6998816/2026/01/27/manchester-united-arsenal-transfer-latest-liverpool-real-madrid-chelsea-dealsheet/
+
 **Vowing Higher Tariffs, Trump Rattles South Korea Months After Trade Deal**\
 `President Trump said Seoul was not moving fast enough to implement the agreement, which calls for South Korea to invest billions in the United States.`\
 https://nytimes.com/2026/01/27/world/asia/korea-trump-higher-tariff.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7001067/2026/01/27/arizona-byu-college-basketball-b
 **The New York Times in Print for Tuesday, Jan. 27, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/27/todays-new-york-times
-
-**The Cost of Inaction Over Iran: ‘We Are Left With Graveyards’**\
-`It is time for the U.S. to intervene militarily in Iran, at least to deter future killings of protesters.`\
-https://nytimes.com/2026/01/27/opinion/iran-protests-military-intervention.html
 
