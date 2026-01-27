@@ -1,3 +1,11 @@
+**Dodgers' Dave Roberts wants to manage U.S. Olympic team, calls it a 'no-brainer'**\
+`Roberts' ties to Los Angeles go beyond the Dodgers, dating back to his time in college at UCLA. `\
+https://nytimes.com/athletic/7000928/2026/01/26/la-olympics-2028-dave-roberts-baseball-manager/
+
+**Flyers again fail to build off of an emotional win: 'You've got to handle prosperity'**\
+`A series of preventable mistakes led to the Flyers sitting on the wrong end of a 4-0 shutout after their most impressive game of the season.`\
+https://nytimes.com/athletic/7000939/2026/01/26/flyers-streaks-shutout-islanders-tocchet/
+
 **Can Donovan Mitchell's booming stats finally lift Cavaliers out of East?**\
 `Monday was further evidence Mitchell can get buckets with the best of them. But can the Cavaliers put it together?`\
 https://nytimes.com/athletic/7000808/2026/01/26/donavan-mitchell-stats-season-career-lead-cavaliers-eastern-conference/

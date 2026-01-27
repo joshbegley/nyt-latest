@@ -1,3 +1,11 @@
+**NCAA asks for judge’s recusal in Charles Bediako case, citing Alabama ties**\
+`Legal representatives argue that “intense media scrutiny and public speculation surrounding the judge’s relationship with the university."`\
+https://nytimes.com/athletic/7000888/2026/01/26/charles-bediako-alabama-ncaa-judge-lawsuit/
+
+**Are the Hornets capable of a playoff run? The last two months could explain**\
+`Are the Hornets going to be the surprise of the NBA by making the playoffs and winning a series for the first time in over 20 years?`\
+https://nytimes.com/athletic/7000612/2026/01/26/hornets-surge-young-core-ball-miller-knueppel/
+
 **Dodgers' Dave Roberts wants to manage U.S. Olympic team, calls it a 'no-brainer'**\
 `Roberts' ties to Los Angeles go beyond the Dodgers, dating back to his time in college at UCLA. `\
 https://nytimes.com/athletic/7000928/2026/01/26/la-olympics-2028-dave-roberts-baseball-manager/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/26/us/politics/chris-madel-minnesota-governor-immigr
 **'Upsetting on so many levels': Emma Hayes speaks on fatal Minnesota shooting**\
 `Hayes has joined a growing chorus of sports figures who have spoken out in the days after the fatal shooting.`\
 https://nytimes.com/athletic/7000691/2026/01/26/emma-hayes-uswnt-minnesota-shooting-comments/
-
-**Commanders plan to hire Vikings pass game coordinator Daronte Jones as DC: Source**\
-`Jones, 47, will be a first-time play caller after taking over for Joe Whitt Jr., fired by the Commanders after two seasons.`\
-https://nytimes.com/athletic/7000117/2026/01/26/daronte-jones-commanders-defensive-coordinator/
-
-**Sources: USMNT, Orlando breakout talent Freeman seals move to Villarreal**\
-`Alex Freeman is headed to Villarreal this winter, continuing his rapid rise after breaking out for Orlando and the U.S. men's national team`\
-https://nytimes.com/athletic/7000765/2026/01/26/alex-freeman-transfer-villarreal-orlando-city-usmnt/
 
