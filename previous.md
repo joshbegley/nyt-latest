@@ -1,3 +1,19 @@
+**How to watch Golden Knights vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7001911/2026/01/27/golden-knights-vs-canadiens-stream-how-to-watch-jan-27/
+
+**How to watch Trail Blazers vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7001908/2026/01/27/trail-blazers-vs-wizards-stream-how-to-watch-jan-27/
+
+**How to watch Jets vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7001906/2026/01/27/jets-vs-devils-stream-how-to-watch-jan-27/
+
+**How to watch Kings vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7001903/2026/01/27/kings-vs-red-wings-stream-how-to-watch-jan-27/
+
 **How to watch Mammoth vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7001898/2026/01/27/mammoth-vs-panthers-stream-how-to-watch-jan-27/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7001791/2026/01/27/liverpool-queues-anfield-safety-
 **How to watch Arkansas vs. Oklahoma men's basketball: Time, TV, streaming**\
 `Find out how to watch the Arkansas Razorbacks play the Oklahoma Sooners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7001863/2026/01/27/arkansas-vs-oklahoma-stream-how-to-watch-jan-27/
-
-**How to watch Nebraska vs. Michigan men's basketball: Time, TV, streaming**\
-`Find out how to watch the Nebraska Cornhuskers play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7001860/2026/01/27/nebraska-vs-michigan-stream-how-to-watch-jan-27/
-
-**How to watch Michigan State vs. Rutgers men's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan State Spartans play the Rutgers Scarlet Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7001858/2026/01/27/michigan-state-vs-rutgers-stream-how-to-watch-jan-27/
-
-**Outcry in Italy as U.S. Says ICE Agents Will Join Olympics Delegation**\
-`The Italian government said it had requested clarification from American diplomats after D.H.S. said that ICE agents would help secure the U.S. Olympics delegation next week in northern Italy.`\
-https://nytimes.com/2026/01/27/world/europe/italy-ice-olympics.html
-
-**Illinois freshman Keaton Wagler has cemented his NBA Draft lottery pick status**\
-`The 261st-ranked prospect in his recruiting class should hear his name called early in the draft this June. `\
-https://nytimes.com/athletic/7001450/2026/01/27/keaton-wagler-nba-draft-lottery-pick-illinois/
 

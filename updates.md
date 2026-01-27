@@ -1,3 +1,19 @@
+**How to watch Golden Knights vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7001911/2026/01/27/golden-knights-vs-canadiens-stream-how-to-watch-jan-27/
+
+**How to watch Trail Blazers vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7001908/2026/01/27/trail-blazers-vs-wizards-stream-how-to-watch-jan-27/
+
+**How to watch Jets vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7001906/2026/01/27/jets-vs-devils-stream-how-to-watch-jan-27/
+
+**How to watch Kings vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7001903/2026/01/27/kings-vs-red-wings-stream-how-to-watch-jan-27/
+
 **How to watch Mammoth vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7001898/2026/01/27/mammoth-vs-panthers-stream-how-to-watch-jan-27/
