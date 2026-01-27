@@ -1,3 +1,11 @@
+**Spain should host 2030 World Cup final, says FA chief after ‘damaging’ AFCON scenes**\
+`Spain, Morocco and Portugal will co-host the 2030 tournament, with Argentina, Paraguay and Uruguay hosting one game each.`\
+https://nytimes.com/athletic/7000501/2026/01/27/world-cup-2030-final-spain-morocco/
+
+**The Pulse: Still undefeated**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6999751/2026/01/27/arizona-byu-burries-dybantsa-the-pulse/
+
 **Albania Created an ‘A.I. Minister’ to Curb Corruption. Then Its Developers Were Accused of Graft.**\
 `The Albanian avatar known as Diella, a public anticorruption crusader, has been described as the world’s first government minister created by artificial intelligence.`\
 https://nytimes.com/2026/01/27/world/europe/albania-ai-corruption-graft.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6963343/2026/01/27/john-wall-wizards-appreciation-n
 **How the NHL/NHLPA player assistance program works, from consultation to treatment to release**\
 `To help increase understanding of what the program does — and how — Marty Walsh and several players agreed to share their experiences.`\
 https://nytimes.com/athletic/6227932/2026/01/27/nhl-nhlpa-player-assistance-program-how-it-works/
-
-**Seven big names who could be traded before MLB Opening Day**\
-`There have been several big trades already this offseason, but even with spring training on the horizon, there is time for more big deals.`\
-https://nytimes.com/athletic/6999931/2026/01/27/mlb-trade-possibilities-opening-day-tarik-skubal/
-
-**MLS Transfer DealSheet: Latest around the league as 2026 season nears**\
-`The 2026 MLS season is less than a month from kicking off, and clubs are maneuvering to get in shape for opening day`\
-https://nytimes.com/athletic/7001025/2026/01/27/mls-transfer-dealsheet-miami-sargent-freeman-signings/
 
