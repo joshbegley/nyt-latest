@@ -1,3 +1,7 @@
+**Warriors, Bucks navigating huge dilemmas with stars Steph Curry and Giannis**\
+`If you’re playing in “franchise mode” and you’re running either of these teams, you trade Steph or Antetokounmpo for a mountain of assets.`\
+https://nytimes.com/athletic/6997718/2026/01/27/warriors-bucks-giannis-antetokounmpo-stephen-curry-nba-trade-deadline/
+
 **USL Premier announced as new professional league, pro-rel launch in 2028**\
 `The comprehensive revamp of American lower league soccer is start to take shape`\
 https://nytimes.com/athletic/7000491/2026/01/27/usl-premier-mls-pro-rel-pyramid/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/7000942/2026/01/27/warriors-injuries-minnesota-news
 `Chat with Keith Law about his top 100 prospects list on Tuesday at noon Eastern.`\
 https://nytimes.com/athletic/6998544/2026/01/27/chat-with-keith-law-about-his-newest-top-100-mlb-prospects-ranking/
 
-**Heidenreich, Gronowski among NFL Draft prospects who stood out at Shrine Bowl practices**\
+**Which 2026 NFL Draft prospects stood out during Shrine Bowl practices?**\
 `More than 50 Shrine Bowl prospects could wind up hearing their names called in the NFL Draft. Which ones excelled this week?`\
 https://nytimes.com/athletic/6999645/2026/01/27/nfl-draft-2026-shrine-bowl-prospects-heidenreich/
-
-**Investigators Review Body Camera Video Related to Killing of Alex Pretti**\
-`The Department of Homeland Security said body camera footage, taken from multiple angles, was being examined, as local officials sought to ensure evidence was preserved.`\
-https://nytimes.com/2026/01/27/us/body-cam-video-alex-pretti-minneapolis-shooting.html
 

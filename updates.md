@@ -1,3 +1,15 @@
+**USL Premier announced as new professional league, pro-rel launch in 2028**\
+`The comprehensive revamp of American lower league soccer is start to take shape`\
+https://nytimes.com/athletic/7000491/2026/01/27/usl-premier-mls-pro-rel-pyramid/
+
+**OpenAI’s Altman and More C.E.O.s Weigh In on Minnesota**\
+`Business leaders continue to feel pressure to speak out about the immigration crackdown and the fatal shooting of two U.S. citizens.`\
+https://nytimes.com/2026/01/27/business/dealbook/altman-openai-minnesota.html
+
+**NCAA looking into Dabo Swinney's tampering accusations against Ole Miss**\
+`Though the organization did not provide specifics, officials have been in direct contact with Clemson about Swinney’s allegations.`\
+https://nytimes.com/athletic/7000655/2026/01/27/ncaa-dabo-swinney-ole-miss-tampering/
+
 **Australian Open recap: A home hope gets philosophical about tennis expectations**\
 `Alex de Minaur's Grand Slam record is enviable — but the Sisyphean losses to greats old and new are mounting.`\
 https://nytimes.com/athletic/7000527/2026/01/27/australian-open-recap-day-10-results-analysis/
