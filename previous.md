@@ -1,3 +1,11 @@
+**Judge Revives Wind Farm That Trump Halted Off Martha’s Vineyard**\
+`The project, known as Vineyard Wind, was already 95 percent complete when the Trump administration ordered construction to stop.`\
+https://nytimes.com/2026/01/27/climate/judge-offshore-wind-vineyard-massachusetts.html
+
+**Bill Belichick, legendary Patriots coach, snubbed by Pro Football Hall of Fame: Source**\
+`Bill Belichick, who won six Super Bowls in New England, was not elected to the Pro Football Hall of Fame in his first time on the ballot.`\
+https://nytimes.com/athletic/7002742/2026/01/27/bill-belichick-patriots-hall-of-fame-snub/
+
 **Resurgent Clippers give executive Lawrence Frank contract extension: Sources**\
 `The Clippers began the season 6-21, but are 15-3 in their last 18 games and have climbed into playoff contention.`\
 https://nytimes.com/athletic/7002640/2026/01/27/lawrence-frank-clippers-contract-extension-president-basketball-operations/
@@ -25,12 +33,4 @@ https://nytimes.com/video/us/politics/100000010671390/dc-crash-ntsb-meeting.html
 **Victor Wembanyama on Minneapolis shootings: 'Murder of civilians' unacceptable**\
 `"Every day, I wake up and see the news and I'm horrified," Victor Wembanyama said about violence in Minneapolis by federal agents.`\
 https://nytimes.com/athletic/7002444/2026/01/27/victor-wembanyama-minneapolis-shootings-reaction/
-
-**TripToGo in Peru**\
-`Capturing a captivating culture.`\
-https://nytimes.com/paidpost/triptogo/triptogo-peru/triptogo-in-peru.html
-
-**Peter H. Duesberg, 89, Renowned Biologist Turned H.I.V. Denialist, Dies**\
-`His pioneering work on the origins of cancer was later overshadowed by his contrarian views, notably his rejection of the established theory that H.I.V. causes AIDS.`\
-https://nytimes.com/2026/01/27/science/peter-duesberg-dead.html
 

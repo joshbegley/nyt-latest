@@ -1,3 +1,11 @@
+**Judge Revives Wind Farm That Trump Halted Off Martha’s Vineyard**\
+`The project, known as Vineyard Wind, was already 95 percent complete when the Trump administration ordered construction to stop.`\
+https://nytimes.com/2026/01/27/climate/judge-offshore-wind-vineyard-massachusetts.html
+
+**Bill Belichick, legendary Patriots coach, snubbed by Pro Football Hall of Fame: Source**\
+`Bill Belichick, who won six Super Bowls in New England, was not elected to the Pro Football Hall of Fame in his first time on the ballot.`\
+https://nytimes.com/athletic/7002742/2026/01/27/bill-belichick-patriots-hall-of-fame-snub/
+
 **Resurgent Clippers give executive Lawrence Frank contract extension: Sources**\
 `The Clippers began the season 6-21, but are 15-3 in their last 18 games and have climbed into playoff contention.`\
 https://nytimes.com/athletic/7002640/2026/01/27/lawrence-frank-clippers-contract-extension-president-basketball-operations/
