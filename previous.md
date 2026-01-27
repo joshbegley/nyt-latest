@@ -1,3 +1,7 @@
+**Leeds have developed tactically - but Farke’s in-game management remains questionable**\
+`This was a good point for Leeds, but the lack of a tactical reaction to Moyes’s half-time switch did leave you wondering, ‘what if?’`\
+https://nytimes.com/athletic/7001039/2026/01/27/leeds-farke-development-substitutions/
+
 **Word of the Day: sagacious**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/27/learning/word-of-the-day-sagacious.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6998744/2026/01/27/arsenal-emirates-expectation-boo
 **Have Tottenham been sucked into a relegation scrap?**\
 `Spurs have won just three of 16 Premier League matches and now have a daunting run of fixtures ahead...`\
 https://nytimes.com/athletic/6999866/2026/01/27/tottenham-relegation-battle/
-
-**And the longest suffering supporters in English football are...**\
-`The Athletic spends time with fans who have endured miserable results, injustice and the tedium of stagnation in the same division for years`\
-https://nytimes.com/athletic/6982665/2026/01/27/football-support-hard-bristol-rovers-darlington-preston-bury/
 

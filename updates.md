@@ -1,3 +1,7 @@
+**Leeds have developed tactically - but Farke’s in-game management remains questionable**\
+`This was a good point for Leeds, but the lack of a tactical reaction to Moyes’s half-time switch did leave you wondering, ‘what if?’`\
+https://nytimes.com/athletic/7001039/2026/01/27/leeds-farke-development-substitutions/
+
 **Word of the Day: sagacious**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/27/learning/word-of-the-day-sagacious.html
