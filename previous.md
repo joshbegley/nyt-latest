@@ -1,3 +1,7 @@
+**Quote of the Day: Economic Fear Running Deep, Times Poll Says**\
+`Quotation of the Day for Tuesday, January 27, 2025.`\
+https://nytimes.com/2026/01/26/pageoneplus/quote-of-the-day-economic-fear-running-deep-times-poll-says.html
+
 **Full Time: The fallout from Rodman’s deal**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/7000973/2026/01/26/trinity-rodman-contract-spirit-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010668660/new-video-analysis-reveals-flawed-a
 **Wrangler on the Road**\
 `This collaboration by Miranda Kany and Tracy Bennett will give you wings.`\
 https://nytimes.com/2026/01/26/crosswords/daily-puzzle-2026-01-27.html
-
-**Republican Ends His Run for Minnesota Governor, Citing Immigration Crackdown**\
-`Chris Madel, a defense lawyer, called the operation “simply a disaster.” His decision comes two days after a second fatal shooting by federal agents in Minneapolis.`\
-https://nytimes.com/2026/01/26/us/politics/chris-madel-minnesota-governor-immigration.html
 

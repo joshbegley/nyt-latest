@@ -1,3 +1,7 @@
+**Quote of the Day: Economic Fear Running Deep, Times Poll Says**\
+`Quotation of the Day for Tuesday, January 27, 2025.`\
+https://nytimes.com/2026/01/26/pageoneplus/quote-of-the-day-economic-fear-running-deep-times-poll-says.html
+
 **Full Time: The fallout from Rodman’s deal**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/7000973/2026/01/26/trinity-rodman-contract-spirit-full-time/
