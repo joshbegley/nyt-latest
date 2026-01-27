@@ -1,3 +1,7 @@
+**The Good-Bad**\
+``\
+https://nytimes.com/spotlight/the-good-bad
+
 **F1 teams feared another embarrassing preseason start. They were wrong**\
 `The grid decided to keep the year's first preseason test private after bad memories from 2014 but early data has proved these concerns wrong`\
 https://nytimes.com/athletic/7001647/2026/01/27/f1-teams-private-test-barcelona-mileage/
@@ -34,8 +38,4 @@ https://nytimes.com/2026/01/27/us/politics/trinidad-wrongful-death-lawsuit-boat-
 **Financial Tune-up**\
 ``\
 https://nytimes.com/spotlight/financial-tune-up
-
-**West Ham close to Traore deal, Ward-Prowse to leave for Burnley**\
-`Igor Julio's season-long loan from Brighton & Hove Albion is also set to be ended early.`\
-https://nytimes.com/athletic/7001597/2026/01/27/adama-traore-west-ham-fulham-transfer/
 
