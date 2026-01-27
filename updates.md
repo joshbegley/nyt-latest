@@ -1,3 +1,11 @@
+**Judge Orders ICE Chief to Appear in Court Over Potential Contempt**\
+`In a brief ruling, the Minnesota judge wrote that unusual order was necessary because “the extent of ICE’s violation of court orders is likewise extraordinary.”`\
+https://nytimes.com/2026/01/27/us/politics/ice-director-minnesota-contempt.html
+
+**Warriors, Bucks navigating huge dilemmas with Steph and Giannis**\
+`If you’re playing in “franchise mode” and you’re running either of these teams, you trade Steph or Antetokounmpo for a mountain of assets.`\
+https://nytimes.com/athletic/6997718/2026/01/27/warriors-bucks-giannis-antetokounmpo-stephen-curry-nba-trade-deadline/
+
 **A timeline of the shifting Department of Homeland Security.**\
 `By Christina Morales`\
 https://nytimes.com/live/2026/01/27/us/minneapolis-shooting-ice-minnesota/dhs-ice-trump-timeline
