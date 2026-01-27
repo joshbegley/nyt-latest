@@ -1,3 +1,7 @@
+**BAFTA Nominations: ‘One Battle After Another’ and ‘Sinners’ Face Off**\
+`“Hamnet,” “Marty Supreme” and “Sentimental Value” are also in the running for best film at Britain’s equivalent of the Oscars.`\
+https://nytimes.com/2026/01/27/movies/bafta-nominations-one-battle-after-another-sinners.html
+
 **How did No. 5 Nebraska — a perennial college basketball loser — get this good?**\
 `Nearly everything has gone right for a Nebraska program whose fans grew accustomed to everything going wrong.`\
 https://nytimes.com/athletic/7001390/2026/01/27/nebraska-basketball-ncaa-tournament-fred-hoiberg/

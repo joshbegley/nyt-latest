@@ -31,7 +31,7 @@ https://nytimes.com/athletic/7000857/2026/01/27/darian-mensah-duke-lawsuit-miami
 https://nytimes.com/athletic/7001323/2026/01/27/wslf-finances-2024-25-womens-football/
 
 **BAFTA Nominations: ‘One Battle After Another’ and ‘Sinners’ Face Off**\
-`‘Hamnet,’ ‘Marty Supreme’ and ‘Sentimental Value’ are also in the running for best film at Britain’s equivalent of the Oscars.`\
+`“Hamnet,” “Marty Supreme” and “Sentimental Value” are also in the running for best film at Britain’s equivalent of the Oscars.`\
 https://nytimes.com/2026/01/27/movies/bafta-nominations-one-battle-after-another-sinners.html
 
 **The Nation’s Mood**\
