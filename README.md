@@ -1,3 +1,11 @@
+**Caicedo says he must 'learn' from disciplinary issues but 'it's my style'**\
+`Caicedo has missed five games through suspension this season but explained "sometimes, that's the risk I need to take".`\
+https://nytimes.com/athletic/7002345/2026/01/27/moises-caicedo-chelsea-discipline/
+
+**Shaheen and Murkowski: Congress Must Defend NATO From Trump**\
+`America must defend its greatest asset: Its alliances.`\
+https://nytimes.com/2026/01/27/opinion/senators-congress-nato-trump-greenland.html
+
 **Freddy Peralta taking a wait-and-see approach to potential Mets extension**\
 `The Mets aren't believed to be currently pursuing an extension with Peralta but could be open to it down the road.`\
 https://nytimes.com/athletic/7002325/2026/01/27/freddy-peralta-mets-extension-possibility/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7002258/2026/01/27/rams-broncos-coaching-stafford-v
 **Bengals mailbag: Send your questions to beat writer Paul Dehner Jr.**\
 `Let us know what's on your mind as free agency and the draft approach.`\
 https://nytimes.com/athletic/7002300/2026/01/27/bengals-mailbag-questions-paul-dehner-jr/
-
-**Brooks Koepka shares details on his release from LIV, return to PGA Tour**\
-`Shortly after his release from LIV, Koepka revealed that his first call was to Tiger Woods to get his perspective on the move.`\
-https://nytimes.com/athletic/7002180/2026/01/27/brooks-koepka-liv-golf-pga-tour-return/
-
-**Porro out for four weeks with injury; Odobert, Kolo Muani ‘fine’ after car crash**\
-`Micky Van de Ven will also miss Wednesday’s Champions League game with Eintracht Frankfurt`\
-https://nytimes.com/athletic/7002231/2026/01/27/pedro-porro-tottenham-injury-update/
 
