@@ -1,3 +1,7 @@
+**Caitlin Clark joining NBC Sports for its new Sunday night NBA pregame show**\
+`Clark's crossover appeal will be on display for a national NBA audience.`\
+https://nytimes.com/athletic/7002228/2026/01/27/caitlin-clark-nbc-sports-nba-wnba/
+
 **Yankees promote Mario Garza to lead beleaguered international scouting department**\
 `After weeks of uncertainty surrounding their international scouting department, the Yankees have promoted Garza as they overhaul the group.`\
 https://nytimes.com/athletic/7002078/2026/01/27/yankees-mario-garza-international-scouting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7001997/2026/01/27/penguins-bryan-rust-suspension-b
 **On Immigration, the G.O.P. Finds Itself in a Shocking Place: On Defense**\
 `Since President Trump’s rise, the issue has been a strength for the party. But now, after the chaos in Minnesota, Democrats see an opening and some Republicans worry that Mr. Trump is going too far.`\
 https://nytimes.com/2026/01/27/us/politics/minnesota-politics-immigration-trump.html
-
-**Breaking Silence, Eleanor Holmes Norton Announces Retirement**\
-`The 88-year-old nonvoting delegate for Washington, D.C., who has retreated from her duties amid declining health, made it official that she would retire at the end of her term.`\
-https://nytimes.com/2026/01/27/us/politics/eleanor-holmes-norton-retirement-congress.html
 
