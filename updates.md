@@ -1,3 +1,7 @@
+**The Nation’s Mood**\
+`We look at the tensions following the killing of Alex Pretti.`\
+https://nytimes.com/2026/01/27/briefing/the-nations-mood.html
+
 **East-West Shrine Bowl: Lineups, broadcast info for college football all-star game**\
 `The NFL Draft comes closer into view at the East-West Shrine Bowl, which will stage its 101st edition Tuesday night. `\
 https://nytimes.com/athletic/6999935/2026/01/27/east-west-shrine-bowl-how-to-watch-2026/
