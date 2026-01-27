@@ -1,3 +1,11 @@
+**G.M. Shares Rise as Investors Are Encouraged by 2026 Prospects**\
+`The automaker said that it would buy back stock worth up to $6 billion and that it expected profit to rise this year after it pulled back from electric vehicle production.`\
+https://nytimes.com/2026/01/27/business/general-motors-earnings.html
+
+**Broadway’s New Musicals Keep Losing Money. Except This One.**\
+`“The Outsiders” is the first new musical to open since 2022 to become profitable.`\
+https://nytimes.com/2026/01/27/theater/outsiders-broadway-musical-profit.html
+
 **Warriors, Bucks navigating huge dilemmas with stars Steph Curry and Giannis**\
 `If you’re playing in “franchise mode” and you’re running either of these teams, you trade Steph or Antetokounmpo for a mountain of assets.`\
 https://nytimes.com/athletic/6997718/2026/01/27/warriors-bucks-giannis-antetokounmpo-stephen-curry-nba-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/01/27/us/trump-news
 **The Warriors' emotionally exhausting week finally comes to a quiet end**\
 `Monday's matchup with the Timberwolves came with a profound stillness as the Warriors' ended the strangest week of their season.`\
 https://nytimes.com/athletic/7000942/2026/01/27/warriors-injuries-minnesota-news-curry-green-kuminga-butler/
-
-**Chat with Keith Law about his newest top 100 MLB prospects ranking!**\
-`Chat with Keith Law about his top 100 prospects list on Tuesday at noon Eastern.`\
-https://nytimes.com/athletic/6998544/2026/01/27/chat-with-keith-law-about-his-newest-top-100-mlb-prospects-ranking/
-
-**Which 2026 NFL Draft prospects stood out during Shrine Bowl practices?**\
-`More than 50 Shrine Bowl prospects could wind up hearing their names called in the NFL Draft. Which ones excelled this week?`\
-https://nytimes.com/athletic/6999645/2026/01/27/nfl-draft-2026-shrine-bowl-prospects-heidenreich/
 
