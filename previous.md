@@ -1,3 +1,11 @@
+**Southwest Begins Assigned Seating, Scrapping a Signature Quirk**\
+`The airline said its new policy, rolled out on Tuesday, responded to passengers’ preferences, but some customers said the scramble was part of the charm.`\
+https://nytimes.com/2026/01/27/travel/southwest-airlines-assigned-seating.html
+
+**Ohio State-Indiana set for midseason rematch as Big Ten releases 2026 schedule**\
+`Among the schedule's highlights: Penn State-Michigan, Pat Fitzgerald vs. Northwestern and the first USC-Ohio State clash as leaguemates.`\
+https://nytimes.com/athletic/7002771/2026/01/27/big-ten-football-schedule-release-opponents/
+
 **Virginia Judge Blocks Democrats’ Efforts to Redraw Congressional Maps**\
 `Democratic leaders vowed to appeal the lower court ruling, which found that the legislative process behind the redistricting push was improper.`\
 https://nytimes.com/2026/01/27/us/virginia-court-ruling-redistricting.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7002763/2026/01/27/chicho-arango-atletico-nacional-
 **Judge Revives Wind Farm That Trump Halted Off Martha’s Vineyard**\
 `The project, known as Vineyard Wind, was already 95 percent complete when the Trump administration ordered construction to stop.`\
 https://nytimes.com/2026/01/27/climate/judge-offshore-wind-vineyard-massachusetts.html
-
-**Bill Belichick, legendary Patriots coach, snubbed by Pro Football Hall of Fame: Source**\
-`Bill Belichick, who won six Super Bowls in New England, was not elected to the Pro Football Hall of Fame in his first time on the ballot.`\
-https://nytimes.com/athletic/7002742/2026/01/27/bill-belichick-patriots-hall-of-fame-snub/
-
-**Resurgent Clippers give executive Lawrence Frank contract extension: Sources**\
-`The Clippers began the season 6-21, but are 15-3 in their last 18 games and have climbed into playoff contention.`\
-https://nytimes.com/athletic/7002640/2026/01/27/lawrence-frank-clippers-contract-extension-president-basketball-operations/
 

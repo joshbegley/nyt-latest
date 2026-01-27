@@ -1,3 +1,11 @@
+**Southwest Begins Assigned Seating, Scrapping a Signature Quirk**\
+`The airline said its new policy, rolled out on Tuesday, responded to passengers’ preferences, but some customers said the scramble was part of the charm.`\
+https://nytimes.com/2026/01/27/travel/southwest-airlines-assigned-seating.html
+
+**Ohio State-Indiana set for midseason rematch as Big Ten releases 2026 schedule**\
+`Among the schedule's highlights: Penn State-Michigan, Pat Fitzgerald vs. Northwestern and the first USC-Ohio State clash as leaguemates.`\
+https://nytimes.com/athletic/7002771/2026/01/27/big-ten-football-schedule-release-opponents/
+
 **Virginia Judge Blocks Democrats’ Efforts to Redraw Congressional Maps**\
 `Democratic leaders vowed to appeal the lower court ruling, which found that the legislative process behind the redistricting push was improper.`\
 https://nytimes.com/2026/01/27/us/virginia-court-ruling-redistricting.html
