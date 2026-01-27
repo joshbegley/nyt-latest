@@ -1,3 +1,27 @@
+**How did No. 5 Nebraska — a perennial college basketball loser — get this good?**\
+`Nearly everything has gone right for a Nebraska program whose fans grew accustomed to everything going wrong.`\
+https://nytimes.com/athletic/7001390/2026/01/27/nebraska-basketball-ncaa-tournament-fred-hoiberg/
+
+**Trump Administration Live Updates: President to Focus on Economy in Iowa Speech**\
+``\
+https://nytimes.com/live/2026/01/27/us/trump-news
+
+**The Warriors' emotionally exhausting week finally comes to a quiet end**\
+`Monday's matchup with the Timberwolves came with a profound stillness as the Warriors' ended the strangest week of their season.`\
+https://nytimes.com/athletic/7000942/2026/01/27/warriors-injuries-minnesota-news-curry-green-kuminga-butler/
+
+**Chat with Keith Law about his newest top 100 MLB prospects ranking!**\
+`Chat with Keith Law about his top 100 prospects list on Tuesday at noon Eastern.`\
+https://nytimes.com/athletic/6998544/2026/01/27/chat-with-keith-law-about-his-newest-top-100-mlb-prospects-ranking/
+
+**Heidenreich, Gronowski among NFL Draft prospects who stood out at Shrine Bowl practices**\
+`More than 50 Shrine Bowl prospects could wind up hearing their names called in the NFL Draft. Which ones excelled this week?`\
+https://nytimes.com/athletic/6999645/2026/01/27/nfl-draft-2026-shrine-bowl-prospects-heidenreich/
+
+**Investigators Review Body Camera Video Related to Killing of Alex Pretti**\
+`The Department of Homeland Security said body camera footage, taken from multiple angles, was being examined, as local officials sought to ensure evidence was preserved.`\
+https://nytimes.com/2026/01/27/us/body-cam-video-alex-pretti-minneapolis-shooting.html
+
 **How will things end between Darian Mensah, Duke and Miami?**\
 `Lawyers specializing in sports, entertainment or employment weigh in about this first-of-its-kind case and where it’s going.`\
 https://nytimes.com/athletic/7000857/2026/01/27/darian-mensah-duke-lawsuit-miami-transfer-portal/
@@ -13,28 +37,4 @@ https://nytimes.com/2026/01/27/movies/bafta-nominations-one-battle-after-another
 **The Nation’s Mood**\
 `We look at the tensions following the killing of Alex Pretti.`\
 https://nytimes.com/2026/01/27/briefing/the-nations-mood.html
-
-**East-West Shrine Bowl: Lineups, broadcast info for college football all-star game**\
-`The NFL Draft comes closer into view at the East-West Shrine Bowl, which will stage its 101st edition Tuesday night. `\
-https://nytimes.com/athletic/6999935/2026/01/27/east-west-shrine-bowl-how-to-watch-2026/
-
-**Champions League - Three key stats heading into the final league-stage games**\
-`Analysing three key statistics from Liverpool, Chelsea and Tottenham's upcoming final Champions League games.`\
-https://nytimes.com/athletic/6996755/2026/01/27/champions-league-key-numbers-szoboszlais-form-and-spurs-strength-in-europe/
-
-**Beyond Bryce Eldridge: 3 Giants prospects who could impact the 2026 lineup**\
-`Giants fans know Eldridge, a top prospect, could make an impact this season, but which prospects beyond him could lengthen the lineup?`\
-https://nytimes.com/athletic/6998651/2026/01/27/sf-giants-impact-rookies-jesus-rodriguez/
-
-**Everton's Barry says desire to 'prove people wrong' fuels him**\
-`The 23-year-old's equaliser against Leeds on Monday was his fourth goal in five league games having not scored this term until December.`\
-https://nytimes.com/athletic/7001331/2026/01/27/thierno-barry-everton-goal-critics/
-
-**Antonio Conte and the lost Chelsea**\
-`The unease at the core of today’s Chelsea project is that they are, superficially at least, the same but different from what went before`\
-https://nytimes.com/athletic/6998887/2026/01/27/antonio-conte-chelsea-napoli-champions-league/
-
-**U.S. Soccer president Cindy Parlow Cone to run unopposed in bid for re-election**\
-`The incumbent U.S. Soccer president is poised to serve until 2030 while being eligible to run for re-election one more time.`\
-https://nytimes.com/athletic/6999612/2026/01/27/cindy-parlow-cone-us-soccer-president-election-unopposed/
 
