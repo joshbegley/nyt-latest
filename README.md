@@ -1,3 +1,7 @@
+**She’s the Face of Trump’s Aviation Safety Board, and She’s a Democrat**\
+`Jennifer Homendy, the outspoken chairwoman of the National Transportation Safety Board, is reclaiming the spotlight at a meeting on Tuesday about the Washington, D.C., crash that killed 67.`\
+https://nytimes.com/2026/01/27/us/politics/jennifer-homendy-trump-transportation-safety-board.html
+
 **Duke, Darian Mensah reach resolution allowing star QB to transfer elsewhere**\
 `Settling the lawsuit would allow Mensah to transfer to and participate in football activities with another school immediately.`\
 https://nytimes.com/athletic/7001586/2026/01/27/duke-darian-mensah-settlement-buyout-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7000491/2026/01/27/usl-premier-mls-pro-rel-pyramid/
 **OpenAI’s Altman and More C.E.O.s Weigh In on Minnesota**\
 `Business leaders continue to feel pressure to speak out about the immigration crackdown and the fatal shooting of two U.S. citizens.`\
 https://nytimes.com/2026/01/27/business/dealbook/altman-openai-minnesota.html
-
-**NCAA looking into Dabo Swinney's tampering accusations against Ole Miss**\
-`Though the organization did not provide specifics, officials have been in direct contact with Clemson about Swinney’s allegations.`\
-https://nytimes.com/athletic/7000655/2026/01/27/ncaa-dabo-swinney-ole-miss-tampering/
 
