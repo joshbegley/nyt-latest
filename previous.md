@@ -1,3 +1,7 @@
+**In the Shadow of Trump, India and the European Union Expand Trade Ties**\
+`After nearly 20 years of negotiations, the two sides struck a far-reaching agreement that officials called “the mother of all trade deals.”`\
+https://nytimes.com/2026/01/27/business/india-europe-trade-tariffs-trump.html
+
 **Villa seriously considering move to sign midfielder Douglas Luiz**\
 `The midfielder is on loan at Nottingham Forest from Serie A side Juventus but has only made eight top-flight appearances this term.`\
 https://nytimes.com/athletic/6993650/2026/01/27/aston-villa-transfers-douglas-luiz/
@@ -26,15 +30,11 @@ https://nytimes.com/issue/todayspaper/2026/01/27/todays-new-york-times
 `It is time for the U.S. to intervene militarily in Iran, at least to deter future killings of protesters.`\
 https://nytimes.com/2026/01/27/opinion/iran-protests-military-intervention.html
 
-**How a wearable caused an Australian Open debate over tennis players' data**\
+**Tennis stars use wearables to track their health and performance data. Grand Slams say no**\
 `Bands designed to track players' health and performance data on-court are permitted by tennis governing bodies but banned at Grand Slams.`\
 https://nytimes.com/athletic/7001008/2026/01/27/tennis-australian-open-whoop-band-ban-sabalenka-alcaraz/
 
 **Wrexham's window: Targeting three in, potential league record deal, high-profile outgoings?**\
 `With the transfer window now into its final week and up to three signings being chased, it could be a busy few days in north Wales`\
 https://nytimes.com/athletic/6998703/2026/01/27/wrexham-january-transfer-window-2/
-
-**Arsenal and why the history of Emirates expectations led to full-time boos**\
-`Is there a way to get fans and players on the same page, enjoying the ride rather than fixating on what it will mean come May?`\
-https://nytimes.com/athletic/6998744/2026/01/27/arsenal-emirates-expectation-boos/
 

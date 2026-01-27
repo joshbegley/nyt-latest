@@ -1,3 +1,11 @@
+**Vowing Higher Tariffs, Trump Rattles South Korea Months After Trade Deal**\
+`President Trump said Seoul was not moving fast enough to implement the agreement, which calls for South Korea to invest billions in the United States.`\
+https://nytimes.com/2026/01/27/world/asia/korea-trump-higher-tariff.html
+
+**Seth Meyers Won’t Let ICE Co-Opt the Weather**\
+`“Just think about it, ICE is so unpopular, they want FEMA to not use the word ‘ice,’” the late night host said of the immigration enforcement agency.`\
+https://nytimes.com/2026/01/27/arts/television/late-night-ice-fema-weather.html
+
 **In the Shadow of Trump, India and the European Union Expand Trade Ties**\
 `After nearly 20 years of negotiations, the two sides struck a far-reaching agreement that officials called “the mother of all trade deals.”`\
 https://nytimes.com/2026/01/27/business/india-europe-trade-tariffs-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/01/27/todays-new-york-times
 **The Cost of Inaction Over Iran: ‘We Are Left With Graveyards’**\
 `It is time for the U.S. to intervene militarily in Iran, at least to deter future killings of protesters.`\
 https://nytimes.com/2026/01/27/opinion/iran-protests-military-intervention.html
-
-**Tennis stars use wearables to track their health and performance data. Grand Slams say no**\
-`Bands designed to track players' health and performance data on-court are permitted by tennis governing bodies but banned at Grand Slams.`\
-https://nytimes.com/athletic/7001008/2026/01/27/tennis-australian-open-whoop-band-ban-sabalenka-alcaraz/
-
-**Wrexham's window: Targeting three in, potential league record deal, high-profile outgoings?**\
-`With the transfer window now into its final week and up to three signings being chased, it could be a busy few days in north Wales`\
-https://nytimes.com/athletic/6998703/2026/01/27/wrexham-january-transfer-window-2/
 

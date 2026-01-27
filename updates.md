@@ -1,3 +1,11 @@
+**In the Shadow of Trump, India and the European Union Expand Trade Ties**\
+`After nearly 20 years of negotiations, the two sides struck a far-reaching agreement that officials called “the mother of all trade deals.”`\
+https://nytimes.com/2026/01/27/business/india-europe-trade-tariffs-trump.html
+
+**Tennis stars use wearables to track their health and performance data. Grand Slams say no**\
+`Bands designed to track players' health and performance data on-court are permitted by tennis governing bodies but banned at Grand Slams.`\
+https://nytimes.com/athletic/7001008/2026/01/27/tennis-australian-open-whoop-band-ban-sabalenka-alcaraz/
+
 **Villa seriously considering move to sign midfielder Douglas Luiz**\
 `The midfielder is on loan at Nottingham Forest from Serie A side Juventus but has only made eight top-flight appearances this term.`\
 https://nytimes.com/athletic/6993650/2026/01/27/aston-villa-transfers-douglas-luiz/
