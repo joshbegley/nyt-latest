@@ -1,3 +1,7 @@
+**Wrangler on the Road**\
+`This collaboration by Miranda Kany and Tracy Bennett will give you wings.`\
+https://nytimes.com/2026/01/26/crosswords/daily-puzzle-2026-01-27.html
+
 **Republican Ends His Run for Minnesota Governor, Citing Immigration Crackdown**\
 `Chris Madel, a defense lawyer, called the operation “simply a disaster.” His decision comes two days after a second fatal shooting by federal agents in Minneapolis.`\
 https://nytimes.com/2026/01/26/us/politics/chris-madel-minnesota-governor-immigration.html

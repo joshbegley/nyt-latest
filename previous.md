@@ -1,3 +1,7 @@
+**Wrangler on the Road**\
+`This collaboration by Miranda Kany and Tracy Bennett will give you wings.`\
+https://nytimes.com/2026/01/26/crosswords/daily-puzzle-2026-01-27.html
+
 **Republican Ends His Run for Minnesota Governor, Citing Immigration Crackdown**\
 `Chris Madel, a defense lawyer, called the operation “simply a disaster.” His decision comes two days after a second fatal shooting by federal agents in Minneapolis.`\
 https://nytimes.com/2026/01/26/us/politics/chris-madel-minnesota-governor-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7000684/2026/01/26/drake-maye-fan-prediction-2012-s
 **Trump Administration Takes Another Stake in Rare Earth Sector**\
 `The administration announced a $1.6 billion deal with USA Rare Earth. The firm also does business with Cantor Fitzgerald, which is run by the sons of President Trump’s commerce secretary.`\
 https://nytimes.com/2026/01/26/us/politics/trump-rare-earth-howard-lutnick.html
-
-**Twins, Joe Ryan avoid arbitration, agree to deal worth $6.2 million: Sources**\
-`Plus notes on Taylor Rogers' return to Minnesota, Bailey Ober's offseason work and potential plans for Luke Keaschall.`\
-https://nytimes.com/athletic/7000543/2026/01/26/minnesota-twins-joe-ryan-avoid-arbitration-sources/
 
