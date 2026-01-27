@@ -1,3 +1,7 @@
+**The Nation’s Mood**\
+`We look at the tensions following the killing of Alex Pretti.`\
+https://nytimes.com/2026/01/27/briefing/the-nations-mood.html
+
 **East-West Shrine Bowl: Lineups, broadcast info for college football all-star game**\
 `The NFL Draft comes closer into view at the East-West Shrine Bowl, which will stage its 101st edition Tuesday night. `\
 https://nytimes.com/athletic/6999935/2026/01/27/east-west-shrine-bowl-how-to-watch-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6994614/2026/01/27/49ers-roster-future-contracts-se
 **What does the future hold for Scott Laughton with the Maple Leafs?**\
 `The pending UFA is interested in staying in Toronto, but the team may be at a turning point where that becomes less feasible.`\
 https://nytimes.com/athletic/7000753/2026/01/27/maple-leafs-scott-laughton-future/
-
-**I played QB with Sam Darnold in college. His perspective is his secret weapon**\
-`Even as a freshman at USC, Sam Darnold had a perspective and levity that impressed Max Browne, a veteran quarterback on USC's roster.`\
-https://nytimes.com/athletic/7000719/2026/01/27/sam-darnold-seahawks-super-bowl-usc-perspective/
 

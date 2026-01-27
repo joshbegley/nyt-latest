@@ -1,40 +1,40 @@
-**The emotional and tactical telepathy of coaching in tennis: 'I just expect them to read my mind'**\
-`Some players want ceaseless encouragement; some want silence; some want to vent — and it can change from point to point.`\
-https://nytimes.com/athletic/7001139/2026/01/27/tennis-players-coaches-dialogue-instruction-tactics/
+**East-West Shrine Bowl: Lineups, broadcast info for college football all-star game**\
+`The NFL Draft comes closer into view at the East-West Shrine Bowl, which will stage its 101st edition Tuesday night. `\
+https://nytimes.com/athletic/6999935/2026/01/27/east-west-shrine-bowl-how-to-watch-2026/
 
-**Cowboys mock draft reaction: Defensive talent gap too big to ignore with 2 first-rounders**\
-`The Cowboys have needs at cornerback, edge rusher, linebacker and safety and could target those positions with their two first-round picks.`\
-https://nytimes.com/athletic/7001081/2026/01/27/cowboys-mock-draft-reaction-sonny-styles/
+**Champions League - Three key stats heading into the final league-stage games**\
+`Analysing three key statistics from Liverpool, Chelsea and Tottenham's upcoming final Champions League games.`\
+https://nytimes.com/athletic/6996755/2026/01/27/champions-league-key-numbers-szoboszlais-form-and-spurs-strength-in-europe/
 
-**Spain should host 2030 World Cup final, says FA chief after ‘damaging’ AFCON scenes**\
-`Spain, Morocco and Portugal will co-host the 2030 tournament, with Argentina, Paraguay and Uruguay hosting one game each.`\
-https://nytimes.com/athletic/7000501/2026/01/27/world-cup-2030-final-spain-morocco/
+**Beyond Bryce Eldridge: 3 Giants prospects who could impact the 2026 lineup**\
+`Giants fans know Eldridge, a top prospect, could make an impact this season, but which prospects beyond him could lengthen the lineup?`\
+https://nytimes.com/athletic/6998651/2026/01/27/sf-giants-impact-rookies-jesus-rodriguez/
 
-**The Pulse: Still undefeated**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6999751/2026/01/27/arizona-byu-burries-dybantsa-the-pulse/
+**Everton's Barry says desire to 'prove people wrong' fuels him**\
+`The 23-year-old's equaliser against Leeds on Monday was his fourth goal in five league games having not scored this term until December.`\
+https://nytimes.com/athletic/7001331/2026/01/27/thierno-barry-everton-goal-critics/
 
-**Albania Created an ‘A.I. Minister’ to Curb Corruption. Then Its Developers Were Accused of Graft.**\
-`The Albanian avatar known as Diella, a public anticorruption crusader, has been described as the world’s first government minister created by artificial intelligence.`\
-https://nytimes.com/2026/01/27/world/europe/albania-ai-corruption-graft.html
+**Antonio Conte and the lost Chelsea**\
+`The unease at the core of today’s Chelsea project is that they are, superficially at least, the same but different from what went before`\
+https://nytimes.com/athletic/6998887/2026/01/27/antonio-conte-chelsea-napoli-champions-league/
 
-**'We are seeing people die': German soccer exec wants World Cup boycott discussed**\
-`“It is clearly time to at least discuss a boycott,” Goettlich, who is also president of Bundesliga club St. Pauli, tells The Athletic.`\
-https://nytimes.com/athletic/7001226/2026/01/27/world-cup-boycott-germany-oke-goettlich/
+**U.S. Soccer president Cindy Parlow Cone to run unopposed in bid for re-election**\
+`The incumbent U.S. Soccer president is poised to serve until 2030 while being eligible to run for re-election one more time.`\
+https://nytimes.com/athletic/6999612/2026/01/27/cindy-parlow-cone-us-soccer-president-election-unopposed/
 
-**Colston Loveland eyeing major breakthrough as Bears flip the page to next season**\
-`Loveland's versatility offers promise for the future. So, too, do Ben Johnson's leadership presence and Cairo Santos' kickoff creativity.`\
-https://nytimes.com/athletic/6999812/2026/01/27/bears-colston-loveland-ben-johnson-cairo-santos/
+**What coaches say they've learned from Indiana's football turnaround**\
+`"It’s super inspiring. If you can do it at Indiana, you can do it anywhere," one head coach said.`\
+https://nytimes.com/athletic/6999775/2026/01/27/indiana-football-coaches-lessons/
 
-**By ditching Roval, NASCAR continues hot streak of favorable moves**\
-`NASCAR fans have wanted fewer pitfalls and land mines for the top contenders, preferring to see the best of the best race it out.`\
-https://nytimes.com/athletic/6999531/2026/01/27/nascar-roval-playoff-charlotte-oval/
+**Ranking the 49ers' 16 future contract players, starting with Sebastian Valdez**\
+`The 49ers' offseason roster includes an intriguing safety with starter experience and a center who could be the top backup when 2026 begins.`\
+https://nytimes.com/athletic/6994614/2026/01/27/49ers-roster-future-contracts-sebastian-valdez/
 
-**Coco Gauff criticizes lack of privacy at Australian Open after racket smash caught on camera**\
-`Gauff broke one of her rackets after a 6-1, 6-2 defeat to Elina Svitolina in the Australian Open quarterfinals.`\
-https://nytimes.com/athletic/7001272/2026/01/27/coco-gauff-racket-smash-australian-open-cameras/
+**What does the future hold for Scott Laughton with the Maple Leafs?**\
+`The pending UFA is interested in staying in Toronto, but the team may be at a turning point where that becomes less feasible.`\
+https://nytimes.com/athletic/7000753/2026/01/27/maple-leafs-scott-laughton-future/
 
-**Perreault, Robertson prove Rangers must turn to youth in a lost season**\
-`The Rangers' youngest players made the biggest splashes against the Bruins, but didn't necessarily receive much ice time.`\
-https://nytimes.com/athletic/7000931/2026/01/27/rangers-youth-perreault-robertson-bruins/
+**I played QB with Sam Darnold in college. His perspective is his secret weapon**\
+`Even as a freshman at USC, Sam Darnold had a perspective and levity that impressed Max Browne, a veteran quarterback on USC's roster.`\
+https://nytimes.com/athletic/7000719/2026/01/27/sam-darnold-seahawks-super-bowl-usc-perspective/
 
