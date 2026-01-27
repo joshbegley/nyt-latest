@@ -1,3 +1,11 @@
+**Women's tennis tour to investigate misconduct allegations against Peyton Stearns' coach**\
+`The complaints concern Font de Mora’s alleged misconduct and inappropriate relationships with players during his previous time on the tour.`\
+https://nytimes.com/athletic/6999822/2026/01/26/wta-investigation-peyton-stearns-rafael-font-de-mora/
+
+**Border Patrol Official Gregory Bovino Is Set to Leave Minnesota**\
+`The Trump administration is planning to move Gregory Bovino, a Border Patrol official whose tactics in major American cities have drawn controversy, out of Minneapolis, according to two officials.`\
+https://nytimes.com/video/us/100000010669997/gregory-bovino-minnesota-departure.html
+
 **'Best athlete I've ever seen': The fan who saw Drake Maye's future in 2012**\
 `Justin Farkas remembers watching Maye dominate as a nine-year-old, playing against kids two or three years older than him.`\
 https://nytimes.com/athletic/7000684/2026/01/26/drake-maye-fan-prediction-2012-super-bowl/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/26/us/politics/trump-reports-iran-government.html
 **Shootings Pose a Hard Question for the Right: Who’s a Conservative, Really?**\
 `Republicans wrestle with Trump administration positions that seem to contradict their beliefs on gun rights, states’ rights and limited use of federal power.`\
 https://nytimes.com/2026/01/26/us/politics/minneapolis-shooting-trump-ice-gop.html
-
-**Trump Says He Will Raise Tariffs on South Korea to 25%**\
-`President Trump threatened to increase tariffs on South Korean exports, including cars, citing the country’s slow ratification of a trade deal.`\
-https://nytimes.com/2026/01/26/business/economy/trump-tariffs-south-korea.html
-
-**F.A.A. Rolls Out Agency Overhaul for Improving Air Safety**\
-`The announcement of a reorganization comes nearly a year after a midair collision killed 67 people and prompted a public outcry for enhancing the security of aviation travel.`\
-https://nytimes.com/2026/01/26/us/politics/faa-overhaul-safety-modernization.html
 
