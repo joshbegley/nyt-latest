@@ -1,3 +1,7 @@
+**Board of Peace Set to Hand Trump Sweeping Powers Over Gaza**\
+`A draft resolution revealed some of the plans for the new international body, which met for the first time last week amid criticism from some U.S. allies.`\
+https://nytimes.com/2026/01/27/world/middleeast/board-of-peace-trump-gaza.html
+
 **Correa to miss WBC after failing to receive insurance on his contract**\
 `Correa's Astros teammate Jose Altuve will also not play in the WBC due to insurance issues.`\
 https://nytimes.com/athletic/7001980/2026/01/27/astros-carlos-correa-missing-world-baseball-classic-insurance/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/27/dining/nyc-restaurant-news.html
 **How What You Eat Affects Cancer Risk**\
 `Decades of research suggests that your diet can influence the risk of various cancers. Here’s what we know.`\
 https://nytimes.com/2026/01/27/well/food-diet-nutrition-cancer-risk.html
-
-**How Villa signed Abraham: Emery's role, other options and the striker waiving money to join**\
-`How the Champions League hopefuls solved a problem position with a move for Besiktas' on-loan Roma and England striker`\
-https://nytimes.com/athletic/6998848/2026/01/27/tammy-abraham-aston-villa-transfer/
 
