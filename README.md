@@ -1,3 +1,7 @@
+**Trinidadian Families File Wrongful Death Lawsuit Over Boat Strike by U.S. Military**\
+`The case tests the Trump administration’s argument that its extrajudicial killings of people suspected of smuggling drugs at sea have been lawful.`\
+https://nytimes.com/2026/01/27/us/politics/trinidad-wrongful-death-lawsuit-boat-strike.html
+
 **Financial Tune-up**\
 ``\
 https://nytimes.com/spotlight/financial-tune-up
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/27/us/politics/ice-director-minnesota-contempt.html
 **Homeland Security’s Shifting Mission Over the Past Quarter-Century**\
 `Established after the Sept. 11 attacks to protect the country against terrorism, the agency absorbed immigration functions that have become its focus under President Trump.`\
 https://nytimes.com/2026/01/27/us/dhs-ice-trump-timeline.html
-
-**Keith Law's top prospects: The baseball card outlooks for the 10 best**\
-`Using Law's latest rankings, we assess the booming baseball card market for the best MLB prospects.`\
-https://nytimes.com/athletic/7000874/2026/01/27/konnor-griffin-cards-mlb-prospects/
 
