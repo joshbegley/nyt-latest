@@ -1,3 +1,7 @@
+**Texas Moves to Curtail Visas for Skilled Foreign Workers**\
+`Gov. Greg Abbott said the state would investigate public agencies and universities that employ those with H-1B visas, a program the Trump administration has also targeted.`\
+https://nytimes.com/2026/01/27/us/texas-immigrants-h1b-visas.html
+
 **Senator Warnock Says ‘Soul of Our Nation Is at Stake’ During Visit to Minneapolis**\
 `The Georgia Democrat said he would push to block ICE funding when he returned to Washington.`\
 https://nytimes.com/2026/01/27/us/senator-warnock-minneapolis.html
