@@ -1,3 +1,7 @@
+**Investigators Review Body Camera Video Related to Killing of Alex Pretti**\
+`The Department of Homeland Security said body camera footage, taken from multiple angles, was being examined, as local officials sought to ensure evidence was preserved.`\
+https://nytimes.com/2026/01/27/us/body-cam-video-alex-pretti-minneapolis-shooting.html
+
 **How will things end between Darian Mensah, Duke and Miami?**\
 `Lawyers specializing in sports, entertainment or employment weigh in about this first-of-its-kind case and where it’s going.`\
 https://nytimes.com/athletic/7000857/2026/01/27/darian-mensah-duke-lawsuit-miami-transfer-portal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7001331/2026/01/27/thierno-barry-everton-goal-criti
 **Antonio Conte and the lost Chelsea**\
 `The unease at the core of today’s Chelsea project is that they are, superficially at least, the same but different from what went before`\
 https://nytimes.com/athletic/6998887/2026/01/27/antonio-conte-chelsea-napoli-champions-league/
-
-**U.S. Soccer president Cindy Parlow Cone to run unopposed in bid for re-election**\
-`The incumbent U.S. Soccer president is poised to serve until 2030 while being eligible to run for re-election one more time.`\
-https://nytimes.com/athletic/6999612/2026/01/27/cindy-parlow-cone-us-soccer-president-election-unopposed/
 
