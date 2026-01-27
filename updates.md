@@ -1,3 +1,7 @@
+**Commanders plan to hire Vikings pass game coordinator Daronte Jones as DC: Source**\
+`Jones, 47, will be a first-time play caller after taking over for Joe Whitt Jr., fired by the Commanders after two seasons.`\
+https://nytimes.com/athletic/7000117/2026/01/26/daronte-jones-commanders-defensive-coordinator/
+
 **'Upsetting on so many levels': Emma Hayes speaks on fatal Minnesota shooting**\
 `Hayes has joined a growing chorus of sports figures who have spoken out in the days after the fatal shooting.`\
 https://nytimes.com/athletic/7000691/2026/01/26/emma-hayes-uswnt-minnesota-shooting-comments/
