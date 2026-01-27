@@ -23,7 +23,7 @@ https://nytimes.com/athletic/7001647/2026/01/27/f1-teams-private-test-barcelona-
 https://nytimes.com/athletic/7001729/2026/01/27/mikel-arteta-arsenal-premier-league-title-race/
 
 **Ekholm's hat trick leads Oilers defensemen to historic game vs. Ducks**\
-`Spencer Stastney, Mattias Ekholm and Darnell Nurse combined for the fastest four goals by defensemen in league history vs. the Ducks.
+`Spencer Stastney, Mattias Ekholm and Darnell Nurse combined for the fastest four goals by defensemen in league history against the Ducks.
 `\
 https://nytimes.com/athletic/7001577/2026/01/27/oilers-defencemen-scoring-record/
 
