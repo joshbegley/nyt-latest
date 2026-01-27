@@ -1,10 +1,14 @@
+**Duke, Darian Mensah reach resolution allowing star QB to transfer elsewhere**\
+`Settling the lawsuit would allow Mensah to transfer to and participate in football activities with another school immediately.`\
+https://nytimes.com/athletic/7001586/2026/01/27/duke-darian-mensah-settlement-buyout-transfer/
+
 **Judge Orders ICE Chief to Appear in Court Over Potential Contempt**\
 `In a brief ruling, the Minnesota judge wrote that unusual order was necessary because “the extent of ICE’s violation of court orders is likewise extraordinary.”`\
 https://nytimes.com/2026/01/27/us/politics/ice-director-minnesota-contempt.html
 
 **A timeline of the shifting Department of Homeland Security.**\
 `By Christina Morales`\
-https://nytimes.com/live/2026/01/27/us/minneapolis-shooting-ice-minnesota/dhs-ice-trump-timeline
+https://nytimes.com/2026/01/27/us/dhs-ice-trump-timeline.html
 
 **Keith Law's top prospects: The baseball card outlooks for the 10 best**\
 `Using Law's latest rankings, we assess the booming baseball card market for the game's best prospects `\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/27/business/dealbook/altman-openai-minnesota.html
 **NCAA looking into Dabo Swinney's tampering accusations against Ole Miss**\
 `Though the organization did not provide specifics, officials have been in direct contact with Clemson about Swinney’s allegations.`\
 https://nytimes.com/athletic/7000655/2026/01/27/ncaa-dabo-swinney-ole-miss-tampering/
-
-**Australian Open recap: A home hope gets philosophical about tennis expectations**\
-`Alex de Minaur's Grand Slam record is enviable — but the Sisyphean losses to greats old and new are mounting.`\
-https://nytimes.com/athletic/7000527/2026/01/27/australian-open-recap-day-10-results-analysis/
 
