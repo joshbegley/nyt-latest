@@ -1,3 +1,7 @@
+**Freddy Peralta taking a wait-and-see approach to potential Mets extension**\
+`The Mets aren't believed to be currently pursuing an extension with Peralta but could be open to it down the road.`\
+https://nytimes.com/athletic/7002325/2026/01/27/freddy-peralta-mets-extension-possibility/
+
 **Quiet change to CFP format removes requirement that G6 team win its league**\
 `The idea that the G6 spot could go to a non-champion has been previously unreported and, in some cases, even forgotten by CFP leaders.`\
 https://nytimes.com/athletic/7002143/2026/01/27/college-football-playoff-format-g5-champions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7002180/2026/01/27/brooks-koepka-liv-golf-pga-tour-
 **Porro out for four weeks with injury; Odobert, Kolo Muani ‘fine’ after car crash**\
 `Micky Van de Ven will also miss Wednesday’s Champions League game with Eintracht Frankfurt`\
 https://nytimes.com/athletic/7002231/2026/01/27/pedro-porro-tottenham-injury-update/
-
-**Jets, Aaron Glenn change course and part ways with offensive coordinator Tanner Engstrand: Sources**\
-`Jets coach Aaron Glenn will now have to find an offensive coordinator and a defensive coordinator this offseason.`\
-https://nytimes.com/athletic/6952099/2026/01/27/tanner-engstrand-fired-new-york-jets/
 
