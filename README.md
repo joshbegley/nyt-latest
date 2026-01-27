@@ -1,3 +1,11 @@
+**The Dream Palace of the Immigration Hard-Liners**\
+`Is this really the only way to enforce the law?`\
+https://nytimes.com/2026/01/27/opinion/ice-minneapolis-immigration-republicans.html
+
+**The Sauces and Seasonings Chefs Can’t Live Without**\
+`Expert-approved condiments and spices that will instantly upgrade your meals.`\
+https://nytimes.com/2026/01/27/t-magazine/essential-condiments-sauces-seasonings.html
+
 **F.A.A. Ignored Safety Concerns Prior to Collision Over Potomac, N.T.S.B. Says**\
 `The National Transportation Safety Board said that a “multitude of errors” led to the collision between a military helicopter and a commercial jet, killing 67 people last January.`\
 https://nytimes.com/video/us/politics/100000010671390/dc-crash-ntsb-meeting.html
@@ -25,16 +33,4 @@ https://nytimes.com/2026/01/27/nyregion/mamdani-storm-deaths-homeless.html
 **Former French Senator Convicted of Drugging a Colleague, Intending to Assault Her**\
 `The trial took on special resonance in France, a year after a court found Dominique Pelicot and dozens of other men guilty of raping Gisèle Pelicot while she was sedated.`\
 https://nytimes.com/2026/01/27/world/europe/french-senator-drug-assault.html
-
-**Test Your Brain Rot: Can You Define ‘Lowkenuinely’?**\
-`This is a series about the mysteries of internet speak.`\
-https://nytimes.com/2026/01/27/style/test-your-brain-rot-can-you-define-lowkenuinely.html
-
-**How Iran Crushed an Uprising**\
-`A visual investigation by The New York Times shows the breadth and ferocity of the regime’s crackdown across the country.`\
-https://nytimes.com/2026/01/27/world/iran-protests-crackdown-eu-india-trade.html
-
-**Bills said they needed a new voice. Uninspiring Joe Brady hiring signals more of the same**\
-`The Bills promoted their offensive coordinator to head coach after firing Sean McDermott. `\
-https://nytimes.com/athletic/7002409/2026/01/27/joe-brady-bills-hc-staff-pegula-reaction/
 
