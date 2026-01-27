@@ -1,3 +1,19 @@
+**Until Saturday: USC's first Super Bowl QB? Seriously?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/7002159/2026/01/27/sam-darnold-usc-super-bowl-until-saturday/
+
+**Penguins forward Bryan Rust receives 3-game suspension for hit on Canucks' Brock Boeser**\
+`The illegal hit to the head came at the end of the Penguins' 3-2 win on Sunday in Vancouver.`\
+https://nytimes.com/athletic/7001997/2026/01/27/penguins-bryan-rust-suspension-brock-boeser-hit/
+
+**On Immigration, the G.O.P. Finds Itself in a Shocking Place: On Defense**\
+`Since President Trump’s rise, the issue has been a strength for the party. But now, after the chaos in Minnesota, Democrats see an opening and some Republicans worry that Mr. Trump is going too far.`\
+https://nytimes.com/2026/01/27/us/politics/minnesota-politics-immigration-trump.html
+
+**How to Improve Your Life**\
+`Guides from T Magazine on everything from organization to travel.`\
+https://nytimes.com/spotlight/how-to-improve-your-life
+
 **Breaking Silence, Eleanor Holmes Norton Announces Retirement**\
 `The 88-year-old nonvoting delegate for Washington, D.C., who has retreated from her duties amid declining health, made it official that she would retire at the end of her term.`\
 https://nytimes.com/2026/01/27/us/politics/eleanor-holmes-norton-retirement-congress.html

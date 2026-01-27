@@ -1,3 +1,15 @@
+**Until Saturday: USC's first Super Bowl QB? Seriously?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/7002159/2026/01/27/sam-darnold-usc-super-bowl-until-saturday/
+
+**Penguins forward Bryan Rust receives 3-game suspension for hit on Canucks' Brock Boeser**\
+`The illegal hit to the head came at the end of the Penguins' 3-2 win on Sunday in Vancouver.`\
+https://nytimes.com/athletic/7001997/2026/01/27/penguins-bryan-rust-suspension-brock-boeser-hit/
+
+**On Immigration, the G.O.P. Finds Itself in a Shocking Place: On Defense**\
+`Since President Trump’s rise, the issue has been a strength for the party. But now, after the chaos in Minnesota, Democrats see an opening and some Republicans worry that Mr. Trump is going too far.`\
+https://nytimes.com/2026/01/27/us/politics/minnesota-politics-immigration-trump.html
+
 **Breaking Silence, Eleanor Holmes Norton Announces Retirement**\
 `The 88-year-old nonvoting delegate for Washington, D.C., who has retreated from her duties amid declining health, made it official that she would retire at the end of her term.`\
 https://nytimes.com/2026/01/27/us/politics/eleanor-holmes-norton-retirement-congress.html
@@ -7,7 +19,7 @@ https://nytimes.com/2026/01/27/us/politics/eleanor-holmes-norton-retirement-cong
 https://nytimes.com/2026/01/27/opinion/minneapolis-ice-shooting.html
 
 **How to Improve Your Life**\
-`Guides on everything from organization to travel to help set the tone for the year ahead.`\
+`Guides from T Magazine on everything from organization to travel.`\
 https://nytimes.com/spotlight/how-to-improve-your-life
 
 **What’s true and not about Auston Matthews and the Toronto media**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7001980/2026/01/27/astros-carlos-correa-missing-wor
 **Mark Carney Rejects Suggestions That He Walked Back His Davos Speech to Trump**\
 `Scott Bessent said that the Canadian prime minister had recanted his call on middle powers to no longer accommodate the U.S.`\
 https://nytimes.com/2026/01/27/us/politics/carney-trump-davos-speech-canada-us.html
-
-**UPS Says It Is Cutting Up to 30,000 Jobs**\
-`The delivery company said it was planning the cuts this year because it expected to deliver fewer packages for Amazon, a large but unprofitable customer.`\
-https://nytimes.com/2026/01/27/business/ups-jobs-layoffs-2026.html
-
-**Yale Offers Free Tuition to Families With Incomes Under $200,000**\
-`Other costs would also be waived for students whose families earn less than $100,000. Yale joins other elite schools offering more generous financial aid, including Penn, Harvard and M.I.T.`\
-https://nytimes.com/2026/01/27/us/yale-free-tuition.html
-
-**Joelinton sidelined for 'weeks', late Guimaraes decision to be made**\
-`Joelinton is to seek a second opinion on a groin injury while Newcastle will "know more in a few hours" regarding Guimaraes' fitness.`\
-https://nytimes.com/athletic/7002034/2026/01/27/newcastle-joelinton-bruno-guimaraes-injury-update/
 
