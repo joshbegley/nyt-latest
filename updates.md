@@ -1,3 +1,7 @@
+**Commanders plan to hire Vikings pass game coordinator Daronte Jones as defensive coordinator: Source**\
+`Jones, 47, will be a first-time play caller after taking over for Joe Whitt Jr., fired by the Commanders after two seasons.`\
+https://nytimes.com/athletic/7000117/2026/01/26/daronte-jones-commanders-defensive-coordinator/
+
 **Sources: USMNT, Orlando breakout talent Freeman seals move to Villarreal**\
 `Alex Freeman is headed to Villarreal this winter, continuing his rapid rise after breaking out for Orlando and the U.S. men's national team`\
 https://nytimes.com/athletic/7000765/2026/01/26/alex-freeman-transfer-villarreal-orlando-city-usmnt/
