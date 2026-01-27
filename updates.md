@@ -1,3 +1,11 @@
+**G.M. Shares Rise as Investors Are Encouraged by 2026 Prospects**\
+`The automaker said that it would buy back stock worth up to $6 billion and that it expected profit to rise this year after it pulled back from electric vehicle production.`\
+https://nytimes.com/2026/01/27/business/general-motors-earnings.html
+
+**Broadway’s New Musicals Keep Losing Money. Except This One.**\
+`“The Outsiders” is the first new musical to open since 2022 to become profitable.`\
+https://nytimes.com/2026/01/27/theater/outsiders-broadway-musical-profit.html
+
 **Warriors, Bucks navigating huge dilemmas with stars Steph Curry and Giannis**\
 `If you’re playing in “franchise mode” and you’re running either of these teams, you trade Steph or Antetokounmpo for a mountain of assets.`\
 https://nytimes.com/athletic/6997718/2026/01/27/warriors-bucks-giannis-antetokounmpo-stephen-curry-nba-trade-deadline/
