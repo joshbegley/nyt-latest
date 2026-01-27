@@ -1,5 +1,5 @@
 **Women's tennis tour to investigate misconduct allegations against Peyton Stearns' coach**\
-`The complaints concern Font de Mora’s alleged misconduct and inappropriate relationships with players during his previous time on the tour.`\
+`They concern Rafael Font de Mora’s alleged misconduct and inappropriate relationships with players during his previous time on the tour.`\
 https://nytimes.com/athletic/6999822/2026/01/26/wta-investigation-peyton-stearns-rafael-font-de-mora/
 
 **Border Patrol Official Gregory Bovino Is Set to Leave Minnesota**\
