@@ -1,3 +1,7 @@
+**'Upsetting on so many levels': Emma Hayes speaks on fatal Minnesota shooting**\
+`Hayes has joined a growing chorus of sports figures who have spoken out in the days after the fatal shooting.`\
+https://nytimes.com/athletic/7000691/2026/01/26/emma-hayes-uswnt-minnesota-shooting-comments/
+
 **Commanders plan to hire Vikings pass game coordinator Daronte Jones as defensive coordinator: Source**\
 `Jones, 47, will be a first-time play caller after taking over for Joe Whitt Jr., fired by the Commanders after two seasons.`\
 https://nytimes.com/athletic/7000117/2026/01/26/daronte-jones-commanders-defensive-coordinator/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7000543/2026/01/26/minnesota-twins-joe-ryan-avoid-a
 **Sources: Toulouse bids for Columbus, Canada forward Russell-Rowe**\
 `The Canadian World Cup hopeful is a transfer target for the Ligue 1 side`\
 https://nytimes.com/athletic/7000473/2026/01/26/toulouse-jacen-russell-rowe-transfer-bid-columbus-crew-canada/
-
-**Cooper Flagg, Kon Knueppel headline NBA's 2026 Rising Stars participants**\
-`Carmelo Anthony, Vince Carter, Tracy McGrady and Austin Rivers will serve as honorary coaches for the four-team Rising Stars tournament.`\
-https://nytimes.com/athletic/7000430/2026/01/26/rising-stars-player-pool-cooper-flagg-kon-knueppel/
 
