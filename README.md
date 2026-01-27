@@ -1,3 +1,11 @@
+**Stanford and Katie Meyer's family settle wrongful death lawsuit**\
+`Stanford and family of former women's soccer captain Katie Meyer reached a resolution in the case related to her 2022 death by suicide.`\
+https://nytimes.com/athletic/7001498/2026/01/27/katie-meyer-stanford-death-lawsuit-settlement/
+
+**Judge Names Former C.I.A. Officer to Take Control of Rikers**\
+`The judge named Nicholas Deml to oversee the city jail, a change that will test Mayor Zohran Mamdani’s ability to work with federal officials to turn it around after decades of violence and dysfunction.`\
+https://nytimes.com/2026/01/27/nyregion/rikers-island-control-deml.html
+
 **She’s the Face of Trump’s Aviation Safety Board, and She’s a Democrat**\
 `Jennifer Homendy, the outspoken chairwoman of the National Transportation Safety Board, is reclaiming the spotlight at a meeting on Tuesday about the Washington, D.C., crash that killed 67.`\
 https://nytimes.com/2026/01/27/us/politics/jennifer-homendy-trump-transportation-safety-board.html
@@ -15,7 +23,7 @@ https://nytimes.com/2026/01/27/us/politics/ice-director-minnesota-contempt.html
 https://nytimes.com/2026/01/27/us/dhs-ice-trump-timeline.html
 
 **Keith Law's top prospects: The baseball card outlooks for the 10 best**\
-`Using Law's latest rankings, we assess the booming baseball card market for the game's best prospects `\
+`Using Law's latest rankings, we assess the booming baseball card market for the best MLB prospects.`\
 https://nytimes.com/athletic/7000874/2026/01/27/konnor-griffin-cards-mlb-prospects/
 
 **G.M. Shares Rise as Investors Are Encouraged by 2026 Prospects**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/27/theater/outsiders-broadway-musical-profit.html
 **Warriors, Bucks navigating huge dilemmas with Steph and Giannis**\
 `If you’re playing in “franchise mode” and you’re running either of these teams, you trade Steph or Antetokounmpo for a mountain of assets.`\
 https://nytimes.com/athletic/6997718/2026/01/27/warriors-bucks-giannis-antetokounmpo-stephen-curry-nba-trade-deadline/
-
-**USL Premier announced as new professional league, pro-rel launch in 2028**\
-`The comprehensive revamp of American lower league soccer is start to take shape`\
-https://nytimes.com/athletic/7000491/2026/01/27/usl-premier-mls-pro-rel-pyramid/
-
-**OpenAI’s Altman and More C.E.O.s Weigh In on Minnesota**\
-`Business leaders continue to feel pressure to speak out about the immigration crackdown and the fatal shooting of two U.S. citizens.`\
-https://nytimes.com/2026/01/27/business/dealbook/altman-openai-minnesota.html
 

@@ -1,3 +1,15 @@
+**She’s the Face of Trump’s Aviation Safety Board, and She’s a Democrat**\
+`Jennifer Homendy, the outspoken chairwoman of the National Transportation Safety Board, is reclaiming the spotlight at a meeting on Tuesday about the Washington, D.C., crash that killed 67.`\
+https://nytimes.com/2026/01/27/us/politics/jennifer-homendy-trump-transportation-safety-board.html
+
+**Duke, Darian Mensah reach resolution allowing star QB to transfer elsewhere**\
+`Settling the lawsuit would allow Mensah to transfer to and participate in football activities with another school immediately.`\
+https://nytimes.com/athletic/7001586/2026/01/27/duke-darian-mensah-settlement-buyout-transfer/
+
+**A timeline of the shifting Department of Homeland Security.**\
+`By Christina Morales`\
+https://nytimes.com/2026/01/27/us/dhs-ice-trump-timeline.html
+
 **Judge Orders ICE Chief to Appear in Court Over Potential Contempt**\
 `In a brief ruling, the Minnesota judge wrote that unusual order was necessary because “the extent of ICE’s violation of court orders is likewise extraordinary.”`\
 https://nytimes.com/2026/01/27/us/politics/ice-director-minnesota-contempt.html
