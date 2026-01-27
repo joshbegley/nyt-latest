@@ -1,3 +1,15 @@
+**Rick Rizzs, ever-faithful voice of Seattle baseball, will retire after one last pennant chase**\
+`'He is Mariners, through and through,' said Dave Sims. 'If he could snap his fingers, that franchise would have five or six rings.'`\
+https://nytimes.com/athletic/7002800/2026/01/27/rick-rizzs-seattle-mariners-retirement/
+
+**After a Second Killing in Minneapolis, How Are You Feeling About Where America Is Heading?**\
+`Federal agents fatally shot a second U.S. citizen on Saturday during protests of President Trump’s immigration crackdown, prompting many Americans to reflect on the state of the country. Teenagers, what do you think?`\
+https://nytimes.com/2026/01/27/learning/after-a-second-killing-in-minneapolis-how-are-you-feeling-about-where-america-is-heading.html
+
+**3 thoughts on Nebraska's 2026 schedule: An Indiana-Oregon double and a tough November**\
+`The Huskers stand a chance to start 5-0 under Rhule for the first time before a brutal stretch.`\
+https://nytimes.com/athletic/7002807/2026/01/27/nebraska-2026-football-schedule-big-ten/
+
 **Southwest Begins Assigned Seating, Scrapping a Signature Quirk**\
 `The airline said its new policy, rolled out on Tuesday, responded to passengers’ preferences, but some customers said the scramble was part of the charm.`\
 https://nytimes.com/2026/01/27/travel/southwest-airlines-assigned-seating.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/27/science/gladys-west-dead.html
 **Democrats Push to Impeach and Investigate Noem**\
 `Following the fatal shooting in Minneapolis, a drive to impeach the homeland security secretary has drawn dozens more Democratic supporters, including the party’s top three leaders.`\
 https://nytimes.com/2026/01/27/us/kristi-noem-dhs-impeach-minneapolis.html
-
-**Trump Calls for ‘Honest’ Inquiry Into Alex Pretti Shooting**\
-`President Trump said that he will be “watching over” the investigation in the fatal shooting of Alex Pretti. He also said faulted Mr. Pretti for carrying a gun.`\
-https://nytimes.com/video/us/politics/100000010672364/trump-alex-pretti.html
-
-**Atletico Nacional agree deal to sign San Jose's Chicho Arango: Sources**\
-`Arango only signed a new, long-term contract this offseason.`\
-https://nytimes.com/athletic/7002763/2026/01/27/chicho-arango-atletico-nacional-san-jose-transfer/
-
-**Judge Revives Wind Farm That Trump Halted Off Martha’s Vineyard**\
-`The project, known as Vineyard Wind, was already 95 percent complete when the Trump administration ordered construction to stop.`\
-https://nytimes.com/2026/01/27/climate/judge-offshore-wind-vineyard-massachusetts.html
 
