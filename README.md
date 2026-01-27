@@ -1,3 +1,7 @@
+**Scanning Ice for Monster Cracks, on This World and Another**\
+`Scientists are using radar to study damaged ice both in Antarctica and, with the help of a NASA spacecraft, on Jupiter’s ocean moon of Europa.`\
+https://nytimes.com/2026/01/27/climate/antarctica-thwaites-radar.html
+
 **Another Weekend Winter Storm? Here’s How the Forecast Is Shaping Up.**\
 `Meteorologists are watching another storm that could hit the East Coast this weekend.`\
 https://nytimes.com/2026/01/27/weather/next-winter-storm-forecast-snow-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7001999/2026/01/27/whats-true-auston-matthews-maple
 **Board of Peace Set to Hand Trump Sweeping Powers Over Gaza**\
 `A draft resolution revealed some of the plans for the new international body, which met for the first time last week amid criticism from some U.S. allies.`\
 https://nytimes.com/2026/01/27/world/middleeast/board-of-peace-trump-gaza.html
-
-**Correa to miss WBC after failing to receive insurance on his contract**\
-`Correa's Astros teammate Jose Altuve will also not play in the WBC due to insurance issues.`\
-https://nytimes.com/athletic/7001980/2026/01/27/astros-carlos-correa-missing-world-baseball-classic-insurance/
 
