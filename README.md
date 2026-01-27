@@ -1,3 +1,11 @@
+**Mike McCarthy says he wants Aaron Rodgers back with the Steelers in 2026**\
+`"Definitely, I don't see why you wouldn't," McCarthy said at his introductory press conference.`\
+https://nytimes.com/athletic/7002264/2026/01/27/aaron-rodgers-mike-mccarthy-pittsburgh-steelers/
+
+**Canucks goalie Thatcher Demko to have season-ending hip surgery**\
+`Demko, 30, hasn't played since Jan. 10 and has struggled with injuries for the last two years.`\
+https://nytimes.com/athletic/7002268/2026/01/27/canucks-thatcher-demko-injury-surgery-stats/
+
 **For Falcons, new coach Kevin Stefanski's presence outweighs experience with Browns**\
 `The Falcons introduced Stefanski on Tuesday, and he reflected on his time with the Browns: "Smooth seas do not make skillful sailors."`\
 https://nytimes.com/athletic/7002146/2026/01/27/falcons-kevin-stefanski-head-coach-matt-ryan/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7002228/2026/01/27/caitlin-clark-nbc-sports-nba-wnb
 **Yankees promote Mario Garza to lead beleaguered international scouting department**\
 `After weeks of uncertainty surrounding their international scouting department, the Yankees have promoted Garza as they overhaul the group.`\
 https://nytimes.com/athletic/7002078/2026/01/27/yankees-mario-garza-international-scouting/
-
-**How Computer Warfare Is Becoming Part of the Pentagon’s Arsenal**\
-`The military tested a new approach in Venezuela and during strikes on Iranian nuclear facilities.`\
-https://nytimes.com/2026/01/27/us/politics/pentagon-computer-warfare.html
-
-**Michigan Sues Oil Giants, Saying They Collude to Make Energy Costlier**\
-`The lawsuit accuses the companies of raising prices by working against solar and wind power and by downplaying the risks of climate change.`\
-https://nytimes.com/2026/01/27/climate/michigan-oil-companies-lawsuit-antitrust-affordability.html
 
