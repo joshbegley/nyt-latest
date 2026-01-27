@@ -1,3 +1,20 @@
+**Times/Siena Poll Data**\
+`Results from Times/Siena polls conducted since Sept. 2022. Cross-tabs are linked to from the topline results pages.`\
+https://nytimes.com/spotlight/times-siena-polls
+
+**How the NHL standings would look without overtime points**\
+`Three-on-three overtime can be thrilling. It’s also fake. Here's how the league standings look if we ditch the gimmicks.`\
+https://nytimes.com/athletic/7001700/2026/01/27/nhl-loser-point-overtime-shootout-red-light/
+
+**Eagles mailbag: Submit your questions to Zach Berman**\
+`Eagles mailbag: Submit your questions to Zach Berman`\
+https://nytimes.com/athletic/7001765/2026/01/27/eagles-offseason-mailbag-submit-questions-zach-berman/
+
+**Ekholm's hat trick leads Oilers defensemen to historic game vs. Ducks**\
+`Spencer Stastney, Mattias Ekholm and Darnell Nurse combined for the fastest four goals by defensemen in league history against the Ducks.
+`\
+https://nytimes.com/athletic/7001577/2026/01/27/oilers-defencemen-scoring-record/
+
 **Ekholm's hat trick leads Oilers defensemen to historic game vs. Ducks**\
 `Spencer Stastney, Mattias Ekholm and Darnell Nurse combined for the fastest four goals by defensemen in league history vs. the Ducks.
 `\
