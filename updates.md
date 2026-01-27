@@ -1,3 +1,7 @@
+**Can Donovan Mitchell's booming stats finally lift Cavaliers out of East?**\
+`Monday was further evidence Mitchell can get buckets with the best of them. But can the Cavaliers put it together?`\
+https://nytimes.com/athletic/7000808/2026/01/26/donavan-mitchell-stats-season-career-lead-cavaliers-eastern-conference/
+
 **Trump Holds 2-Hour Meeting With Noem Amid Backlash to Minneapolis Shooting**\
 `The meeting is a sign that the president is concerned about the fallout from the killing of Alex Pretti, who was shot by immigration agents.`\
 https://nytimes.com/2026/01/26/us/noem-trump-meeting-minneapolis-ice.html
