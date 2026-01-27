@@ -1,3 +1,15 @@
+**Caicedo says he must 'learn' from disciplinary issues but 'it's my style'**\
+`Caicedo has missed five games through suspension this season but explained "sometimes, that's the risk I need to take".`\
+https://nytimes.com/athletic/7002345/2026/01/27/moises-caicedo-chelsea-discipline/
+
+**Shaheen and Murkowski: Congress Must Defend NATO From Trump**\
+`America must defend its greatest asset: Its alliances.`\
+https://nytimes.com/2026/01/27/opinion/senators-congress-nato-trump-greenland.html
+
+**Freddy Peralta taking a wait-and-see approach to potential Mets extension**\
+`The Mets aren't believed to be currently pursuing an extension with Peralta but could be open to it down the road.`\
+https://nytimes.com/athletic/7002325/2026/01/27/freddy-peralta-mets-extension-possibility/
+
 **Quiet change to CFP format removes requirement that G6 team win its league**\
 `The idea that the G6 spot could go to a non-champion has been previously unreported and, in some cases, even forgotten by CFP leaders.`\
 https://nytimes.com/athletic/7002143/2026/01/27/college-football-playoff-format-g5-champions/
