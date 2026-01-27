@@ -1,3 +1,7 @@
+**Breaking Silence, Eleanor Holmes Norton Announces Retirement**\
+`The 88-year-old nonvoting delegate for Washington, D.C., who has retreated from her duties amid declining health, made it official that she would retire at the end of her term.`\
+https://nytimes.com/2026/01/27/us/politics/eleanor-holmes-norton-retirement-congress.html
+
 **A Backlash Against ICE’s ‘Army of Occupation’**\
 `Readers react to news and an editorial about the unrest in Minneapolis. Also: Vaccines and health priorities.`\
 https://nytimes.com/2026/01/27/opinion/minneapolis-ice-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/27/us/yale-free-tuition.html
 **Joelinton sidelined for 'weeks', late Guimaraes decision to be made**\
 `Joelinton is to seek a second opinion on a groin injury while Newcastle will "know more in a few hours" regarding Guimaraes' fitness.`\
 https://nytimes.com/athletic/7002034/2026/01/27/newcastle-joelinton-bruno-guimaraes-injury-update/
-
-**Employment Commission Chair Recasts Workplace Discrimination in Trump’s Image**\
-`Andrea Lucas, the chair of the Equal Employment Opportunity Commission, has said she wants to undo years of what she describes as activist excess around labor law.`\
-https://nytimes.com/2026/01/27/us/politics/eocc-dei-employment-discrimination.html
 
