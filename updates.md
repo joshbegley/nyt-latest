@@ -1,3 +1,7 @@
+**Trump Holds 2-Hour Meeting With Noem Amid Backlash to Minneapolis Shooting**\
+`The meeting is a sign that the president is concerned about the fallout from the killing of Alex Pretti, who was shot by immigration agents.`\
+https://nytimes.com/2026/01/26/us/noem-trump-meeting-minneapolis-ice.html
+
 **New Video Analysis Reveals Flawed and Fatal Decisions in Shooting of Pretti**\
 `A frame-by-frame assessment of actions by Alex Pretti and the two officers who fired 10 times shows how lethal force came to be used against a target who didn’t pose a threat.`\
 https://nytimes.com/video/us/100000010668660/new-video-analysis-reveals-flawed-and-fatal-decisions-in-shooting-of-pretti.html
