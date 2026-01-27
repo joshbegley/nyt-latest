@@ -1,3 +1,11 @@
+**Everton without Jack Grealish: How does it look and how can he be replaced?**\
+`Losing Grealish’s quality is far from the only issue for a side still striving for consistency and clarity.`\
+https://nytimes.com/athletic/7000739/2026/01/27/everton-jack-grealish-injury/
+
+**Top-ranked Arizona flexes contender status as it holds off late BYU comeback**\
+`At 21-0, the Wildcats have matched the best start in program history and are one of three remaining undefeated teams.`\
+https://nytimes.com/athletic/7001067/2026/01/27/arizona-byu-college-basketball-brayden-burries/
+
 **The New York Times in Print for Tuesday, Jan. 27, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/27/todays-new-york-times
