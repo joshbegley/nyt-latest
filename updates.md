@@ -1,3 +1,7 @@
+**How will things end between Darian Mensah, Duke and Miami?**\
+`Lawyers specializing in sports, entertainment or employment weigh in about this first-of-its-kind case and where it’s going.`\
+https://nytimes.com/athletic/7000857/2026/01/27/darian-mensah-duke-lawsuit-miami-transfer-portal/
+
 **WSL overseer announces £8.2m loss but profits expected to follow**\
 `The operating loss does not include the impact of the WSL’s improved broadcast deal with Sky Sports and the BBC from the start of this term.`\
 https://nytimes.com/athletic/7001323/2026/01/27/wslf-finances-2024-25-womens-football/
