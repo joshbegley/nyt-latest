@@ -1,40 +1,40 @@
-**State of the Hockey Rivalry: Team U.S.A. vs. Team Canada**\
-`Does the U.`\
-https://nytimes.com/video/the-athletic/100000010665493/state-of-the-hockey-rivalry-team-usa-vs-team-canada.html
+**Instead of X's and O's, Mike Vrabel opted for 4 H's to spur Patriots' turnaround**\
+`Players say an offseason culture-building activity — sharing their hopes, history, heroes and heartbreaks — helped make them a better team.`\
+https://nytimes.com/athletic/7000043/2026/01/27/mike-vrabel-patriots-broncos-super-bowl-turnaround/
 
-**Coco Gauff's Australian Open evaporates in overwhelming loss to Elina Svitolina**\
-`After starting the match with the wrong string tension, the American could not recover from a whirlwind of Svitolina pressure.`\
-https://nytimes.com/athletic/7001166/2026/01/27/australian-open-coco-gauff-elina-svitolina-result-analysis/
+**A Nation Divided Shares One Worry: What’s Next?**\
+`Scenes from the violent unrest in Minneapolis played on a loop in many American households over the weekend, prompting reflection about where the nation is heading.`\
+https://nytimes.com/2026/01/27/us/alex-pretti-shooting-minneapolis-reaction.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/27/crosswords/spelling-bee-forum.html
+**Transportation Safety Board Set to Declare Cause of Midair Collision**\
+`The National Transportation Safety Board is set to vote on the probable cause of last year’s crash near Washington and make recommendations.`\
+https://nytimes.com/2026/01/27/us/politics/transportation-safety-board-set-to-declare-cause-of-midair-collision.html
 
-**At Dior, a Major Surprise**\
-`Jonathan Anderson delivers an unexpected guest — and a great collection.`\
-https://nytimes.com/2026/01/27/style/dior-couture-jonathan-anderson-john-galliano.html
+**G.O.P. Congressman: We Need to Wake Up After Minneapolis**\
+`A Republican member of Congress argues that neither Biden nor Trump had the right solution on immigration.`\
+https://nytimes.com/2026/01/27/opinion/republicans-minneapolis-immigration-trump.html
 
-**Climbing a Skyscraper**\
-`Alex Honnold scaled a 1,667-foot-tall skyscraper without a rope. Is his feat inspiring? Or terrifyingly reckless?`\
-https://nytimes.com/2026/01/27/learning/climbing-a-skyscraper.html
+**Trump’s Fantasies Are Killing Us**\
+`But being a “hot” country does not make you a good country. Or a decent one.`\
+https://nytimes.com/2026/01/27/opinion/trump-hot-ice.html
 
-**Leicester City's Khun Top: 'The players need support from the fans, big time. Nobody wants to see us in League One'**\
-`The Championship club's chairman on healing the rift with a disgruntled fanbase, hierarchy changes, relegation and if he will sell up`\
-https://nytimes.com/athletic/6999463/2026/01/27/khun-top-leicester-city-interview/
+**Did Don DeLillo Invent the Racy Hockey Novel?**\
+`Nearly half a century before “Heated Rivalry” skated its way to screens, a budding literary talent pseudonymously published some sporty smut of his own.`\
+https://nytimes.com/2026/01/27/books/don-delillo-hockey-novel.html
 
-**An Academic and a Dealmaker Takes on the Challenge of Running Columbia**\
-`Jennifer Mnookin forged compromises with protesters and politicians at the University of Wisconsin-Madison. Now, she faces her biggest test.`\
-https://nytimes.com/2026/01/27/nyregion/columbia-president-jennifer-mnookin.html
+**Democrats Have to Be More Than the Anti-Trump Party**\
+`The moment is ripe to deal a debilitating blow to Trumpism and the MAGA movement. But who can deliver it?`\
+https://nytimes.com/2026/01/27/opinion/democrats-trump-midterms-future.html
 
-**After Cannabis Shake-Up in New York, Hochul’s Leadership Is Questioned**\
-`Efforts to get the state’s Office of Cannabis Management on track have been slow to yield results.`\
-https://nytimes.com/2026/01/27/nyregion/ny-cannabis-management-office-hochul.html
+**How We Think About Words Like ‘Murder’ in Our Minneapolis Coverage**\
+`The Times sticks to facts and avoids language that passes legal judgment on events that are still unfolding.`\
+https://nytimes.com/2026/01/27/insider/minneapolis-shooting-protests-language.html
 
-**Brothers Charged With Sex Trafficking Wage Campaign to Shame Accusers**\
-`The Alexander brothers, once titans of the New York party scene, have retained a high-stakes public relations strategist, Juda Engelmayer, whose clients include Harvey Weinstein.`\
-https://nytimes.com/2026/01/27/nyregion/alexander-brothers-public-relations-campaign.html
+**As Trump Heads to Iowa to Trumpet Economy, Many Residents Feel Pain**\
+`Farmers are critical to Iowa’s economy. They have been battered by President Trump’s tariffs and are not yet experiencing the “golden age” that the president promised.`\
+https://nytimes.com/2026/01/27/us/politics/trump-iowa-farms-tariffs.html
 
-**Trial to Begin in Sex-Trafficking Case Against Alexander Brothers**\
-`Prosecutors say the three men used their money, power and status to sexually assault women, including two underage girls. The men have denied the charges.`\
-https://nytimes.com/2026/01/27/nyregion/oren-tal-alexander-trial-sex-trafficking.html
+**How Do You Feel About Snowstorms?**\
+`A gigantic winter storm dumped more than a foot of snow in 20 states this weekend. Are you enjoying the winter weather?`\
+https://nytimes.com/2026/01/27/learning/how-do-you-feel-about-snowstorms.html
 
