@@ -1,3 +1,15 @@
+**Spain should host 2030 World Cup final, says FA chief after ‘damaging’ AFCON scenes**\
+`Spain, Morocco and Portugal will co-host the 2030 tournament, with Argentina, Paraguay and Uruguay hosting one game each.`\
+https://nytimes.com/athletic/7000501/2026/01/27/world-cup-2030-final-spain-morocco/
+
+**The Pulse: Still undefeated**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6999751/2026/01/27/arizona-byu-burries-dybantsa-the-pulse/
+
+**Albania Created an ‘A.I. Minister’ to Curb Corruption. Then Its Developers Were Accused of Graft.**\
+`The Albanian avatar known as Diella, a public anticorruption crusader, has been described as the world’s first government minister created by artificial intelligence.`\
+https://nytimes.com/2026/01/27/world/europe/albania-ai-corruption-graft.html
+
 **'We are seeing people die': German soccer exec wants World Cup boycott discussed**\
 `“It is clearly time to at least discuss a boycott,” Goettlich, who is also president of Bundesliga club St. Pauli, tells The Athletic.`\
 https://nytimes.com/athletic/7001226/2026/01/27/world-cup-boycott-germany-oke-goettlich/
