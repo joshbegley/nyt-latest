@@ -1,3 +1,7 @@
+**Broncos fire offensive coordinator Joe Lombardi: Source**\
+`Lombardi was a part of head coach Sean Payton's initial staff when he was hired by the Broncos in 2023.`\
+https://nytimes.com/athletic/7002694/2026/01/27/broncos-fire-oc-joe-lombardi/
+
 **The Dream Palace of the Immigration Hard-Liners**\
 `Is this really the only way to enforce the law?`\
 https://nytimes.com/2026/01/27/opinion/ice-minneapolis-immigration-republicans.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/27/opinion/iran-regime-killing-protesters.html
 **Storm Deaths Reach 10, Testing Mamdani’s Handling of a Weather Emergency**\
 `After first saying that it did not appear that the dead were homeless people, Mayor Zohran Mamdani has vowed to do more to get people into shelters.`\
 https://nytimes.com/2026/01/27/nyregion/mamdani-storm-deaths-homeless.html
-
-**Former French Senator Convicted of Drugging a Colleague, Intending to Assault Her**\
-`The trial took on special resonance in France, a year after a court found Dominique Pelicot and dozens of other men guilty of raping Gisèle Pelicot while she was sedated.`\
-https://nytimes.com/2026/01/27/world/europe/french-senator-drug-assault.html
 

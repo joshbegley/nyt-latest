@@ -1,3 +1,11 @@
+**The Dream Palace of the Immigration Hard-Liners**\
+`Is this really the only way to enforce the law?`\
+https://nytimes.com/2026/01/27/opinion/ice-minneapolis-immigration-republicans.html
+
+**The Sauces and Seasonings Chefs Can’t Live Without**\
+`Expert-approved condiments and spices that will instantly upgrade your meals.`\
+https://nytimes.com/2026/01/27/t-magazine/essential-condiments-sauces-seasonings.html
+
 **F.A.A. Ignored Safety Concerns Prior to Collision Over Potomac, N.T.S.B. Says**\
 `The National Transportation Safety Board said that a “multitude of errors” led to the collision between a military helicopter and a commercial jet, killing 67 people last January.`\
 https://nytimes.com/video/us/politics/100000010671390/dc-crash-ntsb-meeting.html
