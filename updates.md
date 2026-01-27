@@ -1,4 +1,8 @@
 **The emotional and tactical telepathy of coaching in tennis: 'I just expect them to read my mind'**\
+`Some players want ceaseless encouragement; some want silence; some want to vent — and it can change from point to point.`\
+https://nytimes.com/athletic/7001139/2026/01/27/tennis-players-coaches-dialogue-instruction-tactics/
+
+**The emotional and tactical telepathy of coaching in tennis: 'I just expect them to read my mind'**\
 `Some players want ceaseless encouragement; some want silence; some want a vent — and it can change from point to point.`\
 https://nytimes.com/athletic/7001139/2026/01/27/tennis-players-coaches-dialogue-instruction-tactics/
 
