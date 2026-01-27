@@ -1,3 +1,7 @@
+**Caitlin Clark joining NBC Sports for its new Sunday night NBA pregame show**\
+`Clark's crossover appeal will be on display for a national NBA audience.`\
+https://nytimes.com/athletic/7002228/2026/01/27/caitlin-clark-nbc-sports-nba-wnba/
+
 **Yankees promote Mario Garza to lead beleaguered international scouting department**\
 `After weeks of uncertainty surrounding their international scouting department, the Yankees have promoted Garza as they overhaul the group.`\
 https://nytimes.com/athletic/7002078/2026/01/27/yankees-mario-garza-international-scouting/
