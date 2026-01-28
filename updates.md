@@ -1,3 +1,7 @@
+**Initial D.H.S. Review Does Not Say Pretti Brandished Gun, Departing From Noem’s Claim**\
+`A report from an internal agency watchdog says the Minneapolis man was shot by law enforcement after resisting arrest, but makes no mention of the allegations leveled by a Trump administration official.`\
+https://nytimes.com/2026/01/27/us/politics/pretti-shooting-minneapolis-dhs-report.html
+
 **'I can't be reading this right': Sports world reacts to Belichick HOF snub**\
 `Belichick, who won six Super Bowls as the head coach of the New England Patriots, fell short of the 40-vote threshold for election.`\
 https://nytimes.com/athletic/7002947/2026/01/27/bill-belichick-hall-of-fame-snub-reactions/

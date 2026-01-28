@@ -1,3 +1,7 @@
+**As Trump speaks in Iowa, a few thousand demonstrators protest Pretti’s killing.**\
+`By Ann Hinga Klein`\
+https://nytimes.com/live/2026/01/27/us/trump-news/trump-iowa-speech-ice-protests
+
 **'I can't be reading this right': Sports world reacts to Belichick HOF snub**\
 `Belichick, who won six Super Bowls as the head coach of the New England Patriots, fell short of the 40-vote threshold for election.`\
 https://nytimes.com/athletic/7002947/2026/01/27/bill-belichick-hall-of-fame-snub-reactions/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/27/us/minneapolis-walz-frey-homan-ice.html
 **Trump Suggests He Will ‘De-Escalate’ in Minneapolis, Without Offering Details**\
 `President Trump continued to put the blame on Alex Pretti for legally carrying a weapon with a permit, saying, “You can’t walk in with guns.”`\
 https://nytimes.com/2026/01/27/us/politics/trump-minneapolis-crackdown.html
-
-**Inside Aaron Glenn’s and the Jets’ week of coaching-staff turmoil**\
-`Tanner Engstrand’s unexpected departure is the latest sign that things could be going awry.`\
-https://nytimes.com/athletic/7002865/2026/01/27/aaron-glenn-new-york-jets-coaching-staff-changes/
 
