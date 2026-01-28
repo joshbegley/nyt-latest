@@ -1,3 +1,7 @@
+**Portland Timbers finalizing deal to acquire Cole Bassett: Sources**\
+`Bassett appeared in 172 games for the Rapids in two stints, but the Timbers are willing to pay roughly $2.65 million cash to bring him in.`\
+https://nytimes.com/athletic/7002906/2026/01/27/portland-timbers-cole-bassett-colorado-rapids-deal/
+
 **Republicans Shift Tone After Killings, Criticizing Trump’s Immigration Push**\
 `With the president signaling a pivot in his crackdown, G.O.P. lawmakers have felt freer to express concern. But it’s not clear what they are willing to do about it.`\
 https://nytimes.com/2026/01/27/us/republicans-shift-tone-immigration.html
