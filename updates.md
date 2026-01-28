@@ -1,3 +1,20 @@
+**Fulham reach Bobb agreement with Man City**\
+`Fulham have reached an agreement with Manchester City over a deal to sign winger Oscar Bobb.`\
+https://nytimes.com/athletic/6913951/2026/01/28/oscar-bobb-man-city-transfer-news/
+
+**Browns hire former Ravens offensive coordinator Todd Monken as head coach**\
+`Monken has 11 years of NFL coaching experience, including the last three seasons as the Ravens' offensive coordinator. `\
+https://nytimes.com/athletic/7001807/2026/01/28/browns-todd-monken-head-coach-ravens/
+
+**With an aging Matthew Stafford, Rams must go all in for another Super Bowl run**\
+`If Stafford does return for another season, the Rams will need to push in all their chips and understand they have no time to waste. `\
+https://nytimes.com/athletic/7002848/2026/01/28/rams-qb-matthew-stafford-2026-super-bowl-run/
+
+**The Bounce: The midseason Bouncies are here! Best dunk, MVP and more**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7004071/2026/01/28/nba-midseason-awards-shai-gilgeous-alexander-the-bounce/
+
 **F1 teams are hiding early struggles with new cars. Should they let fans watch?**\
 `The 2026 F1 preseason kicked off with a private test for teams in Barcelona this week. Was the secrecy necessary? `\
 https://nytimes.com/athletic/7003845/2026/01/28/f1-closed-test-barcelona-2026-2/

@@ -1,4 +1,12 @@
-**With an aging Matthew Stafford, Rams must go all-in for another Super Bowl run**\
+**Fulham reach Bobb agreement with Man City**\
+`Fulham have reached an agreement with Manchester City over a deal to sign winger Oscar Bobb.`\
+https://nytimes.com/athletic/6913951/2026/01/28/oscar-bobb-man-city-transfer-news/
+
+**Browns hire former Ravens offensive coordinator Todd Monken as head coach**\
+`Monken has 11 years of NFL coaching experience, including the last three seasons as the Ravens' offensive coordinator. `\
+https://nytimes.com/athletic/7001807/2026/01/28/browns-todd-monken-head-coach-ravens/
+
+**With an aging Matthew Stafford, Rams must go all in for another Super Bowl run**\
 `If Stafford does return for another season, the Rams will need to push in all their chips and understand they have no time to waste. `\
 https://nytimes.com/athletic/7002848/2026/01/28/rams-qb-matthew-stafford-2026-super-bowl-run/
 
@@ -30,12 +38,4 @@ https://nytimes.com/2026/01/28/travel/5-stylish-hotels-for-city-lovers.html
 **Chelsea fan hospitalised after being stabbed with screwdriver in Naples**\
 `Two Chelsea fans were hospitalised after an incident before the Champions League game against Napoli. Police are investigating.`\
 https://nytimes.com/athletic/7003794/2026/01/28/chelsea-napoli-fans-hospitalised/
-
-**Fury to make UK comeback fight against Makhmudov on Netflix**\
-`Fury (34-2-1, 24 KOs) announced his latest retirement from boxing in January but will return in April.`\
-https://nytimes.com/athletic/7004058/2026/01/28/tyson-fury-aslanbek-makhmudov-netflix/
-
-**Five teams to watch at NBA trade deadline: Could Bucks upgrade with Giannis out?**\
-`Analyzing the most interesting upgrade situations leading into the trade deadline.`\
-https://nytimes.com/athletic/7002708/2026/01/28/buck-giannis-raptors-celtics-nba-trade-deadline/
 
