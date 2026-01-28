@@ -1,3 +1,7 @@
+**Premier League, MLS lobbying for temporary concussion substitutes**\
+`More than 25 leagues and unions signed a letter in support of TCSs before football's lawmakers meet next month. `\
+https://nytimes.com/athletic/7004457/2026/01/28/premier-league-mls-temporary-concussion-substitutes/
+
 **How to Come Together on Immigration**\
 `Readers respond to an essay by Representative Mike Lawler, Republican of New York. Also: A suggestion for Columbia’s new president; a “no” from Canada.`\
 https://nytimes.com/2026/01/28/opinion/minneapolis-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/style/saint-laurent-mens.html
 **Mikaël Kingsbury, Marielle Thompson named as Canada's Olympic flag bearers**\
 `Kingsbury and Thompson are Canada’s 27th and 28th Winter Olympics opening ceremony flag bearers.`\
 https://nytimes.com/athletic/7004251/2026/01/28/mikael-kingsbury-marielle-thompson-canada-olympics-flag-bearers/
-
-**Live Updates: Fed Set to Pause Rate Cuts**\
-`The Federal Reserve is expected to hold interest rates steady despite relentless attacks from President Trump, who wants borrowing costs to be much lower.`\
-https://nytimes.com/live/2026/01/28/business/federal-reserve-interest-rates
 
