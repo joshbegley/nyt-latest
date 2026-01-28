@@ -1,3 +1,7 @@
+**'Door is open' for MLS, Liga MX Mexico clubs to play in Copa Libertadores – CONMEBOL chief**\
+`His comments come after Inter Miami's managing owner Jorge Mas said it was his "dream" for the club to participate in the competition.`\
+https://nytimes.com/athletic/7003669/2026/01/28/copa-libertadores-teams-us-mexico/
+
 **Lowetide: Why the Oilers must continue to pivot away from high-priced veterans**\
 `Here's what we might see from GM Stan Bowman and the Oilers at the deadline and into the summer.`\
 https://nytimes.com/athletic/7001832/2026/01/28/edmonton-oilers-salary-cap-veterans-contracts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7003060/2026/01/28/tennis-australian-open-recap-qua
 **Mandel's Mailbag: Does college sports want rules? Where to rank Indiana?**\
 `Plus, why the SEC and Big Ten control the CFP, what coaching hires were actually downgrades and Deion Sanders' future at Colorado.`\
 https://nytimes.com/athletic/7002978/2026/01/28/clemson-ole-miss-dabo-swinney-indiana-rank/
-
-**Koumas set to join Hull on loan from Liverpool**\
-`Fellow academy graduate Calum Scanlon is also a target for Cardiff City.`\
-https://nytimes.com/athletic/7003831/2026/01/28/liverpool-lewis-koumas-hull-loan/
 
