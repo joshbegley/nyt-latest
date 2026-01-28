@@ -1,3 +1,7 @@
+**Hayes' experimental window is over. Now the USWNT sets its sights on the World Cup**\
+`After using January to identify players for 2027, the U.S. head coach now has a clear idea of the group she wants to work with`\
+https://nytimes.com/athletic/7003658/2026/01/28/emma-hayes-uswnt-chile-experiments/
+
 **Chanel Celebrates Grown-Up Women**\
 `In his first couture show, the designer Matthieu Blazy changes the rules.`\
 https://nytimes.com/2026/01/28/style/chanel-couture-older-women.html

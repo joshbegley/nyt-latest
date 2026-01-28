@@ -1,3 +1,7 @@
+**Hayes' experimental window is over. Now the USWNT sets its sights on the World Cup**\
+`After using January to identify players for 2027, the U.S. head coach now has a clear idea of the group she wants to work with`\
+https://nytimes.com/athletic/7003658/2026/01/28/emma-hayes-uswnt-chile-experiments/
+
 **Chanel Celebrates Grown-Up Women**\
 `In his first couture show, the designer Matthieu Blazy changes the rules.`\
 https://nytimes.com/2026/01/28/style/chanel-couture-older-women.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6999963/2026/01/28/fanalysis-player-ratings-explain
 **Word of the Day: convivial**\
 `This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/28/learning/word-of-the-day-convivial.html
-
-**Lorenzo Musetti retires injured one set away from beating Novak Djokovic at Australian Open**\
-`Musetti led the 10-time champion 6-4, 6-3 before suffering an injury to his right leg early in the third set.`\
-https://nytimes.com/athletic/7003579/2026/01/28/lorenzo-musetti-novak-djokovic-australian-open-retired/
 
