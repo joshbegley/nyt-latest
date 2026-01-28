@@ -1,3 +1,5 @@
+
+
 **The Most Important Foreign Policy Speech in Years**\
 `Prime Minister Mark Carney’s speech at Davos last week sent shock waves through the international community. The international-affairs scholar Henry Farrell explains why.`\
 https://nytimes.com/video/opinion/100000010659418/the-most-important-foreign-policy-speech-in-years.html
