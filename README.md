@@ -1,3 +1,7 @@
+**NHL trade grades: Devils clear cap space with Palat trade, Islanders get depth, draft capital**\
+`Both Ondrej Palat and Maxim Tsyplakov might be better off with a change of scenery and a fresh start.`\
+https://nytimes.com/athletic/7003057/2026/01/27/nhl-trade-grades-palat-tsyplakov-devils-islanders/
+
 **Man Tackled After Rushing Ilhan Omar at Town Hall in Minneapolis**\
 `The man, who had been seated directly in front of Omar’s lectern in the front row, sprayed her with a strong-smelling liquid after she said: “We must abolish ICE for good. And D.H.S. Secretary Kristi Noem must resign or face impeachment.”`\
 https://nytimes.com/2026/01/27/us/ilhan-omar-town-hall-minnesota.html
@@ -14,8 +18,8 @@ https://nytimes.com/live/2026/01/27/us/trump-news/trump-iowa-speech-ice-protests
 `Belichick, who won six Super Bowls as the head coach of the New England Patriots, fell short of the 40-vote threshold for election.`\
 https://nytimes.com/athletic/7002947/2026/01/27/bill-belichick-hall-of-fame-snub-reactions/
 
-**Initial D.H.S. Review Does Not Say Pretti Brandished Gun, Contradicting Noem**\
-`A report from an internal agency watchdog says the Minneapolis man was shot by law enforcement after resisting arrest, but makes no mention of the allegations leveled by a Trump administration official.`\
+**D.H.S. Review Does Not Say Pretti Brandished Gun, As Noem Claimed**\
+`An initial report from an internal agency watchdog says the Minneapolis man was shot by law enforcement after resisting arrest, but makes no mention of the allegations leveled by a Trump administration official.`\
 https://nytimes.com/2026/01/27/us/politics/pretti-shooting-minneapolis-dhs-report.html
 
 **Devils trade Ondrej Palat, 2 picks to Islanders for Maxim Tsyplakov**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7002863/2026/01/27/mike-mcdaniels-introductory-char
 **Why Did the Trump Administration Silence Bovino on Social Media?**\
 `When the border chief got yanked from Minnesota, he lost access to his X account, too.`\
 https://nytimes.com/2026/01/27/us/politics/bovino-minnesota-social-media-trump.html
-
-**Who Decides When a Home Is Safe? A California Bill Says Science, Not Insurers.**\
-`Following a Times investigation, a state lawmaker is proposing the first health-based standards for assessing smoke contamination after wildfires.`\
-https://nytimes.com/2026/01/27/realestate/california-wildfires-damage-insurance.html
 

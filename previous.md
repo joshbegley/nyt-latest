@@ -1,3 +1,11 @@
+**Man Tackled After Rushing Ilhan Omar at Town Hall in Minneapolis**\
+`The man, who had been seated directly in front of Omar’s lectern in the front row, sprayed her with a strong-smelling liquid after she said: “We must abolish ICE for good. And D.H.S. Secretary Kristi Noem must resign or face impeachment.”`\
+https://nytimes.com/2026/01/27/us/ilhan-omar-town-hall-minnesota.html
+
+**Trump Demonizes ICE Detainees in Minnesota as ‘Vicious’ Criminals**\
+`Hours after saying that he might “de-escalate” an aggressive ICE crackdown in Minnesota, Trump portrayed those arrested by federal agents there as “hardened, vicious, horrible criminals.”`\
+https://nytimes.com/2026/01/27/us/politics/trump-iowa-speech-minnesota-ice.html
+
 **As Trump speaks in Iowa, a few thousand demonstrators protest Pretti’s killing.**\
 `By Ann Hinga Klein`\
 https://nytimes.com/live/2026/01/27/us/trump-news/trump-iowa-speech-ice-protests
@@ -6,12 +14,12 @@ https://nytimes.com/live/2026/01/27/us/trump-news/trump-iowa-speech-ice-protests
 `Belichick, who won six Super Bowls as the head coach of the New England Patriots, fell short of the 40-vote threshold for election.`\
 https://nytimes.com/athletic/7002947/2026/01/27/bill-belichick-hall-of-fame-snub-reactions/
 
-**Initial D.H.S. Review Does Not Say Pretti Brandished Gun, Departing From Noem’s Claim**\
+**Initial D.H.S. Review Does Not Say Pretti Brandished Gun, Contradicting Noem**\
 `A report from an internal agency watchdog says the Minneapolis man was shot by law enforcement after resisting arrest, but makes no mention of the allegations leveled by a Trump administration official.`\
 https://nytimes.com/2026/01/27/us/politics/pretti-shooting-minneapolis-dhs-report.html
 
 **Devils trade Ondrej Palat, 2 picks to Islanders for Maxim Tsyplakov**\
-`Palat was held out of a home game against the Winnipeg Jets for roster-management reasons on Tuesday.`\
+`Palat was held out of a home game against the Winnipeg Jets for roster-management reasons Tuesday.`\
 https://nytimes.com/athletic/7002985/2026/01/27/ondrej-palat-trade-devils-islanders-maxim-tsyplakov/
 
 **Trump Threatens to Pull U.S. Help From Iraq if Former Leader Returns**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/27/us/politics/bovino-minnesota-social-media-trump.h
 **Who Decides When a Home Is Safe? A California Bill Says Science, Not Insurers.**\
 `Following a Times investigation, a state lawmaker is proposing the first health-based standards for assessing smoke contamination after wildfires.`\
 https://nytimes.com/2026/01/27/realestate/california-wildfires-damage-insurance.html
-
-**Minnesota Leaders Meet With White House Border Czar**\
-`Gov. Tim Walz and the mayor of Minneapolis, Jacob Frey, met separately with the Trump aide Tom Homan on Tuesday. All three described the discussions as a productive starting point.`\
-https://nytimes.com/2026/01/27/us/minneapolis-walz-frey-homan-ice.html
-
-**Trump Suggests He Will ‘De-Escalate’ in Minneapolis, Without Offering Details**\
-`President Trump continued to put the blame on Alex Pretti for legally carrying a weapon with a permit, saying, “You can’t walk in with guns.”`\
-https://nytimes.com/2026/01/27/us/politics/trump-minneapolis-crackdown.html
 
