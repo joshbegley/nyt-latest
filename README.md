@@ -1,3 +1,11 @@
+**Burnley complete loan signing of Ward-Prowse from West Ham**\
+`The 31-year-old is Burnley's first signing of the winter transfer window.`\
+https://nytimes.com/athletic/6995761/2026/01/28/ward-prowse-burnley-west-ham-transfer/
+
+**Sterling, Chelsea and the end of a union that always felt doomed**\
+`Unrealistic expectations and an inevitable decline with age made the winger's spell at Stamford Bridge one to forget`\
+https://nytimes.com/athletic/7004555/2026/01/28/raheem-sterling-chelsea-contract-end/
+
 **These Texas Turtles Are Stunned by Winter Weather. Literally. **\
 `Text by Tamir Kalifa`\
 https://nytimes.com/card/2026/01/28/us/texas-turtles-stunned-by-cold
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/28/us/fbi-search-election-center-georgia.html
 **The five biggest sports-business storylines heading into Super Bowl LX: MoneyCall**\
 `The latest edition of The Athletic's free weekly sports-business newsletter.`\
 https://nytimes.com/athletic/7004503/2026/01/28/super-bowl-lx-nfl-bad-bunny-moneycall/
-
-**Yankees trade for Rockies reliever Angel Chivilli, part with prospect TJ Rumfield**\
-`Chivilli posted a 7.06 ERA in 43 appearances last season for the Rockies, but the 23-year-old's underlying metrics show some promise.`\
-https://nytimes.com/athletic/7004419/2026/01/28/yankees-rockies-trade-angel-chivilli-tj-rumfield/
-
-**Garnacho's agents told to pay €200k to man who discovered Chelsea winger**\
-`The Court of Arbitration for Sport (CAS) has ordered Leader Sports Management to pay more than €200,000 to Ruben Pascual.`\
-https://nytimes.com/athletic/7004096/2026/01/28/alejandro-garnacho-agent-chelsea-cas/
 
