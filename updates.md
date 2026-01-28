@@ -1,3 +1,7 @@
+**Unions Sue FEMA Over Work Force Cuts They Say Threaten Readiness**\
+`The suit argues that the recent dismissals and plans for further cuts violate laws designed to preserve the disaster response agency’s independence and capabilities.`\
+https://nytimes.com/2026/01/28/climate/unions-sue-fema.html
+
 **Unions Sue FEMA Over Work Force Cuts They Say Threaten Its Readiness**\
 `The suit argues that the recent dismissals and plans for further cuts violate laws designed to preserve the disaster response agency’s independence and capabilities.`\
 https://nytimes.com/2026/01/28/climate/unions-sue-fema.html

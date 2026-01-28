@@ -1,3 +1,11 @@
+**How to watch Florida vs. South Carolina men's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7004857/2026/01/28/florida-vs-south-carolina-stream-how-to-watch-jan-28/
+
+**How to watch Xavier vs. UConn women's basketball: Time, TV, streaming**\
+`Find out how to watch the Xavier Musketeers play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7004855/2026/01/28/xavier-vs-uconn-stream-how-to-watch-jan-28/
+
 **Unions Sue FEMA Over Work Force Cuts They Say Threaten Readiness**\
 `The suit argues that the recent dismissals and plans for further cuts violate laws designed to preserve the disaster response agency’s independence and capabilities.`\
 https://nytimes.com/2026/01/28/climate/unions-sue-fema.html
@@ -7,7 +15,7 @@ https://nytimes.com/2026/01/28/climate/unions-sue-fema.html
 https://nytimes.com/2026/01/28/us/politics/federal-officers-pretti-leave.html
 
 **Corinthians stun Gotham 1-0, will meet Arsenal in FIFA Women's Champions Cup final**\
-`Arsenal beat Morocco's ASFAR 6-0 in the second FIFA Women's Champions Cup semifinal. `\
+`Arsenal and Corinthians will face off on Sunday for a chance to win $2.3 million`\
 https://nytimes.com/athletic/7004740/2026/01/28/corinthians-stuns-gotham-meets-arsenal-fifa-womens-champions-cup-final/
 
 **Lauryn Hill Will Lead Grammy Tribute to Roberta Flack and D’Angelo**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/28/climate/netherlands-bonaire-climate-ruling.html
 **What’s in Our Queue? ‘Miles ‘55’ and More**\
 `Text by Jim Tankersley`\
 https://nytimes.com/card/2026/01/28/arts/editors-recommendations-miles
-
-**Most N.Y.C. Storm Victims Believed to Have Died After Cold Exposure**\
-`Mayor Zohran Mamdani said that seven of the 10 people who died during the cold weather showed signs of cold exposure. One man was found dead just steps from a hospital.`\
-https://nytimes.com/2026/01/28/nyregion/nyc-storm-victims-hospital.html
-
-**Scoop City: How Bill Belichick's snub might've happened**\
-`HOF voter Mike Sando explains Belichick's shocking snub, plus I examine Buffalo's coaching decision and quotes from other recent hires`\
-https://nytimes.com/athletic/7004696/2026/01/28/hall-of-fame-bill-belichick-snub-patriots-bills-joe-brady/
 
