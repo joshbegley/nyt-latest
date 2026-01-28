@@ -1,3 +1,11 @@
+**Chelsea's Paez set to join River Plate on loan**\
+`The 18-year-old has spent the first half of the 2025-26 season on loan at BlueCo-owned Strasbourg, Chelsea's sister club.`\
+https://nytimes.com/athletic/7004746/2026/01/28/kendry-paez-chelsea-river-plate-loan/
+
+**Republicans Gave ICE a Slush Fund. Democrats Want to Limit It.**\
+`The sweeping domestic policy law that Republicans muscled through Congress last year made ICE the highest-funded federal law enforcement agency in the country, with no strings attached.`\
+https://nytimes.com/2026/01/28/us/politics/ice-funding-congress.html
+
 **Why Islanders made two cross-town trades for Carson Soucy, Ondřej Palát**\
 `“I want to reward them for where the team is at this stage of the season.” Islanders GM Mathieu Darche said of this week's trades.`\
 https://nytimes.com/athletic/7004630/2026/01/28/islanders-rangers-devils-trades-carson-soucy-ondrej-palat/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7004884/2026/01/28/warriors-vs-jazz-stream-how-to-w
 **How to watch Avalanche vs. Senators: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7004879/2026/01/28/avalanche-vs-senators-stream-how-to-watch-jan-28/
-
-**How to watch Hornets vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7004874/2026/01/28/hornets-vs-grizzlies-stream-how-to-watch-jan-28/
-
-**How to watch Hawks vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7004871/2026/01/28/hawks-vs-celtics-stream-how-to-watch-jan-28/
 
