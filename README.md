@@ -1,3 +1,11 @@
+**Why Islanders made two cross-town trades for Carson Soucy, Ondřej Palát**\
+`“I want to reward them for where the team is at this stage of the season.” Islanders GM Mathieu Darche said of this week's trades.`\
+https://nytimes.com/athletic/7004630/2026/01/28/islanders-rangers-devils-trades-carson-soucy-ondrej-palat/
+
+**Why Canadiens believe a goalie coaching change could fix their biggest weakness**\
+`Context is essential to understand the Canadiens' move to replace Éric Raymond with Marco Marciano.`\
+https://nytimes.com/athletic/7004817/2026/01/28/canadiens-goaltending-coach-firing-eric-raymond/
+
 **How to watch Knicks vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7004895/2026/01/28/knicks-vs-raptors-stream-how-to-watch-jan-28/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7004874/2026/01/28/hornets-vs-grizzlies-stream-how-
 **How to watch Hawks vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Atlanta Hawks play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7004871/2026/01/28/hawks-vs-celtics-stream-how-to-watch-jan-28/
-
-**How to watch Flyers vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7004869/2026/01/28/flyers-vs-blue-jackets-stream-how-to-watch-jan-28/
-
-**Their Mother Was Detained. Now a Minneapolis Family Lives in Fear.**\
-`After a Minneapolis woman was arrested by ICE agents, the children she left behind face an uncertain future. In the days following their mother’s detainment, the oldest daughter spoke to The New York Times.`\
-https://nytimes.com/video/us/100000010663646/minneapolis-ice-arrests-mother-detained.html
 
