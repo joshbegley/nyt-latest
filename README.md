@@ -1,4 +1,4 @@
-**Sorry, moms: Blackhawks left with mixed feelings after Wild erase three-goal deficit**\
+**Sorry, moms: Blackhawks left with mixed feelings after Wild erase 3-goal deficit**\
 `The Blackhawks played one of their best games of the season but couldn't quite hold the lead against a Stanley Cup contender.`\
 https://nytimes.com/athletic/7003467/2026/01/28/blackhawks-parents-trip-top-line-wild/
 
