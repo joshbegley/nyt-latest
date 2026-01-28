@@ -1,3 +1,11 @@
+**Victim in School Sex Abuse Case Wins $30 Million Jury Award**\
+`The man, now 44, said he was repeatedly sexual abused when he was a child at a school in Newark in the 1990s.`\
+https://nytimes.com/2026/01/28/nyregion/newark-school-sex-abuse-judgment.html
+
+**Angella Ferguson, a Leader in Sickle Cell Anemia Research, Dies at 100**\
+`A Black female doctor when that was rare, she developed a diagnostic test for the disease that is still a standard tool, as well as treatment guidelines.`\
+https://nytimes.com/2026/01/28/health/angella-ferguson-dead.html
+
 **Judge Scolds Bondi for Publishing Photos of Protesters on Social Media**\
 `“This conduct is not something that the court condones,” Judge Dulce J. Foster said during a hearing in a Minneapolis federal court.`\
 https://nytimes.com/2026/01/28/us/ice-protest-photos-bondi-social-media.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/28/us/politics/josh-shapiro-memoir-where-we-keep-lig
 **Why the Cold War Pact Known as NORAD Is Making Headlines**\
 `The State Department clarified comments made by the U.S. Ambassador to Canada that NORAD would be “altered” if that country did not purchase American F-35 jets.`\
 https://nytimes.com/2026/01/28/world/canada/norad-us-canada-security-agreement.html
-
-**Agents Who Shot Alex Pretti Are Put on Leave**\
-`Also, the F.B.I. searched a Georgia election center. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2026/01/28/briefing/agents-leave-trump-iran-fbi-georgia.html
-
-**These Machines Melt Snow Off of NYC Streets in Seconds**\
-`Large tubs have been placed around New York City to melt snow after the city received about 12 inches over the weekend.`\
-https://nytimes.com/video/nyregion/newyorktoday/100000010674988/nyc-snow-removal-storm.html
 

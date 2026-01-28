@@ -1,3 +1,19 @@
+**Judge Scolds Bondi for Publishing Photos of Protesters on Social Media**\
+`“This conduct is not something that the court condones,” Judge Dulce J. Foster said during a hearing in a Minneapolis federal court.`\
+https://nytimes.com/2026/01/28/us/ice-protest-photos-bondi-social-media.html
+
+**Judge in Minnesota Says ICE Has Violated Nearly 100 Court Orders**\
+`A federal judge said ICE had disobeyed more judicial directives this month than “some federal agencies have violated in their entire existence.”`\
+https://nytimes.com/2026/01/28/us/politics/judge-minnesota-ice-court-orders.html
+
+**Slot says Liverpool have to make 'smart' transfers despite mounting injuries**\
+`Jeremie Frimpong suffered a muscle injury a few minutes into Liverpool's 6-0 win over Qarabag, adding to Liverpool's absentee list.`\
+https://nytimes.com/athletic/7005425/2026/01/28/arne-slot-liverpool-transfers-frimpong-injury/
+
+**Rangers to hold Panarin out of lineup indefinitely ahead of Olympic break**\
+`It's not yet clear if a trade is in the works or if the Rangers are protecting their biggest asset from injury concerns ahead of a move.`\
+https://nytimes.com/athletic/7005439/2026/01/28/rangers-artemi-panarin-nhl-trade-deadline-olympics/
+
 **Geoff Mason, Sports Producer Thrust Into Covering Terrorism, Dies at 85**\
 `He played a critical role in ABC Sports’s reporting on the attack by a Palestinian group at the 1972 Summer Games in Munich that left 11 Israeli team members dead.`\
 https://nytimes.com/2026/01/28/sports/geoffrey-mason-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/28/briefing/agents-leave-trump-iran-fbi-georgia.html
 **These Machines Melt Snow Off of NYC Streets in Seconds**\
 `Large tubs have been placed around New York City to melt snow after the city received about 12 inches over the weekend.`\
 https://nytimes.com/video/nyregion/newyorktoday/100000010674988/nyc-snow-removal-storm.html
-
-**Champions League knockout odds: Which teams are the favourites to make the final?**\
-`Analysing the favourites to win the 2026 Champions League after the completion of the league stage.`\
-https://nytimes.com/athletic/7004224/2026/01/28/champions-league-knockout-odds-favourites-arsenal/
-
-**Mamdani Blames Rivals for Leaving New York With a ‘Poisoned’ Budget**\
-`Mayor Zohran Mamdani said the only way to close a more than $12 billion budget gap was to raise taxes on the wealthy and corporations.`\
-https://nytimes.com/2026/01/28/nyregion/mamdani-budget.html
-
-**Who’s Supposed to Clear the Snow From New York City’s Street Corners?**\
-`Three days after the city’s biggest snowstorm in years, many New Yorkers are still scaling mounds of snow and ice. Cleaning it up is a shared responsibility.`\
-https://nytimes.com/2026/01/28/nyregion/nyc-snow-mountains-crosswalks-bus-stops.html
-
-**USMNT in Champions League: Tillman's double, Weah heartbreak in league phase finales**\
-`Malik Tillman's return to scoring form helped Leverkusen through, but Tim Weah's Marseille was ousted in dramatic and stunning fashion`\
-https://nytimes.com/athletic/7005271/2026/01/28/champions-league-usmnt-malik-tillman-goals-tim-weah-marseille/
 

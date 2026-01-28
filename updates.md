@@ -1,3 +1,19 @@
+**Judge Scolds Bondi for Publishing Photos of Protesters on Social Media**\
+`“This conduct is not something that the court condones,” Judge Dulce J. Foster said during a hearing in a Minneapolis federal court.`\
+https://nytimes.com/2026/01/28/us/ice-protest-photos-bondi-social-media.html
+
+**Judge in Minnesota Says ICE Has Violated Nearly 100 Court Orders**\
+`A federal judge said ICE had disobeyed more judicial directives this month than “some federal agencies have violated in their entire existence.”`\
+https://nytimes.com/2026/01/28/us/politics/judge-minnesota-ice-court-orders.html
+
+**Slot says Liverpool have to make 'smart' transfers despite mounting injuries**\
+`Jeremie Frimpong suffered a muscle injury a few minutes into Liverpool's 6-0 win over Qarabag, adding to Liverpool's absentee list.`\
+https://nytimes.com/athletic/7005425/2026/01/28/arne-slot-liverpool-transfers-frimpong-injury/
+
+**Rangers to hold Panarin out of lineup indefinitely ahead of Olympic break**\
+`It's not yet clear if a trade is in the works or if the Rangers are protecting their biggest asset from injury concerns ahead of a move.`\
+https://nytimes.com/athletic/7005439/2026/01/28/rangers-artemi-panarin-nhl-trade-deadline-olympics/
+
 **Geoff Mason, Sports Producer Thrust Into Covering Terrorism, Dies at 85**\
 `He played a critical role in ABC Sports’s reporting on the attack by a Palestinian group at the 1972 Summer Games in Munich that left 11 Israeli team members dead.`\
 https://nytimes.com/2026/01/28/sports/geoffrey-mason-dead.html
