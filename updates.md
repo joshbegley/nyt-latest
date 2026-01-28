@@ -1,3 +1,7 @@
+**The Pulse: An embarrassment for the NFL**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7002074/2026/01/28/bill-belichick-hall-of-fame-the-pulse/
+
 **Seven PAOK fans die in car crash en route to Europa League game**\
 `The supporters died in a minibus crash in Romania while traveling to France for their Europa League game against Lyon on Thursday.`\
 https://nytimes.com/athletic/7003753/2026/01/28/paok-crash-europa-league-lyon-news/

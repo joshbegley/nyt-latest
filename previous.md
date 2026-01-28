@@ -1,3 +1,7 @@
+**The Pulse: An embarrassment for the NFL**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7002074/2026/01/28/bill-belichick-hall-of-fame-the-pulse/
+
 **Seven PAOK fans die in car crash en route to Europa League game**\
 `The supporters died in a minibus crash in Romania while traveling to France for their Europa League game against Lyon on Thursday.`\
 https://nytimes.com/athletic/7003753/2026/01/28/paok-crash-europa-league-lyon-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7003292/2026/01/28/red-wings-kings-patrick-kane-tod
 **Ranking all 81 Big Ten conference games of the 2026 season**\
 `The last three national champions all play one another, while Oregon faces both Ohio State and Michigan. How does the schedule stack up?`\
 https://nytimes.com/athletic/7003238/2026/01/28/big-ten-football-schedule-conference-game-rankings/
-
-**Knicks' best ball lately has been with Karl-Anthony Towns on the bench**\
-`The Knicks were struggling with the Kings. Then Towns sat for the final seven minutes and they won by 16.`\
-https://nytimes.com/athletic/7003447/2026/01/28/knicks-best-karl-anthony-towns-bench/
 
