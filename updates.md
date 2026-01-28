@@ -1,3 +1,16 @@
+**Anonymous NFL player poll: Tom Brady’s dual role, Bad Bunny's Super Bowl, tush push ban**\
+`We surveyed players from across the NFL on some of the league's hottest topics.`\
+https://nytimes.com/athletic/6999648/2026/01/28/nfl-player-poll-anonymous-2026/
+
+**After Russian Strike Kills Five, Train Sheds Burned Cars and Carries On**\
+`One Ukrainian passenger, who escaped injury after stepping out of a carriage for a cigarette, recalled carrying a bloodied woman away from the burning train.`\
+https://nytimes.com/2026/01/28/world/europe/ukraine-train-attack.html
+
+**The Bounce: The midseason Bouncies are here! Best dunk, MVP and more**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7004071/2026/01/28/nba-midseason-awards-shai-gilgeous-alexander-the-bounce/
+
 **The Bounce: The midseason Bouncies are here! Best dunk, MVP and more**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.
 `\
