@@ -1,3 +1,7 @@
+**Chanel Celebrates Grown-Up Women**\
+`In his first couture show, the designer Matthieu Blazy changes the rules.`\
+https://nytimes.com/2026/01/28/style/chanel-couture-older-women.html
+
 **Did a Luxury Nursing Home Hold a 91-Year-Old Woman Captive?**\
 `Her memory was failing, and the $28,000-a-month assisted living facility wouldn’t let her leave. Was it protecting her from an untrustworthy guardian?`\
 https://nytimes.com/2026/01/28/nyregion/diana-multare-nursing-home-standoff.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/learning/word-of-the-day-convivial.html
 **Lorenzo Musetti retires injured one set away from beating Novak Djokovic at Australian Open**\
 `Musetti led the 10-time champion 6-4, 6-3 before suffering an injury to his right leg early in the third set.`\
 https://nytimes.com/athletic/7003579/2026/01/28/lorenzo-musetti-novak-djokovic-australian-open-retired/
-
-**Wild start slow but rally from 3-goal deficit to beat Chicago … again: Takeaways**\
-`Oftentimes in the NHL, it's not how you start; it's how you finish.`\
-https://nytimes.com/athletic/7003048/2026/01/28/wild-blackhawks-takeaways-jesper-wallstedt/
 
