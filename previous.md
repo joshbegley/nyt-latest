@@ -1,3 +1,11 @@
+**Three Boys Die After Falling Through Icy Pond in Texas**\
+`Two 16-year-old girls in northern Texas were also killed in the aftermath of the winter storm when their sled, pulled by a Jeep, crashed into a tree, the police said.`\
+https://nytimes.com/2026/01/28/us/texas-winter-storm-deaths.html
+
+**Dissident Who Daringly Documented Uyghurs’ Repression Wins Asylum**\
+`Heng Guan, a Chinese national, will not be released immediately, as Homeland Security said it was reserving the right to appeal.`\
+https://nytimes.com/2026/01/28/world/asia/heng-guan-china-uyghurs-asylum.html
+
 **Chelsea's Paez set to join River Plate on loan**\
 `The 18-year-old has spent the first half of the 2025-26 season on loan at BlueCo-owned Strasbourg, Chelsea's sister club.`\
 https://nytimes.com/athletic/7004746/2026/01/28/kendry-paez-chelsea-river-plate-loan/
@@ -6,7 +14,7 @@ https://nytimes.com/athletic/7004746/2026/01/28/kendry-paez-chelsea-river-plate-
 `The sweeping domestic policy law that Republicans muscled through Congress last year made ICE the highest-funded federal law enforcement agency in the country, with no strings attached.`\
 https://nytimes.com/2026/01/28/us/politics/ice-funding-congress.html
 
-**Why Islanders made two cross-town trades for Carson Soucy, Ondřej Palát**\
+**Why Islanders made 2 cross-town trades for Carson Soucy, Ondřej Palát**\
 `“I want to reward them for where the team is at this stage of the season.” Islanders GM Mathieu Darche said of this week's trades.`\
 https://nytimes.com/athletic/7004630/2026/01/28/islanders-rangers-devils-trades-carson-soucy-ondrej-palat/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7004888/2026/01/28/timberwolves-vs-mavericks-stream
 **How to watch Spurs vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7004886/2026/01/28/spurs-vs-rockets-stream-how-to-watch-jan-28/
-
-**How to watch Warriors vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7004884/2026/01/28/warriors-vs-jazz-stream-how-to-watch-jan-28/
-
-**How to watch Avalanche vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7004879/2026/01/28/avalanche-vs-senators-stream-how-to-watch-jan-28/
 
