@@ -1,3 +1,15 @@
+**The Roony Bardghji derby: Barcelona's €2.5m Copenhagen signing impressing in Lamine Yamal's shadow**\
+`Once labelled the Swedish Messi, the 20-year-old winger has made a good start to life at the Camp Nou`\
+https://nytimes.com/athletic/7001378/2026/01/28/barcelona-champions-league-roony-bardghji-flick/
+
+**Stanislav Lobotka interview: Napoli's 'little wild boar' who is loved by Xavi and plays like a Catalan**\
+`The Slovakian on what it's like being one of Europe's most press-resistant midfielders and life in his 'second home' of Naples`\
+https://nytimes.com/athletic/6999506/2026/01/28/lobotka-napoli-conte-champions-league/
+
+**Manchester United and the Harry Maguire conundrum**\
+`The defender is impressing under Michael Carrick but that does not mean he is certain to stay at the club beyond this summer`\
+https://nytimes.com/athletic/7001264/2026/01/28/harry-maguire-manchester-united-transfer-future/
+
 **Row Z: Confusing Chelsea, a striker who can’t score, and Slot’s excuses**\
 `Tim Spiers shines a light on some of the more bonkers happenings in football over the past week `\
 https://nytimes.com/athletic/6998724/2026/01/28/row-z-chelsea-defenders-slot-dyche/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7002048/2026/01/28/world-cup-2026-boycott-trump-usa
 **‘The Man’ of Her Household: The Rise and Fall of a First Lady**\
 `Kim Keon Hee was unlike any presidential spouse South Korea had seen. Her downfall, on corruption charges, came after her husband declared martial law.`\
 https://nytimes.com/2026/01/28/world/asia/korea-first-lady-kim-keon-hee-jail.html
-
-**Connections: Sports Edition Coach: Hints for Jan. 28, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7002735/2026/01/28/connections-sports-edition-hints-for-jan-28-2026/
-
-**Who are Kairat, the Champions League newcomers making the 3,400-mile trip to face Arsenal?**\
-`Kairat are bottom of the league phase but the Kazakhstani side have an intriguing backstory`\
-https://nytimes.com/athletic/6999180/2026/01/28/arsenal-kairat-champions-league-analysis/
-
-**Corrections: Jan. 28, 2026**\
-`Corrections that appeared in print on Wednesday, Jan. 28, 2026.`\
-https://nytimes.com/2026/01/28/pageoneplus/corrections-jan-28-2026.html
 
