@@ -1,3 +1,7 @@
+**Man Lunges at Ilhan Omar During Minneapolis Town Hall**\
+`During a town hall in Minneapolis, a man sitting directly in front of Representative Ilhan Omar rushed to the lectern and sprayed her with a pungent liquid. He was immediately tackled and removed from the room.`\
+https://nytimes.com/video/us/politics/100000010672659/ilhan-omar-town-hall-minnesota.html
+
 **Eli Heidenreich, Mark Gronowski among 2026 NFL Draft standouts during Shrine Bowl week**\
 `More than 50 Shrine Bowl prospects could wind up hearing their names called in the NFL Draft. Which ones excelled this week?`\
 https://nytimes.com/athletic/6999645/2026/01/27/nfl-draft-2026-shrine-bowl-prospects-heidenreich/
