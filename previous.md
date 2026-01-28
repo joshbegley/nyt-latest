@@ -1,3 +1,15 @@
+**These Hot Tubs Melt Snow Off of NYC Streets in Seconds**\
+`Large hot tubs have been placed around New York City to melt snow after the city received about 12 inches over the weekend.`\
+https://nytimes.com/video/nyregion/newyorktoday/100000010674988/nyc-snow-removal-storm.html
+
+**Champions League knockout odds: Which teams are the favourites to make the final?**\
+`Analysing the favourites to win the 2026 Champions League after the completion of the league stage.`\
+https://nytimes.com/athletic/7004224/2026/01/28/champions-league-knockout-odds-favourites-arsenal/
+
+**Mamdani Blames Rivals for Leaving New York With a ‘Poisoned’ Budget**\
+`Mayor Zohran Mamdani said the only way to close a more than $12 billion budget gap was to raise taxes on the wealthy and corporations.`\
+https://nytimes.com/2026/01/28/nyregion/mamdani-budget.html
+
 **Who’s Supposed to Clear the Snow From New York City’s Street Corners?**\
 `Three days after the city’s biggest snowstorm in years, many New Yorkers are still scaling mounds of snow and ice. Cleaning it up is a shared responsibility.`\
 https://nytimes.com/2026/01/28/nyregion/nyc-snow-mountains-crosswalks-bus-stops.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/28/us/politics/ilhan-omar-trump-attack.html
 **Hillary Clinton and Tucker Carlson Walk Into a Saudi Real Estate Forum**\
 `The Democrat and the hard-right commentator found at least one thing to agree upon as they spoke at a conference in Riyadh.`\
 https://nytimes.com/2026/01/28/world/middleeast/hillary-clinton-tucker-carlson-riyadh.html
-
-**Benfica 4 Real Madrid 2 - Goalkeeper Anatoliy Trubin scores as Mourinho's side dump Madrid into the play-offs**\
-`Benfica and Real Madrid played out a thriller in Lisbon which ended in the most ridiculous of circumstances`\
-https://nytimes.com/athletic/6999819/2026/01/28/benfica-4-real-madrid-2-trubin-mourinho/
-
-**Tiny Love Stories: ‘The Cooler, Funnier Version of Myself’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2026/01/28/style/tiny-modern-love-stories-the-cooler-funnier-version-of-myself.html
-
-**UCL round-up: Arsenal top table, Madrid drop into play-offs**\
-`Chelsea held on to their top-eight place, while Bodo/Glimt reached the play-offs.`\
-https://nytimes.com/athletic/7004805/2026/01/28/arsenal-chelsea-tottenham-champions-league-standings-results/
 

@@ -1,3 +1,11 @@
+**Agents Who Shot Alex Pretti Are Put on Leave**\
+`Also, the F.B.I. searched a Georgia election center. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2026/01/28/briefing/agents-leave-trump-iran-fbi-georgia.html
+
+**Why the Cold War Pact Known as NORAD Is Making Headlines**\
+`The State Department clarified comments made by the U.S. Ambassador to Canada that NORAD would be “altered” if that country did not purchase American F-35 jets.`\
+https://nytimes.com/2026/01/28/world/canada/norad-us-canada-security-agreement.html
+
 **These Hot Tubs Melt Snow Off of NYC Streets in Seconds**\
 `Large hot tubs have been placed around New York City to melt snow after the city received about 12 inches over the weekend.`\
 https://nytimes.com/video/nyregion/newyorktoday/100000010674988/nyc-snow-removal-storm.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/28/us/politics/minneapolis-police-trump.html
 **Plane Carrying Colombian Politicians Crashes in Area Contested by Rebels**\
 `The aircraft was carrying 15 people, and the authorities said there were no survivors.`\
 https://nytimes.com/2026/01/28/world/americas/colombian-plane-politicians-missing.html
-
-**Attack on Ilhan Omar Follows Years of Trump’s Targeting Her**\
-`President Trump has spent years demonizing and dehumanizing the Somali-born Democrat from Minnesota, fueling escalating threats against her.`\
-https://nytimes.com/2026/01/28/us/politics/ilhan-omar-trump-attack.html
-
-**Hillary Clinton and Tucker Carlson Walk Into a Saudi Real Estate Forum**\
-`The Democrat and the hard-right commentator found at least one thing to agree upon as they spoke at a conference in Riyadh.`\
-https://nytimes.com/2026/01/28/world/middleeast/hillary-clinton-tucker-carlson-riyadh.html
 
