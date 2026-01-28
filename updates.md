@@ -1,3 +1,8 @@
+**The Bounce: The midseason Bouncies are here! Best dunk, MVP and more**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7004071/2026/01/28/nba-midseason-awards-shai-gilgeous-alexander-the-bounce/
+
 **With an aging Matthew Stafford, Rams must go all-in for another Super Bowl run**\
 `If Stafford does return for another season, the Rams will need to push in all their chips and understand they have no time to waste. `\
 https://nytimes.com/athletic/7002848/2026/01/28/rams-qb-matthew-stafford-2026-super-bowl-run/
