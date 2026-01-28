@@ -1,40 +1,40 @@
-**Veteran Indian Politician Among 5 Killed in Plane Crash**\
-`Ajit Pawar, the deputy chief minister of Maharashtra State, was on board a charter jet that crashed as it was coming in to land.`\
-https://nytimes.com/2026/01/28/world/asia/india-plane-crash.html
+**Panthers mock draft reaction: Will they select a Clemson player for the first time?**\
+`The Panthers need help on defense — edge rusher and linebacker top the list. But could they go with D-tackle Peter Woods?`\
+https://nytimes.com/athletic/7002472/2026/01/28/panthers-mock-draft-reaction-peter-woods-clemson/
 
-**Here’s the latest.**\
-`By Reis Thebault, Nicholas Bogel-Burroughs, Chris Cameron and Dan Watson`\
-https://nytimes.com/live/2026/01/28/us/minneapolis-shooting-ice-minnesota/heres-the-latest
+**Why be optimistic about Drew Petzing? What's David Montgomery's future? Lions mailbag**\
+`Maybe Petzing wasn't the right fit in Arizona. Could that be different alongside Dan Campbell in Detroit?`\
+https://nytimes.com/athletic/7002686/2026/01/28/lions-mailbag-drew-petzing-david-montgomery/
 
-**Minnesota Live Updates: Authorities Investigate Attack on Ilhan Omar as Tensions Flare Over Immigration Crackdown**\
-`Representative Ilhan Omar, a Democrat and frequent target of President Trump, was uninjured after a man sprayed her with a substance at a public event where she criticized ICE operations in Minneapolis.`\
-https://nytimes.com/live/2026/01/28/us/minneapolis-shooting-ice-minnesota
+**Dahlin hat trick helps Sabres stifle Leafs in another dominant win: 5 thoughts**\
+`The Sabres captain finished with three goals and two assists in a rout that might have ended a division rival's season.`\
+https://nytimes.com/athletic/7003443/2026/01/28/sabres-rasmus-dahlin-hat-trick-leafs/
 
-**Which teams will have cap space this summer, and how much?**\
-`Things will change between now and June (or next week), but here's a team-by-team overview of the 2026 financial landscape.`\
-https://nytimes.com/athletic/6894997/2026/01/28/nba-offseason-salary-cap-space-2026/
+**Maple Leafs' latest loss showcased a team that has been left behind**\
+`The Leafs gave up seven goals in a must-win game that knocked them further down in the wild-card chase.`\
+https://nytimes.com/athletic/7003396/2026/01/28/maple-leafs-tuch-goaltending-sabres/
 
-**Amazon to Cut 16,000 Jobs in Latest Round of Layoffs**\
-`The e-commerce giant has been cutting costs in part to redirect money into building data centers to compete in the race to dominate artificial intelligence.`\
-https://nytimes.com/2026/01/28/technology/amazon-corporate-layoffs.html
+**Red Wings' offense goes flat in loss to Kings: 5 thoughts**\
+`The Red Wings struggled offensively in their loss to the Kings, causing some angst in a tight Eastern Conference race.`\
+https://nytimes.com/athletic/7003292/2026/01/28/red-wings-kings-patrick-kane-todd-mclellan/
 
-**Iran Killed Thousands of Protesters. Here Are Five of Their Stories.**\
-`“He went out for freedom,” said the cousin of one of those who was killed when Iranian authorities mounted a deadly crackdown on protests across the country.`\
-https://nytimes.com/2026/01/28/world/middleeast/iran-protester-deaths.html
+**Ranking all 81 Big Ten conference games of the 2026 season**\
+`The last three national champions all play one another, while Oregon faces both Ohio State and Michigan. How does the schedule stack up?`\
+https://nytimes.com/athletic/7003238/2026/01/28/big-ten-football-schedule-conference-game-rankings/
 
-**Elina Svitolina and a semifinal bigger than the Australian Open: 'You have to dig deep'**\
-`The Ukrainian ended her 2025 season early because of burnout. She is yet to lose 10 matches into the new one...`\
-https://nytimes.com/athletic/7003617/2026/01/28/tennis-elina-svitolina-australian-open-aryna-sabalenka/
+**Knicks' best ball lately has been with Karl-Anthony Towns on the bench**\
+`The Knicks were struggling with the Kings. Then Towns sat for the final seven minutes and they won by 16.`\
+https://nytimes.com/athletic/7003447/2026/01/28/knicks-best-karl-anthony-towns-bench/
 
-**How Alex Hall, U.S. freeski Olympic star, found happiness and success in letting go**\
-`Skiing his way has made Hall one of the United States' most accomplished pros. And he knows he can never stop experimenting.`\
-https://nytimes.com/athletic/6967649/2026/01/28/alex-hall-us-freeski-olympics-slopestyle-gold/
+**The biggest challenges Joe Brady will face as he takes over as Bills head coach**\
+`There could be big changes coming even as the Bills went with an in-house hire.`\
+https://nytimes.com/athletic/7002513/2026/01/28/bills-joe-brady-head-coach-questions/
 
-**Do NFL players ever hide concussion symptoms? Anonymous player poll shows yes — and no**\
-`“Football is about availability more than ability. You want to be available. I know it’s shameful to say.”`\
-https://nytimes.com/athletic/6999496/2026/01/28/concussions-nfl-player-poll-hide-symptoms/
+**Canadiens take another step in evolution of becoming a more competitive team**\
+`One game after blowing a third-period lead, the Canadiens displayed just enough maturity to avoid the same fate.`\
+https://nytimes.com/athletic/7003583/2026/01/28/canadiens-evolution-competitive-team-win/
 
-**What do NFL players think of tush push, hip-drop tackles and kickoff rules? We asked them**\
-`We asked players from across the league about hot-topic rules — and which player would make a great official.`\
-https://nytimes.com/athletic/6999586/2026/01/28/nfl-player-poll-tush-push-kickoff-rules/
+**Bill Belichick's Hall of Fame snub has a whiff of piety, score-settling**\
+`Were voters acting in the best interests of "The Shield" or were they using this election as a chance to throw a sucker punch at the Hoodie?`\
+https://nytimes.com/athletic/7003177/2026/01/28/bill-belichick-hall-of-fame-snub/
 
