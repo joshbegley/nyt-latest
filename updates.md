@@ -1,3 +1,15 @@
+**When the Snow Won’t Melt, New York Brings Out the Hot Tubs**\
+`With no warm weather expected any time soon, the city’s snow piles require mechanical intervention.`\
+https://nytimes.com/2026/01/28/nyregion/new-york-hot-tubs-snow-storm.html
+
+**Tesla Profit Slumps, but Investors May Not Care**\
+`The electric vehicle maker’s shares are near record highs as Wall Street focuses on the company’s plans for robots and self-driving cars.`\
+https://nytimes.com/2026/01/28/business/tesla-earnings-electric-vehicles.html
+
+**Takeaways from the Fed meeting**\
+`By Ben Casselman`\
+https://nytimes.com/live/2026/01/28/business/federal-reserve-interest-rates/takeaways-from-the-fed-meeting
+
 **The Real Reason MAHA Hates Vaccines**\
 `Vaccines are a social safety net, too.`\
 https://nytimes.com/2026/01/28/opinion/maha-vaccines-kennedy-denmark.html
