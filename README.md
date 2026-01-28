@@ -1,10 +1,10 @@
-**Agents Who Shot Alex Pretti Are Put on Leave**\
-`Also, the F.B.I. searched a Georgia election center. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2026/01/28/briefing/agents-leave-trump-iran-fbi-georgia.html
-
 **Why the Cold War Pact Known as NORAD Is Making Headlines**\
 `The State Department clarified comments made by the U.S. Ambassador to Canada that NORAD would be “altered” if that country did not purchase American F-35 jets.`\
 https://nytimes.com/2026/01/28/world/canada/norad-us-canada-security-agreement.html
+
+**Agents Who Shot Alex Pretti Are Put on Leave**\
+`Also, the F.B.I. searched a Georgia election center. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2026/01/28/briefing/agents-leave-trump-iran-fbi-georgia.html
 
 **These Hot Tubs Melt Snow Off of NYC Streets in Seconds**\
 `Large hot tubs have been placed around New York City to melt snow after the city received about 12 inches over the weekend.`\
