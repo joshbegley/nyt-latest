@@ -1,3 +1,7 @@
+**Jamie Carragher: What's wrong with Liverpool - and how they can fix it**\
+`Exclusive: The ex-Liverpool defender and CBS pundit gives his diagnosis on the club's problems and who should shoulder the blame`\
+https://nytimes.com/athletic/7001766/2026/01/28/jamie-carragher-liverpool-interview/
+
 **Michael McIntyre: 'Your football allegiance is lifelong - it's utterly mad when you think about it'**\
 `The comedian is a die-hard Tottenham fan who, after an epiphany in the shower, is launching an app based on player ratings`\
 https://nytimes.com/athletic/6993607/2026/01/28/michael-mcintyre-fanalysis-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7003401/2026/01/28/paul-george-joel-embiid-jared-mc
 **The New York Times in Print for Wednesday, Jan. 28, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/28/todays-new-york-times
-
-**Sorry, moms: Blackhawks left with mixed feelings after Wild erase 3-goal deficit**\
-`The Blackhawks played one of their best games of the season but couldn't quite hold the lead against a Stanley Cup contender.`\
-https://nytimes.com/athletic/7003467/2026/01/28/blackhawks-parents-trip-top-line-wild/
 
