@@ -31,7 +31,7 @@ https://nytimes.com/athletic/7004419/2026/01/28/yankees-rockies-trade-angel-chiv
 https://nytimes.com/athletic/7004096/2026/01/28/alejandro-garnacho-agent-chelsea-cas/
 
 **Jesper Wallstedt shows the resilience, perspective he's gained in Wild comeback: 'He saved us'**\
-`After giving up a soft goal, Wallstedt made 18 straight saves to enable Minnesota’s 4-3 come-from-behind, shootout victory.`\
+`After giving up a soft goal, Wallstedt made 18 straight saves to enable Minnesota's 4-3 come-from-behind, shootout victory.`\
 https://nytimes.com/athletic/7003593/2026/01/28/jesper-wallstedts-resilience-perspective-wild-comeback/
 
 **Premier League, MLS lobbying for temporary concussion substitutes**\
