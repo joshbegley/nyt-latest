@@ -4,7 +4,7 @@ https://nytimes.com/athletic/7002848/2026/01/28/rams-qb-matthew-stafford-2026-su
 
 **F1 teams are hiding early struggles with new cars. Should they let fans watch?**\
 `The 2026 F1 preseason kicked off with a private test for teams in Barcelona this week. Was the secrecy necessary? `\
-https://nytimes.com/athletic/7003845/2026/01/28/barcelona-f1-test-2026-private/
+https://nytimes.com/athletic/7003845/2026/01/28/f1-closed-test-barcelona-2026-2/
 
 **Anonymous NFL player poll: Tom Brady’s dual role, Bad Bunny's Super Bowl, tush push ban**\
 `We surveyed players from across the NFL on some of the league's hottest topics.`\
