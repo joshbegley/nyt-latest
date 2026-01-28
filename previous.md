@@ -1,3 +1,7 @@
+**The Most Important Thing to Happen in A.I. Since ChatGPT**\
+`Kevin Roose and Casey Newton, the hosts of “Hard Fork,” contend that the most important A.I. release since ChatGPT is Claude Code.`\
+https://nytimes.com/video/podcasts/100000010670961/the-most-important-thing-to-happen-in-ai-since-chatgpt.html
+
 **Hayes' experimental window is over. Now the USWNT sets its sights on the World Cup**\
 `After using January to identify players for 2027, the U.S. head coach now has a clear idea of the group she wants to work with`\
 https://nytimes.com/athletic/7003658/2026/01/28/emma-hayes-uswnt-chile-experiments/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/arts/television/greg-bovino-ice-late-night.html
 **What is Fanalysis? Explaining the player ratings app co-founded by McIntyre and Neville**\
 `Supporters can only comment on players in their team, and the high-profile people behind the app hope its data becomes a key resource`\
 https://nytimes.com/athletic/6999963/2026/01/28/fanalysis-player-ratings-explained/
-
-**Word of the Day: convivial**\
-`This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/01/28/learning/word-of-the-day-convivial.html
 

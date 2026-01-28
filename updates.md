@@ -1,3 +1,7 @@
+**The Most Important Thing to Happen in A.I. Since ChatGPT**\
+`Kevin Roose and Casey Newton, the hosts of “Hard Fork,” contend that the most important A.I. release since ChatGPT is Claude Code.`\
+https://nytimes.com/video/podcasts/100000010670961/the-most-important-thing-to-happen-in-ai-since-chatgpt.html
+
 **Hayes' experimental window is over. Now the USWNT sets its sights on the World Cup**\
 `After using January to identify players for 2027, the U.S. head coach now has a clear idea of the group she wants to work with`\
 https://nytimes.com/athletic/7003658/2026/01/28/emma-hayes-uswnt-chile-experiments/

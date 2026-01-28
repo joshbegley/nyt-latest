@@ -1,3 +1,7 @@
+**Esther Perel on Why A.I. Intimacy Feels Safe but Isn’t Real**\
+`Perel, a renowned psychotherapist, doesn’t really think society can — or should — fall in love with a machine.`\
+https://nytimes.com/video/opinion/100000010661314/esther-perel-on-why-ai-intimacy-feels-safe-but-isnt-real.html
+
 **The Most Important Thing to Happen in A.I. Since ChatGPT**\
 `Kevin Roose and Casey Newton, the hosts of “Hard Fork,” contend that the most important A.I. release since ChatGPT is Claude Code.`\
 https://nytimes.com/video/podcasts/100000010670961/the-most-important-thing-to-happen-in-ai-since-chatgpt.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6993607/2026/01/28/michael-mcintyre-fanalysis-inter
 **Desi Lydic Says Gregory Bovino Got ‘Iced Out’**\
 `“We’re not throwing you under the bus — we’re throwing you onto a bus, and sending it far, far away,” the “Daily Show” host said of the recalled Border Patrol official.`\
 https://nytimes.com/2026/01/28/arts/television/greg-bovino-ice-late-night.html
-
-**What is Fanalysis? Explaining the player ratings app co-founded by McIntyre and Neville**\
-`Supporters can only comment on players in their team, and the high-profile people behind the app hope its data becomes a key resource`\
-https://nytimes.com/athletic/6999963/2026/01/28/fanalysis-player-ratings-explained/
 
