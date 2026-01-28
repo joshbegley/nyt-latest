@@ -7,7 +7,7 @@ https://nytimes.com/athletic/7003579/2026/01/28/lorenzo-musetti-novak-djokovic-a
 https://nytimes.com/athletic/7003048/2026/01/28/wild-blackhawks-takeaways-jesper-wallstedt/
 
 **Iga Świątek adds to Coco Gauff criticism of omnipresent Australian Open cameras**\
-`The world No. 2 asked if tennis players were “animals in a zoo” following a quarterfinal loss to Elena Rybakina.`\
+`The world No. 2 asked if tennis players were “animals in a zoo” following a quarterfinal loss to Elena Rybakina`\
 https://nytimes.com/athletic/7003516/2026/01/28/tennis-australian-open-cameras-player-privacy-gauff-swiatek/
 
 **Paul George turns back clock as 76ers bounce back to beat undermanned Bucks**\

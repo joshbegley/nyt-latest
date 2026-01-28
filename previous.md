@@ -1,3 +1,11 @@
+**Lorenzo Musetti retires injured one set away from beating Novak Djokovic at Australian Open**\
+`Musetti led the 10-time champion 6-4, 6-3 before suffering an injury to his right leg early in the third set.`\
+https://nytimes.com/athletic/7003579/2026/01/28/lorenzo-musetti-novak-djokovic-australian-open-retired/
+
+**Wild start slow but rally from 3-goal deficit to beat Chicago … again: Takeaways**\
+`Oftentimes in the NHL, it's not how you start; it's how you finish.`\
+https://nytimes.com/athletic/7003048/2026/01/28/wild-blackhawks-takeaways-jesper-wallstedt/
+
 **Iga Świątek adds to Coco Gauff criticism of omnipresent Australian Open cameras**\
 `The world No. 2 asked if tennis players were “animals in a zoo” following a quarterfinal loss to Elena Rybakina.`\
 https://nytimes.com/athletic/7003516/2026/01/28/tennis-australian-open-cameras-player-privacy-gauff-swiatek/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7001439/2026/01/28/randal-kolo-muani-tottenham-fran
 **Are Crystal Palace in a relegation scrap?**\
 `Oliver Glasner's side are winless in 11 matches in all competitions, slipping from fourth to 15th in the table ahead of a key game at Forest`\
 https://nytimes.com/athletic/6997259/2026/01/28/crystal-palace-relegation-glasner-mateta/
-
-**When Newcastle last played in Paris: A local boy's dream, an inspiring team talk and late heartbreak**\
-`Eddie Howe's side's last visit to Paris Saint-Germain ended in last-minute agony but was a memorable occasion for several different reasons`\
-https://nytimes.com/athletic/7001587/2026/01/28/newcastle-psg-champions-league-2023/
-
-**The Roony Bardghji derby: Barcelona's €2.5m Copenhagen signing impressing in Lamine Yamal's shadow**\
-`Once labelled the Swedish Messi, the 20-year-old winger has made a good start to life at the Camp Nou`\
-https://nytimes.com/athletic/7001378/2026/01/28/barcelona-champions-league-roony-bardghji-flick/
 
