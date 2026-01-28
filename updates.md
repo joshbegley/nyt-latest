@@ -1,3 +1,7 @@
+**Miller Suggests Federal Agents May Have Diverted From ‘Protocol’ Before Pretti Shooting**\
+`The comments by Mr. Miller, the influential White House deputy chief of staff, appeared to be a shift after days of blaming Alex Pretti, who was fatally shot by federal agents.`\
+https://nytimes.com/2026/01/28/us/stephen-miller-alex-pretti-shooting.html
+
 **When Conservative Politics Hit Cash-Starved Universities**\
 `If college education is merely a transaction, educators — and facts — are vulnerable.`\
 https://nytimes.com/2026/01/28/opinion/conservative-campus-politics.html
