@@ -1,3 +1,11 @@
+**Garnacho's agents told to pay €200k to man who discovered Chelsea winger**\
+`The Court of Arbitration for Sport (CAS) has ordered Leader Sports Management to pay more than €200,000 to Ruben Pascual.`\
+https://nytimes.com/athletic/7004096/2026/01/28/alejandro-garnacho-agent-chelsea-cas/
+
+**Jesper Wallstedt shows the resilience, perspective he's gained in Wild comeback: 'He saved us'**\
+`After giving up a soft goal, Wallstedt made 18 straight saves to enable Minnesota’s 4-3 come-from-behind, shootout victory.`\
+https://nytimes.com/athletic/7003593/2026/01/28/jesper-wallstedts-resilience-perspective-wild-comeback/
+
 **Premier League, MLS lobbying for temporary concussion substitutes**\
 `More than 25 leagues and unions signed a letter in support of TCSs before football's lawmakers meet next month. `\
 https://nytimes.com/athletic/7004457/2026/01/28/premier-league-mls-temporary-concussion-substitutes/

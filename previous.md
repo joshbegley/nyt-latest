@@ -1,3 +1,11 @@
+**Garnacho's agents told to pay €200k to man who discovered Chelsea winger**\
+`The Court of Arbitration for Sport (CAS) has ordered Leader Sports Management to pay more than €200,000 to Ruben Pascual.`\
+https://nytimes.com/athletic/7004096/2026/01/28/alejandro-garnacho-agent-chelsea-cas/
+
+**Jesper Wallstedt shows the resilience, perspective he's gained in Wild comeback: 'He saved us'**\
+`After giving up a soft goal, Wallstedt made 18 straight saves to enable Minnesota’s 4-3 come-from-behind, shootout victory.`\
+https://nytimes.com/athletic/7003593/2026/01/28/jesper-wallstedts-resilience-perspective-wild-comeback/
+
 **Premier League, MLS lobbying for temporary concussion substitutes**\
 `More than 25 leagues and unions signed a letter in support of TCSs before football's lawmakers meet next month. `\
 https://nytimes.com/athletic/7004457/2026/01/28/premier-league-mls-temporary-concussion-substitutes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7000888/2026/01/28/charles-bediako-alabama-ncaa-jud
 **How Battlefield Tech Was Used in Minneapolis**\
 `Our reporter Thomas Gibbons-Neff, who deployed twice to Afghanistan as a Marine and later was our Kabul bureau chief, looks at the battlefield technology used for an immigration arrest at a home in Minneapolis.`\
 https://nytimes.com/video/us/100000010669560/how-battlefield-tech-was-used-in-minneapolis.html
-
-**A Big Day for Thigh High Boots on Men**\
-`Paris men’s fashion week comes to a close with Saint Laurent.`\
-https://nytimes.com/2026/01/28/style/saint-laurent-mens.html
-
-**Mikaël Kingsbury, Marielle Thompson named as Canada's Olympic flag bearers**\
-`Kingsbury and Thompson are Canada’s 27th and 28th Winter Olympics opening ceremony flag bearers.`\
-https://nytimes.com/athletic/7004251/2026/01/28/mikael-kingsbury-marielle-thompson-canada-olympics-flag-bearers/
 
