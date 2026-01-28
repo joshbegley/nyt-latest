@@ -1,3 +1,11 @@
+**Unions Sue FEMA Over Work Force Cuts They Say Threaten Its Readiness**\
+`The suit argues that the recent dismissals and plans for further cuts violate laws designed to preserve the disaster response agency’s independence and capabilities.`\
+https://nytimes.com/2026/01/28/climate/unions-sue-fema.html
+
+**Federal Officers Who Fired at Pretti Placed on Leave**\
+`A Border Patrol agent and a Customs and Border Protection officer have been on leave since Saturday, according to a Department of Homeland Security official.`\
+https://nytimes.com/2026/01/28/us/politics/federal-officers-pretti-leave.html
+
 **Corinthians stun Gotham 1-0, will meet Arsenal in FIFA Women's Champions Cup final**\
 `Arsenal beat Morocco's ASFAR 6-0 in the second FIFA Women's Champions Cup semifinal. `\
 https://nytimes.com/athletic/7004740/2026/01/28/corinthians-stuns-gotham-meets-arsenal-fifa-womens-champions-cup-final/
@@ -29,8 +37,4 @@ https://nytimes.com/2026/01/28/nyregion/nyc-storm-victims-hospital.html
 **Scoop City: How Bill Belichick's snub might've happened**\
 `HOF voter Mike Sando explains Belichick's shocking snub, plus I examine Buffalo's coaching decision and quotes from other recent hires`\
 https://nytimes.com/athletic/7004696/2026/01/28/hall-of-fame-bill-belichick-snub-patriots-bills-joe-brady/
-
-**Landslide in Sicily Leaves Homes Teetering on Edge**\
-`A town in Sicily was left teetering on the edge after a landslide, triggered by a violent storm which battered southern Italy last week. More than 1,500 people have been evacuated.`\
-https://nytimes.com/video/world/europe/100000010673291/sicily-landslide-aftermath-homes.html
 

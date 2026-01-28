@@ -1,3 +1,15 @@
+**Corinthians stun Gotham 1-0, will meet Arsenal in FIFA Women's Champions Cup final**\
+`Arsenal beat Morocco's ASFAR 6-0 in the second FIFA Women's Champions Cup semifinal. `\
+https://nytimes.com/athletic/7004740/2026/01/28/corinthians-stuns-gotham-meets-arsenal-fifa-womens-champions-cup-final/
+
+**Lauryn Hill Will Lead Grammy Tribute to Roberta Flack and D’Angelo**\
+`The artist, who dominated the awards in 1999, will return to the Grammy stage to honor an inspiration and a collaborator.`\
+https://nytimes.com/2026/01/28/arts/music/grammys-tribute-lauryn-hill-roberta-flack-dangelo.html
+
+**Prosecutors Seek July Trial for Mangione in State Murder Case**\
+`Manhattan prosecutors want the trial against Luigi Mangione to start before a parallel federal case. Mr. Mangione was arrested in 2024 in the shooting death of a health insurance chief executive.`\
+https://nytimes.com/2026/01/28/nyregion/luigi-mangione-trial-date.html
+
 **U.S. allies in the Middle East have been pressing for weeks to prevent a conflict with Iran.**\
 `Diplomats in the region have spent weeks trying to prevent a confrontation that they say risks a wider conflict.`\
 https://nytimes.com/live/2026/01/28/us/trump-news/iran-us-allies-trump
