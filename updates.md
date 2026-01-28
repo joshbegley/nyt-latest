@@ -1,3 +1,15 @@
+**What to know about the Fed decision.**\
+`By Ana Swanson`\
+https://nytimes.com/2026/01/28/business/economy/what-to-know-about-the-fed-decision.html
+
+**Meta Forecasts Spending of at Least $115 Billion This Year**\
+`That would be a major jump from the $72 billion that the Silicon Valley tech giant shelled out last year, as it aims to compete in the artificial intelligence race.`\
+https://nytimes.com/2026/01/28/technology/meta-earnings-ai-spending.html
+
+**Sly Dunbar, Whose Drumming Brought Complex Beats to Reggae, Dies at 73**\
+`As one half of the famed rhythm duo Sly and Robbie, he played with some of the biggest names in music, including Bob Dylan and Mick Jagger.`\
+https://nytimes.com/2026/01/28/arts/music/sly-dunbar-dead.html
+
 **Giannis' future has personal impact on Milwaukee native Podziemski**\
 `Podziemski, who grew up a Bucks fan, admits he has trouble envisioning Antetokounmpo in another team's uniform.`\
 https://nytimes.com/athletic/7004960/2026/01/28/giannis-antetokounmpo-trade-warriors-brandin-podziemski/
