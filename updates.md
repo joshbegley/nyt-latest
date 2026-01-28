@@ -1,3 +1,11 @@
+**Ecuador Objects After ICE Agent Tries to Enter Minneapolis Consulate**\
+`Video showed diplomatic staff blocking the agent from entering on Tuesday morning.`\
+https://nytimes.com/2026/01/28/us/ice-ecuador-consulate-minneapolis.html
+
+**Australian Open recap: Ben Shelton reaches out and touches tennis faith despite Sinner loss**\
+`The American was philosophical about the way he is evolving as a player, especially at Grand Slams.`\
+https://nytimes.com/athletic/7003060/2026/01/28/australian-open-recap-ben-shelton-reaches-out-and-touches-tennis-faith-despite-sinner-loss/
+
 **Mandel's Mailbag: Does college sports want rules? Where to rank Indiana?**\
 `Plus, why the SEC and Big Ten control the CFP, what coaching hires were actually downgrades and Deion Sanders' future at Colorado.`\
 https://nytimes.com/athletic/7002978/2026/01/28/clemson-ole-miss-dabo-swinney-indiana-rank/
