@@ -1,3 +1,11 @@
+**When Conservative Politics Hit Cash-Starved Universities**\
+`If college education is merely a transaction, educators — and facts — are vulnerable.`\
+https://nytimes.com/2026/01/28/opinion/conservative-campus-politics.html
+
+**Why Do Houseguests Expect Us to Pay for Any Food During Their Visits?**\
+`A married couple is unsure how to get guests at their vacation home to pony up for groceries — ideally without being asked.`\
+https://nytimes.com/2026/01/28/style/houseguests-cost-splitting.html
+
 **Gianni Infantino's world tour: From Kigali to Boston, the FIFA president who enjoys the big stage**\
 `The FIFA president clearly feels at home on the world stage - as his dizzying travel schedule reflects`\
 https://nytimes.com/athletic/6985207/2026/01/28/gianni-infantinos-world-tour-fifa-world-cup/

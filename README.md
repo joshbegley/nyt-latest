@@ -1,3 +1,7 @@
+**Miller Suggests Federal Agents May Have Diverted From ‘Protocol’ Before Pretti Shooting**\
+`The comments by Mr. Miller, the influential White House deputy chief of staff, appeared to be a shift after days of blaming Alex Pretti, who was fatally shot by federal agents.`\
+https://nytimes.com/2026/01/28/us/stephen-miller-alex-pretti-shooting.html
+
 **When Conservative Politics Hit Cash-Starved Universities**\
 `If college education is merely a transaction, educators — and facts — are vulnerable.`\
 https://nytimes.com/2026/01/28/opinion/conservative-campus-politics.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7003615/2026/01/28/college-basketball-mailbag-flori
 **What to Know About Ilhan Omar, the Lawmaker Attacked in Minnesota**\
 `Ms. Omar, a Democratic member of Congress, has come under fire for years, most notably from President Trump.`\
 https://nytimes.com/2026/01/28/us/ilhan-omar-who-is-minnesota-sprayed-attack.html
-
-**Five Questions for Jerome Powell**\
-`Succession drama, legal intrigue and political independence: These are top issues that DealBook would ask of the Federal Reserve chairman.`\
-https://nytimes.com/2026/01/28/business/dealbook/powell-federal-reserve-rates.html
 
