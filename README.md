@@ -1,3 +1,7 @@
+**Sorry, moms: Blackhawks left with mixed feelings after Wild erase three-goal deficit**\
+`The Blackhawks played one of their best games of the season but couldn't quite hold the lead against a Stanley Cup contender.`\
+https://nytimes.com/athletic/7003467/2026/01/28/blackhawks-parents-trip-top-line-wild/
+
 **Meet Brody Couch: The Australian-American who won cricket's Big Bash League**\
 `The fast bowler was born in Australia but his mother is from upstate New York, so he gets to play in Major League Cricket as a local`\
 https://nytimes.com/athletic/6991107/2026/01/28/brody-couch-perth-scorchers-usa-mlc-bbl-cricket/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7001264/2026/01/28/harry-maguire-manchester-united-
 **Row Z: Confusing Chelsea, a striker who can’t score, and Slot’s excuses**\
 `Tim Spiers shines a light on some of the more bonkers happenings in football over the past week `\
 https://nytimes.com/athletic/6998724/2026/01/28/row-z-chelsea-defenders-slot-dyche/
-
-**Is focusing on specific competitions a way for football clubs to find success?**\
-`Targeting victory in a specific competition may well be becoming a sensible strategy, even if it is at the expense of league form`\
-https://nytimes.com/athletic/7001302/2026/01/28/premier-league-teams-focus-other-competitions/
 
