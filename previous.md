@@ -1,3 +1,11 @@
+**Seven PAOK fans die in car crash en route to Europa League game**\
+`The supporters died in a minibus crash in Romania while traveling to France for their Europa League game against Lyon on Thursday.`\
+https://nytimes.com/athletic/7003753/2026/01/28/paok-crash-europa-league-lyon-news/
+
+**TAFC: How likely is a World Cup boycott? Plus: The toll taken to compete for multiple trophies**\
+`Today in TAFC: Calls for a World Cup boycott, explaining how tough it is to compete in multiple competitions, and all the latest news`\
+https://nytimes.com/athletic/7003673/2026/01/28/world-cup-boycott-toll-taken-multiple-trophies/
+
 **Bruins victory via game day bus from New York, airport food and a shoveling assist**\
 `The Bruins fought through an unusual amount of fatigue to beat the Predators in overtime after playing in New York the night before.`\
 https://nytimes.com/athletic/7003359/2026/01/28/bruins-bus-trip-fatigue-pastrnak-predators/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7003238/2026/01/28/big-ten-football-schedule-confer
 **Knicks' best ball lately has been with Karl-Anthony Towns on the bench**\
 `The Knicks were struggling with the Kings. Then Towns sat for the final seven minutes and they won by 16.`\
 https://nytimes.com/athletic/7003447/2026/01/28/knicks-best-karl-anthony-towns-bench/
-
-**The biggest challenges Joe Brady will face as he takes over as Bills head coach**\
-`There could be big changes coming even as the Bills went with an in-house hire.`\
-https://nytimes.com/athletic/7002513/2026/01/28/bills-joe-brady-head-coach-questions/
-
-**Canadiens take another step in evolution of becoming a more competitive team**\
-`One game after blowing a third-period lead, the Canadiens displayed just enough maturity to avoid the same fate.`\
-https://nytimes.com/athletic/7003583/2026/01/28/canadiens-evolution-competitive-team-win/
 

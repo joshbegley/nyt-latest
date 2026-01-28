@@ -1,3 +1,11 @@
+**Seven PAOK fans die in car crash en route to Europa League game**\
+`The supporters died in a minibus crash in Romania while traveling to France for their Europa League game against Lyon on Thursday.`\
+https://nytimes.com/athletic/7003753/2026/01/28/paok-crash-europa-league-lyon-news/
+
+**TAFC: How likely is a World Cup boycott? Plus: The toll taken to compete for multiple trophies**\
+`Today in TAFC: Calls for a World Cup boycott, explaining how tough it is to compete in multiple competitions, and all the latest news`\
+https://nytimes.com/athletic/7003673/2026/01/28/world-cup-boycott-toll-taken-multiple-trophies/
+
 **Bruins victory via game day bus from New York, airport food and a shoveling assist**\
 `The Bruins fought through an unusual amount of fatigue to beat the Predators in overtime after playing in New York the night before.`\
 https://nytimes.com/athletic/7003359/2026/01/28/bruins-bus-trip-fatigue-pastrnak-predators/
