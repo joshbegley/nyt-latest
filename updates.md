@@ -1,3 +1,7 @@
+**Paul George turns back clock as 76ers bounce back to beat undermanned Bucks**\
+`George had 32 points and nine 3-pointers, and Jared McCain added 17 points and five 3s, helping the 76ers beat the Bucks 139-122 on Tuesday.`\
+https://nytimes.com/athletic/7003401/2026/01/28/paul-george-joel-embiid-jared-mccain-76ers-stats/
+
 **The New York Times in Print for Wednesday, Jan. 28, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/28/todays-new-york-times
