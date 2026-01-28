@@ -1,3 +1,7 @@
+**Jesper Wallstedt shows the resilience, perspective he's gained in Wild comeback: 'He saved us'**\
+`After giving up a soft goal, Wallstedt made 18 straight saves to enable Minnesota's 4-3 come-from-behind, shootout victory.`\
+https://nytimes.com/athletic/7003593/2026/01/28/jesper-wallstedts-resilience-perspective-wild-comeback/
+
 **Browns DC Jim Schwartz not planning on returning despite being under contract: Sources**\
 `Schwartz received two head-coaching interviews with Cleveland, and was a finalist for the vacancy that ultimately went to Todd Monken.`\
 https://nytimes.com/athletic/7004528/2026/01/28/jim-schwartz-browns-defensive-coordinator-todd-monken/

@@ -1,4 +1,12 @@
-**Browns DC Jim Schwartz not planning on returning despite being under contract: Sources**\
+**These Texas Turtles Are Stunned by Winter Weather. Literally. **\
+`Text by Tamir Kalifa`\
+https://nytimes.com/card/2026/01/28/us/texas-turtles-stunned-by-cold
+
+**Tom Brady baffled by Bill Belichick's first-ballot Hall of Fame snub**\
+`“If he’s not a first-ballot Hall of Famer, there’s really no coach that should ever be a first-ballot Hall of Famer," Brady said Wednesday.`\
+https://nytimes.com/athletic/7004486/2026/01/28/tom-brady-bill-belichick-hall-of-fame-snub/
+
+**Browns DC Jim Schwartz not planning to return despite being under contract: Sources**\
 `Schwartz received two head-coaching interviews with Cleveland, and was a finalist for the vacancy that ultimately went to Todd Monken.`\
 https://nytimes.com/athletic/7004528/2026/01/28/jim-schwartz-browns-defensive-coordinator-todd-monken/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7004419/2026/01/28/yankees-rockies-trade-angel-chiv
 **Garnacho's agents told to pay €200k to man who discovered Chelsea winger**\
 `The Court of Arbitration for Sport (CAS) has ordered Leader Sports Management to pay more than €200,000 to Ruben Pascual.`\
 https://nytimes.com/athletic/7004096/2026/01/28/alejandro-garnacho-agent-chelsea-cas/
-
-**Jesper Wallstedt shows the resilience, perspective he's gained in Wild comeback: 'He saved us'**\
-`After giving up a soft goal, Wallstedt made 18 straight saves to enable Minnesota's 4-3 come-from-behind, shootout victory.`\
-https://nytimes.com/athletic/7003593/2026/01/28/jesper-wallstedts-resilience-perspective-wild-comeback/
-
-**Premier League, MLS lobbying for temporary concussion substitutes**\
-`More than 25 leagues and unions signed a letter in support of TCSs before football's lawmakers meet next month. `\
-https://nytimes.com/athletic/7004457/2026/01/28/premier-league-mls-temporary-concussion-substitutes/
 
