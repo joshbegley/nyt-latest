@@ -1,3 +1,11 @@
+**Australian Open recap: Ben Shelton reaches out and touches tennis faith despite Sinner loss**\
+`The American was philosophical about the way he is evolving as a player, especially at Grand Slams.`\
+https://nytimes.com/athletic/7003060/2026/01/28/australian-open-recap-ben-shelton-reaches-out-and-touches-tennis-faith-despite-sinner-loss/
+
+**Rangers insider: What I'm hearing about Panarin, Trocheck, Schneider and more**\
+`With the trade deadline just over five weeks away, a cloud of uncertainty hangs over many of the players rumored to be available.`\
+https://nytimes.com/athletic/7002597/2026/01/28/rangers-nhl-trade-deadline-panarin-trocheck-schneider/
+
 **Pistons overwhelm Nuggets with defensive depth: 'We're a nightmare for teams'**\
 `Detroit's assembly line of defenders allows it to overcome a bad shooting night like Tuesday's 6 of 31 performance behind the arc.`\
 https://nytimes.com/athletic/7003566/2026/01/28/pistons-defense-ausar-thompson-nuggets/
