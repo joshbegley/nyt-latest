@@ -1,3 +1,11 @@
+**Five teams to watch at NBA trade deadline: Could Bucks upgrade with Giannis out?**\
+`Analyzing the most interesting upgrade situations leading into the trade deadline.`\
+https://nytimes.com/athletic/7002708/2026/01/28/buck-giannis-raptors-celtics-nba-trade-deadline/
+
+**How Julian Champagnie went from following his twin brother to finding his own career**\
+`Once content to follow his twin brother's plans, Julian Champagnie has now become one of Victor Wembanyama's most important teammates. `\
+https://nytimes.com/athletic/7003280/2026/01/28/julian-champagnie-spurs-stats-nba-twin-brother/
+
 **Miller Suggests Federal Agents May Have Diverted From ‘Protocol’ Before Pretti Shooting**\
 `The comments by Mr. Miller, the influential White House deputy chief of staff, appeared to be a shift after days of blaming Alex Pretti, who was fatally shot by federal agents.`\
 https://nytimes.com/2026/01/28/us/stephen-miller-alex-pretti-shooting.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/28/business/starbucks-sales-earnings-turnaround.html
 **Trump Administration Live Updates: President Renews Threats to Iran**\
 ``\
 https://nytimes.com/live/2026/01/28/us/trump-news
-
-**College basketball mailbag: Could this year's freshman class beat the seniors in an all-star game?**\
-`Could the NCAA take away Alabama's win with Charles Bediako? And which programs are happiest with their second-year coaches?`\
-https://nytimes.com/athletic/7003615/2026/01/28/college-basketball-mailbag-florida-kansas/
-
-**What to Know About Ilhan Omar, the Lawmaker Attacked in Minnesota**\
-`Ms. Omar, a Democratic member of Congress, has come under fire for years, most notably from President Trump.`\
-https://nytimes.com/2026/01/28/us/ilhan-omar-who-is-minnesota-sprayed-attack.html
 
