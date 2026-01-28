@@ -1,3 +1,15 @@
+**What Canada believes it has after Marcelo Flores' Mexico U-turn, one-time switch**\
+`A years-long saga is ending, with Marcelo Flores filing for a FIFA one-time switch. Now the race is on for him to make the World Cup squad`\
+https://nytimes.com/athletic/7002741/2026/01/28/marcelo-flores-fifa-switch-canada-mexico-world-cup/
+
+**How to watch Lakers vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7004360/2026/01/28/lakers-vs-cavaliers-stream-how-to-watch-jan-28/
+
+**Sterling leaves Chelsea by mutual agreement**\
+`The 31-year-old last played for Chelsea in May 2024.`\
+https://nytimes.com/athletic/6423750/2026/01/28/raheem-sterling-chelsea-leaves/
+
 **3 Beloved Dishes — In Soup Form**\
 `Hummus, bean salad and pasta pesto are the inspiration for these Melissa Clark recipes, each ready to warm you right up.`\
 https://nytimes.com/2026/01/28/dining/soup-recipes-hummus-beans-pesto.html
