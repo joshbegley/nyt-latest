@@ -1,3 +1,7 @@
+**Iraq’s Nominee for Prime Minister Rejects Trump Threats**\
+`Iraq’s former leader Nuri Kamal al-Maliki is nominated to be the next prime minister but President Trump said the United States would cut all support to the country if that went ahead.`\
+https://nytimes.com/2026/01/28/world/middleeast/trump-iraq-prime-minister-al-maliki.html
+
 **What Canada believes it has after Marcelo Flores' Mexico U-turn, one-time switch**\
 `A years-long saga is ending, with Marcelo Flores filing for a FIFA one-time switch. Now the race is on for him to make the World Cup squad`\
 https://nytimes.com/athletic/7002741/2026/01/28/marcelo-flores-fifa-switch-canada-mexico-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7004327/2026/01/28/washington-vs-maryland-stream-ho
 **How to watch UCLA vs. Illinois women's basketball: Time, TV, streaming**\
 `Find out how to watch the UCLA Bruins play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7004325/2026/01/28/ucla-vs-illinois-stream-how-to-watch-jan-28/
-
-**Did Trump Really Change His Mind on Minnesota?**\
-`Our White House reporter Tyler Pager describes how while President Trump appeared to soften his tone on Minnesota after seeing outrage over the killing of Alex Pretti, the crackdown continues on the ground.`\
-https://nytimes.com/video/us/100000010671666/did-trump-really-change-his-mind-on-minnesota.html
 
