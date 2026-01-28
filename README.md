@@ -1,3 +1,15 @@
+**Corinthians stun Gotham 1-0, will meet Arsenal in FIFA Women's Champions Cup final**\
+`Arsenal beat Morocco's ASFAR 6-0 in the second FIFA Women's Champions Cup semifinal. `\
+https://nytimes.com/athletic/7004740/2026/01/28/corinthians-stuns-gotham-meets-arsenal-fifa-womens-champions-cup-final/
+
+**Lauryn Hill Will Lead Grammy Tribute to Roberta Flack and D’Angelo**\
+`The artist, who dominated the awards in 1999, will return to the Grammy stage to honor an inspiration and a collaborator.`\
+https://nytimes.com/2026/01/28/arts/music/grammys-tribute-lauryn-hill-roberta-flack-dangelo.html
+
+**Prosecutors Seek July Trial for Mangione in State Murder Case**\
+`Manhattan prosecutors want the trial against Luigi Mangione to start before a parallel federal case. Mr. Mangione was arrested in 2024 in the shooting death of a health insurance chief executive.`\
+https://nytimes.com/2026/01/28/nyregion/luigi-mangione-trial-date.html
+
 **U.S. allies in the Middle East have been pressing for weeks to prevent a conflict with Iran.**\
 `Diplomats in the region have spent weeks trying to prevent a confrontation that they say risks a wider conflict.`\
 https://nytimes.com/live/2026/01/28/us/trump-news/iran-us-allies-trump
@@ -21,12 +33,4 @@ https://nytimes.com/athletic/7004696/2026/01/28/hall-of-fame-bill-belichick-snub
 **Landslide in Sicily Leaves Homes Teetering on Edge**\
 `A town in Sicily was left teetering on the edge after a landslide, triggered by a violent storm which battered southern Italy last week. More than 1,500 people have been evacuated.`\
 https://nytimes.com/video/world/europe/100000010673291/sicily-landslide-aftermath-homes.html
-
-**Landslide Leaves Town in Sicily Perched on a Cliff’s Edge**\
-`“We are in a movie, in a horror film,” said a resident of Niscemi, where a widening chasm is threatening the town’s historic center.`\
-https://nytimes.com/2026/01/28/world/europe/sicily-town-landslide.html
-
-**Texas Sues Delaware Nurse Practitioner for Mailing Abortion Pills to the State**\
-`The case is the latest action taken by a state with an abortion ban against providers in states that support abortion rights.`\
-https://nytimes.com/2026/01/28/health/texas-lawsuit-delaware-abortion-pills.html
 
