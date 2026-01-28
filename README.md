@@ -1,3 +1,7 @@
+**At the Center of the ICE Uproar, a Familiar Figure: Corey Lewandowski**\
+`Now a top aide to Kristi Noem, the homeland security secretary, Mr. Lewandowski has a long history of controversy in President Trump’s orbit, but he has always found a way back from exile.`\
+https://nytimes.com/2026/01/27/us/politics/corey-lewandowski-noem-trump.html
+
 **How the most crucial shot in tennis defined Iga Świątek and Elena Rybakina's Australian Open match**\
 `The huge delta between the two players' serve effectiveness swung an otherwise tight match.`\
 https://nytimes.com/athletic/7003185/2026/01/27/tennis-australian-open-iga-swiatek-elena-rybakina-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7003166/2026/01/27/michigan-hands-nebraska-first-lo
 **Dozens Arrested After Anti-ICE Protest at a Manhattan Hilton**\
 `The demonstration at the TriBeCa hotel followed a similar targeting of a Hilton property in Minneapolis on Sunday.`\
 https://nytimes.com/2026/01/27/nyregion/ice-protest-hilton-manhattan.html
-
-**Democrats Restore Minnesota House to Even Split Amid Immigration Turmoil**\
-`In special elections on Tuesday, Democrats won two left-leaning districts, preventing Republicans from holding a majority in the State House of Representatives.`\
-https://nytimes.com/2026/01/27/us/minnesota-house-special-elections.html
 
