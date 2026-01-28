@@ -1,3 +1,7 @@
+**Sorry, moms: Blackhawks left with mixed feelings after Wild erase three-goal deficit**\
+`The Blackhawks played one of their best games of the season but couldn't quite hold the lead against a Stanley Cup contender.`\
+https://nytimes.com/athletic/7003467/2026/01/28/blackhawks-parents-trip-top-line-wild/
+
 **Meet Brody Couch: The Australian-American who won cricket's Big Bash League**\
 `The fast bowler was born in Australia but his mother is from upstate New York, so he gets to play in Major League Cricket as a local`\
 https://nytimes.com/athletic/6991107/2026/01/28/brody-couch-perth-scorchers-usa-mlc-bbl-cricket/
