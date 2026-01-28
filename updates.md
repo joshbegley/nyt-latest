@@ -1,3 +1,15 @@
+**Michael McIntyre: 'Your football allegiance is lifelong - it's utterly mad when you think about it'**\
+`The comedian is a die-hard Tottenham fan who, after an epiphany in the shower, is launching an app based on player ratings`\
+https://nytimes.com/athletic/6993607/2026/01/28/michael-mcintyre-fanalysis-interview/
+
+**Desi Lydic Says Gregory Bovino Got ‘Iced Out’**\
+`“We’re not throwing you under the bus — we’re throwing you onto a bus, and sending it far, far away,” the “Daily Show” host said of the recalled Border Patrol official.`\
+https://nytimes.com/2026/01/28/arts/television/greg-bovino-ice-late-night.html
+
+**What is Fanalysis? Explaining the player ratings app co-founded by McIntyre and Neville**\
+`Supporters can only comment on players in their team, and the high-profile people behind the app hope its data becomes a key resource`\
+https://nytimes.com/athletic/6999963/2026/01/28/fanalysis-player-ratings-explained/
+
 **Word of the Day: convivial**\
 `This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/28/learning/word-of-the-day-convivial.html
