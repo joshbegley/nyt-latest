@@ -1,3 +1,7 @@
+**Meet Brody Couch: The Australian-American who won cricket's Big Bash League**\
+`The fast bowler was born in Australia but his mother is from upstate New York, so he gets to play in Major League Cricket as a local`\
+https://nytimes.com/athletic/6991107/2026/01/28/brody-couch-perth-scorchers-usa-mlc-bbl-cricket/
+
 **Champions League permutations: Who needs what to progress on the final night of the league phase?**\
 `Who have already qualified? Which clubs can still automatically progress to the knockouts on the final day? How do the play-offs work again?`\
 https://nytimes.com/athletic/6993670/2026/01/28/champions-league-final-round-teams-qualified-knockout/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6998724/2026/01/28/row-z-chelsea-defenders-slot-dyc
 **Is focusing on specific competitions a way for football clubs to find success?**\
 `Targeting victory in a specific competition may well be becoming a sensible strategy, even if it is at the expense of league form`\
 https://nytimes.com/athletic/7001302/2026/01/28/premier-league-teams-focus-other-competitions/
-
-**Brighton have one win in ten, but there is still faith in the Hurzeler project**\
-`The club's stated aims are to compete for European qualification and win a first major trophy - are they on course to get there?`\
-https://nytimes.com/athletic/6998701/2026/01/28/hurzeler-brighton-project/
 
