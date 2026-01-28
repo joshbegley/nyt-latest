@@ -1,3 +1,7 @@
+**The Real Reason MAHA Hates Vaccines**\
+`Vaccines are a social safety net, too.`\
+https://nytimes.com/2026/01/28/opinion/maha-vaccines-kennedy-denmark.html
+
 **Three Boys Die After Falling Through Icy Pond in Texas**\
 `Two 16-year-old girls in northern Texas were also killed in the aftermath of the winter storm when their sled, pulled by a Jeep, crashed into a tree, the police said.`\
 https://nytimes.com/2026/01/28/us/texas-winter-storm-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7004892/2026/01/28/magic-vs-heat-stream-how-to-watc
 **How to watch Timberwolves vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Minnesota Timberwolves play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7004888/2026/01/28/timberwolves-vs-mavericks-stream-how-to-watch-jan-28/
-
-**How to watch Spurs vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7004886/2026/01/28/spurs-vs-rockets-stream-how-to-watch-jan-28/
 
