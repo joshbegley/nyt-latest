@@ -1,3 +1,7 @@
+**Bruins victory via game day bus from New York, airport food and a shoveling assist**\
+`The Bruins fought through an unusual amount of fatigue to beat the Predators in overtime after playing in New York the night before.`\
+https://nytimes.com/athletic/7003359/2026/01/28/bruins-bus-trip-fatigue-pastrnak-predators/
+
 **Panthers mock draft reaction: Will they select a Clemson player for the first time?**\
 `The Panthers need help on defense — edge rusher and linebacker top the list. But could they go with D-tackle Peter Woods?`\
 https://nytimes.com/athletic/7002472/2026/01/28/panthers-mock-draft-reaction-peter-woods-clemson/

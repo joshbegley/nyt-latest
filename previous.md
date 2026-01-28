@@ -1,3 +1,7 @@
+**Bruins victory via game day bus from New York, airport food and a shoveling assist**\
+`The Bruins fought through an unusual amount of fatigue to beat the Predators in overtime after playing in New York the night before.`\
+https://nytimes.com/athletic/7003359/2026/01/28/bruins-bus-trip-fatigue-pastrnak-predators/
+
 **Panthers mock draft reaction: Will they select a Clemson player for the first time?**\
 `The Panthers need help on defense — edge rusher and linebacker top the list. But could they go with D-tackle Peter Woods?`\
 https://nytimes.com/athletic/7002472/2026/01/28/panthers-mock-draft-reaction-peter-woods-clemson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7002513/2026/01/28/bills-joe-brady-head-coach-quest
 **Canadiens take another step in evolution of becoming a more competitive team**\
 `One game after blowing a third-period lead, the Canadiens displayed just enough maturity to avoid the same fate.`\
 https://nytimes.com/athletic/7003583/2026/01/28/canadiens-evolution-competitive-team-win/
-
-**Bill Belichick's Hall of Fame snub has a whiff of piety, score-settling**\
-`Were voters acting in the best interests of "The Shield" or were they using this election as a chance to throw a sucker punch at the Hoodie?`\
-https://nytimes.com/athletic/7003177/2026/01/28/bill-belichick-hall-of-fame-snub/
 
