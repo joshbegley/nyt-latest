@@ -1,3 +1,19 @@
+**Can I Tell a Member of My Church That I Recognize Him from a Dating App?**\
+`It would mean a lot to have someone I could relate to.`\
+https://nytimes.com/2026/01/28/magazine/recognize-dating-app-ethics.html
+
+**Silver Prices Are Surging Even Faster Than Gold**\
+`Silver has risen roughly 60 percent this month alone. What is going on?`\
+https://nytimes.com/2026/01/28/business/silver-gold-prices.html
+
+**Patrick Reed leaving LIV Golf, will return to PGA Tour in 2027**\
+`Reed will play on the DP World Tour through August as he serves a PGA Tour suspension.`\
+https://nytimes.com/athletic/7004122/2026/01/28/golf-liv-pga-patrick-reed-contract-suspension/
+
+**Jets hire Brian Duker as defensive coordinator, Aaron Glenn to take over play-calling: Sources**\
+`Duker, who worked with Glenn in Detroit, was the Miami Dolphins' pass game coordinator/secondary coach the past two seasons.`\
+https://nytimes.com/athletic/7004342/2026/01/28/new-york-jets-defensive-coordinator-brian-duker-aaron-glenn/
+
 **Iraq’s Nominee for Prime Minister Rejects Trump Threats**\
 `Iraq’s former leader Nuri Kamal al-Maliki is nominated to be the next prime minister but President Trump said the United States would cut all support to the country if that went ahead.`\
 https://nytimes.com/2026/01/28/world/middleeast/trump-iraq-prime-minister-al-maliki.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/28/dining/soup-recipes-hummus-beans-pesto.html
 **How to watch Rangers vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the New York Rangers play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7004347/2026/01/28/rangers-vs-islanders-stream-how-to-watch-jan-28/
-
-**Red Wings sign Ben Chiarot to three-year-extension**\
-`A physical, 6-foot-3 left-handed defenseman, Chiarot has become a veteran leader for the Red Wings since signing as a free agent in 2022.`\
-https://nytimes.com/athletic/7004092/2026/01/28/red-wings-ben-chiarot-extension/
-
-**The Laws Designed to Protect My Son Could Very Well Kill Him**\
-`We thought America would keep him safe.`\
-https://nytimes.com/2026/01/28/opinion/family-mental-health-homeless-schizophrenia.html
-
-**How to watch Washington vs. Maryland women's basketball: Time, TV, streaming**\
-`Find out how to watch the Washington Huskies play the Maryland Terrapins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7004327/2026/01/28/washington-vs-maryland-stream-how-to-watch-jan-28/
-
-**How to watch UCLA vs. Illinois women's basketball: Time, TV, streaming**\
-`Find out how to watch the UCLA Bruins play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7004325/2026/01/28/ucla-vs-illinois-stream-how-to-watch-jan-28/
 
