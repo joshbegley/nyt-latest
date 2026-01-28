@@ -1,3 +1,7 @@
+**Geoff Mason, Sports Producer Thrust Into Covering Terrorism, Dies at 85**\
+`He played a critical role in ABC Sports’s reporting on the attack by a Palestinian group at the 1972 Summer Games in Munich that left 11 Israeli team members dead.`\
+https://nytimes.com/2026/01/28/sports/geoffrey-mason-dead.html
+
 **Brin Gives $20 Million to California Political Group After Leaving State**\
 `Sergey Brin, the co-founder of Google, is donating toward campaigns to solve California’s housing crisis, spurring other billionaires to pitch in. Their efforts may also help ward off a wealth tax.`\
 https://nytimes.com/2026/01/28/us/politics/california-billionaires-sergey-brin-campaign.html
@@ -14,8 +18,8 @@ https://nytimes.com/2026/01/28/world/canada/norad-us-canada-security-agreement.h
 `Also, the F.B.I. searched a Georgia election center. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2026/01/28/briefing/agents-leave-trump-iran-fbi-georgia.html
 
-**These Hot Tubs Melt Snow Off of NYC Streets in Seconds**\
-`Large hot tubs have been placed around New York City to melt snow after the city received about 12 inches over the weekend.`\
+**These Machines Melt Snow Off of NYC Streets in Seconds**\
+`Large tubs have been placed around New York City to melt snow after the city received about 12 inches over the weekend.`\
 https://nytimes.com/video/nyregion/newyorktoday/100000010674988/nyc-snow-removal-storm.html
 
 **Champions League knockout odds: Which teams are the favourites to make the final?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/nyregion/nyc-snow-mountains-crosswalks-bus-stops.
 **USMNT in Champions League: Tillman's double, Weah heartbreak in league phase finales**\
 `Malik Tillman's return to scoring form helped Leverkusen through, but Tim Weah's Marseille was ousted in dramatic and stunning fashion`\
 https://nytimes.com/athletic/7005271/2026/01/28/champions-league-usmnt-malik-tillman-goals-tim-weah-marseille/
-
-**Man Sentenced to 15 Years for Role in Plot to Kill Iranian Dissident**\
-`Carlisle Rivera became the third person to be sentenced for playing a role in trying to kill Masih Alinejad, an activist and a critic of the Iranian government.`\
-https://nytimes.com/2026/01/28/nyregion/iranian-dissident-murder-plot-sentencing.html
 

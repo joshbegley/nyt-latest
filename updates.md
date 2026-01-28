@@ -1,3 +1,11 @@
+**Geoff Mason, Sports Producer Thrust Into Covering Terrorism, Dies at 85**\
+`He played a critical role in ABC Sports’s reporting on the attack by a Palestinian group at the 1972 Summer Games in Munich that left 11 Israeli team members dead.`\
+https://nytimes.com/2026/01/28/sports/geoffrey-mason-dead.html
+
+**These Machines Melt Snow Off of NYC Streets in Seconds**\
+`Large tubs have been placed around New York City to melt snow after the city received about 12 inches over the weekend.`\
+https://nytimes.com/video/nyregion/newyorktoday/100000010674988/nyc-snow-removal-storm.html
+
 **Brin Gives $20 Million to California Political Group After Leaving State**\
 `Sergey Brin, the co-founder of Google, is donating toward campaigns to solve California’s housing crisis, spurring other billionaires to pitch in. Their efforts may also help ward off a wealth tax.`\
 https://nytimes.com/2026/01/28/us/politics/california-billionaires-sergey-brin-campaign.html
