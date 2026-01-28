@@ -1,3 +1,11 @@
+**U.S. Expects to Finish Review of Epstein Files Soon, Bondi Says**\
+`By law, the government was required to release its files on Jeffrey Epstein in December. Now the attorney general said they will be out “in the near term.”`\
+https://nytimes.com/2026/01/27/nyregion/epstein-files-release-bondi.html
+
+**24 Tips for Better Health and Wellness**\
+`We asked doctors, therapists and other experts to sum up their best advice in a few memorable words.`\
+https://nytimes.com/interactive/2026/01/27/well/health-wellness-tips-experts.html
+
 **Jets reached out to Jon Gruden about joining Aaron Glenn's coaching staff: Sources**\
 `Gruden, according to sources, was not interested in the job.`\
 https://nytimes.com/athletic/7003090/2026/01/27/new-york-jets-jon-gruden/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7002947/2026/01/27/bill-belichick-hall-of-fame-snub
 **D.H.S. Review Does Not Say Pretti Brandished Gun, As Noem Claimed**\
 `An initial report from an internal agency watchdog says the Minneapolis man was shot by law enforcement after resisting arrest, but makes no mention of the allegations leveled by a Trump administration official.`\
 https://nytimes.com/2026/01/27/us/politics/pretti-shooting-minneapolis-dhs-report.html
-
-**Devils trade Ondrej Palat, 2 picks to Islanders for Maxim Tsyplakov**\
-`Palat was held out of a home game against the Winnipeg Jets for roster-management reasons Tuesday.`\
-https://nytimes.com/athletic/7002985/2026/01/27/ondrej-palat-trade-devils-islanders-maxim-tsyplakov/
-
-**Trump Threatens to Pull U.S. Help From Iraq if Former Leader Returns**\
-`Nuri Kamal al-Maliki, a former prime minister, has been nominated to the post by the main Shiite Muslim bloc in the Iraqi Parliament.`\
-https://nytimes.com/2026/01/27/us/politics/trump-iraq-al-maliki.html
 

@@ -1,3 +1,11 @@
+**U.S. Expects to Finish Review of Epstein Files Soon, Bondi Says**\
+`By law, the government was required to release its files on Jeffrey Epstein in December. Now the attorney general said they will be out “in the near term.”`\
+https://nytimes.com/2026/01/27/nyregion/epstein-files-release-bondi.html
+
+**24 Tips for Better Health and Wellness**\
+`We asked doctors, therapists and other experts to sum up their best advice in a few memorable words.`\
+https://nytimes.com/interactive/2026/01/27/well/health-wellness-tips-experts.html
+
 **Jets reached out to Jon Gruden about joining Aaron Glenn's coaching staff: Sources**\
 `Gruden, according to sources, was not interested in the job.`\
 https://nytimes.com/athletic/7003090/2026/01/27/new-york-jets-jon-gruden/
