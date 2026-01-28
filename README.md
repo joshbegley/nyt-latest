@@ -1,3 +1,7 @@
+**Devils trade Ondrej Palat, 2 picks to Islanders for Maxim Tsyplakov**\
+`Palat was held out of a home game against the Winnipeg Jets for roster-management reasons on Tuesday.`\
+https://nytimes.com/athletic/7002985/2026/01/27/ondrej-palat-trade-devils-islanders-maxim-tsyplakov/
+
 **Trump Threatens to Pull U.S. Help From Iraq if Former Leader Returns**\
 `Nuri Kamal al-Maliki, a former prime minister, has been nominated to the post by the main Shiite Muslim bloc in the Iraqi Parliament.`\
 https://nytimes.com/2026/01/27/us/politics/trump-iraq-al-maliki.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7002906/2026/01/27/portland-timbers-cole-bassett-co
 **Republicans Shift Tone After Killings, Criticizing Trump’s Immigration Push**\
 `With the president signaling a pivot in his crackdown, G.O.P. lawmakers have felt freer to express concern. But it’s not clear what they are willing to do about it.`\
 https://nytimes.com/2026/01/27/us/republicans-shift-tone-immigration.html
-
-**Devon Levi, Rochester resident? Sabres prospect goes viral for TV news appearance**\
-`Levi was unknowingly interviewed by a local Rochester TV station over the weekend to give his thoughts on the winter storm.`\
-https://nytimes.com/athletic/7002877/2026/01/27/devon-levi-sabres-rochester-tv-news/
 

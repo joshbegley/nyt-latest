@@ -1,3 +1,11 @@
+**Minnesota Leaders Meet With White House Border Czar**\
+`Gov. Tim Walz and the mayor of Minneapolis, Jacob Frey, met separately with the Trump aide Tom Homan on Tuesday. All three described the discussions as a productive starting point.`\
+https://nytimes.com/2026/01/27/us/minneapolis-walz-frey-homan-ice.html
+
+**Timbers finalizing deal to acquire Cole Bassett from Rapids: Sources**\
+`Portland will pay a $2.65 million cash trade to acquire Bassett, and $1.05 million in add-ons will bring the total fee to $3.7 million.`\
+https://nytimes.com/athletic/7002906/2026/01/27/portland-timbers-cole-bassett-colorado-rapids-deal/
+
 **Trump Threatens to Pull U.S. Help From Iraq if Former Leader Returns**\
 `Nuri Kamal al-Maliki, a former prime minister, has been nominated to the post by the main Shiite Muslim bloc in the Iraqi Parliament.`\
 https://nytimes.com/2026/01/27/us/politics/trump-iraq-al-maliki.html
