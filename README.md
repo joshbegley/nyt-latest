@@ -1,4 +1,12 @@
-**'Door is open' for MLS, Liga MX Mexico clubs to play in Copa Libertadores – CONMEBOL chief**\
+**Trump threatens Iran again and calls for negotiations on a nuclear deal.**\
+`By Aaron Boxerman`\
+https://nytimes.com/2026/01/28/us/politics/trump-threatens-iran-again-and-calls-for-negotiations-on-a-nuclear-deal.html
+
+**Clay, an A.I. Sales Start-Up, Lets Employees Cash Out. Again.**\
+`The company is part of a newer generation of software upstarts holding multiple tender offers where workers can sell stock before going public.`\
+https://nytimes.com/2026/01/28/business/dealbook/clay-start-up-tender-offers.html
+
+**'Door is open' for MLS, Liga MX clubs to play in Copa Libertadores – CONMEBOL chief**\
 `His comments come after Inter Miami's managing owner Jorge Mas said it was his "dream" for the club to participate in the competition.`\
 https://nytimes.com/athletic/7003669/2026/01/28/copa-libertadores-teams-us-mexico/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7003566/2026/01/28/pistons-defense-ausar-thompson-n
 **Ecuador Objects After ICE Agent Tries to Enter Minneapolis Consulate**\
 `Video showed diplomatic staff blocking the agent from entering on Tuesday morning.`\
 https://nytimes.com/2026/01/28/us/ice-ecuador-consulate-minneapolis.html
-
-**Australian Open recap: Ben Shelton reaches out and touches tennis faith despite Sinner loss**\
-`The American was philosophical about the way he is evolving as a player, especially at Grand Slams.`\
-https://nytimes.com/athletic/7003060/2026/01/28/tennis-australian-open-recap-quarterfinals-results-analysis/
-
-**Mandel's Mailbag: Does college sports want rules? Where to rank Indiana?**\
-`Plus, why the SEC and Big Ten control the CFP, what coaching hires were actually downgrades and Deion Sanders' future at Colorado.`\
-https://nytimes.com/athletic/7002978/2026/01/28/clemson-ole-miss-dabo-swinney-indiana-rank/
 
