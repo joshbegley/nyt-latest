@@ -1,4 +1,20 @@
-**Browns DC Jim Schwartz not planning on returning despite being under contract: Sources**\
+**Burnley complete loan signing of Ward-Prowse from West Ham**\
+`The 31-year-old is Burnley's first signing of the winter transfer window.`\
+https://nytimes.com/athletic/6995761/2026/01/28/ward-prowse-burnley-west-ham-transfer/
+
+**Sterling, Chelsea and the end of a union that always felt doomed**\
+`Unrealistic expectations and an inevitable decline with age made the winger's spell at Stamford Bridge one to forget`\
+https://nytimes.com/athletic/7004555/2026/01/28/raheem-sterling-chelsea-contract-end/
+
+**These Texas Turtles Are Stunned by Winter Weather. Literally. **\
+`Text by Tamir Kalifa`\
+https://nytimes.com/card/2026/01/28/us/texas-turtles-stunned-by-cold
+
+**Tom Brady baffled by Bill Belichick's first-ballot Hall of Fame snub**\
+`“If he’s not a first-ballot Hall of Famer, there’s really no coach that should ever be a first-ballot Hall of Famer," Brady said Wednesday.`\
+https://nytimes.com/athletic/7004486/2026/01/28/tom-brady-bill-belichick-hall-of-fame-snub/
+
+**Browns DC Jim Schwartz not planning to return despite being under contract: Sources**\
 `Schwartz received two head-coaching interviews with Cleveland, and was a finalist for the vacancy that ultimately went to Todd Monken.`\
 https://nytimes.com/athletic/7004528/2026/01/28/jim-schwartz-browns-defensive-coordinator-todd-monken/
 
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/28/us/fbi-search-election-center-georgia.html
 **The five biggest sports-business storylines heading into Super Bowl LX: MoneyCall**\
 `The latest edition of The Athletic's free weekly sports-business newsletter.`\
 https://nytimes.com/athletic/7004503/2026/01/28/super-bowl-lx-nfl-bad-bunny-moneycall/
-
-**Yankees trade for Rockies reliever Angel Chivilli, part with prospect TJ Rumfield**\
-`Chivilli posted a 7.06 ERA in 43 appearances last season for the Rockies, but the 23-year-old's underlying metrics show some promise.`\
-https://nytimes.com/athletic/7004419/2026/01/28/yankees-rockies-trade-angel-chivilli-tj-rumfield/
-
-**Garnacho's agents told to pay €200k to man who discovered Chelsea winger**\
-`The Court of Arbitration for Sport (CAS) has ordered Leader Sports Management to pay more than €200,000 to Ruben Pascual.`\
-https://nytimes.com/athletic/7004096/2026/01/28/alejandro-garnacho-agent-chelsea-cas/
-
-**Jesper Wallstedt shows the resilience, perspective he's gained in Wild comeback: 'He saved us'**\
-`After giving up a soft goal, Wallstedt made 18 straight saves to enable Minnesota's 4-3 come-from-behind, shootout victory.`\
-https://nytimes.com/athletic/7003593/2026/01/28/jesper-wallstedts-resilience-perspective-wild-comeback/
-
-**Premier League, MLS lobbying for temporary concussion substitutes**\
-`More than 25 leagues and unions signed a letter in support of TCSs before football's lawmakers meet next month. `\
-https://nytimes.com/athletic/7004457/2026/01/28/premier-league-mls-temporary-concussion-substitutes/
 

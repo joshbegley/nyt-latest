@@ -1,3 +1,7 @@
+**BBC's Match of the Day loses 10 per cent of audience, increases reach**\
+`The programme has been around since 1964 and airs Premier League highlights on Saturday and Sunday.`\
+https://nytimes.com/athletic/7004596/2026/01/28/match-of-the-day-bbc-premier-league-audience-reach-football/
+
 **Burnley complete loan signing of Ward-Prowse from West Ham**\
 `The 31-year-old is Burnley's first signing of the winter transfer window.`\
 https://nytimes.com/athletic/6995761/2026/01/28/ward-prowse-burnley-west-ham-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/us/trump-minnesota-protesters-domestic-terrorists
 **F.B.I. Agents Search Election Center in Fulton County**\
 `A spokesperson for the F.B.I. confirmed the search, but declined to provide further details.`\
 https://nytimes.com/2026/01/28/us/fbi-search-election-center-georgia.html
-
-**The five biggest sports-business storylines heading into Super Bowl LX: MoneyCall**\
-`The latest edition of The Athletic's free weekly sports-business newsletter.`\
-https://nytimes.com/athletic/7004503/2026/01/28/super-bowl-lx-nfl-bad-bunny-moneycall/
 
