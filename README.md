@@ -1,3 +1,7 @@
+**Benfica 4 Real Madrid 2 — Goalkeeper Anatoliy Trubin scores as Mourinho's side dump Madrid into the play-offs**\
+`Benfica and Real Madrid played out a thriller in Lisbon which ended in the most ridiculous of circumstances`\
+https://nytimes.com/athletic/6999819/2026/01/28/benfica-4-real-madrid-2-trubin-mourinho/
+
 **Tiny Love Stories: ‘The Cooler, Funnier Version of Myself’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2026/01/28/style/tiny-modern-love-stories-the-cooler-funnier-version-of-myself.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/7004805/2026/01/28/arsenal-chelsea-tottenham-champi
 `Despite perceived tensions in their relationship, Patriots owner Robert Kraft said Belichick unequivocally deserves Hall of Fame induction.`\
 https://nytimes.com/athletic/7005003/2026/01/28/robert-kraft-bill-belichick-hall-of-fame-patriots/
 
-**The Briefing: Napoli 2 Chelsea 3 - A statement win for Liam Rosenior as Joao Pedro ensures top eight finish**\
+**The Briefing: Napoli 2 Chelsea 3 - A statement win for Liam Rosenior as Joao Pedro ensures top-eight finish**\
 `The Athletic's writers break down an intense night at the Stadio Diego Armando Maradona `\
 https://nytimes.com/athletic/7001601/2026/01/28/napoli-chelsea-champions-league-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010674839/marco-rubio-venezuela-hear
 **Tens of Thousands Still Without Power After Storm Cripples the South**\
 `Across Tennessee, Mississippi and Louisiana, hundreds of power lines and poles remained damaged after freezing rain and low temperatures coated much of the region in ice over the weekend.`\
 https://nytimes.com/2026/01/28/us/politics/tennessee-mississippi-louisiana-power-outages.html
-
-**The Briefing: Arsenal 3 Kairat 2 - Arteta's side top Champions League league phase**\
-`Arsenal made it eight wins out of eight in the Champions League group phase`\
-https://nytimes.com/athletic/6999815/2026/01/28/arsenal-kairat-result-havertz-champions-league/
 
