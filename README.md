@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Reis Thebault, Nicholas Bogel-Burroughs, Chris Cameron and Dan Watson`\
+https://nytimes.com/live/2026/01/28/us/minneapolis-shooting-ice-minnesota/heres-the-latest
+
+**Minnesota Live Updates: Authorities Investigate Attack on Ilhan Omar as Tensions Flare Over Immigration Crackdown**\
+`Representative Ilhan Omar, a Democrat and frequent target of President Trump, was uninjured after a man sprayed her with a substance at a public event where she criticized ICE operations in Minneapolis.`\
+https://nytimes.com/live/2026/01/28/us/minneapolis-shooting-ice-minnesota
+
+**Which teams will have cap space this summer, and how much?**\
+`Things will change between now and June (or next week), but here's a team-by-team overview of the 2026 financial landscape.`\
+https://nytimes.com/athletic/6894997/2026/01/28/nba-offseason-salary-cap-space-2026/
+
 **Amazon to Cut 16,000 Jobs in Latest Round of Layoffs**\
 `The e-commerce giant has been cutting costs in part to redirect money into building data centers to compete in the race to dominate artificial intelligence.`\
 https://nytimes.com/2026/01/28/technology/amazon-corporate-layoffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6999586/2026/01/28/nfl-player-poll-tush-push-kickof
 **'My heart is full': Mike McCarthy comes home in emotional Steelers introduction**\
 `Plus, more takeaways from his first public comments as Steelers head coach.`\
 https://nytimes.com/athletic/7003191/2026/01/28/mike-mccarthy-pittsburgh-introductory-press-conference/
-
-**Russian athletes are back for the Winter Olympics, again in a stateless existence**\
-`After a chaotic winter, a handful of Russian and Belarusian athletes were allowed pathways to qualify for Milan Cortina.`\
-https://nytimes.com/athletic/6991592/2026/01/28/winter-olympics-russians-individual-neutral-athletes/
-
-**The New York Times International Edition in Print for Thursday, Jan. 29, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/01/28/todays-new-york-times-international-edition
-
-**A City Where Every Step Outside Risks Death by Drone**\
-`Russian attacks on civilians in Kherson, in southern Ukraine, have forced important aspects of life to go underground, offering a vision of a postapocalyptic future.`\
-https://nytimes.com/2026/01/28/world/europe/kherson-ukraine-drones-russia.html
 
