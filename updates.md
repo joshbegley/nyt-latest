@@ -1,3 +1,7 @@
+**The Briefing: Barcelona secure Champions League last-16 spot with Copenhagen comeback**\
+`Barcelona book their place in the Champions League last 16 with a home victory over their Danish opponents`\
+https://nytimes.com/athletic/6999818/2026/01/28/barcelona-champions-league-copenhagen-result-analysis/
+
 **Patriots' Robert Kraft calls for Bill Belichick's Hall of Fame inclusion**\
 `Despite perceived tensions in their relationship, Patriots owner Robert Kraft said Belichick unequivocally deserves Hall of Fame induction.`\
 https://nytimes.com/athletic/7005003/2026/01/28/robert-kraft-bill-belichick-hall-of-fame-patriots/
