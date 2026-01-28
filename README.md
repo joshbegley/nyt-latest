@@ -1,3 +1,7 @@
+**Putin to Host Syrian Leader With Russian Military Bases on the Agenda**\
+`President Vladimir V. Putin and President Ahmed al-Sharaa are looking to build ties after the fall of the Moscow-backed Syrian dictator Bashar al-Assad.`\
+https://nytimes.com/2026/01/28/world/europe/russia-putin-syria-al-sharaa-meeting.html
+
 **Welcome to Spain**\
 `Today we look into a country that’s handling the issue of undocumented migrants in a starkly different way.`\
 https://nytimes.com/2026/01/28/briefing/welcome-to-spain.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6997599/2026/01/28/mlb-top-100-prospects-top-just-m
 **The Pulse: An embarrassment for the NFL**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7002074/2026/01/28/bill-belichick-hall-of-fame-the-pulse/
-
-**Seven PAOK fans die in car crash en route to Europa League game**\
-`The supporters died in a minibus crash in Romania while traveling to France for their Europa League game against Lyon on Thursday.`\
-https://nytimes.com/athletic/7003753/2026/01/28/paok-crash-europa-league-lyon-news/
 
