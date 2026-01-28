@@ -1,3 +1,7 @@
+**Koumas set to join Hull on loan from Liverpool**\
+`Fellow academy graduate Calum Scanlon is also a target for Cardiff City.`\
+https://nytimes.com/athletic/7003831/2026/01/28/liverpool-lewis-koumas-hull-loan/
+
 **First look at Ohio State's depth chart: What's new for 2026?**\
 `What to expect from Ohio State's football depth chart next season with the coaching staff being solidified and the transfer portal closed.`\
 https://nytimes.com/athletic/7002094/2026/01/28/ohio-state-football-depth-chart-2026/
