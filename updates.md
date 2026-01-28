@@ -1,3 +1,15 @@
+**At the Center of the ICE Uproar, a Familiar Figure: Corey Lewandowski**\
+`Now a top aide to Kristi Noem, the homeland security secretary, Mr. Lewandowski has a long history of controversy in President Trump’s orbit, but he has always found a way back from exile.`\
+https://nytimes.com/2026/01/27/us/politics/corey-lewandowski-noem-trump.html
+
+**How the most crucial shot in tennis defined Iga Świątek and Elena Rybakina's Australian Open match**\
+`The huge delta between the two players' serve effectiveness swung an otherwise tight match.`\
+https://nytimes.com/athletic/7003185/2026/01/27/tennis-australian-open-iga-swiatek-elena-rybakina-result-analysis/
+
+**Man Lunges at Ilhan Omar During Minneapolis Town Hall**\
+`During a town hall in Minneapolis, a man sitting directly in front of Rep. Ilhan Omar rushed to the lectern and sprayed her with a pungent liquid. He was immediately tackled and removed from the room.`\
+https://nytimes.com/video/us/politics/100000010672659/ilhan-omar-town-hall-minnesota.html
+
 **Former Adams Aide Took Bribe of Diamond Earrings, Prosecutors Say**\
 `Prosecutors added new details to their case against Ingrid Lewis-Martin, who is accused of using her position in New York’s City Hall to help associates in exchange for bribes.`\
 https://nytimes.com/2026/01/27/nyregion/ingrid-lewis-martin-bribes-diamond.html
