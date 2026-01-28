@@ -1,3 +1,7 @@
+**Attack on Ilhan Omar Follows Years of Trump’s Targeting Her**\
+`President Trump has spent years demonizing and dehumanizing the Somali-born Democrat from Minnesota, fueling escalating threats against her.`\
+https://nytimes.com/2026/01/28/us/politics/ilhan-omar-trump-attack.html
+
 **Hillary Clinton and Tucker Carlson Walk Into a Saudi Real Estate Forum**\
 `The Democrat and the hard-right commentator found at least one thing to agree upon as they spoke at a conference in Riyadh.`\
 https://nytimes.com/2026/01/28/world/middleeast/hillary-clinton-tucker-carlson-riyadh.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/opinion/american-dream-poverty.html
 **The Briefing: Barcelona secure Champions League last-16 spot with Copenhagen comeback**\
 `Barcelona booked their place in the Champions League last 16 with a home victory over their Danish opponents`\
 https://nytimes.com/athletic/6999818/2026/01/28/barcelona-champions-league-copenhagen-result-analysis/
-
-**Marco Rubio Asserts Control Over Venezuela’s Budget**\
-`During a hearing on Venezuela on Wednesday, Secretary of State Marco Rubio shared the Trump administration’s plan to control Venezuela’s spending. Lawmakers shared concerns with Mr. Rubio that Congress was not consulted on the military operation before it happened.`\
-https://nytimes.com/video/us/politics/100000010674839/marco-rubio-venezuela-hearing.html
 
