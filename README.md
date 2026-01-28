@@ -1,3 +1,7 @@
+**Who Decides When a Home Is Safe? A California Bill Says Science, Not Insurers.**\
+`Following a Times investigation, a state lawmaker is proposing the first health-based standards for assessing smoke contamination after wildfires.`\
+https://nytimes.com/2026/01/27/realestate/california-wildfires-damage-insurance.html
+
 **Minnesota Leaders Meet With White House Border Czar**\
 `Gov. Tim Walz and the mayor of Minneapolis, Jacob Frey, met separately with the Trump aide Tom Homan on Tuesday. All three described the discussions as a productive starting point.`\
 https://nytimes.com/2026/01/27/us/minneapolis-walz-frey-homans-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/27/arts/johnny-legend-dead.html
 **City Prosecutors Join Forces to Bring Charges Against Federal Agents**\
 `Nine progressive prosecutors say they will work together to charge federal agents accused of wrongdoing, but they will face significant legal obstacles.`\
 https://nytimes.com/2026/01/27/us/prosecutors-charges-against-federal-agents.html
-
-**Rick Rizzs, ever-faithful voice of Seattle baseball, will retire after one last pennant chase**\
-`'He is Mariners, through and through,' said Dave Sims. 'If he could snap his fingers, that franchise would have five or six rings.'`\
-https://nytimes.com/athletic/7002800/2026/01/27/rick-rizzs-seattle-mariners-retirement/
 
