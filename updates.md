@@ -1,3 +1,7 @@
+**Word of the Day: convivial**\
+`This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/28/learning/word-of-the-day-convivial.html
+
 **Iga Świątek adds to Coco Gauff criticism of Australian Open cameras: 'Are we animals in the zoo?'**\
 `The world No. 2 asked if tennis players were “animals in a zoo” following a quarterfinal loss to Elena Rybakina`\
 https://nytimes.com/athletic/7003516/2026/01/28/tennis-australian-open-cameras-player-privacy-gauff-swiatek/

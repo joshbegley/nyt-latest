@@ -1,3 +1,7 @@
+**Word of the Day: convivial**\
+`This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/28/learning/word-of-the-day-convivial.html
+
 **Lorenzo Musetti retires injured one set away from beating Novak Djokovic at Australian Open**\
 `Musetti led the 10-time champion 6-4, 6-3 before suffering an injury to his right leg early in the third set.`\
 https://nytimes.com/athletic/7003579/2026/01/28/lorenzo-musetti-novak-djokovic-australian-open-retired/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6993670/2026/01/28/champions-league-final-round-tea
 **Why are Tottenham not seeing the same Randal Kolo Muani that Frankfurt did?**\
 `In Germany, Randal Kolo Muani became a French international and a £75m player. In England he has failed to score a league goal`\
 https://nytimes.com/athletic/7001439/2026/01/28/randal-kolo-muani-tottenham-frankfurt/
-
-**Are Crystal Palace in a relegation scrap?**\
-`Oliver Glasner's side are winless in 11 matches in all competitions, slipping from fourth to 15th in the table ahead of a key game at Forest`\
-https://nytimes.com/athletic/6997259/2026/01/28/crystal-palace-relegation-glasner-mateta/
 
