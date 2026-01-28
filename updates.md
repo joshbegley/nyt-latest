@@ -1,3 +1,11 @@
+**Brin Gives $20 Million to California Political Group After Leaving State**\
+`Sergey Brin, the co-founder of Google, is donating toward campaigns to solve California’s housing crisis, spurring other billionaires to pitch in. Their efforts may also help ward off a wealth tax.`\
+https://nytimes.com/2026/01/28/us/politics/california-billionaires-sergey-brin-campaign.html
+
+**5 Takeaways From Josh Shapiro’s Memoir**\
+`Politically pointed and heavy on his Jewish faith, the book already has Democrats talking.`\
+https://nytimes.com/2026/01/28/us/politics/josh-shapiro-memoir-where-we-keep-light.html
+
 **Why the Cold War Pact Known as NORAD Is Making Headlines**\
 `The State Department clarified comments made by the U.S. Ambassador to Canada that NORAD would be “altered” if that country did not purchase American F-35 jets.`\
 https://nytimes.com/2026/01/28/world/canada/norad-us-canada-security-agreement.html
