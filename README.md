@@ -1,3 +1,7 @@
+**Noem’s Handling of Shooting Put Her in Trump’s Penalty Box, but Just Briefly**\
+`Kristi Noem’s aggressiveness has sometimes given President Trump heartburn. She got a rebuke after a second killing by federal immigration agents but soon seemed to be back in his good graces.`\
+https://nytimes.com/2026/01/27/us/politics/noem-trump-minnesota-shooting-fallout.html
+
 **NHL trade grades: Devils clear cap space with Palat trade, Islanders get depth, draft capital**\
 `Both Ondrej Palat and Maxim Tsyplakov might be better off with a change of scenery and a fresh start.`\
 https://nytimes.com/athletic/7003057/2026/01/27/nhl-trade-grades-palat-tsyplakov-devils-islanders/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/27/us/politics/trump-iraq-al-maliki.html
 **Mike McDaniel's vision includes Justin Herbert achieving more by being asked to do less**\
 `The newly hired offensive coordinator explains his alignment with head coach Jim Harbaugh and how to take weight off the QB's shoulders.`\
 https://nytimes.com/athletic/7002863/2026/01/27/mike-mcdaniels-introductory-chargers-news-conference-takeaways/
-
-**Why Did the Trump Administration Silence Bovino on Social Media?**\
-`When the border chief got yanked from Minnesota, he lost access to his X account, too.`\
-https://nytimes.com/2026/01/27/us/politics/bovino-minnesota-social-media-trump.html
 
