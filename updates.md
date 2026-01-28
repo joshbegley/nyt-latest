@@ -1,3 +1,7 @@
+**Gianni Infantino's world tour: From Kigali to Boston, the FIFA president who enjoys the big stage**\
+`The FIFA president clearly feels at home on the world stage - as his dizzying travel schedule reflects`\
+https://nytimes.com/athletic/6985207/2026/01/28/gianni-infantinos-world-tour-fifa-world-cup/
+
 **Weird and wild Super Bowl 2026 prop bets: 'Sweet Caroline' and Alcatraz Island**\
 `The Super Bowl always has more creative and weird bets than any other event. We highlight some of the funniest.`\
 https://nytimes.com/athletic/7002446/2026/01/28/super-bowl-2026-prop-bets-weird-odd/
