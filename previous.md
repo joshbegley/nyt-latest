@@ -1,3 +1,7 @@
+**Weird and wild Super Bowl 2026 prop bets: 'Sweet Caroline' and Alcatraz Island**\
+`The Super Bowl always has more creative and weird bets than any other event. We highlight some of the funniest.`\
+https://nytimes.com/athletic/7002446/2026/01/28/super-bowl-2026-prop-bets-weird-odd/
+
 **Starbucks Says Turnaround ‘Ahead of Schedule’ as Sales Rebound**\
 `The coffee chain’s stock jumped after a better-than-expected earnings report.`\
 https://nytimes.com/2026/01/28/business/starbucks-sales-earnings-turnaround.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7003669/2026/01/28/copa-libertadores-teams-us-mexic
 **Lowetide: Why the Oilers must continue to pivot away from high-priced veterans**\
 `Here's what we might see from GM Stan Bowman and the Oilers at the deadline and into the summer.`\
 https://nytimes.com/athletic/7001832/2026/01/28/edmonton-oilers-salary-cap-veterans-contracts/
-
-**Top players associations invest in The Realest's unique approach to collectibles**\
-`The sports world is taking notice of The Realest's efforts to expand the definition of collectibles. `\
-https://nytimes.com/athletic/7001596/2026/01/28/the-realest-collectibles-investment/
 

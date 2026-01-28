@@ -1,3 +1,7 @@
+**Weird and wild Super Bowl 2026 prop bets: 'Sweet Caroline' and Alcatraz Island**\
+`The Super Bowl always has more creative and weird bets than any other event. We highlight some of the funniest.`\
+https://nytimes.com/athletic/7002446/2026/01/28/super-bowl-2026-prop-bets-weird-odd/
+
 **Starbucks Says Turnaround ‘Ahead of Schedule’ as Sales Rebound**\
 `The coffee chain’s stock jumped after a better-than-expected earnings report.`\
 https://nytimes.com/2026/01/28/business/starbucks-sales-earnings-turnaround.html
