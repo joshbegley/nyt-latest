@@ -1,3 +1,7 @@
+**Chanel Celebrates Grown-Up Women**\
+`In his first couture show, the designer Matthieu Blazy changes the rules.`\
+https://nytimes.com/2026/01/28/style/chanel-couture-older-women.html
+
 **Did a Luxury Nursing Home Hold a 91-Year-Old Woman Captive?**\
 `Her memory was failing, and the $28,000-a-month assisted living facility wouldn’t let her leave. Was it protecting her from an untrustworthy guardian?`\
 https://nytimes.com/2026/01/28/nyregion/diana-multare-nursing-home-standoff.html
