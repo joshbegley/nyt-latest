@@ -1,3 +1,7 @@
+**FIFA transfer report shows Man City, Liverpool, Arsenal are top spenders**\
+`'International transfers' only count those between clubs in different nations.`\
+https://nytimes.com/athletic/7004089/2026/01/28/football-transfer-spending-international-fifa/
+
 **Fulham reach Bobb agreement with Man City**\
 `Fulham have reached an agreement with Manchester City over a deal to sign winger Oscar Bobb.`\
 https://nytimes.com/athletic/6913951/2026/01/28/oscar-bobb-man-city-transfer-news/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7004094/2026/01/28/aston-villa-liverpool-elliott-tr
 **5 Stylish Hotels for City Lovers**\
 `New accommodations around the world allow you to soak up urban culture and immerse yourself in hotel creature comforts.`\
 https://nytimes.com/2026/01/28/travel/5-stylish-hotels-for-city-lovers.html
-
-**Chelsea fan hospitalised after being stabbed with screwdriver in Naples**\
-`Two Chelsea fans were hospitalised after an incident before the Champions League game against Napoli. Police are investigating.`\
-https://nytimes.com/athletic/7003794/2026/01/28/chelsea-napoli-fans-hospitalised/
 
