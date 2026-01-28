@@ -1,4 +1,8 @@
-**Sorry, moms: Blackhawks left with mixed feelings after Wild erase three-goal deficit**\
+**The New York Times in Print for Wednesday, Jan. 28, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/28/todays-new-york-times
+
+**Sorry, moms: Blackhawks left with mixed feelings after Wild erase 3-goal deficit**\
 `The Blackhawks played one of their best games of the season but couldn't quite hold the lead against a Stanley Cup contender.`\
 https://nytimes.com/athletic/7003467/2026/01/28/blackhawks-parents-trip-top-line-wild/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6999506/2026/01/28/lobotka-napoli-conte-champions-l
 **Manchester United and the Harry Maguire conundrum**\
 `The defender is impressing under Michael Carrick but that does not mean he is certain to stay at the club beyond this summer`\
 https://nytimes.com/athletic/7001264/2026/01/28/harry-maguire-manchester-united-transfer-future/
-
-**Row Z: Confusing Chelsea, a striker who can’t score, and Slot’s excuses**\
-`Tim Spiers shines a light on some of the more bonkers happenings in football over the past week `\
-https://nytimes.com/athletic/6998724/2026/01/28/row-z-chelsea-defenders-slot-dyche/
 
