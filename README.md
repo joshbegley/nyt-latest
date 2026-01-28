@@ -1,3 +1,7 @@
+**What It All Comes Down To**\
+`Kevin Curry’s crossword may end in a split decision.`\
+https://nytimes.com/2026/01/27/crosswords/daily-puzzle-2026-01-28.html
+
 **Tails of the City: San Francisco’s Latest Animal Sensation is a Mountain Lion**\
 `The 2-year-old male was safely captured after he got stuck between two apartment buildings.`\
 https://nytimes.com/2026/01/27/us/mountain-lion-san-francisco.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/01/27/well/health-wellness-tips-experts.htm
 **Jets reached out to Jon Gruden about joining Aaron Glenn's coaching staff: Sources**\
 `Gruden, according to sources, was not interested in the job.`\
 https://nytimes.com/athletic/7003090/2026/01/27/new-york-jets-jon-gruden/
-
-**Noem’s Handling of Shooting Put Her in Trump’s Penalty Box, but Just Briefly**\
-`Kristi Noem’s aggressiveness has sometimes given President Trump heartburn. She got a rebuke after a second killing by federal immigration agents but soon seemed to be back in his good graces.`\
-https://nytimes.com/2026/01/27/us/politics/noem-trump-minnesota-shooting-fallout.html
 
