@@ -1,3 +1,7 @@
+**MLB prospects who just missed Keith Law’s top 100 ranking: Dax Kilby, Dylan Beavers and more**\
+`These players are all significant prospects but just missed Law's latest top 100 prospect list for a variety of reasons.`\
+https://nytimes.com/athletic/6997599/2026/01/28/mlb-top-100-prospects-top-just-missed-keith-law/
+
 **The Pulse: An embarrassment for the NFL**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7002074/2026/01/28/bill-belichick-hall-of-fame-the-pulse/
