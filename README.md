@@ -1,3 +1,7 @@
+**Dozens Arrested After Anti-ICE Protest at a Manhattan Hilton**\
+`The demonstration at the TriBeCa hotel followed a similar targeting of a Hilton property in Minneapolis on Sunday.`\
+https://nytimes.com/2026/01/27/nyregion/ice-protest-hilton-manhattan.html
+
 **Democrats Restore Minnesota House to Even Split Amid Immigration Turmoil**\
 `In special elections on Tuesday, Democrats won two left-leaning districts, preventing Republicans from holding a majority in the State House of Representatives.`\
 https://nytimes.com/2026/01/27/us/minnesota-house-special-elections.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/27/us/politics/trump-iowa-speech-minnesota-ice.html
 **As Trump speaks in Iowa, a few thousand demonstrators protest Pretti’s killing.**\
 `By Ann Hinga Klein`\
 https://nytimes.com/live/2026/01/27/us/trump-news/trump-iowa-speech-ice-protests
-
-**'I can't be reading this right': Sports world reacts to Belichick HOF snub**\
-`Belichick, who won six Super Bowls as the head coach of the New England Patriots, fell short of the 40-vote threshold for election.`\
-https://nytimes.com/athletic/7002947/2026/01/27/bill-belichick-hall-of-fame-snub-reactions/
 
