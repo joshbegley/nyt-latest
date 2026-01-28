@@ -1,3 +1,15 @@
+**3 Beloved Dishes — In Soup Form**\
+`Hummus, bean salad and pasta pesto are the inspiration for these Melissa Clark recipes, each ready to warm you right up.`\
+https://nytimes.com/2026/01/28/dining/soup-recipes-hummus-beans-pesto.html
+
+**How to watch Rangers vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7004347/2026/01/28/rangers-vs-islanders-stream-how-to-watch-jan-28/
+
+**Red Wings sign Ben Chiarot to three-year-extension**\
+`A physical, 6-foot-3 left-handed defenseman, Chiarot has become a veteran leader for the Red Wings since signing as a free agent in 2022.`\
+https://nytimes.com/athletic/7004092/2026/01/28/red-wings-ben-chiarot-extension/
+
 **The Laws Designed to Protect My Son Could Very Well Kill Him**\
 `We thought America would keep him safe.`\
 https://nytimes.com/2026/01/28/opinion/family-mental-health-homeless-schizophrenia.html
