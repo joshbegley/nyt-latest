@@ -1,3 +1,19 @@
+**Here’s the latest.**\
+`By Reis Thebault, Nicholas Bogel-Burroughs, Chris Cameron and Dan Watson`\
+https://nytimes.com/live/2026/01/28/us/minneapolis-shooting-ice-minnesota/heres-the-latest
+
+**Minnesota Live Updates: Authorities Investigate Attack on Ilhan Omar as Tensions Flare Over Immigration Crackdown**\
+`Representative Ilhan Omar, a Democrat and frequent target of President Trump, was uninjured after a man sprayed her with a substance at a public event where she criticized ICE operations in Minneapolis.`\
+https://nytimes.com/live/2026/01/28/us/minneapolis-shooting-ice-minnesota
+
+**Which teams will have cap space this summer, and how much?**\
+`Things will change between now and June (or next week), but here's a team-by-team overview of the 2026 financial landscape.`\
+https://nytimes.com/athletic/6894997/2026/01/28/nba-offseason-salary-cap-space-2026/
+
+**Amazon to Cut 16,000 Jobs in Latest Round of Layoffs**\
+`The e-commerce giant has been cutting costs in part to redirect money into building data centers to compete in the race to dominate artificial intelligence.`\
+https://nytimes.com/2026/01/28/technology/amazon-corporate-layoffs.html
+
 **Iran Killed Thousands of Protesters. Here Are Five of Their Stories.**\
 `“He went out for freedom,” said the cousin of one of those who was killed when Iranian authorities mounted a deadly crackdown on protests across the country.`\
 https://nytimes.com/2026/01/28/world/middleeast/iran-protester-deaths.html

@@ -1,3 +1,7 @@
+**Veteran Indian Politician Among 5 Killed in Plane Crash**\
+`Ajit Pawar, the deputy chief minister of Maharashtra State, was on board a charter jet that crashed as it was coming in to land.`\
+https://nytimes.com/2026/01/28/world/asia/india-plane-crash.html
+
 **Here’s the latest.**\
 `By Reis Thebault, Nicholas Bogel-Burroughs, Chris Cameron and Dan Watson`\
 https://nytimes.com/live/2026/01/28/us/minneapolis-shooting-ice-minnesota/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6999496/2026/01/28/concussions-nfl-player-poll-hide
 **What do NFL players think of tush push, hip-drop tackles and kickoff rules? We asked them**\
 `We asked players from across the league about hot-topic rules — and which player would make a great official.`\
 https://nytimes.com/athletic/6999586/2026/01/28/nfl-player-poll-tush-push-kickoff-rules/
-
-**'My heart is full': Mike McCarthy comes home in emotional Steelers introduction**\
-`Plus, more takeaways from his first public comments as Steelers head coach.`\
-https://nytimes.com/athletic/7003191/2026/01/28/mike-mccarthy-pittsburgh-introductory-press-conference/
 
