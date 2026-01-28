@@ -1,3 +1,7 @@
+**Devon Levi, Rochester resident? Sabres prospect goes viral for TV news appearance**\
+`Levi was unknowingly interviewed by a local Rochester TV station over the weekend to give his thoughts on the winter storm.`\
+https://nytimes.com/athletic/7002877/2026/01/27/devon-levi-sabres-rochester-tv-news/
+
 **Trump Issues Order, but No Funds, to Push Faster Rebuilding After L.A. Fires**\
 `Over the weekend, the president demanded that local officials expedite rebuilding permits and ordered an audit of federal funds. But he was silent on the region’s stalled request for $34 billion in federal aid.`\
 https://nytimes.com/live/2026/01/27/us/trump-news/trump-los-angeles-fires-rebuilding
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7002771/2026/01/27/big-ten-football-schedule-releas
 **Virginia Judge Blocks Democrats’ Efforts to Redraw Congressional Maps**\
 `Democratic leaders vowed to appeal the lower court ruling, which found that the legislative process behind the redistricting push was improper.`\
 https://nytimes.com/2026/01/27/us/virginia-court-ruling-redistricting.html
-
-**U.S. Population Growth Slows Sharply**\
-`Also, some good news for a Broadway musical. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2026/01/27/briefing/us-population-growth-fema-delays.html
 
