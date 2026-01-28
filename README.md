@@ -1,3 +1,7 @@
+**What to know about the Fed decision.**\
+`By Ana Swanson`\
+https://nytimes.com/2026/01/28/business/economy/what-to-know-about-the-fed-decision.html
+
 **Meta Forecasts Spending of at Least $115 Billion This Year**\
 `That would be a major jump from the $72 billion that the Silicon Valley tech giant shelled out last year, as it aims to compete in the artificial intelligence race.`\
 https://nytimes.com/2026/01/28/technology/meta-earnings-ai-spending.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2026/01/28/business/federal-reserve-interest-rates/take
 **The Real Reason MAHA Hates Vaccines**\
 `Vaccines are a social safety net, too.`\
 https://nytimes.com/2026/01/28/opinion/maha-vaccines-kennedy-denmark.html
-
-**Three Boys Die After Falling Through Icy Pond in Texas**\
-`Two 16-year-old girls in northern Texas were also killed in the aftermath of the winter storm when their sled, pulled by a Jeep, crashed into a tree, the police said.`\
-https://nytimes.com/2026/01/28/us/texas-winter-storm-deaths.html
 
