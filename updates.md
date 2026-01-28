@@ -1,3 +1,7 @@
+**Dissident Who Daringly Documented Uyghurs’ Repression Wins Asylum**\
+`Heng Guan, a Chinese national, will not be released immediately, as Homeland Security said it was reserving the right to appeal.`\
+https://nytimes.com/2026/01/28/us/politics/heng-guan-china-uyghurs-asylum.html
+
 **When the Snow Won’t Melt, New York Brings Out the Hot Tubs**\
 `With no warm weather expected any time soon, the city’s snow piles require mechanical intervention.`\
 https://nytimes.com/2026/01/28/nyregion/new-york-hot-tubs-snow-storm.html

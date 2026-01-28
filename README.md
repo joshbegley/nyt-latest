@@ -1,3 +1,7 @@
+**Giannis' future has personal impact on Milwaukee native Podziemski**\
+`Podziemski, who grew up a Bucks fan, admits he has trouble envisioning Antetokounmpo in another team's uniform.`\
+https://nytimes.com/athletic/7004960/2026/01/28/giannis-antetokounmpo-trade-warriors-brandin-podziemski/
+
 **Dissident Who Daringly Documented Uyghurs’ Repression Wins Asylum**\
 `Heng Guan, a Chinese national, will not be released immediately, as Homeland Security said it was reserving the right to appeal.`\
 https://nytimes.com/2026/01/28/us/politics/heng-guan-china-uyghurs-asylum.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7004746/2026/01/28/kendry-paez-chelsea-river-plate-
 **Republicans Gave ICE a Slush Fund. Democrats Want to Limit It.**\
 `The sweeping domestic policy law that Republicans muscled through Congress last year made ICE the highest-funded federal law enforcement agency in the country, with no strings attached.`\
 https://nytimes.com/2026/01/28/us/politics/ice-funding-congress.html
-
-**Why Islanders made 2 cross-town trades for Carson Soucy, Ondřej Palát**\
-`“I want to reward them for where the team is at this stage of the season.” Islanders GM Mathieu Darche said of this week's trades.`\
-https://nytimes.com/athletic/7004630/2026/01/28/islanders-rangers-devils-trades-carson-soucy-ondrej-palat/
 
