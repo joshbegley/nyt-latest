@@ -1,4 +1,8 @@
-**Benfica 4 Real Madrid 2 — Goalkeeper Anatoliy Trubin scores as Mourinho's side dump Madrid into the play-offs**\
+**Hillary Clinton and Tucker Carlson Walk Into a Saudi Real Estate Forum**\
+`The Democrat and the hard-right commentator found at least one thing to agree upon as they spoke at a conference in Riyadh.`\
+https://nytimes.com/2026/01/28/world/middleeast/hillary-clinton-tucker-carlson-riyadh.html
+
+**Benfica 4 Real Madrid 2 - Goalkeeper Anatoliy Trubin scores as Mourinho's side dump Madrid into the play-offs**\
 `Benfica and Real Madrid played out a thriller in Lisbon which ended in the most ridiculous of circumstances`\
 https://nytimes.com/athletic/6999819/2026/01/28/benfica-4-real-madrid-2-trubin-mourinho/
 
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6999819/2026/01/28/benfica-4-real-madrid-2-trubin-m
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2026/01/28/style/tiny-modern-love-stories-the-cooler-funnier-version-of-myself.html
 
-**UCL round-up: Arsenal top table, Madrid drop to play-offs**\
+**UCL round-up: Arsenal top table, Madrid drop into play-offs**\
 `Chelsea held on to their top-eight place, while Bodo/Glimt reached the play-offs.`\
 https://nytimes.com/athletic/7004805/2026/01/28/arsenal-chelsea-tottenham-champions-league-standings-results/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6999818/2026/01/28/barcelona-champions-league-copen
 **Marco Rubio Asserts Control Over Venezuela’s Budget**\
 `During a hearing on Venezuela on Wednesday, Secretary of State Marco Rubio shared the Trump administration’s plan to control Venezuela’s spending. Lawmakers shared concerns with Mr. Rubio that Congress was not consulted on the military operation before it happened.`\
 https://nytimes.com/video/us/politics/100000010674839/marco-rubio-venezuela-hearing.html
-
-**Tens of Thousands Still Without Power After Storm Cripples the South**\
-`Across Tennessee, Mississippi and Louisiana, hundreds of power lines and poles remained damaged after freezing rain and low temperatures coated much of the region in ice over the weekend.`\
-https://nytimes.com/2026/01/28/us/politics/tennessee-mississippi-louisiana-power-outages.html
 
