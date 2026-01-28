@@ -1,3 +1,19 @@
+**Elliott 'situation not changing' despite returning to Villa squad - Emery**\
+`Emery acknowledged there was a reluctance to play Elliott as this would trigger the obligaton for Villa to sign him permanently. `\
+https://nytimes.com/athletic/7004094/2026/01/28/aston-villa-liverpool-elliott-transfer-news-loan/
+
+**5 Stylish Hotels for City Lovers**\
+`New accommodations around the world allow you to soak up urban culture and immerse yourself in hotel creature comforts.`\
+https://nytimes.com/2026/01/28/travel/5-stylish-hotels-for-city-lovers.html
+
+**Chelsea fan hospitalised after being stabbed with screwdriver in Naples**\
+`Two Chelsea fans were hospitalised after an incident before the Champions League game against Napoli. Police are investigating.`\
+https://nytimes.com/athletic/7003794/2026/01/28/chelsea-napoli-fans-hospitalised/
+
+**Fury to make UK comeback fight against Makhmudov on Netflix**\
+`Fury (34-2-1, 24 KOs) announced his latest retirement from boxing in January but will return in April.`\
+https://nytimes.com/athletic/7004058/2026/01/28/tyson-fury-aslanbek-makhmudov-netflix/
+
 **Five teams to watch at NBA trade deadline: Could Bucks upgrade with Giannis out?**\
 `Analyzing the most interesting upgrade situations leading into the trade deadline.`\
 https://nytimes.com/athletic/7002708/2026/01/28/buck-giannis-raptors-celtics-nba-trade-deadline/
@@ -7,7 +23,7 @@ https://nytimes.com/athletic/7002708/2026/01/28/buck-giannis-raptors-celtics-nba
 https://nytimes.com/athletic/7003280/2026/01/28/julian-champagnie-spurs-stats-nba-twin-brother/
 
 **Miller Suggests Federal Agents May Have Diverted From ‘Protocol’ Before Pretti Shooting**\
-`The comments by Mr. Miller, the influential White House deputy chief of staff, appeared to be a shift after days of blaming Alex Pretti, who was fatally shot by federal agents.`\
+`The comments by Mr. Miller, the influential White House deputy chief of staff, came after days of blaming Alex Pretti, who was fatally shot by federal agents.`\
 https://nytimes.com/2026/01/28/us/stephen-miller-alex-pretti-shooting.html
 
 **When Conservative Politics Hit Cash-Starved Universities**\
@@ -17,20 +33,4 @@ https://nytimes.com/2026/01/28/opinion/conservative-campus-politics.html
 **Why Do Houseguests Expect Us to Pay for Any Food During Their Visits?**\
 `A married couple is unsure how to get guests at their vacation home to pony up for groceries — ideally without being asked.`\
 https://nytimes.com/2026/01/28/style/houseguests-cost-splitting.html
-
-**Gianni Infantino's world tour: From Kigali to Boston, the FIFA president who enjoys the big stage**\
-`The FIFA president clearly feels at home on the world stage - as his dizzying travel schedule reflects`\
-https://nytimes.com/athletic/6985207/2026/01/28/gianni-infantinos-world-tour-fifa-world-cup/
-
-**Weird and wild Super Bowl 2026 prop bets: 'Sweet Caroline' and Alcatraz Island**\
-`The Super Bowl always has more creative and weird bets than any other event. We highlight some of the funniest.`\
-https://nytimes.com/athletic/7002446/2026/01/28/super-bowl-2026-prop-bets-weird-odd/
-
-**Starbucks Says Turnaround ‘Ahead of Schedule’ as Sales Rebound**\
-`The coffee chain’s stock jumped after a better-than-expected earnings report.`\
-https://nytimes.com/2026/01/28/business/starbucks-sales-earnings-turnaround.html
-
-**Trump Administration Live Updates: President Renews Threats to Iran**\
-``\
-https://nytimes.com/live/2026/01/28/us/trump-news
 
