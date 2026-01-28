@@ -1,3 +1,7 @@
+**As Trump speaks in Iowa, a few thousand demonstrators protest Pretti’s killing.**\
+`By Ann Hinga Klein`\
+https://nytimes.com/live/2026/01/27/us/trump-news/trump-iowa-speech-ice-protests
+
 **Initial D.H.S. Review Does Not Say Pretti Brandished Gun, Departing From Noem’s Claim**\
 `A report from an internal agency watchdog says the Minneapolis man was shot by law enforcement after resisting arrest, but makes no mention of the allegations leveled by a Trump administration official.`\
 https://nytimes.com/2026/01/27/us/politics/pretti-shooting-minneapolis-dhs-report.html
