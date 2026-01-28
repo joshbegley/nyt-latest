@@ -1,3 +1,7 @@
+**Fury to make UK comeback fight against Makhmudov on Netflix**\
+`Tyson Fury&#8217;s heavyweight comeback fight will be against Russia&#8217;s Aslanbek Makhmudov on April 11 in the UK and be streamed live on Netflix.`\
+https://nytimes.com/athletic/7004058/2026/01/28/tyson-fury-aslanbek-makhmudov-netflix/
+
 **Five teams to watch at NBA trade deadline: Could Bucks upgrade with Giannis out?**\
 `Analyzing the most interesting upgrade situations leading into the trade deadline.`\
 https://nytimes.com/athletic/7002708/2026/01/28/buck-giannis-raptors-celtics-nba-trade-deadline/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7002446/2026/01/28/super-bowl-2026-prop-bets-weird-
 **Starbucks Says Turnaround ‘Ahead of Schedule’ as Sales Rebound**\
 `The coffee chain’s stock jumped after a better-than-expected earnings report.`\
 https://nytimes.com/2026/01/28/business/starbucks-sales-earnings-turnaround.html
-
-**Trump Administration Live Updates: President Renews Threats to Iran**\
-``\
-https://nytimes.com/live/2026/01/28/us/trump-news
 
