@@ -1,3 +1,11 @@
+**Unions Sue FEMA Over Work Force Cuts They Say Threaten Its Readiness**\
+`The suit argues that the recent dismissals and plans for further cuts violate laws designed to preserve the disaster response agency’s independence and capabilities.`\
+https://nytimes.com/2026/01/28/climate/unions-sue-fema.html
+
+**Federal Officers Who Fired at Pretti Placed on Leave**\
+`A Border Patrol agent and a Customs and Border Protection officer have been on leave since Saturday, according to a Department of Homeland Security official.`\
+https://nytimes.com/2026/01/28/us/politics/federal-officers-pretti-leave.html
+
 **Corinthians stun Gotham 1-0, will meet Arsenal in FIFA Women's Champions Cup final**\
 `Arsenal beat Morocco's ASFAR 6-0 in the second FIFA Women's Champions Cup semifinal. `\
 https://nytimes.com/athletic/7004740/2026/01/28/corinthians-stuns-gotham-meets-arsenal-fifa-womens-champions-cup-final/
