@@ -1,3 +1,27 @@
+**Benfica 4 Real Madrid 2 — Goalkeeper Anatoliy Trubin scores as Mourinho's side dump Madrid into the play-offs**\
+`Benfica and Real Madrid played out a thriller in Lisbon which ended in the most ridiculous of circumstances`\
+https://nytimes.com/athletic/6999819/2026/01/28/benfica-4-real-madrid-2-trubin-mourinho/
+
+**Tiny Love Stories: ‘The Cooler, Funnier Version of Myself’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/01/28/style/tiny-modern-love-stories-the-cooler-funnier-version-of-myself.html
+
+**UCL round-up: Arsenal top table, Madrid drop to play-offs**\
+`Chelsea held on to their top-eight place, while Bodo/Glimt reached the play-offs.`\
+https://nytimes.com/athletic/7004805/2026/01/28/arsenal-chelsea-tottenham-champions-league-standings-results/
+
+**The Briefing: Napoli 2 Chelsea 3 - A statement win for Liam Rosenior as Joao Pedro ensures top-eight finish**\
+`The Athletic's writers break down an intense night at the Stadio Diego Armando Maradona `\
+https://nytimes.com/athletic/7001601/2026/01/28/napoli-chelsea-champions-league-analysis/
+
+**The Briefing: Man City 2 Galatasaray 0 – Doku injury blow, Foden's continuing struggle, is Haaland back?**\
+`Guardiola will be happy that his side have qualified for the round of 16 automatically, meaning his side will avoid a two-legged play-off`\
+https://nytimes.com/athletic/7001600/2026/01/28/man-city-2-galatasaray-0-doku-foden-haaland/
+
+**The Briefing: Barcelona secure Champions League last-16 spot with Copenhagen comeback**\
+`Barcelona booked their place in the Champions League last 16 with a home victory over their Danish opponents`\
+https://nytimes.com/athletic/6999818/2026/01/28/barcelona-champions-league-copenhagen-result-analysis/
+
 **The Briefing: Barcelona secure Champions League last-16 spot with Copenhagen comeback**\
 `Barcelona book their place in the Champions League last 16 with a home victory over their Danish opponents`\
 https://nytimes.com/athletic/6999818/2026/01/28/barcelona-champions-league-copenhagen-result-analysis/
