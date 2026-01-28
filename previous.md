@@ -1,3 +1,7 @@
+**Mikaël Kingsbury, Marielle Thompson named as Canada's Olympic flag bearers**\
+`Kingsbury and Thompson are Canada’s 27th and 28th Winter Olympics opening ceremony flag bearers.`\
+https://nytimes.com/athletic/7004251/2026/01/28/mikael-kingsbury-marielle-thompson-canada-olympics-flag-bearers/
+
 **Live Updates: Fed Set to Pause Rate Cuts**\
 `The Federal Reserve is expected to hold interest rates steady despite relentless attacks from President Trump, who wants borrowing costs to be much lower.`\
 https://nytimes.com/live/2026/01/28/business/federal-reserve-interest-rates
@@ -30,11 +34,7 @@ https://nytimes.com/2026/01/28/business/silver-gold-prices.html
 `Reed will play on the DP World Tour through August as he serves a PGA Tour suspension.`\
 https://nytimes.com/athletic/7004122/2026/01/28/golf-liv-pga-patrick-reed-contract-suspension/
 
-**Jets hire Brian Duker as defensive coordinator, Aaron Glenn to take over play-calling: Sources**\
+**Jets hire Brian Duker as defensive coordinator, Aaron Glenn to take over play calling: Sources**\
 `Duker, who worked with Glenn in Detroit, was the Miami Dolphins' pass game coordinator/secondary coach the past two seasons.`\
 https://nytimes.com/athletic/7004342/2026/01/28/new-york-jets-defensive-coordinator-brian-duker-aaron-glenn/
-
-**Iraq’s Nominee for Prime Minister Rejects Trump Threats**\
-`Nuri Kamal al-Maliki, a former prime minister, was nominated to lead Iraq once again, but President Trump said he would cut U.S. support if that went ahead.`\
-https://nytimes.com/2026/01/28/world/middleeast/trump-iraq-prime-minister-al-maliki.html
 

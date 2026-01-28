@@ -1,3 +1,11 @@
+**Mikaël Kingsbury, Marielle Thompson named as Canada's Olympic flag bearers**\
+`Kingsbury and Thompson are Canada’s 27th and 28th Winter Olympics opening ceremony flag bearers.`\
+https://nytimes.com/athletic/7004251/2026/01/28/mikael-kingsbury-marielle-thompson-canada-olympics-flag-bearers/
+
+**Jets hire Brian Duker as defensive coordinator, Aaron Glenn to take over play calling: Sources**\
+`Duker, who worked with Glenn in Detroit, was the Miami Dolphins' pass game coordinator/secondary coach the past two seasons.`\
+https://nytimes.com/athletic/7004342/2026/01/28/new-york-jets-defensive-coordinator-brian-duker-aaron-glenn/
+
 **Live Updates: Fed Set to Pause Rate Cuts**\
 `The Federal Reserve is expected to hold interest rates steady despite relentless attacks from President Trump, who wants borrowing costs to be much lower.`\
 https://nytimes.com/live/2026/01/28/business/federal-reserve-interest-rates
