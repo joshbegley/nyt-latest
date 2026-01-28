@@ -1,3 +1,7 @@
+**Devon Levi, Rochester resident? Sabres prospect goes viral for TV news appearance**\
+`Levi was unknowingly interviewed by a local Rochester TV station over the weekend to give his thoughts on the winter storm.`\
+https://nytimes.com/athletic/7002877/2026/01/27/devon-levi-sabres-rochester-tv-news/
+
 **Trump Issues Order, but No Funds, to Push Faster Rebuilding After L.A. Fires**\
 `Over the weekend, the president demanded that local officials expedite rebuilding permits and ordered an audit of federal funds. But he was silent on the region’s stalled request for $34 billion in federal aid.`\
 https://nytimes.com/live/2026/01/27/us/trump-news/trump-los-angeles-fires-rebuilding
