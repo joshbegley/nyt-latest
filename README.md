@@ -1,3 +1,7 @@
+**Portland Timbers finalizing deal to acquire Cole Bassett: Sources**\
+`Bassett appeared in 172 games for the Rapids in two stints, but the Timbers are willing to pay roughly $2.65 million cash to bring him in.`\
+https://nytimes.com/athletic/7002906/2026/01/27/portland-timbers-cole-bassett-colorado-rapids-deal/
+
 **Republicans Shift Tone After Killings, Criticizing Trump’s Immigration Push**\
 `With the president signaling a pivot in his crackdown, G.O.P. lawmakers have felt freer to express concern. But it’s not clear what they are willing to do about it.`\
 https://nytimes.com/2026/01/27/us/republicans-shift-tone-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7002807/2026/01/27/nebraska-2026-football-schedule-
 **Southwest Begins Assigned Seating, Scrapping a Signature Quirk**\
 `The airline said its new policy, rolled out on Tuesday, responded to passengers’ preferences, but some customers said the scramble was part of the charm.`\
 https://nytimes.com/2026/01/27/travel/southwest-airlines-assigned-seating.html
-
-**Ohio State-Indiana set for midseason rematch as Big Ten releases 2026 schedule**\
-`Among the schedule's highlights: Penn State-Michigan, Pat Fitzgerald vs. Northwestern and the first USC-Ohio State clash as leaguemates.`\
-https://nytimes.com/athletic/7002771/2026/01/27/big-ten-football-schedule-release-opponents/
 

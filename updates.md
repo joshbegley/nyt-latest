@@ -1,3 +1,7 @@
+**Republicans Shift Tone After Killings, Criticizing Trump’s Immigration Push**\
+`With the president signaling a pivot in his crackdown, G.O.P. lawmakers have felt freer to express concern. But it’s not clear what they are willing to do about it.`\
+https://nytimes.com/2026/01/27/us/republicans-shift-tone-immigration.html
+
 **Devon Levi, Rochester resident? Sabres prospect goes viral for TV news appearance**\
 `Levi was unknowingly interviewed by a local Rochester TV station over the weekend to give his thoughts on the winter storm.`\
 https://nytimes.com/athletic/7002877/2026/01/27/devon-levi-sabres-rochester-tv-news/
