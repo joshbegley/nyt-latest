@@ -1,3 +1,7 @@
+**Eli Heidenreich, Mark Gronowski among 2026 NFL Draft standouts during Shrine Bowl week**\
+`More than 50 Shrine Bowl prospects could wind up hearing their names called in the NFL Draft. Which ones excelled this week?`\
+https://nytimes.com/athletic/6999645/2026/01/27/nfl-draft-2026-shrine-bowl-prospects-heidenreich/
+
 **At the Center of the ICE Uproar, a Familiar Figure: Corey Lewandowski**\
 `Now a top aide to Kristi Noem, the homeland security secretary, Mr. Lewandowski has a long history of controversy in President Trump’s orbit, but he has always found a way back from exile.`\
 https://nytimes.com/2026/01/27/us/politics/corey-lewandowski-noem-trump.html

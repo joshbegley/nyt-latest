@@ -14,6 +14,10 @@ https://nytimes.com/video/us/politics/100000010672659/ilhan-omar-town-hall-minne
 `Prosecutors added new details to their case against Ingrid Lewis-Martin, who is accused of using her position in New York’s City Hall to help associates in exchange for bribes.`\
 https://nytimes.com/2026/01/27/nyregion/ingrid-lewis-martin-bribes-diamond.html
 
+**Eli Heidenreich, Mark Gronowski among 2026 NFL Draft standouts during Shrine Bowl week**\
+`More than 50 Shrine Bowl prospects could wind up hearing their names called in the NFL Draft. Which ones excelled this week?`\
+https://nytimes.com/athletic/6999645/2026/01/27/nfl-draft-2026-shrine-bowl-prospects-heidenreich/
+
 **What It All Comes Down To**\
 `Kevin Curry’s crossword may end in a split decision.`\
 https://nytimes.com/2026/01/27/crosswords/daily-puzzle-2026-01-28.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010659418/the-most-important-foreign-pol
 **No. 3 Michigan rallies to hand shorthanded Nebraska first loss of season**\
 `No. 5 Cornhuskers led by as many as 11 points in the first half despite playing without two of their top three scorers.`\
 https://nytimes.com/athletic/7003166/2026/01/27/michigan-hands-nebraska-first-loss-big-ten/
-
-**Dozens Arrested After Anti-ICE Protest at a Manhattan Hilton**\
-`The demonstration at the TriBeCa hotel followed a similar targeting of a Hilton property in Minneapolis on Sunday.`\
-https://nytimes.com/2026/01/27/nyregion/ice-protest-hilton-manhattan.html
 

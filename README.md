@@ -7,7 +7,7 @@ https://nytimes.com/2026/01/27/us/politics/corey-lewandowski-noem-trump.html
 https://nytimes.com/athletic/7003185/2026/01/27/tennis-australian-open-iga-swiatek-elena-rybakina-result-analysis/
 
 **Man Lunges at Ilhan Omar During Minneapolis Town Hall**\
-`During a town hall in Minneapolis, a man sitting directly in front of Rep. Ilhan Omar rushed to the lectern and sprayed her with a pungent liquid. He was immediately tackled and removed from the room.`\
+`During a town hall in Minneapolis, a man sitting directly in front of Representative Ilhan Omar rushed to the lectern and sprayed her with a pungent liquid. He was immediately tackled and removed from the room.`\
 https://nytimes.com/video/us/politics/100000010672659/ilhan-omar-town-hall-minnesota.html
 
 **Former Adams Aide Took Bribe of Diamond Earrings, Prosecutors Say**\
