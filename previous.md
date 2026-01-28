@@ -1,3 +1,7 @@
+**With an aging Matthew Stafford, Rams must go all-in for another Super Bowl run**\
+`If Stafford does return for another season, the Rams will need to push in all their chips and understand they have no time to waste. `\
+https://nytimes.com/athletic/7002848/2026/01/28/rams-qb-matthew-stafford-2026-super-bowl-run/
+
 **F1 teams are hiding early struggles with new cars. Should they let fans watch?**\
 `The 2026 F1 preseason kicked off with a private test for teams in Barcelona this week. Was the secrecy necessary? `\
 https://nytimes.com/athletic/7003845/2026/01/28/barcelona-f1-test-2026-private/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7004058/2026/01/28/tyson-fury-aslanbek-makhmudov-ne
 **Five teams to watch at NBA trade deadline: Could Bucks upgrade with Giannis out?**\
 `Analyzing the most interesting upgrade situations leading into the trade deadline.`\
 https://nytimes.com/athletic/7002708/2026/01/28/buck-giannis-raptors-celtics-nba-trade-deadline/
-
-**How Julian Champagnie went from following his twin brother to finding his own career**\
-`Once content to follow his twin brother's plans, Julian Champagnie has now become one of Victor Wembanyama's most important teammates. `\
-https://nytimes.com/athletic/7003280/2026/01/28/julian-champagnie-spurs-stats-nba-twin-brother/
 
