@@ -1,5 +1,5 @@
 **Yankees trade for Rockies reliever Angel Chivilli, part with prospect TJ Rumfield**\
-`Chivilli posted a 7.06 ERA in 43 appearances last season for Rockies, but the 23-year-old's underlying metrics show some promise.`\
+`Chivilli posted a 7.06 ERA in 43 appearances last season for the Rockies, but the 23-year-old's underlying metrics show some promise.`\
 https://nytimes.com/athletic/7004419/2026/01/28/yankees-rockies-trade-angel-chivilli-tj-rumfield/
 
 **Garnacho's agents told to pay €200k to man who discovered Chelsea winger**\
