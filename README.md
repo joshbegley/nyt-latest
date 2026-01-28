@@ -1,3 +1,15 @@
+**Michael McIntyre: 'Your football allegiance is lifelong - it's utterly mad when you think about it'**\
+`The comedian is a die-hard Tottenham fan who, after an epiphany in the shower, is launching an app based on player ratings`\
+https://nytimes.com/athletic/6993607/2026/01/28/michael-mcintyre-fanalysis-interview/
+
+**Desi Lydic Says Gregory Bovino Got ‘Iced Out’**\
+`“We’re not throwing you under the bus — we’re throwing you onto a bus, and sending it far, far away,” the “Daily Show” host said of the recalled Border Patrol official.`\
+https://nytimes.com/2026/01/28/arts/television/greg-bovino-ice-late-night.html
+
+**What is Fanalysis? Explaining the player ratings app co-founded by McIntyre and Neville**\
+`Supporters can only comment on players in their team, and the high-profile people behind the app hope its data becomes a key resource`\
+https://nytimes.com/athletic/6999963/2026/01/28/fanalysis-player-ratings-explained/
+
 **Word of the Day: convivial**\
 `This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/28/learning/word-of-the-day-convivial.html
@@ -25,16 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/01/28/todays-new-york-times
 **Sorry, moms: Blackhawks left with mixed feelings after Wild erase 3-goal deficit**\
 `The Blackhawks played one of their best games of the season but couldn't quite hold the lead against a Stanley Cup contender.`\
 https://nytimes.com/athletic/7003467/2026/01/28/blackhawks-parents-trip-top-line-wild/
-
-**Meet Brody Couch: The Australian-American who won cricket's Big Bash League**\
-`The fast bowler was born in Australia but his mother is from upstate New York, so he gets to play in Major League Cricket as a local`\
-https://nytimes.com/athletic/6991107/2026/01/28/brody-couch-perth-scorchers-usa-mlc-bbl-cricket/
-
-**Champions League permutations: Who needs what to progress on the final night of the league phase?**\
-`Who have already qualified? Which clubs can still automatically progress to the knockouts on the final day? How do the play-offs work again?`\
-https://nytimes.com/athletic/6993670/2026/01/28/champions-league-final-round-teams-qualified-knockout/
-
-**Why are Tottenham not seeing the same Randal Kolo Muani that Frankfurt did?**\
-`In Germany, Randal Kolo Muani became a French international and a £75m player. In England he has failed to score a league goal`\
-https://nytimes.com/athletic/7001439/2026/01/28/randal-kolo-muani-tottenham-frankfurt/
 
