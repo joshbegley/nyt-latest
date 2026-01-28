@@ -1,3 +1,11 @@
+**Meta Forecasts Spending of at Least $115 Billion This Year**\
+`That would be a major jump from the $72 billion that the Silicon Valley tech giant shelled out last year, as it aims to compete in the artificial intelligence race.`\
+https://nytimes.com/2026/01/28/technology/meta-earnings-ai-spending.html
+
+**Sly Dunbar, Whose Drumming Brought Complex Beats to Reggae, Dies at 73**\
+`As one half of the famed rhythm duo Sly and Robbie, he played with some of the biggest names in music, including Bob Dylan and Mick Jagger.`\
+https://nytimes.com/2026/01/28/arts/music/sly-dunbar-dead.html
+
 **Giannis' future has personal impact on Milwaukee native Podziemski**\
 `Podziemski, who grew up a Bucks fan, admits he has trouble envisioning Antetokounmpo in another team's uniform.`\
 https://nytimes.com/athletic/7004960/2026/01/28/giannis-antetokounmpo-trade-warriors-brandin-podziemski/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/28/opinion/maha-vaccines-kennedy-denmark.html
 **Three Boys Die After Falling Through Icy Pond in Texas**\
 `Two 16-year-old girls in northern Texas were also killed in the aftermath of the winter storm when their sled, pulled by a Jeep, crashed into a tree, the police said.`\
 https://nytimes.com/2026/01/28/us/texas-winter-storm-deaths.html
-
-**Chelsea's Paez set to join River Plate on loan**\
-`The 18-year-old has spent the first half of the 2025-26 season on loan at BlueCo-owned Strasbourg, Chelsea's sister club.`\
-https://nytimes.com/athletic/7004746/2026/01/28/kendry-paez-chelsea-river-plate-loan/
-
-**Republicans Gave ICE a Slush Fund. Democrats Want to Limit It.**\
-`The sweeping domestic policy law that Republicans muscled through Congress last year made ICE the highest-funded federal law enforcement agency in the country, with no strings attached.`\
-https://nytimes.com/2026/01/28/us/politics/ice-funding-congress.html
 

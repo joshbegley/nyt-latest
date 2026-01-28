@@ -1,3 +1,7 @@
+**Giannis' future has personal impact on Milwaukee native Podziemski**\
+`Podziemski, who grew up a Bucks fan, admits he has trouble envisioning Antetokounmpo in another team's uniform.`\
+https://nytimes.com/athletic/7004960/2026/01/28/giannis-antetokounmpo-trade-warriors-brandin-podziemski/
+
 **Dissident Who Daringly Documented Uyghurs’ Repression Wins Asylum**\
 `Heng Guan, a Chinese national, will not be released immediately, as Homeland Security said it was reserving the right to appeal.`\
 https://nytimes.com/2026/01/28/us/politics/heng-guan-china-uyghurs-asylum.html
