@@ -1,3 +1,15 @@
+**Did a Luxury Nursing Home Hold a 91-Year-Old Woman Captive?**\
+`Her memory was failing, and the $28,000-a-month assisted living facility wouldn’t let her leave. Was it protecting her from an untrustworthy guardian?`\
+https://nytimes.com/2026/01/28/nyregion/diana-multare-nursing-home-standoff.html
+
+**New York Sues Solar Panel Firm, Saying It Bilked Hundreds of Customers**\
+`The city is demanding about $20 million in penalties and restitution from Radiant Solar, the largest sum it has ever sought from a home improvement contractor.`\
+https://nytimes.com/2026/01/28/nyregion/new-york-sues-solar-panel-firm-saying-it-bilked-hundreds-of-customers.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/28/crosswords/spelling-bee-forum.html
+
 **Jamie Carragher: What's wrong with Liverpool - and how they can fix it**\
 `Exclusive: The ex-Liverpool defender and CBS pundit gives his diagnosis on the club's problems and who should shoulder the blame`\
 https://nytimes.com/athletic/7001766/2026/01/28/jamie-carragher-liverpool-interview/

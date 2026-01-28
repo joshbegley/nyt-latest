@@ -1,3 +1,15 @@
+**Did a Luxury Nursing Home Hold a 91-Year-Old Woman Captive?**\
+`Her memory was failing, and the $28,000-a-month assisted living facility wouldn’t let her leave. Was it protecting her from an untrustworthy guardian?`\
+https://nytimes.com/2026/01/28/nyregion/diana-multare-nursing-home-standoff.html
+
+**New York Sues Solar Panel Firm, Saying It Bilked Hundreds of Customers**\
+`The city is demanding about $20 million in penalties and restitution from Radiant Solar, the largest sum it has ever sought from a home improvement contractor.`\
+https://nytimes.com/2026/01/28/nyregion/new-york-sues-solar-panel-firm-saying-it-bilked-hundreds-of-customers.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/28/crosswords/spelling-bee-forum.html
+
 **Jamie Carragher: What's wrong with Liverpool - and how they can fix it**\
 `Exclusive: The ex-Liverpool defender and CBS pundit gives his diagnosis on the club's problems and who should shoulder the blame`\
 https://nytimes.com/athletic/7001766/2026/01/28/jamie-carragher-liverpool-interview/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7003579/2026/01/28/lorenzo-musetti-novak-djokovic-a
 **Wild start slow but rally from 3-goal deficit to beat Chicago … again: Takeaways**\
 `Oftentimes in the NHL, it's not how you start; it's how you finish.`\
 https://nytimes.com/athletic/7003048/2026/01/28/wild-blackhawks-takeaways-jesper-wallstedt/
-
-**Iga Świątek adds to Coco Gauff criticism of Australian Open cameras: 'Are we animals in the zoo?'**\
-`The world No. 2 asked if tennis players were “animals in a zoo” following a quarterfinal loss to Elena Rybakina`\
-https://nytimes.com/athletic/7003516/2026/01/28/tennis-australian-open-cameras-player-privacy-gauff-swiatek/
-
-**Paul George turns back clock as 76ers bounce back to beat undermanned Bucks**\
-`George had 32 points and nine 3-pointers, and Jared McCain added 17 points and five 3s, helping the 76ers beat the Bucks 139-122 on Tuesday.`\
-https://nytimes.com/athletic/7003401/2026/01/28/paul-george-joel-embiid-jared-mccain-76ers-stats/
-
-**The New York Times in Print for Wednesday, Jan. 28, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/01/28/todays-new-york-times
 
