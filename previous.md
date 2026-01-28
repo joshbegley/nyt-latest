@@ -1,3 +1,8 @@
+**The Bounce: The midseason Bouncies are here! Best dunk, MVP and more**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7004071/2026/01/28/nba-midseason-awards-shai-gilgeous-alexander-the-bounce/
+
 **Elliott 'situation not changing' despite returning to Villa squad - Emery**\
 `Emery acknowledged there was a reluctance to play Elliott as this would trigger the obligaton for Villa to sign him permanently. `\
 https://nytimes.com/athletic/7004094/2026/01/28/aston-villa-liverpool-elliott-transfer-news-loan/
