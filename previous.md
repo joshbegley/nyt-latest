@@ -1,3 +1,7 @@
+**Plane Carrying Colombian Politicians Crashes in Area Contested by Rebels**\
+`The aircraft was carrying 15 people, and the authorities said there were no survivors.`\
+https://nytimes.com/2026/01/28/world/americas/colombian-plane-politicians-missing.html
+
 **Attack on Ilhan Omar Follows Years of Trump’s Targeting Her**\
 `President Trump has spent years demonizing and dehumanizing the Somali-born Democrat from Minnesota, fueling escalating threats against her.`\
 https://nytimes.com/2026/01/28/us/politics/ilhan-omar-trump-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7001600/2026/01/28/man-city-2-galatasaray-0-doku-fo
 **How to Bring Back the American Dream**\
 `Some of the best coaches we can find to help struggling children escape poverty may be other children and their families.`\
 https://nytimes.com/2026/01/28/opinion/american-dream-poverty.html
-
-**The Briefing: Barcelona secure Champions League last-16 spot with Copenhagen comeback**\
-`Barcelona booked their place in the Champions League last 16 with a home victory over their Danish opponents`\
-https://nytimes.com/athletic/6999818/2026/01/28/barcelona-champions-league-copenhagen-result-analysis/
 

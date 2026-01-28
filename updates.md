@@ -1,3 +1,7 @@
+**Plane Carrying Colombian Politicians Crashes in Area Contested by Rebels**\
+`The aircraft was carrying 15 people, and the authorities said there were no survivors.`\
+https://nytimes.com/2026/01/28/world/americas/colombian-plane-politicians-missing.html
+
 **Attack on Ilhan Omar Follows Years of Trump’s Targeting Her**\
 `President Trump has spent years demonizing and dehumanizing the Somali-born Democrat from Minnesota, fueling escalating threats against her.`\
 https://nytimes.com/2026/01/28/us/politics/ilhan-omar-trump-attack.html
