@@ -1,3 +1,8 @@
+**The Bounce: The midseason Bouncies are here! Best dunk, MVP and more**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7004071/2026/01/28/nba-midseason-awards-shai-gilgeous-alexander-the-bounce/
+
 **FIFA transfer report shows Man City, Liverpool, Arsenal are top spenders**\
 `'International transfers' only count those between clubs in different nations.`\
 https://nytimes.com/athletic/7004089/2026/01/28/football-transfer-spending-international-fifa/

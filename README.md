@@ -1,3 +1,7 @@
+**Williams chief explains why it missed Barcelona F1 test**\
+`The team announced last week it would not be taking part in the five-day shakedown at the Circuit de Barcelona-Catalunya. `\
+https://nytimes.com/athletic/7004264/2026/01/28/williams-chief-barcelona-f1-test/
+
 **Researchers Are Using A.I. to Decode the Human Genome**\
 `AlphaGenome is a leap forward in the ability to study the human blueprint. But the fine workings of our DNA are still largely a mystery.`\
 https://nytimes.com/2026/01/28/science/alphagenome-ai-deepmind-genetics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7002848/2026/01/28/rams-qb-matthew-stafford-2026-su
 **F1 teams are hiding early struggles with new cars. Should they let fans watch?**\
 `The 2026 F1 preseason kicked off with a private test for teams in Barcelona this week. Was the secrecy necessary? `\
 https://nytimes.com/athletic/7003845/2026/01/28/f1-closed-test-barcelona-2026-2/
-
-**Anonymous NFL player poll: Tom Brady’s dual role, Bad Bunny's Super Bowl, tush push ban**\
-`We surveyed players from across the NFL on some of the league's hottest topics.`\
-https://nytimes.com/athletic/6999648/2026/01/28/nfl-player-poll-anonymous-2026/
 
