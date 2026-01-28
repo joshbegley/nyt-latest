@@ -1,3 +1,7 @@
+**Jets reached out to Jon Gruden about joining Aaron Glenn's coaching staff: Sources**\
+`Gruden, according to sources, was not interested in the job.`\
+https://nytimes.com/athletic/7003090/2026/01/27/new-york-jets-jon-gruden/
+
 **Noem’s Handling of Shooting Put Her in Trump’s Penalty Box, but Just Briefly**\
 `Kristi Noem’s aggressiveness has sometimes given President Trump heartburn. She got a rebuke after a second killing by federal immigration agents but soon seemed to be back in his good graces.`\
 https://nytimes.com/2026/01/27/us/politics/noem-trump-minnesota-shooting-fallout.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7002985/2026/01/27/ondrej-palat-trade-devils-island
 **Trump Threatens to Pull U.S. Help From Iraq if Former Leader Returns**\
 `Nuri Kamal al-Maliki, a former prime minister, has been nominated to the post by the main Shiite Muslim bloc in the Iraqi Parliament.`\
 https://nytimes.com/2026/01/27/us/politics/trump-iraq-al-maliki.html
-
-**Mike McDaniel's vision includes Justin Herbert achieving more by being asked to do less**\
-`The newly hired offensive coordinator explains his alignment with head coach Jim Harbaugh and how to take weight off the QB's shoulders.`\
-https://nytimes.com/athletic/7002863/2026/01/27/mike-mcdaniels-introductory-chargers-news-conference-takeaways/
 
