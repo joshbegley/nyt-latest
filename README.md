@@ -1,3 +1,7 @@
+**Former Adams Aide Took Bribe of Diamond Earrings, Prosecutors Say**\
+`Prosecutors added new details to their case against Ingrid Lewis-Martin, who is accused of using her position in New York’s City Hall to help associates in exchange for bribes.`\
+https://nytimes.com/2026/01/27/nyregion/ingrid-lewis-martin-bribes-diamond.html
+
 **What It All Comes Down To**\
 `Kevin Curry’s crossword may end in a split decision.`\
 https://nytimes.com/2026/01/27/crosswords/daily-puzzle-2026-01-28.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/27/nyregion/epstein-files-release-bondi.html
 **24 Simple Secrets to a Healthier Life**\
 `We asked doctors, therapists and other experts to sum up their best advice in a few memorable words.`\
 https://nytimes.com/interactive/2026/01/27/well/health-wellness-tips-experts.html
-
-**Jets reached out to Jon Gruden about joining Aaron Glenn's coaching staff: Sources**\
-`Gruden, according to sources, was not interested in the job.`\
-https://nytimes.com/athletic/7003090/2026/01/27/new-york-jets-jon-gruden/
 
