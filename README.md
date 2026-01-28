@@ -16,7 +16,7 @@ https://nytimes.com/2026/01/27/realestate/california-wildfires-damage-insurance.
 
 **Minnesota Leaders Meet With White House Border Czar**\
 `Gov. Tim Walz and the mayor of Minneapolis, Jacob Frey, met separately with the Trump aide Tom Homan on Tuesday. All three described the discussions as a productive starting point.`\
-https://nytimes.com/2026/01/27/us/minneapolis-walz-frey-homans-ice.html
+https://nytimes.com/2026/01/27/us/minneapolis-walz-frey-homan-ice.html
 
 **Trump Suggests He Will ‘De-Escalate’ in Minneapolis, Without Offering Details**\
 `President Trump continued to put the blame on Alex Pretti for legally carrying a weapon with a permit, saying, “You can’t walk in with guns.”`\
@@ -26,8 +26,8 @@ https://nytimes.com/2026/01/27/us/politics/trump-minneapolis-crackdown.html
 `Tanner Engstrand’s unexpected departure is the latest sign that things could be going awry.`\
 https://nytimes.com/athletic/7002865/2026/01/27/aaron-glenn-new-york-jets-coaching-staff-changes/
 
-**Portland Timbers finalizing deal to acquire Cole Bassett: Sources**\
-`Bassett appeared in 172 games for the Rapids in two stints, but the Timbers are willing to pay roughly $2.65 million cash to bring him in.`\
+**Timbers finalizing deal to acquire Cole Bassett from Rapids: Sources**\
+`Portland will pay a $2.65 million cash trade to acquire Bassett, and $1.05 million in add-ons will bring the total fee to $3.7 million.`\
 https://nytimes.com/athletic/7002906/2026/01/27/portland-timbers-cole-bassett-colorado-rapids-deal/
 
 **Republicans Shift Tone After Killings, Criticizing Trump’s Immigration Push**\

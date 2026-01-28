@@ -1,3 +1,15 @@
+**Trump Threatens to Pull U.S. Help From Iraq if Former Leader Returns**\
+`Nuri Kamal al-Maliki, a former prime minister, has been nominated to the post by the main Shiite Muslim bloc in the Iraqi Parliament.`\
+https://nytimes.com/2026/01/27/us/politics/trump-iraq-al-maliki.html
+
+**Mike McDaniel's vision includes Justin Herbert achieving more by being asked to do less**\
+`The newly hired offensive coordinator explains his alignment with head coach Jim Harbaugh and how to take weight off the QB's shoulders.`\
+https://nytimes.com/athletic/7002863/2026/01/27/mike-mcdaniels-introductory-chargers-news-conference-takeaways/
+
+**Why Did the Trump Administration Silence Bovino on Social Media?**\
+`When the border chief got yanked from Minnesota, he lost access to his X account, too.`\
+https://nytimes.com/2026/01/27/us/politics/bovino-minnesota-social-media-trump.html
+
 **Who Decides When a Home Is Safe? A California Bill Says Science, Not Insurers.**\
 `Following a Times investigation, a state lawmaker is proposing the first health-based standards for assessing smoke contamination after wildfires.`\
 https://nytimes.com/2026/01/27/realestate/california-wildfires-damage-insurance.html
