@@ -1,3 +1,23 @@
+**Trump Administration Live Updates: President Renews Threats to Iran**\
+``\
+https://nytimes.com/live/2026/01/28/us/trump-news
+
+**College basketball mailbag: Could this year's freshman class beat the seniors in an all-star game?**\
+`Could the NCAA take away Alabama's win with Charles Bediako? And which programs are happiest with their second-year coaches?`\
+https://nytimes.com/athletic/7003615/2026/01/28/college-basketball-mailbag-florida-kansas/
+
+**What to Know About Ilhan Omar, the Lawmaker Attacked in Minnesota**\
+`Ms. Omar, a Democratic member of Congress, has come under fire for years, most notably from President Trump.`\
+https://nytimes.com/2026/01/28/us/ilhan-omar-who-is-minnesota-sprayed-attack.html
+
+**Five Questions for Jerome Powell**\
+`Succession drama, legal intrigue and political independence: These are top issues that DealBook would ask of the Federal Reserve chairman.`\
+https://nytimes.com/2026/01/28/business/dealbook/powell-federal-reserve-rates.html
+
+**Trump threatens Iran again and calls for negotiations on a nuclear deal.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2026/01/28/us/trump-news/trump-threatens-iran-again-and-calls-for-negotiations-on-a-nuclear-deal
+
 **Trump threatens Iran again and calls for negotiations on a nuclear deal.**\
 `By Aaron Boxerman`\
 https://nytimes.com/2026/01/28/us/politics/trump-threatens-iran-again-and-calls-for-negotiations-on-a-nuclear-deal.html
