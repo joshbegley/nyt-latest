@@ -1,3 +1,7 @@
+**Yankees trade for Rockies reliever Angel Chivilli, part with prospect TJ Rumfield**\
+`Chivilli posted a 7.06 ERA in 43 appearances last season for Rockies, but the 23-year-old's underlying metrics show some promise.`\
+https://nytimes.com/athletic/7004419/2026/01/28/yankees-rockies-trade-angel-chivilli-tj-rumfield/
+
 **Garnacho's agents told to pay €200k to man who discovered Chelsea winger**\
 `The Court of Arbitration for Sport (CAS) has ordered Leader Sports Management to pay more than €200,000 to Ruben Pascual.`\
 https://nytimes.com/athletic/7004096/2026/01/28/alejandro-garnacho-agent-chelsea-cas/
