@@ -1,3 +1,7 @@
+**U.S. allies in the Middle East have been pressing for weeks to prevent a conflict with Iran.**\
+`Diplomats in the region have spent weeks trying to prevent a confrontation that they say risks a wider conflict.`\
+https://nytimes.com/live/2026/01/28/us/trump-news/iran-us-allies-trump
+
 **Court Orders the Netherlands to Protect a Caribbean Island From Climate Change**\
 `Bonaire, a Dutch overseas territory, deserves the same protections as Europe, the ruling said. The decision adds to a growing body of precedent worldwide.`\
 https://nytimes.com/2026/01/28/climate/netherlands-bonaire-climate-ruling.html
