@@ -1,3 +1,11 @@
+**Brin Gives $20 Million to California Political Group After Leaving State**\
+`Sergey Brin, the co-founder of Google, is donating toward campaigns to solve California’s housing crisis, spurring other billionaires to pitch in. Their efforts may also help ward off a wealth tax.`\
+https://nytimes.com/2026/01/28/us/politics/california-billionaires-sergey-brin-campaign.html
+
+**5 Takeaways From Josh Shapiro’s Memoir**\
+`Politically pointed and heavy on his Jewish faith, the book already has Democrats talking.`\
+https://nytimes.com/2026/01/28/us/politics/josh-shapiro-memoir-where-we-keep-light.html
+
 **Why the Cold War Pact Known as NORAD Is Making Headlines**\
 `The State Department clarified comments made by the U.S. Ambassador to Canada that NORAD would be “altered” if that country did not purchase American F-35 jets.`\
 https://nytimes.com/2026/01/28/world/canada/norad-us-canada-security-agreement.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7005271/2026/01/28/champions-league-usmnt-malik-til
 **Man Sentenced to 15 Years for Role in Plot to Kill Iranian Dissident**\
 `Carlisle Rivera became the third person to be sentenced for playing a role in trying to kill Masih Alinejad, an activist and a critic of the Iranian government.`\
 https://nytimes.com/2026/01/28/nyregion/iranian-dissident-murder-plot-sentencing.html
-
-**‘No Win’ for Minneapolis Police Caught Between Trump and City Residents**\
-`With the Trump administration accusing local police of dereliction and some in the community feeling unprotected, outnumbered Minneapolis officers find themselves facing difficult choices.`\
-https://nytimes.com/2026/01/28/us/politics/minneapolis-police-trump.html
-
-**Plane Carrying Colombian Politicians Crashes in Area Contested by Rebels**\
-`The aircraft was carrying 15 people, and the authorities said there were no survivors.`\
-https://nytimes.com/2026/01/28/world/americas/colombian-plane-politicians-missing.html
 
