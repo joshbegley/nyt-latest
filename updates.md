@@ -1,3 +1,11 @@
+**Initial D.H.S. Review Does Not Say Pretti Brandished Gun, Departing From Noem’s Claim**\
+`A report from an internal agency watchdog says the Minneapolis man was shot by law enforcement after resisting arrest, but makes no mention of the allegations leveled by a Trump administration official shortly after his death.`\
+https://nytimes.com/2026/01/27/us/politics/pretti-shooting-minneapolis-dhs-report.html
+
+**Devils trade Ondrej Palat, 2 picks to Islanders for Maxim Tsyplakov**\
+`Palat was held out of a home game against the Winnipeg Jets for roster-management reasons on Tuesday.`\
+https://nytimes.com/athletic/7002985/2026/01/27/ondrej-palat-trade-devils-islanders-maxim-tsyplakov/
+
 **Minnesota Leaders Meet With White House Border Czar**\
 `Gov. Tim Walz and the mayor of Minneapolis, Jacob Frey, met separately with the Trump aide Tom Homan on Tuesday. All three described the discussions as a productive starting point.`\
 https://nytimes.com/2026/01/27/us/minneapolis-walz-frey-homan-ice.html
