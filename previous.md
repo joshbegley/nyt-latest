@@ -1,3 +1,7 @@
+**'I can't be reading this right': Sports world reacts to Belichick HOF snub**\
+`Belichick, who won six Super Bowls as the head coach of the New England Patriots, fell short of the 40-vote threshold for election.`\
+https://nytimes.com/athletic/7002947/2026/01/27/bill-belichick-hall-of-fame-snub-reactions/
+
 **Initial D.H.S. Review Does Not Say Pretti Brandished Gun, Departing From Noem’s Claim**\
 `A report from an internal agency watchdog says the Minneapolis man was shot by law enforcement after resisting arrest, but makes no mention of the allegations leveled by a Trump administration official shortly after his death.`\
 https://nytimes.com/2026/01/27/us/politics/pretti-shooting-minneapolis-dhs-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/27/us/politics/trump-minneapolis-crackdown.html
 **Inside Aaron Glenn’s and the Jets’ week of coaching-staff turmoil**\
 `Tanner Engstrand’s unexpected departure is the latest sign that things could be going awry.`\
 https://nytimes.com/athletic/7002865/2026/01/27/aaron-glenn-new-york-jets-coaching-staff-changes/
-
-**Timbers finalizing deal to acquire Cole Bassett from Rapids: Sources**\
-`Portland will pay a $2.65 million cash trade to acquire Bassett, and $1.05 million in add-ons will bring the total fee to $3.7 million.`\
-https://nytimes.com/athletic/7002906/2026/01/27/portland-timbers-cole-bassett-colorado-rapids-deal/
 
