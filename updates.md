@@ -1,3 +1,11 @@
+**Premier League, MLS lobbying for temporary concussion substitutes**\
+`More than 25 leagues and unions signed a letter in support of TCSs before football's lawmakers meet next month. `\
+https://nytimes.com/athletic/7004457/2026/01/28/premier-league-mls-temporary-concussion-substitutes/
+
+**How to Come Together on Immigration**\
+`Readers respond to an essay by Representative Mike Lawler, Republican of New York. Also: A suggestion for Columbia’s new president; a “no” from Canada.`\
+https://nytimes.com/2026/01/28/opinion/minneapolis-immigration.html
+
 **Turn Movie Magic Into Literary Analysis With ‘Anatomy of a Scene’**\
 `Using a Times video series as a model, an English teacher puts her students in the director’s chair.`\
 https://nytimes.com/2026/01/28/learning/lesson-plans/turn-movie-magic-into-literary-analysis-with-anatomy-of-a-scene.html
