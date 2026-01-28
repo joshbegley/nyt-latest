@@ -1,40 +1,40 @@
-**What We Know About the Man Who Sprayed Liquid on Representative Ilhan Omar**\
-`Anthony J. Kazmierczak frequently posted and shared posts online about conservative issues. He told a neighbor that he was going to get arrested at an event hosted by Ms. Omar.`\
-https://nytimes.com/2026/01/28/us/ilhan-omar-attacker-what-we-know.html
+**The Briefing: Barcelona secure Champions League last 16 spot with Copenhagen comeback**\
+`Barcelona book their place in the Champions League last 16 with a home victory over their Danish opponents`\
+https://nytimes.com/athletic/6999818/2026/01/28/barcelona-champions-league-copenhagen-result-analysis/
 
-**Why Was Sydney Sweeney Throwing Bras Around in the Dark?**\
-`The actress proved, once again, she has a knack for thriving in the attention economy.`\
-https://nytimes.com/2026/01/28/style/sweeney-throwing-lingerie-bras-hollywood.html
+**Marco Rubio Asserts Control Over Venezuela’s Budget**\
+`During a hearing on Venezuela on Wednesday, Secretary of State Marco Rubio shared the Trump administration’s plan to control Venezuela’s spending. Lawmakers shared concerns with Mr. Rubio that Congress was not consulted on the military operation before it happened.`\
+https://nytimes.com/video/us/politics/100000010674839/marco-rubio-venezuela-hearing.html
 
-**Microsoft Continues to Spend Big on A.I. While Profit Jumps 60 Percent**\
-`The company said on Wednesday that revenue in the most recent quarter was $81.3 billion, but its share price dropped more than 5 percent in after-hours trading.`\
-https://nytimes.com/2026/01/28/technology/microsoft-earnings-ai-expenditures.html
+**Tens of Thousands Still Without Power After Storm Cripples the South**\
+`Across Tennessee, Mississippi and Louisiana, hundreds of power lines and poles remained damaged after freezing rain and low temperatures coated much of the region in ice over the weekend.`\
+https://nytimes.com/2026/01/28/us/politics/tennessee-mississippi-louisiana-power-outages.html
 
-**Canada’s New Reality**\
-`What can we learn from Canada’s pivot away from the U.S.?`\
-https://nytimes.com/2026/01/28/world/canada-tariffs-trump-iran-threats.html
+**The Briefing: Arsenal 3 Kairat 2 - Arteta's side top the Champions League group phase**\
+`Arsenal made it eight wins out of eight in the Champions League group phase`\
+https://nytimes.com/athletic/6999815/2026/01/28/arsenal-kairat-result-havertz-champions-league/
 
-**What to know about the Fed decision.**\
-`By Ana Swanson`\
-https://nytimes.com/2026/01/28/business/economy/what-to-know-about-the-fed-decision.html
+**The Briefing: Liverpool 6 Qarabag 0 - Frimpong injury, European respite, and set-piece strengths**\
+`Liverpool secured qualification to the Champions League round of 16 with a convincing home win over Qarabag`\
+https://nytimes.com/athletic/7001599/2026/01/28/liverpool-qarabag-champions-league-mac-allister/
 
-**Meta Forecasts Spending of at Least $115 Billion This Year**\
-`That would be a major jump from the $72 billion that the Silicon Valley tech giant shelled out last year, as it aims to compete in the artificial intelligence race.`\
-https://nytimes.com/2026/01/28/technology/meta-earnings-ai-spending.html
+**The Briefing: Frankfurt 0 Tottenham 2 - Hats off to Thomas Frank and Kolo Muani loves a revenge game**\
+`Kolo Muani and Solanke scored the goals as Tottenham secured a top-eight finish to advance into the last 16 of the Champions League`\
+https://nytimes.com/athletic/6999817/2026/01/28/tottenham-qualify-champions-league-frank/
 
-**Sly Dunbar, Whose Drumming Brought Complex Beats to Reggae, Dies at 73**\
-`As one half of the famed rhythm duo Sly and Robbie, he played with some of the biggest names in music, including Bob Dylan and Mick Jagger.`\
-https://nytimes.com/2026/01/28/arts/music/sly-dunbar-dead.html
+**The Briefing: PSG 1 Newcastle 1 - How far can Howe's side go? Why did PSG drop off? What is a CL handball?**\
+`Our writers break down the action for the decisive matchday eight game at the Parc des Princes.`\
+https://nytimes.com/athletic/7001602/2026/01/28/psg-newcastle-vitinha-champions-league/
 
-**Giannis' future has personal impact on Milwaukee native Podziemski**\
-`Podziemski, who grew up a Bucks fan, admits he has trouble envisioning Antetokounmpo in another team's uniform.`\
-https://nytimes.com/athletic/7004960/2026/01/28/giannis-antetokounmpo-trade-warriors-brandin-podziemski/
+**Rama Duwaji Joins New Yorkers at an Art Party**\
+`The city’s first lady showed up for a night out with artists, writers and celebrities at the Whitney Museum’s winter fund-raiser.`\
+https://nytimes.com/2026/01/28/style/whitney-art-party-nyc-rama-duwaji.html
 
-**Dissident Who Daringly Documented Uyghurs’ Repression Wins Asylum**\
-`Heng Guan, a Chinese national, will not be released immediately, as Homeland Security said it was reserving the right to appeal.`\
-https://nytimes.com/2026/01/28/us/politics/heng-guan-china-uyghurs-asylum.html
+**Rockets' Steven Adams has season-ending ankle surgery: Source**\
+`Adams was having one of his best seasons in recent memory, and the Rockets utilized his size to dominate the offensive glass.`\
+https://nytimes.com/athletic/7004991/2026/01/28/steven-adams-houston-rockets-ankle-surgery/
 
-**When the Snow Won’t Melt, New York Brings Out the Hot Tubs**\
-`With no warm weather expected any time soon, the city’s snow piles require mechanical intervention.`\
-https://nytimes.com/2026/01/28/nyregion/new-york-hot-tubs-snow-storm.html
+**Todd Monken is a blunt, offensive-minded coach. But is he what the Browns needed?**\
+`Monken has had success at the college and NFL levels. However, Cleveland currently lacks the offensive talent he needs to succeed. `\
+https://nytimes.com/athletic/7004773/2026/01/28/browns-todd-monken-head-coach/
 
