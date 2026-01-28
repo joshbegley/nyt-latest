@@ -1,3 +1,7 @@
+**Yankees trade for Rockies reliever Angel Chivilli, part with prospect TJ Rumfield**\
+`Chivilli posted a 7.06 ERA in 43 appearances last season for Rockies, but the 23-year-old's underlying metrics show some promise.`\
+https://nytimes.com/athletic/7004419/2026/01/28/yankees-rockies-trade-angel-chivilli-tj-rumfield/
+
 **Garnacho's agents told to pay €200k to man who discovered Chelsea winger**\
 `The Court of Arbitration for Sport (CAS) has ordered Leader Sports Management to pay more than €200,000 to Ruben Pascual.`\
 https://nytimes.com/athletic/7004096/2026/01/28/alejandro-garnacho-agent-chelsea-cas/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/us/politics/trump-iran-armada.html
 **Court grants NCAA request for Alabama judge's recusal in Charles Bediako lawsuit**\
 `Legal representatives say media scrutiny and speculation on the judge's link with the university could give the "appearance of partiality."`\
 https://nytimes.com/athletic/7000888/2026/01/28/charles-bediako-alabama-ncaa-judge-lawsuit/
-
-**How Battlefield Tech Was Used in Minneapolis**\
-`Our reporter Thomas Gibbons-Neff, who deployed twice to Afghanistan as a Marine and later was our Kabul bureau chief, looks at the battlefield technology used for an immigration arrest at a home in Minneapolis.`\
-https://nytimes.com/video/us/100000010669560/how-battlefield-tech-was-used-in-minneapolis.html
 
