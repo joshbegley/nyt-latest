@@ -1,6 +1,22 @@
+**Trump Administration Live Updates: President Renews Threats to Iran**\
+``\
+https://nytimes.com/live/2026/01/28/us/trump-news
+
+**College basketball mailbag: Could this year's freshman class beat the seniors in an all-star game?**\
+`Could the NCAA take away Alabama's win with Charles Bediako? And which programs are happiest with their second-year coaches?`\
+https://nytimes.com/athletic/7003615/2026/01/28/college-basketball-mailbag-florida-kansas/
+
+**What to Know About Ilhan Omar, the Lawmaker Attacked in Minnesota**\
+`Ms. Omar, a Democratic member of Congress, has come under fire for years, most notably from President Trump.`\
+https://nytimes.com/2026/01/28/us/ilhan-omar-who-is-minnesota-sprayed-attack.html
+
+**Five Questions for Jerome Powell**\
+`Succession drama, legal intrigue and political independence: These are top issues that DealBook would ask of the Federal Reserve chairman.`\
+https://nytimes.com/2026/01/28/business/dealbook/powell-federal-reserve-rates.html
+
 **Trump threatens Iran again and calls for negotiations on a nuclear deal.**\
 `By Aaron Boxerman`\
-https://nytimes.com/2026/01/28/us/politics/trump-threatens-iran-again-and-calls-for-negotiations-on-a-nuclear-deal.html
+https://nytimes.com/live/2026/01/28/us/trump-news/trump-threatens-iran-again-and-calls-for-negotiations-on-a-nuclear-deal
 
 **Clay, an A.I. Sales Start-Up, Lets Employees Cash Out. Again.**\
 `The company is part of a newer generation of software upstarts holding multiple tender offers where workers can sell stock before going public.`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7001596/2026/01/28/the-realest-collectibles-investm
 **To Combat Fake Water Filters, GE Appliances Opens Own U.S. Factory**\
 `Refrigerator manufacturers have been battling counterfeit filters for years. Now GE Appliances is taking the fight up a notch.`\
 https://nytimes.com/2026/01/28/us/ge-appliances-water-filters-factory.html
-
-**Forest in talks over Wolves goalkeeper Jose Sa**\
-`Forest have previously held an interest in former Olympiacos goalkeeper Sa in the summer of 2023.`\
-https://nytimes.com/athletic/7003908/2026/01/28/nottingham-forest-transfers-jose-sa-wolves/
-
-**Nervous Allies and Fox News: How Trump Realized He Had a Big Problem in Minneapolis**\
-`President Trump often blusters his way through a crisis, refusing to back down. Minneapolis tested the limits of that strategy.`\
-https://nytimes.com/2026/01/28/us/politics/trump-minnesota-noem-bovino-homan-miller.html
-
-**Pistons overwhelm Nuggets with defensive depth: 'We're a nightmare for teams'**\
-`Detroit's assembly line of defenders allows it to overcome a bad shooting night like Tuesday's 6 of 31 performance behind the arc.`\
-https://nytimes.com/athletic/7003566/2026/01/28/pistons-defense-ausar-thompson-nuggets/
-
-**Ecuador Objects After ICE Agent Tries to Enter Minneapolis Consulate**\
-`Video showed diplomatic staff blocking the agent from entering on Tuesday morning.`\
-https://nytimes.com/2026/01/28/us/ice-ecuador-consulate-minneapolis.html
 
