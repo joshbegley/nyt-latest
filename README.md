@@ -1,3 +1,7 @@
+**How to Come Together on Immigration**\
+`Readers respond to an essay by Representative Mike Lawler, Republican of New York. Also: A suggestion for Columbia’s new president; a “no” from Canada.`\
+https://nytimes.com/2026/01/28/opinion/minneapolis-immigration.html
+
 **Turn Movie Magic Into Literary Analysis With ‘Anatomy of a Scene’**\
 `Using a Times video series as a model, an English teacher puts her students in the director’s chair.`\
 https://nytimes.com/2026/01/28/learning/lesson-plans/turn-movie-magic-into-literary-analysis-with-anatomy-of-a-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7004251/2026/01/28/mikael-kingsbury-marielle-thomps
 **Live Updates: Fed Set to Pause Rate Cuts**\
 `The Federal Reserve is expected to hold interest rates steady despite relentless attacks from President Trump, who wants borrowing costs to be much lower.`\
 https://nytimes.com/live/2026/01/28/business/federal-reserve-interest-rates
-
-**How the Fed’s Rate Decisions Affect Your Wallet**\
-`The central bank’s policy stance can influence consumer savings and borrowing, from car financing to home equity loans. Here’s how it works.`\
-https://nytimes.com/2026/01/28/your-money/fed-rates-mortgages-credit-cards-loans.html
 

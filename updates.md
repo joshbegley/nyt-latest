@@ -1,3 +1,7 @@
+**Turn Movie Magic Into Literary Analysis With ‘Anatomy of a Scene’**\
+`Using a Times video series as a model, an English teacher puts her students in the director’s chair.`\
+https://nytimes.com/2026/01/28/learning/lesson-plans/turn-movie-magic-into-literary-analysis-with-anatomy-of-a-scene.html
+
 **Which Hall of Fame voters spurned Bill Belichick? Fans deserve to know**\
 `The HOF lacks credibility because of its lack of transparency. We shouldn’t be asking about the Belichick 11. They should be telling us.`\
 https://nytimes.com/athletic/7004344/2026/01/28/bill-belichick-hall-of-fame-snub-nfl-voting/

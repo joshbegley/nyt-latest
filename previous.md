@@ -1,3 +1,7 @@
+**Turn Movie Magic Into Literary Analysis With ‘Anatomy of a Scene’**\
+`Using a Times video series as a model, an English teacher puts her students in the director’s chair.`\
+https://nytimes.com/2026/01/28/learning/lesson-plans/turn-movie-magic-into-literary-analysis-with-anatomy-of-a-scene.html
+
 **Which Hall of Fame voters spurned Bill Belichick? Fans deserve to know**\
 `The HOF lacks credibility because of its lack of transparency. We shouldn’t be asking about the Belichick 11. They should be telling us.`\
 https://nytimes.com/athletic/7004344/2026/01/28/bill-belichick-hall-of-fame-snub-nfl-voting/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/28/business/federal-reserve-interest-rates
 **How the Fed’s Rate Decisions Affect Your Wallet**\
 `The central bank’s policy stance can influence consumer savings and borrowing, from car financing to home equity loans. Here’s how it works.`\
 https://nytimes.com/2026/01/28/your-money/fed-rates-mortgages-credit-cards-loans.html
-
-**The Fed Is Waiting and Watching an Uncertain Economy**\
-`Inflation is elevated but steady and the job market is holding up, leading economists to predict that the Federal Reserve will keep interest rates at current levels.`\
-https://nytimes.com/2026/01/28/business/economy/economy-hiring-inflation-federal-reserve.html
 
