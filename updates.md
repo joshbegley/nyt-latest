@@ -1,3 +1,11 @@
+**Dozens Arrested After Anti-ICE Protest at a Manhattan Hilton**\
+`The demonstration at the TriBeCa hotel followed a similar targeting of a Hilton property in Minneapolis on Sunday.`\
+https://nytimes.com/2026/01/27/nyregion/ice-protest-hilton-manhattan.html
+
+**Democrats Restore Minnesota House to Even Split Amid Immigration Turmoil**\
+`In special elections on Tuesday, Democrats won two left-leaning districts, preventing Republicans from holding a majority in the State House of Representatives.`\
+https://nytimes.com/2026/01/27/us/minnesota-house-special-elections.html
+
 **U.S. Expects to Finish Review of Epstein Files Soon, Bondi Says**\
 `By law, the government was required to release its files on Jeffrey Epstein in December. Now the attorney general said they will be out “in the near term.”`\
 https://nytimes.com/2026/01/27/nyregion/epstein-files-release-bondi.html
