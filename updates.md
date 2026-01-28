@@ -1,3 +1,19 @@
+**Who’s Supposed to Clear the Snow From New York City’s Street Corners?**\
+`Three days after the city’s biggest snowstorm in years, many New Yorkers are still scaling mounds of snow and ice. Cleaning it up is a shared responsibility.`\
+https://nytimes.com/2026/01/28/nyregion/nyc-snow-mountains-crosswalks-bus-stops.html
+
+**USMNT in Champions League: Tillman's double, Weah heartbreak in league phase finales**\
+`Malik Tillman's return to scoring form helped Leverkusen through, but Tim Weah's Marseille was ousted in dramatic and stunning fashion`\
+https://nytimes.com/athletic/7005271/2026/01/28/champions-league-usmnt-malik-tillman-goals-tim-weah-marseille/
+
+**Man Sentenced to 15 Years for Role in Plot to Kill Iranian Dissident**\
+`Carlisle Rivera became the third person to be sentenced for playing a role in trying to kill Masih Alinejad, an activist and a critic of the Iranian government.`\
+https://nytimes.com/2026/01/28/nyregion/iranian-dissident-murder-plot-sentencing.html
+
+**‘No Win’ for Minneapolis Police Caught Between Trump and City Residents**\
+`With the Trump administration accusing local police of dereliction and some in the community feeling unprotected, outnumbered Minneapolis officers find themselves facing difficult choices.`\
+https://nytimes.com/2026/01/28/us/politics/minneapolis-police-trump.html
+
 **Plane Carrying Colombian Politicians Crashes in Area Contested by Rebels**\
 `The aircraft was carrying 15 people, and the authorities said there were no survivors.`\
 https://nytimes.com/2026/01/28/world/americas/colombian-plane-politicians-missing.html

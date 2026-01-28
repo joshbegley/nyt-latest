@@ -1,3 +1,19 @@
+**Who’s Supposed to Clear the Snow From New York City’s Street Corners?**\
+`Three days after the city’s biggest snowstorm in years, many New Yorkers are still scaling mounds of snow and ice. Cleaning it up is a shared responsibility.`\
+https://nytimes.com/2026/01/28/nyregion/nyc-snow-mountains-crosswalks-bus-stops.html
+
+**USMNT in Champions League: Tillman's double, Weah heartbreak in league phase finales**\
+`Malik Tillman's return to scoring form helped Leverkusen through, but Tim Weah's Marseille was ousted in dramatic and stunning fashion`\
+https://nytimes.com/athletic/7005271/2026/01/28/champions-league-usmnt-malik-tillman-goals-tim-weah-marseille/
+
+**Man Sentenced to 15 Years for Role in Plot to Kill Iranian Dissident**\
+`Carlisle Rivera became the third person to be sentenced for playing a role in trying to kill Masih Alinejad, an activist and a critic of the Iranian government.`\
+https://nytimes.com/2026/01/28/nyregion/iranian-dissident-murder-plot-sentencing.html
+
+**‘No Win’ for Minneapolis Police Caught Between Trump and City Residents**\
+`With the Trump administration accusing local police of dereliction and some in the community feeling unprotected, outnumbered Minneapolis officers find themselves facing difficult choices.`\
+https://nytimes.com/2026/01/28/us/politics/minneapolis-police-trump.html
+
 **Plane Carrying Colombian Politicians Crashes in Area Contested by Rebels**\
 `The aircraft was carrying 15 people, and the authorities said there were no survivors.`\
 https://nytimes.com/2026/01/28/world/americas/colombian-plane-politicians-missing.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/28/style/tiny-modern-love-stories-the-cooler-funnier
 **UCL round-up: Arsenal top table, Madrid drop into play-offs**\
 `Chelsea held on to their top-eight place, while Bodo/Glimt reached the play-offs.`\
 https://nytimes.com/athletic/7004805/2026/01/28/arsenal-chelsea-tottenham-champions-league-standings-results/
-
-**Patriots' Robert Kraft calls for Bill Belichick's Hall of Fame inclusion**\
-`Despite perceived tensions in their relationship, Patriots owner Robert Kraft said Belichick unequivocally deserves Hall of Fame induction.`\
-https://nytimes.com/athletic/7005003/2026/01/28/robert-kraft-bill-belichick-hall-of-fame-patriots/
-
-**The Briefing: Napoli 2 Chelsea 3 - A statement win for Liam Rosenior as Joao Pedro ensures top-eight finish**\
-`The Athletic's writers break down an intense night at the Stadio Diego Armando Maradona `\
-https://nytimes.com/athletic/7001601/2026/01/28/napoli-chelsea-champions-league-analysis/
-
-**The Briefing: Man City 2 Galatasaray 0 – Doku injury blow, Foden's continuing struggle, is Haaland back?**\
-`Guardiola will be happy that his side have qualified for the round of 16 automatically, meaning his side will avoid a two-legged play-off`\
-https://nytimes.com/athletic/7001600/2026/01/28/man-city-2-galatasaray-0-doku-foden-haaland/
-
-**How to Bring Back the American Dream**\
-`Some of the best coaches we can find to help struggling children escape poverty may be other children and their families.`\
-https://nytimes.com/2026/01/28/opinion/american-dream-poverty.html
 
