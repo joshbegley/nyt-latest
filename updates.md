@@ -1,3 +1,11 @@
+**How Battlefield Tech Was Used in Minneapolis**\
+`Our reporter Thomas Gibbons-Neff, who deployed twice to Afghanistan as a Marine and later was our Kabul bureau chief, looks at the battlefield technology used for an immigration arrest at a home in Minneapolis.`\
+https://nytimes.com/video/us/100000010669560/how-battlefield-tech-was-used-in-minneapolis.html
+
+**A Big Day for Thigh High Boots on Men**\
+`Paris men’s fashion week comes to a close with Saint Laurent.`\
+https://nytimes.com/2026/01/28/style/saint-laurent-mens.html
+
 **Mikaël Kingsbury, Marielle Thompson named as Canada's Olympic flag bearers**\
 `Kingsbury and Thompson are Canada’s 27th and 28th Winter Olympics opening ceremony flag bearers.`\
 https://nytimes.com/athletic/7004251/2026/01/28/mikael-kingsbury-marielle-thompson-canada-olympics-flag-bearers/

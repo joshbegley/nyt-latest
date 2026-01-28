@@ -1,3 +1,19 @@
+**Which Hall of Fame voters spurned Bill Belichick? Fans deserve to know**\
+`The HOF lacks credibility because of its lack of transparency. We shouldn’t be asking about the Belichick 11. They should be telling us.`\
+https://nytimes.com/athletic/7004344/2026/01/28/bill-belichick-hall-of-fame-snub-nfl-voting/
+
+**Luxury Travel**\
+``\
+https://nytimes.com/spotlight/luxury-travel
+
+**Trump Threatens Iran With ‘Massive Armada’ and Presses a Set of Demands**\
+`U.S. and European officials say they have put three demands in front of the Iranians, including a permanent end to all enrichment of uranium.`\
+https://nytimes.com/2026/01/28/us/politics/trump-iran-armada.html
+
+**Court grants NCAA request for Alabama judge's recusal in Charles Bediako lawsuit**\
+`Legal representatives say media scrutiny and speculation on the judge's link with the university could give the "appearance of partiality."`\
+https://nytimes.com/athletic/7000888/2026/01/28/charles-bediako-alabama-ncaa-judge-lawsuit/
+
 **How Battlefield Tech Was Used in Minneapolis**\
 `Our reporter Thomas Gibbons-Neff, who deployed twice to Afghanistan as a Marine and later was our Kabul bureau chief, looks at the battlefield technology used for an immigration arrest at a home in Minneapolis.`\
 https://nytimes.com/video/us/100000010669560/how-battlefield-tech-was-used-in-minneapolis.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/28/your-money/fed-rates-mortgages-credit-cards-loans
 **The Fed Is Waiting and Watching an Uncertain Economy**\
 `Inflation is elevated but steady and the job market is holding up, leading economists to predict that the Federal Reserve will keep interest rates at current levels.`\
 https://nytimes.com/2026/01/28/business/economy/economy-hiring-inflation-federal-reserve.html
-
-**Life on an Antarctic Glacier: Tea, Cheese and Lots of Shoveling**\
-`After working and camping for a week on Thwaites Glacier, scientists were ready to start drilling into the ice, if only the weather would let them.`\
-https://nytimes.com/2026/01/28/climate/antarctica-thwaites-glacier-drilling.html
-
-**Jayson Tatum weighs challenges of his Celtics return: 'Something I contemplate every day'**\
-`That the Celtics All-Star is considering how his return will impact others shows he is putting his team ahead of himself.`\
-https://nytimes.com/athletic/7004155/2026/01/28/jayson-tatum-celtics-return-nba/
-
-**Can I Tell a Member of My Church That I Recognize Him from a Dating App?**\
-`It would mean a lot to have someone I could relate to.`\
-https://nytimes.com/2026/01/28/magazine/recognize-dating-app-ethics.html
-
-**Silver Prices Are Surging Even Faster Than Gold**\
-`Silver has risen roughly 60 percent this month alone. What is going on?`\
-https://nytimes.com/2026/01/28/business/silver-gold-prices.html
 

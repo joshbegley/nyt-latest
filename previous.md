@@ -1,3 +1,11 @@
+**How Battlefield Tech Was Used in Minneapolis**\
+`Our reporter Thomas Gibbons-Neff, who deployed twice to Afghanistan as a Marine and later was our Kabul bureau chief, looks at the battlefield technology used for an immigration arrest at a home in Minneapolis.`\
+https://nytimes.com/video/us/100000010669560/how-battlefield-tech-was-used-in-minneapolis.html
+
+**A Big Day for Thigh High Boots on Men**\
+`Paris men’s fashion week comes to a close with Saint Laurent.`\
+https://nytimes.com/2026/01/28/style/saint-laurent-mens.html
+
 **Mikaël Kingsbury, Marielle Thompson named as Canada's Olympic flag bearers**\
 `Kingsbury and Thompson are Canada’s 27th and 28th Winter Olympics opening ceremony flag bearers.`\
 https://nytimes.com/athletic/7004251/2026/01/28/mikael-kingsbury-marielle-thompson-canada-olympics-flag-bearers/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/28/magazine/recognize-dating-app-ethics.html
 **Silver Prices Are Surging Even Faster Than Gold**\
 `Silver has risen roughly 60 percent this month alone. What is going on?`\
 https://nytimes.com/2026/01/28/business/silver-gold-prices.html
-
-**Patrick Reed leaving LIV Golf, will return to PGA Tour in 2027**\
-`Reed will play on the DP World Tour through August as he serves a PGA Tour suspension.`\
-https://nytimes.com/athletic/7004122/2026/01/28/golf-liv-pga-patrick-reed-contract-suspension/
-
-**Jets hire Brian Duker as defensive coordinator, Aaron Glenn to take over play calling: Sources**\
-`Duker, who worked with Glenn in Detroit, was the Miami Dolphins' pass game coordinator/secondary coach the past two seasons.`\
-https://nytimes.com/athletic/7004342/2026/01/28/new-york-jets-defensive-coordinator-brian-duker-aaron-glenn/
 
