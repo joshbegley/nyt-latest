@@ -1,3 +1,11 @@
+**When Conservative Politics Hit Cash-Starved Universities**\
+`If college education is merely a transaction, educators — and facts — are vulnerable.`\
+https://nytimes.com/2026/01/28/opinion/conservative-campus-politics.html
+
+**Why Do Houseguests Expect Us to Pay for Any Food During Their Visits?**\
+`A married couple is unsure how to get guests at their vacation home to pony up for groceries — ideally without being asked.`\
+https://nytimes.com/2026/01/28/style/houseguests-cost-splitting.html
+
 **Gianni Infantino's world tour: From Kigali to Boston, the FIFA president who enjoys the big stage**\
 `The FIFA president clearly feels at home on the world stage - as his dizzying travel schedule reflects`\
 https://nytimes.com/athletic/6985207/2026/01/28/gianni-infantinos-world-tour-fifa-world-cup/
@@ -25,16 +33,4 @@ https://nytimes.com/2026/01/28/us/ilhan-omar-who-is-minnesota-sprayed-attack.htm
 **Five Questions for Jerome Powell**\
 `Succession drama, legal intrigue and political independence: These are top issues that DealBook would ask of the Federal Reserve chairman.`\
 https://nytimes.com/2026/01/28/business/dealbook/powell-federal-reserve-rates.html
-
-**Trump threatens Iran again and calls for negotiations on a nuclear deal.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2026/01/28/us/trump-news/trump-threatens-iran-again-and-calls-for-negotiations-on-a-nuclear-deal
-
-**Clay, an A.I. Sales Start-Up, Lets Employees Cash Out. Again.**\
-`The company is part of a newer generation of software upstarts holding multiple tender offers where workers can sell stock before going public.`\
-https://nytimes.com/2026/01/28/business/dealbook/clay-start-up-tender-offers.html
-
-**'Door is open' for MLS, Liga MX clubs to play in Copa Libertadores – CONMEBOL chief**\
-`His comments come after Inter Miami's managing owner Jorge Mas said it was his "dream" for the club to participate in the competition.`\
-https://nytimes.com/athletic/7003669/2026/01/28/copa-libertadores-teams-us-mexico/
 
