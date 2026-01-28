@@ -1,3 +1,7 @@
+**Iga Świątek adds to Coco Gauff criticism of Australian Open cameras: 'Are we animals in the zoo?'**\
+`The world No. 2 asked if tennis players were “animals in a zoo” following a quarterfinal loss to Elena Rybakina`\
+https://nytimes.com/athletic/7003516/2026/01/28/tennis-australian-open-cameras-player-privacy-gauff-swiatek/
+
 **Lorenzo Musetti retires injured one set away from beating Novak Djokovic at Australian Open**\
 `Musetti led the 10-time champion 6-4, 6-3 before suffering an injury to his right leg early in the third set.`\
 https://nytimes.com/athletic/7003579/2026/01/28/lorenzo-musetti-novak-djokovic-australian-open-retired/
