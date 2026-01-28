@@ -1,3 +1,11 @@
+**Ecuador Objects After ICE Agent Tries to Enter Minneapolis Consulate**\
+`Video showed diplomatic staff blocking the agent from entering on Tuesday morning.`\
+https://nytimes.com/2026/01/28/us/ice-ecuador-consulate-minneapolis.html
+
+**Australian Open recap: Ben Shelton reaches out and touches tennis faith despite Sinner loss**\
+`The American was philosophical about the way he is evolving as a player, especially at Grand Slams.`\
+https://nytimes.com/athletic/7003060/2026/01/28/australian-open-recap-ben-shelton-reaches-out-and-touches-tennis-faith-despite-sinner-loss/
+
 **Mandel's Mailbag: Does college sports want rules? Where to rank Indiana?**\
 `Plus, why the SEC and Big Ten control the CFP, what coaching hires were actually downgrades and Deion Sanders' future at Colorado.`\
 https://nytimes.com/athletic/7002978/2026/01/28/clemson-ole-miss-dabo-swinney-indiana-rank/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7002482/2026/01/28/college-football-post-portal-qb-
 **Rangers insider: What I'm hearing about Panarin, Trocheck, Schneider and more**\
 `With the trade deadline just over five weeks away, a cloud of uncertainty hangs over many of the players rumored to be available.`\
 https://nytimes.com/athletic/7002597/2026/01/28/rangers-nhl-trade-deadline-panarin-trocheck-schneider/
-
-**What I'm hearing: Penguins' deadline plans, Skinner's future**\
-`The Penguins are likely to focus on the defenseman market before the NHL trade deadline. `\
-https://nytimes.com/athletic/7001995/2026/01/28/penguins-nhl-trade-deadline-defensemen/
-
-**Missing in Kabul: The U.S. Citizen Witnesses Say Was Held by the Taliban**\
-`Taliban officials deny holding a U.S.-Afghan citizen, who witnesses and U.S. officials say was detained by Afghanistan’s intelligence services in 2022.`\
-https://nytimes.com/2026/01/28/world/asia/us-citizen-missing-afghanistan-taliban.html
 

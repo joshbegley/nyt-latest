@@ -1,3 +1,7 @@
+**Mandel's Mailbag: Does college sports want rules? Where to rank Indiana?**\
+`Plus, why the SEC and Big Ten control the CFP, what coaching hires were actually downgrades and Deion Sanders' future at Colorado.`\
+https://nytimes.com/athletic/7002978/2026/01/28/clemson-ole-miss-dabo-swinney-indiana-rank/
+
 **Koumas set to join Hull on loan from Liverpool**\
 `Fellow academy graduate Calum Scanlon is also a target for Cardiff City.`\
 https://nytimes.com/athletic/7003831/2026/01/28/liverpool-lewis-koumas-hull-loan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7001995/2026/01/28/penguins-nhl-trade-deadline-defe
 **Missing in Kabul: The U.S. Citizen Witnesses Say Was Held by the Taliban**\
 `Taliban officials deny holding a U.S.-Afghan citizen, who witnesses and U.S. officials say was detained by Afghanistan’s intelligence services in 2022.`\
 https://nytimes.com/2026/01/28/world/asia/us-citizen-missing-afghanistan-taliban.html
-
-**Doomsday Clock Ticks Closer Than Ever to Apocalypse**\
-`Wars, climate change, disruptive technologies and the rise of autocracy over the past year prompted scientists to set the clock at 85 seconds to midnight.`\
-https://nytimes.com/2026/01/28/us/doomsday-clock-2026.html
 

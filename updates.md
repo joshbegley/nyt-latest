@@ -1,3 +1,7 @@
+**Mandel's Mailbag: Does college sports want rules? Where to rank Indiana?**\
+`Plus, why the SEC and Big Ten control the CFP, what coaching hires were actually downgrades and Deion Sanders' future at Colorado.`\
+https://nytimes.com/athletic/7002978/2026/01/28/clemson-ole-miss-dabo-swinney-indiana-rank/
+
 **Koumas set to join Hull on loan from Liverpool**\
 `Fellow academy graduate Calum Scanlon is also a target for Cardiff City.`\
 https://nytimes.com/athletic/7003831/2026/01/28/liverpool-lewis-koumas-hull-loan/
