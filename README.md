@@ -1,3 +1,7 @@
+**Initial D.H.S. Review Does Not Say Pretti Brandished Gun, Departing From Noem’s Claim**\
+`A report from an internal agency watchdog says the Minneapolis man was shot by law enforcement after resisting arrest, but makes no mention of the allegations leveled by a Trump administration official shortly after his death.`\
+https://nytimes.com/2026/01/27/us/politics/pretti-shooting-minneapolis-dhs-report.html
+
 **Devils trade Ondrej Palat, 2 picks to Islanders for Maxim Tsyplakov**\
 `Palat was held out of a home game against the Winnipeg Jets for roster-management reasons on Tuesday.`\
 https://nytimes.com/athletic/7002985/2026/01/27/ondrej-palat-trade-devils-islanders-maxim-tsyplakov/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7002865/2026/01/27/aaron-glenn-new-york-jets-coachi
 **Timbers finalizing deal to acquire Cole Bassett from Rapids: Sources**\
 `Portland will pay a $2.65 million cash trade to acquire Bassett, and $1.05 million in add-ons will bring the total fee to $3.7 million.`\
 https://nytimes.com/athletic/7002906/2026/01/27/portland-timbers-cole-bassett-colorado-rapids-deal/
-
-**Republicans Shift Tone After Killings, Criticizing Trump’s Immigration Push**\
-`With the president signaling a pivot in his crackdown, G.O.P. lawmakers have felt freer to express concern. But it’s not clear what they are willing to do about it.`\
-https://nytimes.com/2026/01/27/us/republicans-shift-tone-immigration.html
 
