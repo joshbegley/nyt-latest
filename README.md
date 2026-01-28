@@ -1,3 +1,7 @@
+**Amazon to Cut 16,000 Jobs in Latest Round of Layoffs**\
+`The e-commerce giant has been cutting costs in part to redirect money into building data centers to compete in the race to dominate artificial intelligence.`\
+https://nytimes.com/2026/01/28/technology/amazon-corporate-layoffs.html
+
 **Iran Killed Thousands of Protesters. Here Are Five of Their Stories.**\
 `“He went out for freedom,” said the cousin of one of those who was killed when Iranian authorities mounted a deadly crackdown on protests across the country.`\
 https://nytimes.com/2026/01/28/world/middleeast/iran-protester-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todaysinyt/2026/01/28/todays-new-york-times-internatio
 **A City Where Every Step Outside Risks Death by Drone**\
 `Russian attacks on civilians in Kherson, in southern Ukraine, have forced important aspects of life to go underground, offering a vision of a postapocalyptic future.`\
 https://nytimes.com/2026/01/28/world/europe/kherson-ukraine-drones-russia.html
-
-**Villa agree Luiz loan deal with option to buy**\
-`The switch will see the Brazil international return to the club where he made over 200 appearances between 2019 and 2024.`\
-https://nytimes.com/athletic/7001396/2026/01/28/aston-villa-douglas-luiz-transfer-loan/
 
