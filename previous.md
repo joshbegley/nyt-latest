@@ -1,3 +1,11 @@
+**First look at Ohio State's depth chart: What's new for 2026?**\
+`What to expect from Ohio State's football depth chart next season with the coaching staff being solidified and the transfer portal closed.`\
+https://nytimes.com/athletic/7002094/2026/01/28/ohio-state-football-depth-chart-2026/
+
+**Putin, Still Harboring Assad, Welcomes New Syrian Leader to Moscow Again**\
+`President Vladimir V. Putin and President Ahmed al-Sharaa are looking to build ties after the fall of the Russia-backed Syrian dictator Bashar al-Assad.`\
+https://nytimes.com/2026/01/28/world/europe/russia-putin-syria-al-sharaa-meeting.html
+
 **Welcome to Spain**\
 `Today we look into a country that’s handling the issue of undocumented migrants in a starkly different way.`\
 https://nytimes.com/2026/01/28/briefing/welcome-to-spain.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/28/us/doomsday-clock-2026.html
 **MLB prospects who just missed Keith Law’s top 100 ranking: Dax Kilby, Dylan Beavers and more**\
 `These players are all significant prospects but just missed Law's latest top 100 prospect list for a variety of reasons.`\
 https://nytimes.com/athletic/6997599/2026/01/28/mlb-top-100-prospects-top-just-missed-keith-law/
-
-**The Pulse: An embarrassment for the NFL**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7002074/2026/01/28/bill-belichick-hall-of-fame-the-pulse/
-
-**Seven PAOK fans die in car crash en route to Europa League game**\
-`The supporters died in a minibus crash in Romania while traveling to France for their Europa League game against Lyon on Thursday.`\
-https://nytimes.com/athletic/7003753/2026/01/28/paok-crash-europa-league-lyon-news/
 

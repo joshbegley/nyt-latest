@@ -1,3 +1,11 @@
+**First look at Ohio State's depth chart: What's new for 2026?**\
+`What to expect from Ohio State's football depth chart next season with the coaching staff being solidified and the transfer portal closed.`\
+https://nytimes.com/athletic/7002094/2026/01/28/ohio-state-football-depth-chart-2026/
+
+**Putin, Still Harboring Assad, Welcomes New Syrian Leader to Moscow Again**\
+`President Vladimir V. Putin and President Ahmed al-Sharaa are looking to build ties after the fall of the Russia-backed Syrian dictator Bashar al-Assad.`\
+https://nytimes.com/2026/01/28/world/europe/russia-putin-syria-al-sharaa-meeting.html
+
 **Welcome to Spain**\
 `Today we look into a country that’s handling the issue of undocumented migrants in a starkly different way.`\
 https://nytimes.com/2026/01/28/briefing/welcome-to-spain.html
