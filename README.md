@@ -1,3 +1,11 @@
+**Court Orders the Netherlands to Protect a Caribbean Island From Climate Change**\
+`Bonaire, a Dutch overseas territory, deserves the same protections as Europe, the ruling said. The decision adds to a growing body of precedent worldwide.`\
+https://nytimes.com/2026/01/28/climate/netherlands-bonaire-climate-ruling.html
+
+**What’s in Our Queue? ‘Miles ‘55’ and More**\
+`Text by Jim Tankersley`\
+https://nytimes.com/card/2026/01/28/arts/editors-recommendations-miles
+
 **Most N.Y.C. Storm Victims Believed to Have Died After Cold Exposure**\
 `Mayor Zohran Mamdani said that seven of the 10 people who died during the cold weather showed signs of cold exposure. One man was found dead just steps from a hospital.`\
 https://nytimes.com/2026/01/28/nyregion/nyc-storm-victims-hospital.html
@@ -21,12 +29,4 @@ https://nytimes.com/2026/01/28/health/texas-lawsuit-delaware-abortion-pills.html
 **Springsteen Releases ‘Streets of Minneapolis,’ a Song Protesting ICE**\
 `The lyrics criticize President Trump and include references to Alex Pretti and Renee Good, who were fatally shot by federal agents this month.`\
 https://nytimes.com/2026/01/28/arts/music/springsteen-streets-of-minneapolis-ice-protest-song.html
-
-**Melania Trump Documentary Pulled From South African Theaters**\
-`The distributor, which was set to release the film on Friday, said it had canceled the theatrical premiere because of “recent developments,” but declined to specify.`\
-https://nytimes.com/2026/01/28/world/africa/melania-trump-documentary-south-africa-cancel.html
-
-**Twins trade Edouard Julien, a once-promising second baseman, and pitcher for minor-league arm**\
-`Julien burst onto the scene in 2023, instantly becoming a fan favorite, but he was unable to maintain that level of production.`\
-https://nytimes.com/athletic/7004653/2026/01/28/twins-trade-edouard-julien-pierson-ohl-jace-kaminska/
 
