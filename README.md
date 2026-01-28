@@ -1,3 +1,7 @@
+**Iran Killed Thousands of Protesters. Here Are Five of Their Stories.**\
+`“He went out for freedom,” said the cousin of one of those who was killed when Iranian authorities mounted a deadly crackdown on protests across the country.`\
+https://nytimes.com/2026/01/28/world/middleeast/iran-protester-deaths.html
+
 **Elina Svitolina and a semifinal bigger than the Australian Open: 'You have to dig deep'**\
 `The Ukrainian ended her 2025 season early because of burnout. She is yet to lose 10 matches into the new one...`\
 https://nytimes.com/athletic/7003617/2026/01/28/tennis-elina-svitolina-australian-open-aryna-sabalenka/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/world/europe/kherson-ukraine-drones-russia.html
 **Villa agree Luiz loan deal with option to buy**\
 `The switch will see the Brazil international return to the club where he made over 200 appearances between 2019 and 2024.`\
 https://nytimes.com/athletic/7001396/2026/01/28/aston-villa-douglas-luiz-transfer-loan/
-
-**Strauss and Haydn Take a Hit as Cash-Crunched Vienna Cuts Budgets**\
-`Amid a broader austerity push, historical sites and an opera stage will shut temporarily, though many worry the closures will be permanent.`\
-https://nytimes.com/2026/01/28/arts/vienna-culture-cuts.html
 
