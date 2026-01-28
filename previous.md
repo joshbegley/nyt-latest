@@ -1,40 +1,40 @@
+**Live Updates: Fed Set to Pause Rate Cuts**\
+`The Federal Reserve is expected to hold interest rates steady despite relentless attacks from President Trump, who wants borrowing costs to be much lower.`\
+https://nytimes.com/live/2026/01/28/business/federal-reserve-interest-rates
+
+**How the Fed’s Rate Decisions Affect Your Wallet**\
+`The central bank’s policy stance can influence consumer savings and borrowing, from car financing to home equity loans. Here’s how it works.`\
+https://nytimes.com/2026/01/28/your-money/fed-rates-mortgages-credit-cards-loans.html
+
+**The Fed Is Waiting and Watching an Uncertain Economy**\
+`Inflation is elevated but steady and the job market is holding up, leading economists to predict that the Federal Reserve will keep interest rates at current levels.`\
+https://nytimes.com/2026/01/28/business/economy/economy-hiring-inflation-federal-reserve.html
+
+**Life on an Antarctic Glacier: Tea, Cheese and Lots of Shoveling**\
+`After working and camping for a week on Thwaites Glacier, scientists were ready to start drilling into the ice, if only the weather would let them.`\
+https://nytimes.com/2026/01/28/climate/antarctica-thwaites-glacier-drilling.html
+
+**Jayson Tatum weighs challenges of his Celtics return: 'Something I contemplate every day'**\
+`That the Celtics All-Star is considering how his return will impact others shows he is putting his team ahead of himself.`\
+https://nytimes.com/athletic/7004155/2026/01/28/jayson-tatum-celtics-return-nba/
+
+**Can I Tell a Member of My Church That I Recognize Him from a Dating App?**\
+`It would mean a lot to have someone I could relate to.`\
+https://nytimes.com/2026/01/28/magazine/recognize-dating-app-ethics.html
+
+**Silver Prices Are Surging Even Faster Than Gold**\
+`Silver has risen roughly 60 percent this month alone. What is going on?`\
+https://nytimes.com/2026/01/28/business/silver-gold-prices.html
+
+**Patrick Reed leaving LIV Golf, will return to PGA Tour in 2027**\
+`Reed will play on the DP World Tour through August as he serves a PGA Tour suspension.`\
+https://nytimes.com/athletic/7004122/2026/01/28/golf-liv-pga-patrick-reed-contract-suspension/
+
+**Jets hire Brian Duker as defensive coordinator, Aaron Glenn to take over play-calling: Sources**\
+`Duker, who worked with Glenn in Detroit, was the Miami Dolphins' pass game coordinator/secondary coach the past two seasons.`\
+https://nytimes.com/athletic/7004342/2026/01/28/new-york-jets-defensive-coordinator-brian-duker-aaron-glenn/
+
 **Iraq’s Nominee for Prime Minister Rejects Trump Threats**\
-`Iraq’s former leader Nuri Kamal al-Maliki is nominated to be the next prime minister but President Trump said the United States would cut all support to the country if that went ahead.`\
+`Nuri Kamal al-Maliki, a former prime minister, was nominated to lead Iraq once again, but President Trump said he would cut U.S. support if that went ahead.`\
 https://nytimes.com/2026/01/28/world/middleeast/trump-iraq-prime-minister-al-maliki.html
-
-**What Canada believes it has after Marcelo Flores' Mexico U-turn, one-time switch**\
-`A years-long saga is ending, with Marcelo Flores filing for a FIFA one-time switch. Now the race is on for him to make the World Cup squad`\
-https://nytimes.com/athletic/7002741/2026/01/28/marcelo-flores-fifa-switch-canada-mexico-world-cup/
-
-**How to watch Lakers vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7004360/2026/01/28/lakers-vs-cavaliers-stream-how-to-watch-jan-28/
-
-**Sterling leaves Chelsea by mutual agreement**\
-`The 31-year-old last played for Chelsea in May 2024.`\
-https://nytimes.com/athletic/6423750/2026/01/28/raheem-sterling-chelsea-leaves/
-
-**3 Beloved Dishes — In Soup Form**\
-`Hummus, bean salad and pasta pesto are the inspiration for these Melissa Clark recipes, each ready to warm you right up.`\
-https://nytimes.com/2026/01/28/dining/soup-recipes-hummus-beans-pesto.html
-
-**How to watch Rangers vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7004347/2026/01/28/rangers-vs-islanders-stream-how-to-watch-jan-28/
-
-**Red Wings sign Ben Chiarot to three-year-extension**\
-`A physical, 6-foot-3 left-handed defenseman, Chiarot has become a veteran leader for the Red Wings since signing as a free agent in 2022.`\
-https://nytimes.com/athletic/7004092/2026/01/28/red-wings-ben-chiarot-extension/
-
-**The Laws Designed to Protect My Son Could Very Well Kill Him**\
-`We thought America would keep him safe.`\
-https://nytimes.com/2026/01/28/opinion/family-mental-health-homeless-schizophrenia.html
-
-**How to watch Washington vs. Maryland women's basketball: Time, TV, streaming**\
-`Find out how to watch the Washington Huskies play the Maryland Terrapins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7004327/2026/01/28/washington-vs-maryland-stream-how-to-watch-jan-28/
-
-**How to watch UCLA vs. Illinois women's basketball: Time, TV, streaming**\
-`Find out how to watch the UCLA Bruins play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7004325/2026/01/28/ucla-vs-illinois-stream-how-to-watch-jan-28/
 
