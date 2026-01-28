@@ -1,3 +1,7 @@
+**Jamie Carragher: What's wrong with Liverpool - and how they can fix it**\
+`Exclusive: The ex-Liverpool defender and CBS pundit gives his diagnosis on the club's problems and who should shoulder the blame`\
+https://nytimes.com/athletic/7001766/2026/01/28/jamie-carragher-liverpool-interview/
+
 **Michael McIntyre: 'Your football allegiance is lifelong - it's utterly mad when you think about it'**\
 `The comedian is a die-hard Tottenham fan who, after an epiphany in the shower, is launching an app based on player ratings`\
 https://nytimes.com/athletic/6993607/2026/01/28/michael-mcintyre-fanalysis-interview/
