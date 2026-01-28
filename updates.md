@@ -1,3 +1,11 @@
+**Amazon’s Promotion of ‘Melania’ Has Critics Questioning Its Motives**\
+`The tech giant is spending $35 million to promote its film about the first lady, far more than is typical for documentaries.`\
+https://nytimes.com/2026/01/28/business/media/amazon-melania-trump-film-critics.html
+
+**For Minneapolis’s Native Americans, a New Fight Echoes a Bitter History**\
+`The crackdown on unauthorized immigrants is resonating deeply among the Dakota and other tribes, as residents confront what they call a federal occupation of their land.`\
+https://nytimes.com/2026/01/28/us/minneapolis-native-americans.html
+
 **BBC's Match of the Day loses 10 per cent of audience, increases reach**\
 `The programme has been around since 1964 and airs Premier League highlights on Saturday and Sunday.`\
 https://nytimes.com/athletic/7004596/2026/01/28/match-of-the-day-bbc-premier-league-audience-reach-football/
