@@ -1,5 +1,13 @@
+**F.B.I. Agents Search Election Center in Fulton County**\
+`A spokesperson for the F.B.I. confirmed the search, but declined to provide further details.`\
+https://nytimes.com/2026/01/28/us/fbi-search-election-center-georgia.html
+
+**The five biggest sports-business storylines heading into Super Bowl LX: MoneyCall**\
+`The latest edition of The Athletic's free weekly sports-business newsletter.`\
+https://nytimes.com/athletic/7004503/2026/01/28/super-bowl-lx-nfl-bad-bunny-moneycall/
+
 **Yankees trade for Rockies reliever Angel Chivilli, part with prospect TJ Rumfield**\
-`Chivilli posted a 7.06 ERA in 43 appearances last season for Rockies, but the 23-year-old's underlying metrics show some promise.`\
+`Chivilli posted a 7.06 ERA in 43 appearances last season for the Rockies, but the 23-year-old's underlying metrics show some promise.`\
 https://nytimes.com/athletic/7004419/2026/01/28/yankees-rockies-trade-angel-chivilli-tj-rumfield/
 
 **Garnacho's agents told to pay €200k to man who discovered Chelsea winger**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7004344/2026/01/28/bill-belichick-hall-of-fame-snub
 **Luxury Travel**\
 ``\
 https://nytimes.com/spotlight/luxury-travel
-
-**Trump Threatens Iran With ‘Massive Armada’ and Presses a Set of Demands**\
-`U.S. and European officials say they have put three demands in front of the Iranians, including a permanent end to all enrichment of uranium.`\
-https://nytimes.com/2026/01/28/us/politics/trump-iran-armada.html
-
-**Court grants NCAA request for Alabama judge's recusal in Charles Bediako lawsuit**\
-`Legal representatives say media scrutiny and speculation on the judge's link with the university could give the "appearance of partiality."`\
-https://nytimes.com/athletic/7000888/2026/01/28/charles-bediako-alabama-ncaa-judge-lawsuit/
 

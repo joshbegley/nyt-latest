@@ -1,3 +1,19 @@
+**Browns DC Jim Schwartz not planning on returning despite being under contract: Sources**\
+`Schwartz received two head-coaching interviews with Cleveland, and was a finalist for the vacancy that ultimately went to Todd Monken.`\
+https://nytimes.com/athletic/7004528/2026/01/28/jim-schwartz-browns-defensive-coordinator-todd-monken/
+
+**The most surprising Super Bowl ever? How Seahawks, Patriots compare to previous long shots**\
+`How rare is this matchup between long shots? Turns out, remarkably so.`\
+https://nytimes.com/athletic/7004383/2026/01/28/super-bowl-long-shots-history-odds/
+
+**Some Takeaways — and Some Good Movies — From This Year’s Sundance**\
+`The film festival is departing Park City, Utah, and is going out with a laugh.`\
+https://nytimes.com/2026/01/28/t-magazine/sundance-2026-takeaways-movies-comedies.html
+
+**White House Use of ‘Domestic Terrorist’ Doesn’t Match Legal Reality**\
+`The Trump administration has used the term as a cudgel against political adversaries, especially this month to defend immigration officers who had killed two protesters in Minneapolis.`\
+https://nytimes.com/2026/01/28/us/trump-minnesota-protesters-domestic-terrorists.html
+
 **F.B.I. Agents Search Election Center in Fulton County**\
 `A spokesperson for the F.B.I. confirmed the search, but declined to provide further details.`\
 https://nytimes.com/2026/01/28/us/fbi-search-election-center-georgia.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7003593/2026/01/28/jesper-wallstedts-resilience-per
 **Premier League, MLS lobbying for temporary concussion substitutes**\
 `More than 25 leagues and unions signed a letter in support of TCSs before football's lawmakers meet next month. `\
 https://nytimes.com/athletic/7004457/2026/01/28/premier-league-mls-temporary-concussion-substitutes/
-
-**How to Come Together on Immigration**\
-`Readers respond to an essay by Representative Mike Lawler, Republican of New York. Also: A suggestion for Columbia’s new president; a “no” from Canada.`\
-https://nytimes.com/2026/01/28/opinion/minneapolis-immigration.html
-
-**Turn Movie Magic Into Literary Analysis With ‘Anatomy of a Scene’**\
-`Using a Times video series as a model, an English teacher puts her students in the director’s chair.`\
-https://nytimes.com/2026/01/28/learning/lesson-plans/turn-movie-magic-into-literary-analysis-with-anatomy-of-a-scene.html
-
-**Which Hall of Fame voters spurned Bill Belichick? Fans deserve to know**\
-`The HOF lacks credibility because of its lack of transparency. We shouldn’t be asking about the Belichick 11. They should be telling us.`\
-https://nytimes.com/athletic/7004344/2026/01/28/bill-belichick-hall-of-fame-snub-nfl-voting/
-
-**Luxury Travel**\
-``\
-https://nytimes.com/spotlight/luxury-travel
 
