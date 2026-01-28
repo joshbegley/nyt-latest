@@ -1,3 +1,27 @@
+**Williams chief explains why it missed Barcelona F1 test**\
+`The team announced last week it would not be taking part in the five-day shakedown at the Circuit de Barcelona-Catalunya. `\
+https://nytimes.com/athletic/7004264/2026/01/28/williams-chief-barcelona-f1-test/
+
+**Researchers Are Using A.I. to Decode the Human Genome**\
+`AlphaGenome is a leap forward in the ability to study the human blueprint. But the fine workings of our DNA are still largely a mystery.`\
+https://nytimes.com/2026/01/28/science/alphagenome-ai-deepmind-genetics.html
+
+**Forward-Looking Theater Festivals Turn to the Past**\
+`“Watch Me Walk,” “Ulysses” and other offerings from Under the Radar and the Exponential Festival engage with personal histories and the works of literary lions.`\
+https://nytimes.com/2026/01/28/theater/watch-me-walk-ulysses-under-the-radar.html
+
+**Christian Parker steps in as Cowboys defensive coordinator after explaining his vision**\
+`Parker, 34, becomes a first-time defensive coordinator in Dallas and takes over one of the NFL's worst defenses.`\
+https://nytimes.com/athletic/7003510/2026/01/28/cowboys-christian-parker-defensive-coordinator/
+
+**Citrusy Meals to Lift the Body and Spirit**\
+`Citrus-soy chicken ramen, salpicón de pescado and a mango lime loaf cake tangy enough to warm any freezing afternoon.`\
+https://nytimes.com/2026/01/28/dining/citrusy-meals-to-lift-the-body-and-spirit.html
+
+**Fulham reach Bobb agreement with Man City**\
+`Bobb is expected to undergo his Fulham medical on Thursday before completing his move to Craven Cottage.`\
+https://nytimes.com/athletic/6913951/2026/01/28/oscar-bobb-man-city-transfer-news/
+
 **The Bounce: The midseason Bouncies are here! Best dunk, MVP and more**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.
 `\
