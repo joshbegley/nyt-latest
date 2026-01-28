@@ -1,3 +1,15 @@
+**The Most Important Foreign Policy Speech in Years**\
+`Prime Minister Mark Carney’s speech at Davos last week sent shock waves through the international community. The international-affairs scholar Henry Farrell explains why.`\
+https://nytimes.com/video/opinion/100000010659418/the-most-important-foreign-policy-speech-in-years.html
+
+**No. 3 Michigan rallies to hand shorthanded Nebraska first loss of season**\
+`No. 5 Cornhuskers led by as many as 11 points in the first half despite playing without two of their top three scorers.`\
+https://nytimes.com/athletic/7003166/2026/01/27/michigan-hands-nebraska-first-loss-big-ten/
+
+**24 Simple Secrets to a Healthier Life**\
+`We asked doctors, therapists and other experts to sum up their best advice in a few memorable words.`\
+https://nytimes.com/interactive/2026/01/27/well/health-wellness-tips-experts.html
+
 **Dozens Arrested After Anti-ICE Protest at a Manhattan Hilton**\
 `The demonstration at the TriBeCa hotel followed a similar targeting of a Hilton property in Minneapolis on Sunday.`\
 https://nytimes.com/2026/01/27/nyregion/ice-protest-hilton-manhattan.html
