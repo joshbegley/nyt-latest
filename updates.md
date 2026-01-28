@@ -1,3 +1,11 @@
+**Jets reached out to Jon Gruden about joining Aaron Glenn's coaching staff: Sources**\
+`Gruden, according to sources, was not interested in the job.`\
+https://nytimes.com/athletic/7003090/2026/01/27/new-york-jets-jon-gruden/
+
+**Noem’s Handling of Shooting Put Her in Trump’s Penalty Box, but Just Briefly**\
+`Kristi Noem’s aggressiveness has sometimes given President Trump heartburn. She got a rebuke after a second killing by federal immigration agents but soon seemed to be back in his good graces.`\
+https://nytimes.com/2026/01/27/us/politics/noem-trump-minnesota-shooting-fallout.html
+
 **NHL trade grades: Devils clear cap space with Palat trade, Islanders get depth, draft capital**\
 `Both Ondrej Palat and Maxim Tsyplakov might be better off with a change of scenery and a fresh start.`\
 https://nytimes.com/athletic/7003057/2026/01/27/nhl-trade-grades-palat-tsyplakov-devils-islanders/
