@@ -1,3 +1,23 @@
+**Springsteen Releases ‘Streets of Minneapolis,’ a Song Protesting ICE**\
+`The lyrics criticize President Trump and include references to Alex Pretti and Renee Good, who were fatally shot by federal agents this month.`\
+https://nytimes.com/2026/01/28/arts/music/springsteen-streets-of-minneapolis-ice-protest-song.html
+
+**Melania Trump Documentary Pulled From South African Theaters**\
+`The distributor, which was set to release the film on Friday, said it had canceled the theatrical premiere because of “recent developments,” but declined to specify.`\
+https://nytimes.com/2026/01/28/world/africa/melania-trump-documentary-south-africa-cancel.html
+
+**Twins trade Edouard Julien, a once-promising second baseman, and pitcher for minor-league arm**\
+`Julien burst onto the scene in 2023, instantly becoming a fan favorite, but he was unable to maintain that level of production.`\
+https://nytimes.com/athletic/7004653/2026/01/28/twins-trade-edouard-julien-pierson-ohl-jace-kaminska/
+
+**American cricket star suspended as part of anti-corruption investigation**\
+`The news comes on the eve of the men’s T20 World Cup in India and Sri Lanka, which starts on February 7.`\
+https://nytimes.com/athletic/7004665/2026/01/28/aaron-jones-usa-cricket-suspended/
+
+**Eli Manning falls short in Pro Football Hall of Fame vote, again: Sources**\
+`Manning is one of four Hall of Fame-eligible players with multiple Super Bowl MVPs — and the only one not yet inducted in Canton.`\
+https://nytimes.com/athletic/7004657/2026/01/28/eli-manning-hof-voting/
+
 **Amazon’s Promotion of ‘Melania’ Has Critics Questioning Its Motives**\
 `The tech giant is spending $35 million to promote its film about the first lady, far more than is typical for documentaries.`\
 https://nytimes.com/2026/01/28/business/media/amazon-melania-trump-film-critics.html
@@ -9,32 +29,4 @@ https://nytimes.com/2026/01/28/us/minneapolis-native-americans.html
 **BBC's Match of the Day loses 10 per cent of audience, increases reach**\
 `The programme has been around since 1964 and airs Premier League highlights on Saturday and Sunday.`\
 https://nytimes.com/athletic/7004596/2026/01/28/match-of-the-day-bbc-premier-league-audience-reach-football/
-
-**Burnley complete loan signing of Ward-Prowse from West Ham**\
-`The 31-year-old is Burnley's first signing of the winter transfer window.`\
-https://nytimes.com/athletic/6995761/2026/01/28/ward-prowse-burnley-west-ham-transfer/
-
-**Sterling, Chelsea and the end of a union that always felt doomed**\
-`Unrealistic expectations and an inevitable decline with age made the winger's spell at Stamford Bridge one to forget`\
-https://nytimes.com/athletic/7004555/2026/01/28/raheem-sterling-chelsea-contract-end/
-
-**These Texas Turtles Are Stunned by Winter Weather. Literally. **\
-`Text by Tamir Kalifa`\
-https://nytimes.com/card/2026/01/28/us/texas-turtles-stunned-by-cold
-
-**Tom Brady baffled by Bill Belichick's first-ballot Hall of Fame snub**\
-`“If he’s not a first-ballot Hall of Famer, there’s really no coach that should ever be a first-ballot Hall of Famer," Brady said Wednesday.`\
-https://nytimes.com/athletic/7004486/2026/01/28/tom-brady-bill-belichick-hall-of-fame-snub/
-
-**Browns DC Jim Schwartz not planning to return despite being under contract: Sources**\
-`Schwartz received two head-coaching interviews with Cleveland, and was a finalist for the vacancy that ultimately went to Todd Monken.`\
-https://nytimes.com/athletic/7004528/2026/01/28/jim-schwartz-browns-defensive-coordinator-todd-monken/
-
-**The most surprising Super Bowl ever? How Seahawks, Patriots compare to previous long shots**\
-`How rare is this matchup between long shots? Turns out, remarkably so.`\
-https://nytimes.com/athletic/7004383/2026/01/28/super-bowl-long-shots-history-odds/
-
-**Some Takeaways — and Some Good Movies — From This Year’s Sundance**\
-`The film festival is departing Park City, Utah, and is going out with a laugh.`\
-https://nytimes.com/2026/01/28/t-magazine/sundance-2026-takeaways-movies-comedies.html
 
