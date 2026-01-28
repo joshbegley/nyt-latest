@@ -1,3 +1,19 @@
+**Who Decides When a Home Is Safe? A California Bill Says Science, Not Insurers.**\
+`Following a Times investigation, a state lawmaker is proposing the first health-based standards for assessing smoke contamination after wildfires.`\
+https://nytimes.com/2026/01/27/realestate/california-wildfires-damage-insurance.html
+
+**Minnesota Leaders Meet With White House Border Czar**\
+`Gov. Tim Walz and the mayor of Minneapolis, Jacob Frey, met separately with the Trump aide Tom Homan on Tuesday. All three described the discussions as a productive starting point.`\
+https://nytimes.com/2026/01/27/us/minneapolis-walz-frey-homans-ice.html
+
+**Trump Suggests He Will ‘De-Escalate’ in Minneapolis, Without Offering Details**\
+`President Trump continued to put the blame on Alex Pretti for legally carrying a weapon with a permit, saying, “You can’t walk in with guns.”`\
+https://nytimes.com/2026/01/27/us/politics/trump-minneapolis-crackdown.html
+
+**Inside Aaron Glenn’s and the Jets’ week of coaching-staff turmoil**\
+`Tanner Engstrand’s unexpected departure is the latest sign that things could be going awry.`\
+https://nytimes.com/athletic/7002865/2026/01/27/aaron-glenn-new-york-jets-coaching-staff-changes/
+
 **Portland Timbers finalizing deal to acquire Cole Bassett: Sources**\
 `Bassett appeared in 172 games for the Rapids in two stints, but the Timbers are willing to pay roughly $2.65 million cash to bring him in.`\
 https://nytimes.com/athletic/7002906/2026/01/27/portland-timbers-cole-bassett-colorado-rapids-deal/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/27/arts/johnny-legend-dead.html
 **City Prosecutors Join Forces to Bring Charges Against Federal Agents**\
 `Nine progressive prosecutors say they will work together to charge federal agents accused of wrongdoing, but they will face significant legal obstacles.`\
 https://nytimes.com/2026/01/27/us/prosecutors-charges-against-federal-agents.html
-
-**Rick Rizzs, ever-faithful voice of Seattle baseball, will retire after one last pennant chase**\
-`'He is Mariners, through and through,' said Dave Sims. 'If he could snap his fingers, that franchise would have five or six rings.'`\
-https://nytimes.com/athletic/7002800/2026/01/27/rick-rizzs-seattle-mariners-retirement/
-
-**After a Second Killing in Minneapolis, How Are You Feeling About Where America Is Heading?**\
-`Federal agents fatally shot a second U.S. citizen on Saturday during protests of President Trump’s immigration crackdown, prompting many Americans to reflect on the state of the country. Teenagers, what do you think?`\
-https://nytimes.com/2026/01/27/learning/after-a-second-killing-in-minneapolis-how-are-you-feeling-about-where-america-is-heading.html
-
-**3 thoughts on Nebraska's 2026 schedule: An Indiana-Oregon double and a tough November**\
-`The Huskers stand a chance to start 5-0 under Rhule for the first time before a brutal stretch.`\
-https://nytimes.com/athletic/7002807/2026/01/27/nebraska-2026-football-schedule-big-ten/
-
-**Southwest Begins Assigned Seating, Scrapping a Signature Quirk**\
-`The airline said its new policy, rolled out on Tuesday, responded to passengers’ preferences, but some customers said the scramble was part of the charm.`\
-https://nytimes.com/2026/01/27/travel/southwest-airlines-assigned-seating.html
 
