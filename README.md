@@ -1,3 +1,11 @@
+**Missing in Kabul: The U.S. Citizen Witnesses Say Was Held by the Taliban**\
+`Taliban officials deny holding a U.S.-Afghan citizen, who witnesses and U.S. officials say was detained by Afghanistan’s intelligence services in 2022.`\
+https://nytimes.com/2026/01/28/world/asia/us-citizen-missing-afghanistan-taliban.html
+
+**Doomsday Clock Ticks Closer Than Ever to Apocalypse**\
+`Wars, climate change, disruptive technologies and the rise of autocracy over the past year prompted scientists to set the clock at 85 seconds to midnight.`\
+https://nytimes.com/2026/01/28/us/doomsday-clock-2026.html
+
 **MLB prospects who just missed Keith Law’s top 100 ranking: Dax Kilby, Dylan Beavers and more**\
 `These players are all significant prospects but just missed Law's latest top 100 prospect list for a variety of reasons.`\
 https://nytimes.com/athletic/6997599/2026/01/28/mlb-top-100-prospects-top-just-missed-keith-law/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7002686/2026/01/28/lions-mailbag-drew-petzing-david
 **Dahlin hat trick helps Sabres stifle Leafs in another dominant win: 5 thoughts**\
 `The Sabres captain finished with three goals and two assists in a rout that might have ended a division rival's season.`\
 https://nytimes.com/athletic/7003443/2026/01/28/sabres-rasmus-dahlin-hat-trick-leafs/
-
-**Maple Leafs' latest loss showcased a team that has been left behind**\
-`The Leafs gave up seven goals in a must-win game that knocked them further down in the wild-card chase.`\
-https://nytimes.com/athletic/7003396/2026/01/28/maple-leafs-tuch-goaltending-sabres/
-
-**Red Wings' offense goes flat in loss to Kings: 5 thoughts**\
-`The Red Wings struggled offensively in their loss to the Kings, causing some angst in a tight Eastern Conference race.`\
-https://nytimes.com/athletic/7003292/2026/01/28/red-wings-kings-patrick-kane-todd-mclellan/
 
