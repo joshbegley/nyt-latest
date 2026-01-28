@@ -1,3 +1,12 @@
+**F1 teams are hiding early struggles with new cars. Should they let fans watch?**\
+`The 2026 F1 preseason kicked off with a private test for teams in Barcelona this week. Was the secrecy necessary? `\
+https://nytimes.com/athletic/7003845/2026/01/28/barcelona-f1-test-2026-private/
+
+**The Bounce: The midseason Bouncies are here! Best dunk, MVP and more**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7004071/2026/01/28/nba-midseason-awards-shai-gilgeous-alexander-the-bounce/
+
 **The Bounce: The midseason Bouncies are here! Best dunk, MVP and more**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.
 `\
