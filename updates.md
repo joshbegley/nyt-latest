@@ -1,3 +1,7 @@
+**Iraq’s Nominee for Prime Minister Rejects Trump Threats**\
+`Iraq’s former leader Nuri Kamal al-Maliki is nominated to be the next prime minister but President Trump said the United States would cut all support to the country if that went ahead.`\
+https://nytimes.com/2026/01/28/world/middleeast/trump-iraq-prime-minister-al-maliki.html
+
 **What Canada believes it has after Marcelo Flores' Mexico U-turn, one-time switch**\
 `A years-long saga is ending, with Marcelo Flores filing for a FIFA one-time switch. Now the race is on for him to make the World Cup squad`\
 https://nytimes.com/athletic/7002741/2026/01/28/marcelo-flores-fifa-switch-canada-mexico-world-cup/
