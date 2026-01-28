@@ -1,40 +1,40 @@
-**At the Center of the ICE Uproar, a Familiar Figure: Corey Lewandowski**\
-`Now a top aide to Kristi Noem, the homeland security secretary, Mr. Lewandowski has a long history of controversy in President Trump’s orbit, but he has always found a way back from exile.`\
-https://nytimes.com/2026/01/27/us/politics/corey-lewandowski-noem-trump.html
+**The Roony Bardghji derby: Barcelona's €2.5m Copenhagen signing impressing in Lamine Yamal's shadow**\
+`Once labelled the Swedish Messi, the 20-year-old winger has made a good start to life at the Camp Nou`\
+https://nytimes.com/athletic/7001378/2026/01/28/barcelona-champions-league-roony-bardghji-flick/
 
-**How the most crucial shot in tennis defined Iga Świątek and Elena Rybakina's Australian Open match**\
-`The huge delta between the two players' serve effectiveness swung an otherwise tight match.`\
-https://nytimes.com/athletic/7003185/2026/01/27/tennis-australian-open-iga-swiatek-elena-rybakina-result-analysis/
+**Stanislav Lobotka interview: Napoli's 'little wild boar' who is loved by Xavi and plays like a Catalan**\
+`The Slovakian on what it's like being one of Europe's most press-resistant midfielders and life in his 'second home' of Naples`\
+https://nytimes.com/athletic/6999506/2026/01/28/lobotka-napoli-conte-champions-league/
 
-**Man Lunges at Ilhan Omar During Minneapolis Town Hall**\
-`During a town hall in Minneapolis, a man sitting directly in front of Representative Ilhan Omar rushed to the lectern and sprayed her with a pungent liquid. He was immediately tackled and removed from the room.`\
-https://nytimes.com/video/us/politics/100000010672659/ilhan-omar-town-hall-minnesota.html
+**Manchester United and the Harry Maguire conundrum**\
+`The defender is impressing under Michael Carrick but that does not mean he is certain to stay at the club beyond this summer`\
+https://nytimes.com/athletic/7001264/2026/01/28/harry-maguire-manchester-united-transfer-future/
 
-**Former Adams Aide Took Bribe of Diamond Earrings, Prosecutors Say**\
-`Prosecutors added new details to their case against Ingrid Lewis-Martin, who is accused of using her position in New York’s City Hall to help associates in exchange for bribes.`\
-https://nytimes.com/2026/01/27/nyregion/ingrid-lewis-martin-bribes-diamond.html
+**Row Z: Confusing Chelsea, a striker who can’t score, and Slot’s excuses**\
+`Tim Spiers shines a light on some of the more bonkers happenings in football over the past week `\
+https://nytimes.com/athletic/6998724/2026/01/28/row-z-chelsea-defenders-slot-dyche/
 
-**Eli Heidenreich, Mark Gronowski among 2026 NFL Draft standouts during Shrine Bowl week**\
-`More than 50 Shrine Bowl prospects could wind up hearing their names called in the NFL Draft. Which ones excelled this week?`\
-https://nytimes.com/athletic/6999645/2026/01/27/nfl-draft-2026-shrine-bowl-prospects-heidenreich/
+**Is focusing on specific competitions a way for football clubs to find success?**\
+`Targeting victory in a specific competition may well be becoming a sensible strategy, even if it is at the expense of league form`\
+https://nytimes.com/athletic/7001302/2026/01/28/premier-league-teams-focus-other-competitions/
 
-**What It All Comes Down To**\
-`Kevin Curry’s crossword may end in a split decision.`\
-https://nytimes.com/2026/01/27/crosswords/daily-puzzle-2026-01-28.html
+**Brighton have one win in ten, but there is still faith in the Hurzeler project**\
+`The club's stated aims are to compete for European qualification and win a first major trophy - are they on course to get there?`\
+https://nytimes.com/athletic/6998701/2026/01/28/hurzeler-brighton-project/
 
-**Tails of the City: San Francisco’s Latest Animal Sensation Is a Mountain Lion**\
-`The 2-year-old male was safely captured after he got stuck between two apartment buildings.`\
-https://nytimes.com/2026/01/27/us/mountain-lion-san-francisco.html
+**FBref and Opta: The data break-up that sent soccer’s analytics world into meltdown**\
+`The removal of advanced data from a popular internet resource has proven unpopular – The Athletic breaks down what happened `\
+https://nytimes.com/athletic/7002196/2026/01/28/fbref-opta-football-data-soccer-analytics/
 
-**Mountain Lion Spotted in San Francisco**\
-`Residents were shocked to see a young mountain lion roaming the streets of San Francisco this week. Local animal control agencies were able to capture and tranquilize it on Tuesday.`\
-https://nytimes.com/video/us/100000010672253/san-francisco-mountain-lion.html
+**The coach who went from amateur football to replacing Amorim and beating PSG**\
+`The Sporting coach is on the brink of taking the club to the Champions League quarter-finals - it has been a rapid rise for the 44-year-old`\
+https://nytimes.com/athletic/7001214/2026/01/28/rui-borges-sporting-champions-league/
 
-**The Most Important Foreign Policy Speech in Years**\
-`Prime Minister Mark Carney’s speech at Davos last week sent shock waves through the international community. The international-affairs scholar Henry Farrell explains why.`\
-https://nytimes.com/video/opinion/100000010659418/the-most-important-foreign-policy-speech-in-years.html
+**Explained: Why a World Cup boycott is unlikely, and what it would take to happen**\
+`Calls for a boycott of the U.S.-cohosted event are growing, but there's ample reason why anything materializing is a long shot`\
+https://nytimes.com/athletic/7002048/2026/01/28/world-cup-2026-boycott-trump-usa-mexico-canada/
 
-**No. 3 Michigan rallies to hand shorthanded Nebraska first loss of season**\
-`No. 5 Cornhuskers led by as many as 11 points in the first half despite playing without two of their top three scorers.`\
-https://nytimes.com/athletic/7003166/2026/01/27/michigan-hands-nebraska-first-loss-big-ten/
+**‘The Man’ of Her Household: The Rise and Fall of a First Lady**\
+`Kim Keon Hee was unlike any presidential spouse South Korea had seen. Her downfall, on corruption charges, came after her husband declared martial law.`\
+https://nytimes.com/2026/01/28/world/asia/korea-first-lady-kim-keon-hee-jail.html
 
