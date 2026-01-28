@@ -1,3 +1,7 @@
+**Koumas set to join Hull on loan from Liverpool**\
+`Fellow academy graduate Calum Scanlon is also a target for Cardiff City.`\
+https://nytimes.com/athletic/7003831/2026/01/28/liverpool-lewis-koumas-hull-loan/
+
 **First look at Ohio State's depth chart: What's new for 2026?**\
 `What to expect from Ohio State's football depth chart next season with the coaching staff being solidified and the transfer portal closed.`\
 https://nytimes.com/athletic/7002094/2026/01/28/ohio-state-football-depth-chart-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/world/asia/us-citizen-missing-afghanistan-taliban
 **Doomsday Clock Ticks Closer Than Ever to Apocalypse**\
 `Wars, climate change, disruptive technologies and the rise of autocracy over the past year prompted scientists to set the clock at 85 seconds to midnight.`\
 https://nytimes.com/2026/01/28/us/doomsday-clock-2026.html
-
-**MLB prospects who just missed Keith Law’s top 100 ranking: Dax Kilby, Dylan Beavers and more**\
-`These players are all significant prospects but just missed Law's latest top 100 prospect list for a variety of reasons.`\
-https://nytimes.com/athletic/6997599/2026/01/28/mlb-top-100-prospects-top-just-missed-keith-law/
 
