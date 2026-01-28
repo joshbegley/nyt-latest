@@ -1,3 +1,11 @@
+**A City Where Every Step Outside Risks Death by Drone**\
+`Russian attacks on civilians in Kherson, in southern Ukraine, have forced important aspects of life to go underground, offering a vision of a postapocalyptic future.`\
+https://nytimes.com/2026/01/28/world/europe/kherson-ukraine-drones-russia.html
+
+**Villa agree Luiz loan deal with option to buy**\
+`The switch will see the Brazil international return to the club where he made over 200 appearances between 2019 and 2024.`\
+https://nytimes.com/athletic/7001396/2026/01/28/aston-villa-douglas-luiz-transfer-loan/
+
 **Strauss and Haydn Take a Hit as Cash-Crunched Vienna Cuts Budgets**\
 `Amid a broader austerity push, historical sites and an opera stage will shut temporarily, though many worry the closures will be permanent.`\
 https://nytimes.com/2026/01/28/arts/vienna-culture-cuts.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/28/learning/dinner-party.html
 **ICE’s Brutality Is Its Weakness**\
 `The more force that strong states deploy, the more they risk exposing their own brutality to politically persuadable observers.`\
 https://nytimes.com/2026/01/28/opinion/trump-minneapolis-ice-protest.html
-
-**It’s Very Cold. Just Wait for the Grid to Fail.**\
-`The United States needs more energy to get through the cold snaps of the future. The question is where it will come from.`\
-https://nytimes.com/2026/01/28/opinion/cold-weather-power-outages.html
-
-**Minneapolis May Be Trump’s Gettysburg**\
-`The White House has failed to achieve either its strategic or its tactical goals in Minnesota.`\
-https://nytimes.com/2026/01/28/opinion/minneapolis-ice-trump-gettysburg.html
 

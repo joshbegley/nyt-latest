@@ -1,3 +1,31 @@
+**Elina Svitolina and a semifinal bigger than the Australian Open: 'You have to dig deep'**\
+`The Ukrainian ended her 2025 season early because of burnout. She is yet to lose 10 matches into the new one...`\
+https://nytimes.com/athletic/7003617/2026/01/28/tennis-elina-svitolina-australian-open-aryna-sabalenka/
+
+**How Alex Hall, U.S. freeski Olympic star, found happiness and success in letting go**\
+`Skiing his way has made Hall one of the United States' most accomplished pros. And he knows he can never stop experimenting.`\
+https://nytimes.com/athletic/6967649/2026/01/28/alex-hall-us-freeski-olympics-slopestyle-gold/
+
+**Do NFL players ever hide concussion symptoms? Anonymous player poll shows yes — and no**\
+`“Football is about availability more than ability. You want to be available. I know it’s shameful to say.”`\
+https://nytimes.com/athletic/6999496/2026/01/28/concussions-nfl-player-poll-hide-symptoms/
+
+**What do NFL players think of tush push, hip-drop tackles and kickoff rules? We asked them**\
+`We asked players from across the league about hot-topic rules — and which player would make a great official.`\
+https://nytimes.com/athletic/6999586/2026/01/28/nfl-player-poll-tush-push-kickoff-rules/
+
+**'My heart is full': Mike McCarthy comes home in emotional Steelers introduction**\
+`Plus, more takeaways from his first public comments as Steelers head coach.`\
+https://nytimes.com/athletic/7003191/2026/01/28/mike-mccarthy-pittsburgh-introductory-press-conference/
+
+**Russian athletes are back for the Winter Olympics, again in a stateless existence**\
+`After a chaotic winter, a handful of Russian and Belarusian athletes were allowed pathways to qualify for Milan Cortina.`\
+https://nytimes.com/athletic/6991592/2026/01/28/winter-olympics-russians-individual-neutral-athletes/
+
+**The New York Times International Edition in Print for Thursday, Jan. 29, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/28/todays-new-york-times-international-edition
+
 **A City Where Every Step Outside Risks Death by Drone**\
 `Russian attacks on civilians in Kherson, in southern Ukraine, have forced important aspects of life to go underground, offering a vision of a postapocalyptic future.`\
 https://nytimes.com/2026/01/28/world/europe/kherson-ukraine-drones-russia.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7001396/2026/01/28/aston-villa-douglas-luiz-transfe
 **Strauss and Haydn Take a Hit as Cash-Crunched Vienna Cuts Budgets**\
 `Amid a broader austerity push, historical sites and an opera stage will shut temporarily, though many worry the closures will be permanent.`\
 https://nytimes.com/2026/01/28/arts/vienna-culture-cuts.html
-
-**Meet the Patriots' unlikely O-line duo tasked with keeping Drake Maye upright**\
-`The Patriots' offensive-line odd couple of Campbell and Moses has a big task ahead of it against the Seahawks in the Super Bowl.`\
-https://nytimes.com/athletic/7001851/2026/01/28/will-campbell-morgan-moses-patriots-offensive-line-super-bowl/
-
-**What Americans Really Mean by ‘Affordability’**\
-`A few key necessities are driving dissatisfaction, particularly among the young, our poll finds.`\
-https://nytimes.com/2026/01/28/upshot/poll-affordability-housing-prices.html
-
-**Fed Meeting Comes at Pivotal Moment for Central Bank’s Independence**\
-`The Trump administration has unleashed a barrage of attacks on the Federal Reserve, including a criminal investigation into its chair, Jerome H. Powell.`\
-https://nytimes.com/2026/01/28/business/economy/fed-trump-powell-interest-rates.html
-
-**How Did a 2017 Song Get a 2026 Oscar Nomination?**\
-`“Sweet Dreams of Joy,” from the documentary “Viva Verdi!,” was indeed eligible under academy rules even if it was recorded nearly 10 years ago. Here’s how.`\
-https://nytimes.com/2026/01/28/movies/oscars-best-song-sweet-dreams-of-joy.html
-
-**I Was the Fun Dad. It Almost Destroyed My Marriage.**\
-`For years, Jordan Carlos left most of the chores and child care to his wife. By the time he realized he didn’t want to be that guy anymore, it was almost too late.`\
-https://nytimes.com/2026/01/28/podcasts/fun-dad-marriage-issues.html
-
-**Dinner Party**\
-`What would your ideal dinner party be like? What would be on the menu? Who would you want to be there?`\
-https://nytimes.com/2026/01/28/learning/dinner-party.html
-
-**ICE’s Brutality Is Its Weakness**\
-`The more force that strong states deploy, the more they risk exposing their own brutality to politically persuadable observers.`\
-https://nytimes.com/2026/01/28/opinion/trump-minneapolis-ice-protest.html
 
