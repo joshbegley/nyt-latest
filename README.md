@@ -1,3 +1,7 @@
+**Red Wings sign Ben Chiarot to three-year-extension**\
+`A physical, 6-foot-3 left-handed defenseman, Chiarot has become a veteran leader for the Red Wings since signing as a free agent in 2022.`\
+https://nytimes.com/athletic/7004092/2026/01/28/red-wings-ben-chiarot-extension/
+
 **The Laws Designed to Protect My Son Could Very Well Kill Him**\
 `We thought America would keep him safe.`\
 https://nytimes.com/2026/01/28/opinion/family-mental-health-homeless-schizophrenia.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/28/science/alphagenome-ai-deepmind-genetics.html
 **Forward-Looking Theater Festivals Turn to the Past**\
 `“Watch Me Walk,” “Ulysses” and other offerings from Under the Radar and the Exponential Festival engage with personal histories and the works of literary lions.`\
 https://nytimes.com/2026/01/28/theater/watch-me-walk-ulysses-under-the-radar.html
-
-**Christian Parker steps in as Cowboys defensive coordinator after explaining his vision**\
-`Parker, 34, becomes a first-time defensive coordinator in Dallas and takes over one of the NFL's worst defenses.`\
-https://nytimes.com/athletic/7003510/2026/01/28/cowboys-christian-parker-defensive-coordinator/
 

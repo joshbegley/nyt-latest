@@ -1,3 +1,23 @@
+**The Laws Designed to Protect My Son Could Very Well Kill Him**\
+`We thought America would keep him safe.`\
+https://nytimes.com/2026/01/28/opinion/family-mental-health-homeless-schizophrenia.html
+
+**How to watch Washington vs. Maryland women's basketball: Time, TV, streaming**\
+`Find out how to watch the Washington Huskies play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7004327/2026/01/28/washington-vs-maryland-stream-how-to-watch-jan-28/
+
+**How to watch UCLA vs. Illinois women's basketball: Time, TV, streaming**\
+`Find out how to watch the UCLA Bruins play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7004325/2026/01/28/ucla-vs-illinois-stream-how-to-watch-jan-28/
+
+**Did Trump Really Change His Mind on Minnesota?**\
+`Our White House reporter Tyler Pager describes how while President Trump appeared to soften his tone on Minnesota after seeing outrage over the killing of Alex Pretti, the crackdown continues on the ground.`\
+https://nytimes.com/video/us/100000010671666/did-trump-really-change-his-mind-on-minnesota.html
+
+**How to watch Iowa State vs. Texas Tech women's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Texas Tech Lady Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7004323/2026/01/28/iowa-state-vs-texas-tech-stream-how-to-watch-jan-28/
+
 **Williams chief explains why it missed Barcelona F1 test**\
 `The team announced last week it would not be taking part in the five-day shakedown at the Circuit de Barcelona-Catalunya. `\
 https://nytimes.com/athletic/7004264/2026/01/28/williams-chief-barcelona-f1-test/
@@ -13,28 +33,4 @@ https://nytimes.com/2026/01/28/theater/watch-me-walk-ulysses-under-the-radar.htm
 **Christian Parker steps in as Cowboys defensive coordinator after explaining his vision**\
 `Parker, 34, becomes a first-time defensive coordinator in Dallas and takes over one of the NFL's worst defenses.`\
 https://nytimes.com/athletic/7003510/2026/01/28/cowboys-christian-parker-defensive-coordinator/
-
-**Citrusy Meals to Lift the Body and Spirit**\
-`Citrus-soy chicken ramen, salpicón de pescado and a mango lime loaf cake tangy enough to warm any freezing afternoon.`\
-https://nytimes.com/2026/01/28/dining/citrusy-meals-to-lift-the-body-and-spirit.html
-
-**FIFA transfer report shows Man City, Liverpool, Arsenal are top spenders**\
-`'International transfers' only count those between clubs in different nations.`\
-https://nytimes.com/athletic/7004089/2026/01/28/football-transfer-spending-international-fifa/
-
-**Fulham reach Bobb agreement with Man City**\
-`Bobb is expected to undergo his Fulham medical on Thursday before completing his move to Craven Cottage.`\
-https://nytimes.com/athletic/6913951/2026/01/28/oscar-bobb-man-city-transfer-news/
-
-**Browns hire former Ravens offensive coordinator Todd Monken as head coach**\
-`Monken has 11 years of NFL coaching experience, including the last three seasons as the Ravens' offensive coordinator. `\
-https://nytimes.com/athletic/7001807/2026/01/28/browns-todd-monken-head-coach-ravens/
-
-**With an aging Matthew Stafford, Rams must go all in for another Super Bowl run**\
-`If Stafford does return for another season, the Rams will need to push in all their chips and understand they have no time to waste. `\
-https://nytimes.com/athletic/7002848/2026/01/28/rams-qb-matthew-stafford-2026-super-bowl-run/
-
-**F1 teams are hiding early struggles with new cars. Should they let fans watch?**\
-`The 2026 F1 preseason kicked off with a private test for teams in Barcelona this week. Was the secrecy necessary? `\
-https://nytimes.com/athletic/7003845/2026/01/28/f1-closed-test-barcelona-2026-2/
 
