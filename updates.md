@@ -1,3 +1,7 @@
+**Veteran Indian Politician Among 5 Killed in Plane Crash**\
+`Ajit Pawar, the deputy chief minister of Maharashtra State, was on board a charter jet that crashed as it was coming in to land.`\
+https://nytimes.com/2026/01/28/world/asia/india-plane-crash.html
+
 **Here’s the latest.**\
 `By Reis Thebault, Nicholas Bogel-Burroughs, Chris Cameron and Dan Watson`\
 https://nytimes.com/live/2026/01/28/us/minneapolis-shooting-ice-minnesota/heres-the-latest
