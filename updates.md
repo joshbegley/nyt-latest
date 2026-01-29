@@ -1,3 +1,11 @@
+**The Bucks without Giannis? Potential packages with the NBA trade deadline near**\
+`The Athletic attempted to put together the most competitive trade packages possible from teams as the NBA trade deadline nears.`\
+https://nytimes.com/athletic/7005877/2026/01/29/giannis-antetokounmpo-bucks-nba-trade-deadline-packages/
+
+**Graphic Novels Wouldn’t Be the Same Without Him. Who Will Keep His Work Alive?**\
+`The intellectual property of Will Eisner, who gives his name to the most prestigious award in American comics, is up for sale.`\
+https://nytimes.com/2026/01/29/books/will-eisner-spirit-sale.html
+
 **The Bounce: Is a Giannis trade imminent? Plus, Chet vs. Wemby for DPOY?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7006800/2026/01/29/giannis-antetokounmpo-trade-rumors-wembanyama-the-bounce/

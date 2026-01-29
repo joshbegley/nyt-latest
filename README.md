@@ -1,3 +1,7 @@
+**'This is the biggest thing in our history': In with Kairat's Kazakhstani diaspora against Arsenal**\
+`Arsenal's Champions League game against Kairat was technically a dead rubber - but not for the 2,000 away supporters at the Emirates`\
+https://nytimes.com/athletic/7006788/2026/01/29/arsenal-kairat-kazakhstani-champions-league-fans/
+
 **The Bucks without Giannis? Potential packages with the NBA trade deadline near**\
 `The Athletic attempted to put together the most competitive trade packages possible from teams as the NBA trade deadline nears.`\
 https://nytimes.com/athletic/7005877/2026/01/29/giannis-antetokounmpo-bucks-nba-trade-deadline-packages/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7006368/2026/01/29/tennis-australian-open-semifinal
 **Fantasy trends and hidden gems: Will Smith, John Klingberg among top Week 18 targets**\
 `With the Olympics and a trade deadline ahead, Shayna Goldman helps fantasy managers navigate the NHL's tricky upcoming schedule. `\
 https://nytimes.com/athletic/7005405/2026/01/29/fantasy-trends-hidden-gems-will-smith-top-week-18-targets/
-
-**Starmer and Xi Meet to Reset Ties Between Britain and China**\
-`Prime Minister Keir Starmer of Britain and President Xi Jinping of China met in Beijing on Thursday in a bid to reset ties as both countries seek a way around an increasingly volatile United States.`\
-https://nytimes.com/video/world/asia/100000010675857/china-uk-starmer-xi.html
 
