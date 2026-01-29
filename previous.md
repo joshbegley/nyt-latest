@@ -1,3 +1,7 @@
+**Videos Show Alex Pretti in Confrontation With Agents 11 Days Before His Death**\
+`More than a week before federal agents killed Mr. Pretti, a Minneapolis nurse, different agents pushed him to the ground after he spit at them and broke a taillight on their S.U.V.`\
+https://nytimes.com/2026/01/28/us/alex-pretti-kicking-ice-vehicle-video.html
+
 **Judge Orders Release of Minnesota Refugees Targeted in ICE Crackdown**\
 `A federal judge granted a temporary restraining order, which halts a Trump administration operation that has swept up at least 100 people so far.`\
 https://nytimes.com/2026/01/28/us/politics/minnesota-refugees-ice-crackdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/us/politics/rubio-hearing-venezuela.html
 **LeBron James sheds tears during tribute video in latest return to Cleveland**\
 `Wednesday marked the 41-year-old James' eighth game in Cleveland as a member of the Lakers.`\
 https://nytimes.com/athletic/7005683/2026/01/28/lebron-james-crying-cavaliers-tribute-video/
-
-**How the Pro Football Hall of Fame selection process works — and who is involved in voting**\
-`Bill Belichick's reported exclusion has the Hall of Fame selection process in the spotlight, so how does it work?`\
-https://nytimes.com/athletic/7005207/2026/01/28/pro-football-hall-of-fame-selection-process-bill-belichick/
 

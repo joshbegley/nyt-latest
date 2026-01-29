@@ -1,3 +1,7 @@
+**Videos Show Alex Pretti in Confrontation With Agents 11 Days Before His Death**\
+`More than a week before federal agents killed Mr. Pretti, a Minneapolis nurse, different agents pushed him to the ground after he spit at them and broke a taillight on their S.U.V.`\
+https://nytimes.com/2026/01/28/us/alex-pretti-kicking-ice-vehicle-video.html
+
 **Judge Orders Release of Minnesota Refugees Targeted in ICE Crackdown**\
 `A federal judge granted a temporary restraining order, which halts a Trump administration operation that has swept up at least 100 people so far.`\
 https://nytimes.com/2026/01/28/us/politics/minnesota-refugees-ice-crackdown.html
