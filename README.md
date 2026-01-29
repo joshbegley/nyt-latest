@@ -1,5 +1,5 @@
 **USWNT star Crystal Dunn announces retirement from soccer aged 33**\
-`In a post on Instagram on Monday, Dunn said she was “at peace and deeply fulfilled with all that I have accomplished.”`\
+`In a post on Instagram on Monday, Dunn said she was “at peace and deeply fulfilled with all that I have accomplished".`\
 https://nytimes.com/athletic/7007210/2026/01/29/crystal-dunn-retires-uswnt/
 
 **Read the Criminal Complaint Against Anthony Kazmierczak, the Man Who Attacked Rep. Ilhan Omar**\
@@ -14,7 +14,7 @@ https://nytimes.com/athletic/7006283/2026/01/29/the-champions-league-group-phase
 `The chin-out rhetoric of Democratic governors about holding Trump administration officials responsible for violence in their cities may be more political than practicable.`\
 https://nytimes.com/2026/01/29/us/politics/democrats-governors-trump-minneapolis.html
 
-**How an Arsenal-Man Utd matchball helped smooth UK-China relations**\
+**How an Arsenal-Man Utd match ball helped smooth UK-China relations**\
 `An Emirates Stadium memento and an unlikely love for Crystal Palace were features of recent talks between the two nations`\
 https://nytimes.com/athletic/7007030/2026/01/29/arsenal-man-utd-ball-keir-starmer-xi-jinping/
 
