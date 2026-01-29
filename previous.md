@@ -1,3 +1,11 @@
+**Apple Reports Record iPhone Sales Amid Holiday Bump**\
+`New phone designs, coupled with robust holiday spending, continued to lift iPhone sales in the quarter and boosted revenue.`\
+https://nytimes.com/2026/01/29/technology/apple-iphone-sales-quarterly-report.html
+
+**Due to weather, NASCAR reschedules Saturday's Clash races to Sunday**\
+`Sunday's race in Winston-Salem, N.C., could be the coldest in NASCAR history.`\
+https://nytimes.com/athletic/7008094/2026/01/29/nascar-clash-bowman-gray-weather-schedule/
+
 **A Global Pop Music Melting Pot**\
 `The era of American dominance is over. Music now comes from artists everywhere listening to each other.`\
 https://nytimes.com/2026/01/29/world/bad-bunny-grammys-pop-britain-china.html
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/7007871/2026/01/29/jacen-russell-rowe-transfer-toul
 https://nytimes.com/2026/01/29/us/new-butt-book-appeal.html
 
 **Police File Hate Crime Charges After Chabad Ramming in Brooklyn**\
-`The police arrested the man, Dan Sohail, after a vehicle was rammed into the headquarters of the Hasidic Jewish organization.`\
+`The police arrested the man, Dan Sohail, after a vehicle was rammed into the Brooklyn headquarters of the Hasidic Jewish organization. The man’s father said in an interview that his son did not hate Jewish people.`\
 https://nytimes.com/2026/01/29/nyregion/chabad-brooklyn-car-ramming.html
 
 **Scoop City: Hall of Fame fallout**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/29/dining/doughnuts-from-tokyo-los-angeles-and-montr
 **U.S. coach Pochettino critical of Weah weighing in on WC ticket prices**\
 `The U.S. manager indicated that it's not his or the players' place to answer for FIFA's decisions and that opinions should be kept quiet`\
 https://nytimes.com/athletic/7008022/2026/01/29/mauricio-pochettino-tim-weah-world-cup-ticket-prices-fifa-usmnt/
-
-**Josh Allen reveals broken bone in right foot that required surgery**\
-`Allen spoke publicly for the first time since the Bills fired head coach Sean McDermott and promoted Joe Brady to the position.`\
-https://nytimes.com/athletic/7007740/2026/01/29/bills-josh-allen-injury-foot-surgery/
-
-**Canada Signs Auto Deal With South Korea, Moving Further From the U.S.**\
-`The agreement, while scarce on details, is the latest step by Prime Minister Mark Carney to reduce Canada’s reliance on trade with the U.S.`\
-https://nytimes.com/2026/01/29/world/canada/canada-south-korea-auto-deal-tariffs.html
 
