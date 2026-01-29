@@ -1,3 +1,11 @@
+**Late Night Praises Ilhan Omar’s Quick Reflexes**\
+`Stephen Colbert said the Minneapolis congresswoman looked “ready to throw some hands” after a man sprayed a substance at her at a town hall.`\
+https://nytimes.com/2026/01/29/arts/television/late-night-ilhan-omar.html
+
+**Rosenior's statement win in Napoli is vital for him - and Chelsea**\
+`The club's new head coach has made a superb start and sparked hope that this could yet be a memorable campaign`\
+https://nytimes.com/athletic/7005632/2026/01/29/liam-rosenior-chelsea-napoli/
+
 **Democrats Demand Guardrails as Government Shutdown Looms**\
 `Senate Democrats listed their conditions to allow a funding bill for the Department of Homeland Security to pass. If the bill stalls, the government could shut down at the Friday deadline.`\
 https://nytimes.com/video/us/politics/100000010675396/trump-schumer-deal-shutdown.html

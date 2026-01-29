@@ -1,3 +1,7 @@
+**Welcome back Kai Havertz, Arsenal have missed you**\
+`The German international finally made his first start of the season against Kairat, and rewarded fans' admiration with a superb performance`\
+https://nytimes.com/athletic/7005203/2026/01/29/kai-havertz-arsenal-kairat/
+
 **Late Night Praises Ilhan Omar’s Quick Reflexes**\
 `Stephen Colbert said the Minneapolis congresswoman looked “ready to throw some hands” after a man sprayed a substance at her at a town hall.`\
 https://nytimes.com/2026/01/29/arts/television/late-night-ilhan-omar.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7006131/2026/01/29/serena-williams-tennis-comeback-
 **The New York Times in Print for Thursday, Jan. 29, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/29/todays-new-york-times
-
-**No Child Deserves to Die Like My Daughter**\
-`What was done to my daughter did not break me. It left me with a mother’s responsibility to ensure no child is left unheard.`\
-https://nytimes.com/2026/01/29/opinion/israel-gaza-child-death-hind-rajab.html
 
