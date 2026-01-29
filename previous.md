@@ -1,40 +1,40 @@
-**Steph Curry scores win at Sundance with co-directed short film win**\
-`Curry’s Sundance short film spotlights Clarence B. Jones, MLK Jr.’s attorney and speechwriter.`\
-https://nytimes.com/athletic/7006943/2026/01/29/steph-curry-sundance-martin-luther-king-film-win/
+**Homan Says ‘Improvements Could and Should Be Made’ in Minneapolis**\
+`The White House border czar said there are plans for a “drawdown” if his agents get access to jails in the state.`\
+https://nytimes.com/2026/01/29/us/homan-minneapolis-ice-press-conference.html
 
-**Former Deputy Sentenced to 20 Years in Fatal Shooting of Sonya Massey**\
-`The deputy, Sean Grayson, was convicted of second-degree murder for killing Ms. Massey in 2024 at her home in Springfield, Ill., after she had called 911.`\
-https://nytimes.com/2026/01/29/us/sean-grayson-sentencing-sonya-massey-shooting.html
+**How to watch Avalanche vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7007165/2026/01/29/avalanche-vs-canadiens-stream-how-to-watch-jan-29/
 
-**Chelsea exploring women's team sharing Plough Lane with Wimbledon**\
-`The team currently plays most of its home league games at the 4,850-capacity Kingsmeadow.`\
-https://nytimes.com/athletic/7006704/2026/01/29/chelsea-women-wimbledon-kingsmeadow/
+**How to watch Mammoth vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7007162/2026/01/29/mammoth-vs-hurricanes-stream-how-to-watch-jan-29/
 
-**How to watch Kansas vs. TCU women's basketball: Time, TV, streaming**\
-`Find out how to watch the Kansas Jayhawks play the TCU Horned Frogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007121/2026/01/29/kansas-vs-tcu-stream-how-to-watch-jan-29/
+**How to watch Kings vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7007160/2026/01/29/kings-vs-sabres-stream-how-to-watch-jan-29/
 
-**How to watch Colorado vs. Iowa State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Colorado Buffaloes play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007116/2026/01/29/colorado-vs-iowa-state-stream-how-to-watch-jan-29/
+**How to watch Blackhawks vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7007157/2026/01/29/blackhawks-vs-penguins-stream-how-to-watch-jan-29/
 
-**How to watch Alabama vs. Georgia women's basketball: Time, TV, streaming**\
-`Find out how to watch the Alabama Crimson Tide play the Georgia Lady Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007114/2026/01/29/alabama-vs-georgia-stream-how-to-watch-jan-29/
+**How to watch Flyers vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7007155/2026/01/29/flyers-vs-bruins-stream-how-to-watch-jan-29/
 
-**How to watch Mississippi State vs. Tennessee women's basketball: Time, TV, streaming**\
-`Find out how to watch the Mississippi State Bulldogs play the Tennessee Lady Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007109/2026/01/29/mississippi-state-vs-tennessee-stream-how-to-watch-jan-29/
+**How to watch Kings vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7007152/2026/01/29/kings-vs-76ers-stream-how-to-watch-jan-29/
 
-**How to watch Michigan vs. Indiana women's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan Wolverines play the Indiana Hoosiers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007104/2026/01/29/michigan-vs-indiana-stream-how-to-watch-jan-29/
+**ICE Ends Operation in Maine After Arresting 206 Over Five Days**\
+`Senator Susan Collins said the Trump administration had informed her that Immigration and Customs Enforcement had ended its stepped-up enforcement in the state.`\
+https://nytimes.com/2026/01/29/us/ice-ends-operation-in-maine-after-arresting-206-over-five-days.html
 
-**How to watch Michigan State vs. Purdue women's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan State Spartans play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007102/2026/01/29/michigan-state-vs-purdue-stream-how-to-watch-jan-29/
+**How to watch Jets vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7007148/2026/01/29/jets-vs-lightning-stream-how-to-watch-jan-29/
 
-**How to watch Texas vs. Florida women's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Longhorns play the Florida Gators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007098/2026/01/29/texas-vs-florida-stream-how-to-watch-jan-29/
+**How to watch Predators vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7007146/2026/01/29/predators-vs-devils-stream-how-to-watch-jan-29/
 
