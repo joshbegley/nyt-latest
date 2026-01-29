@@ -1,3 +1,15 @@
+**T's Feb. 22 Women's Fashion Issue**\
+``\
+https://nytimes.com/issue/t-magazine/2026/01/29/ts-feb-22-womens-fashion-issue-2026
+
+**Review: Without Its Star, Noche Flamenca Still Shines**\
+`“Irrationalities,” at the Joyce Theater, disappoints only if you are expecting Soledad Barrio, the company’s world-class dancer, who is out with an injury.`\
+https://nytimes.com/2026/01/29/arts/dance/review-noche-flamenca-irrationalities.html
+
+**Man Accused of Squirting Ilhan Omar With Vinegar Is Charged With Assault**\
+`Ms. Omar was sprayed with liquid from a syringe as she spoke at a town hall and called for the resignation of Kristi Noem, who leads the Homeland Security Department.`\
+https://nytimes.com/2026/01/29/us/man-accused-of-squirting-ilhan-omar-with-vinegar-is-charged-with-assault.html
+
 **USWNT star Crystal Dunn announces retirement from soccer aged 33**\
 `In a post on Instagram on Monday, Dunn said she was “at peace and deeply fulfilled with all that I have accomplished".`\
 https://nytimes.com/athletic/7007210/2026/01/29/crystal-dunn-retires-uswnt/

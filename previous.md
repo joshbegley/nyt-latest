@@ -1,3 +1,15 @@
+**T's Feb. 22 Women's Fashion Issue**\
+``\
+https://nytimes.com/issue/t-magazine/2026/01/29/ts-feb-22-womens-fashion-issue-2026
+
+**Review: Without Its Star, Noche Flamenca Still Shines**\
+`“Irrationalities,” at the Joyce Theater, disappoints only if you are expecting Soledad Barrio, the company’s world-class dancer, who is out with an injury.`\
+https://nytimes.com/2026/01/29/arts/dance/review-noche-flamenca-irrationalities.html
+
+**Man Accused of Squirting Ilhan Omar With Vinegar Is Charged With Assault**\
+`Ms. Omar was sprayed with liquid from a syringe as she spoke at a town hall and called for the resignation of Kristi Noem, who leads the Homeland Security Department.`\
+https://nytimes.com/2026/01/29/us/man-accused-of-squirting-ilhan-omar-with-vinegar-is-charged-with-assault.html
+
 **USWNT star Crystal Dunn announces retirement from soccer aged 33**\
 `In a post on Instagram on Monday, Dunn said she was “at peace and deeply fulfilled with all that I have accomplished".`\
 https://nytimes.com/athletic/7007210/2026/01/29/crystal-dunn-retires-uswnt/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/7007030/2026/01/29/arsenal-man-utd-ball-keir-starme
 **Twix Is OK but Granola Isn’t as States Deploy New Food Stamp Rules**\
 `A dizzying array of rules govern what can be bought with SNAP dollars, confusing grocery stores and consumers.`\
 https://nytimes.com/2026/01/29/business/snap-benefits-food-stamps-rules-health.html
-
-**Emma Raducanu splits with coach Francis Roig after less than six months**\
-`The 23-year-old shared on social media her and Roig's mutual decision to split.`\
-https://nytimes.com/athletic/7007065/2026/01/29/emma-raducanu-coach-split-francis-roig/
-
-**USMNT Tracker: Champions League progress for McKennie and Balogun but late elimination for Weah**\
-`While five USMNT players made it through to the play-off round, there was last-gasp disappointment for Tim Weah and Marseille`\
-https://nytimes.com/athletic/7005467/2026/01/29/usmnt-champions-league/
-
-**Why a New Mexico Developer Quit Natural Gas**\
-`For John Moscato, a land developer in Las Cruces, N.M., installing gas lines at new home sites was “an ongoing headache.” Ditching gas saved him money.`\
-https://nytimes.com/2026/01/29/climate/why-a-new-mexico-developer-quit-natural-gas.html
 
