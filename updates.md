@@ -1,3 +1,7 @@
+**Victor Wembanyama Shines in Spurs’ Comeback Win Over Rockets**\
+`On Wednesday in the N.B.A., Victor Wembanyama shined in the San Antonio Spurs’ comeback win over the Houston Rockets, the New York Knicks won their fourth straight game, and the Cavaliers spoiled LeBron James’s return to Cleveland.`\
+https://nytimes.com/video/sports/basketball/100000010675801/victor-wembanyama-shines-in-spurs-comeback-win-over-rockets.html
+
 **Palace close on Strand Larsen £45m transfer agreement with Wolves**\
 `Palace want to strengthen their attack before the winter transfer window shuts and Strand Larsen has emerged as their top target.`\
 https://nytimes.com/athletic/7001524/2026/01/29/strand-larsen-crystal-palace-transfers-wolves/
