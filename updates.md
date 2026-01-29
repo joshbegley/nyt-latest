@@ -1,3 +1,7 @@
+**Video Shows Alex Pretti in Earlier Altercation With Federal Agents**\
+`Video shows Alex Pretti in a confrontation with federal agents 11 days before he was killed by a different group of agents in Minneapolis.`\
+https://nytimes.com/video/us/100000010675648/alex-pretti-kicking-ice-vehicle-video.html
+
 **Alarm**\
 `What do you think this image is communicating?`\
 https://nytimes.com/2026/01/29/learning/alarm.html
