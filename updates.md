@@ -1,3 +1,11 @@
+**Philip Glass’s Protest at the Kennedy Center**\
+`Readers discuss Philip Glass’s refusal to allow the performance of his symphony at the Kennedy Center. Also: Real leaders at a time of crisis.`\
+https://nytimes.com/2026/01/29/opinion/philip-glass-protest-kennedy-center.html
+
+**In Hostile Times, Maine Immigrants Cherish Artistic Traditions**\
+`An apprenticeship program that passes on skills like Cambodian dance is persevering despite funding threats and ICE agents.`\
+https://nytimes.com/2026/01/29/arts/maine-immigrants-cambodian-dance.html
+
 **Fox releases World Cup schedule, will set record for games on network TV**\
 `All except two knockout round games will be on Fox's main channel`\
 https://nytimes.com/athletic/7007398/2026/01/29/fox-world-cup-broadcast-schedule-record-tv-fs1/

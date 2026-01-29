@@ -1,3 +1,11 @@
+**Costco Is Sued Over Preservatives in Its $5 Rotisserie Chickens**\
+`A proposed class-action lawsuit claims Costco was misleading customers and engaging in false advertising when it described the chicken as having no preservatives.`\
+https://nytimes.com/2026/01/29/business/costco-chicken-lawsuit-preservatives.html
+
+**The Mushroom Gummies That Claim to Stimulate Your Brain**\
+`Fungal supplements are everywhere, promising happiness, energy, focus, you name it. But what they deliver is something else entirely.`\
+https://nytimes.com/2026/01/29/magazine/wonder-day-mushroom-gummies.html
+
 **Philip Glass’s Protest at the Kennedy Center**\
 `Readers discuss Philip Glass’s refusal to allow the performance of his symphony at the Kennedy Center. Also: Real leaders at a time of crisis.`\
 https://nytimes.com/2026/01/29/opinion/philip-glass-protest-kennedy-center.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/29/dining/soup-is-in-the-forecast.html
 **Clark Art Institute Announces Its Next Director**\
 `The current deputy director and chief curator, Esther Bell, will become director in July.`\
 https://nytimes.com/2026/01/29/arts/design/clark-museum-new-director.html
-
-**Loewe’s Iconic Amazona Bag Gets a Refresh**\
-`As part of their debut at the Spanish brand, Jack McCollough and Lazaro Hernandez gave the 1975 style a slouchy, easygoing feel.`\
-https://nytimes.com/2026/01/29/t-magazine/loewe-amazona-180-bag.html
-
-**The Immigration Battle Comes, Loudly, to Budget Hotels**\
-`“No sleep” protests have used noise and other tactics to target ICE agents at hotels, leaving the owners, often immigrants themselves, caught in the middle.`\
-https://nytimes.com/2026/01/29/travel/hotels-anti-ice-protests.html
 

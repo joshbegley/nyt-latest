@@ -1,3 +1,11 @@
+**Philip Glass’s Protest at the Kennedy Center**\
+`Readers discuss Philip Glass’s refusal to allow the performance of his symphony at the Kennedy Center. Also: Real leaders at a time of crisis.`\
+https://nytimes.com/2026/01/29/opinion/philip-glass-protest-kennedy-center.html
+
+**In Hostile Times, Maine Immigrants Cherish Artistic Traditions**\
+`An apprenticeship program that passes on skills like Cambodian dance is persevering despite funding threats and ICE agents.`\
+https://nytimes.com/2026/01/29/arts/maine-immigrants-cambodian-dance.html
+
 **Fox releases World Cup schedule, will set record for games on network TV**\
 `All except two knockout round games will be on Fox's main channel`\
 https://nytimes.com/athletic/7007398/2026/01/29/fox-world-cup-broadcast-schedule-record-tv-fs1/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/29/t-magazine/loewe-amazona-180-bag.html
 **The Immigration Battle Comes, Loudly, to Budget Hotels**\
 `“No sleep” protests have used noise and other tactics to target ICE agents at hotels, leaving the owners, often immigrants themselves, caught in the middle.`\
 https://nytimes.com/2026/01/29/travel/hotels-anti-ice-protests.html
-
-**Hawks' Okongwu shows battered teeth after hit from Celtics' Brown**\
-`Jaylen Brown was apologetic after the game, though he did receive a flagrant foul for the wayward elbow.`\
-https://nytimes.com/athletic/7007245/2026/01/29/onyeka-okungwu-hawks-teeth-mouth-celtics/
-
-**Democrats Block Spending Package as D.H.S. Talks Continue**\
-`With about 36 hours to go before a shutdown deadline, the funding legislation stalled while Democrats sought a deal with President Trump to rein in his immigration crackdown.`\
-https://nytimes.com/2026/01/29/us/politics/democrats-dhs-spending.html
 
