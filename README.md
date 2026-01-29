@@ -1,3 +1,19 @@
+**Democrats Block Spending Package as D.H.S. Talks Continue**\
+`With about 36 hours to go before a shutdown deadline, the funding legislation stalled while Democrats sought a deal with President Trump to rein in his immigration crackdown.`\
+https://nytimes.com/2026/01/29/us/politics/democrats-dhs-spending.html
+
+**How to watch Flames vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7007317/2026/01/29/flames-vs-wild-stream-how-to-watch-jan-29/
+
+**How to watch Capitals vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7007313/2026/01/29/capitals-vs-red-wings-stream-how-to-watch-jan-29/
+
+**How to watch Panthers vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7007305/2026/01/29/panthers-vs-blues-stream-how-to-watch-jan-29/
+
 **T's Feb. 22 Women's Fashion Issue**\
 ``\
 https://nytimes.com/issue/t-magazine/2026/01/29/ts-feb-22-womens-fashion-issue-2026
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/7007210/2026/01/29/crystal-dunn-retires-uswnt/
 **Read the Criminal Complaint Against Anthony Kazmierczak, the Man Who Attacked Rep. Ilhan Omar**\
 `Mr. Kazmierczak was arrested after he squirted liquid from a syringe onto Representative Ilhan Omar in Minneapolis as she spoke at an event on Tuesday night.`\
 https://nytimes.com/interactive/2026/01/29/us/anthony-kazmierczak-criminal-complaint.html
-
-**The Champions League group phase has merits but it's bloated. This is how to fix it**\
-`The 'Swiss-style' format produced last-day drama but still feels bloated - a compromise is needed`\
-https://nytimes.com/athletic/7006283/2026/01/29/the-champions-league-group-phase-has-merits-but-its-bloated-this-is-how-to-fix-it/
-
-**Democratic Governors Promise Accountability After Minneapolis**\
-`The chin-out rhetoric of Democratic governors about holding Trump administration officials responsible for violence in their cities may be more political than practicable.`\
-https://nytimes.com/2026/01/29/us/politics/democrats-governors-trump-minneapolis.html
-
-**How an Arsenal-Man Utd match ball helped smooth UK-China relations**\
-`An Emirates Stadium memento and an unlikely love for Crystal Palace were features of recent talks between the two nations`\
-https://nytimes.com/athletic/7007030/2026/01/29/arsenal-man-utd-ball-keir-starmer-xi-jinping/
-
-**Twix Is OK but Granola Isn’t as States Deploy New Food Stamp Rules**\
-`A dizzying array of rules govern what can be bought with SNAP dollars, confusing grocery stores and consumers.`\
-https://nytimes.com/2026/01/29/business/snap-benefits-food-stamps-rules-health.html
 
