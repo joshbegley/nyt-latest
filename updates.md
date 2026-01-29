@@ -1,3 +1,35 @@
+**Sunglasses, and Stormy Times, Lift France’s Embattled Leader**\
+`Dismissed as a lame duck, Emmanuel Macron has clawed back some influence after his defense of Greenland and Denmark. Will quieter domestic politics allow him to secure his legacy?`\
+https://nytimes.com/2026/01/29/world/europe/macron-france-trump-sunglasses-boost.html
+
+**Quote of the Day: All-Night Concerts Bring a War-Ravaged Nation Momentary Normalcy**\
+`Quotation of the Day for Thursday, January 29, 2026.`\
+https://nytimes.com/2026/01/29/pageoneplus/quote-of-the-day-all-night-concerts-bring-a-war-ravaged-nation-momentary-normalcy.html
+
+**Connections: Sports Edition Coach: Hints for Jan. 29, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7005944/2026/01/29/connections-sports-edition-hints-for-jan-29-2026/
+
+**How to watch Australian Open 2026 women's semifinals**\
+`After an eventful start, four top-12 seeds remain in the women's bracket as the 2026 Australian Open reaches its final stages.`\
+https://nytimes.com/athletic/7005215/2026/01/29/australian-open-womens-semifinals-odds-how-to-watch-2026/
+
+**At World’s Busiest Port, China’s Unbalanced Economy Comes Into View**\
+`The shipping traffic and factories never stop in China’s port city of Ningbo, but the local housing market has crashed and nearby restaurants sit empty.`\
+https://nytimes.com/2026/01/29/business/china-economy-duality.html
+
+**Corrections: Jan. 29, 2026**\
+`Corrections that appeared in print on Thursday, Jan. 29, 2026.`\
+https://nytimes.com/2026/01/29/pageoneplus/corrections-jan-29-2026.html
+
+**She Couldn’t Defend Herself, But He Wasn’t Charged With Rape**\
+`A decision not to charge a man who fathered children with a woman with a mental illness has set off a debate about rape, consent and China’s push for babies.`\
+https://nytimes.com/2026/01/29/world/asia/china-woman-mental-illness-rape.html
+
+**2026 dynasty fantasy football rankings | Overall, SuperFlex, Positions**\
+`Jake Ciely looks ahead to next season with early 2026 dynasty rankings, headlined by a trio of wide receivers.`\
+https://nytimes.com/athletic/7004804/2026/01/29/2026-dynatasy-fantasy-football-rankings-overall-superflex-positions/
+
 **Driver Rams Car Into Headquarters of Chabad Hasidic Movement**\
 `No one was injured when the motorist drove into a door at the side entrance of the building on Eastern Parkway, Brooklyn. The man, who was taken into custody, appeared agitated.`\
 https://nytimes.com/2026/01/28/nyregion/chabad-crash-eastern-parkway.html
