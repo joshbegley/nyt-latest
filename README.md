@@ -1,9 +1,13 @@
-**Arsenal in talks to sign Barcelona's Batlle in summer in pre-contract deal**\
+**The A.I. Boom’s Uncertain Payoff**\
+`Companies like Microsoft and Meta are still spending big on artificial intelligence. But investors remain antsy about seeing results.`\
+https://nytimes.com/2026/01/29/business/dealbook/ai-spending-meta-microsoft.html
+
+**Arsenal in talks to sign Batlle in summer when Barcelona contract expires**\
 `The move would see Batlle return to the WSL, having played for Manchester United between 2020 and 2023.`\
 https://nytimes.com/athletic/6999040/2026/01/29/ona-batlle-barcelona-arsenal-transfer-talks/
 
 **Crystal Palace in talks to sign Evann Guessand on loan from Aston Villa**\
-`The 24-year-old is the subject of interest from various European clubs though Palace are currently regarded as frontrunners for his signatur`\
+`The 24-year-old is the subject of interest from various European clubs though Palace are currently regarded as frontrunners.`\
 https://nytimes.com/athletic/7006691/2026/01/29/evann-guessand-crystal-palace-aston-villa-loan/
 
 **SEC survey results: Fans on the state of the conference, Indiana and the future of the sport**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7005563/2026/01/29/australian-open-womens-semifinal
 **Rookie Joan Beringer has the Timberwolves contemplating a supersized lineup**\
 `The French center's energy and emergence prompted Chris Finch to move the former Sixth Man of the Year to the perimeter.`\
 https://nytimes.com/athletic/7005352/2026/01/29/joan-beringer-timberwolves-big-naz-reid/
-
-**Democrats Call for Release of 5-Year-Old Detained by ICE**\
-`Representative Joaquin Castro said Liam Conejo Ramos appeared lethargic during a visit by lawmakers to the facility where he and his father are being held. The pair were detained in Minnesota.`\
-https://nytimes.com/2026/01/29/us/liam-conejo-ramos-ice-texas-detention-center.html
 
