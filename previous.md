@@ -1,3 +1,7 @@
+**Another Top Kennedy Center Official Resigns**\
+`Kevin Couch, who was announced as senior vice president of artistic programming less than two weeks ago, is the latest to leave since President Trump took control of the center last year.`\
+https://nytimes.com/2026/01/28/us/politics/trump-kennedy-center-resignation.html
+
 **In Beijing, British Prime Minister Sees ‘Huge Opportunities’**\
 `Prime Minister Keir Starmer of Britain met with President Xi Jinping of China as he sought to promote business ties with the world’s second-largest economy.`\
 https://nytimes.com/2026/01/28/world/asia/china-starmer-xi-jinping.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/us/alex-pretti-kicking-ice-vehicle-video.html
 **Judge Orders Release of Minnesota Refugees Targeted in ICE Crackdown**\
 `A federal judge granted a temporary restraining order, which halts a Trump administration operation that has swept up at least 100 people so far.`\
 https://nytimes.com/2026/01/28/us/politics/minnesota-refugees-ice-crackdown.html
-
-**The Trump administration moves to sell a landmark D.C. building that was once a Trump hotel.**\
-`The Old Post Office, a 19th-century building in the nation’s capital with an iconic clock tower, was once home to the Trump International Hotel.`\
-https://nytimes.com/live/2026/01/28/us/trump-news/the-trump-administration-moves-to-sell-a-landmark-dc-building-that-was-once-a-trump-hotel
 
