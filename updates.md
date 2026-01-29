@@ -1,3 +1,15 @@
+**Judge Orders Release of Minnesota Refugees Targeted in ICE Crackdown**\
+`A federal judge granted a temporary restraining order, which halts a Trump administration operation that has swept up at least 100 people so far.`\
+https://nytimes.com/2026/01/28/us/politics/minnesota-refugees-ice-crackdown.html
+
+**The Trump administration moves to sell a landmark D.C. building that was once a Trump hotel.**\
+`The Old Post Office, a 19th-century building in the nation’s capital with an iconic clock tower, was once home to the Trump International Hotel.`\
+https://nytimes.com/live/2026/01/28/us/trump-news/the-trump-administration-moves-to-sell-a-landmark-dc-building-that-was-once-a-trump-hotel
+
+**How the Pro Football Hall of Fame selection process works — and who is involved in voting**\
+`Bill Belichick's reported exclusion has the Hall of Fame selection process in the spotlight, so how does it work?`\
+https://nytimes.com/athletic/7005207/2026/01/28/pro-football-hall-of-fame-selection-process-bill-belichick/
+
 **The Trump administration moves to sell a landmark D.C. building that was once a Trump hotel.**\
 `The Old Post Office, a 19th-century building in the nation’s capital with a TKTK clock tower, was once home to the Trump International Hotel.`\
 https://nytimes.com/live/2026/01/28/us/trump-news/the-trump-administration-moves-to-sell-a-landmark-dc-building-that-was-once-a-trump-hotel

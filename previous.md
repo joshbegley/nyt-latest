@@ -1,5 +1,9 @@
+**Judge Orders Release of Minnesota Refugees Targeted in ICE Crackdown**\
+`A federal judge granted a temporary restraining order, which halts a Trump administration operation that has swept up at least 100 people so far.`\
+https://nytimes.com/2026/01/28/us/politics/minnesota-refugees-ice-crackdown.html
+
 **The Trump administration moves to sell a landmark D.C. building that was once a Trump hotel.**\
-`The Old Post Office, a 19th-century building in the nation’s capital with a TKTK clock tower, was once home to the Trump International Hotel.`\
+`The Old Post Office, a 19th-century building in the nation’s capital with an iconic clock tower, was once home to the Trump International Hotel.`\
 https://nytimes.com/live/2026/01/28/us/trump-news/the-trump-administration-moves-to-sell-a-landmark-dc-building-that-was-once-a-trump-hotel
 
 **How Trump Is Weaponizing the Global System**\
@@ -30,11 +34,7 @@ https://nytimes.com/2026/01/28/us/politics/rubio-hearing-venezuela.html
 `Wednesday marked the 41-year-old James' eighth game in Cleveland as a member of the Lakers.`\
 https://nytimes.com/athletic/7005683/2026/01/28/lebron-james-crying-cavaliers-tribute-video/
 
-**How the Pro Football Hall of Fame selection process works and who is involved in voting**\
+**How the Pro Football Hall of Fame selection process works — and who is involved in voting**\
 `Bill Belichick's reported exclusion has the Hall of Fame selection process in the spotlight, so how does it work?`\
 https://nytimes.com/athletic/7005207/2026/01/28/pro-football-hall-of-fame-selection-process-bill-belichick/
-
-**N.Y.P.D. Searches Target Black and Latino Drivers, Lawsuit Says**\
-`The New York Civil Liberties Union accused the Police Department of discrimination in a federal lawsuit that calls for an end to the practice.`\
-https://nytimes.com/2026/01/28/nyregion/nypd-lawsuit-traffic-stops-black-latino.html
 
