@@ -1,3 +1,7 @@
+**AFCON chaos: Senegal boss Thiaw handed five-game ban, total fines exceed $1m**\
+`Morocco's request to overturn the result of the final due to Senegal's players leaving the pitch was dismissed by CAF.`\
+https://nytimes.com/athletic/7006327/2026/01/29/afcon-final-senegal-morocco/
+
 **Trump’s Lies Have a Purpose**\
 `What MAGA sees in the Minneapolis mirror.`\
 https://nytimes.com/2026/01/29/opinion/truump-ice-minnesota-noem-miller.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7004858/2026/01/29/patriots-craig-woodson-rookie-cl
 **Alive on the Edge of the World, and Suddenly at Its Center**\
 `Inuuteq Storch, a young photographer from Greenland with a show at MoMA PS1, captures daily life in a place much less remote than we thought.`\
 https://nytimes.com/2026/01/29/arts/design/alive-on-the-edge-of-the-world-and-suddenly-at-its-center.html
-
-**He Lost His Parents in a Plane Crash. Next Week He’ll Skate at the Olympics.**\
-`After his parents died in the midair collision over Washington, D.C., a year ago, Maxim Naumov struggled to put on his skates. Now he will compete for the United States at the Milan-Cortina Games.`\
-https://nytimes.com/2026/01/29/us/maxim-naumov-2026-olympics-dc-plane-crash.html
 
