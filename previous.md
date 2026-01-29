@@ -34,7 +34,3 @@ https://nytimes.com/2026/01/29/us/ice-ends-operation-in-maine-after-arresting-20
 `Find out how to watch the Winnipeg Jets play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7007148/2026/01/29/jets-vs-lightning-stream-how-to-watch-jan-29/
 
-**How to watch Predators vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007146/2026/01/29/predators-vs-devils-stream-how-to-watch-jan-29/
-
