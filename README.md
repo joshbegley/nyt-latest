@@ -1,3 +1,7 @@
+**Hall of Fame confirms Bill Polian did vote to induct Bill Belichick**\
+`A spokesperson for the Hall said Polian did not speak during the discussion around Belichick's candidacy.`\
+https://nytimes.com/athletic/7005498/2026/01/28/bill-polian-bill-belichick-hof-voting/
+
 **Shooting Aftermath Leaves Homeland Security Department in Turmoil**\
 `As officials point fingers in the wake of Alex Pretti’s death at the hands of federal agents, concerns grow about the agency’s future.`\
 https://nytimes.com/2026/01/28/us/politics/shooting-dhs-turmoil.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010659478/how-trump-is-trying-to-recast-
 **The Man Agents Were Seeking When They Killed Pretti Remains at Large**\
 `Federal officials said agents were looking for an Ecuadorean named Jose Huerta-Chuma. Records show he faced allegations of domestic assault and had several traffic infractions.`\
 https://nytimes.com/2026/01/28/us/minneapolis-shooting-ice-target-minnesota.html
-
-**Trump Administration Denies That Coercion Is at Heart of Minnesota ICE Surge**\
-`A federal judge weighing whether to block the immigration surge asked Justice Department lawyers to more fully explain the reasons for the operation.`\
-https://nytimes.com/2026/01/28/us/minnesota-ice-surge-trump-administration-lawsuit.html
 
