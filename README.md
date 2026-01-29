@@ -1,3 +1,7 @@
+**Trump Administration Denies That Coercion Is at Heart of Minnesota ICE Surge**\
+`A federal judge weighing whether to block the immigration surge asked Justice Department lawyers to more fully explain the reasons for the operation.`\
+https://nytimes.com/2026/01/28/us/minnesota-ice-surge-trump-administration-lawsuit.html
+
 **ICE Agents Blocked From Entering Ecuadorean Consulate in Minneapolis**\
 `Video footage obtained by The New York Times showed federal immigration agents trying to enter the Ecuadorean Consulate in Minneapolis on Tuesday.`\
 https://nytimes.com/video/us/100000010675020/ice-agents-ecuadorean-consulate.html
@@ -7,7 +11,7 @@ https://nytimes.com/video/us/100000010675020/ice-agents-ecuadorean-consulate.htm
 https://nytimes.com/2026/01/28/us/politics/rubio-hearing-venezuela.html
 
 **LeBron James sheds tears during tribute video in latest return to Cleveland**\
-`LeBron James shed tears on the bench during the first timeout of the Lakers’ game against his former team.`\
+`Wednesday marked the 41-year-old James' eighth game in Cleveland as a member of the Lakers.`\
 https://nytimes.com/athletic/7005683/2026/01/28/lebron-james-crying-cavaliers-tribute-video/
 
 **How the Pro Football Hall of Fame selection process works and who is involved in voting**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7005065/2026/01/28/bo-nix-injury-update-broncos-qb-
 **Homelessness Appears to Decline, Reversing a Yearslong Trend**\
 `The Trump administration has not yet released the count, which could complicate its plans for tough new policies.`\
 https://nytimes.com/2026/01/28/us/politics/homelessness-decline-trend.html
-
-**Beyond Belichick: 10 other NFL legends who had to wait for the Hall of Fame**\
-`John Madden, Terrell Owens and Joe Namath were also among the sports legends who had to wait for a call from Canton.`\
-https://nytimes.com/athletic/7005005/2026/01/28/bill-belichick-hof-nfl-legends-first-year-snubs/
 
