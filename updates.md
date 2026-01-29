@@ -1,3 +1,7 @@
+**Break Down in Tears**\
+`Kit Sheffield makes a mind-bending New York Times Crossword debut.`\
+https://nytimes.com/2026/01/28/crosswords/daily-puzzle-2026-01-29.html
+
 **Hall of Fame confirms Bill Polian did vote to induct Bill Belichick**\
 `A spokesperson for the Hall said Polian did not speak during the discussion around Belichick's candidacy.`\
 https://nytimes.com/athletic/7005498/2026/01/28/bill-polian-bill-belichick-hof-voting/

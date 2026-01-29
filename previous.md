@@ -1,3 +1,7 @@
+**Break Down in Tears**\
+`Kit Sheffield makes a mind-bending New York Times Crossword debut.`\
+https://nytimes.com/2026/01/28/crosswords/daily-puzzle-2026-01-29.html
+
 **Hall of Fame confirms Bill Polian did vote to induct Bill Belichick**\
 `A spokesperson for the Hall said Polian did not speak during the discussion around Belichick's candidacy.`\
 https://nytimes.com/athletic/7005498/2026/01/28/bill-polian-bill-belichick-hof-voting/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010659480/how-trump-is-weaponizing-the-g
 **How Trump Is Trying to Recast American Power**\
 `What do American power and Facebook have in common? Henry Farrell, an international relations scholar, explains on “The Ezra Klein Show.”`\
 https://nytimes.com/video/opinion/100000010659478/how-trump-is-trying-to-recast-american-power.html
-
-**The Man Agents Were Seeking When They Killed Pretti Remains at Large**\
-`Federal officials said agents were looking for an Ecuadorean named Jose Huerta-Chuma. Records show he faced allegations of domestic assault and had several traffic infractions.`\
-https://nytimes.com/2026/01/28/us/minneapolis-shooting-ice-target-minnesota.html
 
