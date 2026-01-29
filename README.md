@@ -1,3 +1,11 @@
+**How the Pro Football Hall of Fame selection process works and who is involved in voting**\
+`Bill Belichick's reported exclusion has the Hall of Fame selection process in the spotlight, so how does it work? `\
+https://nytimes.com/athletic/7005207/2026/01/28/pro-football-hall-of-fame-selection-process-bill-belichick/
+
+**N.Y.P.D. Searches Target Black and Latino Drivers, Lawsuit Says**\
+`The New York Civil Liberties Union accused the Police Department of discrimination in a federal lawsuit that calls for an end to the practice.`\
+https://nytimes.com/2026/01/28/nyregion/nypd-lawsuit-traffic-stops-black-latino.html
+
 **Luka Dončić injures leg after awkward step off Cavs' elevated court**\
 `Dončić fell backward off the court after shooting a fading 3-point shot in front of the Lakers bench.`\
 https://nytimes.com/athletic/7005642/2026/01/28/luka-doncic-injury-lakers-cavaliers-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7005472/2026/01/28/anatoliy-trubin-benfica-goalkeep
 **How Trump Is Transforming the Oval Office**\
 `Our White House photographer Doug Mills breaks down how the Oval Office has been transformed in the first year of President Trump’s second term.`\
 https://nytimes.com/video/us/politics/100000010640160/how-trump-is-transforming-the-oval-office.html
-
-**Judge Questions Trump Administration’s Push to Halt Congestion Pricing**\
-`As a legal battle continues over the fate of New York City’s toll program, a judge appeared skeptical of the federal government’s arguments, but did not issue a ruling.`\
-https://nytimes.com/2026/01/28/nyregion/congestion-pricing-lawsuit.html
-
-**Is K-pop’s Cute Era Over?**\
-`Our critic Jon Caramanica on how Illit’s new sonic direction reflects this current moment in K-pop.`\
-https://nytimes.com/video/podcasts/100000010671339/is-k-pops-cute-era-over.html
 
