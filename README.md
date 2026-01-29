@@ -1,3 +1,7 @@
+**An Ethicist ‘in the Scalia Mold’: The Minnesota Judge Blasting ICE**\
+`Judge Patrick Schiltz, an appointee of George W. Bush, became an unlikely foil for his criticism of the Trump administration’s tactics in Minnesota.`\
+https://nytimes.com/2026/01/29/us/politics/an-ethicist-in-the-scalia-mold-the-minnesota-judge-blasting-ice.html
+
 **6 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2026/01/29/books/review/new-recommended-books.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/29/health/longevity-lifespan-age-genes.html
 **No More Zoom for French Officials: France to Use Local Alternative to U.S. Tech**\
 `French officials will soon be expected to use new French-made video conferencing software as part of an effort to “regain digital independence,” the government said.`\
 https://nytimes.com/2026/01/29/world/europe/france-zoom-alternative-visio.html
-
-**Founder of First Brands, Whose Bankruptcy Spooked Wall St., Is Indicted on Fraud Charges**\
-`Patrick James, who was earlier ousted from the beleaguered auto-parts maker, is accused by federal prosecutors of faking invoices and lying about hidden debt for years.`\
-https://nytimes.com/2026/01/29/business/first-brands-fraud-indictment.html
 
