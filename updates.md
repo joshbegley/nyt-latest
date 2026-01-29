@@ -1,3 +1,7 @@
+**Valentine’s Day Gifts for the Aesthete in Your Life**\
+`Japanese incense, jewelry that looks like candy and more recommendations from T Magazine.`\
+https://nytimes.com/2026/01/29/t-magazine/valentines-day-gift-ideas.html
+
 **Girls Sue Brooklyn Prep School and Former Teacher Over Sex Crimes**\
 `Winston Nguyen, a former teacher at Saint Ann’s School who pleaded guilty to a felony charge last year, is accused in the lawsuit of soliciting naked photos of students and sharing them online.`\
 https://nytimes.com/2026/01/29/nyregion/saint-anns-school-winston-nguyen-lawsuit.html
