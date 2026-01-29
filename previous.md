@@ -1,5 +1,5 @@
-**Jury Awards $30 Million to Man Who Accused Teacher of Sexual Abuse**\
-`The man, now 44, said he was repeatedly sexually abused when he was a child at a school in Newark in the 1990s.`\
+**Victim in School Sex Abuse Case Wins $30 Million Jury Award**\
+`The man, now 44, said he was repeatedly sexual abused when he was a child at a school in Newark in the 1990s.`\
 https://nytimes.com/2026/01/28/nyregion/newark-school-sex-abuse-judgment.html
 
 **Angella Ferguson, a Leader in Sickle Cell Anemia Research, Dies at 100**\
