@@ -1,3 +1,7 @@
+**The Alternative Premier League Table: No 24 – Points won from behind and lost from ahead**\
+`This week's table looks at the Premier League's comeback kings, and the sides who struggle to hold on to a lead`\
+https://nytimes.com/athletic/7004091/2026/01/29/alternative-premier-league-table-points-won-lost-ahead-behind/
+
 **Sunglasses, and Stormy Times, Lift France’s Embattled Leader**\
 `Dismissed as a lame duck, Emmanuel Macron has clawed back some influence after his defense of Greenland and Denmark. Will quieter domestic politics allow him to secure his legacy?`\
 https://nytimes.com/2026/01/29/world/europe/macron-france-trump-sunglasses-boost.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7004804/2026/01/29/2026-dynatasy-fantasy-football-r
 **Driver Rams Car Into Headquarters of Chabad Hasidic Movement**\
 `No one was injured when the motorist drove into a door at the side entrance of the building on Eastern Parkway, Brooklyn. The man, who was taken into custody, appeared agitated.`\
 https://nytimes.com/2026/01/28/nyregion/chabad-crash-eastern-parkway.html
-
-**Trump and Schumer Move Toward Possible Deal to Avert a Shutdown**\
-`The president and the top Senate Democrat were discussing an agreement to split off homeland security funding from a broader spending package and negotiate new limits on immigration agents.`\
-https://nytimes.com/2026/01/28/us/trump-schumer-deal-shutdown.html
 
