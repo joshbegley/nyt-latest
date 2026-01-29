@@ -1,4 +1,12 @@
-**Canada Signs Auto Deal With South Korea, Moving Further from the U.S.**\
+**U.S. coach Pochettino critical of Weah weighing in on WC ticket prices**\
+`The U.S. manager indicated that it's not his or the players' place to answer for FIFA's decisions and that opinions should be kept quiet`\
+https://nytimes.com/athletic/7008022/2026/01/29/mauricio-pochettino-tim-weah-world-cup-ticket-prices-fifa-usmnt/
+
+**Josh Allen reveals broken bone in right foot that required surgery**\
+`Allen spoke publicly for the first time since the Bills fired head coach Sean McDermott and promoted Joe Brady to the position.`\
+https://nytimes.com/athletic/7007740/2026/01/29/bills-josh-allen-injury-foot-surgery/
+
+**Canada Signs Auto Deal With South Korea, Moving Further From the U.S.**\
 `The agreement, while scarce on details, is the latest step by Prime Minister Mark Carney to reduce Canada’s reliance on trade with the U.S.`\
 https://nytimes.com/2026/01/29/world/canada/canada-south-korea-auto-deal-tariffs.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7007982/2026/01/29/stars-vs-golden-knights-stream-h
 **José Ramírez, Guardians ownership and building around a franchise superstar**\
 `“I just control what I can control,” Ramírez said when asked if Cleveland's front office has done enough to fix the team's lineup.`\
 https://nytimes.com/athletic/7007377/2026/01/29/jose-ramirez-extension-guardians-ownership/
-
-**How to watch Heat vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007976/2026/01/29/heat-vs-bulls-stream-how-to-watch-jan-29/
-
-**How to watch Sharks vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007967/2026/01/29/sharks-vs-oilers-stream-how-to-watch-jan-29/
 
