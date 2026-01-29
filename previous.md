@@ -1,3 +1,11 @@
+**How Trump Is Transforming the Oval Office**\
+`Our White House photographer Doug Mills breaks down how the Oval Office has been transformed in the first year of President Trump’s second term.`\
+https://nytimes.com/video/us/politics/100000010640160/how-trump-is-transforming-the-oval-office.html
+
+**Judge Questions Trump Administration’s Push to Halt Congestion Pricing**\
+`As a legal battle continues over the fate of New York City’s toll program, a judge appeared skeptical of the federal government’s arguments, but did not issue a ruling.`\
+https://nytimes.com/2026/01/28/nyregion/congestion-pricing-lawsuit.html
+
 **Is K-pop’s Cute Era Over?**\
 `Our critic Jon Caramanica on how Illit’s new sonic direction reflects this current moment in K-pop.`\
 https://nytimes.com/video/podcasts/100000010671339/is-k-pops-cute-era-over.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7005425/2026/01/28/arne-slot-liverpool-transfers-fr
 **Rangers to hold Panarin out of lineup indefinitely ahead of Olympic break**\
 `It's not yet clear if a trade is in the works or if the Rangers are protecting their biggest asset from injury concerns ahead of a move.`\
 https://nytimes.com/athletic/7005439/2026/01/28/rangers-artemi-panarin-nhl-trade-deadline-olympics-2/
-
-**Geoff Mason, Sports Producer Thrust Into Covering Terrorism, Dies at 85**\
-`He played a critical role in ABC Sports’s reporting on the attack by a Palestinian group at the 1972 Summer Games in Munich that left 11 Israeli team members dead.`\
-https://nytimes.com/2026/01/28/sports/geoffrey-mason-dead.html
-
-**Google Co-Founder Seeds Billionaire Political Effort Amid Wealth Tax Debate**\
-`Sergey Brin donated $20 million to a new political drive aimed at solving California’s housing crisis, spurring other billionaires to pitch in. Their efforts may also help ward off a wealth tax.`\
-https://nytimes.com/2026/01/28/us/politics/california-billionaires-sergey-brin-campaign.html
 
