@@ -1,3 +1,7 @@
+**Educator Who Read ‘I Need a New Butt!’ to Students Wins Job Back in Court**\
+`An appellate court ruled that the firing of the former assistant principal of an elementary school in Mississippi in 2022 had been “arbitrary and capricious.”`\
+https://nytimes.com/2026/01/29/us/new-butt-book-appeal.html
+
 **Police File Hate Crime Charges After Chabad Ramming in Brooklyn**\
 `The police arrested the man, Dan Sohail, after a vehicle was rammed into the headquarters of the Hasidic Jewish organization.`\
 https://nytimes.com/2026/01/29/nyregion/chabad-brooklyn-car-ramming.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/29/technology/openai-in-talks-to-raise-as-much-as-10
 **How to watch Nets vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7008003/2026/01/29/nets-vs-nuggets-stream-how-to-watch-jan-29/
-
-**How to watch Pistons vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007993/2026/01/29/pistons-vs-suns-stream-how-to-watch-jan-29/
 

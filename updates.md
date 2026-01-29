@@ -1,3 +1,7 @@
+**Educator Who Read ‘I Need a New Butt!’ to Students Wins Job Back in Court**\
+`An appellate court ruled that the firing of the former assistant principal of an elementary school in Mississippi in 2022 had been “arbitrary and capricious.”`\
+https://nytimes.com/2026/01/29/us/new-butt-book-appeal.html
+
 **Police File Hate Crime Charges After Chabad Ramming in Brooklyn**\
 `The police arrested the man, Dan Sohail, after a vehicle was rammed into the headquarters of the Hasidic Jewish organization.`\
 https://nytimes.com/2026/01/29/nyregion/chabad-brooklyn-car-ramming.html
