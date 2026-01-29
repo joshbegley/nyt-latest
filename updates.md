@@ -1,3 +1,7 @@
+**For Jesse Minter, being head coach of the Ravens is a full-circle moment**\
+`“When this job opened, this became the one for me, and this was the one that I wanted,” Minter said at his introductory news conference.`\
+https://nytimes.com/athletic/7008112/2026/01/29/ravens-jesse-minter-head-coach-introductory-news-conference/
+
 **For Jesse Minter, being head coach of the Ravens is a full circle moment**\
 `“When this job opened, this became the one for me, and this was the one that I wanted,” Minter said at his introductory news conference. `\
 https://nytimes.com/athletic/7008112/2026/01/29/ravens-jesse-minter-head-coach-introductory-news-conference/
