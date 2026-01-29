@@ -1,3 +1,15 @@
+**Newcastle United are clinging on to the elite - just**\
+`Eddie Howe's side are finding out that staying in Europe's top tier of clubs is harder than getting there in the first place`\
+https://nytimes.com/athletic/7005769/2026/01/29/newcastle-psg-champions-league-result-analysis/
+
+**Rosenior's statement win in Napoli is vital for him – and Chelsea**\
+`The club's new head coach has made a superb start and sparked hope that this could yet be a memorable campaign`\
+https://nytimes.com/athletic/7005632/2026/01/29/liam-rosenior-chelsea-napoli/
+
+**A tale of two Tottenhams: European nights once again giving Spurs respite from domestic woe**\
+`Tottenham Hotspur finished fourth in the Champions League league phase despite their woeful form in the Premier League`\
+https://nytimes.com/athletic/6996258/2026/01/29/tottenham-champions-league-premier-league/
+
 **Democrats Demand Guardrails as Government Shutdown Looms**\
 `Democrats laid out demands for Homeland Security as the Senate prepared to vote on a government spending package. Lawmakers need to reach an agreement by the deadline on Friday to avoid a government shutdown.`\
 https://nytimes.com/video/us/politics/100000010675396/trump-schumer-deal-shutdown.html

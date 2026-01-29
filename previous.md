@@ -1,3 +1,7 @@
+**Newcastle United are clinging on to the elite - just**\
+`Eddie Howe's side are finding out that staying in Europe's top tier of clubs is harder than getting there in the first place`\
+https://nytimes.com/athletic/7005769/2026/01/29/newcastle-psg-champions-league-result-analysis/
+
 **Welcome back Kai Havertz, Arsenal have missed you**\
 `The German international finally made his first start of the season against Kairat, and rewarded fans' admiration with a superb performance`\
 https://nytimes.com/athletic/7005203/2026/01/29/kai-havertz-arsenal-kairat/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/7005203/2026/01/29/kai-havertz-arsenal-kairat/
 `Stephen Colbert said the Minneapolis congresswoman looked “ready to throw some hands” after a man sprayed a substance at her at a town hall.`\
 https://nytimes.com/2026/01/29/arts/television/late-night-ilhan-omar.html
 
-**Rosenior's statement win in Napoli is vital for him - and Chelsea**\
+**Rosenior's statement win in Napoli is vital for him – and Chelsea**\
 `The club's new head coach has made a superb start and sparked hope that this could yet be a memorable campaign`\
 https://nytimes.com/athletic/7005632/2026/01/29/liam-rosenior-chelsea-napoli/
 
@@ -24,7 +28,7 @@ https://nytimes.com/2026/01/29/learning/word-of-the-day-pertain.html
 
 **A tale of two Tottenhams: European nights once again giving Spurs respite from domestic woe**\
 `Tottenham Hotspur finished fourth in the Champions League league phase despite their woeful form in the Premier League`\
-https://nytimes.com/athletic/6996258/2026/01/29/totenham-champions-league-premier-league/
+https://nytimes.com/athletic/6996258/2026/01/29/tottenham-champions-league-premier-league/
 
 **Conte, Napoli and a cursed Champions League campaign**\
 `The Italian champions were left with a familiar sinking feeling as they exited European competition against Chelsea`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7005413/2026/01/29/antonio-conte-napoli-champions-l
 **Serena Williams refuses to rule out tennis comeback two months after firm denial**\
 `The 23-time Grand Slam champion appears to have softened her position on the prospect since last December.`\
 https://nytimes.com/athletic/7006131/2026/01/29/serena-williams-tennis-comeback-today-show/
-
-**The New York Times in Print for Thursday, Jan. 29, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/01/29/todays-new-york-times
 
