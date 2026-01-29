@@ -1,3 +1,7 @@
+**Palace close on Strand Larsen £45m transfer agreement with Wolves**\
+`Palace want to strengthen their attack before the winter transfer window shuts and Strand Larsen has emerged as their top target.`\
+https://nytimes.com/athletic/7001524/2026/01/29/strand-larsen-crystal-palace-transfers-wolves/
+
 **Video Shows Alex Pretti in Earlier Altercation With Federal Agents**\
 `Video shows Alex Pretti in a confrontation with federal agents 11 days before he was killed by a different group of agents in Minneapolis.`\
 https://nytimes.com/video/us/100000010675648/alex-pretti-kicking-ice-vehicle-video.html

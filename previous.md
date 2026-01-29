@@ -1,3 +1,7 @@
+**Palace close on Strand Larsen £45m transfer agreement with Wolves**\
+`Palace want to strengthen their attack before the winter transfer window shuts and Strand Larsen has emerged as their top target.`\
+https://nytimes.com/athletic/7001524/2026/01/29/strand-larsen-crystal-palace-transfers-wolves/
+
 **Video Shows Alex Pretti in Earlier Altercation With Federal Agents**\
 `Video shows Alex Pretti in a confrontation with federal agents 11 days before he was killed by a different group of agents in Minneapolis.`\
 https://nytimes.com/video/us/100000010675648/alex-pretti-kicking-ice-vehicle-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/29/arts/television/late-night-ilhan-omar.html
 **Rosenior's statement win in Napoli is vital for him – and Chelsea**\
 `The club's new head coach has made a superb start and sparked hope that this could yet be a memorable campaign`\
 https://nytimes.com/athletic/7005632/2026/01/29/liam-rosenior-chelsea-napoli/
-
-**Democrats Demand Guardrails as Government Shutdown Looms**\
-`Democrats laid out demands for Homeland Security as the Senate prepared to vote on a government spending package. Lawmakers need to reach an agreement by the deadline on Friday to avoid a government shutdown.`\
-https://nytimes.com/video/us/politics/100000010675396/trump-schumer-deal-shutdown.html
 
