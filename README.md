@@ -1,3 +1,7 @@
+**T's Feb. 22 Women's Fashion Issue**\
+``\
+https://nytimes.com/issue/t-magazine/2026/01/29/ts-feb-22-womens-fashion-issue-2026
+
 **Review: Without Its Star, Noche Flamenca Still Shines**\
 `“Irrationalities,” at the Joyce Theater, disappoints only if you are expecting Soledad Barrio, the company’s world-class dancer, who is out with an injury.`\
 https://nytimes.com/2026/01/29/arts/dance/review-noche-flamenca-irrationalities.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7007030/2026/01/29/arsenal-man-utd-ball-keir-starme
 **Twix Is OK but Granola Isn’t as States Deploy New Food Stamp Rules**\
 `A dizzying array of rules govern what can be bought with SNAP dollars, confusing grocery stores and consumers.`\
 https://nytimes.com/2026/01/29/business/snap-benefits-food-stamps-rules-health.html
-
-**Emma Raducanu splits with coach Francis Roig after less than six months**\
-`The 23-year-old shared on social media her and Roig's mutual decision to split.`\
-https://nytimes.com/athletic/7007065/2026/01/29/emma-raducanu-coach-split-francis-roig/
 
