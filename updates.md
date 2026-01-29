@@ -1,3 +1,7 @@
+**Girls Sue Brooklyn Prep School and Former Teacher Over Sex Crimes**\
+`Winston Nguyen, a former teacher at Saint Ann’s School who pleaded guilty to a felony charge last year, is accused in the lawsuit of soliciting naked photos of students and sharing them online.`\
+https://nytimes.com/2026/01/29/nyregion/saint-anns-school-winston-nguyen-lawsuit.html
+
 **Why Australian Open men's semifinals with top four seeds still feel one-sided**\
 `Alexander Zverev and Novak Djokovic are No. 3 and No. 4 in the world. They still feel distant from Carlos Alcaraz and Jannik Sinner.`\
 https://nytimes.com/athletic/7006368/2026/01/29/tennis-australian-open-semifinals-alcaraz-zverev-djokovic-sinner/
