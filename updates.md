@@ -1,3 +1,15 @@
+**Brad Treliving defends the Maple Leafs' approach to sports science**\
+`The GM responded to criticism over the vacant director of performance role, saying the Leafs have more staff working hands-on with players.`\
+https://nytimes.com/athletic/7007804/2026/01/29/brad-treliving-maple-leafs-sports-science/
+
+**Ex-Google Engineer Convicted of Stealing A.I. Secrets for Start-Up in China**\
+`A federal jury found that Linwei Ding stole thousands of confidential files to help him start a company in Beijing.`\
+https://nytimes.com/2026/01/29/business/ai-secrets-stolen-google-china.html
+
+**Michael Beck, 65, Dies; First to Report Symptoms of ‘Havana Syndrome’**\
+`As an employee with the N.S.A., he claimed he was exposed to a direct-energy device that led to a diagnosis of Parkinson’s disease.`\
+https://nytimes.com/2026/01/29/us/michael-beck-dead.html
+
 **Minnesota State Senate Fields Testimony on ICE Violence in Twin Cities**\
 `In an hourslong hearing, lawmakers heard stories of the use of racial profiling and aggressive tactics against state residents.`\
 https://nytimes.com/2026/01/29/us/minnesota-senate-ice-hearing.html
