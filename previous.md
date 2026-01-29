@@ -1,3 +1,7 @@
+**Newcastle's showed against PSG how their 3-4-3 option is a viable Plan B**\
+`Switching from 4-3-3 to 3-4-3 has become something of an emergency measure, but Howe might consider the 3-4-3 more, given their away issues.`\
+https://nytimes.com/athletic/7006599/2026/01/29/newcastle-psg-defence-champions-league/
+
 **Trump Warns Iran With Military Muscle, but Risks a Regional War**\
 `Iran’s Islamic Republic, weakened by airstrikes in June and huge popular unrest, warns that it will strike back hard if attacked by the United States. This time, Iran may mean it.`\
 https://nytimes.com/2026/01/29/world/europe/trump-iran-threats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/29/arts/music/wynton-marsalis-jazz-at-lincoln-center
 **Trump Administration Live Updates: Democrats Demand D.H.S. Limits Ahead of Shutdown Deadline**\
 ``\
 https://nytimes.com/live/2026/01/29/us/trump-news
-
-**Australian Open women's semifinals recap: Why Aryna Sabalenka lost a point for hindrance**\
-`A controversial, but understandable umpiring decision did not derail Sabalenka's journey into a fourth Australian Open final in a row.`\
-https://nytimes.com/athletic/7005563/2026/01/29/australian-open-womens-semifinals-recap-sabalenka-hindrance/
 
