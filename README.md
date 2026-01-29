@@ -1,3 +1,11 @@
+**Fantastic Creatures and Where to Find Them**\
+`Schiaparelli and Valentino turn the runways of Paris into a surreal experience.`\
+https://nytimes.com/2026/01/29/style/valentino-schiaparelli-armani-couture.html
+
+**Why Eric Bieniemy returned to the Chiefs — and what he hopes to bring to K.C.**\
+`Bieniemy said he'd had brief talks with Patrick Mahomes and Travis Kelce after returning to Kansas City as offensive coordinator.`\
+https://nytimes.com/athletic/7004899/2026/01/29/chiefs-eric-bieniemy-offensive-coordinator-returns/
+
 **Pistons' center Jalen Duren breaks down plays in his own words: Film study**\
 `Pistons center Jalen Duren sits down with Hunter Patterson to analyze film and explain his thought process. `\
 https://nytimes.com/athletic/6981020/2026/01/29/pistons-jalen-duren-nba-film-study/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6992123/2026/01/29/nhl-teams-pride-nights-2026-brui
 **What’s the future best and worst case for Luke Hughes and Simon Edvinsson?**\
 `Taken two picks apart in the 2021 draft, the defensemen are trending opposite ways. What do player comps have to say about future outlook?`\
 https://nytimes.com/athletic/7004721/2026/01/29/nhl-best-case-worst-case-luke-hughes-simon-edvinsson/
-
-**Ranking all 32 NHL teams' home rinks, from Montreal to MSG and more**\
-`We determine which arenas provide the best experience, based on a vote of fans and writers in four categories.`\
-https://nytimes.com/athletic/6990216/2026/01/29/nhl-rink-rankings-home-arenas/
-
-**James Rodríguez, Colombia's hero with World Cup expectations and no club**\
-`James Rodríguez is still front and center for a World Cup contender – regardless of the fact that he remains an unsigned free agent`\
-https://nytimes.com/athletic/7004501/2026/01/29/james-rodriguez-colombias-hero-with-world-cup-expectations-and-no-club/
 
