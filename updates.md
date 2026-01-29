@@ -1,3 +1,7 @@
+**Hawks' Okongwu shows battered teeth after hit from Celtics' Brown**\
+`Jaylen Brown was apologetic after the game, though he did receive a flagrant foul for the wayward elbow.`\
+https://nytimes.com/athletic/7007245/2026/01/29/onyeka-okungwu-hawks-teeth-mouth-celtics/
+
 **Democrats Block Spending Package as D.H.S. Talks Continue**\
 `With about 36 hours to go before a shutdown deadline, the funding legislation stalled while Democrats sought a deal with President Trump to rein in his immigration crackdown.`\
 https://nytimes.com/2026/01/29/us/politics/democrats-dhs-spending.html
