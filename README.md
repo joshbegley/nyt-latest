@@ -1,3 +1,7 @@
+**Steph Curry scores win at Sundance with co-directed short film win**\
+`Curry’s Sundance short film spotlights Clarence B. Jones, MLK Jr.’s attorney and speechwriter.`\
+https://nytimes.com/athletic/7006943/2026/01/29/steph-curry-sundance-martin-luther-king-film-win/
+
 **Former Deputy Sentenced to 20 Years in Fatal Shooting of Sonya Massey**\
 `The deputy, Sean Grayson, was convicted of second-degree murder for killing Ms. Massey in 2024 at her home in Springfield, Ill., after she had called 911.`\
 https://nytimes.com/2026/01/29/us/sean-grayson-sentencing-sonya-massey-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7007102/2026/01/29/michigan-state-vs-purdue-stream-
 **How to watch Texas vs. Florida women's basketball: Time, TV, streaming**\
 `Find out how to watch the Texas Longhorns play the Florida Gators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7007098/2026/01/29/texas-vs-florida-stream-how-to-watch-jan-29/
-
-**How the A.I. Boom Could Push Up the Price of Your Next PC**\
-`A.I. companies are buying up memory chips, causing the prices of those components — which are also used in laptops and smartphones — to soar.`\
-https://nytimes.com/2026/01/29/technology/ai-memory-chips-pc-smartphone.html
 
