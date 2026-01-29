@@ -1,3 +1,7 @@
+**A Tokyo Pizzeria of Global Fame Prepares to Take On America**\
+`Pizza Studio Tamaki is readying a pop-up in advance of opening in New York City, and beyond.`\
+https://nytimes.com/2026/01/29/dining/tokyo-pizza-studio-tamaki-nyc-opening.html
+
 **Fantasy basketball hot topics of the week: Giannis injury fallout; Tari Eason rising**\
 `Stan Son reviews injuries, who's on the rise and hot topics around the league through a fantasy lens. `\
 https://nytimes.com/athletic/7007803/2026/01/29/fantasy-basketball-hot-topics-giannis-injury-tari-eason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7007952/2026/01/29/bill-belichick-hall-of-fame-ball
 **NATO Is Having a Military Exercise. The U.S., Its Largest Member, Won’t Be There.**\
 `The operation, Steadfast Dart, comes as President Trump has been accused of undermining the alliance and will be watched closely to see how well the allies manage without their most important partner.`\
 https://nytimes.com/2026/01/29/world/europe/nato-military-exercise-spain-germany.html
-
-**Doughnuts from Tokyo, Los Angeles and Montreal**\
-`The city’s hottest doughnut shops are transplants, all with a unique take on the breakfast favorite.`\
-https://nytimes.com/2026/01/29/dining/doughnuts-from-tokyo-los-angeles-and-montreal.html
 
