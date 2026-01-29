@@ -1,3 +1,7 @@
+**Parents Navigate a Fracturing Vaccine Landscape**\
+`Rattled by the C.D.C.’s actions and the spread of measles, some parents are scrambling to figure out how to best protect their children.`\
+https://nytimes.com/2026/01/29/well/parents-vaccines.html
+
 **Source: Red Bulls finalizing deal for Pumas, Mexico winger Ruvalcaba**\
 `The Red Bulls are continuing their roster rebuild for new manager Michael Bradley and have sights set on the Mexican international winger`\
 https://nytimes.com/athletic/7002155/2026/01/29/jorge-ruvalcaba-new-york-red-bulls-transfer-pumas-mexico-mls/

@@ -1,3 +1,7 @@
+**Parents Navigate a Fracturing Vaccine Landscape**\
+`Rattled by the C.D.C.’s actions and the spread of measles, some parents are scrambling to figure out how to best protect their children.`\
+https://nytimes.com/2026/01/29/well/parents-vaccines.html
+
 **Source: Red Bulls finalizing deal for Pumas, Mexico winger Ruvalcaba**\
 `The Red Bulls are continuing their roster rebuild for new manager Michael Bradley and have sights set on the Mexican international winger`\
 https://nytimes.com/athletic/7002155/2026/01/29/jorge-ruvalcaba-new-york-red-bulls-transfer-pumas-mexico-mls/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7005877/2026/01/29/giannis-antetokounmpo-bucks-nba-
 **Graphic Novels Wouldn’t Be the Same Without Him. Who Will Keep His Work Alive?**\
 `The intellectual property of Will Eisner, who gives his name to the most prestigious award in American comics, is up for sale.`\
 https://nytimes.com/2026/01/29/books/will-eisner-spirit-sale.html
-
-**The Bounce: Is a Giannis trade imminent? Plus, Chet vs. Wemby for DPOY?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7006800/2026/01/29/giannis-antetokounmpo-trade-rumors-wembanyama-the-bounce/
 
