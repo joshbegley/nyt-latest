@@ -1,3 +1,23 @@
+**More Than 100 Deaths Confirmed Across Southern Africa From Floods**\
+`Hundreds of thousands of people across South Africa, Zimbabwe and Mozambique have been displaced after heavy rain brought some of the worst flooding that the region has seen in decades. Forecasters expect more rain through February.`\
+https://nytimes.com/video/world/africa/100000010676956/flooding-southern-africa-death-toll.html
+
+**How to watch Maple Leafs vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Toronto Maple Leafs play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7007949/2026/01/29/maple-leafs-vs-kraken-stream-how-to-watch-jan-29/
+
+**Map: 4.2-Magnitude Earthquake Shakes Montana**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/01/29/us/montana-quake-tracker.html
+
+**How to watch Hornets vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7007938/2026/01/29/hornets-vs-mavericks-stream-how-to-watch-jan-29/
+
+**How to watch Iowa vs. USC women's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7007933/2026/01/29/iowa-vs-usc-stream-how-to-watch-jan-29/
+
 **How to watch Washington vs. Illinois men's basketball: Time, TV, streaming**\
 `Find out how to watch the Washington Huskies play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7007910/2026/01/29/washington-vs-illinois-stream-how-to-watch-jan-29/
