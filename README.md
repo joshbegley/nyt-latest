@@ -1,5 +1,5 @@
 **Serena Williams refuses to rule out tennis comeback two months after firm denial**\
-`The 23-time Grand Slam champion has softened her position on the prospect since last December when it was mooted.`\
+`The 23-time Grand Slam champion appears to have softened her position on the prospect since last December.`\
 https://nytimes.com/athletic/7006131/2026/01/29/serena-williams-tennis-comeback-today-show/
 
 **The New York Times in Print for Thursday, Jan. 29, 2026**\
