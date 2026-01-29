@@ -6,7 +6,7 @@ https://nytimes.com/video/us/100000010675020/ice-agents-ecuadorean-consulate.htm
 `Democrats sharply questioned the plan, including the role of Qatar in managing an account funded by the sale of Venezuelan oil.`\
 https://nytimes.com/2026/01/28/us/politics/rubio-hearing-venezuela.html
 
-**LeBron James sheds tears during Cavaliers' tribute video**\
+**LeBron James sheds tears during tribute video in latest return to Cleveland**\
 `LeBron James shed tears on the bench during the first timeout of the Lakers’ game against his former team.`\
 https://nytimes.com/athletic/7005683/2026/01/28/lebron-james-crying-cavaliers-tribute-video/
 

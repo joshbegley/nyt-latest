@@ -1,3 +1,7 @@
+**ICE Agents Blocked From Entering Ecuadorean Consulate in Minneapolis**\
+`Video footage obtained by The New York Times showed federal immigration agents trying to enter the Ecuadorean Consulate in Minneapolis on Tuesday.`\
+https://nytimes.com/video/us/100000010675020/ice-agents-ecuadorean-consulate.html
+
 **Rubio Says Venezuela Will Submit Monthly Budget to White House**\
 `Democrats sharply questioned the plan, including the role of Qatar in managing an account funded by the sale of Venezuelan oil.`\
 https://nytimes.com/2026/01/28/us/politics/rubio-hearing-venezuela.html

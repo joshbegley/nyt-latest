@@ -1,3 +1,7 @@
+**ICE Agents Blocked From Entering Ecuadorean Consulate in Minneapolis**\
+`Video footage obtained by The New York Times showed federal immigration agents trying to enter the Ecuadorean Consulate in Minneapolis on Tuesday.`\
+https://nytimes.com/video/us/100000010675020/ice-agents-ecuadorean-consulate.html
+
 **Rubio Says Venezuela Will Submit Monthly Budget to White House**\
 `Democrats sharply questioned the plan, including the role of Qatar in managing an account funded by the sale of Venezuelan oil.`\
 https://nytimes.com/2026/01/28/us/politics/rubio-hearing-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/us/politics/homelessness-decline-trend.html
 **Beyond Belichick: 10 other NFL legends who had to wait for the Hall of Fame**\
 `John Madden, Terrell Owens and Joe Namath were also among the sports legends who had to wait for a call from Canton.`\
 https://nytimes.com/athletic/7005005/2026/01/28/bill-belichick-hof-nfl-legends-first-year-snubs/
-
-**Democrats Demand Unmasked Agents, New Limits to Fund D.H.S.**\
-`Ahead of a Friday shutdown deadline, Democrats laid out their conditions for funding the Department of Homeland Security, including new restrictions on immigration officers.`\
-https://nytimes.com/2026/01/28/us/politics/ice-body-cam-masks-dhs-funding.html
 
