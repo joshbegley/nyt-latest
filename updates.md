@@ -1,3 +1,11 @@
+**'We've always had an expectation': Steph Curry talks Warriors' future**\
+`Curry avoided specifics and hypotheticals, but did shed some light on his thoughts as the Warriors approach next week's trade deadline.`\
+https://nytimes.com/athletic/7006204/2026/01/29/steph-curry-warriors-future/
+
+**Word of the Day: pertain**\
+`This word has appeared in 39 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/29/learning/word-of-the-day-pertain.html
+
 **A tale of two Tottenhams: European nights once again giving Spurs respite from domestic woe**\
 `Tottenham Hotspur finished fourth in the Champions League league phase despite their woeful form in the Premier League`\
 https://nytimes.com/athletic/6996258/2026/01/29/totenham-champions-league-premier-league/

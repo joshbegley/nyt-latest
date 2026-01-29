@@ -1,3 +1,11 @@
+**'We've always had an expectation': Steph Curry talks Warriors' future**\
+`Curry avoided specifics and hypotheticals, but did shed some light on his thoughts as the Warriors approach next week's trade deadline.`\
+https://nytimes.com/athletic/7006204/2026/01/29/steph-curry-warriors-future/
+
+**Word of the Day: pertain**\
+`This word has appeared in 39 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/29/learning/word-of-the-day-pertain.html
+
 **A tale of two Tottenhams: European nights once again giving Spurs respite from domestic woe**\
 `Tottenham Hotspur finished fourth in the Champions League league phase despite their woeful form in the Premier League`\
 https://nytimes.com/athletic/6996258/2026/01/29/totenham-champions-league-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7003810/2026/01/29/senne-lammens-manchester-united-
 **How Everton can cure their Hill Dickinson homesickness**\
 `Tactical tweaks may be needed if Everton are to unlock the potential of their gleaming new home`\
 https://nytimes.com/athletic/7003943/2026/01/29/everton-hill-dickinson-form-tactics/
-
-**Chargers agree to terms with Chris O'Leary as defensive coordinator**\
-`O'Leary was the Chargers safeties coach in 2024 and spent last season as the defensive coordinator at Western Michigan.`\
-https://nytimes.com/athletic/7006093/2026/01/29/chargers-hire-chris-oleary-defensive-coordinator/
-
-**Nine Championship clubs have changed their manager this season - what happened next?**\
-`There has been a high turnover of managers in the second tier this season, but does making a change mean an upturn in results?`\
-https://nytimes.com/athletic/7003720/2026/01/29/what-happens-after-clubs-change-championship-managers/
 

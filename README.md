@@ -1,3 +1,7 @@
+**Democrats Demand Guardrails as Government Shutdown Looms**\
+`Senate Democrats listed their conditions to allow a funding bill for the Department of Homeland Security to pass. If the bill stalls, the government could shut down at the Friday deadline.`\
+https://nytimes.com/video/us/politics/100000010675396/trump-schumer-deal-shutdown.html
+
 **'We've always had an expectation': Steph Curry talks Warriors' future**\
 `Curry avoided specifics and hypotheticals, but did shed some light on his thoughts as the Warriors approach next week's trade deadline.`\
 https://nytimes.com/athletic/7006204/2026/01/29/steph-curry-warriors-future/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/29/opinion/trump-greenland-arctic-framework-deal.htm
 **How Lammens is making Manchester United better**\
 `United's goalkeeper has brought composure and technical excellence to one of the most scrutinised positions in English football`\
 https://nytimes.com/athletic/7003810/2026/01/29/senne-lammens-manchester-united-analysis/
-
-**How Everton can cure their Hill Dickinson homesickness**\
-`Tactical tweaks may be needed if Everton are to unlock the potential of their gleaming new home`\
-https://nytimes.com/athletic/7003943/2026/01/29/everton-hill-dickinson-form-tactics/
 
