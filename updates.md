@@ -1,3 +1,15 @@
+**Starmer and Xi Meet to Reset Ties Between Britain and China**\
+`Prime Minister Keir Starmer of Britain and President Xi Jinping of China met in Beijing on Thursday in a bid to reset ties as both countries seek a way around an increasingly volatile United States.`\
+https://nytimes.com/video/world/asia/100000010675857/china-uk-starmer-xi.html
+
+**A Democratic Critic of Newsom Will Run to Succeed Him**\
+`Matt Mahan, a moderate Democrat who serves as mayor of San Jose, Calif., is entering the crowded race for California governor.`\
+https://nytimes.com/2026/01/29/us/elections/matt-mahan-governor-california.html
+
+**China bans 73 people and sanctions 13 clubs in soccer corruption investigation**\
+`In total, a cumulative total of 72 league points have been docked from 13 clubs across the two divisions of Chinese football.`\
+https://nytimes.com/athletic/7006573/2026/01/29/china-football-ban-clubs-punished/
+
 **U.S. Trade Deficit Bounces Back as Tariffs Cause Volatility**\
 `The monthly trade deficit and imports rebounded in November after shrinking significantly in prior months, new data show.`\
 https://nytimes.com/2026/01/29/business/us-trade-deficit-bounces-back-as-tariffs-cause-volatility.html
