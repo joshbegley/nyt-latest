@@ -1,3 +1,11 @@
+**Rubio Says Venezuela Will Submit Monthly Budget to White House**\
+`Democrats sharply questioned the plan, including the role of Qatar in managing an account funded by the sale of Venezuelan oil.`\
+https://nytimes.com/2026/01/28/us/politics/rubio-hearing-venezuela.html
+
+**LeBron James sheds tears during Cavaliers' tribute video**\
+`LeBron James shed tears on the bench during the first timeout of the Lakers’ game against his former team.`\
+https://nytimes.com/athletic/7005683/2026/01/28/lebron-james-crying-cavaliers-tribute-video/
+
 **How the Pro Football Hall of Fame selection process works and who is involved in voting**\
 `Bill Belichick's reported exclusion has the Hall of Fame selection process in the spotlight, so how does it work? `\
 https://nytimes.com/athletic/7005207/2026/01/28/pro-football-hall-of-fame-selection-process-bill-belichick/
