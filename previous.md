@@ -1,40 +1,40 @@
-**Victor Wembanyama Shines in Spurs’ Comeback Win Over Rockets**\
-`On Wednesday in the N.B.A., Victor Wembanyama shined in the San Antonio Spurs’ comeback win over the Houston Rockets, the New York Knicks won their fourth straight game, and the Cavaliers spoiled LeBron James’s return to Cleveland.`\
-https://nytimes.com/video/sports/basketball/100000010675801/victor-wembanyama-shines-in-spurs-comeback-win-over-rockets.html
+**Alive on the Edge of the World, and Suddenly at Its Center**\
+`Inuuteq Storch, a young photographer from Greenland with a show at MoMA PS1, captures daily life in a place much less remote than we thought.`\
+https://nytimes.com/2026/01/29/arts/design/alive-on-the-edge-of-the-world-and-suddenly-at-its-center.html
 
-**Palace close on Strand Larsen £45m transfer agreement with Wolves**\
-`Palace want to strengthen their attack before the winter transfer window shuts and Strand Larsen has emerged as their top target.`\
-https://nytimes.com/athletic/7001524/2026/01/29/strand-larsen-crystal-palace-transfers-wolves/
+**He Lost His Parents in a Plane Crash. Next Week He’ll Skate at the Olympics.**\
+`After his parents died in the midair collision over Washington, D.C., a year ago, Maxim Naumov struggled to put on his skates. Now he will compete for the United States at the Milan-Cortina Games.`\
+https://nytimes.com/2026/01/29/us/maxim-naumov-2026-olympics-dc-plane-crash.html
 
-**Video Shows Alex Pretti in Earlier Altercation With Federal Agents**\
-`Video shows Alex Pretti in a confrontation with federal agents 11 days before he was killed by a different group of agents in Minneapolis.`\
-https://nytimes.com/video/us/100000010675648/alex-pretti-kicking-ice-vehicle-video.html
+**Do You Ever Feel Like You Are Hiding Your True Self?**\
+`“Masking” can help us navigate the world, but at what price?`\
+https://nytimes.com/2026/01/29/learning/do-you-ever-feel-like-you-are-hiding-your-true-self.html
 
-**Alarm**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2026/01/29/learning/alarm.html
+**Dear Haters of ‘Marty Supreme’…**\
+`We have a difference of opinion. And a couple things for you to consider.`\
+https://nytimes.com/2026/01/29/podcasts/dear-haters-of-marty-supreme.html
 
-**Adams’s Parting Gift of 19 Vetoes Is Being Returned, With 17 Overrides**\
-`The New York City Council is expected to overwhelmingly vote to create wage minimums for private security officers and lift the cap on street vendor licenses.`\
-https://nytimes.com/2026/01/29/nyregion/eric-adams-veto-override.html
+**Bad Bunny vs. Kendrick Lamar vs. Lady Gaga! Who Should Win at the Grammys.**\
+`The 2026 awards, airing Sunday on CBS, propose a few different ideas about the state of contemporary pop. Here’s who we prefer among the nominees.`\
+https://nytimes.com/2026/01/29/arts/music/popcast-grammys-preview-bad-bunny.html
 
-**For Protesters at Houses of Worship, How Far Away Is Too Far?**\
-`The New York City Council speaker, Julie Menin, is proposing a barrier of up to 100 feet to protect congregants from protesters, 75 feet larger than Gov. Kathy Hochul has suggested.`\
-https://nytimes.com/2026/01/29/nyregion/jewish-protesters-hamas-buffer.html
+**The Shakers’ Utopian World Sees a Surge of Modern Interest**\
+`A show at ICA Philadelphia joins a surge of Shaker-inspired projects: films, dances, a museum’s expansion. Refracted through new interpreters, Shaker culture bends, and twists.`\
+https://nytimes.com/2026/01/29/arts/design/shakers-ica-philadelphia.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/29/crosswords/spelling-bee-forum.html
+**Three Great Documentaries to Stream**\
+`In this month’s picks, mountain climbing, dog sledding and government running.`\
+https://nytimes.com/2026/01/29/movies/three-great-documentaries-to-stream.html
 
-**Newcastle United are clinging on to the elite - just**\
-`Eddie Howe's side are finding out that staying in Europe's top tier of clubs is harder than getting there in the first place`\
-https://nytimes.com/athletic/7005769/2026/01/29/newcastle-psg-champions-league-result-analysis/
+**People Are Getting Worried About Household Mold. Should You Be?**\
+`Google searches for terms like “mold toxicity” and “what is toxic mold” have increased over the last five years, but it’s unlikely that mold-related illness is also increasing.`\
+https://nytimes.com/2026/01/29/realestate/household-mold-search-traffic-trend.html
 
-**Welcome back Kai Havertz, Arsenal have missed you**\
-`The German international finally made his first start of the season against Kairat, and rewarded fans' admiration with a superb performance`\
-https://nytimes.com/athletic/7005203/2026/01/29/kai-havertz-arsenal-kairat/
+**In Honduras, the American Right Is Piloting Our Future**\
+`MAGA sees a borderless future in Honduras.`\
+https://nytimes.com/2026/01/29/opinion/prospera-honduras-trump-pardon.html
 
-**Late Night Praises Ilhan Omar’s Quick Reflexes**\
-`Stephen Colbert said the Minneapolis congresswoman looked “ready to throw some hands” after a man sprayed a substance at her at a town hall.`\
-https://nytimes.com/2026/01/29/arts/television/late-night-ilhan-omar.html
+**Newark Museum of Art Names a New Leader**\
+`Lisa Funderburke will be chief executive and director of the state’s largest art museum.`\
+https://nytimes.com/2026/01/29/arts/design/newark-museum-of-art-director.html
 
