@@ -1,3 +1,7 @@
+**Victor Wembanyama Shines in Spurs’ Comeback Win Over Rockets**\
+`On Wednesday in the N.B.A., Victor Wembanyama shined in the San Antonio Spurs’ comeback win over the Houston Rockets, the New York Knicks won their fourth straight game, and the Cavaliers spoiled LeBron James’s return to Cleveland.`\
+https://nytimes.com/video/sports/basketball/100000010675801/victor-wembanyama-shines-in-spurs-comeback-win-over-rockets.html
+
 **Palace close on Strand Larsen £45m transfer agreement with Wolves**\
 `Palace want to strengthen their attack before the winter transfer window shuts and Strand Larsen has emerged as their top target.`\
 https://nytimes.com/athletic/7001524/2026/01/29/strand-larsen-crystal-palace-transfers-wolves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7005203/2026/01/29/kai-havertz-arsenal-kairat/
 **Late Night Praises Ilhan Omar’s Quick Reflexes**\
 `Stephen Colbert said the Minneapolis congresswoman looked “ready to throw some hands” after a man sprayed a substance at her at a town hall.`\
 https://nytimes.com/2026/01/29/arts/television/late-night-ilhan-omar.html
-
-**Rosenior's statement win in Napoli is vital for him – and Chelsea**\
-`The club's new head coach has made a superb start and sparked hope that this could yet be a memorable campaign`\
-https://nytimes.com/athletic/7005632/2026/01/29/liam-rosenior-chelsea-napoli/
 
