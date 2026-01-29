@@ -1,3 +1,15 @@
+**How the Pro Football Hall of Fame selection process works and who is involved in voting**\
+`Bill Belichick's reported exclusion has the Hall of Fame selection process in the spotlight, so how does it work? `\
+https://nytimes.com/athletic/7005207/2026/01/28/pro-football-hall-of-fame-selection-process-bill-belichick/
+
+**N.Y.P.D. Searches Target Black and Latino Drivers, Lawsuit Says**\
+`The New York Civil Liberties Union accused the Police Department of discrimination in a federal lawsuit that calls for an end to the practice.`\
+https://nytimes.com/2026/01/28/nyregion/nypd-lawsuit-traffic-stops-black-latino.html
+
+**Luka Dončić injures leg after awkward step off Cavs' elevated court**\
+`Dončić fell backward off the court after shooting a fading 3-point shot in front of the Lakers bench.`\
+https://nytimes.com/athletic/7005642/2026/01/28/luka-doncic-injury-lakers-cavaliers-nba/
+
 **America at a Boiling Point: Deaths, Threats, Protests and a Town Hall Attack**\
 `An attack at a town hall in Minneapolis, amid a surge in threats against lawmakers, was the latest sign of the fraying of the nation’s political fabric.`\
 https://nytimes.com/2026/01/28/us/politics/trump-ice-protests-omar-attack.html

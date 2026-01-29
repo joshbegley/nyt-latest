@@ -1,3 +1,11 @@
+**Rubio Says Venezuela Will Submit Monthly Budget to White House**\
+`Democrats sharply questioned the plan, including the role of Qatar in managing an account funded by the sale of Venezuelan oil.`\
+https://nytimes.com/2026/01/28/us/politics/rubio-hearing-venezuela.html
+
+**LeBron James sheds tears during Cavaliers' tribute video**\
+`LeBron James shed tears on the bench during the first timeout of the Lakers’ game against his former team.`\
+https://nytimes.com/athletic/7005683/2026/01/28/lebron-james-crying-cavaliers-tribute-video/
+
 **How the Pro Football Hall of Fame selection process works and who is involved in voting**\
 `Bill Belichick's reported exclusion has the Hall of Fame selection process in the spotlight, so how does it work? `\
 https://nytimes.com/athletic/7005207/2026/01/28/pro-football-hall-of-fame-selection-process-bill-belichick/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7005005/2026/01/28/bill-belichick-hof-nfl-legends-f
 **Democrats Demand Unmasked Agents, New Limits to Fund D.H.S.**\
 `Ahead of a Friday shutdown deadline, Democrats laid out their conditions for funding the Department of Homeland Security, including new restrictions on immigration officers.`\
 https://nytimes.com/2026/01/28/us/politics/ice-body-cam-masks-dhs-funding.html
-
-**Implausible, astonishing, ludicrous: Anatoliy Trubin and the 98th-minute goal that changed everything**\
-`The goalkeeper's late goal pushed Mourinho's Benfica into the knockout round of the Champions League. It has potentially saved their season`\
-https://nytimes.com/athletic/7005472/2026/01/28/anatoliy-trubin-benfica-goalkeeper-goal-real-madrid-champions-league/
-
-**How Trump Is Transforming the Oval Office**\
-`Our White House photographer Doug Mills breaks down how the Oval Office has been transformed in the first year of President Trump’s second term.`\
-https://nytimes.com/video/us/politics/100000010640160/how-trump-is-transforming-the-oval-office.html
 
