@@ -1,3 +1,7 @@
+**AFCON chaos: Senegal boss Thiaw handed five-game ban, total fines exceed $1m**\
+`Morocco's request to overturn the result of the final due to Senegal's players leaving the pitch was dismissed by CAF.`\
+https://nytimes.com/athletic/7006327/2026/01/29/afcon-final-senegal-morocco/
+
 **Trump’s Lies Have a Purpose**\
 `What MAGA sees in the Minneapolis mirror.`\
 https://nytimes.com/2026/01/29/opinion/truump-ice-minnesota-noem-miller.html
