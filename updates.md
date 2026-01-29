@@ -1,3 +1,7 @@
+**Fox releases World Cup schedule, will set record for games on network TV**\
+`All except two knockout round games will be on Fox's main channel`\
+https://nytimes.com/athletic/7007398/2026/01/29/fox-world-cup-broadcast-schedule-record-tv-fs1/
+
 **Suspect Is Said to Have Tampered With Stove Before Deadly Bronx Fire**\
 `A gas leak from the stove started a fire that engulfed apartments on the top floors. The man was arrested on Wednesday.`\
 https://nytimes.com/2026/01/29/nyregion/deadly-bronx-fire-stove.html
