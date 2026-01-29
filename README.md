@@ -1,3 +1,35 @@
+**Trump’s Lies Have a Purpose**\
+`What MAGA sees in the Minneapolis mirror.`\
+https://nytimes.com/2026/01/29/opinion/truump-ice-minnesota-noem-miller.html
+
+**3 Things to Know About the Next Winter Storm**\
+`It’s not likely to be as widespread as the last storm, but it could be unwelcome to people still facing piles of snow. Here’s what we know so far.`\
+https://nytimes.com/2026/01/29/weather/winter-storm-weekend-forecast-ice-snow.html
+
+**Beyond Sight Unseen: She Bought a Condo in Panama That Didn’t Exist **\
+`Looking ahead to retirement, a New Orleans-based doctor and her partner were drawn to Panama for its affordable cost of living and ocean beaches. They just had to be willing to wait.`\
+https://nytimes.com/interactive/2026/01/29/realestate/panama-condos-developments-sale.html
+
+**Senator Tina Smith: My State Showed Courage. Will Republicans?**\
+`Minnesotans have stood up for common decency and our founding principles.`\
+https://nytimes.com/2026/01/29/opinion/ice-trump-good-pretti.html
+
+**The Border Patrol Was Always Out of Control**\
+`A Wild West frontier ethos has persisted to this day.`\
+https://nytimes.com/2026/01/29/opinion/border-patrol-ice-minneapolis.html
+
+**‘Clueless’ and ‘The Karate Kid’ Join National Film Registry**\
+`These films, along with “White Christmas” and “Inception,” are among 25 selected by the Librarian of Congress this year.`\
+https://nytimes.com/2026/01/29/movies/karate-kid-clueless-film-registry.html
+
+**A ‘Fringe Epidemiologist’ on What’s Wrong With Public Health**\
+`Jay Bhattacharya, the N.I.H. director, says authorities broke the public’s trust in the Covid era. Now it’s up to outsiders to restore it.`\
+https://nytimes.com/2026/01/29/opinion/jay-bhattacharya-public-health-covid-trust.html
+
+**How the Patriots' 13-player rookie class has spurred a Super Bowl run**\
+`While Will Campbell and TreVeyon Henderson have inspired an offensive surge, safety Craig Woodson has been a huge factor on defense.`\
+https://nytimes.com/athletic/7004858/2026/01/29/patriots-craig-woodson-rookie-class-super-bowl/
+
 **Alive on the Edge of the World, and Suddenly at Its Center**\
 `Inuuteq Storch, a young photographer from Greenland with a show at MoMA PS1, captures daily life in a place much less remote than we thought.`\
 https://nytimes.com/2026/01/29/arts/design/alive-on-the-edge-of-the-world-and-suddenly-at-its-center.html
@@ -5,36 +37,4 @@ https://nytimes.com/2026/01/29/arts/design/alive-on-the-edge-of-the-world-and-su
 **He Lost His Parents in a Plane Crash. Next Week He’ll Skate at the Olympics.**\
 `After his parents died in the midair collision over Washington, D.C., a year ago, Maxim Naumov struggled to put on his skates. Now he will compete for the United States at the Milan-Cortina Games.`\
 https://nytimes.com/2026/01/29/us/maxim-naumov-2026-olympics-dc-plane-crash.html
-
-**Do You Ever Feel Like You Are Hiding Your True Self?**\
-`“Masking” can help us navigate the world, but at what price?`\
-https://nytimes.com/2026/01/29/learning/do-you-ever-feel-like-you-are-hiding-your-true-self.html
-
-**Dear Haters of ‘Marty Supreme’…**\
-`We have a difference of opinion. And a couple things for you to consider.`\
-https://nytimes.com/2026/01/29/podcasts/dear-haters-of-marty-supreme.html
-
-**Bad Bunny vs. Kendrick Lamar vs. Lady Gaga! Who Should Win at the Grammys.**\
-`The 2026 awards, airing Sunday on CBS, propose a few different ideas about the state of contemporary pop. Here’s who we prefer among the nominees.`\
-https://nytimes.com/2026/01/29/arts/music/popcast-grammys-preview-bad-bunny.html
-
-**The Shakers’ Utopian World Sees a Surge of Modern Interest**\
-`A show at ICA Philadelphia joins a surge of Shaker-inspired projects: films, dances, a museum’s expansion. Refracted through new interpreters, Shaker culture bends, and twists.`\
-https://nytimes.com/2026/01/29/arts/design/shakers-ica-philadelphia.html
-
-**Three Great Documentaries to Stream**\
-`In this month’s picks, mountain climbing, dog sledding and government running.`\
-https://nytimes.com/2026/01/29/movies/three-great-documentaries-to-stream.html
-
-**People Are Getting Worried About Household Mold. Should You Be?**\
-`Google searches for terms like “mold toxicity” and “what is toxic mold” have increased over the last five years, but it’s unlikely that mold-related illness is also increasing.`\
-https://nytimes.com/2026/01/29/realestate/household-mold-search-traffic-trend.html
-
-**In Honduras, the American Right Is Piloting Our Future**\
-`MAGA sees a borderless future in Honduras.`\
-https://nytimes.com/2026/01/29/opinion/prospera-honduras-trump-pardon.html
-
-**Newark Museum of Art Names a New Leader**\
-`Lisa Funderburke will be chief executive and director of the state’s largest art museum.`\
-https://nytimes.com/2026/01/29/arts/design/newark-museum-of-art-director.html
 
