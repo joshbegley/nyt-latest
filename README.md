@@ -1,3 +1,7 @@
+**No More Zoom for French Officials: France to Use Local Alternative to U.S. Tech**\
+`French officials will soon be expected to use new French-made video conferencing software as part of an effort to “regain digital independence,” the government said.`\
+https://nytimes.com/2026/01/29/world/europe/france-zoom-alternative-visio.html
+
 **Founder of First Brands, Whose Bankruptcy Spooked Wall Street, Is Indicted on Fraud**\
 `Patrick James, who was earlier ousted from the beleaguered auto-parts maker, is accused by federal prosecutors of faking invoices and lying about hidden debt for years.`\
 https://nytimes.com/2026/01/29/business/first-brands-fraud-indictment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/29/magazine/wonder-day-mushroom-gummies.html
 **Philip Glass’s Protest at the Kennedy Center**\
 `Readers discuss Philip Glass’s refusal to allow the performance of his symphony at the Kennedy Center. Also: Real leaders at a time of crisis.`\
 https://nytimes.com/2026/01/29/opinion/philip-glass-protest-kennedy-center.html
-
-**In Hostile Times, Maine Immigrants Cherish Artistic Traditions**\
-`An apprenticeship program that passes on skills like Cambodian dance is persevering despite funding threats and ICE agents.`\
-https://nytimes.com/2026/01/29/arts/maine-immigrants-cambodian-dance.html
 
