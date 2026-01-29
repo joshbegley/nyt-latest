@@ -1,3 +1,15 @@
+**Why Australian Open men's semifinals with top four seeds still feel one-sided**\
+`Alexander Zverev and Novak Djokovic are No. 3 and No. 4 in the world. They still feel distant from Carlos Alcaraz and Jannik Sinner.`\
+https://nytimes.com/athletic/7006368/2026/01/29/tennis-australian-open-semifinals-alcaraz-zverev-djokovic-sinner/
+
+**Fantasy trends and hidden gems: Will Smith, John Klingberg among top Week 18 targets**\
+`With the Olympics and a trade deadline ahead, Shayna Goldman helps fantasy managers navigate the NHL's tricky upcoming schedule. `\
+https://nytimes.com/athletic/7005405/2026/01/29/fantasy-trends-hidden-gems-will-smith-top-week-18-targets/
+
+**U.S. Trade Deficit Bounces Back as Tariffs Cause Volatility**\
+`The monthly trade deficit and imports rebounded in November after shrinking significantly in prior months, new data show.`\
+https://nytimes.com/2026/01/29/business/us-trade-deficit-tariffs.html
+
 **Starmer and Xi Meet to Reset Ties Between Britain and China**\
 `Prime Minister Keir Starmer of Britain and President Xi Jinping of China met in Beijing on Thursday in a bid to reset ties as both countries seek a way around an increasingly volatile United States.`\
 https://nytimes.com/video/world/asia/100000010675857/china-uk-starmer-xi.html

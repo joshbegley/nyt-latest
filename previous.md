@@ -1,3 +1,11 @@
+**Why Australian Open men's semifinals with top four seeds still feel one-sided**\
+`Alexander Zverev and Novak Djokovic are No. 3 and No. 4 in the world. They still feel distant from Carlos Alcaraz and Jannik Sinner.`\
+https://nytimes.com/athletic/7006368/2026/01/29/tennis-australian-open-semifinals-alcaraz-zverev-djokovic-sinner/
+
+**Fantasy trends and hidden gems: Will Smith, John Klingberg among top Week 18 targets**\
+`With the Olympics and a trade deadline ahead, Shayna Goldman helps fantasy managers navigate the NHL's tricky upcoming schedule. `\
+https://nytimes.com/athletic/7005405/2026/01/29/fantasy-trends-hidden-gems-will-smith-top-week-18-targets/
+
 **Starmer and Xi Meet to Reset Ties Between Britain and China**\
 `Prime Minister Keir Starmer of Britain and President Xi Jinping of China met in Beijing on Thursday in a bid to reset ties as both countries seek a way around an increasingly volatile United States.`\
 https://nytimes.com/video/world/asia/100000010675857/china-uk-starmer-xi.html
@@ -12,7 +20,7 @@ https://nytimes.com/athletic/7006573/2026/01/29/china-football-ban-clubs-punishe
 
 **U.S. Trade Deficit Bounces Back as Tariffs Cause Volatility**\
 `The monthly trade deficit and imports rebounded in November after shrinking significantly in prior months, new data show.`\
-https://nytimes.com/2026/01/29/business/us-trade-deficit-bounces-back-as-tariffs-cause-volatility.html
+https://nytimes.com/2026/01/29/business/us-trade-deficit-tariffs.html
 
 **The Bucks are ready to talk Giannis trades. So are the Warriors, Knicks and others**\
 `Milwaukee is trying to see what its options are should it decide to trade the two-time MVP.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/29/world/europe/trump-iran-threats.html
 **The A.I. Boom’s Uncertain Payoff**\
 `Companies like Microsoft and Meta are still spending big on artificial intelligence. But investors remain antsy about seeing results.`\
 https://nytimes.com/2026/01/29/business/dealbook/ai-spending-meta-microsoft.html
-
-**Arsenal in talks to sign Batlle in summer when Barcelona contract expires**\
-`The move would see Batlle return to the WSL, having played for Manchester United between 2020 and 2023.`\
-https://nytimes.com/athletic/6999040/2026/01/29/ona-batlle-barcelona-arsenal-transfer-talks/
-
-**Crystal Palace in talks to sign Evann Guessand on loan from Aston Villa**\
-`The 24-year-old is the subject of interest from various European clubs though Palace are currently regarded as frontrunners.`\
-https://nytimes.com/athletic/7006691/2026/01/29/evann-guessand-crystal-palace-aston-villa-loan/
 
