@@ -1,3 +1,11 @@
+**Ex-Google Engineer Convicted of Stealing A.I. Secrets for Start-up in China**\
+`A federal jury found that Linwei Ding stole thousands of confidential files to help him start a company in Beijing.`\
+https://nytimes.com/2026/01/29/business/ai-secrets-stolen-google-china.html
+
+**Where ICE Has Had Cooperation From Minnesota Jails and Prisons**\
+`About 30 percent of the people ICE detained in Minnesota last year were turned over by local jails and prisons, a New York Times analysis of federal data shows, but that number is a lower share than in 39 other states.`\
+https://nytimes.com/2026/01/29/us/minnesota-ice-jails-immigration-arrests.html
+
 **Democrats Reach a Deal With the White House**\
 `Also, genes may determine longevity, a new study finds. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2026/01/29/briefing/democrats-reach-a-deal-with-the-white-house.html

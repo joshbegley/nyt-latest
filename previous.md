@@ -1,3 +1,11 @@
+**Ex-Google Engineer Convicted of Stealing A.I. Secrets for Start-up in China**\
+`A federal jury found that Linwei Ding stole thousands of confidential files to help him start a company in Beijing.`\
+https://nytimes.com/2026/01/29/business/ai-secrets-stolen-google-china.html
+
+**Where ICE Has Had Cooperation From Minnesota Jails and Prisons**\
+`About 30 percent of the people ICE detained in Minnesota last year were turned over by local jails and prisons, a New York Times analysis of federal data shows, but that number is a lower share than in 39 other states.`\
+https://nytimes.com/2026/01/29/us/minnesota-ice-jails-immigration-arrests.html
+
 **Democrats Reach a Deal With the White House**\
 `Also, genes may determine longevity, a new study finds. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2026/01/29/briefing/democrats-reach-a-deal-with-the-white-house.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7008334/2026/01/29/sean-mannion-eagles-oc-offensive
 **Trump to Attend Screening of ‘Melania,’ a Film Heavily Promoted by Amazon**\
 `Amazon paid Melania Trump’s production company $40 million for the movie and then paid another $35 million to promote it.`\
 https://nytimes.com/2026/01/29/arts/melania-movie-trump-kennedy-center.html
-
-**‘We Don’t Want a Shutdown,’ Says Trump as D.H.S. Talks Continue**\
-`Senate Democrats and a handful of Republicans voted to block a government spending package on Thursday. President Trump and Senate Democrats continued to negotiate to rein in federal agents enacting his immigration crackdown and avert a government shutdown.`\
-https://nytimes.com/video/us/politics/100000010677278/trump-government-shutdown-dhs-funding.html
-
-**For Jesse Minter, being head coach of the Ravens is a full-circle moment**\
-`"When this job opened, this became the one for me, and this was the one that I wanted," Minter said at his introductory news conference.`\
-https://nytimes.com/athletic/7008112/2026/01/29/ravens-jesse-minter-head-coach-introductory-news-conference/
 
