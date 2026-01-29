@@ -1,3 +1,7 @@
+**A Crisis for President Trump**\
+`The Department of Homeland Security is in turmoil after the killing of Alex Pretti.`\
+https://nytimes.com/2026/01/29/briefing/a-crisis-for-president-trump.html
+
 **Real Madrid should brace for what comes next after 'horrible' Champions League 'disgrace'**\
 `At the stadium that hosted one of their greatest European nights in 2014, Real Madrid suffered a 'disgraceful' 4-2 reverse`\
 https://nytimes.com/athletic/7006345/2026/01/29/real-madrid-benfica-champions-league-mbappe-arbeloa-defeat/
