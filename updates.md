@@ -1,3 +1,15 @@
+**Man With Steel Blade Is Said to Have Tried to Break Mangione Out of Jail**\
+`Federal prosecutors said the man was arrested after he impersonated an F.B.I. agent on Wednesday in a visit to the federal jail complex in Brooklyn that houses Luigi Mangione.`\
+https://nytimes.com/2026/01/29/nyregion/luigi-mangione-break-out-blade.html
+
+**What Teenagers Are Saying About Altering Photos to Look Better Online**\
+`Students weigh in on a question to The Ethicist about using tools like photo filters and A.I. image generators to improve one’s appearance.`\
+https://nytimes.com/2026/01/29/learning/what-teenagers-are-saying-about-altering-photos-to-look-better-online.html
+
+**Climate Change Is Fueling Extremes, Both Hot and Cold**\
+`The possibility of snow in Tampa, Fla. Record heat and fires in Australia. Scientists say climate change is exacerbating weather extremes.`\
+https://nytimes.com/2026/01/29/climate/climate-change-extreme-weather.html
+
 **An Ethicist ‘in the Scalia Mold’: The Minnesota Judge Blasting ICE**\
 `Judge Patrick Schiltz, an appointee of George W. Bush, became an unlikely foil for his criticism of the Trump administration’s tactics in Minnesota.`\
 https://nytimes.com/2026/01/29/us/politics/an-ethicist-in-the-scalia-mold-the-minnesota-judge-blasting-ice.html

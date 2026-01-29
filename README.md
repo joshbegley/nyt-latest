@@ -1,3 +1,7 @@
+**Meet Tyren Montgomery: Small-school 2026 NFL Draft sleeper turning heads at Senior Bowl**\
+`Montgomery had a huge season at Division III John Carroll, but he's likely a new name for fans turning their attention to the NFL Draft.`\
+https://nytimes.com/athletic/7007348/2026/01/29/senior-bowl-tyren-montgomery-2026-nfl-draft/
+
 **Man With Steel Blade Is Said to Have Tried to Break Mangione Out of Jail**\
 `Federal prosecutors said the man was arrested after he impersonated an F.B.I. agent on Wednesday in a visit to the federal jail complex in Brooklyn that houses Luigi Mangione.`\
 https://nytimes.com/2026/01/29/nyregion/luigi-mangione-break-out-blade.html
