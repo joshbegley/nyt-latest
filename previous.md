@@ -1,3 +1,11 @@
+**Why Cadillac F1 picked a Super Bowl ad and Times Square for its first livery reveal**\
+`The new Cadillac F1 team is taking unique steps to introduce itself to viewers across the U.S., plus championship's existing audience`\
+https://nytimes.com/athletic/7005919/2026/01/29/cadillac-f1-livery-super-bowl-ad-times-square/
+
+**Want to fix Pro Bowl (featuring Shedeur Sanders) and NBA All-Star Game? Offer hula, mula**\
+`There's still some appeal to watching the best of the best in one place. NFL and NBA should go back to the future with better enticements.`\
+https://nytimes.com/athletic/7004909/2026/01/29/pro-bowl-shedeur-sanders-all-star-games/
+
 **Here’s the latest.**\
 `By Alan Feuer, Carl Hulse, Mitch Smith and Qasim Nauman`\
 https://nytimes.com/live/2026/01/29/us/minnesota-ice-shooting-minneapolis/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7005853/2026/01/29/bill-belichick-spygate-hall-of-f
 **How does Pro Football Hall of Fame voting work? One of our voters explains**\
 `The voting process is under scrutiny with Bill Belichick reportedly not being elected in his first year of eligibility.`\
 https://nytimes.com/athletic/7005102/2026/01/29/pro-football-hall-of-fame-voting-process-explainer/
-
-**'People have said they’d kill me': How widespread sports betting affects NFL players**\
-`We asked NFL players about their interactions with sports bettors and fantasy players — and whether they participate themselves.`\
-https://nytimes.com/athletic/7003985/2026/01/29/nfl-player-poll-sports-betting-fantasy-football/
-
-**They're America's top Olympic bobsled hopes, and they're also working moms**\
-`Elana Meyers Taylor and Kaillie Humphries are both gold-medal contenders. They'll compete in Italy with their young children by their side.`\
-https://nytimes.com/athletic/7003872/2026/01/29/olympics-bobsled-elana-meyers-taylor-kaillie-humphries-working-moms/
 

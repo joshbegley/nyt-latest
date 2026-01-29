@@ -1,3 +1,11 @@
+**Why Cadillac F1 picked a Super Bowl ad and Times Square for its first livery reveal**\
+`The new Cadillac F1 team is taking unique steps to introduce itself to viewers across the U.S., plus championship's existing audience`\
+https://nytimes.com/athletic/7005919/2026/01/29/cadillac-f1-livery-super-bowl-ad-times-square/
+
+**Want to fix Pro Bowl (featuring Shedeur Sanders) and NBA All-Star Game? Offer hula, mula**\
+`There's still some appeal to watching the best of the best in one place. NFL and NBA should go back to the future with better enticements.`\
+https://nytimes.com/athletic/7004909/2026/01/29/pro-bowl-shedeur-sanders-all-star-games/
+
 **Here’s the latest.**\
 `By Alan Feuer, Carl Hulse, Mitch Smith and Qasim Nauman`\
 https://nytimes.com/live/2026/01/29/us/minnesota-ice-shooting-minneapolis/heres-the-latest

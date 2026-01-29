@@ -1,40 +1,40 @@
-**Why Cadillac F1 picked a Super Bowl ad and Times Square for its first livery reveal**\
-`The new Cadillac F1 team is taking unique steps to introduce itself to viewers across the U.S., plus championship's existing audience`\
-https://nytimes.com/athletic/7005919/2026/01/29/cadillac-f1-livery-super-bowl-ad-times-square/
+**Pistons' center Jalen Duren breaks down plays in his own words: Film study**\
+`Pistons center Jalen Duren sits down with Hunter Patterson to analyze film and explain his thought process. `\
+https://nytimes.com/athletic/6981020/2026/01/29/pistons-jalen-duren-nba-film-study/
 
-**Want to fix Pro Bowl (featuring Shedeur Sanders) and NBA All-Star Game? Offer hula, mula**\
-`There's still some appeal to watching the best of the best in one place. NFL and NBA should go back to the future with better enticements.`\
-https://nytimes.com/athletic/7004909/2026/01/29/pro-bowl-shedeur-sanders-all-star-games/
+**Vikings' NFL Draft priorities: Ranking the positions of need for 2026**\
+`The Vikings could use an injection of youth all over the defense, but particularly at cornerback, the interior D-line and safety.`\
+https://nytimes.com/athletic/7004933/2026/01/29/vikings-nfl-draft-priorities-positions-2026/
 
-**Here’s the latest.**\
-`By Alan Feuer, Carl Hulse, Mitch Smith and Qasim Nauman`\
-https://nytimes.com/live/2026/01/29/us/minnesota-ice-shooting-minneapolis/heres-the-latest
+**16 stats: Hutson's strong side, Bouchard's dominance and Tkachuk's return**\
+`The Canadiens need to figure out where to play Hutson, Tkachuk is not fully up to speed and goal difference matters less this season.`\
+https://nytimes.com/athletic/7004567/2026/01/29/nhl-lane-hutson-evan-bouchard-matthew-tkachuk/
 
-**Minnesota Live Updates: Pressure Builds on ICE After Judge Said It Violated Nearly 100 Court Orders**\
-`Minnesota’s chief judge warned that “ICE is not a law unto itself.” Tom Homan, now in charge of the agency’s operation in the state, is expected to hold a news conference early Thursday.`\
-https://nytimes.com/live/2026/01/29/us/minnesota-ice-shooting-minneapolis
+**Cooper Flagg and Kon Knueppel: Friends, former roommates and now Rookie of the Year favorites**\
+`The former Duke stars, former college roommates, will face each other for the first time in an NBA game on Thursday.`\
+https://nytimes.com/athletic/7002695/2026/01/29/cooper-flagg-kon-knueppel-duke-nba-rookies/
 
-**Commanders mailbag: Submit your questions for beat reporter Nicki Jhabvala**\
-`Washington already has two new coordinators, but the offseason changes are only just beginning.`\
-https://nytimes.com/athletic/7005958/2026/01/29/commanders-mailbag-submit-your-questions-for-beat-reporter-nicki-jhabvala/
+**The Maple Leafs eliminated a key role in preventing injury. It matters, a former director says**\
+`Former director of sports science and performance Jeremy Bettle: "It’s absolutely why they have more injuries."`\
+https://nytimes.com/athletic/7002562/2026/01/29/maple-leafs-injuries-performance-director-nhl/
 
-**NBA Awards Watch: Scottie Barnes has entered Defensive Player of the Year race**\
-`One big question looming over a couple of races: Will Victor Wembanyama be eligible?`\
-https://nytimes.com/athletic/7003158/2026/01/29/nba-awards-odds-scottie-barnes-wembanyama/
+**The odd nickname Steph Curry gave Macklin Celebrini and where it's popping up now**\
+`Put on the spot on NHL Draft night, Curry's attempt to nickname Celebrini has lived on. `\
+https://nytimes.com/athletic/7005806/2026/01/29/macklin-celebrini-stephen-curry-chester-autographs/
 
-**Jessie Diggins, the best U.S. cross-country skier ever, is ready for a last Olympic stand**\
-`Diggins enters her final Olympics in the best form of her career. How she got here is a testament to the work she put into a grueling sport.`\
-https://nytimes.com/athletic/7001345/2026/01/29/jessie-diggins-olympics-cross-country-skiing-retirement/
+**Gary Bettman praised ‘Heated Rivalry’ and NHL Pride Nights. The leaguewide reality doesn’t match**\
+`Four teams have gone away from having a specifically designated Pride Night this season.`\
+https://nytimes.com/athletic/6992123/2026/01/29/nhl-teams-pride-nights-2026-bruins-hurricanes-mammoth/
 
-**Blue Jays’ fastest prospect wants to be more than just a speedster**\
-`Jake Cook notched just 20 extra-base hits in his college career, but recent swing adjustments could unlock his power potential.`\
-https://nytimes.com/athletic/7005047/2026/01/29/blue-jays-prospect-jake-cook/
+**What’s the future best and worst case for Luke Hughes and Simon Edvinsson?**\
+`Taken two picks apart in the 2021 draft, the defensemen are trending opposite ways. What do player comps have to say about future outlook?`\
+https://nytimes.com/athletic/7004721/2026/01/29/nhl-best-case-worst-case-luke-hughes-simon-edvinsson/
 
-**Spygate cost Bill Belichick a Hall of Fame honor, but it can't hurt his legacy**\
-`Belichick took "gamesmanship" too far, no doubt, but penalties need to be applied within reason. In his prime, he was the best of the best.`\
-https://nytimes.com/athletic/7005853/2026/01/29/bill-belichick-spygate-hall-of-fame-legacy/
+**Ranking all 32 NHL teams' home rinks, from Montreal to MSG and more**\
+`We determine which arenas provide the best experience, based on a vote of fans and writers in four categories.`\
+https://nytimes.com/athletic/6990216/2026/01/29/nhl-rink-rankings-home-arenas/
 
-**How does Pro Football Hall of Fame voting work? One of our voters explains**\
-`The voting process is under scrutiny with Bill Belichick reportedly not being elected in his first year of eligibility.`\
-https://nytimes.com/athletic/7005102/2026/01/29/pro-football-hall-of-fame-voting-process-explainer/
+**James Rodríguez, Colombia's hero with World Cup expectations and no club**\
+`James Rodríguez is still front and center for a World Cup contender – regardless of the fact that he remains an unsigned free agent`\
+https://nytimes.com/athletic/7004501/2026/01/29/james-rodriguez-colombias-hero-with-world-cup-expectations-and-no-club/
 
