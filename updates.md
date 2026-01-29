@@ -1,3 +1,7 @@
+**Elena Rybakina fends off Jessica Pegula comeback for Australian Open final with Aryna Sabalenka**\
+`The No. 5 seed reached her first major final since 2023 with an at-first devastatingly languid performance which grew tense toward the end.`\
+https://nytimes.com/athletic/7006303/2026/01/29/australian-open-semifinals-pegula-rybakina-result-analysis/
+
 **Court Vision: Takeaways from Nebraska-Michigan, Purdue's problem and an overlooked star**\
 `Plus, how Michigan knocked off the Huskers in unlikely fashion and the timely progress of a star freshman guard.`\
 https://nytimes.com/athletic/7004694/2026/01/29/nebraska-michigan-purdue-arizona-college-basketball/
