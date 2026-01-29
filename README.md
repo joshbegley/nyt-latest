@@ -1,3 +1,7 @@
+**Greenlanders Watching Turmoil in the United States Say No Thanks**\
+`The violence in Minneapolis and President Trump’s threats have soured Greenlanders on the United States and, unexpectedly, pushed them closer to Denmark.`\
+https://nytimes.com/2026/01/29/world/europe/greenland-trump-anxiety-american-turmoil.html
+
 **Fantastic Creatures and Where to Find Them**\
 `Schiaparelli and Valentino turn the runways of Paris into a surreal experience.`\
 https://nytimes.com/2026/01/29/style/valentino-schiaparelli-armani-couture.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7005806/2026/01/29/macklin-celebrini-stephen-curry-
 **Gary Bettman praised ‘Heated Rivalry’ and NHL Pride Nights. The leaguewide reality doesn’t match**\
 `Four teams have gone away from having a specifically designated Pride Night this season.`\
 https://nytimes.com/athletic/6992123/2026/01/29/nhl-teams-pride-nights-2026-bruins-hurricanes-mammoth/
-
-**What’s the future best and worst case for Luke Hughes and Simon Edvinsson?**\
-`Taken two picks apart in the 2021 draft, the defensemen are trending opposite ways. What do player comps have to say about future outlook?`\
-https://nytimes.com/athletic/7004721/2026/01/29/nhl-best-case-worst-case-luke-hughes-simon-edvinsson/
 

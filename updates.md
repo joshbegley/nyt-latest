@@ -1,3 +1,11 @@
+**Fantastic Creatures and Where to Find Them**\
+`Schiaparelli and Valentino turn the runways of Paris into a surreal experience.`\
+https://nytimes.com/2026/01/29/style/valentino-schiaparelli-armani-couture.html
+
+**Why Eric Bieniemy returned to the Chiefs — and what he hopes to bring to K.C.**\
+`Bieniemy said he'd had brief talks with Patrick Mahomes and Travis Kelce after returning to Kansas City as offensive coordinator.`\
+https://nytimes.com/athletic/7004899/2026/01/29/chiefs-eric-bieniemy-offensive-coordinator-returns/
+
 **Pistons' center Jalen Duren breaks down plays in his own words: Film study**\
 `Pistons center Jalen Duren sits down with Hunter Patterson to analyze film and explain his thought process. `\
 https://nytimes.com/athletic/6981020/2026/01/29/pistons-jalen-duren-nba-film-study/
