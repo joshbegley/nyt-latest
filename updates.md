@@ -1,3 +1,7 @@
+**Shooting Aftermath Leaves Homeland Security Department in Turmoil**\
+`As officials point fingers in the wake of Alex Pretti’s death at the hands of federal agents, concerns grow about the agency’s future.`\
+https://nytimes.com/2026/01/28/us/politics/shooting-dhs-turmoil.html
+
 **The Journey of a Group of Cuban Deportees Stuck at Guantánamo**\
 `The tale illustrates how inefficient the ICE operation has been in the year since President Trump ordered the base to prepare for up to 30,000 “criminal aliens.”`\
 https://nytimes.com/2026/01/28/us/politics/cubans-gitmo-deportations.html

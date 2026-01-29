@@ -1,3 +1,7 @@
+**Shooting Aftermath Leaves Homeland Security Department in Turmoil**\
+`As officials point fingers in the wake of Alex Pretti’s death at the hands of federal agents, concerns grow about the agency’s future.`\
+https://nytimes.com/2026/01/28/us/politics/shooting-dhs-turmoil.html
+
 **The Journey of a Group of Cuban Deportees Stuck at Guantánamo**\
 `The tale illustrates how inefficient the ICE operation has been in the year since President Trump ordered the base to prepare for up to 30,000 “criminal aliens.”`\
 https://nytimes.com/2026/01/28/us/politics/cubans-gitmo-deportations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/us/minneapolis-shooting-ice-target-minnesota.html
 **Trump Administration Denies That Coercion Is at Heart of Minnesota ICE Surge**\
 `A federal judge weighing whether to block the immigration surge asked Justice Department lawyers to more fully explain the reasons for the operation.`\
 https://nytimes.com/2026/01/28/us/minnesota-ice-surge-trump-administration-lawsuit.html
-
-**ICE Agents Blocked From Entering Ecuadorean Consulate in Minneapolis**\
-`Video footage obtained by The New York Times showed federal immigration agents trying to enter the Ecuadorean Consulate in Minneapolis on Tuesday.`\
-https://nytimes.com/video/us/100000010675020/ice-agents-ecuadorean-consulate.html
 
