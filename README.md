@@ -1,3 +1,7 @@
+**Leeds forward Nmecha out of Arsenal's visit with hamstring problem**\
+`Manager Daniel Farke revealed the Germany international reported discomfort during Monday’s warm-up at Everton.`\
+https://nytimes.com/athletic/7007029/2026/01/29/lukas-nmecha-injury-leeds-arsenal-team-news/
+
 **Parents Navigate a Fracturing Vaccine Landscape**\
 `Rattled by the C.D.C.’s actions and the spread of measles, some parents are scrambling to figure out how to best protect their children.`\
 https://nytimes.com/2026/01/29/well/parents-vaccines.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7006788/2026/01/29/arsenal-kairat-kazakhstani-champ
 **The Bucks without Giannis? Potential packages with the NBA trade deadline near**\
 `The Athletic attempted to put together the most competitive trade packages possible from teams as the NBA trade deadline nears.`\
 https://nytimes.com/athletic/7005877/2026/01/29/giannis-antetokounmpo-bucks-nba-trade-deadline-packages/
-
-**Graphic Novels Wouldn’t Be the Same Without Him. Who Will Keep His Work Alive?**\
-`The intellectual property of Will Eisner, who gives his name to the most prestigious award in American comics, is up for sale.`\
-https://nytimes.com/2026/01/29/books/will-eisner-spirit-sale.html
 
