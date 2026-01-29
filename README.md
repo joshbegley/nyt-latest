@@ -1,3 +1,7 @@
+**U.S. Trade Deficit Bounces Back as Tariffs Cause Volatility**\
+`The monthly trade deficit and imports rebounded in November after shrinking significantly in prior months, new data show.`\
+https://nytimes.com/2026/01/29/business/us-trade-deficit-bounces-back-as-tariffs-cause-volatility.html
+
 **The Bucks are ready to talk Giannis trades. So are the Warriors, Knicks and others**\
 `Milwaukee is trying to see what its options are should it decide to trade the two-time MVP.`\
 https://nytimes.com/athletic/7006138/2026/01/29/giannis-antetokounmpo-trade-rumors-bucks-warriors-knicks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7004930/2026/01/29/chargers-2026-offseason-handbook
 **From parenthood to campaigning, Sydney McLaughlin-Levrone's more personal 2026**\
 `Sydney McLaughlin-Levrone talks with her father, Willie, about a health campaign they have launched`\
 https://nytimes.com/athletic/7003802/2026/01/29/sydney-mclaughlin-levrone-interview/
-
-**Wynton Marsalis, Founder of Jazz at Lincoln Center, to Step Down**\
-`After 40 years with the organization, the trumpeter and impresario will end his role as managing and artistic director in July 2027.`\
-https://nytimes.com/2026/01/29/arts/music/wynton-marsalis-jazz-at-lincoln-center.html
 
