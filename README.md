@@ -1,3 +1,7 @@
+**Is K-pop’s Cute Era Over?**\
+`Our critic Jon Caramanica on how Illit’s new sonic direction reflects this current moment in K-pop.`\
+https://nytimes.com/video/podcasts/100000010671339/is-k-pops-cute-era-over.html
+
 **Why are the Yankees running it back? 'We think we're really good'**\
 `The offense should continue to be lethal. The pitching staff is where the questions about the feasibility of running it back begin.`\
 https://nytimes.com/athletic/7004962/2026/01/28/yankees-run-it-back-2026-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/sports/geoffrey-mason-dead.html
 **Google Co-Founder Seeds Billionaire Political Effort Amid Wealth Tax Debate**\
 `Sergey Brin donated $20 million to a new political drive aimed at solving California’s housing crisis, spurring other billionaires to pitch in. Their efforts may also help ward off a wealth tax.`\
 https://nytimes.com/2026/01/28/us/politics/california-billionaires-sergey-brin-campaign.html
-
-**5 Takeaways From Josh Shapiro’s Memoir**\
-`Politically pointed and heavy on his Jewish faith, the book already has Democrats talking.`\
-https://nytimes.com/2026/01/28/us/politics/josh-shapiro-memoir-where-we-keep-light.html
 
