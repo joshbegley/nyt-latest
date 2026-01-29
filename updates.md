@@ -1,3 +1,7 @@
+**Venezuelan Lawmakers Approve Sweeping Overhaul of Oil Sector**\
+`Bowing to Trump administration pressure, the new legislation improves conditions for foreign oil companies and opens the way to slash the taxes they pay.`\
+https://nytimes.com/2026/01/29/world/americas/venezuela-new-law-oil-foreign-companies.html
+
 **What Happens When TV’s Favorite Weed Dealer Tries to Quit?**\
 `The “High Maintenance” co-creator and star Ben Sinclair delves into his complicated relationship with marijuana in a new Substack called “Low Maintenance.”`\
 https://nytimes.com/2026/01/29/style/ben-sinclaire-marijuana-low-maintenance-substack.html

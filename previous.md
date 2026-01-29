@@ -1,3 +1,7 @@
+**Venezuelan Lawmakers Approve Sweeping Overhaul of Oil Sector**\
+`Bowing to Trump administration pressure, the new legislation improves conditions for foreign oil companies and opens the way to slash the taxes they pay.`\
+https://nytimes.com/2026/01/29/world/americas/venezuela-new-law-oil-foreign-companies.html
+
 **What Happens When TV’s Favorite Weed Dealer Tries to Quit?**\
 `The “High Maintenance” co-creator and star Ben Sinclair delves into his complicated relationship with marijuana in a new Substack called “Low Maintenance.”`\
 https://nytimes.com/2026/01/29/style/ben-sinclaire-marijuana-low-maintenance-substack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/29/world/bad-bunny-grammys-pop-britain-china.html
 **Sources: Canada, Columbus forward Russell-Rowe moving to Toulouse**\
 `The 23-year-old Canada forward will head abroad in hopes of improving his World Cup outlook under Jesse Marsch.`\
 https://nytimes.com/athletic/7007871/2026/01/29/jacen-russell-rowe-transfer-toulouse-columbus-crew/
-
-**Educator Who Read ‘I Need a New Butt!’ to Students Wins Job Back in Court**\
-`An appellate court ruled that the firing of the former assistant principal of an elementary school in Mississippi in 2022 had been “arbitrary and capricious.”`\
-https://nytimes.com/2026/01/29/us/new-butt-book-appeal.html
 
