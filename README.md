@@ -1,3 +1,11 @@
+**Dodgers' Miguel Rojas won't represent Venezuela in WBC due to insurance issues: Source**\
+`Jose Altuve and Carlos Correa of the Houston Astros also won't participate in the WBC due to insurance concerns.`\
+https://nytimes.com/athletic/7008310/2026/01/29/dodgers-miguel-rojas-wont-represent-venezuela-in-wbc-due-to-insurance-issues-source/
+
+**The Polls Are Clear. Americans Don’t Want This.**\
+`There is rising anxiety among Americans that the presence of an armed federal force in cities is actively making life less safe for people who live there.`\
+https://nytimes.com/2026/01/29/opinion/minneapolis-immigration-ice-safety-trump.html
+
 **Trump Says Putin Agreed to a Weeklong Pause in Attacks Amid Extreme Cold**\
 `Russia has left thousands of apartment buildings in Kyiv without heat in recent weeks, in a campaign that has appeared aimed at breaking Ukraine’s morale.`\
 https://nytimes.com/2026/01/29/us/politics/trump-putin-ceasefire-cold.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/29/world/americas/venezuela-new-law-oil-foreign-comp
 **What Happens When TV’s Favorite Weed Dealer Tries to Quit?**\
 `The “High Maintenance” co-creator and star Ben Sinclair delves into his complicated relationship with marijuana in a new Substack called “Low Maintenance.”`\
 https://nytimes.com/2026/01/29/style/ben-sinclaire-marijuana-low-maintenance-substack.html
-
-**MAGA Tab in LA-LA Land! The California Post Launches**\
-`The expansion of the Murdoch tabloid from its New York roots to the West Coast is the latest sign of the outlet’s national ambitions.`\
-https://nytimes.com/2026/01/29/business/media/california-post-new-york-post-fox-rupert-murdoch.html
-
-**Pochettino backs USMNT players seeking January moves as World Cup looms**\
-`Alex Freeman has completed a big January move, while Ricardo Pepi could also make a switch before the transfer deadline`\
-https://nytimes.com/athletic/7008164/2026/01/29/pochettino-usmnt-world-cup-freeman-pepi/
 
