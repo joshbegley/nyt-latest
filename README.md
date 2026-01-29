@@ -1,3 +1,11 @@
+**Starmer and Xi Meet to Reset Ties Between Britain and China**\
+`Prime Minister Keir Starmer of Britain and President Xi Jinping of China met in Beijing on Thursday in a bid to reset ties as both countries seek a way around an increasingly volatile United States.`\
+https://nytimes.com/video/world/asia/100000010675857/china-uk-starmer-xi.html
+
+**A Democratic Critic of Newsom Will Run to Succeed Him**\
+`Matt Mahan, a moderate Democrat who serves as mayor of San Jose, Calif., is entering the crowded race for California governor.`\
+https://nytimes.com/2026/01/29/us/elections/matt-mahan-governor-california.html
+
 **China bans 73 people and sanctions 13 clubs in soccer corruption investigation**\
 `In total, a cumulative total of 72 league points have been docked from 13 clubs across the two divisions of Chinese football.`\
 https://nytimes.com/athletic/7006573/2026/01/29/china-football-ban-clubs-punished/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6999040/2026/01/29/ona-batlle-barcelona-arsenal-tra
 **Crystal Palace in talks to sign Evann Guessand on loan from Aston Villa**\
 `The 24-year-old is the subject of interest from various European clubs though Palace are currently regarded as frontrunners.`\
 https://nytimes.com/athletic/7006691/2026/01/29/evann-guessand-crystal-palace-aston-villa-loan/
-
-**SEC survey results: Fans on the state of the conference, Indiana and the future of the sport**\
-`By and large, SEC football fans are humbled. However, they’re not in a panic, based on the results of a reader survey by The Athletic.`\
-https://nytimes.com/athletic/7001970/2026/01/29/sec-college-football-fans-survey-results/
-
-**Chargers 2026 Offseason Handbook: Cap space, draft, free agency, roster needs**\
-`The Chargers are estimated to have about $62 million in effective salary cap space to utilize this offseason.`\
-https://nytimes.com/athletic/7004930/2026/01/29/chargers-2026-offseason-handbook/
 
