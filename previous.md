@@ -1,3 +1,11 @@
+**Real Madrid should brace for what comes next after 'horrible' Champions League 'disgrace'**\
+`At the stadium that hosted one of their greatest European nights in 2014, Real Madrid suffered a 'disgraceful' 4-2 reverse`\
+https://nytimes.com/athletic/7006345/2026/01/29/real-madrid-benfica-champions-league-mbappe-arbeloa-defeat/
+
+**Russia’s Lukoil to Sell Its Foreign Assets to U.S. Investment Firm**\
+`The deal with Carlyle comes after the United States and the European Union imposed sanctions on Lukoil, putting a dent in the Kremlin’s oil revenue.`\
+https://nytimes.com/2026/01/29/business/russia-lukoil-carlyle-sale-sanctions.html
+
 **Astros roster projection 1.0: The infield surplus edition**\
 `Should the Astros maintain the status quo throughout their six-week stay in West Palm Beach, this is how things shake out. `\
 https://nytimes.com/athletic/7005457/2026/01/29/astros-roster-projection-2026-infield-surplus/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6981020/2026/01/29/pistons-jalen-duren-nba-film-stu
 **Vikings' NFL Draft priorities: Ranking the positions of need for 2026**\
 `The Vikings could use an injection of youth all over the defense, but particularly at cornerback, the interior D-line and safety.`\
 https://nytimes.com/athletic/7004933/2026/01/29/vikings-nfl-draft-priorities-positions-2026/
-
-**16 stats: Hutson's strong side, Bouchard's dominance and Tkachuk's return**\
-`The Canadiens need to figure out where to play Hutson, Tkachuk is not fully up to speed and goal difference matters less this season.`\
-https://nytimes.com/athletic/7004567/2026/01/29/nhl-lane-hutson-evan-bouchard-matthew-tkachuk/
-
-**Cooper Flagg and Kon Knueppel: Friends, former roommates and now Rookie of the Year favorites**\
-`The former Duke stars, former college roommates, will face each other for the first time in an NBA game on Thursday.`\
-https://nytimes.com/athletic/7002695/2026/01/29/cooper-flagg-kon-knueppel-duke-nba-rookies/
 

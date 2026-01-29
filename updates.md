@@ -1,3 +1,11 @@
+**Real Madrid should brace for what comes next after 'horrible' Champions League 'disgrace'**\
+`At the stadium that hosted one of their greatest European nights in 2014, Real Madrid suffered a 'disgraceful' 4-2 reverse`\
+https://nytimes.com/athletic/7006345/2026/01/29/real-madrid-benfica-champions-league-mbappe-arbeloa-defeat/
+
+**Russia’s Lukoil to Sell Its Foreign Assets to U.S. Investment Firm**\
+`The deal with Carlyle comes after the United States and the European Union imposed sanctions on Lukoil, putting a dent in the Kremlin’s oil revenue.`\
+https://nytimes.com/2026/01/29/business/russia-lukoil-carlyle-sale-sanctions.html
+
 **Astros roster projection 1.0: The infield surplus edition**\
 `Should the Astros maintain the status quo throughout their six-week stay in West Palm Beach, this is how things shake out. `\
 https://nytimes.com/athletic/7005457/2026/01/29/astros-roster-projection-2026-infield-surplus/

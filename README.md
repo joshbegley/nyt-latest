@@ -1,3 +1,7 @@
+**A Crisis for President Trump**\
+`The Department of Homeland Security is in turmoil after the killing of Alex Pretti.`\
+https://nytimes.com/2026/01/29/briefing/a-crisis-for-president-trump.html
+
 **Real Madrid should brace for what comes next after 'horrible' Champions League 'disgrace'**\
 `At the stadium that hosted one of their greatest European nights in 2014, Real Madrid suffered a 'disgraceful' 4-2 reverse`\
 https://nytimes.com/athletic/7006345/2026/01/29/real-madrid-benfica-champions-league-mbappe-arbeloa-defeat/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7004899/2026/01/29/chiefs-eric-bieniemy-offensive-c
 **Pistons' center Jalen Duren breaks down plays in his own words: Film study**\
 `Pistons center Jalen Duren sits down with Hunter Patterson to analyze film and explain his thought process. `\
 https://nytimes.com/athletic/6981020/2026/01/29/pistons-jalen-duren-nba-film-study/
-
-**Vikings' NFL Draft priorities: Ranking the positions of need for 2026**\
-`The Vikings could use an injection of youth all over the defense, but particularly at cornerback, the interior D-line and safety.`\
-https://nytimes.com/athletic/7004933/2026/01/29/vikings-nfl-draft-priorities-positions-2026/
 
