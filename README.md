@@ -1,40 +1,40 @@
-**A Crisis for President Trump**\
-`The Department of Homeland Security is in turmoil after the killing of Alex Pretti.`\
-https://nytimes.com/2026/01/29/briefing/a-crisis-for-president-trump.html
+**Court Vision: Takeaways from Nebraska-Michigan, Purdue's problem and an overlooked star**\
+`Plus, how Michigan knocked off the Huskers in unlikely fashion and the timely progress of a star freshman guard.`\
+https://nytimes.com/athletic/7004694/2026/01/29/nebraska-michigan-purdue-arizona-college-basketball/
 
-**Real Madrid should brace for what comes next after 'horrible' Champions League 'disgrace'**\
-`At the stadium that hosted one of their greatest European nights in 2014, Real Madrid suffered a 'disgraceful' 4-2 reverse`\
-https://nytimes.com/athletic/7006345/2026/01/29/real-madrid-benfica-champions-league-mbappe-arbeloa-defeat/
+**LeBron James and the path home: Why he should spend his final NBA season back in Cleveland**\
+`James insists he hasn’t made any decisions on his future, although his "battle with Father Time" is clearly on his mind.`\
+https://nytimes.com/athletic/7006119/2026/01/29/lebron-james-cavs-lakers-final-nba-season/
 
-**Russia’s Lukoil to Sell Its Foreign Assets to U.S. Investment Firm**\
-`The deal with Carlyle comes after the United States and the European Union imposed sanctions on Lukoil, putting a dent in the Kremlin’s oil revenue.`\
-https://nytimes.com/2026/01/29/business/russia-lukoil-carlyle-sale-sanctions.html
+**This Week in Sports Trivia: January 29, 2026**\
+`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
+https://nytimes.com/athletic/7004386/2026/01/29/this-week-in-sports-trivia-january-29-2026/
 
-**Astros roster projection 1.0: The infield surplus edition**\
-`Should the Astros maintain the status quo throughout their six-week stay in West Palm Beach, this is how things shake out. `\
-https://nytimes.com/athletic/7005457/2026/01/29/astros-roster-projection-2026-infield-surplus/
+**If the Seahawks lose OC Klint Kubiak to a head-coaching job, there could be ripple effects**\
+`If Kubiak leaves, Mike Macdonald would have to hire a third offensive coordinator in three seasons, and there might be other changes, too.`\
+https://nytimes.com/athletic/7005433/2026/01/29/klint-kubiak-seahawks-coaching-carousel-offensive-coordinator/
 
-**What the Bears' continuity on the offensive line means for Caleb Williams in 2026**\
-`Thanks to big splurges last March that worked out, the Bears feel good about their offensive line and bring everyone back for 2026.`\
-https://nytimes.com/athletic/7005149/2026/01/29/bears-offensive-line-continuity-caleb-williams/
+**State of the ACC: Jim Phillips talks realignment, Notre Dame and big college sports changes**\
+`The ACC commissioner arrived five years ago at the start of an era of massive changes in college sports. Where's the conference heading now?`\
+https://nytimes.com/athletic/7004576/2026/01/29/jim-phillips-acc-realignment-notre-dame-miami/
 
-**The Pulse: NFL players dish**\
-`Welcome to The Pulse, The Athletic's daily newsletter.`\
-https://nytimes.com/athletic/7004735/2026/01/29/nfl-player-poll-the-pulse/
+**Michael Johnson's Grand Slam Track league owes $40.68m, according to new filings**\
+`New documents reveal the stark financial shortfall of the start-up track league - including the cash owed and salary drawn by its founder`\
+https://nytimes.com/athletic/7002189/2026/01/29/michael-johnson-grand-slam-track-filings/
 
-**Greenlanders Watching Turmoil in the United States Say No Thanks**\
-`The violence in Minneapolis and President Trump’s threats have soured Greenlanders on the United States and, unexpectedly, pushed them closer to Denmark.`\
-https://nytimes.com/2026/01/29/world/europe/greenland-trump-anxiety-american-turmoil.html
+**John Wall Q&A: On fatherhood, why he loves Anthony Edwards and finding his TV voice**\
+`The Wizards icon will be at Capital One Arena tonight, working the game for Amazon while being honored on "John Wall Appreciation Night."`\
+https://nytimes.com/athletic/7000081/2026/01/29/john-wall-qa-wizards-amazon-prime-tv-edwards/
 
-**Fantastic Creatures and Where to Find Them**\
-`Schiaparelli and Valentino turn the runways of Paris into a surreal experience.`\
-https://nytimes.com/2026/01/29/style/valentino-schiaparelli-armani-couture.html
+**New USA Hockey policy restricts transgender player access to certain programs**\
+`USA Hockey has approved a new policy that will prohibit transgender athletes from participating in hockey programs that are classified by sex, including adult recreational “beer” leagues.`\
+https://nytimes.com/athletic/7005630/2026/01/29/usa-hockey-transgender-policy/
 
-**Why Eric Bieniemy returned to the Chiefs — and what he hopes to bring to K.C.**\
-`Bieniemy said he'd had brief talks with Patrick Mahomes and Travis Kelce after returning to Kansas City as offensive coordinator.`\
-https://nytimes.com/athletic/7004899/2026/01/29/chiefs-eric-bieniemy-offensive-coordinator-returns/
+**College football transfer portal winners, losers: Miami, IU reload; Bama, Duke take big hits**\
+`Everyone is looking for the quick fix in college football. Which teams were successful and which teams will take a step back?`\
+https://nytimes.com/athletic/7004556/2026/01/29/college-football-transfer-portal-winners-losers-2/
 
-**Pistons' center Jalen Duren breaks down plays in his own words: Film study**\
-`Pistons center Jalen Duren sits down with Hunter Patterson to analyze film and explain his thought process. `\
-https://nytimes.com/athletic/6981020/2026/01/29/pistons-jalen-duren-nba-film-study/
+**Clippers are the NBA's hottest team. Will they shake things up soon?**\
+`When LA was 6-21, major trade deadline changes wouldn't have been hard to envision. But things have changed.`\
+https://nytimes.com/athletic/7003236/2026/01/29/clippers-trade-deadline-preview-nba/
 
