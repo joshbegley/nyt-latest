@@ -1,3 +1,7 @@
+**Hall of Fame confirms Bill Polian voted to induct Bill Belichick**\
+`A spokesperson for the Hall said Polian did not speak during the discussion around Belichick's candidacy.`\
+https://nytimes.com/athletic/7005498/2026/01/28/bill-polian-bill-belichick-hof-voting/
+
 **Columnist explains why he didn't vote for Bill Belichick for Hall of Fame**\
 `One voter went public to say Belichick's snub had nothing to with any controversy involving the six-time Super Bowl champion head coach.`\
 https://nytimes.com/athletic/7005510/2026/01/28/bill-belichick-hall-of-fame-vahe-gregorian/
