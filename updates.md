@@ -1,3 +1,11 @@
+**Can Department Stores Ever Be Fun Again?**\
+`Saks Fifth Avenue’s bankruptcy filing has revived debates about how these once celebrated shopping emporiums can regain their luster.`\
+https://nytimes.com/2026/01/29/style/saks-bankruptcy-department-store-shopping.html
+
+**Penguins trade targets: Let's look at some players Pittsburgh should be interested in**\
+`A look at seven players the Penguins should have a level of interest in entering NHL trade deadline season.`\
+https://nytimes.com/athletic/7005833/2026/01/29/penguins-nhl-trade-deadline-targets/
+
 **Valentine’s Day Gifts for the Aesthete in Your Life**\
 `Japanese incense, jewelry that looks like candy and more recommendations from T Magazine.`\
 https://nytimes.com/2026/01/29/t-magazine/valentines-day-gift-ideas.html

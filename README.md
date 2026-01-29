@@ -1,3 +1,7 @@
+**The Bounce: Is a Giannis trade imminent? Plus, Chet vs. Wemby for DPOY?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7006800/2026/01/29/giannis-antetokounmpo-trade-rumors-wembanyama-the-bounce/
+
 **Can Department Stores Ever Be Fun Again?**\
 `Saks Fifth Avenue’s bankruptcy filing has revived debates about how these once celebrated shopping emporiums can regain their luster.`\
 https://nytimes.com/2026/01/29/style/saks-bankruptcy-department-store-shopping.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/29/us/elections/matt-mahan-governor-california.html
 **China bans 73 people and sanctions 13 clubs in soccer corruption investigation**\
 `In total, a cumulative total of 72 league points have been docked from 13 clubs across the two divisions of Chinese football.`\
 https://nytimes.com/athletic/7006573/2026/01/29/china-football-ban-clubs-punished/
-
-**U.S. Trade Deficit Bounces Back as Tariffs Cause Volatility**\
-`The monthly trade deficit and imports rebounded in November after shrinking significantly in prior months, new data show.`\
-https://nytimes.com/2026/01/29/business/us-trade-deficit-tariffs.html
 
