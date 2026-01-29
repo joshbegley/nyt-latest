@@ -1,3 +1,19 @@
+**Alarm**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2026/01/29/learning/alarm.html
+
+**Adams’s Parting Gift of 19 Vetoes Is Being Returned, With 17 Overrides**\
+`The New York City Council is expected to overwhelmingly vote to create wage minimums for private security officers and lift the cap on street vendor licenses.`\
+https://nytimes.com/2026/01/29/nyregion/eric-adams-veto-override.html
+
+**For Protesters at Houses of Worship, How Far Away Is Too Far?**\
+`The New York City Council speaker, Julie Menin, is proposing a barrier of up to 100 feet to protect congregants from protesters, 75 feet larger than Gov. Kathy Hochul has suggested.`\
+https://nytimes.com/2026/01/29/nyregion/jewish-protesters-hamas-buffer.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/29/crosswords/spelling-bee-forum.html
+
 **Newcastle United are clinging on to the elite - just**\
 `Eddie Howe's side are finding out that staying in Europe's top tier of clubs is harder than getting there in the first place`\
 https://nytimes.com/athletic/7005769/2026/01/29/newcastle-psg-champions-league-result-analysis/
@@ -21,20 +37,4 @@ https://nytimes.com/video/us/politics/100000010675396/trump-schumer-deal-shutdow
 **'We've always had an expectation': Steph Curry talks Warriors' future**\
 `Curry avoided specifics and hypotheticals, but did shed some light on his thoughts as the Warriors approach next week's trade deadline.`\
 https://nytimes.com/athletic/7006204/2026/01/29/steph-curry-warriors-future/
-
-**Word of the Day: pertain**\
-`This word has appeared in 39 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/01/29/learning/word-of-the-day-pertain.html
-
-**A tale of two Tottenhams: European nights once again giving Spurs respite from domestic woe**\
-`Tottenham Hotspur finished fourth in the Champions League league phase despite their woeful form in the Premier League`\
-https://nytimes.com/athletic/6996258/2026/01/29/tottenham-champions-league-premier-league/
-
-**Conte, Napoli and a cursed Champions League campaign**\
-`The Italian champions were left with a familiar sinking feeling as they exited European competition against Chelsea`\
-https://nytimes.com/athletic/7005413/2026/01/29/antonio-conte-napoli-champions-league/
-
-**Serena Williams refuses to rule out tennis comeback two months after firm denial**\
-`The 23-time Grand Slam champion appears to have softened her position on the prospect since last December.`\
-https://nytimes.com/athletic/7006131/2026/01/29/serena-williams-tennis-comeback-today-show/
 
