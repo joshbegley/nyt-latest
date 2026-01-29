@@ -1,3 +1,7 @@
+**Democrats Reach a Deal With the White House**\
+`Also, genes may determine longevity, a new study finds. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/01/29/briefing/democrats-reach-a-deal-with-the-white-house.html
+
 **Michael Beck, 65, Dies; First to Report Symptoms of ‘Havana Syndrome’**\
 `As an employee with the N.S.A., he claimed he was exposed to a direct-energy device that led to a diagnosis of Parkinson’s disease at age 45.`\
 https://nytimes.com/2026/01/29/us/michael-beck-dead.html
