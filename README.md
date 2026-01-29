@@ -1,3 +1,11 @@
+**6 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2026/01/29/books/review/new-recommended-books.html
+
+**Appeals Court Rules in Favor of Protections for Venezuelans**\
+`The Trump administration has sought to end Temporary Protected Status for more than a million people from troubled nations. About 600,000 are from Venezuela.`\
+https://nytimes.com/2026/01/29/us/tps-protections-venezuelan-immigrants-trump.html
+
 **Devastating Floods Displace Hundreds of Thousands in Southern Africa**\
 `More than 100 deaths have been confirmed across South Africa, Zimbabwe and Mozambique, with the rains expected to continue through February.`\
 https://nytimes.com/2026/01/29/world/africa/mozambique-south-africa-flood.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/01/29/world/europe/france-zoom-alternative-visio.html
 **Founder of First Brands, Whose Bankruptcy Spooked Wall St., Is Indicted on Fraud Charges**\
 `Patrick James, who was earlier ousted from the beleaguered auto-parts maker, is accused by federal prosecutors of faking invoices and lying about hidden debt for years.`\
 https://nytimes.com/2026/01/29/business/first-brands-fraud-indictment.html
-
-**Eagles mailbag, Part 1: Nick Sirianni's role in OC search, merit of play-calling head coach**\
-`The Eagles' opening comes with win-now expectations. `\
-https://nytimes.com/athletic/7006789/2026/01/29/eagles-offensive-coordinator-search-nick-sirianni/
-
-**Some Polar Bears Are Getting Fatter Even as Sea Ice Shrinks (for Now)**\
-`Seals favored by Svalbard bears are becoming easier to hunt as ice declines, a study found. But researchers say the situation may be temporary.`\
-https://nytimes.com/2026/01/29/climate/polar-bears-svalbard.html
 
