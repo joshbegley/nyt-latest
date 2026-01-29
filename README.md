@@ -1,5 +1,9 @@
-**Bo Nix expects 'absolutely no issues' in recovery from ankle injury**\
-`Nix said he felt "helpless" watching from above as the Broncos suffered a 10-7 loss in the AFC Championship Game without him`\
+**America at a Boiling Point: Deaths, Threats, Protests and a Town Hall Attack**\
+`An attack at a town hall in Minneapolis, amid a surge in threats against lawmakers, was the latest sign of the fraying of the nation’s political fabric.`\
+https://nytimes.com/2026/01/28/us/politics/trump-ice-protests-omar-attack.html
+
+**Broncos QB Nix expects 'absolutely no issues' in recovery from ankle injury**\
+`Nix said he felt "helpless" watching from above as the Broncos suffered a 10-7 loss in the AFC Championship Game without him.`\
 https://nytimes.com/athletic/7005065/2026/01/28/bo-nix-injury-update-broncos-qb-nfl/
 
 **Homelessness Appears to Decline, Reversing a Yearslong Trend**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010671339/is-k-pops-cute-era-over.html
 **Why are the Yankees running it back? 'We think we're really good'**\
 `The offense should continue to be lethal. The pitching staff is where the questions about the feasibility of running it back begin.`\
 https://nytimes.com/athletic/7004962/2026/01/28/yankees-run-it-back-2026-season/
-
-**Jury Awards $30 Million to Man Who Accused Teacher of Sexual Abuse**\
-`The man, now 44, said he was repeatedly sexually abused when he was a child at a school in Newark in the 1990s.`\
-https://nytimes.com/2026/01/28/nyregion/newark-school-sex-abuse-judgment.html
 

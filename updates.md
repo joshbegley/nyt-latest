@@ -1,3 +1,11 @@
+**Bo Nix expects 'absolutely no issues' in recovery from ankle injury**\
+`Nix said he felt "helpless" watching from above as the Broncos suffered a 10-7 loss in the AFC Championship Game without him`\
+https://nytimes.com/athletic/7005065/2026/01/28/bo-nix-injury-update-broncos-qb-nfl/
+
+**Homelessness Appears to Decline, Reversing a Yearslong Trend**\
+`The Trump administration has not yet released the count, which could complicate its plans for tough new policies.`\
+https://nytimes.com/2026/01/28/us/politics/homelessness-decline-trend.html
+
 **Beyond Belichick: 10 other NFL legends who had to wait for the Hall of Fame**\
 `John Madden, Terrell Owens and Joe Namath were also among the sports legends who had to wait for a call from Canton.`\
 https://nytimes.com/athletic/7005005/2026/01/28/bill-belichick-hof-nfl-legends-first-year-snubs/
