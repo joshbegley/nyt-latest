@@ -1,3 +1,7 @@
+**Chargers agree to terms with Chris O'Leary as defensive coordinator**\
+`O'Leary was the Chargers safeties coach in 2024 and spent last season as the defensive coordinator at Western Michigan.`\
+https://nytimes.com/athletic/7006093/2026/01/29/chargers-hire-chris-oleary-defensive-coordinator/
+
 **Nine Championship clubs have changed their manager this season - what happened next?**\
 `There has been a high turnover of managers in the second tier this season, but does making a change mean an upturn in results?`\
 https://nytimes.com/athletic/7003720/2026/01/29/what-happens-after-clubs-change-championship-managers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7005215/2026/01/29/australian-open-womens-semifinal
 **At World’s Busiest Port, China’s Unbalanced Economy Comes Into View**\
 `The shipping traffic and factories never stop in China’s port city of Ningbo, but the local housing market has crashed and nearby restaurants sit empty.`\
 https://nytimes.com/2026/01/29/business/china-economy-duality.html
-
-**Corrections: Jan. 29, 2026**\
-`Corrections that appeared in print on Thursday, Jan. 29, 2026.`\
-https://nytimes.com/2026/01/29/pageoneplus/corrections-jan-29-2026.html
 
