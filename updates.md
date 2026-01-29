@@ -1,3 +1,11 @@
+**Trump Administration Denies That Coercion Is at Heart of Minnesota ICE Surge**\
+`A federal judge weighing whether to block the immigration surge asked Justice Department lawyers to more fully explain the reasons for the operation.`\
+https://nytimes.com/2026/01/28/us/minnesota-ice-surge-trump-administration-lawsuit.html
+
+**LeBron James sheds tears during tribute video in latest return to Cleveland**\
+`Wednesday marked the 41-year-old James' eighth game in Cleveland as a member of the Lakers.`\
+https://nytimes.com/athletic/7005683/2026/01/28/lebron-james-crying-cavaliers-tribute-video/
+
 **ICE Agents Blocked From Entering Ecuadorean Consulate in Minneapolis**\
 `Video footage obtained by The New York Times showed federal immigration agents trying to enter the Ecuadorean Consulate in Minneapolis on Tuesday.`\
 https://nytimes.com/video/us/100000010675020/ice-agents-ecuadorean-consulate.html
