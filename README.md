@@ -1,3 +1,7 @@
+**Devastating Floods Displace Hundreds of Thousands in Southern Africa**\
+`More than 100 deaths have been confirmed across South Africa, Zimbabwe and Mozambique, with the rains expected to continue through February.`\
+https://nytimes.com/2026/01/29/world/africa/mozambique-south-africa-flood.html
+
 **White House Border Czar Asks Minnesota for More Access to Jails**\
 `The White House border czar Tom Homan said there are plans for a “drawdown” of immigration enforcement’s operation in Minnesota if his agents get access to jails in the state.`\
 https://nytimes.com/video/us/politics/100000010676355/homan-trump-ice-minneapolis-immigration.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7006789/2026/01/29/eagles-offensive-coordinator-sea
 **Some Polar Bears Are Getting Fatter Even as Sea Ice Shrinks (for Now)**\
 `Seals favored by Svalbard bears are becoming easier to hunt as ice declines, a study found. But researchers say the situation may be temporary.`\
 https://nytimes.com/2026/01/29/climate/polar-bears-svalbard.html
-
-**Trump Says He Only Appeared to Nod Off in Last Cabinet Meeting Because It Was ‘Boring’**\
-`Mr. Trump’s allies have strenuously insisted that he was alert and attentive at the meeting last month. The president said he had only closed his eyes.`\
-https://nytimes.com/2026/01/29/us/politics/donald-trump-cabinet-meeting-asleep.html
 

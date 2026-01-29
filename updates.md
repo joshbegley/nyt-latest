@@ -1,3 +1,7 @@
+**White House Border Czar Asks Minnesota for More Access to Jails**\
+`The White House border czar Tom Homan said there are plans for a “drawdown” of immigration enforcement’s operation in Minnesota if his agents get access to jails in the state.`\
+https://nytimes.com/video/us/politics/100000010676355/homan-trump-ice-minneapolis-immigration.html
+
 **Fears and Dort fined for roles in altercation at end of Pelicans vs. Thunder**\
 `Fears remained so heated after the game that Pelicans security had to restrain him from escalating the conflict further.`\
 https://nytimes.com/athletic/7007560/2026/01/29/pelicans-thunder-jeremiah-fears-luguentz-dort-fine/
