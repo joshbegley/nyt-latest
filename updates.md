@@ -1,3 +1,19 @@
+**Trump Warns Iran With Military Muscle, but Risks a Regional War**\
+`Iran’s Islamic Republic, weakened by airstrikes in June and huge popular unrest, warns that it will strike back hard if attacked by the United States. This time, Iran may mean it.`\
+https://nytimes.com/2026/01/29/world/europe/trump-iran-threats.html
+
+**The A.I. Boom’s Uncertain Payoff**\
+`Companies like Microsoft and Meta are still spending big on artificial intelligence. But investors remain antsy about seeing results.`\
+https://nytimes.com/2026/01/29/business/dealbook/ai-spending-meta-microsoft.html
+
+**Arsenal in talks to sign Batlle in summer when Barcelona contract expires**\
+`The move would see Batlle return to the WSL, having played for Manchester United between 2020 and 2023.`\
+https://nytimes.com/athletic/6999040/2026/01/29/ona-batlle-barcelona-arsenal-transfer-talks/
+
+**Crystal Palace in talks to sign Evann Guessand on loan from Aston Villa**\
+`The 24-year-old is the subject of interest from various European clubs though Palace are currently regarded as frontrunners.`\
+https://nytimes.com/athletic/7006691/2026/01/29/evann-guessand-crystal-palace-aston-villa-loan/
+
 **Arsenal in talks to sign Barcelona's Batlle in summer in pre-contract deal**\
 `The move would see Batlle return to the WSL, having played for Manchester United between 2020 and 2023.`\
 https://nytimes.com/athletic/6999040/2026/01/29/ona-batlle-barcelona-arsenal-transfer-talks/
