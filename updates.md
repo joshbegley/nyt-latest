@@ -1,3 +1,7 @@
+**Suspect Is Said to Have Tampered With Stove Before Deadly Bronx Fire**\
+`A gas leak from the stove started a fire that engulfed apartments on the top floors. The man was arrested on Wednesday.`\
+https://nytimes.com/2026/01/29/nyregion/deadly-bronx-fire-stove.html
+
 **Democrats Visit 5-Year-Old Liam Conejo Ramos, Detained by ICE**\
 `Democratic lawmakers called Wednesday for the immediate release of Liam Conejo Ramos, a 5-year-old detained by federal agents in Minnesota, after visiting him and his father in an immigration holding facility.`\
 https://nytimes.com/video/us/100000010675966/liam-ramos-ice-minneapolis-deportation.html

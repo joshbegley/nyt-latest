@@ -1,3 +1,7 @@
+**Suspect Is Said to Have Tampered With Stove Before Deadly Bronx Fire**\
+`A gas leak from the stove started a fire that engulfed apartments on the top floors. The man was arrested on Wednesday.`\
+https://nytimes.com/2026/01/29/nyregion/deadly-bronx-fire-stove.html
+
 **Democrats Visit 5-Year-Old Liam Conejo Ramos, Detained by ICE**\
 `Democratic lawmakers called Wednesday for the immediate release of Liam Conejo Ramos, a 5-year-old detained by federal agents in Minnesota, after visiting him and his father in an immigration holding facility.`\
 https://nytimes.com/video/us/100000010675966/liam-ramos-ice-minneapolis-deportation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/29/us/politics/democrats-dhs-spending.html
 **How to watch Flames vs. Wild: Time, TV, streaming**\
 `Find out how to watch the Calgary Flames play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7007317/2026/01/29/flames-vs-wild-stream-how-to-watch-jan-29/
-
-**How to watch Capitals vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Washington Capitals play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007313/2026/01/29/capitals-vs-red-wings-stream-how-to-watch-jan-29/
 

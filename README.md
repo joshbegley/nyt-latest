@@ -1,3 +1,7 @@
+**Fox releases World Cup schedule, will set record for games on network TV**\
+`All except two knockout round games will be on Fox's main channel`\
+https://nytimes.com/athletic/7007398/2026/01/29/fox-world-cup-broadcast-schedule-record-tv-fs1/
+
 **Suspect Is Said to Have Tampered With Stove Before Deadly Bronx Fire**\
 `A gas leak from the stove started a fire that engulfed apartments on the top floors. The man was arrested on Wednesday.`\
 https://nytimes.com/2026/01/29/nyregion/deadly-bronx-fire-stove.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7007245/2026/01/29/onyeka-okungwu-hawks-teeth-mouth
 **Democrats Block Spending Package as D.H.S. Talks Continue**\
 `With about 36 hours to go before a shutdown deadline, the funding legislation stalled while Democrats sought a deal with President Trump to rein in his immigration crackdown.`\
 https://nytimes.com/2026/01/29/us/politics/democrats-dhs-spending.html
-
-**How to watch Flames vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007317/2026/01/29/flames-vs-wild-stream-how-to-watch-jan-29/
 
