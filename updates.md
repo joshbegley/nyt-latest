@@ -1,3 +1,7 @@
+**Democrats Demand Guardrails as Government Shutdown Looms**\
+`Senate Democrats listed their conditions to allow a funding bill for the Department of Homeland Security to pass. If the bill stalls, the government could shut down at the Friday deadline.`\
+https://nytimes.com/video/us/politics/100000010675396/trump-schumer-deal-shutdown.html
+
 **'We've always had an expectation': Steph Curry talks Warriors' future**\
 `Curry avoided specifics and hypotheticals, but did shed some light on his thoughts as the Warriors approach next week's trade deadline.`\
 https://nytimes.com/athletic/7006204/2026/01/29/steph-curry-warriors-future/

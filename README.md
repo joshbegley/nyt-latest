@@ -1,3 +1,11 @@
+**Late Night Praises Ilhan Omar’s Quick Reflexes**\
+`Stephen Colbert said the Minneapolis congresswoman looked “ready to throw some hands” after a man sprayed a substance at her at a town hall.`\
+https://nytimes.com/2026/01/29/arts/television/late-night-ilhan-omar.html
+
+**Rosenior's statement win in Napoli is vital for him - and Chelsea**\
+`The club's new head coach has made a superb start and sparked hope that this could yet be a memorable campaign`\
+https://nytimes.com/athletic/7005632/2026/01/29/liam-rosenior-chelsea-napoli/
+
 **Democrats Demand Guardrails as Government Shutdown Looms**\
 `Senate Democrats listed their conditions to allow a funding bill for the Department of Homeland Security to pass. If the bill stalls, the government could shut down at the Friday deadline.`\
 https://nytimes.com/video/us/politics/100000010675396/trump-schumer-deal-shutdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/01/29/todays-new-york-times
 **No Child Deserves to Die Like My Daughter**\
 `What was done to my daughter did not break me. It left me with a mother’s responsibility to ensure no child is left unheard.`\
 https://nytimes.com/2026/01/29/opinion/israel-gaza-child-death-hind-rajab.html
-
-**Trump’s Greenland Envoy: We Need ‘Total, Unfettered Access’**\
-`Trump’s special envoy to Greenland argues that the U.S. needs Greenland to defend it, American allies and American security.`\
-https://nytimes.com/2026/01/29/opinion/trump-greenland-arctic-framework-deal.html
-
-**How Lammens is making Manchester United better**\
-`United's goalkeeper has brought composure and technical excellence to one of the most scrutinised positions in English football`\
-https://nytimes.com/athletic/7003810/2026/01/29/senne-lammens-manchester-united-analysis/
 
