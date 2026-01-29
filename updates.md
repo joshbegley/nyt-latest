@@ -1,3 +1,11 @@
+**Astros roster projection 1.0: The infield surplus edition**\
+`Should the Astros maintain the status quo throughout their six-week stay in West Palm Beach, this is how things shake out. `\
+https://nytimes.com/athletic/7005457/2026/01/29/astros-roster-projection-2026-infield-surplus/
+
+**What the Bears' continuity on the offensive line means for Caleb Williams in 2026**\
+`Thanks to big splurges last March that worked out, the Bears feel good about their offensive line and bring everyone back for 2026.`\
+https://nytimes.com/athletic/7005149/2026/01/29/bears-offensive-line-continuity-caleb-williams/
+
 **The Pulse: NFL players dish**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7004735/2026/01/29/nfl-player-poll-the-pulse/
