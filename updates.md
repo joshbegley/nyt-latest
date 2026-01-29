@@ -1,4 +1,8 @@
 **Driver Rams Car Into Headquarters of Chabad Hasidic Movement**\
+`No one was injured when the motorist drove into a door at the side entrance of the building on Eastern Parkway, Brooklyn. The man, who was taken into custody, appeared agitated.`\
+https://nytimes.com/2026/01/28/nyregion/chabad-crash-eastern-parkway.html
+
+**Driver Rams Car Into Headquarters of Chabad Hasidic Movement**\
 `No one was injured when the motorist drove into a door at the side entrance to the building on Eastern Parkway, Brooklyn. The man, who was taken into custody, appeared agitated.`\
 https://nytimes.com/2026/01/28/nyregion/chabad-crash-eastern-parkway.html
 
