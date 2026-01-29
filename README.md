@@ -1,3 +1,7 @@
+**China bans 73 people and sanctions 13 clubs in soccer corruption investigation**\
+`In total, a cumulative total of 72 league points have been docked from 13 clubs across the two divisions of Chinese football.`\
+https://nytimes.com/athletic/7006573/2026/01/29/china-football-ban-clubs-punished/
+
 **U.S. Trade Deficit Bounces Back as Tariffs Cause Volatility**\
 `The monthly trade deficit and imports rebounded in November after shrinking significantly in prior months, new data show.`\
 https://nytimes.com/2026/01/29/business/us-trade-deficit-bounces-back-as-tariffs-cause-volatility.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7001970/2026/01/29/sec-college-football-fans-survey
 **Chargers 2026 Offseason Handbook: Cap space, draft, free agency, roster needs**\
 `The Chargers are estimated to have about $62 million in effective salary cap space to utilize this offseason.`\
 https://nytimes.com/athletic/7004930/2026/01/29/chargers-2026-offseason-handbook/
-
-**From parenthood to campaigning, Sydney McLaughlin-Levrone's more personal 2026**\
-`Sydney McLaughlin-Levrone talks with her father, Willie, about a health campaign they have launched`\
-https://nytimes.com/athletic/7003802/2026/01/29/sydney-mclaughlin-levrone-interview/
 
