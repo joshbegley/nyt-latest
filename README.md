@@ -1,3 +1,7 @@
+**Luka Dončić injures leg after awkward step off Cavs' elevated court**\
+`Dončić fell backward off the court after shooting a fading 3-point shot in front of the Lakers bench.`\
+https://nytimes.com/athletic/7005642/2026/01/28/luka-doncic-injury-lakers-cavaliers-nba/
+
 **America at a Boiling Point: Deaths, Threats, Protests and a Town Hall Attack**\
 `An attack at a town hall in Minneapolis, amid a surge in threats against lawmakers, was the latest sign of the fraying of the nation’s political fabric.`\
 https://nytimes.com/2026/01/28/us/politics/trump-ice-protests-omar-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/nyregion/congestion-pricing-lawsuit.html
 **Is K-pop’s Cute Era Over?**\
 `Our critic Jon Caramanica on how Illit’s new sonic direction reflects this current moment in K-pop.`\
 https://nytimes.com/video/podcasts/100000010671339/is-k-pops-cute-era-over.html
-
-**Why are the Yankees running it back? 'We think we're really good'**\
-`The offense should continue to be lethal. The pitching staff is where the questions about the feasibility of running it back begin.`\
-https://nytimes.com/athletic/7004962/2026/01/28/yankees-run-it-back-2026-season/
 

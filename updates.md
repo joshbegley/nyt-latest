@@ -1,3 +1,11 @@
+**America at a Boiling Point: Deaths, Threats, Protests and a Town Hall Attack**\
+`An attack at a town hall in Minneapolis, amid a surge in threats against lawmakers, was the latest sign of the fraying of the nation’s political fabric.`\
+https://nytimes.com/2026/01/28/us/politics/trump-ice-protests-omar-attack.html
+
+**Broncos QB Nix expects 'absolutely no issues' in recovery from ankle injury**\
+`Nix said he felt "helpless" watching from above as the Broncos suffered a 10-7 loss in the AFC Championship Game without him.`\
+https://nytimes.com/athletic/7005065/2026/01/28/bo-nix-injury-update-broncos-qb-nfl/
+
 **Bo Nix expects 'absolutely no issues' in recovery from ankle injury**\
 `Nix said he felt "helpless" watching from above as the Broncos suffered a 10-7 loss in the AFC Championship Game without him`\
 https://nytimes.com/athletic/7005065/2026/01/28/bo-nix-injury-update-broncos-qb-nfl/
