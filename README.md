@@ -1,3 +1,27 @@
+**Democrats Visit 5-Year-Old Liam Conejo Ramos, Detained by ICE**\
+`Democratic lawmakers called Wednesday for the immediate release of Liam Conejo Ramos, a 5-year-old detained by federal agents in Minnesota, after visiting him and his father in an immigration holding facility.`\
+https://nytimes.com/video/us/100000010675966/liam-ramos-ice-minneapolis-deportation.html
+
+**Super Bowl betting guide: Odds, spreads, prop bets, games and more**\
+`Your cheat sheet for Super Bowl 2026 betting, from picks and predictions to player props, bets and novelty wagers. `\
+https://nytimes.com/athletic/7000063/2026/01/29/super-bowl-betting-guide-odds-total-spread-moneyline/
+
+**Soup Is in the Forecast**\
+`With snow on the horizon and illness in the air, creamy tomato hummus soup, hearty vegetable tofu soup and coconut-ginger soup will help keep you well and warm.`\
+https://nytimes.com/2026/01/29/dining/soup-is-in-the-forecast.html
+
+**Clark Art Institute Announces Its Next Director**\
+`The current deputy director and chief curator, Esther Bell, will become director in July.`\
+https://nytimes.com/2026/01/29/arts/design/clark-museum-new-director.html
+
+**Loewe’s Iconic Amazona Bag Gets a Refresh**\
+`As part of their debut at the Spanish brand, Jack McCollough and Lazaro Hernandez gave the 1975 style a slouchy, easygoing feel.`\
+https://nytimes.com/2026/01/29/t-magazine/loewe-amazona-180-bag.html
+
+**The Immigration Battle Comes, Loudly, to Budget Hotels**\
+`“No sleep” protests have used noise and other tactics to target ICE agents at hotels, leaving the owners, often immigrants themselves, caught in the middle.`\
+https://nytimes.com/2026/01/29/travel/hotels-anti-ice-protests.html
+
 **Hawks' Okongwu shows battered teeth after hit from Celtics' Brown**\
 `Jaylen Brown was apologetic after the game, though he did receive a flagrant foul for the wayward elbow.`\
 https://nytimes.com/athletic/7007245/2026/01/29/onyeka-okungwu-hawks-teeth-mouth-celtics/
@@ -13,24 +37,4 @@ https://nytimes.com/athletic/7007317/2026/01/29/flames-vs-wild-stream-how-to-wat
 **How to watch Capitals vs. Red Wings: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Detroit Red Wings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7007313/2026/01/29/capitals-vs-red-wings-stream-how-to-watch-jan-29/
-
-**How to watch Panthers vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007305/2026/01/29/panthers-vs-blues-stream-how-to-watch-jan-29/
-
-**T's Feb. 22 Women's Fashion Issue**\
-``\
-https://nytimes.com/issue/t-magazine/2026/01/29/ts-feb-22-womens-fashion-issue-2026
-
-**Review: Without Its Star, Noche Flamenca Still Shines**\
-`“Irrationalities,” at the Joyce Theater, disappoints only if you are expecting Soledad Barrio, the company’s world-class dancer, who is out with an injury.`\
-https://nytimes.com/2026/01/29/arts/dance/review-noche-flamenca-irrationalities.html
-
-**Man Accused of Squirting Ilhan Omar With Vinegar Is Charged With Assault**\
-`Ms. Omar was sprayed with liquid from a syringe as she spoke at a town hall and called for the resignation of Kristi Noem, who leads the Homeland Security Department.`\
-https://nytimes.com/2026/01/29/us/man-accused-of-squirting-ilhan-omar-with-vinegar-is-charged-with-assault.html
-
-**USWNT star Crystal Dunn announces retirement from soccer aged 33**\
-`In a post on Instagram on Monday, Dunn said she was “at peace and deeply fulfilled with all that I have accomplished".`\
-https://nytimes.com/athletic/7007210/2026/01/29/crystal-dunn-retires-uswnt/
 
