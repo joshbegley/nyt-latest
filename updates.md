@@ -1,3 +1,7 @@
+**Leeds forward Nmecha out of Arsenal's visit with hamstring problem**\
+`Manager Daniel Farke revealed the Germany international reported discomfort during Monday’s warm-up at Everton.`\
+https://nytimes.com/athletic/7007029/2026/01/29/lukas-nmecha-injury-leeds-arsenal-team-news/
+
 **Parents Navigate a Fracturing Vaccine Landscape**\
 `Rattled by the C.D.C.’s actions and the spread of measles, some parents are scrambling to figure out how to best protect their children.`\
 https://nytimes.com/2026/01/29/well/parents-vaccines.html
