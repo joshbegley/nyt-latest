@@ -1,3 +1,7 @@
+**What I’m hearing about the Pelicans ahead of the NBA trade deadline**\
+`With the NBA trade deadline officially a week away, the Pelicans are one of the teams at the forefront of rumors around the league.`\
+https://nytimes.com/athletic/7006374/2026/01/29/pelicans-nba-trade-deadline-zion-dejounte-murray/
+
 **Elena Rybakina fends off Jessica Pegula comeback for Australian Open final with Aryna Sabalenka**\
 `The No. 5 seed reached her first major final since 2023 with an at-first devastatingly languid performance which grew tense toward the end.`\
 https://nytimes.com/athletic/7006303/2026/01/29/australian-open-semifinals-pegula-rybakina-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7000081/2026/01/29/john-wall-qa-wizards-amazon-prim
 **New USA Hockey policy restricts transgender player access to certain programs**\
 `USA Hockey has approved a new policy that will prohibit transgender athletes from participating in hockey programs that are classified by sex, including adult recreational “beer” leagues.`\
 https://nytimes.com/athletic/7005630/2026/01/29/usa-hockey-transgender-policy/
-
-**College football transfer portal winners, losers: Miami, IU reload; Bama, Duke take big hits**\
-`Everyone is looking for the quick fix in college football. Which teams were successful and which teams will take a step back?`\
-https://nytimes.com/athletic/7004556/2026/01/29/college-football-transfer-portal-winners-losers-2/
 

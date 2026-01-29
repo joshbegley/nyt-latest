@@ -1,3 +1,7 @@
+**What I’m hearing about the Pelicans ahead of the NBA trade deadline**\
+`With the NBA trade deadline officially a week away, the Pelicans are one of the teams at the forefront of rumors around the league.`\
+https://nytimes.com/athletic/7006374/2026/01/29/pelicans-nba-trade-deadline-zion-dejounte-murray/
+
 **Elena Rybakina fends off Jessica Pegula comeback for Australian Open final with Aryna Sabalenka**\
 `The No. 5 seed reached her first major final since 2023 with an at-first devastatingly languid performance which grew tense toward the end.`\
 https://nytimes.com/athletic/7006303/2026/01/29/australian-open-semifinals-pegula-rybakina-result-analysis/
