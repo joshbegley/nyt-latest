@@ -1,3 +1,11 @@
+**What I'm seeing from the Canucks a week out from the Olympic roster freeze**\
+`It feels merciful for the Canucks that only four games remain before the NHL's Olympic break.`\
+https://nytimes.com/athletic/7006183/2026/01/29/vancouver-canucks-demko-boeser-roster-freeze/
+
+**Man With Pizza Cutter Is Said to Have Tried to Break Mangione Out of Jail**\
+`Federal prosecutors said the man was arrested after he impersonated an F.B.I. agent on Wednesday in a visit to the federal jail complex in Brooklyn that houses Luigi Mangione.`\
+https://nytimes.com/2026/01/29/nyregion/luigi-mangione-break-out-blade.html
+
 **Mavs vs. Bucks, more NBA games rescheduled due to recent winter storm**\
 `The changes come after a massive winter storm swept across the U.S. and Canada last weekend, disrupting the NBA schedule.`\
 https://nytimes.com/athletic/7007698/2026/01/29/nba-games-rescheduled-storm-bucks-grizzlies/

@@ -1,3 +1,7 @@
+**What I'm seeing from the Canucks a week out from the Olympic roster freeze**\
+`It feels merciful for the Canucks that only four games remain before the NHL's Olympic break.`\
+https://nytimes.com/athletic/7006183/2026/01/29/vancouver-canucks-demko-boeser-roster-freeze/
+
 **Mavs vs. Bucks, more NBA games rescheduled due to recent winter storm**\
 `The changes come after a massive winter storm swept across the U.S. and Canada last weekend, disrupting the NBA schedule.`\
 https://nytimes.com/athletic/7007698/2026/01/29/nba-games-rescheduled-storm-bucks-grizzlies/
@@ -14,7 +18,7 @@ https://nytimes.com/2026/01/29/learning/whats-going-on-in-this-picture-feb-2-202
 `Montgomery had a huge season at Division III John Carroll, but he's likely a new name for fans turning their attention to the NFL Draft.`\
 https://nytimes.com/athletic/7007348/2026/01/29/senior-bowl-tyren-montgomery-2026-nfl-draft/
 
-**Man With Steel Blade Is Said to Have Tried to Break Mangione Out of Jail**\
+**Man With Pizza Cutter Is Said to Have Tried to Break Mangione Out of Jail**\
 `Federal prosecutors said the man was arrested after he impersonated an F.B.I. agent on Wednesday in a visit to the federal jail complex in Brooklyn that houses Luigi Mangione.`\
 https://nytimes.com/2026/01/29/nyregion/luigi-mangione-break-out-blade.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/29/us/politics/an-ethicist-in-the-scalia-mold-the-mi
 **6 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2026/01/29/books/review/new-recommended-books.html
-
-**Appeals Court Rules in Favor of Protections for Venezuelans**\
-`The Trump administration has sought to end Temporary Protected Status for more than a million people from troubled nations. About 600,000 are from Venezuela.`\
-https://nytimes.com/2026/01/29/us/tps-protections-venezuelan-immigrants-trump.html
 
