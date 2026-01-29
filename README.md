@@ -1,3 +1,7 @@
+**Fears and Dort fined for roles in altercation at end of Pelicans vs. Thunder**\
+`Fears remained so heated after the game that Pelicans security had to restrain him from escalating the conflict further.`\
+https://nytimes.com/athletic/7007560/2026/01/29/pelicans-thunder-jeremiah-fears-luguentz-dort-fine/
+
 **Groups Back Larson Challenger, Calling for Generational Change**\
 `Three outside political groups are backing Luke Bronin in his primary challenge to Representative John Larson, the 77-year-old Connecticut Democrat.`\
 https://nytimes.com/2026/01/29/us/politics/john-larson-luke-bronin-primary-challenge.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/29/us/politics/donald-trump-cabinet-meeting-asleep.h
 **Moscow Airport Sells for Half Off, a Sign of Russia’s Global Isolation**\
 `The government opened the sale to cut-rate bidding for Domodedovo Airport after it received no offers at its initial asking price of $1.7 billion.`\
 https://nytimes.com/2026/01/29/world/europe/moscow-domodedovo-airport-sale.html
-
-**John L. Allen Jr., Journalist With Inside Access to the Vatican, Dies at 61**\
-`He seemed to know everyone at the Holy See, and it showed in his reporting for the National Catholic Reporter and his website, Crux, though some said he grew too close to his sources.`\
-https://nytimes.com/2026/01/29/business/media/john-l-allen-jr-dead.html
 
