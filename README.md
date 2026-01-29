@@ -1,3 +1,7 @@
+**White House Border Czar Asks Minnesota for More Access to Jails**\
+`The White House border czar Tom Homan said there are plans for a “drawdown” of immigration enforcement’s operation in Minnesota if his agents get access to jails in the state.`\
+https://nytimes.com/video/us/politics/100000010676355/homan-trump-ice-minneapolis-immigration.html
+
 **Fears and Dort fined for roles in altercation at end of Pelicans vs. Thunder**\
 `Fears remained so heated after the game that Pelicans security had to restrain him from escalating the conflict further.`\
 https://nytimes.com/athletic/7007560/2026/01/29/pelicans-thunder-jeremiah-fears-luguentz-dort-fine/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/29/climate/polar-bears-svalbard.html
 **Trump Says He Only Appeared to Nod Off in Last Cabinet Meeting Because It Was ‘Boring’**\
 `Mr. Trump’s allies have strenuously insisted that he was alert and attentive at the meeting last month. The president said he had only closed his eyes.`\
 https://nytimes.com/2026/01/29/us/politics/donald-trump-cabinet-meeting-asleep.html
-
-**Moscow Airport Sells for Half Off, a Sign of Russia’s Global Isolation**\
-`The government opened the sale to cut-rate bidding for Domodedovo Airport after it received no offers at its initial asking price of $1.7 billion.`\
-https://nytimes.com/2026/01/29/world/europe/moscow-domodedovo-airport-sale.html
 
