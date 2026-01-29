@@ -1,3 +1,19 @@
+**What Happens When TV’s Favorite Weed Dealer Tries to Quit?**\
+`The “High Maintenance” co-creator and star Ben Sinclair delves into his complicated relationship with marijuana in a new Substack called “Low Maintenance.”`\
+https://nytimes.com/2026/01/29/style/ben-sinclaire-marijuana-low-maintenance-substack.html
+
+**MAGA Tab in LA-LA Land! The California Post Launches**\
+`The expansion of the Murdoch tabloid from its New York roots to the West Coast is the latest sign of the outlet’s national ambitions.`\
+https://nytimes.com/2026/01/29/business/media/california-post-new-york-post-fox-rupert-murdoch.html
+
+**Pochettino backs USMNT players seeking January moves as World Cup looms**\
+`Alex Freeman has completed a big January move, while Ricardo Pepi could also make a switch before the transfer deadline`\
+https://nytimes.com/athletic/7008164/2026/01/29/pochettino-usmnt-world-cup-freeman-pepi/
+
+**Apple Reports Record iPhone Sales Amid Holiday Bump**\
+`New phone designs, coupled with robust holiday spending, continued to lift iPhone sales in the quarter and drove the company to record profits.`\
+https://nytimes.com/2026/01/29/technology/apple-iphone-sales-quarterly-report.html
+
 **Pochettino backs USMNT players seeking January moves as World Cup looms**\
 `Alex Freeman has completed a big January move, while Ricardo Pepi also looks set for a switch`\
 https://nytimes.com/athletic/7008164/2026/01/29/pochettino-usmnt-world-cup-freeman-pepi/
