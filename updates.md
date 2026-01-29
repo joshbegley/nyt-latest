@@ -1,3 +1,15 @@
+**Minnesota State Senate Fields Testimony on ICE Violence in Twin Cities**\
+`In an hourslong hearing, lawmakers heard stories of the use of racial profiling and aggressive tactics against state residents.`\
+https://nytimes.com/2026/01/29/us/minnesota-senate-ice-hearing.html
+
+**What we learned from Joe Brady's introductory news conference as Bills head coach**\
+`There are still some questions that were left unanswered after the news conference. `\
+https://nytimes.com/athletic/7008145/2026/01/29/bills-joe-brady-news-conference-takeaways/
+
+**What to Know About Anti-ICE Protests This Weekend**\
+`Organizers are trying to build on the momentum of a strike last week that brought thousands into the streets in Minneapolis.`\
+https://nytimes.com/2026/01/29/us/weekend-ice-protests-strike-shutdown.html
+
 **Ex-Google Engineer Convicted of Stealing A.I. Secrets for Start-up in China**\
 `A federal jury found that Linwei Ding stole thousands of confidential files to help him start a company in Beijing.`\
 https://nytimes.com/2026/01/29/business/ai-secrets-stolen-google-china.html

@@ -1,3 +1,7 @@
+**Brad Treliving defends the Maple Leafs' approach to sports science**\
+`The GM responded to criticism over the vacant director of performance role, saying the Leafs have more staff working hands-on with players.`\
+https://nytimes.com/athletic/7007804/2026/01/29/brad-treliving-maple-leafs-sports-science/
+
 **Minnesota State Senate Fields Testimony on ICE Violence in Twin Cities**\
 `In an hourslong hearing, lawmakers heard stories of the use of racial profiling and aggressive tactics against state residents.`\
 https://nytimes.com/2026/01/29/us/minnesota-senate-ice-hearing.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/7008145/2026/01/29/bills-joe-brady-news-conference-
 `Organizers are trying to build on the momentum of a strike last week that brought thousands into the streets in Minneapolis.`\
 https://nytimes.com/2026/01/29/us/weekend-ice-protests-strike-shutdown.html
 
-**Ex-Google Engineer Convicted of Stealing A.I. Secrets for Start-up in China**\
+**Ex-Google Engineer Convicted of Stealing A.I. Secrets for Start-Up in China**\
 `A federal jury found that Linwei Ding stole thousands of confidential files to help him start a company in Beijing.`\
 https://nytimes.com/2026/01/29/business/ai-secrets-stolen-google-china.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/article/how-to-make-friends-as-an-adult.html
 **Dodgers' Miguel Rojas won't represent Venezuela in WBC due to insurance issues: Source**\
 `Jose Altuve and Carlos Correa of the Houston Astros also won't participate in the WBC due to insurance concerns.`\
 https://nytimes.com/athletic/7008310/2026/01/29/dodgers-miguel-rojas-wont-represent-venezuela-in-wbc-due-to-insurance-issues-source/
-
-**The Polls Are Clear. Americans Don’t Want This.**\
-`There is rising anxiety among Americans that the presence of an armed federal force in cities is actively making life less safe for people who live there.`\
-https://nytimes.com/2026/01/29/opinion/minneapolis-immigration-ice-safety-trump.html
 

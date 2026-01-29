@@ -1,3 +1,15 @@
+**Minnesota State Senate Fields Testimony on ICE Violence in Twin Cities**\
+`In an hourslong hearing, lawmakers heard stories of the use of racial profiling and aggressive tactics against state residents.`\
+https://nytimes.com/2026/01/29/us/minnesota-senate-ice-hearing.html
+
+**What we learned from Joe Brady's introductory news conference as Bills head coach**\
+`There are still some questions that were left unanswered after the news conference. `\
+https://nytimes.com/athletic/7008145/2026/01/29/bills-joe-brady-news-conference-takeaways/
+
+**What to Know About Anti-ICE Protests This Weekend**\
+`Organizers are trying to build on the momentum of a strike last week that brought thousands into the streets in Minneapolis.`\
+https://nytimes.com/2026/01/29/us/weekend-ice-protests-strike-shutdown.html
+
 **Ex-Google Engineer Convicted of Stealing A.I. Secrets for Start-up in China**\
 `A federal jury found that Linwei Ding stole thousands of confidential files to help him start a company in Beijing.`\
 https://nytimes.com/2026/01/29/business/ai-secrets-stolen-google-china.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7008310/2026/01/29/dodgers-miguel-rojas-wont-repres
 **The Polls Are Clear. Americans Don’t Want This.**\
 `There is rising anxiety among Americans that the presence of an armed federal force in cities is actively making life less safe for people who live there.`\
 https://nytimes.com/2026/01/29/opinion/minneapolis-immigration-ice-safety-trump.html
-
-**Trump Says Putin Agreed to a Weeklong Pause in Attacks Amid Extreme Cold**\
-`Russia has left thousands of apartment buildings in Kyiv without heat in recent weeks, in a campaign that has appeared aimed at breaking Ukraine’s morale.`\
-https://nytimes.com/2026/01/29/us/politics/trump-putin-ceasefire-cold.html
-
-**Eagles are hiring Sean Mannion as offensive coordinator**\
-`A former quarterback, Mannion, 33, is just four years removed from his playing career.`\
-https://nytimes.com/athletic/7008334/2026/01/29/sean-mannion-eagles-oc-offensive-coordinator-news/
-
-**Trump to Attend Screening of ‘Melania,’ a Film Heavily Promoted by Amazon**\
-`Amazon paid Melania Trump’s production company $40 million for the movie and then paid another $35 million to promote it.`\
-https://nytimes.com/2026/01/29/arts/melania-movie-trump-kennedy-center.html
 
