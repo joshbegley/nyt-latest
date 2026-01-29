@@ -1,3 +1,7 @@
+**Serena Williams refuses to rule out tennis comeback two months after firm denial**\
+`The 23-time Grand Slam champion has softened her position on the prospect since last December when it was mooted.`\
+https://nytimes.com/athletic/7006131/2026/01/29/serena-williams-tennis-comeback-today-show/
+
 **The New York Times in Print for Thursday, Jan. 29, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/29/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7005461/2026/01/29/why-tactical-variety-remains-the
 **Which Manchester United assets are looking essential in Fantasy Premier League?**\
 `United assets among the most transferred-in players for the second successive gameweek, with midfield options among the most popular`\
 https://nytimes.com/athletic/7003690/2026/01/29/manchester-united-fantasy-premier-league-fpl-tips/
-
-**The Alternative Premier League Table: No 24 – Points won from behind and lost from ahead**\
-`This week's table looks at the Premier League's comeback kings, and the sides who struggle to hold on to a lead`\
-https://nytimes.com/athletic/7004091/2026/01/29/alternative-premier-league-table-points-won-lost-ahead-behind/
 
