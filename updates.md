@@ -1,3 +1,19 @@
+**Dodgers' Miguel Rojas won't represent Venezuela in WBC due to insurance issues: Source**\
+`Jose Altuve and Carlos Correa of the Houston Astros also won't participate in the WBC due to insurance concerns.`\
+https://nytimes.com/athletic/7008310/2026/01/29/dodgers-miguel-rojas-wont-represent-venezuela-in-wbc-due-to-insurance-issues-source/
+
+**The Polls Are Clear. Americans Don’t Want This.**\
+`There is rising anxiety among Americans that the presence of an armed federal force in cities is actively making life less safe for people who live there.`\
+https://nytimes.com/2026/01/29/opinion/minneapolis-immigration-ice-safety-trump.html
+
+**Trump Says Putin Agreed to a Weeklong Pause in Attacks Amid Extreme Cold**\
+`Russia has left thousands of apartment buildings in Kyiv without heat in recent weeks, in a campaign that has appeared aimed at breaking Ukraine’s morale.`\
+https://nytimes.com/2026/01/29/us/politics/trump-putin-ceasefire-cold.html
+
+**Eagles are hiring Sean Mannion as offensive coordinator**\
+`A former quarterback, Mannion, 33, is just four years removed from his playing career.`\
+https://nytimes.com/athletic/7008334/2026/01/29/sean-mannion-eagles-oc-offensive-coordinator-news/
+
 **Trump to Attend Screening of ‘Melania,’ a Film Heavily Promoted by Amazon**\
 `Amazon paid Melania Trump’s production company $40 million for the movie and then paid another $35 million to promote it.`\
 https://nytimes.com/2026/01/29/arts/melania-movie-trump-kennedy-center.html
