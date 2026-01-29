@@ -1,3 +1,7 @@
+**Chargers agree to terms with Chris O'Leary as defensive coordinator**\
+`O'Leary was the Chargers safeties coach in 2024 and spent last season as the defensive coordinator at Western Michigan.`\
+https://nytimes.com/athletic/7006093/2026/01/29/chargers-hire-chris-oleary-defensive-coordinator/
+
 **Nine Championship clubs have changed their manager this season - what happened next?**\
 `There has been a high turnover of managers in the second tier this season, but does making a change mean an upturn in results?`\
 https://nytimes.com/athletic/7003720/2026/01/29/what-happens-after-clubs-change-championship-managers/

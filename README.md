@@ -1,3 +1,11 @@
+**How Lammens is making Manchester United better**\
+`United's goalkeeper has brought composure and technical excellence to one of the most scrutinised positions in English football`\
+https://nytimes.com/athletic/7003810/2026/01/29/senne-lammens-manchester-united-analysis/
+
+**How Everton can cure their Hill Dickinson homesickness**\
+`Tactical tweaks may be needed if Everton are to unlock the potential of their gleaming new home`\
+https://nytimes.com/athletic/7003943/2026/01/29/everton-hill-dickinson-form-tactics/
+
 **Chargers agree to terms with Chris O'Leary as defensive coordinator**\
 `O'Leary was the Chargers safeties coach in 2024 and spent last season as the defensive coordinator at Western Michigan.`\
 https://nytimes.com/athletic/7006093/2026/01/29/chargers-hire-chris-oleary-defensive-coordinator/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/29/pageoneplus/quote-of-the-day-all-night-concerts-b
 **Connections: Sports Edition Coach: Hints for Jan. 29, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7005944/2026/01/29/connections-sports-edition-hints-for-jan-29-2026/
-
-**How to watch Australian Open 2026 women's semifinals**\
-`After an eventful start, four top-12 seeds remain in the women's bracket as the 2026 Australian Open reaches its final stages.`\
-https://nytimes.com/athletic/7005215/2026/01/29/australian-open-womens-semifinals-odds-how-to-watch-2026/
-
-**At World’s Busiest Port, China’s Unbalanced Economy Comes Into View**\
-`The shipping traffic and factories never stop in China’s port city of Ningbo, but the local housing market has crashed and nearby restaurants sit empty.`\
-https://nytimes.com/2026/01/29/business/china-economy-duality.html
 
