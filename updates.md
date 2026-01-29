@@ -1,3 +1,7 @@
+**The Bounce: Is a Giannis trade imminent? Plus, Chet vs. Wemby for DPOY?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7006800/2026/01/29/giannis-antetokounmpo-trade-rumors-wembanyama-the-bounce/
+
 **Can Department Stores Ever Be Fun Again?**\
 `Saks Fifth Avenue’s bankruptcy filing has revived debates about how these once celebrated shopping emporiums can regain their luster.`\
 https://nytimes.com/2026/01/29/style/saks-bankruptcy-department-store-shopping.html

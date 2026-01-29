@@ -1,3 +1,11 @@
+**The Bucks without Giannis? Potential packages with the NBA trade deadline near**\
+`The Athletic attempted to put together the most competitive trade packages possible from teams as the NBA trade deadline nears.`\
+https://nytimes.com/athletic/7005877/2026/01/29/giannis-antetokounmpo-bucks-nba-trade-deadline-packages/
+
+**Graphic Novels Wouldn’t Be the Same Without Him. Who Will Keep His Work Alive?**\
+`The intellectual property of Will Eisner, who gives his name to the most prestigious award in American comics, is up for sale.`\
+https://nytimes.com/2026/01/29/books/will-eisner-spirit-sale.html
+
 **The Bounce: Is a Giannis trade imminent? Plus, Chet vs. Wemby for DPOY?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7006800/2026/01/29/giannis-antetokounmpo-trade-rumors-wembanyama-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7005405/2026/01/29/fantasy-trends-hidden-gems-will-
 **Starmer and Xi Meet to Reset Ties Between Britain and China**\
 `Prime Minister Keir Starmer of Britain and President Xi Jinping of China met in Beijing on Thursday in a bid to reset ties as both countries seek a way around an increasingly volatile United States.`\
 https://nytimes.com/video/world/asia/100000010675857/china-uk-starmer-xi.html
-
-**A Democratic Critic of Newsom Will Run to Succeed Him**\
-`Matt Mahan, a moderate Democrat who serves as mayor of San Jose, Calif., is entering the crowded race for California governor.`\
-https://nytimes.com/2026/01/29/us/elections/matt-mahan-governor-california.html
-
-**China bans 73 people and sanctions 13 clubs in soccer corruption investigation**\
-`In total, a cumulative total of 72 league points have been docked from 13 clubs across the two divisions of Chinese football.`\
-https://nytimes.com/athletic/7006573/2026/01/29/china-football-ban-clubs-punished/
 
