@@ -1,3 +1,15 @@
+**John L. Allen Jr., Journalist With Inside Access to the Vatican, Dies at 61**\
+`He seemed to know everyone at the Holy See, and it showed in his reporting for the National Catholic Reporter and his website, Crux, though some said he grew too close to his sources.`\
+https://nytimes.com/2026/01/29/business/media/john-l-allen-jr-dead.html
+
+**Costco Is Sued Over Preservatives in Its $5 Rotisserie Chickens**\
+`A proposed class-action lawsuit claims Costco was misleading customers and engaging in false advertising when it described the chicken as having no preservatives.`\
+https://nytimes.com/2026/01/29/business/costco-chicken-lawsuit-preservatives.html
+
+**The Mushroom Gummies That Claim to Stimulate Your Brain**\
+`Fungal supplements are everywhere, promising happiness, energy, focus, you name it. But what they deliver is something else entirely.`\
+https://nytimes.com/2026/01/29/magazine/wonder-day-mushroom-gummies.html
+
 **Philip Glass’s Protest at the Kennedy Center**\
 `Readers discuss Philip Glass’s refusal to allow the performance of his symphony at the Kennedy Center. Also: Real leaders at a time of crisis.`\
 https://nytimes.com/2026/01/29/opinion/philip-glass-protest-kennedy-center.html
