@@ -1,3 +1,7 @@
+**Dante de Blasio Was Among Those Arrested at Hilton Protest Against ICE**\
+`“I thought it was the right thing to do,” former Mayor Bill de Blasio’s son said. He was issued a summons after joining demonstrators in the lobby of the Hilton Garden Inn in TriBeCa.`\
+https://nytimes.com/2026/01/28/nyregion/dante-de-blasio-arrested-ice-protest.html
+
 **Videos Show Alex Pretti in Confrontation With Agents 11 Days Before His Death**\
 `More than a week before federal agents killed Mr. Pretti, a Minneapolis nurse, different agents pushed him to the ground after he spit at them and broke a taillight on their S.U.V.`\
 https://nytimes.com/2026/01/28/us/alex-pretti-kicking-ice-vehicle-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010675020/ice-agents-ecuadorean-consulate.htm
 **Rubio Says Venezuela Will Submit Monthly Budget to White House**\
 `Democrats sharply questioned the plan, including the role of Qatar in managing an account funded by the sale of Venezuelan oil.`\
 https://nytimes.com/2026/01/28/us/politics/rubio-hearing-venezuela.html
-
-**LeBron James sheds tears during tribute video in latest return to Cleveland**\
-`Wednesday marked the 41-year-old James' eighth game in Cleveland as a member of the Lakers.`\
-https://nytimes.com/athletic/7005683/2026/01/28/lebron-james-crying-cavaliers-tribute-video/
 
