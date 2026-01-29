@@ -1,3 +1,19 @@
+**Police File Hate Crime Charges After Chabad Ramming in Brooklyn**\
+`The police arrested the man, Dan Sohail, after a vehicle was rammed into the headquarters of the Hasidic Jewish organization.`\
+https://nytimes.com/2026/01/29/nyregion/chabad-brooklyn-car-ramming.html
+
+**Scoop City: Hall of Fame fallout**\
+`Why one voter declined to pick Belichick, and the rules that led them there`\
+https://nytimes.com/athletic/7007952/2026/01/29/bill-belichick-hall-of-fame-ballot-votes-scoop-city/
+
+**NATO Is Having a Military Exercise. The U.S., Its Largest Member, Won’t Be There.**\
+`The operation, Steadfast Dart, comes as President Trump has been accused of undermining the alliance and will be watched closely to see how well the allies manage without their most important partner.`\
+https://nytimes.com/2026/01/29/world/europe/nato-military-exercise-spain-germany.html
+
+**Doughnuts from Tokyo, Los Angeles and Montreal**\
+`The city’s hottest doughnut shops are transplants, all with a unique take on the breakfast favorite.`\
+https://nytimes.com/2026/01/29/dining/doughnuts-from-tokyo-los-angeles-and-montreal.html
+
 **U.S. coach Pochettino critical of Weah weighing in on WC ticket prices**\
 `The U.S. manager indicated that it's not his or the players' place to answer for FIFA's decisions and that opinions should be kept quiet`\
 https://nytimes.com/athletic/7008022/2026/01/29/mauricio-pochettino-tim-weah-world-cup-ticket-prices-fifa-usmnt/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7008003/2026/01/29/nets-vs-nuggets-stream-how-to-wa
 **How to watch Pistons vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7007993/2026/01/29/pistons-vs-suns-stream-how-to-watch-jan-29/
-
-**How to watch Rockets vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007989/2026/01/29/rockets-vs-hawks-stream-how-to-watch-jan-29/
-
-**How to watch Ducks vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007987/2026/01/29/ducks-vs-canucks-stream-how-to-watch-jan-29/
-
-**How to watch Stars vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007982/2026/01/29/stars-vs-golden-knights-stream-how-to-watch-jan-29/
-
-**José Ramírez, Guardians ownership and building around a franchise superstar**\
-`“I just control what I can control,” Ramírez said when asked if Cleveland's front office has done enough to fix the team's lineup.`\
-https://nytimes.com/athletic/7007377/2026/01/29/jose-ramirez-extension-guardians-ownership/
 
