@@ -1,3 +1,15 @@
+**Dudamel and the Philharmonic Partner With Carnegie Hall on Operas**\
+`Gustavo Dudamel, the New York Philharmonic’s incoming music and artistic director, plans to lead annual operas in concert at Carnegie Hall.`\
+https://nytimes.com/2026/01/29/arts/music/dudamel-ny-phil-carnegie-hall.html
+
+**Harissa Shrimp With Greens and Feta; Brown Butter Cornmeal Cake**\
+`And more warming, generous recipes from Yewande Komolafe.`\
+https://nytimes.com/2026/01/29/dining/harissa-shrimp-with-greens-and-feta-brown-butter-cornmeal-cake.html
+
+**San Jose, Timo Werner set out to revive each other after a surprise signing**\
+`Success has been fleeting for San Jose, and it's been ages since Timo Werner experienced some, too. Now, they're paired with a common goal`\
+https://nytimes.com/athletic/6984584/2026/01/29/timo-werner-san-jose-earthquakes-bruce-arena-mls-leipzig/
+
 **Leeds forward Nmecha out of Arsenal's visit with hamstring problem**\
 `Manager Daniel Farke revealed the Germany international reported discomfort during Monday’s warm-up at Everton.`\
 https://nytimes.com/athletic/7007029/2026/01/29/lukas-nmecha-injury-leeds-arsenal-team-news/
@@ -25,16 +37,4 @@ https://nytimes.com/video/opinion/100000010661318/can-you-actually-fall-in-love-
 **European Union Labels Iran’s Revolutionary Guard a Terrorist Group**\
 `The move, which comes after the killing of protesters, brings the European Union in line with the United States and Canada.`\
 https://nytimes.com/2026/01/29/world/europe/european-union-iran-sanctions-irgc.html
-
-**A.I. Offers Comfort, Not Love**\
-`Is love without risk really love? On “The Opinions,” the psychotherapist Esther Perel argues that what makes relationships with A.I. appealing is exactly what makes them hollow.`\
-https://nytimes.com/video/opinion/100000010661324/ai-offers-comfort-not-love.html
-
-**'This is the biggest thing in our history': In with Kairat's Kazakhstani diaspora against Arsenal**\
-`Arsenal's Champions League game against Kairat was technically a dead rubber — but not for the 2,000 away supporters at the Emirates`\
-https://nytimes.com/athletic/7006788/2026/01/29/arsenal-kairat-kazakhstani-champions-league-fans/
-
-**The Bucks without Giannis? Potential packages with the NBA trade deadline near**\
-`The Athletic attempted to put together the most competitive trade packages possible from teams as the NBA trade deadline nears.`\
-https://nytimes.com/athletic/7005877/2026/01/29/giannis-antetokounmpo-bucks-nba-trade-deadline-packages/
 
