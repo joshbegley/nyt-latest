@@ -1,3 +1,5 @@
+
+
 **What I’m hearing about the Pelicans ahead of the NBA trade deadline**\
 `With the NBA trade deadline officially a week away, the Pelicans are one of the teams at the forefront of rumors around the league.`\
 https://nytimes.com/athletic/7006374/2026/01/29/pelicans-nba-trade-deadline-zion-dejounte-murray/
