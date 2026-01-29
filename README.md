@@ -27,7 +27,7 @@ https://nytimes.com/2026/01/29/us/minnesota-ice-jails-immigration-arrests.html
 https://nytimes.com/2026/01/29/briefing/democrats-reach-a-deal-with-the-white-house.html
 
 **Michael Beck, 65, Dies; First to Report Symptoms of ‘Havana Syndrome’**\
-`As an employee with the N.S.A., he claimed he was exposed to a direct-energy device that led to a diagnosis of Parkinson’s disease at age 45.`\
+`As an employee with the N.S.A., he claimed he was exposed to a direct-energy device that led to a diagnosis of Parkinson’s disease.`\
 https://nytimes.com/2026/01/29/us/michael-beck-dead.html
 
 **How to Make Friends as an Adult**\
