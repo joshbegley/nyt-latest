@@ -1,3 +1,11 @@
+**U.S. Trade Deficit Bounces Back as Tariffs Cause Volatility**\
+`The monthly trade deficit and imports rebounded in November after shrinking significantly in prior months, new data show.`\
+https://nytimes.com/2026/01/29/business/us-trade-deficit-bounces-back-as-tariffs-cause-volatility.html
+
+**The Bucks are ready to talk Giannis trades. So are the Warriors, Knicks and others**\
+`Milwaukee is trying to see what its options are should it decide to trade the two-time MVP.`\
+https://nytimes.com/athletic/7006138/2026/01/29/giannis-antetokounmpo-trade-rumors-bucks-warriors-knicks/
+
 **Newcastle's showed against PSG how their 3-4-3 option is a viable Plan B**\
 `Switching from 4-3-3 to 3-4-3 has become something of an emergency measure, but Howe might consider the 3-4-3 more, given their away issues.`\
 https://nytimes.com/athletic/7006599/2026/01/29/newcastle-psg-defence-champions-league/
