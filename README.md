@@ -1,3 +1,7 @@
+**Emma Raducanu splits with coach Francis Roig after less than six months**\
+`The 23-year-old shared on social media her and Roig's mutual decision to split.`\
+https://nytimes.com/athletic/7007065/2026/01/29/emma-raducanu-coach-split-francis-roig/
+
 **USMNT Tracker: Champions League progress for McKennie and Balogun but late elimination for Weah**\
 `While five USMNT players made it through to the play-off round, there was last-gasp disappointment for Tim Weah and Marseille`\
 https://nytimes.com/athletic/7005467/2026/01/29/usmnt-champions-league/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7007157/2026/01/29/blackhawks-vs-penguins-stream-ho
 **How to watch Flyers vs. Bruins: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Boston Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7007155/2026/01/29/flyers-vs-bruins-stream-how-to-watch-jan-29/
-
-**How to watch Kings vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007152/2026/01/29/kings-vs-76ers-stream-how-to-watch-jan-29/
 

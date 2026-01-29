@@ -1,3 +1,11 @@
+**USMNT Tracker: Champions League progress for McKennie and Balogun but late elimination for Weah**\
+`While five USMNT players made it through to the play-off round, there was last-gasp disappointment for Tim Weah and Marseille`\
+https://nytimes.com/athletic/7005467/2026/01/29/usmnt-champions-league/
+
+**Why a New Mexico Developer Quit Natural Gas**\
+`For John Moscato, a land developer in Las Cruces, N.M., installing gas lines at new home sites was “an ongoing headache.” Ditching gas saved him money.`\
+https://nytimes.com/2026/01/29/climate/why-a-new-mexico-developer-quit-natural-gas.html
+
 **Homan Says ‘Improvements Could and Should Be Made’ in Minneapolis**\
 `The White House border czar said there are plans for a “drawdown” if his agents get access to jails in the state.`\
 https://nytimes.com/2026/01/29/us/homan-minneapolis-ice-press-conference.html
