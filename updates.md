@@ -1,3 +1,7 @@
+**In Beijing, British Prime Minister Sees ‘Huge Opportunities’**\
+`Prime Minister Keir Starmer of Britain met with President Xi Jinping of China as he sought to promote business ties with the world’s second-largest economy.`\
+https://nytimes.com/2026/01/28/world/asia/china-starmer-xi-jinping.html
+
 **Hall of Fame confirms Bill Polian voted to induct Bill Belichick**\
 `A spokesperson for the Hall said Polian did not speak during the discussion around Belichick's candidacy.`\
 https://nytimes.com/athletic/7005498/2026/01/28/bill-polian-bill-belichick-hof-voting/

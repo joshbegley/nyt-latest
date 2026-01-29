@@ -1,3 +1,7 @@
+**In Beijing, British Prime Minister Sees ‘Huge Opportunities’**\
+`Prime Minister Keir Starmer of Britain met with President Xi Jinping of China as he sought to promote business ties with the world’s second-largest economy.`\
+https://nytimes.com/2026/01/28/world/asia/china-starmer-xi-jinping.html
+
 **Columnist explains why he didn't vote for Bill Belichick for Hall of Fame**\
 `One voter went public to say Belichick's snub had nothing to with any controversy involving the six-time Super Bowl champion head coach.`\
 https://nytimes.com/athletic/7005510/2026/01/28/bill-belichick-hall-of-fame-vahe-gregorian/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/us/politics/minnesota-refugees-ice-crackdown.html
 **The Trump administration moves to sell a landmark D.C. building that was once a Trump hotel.**\
 `The Old Post Office, a 19th-century building in the nation’s capital with an iconic clock tower, was once home to the Trump International Hotel.`\
 https://nytimes.com/live/2026/01/28/us/trump-news/the-trump-administration-moves-to-sell-a-landmark-dc-building-that-was-once-a-trump-hotel
-
-**How Trump Is Weaponizing the Global System**\
-`How is Trump exploiting the liberal international system? Henry Farrell, an international relations scholar, explains on “The Ezra Klein Show.”`\
-https://nytimes.com/video/opinion/100000010659480/how-trump-is-weaponizing-the-global-system.html
 
