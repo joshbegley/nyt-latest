@@ -1,3 +1,7 @@
+**John L. Allen Jr., Journalist With Inside Access to the Vatican, Dies at 61**\
+`He seemed to know everyone at the Holy See, and it showed in his reporting for the National Catholic Reporter and his website, Crux, though some said he grew too close to his sources.`\
+https://nytimes.com/2026/01/29/business/media/john-l-allen-jr-dead.html
+
 **Costco Is Sued Over Preservatives in Its $5 Rotisserie Chickens**\
 `A proposed class-action lawsuit claims Costco was misleading customers and engaging in false advertising when it described the chicken as having no preservatives.`\
 https://nytimes.com/2026/01/29/business/costco-chicken-lawsuit-preservatives.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7000063/2026/01/29/super-bowl-betting-guide-odds-to
 **Soup Is in the Forecast**\
 `With snow on the horizon and illness in the air, creamy tomato hummus soup, hearty vegetable tofu soup and coconut-ginger soup will help keep you well and warm.`\
 https://nytimes.com/2026/01/29/dining/soup-is-in-the-forecast.html
-
-**Clark Art Institute Announces Its Next Director**\
-`The current deputy director and chief curator, Esther Bell, will become director in July.`\
-https://nytimes.com/2026/01/29/arts/design/clark-museum-new-director.html
 
