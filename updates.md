@@ -1,3 +1,15 @@
+**The New York Times in Print for Thursday, Jan. 29, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/29/todays-new-york-times
+
+**No Child Deserves to Die Like My Daughter**\
+`What was done to my daughter did not break me. It left me with a mother’s responsibility to ensure no child is left unheard.`\
+https://nytimes.com/2026/01/29/opinion/israel-gaza-child-death-hind-rajab.html
+
+**Trump’s Greenland Envoy: We Need ‘Total, Unfettered Access’**\
+`Trump’s special envoy to Greenland argues that the U.S. needs Greenland to defend it, American allies and American security.`\
+https://nytimes.com/2026/01/29/opinion/trump-greenland-arctic-framework-deal.html
+
 **How Lammens is making Manchester United better**\
 `United's goalkeeper has brought composure and technical excellence to one of the most scrutinised positions in English football`\
 https://nytimes.com/athletic/7003810/2026/01/29/senne-lammens-manchester-united-analysis/

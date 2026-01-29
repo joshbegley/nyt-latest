@@ -1,3 +1,15 @@
+**The New York Times in Print for Thursday, Jan. 29, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/29/todays-new-york-times
+
+**No Child Deserves to Die Like My Daughter**\
+`What was done to my daughter did not break me. It left me with a mother’s responsibility to ensure no child is left unheard.`\
+https://nytimes.com/2026/01/29/opinion/israel-gaza-child-death-hind-rajab.html
+
+**Trump’s Greenland Envoy: We Need ‘Total, Unfettered Access’**\
+`Trump’s special envoy to Greenland argues that the U.S. needs Greenland to defend it, American allies and American security.`\
+https://nytimes.com/2026/01/29/opinion/trump-greenland-arctic-framework-deal.html
+
 **How Lammens is making Manchester United better**\
 `United's goalkeeper has brought composure and technical excellence to one of the most scrutinised positions in English football`\
 https://nytimes.com/athletic/7003810/2026/01/29/senne-lammens-manchester-united-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7003690/2026/01/29/manchester-united-fantasy-premie
 **The Alternative Premier League Table: No 24 – Points won from behind and lost from ahead**\
 `This week's table looks at the Premier League's comeback kings, and the sides who struggle to hold on to a lead`\
 https://nytimes.com/athletic/7004091/2026/01/29/alternative-premier-league-table-points-won-lost-ahead-behind/
-
-**Sunglasses, and Stormy Times, Lift France’s Embattled Leader**\
-`Dismissed as a lame duck, Emmanuel Macron has clawed back some influence after his defense of Greenland and Denmark. Will quieter domestic politics allow him to secure his legacy?`\
-https://nytimes.com/2026/01/29/world/europe/macron-france-trump-sunglasses-boost.html
-
-**Quote of the Day: All-Night Concerts Bring a War-Ravaged Nation Momentary Normalcy**\
-`Quotation of the Day for Thursday, January 29, 2026.`\
-https://nytimes.com/2026/01/29/pageoneplus/quote-of-the-day-all-night-concerts-bring-a-war-ravaged-nation-momentary-normalcy.html
-
-**Connections: Sports Edition Coach: Hints for Jan. 29, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7005944/2026/01/29/connections-sports-edition-hints-for-jan-29-2026/
 
