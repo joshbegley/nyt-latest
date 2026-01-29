@@ -1,3 +1,11 @@
+**A Tokyo Pizzeria of Global Fame Prepares to Take On America**\
+`Pizza Studio Tamaki is readying a pop-up in advance of opening in New York City, and beyond.`\
+https://nytimes.com/2026/01/29/dining/tokyo-pizza-studio-tamaki-nyc-opening.html
+
+**Fantasy basketball hot topics of the week: Giannis injury fallout; Tari Eason rising**\
+`Stan Son reviews injuries, who's on the rise and hot topics around the league through a fantasy lens. `\
+https://nytimes.com/athletic/7007803/2026/01/29/fantasy-basketball-hot-topics-giannis-injury-tari-eason/
+
 **Apple Reports Record iPhone Sales Amid Holiday Bump**\
 `New phone designs, coupled with robust holiday spending, continued to lift iPhone sales in the quarter and boosted revenue.`\
 https://nytimes.com/2026/01/29/technology/apple-iphone-sales-quarterly-report.html

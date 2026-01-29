@@ -1,3 +1,11 @@
+**A Tokyo Pizzeria of Global Fame Prepares to Take On America**\
+`Pizza Studio Tamaki is readying a pop-up in advance of opening in New York City, and beyond.`\
+https://nytimes.com/2026/01/29/dining/tokyo-pizza-studio-tamaki-nyc-opening.html
+
+**Fantasy basketball hot topics of the week: Giannis injury fallout; Tari Eason rising**\
+`Stan Son reviews injuries, who's on the rise and hot topics around the league through a fantasy lens. `\
+https://nytimes.com/athletic/7007803/2026/01/29/fantasy-basketball-hot-topics-giannis-injury-tari-eason/
+
 **Apple Reports Record iPhone Sales Amid Holiday Bump**\
 `New phone designs, coupled with robust holiday spending, continued to lift iPhone sales in the quarter and boosted revenue.`\
 https://nytimes.com/2026/01/29/technology/apple-iphone-sales-quarterly-report.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7007952/2026/01/29/bill-belichick-hall-of-fame-ball
 **NATO Is Having a Military Exercise. The U.S., Its Largest Member, Won’t Be There.**\
 `The operation, Steadfast Dart, comes as President Trump has been accused of undermining the alliance and will be watched closely to see how well the allies manage without their most important partner.`\
 https://nytimes.com/2026/01/29/world/europe/nato-military-exercise-spain-germany.html
-
-**Doughnuts from Tokyo, Los Angeles and Montreal**\
-`The city’s hottest doughnut shops are transplants, all with a unique take on the breakfast favorite.`\
-https://nytimes.com/2026/01/29/dining/doughnuts-from-tokyo-los-angeles-and-montreal.html
-
-**U.S. coach Pochettino critical of Weah weighing in on WC ticket prices**\
-`The U.S. manager indicated that it's not his or the players' place to answer for FIFA's decisions and that opinions should be kept quiet`\
-https://nytimes.com/athletic/7008022/2026/01/29/mauricio-pochettino-tim-weah-world-cup-ticket-prices-fifa-usmnt/
 
