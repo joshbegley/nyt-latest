@@ -1,3 +1,7 @@
+**Hall of Fame confirms Bill Polian did vote to induct Bill Belichick**\
+`A spokesperson for the Hall said Polian did not speak during the discussion around Belichick's candidacy.`\
+https://nytimes.com/athletic/7005498/2026/01/28/bill-polian-bill-belichick-hof-voting/
+
 **Shooting Aftermath Leaves Homeland Security Department in Turmoil**\
 `As officials point fingers in the wake of Alex Pretti’s death at the hands of federal agents, concerns grow about the agency’s future.`\
 https://nytimes.com/2026/01/28/us/politics/shooting-dhs-turmoil.html
