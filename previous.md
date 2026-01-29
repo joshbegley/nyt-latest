@@ -1,3 +1,7 @@
+**Pochettino backs USMNT players seeking January moves as World Cup looms**\
+`Alex Freeman has completed a big January move, while Ricardo Pepi also looks set for a switch`\
+https://nytimes.com/athletic/7008164/2026/01/29/pochettino-usmnt-world-cup-freeman-pepi/
+
 **A Tokyo Pizzeria of Global Fame Prepares to Take On America**\
 `Pizza Studio Tamaki is readying a pop-up in advance of opening in New York City, and beyond.`\
 https://nytimes.com/2026/01/29/dining/tokyo-pizza-studio-tamaki-nyc-opening.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/29/nyregion/chabad-brooklyn-car-ramming.html
 **Scoop City: Hall of Fame fallout**\
 `Why one voter declined to pick Belichick, and the rules that led them there`\
 https://nytimes.com/athletic/7007952/2026/01/29/bill-belichick-hall-of-fame-ballot-votes-scoop-city/
-
-**NATO Is Having a Military Exercise. The U.S., Its Largest Member, Won’t Be There.**\
-`The operation, Steadfast Dart, comes as President Trump has been accused of undermining the alliance and will be watched closely to see how well the allies manage without their most important partner.`\
-https://nytimes.com/2026/01/29/world/europe/nato-military-exercise-spain-germany.html
 

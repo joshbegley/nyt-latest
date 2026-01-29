@@ -1,3 +1,7 @@
+**Pochettino backs USMNT players seeking January moves as World Cup looms**\
+`Alex Freeman has completed a big January move, while Ricardo Pepi also looks set for a switch`\
+https://nytimes.com/athletic/7008164/2026/01/29/pochettino-usmnt-world-cup-freeman-pepi/
+
 **A Tokyo Pizzeria of Global Fame Prepares to Take On America**\
 `Pizza Studio Tamaki is readying a pop-up in advance of opening in New York City, and beyond.`\
 https://nytimes.com/2026/01/29/dining/tokyo-pizza-studio-tamaki-nyc-opening.html

@@ -1,5 +1,9 @@
+**MAGA Tab in LA-LA Land! The California Post Launches**\
+`The expansion of the Murdoch tabloid from its New York roots to the West Coast is the latest sign of the outlet’s national ambitions.`\
+https://nytimes.com/2026/01/29/business/media/california-post-new-york-post-fox-rupert-murdoch.html
+
 **Pochettino backs USMNT players seeking January moves as World Cup looms**\
-`Alex Freeman has completed a big January move, while Ricardo Pepi also looks set for a switch`\
+`Alex Freeman has completed a big January move, while Ricardo Pepi could also make a switch before the transfer deadline`\
 https://nytimes.com/athletic/7008164/2026/01/29/pochettino-usmnt-world-cup-freeman-pepi/
 
 **A Tokyo Pizzeria of Global Fame Prepares to Take On America**\
@@ -11,7 +15,7 @@ https://nytimes.com/2026/01/29/dining/tokyo-pizza-studio-tamaki-nyc-opening.html
 https://nytimes.com/athletic/7007803/2026/01/29/fantasy-basketball-hot-topics-giannis-injury-tari-eason/
 
 **Apple Reports Record iPhone Sales Amid Holiday Bump**\
-`New phone designs, coupled with robust holiday spending, continued to lift iPhone sales in the quarter and boosted revenue.`\
+`New phone designs, coupled with robust holiday spending, continued to lift iPhone sales in the quarter and drove the company to record profits.`\
 https://nytimes.com/2026/01/29/technology/apple-iphone-sales-quarterly-report.html
 
 **Due to weather, NASCAR reschedules Saturday's Clash races to Sunday**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/29/us/new-butt-book-appeal.html
 **Police File Hate Crime Charges After Chabad Ramming in Brooklyn**\
 `The police arrested the man, Dan Sohail, after a vehicle was rammed into the Brooklyn headquarters of the Hasidic Jewish organization. The man’s father said in an interview that his son did not hate Jewish people.`\
 https://nytimes.com/2026/01/29/nyregion/chabad-brooklyn-car-ramming.html
-
-**Scoop City: Hall of Fame fallout**\
-`Why one voter declined to pick Belichick, and the rules that led them there`\
-https://nytimes.com/athletic/7007952/2026/01/29/bill-belichick-hall-of-fame-ballot-votes-scoop-city/
 
