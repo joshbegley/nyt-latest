@@ -1,3 +1,7 @@
+**Welcome back Kai Havertz, Arsenal have missed you**\
+`The German international finally made his first start of the season against Kairat, and rewarded fans' admiration with a superb performance`\
+https://nytimes.com/athletic/7005203/2026/01/29/kai-havertz-arsenal-kairat/
+
 **Late Night Praises Ilhan Omar’s Quick Reflexes**\
 `Stephen Colbert said the Minneapolis congresswoman looked “ready to throw some hands” after a man sprayed a substance at her at a town hall.`\
 https://nytimes.com/2026/01/29/arts/television/late-night-ilhan-omar.html
