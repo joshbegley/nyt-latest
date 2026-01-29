@@ -1,3 +1,7 @@
+**The Man Agents Were Seeking When They Killed Pretti Remains at Large**\
+`Federal officials said agents were looking for an Ecuadorean named Jose Huerta-Chuma. Records show he faced allegations of domestic assault and had several traffic infractions.`\
+https://nytimes.com/2026/01/28/us/minneapolis-shooting-ice-target-minnesota.html
+
 **Trump Administration Denies That Coercion Is at Heart of Minnesota ICE Surge**\
 `A federal judge weighing whether to block the immigration surge asked Justice Department lawyers to more fully explain the reasons for the operation.`\
 https://nytimes.com/2026/01/28/us/minnesota-ice-surge-trump-administration-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/us/politics/trump-ice-protests-omar-attack.html
 **Broncos QB Nix expects 'absolutely no issues' in recovery from ankle injury**\
 `Nix said he felt "helpless" watching from above as the Broncos suffered a 10-7 loss in the AFC Championship Game without him.`\
 https://nytimes.com/athletic/7005065/2026/01/28/bo-nix-injury-update-broncos-qb-nfl/
-
-**Homelessness Appears to Decline, Reversing a Yearslong Trend**\
-`The Trump administration has not yet released the count, which could complicate its plans for tough new policies.`\
-https://nytimes.com/2026/01/28/us/politics/homelessness-decline-trend.html
 
