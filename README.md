@@ -1,3 +1,7 @@
+**Eagles mailbag, Part 1: Nick Sirianni's role in OC search, merit of play-calling head coach**\
+`The Eagles' opening comes with win-now expectations. `\
+https://nytimes.com/athletic/7006789/2026/01/29/eagles-offensive-coordinator-search-nick-sirianni/
+
 **Some Polar Bears Are Getting Fatter Even as Sea Ice Shrinks (for Now)**\
 `Seals favored by Svalbard bears are becoming easier to hunt as ice declines, a study found. But researchers say the situation may be temporary.`\
 https://nytimes.com/2026/01/29/climate/polar-bears-svalbard.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/29/arts/maine-immigrants-cambodian-dance.html
 **Fox releases World Cup schedule, will set record for games on network TV**\
 `All except two knockout round games will be on Fox's main channel`\
 https://nytimes.com/athletic/7007398/2026/01/29/fox-world-cup-broadcast-schedule-record-tv-fs1/
-
-**Suspect Is Said to Have Tampered With Stove Before Deadly Bronx Fire**\
-`A gas leak from the stove started a fire that engulfed apartments on the top floors. The man was arrested on Wednesday.`\
-https://nytimes.com/2026/01/29/nyregion/deadly-bronx-fire-stove.html
 
