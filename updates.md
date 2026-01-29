@@ -1,3 +1,11 @@
+**A tale of two Tottenhams: European nights once again giving Spurs respite from domestic woe**\
+`Tottenham Hotspur finished fourth in the Champions League league phase despite their woeful form in the Premier League`\
+https://nytimes.com/athletic/6996258/2026/01/29/totenham-champions-league-premier-league/
+
+**Conte, Napoli and a cursed Champions League campaign**\
+`The Italian champions were left with a familiar sinking feeling as they exited European competition against Chelsea`\
+https://nytimes.com/athletic/7005413/2026/01/29/antonio-conte-napoli-champions-league/
+
 **Serena Williams refuses to rule out tennis comeback two months after firm denial**\
 `The 23-time Grand Slam champion appears to have softened her position on the prospect since last December.`\
 https://nytimes.com/athletic/7006131/2026/01/29/serena-williams-tennis-comeback-today-show/

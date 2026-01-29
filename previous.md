@@ -1,3 +1,11 @@
+**A tale of two Tottenhams: European nights once again giving Spurs respite from domestic woe**\
+`Tottenham Hotspur finished fourth in the Champions League league phase despite their woeful form in the Premier League`\
+https://nytimes.com/athletic/6996258/2026/01/29/totenham-champions-league-premier-league/
+
+**Conte, Napoli and a cursed Champions League campaign**\
+`The Italian champions were left with a familiar sinking feeling as they exited European competition against Chelsea`\
+https://nytimes.com/athletic/7005413/2026/01/29/antonio-conte-napoli-champions-league/
+
 **Serena Williams refuses to rule out tennis comeback two months after firm denial**\
 `The 23-time Grand Slam champion appears to have softened her position on the prospect since last December.`\
 https://nytimes.com/athletic/7006131/2026/01/29/serena-williams-tennis-comeback-today-show/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7006093/2026/01/29/chargers-hire-chris-oleary-defen
 **Nine Championship clubs have changed their manager this season - what happened next?**\
 `There has been a high turnover of managers in the second tier this season, but does making a change mean an upturn in results?`\
 https://nytimes.com/athletic/7003720/2026/01/29/what-happens-after-clubs-change-championship-managers/
-
-**Why tactical variety remains the spice of life for Manchester City this season**\
-`Why Pep Guardiola may be leaning into English football's new physicality less than you might think`\
-https://nytimes.com/athletic/7005461/2026/01/29/why-tactical-variety-remains-the-spice-of-life-for-manchester-city-this-season/
-
-**Which Manchester United assets are looking essential in Fantasy Premier League?**\
-`United assets among the most transferred-in players for the second successive gameweek, with midfield options among the most popular`\
-https://nytimes.com/athletic/7003690/2026/01/29/manchester-united-fantasy-premier-league-fpl-tips/
 
