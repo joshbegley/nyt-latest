@@ -1,6 +1,10 @@
+**Driver Rams Car Into Headquarters of Chabad Hasidic Movement**\
+`No one was injured when the motorist drove into a door at the side entrance to the building on Eastern Parkway, Brooklyn. The man, who was taken into custody, appeared agitated.`\
+https://nytimes.com/2026/01/28/nyregion/chabad-crash-eastern-parkway.html
+
 **Trump and Schumer Move Toward Possible Deal to Avert a Shutdown**\
 `The president and the top Senate Democrat were discussing an agreement to split off homeland security funding from a broader spending package and negotiate new limits on immigration agents.`\
-https://nytimes.com/live/2026/01/28/us/minneapolis-shooting-ice-minnesota/trump-schumer-deal-shutdown
+https://nytimes.com/2026/01/28/us/trump-schumer-deal-shutdown.html
 
 **Another Top Kennedy Center Official Resigns**\
 `Kevin Couch, who was announced as senior vice president of artistic programming less than two weeks ago, is the latest to leave since President Trump took control of the center last year.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/us/politics/cubans-gitmo-deportations.html
 **Dante de Blasio Was Among Those Arrested at Hilton Protest Against ICE**\
 `“I thought it was the right thing to do,” former Mayor Bill de Blasio’s son said. He was issued a summons after joining demonstrators in the lobby of the Hilton Garden Inn in TriBeCa.`\
 https://nytimes.com/2026/01/28/nyregion/dante-de-blasio-arrested-ice-protest.html
-
-**Videos Show Alex Pretti in Confrontation With Agents 11 Days Before His Death**\
-`More than a week before federal agents killed Mr. Pretti, a Minneapolis nurse, different agents pushed him to the ground after he spit at them and broke a taillight on their S.U.V.`\
-https://nytimes.com/2026/01/28/us/alex-pretti-kicking-ice-vehicle-video.html
 
