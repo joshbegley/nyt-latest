@@ -1,3 +1,11 @@
+**For Jesse Minter, being head coach of the Ravens is a full circle moment**\
+`“When this job opened, this became the one for me, and this was the one that I wanted,” Minter said at his introductory news conference. `\
+https://nytimes.com/athletic/7008112/2026/01/29/ravens-jesse-minter-head-coach-introductory-news-conference/
+
+**How Trump’s 2020 Election Claims Have Been Debunked Again and Again**\
+`The Trump administration has recently escalated its efforts to prove widespread voter fraud in 2020. Election officials and top Republicans have repeatedly said these claims are baseless.`\
+https://nytimes.com/2026/01/29/us/politics/trump-2020-election-claims-fact-check.html
+
 **Venezuelan Lawmakers Approve Sweeping Overhaul of Oil Sector**\
 `Bowing to Trump administration pressure, the new legislation improves conditions for foreign oil companies and opens the way to slash the taxes they pay.`\
 https://nytimes.com/2026/01/29/world/americas/venezuela-new-law-oil-foreign-companies.html
