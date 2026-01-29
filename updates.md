@@ -1,3 +1,15 @@
+**Beyond Belichick: 10 other NFL legends who had to wait for the Hall of Fame**\
+`John Madden, Terrell Owens and Joe Namath were also among the sports legends who had to wait for a call from Canton.`\
+https://nytimes.com/athletic/7005005/2026/01/28/bill-belichick-hof-nfl-legends-first-year-snubs/
+
+**Democrats Demand Unmasked Agents, New Limits to Fund D.H.S.**\
+`Ahead of a Friday shutdown deadline, Democrats laid out their conditions for funding the Department of Homeland Security, including new restrictions on immigration officers.`\
+https://nytimes.com/2026/01/28/us/politics/ice-body-cam-masks-dhs-funding.html
+
+**Implausible, astonishing, ludicrous: Anatoliy Trubin and the 98th-minute goal that changed everything**\
+`The goalkeeper's late goal pushed Mourinho's Benfica into the knockout round of the Champions League. It has potentially saved their season`\
+https://nytimes.com/athletic/7005472/2026/01/28/anatoliy-trubin-benfica-goalkeeper-goal-real-madrid-champions-league/
+
 **How Trump Is Transforming the Oval Office**\
 `Our White House photographer Doug Mills breaks down how the Oval Office has been transformed in the first year of President Trump’s second term.`\
 https://nytimes.com/video/us/politics/100000010640160/how-trump-is-transforming-the-oval-office.html
