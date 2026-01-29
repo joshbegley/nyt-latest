@@ -1,3 +1,11 @@
+**Founder of First Brands, Whose Bankruptcy Spooked Wall Street, Is Indicted on Fraud**\
+`Patrick James, who was earlier ousted from the beleaguered auto-parts maker, is accused by federal prosecutors of faking invoices and lying about hidden debt for years.`\
+https://nytimes.com/2026/01/29/business/first-brands-fraud-indictment.html
+
+**Eagles mailbag, Part 1: Nick Sirianni's role in OC search, merit of play-calling head coach**\
+`The Eagles' opening comes with win-now expectations. `\
+https://nytimes.com/athletic/7006789/2026/01/29/eagles-offensive-coordinator-search-nick-sirianni/
+
 **Some Polar Bears Are Getting Fatter Even as Sea Ice Shrinks (for Now)**\
 `Seals favored by Svalbard bears are becoming easier to hunt as ice declines, a study found. But researchers say the situation may be temporary.`\
 https://nytimes.com/2026/01/29/climate/polar-bears-svalbard.html
