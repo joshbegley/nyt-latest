@@ -1,3 +1,7 @@
+**Democrats Demand Guardrails as Government Shutdown Looms**\
+`Democrats laid out demands for Homeland Security as the Senate prepared to vote on a government spending package. Lawmakers need to reach an agreement by the deadline on Friday to avoid a government shutdown.`\
+https://nytimes.com/video/us/politics/100000010675396/trump-schumer-deal-shutdown.html
+
 **Welcome back Kai Havertz, Arsenal have missed you**\
 `The German international finally made his first start of the season against Kairat, and rewarded fans' admiration with a superb performance`\
 https://nytimes.com/athletic/7005203/2026/01/29/kai-havertz-arsenal-kairat/

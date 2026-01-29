@@ -11,7 +11,7 @@ https://nytimes.com/2026/01/29/arts/television/late-night-ilhan-omar.html
 https://nytimes.com/athletic/7005632/2026/01/29/liam-rosenior-chelsea-napoli/
 
 **Democrats Demand Guardrails as Government Shutdown Looms**\
-`Senate Democrats listed their conditions to allow a funding bill for the Department of Homeland Security to pass. If the bill stalls, the government could shut down at the Friday deadline.`\
+`Democrats laid out demands for Homeland Security as the Senate prepared to vote on a government spending package. Lawmakers need to reach an agreement by the deadline on Friday to avoid a government shutdown.`\
 https://nytimes.com/video/us/politics/100000010675396/trump-schumer-deal-shutdown.html
 
 **'We've always had an expectation': Steph Curry talks Warriors' future**\
