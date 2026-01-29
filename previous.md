@@ -1,3 +1,11 @@
+**A Global Pop Music Melting Pot**\
+`The era of American dominance is over. Music now comes from artists everywhere listening to each other.`\
+https://nytimes.com/2026/01/29/world/bad-bunny-grammys-pop-britain-china.html
+
+**Sources: Canada, Columbus forward Russell-Rowe moving to Toulouse**\
+`The 23-year-old Canada forward will head abroad in hopes of improving his World Cup outlook under Jesse Marsch.`\
+https://nytimes.com/athletic/7007871/2026/01/29/jacen-russell-rowe-transfer-toulouse-columbus-crew/
+
 **Educator Who Read ‘I Need a New Butt!’ to Students Wins Job Back in Court**\
 `An appellate court ruled that the firing of the former assistant principal of an elementary school in Mississippi in 2022 had been “arbitrary and capricious.”`\
 https://nytimes.com/2026/01/29/us/new-butt-book-appeal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7007740/2026/01/29/bills-josh-allen-injury-foot-sur
 **Canada Signs Auto Deal With South Korea, Moving Further From the U.S.**\
 `The agreement, while scarce on details, is the latest step by Prime Minister Mark Carney to reduce Canada’s reliance on trade with the U.S.`\
 https://nytimes.com/2026/01/29/world/canada/canada-south-korea-auto-deal-tariffs.html
-
-**OpenAI in Talks to Raise as Much as $100 Billion**\
-`OpenAI’s discussions with Microsoft, Nvidia, Middle Eastern sovereign wealth funds and others could value it at $750 billion or more.`\
-https://nytimes.com/2026/01/29/technology/openai-in-talks-to-raise-as-much-as-100-billion.html
-
-**How to watch Nets vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7008003/2026/01/29/nets-vs-nuggets-stream-how-to-watch-jan-29/
 

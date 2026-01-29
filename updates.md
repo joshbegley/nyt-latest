@@ -1,3 +1,11 @@
+**A Global Pop Music Melting Pot**\
+`The era of American dominance is over. Music now comes from artists everywhere listening to each other.`\
+https://nytimes.com/2026/01/29/world/bad-bunny-grammys-pop-britain-china.html
+
+**Sources: Canada, Columbus forward Russell-Rowe moving to Toulouse**\
+`The 23-year-old Canada forward will head abroad in hopes of improving his World Cup outlook under Jesse Marsch.`\
+https://nytimes.com/athletic/7007871/2026/01/29/jacen-russell-rowe-transfer-toulouse-columbus-crew/
+
 **Educator Who Read ‘I Need a New Butt!’ to Students Wins Job Back in Court**\
 `An appellate court ruled that the firing of the former assistant principal of an elementary school in Mississippi in 2022 had been “arbitrary and capricious.”`\
 https://nytimes.com/2026/01/29/us/new-butt-book-appeal.html
