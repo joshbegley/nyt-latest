@@ -1,3 +1,11 @@
+**How Lammens is making Manchester United better**\
+`United's goalkeeper has brought composure and technical excellence to one of the most scrutinised positions in English football`\
+https://nytimes.com/athletic/7003810/2026/01/29/senne-lammens-manchester-united-analysis/
+
+**How Everton can cure their Hill Dickinson homesickness**\
+`Tactical tweaks may be needed if Everton are to unlock the potential of their gleaming new home`\
+https://nytimes.com/athletic/7003943/2026/01/29/everton-hill-dickinson-form-tactics/
+
 **Chargers agree to terms with Chris O'Leary as defensive coordinator**\
 `O'Leary was the Chargers safeties coach in 2024 and spent last season as the defensive coordinator at Western Michigan.`\
 https://nytimes.com/athletic/7006093/2026/01/29/chargers-hire-chris-oleary-defensive-coordinator/
