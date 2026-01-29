@@ -1,3 +1,11 @@
+**Trump to Attend Screening of ‘Melania,’ a Film the First Lady Executive Produced**\
+`Amazon paid Melania Trump’s production company $40 million for the movie and then paid another $35 million to promote it.`\
+https://nytimes.com/2026/01/29/arts/melania-movie-trump-kennedy-center.html
+
+**‘We Don’t Want a Shutdown,’ Says Trump as D.H.S. Talks Continue**\
+`Senate Democrats and a handful of Republicans voted to block a government spending package on Thursday. President Trump and Senate Democrats continued to negotiate to rein in federal agents enacting his immigration crackdown and avert a government shutdown.`\
+https://nytimes.com/video/us/politics/100000010677278/trump-government-shutdown-dhs-funding.html
+
 **For Jesse Minter, being head coach of the Ravens is a full-circle moment**\
 `“When this job opened, this became the one for me, and this was the one that I wanted,” Minter said at his introductory news conference.`\
 https://nytimes.com/athletic/7008112/2026/01/29/ravens-jesse-minter-head-coach-introductory-news-conference/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/29/dining/tokyo-pizza-studio-tamaki-nyc-opening.html
 **Fantasy basketball hot topics of the week: Giannis injury fallout; Tari Eason rising**\
 `Stan Son reviews injuries, who's on the rise and hot topics around the league through a fantasy lens. `\
 https://nytimes.com/athletic/7007803/2026/01/29/fantasy-basketball-hot-topics-giannis-injury-tari-eason/
-
-**Apple Reports Record iPhone Sales Amid Holiday Bump**\
-`New phone designs, coupled with robust holiday spending, continued to lift iPhone sales in the quarter and drove the company to record profits.`\
-https://nytimes.com/2026/01/29/technology/apple-iphone-sales-quarterly-report.html
-
-**Due to weather, NASCAR reschedules Saturday's Clash races to Sunday**\
-`Sunday's race in Winston-Salem, N.C., could be the coldest in NASCAR history.`\
-https://nytimes.com/athletic/7008094/2026/01/29/nascar-clash-bowman-gray-weather-schedule/
 

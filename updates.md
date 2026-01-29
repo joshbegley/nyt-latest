@@ -1,3 +1,11 @@
+**Trump to Attend Screening of ‘Melania,’ a Film the First Lady Executive Produced**\
+`Amazon paid Melania Trump’s production company $40 million for the movie and then paid another $35 million to promote it.`\
+https://nytimes.com/2026/01/29/arts/melania-movie-trump-kennedy-center.html
+
+**‘We Don’t Want a Shutdown,’ Says Trump as D.H.S. Talks Continue**\
+`Senate Democrats and a handful of Republicans voted to block a government spending package on Thursday. President Trump and Senate Democrats continued to negotiate to rein in federal agents enacting his immigration crackdown and avert a government shutdown.`\
+https://nytimes.com/video/us/politics/100000010677278/trump-government-shutdown-dhs-funding.html
+
 **For Jesse Minter, being head coach of the Ravens is a full-circle moment**\
 `“When this job opened, this became the one for me, and this was the one that I wanted,” Minter said at his introductory news conference.`\
 https://nytimes.com/athletic/7008112/2026/01/29/ravens-jesse-minter-head-coach-introductory-news-conference/
