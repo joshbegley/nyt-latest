@@ -1,3 +1,11 @@
+**The Pulse: NFL players dish**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7004735/2026/01/29/nfl-player-poll-the-pulse/
+
+**Greenlanders Watching Turmoil in the United States Say No Thanks**\
+`The violence in Minneapolis and President Trump’s threats have soured Greenlanders on the United States and, unexpectedly, pushed them closer to Denmark.`\
+https://nytimes.com/2026/01/29/world/europe/greenland-trump-anxiety-american-turmoil.html
+
 **Fantastic Creatures and Where to Find Them**\
 `Schiaparelli and Valentino turn the runways of Paris into a surreal experience.`\
 https://nytimes.com/2026/01/29/style/valentino-schiaparelli-armani-couture.html
