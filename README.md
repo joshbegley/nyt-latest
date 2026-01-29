@@ -1,3 +1,7 @@
+**Trump Warns Iran With Military Muscle, but Risks a Regional War**\
+`Iran’s Islamic Republic, weakened by airstrikes in June and huge popular unrest, warns that it will strike back hard if attacked by the United States. This time, Iran may mean it.`\
+https://nytimes.com/2026/01/29/world/europe/trump-iran-threats.html
+
 **The A.I. Boom’s Uncertain Payoff**\
 `Companies like Microsoft and Meta are still spending big on artificial intelligence. But investors remain antsy about seeing results.`\
 https://nytimes.com/2026/01/29/business/dealbook/ai-spending-meta-microsoft.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/29/us/trump-news
 **Australian Open women's semifinals recap: Why Aryna Sabalenka lost a point for hindrance**\
 `A controversial, but understandable umpiring decision did not derail Sabalenka's journey into a fourth Australian Open final in a row.`\
 https://nytimes.com/athletic/7005563/2026/01/29/australian-open-womens-semifinals-recap-sabalenka-hindrance/
-
-**Rookie Joan Beringer has the Timberwolves contemplating a supersized lineup**\
-`The French center's energy and emergence prompted Chris Finch to move the former Sixth Man of the Year to the perimeter.`\
-https://nytimes.com/athletic/7005352/2026/01/29/joan-beringer-timberwolves-big-naz-reid/
 
