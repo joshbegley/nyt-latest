@@ -1,3 +1,15 @@
+**U.S. coach Pochettino critical of Weah weighing in on WC ticket prices**\
+`The U.S. manager indicated that it's not his or the players' place to answer for FIFA's decisions and that opinions should be kept quiet`\
+https://nytimes.com/athletic/7008022/2026/01/29/mauricio-pochettino-tim-weah-world-cup-ticket-prices-fifa-usmnt/
+
+**Josh Allen reveals broken bone in right foot that required surgery**\
+`Allen spoke publicly for the first time since the Bills fired head coach Sean McDermott and promoted Joe Brady to the position.`\
+https://nytimes.com/athletic/7007740/2026/01/29/bills-josh-allen-injury-foot-surgery/
+
+**Canada Signs Auto Deal With South Korea, Moving Further From the U.S.**\
+`The agreement, while scarce on details, is the latest step by Prime Minister Mark Carney to reduce Canada’s reliance on trade with the U.S.`\
+https://nytimes.com/2026/01/29/world/canada/canada-south-korea-auto-deal-tariffs.html
+
 **Canada Signs Auto Deal With South Korea, Moving Further from the U.S.**\
 `The agreement, while scarce on details, is the latest step by Prime Minister Mark Carney to reduce Canada’s reliance on trade with the U.S.`\
 https://nytimes.com/2026/01/29/world/canada/canada-south-korea-auto-deal-tariffs.html
