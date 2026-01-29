@@ -1,3 +1,7 @@
+**Newcastle United are clinging on to the elite - just**\
+`Eddie Howe's side are finding out that staying in Europe's top tier of clubs is harder than getting there in the first place`\
+https://nytimes.com/athletic/7005769/2026/01/29/newcastle-psg-champions-league-result-analysis/
+
 **Welcome back Kai Havertz, Arsenal have missed you**\
 `The German international finally made his first start of the season against Kairat, and rewarded fans' admiration with a superb performance`\
 https://nytimes.com/athletic/7005203/2026/01/29/kai-havertz-arsenal-kairat/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7005413/2026/01/29/antonio-conte-napoli-champions-l
 **Serena Williams refuses to rule out tennis comeback two months after firm denial**\
 `The 23-time Grand Slam champion appears to have softened her position on the prospect since last December.`\
 https://nytimes.com/athletic/7006131/2026/01/29/serena-williams-tennis-comeback-today-show/
-
-**The New York Times in Print for Thursday, Jan. 29, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/01/29/todays-new-york-times
 
