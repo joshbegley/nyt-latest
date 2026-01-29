@@ -1,3 +1,7 @@
+**The Journey of a Group of Cuban Deportees Stuck at Guantánamo**\
+`The tale illustrates how inefficient the ICE operation has been in the year since President Trump ordered the base to prepare for up to 30,000 “criminal aliens.”`\
+https://nytimes.com/2026/01/28/us/politics/cubans-gitmo-deportations.html
+
 **Dante de Blasio Was Among Those Arrested at Hilton Protest Against ICE**\
 `“I thought it was the right thing to do,” former Mayor Bill de Blasio’s son said. He was issued a summons after joining demonstrators in the lobby of the Hilton Garden Inn in TriBeCa.`\
 https://nytimes.com/2026/01/28/nyregion/dante-de-blasio-arrested-ice-protest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/28/us/minnesota-ice-surge-trump-administration-lawsu
 **ICE Agents Blocked From Entering Ecuadorean Consulate in Minneapolis**\
 `Video footage obtained by The New York Times showed federal immigration agents trying to enter the Ecuadorean Consulate in Minneapolis on Tuesday.`\
 https://nytimes.com/video/us/100000010675020/ice-agents-ecuadorean-consulate.html
-
-**Rubio Says Venezuela Will Submit Monthly Budget to White House**\
-`Democrats sharply questioned the plan, including the role of Qatar in managing an account funded by the sale of Venezuelan oil.`\
-https://nytimes.com/2026/01/28/us/politics/rubio-hearing-venezuela.html
 
