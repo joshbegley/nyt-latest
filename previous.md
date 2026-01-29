@@ -1,3 +1,11 @@
+**Is K-pop’s Cute Era Over?**\
+`Our critic Jon Caramanica on how Illit’s new sonic direction reflects this current moment in K-pop.`\
+https://nytimes.com/video/podcasts/100000010671339/is-k-pops-cute-era-over.html
+
+**Why are the Yankees running it back? 'We think we're really good'**\
+`The offense should continue to be lethal. The pitching staff is where the questions about the feasibility of running it back begin.`\
+https://nytimes.com/athletic/7004962/2026/01/28/yankees-run-it-back-2026-season/
+
 **Jury Awards $30 Million to Man Who Accused Teacher of Sexual Abuse**\
 `The man, now 44, said he was repeatedly sexually abused when he was a child at a school in Newark in the 1990s.`\
 https://nytimes.com/2026/01/28/nyregion/newark-school-sex-abuse-judgment.html
@@ -20,21 +28,13 @@ https://nytimes.com/athletic/7005425/2026/01/28/arne-slot-liverpool-transfers-fr
 
 **Rangers to hold Panarin out of lineup indefinitely ahead of Olympic break**\
 `It's not yet clear if a trade is in the works or if the Rangers are protecting their biggest asset from injury concerns ahead of a move.`\
-https://nytimes.com/athletic/7005439/2026/01/28/rangers-artemi-panarin-nhl-trade-deadline-olympics/
+https://nytimes.com/athletic/7005439/2026/01/28/rangers-artemi-panarin-nhl-trade-deadline-olympics-2/
 
 **Geoff Mason, Sports Producer Thrust Into Covering Terrorism, Dies at 85**\
 `He played a critical role in ABC Sports’s reporting on the attack by a Palestinian group at the 1972 Summer Games in Munich that left 11 Israeli team members dead.`\
 https://nytimes.com/2026/01/28/sports/geoffrey-mason-dead.html
 
-**Brin Gives $20 Million to California Political Group After Leaving State**\
-`Sergey Brin, the co-founder of Google, is donating toward campaigns to solve California’s housing crisis, spurring other billionaires to pitch in. Their efforts may also help ward off a wealth tax.`\
+**Google Co-Founder Seeds Billionaire Political Effort Amid Wealth Tax Debate**\
+`Sergey Brin donated $20 million to a new political drive aimed at solving California’s housing crisis, spurring other billionaires to pitch in. Their efforts may also help ward off a wealth tax.`\
 https://nytimes.com/2026/01/28/us/politics/california-billionaires-sergey-brin-campaign.html
-
-**5 Takeaways From Josh Shapiro’s Memoir**\
-`Politically pointed and heavy on his Jewish faith, the book already has Democrats talking.`\
-https://nytimes.com/2026/01/28/us/politics/josh-shapiro-memoir-where-we-keep-light.html
-
-**Why the Cold War Pact Known as NORAD Is Making Headlines**\
-`The State Department clarified comments made by the U.S. Ambassador to Canada that NORAD would be “altered” if that country did not purchase American F-35 jets.`\
-https://nytimes.com/2026/01/28/world/canada/norad-us-canada-security-agreement.html
 

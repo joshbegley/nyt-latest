@@ -1,3 +1,19 @@
+**Is K-pop’s Cute Era Over?**\
+`Our critic Jon Caramanica on how Illit’s new sonic direction reflects this current moment in K-pop.`\
+https://nytimes.com/video/podcasts/100000010671339/is-k-pops-cute-era-over.html
+
+**Why are the Yankees running it back? 'We think we're really good'**\
+`The offense should continue to be lethal. The pitching staff is where the questions about the feasibility of running it back begin.`\
+https://nytimes.com/athletic/7004962/2026/01/28/yankees-run-it-back-2026-season/
+
+**Rangers to hold Panarin out of lineup indefinitely ahead of Olympic break**\
+`It's not yet clear if a trade is in the works or if the Rangers are protecting their biggest asset from injury concerns ahead of a move.`\
+https://nytimes.com/athletic/7005439/2026/01/28/rangers-artemi-panarin-nhl-trade-deadline-olympics-2/
+
+**Google Co-Founder Seeds Billionaire Political Effort Amid Wealth Tax Debate**\
+`Sergey Brin donated $20 million to a new political drive aimed at solving California’s housing crisis, spurring other billionaires to pitch in. Their efforts may also help ward off a wealth tax.`\
+https://nytimes.com/2026/01/28/us/politics/california-billionaires-sergey-brin-campaign.html
+
 **Jury Awards $30 Million to Man Who Accused Teacher of Sexual Abuse**\
 `The man, now 44, said he was repeatedly sexually abused when he was a child at a school in Newark in the 1990s.`\
 https://nytimes.com/2026/01/28/nyregion/newark-school-sex-abuse-judgment.html
