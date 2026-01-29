@@ -1,3 +1,7 @@
+**Columnist explains why he didn't vote for Bill Belichick for Hall of Fame**\
+`One voter went public to say Belichick's snub had nothing to with any controversy involving the six-time Super Bowl champion head coach.`\
+https://nytimes.com/athletic/7005510/2026/01/28/bill-belichick-hall-of-fame-vahe-gregorian/
+
 **Break Down in Tears**\
 `Kit Sheffield makes a mind-bending New York Times Crossword debut.`\
 https://nytimes.com/2026/01/28/crosswords/daily-puzzle-2026-01-29.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/28/us/trump-news/the-trump-administration-moves
 **How Trump Is Weaponizing the Global System**\
 `How is Trump exploiting the liberal international system? Henry Farrell, an international relations scholar, explains on “The Ezra Klein Show.”`\
 https://nytimes.com/video/opinion/100000010659480/how-trump-is-weaponizing-the-global-system.html
-
-**How Trump Is Trying to Recast American Power**\
-`What do American power and Facebook have in common? Henry Farrell, an international relations scholar, explains on “The Ezra Klein Show.”`\
-https://nytimes.com/video/opinion/100000010659478/how-trump-is-trying-to-recast-american-power.html
 

@@ -1,3 +1,7 @@
+**Columnist explains why he didn't vote for Bill Belichick for Hall of Fame**\
+`One voter went public to say Belichick's snub had nothing to with any controversy involving the six-time Super Bowl champion head coach.`\
+https://nytimes.com/athletic/7005510/2026/01/28/bill-belichick-hall-of-fame-vahe-gregorian/
+
 **Break Down in Tears**\
 `Kit Sheffield makes a mind-bending New York Times Crossword debut.`\
 https://nytimes.com/2026/01/28/crosswords/daily-puzzle-2026-01-29.html
