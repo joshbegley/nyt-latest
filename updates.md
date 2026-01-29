@@ -1,3 +1,7 @@
+**Trump and Schumer Move Toward Possible Deal to Avert a Shutdown**\
+`The president and the top Senate Democrat were discussing an agreement to split off homeland security funding from a broader spending package and negotiate new limits on immigration agents.`\
+https://nytimes.com/live/2026/01/28/us/minneapolis-shooting-ice-minnesota/trump-schumer-deal-shutdown
+
 **Another Top Kennedy Center Official Resigns**\
 `Kevin Couch, who was announced as senior vice president of artistic programming less than two weeks ago, is the latest to leave since President Trump took control of the center last year.`\
 https://nytimes.com/2026/01/28/us/politics/trump-kennedy-center-resignation.html
