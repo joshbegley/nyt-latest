@@ -1,3 +1,11 @@
+**Arsenal in talks to sign Barcelona's Batlle in summer in pre-contract deal**\
+`The move would see Batlle return to the WSL, having played for Manchester United between 2020 and 2023.`\
+https://nytimes.com/athletic/6999040/2026/01/29/ona-batlle-barcelona-arsenal-transfer-talks/
+
+**Crystal Palace in talks to sign Evann Guessand on loan from Aston Villa**\
+`The 24-year-old is the subject of interest from various European clubs though Palace are currently regarded as frontrunners for his signatur`\
+https://nytimes.com/athletic/7006691/2026/01/29/evann-guessand-crystal-palace-aston-villa-loan/
+
 **SEC survey results: Fans on the state of the conference, Indiana and the future of the sport**\
 `By and large, SEC football fans are humbled. However, they’re not in a panic, based on the results of a reader survey by The Athletic.`\
 https://nytimes.com/athletic/7001970/2026/01/29/sec-college-football-fans-survey-results/
