@@ -1,3 +1,7 @@
+**Hawks' Okongwu shows battered teeth after hit from Celtics' Brown**\
+`Jaylen Brown was apologetic after the game, though he did receive a flagrant foul for the wayward elbow.`\
+https://nytimes.com/athletic/7007245/2026/01/29/onyeka-okungwu-hawks-teeth-mouth-celtics/
+
 **Democrats Block Spending Package as D.H.S. Talks Continue**\
 `With about 36 hours to go before a shutdown deadline, the funding legislation stalled while Democrats sought a deal with President Trump to rein in his immigration crackdown.`\
 https://nytimes.com/2026/01/29/us/politics/democrats-dhs-spending.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/29/us/man-accused-of-squirting-ilhan-omar-with-vineg
 **USWNT star Crystal Dunn announces retirement from soccer aged 33**\
 `In a post on Instagram on Monday, Dunn said she was “at peace and deeply fulfilled with all that I have accomplished".`\
 https://nytimes.com/athletic/7007210/2026/01/29/crystal-dunn-retires-uswnt/
-
-**Read the Criminal Complaint Against Anthony Kazmierczak, the Man Who Attacked Rep. Ilhan Omar**\
-`Mr. Kazmierczak was arrested after he squirted liquid from a syringe onto Representative Ilhan Omar in Minneapolis as she spoke at an event on Tuesday night.`\
-https://nytimes.com/interactive/2026/01/29/us/anthony-kazmierczak-criminal-complaint.html
 
