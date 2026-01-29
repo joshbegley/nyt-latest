@@ -1,3 +1,11 @@
+**Michael Beck, 65, Dies; First to Report Symptoms of ‘Havana Syndrome’**\
+`As an employee with the N.S.A., he claimed he was exposed to a direct-energy device that led to a diagnosis of Parkinson’s disease at age 45.`\
+https://nytimes.com/2026/01/29/us/michael-beck-dead.html
+
+**How to Make Friends as an Adult**\
+`A practical guide for expanding your circle, with advice from sociable people.`\
+https://nytimes.com/article/how-to-make-friends-as-an-adult.html
+
 **Dodgers' Miguel Rojas won't represent Venezuela in WBC due to insurance issues: Source**\
 `Jose Altuve and Carlos Correa of the Houston Astros also won't participate in the WBC due to insurance concerns.`\
 https://nytimes.com/athletic/7008310/2026/01/29/dodgers-miguel-rojas-wont-represent-venezuela-in-wbc-due-to-insurance-issues-source/
@@ -23,18 +31,10 @@ https://nytimes.com/2026/01/29/arts/melania-movie-trump-kennedy-center.html
 https://nytimes.com/video/us/politics/100000010677278/trump-government-shutdown-dhs-funding.html
 
 **For Jesse Minter, being head coach of the Ravens is a full-circle moment**\
-`“When this job opened, this became the one for me, and this was the one that I wanted,” Minter said at his introductory news conference.`\
+`"When this job opened, this became the one for me, and this was the one that I wanted," Minter said at his introductory news conference.`\
 https://nytimes.com/athletic/7008112/2026/01/29/ravens-jesse-minter-head-coach-introductory-news-conference/
 
 **How Trump’s 2020 Election Claims Have Been Debunked Again and Again**\
 `The Trump administration has recently escalated its efforts to prove widespread voter fraud in 2020. Election officials and top Republicans have repeatedly said these claims are baseless.`\
 https://nytimes.com/2026/01/29/us/politics/trump-2020-election-claims-fact-check.html
-
-**Venezuelan Lawmakers Approve Sweeping Overhaul of Oil Sector**\
-`Bowing to Trump administration pressure, the new legislation improves conditions for foreign oil companies and opens the way to slash the taxes they pay.`\
-https://nytimes.com/2026/01/29/world/americas/venezuela-new-law-oil-foreign-companies.html
-
-**What Happens When TV’s Favorite Weed Dealer Tries to Quit?**\
-`The “High Maintenance” co-creator and star Ben Sinclair delves into his complicated relationship with marijuana in a new Substack called “Low Maintenance.”`\
-https://nytimes.com/2026/01/29/style/ben-sinclaire-marijuana-low-maintenance-substack.html
 

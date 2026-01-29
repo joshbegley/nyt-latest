@@ -1,3 +1,7 @@
+**Democrats Reach a Deal With the White House**\
+`Also, genes may determine longevity, a new study finds. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/01/29/briefing/democrats-reach-a-deal-with-the-white-house.html
+
 **Michael Beck, 65, Dies; First to Report Symptoms of ‘Havana Syndrome’**\
 `As an employee with the N.S.A., he claimed he was exposed to a direct-energy device that led to a diagnosis of Parkinson’s disease at age 45.`\
 https://nytimes.com/2026/01/29/us/michael-beck-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010677278/trump-government-shutdown-
 **For Jesse Minter, being head coach of the Ravens is a full-circle moment**\
 `"When this job opened, this became the one for me, and this was the one that I wanted," Minter said at his introductory news conference.`\
 https://nytimes.com/athletic/7008112/2026/01/29/ravens-jesse-minter-head-coach-introductory-news-conference/
-
-**How Trump’s 2020 Election Claims Have Been Debunked Again and Again**\
-`The Trump administration has recently escalated its efforts to prove widespread voter fraud in 2020. Election officials and top Republicans have repeatedly said these claims are baseless.`\
-https://nytimes.com/2026/01/29/us/politics/trump-2020-election-claims-fact-check.html
 

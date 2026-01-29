@@ -1,3 +1,15 @@
+**Michael Beck, 65, Dies; First to Report Symptoms of ‘Havana Syndrome’**\
+`As an employee with the N.S.A., he claimed he was exposed to a direct-energy device that led to a diagnosis of Parkinson’s disease at age 45.`\
+https://nytimes.com/2026/01/29/us/michael-beck-dead.html
+
+**How to Make Friends as an Adult**\
+`A practical guide for expanding your circle, with advice from sociable people.`\
+https://nytimes.com/article/how-to-make-friends-as-an-adult.html
+
+**For Jesse Minter, being head coach of the Ravens is a full-circle moment**\
+`"When this job opened, this became the one for me, and this was the one that I wanted," Minter said at his introductory news conference.`\
+https://nytimes.com/athletic/7008112/2026/01/29/ravens-jesse-minter-head-coach-introductory-news-conference/
+
 **Dodgers' Miguel Rojas won't represent Venezuela in WBC due to insurance issues: Source**\
 `Jose Altuve and Carlos Correa of the Houston Astros also won't participate in the WBC due to insurance concerns.`\
 https://nytimes.com/athletic/7008310/2026/01/29/dodgers-miguel-rojas-wont-represent-venezuela-in-wbc-due-to-insurance-issues-source/
