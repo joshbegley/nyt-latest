@@ -1,3 +1,7 @@
+**What Happens When TV’s Favorite Weed Dealer Tries to Quit?**\
+`The “High Maintenance” co-creator and star Ben Sinclair delves into his complicated relationship with marijuana in a new Substack called “Low Maintenance.”`\
+https://nytimes.com/2026/01/29/style/ben-sinclaire-marijuana-low-maintenance-substack.html
+
 **MAGA Tab in LA-LA Land! The California Post Launches**\
 `The expansion of the Murdoch tabloid from its New York roots to the West Coast is the latest sign of the outlet’s national ambitions.`\
 https://nytimes.com/2026/01/29/business/media/california-post-new-york-post-fox-rupert-murdoch.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7007871/2026/01/29/jacen-russell-rowe-transfer-toul
 **Educator Who Read ‘I Need a New Butt!’ to Students Wins Job Back in Court**\
 `An appellate court ruled that the firing of the former assistant principal of an elementary school in Mississippi in 2022 had been “arbitrary and capricious.”`\
 https://nytimes.com/2026/01/29/us/new-butt-book-appeal.html
-
-**Police File Hate Crime Charges After Chabad Ramming in Brooklyn**\
-`The police arrested the man, Dan Sohail, after a vehicle was rammed into the Brooklyn headquarters of the Hasidic Jewish organization. The man’s father said in an interview that his son did not hate Jewish people.`\
-https://nytimes.com/2026/01/29/nyregion/chabad-brooklyn-car-ramming.html
 
