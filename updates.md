@@ -1,3 +1,19 @@
+**Democrats Block Spending Package as D.H.S. Talks Continue**\
+`With about 36 hours to go before a shutdown deadline, the funding legislation stalled while Democrats sought a deal with President Trump to rein in his immigration crackdown.`\
+https://nytimes.com/2026/01/29/us/politics/democrats-dhs-spending.html
+
+**How to watch Flames vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7007317/2026/01/29/flames-vs-wild-stream-how-to-watch-jan-29/
+
+**How to watch Capitals vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7007313/2026/01/29/capitals-vs-red-wings-stream-how-to-watch-jan-29/
+
+**How to watch Panthers vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7007305/2026/01/29/panthers-vs-blues-stream-how-to-watch-jan-29/
+
 **T's Feb. 22 Women's Fashion Issue**\
 ``\
 https://nytimes.com/issue/t-magazine/2026/01/29/ts-feb-22-womens-fashion-issue-2026
