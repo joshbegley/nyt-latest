@@ -1,3 +1,7 @@
+**Michael Beck, 65, Dies; First to Report Symptoms of ‘Havana Syndrome’**\
+`As an employee with the N.S.A., he claimed he was exposed to a direct-energy device that led to a diagnosis of Parkinson’s disease at age 45.`\
+https://nytimes.com/2026/01/29/us/michael-beck-dead.html
+
 **How to Make Friends as an Adult**\
 `A practical guide for expanding your circle, with advice from sociable people.`\
 https://nytimes.com/article/how-to-make-friends-as-an-adult.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7008112/2026/01/29/ravens-jesse-minter-head-coach-i
 **How Trump’s 2020 Election Claims Have Been Debunked Again and Again**\
 `The Trump administration has recently escalated its efforts to prove widespread voter fraud in 2020. Election officials and top Republicans have repeatedly said these claims are baseless.`\
 https://nytimes.com/2026/01/29/us/politics/trump-2020-election-claims-fact-check.html
-
-**Venezuelan Lawmakers Approve Sweeping Overhaul of Oil Sector**\
-`Bowing to Trump administration pressure, the new legislation improves conditions for foreign oil companies and opens the way to slash the taxes they pay.`\
-https://nytimes.com/2026/01/29/world/americas/venezuela-new-law-oil-foreign-companies.html
 
