@@ -1,3 +1,7 @@
+**Valentine’s Day Gifts for the Aesthete in Your Life**\
+`Japanese incense, jewelry that looks like candy and more recommendations from T Magazine.`\
+https://nytimes.com/2026/01/29/t-magazine/valentines-day-gift-ideas.html
+
 **Girls Sue Brooklyn Prep School and Former Teacher Over Sex Crimes**\
 `Winston Nguyen, a former teacher at Saint Ann’s School who pleaded guilty to a felony charge last year, is accused in the lawsuit of soliciting naked photos of students and sharing them online.`\
 https://nytimes.com/2026/01/29/nyregion/saint-anns-school-winston-nguyen-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7006138/2026/01/29/giannis-antetokounmpo-trade-rumo
 **Newcastle's showed against PSG how their 3-4-3 option is a viable Plan B**\
 `Switching from 4-3-3 to 3-4-3 has become something of an emergency measure, but Howe might consider the 3-4-3 more, given their away issues.`\
 https://nytimes.com/athletic/7006599/2026/01/29/newcastle-psg-defence-champions-league/
-
-**Trump Warns Iran With Military Muscle, but Risks a Regional War**\
-`Iran’s Islamic Republic, weakened by airstrikes in June and huge popular unrest, warns that it will strike back hard if attacked by the United States. This time, Iran may mean it.`\
-https://nytimes.com/2026/01/29/world/europe/trump-iran-threats.html
 
