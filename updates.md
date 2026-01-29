@@ -1,3 +1,5 @@
+
+
 **Trump Administration Denies That Coercion Is at Heart of Minnesota ICE Surge**\
 `A federal judge weighing whether to block the immigration surge asked Justice Department lawyers to more fully explain the reasons for the operation.`\
 https://nytimes.com/2026/01/28/us/minnesota-ice-surge-trump-administration-lawsuit.html
