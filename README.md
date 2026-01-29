@@ -1,3 +1,7 @@
+**Elena Rybakina fends off Jessica Pegula comeback for Australian Open final with Aryna Sabalenka**\
+`The No. 5 seed reached her first major final since 2023 with an at-first devastatingly languid performance which grew tense toward the end.`\
+https://nytimes.com/athletic/7006303/2026/01/29/australian-open-semifinals-pegula-rybakina-result-analysis/
+
 **Court Vision: Takeaways from Nebraska-Michigan, Purdue's problem and an overlooked star**\
 `Plus, how Michigan knocked off the Huskers in unlikely fashion and the timely progress of a star freshman guard.`\
 https://nytimes.com/athletic/7004694/2026/01/29/nebraska-michigan-purdue-arizona-college-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7005630/2026/01/29/usa-hockey-transgender-policy/
 **College football transfer portal winners, losers: Miami, IU reload; Bama, Duke take big hits**\
 `Everyone is looking for the quick fix in college football. Which teams were successful and which teams will take a step back?`\
 https://nytimes.com/athletic/7004556/2026/01/29/college-football-transfer-portal-winners-losers-2/
-
-**Clippers are the NBA's hottest team. Will they shake things up soon?**\
-`When LA was 6-21, major trade deadline changes wouldn't have been hard to envision. But things have changed.`\
-https://nytimes.com/athletic/7003236/2026/01/29/clippers-trade-deadline-preview-nba/
 
