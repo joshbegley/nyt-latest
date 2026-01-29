@@ -1,3 +1,7 @@
+**'This is the biggest thing in our history': In with Kairat's Kazakhstani diaspora against Arsenal**\
+`Arsenal's Champions League game against Kairat was technically a dead rubber - but not for the 2,000 away supporters at the Emirates`\
+https://nytimes.com/athletic/7006788/2026/01/29/arsenal-kairat-kazakhstani-champions-league-fans/
+
 **The Bucks without Giannis? Potential packages with the NBA trade deadline near**\
 `The Athletic attempted to put together the most competitive trade packages possible from teams as the NBA trade deadline nears.`\
 https://nytimes.com/athletic/7005877/2026/01/29/giannis-antetokounmpo-bucks-nba-trade-deadline-packages/

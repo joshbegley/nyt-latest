@@ -1,3 +1,15 @@
+**Can You Actually Fall in Love With a Chatbot?**\
+`A.I. relationships can’t replicate the complex, risky nature of love between two individuals, the psychotherapist Esther Perel argues on “The Opinions.”`\
+https://nytimes.com/video/opinion/100000010661318/can-you-actually-fall-in-love-with-a-chatbot.html
+
+**European Union Labels Iran’s Revolutionary Guard a Terrorist Group**\
+`The move, which comes after the killing of protesters, brings the European Union in line with the United States and Canada.`\
+https://nytimes.com/2026/01/29/world/europe/european-union-iran-sanctions-irgc.html
+
+**A.I. Offers Comfort, Not Love**\
+`Is love without risk really love? On “The Opinions,” the psychotherapist Esther Perel argues that what makes relationships with A.I. appealing is exactly what makes them hollow.`\
+https://nytimes.com/video/opinion/100000010661324/ai-offers-comfort-not-love.html
+
 **'This is the biggest thing in our history': In with Kairat's Kazakhstani diaspora against Arsenal**\
 `Arsenal's Champions League game against Kairat was technically a dead rubber - but not for the 2,000 away supporters at the Emirates`\
 https://nytimes.com/athletic/7006788/2026/01/29/arsenal-kairat-kazakhstani-champions-league-fans/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7005833/2026/01/29/penguins-nhl-trade-deadline-targ
 **Valentine’s Day Gifts for the Aesthete in Your Life**\
 `Japanese incense, jewelry that looks like candy and more recommendations from T Magazine.`\
 https://nytimes.com/2026/01/29/t-magazine/valentines-day-gift-ideas.html
-
-**Girls Sue Brooklyn Prep School and Former Teacher Over Sex Crimes**\
-`Winston Nguyen, a former teacher at Saint Ann’s School who pleaded guilty to a felony charge last year, is accused in the lawsuit of soliciting naked photos of students and sharing them online.`\
-https://nytimes.com/2026/01/29/nyregion/saint-anns-school-winston-nguyen-lawsuit.html
-
-**Why Australian Open men's semifinals with top four seeds still feel one-sided**\
-`Alexander Zverev and Novak Djokovic are No. 3 and No. 4 in the world. They still feel distant from Carlos Alcaraz and Jannik Sinner.`\
-https://nytimes.com/athletic/7006368/2026/01/29/tennis-australian-open-semifinals-alcaraz-zverev-djokovic-sinner/
-
-**Fantasy trends and hidden gems: Will Smith, John Klingberg among top Week 18 targets**\
-`With the Olympics and a trade deadline ahead, Shayna Goldman helps fantasy managers navigate the NHL's tricky upcoming schedule. `\
-https://nytimes.com/athletic/7005405/2026/01/29/fantasy-trends-hidden-gems-will-smith-top-week-18-targets/
 
