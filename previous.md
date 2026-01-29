@@ -1,3 +1,7 @@
+**Canada Signs Auto Deal With South Korea, Moving Further from the U.S.**\
+`The agreement, while scarce on details, is the latest step by Prime Minister Mark Carney to reduce Canada’s reliance on trade with the U.S.`\
+https://nytimes.com/2026/01/29/world/canada/canada-south-korea-auto-deal-tariffs.html
+
 **OpenAI in Talks to Raise as Much as $100 Billion**\
 `OpenAI’s discussions with Microsoft, Nvidia, Middle Eastern sovereign wealth funds and others could value it at $750 billion or more.`\
 https://nytimes.com/2026/01/29/technology/openai-in-talks-to-raise-as-much-as-100-billion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7007976/2026/01/29/heat-vs-bulls-stream-how-to-watc
 **How to watch Sharks vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7007967/2026/01/29/sharks-vs-oilers-stream-how-to-watch-jan-29/
-
-**How to watch Thunder vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007965/2026/01/29/thunder-vs-timberwolves-stream-how-to-watch-jan-29/
 

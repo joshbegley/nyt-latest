@@ -1,3 +1,7 @@
+**Canada Signs Auto Deal With South Korea, Moving Further from the U.S.**\
+`The agreement, while scarce on details, is the latest step by Prime Minister Mark Carney to reduce Canada’s reliance on trade with the U.S.`\
+https://nytimes.com/2026/01/29/world/canada/canada-south-korea-auto-deal-tariffs.html
+
 **OpenAI in Talks to Raise as Much as $100 Billion**\
 `OpenAI’s discussions with Microsoft, Nvidia, Middle Eastern sovereign wealth funds and others could value it at $750 billion or more.`\
 https://nytimes.com/2026/01/29/technology/openai-in-talks-to-raise-as-much-as-100-billion.html
