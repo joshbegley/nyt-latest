@@ -1,3 +1,7 @@
+**Homan Says ‘Improvements Could and Should Be Made’ in Minneapolis**\
+`The White House border czar said there are plans for a “drawdown” if his agents get access to jails in the state.`\
+https://nytimes.com/2026/01/29/us/homan-minneapolis-ice-press-conference.html
+
 **How to watch Avalanche vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7007165/2026/01/29/avalanche-vs-canadiens-stream-how-to-watch-jan-29/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7007148/2026/01/29/jets-vs-lightning-stream-how-to-
 **How to watch Predators vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7007146/2026/01/29/predators-vs-devils-stream-how-to-watch-jan-29/
-
-**How to watch Bucks vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007141/2026/01/29/bucks-vs-wizards-stream-how-to-watch-jan-29/
 
