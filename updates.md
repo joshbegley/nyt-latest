@@ -1,3 +1,7 @@
+**An Ethicist ‘in the Scalia Mold’: The Minnesota Judge Blasting ICE**\
+`Judge Patrick Schiltz, an appointee of George W. Bush, became an unlikely foil for his criticism of the Trump administration’s tactics in Minnesota.`\
+https://nytimes.com/2026/01/29/us/politics/an-ethicist-in-the-scalia-mold-the-minnesota-judge-blasting-ice.html
+
 **6 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2026/01/29/books/review/new-recommended-books.html
