@@ -1,4 +1,24 @@
-**Twix is OK but Granola Isn’t as States Deploy New Food Stamp Rules**\
+**USWNT star Crystal Dunn announces retirement from soccer aged 33**\
+`In a post on Instagram on Monday, Dunn said she was “at peace and deeply fulfilled with all that I have accomplished.”`\
+https://nytimes.com/athletic/7007210/2026/01/29/crystal-dunn-retires-uswnt/
+
+**Read the Criminal Complaint Against Anthony Kazmierczak, the Man Who Attacked Rep. Ilhan Omar**\
+`Mr. Kazmierczak was arrested after he squirted liquid from a syringe onto Representative Ilhan Omar in Minneapolis as she spoke at an event on Tuesday night.`\
+https://nytimes.com/interactive/2026/01/29/us/anthony-kazmierczak-criminal-complaint.html
+
+**The Champions League group phase has merits but it's bloated. This is how to fix it**\
+`The 'Swiss-style' format produced last-day drama but still feels bloated - a compromise is needed`\
+https://nytimes.com/athletic/7006283/2026/01/29/the-champions-league-group-phase-has-merits-but-its-bloated-this-is-how-to-fix-it/
+
+**Democratic Governors Promise Accountability After Minneapolis**\
+`The chin-out rhetoric of Democratic governors about holding Trump administration officials responsible for violence in their cities may be more political than practicable.`\
+https://nytimes.com/2026/01/29/us/politics/democrats-governors-trump-minneapolis.html
+
+**How an Arsenal-Man Utd matchball helped smooth UK-China relations**\
+`An Emirates Stadium memento and an unlikely love for Crystal Palace were features of recent talks between the two nations`\
+https://nytimes.com/athletic/7007030/2026/01/29/arsenal-man-utd-ball-keir-starmer-xi-jinping/
+
+**Twix Is OK but Granola Isn’t as States Deploy New Food Stamp Rules**\
 `A dizzying array of rules govern what can be bought with SNAP dollars, confusing grocery stores and consumers.`\
 https://nytimes.com/2026/01/29/business/snap-benefits-food-stamps-rules-health.html
 
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/7005467/2026/01/29/usmnt-champions-league/
 **Why a New Mexico Developer Quit Natural Gas**\
 `For John Moscato, a land developer in Las Cruces, N.M., installing gas lines at new home sites was “an ongoing headache.” Ditching gas saved him money.`\
 https://nytimes.com/2026/01/29/climate/why-a-new-mexico-developer-quit-natural-gas.html
-
-**Homan Says ‘Improvements Could and Should Be Made’ in Minneapolis**\
-`The White House border czar said there are plans for a “drawdown” if his agents get access to jails in the state.`\
-https://nytimes.com/2026/01/29/us/homan-minneapolis-ice-press-conference.html
-
-**How to watch Avalanche vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007165/2026/01/29/avalanche-vs-canadiens-stream-how-to-watch-jan-29/
-
-**How to watch Mammoth vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007162/2026/01/29/mammoth-vs-hurricanes-stream-how-to-watch-jan-29/
-
-**How to watch Kings vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007160/2026/01/29/kings-vs-sabres-stream-how-to-watch-jan-29/
-
-**How to watch Blackhawks vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7007157/2026/01/29/blackhawks-vs-penguins-stream-how-to-watch-jan-29/
 

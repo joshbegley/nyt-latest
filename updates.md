@@ -1,3 +1,11 @@
+**Twix is OK but Granola Isn’t as States Deploy New Food Stamp Rules**\
+`A dizzying array of rules govern what can be bought with SNAP dollars, confusing grocery stores and consumers.`\
+https://nytimes.com/2026/01/29/business/snap-benefits-food-stamps-rules-health.html
+
+**Emma Raducanu splits with coach Francis Roig after less than six months**\
+`The 23-year-old shared on social media her and Roig's mutual decision to split.`\
+https://nytimes.com/athletic/7007065/2026/01/29/emma-raducanu-coach-split-francis-roig/
+
 **USMNT Tracker: Champions League progress for McKennie and Balogun but late elimination for Weah**\
 `While five USMNT players made it through to the play-off round, there was last-gasp disappointment for Tim Weah and Marseille`\
 https://nytimes.com/athletic/7005467/2026/01/29/usmnt-champions-league/
