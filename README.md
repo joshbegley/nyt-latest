@@ -1,3 +1,11 @@
+**Trump Says Putin Agreed to a Weeklong Pause in Attacks Amid Extreme Cold**\
+`Russia has left thousands of apartment buildings in Kyiv without heat in recent weeks, in a campaign that has appeared aimed at breaking Ukraine’s morale.`\
+https://nytimes.com/2026/01/29/us/politics/trump-putin-ceasefire-cold.html
+
+**Eagles are hiring Sean Mannion as offensive coordinator**\
+`A former quarterback, Mannion, 33, is just four years removed from his playing career.`\
+https://nytimes.com/athletic/7008334/2026/01/29/sean-mannion-eagles-oc-offensive-coordinator-news/
+
 **Trump to Attend Screening of ‘Melania,’ a Film Heavily Promoted by Amazon**\
 `Amazon paid Melania Trump’s production company $40 million for the movie and then paid another $35 million to promote it.`\
 https://nytimes.com/2026/01/29/arts/melania-movie-trump-kennedy-center.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/29/business/media/california-post-new-york-post-fox-
 **Pochettino backs USMNT players seeking January moves as World Cup looms**\
 `Alex Freeman has completed a big January move, while Ricardo Pepi could also make a switch before the transfer deadline`\
 https://nytimes.com/athletic/7008164/2026/01/29/pochettino-usmnt-world-cup-freeman-pepi/
-
-**A Tokyo Pizzeria of Global Fame Prepares to Take On America**\
-`Pizza Studio Tamaki is readying a pop-up in advance of opening in New York City, and beyond.`\
-https://nytimes.com/2026/01/29/dining/tokyo-pizza-studio-tamaki-nyc-opening.html
-
-**Fantasy basketball hot topics of the week: Giannis injury fallout; Tari Eason rising**\
-`Stan Son reviews injuries, who's on the rise and hot topics around the league through a fantasy lens. `\
-https://nytimes.com/athletic/7007803/2026/01/29/fantasy-basketball-hot-topics-giannis-injury-tari-eason/
 

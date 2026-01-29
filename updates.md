@@ -1,3 +1,7 @@
+**Trump to Attend Screening of ‘Melania,’ a Film Heavily Promoted by Amazon**\
+`Amazon paid Melania Trump’s production company $40 million for the movie and then paid another $35 million to promote it.`\
+https://nytimes.com/2026/01/29/arts/melania-movie-trump-kennedy-center.html
+
 **Trump to Attend Screening of ‘Melania,’ a Film the First Lady Executive Produced**\
 `Amazon paid Melania Trump’s production company $40 million for the movie and then paid another $35 million to promote it.`\
 https://nytimes.com/2026/01/29/arts/melania-movie-trump-kennedy-center.html
