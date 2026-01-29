@@ -1,8 +1,20 @@
+**Fears and Dort fined for roles in altercation at end of Pelicans vs. Thunder**\
+`Fears remained so heated after the game that Pelicans security had to restrain him from escalating the conflict further.`\
+https://nytimes.com/athletic/7007560/2026/01/29/pelicans-thunder-jeremiah-fears-luguentz-dort-fine/
+
+**Groups Back Larson Challenger, Calling for Generational Change**\
+`Three outside political groups are backing Luke Bronin in his primary challenge to Representative John Larson, the 77-year-old Connecticut Democrat.`\
+https://nytimes.com/2026/01/29/us/politics/john-larson-luke-bronin-primary-challenge.html
+
+**Genes May Control Your Longevity, However Healthily You Live**\
+`A new study suggests that those with long-lived families probably have the best prospects of making it to a very old age.`\
+https://nytimes.com/2026/01/29/health/longevity-lifespan-age-genes.html
+
 **No More Zoom for French Officials: France to Use Local Alternative to U.S. Tech**\
 `French officials will soon be expected to use new French-made video conferencing software as part of an effort to “regain digital independence,” the government said.`\
 https://nytimes.com/2026/01/29/world/europe/france-zoom-alternative-visio.html
 
-**Founder of First Brands, Whose Bankruptcy Spooked Wall Street, Is Indicted on Fraud**\
+**Founder of First Brands, Whose Bankruptcy Spooked Wall St., Is Indicted on Fraud Charges**\
 `Patrick James, who was earlier ousted from the beleaguered auto-parts maker, is accused by federal prosecutors of faking invoices and lying about hidden debt for years.`\
 https://nytimes.com/2026/01/29/business/first-brands-fraud-indictment.html
 
@@ -21,20 +33,4 @@ https://nytimes.com/2026/01/29/us/politics/donald-trump-cabinet-meeting-asleep.h
 **Moscow Airport Sells for Half Off, a Sign of Russia’s Global Isolation**\
 `The government opened the sale to cut-rate bidding for Domodedovo Airport after it received no offers at its initial asking price of $1.7 billion.`\
 https://nytimes.com/2026/01/29/world/europe/moscow-domodedovo-airport-sale.html
-
-**John L. Allen Jr., Journalist With Inside Access to the Vatican, Dies at 61**\
-`He seemed to know everyone at the Holy See, and it showed in his reporting for the National Catholic Reporter and his website, Crux, though some said he grew too close to his sources.`\
-https://nytimes.com/2026/01/29/business/media/john-l-allen-jr-dead.html
-
-**Costco Is Sued Over Preservatives in Its $5 Rotisserie Chickens**\
-`A proposed class-action lawsuit claims Costco was misleading customers and engaging in false advertising when it described the chicken as having no preservatives.`\
-https://nytimes.com/2026/01/29/business/costco-chicken-lawsuit-preservatives.html
-
-**The Mushroom Gummies That Claim to Stimulate Your Brain**\
-`Fungal supplements are everywhere, promising happiness, energy, focus, you name it. But what they deliver is something else entirely.`\
-https://nytimes.com/2026/01/29/magazine/wonder-day-mushroom-gummies.html
-
-**Philip Glass’s Protest at the Kennedy Center**\
-`Readers discuss Philip Glass’s refusal to allow the performance of his symphony at the Kennedy Center. Also: Real leaders at a time of crisis.`\
-https://nytimes.com/2026/01/29/opinion/philip-glass-protest-kennedy-center.html
 

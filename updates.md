@@ -1,3 +1,19 @@
+**Fears and Dort fined for roles in altercation at end of Pelicans vs. Thunder**\
+`Fears remained so heated after the game that Pelicans security had to restrain him from escalating the conflict further.`\
+https://nytimes.com/athletic/7007560/2026/01/29/pelicans-thunder-jeremiah-fears-luguentz-dort-fine/
+
+**Groups Back Larson Challenger, Calling for Generational Change**\
+`Three outside political groups are backing Luke Bronin in his primary challenge to Representative John Larson, the 77-year-old Connecticut Democrat.`\
+https://nytimes.com/2026/01/29/us/politics/john-larson-luke-bronin-primary-challenge.html
+
+**Genes May Control Your Longevity, However Healthily You Live**\
+`A new study suggests that those with long-lived families probably have the best prospects of making it to a very old age.`\
+https://nytimes.com/2026/01/29/health/longevity-lifespan-age-genes.html
+
+**Founder of First Brands, Whose Bankruptcy Spooked Wall St., Is Indicted on Fraud Charges**\
+`Patrick James, who was earlier ousted from the beleaguered auto-parts maker, is accused by federal prosecutors of faking invoices and lying about hidden debt for years.`\
+https://nytimes.com/2026/01/29/business/first-brands-fraud-indictment.html
+
 **No More Zoom for French Officials: France to Use Local Alternative to U.S. Tech**\
 `French officials will soon be expected to use new French-made video conferencing software as part of an effort to “regain digital independence,” the government said.`\
 https://nytimes.com/2026/01/29/world/europe/france-zoom-alternative-visio.html
