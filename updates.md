@@ -1,3 +1,7 @@
+**Sheff Utd facing fresh call to retire Maddy Cusack's shirt number**\
+`Cusack died at the age of 27 in September 2023, and was Sheffield United's longest-serving player and vice-captain. `\
+https://nytimes.com/athletic/7004922/2026/01/30/maddy-cusack-sheffield-united-shirt-farnworth/
+
 **Trump Picks Kevin Warsh as Fed Chair**\
 `If confirmed by the Senate, Kevin M. Warsh, a former governor at the central bank, will replace Jerome H. Powell, whose term as chair ends in May.`\
 https://nytimes.com/2026/01/30/us/politics/trump-fed-chair-kevin-hassett.html
