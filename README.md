@@ -1,3 +1,11 @@
+**Syrian Government and Kurdish-Led Militia Seal a Deal to Merge Forces**\
+`The long-anticipated agreement closes a period of intense uncertainty in northeastern Syria after rebel forces led by Ahmed al-Sharaa, who is now the president, seized power in December 2024.`\
+https://nytimes.com/2026/01/30/world/middleeast/syria-kurd-sdf-agreement.html
+
+**What went wrong with Chiefs defense? Three areas stand out — but offer hope, too**\
+`These were the three areas that held the Chiefs defense back most during the 2025 season.`\
+https://nytimes.com/athletic/7004338/2026/01/30/chiefs-2025-defense-what-went-wrong/
+
 **Lindsey Vonn crashes in World Cup downhill race one week before Olympics begin**\
 `The American Alpine skiing star crashed Friday in a downhill race in Switzerland, leaving her status for the Olympics in question.`\
 https://nytimes.com/athletic/7009454/2026/01/30/lindsey-vonn-crash-olympics-downhill-crans-montana/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/7008350/2026/01/30/bronny-james-logo-shoe-lebron-la
 **The Celtics' need for big man at the NBA trade deadline has never been clearer**\
 `The Celtics need to bolster their lineup with a big man before it really becomes a problem for Boston.`\
 https://nytimes.com/athletic/7008307/2026/01/30/celtics-nba-trade-deadline-2026-needs-big-man/
-
-**DeBrincat's strange bounce helps Red Wings steal point in thrilling game vs. Capitals**\
-`What with an NHL record by Patrick Kane, a bizarre bounce to tie the score late, and more, Thursday's game was defined by emotional swings.`\
-https://nytimes.com/athletic/7009085/2026/01/30/red-wings-capitals-alex-debrincat-goal-patrick-kane/
-
-**F1's new engines are the sport's biggest gamble in 12 years. Here's what changed**\
-`F1 is introducing new hybrid engines ahead of the 2026 season. Here's how they work and why they matter`\
-https://nytimes.com/athletic/7006922/2026/01/30/new-f1-engines-explained/
 
