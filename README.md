@@ -1,3 +1,7 @@
+**Car Hits High School Student in Nebraska During an Anti-ICE Protest**\
+`A video showed a driver with a “Trump 2024” flag mounted to the car’s rear window driving into a girl who was holding a poster.`\
+https://nytimes.com/2026/01/30/us/high-school-student-ice-protes-nebraska.html
+
 **Men’s Work Bags We Love**\
 `Text by Mitch Moxley`\
 https://nytimes.com/card/2026/01/30/smarter-living/wirecutter/
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/7009213/2026/01/30/f1-new-regulations-explained-202
 **Kimchi**\
 `Sometimes called mak kimchi, this kimchi formula starts with chopped napa cabbage and is as easy as dressing a salad. You just toss everything together in a large bowl.`\
 https://nytimes.com/video/dining/100000010366745/kimchi.html
-
-**President Trump Wants Lower Rates. Warsh Could Have a Hard Time Delivering.**\
-`Kevin M. Warsh, whom Mr. Trump tapped to become the next chair of the Federal Reserve, could face fierce resistance if he tries to pursue substantially lower borrowing costs.`\
-https://nytimes.com/2026/01/30/business/trump-kevin-warsh-fed-rates.html
 
