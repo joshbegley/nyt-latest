@@ -1,3 +1,11 @@
+**Dubai Chocolate**\
+`This crunchy, creamy stuffed chocolate bar, created by Sarah Hamouda, has charmed sweet tooths worldwide.`\
+https://nytimes.com/video/dining/100000010369168/dubai-chocolate.html
+
+**Jeffrey Epstein scouted women for New York Giants co-owner Steve Tisch, emails show**\
+`The emails, sent in 2013, were among more than 3 million Epstein-related documents the Department of Justice released Friday.`\
+https://nytimes.com/athletic/7010511/2026/01/30/steve-tisch-epstein-files-ny-giants/
+
 **NFL salary cap expected to exceed $300 million in 2026: Source**\
 `The projected spending limits represent an increase of at least $22 million over the 2025 season’s cap figure of $279.2 million.`\
 https://nytimes.com/athletic/7010787/2026/01/30/nfl-salary-cap-300-million/
