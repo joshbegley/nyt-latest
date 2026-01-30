@@ -1,3 +1,7 @@
+**Champions League play-off draw analysed: Benfica v Real Madrid again and a French first**\
+`Our writers analyse the draw and what it means for the rest of this Champions League campaign`\
+https://nytimes.com/athletic/7009390/2026/01/30/champions-league-play-off-draw-analysed/
+
 **Trump Repeats Claims Against Alex Pretti, Casting Slain Nurse as ‘Agitator’**\
 `After videos resurfaced showing a confrontation between Mr. Pretti and federal agents 11 days before officers fatally shot him, President Trump again sought to cast blame on him.`\
 https://nytimes.com/2026/01/30/us/trump-alex-pretti-agitator-minneapolis-shooting-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/canada/100000010678894/heated-rivalry-canada-car
 **Yankees mailbag: Trade Jasson Domínguez? Opening Day lineup thoughts and more**\
 `With spring training nearly here, Yankees fans have questions about where this roster stands. Let's answer some of them. `\
 https://nytimes.com/athletic/7001919/2026/01/30/yankees-lineup-trade-jasson-dominguez/
-
-**Phillies mailbag: Crawford's defense, 'running it back,' extending Luzardo**\
-`There are questions to be answered about the club's top prospects, how the roster shaped up and more. Let's take a crack at some of them.`\
-https://nytimes.com/athletic/7008392/2026/01/30/phillies-roster-justin-crawford-jesus-luzardo/
 

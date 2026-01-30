@@ -1,3 +1,7 @@
+**Champions League play-off draw analysed: Benfica v Real Madrid again and a French first**\
+`Our writers analyse the draw and what it means for the rest of this Champions League campaign`\
+https://nytimes.com/athletic/7009390/2026/01/30/champions-league-play-off-draw-analysed/
+
 **Trump Repeats Claims Against Alex Pretti, Casting Slain Nurse as ‘Agitator’**\
 `After videos resurfaced showing a confrontation between Mr. Pretti and federal agents 11 days before officers fatally shot him, President Trump again sought to cast blame on him.`\
 https://nytimes.com/2026/01/30/us/trump-alex-pretti-agitator-minneapolis-shooting-ice.html
