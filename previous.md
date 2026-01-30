@@ -1,3 +1,7 @@
+**Carlos Alcaraz reaches first Australian Open final after escaping Alexander Zverev in seesaw match**\
+`Alcaraz led 2-0, 4-4 when he appeared to hurt his upper-right leg stretching for a volley. He still came back to win an epic.`\
+https://nytimes.com/athletic/7008361/2026/01/30/carlos-alcaraz-alexander-zverev-australian-open-result-analysis/
+
 **Sad Horse Toy Goes Viral in China**\
 `A frowny-faced horse plushie, the result of a factory mistake, has become the internet’s unofficial mascot for the Lunar New Year. Fans say it resonates with overworked office employees.`\
 https://nytimes.com/video/world/asia/100000010678048/china-viral-crying-horse-toy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/30/learning/word-of-the-day-truculent.html
 **Nottingham Forest's fringe players show their worth just as transfer frenzy hits**\
 `Igor Jesus and James McAtee were among Forest's top performers in a 4-0 win over Ferencvaros that suggested they may yet have a part to play`\
 https://nytimes.com/athletic/7008748/2026/01/30/forest-jesus-mcatee/
-
-**Jimmy Kimmel Teases ‘Melania’**\
-`The late night host said, “Not since ‘The Terminator’ has there been this much excitement for a movie about a European cyborg.”`\
-https://nytimes.com/2026/01/30/arts/television/jimmy-kimmel-melania-trump-documentary.html
 

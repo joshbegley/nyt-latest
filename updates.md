@@ -1,3 +1,7 @@
+**Carlos Alcaraz reaches first Australian Open final after escaping Alexander Zverev in seesaw match**\
+`Alcaraz led 2-0, 4-4 when he appeared to hurt his upper-right leg stretching for a volley. He still came back to win an epic.`\
+https://nytimes.com/athletic/7008361/2026/01/30/carlos-alcaraz-alexander-zverev-australian-open-result-analysis/
+
 **Sad Horse Toy Goes Viral in China**\
 `A frowny-faced horse plushie, the result of a factory mistake, has become the internet’s unofficial mascot for the Lunar New Year. Fans say it resonates with overworked office employees.`\
 https://nytimes.com/video/world/asia/100000010678048/china-viral-crying-horse-toy.html
