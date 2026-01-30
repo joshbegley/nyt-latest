@@ -1,3 +1,11 @@
+**The stars, slumps and stories shaping NHL's road to the playoffs**\
+`Plus: Can teams change their goalies on the fly? The answer will amuse you.`\
+https://nytimes.com/athletic/7010085/2026/01/30/nhl-records-playoffs-patrick-kane-red-light/
+
+**How to watch Lakers vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7010196/2026/01/30/lakers-vs-wizards-stream-how-to-watch-jan-30/
+
 **Australian Open men's semifinals: Cramps, vomit and drama as sleepy tournament awakens**\
 `After a tournament bereft of tension, Melbourne Park turned into a cauldron on Day 13.`\
 https://nytimes.com/athletic/7008359/2026/01/30/tennis-australian-open-semifinals-alcaraz-zverev-sinner-djokovic/
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/7010177/2026/01/30/columbia-vs-princeton-stream-how
 `Monken, the Ravens' ex-offensive coordinator, confirmed the reports from September that said Baltimore wanted to draft Sanders last year.`\
 https://nytimes.com/athletic/7010025/2026/01/30/browns-todd-monken-shedeur-sanders-ravens/
 
-**Live Updates: Millions More Epstein Files Released**\
+**Live Updates: Millions More Epstein Pages Released**\
 `The Justice Department released a new trove of documents as well as thousands of videos and photographs related to the investigation of Jeffrey Epstein. The move comes weeks after a deadline imposed by Congress.`\
 https://nytimes.com/live/2026/01/30/us/epstein-files-release
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7010126/2026/01/30/derek-falvey-minnesota-twins/
 **Don't blame Tottenham fans if they want Manchester City to win. Blame the club**\
 `Sunday’s game brings with it an unsettling sense of deja vu for some Spurs fans — but they should not be blamed if they feel conflicted`\
 https://nytimes.com/athletic/7009570/2026/01/30/tottenham-manchester-city-fans-arsenal/
-
-**Butter-Basted Chicken Breasts Are Better Chicken Breasts**\
-`And more reader favorites from this week.`\
-https://nytimes.com/2026/01/30/dining/butter-basted-chicken-breasts-are-better-chicken-breasts.html
-
-**How Timothée Chalamet Makes His Point in ‘Marty Supreme’**\
-`The director Josh Safdie discusses a table tennis moment from his film, featuring Chalamet, Gwyneth Paltrow and Geza Rohrig.`\
-https://nytimes.com/2026/01/30/movies/marty-supreme-clip.html
 
