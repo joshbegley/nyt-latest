@@ -1,3 +1,23 @@
+**NASCAR Star’s Plane Had Several Instrument Failures Before Crash**\
+`The successive problems appeared to overwhelm the pilots, who were experienced but not authorized to fly the type of jet they were operating alone, according to federal safety investigators.`\
+https://nytimes.com/2026/01/30/us/biffle-nascar-crash-ntsb.html
+
+**Who Is Trump’s New Fed Chair Pick?**\
+`President Trump announced Kevin Warsh as his nominee to succeed Jerome H. Powell as chair of the Federal Reserve. Our reporter Colby Smith explains why the choice matters for the economy.`\
+https://nytimes.com/video/business/economy/100000010629457/who-is-trumps-new-fed-chair-pick.html
+
+**Dan McQuade, a Catalyst in Cosby’s Downfall, Dies at 43**\
+`His viral video of the comedian Hannibal Buress calling Bill Cosby a rapist helped spur broader coverage of sexual-assault accusations against a once-beloved entertainer.`\
+https://nytimes.com/2026/01/30/us/dan-mcquade-dead.html
+
+**‘Produce Pete’ Napolitano, a Fruit and Vegetable Celebrity, Dies at 80**\
+`For more than 30 years, he drew fans for dispensing weekly produce punditry on a New York television station, building on a sales career that began when he was 5.`\
+https://nytimes.com/2026/01/30/business/media/produce-pete-napolitano-dead.html
+
+**'We have rules, but they're not being enforced': Georgia president on NCAA**\
+`In light of what he sees as inaction by the NCAA and CSC, Jere Morehead suggests the SEC adopt and enforce its own rules.`\
+https://nytimes.com/athletic/7010911/2026/01/30/georgia-jere-morehead-sec-rule-enforcement/
+
 **'We have rules, but they're not being enforced': Georgia president on NCAA**\
 `ATHENS, Ga.`\
 https://nytimes.com/athletic/7010911/2026/01/30/georgia-jere-morehead-sec-rule-enforcement/
