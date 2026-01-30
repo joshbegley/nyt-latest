@@ -1,3 +1,23 @@
+**Will Warsh Do What Trump Wants?**\
+`Some investors are worried that President Trump’s nominee to run the Federal Reserve may not be a guaranteed “yes” on cutting interest rates.`\
+https://nytimes.com/2026/01/30/business/dealbook/warsh-fed-trump.html
+
+**Europa League play-off draw: Forest to face Fenerbahce, Celtic vs Stuttgart**\
+`The two-legged play-off — to be played on February 19 and 26 — will mark Forest's first-ever matches against the Turkish Super Lig side.`\
+https://nytimes.com/athletic/7009560/2026/01/30/europa-league-play-off-draw-nottingham-forest-celtic/
+
+**Can Food Be Art? Denmark Is Finding Out.**\
+`High-level chefs in the country could become eligible for arts funding under a new initiative. Not all in the art and culinary worlds are raising a glass to the idea, though.`\
+https://nytimes.com/2026/01/30/arts/denmark-food-fine-art-chefs.html
+
+**Born of a Factory Mistake, This Sad Toy Horse Captures China’s Mood**\
+`A manufacturing error turned a Lunar New Year toy into an unlikely emblem of workplace fatigue.`\
+https://nytimes.com/2026/01/30/world/asia/crying-horse-toy-china.html
+
+**What you need to know about the Olympic skeleton controversy between the U.S. and Canada**\
+`U.S. skeleton racer Katie Uhlaender is at the center of a U.S.-Canada Olympic qualification controversy.`\
+https://nytimes.com/athletic/7007710/2026/01/30/olympic-skeleton-controversy-katie-uhlaender-us-canada/
+
 **Jaden McDaniels shows why it would be hard for Wolves to trade him in win over Thunder**\
 `McDaniels, a consummate pro, scored 21 points and hit all five of his 3s in a win over the defending champs.`\
 https://nytimes.com/athletic/7007546/2026/01/30/jaden-mcdaniels-timberwolves-thunder-trade-rumors/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7009390/2026/01/30/champions-league-play-off-draw-a
 **Trump Repeats Claims Against Alex Pretti, Casting Slain Nurse as ‘Agitator’**\
 `After videos resurfaced showing a confrontation between Mr. Pretti and federal agents 11 days before officers fatally shot him, President Trump again sought to cast blame on him.`\
 https://nytimes.com/2026/01/30/us/trump-alex-pretti-agitator-minneapolis-shooting-ice.html
-
-**‘The Headlines’ News Quiz: Jan. 30, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://nytimes.com/2026/01/30/podcasts/the-headlines/the-headlines-news-quiz-jan-30-2026.html
-
-**Red Sox receiving interest on starters while seeking infield help, plus more roster notes**\
-`Brayan Bello and Patrick Sandoval are among Boston's starters who've surfaced in trade talks.`\
-https://nytimes.com/athletic/7008008/2026/01/30/red-sox-trade-interest-starting-pitchers-infield/
-
-**Here’s the latest.**\
-`By Mitch Smith, Sonia A. Rao and Dan Watson`\
-https://nytimes.com/live/2026/01/30/us/minnesota-ice-protests-minneapolis/heres-the-latest
-
-**TAFC: The secret sleeping pill problem. Plus: Champions League draw, Werner's surprise move**\
-`Today in TAFC: The big sleeping pill problem for players, who will face who in the Champions League play-offs, and will move revive Werner?`\
-https://nytimes.com/athletic/7009387/2026/01/30/sleeping-pills-champions-league-draw-werner-earthquakes/
-
-**NBA weekend watch guide: Lakers-Knicks, Thunder-Nuggets, Wemby in the wasp nest**\
-`Here's what to look forward to, and a few trade deadline crossovers to throw it back.`\
-https://nytimes.com/athletic/7005868/2026/01/30/nba-schedule-lakers-knicks-thunder-nuggets-watch-guide/
 
