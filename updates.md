@@ -1,3 +1,7 @@
+**Robert Saleh takes on Titans' coaching job armed with lessons from Jets tenure**\
+`Despite the turmoil during his time with the Jets, Saleh reflects fondly on his tenure: "I am as lucky as lucky gets."`\
+https://nytimes.com/athletic/7008519/2026/01/29/robert-saleh-titans-coach-jets/
+
 **Doc Rivers brushes off Jae Crowder's criticism for Bucks' fall, citing playing time**\
 `With Giannis Antetokounmpo rumors swirling, an ex-Buck decided to bring up an old gripe about his coach. `\
 https://nytimes.com/athletic/7008433/2026/01/29/doc-rivers-jae-crowder-milwaukee-bucks-nba/
