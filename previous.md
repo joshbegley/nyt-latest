@@ -1,3 +1,35 @@
+**Strong goaltending, a perfect pass and a snooze-fest of a win: Wild takeaways**\
+`Wild coach John Hynes and his players know Thursday's 4-1 victory over the lowly Flames was hardly pretty.`\
+https://nytimes.com/athletic/7008840/2026/01/30/wild-flames-filip-gustavsson-hughes-boldy/
+
+**Football's sleeping pills problem: 'My usage was ridiculous - I was in La La Land'**\
+`The Athletic spoke to people involved in football about the problems with sleeping pills`\
+https://nytimes.com/athletic/6985266/2026/01/30/football-sleeping-pills-problem/
+
+**Kevin Keegan: The man I know**\
+`The meeting of Liverpool and Newcastle on Saturday is a fitting occasion to celebrate a footballer who means so much to so many`\
+https://nytimes.com/athletic/6973892/2026/01/30/kevin-keegan-liverpool-newcastle/
+
+**Is Arsenal's low-risk approach actually… risky?**\
+`Arsenal have put themselves in a strong position, but the feeling persists they must play with more freedom to fend off those at their back`\
+https://nytimes.com/athletic/7004051/2026/01/30/arsenal-mikel-arteta-risk-odegaard-title/
+
+**Panama Court Strikes Down Hong Kong Firm’s Canal Contract**\
+`President Trump has said he wants American control of the canal, putting the longtime ports operator, CK Hutchison, in the cross-hairs of the U.S.-China trade conflict.`\
+https://nytimes.com/2026/01/30/business/panama-canal-ck-hutchison.html
+
+**Inside Liverpool Women's season: 'Everything that could have gone wrong went wrong'**\
+`Liverpool are bottom of the Women's Super League table and for the rest of the season will be fighting for "survival" in the top flight`\
+https://nytimes.com/athletic/7004037/2026/01/30/inside-liverpool-wsl-season/
+
+**Premier League predictions: Spurs vs Man City, Liverpool vs Newcastle and rest of matchday 24**\
+`Who's leading now? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 24?`\
+https://nytimes.com/athletic/7004029/2026/01/30/premier-league-predictions-md24/
+
+**Who will make the decisions that shape the future of Tottenham Hotspur?**\
+`It feels as if the Spurs hierarchy will soon face more pressure, more questions, more grumbling from fans, than they ever have before`\
+https://nytimes.com/athletic/7005728/2026/01/30/spurs-venkatesham-lewis-beucher/
+
 **Is Anthony Gordon right about the differences between the Champions League and Premier League?**\
 `A close examination of the data shows that tactical developments do not exist in a vacuum`\
 https://nytimes.com/athletic/7006512/2026/01/30/premier-champions-league-style-difference-gordon/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/7006512/2026/01/30/premier-champions-league-style-d
 **'Thrilling, relentless, unpredictable': The Championship is the league of opportunity**\
 `England's second tier is infamously competitive, and this season is no different, with 15 points between the play-off spots and drop zone`\
 https://nytimes.com/athletic/7001281/2026/01/30/championship-promotion-race/
-
-**Cooper Flagg and Kon Knueppel both set career highs in duel of star rookies**\
-`The Mavericks star scored 49 points, but the Hornets guard got the final two, plus the win.`\
-https://nytimes.com/athletic/7008990/2026/01/30/kon-knueppel-cooper-flagg-career-high-rookies-nba/
-
-**Fulham are flying (under the radar) - partly due to their clever passes behind defences**\
-`Clever movement and incisive long passing have propelled Marco Silva's side to seventh. They face fourth-placed Manchester United next`\
-https://nytimes.com/athletic/7001790/2026/01/30/fulham-passes-in-behind/
-
-**Could Levshunov benefit developmentally from a stint in the AHL?**\
-`The young defenseman is getting plenty of reps and ice time in the NHL, but it might be time to let him reset with the IceHogs.`\
-https://nytimes.com/athletic/7008512/2026/01/30/blackhawks-artyom-levshunov-ahl-penguins/
-
-**The Prospects: Jack Porter, Arsenal**\
-`The Athletic is keeping an eye on the best young players in the country and this week it's time for the first goalkeeper in this series`\
-https://nytimes.com/athletic/7004188/2026/01/30/prospects-jack-porter-arsenal/
-
-**Why this might be Team GB's best-ever Winter Olympics**\
-`After winning just two medals in Beijing four years ago, the British team are going to Italy optimistic of a much improved return.`\
-https://nytimes.com/athletic/7004254/2026/01/30/great-britain-team-england-winter-olympics-best/
-
-**A Stock Market Fervor Takes Hold in South Korea**\
-`Spurred by government policies and the global A.I. boom, the market’s value has jumped by hundreds of billions of dollars. Individual investors have piled in.`\
-https://nytimes.com/2026/01/30/world/asia/south-korea-stock-boom-kospi.html
-
-**Quote of the Day: Watching U.S. Turmoil, Greenlanders Have a Message: No, Thanks**\
-`Quotation of the Day for Friday, January 30, 2026.`\
-https://nytimes.com/2026/01/30/pageoneplus/quote-of-the-day-watching-us-turmoil-greenlanders-have-a-message-no-thanks.html
-
-**Connections: Sports Edition Coach: Hints for Jan. 30, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7008531/2026/01/30/connections-sports-edition-hints-for-jan-30-2026/
 
