@@ -1,3 +1,27 @@
+**Can John Harbaugh's Giants follow Mike Vrabel Patriots' blueprint?**\
+`A breakdown of just how New England turned it around in Vrabel's first year.`\
+https://nytimes.com/athletic/7007974/2026/01/30/new-york-giants-john-harbaugh-first-season-expectations/
+
+**What is the craziest Super Bowl bet on prediction markets?**\
+`Will Bad Bunny wear a skirt? What will be said on the broadcast? Bizarrely, you can bet on it.`\
+https://nytimes.com/athletic/7004370/2026/01/30/super-bowl-crazy-betting-predictions-bad-bunny-taylor-swift/
+
+**How Seahawks GM John Schneider built another Super Bowl roster**\
+`Schneider has traded Russell Wilson, Geno Smith and DK Metcalf, reaped the rewards with draft picks and gone on a free-agency heater.`\
+https://nytimes.com/athletic/7007747/2026/01/30/super-bowl-60-seahawks-gm-john-schneider/
+
+**Are NFL players OK with Tom Brady's dual role as an owner and a broadcaster?**\
+`Plus, what are the biggest issues facing the next leader of the players' union?`\
+https://nytimes.com/athletic/7005022/2026/01/30/nfl-anonymous-player-poll-tom-brady-raiders-fox/
+
+**Lindsey Jacobellis heard all the noise over five Olympics. Now it's her turn to talk**\
+`An infamous crash in 2006 put Jacobellis under the microscope. In 2022, she got her gold. Now, she's ready for the next chapter.`\
+https://nytimes.com/athletic/7007426/2026/01/30/lindsey-jacobellis-olympics-nbc-broadcaster-snowboard-cross/
+
+**The New York Times International Edition in Print for Saturday, Jan. 31, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/30/todays-new-york-times-international-edition
+
 **Trump Tells U.K. and Canada That Boosting Trade With China Is ‘Dangerous’**\
 `The leaders of both countries have recently visited Beijing seeking to strengthen economic ties, as tensions with the United States rise.`\
 https://nytimes.com/2026/01/30/world/asia/trump-starmer-china-canada-trade.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7007520/2026/01/30/mets-mlb-offseason-overhaul-bo-b
 **My 2026 All-Star reserve selections, with some help from a new formula**\
 `We're splitting hairs on the back end of the rosters, but some selections should be obvious for the coaches doing the voting.`\
 https://nytimes.com/athletic/7005893/2026/01/30/nba-all-star-reserve-picks-formula-players/
-
-**Drake Maye may have to turn back into Superman for Patriots to beat Seahawks**\
-`Maye hasn't looked like himself in the playoffs. He'll likely have to be better for the Patriots to have a real chance in the Super Bowl.`\
-https://nytimes.com/athletic/7008126/2026/01/30/drake-maye-patriots-superman-seahawks-super-bowl/
-
-**How to Break Free From Guilt**\
-`It can prompt you to do the right thing, but it can also drag you down.`\
-https://nytimes.com/2026/01/30/well/guilt-anxiety-tips.html
-
-**How the World Sees America, With Adam Tooze**\
-`The historian Adam Tooze discusses Davos, China and the fading of an old world order.`\
-https://nytimes.com/2026/01/30/opinion/ezra-klein-podcast-adam-tooze.html
-
-**F.B.I. Search in Georgia Shows Trump’s Willingness to Pursue 2020 Grievances**\
-`The search might also be a harbinger of things to come, signaling the president’s disposition to use the powers of law enforcement to intervene in election matters as the 2026 midterms approach.`\
-https://nytimes.com/2026/01/30/us/politics/georgia-trump-election.html
-
-**The New York Times News Quiz, Jan. 30, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2026/01/30/briefing/news-quiz-trump-minnesota.html
-
-**Tucker Carlson Needs His Hatreds**\
-`To triumph in the modern Republican Party, you need to be able to wrench your soul into alignment with your ambition.`\
-https://nytimes.com/2026/01/30/opinion/tucker-carlson-bad-faith.html
 
