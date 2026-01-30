@@ -1,3 +1,7 @@
+**Did Trump Really Give Nicki Minaj a $1 Million ‘Gold Card’ Visa?**\
+`“Gold Trump card free of charge,” the rapper wrote on social media. But the White House says it’s not what it seems.`\
+https://nytimes.com/2026/01/29/us/politics/trump-nicki-minaj-visa.html
+
 **Robert Saleh takes on Titans' coaching job armed with lessons from Jets tenure**\
 `Despite the turmoil during his time with the Jets, Saleh reflects fondly on his tenure: "I am as lucky as lucky gets."`\
 https://nytimes.com/athletic/7008519/2026/01/29/robert-saleh-titans-coach-jets/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/29/us/bovino-orders-video.html
 **Video Shows Bovino Giving Orders to Federal Agents in Los Angeles**\
 `Video from last summer shows the Border Patrol official Gregory Bovino telling federal agents dressed in tactical gear to “arrest as many people that touch you as you want.” The video was made public as part of a federal lawsuit over immigration enforcement in the Chicago area.`\
 https://nytimes.com/video/us/100000010676901/la-immigration-raids-greg-bovino.html
-
-**Washington Post Plans Cuts to Reshape Newsroom**\
-`The changes are expected to include significant layoffs in areas like sports and international coverage.`\
-https://nytimes.com/2026/01/29/business/media/washington-post-newsroom.html
 
