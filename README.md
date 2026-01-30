@@ -1,3 +1,7 @@
+**Spurs 'did everything' to sign Semenyo before City move - Frank**\
+`Spurs' attempt to land the forward is a "clear signal that the Lewis family is very committed", Frank said ahead of City's visit on Sunday.`\
+https://nytimes.com/athletic/7009918/2026/01/30/tottenham-antoine-semenyo-manchester-city-transfer/
+
 **A Closer Look at the Grammys’ Top Nominees**\
 `Superstars like Bad Bunny and Lady Gaga are returning to the awards, while newcomers including Olivia Dean and Addison Rae will be celebrating their first nominations. `\
 https://nytimes.com/card/2026/01/30/arts/music/grammy-nominees-photos
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/30/your-money/credit-card-debt-interest-rates.html
 **Your ‘Safe’ Stock Funds May Be Riskier Than You Think**\
 `The U.S. stock market has become so concentrated that even broad index funds are no longer well diversified, our columnist says.`\
 https://nytimes.com/2026/01/30/business/stock-market-concentration-risk.html
-
-**NHL Power Rankings: A top 10 shuffle for Haiku Week**\
-`It’s that time of year. No analysis or facts. Yeah, it’s more haikus.`\
-https://nytimes.com/athletic/7009752/2026/01/30/nhl-power-rankings-haiku-week/
 
