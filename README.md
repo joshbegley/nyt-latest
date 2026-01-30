@@ -1,5 +1,21 @@
+**Justice Dept. Opens Civil Rights Inquiry Into Minneapolis Killing**\
+`Also, Kevin Warsh is Trump’s pick to lead the Fed. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2026/01/30/briefing/justice-dept-pretti-killing-fed-chair.html
+
+**The 2.1.26 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/01/30/the-2126-issue
+
+**David Robertson retires after 17-year career as reliever for 8 teams**\
+`Robertson saved 179 games. He debuted for the Yankees in 2008 and pitched for the Phillies in 2025, his age-40 season. `\
+https://nytimes.com/athletic/7011164/2026/01/30/david-robertson-retirement-17-seasons-yankees-phillies-white-sox/
+
+**Greg Biffle was not flying plane in crash that killed him and 6 others: NTSB**\
+`The report said the flight lacked the required two pilots fully qualified to fly the aircraft.`\
+https://nytimes.com/athletic/7011087/2026/01/30/greg-biffle-nascar-ntsb-crash-report/
+
 **Catherine O’Hara: A Life in Pictures**\
-`The Canadian actress’s career spanned decades and genres.`\
+`The Canadian actress’s career spanned decades and genres, including memorable roles in “Home Alone” and “Schitt’s Creek.”`\
 https://nytimes.com/2026/01/30/arts/television/catherine-ohara-death-photos.html
 
 **Musk and Epstein Exchanged Emails About Visiting One Another, Documents Show**\
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/30/us/politics/trump-lawsuit-irs-taxes.html
 **Catherine O’Hara, Actress in ‘Home Alone’ and ‘Schitt’s Creek,’ Dies at 71**\
 `The Emmy-winning comedian Catherine O’Hara, best known for her roles in “Home Alone,” “Schitt’s Creek” and “Beetlejuice,” and as a member of the influential Canadian sketch comedy series “S.C.T.V,” died at the age of 71.`\
 https://nytimes.com/video/us/100000010680112/actress-catherine-ohara-dies.html
-
-**Death Toll During New York City Cold Snap Rises to 13**\
-`The people who died, at least several of whom were believed to be homeless, had been found outdoors, including at a playground and near a hospital.`\
-https://nytimes.com/2026/01/30/nyregion/nyc-snow-death-toll.html
-
-**Jean-Philippe Mateta, Crystal Palace and what happens next**\
-`The France striker is unsettled and will miss the critical trip to the City Ground as he hopes a deal can be struck to take him to Milan`\
-https://nytimes.com/athletic/7003932/2026/01/30/mateta-crystal-palace-future-milan-nottingham-forest/
-
-**Emails Show Warm Relationship Between Epstein and Richard Branson**\
-`The two men’s relationship was known, and a photo of Mr. Branson had been on display in Mr. Epstein’s Upper East Side townhouse.`\
-https://nytimes.com/2026/01/30/us/politics/epstein-emails-richard-branson.html
-
-**Springsteen Takes the Stage as Minneapolis Residents Take to the Streets**\
-`For a second week, residents demonstrated against Immigration and Customs Enforcement’s incursion into their city. And Bruce Springsteen made a surprise appearance at a benefit concert.`\
-https://nytimes.com/2026/01/30/us/minneapolis-ice-protests-bruce-springsteen-concert.html
 
