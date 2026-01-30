@@ -1,3 +1,15 @@
+**Mushroom Wafu Pasta**\
+`Wafu directly translates to “Japanese style.” Kinoko, or mushroom, wafu pasta is a spaghetti dish made with a variety of Japanese mushrooms (and occasionally bacon) in an umami-rich soy-butter sauce emulsified with pasta water.`\
+https://nytimes.com/video/dining/100000010367195/mushroom-wafu-pasta.html
+
+**Microwave Rice**\
+`The microwave is for more than just popping popcorn or heating leftovers. It can also make an excellent bowl of rice.`\
+https://nytimes.com/video/dining/100000010367118/microwave-rice.html
+
+**Map: 2.4-Magnitude Earthquake Reported in New Jersey**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/01/30/us/earthquake-new-jersey.html
+
 **Charred Tangerines on Toast**\
 `For an unexpectedly good hors d’oeuvre, char tangerines. Yes, tangerines. Letting the blackened citrus steep in an herby oil yields a sweet, silky and pleasantly bitter result.`\
 https://nytimes.com/video/dining/100000010369239/charred-tangerines-on-toast.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7010504/2026/01/30/america-250-jersey-patches-fanat
 **Adam Tooze on China’s Transformation**\
 `The Western world’s understanding of China’s transformation is limited by ego, the historian Adam Tooze argues.`\
 https://nytimes.com/video/opinion/100000010669590/adam-tooze-on-chinas-transformation.html
-
-**Dubai Chocolate**\
-`This crunchy, creamy stuffed chocolate bar, created by Sarah Hamouda, has charmed sweet tooths worldwide.`\
-https://nytimes.com/video/dining/100000010369168/dubai-chocolate.html
-
-**Jeffrey Epstein scouted women for New York Giants co-owner Steve Tisch, emails show**\
-`The emails, sent in 2013, were among more than 3 million Epstein-related documents the Department of Justice released Friday.`\
-https://nytimes.com/athletic/7010511/2026/01/30/steve-tisch-epstein-files-ny-giants/
-
-**NFL salary cap expected to exceed $300 million in 2026: Source**\
-`The projected spending limits represent an increase of at least $22 million over the 2025 season’s cap figure of $279.2 million.`\
-https://nytimes.com/athletic/7010787/2026/01/30/nfl-salary-cap-300-million/
 
