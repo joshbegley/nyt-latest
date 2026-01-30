@@ -1,3 +1,7 @@
+**Cunha? Mount? Amad? How Man Utd could replace Dorgu**\
+`Michael Carrick has been presented with a tactical puzzle by an injury to his impressive left-sided player`\
+https://nytimes.com/athletic/6839495/2026/01/30/man-utd-patrick-dorgu-cunha-mount-amad/
+
 **The Secret Sauce in ‘Heated Rivalry’? Canada.**\
 `The global television phenomenon is full of Canadian iconography and subsidized by Canadian taxpayers. On Thursday, it came home to celebrate.`\
 https://nytimes.com/2026/01/30/world/canada/heated-rivalry-carney-canada.html
