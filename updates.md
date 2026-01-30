@@ -1,3 +1,7 @@
+**Doc Rivers brushes off Jae Crowder's criticism for Bucks' fall, citing playing time**\
+`With Giannis Antetokounmpo rumors swirling, an ex-Buck decided to bring up an old gripe about his coach. `\
+https://nytimes.com/athletic/7008433/2026/01/29/doc-rivers-jae-crowder-milwaukee-bucks-nba/
+
 **Trump Weighs New Military Options Against Iran**\
 `The plans being weighed by the president go beyond those he considered weeks ago amid widespread protests against Iran’s government.`\
 https://nytimes.com/2026/01/29/us/trump-military-options-against-iran.html

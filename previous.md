@@ -15,7 +15,7 @@ https://nytimes.com/athletic/7008247/2026/01/29/australian-open-2026-how-to-watc
 https://nytimes.com/video/podcasts/100000010669963/marty-supreme-and-the-shame-game.html
 
 **Doc Rivers brushes off Jae Crowder's criticism for Bucks' fall, citing playing time**\
-`With Giannis Antetokounmpo rumours swirling, an ex-Buck decided to bring up an old gripe about his coach. `\
+`With Giannis Antetokounmpo rumors swirling, an ex-Buck decided to bring up an old gripe about his coach. `\
 https://nytimes.com/athletic/7008433/2026/01/29/doc-rivers-jae-crowder-milwaukee-bucks-nba/
 
 **Canadiens vs. Nordiques? Battle of Quebec returns as Avs wear throwback jerseys**\
