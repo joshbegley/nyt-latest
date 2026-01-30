@@ -1,6 +1,10 @@
+**Australian Open men's semifinals: Cramps, vomit and drama as sleepy tournament awakens**\
+`After a tournament bereft of tension, Melbourne Park turned into a cauldron on Day 13.`\
+https://nytimes.com/athletic/7008359/2026/01/30/tennis-australian-open-semifinals-alcaraz-zverev-sinner-djokovic/
+
 **Who Is Georgia Fort, the Other Journalist Arrested Over a Church Protest?**\
 `Ms. Fort was taken into custody by federal agents Friday morning, following a grand jury indictment.`\
-https://nytimes.com/2026/01/30/us/who-is-georgia-fort-the-other-journalist-arrested-over-a-church-protest.html
+https://nytimes.com/2026/01/30/us/who-is-georgia-fort-journalist-arrested-church-protest.html
 
 **How to watch Columbia vs. Princeton women's basketball: Time, TV, streaming**\
 `Find out how to watch the Columbia Lions play the Princeton Tigers, with time, TV channel and streaming information.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/30/dining/butter-basted-chicken-breasts-are-better-c
 **How Timothée Chalamet Makes His Point in ‘Marty Supreme’**\
 `The director Josh Safdie discusses a table tennis moment from his film, featuring Chalamet, Gwyneth Paltrow and Geza Rohrig.`\
 https://nytimes.com/2026/01/30/movies/marty-supreme-clip.html
-
-**Five Horror Movies to Stream Now**\
-`This month’s picks include a disastrous vacation, a macabre homecoming and a witchy healing session.`\
-https://nytimes.com/2026/01/30/movies/five-horror-movies-to-stream-now.html
 
