@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: Kevin Warsh Is Expected to Be Named Fed Chair**\
+``\
+https://nytimes.com/live/2026/01/30/us/trump-news
+
+**Revisiting our preseason predictions: What we got right (and wrong) 3 months ago**\
+`We tried to look into our crystal ball to see what this season might bring. Not every vision was clear.`\
+https://nytimes.com/athletic/7001645/2026/01/30/nba-season-prediction-team-forecast/
+
+**U.S. cycling team to sell naming rights as part of plan to win Tour de France**\
+`The organisation aims to compete with mega-budget teams such as UAE Team Emirates, INEOS Grenadiers and Red Bull-Bora-Hansgrohe`\
+https://nytimes.com/athletic/7007107/2026/01/30/ef-education-naming-rights-tour-de-france/
+
 **A Blizzard at the Beach? Carolinas Prepare for a ‘Quite Unusual’ Weekend Forecast.**\
 `A storm on Saturday is shaping up to be one of the strongest that parts of the South have seen in years. The storm will move through the Northeast on Sunday, but probably with far less snow.`\
 https://nytimes.com/2026/01/30/weather/carolina-snow-storm-forecast-virginia.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7007426/2026/01/30/lindsey-jacobellis-olympics-nbc-
 **The New York Times International Edition in Print for Saturday, Jan. 31, 2026**\
 ``\
 https://nytimes.com/issue/todaysinyt/2026/01/30/todays-new-york-times-international-edition
-
-**Trump Tells U.K. and Canada That Boosting Trade With China Is ‘Dangerous’**\
-`The leaders of both countries have recently visited Beijing seeking to strengthen economic ties, as tensions with the United States rise.`\
-https://nytimes.com/2026/01/30/world/asia/trump-starmer-china-canada-trade.html
-
-**Frimpong is out for weeks - so what are Liverpool's options at right-back?**\
-`Arne Slot has a problem position to fill with his specialist right-backs out injured`\
-https://nytimes.com/athletic/7007421/2026/01/30/liverpool-arne-slot-right-back-options/
-
-**Inside the Mets' offseason: A Bo Bichette plot twist and a methodical overhaul**\
-`An eventful 3-month stretch reshaped the Mets in unexpected ways as executves sought flexibility on the field and in their decision-making.`\
-https://nytimes.com/athletic/7007520/2026/01/30/mets-mlb-offseason-overhaul-bo-bichette/
 
