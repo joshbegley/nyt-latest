@@ -1,40 +1,41 @@
-**Brighton's Baleba is playing with 'more freedom', Hurzeler says**\
-`The 22-year-old had been out of form before the tournament, where he helped Cameroon to a quarter-final finish.`\
-https://nytimes.com/athletic/7009474/2026/01/30/carlos-baleba-brighton-freedom-afcon-hurzeler/
+**Syrian Government and Kurdish-Led Militia Seal a Deal to Merge Forces**\
+`The long-anticipated agreement closes a period of intense uncertainty in northeastern Syria after rebel forces led by Ahmed al-Sharaa, who is now the president, seized power in December 2024.`\
+https://nytimes.com/2026/01/30/world/middleeast/syria-kurd-sdf-agreement.html
 
-**Trump Administration Live Updates: Kevin Warsh Is Expected to Be Named Fed Chair**\
-``\
-https://nytimes.com/live/2026/01/30/us/trump-news
+**What went wrong with Chiefs defense? Three areas stand out — but offer hope, too**\
+`These were the three areas that held the Chiefs defense back most during the 2025 season.`\
+https://nytimes.com/athletic/7004338/2026/01/30/chiefs-2025-defense-what-went-wrong/
 
-**Revisiting our preseason predictions: What we got right (and wrong) 3 months ago**\
-`We tried to look into our crystal ball to see what this season might bring. Not every vision was clear.`\
-https://nytimes.com/athletic/7001645/2026/01/30/nba-season-prediction-team-forecast/
+**Lindsey Vonn crashes in World Cup downhill race one week before Olympics begin**\
+`The American Alpine skiing star crashed Friday in a downhill race in Switzerland, leaving her status for the Olympics in question.`\
+https://nytimes.com/athletic/7009454/2026/01/30/lindsey-vonn-crash-olympics-downhill-crans-montana/
 
-**U.S. cycling team to sell naming rights as part of plan to win Tour de France**\
-`The organisation aims to compete with mega-budget teams such as UAE Team Emirates, INEOS Grenadiers and Red Bull-Bora-Hansgrohe`\
-https://nytimes.com/athletic/7007107/2026/01/30/ef-education-naming-rights-tour-de-france/
+**Alex Tuch says Sabres aren't just headed for playoffs — they want the Stanley Cup**\
+`"We're not in here just to squeak in," said Tuch, who scored a hat trick against the Kings.`\
+https://nytimes.com/athletic/7009142/2026/01/30/sabres-tuch-stanley-cup-hat-trick-lyon-kings/
 
-**A Blizzard at the Beach? Carolinas Prepare for a ‘Quite Unusual’ Weekend Forecast.**\
-`A storm on Saturday is shaping up to be one of the strongest that parts of the South have seen in years. The storm will move through the Northeast on Sunday, but probably with far less snow.`\
-https://nytimes.com/2026/01/30/weather/carolina-snow-storm-forecast-virginia.html
+**The latest on Artemi Panarin as Rangers suffer season series sweep to Islanders**\
+`The Rangers miss their most dynamic forward on the ice as Panarin and the Rangers work on a potential trade.`\
+https://nytimes.com/athletic/7009014/2026/01/30/new-york-rangers-panarin-update-islanders-sweep/
 
-**Can John Harbaugh's Giants follow Mike Vrabel Patriots' blueprint?**\
-`A breakdown of just how New England turned it around in Vrabel's first year.`\
-https://nytimes.com/athletic/7007974/2026/01/30/new-york-giants-john-harbaugh-first-season-expectations/
+**The Lions return a strong defensive nucleus, but improvements in 2026 needed**\
+`The Lions have notable defensive free agents and who stays or goes will help determine the direction the defense takes in 2026.`\
+https://nytimes.com/athletic/7008292/2026/01/30/lions-defense-kelvin-sheppard-2026-improvements/
 
-**What is the craziest Super Bowl bet on prediction markets?**\
-`Will Bad Bunny wear a skirt? What will be said on the broadcast? Bizarrely, you can bet on it.`\
-https://nytimes.com/athletic/7004370/2026/01/30/super-bowl-crazy-betting-predictions-bad-bunny-taylor-swift/
+**Want to call an NHL game between the benches? Better get a helmet**\
+`The risks associated with one of the most unique jobs in sports broadcasting are outweighed by having the "greatest seat in the house."
+`\
+https://nytimes.com/athletic/6801667/2026/01/30/nhl-sideline-reporters-broadcasters-benches/
 
-**How Seahawks GM John Schneider built another Super Bowl roster**\
-`Schneider has traded Russell Wilson, Geno Smith and DK Metcalf, reaped the rewards with draft picks and gone on a free-agency heater.`\
-https://nytimes.com/athletic/7007747/2026/01/30/super-bowl-60-seahawks-gm-john-schneider/
+**Timberwolves wear 'We Stand With Minnesota' shirts during pregame warmups**\
+`"We’re just having our city’s back," said Jaden McDaniels, who scored 21 points in Minnesota's 123-111 win over Oklahoma City.`\
+https://nytimes.com/athletic/7009026/2026/01/30/minnesota-timberwolves-t-shirts-warmups/
 
-**Are NFL players OK with Tom Brady's dual role as an owner and a broadcaster?**\
-`Plus, what are the biggest issues facing the next leader of the players' union?`\
-https://nytimes.com/athletic/7005022/2026/01/30/nfl-anonymous-player-poll-tom-brady-raiders-fox/
+**Bronny James' new signature logo igniting conversation but shouldn't be unexpected**\
+`LeBron James' son has a new logo, which got a lot of attention during Wednesday's Los Angeles Lakers game against the Cleveland Cavaliers.`\
+https://nytimes.com/athletic/7008350/2026/01/30/bronny-james-logo-shoe-lebron-lakers-nba/
 
-**Lindsey Jacobellis heard all the noise over five Olympics. Now it's her turn to talk**\
-`An infamous crash in 2006 put Jacobellis under the microscope. In 2022, she got her gold. Now, she's ready for the next chapter.`\
-https://nytimes.com/athletic/7007426/2026/01/30/lindsey-jacobellis-olympics-nbc-broadcaster-snowboard-cross/
+**The Celtics' need for big man at the NBA trade deadline has never been clearer**\
+`The Celtics need to bolster their lineup with a big man before it really becomes a problem for Boston.`\
+https://nytimes.com/athletic/7008307/2026/01/30/celtics-nba-trade-deadline-2026-needs-big-man/
 
