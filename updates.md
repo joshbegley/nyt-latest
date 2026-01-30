@@ -1,3 +1,7 @@
+**Spurs 'did everything' to sign Semenyo before City move - Frank**\
+`Spurs' attempt to land the forward is a "clear signal that the Lewis family is very committed", Frank said ahead of City's visit on Sunday.`\
+https://nytimes.com/athletic/7009918/2026/01/30/tottenham-antoine-semenyo-manchester-city-transfer/
+
 **A Closer Look at the Grammys’ Top Nominees**\
 `Superstars like Bad Bunny and Lady Gaga are returning to the awards, while newcomers including Olivia Dean and Addison Rae will be celebrating their first nominations. `\
 https://nytimes.com/card/2026/01/30/arts/music/grammy-nominees-photos

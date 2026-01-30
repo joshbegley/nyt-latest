@@ -1,3 +1,7 @@
+**Ajax close to agreeing deal with Arsenal to sign Zinchenko**\
+`The defender has been on loan at Nottingham Forest since the summer but has made only 10 appearances. `\
+https://nytimes.com/athletic/6980851/2026/01/30/oleksandr-zinchenko-ajax-arsenal-deal-transfer/
+
 **Spurs 'did everything' to sign Semenyo before City move - Frank**\
 `Spurs' attempt to land the forward is a "clear signal that the Lewis family is very committed", Frank said ahead of City's visit on Sunday.`\
 https://nytimes.com/athletic/7009918/2026/01/30/tottenham-antoine-semenyo-manchester-city-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7009807/2026/01/30/xhaka-news-sunderland-injury-upd
 **Tips for Lowering Your Credit Card Interest Rate**\
 `The first step, consumer finance experts say, is to ask your card issuer to reduce the rate. And with average balances now $6,500, consider using your tax refund to put a dent in the debt.`\
 https://nytimes.com/2026/01/30/your-money/credit-card-debt-interest-rates.html
-
-**Your ‘Safe’ Stock Funds May Be Riskier Than You Think**\
-`The U.S. stock market has become so concentrated that even broad index funds are no longer well diversified, our columnist says.`\
-https://nytimes.com/2026/01/30/business/stock-market-concentration-risk.html
 
