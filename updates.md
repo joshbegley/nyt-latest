@@ -1,3 +1,7 @@
+**Newsom Files Civil Rights Complaint Against Dr. Oz Over Fraud Video**\
+`Dr. Mehmet Oz, a top federal health official, posted a video that accuses Armenian Americans in California of health care fraud.`\
+https://nytimes.com/2026/01/29/us/newsom-oz-fraud-armenians.html
+
 **War Threats and Ambiguous Evidence: Trump Again Confronts Iran**\
 `There is little sign that Iran has made significant progress in reconstituting its nuclear program, leaving questions about the timing and motive behind potential plans for further attacks.`\
 https://nytimes.com/2026/01/29/us/politics/trump-iran-israel-intel.html
