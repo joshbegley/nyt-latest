@@ -1,3 +1,7 @@
+**Boxer Anthony Joshua breaks silence about car crash that killed 2 friends**\
+`The former Olympic gold medalist spoke on Instagram about the December tragedy on a highway in Nigeria.`\
+https://nytimes.com/athletic/7008403/2026/01/29/boxer-anthony-joshua-discusses-friends-killed/
+
 **In need of right-handed depth, Astros acquire Kai-Wei Teng from Giants: Sources**\
 `To clear a spot on the 40-man roster for Teng, Houston is designating J.P. France for assignment.`\
 https://nytimes.com/athletic/7008704/2026/01/29/astros-giants-trade-kai-wei-teng-sources/
