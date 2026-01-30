@@ -1,3 +1,7 @@
+**Sad Horse Toy Goes Viral in China**\
+`A frowny-faced horse plushie, the result of a factory mistake, has become the internet’s unofficial mascot for the Lunar New Year. Fans say it resonates with overworked office employees.`\
+https://nytimes.com/video/world/asia/100000010678048/china-viral-crying-horse-toy.html
+
 **Have You Witnessed Generosity in Minnesota?**\
 `We’re interested in the ways communities are gathering and connecting in a moment of upheaval.`\
 https://nytimes.com/2026/01/30/briefing/have-you-witnessed-generosity-in-minnesota.html
