@@ -1,3 +1,16 @@
+**The Hidden Engine of E-Commerce**\
+`How A.I.-powered checkouts unlock growth.
+`\
+https://nytimes.com/paidpost/rokt/hidden-engine-of-e-commerce/the-hidden-engine-of-e-commerce.html
+
+**In Minneapolis, Knitters Are Protesting With Red Hats**\
+`The red tasseled hats are at the heart of a movement to galvanize opposition to Immigration and Custom Enforcement in Minnesota and beyond.`\
+https://nytimes.com/2026/01/30/style/minnesota-ice-red-hats-knit.html
+
+**2026 Milan-Cortina Winter Olympics**\
+``\
+https://nytimes.com/news-event/2026-milan-winter-olympics
+
 **Federal Authorities Mapped Out Epstein’s Inner Circle**\
 `Only one person depicted or referred to in the chart as a potential co-conspirator, Ghislaine Maxwell, was ever charged with helping Mr. Epstein engage in sex trafficking.`\
 https://nytimes.com/2026/01/30/us/epstein-inner-circle.html
