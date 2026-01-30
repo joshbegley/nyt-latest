@@ -1,3 +1,7 @@
+**Have You Witnessed Generosity in Minnesota?**\
+`We’re interested in the ways communities are gathering and connecting in a moment of upheaval.`\
+https://nytimes.com/2026/01/30/briefing/have-you-witnessed-generosity-in-minnesota.html
+
 **Trump and First Lady Attend Amazon’s ‘Melania’ Premiere**\
 `President Trump and the first lady, along with White House officials, streamed into the Kennedy Center on Thursday for a screening of Amazon’s new documentary, “Melania.”`\
 https://nytimes.com/video/us/politics/100000010678392/melania-movie-trump-kennedy-center.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/30/arts/television/jimmy-kimmel-melania-trump-docume
 **The New York Times in Print for Friday, Jan. 30, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/30/todays-new-york-times
-
-**Let the Arms Race Begin**\
-`Once the New START treaty ends, we will have returned to an era without limits, when arsenals can reach unconstrained heights.`\
-https://nytimes.com/2026/01/30/opinion/nuclear-treaty-deal-start.html
 
