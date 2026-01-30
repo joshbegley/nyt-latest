@@ -1,3 +1,15 @@
+**How to watch Vanderbilt vs. Ole Miss women's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7009732/2026/01/30/vanderbilt-vs-ole-miss-stream-how-to-watch-jan-30/
+
+**Arsenal v Manchester City title race: Gunners chances down 17% ahead of February fixtures**\
+`Arsenal's chances of winning the title have taken a tumble; how are they and Manchester City shaping up across the key month of February?`\
+https://nytimes.com/athletic/7009492/2026/01/30/arsenal-v-manchester-city-title-race-fixture-analysis-as-gunners-chances-slip-by-17/
+
+**Federal Agents Arrest Don Lemon Over Minnesota Church Protest**\
+`The former CNN anchor has said he was not demonstrating, but reporting as a journalist, during the interruption of a service inside a St. Paul church earlier this month.`\
+https://nytimes.com/2026/01/30/us/don-lemon-arrest-minnesota-church-protest.html
+
 **Iran Says It Won’t Negotiate With the U.S. While Under Threat**\
 `Iran’s foreign minister ruled out direct talks unless President Trump stops threatening to attack it. He also said Iran would not discuss its ballistic missiles.`\
 https://nytimes.com/2026/01/30/world/europe/iran-trump-us-threats-turkey.html
