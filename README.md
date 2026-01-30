@@ -1,3 +1,11 @@
+**Five Horror Movies to Stream Now**\
+`This month’s picks include a disastrous vacation, a macabre homecoming and a witchy healing session.`\
+https://nytimes.com/2026/01/30/movies/five-horror-movies-to-stream-now.html
+
+**Court Upholds Decision to Drop Charges Against New Jersey Power Broker**\
+`George E. Norcross III had been accused of illegally obtaining property and fraudulently collecting millions in tax breaks. The state attorney general’s office can appeal the decision.`\
+https://nytimes.com/2026/01/30/nyregion/norcross-new-jersey-dismissal.html
+
 **Tesla’s Model S, Soon to Be History, Changed the Auto Industry**\
 `The company’s chief executive, Elon Musk, said this week that it would stop making the car, an electric pioneer in 2012, as well as the Model X.`\
 https://nytimes.com/2026/01/30/business/tesla-model-s-history.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/30/theater/peyton-list-heathers-off-broadway.html
 **Bills hiring Broncos' Pete Carmichael Jr. as offensive coordinator**\
 `Carmichael previously served as the Broncos' senior offensive assistant to current head coach Sean Payton.`\
 https://nytimes.com/athletic/7009853/2026/01/30/bills-hire-pete-carmichael-oc-broncos/
-
-**Rosenior says Chelsea's Colwill could play again this season after ACL injury**\
-`Colwill sustained the injury on the first day of pre-season training in early August.`\
-https://nytimes.com/athletic/7009973/2026/01/30/levi-colwill-chelsea-injury-latest/
-
-**Is the ‘Influencer Right’ at Odds With Trump Over Minnesota?**\
-`A vocal group of Trump supporters broke with the president when he appeared to backpedal on his immigration crackdown in Minneapolis. Is it a rift, or just a passing mood?`\
-https://nytimes.com/2026/01/30/style/maga-trump-base-minnesota.html
 
