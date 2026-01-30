@@ -1,3 +1,11 @@
+**Trump Repeats Claims Against Alex Pretti, Casting Slain Nurse as ‘Agitator’**\
+`After videos resurfaced showing a confrontation between Mr. Pretti and federal agents 11 days before officers fatally shot him, President Trump again sought to cast blame on him.`\
+https://nytimes.com/2026/01/30/us/trump-alex-pretti-agitator-minneapolis-shooting-ice.html
+
+**‘The Headlines’ News Quiz: Jan. 30, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://nytimes.com/2026/01/30/podcasts/the-headlines/the-headlines-news-quiz-jan-30-2026.html
+
 **Red Sox receiving interest on starters while seeking infield help, plus more roster notes**\
 `Brayan Bello and Patrick Sandoval are among Boston's starters who've surfaced in trade talks.`\
 https://nytimes.com/athletic/7008008/2026/01/30/red-sox-trade-interest-starting-pitchers-infield/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7001919/2026/01/30/yankees-lineup-trade-jasson-domi
 **Phillies mailbag: Crawford's defense, 'running it back,' extending Luzardo**\
 `There are questions to be answered about the club's top prospects, how the roster shaped up and more. Let's take a crack at some of them.`\
 https://nytimes.com/athletic/7008392/2026/01/30/phillies-roster-justin-crawford-jesus-luzardo/
-
-**Browns' odd process that led to Todd Monken bears question: Do they know what they want?**\
-`Monken may end up being a fine hire, but the Browns' approach and Jimmy Haslam's history make it hard to give them the benefit of the doubt.`\
-https://nytimes.com/athletic/7007924/2026/01/30/browns-todd-monken-new-coach-hiring-process/
-
-**Flyers trade tiers: Options are limited if the team becomes a seller**\
-`The team's recent downturn could make management more open to some sort of deal between now and March 6.`\
-https://nytimes.com/athletic/7007792/2026/01/30/philadelphia-flyers-trade-options-2026/
 

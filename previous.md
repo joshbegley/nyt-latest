@@ -1,40 +1,40 @@
-**Sheff Utd facing fresh call to retire Maddy Cusack's shirt number**\
-`Cusack died at the age of 27 in September 2023, and was Sheffield United's longest-serving player and vice-captain. `\
-https://nytimes.com/athletic/7004922/2026/01/30/maddy-cusack-sheffield-united-shirt-farnworth/
+**Red Sox receiving interest on starters while seeking infield help, plus more roster notes**\
+`Brayan Bello and Patrick Sandoval are among Boston's starters who've surfaced in trade talks.`\
+https://nytimes.com/athletic/7008008/2026/01/30/red-sox-trade-interest-starting-pitchers-infield/
 
-**Trump Picks Kevin Warsh as Fed Chair**\
-`If confirmed by the Senate, Kevin M. Warsh, a former governor at the central bank, will replace Jerome H. Powell, whose term as chair ends in May.`\
-https://nytimes.com/2026/01/30/us/politics/trump-fed-chair-kevin-hassett.html
+**Here’s the latest.**\
+`By Mitch Smith, Sonia A. Rao and Dan Watson`\
+https://nytimes.com/live/2026/01/30/us/minnesota-ice-protests-minneapolis/heres-the-latest
 
-**Everton’s Grealish likely to undergo foot surgery and miss rest of season - Moyes**\
-`The 30-year-old has recorded two goals and six assists in 20 league appearances this season.`\
-https://nytimes.com/athletic/7009521/2026/01/30/everton-jack-grealish-injury-surgery/
+**TAFC: The secret sleeping pill problem. Plus: Champions League draw, Werner's surprise move**\
+`Today in TAFC: The big sleeping pill problem for players, who will face who in the Champions League play-offs, and will move revive Werner?`\
+https://nytimes.com/athletic/7009387/2026/01/30/sleeping-pills-champions-league-draw-werner-earthquakes/
 
-**The New F.B.I.**\
-`We look at changes inside the agency.`\
-https://nytimes.com/2026/01/30/briefing/the-new-fbi.html
+**NBA weekend watch guide: Lakers-Knicks, Thunder-Nuggets, Wemby in the wasp nest**\
+`Here's what to look forward to, and a few trade deadline crossovers to throw it back.`\
+https://nytimes.com/athletic/7005868/2026/01/30/nba-schedule-lakers-knicks-thunder-nuggets-watch-guide/
 
-**Chevron Points to Venezuela’s Promise as Big Oil Earnings Fall**\
-`The two largest U.S. oil companies, Chevron and Exxon Mobil, reported their lowest annual profits in years.`\
-https://nytimes.com/2026/01/30/business/energy-environment/chevron-exxon-mobil-earnings.html
+**Minneapolis Live Updates: Wave of Protests Is Expected Against Immigration Crackdown**\
+`The Trump administration has faced intense backlash after the killings of Renee Good and Alex Pretti by federal agents.`\
+https://nytimes.com/live/2026/01/30/us/minnesota-ice-protests-minneapolis
 
-**Hollywood’s North Road Studio Acquired by a European Production Giant**\
-`Peter Chernin, an industry veteran who founded North Road in 2022, said his deal with Mediawan met a need to get bigger in an era of consolidation.`\
-https://nytimes.com/2026/01/30/business/north-road-mediawan-deal.html
+**Canada’s Prime Minister Meets ‘Heated Rivalry’ Star on Red Carpet**\
+`The actor Hudson Williams gifted Prime Minister Mark Carney a fictional Canada Olympic Team fleece jacket that his character wore on “Heated Rivalry,” which has become a global phenomenon.`\
+https://nytimes.com/video/world/canada/100000010678894/heated-rivalry-canada-carney-hudson-williams.html
 
-**The Pulse: A perfectly Pirates dilemma**\
-`Welcome to The Pulse, The Athletic's daily newsletter.`\
-https://nytimes.com/athletic/7009265/2026/01/30/pirates-griffin-skenes-prospects-the-pulse/
+**Yankees mailbag: Trade Jasson Domínguez? Opening Day lineup thoughts and more**\
+`With spring training nearly here, Yankees fans have questions about where this roster stands. Let's answer some of them. `\
+https://nytimes.com/athletic/7001919/2026/01/30/yankees-lineup-trade-jasson-dominguez/
 
-**Highlights from Paris Couture Week**\
-`Our chief fashion critic Vanessa Friedman breaks down the most iconic looks from this week’s couture shows in Paris.`\
-https://nytimes.com/video/fashion/runway-couture/100000010675984/highlights-from-paris-couture-week.html
+**Phillies mailbag: Crawford's defense, 'running it back,' extending Luzardo**\
+`There are questions to be answered about the club's top prospects, how the roster shaped up and more. Let's take a crack at some of them.`\
+https://nytimes.com/athletic/7008392/2026/01/30/phillies-roster-justin-crawford-jesus-luzardo/
 
-**Syrian Government and Kurdish-Led Militia Seal a Deal to Merge Forces**\
-`The long-anticipated agreement closes a period of intense uncertainty in northeastern Syria after rebel forces led by Ahmed al-Sharaa, who is now the president, seized power in December 2024.`\
-https://nytimes.com/2026/01/30/world/middleeast/syria-kurd-sdf-agreement.html
+**Browns' odd process that led to Todd Monken bears question: Do they know what they want?**\
+`Monken may end up being a fine hire, but the Browns' approach and Jimmy Haslam's history make it hard to give them the benefit of the doubt.`\
+https://nytimes.com/athletic/7007924/2026/01/30/browns-todd-monken-new-coach-hiring-process/
 
-**What went wrong with Chiefs defense? Three areas stand out — but offer hope, too**\
-`These were the three areas that held the Chiefs defense back most during the 2025 season.`\
-https://nytimes.com/athletic/7004338/2026/01/30/chiefs-2025-defense-what-went-wrong/
+**Flyers trade tiers: Options are limited if the team becomes a seller**\
+`The team's recent downturn could make management more open to some sort of deal between now and March 6.`\
+https://nytimes.com/athletic/7007792/2026/01/30/philadelphia-flyers-trade-options-2026/
 
