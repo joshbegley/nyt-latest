@@ -1,3 +1,7 @@
+**Who Is Georgia Fort, the Other Journalist Arrested Over a Church Protest?**\
+`Ms. Fort was taken into custody by federal agents Friday morning, following a grand jury indictment.`\
+https://nytimes.com/2026/01/30/us/who-is-georgia-fort-the-other-journalist-arrested-over-a-church-protest.html
+
 **How to watch Columbia vs. Princeton women's basketball: Time, TV, streaming**\
 `Find out how to watch the Columbia Lions play the Princeton Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7010177/2026/01/30/columbia-vs-princeton-stream-how-to-watch-jan-30/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/30/movies/marty-supreme-clip.html
 **Five Horror Movies to Stream Now**\
 `This month’s picks include a disastrous vacation, a macabre homecoming and a witchy healing session.`\
 https://nytimes.com/2026/01/30/movies/five-horror-movies-to-stream-now.html
-
-**Court Upholds Decision to Drop Charges Against New Jersey Power Broker**\
-`George E. Norcross III had been accused of illegally obtaining property and fraudulently collecting millions in tax breaks. The state attorney general’s office can appeal the decision.`\
-https://nytimes.com/2026/01/30/nyregion/norcross-new-jersey-dismissal.html
 
