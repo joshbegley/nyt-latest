@@ -1,3 +1,11 @@
+**Trump Weighs New Military Options Against Iran**\
+`The plans being weighed by the president go beyond those he considered weeks ago amid widespread protests against Iran’s government.`\
+https://nytimes.com/2026/01/29/us/trump-military-options-against-iran.html
+
+**Husband Denies Plot in Double Murder Trial, Calling Accusations ‘Crazy’**\
+`Brendan Banfield rebuffed claims that he had made an elaborate plan for the killings with the family’s au pair, with whom he had an affair.`\
+https://nytimes.com/2026/01/29/us/brendan-banfield-double-murder-trial.html
+
 **How to watch Alcaraz vs. Zverev, Djokovic vs. Sinner in Australian Open men's semifinals**\
 `A top-heavy semifinals promises an exhilarating ending to the 2026 Australian Open men's singles tournament. `\
 https://nytimes.com/athletic/7008247/2026/01/29/australian-open-2026-how-to-watch-djokovic-sinner-alcaraz-zverev/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/29/business/media/washington-post-newsroom.html
 **Can Trust in Vaccines Be Built Through Skepticism?**\
 `Is the Trump administration reviving confidence in vaccination or destroying it? Dr. Jay Bhattacharya, the director of the N.I.H., thinks an embrace of skepticism is key.`\
 https://nytimes.com/video/opinion/100000010665145/can-trust-in-vaccines-be-built-through-skepticism.html
-
-**Who Was at the ‘Melania’ Premiere?**\
-`Top White House officials streamed into the Kennedy Center on Thursday to see Amazon’s new documentary about the first lady, Melania Trump.`\
-https://nytimes.com/2026/01/29/style/melania-trump-movie-kennedy-center-premiere.html
-
-**Kennedy Overhauls Federal Autism Panel in His Own Image**\
-`The new panel, which advises the government on research and service priorities for people with autism, includes many members who have argued that vaccines cause the disorder.`\
-https://nytimes.com/2026/01/29/health/autism-panel-kennedy-iacc.html
 
