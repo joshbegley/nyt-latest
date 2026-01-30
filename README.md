@@ -1,4 +1,4 @@
-**Doc Rivers laughs off Jae Crowder's criticism for Bucks' fall, citing playing time**\
+**Doc Rivers brushes off Jae Crowder's criticism for Bucks' fall, citing playing time**\
 `With Giannis Antetokounmpo rumours swirling, an ex-Buck decided to bring up an old gripe about his coach. `\
 https://nytimes.com/athletic/7008433/2026/01/29/doc-rivers-jae-crowder-milwaukee-bucks-nba/
 
@@ -23,12 +23,12 @@ https://nytimes.com/2026/01/29/business/media/washington-post-newsroom.html
 https://nytimes.com/video/opinion/100000010665145/can-trust-in-vaccines-be-built-through-skepticism.html
 
 **Who Was at the ‘Melania’ Premiere?**\
-`Right-wing influencers and top White House officials streamed into the Kennedy Center on Thursday to see Amazon’s new documentary about the first lady, Melania Trump.`\
+`Top White House officials streamed into the Kennedy Center on Thursday to see Amazon’s new documentary about the first lady, Melania Trump.`\
 https://nytimes.com/2026/01/29/style/melania-trump-movie-kennedy-center-premiere.html
 
 **Kennedy Overhauls Federal Autism Panel in His Own Image**\
-`The new panel, which advises the government on research and service priorities for people with autism, includes many members who have argued that vaccines cause autism.`\
-https://nytimes.com/2026/01/29/health/autism-panel-kennedy-iacc-.html
+`The new panel, which advises the government on research and service priorities for people with autism, includes many members who have argued that vaccines cause the disorder.`\
+https://nytimes.com/2026/01/29/health/autism-panel-kennedy-iacc.html
 
 **What Domestic Terrorism Means, and Doesn’t**\
 `The Trump administration has called the Minneapolis shooting victims “domestic terrorists.” Our criminal justice reporter Jonah E. Bromwich explains what that term actually means.`\
