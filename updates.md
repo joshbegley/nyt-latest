@@ -1,3 +1,8 @@
+**Want to call an NHL game between the benches? Better get a helmet**\
+`The risks associated with one of the most unique jobs in sports broadcasting are outweighed by having the "greatest seat in the house."
+`\
+https://nytimes.com/athletic/6801667/2026/01/30/nhl-sideline-reporters-broadcasters-benches/
+
 **The Pulse: A perfectly Pirates dilemma**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7009265/2026/01/30/pirates-griffin-skenes-prospects-the-pulse/
