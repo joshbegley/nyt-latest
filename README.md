@@ -1,3 +1,7 @@
+**Catherine O’Hara, ‘Home Alone’ and ‘Schitt’s Creek’ Actress, Dies at 71**\
+`The Emmy-winning comedian was a member of the influential Canadian sketch comedy series “S.C.T.V.”`\
+https://nytimes.com/2026/01/30/arts/television/catherine-ohara-dead.html
+
 **Concussions on NFL kickoffs increased, but league encouraged by lower rates**\
 `There were more than double the number of kickoff returns in the NFL this season, which led to an increase in head injuries.`\
 https://nytimes.com/athletic/7010290/2026/01/30/nfl-concussions-kickoffs-increase-health-update/
@@ -21,12 +25,4 @@ https://nytimes.com/2026/01/30/climate/antarctica-thwaites-glacier-drilling.html
 **Prime Tire: Remember when F1 cars looked ridiculous?**\
 `Welcome to Prime Tire, The Athletic's F1 newsletter.`\
 https://nytimes.com/athletic/7010273/2026/01/30/when-f1-cars-looked-ridiculous-prime-tire/
-
-**Vikings fire general manager Kwesi Adofo-Mensah after disappointing season**\
-`The Vikings fired Adofo-Mensah after four seasons at the helm and a disappointing 9-8 season in 2025 that began with loftier expectations.`\
-https://nytimes.com/athletic/6933813/2026/01/30/vikings-fire-gm-kwesi-adofo-mensah/
-
-**The Last Sundance in Park City Ends on an Aptly Misty Moment**\
-`At the conclusion of a mixed festival, John Turturro and Giancarlo Esposito, co-stars in a new drama, reminded us of why the event matters.`\
-https://nytimes.com/2026/01/30/movies/sundance-film-festival-the-invite-josephine.html
 
