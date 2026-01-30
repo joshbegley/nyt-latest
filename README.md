@@ -1,3 +1,19 @@
+**What to Know About the ‘Abortion Clinic’ Law Being Used to Charge Don Lemon**\
+`The Trump administration used a federal law prohibiting blockades of abortion clinics and places of worship to charge Mr. Lemon and others in Minnesota.`\
+https://nytimes.com/2026/01/30/us/politics/face-act-lemon-explainer.html
+
+**‘Don’t hang yourself,’ Epstein’s cellmate told him, according to prosecutor’s handwritten notes.**\
+`By Benjamin Weiser`\
+https://nytimes.com/live/2026/01/30/us/epstein-files-release/dont-hang-yourself-epsteins-cellmate-told-him-according-to-prosecutors-handwritten-notes
+
+**Jeff Bezos’s Rocket Company Pauses Space Tourism to Focus on the Moon**\
+`The New Shepard rocket from Blue Origin, which brought 92 people on trips to the edge of space, will cease flying for at least two years as the company prioritizes NASA contracts.`\
+https://nytimes.com/2026/01/30/science/blue-origin-new-shepard-rocket-bezos.html
+
+**Minneapolis Mayor: Without Videos, ‘We’d All Be Living in a Lie’**\
+`Lulu Garcia-Navarro, co-host of “The Interview,” spoke to Minneapolis’s mayor, Jacob Frey, about the the killings of Renee Good and Alex Pretti, protests over aggressive federal actions and why fighting ICE isn’t just his city’s fight.`\
+https://nytimes.com/video/podcasts/100000010680805/minneapolis-ice-protests-mayor-frey.html
+
 **Senate Passes Deal to Fund Government and Negotiate ICE Limits**\
 `Democrats agreed to fund the Department of Homeland Security for two weeks while they negotiate with President Trump on restricting his immigration crackdown.`\
 https://nytimes.com/2026/01/30/us/politics/senate-vote-shutdown-ice.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/30/us/minnesota-ice-protests-trump-immigration.html
 **ICE Expands Power of Agents to Arrest People Without Warrants**\
 `An internal memo changed the standard from whether people are unlikely to show up for hearings to whether they could leave the scene.`\
 https://nytimes.com/2026/01/30/us/politics/ice-expands-power-agents-warrants.html
-
-**‘Heated Rivalry’ Fans Want the Fleece. They’ll Be Able to Get It.**\
-`American and Canadian “Heated Rivalry” fans are hot for the jacket worn by the character Shane Hollander.`\
-https://nytimes.com/2026/01/30/style/heated-rivalry-canada-fleece-jacket.html
-
-**Escape to Alcatraz: Coyote Swims a Mile in Search of New Turf**\
-`The coyote struggled onto the rocky shore this month. It is the first documented coyote on Alcatraz since the island was transferred to the National Park Service in 1972.`\
-https://nytimes.com/2026/01/30/us/coyote-swims-alcatraz-san-francisco.html
-
-**Justice Dept. Opens Civil Rights Inquiry Into Minneapolis Killing**\
-`Also, Kevin Warsh is Trump’s pick to lead the Fed. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2026/01/30/briefing/justice-dept-pretti-killing-fed-chair.html
-
-**The 2.1.26 Issue**\
-``\
-https://nytimes.com/issue/magazine/2026/01/30/the-2126-issue
 
