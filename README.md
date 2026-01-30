@@ -34,7 +34,7 @@ https://nytimes.com/athletic/7009822/2026/01/30/giannis-trades-bucks-heat-warrio
 `Watkins was forced off after 35 minutes of Aston Villa's 3-2 win over RB Salzburg on Thursday.`\
 https://nytimes.com/athletic/7008329/2026/01/30/ollie-watkins-injury-aston-villa-salzburg/
 
-**Djokovic stuns Sinner with vintage Australian Open performance to move one win from 25 Grand Slams**\
+**Novak Djokovic stuns Jannik Sinner at Australian Open to move one win from 25 Grand Slams**\
 `The 24-time Grand Slam champion needed five sets of relentless spot-serving and battering-ram forehands to overwhelm his recent nemesis.`\
 https://nytimes.com/athletic/7008360/2026/01/30/jannik-sinner-novak-djokovic-australian-open-result-analysis/
 
