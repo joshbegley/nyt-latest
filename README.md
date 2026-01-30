@@ -1,3 +1,7 @@
+**Boxer Anthony Joshua breaks silence about car crash that killed 2 friends**\
+`The former Olympic gold medalist spoke on Instagram about the December tragedy on a highway in Nigeria.`\
+https://nytimes.com/athletic/7008403/2026/01/29/boxer-anthony-joshua-discusses-friends-killed/
+
 **In need of right-handed depth, Astros acquire Kai-Wei Teng from Giants: Sources**\
 `To clear a spot on the 40-man roster for Teng, Houston is designating J.P. France for assignment.`\
 https://nytimes.com/athletic/7008704/2026/01/29/astros-giants-trade-kai-wei-teng-sources/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/29/us/brendan-banfield-double-murder-trial.html
 **How to watch Alcaraz vs. Zverev, Djokovic vs. Sinner in Australian Open men's semifinals**\
 `A top-heavy semifinals promises an exhilarating ending to the 2026 Australian Open men's singles tournament. `\
 https://nytimes.com/athletic/7008247/2026/01/29/australian-open-2026-how-to-watch-djokovic-sinner-alcaraz-zverev/
-
-**‘Marty Supreme’ and the Shame Game**\
-`Wesley Morris and Sasha Weiss, a culture editor at The New York Times Magazine, talk about “Marty Supreme” and play the shame game.`\
-https://nytimes.com/video/podcasts/100000010669963/marty-supreme-and-the-shame-game.html
 
