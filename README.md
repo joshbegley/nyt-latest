@@ -1,3 +1,7 @@
+**Nottingham Forest's fringe players show their worth just as transfer frenzy hits**\
+`Igor Jesus and James McAtee were among Forest's top performers in a 4-0 win over Ferencvaros that suggested they may yet have a part to play`\
+https://nytimes.com/athletic/7008748/2026/01/30/forest-jesus-mcatee/
+
 **Jimmy Kimmel Teases ‘Melania’**\
 `The late night host said, “Not since ‘The Terminator’ has there been this much excitement for a movie about a European cyborg.”`\
 https://nytimes.com/2026/01/30/arts/television/jimmy-kimmel-melania-trump-documentary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6749261/2026/01/30/brighton-nehemiah-oriola-sarmien
 **The FPL differentials who look primed to pick up points**\
 `As the FPL premium landscape remains straightforward, the real edge lies where explosive fixtures and solid low-owned players intersect`\
 https://nytimes.com/athletic/7004179/2026/01/30/fantasy-premier-league-fpl-tips-differentials/
-
-**There is a void in the Aston Villa midfield – Douglas Luiz needs to fill it… and fast**\
-`Injuries to three first-team midfielders meant Villa had little choice but to act in the transfer window - a deal Douglas Luiz made sense `\
-https://nytimes.com/athletic/7007486/2026/01/30/douglas-luiz-aston-villa-midfield-transfer/
 
