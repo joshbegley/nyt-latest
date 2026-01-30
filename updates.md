@@ -1,3 +1,23 @@
+**Trump and First Lady Attend Amazon’s ‘Melania’ Premiere**\
+`President Trump and the first lady, along with White House officials, streamed into the Kennedy Center on Thursday for a screening of Amazon’s new documentary, “Melania.”`\
+https://nytimes.com/video/us/politics/100000010678392/melania-movie-trump-kennedy-center.html
+
+**Inside the Huge New Terminal That Will Transform J.F.K.**\
+`The 2.6-million-square-foot Terminal One, part of a multibillion-dollar redevelopment of Kennedy Airport, will be nearly as large as the Empire State Building.`\
+https://nytimes.com/2026/01/30/nyregion/jfk-airport-terminal-one.html
+
+**Snow Angels**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2026/01/30/learning/snow-angels.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/30/crosswords/spelling-bee-forum.html
+
+**Free Buses? How About Expanding the Subway by 41 Miles Instead?**\
+`In a break from Mayor Zohran Mamdani, some transit advocates are wary of a plan to subsidize bus fares and argue the money would be better spent on a major subway expansion.`\
+https://nytimes.com/2026/01/30/nyregion/mamdani-free-buses-subway.html
+
 **Trump’s Board of Peace Is Anything But**\
 `America has conveniently forgotten that it once took the world to end conflicts.`\
 https://nytimes.com/2026/01/30/opinion/trump-peace-conflict-united-nations.html

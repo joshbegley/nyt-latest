@@ -1,3 +1,23 @@
+**Trump and First Lady Attend Amazon’s ‘Melania’ Premiere**\
+`President Trump and the first lady, along with White House officials, streamed into the Kennedy Center on Thursday for a screening of Amazon’s new documentary, “Melania.”`\
+https://nytimes.com/video/us/politics/100000010678392/melania-movie-trump-kennedy-center.html
+
+**Inside the Huge New Terminal That Will Transform J.F.K.**\
+`The 2.6-million-square-foot Terminal One, part of a multibillion-dollar redevelopment of Kennedy Airport, will be nearly as large as the Empire State Building.`\
+https://nytimes.com/2026/01/30/nyregion/jfk-airport-terminal-one.html
+
+**Snow Angels**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2026/01/30/learning/snow-angels.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/30/crosswords/spelling-bee-forum.html
+
+**Free Buses? How About Expanding the Subway by 41 Miles Instead?**\
+`In a break from Mayor Zohran Mamdani, some transit advocates are wary of a plan to subsidize bus fares and argue the money would be better spent on a major subway expansion.`\
+https://nytimes.com/2026/01/30/nyregion/mamdani-free-buses-subway.html
+
 **Word of the Day: truculent**\
 `This word has appeared in 18 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/30/learning/word-of-the-day-truculent.html
@@ -17,24 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/01/30/todays-new-york-times
 **Let the Arms Race Begin**\
 `Once the New START treaty ends, we will have returned to an era without limits, when arsenals can reach unconstrained heights.`\
 https://nytimes.com/2026/01/30/opinion/nuclear-treaty-deal-start.html
-
-**Trump’s Board of Peace Is Anything But**\
-`America has conveniently forgotten that it once took the world to end conflicts.`\
-https://nytimes.com/2026/01/30/opinion/trump-peace-conflict-united-nations.html
-
-**Cunha? Mount? Amad? How Man Utd could replace Dorgu**\
-`Michael Carrick has been presented with a tactical puzzle by an injury to his impressive left-sided player`\
-https://nytimes.com/athletic/6839495/2026/01/30/man-utd-patrick-dorgu-cunha-mount-amad/
-
-**The Secret Sauce in ‘Heated Rivalry’? Canada.**\
-`The global television phenomenon is full of Canadian iconography and subsidized by Canadian taxpayers. On Thursday, it came home to celebrate.`\
-https://nytimes.com/2026/01/30/world/canada/heated-rivalry-carney-canada.html
-
-**Why Andrey Santos is the key cog in the way Liam Rosenior's Chelsea want to play**\
-`The young Brazilian is flourishing alongside Moises Caicedo in a double midfield pivot, with Rosenior having also leant on him at Strasbourg`\
-https://nytimes.com/athletic/7007379/2026/01/30/chelsea-andrey-santos-liam-rosenior-analysis/
-
-**The challenge for Oriola at Brighton is to succeed where Sarmiento could not**\
-`Dubbed an 'unbelievable talent' by Fabian Hurzeler, Nehemiah Oriola is on the cusp of the Brighton first team - can he make the next step?`\
-https://nytimes.com/athletic/6749261/2026/01/30/brighton-nehemiah-oriola-sarmiento/
 
