@@ -1,3 +1,23 @@
+**This Canucks homestand is showing that Vancouver fans can handle a rebuild**\
+`As the Canucks were on the verge of winning a game for only the third time since Christmas, Rogers Arena was loud.`\
+https://nytimes.com/athletic/7009330/2026/01/30/vancouver-canucks-game-attendance-scores-2026/
+
+**Twins mutually part ways with team president Derek Falvey**\
+`Falvey had been with the organization since 2016. `\
+https://nytimes.com/athletic/7010126/2026/01/30/derek-falvey-minnesota-twins/
+
+**Don't blame Tottenham fans if they want Manchester City to win. Blame the club**\
+`Sunday’s game brings with it an unsettling sense of deja vu for some Spurs fans — but they should not be blamed if they feel conflicted`\
+https://nytimes.com/athletic/7009570/2026/01/30/tottenham-manchester-city-fans-arsenal/
+
+**Butter-Basted Chicken Breasts Are Better Chicken Breasts**\
+`And more reader favorites from this week.`\
+https://nytimes.com/2026/01/30/dining/butter-basted-chicken-breasts-are-better-chicken-breasts.html
+
+**How Timothée Chalamet Makes His Point in ‘Marty Supreme’**\
+`The director Josh Safdie discusses a table tennis moment from his film, featuring Chalamet, Gwyneth Paltrow and Geza Rohrig.`\
+https://nytimes.com/2026/01/30/movies/marty-supreme-clip.html
+
 **Five Horror Movies to Stream Now**\
 `This month’s picks include a disastrous vacation, a macabre homecoming and a witchy healing session.`\
 https://nytimes.com/2026/01/30/movies/five-horror-movies-to-stream-now.html
@@ -17,24 +37,4 @@ https://nytimes.com/video/movies/100000010676236/marty-supreme-scene.html
 **Stock Market Takes Warsh Nomination in Stride**\
 `Stock and bond markets were unfazed by Kevin Warsh’s nomination as the next Fed chair with the S&P 500 nudging slightly lower in early trading Friday.`\
 https://nytimes.com/2026/01/30/us/politics/stock-market-kevin-warsh-fed.html
-
-**James Talarico**\
-``\
-https://nytimes.com/spotlight/james-talarico
-
-**Wesley Hunt**\
-``\
-https://nytimes.com/spotlight/wesley-hunt
-
-**Jasmine Crockett**\
-``\
-https://nytimes.com/spotlight/jasmine-crockett
-
-**Peyton List Steps Into ‘Heathers’ for Her Off Broadway Debut**\
-`She watched the movie as a teenager, now the star of “School Spirits” and “Cobra Kai” is playing the acid-tongued queen bee Heather Chandler onstage.`\
-https://nytimes.com/2026/01/30/theater/peyton-list-heathers-off-broadway.html
-
-**Bills hiring Broncos' Pete Carmichael Jr. as offensive coordinator**\
-`Carmichael previously served as the Broncos' senior offensive assistant to current head coach Sean Payton.`\
-https://nytimes.com/athletic/7009853/2026/01/30/bills-hire-pete-carmichael-oc-broncos/
 
