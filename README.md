@@ -1,3 +1,11 @@
+**Team USA women's hockey player partners with anti-trans inclusion group**\
+`Curl-Salemme's latest collaboration with FIERCE Athlete has been liked by teammates on the U.S. national team and PWHL's Minnesota Frost.`\
+https://nytimes.com/athletic/7005946/2026/01/29/britta-curl-salemme-fierce-athlete-transgender-women/
+
+**Russian cross-country skiing star Alexander Bolshunov ineligible for 2026 Olympics**\
+`The Court of Arbitration for Sport rejected Bolshunov’s last-ditch attempt to be able to compete as an Individual Neutral Athlete.`\
+https://nytimes.com/athletic/7008362/2026/01/29/olympics-2026-alexander-bolshunov-russia-cross-country-skiing/
+
 **Brad Treliving defends the Maple Leafs' approach to sports science**\
 `The GM responded to criticism over the vacant director of performance role, saying the Leafs have more staff working hands-on with players.`\
 https://nytimes.com/athletic/7007804/2026/01/29/brad-treliving-maple-leafs-sports-science/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/29/briefing/democrats-reach-a-deal-with-the-white-ho
 **Michael Beck, 65, Dies; First to Report Symptoms of ‘Havana Syndrome’**\
 `As an employee with the N.S.A., he claimed he was exposed to a direct-energy device that led to a diagnosis of Parkinson’s disease.`\
 https://nytimes.com/2026/01/29/us/michael-beck-dead.html
-
-**How to Make Friends as an Adult**\
-`A practical guide for expanding your circle, with advice from sociable people.`\
-https://nytimes.com/article/how-to-make-friends-as-an-adult.html
-
-**Dodgers' Miguel Rojas won't represent Venezuela in WBC due to insurance issues: Source**\
-`Jose Altuve and Carlos Correa of the Houston Astros also won't participate in the WBC due to insurance concerns.`\
-https://nytimes.com/athletic/7008310/2026/01/29/dodgers-miguel-rojas-wont-represent-venezuela-in-wbc-due-to-insurance-issues-source/
 
