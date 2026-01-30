@@ -1,3 +1,11 @@
+**Bayern announce Goretzka to leave club at end of season**\
+`The midfielder had been linked with a move away from Bayern this window but will instead remain in Bavaria until the summer.`\
+https://nytimes.com/athletic/7009431/2026/01/30/leon-goretzka-transfer-bayern-contract/
+
+**Dowman agrees Arsenal pre-contract to sign pro terms on 17th birthday**\
+`The 16-year-old became the second-youngest player in Premier League history in August and has made five senior appearances. `\
+https://nytimes.com/athletic/7009407/2026/01/30/max-dowman-arsenal-pre-contract-future/
+
 **Carlos Alcaraz reaches first Australian Open final after escaping Alexander Zverev in seesaw match**\
 `Alcaraz led 2-0, 4-4 when he appeared to hurt his upper-right leg stretching for a volley. He still came back to win an epic.`\
 https://nytimes.com/athletic/7008361/2026/01/30/carlos-alcaraz-alexander-zverev-australian-open-result-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/30/crosswords/spelling-bee-forum.html
 **Free Buses? How About Expanding the Subway by 41 Miles Instead?**\
 `In a break from Mayor Zohran Mamdani, some transit advocates are wary of a plan to subsidize bus fares and argue the money would be better spent on a major subway expansion.`\
 https://nytimes.com/2026/01/30/nyregion/mamdani-free-buses-subway.html
-
-**Word of the Day: truculent**\
-`This word has appeared in 18 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/01/30/learning/word-of-the-day-truculent.html
-
-**Nottingham Forest's fringe players show their worth just as transfer frenzy hits**\
-`Igor Jesus and James McAtee were among Forest's top performers in a 4-0 win over Ferencvaros that suggested they may yet have a part to play`\
-https://nytimes.com/athletic/7008748/2026/01/30/forest-jesus-mcatee/
 

@@ -1,3 +1,11 @@
+**Bayern announce Goretzka to leave club at end of season**\
+`The midfielder had been linked with a move away from Bayern this window but will instead remain in Bavaria until the summer.`\
+https://nytimes.com/athletic/7009431/2026/01/30/leon-goretzka-transfer-bayern-contract/
+
+**Dowman agrees Arsenal pre-contract to sign pro terms on 17th birthday**\
+`The 16-year-old became the second-youngest player in Premier League history in August and has made five senior appearances. `\
+https://nytimes.com/athletic/7009407/2026/01/30/max-dowman-arsenal-pre-contract-future/
+
 **Carlos Alcaraz reaches first Australian Open final after escaping Alexander Zverev in seesaw match**\
 `Alcaraz led 2-0, 4-4 when he appeared to hurt his upper-right leg stretching for a volley. He still came back to win an epic.`\
 https://nytimes.com/athletic/7008361/2026/01/30/carlos-alcaraz-alexander-zverev-australian-open-result-analysis/
