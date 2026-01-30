@@ -1,3 +1,7 @@
+**Brighton's Baleba is playing with 'more freedom', Hurzeler says**\
+`The 22-year-old had been out of form before the tournament, where he helped Cameroon to a quarter-final finish.`\
+https://nytimes.com/athletic/7009474/2026/01/30/carlos-baleba-brighton-freedom-afcon-hurzeler/
+
 **Trump Administration Live Updates: Kevin Warsh Is Expected to Be Named Fed Chair**\
 ``\
 https://nytimes.com/live/2026/01/30/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7005022/2026/01/30/nfl-anonymous-player-poll-tom-br
 **Lindsey Jacobellis heard all the noise over five Olympics. Now it's her turn to talk**\
 `An infamous crash in 2006 put Jacobellis under the microscope. In 2022, she got her gold. Now, she's ready for the next chapter.`\
 https://nytimes.com/athletic/7007426/2026/01/30/lindsey-jacobellis-olympics-nbc-broadcaster-snowboard-cross/
-
-**The New York Times International Edition in Print for Saturday, Jan. 31, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/01/30/todays-new-york-times-international-edition
 
