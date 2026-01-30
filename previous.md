@@ -1,3 +1,19 @@
+**Trump Weighs New Military Options Against Iran**\
+`The plans being weighed by the president go beyond those he considered weeks ago amid widespread protests against Iran’s government.`\
+https://nytimes.com/2026/01/29/us/trump-military-options-against-iran.html
+
+**Husband Denies Plot in Double Murder Trial, Calling Accusations ‘Crazy’**\
+`Brendan Banfield rebuffed claims that he had made an elaborate plan for the killings with the family’s au pair, with whom he had an affair.`\
+https://nytimes.com/2026/01/29/us/brendan-banfield-double-murder-trial.html
+
+**How to watch Alcaraz vs. Zverev, Djokovic vs. Sinner in Australian Open men's semifinals**\
+`A top-heavy semifinals promises an exhilarating ending to the 2026 Australian Open men's singles tournament. `\
+https://nytimes.com/athletic/7008247/2026/01/29/australian-open-2026-how-to-watch-djokovic-sinner-alcaraz-zverev/
+
+**‘Marty Supreme’ and the Shame Game**\
+`Wesley Morris and Sasha Weiss, a culture editor at The New York Times Magazine, talk about “Marty Supreme” and play the shame game.`\
+https://nytimes.com/video/podcasts/100000010669963/marty-supreme-and-the-shame-game.html
+
 **Doc Rivers brushes off Jae Crowder's criticism for Bucks' fall, citing playing time**\
 `With Giannis Antetokounmpo rumours swirling, an ex-Buck decided to bring up an old gripe about his coach. `\
 https://nytimes.com/athletic/7008433/2026/01/29/doc-rivers-jae-crowder-milwaukee-bucks-nba/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/29/business/media/washington-post-newsroom.html
 **Can Trust in Vaccines Be Built Through Skepticism?**\
 `Is the Trump administration reviving confidence in vaccination or destroying it? Dr. Jay Bhattacharya, the director of the N.I.H., thinks an embrace of skepticism is key.`\
 https://nytimes.com/video/opinion/100000010665145/can-trust-in-vaccines-be-built-through-skepticism.html
-
-**Who Was at the ‘Melania’ Premiere?**\
-`Top White House officials streamed into the Kennedy Center on Thursday to see Amazon’s new documentary about the first lady, Melania Trump.`\
-https://nytimes.com/2026/01/29/style/melania-trump-movie-kennedy-center-premiere.html
-
-**Kennedy Overhauls Federal Autism Panel in His Own Image**\
-`The new panel, which advises the government on research and service priorities for people with autism, includes many members who have argued that vaccines cause the disorder.`\
-https://nytimes.com/2026/01/29/health/autism-panel-kennedy-iacc.html
-
-**What Domestic Terrorism Means, and Doesn’t**\
-`The Trump administration has called the Minneapolis shooting victims “domestic terrorists.” Our criminal justice reporter Jonah E. Bromwich explains what that term actually means.`\
-https://nytimes.com/video/us/100000010669504/what-domestic-terrorism-means-and-doesnt.html
-
-**Team USA women's hockey player partners with anti-trans inclusion group**\
-`Curl-Salemme's latest collaboration with FIERCE Athlete has been liked by teammates on the U.S. national team and PWHL's Minnesota Frost.`\
-https://nytimes.com/athletic/7005946/2026/01/29/britta-curl-salemme-fierce-athlete-transgender-women/
 

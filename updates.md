@@ -1,3 +1,19 @@
+**Trump Weighs New Military Options Against Iran**\
+`The plans being weighed by the president go beyond those he considered weeks ago amid widespread protests against Iran’s government.`\
+https://nytimes.com/2026/01/29/us/trump-military-options-against-iran.html
+
+**Husband Denies Plot in Double Murder Trial, Calling Accusations ‘Crazy’**\
+`Brendan Banfield rebuffed claims that he had made an elaborate plan for the killings with the family’s au pair, with whom he had an affair.`\
+https://nytimes.com/2026/01/29/us/brendan-banfield-double-murder-trial.html
+
+**How to watch Alcaraz vs. Zverev, Djokovic vs. Sinner in Australian Open men's semifinals**\
+`A top-heavy semifinals promises an exhilarating ending to the 2026 Australian Open men's singles tournament. `\
+https://nytimes.com/athletic/7008247/2026/01/29/australian-open-2026-how-to-watch-djokovic-sinner-alcaraz-zverev/
+
+**‘Marty Supreme’ and the Shame Game**\
+`Wesley Morris and Sasha Weiss, a culture editor at The New York Times Magazine, talk about “Marty Supreme” and play the shame game.`\
+https://nytimes.com/video/podcasts/100000010669963/marty-supreme-and-the-shame-game.html
+
 **Doc Rivers brushes off Jae Crowder's criticism for Bucks' fall, citing playing time**\
 `With Giannis Antetokounmpo rumours swirling, an ex-Buck decided to bring up an old gripe about his coach. `\
 https://nytimes.com/athletic/7008433/2026/01/29/doc-rivers-jae-crowder-milwaukee-bucks-nba/
