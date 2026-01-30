@@ -1,3 +1,11 @@
+**Where the U.S. Is Building Up Military Force Near Iran**\
+`President Trump has not authorized military action in Iran, but the U.S. has built up its presence in the region in recent days.`\
+https://nytimes.com/2026/01/29/us/politics/trump-iran-us-military-maps.html
+
+**Robert Saleh takes on Titans' coaching job armed with lessons from Jets tenure**\
+`Despite the turmoil during his time with the Jets, Saleh reflects fondly on his tenure there: "I am as lucky as lucky gets."`\
+https://nytimes.com/athletic/7008519/2026/01/29/robert-saleh-titans-coach-jets/
+
 **Falcons hiring Ian Cunningham as general manager: Source**\
 `Cunningham has been the assistant GM of the Bears for the last four seasons and was a part of Super Bowl wins with the Ravens and Eagles.`\
 https://nytimes.com/athletic/6983326/2026/01/29/ian-cunningham-falcons-general-manager-hire/
