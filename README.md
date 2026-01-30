@@ -1,3 +1,15 @@
+**Aston Villa boss Emery plays down Watkins injury fears**\
+`Watkins was forced off after 35 minutes of Aston Villa's 3-2 win over RB Salzburg on Thursday.`\
+https://nytimes.com/athletic/7008329/2026/01/30/ollie-watkins-injury-aston-villa-salzburg/
+
+**Djokovic stuns Sinner with vintage Australian Open performance to move one win from 25 Grand Slams**\
+`The 24-time Grand Slam champion needed five sets of relentless spot-serving and battering-ram forehands to overwhelm his recent nemesis.`\
+https://nytimes.com/athletic/7008360/2026/01/30/jannik-sinner-novak-djokovic-australian-open-result-analysis/
+
+**Sunderland's Xhaka to miss 'three more weeks' due to ankle injury - Le Bris**\
+`Xhaka will miss several key fixtures, including a return to the Emirates Stadium to face former side Arsenal on February 7.`\
+https://nytimes.com/athletic/7009807/2026/01/30/xhaka-news-sunderland-injury-update/
+
 **Tips for Lowering Your Credit Card Interest Rate**\
 `The first step, consumer finance experts say, is to ask your card issuer to reduce the rate. And with average balances now $6,500, consider using your tax refund to put a dent in the debt.`\
 https://nytimes.com/2026/01/30/your-money/credit-card-debt-interest-rates.html
@@ -21,20 +33,4 @@ https://nytimes.com/2026/01/30/world/europe/uk-royal-mail-post-service-delays.ht
 **How to watch Vanderbilt vs. Ole Miss women's basketball: Time, TV, streaming**\
 `Find out how to watch the Vanderbilt Commodores play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7009732/2026/01/30/vanderbilt-vs-ole-miss-stream-how-to-watch-jan-30/
-
-**Arsenal v Manchester City title race: Gunners chances down 17% ahead of February fixtures**\
-`Arsenal's chances of winning the title have taken a tumble; how are they and Manchester City shaping up across the key month of February?`\
-https://nytimes.com/athletic/7009492/2026/01/30/arsenal-v-manchester-city-title-race-fixture-analysis-as-gunners-chances-slip-by-17/
-
-**Federal Agents Arrest Don Lemon Over Minnesota Church Protest**\
-`The former CNN anchor has said he was not demonstrating, but reporting as a journalist, during the interruption of a service inside a St. Paul church earlier this month.`\
-https://nytimes.com/2026/01/30/us/don-lemon-arrest-minnesota-church-protest.html
-
-**Iran Says It Won’t Negotiate With the U.S. While Under Threat**\
-`Iran’s foreign minister ruled out direct talks unless President Trump stops threatening to attack it. He also said Iran would not discuss its ballistic missiles.`\
-https://nytimes.com/2026/01/30/world/europe/iran-trump-us-threats-turkey.html
-
-**Steelers set to hire Patrick Graham as defensive coordinator: Sources**\
-`It is arguably the most important position on new head coach Mike McCarthy's first Steelers coaching staff.`\
-https://nytimes.com/athletic/6999947/2026/01/30/patrick-graham-pittsburgh-steelers-dc/
 
