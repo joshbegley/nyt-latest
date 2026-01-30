@@ -1,4 +1,16 @@
-**A's agree to seven-year, $70M extension with Jacob Wilson: Source**\
+**Ghislaine Maxwell appeared to receive a chummy missive in 2002 from a ‘Melania.’**\
+`Jeffrey Epstein’s longtime companion and the future first lady, Melania Trump, were known to have socialized together in that period.`\
+https://nytimes.com/live/2026/01/30/us/epstein-files-release/ghislaine-maxwell-appeared-to-receive-a-chummy-missive-in-2002-from-a-melania
+
+**Feds Release Document of Tips Mentioning Trump and Epstein**\
+`This summer, federal investigators assembled a summary of accusations against Mr. Trump that had come in through the agency’s public tip line. The Times has not corroborated the allegations.`\
+https://nytimes.com/2026/01/30/us/trump-epstein-tips-fed.html
+
+**An Unexpected Song for This Moment**\
+`Wesley Morris talks about Minneapolis, pain and the 1984 song “Unsatisfied” by The Replacements.`\
+https://nytimes.com/video/podcasts/100000010679633/an-unexpected-song-for-this-moment.html
+
+**A's agree to seven-year, $70M extension with Jacob Wilson**\
 `Wilson is the second high-profile A's player to sign a long-term extension with the team this offseason.`\
 https://nytimes.com/athletic/7010762/2026/01/30/athletics-jacob-wilson-extension/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7010814/2026/01/30/clippers-vs-nuggets-stream-how-t
 **How to watch Blue Jackets vs. Blackhawks: Time, TV, streaming**\
 `Find out how to watch the Columbus Blue Jackets play the Chicago Blackhawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7010812/2026/01/30/blue-jackets-vs-blackhawks-stream-how-to-watch-jan-30/
-
-**How to watch Kings vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7010806/2026/01/30/kings-vs-celtics-stream-how-to-watch-jan-30/
-
-**How to watch Raptors vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7010803/2026/01/30/raptors-vs-magic-stream-how-to-watch-jan-30/
-
-**How to watch Cavaliers vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7010801/2026/01/30/cavaliers-vs-suns-stream-how-to-watch-jan-30/
 

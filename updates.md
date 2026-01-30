@@ -1,3 +1,7 @@
+**A's agree to seven-year, $70M extension with Jacob Wilson: Source**\
+`Wilson is the second high-profile A's player to sign a long-term extension with the team this offseason.`\
+https://nytimes.com/athletic/7010762/2026/01/30/athletics-jacob-wilson-extension/
+
 **Hotel Owners and Workers, Tell Us How You’re Feeling**\
 `With hotels increasingly caught between the federal government’s immigration crackdown and protests against ICE, we want to hear how it’s affecting you.`\
 https://nytimes.com/2026/01/30/travel/ice-hotels-immigration.html
