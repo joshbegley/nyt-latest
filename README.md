@@ -1,3 +1,11 @@
+**How to watch Alcaraz vs. Zverev, Djokovic vs. Sinner in Australian Open men's semifinals**\
+`A top-heavy semifinals promises an exhilarating ending to the 2026 Australian Open men's singles tournament. `\
+https://nytimes.com/athletic/7008247/2026/01/29/australian-open-2026-how-to-watch-djokovic-sinner-alcaraz-zverev/
+
+**‘Marty Supreme’ and the Shame Game**\
+`Wesley Morris and Sasha Weiss, a culture editor at The New York Times Magazine, talk about “Marty Supreme” and play the shame game.`\
+https://nytimes.com/video/podcasts/100000010669963/marty-supreme-and-the-shame-game.html
+
 **Doc Rivers brushes off Jae Crowder's criticism for Bucks' fall, citing playing time**\
 `With Giannis Antetokounmpo rumours swirling, an ex-Buck decided to bring up an old gripe about his coach. `\
 https://nytimes.com/athletic/7008433/2026/01/29/doc-rivers-jae-crowder-milwaukee-bucks-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/29/style/melania-trump-movie-kennedy-center-premiere
 **Kennedy Overhauls Federal Autism Panel in His Own Image**\
 `The new panel, which advises the government on research and service priorities for people with autism, includes many members who have argued that vaccines cause the disorder.`\
 https://nytimes.com/2026/01/29/health/autism-panel-kennedy-iacc.html
-
-**What Domestic Terrorism Means, and Doesn’t**\
-`The Trump administration has called the Minneapolis shooting victims “domestic terrorists.” Our criminal justice reporter Jonah E. Bromwich explains what that term actually means.`\
-https://nytimes.com/video/us/100000010669504/what-domestic-terrorism-means-and-doesnt.html
-
-**Team USA women's hockey player partners with anti-trans inclusion group**\
-`Curl-Salemme's latest collaboration with FIERCE Athlete has been liked by teammates on the U.S. national team and PWHL's Minnesota Frost.`\
-https://nytimes.com/athletic/7005946/2026/01/29/britta-curl-salemme-fierce-athlete-transgender-women/
 
