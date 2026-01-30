@@ -1,3 +1,7 @@
+**Derrick Rose not interested in Bulls statue outside United Center**\
+`Rose had his jersey retired by the Bulls at a ceremony last week.`\
+https://nytimes.com/athletic/7010409/2026/01/30/derrick-rose-bulls-statue/
+
 **The Hidden Engine of E-Commerce**\
 `How A.I.-powered checkouts unlock growth.
 `\
