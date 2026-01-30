@@ -1,3 +1,7 @@
+**Red-hot Penguins steamroll Blackhawks as winning streak hits five games**\
+`Connor Dewar scored twice, while Ryan Shea and Egor Chinakhov made dazzling plays for their own goals.`\
+https://nytimes.com/athletic/7006171/2026/01/29/penguins-win-streak-dewar-mantha-blackhawks/
+
 **Trump Threatens Canada Over Business Jet Dispute**\
 `The president said he would restrict the use of Canadian-built aircraft and impose a 50 percent on them until the dispute was resolved.`\
 https://nytimes.com/2026/01/29/us/politics/trump-canada-aircraft-decertify.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7008756/2026/01/29/jack-hughes-devils-olympics-team
 **Newsom Files Civil Rights Complaint Against Dr. Oz Over Fraud Video**\
 `Dr. Mehmet Oz, a top federal health official, posted a video that accuses Armenian Americans in California of health care fraud.`\
 https://nytimes.com/2026/01/29/us/newsom-oz-fraud-armenians.html
-
-**War Threats and Ambiguous Evidence: Trump Again Confronts Iran**\
-`There is little sign that Iran has made significant progress in reconstituting its nuclear program, leaving questions about the timing and motive behind potential plans for further attacks.`\
-https://nytimes.com/2026/01/29/us/politics/trump-iran-israel-intel.html
 
