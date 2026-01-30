@@ -1,3 +1,19 @@
+**Peyton List Steps Into ‘Heathers’ for Her Off Broadway Debut**\
+`She watched the movie as a teenager, now the star of “School Spirits” and “Cobra Kai” is playing the acid-tongued queen bee Heather Chandler onstage.`\
+https://nytimes.com/2026/01/30/theater/peyton-list-heathers-off-broadway.html
+
+**Bills hiring Broncos' Pete Carmichael Jr. as offensive coordinator**\
+`Carmichael previously served as the Broncos' senior offensive assistant to current head coach Sean Payton.`\
+https://nytimes.com/athletic/7009853/2026/01/30/bills-hire-pete-carmichael-oc-broncos/
+
+**Rosenior says Chelsea's Colwill could play again this season after ACL injury**\
+`Colwill sustained the injury on the first day of pre-season training in early August.`\
+https://nytimes.com/athletic/7009973/2026/01/30/levi-colwill-chelsea-injury-latest/
+
+**Is the ‘Influencer Right’ at Odds With Trump Over Minnesota?**\
+`A vocal group of Trump supporters broke with the president when he appeared to backpedal on his immigration crackdown in Minneapolis. Is it a rift, or just a passing mood?`\
+https://nytimes.com/2026/01/30/style/maga-trump-base-minnesota.html
+
 **10 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://nytimes.com/2026/01/30/movies/new-movies-this-week-critics.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7009918/2026/01/30/tottenham-antoine-semenyo-manche
 **A Closer Look at the Grammys’ Top Nominees**\
 `Superstars like Bad Bunny and Lady Gaga are returning to the awards, while newcomers including Olivia Dean and Addison Rae will be celebrating their first nominations. `\
 https://nytimes.com/card/2026/01/30/arts/music/grammy-nominees-photos
-
-**The Netherlands Is Getting a New Government. Will It Last?**\
-`Rob Jetten, a 38-year-old centrist, is poised to be the youngest prime minister in Dutch history. But his government will be in a daunting position.`\
-https://nytimes.com/2026/01/30/world/europe/netherlands-government-rob-jetten.html
-
-**The Bounce: Let's make some fake Giannis trades! Plus, the Wolves hammer OKC**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7009822/2026/01/30/giannis-trades-bucks-heat-warriors-knicks-the-bounce/
-
-**Aston Villa boss Emery plays down Watkins injury fears**\
-`Watkins was forced off after 35 minutes of Aston Villa's 3-2 win over RB Salzburg on Thursday.`\
-https://nytimes.com/athletic/7008329/2026/01/30/ollie-watkins-injury-aston-villa-salzburg/
-
-**Novak Djokovic stuns Jannik Sinner at Australian Open to move one win from 25 Grand Slams**\
-`The 24-time Grand Slam champion needed five sets of relentless spot-serving and battering-ram forehands to overwhelm his recent nemesis.`\
-https://nytimes.com/athletic/7008360/2026/01/30/jannik-sinner-novak-djokovic-australian-open-result-analysis/
 
