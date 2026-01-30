@@ -1,3 +1,15 @@
+**Jaden McDaniels shows why it would be hard for Wolves to trade him in win over Thunder**\
+`McDaniels, a consummate pro, scored 21 points and hit all five of his 3s in a win over the defending champs.`\
+https://nytimes.com/athletic/7007546/2026/01/30/jaden-mcdaniels-timberwolves-thunder-trade-rumors/
+
+**Fantasy Premier League live Q&A: Gameweek 24 advice from Ben Dinnery**\
+`To help get your FPL team into the best possible shape, Ben Dinnery of premierinjuries.com is on hand to offer his expert advice`\
+https://nytimes.com/athletic/7009502/2026/01/30/fantasy-premier-league-live-qa-gameweek-24-advice-from-ben-dinnery/
+
+**Dodgers' Andrew Friedman is bullish on his club's rotation. Here's why**\
+`Hunting for a three-peat, the Dodgers will open camp with perhaps their best and deepest rotations.`\
+https://nytimes.com/athletic/7008379/2026/01/30/los-angeles-dodgers-friedman-rotation-overview/
+
 **Champions League play-off draw analysed: Benfica v Real Madrid again and a French first**\
 `Our writers analyse the draw and what it means for the rest of this Champions League campaign`\
 https://nytimes.com/athletic/7009390/2026/01/30/champions-league-play-off-draw-analysed/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7009387/2026/01/30/sleeping-pills-champions-league-
 **NBA weekend watch guide: Lakers-Knicks, Thunder-Nuggets, Wemby in the wasp nest**\
 `Here's what to look forward to, and a few trade deadline crossovers to throw it back.`\
 https://nytimes.com/athletic/7005868/2026/01/30/nba-schedule-lakers-knicks-thunder-nuggets-watch-guide/
-
-**Minneapolis Live Updates: Wave of Protests Is Expected Against Immigration Crackdown**\
-`The Trump administration has faced intense backlash after the killings of Renee Good and Alex Pretti by federal agents.`\
-https://nytimes.com/live/2026/01/30/us/minnesota-ice-protests-minneapolis
-
-**Canada’s Prime Minister Meets ‘Heated Rivalry’ Star on Red Carpet**\
-`The actor Hudson Williams gifted Prime Minister Mark Carney a fictional Canada Olympic Team fleece jacket that his character wore on “Heated Rivalry,” which has become a global phenomenon.`\
-https://nytimes.com/video/world/canada/100000010678894/heated-rivalry-canada-carney-hudson-williams.html
-
-**Yankees mailbag: Trade Jasson Domínguez? Opening Day lineup thoughts and more**\
-`With spring training nearly here, Yankees fans have questions about where this roster stands. Let's answer some of them. `\
-https://nytimes.com/athletic/7001919/2026/01/30/yankees-lineup-trade-jasson-dominguez/
 
