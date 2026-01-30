@@ -1,3 +1,7 @@
+**In a Bid to Kick-Start Growth, Britain Turns to China**\
+`Buffeted by tariffs and trade tensions, Prime Minister Keir Starmer took British business leaders to China and emerged with deals on visas and Scotch whisky, as well as pledges to deepen ties.`\
+https://nytimes.com/2026/01/30/business/uk-china-trade-business-starmer-xi.html
+
 **How The Times Is Covering the Latest Release of Epstein Files**\
 `Several reporters and editors have covered the case since 2019. Others report on the Justice Department, Congress, the White House and the federal court system.`\
 https://nytimes.com/2026/01/30/us/how-the-times-is-covering-the-latest-release-of-epstein-files.html
@@ -29,12 +33,4 @@ https://nytimes.com/2026/01/30/us/politics/justice-dept-civil-rights-pretti.html
 **Don Lemon And Others Arrested Over Minnesota Church Protest**\
 `Don Lemon and three others, including independent journalist Georgia Fort, were arrested on charges that they had violated federal law during the church protest in St. Paul, Minn. this month.`\
 https://nytimes.com/video/us/politics/100000010679001/don-lemon-ice-minnesota-trump.html
-
-**Epstein Documents Include Many Uncorroborated Tips**\
-`The F.B.I. receives a huge volume of tips, and descriptions of them generally do not offer indications of the credibility of any claim.`\
-https://nytimes.com/2026/01/30/us/epstein-documents-uncorroborated-tips.html
-
-**Car Hits High School Student in Nebraska During an Anti-ICE Protest**\
-`A video showed a driver with a “Trump 2024” flag mounted to the car’s rear window driving into a girl who was holding a poster.`\
-https://nytimes.com/2026/01/30/us/high-school-student-ice-protes-nebraska.html
 
