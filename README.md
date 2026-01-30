@@ -1,40 +1,40 @@
-**Minnesota United's Joaquin Pereyra 'scared' by immigration crackdown**\
-`The federal government has deployed agents to the Twin Cities in large numbers over the past month, leaving many residents fearful.`\
-https://nytimes.com/athletic/7010291/2026/01/30/ice-minnesota-united-joaquin-pereyra/
+**How to watch Kings vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7010806/2026/01/30/kings-vs-celtics-stream-how-to-watch-jan-30/
 
-**Epstein Notes Suggested Bill Gates Engaged in Extramarital Sex**\
-`It is unclear if Mr. Epstein sent the July 2013 emails to the Microsoft founder. A representative of the Gates Foundation said their claims were “absolutely absurd and completely false.”`\
-https://nytimes.com/2026/01/30/us/bill-gates-epstein.html
+**How to watch Raptors vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7010803/2026/01/30/raptors-vs-magic-stream-how-to-watch-jan-30/
 
-**Hochul Seeks to Bar N.Y. Police From Helping ICE on Non-Criminal Issues**\
-`Gov. Kathy Hochul said she would propose legislation so the federal government could not “weaponize” local officers to enforce civil immigration laws.`\
-https://nytimes.com/2026/01/30/nyregion/kathy-hochul-ice-new-york.html
+**How to watch Cavaliers vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7010801/2026/01/30/cavaliers-vs-suns-stream-how-to-watch-jan-30/
 
-**The Case for More Immigrants**\
-`The crackdown on immigrants is often sold as a benefit to citizens, but the columnist Jamelle Bouie argues it’s an economic self-injury and a moral failure.`\
-https://nytimes.com/video/opinion/100000010679666/the-case-for-more-immigrants.html
+**How to watch Nets vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7010799/2026/01/30/nets-vs-jazz-stream-how-to-watch-jan-30/
 
-**Extra-Green Pasta Salad**\
-`This vibrant green pasta salad gets its color from a combination of spinach and basil, but you can swap the spinach for arugula for a more peppery finish.`\
-https://nytimes.com/video/dining/100000010368944/extra-green-pasta-salad.html
+**How to watch Grizzlies vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7010792/2026/01/30/grizzlies-vs-pelicans-stream-how-to-watch-jan-30/
 
-**Hot Honey Chicken**\
-`Breaded with a seasoned cornflake mixture then baked, these chicken cutlets are spicy and sweet thanks to a drizzle of homemade hot honey.`\
-https://nytimes.com/video/dining/100000010368880/hot-honey-chicken.html
+**How to watch Pistons vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7010790/2026/01/30/pistons-vs-warriors-stream-how-to-watch-jan-30/
 
-**9 Mayors Discuss Safety and Trust in Their Cities Under Trump**\
-`The nation’s mayors gathered in Washington this week, and Minneapolis has dominated the conversation.`\
-https://nytimes.com/2026/01/30/us/us-mayors-minnesota-ice-trump.html
+**D.O.J. Releases More Epstein Files, Says It Did Not Protect Trump**\
+`The Justice Department on Friday released its largest batch of documents, videos, and photos from its Jeffrey Epstein files to date. Todd Blanche, a top official, repeatedly defended the administration to quash accusations and speculation swirling around the case.`\
+https://nytimes.com/video/us/politics/100000010680099/doj-trump-epstein-files-todd-blanche.html
 
-**Commerce Secretary Howard Lutnick Planned Trip to Epstein’s Island**\
-`Prominent people have been scrutinized for their visits to Jeffrey Epstein’s island in the Caribbean. Mr. Lutnick’s visit had not been previously disclosed.`\
-https://nytimes.com/2026/01/30/us/howard-lutnick-epstein-island.html
+**How to watch Michigan vs. Michigan State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7010777/2026/01/30/michigan-vs-michigan-state-stream-how-to-watch-jan-30/
 
-**Kids Sent Us Antarctica Questions. Here Are the Answers.**\
-`Do snowy owls live in Antarctica? What’s the most alarming measurement scientists are watching for? What do you eat and drink? Our climate reporter Raymond Zhong answers some questions from students around the world.`\
-https://nytimes.com/video/climate/100000010659109/kids-sent-us-antarctica-questions-here-are-the-answers.html
+**How to watch Dayton vs. Saint Louis men's basketball: Time, TV, streaming**\
+`Find out how to watch the Dayton Flyers play the Saint Louis Billikens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7010774/2026/01/30/dayton-vs-saint-louis-stream-how-to-watch-jan-30/
 
-**Texas May Be Losing Its Grip as America’s Fastest-Growing State**\
-`Long accustomed to rapid growth, Texas saw the overall number of people moving from other states sink to its lowest level in two decades, census estimates show.`\
-https://nytimes.com/2026/01/30/us/texas-population-growth-migration-census.html
+**Lindsey Vonn knows one speed. Now she'll need it for an Olympic-sized comeback attempt**\
+`Friday's injury could spell the end of Vonn's Olympic dreams. If there's a comeback to be had, though, there are few better suited to do it.`\
+https://nytimes.com/athletic/7009760/2026/01/30/lindsey-vonn-olympics-injury-crash-switzerland/
 
