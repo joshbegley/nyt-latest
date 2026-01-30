@@ -1,3 +1,7 @@
+**Escape to Alcatraz: Coyote Swims a Mile in Search of New Turf**\
+`The coyote struggled onto the rocky shore this month. It is the first documented coyote on Alcatraz since the island was transferred to the National Park Service in 1972.`\
+https://nytimes.com/2026/01/30/us/coyote-swims-alcatraz-san-francisco.html
+
 **Justice Dept. Opens Civil Rights Inquiry Into Minneapolis Killing**\
 `Also, Kevin Warsh is Trump’s pick to lead the Fed. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2026/01/30/briefing/justice-dept-pretti-killing-fed-chair.html
