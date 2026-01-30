@@ -1,3 +1,27 @@
+**Justice Dept. Opens Civil Rights Inquiry Into Minneapolis Killing**\
+`Also, Kevin Warsh is Trump’s pick to lead the Fed. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2026/01/30/briefing/justice-dept-pretti-killing-fed-chair.html
+
+**The 2.1.26 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/01/30/the-2126-issue
+
+**David Robertson retires after 17-year career as reliever for 8 teams**\
+`Robertson saved 179 games. He debuted for the Yankees in 2008 and pitched for the Phillies in 2025, his age-40 season. `\
+https://nytimes.com/athletic/7011164/2026/01/30/david-robertson-retirement-17-seasons-yankees-phillies-white-sox/
+
+**Greg Biffle was not flying plane in crash that killed him and 6 others: NTSB**\
+`The report said the flight lacked the required two pilots fully qualified to fly the aircraft.`\
+https://nytimes.com/athletic/7011087/2026/01/30/greg-biffle-nascar-ntsb-crash-report/
+
+**Catherine O’Hara: A Life in Pictures**\
+`The Canadian actress’s career spanned decades and genres, including memorable roles in “Home Alone” and “Schitt’s Creek.”`\
+https://nytimes.com/2026/01/30/arts/television/catherine-ohara-death-photos.html
+
+**Musk and Epstein Exchanged Emails About Visiting One Another, Documents Show**\
+`Mr. Musk has tried to put distance between himself and the disgraced financier Jeffrey Epstein, but emails show the two were on friendly terms.`\
+https://nytimes.com/2026/01/30/us/musk-and-epstein-exchanged-emails-about-visiting-one-another-new-documents-show.html
+
 **Musk and Epstein exchanged emails about visiting one another, new documents show.**\
 `Mr. Musk, who sought to tie President Trump to Mr. Epstein during a feud last year, has tried to distance himself from the sex offender.`\
 https://nytimes.com/2026/01/30/us/musk-and-epstein-exchanged-emails-about-visiting-one-another-new-documents-show.html

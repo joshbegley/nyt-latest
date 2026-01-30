@@ -1,3 +1,7 @@
+**Escape to Alcatraz: Coyote Swims a Mile in Search of New Turf**\
+`The coyote struggled onto the rocky shore this month. It is the first documented coyote on Alcatraz since the island was transferred to the National Park Service in 1972.`\
+https://nytimes.com/2026/01/30/us/coyote-swims-alcatraz-san-francisco.html
+
 **Justice Dept. Opens Civil Rights Inquiry Into Minneapolis Killing**\
 `Also, Kevin Warsh is Trump’s pick to lead the Fed. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2026/01/30/briefing/justice-dept-pretti-killing-fed-chair.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7010983/2026/01/30/nashville-storm-bridgestone-aren
 **Trump’s Lawsuit Against I.R.S. Creates ‘Enormous Conflict of Interest’**\
 `The president is demanding that the federal government pay him at least $10 billion over the unauthorized disclosure of his tax returns during his first term.`\
 https://nytimes.com/2026/01/30/us/politics/trump-lawsuit-irs-taxes.html
-
-**Catherine O’Hara, Actress in ‘Home Alone’ and ‘Schitt’s Creek,’ Dies at 71**\
-`The Emmy-winning comedian Catherine O’Hara, best known for her roles in “Home Alone,” “Schitt’s Creek” and “Beetlejuice,” and as a member of the influential Canadian sketch comedy series “S.C.T.V,” died at the age of 71.`\
-https://nytimes.com/video/us/100000010680112/actress-catherine-ohara-dies.html
 
