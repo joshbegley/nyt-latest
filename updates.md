@@ -1,4 +1,12 @@
 **Jack Hughes leaves Devils game in first period two weeks before Olympics**\
+`Team USA is scheduled to begin Olympic play on Feb. 12 in a preliminary game against Latvia on the tournament's second day. `\
+https://nytimes.com/athletic/7008756/2026/01/29/jack-hughes-devils-olympics-team-usa/
+
+**Falcons hiring Ian Cunningham as general manager**\
+`Cunningham has been the assistant GM of the Bears for the last four seasons and was a part of Super Bowl wins with the Ravens and Eagles.`\
+https://nytimes.com/athletic/6983326/2026/01/29/ian-cunningham-falcons-general-manager-hire/
+
+**Jack Hughes leaves Devils game in first period two weeks before Olympics**\
 `Team USA is scheduled to begin Olympic play on Feb. 12 in a preliminary game against Latvia.`\
 https://nytimes.com/athletic/7008756/2026/01/29/jack-hughes-devils-olympics-team-usa/
 
