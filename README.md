@@ -1,40 +1,40 @@
-**Livramento 'doing well', on course for March return from injury**\
-`Captain Bruno Guimaraes is in contention to play against Liverpool after missing the last two matches with an ankle problem.`\
-https://nytimes.com/athletic/7009430/2026/01/30/newcastle-injuries-livramento-guimaraes/
+**Drake Maye may have to turn back into Superman for Patriots to beat Seahawks**\
+`Maye hasn't looked like himself in the playoffs. He'll likely have to be better for the Patriots to have a real chance in the Super Bowl.`\
+https://nytimes.com/athletic/7008126/2026/01/30/drake-maye-patriots-superman-seahawks-super-bowl/
 
-**Bayern announce Goretzka to leave club at end of season**\
-`The midfielder had been linked with a move away from Bayern this window but will instead remain in Bavaria until the summer.`\
-https://nytimes.com/athletic/7009431/2026/01/30/leon-goretzka-transfer-bayern-contract/
+**How to Break Free From Guilt**\
+`It can prompt you to do the right thing, but it can also drag you down.`\
+https://nytimes.com/2026/01/30/well/guilt-anxiety-tips.html
 
-**Dowman agrees Arsenal pre-contract to sign pro terms on 17th birthday**\
-`The 16-year-old became the second-youngest player in Premier League history in August and has made five senior appearances. `\
-https://nytimes.com/athletic/7009407/2026/01/30/max-dowman-arsenal-pre-contract-future/
+**How the World Sees America, With Adam Tooze**\
+`The historian Adam Tooze discusses Davos, China and the fading of an old world order.`\
+https://nytimes.com/2026/01/30/opinion/ezra-klein-podcast-adam-tooze.html
 
-**Carlos Alcaraz reaches first Australian Open final after escaping Alexander Zverev in seesaw match**\
-`Alcaraz led 2-0, 4-4 when he appeared to hurt his upper-right leg stretching for a volley. He still came back to win an epic.`\
-https://nytimes.com/athletic/7008361/2026/01/30/carlos-alcaraz-alexander-zverev-australian-open-result-analysis/
+**F.B.I. Search in Georgia Shows Trump’s Willingness to Pursue 2020 Grievances**\
+`The search might also be a harbinger of things to come, signaling the president’s disposition to use the powers of law enforcement to intervene in election matters as the 2026 midterms approach.`\
+https://nytimes.com/2026/01/30/us/politics/georgia-trump-election.html
 
-**Sad Horse Toy Goes Viral in China**\
-`A frowny-faced horse plushie, the result of a factory mistake, has become the internet’s unofficial mascot for the Lunar New Year. Fans say it resonates with overworked office employees.`\
-https://nytimes.com/video/world/asia/100000010678048/china-viral-crying-horse-toy.html
+**The New York Times News Quiz, Jan. 30, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2026/01/30/briefing/news-quiz-trump-minnesota.html
 
-**Have You Witnessed Generosity in Minnesota?**\
-`We’re interested in the ways communities are gathering and connecting in a moment of upheaval.`\
-https://nytimes.com/2026/01/30/briefing/have-you-witnessed-generosity-in-minnesota.html
+**Tucker Carlson Needs His Hatreds**\
+`To triumph in the modern Republican Party, you need to be able to wrench your soul into alignment with your ambition.`\
+https://nytimes.com/2026/01/30/opinion/tucker-carlson-bad-faith.html
 
-**Trump and First Lady Attend Amazon’s ‘Melania’ Premiere**\
-`President Trump and the first lady, along with White House officials, streamed into the Kennedy Center on Thursday for a screening of Amazon’s new documentary, “Melania.”`\
-https://nytimes.com/video/us/politics/100000010678392/melania-movie-trump-kennedy-center.html
+**Are SpaghettiOs Soup?**\
+`A ruling on a “Souper” Bowl party dispute.`\
+https://nytimes.com/interactive/2026/01/30/magazine/spaghettios-soup-hodgman-quiz.html
 
-**Inside the Huge New Terminal That Will Transform J.F.K.**\
-`The 2.6-million-square-foot Terminal One, part of a multibillion-dollar redevelopment of Kennedy Airport, will be nearly as large as the Empire State Building.`\
-https://nytimes.com/2026/01/30/nyregion/jfk-airport-terminal-one.html
+**The Movie Is ‘Melania,’ but the Comeback Is Brett Ratner’s**\
+`Once a reliable Hollywood hitmaker, Mr. Ratner hasn’t directed a film since accusations of sexual misconduct in 2017 that he denied.`\
+https://nytimes.com/2026/01/30/movies/brett-ratner-melania-trump-documentary.html
 
-**Snow Angels**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2026/01/30/learning/snow-angels.html
+**This Moment Is Asking What Kind of America We Are**\
+`The clash in Minneapolis has revealed a profound cleavage over the meaning of citizenship.`\
+https://nytimes.com/2026/01/30/opinion/trump-minneapolis-america-pretti.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/30/crosswords/spelling-bee-forum.html
+**Crackling Flames and Cozy Hearths: 7 Enviable Fireplaces**\
+`The best fireplaces are focal points of a room with places to gather.`\
+https://nytimes.com/2026/01/30/realestate/best-fireplaces-home-renovations.html
 

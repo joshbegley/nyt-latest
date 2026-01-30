@@ -1,3 +1,7 @@
+**Livramento 'doing well', on course for March return from injury**\
+`Captain Bruno Guimaraes is in contention to play against Liverpool after missing the last two matches with an ankle problem.`\
+https://nytimes.com/athletic/7009430/2026/01/30/newcastle-injuries-livramento-guimaraes/
+
 **Bayern announce Goretzka to leave club at end of season**\
 `The midfielder had been linked with a move away from Bayern this window but will instead remain in Bavaria until the summer.`\
 https://nytimes.com/athletic/7009431/2026/01/30/leon-goretzka-transfer-bayern-contract/
