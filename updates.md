@@ -1,3 +1,15 @@
+**James Talarico**\
+``\
+https://nytimes.com/spotlight/james-talarico
+
+**Wesley Hunt**\
+``\
+https://nytimes.com/spotlight/wesley-hunt
+
+**Jasmine Crockett**\
+``\
+https://nytimes.com/spotlight/jasmine-crockett
+
 **Peyton List Steps Into ‘Heathers’ for Her Off Broadway Debut**\
 `She watched the movie as a teenager, now the star of “School Spirits” and “Cobra Kai” is playing the acid-tongued queen bee Heather Chandler onstage.`\
 https://nytimes.com/2026/01/30/theater/peyton-list-heathers-off-broadway.html
