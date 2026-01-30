@@ -1,40 +1,40 @@
-**Red-hot Penguins steamroll Blackhawks as winning streak hits 5 games**\
-`Connor Dewar scored twice, while Ryan Shea and Egor Chinakhov made dazzling plays for their own goals.`\
-https://nytimes.com/athletic/7006171/2026/01/29/penguins-win-streak-dewar-mantha-blackhawks/
+**Is Anthony Gordon right about the differences between the Champions League and Premier League?**\
+`A close examination of the data shows that tactical developments do not exist in a vacuum`\
+https://nytimes.com/athletic/7006512/2026/01/30/premier-champions-league-style-difference-gordon/
 
-**Trump Threatens Canada Over Business Jet Dispute**\
-`The president said he would restrict the use of Canadian-built aircraft and impose a 50 percent tariff on them until the dispute was resolved.`\
-https://nytimes.com/2026/01/29/us/politics/trump-canada-aircraft-decertify.html
+**'Thrilling, relentless, unpredictable': The Championship is the league of opportunity**\
+`England's second tier is infamously competitive, and this season is no different, with 15 points between the play-off spots and drop zone`\
+https://nytimes.com/athletic/7001281/2026/01/30/championship-promotion-race/
 
-**‘The Pitt’ Season 2 Episode 4 Recap: Wanna Bet?**\
-`A nearby hospital closes its doors temporarily, sending extra patients and chaos to the Pitt. Time for another office pool.`\
-https://nytimes.com/2026/01/29/arts/television/the-pitt-recap-season-2-episode-4.html
+**Cooper Flagg and Kon Knueppel both set career highs in duel of star rookies**\
+`The Mavericks star scored 49 points, but the Hornets guard got the final two, plus the win.`\
+https://nytimes.com/athletic/7008990/2026/01/30/kon-knueppel-cooper-flagg-career-high-rookies-nba/
 
-**Trump Sues I.R.S. Over Tax Data Leak, Demanding $10 Billion**\
-`The president charged that the I.R.S. and the Treasury Department had failed to prevent a former I.R.S. contractor from gaining access to documents shared with news outlets.`\
-https://nytimes.com/2026/01/29/us/politics/trump-irs-lawsuit.html
+**Fulham are flying (under the radar) - partly due to their clever passes behind defences**\
+`Clever movement and incisive long passing have propelled Marco Silva's side to seventh. They face fourth-placed Manchester United next`\
+https://nytimes.com/athletic/7001790/2026/01/30/fulham-passes-in-behind/
 
-**Xi’s Military Purge May Set Back His Taiwan Ambitions**\
-`By ousting his top generals, Xi Jinping has secured absolute control, but has also hollowed out the command structure preparing for possible war over Taiwan.`\
-https://nytimes.com/2026/01/29/world/asia/xi-zhang-military-purge-taiwan.html
+**Could Levshunov benefit developmentally from a stint in the AHL?**\
+`The young defenseman is getting plenty of reps and ice time in the NHL, but it might be time to let him reset with the IceHogs.`\
+https://nytimes.com/athletic/7008512/2026/01/30/blackhawks-artyom-levshunov-ahl-penguins/
 
-**Enter Here!**\
-`Robyn Weintraub opens our solving weekend.`\
-https://nytimes.com/2026/01/29/crosswords/daily-puzzle-2026-01-30.html
+**The Prospects: Jack Porter, Arsenal**\
+`The Athletic is keeping an eye on the best young players in the country and this week it's time for the first goalkeeper in this series`\
+https://nytimes.com/athletic/7004188/2026/01/30/prospects-jack-porter-arsenal/
 
-**Cavaliers, NBA to discuss changes to unusual raised court after Luka Dončić's injury**\
-`The raised floor in the Cavaliers' arena has long been an oddity — and potential hazard — in the NBA.`\
-https://nytimes.com/athletic/7008562/2026/01/29/cavaliers-court-changes-nba-luka-doncic-injury-lakers/
+**Why this might be Team GB's best-ever Winter Olympics**\
+`After winning just two medals in Beijing four years ago, the British team are going to Italy optimistic of a much improved return.`\
+https://nytimes.com/athletic/7004254/2026/01/30/great-britain-team-england-winter-olympics-best/
 
-**It's raining hats! January sets new NHL record for most hat tricks in a month**\
-`The previous record of 29 had stood for over 40 years before an offensive flurry to start 2026.`\
-https://nytimes.com/athletic/7005692/2026/01/29/nhl-hat-tricks-league-record/
+**A Stock Market Fervor Takes Hold in South Korea**\
+`Spurred by government policies and the global A.I. boom, the market’s value has jumped by hundreds of billions of dollars. Individual investors have piled in.`\
+https://nytimes.com/2026/01/30/world/asia/south-korea-stock-boom-kospi.html
 
-**Jack Hughes leaves Devils game in first period two weeks before Olympics**\
-`Team USA is scheduled to begin Olympic play on Feb. 12 in a preliminary game against Latvia on the tournament's second day. `\
-https://nytimes.com/athletic/7008756/2026/01/29/jack-hughes-devils-olympics-team-usa/
+**Quote of the Day: Watching U.S. Turmoil, Greenlanders Have a Message: No, Thanks**\
+`Quotation of the Day for Friday, January 30, 2026.`\
+https://nytimes.com/2026/01/30/pageoneplus/quote-of-the-day-watching-us-turmoil-greenlanders-have-a-message-no-thanks.html
 
-**Newsom Files Civil Rights Complaint Against Dr. Oz Over Fraud Video**\
-`Dr. Mehmet Oz, a top federal health official, posted a video that accuses Armenian Americans in California of health care fraud.`\
-https://nytimes.com/2026/01/29/us/newsom-oz-fraud-armenians.html
+**Connections: Sports Edition Coach: Hints for Jan. 30, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7008531/2026/01/30/connections-sports-edition-hints-for-jan-30-2026/
 
