@@ -1,3 +1,27 @@
+**Hotel Owners and Workers, Tell Us How You’re Feeling**\
+`With hotels increasingly caught between the federal government’s immigration crackdown and protests against ICE, we want to hear how it’s affecting you.`\
+https://nytimes.com/2026/01/30/travel/ice-hotels-immigration.html
+
+**Cherry Tomato Labneh Dip**\
+`Labneh makes the ultimate dip for any season or occasion. Labneh topped with chunks of roasted squash and fried pumpkin seeds can keep the winter blues away.`\
+https://nytimes.com/video/dining/100000010368963/cherry-tomato-labneh-dip.html
+
+**De Zerbi could stay at Marseille for 'years', unsure if he is club's 'ideal' coach**\
+`Marseille were eliminated from the Champions League following a 3-0 defeat to Club Brugge on Wednesday.`\
+https://nytimes.com/athletic/7010318/2026/01/30/roberto-de-zerbi-marseille-future/
+
+**How to watch Trail Blazers vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7010817/2026/01/30/trail-blazers-vs-knicks-stream-how-to-watch-jan-30/
+
+**How to watch Clippers vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7010814/2026/01/30/clippers-vs-nuggets-stream-how-to-watch-jan-30/
+
+**How to watch Blue Jackets vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7010812/2026/01/30/blue-jackets-vs-blackhawks-stream-how-to-watch-jan-30/
+
 **How to watch Kings vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Sacramento Kings play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7010806/2026/01/30/kings-vs-celtics-stream-how-to-watch-jan-30/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7010801/2026/01/30/cavaliers-vs-suns-stream-how-to-
 **How to watch Nets vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7010799/2026/01/30/nets-vs-jazz-stream-how-to-watch-jan-30/
-
-**How to watch Grizzlies vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7010792/2026/01/30/grizzlies-vs-pelicans-stream-how-to-watch-jan-30/
-
-**How to watch Pistons vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7010790/2026/01/30/pistons-vs-warriors-stream-how-to-watch-jan-30/
-
-**D.O.J. Releases More Epstein Files, Says It Did Not Protect Trump**\
-`The Justice Department on Friday released its largest batch of documents, videos, and photos from its Jeffrey Epstein files to date. Todd Blanche, a top official, repeatedly defended the administration to quash accusations and speculation swirling around the case.`\
-https://nytimes.com/video/us/politics/100000010680099/doj-trump-epstein-files-todd-blanche.html
-
-**How to watch Michigan vs. Michigan State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan Wolverines play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7010777/2026/01/30/michigan-vs-michigan-state-stream-how-to-watch-jan-30/
-
-**How to watch Dayton vs. Saint Louis men's basketball: Time, TV, streaming**\
-`Find out how to watch the Dayton Flyers play the Saint Louis Billikens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7010774/2026/01/30/dayton-vs-saint-louis-stream-how-to-watch-jan-30/
-
-**Lindsey Vonn knows one speed. Now she'll need it for an Olympic-sized comeback attempt**\
-`Friday's injury could spell the end of Vonn's Olympic dreams. If there's a comeback to be had, though, there are few better suited to do it.`\
-https://nytimes.com/athletic/7009760/2026/01/30/lindsey-vonn-olympics-injury-crash-switzerland/
 
