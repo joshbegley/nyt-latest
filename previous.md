@@ -1,3 +1,7 @@
+**‘Heated Rivalry’ Fans Want the Fleece. They’ll Be Able to Get It.**\
+`American and Canadian “Heated Rivalry” fans are hot for the jacket worn by the character Shane Hollander.`\
+https://nytimes.com/2026/01/30/style/heated-rivalry-canada-fleece-jacket.html
+
 **Escape to Alcatraz: Coyote Swims a Mile in Search of New Turf**\
 `The coyote struggled onto the rocky shore this month. It is the first documented coyote on Alcatraz since the island was transferred to the National Park Service in 1972.`\
 https://nytimes.com/2026/01/30/us/coyote-swims-alcatraz-san-francisco.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/30/us/politics/immigration-news-trump-gop.html
 **Nashville Predators open arena, provide meals to residents affected by winter storms**\
 `Nashville community members were invited to the arena to charge their devices, fill up their water bottles and enjoy a meal.`\
 https://nytimes.com/athletic/7010983/2026/01/30/nashville-storm-bridgestone-arena-predators/
-
-**Trump’s Lawsuit Against I.R.S. Creates ‘Enormous Conflict of Interest’**\
-`The president is demanding that the federal government pay him at least $10 billion over the unauthorized disclosure of his tax returns during his first term.`\
-https://nytimes.com/2026/01/30/us/politics/trump-lawsuit-irs-taxes.html
 
