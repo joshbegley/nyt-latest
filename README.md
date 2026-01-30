@@ -30,7 +30,3 @@ https://nytimes.com/2026/01/30/movies/sundance-film-festival-the-invite-josephin
 `The announcement marked a significant reversal in the department’s approach to Mr. Pretti’s killing.`\
 https://nytimes.com/2026/01/30/us/politics/justice-dept-civil-rights-pretti.html
 
-**Don Lemon And Others Arrested Over Minnesota Church Protest**\
-`Don Lemon and three others, including independent journalist Georgia Fort, were arrested on charges that they had violated federal law during the church protest in St. Paul, Minn. this month.`\
-https://nytimes.com/video/us/politics/100000010679001/don-lemon-ice-minnesota-trump.html
-
