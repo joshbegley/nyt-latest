@@ -1,3 +1,15 @@
+**Extra-Green Pasta Salad**\
+`This vibrant green pasta salad gets its color from a combination of spinach and basil, but you can swap the spinach for arugula for a more peppery finish.`\
+https://nytimes.com/video/dining/100000010368944/extra-green-pasta-salad.html
+
+**Hot Honey Chicken**\
+`Breaded with a seasoned cornflake mixture then baked, these chicken cutlets are spicy and sweet thanks to a drizzle of homemade hot honey.`\
+https://nytimes.com/video/dining/100000010368880/hot-honey-chicken.html
+
+**9 Mayors Discuss Safety and Trust in their Cities Under Trump**\
+`The nation’s mayors gathered in Washington this week, and Minneapolis has dominated the conversation.`\
+https://nytimes.com/2026/01/30/us/us-mayors-minnesota-ice-trump.html
+
 **Commerce Secretary Howard Lutnick Planned Trip to Epstein’s Island**\
 `Prominent people have been scrutinized for their visits to Jeffrey Epstein’s island in the Caribbean. Mr. Lutnick’s visit had not been previously disclosed.`\
 https://nytimes.com/2026/01/30/us/howard-lutnick-epstein-island.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7010652/2026/01/30/nikola-jokic-injury-return-nugge
 **Eight Eagles Thoughts: Why Sean Mannion, play-calling question, more staff changes**\
 `The Eagles also hired Josh Grizzard as passing game coordinator.`\
 https://nytimes.com/athletic/7010249/2026/01/30/eagles-hire-sean-mannion-offense-passing-game/
-
-**USWNT's 'Triple Espresso' reunites ahead of 2026 NWSL comebacks**\
-`Sophia Wilson and Mallory Swanson hope to join Trinity Rodman back on the U.S. team this year. `\
-https://nytimes.com/athletic/7009241/2026/01/30/uswnt-triple-espresso-reunion-nwsl-season/
-
-**The N.I.H. Director Thinks Covid Probably Started in a Lab**\
-`Scientists tried to prevent a pandemic. But did they open up Pandora’s box with their research? Dr. Jay Bhattacharya explains how he views the public health fallout to the Opinion columnist Ross Douthat.`\
-https://nytimes.com/video/opinion/100000010665146/the-nih-director-thinks-covid-probably-started-in-a-lab.html
-
-**Palace sign Guessand on loan from Aston Villa**\
-`The Athletic reported on Thursday that Palace were finalising a loan deal for Guessand.`\
-https://nytimes.com/athletic/7007554/2026/01/30/evann-guessand-crystal-palace-aston-villa-transfer/
 
