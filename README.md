@@ -1,3 +1,7 @@
+**The Bounce: Let's make some fake Giannis trades! Plus, the Wolves hammer OKC**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7009822/2026/01/30/giannis-trades-bucks-heat-warriors-knicks-the-bounce/
+
 **Aston Villa boss Emery plays down Watkins injury fears**\
 `Watkins was forced off after 35 minutes of Aston Villa's 3-2 win over RB Salzburg on Thursday.`\
 https://nytimes.com/athletic/7008329/2026/01/30/ollie-watkins-injury-aston-villa-salzburg/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/01/30/us/politics/who-is-kevin-warsh-fed-chair.html
 **A Challenge for Britain’s Royal Mail: Proving It Can Deliver the Mail**\
 `Late letters are causing distress to some in Britain and fueling criticism of its 500-year-old postal service.`\
 https://nytimes.com/2026/01/30/world/europe/uk-royal-mail-post-service-delays.html
-
-**How to watch Vanderbilt vs. Ole Miss women's basketball: Time, TV, streaming**\
-`Find out how to watch the Vanderbilt Commodores play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7009732/2026/01/30/vanderbilt-vs-ole-miss-stream-how-to-watch-jan-30/
 

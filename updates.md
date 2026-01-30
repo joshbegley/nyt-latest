@@ -1,3 +1,15 @@
+**Aston Villa boss Emery plays down Watkins injury fears**\
+`Watkins was forced off after 35 minutes of Aston Villa's 3-2 win over RB Salzburg on Thursday.`\
+https://nytimes.com/athletic/7008329/2026/01/30/ollie-watkins-injury-aston-villa-salzburg/
+
+**Djokovic stuns Sinner with vintage Australian Open performance to move one win from 25 Grand Slams**\
+`The 24-time Grand Slam champion needed five sets of relentless spot-serving and battering-ram forehands to overwhelm his recent nemesis.`\
+https://nytimes.com/athletic/7008360/2026/01/30/jannik-sinner-novak-djokovic-australian-open-result-analysis/
+
+**Sunderland's Xhaka to miss 'three more weeks' due to ankle injury - Le Bris**\
+`Xhaka will miss several key fixtures, including a return to the Emirates Stadium to face former side Arsenal on February 7.`\
+https://nytimes.com/athletic/7009807/2026/01/30/xhaka-news-sunderland-injury-update/
+
 **Tips for Lowering Your Credit Card Interest Rate**\
 `The first step, consumer finance experts say, is to ask your card issuer to reduce the rate. And with average balances now $6,500, consider using your tax refund to put a dent in the debt.`\
 https://nytimes.com/2026/01/30/your-money/credit-card-debt-interest-rates.html
