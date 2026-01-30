@@ -1,3 +1,7 @@
+**Cavaliers, NBA to discuss changes to unusual raised court after Luka Dončić's injury**\
+`The raised floor in the Cavaliers' arena has long been an oddity — and potential hazard — in the NBA.`\
+https://nytimes.com/athletic/7008562/2026/01/29/cavaliers-court-changes-nba-luka-doncic-injury-lakers/
+
 **It's raining hats! January sets new NHL record for most hat tricks in a month**\
 `The previous record of 29 had stood for over 40 years before an offensive flurry to start 2026.`\
 https://nytimes.com/athletic/7005692/2026/01/29/nhl-hat-tricks-league-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7008483/2026/01/29/shacarri-richardson-arrest-jail-
 **Where the U.S. Is Building Up Military Force Near Iran**\
 `President Trump has not authorized military action in Iran, but the U.S. has built up its presence in the region in recent days.`\
 https://nytimes.com/2026/01/29/us/politics/trump-iran-us-military-maps.html
-
-**Falcons hiring Ian Cunningham as general manager**\
-`Cunningham has been the assistant GM of the Bears for the last four seasons and was a part of Super Bowl wins with the Ravens and Eagles.`\
-https://nytimes.com/athletic/6983326/2026/01/29/ian-cunningham-falcons-general-manager-hire/
 
