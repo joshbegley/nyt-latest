@@ -22,8 +22,8 @@ https://nytimes.com/athletic/7010177/2026/01/30/columbia-vs-princeton-stream-how
 `Monken, the Ravens' ex-offensive coordinator, confirmed the reports from September that said Baltimore wanted to draft Sanders last year.`\
 https://nytimes.com/athletic/7010025/2026/01/30/browns-todd-monken-shedeur-sanders-ravens/
 
-**Live Updates: Millions More Epstein Pages Released**\
-`The Justice Department released a new trove of documents as well as thousands of videos and photographs related to the investigation of Jeffrey Epstein. The move comes weeks after a deadline imposed by Congress.`\
+**Live Updates: Millions of Pages of Epstein Documents Released**\
+`The trove of documents related to the investigation of Jeffrey Epstein is the largest release to date by the Justice Department, and includes thousands of videos and photographs.`\
 https://nytimes.com/live/2026/01/30/us/epstein-files-release
 
 **This Canucks homestand is showing that Vancouver fans can handle a rebuild**\
