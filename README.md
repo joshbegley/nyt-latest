@@ -14,13 +14,13 @@ https://nytimes.com/2026/01/30/arts/television/jimmy-kimmel-melania-trump-docume
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/30/todays-new-york-times
 
-**The World Used to End Wars. Why Did We Stop?**\
-`America has conveniently forgotten that it once took the world to end conflicts.`\
-https://nytimes.com/2026/01/30/opinion/trump-peace-conflict-united-nations.html
-
 **Let the Arms Race Begin**\
 `Once the New START treaty ends, we will have returned to an era without limits, when arsenals can reach unconstrained heights.`\
 https://nytimes.com/2026/01/30/opinion/nuclear-treaty-deal-start.html
+
+**The World Used to End Wars. Why Did We Stop?**\
+`America has conveniently forgotten that it once took the world to end conflicts.`\
+https://nytimes.com/2026/01/30/opinion/trump-peace-conflict-united-nations.html
 
 **Cunha? Mount? Amad? How Man Utd could replace Dorgu**\
 `Michael Carrick has been presented with a tactical puzzle by an injury to his impressive left-sided player`\

@@ -1,3 +1,7 @@
+**Let the Arms Race Begin**\
+`Once the New START treaty ends, we will have returned to an era without limits, when arsenals can reach unconstrained heights.`\
+https://nytimes.com/2026/01/30/opinion/nuclear-treaty-deal-start.html
+
 **Word of the Day: truculent**\
 `This word has appeared in 18 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/30/learning/word-of-the-day-truculent.html
