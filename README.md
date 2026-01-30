@@ -1,3 +1,12 @@
+**The Hidden Engine of E-Commerce**\
+`How A.I.-powered checkouts unlock growth.
+`\
+https://nytimes.com/paidpost/rokt/hidden-engine-of-e-commerce/the-hidden-engine-of-e-commerce.html
+
+**In Minneapolis, Knitters Are Protesting With Red Hats**\
+`The red tasseled hats are at the heart of a movement to galvanize opposition to Immigration and Custom Enforcement in Minnesota and beyond.`\
+https://nytimes.com/2026/01/30/style/minnesota-ice-red-hats-knit.html
+
 **2026 Milan-Cortina Winter Olympics**\
 ``\
 https://nytimes.com/news-event/2026-milan-winter-olympics
@@ -21,8 +30,4 @@ https://nytimes.com/athletic/7010290/2026/01/30/nfl-concussions-kickoffs-increas
 **In a Bid to Kick-Start Growth, Britain Turns to China**\
 `Buffeted by tariffs and trade tensions, Prime Minister Keir Starmer took British business leaders to China and emerged with deals on visas and Scotch whisky, as well as pledges to deepen ties.`\
 https://nytimes.com/2026/01/30/business/uk-china-trade-business-starmer-xi.html
-
-**How The Times Is Covering the Latest Release of Epstein Files**\
-`Several reporters and editors have covered the case since 2019. Others report on the Justice Department, Congress, the White House and the federal court system.`\
-https://nytimes.com/2026/01/30/us/how-the-times-is-covering-the-latest-release-of-epstein-files.html
 
