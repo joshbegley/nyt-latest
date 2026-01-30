@@ -1,3 +1,19 @@
+**Canadiens vs. Nordiques? Battle of Quebec returns as Avs wear throwback jerseys**\
+`The Canadiens-Nordiques rivalry was one of the most heated in NHL history, and memories of the Battle of Quebec still resonate.`\
+https://nytimes.com/athletic/7007991/2026/01/29/avalanche-avs-throwback-jerseys-nordiques-canadiens/
+
+**‘It’s All About Us Now’: Video Shows Bovino’s Orders to Agents in L.A. Raids**\
+`The Border Patrol commander gave agents wide latitude to arrest people as immigration raids began last summer. Similar tactics were later used in other cities.`\
+https://nytimes.com/2026/01/29/us/bovino-orders-video.html
+
+**Video Shows Bovino Giving Orders to Federal Agents in Los Angeles**\
+`Video from last summer shows the Border Patrol official Gregory Bovino telling federal agents dressed in tactical gear to “arrest as many people that touch you as you want.” The video was made public as part of a federal lawsuit over immigration enforcement in the Chicago area.`\
+https://nytimes.com/video/us/100000010676901/la-immigration-raids-greg-bovino.html
+
+**Washington Post Plans Cuts to Reshape Newsroom**\
+`The changes are expected to include significant layoffs in areas like sports and international coverage.`\
+https://nytimes.com/2026/01/29/business/media/washington-post-newsroom.html
+
 **Can Trust in Vaccines Be Built Through Skepticism?**\
 `Is the Trump administration reviving confidence in vaccination or destroying it? Dr. Jay Bhattacharya, the director of the N.I.H., thinks an embrace of skepticism is key.`\
 https://nytimes.com/video/opinion/100000010665145/can-trust-in-vaccines-be-built-through-skepticism.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7005946/2026/01/29/britta-curl-salemme-fierce-athle
 **Russian cross-country skiing star Alexander Bolshunov ineligible for 2026 Olympics**\
 `The Court of Arbitration for Sport rejected Bolshunov’s last-ditch attempt to be able to compete as an Individual Neutral Athlete.`\
 https://nytimes.com/athletic/7008362/2026/01/29/olympics-2026-alexander-bolshunov-russia-cross-country-skiing/
-
-**Brad Treliving defends the Maple Leafs' approach to sports science**\
-`The GM responded to criticism over the vacant director of performance role, saying the Leafs have more staff working hands-on with players.`\
-https://nytimes.com/athletic/7007804/2026/01/29/brad-treliving-maple-leafs-sports-science/
-
-**Minnesota State Senate Fields Testimony on ICE Violence in Twin Cities**\
-`In an hourslong hearing, lawmakers heard stories of the use of racial profiling and aggressive tactics against state residents.`\
-https://nytimes.com/2026/01/29/us/minnesota-senate-ice-hearing.html
-
-**What we learned from Joe Brady's introductory news conference as Bills head coach**\
-`There are still some questions that were left unanswered after the news conference. `\
-https://nytimes.com/athletic/7008145/2026/01/29/bills-joe-brady-news-conference-takeaways/
-
-**What to Know About Anti-ICE Protests This Weekend**\
-`Organizers are trying to build on the momentum of a strike last week that brought thousands into the streets in Minneapolis.`\
-https://nytimes.com/2026/01/29/us/weekend-ice-protests-strike-shutdown.html
 

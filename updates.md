@@ -1,3 +1,7 @@
+**Can Trust in Vaccines Be Built Through Skepticism?**\
+`Is the Trump administration reviving confidence in vaccination or destroying it? Dr. Jay Bhattacharya, the director of the N.I.H., thinks an embrace of skepticism is key.`\
+https://nytimes.com/video/opinion/100000010665145/can-trust-in-vaccines-be-built-through-skepticism.html
+
 **Who Was at the ‘Melania’ Premiere?**\
 `Right-wing influencers and top White House officials streamed into the Kennedy Center on Thursday to see Amazon’s new documentary about the first lady, Melania Trump.`\
 https://nytimes.com/2026/01/29/style/melania-trump-movie-kennedy-center-premiere.html
