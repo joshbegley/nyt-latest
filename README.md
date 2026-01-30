@@ -1,3 +1,7 @@
+**Doc Rivers laughs off Jae Crowder's criticism for Bucks' fall, citing playing time**\
+`With Giannis Antetokounmpo rumours swirling, an ex-Buck decided to bring up an old gripe about his coach. `\
+https://nytimes.com/athletic/7008433/2026/01/29/doc-rivers-jae-crowder-milwaukee-bucks-nba/
+
 **Canadiens vs. Nordiques? Battle of Quebec returns as Avs wear throwback jerseys**\
 `The Canadiens-Nordiques rivalry was one of the most heated in NHL history, and memories of the Battle of Quebec still resonate.`\
 https://nytimes.com/athletic/7007991/2026/01/29/avalanche-avs-throwback-jerseys-nordiques-canadiens/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010669504/what-domestic-terrorism-means-and-d
 **Team USA women's hockey player partners with anti-trans inclusion group**\
 `Curl-Salemme's latest collaboration with FIERCE Athlete has been liked by teammates on the U.S. national team and PWHL's Minnesota Frost.`\
 https://nytimes.com/athletic/7005946/2026/01/29/britta-curl-salemme-fierce-athlete-transgender-women/
-
-**Russian cross-country skiing star Alexander Bolshunov ineligible for 2026 Olympics**\
-`The Court of Arbitration for Sport rejected Bolshunov’s last-ditch attempt to be able to compete as an Individual Neutral Athlete.`\
-https://nytimes.com/athletic/7008362/2026/01/29/olympics-2026-alexander-bolshunov-russia-cross-country-skiing/
 
