@@ -1,3 +1,7 @@
+**What to Know About Kevin Warsh, Trump’s Pick to Lead the Fed**\
+`The president’s choice to lead the Federal Reserve is a financier and former governor of the central bank.`\
+https://nytimes.com/2026/01/30/us/politics/who-is-kevin-warsh-fed-chair.html
+
 **A Challenge for Britain’s Royal Mail: Proving It Can Deliver the Mail**\
 `Late letters are causing distress to some in Britain and fueling criticism of its 500-year-old postal service.`\
 https://nytimes.com/2026/01/30/world/europe/uk-royal-mail-post-service-delays.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7008124/2026/01/30/warriors-nba-trade-deadline-2026
 **Ubben: If you didn't like how late this year's CFP title game was, brace yourself for next season**\
 `Next year, a team with a first-round bye will play three games in 51 days to win the title.`\
 https://nytimes.com/athletic/7003914/2026/01/30/college-football-playoff-championship-dates-calendar/
-
-**Dillon Brooks, Suns out-scrap Pistons to post their best win of the season**\
-`Without injured leading scorers Devin Booker and Jalen Green, Brooks put up a career-high 40 points in Thursday night's win.`\
-https://nytimes.com/athletic/7009290/2026/01/30/suns-win-pistons-dillon-brooks/
 
