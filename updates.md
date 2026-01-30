@@ -1,3 +1,7 @@
+**A Challenge for Britain’s Royal Mail: Proving It Can Deliver the Mail**\
+`Late letters are causing distress to some in Britain and fueling criticism of its 500-year-old postal service.`\
+https://nytimes.com/2026/01/30/world/europe/uk-royal-mail-post-service-delays.html
+
 **A Challenge for Britain’s Royal Mail: Proving it Can Deliver the Mail**\
 `Late letters are causing distress to some in Britain and fueling criticism of its 500-year-old postal service.`\
 https://nytimes.com/2026/01/30/world/europe/uk-royal-mail-post-service-delays.html
