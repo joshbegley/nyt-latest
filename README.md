@@ -1,3 +1,7 @@
+**Newsom Files Civil Rights Complaint Against Dr. Oz Over Fraud Video**\
+`Dr. Mehmet Oz, a top federal health official, posted a video that accuses Armenian Americans in California of health care fraud.`\
+https://nytimes.com/2026/01/29/us/newsom-oz-fraud-armenians.html
+
 **War Threats and Ambiguous Evidence: Trump Again Confronts Iran**\
 `There is little sign that Iran has made significant progress in reconstituting its nuclear program, leaving questions about the timing and motive behind potential plans for further attacks.`\
 https://nytimes.com/2026/01/29/us/politics/trump-iran-israel-intel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/29/us/politics/trump-nicki-minaj-visa.html
 **Robert Saleh takes on Titans' coaching job armed with lessons from Jets tenure**\
 `Despite the turmoil during his time with the Jets, Saleh reflects fondly on his tenure there: "I am as lucky as lucky gets."`\
 https://nytimes.com/athletic/7008519/2026/01/29/robert-saleh-titans-coach-jets/
-
-**Trump Weighs New Military Options Against Iran**\
-`The plans being weighed by the president go beyond those he considered weeks ago amid widespread protests against Iran’s government.`\
-https://nytimes.com/2026/01/29/us/trump-military-options-against-iran.html
 
