@@ -23,7 +23,7 @@ https://nytimes.com/athletic/7004179/2026/01/30/fantasy-premier-league-fpl-tips-
 https://nytimes.com/athletic/7007486/2026/01/30/douglas-luiz-aston-villa-midfield-transfer/
 
 **Strong goaltending, a perfect pass and a snooze-fest of a win: Wild takeaways**\
-`Wild coach John Hynes and his players know Thursday's 4-1 victory over the lowly Flames was hardly pretty.`\
+`Wild coach John Hynes and his players know Thursday's 4-1 win over the Flames was hardly pretty, but at least it didn't go into overtime.`\
 https://nytimes.com/athletic/7008840/2026/01/30/wild-flames-filip-gustavsson-hughes-boldy/
 
 **Football's sleeping pills problem: 'My usage was ridiculous - I was in La La Land'**\

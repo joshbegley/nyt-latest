@@ -1,3 +1,7 @@
+**Strong goaltending, a perfect pass and a snooze-fest of a win: Wild takeaways**\
+`Wild coach John Hynes and his players know Thursday's 4-1 win over the Flames was hardly pretty, but at least it didn't go into overtime.`\
+https://nytimes.com/athletic/7008840/2026/01/30/wild-flames-filip-gustavsson-hughes-boldy/
+
 **Cunha? Mount? Amad? How Man Utd could replace Dorgu**\
 `Michael Carrick has been presented with a tactical puzzle by an injury to his impressive left-sided player`\
 https://nytimes.com/athletic/6839495/2026/01/30/man-utd-patrick-dorgu-cunha-mount-amad/
