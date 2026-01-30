@@ -1,9 +1,9 @@
-**Red-hot Penguins steamroll Blackhawks as winning streak hits five games**\
+**Red-hot Penguins steamroll Blackhawks as winning streak hits 5 games**\
 `Connor Dewar scored twice, while Ryan Shea and Egor Chinakhov made dazzling plays for their own goals.`\
 https://nytimes.com/athletic/7006171/2026/01/29/penguins-win-streak-dewar-mantha-blackhawks/
 
 **Trump Threatens Canada Over Business Jet Dispute**\
-`The president said he would restrict the use of Canadian-built aircraft and impose a 50 percent on them until the dispute was resolved.`\
+`The president said he would restrict the use of Canadian-built aircraft and impose a 50 percent tariff on them until the dispute was resolved.`\
 https://nytimes.com/2026/01/29/us/politics/trump-canada-aircraft-decertify.html
 
 **‘The Pitt’ Season 2 Episode 4 Recap: Wanna Bet?**\
