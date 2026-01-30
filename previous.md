@@ -1,6 +1,10 @@
+**‘The Pitt’ Season 2 Episode 4 Recap: Wanna Bet?**\
+`A nearby hospital closes its doors temporarily, sending extra patients and chaos to the Pitt. Time for another office pool.`\
+https://nytimes.com/2026/01/29/arts/television/the-pitt-recap-season-2-episode-4.html
+
 **Trump Sues I.R.S. Over Tax Data Leak, Demanding $10 Billion**\
 `The president charged that the I.R.S. and the Treasury Department had failed to prevent a former I.R.S. contractor from gaining access to documents shared with news outlets.`\
-https://nytimes.com/live/2026/01/29/us/trump-news/trump-irs-lawsuit
+https://nytimes.com/2026/01/29/us/politics/trump-irs-lawsuit.html
 
 **Xi’s Military Purge May Set Back His Taiwan Ambitions**\
 `By ousting his top generals, Xi Jinping has secured absolute control, but has also hollowed out the command structure preparing for possible war over Taiwan.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/29/us/politics/trump-iran-israel-intel.html
 **Patrick Kane breaks NHL record for most points by American-born player**\
 `Kane recorded his 1,375th career point, passing Mike Modano for the most ever by an American-born player.`\
 https://nytimes.com/athletic/6993211/2026/01/29/patrick-kane-nhl-record-american-points/
-
-**Boxer Anthony Joshua breaks silence about car crash that killed 2 friends**\
-`The former Olympic gold medalist spoke on Instagram about the December tragedy on a highway in Nigeria.`\
-https://nytimes.com/athletic/7008403/2026/01/29/boxer-anthony-joshua-discusses-friends-killed/
 

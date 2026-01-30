@@ -1,3 +1,11 @@
+**‘The Pitt’ Season 2 Episode 4 Recap: Wanna Bet?**\
+`A nearby hospital closes its doors temporarily, sending extra patients and chaos to the Pitt. Time for another office pool.`\
+https://nytimes.com/2026/01/29/arts/television/the-pitt-recap-season-2-episode-4.html
+
+**Trump Sues I.R.S. Over Tax Data Leak, Demanding $10 Billion**\
+`The president charged that the I.R.S. and the Treasury Department had failed to prevent a former I.R.S. contractor from gaining access to documents shared with news outlets.`\
+https://nytimes.com/2026/01/29/us/politics/trump-irs-lawsuit.html
+
 **Trump Sues I.R.S. Over Tax Data Leak, Demanding $10 Billion**\
 `The president charged that the I.R.S. and the Treasury Department had failed to prevent a former I.R.S. contractor from gaining access to documents shared with news outlets.`\
 https://nytimes.com/live/2026/01/29/us/trump-news/trump-irs-lawsuit
