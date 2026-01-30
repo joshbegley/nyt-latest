@@ -1,3 +1,11 @@
+**Men’s Work Bags We Love**\
+`Text by Mitch Moxley`\
+https://nytimes.com/card/2026/01/30/smarter-living/wirecutter/
+
+**Argentina in Advanced Talks to Become Destination for U.S. Deportations**\
+`Washington and Buenos Aires are working on an agreement to allow the U.S. to deport immigrants from other nations to the South American country.`\
+https://nytimes.com/2026/01/30/world/americas/argentina-us-deportations-immigrants-milei.html
+
 **Review: In Justin Peck’s New Ballet, Beethoven Gets Sporty**\
 `Peck’s “The Wind-Up,” set to the first movement of the “Eroica” symphony, doesn’t rise to the challenge of the music but is refreshing in other ways.`\
 https://nytimes.com/2026/01/30/arts/dance/review-justin-peck-the-wind-up-new-york-city-ballet.html
