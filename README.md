@@ -1,5 +1,9 @@
-**Musk and Epstein exchanged emails about visiting one another, new documents show.**\
-`Mr. Musk, who sought to tie President Trump to Mr. Epstein during a feud last year, has tried to distance himself from the sex offender.`\
+**Catherine O’Hara: A Life in Pictures**\
+`The Canadian actress’s career spanned decades and genres.`\
+https://nytimes.com/2026/01/30/arts/television/catherine-ohara-death-photos.html
+
+**Musk and Epstein Exchanged Emails About Visiting One Another, Documents Show**\
+`Mr. Musk has tried to put distance between himself and the disgraced financier Jeffrey Epstein, but emails show the two were on friendly terms.`\
 https://nytimes.com/2026/01/30/us/musk-and-epstein-exchanged-emails-about-visiting-one-another-new-documents-show.html
 
 **Republicans Start to Fracture Over Immigration Enforcement**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/30/us/politics/epstein-emails-richard-branson.html
 **Springsteen Takes the Stage as Minneapolis Residents Take to the Streets**\
 `For a second week, residents demonstrated against Immigration and Customs Enforcement’s incursion into their city. And Bruce Springsteen made a surprise appearance at a benefit concert.`\
 https://nytimes.com/2026/01/30/us/minneapolis-ice-protests-bruce-springsteen-concert.html
-
-**Flamengo complete Paqueta signing from West Ham**\
-`The Brazilian club announced Paqueta's arrival of Friday on a contract through to 2030.`\
-https://nytimes.com/athletic/7002064/2026/01/30/lucas-paqueta-flamengo-west-ham-transfer/
 
