@@ -1,3 +1,15 @@
+**The New York Times in Print for Friday, Jan. 30, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/30/todays-new-york-times
+
+**The World Used to End Wars. Why Did We Stop?**\
+`America has conveniently forgotten that it once took the world to end conflicts.`\
+https://nytimes.com/2026/01/30/opinion/trump-peace-conflict-united-nations.html
+
+**The Last Nuclear Deal Is Expiring. Does Anyone Care?**\
+`Once the New START treaty ends, we will have returned to an era without limits, when arsenals can reach unconstrained heights.`\
+https://nytimes.com/2026/01/30/opinion/nuclear-treaty-deal-start.html
+
 **Strong goaltending, a perfect pass and a snooze-fest of a win: Wild takeaways**\
 `Wild coach John Hynes and his players know Thursday's 4-1 win over the Flames was hardly pretty, but at least it didn't go into overtime.`\
 https://nytimes.com/athletic/7008840/2026/01/30/wild-flames-filip-gustavsson-hughes-boldy/

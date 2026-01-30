@@ -1,3 +1,15 @@
+**The New York Times in Print for Friday, Jan. 30, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/30/todays-new-york-times
+
+**The World Used to End Wars. Why Did We Stop?**\
+`America has conveniently forgotten that it once took the world to end conflicts.`\
+https://nytimes.com/2026/01/30/opinion/trump-peace-conflict-united-nations.html
+
+**The Last Nuclear Deal Is Expiring. Does Anyone Care?**\
+`Once the New START treaty ends, we will have returned to an era without limits, when arsenals can reach unconstrained heights.`\
+https://nytimes.com/2026/01/30/opinion/nuclear-treaty-deal-start.html
+
 **Cunha? Mount? Amad? How Man Utd could replace Dorgu**\
 `Michael Carrick has been presented with a tactical puzzle by an injury to his impressive left-sided player`\
 https://nytimes.com/athletic/6839495/2026/01/30/man-utd-patrick-dorgu-cunha-mount-amad/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7007486/2026/01/30/douglas-luiz-aston-villa-midfiel
 **Strong goaltending, a perfect pass and a snooze-fest of a win: Wild takeaways**\
 `Wild coach John Hynes and his players know Thursday's 4-1 win over the Flames was hardly pretty, but at least it didn't go into overtime.`\
 https://nytimes.com/athletic/7008840/2026/01/30/wild-flames-filip-gustavsson-hughes-boldy/
-
-**Football's sleeping pills problem: 'My usage was ridiculous - I was in La La Land'**\
-`The Athletic spoke to people involved in football about the problems with sleeping pills`\
-https://nytimes.com/athletic/6985266/2026/01/30/football-sleeping-pills-problem/
-
-**Kevin Keegan: The man I know**\
-`The meeting of Liverpool and Newcastle on Saturday is a fitting occasion to celebrate a footballer who means so much to so many`\
-https://nytimes.com/athletic/6973892/2026/01/30/kevin-keegan-liverpool-newcastle/
-
-**Is Arsenal's low-risk approach actually… risky?**\
-`Arsenal have put themselves in a strong position, but the feeling persists they must play with more freedom to fend off those at their back`\
-https://nytimes.com/athletic/7004051/2026/01/30/arsenal-mikel-arteta-risk-odegaard-title/
 
