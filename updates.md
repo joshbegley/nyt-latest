@@ -1,3 +1,23 @@
+**The stars, slumps and stories shaping NHL's road to the playoffs**\
+`Plus: Can teams change their goalies on the fly? The answer will amuse you.`\
+https://nytimes.com/athletic/7010085/2026/01/30/nhl-records-playoffs-patrick-kane-red-light/
+
+**How to watch Lakers vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7010196/2026/01/30/lakers-vs-wizards-stream-how-to-watch-jan-30/
+
+**Australian Open men's semifinals: Cramps, vomit and drama as sleepy tournament awakens**\
+`After a tournament bereft of tension, Melbourne Park turned into a cauldron on Day 13.`\
+https://nytimes.com/athletic/7008359/2026/01/30/tennis-australian-open-semifinals-alcaraz-zverev-sinner-djokovic/
+
+**Who Is Georgia Fort, the Other Journalist Arrested Over a Church Protest?**\
+`Ms. Fort was taken into custody by federal agents Friday morning, following a grand jury indictment.`\
+https://nytimes.com/2026/01/30/us/who-is-georgia-fort-journalist-arrested-church-protest.html
+
+**Live Updates: Millions More Epstein Pages Released**\
+`The Justice Department released a new trove of documents as well as thousands of videos and photographs related to the investigation of Jeffrey Epstein. The move comes weeks after a deadline imposed by Congress.`\
+https://nytimes.com/live/2026/01/30/us/epstein-files-release
+
 **Who Is Georgia Fort, the Other Journalist Arrested Over a Church Protest?**\
 `Ms. Fort was taken into custody by federal agents Friday morning, following a grand jury indictment.`\
 https://nytimes.com/2026/01/30/us/who-is-georgia-fort-the-other-journalist-arrested-over-a-church-protest.html
