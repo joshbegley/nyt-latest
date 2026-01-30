@@ -1,3 +1,8 @@
+**Want to call an NHL game between the benches? Better get a helmet**\
+`The risks associated with one of the most unique jobs in sports broadcasting are outweighed by having the "greatest seat in the house."
+`\
+https://nytimes.com/athletic/6801667/2026/01/30/nhl-sideline-reporters-broadcasters-benches/
+
 **Hollywood’s North Road Studio Acquired by a European Production Giant**\
 `Peter Chernin, an industry veteran who founded North Road in 2022, said his deal with Mediawan met a need to get bigger in an era of consolidation.`\
 https://nytimes.com/2026/01/30/business/north-road-mediawan-deal.html

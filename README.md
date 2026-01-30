@@ -1,3 +1,11 @@
+**The New F.B.I.**\
+`We look at changes inside the agency.`\
+https://nytimes.com/2026/01/30/briefing/the-new-fbi.html
+
+**Chevron Points to Venezuela’s Promise as Big Oil Earnings Fall**\
+`The two largest U.S. oil companies, Chevron and Exxon Mobil, reported their lowest annual profits in years.`\
+https://nytimes.com/2026/01/30/business/energy-environment/chevron-exxon-mobil-earnings.html
+
 **Hollywood’s North Road Studio Acquired by a European Production Giant**\
 `Peter Chernin, an industry veteran who founded North Road in 2022, said his deal with Mediawan met a need to get bigger in an era of consolidation.`\
 https://nytimes.com/2026/01/30/business/north-road-mediawan-deal.html
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/7009142/2026/01/30/sabres-tuch-stanley-cup-hat-tric
 **The latest on Artemi Panarin as Rangers suffer season series sweep to Islanders**\
 `The Rangers miss their most dynamic forward on the ice as Panarin and the Rangers work on a potential trade.`\
 https://nytimes.com/athletic/7009014/2026/01/30/new-york-rangers-panarin-update-islanders-sweep/
-
-**The Lions return a strong defensive nucleus, but improvements in 2026 needed**\
-`The Lions have notable defensive free agents and who stays or goes will help determine the direction the defense takes in 2026.`\
-https://nytimes.com/athletic/7008292/2026/01/30/lions-defense-kelvin-sheppard-2026-improvements/
-
-**Want to call an NHL game between the benches? Better get a helmet**\
-`The risks associated with one of the most unique jobs in sports broadcasting are outweighed by having the "greatest seat in the house."
-`\
-https://nytimes.com/athletic/6801667/2026/01/30/nhl-sideline-reporters-broadcasters-benches/
 
