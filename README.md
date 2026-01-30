@@ -1,3 +1,11 @@
+**WNBA, players union meeting Monday as next step in negotiating CBA**\
+`The sticking point in negotiations remains the players’ salary structure and revenue share.`\
+https://nytimes.com/athletic/7010510/2026/01/30/wnba-union-collective-bargaining-agreement-meeting/
+
+**Submit questions for Nate Atkins' Rams mailbag**\
+`Atkins will consider your questions for his upcoming mailbag as the Rams look ahead to next season after their loss in the NFC championship.`\
+https://nytimes.com/athletic/7010593/2026/01/30/rams-mailbag-2025-season-ends/
+
 **U.S. Grids Are Surviving the Winter Storm. But the Next 5 Years Could be Rough.**\
 `A group that monitors the nation’s electricity system warns that grid reliability is “worsening” and blackout risks are rising for millions of people.`\
 https://nytimes.com/2026/01/30/climate/us-grids-are-surviving-the-winter-storm-but-the-next-5-years-could-be-rough.html
@@ -25,13 +33,4 @@ https://nytimes.com/video/climate/100000010679458/sea-turtles-rescued-cold-texas
 **Derrick Rose doesn't want a statue because he saw Dwyane Wade's: 'I'm good'**\
 `Rose had his jersey retired by the Bulls at a ceremony last week.`\
 https://nytimes.com/athletic/7010409/2026/01/30/derrick-rose-bulls-statue/
-
-**The Hidden Engine of E-Commerce**\
-`How A.I.-powered checkouts unlock growth.
-`\
-https://nytimes.com/paidpost/rokt/hidden-engine-of-e-commerce/the-hidden-engine-of-e-commerce.html
-
-**In Minneapolis, Knitters Are Protesting With Red Hats**\
-`The red tasseled hats are at the heart of a movement to galvanize opposition to Immigration and Custom Enforcement in Minnesota and beyond.`\
-https://nytimes.com/2026/01/30/style/minnesota-ice-red-hats-knit.html
 
