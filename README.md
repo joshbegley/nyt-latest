@@ -1,3 +1,7 @@
+**Drilling Is Underway to Examine Antarctica’s Melting Ice From Below**\
+`A team hopes to place instruments in the waters beneath the colossal Thwaites Glacier, with the help of a drill that uses hot water to punch through ice.`\
+https://nytimes.com/2026/01/30/climate/antarctica-thwaites-glacier-drilling.html
+
 **Prime Tire: Remember when F1 cars looked ridiculous?**\
 `Welcome to Prime Tire, The Athletic's F1 newsletter.`\
 https://nytimes.com/athletic/7010273/2026/01/30/when-f1-cars-looked-ridiculous-prime-tire/
@@ -10,13 +14,13 @@ https://nytimes.com/athletic/6933813/2026/01/30/vikings-fire-gm-kwesi-adofo-mens
 `At the conclusion of a mixed festival, John Turturro and Giancarlo Esposito, co-stars in a new drama, reminded us of why the event matters.`\
 https://nytimes.com/2026/01/30/movies/sundance-film-festival-the-invite-josephine.html
 
-**Don Lemon And Others Arrested Over Minnesota Church Protest**\
-`Don Lemon and three others, including independent journalist Georgia Fort, were arrested on charges that they had violated federal law during the church protest in St. Paul, Minn. this month.`\
-https://nytimes.com/video/us/politics/100000010679001/don-lemon-ice-minnesota-trump.html
-
 **Justice Dept. Opens Civil Rights Inquiry Into Killing of Alex Pretti**\
 `The announcement marked a significant reversal in the department’s approach to Mr. Pretti’s killing.`\
 https://nytimes.com/2026/01/30/us/politics/justice-dept-civil-rights-pretti.html
+
+**Don Lemon And Others Arrested Over Minnesota Church Protest**\
+`Don Lemon and three others, including independent journalist Georgia Fort, were arrested on charges that they had violated federal law during the church protest in St. Paul, Minn. this month.`\
+https://nytimes.com/video/us/politics/100000010679001/don-lemon-ice-minnesota-trump.html
 
 **Epstein Documents Include Many Uncorroborated Tips**\
 `The F.B.I. receives a huge volume of tips, and descriptions of them generally do not offer indications of the credibility of any claim.`\
