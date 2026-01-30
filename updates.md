@@ -1,3 +1,7 @@
+**Co-Stars and Fans Pay Tribute to Catherine O’Hara**\
+`Videos and photos filled social media as fans shared their favorite scenes from O’Hara’s acting career and co-stars memorialized her.`\
+https://nytimes.com/2026/01/30/arts/catherine-ohara-death-reactions.html
+
 **Ravens to hire Declan Doyle as offensive coordinator: Source**\
 `Jesse Minter will call the defensive plays for Baltimore, while Doyle will lead an offense that features two-time MVP Lamar Jackson.`\
 https://nytimes.com/athletic/7009866/2026/01/30/ravens-declan-doyle-offensive-coordinator/

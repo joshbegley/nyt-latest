@@ -1,3 +1,7 @@
+**Co-Stars and Fans Pay Tribute to Catherine O’Hara**\
+`Videos and photos filled social media as fans shared their favorite scenes from O’Hara’s acting career and co-stars memorialized her.`\
+https://nytimes.com/2026/01/30/arts/catherine-ohara-death-reactions.html
+
 **Ravens to hire Declan Doyle as offensive coordinator: Source**\
 `Jesse Minter will call the defensive plays for Baltimore, while Doyle will lead an offense that features two-time MVP Lamar Jackson.`\
 https://nytimes.com/athletic/7009866/2026/01/30/ravens-declan-doyle-offensive-coordinator/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010669593/if-youre-looking-for-order-you
 **Yuzu-Miso Soba Noodle Soup**\
 `Sour like lemon, bitter like grapefruit, sweet like mandarins and tangy like oranges, yuzu might be the consummate citrus — and it brings all of that complex magic to this light, clean noodle broth.`\
 https://nytimes.com/video/dining/100000010369236/yuzu-miso-soba-noodle-soup.html
-
-**How Strong Is Your Financial Knowledge? Take Our Quiz.**\
-`Test your knowledge of credit cards, buying a home, saving for college or retirement and other things that affect your wallet.`\
-https://nytimes.com/2026/01/30/business/financial-knowledge-quiz.html
 

@@ -1,3 +1,15 @@
+**England captain Brook admits he lied about nightclub incident to 'protect' team-mates**\
+`Brook, 26, was disciplined for the incident last October and had always maintained that he went to a nightclub in Wellington on his own.`\
+https://nytimes.com/athletic/7010872/2026/01/30/harry-brook-england-cricket-nightclub/
+
+**Scoop City: The importance of explosive plays**\
+`How big plays explain the successes of Seattle and New England, how broadcasters are prepping for Super Bowl 60 and more coaching news`\
+https://nytimes.com/athletic/7010925/2026/01/30/explosive-plays-nfl-seahawks-patriots-scoop-city/
+
+**Morehead seems frustrated with NCAA's absence: 'We have rules, but they're not being enforced'**\
+`ATHENS, Ga.`\
+https://nytimes.com/athletic/7010911/2026/01/30/georgia-jere-morehead-sec-rule-enforcement/
+
 **Co-Stars and Fans Pay Tribute to Catherine O’Hara**\
 `Videos and photos filled social media as fans shared their favorite scenes from O’Hara’s acting career and co-stars memorialized her.`\
 https://nytimes.com/2026/01/30/arts/catherine-ohara-death-reactions.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2026/01/30/us/earthquake-new-jersey.html
 **Charred Tangerines on Toast**\
 `For an unexpectedly good hors d’oeuvre, char tangerines. Yes, tangerines. Letting the blackened citrus steep in an herby oil yields a sweet, silky and pleasantly bitter result.`\
 https://nytimes.com/video/dining/100000010369239/charred-tangerines-on-toast.html
-
-**Why Trump Is Going After Iran Now**\
-`As President Trump warns that “we have a lot of very big, very powerful ships sailing to Iran right now,” our national security correspondent David E. Sanger breaks down what to know.`\
-https://nytimes.com/video/world/middleeast/100000010675129/why-trump-is-going-after-iran-now.html
-
-**‘If You’re Looking for Order, You’ll Never See It’**\
-`Davos may have felt like the end of the old world order, but the historian Adam Tooze isn’t confident that what comes next will be either stable or orderly.`\
-https://nytimes.com/video/opinion/100000010669593/if-youre-looking-for-order-youll-never-see-it.html
-
-**Yuzu-Miso Soba Noodle Soup**\
-`Sour like lemon, bitter like grapefruit, sweet like mandarins and tangy like oranges, yuzu might be the consummate citrus — and it brings all of that complex magic to this light, clean noodle broth.`\
-https://nytimes.com/video/dining/100000010369236/yuzu-miso-soba-noodle-soup.html
 
