@@ -1,3 +1,15 @@
+**Tesla’s Model S, Soon to Be History, Changed the Auto Industry**\
+`The company’s chief executive, Elon Musk, said this week that it would stop making the car, an electric pioneer in 2012, as well as the Model X.`\
+https://nytimes.com/2026/01/30/business/tesla-model-s-history.html
+
+**‘Marty Supreme’ | Anatomy of a Scene**\
+`The director Josh Safdie narrates a sequence from his film, nominated for nine Oscars and featuring Timothée Chalamet and Gwyneth Paltrow.`\
+https://nytimes.com/video/movies/100000010676236/marty-supreme-scene.html
+
+**Stock Market Takes Warsh Nomination in Stride**\
+`Stock and bond markets were unfazed by Kevin Warsh’s nomination as the next Fed chair with the S&P 500 nudging slightly lower in early trading Friday.`\
+https://nytimes.com/2026/01/30/us/politics/stock-market-kevin-warsh-fed.html
+
 **James Talarico**\
 ``\
 https://nytimes.com/spotlight/james-talarico
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7009973/2026/01/30/levi-colwill-chelsea-injury-late
 **Is the ‘Influencer Right’ at Odds With Trump Over Minnesota?**\
 `A vocal group of Trump supporters broke with the president when he appeared to backpedal on his immigration crackdown in Minneapolis. Is it a rift, or just a passing mood?`\
 https://nytimes.com/2026/01/30/style/maga-trump-base-minnesota.html
-
-**10 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2026/01/30/movies/new-movies-this-week-critics.html
-
-**U.S. Judge in Mangione Case Rules Prosecutors Cannot Seek Death Penalty**\
-`The judge, Margaret Garnett of Federal District Court, said the case against Luigi Mangione would still proceed to trial on other counts.`\
-https://nytimes.com/2026/01/30/nyregion/death-penalty-luigi-mangione.html
-
-**Milan working on Mateta deal with striker not in Palace squad this weekend**\
-`Nottingham Forest have previously bid £35m for the French striker, who will not be in the Palace to face them squad on Sunday.`\
-https://nytimes.com/athletic/7009995/2026/01/30/milan-jean-philippe-mateta-transfer-palace/
 
