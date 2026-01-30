@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6801667/2026/01/30/nhl-sideline-reporters-broadcasters-benches/
 
+**Want to call an NHL game between the benches? Better get a helmet**\
+`The risks associated with one of the most unique jobs in sports broadcasting are outweighed by having the "greatest seat in the house."
+`\
+https://nytimes.com/athletic/6801667/2026/01/30/nhl-sideline-reporters-broadcasters-benches/
+
 **Syrian Government and Kurdish-Led Militia Seal a Deal to Merge Forces**\
 `The long-anticipated agreement closes a period of intense uncertainty in northeastern Syria after rebel forces led by Ahmed al-Sharaa, who is now the president, seized power in December 2024.`\
 https://nytimes.com/2026/01/30/world/middleeast/syria-kurd-sdf-agreement.html

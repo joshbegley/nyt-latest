@@ -1,3 +1,11 @@
+**The Pulse: A perfectly Pirates dilemma**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7009265/2026/01/30/pirates-griffin-skenes-prospects-the-pulse/
+
+**Highlights from Paris Couture Week**\
+`Our chief fashion critic Vanessa Friedman breaks down the most iconic looks from this week’s couture shows in Paris.`\
+https://nytimes.com/video/fashion/runway-couture/100000010675984/highlights-from-paris-couture-week.html
+
 **Syrian Government and Kurdish-Led Militia Seal a Deal to Merge Forces**\
 `The long-anticipated agreement closes a period of intense uncertainty in northeastern Syria after rebel forces led by Ahmed al-Sharaa, who is now the president, seized power in December 2024.`\
 https://nytimes.com/2026/01/30/world/middleeast/syria-kurd-sdf-agreement.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6801667/2026/01/30/nhl-sideline-reporters-broadcast
 **Timberwolves wear 'We Stand With Minnesota' shirts during pregame warmups**\
 `"We’re just having our city’s back," said Jaden McDaniels, who scored 21 points in Minnesota's 123-111 win over Oklahoma City.`\
 https://nytimes.com/athletic/7009026/2026/01/30/minnesota-timberwolves-t-shirts-warmups/
-
-**Bronny James' new signature logo igniting conversation but shouldn't be unexpected**\
-`LeBron James' son has a new logo, which got a lot of attention during Wednesday's Los Angeles Lakers game against the Cleveland Cavaliers.`\
-https://nytimes.com/athletic/7008350/2026/01/30/bronny-james-logo-shoe-lebron-lakers-nba/
-
-**The Celtics' need for big man at the NBA trade deadline has never been clearer**\
-`The Celtics need to bolster their lineup with a big man before it really becomes a problem for Boston.`\
-https://nytimes.com/athletic/7008307/2026/01/30/celtics-nba-trade-deadline-2026-needs-big-man/
 
