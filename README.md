@@ -1,3 +1,11 @@
+**How The Times Is Covering the Latest Release of Epstein Files**\
+`Several reporters and editors have covered the case since 2019. Others report on the Justice Department, Congress, the White House and the federal court system.`\
+https://nytimes.com/2026/01/30/us/how-the-times-is-covering-the-latest-release-of-epstein-files.html
+
+**Texas A&M Ends Women’s Studies and Overhauls Classes Over Race and Gender**\
+`New policies limiting the teaching of race and gender issues led administrators and professors to change hundreds of courses. School leaders say the rules could hurt A&M’s reputation.`\
+https://nytimes.com/2026/01/30/us/texas-am-gender-ethnic-womens-studies-academic-freedom.html
+
 **Drilling Is Underway to Examine Antarctica’s Melting Ice From Below**\
 `A team hopes to place instruments in the waters beneath the colossal Thwaites Glacier, with the help of a drill that uses hot water to punch through ice.`\
 https://nytimes.com/2026/01/30/climate/antarctica-thwaites-glacier-drilling.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/30/us/epstein-documents-uncorroborated-tips.html
 **Car Hits High School Student in Nebraska During an Anti-ICE Protest**\
 `A video showed a driver with a “Trump 2024” flag mounted to the car’s rear window driving into a girl who was holding a poster.`\
 https://nytimes.com/2026/01/30/us/high-school-student-ice-protes-nebraska.html
-
-**Men’s Work Bags We Love**\
-`Text by Mitch Moxley`\
-https://nytimes.com/card/2026/01/30/smarter-living/wirecutter/
-
-**Argentina in Advanced Talks to Become Destination for U.S. Deportations**\
-`Washington and Buenos Aires are working on an agreement to allow the U.S. to deport immigrants from other nations to the South American country.`\
-https://nytimes.com/2026/01/30/world/americas/argentina-us-deportations-immigrants-milei.html
 

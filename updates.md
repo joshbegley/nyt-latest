@@ -1,3 +1,7 @@
+**Drilling Is Underway to Examine Antarctica’s Melting Ice From Below**\
+`A team hopes to place instruments in the waters beneath the colossal Thwaites Glacier, with the help of a drill that uses hot water to punch through ice.`\
+https://nytimes.com/2026/01/30/climate/antarctica-thwaites-glacier-drilling.html
+
 **Prime Tire: Remember when F1 cars looked ridiculous?**\
 `Welcome to Prime Tire, The Athletic's F1 newsletter.`\
 https://nytimes.com/athletic/7010273/2026/01/30/when-f1-cars-looked-ridiculous-prime-tire/
