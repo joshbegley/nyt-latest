@@ -1,3 +1,23 @@
+**Who Was at the ‘Melania’ Premiere?**\
+`Right-wing influencers and top White House officials streamed into the Kennedy Center on Thursday to see Amazon’s new documentary about the first lady, Melania Trump.`\
+https://nytimes.com/2026/01/29/style/melania-trump-movie-kennedy-center-premiere.html
+
+**Kennedy Overhauls Federal Autism Panel in His Own Image**\
+`The new panel, which advises the government on research and service priorities for people with autism, includes many members who have argued that vaccines cause autism.`\
+https://nytimes.com/2026/01/29/health/autism-panel-kennedy-iacc-.html
+
+**What Domestic Terrorism Means, and Doesn’t**\
+`The Trump administration has called the Minneapolis shooting victims “domestic terrorists.” Our criminal justice reporter Jonah E. Bromwich explains what that term actually means.`\
+https://nytimes.com/video/us/100000010669504/what-domestic-terrorism-means-and-doesnt.html
+
+**Team USA women's hockey player partners with anti-trans inclusion group**\
+`Curl-Salemme's latest collaboration with FIERCE Athlete has been liked by teammates on the U.S. national team and PWHL's Minnesota Frost.`\
+https://nytimes.com/athletic/7005946/2026/01/29/britta-curl-salemme-fierce-athlete-transgender-women/
+
+**Russian cross-country skiing star Alexander Bolshunov ineligible for 2026 Olympics**\
+`The Court of Arbitration for Sport rejected Bolshunov’s last-ditch attempt to be able to compete as an Individual Neutral Athlete.`\
+https://nytimes.com/athletic/7008362/2026/01/29/olympics-2026-alexander-bolshunov-russia-cross-country-skiing/
+
 **Brad Treliving defends the Maple Leafs' approach to sports science**\
 `The GM responded to criticism over the vacant director of performance role, saying the Leafs have more staff working hands-on with players.`\
 https://nytimes.com/athletic/7007804/2026/01/29/brad-treliving-maple-leafs-sports-science/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/29/us/weekend-ice-protests-strike-shutdown.html
 **Ex-Google Engineer Convicted of Stealing A.I. Secrets for Start-Up in China**\
 `A federal jury found that Linwei Ding stole thousands of confidential files to help him start a company in Beijing.`\
 https://nytimes.com/2026/01/29/business/ai-secrets-stolen-google-china.html
-
-**Where ICE Has Had Cooperation From Minnesota Jails and Prisons**\
-`About 30 percent of the people ICE detained in Minnesota last year were turned over by local jails and prisons, a New York Times analysis of federal data shows, but that number is a lower share than in 39 other states.`\
-https://nytimes.com/2026/01/29/us/minnesota-ice-jails-immigration-arrests.html
-
-**Democrats Reach a Deal With the White House**\
-`Also, genes may determine longevity, a new study finds. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2026/01/29/briefing/democrats-reach-a-deal-with-the-white-house.html
-
-**Michael Beck, 65, Dies; First to Report Symptoms of ‘Havana Syndrome’**\
-`As an employee with the N.S.A., he claimed he was exposed to a direct-energy device that led to a diagnosis of Parkinson’s disease.`\
-https://nytimes.com/2026/01/29/us/michael-beck-dead.html
-
-**How to Make Friends as an Adult**\
-`A practical guide for expanding your circle, with advice from sociable people.`\
-https://nytimes.com/article/how-to-make-friends-as-an-adult.html
-
-**Dodgers' Miguel Rojas won't represent Venezuela in WBC due to insurance issues: Source**\
-`Jose Altuve and Carlos Correa of the Houston Astros also won't participate in the WBC due to insurance concerns.`\
-https://nytimes.com/athletic/7008310/2026/01/29/dodgers-miguel-rojas-wont-represent-venezuela-in-wbc-due-to-insurance-issues-source/
 

@@ -1,3 +1,23 @@
+**Who Was at the ‘Melania’ Premiere?**\
+`Right-wing influencers and top White House officials streamed into the Kennedy Center on Thursday to see Amazon’s new documentary about the first lady, Melania Trump.`\
+https://nytimes.com/2026/01/29/style/melania-trump-movie-kennedy-center-premiere.html
+
+**Kennedy Overhauls Federal Autism Panel in His Own Image**\
+`The new panel, which advises the government on research and service priorities for people with autism, includes many members who have argued that vaccines cause autism.`\
+https://nytimes.com/2026/01/29/health/autism-panel-kennedy-iacc-.html
+
+**What Domestic Terrorism Means, and Doesn’t**\
+`The Trump administration has called the Minneapolis shooting victims “domestic terrorists.” Our criminal justice reporter Jonah E. Bromwich explains what that term actually means.`\
+https://nytimes.com/video/us/100000010669504/what-domestic-terrorism-means-and-doesnt.html
+
+**Team USA women's hockey player partners with anti-trans inclusion group**\
+`Curl-Salemme's latest collaboration with FIERCE Athlete has been liked by teammates on the U.S. national team and PWHL's Minnesota Frost.`\
+https://nytimes.com/athletic/7005946/2026/01/29/britta-curl-salemme-fierce-athlete-transgender-women/
+
+**Russian cross-country skiing star Alexander Bolshunov ineligible for 2026 Olympics**\
+`The Court of Arbitration for Sport rejected Bolshunov’s last-ditch attempt to be able to compete as an Individual Neutral Athlete.`\
+https://nytimes.com/athletic/7008362/2026/01/29/olympics-2026-alexander-bolshunov-russia-cross-country-skiing/
+
 **Brad Treliving defends the Maple Leafs' approach to sports science**\
 `The GM responded to criticism over the vacant director of performance role, saying the Leafs have more staff working hands-on with players.`\
 https://nytimes.com/athletic/7007804/2026/01/29/brad-treliving-maple-leafs-sports-science/

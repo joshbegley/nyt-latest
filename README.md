@@ -1,3 +1,7 @@
+**Can Trust in Vaccines Be Built Through Skepticism?**\
+`Is the Trump administration reviving confidence in vaccination or destroying it? Dr. Jay Bhattacharya, the director of the N.I.H., thinks an embrace of skepticism is key.`\
+https://nytimes.com/video/opinion/100000010665145/can-trust-in-vaccines-be-built-through-skepticism.html
+
 **Who Was at the ‘Melania’ Premiere?**\
 `Right-wing influencers and top White House officials streamed into the Kennedy Center on Thursday to see Amazon’s new documentary about the first lady, Melania Trump.`\
 https://nytimes.com/2026/01/29/style/melania-trump-movie-kennedy-center-premiere.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7008145/2026/01/29/bills-joe-brady-news-conference-
 **What to Know About Anti-ICE Protests This Weekend**\
 `Organizers are trying to build on the momentum of a strike last week that brought thousands into the streets in Minneapolis.`\
 https://nytimes.com/2026/01/29/us/weekend-ice-protests-strike-shutdown.html
-
-**Ex-Google Engineer Convicted of Stealing A.I. Secrets for Start-Up in China**\
-`A federal jury found that Linwei Ding stole thousands of confidential files to help him start a company in Beijing.`\
-https://nytimes.com/2026/01/29/business/ai-secrets-stolen-google-china.html
 
