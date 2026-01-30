@@ -1,3 +1,7 @@
+**A Blizzard at the Beach? Carolinas Prepare for a ‘Quite Unusual’ Weekend Forecast.**\
+`A storm on Saturday is shaping up to be one of the strongest that parts of the South have seen in years. The storm will move through the Northeast on Sunday, but probably with far less snow.`\
+https://nytimes.com/2026/01/30/weather/carolina-snow-storm-forecast-virginia.html
+
 **Can John Harbaugh's Giants follow Mike Vrabel Patriots' blueprint?**\
 `A breakdown of just how New England turned it around in Vrabel's first year.`\
 https://nytimes.com/athletic/7007974/2026/01/30/new-york-giants-john-harbaugh-first-season-expectations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7007421/2026/01/30/liverpool-arne-slot-right-back-o
 **Inside the Mets' offseason: A Bo Bichette plot twist and a methodical overhaul**\
 `An eventful 3-month stretch reshaped the Mets in unexpected ways as executves sought flexibility on the field and in their decision-making.`\
 https://nytimes.com/athletic/7007520/2026/01/30/mets-mlb-offseason-overhaul-bo-bichette/
-
-**My 2026 All-Star reserve selections, with some help from a new formula**\
-`We're splitting hairs on the back end of the rosters, but some selections should be obvious for the coaches doing the voting.`\
-https://nytimes.com/athletic/7005893/2026/01/30/nba-all-star-reserve-picks-formula-players/
 
