@@ -1,3 +1,7 @@
+**A Challenge for Britain’s Royal Mail: Proving it Can Deliver the Mail**\
+`Late letters are causing distress to some in Britain and fueling criticism of its 500-year-old postal service.`\
+https://nytimes.com/2026/01/30/world/europe/uk-royal-mail-post-service-delays.html
+
 **How to watch Vanderbilt vs. Ole Miss women's basketball: Time, TV, streaming**\
 `Find out how to watch the Vanderbilt Commodores play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7009732/2026/01/30/vanderbilt-vs-ole-miss-stream-how-to-watch-jan-30/

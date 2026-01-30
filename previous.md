@@ -1,3 +1,7 @@
+**A Challenge for Britain’s Royal Mail: Proving it Can Deliver the Mail**\
+`Late letters are causing distress to some in Britain and fueling criticism of its 500-year-old postal service.`\
+https://nytimes.com/2026/01/30/world/europe/uk-royal-mail-post-service-delays.html
+
 **How to watch Vanderbilt vs. Ole Miss women's basketball: Time, TV, streaming**\
 `Find out how to watch the Vanderbilt Commodores play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7009732/2026/01/30/vanderbilt-vs-ole-miss-stream-how-to-watch-jan-30/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7003914/2026/01/30/college-football-playoff-champio
 **Dillon Brooks, Suns out-scrap Pistons to post their best win of the season**\
 `Without injured leading scorers Devin Booker and Jalen Green, Brooks put up a career-high 40 points in Thursday night's win.`\
 https://nytimes.com/athletic/7009290/2026/01/30/suns-win-pistons-dillon-brooks/
-
-**Patriots, Seahawks unveil Super Bowl jerseys. What history says about their selections**\
-`New England and Seattle will wear nearly the same uniforms they donned in their previous Super Bowl matchup, with one notable change.`\
-https://nytimes.com/athletic/7002932/2026/01/30/super-bowl-jerseys-patriots-seahawks-history-records/
 
