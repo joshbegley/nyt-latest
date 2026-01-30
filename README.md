@@ -1,3 +1,7 @@
+**The Netherlands Is Getting a New Government. Will It Last?**\
+`Rob Jetten, a 38-year-old centrist, is poised to be the youngest prime minister in Dutch history. But his government will be in a daunting position.`\
+https://nytimes.com/2026/01/30/world/europe/netherlands-government-rob-jetten.html
+
 **The Bounce: Let's make some fake Giannis trades! Plus, the Wolves hammer OKC**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7009822/2026/01/30/giannis-trades-bucks-heat-warriors-knicks-the-bounce/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7009752/2026/01/30/nhl-power-rankings-haiku-week/
 **What to Know About Kevin Warsh, Trump’s Pick to Lead the Fed**\
 `The president’s choice to lead the Federal Reserve is a financier and former governor of the central bank.`\
 https://nytimes.com/2026/01/30/us/politics/who-is-kevin-warsh-fed-chair.html
-
-**A Challenge for Britain’s Royal Mail: Proving It Can Deliver the Mail**\
-`Late letters are causing distress to some in Britain and fueling criticism of its 500-year-old postal service.`\
-https://nytimes.com/2026/01/30/world/europe/uk-royal-mail-post-service-delays.html
 
