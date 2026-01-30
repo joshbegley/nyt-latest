@@ -1,3 +1,7 @@
+**F1 hits reset in 2026. Your guide to the new cars, new rules and new era**\
+`Formula 1 evolves dramatically in 2026. Here's your year-long guide to it all`\
+https://nytimes.com/athletic/7009213/2026/01/30/f1-new-regulations-explained-2026/
+
 **Kimchi**\
 `Sometimes called mak kimchi, this kimchi formula starts with chopped napa cabbage and is as easy as dressing a salad. You just toss everything together in a large bowl.`\
 https://nytimes.com/video/dining/100000010366745/kimchi.html
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/7010196/2026/01/30/lakers-vs-wizards-stream-how-to-
 **Australian Open men's semifinals: Cramps, vomit and drama as sleepy tournament awakens**\
 `After a tournament bereft of tension, Melbourne Park turned into a cauldron on Day 13.`\
 https://nytimes.com/athletic/7008359/2026/01/30/tennis-australian-open-semifinals-alcaraz-zverev-sinner-djokovic/
-
-**Who Is Georgia Fort, the Other Journalist Arrested Over a Church Protest?**\
-`Ms. Fort was taken into custody by federal agents Friday morning, following a grand jury indictment.`\
-https://nytimes.com/2026/01/30/us/who-is-georgia-fort-journalist-arrested-church-protest.html
-
-**How to watch Columbia vs. Princeton women's basketball: Time, TV, streaming**\
-`Find out how to watch the Columbia Lions play the Princeton Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7010177/2026/01/30/columbia-vs-princeton-stream-how-to-watch-jan-30/
 

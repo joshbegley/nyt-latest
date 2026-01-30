@@ -1,3 +1,7 @@
+**F1 hits reset in 2026. Your guide to the new cars, new rules and new era**\
+`Formula 1 evolves dramatically in 2026. Here's your year-long guide to it all`\
+https://nytimes.com/athletic/7009213/2026/01/30/f1-new-regulations-explained-2026/
+
 **Kimchi**\
 `Sometimes called mak kimchi, this kimchi formula starts with chopped napa cabbage and is as easy as dressing a salad. You just toss everything together in a large bowl.`\
 https://nytimes.com/video/dining/100000010366745/kimchi.html
