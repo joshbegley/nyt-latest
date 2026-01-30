@@ -1,3 +1,15 @@
+**England captain Brook admits he lied about nightclub incident to 'protect' team-mates**\
+`Brook, 26, was disciplined for the incident last October and had always maintained that he went to a nightclub in Wellington on his own.`\
+https://nytimes.com/athletic/7010872/2026/01/30/harry-brook-england-cricket-nightclub/
+
+**Scoop City: The importance of explosive plays**\
+`How big plays explain the successes of Seattle and New England, how broadcasters are prepping for Super Bowl 60 and more coaching news`\
+https://nytimes.com/athletic/7010925/2026/01/30/explosive-plays-nfl-seahawks-patriots-scoop-city/
+
+**Morehead seems frustrated with NCAA's absence: 'We have rules, but they're not being enforced'**\
+`ATHENS, Ga.`\
+https://nytimes.com/athletic/7010911/2026/01/30/georgia-jere-morehead-sec-rule-enforcement/
+
 **Co-Stars and Fans Pay Tribute to Catherine O’Hara**\
 `Videos and photos filled social media as fans shared their favorite scenes from O’Hara’s acting career and co-stars memorialized her.`\
 https://nytimes.com/2026/01/30/arts/catherine-ohara-death-reactions.html
