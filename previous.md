@@ -1,40 +1,40 @@
-**Will Warsh Do What Trump Wants?**\
-`Some investors are worried that President Trump’s nominee to run the Federal Reserve may not be a guaranteed “yes” on cutting interest rates.`\
-https://nytimes.com/2026/01/30/business/dealbook/warsh-fed-trump.html
+**Iran Says It Won’t Negotiate With the U.S. While Under Threat**\
+`Iran’s foreign minister ruled out direct talks unless President Trump stops threatening to attack it. He also said Iran would not discuss its ballistic missiles.`\
+https://nytimes.com/2026/01/30/world/europe/iran-trump-us-threats-turkey.html
 
-**Europa League play-off draw: Forest to face Fenerbahce, Celtic vs Stuttgart**\
-`The two-legged play-off — to be played on February 19 and 26 — will mark Forest's first-ever matches against the Turkish Super Lig side.`\
-https://nytimes.com/athletic/7009560/2026/01/30/europa-league-play-off-draw-nottingham-forest-celtic/
+**Steelers set to hire Patrick Graham as defensive coordinator: Sources**\
+`It is arguably the most important position on new head coach Mike McCarthy's first Steelers coaching staff.`\
+https://nytimes.com/athletic/6999947/2026/01/30/patrick-graham-pittsburgh-steelers-dc/
 
-**Can Food Be Art? Denmark Is Finding Out.**\
-`High-level chefs in the country could become eligible for arts funding under a new initiative. Not all in the art and culinary worlds are raising a glass to the idea, though.`\
-https://nytimes.com/2026/01/30/arts/denmark-food-fine-art-chefs.html
+**Lowetide: Why Zach Hyman remains such a key to Oilers' success**\
+`The difference in the Oilers with Hyman in and out of the lineup remains massive.`\
+https://nytimes.com/athletic/7007124/2026/01/30/zach-hyman-oilers-stats-goals/
 
-**Born of a Factory Mistake, This Sad Toy Horse Captures China’s Mood**\
-`A manufacturing error turned a Lunar New Year toy into an unlikely emblem of workplace fatigue.`\
-https://nytimes.com/2026/01/30/world/asia/crying-horse-toy-china.html
+**Stick to the blueprint or go all-in? Steph Curry, Draymond on Warriors' defining dilemma**\
+`As Draymond Green and Steph Curry’s clocks tick, one question hangs above Warriors: How far will they go for one more run? `\
+https://nytimes.com/athletic/7008124/2026/01/30/warriors-nba-trade-deadline-2026-steph-curry-draymond-green/
 
-**What you need to know about the Olympic skeleton controversy between the U.S. and Canada**\
-`U.S. skeleton racer Katie Uhlaender is at the center of a U.S.-Canada Olympic qualification controversy.`\
-https://nytimes.com/athletic/7007710/2026/01/30/olympic-skeleton-controversy-katie-uhlaender-us-canada/
+**Ubben: If you didn't like how late this year's CFP title game was, brace yourself for next season**\
+`Next year, a team with a first-round bye will play three games in 51 days to win the title.`\
+https://nytimes.com/athletic/7003914/2026/01/30/college-football-playoff-championship-dates-calendar/
 
-**Jaden McDaniels shows why it would be hard for Wolves to trade him in win over Thunder**\
-`McDaniels, a consummate pro, scored 21 points and hit all five of his 3s in a win over the defending champs.`\
-https://nytimes.com/athletic/7007546/2026/01/30/jaden-mcdaniels-timberwolves-thunder-trade-rumors/
+**Dillon Brooks, Suns out-scrap Pistons to post their best win of the season**\
+`Without injured leading scorers Devin Booker and Jalen Green, Brooks put up a career-high 40 points in Thursday night's win.`\
+https://nytimes.com/athletic/7009290/2026/01/30/suns-win-pistons-dillon-brooks/
 
-**Fantasy Premier League live Q&A: Gameweek 24 advice from Ben Dinnery**\
-`To help get your FPL team into the best possible shape, Ben Dinnery of premierinjuries.com is on hand to offer his expert advice`\
-https://nytimes.com/athletic/7009502/2026/01/30/fantasy-premier-league-live-qa-gameweek-24-advice-from-ben-dinnery/
+**Patriots, Seahawks unveil Super Bowl jerseys. What history says about their selections**\
+`New England and Seattle will wear nearly the same uniforms they donned in their previous Super Bowl matchup, with one notable change.`\
+https://nytimes.com/athletic/7002932/2026/01/30/super-bowl-jerseys-patriots-seahawks-history-records/
 
-**Dodgers' Andrew Friedman is bullish on his club's rotation. Here's why**\
-`Hunting for a three-peat, the Dodgers will open camp with perhaps their best and deepest rotations.`\
-https://nytimes.com/athletic/7008379/2026/01/30/los-angeles-dodgers-friedman-rotation-overview/
+**Crypto Billionaires Try to Build a Moderate ‘Counterforce’ in California Politics**\
+`Chris Larsen and Tim Draper, two outspoken Silicon Valley leaders, are planning to spend tens of millions of dollars to elect moderate state lawmakers this year.`\
+https://nytimes.com/2026/01/30/us/politics/crypto-billionaires-try-to-build-a-moderate-counterforce-in-california-politics.html
 
-**Champions League play-off draw analysed: Benfica v Real Madrid again and a French first**\
-`Our writers analyse the draw and what it means for the rest of this Champions League campaign`\
-https://nytimes.com/athletic/7009390/2026/01/30/champions-league-play-off-draw-analysed/
+**Lucas Paqueta and West Ham: How the bubble burst**\
+`A partnership that once promised so much ended in acrimony. But why?`\
+https://nytimes.com/athletic/7001182/2026/01/30/lucas-paqueta-west-ham-flamengo-transfer-inside-story/
 
-**Trump Repeats Claims Against Alex Pretti, Casting Slain Nurse as ‘Agitator’**\
-`After videos resurfaced showing a confrontation between Mr. Pretti and federal agents 11 days before officers fatally shot him, President Trump again sought to cast blame on him.`\
-https://nytimes.com/2026/01/30/us/trump-alex-pretti-agitator-minneapolis-shooting-ice.html
+**Meet the Federal Debt, the Fed’s Actual New Boss (Sorry, Kevin Warsh)**\
+`The new boss of the Fed won’t be Trump’s nominee. It’ll be the federal debt.`\
+https://nytimes.com/2026/01/30/opinion/fed-kevin-warsh-trump-powell.html
 

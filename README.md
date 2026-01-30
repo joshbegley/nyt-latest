@@ -1,3 +1,11 @@
+**Arsenal v Manchester City title race: Gunners chances down 17% ahead of February fixtures**\
+`Arsenal's chances of winning the title have taken a tumble; how are they and Manchester City shaping up across the key month of February?`\
+https://nytimes.com/athletic/7009492/2026/01/30/arsenal-v-manchester-city-title-race-fixture-analysis-as-gunners-chances-slip-by-17/
+
+**Federal Agents Arrest Don Lemon Over Minnesota Church Protest**\
+`The former CNN anchor has said he was not demonstrating, but reporting as a journalist, during the interruption of a service inside a St. Paul church earlier this month.`\
+https://nytimes.com/2026/01/30/us/don-lemon-arrest-minnesota-church-protest.html
+
 **Iran Says It Won’t Negotiate With the U.S. While Under Threat**\
 `Iran’s foreign minister ruled out direct talks unless President Trump stops threatening to attack it. He also said Iran would not discuss its ballistic missiles.`\
 https://nytimes.com/2026/01/30/world/europe/iran-trump-us-threats-turkey.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7002932/2026/01/30/super-bowl-jerseys-patriots-seah
 **Crypto Billionaires Try to Build a Moderate ‘Counterforce’ in California Politics**\
 `Chris Larsen and Tim Draper, two outspoken Silicon Valley leaders, are planning to spend tens of millions of dollars to elect moderate state lawmakers this year.`\
 https://nytimes.com/2026/01/30/us/politics/crypto-billionaires-try-to-build-a-moderate-counterforce-in-california-politics.html
-
-**Lucas Paqueta and West Ham: How the bubble burst**\
-`A partnership that once promised so much ended in acrimony. But why?`\
-https://nytimes.com/athletic/7001182/2026/01/30/lucas-paqueta-west-ham-flamengo-transfer-inside-story/
-
-**Meet the Federal Debt, the Fed’s Actual New Boss (Sorry, Kevin Warsh)**\
-`The new boss of the Fed won’t be Trump’s nominee. It’ll be the federal debt.`\
-https://nytimes.com/2026/01/30/opinion/fed-kevin-warsh-trump-powell.html
 
