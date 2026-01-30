@@ -1,3 +1,11 @@
+**War Threats and Ambiguous Evidence: Trump Again Confronts Iran**\
+`There is little sign that Iran has made significant progress in reconstituting its nuclear program, leaving questions about the timing and motive behind potential plans for further attacks.`\
+https://nytimes.com/2026/01/29/us/politics/trump-iran-israel-intel.html
+
+**Patrick Kane breaks NHL record for most points by American-born player**\
+`Kane recorded his 1,375th career point, passing Mike Modano for the most ever by an American-born player.`\
+https://nytimes.com/athletic/6993211/2026/01/29/patrick-kane-nhl-record-american-points/
+
 **Boxer Anthony Joshua breaks silence about car crash that killed 2 friends**\
 `The former Olympic gold medalist spoke on Instagram about the December tragedy on a highway in Nigeria.`\
 https://nytimes.com/athletic/7008403/2026/01/29/boxer-anthony-joshua-discusses-friends-killed/

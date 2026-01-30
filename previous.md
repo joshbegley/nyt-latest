@@ -1,3 +1,11 @@
+**War Threats and Ambiguous Evidence: Trump Again Confronts Iran**\
+`There is little sign that Iran has made significant progress in reconstituting its nuclear program, leaving questions about the timing and motive behind potential plans for further attacks.`\
+https://nytimes.com/2026/01/29/us/politics/trump-iran-israel-intel.html
+
+**Patrick Kane breaks NHL record for most points by American-born player**\
+`Kane recorded his 1,375th career point, passing Mike Modano for the most ever by an American-born player.`\
+https://nytimes.com/athletic/6993211/2026/01/29/patrick-kane-nhl-record-american-points/
+
 **Boxer Anthony Joshua breaks silence about car crash that killed 2 friends**\
 `The former Olympic gold medalist spoke on Instagram about the December tragedy on a highway in Nigeria.`\
 https://nytimes.com/athletic/7008403/2026/01/29/boxer-anthony-joshua-discusses-friends-killed/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7008519/2026/01/29/robert-saleh-titans-coach-jets/
 **Trump Weighs New Military Options Against Iran**\
 `The plans being weighed by the president go beyond those he considered weeks ago amid widespread protests against Iran’s government.`\
 https://nytimes.com/2026/01/29/us/trump-military-options-against-iran.html
-
-**Husband Denies Plot in Double Murder Trial, Calling Accusations ‘Crazy’**\
-`Brendan Banfield rebuffed claims that he had made an elaborate plan for the killings with the family’s au pair, with whom he had an affair.`\
-https://nytimes.com/2026/01/29/us/brendan-banfield-double-murder-trial.html
-
-**How to watch Alcaraz vs. Zverev, Djokovic vs. Sinner in Australian Open men's semifinals**\
-`A top-heavy semifinals promises an exhilarating ending to the 2026 Australian Open men's singles tournament. `\
-https://nytimes.com/athletic/7008247/2026/01/29/australian-open-2026-how-to-watch-djokovic-sinner-alcaraz-zverev/
 
