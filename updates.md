@@ -1,3 +1,15 @@
+**Frimpong is out for weeks - so what are Liverpool's options at right-back?**\
+`Arne Slot has a problem position to fill with his specialist right-backs out injured`\
+https://nytimes.com/athletic/7007421/2026/01/30/liverpool-arne-slot-right-back-options/
+
+**Inside the Mets' offseason: A Bo Bichette plot twist and a methodical overhaul**\
+`An eventful 3-month stretch reshaped the Mets in unexpected ways as executves sought flexibility on the field and in their decision-making.`\
+https://nytimes.com/athletic/7007520/2026/01/30/mets-mlb-offseason-overhaul-bo-bichette/
+
+**My 2026 All-Star reserve selections, with some help from a new formula**\
+`We're splitting hairs on the back end of the rosters, but some selections should be obvious for the coaches doing the voting.`\
+https://nytimes.com/athletic/7005893/2026/01/30/nba-all-star-reserve-picks-formula-players/
+
 **Drake Maye may have to turn back into Superman for Patriots to beat Seahawks**\
 `Maye hasn't looked like himself in the playoffs. He'll likely have to be better for the Patriots to have a real chance in the Super Bowl.`\
 https://nytimes.com/athletic/7008126/2026/01/30/drake-maye-patriots-superman-seahawks-super-bowl/
