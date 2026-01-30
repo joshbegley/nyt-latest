@@ -1,3 +1,7 @@
+**Musk and Epstein exchanged emails about visiting one another, new documents show.**\
+`Mr. Musk, who sought to tie President Trump to Mr. Epstein during a feud last year, has tried to distance himself from the sex offender.`\
+https://nytimes.com/2026/01/30/us/musk-and-epstein-exchanged-emails-about-visiting-one-another-new-documents-show.html
+
 **Republicans Start to Fracture Over Immigration Enforcement**\
 `The party was mostly unified on the issue not long ago, but splinters are everywhere now.`\
 https://nytimes.com/2026/01/30/us/politics/immigration-news-trump-gop.html
