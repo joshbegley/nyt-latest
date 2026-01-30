@@ -1,3 +1,7 @@
+**Nottingham Forest's fringe players show their worth just as transfer frenzy hits**\
+`Igor Jesus and James McAtee were among Forest's top performers in a 4-0 win over Ferencvaros that suggested they may yet have a part to play`\
+https://nytimes.com/athletic/7008748/2026/01/30/forest-jesus-mcatee/
+
 **Jimmy Kimmel Teases ‘Melania’**\
 `The late night host said, “Not since ‘The Terminator’ has there been this much excitement for a movie about a European cyborg.”`\
 https://nytimes.com/2026/01/30/arts/television/jimmy-kimmel-melania-trump-documentary.html

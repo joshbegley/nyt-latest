@@ -1,3 +1,7 @@
+**Word of the Day: truculent**\
+`This word has appeared in 18 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/30/learning/word-of-the-day-truculent.html
+
 **Nottingham Forest's fringe players show their worth just as transfer frenzy hits**\
 `Igor Jesus and James McAtee were among Forest's top performers in a 4-0 win over Ferencvaros that suggested they may yet have a part to play`\
 https://nytimes.com/athletic/7008748/2026/01/30/forest-jesus-mcatee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7007379/2026/01/30/chelsea-andrey-santos-liam-rosen
 **The challenge for Oriola at Brighton is to succeed where Sarmiento could not**\
 `Dubbed an 'unbelievable talent' by Fabian Hurzeler, Nehemiah Oriola is on the cusp of the Brighton first team - can he make the next step?`\
 https://nytimes.com/athletic/6749261/2026/01/30/brighton-nehemiah-oriola-sarmiento/
-
-**The FPL differentials who look primed to pick up points**\
-`As the FPL premium landscape remains straightforward, the real edge lies where explosive fixtures and solid low-owned players intersect`\
-https://nytimes.com/athletic/7004179/2026/01/30/fantasy-premier-league-fpl-tips-differentials/
 
