@@ -1,3 +1,19 @@
+**10 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2026/01/30/movies/new-movies-this-week-critics.html
+
+**U.S. Judge in Mangione Case Rules Prosecutors Cannot Seek Death Penalty**\
+`The judge, Margaret Garnett of Federal District Court, said the case against Luigi Mangione would still proceed to trial on other counts.`\
+https://nytimes.com/2026/01/30/nyregion/death-penalty-luigi-mangione.html
+
+**Milan working on Mateta deal with striker not in Palace squad this weekend**\
+`Nottingham Forest have previously bid £35m for the French striker, who will not be in the Palace to face them squad on Sunday.`\
+https://nytimes.com/athletic/7009995/2026/01/30/milan-jean-philippe-mateta-transfer-palace/
+
+**Novak Djokovic stuns Jannik Sinner at Australian Open to move one win from 25 Grand Slams**\
+`The 24-time Grand Slam champion needed five sets of relentless spot-serving and battering-ram forehands to overwhelm his recent nemesis.`\
+https://nytimes.com/athletic/7008360/2026/01/30/jannik-sinner-novak-djokovic-australian-open-result-analysis/
+
 **Ajax close to agreeing deal with Arsenal to sign Zinchenko**\
 `The defender has been on loan at Nottingham Forest since the summer but has made only 10 appearances. `\
 https://nytimes.com/athletic/6980851/2026/01/30/oleksandr-zinchenko-ajax-arsenal-deal-transfer/
