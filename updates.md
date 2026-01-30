@@ -1,3 +1,11 @@
+**Republicans Start to Fracture Over Immigration Enforcement**\
+`The party was mostly unified on the issue not long ago, but splinters are everywhere now.`\
+https://nytimes.com/2026/01/30/us/politics/immigration-news-trump-gop.html
+
+**Nashville Predators open arena, provide meals to residents affected by winter storms**\
+`Nashville community members were invited to the arena to charge their devices, fill up their water bottles and enjoy a meal.`\
+https://nytimes.com/athletic/7010983/2026/01/30/nashville-storm-bridgestone-arena-predators/
+
 **Trump’s Lawsuit Against I.R.S. Creates ‘Enormous Conflict of Interest’**\
 `The president is demanding that the federal government pay him at least $10 billion over the unauthorized disclosure of his tax returns during his first term.`\
 https://nytimes.com/2026/01/30/us/politics/trump-lawsuit-irs-taxes.html

@@ -1,3 +1,7 @@
+**Musk and Epstein exchanged emails about visiting one another, new documents show.**\
+`Mr. Musk, who sought to tie President Trump to Mr. Epstein during a feud last year, has tried to distance himself from the sex offender.`\
+https://nytimes.com/2026/01/30/us/musk-and-epstein-exchanged-emails-about-visiting-one-another-new-documents-show.html
+
 **Republicans Start to Fracture Over Immigration Enforcement**\
 `The party was mostly unified on the issue not long ago, but splinters are everywhere now.`\
 https://nytimes.com/2026/01/30/us/politics/immigration-news-trump-gop.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/30/us/minneapolis-ice-protests-bruce-springsteen-con
 **Flamengo complete Paqueta signing from West Ham**\
 `The Brazilian club announced Paqueta's arrival of Friday on a contract through to 2030.`\
 https://nytimes.com/athletic/7002064/2026/01/30/lucas-paqueta-flamengo-west-ham-transfer/
-
-**Decades Later, a Man’s Conviction Is Overturned With Ex-Inmate’s Help**\
-`On Friday, a Queens judge vacated the double-murder conviction of Allen Porter. Jabbar Collins, who was exonerated 16 years ago, never stopped fighting for the friend he met in custody.`\
-https://nytimes.com/2026/01/30/nyregion/queens-exoneration-allen-porter.html
 
