@@ -1,3 +1,7 @@
+**A's agree to seven-year, $70M extension with Jacob Wilson: Source**\
+`Wilson is the second high-profile A's player to sign a long-term extension with the team this offseason.`\
+https://nytimes.com/athletic/7010762/2026/01/30/athletics-jacob-wilson-extension/
+
 **Hotel Owners and Workers, Tell Us How You’re Feeling**\
 `With hotels increasingly caught between the federal government’s immigration crackdown and protests against ICE, we want to hear how it’s affecting you.`\
 https://nytimes.com/2026/01/30/travel/ice-hotels-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7010803/2026/01/30/raptors-vs-magic-stream-how-to-w
 **How to watch Cavaliers vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7010801/2026/01/30/cavaliers-vs-suns-stream-how-to-watch-jan-30/
-
-**How to watch Nets vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7010799/2026/01/30/nets-vs-jazz-stream-how-to-watch-jan-30/
 
