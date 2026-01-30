@@ -1,3 +1,7 @@
+**Car Hits High School Student in Nebraska During an Anti-ICE Protest**\
+`A video showed a driver with a “Trump 2024” flag mounted to the car’s rear window driving into a girl who was holding a poster.`\
+https://nytimes.com/2026/01/30/us/high-school-student-ice-protes-nebraska.html
+
 **Men’s Work Bags We Love**\
 `Text by Mitch Moxley`\
 https://nytimes.com/card/2026/01/30/smarter-living/wirecutter/
