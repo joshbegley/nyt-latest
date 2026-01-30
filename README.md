@@ -1,3 +1,7 @@
+**How to watch Vanderbilt vs. Ole Miss women's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7009732/2026/01/30/vanderbilt-vs-ole-miss-stream-how-to-watch-jan-30/
+
 **Arsenal v Manchester City title race: Gunners chances down 17% ahead of February fixtures**\
 `Arsenal's chances of winning the title have taken a tumble; how are they and Manchester City shaping up across the key month of February?`\
 https://nytimes.com/athletic/7009492/2026/01/30/arsenal-v-manchester-city-title-race-fixture-analysis-as-gunners-chances-slip-by-17/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7009290/2026/01/30/suns-win-pistons-dillon-brooks/
 **Patriots, Seahawks unveil Super Bowl jerseys. What history says about their selections**\
 `New England and Seattle will wear nearly the same uniforms they donned in their previous Super Bowl matchup, with one notable change.`\
 https://nytimes.com/athletic/7002932/2026/01/30/super-bowl-jerseys-patriots-seahawks-history-records/
-
-**Crypto Billionaires Try to Build a Moderate ‘Counterforce’ in California Politics**\
-`Chris Larsen and Tim Draper, two outspoken Silicon Valley leaders, are planning to spend tens of millions of dollars to elect moderate state lawmakers this year.`\
-https://nytimes.com/2026/01/30/us/politics/crypto-billionaires-try-to-build-a-moderate-counterforce-in-california-politics.html
 
