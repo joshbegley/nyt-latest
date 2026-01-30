@@ -1,3 +1,7 @@
+**Where the U.S. Is Building Up Military Force Near Iran**\
+`President Trump has not authorized military action in Iran, but the U.S. has built up its presence in the region in recent days.`\
+https://nytimes.com/2026/01/29/us/politics/trump-iran-us-military-maps.html
+
 **Falcons hiring Ian Cunningham as general manager: Source**\
 `Cunningham has been the assistant GM of the Bears for the last four seasons and was a part of Super Bowl wins with the Ravens and Eagles.`\
 https://nytimes.com/athletic/6983326/2026/01/29/ian-cunningham-falcons-general-manager-hire/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6983326/2026/01/29/ian-cunningham-falcons-general-m
 https://nytimes.com/2026/01/29/us/politics/trump-nicki-minaj-visa.html
 
 **Robert Saleh takes on Titans' coaching job armed with lessons from Jets tenure**\
-`Despite the turmoil during his time with the Jets, Saleh reflects fondly on his tenure: "I am as lucky as lucky gets."`\
+`Despite the turmoil during his time with the Jets, Saleh reflects fondly on his tenure there: "I am as lucky as lucky gets."`\
 https://nytimes.com/athletic/7008519/2026/01/29/robert-saleh-titans-coach-jets/
 
 **Trump Weighs New Military Options Against Iran**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7008433/2026/01/29/doc-rivers-jae-crowder-milwaukee
 **Canadiens vs. Nordiques? Battle of Quebec returns as Avs wear throwback jerseys**\
 `The Canadiens-Nordiques rivalry was one of the most heated in NHL history, and memories of the Battle of Quebec still resonate.`\
 https://nytimes.com/athletic/7007991/2026/01/29/avalanche-avs-throwback-jerseys-nordiques-canadiens/
-
-**‘It’s All About Us Now’: Video Shows Bovino’s Orders to Agents in L.A. Raids**\
-`The Border Patrol commander gave agents wide latitude to arrest people as immigration raids began last summer. Similar tactics were later used in other cities.`\
-https://nytimes.com/2026/01/29/us/bovino-orders-video.html
 
