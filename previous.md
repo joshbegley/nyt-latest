@@ -1,3 +1,15 @@
+**How Strong Is Your Financial Knowledge? Take Our Quiz.**\
+`Test your knowledge of credit cards, buying a home, saving for college or retirement and other things that affect your wallet.`\
+https://nytimes.com/2026/01/30/business/financial-knowledge-quiz.html
+
+**Sports leagues will use 'USA 250' patches to commemorate United States' birthday**\
+`NFL, NBA, MLB, NHL and others will have participants wear patches recognizing the 250th anniversary of the founding of the U.S. in 2026.`\
+https://nytimes.com/athletic/7010504/2026/01/30/america-250-jersey-patches-fanatics-trump/
+
+**Adam Tooze on China’s Transformation**\
+`The Western world’s understanding of China’s transformation is limited by ego, the historian Adam Tooze argues.`\
+https://nytimes.com/video/opinion/100000010669590/adam-tooze-on-chinas-transformation.html
+
 **Dubai Chocolate**\
 `This crunchy, creamy stuffed chocolate bar, created by Sarah Hamouda, has charmed sweet tooths worldwide.`\
 https://nytimes.com/video/dining/100000010369168/dubai-chocolate.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/01/30/us/epstein-files-release/ghislaine-maxwell-a
 **Feds Release Document of Tips Mentioning Trump and Epstein**\
 `This summer, federal investigators assembled a summary of accusations against Mr. Trump that had come in through the agency’s public tip line. The Times has not corroborated the allegations.`\
 https://nytimes.com/2026/01/30/us/trump-epstein-tips-fed.html
-
-**An Unexpected Song for This Moment**\
-`Wesley Morris talks about Minneapolis, pain and the 1984 song “Unsatisfied” by The Replacements.`\
-https://nytimes.com/video/podcasts/100000010679633/an-unexpected-song-for-this-moment.html
-
-**A's agree to seven-year, $70M extension with Jacob Wilson**\
-`Wilson is the second high-profile A's player to sign a long-term extension with the team this offseason.`\
-https://nytimes.com/athletic/7010762/2026/01/30/athletics-jacob-wilson-extension/
-
-**Hotel Owners and Workers, Tell Us How You’re Feeling**\
-`With hotels increasingly caught between the federal government’s immigration crackdown and protests against ICE, we want to hear how it’s affecting you.`\
-https://nytimes.com/2026/01/30/travel/ice-hotels-immigration.html
 

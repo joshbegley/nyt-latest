@@ -1,3 +1,15 @@
+**How Strong Is Your Financial Knowledge? Take Our Quiz.**\
+`Test your knowledge of credit cards, buying a home, saving for college or retirement and other things that affect your wallet.`\
+https://nytimes.com/2026/01/30/business/financial-knowledge-quiz.html
+
+**Sports leagues will use 'USA 250' patches to commemorate United States' birthday**\
+`NFL, NBA, MLB, NHL and others will have participants wear patches recognizing the 250th anniversary of the founding of the U.S. in 2026.`\
+https://nytimes.com/athletic/7010504/2026/01/30/america-250-jersey-patches-fanatics-trump/
+
+**Adam Tooze on China’s Transformation**\
+`The Western world’s understanding of China’s transformation is limited by ego, the historian Adam Tooze argues.`\
+https://nytimes.com/video/opinion/100000010669590/adam-tooze-on-chinas-transformation.html
+
 **Dubai Chocolate**\
 `This crunchy, creamy stuffed chocolate bar, created by Sarah Hamouda, has charmed sweet tooths worldwide.`\
 https://nytimes.com/video/dining/100000010369168/dubai-chocolate.html
