@@ -1,3 +1,7 @@
+**Ajax close to agreeing deal with Arsenal to sign Zinchenko**\
+`The defender has been on loan at Nottingham Forest since the summer but has made only 10 appearances. `\
+https://nytimes.com/athletic/6980851/2026/01/30/oleksandr-zinchenko-ajax-arsenal-deal-transfer/
+
 **Spurs 'did everything' to sign Semenyo before City move - Frank**\
 `Spurs' attempt to land the forward is a "clear signal that the Lewis family is very committed", Frank said ahead of City's visit on Sunday.`\
 https://nytimes.com/athletic/7009918/2026/01/30/tottenham-antoine-semenyo-manchester-city-transfer/
