@@ -1,3 +1,7 @@
+**January sets new NHL record for most hat tricks in a month**\
+`The previous record of 29 had stood for over 40 years before an offensive flurry to start 2026.`\
+https://nytimes.com/athletic/7005692/2026/01/29/nhl-hat-tricks-league-record/
+
 **Jack Hughes leaves Devils game in first period two weeks before Olympics**\
 `Team USA is scheduled to begin Olympic play on Feb. 12 in a preliminary game against Latvia on the tournament's second day. `\
 https://nytimes.com/athletic/7008756/2026/01/29/jack-hughes-devils-olympics-team-usa/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/29/us/politics/trump-iran-us-military-maps.html
 **Falcons hiring Ian Cunningham as general manager**\
 `Cunningham has been the assistant GM of the Bears for the last four seasons and was a part of Super Bowl wins with the Ravens and Eagles.`\
 https://nytimes.com/athletic/6983326/2026/01/29/ian-cunningham-falcons-general-manager-hire/
-
-**Did Trump Really Give Nicki Minaj a $1 Million ‘Gold Card’ Visa?**\
-`“Gold Trump card free of charge,” the rapper wrote on social media. But the White House says it’s not what it seems.`\
-https://nytimes.com/2026/01/29/us/politics/trump-nicki-minaj-visa.html
 

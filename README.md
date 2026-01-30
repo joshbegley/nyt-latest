@@ -1,4 +1,4 @@
-**January sets new NHL record for most hat tricks in a month**\
+**It's raining hats! January sets new NHL record for most hat tricks in a month**\
 `The previous record of 29 had stood for over 40 years before an offensive flurry to start 2026.`\
 https://nytimes.com/athletic/7005692/2026/01/29/nhl-hat-tricks-league-record/
 
