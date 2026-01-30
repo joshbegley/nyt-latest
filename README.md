@@ -1,3 +1,11 @@
+**Ravens to hire Declan Doyle as offensive coordinator: Source**\
+`Jesse Minter will call the defensive plays for Baltimore, while Doyle will lead an offense that features two-time MVP Lamar Jackson.`\
+https://nytimes.com/athletic/7009866/2026/01/30/ravens-declan-doyle-offensive-coordinator/
+
+**Some Republicans Lament the Spending Deal Trump Has Blessed**\
+`Hard-right Republicans have criticized an agreement they see as capitulating to Democrats on their party’s strongest issue: immigration.`\
+https://nytimes.com/2026/01/30/us/politics/senate-republicans-trump-spending-bill.html
+
 **Mushroom Wafu Pasta**\
 `Wafu directly translates to “Japanese style.” Kinoko, or mushroom, wafu pasta is a spaghetti dish made with a variety of Japanese mushrooms (and occasionally bacon) in an umami-rich soy-butter sauce emulsified with pasta water.`\
 https://nytimes.com/video/dining/100000010367195/mushroom-wafu-pasta.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/dining/100000010369236/yuzu-miso-soba-noodle-soup.html
 **How Strong Is Your Financial Knowledge? Take Our Quiz.**\
 `Test your knowledge of credit cards, buying a home, saving for college or retirement and other things that affect your wallet.`\
 https://nytimes.com/2026/01/30/business/financial-knowledge-quiz.html
-
-**Sports leagues will use 'USA 250' patches to commemorate United States' birthday**\
-`NFL, NBA, MLB, NHL and others will have participants wear patches recognizing the 250th anniversary of the founding of the U.S. in 2026.`\
-https://nytimes.com/athletic/7010504/2026/01/30/america-250-jersey-patches-fanatics-trump/
-
-**Adam Tooze on China’s Transformation**\
-`The Western world’s understanding of China’s transformation is limited by ego, the historian Adam Tooze argues.`\
-https://nytimes.com/video/opinion/100000010669590/adam-tooze-on-chinas-transformation.html
 
