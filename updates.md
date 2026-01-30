@@ -1,3 +1,7 @@
+**Jimmy Kimmel Teases ‘Melania’**\
+`The late night host said, “Not since ‘The Terminator’ has there been this much excitement for a movie about a European cyborg.”`\
+https://nytimes.com/2026/01/30/arts/television/jimmy-kimmel-melania-trump-documentary.html
+
 **The New York Times in Print for Friday, Jan. 30, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/30/todays-new-york-times

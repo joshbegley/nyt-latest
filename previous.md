@@ -1,3 +1,7 @@
+**Jimmy Kimmel Teases ‘Melania’**\
+`The late night host said, “Not since ‘The Terminator’ has there been this much excitement for a movie about a European cyborg.”`\
+https://nytimes.com/2026/01/30/arts/television/jimmy-kimmel-melania-trump-documentary.html
+
 **The New York Times in Print for Friday, Jan. 30, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/30/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7004179/2026/01/30/fantasy-premier-league-fpl-tips-
 **There is a void in the Aston Villa midfield – Douglas Luiz needs to fill it… and fast**\
 `Injuries to three first-team midfielders meant Villa had little choice but to act in the transfer window - a deal Douglas Luiz made sense `\
 https://nytimes.com/athletic/7007486/2026/01/30/douglas-luiz-aston-villa-midfield-transfer/
-
-**Strong goaltending, a perfect pass and a snooze-fest of a win: Wild takeaways**\
-`Wild coach John Hynes and his players know Thursday's 4-1 win over the Flames was hardly pretty, but at least it didn't go into overtime.`\
-https://nytimes.com/athletic/7008840/2026/01/30/wild-flames-filip-gustavsson-hughes-boldy/
 
