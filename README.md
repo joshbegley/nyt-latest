@@ -1,3 +1,15 @@
+**NFL salary cap expected to exceed $300 million in 2026: Source**\
+`The projected spending limits represent an increase of at least $22 million over the 2025 season’s cap figure of $279.2 million.`\
+https://nytimes.com/athletic/7010787/2026/01/30/nfl-salary-cap-300-million/
+
+**Packers sign GM Brian Gutekunst to contract extension**\
+`Gutekunst has amassed a regular-season record of 82-49-2 in eight seasons with Green Bay.`\
+https://nytimes.com/athletic/7002815/2026/01/30/packers-brian-gutekunst-contract-extension/
+
+**Florida Universities Have Partnered With ICE, Stoking Anxiety Among Students**\
+`It is rare for schools to work in concert with immigration officials, and it remains unclear if the partnerships have led to deportations.`\
+https://nytimes.com/2026/01/30/us/florida-universities-ice-cooperation.html
+
 **Ghislaine Maxwell appeared to receive a chummy missive in 2002 from a ‘Melania.’**\
 `Jeffrey Epstein’s longtime companion and the future first lady, Melania Trump, were known to have socialized together in that period.`\
 https://nytimes.com/live/2026/01/30/us/epstein-files-release/ghislaine-maxwell-appeared-to-receive-a-chummy-missive-in-2002-from-a-melania
@@ -25,16 +37,4 @@ https://nytimes.com/video/dining/100000010368963/cherry-tomato-labneh-dip.html
 **De Zerbi could stay at Marseille for 'years', unsure if he is club's 'ideal' coach**\
 `Marseille were eliminated from the Champions League following a 3-0 defeat to Club Brugge on Wednesday.`\
 https://nytimes.com/athletic/7010318/2026/01/30/roberto-de-zerbi-marseille-future/
-
-**How to watch Trail Blazers vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7010817/2026/01/30/trail-blazers-vs-knicks-stream-how-to-watch-jan-30/
-
-**How to watch Clippers vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7010814/2026/01/30/clippers-vs-nuggets-stream-how-to-watch-jan-30/
-
-**How to watch Blue Jackets vs. Blackhawks: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Chicago Blackhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7010812/2026/01/30/blue-jackets-vs-blackhawks-stream-how-to-watch-jan-30/
 
