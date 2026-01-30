@@ -1,3 +1,7 @@
+**Trump’s Board of Peace Is Anything But**\
+`America has conveniently forgotten that it once took the world to end conflicts.`\
+https://nytimes.com/2026/01/30/opinion/trump-peace-conflict-united-nations.html
+
 **Let the Arms Race Begin**\
 `Once the New START treaty ends, we will have returned to an era without limits, when arsenals can reach unconstrained heights.`\
 https://nytimes.com/2026/01/30/opinion/nuclear-treaty-deal-start.html
