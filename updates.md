@@ -1,3 +1,7 @@
+**Jack Hughes leaves Devils game in first period two weeks before Olympics**\
+`Team USA is scheduled to begin Olympic play on Feb. 12 in a preliminary game against Latvia.`\
+https://nytimes.com/athletic/7008756/2026/01/29/jack-hughes-devils-olympics-team-usa/
+
 **Newsom Files Civil Rights Complaint Against Dr. Oz Over Fraud Video**\
 `Dr. Mehmet Oz, a top federal health official, posted a video that accuses Armenian Americans in California of health care fraud.`\
 https://nytimes.com/2026/01/29/us/newsom-oz-fraud-armenians.html
