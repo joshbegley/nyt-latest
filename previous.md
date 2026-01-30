@@ -1,3 +1,7 @@
+**Athletes' managers call on GST to settle debts before returning**\
+`"Accountability must come before expansion, and credibility must be rebuilt through action—not promises," the association said on Friday. `\
+https://nytimes.com/athletic/7010148/2026/01/30/grand-slam-track-athlete-managers-debt-new-season/
+
 **The stars, slumps and stories shaping NHL's road to the playoffs**\
 `Plus: Can teams change their goalies on the fly? The answer will amuse you.`\
 https://nytimes.com/athletic/7010085/2026/01/30/nhl-records-playoffs-patrick-kane-red-light/
@@ -22,8 +26,8 @@ https://nytimes.com/athletic/7010177/2026/01/30/columbia-vs-princeton-stream-how
 `Monken, the Ravens' ex-offensive coordinator, confirmed the reports from September that said Baltimore wanted to draft Sanders last year.`\
 https://nytimes.com/athletic/7010025/2026/01/30/browns-todd-monken-shedeur-sanders-ravens/
 
-**Live Updates: Millions More Epstein Pages Released**\
-`The Justice Department released a new trove of documents as well as thousands of videos and photographs related to the investigation of Jeffrey Epstein. The move comes weeks after a deadline imposed by Congress.`\
+**Live Updates: Millions of Pages of Epstein Documents Released**\
+`The trove of documents related to the investigation of Jeffrey Epstein is the largest release to date by the Justice Department, and includes thousands of videos and photographs.`\
 https://nytimes.com/live/2026/01/30/us/epstein-files-release
 
 **This Canucks homestand is showing that Vancouver fans can handle a rebuild**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7009330/2026/01/30/vancouver-canucks-game-attendanc
 **Twins mutually part ways with team president Derek Falvey**\
 `Falvey had been with the organization since 2016. `\
 https://nytimes.com/athletic/7010126/2026/01/30/derek-falvey-minnesota-twins/
-
-**Don't blame Tottenham fans if they want Manchester City to win. Blame the club**\
-`Sunday’s game brings with it an unsettling sense of deja vu for some Spurs fans — but they should not be blamed if they feel conflicted`\
-https://nytimes.com/athletic/7009570/2026/01/30/tottenham-manchester-city-fans-arsenal/
 

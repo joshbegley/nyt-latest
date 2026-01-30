@@ -1,3 +1,11 @@
+**Athletes' managers call on GST to settle debts before returning**\
+`"Accountability must come before expansion, and credibility must be rebuilt through action—not promises," the association said on Friday. `\
+https://nytimes.com/athletic/7010148/2026/01/30/grand-slam-track-athlete-managers-debt-new-season/
+
+**Live Updates: Millions of Pages of Epstein Documents Released**\
+`The trove of documents related to the investigation of Jeffrey Epstein is the largest release to date by the Justice Department, and includes thousands of videos and photographs.`\
+https://nytimes.com/live/2026/01/30/us/epstein-files-release
+
 **The stars, slumps and stories shaping NHL's road to the playoffs**\
 `Plus: Can teams change their goalies on the fly? The answer will amuse you.`\
 https://nytimes.com/athletic/7010085/2026/01/30/nhl-records-playoffs-patrick-kane-red-light/
