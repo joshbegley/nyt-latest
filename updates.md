@@ -1,3 +1,7 @@
+**Enter Here!**\
+`Robyn Weintraub opens our solving weekend.`\
+https://nytimes.com/2026/01/29/crosswords/daily-puzzle-2026-01-30.html
+
 **Cavaliers, NBA to discuss changes to unusual raised court after Luka Dončić's injury**\
 `The raised floor in the Cavaliers' arena has long been an oddity — and potential hazard — in the NBA.`\
 https://nytimes.com/athletic/7008562/2026/01/29/cavaliers-court-changes-nba-luka-doncic-injury-lakers/

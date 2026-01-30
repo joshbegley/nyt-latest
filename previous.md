@@ -1,3 +1,7 @@
+**Enter Here!**\
+`Robyn Weintraub opens our solving weekend.`\
+https://nytimes.com/2026/01/29/crosswords/daily-puzzle-2026-01-30.html
+
 **Cavaliers, NBA to discuss changes to unusual raised court after Luka Dončić's injury**\
 `The raised floor in the Cavaliers' arena has long been an oddity — and potential hazard — in the NBA.`\
 https://nytimes.com/athletic/7008562/2026/01/29/cavaliers-court-changes-nba-luka-doncic-injury-lakers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7008704/2026/01/29/astros-giants-trade-kai-wei-teng
 **Sha'Carri Richardson arrested, jailed on speeding charge**\
 `Richardson was pulled over for allegedly traveling more than 104 mph on a state road near Stoneybrook Parkway, and her bond was set at $500.`\
 https://nytimes.com/athletic/7008483/2026/01/29/shacarri-richardson-arrest-jail-speeding-charge-olympics/
-
-**Where the U.S. Is Building Up Military Force Near Iran**\
-`President Trump has not authorized military action in Iran, but the U.S. has built up its presence in the region in recent days.`\
-https://nytimes.com/2026/01/29/us/politics/trump-iran-us-military-maps.html
 

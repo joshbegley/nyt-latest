@@ -1,3 +1,7 @@
+**Xi’s Military Purge May Set Back His Taiwan Ambitions**\
+`By ousting his top generals, Xi Jinping has secured absolute control, but has also hollowed out the command structure preparing for possible war over Taiwan.`\
+https://nytimes.com/2026/01/29/world/asia/xi-zhang-military-purge-taiwan.html
+
 **Enter Here!**\
 `Robyn Weintraub opens our solving weekend.`\
 https://nytimes.com/2026/01/29/crosswords/daily-puzzle-2026-01-30.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7008403/2026/01/29/boxer-anthony-joshua-discusses-f
 **In need of right-handed depth, Astros acquire Kai-Wei Teng from Giants: Sources**\
 `To clear a spot on the 40-man roster for Teng, Houston is designating J.P. France for assignment.`\
 https://nytimes.com/athletic/7008704/2026/01/29/astros-giants-trade-kai-wei-teng-sources/
-
-**Sha'Carri Richardson arrested, jailed on speeding charge**\
-`Richardson was pulled over for allegedly traveling more than 104 mph on a state road near Stoneybrook Parkway, and her bond was set at $500.`\
-https://nytimes.com/athletic/7008483/2026/01/29/shacarri-richardson-arrest-jail-speeding-charge-olympics/
 
