@@ -1,3 +1,7 @@
+**LSU becomes first major target of College Sports Commission investigation**\
+`The College Sports Commission is investigating whether an LSU staffer failed to report one or more NIL deals.`\
+https://nytimes.com/athletic/7010963/2026/01/30/college-sports-commission-opens-investigation-lsu-nil-reporting/
+
 **6 Takeaways from ‘Melania,’ the Documentary About the First Lady**\
 `The film, which counts Melania Trump as a producer, touches on her immigrant roots, her love for her mother and her style, but there are few revelations.`\
 https://nytimes.com/2026/01/30/movies/melania-documentary-movie-takeaways-trump.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/7010872/2026/01/30/harry-brook-england-cricket-nigh
 `How big plays explain the successes of Seattle and New England, how broadcasters are prepping for Super Bowl 60 and more coaching news`\
 https://nytimes.com/athletic/7010925/2026/01/30/explosive-plays-nfl-seahawks-patriots-scoop-city/
 
-**'We have rules, but they're not being enforced': Georgia president on NCAA**\
+**'We have rules, but they're not being enforced': Georgia president on NCAA, CSC**\
 `In light of what he sees as inaction by the NCAA and CSC, Jere Morehead suggests the SEC adopt and enforce its own rules.`\
 https://nytimes.com/athletic/7010911/2026/01/30/georgia-jere-morehead-sec-rule-enforcement/
-
-**Co-Stars and Fans Pay Tribute to Catherine O’Hara**\
-`Videos and photos filled social media as fans shared their favorite scenes from O’Hara’s acting career and co-stars memorialized her.`\
-https://nytimes.com/2026/01/30/arts/catherine-ohara-death-reactions.html
 
