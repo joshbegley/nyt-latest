@@ -1,3 +1,16 @@
+**The Pulse: A perfectly Pirates dilemma**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7009265/2026/01/30/pirates-griffin-skenes-prospects-the-pulse/
+
+**Highlights from Paris Couture Week**\
+`Our chief fashion critic Vanessa Friedman breaks down the most iconic looks from this week’s couture shows in Paris.`\
+https://nytimes.com/video/fashion/runway-couture/100000010675984/highlights-from-paris-couture-week.html
+
+**Want to call an NHL game between the benches? Better get a helmet**\
+`The risks associated with one of the most unique jobs in sports broadcasting are outweighed by having the "greatest seat in the house."
+`\
+https://nytimes.com/athletic/6801667/2026/01/30/nhl-sideline-reporters-broadcasters-benches/
+
 **Want to call an NHL game between the benches? Better get a helmet**\
 `The risks associated with one of the most unique jobs in sports broadcasting are outweighed by having the "greatest seat in the house."
 `\

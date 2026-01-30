@@ -1,3 +1,7 @@
+**Hollywood’s North Road Studio Acquired by a European Production Giant**\
+`Peter Chernin, an industry veteran who founded North Road in 2022, said his deal with Mediawan met a need to get bigger in an era of consolidation.`\
+https://nytimes.com/2026/01/30/business/north-road-mediawan-deal.html
+
 **The Pulse: A perfectly Pirates dilemma**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7009265/2026/01/30/pirates-griffin-skenes-prospects-the-pulse/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7008292/2026/01/30/lions-defense-kelvin-sheppard-20
 `The risks associated with one of the most unique jobs in sports broadcasting are outweighed by having the "greatest seat in the house."
 `\
 https://nytimes.com/athletic/6801667/2026/01/30/nhl-sideline-reporters-broadcasters-benches/
-
-**Timberwolves wear 'We Stand With Minnesota' shirts during pregame warmups**\
-`"We’re just having our city’s back," said Jaden McDaniels, who scored 21 points in Minnesota's 123-111 win over Oklahoma City.`\
-https://nytimes.com/athletic/7009026/2026/01/30/minnesota-timberwolves-t-shirts-warmups/
 
