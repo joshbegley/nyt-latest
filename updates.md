@@ -1,3 +1,7 @@
+**A Closer Look at the Grammys’ Top Nominees**\
+`Superstars like Bad Bunny and Lady Gaga are returning to the awards, while newcomers including Olivia Dean and Addison Rae will be celebrating their first nominations. `\
+https://nytimes.com/card/2026/01/30/arts/music/grammy-nominees-photos
+
 **The Netherlands Is Getting a New Government. Will It Last?**\
 `Rob Jetten, a 38-year-old centrist, is poised to be the youngest prime minister in Dutch history. But his government will be in a daunting position.`\
 https://nytimes.com/2026/01/30/world/europe/netherlands-government-rob-jetten.html
