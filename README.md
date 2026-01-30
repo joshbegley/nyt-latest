@@ -1,3 +1,7 @@
+**Jack Hughes leaves Devils game in first period two weeks before Olympics**\
+`Team USA is scheduled to begin Olympic play on Feb. 12 in a preliminary game against Latvia.`\
+https://nytimes.com/athletic/7008756/2026/01/29/jack-hughes-devils-olympics-team-usa/
+
 **Newsom Files Civil Rights Complaint Against Dr. Oz Over Fraud Video**\
 `Dr. Mehmet Oz, a top federal health official, posted a video that accuses Armenian Americans in California of health care fraud.`\
 https://nytimes.com/2026/01/29/us/newsom-oz-fraud-armenians.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6983326/2026/01/29/ian-cunningham-falcons-general-m
 **Did Trump Really Give Nicki Minaj a $1 Million ‘Gold Card’ Visa?**\
 `“Gold Trump card free of charge,” the rapper wrote on social media. But the White House says it’s not what it seems.`\
 https://nytimes.com/2026/01/29/us/politics/trump-nicki-minaj-visa.html
-
-**Robert Saleh takes on Titans' coaching job armed with lessons from Jets tenure**\
-`Despite the turmoil during his time with the Jets, Saleh reflects fondly on his tenure there: "I am as lucky as lucky gets."`\
-https://nytimes.com/athletic/7008519/2026/01/29/robert-saleh-titans-coach-jets/
 
