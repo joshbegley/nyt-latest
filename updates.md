@@ -1,3 +1,7 @@
+**'We have rules, but they're not being enforced': Georgia president on NCAA**\
+`ATHENS, Ga.`\
+https://nytimes.com/athletic/7010911/2026/01/30/georgia-jere-morehead-sec-rule-enforcement/
+
 **England captain Brook admits he lied about nightclub incident to 'protect' team-mates**\
 `Brook, 26, was disciplined for the incident last October and had always maintained that he went to a nightclub in Wellington on his own.`\
 https://nytimes.com/athletic/7010872/2026/01/30/harry-brook-england-cricket-nightclub/

@@ -6,7 +6,7 @@ https://nytimes.com/athletic/7010872/2026/01/30/harry-brook-england-cricket-nigh
 `How big plays explain the successes of Seattle and New England, how broadcasters are prepping for Super Bowl 60 and more coaching news`\
 https://nytimes.com/athletic/7010925/2026/01/30/explosive-plays-nfl-seahawks-patriots-scoop-city/
 
-**Morehead seems frustrated with NCAA's absence: 'We have rules, but they're not being enforced'**\
+**'We have rules, but they're not being enforced': Georgia president on NCAA**\
 `ATHENS, Ga.`\
 https://nytimes.com/athletic/7010911/2026/01/30/georgia-jere-morehead-sec-rule-enforcement/
 
