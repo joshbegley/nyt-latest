@@ -1,3 +1,15 @@
+**Commerce Secretary Howard Lutnick Planned Trip to Epstein’s Island**\
+`Prominent people have been scrutinized for their visits to Jeffrey Epstein’s island in the Caribbean. Mr. Lutnick’s visit had not been previously disclosed.`\
+https://nytimes.com/2026/01/30/us/howard-lutnick-epstein-island.html
+
+**Kids Sent Us Antarctica Questions. Here Are the Answers.**\
+`Do snowy owls live in Antarctica? What’s the most alarming measurement scientists are watching for? What do you eat and drink? Our climate reporter Raymond Zhong answers some questions from students around the world.`\
+https://nytimes.com/video/climate/100000010659109/kids-sent-us-antarctica-questions-here-are-the-answers.html
+
+**Texas May Be Losing Its Grip as America’s Fastest-Growing State**\
+`Long accustomed to rapid growth, Texas saw the overall number of people moving from other states sink to its lowest level in two decades, census estimates show.`\
+https://nytimes.com/2026/01/30/us/texas-population-growth-migration-census.html
+
 **A Secret Panel to Question Climate Science Was Unlawful, Judge Rules**\
 `The researchers produced a report a that was central in a Trump administration effort to stop regulating climate pollution.`\
 https://nytimes.com/2026/01/30/climate/energy-department-climate-ruling.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/opinion/100000010665146/the-nih-director-thinks-covid-
 **Palace sign Guessand on loan from Aston Villa**\
 `The Athletic reported on Thursday that Palace were finalising a loan deal for Guessand.`\
 https://nytimes.com/athletic/7007554/2026/01/30/evann-guessand-crystal-palace-aston-villa-transfer/
-
-**Roger Allers Dies at 76; Helped Put ‘Lion King’ on Screens and Onstage**\
-`A Disney fan who once “flew” off his couch as a 4-year-old Peter Pan, he was a co-director of the animated film and a co-writer of the Broadway musical, both of them megahits.`\
-https://nytimes.com/2026/01/30/movies/roger-allers-dead.html
-
-**Children Were Arrested in Iran’s Brutal Crackdown on Protests**\
-`An Iranian government official said some children had been detained, the first such acknowledgment in weeks of anti-government protests.`\
-https://nytimes.com/2026/01/30/world/middleeast/iran-protests-children-arrested.html
-
-**Book Club: Let’s Discuss ‘The Hounding,’ by Xenobe Purvis**\
-`In this debut novel, set in 1700s England, five sisters are rumored to turn into a pack of dogs.`\
-https://nytimes.com/2026/01/30/books/review/podcast-book-club-hounding-xenobe-purvis.html
 

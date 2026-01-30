@@ -1,3 +1,11 @@
+**A Secret Panel to Question Climate Science Was Unlawful, Judge Rules**\
+`The researchers produced a report a that was central in a Trump administration effort to stop regulating climate pollution.`\
+https://nytimes.com/2026/01/30/climate/energy-department-climate-ruling.html
+
+**Texas 18th Congressional District Runoff 2026: Latest Polls**\
+`Track the latest polls in Texas’s 18th Congressional District runoff.`\
+https://nytimes.com/interactive/polls/texas-us-house-18-special-runoff-polls-2026.html
+
 **Nikola Jokić will make return from knee injury Friday vs. Los Angeles: Source**\
 `Denver managed to go 10-6 in Jokić's absence and was third in the Western Conference entering Friday night.`\
 https://nytimes.com/athletic/7010652/2026/01/30/nikola-jokic-injury-return-nuggets-clippers/

@@ -1,3 +1,11 @@
+**A Secret Panel to Question Climate Science Was Unlawful, Judge Rules**\
+`The researchers produced a report a that was central in a Trump administration effort to stop regulating climate pollution.`\
+https://nytimes.com/2026/01/30/climate/energy-department-climate-ruling.html
+
+**Texas 18th Congressional District Runoff 2026: Latest Polls**\
+`Track the latest polls in Texas’s 18th Congressional District runoff.`\
+https://nytimes.com/interactive/polls/texas-us-house-18-special-runoff-polls-2026.html
+
 **Nikola Jokić will make return from knee injury Friday vs. Los Angeles: Source**\
 `Denver managed to go 10-6 in Jokić's absence and was third in the Western Conference entering Friday night.`\
 https://nytimes.com/athletic/7010652/2026/01/30/nikola-jokic-injury-return-nuggets-clippers/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/30/world/middleeast/iran-protests-children-arrested.
 **Book Club: Let’s Discuss ‘The Hounding,’ by Xenobe Purvis**\
 `In this debut novel, set in 1700s England, five sisters are rumored to turn into a pack of dogs.`\
 https://nytimes.com/2026/01/30/books/review/podcast-book-club-hounding-xenobe-purvis.html
-
-**Patriots' Drake Maye misses practice due to illness and shoulder injury**\
-`Maye’s absence in Friday’s practice comes one day after the Patriots listed the quarterback as a limited participant in Thursday’s session.`\
-https://nytimes.com/athletic/7010544/2026/01/30/patriots-quarterback-drake-maye-misses-practice-illness-shoulder-injury/
-
-**Until Saturday: Early offseason winners and losers**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/7010644/2026/01/30/college-football-roster-updates-until-saturday/
 
