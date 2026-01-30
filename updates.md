@@ -1,3 +1,11 @@
+**Book Club: Let’s Discuss ‘The Hounding,’ by Xenobe Purvis**\
+`In this debut novel, set in 1700s England, five sisters are rumored to turn into a pack of dogs.`\
+https://nytimes.com/2026/01/30/books/review/podcast-book-club-hounding-xenobe-purvis.html
+
+**Grids Are Surviving the Storm. But the Next 5 Years Could Be Rough.**\
+`A group that monitors the U.S. electricity system warns that grid reliability is “worsening” and blackout risks are rising for millions of people.`\
+https://nytimes.com/2026/01/30/climate/us-grids-are-surviving-the-winter-storm-but-the-next-5-years-could-be-rough.html
+
 **Patriots' Drake Maye misses practice due to illness and shoulder injury**\
 `Maye’s absence in Friday’s practice comes one day after the Patriots listed the quarterback as a limited participant in Thursday’s session.`\
 https://nytimes.com/athletic/7010544/2026/01/30/patriots-quarterback-drake-maye-misses-practice-illness-shoulder-injury/
