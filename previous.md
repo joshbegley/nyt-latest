@@ -1,3 +1,23 @@
+**The Secret Sauce in ‘Heated Rivalry’? Canada.**\
+`The global television phenomenon is full of Canadian iconography and subsidized by Canadian taxpayers. On Thursday, it came home to celebrate.`\
+https://nytimes.com/2026/01/30/world/canada/heated-rivalry-carney-canada.html
+
+**Why Andrey Santos is the key cog in the way Liam Rosenior's Chelsea want to play**\
+`The young Brazilian is flourishing alongside Moises Caicedo in a double midfield pivot, with Rosenior having also leant on him at Strasbourg`\
+https://nytimes.com/athletic/7007379/2026/01/30/chelsea-andrey-santos-liam-rosenior-analysis/
+
+**The challenge for Oriola at Brighton is to succeed where Sarmiento could not**\
+`Dubbed an 'unbelievable talent' by Fabian Hurzeler, Nehemiah Oriola is on the cusp of the Brighton first team - can he make the next step?`\
+https://nytimes.com/athletic/6749261/2026/01/30/brighton-nehemiah-oriola-sarmiento/
+
+**The FPL differentials who look primed to pick up points**\
+`As the FPL premium landscape remains straightforward, the real edge lies where explosive fixtures and solid low-owned players intersect`\
+https://nytimes.com/athletic/7004179/2026/01/30/fantasy-premier-league-fpl-tips-differentials/
+
+**There is a void in the Aston Villa midfield – Douglas Luiz needs to fill it… and fast**\
+`Injuries to three first-team midfielders meant Villa had little choice but to act in the transfer window - a deal Douglas Luiz made sense `\
+https://nytimes.com/athletic/7007486/2026/01/30/douglas-luiz-aston-villa-midfield-transfer/
+
 **Strong goaltending, a perfect pass and a snooze-fest of a win: Wild takeaways**\
 `Wild coach John Hynes and his players know Thursday's 4-1 victory over the lowly Flames was hardly pretty.`\
 https://nytimes.com/athletic/7008840/2026/01/30/wild-flames-filip-gustavsson-hughes-boldy/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7004051/2026/01/30/arsenal-mikel-arteta-risk-odegaa
 **Panama Court Strikes Down Hong Kong Firm’s Canal Contract**\
 `President Trump has said he wants American control of the canal, putting the longtime ports operator, CK Hutchison, in the cross-hairs of the U.S.-China trade conflict.`\
 https://nytimes.com/2026/01/30/business/panama-canal-ck-hutchison.html
-
-**Inside Liverpool Women's season: 'Everything that could have gone wrong went wrong'**\
-`Liverpool are bottom of the Women's Super League table and for the rest of the season will be fighting for "survival" in the top flight`\
-https://nytimes.com/athletic/7004037/2026/01/30/inside-liverpool-wsl-season/
-
-**Premier League predictions: Spurs vs Man City, Liverpool vs Newcastle and rest of matchday 24**\
-`Who's leading now? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 24?`\
-https://nytimes.com/athletic/7004029/2026/01/30/premier-league-predictions-md24/
-
-**Who will make the decisions that shape the future of Tottenham Hotspur?**\
-`It feels as if the Spurs hierarchy will soon face more pressure, more questions, more grumbling from fans, than they ever have before`\
-https://nytimes.com/athletic/7005728/2026/01/30/spurs-venkatesham-lewis-beucher/
-
-**Is Anthony Gordon right about the differences between the Champions League and Premier League?**\
-`A close examination of the data shows that tactical developments do not exist in a vacuum`\
-https://nytimes.com/athletic/7006512/2026/01/30/premier-champions-league-style-difference-gordon/
-
-**'Thrilling, relentless, unpredictable': The Championship is the league of opportunity**\
-`England's second tier is infamously competitive, and this season is no different, with 15 points between the play-off spots and drop zone`\
-https://nytimes.com/athletic/7001281/2026/01/30/championship-promotion-race/
 

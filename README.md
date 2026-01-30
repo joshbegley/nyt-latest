@@ -1,3 +1,7 @@
+**Cunha? Mount? Amad? How Man Utd could replace Dorgu**\
+`Michael Carrick has been presented with a tactical puzzle by an injury to his impressive left-sided player`\
+https://nytimes.com/athletic/6839495/2026/01/30/man-utd-patrick-dorgu-cunha-mount-amad/
+
 **The Secret Sauce in ‘Heated Rivalry’? Canada.**\
 `The global television phenomenon is full of Canadian iconography and subsidized by Canadian taxpayers. On Thursday, it came home to celebrate.`\
 https://nytimes.com/2026/01/30/world/canada/heated-rivalry-carney-canada.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6973892/2026/01/30/kevin-keegan-liverpool-newcastle
 **Is Arsenal's low-risk approach actually… risky?**\
 `Arsenal have put themselves in a strong position, but the feeling persists they must play with more freedom to fend off those at their back`\
 https://nytimes.com/athletic/7004051/2026/01/30/arsenal-mikel-arteta-risk-odegaard-title/
-
-**Panama Court Strikes Down Hong Kong Firm’s Canal Contract**\
-`President Trump has said he wants American control of the canal, putting the longtime ports operator, CK Hutchison, in the cross-hairs of the U.S.-China trade conflict.`\
-https://nytimes.com/2026/01/30/business/panama-canal-ck-hutchison.html
 
