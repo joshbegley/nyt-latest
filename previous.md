@@ -1,3 +1,7 @@
+**Trump Threatens Canada Over Business Jet Dispute**\
+`The president said he would restrict the use of Canadian-built aircraft and impose a 50 percent on them until the dispute was resolved.`\
+https://nytimes.com/2026/01/29/us/politics/trump-canada-aircraft-decertify.html
+
 **‘The Pitt’ Season 2 Episode 4 Recap: Wanna Bet?**\
 `A nearby hospital closes its doors temporarily, sending extra patients and chaos to the Pitt. Time for another office pool.`\
 https://nytimes.com/2026/01/29/arts/television/the-pitt-recap-season-2-episode-4.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/29/us/newsom-oz-fraud-armenians.html
 **War Threats and Ambiguous Evidence: Trump Again Confronts Iran**\
 `There is little sign that Iran has made significant progress in reconstituting its nuclear program, leaving questions about the timing and motive behind potential plans for further attacks.`\
 https://nytimes.com/2026/01/29/us/politics/trump-iran-israel-intel.html
-
-**Patrick Kane breaks NHL record for most points by American-born player**\
-`Kane recorded his 1,375th career point, passing Mike Modano for the most ever by an American-born player.`\
-https://nytimes.com/athletic/6993211/2026/01/29/patrick-kane-nhl-record-american-points/
 

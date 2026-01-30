@@ -1,3 +1,7 @@
+**Trump Threatens Canada Over Business Jet Dispute**\
+`The president said he would restrict the use of Canadian-built aircraft and impose a 50 percent on them until the dispute was resolved.`\
+https://nytimes.com/2026/01/29/us/politics/trump-canada-aircraft-decertify.html
+
 **‘The Pitt’ Season 2 Episode 4 Recap: Wanna Bet?**\
 `A nearby hospital closes its doors temporarily, sending extra patients and chaos to the Pitt. Time for another office pool.`\
 https://nytimes.com/2026/01/29/arts/television/the-pitt-recap-season-2-episode-4.html
