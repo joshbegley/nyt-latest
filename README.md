@@ -1,5 +1,5 @@
 **Jack Hughes leaves Devils game in first period two weeks before Olympics**\
-`Team USA is scheduled to begin Olympic play on Feb. 12 in a preliminary game against Latvia.`\
+`Team USA is scheduled to begin Olympic play on Feb. 12 in a preliminary game against Latvia on the tournament's second day. `\
 https://nytimes.com/athletic/7008756/2026/01/29/jack-hughes-devils-olympics-team-usa/
 
 **Newsom Files Civil Rights Complaint Against Dr. Oz Over Fraud Video**\
@@ -30,7 +30,7 @@ https://nytimes.com/athletic/7008483/2026/01/29/shacarri-richardson-arrest-jail-
 `President Trump has not authorized military action in Iran, but the U.S. has built up its presence in the region in recent days.`\
 https://nytimes.com/2026/01/29/us/politics/trump-iran-us-military-maps.html
 
-**Falcons hiring Ian Cunningham as general manager: Source**\
+**Falcons hiring Ian Cunningham as general manager**\
 `Cunningham has been the assistant GM of the Bears for the last four seasons and was a part of Super Bowl wins with the Ravens and Eagles.`\
 https://nytimes.com/athletic/6983326/2026/01/29/ian-cunningham-falcons-general-manager-hire/
 
