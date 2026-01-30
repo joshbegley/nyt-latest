@@ -1,3 +1,7 @@
+**Decades Later, a Man’s Conviction Is Overturned With Ex-Inmate’s Help**\
+`On Friday, a Queens judge vacated the double-murder conviction of Allen Porter. Jabbar Collins, who was exonerated 16 years ago, never stopped fighting for the friend he met in custody.`\
+https://nytimes.com/2026/01/30/nyregion/queens-exoneration-allen-porter.html
+
 **LSU becomes first major target of College Sports Commission investigation**\
 `The College Sports Commission is investigating whether an LSU staffer failed to report one or more NIL deals.`\
 https://nytimes.com/athletic/7010963/2026/01/30/college-sports-commission-opens-investigation-lsu-nil-reporting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7010872/2026/01/30/harry-brook-england-cricket-nigh
 **Scoop City: The importance of explosive plays**\
 `How big plays explain the successes of Seattle and New England, how broadcasters are prepping for Super Bowl 60 and more coaching news`\
 https://nytimes.com/athletic/7010925/2026/01/30/explosive-plays-nfl-seahawks-patriots-scoop-city/
-
-**'We have rules, but they're not being enforced': Georgia president on NCAA, CSC**\
-`In light of what he sees as inaction by the NCAA and CSC, Jere Morehead suggests the SEC adopt and enforce its own rules.`\
-https://nytimes.com/athletic/7010911/2026/01/30/georgia-jere-morehead-sec-rule-enforcement/
 

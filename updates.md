@@ -1,3 +1,7 @@
+**Decades Later, a Man’s Conviction Is Overturned With Ex-Inmate’s Help**\
+`On Friday, a Queens judge vacated the double-murder conviction of Allen Porter. Jabbar Collins, who was exonerated 16 years ago, never stopped fighting for the friend he met in custody.`\
+https://nytimes.com/2026/01/30/nyregion/queens-exoneration-allen-porter.html
+
 **LSU becomes first major target of College Sports Commission investigation**\
 `The College Sports Commission is investigating whether an LSU staffer failed to report one or more NIL deals.`\
 https://nytimes.com/athletic/7010963/2026/01/30/college-sports-commission-opens-investigation-lsu-nil-reporting/
