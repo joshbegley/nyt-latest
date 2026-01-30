@@ -1,3 +1,11 @@
+**Kimchi**\
+`Sometimes called mak kimchi, this kimchi formula starts with chopped napa cabbage and is as easy as dressing a salad. You just toss everything together in a large bowl.`\
+https://nytimes.com/video/dining/100000010366745/kimchi.html
+
+**President Trump Wants Lower Rates. Warsh Could Have a Hard Time Delivering.**\
+`Kevin M. Warsh, whom Mr. Trump tapped to become the next chair of the Federal Reserve, could face fierce resistance if he tries to pursue substantially lower borrowing costs.`\
+https://nytimes.com/2026/01/30/business/trump-kevin-warsh-fed-rates.html
+
 **Here’s the latest.**\
 `By Michael Gold, Alan Feuer and Devlin Barrett`\
 https://nytimes.com/live/2026/01/30/us/epstein-files-release/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/30/us/who-is-georgia-fort-journalist-arrested-church
 **How to watch Columbia vs. Princeton women's basketball: Time, TV, streaming**\
 `Find out how to watch the Columbia Lions play the Princeton Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7010177/2026/01/30/columbia-vs-princeton-stream-how-to-watch-jan-30/
-
-**Browns HC Todd Monken jokes with Shedeur Sanders about past draft interest**\
-`Monken, the Ravens' ex-offensive coordinator, confirmed the reports from September that said Baltimore wanted to draft Sanders last year.`\
-https://nytimes.com/athletic/7010025/2026/01/30/browns-todd-monken-shedeur-sanders-ravens/
-
-**Live Updates: Millions of Pages of Epstein Documents Released**\
-`The trove of documents related to the investigation of Jeffrey Epstein is the largest release to date by the Justice Department, and includes thousands of videos and photographs.`\
-https://nytimes.com/live/2026/01/30/us/epstein-files-release
 

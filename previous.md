@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Michael Gold, Alan Feuer and Devlin Barrett`\
+https://nytimes.com/live/2026/01/30/us/epstein-files-release/heres-the-latest
+
+**Broncos' flurry of offensive changes underscores bottom line: Unit must improve**\
+`Momentum appears to be building for Davis Webb to become Denver's new offensive coordinator. Would he be empowered to shift Denver's scheme?`\
+https://nytimes.com/athletic/7009944/2026/01/30/broncos-offensive-changes-improve/
+
 **Athletes' managers call on GST to settle debts before returning**\
 `"Accountability must come before expansion, and credibility must be rebuilt through action—not promises," the association said on Friday. `\
 https://nytimes.com/athletic/7010148/2026/01/30/grand-slam-track-athlete-managers-debt-new-season/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7010025/2026/01/30/browns-todd-monken-shedeur-sande
 **Live Updates: Millions of Pages of Epstein Documents Released**\
 `The trove of documents related to the investigation of Jeffrey Epstein is the largest release to date by the Justice Department, and includes thousands of videos and photographs.`\
 https://nytimes.com/live/2026/01/30/us/epstein-files-release
-
-**This Canucks homestand is showing that Vancouver fans can handle a rebuild**\
-`As the Canucks were on the verge of winning a game for only the third time since Christmas, Rogers Arena was loud.`\
-https://nytimes.com/athletic/7009330/2026/01/30/vancouver-canucks-game-attendance-scores-2026/
-
-**Twins mutually part ways with team president Derek Falvey**\
-`Falvey had been with the organization since 2016. `\
-https://nytimes.com/athletic/7010126/2026/01/30/derek-falvey-minnesota-twins/
 

@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Michael Gold, Alan Feuer and Devlin Barrett`\
+https://nytimes.com/live/2026/01/30/us/epstein-files-release/heres-the-latest
+
+**Broncos' flurry of offensive changes underscores bottom line: Unit must improve**\
+`Momentum appears to be building for Davis Webb to become Denver's new offensive coordinator. Would he be empowered to shift Denver's scheme?`\
+https://nytimes.com/athletic/7009944/2026/01/30/broncos-offensive-changes-improve/
+
 **Athletes' managers call on GST to settle debts before returning**\
 `"Accountability must come before expansion, and credibility must be rebuilt through action—not promises," the association said on Friday. `\
 https://nytimes.com/athletic/7010148/2026/01/30/grand-slam-track-athlete-managers-debt-new-season/
