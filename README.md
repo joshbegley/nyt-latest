@@ -1,3 +1,11 @@
+**Federal Authorities Mapped Out Epstein’s Inner Circle**\
+`Only one person depicted or referred to in the chart as a potential co-conspirator, Ghislaine Maxwell, was ever charged with helping Mr. Epstein engage in sex trafficking.`\
+https://nytimes.com/2026/01/30/us/epstein-inner-circle.html
+
+**Björn Roth, Steward of an Expansive Family Art Practice, Dies at 64**\
+`With his father, the artist Dieter Roth, and later his own sons, he created unconventional installations that he described as a “search for beauty in nothing.”`\
+https://nytimes.com/2026/01/30/arts/design/bjorn-roth-dead.html
+
 **Catherine O’Hara, ‘Home Alone’ and ‘Schitt’s Creek’ Actress, Dies at 71**\
 `The Emmy-winning comedian was a member of the influential Canadian sketch comedy series “S.C.T.V.”`\
 https://nytimes.com/2026/01/30/arts/television/catherine-ohara-dead.html
@@ -17,12 +25,4 @@ https://nytimes.com/2026/01/30/us/how-the-times-is-covering-the-latest-release-o
 **Texas A&M Ends Women’s Studies and Overhauls Classes Over Race and Gender**\
 `New policies limiting the teaching of race and gender issues led administrators and professors to change hundreds of courses. School leaders say the rules could hurt A&M’s reputation.`\
 https://nytimes.com/2026/01/30/us/texas-am-gender-ethnic-womens-studies-academic-freedom.html
-
-**Drilling Is Underway to Examine Antarctica’s Melting Ice From Below**\
-`A team hopes to place instruments in the waters beneath the colossal Thwaites Glacier, with the help of a drill that uses hot water to punch through ice.`\
-https://nytimes.com/2026/01/30/climate/antarctica-thwaites-glacier-drilling.html
-
-**Prime Tire: Remember when F1 cars looked ridiculous?**\
-`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
-https://nytimes.com/athletic/7010273/2026/01/30/when-f1-cars-looked-ridiculous-prime-tire/
 
