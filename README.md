@@ -1,3 +1,11 @@
+**Men’s Work Bags We Love**\
+`Text by Mitch Moxley`\
+https://nytimes.com/card/2026/01/30/smarter-living/wirecutter/
+
+**Argentina in Advanced Talks to Become Destination for U.S. Deportations**\
+`Washington and Buenos Aires are working on an agreement to allow the U.S. to deport immigrants from other nations to the South American country.`\
+https://nytimes.com/2026/01/30/world/americas/argentina-us-deportations-immigrants-milei.html
+
 **Review: In Justin Peck’s New Ballet, Beethoven Gets Sporty**\
 `Peck’s “The Wind-Up,” set to the first movement of the “Eroica” symphony, doesn’t rise to the challenge of the music but is refreshing in other ways.`\
 https://nytimes.com/2026/01/30/arts/dance/review-justin-peck-the-wind-up-new-york-city-ballet.html
@@ -21,12 +29,4 @@ https://nytimes.com/video/dining/100000010366745/kimchi.html
 **President Trump Wants Lower Rates. Warsh Could Have a Hard Time Delivering.**\
 `Kevin M. Warsh, whom Mr. Trump tapped to become the next chair of the Federal Reserve, could face fierce resistance if he tries to pursue substantially lower borrowing costs.`\
 https://nytimes.com/2026/01/30/business/trump-kevin-warsh-fed-rates.html
-
-**Here’s the latest.**\
-`By Michael Gold, Alan Feuer and Devlin Barrett`\
-https://nytimes.com/live/2026/01/30/us/epstein-files-release/heres-the-latest
-
-**Broncos' flurry of offensive changes underscores bottom line: Unit must improve**\
-`Momentum appears to be building for Davis Webb to become Denver's new offensive coordinator. Would he be empowered to shift Denver's scheme?`\
-https://nytimes.com/athletic/7009944/2026/01/30/broncos-offensive-changes-improve/
 
