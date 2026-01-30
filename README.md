@@ -1,3 +1,7 @@
+**ICE Expands Power of Agents to Arrest People Without Warrants**\
+`An internal memo changed the standard from whether people are unlikely to show up for hearings to whether they could leave the scene.`\
+https://nytimes.com/2026/01/30/us/politics/ice-expands-power-agents-warrants.html
+
 **‘Heated Rivalry’ Fans Want the Fleece. They’ll Be Able to Get It.**\
 `American and Canadian “Heated Rivalry” fans are hot for the jacket worn by the character Shane Hollander.`\
 https://nytimes.com/2026/01/30/style/heated-rivalry-canada-fleece-jacket.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/30/us/musk-and-epstein-exchanged-emails-about-visiti
 **Republicans Start to Fracture Over Immigration Enforcement**\
 `The party was mostly unified on the issue not long ago, but splinters are everywhere now.`\
 https://nytimes.com/2026/01/30/us/politics/immigration-news-trump-gop.html
-
-**Nashville Predators open arena, provide meals to residents affected by winter storms**\
-`Nashville community members were invited to the arena to charge their devices, fill up their water bottles and enjoy a meal.`\
-https://nytimes.com/athletic/7010983/2026/01/30/nashville-storm-bridgestone-arena-predators/
 
