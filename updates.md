@@ -1,3 +1,11 @@
+**Trump Repeats Claims Against Alex Pretti, Casting Slain Nurse as ‘Agitator’**\
+`After videos resurfaced showing a confrontation between Mr. Pretti and federal agents 11 days before officers fatally shot him, President Trump again sought to cast blame on him.`\
+https://nytimes.com/2026/01/30/us/trump-alex-pretti-agitator-minneapolis-shooting-ice.html
+
+**‘The Headlines’ News Quiz: Jan. 30, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://nytimes.com/2026/01/30/podcasts/the-headlines/the-headlines-news-quiz-jan-30-2026.html
+
 **Red Sox receiving interest on starters while seeking infield help, plus more roster notes**\
 `Brayan Bello and Patrick Sandoval are among Boston's starters who've surfaced in trade talks.`\
 https://nytimes.com/athletic/7008008/2026/01/30/red-sox-trade-interest-starting-pitchers-infield/
