@@ -1,3 +1,11 @@
+**Kimchi**\
+`Sometimes called mak kimchi, this kimchi formula starts with chopped napa cabbage and is as easy as dressing a salad. You just toss everything together in a large bowl.`\
+https://nytimes.com/video/dining/100000010366745/kimchi.html
+
+**President Trump Wants Lower Rates. Warsh Could Have a Hard Time Delivering.**\
+`Kevin M. Warsh, whom Mr. Trump tapped to become the next chair of the Federal Reserve, could face fierce resistance if he tries to pursue substantially lower borrowing costs.`\
+https://nytimes.com/2026/01/30/business/trump-kevin-warsh-fed-rates.html
+
 **Here’s the latest.**\
 `By Michael Gold, Alan Feuer and Devlin Barrett`\
 https://nytimes.com/live/2026/01/30/us/epstein-files-release/heres-the-latest
