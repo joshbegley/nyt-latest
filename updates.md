@@ -1,3 +1,7 @@
+**Word of the Day: truculent**\
+`This word has appeared in 18 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/30/learning/word-of-the-day-truculent.html
+
 **Nottingham Forest's fringe players show their worth just as transfer frenzy hits**\
 `Igor Jesus and James McAtee were among Forest's top performers in a 4-0 win over Ferencvaros that suggested they may yet have a part to play`\
 https://nytimes.com/athletic/7008748/2026/01/30/forest-jesus-mcatee/
