@@ -1,3 +1,11 @@
+**Born of a Factory Mistake, This Sad Toy Horse Captures China’s Mood**\
+`A manufacturing error turned a Lunar New Year toy into an unlikely emblem of workplace fatigue.`\
+https://nytimes.com/2026/01/30/world/asia/crying-horse-toy-china.html
+
+**What you need to know about the Olympic skeleton controversy between the U.S. and Canada**\
+`U.S. skeleton racer Katie Uhlaender is at the center of a U.S.-Canada Olympic qualification controversy.`\
+https://nytimes.com/athletic/7007710/2026/01/30/olympic-skeleton-controversy-katie-uhlaender-us-canada/
+
 **Jaden McDaniels shows why it would be hard for Wolves to trade him in win over Thunder**\
 `McDaniels, a consummate pro, scored 21 points and hit all five of his 3s in a win over the defending champs.`\
 https://nytimes.com/athletic/7007546/2026/01/30/jaden-mcdaniels-timberwolves-thunder-trade-rumors/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7008008/2026/01/30/red-sox-trade-interest-starting-
 **Here’s the latest.**\
 `By Mitch Smith, Sonia A. Rao and Dan Watson`\
 https://nytimes.com/live/2026/01/30/us/minnesota-ice-protests-minneapolis/heres-the-latest
-
-**TAFC: The secret sleeping pill problem. Plus: Champions League draw, Werner's surprise move**\
-`Today in TAFC: The big sleeping pill problem for players, who will face who in the Champions League play-offs, and will move revive Werner?`\
-https://nytimes.com/athletic/7009387/2026/01/30/sleeping-pills-champions-league-draw-werner-earthquakes/
-
-**NBA weekend watch guide: Lakers-Knicks, Thunder-Nuggets, Wemby in the wasp nest**\
-`Here's what to look forward to, and a few trade deadline crossovers to throw it back.`\
-https://nytimes.com/athletic/7005868/2026/01/30/nba-schedule-lakers-knicks-thunder-nuggets-watch-guide/
 
