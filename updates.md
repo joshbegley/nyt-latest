@@ -1,3 +1,11 @@
+**The Netherlands Is Getting a New Government. Will It Last?**\
+`Rob Jetten, a 38-year-old centrist, is poised to be the youngest prime minister in Dutch history. But his government will be in a daunting position.`\
+https://nytimes.com/2026/01/30/world/europe/netherlands-government-rob-jetten.html
+
+**The Bounce: Let's make some fake Giannis trades! Plus, the Wolves hammer OKC**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7009822/2026/01/30/giannis-trades-bucks-heat-warriors-knicks-the-bounce/
+
 **Aston Villa boss Emery plays down Watkins injury fears**\
 `Watkins was forced off after 35 minutes of Aston Villa's 3-2 win over RB Salzburg on Thursday.`\
 https://nytimes.com/athletic/7008329/2026/01/30/ollie-watkins-injury-aston-villa-salzburg/
