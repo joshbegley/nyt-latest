@@ -1,3 +1,19 @@
+**Trump Picks Kevin Warsh as Fed Chair**\
+`If confirmed by the Senate, Kevin M. Warsh, a former governor at the central bank, will replace Jerome H. Powell, whose term as chair ends in May.`\
+https://nytimes.com/2026/01/30/us/politics/trump-fed-chair-kevin-hassett.html
+
+**Everton’s Grealish likely to undergo foot surgery and miss rest of season - Moyes**\
+`The 30-year-old has recorded two goals and six assists in 20 league appearances this season.`\
+https://nytimes.com/athletic/7009521/2026/01/30/everton-jack-grealish-injury-surgery/
+
+**The New F.B.I.**\
+`We look at changes inside the agency.`\
+https://nytimes.com/2026/01/30/briefing/the-new-fbi.html
+
+**Chevron Points to Venezuela’s Promise as Big Oil Earnings Fall**\
+`The two largest U.S. oil companies, Chevron and Exxon Mobil, reported their lowest annual profits in years.`\
+https://nytimes.com/2026/01/30/business/energy-environment/chevron-exxon-mobil-earnings.html
+
 **Want to call an NHL game between the benches? Better get a helmet**\
 `The risks associated with one of the most unique jobs in sports broadcasting are outweighed by having the "greatest seat in the house."
 `\

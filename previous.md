@@ -1,3 +1,19 @@
+**Trump Picks Kevin Warsh as Fed Chair**\
+`If confirmed by the Senate, Kevin M. Warsh, a former governor at the central bank, will replace Jerome H. Powell, whose term as chair ends in May.`\
+https://nytimes.com/2026/01/30/us/politics/trump-fed-chair-kevin-hassett.html
+
+**Everton’s Grealish likely to undergo foot surgery and miss rest of season - Moyes**\
+`The 30-year-old has recorded two goals and six assists in 20 league appearances this season.`\
+https://nytimes.com/athletic/7009521/2026/01/30/everton-jack-grealish-injury-surgery/
+
+**The New F.B.I.**\
+`We look at changes inside the agency.`\
+https://nytimes.com/2026/01/30/briefing/the-new-fbi.html
+
+**Chevron Points to Venezuela’s Promise as Big Oil Earnings Fall**\
+`The two largest U.S. oil companies, Chevron and Exxon Mobil, reported their lowest annual profits in years.`\
+https://nytimes.com/2026/01/30/business/energy-environment/chevron-exxon-mobil-earnings.html
+
 **Hollywood’s North Road Studio Acquired by a European Production Giant**\
 `Peter Chernin, an industry veteran who founded North Road in 2022, said his deal with Mediawan met a need to get bigger in an era of consolidation.`\
 https://nytimes.com/2026/01/30/business/north-road-mediawan-deal.html
@@ -21,21 +37,4 @@ https://nytimes.com/athletic/7004338/2026/01/30/chiefs-2025-defense-what-went-wr
 **Lindsey Vonn crashes in World Cup downhill race one week before Olympics begin**\
 `The American Alpine skiing star crashed Friday in a downhill race in Switzerland, leaving her status for the Olympics in question.`\
 https://nytimes.com/athletic/7009454/2026/01/30/lindsey-vonn-crash-olympics-downhill-crans-montana/
-
-**Alex Tuch says Sabres aren't just headed for playoffs — they want the Stanley Cup**\
-`"We're not in here just to squeak in," said Tuch, who scored a hat trick against the Kings.`\
-https://nytimes.com/athletic/7009142/2026/01/30/sabres-tuch-stanley-cup-hat-trick-lyon-kings/
-
-**The latest on Artemi Panarin as Rangers suffer season series sweep to Islanders**\
-`The Rangers miss their most dynamic forward on the ice as Panarin and the Rangers work on a potential trade.`\
-https://nytimes.com/athletic/7009014/2026/01/30/new-york-rangers-panarin-update-islanders-sweep/
-
-**The Lions return a strong defensive nucleus, but improvements in 2026 needed**\
-`The Lions have notable defensive free agents and who stays or goes will help determine the direction the defense takes in 2026.`\
-https://nytimes.com/athletic/7008292/2026/01/30/lions-defense-kelvin-sheppard-2026-improvements/
-
-**Want to call an NHL game between the benches? Better get a helmet**\
-`The risks associated with one of the most unique jobs in sports broadcasting are outweighed by having the "greatest seat in the house."
-`\
-https://nytimes.com/athletic/6801667/2026/01/30/nhl-sideline-reporters-broadcasters-benches/
 

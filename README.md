@@ -1,3 +1,7 @@
+**Sheff Utd facing fresh call to retire Maddy Cusack's shirt number**\
+`Cusack died at the age of 27 in September 2023, and was Sheffield United's longest-serving player and vice-captain. `\
+https://nytimes.com/athletic/7004922/2026/01/30/maddy-cusack-sheffield-united-shirt-farnworth/
+
 **Trump Picks Kevin Warsh as Fed Chair**\
 `If confirmed by the Senate, Kevin M. Warsh, a former governor at the central bank, will replace Jerome H. Powell, whose term as chair ends in May.`\
 https://nytimes.com/2026/01/30/us/politics/trump-fed-chair-kevin-hassett.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/30/world/middleeast/syria-kurd-sdf-agreement.html
 **What went wrong with Chiefs defense? Three areas stand out — but offer hope, too**\
 `These were the three areas that held the Chiefs defense back most during the 2025 season.`\
 https://nytimes.com/athletic/7004338/2026/01/30/chiefs-2025-defense-what-went-wrong/
-
-**Lindsey Vonn crashes in World Cup downhill race one week before Olympics begin**\
-`The American Alpine skiing star crashed Friday in a downhill race in Switzerland, leaving her status for the Olympics in question.`\
-https://nytimes.com/athletic/7009454/2026/01/30/lindsey-vonn-crash-olympics-downhill-crans-montana/
 
