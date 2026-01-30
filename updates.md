@@ -1,3 +1,15 @@
+**Tips for Lowering Your Credit Card Interest Rate**\
+`The first step, consumer finance experts say, is to ask your card issuer to reduce the rate. And with average balances now $6,500, consider using your tax refund to put a dent in the debt.`\
+https://nytimes.com/2026/01/30/your-money/credit-card-debt-interest-rates.html
+
+**Your ‘Safe’ Stock Funds May Be Riskier Than You Think**\
+`The U.S. stock market has become so concentrated that even broad index funds are no longer well diversified, our columnist says.`\
+https://nytimes.com/2026/01/30/business/stock-market-concentration-risk.html
+
+**NHL Power Rankings: A top 10 shuffle for Haiku Week**\
+`It’s that time of year. No analysis or facts. Yeah, it’s more haikus.`\
+https://nytimes.com/athletic/7009752/2026/01/30/nhl-power-rankings-haiku-week/
+
 **What to Know About Kevin Warsh, Trump’s Pick to Lead the Fed**\
 `The president’s choice to lead the Federal Reserve is a financier and former governor of the central bank.`\
 https://nytimes.com/2026/01/30/us/politics/who-is-kevin-warsh-fed-chair.html

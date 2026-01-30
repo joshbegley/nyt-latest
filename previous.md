@@ -1,3 +1,15 @@
+**Tips for Lowering Your Credit Card Interest Rate**\
+`The first step, consumer finance experts say, is to ask your card issuer to reduce the rate. And with average balances now $6,500, consider using your tax refund to put a dent in the debt.`\
+https://nytimes.com/2026/01/30/your-money/credit-card-debt-interest-rates.html
+
+**Your ‘Safe’ Stock Funds May Be Riskier Than You Think**\
+`The U.S. stock market has become so concentrated that even broad index funds are no longer well diversified, our columnist says.`\
+https://nytimes.com/2026/01/30/business/stock-market-concentration-risk.html
+
+**NHL Power Rankings: A top 10 shuffle for Haiku Week**\
+`It’s that time of year. No analysis or facts. Yeah, it’s more haikus.`\
+https://nytimes.com/athletic/7009752/2026/01/30/nhl-power-rankings-haiku-week/
+
 **What to Know About Kevin Warsh, Trump’s Pick to Lead the Fed**\
 `The president’s choice to lead the Federal Reserve is a financier and former governor of the central bank.`\
 https://nytimes.com/2026/01/30/us/politics/who-is-kevin-warsh-fed-chair.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/30/world/europe/iran-trump-us-threats-turkey.html
 **Steelers set to hire Patrick Graham as defensive coordinator: Sources**\
 `It is arguably the most important position on new head coach Mike McCarthy's first Steelers coaching staff.`\
 https://nytimes.com/athletic/6999947/2026/01/30/patrick-graham-pittsburgh-steelers-dc/
-
-**Lowetide: Why Zach Hyman remains such a key to Oilers' success**\
-`The difference in the Oilers with Hyman in and out of the lineup remains massive.`\
-https://nytimes.com/athletic/7007124/2026/01/30/zach-hyman-oilers-stats-goals/
-
-**Stick to the blueprint or go all-in? Steph Curry, Draymond on Warriors' defining dilemma**\
-`As Draymond Green and Steph Curry’s clocks tick, one question hangs above Warriors: How far will they go for one more run? `\
-https://nytimes.com/athletic/7008124/2026/01/30/warriors-nba-trade-deadline-2026-steph-curry-draymond-green/
-
-**Ubben: If you didn't like how late this year's CFP title game was, brace yourself for next season**\
-`Next year, a team with a first-round bye will play three games in 51 days to win the title.`\
-https://nytimes.com/athletic/7003914/2026/01/30/college-football-playoff-championship-dates-calendar/
 
