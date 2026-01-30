@@ -1,3 +1,7 @@
+**Falcons hiring Ian Cunningham as general manager: Source**\
+`Cunningham has been the assistant GM of the Bears for the last four seasons and was a part of Super Bowl wins with the Ravens and Eagles.`\
+https://nytimes.com/athletic/6983326/2026/01/29/ian-cunningham-falcons-general-manager-hire/
+
 **Did Trump Really Give Nicki Minaj a $1 Million ‘Gold Card’ Visa?**\
 `“Gold Trump card free of charge,” the rapper wrote on social media. But the White House says it’s not what it seems.`\
 https://nytimes.com/2026/01/29/us/politics/trump-nicki-minaj-visa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7007991/2026/01/29/avalanche-avs-throwback-jerseys-
 **‘It’s All About Us Now’: Video Shows Bovino’s Orders to Agents in L.A. Raids**\
 `The Border Patrol commander gave agents wide latitude to arrest people as immigration raids began last summer. Similar tactics were later used in other cities.`\
 https://nytimes.com/2026/01/29/us/bovino-orders-video.html
-
-**Video Shows Bovino Giving Orders to Federal Agents in Los Angeles**\
-`Video from last summer shows the Border Patrol official Gregory Bovino telling federal agents dressed in tactical gear to “arrest as many people that touch you as you want.” The video was made public as part of a federal lawsuit over immigration enforcement in the Chicago area.`\
-https://nytimes.com/video/us/100000010676901/la-immigration-raids-greg-bovino.html
 
