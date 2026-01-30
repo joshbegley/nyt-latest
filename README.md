@@ -1,3 +1,7 @@
+**Robert Saleh takes on Titans' coaching job armed with lessons from Jets tenure**\
+`Despite the turmoil during his time with the Jets, Saleh reflects fondly on his tenure: "I am as lucky as lucky gets."`\
+https://nytimes.com/athletic/7008519/2026/01/29/robert-saleh-titans-coach-jets/
+
 **Trump Weighs New Military Options Against Iran**\
 `The plans being weighed by the president go beyond those he considered weeks ago amid widespread protests against Iran’s government.`\
 https://nytimes.com/2026/01/29/us/trump-military-options-against-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010676901/la-immigration-raids-greg-bovino.ht
 **Washington Post Plans Cuts to Reshape Newsroom**\
 `The changes are expected to include significant layoffs in areas like sports and international coverage.`\
 https://nytimes.com/2026/01/29/business/media/washington-post-newsroom.html
-
-**Can Trust in Vaccines Be Built Through Skepticism?**\
-`Is the Trump administration reviving confidence in vaccination or destroying it? Dr. Jay Bhattacharya, the director of the N.I.H., thinks an embrace of skepticism is key.`\
-https://nytimes.com/video/opinion/100000010665145/can-trust-in-vaccines-be-built-through-skepticism.html
 
