@@ -1,3 +1,7 @@
+**Xi’s Military Purge May Set Back His Taiwan Ambitions**\
+`By ousting his top generals, Xi Jinping has secured absolute control, but has also hollowed out the command structure preparing for possible war over Taiwan.`\
+https://nytimes.com/2026/01/29/world/asia/xi-zhang-military-purge-taiwan.html
+
 **Enter Here!**\
 `Robyn Weintraub opens our solving weekend.`\
 https://nytimes.com/2026/01/29/crosswords/daily-puzzle-2026-01-30.html
