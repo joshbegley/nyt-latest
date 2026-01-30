@@ -1,3 +1,27 @@
+**Extra-Green Pasta Salad**\
+`This vibrant green pasta salad gets its color from a combination of spinach and basil, but you can swap the spinach for arugula for a more peppery finish.`\
+https://nytimes.com/video/dining/100000010368944/extra-green-pasta-salad.html
+
+**Hot Honey Chicken**\
+`Breaded with a seasoned cornflake mixture then baked, these chicken cutlets are spicy and sweet thanks to a drizzle of homemade hot honey.`\
+https://nytimes.com/video/dining/100000010368880/hot-honey-chicken.html
+
+**9 Mayors Discuss Safety and Trust in their Cities Under Trump**\
+`The nation’s mayors gathered in Washington this week, and Minneapolis has dominated the conversation.`\
+https://nytimes.com/2026/01/30/us/us-mayors-minnesota-ice-trump.html
+
+**Commerce Secretary Howard Lutnick Planned Trip to Epstein’s Island**\
+`Prominent people have been scrutinized for their visits to Jeffrey Epstein’s island in the Caribbean. Mr. Lutnick’s visit had not been previously disclosed.`\
+https://nytimes.com/2026/01/30/us/howard-lutnick-epstein-island.html
+
+**Kids Sent Us Antarctica Questions. Here Are the Answers.**\
+`Do snowy owls live in Antarctica? What’s the most alarming measurement scientists are watching for? What do you eat and drink? Our climate reporter Raymond Zhong answers some questions from students around the world.`\
+https://nytimes.com/video/climate/100000010659109/kids-sent-us-antarctica-questions-here-are-the-answers.html
+
+**Texas May Be Losing Its Grip as America’s Fastest-Growing State**\
+`Long accustomed to rapid growth, Texas saw the overall number of people moving from other states sink to its lowest level in two decades, census estimates show.`\
+https://nytimes.com/2026/01/30/us/texas-population-growth-migration-census.html
+
 **A Secret Panel to Question Climate Science Was Unlawful, Judge Rules**\
 `The researchers produced a report a that was central in a Trump administration effort to stop regulating climate pollution.`\
 https://nytimes.com/2026/01/30/climate/energy-department-climate-ruling.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7010652/2026/01/30/nikola-jokic-injury-return-nugge
 **Eight Eagles Thoughts: Why Sean Mannion, play-calling question, more staff changes**\
 `The Eagles also hired Josh Grizzard as passing game coordinator.`\
 https://nytimes.com/athletic/7010249/2026/01/30/eagles-hire-sean-mannion-offense-passing-game/
-
-**USWNT's 'Triple Espresso' reunites ahead of 2026 NWSL comebacks**\
-`Sophia Wilson and Mallory Swanson hope to join Trinity Rodman back on the U.S. team this year. `\
-https://nytimes.com/athletic/7009241/2026/01/30/uswnt-triple-espresso-reunion-nwsl-season/
-
-**The N.I.H. Director Thinks Covid Probably Started in a Lab**\
-`Scientists tried to prevent a pandemic. But did they open up Pandora’s box with their research? Dr. Jay Bhattacharya explains how he views the public health fallout to the Opinion columnist Ross Douthat.`\
-https://nytimes.com/video/opinion/100000010665146/the-nih-director-thinks-covid-probably-started-in-a-lab.html
-
-**Palace sign Guessand on loan from Aston Villa**\
-`The Athletic reported on Thursday that Palace were finalising a loan deal for Guessand.`\
-https://nytimes.com/athletic/7007554/2026/01/30/evann-guessand-crystal-palace-aston-villa-transfer/
-
-**Roger Allers Dies at 76; Helped Put ‘Lion King’ on Screens and Onstage**\
-`A Disney fan who once “flew” off his couch as a 4-year-old Peter Pan, he was a co-director of the animated film and a co-writer of the Broadway musical, both of them megahits.`\
-https://nytimes.com/2026/01/30/movies/roger-allers-dead.html
-
-**Children Were Arrested in Iran’s Brutal Crackdown on Protests**\
-`An Iranian government official said some children had been detained, the first such acknowledgment in weeks of anti-government protests.`\
-https://nytimes.com/2026/01/30/world/middleeast/iran-protests-children-arrested.html
-
-**Book Club: Let’s Discuss ‘The Hounding,’ by Xenobe Purvis**\
-`In this debut novel, set in 1700s England, five sisters are rumored to turn into a pack of dogs.`\
-https://nytimes.com/2026/01/30/books/review/podcast-book-club-hounding-xenobe-purvis.html
 
