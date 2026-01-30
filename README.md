@@ -1,3 +1,15 @@
+**How to watch Columbia vs. Princeton women's basketball: Time, TV, streaming**\
+`Find out how to watch the Columbia Lions play the Princeton Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7010177/2026/01/30/columbia-vs-princeton-stream-how-to-watch-jan-30/
+
+**Browns HC Todd Monken jokes with Shedeur Sanders about past draft interest**\
+`Monken, the Ravens' ex-offensive coordinator, confirmed the reports from September that said Baltimore wanted to draft Sanders last year.`\
+https://nytimes.com/athletic/7010025/2026/01/30/browns-todd-monken-shedeur-sanders-ravens/
+
+**Live Updates: Millions More Epstein Files Released**\
+`The Justice Department released a new trove of documents as well as thousands of videos and photographs related to the investigation of Jeffrey Epstein. The move comes weeks after a deadline imposed by Congress.`\
+https://nytimes.com/live/2026/01/30/us/epstein-files-release
+
 **This Canucks homestand is showing that Vancouver fans can handle a rebuild**\
 `As the Canucks were on the verge of winning a game for only the third time since Christmas, Rogers Arena was loud.`\
 https://nytimes.com/athletic/7009330/2026/01/30/vancouver-canucks-game-attendance-scores-2026/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/30/movies/five-horror-movies-to-stream-now.html
 **Court Upholds Decision to Drop Charges Against New Jersey Power Broker**\
 `George E. Norcross III had been accused of illegally obtaining property and fraudulently collecting millions in tax breaks. The state attorney general’s office can appeal the decision.`\
 https://nytimes.com/2026/01/30/nyregion/norcross-new-jersey-dismissal.html
-
-**Tesla’s Model S, Soon to Be History, Changed the Auto Industry**\
-`The company’s chief executive, Elon Musk, said this week that it would stop making the car, an electric pioneer in 2012, as well as the Model X.`\
-https://nytimes.com/2026/01/30/business/tesla-model-s-history.html
-
-**‘Marty Supreme’ | Anatomy of a Scene**\
-`The director Josh Safdie narrates a sequence from his film, nominated for nine Oscars and featuring Timothée Chalamet and Gwyneth Paltrow.`\
-https://nytimes.com/video/movies/100000010676236/marty-supreme-scene.html
-
-**Stock Market Takes Warsh Nomination in Stride**\
-`Stock and bond markets were unfazed by Kevin Warsh’s nomination as the next Fed chair with the S&P 500 nudging slightly lower in early trading Friday.`\
-https://nytimes.com/2026/01/30/us/politics/stock-market-kevin-warsh-fed.html
 
