@@ -1,3 +1,11 @@
+**Cavaliers, NBA to discuss changes to unusual raised court after Luka Dončić's injury**\
+`The raised floor in the Cavaliers' arena has long been an oddity — and potential hazard — in the NBA.`\
+https://nytimes.com/athletic/7008562/2026/01/29/cavaliers-court-changes-nba-luka-doncic-injury-lakers/
+
+**It's raining hats! January sets new NHL record for most hat tricks in a month**\
+`The previous record of 29 had stood for over 40 years before an offensive flurry to start 2026.`\
+https://nytimes.com/athletic/7005692/2026/01/29/nhl-hat-tricks-league-record/
+
 **January sets new NHL record for most hat tricks in a month**\
 `The previous record of 29 had stood for over 40 years before an offensive flurry to start 2026.`\
 https://nytimes.com/athletic/7005692/2026/01/29/nhl-hat-tricks-league-record/
