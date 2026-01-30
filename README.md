@@ -1,3 +1,7 @@
+**Trump Tells U.K. and Canada That Boosting Trade With China Is ‘Dangerous’**\
+`The leaders of both countries have recently visited Beijing seeking to strengthen economic ties, as tensions with the United States rise.`\
+https://nytimes.com/2026/01/30/world/asia/trump-starmer-china-canada-trade.html
+
 **Frimpong is out for weeks - so what are Liverpool's options at right-back?**\
 `Arne Slot has a problem position to fill with his specialist right-backs out injured`\
 https://nytimes.com/athletic/7007421/2026/01/30/liverpool-arne-slot-right-back-options/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/01/30/briefing/news-quiz-trump-minnesota.ht
 **Tucker Carlson Needs His Hatreds**\
 `To triumph in the modern Republican Party, you need to be able to wrench your soul into alignment with your ambition.`\
 https://nytimes.com/2026/01/30/opinion/tucker-carlson-bad-faith.html
-
-**Are SpaghettiOs Soup?**\
-`A ruling on a “Souper” Bowl party dispute.`\
-https://nytimes.com/interactive/2026/01/30/magazine/spaghettios-soup-hodgman-quiz.html
 
