@@ -1,3 +1,11 @@
+**Laura Maioglio, Whose Restaurant Was a Theater District Mainstay, Dies at 93**\
+`Since 1962, she had overseen her father’s stately Italian restaurant, Barbetta, and became one of the city’s most enduring female restaurateurs.`\
+https://nytimes.com/2026/01/31/dining/laura-maioglio-dead.html
+
+**Judge Orders Release of 5-Year-Old Whose Detention Drew Outrage**\
+`The treatment of Liam Conejo Ramos, pictured wearing a blue winter hat and Spider-Man backpack while in the custody of immigration agents, drew outrage across the country.`\
+https://nytimes.com/2026/01/31/us/politics/liam-ramos-ice-release.html
+
 **Large Lizard Is Rescued After It’s Found Buried in Rhode Island Snow**\
 `The reptile, a tegu, had frostbite and showed signs of weakness from exposure in this week’s cold weather. It was unclear where it came from.`\
 https://nytimes.com/2026/01/31/us/lizard-rhode-island-snow-storm.html
