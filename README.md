@@ -1,9 +1,13 @@
+**The New York Times in Print for Saturday, Jan. 31, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/31/todays-new-york-times
+
 **Stephen Curry leaves Warriors loss to Detroit with knee soreness**\
 `The 12-time All-Star left the Warriors' game against Detroit in the third quarter and did not return.`\
 https://nytimes.com/athletic/7011802/2026/01/31/steph-curry-golden-state-warriors-knee-injury-nba/
 
 **Charlie Coyle stays hot with second career hat trick in Blue Jackets win**\
-`Coyle, coming off his 1,000th NHL game on Saturday, has been stacking good nights for a while now.`\
+`Coyle, coming off his 1,000th NHL game Saturday, has been stacking good nights for a while now.`\
 https://nytimes.com/athletic/7011701/2026/01/31/charlie-coyle-second-hat-trick-blue-jackets-win/
 
 **An evening with West Ham legends: Paqueta switch, VAR is a 'sack of s***' and survival hopes**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7008173/2026/01/31/pep-guardiola-manchester-city-re
 **Quote of the Day: For Bobsledding Mothers, Life Is a Blur**\
 `Quotation of the Day for Saturday, January 31, 2026.`\
 https://nytimes.com/2026/01/31/pageoneplus/quote-of-the-day-for-bobsledding-mothers-life-is-a-blur.html
-
-**Over Creamy Chicken, Europe’s Leaders Try to Reduce Dependence on Trump**\
-`Since President Trump made threats about Greenland, the continent’s leaders have debated the rapid deterioration of U.S. ties in policy papers and at dinner.`\
-https://nytimes.com/2026/01/31/world/europe/eu-trump-greenland-europe.html
 
