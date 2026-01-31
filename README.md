@@ -1,3 +1,7 @@
+**The Briefing: Leeds 0 Arsenal 4 - Madueke steps up, Darlow's difficult day and Arteta's side respond**\
+`Arsenal managed an impressive 4-0 win over Leeds United at Elland Road on Saturday afternoon`\
+https://nytimes.com/athletic/7006746/2026/01/31/leeds-arsenal-result-report-analysis/
+
 **Linus Ullmark to make first start since returning from personal leave**\
 `The Ottawa goalie hasn't played since Dec. 27, 2025, and stepped away from the team for mental health reasons.`\
 https://nytimes.com/athletic/6968626/2026/01/31/linus-ullmark-senators-return-personal-leave/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/31/obituaries/jimmy-reed-overlooked.html
 **Cade Cunningham's growth has earned him respect from some of the NBA's best defenders**\
 `“He’s awesome,” Warriors coach Steve Kerr said of Cunningham ahead of Friday's Pistons win. “He reminds me of Luka (Dončić), James Harden."`\
 https://nytimes.com/athletic/7011918/2026/01/31/cade-cunningham-growth-detroit-pistons/
-
-**When the Doctor Needs a Checkup**\
-`The physician work force is aging fast, and some hospitals now require that older clinicians undergo testing for cognitive decline. Many have resisted.`\
-https://nytimes.com/2026/01/31/health/doctors-cognitive-decline.html
 
