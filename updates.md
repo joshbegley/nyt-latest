@@ -1,3 +1,7 @@
+**Epstein arranged two meetings with Boehly after disgraced financier's first jail term**\
+`Emails released by the Department of Justice on Friday revealed plans for meetings`\
+https://nytimes.com/athletic/7011575/2026/01/31/todd-boehly-epstein-chelsea-lakers-dodgers/
+
 **Sherrill Urges New Jersey Residents to Record ICE Action on Their Phones**\
 `Governor Mikie Sherrill said the state would begin collecting images of federal immigration agents interacting with the public.`\
 https://nytimes.com/2026/01/31/nyregion/ice-new-jersey-images-database-sherrill.html
