@@ -1,3 +1,7 @@
+**Epstein arranged two meetings with Boehly after disgraced financier's first jail term**\
+`Emails released by the Department of Justice on Friday revealed plans for meetings`\
+https://nytimes.com/athletic/7011575/2026/01/31/todd-boehly-epstein-chelsea-lakers-dodgers/
+
 **Sherrill Urges New Jersey Residents to Record ICE Action on Their Phones**\
 `Governor Mikie Sherrill said the state would begin collecting images of federal immigration agents interacting with the public.`\
 https://nytimes.com/2026/01/31/nyregion/ice-new-jersey-images-database-sherrill.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7011802/2026/01/31/steph-curry-golden-state-warrior
 **Charlie Coyle stays hot with second career hat trick in Blue Jackets win**\
 `Coyle, coming off his 1,000th NHL game Saturday, has been stacking good nights for a while now.`\
 https://nytimes.com/athletic/7011701/2026/01/31/charlie-coyle-second-hat-trick-blue-jackets-win/
-
-**An evening with West Ham legends: Paqueta switch, VAR is a 'sack of s***' and survival hopes**\
-`The Athletic attended a stage show starring a panel of the club's former stars as they discussed a series of topics`\
-https://nytimes.com/athletic/7003789/2026/01/31/west-ham-legends-lucas-paqueta-var-relegation/
 
