@@ -1,3 +1,7 @@
+**WATCH: Why Grey Zabel has been essential to Seahawks' Super Bowl run**\
+`Zabel, the 18th pick in the 2025 NFL Draft, has started every game in his rookie season.`\
+https://nytimes.com/athletic/7012643/2026/01/31/video-grey-zabel-super-bowl-breakdown/
+
 **Texas Special Runoff Election Results**\
 `Get live results and maps from the Jan. 31, 2026 Texas special runoff elections.`\
 https://nytimes.com/interactive/2026/01/31/us/elections/results-texas-special-runoff.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012586/2026/01/31/wild-vs-oilers-stream-how-to-wat
 **How to watch Stars vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7012579/2026/01/31/stars-vs-mammoth-stream-how-to-watch-jan-31/
-
-**Judge Orders Release of 5-Year-Old Whose Detention Drew Outrage**\
-`The treatment of Liam Conejo Ramos, pictured wearing a blue winter hat and Spider-Man backpack while in the custody of immigration agents, drew outrage across the country.`\
-https://nytimes.com/2026/01/31/us/politics/liam-ramos-ice-release.html
 

@@ -1,3 +1,7 @@
+**Paul George's suspension changes everything for Sixers ahead of NBA trade deadline**\
+`Joel Embiid made a not-so-suble hint Thursday that he wanted help. Now Paul George's suspension makes Embiid's request impossible to ignore.`\
+https://nytimes.com/athletic/7012350/2026/01/31/paul-george-suspension-nba-trade-deadline-sixers/
+
 **WATCH: Why Grey Zabel has been essential to Seahawks' Super Bowl run**\
 `Zabel, the 18th pick in the 2025 NFL Draft, has started every game in his rookie season.`\
 https://nytimes.com/athletic/7012643/2026/01/31/video-grey-zabel-super-bowl-breakdown/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/31/world/middleeast/iran-explosions-jitters.html
 **How to watch Wild vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Minnesota Wild play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7012586/2026/01/31/wild-vs-oilers-stream-how-to-watch-jan-31/
-
-**How to watch Stars vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7012579/2026/01/31/stars-vs-mammoth-stream-how-to-watch-jan-31/
 

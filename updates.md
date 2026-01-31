@@ -1,3 +1,7 @@
+**WATCH: Why Grey Zabel has been essential to Seahawks' Super Bowl run**\
+`Zabel, the 18th pick in the 2025 NFL Draft, has started every game in his rookie season.`\
+https://nytimes.com/athletic/7012643/2026/01/31/video-grey-zabel-super-bowl-breakdown/
+
 **Texas Special Runoff Election Results**\
 `Get live results and maps from the Jan. 31, 2026 Texas special runoff elections.`\
 https://nytimes.com/interactive/2026/01/31/us/elections/results-texas-special-runoff.html
