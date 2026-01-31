@@ -1,3 +1,11 @@
+**Cade Cunningham's growth has earned him respect from some of the NBA's best defenders**\
+`“He’s awesome,” Warriors coach Steve Kerr said of Cunningham ahead of Friday's Pistons win. “He reminds me of Luka (Dončić), James Harden."`\
+https://nytimes.com/athletic/7011918/2026/01/31/cade-cunningham-growth-detroit-pistons/
+
+**When the Doctor Needs a Checkup**\
+`The physician work force is aging fast, and some hospitals now require that older clinicians undergo testing for cognitive decline. Many have resisted.`\
+https://nytimes.com/2026/01/31/health/doctors-cognitive-decline.html
+
 **My Favorite Dessert in New York City, Now on Demand**\
 `The silky chocolate mousse from Penny is utter bliss on a plate. I adapted the recipe so you can have it no matter where you are.`\
 https://nytimes.com/2026/01/31/dining/my-favorite-dessert-in-new-york-city-now-on-demand.html

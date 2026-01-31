@@ -1,3 +1,11 @@
+**Cade Cunningham's growth has earned him respect from some of the NBA's best defenders**\
+`“He’s awesome,” Warriors coach Steve Kerr said of Cunningham ahead of Friday's Pistons win. “He reminds me of Luka (Dončić), James Harden."`\
+https://nytimes.com/athletic/7011918/2026/01/31/cade-cunningham-growth-detroit-pistons/
+
+**When the Doctor Needs a Checkup**\
+`The physician work force is aging fast, and some hospitals now require that older clinicians undergo testing for cognitive decline. Many have resisted.`\
+https://nytimes.com/2026/01/31/health/doctors-cognitive-decline.html
+
 **My Favorite Dessert in New York City, Now on Demand**\
 `The silky chocolate mousse from Penny is utter bliss on a plate. I adapted the recipe so you can have it no matter where you are.`\
 https://nytimes.com/2026/01/31/dining/my-favorite-dessert-in-new-york-city-now-on-demand.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7012079/2026/01/31/jets-vs-panthers-stream-how-to-w
 **Minneapolis Residents Wear Their Passports, Desperate to Ward Off ICE**\
 `ICE agents can stop anyone they suspect of being undocumented. Now, residents are weighing their rights and their pride against their own safety.`\
 https://nytimes.com/2026/01/31/us/ice-minneapolis-residents-passports.html
-
-**How to watch Cornell vs. Princeton women's basketball: Time, TV, streaming**\
-`Find out how to watch the Cornell Big Red play the Princeton Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7012072/2026/01/31/cornell-vs-princeton-stream-how-to-watch-jan-31/
-
-**How to watch Oregon vs. Maryland women's basketball: Time, TV, streaming**\
-`Find out how to watch the Oregon Ducks play the Maryland Terrapins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7012070/2026/01/31/oregon-vs-maryland-stream-how-to-watch-jan-31/
 
