@@ -1,3 +1,7 @@
+**Release of Three Million Epstein Pages Falls Short, Survivors Say**\
+`“I think there’s a hunger or a thirst for information that I do not think will be satisfied by the review of these documents,” Todd Blanche, the deputy attorney general, said. “There’s nothing I can do about that.”`\
+https://nytimes.com/2026/01/30/us/politics/epstein-files-release.html
+
 **Release of Three Million Epstein Pages Appears Unlikely to Satisfy**\
 `Democratic lawmakers and some survivors of Mr. Epstein’s abuse said the disclosure fell short.`\
 https://nytimes.com/2026/01/30/us/politics/epstein-files-release.html
