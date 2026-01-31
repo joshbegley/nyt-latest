@@ -1,3 +1,15 @@
+**Unrivaled breaks attendance record for women's professional basketball**\
+`In one night, Unrivaled broke a women's basketball attendance record and turned almost the same revenue from 2025.`\
+https://nytimes.com/athletic/7011457/2026/01/30/unrivaled-womens-basketball-attendance-record/
+
+**Release of Three Million Epstein Pages Falls Short, Survivors Say**\
+`Todd Blanche, the deputy attorney general, told reporters on Friday that “there’s a hunger or a thirst for information that I do not think will be satisfied by the review of these documents.”`\
+https://nytimes.com/2026/01/30/us/politics/epstein-files-release.html
+
+**Gleeman: Twins' 'mutual' breakup with Derek Falvey is latest Pohlad-created mess**\
+`After nine years atop the front office, Falvey seemingly reached a breaking point with shrinking resources and a new Pohlad in charge.`\
+https://nytimes.com/athletic/7010981/2026/01/30/twins-derek-falvey-mutual-breakup-pohlad-ownership/
+
 **Release of Three Million Epstein Pages Falls Short, Survivors Say**\
 `“I think there’s a hunger or a thirst for information that I do not think will be satisfied by the review of these documents,” Todd Blanche, the deputy attorney general, said. “There’s nothing I can do about that.”`\
 https://nytimes.com/2026/01/30/us/politics/epstein-files-release.html
