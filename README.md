@@ -18,10 +18,6 @@ https://nytimes.com/athletic/7011740/2026/01/31/hockeys-olympic-spotlight-nears-
 `Vonn provided a brief status update Saturday on Instagram, thanking supporters as her Olympic status remains uncertain.`\
 https://nytimes.com/athletic/7011921/2026/01/31/lindsey-vonn-olympics-injury-crash-crans-montana/
 
-**Mack Brown: Why I think Drake Maye can become one of the best ever**\
-`Brown coached the Patriots quarterback for three seasons at North Carolina. One trait stood out above the rest.`\
-https://nytimes.com/athletic/7004004/2026/01/31/drake-maye-super-bowl-patriots-mack-brown/
-
 **'You can still do this': Connor Ingram's journey from 'dark days' and waivers to the Oilers net**\
 `After entering the player assistance program last year and then being traded, Connor Ingram has a 6-3-1 record for the Oilers.`\
 https://nytimes.com/athletic/7004769/2026/01/31/connor-ingram-oilers-waivers-comeback/
@@ -33,6 +29,10 @@ https://nytimes.com/athletic/7009877/2026/01/31/tampa-bay-lightning-outdoor-game
 **‘A steal for us’: Fraser Minten promoted by Bruins, hinting at big things to come**\
 `Coach Marco Sturm on Minten: “He just has that quality, I would say, to be up and down the lineup right away at his early age.”`\
 https://nytimes.com/athletic/7010846/2026/01/31/bruins-fraser-minten-injuries/
+
+**Mack Brown: Why I think Drake Maye can become one of the best ever**\
+`Brown coached the Patriots quarterback for three seasons at North Carolina. One trait stood out above the rest.`\
+https://nytimes.com/athletic/7004004/2026/01/31/drake-maye-super-bowl-patriots-mack-brown/
 
 **Slovenian Sphinx Flick Nixed!**\
 `Melania’s movie, not exactly boffo box office.`\
