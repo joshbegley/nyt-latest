@@ -1,3 +1,7 @@
+**‘We’ve Fought Side by Side’: Danish Veterans March Against Trump’s Comments**\
+`In the latest anti-American gathering in Denmark, veterans who went to war alongside U.S. troops took to the streets of Copenhagen.`\
+https://nytimes.com/2026/01/31/world/europe/denmark-military-march-us-troops.html
+
 **Chicago Orders Police to Document Potentially Illegal Federal Immigration Tactics**\
 `The order, signed by Mayor Brandon Johnson, instructs police officers to report allegations of unlawful conduct in an effort to prosecute the most aggressive federal immigration actions.`\
 https://nytimes.com/2026/01/31/us/chicago-police-federal-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012294/2026/01/31/timberwolves-vs-grizzlies-stream
 **How to watch Pelicans vs. 76ers: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Philadelphia 76ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7012289/2026/01/31/pelicans-vs-76ers-stream-how-to-watch-jan-31/
-
-**How to watch Hawks vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7012285/2026/01/31/hawks-vs-pacers-stream-how-to-watch-jan-31/
 
