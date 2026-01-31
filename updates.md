@@ -1,3 +1,11 @@
+**Federal Judge Denies Request to Block ICE Surge in Minnesota**\
+`Local officials had argued that the decision to send some 3,000 immigration agents to Minnesota amounted to a violation of state sovereignty.`\
+https://nytimes.com/2026/01/31/us/judge-minnesota-ice-ruling.html
+
+**An Ocean of Frozen Flowers Grows Where Alex Pretti Was Killed**\
+`One week after the I.C.U. nurse was shot dead by federal agents, tributes continue to build on the sidewalk where he fell.`\
+https://nytimes.com/2026/01/31/us/alex-pretti-memorial-minneapolis.html
+
 **An Ocean of Frozen Flowers Grows Where Alex Pretti Was Killed**\
 `One week after the I.C.U. nurse was shot dead by federal agents, tributes continue to build on the sidewalk where he fell.`\
 https://nytimes.com/2026/01/31/us/an-ocean-of-frozen-flowers-grows-where-alex-pretti-was-killed.html
