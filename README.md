@@ -1,3 +1,25 @@
+**Bengals QB Joe Flacco added to AFC Pro Bowl roster as replacement**\
+`As it turns out, the Cleveland Browns had not one, but two Pro Bowl quarterbacks on their roster in August.
+
+`\
+https://nytimes.com/athletic/7011263/2026/01/30/begnals-qb-joe-flacco-pro-bowl-replacement/
+
+**Trump Names ‘Data Nerd’ to Lead Labor Statistics Agency**\
+`The decision to nominate Brett Matsumoto, a career government economist, came six months after the president fired the previous commissioner.`\
+https://nytimes.com/2026/01/30/business/trump-bureau-of-labor-statistics-brett-matsumoto.html
+
+**Can You Teach an A.I. Model to Be Good?**\
+`Amanda Askell, the in-house philosopher at Anthropic, joins “Hard Fork” to discuss the company’s new “Claude Constitution” and why training the company’s A.I. model on ethics is an important task.`\
+https://nytimes.com/video/podcasts/100000010670974/can-you-teach-an-ai-model-to-be-good.html
+
+**Trump, IndyCar plan Freedom 250 race around National Mall, but it's going to be tough lift**\
+`The president wants a race in D.C. to help America celebrate its 250th birthday, but the challenges to bring it about are massive.`\
+https://nytimes.com/athletic/7010955/2026/01/30/trump-indycar-race-national-mall-america-250-dc/
+
+**Seahawks expected to be put up for sale after Super Bowl 60 vs. Patriots: Sources**\
+`Jody Allen has been the Seahawks' controlling owner since 2018, when her brother, Paul Allen, died and left her as trustee of his estate.`\
+https://nytimes.com/athletic/7010295/2026/01/30/seahawks-sale-owner-super-bowl-paul-allen-estate/
+
 **N.H.L. Players Return to The Olympics**\
 `The 12-year wait is over: N.`\
 https://nytimes.com/video/the-athletic/100000010668715/nhl-players-olympics.html
@@ -17,24 +39,4 @@ https://nytimes.com/2026/01/30/us/politics/trump-minneapolis-dueling-messages.ht
 **What Would It Take to Actually Freeze the Hudson River?**\
 `New York City is icy and cold right now, but you’re probably not going to be able to walk to New Jersey any time soon.`\
 https://nytimes.com/2026/01/30/weather/hudson-river-new-york-frozen.html
-
-**Here’s What to Know About the Millions of Pages of Epstein Documents**\
-`Deputy Attorney General Todd Blanche signaled that this would be the last major release of files related to Jeffrey Epstein.`\
-https://nytimes.com/2026/01/30/us/what-to-know-epstein-files.html
-
-**Epstein Offered Prince Andrew a Meeting With a Russian Woman, Emails Show**\
-`Andrew Mountbatten-Windsor was stripped of his royal titles last year after new disclosures showed the extent of his relationship with Jeffrey Epstein.`\
-https://nytimes.com/2026/01/30/us/politics/epstein-prince-andrew.html
-
-**Two Students From Same School as 5-Year-Old Taken by ICE Are Also in Custody**\
-`The school’s principal said he brought two children to federal custody at the request of their mother, who was detained. Last week, another student, Liam Conejo Ramos, was picked up by immigration agents.`\
-https://nytimes.com/2026/01/30/us/valley-view-elementary-minnesota-children-ice-detention.html
-
-**U.N. Says It’s in Danger of Financial Collapse Because of Unpaid Dues**\
-`The world body warned it would run out of money by July and have to close its New York headquarters if countries, namely the United States, did not pay annual dues that amount to billions of dollars.`\
-https://nytimes.com/2026/01/30/world/americas/un-finances-collapse-debts.html
-
-**Where to Stream Catherine O’Hara’s Best Performances**\
-`Her characters were as varied as they were eccentric and lovable. These are some of the best.`\
-https://nytimes.com/2026/01/30/arts/television/catherine-ohara-movies-tv-shows-watch.html
 
