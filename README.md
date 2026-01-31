@@ -1,3 +1,7 @@
+**Draymond Green calls out ref after tech: 'Don’t put your hand in my face'**\
+`Green also addressed rumors that the Warriors could trade him for Milwaukee Bucks star Giannis Antetokounmpo.`\
+https://nytimes.com/athletic/7011870/2026/01/31/draymond-green-technical-foul-trade-rumors/
+
 **How to watch Hurricanes vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Carolina Hurricanes play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7012090/2026/01/31/hurricanes-vs-capitals-stream-how-to-watch-jan-31/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012067/2026/01/31/byu-vs-kansas-stream-how-to-watc
 **How to watch Northern Illinois vs. Miami (OH) men's basketball: Time, TV, streaming**\
 `Find out how to watch the Northern Illinois Huskies play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7012065/2026/01/31/northern-illinois-vs-miami-oh-stream-how-to-watch-jan-31/
-
-**Elena Rybakina's complex path to a straightforward Australian Open title**\
-`Rybakina's serene run to a first major title in three-and-a-half years stands in contrast to her past 18 months off the court.`\
-https://nytimes.com/athletic/7011995/2026/01/31/tennis-elena-rybakina-australian-open/
 
