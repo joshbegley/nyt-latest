@@ -1,3 +1,7 @@
+**Aryna Sabalenka has the best problem a tennis player can have — and the worst**\
+`Sabalenka is a dominant world No. 1, but her record in Grand Slam finals is an increasingly heavy weight to bear.`\
+https://nytimes.com/athletic/7011997/2026/01/31/aryna-sabalenka-tennis-grand-slam-final-record/
+
 **Canada’s Conservatives Give Their Trump-Inspired Leader a Second Chance**\
 `Pierre Poilievre, a populist who led the Conservative Party to defeat last year, was retained as its leader on Friday, despite his dismal poll numbers.`\
 https://nytimes.com/2026/01/31/world/americas/canada-pierre-poilievre-conservatives.html
