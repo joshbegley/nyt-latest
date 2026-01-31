@@ -1,3 +1,15 @@
+**Canada’s Conservatives Give Their Trump-Inspired Leader a Second Chance**\
+`Pierre Poilievre, a populist who led the Conservative Party to defeat last year, was retained as its leader on Friday, despite his dismal poll numbers.`\
+https://nytimes.com/2026/01/31/world/americas/canada-pierre-poilievre-conservatives.html
+
+**Israel Launches Deadly Strikes in Gaza, as Rafah Border Is Set to Reopen**\
+`A local health official said at least 26 people had been killed in the attacks, which the Israeli military said had targeted Hamas commanders. The opening of the border was seen as progress in the cease-fire.`\
+https://nytimes.com/2026/01/31/world/middleeast/israel-strikes-gaza-rafah-reopening.html
+
+**Lindsey Vonn withdraws from World Cup super-G, is 'doing my best' as Olympics near**\
+`Vonn provided a brief update Saturday on Instagram, thanking supporters as her Olympic status remains uncertain.`\
+https://nytimes.com/athletic/7011921/2026/01/31/lindsey-vonn-olympics-injury-crash-crans-montana/
+
 **Deadly Israeli Strikes in Gaza, as Rafah Border Is Set to Reopen**\
 `A local health official said at least 26 people had been killed in the attacks, which the Israeli military said had targeted Hamas commanders. The opening of the border was seen as progress in the cease-fire.`\
 https://nytimes.com/2026/01/31/world/middleeast/israel-strikes-gaza-rafah-reopening.html

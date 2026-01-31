@@ -1,4 +1,8 @@
-**Deadly Israeli Strikes in Gaza, as Rafah Border Is Set to Reopen**\
+**Canada’s Conservatives Give Their Trump-Inspired Leader a Second Chance**\
+`Pierre Poilievre, a populist who led the Conservative Party to defeat last year, was retained as its leader on Friday, despite his dismal poll numbers.`\
+https://nytimes.com/2026/01/31/world/americas/canada-pierre-poilievre-conservatives.html
+
+**Israel Launches Deadly Strikes in Gaza, as Rafah Border Is Set to Reopen**\
 `A local health official said at least 26 people had been killed in the attacks, which the Israeli military said had targeted Hamas commanders. The opening of the border was seen as progress in the cease-fire.`\
 https://nytimes.com/2026/01/31/world/middleeast/israel-strikes-gaza-rafah-reopening.html
 
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/7011829/2026/01/31/novak-djokovic-carlos-alcaraz-au
 https://nytimes.com/athletic/7011740/2026/01/31/hockeys-olympic-spotlight-nears-plus-vonns-status-in-question/
 
 **Lindsey Vonn withdraws from World Cup super-G, is 'doing my best' as Olympics near**\
-`Vonn provided a brief status update Saturday on Instagram, thanking supporters as her Olympic status remains uncertain.`\
+`Vonn provided a brief update Saturday on Instagram, thanking supporters as her Olympic status remains uncertain.`\
 https://nytimes.com/athletic/7011921/2026/01/31/lindsey-vonn-olympics-injury-crash-crans-montana/
 
 **'You can still do this': Connor Ingram's journey from 'dark days' and waivers to the Oilers net**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7010846/2026/01/31/bruins-fraser-minten-injuries/
 **Mack Brown: Why I think Drake Maye can become one of the best ever**\
 `Brown coached the Patriots quarterback for three seasons at North Carolina. One trait stood out above the rest.`\
 https://nytimes.com/athletic/7004004/2026/01/31/drake-maye-super-bowl-patriots-mack-brown/
-
-**Slovenian Sphinx Flick Nixed!**\
-`Melania’s movie, not exactly boffo box office.`\
-https://nytimes.com/2026/01/31/opinion/melania-trump-movie.html
 
