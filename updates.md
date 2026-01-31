@@ -1,3 +1,27 @@
+**Quote of the Day: For Bobsledding Mothers, Life Is a Blur**\
+`Quotation of the Day for Saturday, January 31, 2026.`\
+https://nytimes.com/2026/01/31/pageoneplus/quote-of-the-day-for-bobsledding-mothers-life-is-a-blur.html
+
+**Over Creamy Chicken, Europe’s Leaders Try to Reduce Dependence on Trump**\
+`Since President Trump made threats about Greenland, the continent’s leaders have debated the rapid deterioration of U.S. ties in policy papers and at dinner.`\
+https://nytimes.com/2026/01/31/world/europe/eu-trump-greenland-europe.html
+
+**U.S. Allies Are Drawing Closer to China, but on Beijing’s Terms**\
+`As Washington unsettles its partners, Beijing is reaping diplomatic gains, without backing down on human rights, trade or security.`\
+https://nytimes.com/2026/01/31/world/asia/trump-xi-starmer-carney.html
+
+**How to watch Sabalenka vs. Rybakina in 2026 Australian Open women’s final**\
+`Aryna Sabalenka and Elena Rybakina renew their rivalry, three years after their first Australian Open finals showdown. `\
+https://nytimes.com/athletic/7010970/2026/01/31/australian-open-womens-final-sabalenka-rybakina-watch-2026/
+
+**Connections: Sports Edition Coach: Hints for Jan. 31, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7011725/2026/01/31/connections-sports-edition-hints-for-jan-31-2026-puzzle-no-495/
+
+**Corrections: Jan. 31, 2026**\
+`Corrections that appeared in print on Saturday, Jan. 31, 2026.`\
+https://nytimes.com/2026/01/31/pageoneplus/corrections-jan-31-2026.html
+
 **Nikola Jokić scores 31 points in 25 minutes in return to Nuggets from knee injury**\
 `The three-time MVP once again looked like the best player in the NBA in his first game back since Dec. 29.`\
 https://nytimes.com/athletic/7011715/2026/01/30/nikola-jokic-denver-nuggets-return-nba/

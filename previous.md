@@ -1,3 +1,27 @@
+**Quote of the Day: For Bobsledding Mothers, Life Is a Blur**\
+`Quotation of the Day for Saturday, January 31, 2026.`\
+https://nytimes.com/2026/01/31/pageoneplus/quote-of-the-day-for-bobsledding-mothers-life-is-a-blur.html
+
+**Over Creamy Chicken, Europe’s Leaders Try to Reduce Dependence on Trump**\
+`Since President Trump made threats about Greenland, the continent’s leaders have debated the rapid deterioration of U.S. ties in policy papers and at dinner.`\
+https://nytimes.com/2026/01/31/world/europe/eu-trump-greenland-europe.html
+
+**U.S. Allies Are Drawing Closer to China, but on Beijing’s Terms**\
+`As Washington unsettles its partners, Beijing is reaping diplomatic gains, without backing down on human rights, trade or security.`\
+https://nytimes.com/2026/01/31/world/asia/trump-xi-starmer-carney.html
+
+**How to watch Sabalenka vs. Rybakina in 2026 Australian Open women’s final**\
+`Aryna Sabalenka and Elena Rybakina renew their rivalry, three years after their first Australian Open finals showdown. `\
+https://nytimes.com/athletic/7010970/2026/01/31/australian-open-womens-final-sabalenka-rybakina-watch-2026/
+
+**Connections: Sports Edition Coach: Hints for Jan. 31, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7011725/2026/01/31/connections-sports-edition-hints-for-jan-31-2026-puzzle-no-495/
+
+**Corrections: Jan. 31, 2026**\
+`Corrections that appeared in print on Saturday, Jan. 31, 2026.`\
+https://nytimes.com/2026/01/31/pageoneplus/corrections-jan-31-2026.html
+
 **Nikola Jokić scores 31 points in 25 minutes in return to Nuggets from knee injury**\
 `The three-time MVP once again looked like the best player in the NBA in his first game back since Dec. 29.`\
 https://nytimes.com/athletic/7011715/2026/01/30/nikola-jokic-denver-nuggets-return-nba/
@@ -13,28 +37,4 @@ https://nytimes.com/2026/01/30/us/politics/epstein-2007-draft-indictment.html
 **Harrison Bader plans to make an impact with Giants: 'I love running balls down'**\
 `Bader discussed why he loves playing center field in his first public comments since joining the Giants on a two-year deal.`\
 https://nytimes.com/athletic/7011599/2026/01/30/sf-giants-harrison-bader-center-field-defense/
-
-**Christian Coleman facing charges in connection with Sha’Carri Richardson**\
-`Coleman is charged with resisting an officer and having drug paraphernalia inside his car, as well as several traffic violations.`\
-https://nytimes.com/athletic/7011248/2026/01/30/christian-coleman-shacarri-richardson-arrest-jail-speeding/
-
-**Evil Spirits**\
-`Nick Maritz’s debut puzzle is full of thrills and spills.`\
-https://nytimes.com/2026/01/30/crosswords/daily-puzzle-2026-01-31.html
-
-**Luka Dončić posts 26-point triple-double in first half in Washington**\
-`Dončić opened the game Friday with 16 points, seven rebounds and seven assists in the first quarter.`\
-https://nytimes.com/athletic/7011496/2026/01/30/luka-doncic-triple-double-los-angeles-lakers-nba/
-
-**‘Melania’ Review: 20 Stage-Managed Days in the Life of the First Lady**\
-`Directed by Brett Ratner, the documentary shows a woman deeply concerned with her appearance who rarely lets us behind her facade.`\
-https://nytimes.com/2026/01/30/movies/melania-trump-movie-review.html
-
-**Police Report Backs Activist’s Account in Clash With ICE Agent Near Chicago**\
-`A new report from a police department outside of Chicago sheds light on a rare battery charge brought against an ICE agent after a fight with an activist.`\
-https://nytimes.com/2026/01/30/us/ice-agent-assault-charge.html
-
-**Google co-founder had long relationship with Maxwell and visited Epstein’s island.**\
-`By Debra Kamin`\
-https://nytimes.com/live/2026/01/30/us/epstein-files-release/epstein-maxwell-google-sergey-brin
 
