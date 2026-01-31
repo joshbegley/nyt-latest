@@ -1,3 +1,13 @@
+**What Is It Like to Be a Mom at the Olympics?**\
+`Two U.S. bobsled legends gear up to defend their medals with toddlers in the travel party.`\
+https://nytimes.com/video/the-athletic/100000010681023/what-is-it-like-to-be-a-mom-at-the-olympics.html
+
+**Bengals QB Joe Flacco added to AFC Pro Bowl roster as replacement**\
+`As it turns out, the Cleveland Browns had not one, but two Pro Bowl quarterbacks on their roster in August.
+
+`\
+https://nytimes.com/athletic/7011263/2026/01/30/begnals-qb-joe-flacco-pro-bowl-replacement/
+
 **Amari Bailey pursuing college basketball return despite NBA experience**\
 `College basketball faces another question about eligibility — this time from a player who played in NBA games. `\
 https://nytimes.com/athletic/7011172/2026/01/30/amari-bailey-college-basketball-return-eligibility-hornets-ucla/
