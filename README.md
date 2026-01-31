@@ -1,3 +1,15 @@
+**How to watch Hurricanes vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7012090/2026/01/31/hurricanes-vs-capitals-stream-how-to-watch-jan-31/
+
+**How to watch Rangers vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7012083/2026/01/31/rangers-vs-penguins-stream-how-to-watch-jan-31/
+
+**How to watch Sharks vs. Flames: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7012081/2026/01/31/sharks-vs-flames-stream-how-to-watch-jan-31/
+
 **How to watch Jets vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7012079/2026/01/31/jets-vs-panthers-stream-how-to-watch-jan-31/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7012065/2026/01/31/northern-illinois-vs-miami-oh-st
 **Elena Rybakina's complex path to a straightforward Australian Open title**\
 `Rybakina's serene run to a first major title in three-and-a-half years stands in contrast to her past 18 months off the court.`\
 https://nytimes.com/athletic/7011995/2026/01/31/tennis-elena-rybakina-australian-open/
-
-**WATCH: How Seahawks' offense reached new gear for Super Bowl LX run**\
-`It's not just Jaxon Smith-Njigba. From the run-pass marriage to personnel usage and play design, this Seahawks offense has been special.`\
-https://nytimes.com/athletic/7012010/2026/01/31/video-analysis-seahawks-super-bowl-jaxon-smith-njigba/
-
-**Solutions for the Crisis in Classical Music**\
-`Readers discuss ways to rescue the industry.`\
-https://nytimes.com/2026/01/31/opinion/classical-music.html
-
-**The Trad Life Fantasy Was Never Real**\
-`Stories from the past and present suggest that families have always needed a social safety net.`\
-https://nytimes.com/2026/01/31/opinion/trad-fantasy-fiction-family-economy.html
 
