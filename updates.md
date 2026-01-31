@@ -1,3 +1,7 @@
+**The Briefing: Leeds 0 Arsenal 4 - Madueke steps up, Darlow's difficult day and Arteta's side respond**\
+`Arsenal managed an impressive 4-0 win over Leeds United at Elland Road on Saturday afternoon`\
+https://nytimes.com/athletic/7006746/2026/01/31/leeds-arsenal-result-report-analysis/
+
 **Linus Ullmark to make first start since returning from personal leave**\
 `The Ottawa goalie hasn't played since Dec. 27, 2025, and stepped away from the team for mental health reasons.`\
 https://nytimes.com/athletic/6968626/2026/01/31/linus-ullmark-senators-return-personal-leave/
