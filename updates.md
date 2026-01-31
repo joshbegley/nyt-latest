@@ -1,3 +1,7 @@
+**Draymond Green calls out ref after tech: 'Don’t put your hand in my face'**\
+`Green also addressed rumors that the Warriors could trade him for Milwaukee Bucks star Giannis Antetokounmpo.`\
+https://nytimes.com/athletic/7011870/2026/01/31/draymond-green-technical-foul-trade-rumors/
+
 **How to watch Hurricanes vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Carolina Hurricanes play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7012090/2026/01/31/hurricanes-vs-capitals-stream-how-to-watch-jan-31/
