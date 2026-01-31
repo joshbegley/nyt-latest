@@ -1,3 +1,15 @@
+**WATCH: How Seahawks' offense reached new gear for Super Bowl LX run**\
+`It's not just Jaxon Smith-Njigba. From the run-pass marriage to personnel usage and play design, this Seahawks offense has been special.`\
+https://nytimes.com/athletic/7012010/2026/01/31/video-analysis-seahawks-super-bowl-jaxon-smith-njigba/
+
+**Solutions for the Crisis in Classical Music**\
+`Readers discuss ways to rescue the industry.`\
+https://nytimes.com/2026/01/31/opinion/classical-music.html
+
+**The Trad Life Fantasy Was Never Real**\
+`Stories from the past and present suggest that families have always needed a social safety net.`\
+https://nytimes.com/2026/01/31/opinion/trad-fantasy-fiction-family-economy.html
+
 **Aryna Sabalenka has the best problem a tennis player can have — and the worst**\
 `Sabalenka is a dominant world No. 1, but her record in Grand Slam finals is an increasingly heavy weight to bear.`\
 https://nytimes.com/athletic/7011997/2026/01/31/aryna-sabalenka-tennis-grand-slam-final-record/
