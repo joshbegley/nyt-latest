@@ -1,3 +1,11 @@
+**Sinking Flyers drained by lethargic start in OT loss to Kings**\
+`The 3-2 loss on Saturday was the plummeting Flyers’ 11th in their last 13 games.`\
+https://nytimes.com/athletic/7012680/2026/01/31/flyers-kings-overtime-loss-score/
+
+**Comical Mutation**\
+`Lance Enfinger and John Kugelman’s puzzle will transform you.`\
+https://nytimes.com/2026/01/31/crosswords/daily-puzzle-2026-02.html
+
 **Moyes calls yellow card for celebrating Everton's goal 'f***ing sad'**\
 `The 62-year-old ran onto the pitch after Beto equalised in the 97th minute against Brighton on Saturday.`\
 https://nytimes.com/athletic/7012744/2026/01/31/david-moyes-everton-goal-celebration/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7012643/2026/01/31/video-grey-zabel-super-bowl-brea
 **Texas Special Runoff Election Results**\
 `Get live results and maps from the Jan. 31, 2026 Texas special runoff elections.`\
 https://nytimes.com/interactive/2026/01/31/us/elections/results-texas-special-runoff.html
-
-**Facing Immigration Backlash, Trump Called Schumer to Cut a Deal**\
-`The president and the top Senate Democrat, who are often at each other’s throats, agreed to try to keep the government open and to start talks on new limits on federal immigration agents.`\
-https://nytimes.com/2026/01/31/us/politics/trump-schumer-deal.html
-
-**Rosenior hopes to be 'best decision' Chelsea has made**\
-`Saturday's win against West Ham was the first time Chelsea have come from two goals down to win a Premier League match.`\
-https://nytimes.com/athletic/7012612/2026/01/31/liam-rosenior-chelsea-best-decision-head-coach/
 
