@@ -4,6 +4,12 @@
 `\
 https://nytimes.com/athletic/7011263/2026/01/30/begnals-qb-joe-flacco-pro-bowl-replacement/
 
+**Bengals QB Joe Flacco added to AFC Pro Bowl roster as replacement**\
+`As it turns out, the Cleveland Browns had not one, but two Pro Bowl quarterbacks on their roster in August.
+
+`\
+https://nytimes.com/athletic/7011263/2026/01/30/begnals-qb-joe-flacco-pro-bowl-replacement/
+
 **Trump Names ‘Data Nerd’ to Lead Labor Statistics Agency**\
 `The decision to nominate Brett Matsumoto, a career government economist, came six months after the president fired the previous commissioner.`\
 https://nytimes.com/2026/01/30/business/trump-bureau-of-labor-statistics-brett-matsumoto.html

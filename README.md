@@ -1,3 +1,19 @@
+**Amari Bailey pursuing college basketball return despite NBA experience**\
+`College basketball faces another question about eligibility — this time from a player who played in NBA games. `\
+https://nytimes.com/athletic/7011172/2026/01/30/amari-bailey-college-basketball-return-eligibility-hornets-ucla/
+
+**After Bovino Leaves, Minnesotans Search for Signs of Change in Crackdown**\
+`Arrests were continuing, according to residents who have tracked the immigration crackdown in the Twin Cities, but some people observed fewer clashes.`\
+https://nytimes.com/2026/01/30/us/minneapolis-ice-crackdown-change.html
+
+**Epstein contacted women for Steve Tisch, co-owner of the Giants.**\
+`By Jenny Vrentas`\
+https://nytimes.com/live/2026/01/30/us/epstein-files-release/epstein-giants-steve-tisch
+
+**F.B.I. Presentation Outlines Allegations Against Powerful Men**\
+`A 21-page slide presentation summarized the agency’s investigations into Jeffrey Epstein.`\
+https://nytimes.com/2026/01/30/us/fbi-presentation-powerful-men.html
+
 **6 Missing as Search Continues for Boat Off the Coast of Massachusetts**\
 `Searchers recovered one body after the Lily Jean, a 72-foot fishing vessel, issued an emergency alert on Friday morning, the U.S. Coast Guard said.`\
 https://nytimes.com/2026/01/30/us/fishing-boat-missing-massachusetts.html
@@ -23,20 +39,4 @@ https://nytimes.com/athletic/7010955/2026/01/30/trump-indycar-race-national-mall
 **Seahawks expected to be put up for sale after Super Bowl 60 vs. Patriots: Sources**\
 `Jody Allen has been the Seahawks' controlling owner since 2018, when her brother, Paul Allen, died and left her as trustee of his estate.`\
 https://nytimes.com/athletic/7010295/2026/01/30/seahawks-sale-owner-super-bowl-paul-allen-estate/
-
-**N.H.L. Players Return to The Olympics**\
-`The 12-year wait is over: N.`\
-https://nytimes.com/video/the-athletic/100000010668715/nhl-players-olympics.html
-
-**The Delightful Mania of Catherine O’Hara**\
-`The Emmy-winning actress was especially adept at playing women who had been cast off but maintained an inflated sense of self, always with a great comedic payoff.`\
-https://nytimes.com/2026/01/30/movies/catherine-ohara-characters.html
-
-**Trump Officials Move to Double Number of H-2B Guest Visas This Year**\
-`It was a rare move by the Trump administration to expand a foreign worker program, amid a sweeping effort to drastically cut immigration.`\
-https://nytimes.com/2026/01/30/us/politics/h2b-visas.html
-
-**Trump Called for ‘De-Escalation’ in Minneapolis. It Didn’t Last Long.**\
-`President Trump has offered dueling messages on the crisis in Minneapolis, part of pattern of dialing back his rhetoric only to change again if the political winds are shifting.`\
-https://nytimes.com/2026/01/30/us/politics/trump-minneapolis-dueling-messages.html
 
