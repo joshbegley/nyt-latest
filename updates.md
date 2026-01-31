@@ -1,3 +1,7 @@
+**Forest close on signing of Man City's Ortega**\
+`The 33-year-old is expected to sign a short-term contract at the City Ground, if the deal —in the region of £500k — goes through.`\
+https://nytimes.com/athletic/6508790/2026/01/31/nottingham-forest-transfers-ortega-man-city/
+
 **How to watch Spurs vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7011951/2026/01/31/spurs-vs-hornets-stream-how-to-watch-jan-31/

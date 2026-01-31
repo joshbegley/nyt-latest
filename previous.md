@@ -1,3 +1,7 @@
+**Forest close on signing of Man City's Ortega**\
+`The 33-year-old is expected to sign a short-term contract at the City Ground, if the deal —in the region of £500k — goes through.`\
+https://nytimes.com/athletic/6508790/2026/01/31/nottingham-forest-transfers-ortega-man-city/
+
 **How to watch Spurs vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7011951/2026/01/31/spurs-vs-hornets-stream-how-to-watch-jan-31/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7011934/2026/01/31/north-carolina-vs-georgia-tech-s
 **How to watch Texas Tech vs. UCF men's basketball: Time, TV, streaming**\
 `Find out how to watch the Texas Tech Red Raiders play the UCF Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7011931/2026/01/31/texas-tech-vs-ucf-stream-how-to-watch-jan-31/
-
-**How to watch Virginia vs. Boston College men's basketball: Time, TV, streaming**\
-`Find out how to watch the Virginia Cavaliers play the Boston College Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7011928/2026/01/31/virginia-vs-boston-college-stream-how-to-watch-jan-31/
 
