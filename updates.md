@@ -1,3 +1,7 @@
+**U.N. Says It’s in Danger of Financial Collapse Because of Unpaid Dues**\
+`The world body warned it would run out of money by July and have to close its New York headquarters if countries, namely the United States, did not pay annual dues that amount to billions of dollars.`\
+https://nytimes.com/2026/01/30/world/americas/un-finances-collapse-debts.html
+
 **Where to Stream Catherine O’Hara’s Best Performances**\
 `Her characters were as varied as they were eccentric and lovable. These are some of the best.`\
 https://nytimes.com/2026/01/30/arts/television/catherine-ohara-movies-tv-shows-watch.html

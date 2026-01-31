@@ -1,3 +1,7 @@
+**U.N. Says It’s in Danger of Financial Collapse Because of Unpaid Dues**\
+`The world body warned it would run out of money by July and have to close its New York headquarters if countries, namely the United States, did not pay annual dues that amount to billions of dollars.`\
+https://nytimes.com/2026/01/30/world/americas/un-finances-collapse-debts.html
+
 **Where to Stream Catherine O’Hara’s Best Performances**\
 `Her characters were as varied as they were eccentric and lovable. These are some of the best.`\
 https://nytimes.com/2026/01/30/arts/television/catherine-ohara-movies-tv-shows-watch.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010680582/bad-bunny-grammys-album-of-th
 **Judge Weighs Trump’s Removal of Slavery Markers From George Washington’s House**\
 `The administration has ordered that further changes be made to Independence National Historical Park, according to internal National Park Service documents obtained by The New York Times`\
 https://nytimes.com/2026/01/30/us/politics/washington-slavery-philadelphia-lawsuit.html
-
-**Protesters Denounce Trump Immigration Tactics in ‘National Shutdown’**\
-`Demonstrators rallied across the country, leaving school and work and closing businesses in a show of solidarity with Minneapolis.`\
-https://nytimes.com/2026/01/30/us/minnesota-ice-protests-trump-immigration.html
 

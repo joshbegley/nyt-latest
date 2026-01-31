@@ -1,3 +1,19 @@
+**What Would It Take to Actually Freeze the Hudson River?**\
+`New York City is icy and cold right now, but you’re probably not going to be able to walk to New Jersey any time soon.`\
+https://nytimes.com/2026/01/30/weather/hudson-river-new-york-frozen.html
+
+**Here’s What to Know About the Millions of Pages of Epstein Documents**\
+`Deputy Attorney General Todd Blanche signaled that this would be the last major release of files related to Jeffrey Epstein.`\
+https://nytimes.com/2026/01/30/us/what-to-know-epstein-files.html
+
+**Epstein offered Prince Andrew meeting with a ‘clever’ Russian woman, emails show.**\
+`By Debra Kamin`\
+https://nytimes.com/live/2026/01/30/us/epstein-files-release/epstein-prince-andrew
+
+**Two Students From Same School as 5-Year-Old Taken by ICE Are Also in Custody**\
+`The school’s principal said he brought two children to federal custody at the request of their mother, who was detained. Last week, another student, Liam Conejo Ramos, was picked up by immigration agents.`\
+https://nytimes.com/2026/01/30/us/valley-view-elementary-minnesota-children-ice-detention.html
+
 **U.N. Says It’s in Danger of Financial Collapse Because of Unpaid Dues**\
 `The world body warned it would run out of money by July and have to close its New York headquarters if countries, namely the United States, did not pay annual dues that amount to billions of dollars.`\
 https://nytimes.com/2026/01/30/world/americas/un-finances-collapse-debts.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/30/science/blue-origin-new-shepard-rocket-bezos.html
 **Minneapolis Mayor: Without Videos, ‘We’d All Be Living in a Lie’**\
 `Lulu Garcia-Navarro, co-host of “The Interview,” spoke to Minneapolis’s mayor, Jacob Frey, about the the killings of Renee Good and Alex Pretti, protests over aggressive federal actions and why fighting ICE isn’t just his city’s fight.`\
 https://nytimes.com/video/podcasts/100000010680805/minneapolis-ice-protests-mayor-frey.html
-
-**Senate Passes Deal to Fund Government and Negotiate ICE Limits**\
-`Democrats agreed to fund the Department of Homeland Security for two weeks while they negotiate with President Trump on restricting his immigration crackdown.`\
-https://nytimes.com/2026/01/30/us/politics/senate-vote-shutdown-ice.html
-
-**Grand Jury Hears Evidence on Brooklyn Power Broker**\
-`Brooklyn federal prosecutors have been conducting a corruption investigation into Frank Carone, who served as Mayor Eric Adams’s chief of staff.`\
-https://nytimes.com/2026/01/30/nyregion/nyc-carone-corruption-investigation.html
-
-**Bad Bunny Deserves Album of the Year at the Grammys**\
-`What makes an Album of the Year? Popcast hosts Jon Caramanica and Joe Coscarelli are rooting for Bad Bunny’s “Debí Tirar Mas Fotos.”`\
-https://nytimes.com/video/podcasts/100000010680582/bad-bunny-grammys-album-of-the-year.html
-
-**Judge Weighs Trump’s Removal of Slavery Markers From George Washington’s House**\
-`The administration has ordered that further changes be made to Independence National Historical Park, according to internal National Park Service documents obtained by The New York Times`\
-https://nytimes.com/2026/01/30/us/politics/washington-slavery-philadelphia-lawsuit.html
 
