@@ -1,3 +1,11 @@
+**This fan visited every NFL stadium this season to highlight wheelchair accessibility**\
+`Ortiz went to as many as four games in one weekend and saw three games in a week four times during his season-long tour.`\
+https://nytimes.com/athletic/6999789/2026/01/31/nfl-fan-stadium-tour-wheelchair-accessibility/
+
+**Malcolm Butler on the path he took to the interception, and everything that followed**\
+`With the Patriots and Seahawks set for a Super Bowl XLIX rematch, catching up with the game's unexpected star.`\
+https://nytimes.com/athletic/7011579/2026/01/31/malcolm-butler-interception-career/
+
 **‘A Terrifying Line Is Being Crossed’: Mayor Jacob Frey on the Turmoil in Minneapolis**\
 `The Minnesota Democrat on the battle between his city and the federal government.`\
 https://nytimes.com/2026/01/31/magazine/jacob-frey-interview.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/31/us/politics/minnesota-protests-insurgency.html
 **A Minnesota School District Guards Against ICE, From Dawn to Dusk**\
 `In Fridley, a Minneapolis suburb, school officials are driving nervous teachers and buying families groceries. At dismissal, the superintendent patrols for federal agents.`\
 https://nytimes.com/2026/01/31/us/minneapolis-school-district-ice-agents.html
-
-**Gaza’s Sick And Wounded Await a Lifeline in Rafah**\
-`The Rafah crossing, a key passage between Gaza and Egypt that has served as a medical gateway for the sick and the wounded, is set to reopen for the first time since 2024. The New York Times visited a hospital in Gaza to meet some of the patients hoping to leave.`\
-https://nytimes.com/video/world/middleeast/100000010675992/gaza-sick-wounded-rafah-crossing.html
-
-**A Dance Fitness Star With Celebrity in Her Blood**\
-`Through her dance company and studio, Forward Space, where models and actresses come to sweat, Kristin Sudeikis has earned fame of her own.`\
-https://nytimes.com/2026/01/31/style/kristin-sudeikis-forward-space.html
 
