@@ -1,3 +1,7 @@
+**Read the document**\
+`A judicial order freeing a 5-year-old boy and his father, detained by federal immigration authorities.`\
+https://nytimes.com/interactive/2026/01/31/us/31nat-liam-court-order-doc.html
+
 **Sinking Flyers drained by lethargic start in OT loss to Kings**\
 `The 3-2 loss on Saturday was the plummeting Flyers’ 11th in their last 13 games.`\
 https://nytimes.com/athletic/7012680/2026/01/31/flyers-kings-overtime-loss-score/
@@ -22,6 +26,10 @@ https://nytimes.com/athletic/7006750/2026/01/31/liverpool-newcastle-ekitike-gord
 `After being jailed as a resistance organizer for the Tamil minority in his native Sri Lanka, he spoke out against governmental repression worldwide.`\
 https://nytimes.com/2026/01/31/world/asia/t-kumar-dead.html
 
+**Senior Bowl winners by position: Which 2026 NFL Draft picks impressed scouts this week?**\
+`LSU quarterback Garrett Nussmeier and Notre Dame receiver Malachi Fields were among this week's risers.`\
+https://nytimes.com/athletic/7010882/2026/01/31/nfl-draft-2026-senior-bowl-risers-prospects/
+
 **Israel Launches Deadly Strikes in Gaza as Rafah Border Is Set to Reopen**\
 `The Israeli military launched a series of airstrikes on the Gaza Strip on Saturday. At least 26 people were killed in the attacks, according to the Gaza health ministry. The strikes came as Israel was expected to reopen the Rafah border between Gaza and Egypt.`\
 https://nytimes.com/video/world/middleeast/100000010681747/israel-launches-strikes-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010681747/israel-launches-strik
 **Paul George's suspension changes everything for Sixers ahead of NBA trade deadline**\
 `Joel Embiid made a not-so-suble hint Thursday that he wanted help. Now Paul George's suspension makes Embiid's request impossible to ignore.`\
 https://nytimes.com/athletic/7012350/2026/01/31/paul-george-suspension-nba-trade-deadline-sixers/
-
-**WATCH: Why Grey Zabel has been essential to Seahawks' Super Bowl run**\
-`Zabel, the 18th pick in the 2025 NFL Draft, has started every game in his rookie season.`\
-https://nytimes.com/athletic/7012643/2026/01/31/video-grey-zabel-super-bowl-breakdown/
-
-**Texas Special Runoff Election Results**\
-`Get live results and maps from the Jan. 31, 2026 Texas special runoff elections.`\
-https://nytimes.com/interactive/2026/01/31/us/elections/results-texas-special-runoff.html
 
