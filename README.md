@@ -1,3 +1,7 @@
+**What's wrong with Red Wings after winless homestand? Five thoughts**\
+`The Red Wings' early-season success is being tested as the games get harder.`\
+https://nytimes.com/athletic/7012653/2026/01/31/red-wings-avalanche-todd-mclellan-dylan-larkin/
+
 **Liverpool's Konate cut short leave for Newcastle game, Slot says**\
 `The defender had been in France after the death of his father but played and scored his first league goal at Anfield on Saturday.`\
 https://nytimes.com/athletic/7012814/2026/01/31/ibrahima-konate-liverpool-compassionate-leave-newcastle-slot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012683/2026/01/31/sidney-crosby-penguins-2016-stan
 **Liverpool 4 Newcastle 1 - Ekitike's magic two minutes, Gordon a striker and Konate's emotional return**\
 `In a thrilling game, Liverpool came from behind at Anfield to defeat a spirited Newcastle and earn their first Premier League win of 2026`\
 https://nytimes.com/athletic/7006750/2026/01/31/liverpool-newcastle-ekitike-gordon-result-analysis/
-
-**T. Kumar, Rights Activist Who Was Shaped by His Time in Prison, Dies at 76**\
-`After being jailed as a resistance organizer for the Tamil minority in his native Sri Lanka, he spoke out against governmental repression worldwide.`\
-https://nytimes.com/2026/01/31/world/asia/t-kumar-dead.html
 
