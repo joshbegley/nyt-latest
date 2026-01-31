@@ -1,3 +1,23 @@
+**Christian McCaffrey, Jonathan Taylor headline 2026 Pro Bowl Games rosters**\
+`49ers legends Steve Young and Jerry Rice will coach the NFC and AFC flag football teams.`\
+https://nytimes.com/athletic/7012377/2026/01/31/2026-pro-bowl-games-rosters-afc-nfc-coaches/
+
+**Explosions in Iran Spread Jitters Amid Anticipation of Foreign Attacks**\
+`Deadly blasts, including one that may have been caused by a gas leak, raised anxiety in the country. “Society is waiting for war,” one Iranian said.`\
+https://nytimes.com/2026/01/31/world/middleeast/iran-explosions-jitters.html
+
+**How to watch Wild vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7012586/2026/01/31/wild-vs-oilers-stream-how-to-watch-jan-31/
+
+**How to watch Stars vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7012579/2026/01/31/stars-vs-mammoth-stream-how-to-watch-jan-31/
+
+**Judge Orders Release of 5-Year-Old Whose Detention Drew Outrage**\
+`The treatment of Liam Conejo Ramos, pictured wearing a blue winter hat and Spider-Man backpack while in the custody of immigration agents, drew outrage across the country.`\
+https://nytimes.com/2026/01/31/us/politics/judge-release-5-year-old-immigration-arrest.html
+
 **Judge Orders Release of 5-Year-Old, Whose Arrest Triggered Outrage**\
 `The detention of Liam Conejo Ramos, pictured wearing a blue winter hat and Spider-Man backpack while in the custody of immigration agents, drew outrage across the country.`\
 https://nytimes.com/2026/01/31/us/politics/judge-release-5-year-old-immigration-arrest.html
