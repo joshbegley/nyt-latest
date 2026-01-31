@@ -1,3 +1,7 @@
+**‘A Terrifying Line Is Being Crossed’: Mayor Jacob Frey on the Turmoil in Minneapolis**\
+`The Minnesota Democrat on the battle between his city and the federal government.`\
+https://nytimes.com/2026/01/31/magazine/jacob-frey-interview.html
+
 **Kevin Warsh Has a Tough Job Ahead. It’s Not the First Time.**\
 `Mr. Warsh is known as a consensus builder, skills he will need if he is to head the Federal Reserve when President Trump is demanding rock-bottom rates.`\
 https://nytimes.com/2026/01/31/business/kevin-warsh-fed-chair.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010675992/gaza-sick-wounded-raf
 **A Dance Fitness Star With Celebrity in Her Blood**\
 `Through her dance company and studio, Forward Space, where models and actresses come to sweat, Kristin Sudeikis has earned fame of her own.`\
 https://nytimes.com/2026/01/31/style/kristin-sudeikis-forward-space.html
-
-**Russia’s Oil Revenue, the Lifeblood of Its War Machine, Is Plummeting**\
-`The new reality has forced the Kremlin to raise taxes and increase debt, and hovers over peace talks with Ukraine.`\
-https://nytimes.com/2026/01/31/world/europe/russia-economy-oil.html
 

@@ -1,3 +1,7 @@
+**‘A Terrifying Line Is Being Crossed’: Mayor Jacob Frey on the Turmoil in Minneapolis**\
+`The Minnesota Democrat on the battle between his city and the federal government.`\
+https://nytimes.com/2026/01/31/magazine/jacob-frey-interview.html
+
 **Kevin Warsh Has a Tough Job Ahead. It’s Not the First Time.**\
 `Mr. Warsh is known as a consensus builder, skills he will need if he is to head the Federal Reserve when President Trump is demanding rock-bottom rates.`\
 https://nytimes.com/2026/01/31/business/kevin-warsh-fed-chair.html
