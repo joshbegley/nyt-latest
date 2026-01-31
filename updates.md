@@ -1,3 +1,7 @@
+**These Gazans May Finally Get a Lifeline to the World**\
+`Thousands of Palestinians are waiting to be evacuated for medical treatment as the border between Gaza and Egypt looks set to reopen in the coming days.`\
+https://nytimes.com/2026/01/31/world/middleeast/gaza-medical-evacuation-rafah-crossing.html
+
 **This fan visited every NFL stadium this season to highlight wheelchair accessibility**\
 `Ortiz went to as many as four games in one weekend and saw three games in a week four times during his season-long tour.`\
 https://nytimes.com/athletic/6999789/2026/01/31/nfl-fan-stadium-tour-wheelchair-accessibility/
