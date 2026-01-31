@@ -1,3 +1,7 @@
+**Nikola Jokić scores 31 points in 25 minutes in return to Nuggets from knee injury**\
+`The three-time MVP once again looked like the best player in the NBA in his first game back since Dec. 29.`\
+https://nytimes.com/athletic/7011715/2026/01/30/nikola-jokic-denver-nuggets-return-nba/
+
 **Michigan ends eight-year drought in East Lansing, tops No. 7 Michigan State in highest-ranked rivalry clash**\
 `Elliot Cadeau's clutch performance late in the second half lifts the Michigan over Michigan State after the Spartans near comeback.`\
 https://nytimes.com/athletic/7011409/2026/01/30/michigan-michigan-state-rivaly-ranked/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/30/us/ice-agent-assault-charge.html
 **Google co-founder had long relationship with Maxwell and visited Epstein’s island.**\
 `By Debra Kamin`\
 https://nytimes.com/live/2026/01/30/us/epstein-files-release/epstein-maxwell-google-sergey-brin
-
-**Trump Officials Bypass Congress to Push Billions in Weapons Aid to Israel**\
-`The move was the third time the Trump administration has tried to expedite arms shipments to Israel by going around the review process for weapons sales.`\
-https://nytimes.com/2026/01/30/us/politics/trump-congress-weapons-aid-israel.html
 
