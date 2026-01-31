@@ -1,3 +1,11 @@
+**Texas Special Runoff Election Results**\
+`Get live results and maps from the Jan. 31, 2026 Texas special runoff elections.`\
+https://nytimes.com/interactive/2026/01/31/us/elections/results-texas-special-runoff.html
+
+**Facing Immigration Backlash, Trump Called Schumer to Cut a Deal**\
+`The president and the top Senate Democrat, who are often at each other’s throats, agreed to try to keep the government open and to start talks on new limits on federal immigration agents.`\
+https://nytimes.com/2026/01/31/us/politics/trump-schumer-deal.html
+
 **Rosenior hopes to be 'best decision' Chelsea has made**\
 `Saturday's win against West Ham was the first time Chelsea have come from two goals down to win a Premier League match.`\
 https://nytimes.com/athletic/7012612/2026/01/31/liam-rosenior-chelsea-best-decision-head-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7012579/2026/01/31/stars-vs-mammoth-stream-how-to-w
 **Judge Orders Release of 5-Year-Old Whose Detention Drew Outrage**\
 `The treatment of Liam Conejo Ramos, pictured wearing a blue winter hat and Spider-Man backpack while in the custody of immigration agents, drew outrage across the country.`\
 https://nytimes.com/2026/01/31/us/politics/liam-ramos-ice-release.html
-
-**How to watch Mavericks vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7012561/2026/01/31/mavericks-vs-rockets-stream-how-to-watch-jan-31/
-
-**How to watch Kraken vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7012546/2026/01/31/kraken-vs-golden-knights-stream-how-to-watch-jan-31/
 
