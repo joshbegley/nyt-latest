@@ -1,3 +1,7 @@
+**Rosenior hopes to be 'best decision' Chelsea has made**\
+`Saturday's win against West Ham was the first time Chelsea have come from two goals down to win a Premier League match.`\
+https://nytimes.com/athletic/7012612/2026/01/31/liam-rosenior-chelsea-best-decision-head-coach/
+
 **Laura Maioglio, Whose Restaurant Was a Theater District Mainstay, Dies at 93**\
 `Since 1962, she had overseen her father’s stately Italian restaurant, Barbetta, and became one of the city’s most enduring female restaurateurs.`\
 https://nytimes.com/2026/01/31/dining/laura-maioglio-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012561/2026/01/31/mavericks-vs-rockets-stream-how-
 **How to watch Kraken vs. Golden Knights: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the Vegas Golden Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7012546/2026/01/31/kraken-vs-golden-knights-stream-how-to-watch-jan-31/
-
-**How to watch Saint Mary's (CA) vs. Gonzaga men's basketball: Time, TV, streaming**\
-`Find out how to watch the Saint Mary's Gaels play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7012539/2026/01/31/saint-mary-s-ca-vs-gonzaga-stream-how-to-watch-jan-31/
 
