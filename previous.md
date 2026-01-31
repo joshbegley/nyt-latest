@@ -1,3 +1,7 @@
+**Lindsey Vonn withdraws from World Cup super-G, is 'doing my best' as Olympics near**\
+`Vonn provided a brief status update Saturday on Instagram, thanking supporters as her Olympic status remains uncertain.`\
+https://nytimes.com/athletic/7011921/2026/01/31/lindsey-vonn-olympics-injury-crash-crans-montana/
+
 **Mack Brown: Why I think Drake Maye can become one of the best ever**\
 `Brown coached the Patriots quarterback for three seasons at North Carolina. One trait stood out above the rest.`\
 https://nytimes.com/athletic/7004004/2026/01/31/drake-maye-super-bowl-patriots-mack-brown/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/31/opinion/minneapolis-pretti-bovino.html
 **The Midterm Elections Need You. Here’s How to Help.**\
 `The sanctity of the 2026 vote is indeed under threat.`\
 https://nytimes.com/2026/01/31/opinion/trump-midterms-election-security.html
-
-**From 'Olé Olé' to 'Yeet the Fish': The most memorable local traditions in NHL arenas**\
-`If you attend a game in one of these arenas, you're likely to remember these fun gimmicks.`\
-https://nytimes.com/athletic/7008248/2026/01/31/nhl-arenas-chants-songs-gimmicks/
 
