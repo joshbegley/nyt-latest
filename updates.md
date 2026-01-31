@@ -1,3 +1,7 @@
+**Police Report Backs Activist’s Account in Clash With ICE Agent Near Chicago**\
+`A new report from a police department outside of Chicago sheds light on a rare battery charge brought against an ICE agent after a fight with an activist.`\
+https://nytimes.com/2026/01/30/us/ice-agent-assault-charge.html
+
 **Google co-founder had long relationship with Maxwell and visited Epstein’s island.**\
 `By Debra Kamin`\
 https://nytimes.com/live/2026/01/30/us/epstein-files-release/epstein-maxwell-google-sergey-brin

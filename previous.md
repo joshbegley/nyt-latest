@@ -1,3 +1,7 @@
+**Police Report Backs Activist’s Account in Clash With ICE Agent Near Chicago**\
+`A new report from a police department outside of Chicago sheds light on a rare battery charge brought against an ICE agent after a fight with an activist.`\
+https://nytimes.com/2026/01/30/us/ice-agent-assault-charge.html
+
 **Google co-founder had long relationship with Maxwell and visited Epstein’s island.**\
 `By Debra Kamin`\
 https://nytimes.com/live/2026/01/30/us/epstein-files-release/epstein-maxwell-google-sergey-brin
@@ -33,8 +37,4 @@ https://nytimes.com/video/the-athletic/100000010681023/what-is-it-like-to-be-a-m
 **Amari Bailey pursuing college basketball return despite NBA experience**\
 `College basketball faces another question about eligibility — this time from a player who played in NBA games. `\
 https://nytimes.com/athletic/7011172/2026/01/30/amari-bailey-college-basketball-return-eligibility-hornets-ucla/
-
-**After Bovino Leaves, Minnesotans Search for Signs of Change in Crackdown**\
-`Arrests were continuing, according to residents who have tracked the immigration crackdown in the Twin Cities, but some people observed fewer clashes.`\
-https://nytimes.com/2026/01/30/us/minneapolis-ice-crackdown-change.html
 
