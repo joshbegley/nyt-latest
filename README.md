@@ -1,3 +1,7 @@
+**The Latest Way to Create an Isolated Retreat: Buy a Whole Village**\
+`Wealthy buyers and tourism entrepreneurs are acquiring abandoned European villages — school, church and bar included.`\
+https://nytimes.com/2026/01/31/business/dealbook/buy-the-whole-village.html
+
 **Novak Djokovic and Carlos Alcaraz's Australian Open final and the weight of tennis history**\
 `Carlos Alcaraz and Novak Djokovic are pursuing sporting greatness of different kinds in Melbourne.`\
 https://nytimes.com/athletic/7011829/2026/01/31/novak-djokovic-carlos-alcaraz-australian-open-final-tennis-records/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/31/opinion/melania-trump-movie.html
 **Pay More Attention to A.I.**\
 `A new world, hard to grasp and even harder to predict.`\
 https://nytimes.com/2026/01/31/opinion/artificial-intelligence-new-world.html
-
-**‘Relieved,’ ‘Enthusiastic,’ ‘Nervous’: Three Economists React to Trump’s Fed Pick**\
-`Questions remain about the Fed’s independence, the future path of interest rates and whether Kevin Warsh can reform the institution as he has proposed.`\
-https://nytimes.com/2026/01/31/opinion/kevin-warsh-jerome-powell-trump-fed-chair.html
 
