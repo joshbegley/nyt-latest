@@ -1,3 +1,7 @@
+**Michigan ends eight-year drought in East Lansing, tops No. 7 Michigan State in highest-ranked rivalry clash**\
+`Elliot Cadeau's clutch performance late in the second half lifts the Wolverines over Michigan State after the Spartans second-half comeback.`\
+https://nytimes.com/athletic/7011409/2026/01/30/michigan-michigan-state-rivaly-ranked/
+
 **Draft Epstein Indictment Accused Him of Crimes Against More Than a Dozen Girls**\
 `Jeffrey Epstein, who ended up pleading to a much lesser state charge, told one victim that bad things could happen to her if she talked, the 2007 document said.`\
 https://nytimes.com/2026/01/30/us/politics/epstein-2007-draft-indictment.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/30/us/epstein-files-release/epstein-maxwell-goo
 **Trump Officials Bypass Congress to Push Billions in Weapons Aid to Israel**\
 `The move was the third time the Trump administration has tried to expedite arms shipments to Israel by going around the review process for weapons sales.`\
 https://nytimes.com/2026/01/30/us/politics/trump-congress-weapons-aid-israel.html
-
-**Unrivaled breaks attendance record for women's professional basketball**\
-`In one night, Unrivaled broke a women's basketball attendance record and turned almost the same revenue from 2025.`\
-https://nytimes.com/athletic/7011457/2026/01/30/unrivaled-womens-basketball-attendance-record/
 

@@ -1,3 +1,7 @@
+**Michigan ends eight-year drought in East Lansing, tops No. 7 Michigan State in highest-ranked rivalry clash**\
+`Elliot Cadeau's clutch performance late in the second half lifts the Wolverines over Michigan State after the Spartans second-half comeback.`\
+https://nytimes.com/athletic/7011409/2026/01/30/michigan-michigan-state-rivaly-ranked/
+
 **Draft Epstein Indictment Accused Him of Crimes Against More Than a Dozen Girls**\
 `Jeffrey Epstein, who ended up pleading to a much lesser state charge, told one victim that bad things could happen to her if she talked, the 2007 document said.`\
 https://nytimes.com/2026/01/30/us/politics/epstein-2007-draft-indictment.html
