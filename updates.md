@@ -1,3 +1,7 @@
+**Charlie Coyle stays hot with second career hat trick in Blue Jackets win**\
+`Coyle, coming off his 1,000th NHL game on Saturday, has been stacking good nights for a while now.`\
+https://nytimes.com/athletic/7011701/2026/01/31/charlie-coyle-second-hat-trick-blue-jackets-win/
+
 **An evening with West Ham legends: Paqueta switch, VAR is a 'sack of s***' and survival hopes**\
 `The Athletic attended a stage show starring a panel of the club's former stars as they discussed a series of topics`\
 https://nytimes.com/athletic/7003789/2026/01/31/west-ham-legends-lucas-paqueta-var-relegation/
