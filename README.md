@@ -1,3 +1,7 @@
+**How to watch Saint Mary's (CA) vs. Gonzaga men's basketball: Time, TV, streaming**\
+`Find out how to watch the Saint Mary's Gaels play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7012539/2026/01/31/saint-mary-s-ca-vs-gonzaga-stream-how-to-watch-jan-31/
+
 **‘Melania’ Arrives With Strong Box Office Showing for a Documentary**\
 `Amazon backed up the Brink’s trucks to promote the vanity film, resulting in opening-weekend ticket sales of roughly $8 million, or 60 percent more than expected.`\
 https://nytimes.com/2026/01/31/business/melania-documentary-box-office.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012366/2026/01/31/santa-clarita-lady-flyers-colora
 **Pentagon Defends Restrictions on Media Outlets**\
 `The purpose of the new rules is to “stop activity that could compromise national security,” the Defense Department said in response to a New York Times lawsuit.`\
 https://nytimes.com/2026/01/31/business/media/pentagon-new-york-times-lawsuit.html
-
-**Powerful Men Who Turn Up in the New Batch of Epstein Files**\
-`Elon Musk, Richard Branson and Sergey Brin were among those who exchanged messages or visited with Jeffrey Epstein, according to the newly released documents.`\
-https://nytimes.com/2026/01/31/us/epstein-trump-gates-musk-tisch-andrew.html
 
