@@ -1,3 +1,7 @@
+**Deadly Israeli Strikes in Gaza, as Rafah Border Is Set to Reopen**\
+`A local health official said at least 26 people had been killed in the attacks, which the Israeli military said had targeted Hamas commanders. The opening of the border was seen as progress in the cease-fire.`\
+https://nytimes.com/2026/01/31/world/middleeast/israel-strikes-gaza-rafah-reopening.html
+
 **The Latest Way to Create an Isolated Retreat: Buy a Whole Village**\
 `Wealthy buyers and tourism entrepreneurs are acquiring abandoned European villages — school, church and bar included.`\
 https://nytimes.com/2026/01/31/business/dealbook/buy-the-whole-village.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7010846/2026/01/31/bruins-fraser-minten-injuries/
 **Slovenian Sphinx Flick Nixed!**\
 `Melania’s movie, not exactly boffo box office.`\
 https://nytimes.com/2026/01/31/opinion/melania-trump-movie.html
-
-**Pay More Attention to A.I.**\
-`A new world, hard to grasp and even harder to predict.`\
-https://nytimes.com/2026/01/31/opinion/artificial-intelligence-new-world.html
 
