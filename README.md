@@ -1,3 +1,7 @@
+**Laura Maioglio, Whose Restaurant Was a Theater District Mainstay, Dies at 93**\
+`Since 1962, she had overseen her father’s stately Italian restaurant, Barbetta, and became one of the city’s most enduring female restaurateurs.`\
+https://nytimes.com/2026/01/31/dining/laura-maioglio-dead.html
+
 **Large Lizard Is Rescued After It’s Found Buried in Rhode Island Snow**\
 `The reptile, a tegu, had frostbite and showed signs of weakness from exposure in this week’s cold weather. It was unclear where it came from.`\
 https://nytimes.com/2026/01/31/us/lizard-rhode-island-snow-storm.html
@@ -20,7 +24,7 @@ https://nytimes.com/athletic/7012579/2026/01/31/stars-vs-mammoth-stream-how-to-w
 
 **Judge Orders Release of 5-Year-Old Whose Detention Drew Outrage**\
 `The treatment of Liam Conejo Ramos, pictured wearing a blue winter hat and Spider-Man backpack while in the custody of immigration agents, drew outrage across the country.`\
-https://nytimes.com/2026/01/31/us/politics/judge-release-5-year-old-immigration-arrest.html
+https://nytimes.com/2026/01/31/us/politics/liam-ramos-ice-release.html
 
 **How to watch Mavericks vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Houston Rockets, with time, TV channel and streaming information.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012546/2026/01/31/kraken-vs-golden-knights-stream-
 **How to watch Saint Mary's (CA) vs. Gonzaga men's basketball: Time, TV, streaming**\
 `Find out how to watch the Saint Mary's Gaels play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7012539/2026/01/31/saint-mary-s-ca-vs-gonzaga-stream-how-to-watch-jan-31/
-
-**‘Melania’ Arrives With Strong Box Office Showing for a Documentary**\
-`Amazon backed up the Brink’s trucks to promote the vanity film, resulting in opening-weekend ticket sales of roughly $8 million, or 60 percent more than expected.`\
-https://nytimes.com/2026/01/31/business/melania-documentary-box-office.html
 

@@ -1,3 +1,7 @@
+**Large Lizard Is Rescued After It’s Found Buried in Rhode Island Snow**\
+`The reptile, a tegu, had frostbite and showed signs of weakness from exposure in this week’s cold weather. It was unclear where it came from.`\
+https://nytimes.com/2026/01/31/us/lizard-rhode-island-snow-storm.html
+
 **Christian McCaffrey, Jonathan Taylor headline 2026 Pro Bowl Games rosters**\
 `49ers legends Steve Young and Jerry Rice will coach the NFC and AFC flag football teams.`\
 https://nytimes.com/athletic/7012377/2026/01/31/2026-pro-bowl-games-rosters-afc-nfc-coaches/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012539/2026/01/31/saint-mary-s-ca-vs-gonzaga-strea
 **‘Melania’ Arrives With Strong Box Office Showing for a Documentary**\
 `Amazon backed up the Brink’s trucks to promote the vanity film, resulting in opening-weekend ticket sales of roughly $8 million, or 60 percent more than expected.`\
 https://nytimes.com/2026/01/31/business/melania-documentary-box-office.html
-
-**How Paul George's suspension actually saves 76ers some money**\
-`While the 76ers will be worse on the court due to Paul George's 25-game suspension, they actually got a sizable financial bailout due to a CBA quirk.`\
-https://nytimes.com/athletic/7012522/2026/01/31/paul-george-suspension-76ers-luxury-tax-cba/
 

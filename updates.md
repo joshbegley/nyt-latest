@@ -1,3 +1,7 @@
+**Large Lizard Is Rescued After It’s Found Buried in Rhode Island Snow**\
+`The reptile, a tegu, had frostbite and showed signs of weakness from exposure in this week’s cold weather. It was unclear where it came from.`\
+https://nytimes.com/2026/01/31/us/lizard-rhode-island-snow-storm.html
+
 **Christian McCaffrey, Jonathan Taylor headline 2026 Pro Bowl Games rosters**\
 `49ers legends Steve Young and Jerry Rice will coach the NFC and AFC flag football teams.`\
 https://nytimes.com/athletic/7012377/2026/01/31/2026-pro-bowl-games-rosters-afc-nfc-coaches/
