@@ -1,3 +1,15 @@
+**Liverpool 4 Newcastle 1 - Ekitike's magic two minutes, Gordon a striker and Konate's emotional return**\
+`In a thrilling game, Liverpool came from behind at Anfield to defeat a spirited Newcastle and earn their first Premier League win of 2026`\
+https://nytimes.com/athletic/7006750/2026/01/31/liverpool-newcastle-ekitike-gordon-result-analysis/
+
+**T. Kumar, Rights Activist Who Was Shaped by His Time in Prison, Dies at 76**\
+`After being jailed as a resistance organizer for the Tamil minority in his native Sri Lanka, he spoke out against governmental repression worldwide.`\
+https://nytimes.com/2026/01/31/world/asia/t-kumar-dead.html
+
+**Israel Launches Deadly Strikes in Gaza as Rafah Border Is Set to Reopen**\
+`The Israeli military launched a series of airstrikes on the Gaza Strip on Saturday. At least 26 people were killed in the attacks, according to the Gaza health ministry. The strikes came as Israel was expected to reopen the Rafah border between Gaza and Egypt.`\
+https://nytimes.com/video/world/middleeast/100000010681747/israel-launches-strikes-gaza.html
+
 **Paul George's suspension changes everything for Sixers ahead of NBA trade deadline**\
 `Joel Embiid made a not-so-suble hint Thursday that he wanted help. Now Paul George's suspension makes Embiid's request impossible to ignore.`\
 https://nytimes.com/athletic/7012350/2026/01/31/paul-george-suspension-nba-trade-deadline-sixers/
