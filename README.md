@@ -1,3 +1,7 @@
+**What Is It Like to Be a Mom at the Olympics?**\
+`Two U.S. bobsled legends gear up to defend their medals with toddlers in the travel party.`\
+https://nytimes.com/video/the-athletic/100000010681023/what-is-it-like-to-be-a-mom-at-the-olympics.html
+
 **Amari Bailey pursuing college basketball return despite NBA experience**\
 `College basketball faces another question about eligibility — this time from a player who played in NBA games. `\
 https://nytimes.com/athletic/7011172/2026/01/30/amari-bailey-college-basketball-return-eligibility-hornets-ucla/
@@ -35,8 +39,4 @@ https://nytimes.com/video/podcasts/100000010670974/can-you-teach-an-ai-model-to-
 **Trump, IndyCar plan Freedom 250 race around National Mall, but it's going to be tough lift**\
 `The president wants a race in D.C. to help America celebrate its 250th birthday, but the challenges to bring it about are massive.`\
 https://nytimes.com/athletic/7010955/2026/01/30/trump-indycar-race-national-mall-america-250-dc/
-
-**Seahawks expected to be put up for sale after Super Bowl 60 vs. Patriots: Sources**\
-`Jody Allen has been the Seahawks' controlling owner since 2018, when her brother, Paul Allen, died and left her as trustee of his estate.`\
-https://nytimes.com/athletic/7010295/2026/01/30/seahawks-sale-owner-super-bowl-paul-allen-estate/
 
