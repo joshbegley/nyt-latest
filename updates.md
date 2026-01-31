@@ -1,3 +1,7 @@
+**Pentagon Defends Restrictions on Media Outlets**\
+`The purpose of the new rules is to “stop activity that could compromise national security,” the Defense Department said in response to a New York Times lawsuit.`\
+https://nytimes.com/2026/01/31/business/media/pentagon-new-york-times-lawsuit.html
+
 **Powerful Men Who Turn Up in the New Batch of Epstein Files**\
 `Elon Musk, Richard Branson and Sergey Brin were among those who exchanged messages or visited with Jeffrey Epstein, according to the newly released documents.`\
 https://nytimes.com/2026/01/31/us/epstein-trump-gates-musk-tisch-andrew.html
