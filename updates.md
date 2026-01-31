@@ -1,3 +1,43 @@
+**Kevin Warsh Has a Tough Job Ahead. It’s Not the First Time.**\
+`Mr. Warsh is known as a consensus builder, skills he will need if he is to head the Federal Reserve when President Trump is demanding rock-bottom rates.`\
+https://nytimes.com/2026/01/31/business/kevin-warsh-fed-chair.html
+
+**What to Know About Anti-ICE Protests This Weekend**\
+`Organizers are trying to build on the momentum created after the killings of two protesters in Minneapolis this month.`\
+https://nytimes.com/2026/01/31/us/what-to-know-about-anti-ice-protests-this-weekend.html
+
+**A Hawkish Kevin Warsh at the Fed Could Haunt Bessent**\
+`The Treasury Secretary Scott Bessent tried to avoid providing President Trump with a clear recommendation to lead the central bank.`\
+https://nytimes.com/2026/01/31/business/scott-bessent-kevin-warsh-trump.html
+
+**Sell America Is the New Trade on Wall Street**\
+`Investors are increasingly souring on the United States, as illustrated by the declining dollar, the stalled stock market and rising government borrowing costs.`\
+https://nytimes.com/2026/01/31/business/sell-america-dollar-financial-markets.html
+
+**A Predictor of a Good Social Life? Your Parents.**\
+`A decades-long study suggested that close relationships with family members during teenage years could lead to a rich network of friendships in adulthood.`\
+https://nytimes.com/2026/01/31/health/parents-teens-social-life.html
+
+**Politicians Are Calling the Protests in Minnesota an Insurgency**\
+`The term, used to describe war, poses dangers when applied to American political unrest.`\
+https://nytimes.com/2026/01/31/us/politics/minnesota-protests-insurgency.html
+
+**A Minnesota School District Guards Against ICE, From Dawn to Dusk**\
+`In Fridley, a Minneapolis suburb, school officials are driving nervous teachers and buying families groceries. At dismissal, the superintendent patrols for federal agents.`\
+https://nytimes.com/2026/01/31/us/minneapolis-school-district-ice-agents.html
+
+**Gaza’s Sick And Wounded Await a Lifeline in Rafah**\
+`The Rafah crossing, a key passage between Gaza and Egypt that has served as a medical gateway for the sick and the wounded, is set to reopen for the first time since 2024. The New York Times visited a hospital in Gaza to meet some of the patients hoping to leave.`\
+https://nytimes.com/video/world/middleeast/100000010675992/gaza-sick-wounded-rafah-crossing.html
+
+**A Dance Fitness Star With Celebrity in Her Blood**\
+`Through her dance company and studio, Forward Space, where models and actresses come to sweat, Kristin Sudeikis has earned fame of her own.`\
+https://nytimes.com/2026/01/31/style/kristin-sudeikis-forward-space.html
+
+**Russia’s Oil Revenue, the Lifeblood of Its War Machine, Is Plummeting**\
+`The new reality has forced the Kremlin to raise taxes and increase debt, and hovers over peace talks with Ukraine.`\
+https://nytimes.com/2026/01/31/world/europe/russia-economy-oil.html
+
 **Three key Premier League stats: Man Utd's counter attacking and Arsenal's vulnerability**\
 `Investigating the numbers and statistics that go some way to predicting how three big Premier League fixtures could play out`\
 https://nytimes.com/athletic/7009364/2026/01/31/premier-league-stats-arsenal-mancheter-united/

@@ -1,40 +1,40 @@
-**Three key Premier League stats: Man Utd's counter attacking and Arsenal's vulnerability**\
-`Investigating the numbers and statistics that go some way to predicting how three big Premier League fixtures could play out`\
-https://nytimes.com/athletic/7009364/2026/01/31/premier-league-stats-arsenal-mancheter-united/
+**Kevin Warsh Has a Tough Job Ahead. It’s Not the First Time.**\
+`Mr. Warsh is known as a consensus builder, skills he will need if he is to head the Federal Reserve when President Trump is demanding rock-bottom rates.`\
+https://nytimes.com/2026/01/31/business/kevin-warsh-fed-chair.html
 
-**Epstein arranged two meetings with Boehly after disgraced financier's first jail term**\
-`Emails released by the Department of Justice on Friday revealed plans for meetings`\
-https://nytimes.com/athletic/7011575/2026/01/31/todd-boehly-epstein-chelsea-lakers-dodgers/
+**What to Know About Anti-ICE Protests This Weekend**\
+`Organizers are trying to build on the momentum created after the killings of two protesters in Minneapolis this month.`\
+https://nytimes.com/2026/01/31/us/what-to-know-about-anti-ice-protests-this-weekend.html
 
-**Sherrill Urges New Jersey Residents to Record ICE Action on Their Phones**\
-`Governor Mikie Sherrill said the state would begin collecting images of federal immigration agents interacting with the public.`\
-https://nytimes.com/2026/01/31/nyregion/ice-new-jersey-images-database-sherrill.html
+**A Hawkish Kevin Warsh at the Fed Could Haunt Bessent**\
+`The Treasury Secretary Scott Bessent tried to avoid providing President Trump with a clear recommendation to lead the central bank.`\
+https://nytimes.com/2026/01/31/business/scott-bessent-kevin-warsh-trump.html
 
-**What to Know About the Alexander Brothers Sex Trafficking Trial**\
-`The men used their wealth and fame to lure women and then assault them, prosecutors say. The brothers have denied all allegations.`\
-https://nytimes.com/article/alexander-brothers-what-we-know-trial.html
+**Sell America Is the New Trade on Wall Street**\
+`Investors are increasingly souring on the United States, as illustrated by the declining dollar, the stalled stock market and rising government borrowing costs.`\
+https://nytimes.com/2026/01/31/business/sell-america-dollar-financial-markets.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/31/crosswords/spelling-bee-forum.html
+**A Predictor of a Good Social Life? Your Parents.**\
+`A decades-long study suggested that close relationships with family members during teenage years could lead to a rich network of friendships in adulthood.`\
+https://nytimes.com/2026/01/31/health/parents-teens-social-life.html
 
-**How a House Cleaner Lives on $24,000 a Year in Rockaway, Queens**\
-`Tyson Watts, who shares an apartment with his mother, hopes one day to make his Caribbean cooking his main source of income.`\
-https://nytimes.com/interactive/2026/01/31/nyregion/nyc-budgeting-affordability-24k.html
+**Politicians Are Calling the Protests in Minnesota an Insurgency**\
+`The term, used to describe war, poses dangers when applied to American political unrest.`\
+https://nytimes.com/2026/01/31/us/politics/minnesota-protests-insurgency.html
 
-**At a Grammys Light on Drama, All Eyes Will Be on Bad Bunny**\
-`Kendrick Lamar has the most nominations on Sunday, followed by Lady Gaga. But one week before his Super Bowl halftime show, the Puerto Rican superstar could make history.`\
-https://nytimes.com/2026/01/31/arts/music/grammys-bad-bunny-kendrick-lamar-lady-gaga.html
+**A Minnesota School District Guards Against ICE, From Dawn to Dusk**\
+`In Fridley, a Minneapolis suburb, school officials are driving nervous teachers and buying families groceries. At dismissal, the superintendent patrols for federal agents.`\
+https://nytimes.com/2026/01/31/us/minneapolis-school-district-ice-agents.html
 
-**R&B May Have a Major Grammys Night. Leon Thomas Is Ready.**\
-`The 32-year-old performer has spent years coming up as a singer and songwriter. On Sunday, he’ll compete for two top awards, album of the year and best new artist.`\
-https://nytimes.com/2026/01/31/arts/music/leon-thomas-mutt-grammys.html
+**Gaza’s Sick And Wounded Await a Lifeline in Rafah**\
+`The Rafah crossing, a key passage between Gaza and Egypt that has served as a medical gateway for the sick and the wounded, is set to reopen for the first time since 2024. The New York Times visited a hospital in Gaza to meet some of the patients hoping to leave.`\
+https://nytimes.com/video/world/middleeast/100000010675992/gaza-sick-wounded-rafah-crossing.html
 
-**The New York Times in Print for Saturday, Jan. 31, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/01/31/todays-new-york-times
+**A Dance Fitness Star With Celebrity in Her Blood**\
+`Through her dance company and studio, Forward Space, where models and actresses come to sweat, Kristin Sudeikis has earned fame of her own.`\
+https://nytimes.com/2026/01/31/style/kristin-sudeikis-forward-space.html
 
-**Stephen Curry leaves Warriors loss to Detroit with knee soreness**\
-`The 12-time All-Star left the Warriors' game against Detroit in the third quarter and did not return.`\
-https://nytimes.com/athletic/7011802/2026/01/31/steph-curry-golden-state-warriors-knee-injury-nba/
+**Russia’s Oil Revenue, the Lifeblood of Its War Machine, Is Plummeting**\
+`The new reality has forced the Kremlin to raise taxes and increase debt, and hovers over peace talks with Ukraine.`\
+https://nytimes.com/2026/01/31/world/europe/russia-economy-oil.html
 
