@@ -1,3 +1,7 @@
+**The Latest Way to Create an Isolated Retreat: Buy a Whole Village**\
+`Wealthy buyers and tourism entrepreneurs are acquiring abandoned European villages — school, church and bar included.`\
+https://nytimes.com/2026/01/31/business/dealbook/buy-the-whole-village.html
+
 **Novak Djokovic and Carlos Alcaraz's Australian Open final and the weight of tennis history**\
 `Carlos Alcaraz and Novak Djokovic are pursuing sporting greatness of different kinds in Melbourne.`\
 https://nytimes.com/athletic/7011829/2026/01/31/novak-djokovic-carlos-alcaraz-australian-open-final-tennis-records/
