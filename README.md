@@ -1,3 +1,11 @@
+**Christian Coleman facing charges in connection with Sha’Carri Richardson**\
+`Coleman is charged with resisting an officer and having drug paraphernalia inside his car, as well as several traffic violations.`\
+https://nytimes.com/athletic/7011248/2026/01/30/christian-coleman-shacarri-richardson-arrest-jail-speeding/
+
+**Evil Spirits**\
+`Nick Maritz’s debut puzzle is full of thrills and spills.`\
+https://nytimes.com/2026/01/30/crosswords/daily-puzzle-2026-01-31.html
+
 **Luka Dončić posts 26-point triple-double in first half in Washington**\
 `Dončić opened the game Friday with 16 points, seven rebounds and seven assists in the first quarter.`\
 https://nytimes.com/athletic/7011496/2026/01/30/luka-doncic-triple-double-los-angeles-lakers-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/30/us/politics/epstein-files-release.html
 **Patriots defensive coordinator Terrell Williams declared cancer-free after 4-month battle**\
 `The longtime NFL assistant received great news about his prostate cancer treatment ahead of Super Bowl 60.`\
 https://nytimes.com/athletic/7011430/2026/01/30/patriots-terrell-williams-cancer-free/
-
-**Gleeman: Twins' 'mutual' breakup with Derek Falvey is latest Pohlad-created mess**\
-`After nine years atop the front office, Falvey seemingly reached a breaking point with shrinking resources and a new Pohlad in charge.`\
-https://nytimes.com/athletic/7010981/2026/01/30/twins-derek-falvey-mutual-breakup-pohlad-ownership/
-
-**She Called Mamdani a ‘Terrorist Lover.’ Did She Deserve to Be Promoted?**\
-`Inna Vernikov, a Republican city councilwoman, was named to help lead a task force to fight antisemitism. She later apologized for her remark about Mayor Zohran Mamdani.`\
-https://nytimes.com/2026/01/30/nyregion/inna-vernikov-nyc-council.html
 
