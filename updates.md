@@ -1,3 +1,15 @@
+**Who is your Premier League club's ideal signing ahead of the transfer deadline?**\
+`The transfer deadline is approaching - and The Athletic asked its reporters for ideal signings for the clubs they cover`\
+https://nytimes.com/athletic/7004156/2026/01/31/transfer-signing-premier-league-dream-ideal-club/
+
+**'I wanted the challenge': Matthias Jaissle, the Rangnick disciple coaching in Saudi Arabia**\
+`The 37-year-old German coach talks to The Athletic about what his controversial move to Al Ahli of the Saudi Pro League has taught him`\
+https://nytimes.com/athletic/7003704/2026/01/31/matthias-jaissle-saudi-arabia-al-ahli-interview/
+
+**Jose Mourinho has had a rocky return at Benfica – but then came that special moment**\
+`The dramatic finale against Real Madrid has helped change the tone of an otherwise disappointing first season back in Portugal for Mourinho`\
+https://nytimes.com/athletic/7007208/2026/01/31/jose-mourinho-has-had-a-rocky-return-at-benfica-but-then-came-that-special-moment/
+
 **Does the 'Man Utd Way' really exist?**\
 `In United's case, winning - rather than style or philosophy - is the most integral element of the club's DNA`\
 https://nytimes.com/athletic/6978746/2026/01/31/manchester-united-way-myth/
