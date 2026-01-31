@@ -1,3 +1,15 @@
+**Who is your Premier League club's ideal signing ahead of the transfer deadline?**\
+`The transfer deadline is approaching - and The Athletic asked its reporters for ideal signings for the clubs they cover`\
+https://nytimes.com/athletic/7004156/2026/01/31/transfer-signing-premier-league-dream-ideal-club/
+
+**'I wanted the challenge': Matthias Jaissle, the Rangnick disciple coaching in Saudi Arabia**\
+`The 37-year-old German coach talks to The Athletic about what his controversial move to Al Ahli of the Saudi Pro League has taught him`\
+https://nytimes.com/athletic/7003704/2026/01/31/matthias-jaissle-saudi-arabia-al-ahli-interview/
+
+**Jose Mourinho has had a rocky return at Benfica – but then came that special moment**\
+`The dramatic finale against Real Madrid has helped change the tone of an otherwise disappointing first season back in Portugal for Mourinho`\
+https://nytimes.com/athletic/7007208/2026/01/31/jose-mourinho-has-had-a-rocky-return-at-benfica-but-then-came-that-special-moment/
+
 **Does the 'Man Utd Way' really exist?**\
 `In United's case, winning - rather than style or philosophy - is the most integral element of the club's DNA`\
 https://nytimes.com/athletic/6978746/2026/01/31/manchester-united-way-myth/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7010970/2026/01/31/australian-open-womens-final-sab
 **Connections: Sports Edition Coach: Hints for Jan. 31, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7011725/2026/01/31/connections-sports-edition-hints-for-jan-31-2026-puzzle-no-495/
-
-**Corrections: Jan. 31, 2026**\
-`Corrections that appeared in print on Saturday, Jan. 31, 2026.`\
-https://nytimes.com/2026/01/31/pageoneplus/corrections-jan-31-2026.html
-
-**Nikola Jokić scores 31 points in 25 minutes in return to Nuggets from knee injury**\
-`The three-time MVP once again looked like the best player in the NBA in his first game back since Dec. 29.`\
-https://nytimes.com/athletic/7011715/2026/01/30/nikola-jokic-denver-nuggets-return-nba/
-
-**Michigan ends eight-year drought in East Lansing, tops No. 7 Michigan State in highest-ranked rivalry clash**\
-`Elliot Cadeau's clutch performance late in the second half lifts the Michigan over Michigan State after the Spartans near comeback.`\
-https://nytimes.com/athletic/7011409/2026/01/30/michigan-michigan-state-rivaly-ranked/
 

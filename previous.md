@@ -1,3 +1,11 @@
+**Does the 'Man Utd Way' really exist?**\
+`In United's case, winning - rather than style or philosophy - is the most integral element of the club's DNA`\
+https://nytimes.com/athletic/6978746/2026/01/31/manchester-united-way-myth/
+
+**Has Pep Guardiola gone too far in his criticism of referees?**\
+`A complaint about a perceived refereeing mistake nine years ago might help explain the Manchester City manager's frustration with officials`\
+https://nytimes.com/athletic/7008173/2026/01/31/pep-guardiola-manchester-city-referees-criticism/
+
 **Quote of the Day: For Bobsledding Mothers, Life Is a Blur**\
 `Quotation of the Day for Saturday, January 31, 2026.`\
 https://nytimes.com/2026/01/31/pageoneplus/quote-of-the-day-for-bobsledding-mothers-life-is-a-blur.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7011715/2026/01/30/nikola-jokic-denver-nuggets-retu
 **Michigan ends eight-year drought in East Lansing, tops No. 7 Michigan State in highest-ranked rivalry clash**\
 `Elliot Cadeau's clutch performance late in the second half lifts the Michigan over Michigan State after the Spartans near comeback.`\
 https://nytimes.com/athletic/7011409/2026/01/30/michigan-michigan-state-rivaly-ranked/
-
-**Draft Epstein Indictment Accused Him of Crimes Against More Than a Dozen Girls**\
-`Jeffrey Epstein, who ended up pleading to a much lesser state charge, told one victim that bad things could happen to her if she talked, the 2007 document said.`\
-https://nytimes.com/2026/01/30/us/politics/epstein-2007-draft-indictment.html
-
-**Harrison Bader plans to make an impact with Giants: 'I love running balls down'**\
-`Bader discussed why he loves playing center field in his first public comments since joining the Giants on a two-year deal.`\
-https://nytimes.com/athletic/7011599/2026/01/30/sf-giants-harrison-bader-center-field-defense/
 

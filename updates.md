@@ -1,3 +1,11 @@
+**Does the 'Man Utd Way' really exist?**\
+`In United's case, winning - rather than style or philosophy - is the most integral element of the club's DNA`\
+https://nytimes.com/athletic/6978746/2026/01/31/manchester-united-way-myth/
+
+**Has Pep Guardiola gone too far in his criticism of referees?**\
+`A complaint about a perceived refereeing mistake nine years ago might help explain the Manchester City manager's frustration with officials`\
+https://nytimes.com/athletic/7008173/2026/01/31/pep-guardiola-manchester-city-referees-criticism/
+
 **Quote of the Day: For Bobsledding Mothers, Life Is a Blur**\
 `Quotation of the Day for Saturday, January 31, 2026.`\
 https://nytimes.com/2026/01/31/pageoneplus/quote-of-the-day-for-bobsledding-mothers-life-is-a-blur.html
