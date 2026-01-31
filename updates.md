@@ -1,3 +1,7 @@
+**Where to Stream Catherine O’Hara’s Best Performances**\
+`Her characters were as varied as they were eccentric and lovable. These are some of the best.`\
+https://nytimes.com/2026/01/30/arts/television/catherine-ohara-movies-tv-shows-watch.html
+
 **What to Know About the ‘Abortion Clinic’ Law Being Used to Charge Don Lemon**\
 `The Trump administration used a federal law prohibiting blockades of abortion clinics and places of worship to charge Mr. Lemon and others in Minnesota.`\
 https://nytimes.com/2026/01/30/us/politics/face-act-lemon-explainer.html

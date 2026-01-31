@@ -1,3 +1,7 @@
+**Where to Stream Catherine O’Hara’s Best Performances**\
+`Her characters were as varied as they were eccentric and lovable. These are some of the best.`\
+https://nytimes.com/2026/01/30/arts/television/catherine-ohara-movies-tv-shows-watch.html
+
 **What to Know About the ‘Abortion Clinic’ Law Being Used to Charge Don Lemon**\
 `The Trump administration used a federal law prohibiting blockades of abortion clinics and places of worship to charge Mr. Lemon and others in Minnesota.`\
 https://nytimes.com/2026/01/30/us/politics/face-act-lemon-explainer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/30/us/politics/washington-slavery-philadelphia-lawsu
 **Protesters Denounce Trump Immigration Tactics in ‘National Shutdown’**\
 `Demonstrators rallied across the country, leaving school and work and closing businesses in a show of solidarity with Minneapolis.`\
 https://nytimes.com/2026/01/30/us/minnesota-ice-protests-trump-immigration.html
-
-**ICE Expands Power of Agents to Arrest People Without Warrants**\
-`An internal memo changed the standard from whether people are unlikely to show up for hearings to whether they could leave the scene.`\
-https://nytimes.com/2026/01/30/us/politics/ice-expands-power-agents-warrants.html
 
