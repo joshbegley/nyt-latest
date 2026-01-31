@@ -1,3 +1,7 @@
+**6 Missing as Search Continues for Boat Off the Coast of Massachusetts**\
+`Searchers recovered one body after the Lily Jean, a 72-foot fishing vessel, issued an emergency alert on Friday morning, the U.S. Coast Guard said.`\
+https://nytimes.com/2026/01/30/us/fishing-boat-missing-massachusetts.html
+
 **Bengals QB Joe Flacco added to AFC Pro Bowl roster as replacement**\
 `As it turns out, the Cleveland Browns had not one, but two Pro Bowl quarterbacks on their roster in August.
 
@@ -35,8 +39,4 @@ https://nytimes.com/2026/01/30/us/politics/h2b-visas.html
 **Trump Called for ‘De-Escalation’ in Minneapolis. It Didn’t Last Long.**\
 `President Trump has offered dueling messages on the crisis in Minneapolis, part of pattern of dialing back his rhetoric only to change again if the political winds are shifting.`\
 https://nytimes.com/2026/01/30/us/politics/trump-minneapolis-dueling-messages.html
-
-**What Would It Take to Actually Freeze the Hudson River?**\
-`New York City is icy and cold right now, but you’re probably not going to be able to walk to New Jersey any time soon.`\
-https://nytimes.com/2026/01/30/weather/hudson-river-new-york-frozen.html
 
