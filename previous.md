@@ -1,3 +1,7 @@
+**California girls hockey team involved in deadly crash in Colorado**\
+`A snowplow driver lost control, breaking through the median of Interstate 70 about 60 miles west of Denver, the Colorado State Patrol said.`\
+https://nytimes.com/athletic/7012366/2026/01/31/santa-clarita-lady-flyers-colorado-snowplow-crash-fatal/
+
 **Pentagon Defends Restrictions on Media Outlets**\
 `The purpose of the new rules is to “stop activity that could compromise national security,” the Defense Department said in response to a New York Times lawsuit.`\
 https://nytimes.com/2026/01/31/business/media/pentagon-new-york-times-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012315/2026/01/31/maple-leafs-vs-canucks-stream-ho
 **How to watch Devils vs. Senators: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7012313/2026/01/31/devils-vs-senators-stream-how-to-watch-jan-31/
-
-**How to watch Blue Jackets vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7012311/2026/01/31/blue-jackets-vs-blues-stream-how-to-watch-jan-31/
 

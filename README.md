@@ -1,3 +1,11 @@
+**Ty Simpson: Exiting draft, transferring would 'tarnish my legacy' at Alabama**\
+`Simpson said he wasn't interested in playing at other schools after starting only one season at Alabama.`\
+https://nytimes.com/athletic/7012335/2026/01/31/ty-simpson-alabama-transfer-nfl-draft/
+
+**Chelsea 3 West Ham 2 - Liam Rosenior's side make club history with remarkable comeback win**\
+`A remarkable game at Stamford Bridge saw Chelsea out-classed up to the break, but rally to win as second-half changes made a timely impact`\
+https://nytimes.com/athletic/7006747/2026/01/31/chelsea-rosenior-comeback-west-ham-briefing/
+
 **California girls hockey team involved in deadly crash in Colorado**\
 `A snowplow driver lost control, breaking through the median of Interstate 70 about 60 miles west of Denver, the Colorado State Patrol said.`\
 https://nytimes.com/athletic/7012366/2026/01/31/santa-clarita-lady-flyers-colorado-snowplow-crash-fatal/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/31/us/chicago-police-federal-immigration.html
 **Demond Wilson, Long-Suffering Son on ‘Sanford and Son,’ Dies at 79**\
 `As Lamont, he was a young man in constant battle with his father and business partner, played by Redd Foxx, on the popular 1970s series.`\
 https://nytimes.com/2026/01/31/arts/television/demond-wilson-dead.html
-
-**How to watch Maple Leafs vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7012315/2026/01/31/maple-leafs-vs-canucks-stream-how-to-watch-jan-31/
-
-**How to watch Devils vs. Senators: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7012313/2026/01/31/devils-vs-senators-stream-how-to-watch-jan-31/
 

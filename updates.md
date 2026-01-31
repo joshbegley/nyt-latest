@@ -1,3 +1,7 @@
+**California girls hockey team involved in deadly crash in Colorado**\
+`A snowplow driver lost control, breaking through the median of Interstate 70 about 60 miles west of Denver, the Colorado State Patrol said.`\
+https://nytimes.com/athletic/7012366/2026/01/31/santa-clarita-lady-flyers-colorado-snowplow-crash-fatal/
+
 **Pentagon Defends Restrictions on Media Outlets**\
 `The purpose of the new rules is to “stop activity that could compromise national security,” the Defense Department said in response to a New York Times lawsuit.`\
 https://nytimes.com/2026/01/31/business/media/pentagon-new-york-times-lawsuit.html
