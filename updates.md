@@ -1,3 +1,11 @@
+**Liverpool's Konate cut short leave for Newcastle game, Slot says**\
+`The defender had been in France after the death of his father but played and scored his first league goal at Anfield on Saturday.`\
+https://nytimes.com/athletic/7012814/2026/01/31/ibrahima-konate-liverpool-compassionate-leave-newcastle-slot/
+
+**Mamdani Names Nonprofit Leader and Ex-Rikers Inmate to Run N.Y.C. Jails**\
+`Stanley Richards is taking over as correction commissioner at an inflection point for the city’s jails. Mayor Zohran Mamdani also named Dr. Alister Martin to lead the health department.`\
+https://nytimes.com/2026/01/31/nyregion/nyc-correction-dept-richards-mamdani.html
+
 **Sinking Flyers drained by lethargic start in OT loss to Kings**\
 `The 3-2 loss Saturday was the plummeting Flyers' 11th in their last 13 games.`\
 https://nytimes.com/athletic/7012680/2026/01/31/flyers-kings-overtime-loss-score/

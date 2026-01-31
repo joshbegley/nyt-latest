@@ -1,3 +1,11 @@
+**Liverpool's Konate cut short leave for Newcastle game, Slot says**\
+`The defender had been in France after the death of his father but played and scored his first league goal at Anfield on Saturday.`\
+https://nytimes.com/athletic/7012814/2026/01/31/ibrahima-konate-liverpool-compassionate-leave-newcastle-slot/
+
+**Mamdani Names Nonprofit Leader and Ex-Rikers Inmate to Run N.Y.C. Jails**\
+`Stanley Richards is taking over as correction commissioner at an inflection point for the city’s jails. Mayor Zohran Mamdani also named Dr. Alister Martin to lead the health department.`\
+https://nytimes.com/2026/01/31/nyregion/nyc-correction-dept-richards-mamdani.html
+
 **Texas Special Runoff Election Results**\
 `Get live results and maps from the Jan. 31, 2026 Texas special runoff elections.`\
 https://nytimes.com/interactive/2026/01/31/us/elections/results-texas-special-runoff.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7006750/2026/01/31/liverpool-newcastle-ekitike-gord
 **T. Kumar, Rights Activist Who Was Shaped by His Time in Prison, Dies at 76**\
 `After being jailed as a resistance organizer for the Tamil minority in his native Sri Lanka, he spoke out against governmental repression worldwide.`\
 https://nytimes.com/2026/01/31/world/asia/t-kumar-dead.html
-
-**Senior Bowl winners by position: Which 2026 NFL Draft picks impressed scouts this week?**\
-`LSU quarterback Garrett Nussmeier and Notre Dame receiver Malachi Fields were among this week's risers.`\
-https://nytimes.com/athletic/7010882/2026/01/31/nfl-draft-2026-senior-bowl-risers-prospects/
-
-**Israel Launches Deadly Strikes in Gaza as Rafah Border Is Set to Reopen**\
-`The Israeli military launched a series of airstrikes on the Gaza Strip on Saturday. At least 26 people were killed in the attacks, according to the Gaza health ministry. The strikes came as Israel was expected to reopen the Rafah border between Gaza and Egypt.`\
-https://nytimes.com/video/world/middleeast/100000010681747/israel-launches-strikes-gaza.html
 
