@@ -1,3 +1,15 @@
+**The Delightful Mania of Catherine O’Hara**\
+`The Emmy-winning actress was especially adept at playing women who had been cast off but maintained an inflated sense of self, always with a great comedic payoff.`\
+https://nytimes.com/2026/01/30/movies/catherine-ohara-characters.html
+
+**Trump Officials Move to Double Number of H-2B Guest Visas This Year**\
+`It was a rare move by the Trump administration to expand a foreign worker program, amid a sweeping effort to drastically cut immigration.`\
+https://nytimes.com/2026/01/30/us/politics/h2b-visas.html
+
+**Epstein Offered Prince Andrew a Meeting With a Russian Woman, Emails Show**\
+`Andrew Mountbatten-Windsor was stripped of his royal titles last year after new disclosures showed the extent of his relationship with Jeffrey Epstein.`\
+https://nytimes.com/2026/01/30/us/politics/epstein-prince-andrew.html
+
 **Trump Called for ‘De-Escalation’ in Minneapolis. It Didn’t Last Long.**\
 `President Trump has offered dueling messages on the crisis in Minneapolis, part of pattern of dialing back his rhetoric only to change again if the political winds are shifting.`\
 https://nytimes.com/2026/01/30/us/politics/trump-minneapolis-dueling-messages.html

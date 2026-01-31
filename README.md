@@ -1,3 +1,7 @@
+**N.H.L. Players Return to The Olympics**\
+`The 12-year wait is over: N.`\
+https://nytimes.com/video/the-athletic/100000010668715/nhl-players-olympics.html
+
 **The Delightful Mania of Catherine O’Hara**\
 `The Emmy-winning actress was especially adept at playing women who had been cast off but maintained an inflated sense of self, always with a great comedic payoff.`\
 https://nytimes.com/2026/01/30/movies/catherine-ohara-characters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/30/world/americas/un-finances-collapse-debts.html
 **Where to Stream Catherine O’Hara’s Best Performances**\
 `Her characters were as varied as they were eccentric and lovable. These are some of the best.`\
 https://nytimes.com/2026/01/30/arts/television/catherine-ohara-movies-tv-shows-watch.html
-
-**What to Know About the ‘Abortion Clinic’ Law Being Used to Charge Don Lemon**\
-`The Trump administration used a federal law prohibiting blockades of abortion clinics and places of worship to charge Mr. Lemon and others in Minnesota.`\
-https://nytimes.com/2026/01/30/us/politics/face-act-lemon-explainer.html
 
