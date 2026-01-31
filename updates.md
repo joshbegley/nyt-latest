@@ -1,3 +1,15 @@
+**Trump’s Brute-Force Approach to Power Is Wearing Thin**\
+`Arresting Don Lemon doesn’t send the message the president wants it to.`\
+https://nytimes.com/2026/01/31/opinion/trump-minnesota-don-lemon-arrest-power-protest.html
+
+**NBA suspends 76ers' Paul George for 25 games for violating anti-drug policy**\
+`George's suspension begins with Saturday's game against the New Orleans Pelicans.`\
+https://nytimes.com/athletic/7012213/2026/01/31/paul-george-suspended-sixers-nba-drug-policy/
+
+**Federal Judge Denies Request to Temporarily Block ICE Surge in Minnesota**\
+`Local officials had sought a preliminary injunction to stop the federal deployment of some 3,000 immigration agents to Minnesota, arguing that the move amounted to a violation of state sovereignty.`\
+https://nytimes.com/2026/01/31/us/judge-minnesota-ice-ruling.html
+
 **The Briefing: Leeds 0 Arsenal 4 - Madueke steps up, Darlow's difficult day and Arteta's side respond**\
 `Arsenal managed an impressive 4-0 win over Leeds United at Elland Road on Saturday afternoon`\
 https://nytimes.com/athletic/7006746/2026/01/31/leeds-arsenal-result-report-analysis/

@@ -1,3 +1,11 @@
+**Trump’s Brute-Force Approach to Power Is Wearing Thin**\
+`Arresting Don Lemon doesn’t send the message the president wants it to.`\
+https://nytimes.com/2026/01/31/opinion/trump-minnesota-don-lemon-arrest-power-protest.html
+
+**NBA suspends 76ers' Paul George for 25 games for violating anti-drug policy**\
+`George's suspension begins with Saturday's game against the New Orleans Pelicans.`\
+https://nytimes.com/athletic/7012213/2026/01/31/paul-george-suspended-sixers-nba-drug-policy/
+
 **The Briefing: Leeds 0 Arsenal 4 - Madueke steps up, Darlow's difficult day and Arteta's side respond**\
 `Arsenal managed an impressive 4-0 win over Leeds United at Elland Road on Saturday afternoon`\
 https://nytimes.com/athletic/7006746/2026/01/31/leeds-arsenal-result-report-analysis/
@@ -6,8 +14,8 @@ https://nytimes.com/athletic/7006746/2026/01/31/leeds-arsenal-result-report-anal
 `The Ottawa goalie hasn't played since Dec. 27, 2025, and stepped away from the team for mental health reasons.`\
 https://nytimes.com/athletic/6968626/2026/01/31/linus-ullmark-senators-return-personal-leave/
 
-**Federal Judge Denies Request to Block ICE Surge in Minnesota**\
-`Local officials had argued that the decision to send some 3,000 immigration agents to Minnesota amounted to a violation of state sovereignty.`\
+**Federal Judge Denies Request to Temporarily Block ICE Surge in Minnesota**\
+`Local officials had sought a preliminary injunction to stop the federal deployment of some 3,000 immigration agents to Minnesota, arguing that the move amounted to a violation of state sovereignty.`\
 https://nytimes.com/2026/01/31/us/judge-minnesota-ice-ruling.html
 
 **An Ocean of Frozen Flowers Grows Where Alex Pretti Was Killed**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7010882/2026/01/31/nfl-draft-2026-senior-bowl-riser
 **Peanut Butter Protein Granola Time**\
 `Egg whites, peanuts and hemp seeds add an extra protein boost to these crunchy, snacky clusters.`\
 https://nytimes.com/2026/01/31/dining/peanut-butter-protein-granola-time.html
-
-**Overlooked No More: Jimmy Reed, the Bluesman Everyone Covered, Then Forgot**\
-`His most enduring hits were recorded by Elvis Presley, Aretha Franklin, the Rolling Stones and the Grateful Dead. But his own career faded from view.`\
-https://nytimes.com/2026/01/31/obituaries/jimmy-reed-overlooked.html
-
-**Cade Cunningham's growth has earned him respect from some of the NBA's best defenders**\
-`“He’s awesome,” Warriors coach Steve Kerr said of Cunningham ahead of Friday's Pistons win. “He reminds me of Luka (Dončić), James Harden."`\
-https://nytimes.com/athletic/7011918/2026/01/31/cade-cunningham-growth-detroit-pistons/
 
