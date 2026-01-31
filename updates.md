@@ -1,3 +1,19 @@
+**How to watch Spurs vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7011951/2026/01/31/spurs-vs-hornets-stream-how-to-watch-jan-31/
+
+**How to watch Kings vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7011949/2026/01/31/kings-vs-flyers-stream-how-to-watch-jan-31/
+
+**How to watch Avalanche vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7011947/2026/01/31/avalanche-vs-red-wings-stream-how-to-watch-jan-31/
+
+**How to watch Cincinnati vs. Houston men's basketball: Time, TV, streaming**\
+`Find out how to watch the Cincinnati Bearcats play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7011942/2026/01/31/cincinnati-vs-houston-stream-how-to-watch-jan-31/
+
 **Frank Nazar, Connor Bedard starting to find groove together for Blackhawks**\
 `Friday marked their third game together, and it was their best despite the Blackhawks' 4-2 loss to the Columbus Blue Jackets.
 `\
