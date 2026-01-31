@@ -1,3 +1,7 @@
+**Draft Indictment of Epstein Accused Him of Crimes Against More Than a Dozen Girls**\
+`Jeffrey Epstein, who ended up pleading to a much lesser state charge, told one victim that bad things could happen to her if she talked, the 2007 document said.`\
+https://nytimes.com/2026/01/30/us/politics/epstein-2007-draft-indictment.html
+
 **Harrison Bader plans to make an impact with Giants: 'I love running balls down'**\
 `Bader discussed why he loves playing center field in his first public comments since joining the Giants on a two-year deal.`\
 https://nytimes.com/athletic/7011599/2026/01/30/sf-giants-harrison-bader-center-field-defense/

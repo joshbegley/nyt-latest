@@ -1,3 +1,7 @@
+**Draft Indictment of Epstein Accused Him of Crimes Against More Than a Dozen Girls**\
+`Jeffrey Epstein, who ended up pleading to a much lesser state charge, told one victim that bad things could happen to her if she talked, the 2007 document said.`\
+https://nytimes.com/2026/01/30/us/politics/epstein-2007-draft-indictment.html
+
 **Harrison Bader plans to make an impact with Giants: 'I love running balls down'**\
 `Bader discussed why he loves playing center field in his first public comments since joining the Giants on a two-year deal.`\
 https://nytimes.com/athletic/7011599/2026/01/30/sf-giants-harrison-bader-center-field-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/30/us/politics/trump-congress-weapons-aid-israel.htm
 **Unrivaled breaks attendance record for women's professional basketball**\
 `In one night, Unrivaled broke a women's basketball attendance record and turned almost the same revenue from 2025.`\
 https://nytimes.com/athletic/7011457/2026/01/30/unrivaled-womens-basketball-attendance-record/
-
-**Release of Three Million Epstein Pages Falls Short, Survivors Say**\
-`Todd Blanche, the deputy attorney general, told reporters on Friday that “there’s a hunger or a thirst for information that I do not think will be satisfied by the review of these documents.”`\
-https://nytimes.com/2026/01/30/us/politics/epstein-files-release.html
 
