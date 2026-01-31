@@ -1,3 +1,15 @@
+**Read the document**\
+`A judicial order freeing a 5-year-old boy and his father, detained by federal immigration authorities.`\
+https://nytimes.com/interactive/2026/01/31/us/31nat-liam-court-order-doc.html
+
+**Comical Mutation**\
+`Lance Enfinger and John Kugelman’s puzzle will transform you.`\
+https://nytimes.com/2026/01/31/crosswords/daily-puzzle-2026-02-01.html
+
+**Senior Bowl winners by position: Which 2026 NFL Draft picks impressed scouts this week?**\
+`LSU quarterback Garrett Nussmeier and Notre Dame receiver Malachi Fields were among this week's risers.`\
+https://nytimes.com/athletic/7010882/2026/01/31/nfl-draft-2026-senior-bowl-risers-prospects/
+
 **Sinking Flyers drained by lethargic start in OT loss to Kings**\
 `The 3-2 loss on Saturday was the plummeting Flyers’ 11th in their last 13 games.`\
 https://nytimes.com/athletic/7012680/2026/01/31/flyers-kings-overtime-loss-score/
