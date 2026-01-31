@@ -1,3 +1,15 @@
+**How to watch Ole Miss vs. Vanderbilt men's basketball: Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7012243/2026/01/31/ole-miss-vs-vanderbilt-stream-how-to-watch-jan-31/
+
+**How to watch UConn vs. Creighton men's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the Creighton Bluejays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7012241/2026/01/31/uconn-vs-creighton-stream-how-to-watch-jan-31/
+
+**How to watch Kentucky vs. Arkansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7012239/2026/01/31/kentucky-vs-arkansas-stream-how-to-watch-jan-31/
+
 **Trump’s Brute-Force Approach to Power Is Wearing Thin**\
 `Arresting Don Lemon doesn’t send the message the president wants it to.`\
 https://nytimes.com/2026/01/31/opinion/trump-minnesota-don-lemon-arrest-power-protest.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/31/us/alex-pretti-memorial-minneapolis.html
 **Bovino Is Said to Have Mocked Prosecutor’s Jewish Faith on Call With Lawyers**\
 `Gregory Bovino, the Border Patrol field leader, made disparaging remarks in reference to the U.S. attorney in Minnesota, an Orthodox Jew, people with knowledge of the phone call said.`\
 https://nytimes.com/2026/01/31/us/bovino-jewish-prosecutor-minnesota.html
-
-**Bills hiring Broncos' Jim Leonhard as defensive coordinator**\
-`Leonhard is the second former Broncos assistant in as many days to join new Bills head coach Joe Brady's staff.`\
-https://nytimes.com/athletic/7012143/2026/01/31/bills-jim-leonhard-defensive-coordinator-broncos/
-
-**Senior Bowl winners by position: Which 2026 NFL Draft picks impressed scouts this week?**\
-`LSU quarterback Garrett Nussmeier and Notre Dame receiver Malachi Fields were among this week's risers.`\
-https://nytimes.com/athletic/7010882/2026/01/31/nfl-draft-2026-senior-bowl-risers-prospects/
-
-**Peanut Butter Protein Granola Time**\
-`Egg whites, peanuts and hemp seeds add an extra protein boost to these crunchy, snacky clusters.`\
-https://nytimes.com/2026/01/31/dining/peanut-butter-protein-granola-time.html
 
