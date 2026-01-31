@@ -1,3 +1,15 @@
+**Winter Storm Hits the Carolinas**\
+`Some felt fatigued. Others were excited, as puffy white flakes floated down from the sky. Either way, North Carolina and South Carolina were bracing for a rare burst of cold and snow.`\
+https://nytimes.com/2026/01/31/us/winter-storm-snow-carolina-north-south.html
+
+**Ty Simpson: Exiting draft, transferring would 'tarnish my legacy' at Alabama**\
+`Simpson said he wasn't interested in playing at other schools after starting only one season at Alabama.`\
+https://nytimes.com/athletic/7012335/2026/01/31/ty-simpson-alabama-transfer-nfl-draft/
+
+**Chelsea 3 West Ham 2 - Liam Rosenior's side make club history with remarkable comeback win**\
+`A remarkable game at Stamford Bridge saw Chelsea out-classed up to the break, but rally to win as second-half changes made a timely impact`\
+https://nytimes.com/athletic/7006747/2026/01/31/chelsea-rosenior-comeback-west-ham-briefing/
+
 **California girls hockey team involved in deadly crash in Colorado**\
 `A snowplow driver lost control, breaking through the median of Interstate 70 about 60 miles west of Denver, the Colorado State Patrol said.`\
 https://nytimes.com/athletic/7012366/2026/01/31/santa-clarita-lady-flyers-colorado-snowplow-crash-fatal/

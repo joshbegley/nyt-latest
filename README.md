@@ -1,3 +1,11 @@
+**Rangers claim Vincent Iorio from Sharks: Where he fits and why now**\
+`The waiver claim for Iorio is a low-risk move for a team at the bottom of the Eastern Conference standings.`\
+https://nytimes.com/athletic/7012449/2026/01/31/rangers-claim-vincent-iorio-sharks/
+
+**Brighton's Watson set for Millwall loan until end of season**\
+`The 19-year-old signed last summer from Sheffield United and has registered ten appearances in all competitions this term. `\
+https://nytimes.com/athletic/7012499/2026/01/31/tommy-watson-brighton-millwall-transfer-news/
+
 **Winter Storm Hits the Carolinas**\
 `Some felt fatigued. Others were excited, as puffy white flakes floated down from the sky. Either way, North Carolina and South Carolina were bracing for a rare burst of cold and snow.`\
 https://nytimes.com/2026/01/31/us/winter-storm-snow-carolina-north-south.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7012306/2026/01/31/yankees-outfield-targets-free-ag
 **USWNT's Gaetino joins Denver Summit from PSG**\
 `The 23-year-old center-back made 45 appearances for the French side over two years, winning the Coupe de France Féminine`\
 https://nytimes.com/athletic/7012324/2026/01/31/eva-gaetino-denver-summit-psg-uswnt-transfer/
-
-**‘We’ve Fought Side by Side’: Danish Veterans March Against Trump’s Comments**\
-`In the latest anti-American gathering in Denmark, veterans who went to war alongside U.S. troops took to the streets of Copenhagen.`\
-https://nytimes.com/2026/01/31/world/europe/denmark-military-march-us-troops.html
-
-**Chicago Orders Police to Document Potentially Illegal Federal Immigration Tactics**\
-`The order, signed by Mayor Brandon Johnson, instructs police officers to report allegations of unlawful conduct in an effort to prosecute the most aggressive federal immigration actions.`\
-https://nytimes.com/2026/01/31/us/chicago-police-federal-immigration.html
 
