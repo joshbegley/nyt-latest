@@ -1,3 +1,7 @@
+**N.H.L. Players Return to The Olympics**\
+`The 12-year wait is over: N.`\
+https://nytimes.com/video/the-athletic/100000010668715/nhl-players-olympics.html
+
 **The Delightful Mania of Catherine O’Hara**\
 `The Emmy-winning actress was especially adept at playing women who had been cast off but maintained an inflated sense of self, always with a great comedic payoff.`\
 https://nytimes.com/2026/01/30/movies/catherine-ohara-characters.html
