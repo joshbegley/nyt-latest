@@ -1,5 +1,5 @@
 **California girls hockey team involved in deadly crash in Colorado**\
-`The plow driver lost control, breaking through the median of Interstate 70 about 60 miles west of Denver, the Colorado State Patrol said.`\
+`A snowplow driver lost control, breaking through the median of Interstate 70 about 60 miles west of Denver, the Colorado State Patrol said.`\
 https://nytimes.com/athletic/7012366/2026/01/31/santa-clarita-lady-flyers-colorado-snowplow-crash-fatal/
 
 **Pentagon Defends Restrictions on Media Outlets**\
