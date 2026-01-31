@@ -1,3 +1,7 @@
+**An evening with West Ham legends: Paqueta switch, VAR is a 'sack of s***' and survival hopes**\
+`The Athletic attended a stage show starring a panel of the club's former stars as they discussed a series of topics`\
+https://nytimes.com/athletic/7003789/2026/01/31/west-ham-legends-lucas-paqueta-var-relegation/
+
 **Who is your Premier League club's ideal signing ahead of the transfer deadline?**\
 `The transfer deadline is approaching - and The Athletic asked its reporters for ideal signings for the clubs they cover`\
 https://nytimes.com/athletic/7004156/2026/01/31/transfer-signing-premier-league-dream-ideal-club/

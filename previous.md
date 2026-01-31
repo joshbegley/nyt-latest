@@ -1,3 +1,7 @@
+**An evening with West Ham legends: Paqueta switch, VAR is a 'sack of s***' and survival hopes**\
+`The Athletic attended a stage show starring a panel of the club's former stars as they discussed a series of topics`\
+https://nytimes.com/athletic/7003789/2026/01/31/west-ham-legends-lucas-paqueta-var-relegation/
+
 **Who is your Premier League club's ideal signing ahead of the transfer deadline?**\
 `The transfer deadline is approaching - and The Athletic asked its reporters for ideal signings for the clubs they cover`\
 https://nytimes.com/athletic/7004156/2026/01/31/transfer-signing-premier-league-dream-ideal-club/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/31/world/asia/trump-xi-starmer-carney.html
 **How to watch Sabalenka vs. Rybakina in 2026 Australian Open women’s final**\
 `Aryna Sabalenka and Elena Rybakina renew their rivalry, three years after their first Australian Open finals showdown. `\
 https://nytimes.com/athletic/7010970/2026/01/31/australian-open-womens-final-sabalenka-rybakina-watch-2026/
-
-**Connections: Sports Edition Coach: Hints for Jan. 31, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7011725/2026/01/31/connections-sports-edition-hints-for-jan-31-2026-puzzle-no-495/
 
