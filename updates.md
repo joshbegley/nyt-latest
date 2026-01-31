@@ -1,3 +1,7 @@
+**Chicago Orders Police to Document Potentially Illegal Federal Immigration Tactics**\
+`The order, signed by Mayor Brandon Johnson, instructs police officers to report allegations of unlawful conduct in an effort to prosecute the most aggressive federal immigration actions.`\
+https://nytimes.com/2026/01/31/us/chicago-police-federal-immigration.html
+
 **Demond Wilson, Long-Suffering Son on ‘Sanford and Son,’ Dies at 79**\
 `As Lamont, he was a young man in constant battle with his father and business partner, played by Redd Foxx, on the popular 1970s series.`\
 https://nytimes.com/2026/01/31/arts/television/demond-wilson-dead.html
