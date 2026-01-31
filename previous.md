@@ -1,3 +1,7 @@
+**Three key Premier League stats: Man Utd's counter attacking and Arsenal's vulnerability**\
+`Investigating the numbers and statistics that go some way to predicting how three big Premier League fixtures could play out`\
+https://nytimes.com/athletic/7009364/2026/01/31/premier-league-stats-arsenal-mancheter-united/
+
 **Epstein arranged two meetings with Boehly after disgraced financier's first jail term**\
 `Emails released by the Department of Justice on Friday revealed plans for meetings`\
 https://nytimes.com/athletic/7011575/2026/01/31/todd-boehly-epstein-chelsea-lakers-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/01/31/todays-new-york-times
 **Stephen Curry leaves Warriors loss to Detroit with knee soreness**\
 `The 12-time All-Star left the Warriors' game against Detroit in the third quarter and did not return.`\
 https://nytimes.com/athletic/7011802/2026/01/31/steph-curry-golden-state-warriors-knee-injury-nba/
-
-**Charlie Coyle stays hot with second career hat trick in Blue Jackets win**\
-`Coyle, coming off his 1,000th NHL game Saturday, has been stacking good nights for a while now.`\
-https://nytimes.com/athletic/7011701/2026/01/31/charlie-coyle-second-hat-trick-blue-jackets-win/
 
