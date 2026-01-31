@@ -1,3 +1,7 @@
+**Draft Epstein Indictment Accused Him of Crimes Against More Than a Dozen Girls**\
+`Jeffrey Epstein, who ended up pleading to a much lesser state charge, told one victim that bad things could happen to her if she talked, the 2007 document said.`\
+https://nytimes.com/2026/01/30/us/politics/epstein-2007-draft-indictment.html
+
 **Draft Indictment of Epstein Accused Him of Crimes Against More Than a Dozen Girls**\
 `Jeffrey Epstein, who ended up pleading to a much lesser state charge, told one victim that bad things could happen to her if she talked, the 2007 document said.`\
 https://nytimes.com/2026/01/30/us/politics/epstein-2007-draft-indictment.html
