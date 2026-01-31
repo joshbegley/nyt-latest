@@ -1,3 +1,11 @@
+**Novak Djokovic and Carlos Alcaraz's Australian Open final and the weight of tennis history**\
+`Carlos Alcaraz and Novak Djokovic are pursuing sporting greatness of different kinds in Melbourne.`\
+https://nytimes.com/athletic/7011829/2026/01/31/novak-djokovic-carlos-alcaraz-australian-open-final-tennis-records/
+
+**The Pulse: Hockey's biggest spotlight nears**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7011740/2026/01/31/hockeys-olympic-spotlight-nears-plus-vonns-status-in-question/
+
 **Lindsey Vonn withdraws from World Cup super-G, is 'doing my best' as Olympics near**\
 `Vonn provided a brief status update Saturday on Instagram, thanking supporters as her Olympic status remains uncertain.`\
 https://nytimes.com/athletic/7011921/2026/01/31/lindsey-vonn-olympics-injury-crash-crans-montana/

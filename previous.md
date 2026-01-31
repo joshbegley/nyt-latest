@@ -1,3 +1,11 @@
+**Novak Djokovic and Carlos Alcaraz's Australian Open final and the weight of tennis history**\
+`Carlos Alcaraz and Novak Djokovic are pursuing sporting greatness of different kinds in Melbourne.`\
+https://nytimes.com/athletic/7011829/2026/01/31/novak-djokovic-carlos-alcaraz-australian-open-final-tennis-records/
+
+**The Pulse: Hockey's biggest spotlight nears**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7011740/2026/01/31/hockeys-olympic-spotlight-nears-plus-vonns-status-in-question/
+
 **Lindsey Vonn withdraws from World Cup super-G, is 'doing my best' as Olympics near**\
 `Vonn provided a brief status update Saturday on Instagram, thanking supporters as her Olympic status remains uncertain.`\
 https://nytimes.com/athletic/7011921/2026/01/31/lindsey-vonn-olympics-injury-crash-crans-montana/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/31/opinion/artificial-intelligence-new-world.html
 **‘Relieved,’ ‘Enthusiastic,’ ‘Nervous’: Three Economists React to Trump’s Fed Pick**\
 `Questions remain about the Fed’s independence, the future path of interest rates and whether Kevin Warsh can reform the institution as he has proposed.`\
 https://nytimes.com/2026/01/31/opinion/kevin-warsh-jerome-powell-trump-fed-chair.html
-
-**Do We Want to Live in Alex Pretti’s America or Gregory Bovino’s?**\
-`As in the Civil Rights battles of the 1960s, Americans are at a fork and must pick their path.`\
-https://nytimes.com/2026/01/31/opinion/minneapolis-pretti-bovino.html
-
-**The Midterm Elections Need You. Here’s How to Help.**\
-`The sanctity of the 2026 vote is indeed under threat.`\
-https://nytimes.com/2026/01/31/opinion/trump-midterms-election-security.html
 
