@@ -1,3 +1,27 @@
+**Sherrill Urges New Jersey Residents to Record ICE Action on Their Phones**\
+`Governor Mikie Sherrill said the state would begin collecting images of federal immigration agents interacting with the public.`\
+https://nytimes.com/2026/01/31/nyregion/ice-new-jersey-images-database-sherrill.html
+
+**What to Know About the Alexander Brothers Sex Trafficking Trial**\
+`The men used their wealth and fame to lure women and then assault them, prosecutors say. The brothers have denied all allegations.`\
+https://nytimes.com/article/alexander-brothers-what-we-know-trial.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/31/crosswords/spelling-bee-forum.html
+
+**How a House Cleaner Lives on $24,000 a Year in Rockaway, Queens**\
+`Tyson Watts, who shares an apartment with his mother, hopes one day to make his Caribbean cooking his main source of income.`\
+https://nytimes.com/interactive/2026/01/31/nyregion/nyc-budgeting-affordability-24k.html
+
+**At a Grammys Light on Drama, All Eyes Will Be on Bad Bunny**\
+`Kendrick Lamar has the most nominations on Sunday, followed by Lady Gaga. But one week before his Super Bowl halftime show, the Puerto Rican superstar could make history.`\
+https://nytimes.com/2026/01/31/arts/music/grammys-bad-bunny-kendrick-lamar-lady-gaga.html
+
+**R&B May Have a Major Grammys Night. Leon Thomas Is Ready.**\
+`The 32-year-old performer has spent years coming up as a singer and songwriter. On Sunday, he’ll compete for two top awards, album of the year and best new artist.`\
+https://nytimes.com/2026/01/31/arts/music/leon-thomas-mutt-grammys.html
+
 **The New York Times in Print for Saturday, Jan. 31, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/31/todays-new-york-times
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7011701/2026/01/31/charlie-coyle-second-hat-trick-b
 **An evening with West Ham legends: Paqueta switch, VAR is a 'sack of s***' and survival hopes**\
 `The Athletic attended a stage show starring a panel of the club's former stars as they discussed a series of topics`\
 https://nytimes.com/athletic/7003789/2026/01/31/west-ham-legends-lucas-paqueta-var-relegation/
-
-**Who is your Premier League club's ideal signing ahead of the transfer deadline?**\
-`The transfer deadline is approaching - and The Athletic asked its reporters for ideal signings for the clubs they cover`\
-https://nytimes.com/athletic/7004156/2026/01/31/transfer-signing-premier-league-dream-ideal-club/
-
-**'I wanted the challenge': Matthias Jaissle, the Rangnick disciple coaching in Saudi Arabia**\
-`The 37-year-old German coach talks to The Athletic about what his controversial move to Al Ahli of the Saudi Pro League has taught him`\
-https://nytimes.com/athletic/7003704/2026/01/31/matthias-jaissle-saudi-arabia-al-ahli-interview/
-
-**Jose Mourinho has had a rocky return at Benfica – but then came that special moment**\
-`The dramatic finale against Real Madrid has helped change the tone of an otherwise disappointing first season back in Portugal for Mourinho`\
-https://nytimes.com/athletic/7007208/2026/01/31/jose-mourinho-has-had-a-rocky-return-at-benfica-but-then-came-that-special-moment/
-
-**Does the 'Man Utd Way' really exist?**\
-`In United's case, winning - rather than style or philosophy - is the most integral element of the club's DNA`\
-https://nytimes.com/athletic/6978746/2026/01/31/manchester-united-way-myth/
-
-**Has Pep Guardiola gone too far in his criticism of referees?**\
-`A complaint about a perceived refereeing mistake nine years ago might help explain the Manchester City manager's frustration with officials`\
-https://nytimes.com/athletic/7008173/2026/01/31/pep-guardiola-manchester-city-referees-criticism/
-
-**Quote of the Day: For Bobsledding Mothers, Life Is a Blur**\
-`Quotation of the Day for Saturday, January 31, 2026.`\
-https://nytimes.com/2026/01/31/pageoneplus/quote-of-the-day-for-bobsledding-mothers-life-is-a-blur.html
 
