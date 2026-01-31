@@ -1,3 +1,15 @@
+**Patriots defensive coordinator Terrell Williams declared cancer-free after 4-month battle**\
+`The longtime NFL assistant received great news about his prostate cancer treatment ahead of Super Bowl 60.`\
+https://nytimes.com/athletic/7011430/2026/01/30/patriots-terrell-williams-cancer-free/
+
+**Gleeman: Twins' 'mutual' breakup with Derek Falvey is latest Pohlad-created mess**\
+`After nine years atop the Twins front office, Falvey seemingly reached a breaking point with shrinking resources and a new Pohlad in charge.`\
+https://nytimes.com/athletic/7010981/2026/01/30/twins-derek-falvey-mutual-breakup-pohlad-ownership/
+
+**She Called Mamdani a ‘Terrorist Lover.’ Did She Deserve to Be Promoted?**\
+`Inna Vernikov, a Republican city councilwoman, was named to help lead a task force to fight antisemitism. She later apologized for her remark about Mayor Zohran Mamdani.`\
+https://nytimes.com/2026/01/30/nyregion/inna-vernikov-nyc-council.html
+
 **What Is It Like to Be a Mom at the Olympics?**\
 `Two U.S. bobsled legends gear up to defend their medals with toddlers in the travel party.`\
 https://nytimes.com/video/the-athletic/100000010681023/what-is-it-like-to-be-a-mom-at-the-olympics.html
@@ -27,16 +39,4 @@ https://nytimes.com/2026/01/30/us/fishing-boat-missing-massachusetts.html
 
 `\
 https://nytimes.com/athletic/7011263/2026/01/30/begnals-qb-joe-flacco-pro-bowl-replacement/
-
-**Trump Names ‘Data Nerd’ to Lead Labor Statistics Agency**\
-`The decision to nominate Brett Matsumoto, a career government economist, came six months after the president fired the previous commissioner.`\
-https://nytimes.com/2026/01/30/business/trump-bureau-of-labor-statistics-brett-matsumoto.html
-
-**Can You Teach an A.I. Model to Be Good?**\
-`Amanda Askell, the in-house philosopher at Anthropic, joins “Hard Fork” to discuss the company’s new “Claude Constitution” and why training the company’s A.I. model on ethics is an important task.`\
-https://nytimes.com/video/podcasts/100000010670974/can-you-teach-an-ai-model-to-be-good.html
-
-**Trump, IndyCar plan Freedom 250 race around National Mall, but it's going to be tough lift**\
-`The president wants a race in D.C. to help America celebrate its 250th birthday, but the challenges to bring it about are massive.`\
-https://nytimes.com/athletic/7010955/2026/01/30/trump-indycar-race-national-mall-america-250-dc/
 

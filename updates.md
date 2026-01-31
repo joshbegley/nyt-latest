@@ -1,3 +1,21 @@
+**Patriots defensive coordinator Terrell Williams declared cancer-free after 4-month battle**\
+`The longtime NFL assistant received great news about his prostate cancer treatment ahead of Super Bowl 60.`\
+https://nytimes.com/athletic/7011430/2026/01/30/patriots-terrell-williams-cancer-free/
+
+**Gleeman: Twins' 'mutual' breakup with Derek Falvey is latest Pohlad-created mess**\
+`After nine years atop the Twins front office, Falvey seemingly reached a breaking point with shrinking resources and a new Pohlad in charge.`\
+https://nytimes.com/athletic/7010981/2026/01/30/twins-derek-falvey-mutual-breakup-pohlad-ownership/
+
+**She Called Mamdani a ‘Terrorist Lover.’ Did She Deserve to Be Promoted?**\
+`Inna Vernikov, a Republican city councilwoman, was named to help lead a task force to fight antisemitism. She later apologized for her remark about Mayor Zohran Mamdani.`\
+https://nytimes.com/2026/01/30/nyregion/inna-vernikov-nyc-council.html
+
+**Bengals QB Joe Flacco added to AFC Pro Bowl roster as replacement**\
+`As it turns out, the Cleveland Browns had not one, but two Pro Bowl quarterbacks on their roster in August.
+
+`\
+https://nytimes.com/athletic/7011263/2026/01/30/begnals-qb-joe-flacco-pro-bowl-replacement/
+
 **Bengals QB Joe Flacco added to AFC Pro Bowl roster as replacement**\
 `As it turns out, the Cleveland Browns had not one, but two Pro Bowl quarterbacks on their roster in August.
 

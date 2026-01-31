@@ -1,3 +1,7 @@
+**Release of Three Million Epstein Pages Appears Unlikely to Satisfy**\
+`Democratic lawmakers and some survivors of Mr. Epstein’s abuse said the disclosure fell short.`\
+https://nytimes.com/2026/01/30/us/politics/epstein-files-release.html
+
 **Patriots defensive coordinator Terrell Williams declared cancer-free after 4-month battle**\
 `The longtime NFL assistant received great news about his prostate cancer treatment ahead of Super Bowl 60.`\
 https://nytimes.com/athletic/7011430/2026/01/30/patriots-terrell-williams-cancer-free/
@@ -33,10 +37,4 @@ https://nytimes.com/2026/01/30/us/fbi-presentation-powerful-men.html
 **6 Missing as Search Continues for Boat Off the Coast of Massachusetts**\
 `Searchers recovered one body after the Lily Jean, a 72-foot fishing vessel, issued an emergency alert on Friday morning, the U.S. Coast Guard said.`\
 https://nytimes.com/2026/01/30/us/fishing-boat-missing-massachusetts.html
-
-**Bengals QB Joe Flacco added to AFC Pro Bowl roster as replacement**\
-`As it turns out, the Cleveland Browns had not one, but two Pro Bowl quarterbacks on their roster in August.
-
-`\
-https://nytimes.com/athletic/7011263/2026/01/30/begnals-qb-joe-flacco-pro-bowl-replacement/
 
