@@ -1,3 +1,7 @@
+**Paul George's suspension changes everything for Sixers ahead of NBA trade deadline**\
+`Joel Embiid made a not-so-suble hint Thursday that he wanted help. Now Paul George's suspension makes Embiid's request impossible to ignore.`\
+https://nytimes.com/athletic/7012350/2026/01/31/paul-george-suspension-nba-trade-deadline-sixers/
+
 **WATCH: Why Grey Zabel has been essential to Seahawks' Super Bowl run**\
 `Zabel, the 18th pick in the 2025 NFL Draft, has started every game in his rookie season.`\
 https://nytimes.com/athletic/7012643/2026/01/31/video-grey-zabel-super-bowl-breakdown/
