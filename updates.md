@@ -1,3 +1,7 @@
+**Sinking Flyers drained by lethargic start in OT loss to Kings**\
+`The 3-2 loss Saturday was the plummeting Flyers' 11th in their last 13 games.`\
+https://nytimes.com/athletic/7012680/2026/01/31/flyers-kings-overtime-loss-score/
+
 **Read the document**\
 `A judicial order freeing a 5-year-old boy and his father, detained by federal immigration authorities.`\
 https://nytimes.com/interactive/2026/01/31/us/31nat-liam-court-order-doc.html
