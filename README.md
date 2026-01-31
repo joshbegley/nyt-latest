@@ -1,3 +1,7 @@
+**Federal Judge Denies Request to Block ICE Surge in Minnesota**\
+`Local officials had argued that the decision to send some 3,000 immigration agents to Minnesota amounted to a violation of state sovereignty.`\
+https://nytimes.com/2026/01/31/us/judge-minnesota-ice-ruling.html
+
 **An Ocean of Frozen Flowers Grows Where Alex Pretti Was Killed**\
 `One week after the I.C.U. nurse was shot dead by federal agents, tributes continue to build on the sidewalk where he fell.`\
 https://nytimes.com/2026/01/31/us/alex-pretti-memorial-minneapolis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/31/health/doctors-cognitive-decline.html
 **My Favorite Dessert in New York City, Now on Demand**\
 `The silky chocolate mousse from Penny is utter bliss on a plate. I adapted the recipe so you can have it no matter where you are.`\
 https://nytimes.com/2026/01/31/dining/my-favorite-dessert-in-new-york-city-now-on-demand.html
-
-**Morris Waxler, F.D.A. Official Who Switched Stance on Lasik, Dies at 88**\
-`While at the federal agency, he approved the laser device for eye surgery but later warned of its potential to cause harm.`\
-https://nytimes.com/2026/01/31/obituaries/morris-waxler-dead.html
 
