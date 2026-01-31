@@ -1,3 +1,7 @@
+**Harrison Bader plans to make an impact with Giants: 'I love running balls down'**\
+`Bader discussed why he loves playing center field in his first public comments since joining the Giants on a two-year deal.`\
+https://nytimes.com/athletic/7011599/2026/01/30/sf-giants-harrison-bader-center-field-defense/
+
 **Christian Coleman facing charges in connection with Sha’Carri Richardson**\
 `Coleman is charged with resisting an officer and having drug paraphernalia inside his car, as well as several traffic violations.`\
 https://nytimes.com/athletic/7011248/2026/01/30/christian-coleman-shacarri-richardson-arrest-jail-speeding/
