@@ -1,4 +1,4 @@
-**Stephen Curry leaves Warriors game against Detroit with knee soreness**\
+**Stephen Curry leaves Warriors loss to Detroit with knee soreness**\
 `The 12-time All-Star left the Warriors' game against Detroit in the third quarter and did not return.`\
 https://nytimes.com/athletic/7011802/2026/01/31/steph-curry-golden-state-warriors-knee-injury-nba/
 

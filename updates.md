@@ -1,3 +1,7 @@
+**Stephen Curry leaves Warriors game against Detroit with knee soreness**\
+`The 12-time All-Star left the Warriors' game against Detroit in the third quarter and did not return.`\
+https://nytimes.com/athletic/7011802/2026/01/31/steph-curry-golden-state-warriors-knee-injury-nba/
+
 **Charlie Coyle stays hot with second career hat trick in Blue Jackets win**\
 `Coyle, coming off his 1,000th NHL game on Saturday, has been stacking good nights for a while now.`\
 https://nytimes.com/athletic/7011701/2026/01/31/charlie-coyle-second-hat-trick-blue-jackets-win/
