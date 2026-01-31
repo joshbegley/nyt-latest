@@ -1,3 +1,11 @@
+**My Favorite Dessert in New York City, Now on Demand**\
+`The silky chocolate mousse from Penny is utter bliss on a plate. I adapted the recipe so you can have it no matter where you are.`\
+https://nytimes.com/2026/01/31/dining/my-favorite-dessert-in-new-york-city-now-on-demand.html
+
+**Morris Waxler, F.D.A. Official Who Switched Stance on Lasik, Dies at 88**\
+`While at the federal agency, he approved the laser device for eye surgery but later warned of its potential to cause harm.`\
+https://nytimes.com/2026/01/31/obituaries/morris-waxler-dead.html
+
 **Draymond Green calls out ref after tech: 'Don’t put your hand in my face'**\
 `Green also addressed rumors that the Warriors could trade him for Milwaukee Bucks star Giannis Antetokounmpo.`\
 https://nytimes.com/athletic/7011870/2026/01/31/draymond-green-technical-foul-trade-rumors/
