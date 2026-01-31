@@ -1,3 +1,7 @@
+**‘We’ve Fought Side by Side’: Danish Veterans March Against Trump’s Comments**\
+`In the latest anti-American gathering in Denmark, veterans who went to war alongside U.S. troops took to the streets of Copenhagen.`\
+https://nytimes.com/2026/01/31/world/europe/denmark-military-march-us-troops.html
+
 **Chicago Orders Police to Document Potentially Illegal Federal Immigration Tactics**\
 `The order, signed by Mayor Brandon Johnson, instructs police officers to report allegations of unlawful conduct in an effort to prosecute the most aggressive federal immigration actions.`\
 https://nytimes.com/2026/01/31/us/chicago-police-federal-immigration.html
