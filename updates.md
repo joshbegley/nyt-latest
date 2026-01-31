@@ -1,3 +1,19 @@
+**What Would It Take to Actually Freeze the Hudson River?**\
+`New York City is icy and cold right now, but you’re probably not going to be able to walk to New Jersey any time soon.`\
+https://nytimes.com/2026/01/30/weather/hudson-river-new-york-frozen.html
+
+**Here’s What to Know About the Millions of Pages of Epstein Documents**\
+`Deputy Attorney General Todd Blanche signaled that this would be the last major release of files related to Jeffrey Epstein.`\
+https://nytimes.com/2026/01/30/us/what-to-know-epstein-files.html
+
+**Epstein offered Prince Andrew meeting with a ‘clever’ Russian woman, emails show.**\
+`By Debra Kamin`\
+https://nytimes.com/live/2026/01/30/us/epstein-files-release/epstein-prince-andrew
+
+**Two Students From Same School as 5-Year-Old Taken by ICE Are Also in Custody**\
+`The school’s principal said he brought two children to federal custody at the request of their mother, who was detained. Last week, another student, Liam Conejo Ramos, was picked up by immigration agents.`\
+https://nytimes.com/2026/01/30/us/valley-view-elementary-minnesota-children-ice-detention.html
+
 **U.N. Says It’s in Danger of Financial Collapse Because of Unpaid Dues**\
 `The world body warned it would run out of money by July and have to close its New York headquarters if countries, namely the United States, did not pay annual dues that amount to billions of dollars.`\
 https://nytimes.com/2026/01/30/world/americas/un-finances-collapse-debts.html
