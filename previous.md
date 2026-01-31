@@ -15,7 +15,7 @@ https://nytimes.com/athletic/7012239/2026/01/31/kentucky-vs-arkansas-stream-how-
 https://nytimes.com/2026/01/31/opinion/trump-minnesota-don-lemon-arrest-power-protest.html
 
 **NBA suspends 76ers' Paul George for 25 games for violating anti-drug policy**\
-`George's suspension begins with Saturday's game against the New Orleans Pelicans.`\
+`George's suspension begins Saturday, when the Sixers host the New Orleans Pelicans in Philadelphia.`\
 https://nytimes.com/athletic/7012213/2026/01/31/paul-george-suspended-sixers-nba-drug-policy/
 
 **The Briefing: Leeds 0 Arsenal 4 - Madueke steps up, Darlow's difficult day and Arteta's side respond**\
