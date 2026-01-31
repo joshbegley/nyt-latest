@@ -1,3 +1,15 @@
+**Judge Orders Release of 5-Year-Old, Whose Arrest Triggered Outrage**\
+`The detention of Liam Conejo Ramos, pictured wearing a blue winter hat and Spider-Man backpack while in the custody of immigration agents, drew outrage across the country.`\
+https://nytimes.com/2026/01/31/us/politics/judge-release-5-year-old-immigration-arrest.html
+
+**How to watch Mavericks vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7012561/2026/01/31/mavericks-vs-rockets-stream-how-to-watch-jan-31/
+
+**How to watch Kraken vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7012546/2026/01/31/kraken-vs-golden-knights-stream-how-to-watch-jan-31/
+
 **How to watch Saint Mary's (CA) vs. Gonzaga men's basketball: Time, TV, streaming**\
 `Find out how to watch the Saint Mary's Gaels play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7012539/2026/01/31/saint-mary-s-ca-vs-gonzaga-stream-how-to-watch-jan-31/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/31/us/winter-storm-snow-carolina-north-south.html
 **Ty Simpson: Exiting draft, transferring would 'tarnish my legacy' at Alabama**\
 `Simpson said he wasn't interested in playing at other schools after starting only one season at Alabama.`\
 https://nytimes.com/athletic/7012335/2026/01/31/ty-simpson-alabama-transfer-nfl-draft/
-
-**Chelsea 3 West Ham 2 - Liam Rosenior's side make club history with remarkable comeback win**\
-`A remarkable game at Stamford Bridge saw Chelsea out-classed up to the break, but rally to win as second-half changes made a timely impact`\
-https://nytimes.com/athletic/7006747/2026/01/31/chelsea-rosenior-comeback-west-ham-briefing/
-
-**California girls hockey team involved in deadly crash in Colorado**\
-`A snowplow driver lost control, breaking through the median of Interstate 70 about 60 miles west of Denver, the Colorado State Patrol said.`\
-https://nytimes.com/athletic/7012366/2026/01/31/santa-clarita-lady-flyers-colorado-snowplow-crash-fatal/
-
-**Pentagon Defends Restrictions on Media Outlets**\
-`The purpose of the new rules is to “stop activity that could compromise national security,” the Defense Department said in response to a New York Times lawsuit.`\
-https://nytimes.com/2026/01/31/business/media/pentagon-new-york-times-lawsuit.html
 
