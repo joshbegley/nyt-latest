@@ -1,3 +1,7 @@
+**Luka Dončić posts 26-point triple-double in first half in Washington**\
+`Dončić opened the game Friday with 16 points, seven rebounds and seven assists in the first quarter.`\
+https://nytimes.com/athletic/7011496/2026/01/30/luka-doncic-triple-double-los-angeles-lakers-nba/
+
 **‘Melania’ Review: 20 Stage-Managed Days in the Life of the First Lady**\
 `Directed by Brett Ratner, the documentary shows a woman deeply concerned with her appearance who rarely lets us behind her facade.`\
 https://nytimes.com/2026/01/30/movies/melania-trump-movie-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7010981/2026/01/30/twins-derek-falvey-mutual-breaku
 **She Called Mamdani a ‘Terrorist Lover.’ Did She Deserve to Be Promoted?**\
 `Inna Vernikov, a Republican city councilwoman, was named to help lead a task force to fight antisemitism. She later apologized for her remark about Mayor Zohran Mamdani.`\
 https://nytimes.com/2026/01/30/nyregion/inna-vernikov-nyc-council.html
-
-**What Is It Like to Be a Mom at the Olympics?**\
-`Two U.S. bobsled legends gear up to defend their medals with toddlers in the travel party.`\
-https://nytimes.com/video/the-athletic/100000010681023/what-is-it-like-to-be-a-mom-at-the-olympics.html
 

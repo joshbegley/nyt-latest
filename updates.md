@@ -1,3 +1,7 @@
+**‘Melania’ Review: 20 Stage-Managed Days in the Life of the First Lady**\
+`Directed by Brett Ratner, the documentary shows a woman deeply concerned with her appearance who rarely lets us behind her facade.`\
+https://nytimes.com/2026/01/30/movies/melania-trump-movie-review.html
+
 **Police Report Backs Activist’s Account in Clash With ICE Agent Near Chicago**\
 `A new report from a police department outside of Chicago sheds light on a rare battery charge brought against an ICE agent after a fight with an activist.`\
 https://nytimes.com/2026/01/30/us/ice-agent-assault-charge.html
