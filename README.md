@@ -1,3 +1,7 @@
+**Harrison Bader plans to make an impact with Giants: 'I love running balls down'**\
+`Bader discussed why he loves playing center field in his first public comments since joining the Giants on a two-year deal.`\
+https://nytimes.com/athletic/7011599/2026/01/30/sf-giants-harrison-bader-center-field-defense/
+
 **Christian Coleman facing charges in connection with Sha’Carri Richardson**\
 `Coleman is charged with resisting an officer and having drug paraphernalia inside his car, as well as several traffic violations.`\
 https://nytimes.com/athletic/7011248/2026/01/30/christian-coleman-shacarri-richardson-arrest-jail-speeding/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7011457/2026/01/30/unrivaled-womens-basketball-atte
 **Release of Three Million Epstein Pages Falls Short, Survivors Say**\
 `Todd Blanche, the deputy attorney general, told reporters on Friday that “there’s a hunger or a thirst for information that I do not think will be satisfied by the review of these documents.”`\
 https://nytimes.com/2026/01/30/us/politics/epstein-files-release.html
-
-**Patriots defensive coordinator Terrell Williams declared cancer-free after 4-month battle**\
-`The longtime NFL assistant received great news about his prostate cancer treatment ahead of Super Bowl 60.`\
-https://nytimes.com/athletic/7011430/2026/01/30/patriots-terrell-williams-cancer-free/
 
