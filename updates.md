@@ -1,3 +1,7 @@
+**Release of Three Million Epstein Pages Appears Unlikely to Satisfy**\
+`Democratic lawmakers and some survivors of Mr. Epstein’s abuse said the disclosure fell short.`\
+https://nytimes.com/2026/01/30/us/politics/epstein-files-release.html
+
 **Patriots defensive coordinator Terrell Williams declared cancer-free after 4-month battle**\
 `The longtime NFL assistant received great news about his prostate cancer treatment ahead of Super Bowl 60.`\
 https://nytimes.com/athletic/7011430/2026/01/30/patriots-terrell-williams-cancer-free/
