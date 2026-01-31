@@ -1,3 +1,7 @@
+**Winter Storm Hits the Carolinas**\
+`Some felt fatigued. Others were excited, as puffy white flakes floated down from the sky. Either way, North Carolina and South Carolina were bracing for a rare burst of cold and snow.`\
+https://nytimes.com/2026/01/31/us/winter-storm-snow-carolina-north-south.html
+
 **Ty Simpson: Exiting draft, transferring would 'tarnish my legacy' at Alabama**\
 `Simpson said he wasn't interested in playing at other schools after starting only one season at Alabama.`\
 https://nytimes.com/athletic/7012335/2026/01/31/ty-simpson-alabama-transfer-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/31/world/europe/denmark-military-march-us-troops.htm
 **Chicago Orders Police to Document Potentially Illegal Federal Immigration Tactics**\
 `The order, signed by Mayor Brandon Johnson, instructs police officers to report allegations of unlawful conduct in an effort to prosecute the most aggressive federal immigration actions.`\
 https://nytimes.com/2026/01/31/us/chicago-police-federal-immigration.html
-
-**Demond Wilson, Long-Suffering Son on ‘Sanford and Son,’ Dies at 79**\
-`As Lamont, he was a young man in constant battle with his father and business partner, played by Redd Foxx, on the popular 1970s series.`\
-https://nytimes.com/2026/01/31/arts/television/demond-wilson-dead.html
 
