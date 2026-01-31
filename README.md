@@ -1,9 +1,13 @@
+**How Paul George's suspension actually saves 76ers some money**\
+`While the 76ers will be worse on the court due to Paul George's 25-game suspension, they actually got a sizable financial bailout due to a CBA quirk.`\
+https://nytimes.com/athletic/7012522/2026/01/31/paul-george-suspension-76ers-luxury-tax-cba/
+
 **Rangers claim Vincent Iorio from Sharks: Where he fits and why now**\
 `The waiver claim for Iorio is a low-risk move for a team at the bottom of the Eastern Conference standings.`\
 https://nytimes.com/athletic/7012449/2026/01/31/rangers-claim-vincent-iorio-sharks/
 
 **Brighton's Watson set for Millwall loan until end of season**\
-`The 19-year-old signed last summer from Sheffield United and has registered ten appearances in all competitions this term. `\
+`The 19-year-old signed last summer from Sunderland and has registered ten appearances in all competitions this term. `\
 https://nytimes.com/athletic/7012499/2026/01/31/tommy-watson-brighton-millwall-transfer-news/
 
 **Winter Storm Hits the Carolinas**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/31/us/epstein-trump-gates-musk-tisch-andrew.html
 **Yankees considering options for adding right-handed outfield bat: Sources**\
 `The Yankees have been gauging prices of righty outfield bats, and Randal Grichuk is among the options they've considered, sources said. `\
 https://nytimes.com/athletic/7012306/2026/01/31/yankees-outfield-targets-free-agents-trade/
-
-**USWNT's Gaetino joins Denver Summit from PSG**\
-`The 23-year-old center-back made 45 appearances for the French side over two years, winning the Coupe de France Féminine`\
-https://nytimes.com/athletic/7012324/2026/01/31/eva-gaetino-denver-summit-psg-uswnt-transfer/
 

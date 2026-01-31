@@ -1,3 +1,11 @@
+**Rangers claim Vincent Iorio from Sharks: Where he fits and why now**\
+`The waiver claim for Iorio is a low-risk move for a team at the bottom of the Eastern Conference standings.`\
+https://nytimes.com/athletic/7012449/2026/01/31/rangers-claim-vincent-iorio-sharks/
+
+**Brighton's Watson set for Millwall loan until end of season**\
+`The 19-year-old signed last summer from Sheffield United and has registered ten appearances in all competitions this term. `\
+https://nytimes.com/athletic/7012499/2026/01/31/tommy-watson-brighton-millwall-transfer-news/
+
 **Winter Storm Hits the Carolinas**\
 `Some felt fatigued. Others were excited, as puffy white flakes floated down from the sky. Either way, North Carolina and South Carolina were bracing for a rare burst of cold and snow.`\
 https://nytimes.com/2026/01/31/us/winter-storm-snow-carolina-north-south.html
