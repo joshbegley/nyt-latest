@@ -1,3 +1,15 @@
+**WATCH: How Seahawks' offense reached new gear for Super Bowl LX run**\
+`It's not just Jaxon Smith-Njigba. From the run-pass marriage to personnel usage and play design, this Seahawks offense has been special.`\
+https://nytimes.com/athletic/7012010/2026/01/31/video-analysis-seahawks-super-bowl-jaxon-smith-njigba/
+
+**Solutions for the Crisis in Classical Music**\
+`Readers discuss ways to rescue the industry.`\
+https://nytimes.com/2026/01/31/opinion/classical-music.html
+
+**The Trad Life Fantasy Was Never Real**\
+`Stories from the past and present suggest that families have always needed a social safety net.`\
+https://nytimes.com/2026/01/31/opinion/trad-fantasy-fiction-family-economy.html
+
 **Aryna Sabalenka has the best problem a tennis player can have — and the worst**\
 `Sabalenka is a dominant world No. 1, but her record in Grand Slam finals is an increasingly heavy weight to bear.`\
 https://nytimes.com/athletic/7011997/2026/01/31/aryna-sabalenka-tennis-grand-slam-final-record/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7011740/2026/01/31/hockeys-olympic-spotlight-nears-
 **Lindsey Vonn withdraws from World Cup super-G, is 'doing my best' as Olympics near**\
 `Vonn provided a brief update Saturday on Instagram, thanking supporters as her Olympic status remains uncertain.`\
 https://nytimes.com/athletic/7011921/2026/01/31/lindsey-vonn-olympics-injury-crash-crans-montana/
-
-**'You can still do this': Connor Ingram's journey from 'dark days' and waivers to the Oilers net**\
-`After entering the player assistance program last year and then being traded, Connor Ingram has a 6-3-1 record for the Oilers.`\
-https://nytimes.com/athletic/7004769/2026/01/31/connor-ingram-oilers-waivers-comeback/
-
-**Outdoor hockey in Tampa? How the NHL is making the Lightning's dream reality**\
-`The challenge of building an outdoor rink in Tampa was a unique one for the NHL, given the sunshine, heat and humidity.`\
-https://nytimes.com/athletic/7009877/2026/01/31/tampa-bay-lightning-outdoor-game-nhl/
-
-**‘A steal for us’: Fraser Minten promoted by Bruins, hinting at big things to come**\
-`Coach Marco Sturm on Minten: “He just has that quality, I would say, to be up and down the lineup right away at his early age.”`\
-https://nytimes.com/athletic/7010846/2026/01/31/bruins-fraser-minten-injuries/
 
