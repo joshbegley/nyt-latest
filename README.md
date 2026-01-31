@@ -1,3 +1,11 @@
+**Yankees considering options for adding right-handed outfield bat: Sources**\
+`The Yankees have been gauging prices of righty outfield bats, and Randal Grichuk is among the options they've considered, sources said. `\
+https://nytimes.com/athletic/7012306/2026/01/31/yankees-outfield-targets-free-agents-trade/
+
+**USWNT's Gaetino joins Denver Summit from PSG**\
+`The 23-year-old center-back made 45 appearances for the French side over two years, winning the Coupe de France Féminine`\
+https://nytimes.com/athletic/7012324/2026/01/31/eva-gaetino-denver-summit-psg-uswnt-transfer/
+
 **‘We’ve Fought Side by Side’: Danish Veterans March Against Trump’s Comments**\
 `In the latest anti-American gathering in Denmark, veterans who went to war alongside U.S. troops took to the streets of Copenhagen.`\
 https://nytimes.com/2026/01/31/world/europe/denmark-military-march-us-troops.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7012305/2026/01/31/bulls-vs-heat-stream-how-to-watc
 **How to watch Predators vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7012300/2026/01/31/predators-vs-islanders-stream-how-to-watch-jan-31/
-
-**How to watch Timberwolves vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7012294/2026/01/31/timberwolves-vs-grizzlies-stream-how-to-watch-jan-31/
-
-**How to watch Pelicans vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7012289/2026/01/31/pelicans-vs-76ers-stream-how-to-watch-jan-31/
 
