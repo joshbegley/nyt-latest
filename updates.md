@@ -1,3 +1,7 @@
+**Sidney Crosby gets emotional as Penguins honor 2016 championship team**\
+`The 38-year-old Penguins captain broke into tears while watching the video tribute honoring the 2016 team on Saturday.`\
+https://nytimes.com/athletic/7012683/2026/01/31/sidney-crosby-penguins-2016-stanley-cup-championship/
+
 **Liverpool 4 Newcastle 1 - Ekitike's magic two minutes, Gordon a striker and Konate's emotional return**\
 `In a thrilling game, Liverpool came from behind at Anfield to defeat a spirited Newcastle and earn their first Premier League win of 2026`\
 https://nytimes.com/athletic/7006750/2026/01/31/liverpool-newcastle-ekitike-gordon-result-analysis/
