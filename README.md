@@ -1,3 +1,7 @@
+**Texas Special Runoff Election Results**\
+`Get live results and maps from the Jan. 31, 2026 Texas special runoff elections.`\
+https://nytimes.com/interactive/2026/01/31/us/elections/results-texas-special-runoff.html
+
 **Read the document**\
 `A judicial order freeing a 5-year-old boy and his father, detained by federal immigration authorities.`\
 https://nytimes.com/interactive/2026/01/31/us/31nat-liam-court-order-doc.html
@@ -8,7 +12,7 @@ https://nytimes.com/athletic/7012680/2026/01/31/flyers-kings-overtime-loss-score
 
 **Comical Mutation**\
 `Lance Enfinger and John Kugelman’s puzzle will transform you.`\
-https://nytimes.com/2026/01/31/crosswords/daily-puzzle-2026-02.html
+https://nytimes.com/2026/01/31/crosswords/daily-puzzle-2026-02-01.html
 
 **Moyes calls yellow card for celebrating Everton's goal 'f***ing sad'**\
 `The 62-year-old ran onto the pitch after Beto equalised in the 97th minute against Brighton on Saturday.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7010882/2026/01/31/nfl-draft-2026-senior-bowl-riser
 **Israel Launches Deadly Strikes in Gaza as Rafah Border Is Set to Reopen**\
 `The Israeli military launched a series of airstrikes on the Gaza Strip on Saturday. At least 26 people were killed in the attacks, according to the Gaza health ministry. The strikes came as Israel was expected to reopen the Rafah border between Gaza and Egypt.`\
 https://nytimes.com/video/world/middleeast/100000010681747/israel-launches-strikes-gaza.html
-
-**Paul George's suspension changes everything for Sixers ahead of NBA trade deadline**\
-`Joel Embiid made a not-so-suble hint Thursday that he wanted help. Now Paul George's suspension makes Embiid's request impossible to ignore.`\
-https://nytimes.com/athletic/7012350/2026/01/31/paul-george-suspension-nba-trade-deadline-sixers/
 
