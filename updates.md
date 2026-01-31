@@ -1,3 +1,7 @@
+**Moyes calls yellow card for celebrating Everton's goal 'f***ing sad'**\
+`The 62-year-old ran onto the pitch after Beto equalised in the 97th minute against Brighton on Saturday.`\
+https://nytimes.com/athletic/7012744/2026/01/31/david-moyes-everton-goal-celebration/
+
 **Sidney Crosby gets emotional as Penguins honor 2016 championship team**\
 `The 38-year-old Penguins captain broke into tears while watching the video tribute honoring the 2016 team on Saturday.`\
 https://nytimes.com/athletic/7012683/2026/01/31/sidney-crosby-penguins-2016-stanley-cup-championship/

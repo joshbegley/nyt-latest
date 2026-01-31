@@ -1,3 +1,7 @@
+**Moyes calls yellow card for celebrating Everton's goal 'f***ing sad'**\
+`The 62-year-old ran onto the pitch after Beto equalised in the 97th minute against Brighton on Saturday.`\
+https://nytimes.com/athletic/7012744/2026/01/31/david-moyes-everton-goal-celebration/
+
 **Sidney Crosby gets emotional as Penguins honor 2016 championship team**\
 `The 38-year-old Penguins captain broke into tears while watching the video tribute honoring the 2016 team on Saturday.`\
 https://nytimes.com/athletic/7012683/2026/01/31/sidney-crosby-penguins-2016-stanley-cup-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/31/us/politics/trump-schumer-deal.html
 **Rosenior hopes to be 'best decision' Chelsea has made**\
 `Saturday's win against West Ham was the first time Chelsea have come from two goals down to win a Premier League match.`\
 https://nytimes.com/athletic/7012612/2026/01/31/liam-rosenior-chelsea-best-decision-head-coach/
-
-**Laura Maioglio, Whose Restaurant Was a Theater District Mainstay, Dies at 93**\
-`Since 1962, she had overseen her father’s stately Italian restaurant, Barbetta, and became one of the city’s most enduring female restaurateurs.`\
-https://nytimes.com/2026/01/31/dining/laura-maioglio-dead.html
 
