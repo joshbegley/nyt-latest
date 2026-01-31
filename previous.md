@@ -1,3 +1,7 @@
+**Overlooked No More: Jimmy Reed, the Bluesman Everyone Covered, Then Forgot**\
+`His most enduring hits were recorded by Elvis Presley, Aretha Franklin, the Rolling Stones and the Grateful Dead. But his own career faded from view.`\
+https://nytimes.com/2026/01/31/obituaries/jimmy-reed-overlooked.html
+
 **Cade Cunningham's growth has earned him respect from some of the NBA's best defenders**\
 `“He’s awesome,” Warriors coach Steve Kerr said of Cunningham ahead of Friday's Pistons win. “He reminds me of Luka (Dončić), James Harden."`\
 https://nytimes.com/athletic/7011918/2026/01/31/cade-cunningham-growth-detroit-pistons/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012081/2026/01/31/sharks-vs-flames-stream-how-to-w
 **How to watch Jets vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7012079/2026/01/31/jets-vs-panthers-stream-how-to-watch-jan-31/
-
-**Minneapolis Residents Wear Their Passports, Desperate to Ward Off ICE**\
-`ICE agents can stop anyone they suspect of being undocumented. Now, residents are weighing their rights and their pride against their own safety.`\
-https://nytimes.com/2026/01/31/us/ice-minneapolis-residents-passports.html
 

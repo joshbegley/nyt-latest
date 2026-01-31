@@ -1,3 +1,7 @@
+**Overlooked No More: Jimmy Reed, the Bluesman Everyone Covered, Then Forgot**\
+`His most enduring hits were recorded by Elvis Presley, Aretha Franklin, the Rolling Stones and the Grateful Dead. But his own career faded from view.`\
+https://nytimes.com/2026/01/31/obituaries/jimmy-reed-overlooked.html
+
 **Cade Cunningham's growth has earned him respect from some of the NBA's best defenders**\
 `“He’s awesome,” Warriors coach Steve Kerr said of Cunningham ahead of Friday's Pistons win. “He reminds me of Luka (Dončić), James Harden."`\
 https://nytimes.com/athletic/7011918/2026/01/31/cade-cunningham-growth-detroit-pistons/
