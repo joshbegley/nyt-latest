@@ -1,40 +1,40 @@
-**Forest close on signing of Man City's Ortega**\
-`The 33-year-old is expected to sign a short-term contract at the City Ground, if the deal —in the region of £500k — goes through.`\
-https://nytimes.com/athletic/6508790/2026/01/31/nottingham-forest-transfers-ortega-man-city/
+**Mack Brown: Why I think Drake Maye can become one of the best ever**\
+`Brown coached the Patriots quarterback for three seasons at North Carolina. One trait stood out above the rest.`\
+https://nytimes.com/athletic/7004004/2026/01/31/drake-maye-super-bowl-patriots-mack-brown/
 
-**How to watch Spurs vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7011951/2026/01/31/spurs-vs-hornets-stream-how-to-watch-jan-31/
+**'You can still do this': Connor Ingram's journey from 'dark days' and waivers to the Oilers net**\
+`After entering the player assistance program last year and then being traded, Connor Ingram has a 6-3-1 record for the Oilers.`\
+https://nytimes.com/athletic/7004769/2026/01/31/connor-ingram-oilers-waivers-comeback/
 
-**How to watch Kings vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7011949/2026/01/31/kings-vs-flyers-stream-how-to-watch-jan-31/
+**Outdoor hockey in Tampa? How the NHL is making the Lightning's dream reality**\
+`The challenge of building an outdoor rink in Tampa was a unique one for the NHL, given the sunshine, heat and humidity.`\
+https://nytimes.com/athletic/7009877/2026/01/31/tampa-bay-lightning-outdoor-game-nhl/
 
-**How to watch Avalanche vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7011947/2026/01/31/avalanche-vs-red-wings-stream-how-to-watch-jan-31/
+**‘A steal for us’: Fraser Minten promoted by Bruins, hinting at big things to come**\
+`Coach Marco Sturm on Minten: “He just has that quality, I would say, to be up and down the lineup right away at his early age.”`\
+https://nytimes.com/athletic/7010846/2026/01/31/bruins-fraser-minten-injuries/
 
-**How to watch Cincinnati vs. Houston men's basketball: Time, TV, streaming**\
-`Find out how to watch the Cincinnati Bearcats play the Houston Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7011942/2026/01/31/cincinnati-vs-houston-stream-how-to-watch-jan-31/
+**Slovenian Sphinx Flick Nixed!**\
+`Melania’s movie, not exactly boffo box office.`\
+https://nytimes.com/2026/01/31/opinion/melania-trump-movie.html
 
-**How to watch SMU vs. Louisville men's basketball: Time, TV, streaming**\
-`Find out how to watch the SMU Mustangs play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7011940/2026/01/31/smu-vs-louisville-stream-how-to-watch-jan-31/
+**Pay More Attention to A.I.**\
+`A new world, hard to grasp and even harder to predict.`\
+https://nytimes.com/2026/01/31/opinion/artificial-intelligence-new-world.html
 
-**How to watch Arizona vs. Arizona State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Arizona Wildcats play the Arizona State Sun Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7011938/2026/01/31/arizona-vs-arizona-state-stream-how-to-watch-jan-31/
+**‘Relieved,’ ‘Enthusiastic,’ ‘Nervous’: Three Economists React to Trump’s Fed Pick**\
+`Questions remain about the Fed’s independence, the future path of interest rates and whether Kevin Warsh can reform the institution as he has proposed.`\
+https://nytimes.com/2026/01/31/opinion/kevin-warsh-jerome-powell-trump-fed-chair.html
 
-**How to watch Pittsburgh vs. Clemson men's basketball: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Panthers play the Clemson Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7011936/2026/01/31/pittsburgh-vs-clemson-stream-how-to-watch-jan-31/
+**Do We Want to Live in Alex Pretti’s America or Gregory Bovino’s?**\
+`As in the Civil Rights battles of the 1960s, Americans are at a fork and must pick their path.`\
+https://nytimes.com/2026/01/31/opinion/minneapolis-pretti-bovino.html
 
-**How to watch North Carolina vs. Georgia Tech men's basketball: Time, TV, streaming**\
-`Find out how to watch the North Carolina Tar Heels play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7011934/2026/01/31/north-carolina-vs-georgia-tech-stream-how-to-watch-jan-31/
+**The Midterm Elections Need You. Here’s How to Help.**\
+`The sanctity of the 2026 vote is indeed under threat.`\
+https://nytimes.com/2026/01/31/opinion/trump-midterms-election-security.html
 
-**How to watch Texas Tech vs. UCF men's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Tech Red Raiders play the UCF Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7011931/2026/01/31/texas-tech-vs-ucf-stream-how-to-watch-jan-31/
+**From 'Olé Olé' to 'Yeet the Fish': The most memorable local traditions in NHL arenas**\
+`If you attend a game in one of these arenas, you're likely to remember these fun gimmicks.`\
+https://nytimes.com/athletic/7008248/2026/01/31/nhl-arenas-chants-songs-gimmicks/
 
