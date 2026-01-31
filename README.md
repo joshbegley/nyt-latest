@@ -1,3 +1,7 @@
+**Aryna Sabalenka has the best problem a tennis player can have — and the worst**\
+`Sabalenka is a dominant world No. 1, but her record in Grand Slam finals is an increasingly heavy weight to bear.`\
+https://nytimes.com/athletic/7011997/2026/01/31/aryna-sabalenka-tennis-grand-slam-final-record/
+
 **Canada’s Conservatives Give Their Trump-Inspired Leader a Second Chance**\
 `Pierre Poilievre, a populist who led the Conservative Party to defeat last year, was retained as its leader on Friday, despite his dismal poll numbers.`\
 https://nytimes.com/2026/01/31/world/americas/canada-pierre-poilievre-conservatives.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7009877/2026/01/31/tampa-bay-lightning-outdoor-game
 **‘A steal for us’: Fraser Minten promoted by Bruins, hinting at big things to come**\
 `Coach Marco Sturm on Minten: “He just has that quality, I would say, to be up and down the lineup right away at his early age.”`\
 https://nytimes.com/athletic/7010846/2026/01/31/bruins-fraser-minten-injuries/
-
-**Mack Brown: Why I think Drake Maye can become one of the best ever**\
-`Brown coached the Patriots quarterback for three seasons at North Carolina. One trait stood out above the rest.`\
-https://nytimes.com/athletic/7004004/2026/01/31/drake-maye-super-bowl-patriots-mack-brown/
 
