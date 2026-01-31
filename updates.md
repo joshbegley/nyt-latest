@@ -1,3 +1,7 @@
+**Rosenior hopes to be 'best decision' Chelsea has made**\
+`Saturday's win against West Ham was the first time Chelsea have come from two goals down to win a Premier League match.`\
+https://nytimes.com/athletic/7012612/2026/01/31/liam-rosenior-chelsea-best-decision-head-coach/
+
 **Laura Maioglio, Whose Restaurant Was a Theater District Mainstay, Dies at 93**\
 `Since 1962, she had overseen her father’s stately Italian restaurant, Barbetta, and became one of the city’s most enduring female restaurateurs.`\
 https://nytimes.com/2026/01/31/dining/laura-maioglio-dead.html
