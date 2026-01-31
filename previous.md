@@ -1,3 +1,7 @@
+**Trump Called for ‘De-Escalation’ in Minneapolis. It Didn’t Last Long.**\
+`President Trump has offered dueling messages on the crisis in Minneapolis, part of pattern of dialing back his rhetoric only to change again if the political winds are shifting.`\
+https://nytimes.com/2026/01/30/us/politics/trump-minneapolis-dueling-messages.html
+
 **What Would It Take to Actually Freeze the Hudson River?**\
 `New York City is icy and cold right now, but you’re probably not going to be able to walk to New Jersey any time soon.`\
 https://nytimes.com/2026/01/30/weather/hudson-river-new-york-frozen.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/30/us/epstein-files-release/dont-hang-yourself-
 **Jeff Bezos’s Rocket Company Pauses Space Tourism to Focus on the Moon**\
 `The New Shepard rocket from Blue Origin, which brought 92 people on trips to the edge of space, will cease flying for at least two years as the company prioritizes NASA contracts.`\
 https://nytimes.com/2026/01/30/science/blue-origin-new-shepard-rocket-bezos.html
-
-**Minneapolis Mayor: Without Videos, ‘We’d All Be Living in a Lie’**\
-`Lulu Garcia-Navarro, co-host of “The Interview,” spoke to Minneapolis’s mayor, Jacob Frey, about the the killings of Renee Good and Alex Pretti, protests over aggressive federal actions and why fighting ICE isn’t just his city’s fight.`\
-https://nytimes.com/video/podcasts/100000010680805/minneapolis-ice-protests-mayor-frey.html
 

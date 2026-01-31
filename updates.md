@@ -1,3 +1,7 @@
+**Trump Called for ‘De-Escalation’ in Minneapolis. It Didn’t Last Long.**\
+`President Trump has offered dueling messages on the crisis in Minneapolis, part of pattern of dialing back his rhetoric only to change again if the political winds are shifting.`\
+https://nytimes.com/2026/01/30/us/politics/trump-minneapolis-dueling-messages.html
+
 **What Would It Take to Actually Freeze the Hudson River?**\
 `New York City is icy and cold right now, but you’re probably not going to be able to walk to New Jersey any time soon.`\
 https://nytimes.com/2026/01/30/weather/hudson-river-new-york-frozen.html
