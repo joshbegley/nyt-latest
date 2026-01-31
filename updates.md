@@ -1,3 +1,7 @@
+**Linus Ullmark to make first start since returning from personal leave**\
+`The Ottawa goalie hasn't played since Dec. 27 and stepped away from the team for mental health reasons.`\
+https://nytimes.com/athletic/6968626/2026/01/31/linus-ullmark-senators-return-personal-leave/
+
 **Trump’s Brute-Force Approach to Power Is Wearing Thin**\
 `Arresting Don Lemon doesn’t send the message the president wants it to.`\
 https://nytimes.com/2026/01/31/opinion/trump-minnesota-don-lemon-arrest-power-protest.html
