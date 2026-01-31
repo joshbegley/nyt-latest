@@ -1,3 +1,8 @@
+**Frank Nazar, Connor Bedard starting to find groove together for Blackhawks**\
+`Friday marked their third game together, and it was their best despite the Blackhawks' 4-2 loss to the Columbus Blue Jackets.
+`\
+https://nytimes.com/athletic/7011682/2026/01/31/blackhawks-lose-blue-jackets-frank-nazar-connor-bedard-groove/
+
 **How to watch the 2026 Senior Bowl: Players to know, TV info for CFB showcase**\
 `NFL Draft hopefuls get another chance to show off their skills and bid farewell to the college game.`\
 https://nytimes.com/athletic/7010681/2026/01/31/senior-bowl-rosters-nfl-draft-how-to-watch-2026/
