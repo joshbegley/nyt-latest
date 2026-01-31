@@ -1,4 +1,8 @@
 **Michigan ends eight-year drought in East Lansing, tops No. 7 Michigan State in highest-ranked rivalry clash**\
+`Elliot Cadeau's clutch performance late in the second half lifts the Michigan over Michigan State after the Spartans near comeback.`\
+https://nytimes.com/athletic/7011409/2026/01/30/michigan-michigan-state-rivaly-ranked/
+
+**Michigan ends eight-year drought in East Lansing, tops No. 7 Michigan State in highest-ranked rivalry clash**\
 `Elliot Cadeau's clutch performance late in the second half lifts the Wolverines over Michigan State after the Spartans second-half comeback.`\
 https://nytimes.com/athletic/7011409/2026/01/30/michigan-michigan-state-rivaly-ranked/
 
