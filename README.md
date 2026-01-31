@@ -1,3 +1,7 @@
+**How to watch Spurs vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7011951/2026/01/31/spurs-vs-hornets-stream-how-to-watch-jan-31/
+
 **How to watch Kings vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7011949/2026/01/31/kings-vs-flyers-stream-how-to-watch-jan-31/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7011931/2026/01/31/texas-tech-vs-ucf-stream-how-to-
 **How to watch Virginia vs. Boston College men's basketball: Time, TV, streaming**\
 `Find out how to watch the Virginia Cavaliers play the Boston College Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7011928/2026/01/31/virginia-vs-boston-college-stream-how-to-watch-jan-31/
-
-**How to watch Duke vs. Virginia Tech men's basketball: Time, TV, streaming**\
-`Find out how to watch the Duke Blue Devils play the Virginia Tech Hokies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7011926/2026/01/31/duke-vs-virginia-tech-stream-how-to-watch-jan-31/
 

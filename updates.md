@@ -1,3 +1,8 @@
+**Frank Nazar, Connor Bedard starting to find groove together for Blackhawks**\
+`Friday marked their third game together, and it was their best despite the Blackhawks' 4-2 loss to the Columbus Blue Jackets.
+`\
+https://nytimes.com/athletic/7011682/2026/01/31/blackhawks-lose-blue-jackets-frank-nazar-connor-bedard-groove/
+
 **How to watch SMU vs. Louisville men's basketball: Time, TV, streaming**\
 `Find out how to watch the SMU Mustangs play the Louisville Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7011940/2026/01/31/smu-vs-louisville-stream-how-to-watch-jan-31/
