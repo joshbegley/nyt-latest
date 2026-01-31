@@ -1,3 +1,15 @@
+**How to watch Ole Miss vs. Vanderbilt men's basketball: Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7012243/2026/01/31/ole-miss-vs-vanderbilt-stream-how-to-watch-jan-31/
+
+**How to watch UConn vs. Creighton men's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the Creighton Bluejays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7012241/2026/01/31/uconn-vs-creighton-stream-how-to-watch-jan-31/
+
+**How to watch Kentucky vs. Arkansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7012239/2026/01/31/kentucky-vs-arkansas-stream-how-to-watch-jan-31/
+
 **Linus Ullmark to make first start since returning from personal leave**\
 `The Ottawa goalie hasn't played since Dec. 27 and stepped away from the team for mental health reasons.`\
 https://nytimes.com/athletic/6968626/2026/01/31/linus-ullmark-senators-return-personal-leave/
