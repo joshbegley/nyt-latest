@@ -1,6 +1,6 @@
 **An Ocean of Frozen Flowers Grows Where Alex Pretti Was Killed**\
 `One week after the I.C.U. nurse was shot dead by federal agents, tributes continue to build on the sidewalk where he fell.`\
-https://nytimes.com/2026/01/31/us/an-ocean-of-frozen-flowers-grows-where-alex-pretti-was-killed.html
+https://nytimes.com/2026/01/31/us/alex-pretti-memorial-minneapolis.html
 
 **Bovino Is Said to Have Mocked Prosecutor’s Jewish Faith on Call With Lawyers**\
 `Gregory Bovino, the Border Patrol field leader, made disparaging remarks in reference to the U.S. attorney in Minnesota, an Orthodox Jew, people with knowledge of the phone call said.`\

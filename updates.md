@@ -1,3 +1,15 @@
+**An Ocean of Frozen Flowers Grows Where Alex Pretti Was Killed**\
+`One week after the I.C.U. nurse was shot dead by federal agents, tributes continue to build on the sidewalk where he fell.`\
+https://nytimes.com/2026/01/31/us/an-ocean-of-frozen-flowers-grows-where-alex-pretti-was-killed.html
+
+**Bovino Is Said to Have Mocked Prosecutor’s Jewish Faith on Call With Lawyers**\
+`Gregory Bovino, the Border Patrol field leader, made disparaging remarks in reference to the U.S. attorney in Minnesota, an Orthodox Jew, people with knowledge of the phone call said.`\
+https://nytimes.com/2026/01/31/us/bovino-jewish-prosecutor-minnesota.html
+
+**Bills hiring Broncos' Jim Leonhard as defensive coordinator**\
+`Leonhard is the second former Broncos assistant in as many days to join new Bills head coach Joe Brady's staff.`\
+https://nytimes.com/athletic/7012143/2026/01/31/bills-jim-leonhard-defensive-coordinator-broncos/
+
 **Senior Bowl winners by position: Which 2026 NFL Draft picks impressed scouts this week?**\
 `LSU quarterback Garrett Nussmeier and Notre Dame receiver Malachi Fields were among this week's risers.`\
 https://nytimes.com/athletic/7010882/2026/01/31/nfl-draft-2026-senior-bowl-risers-prospects/
