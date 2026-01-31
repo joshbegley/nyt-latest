@@ -1,6 +1,6 @@
 **Liverpool 4 Newcastle 1 - Ekitike's magic two minutes, Gordon a striker and Konate's emotional return**\
 `In a thrilling game, Liverpool came from behind at Anfield to defeat a spirited Newcastle and earn their first Premier League win of 2026`\
-https://nytimes.com/athletic/7006750/2026/01/31/liverpool-4-newcastle-1-ekitikes-magic-two-minutes-gordon-a-striker-and-konates-emotional-return/
+https://nytimes.com/athletic/7006750/2026/01/31/liverpool-newcastle-ekitike-gordon-result-analysis/
 
 **T. Kumar, Rights Activist Who Was Shaped by His Time in Prison, Dies at 76**\
 `After being jailed as a resistance organizer for the Tamil minority in his native Sri Lanka, he spoke out against governmental repression worldwide.`\
