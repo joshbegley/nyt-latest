@@ -1,3 +1,15 @@
+**How to watch BYU vs. Kansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the Kansas Jayhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7012067/2026/01/31/byu-vs-kansas-stream-how-to-watch-jan-31/
+
+**How to watch Northern Illinois vs. Miami (OH) men's basketball: Time, TV, streaming**\
+`Find out how to watch the Northern Illinois Huskies play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7012065/2026/01/31/northern-illinois-vs-miami-oh-stream-how-to-watch-jan-31/
+
+**Elena Rybakina's complex path to a straightforward Australian Open title**\
+`Rybakina's serene run to a first major title in three-and-a-half years stands in contrast to her past 18 months off the court.`\
+https://nytimes.com/athletic/7011995/2026/01/31/tennis-elena-rybakina-australian-open/
+
 **WATCH: How Seahawks' offense reached new gear for Super Bowl LX run**\
 `It's not just Jaxon Smith-Njigba. From the run-pass marriage to personnel usage and play design, this Seahawks offense has been special.`\
 https://nytimes.com/athletic/7012010/2026/01/31/video-analysis-seahawks-super-bowl-jaxon-smith-njigba/
