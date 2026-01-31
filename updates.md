@@ -1,3 +1,7 @@
+**Linus Ullmark to make first start since returning from personal leave**\
+`The Ottawa goalie hasn't played since Dec. 27, 2025, and stepped away from the team for mental health reasons.`\
+https://nytimes.com/athletic/6968626/2026/01/31/linus-ullmark-senators-return-personal-leave/
+
 **Federal Judge Denies Request to Block ICE Surge in Minnesota**\
 `Local officials had argued that the decision to send some 3,000 immigration agents to Minnesota amounted to a violation of state sovereignty.`\
 https://nytimes.com/2026/01/31/us/judge-minnesota-ice-ruling.html

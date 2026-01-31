@@ -1,3 +1,7 @@
+**Linus Ullmark to make first start since returning from personal leave**\
+`The Ottawa goalie hasn't played since Dec. 27, 2025, and stepped away from the team for mental health reasons.`\
+https://nytimes.com/athletic/6968626/2026/01/31/linus-ullmark-senators-return-personal-leave/
+
 **Federal Judge Denies Request to Block ICE Surge in Minnesota**\
 `Local officials had argued that the decision to send some 3,000 immigration agents to Minnesota amounted to a violation of state sovereignty.`\
 https://nytimes.com/2026/01/31/us/judge-minnesota-ice-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7011918/2026/01/31/cade-cunningham-growth-detroit-p
 **When the Doctor Needs a Checkup**\
 `The physician work force is aging fast, and some hospitals now require that older clinicians undergo testing for cognitive decline. Many have resisted.`\
 https://nytimes.com/2026/01/31/health/doctors-cognitive-decline.html
-
-**My Favorite Dessert in New York City, Now on Demand**\
-`The silky chocolate mousse from Penny is utter bliss on a plate. I adapted the recipe so you can have it no matter where you are.`\
-https://nytimes.com/2026/01/31/dining/my-favorite-dessert-in-new-york-city-now-on-demand.html
 
