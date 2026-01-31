@@ -1,3 +1,7 @@
+**Powerful Men Who Turn Up in the New Batch of Epstein Files**\
+`Elon Musk, Richard Branson and Sergey Brin were among those who exchanged messages or visited with Jeffrey Epstein, according to the newly released documents.`\
+https://nytimes.com/2026/01/31/us/epstein-trump-gates-musk-tisch-andrew.html
+
 **Yankees considering options for adding right-handed outfield bat: Sources**\
 `The Yankees have been gauging prices of righty outfield bats, and Randal Grichuk is among the options they've considered, sources said. `\
 https://nytimes.com/athletic/7012306/2026/01/31/yankees-outfield-targets-free-agents-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012311/2026/01/31/blue-jackets-vs-blues-stream-how
 **How to watch Bulls vs. Heat: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Miami Heat, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7012305/2026/01/31/bulls-vs-heat-stream-how-to-watch-jan-31/
-
-**How to watch Predators vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7012300/2026/01/31/predators-vs-islanders-stream-how-to-watch-jan-31/
 

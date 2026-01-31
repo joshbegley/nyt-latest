@@ -1,3 +1,11 @@
+**Yankees considering options for adding right-handed outfield bat: Sources**\
+`The Yankees have been gauging prices of righty outfield bats, and Randal Grichuk is among the options they've considered, sources said. `\
+https://nytimes.com/athletic/7012306/2026/01/31/yankees-outfield-targets-free-agents-trade/
+
+**USWNT's Gaetino joins Denver Summit from PSG**\
+`The 23-year-old center-back made 45 appearances for the French side over two years, winning the Coupe de France Féminine`\
+https://nytimes.com/athletic/7012324/2026/01/31/eva-gaetino-denver-summit-psg-uswnt-transfer/
+
 **‘We’ve Fought Side by Side’: Danish Veterans March Against Trump’s Comments**\
 `In the latest anti-American gathering in Denmark, veterans who went to war alongside U.S. troops took to the streets of Copenhagen.`\
 https://nytimes.com/2026/01/31/world/europe/denmark-military-march-us-troops.html
