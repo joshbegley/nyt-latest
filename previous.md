@@ -1,40 +1,41 @@
-**These Gazans May Finally Get a Lifeline to the World**\
-`Thousands of Palestinians are waiting to be evacuated for medical treatment as the border between Gaza and Egypt looks set to reopen in the coming days.`\
-https://nytimes.com/2026/01/31/world/middleeast/gaza-medical-evacuation-rafah-crossing.html
+**How to watch the 2026 Senior Bowl: Players to know, TV info for CFB showcase**\
+`NFL Draft hopefuls get another chance to show off their skills and bid farewell to the college game.`\
+https://nytimes.com/athletic/7010681/2026/01/31/senior-bowl-rosters-nfl-draft-how-to-watch-2026/
 
-**This fan visited every NFL stadium this season to highlight wheelchair accessibility**\
-`Ortiz went to as many as four games in one weekend and saw three games in a week four times during his season-long tour.`\
-https://nytimes.com/athletic/6999789/2026/01/31/nfl-fan-stadium-tour-wheelchair-accessibility/
+**Game, Set, Match: Elena Rybakina denies Aryna Sabalenka comeback to win Australian Open title**\
+`The world No. 5 claimed her second Grand Slam title by staving off a comeback from the world No. 1 at Melbourne Park.`\
+https://nytimes.com/athletic/7011695/2026/01/31/aryna-sabalenka-elena-rybakina-australian-open-final-result-analysis/
 
-**Malcolm Butler on the path he took to the interception, and everything that followed**\
-`With the Patriots and Seahawks set for a Super Bowl XLIX rematch, catching up with the game's unexpected star.`\
-https://nytimes.com/athletic/7011579/2026/01/31/malcolm-butler-interception-career/
+**Frank Nazar, Connor Bedard starting to find groove together for Blackhawks**\
+`Friday marked their third game together, and it was their best despite the Blackhawks' 4-2 loss to the Columbus Blue Jackets.
+`\
+https://nytimes.com/athletic/7011682/2026/01/31/blackhawks-lose-blue-jackets-frank-nazar-connor-bedard-groove/
 
-**‘A Terrifying Line Is Being Crossed’: Mayor Jacob Frey on the Turmoil in Minneapolis**\
-`The Minnesota Democrat on the battle between his city and the federal government.`\
-https://nytimes.com/2026/01/31/magazine/jacob-frey-interview.html
+**Robert Saleh used to think Brian Daboll was a jerk. Now they work together**\
+`Saleh is hoping Daboll's work with QBs will help 2025 No. 1 pick Cam Ward, who will be at the heart of what the Titans do on offense.`\
+https://nytimes.com/athletic/7010712/2026/01/31/titans-robert-saleh-brian-daboll-cam-ward/
 
-**Kevin Warsh Has a Tough Job Ahead. It’s Not the First Time.**\
-`Mr. Warsh is known as a consensus builder, skills he will need if he is to head the Federal Reserve when President Trump is demanding rock-bottom rates.`\
-https://nytimes.com/2026/01/31/business/kevin-warsh-fed-chair.html
+**Mirtle: What would a Maple Leafs retool look like? And can they follow the Bruins model?**\
+`The struggling Maple Leafs may be able to follow the Bruins' blueprint from last season's trade deadline to retool their roster. `\
+https://nytimes.com/athletic/7011624/2026/01/31/maple-leafs-retool-bruins-model-trade/
 
-**What to Know About Anti-ICE Protests This Weekend**\
-`Organizers are trying to build on the momentum created after the killings of two protesters in Minneapolis this month.`\
-https://nytimes.com/2026/01/31/us/what-to-know-about-anti-ice-protests-this-weekend.html
+**The unique father-son connection behind a Braves prospect's baseball card**\
+`A father and son combined to create a meaningful card, and another father and his sons made sure it returned to them. `\
+https://nytimes.com/athletic/7009005/2026/01/31/baseball-cards-family-atlanta-braves-miller/
 
-**A Hawkish Kevin Warsh at the Fed Could Haunt Bessent**\
-`The Treasury Secretary Scott Bessent tried to avoid providing President Trump with a clear recommendation to lead the central bank.`\
-https://nytimes.com/2026/01/31/business/scott-bessent-kevin-warsh-trump.html
+**Kloke: Maple Leafs can't let their next Fraser Minten get away**\
+`Fraser Minten's success in Boston shows it's time for a youth movement in Toronto. Prospects and picks need to be a priority in a re-tool.`\
+https://nytimes.com/athletic/7010521/2026/01/31/maple-leafs-prospects-trade-deadline/
 
-**Sell America Is the New Trade on Wall Street**\
-`Investors are increasingly souring on the United States, as illustrated by the declining dollar, the stalled stock market and rising government borrowing costs.`\
-https://nytimes.com/2026/01/31/business/sell-america-dollar-financial-markets.html
+**What's behind the Sabres' sudden surge? 6 key reasons for their turnaround**\
+`The Sabres are on a 20-3-1 stretch and have climbed from last place in the Eastern Conference to a playoff spot.`\
+https://nytimes.com/athletic/7010257/2026/01/31/buffalo-sabres-record-standings-stats-surge/
 
-**A Predictor of a Good Social Life? Your Parents.**\
-`A decades-long study suggested that close relationships with family members during teenage years could lead to a rich network of friendships in adulthood.`\
-https://nytimes.com/2026/01/31/health/parents-teens-social-life.html
+**J.T. Miller trade, one year later: Why the real winner isn't the Rangers or Canucks**\
+`Since the trade, two teams hit rock bottom while one surprising winner emerged: Who actually won last year's blockbuster?`\
+https://nytimes.com/athletic/7010586/2026/01/31/jt-miller-trade-penguins-rangers-canucks-nhl/
 
-**Politicians Are Calling the Protests in Minnesota an Insurgency**\
-`The term, used to describe war, poses dangers when applied to American political unrest.`\
-https://nytimes.com/2026/01/31/us/politics/minnesota-protests-insurgency.html
+**What we learned from F1’s secret test: An early favorite, and two concerns**\
+`A strange week in Barcelona leaves us with more questions than answers as the F1 season approaches`\
+https://nytimes.com/athletic/7011744/2026/01/31/f1-secret-test-barcelona-takeaways/
 

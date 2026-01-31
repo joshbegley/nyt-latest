@@ -1,3 +1,15 @@
+**How to watch Texas Tech vs. UCF men's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Red Raiders play the UCF Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7011931/2026/01/31/texas-tech-vs-ucf-stream-how-to-watch-jan-31/
+
+**How to watch Virginia vs. Boston College men's basketball: Time, TV, streaming**\
+`Find out how to watch the Virginia Cavaliers play the Boston College Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7011928/2026/01/31/virginia-vs-boston-college-stream-how-to-watch-jan-31/
+
+**How to watch Duke vs. Virginia Tech men's basketball: Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the Virginia Tech Hokies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7011926/2026/01/31/duke-vs-virginia-tech-stream-how-to-watch-jan-31/
+
 **How to watch the 2026 Senior Bowl: Players to know, TV info for CFB showcase**\
 `NFL Draft hopefuls get another chance to show off their skills and bid farewell to the college game.`\
 https://nytimes.com/athletic/7010681/2026/01/31/senior-bowl-rosters-nfl-draft-how-to-watch-2026/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/7009005/2026/01/31/baseball-cards-family-atlanta-br
 **Kloke: Maple Leafs can't let their next Fraser Minten get away**\
 `Fraser Minten's success in Boston shows it's time for a youth movement in Toronto. Prospects and picks need to be a priority in a re-tool.`\
 https://nytimes.com/athletic/7010521/2026/01/31/maple-leafs-prospects-trade-deadline/
-
-**What's behind the Sabres' sudden surge? 6 key reasons for their turnaround**\
-`The Sabres are on a 20-3-1 stretch and have climbed from last place in the Eastern Conference to a playoff spot.`\
-https://nytimes.com/athletic/7010257/2026/01/31/buffalo-sabres-record-standings-stats-surge/
-
-**J.T. Miller trade, one year later: Why the real winner isn't the Rangers or Canucks**\
-`Since the trade, two teams hit rock bottom while one surprising winner emerged: Who actually won last year's blockbuster?`\
-https://nytimes.com/athletic/7010586/2026/01/31/jt-miller-trade-penguins-rangers-canucks-nhl/
-
-**What we learned from F1’s secret test: An early favorite, and two concerns**\
-`A strange week in Barcelona leaves us with more questions than answers as the F1 season approaches`\
-https://nytimes.com/athletic/7011744/2026/01/31/f1-secret-test-barcelona-takeaways/
 
