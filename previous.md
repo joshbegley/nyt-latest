@@ -1,3 +1,11 @@
+**Google co-founder had long relationship with Maxwell and visited Epstein’s island.**\
+`By Debra Kamin`\
+https://nytimes.com/live/2026/01/30/us/epstein-files-release/epstein-maxwell-google-sergey-brin
+
+**Trump Officials Bypass Congress to Push Billions in Weapons Aid to Israel**\
+`The move was the third time the Trump administration has tried to expedite arms shipments to Israel by going around the review process for weapons sales.`\
+https://nytimes.com/2026/01/30/us/politics/trump-congress-weapons-aid-israel.html
+
 **Unrivaled breaks attendance record for women's professional basketball**\
 `In one night, Unrivaled broke a women's basketball attendance record and turned almost the same revenue from 2025.`\
 https://nytimes.com/athletic/7011457/2026/01/30/unrivaled-womens-basketball-attendance-record/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7011172/2026/01/30/amari-bailey-college-basketball-
 **After Bovino Leaves, Minnesotans Search for Signs of Change in Crackdown**\
 `Arrests were continuing, according to residents who have tracked the immigration crackdown in the Twin Cities, but some people observed fewer clashes.`\
 https://nytimes.com/2026/01/30/us/minneapolis-ice-crackdown-change.html
-
-**Epstein contacted women for Steve Tisch, co-owner of the Giants.**\
-`By Jenny Vrentas`\
-https://nytimes.com/live/2026/01/30/us/epstein-files-release/epstein-giants-steve-tisch
-
-**F.B.I. Presentation Outlines Allegations Against Powerful Men**\
-`A 21-page slide presentation summarized the agency’s investigations into Jeffrey Epstein.`\
-https://nytimes.com/2026/01/30/us/fbi-presentation-powerful-men.html
 

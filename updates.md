@@ -1,3 +1,11 @@
+**Google co-founder had long relationship with Maxwell and visited Epstein’s island.**\
+`By Debra Kamin`\
+https://nytimes.com/live/2026/01/30/us/epstein-files-release/epstein-maxwell-google-sergey-brin
+
+**Trump Officials Bypass Congress to Push Billions in Weapons Aid to Israel**\
+`The move was the third time the Trump administration has tried to expedite arms shipments to Israel by going around the review process for weapons sales.`\
+https://nytimes.com/2026/01/30/us/politics/trump-congress-weapons-aid-israel.html
+
 **Unrivaled breaks attendance record for women's professional basketball**\
 `In one night, Unrivaled broke a women's basketball attendance record and turned almost the same revenue from 2025.`\
 https://nytimes.com/athletic/7011457/2026/01/30/unrivaled-womens-basketball-attendance-record/
