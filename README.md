@@ -1,3 +1,7 @@
+**Jason Kidd on media criticism of Cooper Flagg at PG: 'You guys have never played the game'**\
+`The 83 points Flagg has scored since Thursday are the most a teenager has ever produced in a two-game span in NBA history.`\
+https://nytimes.com/athletic/7013219/2026/02/01/jason-kidd-media-criticism-cooper-flagg-never-played-the-game/
+
 **Democratic Upset in Deep Red Texas District Rattles Republicans**\
 `A Democrat won a state legislative special election in a district that President Trump carried by 17 percentage points, unnerving Republicans in Texas and beyond.`\
 https://nytimes.com/2026/02/01/us/democratic-upset-texas-district-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012447/2026/02/01/leeds-darlow-perri-larsen-goalke
 **With the walls closing in, Arsenal really needed this bold and courageous reaction**\
 `After three games without a win in the Premier League, Mikel Arteta's side navigated a tempestuous atmosphere at Elland Road`\
 https://nytimes.com/athletic/7012385/2026/02/01/arsenal-leeds-reaction-madueke-gyokeres-zubimendi/
-
-**How to leave a football club the right way - and how not to do it**\
-`Antoine Semenyo took out a full-page newspaper advert, while Josh Sargent is finding that departing on good terms can be difficult`\
-https://nytimes.com/athletic/6993731/2026/02/01/how-to-leave-a-football-club/
 
