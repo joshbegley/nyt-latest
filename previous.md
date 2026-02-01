@@ -1,3 +1,11 @@
+**Canadian Company Cancels Sale of Virginia Warehouse to ICE**\
+`Jim Pattison Developments said the sale of an industrial building, which was planned to become an Immigration and Customs Enforcement processing facility, would not go forward.`\
+https://nytimes.com/2026/02/01/us/politics/ice-warehouse-detention-canada.html
+
+**49ers hiring Raheem Morris as defensive coordinator: Sources**\
+`Morris will be the 49ers' fifth defensive coordinator in as many seasons, after Robert Saleh left to become the Titans' head coach.`\
+https://nytimes.com/athletic/7004901/2026/02/01/raheem-morris-49ers-defensive-coordinator/
+
 **Cardinals plan to hire Rams OC Mike LaFleur as head coach: Source**\
 `LaFleur will replace Jonathan Gannon, who was fired after amassing a 15-36 record over three seasons with the Cardinals.`\
 https://nytimes.com/athletic/6996491/2026/02/01/mike-lafleur-cardinals-head-coach-hired/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7014029/2026/02/01/golden-knights-vs-ducks-stream-h
 **How to watch Clippers vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7014027/2026/02/01/clippers-vs-suns-stream-how-to-watch-feb-1/
-
-**Atlético Madrid in talks with Seattle Sounders for Obed Vargas: Sources**\
-`Vargas talked about how he had grown up a fan of Atlético before a Sounders matchup against the club in the FIFA Club World Cup.`\
-https://nytimes.com/athletic/7013957/2026/02/01/obed-vargas-atletico-madrid-seattle-sounders-transfer/
-
-**Detained by Immigration Agents, 5-Year-Old Liam Has Been Released From Custody**\
-`A federal judge had demanded that the boy and his father be set free in a fiery opinion on Saturday.`\
-https://nytimes.com/2026/02/01/us/politics/trump-liam-release.html
 

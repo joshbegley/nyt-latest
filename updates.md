@@ -1,3 +1,11 @@
+**Canadian Company Cancels Sale of Virginia Warehouse to ICE**\
+`Jim Pattison Developments said the sale of an industrial building, which was planned to become an Immigration and Customs Enforcement processing facility, would not go forward.`\
+https://nytimes.com/2026/02/01/us/politics/ice-warehouse-detention-canada.html
+
+**49ers hiring Raheem Morris as defensive coordinator: Sources**\
+`Morris will be the 49ers' fifth defensive coordinator in as many seasons, after Robert Saleh left to become the Titans' head coach.`\
+https://nytimes.com/athletic/7004901/2026/02/01/raheem-morris-49ers-defensive-coordinator/
+
 **Cardinals plan to hire Rams OC Mike LaFleur as head coach: Source**\
 `LaFleur will replace Jonathan Gannon, who was fired after amassing a 15-36 record over three seasons with the Cardinals.`\
 https://nytimes.com/athletic/6996491/2026/02/01/mike-lafleur-cardinals-head-coach-hired/
