@@ -1,4 +1,4 @@
-**Frank Thomas upset with lack of mention in White Sox Black History Month graphic**\
+**Frank Thomas upset with White Sox Black History Month graphic**\
 `"I guess the black player who made you rich over there and holds all your records is forgettable!" the Hall of Famer wrote on X.`\
 https://nytimes.com/athletic/7013959/2026/02/01/frank-thomas-white-sox-black-history-month/
 
