@@ -1,3 +1,7 @@
+**Shohei Ohtani full-go for 2-way play on Opening Day, but won't pitch in WBC**\
+`Ohtani will DH for Team Japan, but won't pitch in the WBC because "he will be ramping up his arm to get ready for this season."`\
+https://nytimes.com/athletic/7012555/2026/01/31/shohei-ohtani-two-way-opening-day-wbc-pitching/
+
 **Protesters Rally Across the U.S. in Solidarity With Minneapolis**\
 `Church bells pealed in the Twin Cities to express support for detainees and protesters who oppose federal immigration agents’ aggressive tactics.`\
 https://nytimes.com/2026/01/31/us/protesters-rally-solidarity-minneapolis.html
