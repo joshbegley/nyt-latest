@@ -1,3 +1,7 @@
+**Mateta set to join Milan from Palace in excess of €30m deal**\
+`The 28-year-old is undergoing a medical on Sunday ahead of the proposed move after 186 appearances with the south London side. `\
+https://nytimes.com/athletic/6999684/2026/02/01/jean-phillipe-mateta-milan-crystal-palace-transfer-news/
+
 **Religious Leaders in Minnesota Say It’s Their Duty to Resist ICE**\
 `Progressive clergy members are in the spotlight — protesting, organizing and getting arrested. It’s a split screen to the Trump administration’s muscular, conservative Christianity.`\
 https://nytimes.com/2026/02/01/briefing/religious-leaders-in-minnesota-say-its-their-duty-to-resist-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/01/opinion/texas-plato-campus-censorship.html
 **Madrid's Bellingham sustains left hamstring issue**\
 `The midfielder pulled up mid-sprint holding his left leg nine minutes into the game and was replaced by Brahim Diaz.`\
 https://nytimes.com/athletic/7013485/2026/02/01/jude-bellingham-real-madrid-hamstring-injury/
-
-**How to watch Kings vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013481/2026/02/01/kings-vs-hurricanes-stream-how-to-watch-feb-1/
 

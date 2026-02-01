@@ -1,5 +1,13 @@
-**Mateta set to join Milan from Palace in excess of €30m deal**\
-`The 28-year-old is undergoing a medical on Sunday ahead of the proposed move after 186 appearances with the south London side. `\
+**Carlos Alcaraz has the career Grand Slam, but his tennis legend is long in the writing**\
+`Alcaraz, 22, is already approaching legendary status. He says that he is nowhere near finished writing his own.`\
+https://nytimes.com/athletic/7013494/2026/02/01/tennis-carlos-alcaraz-australian-open-career-grand-slam/
+
+**New 49ers docuseries serves as Tom Brady's ode to Joe Montana, Jerry Rice, others**\
+`A new AMC documentary limited series on the San Francisco 49ers premieres with the first two episodes on Sunday and two more on Monday.`\
+https://nytimes.com/athletic/7009288/2026/02/01/49ers-amc-documentary-tom-brady-nfl/
+
+**Palace's Mateta undergoes medical ahead of Milan move**\
+`The 28-year-old striker is set for a proposed transfer in a deal in excess of €30million (£26m).`\
 https://nytimes.com/athletic/6999684/2026/02/01/jean-phillipe-mateta-milan-crystal-palace-transfer-news/
 
 **Religious Leaders in Minnesota Say It’s Their Duty to Resist ICE**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/01/opinion/washington-national-opera-kennedy-center-
 **The Secret to Marriage Equality Is Formula**\
 `Breastfeeding and equal parenting are a zero-sum game.`\
 https://nytimes.com/2026/02/01/opinion/baby-formula-marriage-equality.html
-
-**Texas vs. Plato: Censorship in the Academy**\
-`Readers respond to a guest essay about the state’s effort to bar “officially disapproved ideas” from its university classrooms.`\
-https://nytimes.com/2026/02/01/opinion/texas-plato-campus-censorship.html
-
-**Madrid's Bellingham sustains left hamstring issue**\
-`The midfielder pulled up mid-sprint holding his left leg nine minutes into the game and was replaced by Brahim Diaz.`\
-https://nytimes.com/athletic/7013485/2026/02/01/jude-bellingham-real-madrid-hamstring-injury/
 

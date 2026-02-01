@@ -1,3 +1,7 @@
+**Mateta set to join Milan from Palace in excess of €30m deal**\
+`The 28-year-old is undergoing a medical on Sunday ahead of the proposed move after 186 appearances with the south London side. `\
+https://nytimes.com/athletic/6999684/2026/02/01/jean-phillipe-mateta-milan-crystal-palace-transfer-news/
+
 **Why Djokovic's Australian Open proved his career means far more than majors**\
 `The 24-time Grand Slam champion has added layers to his legacy even in missing out on the 25th title he craved.`\
 https://nytimes.com/athletic/7013488/2026/02/01/novak-djokovic-tennis-legacy-titles-australian-open/
