@@ -1,3 +1,7 @@
+**Darryn Peterson leaves no doubt in duel with AJ Dybantsa — for a half**\
+`Every game, the Kansas Jayhawks have to wonder just how much they’ll get from Darryn Peterson that day.`\
+https://nytimes.com/athletic/7012771/2026/01/31/darryn-peterson-aj-dybantsa-kansas-byu-basketball/
+
 **Shohei Ohtani full-go for 2-way play on Opening Day, but won't pitch in WBC**\
 `Ohtani will DH for Team Japan, but won't pitch in the WBC because "he will be ramping up his arm to get ready for this season."`\
 https://nytimes.com/athletic/7012555/2026/01/31/shohei-ohtani-two-way-opening-day-wbc-pitching/

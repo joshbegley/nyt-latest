@@ -1,3 +1,7 @@
+**Darryn Peterson leaves no doubt in duel with AJ Dybantsa — for a half**\
+`Every game, the Kansas Jayhawks have to wonder just how much they’ll get from Darryn Peterson that day.`\
+https://nytimes.com/athletic/7012771/2026/01/31/darryn-peterson-aj-dybantsa-kansas-byu-basketball/
+
 **Shohei Ohtani full-go for 2-way play on Opening Day, but won't pitch in WBC**\
 `Ohtani will DH for Team Japan, but won't pitch in the WBC because "he will be ramping up his arm to get ready for this season."`\
 https://nytimes.com/athletic/7012555/2026/01/31/shohei-ohtani-two-way-opening-day-wbc-pitching/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/01/31/us/elections/results-texas-special-ru
 **Read the document**\
 `A judicial order freeing a 5-year-old boy and his father, detained by federal immigration authorities.`\
 https://nytimes.com/interactive/2026/01/31/us/31nat-liam-court-order-doc.html
-
-**Sinking Flyers drained by lethargic start in OT loss to Kings**\
-`The 3-2 loss Saturday was the plummeting Flyers' 11th in their last 13 games.`\
-https://nytimes.com/athletic/7012680/2026/01/31/flyers-kings-overtime-loss-score/
 
