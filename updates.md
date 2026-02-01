@@ -1,3 +1,7 @@
+**Reds, slugger Eugenio Suárez agree to 1-year, $15 million deal: Source**\
+`Suárez is coming off a banner year with 49 home runs, though his production declined after the D-Backs traded him to Seattle.`\
+https://nytimes.com/athletic/6815108/2026/02/01/mlb-eugenio-suarez-free-agency-signing-reds/
+
 **Grammy Awards Live Updates: Kendrick Lamar and Leon Thomas Win Early Awards**\
 `“Golden” from “KPop Demon Hunters” and “Abracadabra” by Lady Gaga also took prizes this afternoon in a nontelevised event. The main ceremony will begin at 8 p.m. Eastern time.`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026

@@ -1,3 +1,11 @@
+**Meet the 8 nominees for best new artist.**\
+`By Lindsay Zoladz`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/meet-the-8-nominees-for-best-new-artist
+
+**Like the Proverbial Bug in a Rug**\
+`This collaboration by John Ewbank and Colin Thomas might throw you for a loop.`\
+https://nytimes.com/2026/02/01/crosswords/daily-puzzle-2026-02-02.html
+
 **Reds, slugger Eugenio Suárez agree to 1-year, $15 million deal: Source**\
 `Suárez is coming off a banner year with 49 home runs, though his production declined after the D-Backs traded him to Seattle.`\
 https://nytimes.com/athletic/6815108/2026/02/01/mlb-eugenio-suarez-free-agency-signing-reds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7014392/2026/02/01/magic-vs-spurs-stream-how-to-wat
 **Edmonton Oilers place goalie Calvin Pickard on waivers**\
 `The 33-year-old is now the third goalie behind Tristan Jarry and Connor Ingram despite going 7-1 last postseason.`\
 https://nytimes.com/athletic/7014359/2026/02/01/oilers-calvin-pickard-waivers-goaltending/
-
-**Grammy Awards Live Updates: Kendrick Lamar and Leon Thomas Win Early Awards**\
-`“Golden” from “KPop Demon Hunters” and “Abracadabra” by Lady Gaga also took prizes this afternoon in a nontelevised event. The main ceremony will begin at 8 p.m. Eastern time.`\
-https://nytimes.com/live/2026/02/01/arts/grammys-2026
-
-**Who’s nominated, performing and hosting?**\
-`By The New York Times`\
-https://nytimes.com/live/2026/02/01/arts/grammys-2026/whos-nominated-performing-and-hosting
 

@@ -1,3 +1,7 @@
+**Reds, slugger Eugenio Suárez agree to 1-year, $15 million deal: Source**\
+`Suárez is coming off a banner year with 49 home runs, though his production declined after the D-Backs traded him to Seattle.`\
+https://nytimes.com/athletic/6815108/2026/02/01/mlb-eugenio-suarez-free-agency-signing-reds/
+
 **Doc Rivers stands by calling ICE shooting in Minneapolis 'straight-up murder'**\
 `“If you’re brown, you’re nervous,” the Milwaukee Bucks coach said about the administration's immigration enforcement activities.`\
 https://nytimes.com/athletic/7014107/2026/02/01/doc-rivers-ice-shooting-murder-minnesota/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/01/arts/grammys-2026
 **Who’s nominated, performing and hosting?**\
 `By The New York Times`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026/whos-nominated-performing-and-hosting
-
-**How to watch the 68th annual Grammy Awards.**\
-`By The New York Times`\
-https://nytimes.com/live/2026/02/01/arts/grammys-2026/how-to-watch-the-68th-annual-grammy-awards
 
