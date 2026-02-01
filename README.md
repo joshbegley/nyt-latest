@@ -1,3 +1,7 @@
+**Mamdani Announces New Shelter Beds as Death Toll During Cold Rises to 14**\
+`The 50 units in Upper Manhattan will house single people who may be reluctant to stay in group shelters.`\
+https://nytimes.com/2026/02/01/nyregion/mamdani-cold-deaths-shelters-nyc.html
+
 **Penguins' January report card qualifies just about everyone for the Dean's List**\
 `The Penguins' report card for January is as good as you'd expect.`\
 https://nytimes.com/athletic/7013018/2026/02/01/january-penguins-report-card-deans-list/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013677/2026/02/01/bruins-vs-lightning-stream-how-t
 **How to watch Nebraska vs. Ohio State women's basketball: Time, TV, streaming**\
 `Find out how to watch the Nebraska Cornhuskers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7013661/2026/02/01/nebraska-vs-ohio-state-stream-how-to-watch-feb-1/
-
-**Manchester United 3 Fulham 2: How do you replace Casemiro? First goal controversial? United getting nastier?**\
-`Michael Carrick's side scored a stoppage-time winner through Benjamin Sesko after a remarkable Fulham comeback`\
-https://nytimes.com/athletic/7006948/2026/02/01/manchester-united-3-fulham-2/
 

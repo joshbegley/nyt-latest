@@ -1,3 +1,7 @@
+**Penguins' January report card qualifies just about everyone for the Dean's List**\
+`The Penguins' report card for January is as good as you'd expect.`\
+https://nytimes.com/athletic/7013018/2026/02/01/january-penguins-report-card-deans-list/
+
 **Brighton in talks with Marseille over Matt O'Riley loan return**\
 `A deal hinges on whether Fabian Hurzeler believes the midfielder can make a contribution for the rest of the season despite the competition.`\
 https://nytimes.com/athletic/7013714/2026/02/01/matt-oriley-brighton-marseille-loan-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013661/2026/02/01/nebraska-vs-ohio-state-stream-ho
 **Manchester United 3 Fulham 2: How do you replace Casemiro? First goal controversial? United getting nastier?**\
 `Michael Carrick's side scored a stoppage-time winner through Benjamin Sesko after a remarkable Fulham comeback`\
 https://nytimes.com/athletic/7006948/2026/02/01/manchester-united-3-fulham-2/
-
-**Beany, Greeny, Grainy Goodness**\
-`This blend of barley, white beans and spinach with sun-dried tomatoes not only holds up well, it becomes even more flavorful with time.`\
-https://nytimes.com/2026/02/01/dining/beany-greeny-grainy-goodness.html
 

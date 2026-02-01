@@ -1,3 +1,7 @@
+**Penguins' January report card qualifies just about everyone for the Dean's List**\
+`The Penguins' report card for January is as good as you'd expect.`\
+https://nytimes.com/athletic/7013018/2026/02/01/january-penguins-report-card-deans-list/
+
 **Brighton in talks with Marseille over Matt O'Riley loan return**\
 `A deal hinges on whether Fabian Hurzeler believes the midfielder can make a contribution for the rest of the season despite the competition.`\
 https://nytimes.com/athletic/7013714/2026/02/01/matt-oriley-brighton-marseille-loan-return/
