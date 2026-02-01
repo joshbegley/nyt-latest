@@ -1,3 +1,11 @@
+**Four thoughts on the Giants' Luis Arraez signing: Worry about his position later and more**\
+`Arraez is a batting champion in his prime. He may not be a perfect fit for the Giants but he makes the team better even with his flaws.`\
+https://nytimes.com/athletic/7013211/2026/02/01/sf-giants-luis-arraez-signing-analysis/
+
+**Saint-Maximin leaves Club America after 'acts of racism' against his daughters**\
+`Club America's head coach said "an act of racism occurred against his daughters" and adding that this "has happened multiple times".`\
+https://nytimes.com/athletic/7013444/2026/02/01/racism-mexico-saint-maximin/
+
 **Carlos Alcaraz has the career Grand Slam, but his tennis legend is long in the writing**\
 `Alcaraz, 22, is already approaching legendary status. He says that he is nowhere near finished writing his own.`\
 https://nytimes.com/athletic/7013494/2026/02/01/tennis-carlos-alcaraz-australian-open-career-grand-slam/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/01/arts/television/snl-tom-homan-advice-to-ice.html
 **Trump Administration Live Updates: Government in Partial Shutdown Limbo as Negotiations Continue**\
 ``\
 https://nytimes.com/live/2026/02/01/us/trump-news
-
-**How Trumpworld Sent Opera Packing**\
-`By forcing an impossible economic model on the Washington National Opera, the Kennedy Center essentially disowned the art form.`\
-https://nytimes.com/2026/02/01/opinion/washington-national-opera-kennedy-center-trump.html
-
-**The Secret to Marriage Equality Is Formula**\
-`Breastfeeding and equal parenting are a zero-sum game.`\
-https://nytimes.com/2026/02/01/opinion/baby-formula-marriage-equality.html
 
