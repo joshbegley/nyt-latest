@@ -1,3 +1,7 @@
+**A Victory for ‘Golden’ Gives K-Pop Its First Ever Grammy Win**\
+`The breakout song from “KPop Demon Hunters” won best song written for visual media on Sunday, ending a drought for the powerhouse global genre.`\
+https://nytimes.com/2026/02/01/arts/music/golden-kpop-demon-hunters-grammys.html
+
 **Arsenal beat Corinthians to win inaugural Women's Champions Cup**\
 `Arsenal won 3-2 in extra time during a dramatic final on Sunday and claim $2.3m in prize money.`\
 https://nytimes.com/athletic/7014160/2026/02/01/arsenal-womens-champions-cup-corinthians/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6996491/2026/02/01/mike-lafleur-cardinals-head-coac
 **U.A.E. Firm Quietly Took Stake in the Trump Family’s Crypto Company**\
 `The $500 million agreement raises new concerns about the propriety of the president negotiating foreign policy with his own business partners.`\
 https://nytimes.com/2026/02/01/us/politics/trump-crypto-uae-world-liberty.html
-
-**NASCAR season-opening Clash postponed until Wednesday due to winter storm**\
-`The continual race schedule reshuffling is due to a weekend winter storm that smacked much of North Carolina.`\
-https://nytimes.com/athletic/7013780/2026/02/01/nascar-clash-delayed-winston-salem/
 
