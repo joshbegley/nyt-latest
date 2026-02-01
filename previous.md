@@ -1,3 +1,15 @@
+**Hazing Death in Arizona Leads to Charges for 3 Fraternity Leaders**\
+`Three 20-year-old students in Delta Tau Delta at Northern Arizona University were arrested on Saturday. The fraternity has been suspended.`\
+https://nytimes.com/2026/02/01/us/arizona-fraternity-members-charges-death.html
+
+**How to watch Magic vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7014392/2026/02/01/magic-vs-spurs-stream-how-to-watch-feb-1/
+
+**Edmonton Oilers place goalie Calvin Pickard on waivers**\
+`The 33-year-old is now the third goalie behind Tristan Jarry and Connor Ingram despite going 7-1 last postseason.`\
+https://nytimes.com/athletic/7014359/2026/02/01/oilers-calvin-pickard-waivers-goaltending/
+
 **Here’s the latest.**\
 `By Ben Sisario`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026/grammy-awards-2026
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/01/world/trump-iran-threats-venezuela-epstein-files.
 **How Trump Appears in the Epstein Files**\
 `The New York Times found more than 5,300 files with references to Mr. Trump and related terms. They include salacious and unverified claims, as well as documents that had already been made public.`\
 https://nytimes.com/2026/02/01/us/trump-epstein-files.html
-
-**A Victory for ‘Golden’ Gives K-Pop Its First Ever Grammy Win**\
-`The breakout song from “KPop Demon Hunters” won best song written for visual media on Sunday, ending a drought for the powerhouse global genre.`\
-https://nytimes.com/2026/02/01/arts/music/golden-kpop-demon-hunters-grammys.html
-
-**Arsenal beat Corinthians to win inaugural Women's Champions Cup**\
-`Arsenal won 3-2 in extra time during a dramatic final on Sunday and claim $2.3m in prize money.`\
-https://nytimes.com/athletic/7014160/2026/02/01/arsenal-womens-champions-cup-corinthians/
-
-**Florida makes 100-point statement against Alabama: Are the Gators the SEC's team to beat?**\
-`Florida is still chasing Texas A&M in the standings but might have the highest upside in the SEC.`\
-https://nytimes.com/athletic/7014174/2026/02/01/florida-alabama-score-result-highlights/
 

@@ -1,3 +1,15 @@
+**Hazing Death in Arizona Leads to Charges for 3 Fraternity Leaders**\
+`Three 20-year-old students in Delta Tau Delta at Northern Arizona University were arrested on Saturday. The fraternity has been suspended.`\
+https://nytimes.com/2026/02/01/us/arizona-fraternity-members-charges-death.html
+
+**How to watch Magic vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7014392/2026/02/01/magic-vs-spurs-stream-how-to-watch-feb-1/
+
+**Edmonton Oilers place goalie Calvin Pickard on waivers**\
+`The 33-year-old is now the third goalie behind Tristan Jarry and Connor Ingram despite going 7-1 last postseason.`\
+https://nytimes.com/athletic/7014359/2026/02/01/oilers-calvin-pickard-waivers-goaltending/
+
 **Here’s the latest.**\
 `By Ben Sisario`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026/grammy-awards-2026
