@@ -1,3 +1,7 @@
+**Chelsea crave control. But it is intensity that elevates them**\
+`Liam Rosenior proved a master motivator as Chelsea's speed, purpose and aggression pierced and ultimately crushed West Ham’s defensive shell`\
+https://nytimes.com/athletic/7012513/2026/02/01/chelsea-rosenior-motivation-west-ham-napoli/
+
 **My Patient Was Dying. His Wife Refused to Accept It.**\
 `How doctors can better navigate difficult patients and families.`\
 https://nytimes.com/2026/02/01/opinion/hospital-doctors-difficult-patients.html

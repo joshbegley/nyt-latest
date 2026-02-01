@@ -1,3 +1,7 @@
+**Wild get points from 15 players, once again beat their favorite foe: Takeaways**\
+`The Wild's domination of the Oilers dates back to 2005.`\
+https://nytimes.com/athletic/7013033/2026/02/01/wild-points-from-15-players-once-again-beat-oilers/
+
 **Chelsea crave control. But it is intensity that elevates them**\
 `Liam Rosenior proved a master motivator as Chelsea's speed, purpose and aggression pierced and ultimately crushed West Ham’s defensive shell`\
 https://nytimes.com/athletic/7012513/2026/02/01/chelsea-rosenior-motivation-west-ham-napoli/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012422/2026/02/01/wolves-bournemouth-transfer-wind
 **West Ham have dropped 18 points from winning positions – signing a defender is a priority**\
 `After losing another lead against Chelsea, West Ham will be focused on defensive reinforcements before the window shuts`\
 https://nytimes.com/athletic/7012167/2026/02/01/west-ham-chelsea-defender-transfer-window/
-
-**Are Leeds spending their money at the wrong end of the pitch?**\
-`The Yorkshire club are willing to spend £40m on striker Jorgen Strand Larsen but that money might be better used recruiting a new goalkeeper`\
-https://nytimes.com/athletic/7012447/2026/02/01/leeds-darlow-perri-larsen-goalkeeper-transfer/
 
