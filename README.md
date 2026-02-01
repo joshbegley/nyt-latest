@@ -1,3 +1,7 @@
+**LeBron James named to 2026 NBA All-Star game, extends selections record to 22**\
+`James has now made three more All-Star teams than Kareem Abdul-Jabbar, who is second all-time.`\
+https://nytimes.com/athletic/7014383/2026/02/01/2026-nba-all-star-reserves-lebron/
+
 **‘Historic’ Snowstorm Hits the Carolinas, National Weather Service says**\
 `Heavy snow and bitter cold have spread across North and South Carolina, with some areas receiving more than 18 inches of snow.`\
 https://nytimes.com/video/weather/100000010682832/historic-snowstorm-hits-the-carolinas-national-weather-service-says.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7014320/2026/02/01/justin-rose-wins-farmers-insuran
 **Meet the 8 nominees for best new artist.**\
 `By Lindsay Zoladz`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026/meet-the-8-nominees-for-best-new-artist
-
-**Like the Proverbial Bug in a Rug**\
-`This collaboration by John Ewbank and Colin Thomas might throw you for a loop.`\
-https://nytimes.com/2026/02/01/crosswords/daily-puzzle-2026-02-02.html
 
