@@ -1,3 +1,11 @@
+**NASCAR season-opening Clash postponed until Wednesday due to winter storm**\
+`NASCAR is going to have to wait yet a few more days before beginning its 2026 season, with wintery conditions in Winston-Salem, N.`\
+https://nytimes.com/athletic/7013780/2026/02/01/nascar-clash-delayed-winston-salem/
+
+**Arsenal's Merino expected to be out for considerable period with foot injury**\
+`The 29-year-old has sustained a suspected broken bone in his foot.`\
+https://nytimes.com/athletic/7013742/2026/02/01/mikel-merino-arsenal-foot-injury-update/
+
 **Arsenal's Mikel Merino expected to be out for considerable period with foot injury**\
 `The 29-year-old has sustained a suspected broken bone in his foot.`\
 https://nytimes.com/athletic/7013742/2026/02/01/mikel-merino-arsenal-foot-injury-update/
