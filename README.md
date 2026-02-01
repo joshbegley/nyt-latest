@@ -1,40 +1,40 @@
-**Indonesia Lifts Ban on Grok After New Assurances From X Corp**\
-`Indonesia joined Malaysia and the Philippines in reversing its restrictions, weeks after it blocked the chatbot because it was used to generate sexually explicit images of real people.`\
-https://nytimes.com/2026/02/01/world/asia/indonesia-lift-grok-ban.html
+**Ukraine Peace Talks Delayed After Russia and U.S. Meet**\
+`It was unclear why the latest round of negotiations, which had been expected on Sunday, were postponed for several days.`\
+https://nytimes.com/2026/02/01/world/europe/ukraine-russia-us-peace-talks.html
 
-**How Bad Bunny was chosen as the Super Bowl 60 halftime performer **\
-`Starting with Super Bowl 54, Jay-Z and Roc Nation have largely been responsible for selecting the halftime show performers.`\
-https://nytimes.com/athletic/7008085/2026/02/01/super-bowl-halftime-bad-bunny-jay-z-apple-music/
+**Clash forecasts as NASCAR's coldest race ever. How will drivers handle it?**\
+`Form-fitting car seats might be too snug for drivers wearing extra layers in the cold weather.`\
+https://nytimes.com/athletic/7012308/2026/02/01/nascar-clash-weather-coldest-race/
 
-**Patriots-Seahawks revisited, QB spotlight, Bad Bunny among Super Bowl week top storylines**\
-`Players such as Sam Darnold, Cooper Kupp and Stefon Diggs have a chance to prove something to their former teams.`\
-https://nytimes.com/athletic/7008644/2026/02/01/super-bowl-storylines-patriots-seahawks-bad-bunny/
+**The Superstar Trap: Why leaders go all-in even when history says they shouldn’t**\
+`This isn’t just a basketball problem. It’s an organizational one. And it points to a decision-making trap leaders face in any organization.`\
+https://nytimes.com/athletic/7009861/2026/02/01/superstar-trap-leaders-all-in/
 
-**The New York Times International Edition in Print for Monday, Feb. 2, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/02/01/todays-new-york-times-international-edition
+**'It's been a battle coming back': Inside Linus Ullmark's return to Senators**\
+`Ullmark was named first star in his return to the crease after stepping away from the team on personal leave for mental health reasons.`\
+https://nytimes.com/athletic/7002652/2026/02/01/linus-ullmark-senators-return-nhl-devils/
 
-**How to watch Purdue vs. Maryland men's basketball: Time, TV, streaming**\
-`Find out how to watch the Purdue Boilermakers play the Maryland Terrapins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013365/2026/02/01/purdue-vs-maryland-stream-how-to-watch-feb-1/
+**What Worries Me About Trump’s New Fed Pick**\
+`The jury is out as to whether Kevin Warsh will do Donald Trump’s bidding (and do serious damage).`\
+https://nytimes.com/2026/02/01/opinion/trump-fed-chair-kevin-warsh.html
 
-**How to watch Tennessee vs. UConn women's basketball: Time, TV, streaming**\
-`Find out how to watch the Tennessee Lady Volunteers play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013363/2026/02/01/tennessee-vs-uconn-stream-how-to-watch-feb-1/
+**The White House Is the Crisis**\
+`This is a presidency that is, by any measure, failing.`\
+https://nytimes.com/2026/02/01/opinion/trump-minneapolis-power-muzzle-velocity.html
 
-**How to watch Wake Forest vs. Duke women's basketball: Time, TV, streaming**\
-`Find out how to watch the Wake Forest Demon Deacons play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013360/2026/02/01/wake-forest-vs-duke-stream-how-to-watch-feb-1/
+**Montreal fans take over Buffalo in Sabres loss, sparking frustration: 3 thoughts**\
+`A large chunk of the crowd, particularly in the lower bowl, was wearing the visiting team’s colors Saturday night.`\
+https://nytimes.com/athletic/7013117/2026/02/01/rasmus-dahlin-frustrated-as-montreal-fans-dominate-sabres-home-loss-3-thoughts/
 
-**How to watch Baylor vs. West Virginia women's basketball: Time, TV, streaming**\
-`Find out how to watch the Baylor Bears play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013358/2026/02/01/baylor-vs-west-virginia-stream-how-to-watch-feb-1/
+**Giants co-owner Steve Tisch needs to pay a price for his startling lack of judgment**\
+`Accountability is a word tossed around as freely as a locker-room towel in the NFL. But it has applied more to players than owners.`\
+https://nytimes.com/athletic/7012707/2026/02/01/steve-tisch-giants-epstein-files-nfl-owners/
 
-**How to watch Michigan vs. Michigan State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan Wolverines play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013356/2026/02/01/michigan-vs-michigan-state-stream-how-to-watch-feb-1/
+**This Is Not a Drill**\
+`What Is the F.B.I. doing raiding an election office in Georgia?`\
+https://nytimes.com/2026/02/01/opinion/midterms-election-influence-trump.html
 
-**How to watch Alabama vs. LSU women's basketball: Time, TV, streaming**\
-`Find out how to watch the Alabama Crimson Tide play the LSU Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013354/2026/02/01/alabama-vs-lsu-stream-how-to-watch-feb-1/
+**Canadiens' big win over the Sabres provided solutions to some nagging problems**\
+`Several of the Canadiens' weaknesses turned into strengths in what was probably their biggest win of the season.`\
+https://nytimes.com/athletic/7013256/2026/02/01/canadiens-big-win-sabres/
 
