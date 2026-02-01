@@ -1,3 +1,5 @@
+
+
 **Justin Jefferson: Vikings 'would have done better' if Sam Darnold stayed**\
 `Jefferson reflected on a season that could have gone differently with Darnold. `\
 https://nytimes.com/athletic/7013686/2026/02/01/vikings-justin-jefferson-sam-darnold-seahawks-super-bowl/
