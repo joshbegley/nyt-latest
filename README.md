@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6999684/2026/02/01/jean-phillipe-mateta-milan-cryst
 `Progressive clergy members are in the spotlight — protesting, organizing and getting arrested. It’s a split screen to the Trump administration’s muscular, conservative Christianity.`\
 https://nytimes.com/2026/02/01/briefing/religious-leaders-in-minnesota-say-its-their-duty-to-resist-ice.html
 
-**Why Djokovic's Australian Open proved his career means far more than majors**\
+**Why Novak Djokovic's Australian Open proved his late career means far more than majors**\
 `The 24-time Grand Slam champion has added layers to his legacy even in missing out on the 25th title he craved.`\
 https://nytimes.com/athletic/7013488/2026/02/01/novak-djokovic-tennis-legacy-titles-australian-open/
 
