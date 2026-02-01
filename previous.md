@@ -1,3 +1,7 @@
+**Palace make £48m offer for Wolves' Strand Larsen**\
+`The Norway international would bolster Palace's attacking options as AC Milan pursue a deal for Mateta. `\
+https://nytimes.com/athletic/7006585/2026/02/01/strand-larsen-crystal-palace-transfer/
+
 **A New Kind of Cook**\
 `Our colleague shares her remarkable story of amputation and reinvention.`\
 https://nytimes.com/2026/02/01/briefing/a-new-kind-of-cook.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7009931/2026/02/01/knicks-nba-2026-trade-deadline/
 **Liverpool thankful to Hugo Ekitike for transforming the mood**\
 `The summer signing from Eintracht Frankfurt has shown flashes of Fernando Torres to date and struck up a fine partnership with Florian Wirtz`\
 https://nytimes.com/athletic/7012496/2026/02/01/liverpool-hugo-ekitike-newcastle/
-
-**No tinted visor. Black tape again. Old stick. Morgan Geekie is back to his goal-scoring self**\
-`Geekie enters Sunday with a six-game scoring streak (five goals and three assists).`\
-https://nytimes.com/athletic/7012607/2026/02/01/bruins-morgan-geekie-lightning-goals/
 

@@ -1,3 +1,7 @@
+**Palace make £48m offer for Wolves' Strand Larsen**\
+`The Norway international would bolster Palace's attacking options as AC Milan pursue a deal for Mateta. `\
+https://nytimes.com/athletic/7006585/2026/02/01/strand-larsen-crystal-palace-transfer/
+
 **A New Kind of Cook**\
 `Our colleague shares her remarkable story of amputation and reinvention.`\
 https://nytimes.com/2026/02/01/briefing/a-new-kind-of-cook.html

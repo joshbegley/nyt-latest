@@ -1,3 +1,15 @@
+**Inside the stunning dismissal of Vikings GM Kwesi Adofo-Mensah: 'This is wild'**\
+`While speculation had swirled about Kwesi Adofo-Mensah's future in Minnesota, almost no one expected a move to come in late January.`\
+https://nytimes.com/athletic/7012881/2026/02/01/kwesi-adofo-mensah-firing-explained-vikings/
+
+**Are Giannis Antetokounmpo and Mike Dunleavy Jr. on another collision course?**\
+`A decade after a brutal hit in the playoffs, Mike Dunleavy Jr. is weighing a swing that could define his Warriors' tenure. `\
+https://nytimes.com/athletic/7013017/2026/02/01/giannis-antetokounmpo-mike-dunleavy-warriors-bucks-trade/
+
+**Navy jerseys, home-team locker room, and other details about the Seahawks' Super Bowl week**\
+`The NFL considers the Seahawks the visiting team. So how did they wind up with the bigger, better locker room?`\
+https://nytimes.com/athletic/7011639/2026/02/01/seahawks-super-bowl-week-logistics/
+
 **Palace make £48m offer for Wolves' Strand Larsen**\
 `The Norway international would bolster Palace's attacking options as AC Milan pursue a deal for Mateta. `\
 https://nytimes.com/athletic/7006585/2026/02/01/strand-larsen-crystal-palace-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7013417/2026/02/01/dominik-szoboszlai-liverpool-con
 **What to Know About the Rafah Border Crossing in Gaza**\
 `The only crossing that connects Gaza with Egypt is reopening after nearly a year of closures. This will allow residents to leave for medical care or return to homes and families in the territory.`\
 https://nytimes.com/2026/02/01/world/middleeast/rafah-crossing-gaza-egypt-israel.html
-
-**NHL arenas of yore: Here are some of the fun quirks and features we miss**\
-`These old barns might not have had many modern conveniences, but they were quite memorable.`\
-https://nytimes.com/athletic/6900557/2026/02/01/nhl-old-arenas-boston-toronto-chicago/
-
-**Knicks NBA trade deadline guide: What I'm hearing, most likely to get moved, more**\
-`Here is your one-stop shop to prepare for the Knicks' possible moves ahead of the NBA's trade deadline.`\
-https://nytimes.com/athletic/7009931/2026/02/01/knicks-nba-2026-trade-deadline/
-
-**Liverpool thankful to Hugo Ekitike for transforming the mood**\
-`The summer signing from Eintracht Frankfurt has shown flashes of Fernando Torres to date and struck up a fine partnership with Florian Wirtz`\
-https://nytimes.com/athletic/7012496/2026/02/01/liverpool-hugo-ekitike-newcastle/
 
