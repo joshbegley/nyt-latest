@@ -1,5 +1,5 @@
 **Religious Leaders in Minnesota Say It’s Their Duty to Resist ICE**\
-`A more progressive Christianity is in the spotlight in Minneapolis — a hyper-visible counterpoint to the muscular, politicized Christianity expressed by the Trump administration.`\
+`A more progressive Christianity is in the spotlight — a counterpoint to the muscular, conservative Christianity expressed by the Trump administration.`\
 https://nytimes.com/2026/02/01/briefing/religious-leaders-in-minnesota-say-its-their-duty-to-resist-ice.html
 
 **Why Novak Djokovic's Australian Open proved his late career means far more than majors**\
