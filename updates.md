@@ -1,3 +1,7 @@
+**Mamdani Announces New Shelter Beds as Death Toll During Cold Rises to 14**\
+`The 50 units in Upper Manhattan will house single people who may be reluctant to stay in group shelters.`\
+https://nytimes.com/2026/02/01/nyregion/mamdani-cold-deaths-shelters-nyc.html
+
 **Penguins' January report card qualifies just about everyone for the Dean's List**\
 `The Penguins' report card for January is as good as you'd expect.`\
 https://nytimes.com/athletic/7013018/2026/02/01/january-penguins-report-card-deans-list/
