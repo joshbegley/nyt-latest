@@ -1,3 +1,12 @@
+**Why MLB stars are being told they can’t play in the World Baseball Classic**\
+`Puerto Rico threatens withdrawal from tournament because some of its best players can’t get insurance coverage`\
+https://nytimes.com/athletic/7012509/2026/01/31/wbc-insurance-puerto-rico-francisco-lindor/
+
+**Rangers, Penguins and the juxtaposition of past and present for Mike Sullivan**\
+`As New York embarks on its "re-something," Pittsburgh sits comfortably in playoff position following Saturday’s 6-5 win.
+`\
+https://nytimes.com/athletic/7012865/2026/01/31/penguins-rangers-mike-sullivan-nhl/
+
 **Rangers, Penguins and the juxtaposition of past and present for Mike Sullivan**\
 `As New York embarks on its "re-something," Pittsburgh sits comfortably in playoff position following Saturday’s 6-5 win.
 `\
