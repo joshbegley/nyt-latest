@@ -1,3 +1,11 @@
+**Bompastor 'happy' to leave Chelsea 'if people think I'm not the right person'**\
+`Chelsea were beaten 5-1 in the WSL by Manchester City on Sunday.`\
+https://nytimes.com/athletic/7013852/2026/02/01/sonia-bompastor-chelsea-future/
+
+**A ‘Historic’ Snowfall Hits the Carolinas**\
+`Blanketed beaches. Frozen suburbs. Football fields buried in snow. Everywhere in the region, people felt the storm, which caused two deaths.`\
+https://nytimes.com/2026/02/01/us/snowfall-north-south-carolina.html
+
 **A ‘Historic’ Snowfall Hits the Carolinas**\
 `Blanketed beaches. Frozen suburbs. Football fields buried in snow. Everywhere in the region, people felt the storm, which caused two deaths.`\
 https://nytimes.com/2026/02/01/us/a-historic-snowfall-hits-the-carolinas.html

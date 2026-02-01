@@ -1,6 +1,10 @@
+**Bompastor 'happy' to leave Chelsea 'if people think I'm not the right person'**\
+`Chelsea were beaten 5-1 in the WSL by Manchester City on Sunday.`\
+https://nytimes.com/athletic/7013852/2026/02/01/sonia-bompastor-chelsea-future/
+
 **A ‘Historic’ Snowfall Hits the Carolinas**\
 `Blanketed beaches. Frozen suburbs. Football fields buried in snow. Everywhere in the region, people felt the storm, which caused two deaths.`\
-https://nytimes.com/2026/02/01/us/a-historic-snowfall-hits-the-carolinas.html
+https://nytimes.com/2026/02/01/us/snowfall-north-south-carolina.html
 
 **Red Sox deal Jordan Hicks to White Sox as part of prospect swap: Sources**\
 `Right-hander David Sandlin will also go to Chicago while righty Gage Ziehl will head to Boston.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6535026/2026/02/01/tyrique-george-everton-chelsea-l
 **Justin Jefferson: Vikings 'would have done better' if Sam Darnold stayed**\
 `Jefferson reflected on a season that could have gone differently with Darnold. `\
 https://nytimes.com/athletic/7013686/2026/02/01/vikings-justin-jefferson-sam-darnold-seahawks-super-bowl/
-
-**Hawks trade Vít Krejčí to Trail Blazers for Duop Reath: Source**\
-`Krejčí, 25, is hitting 42.3 percent of his 3s this season in a reserve role.`\
-https://nytimes.com/athletic/7013784/2026/02/01/hawks-blazers-trade-vit-krejci-duop-reath/
 

@@ -1,3 +1,7 @@
+**Russia Strikes Ukraine’s Energy Sector, Killing 12 Miners**\
+`The attack comes during a winter freeze and despite efforts by President Trump and others to get the two countries to negotiate a truce.`\
+https://nytimes.com/2026/02/01/world/europe/russia-strikes-ukraine-energy-sector-killing-12-miners.html
+
 **Bompastor 'happy' to leave Chelsea 'if people think I'm not the right person'**\
 `Chelsea were beaten 5-1 in the WSL by Manchester City on Sunday.`\
 https://nytimes.com/athletic/7013852/2026/02/01/sonia-bompastor-chelsea-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013752/2026/02/01/tammy-abraham-aston-villa-goal-b
 **Everton reach agreement in principle with Chelsea for George loan**\
 `The 19-year-old has made only 11 appearances this term after a move to Fulham broke down last summer, four of those coming in the league.`\
 https://nytimes.com/athletic/6535026/2026/02/01/tyrique-george-everton-chelsea-loan-deal/
-
-**Justin Jefferson: Vikings 'would have done better' if Sam Darnold stayed**\
-`Jefferson reflected on a season that could have gone differently with Darnold. `\
-https://nytimes.com/athletic/7013686/2026/02/01/vikings-justin-jefferson-sam-darnold-seahawks-super-bowl/
 
