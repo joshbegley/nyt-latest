@@ -1,3 +1,11 @@
+**'These guys are pretty good': Penguins continue post-Holiday surge**\
+`After a 6-5 win over the Rangers, the Penguins improved to 13-2-2 in 17 games since the NHL's holiday break.`\
+https://nytimes.com/athletic/7012963/2026/01/31/penguins-rangers-sidney-crosby-nhl/
+
+**Australian Open chief proposes best-of-5 set women's matches from quarterfinals on**\
+`"All the research shows interest grows as the match goes on," Craig Tiley said in an interview Sunday afternoon ahead of the men's final.`\
+https://nytimes.com/athletic/7012975/2026/01/31/australian-open-tennis-format-women-best-five-craig-tiley/
+
 **Stephen Curry day-to-day after MRI reveals knee issue**\
 `Curry left Friday's loss at Detroit in the second half and did not return as he continues to deal with lingering knee pain.`\
 https://nytimes.com/athletic/7012990/2026/01/31/stephen-curry-mri-knee-warriors/
@@ -30,12 +38,4 @@ https://nytimes.com/2026/01/31/us/epstein-powerful-men.html
 **Darryn Peterson leaves no doubt in duel with AJ Dybantsa — for a half**\
 `Every game, the Kansas Jayhawks have to wonder just how much they’ll get from Darryn Peterson that day.`\
 https://nytimes.com/athletic/7012771/2026/01/31/darryn-peterson-aj-dybantsa-kansas-byu-basketball/
-
-**Shohei Ohtani full-go for 2-way play on Opening Day, but won't pitch in WBC**\
-`Ohtani will DH for Team Japan, but won't pitch in the WBC because "he will be ramping up his arm to get ready for this season."`\
-https://nytimes.com/athletic/7012555/2026/01/31/shohei-ohtani-two-way-opening-day-wbc-pitching/
-
-**Protesters Rally Across the U.S. in Solidarity With Minneapolis**\
-`Demonstrations drew sizable crowds in several cities, including Los Angeles and Portland, Ore., and churches in the Twin Cities rang their bells in support of detainees and protesters.`\
-https://nytimes.com/2026/01/31/us/protesters-rally-solidarity-minneapolis.html
 

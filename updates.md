@@ -1,3 +1,16 @@
+**'These guys are pretty good': Penguins continue post-Holiday surge**\
+`After a 6-5 win over the Rangers, the Penguins improved to 13-2-2 in 17 games since the NHL's holiday break.`\
+https://nytimes.com/athletic/7012963/2026/01/31/penguins-rangers-sidney-crosby-nhl/
+
+**Australian Open chief proposes best-of-5 set women's matches from quarterfinals on**\
+`"All the research shows interest grows as the match goes on," Craig Tiley said in an interview Sunday afternoon ahead of the men's final.`\
+https://nytimes.com/athletic/7012975/2026/01/31/australian-open-tennis-format-women-best-five-craig-tiley/
+
+**Rangers, Penguins and the juxtaposition of past and present for Mike Sullivan**\
+`As New York embarks on its "re-something," Pittsburgh sits comfortably in playoff position following Saturday’s 6-5 win.
+`\
+https://nytimes.com/athletic/7012865/2026/01/31/penguins-rangers-mike-sullivan-nhl/
+
 **Rangers, Penguins and the juxtaposition of past and present for Mike Sullivan**\
 `As New York embarks on its "re-something," Pittsburgh sits comfortably in playoff position following Saturday’s 6-5 win.
 `\
