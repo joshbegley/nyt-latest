@@ -1,3 +1,7 @@
+**With the walls closing in, Arsenal really needed this bold and courageous reaction**\
+`After three games without a win in the Premier League, Mikel Arteta's side navigated a tempestuous atmosphere at Elland Road`\
+https://nytimes.com/athletic/7012385/2026/02/01/arsenal-leeds-reaction-madueke-gyokeres-zubimendi/
+
 **How to leave a football club the right way - and how not to do it**\
 `Antoine Semenyo took out a full-page newspaper advert, while Josh Sargent is finding that departing on good terms can be difficult`\
 https://nytimes.com/athletic/6993731/2026/02/01/how-to-leave-a-football-club/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/01/us/politics/ai-crypto-trump-super-pac-israel-2026
 **Why Is Taking the Rest of the Donetsk Region So Important to Putin?**\
 `Secretary of State Marco Rubio called the question “the one remaining item” in Abu Dhabi peace talks. Russia disputed that.`\
 https://nytimes.com/2026/02/01/world/europe/putin-ukraine-donbas-donetsk.html
-
-**Quote of the Day: Big Hopes for Kennedy Airport’s Gigantic Makeover**\
-`Quotation of the Day for Sunday, February 1, 2026.`\
-https://nytimes.com/2026/02/01/pageoneplus/quote-of-the-day-big-hopes-for-kennedy-airports-gigantic-makeover.html
 
