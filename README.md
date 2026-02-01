@@ -1,3 +1,7 @@
+**The Briefing - Spurs 2 Man City 2: How good was Solanke scorpion kick? What does this mean for Frank and title race?**\
+`Our writers break down the action from an exciting draw in north London.`\
+https://nytimes.com/athletic/7006950/2026/02/01/tottenham-man-city-cherki-frank/
+
 **Judge Who Ruled Against Trump Administration Cleared of Justice Dept. Complaint**\
 `Trump allies have called for Judge James E. Boasberg to be investigated and impeached after decisions that questioned the administration’s respect for the rule of law.`\
 https://nytimes.com/2026/02/01/us/politics/judge-boasberg-ethics-complaint-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013714/2026/02/01/matt-oriley-brighton-marseille-l
 **X.J. Kennedy, a Poet of Wit Who Clung to Rhyme and Meter, Dies at 96**\
 `Spurning the free verse of many of his contemporaries, he held to an older tradition. He also wrote spirited poems for children.`\
 https://nytimes.com/2026/02/01/books/xj-kennedy-dead.html
-
-**How to watch Jazz vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013696/2026/02/01/jazz-vs-raptors-stream-how-to-watch-feb-1/
 
