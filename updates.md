@@ -1,3 +1,7 @@
+**The Pulse: What to cook for the Super Bowl**\
+`The Pulse asked members of The Athletic's newsroom for Super Bowl recipe ideas.`\
+https://nytimes.com/athletic/7011252/2026/02/01/super-bowl-recipes-2026-the-pulse/
+
 **Starmer Urges Former Prince Andrew to Testify to Congress Over Epstein Ties**\
 `Mr. Mountbatten-Windsor was stripped of his royal titles in October by his brother King Charles III because of growing questions around his links to Mr. Epstein.`\
 https://nytimes.com/2026/02/01/world/europe/andrew-mountbatten-windsor-jeffrey-epstein.html
