@@ -1,5 +1,21 @@
-**Mateta set to join Milan from Palace in excess of €30m deal**\
-`The 28-year-old is undergoing a medical on Sunday ahead of the proposed move after 186 appearances with the south London side. `\
+**Four thoughts on the Giants' Luis Arraez signing: Worry about his position later and more**\
+`Arraez is a batting champion in his prime. He may not be a perfect fit for the Giants but he makes the team better even with his flaws.`\
+https://nytimes.com/athletic/7013211/2026/02/01/sf-giants-luis-arraez-signing-analysis/
+
+**Saint-Maximin leaves Club America after 'acts of racism' against his daughters**\
+`Club America's head coach said "an act of racism occurred against his daughters" and adding that this "has happened multiple times".`\
+https://nytimes.com/athletic/7013444/2026/02/01/racism-mexico-saint-maximin/
+
+**Carlos Alcaraz has the career Grand Slam, but his tennis legend is long in the writing**\
+`Alcaraz, 22, is already approaching legendary status. He says that he is nowhere near finished writing his own.`\
+https://nytimes.com/athletic/7013494/2026/02/01/tennis-carlos-alcaraz-australian-open-career-grand-slam/
+
+**New 49ers docuseries serves as Tom Brady's ode to Joe Montana, Jerry Rice, others**\
+`A new AMC documentary limited series on the San Francisco 49ers premieres with the first two episodes on Sunday and two more on Monday.`\
+https://nytimes.com/athletic/7009288/2026/02/01/49ers-amc-documentary-tom-brady-nfl/
+
+**Palace's Mateta undergoes medical ahead of Milan move**\
+`The 28-year-old striker is set for a proposed transfer in a deal in excess of €30million (£26m).`\
 https://nytimes.com/athletic/6999684/2026/02/01/jean-phillipe-mateta-milan-crystal-palace-transfer-news/
 
 **Religious Leaders in Minnesota Say It’s Their Duty to Resist ICE**\
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/01/arts/television/snl-tom-homan-advice-to-ice.html
 **Trump Administration Live Updates: Government in Partial Shutdown Limbo as Negotiations Continue**\
 ``\
 https://nytimes.com/live/2026/02/01/us/trump-news
-
-**How Trumpworld Sent Opera Packing**\
-`By forcing an impossible economic model on the Washington National Opera, the Kennedy Center essentially disowned the art form.`\
-https://nytimes.com/2026/02/01/opinion/washington-national-opera-kennedy-center-trump.html
-
-**The Secret to Marriage Equality Is Formula**\
-`Breastfeeding and equal parenting are a zero-sum game.`\
-https://nytimes.com/2026/02/01/opinion/baby-formula-marriage-equality.html
-
-**Texas vs. Plato: Censorship in the Academy**\
-`Readers respond to a guest essay about the state’s effort to bar “officially disapproved ideas” from its university classrooms.`\
-https://nytimes.com/2026/02/01/opinion/texas-plato-campus-censorship.html
-
-**Madrid's Bellingham sustains left hamstring issue**\
-`The midfielder pulled up mid-sprint holding his left leg nine minutes into the game and was replaced by Brahim Diaz.`\
-https://nytimes.com/athletic/7013485/2026/02/01/jude-bellingham-real-madrid-hamstring-injury/
 
