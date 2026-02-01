@@ -32,7 +32,7 @@ https://nytimes.com/athletic/7012771/2026/01/31/darryn-peterson-aj-dybantsa-kans
 https://nytimes.com/athletic/7012555/2026/01/31/shohei-ohtani-two-way-opening-day-wbc-pitching/
 
 **Protesters Rally Across the U.S. in Solidarity With Minneapolis**\
-`Church bells pealed in the Twin Cities to express support for detainees and protesters who oppose federal immigration agents’ aggressive tactics.`\
+`Demonstrations drew sizable crowds in several cities, including Los Angeles and Portland, Ore., and churches in the Twin Cities rang their bells in support of detainees and protesters.`\
 https://nytimes.com/2026/01/31/us/protesters-rally-solidarity-minneapolis.html
 
 **Newcastle's Miley, Botman doubts for Man City game - Howe says**\
