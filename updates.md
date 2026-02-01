@@ -1,4 +1,8 @@
 **Religious Leaders in Minnesota Say It’s Their Duty to Resist ICE**\
+`Progressive clergy members are in the spotlight — protesting, organizing and getting arrested. It’s a split screen to the Trump administration’s muscular, conservative Christianity.`\
+https://nytimes.com/2026/02/01/briefing/religious-leaders-in-minnesota-say-its-their-duty-to-resist-ice.html
+
+**Religious Leaders in Minnesota Say It’s Their Duty to Resist ICE**\
 `A more progressive Christianity is in the spotlight — a counterpoint to the muscular, conservative Christianity expressed by the Trump administration.`\
 https://nytimes.com/2026/02/01/briefing/religious-leaders-in-minnesota-say-its-their-duty-to-resist-ice.html
 
