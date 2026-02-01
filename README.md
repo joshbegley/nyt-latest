@@ -1,3 +1,7 @@
+**Doc Rivers stands by calling ICE shooting in Minneapolis 'straight-up murder'**\
+`“If you’re brown, you’re nervous,” the Milwaukee Bucks coach said about the administration's immigration enforcement activities.`\
+https://nytimes.com/athletic/7014107/2026/02/01/doc-rivers-ice-shooting-murder-minnesota/
+
 **Liverpool agree summer deal for Rennes defender Jacquet**\
 `The deal is expected to be worth £55million plus £5m in add-ons.`\
 https://nytimes.com/athletic/6982654/2026/02/01/jeremy-jacquet-liverpool-rennes-transfer-news/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/01/arts/grammys-2026/whos-nominated-performing-
 **How to watch the 68th annual Grammy Awards.**\
 `By The New York Times`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026/how-to-watch-the-68th-annual-grammy-awards
-
-**Frank Thomas upset with White Sox Black History Month graphic**\
-`"I guess the black player who made you rich over there and holds all your records is forgettable!" the Hall of Famer wrote on X.`\
-https://nytimes.com/athletic/7013959/2026/02/01/frank-thomas-white-sox-black-history-month/
 
