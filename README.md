@@ -1,3 +1,7 @@
+**Everton reach agreement in principle with Chelsea for George loan**\
+`The 19-year-old has made only 11 appearances this term after a move to Fulham broke down last summer, four of those coming in the league.`\
+https://nytimes.com/athletic/6535026/2026/02/01/tyrique-george-everton-chelsea-loan-deal/
+
 **Justin Jefferson: Vikings 'would have done better' if Sam Darnold stayed**\
 `Jefferson reflected on a season that could have gone differently with Darnold. `\
 https://nytimes.com/athletic/7013686/2026/02/01/vikings-justin-jefferson-sam-darnold-seahawks-super-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013685/2026/02/01/nets-vs-pistons-stream-how-to-wa
 **How to watch Lakers vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7013683/2026/02/01/lakers-vs-knicks-stream-how-to-watch-feb-1/
-
-**How to watch Bulls vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013679/2026/02/01/bulls-vs-heat-stream-how-to-watch-feb-1/
 
