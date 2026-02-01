@@ -1,3 +1,7 @@
+**Game, Set Match: Alcaraz beats Djokovic at Australian Open, becomes youngest man to complete career Slam**\
+`Alcaraz dashed Djokovic's latest attempt to win a 25th Grand Slam title by making history of his own in Melbourne.`\
+https://nytimes.com/athletic/7012921/2026/02/01/australian-open-final-carlos-alcaraz-novak-djokovic-result-analysis/
+
 **Lookman in advanced talks to join Atletico from Atalanta**\
 `The two clubs have already done business this month with Giacomo Raspadori joining the Serie A side from Atletico.`\
 https://nytimes.com/athletic/7013317/2026/02/01/ademola-lookman-atletico-madrid-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013117/2026/02/01/rasmus-dahlin-frustrated-as-mont
 **Giants co-owner Steve Tisch needs to pay a price for his startling lack of judgment**\
 `Accountability is a word tossed around as freely as a locker-room towel in the NFL. But it has applied more to players than owners.`\
 https://nytimes.com/athletic/7012707/2026/02/01/steve-tisch-giants-epstein-files-nfl-owners/
-
-**This Is Not a Drill**\
-`What Is the F.B.I. doing raiding an election office in Georgia?`\
-https://nytimes.com/2026/02/01/opinion/midterms-election-influence-trump.html
 
