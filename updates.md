@@ -1,3 +1,8 @@
+**Rangers, Penguins and the juxtaposition of past and present for Mike Sullivan**\
+`As New York embarks on its "re-something," Pittsburgh sits comfortably in playoff position following Saturday’s 6-5 win.
+`\
+https://nytimes.com/athletic/7012865/2026/01/31/penguins-rangers-mike-sullivan-nhl/
+
 **Stephen Curry day-to-day after MRI reveals knee issue**\
 `Curry left Friday's loss at Detroit in the second half and did not return as he continues to deal with lingering knee pain.`\
 https://nytimes.com/athletic/7012990/2026/01/31/stephen-curry-mri-knee-warriors/
