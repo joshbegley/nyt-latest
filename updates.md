@@ -1,3 +1,23 @@
+**Democratic Upset in Deep Red Texas District Rattles Republicans**\
+`A Democrat won a state legislative special election in a district that President Trump carried by 17 percentage points, unnerving Republicans in Texas and beyond.`\
+https://nytimes.com/2026/02/01/us/democratic-upset-texas-district-republicans.html
+
+**'Little bit of a heart attack': Joseph Woll makes the save in Leafs win over Canucks**\
+`The Leafs escaped with a 3-2 shootout win, in large part because of Woll, who stopped 28 of 30 shots. They snapped a six-game losing streak.`\
+https://nytimes.com/athletic/7013134/2026/02/01/leafs-win-canucks-joseph-woll-save/
+
+**NBA trade grades: Cavs save cash, but can De'Andre Hunter bounce back with Kings?**\
+`With the deadline looming, will this three-team deal open the floodgates for more?`\
+https://nytimes.com/athletic/7013103/2026/02/01/cavs-kings-bulls-trade-grades-deandre-hunter/
+
+**The New York Times in Print for Sunday, Feb. 1, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/01/todays-new-york-times
+
+**My Patient Was Dying, but Would His Wife Accept It?**\
+`How doctors can better navigate difficult patients and families.`\
+https://nytimes.com/2026/02/01/opinion/hospital-doctors-difficult-patients.html
+
 **Wolves risk sliding back into despondency if they don't make new signings**\
 `Improved recent performances had lifted the spirits at Molineux, but without fresh faces and ideas, that momentum is tarting to dissipate`\
 https://nytimes.com/athletic/7012422/2026/02/01/wolves-bournemouth-transfer-window/
