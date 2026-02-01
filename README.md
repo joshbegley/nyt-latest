@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7013714/2026/02/01/matt-oriley-brighton-marseille-loan-return/
 
 **X.J. Kennedy, a Poet of Wit Who Clung to Rhyme and Meter, Dies at 96**\
-`Spurning the iconoclastic free verse of many of his contemporaries, he held to an older tradition. He also wrote spirited poems for children.`\
+`Spurning the free verse of many of his contemporaries, he held to an older tradition. He also wrote spirited poems for children.`\
 https://nytimes.com/2026/02/01/books/xj-kennedy-dead.html
 
 **How to watch Jazz vs. Raptors: Time, TV, streaming**\
