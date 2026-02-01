@@ -1,3 +1,7 @@
+**Giants peg $12 million value to Luis Arraez's incredible, incalculable contact skills: Source**\
+`Arraez is a three-time batting champion who rarely strikes out — and who produces polarizing opinions from talent evaluators.`\
+https://nytimes.com/athletic/7012976/2026/01/31/giants-12-million-value-luis-arraezs-incredible-contact-skills/
+
 **Government regulators approve ESPN's billion-dollar acquisition of NFL Media**\
 `As part of the agreement, the NFL will take a 10 percent ownership stake in the Disney-owned network.`\
 https://nytimes.com/athletic/7009795/2026/01/31/espn-nfl-media-deal-buy-billion/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7012861/2026/01/31/padres-offseason-preller-contrac
 **Giants sign 3-time batting champ Luis Arraez to 1-year, $12 million deal: Sources**\
 `Arraez is the first player to win three consecutive batting titles for a different team in each season.`\
 https://nytimes.com/athletic/6802528/2026/01/31/mlb-luis-arraez-free-agency-signing-sf-giants/
-
-**They Said They Weren’t Close to Epstein. New Documents Show Otherwise.**\
-`Materials released by the Justice Department revealed that leading business and political figures had enduring relationships with the disgraced financier.`\
-https://nytimes.com/2026/01/31/us/epstein-powerful-men.html
 

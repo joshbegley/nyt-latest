@@ -1,3 +1,8 @@
+**Rangers, Penguins and the juxtaposition of past and present for Mike Sullivan**\
+`As New York embarks on its "re-something," Pittsburgh sits comfortably in playoff position following Saturday’s 6-5 win.
+`\
+https://nytimes.com/athletic/7012865/2026/01/31/penguins-rangers-mike-sullivan-nhl/
+
 **Government regulators approve ESPN's billion-dollar acquisition of NFL Media**\
 `As part of the agreement, the NFL will take a 10 percent ownership stake in the Disney-owned network.`\
 https://nytimes.com/athletic/7009795/2026/01/31/espn-nfl-media-deal-buy-billion/
