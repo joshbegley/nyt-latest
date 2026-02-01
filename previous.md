@@ -1,3 +1,19 @@
+**Starmer Urges Former Prince Andrew to Testify to Congress Over Epstein Ties**\
+`Mr. Mountbatten-Windsor was stripped of his royal titles in October by his brother King Charles III because of growing questions around his links to Mr. Epstein.`\
+https://nytimes.com/2026/02/01/world/europe/andrew-mountbatten-windsor-jeffrey-epstein.html
+
+**College basketball observations: Saturday's bracket impact, UCF's double court storm and more**\
+`Plus: Kentucky rebounds with a big win over John Calipari's Arkansas, and how Saturday's action affected the NCAA Tournament picture.`\
+https://nytimes.com/athletic/7010972/2026/02/01/college-basketball-scores-results-takeaways-kansas-ucf-kentucky/
+
+**Szoboszlai says Liverpool future is 'not in my hands'**\
+`The Hungary midfielder's current deal expires in the summer of 2028 and the league champions are keen to renew his terms. `\
+https://nytimes.com/athletic/7013417/2026/02/01/dominik-szoboszlai-liverpool-contract-talks/
+
+**What to Know About the Rafah Border Crossing in Gaza**\
+`The only crossing that connects Gaza with Egypt is reopening after nearly a year of closures. This will allow residents to leave for medical care or return to homes and families in the territory.`\
+https://nytimes.com/2026/02/01/world/middleeast/rafah-crossing-gaza-egypt-israel.html
+
 **NHL arenas of yore: Here are some of the fun quirks and features we miss**\
 `These old barns might not have had many modern conveniences, but they were quite memorable.`\
 https://nytimes.com/athletic/6900557/2026/02/01/nhl-old-arenas-boston-toronto-chicago/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7012921/2026/02/01/australian-open-final-carlos-alc
 **Lookman in advanced talks to join Atletico from Atalanta**\
 `The two clubs have already done business this month with Giacomo Raspadori joining the Serie A side from Atletico.`\
 https://nytimes.com/athletic/7013317/2026/02/01/ademola-lookman-atletico-madrid-transfer/
-
-**Ukraine Peace Talks Delayed After Russia and U.S. Meet**\
-`It was unclear why the latest round of negotiations, which had been expected on Sunday, were postponed for several days.`\
-https://nytimes.com/2026/02/01/world/europe/ukraine-russia-us-peace-talks.html
-
-**Clash forecasts as NASCAR's coldest race ever. How will drivers handle it?**\
-`Form-fitting car seats might be too snug for drivers wearing extra layers in the cold weather.`\
-https://nytimes.com/athletic/7012308/2026/02/01/nascar-clash-weather-coldest-race/
-
-**The Superstar Trap: Why leaders go all-in even when history says they shouldn’t**\
-`This isn’t just a basketball problem. It’s an organizational one. And it points to a decision-making trap leaders face in any organization.`\
-https://nytimes.com/athletic/7009861/2026/02/01/superstar-trap-leaders-all-in/
-
-**'It's been a battle coming back': Inside Linus Ullmark's return to Senators**\
-`Ullmark was named first star in his return to the crease after stepping away from the team on personal leave for mental health reasons.`\
-https://nytimes.com/athletic/7002652/2026/02/01/linus-ullmark-senators-return-nhl-devils/
 

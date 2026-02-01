@@ -1,3 +1,19 @@
+**Starmer Urges Former Prince Andrew to Testify to Congress Over Epstein Ties**\
+`Mr. Mountbatten-Windsor was stripped of his royal titles in October by his brother King Charles III because of growing questions around his links to Mr. Epstein.`\
+https://nytimes.com/2026/02/01/world/europe/andrew-mountbatten-windsor-jeffrey-epstein.html
+
+**College basketball observations: Saturday's bracket impact, UCF's double court storm and more**\
+`Plus: Kentucky rebounds with a big win over John Calipari's Arkansas, and how Saturday's action affected the NCAA Tournament picture.`\
+https://nytimes.com/athletic/7010972/2026/02/01/college-basketball-scores-results-takeaways-kansas-ucf-kentucky/
+
+**Szoboszlai says Liverpool future is 'not in my hands'**\
+`The Hungary midfielder's current deal expires in the summer of 2028 and the league champions are keen to renew his terms. `\
+https://nytimes.com/athletic/7013417/2026/02/01/dominik-szoboszlai-liverpool-contract-talks/
+
+**What to Know About the Rafah Border Crossing in Gaza**\
+`The only crossing that connects Gaza with Egypt is reopening after nearly a year of closures. This will allow residents to leave for medical care or return to homes and families in the territory.`\
+https://nytimes.com/2026/02/01/world/middleeast/rafah-crossing-gaza-egypt-israel.html
+
 **NHL arenas of yore: Here are some of the fun quirks and features we miss**\
 `These old barns might not have had many modern conveniences, but they were quite memorable.`\
 https://nytimes.com/athletic/6900557/2026/02/01/nhl-old-arenas-boston-toronto-chicago/

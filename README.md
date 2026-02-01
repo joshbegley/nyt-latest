@@ -1,3 +1,7 @@
+**The Pulse: What to cook for the Super Bowl**\
+`The Pulse asked members of The Athletic's newsroom for Super Bowl recipe ideas.`\
+https://nytimes.com/athletic/7011252/2026/02/01/super-bowl-recipes-2026-the-pulse/
+
 **Starmer Urges Former Prince Andrew to Testify to Congress Over Epstein Ties**\
 `Mr. Mountbatten-Windsor was stripped of his royal titles in October by his brother King Charles III because of growing questions around his links to Mr. Epstein.`\
 https://nytimes.com/2026/02/01/world/europe/andrew-mountbatten-windsor-jeffrey-epstein.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012607/2026/02/01/bruins-morgan-geekie-lightning-g
 **Game, Set Match: Alcaraz beats Djokovic at Australian Open, becomes youngest man to complete career Slam**\
 `Alcaraz dashed Djokovic's latest attempt to win a 25th Grand Slam title by making history of his own in Melbourne.`\
 https://nytimes.com/athletic/7012921/2026/02/01/australian-open-final-carlos-alcaraz-novak-djokovic-result-analysis/
-
-**Lookman in advanced talks to join Atletico from Atalanta**\
-`The two clubs have already done business this month with Giacomo Raspadori joining the Serie A side from Atletico.`\
-https://nytimes.com/athletic/7013317/2026/02/01/ademola-lookman-atletico-madrid-transfer/
 
