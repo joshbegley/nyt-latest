@@ -18,7 +18,7 @@ https://nytimes.com/athletic/7013103/2026/02/01/cavs-kings-bulls-trade-grades-de
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/01/todays-new-york-times
 
-**My Patient Was Dying, but Would His Wife Accept It?**\
+**My Patient Was Dying. His Wife Refused to Accept It.**\
 `How doctors can better navigate difficult patients and families.`\
 https://nytimes.com/2026/02/01/opinion/hospital-doctors-difficult-patients.html
 
