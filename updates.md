@@ -1,3 +1,8 @@
+**Rangers, Penguins and the juxtaposition of past and present for Mike Sullivan**\
+`As New York embarks on its "re-something," Pittsburgh sits comfortably in playoff position following Saturday’s 6-5 win.
+`\
+https://nytimes.com/athletic/7012865/2026/01/31/penguins-rangers-mike-sullivan-nhl/
+
 **Giants peg $12 million value to Luis Arraez's incredible, incalculable contact skills: Source**\
 `Arraez is a three-time batting champion who rarely strikes out — and who produces polarizing opinions from talent evaluators.`\
 https://nytimes.com/athletic/7012976/2026/01/31/giants-12-million-value-luis-arraezs-incredible-contact-skills/
