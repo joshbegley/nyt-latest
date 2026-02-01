@@ -2,7 +2,7 @@
 `More than 30 people have died across three Southern states in connection with last week’s storm, and thousands remain without power.`\
 https://nytimes.com/2026/02/01/us/fear-and-anger-grow-as-thousands-remain-without-power-in-the-south.html
 
-**LeBron James named to 2026 NBA All-Star game, extends selections record to 22**\
+**LeBron James makes NBA-record 22nd All-Star Game; Kevin Durant, Jamal Murray among reserves**\
 `James has now made three more All-Star teams than Kareem Abdul-Jabbar, who is second all-time.`\
 https://nytimes.com/athletic/7014383/2026/02/01/2026-nba-all-star-reserves-lebron/
 
@@ -27,7 +27,7 @@ https://nytimes.com/2026/02/01/obituaries/robert-pratt-dead.html
 https://nytimes.com/athletic/7014447/2026/02/01/lightning-bruins-stadium-series-arrival/
 
 **Grammys Red Carpet Photos: Music’s Biggest Stars Make Their Entrances**\
-`See what nominees for the 68th Grammy Awards wore to arrive to the ceremony.`\
+`See what nominees and guests for the 68th Grammy Awards, including Sabrina Carpenter, Addison Rae and Tyla, wore to arrive to the ceremony.`\
 https://nytimes.com/2026/02/01/style/grammys-red-carpet-photos-2026.html
 
 **Snow, Ice, Parking Hell: It’s a Tough Winter to Be a New York City Mover**\
