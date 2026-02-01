@@ -1,3 +1,7 @@
+**Barnes jokes after Vols' turnovers: 'Sometimes I wonder if my guys are betting on games'**\
+`The team ranks second-to-last in the SEC in turnover margin at minus-1.29, and total turnovers on the season with 275.`\
+https://nytimes.com/athletic/7013806/2026/02/01/rick-barnes-tennessee-betting-games-joke/
+
 **The Briefing - Spurs 2 Man City 2: How good was Solanke scorpion kick? What does this mean for Frank and title race?**\
 `Our writers break down the action from an exciting draw in north London.`\
 https://nytimes.com/athletic/7006950/2026/02/01/tottenham-man-city-cherki-frank/
