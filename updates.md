@@ -1,3 +1,19 @@
+**How to watch Nets vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7013685/2026/02/01/nets-vs-pistons-stream-how-to-watch-feb-1/
+
+**How to watch Lakers vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7013683/2026/02/01/lakers-vs-knicks-stream-how-to-watch-feb-1/
+
+**How to watch Bulls vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7013679/2026/02/01/bulls-vs-heat-stream-how-to-watch-feb-1/
+
+**How to watch Bruins vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7013677/2026/02/01/bruins-vs-lightning-stream-how-to-watch-feb-1/
+
 **How to watch Nebraska vs. Ohio State women's basketball: Time, TV, streaming**\
 `Find out how to watch the Nebraska Cornhuskers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7013661/2026/02/01/nebraska-vs-ohio-state-stream-how-to-watch-feb-1/
