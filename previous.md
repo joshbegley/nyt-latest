@@ -1,5 +1,9 @@
+**Brighton in talks with Marseille over Matt O'Riley loan return**\
+`A deal hinges on whether Fabian Hurzeler believes the midfielder can make a contribution for the rest of the season despite the competition.`\
+https://nytimes.com/athletic/7013714/2026/02/01/matt-oriley-brighton-marseille-loan-return/
+
 **X.J. Kennedy, a Poet of Wit Who Clung to Rhyme and Meter, Dies at 96**\
-`Spurning the iconoclastic free verse of many of his contemporaries, he held to an older tradition. He also wrote spirited poems for children.`\
+`Spurning the free verse of many of his contemporaries, he held to an older tradition. He also wrote spirited poems for children.`\
 https://nytimes.com/2026/02/01/books/xj-kennedy-dead.html
 
 **How to watch Jazz vs. Raptors: Time, TV, streaming**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7006948/2026/02/01/manchester-united-3-fulham-2/
 **Beany, Greeny, Grainy Goodness**\
 `This blend of barley, white beans and spinach with sun-dried tomatoes not only holds up well, it becomes even more flavorful with time.`\
 https://nytimes.com/2026/02/01/dining/beany-greeny-grainy-goodness.html
-
-**Lowetide: An innovative way for the Oilers to impact the 2026 NHL Draft**\
-`The Oilers currently hold four picks in the 2026 NHL Draft, beginning in the second round.`\
-https://nytimes.com/athletic/7012201/2026/02/01/edmonton-oilers-2026-nhl-draft-picks-strategy/
 

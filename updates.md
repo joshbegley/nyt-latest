@@ -1,3 +1,11 @@
+**Brighton in talks with Marseille over Matt O'Riley loan return**\
+`A deal hinges on whether Fabian Hurzeler believes the midfielder can make a contribution for the rest of the season despite the competition.`\
+https://nytimes.com/athletic/7013714/2026/02/01/matt-oriley-brighton-marseille-loan-return/
+
+**X.J. Kennedy, a Poet of Wit Who Clung to Rhyme and Meter, Dies at 96**\
+`Spurning the free verse of many of his contemporaries, he held to an older tradition. He also wrote spirited poems for children.`\
+https://nytimes.com/2026/02/01/books/xj-kennedy-dead.html
+
 **X.J. Kennedy, a Poet of Wit Who Clung to Rhyme and Meter, Dies at 96**\
 `Spurning the iconoclastic free verse of many of his contemporaries, he held to an older tradition. He also wrote spirited poems for children.`\
 https://nytimes.com/2026/02/01/books/xj-kennedy-dead.html
