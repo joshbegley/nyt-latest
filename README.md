@@ -1,3 +1,15 @@
+**Wolves risk sliding back into despondency if they don't make new signings**\
+`Improved recent performances had lifted the spirits at Molineux, but without fresh faces and ideas, that momentum is tarting to dissipate`\
+https://nytimes.com/athletic/7012422/2026/02/01/wolves-bournemouth-transfer-window/
+
+**West Ham have dropped 18 points from winning positions – signing a defender is a priority**\
+`After losing another lead against Chelsea, West Ham will be focused on defensive reinforcements before the window shuts`\
+https://nytimes.com/athletic/7012167/2026/02/01/west-ham-chelsea-defender-transfer-window/
+
+**Are Leeds spending their money at the wrong end of the pitch?**\
+`The Yorkshire club are willing to spend £40m on striker Jorgen Strand Larsen but that money might be better used recruiting a new goalkeeper`\
+https://nytimes.com/athletic/7012447/2026/02/01/leeds-darlow-perri-larsen-goalkeeper-transfer/
+
 **With the walls closing in, Arsenal really needed this bold and courageous reaction**\
 `After three games without a win in the Premier League, Mikel Arteta's side navigated a tempestuous atmosphere at Elland Road`\
 https://nytimes.com/athletic/7012385/2026/02/01/arsenal-leeds-reaction-madueke-gyokeres-zubimendi/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7009434/2026/02/01/wrexham-transfer-window-latest-p
 **Boxer Jarrell Miller has hairpiece punched off in split-decision victory**\
 `In between rounds, the heavyweight fighter threw the hairpiece into the stands.`\
 https://nytimes.com/athletic/7013073/2026/02/01/boxer-jarrell-miller-hairpiece-punched-off/
-
-**The Corinthians fans taking over the FIFA Women's Champions Cup: 'It's like religion'**\
-`Corinthians supporters have stolen the show during the inaugural FIFA tournament`\
-https://nytimes.com/athletic/7010336/2026/02/01/sc-corinthians-fans-fifa-women-champions-cup/
-
-**The Richest 2026 Players: A.I., Crypto, Pro-Israel Groups and Trump**\
-`All have amassed enormous war chests, new filings show, making them the financial wild cards of this year’s midterm elections and feared political spenders.`\
-https://nytimes.com/2026/02/01/us/politics/ai-crypto-trump-super-pac-israel-2026-midterms.html
-
-**Why Is Taking the Rest of the Donetsk Region So Important to Putin?**\
-`Secretary of State Marco Rubio called the question “the one remaining item” in Abu Dhabi peace talks. Russia disputed that.`\
-https://nytimes.com/2026/02/01/world/europe/putin-ukraine-donbas-donetsk.html
 
