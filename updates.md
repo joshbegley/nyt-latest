@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7012865/2026/01/31/penguins-rangers-mike-sullivan-nhl/
 
+**Rangers, Penguins and the juxtaposition of past and present for Mike Sullivan**\
+`As New York embarks on its "re-something," Pittsburgh sits comfortably in playoff position following Saturday’s 6-5 win.
+`\
+https://nytimes.com/athletic/7012865/2026/01/31/penguins-rangers-mike-sullivan-nhl/
+
 **Future of Padres' A.J. Preller's contract extension remains unclear**\
 `With both the front office and roster mired in uncertainty, Padres' A.J. Preller says he still expects a future with the team.`\
 https://nytimes.com/athletic/7012861/2026/01/31/padres-offseason-preller-contract-extension/

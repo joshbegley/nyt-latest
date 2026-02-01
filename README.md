@@ -1,3 +1,7 @@
+**Why MLB stars are being told they can’t play in the World Baseball Classic**\
+`Puerto Rico threatens withdrawal from tournament because some of its best players can’t get insurance coverage`\
+https://nytimes.com/athletic/7012509/2026/01/31/wbc-insurance-puerto-rico-francisco-lindor/
+
 **Rangers, Penguins and the juxtaposition of past and present for Mike Sullivan**\
 `As New York embarks on its "re-something," Pittsburgh sits comfortably in playoff position following Saturday’s 6-5 win.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7012782/2026/01/31/lewis-miley-sven-botman-newcastl
 **10 Injured in 59-Vehicle Pileup on Fog-Shrouded California Highway, Police Say**\
 `One person died earlier this month in a foggy crash on the same highway.`\
 https://nytimes.com/2026/01/31/us/california-crash-pileup-highway-99.html
-
-**What's wrong with Red Wings after winless homestand? Five thoughts**\
-`The Red Wings' early-season success is being tested as the games get harder.`\
-https://nytimes.com/athletic/7012653/2026/01/31/red-wings-avalanche-todd-mclellan-dylan-larkin/
 
