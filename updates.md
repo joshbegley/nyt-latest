@@ -1,3 +1,11 @@
+**Why Targeting Iran Is Riskier Than Ousting Maduro**\
+`Iran’s ability to strike Israel and destabilize the wider Middle East makes it a far more dangerous adversary.`\
+https://nytimes.com/2026/02/01/world/trump-iran-threats-venezuela-epstein-files.html
+
+**How Trump Appears in the Epstein Files**\
+`The New York Times found more than 5,300 files with references to Mr. Trump and related terms. They include salacious and unverified claims, as well as documents that had already been made public.`\
+https://nytimes.com/2026/02/01/us/trump-epstein-files.html
+
 **A Victory for ‘Golden’ Gives K-Pop Its First Ever Grammy Win**\
 `The breakout song from “KPop Demon Hunters” won best song written for visual media on Sunday, ending a drought for the powerhouse global genre.`\
 https://nytimes.com/2026/02/01/arts/music/golden-kpop-demon-hunters-grammys.html
