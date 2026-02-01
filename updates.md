@@ -1,3 +1,11 @@
+**Doc Rivers stands by calling ICE shooting in Minneapolis 'straight-up murder'**\
+`“If you’re brown, you’re nervous,” the Milwaukee Bucks coach said about the administration's immigration enforcement activities.`\
+https://nytimes.com/athletic/7014107/2026/02/01/doc-rivers-ice-shooting-murder-minnesota/
+
+**Liverpool agree summer deal for Rennes defender Jacquet**\
+`The deal is expected to be worth £55million plus £5m in add-ons.`\
+https://nytimes.com/athletic/6982654/2026/02/01/jeremy-jacquet-liverpool-rennes-transfer-news/
+
 **After nearly 40 years, Candi Staton returns to the Grammys.**\
 `By Garth Cartwright`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026/after-nearly-40-years-candi-staton-returns-to-the-grammys
