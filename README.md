@@ -14,11 +14,11 @@ https://nytimes.com/athletic/7012933/2026/01/31/cavaliers-kings-trade-keon-ellis
 `The Blue Jackets are on their hottest streak of the season, and now they're closing out games ... even when it's not pretty.`\
 https://nytimes.com/athletic/7012445/2026/01/31/blue-jackets-blues-jet-greaves-win/
 
-**Giants peg $12 million value to Luis Arraez's incredible, incalculable contact skills: Source**\
+**Giants peg $12 million value to Luis Arraez's incredible, incalculable contact skills**\
 `Arraez is a three-time batting champion who rarely strikes out — and who produces polarizing opinions from talent evaluators.`\
 https://nytimes.com/athletic/7012976/2026/01/31/giants-12-million-value-luis-arraezs-incredible-contact-skills/
 
-**Government regulators approve ESPN's billion-dollar acquisition of NFL Media**\
+**Government regulators approve ESPN's billion-dollar acquisition of top NFL Media assets**\
 `As part of the agreement, the NFL will take a 10 percent ownership stake in the Disney-owned network.`\
 https://nytimes.com/athletic/7009795/2026/01/31/espn-nfl-media-deal-buy-billion/
 
