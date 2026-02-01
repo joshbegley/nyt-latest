@@ -1,3 +1,11 @@
+**Manchester United 3 Fulham 2: How do you replace Casemiro? First goal controversial? United getting nastier?**\
+`Michael Carrick's side need a stoppage time winner from Benjamin Sesko after a remarkable Fulham comeback`\
+https://nytimes.com/athletic/7006948/2026/02/01/manchester-united-3-fulham-2/
+
+**Beany, Greeny, Grainy Goodness**\
+`This blend of barley, white beans and spinach with sun-dried tomatoes not only holds up well, it becomes even more flavorful with time.`\
+https://nytimes.com/2026/02/01/dining/beany-greeny-grainy-goodness.html
+
 **Four thoughts on the Giants' Luis Arraez signing: Worry about his position later and more**\
 `Arraez is a batting champion in his prime. He may not be a perfect fit for the Giants, but he makes the team better even with his flaws.`\
 https://nytimes.com/athletic/7013211/2026/02/01/sf-giants-luis-arraez-signing-analysis/
