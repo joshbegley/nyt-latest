@@ -1,40 +1,40 @@
-**Liverpool in talks over Geertruida loan transfer**\
-`The 25-year-old Netherlands international is currently on a season-long loan deal at Sunderland from RB Leipzig.`\
-https://nytimes.com/athletic/7013309/2026/02/01/liverpool-transfer-news-geertruida/
+**Federal Courts Undercut Trump’s Mass Deportation Campaign**\
+`A policy intended to keep immigrants detained indefinitely has led to a deluge of lawsuits, overwhelming some federal courts and resulting in many releases.`\
+https://nytimes.com/2026/02/01/us/habeas-corpus-detainee-immigrant-trump-federal-courts.html
 
-**Mayor Mamdani and the Taxi Driver**\
-`Richard Chow befriended Zohran Mamdani five years ago and has driven him to City Hall and Gracie Mansion.`\
-https://nytimes.com/2026/02/01/nyregion/mamdani-taxi-drivers-nyc.html
+**The Best Movies and TV Shows Coming to Disney+, Amazon, HBO Max, Peacock and More in February**\
+`The docuseries “Soul Power” and “The Muppet Show” arrive, and “Dark Winds,” “Monarch: Legacy of Monsters,” “Scrubs” and “John Oliver” return.`\
+https://nytimes.com/2026/02/01/arts/television/movies-tv-shows-february-2026-streaming.html
 
-**Woman Says Tal Alexander Assaulted Her When She Was 13 Years Old**\
-`The woman told police she was at a party when she was drugged and assaulted by five boys, including Mr. Alexander, who is currently on trial for sex trafficking.`\
-https://nytimes.com/2026/02/01/nyregion/alexanders-trial-victim-abuse.html
+**Rare Albatross Coasts Above California Waters Far From Home**\
+`The unexpected sighting of a waved albatross, which was thousands of miles from its typical range, earned it a label ornithologists reserve for the unexpected: an avian “vagrant.”`\
+https://nytimes.com/2026/02/01/us/galapagos-albatross-california.html
 
-**‘Spontaneously, We Both Start to Laugh, Giggle Even’**\
-`A shared snack at the movies, love rides the express train and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2026/02/01/nyregion/metropolitan-diary.html
+**Is the Personal Political? Five Takeaways From Gavin Newsom’s New Book**\
+`His introspective memoir tries to challenge the conventional wisdom about his upbringing, explores his marriages and airs a little dirty laundry — but says relatively little about politics.`\
+https://nytimes.com/2026/02/01/us/politics/gavin-newsom-memoir-takeaways.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/01/crosswords/spelling-bee-forum.html
+**Despite ‘Wrong’ Comments, Gun Rights Groups Say Trump Has Their Back**\
+`Activists criticized the president after he blamed Alex Pretti for carrying a gun in Minneapolis before federal agents killed him. But there is little sign of a lasting rupture.`\
+https://nytimes.com/2026/02/01/us/despite-wrong-comments-gun-rights-groups-say-trump-has-their-back.html
 
-**How Trump Took Up the ‘Christian Genocide’ Cause in Nigeria**\
-`A yearslong effort to convince Washington of religious persecution is shifting foreign policy toward the West African nation, with major consequences.`\
-https://nytimes.com/2026/02/01/world/africa/nigeria-christians-trump.html
+**Solve the February Bonus Puzzle**\
+`This month’s Taylor Swift themed grid was constructed by Patti Varol.`\
+https://nytimes.com/2026/02/01/crosswords/bonus-puzzle-taylor-swift.html
 
-**Mamdani’s 31-Day Challenge: Showing Voters They Were ‘Right to Believe’**\
-`In his first month as mayor of New York City, Zohran Mamdani used his showmanship to spotlight some early victories, even amid some stumbles.`\
-https://nytimes.com/2026/02/01/nyregion/mamdanis-31-day-challenge-showing-voters-they-were-right-to-believe.html
+**Target’s New C.E.O. Faces Hometown Crisis as He Begins Turnaround Effort**\
+`Michael Fiddelke takes the top job at the struggling retailer amid continued unrest in the Twin Cities. A new boss also steps in at Walmart, where things are quieter.`\
+https://nytimes.com/2026/02/01/business/target-ceo-minneapolis.html
 
-**The Times Needed Broadway Fans. Enter the Mincefluencers.**\
-`The New York Times Magazine gathered nearly 150 people obsessed with the musical ‘Operation Mincemeat’ for a photo shoot in Manhattan.`\
-https://nytimes.com/2026/02/01/insider/operation-mincemeat-fans-broadway.html
+**18 Off Broadway Shows (and Some Puppets) to Defrost Your February**\
+`Sean Hayes performs a new solo thriller, Alia Shawkat leads a play revival and Ethan Slater stars as Marcel Marceau in a world premiere.`\
+https://nytimes.com/2026/02/01/theater/off-broadway-shows.html
 
-**Wild get points from 15 players, once again beat their favorite foe: Takeaways**\
-`The Wild once again handled the Oilers, a domination that dates back to 2005.`\
-https://nytimes.com/athletic/7013033/2026/02/01/wild-points-from-15-players-once-again-beat-oilers/
+**How to Watch the 2026 Grammys**\
+`A guide to everything you need to know for the 68th annual awards on Sunday night.`\
+https://nytimes.com/2026/02/01/arts/music/grammys-2026-when-time-how-watch.html
 
-**Chelsea crave control. But it is intensity that elevates them**\
-`Liam Rosenior proved a master motivator as Chelsea's speed, purpose and aggression pierced and ultimately crushed West Ham’s defensive shell`\
-https://nytimes.com/athletic/7012513/2026/02/01/chelsea-rosenior-motivation-west-ham-napoli/
+**How Alex Pretti’s Death Became a National Tipping Point**\
+`Several factors converged to force a remarkable shift in the federal government’s aggressive efforts in Minnesota.`\
+https://nytimes.com/2026/02/01/us/alex-pretti-minneapolis.html
 
