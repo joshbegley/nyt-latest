@@ -1,3 +1,7 @@
+**Religious Leaders in Minnesota Say It’s Their Duty to Resist ICE**\
+`A more progressive Christianity is in the spotlight in Minneapolis — a hyper-visible counterpoint to the muscular, politicized Christianity expressed by the Trump administration.`\
+https://nytimes.com/2026/02/01/briefing/religious-leaders-in-minnesota-say-its-their-duty-to-resist-ice.html
+
 **Why Novak Djokovic's Australian Open proved his late career means far more than majors**\
 `The 24-time Grand Slam champion has added layers to his legacy even in missing out on the 25th title he craved.`\
 https://nytimes.com/athletic/7013488/2026/02/01/novak-djokovic-tennis-legacy-titles-australian-open/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013485/2026/02/01/jude-bellingham-real-madrid-hams
 **How to watch Kings vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7013481/2026/02/01/kings-vs-hurricanes-stream-how-to-watch-feb-1/
-
-**How to watch Bucks vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013479/2026/02/01/bucks-vs-celtics-stream-how-to-watch-feb-1/
 
