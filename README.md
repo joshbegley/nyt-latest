@@ -1,3 +1,11 @@
+**A ‘Historic’ Snowfall Hits the Carolinas**\
+`Blanketed beaches. Frozen suburbs. Football fields buried in snow. Everywhere in the region, people felt the storm, which caused two deaths.`\
+https://nytimes.com/2026/02/01/us/a-historic-snowfall-hits-the-carolinas.html
+
+**Red Sox deal Jordan Hicks to White Sox as part of prospect swap: Sources**\
+`Right-hander David Sandlin will also go to Chicago while righty Gage Ziehl will head to Boston.`\
+https://nytimes.com/athletic/7013648/2026/02/01/red-sox-white-sox-jordan-hicks-trade/
+
 **Raiders zeroing in on hiring Seahawks' Klint Kubiak as head coach: Sources**\
 `Kubiak, 38, would be joining his sixth different franchise in as many seasons after helping the Seahawks reach the Super Bowl.`\
 https://nytimes.com/athletic/7001711/2026/02/01/raiders-hire-klint-kubiak-head-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7013686/2026/02/01/vikings-justin-jefferson-sam-dar
 **Hawks trade Vít Krejčí to Trail Blazers for Duop Reath: Source**\
 `Krejčí, 25, is hitting 42.3 percent of his 3s this season in a reserve role.`\
 https://nytimes.com/athletic/7013784/2026/02/01/hawks-blazers-trade-vit-krejci-duop-reath/
-
-**Mamdani Announces New Shelter Beds as Death Toll During Cold Rises to 14**\
-`The 50 units in Upper Manhattan will house single people who may be reluctant to stay in group shelters.`\
-https://nytimes.com/2026/02/01/nyregion/mamdani-cold-deaths-shelters-nyc.html
-
-**Penguins' January report card qualifies just about everyone for the Dean's List**\
-`The Penguins' report card for January is as good as you'd expect.`\
-https://nytimes.com/athletic/7013018/2026/02/01/january-penguins-report-card-deans-list/
 
