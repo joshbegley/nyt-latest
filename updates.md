@@ -1,3 +1,7 @@
+**LeBron James named to 2026 NBA All-Star game, extends selections record to 22**\
+`James has now made three more All-Star teams than Kareem Abdul-Jabbar, who is second all-time.`\
+https://nytimes.com/athletic/7014383/2026/02/01/2026-nba-all-star-reserves-lebron/
+
 **‘Historic’ Snowstorm Hits the Carolinas, National Weather Service says**\
 `Heavy snow and bitter cold have spread across North and South Carolina, with some areas receiving more than 18 inches of snow.`\
 https://nytimes.com/video/weather/100000010682832/historic-snowstorm-hits-the-carolinas-national-weather-service-says.html
