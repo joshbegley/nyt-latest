@@ -1,3 +1,7 @@
+**Emery calls Villa's disallowed goal 'not fair' after four-minute VAR check**\
+`Tammy Abraham's goal was disallowed against Brentford after the ball was deemed to have gone out of play 19 seconds before.`\
+https://nytimes.com/athletic/7013752/2026/02/01/tammy-abraham-aston-villa-goal-brentford/
+
 **Everton reach agreement in principle with Chelsea for George loan**\
 `The 19-year-old has made only 11 appearances this term after a move to Fulham broke down last summer, four of those coming in the league.`\
 https://nytimes.com/athletic/6535026/2026/02/01/tyrique-george-everton-chelsea-loan-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013696/2026/02/01/jazz-vs-raptors-stream-how-to-wa
 **How to watch Nets vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7013685/2026/02/01/nets-vs-pistons-stream-how-to-watch-feb-1/
-
-**How to watch Lakers vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013683/2026/02/01/lakers-vs-knicks-stream-how-to-watch-feb-1/
 

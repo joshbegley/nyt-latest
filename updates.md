@@ -1,3 +1,7 @@
+**Emery calls Villa's disallowed goal 'not fair' after four-minute VAR check**\
+`Tammy Abraham's goal was disallowed against Brentford after the ball was deemed to have gone out of play 19 seconds before.`\
+https://nytimes.com/athletic/7013752/2026/02/01/tammy-abraham-aston-villa-goal-brentford/
+
 **Everton reach agreement in principle with Chelsea for George loan**\
 `The 19-year-old has made only 11 appearances this term after a move to Fulham broke down last summer, four of those coming in the league.`\
 https://nytimes.com/athletic/6535026/2026/02/01/tyrique-george-everton-chelsea-loan-deal/
