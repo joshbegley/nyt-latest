@@ -1,3 +1,7 @@
+**How to watch Jazz vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7013696/2026/02/01/jazz-vs-raptors-stream-how-to-watch-feb-1/
+
 **How to watch Nets vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7013685/2026/02/01/nets-vs-pistons-stream-how-to-watch-feb-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012201/2026/02/01/edmonton-oilers-2026-nhl-draft-p
 **Four thoughts on the Giants' Luis Arraez signing: Worry about his position later and more**\
 `Arraez is a batting champion in his prime. He may not be a perfect fit for the Giants, but he makes the team better even with his flaws.`\
 https://nytimes.com/athletic/7013211/2026/02/01/sf-giants-luis-arraez-signing-analysis/
-
-**Saint-Maximin leaves Club America after 'acts of racism' against his daughters**\
-`Club America's head coach said "an act of racism occurred against his daughters" and adding that this "has happened multiple times".`\
-https://nytimes.com/athletic/7013444/2026/02/01/racism-mexico-saint-maximin/
 
