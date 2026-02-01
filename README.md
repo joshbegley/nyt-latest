@@ -1,3 +1,19 @@
+**How to watch Nets vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7013685/2026/02/01/nets-vs-pistons-stream-how-to-watch-feb-1/
+
+**How to watch Lakers vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7013683/2026/02/01/lakers-vs-knicks-stream-how-to-watch-feb-1/
+
+**How to watch Bulls vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7013679/2026/02/01/bulls-vs-heat-stream-how-to-watch-feb-1/
+
+**How to watch Bruins vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7013677/2026/02/01/bruins-vs-lightning-stream-how-to-watch-feb-1/
+
 **How to watch Nebraska vs. Ohio State women's basketball: Time, TV, streaming**\
 `Find out how to watch the Nebraska Cornhuskers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7013661/2026/02/01/nebraska-vs-ohio-state-stream-how-to-watch-feb-1/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7013211/2026/02/01/sf-giants-luis-arraez-signing-an
 **Saint-Maximin leaves Club America after 'acts of racism' against his daughters**\
 `Club America's head coach said "an act of racism occurred against his daughters" and adding that this "has happened multiple times".`\
 https://nytimes.com/athletic/7013444/2026/02/01/racism-mexico-saint-maximin/
-
-**Carlos Alcaraz has the career Grand Slam, but his tennis legend is long in the writing**\
-`Alcaraz, 22, is already approaching legendary status. He says that he is nowhere near finished writing his own.`\
-https://nytimes.com/athletic/7013494/2026/02/01/tennis-carlos-alcaraz-australian-open-career-grand-slam/
-
-**New 49ers docuseries serves as Tom Brady's ode to Joe Montana, Jerry Rice, others**\
-`A new AMC documentary limited series on the San Francisco 49ers premieres with the first two episodes on Sunday and two more on Monday.`\
-https://nytimes.com/athletic/7009288/2026/02/01/49ers-amc-documentary-tom-brady-nfl/
-
-**Palace's Mateta undergoes medical ahead of Milan move**\
-`The 28-year-old striker is set for a proposed transfer in a deal in excess of €30million (£26m).`\
-https://nytimes.com/athletic/6999684/2026/02/01/jean-phillipe-mateta-milan-crystal-palace-transfer-news/
-
-**Religious Leaders in Minnesota Say It’s Their Duty to Resist ICE**\
-`Progressive clergy members are in the spotlight — protesting, organizing and getting arrested. It’s a split screen to the Trump administration’s muscular, conservative Christianity.`\
-https://nytimes.com/2026/02/01/briefing/religious-leaders-in-minnesota-say-its-their-duty-to-resist-ice.html
 
