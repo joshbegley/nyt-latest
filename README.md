@@ -1,3 +1,7 @@
+**Democratic Upset in Deep Red Texas District Rattles Republicans**\
+`A Democrat won a state legislative special election in a district that President Trump carried by 17 percentage points, unnerving Republicans in Texas and beyond.`\
+https://nytimes.com/2026/02/01/us/democratic-upset-texas-district-republicans.html
+
 **'Little bit of a heart attack': Joseph Woll makes the save in Leafs win over Canucks**\
 `The Leafs escaped with a 3-2 shootout win, in large part because of Woll, who stopped 28 of 30 shots. They snapped a six-game losing streak.`\
 https://nytimes.com/athletic/7013134/2026/02/01/leafs-win-canucks-joseph-woll-save/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012385/2026/02/01/arsenal-leeds-reaction-madueke-g
 **How to leave a football club the right way - and how not to do it**\
 `Antoine Semenyo took out a full-page newspaper advert, while Josh Sargent is finding that departing on good terms can be difficult`\
 https://nytimes.com/athletic/6993731/2026/02/01/how-to-leave-a-football-club/
-
-**Meet Helena Costa, the only female sporting director in the men's game**\
-`She made headlines around the world when appointed to manage Clermont Foot in France but now she is leading the way in a different role`\
-https://nytimes.com/athletic/6993615/2026/02/01/meet-helena-costa-the-only-female-sporting-director-in-the-mens-game/
 
