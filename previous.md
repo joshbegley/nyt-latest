@@ -1,3 +1,7 @@
+**Frank Thomas upset with White Sox Black History Month graphic**\
+`"I guess the black player who made you rich over there and holds all your records is forgettable!" the Hall of Famer wrote on X.`\
+https://nytimes.com/athletic/7013959/2026/02/01/frank-thomas-white-sox-black-history-month/
+
 **Why Targeting Iran Is Riskier Than Ousting Maduro**\
 `Iran’s ability to strike Israel and destabilize the wider Middle East makes it a far more dangerous adversary.`\
 https://nytimes.com/2026/02/01/world/trump-iran-threats-venezuela-epstein-files.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013818/2026/02/01/arbeloa-real-madrid-rayo-la-liga
 **Canadian Company Cancels Sale of Virginia Warehouse to ICE**\
 `Jim Pattison Developments said the sale of an industrial building, which was planned to become an Immigration and Customs Enforcement processing facility, would not go forward.`\
 https://nytimes.com/2026/02/01/us/politics/ice-warehouse-detention-canada.html
-
-**49ers hiring Raheem Morris as defensive coordinator: Sources**\
-`Morris will be the 49ers' fifth defensive coordinator in as many seasons, after Robert Saleh left to become the Titans' head coach.`\
-https://nytimes.com/athletic/7004901/2026/02/01/raheem-morris-49ers-defensive-coordinator/
 
