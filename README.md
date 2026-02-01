@@ -1,5 +1,9 @@
+**How to watch Nebraska vs. Ohio State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7013661/2026/02/01/nebraska-vs-ohio-state-stream-how-to-watch-feb-1/
+
 **Manchester United 3 Fulham 2: How do you replace Casemiro? First goal controversial? United getting nastier?**\
-`Michael Carrick's side need a stoppage time winner from Benjamin Sesko after a remarkable Fulham comeback`\
+`Michael Carrick's side scored a stoppage-time winner through Benjamin Sesko after a remarkable Fulham comeback`\
 https://nytimes.com/athletic/7006948/2026/02/01/manchester-united-3-fulham-2/
 
 **Beany, Greeny, Grainy Goodness**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6999684/2026/02/01/jean-phillipe-mateta-milan-cryst
 **Religious Leaders in Minnesota Say It’s Their Duty to Resist ICE**\
 `Progressive clergy members are in the spotlight — protesting, organizing and getting arrested. It’s a split screen to the Trump administration’s muscular, conservative Christianity.`\
 https://nytimes.com/2026/02/01/briefing/religious-leaders-in-minnesota-say-its-their-duty-to-resist-ice.html
-
-**Why Novak Djokovic's Australian Open proved his late career means far more than majors**\
-`The 24-time Grand Slam champion has added layers to his legacy even in missing out on the 25th title he craved.`\
-https://nytimes.com/athletic/7013488/2026/02/01/novak-djokovic-tennis-legacy-titles-australian-open/
 
