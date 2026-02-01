@@ -1,3 +1,15 @@
+**A ‘Historic’ Snowfall Hits the Carolinas**\
+`Blanketed beaches. Frozen suburbs. Football fields buried in snow. Everywhere in the region, people felt the storm, which caused two deaths.`\
+https://nytimes.com/2026/02/01/us/a-historic-snowfall-hits-the-carolinas.html
+
+**Red Sox deal Jordan Hicks to White Sox as part of prospect swap: Sources**\
+`Right-hander David Sandlin will also go to Chicago while righty Gage Ziehl will head to Boston.`\
+https://nytimes.com/athletic/7013648/2026/02/01/red-sox-white-sox-jordan-hicks-trade/
+
+**Raiders zeroing in on hiring Seahawks' Klint Kubiak as head coach: Sources**\
+`Kubiak, 38, would be joining his sixth different franchise in as many seasons after helping the Seahawks reach the Super Bowl.`\
+https://nytimes.com/athletic/7001711/2026/02/01/raiders-hire-klint-kubiak-head-coach/
+
 **Barnes jokes after Vols' turnovers: 'Sometimes I wonder if my guys are betting on games'**\
 `The team ranks second-to-last in the SEC in turnover margin at minus-1.29, and total turnovers on the season with 275.`\
 https://nytimes.com/athletic/7013806/2026/02/01/rick-barnes-tennessee-betting-games-joke/
