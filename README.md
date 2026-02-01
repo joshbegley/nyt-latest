@@ -1,3 +1,7 @@
+**They Said They Weren’t Close to Epstein. New Documents Show Otherwise.**\
+`Materials released by the Justice Department revealed that leading business and political figures had enduring relationships with the disgraced financier.`\
+https://nytimes.com/2026/01/31/us/epstein-powerful-men.html
+
 **Darryn Peterson leaves no doubt in duel with AJ Dybantsa — for a half**\
 `Every game, the Kansas Jayhawks have to wonder just how much they’ll get from Darryn Peterson that day.`\
 https://nytimes.com/athletic/7012771/2026/01/31/darryn-peterson-aj-dybantsa-kansas-byu-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/31/nyregion/nyc-correction-dept-richards-mamdani.htm
 **Texas Special Runoff Election Results**\
 `Get live results and maps from the Jan. 31, 2026 Texas special runoff elections.`\
 https://nytimes.com/interactive/2026/01/31/us/elections/results-texas-special-runoff.html
-
-**Read the document**\
-`A judicial order freeing a 5-year-old boy and his father, detained by federal immigration authorities.`\
-https://nytimes.com/interactive/2026/01/31/us/31nat-liam-court-order-doc.html
 
