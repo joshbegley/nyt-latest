@@ -1,3 +1,11 @@
+**How to watch Kings vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7013481/2026/02/01/kings-vs-hurricanes-stream-how-to-watch-feb-1/
+
+**How to watch Bucks vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7013479/2026/02/01/bucks-vs-celtics-stream-how-to-watch-feb-1/
+
 **How to watch Florida vs. Vanderbilt women's basketball: Time, TV, streaming**\
 `Find out how to watch the Florida Gators play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7013474/2026/02/01/florida-vs-vanderbilt-stream-how-to-watch-feb-1/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7013462/2026/02/01/iowa-state-vs-kansas-state-strea
 **How to watch Kentucky vs. Arkansas women's basketball: Time, TV, streaming**\
 `Find out how to watch the Kentucky Wildcats play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7013459/2026/02/01/kentucky-vs-arkansas-stream-how-to-watch-feb-1/
-
-**Inside the stunning dismissal of Vikings GM Kwesi Adofo-Mensah: 'This is wild'**\
-`While speculation had swirled about Kwesi Adofo-Mensah's future in Minnesota, almost no one expected a move to come in late January.`\
-https://nytimes.com/athletic/7012881/2026/02/01/kwesi-adofo-mensah-firing-explained-vikings/
-
-**Are Giannis Antetokounmpo and Mike Dunleavy Jr. on another collision course?**\
-`A decade after a brutal hit in the playoffs, Mike Dunleavy Jr. is weighing a swing that could define his Warriors' tenure. `\
-https://nytimes.com/athletic/7013017/2026/02/01/giannis-antetokounmpo-mike-dunleavy-warriors-bucks-trade/
 
