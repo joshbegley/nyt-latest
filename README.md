@@ -1,3 +1,7 @@
+**Judge Who Ruled Against Trump Administration Cleared of Justice Dept. Complaint**\
+`Trump allies have called for Judge James E. Boasberg to be investigated and impeached after decisions that questioned the administration’s respect for the rule of law.`\
+https://nytimes.com/2026/02/01/us/politics/judge-boasberg-ethics-complaint-trump.html
+
 **Emery calls Villa's disallowed goal 'not fair' after four-minute VAR check**\
 `Tammy Abraham's goal was disallowed against Brentford after the ball was deemed to have gone out of play 19 seconds before.`\
 https://nytimes.com/athletic/7013752/2026/02/01/tammy-abraham-aston-villa-goal-brentford/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/01/books/xj-kennedy-dead.html
 **How to watch Jazz vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7013696/2026/02/01/jazz-vs-raptors-stream-how-to-watch-feb-1/
-
-**How to watch Nets vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013685/2026/02/01/nets-vs-pistons-stream-how-to-watch-feb-1/
 
