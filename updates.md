@@ -1,3 +1,7 @@
+**Wrexham's play-off perch means there's no need to panic in rest of transfer window**\
+`Wrexham have plans before Monday's deadline, but they will be adding from a position of strength`\
+https://nytimes.com/athletic/7009434/2026/02/01/wrexham-transfer-window-latest-play-offs/
+
 **Boxer Jarrell Miller has hairpiece punched off in split-decision victory**\
 `In between rounds, the heavyweight fighter threw the hairpiece into the stands.`\
 https://nytimes.com/athletic/7013073/2026/02/01/boxer-jarrell-miller-hairpiece-punched-off/

@@ -1,3 +1,7 @@
+**Wrexham's play-off perch means there's no need to panic in rest of transfer window**\
+`Wrexham have plans before Monday's deadline, but they will be adding from a position of strength`\
+https://nytimes.com/athletic/7009434/2026/02/01/wrexham-transfer-window-latest-play-offs/
+
 **Boxer Jarrell Miller has hairpiece punched off in split-decision victory**\
 `In between rounds, the heavyweight fighter threw the hairpiece into the stands.`\
 https://nytimes.com/athletic/7013073/2026/02/01/boxer-jarrell-miller-hairpiece-punched-off/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012138/2026/02/01/australian-open-mens-final-alcar
 **Victor Wembanyama's evolution from basketball prodigy to civic leader**\
 `The Athletic's weekly podcast also touches on Bill Belichick's Hall of Fame snub and Bryson DeChambeau's looming decision.`\
 https://nytimes.com/athletic/7008981/2026/02/01/the-athletic-show-victor-wembanyama-prodigy-civic-leader/
-
-**Connections: Sports Edition Coach: Hints for Feb. 1, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7013043/2026/02/01/connections-sports-edition-hints-for-feb-1-2026/
 
