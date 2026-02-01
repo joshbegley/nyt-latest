@@ -1,3 +1,7 @@
+**Government regulators approve ESPN's billion-dollar acquisition of NFL Media**\
+`As part of the agreement, the NFL will take a 10 percent ownership stake in the Disney-owned network.`\
+https://nytimes.com/athletic/7009795/2026/01/31/espn-nfl-media-deal-buy-billion/
+
 **'These guys are pretty good': Penguins continue post-Holiday surge**\
 `After a 6-5 win over the Rangers, the Penguins improved to 13-2-2 in 17 games since the NHL's holiday break.`\
 https://nytimes.com/athletic/7012963/2026/01/31/penguins-rangers-sidney-crosby-nhl/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6802528/2026/01/31/mlb-luis-arraez-free-agency-sign
 **They Said They Weren’t Close to Epstein. New Documents Show Otherwise.**\
 `Materials released by the Justice Department revealed that leading business and political figures had enduring relationships with the disgraced financier.`\
 https://nytimes.com/2026/01/31/us/epstein-powerful-men.html
-
-**Darryn Peterson leaves no doubt in duel with AJ Dybantsa — for a half**\
-`Every game, the Kansas Jayhawks have to wonder just how much they’ll get from Darryn Peterson that day.`\
-https://nytimes.com/athletic/7012771/2026/01/31/darryn-peterson-aj-dybantsa-kansas-byu-basketball/
 
