@@ -1,3 +1,7 @@
+**Barnes jokes after Vols' turnovers: 'Sometimes I wonder if my guys are betting on games'**\
+`The team ranks second-to-last in the SEC in turnover margin at minus-1.29, and total turnovers on the season with 275.`\
+https://nytimes.com/athletic/7013806/2026/02/01/rick-barnes-tennessee-betting-games-joke/
+
 **The Briefing - Spurs 2 Man City 2: How good was Solanke scorpion kick? What does this mean for Frank and title race?**\
 `Our writers break down the action from an exciting draw in north London.`\
 https://nytimes.com/athletic/7006950/2026/02/01/tottenham-man-city-cherki-frank/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013018/2026/02/01/january-penguins-report-card-dea
 **Brighton in talks with Marseille over Matt O'Riley loan return**\
 `A deal hinges on whether Fabian Hurzeler believes the midfielder can make a contribution for the rest of the season despite the competition.`\
 https://nytimes.com/athletic/7013714/2026/02/01/matt-oriley-brighton-marseille-loan-return/
-
-**X.J. Kennedy, a Poet of Wit Who Clung to Rhyme and Meter, Dies at 96**\
-`Spurning the free verse of many of his contemporaries, he held to an older tradition. He also wrote spirited poems for children.`\
-https://nytimes.com/2026/02/01/books/xj-kennedy-dead.html
 
