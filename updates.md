@@ -1,3 +1,15 @@
+**Protesters Rally Across the U.S. in Solidarity With Minneapolis**\
+`Church bells pealed in the Twin Cities to express support for detainees and protesters who oppose federal immigration agents’ aggressive tactics.`\
+https://nytimes.com/2026/01/31/us/protesters-rally-solidarity-minneapolis.html
+
+**Newcastle's Miley, Botman doubts for Man City game - Howe says**\
+`Miley sustained a knee issue while Botman has a "tight thigh" Howe said, when explaining why the pair did not play against Liverpool. `\
+https://nytimes.com/athletic/7012782/2026/01/31/lewis-miley-sven-botman-newcastle-injury-update-howe/
+
+**10 Injured in 59-Vehicle Pileup on Fog-Shrouded California Highway, Police Say**\
+`One person died earlier this month in a foggy crash on the same highway.`\
+https://nytimes.com/2026/01/31/us/california-crash-pileup-highway-99.html
+
 **What's wrong with Red Wings after winless homestand? Five thoughts**\
 `The Red Wings' early-season success is being tested as the games get harder.`\
 https://nytimes.com/athletic/7012653/2026/01/31/red-wings-avalanche-todd-mclellan-dylan-larkin/
