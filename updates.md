@@ -1,3 +1,11 @@
+**Snow, Ice, Parking Hell: It’s a Tough Winter to Be a New York City Mover**\
+`Even in summer, moving crews have to contend with walk-up apartments, double-parking and sofas that won’t fit through narrow hallways. It’s a lot worse right now.`\
+https://nytimes.com/2026/02/01/nyregion/movers-nyc-snow.html
+
+**Justin Rose sets record while running away with Farmers Insurance Open**\
+`Rose had a six-shot lead entering Sunday and then shot a 70 to extend the margin of victory.`\
+https://nytimes.com/athletic/7014320/2026/02/01/justin-rose-wins-farmers-insurance-open-pga-tour/
+
 **Meet the 8 nominees for best new artist.**\
 `By Lindsay Zoladz`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026/meet-the-8-nominees-for-best-new-artist
