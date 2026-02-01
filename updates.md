@@ -1,3 +1,7 @@
+**Liverpool in talks over Geertruida loan transfer**\
+`The 25-year-old Netherlands international is currently on a season-long loan deal at Sunderland from RB Leipzig.`\
+https://nytimes.com/athletic/7013309/2026/02/01/liverpool-transfer-news-geertruida/
+
 **Mayor Mamdani and the Taxi Driver**\
 `Richard Chow befriended Zohran Mamdani five years ago and has driven him to City Hall and Gracie Mansion.`\
 https://nytimes.com/2026/02/01/nyregion/mamdani-taxi-drivers-nyc.html

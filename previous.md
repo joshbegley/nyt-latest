@@ -1,3 +1,7 @@
+**Liverpool in talks over Geertruida loan transfer**\
+`The 25-year-old Netherlands international is currently on a season-long loan deal at Sunderland from RB Leipzig.`\
+https://nytimes.com/athletic/7013309/2026/02/01/liverpool-transfer-news-geertruida/
+
 **Mayor Mamdani and the Taxi Driver**\
 `Richard Chow befriended Zohran Mamdani five years ago and has driven him to City Hall and Gracie Mansion.`\
 https://nytimes.com/2026/02/01/nyregion/mamdani-taxi-drivers-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013033/2026/02/01/wild-points-from-15-players-once
 **Chelsea crave control. But it is intensity that elevates them**\
 `Liam Rosenior proved a master motivator as Chelsea's speed, purpose and aggression pierced and ultimately crushed West Ham’s defensive shell`\
 https://nytimes.com/athletic/7012513/2026/02/01/chelsea-rosenior-motivation-west-ham-napoli/
-
-**Jason Kidd on media criticism of Cooper Flagg at PG: 'You guys have never played the game'**\
-`The 83 points Flagg has scored since Thursday are the most a teenager has ever produced in a two-game span in NBA history.`\
-https://nytimes.com/athletic/7013219/2026/02/01/jason-kidd-media-criticism-cooper-flagg-never-played-the-game/
 
