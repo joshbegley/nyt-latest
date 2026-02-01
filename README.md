@@ -1,3 +1,7 @@
+**Lowetide: An innovative way for the Oilers to impact the 2026 NHL Draft**\
+`The Oilers currently hold four picks in the 2026 NHL Draft, beginning in the second round.`\
+https://nytimes.com/athletic/7012201/2026/02/01/edmonton-oilers-2026-nhl-draft-picks-strategy/
+
 **Four thoughts on the Giants' Luis Arraez signing: Worry about his position later and more**\
 `Arraez is a batting champion in his prime. He may not be a perfect fit for the Giants but he makes the team better even with his flaws.`\
 https://nytimes.com/athletic/7013211/2026/02/01/sf-giants-luis-arraez-signing-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013517/2026/02/01/kings-cavaliers-trade-nba-deandr
 **On ‘S.N.L.,’ Tom Homan’s Advice to ICE: ‘Don’t Get Filmed’**\
 `The “Saturday Night Live” alum Pete Davidson plays the border czar who was tasked with reorienting ICE agents in Minneapolis, replacing their ousted commander.`\
 https://nytimes.com/2026/02/01/arts/television/snl-tom-homan-advice-to-ice.html
-
-**Trump Administration Live Updates: Government in Partial Shutdown Limbo as Negotiations Continue**\
-``\
-https://nytimes.com/live/2026/02/01/us/trump-news
 
