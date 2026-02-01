@@ -1,3 +1,15 @@
+**Cavaliers trade for Kings’ Keon Ellis, Dennis Schröder: Sources**\
+`Cleveland is sending DeAndre Hunter to Sacramento in a move that adds much-needed roster depth for a Cavs team eyeing a title run.`\
+https://nytimes.com/athletic/7012933/2026/01/31/cavaliers-kings-trade-keon-ellis-dennis-schroder/
+
+**Giants peg $12 million value to Luis Arraez's incredible, incalculable contact skills**\
+`Arraez is a three-time batting champion who rarely strikes out — and who produces polarizing opinions from talent evaluators.`\
+https://nytimes.com/athletic/7012976/2026/01/31/giants-12-million-value-luis-arraezs-incredible-contact-skills/
+
+**Government regulators approve ESPN's billion-dollar acquisition of top NFL Media assets**\
+`As part of the agreement, the NFL will take a 10 percent ownership stake in the Disney-owned network.`\
+https://nytimes.com/athletic/7009795/2026/01/31/espn-nfl-media-deal-buy-billion/
+
 **Novak Djokovic racket sells for record $540,000**\
 `The sale smashed the previous record for a tennis collectible. `\
 https://nytimes.com/athletic/7010661/2026/01/31/novak-djokovic-2012-australian-open-racket-record-sale/
