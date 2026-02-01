@@ -1,3 +1,19 @@
+**Atlético Madrid in talks with Seattle Sounders for Obed Vargas: Sources**\
+`Vargas talked about how he had grown up a fan of Atlético before a Sounders matchup against the club in the FIFA Club World Cup.`\
+https://nytimes.com/athletic/7013957/2026/02/01/obed-vargas-atletico-madrid-seattle-sounders-transfer/
+
+**Detained by Immigration Agents, 5-Year-Old Liam Has Been Released From Custody**\
+`A federal judge had demanded that the boy and his father be set free in a fiery opinion on Saturday.`\
+https://nytimes.com/2026/02/01/us/politics/trump-liam-release.html
+
+**Can Tom Homan De-escalate Tensions in Minnesota?**\
+`The White House border czar wants to focus more on getting immigrants already in jails. He’ll have to persuade Democrats to do it.`\
+https://nytimes.com/2026/02/01/us/politics/tom-homan-minnesota-ice.html
+
+**The Briefing - Spurs 2 Man City 2: How good was Solanke's scorpion kick? What does this mean for Frank and the title race?**\
+`Our writers break down the action from an exciting draw in north London.`\
+https://nytimes.com/athletic/7006950/2026/02/01/tottenham-man-city-cherki-frank/
+
 **Russia Strikes Ukraine’s Energy Sector, Killing 12 Miners**\
 `The attack comes during a winter freeze and despite efforts by President Trump and others to get the two countries to negotiate a truce.`\
 https://nytimes.com/2026/02/01/world/europe/russia-strikes-ukraine-energy-sector-killing-12-miners.html
