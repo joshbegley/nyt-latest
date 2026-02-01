@@ -1,3 +1,7 @@
+**Starmer Urges Former Prince Andrew to Testify to Congress Over Epstein Ties**\
+`Mr. Mountbatten-Windsor was stripped of his royal titles in October by his brother King Charles III because of growing questions around his links to Mr. Epstein.`\
+https://nytimes.com/2026/02/01/world/europe/andrew-mountbatten-windsor-jeffrey-epstein.html
+
 **College basketball observations: Saturday's bracket impact, UCF's double court storm and more**\
 `Plus: Kentucky rebounds with a big win over John Calipari's Arkansas, and how Saturday's action affected the NCAA Tournament picture.`\
 https://nytimes.com/athletic/7010972/2026/02/01/college-basketball-scores-results-takeaways-kansas-ucf-kentucky/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012921/2026/02/01/australian-open-final-carlos-alc
 **Lookman in advanced talks to join Atletico from Atalanta**\
 `The two clubs have already done business this month with Giacomo Raspadori joining the Serie A side from Atletico.`\
 https://nytimes.com/athletic/7013317/2026/02/01/ademola-lookman-atletico-madrid-transfer/
-
-**Ukraine Peace Talks Delayed After Russia and U.S. Meet**\
-`It was unclear why the latest round of negotiations, which had been expected on Sunday, were postponed for several days.`\
-https://nytimes.com/2026/02/01/world/europe/ukraine-russia-us-peace-talks.html
 
