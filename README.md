@@ -1,3 +1,7 @@
+**Arsenal's Mikel Merino expected to be out for considerable period with foot injury**\
+`The 29-year-old has sustained a suspected broken bone in his foot.`\
+https://nytimes.com/athletic/7013742/2026/02/01/mikel-merino-arsenal-foot-injury-update/
+
 **How to watch Cavaliers vs. Trail Blazers: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Portland Trail Blazers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7014035/2026/02/01/cavaliers-vs-trail-blazers-stream-how-to-watch-feb-1/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/01/world/europe/russia-strikes-ukraine-energy-sector
 **Bompastor 'happy' to leave Chelsea 'if people think I'm not the right person'**\
 `Chelsea were beaten 5-1 in the WSL by Manchester City on Sunday.`\
 https://nytimes.com/athletic/7013852/2026/02/01/sonia-bompastor-chelsea-future/
-
-**A ‘Historic’ Snowfall Hits the Carolinas**\
-`Blanketed beaches. Frozen suburbs. Football fields buried in snow. Everywhere in the region, people felt the storm, which caused two deaths.`\
-https://nytimes.com/2026/02/01/us/snowfall-north-south-carolina.html
 
