@@ -1,3 +1,7 @@
+**After nearly 40 years, Candi Staton returns to the Grammys.**\
+`By Garth Cartwright`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/after-nearly-40-years-candi-staton-returns-to-the-grammys
+
 **Hazing Death in Arizona Leads to Charges for 3 Fraternity Leaders**\
 `Three 20-year-old students in Delta Tau Delta at Northern Arizona University were arrested on Saturday. The fraternity has been suspended.`\
 https://nytimes.com/2026/02/01/us/arizona-fraternity-members-charges-death.html

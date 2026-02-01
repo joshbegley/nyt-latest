@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/grammy-awards-2026
+
+**After nearly 40 years, Candi Staton returns to the Grammys.**\
+`By Garth Cartwright`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/after-nearly-40-years-candi-staton-returns-to-the-grammys
+
 **Hazing Death in Arizona Leads to Charges for 3 Fraternity Leaders**\
 `Three 20-year-old students in Delta Tau Delta at Northern Arizona University were arrested on Saturday. The fraternity has been suspended.`\
 https://nytimes.com/2026/02/01/us/arizona-fraternity-members-charges-death.html
@@ -9,10 +17,6 @@ https://nytimes.com/athletic/7014392/2026/02/01/magic-vs-spurs-stream-how-to-wat
 **Edmonton Oilers place goalie Calvin Pickard on waivers**\
 `The 33-year-old is now the third goalie behind Tristan Jarry and Connor Ingram despite going 7-1 last postseason.`\
 https://nytimes.com/athletic/7014359/2026/02/01/oilers-calvin-pickard-waivers-goaltending/
-
-**Here’s the latest.**\
-`By Ben Sisario`\
-https://nytimes.com/live/2026/02/01/arts/grammys-2026/grammy-awards-2026
 
 **Grammy Awards Live Updates: Music Industry Gathers in L.A. to Celebrate Its Top Artists**\
 `Kendrick Lamar, with nine nominations, could become the rapper with the most Grammys. Other nominees include Bad Bunny, Lady Gaga, Sabrina Carpenter, Justin Bieber and Leon Thomas.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013959/2026/02/01/frank-thomas-white-sox-black-his
 **Why Targeting Iran Is Riskier Than Ousting Maduro**\
 `Iran’s ability to strike Israel and destabilize the wider Middle East makes it a far more dangerous adversary.`\
 https://nytimes.com/2026/02/01/world/trump-iran-threats-venezuela-epstein-files.html
-
-**How Trump Appears in the Epstein Files**\
-`The New York Times found more than 5,300 files with references to Mr. Trump and related terms. They include salacious and unverified claims, as well as documents that had already been made public.`\
-https://nytimes.com/2026/02/01/us/trump-epstein-files.html
 

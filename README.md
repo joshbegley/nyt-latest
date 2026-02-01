@@ -1,3 +1,7 @@
+**Liverpool agree summer deal for Rennes defender Jacquet**\
+`The deal is expected to be worth £55million plus £5m in add-ons.`\
+https://nytimes.com/athletic/6982654/2026/02/01/jeremy-jacquet-liverpool-rennes-transfer-news/
+
 **Here’s the latest.**\
 `By Ben Sisario`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026/grammy-awards-2026
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/01/arts/grammys-2026/how-to-watch-the-68th-annu
 **Frank Thomas upset with White Sox Black History Month graphic**\
 `"I guess the black player who made you rich over there and holds all your records is forgettable!" the Hall of Famer wrote on X.`\
 https://nytimes.com/athletic/7013959/2026/02/01/frank-thomas-white-sox-black-history-month/
-
-**Why Targeting Iran Is Riskier Than Ousting Maduro**\
-`Iran’s ability to strike Israel and destabilize the wider Middle East makes it a far more dangerous adversary.`\
-https://nytimes.com/2026/02/01/world/trump-iran-threats-venezuela-epstein-files.html
 
