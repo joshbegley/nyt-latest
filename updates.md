@@ -1,3 +1,7 @@
+**Future of Padres' A.J. Preller's contract extension remains unclear**\
+`With both the front office and roster mired in uncertainty, Padres' A.J. Preller says he still expects a future with the team.`\
+https://nytimes.com/athletic/7012861/2026/01/31/padres-offseason-preller-contract-extension/
+
 **Giants sign 3-time batting champ Luis Arraez to 1-year, $12 million deal: Sources**\
 `Arraez is the first player to win three consecutive batting titles for a different team in each season.`\
 https://nytimes.com/athletic/6802528/2026/01/31/mlb-luis-arraez-free-agency-signing-sf-giants/
