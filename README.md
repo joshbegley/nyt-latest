@@ -1,3 +1,7 @@
+**Manchester United 3 Fulham 2: How do you replace Casemiro? First goal controversial? United getting nastier?**\
+`Michael Carrick's side need a stoppage time winner from Benjamin Sesko after a remarkable Fulham comeback`\
+https://nytimes.com/athletic/7006948/2026/02/01/manchester-united-3-fulham-2/
+
 **Beany, Greeny, Grainy Goodness**\
 `This blend of barley, white beans and spinach with sun-dried tomatoes not only holds up well, it becomes even more flavorful with time.`\
 https://nytimes.com/2026/02/01/dining/beany-greeny-grainy-goodness.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/01/briefing/religious-leaders-in-minnesota-say-its-t
 **Why Novak Djokovic's Australian Open proved his late career means far more than majors**\
 `The 24-time Grand Slam champion has added layers to his legacy even in missing out on the 25th title he craved.`\
 https://nytimes.com/athletic/7013488/2026/02/01/novak-djokovic-tennis-legacy-titles-australian-open/
-
-**Kings' trade with Cavaliers shows a lack of foresight and direction**\
-`If the Kings are indeed rebuilding, it's hard to see a clear through-line with their recent sequence of moves.`\
-https://nytimes.com/athletic/7013517/2026/02/01/kings-cavaliers-trade-nba-deandre-hunter-keon-ellis/
 
