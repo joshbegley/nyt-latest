@@ -1,3 +1,7 @@
+**Why Novak Djokovic's Australian Open proved his late career means far more than majors**\
+`The 24-time Grand Slam champion has added layers to his legacy even in missing out on the 25th title he craved.`\
+https://nytimes.com/athletic/7013488/2026/02/01/novak-djokovic-tennis-legacy-titles-australian-open/
+
 **Kings' trade with Cavaliers shows a lack of foresight and direction**\
 `If the Kings are indeed rebuilding, it's hard to see a clear through-line with their recent sequence of moves.`\
 https://nytimes.com/athletic/7013517/2026/02/01/kings-cavaliers-trade-nba-deandre-hunter-keon-ellis/

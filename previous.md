@@ -1,3 +1,7 @@
+**Why Novak Djokovic's Australian Open proved his late career means far more than majors**\
+`The 24-time Grand Slam champion has added layers to his legacy even in missing out on the 25th title he craved.`\
+https://nytimes.com/athletic/7013488/2026/02/01/novak-djokovic-tennis-legacy-titles-australian-open/
+
 **Kings' trade with Cavaliers shows a lack of foresight and direction**\
 `If the Kings are indeed rebuilding, it's hard to see a clear through-line with their recent sequence of moves.`\
 https://nytimes.com/athletic/7013517/2026/02/01/kings-cavaliers-trade-nba-deandre-hunter-keon-ellis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013481/2026/02/01/kings-vs-hurricanes-stream-how-t
 **How to watch Bucks vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7013479/2026/02/01/bucks-vs-celtics-stream-how-to-watch-feb-1/
-
-**How to watch Florida vs. Vanderbilt women's basketball: Time, TV, streaming**\
-`Find out how to watch the Florida Gators play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013474/2026/02/01/florida-vs-vanderbilt-stream-how-to-watch-feb-1/
 
