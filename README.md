@@ -1,3 +1,23 @@
+**Trump Administration Live Updates: Government in Partial Shutdown Limbo as Negotiations Continue**\
+``\
+https://nytimes.com/live/2026/02/01/us/trump-news
+
+**On ‘S.N.L.,’ Tom Homan’s Advice to ICE: ‘Don’t Get Filmed’**\
+`The “Saturday Night Live” alum Pete Davidson plays the border czar who was tasked with reorienting ICE agents in Minneapolis, replacing their ousted commander.`\
+https://nytimes.com/2026/02/01/arts/television/snl-tom-homan-advice-to-ice.html
+
+**How Trumpworld Sent Opera Packing**\
+`By forcing an impossible economic model on the Washington National Opera, the Kennedy Center essentially disowned the art form.`\
+https://nytimes.com/2026/02/01/opinion/washington-national-opera-kennedy-center-trump.html
+
+**Baby Formula Saved My Marriage**\
+`Breastfeeding and equal parenting are a zero-sum game.`\
+https://nytimes.com/2026/02/01/opinion/baby-formula-marriage-equality.html
+
+**Texas vs. Plato: Censorship in the Academy**\
+`Readers respond to a guest essay about the state’s effort to bar “officially disapproved ideas” from its university classrooms.`\
+https://nytimes.com/2026/02/01/opinion/texas-plato-campus-censorship.html
+
 **Madrid's Bellingham sustains left hamstring issue**\
 `The midfielder pulled up mid-sprint holding his left leg nine minutes into the game and was replaced by Brahim Diaz.`\
 https://nytimes.com/athletic/7013485/2026/02/01/jude-bellingham-real-madrid-hamstring-injury/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7013474/2026/02/01/florida-vs-vanderbilt-stream-how
 **How to watch Iowa vs. UCLA women's basketball: Time, TV, streaming**\
 `Find out how to watch the Iowa Hawkeyes play the UCLA Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7013472/2026/02/01/iowa-vs-ucla-stream-how-to-watch-feb-1/
-
-**How to watch TCU vs. Texas Tech women's basketball: Time, TV, streaming**\
-`Find out how to watch the TCU Horned Frogs play the Texas Tech Lady Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013470/2026/02/01/tcu-vs-texas-tech-stream-how-to-watch-feb-1/
-
-**How to watch Louisville vs. Cal women's basketball: Time, TV, streaming**\
-`Find out how to watch the Louisville Cardinals play the California Golden Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013468/2026/02/01/louisville-vs-cal-stream-how-to-watch-feb-1/
-
-**How to watch Illinois vs. Nebraska men's basketball: Time, TV, streaming**\
-`Find out how to watch the Illinois Fighting Illini play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013466/2026/02/01/illinois-vs-nebraska-stream-how-to-watch-feb-1/
-
-**How to watch Oklahoma vs. Texas women's basketball: Time, TV, streaming**\
-`Find out how to watch the Oklahoma Sooners play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013464/2026/02/01/oklahoma-vs-texas-stream-how-to-watch-feb-1/
-
-**How to watch Iowa State vs. Kansas State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa State Cyclones play the Kansas State Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013462/2026/02/01/iowa-state-vs-kansas-state-stream-how-to-watch-feb-1/
 
