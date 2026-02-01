@@ -1,3 +1,7 @@
+**Lookman in advanced talks to join Atletico from Atalanta**\
+`The two clubs have already done business this month with Giacomo Raspadori joining the Serie A side from Atletico.`\
+https://nytimes.com/athletic/7013317/2026/02/01/ademola-lookman-atletico-madrid-transfer/
+
 **Ukraine Peace Talks Delayed After Russia and U.S. Meet**\
 `It was unclear why the latest round of negotiations, which had been expected on Sunday, were postponed for several days.`\
 https://nytimes.com/2026/02/01/world/europe/ukraine-russia-us-peace-talks.html

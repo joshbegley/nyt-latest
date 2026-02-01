@@ -1,3 +1,7 @@
+**Lookman in advanced talks to join Atletico from Atalanta**\
+`The two clubs have already done business this month with Giacomo Raspadori joining the Serie A side from Atletico.`\
+https://nytimes.com/athletic/7013317/2026/02/01/ademola-lookman-atletico-madrid-transfer/
+
 **Ukraine Peace Talks Delayed After Russia and U.S. Meet**\
 `It was unclear why the latest round of negotiations, which had been expected on Sunday, were postponed for several days.`\
 https://nytimes.com/2026/02/01/world/europe/ukraine-russia-us-peace-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012707/2026/02/01/steve-tisch-giants-epstein-files
 **This Is Not a Drill**\
 `What Is the F.B.I. doing raiding an election office in Georgia?`\
 https://nytimes.com/2026/02/01/opinion/midterms-election-influence-trump.html
-
-**Canadiens' big win over the Sabres provided solutions to some nagging problems**\
-`Several of the Canadiens' weaknesses turned into strengths in what was probably their biggest win of the season.`\
-https://nytimes.com/athletic/7013256/2026/02/01/canadiens-big-win-sabres/
 
