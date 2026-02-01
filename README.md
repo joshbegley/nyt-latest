@@ -1,3 +1,7 @@
+**Raiders zeroing in on hiring Seahawks' Klint Kubiak as head coach: Sources**\
+`Kubiak, 38, would be joining his sixth different franchise in as many seasons after helping the Seahawks reach the Super Bowl.`\
+https://nytimes.com/athletic/7001711/2026/02/01/raiders-hire-klint-kubiak-head-coach/
+
 **Barnes jokes after Vols' turnovers: 'Sometimes I wonder if my guys are betting on games'**\
 `The team ranks second-to-last in the SEC in turnover margin at minus-1.29, and total turnovers on the season with 275.`\
 https://nytimes.com/athletic/7013806/2026/02/01/rick-barnes-tennessee-betting-games-joke/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/01/nyregion/mamdani-cold-deaths-shelters-nyc.html
 **Penguins' January report card qualifies just about everyone for the Dean's List**\
 `The Penguins' report card for January is as good as you'd expect.`\
 https://nytimes.com/athletic/7013018/2026/02/01/january-penguins-report-card-deans-list/
-
-**Brighton in talks with Marseille over Matt O'Riley loan return**\
-`A deal hinges on whether Fabian Hurzeler believes the midfielder can make a contribution for the rest of the season despite the competition.`\
-https://nytimes.com/athletic/7013714/2026/02/01/matt-oriley-brighton-marseille-loan-return/
 
