@@ -26,8 +26,8 @@ https://nytimes.com/athletic/7014392/2026/02/01/magic-vs-spurs-stream-how-to-wat
 `The 33-year-old is now the third goalie behind Tristan Jarry and Connor Ingram despite going 7-1 last postseason.`\
 https://nytimes.com/athletic/7014359/2026/02/01/oilers-calvin-pickard-waivers-goaltending/
 
-**Grammy Awards Live Updates: Music Industry Gathers in L.A. to Celebrate Its Top Artists**\
-`Kendrick Lamar, with nine nominations, could become the rapper with the most Grammys. Other nominees include Bad Bunny, Lady Gaga, Sabrina Carpenter, Justin Bieber and Leon Thomas.`\
+**Grammy Awards Live Updates: Kendrick Lamar and Leon Thomas Win Early Awards**\
+`“Golden” from “KPop Demon Hunters” and “Abracadabra” by Lady Gaga also took prizes this afternoon in a nontelevised event. The main ceremony will begin at 8 p.m. Eastern time.`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026
 
 **Who’s nominated, performing and hosting?**\

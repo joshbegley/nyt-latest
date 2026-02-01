@@ -1,3 +1,7 @@
+**Grammy Awards Live Updates: Kendrick Lamar and Leon Thomas Win Early Awards**\
+`“Golden” from “KPop Demon Hunters” and “Abracadabra” by Lady Gaga also took prizes this afternoon in a nontelevised event. The main ceremony will begin at 8 p.m. Eastern time.`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026
+
 **Doc Rivers stands by calling ICE shooting in Minneapolis 'straight-up murder'**\
 `“If you’re brown, you’re nervous,” the Milwaukee Bucks coach said about the administration's immigration enforcement activities.`\
 https://nytimes.com/athletic/7014107/2026/02/01/doc-rivers-ice-shooting-murder-minnesota/
