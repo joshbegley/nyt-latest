@@ -1,3 +1,7 @@
+**Kings' trade with Cavaliers shows a lack of foresight and direction**\
+`If the Kings are indeed rebuilding, it's hard to see a clear through-line with their recent sequence of moves.`\
+https://nytimes.com/athletic/7013517/2026/02/01/kings-cavaliers-trade-nba-deandre-hunter-keon-ellis/
+
 **Trump Administration Live Updates: Government in Partial Shutdown Limbo as Negotiations Continue**\
 ``\
 https://nytimes.com/live/2026/02/01/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013479/2026/02/01/bucks-vs-celtics-stream-how-to-w
 **How to watch Florida vs. Vanderbilt women's basketball: Time, TV, streaming**\
 `Find out how to watch the Florida Gators play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7013474/2026/02/01/florida-vs-vanderbilt-stream-how-to-watch-feb-1/
-
-**How to watch Iowa vs. UCLA women's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa Hawkeyes play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7013472/2026/02/01/iowa-vs-ucla-stream-how-to-watch-feb-1/
 

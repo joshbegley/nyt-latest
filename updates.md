@@ -1,3 +1,7 @@
+**Kings' trade with Cavaliers shows a lack of foresight and direction**\
+`If the Kings are indeed rebuilding, it's hard to see a clear through-line with their recent sequence of moves.`\
+https://nytimes.com/athletic/7013517/2026/02/01/kings-cavaliers-trade-nba-deandre-hunter-keon-ellis/
+
 **Trump Administration Live Updates: Government in Partial Shutdown Limbo as Negotiations Continue**\
 ``\
 https://nytimes.com/live/2026/02/01/us/trump-news
