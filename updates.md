@@ -1,3 +1,23 @@
+**Arsenal's Mikel Merino expected to be out for considerable period with foot injury**\
+`The 29-year-old has sustained a suspected broken bone in his foot.`\
+https://nytimes.com/athletic/7013742/2026/02/01/mikel-merino-arsenal-foot-injury-update/
+
+**How to watch Cavaliers vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7014035/2026/02/01/cavaliers-vs-trail-blazers-stream-how-to-watch-feb-1/
+
+**How to watch Thunder vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Oklahoma City Thunder play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7014031/2026/02/01/thunder-vs-nuggets-stream-how-to-watch-feb-1/
+
+**How to watch Golden Knights vs. Ducks: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Anaheim Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7014029/2026/02/01/golden-knights-vs-ducks-stream-how-to-watch-feb-1/
+
+**How to watch Clippers vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7014027/2026/02/01/clippers-vs-suns-stream-how-to-watch-feb-1/
+
 **Atlético Madrid in talks with Seattle Sounders for Obed Vargas: Sources**\
 `Vargas talked about how he had grown up a fan of Atlético before a Sounders matchup against the club in the FIFA Club World Cup.`\
 https://nytimes.com/athletic/7013957/2026/02/01/obed-vargas-atletico-madrid-seattle-sounders-transfer/

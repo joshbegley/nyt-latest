@@ -1,4 +1,8 @@
-**Arsenal's Mikel Merino expected to be out for considerable period with foot injury**\
+**NASCAR season-opening Clash postponed until Wednesday due to winter storm**\
+`NASCAR is going to have to wait yet a few more days before beginning its 2026 season, with wintery conditions in Winston-Salem, N.`\
+https://nytimes.com/athletic/7013780/2026/02/01/nascar-clash-delayed-winston-salem/
+
+**Arsenal's Merino expected to be out for considerable period with foot injury**\
 `The 29-year-old has sustained a suspected broken bone in his foot.`\
 https://nytimes.com/athletic/7013742/2026/02/01/mikel-merino-arsenal-foot-injury-update/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/01/us/politics/tom-homan-minnesota-ice.html
 **Russia Strikes Ukraine’s Energy Sector, Killing 12 Miners**\
 `The attack comes during a winter freeze and despite efforts by President Trump and others to get the two countries to negotiate a truce.`\
 https://nytimes.com/2026/02/01/world/europe/russia-strikes-ukraine-energy-sector-killing-12-miners.html
-
-**Bompastor 'happy' to leave Chelsea 'if people think I'm not the right person'**\
-`Chelsea were beaten 5-1 in the WSL by Manchester City on Sunday.`\
-https://nytimes.com/athletic/7013852/2026/02/01/sonia-bompastor-chelsea-future/
 
