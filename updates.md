@@ -1,3 +1,23 @@
+**How Trumpworld Sent Opera Packing**\
+`By forcing an impossible economic model on the Washington National Opera, the Kennedy Center essentially disowned the art form.`\
+https://nytimes.com/2026/02/01/opinion/washington-national-opera-kennedy-center-trump.html
+
+**The Secret to Marriage Equality Is Formula**\
+`Breastfeeding and equal parenting are a zero-sum game.`\
+https://nytimes.com/2026/02/01/opinion/baby-formula-marriage-equality.html
+
+**Texas vs. Plato: Censorship in the Academy**\
+`Readers respond to a guest essay about the state’s effort to bar “officially disapproved ideas” from its university classrooms.`\
+https://nytimes.com/2026/02/01/opinion/texas-plato-campus-censorship.html
+
+**Madrid's Bellingham sustains left hamstring issue**\
+`The midfielder pulled up mid-sprint holding his left leg nine minutes into the game and was replaced by Brahim Diaz.`\
+https://nytimes.com/athletic/7013485/2026/02/01/jude-bellingham-real-madrid-hamstring-injury/
+
+**How to watch Kings vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7013481/2026/02/01/kings-vs-hurricanes-stream-how-to-watch-feb-1/
+
 **Four thoughts on the Giants' Luis Arraez signing: Worry about his position later and more**\
 `Arraez is a batting champion in his prime. He may not be a perfect fit for the Giants but he makes the team better even with his flaws.`\
 https://nytimes.com/athletic/7013211/2026/02/01/sf-giants-luis-arraez-signing-analysis/
