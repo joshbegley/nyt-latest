@@ -1,3 +1,7 @@
+**Stephen Curry day-to-day after MRI reveals knee issue**\
+`Curry left Friday's loss at Detroit in the second half and did not return as he continues to deal with lingering knee pain.`\
+https://nytimes.com/athletic/7012990/2026/01/31/stephen-curry-mri-knee-warriors/
+
 **Dodger Details: Post-World Series glow, Blake Snell's status and more**\
 `President of baseball operations Andrew Friedman has been candid that the team's gaudy revenues have shifted some of their decisions.`\
 https://nytimes.com/athletic/7012957/2026/01/31/post-world-series-glow-blake-snells-status-dodger-details/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7012555/2026/01/31/shohei-ohtani-two-way-opening-da
 **Protesters Rally Across the U.S. in Solidarity With Minneapolis**\
 `Demonstrations drew sizable crowds in several cities, including Los Angeles and Portland, Ore., and churches in the Twin Cities rang their bells in support of detainees and protesters.`\
 https://nytimes.com/2026/01/31/us/protesters-rally-solidarity-minneapolis.html
-
-**Newcastle's Miley, Botman doubts for Man City game - Howe says**\
-`Miley sustained a knee issue while Botman has a "tight thigh" Howe said, when explaining why the pair did not play against Liverpool. `\
-https://nytimes.com/athletic/7012782/2026/01/31/lewis-miley-sven-botman-newcastle-injury-update-howe/
 
