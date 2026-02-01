@@ -1,4 +1,4 @@
-**Palace make offer for Wolves' Strand Larsen in region of £48m**\
+**Palace make £48m offer for Wolves' Strand Larsen**\
 `The Norway international would bolster Palace's attacking options as AC Milan pursue a deal for Mateta. `\
 https://nytimes.com/athletic/7006585/2026/02/01/strand-larsen-crystal-palace-transfer/
 
