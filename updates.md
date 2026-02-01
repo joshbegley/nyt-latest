@@ -1,3 +1,15 @@
+**Cardinals plan to hire Rams OC Mike LaFleur as head coach: Source**\
+`LaFleur will replace Jonathan Gannon, who was fired after amassing a 15-36 record over three seasons with the Cardinals.`\
+https://nytimes.com/athletic/6996491/2026/02/01/mike-lafleur-cardinals-head-coach-hired/
+
+**U.A.E. Firm Quietly Took Stake in the Trump Family’s Crypto Company**\
+`The $500 million agreement raises new concerns about the propriety of the president negotiating foreign policy with his own business partners.`\
+https://nytimes.com/2026/02/01/us/politics/trump-crypto-uae-world-liberty.html
+
+**NASCAR season-opening Clash postponed until Wednesday due to winter storm**\
+`The continual race schedule reshuffling is due to a weekend winter storm that smacked much of North Carolina.`\
+https://nytimes.com/athletic/7013780/2026/02/01/nascar-clash-delayed-winston-salem/
+
 **NASCAR season-opening Clash postponed until Wednesday due to winter storm**\
 `NASCAR is going to have to wait yet a few more days before beginning its 2026 season, with wintery conditions in Winston-Salem, N.`\
 https://nytimes.com/athletic/7013780/2026/02/01/nascar-clash-delayed-winston-salem/

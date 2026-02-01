@@ -1,5 +1,13 @@
+**Cardinals plan to hire Rams OC Mike LaFleur as head coach: Source**\
+`LaFleur will replace Jonathan Gannon, who was fired after amassing a 15-36 record over three seasons with the Cardinals.`\
+https://nytimes.com/athletic/6996491/2026/02/01/mike-lafleur-cardinals-head-coach-hired/
+
+**U.A.E. Firm Quietly Took Stake in the Trump Family’s Crypto Company**\
+`The $500 million agreement raises new concerns about the propriety of the president negotiating foreign policy with his own business partners.`\
+https://nytimes.com/2026/02/01/us/politics/trump-crypto-uae-world-liberty.html
+
 **NASCAR season-opening Clash postponed until Wednesday due to winter storm**\
-`NASCAR is going to have to wait yet a few more days before beginning its 2026 season, with wintery conditions in Winston-Salem, N.`\
+`The continual race schedule reshuffling is due to a weekend winter storm that smacked much of North Carolina.`\
 https://nytimes.com/athletic/7013780/2026/02/01/nascar-clash-delayed-winston-salem/
 
 **Arsenal's Merino expected to be out for considerable period with foot injury**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7013957/2026/02/01/obed-vargas-atletico-madrid-seat
 **Detained by Immigration Agents, 5-Year-Old Liam Has Been Released From Custody**\
 `A federal judge had demanded that the boy and his father be set free in a fiery opinion on Saturday.`\
 https://nytimes.com/2026/02/01/us/politics/trump-liam-release.html
-
-**Can Tom Homan De-escalate Tensions in Minnesota?**\
-`The White House border czar wants to focus more on getting immigrants already in jails. He’ll have to persuade Democrats to do it.`\
-https://nytimes.com/2026/02/01/us/politics/tom-homan-minnesota-ice.html
-
-**Russia Strikes Ukraine’s Energy Sector, Killing 12 Miners**\
-`The attack comes during a winter freeze and despite efforts by President Trump and others to get the two countries to negotiate a truce.`\
-https://nytimes.com/2026/02/01/world/europe/russia-strikes-ukraine-energy-sector-killing-12-miners.html
 
