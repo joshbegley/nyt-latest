@@ -1,3 +1,7 @@
+**Beany, Greeny, Grainy Goodness**\
+`This blend of barley, white beans and spinach with sun-dried tomatoes not only holds up well, it becomes even more flavorful with time.`\
+https://nytimes.com/2026/02/01/dining/beany-greeny-grainy-goodness.html
+
 **Lowetide: An innovative way for the Oilers to impact the 2026 NHL Draft**\
 `The Oilers currently hold four picks in the 2026 NHL Draft, beginning in the second round.`\
 https://nytimes.com/athletic/7012201/2026/02/01/edmonton-oilers-2026-nhl-draft-picks-strategy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013488/2026/02/01/novak-djokovic-tennis-legacy-tit
 **Kings' trade with Cavaliers shows a lack of foresight and direction**\
 `If the Kings are indeed rebuilding, it's hard to see a clear through-line with their recent sequence of moves.`\
 https://nytimes.com/athletic/7013517/2026/02/01/kings-cavaliers-trade-nba-deandre-hunter-keon-ellis/
-
-**On ‘S.N.L.,’ Tom Homan’s Advice to ICE: ‘Don’t Get Filmed’**\
-`The “Saturday Night Live” alum Pete Davidson plays the border czar who was tasked with reorienting ICE agents in Minneapolis, replacing their ousted commander.`\
-https://nytimes.com/2026/02/01/arts/television/snl-tom-homan-advice-to-ice.html
 
