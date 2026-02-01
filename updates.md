@@ -1,3 +1,11 @@
+**Justin Jefferson: Vikings 'would have done better' if Sam Darnold stayed**\
+`Jefferson reflected on a season that could have gone differently with Darnold. `\
+https://nytimes.com/athletic/7013686/2026/02/01/vikings-justin-jefferson-sam-darnold-seahawks-super-bowl/
+
+**Hawks trade Vít Krejčí to Trail Blazers for Duop Reath: Source**\
+`Krejčí, 25, is hitting 42.3 percent of his 3s this season in a reserve role.`\
+https://nytimes.com/athletic/7013784/2026/02/01/hawks-blazers-trade-vit-krejci-duop-reath/
+
 **Mamdani Announces New Shelter Beds as Death Toll During Cold Rises to 14**\
 `The 50 units in Upper Manhattan will house single people who may be reluctant to stay in group shelters.`\
 https://nytimes.com/2026/02/01/nyregion/mamdani-cold-deaths-shelters-nyc.html
