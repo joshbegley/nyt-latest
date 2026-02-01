@@ -1,5 +1,5 @@
 **Wild get points from 15 players, once again beat their favorite foe: Takeaways**\
-`The Wild's domination of the Oilers dates back to 2005.`\
+`The Wild once again handled the Oilers, a domination that dates back to 2005.`\
 https://nytimes.com/athletic/7013033/2026/02/01/wild-points-from-15-players-once-again-beat-oilers/
 
 **Chelsea crave control. But it is intensity that elevates them**\
