@@ -1,3 +1,15 @@
+**‘Historic’ Snowstorm Hits the Carolinas, National Weather Service says**\
+`Heavy snow and bitter cold have spread across North and South Carolina, with some areas receiving more than 18 inches of snow.`\
+https://nytimes.com/video/weather/100000010682832/historic-snowstorm-hits-the-carolinas-national-weather-service-says.html
+
+**‘Golden’ gives K-pop its first ever Grammy.**\
+`By Caryn Ganz`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/golden-gives-k-pop-its-first-ever-grammy
+
+**UConn's still-undefeated season embodies pursuit of perfection in women's basketball**\
+`Even after a 30-point win against Tennessee on Sunday, the unbeaten Huskies are looking to eliminate any flaws.`\
+https://nytimes.com/athletic/7014340/2026/02/01/uconns-undefeated-womens-basketball-tennessee/
+
 **Robert Pratt, Federal Judge Who Derided Trump Pardons, Dies at 78**\
 `He was chastised for remarks ridiculing the pardons of two congressional campaign aides who had been convicted in a bribery plot.`\
 https://nytimes.com/2026/02/01/obituaries/robert-pratt-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/02/01/arts/grammys-2026/meet-the-8-nominees-for-be
 **Like the Proverbial Bug in a Rug**\
 `This collaboration by John Ewbank and Colin Thomas might throw you for a loop.`\
 https://nytimes.com/2026/02/01/crosswords/daily-puzzle-2026-02-02.html
-
-**Reds, slugger Eugenio Suárez agree to 1-year, $15 million deal: Source**\
-`Suárez is coming off a banner year with 49 home runs, though his production declined after the D-Backs traded him to Seattle.`\
-https://nytimes.com/athletic/6815108/2026/02/01/mlb-eugenio-suarez-free-agency-signing-reds/
-
-**Doc Rivers stands by calling ICE shooting in Minneapolis 'straight-up murder'**\
-`“If you’re brown, you’re nervous,” the Milwaukee Bucks coach said about the administration's immigration enforcement activities.`\
-https://nytimes.com/athletic/7014107/2026/02/01/doc-rivers-ice-shooting-murder-minnesota/
-
-**Liverpool agree summer deal for Rennes defender Jacquet**\
-`The deal is expected to be worth £55million plus £5m in add-ons.`\
-https://nytimes.com/athletic/6982654/2026/02/01/jeremy-jacquet-liverpool-rennes-transfer-news/
 
