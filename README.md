@@ -1,3 +1,7 @@
+**Chelsea crave control. But it is intensity that elevates them**\
+`Liam Rosenior proved a master motivator as Chelsea's speed, purpose and aggression pierced and ultimately crushed West Ham’s defensive shell`\
+https://nytimes.com/athletic/7012513/2026/02/01/chelsea-rosenior-motivation-west-ham-napoli/
+
 **Jason Kidd on media criticism of Cooper Flagg at PG: 'You guys have never played the game'**\
 `The 83 points Flagg has scored since Thursday are the most a teenager has ever produced in a two-game span in NBA history.`\
 https://nytimes.com/athletic/7013219/2026/02/01/jason-kidd-media-criticism-cooper-flagg-never-played-the-game/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012167/2026/02/01/west-ham-chelsea-defender-transf
 **Are Leeds spending their money at the wrong end of the pitch?**\
 `The Yorkshire club are willing to spend £40m on striker Jorgen Strand Larsen but that money might be better used recruiting a new goalkeeper`\
 https://nytimes.com/athletic/7012447/2026/02/01/leeds-darlow-perri-larsen-goalkeeper-transfer/
-
-**With the walls closing in, Arsenal really needed this bold and courageous reaction**\
-`After three games without a win in the Premier League, Mikel Arteta's side navigated a tempestuous atmosphere at Elland Road`\
-https://nytimes.com/athletic/7012385/2026/02/01/arsenal-leeds-reaction-madueke-gyokeres-zubimendi/
 
