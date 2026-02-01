@@ -1,3 +1,8 @@
+**Rangers, Penguins and the juxtaposition of past and present for Mike Sullivan**\
+`As New York embarks on its "re-something," Pittsburgh sits comfortably in playoff position following Saturday’s 6-5 win.
+`\
+https://nytimes.com/athletic/7012865/2026/01/31/penguins-rangers-mike-sullivan-nhl/
+
 **Future of Padres' A.J. Preller's contract extension remains unclear**\
 `With both the front office and roster mired in uncertainty, Padres' A.J. Preller says he still expects a future with the team.`\
 https://nytimes.com/athletic/7012861/2026/01/31/padres-offseason-preller-contract-extension/
@@ -33,8 +38,4 @@ https://nytimes.com/2026/01/31/us/california-crash-pileup-highway-99.html
 **What's wrong with Red Wings after winless homestand? Five thoughts**\
 `The Red Wings' early-season success is being tested as the games get harder.`\
 https://nytimes.com/athletic/7012653/2026/01/31/red-wings-avalanche-todd-mclellan-dylan-larkin/
-
-**Liverpool's Konate cut short leave for Newcastle game, Slot says**\
-`The defender had been in France after the death of his father but played and scored his first league goal at Anfield on Saturday.`\
-https://nytimes.com/athletic/7012814/2026/01/31/ibrahima-konate-liverpool-compassionate-leave-newcastle-slot/
 
