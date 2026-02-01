@@ -1,3 +1,7 @@
+**A New Kind of Cook**\
+`Our colleague shares her remarkable story of amputation and reinvention.`\
+https://nytimes.com/2026/02/01/briefing/a-new-kind-of-cook.html
+
 **The Pulse: What to cook for the Super Bowl**\
 `The Pulse asked members of The Athletic's newsroom for Super Bowl recipe ideas.`\
 https://nytimes.com/athletic/7011252/2026/02/01/super-bowl-recipes-2026-the-pulse/
