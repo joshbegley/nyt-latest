@@ -1,3 +1,11 @@
+**Novak Djokovic racket sells for record $540,000**\
+`The sale smashed the previous record for a tennis collectible. `\
+https://nytimes.com/athletic/7010661/2026/01/31/novak-djokovic-2012-australian-open-racket-record-sale/
+
+**R.N.C. Enters 2026 With Nearly $100 Million Edge on D.N.C.**\
+`Democrats have struggled to raise money, as is often the case for the party out of power, but the depth of their financial hole against the Republican National Committee is noteworthy.`\
+https://nytimes.com/2026/01/31/us/politics/republican-national-committee-dnc-money.html
+
 **Rangers, Penguins and the juxtaposition of past and present for Mike Sullivan**\
 `As New York embarks on its "re-something," Pittsburgh sits comfortably in playoff position following Saturday’s 6-5 win.
 `\

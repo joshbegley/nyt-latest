@@ -1,3 +1,11 @@
+**Novak Djokovic racket sells for record $540,000**\
+`The sale smashed the previous record for a tennis collectible. `\
+https://nytimes.com/athletic/7010661/2026/01/31/novak-djokovic-2012-australian-open-racket-record-sale/
+
+**R.N.C. Enters 2026 With Nearly $100 Million Edge on D.N.C.**\
+`Democrats have struggled to raise money, as is often the case for the party out of power, but the depth of their financial hole against the Republican National Committee is noteworthy.`\
+https://nytimes.com/2026/01/31/us/politics/republican-national-committee-dnc-money.html
+
 **Cavaliers trade for Kings’ Keon Ellis, Dennis Schröder: Source**\
 `Cleveland is sending DeAndre Hunter to Sacramento in a move that adds much-needed roster depth for a Cavs team eyeing a title run.`\
 https://nytimes.com/athletic/7012933/2026/01/31/cavaliers-kings-trade-keon-ellis-dennis-schroder/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/7012990/2026/01/31/stephen-curry-mri-knee-warriors/
 **Dodger Details: Post-World Series glow, Blake Snell's status and more**\
 `President of baseball operations Andrew Friedman has been candid that the team's gaudy revenues have shifted some of their decisions.`\
 https://nytimes.com/athletic/7012957/2026/01/31/post-world-series-glow-blake-snells-status-dodger-details/
-
-**Why MLB stars are being told they can’t play in the World Baseball Classic**\
-`Puerto Rico threatens withdrawal from tournament because some of its best players can’t get insurance coverage`\
-https://nytimes.com/athletic/7012509/2026/01/31/wbc-insurance-puerto-rico-francisco-lindor/
-
-**Rangers, Penguins and the juxtaposition of past and present for Mike Sullivan**\
-`As New York embarks on its "re-something," Pittsburgh sits comfortably in playoff position following Saturday’s 6-5 win.
-`\
-https://nytimes.com/athletic/7012865/2026/01/31/penguins-rangers-mike-sullivan-nhl/
 

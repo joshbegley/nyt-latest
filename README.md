@@ -6,7 +6,7 @@ https://nytimes.com/athletic/7010661/2026/01/31/novak-djokovic-2012-australian-o
 `Democrats have struggled to raise money, as is often the case for the party out of power, but the depth of their financial hole against the Republican National Committee is noteworthy.`\
 https://nytimes.com/2026/01/31/us/politics/republican-national-committee-dnc-money.html
 
-**Cavaliers trade for Kings’ Keon Ellis, Dennis Schröder: Source**\
+**Cavaliers trade for Kings’ Keon Ellis, Dennis Schröder: Sources**\
 `Cleveland is sending DeAndre Hunter to Sacramento in a move that adds much-needed roster depth for a Cavs team eyeing a title run.`\
 https://nytimes.com/athletic/7012933/2026/01/31/cavaliers-kings-trade-keon-ellis-dennis-schroder/
 
