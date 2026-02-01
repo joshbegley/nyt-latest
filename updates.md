@@ -1,3 +1,7 @@
+**Four thoughts on the Giants' Luis Arraez signing: Worry about his position later and more**\
+`Arraez is a batting champion in his prime. He may not be a perfect fit for the Giants, but he makes the team better even with his flaws.`\
+https://nytimes.com/athletic/7013211/2026/02/01/sf-giants-luis-arraez-signing-analysis/
+
 **Lowetide: An innovative way for the Oilers to impact the 2026 NHL Draft**\
 `The Oilers currently hold four picks in the 2026 NHL Draft, beginning in the second round.`\
 https://nytimes.com/athletic/7012201/2026/02/01/edmonton-oilers-2026-nhl-draft-picks-strategy/

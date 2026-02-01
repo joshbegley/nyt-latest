@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7012201/2026/02/01/edmonton-oilers-2026-nhl-draft-picks-strategy/
 
 **Four thoughts on the Giants' Luis Arraez signing: Worry about his position later and more**\
-`Arraez is a batting champion in his prime. He may not be a perfect fit for the Giants but he makes the team better even with his flaws.`\
+`Arraez is a batting champion in his prime. He may not be a perfect fit for the Giants, but he makes the team better even with his flaws.`\
 https://nytimes.com/athletic/7013211/2026/02/01/sf-giants-luis-arraez-signing-analysis/
 
 **Saint-Maximin leaves Club America after 'acts of racism' against his daughters**\
