@@ -1,3 +1,11 @@
+**Why Targeting Iran Is Riskier Than Ousting Maduro**\
+`Iran’s ability to strike Israel and destabilize the wider Middle East makes it a far more dangerous adversary.`\
+https://nytimes.com/2026/02/01/world/trump-iran-threats-venezuela-epstein-files.html
+
+**How Trump Appears in the Epstein Files**\
+`The New York Times found more than 5,300 files with references to Mr. Trump and related terms. They include salacious and unverified claims, as well as documents that had already been made public.`\
+https://nytimes.com/2026/02/01/us/trump-epstein-files.html
+
 **A Victory for ‘Golden’ Gives K-Pop Its First Ever Grammy Win**\
 `The breakout song from “KPop Demon Hunters” won best song written for visual media on Sunday, ending a drought for the powerhouse global genre.`\
 https://nytimes.com/2026/02/01/arts/music/golden-kpop-demon-hunters-grammys.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/01/us/politics/ice-warehouse-detention-canada.html
 **49ers hiring Raheem Morris as defensive coordinator: Sources**\
 `Morris will be the 49ers' fifth defensive coordinator in as many seasons, after Robert Saleh left to become the Titans' head coach.`\
 https://nytimes.com/athletic/7004901/2026/02/01/raheem-morris-49ers-defensive-coordinator/
-
-**Cardinals hire Rams OC Mike LaFleur as head coach**\
-`LaFleur replaces Jonathan Gannon, who was fired after amassing a 15-36 record over three seasons with the Cardinals.`\
-https://nytimes.com/athletic/6996491/2026/02/01/mike-lafleur-cardinals-head-coach-hired/
-
-**U.A.E. Firm Quietly Took Stake in the Trump Family’s Crypto Company**\
-`The $500 million agreement raises new concerns about the propriety of the president negotiating foreign policy with his own business partners.`\
-https://nytimes.com/2026/02/01/us/politics/trump-crypto-uae-world-liberty.html
 
