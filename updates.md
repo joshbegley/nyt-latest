@@ -1,3 +1,7 @@
+**Jason Kidd on media criticism of Cooper Flagg at PG: 'You guys have never played the game'**\
+`The 83 points Flagg has scored since Thursday are the most a teenager has ever produced in a two-game span in NBA history.`\
+https://nytimes.com/athletic/7013219/2026/02/01/jason-kidd-media-criticism-cooper-flagg-never-played-the-game/
+
 **Democratic Upset in Deep Red Texas District Rattles Republicans**\
 `A Democrat won a state legislative special election in a district that President Trump carried by 17 percentage points, unnerving Republicans in Texas and beyond.`\
 https://nytimes.com/2026/02/01/us/democratic-upset-texas-district-republicans.html
