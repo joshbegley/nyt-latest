@@ -1,3 +1,12 @@
+**Blue Jackets' Jet Greaves 'absolutely huge' in third period to seal win over Blues**\
+`The Blue Jackets are on their hottest streak of the season, and now they're closing out games ... even when it's not pretty.`\
+https://nytimes.com/athletic/7012445/2026/01/31/blue-jackets-blues-jet-greaves-win/
+
+**Rangers, Penguins and the juxtaposition of past and present for Mike Sullivan**\
+`As New York embarks on its "re-something," Pittsburgh sits comfortably in playoff position following Saturday’s 6-5 win.
+`\
+https://nytimes.com/athletic/7012865/2026/01/31/penguins-rangers-mike-sullivan-nhl/
+
 **Rangers, Penguins and the juxtaposition of past and present for Mike Sullivan**\
 `As New York embarks on its "re-something," Pittsburgh sits comfortably in playoff position following Saturday’s 6-5 win.
 `\

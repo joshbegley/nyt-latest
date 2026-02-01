@@ -1,3 +1,7 @@
+**Cavaliers trade for Kings’ Keon Ellis, Dennis Schröder: Source**\
+`Cleveland is sending DeAndre Hunter to Sacramento in a move that adds much-needed roster depth for a Cavs team eyeing a title run.`\
+https://nytimes.com/athletic/7012933/2026/01/31/cavaliers-kings-trade-keon-ellis-dennis-schroder/
+
 **Blue Jackets' Jet Greaves 'absolutely huge' in third period to seal win over Blues**\
 `The Blue Jackets are on their hottest streak of the season, and now they're closing out games ... even when it's not pretty.`\
 https://nytimes.com/athletic/7012445/2026/01/31/blue-jackets-blues-jet-greaves-win/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7012509/2026/01/31/wbc-insurance-puerto-rico-franci
 `As New York embarks on its "re-something," Pittsburgh sits comfortably in playoff position following Saturday’s 6-5 win.
 `\
 https://nytimes.com/athletic/7012865/2026/01/31/penguins-rangers-mike-sullivan-nhl/
-
-**Future of Padres' A.J. Preller's contract extension remains unclear**\
-`With both the front office and roster mired in uncertainty, Padres' A.J. Preller says he still expects a future with the team.`\
-https://nytimes.com/athletic/7012861/2026/01/31/padres-offseason-preller-contract-extension/
 
