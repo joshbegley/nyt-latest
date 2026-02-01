@@ -18,7 +18,7 @@ https://nytimes.com/athletic/7012445/2026/01/31/blue-jackets-blues-jet-greaves-w
 `Arraez is a three-time batting champion who rarely strikes out — and who produces polarizing opinions from talent evaluators.`\
 https://nytimes.com/athletic/7012976/2026/01/31/giants-12-million-value-luis-arraezs-incredible-contact-skills/
 
-**Government regulators approve ESPN's billion-dollar acquisition of top NFL Media assets**\
+**Government regulators approve ESPN's billion-dollar acquisition of multiple NFL Media assets**\
 `As part of the agreement, the NFL will take a 10 percent ownership stake in the Disney-owned network.`\
 https://nytimes.com/athletic/7009795/2026/01/31/espn-nfl-media-deal-buy-billion/
 
