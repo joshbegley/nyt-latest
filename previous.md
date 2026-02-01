@@ -2,7 +2,7 @@
 `Progressive clergy members are in the spotlight — protesting, organizing and getting arrested. It’s a split screen to the Trump administration’s muscular, conservative Christianity.`\
 https://nytimes.com/2026/02/01/briefing/religious-leaders-in-minnesota-say-its-their-duty-to-resist-ice.html
 
-**Why Novak Djokovic's Australian Open proved his late career means far more than majors**\
+**Why Djokovic's Australian Open proved his career means far more than majors**\
 `The 24-time Grand Slam champion has added layers to his legacy even in missing out on the 25th title he craved.`\
 https://nytimes.com/athletic/7013488/2026/02/01/novak-djokovic-tennis-legacy-titles-australian-open/
 
@@ -22,7 +22,7 @@ https://nytimes.com/live/2026/02/01/us/trump-news
 `By forcing an impossible economic model on the Washington National Opera, the Kennedy Center essentially disowned the art form.`\
 https://nytimes.com/2026/02/01/opinion/washington-national-opera-kennedy-center-trump.html
 
-**Baby Formula Saved My Marriage**\
+**The Secret to Marriage Equality Is Formula**\
 `Breastfeeding and equal parenting are a zero-sum game.`\
 https://nytimes.com/2026/02/01/opinion/baby-formula-marriage-equality.html
 
