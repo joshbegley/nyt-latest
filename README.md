@@ -1,3 +1,7 @@
+**Fear and Anger Grow as Thousands Remain Without Power in the South**\
+`More than 30 people have died across three Southern states in connection with last week’s storm, and thousands remain without power.`\
+https://nytimes.com/2026/02/01/us/fear-and-anger-grow-as-thousands-remain-without-power-in-the-south.html
+
 **LeBron James named to 2026 NBA All-Star game, extends selections record to 22**\
 `James has now made three more All-Star teams than Kareem Abdul-Jabbar, who is second all-time.`\
 https://nytimes.com/athletic/7014383/2026/02/01/2026-nba-all-star-reserves-lebron/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/01/nyregion/movers-nyc-snow.html
 **Justin Rose sets record while running away with Farmers Insurance Open**\
 `Rose had a six-shot lead entering Sunday and then shot a 70 to extend the margin of victory.`\
 https://nytimes.com/athletic/7014320/2026/02/01/justin-rose-wins-farmers-insurance-open-pga-tour/
-
-**Meet the 8 nominees for best new artist.**\
-`By Lindsay Zoladz`\
-https://nytimes.com/live/2026/02/01/arts/grammys-2026/meet-the-8-nominees-for-best-new-artist
 
