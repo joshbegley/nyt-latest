@@ -1,3 +1,7 @@
+**Future of Padres' A.J. Preller's contract extension remains unclear**\
+`With both the front office and roster mired in uncertainty, Padres' A.J. Preller says he still expects a future with the team.`\
+https://nytimes.com/athletic/7012861/2026/01/31/padres-offseason-preller-contract-extension/
+
 **Giants sign 3-time batting champ Luis Arraez to 1-year, $12 million deal: Sources**\
 `Arraez is the first player to win three consecutive batting titles for a different team in each season.`\
 https://nytimes.com/athletic/6802528/2026/01/31/mlb-luis-arraez-free-agency-signing-sf-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012653/2026/01/31/red-wings-avalanche-todd-mclella
 **Liverpool's Konate cut short leave for Newcastle game, Slot says**\
 `The defender had been in France after the death of his father but played and scored his first league goal at Anfield on Saturday.`\
 https://nytimes.com/athletic/7012814/2026/01/31/ibrahima-konate-liverpool-compassionate-leave-newcastle-slot/
-
-**Mamdani Names Nonprofit Leader and Ex-Rikers Inmate to Run N.Y.C. Jails**\
-`Stanley Richards is taking over as correction commissioner at an inflection point for the city’s jails. Mayor Zohran Mamdani also named Dr. Alister Martin to lead the health department.`\
-https://nytimes.com/2026/01/31/nyregion/nyc-correction-dept-richards-mamdani.html
 
