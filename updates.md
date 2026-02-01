@@ -1,3 +1,8 @@
+**Rangers, Penguins and the juxtaposition of past and present for Mike Sullivan**\
+`As New York embarks on its "re-something," Pittsburgh sits comfortably in playoff position following Saturday’s 6-5 win.
+`\
+https://nytimes.com/athletic/7012865/2026/01/31/penguins-rangers-mike-sullivan-nhl/
+
 **'These guys are pretty good': Penguins continue post-Holiday surge**\
 `After a 6-5 win over the Rangers, the Penguins improved to 13-2-2 in 17 games since the NHL's holiday break.`\
 https://nytimes.com/athletic/7012963/2026/01/31/penguins-rangers-sidney-crosby-nhl/
