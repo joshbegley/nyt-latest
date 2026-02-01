@@ -1,3 +1,7 @@
+**Dodger Details: Post-World Series glow, Blake Snell's status and more**\
+`President of baseball operations Andrew Friedman has been candid that the team's gaudy revenues have shifted some of their decisions.`\
+https://nytimes.com/athletic/7012957/2026/01/31/post-world-series-glow-blake-snells-status-dodger-details/
+
 **Why MLB stars are being told they can’t play in the World Baseball Classic**\
 `Puerto Rico threatens withdrawal from tournament because some of its best players can’t get insurance coverage`\
 https://nytimes.com/athletic/7012509/2026/01/31/wbc-insurance-puerto-rico-francisco-lindor/
@@ -34,8 +38,4 @@ https://nytimes.com/2026/01/31/us/protesters-rally-solidarity-minneapolis.html
 **Newcastle's Miley, Botman doubts for Man City game - Howe says**\
 `Miley sustained a knee issue while Botman has a "tight thigh" Howe said, when explaining why the pair did not play against Liverpool. `\
 https://nytimes.com/athletic/7012782/2026/01/31/lewis-miley-sven-botman-newcastle-injury-update-howe/
-
-**10 Injured in 59-Vehicle Pileup on Fog-Shrouded California Highway, Police Say**\
-`One person died earlier this month in a foggy crash on the same highway.`\
-https://nytimes.com/2026/01/31/us/california-crash-pileup-highway-99.html
 
