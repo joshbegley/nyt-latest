@@ -1,3 +1,15 @@
+**Robert Pratt, Federal Judge Who Derided Trump Pardons, Dies at 78**\
+`He was chastised for remarks ridiculing the pardons of two congressional campaign aides who had been convicted in a bribery plot.`\
+https://nytimes.com/2026/02/01/obituaries/robert-pratt-dead.html
+
+**Bucs vs. Patriots on ice? Lightning and Bruins arrive at Stadium Series game in full uniform**\
+`Lightning players posed the idea to Baker Mayfield, who said, "No problem. Let me just get back from the Bahamas" — and led the procession.`\
+https://nytimes.com/athletic/7014447/2026/02/01/lightning-bruins-stadium-series-arrival/
+
+**Grammys Red Carpet Photos: Music’s Biggest Stars Make Their Entrances**\
+`See what nominees for the 68th Grammy Awards wore to arrive to the ceremony.`\
+https://nytimes.com/2026/02/01/style/grammys-red-carpet-photos-2026.html
+
 **Snow, Ice, Parking Hell: It’s a Tough Winter to Be a New York City Mover**\
 `Even in summer, moving crews have to contend with walk-up apartments, double-parking and sofas that won’t fit through narrow hallways. It’s a lot worse right now.`\
 https://nytimes.com/2026/02/01/nyregion/movers-nyc-snow.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7014107/2026/02/01/doc-rivers-ice-shooting-murder-m
 **Liverpool agree summer deal for Rennes defender Jacquet**\
 `The deal is expected to be worth £55million plus £5m in add-ons.`\
 https://nytimes.com/athletic/6982654/2026/02/01/jeremy-jacquet-liverpool-rennes-transfer-news/
-
-**Here’s the latest.**\
-`By Ben Sisario`\
-https://nytimes.com/live/2026/02/01/arts/grammys-2026/grammy-awards-2026
-
-**After nearly 40 years, Candi Staton returns to the Grammys.**\
-`By Garth Cartwright`\
-https://nytimes.com/live/2026/02/01/arts/grammys-2026/after-nearly-40-years-candi-staton-returns-to-the-grammys
-
-**Hazing Death in Arizona Leads to Charges for 3 Fraternity Leaders**\
-`Three 20-year-old students in Delta Tau Delta at Northern Arizona University were arrested on Saturday. The fraternity has been suspended.`\
-https://nytimes.com/2026/02/01/us/arizona-fraternity-members-charges-death.html
 
