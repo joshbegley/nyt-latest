@@ -1,5 +1,5 @@
 **Atlético Madrid in talks with Seattle Sounders for Obed Vargas: Sources**\
-`Vargas talked about how he had grown up a fan of Atlético before a Sounders matchup against the club in the 2024 FIFA Club World Cup.`\
+`Vargas talked about how he had grown up a fan of Atlético before a Sounders matchup against the club in the FIFA Club World Cup.`\
 https://nytimes.com/athletic/7013957/2026/02/01/obed-vargas-atletico-madrid-seattle-sounders-transfer/
 
 **Detained by Immigration Agents, 5-Year-Old Liam Has Been Released From Custody**\
@@ -34,7 +34,7 @@ https://nytimes.com/athletic/7001711/2026/02/01/raiders-hire-klint-kubiak-head-c
 `The team ranks second-to-last in the SEC in turnover margin at minus-1.29, and total turnovers on the season with 275.`\
 https://nytimes.com/athletic/7013806/2026/02/01/rick-barnes-tennessee-betting-games-joke/
 
-**The Briefing - Spurs 2 Man City 2: How good was Solanke scorpion kick? What does this mean for Frank and title race?**\
+**The Briefing - Spurs 2 Man City 2: How good was Solanke's scorpion kick? What does this mean for Frank and the title race?**\
 `Our writers break down the action from an exciting draw in north London.`\
 https://nytimes.com/athletic/7006950/2026/02/01/tottenham-man-city-cherki-frank/
 
