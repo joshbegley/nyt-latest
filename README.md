@@ -1,3 +1,7 @@
+**A New Kind of Cook**\
+`Our colleague shares her remarkable story of amputation and reinvention.`\
+https://nytimes.com/2026/02/01/briefing/a-new-kind-of-cook.html
+
 **The Pulse: What to cook for the Super Bowl**\
 `The Pulse asked members of The Athletic's newsroom for Super Bowl recipe ideas.`\
 https://nytimes.com/athletic/7011252/2026/02/01/super-bowl-recipes-2026-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012496/2026/02/01/liverpool-hugo-ekitike-newcastle
 **No tinted visor. Black tape again. Old stick. Morgan Geekie is back to his goal-scoring self**\
 `Geekie enters Sunday with a six-game scoring streak (five goals and three assists).`\
 https://nytimes.com/athletic/7012607/2026/02/01/bruins-morgan-geekie-lightning-goals/
-
-**Game, Set Match: Alcaraz beats Djokovic at Australian Open, becomes youngest man to complete career Slam**\
-`Alcaraz dashed Djokovic's latest attempt to win a 25th Grand Slam title by making history of his own in Melbourne.`\
-https://nytimes.com/athletic/7012921/2026/02/01/australian-open-final-carlos-alcaraz-novak-djokovic-result-analysis/
 
