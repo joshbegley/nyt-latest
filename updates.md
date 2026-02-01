@@ -1,3 +1,8 @@
+**Rangers, Penguins and the juxtaposition of past and present for Mike Sullivan**\
+`As New York embarks on its "re-something," Pittsburgh sits comfortably in playoff position following Saturday’s 6-5 win.
+`\
+https://nytimes.com/athletic/7012865/2026/01/31/penguins-rangers-mike-sullivan-nhl/
+
 **Dodger Details: Post-World Series glow, Blake Snell's status and more**\
 `President of baseball operations Andrew Friedman has been candid that the team's gaudy revenues have shifted some of their decisions.`\
 https://nytimes.com/athletic/7012957/2026/01/31/post-world-series-glow-blake-snells-status-dodger-details/
