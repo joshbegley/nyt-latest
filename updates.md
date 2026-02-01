@@ -1,3 +1,7 @@
+**Russia Strikes Ukraine’s Energy Sector, Killing 12 Miners**\
+`The attack comes during a winter freeze and despite efforts by President Trump and others to get the two countries to negotiate a truce.`\
+https://nytimes.com/2026/02/01/world/europe/russia-strikes-ukraine-energy-sector-killing-12-miners.html
+
 **Bompastor 'happy' to leave Chelsea 'if people think I'm not the right person'**\
 `Chelsea were beaten 5-1 in the WSL by Manchester City on Sunday.`\
 https://nytimes.com/athletic/7013852/2026/02/01/sonia-bompastor-chelsea-future/

@@ -1,3 +1,15 @@
+**Atlético Madrid in talks with Seattle Sounders for Obed Vargas: Sources**\
+`Vargas talked about how he had grown up a fan of Atlético before a Sounders matchup against the club in the 2024 FIFA Club World Cup.`\
+https://nytimes.com/athletic/7013957/2026/02/01/obed-vargas-atletico-madrid-seattle-sounders-transfer/
+
+**Detained by Immigration Agents, 5-Year-Old Liam Has Been Released From Custody**\
+`A federal judge had demanded that the boy and his father be set free in a fiery opinion on Saturday.`\
+https://nytimes.com/2026/02/01/us/politics/trump-liam-release.html
+
+**Can Tom Homan De-escalate Tensions in Minnesota?**\
+`The White House border czar wants to focus more on getting immigrants already in jails. He’ll have to persuade Democrats to do it.`\
+https://nytimes.com/2026/02/01/us/politics/tom-homan-minnesota-ice.html
+
 **Russia Strikes Ukraine’s Energy Sector, Killing 12 Miners**\
 `The attack comes during a winter freeze and despite efforts by President Trump and others to get the two countries to negotiate a truce.`\
 https://nytimes.com/2026/02/01/world/europe/russia-strikes-ukraine-energy-sector-killing-12-miners.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7013806/2026/02/01/rick-barnes-tennessee-betting-ga
 **The Briefing - Spurs 2 Man City 2: How good was Solanke scorpion kick? What does this mean for Frank and title race?**\
 `Our writers break down the action from an exciting draw in north London.`\
 https://nytimes.com/athletic/7006950/2026/02/01/tottenham-man-city-cherki-frank/
-
-**Judge Who Ruled Against Trump Administration Cleared of Justice Dept. Complaint**\
-`Trump allies have called for Judge James E. Boasberg to be investigated and impeached after decisions that questioned the administration’s respect for the rule of law.`\
-https://nytimes.com/2026/02/01/us/politics/judge-boasberg-ethics-complaint-trump.html
-
-**Emery calls Villa's disallowed goal 'not fair' after four-minute VAR check**\
-`Tammy Abraham's goal was disallowed against Brentford after the ball was deemed to have gone out of play 19 seconds before.`\
-https://nytimes.com/athletic/7013752/2026/02/01/tammy-abraham-aston-villa-goal-brentford/
-
-**Everton reach agreement in principle with Chelsea for George loan**\
-`The 19-year-old has made only 11 appearances this term after a move to Fulham broke down last summer, four of those coming in the league.`\
-https://nytimes.com/athletic/6535026/2026/02/01/tyrique-george-everton-chelsea-loan-deal/
 
