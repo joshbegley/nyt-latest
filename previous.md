@@ -1,3 +1,19 @@
+**Here’s the latest.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/grammy-awards-2026
+
+**Grammy Awards Live Updates: Music Industry Gathers in L.A. to Celebrate Its Top Artists**\
+`Kendrick Lamar, with nine nominations, could become the rapper with the most Grammys. Other nominees include Bad Bunny, Lady Gaga, Sabrina Carpenter, Justin Bieber and Leon Thomas.`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026
+
+**Who’s nominated, performing and hosting?**\
+`By The New York Times`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/whos-nominated-performing-and-hosting
+
+**How to watch the 68th annual Grammy Awards.**\
+`By The New York Times`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/how-to-watch-the-68th-annual-grammy-awards
+
 **Frank Thomas upset with White Sox Black History Month graphic**\
 `"I guess the black player who made you rich over there and holds all your records is forgettable!" the Hall of Famer wrote on X.`\
 https://nytimes.com/athletic/7013959/2026/02/01/frank-thomas-white-sox-black-history-month/
@@ -19,22 +35,6 @@ https://nytimes.com/2026/02/01/arts/music/golden-kpop-demon-hunters-grammys.html
 https://nytimes.com/athletic/7014160/2026/02/01/arsenal-womens-champions-cup-corinthians/
 
 **Florida makes 100-point statement against Alabama: Are the Gators the SEC's team to beat?**\
-`Florida is still chasing Texas A&M in the standings, but might have the highest upside in the SEC.`\
+`Florida is still chasing Texas A&M in the standings but might have the highest upside in the SEC.`\
 https://nytimes.com/athletic/7014174/2026/02/01/florida-alabama-score-result-highlights/
-
-**The Secret Egyptian Air Base Behind Sudan’s Drone War**\
-`The covert base offers new evidence of how the Sudanese conflict is morphing into a theater for high-tech warfare, driven by foreign interests.`\
-https://nytimes.com/2026/02/01/world/africa/egypt-sudan-drones.html
-
-**Grammys 2026: Winners List**\
-`A complete rundown of the artists, albums, songs and videos that took home trophies at the 68th annual awards.`\
-https://nytimes.com/2026/02/01/arts/music/grammys-winners-list-2026.html
-
-**Does Real Madrid's rookie coach Alvaro Arbeloa have a plan?**\
-`Madrid needed a penalty in the 10th minute of added time from Mbappe to beat 17th-placed Rayo Vallecano, who were down to nine men`\
-https://nytimes.com/athletic/7013818/2026/02/01/arbeloa-real-madrid-rayo-la-liga/
-
-**Canadian Company Cancels Sale of Virginia Warehouse to ICE**\
-`Jim Pattison Developments said the sale of an industrial building, which was planned to become an Immigration and Customs Enforcement processing facility, would not go forward.`\
-https://nytimes.com/2026/02/01/us/politics/ice-warehouse-detention-canada.html
 
