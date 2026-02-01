@@ -1,3 +1,15 @@
+**Protesters Rally Across the U.S. in Solidarity With Minneapolis**\
+`Church bells pealed in the Twin Cities to express support for detainees and protesters who oppose federal immigration agents’ aggressive tactics.`\
+https://nytimes.com/2026/01/31/us/protesters-rally-solidarity-minneapolis.html
+
+**Newcastle's Miley, Botman doubts for Man City game - Howe says**\
+`Miley sustained a knee issue while Botman has a "tight thigh" Howe said, when explaining why the pair did not play against Liverpool. `\
+https://nytimes.com/athletic/7012782/2026/01/31/lewis-miley-sven-botman-newcastle-injury-update-howe/
+
+**10 Injured in 59-Vehicle Pileup on Fog-Shrouded California Highway, Police Say**\
+`One person died earlier this month in a foggy crash on the same highway.`\
+https://nytimes.com/2026/01/31/us/california-crash-pileup-highway-99.html
+
 **What's wrong with Red Wings after winless homestand? Five thoughts**\
 `The Red Wings' early-season success is being tested as the games get harder.`\
 https://nytimes.com/athletic/7012653/2026/01/31/red-wings-avalanche-todd-mclellan-dylan-larkin/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7012680/2026/01/31/flyers-kings-overtime-loss-score
 **Comical Mutation**\
 `Lance Enfinger and John Kugelman’s puzzle will transform you.`\
 https://nytimes.com/2026/01/31/crosswords/daily-puzzle-2026-02-01.html
-
-**Moyes calls yellow card for celebrating Everton's goal 'f***ing sad'**\
-`The 62-year-old ran onto the pitch after Beto equalised in the 97th minute against Brighton on Saturday.`\
-https://nytimes.com/athletic/7012744/2026/01/31/david-moyes-everton-goal-celebration/
-
-**Sidney Crosby gets emotional as Penguins honor 2016 championship team**\
-`The 38-year-old Penguins captain broke into tears while watching the video tribute honoring the 2016 team on Saturday.`\
-https://nytimes.com/athletic/7012683/2026/01/31/sidney-crosby-penguins-2016-stanley-cup-championship/
-
-**Liverpool 4 Newcastle 1 - Ekitike's magic two minutes, Gordon a striker and Konate's emotional return**\
-`In a thrilling game, Liverpool came from behind at Anfield to defeat a spirited Newcastle and earn their first Premier League win of 2026`\
-https://nytimes.com/athletic/7006750/2026/01/31/liverpool-newcastle-ekitike-gordon-result-analysis/
 
