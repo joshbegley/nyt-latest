@@ -1,3 +1,15 @@
+**Inside the stunning dismissal of Vikings GM Kwesi Adofo-Mensah: 'This is wild'**\
+`While speculation had swirled about Kwesi Adofo-Mensah's future in Minnesota, almost no one expected a move to come in late January.`\
+https://nytimes.com/athletic/7012881/2026/02/01/kwesi-adofo-mensah-firing-explained-vikings/
+
+**Are Giannis Antetokounmpo and Mike Dunleavy Jr. on another collision course?**\
+`A decade after a brutal hit in the playoffs, Mike Dunleavy Jr. is weighing a swing that could define his Warriors' tenure. `\
+https://nytimes.com/athletic/7013017/2026/02/01/giannis-antetokounmpo-mike-dunleavy-warriors-bucks-trade/
+
+**Navy jerseys, home-team locker room, and other details about the Seahawks' Super Bowl week**\
+`The NFL considers the Seahawks the visiting team. So how did they wind up with the bigger, better locker room?`\
+https://nytimes.com/athletic/7011639/2026/02/01/seahawks-super-bowl-week-logistics/
+
 **Palace make £48m offer for Wolves' Strand Larsen**\
 `The Norway international would bolster Palace's attacking options as AC Milan pursue a deal for Mateta. `\
 https://nytimes.com/athletic/7006585/2026/02/01/strand-larsen-crystal-palace-transfer/
