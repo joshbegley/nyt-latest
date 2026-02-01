@@ -1,3 +1,19 @@
+**A Victory for ‘Golden’ Gives K-Pop Its First Ever Grammy Win**\
+`The breakout song from “KPop Demon Hunters” won best song written for visual media on Sunday, ending a drought for the powerhouse global genre.`\
+https://nytimes.com/2026/02/01/arts/music/golden-kpop-demon-hunters-grammys.html
+
+**Arsenal beat Corinthians to win inaugural Women's Champions Cup**\
+`Arsenal won 3-2 in extra time during a dramatic final on Sunday and claim $2.3m in prize money.`\
+https://nytimes.com/athletic/7014160/2026/02/01/arsenal-womens-champions-cup-corinthians/
+
+**Florida makes 100-point statement against Alabama: Are the Gators the SEC's team to beat?**\
+`Florida is still chasing Texas A&M in the standings, but might have the highest upside in the SEC.`\
+https://nytimes.com/athletic/7014174/2026/02/01/florida-alabama-score-result-highlights/
+
+**The Secret Egyptian Air Base Behind Sudan’s Drone War**\
+`The covert base offers new evidence of how the Sudanese conflict is morphing into a theater for high-tech warfare, driven by foreign interests.`\
+https://nytimes.com/2026/02/01/world/africa/egypt-sudan-drones.html
+
 **Grammys 2026: Winners List**\
 `A complete rundown of the artists, albums, songs and videos that took home trophies at the 68th annual awards.`\
 https://nytimes.com/2026/02/01/arts/music/grammys-winners-list-2026.html
