@@ -1,3 +1,7 @@
+**‘KPop Demon Hunters’ is inspiring fans to learn Korean.**\
+`By Amy Qin`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/kpop-demon-hunters-is-inspiring-fans-to-learn-korean
+
 **10-Minute Challenge: A Painting of Time**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2026/02/01/upshot/10-minute-challenge-biernoff.html

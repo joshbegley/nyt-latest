@@ -1,3 +1,7 @@
+**‘KPop Demon Hunters’ is inspiring fans to learn Korean.**\
+`By Amy Qin`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/kpop-demon-hunters-is-inspiring-fans-to-learn-korean
+
 **10-Minute Challenge: A Painting of Time**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2026/02/01/upshot/10-minute-challenge-biernoff.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7014115/2026/02/01/red-sox-jordan-hicks-trade-infie
 **James Sallis, 81, Dies; Novelist Whose ‘Drive’ Became a Hit Movie**\
 `A storyteller of modern America’s underbelly with a literary, ruminative style, he inspired a Ryan Gosling movie and earned critical acclaim.`\
 https://nytimes.com/2026/02/01/obituaries/james-sallis-dead.html
-
-**Trump Says Kennedy Center Will Close for 2-Year Reconstruction Project**\
-`The president’s announcement came after the center has been rocked by cancellations and boycotts by performers, contributors and audience members.`\
-https://nytimes.com/2026/02/01/us/politics/trump-kennedy-center.html
 
