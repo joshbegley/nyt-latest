@@ -1,3 +1,11 @@
+**Full Time: Split results for Americans abroad**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/7016880/2026/02/02/uswnt-wsl-england-results-full-time/
+
+**Third Candidate Scrambles Heated Race for Open House Seat**\
+`Julie Won, a New York City councilwoman, will face two other Democrats, one backed by the departing incumbent, Nydia Velázquez, and the other by Mayor Zohran Mamdani.`\
+https://nytimes.com/2026/02/02/nyregion/julie-won-house-candidate.html
+
 **Deal to Reopen Government Is on Shaky Ground in the House**\
 `Some hard-line House Republicans have balked at the agreement Senate Democrats struck with President Trump to fund the government, complicating its path to enactment.`\
 https://nytimes.com/2026/02/02/us/politics/government-shutdown-house-deal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7016806/2026/02/02/super-bowl-ice-immigration-opera
 **Giannis to the Bulls? Why you shouldn't take those DraftKings odds too seriously**\
 `While DraftKings lists the Bulls as having the best odds to land Giannis Antetokounmpo, it's probably not because anything has changed.`\
 https://nytimes.com/athletic/7016935/2026/02/02/giannis-antetokounmpo-betting-odds-chicago-bulls/
-
-**Northern Command Tells N.C., Alaska Troops to Stand Down on Possible Minnesota Deployment**\
-`More than 1,500 active-duty troops had been on standby to deploy to Minnesota, but were quietly taken off heightened alert over the weekend.`\
-https://nytimes.com/2026/02/02/us/politics/alaska-north-carolina-troops-minnesota-deployment.html
-
-**NFL to 'look into' Giants co-owner Steve Tisch's connection to Epstein files**\
-`Epstein provided Tisch with scouting reports on women, according to emails the Department of Justice released Friday.`\
-https://nytimes.com/athletic/7016872/2026/02/02/nfl-steve-tisch-epstein-emails/
 

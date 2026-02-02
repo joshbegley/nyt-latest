@@ -1,3 +1,11 @@
+**Full Time: Split results for Americans abroad**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/7016880/2026/02/02/uswnt-wsl-england-results-full-time/
+
+**Third Candidate Scrambles Heated Race for Open House Seat**\
+`Julie Won, a New York City councilwoman, will face two other Democrats, one backed by the departing incumbent, Nydia Velázquez, and the other by Mayor Zohran Mamdani.`\
+https://nytimes.com/2026/02/02/nyregion/julie-won-house-candidate.html
+
 **Deal to Reopen Government Is on Shaky Ground in the House**\
 `Some hard-line House Republicans have balked at the agreement Senate Democrats struck with President Trump to fund the government, complicating its path to enactment.`\
 https://nytimes.com/2026/02/02/us/politics/government-shutdown-house-deal.html
