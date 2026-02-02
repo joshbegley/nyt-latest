@@ -1,3 +1,7 @@
+**Blue Jackets Monday Gathering: Hot streak adds pressure to GM Don Waddell's decision-making**\
+`Waddell needs to make a choice fairly soon about being a buyer or seller ahead of the March 6 trade deadline.`\
+https://nytimes.com/athletic/7014932/2026/02/02/blue-jackets-waddell-trade-deadline/
+
 **A Knight of the Seven Kingdoms**\
 ``\
 https://nytimes.com/spotlight/a-knight-of-the-seven-kingdoms
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7015963/2026/02/02/rockets-vs-pacers-stream-how-to-
 **How to watch Senators vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Ottawa Senators play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7015959/2026/02/02/senators-vs-penguins-stream-how-to-watch-feb-2/
-
-**How to watch Sabres vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7015955/2026/02/02/sabres-vs-panthers-stream-how-to-watch-feb-2/
 
