@@ -1,3 +1,11 @@
+**Epstein Victims Outraged Over Unredacted Info, and the Supreme Court Made Itself More Secretive**\
+`Plus, big firsts at the Grammy Awards.`\
+https://nytimes.com/2026/02/02/podcasts/the-headlines/epstein-victims-photos-supreme-court-secrecy.html
+
+**Colorado Rockies 2026 top 20 prospects: Ethan Holliday, Charlie Condon lead the way**\
+`The Rockies have several high-upside talents and, under a new front office, may now get the development support they need to thrive.`\
+https://nytimes.com/athletic/7006105/2026/02/02/rockies-2026-top-20-prospects-keith-law/
+
 **A collection of Luke Kuechly's greatest hits as he waits for Hall of Fame call**\
 `Kuechly didn't get the call in his first eligible season a year ago. The 2026 class will be announced Thursday night.`\
 https://nytimes.com/athletic/7011209/2026/02/02/luke-kuechly-hof-career-panthers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7015039/2026/02/02/luka-doncic-lakers-good-spot-one
 **How does the Eagles’ offense compare to Seahawks, Patriots in Super Bowl 60?**\
 `The defending Super Bowl champions are in better shape in some areas, but not others.`\
 https://nytimes.com/athletic/7007599/2026/02/02/eagles-offense-roster-super-bowl-60-seahawks-patriots/
-
-**NHL weekend rankings: It's not too early to imagine a dream first playoff round**\
-`Matthew Schaefer vs. Sidney Crosby? What about Leo Carlsson or Macklin Celebrini vs. Nathan MacKinnon? It could very well happen.`\
-https://nytimes.com/athletic/7014275/2026/02/02/nhl-weekend-rankings-first-round-blue-jackets-sabres-leafs/
-
-**The origin story of the Columbus Blue Jackets' loved, loathed and loud arena cannon**\
-`When the Blue Jackets score a goal, everyone in Nationwide Arena hears about it.`\
-https://nytimes.com/athletic/7004473/2026/02/02/blue-jackets-cannon-columbus/
 
