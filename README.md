@@ -1,3 +1,7 @@
+**Grammys Instant Reactions! Bad Bunny Owns the Night**\
+`Popcast breaks down the show’s major moments in a live reaction episode immediately following the ceremony.`\
+https://nytimes.com/2026/02/02/arts/music/grammys-2026-reactions-popcast.html
+
 **Word of the Day: accede**\
 `This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/02/learning/word-of-the-day-accede.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7012103/2026/02/02/brighton-everton-pascal-gross-an
 **Nottingham Forest find strength in adversity - that grit will be key to survival**\
 `Neco Williams' red card was followed by an impressive backs-to-the-wall performance - but a new signing is needed`\
 https://nytimes.com/athletic/7013915/2026/02/02/nottingham-forest-crystal-palace-analysis/
-
-**Newcastle United's dismal record against direct rivals is undermining their season**\
-`Newcastle have beaten only one of the current top six this season and have lost six times against teams currently above them in the table`\
-https://nytimes.com/athletic/7012180/2026/02/02/newcastle-howe-rivals-liverpool/
 
