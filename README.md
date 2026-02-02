@@ -1,3 +1,11 @@
+**Bad Bunny’s High-Risk Choice: Three Opinion Writers Discuss the Grammys**\
+`There were two Grammys ceremonies: Bad Bunny’s and everyone else’s.`\
+https://nytimes.com/2026/02/02/opinion/grammys-bad-bunny.html
+
+**Highlights From the 68th Grammy Awards**\
+`This year’s Grammy Awards had an undercurrent of political dissent among the celebratory vibe. Several artists wore “ICE OUT” pins, as others spoke directly about the federal immigration crackdown.`\
+https://nytimes.com/video/arts/music/100000010683182/grammy-awards-2026.html
+
 **Gaza Crossing to Egypt Reopens in Step Forward for Fragile Cease-Fire**\
 `Israel and Egypt had disagreed for months about how to resume operations at the Rafah border crossing, which has been closed for nearly a year.`\
 https://nytimes.com/2026/02/02/world/middleeast/gaza-rafah-border-crossing.html
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/02/02/todays-new-york-times
 **Palace are set to break their transfer record twice this window — but they still lack stardust**\
 `Oliver Glasner's team is failing to win even when dominating, a result of losing Michael Olise and Eberechi Eze`\
 https://nytimes.com/athletic/7003881/2026/02/02/crystal-palace-transfer-record-johnson-glasner/
-
-**Pep's Spurs curse? Three issues on Sunday have haunted them many times this season**\
-`Worryingly for City, it is not just Spurs who have rattled them recently. Sam Lee explores three areas where Guardiola's side are struggling`\
-https://nytimes.com/athletic/7014215/2026/02/02/city-tottenham-curse-guardiola/
-
-**LeBron James' uncertain NBA future means he might not play in Madison Square Garden again**\
-`James is playing at a high level and playing a lot. But he won't commit to playing next season.`\
-https://nytimes.com/athletic/7014910/2026/02/02/lebron-james-lakers-knicks-madison-square-garden/
 
