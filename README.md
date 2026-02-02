@@ -1,3 +1,7 @@
+**Dodgers' Edwin Díaz to pitch for Puerto Rico in World Baseball Classic, serve as team closer**\
+`Díaz has been confirmed as a participant days after Team Puerto Rico learned several of their stars were denied insurance coverage to play.`\
+https://nytimes.com/athletic/7016231/2026/02/02/dodgers-edwin-diaz-wbc-participation/
+
 **Deal to Reopen Government on Shaky Ground in the House**\
 `Some hard-line House Republicans have balked at the deal Senate Democrats struck with President Trump to fund the government, complicating its path to enactment.`\
 https://nytimes.com/2026/02/02/us/politics/government-shutdown-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/02/us/politics/trump-tariffs-india-trade-deal.html
 **Ohio Church Swells With Support for Haitians as Deportation Threat Looms**\
 `In Springfield, which was thrust into the spotlight by President Trump during the 2024 campaign, hundreds of people turned out to back Haitians living in the city.`\
 https://nytimes.com/2026/02/02/us/springfield-ohio-haitians-deportation-threat.html
-
-**Ravens hire Anthony Weaver as defensive coordinator**\
-`Weaver, a defensive assistant in Baltimore from 2021 to 2023, spent the past two seasons as the Dolphins' defensive coordinator. `\
-https://nytimes.com/athletic/7014958/2026/02/02/ravens-anthony-weaver-defensive-coordinator-dolphins/
 
