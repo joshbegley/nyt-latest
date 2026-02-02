@@ -1,3 +1,15 @@
+**Is Ikea Cookware As Good As All-Clad?**\
+`Throughout years of testing, our kitchen journalists have consistently found that All-Clad cookware is top-of-the-line.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010684785/is-ikea-cookware-as-good-as-all-clad.html
+
+**Doing the Super Prop Shuffle**\
+`In the spirit of the "Super Bowl Shuffle," Toby Mergler gives his prop-bet picks for this year's game.`\
+https://nytimes.com/athletic/7015869/2026/02/02/best-super-bowl-player-prop-bets-patriots-seahawks/
+
+**Trump’s Remake of the Kennedy Center**\
+`Readers object to President Trump’s plan to close the Kennedy Center for a two-year reconstruction project. Also: U.N. financial trouble; an ominous signoff.`\
+https://nytimes.com/2026/02/02/opinion/trump-kennedy-center.html
+
 **St. Louis Cardinals leave FanDuel Sports Network, join MLB's broadcast portfolio**\
 `With the Cardinals leaving, eight other MLB teams are expected to make decisions soon on whether to stick with FanDuel SN or depart. `\
 https://nytimes.com/athletic/7010724/2026/02/02/cardinals-mlb-broadcast-fanduel-sports-network/
