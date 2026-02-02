@@ -1,3 +1,11 @@
+**Banfield Found Guilty in Virginia Double Murder Trial**\
+`Prosecutors said Brendan Banfield carried out an elaborate scheme using a fetish website in 2023 to kill his wife and another man.`\
+https://nytimes.com/2026/02/02/us/brendan-banfield-guilty-double-murder.html
+
+**Wolves sign Marseille's Angel Gomes on loan deal**\
+`All four of the 25-year-old’s international appearances for England came under interim head coach Lee Carsley in 2024.`\
+https://nytimes.com/athletic/7013338/2026/02/02/wolves-transfers-angel-gomes/
+
 **Kid Rock headlines Turning Point USA's Super Bowl halftime show**\
 `Turning Point USA had previously announced plans for a show after the NFL chose Bad Bunny as its halftime performer.`\
 https://nytimes.com/athletic/7016481/2026/02/02/turning-point-usa-super-bowl-kid-rock-halftime/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7016567/2026/02/02/ricardo-pepi-fulham-transfer-psv
 **John Forté, Hip-Hop Redemption Tale, Dies at 50**\
 `He seemed destined for a glittering career, working with the Fugees and solo, then landed in prison. After a presidential pardon, he clawed his way back.`\
 https://nytimes.com/2026/02/02/arts/music/john-forte-dead.html
-
-**Mariners close to acquiring All-Star Brendan Donovan from the Cardinals: Sources**\
-`The Cardinals could have kept Donovan as a player to build around but chose otherwise.`\
-https://nytimes.com/athletic/6826835/2026/02/02/mlb-cardinals-trade-brendan-donovan-mariners/
-
-**The Message From Texas Voters: We’re Neighbors, Not Enemies**\
-`Many Americans are growing both exhausted and frightened by Trump’s scorched-earth, hyperpartisan, fire-ready-aim approach to the presidency.`\
-https://nytimes.com/2026/02/02/opinion/columnists/trump-america-identity.html
 

@@ -1,3 +1,11 @@
+**Banfield Found Guilty in Virginia Double Murder Trial**\
+`Prosecutors said Brendan Banfield carried out an elaborate scheme using a fetish website in 2023 to kill his wife and another man.`\
+https://nytimes.com/2026/02/02/us/brendan-banfield-guilty-double-murder.html
+
+**Wolves sign Marseille's Angel Gomes on loan deal**\
+`All four of the 25-year-old’s international appearances for England came under interim head coach Lee Carsley in 2024.`\
+https://nytimes.com/athletic/7013338/2026/02/02/wolves-transfers-angel-gomes/
+
 **Kid Rock headlines Turning Point USA's Super Bowl halftime show**\
 `Turning Point USA had previously announced plans for a show after the NFL chose Bad Bunny as its halftime performer.`\
 https://nytimes.com/athletic/7016481/2026/02/02/turning-point-usa-super-bowl-kid-rock-halftime/

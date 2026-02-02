@@ -1,3 +1,7 @@
+**Trump Drops Demand for Cash From Harvard After Stiff Resistance**\
+`The Trump administration has lowered the bar for a deal with the university, backtracking on its insistence on a $200 million payment to the government, The New York Times has learned.`\
+https://nytimes.com/2026/02/02/us/politics/trump-harvard-payment.html
+
 **Banfield Found Guilty in Virginia Double Murder Trial**\
 `Prosecutors said Brendan Banfield carried out an elaborate scheme using a fetish website in 2023 to kill his wife and another man.`\
 https://nytimes.com/2026/02/02/us/brendan-banfield-guilty-double-murder.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/02/us/politics/nih-worker-trump-whistle-blower-prote
 **Why Ricardo Pepi's Fulham transfer collapse can help his World Cup outlook**\
 `Pepi's move to the Premier League is off, but it's a situation that could work into the U.S. striker's favor with regard to the World Cup`\
 https://nytimes.com/athletic/7016567/2026/02/02/ricardo-pepi-fulham-transfer-psv-usmnt-world-cup/
-
-**John Forté, Hip-Hop Redemption Tale, Dies at 50**\
-`He seemed destined for a glittering career, working with the Fugees and solo, then landed in prison. After a presidential pardon, he clawed his way back.`\
-https://nytimes.com/2026/02/02/arts/music/john-forte-dead.html
 
