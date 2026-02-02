@@ -1,3 +1,11 @@
+**What trading Jordan Hicks could mean as Red Sox look to acquire infielder**\
+`Did Sunday's trade signal that the Red Sox are primed to make another move?`\
+https://nytimes.com/athletic/7014115/2026/02/01/red-sox-jordan-hicks-trade-infielder-pursuit/
+
+**James Sallis, 81, Dies; Novelist Whose ‘Drive’ Became a Hit Movie**\
+`A storyteller of modern America’s underbelly with a literary, ruminative style, he inspired a Ryan Gosling movie and earned critical acclaim.`\
+https://nytimes.com/2026/02/01/obituaries/james-sallis-dead.html
+
 **Trump Says Kennedy Center Will Close for 2-Year Reconstruction Project**\
 `The president’s announcement came after the center has been rocked by cancellations and boycotts by performers, contributors and audience members.`\
 https://nytimes.com/2026/02/01/us/politics/trump-kennedy-center.html
