@@ -1,3 +1,7 @@
+**How Weight Lifting Took Over America**\
+`Getting strong has never been more popular. How did we get here?`\
+https://nytimes.com/video/well/move/100000010677548/how-weight-lifting-took-over-america.html
+
 **Olivia Dean Caps a Rocket-Ship Year With a Best New Artist Grammy**\
 `The “Man I Need” singer defeated a fellow British vocalist, Lola Young, as well as Leon Thomas, Addison Rae and others.`\
 https://nytimes.com/2026/02/01/arts/music/olivia-dean-best-new-artist-grammys.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7014513/2026/02/01/nba-all-star-top-10-snubs-kawhi-
 **Who might make history? Kendrick Lamar, Bad Bunny and Rosé.**\
 `(No description)`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026/who-might-make-history-kendrick-lamar-bad-bunny-and-rose
-
-**Stars Speak Up for Immigrants Ahead of Grammys Ceremony**\
-`Gloria Estefan, Shaboozey and Kehlani took an opportunity to speak up for communities that are being targeted by ICE across the United States.`\
-https://nytimes.com/2026/02/01/arts/music/grammys-ice-immigration-kehlani.html
 

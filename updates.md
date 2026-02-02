@@ -1,3 +1,7 @@
+**How Weight Lifting Took Over America**\
+`Getting strong has never been more popular. How did we get here?`\
+https://nytimes.com/video/well/move/100000010677548/how-weight-lifting-took-over-america.html
+
 **Goalie fight, again! Watch Vasilevskiy and Swayman throw down at center ice**\
 `The two goalies duked it out at center ice during the NHL Stadium Series at Tampa's Raymond James Stadium.`\
 https://nytimes.com/athletic/7014696/2026/02/01/nhl-goalie-fight-vasilevskiy-swayman-stadium-series/
