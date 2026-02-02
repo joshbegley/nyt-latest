@@ -1,3 +1,11 @@
+**Maps: Earthquakes Shake the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/02/02/us/san-francisco-bay-area-quake-tracker.html
+
+**West Ham sign Axel Disasi on loan deal from Chelsea**\
+`The 27-year-old, who had not made a senior appearance for Chelsea this campaign, has been a long-standing target for West Ham this window.`\
+https://nytimes.com/athletic/6424289/2026/02/02/west-ham-transfers-disasi-chelsea/
+
 **2026 Winter Olympics medal count**\
 ``\
 https://nytimes.com/athletic/7002227/2026/02/02/2026-winter-olympics-medal-count/

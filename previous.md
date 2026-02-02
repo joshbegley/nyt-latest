@@ -1,3 +1,11 @@
+**Maps: Earthquakes Shake the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/02/02/us/san-francisco-bay-area-quake-tracker.html
+
+**West Ham sign Axel Disasi on loan deal from Chelsea**\
+`The 27-year-old, who had not made a senior appearance for Chelsea this campaign, has been a long-standing target for West Ham this window.`\
+https://nytimes.com/athletic/6424289/2026/02/02/west-ham-transfers-disasi-chelsea/
+
 **2026 Winter Olympics medal count**\
 ``\
 https://nytimes.com/athletic/7002227/2026/02/02/2026-winter-olympics-medal-count/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/02/us/politics/dan-bongino-podcast-return.html
 **Tennessee QB Joey Aguilar sues NCAA in pursuit of eligibility for 2026**\
 `Aguilar is the latest SEC quarterback to file a lawsuit against the NCAA hoping to gain another year of college football eligibility.`\
 https://nytimes.com/athletic/7016810/2026/02/02/joey-aguilar-ncaa-eligibility-lawsuit-tennessee/
-
-**‘I Didn’t Have Time to Think,’ Says Sergeant Who Threw Cooler at Man**\
-`Erik Duran, an N.Y.P.D. sergeant, said he was trying to save lives when he struck Eric Duprey with a cooler. The sergeant took the unusual step of testifying at his own manslaughter trial.`\
-https://nytimes.com/2026/02/02/nyregion/duran-duprey-bronx-trial.html
-
-**NBC Sports set to host Super Bowl LX pregame coverage from Alcatraz Island**\
-`Alcatraz will play host for segments of NBC's Super Bowl coverage on Sunday.`\
-https://nytimes.com/athletic/7016788/2026/02/02/nbc-sports-set-to-host-super-bowl-lx-pregame-coverage-from-alcatraz-island/
 
