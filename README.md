@@ -1,3 +1,11 @@
+**Gaza’s Rafah Crossing Reopens, Allowing Some to Leave and Return**\
+`Some critically ill and wounded Palestinians were set to leave through the Rafah crossing as it reopened on Monday. A limited number of Palestinians that fled during the war will also be allowed to return to Gaza.`\
+https://nytimes.com/video/world/middleeast/100000010683949/gaza-rafah-crossing-egypt-israel.html
+
+**How Spurs turned their game against Manchester City on its head**\
+`A half-time tweak from Thomas Frank enabled Tottenham to come from two goals down against Pep Guardiola's side on Sunday`\
+https://nytimes.com/athletic/7015291/2026/02/02/tottenham-man-city-premier-league-analysis/
+
 **Arsenal 'actively looking' in transfer market after Merino injury – Arteta**\
 `Merino will undergo surgery on a foot injury and is set for an extended spell out.`\
 https://nytimes.com/athletic/7015641/2026/02/02/arsenal-transfers-mikel-merino-injury-arteta/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/02/business/dealbook/epstein-files-business.html
 **Countries Have Long Tested Their Own Athletes for Doping. That Could Soon Change.**\
 `After Chinese swimmers won Olympic gold in 2021 despite having tested positive for a banned substance, the World Antidoping Agency is considering whether to have an independent body handle testing before major events.`\
 https://nytimes.com/2026/02/02/world/europe/doping-neutral-testing-olympics-.html
-
-**What we're hearing about Bulls at NBA trade deadline: Deal Coby White? Ayo Dosunmu?**\
-`Joining Sunday's trade felt like a step in the right direction, as all signs point to the Bulls leaning toward developing their young core.`\
-https://nytimes.com/athletic/7014494/2026/02/02/bulls-nba-trade-deadline-vucevic-white-dosunmu/
-
-**Is Football Doomed? Chuck Klosterman Thinks So.**\
-`In his new book, the writer goes deep on a sport that dominates American cultural life — but possibly not for long.`\
-https://nytimes.com/2026/02/02/books/review/chuck-klosterman-football.html
 
