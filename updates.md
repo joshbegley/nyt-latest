@@ -1,3 +1,19 @@
+**Dodgers' Edwin Díaz to pitch for Puerto Rico in World Baseball Classic, serve as team closer**\
+`Díaz has been confirmed as a participant days after Team Puerto Rico learned several of their stars were denied insurance coverage to play.`\
+https://nytimes.com/athletic/7016231/2026/02/02/dodgers-edwin-diaz-wbc-participation/
+
+**Deal to Reopen Government on Shaky Ground in the House**\
+`Some hard-line House Republicans have balked at the deal Senate Democrats struck with President Trump to fund the government, complicating its path to enactment.`\
+https://nytimes.com/2026/02/02/us/politics/government-shutdown-deal.html
+
+**Let Them Eat Goo**\
+`It’s boom times for meal-replacement products that cater to the overwhelmed (and wellness-obsessed) millennial. But Soylent they are not.`\
+https://nytimes.com/2026/02/02/dining/food-pouches-soylent.html
+
+**Palace agree deal to sign Everton's McNeil on loan with £20m obligation**\
+`All parties are working to complete the deal for Monday’s deadline.`\
+https://nytimes.com/athletic/7016315/2026/02/02/dwight-mcneil-crystal-palace-everton-transfer/
+
 **Conservative Group to Stage Alternate Halftime Show With Kid Rock**\
 `Turning Point USA, the advocacy group founded by Charlie Kirk, will present a streamed concert that will go up against Bad Bunny’s performance at the Super Bowl.`\
 https://nytimes.com/2026/02/02/arts/music/kid-rock-tpusa-halftime.html
