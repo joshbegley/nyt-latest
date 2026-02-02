@@ -1,3 +1,7 @@
+**Hecklers Roast My $800 Stroller Wagon. After 650 Miles, I Still Love It.**\
+`After pushing through snow, sand, and mud, my family of four has come to view the luxury stroller wagon as a necessity.`\
+https://nytimes.com/wirecutter/blog/veer-cruiser-xl-stroller-wagon-review/
+
 **Trump Drops Demand for Cash From Harvard After Stiff Resistance**\
 `The Trump administration has lowered the bar for a deal with the university, backtracking on its insistence on a $200 million payment to the government, The New York Times has learned.`\
 https://nytimes.com/2026/02/02/us/politics/trump-harvard-payment.html
