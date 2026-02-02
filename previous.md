@@ -1,3 +1,11 @@
+**NFL hiring cycle: Despite 10 vacancies, no Black head coaches hired**\
+`After the NFL had six Black coaches in 2024, the league will enter the 2026 season with three.`\
+https://nytimes.com/athletic/7014495/2026/02/01/nfl-head-coaching-hires-black-coaches/
+
+**Eugenio Suárez brings his big bat (and big personality) back to Cincinnati**\
+`Suárez, who remains popular in the Reds' clubhouse, is expected to mostly serve as a designated hitter.`\
+https://nytimes.com/athletic/7014559/2026/02/01/reds-sign-eugenio-suarez-personality/
+
 **With six nods, Leon Thomas is ready for a Grammy spotlight.**\
 `By Niela Orr`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026/with-six-nods-leon-thomas-is-ready-for-a-grammy-spotlight
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/01/us/politics/trump-kennedy-center.html
 **The Government Published Dozens of Nude Photos in the Epstein Files**\
 `The photos, which showed young women or possibly teenagers with their faces visible, were largely removed after The New York Times began notifying the Justice Department.`\
 https://nytimes.com/2026/02/01/us/nude-photos-epstein-files.html
-
-**Kendrick Lamar, ‘KPop Demon Hunters’ and Leon Thomas lead early Grammy wins.**\
-`By Ben Sisario`\
-https://nytimes.com/live/2026/02/01/arts/grammys-2026/grammys-early-winners
-
-**5-Year-Old and His Father, Detained by Agents, Are Released From Custody**\
-`Liam Conejo Ramos, the 5-year-old who was detained with his father by federal agents, is back home in Minnesota with his father. A federal judge demanded their release from an immigration detention center in Texas, where they were being held.`\
-https://nytimes.com/video/us/100000010683054/ramos-detained-by-agents-released.html
 

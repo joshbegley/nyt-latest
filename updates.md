@@ -1,3 +1,11 @@
+**NFL hiring cycle: Despite 10 vacancies, no Black head coaches hired**\
+`After the NFL had six Black coaches in 2024, the league will enter the 2026 season with three.`\
+https://nytimes.com/athletic/7014495/2026/02/01/nfl-head-coaching-hires-black-coaches/
+
+**Eugenio Suárez brings his big bat (and big personality) back to Cincinnati**\
+`Suárez, who remains popular in the Reds' clubhouse, is expected to mostly serve as a designated hitter.`\
+https://nytimes.com/athletic/7014559/2026/02/01/reds-sign-eugenio-suarez-personality/
+
 **With six nods, Leon Thomas is ready for a Grammy spotlight.**\
 `By Niela Orr`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026/with-six-nods-leon-thomas-is-ready-for-a-grammy-spotlight

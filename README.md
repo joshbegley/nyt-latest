@@ -1,3 +1,7 @@
+**10-Minute Challenge: A Painting of Time**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2026/02/01/upshot/10-minute-challenge-biernoff.html
+
 **NFL hiring cycle: Despite 10 vacancies, no Black head coaches hired**\
 `After the NFL had six Black coaches in 2024, the league will enter the 2026 season with three.`\
 https://nytimes.com/athletic/7014495/2026/02/01/nfl-head-coaching-hires-black-coaches/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/01/obituaries/james-sallis-dead.html
 **Trump Says Kennedy Center Will Close for 2-Year Reconstruction Project**\
 `The president’s announcement came after the center has been rocked by cancellations and boycotts by performers, contributors and audience members.`\
 https://nytimes.com/2026/02/01/us/politics/trump-kennedy-center.html
-
-**The Government Published Dozens of Nude Photos in the Epstein Files**\
-`The photos, which showed young women or possibly teenagers with their faces visible, were largely removed after The New York Times began notifying the Justice Department.`\
-https://nytimes.com/2026/02/01/us/nude-photos-epstein-files.html
 
