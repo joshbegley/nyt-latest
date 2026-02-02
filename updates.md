@@ -1,3 +1,15 @@
+**Games On**\
+`We preview the Winter Olympics.`\
+https://nytimes.com/2026/02/02/briefing/games-on.html
+
+**Why LeBron James should start thinking about joining next year’s Knicks**\
+`James has a lot of good options, but a final season of playing at Madison Square Garden while chasing a fifth title might be very tempting. `\
+https://nytimes.com/athletic/7014976/2026/02/02/lebron-james-knicks-lakers-nba-future/
+
+**Women's college basketball rankings: Iowa, TCU, Maryland slip after injuries**\
+`With injuries and upsets, Sabreena Merchant's top 25 saw some changes this week.`\
+https://nytimes.com/athletic/7014913/2026/02/02/womens-college-basketball-rankings-iowa-loss/
+
 **San Francisco Giants 2026 top 20 prospects: Bryce Eldridge, Josuar Gonzalez lead the way**\
 `The Giants have a median system right now, but they could easily be a top-five system in a year.`\
 https://nytimes.com/athletic/7008119/2026/02/02/sf-giants-2026-top-20-prospects-keith-law/

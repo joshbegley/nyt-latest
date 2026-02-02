@@ -1,3 +1,15 @@
+**Games On**\
+`We preview the Winter Olympics.`\
+https://nytimes.com/2026/02/02/briefing/games-on.html
+
+**Why LeBron James should start thinking about joining next year’s Knicks**\
+`James has a lot of good options, but a final season of playing at Madison Square Garden while chasing a fifth title might be very tempting. `\
+https://nytimes.com/athletic/7014976/2026/02/02/lebron-james-knicks-lakers-nba-future/
+
+**Women's college basketball rankings: Iowa, TCU, Maryland slip after injuries**\
+`With injuries and upsets, Sabreena Merchant's top 25 saw some changes this week.`\
+https://nytimes.com/athletic/7014913/2026/02/02/womens-college-basketball-rankings-iowa-loss/
+
 **San Francisco Giants 2026 top 20 prospects: Bryce Eldridge, Josuar Gonzalez lead the way**\
 `The Giants have a median system right now, but they could easily be a top-five system in a year.`\
 https://nytimes.com/athletic/7008119/2026/02/02/sf-giants-2026-top-20-prospects-keith-law/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7006105/2026/02/02/rockies-2026-top-20-prospects-ke
 **A collection of Luke Kuechly's greatest hits as he waits for Hall of Fame call**\
 `Kuechly didn't get the call in his first eligible season a year ago. The 2026 class will be announced Thursday night.`\
 https://nytimes.com/athletic/7011209/2026/02/02/luke-kuechly-hof-career-panthers/
-
-**Inside Phillies prospect Justin Crawford's outfield boot camp. His teacher: Eric Davis**\
-`Crawford returned to the Phoenix fields where he first learned baseball as a child for two weeks of drills with a three-time Gold Glover.`\
-https://nytimes.com/athletic/7011333/2026/02/02/phillies-justin-crawford-eric-davis/
-
-**Could Kawhi Leonard's All-Star fate be in Adam Silver's hands?**\
-`It's clear that the Clippers star is worthy of being on the West team this year. And it's clear LeBron James isn't.`\
-https://nytimes.com/athletic/7014860/2026/02/02/nba-all-star-kawhi-leonard-lebron-james-lakers/
-
-**Scottie Barnes is an All-Star, while Brandon Ingram is not. Raptors need both of them**\
-`Only one of the two Raptors stalwarts is headed to the All-Star Game in Inglewood, Calif., but each is essential to the other's success.`\
-https://nytimes.com/athletic/7014849/2026/02/02/all-star-scottie-barnes-brandon-ingram-raptors-nba/
 
