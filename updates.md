@@ -1,3 +1,19 @@
+**Conservative Group to Stage Alternate Halftime Show With Kid Rock**\
+`Turning Point USA, the advocacy group founded by Charlie Kirk, will present a streamed concert that will go up against Bad Bunny’s performance at the Super Bowl.`\
+https://nytimes.com/2026/02/02/arts/music/kid-rock-tpusa-halftime.html
+
+**Submit your Blues trade proposals for Jeremy Rutherford’s ‘Who says no?’ mailbag**\
+`The Blues have five players on The Athletic’s latest trade board. Send us your proposals and we'll evaluate them in an upcoming article.`\
+https://nytimes.com/athletic/7016376/2026/02/02/blues-trade-proposals-who-says-no-2026/
+
+**U.S. and Iranian Officials to Meet as Trump’s Threats Loom**\
+`President Trump’s Middle East envoy and his son-in-law were expected to meet Iran’s foreign minister in Istanbul on Friday amid tensions between the countries.`\
+https://nytimes.com/2026/02/02/world/middleeast/us-iran-meeting-trump-threats.html
+
+**Judge Again Blocks Policy Restricting Lawmakers’ Access to ICE Facilities**\
+`For a second time, Judge Jia M. Cobb found that a Trump administration policy requiring a seven-day waiting period was unlawful.`\
+https://nytimes.com/2026/02/02/us/politics/congress-ice-facilities-inspections.html
+
 **Trump Announces Initial Trade Deal With India**\
 `The agreement was short on details, but President Trump said India had promised to stop buying Russian oil and would buy more U.S. products for a reduction on tariffs.`\
 https://nytimes.com/2026/02/02/us/politics/trump-tariffs-india-trade-deal.html
