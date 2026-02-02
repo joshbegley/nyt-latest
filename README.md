@@ -1,3 +1,11 @@
+**The Pulse: An incredible sports week is here**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7014881/2026/02/02/olympics-super-bowl-week-the-pulse/
+
+**Los Angeles Dodgers 2026 top 20 prospects: Eduardo Quintero, Josue De Paula lead the way**\
+`The two-time defended World Series champions are loaded in the minors, too, with a strong mix of upside position players and pitchers.`\
+https://nytimes.com/athletic/7007474/2026/02/02/dodgers-2026-top-20-prospects-keith-law/
+
 **Epstein Victims Outraged Over Unredacted Info, and the Supreme Court Made Itself More Secretive**\
 `Plus, big firsts at the Grammy Awards.`\
 https://nytimes.com/2026/02/02/podcasts/the-headlines/epstein-victims-photos-supreme-court-secrecy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7012130/2026/02/02/robert-kraft-patriots-owner-mike
 **Makar and MacKinnon ready to bring NHL's greatest show to hockey's biggest stage**\
 `A new audience will experience the Avs stars at the Olympics. Prepare for them to be wowed: "It’s a nightmare when you play against them."`\
 https://nytimes.com/athletic/7013786/2026/02/02/cale-makar-nathan-mackinnon-avalanche-olympics/
-
-**One year after trade that rocked the NBA, Luka Dončić says Lakers in 'good spot'**\
-`Feeling confident, settled and normal a year after his shocking trade, Dončić sees things moving in the right direction for the Lakers.`\
-https://nytimes.com/athletic/7015039/2026/02/02/luka-doncic-lakers-good-spot-one-year-trade/
-
-**How does the Eagles’ offense compare to Seahawks, Patriots in Super Bowl 60?**\
-`The defending Super Bowl champions are in better shape in some areas, but not others.`\
-https://nytimes.com/athletic/7007599/2026/02/02/eagles-offense-roster-super-bowl-60-seahawks-patriots/
 

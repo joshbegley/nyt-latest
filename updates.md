@@ -1,3 +1,11 @@
+**Epstein Victims Outraged Over Unredacted Info, and the Supreme Court Made Itself More Secretive**\
+`Plus, big firsts at the Grammy Awards.`\
+https://nytimes.com/2026/02/02/podcasts/the-headlines/epstein-victims-photos-supreme-court-secrecy.html
+
+**Colorado Rockies 2026 top 20 prospects: Ethan Holliday, Charlie Condon lead the way**\
+`The Rockies have several high-upside talents and, under a new front office, may now get the development support they need to thrive.`\
+https://nytimes.com/athletic/7006105/2026/02/02/rockies-2026-top-20-prospects-keith-law/
+
 **A collection of Luke Kuechly's greatest hits as he waits for Hall of Fame call**\
 `Kuechly didn't get the call in his first eligible season a year ago. The 2026 class will be announced Thursday night.`\
 https://nytimes.com/athletic/7011209/2026/02/02/luke-kuechly-hof-career-panthers/
