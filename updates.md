@@ -1,3 +1,7 @@
+**Dusty May calls out 'very dangerous' plays from win at Michigan State**\
+`Both coaches had gripes with the officiating in the Wolverines and Spartans' first meeting of the year.`\
+https://nytimes.com/athletic/7015997/2026/02/02/dusty-may-officiating-michigan-msu-rivalry/
+
 **Rams announce extensions for head coach Sean McVay, GM Les Snead**\
 `The Rams have made the playoffs seven times in nine years under McVay and Snead, including two Super Bowl appearances. `\
 https://nytimes.com/athletic/7016007/2026/02/02/rams-sean-mcvay-les-snead-contract-extensions/

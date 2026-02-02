@@ -1,3 +1,7 @@
+**A Knight of the Seven Kingdoms**\
+``\
+https://nytimes.com/spotlight/a-knight-of-the-seven-kingdoms
+
 **Dusty May calls out 'very dangerous' plays from win at Michigan State**\
 `Both coaches had gripes with the officiating in the Wolverines and Spartans' first meeting of the year.`\
 https://nytimes.com/athletic/7015997/2026/02/02/dusty-may-officiating-michigan-msu-rivalry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7015959/2026/02/02/senators-vs-penguins-stream-how-
 **How to watch Sabres vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7015955/2026/02/02/sabres-vs-panthers-stream-how-to-watch-feb-2/
-
-**How to watch Islanders vs. Capitals: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Washington Capitals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7015952/2026/02/02/islanders-vs-capitals-stream-how-to-watch-feb-2/
 

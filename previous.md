@@ -1,3 +1,7 @@
+**Dusty May calls out 'very dangerous' plays from win at Michigan State**\
+`Both coaches had gripes with the officiating in the Wolverines and Spartans' first meeting of the year.`\
+https://nytimes.com/athletic/7015997/2026/02/02/dusty-may-officiating-michigan-msu-rivalry/
+
 **Rams announce extensions for head coach Sean McVay, GM Les Snead**\
 `The Rams have made the playoffs seven times in nine years under McVay and Snead, including two Super Bowl appearances. `\
 https://nytimes.com/athletic/7016007/2026/02/02/rams-sean-mcvay-les-snead-contract-extensions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7015955/2026/02/02/sabres-vs-panthers-stream-how-to
 **How to watch Islanders vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7015952/2026/02/02/islanders-vs-capitals-stream-how-to-watch-feb-2/
-
-**It’s Cold. Punxsutawney Phil Did Not Bring Good News for the U.S.**\
-`The supposedly meteorologically gifted rodent saw his shadow, suggesting several more weeks of winter. (Forecasters agreed, at least for this week.)`\
-https://nytimes.com/2026/02/02/us/groundhog-day-results.html
 
