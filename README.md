@@ -1,3 +1,7 @@
+**Judge Bars Further Changes to George Washington’s Philadelphia House**\
+`The Interior Department removed placards and videos about Washington’s involvement with slavery. A new court ruling blocks further changes, for now.`\
+https://nytimes.com/2026/02/02/us/politics/judge-george-washington-slavery.html
+
 **Dodgers' Edwin Díaz to pitch for Puerto Rico in World Baseball Classic, serve as team closer**\
 `Díaz has been confirmed as a participant days after Team Puerto Rico learned several of their stars were denied insurance coverage to play.`\
 https://nytimes.com/athletic/7016231/2026/02/02/dodgers-edwin-diaz-wbc-participation/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/02/us/politics/congress-ice-facilities-inspections.h
 **Trump Announces Initial Trade Deal With India**\
 `The agreement was short on details, but President Trump said India had promised to stop buying Russian oil and would buy more U.S. products for a reduction on tariffs.`\
 https://nytimes.com/2026/02/02/us/politics/trump-tariffs-india-trade-deal.html
-
-**Ohio Church Swells With Support for Haitians as Deportation Threat Looms**\
-`In Springfield, which was thrust into the spotlight by President Trump during the 2024 campaign, hundreds of people turned out to back Haitians living in the city.`\
-https://nytimes.com/2026/02/02/us/springfield-ohio-haitians-deportation-threat.html
 
