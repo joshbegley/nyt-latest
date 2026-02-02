@@ -1,3 +1,7 @@
+**Oscar-Nominated Screenwriter Arrested in Iran for Criticizing Regime**\
+`Mehdi Mahmoudian, co-writer of “It Was Just an Accident,” was one of several people detained after signing a letter objecting to the crackdown on protests.`\
+https://nytimes.com/2026/02/01/world/middleeast/iran-mehdi-mahmoudian-arrest.html
+
 **Justin Bieber breaks his public performance pause at the Grammys.**\
 `By Shivani Gonzalez`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026/justin-bieber-grammys-performance
