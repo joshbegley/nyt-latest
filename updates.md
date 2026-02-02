@@ -1,3 +1,16 @@
+**It’s Cold. Punxsutawney Phil Did Not Bring Good News for the U.S.**\
+`The supposedly meteorologically gifted rodent saw his shadow, suggesting several more weeks of winter. (Forecasters agreed, at least for this week.)`\
+https://nytimes.com/2026/02/02/us/groundhog-day-results.html
+
+**Trump Had Unusual Call With F.B.I. Agents After Election Center Search**\
+`The phone conversation was arranged by the director of national intelligence, Tulsi Gabbard, who met with the agents a day after the search for reasons that remain unclear.`\
+https://nytimes.com/2026/02/02/us/politics/trump-fbi-phone-call-georgia-gabbard.html
+
+**The Bounce: The Luka trade, one year later. Plus, All-Star snubs!**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7015691/2026/02/02/luka-doncic-trade-all-star-snubs-knicksthe-bounce/
+
 **The Bounce: The Luka trade, one year later. Plus, All-Star snubs!**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.
 `\

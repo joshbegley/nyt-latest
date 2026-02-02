@@ -1,3 +1,11 @@
+**It’s Cold. Punxsutawney Phil Did Not Bring Good News for the U.S.**\
+`The supposedly meteorologically gifted rodent saw his shadow, suggesting several more weeks of winter. (Forecasters agreed, at least for this week.)`\
+https://nytimes.com/2026/02/02/us/groundhog-day-results.html
+
+**Trump Had Unusual Call With F.B.I. Agents After Election Center Search**\
+`The phone conversation was arranged by the director of national intelligence, Tulsi Gabbard, who met with the agents a day after the search for reasons that remain unclear.`\
+https://nytimes.com/2026/02/02/us/politics/trump-fbi-phone-call-georgia-gabbard.html
+
 **How to watch Auburn vs. Ole Miss women's basketball: Time, TV, streaming**\
 `Find out how to watch the Auburn Tigers play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7015925/2026/02/02/auburn-vs-ole-miss-stream-how-to-watch-feb-2/
@@ -30,12 +38,4 @@ https://nytimes.com/2026/02/02/us/ohio-man-kills-uber-driver-sentenced.html
 **Punchy, Spicy Meals to Offset the Winter Blahs**\
 `Spicy turkey stir-fry, sheet-pan chicken tikka thighs and vegan mapo tofu bring attitude and oomph to even the coldest days.`\
 https://nytimes.com/2026/02/02/dining/punchy-spicy-meals-to-offset-the-winter-blahs.html
-
-**We Were Top Homeland Security Lawyers. You Can’t Wish Away the Fourth Amendment.**\
-`Forcibly entering homes with only administrative warrants is unconstitutional.`\
-https://nytimes.com/2026/02/02/opinion/ice-dhs-warrants-minnesota.html
-
-**Do You Know Where in the Country These Books Are Set?**\
-`Test your knowledge of both popular thrillers and U.S. geography with this short quiz.`\
-https://nytimes.com/interactive/2026/02/02/books/review/small-town-books.html
 
