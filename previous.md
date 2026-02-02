@@ -1,3 +1,7 @@
+**Costa Rica Elects Right-Wing Candidate Amid Fears Over Crime**\
+`Laura Fernández’s victory was driven by a crisis in which Costa Rica’s reputation for peace has been tarred by record-breaking violence.`\
+https://nytimes.com/2026/02/01/world/americas/costa-rica-election-fernandez.html
+
 **Bad Bunny Caps a Huge Year With the Grammys’ Top Album Prize**\
 `One week before his Super Bowl halftime set, the Puerto Rican superstar won album of the year, defeating Lady Gaga, Kendrick Lamar and others.`\
 https://nytimes.com/2026/02/01/arts/music/bad-bunny-grammys-album-of-the-year.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010682868/jeffrey-epstein-files-trump-musk.ht
 **‘A Knight of the Seven Kingdoms’ Season 1, Episode 3 Recap: Waking the Dragon**\
 `Dunk makes a powerful new enemy. Egg makes his true self known.`\
 https://nytimes.com/2026/02/01/arts/television/a-knight-of-the-seven-kingdoms-recap-episode-3.html
-
-**The Move Behind Bieber’s Boxers**\
-`The singer, who was nominated for four Grammys, performed at the award show in nothing but sparkly lavender shorts and socks.`\
-https://nytimes.com/2026/02/01/style/justin-bieber-boxers-grammys.html
 

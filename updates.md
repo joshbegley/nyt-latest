@@ -1,3 +1,7 @@
+**Costa Rica Elects Right-Wing Candidate Amid Fears Over Crime**\
+`Laura Fernández’s victory was driven by a crisis in which Costa Rica’s reputation for peace has been tarred by record-breaking violence.`\
+https://nytimes.com/2026/02/01/world/americas/costa-rica-election-fernandez.html
+
 **Bad Bunny Caps a Huge Year With the Grammys’ Top Album Prize**\
 `One week before his Super Bowl halftime set, the Puerto Rican superstar won album of the year, defeating Lady Gaga, Kendrick Lamar and others.`\
 https://nytimes.com/2026/02/01/arts/music/bad-bunny-grammys-album-of-the-year.html
