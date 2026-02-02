@@ -1,3 +1,15 @@
+**Palace are set to break their transfer record twice this window — but they still lack stardust**\
+`Oliver Glasner's team is failing to win even when dominating, a result of losing Michael Olise and Eberechi Eze`\
+https://nytimes.com/athletic/7003881/2026/02/02/crystal-palace-transfer-record-johnson-glasner/
+
+**Pep's Spurs curse? Three issues on Sunday have haunted them many times this season**\
+`Worryingly for City, it is not just Spurs who have rattled them recently. Sam Lee explores three areas where Guardiola's side are struggling`\
+https://nytimes.com/athletic/7014215/2026/02/02/city-tottenham-curse-guardiola/
+
+**LeBron James' uncertain NBA future means he might not play in Madison Square Garden again**\
+`James is playing at a high level and playing a lot. But he won't commit to playing next season.`\
+https://nytimes.com/athletic/7014910/2026/02/02/lebron-james-lakers-knicks-madison-square-garden/
+
 **Pascal Gross is delivering – but Brighton need other attackers to spark into life**\
 `Danny Welbeck has stopped scoring, Kaoru Mitoma is struggling and Georginio Rutter is failing to reach last season's heights`\
 https://nytimes.com/athletic/7012103/2026/02/02/brighton-everton-pascal-gross-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7014148/2026/02/02/guardiola-solanke-bruno-fernande
 **Ian Holloway and a managerial rant for the ages: 'Sort your lives out every single stinking one of you'**\
 `The Swindon manager vented for four minutes to a local radio station after being asked what he thought of a game his side won 3-1`\
 https://nytimes.com/athletic/7013438/2026/02/02/ian-holloway-rant-swindon/
-
-**The anatomy of a transfer: Answering readers' questions about how the business works**\
-`We asked readers to send in questions they would like answered about how transfers work - and we put them to a range of experts and insiders`\
-https://nytimes.com/athletic/7001671/2026/02/02/transfers-questions-answered/
-
-**How United rediscovered self-belief under Carrick: Midfield balance, set pieces and cynicism**\
-`If Fulham was the 'real test' of Carrick's interim period, then his team have got through with a nervy passing grade.`\
-https://nytimes.com/athletic/7001280/2026/02/02/michael-carrick-united-rejuvenated/
-
-**With Merino out for Arsenal, what have they lost and do they need a replacement?**\
-`The Spaniard will be out for some time, and Arteta should have enough cover to cope. What what does Merino offer?`\
-https://nytimes.com/athletic/7013902/2026/02/02/mikel-merino-arsenal-injury-transfer/
 
