@@ -1,3 +1,11 @@
+**USMNT's Pepi to remain at PSV in January despite Fulham interest**\
+`Fulham are expected to resume their interest in Pepi in the summer window.`\
+https://nytimes.com/athletic/7002088/2026/02/02/ricardo-pepi-psv-fulham-transfer/
+
+**All 38 NASCAR Cup Series races in 2026, ranked by anticipation**\
+`A brand-new race takes the No. 1 spot on our annual list, with the No. 2 race jumping up from No. 27 a year ago.`\
+https://nytimes.com/athletic/7013655/2026/02/02/nascar-cup-series-races-ranking-2026/
+
 **Ryan Cochran-Siegle was millimeters from never skiing again. Now he's ready for another Olympics**\
 `His family is skiing royalty, but it took time for Cochran-Siegle to learn to deal with his doubts and trust himself.`\
 https://nytimes.com/athletic/6961911/2026/02/02/ryan-cochran-siegle-olympics-alpine-skiing/
