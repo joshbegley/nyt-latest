@@ -1,3 +1,11 @@
+**The Move Behind Bieber’s Boxers**\
+`The singer, who was nominated for four Grammys, performed at the award show in nothing but sparkly lavender shorts and socks.`\
+https://nytimes.com/2026/02/01/style/justin-bieber-boxers-grammys.html
+
+**The Grammys Take Naked to Another Level**\
+`Chappell Roan’s dress draped a barely there opaque skirt from nipple piercings, and that wasn’t the only way celebrities bared their skin.`\
+https://nytimes.com/2026/02/01/style/grammys-chappell-roan-naked-dress.html
+
 **Billie Eilish Wins Her Third Song of the Year Grammy**\
 `“Wildflower” beat tracks by Bad Bunny, Lady Gaga and Doechii.`\
 https://nytimes.com/2026/02/01/arts/music/billie-eilish-song-of-the-year-grammy.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/01/arts/grammys-2026/justin-bieber-grammys-perf
 **How Weight Lifting Took Over America**\
 `Getting strong has never been more popular. How did we get here?`\
 https://nytimes.com/video/well/move/100000010677548/how-weight-lifting-took-over-america.html
-
-**Olivia Dean Caps a Rocket-Ship Year With a Best New Artist Grammy**\
-`The “Man I Need” singer defeated a fellow British vocalist, Lola Young, as well as Leon Thomas, Addison Rae and others.`\
-https://nytimes.com/2026/02/01/arts/music/olivia-dean-best-new-artist-grammys.html
-
-**Goalie fight, again! Watch Vasilevskiy and Swayman throw down at center ice**\
-`The two goalies duked it out at center ice during the NHL Stadium Series at Tampa's Raymond James Stadium.`\
-https://nytimes.com/athletic/7014696/2026/02/01/nhl-goalie-fight-vasilevskiy-swayman-stadium-series/
 
