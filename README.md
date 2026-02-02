@@ -1,3 +1,7 @@
+**With six nods, Leon Thomas is ready for a Grammy spotlight.**\
+`By Niela Orr`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/with-six-nods-leon-thomas-is-ready-for-a-grammy-spotlight
+
 **Kawhi Leonard, Alperen Şengün among 10 biggest 'snubs' for 2026 All-Star Game**\
 `Simply put, Leonard has been one of the best players in the league on a per-minute basis. Despite that, he was snubbed as an All-Star.`\
 https://nytimes.com/athletic/7014513/2026/02/01/nba-all-star-top-10-snubs-kawhi-leonard-sengun-james-harden-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/01/arts/grammys-2026/grammys-early-winners
 **5-Year-Old and His Father, Detained by Agents, Are Released From Custody**\
 `Liam Conejo Ramos, the 5-year-old who was detained with his father by federal agents, is back home in Minnesota with his father. A federal judge demanded their release from an immigration detention center in Texas, where they were being held.`\
 https://nytimes.com/video/us/100000010683054/ramos-detained-by-agents-released.html
-
-**No. 2 UCLA blasts No. 8 Iowa for 15th straight win, stays unbeaten in Big Ten**\
-`Five Bruins score in double figures, led by Angela Dugalić's 22 points. `\
-https://nytimes.com/athletic/7014388/2026/02/01/ucla-iowa-big-ten-women/
 
