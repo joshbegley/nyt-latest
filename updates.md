@@ -1,3 +1,11 @@
+**Patriots' and Seahawks' architects are connected by the influence of one man: Ron Wolf**\
+`Seahawks GM John Schneider got a football education from Wolf in Green Bay, just like Wolf's son Eliot, the Patriots' de facto GM.`\
+https://nytimes.com/athletic/7013618/2026/02/02/super-bowl-john-schneider-eliot-ron-wolf/
+
+**‘Been an issue all year’: Completely, utterly and totally undisciplined**\
+`Bruins unravel as Lightning claw back from 5-1 deficit to take shootout win in outdoor game.`\
+https://nytimes.com/athletic/7014941/2026/02/02/bruins-lightning-outdoors-utterly-undisciplined/
+
 **Best and Worst Moments From the 2026 Grammys**\
 `Addison Rae tapped into 2000s pop energy, Justin Bieber stripped things down and Bad Bunny got choked up at the 68th annual awards.`\
 https://nytimes.com/2026/02/02/arts/music/grammys-2026-best-worst-moments.html
