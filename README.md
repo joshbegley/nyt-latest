@@ -1,3 +1,7 @@
+**AFC: Which deals could happen on deadline day? Plus: Solanke scorpion kick stings City**\
+`Today in TAFC: We have all the updates on deadline day, a round-up of the weekend action, and a touching tribute to PAOK fans.`\
+https://nytimes.com/athletic/7015196/2026/02/02/transfer-deadline-day-solanke-scorpion-kick/
+
 **Erfan Soltani, Iranian Protester Who Reportedly Faced a Death Sentence, Is Released on Bail**\
 `Mr. Soltani, 26, was arrested last month as Iran brutally repressed anti-government demonstrations.`\
 https://nytimes.com/2026/02/02/world/middleeast/iran-protester-erfan-soltani.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013834/2026/02/02/maple-leafs-pelley-treliving-ber
 **Sabres notes: Is Owen Power quieting his critics? Plus ticket thoughts and more**\
 `Plus, Beck Malenstyn's stat of note, an injury situation and the schedule ahead.`\
 https://nytimes.com/athletic/7014781/2026/02/02/sabres-notes-owen-power-critics-tickets/
-
-**Canadiens weekly notebook: Cole Caufield and Mike Matheson’s parallel journeys**\
-`Also this week, Bruce Cassidy dishes on Nick Suzuki's potential role in Milan, and the kinship between Bowen Byram and Alex Newhook.`\
-https://nytimes.com/athletic/7014736/2026/02/02/canadiens-caufield-matheson-two-way-olympics-suzuki/
 
