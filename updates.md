@@ -1,3 +1,15 @@
+**Trump Says Kennedy Center Will Close for 2-Year Reconstruction Project**\
+`The president’s announcement came after the center has been rocked by cancellations and boycotts by performers, contributors and audience members.`\
+https://nytimes.com/2026/02/01/us/politics/trump-kennedy-center.html
+
+**The Government Published Dozens of Nude Photos in the Epstein Files**\
+`The photos, which showed young women or possibly teenagers with their faces visible, were largely removed after The New York Times began notifying the Justice Department.`\
+https://nytimes.com/2026/02/01/us/nude-photos-epstein-files.html
+
+**LeBron James makes NBA-record 22nd All-Star Game; Kevin Durant, Jamal Murray among reserves**\
+`Jalen Duren, Norman Powell, Chet Holmgren and Deni Avdija join Murray as first-time All-Stars.`\
+https://nytimes.com/athletic/7014383/2026/02/01/2026-nba-all-star-reserves-lebron/
+
 **Kendrick Lamar, ‘KPop Demon Hunters’ and Leon Thomas lead early Grammy wins.**\
 `By Ben Sisario`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026/grammys-early-winners
