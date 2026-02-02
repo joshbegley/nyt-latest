@@ -1,3 +1,7 @@
+**Disappearance of ‘Today’ Host’s Mother Is a Crime, Investigators Say**\
+`Savannah Guthrie’s mother, Nancy Guthrie, 84, was last seen on Saturday near her home in Tucson, Ariz. The Pima County sheriff said on Monday that “she did not leave on her own.”`\
+https://nytimes.com/video/us/100000010684257/savannah-guthrie-mother-missing.html
+
 **Measles Hits ICE Family Detention Center in Texas**\
 `The Department of Homeland Security has imposed a quarantine on a family detention center in Dilley, Texas, after two detainees contracted the disease.`\
 https://nytimes.com/2026/02/02/us/politics/ice-measles-texas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7016572/2026/02/02/canucks-vs-mammoth-stream-how-to
 **How to watch Timberwolves vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the Minnesota Timberwolves play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7016564/2026/02/02/timberwolves-vs-grizzlies-stream-how-to-watch-feb-2/
-
-**How to watch Jets vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7016560/2026/02/02/jets-vs-stars-stream-how-to-watch-feb-2/
 
