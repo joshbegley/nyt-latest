@@ -1,3 +1,7 @@
+**10-Minute Challenge: A Painting of Time**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2026/02/01/upshot/10-minute-challenge-biernoff.html
+
 **NFL hiring cycle: Despite 10 vacancies, no Black head coaches hired**\
 `After the NFL had six Black coaches in 2024, the league will enter the 2026 season with three.`\
 https://nytimes.com/athletic/7014495/2026/02/01/nfl-head-coaching-hires-black-coaches/
