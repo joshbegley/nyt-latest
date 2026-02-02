@@ -1,3 +1,7 @@
+**Here’s What to Know About the Partial Government Shutdown**\
+`A bipartisan spending deal couldn’t clear Congress in time to prevent a lapse in federal funding for some departments. The House must pass it to fully reopen the government.`\
+https://nytimes.com/2026/02/02/us/politics/government-shutdown-what-to-know.html
+
 **New Clinical Trial Offers Hope for Resistant Ovarian Cancer**\
 `A new treatment approach aims to help patients whose cancer has stopped responding to therapy`\
 https://nytimes.com/paidpost/university-of-colorado-anschutz-cancer-center/university-of-colorado-anschutz-medical-campus-ad-post/new-clinical-trial-offers-hope-for-resistant-ovarian-cancer.html

@@ -1,3 +1,7 @@
+**Here’s What to Know About the Partial Government Shutdown**\
+`A bipartisan spending deal couldn’t clear Congress in time to prevent a lapse in federal funding for some departments. The House must pass it to fully reopen the government.`\
+https://nytimes.com/2026/02/02/us/politics/government-shutdown-what-to-know.html
+
 **New Clinical Trial Offers Hope for Resistant Ovarian Cancer**\
 `A new treatment approach aims to help patients whose cancer has stopped responding to therapy`\
 https://nytimes.com/paidpost/university-of-colorado-anschutz-cancer-center/university-of-colorado-anschutz-medical-campus-ad-post/new-clinical-trial-offers-hope-for-resistant-ovarian-cancer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7014485/2026/02/02/dodgers-mlb-mookie-betts-tanner-
 **What to Know About the Kennedy Center and Trump’s Campaign to Remake It**\
 `The center opened in 1971 and is one of America’s top cultural institutions. President Trump says he plans to transform the center to create a “new and spectacular” entertainment complex.`\
 https://nytimes.com/2026/02/02/us/politics/kennedy-center-trump-construction.html
-
-**The Major Business Names in the Epstein Files**\
-`Documents referencing prominent executives like Elon Musk, Howard Lutnick and Bill Gates underscored the wide web of boldfaced names tied to Jeffrey Epstein.`\
-https://nytimes.com/2026/02/02/business/dealbook/epstein-files-business.html
 
