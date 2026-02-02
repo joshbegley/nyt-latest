@@ -1,3 +1,7 @@
+**AFC: Which deals could happen on deadline day? Plus: Solanke scorpion kick stings City**\
+`Today in TAFC: We have all the updates on deadline day, a round-up of the weekend action, and a touching tribute to PAOK fans.`\
+https://nytimes.com/athletic/7015196/2026/02/02/transfer-deadline-day-solanke-scorpion-kick/
+
 **Erfan Soltani, Iranian Protester Who Reportedly Faced a Death Sentence, Is Released on Bail**\
 `Mr. Soltani, 26, was arrested last month as Iran brutally repressed anti-government demonstrations.`\
 https://nytimes.com/2026/02/02/world/middleeast/iran-protester-erfan-soltani.html
