@@ -1,3 +1,7 @@
+**Trump Drops Demand for Cash From Harvard After Stiff Resistance**\
+`The Trump administration has lowered the bar for a deal with the university, backtracking on its insistence on a $200 million payment to the government, The New York Times has learned.`\
+https://nytimes.com/2026/02/02/us/politics/trump-harvard-payment.html
+
 **Banfield Found Guilty in Virginia Double Murder Trial**\
 `Prosecutors said Brendan Banfield carried out an elaborate scheme using a fetish website in 2023 to kill his wife and another man.`\
 https://nytimes.com/2026/02/02/us/brendan-banfield-guilty-double-murder.html

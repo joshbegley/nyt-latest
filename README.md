@@ -1,3 +1,7 @@
+**Hecklers Roast My $800 Stroller Wagon. After 650 Miles, I Still Love It.**\
+`After pushing through snow, sand, and mud, my family of four has come to view the luxury stroller wagon as a necessity.`\
+https://nytimes.com/wirecutter/blog/veer-cruiser-xl-stroller-wagon-review/
+
 **Trump Drops Demand for Cash From Harvard After Stiff Resistance**\
 `The Trump administration has lowered the bar for a deal with the university, backtracking on its insistence on a $200 million payment to the government, The New York Times has learned.`\
 https://nytimes.com/2026/02/02/us/politics/trump-harvard-payment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/02/us/politics/federal-workers-furloughed-government
 **N.I.H. Worker Who Criticized Trump Seeks Whistle-Blower Protection**\
 `Jenna Norton, a National Institutes of Health employee, has been an outspoken critic of the administration’s research cuts and has been on paid leave.`\
 https://nytimes.com/2026/02/02/us/politics/nih-worker-trump-whistle-blower-protection.html
-
-**Why Ricardo Pepi's Fulham transfer collapse can help his World Cup outlook**\
-`Pepi's move to the Premier League is off, but it's a situation that could work into the U.S. striker's favor with regard to the World Cup`\
-https://nytimes.com/athletic/7016567/2026/02/02/ricardo-pepi-fulham-transfer-psv-usmnt-world-cup/
 
