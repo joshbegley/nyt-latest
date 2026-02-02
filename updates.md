@@ -1,3 +1,15 @@
+**Bad Bunny Caps a Huge Year With the Grammys’ Top Album Prize**\
+`One week before his Super Bowl halftime set, the Puerto Rican superstar won album of the year, defeating Lady Gaga, Kendrick Lamar and others.`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/bad-bunny-caps-a-huge-year-with-the-grammys-top-album-prize
+
+**Cher returns to the Grammys stage.**\
+`(No description)`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/cher-returns-to-the-grammys-stage
+
+**Why is the January transfer window closing in February, at 7pm GMT?**\
+`The Premier League, Bundesliga, Ligue 1 and Serie A transfer windows all close at the same time on February 2 — 7pm GMT, 8pm CET, 2pm ET.`\
+https://nytimes.com/athletic/7006532/2026/02/01/january-transfer-window-closing-time-why-when/
+
 **17 Unforgettable Looks at the Grammys**\
 `Feathered gowns, sequined suits, freed nipples and more.`\
 https://nytimes.com/2026/02/01/style/grammys-red-carpet-2026.html
