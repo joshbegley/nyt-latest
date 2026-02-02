@@ -1,3 +1,19 @@
+**ICE has no planned immigration operations at Super Bowl, host committee says**\
+`The federal security presence at Super Bowl 60 will be comparable to past Super Bowls, according to the game's host committee.`\
+https://nytimes.com/athletic/7016806/2026/02/02/super-bowl-ice-immigration-operations/
+
+**Giannis to the Bulls? Why you shouldn't take those DraftKings odds too seriously**\
+`While DraftKings lists the Bulls as having the best odds to land Giannis Antetokounmpo, it's probably not because anything has changed.`\
+https://nytimes.com/athletic/7016935/2026/02/02/giannis-antetokounmpo-betting-odds-chicago-bulls/
+
+**Northern Command Tells N.C., Alaska Troops to Stand Down on Possible Minnesota Deployment**\
+`More than 1,500 active-duty troops had been on standby to deploy to Minnesota, but were quietly taken off heightened alert over the weekend.`\
+https://nytimes.com/2026/02/02/us/politics/alaska-north-carolina-troops-minnesota-deployment.html
+
+**NFL to 'look into' Giants co-owner Steve Tisch's connection to Epstein files**\
+`Epstein provided Tisch with scouting reports on women, according to emails the Department of Justice released Friday.`\
+https://nytimes.com/athletic/7016872/2026/02/02/nfl-steve-tisch-epstein-emails/
+
 **Dan Bongino, Former Deputy F.B.I. Director, Returns to Podcasting**\
 `Mr. Bongino, who spent nine months at the agency, spoke freely about the Epstein files and more as he returned to the land of “sound bites.”`\
 https://nytimes.com/2026/02/02/us/politics/dan-bongino-podcast-return.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7016833/2026/02/02/titans-gus-bradley-defensive-coo
 **Trump Talked to Agents Investigating Election Claims**\
 `Also, the Supreme Court secretly made itself even more secretive. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2026/02/02/briefing/trump-fbi-agents-rafah-crossing-gaza.html
-
-**Liverpool sign Jacquet in £55m deal from Rennes**\
-`The 20-year-old has penned a contract until 2031 with the option of a further year.`\
-https://nytimes.com/athletic/7015491/2026/02/02/liverpool-jeremy-jacquet-transfer-confirmed/
-
-**Angel Restoration Resembles Italy’s Prime Minister**\
-`The face of an angel in a restored painting inside a chapel in Italy has many questioning its striking resemblance to Italy’s prime minister, Giorgia Meloni.`\
-https://nytimes.com/video/world/europe/100000010684551/rome-angel-restoration-meloni.html
-
-**Trump, in an Escalation, Calls for Republicans to ‘Nationalize’ Elections**\
-`The comments, made on a conservative podcast, follow a string of moves from his administration to try to exert more control over American elections.`\
-https://nytimes.com/2026/02/02/us/politics/trump-nationalize-elections.html
-
-**Hecklers Roast My $800 Stroller Wagon. After 650 Miles, I Still Love It.**\
-`After pushing through snow, sand, and mud, my family of four has come to view the luxury stroller wagon as a necessity.`\
-https://nytimes.com/wirecutter/blog/veer-cruiser-xl-stroller-wagon-review/
 
