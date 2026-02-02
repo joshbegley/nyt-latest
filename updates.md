@@ -1,3 +1,11 @@
+**The Move Behind Bieber’s Boxers**\
+`The singer, who was nominated for four Grammys, performed at the award show in nothing but sparkly lavender shorts and socks.`\
+https://nytimes.com/2026/02/01/style/justin-bieber-boxers-grammys.html
+
+**The Grammys Take Naked to Another Level**\
+`Chappell Roan’s dress draped a barely there opaque skirt from nipple piercings, and that wasn’t the only way celebrities bared their skin.`\
+https://nytimes.com/2026/02/01/style/grammys-chappell-roan-naked-dress.html
+
 **Billie Eilish Wins Her Third Song of the Year Grammy**\
 `“Wildflower” beat tracks by Bad Bunny, Lady Gaga and Doechii.`\
 https://nytimes.com/2026/02/01/arts/music/billie-eilish-song-of-the-year-grammy.html

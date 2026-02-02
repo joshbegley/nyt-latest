@@ -1,3 +1,7 @@
+**‘A Knight of the Seven Kingdoms’ Season 1, Episode 3 Recap: Waking the Dragon**\
+`Dunk makes a powerful new enemy. Egg makes his true self known.`\
+https://nytimes.com/2026/02/01/arts/television/a-knight-of-the-seven-kingdoms-recap-episode-3.html
+
 **The Move Behind Bieber’s Boxers**\
 `The singer, who was nominated for four Grammys, performed at the award show in nothing but sparkly lavender shorts and socks.`\
 https://nytimes.com/2026/02/01/style/justin-bieber-boxers-grammys.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/01/world/middleeast/iran-mehdi-mahmoudian-arrest.htm
 **Justin Bieber breaks his public performance pause at the Grammys.**\
 `By Shivani Gonzalez`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026/justin-bieber-grammys-performance
-
-**How Weight Lifting Took Over America**\
-`Getting strong has never been more popular. How did we get here?`\
-https://nytimes.com/video/well/move/100000010677548/how-weight-lifting-took-over-america.html
 
