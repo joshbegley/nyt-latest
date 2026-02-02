@@ -1,3 +1,7 @@
+**Palace have bid rejected for Club Brugge centre-back Ordonez**\
+`Ordonez, 21, signed a new contract with the Belgian club in September, extending his deal until 2029.`\
+https://nytimes.com/athletic/7015128/2026/02/02/crystal-palace-joel-ordonez-bid-transfer/
+
 **Charlie Davies relives his experience of a last-minute transfer**\
 `The Athletic's columnist relives his experience of an unexpected deadline-day transfer toward the end of his career`\
 https://nytimes.com/athletic/7011669/2026/02/02/charlie-davies-transfer-deadline-day-move/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7009782/2026/02/02/transfer-deadline-day-latest-tra
 **Grammys Instant Reactions! Bad Bunny Owns the Night**\
 `Popcast breaks down the show’s major moments in a live reaction episode immediately following the ceremony.`\
 https://nytimes.com/2026/02/02/arts/music/grammys-2026-reactions-popcast.html
-
-**Word of the Day: accede**\
-`This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/02/02/learning/word-of-the-day-accede.html
 
