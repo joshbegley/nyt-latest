@@ -1,40 +1,40 @@
-**Disney’s Profit Wilts, Pulled Down by Movies and TV**\
-`Per-share quarterly profit declined 7 percent from a year earlier despite revenue growth from the company’s streaming and cruise businesses.`\
-https://nytimes.com/2026/02/02/business/disney-profit-wilts-movies-tv.html
+**Erfan Soltani, Iranian Protester Who Reportedly Faced a Death Sentence, Is Released on Bail**\
+`Mr. Soltani, 26, was arrested last month as Iran brutally repressed anti-government demonstrations.`\
+https://nytimes.com/2026/02/02/world/middleeast/iran-protester-erfan-soltani.html
 
-**Games On**\
-`We preview the Winter Olympics.`\
-https://nytimes.com/2026/02/02/briefing/games-on.html
+**Mother of ‘Today’ Anchor Savannah Guthrie Is Missing, Authorities Say**\
+`Nancy Guthrie, 84, was last seen on Saturday night near her home in Tucson, Ariz., the authorities said.`\
+https://nytimes.com/2026/02/02/us/savannah-guthrie-mother-missing.html
 
-**Why LeBron James should start thinking about joining next year’s Knicks**\
-`James has a lot of good options, but a final season of playing at Madison Square Garden while chasing a fifth title might be very tempting. `\
-https://nytimes.com/athletic/7014976/2026/02/02/lebron-james-knicks-lakers-nba-future/
+**TGL Match 7 preview: For Jupiter Links GC, it's Groundhog Day in the SoFi Center**\
+`Undefeated Atlanta Drive GC are the heavy favorites going into Monday's Match 7 against winless Jupiter Links GC. `\
+https://nytimes.com/athletic/7014158/2026/02/02/tgl-match-7-preview-atlanta-drive-jupiter-links-odds/
 
-**Women's college basketball rankings: Iowa, TCU, Maryland slip after injuries**\
-`With injuries and upsets, Sabreena Merchant's top 25 saw some changes this week.`\
-https://nytimes.com/athletic/7014913/2026/02/02/womens-college-basketball-rankings-iowa-loss/
+**49ers macro minute: Mac Jones and Brock Purdy split the season. Who came out on top?**\
+`Christian McCaffrey went over 1,000 snaps for the third time in his career, while Upton Stout led the 49ers' rookies in several categories.`\
+https://nytimes.com/athletic/7002424/2026/02/02/49ers-roster-review-brock-purdy-mac-jones/
 
-**San Francisco Giants 2026 top 20 prospects: Bryce Eldridge, Josuar Gonzalez lead the way**\
-`The Giants have a median system right now, but they could easily be a top-five system in a year.`\
-https://nytimes.com/athletic/7008119/2026/02/02/sf-giants-2026-top-20-prospects-keith-law/
+**Blackhawks trade board 1.0: Which pending UFAs could be drawing interest?**\
+`The Blackhawks are unlikely to sell off any major assets, but five pending UFAs could earn interest around the league.`\
+https://nytimes.com/athletic/7014108/2026/02/02/blackhawks-trade-board-mikheyev-murphy-grzelcyk-dickinson/
 
-**San Diego Padres 2026 top 20 prospects: Ethan Salas, Kruz Schoolcraft lead the way**\
-`After trading so many prospects to help the big-league team, the Padres' system is predictably short on top talent at the moment.`\
-https://nytimes.com/athletic/7007692/2026/02/02/padres-2026-top-20-prospects-keith-law/
+**What I'm hearing about the Penguins: Bryan Rust suspension, Marc-André Fleury return**\
+`The Penguins are quietly seething about Bryan Rust's three-game suspension. `\
+https://nytimes.com/athletic/7014114/2026/02/02/penguins-bryan-rust-suspension-marc-andre-fleury/
 
-**The Pulse: An incredible sports week is here**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7014881/2026/02/02/olympics-super-bowl-week-the-pulse/
+**Inside the goalie fight that changed a Lightning-Bruins outdoor game for the ages**\
+`When the Lightning's Vasilevskiy and Bruins' Swayman dropped the gloves, Tampa Bay woke up and turned the game into a classic.`\
+https://nytimes.com/athletic/7014937/2026/02/02/bruins-lightning-goalie-fight-outdoor-game/
 
-**Los Angeles Dodgers 2026 top 20 prospects: Eduardo Quintero, Josue De Paula lead the way**\
-`The two-time defended World Series champions are loaded in the minors, too, with a strong mix of upside position players and pitchers.`\
-https://nytimes.com/athletic/7007474/2026/02/02/dodgers-2026-top-20-prospects-keith-law/
+**Leafs' leadership structure isn't working. What now? Monday Morning Leafs Report**\
+`Plus, thoughts on every Leafs player this season with two games left before the Olympic break.`\
+https://nytimes.com/athletic/7013834/2026/02/02/maple-leafs-pelley-treliving-berube-shanahan-leadership/
 
-**Epstein Victims Outraged Over Unredacted Info, and the Supreme Court Made Itself More Secretive**\
-`Plus, big firsts at the Grammy Awards.`\
-https://nytimes.com/2026/02/02/podcasts/the-headlines/epstein-victims-photos-supreme-court-secrecy.html
+**Sabres notes: Is Owen Power quieting his critics? Plus ticket thoughts and more**\
+`Plus, Beck Malenstyn's stat of note, an injury situation and the schedule ahead.`\
+https://nytimes.com/athletic/7014781/2026/02/02/sabres-notes-owen-power-critics-tickets/
 
-**Colorado Rockies 2026 top 20 prospects: Ethan Holliday, Charlie Condon lead the way**\
-`The Rockies have several high-upside talents and, under a new front office, may now get the development support they need to thrive.`\
-https://nytimes.com/athletic/7006105/2026/02/02/rockies-2026-top-20-prospects-keith-law/
+**Canadiens weekly notebook: Cole Caufield and Mike Matheson’s parallel journeys**\
+`Also this week, Bruce Cassidy dishes on Nick Suzuki's potential role in Milan, and the kinship between Bowen Byram and Alex Newhook.`\
+https://nytimes.com/athletic/7014736/2026/02/02/canadiens-caufield-matheson-two-way-olympics-suzuki/
 
