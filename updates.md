@@ -1,3 +1,15 @@
+**N.Y. Republican in Swing District Gets Rowdy Reception at Town Hall**\
+`Representative Mike Lawler, who has promised to hold several town halls as he seeks re-election, was repeatedly heckled by audience members in Rockland County.`\
+https://nytimes.com/2026/02/01/nyregion/mike-lawler-ny-town-hall.html
+
+**Bad Bunny Says ‘ICE Out’ in Grammys Acceptance Speech**\
+`After winning the award for best música urbana album, the Puerto Rican superstar took aim at the Immigration and Customs Enforcement agency.`\
+https://nytimes.com/2026/02/01/arts/music/bad-bunny-speech-ice-grammys.html
+
+**Jaylen Brown speaks on Bill Russell, Celtics during NBA Pioneers Classic**\
+`Before the game, Brown gave a speech to the crowd while accompanied by family members of the three pioneers.`\
+https://nytimes.com/athletic/7014663/2026/02/01/jaylen-brown-bill-russell-legacy-nba-pioneers-classic/
+
 **Oscar-Nominated Screenwriter Arrested in Iran for Criticizing Regime**\
 `Mehdi Mahmoudian, co-writer of “It Was Just an Accident,” was one of several people detained after signing a letter objecting to the crackdown on protests.`\
 https://nytimes.com/2026/02/01/world/middleeast/iran-mehdi-mahmoudian-arrest.html
