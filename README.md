@@ -1,3 +1,11 @@
+**Super Bowl LX Opening Night: What happens, who's involved and how to watch it**\
+`A big week precedes the big game. So begins the hype, but also the hilarity.`\
+https://nytimes.com/athletic/7010987/2026/02/02/super-bowl-opening-night-media-day-interviews/
+
+**FPL Gameweek 24 review: Liverpool’s in-form duo, Saka uncertainty, and preaching patience**\
+`Injuries, form swings, and a looming Carabao Cup semi-final mean patience could be just as important as points this week`\
+https://nytimes.com/athletic/7014342/2026/02/02/fantasy-premier-league-fpl-tips-liverpool-saka-manchester-united/
+
 **Trump Says Kennedy Center to Close for 2-Year Renovation**\
 `The performing arts center will shut on July 4 for the refit, President Trump announced on social media. The institution has been rocked by cancellations and boycotts.`\
 https://nytimes.com/video/us/politics/100000010683920/trump-close-kennedy-center.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7014108/2026/02/02/blackhawks-trade-board-mikheyev-
 **What I'm hearing about the Penguins: Bryan Rust suspension, Marc-André Fleury return**\
 `The Penguins are quietly seething about Bryan Rust's three-game suspension. `\
 https://nytimes.com/athletic/7014114/2026/02/02/penguins-bryan-rust-suspension-marc-andre-fleury/
-
-**Inside the goalie fight that changed a Lightning-Bruins outdoor game for the ages**\
-`When the Lightning's Vasilevskiy and Bruins' Swayman dropped the gloves, Tampa Bay woke up and turned the game into a classic.`\
-https://nytimes.com/athletic/7014937/2026/02/02/bruins-lightning-goalie-fight-outdoor-game/
-
-**Leafs' leadership structure isn't working. What now? Monday Morning Leafs Report**\
-`Plus, thoughts on every Leafs player this season with two games left before the Olympic break.`\
-https://nytimes.com/athletic/7013834/2026/02/02/maple-leafs-pelley-treliving-berube-shanahan-leadership/
 
