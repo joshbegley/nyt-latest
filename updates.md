@@ -1,3 +1,15 @@
+**Rams announce extensions for head coach Sean McVay, GM Les Snead**\
+`The Rams have made the playoffs seven times in nine years under McVay and Snead, including two Super Bowl appearances. `\
+https://nytimes.com/athletic/7016007/2026/02/02/rams-sean-mcvay-les-snead-contract-extensions/
+
+**New York City’s First Real Winter in a Long Time Is Relentless**\
+`Mountains of rock-solid filthy snow. Narrow, icy sidewalks. Temperatures that sound like shoe sizes. When will it end?`\
+https://nytimes.com/2026/02/02/nyregion/nyc-winter-cold.html
+
+**Games Briefing: The Winter Olympics primer, schedule and what to expect**\
+`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7016002/2026/02/02/milan-cortina-winter-olympics-2026-games-briefing/
+
 **Saints will play NFL's first regular-season game in France 2026**\
 `The game will be played at Stade de France in Paris with an opponent for the Saints to be revealed at a later date.`\
 https://nytimes.com/athletic/7014648/2026/02/02/saints-paris-france-nfl-regular-season-game/

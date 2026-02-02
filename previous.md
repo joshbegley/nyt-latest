@@ -1,3 +1,15 @@
+**Rams announce extensions for head coach Sean McVay, GM Les Snead**\
+`The Rams have made the playoffs seven times in nine years under McVay and Snead, including two Super Bowl appearances. `\
+https://nytimes.com/athletic/7016007/2026/02/02/rams-sean-mcvay-les-snead-contract-extensions/
+
+**New York City’s First Real Winter in a Long Time Is Relentless**\
+`Mountains of rock-solid filthy snow. Narrow, icy sidewalks. Temperatures that sound like shoe sizes. When will it end?`\
+https://nytimes.com/2026/02/02/nyregion/nyc-winter-cold.html
+
+**Games Briefing: The Winter Olympics primer, schedule and what to expect**\
+`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7016002/2026/02/02/milan-cortina-winter-olympics-2026-games-briefing/
+
 **Saints will play NFL's first regular-season game in France 2026**\
 `The game will be played at Stade de France in Paris with an opponent for the Saints to be revealed at a later date.`\
 https://nytimes.com/athletic/7014648/2026/02/02/saints-paris-france-nfl-regular-season-game/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7015952/2026/02/02/islanders-vs-capitals-stream-how
 **It’s Cold. Punxsutawney Phil Did Not Bring Good News for the U.S.**\
 `The supposedly meteorologically gifted rodent saw his shadow, suggesting several more weeks of winter. (Forecasters agreed, at least for this week.)`\
 https://nytimes.com/2026/02/02/us/groundhog-day-results.html
-
-**Trump Had Unusual Call With F.B.I. Agents After Election Center Search**\
-`The phone conversation was arranged by the director of national intelligence, Tulsi Gabbard, who met with the agents a day after the search for reasons that remain unclear, The New York Times has learned.`\
-https://nytimes.com/2026/02/02/us/politics/trump-fbi-phone-call-georgia-gabbard.html
-
-**How to watch Auburn vs. Ole Miss women's basketball: Time, TV, streaming**\
-`Find out how to watch the Auburn Tigers play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7015925/2026/02/02/auburn-vs-ole-miss-stream-how-to-watch-feb-2/
-
-**How to watch Syracuse vs. North Carolina men's basketball: Time, TV, streaming**\
-`Find out how to watch the Syracuse Orange play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7015920/2026/02/02/syracuse-vs-north-carolina-stream-how-to-watch-feb-2/
 
