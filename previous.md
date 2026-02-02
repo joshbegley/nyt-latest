@@ -1,3 +1,7 @@
+**Disney’s Profit Wilts, Pulled Down by Movies and TV**\
+`Per-share quarterly profit declined 7 percent from a year earlier despite revenue growth from the company’s streaming and cruise businesses.`\
+https://nytimes.com/2026/02/02/business/disney-profit-wilts-movies-tv.html
+
 **Games On**\
 `We preview the Winter Olympics.`\
 https://nytimes.com/2026/02/02/briefing/games-on.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/02/podcasts/the-headlines/epstein-victims-photos-sup
 **Colorado Rockies 2026 top 20 prospects: Ethan Holliday, Charlie Condon lead the way**\
 `The Rockies have several high-upside talents and, under a new front office, may now get the development support they need to thrive.`\
 https://nytimes.com/athletic/7006105/2026/02/02/rockies-2026-top-20-prospects-keith-law/
-
-**A collection of Luke Kuechly's greatest hits as he waits for Hall of Fame call**\
-`Kuechly didn't get the call in his first eligible season a year ago. The 2026 class will be announced Thursday night.`\
-https://nytimes.com/athletic/7011209/2026/02/02/luke-kuechly-hof-career-panthers/
 

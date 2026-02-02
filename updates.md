@@ -1,3 +1,7 @@
+**Disney’s Profit Wilts, Pulled Down by Movies and TV**\
+`Per-share quarterly profit declined 7 percent from a year earlier despite revenue growth from the company’s streaming and cruise businesses.`\
+https://nytimes.com/2026/02/02/business/disney-profit-wilts-movies-tv.html
+
 **Games On**\
 `We preview the Winter Olympics.`\
 https://nytimes.com/2026/02/02/briefing/games-on.html
