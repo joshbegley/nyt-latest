@@ -1,16 +1,8 @@
-**5-Year-Old and His Father, Detained by Agents, Are Released From Custody**\
-`Liam Conejo Ramos, the 5-year-old who was detained with his father by federal agents, is back home in Minnesota with his father. A federal judge demanded their release from an immigration detention center in Texas, where they were being held.`\
-https://nytimes.com/video/us/100000010683054/5-year-old-and-his-father-detained-by-agents-are-released-from-custody.html
-
-**No. 2 UCLA blasts No. 8 Iowa for 15th straight win, stays unbeaten in Big Ten**\
-`Five Bruins score in double figures, led by Angela Dugalić's 22 points. `\
-https://nytimes.com/athletic/7014388/2026/02/01/ucla-iowa-big-ten-women/
-
 **Fear and Anger Grow as Thousands Remain Without Power in the South**\
 `More than 30 people have died across three Southern states in connection with last week’s storm, and thousands remain without power.`\
 https://nytimes.com/2026/02/01/us/fear-and-anger-grow-as-thousands-remain-without-power-in-the-south.html
 
-**LeBron James makes NBA-record 22nd All-Star Game; Kevin Durant, Jamal Murray among reserves**\
+**LeBron James named to 2026 NBA All-Star game, extends selections record to 22**\
 `James has now made three more All-Star teams than Kareem Abdul-Jabbar, who is second all-time.`\
 https://nytimes.com/athletic/7014383/2026/02/01/2026-nba-all-star-reserves-lebron/
 
@@ -35,6 +27,14 @@ https://nytimes.com/2026/02/01/obituaries/robert-pratt-dead.html
 https://nytimes.com/athletic/7014447/2026/02/01/lightning-bruins-stadium-series-arrival/
 
 **Grammys Red Carpet Photos: Music’s Biggest Stars Make Their Entrances**\
-`See what nominees and guests for the 68th Grammy Awards, including Sabrina Carpenter, Addison Rae and Tyla, wore to arrive to the ceremony.`\
+`See what nominees for the 68th Grammy Awards wore to arrive to the ceremony.`\
 https://nytimes.com/2026/02/01/style/grammys-red-carpet-photos-2026.html
+
+**Snow, Ice, Parking Hell: It’s a Tough Winter to Be a New York City Mover**\
+`Even in summer, moving crews have to contend with walk-up apartments, double-parking and sofas that won’t fit through narrow hallways. It’s a lot worse right now.`\
+https://nytimes.com/2026/02/01/nyregion/movers-nyc-snow.html
+
+**Justin Rose sets record while running away with Farmers Insurance Open**\
+`Rose had a six-shot lead entering Sunday and then shot a 70 to extend the margin of victory.`\
+https://nytimes.com/athletic/7014320/2026/02/01/justin-rose-wins-farmers-insurance-open-pga-tour/
 
