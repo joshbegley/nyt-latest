@@ -1,4 +1,23 @@
-**Chelsea set to recall Sarr from Strasbourg loan**\
+**Stars Bring ‘ICE OUT’ Pins and Fiery Speeches to a Political Grammys**\
+`Bad Bunny, Billie Eilish and Kehlani made strong statements about immigration on Sunday, while the host Trevor Noah drew President Trump’s ire.`\
+https://nytimes.com/2026/02/02/arts/music/grammy-awards-ice-trump.html
+
+**Stink-Resistant Sponges Do Exist**\
+`We hate to say it, but you might be the stinky sponge friend. We put 15 of the most popular sponges through their paces and landed on four that are both great at their jobs and resistant to bad smells (that is, if you disinfect them properly and regularly).`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010684852/stink-resistant-sponges-do-exist.html
+
+**As Democrats Press Trump on ICE, Gallego and Pritzker Preview 2028 Pitches**\
+`Speaking at a party gathering in Nevada, the two politicians urged opposition to President Trump’s deportation agenda, while appearing to lay the groundwork for potential presidential runs.`\
+https://nytimes.com/2026/02/02/us/politics/ruben-gallego-jb-pritzker-trump-ice-nevada.html
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Happy Super Bowl week. You&#8217;ve come to the right place if you&#8217;re already tired of reading 20 articles a day on the Patriots and Seahawks.</p>
+<p>Leave your questions here. Please include your city.</p>
+<p>&nbsp;</p>
+`\
+https://nytimes.com/athletic/7016267/2026/02/02/submit-a-question-for-stewart-mandels-college-football-mailbag-333/
+
+**Chelsea recall Sarr from Strasbourg loan**\
 `Sarr returned to Strasbourg on a season-long loan in August.`\
 https://nytimes.com/athletic/7015290/2026/02/02/chelsea-mamadou-sarr-strasbourg-recall/
 
@@ -21,20 +40,4 @@ https://nytimes.com/athletic/7015869/2026/02/02/best-super-bowl-player-prop-bets
 **Trump’s Remake of the Kennedy Center**\
 `Readers object to President Trump’s plan to close the Kennedy Center for a two-year reconstruction project. Also: U.N. financial trouble; an ominous signoff.`\
 https://nytimes.com/2026/02/02/opinion/trump-kennedy-center.html
-
-**St. Louis Cardinals leave FanDuel Sports Network, join MLB's broadcast portfolio**\
-`With the Cardinals leaving, eight other MLB teams are expected to make decisions soon on whether to stick with FanDuel SN or depart. `\
-https://nytimes.com/athletic/7010724/2026/02/02/cardinals-mlb-broadcast-fanduel-sports-network/
-
-**George Russell wants an F1 title fight, and Mercedes' 2026 testing suggests he may get it**\
-`George Russell has long felt he can fight for an F1 title. Has Mercedes now given him the car to prove it?`\
-https://nytimes.com/athletic/7016087/2026/02/02/f1-mercedes-car-george-russell-win/
-
-**‘It’s Been Brutal’: Twin Cities Economy Suffers Under ICE Crackdown**\
-`Immigration raids have scared off customers and workers, a pattern repeated in other cities where federal officials have arrived in force.`\
-https://nytimes.com/2026/02/02/business/economy/minnesota-ice-economy-damage.html
-
-**Oversight Chairman Rejects Clintons’ Offer for Epstein Testimony**\
-`Bill Clinton agreed to an interview he had long resisted, but Representative James Comer, the Oversight Committee chairman, signaled he would go forward with holding the former president in contempt.`\
-https://nytimes.com/2026/02/02/us/politics/bill-hillary-clinton-epstein-comer-contempt.html
 

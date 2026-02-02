@@ -1,3 +1,7 @@
+**Mayor Mamdani’s New Coat Blends Workwear with Skate Culture**\
+`As he dealt with a major snowstorm, the mayor appeared in a personalized Carhartt jacket designed with help from his wife.`\
+https://nytimes.com/2026/02/02/style/mamdani-carhartt-jacket-rama-duwaji.html
+
 **Stars Bring ‘ICE OUT’ Pins and Fiery Speeches to a Political Grammys**\
 `Bad Bunny, Billie Eilish and Kehlani made strong statements about immigration on Sunday, while the host Trevor Noah drew President Trump’s ire.`\
 https://nytimes.com/2026/02/02/arts/music/grammy-awards-ice-trump.html
@@ -36,8 +40,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010684785/is-ikea-cook
 **Doing the Super Prop Shuffle**\
 `In the spirit of the "Super Bowl Shuffle," Toby Mergler gives his prop-bet picks for this year's game.`\
 https://nytimes.com/athletic/7015869/2026/02/02/best-super-bowl-player-prop-bets-patriots-seahawks/
-
-**Trump’s Remake of the Kennedy Center**\
-`Readers object to President Trump’s plan to close the Kennedy Center for a two-year reconstruction project. Also: U.N. financial trouble; an ominous signoff.`\
-https://nytimes.com/2026/02/02/opinion/trump-kennedy-center.html
 
