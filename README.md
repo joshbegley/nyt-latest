@@ -1,3 +1,11 @@
+**Is Football Doomed? Chuck Klosterman Thinks So.**\
+`In his new book, the writer goes deep on a sport that dominates American cultural life — but possibly not for long.`\
+https://nytimes.com/2026/02/02/books/review/chuck-klosterman-football.html
+
+**They Got Rich in New York and Chicago. They Think Florida Is the Future.**\
+`Stephen Ross, the real estate developer, and Ken Griffin, the billionaire financier, are trying to attract businesses to their new base, South Florida.`\
+https://nytimes.com/2026/02/02/business/dealbook/florida-ross-griffin-businesses.html
+
 **Premier League data notebook: The Ekitike & Wirtz show, Man Utd's set- pieces, Wolves' defensive secret**\
 `The Athletic's data writers break down the key storylines from the weekend's action`\
 https://nytimes.com/athletic/7015305/2026/02/02/premier-league-data-notebook-md24-liverpool-man-utd-spurs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6958414/2026/02/02/winter-olympics-milan-how-to-wat
 **Man City's Rodri questions referee neutrality after 'clear foul' against Spurs**\
 `Rodri claimed it was clear "people" do not want City to win due to their past successes but that referees must remain "neutral".`\
 https://nytimes.com/athletic/7015311/2026/02/02/rodri-manchester-city-referee-criticism-var/
-
-**Inside Barcelona: Yamal and company are on a roll. The only 'bad thing'? Missed chances**\
-`Hansi Flick's team are still top of La Liga, but an expected goals figure of 6.44 in the 3-1 win at Elche shows where they can improve`\
-https://nytimes.com/athletic/7015318/2026/02/02/inside-barcelona-elche-xg-ter-stegen-raphinha/
-
-**Mercedes' Wolff tells F1 rivals to 'get your s--- together' on engine scrutiny**\
-`Other F1 teams have raised concerns about Mercedes and Red Bull finding an engine loophole - a topic that is set to remain in the spotlight.`\
-https://nytimes.com/athletic/7015388/2026/02/02/mercedes-formula-1-engine-loophole-wolff/
 
