@@ -1,3 +1,20 @@
+**How to watch Auburn vs. Ole Miss women's basketball: Time, TV, streaming**\
+`Find out how to watch the Auburn Tigers play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7015925/2026/02/02/auburn-vs-ole-miss-stream-how-to-watch-feb-2/
+
+**How to watch Syracuse vs. North Carolina men's basketball: Time, TV, streaming**\
+`Find out how to watch the Syracuse Orange play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7015920/2026/02/02/syracuse-vs-north-carolina-stream-how-to-watch-feb-2/
+
+**The Windup: Why is Framber Valdez still unsigned?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7015894/2026/02/02/framber-valdez-offseason-signing-the-windup/
+
+**The Bounce: The Luka trade, one year later. Plus, All-Star snubs!**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7015691/2026/02/02/luka-doncic-trade-all-star-snubs-knicksthe-bounce/
+
 **The Bounce: The Luka trade, one year later. Plus, All-Star snubs!**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.
 `\
