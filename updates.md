@@ -1,3 +1,15 @@
+**NBC Sports set to host Super Bowl LX pregame coverage from Alcatraz Island**\
+`Alcatraz will play host for segments of NBC's Super Bowl coverage on Sunday.`\
+https://nytimes.com/athletic/7016788/2026/02/02/nbc-sports-set-to-host-super-bowl-lx-pregame-coverage-from-alcatraz-island/
+
+**Titans hiring Gus Bradley as defensive coordinator: source**\
+`Bradley, a former head coach with the Jaguars, follows new head coach Robert Saleh from the 49ers.`\
+https://nytimes.com/athletic/7016833/2026/02/02/titans-gus-bradley-defensive-coordinator/
+
+**Trump Talked to Agents Investigating Election Claims**\
+`Also, the Supreme Court secretly made itself even more secretive. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2026/02/02/briefing/trump-fbi-agents-rafah-crossing-gaza.html
+
 **Liverpool sign Jacquet in £55m deal from Rennes**\
 `The 20-year-old has penned a contract until 2031 with the option of a further year.`\
 https://nytimes.com/athletic/7015491/2026/02/02/liverpool-jeremy-jacquet-transfer-confirmed/
