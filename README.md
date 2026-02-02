@@ -1,3 +1,11 @@
+**Doing the Super Prop Shuffle**\
+`In the spirit of the "Super Bowl Shuffle," Toby Mergler gives his prop-bet picks for this year's game.`\
+https://nytimes.com/athletic/7015869/2026/02/02/best-super-bowl-player-prop-bets-patriots-seahawks/
+
+**Trump’s Remake of the Kennedy Center**\
+`Readers object to President Trump’s plan to close the Kennedy Center for a two-year reconstruction project. Also: U.N. financial trouble; an ominous signoff.`\
+https://nytimes.com/2026/02/02/opinion/trump-kennedy-center.html
+
 **St. Louis Cardinals leave FanDuel Sports Network, join MLB's broadcast portfolio**\
 `With the Cardinals leaving, eight other MLB teams are expected to make decisions soon on whether to stick with FanDuel SN or depart. `\
 https://nytimes.com/athletic/7010724/2026/02/02/cardinals-mlb-broadcast-fanduel-sports-network/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/02/arts/music/pancho-rabbit-and-the-coyote-children-
 **Takeaways From the First Week of the Alexander Brothers Trial**\
 `Jurors in the sex trafficking case heard from the first witnesses and saw graphic evidence of the crimes the brothers are accused of.`\
 https://nytimes.com/2026/02/02/nyregion/trial-alexanders-sex-assault-takeaways.html
-
-**Tuskegee coach handcuffed postgame, retains civil rights attorneys**\
-`Tuskegee basketball coach Benjy Taylor has hired civil rights lawyers after being handcuffed following Saturday's game at Morehouse College.`\
-https://nytimes.com/athletic/7015915/2026/02/02/tuskegee-coach-handcuffed-civil-lawsuit/
-
-**Bad Bunny and Super Bowl LX: How sports culture influences his musical playbook**\
-`The singer had a big Grammys night and will perform at halftime, has a passion for sports, with nods to MLB, NBA and soccer in his lyrics.`\
-https://nytimes.com/athletic/6991368/2026/02/02/bad-bunny-super-bowl-sports-music/
 

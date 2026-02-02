@@ -1,3 +1,15 @@
+**St. Louis Cardinals leave FanDuel Sports Network, join MLB's broadcast portfolio**\
+`With the Cardinals leaving, eight other MLB teams are expected to make decisions soon on whether to stick with FanDuel SN or depart. `\
+https://nytimes.com/athletic/7010724/2026/02/02/cardinals-mlb-broadcast-fanduel-sports-network/
+
+**George Russell wants an F1 title fight, and Mercedes' 2026 testing suggests he may get it**\
+`George Russell has long felt he can fight for an F1 title. Has Mercedes now given him the car to prove it?`\
+https://nytimes.com/athletic/7016087/2026/02/02/f1-mercedes-car-george-russell-win/
+
+**‘It’s Been Brutal’: Twin Cities Economy Suffers Under ICE Crackdown**\
+`Immigration raids have scared off customers and workers, a pattern repeated in other cities where federal officials have arrived in force.`\
+https://nytimes.com/2026/02/02/business/economy/minnesota-ice-economy-damage.html
+
 **Bad Bunny and Super Bowl LX: How sports culture influences his musical playbook**\
 `The singer had a big Grammys night and will perform at halftime, has a passion for sports, with nods to MLB, NBA and soccer in his lyrics.`\
 https://nytimes.com/athletic/6991368/2026/02/02/bad-bunny-super-bowl-sports-music/
