@@ -1,3 +1,23 @@
+**Best and Worst Moments From the 2026 Grammys**\
+`Addison Rae tapped into 2000s pop energy, Justin Bieber stripped things down and Bad Bunny got choked up at the 68th annual awards.`\
+https://nytimes.com/2026/02/02/arts/music/grammys-2026-best-worst-moments.html
+
+**Trump Can Be Bad All on His Own**\
+`Trump’s advisers are terrible. That’s not the problem.`\
+https://nytimes.com/2026/02/02/opinion/trump-failure-minnesota.html
+
+**After His Democratic Victory in Texas, a New Working-Class Star Rises**\
+`Taylor Rehmet, a machinist and union leader, pulled off a stunning State Senate win in Fort Worth and its suburbs. He is among several political outsiders seeking office.`\
+https://nytimes.com/2026/02/02/us/politics/taylor-rehmet-texas-working-class-democrats.html
+
+**Protesters Press Target to Take a Stand Against ICE Crackdown in Minneapolis**\
+`The Minnesota-based retail chain has avoided criticizing anyone, even after federal agents detained two employees at a local store. Its new C.E.O. faces pressure to do more.`\
+https://nytimes.com/2026/02/02/us/target-protests-immigration-minneapolis.html
+
+**A Social Network for A.I. Bots Only. No Humans Allowed.**\
+`A new website called Moltbook has become the talk of Silicon Valley and a Rorschach test for belief in the state of artificial intelligence.`\
+https://nytimes.com/2026/02/02/technology/a-social-network-for-ai-bots-only-no-humans-allowed.html
+
 **Can the New Terminal at J.F.K. Be Among the World’s Best?**\
 `The enormous Terminal 1 is expected to open later this year at a cost of $9.5 billion. The Port Authority, which operates Kennedy Airport, has high aspirations for it.`\
 https://nytimes.com/2026/02/02/nyregion/can-the-new-terminal-at-jfk-be-among-the-worlds-best.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/02/02/arts/design/art-basel-qatar-gulf-money.html
 **Icemageddon, Southern Style**\
 `An ice storm will bring a city like Nashville to its knees.`\
 https://nytimes.com/2026/02/02/opinion/ice-storm-tennessee.html
-
-**$1.3 Million Homes in California**\
-`This week’s properties include a Craftsman home in Los Angeles, an Art Deco-inspired house in San Francisco and a 1980 contemporary house in El Cajon.`\
-https://nytimes.com/2026/02/02/realestate/los-angeles-san-francisco-el-cajon-home-sales.html
-
-**Western Ski Resorts and Their Terrible, Horrible, No Snow, Very Bad Year**\
-`Little snowpack, strikes by mountain staff and Trump administration policies that are keeping international visitors away have made this a difficult season in the Rockies and beyond.`\
-https://nytimes.com/2026/02/02/travel/snow-drought-ski-rocky-mountains.html
-
-**How Weight Lifting Took Over America**\
-`Getting strong has never been more popular. How did we get here?`\
-https://nytimes.com/2026/02/02/well/move/weight-lifting-america-history.html
-
-**A Legal Tool for Holding ICE Agents to Account, Hiding in Plain Sight**\
-`A proposal in a 1987 law review article could address a gap that makes it all but impossible to sue federal officials for violating the Constitution.`\
-https://nytimes.com/2026/02/02/us/ice-lawsuits-states.html
-
-**Small Businesses in Minneapolis Serve a City in Crisis. ‘This Is Our New Normal.’**\
-`In Minneapolis and St. Paul, business owners work to lift up a community that has been roiled by the presence of thousands of immigration agents.`\
-https://nytimes.com/2026/02/02/us/small-businesses-in-minneapolis-serve-a-city-in-crisis-this-is-our-new-normal.html
 
