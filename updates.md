@@ -1,3 +1,15 @@
+**Kid Rock headlines Turning Point USA's Super Bowl halftime show**\
+`Turning Point USA had previously announced plans for a show after the NFL chose Bad Bunny as its halftime performer.`\
+https://nytimes.com/athletic/7016481/2026/02/02/turning-point-usa-super-bowl-kid-rock-halftime/
+
+**How injury concerns have interrupted Christian Pulisic’s dream pre-World Cup season**\
+`The American will miss AC Milan's trip to Bologna Tuesday, with a bursitis complaint the latest in a succession of minor ailments`\
+https://nytimes.com/athletic/7016694/2026/02/02/christian-pulisic-world-cup-usmnt-milan-injury/
+
+**Elon Musk Merges SpaceX With His A.I. Start-Up xAI**\
+`The deal further intermingles Mr. Musk’s companies and creates the most valuable private company on earth.`\
+https://nytimes.com/2026/02/02/business/spacex-xai-deal.html
+
 **Peter Attia ‘Ashamed’ After Epstein Emails Become Public**\
 `The longevity influencer said he “never witnessed illegal behavior” but would not defend his crude remarks about women and comments on Jeffrey Epstein’s “outrageous” life.`\
 https://nytimes.com/2026/02/02/well/peter-attia-epstein.html
