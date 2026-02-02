@@ -8,7 +8,7 @@ https://nytimes.com/athletic/7014388/2026/02/01/ucla-iowa-big-ten-women/
 
 **Fear and Anger Grow as Thousands Remain Without Power in the South**\
 `More than 30 people have died across three Southern states in connection with last week’s storm, and thousands remain without power.`\
-https://nytimes.com/2026/02/01/us/fear-and-anger-grow-as-thousands-remain-without-power-in-the-south.html
+https://nytimes.com/2026/02/01/us/storm-power-outages-tennessee-mississippi-louisiana.html
 
 **LeBron James makes NBA-record 22nd All-Star Game; Kevin Durant, Jamal Murray among reserves**\
 `James has now made three more All-Star teams than Kareem Abdul-Jabbar, who is second all-time.`\

@@ -1,3 +1,19 @@
+**5-Year-Old and His Father, Detained by Agents, Are Released From Custody**\
+`Liam Conejo Ramos, the 5-year-old who was detained with his father by federal agents, is back home in Minnesota with his father. A federal judge demanded their release from an immigration detention center in Texas, where they were being held.`\
+https://nytimes.com/video/us/100000010683054/5-year-old-and-his-father-detained-by-agents-are-released-from-custody.html
+
+**No. 2 UCLA blasts No. 8 Iowa for 15th straight win, stays unbeaten in Big Ten**\
+`Five Bruins score in double figures, led by Angela Dugalić's 22 points. `\
+https://nytimes.com/athletic/7014388/2026/02/01/ucla-iowa-big-ten-women/
+
+**LeBron James makes NBA-record 22nd All-Star Game; Kevin Durant, Jamal Murray among reserves**\
+`James has now made three more All-Star teams than Kareem Abdul-Jabbar, who is second all-time.`\
+https://nytimes.com/athletic/7014383/2026/02/01/2026-nba-all-star-reserves-lebron/
+
+**Grammys Red Carpet Photos: Music’s Biggest Stars Make Their Entrances**\
+`See what nominees and guests for the 68th Grammy Awards, including Sabrina Carpenter, Addison Rae and Tyla, wore to arrive to the ceremony.`\
+https://nytimes.com/2026/02/01/style/grammys-red-carpet-photos-2026.html
+
 **Fear and Anger Grow as Thousands Remain Without Power in the South**\
 `More than 30 people have died across three Southern states in connection with last week’s storm, and thousands remain without power.`\
 https://nytimes.com/2026/02/01/us/fear-and-anger-grow-as-thousands-remain-without-power-in-the-south.html
