@@ -1,3 +1,7 @@
+**Trump Says Kennedy Center to Close for 2-Year Renovation**\
+`The performing arts center will shut on July 4 for the refit, President Trump announced on social media. The institution has been rocked by cancellations and boycotts.`\
+https://nytimes.com/video/us/politics/100000010683920/trump-close-kennedy-center.html
+
 **AFC: Which deals could happen on deadline day? Plus: Solanke scorpion kick stings City**\
 `Today in TAFC: We have all the updates on deadline day, a round-up of the weekend action, and a touching tribute to PAOK fans.`\
 https://nytimes.com/athletic/7015196/2026/02/02/transfer-deadline-day-solanke-scorpion-kick/
