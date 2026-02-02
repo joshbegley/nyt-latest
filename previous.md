@@ -1,3 +1,19 @@
+**AP men's hoops Top 25: Arizona unanimous No. 1 again, Michigan jumps UConn for No. 2**\
+`Illinois also rose to its highest ranking since 2021 after beating Purdue and Nebraska.`\
+https://nytimes.com/athletic/7016243/2026/02/02/ap-college-basketball-poll-arizona-michigan-uconn-duke-illinois/
+
+**2 More Arrested in Minnesota Church Protest Against ICE Enforcement**\
+`Nine defendants have been taken into custody in a federal prosecution that includes the journalist Don Lemon and has alarmed First Amendment advocates.`\
+https://nytimes.com/2026/02/02/us/cities-church-arrests-minnesota-ice.html
+
+**An attempt to study Thwaites Glacier from below meets an icy end.**\
+`Scientists lost their instruments within Antarctica’s most dangerously unstable glacier, though not before getting a glimpse at the warming waters underneath.`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/an-attempt-to-study-thwaites-glacier-from-below-meets-an-icy-end
+
+**After Months of Turmoil, French Prime Minister Clears Hurdle to Pass a Budget**\
+`Prime Minister Sébastien Lecornu’s budget, subjected to judicial review, paves the way for relative political stability.`\
+https://nytimes.com/2026/02/02/world/europe/france-budget-lecornu.html
+
 **Get Ready with Scotty the Pekingese**\
 `We hung out with some of Westminster’s top dogs to steal their beauty secrets. With glam that could put even the Real Housewives to shame, the pups who win Best in Show represent the platonic ideal of their breeds. Here’s what the canine stars use to stay ring-ready.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010684942/get-ready-with-scotty-the-pekingese.html
@@ -22,20 +38,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010684915/we-tested-sh
 **Blue Jays announce Joe Carter statue commemorating his iconic World Series home run**\
 `Carter's blast to end the 1993 World Series clinched the Jays second World Series title and their first title won on Canadian soil.`\
 https://nytimes.com/athletic/7016236/2026/02/02/blue-jays-joe-carter-statue-home-run/
-
-**Mayor Mamdani’s New Coat Blends Workwear with Skate Culture**\
-`As he dealt with a major snowstorm, the mayor appeared in a personalized Carhartt jacket designed with help from his wife.`\
-https://nytimes.com/2026/02/02/style/mamdani-carhartt-jacket-rama-duwaji.html
-
-**Stars Bring ‘ICE OUT’ Pins and Fiery Speeches to a Political Grammys**\
-`Bad Bunny, Billie Eilish and Kehlani made strong statements about immigration on Sunday, while the host Trevor Noah drew President Trump’s ire.`\
-https://nytimes.com/2026/02/02/arts/music/grammy-awards-ice-trump.html
-
-**Stink-Resistant Sponges Do Exist**\
-`We hate to say it, but you might be the stinky sponge friend. We put 15 of the most popular sponges through their paces and landed on four that are both great at their jobs and resistant to bad smells (that is, if you disinfect them properly and regularly).`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010684852/stink-resistant-sponges-do-exist.html
-
-**As Democrats Press Trump on ICE, Gallego and Pritzker Preview 2028 Pitches**\
-`Speaking at a party gathering in Nevada, the two politicians urged opposition to President Trump’s deportation agenda, while appearing to lay the groundwork for potential presidential runs.`\
-https://nytimes.com/2026/02/02/us/politics/ruben-gallego-jb-pritzker-trump-ice-nevada.html
 

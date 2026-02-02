@@ -1,3 +1,11 @@
+**Unusual Stretch of Frigid Temperatures Is Expected to Continue This Week**\
+`Arctic air will chill much of the United States and could break New York’s record for consecutive freezing days.`\
+https://nytimes.com/2026/02/02/weather/unusual-cold-freezing-streak.html
+
+**Jobs Report Delayed Because of Partial Shutdown**\
+`The report, scheduled for Friday, would have provided data on job growth, unemployment and wages in January.`\
+https://nytimes.com/2026/02/02/business/economy/january-jobs-report-delayed-shutdown.html
+
 **AP men's hoops Top 25: Arizona unanimous No. 1 again, Michigan jumps UConn for No. 2**\
 `Illinois also rose to its highest ranking since 2021 after beating Purdue and Nebraska.`\
 https://nytimes.com/athletic/7016243/2026/02/02/ap-college-basketball-poll-arizona-michigan-uconn-duke-illinois/
@@ -30,12 +38,4 @@ https://nytimes.com/2026/02/02/climate/antarctica-thwaites-glacier-drilling.html
 **Does This Angel Look Familiar? A Modern Face Appears in a Rome Fresco.**\
 `The recent restoration of a chapel came with a surprise: an angel depicted with the likeness of Prime Minister Giorgia Meloni of Italy. Cue the protests.`\
 https://nytimes.com/2026/02/02/world/europe/angel-meloni-face-rome-church.html
-
-**We Tested Shark’s Viral Facial Device**\
-`Shark claims its $400 facial device delivers a “spa-level glow and sculpting in just one use.” “As someone with perpetually clogged New York City pores, I was ready for salvation,” writes Neha Tandon. “Instead of the promised land, I found too many steps for too few benefits.”`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010684915/we-tested-sharks-viral-facial-device.html
-
-**Blue Jays announce Joe Carter statue commemorating his iconic World Series home run**\
-`Carter's blast to end the 1993 World Series clinched the Jays second World Series title and their first title won on Canadian soil.`\
-https://nytimes.com/athletic/7016236/2026/02/02/blue-jays-joe-carter-statue-home-run/
 

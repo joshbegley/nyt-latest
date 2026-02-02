@@ -1,3 +1,19 @@
+**AP men's hoops Top 25: Arizona unanimous No. 1 again, Michigan jumps UConn for No. 2**\
+`Illinois also rose to its highest ranking since 2021 after beating Purdue and Nebraska.`\
+https://nytimes.com/athletic/7016243/2026/02/02/ap-college-basketball-poll-arizona-michigan-uconn-duke-illinois/
+
+**2 More Arrested in Minnesota Church Protest Against ICE Enforcement**\
+`Nine defendants have been taken into custody in a federal prosecution that includes the journalist Don Lemon and has alarmed First Amendment advocates.`\
+https://nytimes.com/2026/02/02/us/cities-church-arrests-minnesota-ice.html
+
+**An attempt to study Thwaites Glacier from below meets an icy end.**\
+`Scientists lost their instruments within Antarctica’s most dangerously unstable glacier, though not before getting a glimpse at the warming waters underneath.`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/an-attempt-to-study-thwaites-glacier-from-below-meets-an-icy-end
+
+**After Months of Turmoil, French Prime Minister Clears Hurdle to Pass a Budget**\
+`Prime Minister Sébastien Lecornu’s budget, subjected to judicial review, paves the way for relative political stability.`\
+https://nytimes.com/2026/02/02/world/europe/france-budget-lecornu.html
+
 **Get Ready with Scotty the Pekingese**\
 `We hung out with some of Westminster’s top dogs to steal their beauty secrets. With glam that could put even the Real Housewives to shame, the pups who win Best in Show represent the platonic ideal of their breeds. Here’s what the canine stars use to stay ring-ready.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010684942/get-ready-with-scotty-the-pekingese.html
