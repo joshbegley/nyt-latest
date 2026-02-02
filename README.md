@@ -4,7 +4,7 @@ https://nytimes.com/athletic/7014664/2026/02/01/cardinals-mike-lafleur-kyler-mur
 
 **Kendrick Lamar Repeats, Winning Record of the Year With SZA**\
 `The rapper took the category last year with “Not Like Us.” This time, he shared the honor with SZA for their duet “Luther.”`\
-https://nytimes.com/live/2026/02/01/arts/grammys-2026/kendrick-lamar-repeats-winning-record-of-the-year-with-sza
+https://nytimes.com/2026/02/01/arts/music/kendrick-lamar-sza-record-of-year-grammys.html
 
 **Latest Batch of Epstein Files Includes Emails From Several Prominent Men**\
 `Elon Musk, Commerce Secretary Howard Lutnick and the N.F.L. Giants’ co-owner Steve Tisch are among the powerful men mentioned in the latest round of files released by the Justice Department as part of its investigation into the disgraced financier and convicted sex offender Jeffrey Epstein.`\
