@@ -1,6 +1,6 @@
 **Bad Bunny Caps a Huge Year With the Grammys’ Top Album Prize**\
 `One week before his Super Bowl halftime set, the Puerto Rican superstar won album of the year, defeating Lady Gaga, Kendrick Lamar and others.`\
-https://nytimes.com/live/2026/02/01/arts/grammys-2026/bad-bunny-caps-a-huge-year-with-the-grammys-top-album-prize
+https://nytimes.com/2026/02/01/arts/music/bad-bunny-grammys-album-of-the-year.html
 
 **Cher returns to the Grammys stage.**\
 `(No description)`\
