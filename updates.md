@@ -1,3 +1,7 @@
+**Palace have bid rejected for Club Brugge centre-back Ordonez**\
+`Ordonez, 21, signed a new contract with the Belgian club in September, extending his deal until 2029.`\
+https://nytimes.com/athletic/7015128/2026/02/02/crystal-palace-joel-ordonez-bid-transfer/
+
 **Charlie Davies relives his experience of a last-minute transfer**\
 `The Athletic's columnist relives his experience of an unexpected deadline-day transfer toward the end of his career`\
 https://nytimes.com/athletic/7011669/2026/02/02/charlie-davies-transfer-deadline-day-move/
