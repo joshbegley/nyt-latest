@@ -23,7 +23,7 @@ https://nytimes.com/2026/02/02/nyregion/trial-alexanders-sex-assault-takeaways.h
 https://nytimes.com/athletic/7015915/2026/02/02/tuskegee-coach-handcuffed-civil-lawsuit/
 
 **Bad Bunny and Super Bowl LX: How sports culture influences his musical playbook**\
-`Bad Bunny reveals his passion for sports in his lyrics, in which he mentions legends from MLB, the NBA, NFL and soccer.`\
+`The singer had a big Grammys night and will perform at halftime, has a passion for sports, with nods to MLB, NBA and soccer in his lyrics.`\
 https://nytimes.com/athletic/6991368/2026/02/02/bad-bunny-super-bowl-sports-music/
 
 **Sources: Bayern, Charlotte in advanced talks over Berchimas transfer**\

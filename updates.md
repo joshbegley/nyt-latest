@@ -1,3 +1,7 @@
+**Bad Bunny and Super Bowl LX: How sports culture influences his musical playbook**\
+`The singer had a big Grammys night and will perform at halftime, has a passion for sports, with nods to MLB, NBA and soccer in his lyrics.`\
+https://nytimes.com/athletic/6991368/2026/02/02/bad-bunny-super-bowl-sports-music/
+
 **Oversight Chairman Rejects Clintons’ Offer for Epstein Testimony**\
 `Bill Clinton agreed to an interview he had long resisted, but Representative James Comer, the Oversight Committee chairman, signaled he would go forward with holding the former president in contempt.`\
 https://nytimes.com/2026/02/02/us/politics/bill-hillary-clinton-epstein-comer-contempt.html
