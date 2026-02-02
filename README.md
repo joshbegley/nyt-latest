@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: President Says Kennedy Center Will Close for 2-Year Renovation**\
+``\
+https://nytimes.com/live/2026/02/02/us/trump-news
+
 **The Champions Cup is here to stay, but FIFA must learn lessons from London teething trouble**\
 `The tournament endured organisational issues, a presenting partner with a conflict of interest and a winner benefitting from home advantage`\
 https://nytimes.com/athletic/7014625/2026/02/02/champions-cup-fifa-arsenal-corinthians-kang/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7014342/2026/02/02/fantasy-premier-league-fpl-tips-
 **Trump Says Kennedy Center to Close for 2-Year Renovation**\
 `The performing arts center will shut on July 4 for the refit, President Trump announced on social media. The institution has been rocked by cancellations and boycotts.`\
 https://nytimes.com/video/us/politics/100000010683920/trump-close-kennedy-center.html
-
-**AFC: Which deals could happen on deadline day? Plus: Solanke scorpion kick stings City**\
-`Today in TAFC: We have all the updates on deadline day, a round-up of the weekend action, and a touching tribute to PAOK fans.`\
-https://nytimes.com/athletic/7015196/2026/02/02/transfer-deadline-day-solanke-scorpion-kick/
 
