@@ -1,3 +1,19 @@
+**Ian Holloway and a managerial rant for the ages: 'Sort your lives out every single stinking one of you'**\
+`The Swindon manager vented for four minutes to a local radio station after being asked what he thought of a game his side won 3-1`\
+https://nytimes.com/athletic/7013438/2026/02/02/ian-holloway-rant-swindon/
+
+**The anatomy of a transfer: Answering readers' questions about how the business works**\
+`We asked readers to send in questions they would like answered about how transfers work - and we put them to a range of experts and insiders`\
+https://nytimes.com/athletic/7001671/2026/02/02/transfers-questions-answered/
+
+**How United rediscovered self-belief under Carrick: Midfield balance, set pieces and cynicism**\
+`If Fulham was the 'real test' of Carrick's interim period, then his team have got through with a nervy passing grade.`\
+https://nytimes.com/athletic/7001280/2026/02/02/michael-carrick-united-rejuvenated/
+
+**With Merino out for Arsenal, what have they lost and do they need a replacement?**\
+`The Spaniard will be out for some time, and Arteta should have enough cover to cope. What what does Merino offer?`\
+https://nytimes.com/athletic/7013902/2026/02/02/mikel-merino-arsenal-injury-transfer/
+
 **Solanke and Simons giving Tottenham fans something to believe in**\
 `At half-time it felt we could be on the brink of something really ugly. But instead, the team and the fans provided the polar opposite`\
 https://nytimes.com/athletic/7007491/2026/02/02/tottenham-solanke-simons-man-city-atmosphere/

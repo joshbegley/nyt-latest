@@ -1,3 +1,7 @@
+**The Briefing: Guardiola under a Spurs curse? Was Solanke's the best scorpion kick? Fernandes to topple Henry?**\
+`Welcome to The Briefing, The Athletic's weekly look at the big questions from the Premier League weekend`\
+https://nytimes.com/athletic/7014148/2026/02/02/guardiola-solanke-bruno-fernandes/
+
 **Ian Holloway and a managerial rant for the ages: 'Sort your lives out every single stinking one of you'**\
 `The Swindon manager vented for four minutes to a local radio station after being asked what he thought of a game his side won 3-1`\
 https://nytimes.com/athletic/7013438/2026/02/02/ian-holloway-rant-swindon/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/02/pageoneplus/quote-of-the-day-k-pop-stokes-a-fire-
 **Move Fast, but Obey the Rules: China’s Vision for Dominating A.I.**\
 `Beijing wants to lead the world in developing cutting-edge artificial intelligence, but it also wants companies to adhere to an increasingly complex set of rules.`\
 https://nytimes.com/2026/02/02/business/china-ai-regulations.html
-
-**Connections: Sports Edition Coach: Hints for Feb. 2, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7014700/2026/02/02/connections-sports-edition-hints-for-feb-2-2026/
 
