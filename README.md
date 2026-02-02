@@ -1,3 +1,7 @@
+**Submit your college basketball questions for our mailbag**\
+`With six weeks until the NCAA Tournament, conference championship races and the tournament picture are starting to take shape.`\
+https://nytimes.com/athletic/7015575/2026/02/02/submit-your-mens-college-basketball-questions-for-our-mailbag/
+
 **Dodger Details: Mookie Betts' bat, Tanner Scott's role and more**\
 `As Betts seeks to get his power groove back, the Dodgers have him penciled in at the No. 3 spot in the batting order. `\
 https://nytimes.com/athletic/7014485/2026/02/02/dodgers-mlb-mookie-betts-tanner-scott/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7015305/2026/02/02/premier-league-data-notebook-md2
 **Inside Real Madrid: Bernabeu boos, Bellingham blow, Fran Garcia's transfer decision**\
 `After another hostile reception from home fans on Sunday, tensions continue to build around Alvaro Arbeloa's side`\
 https://nytimes.com/athletic/7015185/2026/02/02/inside-real-madrid-bernabeu-boos-bellingham-blow-fran-garcias-transfer-decision/
-
-**‘A Terrifying Line Is Being Crossed’: Mayor Jacob Frey on the Turmoil in Minneapolis**\
-`The Minnesota Democrat discussed the battle between his city and the federal government with Lulu Garcia-Navarro.`\
-https://nytimes.com/video/podcasts/100000010684019/a-terrifying-line-is-being-crossed-mayor-jacob-frey-on-the-turmoil-in-minneapolis.html
 
