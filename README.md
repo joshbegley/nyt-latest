@@ -1,3 +1,11 @@
+**U.S. and Iranian Officials to Meet as Trump’s Threats Loom**\
+`President Trump’s Middle East envoy and his son-in-law were expected to meet Iran’s foreign minister in Istanbul on Friday amid tensions between the countries.`\
+https://nytimes.com/2026/02/02/world/middleeast/us-iran-meeting-trump-threats.html
+
+**Judge Again Blocks Policy Restricting Lawmakers’ Access to ICE Facilities**\
+`For a second time, Judge Jia M. Cobb found that a Trump administration policy requiring a seven-day waiting period was unlawful.`\
+https://nytimes.com/2026/02/02/us/politics/congress-ice-facilities-inspections.html
+
 **Trump Announces Initial Trade Deal With India**\
 `The agreement was short on details, but President Trump said India had promised to stop buying Russian oil and would buy more U.S. products for a reduction on tariffs.`\
 https://nytimes.com/2026/02/02/us/politics/trump-tariffs-india-trade-deal.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/02/02/weather/unusual-cold-freezing-streak.html
 **Jobs Report Delayed Because of Partial Shutdown**\
 `The report, scheduled for Friday, would have provided data on job growth, unemployment and wages in January.`\
 https://nytimes.com/2026/02/02/business/economy/january-jobs-report-delayed-shutdown.html
-
-**AP men's hoops Top 25: Arizona unanimous No. 1 again, Michigan jumps UConn for No. 2**\
-`Illinois also rose to its highest ranking since 2021 after beating Purdue and Nebraska.`\
-https://nytimes.com/athletic/7016243/2026/02/02/ap-college-basketball-poll-arizona-michigan-uconn-duke-illinois/
-
-**2 More Arrested in Minnesota Church Protest Against ICE Enforcement**\
-`Nine defendants have been taken into custody in a federal prosecution that includes the journalist Don Lemon and has alarmed First Amendment advocates.`\
-https://nytimes.com/2026/02/02/us/cities-church-arrests-minnesota-ice.html
 
