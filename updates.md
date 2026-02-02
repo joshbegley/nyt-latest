@@ -1,3 +1,7 @@
+**Mayor Mamdani’s New Coat Blends Workwear with Skate Culture**\
+`As he dealt with a major snowstorm, the mayor appeared in a personalized Carhartt jacket designed with help from his wife.`\
+https://nytimes.com/2026/02/02/style/mamdani-carhartt-jacket-rama-duwaji.html
+
 **Stars Bring ‘ICE OUT’ Pins and Fiery Speeches to a Political Grammys**\
 `Bad Bunny, Billie Eilish and Kehlani made strong statements about immigration on Sunday, while the host Trevor Noah drew President Trump’s ire.`\
 https://nytimes.com/2026/02/02/arts/music/grammy-awards-ice-trump.html
