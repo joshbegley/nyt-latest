@@ -1,3 +1,7 @@
+**Trump Had Unusual Call With F.B.I. Agents After Election Center Search**\
+`The phone conversation was arranged by the director of national intelligence, Tulsi Gabbard, who met with the agents a day after the search for reasons that remain unclear, The New York Times has learned.`\
+https://nytimes.com/2026/02/02/us/politics/trump-fbi-phone-call-georgia-gabbard.html
+
 **Infantino against Russia & Israel bans, defends Trump's Peace Prize**\
 `Both FIFA and UEFA banned the Russian national team from competing in 2022 after the country illegally invaded Ukraine. `\
 https://nytimes.com/athletic/7015741/2026/02/02/gianni-infantino-fifa-russia-israel-trump/

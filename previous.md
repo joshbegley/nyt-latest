@@ -23,7 +23,7 @@ https://nytimes.com/athletic/7015952/2026/02/02/islanders-vs-capitals-stream-how
 https://nytimes.com/2026/02/02/us/groundhog-day-results.html
 
 **Trump Had Unusual Call With F.B.I. Agents After Election Center Search**\
-`The phone conversation was arranged by the director of national intelligence, Tulsi Gabbard, who met with the agents a day after the search for reasons that remain unclear.`\
+`The phone conversation was arranged by the director of national intelligence, Tulsi Gabbard, who met with the agents a day after the search for reasons that remain unclear, The New York Times has learned.`\
 https://nytimes.com/2026/02/02/us/politics/trump-fbi-phone-call-georgia-gabbard.html
 
 **How to watch Auburn vs. Ole Miss women's basketball: Time, TV, streaming**\
