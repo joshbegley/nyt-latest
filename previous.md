@@ -1,3 +1,19 @@
+**Takeaways From the First Week of the Alexander Brothers Trial**\
+`Jurors in the sex trafficking case heard from the first witnesses and saw graphic evidence of the crimes the brothers are accused of.`\
+https://nytimes.com/2026/02/02/nyregion/trial-alexanders-sex-assault-takeaways.html
+
+**Tuskegee coach handcuffed postgame, retains civil rights attorneys**\
+`Tuskegee basketball coach Benjy Taylor has hired civil rights lawyers after being handcuffed following Saturday's game at Morehouse College.`\
+https://nytimes.com/athletic/7015915/2026/02/02/tuskegee-coach-handcuffed-civil-lawsuit/
+
+**Bad Bunny and Super Bowl LX: How sports culture influences his musical playbook**\
+`Bad Bunny reveals his passion for sports in his lyrics, in which he mentions legends from MLB, the NBA, NFL and soccer.`\
+https://nytimes.com/athletic/6991368/2026/02/02/bad-bunny-super-bowl-sports-music/
+
+**Sources: Bayern, Charlotte in advanced talks over Berchimas transfer**\
+`The 17-year-old winger has been on the radar of a host of top European clubs`\
+https://nytimes.com/athletic/7016078/2026/02/02/nimfasha-berchimas-transfer-bayern-munich-charlotte-fc/
+
 **Blue Jackets Monday Gathering: Hot streak adds pressure to GM Don Waddell's decision-making**\
 `Waddell needs to make a choice fairly soon about being a buyer or seller ahead of the March 6 trade deadline.`\
 https://nytimes.com/athletic/7014932/2026/02/02/blue-jackets-waddell-trade-deadline/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/02/nyregion/nyc-winter-cold.html
 **Games Briefing: The Winter Olympics primer, schedule and what to expect**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7016002/2026/02/02/milan-cortina-winter-olympics-2026-games-briefing/
-
-**Saints will play NFL's first regular-season game in France 2026**\
-`The game will be played at Stade de France in Paris with an opponent for the Saints to be revealed at a later date.`\
-https://nytimes.com/athletic/7014648/2026/02/02/saints-paris-france-nfl-regular-season-game/
-
-**Infantino against Russia & Israel bans, defends Trump's Peace Prize**\
-`Both FIFA and UEFA banned the Russian national team from competing in 2022 after the country illegally invaded Ukraine. `\
-https://nytimes.com/athletic/7015741/2026/02/02/gianni-infantino-fifa-russia-israel-trump/
-
-**How to watch Rockets vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7015963/2026/02/02/rockets-vs-pacers-stream-how-to-watch-feb-2/
-
-**How to watch Senators vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7015959/2026/02/02/senators-vs-penguins-stream-how-to-watch-feb-2/
 
