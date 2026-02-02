@@ -1,3 +1,15 @@
+**John Forté, Hip-Hop Redemption Tale, Dies at 50**\
+`He seemed destined for a glittering career, working with the Fugees and solo, then landed in prison. After a presidential pardon, he clawed his way back.`\
+https://nytimes.com/2026/02/02/arts/music/john-forte-dead.html
+
+**Mariners close to acquiring All-Star Brendan Donovan from the Cardinals: Sources**\
+`The Cardinals could have kept Donovan as a player to build around but chose otherwise.`\
+https://nytimes.com/athletic/6826835/2026/02/02/mlb-cardinals-trade-brendan-donovan-mariners/
+
+**Arbitrator rules Heat must pay Terry Rozier full salary; trade status still unclear**\
+`Rozier was placed on unpaid leave earlier this season, and an arbitrator heard the dispute between the league and union in December.`\
+https://nytimes.com/athletic/7016585/2026/02/02/terry-rozier-arbitration-ruling-salary-miami-heat/
+
 **The Message From Texas Voters: We’re Neighbors, Not Enemies**\
 `Many Americans are growing both exhausted and frightened by Trump’s scorched-earth, hyperpartisan, fire-ready-aim approach to the presidency.`\
 https://nytimes.com/2026/02/02/opinion/columnists/trump-america-identity.html

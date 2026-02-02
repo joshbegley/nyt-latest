@@ -1,3 +1,11 @@
+**John Forté, Hip-Hop Redemption Tale, Dies at 50**\
+`He seemed destined for a glittering career, working with the Fugees and solo, then landed in prison. After a presidential pardon, he clawed his way back.`\
+https://nytimes.com/2026/02/02/arts/music/john-forte-dead.html
+
+**Mariners close to acquiring All-Star Brendan Donovan from the Cardinals: Sources**\
+`The Cardinals could have kept Donovan as a player to build around but chose otherwise.`\
+https://nytimes.com/athletic/6826835/2026/02/02/mlb-cardinals-trade-brendan-donovan-mariners/
+
 **The Message From Texas Voters: We’re Neighbors, Not Enemies**\
 `Many Americans are growing both exhausted and frightened by Trump’s scorched-earth, hyperpartisan, fire-ready-aim approach to the presidency.`\
 https://nytimes.com/2026/02/02/opinion/columnists/trump-america-identity.html
@@ -6,8 +14,8 @@ https://nytimes.com/2026/02/02/opinion/columnists/trump-america-identity.html
 `A yearslong effort to convince the Trump administration that Christians are persecuted in the West African nation has shifted U.S. policy.`\
 https://nytimes.com/2026/02/02/world/trump-bomb-nigeria-campaign-rafah-crossing.html
 
-**Arbitrator rules Miami Heat must pay Terry Rozier full salary**\
-`It remains unclear if Rozier can be traded this season.`\
+**Arbitrator rules Heat must pay Terry Rozier full salary; trade status still unclear**\
+`Rozier was placed on unpaid leave earlier this season, and an arbitrator heard the dispute between the league and union in December.`\
 https://nytimes.com/athletic/7016585/2026/02/02/terry-rozier-arbitration-ruling-salary-miami-heat/
 
 **Disappearance of ‘Today’ Host’s Mother Is a Crime, Investigators Say**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7002908/2026/02/02/davis-webb-broncos-offensive-coo
 **Cher’s Grammy Flub Joins a Pantheon of Award-Show Gaffes**\
 `“I don’t do this part very well,” the singer said, just before she seemed to award a Grammy to Luther Vandross, who died in 2005. Plenty of celebrities have made similar goofs.`\
 https://nytimes.com/2026/02/02/arts/music/cher-grammy-mistake-award-show-gaffes.html
-
-**Browns' Shedeur Sanders ‘truly thankful’ for Pro Bowl experience**\
-`Sanders was named to the Pro Bowl after three AFC quarterbacks suffered season-ending injuries and Trevor Lawrence declined to participate.`\
-https://nytimes.com/athletic/7016527/2026/02/02/shedeur-sanders-pro-bowl-browns-joe-flacco/
-
-**How to watch Canadiens vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7016582/2026/02/02/canadiens-vs-wild-stream-how-to-watch-feb-2/
 
