@@ -1,3 +1,7 @@
+**Grammys Instant Reactions! Bad Bunny Owns the Night**\
+`Popcast breaks down the show’s major moments in a live reaction episode immediately following the ceremony.`\
+https://nytimes.com/2026/02/02/arts/music/grammys-2026-reactions-popcast.html
+
 **Word of the Day: accede**\
 `This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/02/learning/word-of-the-day-accede.html
