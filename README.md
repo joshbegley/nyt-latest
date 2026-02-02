@@ -1,3 +1,7 @@
+**Premier League data notebook: The Ekitike & Wirtz show, Man Utd's set- pieces, Wolves' defensive secret**\
+`The Athletic's data writers break down the key storylines from the weekend's action`\
+https://nytimes.com/athletic/7015305/2026/02/02/premier-league-data-notebook-md24-liverpool-man-utd-spurs/
+
 **Inside Real Madrid: Bernabeu boos, Bellingham blow, Fran Garcia's transfer decision**\
 `After another hostile reception from home fans on Sunday, tensions continue to build around Alvaro Arbeloa's side`\
 https://nytimes.com/athletic/7015185/2026/02/02/inside-real-madrid-bernabeu-boos-bellingham-blow-fran-garcias-transfer-decision/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7015318/2026/02/02/inside-barcelona-elche-xg-ter-st
 **Mercedes' Wolff tells F1 rivals to 'get your s--- together' on engine scrutiny**\
 `Other F1 teams have raised concerns about Mercedes and Red Bull finding an engine loophole - a topic that is set to remain in the spotlight.`\
 https://nytimes.com/athletic/7015388/2026/02/02/mercedes-formula-1-engine-loophole-wolff/
-
-**Chris Stapleton's 'F1 The Movie' song gets Grammy recognition**\
-`'F1 The Movie' had three nominations across Music's Biggest Night.`\
-https://nytimes.com/athletic/7015432/2026/02/02/f1-movie-grammy-stapleton/
 
