@@ -1,3 +1,11 @@
+**Billie Eilish Wins Her Third Song of the Year Grammy**\
+`“Wildflower” beat tracks by Bad Bunny, Lady Gaga and Doechii.`\
+https://nytimes.com/2026/02/01/arts/music/billie-eilish-song-of-the-year-grammy.html
+
+**Man and Dog Found Dead Inside Mobile Veterinary Van in Queens**\
+`A second man was found unconscious outside the van. The police are investigating whether the deaths were caused by carbon monoxide from a generator.`\
+https://nytimes.com/2026/02/01/nyregion/man-dog-dead-van-queens.html
+
 **N.Y. Republican in Swing District Gets Rowdy Reception at Town Hall**\
 `Representative Mike Lawler, who has promised to hold several town halls as he seeks re-election, was repeatedly heckled by audience members in Rockland County.`\
 https://nytimes.com/2026/02/01/nyregion/mike-lawler-ny-town-hall.html

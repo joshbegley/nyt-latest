@@ -1,3 +1,11 @@
+**Billie Eilish Wins Her Third Song of the Year Grammy**\
+`“Wildflower” beat tracks by Bad Bunny, Lady Gaga and Doechii.`\
+https://nytimes.com/2026/02/01/arts/music/billie-eilish-song-of-the-year-grammy.html
+
+**Man and Dog Found Dead Inside Mobile Veterinary Van in Queens**\
+`A second man was found unconscious outside the van. The police are investigating whether the deaths were caused by carbon monoxide from a generator.`\
+https://nytimes.com/2026/02/01/nyregion/man-dog-dead-van-queens.html
+
 **N.Y. Republican in Swing District Gets Rowdy Reception at Town Hall**\
 `Representative Mike Lawler, who has promised to hold several town halls as he seeks re-election, was repeatedly heckled by audience members in Rockland County.`\
 https://nytimes.com/2026/02/01/nyregion/mike-lawler-ny-town-hall.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/01/arts/music/olivia-dean-best-new-artist-grammys.ht
 **Goalie fight, again! Watch Vasilevskiy and Swayman throw down at center ice**\
 `The two goalies duked it out at center ice during the NHL Stadium Series at Tampa's Raymond James Stadium.`\
 https://nytimes.com/athletic/7014696/2026/02/01/nhl-goalie-fight-vasilevskiy-swayman-stadium-series/
-
-**‘KPop Demon Hunters’ is inspiring fans to learn Korean.**\
-`By Amy Qin`\
-https://nytimes.com/live/2026/02/01/arts/grammys-2026/kpop-demon-hunters-is-inspiring-fans-to-learn-korean
-
-**10-Minute Challenge: A Painting of Time**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://nytimes.com/interactive/2026/02/01/upshot/10-minute-challenge-biernoff.html
 
