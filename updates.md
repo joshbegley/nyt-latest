@@ -1,3 +1,7 @@
+**Saints will play NFL's first regular-season game in France 2026**\
+`The game will be played at Stade de France in Paris with an opponent for the Saints to be revealed at a later date.`\
+https://nytimes.com/athletic/7014648/2026/02/02/saints-paris-france-nfl-regular-season-game/
+
 **Trump Had Unusual Call With F.B.I. Agents After Election Center Search**\
 `The phone conversation was arranged by the director of national intelligence, Tulsi Gabbard, who met with the agents a day after the search for reasons that remain unclear, The New York Times has learned.`\
 https://nytimes.com/2026/02/02/us/politics/trump-fbi-phone-call-georgia-gabbard.html

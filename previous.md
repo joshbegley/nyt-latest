@@ -1,3 +1,7 @@
+**Saints will play NFL's first regular-season game in France 2026**\
+`The game will be played at Stade de France in Paris with an opponent for the Saints to be revealed at a later date.`\
+https://nytimes.com/athletic/7014648/2026/02/02/saints-paris-france-nfl-regular-season-game/
+
 **Infantino against Russia & Israel bans, defends Trump's Peace Prize**\
 `Both FIFA and UEFA banned the Russian national team from competing in 2022 after the country illegally invaded Ukraine. `\
 https://nytimes.com/athletic/7015741/2026/02/02/gianni-infantino-fifa-russia-israel-trump/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7015925/2026/02/02/auburn-vs-ole-miss-stream-how-to
 **How to watch Syracuse vs. North Carolina men's basketball: Time, TV, streaming**\
 `Find out how to watch the Syracuse Orange play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7015920/2026/02/02/syracuse-vs-north-carolina-stream-how-to-watch-feb-2/
-
-**The Windup: Why is Framber Valdez still unsigned?**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7015894/2026/02/02/framber-valdez-offseason-signing-the-windup/
 

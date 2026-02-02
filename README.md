@@ -1,3 +1,7 @@
+**Games Briefing: The Winter Olympics primer, schedule and what to expect**\
+`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7016002/2026/02/02/milan-cortina-winter-olympics-2026-games-briefing/
+
 **Saints will play NFL's first regular-season game in France 2026**\
 `The game will be played at Stade de France in Paris with an opponent for the Saints to be revealed at a later date.`\
 https://nytimes.com/athletic/7014648/2026/02/02/saints-paris-france-nfl-regular-season-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/02/us/politics/trump-fbi-phone-call-georgia-gabbard.
 **How to watch Auburn vs. Ole Miss women's basketball: Time, TV, streaming**\
 `Find out how to watch the Auburn Tigers play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7015925/2026/02/02/auburn-vs-ole-miss-stream-how-to-watch-feb-2/
-
-**How to watch Syracuse vs. North Carolina men's basketball: Time, TV, streaming**\
-`Find out how to watch the Syracuse Orange play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7015920/2026/02/02/syracuse-vs-north-carolina-stream-how-to-watch-feb-2/
 
