@@ -1,3 +1,15 @@
+**Man City's Rodri questions referee neutrality after 'clear foul' against Spurs**\
+`Rodri claimed it was clear "people" do not want City to win due to their past successes but that referees must remain "neutral".`\
+https://nytimes.com/athletic/7015311/2026/02/02/rodri-manchester-city-referee-criticism-var/
+
+**Inside Barcelona: Yamal and company are on a roll. The only 'bad thing'? Missed chances**\
+`Hansi Flick's team are still top of La Liga, but an expected goals figure of 6.44 in the 3-1 win at Elche shows where they can improve`\
+https://nytimes.com/athletic/7015318/2026/02/02/inside-barcelona-elche-xg-ter-stegen-raphinha/
+
+**Mercedes' Wolff tells F1 rivals to 'get your s--- together' on engine scrutiny**\
+`Other F1 teams have raised concerns about Mercedes and Red Bull finding an engine loophole - a topic that is set to remain in the spotlight.`\
+https://nytimes.com/athletic/7015388/2026/02/02/mercedes-formula-1-engine-loophole-wolff/
+
 **Mercedes' Wolff tells F1 rivals to 'get your s---' together on engine scrutiny**\
 `Other F1 teams have raised concerns about Mercedes and Red Bull finding an engine loophole - a topic that is set to remain in the spotlight.`\
 https://nytimes.com/athletic/7015388/2026/02/02/mercedes-formula-1-engine-loophole-wolff/

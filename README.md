@@ -1,3 +1,11 @@
+**The Champions Cup is here to stay, but FIFA must learn lessons from London teething trouble**\
+`The tournament endured organisational issues, a presenting partner with a conflict of interest and a winner benefitting from home advantage`\
+https://nytimes.com/athletic/7014625/2026/02/02/champions-cup-fifa-arsenal-corinthians-kang/
+
+**How to watch the 2026 Winter Olympics: Schedule, TV times for Milan Cortina Games**\
+`Ninety-three countries are represented across 16 sports. Here's how interested viewers can keep up with overseas events.`\
+https://nytimes.com/athletic/6958414/2026/02/02/winter-olympics-milan-how-to-watch/
+
 **Man City's Rodri questions referee neutrality after 'clear foul' against Spurs**\
 `Rodri claimed it was clear "people" do not want City to win due to their past successes but that referees must remain "neutral".`\
 https://nytimes.com/athletic/7015311/2026/02/02/rodri-manchester-city-referee-criticism-var/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010683920/trump-close-kennedy-center
 **AFC: Which deals could happen on deadline day? Plus: Solanke scorpion kick stings City**\
 `Today in TAFC: We have all the updates on deadline day, a round-up of the weekend action, and a touching tribute to PAOK fans.`\
 https://nytimes.com/athletic/7015196/2026/02/02/transfer-deadline-day-solanke-scorpion-kick/
-
-**Erfan Soltani, Iranian Protester Who Reportedly Faced a Death Sentence, Is Released on Bail**\
-`Mr. Soltani, 26, was arrested last month as Iran brutally repressed anti-government demonstrations.`\
-https://nytimes.com/2026/02/02/world/middleeast/iran-protester-erfan-soltani.html
-
-**Mother of ‘Today’ Anchor Savannah Guthrie Is Missing, Authorities Say**\
-`Nancy Guthrie, 84, was last seen on Saturday night near her home in Tucson, Ariz., the authorities said.`\
-https://nytimes.com/2026/02/02/us/savannah-guthrie-mother-missing.html
 

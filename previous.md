@@ -1,4 +1,12 @@
-**Mercedes' Wolff tells F1 rivals to 'get your s---' together on engine scrutiny**\
+**Man City's Rodri questions referee neutrality after 'clear foul' against Spurs**\
+`Rodri claimed it was clear "people" do not want City to win due to their past successes but that referees must remain "neutral".`\
+https://nytimes.com/athletic/7015311/2026/02/02/rodri-manchester-city-referee-criticism-var/
+
+**Inside Barcelona: Yamal and company are on a roll. The only 'bad thing'? Missed chances**\
+`Hansi Flick's team are still top of La Liga, but an expected goals figure of 6.44 in the 3-1 win at Elche shows where they can improve`\
+https://nytimes.com/athletic/7015318/2026/02/02/inside-barcelona-elche-xg-ter-stegen-raphinha/
+
+**Mercedes' Wolff tells F1 rivals to 'get your s--- together' on engine scrutiny**\
 `Other F1 teams have raised concerns about Mercedes and Red Bull finding an engine loophole - a topic that is set to remain in the spotlight.`\
 https://nytimes.com/athletic/7015388/2026/02/02/mercedes-formula-1-engine-loophole-wolff/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/02/world/middleeast/iran-protester-erfan-soltani.htm
 **Mother of ‘Today’ Anchor Savannah Guthrie Is Missing, Authorities Say**\
 `Nancy Guthrie, 84, was last seen on Saturday night near her home in Tucson, Ariz., the authorities said.`\
 https://nytimes.com/2026/02/02/us/savannah-guthrie-mother-missing.html
-
-**TGL Match 7 preview: For Jupiter Links GC, it's Groundhog Day in the SoFi Center**\
-`Undefeated Atlanta Drive GC are the heavy favorites going into Monday's Match 7 against winless Jupiter Links GC. `\
-https://nytimes.com/athletic/7014158/2026/02/02/tgl-match-7-preview-atlanta-drive-jupiter-links-odds/
-
-**49ers macro minute: Mac Jones and Brock Purdy split the season. Who came out on top?**\
-`Christian McCaffrey went over 1,000 snaps for the third time in his career, while Upton Stout led the 49ers' rookies in several categories.`\
-https://nytimes.com/athletic/7002424/2026/02/02/49ers-roster-review-brock-purdy-mac-jones/
 
