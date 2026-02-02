@@ -1,3 +1,7 @@
+**Charlie Davies relives his experience of a last-minute transfer**\
+`The Athletic's columnist relives his experience of an unexpected deadline-day transfer toward the end of his career`\
+https://nytimes.com/athletic/7011669/2026/02/02/charlie-davies-transfer-deadline-day-move/
+
 **After Weeks of Rancor, a Glimmer of Hope in N.Y.C. Nurses’ Strike**\
 `Nearly 15,000 workers have been off the job at some of New York’s top hospitals for three weeks, but signs of progress have emerged in negotiations.`\
 https://nytimes.com/2026/02/02/nyregion/nyc-nurses-strike-negotiations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/02/arts/music/grammys-2026-reactions-popcast.html
 **Word of the Day: accede**\
 `This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/02/learning/word-of-the-day-accede.html
-
-**Super Bowl 60 headliner Bad Bunny says 'ICE out' after winning at Grammy Awards**\
-`The Puerto Rican star made his feelings known about the immigration crackdown across the U.S. before performing at the Super Bowl next week.`\
-https://nytimes.com/athletic/7014912/2026/02/02/bad-bunny-grammy-speech-ice-protest/
 
