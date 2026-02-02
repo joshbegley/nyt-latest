@@ -1,3 +1,7 @@
+**Goalie fight, again! Watch Vasilevskiy and Swayman throw down at center ice**\
+`The two goalies duked it out at center ice during the NHL Stadium Series at Tampa's Raymond James Stadium.`\
+https://nytimes.com/athletic/7014696/2026/02/01/nhl-goalie-fight-vasilevskiy-swayman-stadium-series/
+
 **Olivia Dean Caps a Rocket-Ship Year With a Best New Artist Grammy**\
 `The “Man I Need” singer defeated a fellow British vocalist, Lola Young, as well as Leon Thomas, Addison Rae and others.`\
 https://nytimes.com/2026/02/01/arts/music/olivia-dean-best-new-artist-grammys.html
