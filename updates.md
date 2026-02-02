@@ -1,3 +1,7 @@
+**With six nods, Leon Thomas is ready for a Grammy spotlight.**\
+`By Niela Orr`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/with-six-nods-leon-thomas-is-ready-for-a-grammy-spotlight
+
 **Kawhi Leonard, Alperen Şengün among 10 biggest 'snubs' for 2026 All-Star Game**\
 `Simply put, Leonard has been one of the best players in the league on a per-minute basis. Despite that, he was snubbed as an All-Star.`\
 https://nytimes.com/athletic/7014513/2026/02/01/nba-all-star-top-10-snubs-kawhi-leonard-sengun-james-harden-nba/
