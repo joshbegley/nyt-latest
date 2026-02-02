@@ -1,3 +1,7 @@
+**Titans hiring Gus Bradley as defensive coordinator: source**\
+`Bradley, a former head coach with the Jaguars, follows new head coach Robert Saleh from the 49ers to the Titans.`\
+https://nytimes.com/athletic/7016833/2026/02/02/titans-gus-bradley-defensive-coordinator/
+
 **NBC Sports set to host Super Bowl LX pregame coverage from Alcatraz Island**\
 `Alcatraz will play host for segments of NBC's Super Bowl coverage on Sunday.`\
 https://nytimes.com/athletic/7016788/2026/02/02/nbc-sports-set-to-host-super-bowl-lx-pregame-coverage-from-alcatraz-island/
