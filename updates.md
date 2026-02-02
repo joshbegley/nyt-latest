@@ -1,3 +1,15 @@
+**Super Bowl 60 headliner Bad Bunny says 'ICE out' after winning at Grammys**\
+`The Puerto Rican superstar made his feelings known about the aggressive immigration crackdown across the U.S.`\
+https://nytimes.com/athletic/7014912/2026/02/02/bad-bunny-grammy-speech-ice-protest/
+
+**Super Bowl LX, Plus 6 Things on TV This Week**\
+`The Olympic Games in Milan and Cortina begin, and the Seattle Seahawks face the New England Patriots.`\
+https://nytimes.com/2026/02/02/arts/television/super-bowl-lx-plus-6-things-on-tv-this-week.html
+
+**The New York Times in Print for Monday, Feb. 2, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/02/todays-new-york-times
+
 **Palace are set to break their transfer record twice this window — but they still lack stardust**\
 `Oliver Glasner's team is failing to win even when dominating, a result of losing Michael Olise and Eberechi Eze`\
 https://nytimes.com/athletic/7003881/2026/02/02/crystal-palace-transfer-record-johnson-glasner/

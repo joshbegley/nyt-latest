@@ -1,3 +1,15 @@
+**Super Bowl 60 headliner Bad Bunny says 'ICE out' after winning at Grammys**\
+`The Puerto Rican superstar made his feelings known about the aggressive immigration crackdown across the U.S.`\
+https://nytimes.com/athletic/7014912/2026/02/02/bad-bunny-grammy-speech-ice-protest/
+
+**Super Bowl LX, Plus 6 Things on TV This Week**\
+`The Olympic Games in Milan and Cortina begin, and the Seattle Seahawks face the New England Patriots.`\
+https://nytimes.com/2026/02/02/arts/television/super-bowl-lx-plus-6-things-on-tv-this-week.html
+
+**The New York Times in Print for Monday, Feb. 2, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/02/todays-new-york-times
+
 **Palace are set to break their transfer record twice this window — but they still lack stardust**\
 `Oliver Glasner's team is failing to win even when dominating, a result of losing Michael Olise and Eberechi Eze`\
 https://nytimes.com/athletic/7003881/2026/02/02/crystal-palace-transfer-record-johnson-glasner/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7012180/2026/02/02/newcastle-howe-rivals-liverpool/
 **Everton and the logic of fielding a back line comprised entirely of centre-halves**\
 `David Moyes has more strength in depth to call upon these days, but his quest to make all the pieces fit together remains a work in progress`\
 https://nytimes.com/athletic/7012564/2026/02/02/everton-moyes-tarkovski-branthwaite-keane-obrien/
-
-**Is bringing back Tammy Abraham and Douglas Luiz a step forward for Aston Villa?**\
-`After back-to-back home defeats in the Premier League, Unai Emery's side need their new signings to provide fresh energy `\
-https://nytimes.com/athletic/7013376/2026/02/02/aston-villa-tammy-abraham-douglas-luiz-brentford/
-
-**The Briefing: Guardiola under a Spurs curse? Was Solanke's the best scorpion kick? Fernandes to topple Henry?**\
-`Welcome to The Briefing, The Athletic's weekly look at the big questions from the Premier League weekend`\
-https://nytimes.com/athletic/7014148/2026/02/02/guardiola-solanke-bruno-fernandes/
-
-**Ian Holloway and a managerial rant for the ages: 'Sort your lives out every single stinking one of you'**\
-`The Swindon manager vented for four minutes to a local radio station after being asked what he thought of a game his side won 3-1`\
-https://nytimes.com/athletic/7013438/2026/02/02/ian-holloway-rant-swindon/
 
