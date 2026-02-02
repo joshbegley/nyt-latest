@@ -1,3 +1,19 @@
+**Peter Attia ‘Ashamed’ After Epstein Emails Become Public**\
+`The longevity influencer said he “never witnessed illegal behavior” but would not defend his crude remarks about women and comments on Jeffrey Epstein’s “outrageous” life.`\
+https://nytimes.com/2026/02/02/well/peter-attia-epstein.html
+
+**Elon Musk Merges SpaceX With His A.I. Start-Up xAI**\
+`The deal would further intermingle Mr. Musk’s companies and create the most valuable private company on earth.`\
+https://nytimes.com/2026/02/02/business/spacex-xai-deal.html
+
+**Some Federal Workers Furloughed in Partial Government Shutdown**\
+`Some of the affected agencies announced sweeping furloughs, while others tapped reserve funds to get through what they expected to be a short shutdown.`\
+https://nytimes.com/2026/02/02/us/politics/federal-workers-furloughed-government-shutdown.html
+
+**N.I.H. Worker Who Criticized Trump Seeks Whistle-Blower Protection**\
+`Jenna Norton, a National Institutes of Health employee, has been an outspoken critic of the administration’s research cuts and has been on paid leave.`\
+https://nytimes.com/2026/02/02/us/politics/nih-worker-trump-whistle-blower-protection.html
+
 **Why Ricardo Pepi's Fulham transfer collapse can help his World Cup outlook**\
 `Pepi's move to the Premier League is off, but it's a situation that could work into the U.S. striker's favor with regard to the World Cup`\
 https://nytimes.com/athletic/7016567/2026/02/02/ricardo-pepi-fulham-transfer-psv-usmnt-world-cup/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/02/world/trump-bomb-nigeria-campaign-rafah-crossing.
 **Arbitrator rules Heat must pay Terry Rozier full salary; trade status still unclear**\
 `Rozier was placed on unpaid leave earlier this season, and an arbitrator heard the dispute between the league and union in December.`\
 https://nytimes.com/athletic/7016585/2026/02/02/terry-rozier-arbitration-ruling-salary-miami-heat/
-
-**Disappearance of ‘Today’ Host’s Mother Is a Crime, Investigators Say**\
-`Savannah Guthrie’s mother, Nancy Guthrie, 84, was last seen on Saturday near her home in Tucson, Ariz. The Pima County sheriff said on Monday that “she did not leave on her own.”`\
-https://nytimes.com/video/us/100000010684257/savannah-guthrie-mother-missing.html
-
-**Measles Hits ICE Family Detention Center in Texas**\
-`The Department of Homeland Security has imposed a quarantine on a family detention center in Dilley, Texas, after two detainees contracted the disease.`\
-https://nytimes.com/2026/02/02/us/politics/ice-measles-texas.html
-
-**Morgan Rielly likely out until after Olympic break with 'lingering' injury**\
-`Rielly left Saturday's game against the Canucks with what coach Craig Berube described as an aggravated "upper body" injury.`\
-https://nytimes.com/athletic/7016486/2026/02/02/morgan-rielly-injury-update-upper-body-olympic-break/
-
-**Broncos promote Davis Webb to offensive coordinator**\
-`Webb replaces Joe Lombardi, who was fired after Denver's 10-7 loss in the AFC Championship Game.`\
-https://nytimes.com/athletic/7002908/2026/02/02/davis-webb-broncos-offensive-coordinator/
 

@@ -1,3 +1,19 @@
+**Peter Attia ‘Ashamed’ After Epstein Emails Become Public**\
+`The longevity influencer said he “never witnessed illegal behavior” but would not defend his crude remarks about women and comments on Jeffrey Epstein’s “outrageous” life.`\
+https://nytimes.com/2026/02/02/well/peter-attia-epstein.html
+
+**Elon Musk Merges SpaceX With His A.I. Start-Up xAI**\
+`The deal would further intermingle Mr. Musk’s companies and create the most valuable private company on earth.`\
+https://nytimes.com/2026/02/02/business/spacex-xai-deal.html
+
+**Some Federal Workers Furloughed in Partial Government Shutdown**\
+`Some of the affected agencies announced sweeping furloughs, while others tapped reserve funds to get through what they expected to be a short shutdown.`\
+https://nytimes.com/2026/02/02/us/politics/federal-workers-furloughed-government-shutdown.html
+
+**N.I.H. Worker Who Criticized Trump Seeks Whistle-Blower Protection**\
+`Jenna Norton, a National Institutes of Health employee, has been an outspoken critic of the administration’s research cuts and has been on paid leave.`\
+https://nytimes.com/2026/02/02/us/politics/nih-worker-trump-whistle-blower-protection.html
+
 **Why Ricardo Pepi's Fulham transfer collapse can help his World Cup outlook**\
 `Pepi's move to the Premier League is off, but it's a situation that could work into the U.S. striker's favor with regard to the World Cup`\
 https://nytimes.com/athletic/7016567/2026/02/02/ricardo-pepi-fulham-transfer-psv-usmnt-world-cup/
