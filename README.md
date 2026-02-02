@@ -15,13 +15,13 @@ https://nytimes.com/athletic/7015035/2026/02/02/canucks-stats-tom-willander-jona
 `Scammers on the phone had threatened to kill Wiliam J. Brock if he didn’t hand over $12,000 just as Lo-Letha Toland-Hall, an Uber driver, came to his house to pick up a package.`\
 https://nytimes.com/2026/02/02/us/ohio-man-kills-uber-driver-sentenced.html
 
-**We Were Top Homeland Security Lawyers. You Can’t Wish Away the Fourth Amendment.**\
-`Forcibly entering homes with only administrative warrants is unconstitutional.`\
-https://nytimes.com/2026/02/02/opinion/ice-dhs-warrants-minnesota.html
-
 **Punchy, Spicy Meals to Offset the Winter Blahs**\
 `Spicy turkey stir-fry, sheet-pan chicken tikka thighs and vegan mapo tofu bring attitude and oomph to even the coldest days.`\
 https://nytimes.com/2026/02/02/dining/punchy-spicy-meals-to-offset-the-winter-blahs.html
+
+**We Were Top Homeland Security Lawyers. You Can’t Wish Away the Fourth Amendment.**\
+`Forcibly entering homes with only administrative warrants is unconstitutional.`\
+https://nytimes.com/2026/02/02/opinion/ice-dhs-warrants-minnesota.html
 
 **Do You Know Where in the Country These Books Are Set?**\
 `Test your knowledge of both popular thrillers and U.S. geography with this short quiz.`\

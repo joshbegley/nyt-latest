@@ -1,40 +1,41 @@
-**When the Clowns Went to Church**\
-`Every February, clowns pack into a London church to honor Joseph Grimaldi, a pioneering 19th-century clown. Hundreds of onlookers come for the merriment, too.`\
-https://nytimes.com/2026/02/02/arts/clown-church-grimaldi-service.html
+**NBA Power Rankings: With trade deadline near, every team can dream a little**\
+`LeBron going home? Giannis heading west? We're giving each squad an ideal trade candidate for the short-term future.`\
+https://nytimes.com/athletic/7015585/2026/02/02/nba-power-rankings-nuggets-timberwolves-knicks/
 
-**Gus Malzahn, former Auburn championship coach, retires after 35 years**\
-`In 13 years as a college head coach, Malzahn went 105-62 with one SEC title and a Sun Belt championship.`\
-https://nytimes.com/athletic/7015722/2026/02/02/gus-malzahn-retirement-auburn-florida-state/
+**The Bounce: The Luka trade, one year later. Plus, All-Star snubs!**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7015691/2026/02/02/luka-doncic-trade-all-star-snubs-knicksthe-bounce/
 
-**NBA Rewind: Does trading a superstar ever work? It didn't for the Mavs with Luka**\
-`Plus, who's hot (Knicks, Hornets) and not (Blazers, Kings) this week in the NBA. `\
-https://nytimes.com/athletic/7012348/2026/02/02/nba-rewind-luka-doncic-trade-stock-report/
+**Willander's ceiling, Lekkerimäki's next step and more Canucks observations**\
+`The Canucks have two games remaining before the NHL's Olympic break begins later this week.`\
+https://nytimes.com/athletic/7015035/2026/02/02/canucks-stats-tom-willander-jonathan-lekkerimaki/
 
-**Barry Trotz stepping down as Predators GM: Source**\
-`Trotz, 63, who became GM of the team in 2023, will stay on until his successor is hired.`\
-https://nytimes.com/athletic/7015755/2026/02/02/nhl-predators-barry-trotz-gm-change/
+**Man, 83, Tricked by Scammers, Gets 21 Years to Life for Killing Uber Driver**\
+`Scammers on the phone had threatened to kill Wiliam J. Brock if he didn’t hand over $12,000 just as Lo-Letha Toland-Hall, an Uber driver, came to his house to pick up a package.`\
+https://nytimes.com/2026/02/02/us/ohio-man-kills-uber-driver-sentenced.html
 
-**Milan pull out of Mateta transfer from Palace**\
-`A deal had been agreed for the striker for more than €30million (£26m; $35.6m) on Sunday.`\
-https://nytimes.com/athletic/7015234/2026/02/02/jean-philippe-mateta-ac-milan-deal/
+**We Were Top Homeland Security Lawyers. You Can’t Wish Away the Fourth Amendment.**\
+`Forcibly entering homes with only administrative warrants is unconstitutional.`\
+https://nytimes.com/2026/02/02/opinion/ice-dhs-warrants-minnesota.html
 
-**Why F1 world champion Jenson Button feels 'liberated' after hanging up his helmet**\
-`Jenson Button has finally stopped racing. And the 2009 F1 world champion has a new role at Aston Martin`\
-https://nytimes.com/athletic/7014887/2026/02/02/jensen-button-f1-retirement-aston-martin/
+**Punchy, Spicy Meals to Offset the Winter Blahs**\
+`Spicy turkey stir-fry, sheet-pan chicken tikka thighs and vegan mapo tofu bring attitude and oomph to even the coldest days.`\
+https://nytimes.com/2026/02/02/dining/punchy-spicy-meals-to-offset-the-winter-blahs.html
 
-**USMNT Tracker: Contrasting scoring fortunes and Matarazzo's unbeaten start in Spain**\
-`There were goals for Malik Tillman, Patrick Agyemang and Weston McKennie, but Folarin Balogun's league drought continues`\
-https://nytimes.com/athletic/7015496/2026/02/02/usmnt-tracker-tillman-mckennie-balogun/
+**Do You Know Where in the Country These Books Are Set?**\
+`Test your knowledge of both popular thrillers and U.S. geography with this short quiz.`\
+https://nytimes.com/interactive/2026/02/02/books/review/small-town-books.html
 
-**Lowetide: Will Oilers head coach Kris Knoblauch alter his forward deployment?**\
-`There are some interesting strategic trends up front for Knoblauch in his third Oilers season.`\
-https://nytimes.com/athletic/7013797/2026/02/02/edmonton-oilers-roster-depth-charts-deployment-stats/
+**The Water Conflict a Century in the Making**\
+`Colorado, New Mexico, Utah and Wyoming should let go of their thirsty aspirations and accept that the era of Western expansion is over.`\
+https://nytimes.com/2026/02/02/opinion/water-shortage-colorado-river.html
 
-**Here’s What to Know About the Partial Government Shutdown**\
-`A bipartisan spending deal couldn’t clear Congress in time to prevent a lapse in federal funding for some departments. The House must pass it to fully reopen the government.`\
-https://nytimes.com/2026/02/02/us/politics/government-shutdown-what-to-know.html
+**A Cancer Surgery and the Pain I Didn’t Want to Face**\
+`A shocking diagnosis led a writer to focus on the dispassionate medical details, until his body jolted him into confronting what he hadn’t.`\
+https://nytimes.com/2026/02/02/well/live/cancer-surgery-pain.html
 
-**New Clinical Trial Offers Hope for Resistant Ovarian Cancer**\
-`A new treatment approach aims to help patients whose cancer has stopped responding to therapy`\
-https://nytimes.com/paidpost/university-of-colorado-anschutz-cancer-center/university-of-colorado-anschutz-medical-campus-ad-post/new-clinical-trial-offers-hope-for-resistant-ovarian-cancer.html
+**Right-Wing Populist Declares Victory in Costa Rica’s Presidential Election**\
+`Laura Fernández, the outgoing Costa Rican leader’s handpicked successor, declared victory in the country’s presidential election after preliminary results showed her with a commanding lead.`\
+https://nytimes.com/video/world/americas/100000010684083/costa-rica-fernandez-presidential-election.html
 
