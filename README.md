@@ -1,3 +1,7 @@
+**James Sallis, 81, Dies; Novelist Whose ‘Drive’ Became a Hit Movie**\
+`A storyteller of modern America’s underbelly with a literary, ruminative style, he inspired a Ryan Gosling movie and earned critical acclaim.`\
+https://nytimes.com/2026/02/01/obituaries/james-sallis-dead.html
+
 **Trump Says Kennedy Center Will Close for 2-Year Reconstruction Project**\
 `The president’s announcement came after the center has been rocked by cancellations and boycotts by performers, contributors and audience members.`\
 https://nytimes.com/2026/02/01/us/politics/trump-kennedy-center.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/weather/100000010682832/historic-snowstorm-hits-the-ca
 **‘Golden’ gives K-pop its first ever Grammy.**\
 `By Caryn Ganz`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026/golden-gives-k-pop-its-first-ever-grammy
-
-**UConn's still-undefeated season embodies pursuit of perfection in women's basketball**\
-`Even after a 30-point win against Tennessee on Sunday, the unbeaten Huskies are looking to eliminate any flaws.`\
-https://nytimes.com/athletic/7014340/2026/02/01/uconns-undefeated-womens-basketball-tennessee/
 
