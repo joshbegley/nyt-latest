@@ -3,7 +3,7 @@
 https://nytimes.com/2026/02/01/arts/music/olivia-dean-best-new-artist-grammys.html
 
 **Goalie fight, again! Watch Vasilevskiy and Swayman throw down at center ice**\
-`The two goalies duked it out at center ice at the NHL Stadium Series at Tampa's Raymond James Stadium.`\
+`The two goalies duked it out at center ice during the NHL Stadium Series at Tampa's Raymond James Stadium.`\
 https://nytimes.com/athletic/7014696/2026/02/01/nhl-goalie-fight-vasilevskiy-swayman-stadium-series/
 
 **‘KPop Demon Hunters’ is inspiring fans to learn Korean.**\
