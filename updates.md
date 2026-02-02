@@ -1,3 +1,7 @@
+**Why Ricardo Pepi's Fulham transfer collapse can help his World Cup outlook**\
+`Pepi's move to the Premier League is off, but it's a situation that could work into the U.S. striker's favor with regard to the World Cup`\
+https://nytimes.com/athletic/7016567/2026/02/02/ricardo-pepi-fulham-transfer-psv-usmnt-world-cup/
+
 **John Forté, Hip-Hop Redemption Tale, Dies at 50**\
 `He seemed destined for a glittering career, working with the Fugees and solo, then landed in prison. After a presidential pardon, he clawed his way back.`\
 https://nytimes.com/2026/02/02/arts/music/john-forte-dead.html
