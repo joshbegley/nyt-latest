@@ -1,3 +1,11 @@
+**Morgan Rielly likely out until after Olympic break with 'lingering' injury**\
+`Rielly left Saturday's game against the Canucks with what coach Craig Berube described as an aggravated "upper body" injury.`\
+https://nytimes.com/athletic/7016486/2026/02/02/morgan-rielly-injury-update-upper-body-olympic-break/
+
+**Broncos promote Davis Webb to offensive coordinator**\
+`Webb replaces Joe Lombardi, who was fired after Denver's 10-7 loss in the AFC Championship Game.`\
+https://nytimes.com/athletic/7002908/2026/02/02/davis-webb-broncos-offensive-coordinator/
+
 **Cher’s Grammy Flub Joins a Pantheon of Award-Show Gaffes**\
 `“I don’t do this part very well,” the singer said, just before she seemed to award a Grammy to Luther Vandross, who died in 2005. Plenty of celebrities have made similar goofs.`\
 https://nytimes.com/2026/02/02/arts/music/cher-grammy-mistake-award-show-gaffes.html

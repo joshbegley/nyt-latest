@@ -1,3 +1,7 @@
+**Measles Hits ICE Family Detention Center in Texas**\
+`The Department of Homeland Security has imposed a quarantine on a family detention center in Dilley, Texas, after two detainees contracted the disease.`\
+https://nytimes.com/2026/02/02/us/politics/ice-measles-texas.html
+
 **Morgan Rielly likely out until after Olympic break with 'lingering' injury**\
 `Rielly left Saturday's game against the Canucks with what coach Craig Berube described as an aggravated "upper body" injury.`\
 https://nytimes.com/athletic/7016486/2026/02/02/morgan-rielly-injury-update-upper-body-olympic-break/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7016564/2026/02/02/timberwolves-vs-grizzlies-stream
 **How to watch Jets vs. Stars: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7016560/2026/02/02/jets-vs-stars-stream-how-to-watch-feb-2/
-
-**How to watch Red Wings vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7016556/2026/02/02/red-wings-vs-avalanche-stream-how-to-watch-feb-2/
 
