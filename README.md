@@ -1,3 +1,7 @@
+**Latest Batch of Epstein Files Includes Emails From Several Prominent Men**\
+`Elon Musk, Commerce Secretary Howard Lutnick and the N.F.L. Giants’ co-owner Steve Tisch are among the powerful men mentioned in the latest round of files released by the Justice Department as part of its investigation into the disgraced financier and convicted sex offender Jeffrey Epstein.`\
+https://nytimes.com/video/us/100000010682868/jeffrey-epstein-files-trump-musk.html
+
 **‘A Knight of the Seven Kingdoms’ Season 1, Episode 3 Recap: Waking the Dragon**\
 `Dunk makes a powerful new enemy. Egg makes his true self known.`\
 https://nytimes.com/2026/02/01/arts/television/a-knight-of-the-seven-kingdoms-recap-episode-3.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7014663/2026/02/01/jaylen-brown-bill-russell-legacy
 **Oscar-Nominated Screenwriter Arrested in Iran for Criticizing Regime**\
 `Mehdi Mahmoudian, co-writer of “It Was Just an Accident,” was one of several people detained after signing a letter objecting to the crackdown on protests.`\
 https://nytimes.com/2026/02/01/world/middleeast/iran-mehdi-mahmoudian-arrest.html
-
-**Justin Bieber breaks his public performance pause at the Grammys.**\
-`By Shivani Gonzalez`\
-https://nytimes.com/live/2026/02/01/arts/grammys-2026/justin-bieber-grammys-performance
 
