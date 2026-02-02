@@ -1,3 +1,7 @@
+**What trading Jordan Hicks could mean as Red Sox look to acquire infielder**\
+`Did Sunday's trade signal that the Red Sox are primed to make another move?`\
+https://nytimes.com/athletic/7014115/2026/02/01/red-sox-jordan-hicks-trade-infielder-pursuit/
+
 **James Sallis, 81, Dies; Novelist Whose ‘Drive’ Became a Hit Movie**\
 `A storyteller of modern America’s underbelly with a literary, ruminative style, he inspired a Ryan Gosling movie and earned critical acclaim.`\
 https://nytimes.com/2026/02/01/obituaries/james-sallis-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7014383/2026/02/01/2026-nba-all-star-reserves-lebro
 **‘Historic’ Snowstorm Hits the Carolinas, National Weather Service says**\
 `Heavy snow and bitter cold have spread across North and South Carolina, with some areas receiving more than 18 inches of snow.`\
 https://nytimes.com/video/weather/100000010682832/historic-snowstorm-hits-the-carolinas-national-weather-service-says.html
-
-**‘Golden’ gives K-pop its first ever Grammy.**\
-`By Caryn Ganz`\
-https://nytimes.com/live/2026/02/01/arts/grammys-2026/golden-gives-k-pop-its-first-ever-grammy
 
