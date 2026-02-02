@@ -1,3 +1,7 @@
+**All 38 NASCAR Cup Series races in 2026, ranked by anticipation**\
+`A brand-new race takes the No. 1 spot on our annual list, with the No. 2 race jumping up from No. 27 a year ago.`\
+https://nytimes.com/athletic/7013655/2026/02/02/nascar-cup-series-races-ranking-2026/
+
 **Ryan Cochran-Siegle was millimeters from never skiing again. Now he's ready for another Olympics**\
 `His family is skiing royalty, but it took time for Cochran-Siegle to learn to deal with his doubts and trust himself.`\
 https://nytimes.com/athletic/6961911/2026/02/02/ryan-cochran-siegle-olympics-alpine-skiing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013618/2026/02/02/super-bowl-john-schneider-eliot-
 **‘Been an issue all year’: Completely, utterly and totally undisciplined**\
 `Bruins unravel as Lightning claw back from 5-1 deficit to take shootout win in outdoor game.`\
 https://nytimes.com/athletic/7014941/2026/02/02/bruins-lightning-outdoors-utterly-undisciplined/
-
-**Best and Worst Moments From the 2026 Grammys**\
-`Addison Rae tapped into 2000s pop energy, Justin Bieber stripped things down and Bad Bunny got choked up at the 68th annual awards.`\
-https://nytimes.com/2026/02/02/arts/music/grammys-2026-best-worst-moments.html
 
