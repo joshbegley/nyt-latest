@@ -1,3 +1,11 @@
+**Billy Bass Nelson, Original Bassist for Funkadelic, Dies at 75**\
+`George Clinton, while working as a barber, recruited him. Mr. Nelson went on to name the group and, with his bandmates, to be inducted into the Rock & Roll Hall of Fame.`\
+https://nytimes.com/2026/02/02/arts/music/billy-bass-nelson-dead.html
+
+**Sargent's Norwich status unchanged with one transfer deadline down, another to go**\
+`Just because England's transfer window is closing, doesn't mean the U.S. forward is stuck, but there's little change to his status as of now`\
+https://nytimes.com/athletic/7015859/2026/02/02/josh-sargent-norwich-transfer-deadline-toronto-mls/
+
 **Judge Bars Further Changes to George Washington’s Philadelphia House**\
 `The Interior Department removed placards and videos about Washington’s involvement with slavery. A new court ruling blocks further changes, for now.`\
 https://nytimes.com/2026/02/02/us/politics/judge-george-washington-slavery.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7016376/2026/02/02/blues-trade-proposals-who-says-n
 **U.S. and Iranian Officials to Meet as Trump’s Threats Loom**\
 `President Trump’s Middle East envoy and his son-in-law were expected to meet Iran’s foreign minister in Istanbul on Friday amid tensions between the countries.`\
 https://nytimes.com/2026/02/02/world/middleeast/us-iran-meeting-trump-threats.html
-
-**Judge Again Blocks Policy Restricting Lawmakers’ Access to ICE Facilities**\
-`For a second time, Judge Jia M. Cobb found that a Trump administration policy requiring a seven-day waiting period was unlawful.`\
-https://nytimes.com/2026/02/02/us/politics/congress-ice-facilities-inspections.html
-
-**Trump Announces Initial Trade Deal With India**\
-`The agreement was short on details, but President Trump said India had promised to stop buying Russian oil and would buy more U.S. products for a reduction on tariffs.`\
-https://nytimes.com/2026/02/02/us/politics/trump-tariffs-india-trade-deal.html
 
