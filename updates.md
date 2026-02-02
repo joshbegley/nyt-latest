@@ -1,3 +1,7 @@
+**Justin Bieber breaks his public performance pause at the Grammys.**\
+`By Shivani Gonzalez`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/justin-bieber-grammys-performance
+
 **How Weight Lifting Took Over America**\
 `Getting strong has never been more popular. How did we get here?`\
 https://nytimes.com/video/well/move/100000010677548/how-weight-lifting-took-over-america.html

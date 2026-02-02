@@ -1,3 +1,7 @@
+**Justin Bieber breaks his public performance pause at the Grammys.**\
+`By Shivani Gonzalez`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/justin-bieber-grammys-performance
+
 **How Weight Lifting Took Over America**\
 `Getting strong has never been more popular. How did we get here?`\
 https://nytimes.com/video/well/move/100000010677548/how-weight-lifting-took-over-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/01/arts/grammys-2026/with-six-nods-leon-thomas-
 **Kawhi Leonard, Alperen Şengün among 10 biggest 'snubs' for 2026 All-Star Game**\
 `Simply put, Leonard has been one of the best players in the league on a per-minute basis. Despite that, he was snubbed as an All-Star.`\
 https://nytimes.com/athletic/7014513/2026/02/01/nba-all-star-top-10-snubs-kawhi-leonard-sengun-james-harden-nba/
-
-**Who might make history? Kendrick Lamar, Bad Bunny and Rosé.**\
-`(No description)`\
-https://nytimes.com/live/2026/02/01/arts/grammys-2026/who-might-make-history-kendrick-lamar-bad-bunny-and-rose
 
