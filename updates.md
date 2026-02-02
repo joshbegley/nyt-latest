@@ -1,3 +1,7 @@
+**Judge Bars Further Changes to George Washington’s Philadelphia House**\
+`The Interior Department removed placards and videos about Washington’s involvement with slavery. A new court ruling blocks further changes, for now.`\
+https://nytimes.com/2026/02/02/us/politics/judge-george-washington-slavery.html
+
 **Dodgers' Edwin Díaz to pitch for Puerto Rico in World Baseball Classic, serve as team closer**\
 `Díaz has been confirmed as a participant days after Team Puerto Rico learned several of their stars were denied insurance coverage to play.`\
 https://nytimes.com/athletic/7016231/2026/02/02/dodgers-edwin-diaz-wbc-participation/
