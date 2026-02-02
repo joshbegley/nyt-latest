@@ -1,3 +1,11 @@
+**Gus Malzahn, former Auburn championship coach, retires after 35 years**\
+`In 13 years as a college head coach, Malzahn went 105-62 with one SEC title and a Sun Belt championship.`\
+https://nytimes.com/athletic/7015722/2026/02/02/gus-malzahn-retirement-auburn-florida-state/
+
+**NBA Rewind: Does trading a superstar ever work? It didn't for the Mavs with Luka**\
+`Plus, who's hot (Knicks, Hornets) and not (Blazers, Kings) this week in the NBA. `\
+https://nytimes.com/athletic/7012348/2026/02/02/nba-rewind-luka-doncic-trade-stock-report/
+
 **Barry Trotz stepping down as Predators GM: Source**\
 `Trotz, 63, who became GM of the team in 2023, will stay on until his successor is hired.`\
 https://nytimes.com/athletic/7015755/2026/02/02/nhl-predators-barry-trotz-gm-change/

@@ -1,3 +1,11 @@
+**Gus Malzahn, former Auburn championship coach, retires after 35 years**\
+`In 13 years as a college head coach, Malzahn went 105-62 with one SEC title and a Sun Belt championship.`\
+https://nytimes.com/athletic/7015722/2026/02/02/gus-malzahn-retirement-auburn-florida-state/
+
+**NBA Rewind: Does trading a superstar ever work? It didn't for the Mavs with Luka**\
+`Plus, who's hot (Knicks, Hornets) and not (Blazers, Kings) this week in the NBA. `\
+https://nytimes.com/athletic/7012348/2026/02/02/nba-rewind-luka-doncic-trade-stock-report/
+
 **Barry Trotz stepping down as Predators GM: Source**\
 `Trotz, 63, who became GM of the team in 2023, will stay on until his successor is hired.`\
 https://nytimes.com/athletic/7015755/2026/02/02/nhl-predators-barry-trotz-gm-change/
@@ -29,12 +37,4 @@ https://nytimes.com/paidpost/university-of-colorado-anschutz-cancer-center/unive
 **Gaza’s Rafah Crossing Reopens, Allowing Some to Leave and Return**\
 `Some critically ill and wounded Palestinians were set to leave through the Rafah crossing as it reopened on Monday. A limited number of Palestinians that fled during the war will also be allowed to return to Gaza.`\
 https://nytimes.com/video/world/middleeast/100000010683949/gaza-rafah-crossing-egypt-israel.html
-
-**How Spurs turned their game against Manchester City on its head**\
-`A half-time tweak from Thomas Frank enabled Tottenham to come from two goals down against Pep Guardiola's side on Sunday`\
-https://nytimes.com/athletic/7015291/2026/02/02/tottenham-man-city-premier-league-analysis/
-
-**Arsenal 'actively looking' in transfer market after Merino injury – Arteta**\
-`Merino will undergo surgery on a foot injury and is set for an extended spell out.`\
-https://nytimes.com/athletic/7015641/2026/02/02/arsenal-transfers-mikel-merino-injury-arteta/
 
