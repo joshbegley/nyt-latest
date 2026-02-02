@@ -1,40 +1,40 @@
-**Trump Assails Grammys and Threatens to Sue Trevor Noah Over Epstein Joke**\
-`President Trump declared the awards ceremony “virtually unwatchable” and accused Mr. Noah of defamation over a joke he made that appeared to tie the president to Jeffrey Epstein.`\
-https://nytimes.com/2026/02/02/arts/television/trump-grammys-trevor-noah.html
+**Can the New Terminal at J.F.K. Be Among the World’s Best?**\
+`The enormous Terminal 1 is expected to open later this year at a cost of $9.5 billion. The Port Authority, which operates Kennedy Airport, has high aspirations for it.`\
+https://nytimes.com/2026/02/02/nyregion/can-the-new-terminal-at-jfk-be-among-the-worlds-best.html
 
-**Palace have bid rejected for Club Brugge centre-back Ordonez**\
-`Ordonez, 21, signed a new contract with the Belgian club in September, extending his deal until 2029.`\
-https://nytimes.com/athletic/7015128/2026/02/02/crystal-palace-joel-ordonez-bid-transfer/
+**Are Models Getting Even Skinnier?**\
+`The era of size inclusivity is seemingly over. Our critic traces the shift and hopes designers might learn from it.`\
+https://nytimes.com/2026/02/02/fashion/skinny-models-ozempic-glp1.html
 
-**Charlie Davies relives his experience of a last-minute transfer**\
-`The Athletic's columnist relives his experience of an unexpected deadline-day transfer toward the end of his career`\
-https://nytimes.com/athletic/7011669/2026/02/02/charlie-davies-transfer-deadline-day-move/
+**Why The Times Is Expanding Its Supreme Court Coverage**\
+`How four reporters are examining the most secretive branch of government — and the nine justices who shape the law.`\
+https://nytimes.com/2026/02/02/us/supreme-court-rulings-ethics.html
 
-**After Weeks of Rancor, a Glimmer of Hope in N.Y.C. Nurses’ Strike**\
-`Nearly 15,000 workers have been off the job at some of New York’s top hospitals for three weeks, but signs of progress have emerged in negotiations.`\
-https://nytimes.com/2026/02/02/nyregion/nyc-nurses-strike-negotiations.html
+**Slumping in the West, the Art Trade Eyes the Gulf**\
+`The new Art Basel Qatar fair is a chance for dealers to make inroads with wealthy residents. It’s an alluring alternative to saturated markets elsewhere.`\
+https://nytimes.com/2026/02/02/arts/design/art-basel-qatar-gulf-money.html
 
-**Pay, Staffing, Safety: The Divisive Issues in the Nurses’ Strike**\
-`Striking New York City nurses say they are being maligned as greedy, while hospital officials say they are not taking into account sharp reductions in federal funding.`\
-https://nytimes.com/2026/02/02/nyregion/nyc-nurses-strike-issues.html
+**Icemageddon, Southern Style**\
+`An ice storm will bring a city like Nashville to its knees.`\
+https://nytimes.com/2026/02/02/opinion/ice-storm-tennessee.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/02/crosswords/spelling-bee-forum.html
+**$1.3 Million Homes in California**\
+`This week’s properties include a Craftsman home in Los Angeles, an Art Deco-inspired house in San Francisco and a 1980 contemporary house in El Cajon.`\
+https://nytimes.com/2026/02/02/realestate/los-angeles-san-francisco-el-cajon-home-sales.html
 
-**Bad Bunny’s High-Risk Choice: Three Opinion Writers Discuss the Grammys**\
-`There were two Grammys ceremonies: Bad Bunny’s and everyone else’s.`\
-https://nytimes.com/2026/02/02/opinion/grammys-bad-bunny.html
+**Western Ski Resorts and Their Terrible, Horrible, No Snow, Very Bad Year**\
+`Little snowpack, strikes by mountain staff and Trump administration policies that are keeping international visitors away have made this a difficult season in the Rockies and beyond.`\
+https://nytimes.com/2026/02/02/travel/snow-drought-ski-rocky-mountains.html
 
-**Highlights From the 68th Grammy Awards**\
-`This year’s Grammy Awards had an undercurrent of political dissent among the celebratory vibe. Several artists wore “ICE OUT” pins, as others spoke directly about the federal immigration crackdown.`\
-https://nytimes.com/video/arts/music/100000010683182/grammy-awards-2026.html
+**How Weight Lifting Took Over America**\
+`Getting strong has never been more popular. How did we get here?`\
+https://nytimes.com/2026/02/02/well/move/weight-lifting-america-history.html
 
-**Gaza Crossing to Egypt Reopens in Step Forward for Fragile Cease-Fire**\
-`Israel and Egypt had disagreed for months about how to resume operations at the Rafah border crossing, which has been closed for nearly a year.`\
-https://nytimes.com/2026/02/02/world/middleeast/gaza-rafah-border-crossing.html
+**A Legal Tool for Holding ICE Agents to Account, Hiding in Plain Sight**\
+`A proposal in a 1987 law review article could address a gap that makes it all but impossible to sue federal officials for violating the Constitution.`\
+https://nytimes.com/2026/02/02/us/ice-lawsuits-states.html
 
-**Mateta, Strand Larsen and more: Seven deals that could get done on deadline day**\
-`The transfer deadline approaches and clubs will be looking to do final bits of business as they build squads for the rest of the season`\
-https://nytimes.com/athletic/7009782/2026/02/02/transfer-deadline-day-latest-transfers-mateta-strand-larsen/
+**Small Businesses in Minneapolis Serve a City in Crisis. ‘This Is Our New Normal.’**\
+`In Minneapolis and St. Paul, business owners work to lift up a community that has been roiled by the presence of thousands of immigration agents.`\
+https://nytimes.com/2026/02/02/us/small-businesses-in-minneapolis-serve-a-city-in-crisis-this-is-our-new-normal.html
 
