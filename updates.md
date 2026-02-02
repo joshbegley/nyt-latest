@@ -1,3 +1,11 @@
+**Gaza Crossing to Egypt Reopens in Step Forward for Fragile Cease-Fire**\
+`Israel and Egypt had disagreed for months about how to resume operations at the Rafah border crossing, which has been closed for nearly a year.`\
+https://nytimes.com/2026/02/02/world/middleeast/gaza-rafah-border-crossing.html
+
+**Mateta, Strand Larsen and more: Seven deals that could get done on deadline day**\
+`The transfer deadline approaches and clubs will be looking to do final bits of business as they build squads for the rest of the season`\
+https://nytimes.com/athletic/7009782/2026/02/02/transfer-deadline-day-latest-transfers-mateta-strand-larsen/
+
 **Grammys Instant Reactions! Bad Bunny Owns the Night**\
 `Popcast breaks down the show’s major moments in a live reaction episode immediately following the ceremony.`\
 https://nytimes.com/2026/02/02/arts/music/grammys-2026-reactions-popcast.html

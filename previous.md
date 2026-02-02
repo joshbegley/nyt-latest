@@ -1,3 +1,11 @@
+**Gaza Crossing to Egypt Reopens in Step Forward for Fragile Cease-Fire**\
+`Israel and Egypt had disagreed for months about how to resume operations at the Rafah border crossing, which has been closed for nearly a year.`\
+https://nytimes.com/2026/02/02/world/middleeast/gaza-rafah-border-crossing.html
+
+**Mateta, Strand Larsen and more: Seven deals that could get done on deadline day**\
+`The transfer deadline approaches and clubs will be looking to do final bits of business as they build squads for the rest of the season`\
+https://nytimes.com/athletic/7009782/2026/02/02/transfer-deadline-day-latest-transfers-mateta-strand-larsen/
+
 **Grammys Instant Reactions! Bad Bunny Owns the Night**\
 `Popcast breaks down the show’s major moments in a live reaction episode immediately following the ceremony.`\
 https://nytimes.com/2026/02/02/arts/music/grammys-2026-reactions-popcast.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7014215/2026/02/02/city-tottenham-curse-guardiola/
 **LeBron James' uncertain NBA future means he might not play in Madison Square Garden again**\
 `James is playing at a high level and playing a lot. But he won't commit to playing next season.`\
 https://nytimes.com/athletic/7014910/2026/02/02/lebron-james-lakers-knicks-madison-square-garden/
-
-**Pascal Gross is delivering – but Brighton need other attackers to spark into life**\
-`Danny Welbeck has stopped scoring, Kaoru Mitoma is struggling and Georginio Rutter is failing to reach last season's heights`\
-https://nytimes.com/athletic/7012103/2026/02/02/brighton-everton-pascal-gross-analysis/
-
-**Nottingham Forest find strength in adversity - that grit will be key to survival**\
-`Neco Williams' red card was followed by an impressive backs-to-the-wall performance - but a new signing is needed`\
-https://nytimes.com/athletic/7013915/2026/02/02/nottingham-forest-crystal-palace-analysis/
 
