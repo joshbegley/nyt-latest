@@ -1,3 +1,7 @@
+**Inside Real Madrid: Bernabeu boos, Bellingham blow, Fran Garcia's transfer decision**\
+`After another hostile reception from home fans on Sunday, tensions continue to build around Alvaro Arbeloa's side`\
+https://nytimes.com/athletic/7015185/2026/02/02/inside-real-madrid-bernabeu-boos-bellingham-blow-fran-garcias-transfer-decision/
+
 **‘A Terrifying Line Is Being Crossed’: Mayor Jacob Frey on the Turmoil in Minneapolis**\
 `The Minnesota Democrat discussed the battle between his city and the federal government with Lulu Garcia-Navarro.`\
 https://nytimes.com/video/podcasts/100000010684019/a-terrifying-line-is-being-crossed-mayor-jacob-frey-on-the-turmoil-in-minneapolis.html

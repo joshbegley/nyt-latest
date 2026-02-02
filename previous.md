@@ -1,3 +1,7 @@
+**Inside Real Madrid: Bernabeu boos, Bellingham blow, Fran Garcia's transfer decision**\
+`After another hostile reception from home fans on Sunday, tensions continue to build around Alvaro Arbeloa's side`\
+https://nytimes.com/athletic/7015185/2026/02/02/inside-real-madrid-bernabeu-boos-bellingham-blow-fran-garcias-transfer-decision/
+
 **‘A Terrifying Line Is Being Crossed’: Mayor Jacob Frey on the Turmoil in Minneapolis**\
 `The Minnesota Democrat discussed the battle between his city and the federal government with Lulu Garcia-Navarro.`\
 https://nytimes.com/video/podcasts/100000010684019/a-terrifying-line-is-being-crossed-mayor-jacob-frey-on-the-turmoil-in-minneapolis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7015388/2026/02/02/mercedes-formula-1-engine-loopho
 **Chris Stapleton's 'F1 The Movie' song gets Grammy recognition**\
 `'F1 The Movie' had three nominations across Music's Biggest Night.`\
 https://nytimes.com/athletic/7015432/2026/02/02/f1-movie-grammy-stapleton/
-
-**Super Bowl LX Opening Night: What happens, who's involved and how to watch it**\
-`A big week precedes the big game. So begins the hype, but also the hilarity.`\
-https://nytimes.com/athletic/7010987/2026/02/02/super-bowl-opening-night-media-day-interviews/
 
