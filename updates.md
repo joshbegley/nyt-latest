@@ -1,3 +1,11 @@
+**Disappearance of ‘Today’ Host’s Mother Is a Crime, Investigators Say**\
+`Savannah Guthrie’s mother, Nancy Guthrie, 84, was last seen on Saturday near her home in Tucson, Ariz. The Pima County sheriff said on Monday that “she did not leave on her own.”`\
+https://nytimes.com/video/us/100000010684257/savannah-guthrie-mother-missing.html
+
+**Measles Hits ICE Family Detention Center in Texas**\
+`The Department of Homeland Security has imposed a quarantine on a family detention center in Dilley, Texas, after two detainees contracted the disease.`\
+https://nytimes.com/2026/02/02/us/politics/ice-measles-texas.html
+
 **Morgan Rielly likely out until after Olympic break with 'lingering' injury**\
 `Rielly left Saturday's game against the Canucks with what coach Craig Berube described as an aggravated "upper body" injury.`\
 https://nytimes.com/athletic/7016486/2026/02/02/morgan-rielly-injury-update-upper-body-olympic-break/
