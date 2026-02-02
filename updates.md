@@ -1,3 +1,7 @@
+**Infantino against Russia & Israel bans, defends Trump's Peace Prize**\
+`Both FIFA and UEFA banned the Russian national team from competing in 2022 after the country illegally invaded Ukraine. `\
+https://nytimes.com/athletic/7015741/2026/02/02/gianni-infantino-fifa-russia-israel-trump/
+
 **How to watch Rockets vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7015963/2026/02/02/rockets-vs-pacers-stream-how-to-watch-feb-2/
