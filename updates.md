@@ -1,3 +1,7 @@
+**Dak Prescott explains why Cowboys must sign 'game-changer' George Pickens**\
+`Prescott says he'd love to have Pickens back in 2026. The receiver is set to become an unrestricted free agent.`\
+https://nytimes.com/athletic/7016339/2026/02/02/cowboys-george-pickens-contract-dak-prescott/
+
 **Trump Would Have Slim Chance in Court Against Trevor Noah, Experts Say**\
 `Legal experts said that jokes like the one told by Mr. Noah at the Grammys on Sunday were protected by the First Amendment.`\
 https://nytimes.com/2026/02/02/business/media/trump-trevor-noah-lawsuit-first-amendment.html

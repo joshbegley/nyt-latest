@@ -1,3 +1,19 @@
+**How to watch Kansas vs. Texas Tech men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7016541/2026/02/02/kansas-vs-texas-tech-stream-how-to-watch-feb-2/
+
+**Trump to Unveil $12 Billion Critical Minerals Stockpile**\
+`The “Project Vault” initiative is intended to reduce U.S. reliance on China for key technology components.`\
+https://nytimes.com/2026/02/02/business/trump-critical-minerals-stockpile.html
+
+**How to watch South Carolina vs. Texas A&M women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the Texas A&M Aggies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7016539/2026/02/02/south-carolina-vs-texas-a-m-stream-how-to-watch-feb-2/
+
+**Portland, Ore., Mayor Calls for ICE to Leave After Children Are Tear-Gassed**\
+`Mayor Keith Wilson and the City Council are moving to impose high fees on private landowners narrowly tailored to end any leasing of buildings for ICE detention centers.`\
+https://nytimes.com/2026/02/02/us/portland-ice-tear-gas-children.html
+
 **Dak Prescott explains why Cowboys must sign 'game-changer' George Pickens**\
 `Prescott says he'd love to have Pickens back in 2026. The receiver is set to become an unrestricted free agent.`\
 https://nytimes.com/athletic/7016339/2026/02/02/cowboys-george-pickens-contract-dak-prescott/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/02/opinion/silicon-valley-trump-minneapolis.html
 **Billy Bass Nelson, Original Bassist for Funkadelic, Dies at 75**\
 `George Clinton, while working as a barber, recruited him. Mr. Nelson went on to name the group and, with his bandmates, to be inducted into the Rock & Roll Hall of Fame.`\
 https://nytimes.com/2026/02/02/arts/music/billy-bass-nelson-dead.html
-
-**Sargent's Norwich status unchanged with one transfer deadline down, another to go**\
-`Just because England's transfer window is closing, doesn't mean the U.S. forward is stuck, but there's little change to his status as of now`\
-https://nytimes.com/athletic/7015859/2026/02/02/josh-sargent-norwich-transfer-deadline-toronto-mls/
-
-**Judge Bars Further Changes to George Washington’s Philadelphia House**\
-`The Interior Department removed placards and videos about Washington’s involvement with slavery. A new court ruling blocks further changes, for now.`\
-https://nytimes.com/2026/02/02/us/politics/judge-george-washington-slavery.html
-
-**Dodgers' Edwin Díaz to pitch for Puerto Rico in World Baseball Classic, serve as team closer**\
-`Díaz has been confirmed as a participant days after Team Puerto Rico learned several of their stars were denied insurance coverage to play.`\
-https://nytimes.com/athletic/7016231/2026/02/02/dodgers-edwin-diaz-wbc-participation/
-
-**Deal to Reopen Government on Shaky Ground in the House**\
-`Some hard-line House Republicans have balked at the deal Senate Democrats struck with President Trump to fund the government, complicating its path to enactment.`\
-https://nytimes.com/2026/02/02/us/politics/government-shutdown-deal.html
 

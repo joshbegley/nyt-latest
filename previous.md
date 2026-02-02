@@ -1,3 +1,7 @@
+**Dak Prescott explains why Cowboys must sign 'game-changer' George Pickens**\
+`Prescott says he'd love to have Pickens back in 2026. The receiver is set to become an unrestricted free agent.`\
+https://nytimes.com/athletic/7016339/2026/02/02/cowboys-george-pickens-contract-dak-prescott/
+
 **Trump Would Have Slim Chance in Court Against Trevor Noah, Experts Say**\
 `Legal experts said that jokes like the one told by Mr. Noah at the Grammys on Sunday were protected by the First Amendment.`\
 https://nytimes.com/2026/02/02/business/media/trump-trevor-noah-lawsuit-first-amendment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7016231/2026/02/02/dodgers-edwin-diaz-wbc-participa
 **Deal to Reopen Government on Shaky Ground in the House**\
 `Some hard-line House Republicans have balked at the deal Senate Democrats struck with President Trump to fund the government, complicating its path to enactment.`\
 https://nytimes.com/2026/02/02/us/politics/government-shutdown-deal.html
-
-**Let Them Eat Goo**\
-`It’s boom times for meal-replacement products that cater to the overwhelmed (and wellness-obsessed) millennial. But Soylent they are not.`\
-https://nytimes.com/2026/02/02/dining/food-pouches-soylent.html
 
