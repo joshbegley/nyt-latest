@@ -1,3 +1,11 @@
+**Sheffield United reach Phillips loan agreement with Man City**\
+`Phillips, 30, is set to undergo a medical ahead of a loan move to the Championship club through to the summer.`\
+https://nytimes.com/athletic/6508411/2026/02/02/kalvin-phillips-manchester-city-sheffield-united-transfer/
+
+**How Justin Bieber Forced the Grammys to Stop and Simply Feel**\
+`The pop star stripped down his music and himself for a vulnerable but assured solo performance of “Yukon” on Sunday.`\
+https://nytimes.com/2026/02/02/arts/music/grammys-justin-bieber-performance.html
+
 **Submit your college basketball questions for our mailbag**\
 `With six weeks until the NCAA Tournament, conference championship races and the tournament picture are starting to take shape.`\
 https://nytimes.com/athletic/7015575/2026/02/02/submit-your-mens-college-basketball-questions-for-our-mailbag/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/02/books/review/chuck-klosterman-football.html
 **They Got Rich in New York and Chicago. They Think Florida Is the Future.**\
 `Stephen Ross, the real estate developer, and Ken Griffin, the billionaire financier, are trying to attract businesses to their new base, South Florida.`\
 https://nytimes.com/2026/02/02/business/dealbook/florida-ross-griffin-businesses.html
-
-**Premier League data notebook: The Ekitike & Wirtz show, Man Utd's set- pieces, Wolves' defensive secret**\
-`The Athletic's data writers break down the key storylines from the weekend's action`\
-https://nytimes.com/athletic/7015305/2026/02/02/premier-league-data-notebook-md24-liverpool-man-utd-spurs/
-
-**Inside Real Madrid: Bernabeu boos, Bellingham blow, Fran Garcia's transfer decision**\
-`After another hostile reception from home fans on Sunday, tensions continue to build around Alvaro Arbeloa's side`\
-https://nytimes.com/athletic/7015185/2026/02/02/inside-real-madrid-bernabeu-boos-bellingham-blow-fran-garcias-transfer-decision/
 
