@@ -1,3 +1,7 @@
+**Is Ikea Cookware As Good As All-Clad?**\
+`Throughout years of testing, our kitchen journalists have consistently found that All-Clad cookware is top-of-the-line.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010684785/is-ikea-cookware-as-good-as-all-clad.html
+
 **Doing the Super Prop Shuffle**\
 `In the spirit of the "Super Bowl Shuffle," Toby Mergler gives his prop-bet picks for this year's game.`\
 https://nytimes.com/athletic/7015869/2026/02/02/best-super-bowl-player-prop-bets-patriots-seahawks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7015819/2026/02/02/fanatics-david-beckham-partnersh
 **At the U.S.-Mexico Border, a Children’s Opera Sings to the Moment**\
 `“Pancho Rabbit and the Coyote,” performed on both sides of the border, offers an allegory about migrants, immigration agents and President Trump.`\
 https://nytimes.com/2026/02/02/arts/music/pancho-rabbit-and-the-coyote-children-opera.html
-
-**Takeaways From the First Week of the Alexander Brothers Trial**\
-`Jurors in the sex trafficking case heard from the first witnesses and saw graphic evidence of the crimes the brothers are accused of.`\
-https://nytimes.com/2026/02/02/nyregion/trial-alexanders-sex-assault-takeaways.html
 
