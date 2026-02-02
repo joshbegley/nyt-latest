@@ -1,3 +1,15 @@
+**The Message From Texas Voters: We’re Neighbors, Not Enemies**\
+`Many Americans are growing both exhausted and frightened by Trump’s scorched-earth, hyperpartisan, fire-ready-aim approach to the presidency.`\
+https://nytimes.com/2026/02/02/opinion/columnists/trump-america-identity.html
+
+**The Campaign Behind Trump’s Nigeria Strikes**\
+`A yearslong effort to convince the Trump administration that Christians are persecuted in the West African nation has shifted U.S. policy.`\
+https://nytimes.com/2026/02/02/world/trump-bomb-nigeria-campaign-rafah-crossing.html
+
+**Arbitrator rules Miami Heat must pay Terry Rozier full salary**\
+`It remains unclear if Rozier can be traded this season.`\
+https://nytimes.com/athletic/7016585/2026/02/02/terry-rozier-arbitration-ruling-salary-miami-heat/
+
 **Disappearance of ‘Today’ Host’s Mother Is a Crime, Investigators Say**\
 `Savannah Guthrie’s mother, Nancy Guthrie, 84, was last seen on Saturday near her home in Tucson, Ariz. The Pima County sheriff said on Monday that “she did not leave on her own.”`\
 https://nytimes.com/video/us/100000010684257/savannah-guthrie-mother-missing.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7016527/2026/02/02/shedeur-sanders-pro-bowl-browns-
 **How to watch Canadiens vs. Wild: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7016582/2026/02/02/canadiens-vs-wild-stream-how-to-watch-feb-2/
-
-**How to watch Sharks vs. Blackhawks: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Chicago Blackhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7016574/2026/02/02/sharks-vs-blackhawks-stream-how-to-watch-feb-2/
-
-**How to watch Canucks vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7016572/2026/02/02/canucks-vs-mammoth-stream-how-to-watch-feb-2/
-
-**How to watch Timberwolves vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7016564/2026/02/02/timberwolves-vs-grizzlies-stream-how-to-watch-feb-2/
 
