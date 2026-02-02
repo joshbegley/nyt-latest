@@ -1,3 +1,7 @@
+**Why Ricardo Pepi's Fulham transfer collapse can help his World Cup outlook**\
+`Pepi's move to the Premier League is off, but it's a situation that could work into the U.S. striker's favor with regard to the World Cup`\
+https://nytimes.com/athletic/7016567/2026/02/02/ricardo-pepi-fulham-transfer-psv-usmnt-world-cup/
+
 **John Forté, Hip-Hop Redemption Tale, Dies at 50**\
 `He seemed destined for a glittering career, working with the Fugees and solo, then landed in prison. After a presidential pardon, he clawed his way back.`\
 https://nytimes.com/2026/02/02/arts/music/john-forte-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7016486/2026/02/02/morgan-rielly-injury-update-uppe
 **Broncos promote Davis Webb to offensive coordinator**\
 `Webb replaces Joe Lombardi, who was fired after Denver's 10-7 loss in the AFC Championship Game.`\
 https://nytimes.com/athletic/7002908/2026/02/02/davis-webb-broncos-offensive-coordinator/
-
-**Cher’s Grammy Flub Joins a Pantheon of Award-Show Gaffes**\
-`“I don’t do this part very well,” the singer said, just before she seemed to award a Grammy to Luther Vandross, who died in 2005. Plenty of celebrities have made similar goofs.`\
-https://nytimes.com/2026/02/02/arts/music/cher-grammy-mistake-award-show-gaffes.html
 
