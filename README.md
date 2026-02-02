@@ -1,3 +1,11 @@
+**Trump Says Kennedy Center Will Close for 2-Year Reconstruction Project**\
+`The president’s announcement came after the center has been rocked by cancellations and boycotts by performers, contributors and audience members.`\
+https://nytimes.com/2026/02/01/us/politics/trump-kennedy-center.html
+
+**The Government Published Dozens of Nude Photos in the Epstein Files**\
+`The photos, which showed young women or possibly teenagers with their faces visible, were largely removed after The New York Times began notifying the Justice Department.`\
+https://nytimes.com/2026/02/01/us/nude-photos-epstein-files.html
+
 **Kendrick Lamar, ‘KPop Demon Hunters’ and Leon Thomas lead early Grammy wins.**\
 `By Ben Sisario`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026/grammys-early-winners
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/7014388/2026/02/01/ucla-iowa-big-ten-women/
 https://nytimes.com/2026/02/01/us/storm-power-outages-tennessee-mississippi-louisiana.html
 
 **LeBron James makes NBA-record 22nd All-Star Game; Kevin Durant, Jamal Murray among reserves**\
-`James has now made three more All-Star teams than Kareem Abdul-Jabbar, who is second all-time.`\
+`Jalen Duren, Norman Powell, Chet Holmgren and Deni Avdija join Murray as first-time All-Stars.`\
 https://nytimes.com/athletic/7014383/2026/02/01/2026-nba-all-star-reserves-lebron/
 
 **‘Historic’ Snowstorm Hits the Carolinas, National Weather Service says**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/01/arts/grammys-2026/golden-gives-k-pop-its-fir
 **UConn's still-undefeated season embodies pursuit of perfection in women's basketball**\
 `Even after a 30-point win against Tennessee on Sunday, the unbeaten Huskies are looking to eliminate any flaws.`\
 https://nytimes.com/athletic/7014340/2026/02/01/uconns-undefeated-womens-basketball-tennessee/
-
-**Robert Pratt, Federal Judge Who Derided Trump Pardons, Dies at 78**\
-`He was chastised for remarks ridiculing the pardons of two congressional campaign aides who had been convicted in a bribery plot.`\
-https://nytimes.com/2026/02/01/obituaries/robert-pratt-dead.html
-
-**Bucs vs. Patriots on ice? Lightning and Bruins arrive at Stadium Series game in full uniform**\
-`Lightning players posed the idea to Baker Mayfield, who said, "No problem. Let me just get back from the Bahamas" — and led the procession.`\
-https://nytimes.com/athletic/7014447/2026/02/01/lightning-bruins-stadium-series-arrival/
 

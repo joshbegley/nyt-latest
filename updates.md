@@ -1,3 +1,11 @@
+**Kendrick Lamar, ‘KPop Demon Hunters’ and Leon Thomas lead early Grammy wins.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/grammys-early-winners
+
+**5-Year-Old and His Father, Detained by Agents, Are Released From Custody**\
+`Liam Conejo Ramos, the 5-year-old who was detained with his father by federal agents, is back home in Minnesota with his father. A federal judge demanded their release from an immigration detention center in Texas, where they were being held.`\
+https://nytimes.com/video/us/100000010683054/ramos-detained-by-agents-released.html
+
 **Fear and Anger Grow as Thousands Remain Without Power in the South**\
 `More than 30 people have died across three Southern states in connection with last week’s storm, and thousands remain without power.`\
 https://nytimes.com/2026/02/01/us/storm-power-outages-tennessee-mississippi-louisiana.html

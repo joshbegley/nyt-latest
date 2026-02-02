@@ -1,6 +1,10 @@
+**Kendrick Lamar, ‘KPop Demon Hunters’ and Leon Thomas lead early Grammy wins.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/grammys-early-winners
+
 **5-Year-Old and His Father, Detained by Agents, Are Released From Custody**\
 `Liam Conejo Ramos, the 5-year-old who was detained with his father by federal agents, is back home in Minnesota with his father. A federal judge demanded their release from an immigration detention center in Texas, where they were being held.`\
-https://nytimes.com/video/us/100000010683054/5-year-old-and-his-father-detained-by-agents-are-released-from-custody.html
+https://nytimes.com/video/us/100000010683054/ramos-detained-by-agents-released.html
 
 **No. 2 UCLA blasts No. 8 Iowa for 15th straight win, stays unbeaten in Big Ten**\
 `Five Bruins score in double figures, led by Angela Dugalić's 22 points. `\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/01/obituaries/robert-pratt-dead.html
 **Bucs vs. Patriots on ice? Lightning and Bruins arrive at Stadium Series game in full uniform**\
 `Lightning players posed the idea to Baker Mayfield, who said, "No problem. Let me just get back from the Bahamas" — and led the procession.`\
 https://nytimes.com/athletic/7014447/2026/02/01/lightning-bruins-stadium-series-arrival/
-
-**Grammys Red Carpet Photos: Music’s Biggest Stars Make Their Entrances**\
-`See what nominees and guests for the 68th Grammy Awards, including Sabrina Carpenter, Addison Rae and Tyla, wore to arrive to the ceremony.`\
-https://nytimes.com/2026/02/01/style/grammys-red-carpet-photos-2026.html
 
