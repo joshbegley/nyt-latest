@@ -1,3 +1,15 @@
+**Kawhi Leonard, Alperen Şengün among 10 biggest 'snubs' for 2026 All-Star Game**\
+`Simply put, Leonard has been one of the best players in the league on a per-minute basis. Despite that, he was snubbed as an All-Star.`\
+https://nytimes.com/athletic/7014513/2026/02/01/nba-all-star-top-10-snubs-kawhi-leonard-sengun-james-harden-nba/
+
+**Who might make history? Kendrick Lamar, Bad Bunny and Rosé.**\
+`(No description)`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/who-might-make-history-kendrick-lamar-bad-bunny-and-rose
+
+**Stars Speak Up for Immigrants Ahead of Grammys Ceremony**\
+`Gloria Estefan, Shaboozey and Kehlani took an opportunity to speak up for communities that are being targeted by ICE across the United States.`\
+https://nytimes.com/2026/02/01/arts/music/grammys-ice-immigration-kehlani.html
+
 **What trading Jordan Hicks could mean as Red Sox look to acquire infielder**\
 `Did Sunday's trade signal that the Red Sox are primed to make another move?`\
 https://nytimes.com/athletic/7014115/2026/02/01/red-sox-jordan-hicks-trade-infielder-pursuit/
