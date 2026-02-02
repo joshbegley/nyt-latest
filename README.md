@@ -1,3 +1,15 @@
+**After Weeks of Rancor, a Glimmer of Hope in N.Y.C. Nurses’ Strike**\
+`Nearly 15,000 workers have been off the job at some of New York’s top hospitals for three weeks, but signs of progress have emerged in negotiations.`\
+https://nytimes.com/2026/02/02/nyregion/nyc-nurses-strike-negotiations.html
+
+**Pay, Staffing, Safety: The Divisive Issues in the Nurses’ Strike**\
+`Striking New York City nurses say they are being maligned as greedy, while hospital officials say they are not taking into account sharp reductions in federal funding.`\
+https://nytimes.com/2026/02/02/nyregion/nyc-nurses-strike-issues.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/02/crosswords/spelling-bee-forum.html
+
 **Bad Bunny’s High-Risk Choice: Three Opinion Writers Discuss the Grammys**\
 `There were two Grammys ceremonies: Bad Bunny’s and everyone else’s.`\
 https://nytimes.com/2026/02/02/opinion/grammys-bad-bunny.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/02/learning/word-of-the-day-accede.html
 **Super Bowl 60 headliner Bad Bunny says 'ICE out' after winning at Grammy Awards**\
 `The Puerto Rican star made his feelings known about the immigration crackdown across the U.S. before performing at the Super Bowl next week.`\
 https://nytimes.com/athletic/7014912/2026/02/02/bad-bunny-grammy-speech-ice-protest/
-
-**Super Bowl LX, Plus 6 Things on TV This Week**\
-`The Olympic Games in Milan and Cortina begin, and the Seattle Seahawks face the New England Patriots.`\
-https://nytimes.com/2026/02/02/arts/television/super-bowl-lx-plus-6-things-on-tv-this-week.html
-
-**The New York Times in Print for Monday, Feb. 2, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/02/02/todays-new-york-times
-
-**Palace are set to break their transfer record twice this window — but they still lack stardust**\
-`Oliver Glasner's team is failing to win even when dominating, a result of losing Michael Olise and Eberechi Eze`\
-https://nytimes.com/athletic/7003881/2026/02/02/crystal-palace-transfer-record-johnson-glasner/
 
