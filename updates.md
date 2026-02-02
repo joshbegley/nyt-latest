@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: President Says Kennedy Center Will Close for 2-Year Renovation**\
+``\
+https://nytimes.com/live/2026/02/02/us/trump-news
+
+**The Champions Cup is here to stay, but FIFA must learn lessons from London teething trouble**\
+`The tournament endured organisational issues, a presenting partner with a conflict of interest and a winner benefitting from home advantage`\
+https://nytimes.com/athletic/7014625/2026/02/02/champions-cup-fifa-arsenal-corinthians-kang/
+
+**How to watch the 2026 Winter Olympics: Schedule, TV times for Milan Cortina Games**\
+`Ninety-three countries are represented across 16 sports. Here's how interested viewers can keep up with overseas events.`\
+https://nytimes.com/athletic/6958414/2026/02/02/winter-olympics-milan-how-to-watch/
+
 **Man City's Rodri questions referee neutrality after 'clear foul' against Spurs**\
 `Rodri claimed it was clear "people" do not want City to win due to their past successes but that referees must remain "neutral".`\
 https://nytimes.com/athletic/7015311/2026/02/02/rodri-manchester-city-referee-criticism-var/

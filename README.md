@@ -1,3 +1,11 @@
+**‘A Terrifying Line Is Being Crossed’: Mayor Jacob Frey on the Turmoil in Minneapolis**\
+`The Minnesota Democrat discussed the battle between his city and the federal government with Lulu Garcia-Navarro.`\
+https://nytimes.com/video/podcasts/100000010684019/a-terrifying-line-is-being-crossed-mayor-jacob-frey-on-the-turmoil-in-minneapolis.html
+
+**Should Children Learn Cursive in School?**\
+`Students in New Jersey will soon be required to learn cursive. Do you think it’s an important skill to have, or is it a relic of the past?`\
+https://nytimes.com/2026/02/02/learning/should-children-learn-cursive-in-school.html
+
 **Trump Administration Live Updates: President Says Kennedy Center Will Close for 2-Year Renovation**\
 ``\
 https://nytimes.com/live/2026/02/02/us/trump-news
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7015432/2026/02/02/f1-movie-grammy-stapleton/
 **Super Bowl LX Opening Night: What happens, who's involved and how to watch it**\
 `A big week precedes the big game. So begins the hype, but also the hilarity.`\
 https://nytimes.com/athletic/7010987/2026/02/02/super-bowl-opening-night-media-day-interviews/
-
-**FPL Gameweek 24 review: Liverpool’s in-form duo, Saka uncertainty, and preaching patience**\
-`Injuries, form swings, and a looming Carabao Cup semi-final mean patience could be just as important as points this week`\
-https://nytimes.com/athletic/7014342/2026/02/02/fantasy-premier-league-fpl-tips-liverpool-saka-manchester-united/
-
-**Trump Says Kennedy Center to Close for 2-Year Renovation**\
-`The performing arts center will shut on July 4 for the refit, President Trump announced on social media. The institution has been rocked by cancellations and boycotts.`\
-https://nytimes.com/video/us/politics/100000010683920/trump-close-kennedy-center.html
 
