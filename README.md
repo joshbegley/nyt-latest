@@ -1,3 +1,7 @@
+**Games On**\
+`We preview the Winter Olympics.`\
+https://nytimes.com/2026/02/02/briefing/games-on.html
+
 **Why LeBron James should start thinking about joining next year’s Knicks**\
 `James has a lot of good options, but a final season of playing at Madison Square Garden while chasing a fifth title might be very tempting. `\
 https://nytimes.com/athletic/7014976/2026/02/02/lebron-james-knicks-lakers-nba-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7006105/2026/02/02/rockies-2026-top-20-prospects-ke
 **A collection of Luke Kuechly's greatest hits as he waits for Hall of Fame call**\
 `Kuechly didn't get the call in his first eligible season a year ago. The 2026 class will be announced Thursday night.`\
 https://nytimes.com/athletic/7011209/2026/02/02/luke-kuechly-hof-career-panthers/
-
-**Inside Phillies prospect Justin Crawford's outfield boot camp. His teacher: Eric Davis**\
-`Crawford returned to the Phoenix fields where he first learned baseball as a child for two weeks of drills with a three-time Gold Glover.`\
-https://nytimes.com/athletic/7011333/2026/02/02/phillies-justin-crawford-eric-davis/
 
