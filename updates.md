@@ -1,3 +1,11 @@
+**Gaza’s Rafah Crossing Reopens, Allowing Some to Leave and Return**\
+`Some critically ill and wounded Palestinians were set to leave through the Rafah crossing as it reopened on Monday. A limited number of Palestinians that fled during the war will also be allowed to return to Gaza.`\
+https://nytimes.com/video/world/middleeast/100000010683949/gaza-rafah-crossing-egypt-israel.html
+
+**How Spurs turned their game against Manchester City on its head**\
+`A half-time tweak from Thomas Frank enabled Tottenham to come from two goals down against Pep Guardiola's side on Sunday`\
+https://nytimes.com/athletic/7015291/2026/02/02/tottenham-man-city-premier-league-analysis/
+
 **Arsenal 'actively looking' in transfer market after Merino injury – Arteta**\
 `Merino will undergo surgery on a foot injury and is set for an extended spell out.`\
 https://nytimes.com/athletic/7015641/2026/02/02/arsenal-transfers-mikel-merino-injury-arteta/
