@@ -1,40 +1,40 @@
-**Dak Prescott explains why Cowboys must sign 'game-changer' George Pickens**\
-`Prescott says he'd love to have Pickens back in 2026. The receiver is set to become an unrestricted free agent.`\
-https://nytimes.com/athletic/7016339/2026/02/02/cowboys-george-pickens-contract-dak-prescott/
+**How to watch Canadiens vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7016582/2026/02/02/canadiens-vs-wild-stream-how-to-watch-feb-2/
 
-**Trump Would Have Slim Chance in Court Against Trevor Noah, Experts Say**\
-`Legal experts said that jokes like the one told by Mr. Noah at the Grammys on Sunday were protected by the First Amendment.`\
-https://nytimes.com/2026/02/02/business/media/trump-trevor-noah-lawsuit-first-amendment.html
+**How to watch Sharks vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7016574/2026/02/02/sharks-vs-blackhawks-stream-how-to-watch-feb-2/
 
-**What to Know about Gaza’s Rafah Border Crossing**\
-`The only crossing that connects Gaza with Egypt, the Rafah border crossing, has reopened under tight conditions. Our reporter Aaron Boxerman explains how the move will allow a limited number of Gazans to leave or return to the enclave.`\
-https://nytimes.com/video/world/middleeast/100000010671894/what-to-know-about-gazas-rafah-border-crossing.html
+**How to watch Canucks vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7016572/2026/02/02/canucks-vs-mammoth-stream-how-to-watch-feb-2/
 
-**Benzema set to join Al Hilal from Al Ittihad**\
-`Al Hilal are the Saudi Pro League leaders while fellow PIF-owned club Al Ittihad are sixth.`\
-https://nytimes.com/athletic/7015376/2026/02/02/karim-benzema-al-hilal-al-ittihad-transfer-news/
+**How to watch Timberwolves vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7016564/2026/02/02/timberwolves-vs-grizzlies-stream-how-to-watch-feb-2/
 
-**Why So Much of Silicon Valley Is Mum About Minneapolis**\
-`In a shaky job market, Silicon Valley workers feel they lack the leverage needed to make their political views known. `\
-https://nytimes.com/2026/02/02/opinion/silicon-valley-trump-minneapolis.html
+**How to watch Jets vs. Stars: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7016560/2026/02/02/jets-vs-stars-stream-how-to-watch-feb-2/
 
-**Billy Bass Nelson, Original Bassist for Funkadelic, Dies at 75**\
-`George Clinton, while working as a barber, recruited him. Mr. Nelson went on to name the group and, with his bandmates, to be inducted into the Rock & Roll Hall of Fame.`\
-https://nytimes.com/2026/02/02/arts/music/billy-bass-nelson-dead.html
+**How to watch Red Wings vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7016556/2026/02/02/red-wings-vs-avalanche-stream-how-to-watch-feb-2/
 
-**Sargent's Norwich status unchanged with one transfer deadline down, another to go**\
-`Just because England's transfer window is closing, doesn't mean the U.S. forward is stuck, but there's little change to his status as of now`\
-https://nytimes.com/athletic/7015859/2026/02/02/josh-sargent-norwich-transfer-deadline-toronto-mls/
+**How to watch 76ers vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7016552/2026/02/02/76ers-vs-clippers-stream-how-to-watch-feb-2/
 
-**Judge Bars Further Changes to George Washington’s Philadelphia House**\
-`The Interior Department removed placards and videos about Washington’s involvement with slavery. A new court ruling blocks further changes, for now.`\
-https://nytimes.com/2026/02/02/us/politics/judge-george-washington-slavery.html
+**How to watch Blues vs. Predators: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7016550/2026/02/02/blues-vs-predators-stream-how-to-watch-feb-2/
 
-**Dodgers' Edwin Díaz to pitch for Puerto Rico in World Baseball Classic, serve as team closer**\
-`Díaz has been confirmed as a participant days after Team Puerto Rico learned several of their stars were denied insurance coverage to play.`\
-https://nytimes.com/athletic/7016231/2026/02/02/dodgers-edwin-diaz-wbc-participation/
+**How to watch Maple Leafs vs. Flames: Time, TV, streaming**\
+`Find out how to watch the Toronto Maple Leafs play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7016548/2026/02/02/maple-leafs-vs-flames-stream-how-to-watch-feb-2/
 
-**Deal to Reopen Government on Shaky Ground in the House**\
-`Some hard-line House Republicans have balked at the deal Senate Democrats struck with President Trump to fund the government, complicating its path to enactment.`\
-https://nytimes.com/2026/02/02/us/politics/government-shutdown-deal.html
+**How to watch Kansas vs. Texas Tech men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7016541/2026/02/02/kansas-vs-texas-tech-stream-how-to-watch-feb-2/
 
