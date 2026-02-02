@@ -1,3 +1,7 @@
+**Trump Assails Grammys and Threatens to Sue Trevor Noah Over Epstein Joke**\
+`President Trump declared the awards ceremony “virtually unwatchable” and accused Mr. Noah of defamation over a joke he made that appeared to tie the president to Jeffrey Epstein.`\
+https://nytimes.com/2026/02/02/arts/television/trump-grammys-trevor-noah.html
+
 **Palace have bid rejected for Club Brugge centre-back Ordonez**\
 `Ordonez, 21, signed a new contract with the Belgian club in September, extending his deal until 2029.`\
 https://nytimes.com/athletic/7015128/2026/02/02/crystal-palace-joel-ordonez-bid-transfer/
