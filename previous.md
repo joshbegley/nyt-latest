@@ -1,10 +1,18 @@
+**17 Unforgettable Looks at the Grammys**\
+`Feathered gowns, sequined suits, freed nipples and more.`\
+https://nytimes.com/2026/02/01/style/grammys-red-carpet-2026.html
+
+**China Fails to Curb the ‘Secret Filming Betrayal’ of Women and Girls**\
+`Hidden cameras capture women in intimate moments without their consent, yet the authorities do little to stop it.`\
+https://nytimes.com/interactive/2026/02/01/world/asia/telegram-china-women-sex-exploitation.html
+
 **Cardinals get their coach in Mike LaFleur — and now comes the hard part**\
 `LaFleur has been around different quarterbacks, and he should know what he needs for his West Coast offense to be effective in Arizona.`\
 https://nytimes.com/athletic/7014664/2026/02/01/cardinals-mike-lafleur-kyler-murray/
 
 **Kendrick Lamar Repeats, Winning Record of the Year With SZA**\
 `The rapper took the category last year with “Not Like Us.” This time, he shared the honor with SZA for their duet “Luther.”`\
-https://nytimes.com/live/2026/02/01/arts/grammys-2026/kendrick-lamar-repeats-winning-record-of-the-year-with-sza
+https://nytimes.com/2026/02/01/arts/music/kendrick-lamar-sza-record-of-year-grammys.html
 
 **Latest Batch of Epstein Files Includes Emails From Several Prominent Men**\
 `Elon Musk, Commerce Secretary Howard Lutnick and the N.F.L. Giants’ co-owner Steve Tisch are among the powerful men mentioned in the latest round of files released by the Justice Department as part of its investigation into the disgraced financier and convicted sex offender Jeffrey Epstein.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/01/arts/music/billie-eilish-song-of-the-year-grammy.
 **Man and Dog Found Dead Inside Mobile Veterinary Van in Queens**\
 `A second man was found unconscious outside the van. The police are investigating whether the deaths were caused by carbon monoxide from a generator.`\
 https://nytimes.com/2026/02/01/nyregion/man-dog-dead-van-queens.html
-
-**N.Y. Republican in Swing District Gets Rowdy Reception at Town Hall**\
-`Representative Mike Lawler, who has promised to hold several town halls as he seeks re-election, was repeatedly heckled by audience members in Rockland County.`\
-https://nytimes.com/2026/02/01/nyregion/mike-lawler-ny-town-hall.html
-
-**Bad Bunny Says ‘ICE Out’ in Grammys Acceptance Speech**\
-`After winning the award for best música urbana album, the Puerto Rican superstar took aim at the Immigration and Customs Enforcement agency.`\
-https://nytimes.com/2026/02/01/arts/music/bad-bunny-speech-ice-grammys.html
 

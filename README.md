@@ -1,3 +1,15 @@
+**Bad Bunny Caps a Huge Year With the Grammys’ Top Album Prize**\
+`One week before his Super Bowl halftime set, the Puerto Rican superstar won album of the year, defeating Lady Gaga, Kendrick Lamar and others.`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/bad-bunny-caps-a-huge-year-with-the-grammys-top-album-prize
+
+**Cher returns to the Grammys stage.**\
+`(No description)`\
+https://nytimes.com/live/2026/02/01/arts/grammys-2026/cher-returns-to-the-grammys-stage
+
+**Why is the January transfer window closing in February, at 7pm GMT?**\
+`The Premier League, Bundesliga, Ligue 1 and Serie A transfer windows all close at the same time on February 2 — 7pm GMT, 8pm CET, 2pm ET.`\
+https://nytimes.com/athletic/7006532/2026/02/01/january-transfer-window-closing-time-why-when/
+
 **17 Unforgettable Looks at the Grammys**\
 `Feathered gowns, sequined suits, freed nipples and more.`\
 https://nytimes.com/2026/02/01/style/grammys-red-carpet-2026.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/01/arts/television/a-knight-of-the-seven-kingdoms-re
 **The Move Behind Bieber’s Boxers**\
 `The singer, who was nominated for four Grammys, performed at the award show in nothing but sparkly lavender shorts and socks.`\
 https://nytimes.com/2026/02/01/style/justin-bieber-boxers-grammys.html
-
-**The Grammys Take Naked to Another Level**\
-`Chappell Roan’s dress draped a barely there opaque skirt from nipple piercings, and that wasn’t the only way celebrities bared their skin.`\
-https://nytimes.com/2026/02/01/style/grammys-chappell-roan-naked-dress.html
-
-**Billie Eilish Wins Her Third Song of the Year Grammy**\
-`“Wildflower” beat tracks by Bad Bunny, Lady Gaga and Doechii.`\
-https://nytimes.com/2026/02/01/arts/music/billie-eilish-song-of-the-year-grammy.html
-
-**Man and Dog Found Dead Inside Mobile Veterinary Van in Queens**\
-`A second man was found unconscious outside the van. The police are investigating whether the deaths were caused by carbon monoxide from a generator.`\
-https://nytimes.com/2026/02/01/nyregion/man-dog-dead-van-queens.html
 
