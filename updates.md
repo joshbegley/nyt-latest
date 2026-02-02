@@ -1,3 +1,7 @@
+**New Clinical Trial Offers Hope for Resistant Ovarian Cancer**\
+`A new treatment approach aims to help patients whose cancer has stopped responding to therapy`\
+https://nytimes.com/paidpost/university-of-colorado-anschutz-cancer-center/university-of-colorado-anschutz-medical-campus-ad-post/new-clinical-trial-offers-hope-for-resistant-ovarian-cancer.html
+
 **Gaza’s Rafah Crossing Reopens, Allowing Some to Leave and Return**\
 `Some critically ill and wounded Palestinians were set to leave through the Rafah crossing as it reopened on Monday. A limited number of Palestinians that fled during the war will also be allowed to return to Gaza.`\
 https://nytimes.com/video/world/middleeast/100000010683949/gaza-rafah-crossing-egypt-israel.html

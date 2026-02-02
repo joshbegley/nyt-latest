@@ -1,3 +1,7 @@
+**New Clinical Trial Offers Hope for Resistant Ovarian Cancer**\
+`A new treatment approach aims to help patients whose cancer has stopped responding to therapy`\
+https://nytimes.com/paidpost/university-of-colorado-anschutz-cancer-center/university-of-colorado-anschutz-medical-campus-ad-post/new-clinical-trial-offers-hope-for-resistant-ovarian-cancer.html
+
 **Gaza’s Rafah Crossing Reopens, Allowing Some to Leave and Return**\
 `Some critically ill and wounded Palestinians were set to leave through the Rafah crossing as it reopened on Monday. A limited number of Palestinians that fled during the war will also be allowed to return to Gaza.`\
 https://nytimes.com/video/world/middleeast/100000010683949/gaza-rafah-crossing-egypt-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/02/us/politics/kennedy-center-trump-construction.htm
 **The Major Business Names in the Epstein Files**\
 `Documents referencing prominent executives like Elon Musk, Howard Lutnick and Bill Gates underscored the wide web of boldfaced names tied to Jeffrey Epstein.`\
 https://nytimes.com/2026/02/02/business/dealbook/epstein-files-business.html
-
-**Countries Have Long Tested Their Own Athletes for Doping. That Could Soon Change.**\
-`After Chinese swimmers won Olympic gold in 2021 despite having tested positive for a banned substance, the World Antidoping Agency is considering whether to have an independent body handle testing before major events.`\
-https://nytimes.com/2026/02/02/world/europe/doping-neutral-testing-olympics-.html
 
