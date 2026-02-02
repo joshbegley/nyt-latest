@@ -1,3 +1,11 @@
+**Submit your college basketball questions for our mailbag**\
+`With six weeks until the NCAA Tournament, conference championship races and the tournament picture are starting to take shape.`\
+https://nytimes.com/athletic/7015575/2026/02/02/submit-your-mens-college-basketball-questions-for-our-mailbag/
+
+**Dodger Details: Mookie Betts' bat, Tanner Scott's role and more**\
+`As Betts seeks to get his power groove back, the Dodgers have him penciled in at the No. 3 spot in the batting order. `\
+https://nytimes.com/athletic/7014485/2026/02/02/dodgers-mlb-mookie-betts-tanner-scott/
+
 **What to Know About the Kennedy Center and Trump’s Campaign to Remake It**\
 `The center opened in 1971 and is one of America’s top cultural institutions. President Trump says he plans to transform the center to create a “new and spectacular” entertainment complex.`\
 https://nytimes.com/2026/02/02/us/politics/kennedy-center-trump-construction.html
