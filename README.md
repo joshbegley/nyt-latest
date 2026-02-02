@@ -1,3 +1,7 @@
+**When the Clowns Went to Church**\
+`Every February, clowns pack into a London church to honor Joseph Grimaldi, a pioneering 19th-century clown. Hundreds of onlookers come for the merriment, too.`\
+https://nytimes.com/2026/02/02/arts/clown-church-grimaldi-service.html
+
 **Gus Malzahn, former Auburn championship coach, retires after 35 years**\
 `In 13 years as a college head coach, Malzahn went 105-62 with one SEC title and a Sun Belt championship.`\
 https://nytimes.com/athletic/7015722/2026/02/02/gus-malzahn-retirement-auburn-florida-state/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/02/us/politics/government-shutdown-what-to-know.html
 **New Clinical Trial Offers Hope for Resistant Ovarian Cancer**\
 `A new treatment approach aims to help patients whose cancer has stopped responding to therapy`\
 https://nytimes.com/paidpost/university-of-colorado-anschutz-cancer-center/university-of-colorado-anschutz-medical-campus-ad-post/new-clinical-trial-offers-hope-for-resistant-ovarian-cancer.html
-
-**Gaza’s Rafah Crossing Reopens, Allowing Some to Leave and Return**\
-`Some critically ill and wounded Palestinians were set to leave through the Rafah crossing as it reopened on Monday. A limited number of Palestinians that fled during the war will also be allowed to return to Gaza.`\
-https://nytimes.com/video/world/middleeast/100000010683949/gaza-rafah-crossing-egypt-israel.html
 
