@@ -1,3 +1,11 @@
+**Is Football Doomed? Chuck Klosterman Thinks So.**\
+`In his new book, the writer goes deep on a sport that dominates American cultural life — but possibly not for long.`\
+https://nytimes.com/2026/02/02/books/review/chuck-klosterman-football.html
+
+**They Got Rich in New York and Chicago. They Think Florida Is the Future.**\
+`Stephen Ross, the real estate developer, and Ken Griffin, the billionaire financier, are trying to attract businesses to their new base, South Florida.`\
+https://nytimes.com/2026/02/02/business/dealbook/florida-ross-griffin-businesses.html
+
 **Premier League data notebook: The Ekitike & Wirtz show, Man Utd's set- pieces, Wolves' defensive secret**\
 `The Athletic's data writers break down the key storylines from the weekend's action`\
 https://nytimes.com/athletic/7015305/2026/02/02/premier-league-data-notebook-md24-liverpool-man-utd-spurs/
