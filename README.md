@@ -1,3 +1,7 @@
+**Browns' Shedeur Sanders ‘truly thankful’ for Pro Bowl experience**\
+`Sanders was named to the Pro Bowl after three AFC quarterbacks suffered season-ending injuries and Trevor Lawrence declined to participate.`\
+https://nytimes.com/athletic/7016527/2026/02/02/shedeur-sanders-pro-bowl-browns-joe-flacco/
+
 **How to watch Canadiens vs. Wild: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7016582/2026/02/02/canadiens-vs-wild-stream-how-to-watch-feb-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7016550/2026/02/02/blues-vs-predators-stream-how-to
 **How to watch Maple Leafs vs. Flames: Time, TV, streaming**\
 `Find out how to watch the Toronto Maple Leafs play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7016548/2026/02/02/maple-leafs-vs-flames-stream-how-to-watch-feb-2/
-
-**How to watch Kansas vs. Texas Tech men's basketball: Time, TV, streaming**\
-`Find out how to watch the Kansas Jayhawks play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7016541/2026/02/02/kansas-vs-texas-tech-stream-how-to-watch-feb-2/
 
