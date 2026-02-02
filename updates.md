@@ -1,3 +1,11 @@
+**Blue Jackets Monday Gathering: Hot streak adds pressure to GM Don Waddell's decision-making**\
+`Waddell needs to make a choice fairly soon about being a buyer or seller ahead of the March 6 trade deadline.`\
+https://nytimes.com/athletic/7014932/2026/02/02/blue-jackets-waddell-trade-deadline/
+
+**A Knight of the Seven Kingdoms**\
+``\
+https://nytimes.com/spotlight/a-knight-of-the-seven-kingdoms
+
 **Dusty May calls out 'very dangerous' plays from win at Michigan State**\
 `Both coaches had gripes with the officiating in the Wolverines and Spartans' first meeting of the year.`\
 https://nytimes.com/athletic/7015997/2026/02/02/dusty-may-officiating-michigan-msu-rivalry/
