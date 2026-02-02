@@ -1,3 +1,7 @@
+**Premier League data notebook: The Ekitike & Wirtz show, Man Utd's set- pieces, Wolves' defensive secret**\
+`The Athletic's data writers break down the key storylines from the weekend's action`\
+https://nytimes.com/athletic/7015305/2026/02/02/premier-league-data-notebook-md24-liverpool-man-utd-spurs/
+
 **Inside Real Madrid: Bernabeu boos, Bellingham blow, Fran Garcia's transfer decision**\
 `After another hostile reception from home fans on Sunday, tensions continue to build around Alvaro Arbeloa's side`\
 https://nytimes.com/athletic/7015185/2026/02/02/inside-real-madrid-bernabeu-boos-bellingham-blow-fran-garcias-transfer-decision/
