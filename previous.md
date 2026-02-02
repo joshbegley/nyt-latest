@@ -1,3 +1,28 @@
+**Get Ready with Scotty the Pekingese**\
+`We hung out with some of Westminster’s top dogs to steal their beauty secrets. With glam that could put even the Real Housewives to shame, the pups who win Best in Show represent the platonic ideal of their breeds. Here’s what the canine stars use to stay ring-ready.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010684942/get-ready-with-scotty-the-pekingese.html
+
+**Submit your questions for Grace Raynor’s recruiting mailbag**\
+`<p>We&#8217;re wrapping up the Class of 2026 with national signing day on Wednesday and then turning our attention to the Class of 2027. Submit your recruiting questions for Grace below. We will post her answer later this week.</p>
+`\
+https://nytimes.com/athletic/7016301/2026/02/02/submit-your-questions-for-grace-raynors-recruiting-mailbag-23/
+
+**Deep Inside an Antarctic Glacier, a Mission Collapses at Its Final Step**\
+`Scientists lost their instruments within Antarctica’s most dangerously unstable glacier, though not before getting a glimpse at the warming waters underneath.`\
+https://nytimes.com/2026/02/02/climate/antarctica-thwaites-glacier-drilling.html
+
+**Does This Angel Look Familiar? A Modern Face Appears in a Rome Fresco.**\
+`The recent restoration of a chapel came with a surprise: an angel depicted with the likeness of Prime Minister Giorgia Meloni of Italy. Cue the protests.`\
+https://nytimes.com/2026/02/02/world/europe/angel-meloni-face-rome-church.html
+
+**We Tested Shark’s Viral Facial Device**\
+`Shark claims its $400 facial device delivers a “spa-level glow and sculpting in just one use.” “As someone with perpetually clogged New York City pores, I was ready for salvation,” writes Neha Tandon. “Instead of the promised land, I found too many steps for too few benefits.”`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010684915/we-tested-sharks-viral-facial-device.html
+
+**Blue Jays announce Joe Carter statue commemorating his iconic World Series home run**\
+`Carter's blast to end the 1993 World Series clinched the Jays second World Series title and their first title won on Canadian soil.`\
+https://nytimes.com/athletic/7016236/2026/02/02/blue-jays-joe-carter-statue-home-run/
+
 **Mayor Mamdani’s New Coat Blends Workwear with Skate Culture**\
 `As he dealt with a major snowstorm, the mayor appeared in a personalized Carhartt jacket designed with help from his wife.`\
 https://nytimes.com/2026/02/02/style/mamdani-carhartt-jacket-rama-duwaji.html
@@ -13,31 +38,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010684852/stink-resist
 **As Democrats Press Trump on ICE, Gallego and Pritzker Preview 2028 Pitches**\
 `Speaking at a party gathering in Nevada, the two politicians urged opposition to President Trump’s deportation agenda, while appearing to lay the groundwork for potential presidential runs.`\
 https://nytimes.com/2026/02/02/us/politics/ruben-gallego-jb-pritzker-trump-ice-nevada.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Happy Super Bowl week. You&#8217;ve come to the right place if you&#8217;re already tired of reading 20 articles a day on the Patriots and Seahawks.</p>
-<p>Leave your questions here. Please include your city.</p>
-<p>&nbsp;</p>
-`\
-https://nytimes.com/athletic/7016267/2026/02/02/submit-a-question-for-stewart-mandels-college-football-mailbag-333/
-
-**Chelsea recall Sarr from Strasbourg loan**\
-`Sarr returned to Strasbourg on a season-long loan in August.`\
-https://nytimes.com/athletic/7015290/2026/02/02/chelsea-mamadou-sarr-strasbourg-recall/
-
-**British and Norwegian Royal Families Under Pressure Over Epstein Files**\
-`Newly released emails offer new details about ties between Jeffrey Epstein and Crown Princess Mette-Marit of Norway, as well as Sarah Ferguson, once the Duchess of York in Britain.`\
-https://nytimes.com/2026/02/02/world/europe/epstein-norway-britain-princess-fergie-emails.html
-
-**Judge Deals Fifth Blow to Trump’s War on Offshore Wind Power**\
-`The court ruled that construction can restart on a wind farm off the coast of New York. The Trump administration had ordered work to stop in December.`\
-https://nytimes.com/2026/02/02/climate/judge-offshore-wind-sunrise.html
-
-**Is Ikea Cookware As Good As All-Clad?**\
-`Throughout years of testing, our kitchen journalists have consistently found that All-Clad cookware is top-of-the-line.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010684785/is-ikea-cookware-as-good-as-all-clad.html
-
-**Doing the Super Prop Shuffle**\
-`In the spirit of the "Super Bowl Shuffle," Toby Mergler gives his prop-bet picks for this year's game.`\
-https://nytimes.com/athletic/7015869/2026/02/02/best-super-bowl-player-prop-bets-patriots-seahawks/
 
