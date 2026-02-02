@@ -1,3 +1,11 @@
+**Liverpool sign Jacquet in £55m deal from Rennes**\
+`The 20-year-old has penned a contract until 2031 with the option of a further year.`\
+https://nytimes.com/athletic/7015491/2026/02/02/liverpool-jeremy-jacquet-transfer-confirmed/
+
+**Angel Restoration Resembles Italy’s Prime Minister**\
+`The face of an angel in a restored painting inside a chapel in Italy has many questioning its striking resemblance to Italy’s prime minister, Giorgia Meloni.`\
+https://nytimes.com/video/world/europe/100000010684551/rome-angel-restoration-meloni.html
+
 **Trump, in an Escalation, Calls for Republicans to ‘Nationalize’ Elections**\
 `The comments, made on a conservative podcast, follow a string of moves from his administration to try to exert more control over American elections.`\
 https://nytimes.com/2026/02/02/us/politics/trump-nationalize-elections.html
