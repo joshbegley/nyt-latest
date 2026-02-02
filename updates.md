@@ -1,3 +1,19 @@
+**Oversight Chairman Rejects Clintons’ Offer for Epstein Testimony**\
+`Bill Clinton agreed to an interview he had long resisted, but Representative James Comer, the Oversight Committee chairman, signaled he would go forward with holding the former president in contempt.`\
+https://nytimes.com/2026/02/02/us/politics/bill-hillary-clinton-epstein-comer-contempt.html
+
+**Psychosis Diagnoses Have Risen Among Young Canadians, Data Shows**\
+`Researchers believe increasing use of cannabis may be contributing to a rise in new cases of schizophrenia and related disorders at younger ages.`\
+https://nytimes.com/2026/02/02/health/pyschosis-young-people-cannabis-canada.html
+
+**Fanatics adds exclusive David Beckham deal to growing soccer efforts**\
+`Fanatics' Beckham deal marks its latest effort in growing its soccer and international collectibles businesses.`\
+https://nytimes.com/athletic/7015819/2026/02/02/fanatics-david-beckham-partnership/
+
+**At the U.S.-Mexico Border, a Children’s Opera Sings to the Moment**\
+`“Pancho Rabbit and the Coyote,” performed on both sides of the border, offers an allegory about migrants, immigration agents and President Trump.`\
+https://nytimes.com/2026/02/02/arts/music/pancho-rabbit-and-the-coyote-children-opera.html
+
 **Takeaways From the First Week of the Alexander Brothers Trial**\
 `Jurors in the sex trafficking case heard from the first witnesses and saw graphic evidence of the crimes the brothers are accused of.`\
 https://nytimes.com/2026/02/02/nyregion/trial-alexanders-sex-assault-takeaways.html

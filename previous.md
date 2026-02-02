@@ -1,3 +1,19 @@
+**Oversight Chairman Rejects Clintons’ Offer for Epstein Testimony**\
+`Bill Clinton agreed to an interview he had long resisted, but Representative James Comer, the Oversight Committee chairman, signaled he would go forward with holding the former president in contempt.`\
+https://nytimes.com/2026/02/02/us/politics/bill-hillary-clinton-epstein-comer-contempt.html
+
+**Psychosis Diagnoses Have Risen Among Young Canadians, Data Shows**\
+`Researchers believe increasing use of cannabis may be contributing to a rise in new cases of schizophrenia and related disorders at younger ages.`\
+https://nytimes.com/2026/02/02/health/pyschosis-young-people-cannabis-canada.html
+
+**Fanatics adds exclusive David Beckham deal to growing soccer efforts**\
+`Fanatics' Beckham deal marks its latest effort in growing its soccer and international collectibles businesses.`\
+https://nytimes.com/athletic/7015819/2026/02/02/fanatics-david-beckham-partnership/
+
+**At the U.S.-Mexico Border, a Children’s Opera Sings to the Moment**\
+`“Pancho Rabbit and the Coyote,” performed on both sides of the border, offers an allegory about migrants, immigration agents and President Trump.`\
+https://nytimes.com/2026/02/02/arts/music/pancho-rabbit-and-the-coyote-children-opera.html
+
 **Takeaways From the First Week of the Alexander Brothers Trial**\
 `Jurors in the sex trafficking case heard from the first witnesses and saw graphic evidence of the crimes the brothers are accused of.`\
 https://nytimes.com/2026/02/02/nyregion/trial-alexanders-sex-assault-takeaways.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7014932/2026/02/02/blue-jackets-waddell-trade-deadl
 **A Knight of the Seven Kingdoms**\
 ``\
 https://nytimes.com/spotlight/a-knight-of-the-seven-kingdoms
-
-**Dusty May calls out 'very dangerous' plays from win at Michigan State**\
-`Both coaches had gripes with the officiating in the Wolverines and Spartans' first meeting of the year.`\
-https://nytimes.com/athletic/7015997/2026/02/02/dusty-may-officiating-michigan-msu-rivalry/
-
-**Rams announce extensions for head coach Sean McVay, GM Les Snead**\
-`The Rams have made the playoffs seven times in nine years under McVay and Snead, including two Super Bowl appearances. `\
-https://nytimes.com/athletic/7016007/2026/02/02/rams-sean-mcvay-les-snead-contract-extensions/
-
-**New York City’s First Real Winter in a Long Time Is Relentless**\
-`Mountains of rock-solid filthy snow. Narrow, icy sidewalks. Temperatures that sound like shoe sizes. When will it end?`\
-https://nytimes.com/2026/02/02/nyregion/nyc-winter-cold.html
-
-**Games Briefing: The Winter Olympics primer, schedule and what to expect**\
-`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
-https://nytimes.com/athletic/7016002/2026/02/02/milan-cortina-winter-olympics-2026-games-briefing/
 
