@@ -1,3 +1,15 @@
+**Lawsuit Challenges Trump Ban on Immigration From 75 Countries**\
+`The Trump administration says these immigrants take welfare intended for Americans, which the lawsuit says is an “unsupported and demonstrably false claim.”`\
+https://nytimes.com/2026/02/02/nyregion/immigration-ban-lawsuit-75-countries.html
+
+**Will Advertising Change the ChatGPT Experience?**\
+`Casey Newton and Kevin Roose, the hosts of “Hard Fork,” discuss OpenAI’s recent decision to integrate advertising into ChatGPT and whether that will fundamentally alter the relationship between the product and the user.`\
+https://nytimes.com/video/podcasts/100000010671005/will-advertising-change-the-chatgpt-experience.html
+
+**The Creeping Change of Ads in ChatGPT**\
+`At one time, OpenAI said that putting advertisements into ChatGPT would be a last resort — but they have now arrived. Kevin Roose and Casey Newton, the hosts of “Hard Fork,” discuss how the evolution of those ads may compare to ads in Google search.`\
+https://nytimes.com/video/podcasts/100000010670994/the-creeping-change-of-ads-in-chatgpt.html
+
 **When the Clowns Went to Church**\
 `Every February, clowns pack into a London church to honor Joseph Grimaldi, a pioneering 19th-century clown. Hundreds of onlookers come for the merriment, too.`\
 https://nytimes.com/2026/02/02/arts/clown-church-grimaldi-service.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7014887/2026/02/02/jensen-button-f1-retirement-asto
 **USMNT Tracker: Contrasting scoring fortunes and Matarazzo's unbeaten start in Spain**\
 `There were goals for Malik Tillman, Patrick Agyemang and Weston McKennie, but Folarin Balogun's league drought continues`\
 https://nytimes.com/athletic/7015496/2026/02/02/usmnt-tracker-tillman-mckennie-balogun/
-
-**Lowetide: Will Oilers head coach Kris Knoblauch alter his forward deployment?**\
-`There are some interesting strategic trends up front for Knoblauch in his third Oilers season.`\
-https://nytimes.com/athletic/7013797/2026/02/02/edmonton-oilers-roster-depth-charts-deployment-stats/
-
-**Here’s What to Know About the Partial Government Shutdown**\
-`A bipartisan spending deal couldn’t clear Congress in time to prevent a lapse in federal funding for some departments. The House must pass it to fully reopen the government.`\
-https://nytimes.com/2026/02/02/us/politics/government-shutdown-what-to-know.html
-
-**New Clinical Trial Offers Hope for Resistant Ovarian Cancer**\
-`A new treatment approach aims to help patients whose cancer has stopped responding to therapy`\
-https://nytimes.com/paidpost/university-of-colorado-anschutz-cancer-center/university-of-colorado-anschutz-medical-campus-ad-post/new-clinical-trial-offers-hope-for-resistant-ovarian-cancer.html
 

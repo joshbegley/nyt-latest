@@ -1,3 +1,7 @@
+**When the Clowns Went to Church**\
+`Every February, clowns pack into a London church to honor Joseph Grimaldi, a pioneering 19th-century clown. Hundreds of onlookers come for the merriment, too.`\
+https://nytimes.com/2026/02/02/arts/clown-church-grimaldi-service.html
+
 **Gus Malzahn, former Auburn championship coach, retires after 35 years**\
 `In 13 years as a college head coach, Malzahn went 105-62 with one SEC title and a Sun Belt championship.`\
 https://nytimes.com/athletic/7015722/2026/02/02/gus-malzahn-retirement-auburn-florida-state/
