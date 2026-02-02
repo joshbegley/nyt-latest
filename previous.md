@@ -1,3 +1,7 @@
+**Chris Stapleton's 'F1 The Movie' song gets Grammy recognition**\
+`'F1 The Movie' had three nominations across Music's Biggest Night.`\
+https://nytimes.com/athletic/7015432/2026/02/02/f1-movie-grammy-stapleton/
+
 **Super Bowl LX Opening Night: What happens, who's involved and how to watch it**\
 `A big week precedes the big game. So begins the hype, but also the hilarity.`\
 https://nytimes.com/athletic/7010987/2026/02/02/super-bowl-opening-night-media-day-interviews/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7002424/2026/02/02/49ers-roster-review-brock-purdy-
 **Blackhawks trade board 1.0: Which pending UFAs could be drawing interest?**\
 `The Blackhawks are unlikely to sell off any major assets, but five pending UFAs could earn interest around the league.`\
 https://nytimes.com/athletic/7014108/2026/02/02/blackhawks-trade-board-mikheyev-murphy-grzelcyk-dickinson/
-
-**What I'm hearing about the Penguins: Bryan Rust suspension, Marc-André Fleury return**\
-`The Penguins are quietly seething about Bryan Rust's three-game suspension. `\
-https://nytimes.com/athletic/7014114/2026/02/02/penguins-bryan-rust-suspension-marc-andre-fleury/
 

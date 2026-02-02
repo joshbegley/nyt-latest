@@ -1,3 +1,7 @@
+**Chris Stapleton's 'F1 The Movie' song gets Grammy recognition**\
+`'F1 The Movie' had three nominations across Music's Biggest Night.`\
+https://nytimes.com/athletic/7015432/2026/02/02/f1-movie-grammy-stapleton/
+
 **Super Bowl LX Opening Night: What happens, who's involved and how to watch it**\
 `A big week precedes the big game. So begins the hype, but also the hilarity.`\
 https://nytimes.com/athletic/7010987/2026/02/02/super-bowl-opening-night-media-day-interviews/
