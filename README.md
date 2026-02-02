@@ -1,3 +1,7 @@
+**Cher’s Grammy Flub Joins a Pantheon of Award-Show Gaffes**\
+`“I don’t do this part very well,” the singer said, just before she seemed to award a Grammy to Luther Vandross, who died in 2005. Plenty of celebrities have made similar goofs.`\
+https://nytimes.com/2026/02/02/arts/music/cher-grammy-mistake-award-show-gaffes.html
+
 **Browns' Shedeur Sanders ‘truly thankful’ for Pro Bowl experience**\
 `Sanders was named to the Pro Bowl after three AFC quarterbacks suffered season-ending injuries and Trevor Lawrence declined to participate.`\
 https://nytimes.com/athletic/7016527/2026/02/02/shedeur-sanders-pro-bowl-browns-joe-flacco/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7016552/2026/02/02/76ers-vs-clippers-stream-how-to-
 **How to watch Blues vs. Predators: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Nashville Predators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7016550/2026/02/02/blues-vs-predators-stream-how-to-watch-feb-2/
-
-**How to watch Maple Leafs vs. Flames: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7016548/2026/02/02/maple-leafs-vs-flames-stream-how-to-watch-feb-2/
 
