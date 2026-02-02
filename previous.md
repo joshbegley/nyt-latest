@@ -1,3 +1,7 @@
+**Word of the Day: accede**\
+`This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/02/learning/word-of-the-day-accede.html
+
 **Super Bowl 60 headliner Bad Bunny says 'ICE out' after winning at Grammy Awards**\
 `The Puerto Rican star made his feelings known about the immigration crackdown across the U.S. before performing at the Super Bowl next week.`\
 https://nytimes.com/athletic/7014912/2026/02/02/bad-bunny-grammy-speech-ice-protest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013915/2026/02/02/nottingham-forest-crystal-palace
 **Newcastle United's dismal record against direct rivals is undermining their season**\
 `Newcastle have beaten only one of the current top six this season and have lost six times against teams currently above them in the table`\
 https://nytimes.com/athletic/7012180/2026/02/02/newcastle-howe-rivals-liverpool/
-
-**Everton and the logic of fielding a back line comprised entirely of centre-halves**\
-`David Moyes has more strength in depth to call upon these days, but his quest to make all the pieces fit together remains a work in progress`\
-https://nytimes.com/athletic/7012564/2026/02/02/everton-moyes-tarkovski-branthwaite-keane-obrien/
 
