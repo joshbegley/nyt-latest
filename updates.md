@@ -1,3 +1,8 @@
+**The Bounce: The Luka trade, one year later. Plus, All-Star snubs!**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7015691/2026/02/02/luka-doncic-trade-all-star-snubs-knicksthe-bounce/
+
 **NBA Power Rankings: With trade deadline near, every team can dream a little**\
 `LeBron going home? Giannis heading west? We're giving each squad an ideal trade candidate for the short-term future.`\
 https://nytimes.com/athletic/7015585/2026/02/02/nba-power-rankings-nuggets-timberwolves-knicks/
