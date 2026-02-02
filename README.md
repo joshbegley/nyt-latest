@@ -1,4 +1,4 @@
-**Chelsea set to recall Sarr from Strasbourg loan**\
+**Chelsea recall Sarr from Strasbourg loan**\
 `Sarr returned to Strasbourg on a season-long loan in August.`\
 https://nytimes.com/athletic/7015290/2026/02/02/chelsea-mamadou-sarr-strasbourg-recall/
 

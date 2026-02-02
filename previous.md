@@ -1,3 +1,15 @@
+**Chelsea set to recall Sarr from Strasbourg loan**\
+`Sarr returned to Strasbourg on a season-long loan in August.`\
+https://nytimes.com/athletic/7015290/2026/02/02/chelsea-mamadou-sarr-strasbourg-recall/
+
+**British and Norwegian Royal Families Under Pressure Over Epstein Files**\
+`Newly released emails offer new details about ties between Jeffrey Epstein and Crown Princess Mette-Marit of Norway, as well as Sarah Ferguson, once the Duchess of York in Britain.`\
+https://nytimes.com/2026/02/02/world/europe/epstein-norway-britain-princess-fergie-emails.html
+
+**Judge Deals Fifth Blow to Trump’s War on Offshore Wind Power**\
+`The court ruled that construction can restart on a wind farm off the coast of New York. The Trump administration had ordered work to stop in December.`\
+https://nytimes.com/2026/02/02/climate/judge-offshore-wind-sunrise.html
+
 **Is Ikea Cookware As Good As All-Clad?**\
 `Throughout years of testing, our kitchen journalists have consistently found that All-Clad cookware is top-of-the-line.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010684785/is-ikea-cookware-as-good-as-all-clad.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/02/business/economy/minnesota-ice-economy-damage.htm
 **Oversight Chairman Rejects Clintons’ Offer for Epstein Testimony**\
 `Bill Clinton agreed to an interview he had long resisted, but Representative James Comer, the Oversight Committee chairman, signaled he would go forward with holding the former president in contempt.`\
 https://nytimes.com/2026/02/02/us/politics/bill-hillary-clinton-epstein-comer-contempt.html
-
-**Psychosis Diagnoses Have Risen Among Young Canadians, Data Shows**\
-`Researchers believe increasing use of cannabis may be contributing to a rise in new cases of schizophrenia and related disorders at younger ages.`\
-https://nytimes.com/2026/02/02/health/pyschosis-young-people-cannabis-canada.html
-
-**Fanatics adds exclusive David Beckham deal to growing soccer efforts**\
-`Fanatics' Beckham deal marks its latest effort in growing its soccer and international collectibles businesses.`\
-https://nytimes.com/athletic/7015819/2026/02/02/fanatics-david-beckham-partnership/
-
-**At the U.S.-Mexico Border, a Children’s Opera Sings to the Moment**\
-`“Pancho Rabbit and the Coyote,” performed on both sides of the border, offers an allegory about migrants, immigration agents and President Trump.`\
-https://nytimes.com/2026/02/02/arts/music/pancho-rabbit-and-the-coyote-children-opera.html
 
