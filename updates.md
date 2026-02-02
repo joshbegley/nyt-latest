@@ -1,3 +1,19 @@
+**Dan Bongino, Former Deputy F.B.I. Director, Returns to Podcasting**\
+`Mr. Bongino, who spent nine months at the agency, spoke freely about the Epstein files and more as he returned to the land of “sound bites.”`\
+https://nytimes.com/2026/02/02/us/politics/dan-bongino-podcast-return.html
+
+**Tennessee QB Joey Aguilar sues NCAA in pursuit of eligibility for 2026**\
+`Aguilar is the latest SEC quarterback to file a lawsuit against the NCAA hoping to gain another year of college football eligibility.`\
+https://nytimes.com/athletic/7016810/2026/02/02/joey-aguilar-ncaa-eligibility-lawsuit-tennessee/
+
+**‘I Didn’t Have Time to Think,’ Says Sergeant Who Threw Cooler at Man**\
+`Erik Duran, an N.Y.P.D. sergeant, said he was trying to save lives when he struck Eric Duprey with a cooler. The sergeant took the unusual step of testifying at his own manslaughter trial.`\
+https://nytimes.com/2026/02/02/nyregion/duran-duprey-bronx-trial.html
+
+**Titans hiring Gus Bradley as defensive coordinator: Source**\
+`Bradley, a former head coach with the Jaguars, follows new head coach Robert Saleh from the 49ers to the Titans.`\
+https://nytimes.com/athletic/7016833/2026/02/02/titans-gus-bradley-defensive-coordinator/
+
 **Titans hiring Gus Bradley as defensive coordinator: source**\
 `Bradley, a former head coach with the Jaguars, follows new head coach Robert Saleh from the 49ers to the Titans.`\
 https://nytimes.com/athletic/7016833/2026/02/02/titans-gus-bradley-defensive-coordinator/

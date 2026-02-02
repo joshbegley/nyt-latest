@@ -1,8 +1,20 @@
+**Dan Bongino, Former Deputy F.B.I. Director, Returns to Podcasting**\
+`Mr. Bongino, who spent nine months at the agency, spoke freely about the Epstein files and more as he returned to the land of “sound bites.”`\
+https://nytimes.com/2026/02/02/us/politics/dan-bongino-podcast-return.html
+
+**Tennessee QB Joey Aguilar sues NCAA in pursuit of eligibility for 2026**\
+`Aguilar is the latest SEC quarterback to file a lawsuit against the NCAA hoping to gain another year of college football eligibility.`\
+https://nytimes.com/athletic/7016810/2026/02/02/joey-aguilar-ncaa-eligibility-lawsuit-tennessee/
+
+**‘I Didn’t Have Time to Think,’ Says Sergeant Who Threw Cooler at Man**\
+`Erik Duran, an N.Y.P.D. sergeant, said he was trying to save lives when he struck Eric Duprey with a cooler. The sergeant took the unusual step of testifying at his own manslaughter trial.`\
+https://nytimes.com/2026/02/02/nyregion/duran-duprey-bronx-trial.html
+
 **NBC Sports set to host Super Bowl LX pregame coverage from Alcatraz Island**\
 `Alcatraz will play host for segments of NBC's Super Bowl coverage on Sunday.`\
 https://nytimes.com/athletic/7016788/2026/02/02/nbc-sports-set-to-host-super-bowl-lx-pregame-coverage-from-alcatraz-island/
 
-**Titans hiring Gus Bradley as defensive coordinator: source**\
+**Titans hiring Gus Bradley as defensive coordinator: Source**\
 `Bradley, a former head coach with the Jaguars, follows new head coach Robert Saleh from the 49ers to the Titans.`\
 https://nytimes.com/athletic/7016833/2026/02/02/titans-gus-bradley-defensive-coordinator/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/02/us/politics/trump-nationalize-elections.html
 **Hecklers Roast My $800 Stroller Wagon. After 650 Miles, I Still Love It.**\
 `After pushing through snow, sand, and mud, my family of four has come to view the luxury stroller wagon as a necessity.`\
 https://nytimes.com/wirecutter/blog/veer-cruiser-xl-stroller-wagon-review/
-
-**Trump Drops Demand for Cash From Harvard After Stiff Resistance**\
-`The Trump administration has lowered the bar for a deal with the university, backtracking on its insistence on a $200 million payment to the government, The New York Times has learned.`\
-https://nytimes.com/2026/02/02/us/politics/trump-harvard-payment.html
-
-**Banfield Found Guilty in Virginia Double Murder Trial**\
-`Prosecutors said Brendan Banfield carried out an elaborate scheme using a fetish website in 2023 to kill his wife and another man.`\
-https://nytimes.com/2026/02/02/us/brendan-banfield-guilty-double-murder.html
-
-**Wolves sign Marseille's Angel Gomes on loan deal**\
-`All four of the 25-year-old’s international appearances for England came under interim head coach Lee Carsley in 2024.`\
-https://nytimes.com/athletic/7013338/2026/02/02/wolves-transfers-angel-gomes/
 
