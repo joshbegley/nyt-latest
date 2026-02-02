@@ -1,3 +1,11 @@
+**Deal to Reopen Government Is on Shaky Ground in the House**\
+`Some hard-line House Republicans have balked at the agreement Senate Democrats struck with President Trump to fund the government, complicating its path to enactment.`\
+https://nytimes.com/2026/02/02/us/politics/government-shutdown-house-deal.html
+
+**Woodie King Jr., Impresario of Black Theater, Dies at 88**\
+`His New Federal Theater in New York provided a rare stage for Black playwrights and emerging actors, among them Denzel Washington, Phylicia Rashad and Chadwick Boseman.`\
+https://nytimes.com/2026/02/02/theater/woodie-king-jr-dead.html
+
 **Maps: Earthquakes Shake the San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/02/02/us/san-francisco-bay-area-quake-tracker.html
