@@ -1,3 +1,11 @@
+**2026 Winter Olympics medal count**\
+``\
+https://nytimes.com/athletic/7002227/2026/02/02/2026-winter-olympics-medal-count/
+
+**Justice Dept. Sidelines Ed Martin as Chief of Weaponization Group**\
+`The move represents a consolidation of the authority of the deputy attorney general, Todd Blanche, in bringing Mr. Martin’s operation inside his office.`\
+https://nytimes.com/2026/02/02/us/politics/justice-dept-ed-martin-weaponization-group.html
+
 **ICE has no planned immigration operations at Super Bowl, host committee says**\
 `The federal security presence at Super Bowl 60 will be comparable to past Super Bowls, according to the game's host committee.`\
 https://nytimes.com/athletic/7016806/2026/02/02/super-bowl-ice-immigration-operations/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/02/nyregion/duran-duprey-bronx-trial.html
 **NBC Sports set to host Super Bowl LX pregame coverage from Alcatraz Island**\
 `Alcatraz will play host for segments of NBC's Super Bowl coverage on Sunday.`\
 https://nytimes.com/athletic/7016788/2026/02/02/nbc-sports-set-to-host-super-bowl-lx-pregame-coverage-from-alcatraz-island/
-
-**Titans hiring Gus Bradley as defensive coordinator: Source**\
-`Bradley, a former head coach with the Jaguars, follows new head coach Robert Saleh from the 49ers to the Titans.`\
-https://nytimes.com/athletic/7016833/2026/02/02/titans-gus-bradley-defensive-coordinator/
-
-**Trump Talked to Agents Investigating Election Claims**\
-`Also, the Supreme Court secretly made itself even more secretive. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2026/02/02/briefing/trump-fbi-agents-rafah-crossing-gaza.html
 
