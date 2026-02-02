@@ -1,3 +1,11 @@
+**‘A Terrifying Line Is Being Crossed’: Mayor Jacob Frey on the Turmoil in Minneapolis**\
+`The Minnesota Democrat discussed the battle between his city and the federal government with Lulu Garcia-Navarro.`\
+https://nytimes.com/video/podcasts/100000010684019/a-terrifying-line-is-being-crossed-mayor-jacob-frey-on-the-turmoil-in-minneapolis.html
+
+**Should Children Learn Cursive in School?**\
+`Students in New Jersey will soon be required to learn cursive. Do you think it’s an important skill to have, or is it a relic of the past?`\
+https://nytimes.com/2026/02/02/learning/should-children-learn-cursive-in-school.html
+
 **Trump Administration Live Updates: President Says Kennedy Center Will Close for 2-Year Renovation**\
 ``\
 https://nytimes.com/live/2026/02/02/us/trump-news
