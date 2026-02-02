@@ -1,3 +1,19 @@
+**San Francisco Giants 2026 top 20 prospects: Bryce Eldridge, Josuar Gonzalez lead the way**\
+`The Giants have a median system right now, but they could easily be a top-five system in a year.`\
+https://nytimes.com/athletic/7008119/2026/02/02/sf-giants-2026-top-20-prospects-keith-law/
+
+**San Diego Padres 2026 top 20 prospects: Ethan Salas, Kruz Schoolcraft lead the way**\
+`After trading so many prospects to help the big-league team, the Padres' system is predictably short on top talent at the moment.`\
+https://nytimes.com/athletic/7007692/2026/02/02/padres-2026-top-20-prospects-keith-law/
+
+**The Pulse: An incredible sports week is here**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7014881/2026/02/02/olympics-super-bowl-week-the-pulse/
+
+**Los Angeles Dodgers 2026 top 20 prospects: Eduardo Quintero, Josue De Paula lead the way**\
+`The two-time defended World Series champions are loaded in the minors, too, with a strong mix of upside position players and pitchers.`\
+https://nytimes.com/athletic/7007474/2026/02/02/dodgers-2026-top-20-prospects-keith-law/
+
 **Epstein Victims Outraged Over Unredacted Info, and the Supreme Court Made Itself More Secretive**\
 `Plus, big firsts at the Grammy Awards.`\
 https://nytimes.com/2026/02/02/podcasts/the-headlines/epstein-victims-photos-supreme-court-secrecy.html

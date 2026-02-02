@@ -1,3 +1,19 @@
+**San Francisco Giants 2026 top 20 prospects: Bryce Eldridge, Josuar Gonzalez lead the way**\
+`The Giants have a median system right now, but they could easily be a top-five system in a year.`\
+https://nytimes.com/athletic/7008119/2026/02/02/sf-giants-2026-top-20-prospects-keith-law/
+
+**San Diego Padres 2026 top 20 prospects: Ethan Salas, Kruz Schoolcraft lead the way**\
+`After trading so many prospects to help the big-league team, the Padres' system is predictably short on top talent at the moment.`\
+https://nytimes.com/athletic/7007692/2026/02/02/padres-2026-top-20-prospects-keith-law/
+
+**The Pulse: An incredible sports week is here**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7014881/2026/02/02/olympics-super-bowl-week-the-pulse/
+
+**Los Angeles Dodgers 2026 top 20 prospects: Eduardo Quintero, Josue De Paula lead the way**\
+`The two-time defended World Series champions are loaded in the minors, too, with a strong mix of upside position players and pitchers.`\
+https://nytimes.com/athletic/7007474/2026/02/02/dodgers-2026-top-20-prospects-keith-law/
+
 **Epstein Victims Outraged Over Unredacted Info, and the Supreme Court Made Itself More Secretive**\
 `Plus, big firsts at the Grammy Awards.`\
 https://nytimes.com/2026/02/02/podcasts/the-headlines/epstein-victims-photos-supreme-court-secrecy.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7014860/2026/02/02/nba-all-star-kawhi-leonard-lebro
 **Scottie Barnes is an All-Star, while Brandon Ingram is not. Raptors need both of them**\
 `Only one of the two Raptors stalwarts is headed to the All-Star Game in Inglewood, Calif., but each is essential to the other's success.`\
 https://nytimes.com/athletic/7014849/2026/02/02/all-star-scottie-barnes-brandon-ingram-raptors-nba/
-
-**By hiring Mike Vrabel, owner Robert Kraft has turned the Patriots back into a winner**\
-`Kraft's decision to pivot from Jerod Mayo to Vrabel after the 2024 season is paying major dividends for the Super Bowl-bound Patriots.`\
-https://nytimes.com/athletic/7012130/2026/02/02/robert-kraft-patriots-owner-mike-vrabel-super-bowl-60/
-
-**Makar and MacKinnon ready to bring NHL's greatest show to hockey's biggest stage**\
-`A new audience will experience the Avs stars at the Olympics. Prepare for them to be wowed: "It’s a nightmare when you play against them."`\
-https://nytimes.com/athletic/7013786/2026/02/02/cale-makar-nathan-mackinnon-avalanche-olympics/
-
-**One year after trade that rocked the NBA, Luka Dončić says Lakers in 'good spot'**\
-`Feeling confident, settled and normal a year after his shocking trade, Dončić sees things moving in the right direction for the Lakers.`\
-https://nytimes.com/athletic/7015039/2026/02/02/luka-doncic-lakers-good-spot-one-year-trade/
-
-**How does the Eagles’ offense compare to Seahawks, Patriots in Super Bowl 60?**\
-`The defending Super Bowl champions are in better shape in some areas, but not others.`\
-https://nytimes.com/athletic/7007599/2026/02/02/eagles-offense-roster-super-bowl-60-seahawks-patriots/
 
