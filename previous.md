@@ -1,5 +1,5 @@
 **Super Bowl 60 headliner Bad Bunny says 'ICE out' after winning at Grammys**\
-`The Puerto Rican superstar made his feelings known about the aggressive immigration crackdown across the U.S.`\
+`The Puerto Rican star made his feelings known about the immigration crackdown across the U.S. before performing at the Super Bowl next week.`\
 https://nytimes.com/athletic/7014912/2026/02/02/bad-bunny-grammy-speech-ice-protest/
 
 **Super Bowl LX, Plus 6 Things on TV This Week**\
