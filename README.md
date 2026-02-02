@@ -1,3 +1,11 @@
+**Morgan Rielly likely out until after Olympic break with 'lingering' injury**\
+`Rielly left Saturday's game against the Canucks with what coach Craig Berube described as an aggravated "upper body" injury.`\
+https://nytimes.com/athletic/7016486/2026/02/02/morgan-rielly-injury-update-upper-body-olympic-break/
+
+**Broncos promote Davis Webb to offensive coordinator**\
+`Webb replaces Joe Lombardi, who was fired after Denver's 10-7 loss in the AFC Championship Game.`\
+https://nytimes.com/athletic/7002908/2026/02/02/davis-webb-broncos-offensive-coordinator/
+
 **Cher’s Grammy Flub Joins a Pantheon of Award-Show Gaffes**\
 `“I don’t do this part very well,” the singer said, just before she seemed to award a Grammy to Luther Vandross, who died in 2005. Plenty of celebrities have made similar goofs.`\
 https://nytimes.com/2026/02/02/arts/music/cher-grammy-mistake-award-show-gaffes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7016560/2026/02/02/jets-vs-stars-stream-how-to-watc
 **How to watch Red Wings vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the Detroit Red Wings play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7016556/2026/02/02/red-wings-vs-avalanche-stream-how-to-watch-feb-2/
-
-**How to watch 76ers vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7016552/2026/02/02/76ers-vs-clippers-stream-how-to-watch-feb-2/
-
-**How to watch Blues vs. Predators: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7016550/2026/02/02/blues-vs-predators-stream-how-to-watch-feb-2/
 

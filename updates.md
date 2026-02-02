@@ -1,3 +1,11 @@
+**Cher’s Grammy Flub Joins a Pantheon of Award-Show Gaffes**\
+`“I don’t do this part very well,” the singer said, just before she seemed to award a Grammy to Luther Vandross, who died in 2005. Plenty of celebrities have made similar goofs.`\
+https://nytimes.com/2026/02/02/arts/music/cher-grammy-mistake-award-show-gaffes.html
+
+**Browns' Shedeur Sanders ‘truly thankful’ for Pro Bowl experience**\
+`Sanders was named to the Pro Bowl after three AFC quarterbacks suffered season-ending injuries and Trevor Lawrence declined to participate.`\
+https://nytimes.com/athletic/7016527/2026/02/02/shedeur-sanders-pro-bowl-browns-joe-flacco/
+
 **How to watch Canadiens vs. Wild: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7016582/2026/02/02/canadiens-vs-wild-stream-how-to-watch-feb-2/
