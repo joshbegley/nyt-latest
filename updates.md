@@ -1,3 +1,7 @@
+**Arsenal 'actively looking' in transfer market after Merino injury – Arteta**\
+`Merino will undergo surgery on a foot injury and is set for an extended spell out.`\
+https://nytimes.com/athletic/7015641/2026/02/02/arsenal-transfers-mikel-merino-injury-arteta/
+
 **Sheffield United reach Phillips loan agreement with Man City**\
 `Phillips, 30, is set to undergo a medical ahead of a loan move to the Championship club through to the summer.`\
 https://nytimes.com/athletic/6508411/2026/02/02/kalvin-phillips-manchester-city-sheffield-united-transfer/

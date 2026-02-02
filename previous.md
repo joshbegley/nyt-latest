@@ -1,3 +1,7 @@
+**Arsenal 'actively looking' in transfer market after Merino injury – Arteta**\
+`Merino will undergo surgery on a foot injury and is set for an extended spell out.`\
+https://nytimes.com/athletic/7015641/2026/02/02/arsenal-transfers-mikel-merino-injury-arteta/
+
 **Sheffield United reach Phillips loan agreement with Man City**\
 `Phillips, 30, is set to undergo a medical ahead of a loan move to the Championship club through to the summer.`\
 https://nytimes.com/athletic/6508411/2026/02/02/kalvin-phillips-manchester-city-sheffield-united-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7014494/2026/02/02/bulls-nba-trade-deadline-vucevic
 **Is Football Doomed? Chuck Klosterman Thinks So.**\
 `In his new book, the writer goes deep on a sport that dominates American cultural life — but possibly not for long.`\
 https://nytimes.com/2026/02/02/books/review/chuck-klosterman-football.html
-
-**They Got Rich in New York and Chicago. They Think Florida Is the Future.**\
-`Stephen Ross, the real estate developer, and Ken Griffin, the billionaire financier, are trying to attract businesses to their new base, South Florida.`\
-https://nytimes.com/2026/02/02/business/dealbook/florida-ross-griffin-businesses.html
 
