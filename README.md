@@ -1,3 +1,7 @@
+**Get Ready with Scotty the Pekingese**\
+`We hung out with some of Westminster’s top dogs to steal their beauty secrets. With glam that could put even the Real Housewives to shame, the pups who win Best in Show represent the platonic ideal of their breeds. Here’s what the canine stars use to stay ring-ready.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010684942/get-ready-with-scotty-the-pekingese.html
+
 **Submit your questions for Grace Raynor’s recruiting mailbag**\
 `<p>We&#8217;re wrapping up the Class of 2026 with national signing day on Wednesday and then turning our attention to the Class of 2027. Submit your recruiting questions for Grace below. We will post her answer later this week.</p>
 `\
@@ -34,11 +38,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010684852/stink-resist
 **As Democrats Press Trump on ICE, Gallego and Pritzker Preview 2028 Pitches**\
 `Speaking at a party gathering in Nevada, the two politicians urged opposition to President Trump’s deportation agenda, while appearing to lay the groundwork for potential presidential runs.`\
 https://nytimes.com/2026/02/02/us/politics/ruben-gallego-jb-pritzker-trump-ice-nevada.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Happy Super Bowl week. You&#8217;ve come to the right place if you&#8217;re already tired of reading 20 articles a day on the Patriots and Seahawks.</p>
-<p>Leave your questions here. Please include your city.</p>
-<p>&nbsp;</p>
-`\
-https://nytimes.com/athletic/7016267/2026/02/02/submit-a-question-for-stewart-mandels-college-football-mailbag-333/
 
