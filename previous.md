@@ -1,3 +1,11 @@
+**Olivia Dean Caps a Rocket-Ship Year With a Best New Artist Grammy**\
+`The “Man I Need” singer defeated a fellow British vocalist, Lola Young, as well as Leon Thomas, Addison Rae and others.`\
+https://nytimes.com/2026/02/01/arts/music/olivia-dean-best-new-artist-grammys.html
+
+**Goalie fight, again! Watch Vasilevskiy and Swayman throw down at center ice**\
+`The two goalies duked it out at center ice at the NHL Stadium Series at Tampa's Raymond James Stadium.`\
+https://nytimes.com/athletic/7014696/2026/02/01/nhl-goalie-fight-vasilevskiy-swayman-stadium-series/
+
 **‘KPop Demon Hunters’ is inspiring fans to learn Korean.**\
 `By Amy Qin`\
 https://nytimes.com/live/2026/02/01/arts/grammys-2026/kpop-demon-hunters-is-inspiring-fans-to-learn-korean
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/01/arts/grammys-2026/who-might-make-history-ken
 **Stars Speak Up for Immigrants Ahead of Grammys Ceremony**\
 `Gloria Estefan, Shaboozey and Kehlani took an opportunity to speak up for communities that are being targeted by ICE across the United States.`\
 https://nytimes.com/2026/02/01/arts/music/grammys-ice-immigration-kehlani.html
-
-**What trading Jordan Hicks could mean as Red Sox look to acquire infielder**\
-`Did Sunday's trade signal that the Red Sox are primed to make another move?`\
-https://nytimes.com/athletic/7014115/2026/02/01/red-sox-jordan-hicks-trade-infielder-pursuit/
-
-**James Sallis, 81, Dies; Novelist Whose ‘Drive’ Became a Hit Movie**\
-`A storyteller of modern America’s underbelly with a literary, ruminative style, he inspired a Ryan Gosling movie and earned critical acclaim.`\
-https://nytimes.com/2026/02/01/obituaries/james-sallis-dead.html
 
