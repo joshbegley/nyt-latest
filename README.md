@@ -1,3 +1,7 @@
+**Angel Restoration Resembles Italy’s Prime Minister**\
+`The face of an angel in a restored painting inside a chapel in Italy has many questioning its striking resemblance to Italy’s prime minister, Giorgia Meloni.`\
+https://nytimes.com/video/world/europe/100000010684551/rome-angel-restoration-meloni.html
+
 **Trump, in an Escalation, Calls for Republicans to ‘Nationalize’ Elections**\
 `The comments, made on a conservative podcast, follow a string of moves from his administration to try to exert more control over American elections.`\
 https://nytimes.com/2026/02/02/us/politics/trump-nationalize-elections.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/02/well/peter-attia-epstein.html
 **Elon Musk Merges SpaceX With His A.I. Start-Up xAI**\
 `The deal further intermingles Mr. Musk’s companies and creates the most valuable private company on earth.`\
 https://nytimes.com/2026/02/02/business/spacex-xai-deal.html
-
-**Some Federal Workers Furloughed in Partial Government Shutdown**\
-`Some of the affected agencies announced sweeping furloughs, while others tapped reserve funds to get through what they expected to be a short shutdown.`\
-https://nytimes.com/2026/02/02/us/politics/federal-workers-furloughed-government-shutdown.html
 
