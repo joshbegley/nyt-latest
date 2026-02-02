@@ -1,3 +1,7 @@
+**‘A Knight of the Seven Kingdoms’ Season 1, Episode 3 Recap: Waking the Dragon**\
+`Dunk makes a powerful new enemy. Egg makes his true self known.`\
+https://nytimes.com/2026/02/01/arts/television/a-knight-of-the-seven-kingdoms-recap-episode-3.html
+
 **The Move Behind Bieber’s Boxers**\
 `The singer, who was nominated for four Grammys, performed at the award show in nothing but sparkly lavender shorts and socks.`\
 https://nytimes.com/2026/02/01/style/justin-bieber-boxers-grammys.html
