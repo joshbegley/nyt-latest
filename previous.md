@@ -1,3 +1,19 @@
+**How to watch Rockets vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7015963/2026/02/02/rockets-vs-pacers-stream-how-to-watch-feb-2/
+
+**How to watch Senators vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7015959/2026/02/02/senators-vs-penguins-stream-how-to-watch-feb-2/
+
+**How to watch Sabres vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7015955/2026/02/02/sabres-vs-panthers-stream-how-to-watch-feb-2/
+
+**How to watch Islanders vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7015952/2026/02/02/islanders-vs-capitals-stream-how-to-watch-feb-2/
+
 **It’s Cold. Punxsutawney Phil Did Not Bring Good News for the U.S.**\
 `The supposedly meteorologically gifted rodent saw his shadow, suggesting several more weeks of winter. (Forecasters agreed, at least for this week.)`\
 https://nytimes.com/2026/02/02/us/groundhog-day-results.html
@@ -21,21 +37,4 @@ https://nytimes.com/athletic/7015894/2026/02/02/framber-valdez-offseason-signing
 **NBA Power Rankings: With trade deadline near, every team can dream a little**\
 `LeBron going home? Giannis heading west? We're giving each squad an ideal trade candidate for the short-term future.`\
 https://nytimes.com/athletic/7015585/2026/02/02/nba-power-rankings-nuggets-timberwolves-knicks/
-
-**The Bounce: The Luka trade, one year later. Plus, All-Star snubs!**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.
-`\
-https://nytimes.com/athletic/7015691/2026/02/02/luka-doncic-trade-all-star-snubs-knicksthe-bounce/
-
-**Willander's ceiling, Lekkerimäki's next step and more Canucks observations**\
-`The Canucks have two games remaining before the NHL's Olympic break begins later this week.`\
-https://nytimes.com/athletic/7015035/2026/02/02/canucks-stats-tom-willander-jonathan-lekkerimaki/
-
-**Man, 83, Tricked by Scammers, Gets 21 Years to Life for Killing Uber Driver**\
-`Scammers on the phone had threatened to kill Wiliam J. Brock if he didn’t hand over $12,000 just as Lo-Letha Toland-Hall, an Uber driver, came to his house to pick up a package.`\
-https://nytimes.com/2026/02/02/us/ohio-man-kills-uber-driver-sentenced.html
-
-**Punchy, Spicy Meals to Offset the Winter Blahs**\
-`Spicy turkey stir-fry, sheet-pan chicken tikka thighs and vegan mapo tofu bring attitude and oomph to even the coldest days.`\
-https://nytimes.com/2026/02/02/dining/punchy-spicy-meals-to-offset-the-winter-blahs.html
 

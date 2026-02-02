@@ -1,3 +1,19 @@
+**How to watch Rockets vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7015963/2026/02/02/rockets-vs-pacers-stream-how-to-watch-feb-2/
+
+**How to watch Senators vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7015959/2026/02/02/senators-vs-penguins-stream-how-to-watch-feb-2/
+
+**How to watch Sabres vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7015955/2026/02/02/sabres-vs-panthers-stream-how-to-watch-feb-2/
+
+**How to watch Islanders vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7015952/2026/02/02/islanders-vs-capitals-stream-how-to-watch-feb-2/
+
 **It’s Cold. Punxsutawney Phil Did Not Bring Good News for the U.S.**\
 `The supposedly meteorologically gifted rodent saw his shadow, suggesting several more weeks of winter. (Forecasters agreed, at least for this week.)`\
 https://nytimes.com/2026/02/02/us/groundhog-day-results.html
