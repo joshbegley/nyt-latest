@@ -1,3 +1,19 @@
+**The Questionable Science Behind the Odd-Looking Football Helmets**\
+`The N.F.L. claims Guardian Caps reduce the risk of concussions. The company that makes them says, “It has nothing to do with concussions.”`\
+https://nytimes.com/2026/02/03/business/super-bowl-guardian-cap-helmet.html
+
+**Jill Biden’s Ex-Husband Is Accused of Killing His Current Wife**\
+`William Stevenson was arrested after being indicted on charges of first-degree murder in the death of his wife in December. He was married to Dr. Biden in the 1970s.`\
+https://nytimes.com/2026/02/03/us/william-stevenson-jill-biden-homicide.html
+
+**Prime Tire: Welcome to F1 tech hypocrisy**\
+`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
+https://nytimes.com/athletic/7018689/2026/02/03/toto-wolff-mercedes-tech-feud-prime-tire/
+
+**Michael Parenti, Unapologetic Marxist Theorist and Author, Dies at 92**\
+`A prolific writer and lecturer, he viewed U.S. history through the lens of class struggle. But some accused him of defending brutal regimes in the Soviet Union and Serbia.`\
+https://nytimes.com/2026/02/03/us/politics/michael-parenti-dead.html
+
 **Raptors' Rajaković named coach for Team World at NBA All-Star Game**\
 `San Antonio’s Mitch Johnson and Detroit’s J.B. Bickerstaff were previously named as coaches for the two American teams.`\
 https://nytimes.com/athletic/7018728/2026/02/03/raptors-darko-rajakovic-coach-nba-all-star-game/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/03/opinion/trump-nationalize-elections.html
 **LA28 Olympics announce six more venues across U.S. for soccer events**\
 `Both men's and women's competitions will play their final stages at the 90,000-capacity Rose Bowl in Pasadena.`\
 https://nytimes.com/athletic/7018699/2026/02/03/la28-olympics-soccer-venues-announcement-stadiums/
-
-**Fanatics apologizes amid backlash over Super Bowl 60 team jerseys**\
-`Patriots and Seahawks fans have voiced dissatisfaction with the quality and availability of jerseys ahead of the Super Bowl.  `\
-https://nytimes.com/athletic/7018670/2026/02/03/fanatics-apology-super-bowl-lx-jerseys-patriots-seahawks/
-
-**Team USA names flag bearers for Winter Olympics opening ceremony**\
-`Speedskater Erin Jackson and bobsledder Frank Del Duca were chosen for the honor by a vote of fellow Team USA athletes.`\
-https://nytimes.com/athletic/7018121/2026/02/03/milan-cortina-olympics-usa-flag-bearers/
-
-**A partial victory: LIV granted OWGR points for its top 10 finishers**\
-`The OWGR decision will provide a better pathway to majors for elite LIV performers, but it’s still fewer points than other comparable tours.`\
-https://nytimes.com/athletic/7018462/2026/02/03/liv-golf-owgr-world-ranking-points-72-holes-majors/
-
-**Clintons Ask to Testify in Public in House Epstein Inquiry**\
-`The request was an effort by Bill and Hillary Clinton, who finally agreed to be deposed, to prevent selective leaks by Republicans of their testimony.`\
-https://nytimes.com/2026/02/03/us/politics/clintons-epstein-testify.html
 
