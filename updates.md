@@ -1,3 +1,15 @@
+**Sources: James Rodriguez, Minnesota United in talks over shocking deal**\
+`The Colombian star is a free agent after leaving Club León in Mexico`\
+https://nytimes.com/athletic/7018576/2026/02/03/james-rodriguez-minnesota-united-mls/
+
+**Super Bowl Gatorade shower odds: Orange is favored, but should it be?**\
+`Let's get weird with it: In-depth analysis of which Gatorade color could be chosen after this Super Bowl.`\
+https://nytimes.com/athletic/7007240/2026/02/03/super-bowl-gatorade-odds-betting-colors-favorites/
+
+**Ruptures in China’s Leadership Could Be Due to Paranoia and Power Plays**\
+`U.S. intelligence analysts say that Xi Jinping, China’s leader, has a remarkable level of fear. He has carried out mass purges, and surprised many by removing his top general.`\
+https://nytimes.com/2026/02/03/us/politics/china-xi-military-purge.html
+
 **‘Don Colossus,’ a Golden Statue of President Trump, Waits for Its Home**\
 `A group of cryptocurrency investors backing a memecoin hopes the statue will soon be installed at one of Mr. Trump’s golf courses in Florida.`\
 https://nytimes.com/2026/02/03/technology/trump-statue-don-colossus.html
