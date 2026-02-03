@@ -1,3 +1,7 @@
+**Russia Launches Major Strike on Ukraine Day Before Peace Talks**\
+`Russia struck residential buildings and power plants in several regions of Ukraine a day before the two countries were scheduled to hold peace talks brokered by the United States.`\
+https://nytimes.com/video/world/europe/100000010686597/russia-ukraine-attack-energy-peace-negotiations.html
+
 **How a Judge Weaponized Wit to Free the 5-Year-Old Detained by ICE**\
 `Our critic annotates the barbed wordplay of a decision challenging the Trump administration’s theory of executive power.`\
 https://nytimes.com/interactive/2026/02/03/books/judge-ruling-liam-conejo-ramos-analysis.html
