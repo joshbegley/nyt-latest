@@ -1,3 +1,19 @@
+**The Eagles let Milton Williams go to the Patriots. He's in the Super Bowl anyway**\
+`After four seasons and two Super Bowls with Philadelphia, Williams brought his big-game acumen to New England.`\
+https://nytimes.com/athletic/7017715/2026/02/03/patriots-milton-williams-eagles-super-bowl/
+
+**Lascelles brings Newcastle career to an end with Leicester move**\
+`Lascelles made 253 appearances for Newcastle, leading them to promotion as captain in 2016-17.`\
+https://nytimes.com/athletic/7017833/2026/02/03/newcastle-jamaal-lascelles-leicester-transfer-confirmed/
+
+**Another Maple Leafs win sparks optimism and hope, but context is key**\
+`The Leafs are feeling good after a pair of wins out west, but there is still much to be determined before next month's trade deadline.`\
+https://nytimes.com/athletic/7017601/2026/02/03/maple-leafs-win-hope-context/
+
+**Pro Bowl Games 2026 explained: How to watch, start time, participants and events**\
+`Here's what to know ahead of Tuesday's flag football all-star scrimmage, with standouts like Jalen Hurts, Jahmyr Gibbs and CeeDee Lamb.`\
+https://nytimes.com/athletic/7016492/2026/02/03/pro-bowl-2026-games-how-to-watch/
+
 **Seattle Mariners 2026 top 20 prospects: Colt Emerson, Ryan Sloan lead the way**\
 `The Mariners have a strong system with a number of elite talents at the top of their ranking but it thins out quickly toward the middle.`\
 https://nytimes.com/athletic/7011006/2026/02/03/mariners-2026-top-20-prospects-keith-law/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7016884/2026/02/03/celtics-nba-trade-deadline-anfer
 **Athletics 2026 top 20 prospects: Leo De Vries, Gage Jump lead the way**\
 `The A's system has improved in part because of an in flux of talent from a few trades, as well as the most recent draft.`\
 https://nytimes.com/athletic/7010316/2026/02/03/athletics-2026-top-20-prospects-keith-law/
-
-**Who are the Vikings' top GM candidates? 12 names to replace Kwesi Adofo-Mensah**\
-`The Vikings say they won't begin the official search for a new GM until after the draft. But some potential candidates have emerged.`\
-https://nytimes.com/athletic/6944571/2026/02/03/vikings-gm-candidates-kwesi-adofo-mensah/
-
-**Bedard vs. Celebrini: Who's better? Who cares? Just sit back and enjoy the show**\
-`The two young stars are more friends than rivals, and their first matchup this season proved what a treat NHL fans are in for.`\
-https://nytimes.com/athletic/7017465/2026/02/03/nhl-bedard-vs-celebrini-blackhawks-sharks-rebuild/
-
-**Krebs shines, Sabres pass another big test in win vs. Panthers: 5 thoughts**\
-`The Panthers struck first, but the Sabres pulled back control of the game thanks to a sterling performance from Krebs.`\
-https://nytimes.com/athletic/7017447/2026/02/03/sabres-krebs-benson-injury-panthers/
-
-**Bold Olympic hockey predictions: Jordan Binnington's excellence, USA’s medal hopes and more**\
-`With puck drop around the corner, The Athletic asked its hockey staff for their bold predictions for the Milan Cortina Olympics.`\
-https://nytimes.com/athletic/7016685/2026/02/03/olympic-hockey-predictions-milan-canada-usa/
 
