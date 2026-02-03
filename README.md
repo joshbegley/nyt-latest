@@ -1,3 +1,19 @@
+**NFLPA: Players have 'no appetite for an 18th regular-season game'**\
+`The union also wants to figure for a more uniform policy on how teams handle international travel.`\
+https://nytimes.com/athletic/7019521/2026/02/03/nflpa-18-games-international-david-white/
+
+**Renee Good’s Brothers Testify After Fatal Minneapolis Shooting**\
+`Luke Ganger and Brent Ganger called their sister, Renee Good, “unapologetically hopeful” during a public forum on the use of force by federal agents at the U.S. Capitol on Tuesday. Ms. Good was fatally shot by a federal agent in Minneapolis in January.`\
+https://nytimes.com/video/us/100000010688070/renee-good-brothers-testify-minneapolis-shooting.html
+
+**Vice and the Crisis of Liberalism**\
+`Is there a political prescription for our era of addiction?`\
+https://nytimes.com/2026/02/03/opinion/vice-liberalism-addiction-gambling-drugs.html
+
+**Savannah Guthrie’s Mom Was Taken ‘Against Her Will,’ Authorities Say**\
+`Authorities say Savannah Guthrie’s mother, Nancy Guthrie, was taken “against her will” in a Tuesday news conference. The Pima County sheriff says submitted DNA samples have not indicated any suspects.`\
+https://nytimes.com/video/us/100000010687937/savannah-guthrie-mother-nancy-kidnapped.html
+
 **2026 Winter Olympics events schedule**\
 ``\
 https://nytimes.com/athletic/7002240/2026/02/03/2026-winter-olympics-events-schedule/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/03/opinion/gavin-newsom-memoir-president-2028.html
 **Arsenal 1 Chelsea 0 (4-2 on agg): Mikel Arteta's side reach first final for six years**\
 `Our writers break down the talking points from the Carabao Cup semi-final second leg at the Emirates.`\
 https://nytimes.com/athletic/7006951/2026/02/03/arsenal-chelsea-carabao-cup-arteta/
-
-**Trade Grades: Nikola Vučević solves Celtics' big man issue, Bulls land Anfernee Simons**\
-`The Celtics added some much-needed size to their roster, while the Bulls added some offense.`\
-https://nytimes.com/athletic/7019259/2026/02/03/bulls-trade-nikola-vucevic-celtics-anfernee-simons/
-
-**NASA Delays Artemis II Rocket Launch Until at Least March**\
-`NASA delayed the Artemis II mission on Tuesday after detecting hydrogen leaks. The mission was scheduled to circle the moon with four astronauts.`\
-https://nytimes.com/video/us/100000010687240/nasa-artemis-rocket-launch-moon-delay.html
-
-**A New Word Game Brings Competition, and Trash Talk**\
-`Crossplay, the first of its kind from The Times, pits puzzlers against each other on a shared board.`\
-https://nytimes.com/2026/02/03/insider/crossplay-new-york-times-games.html
-
-**Two NHL heavyweights review goalie fight: ‘Swing and hope it hits’**\
-`The Bruins' resident fighting experts offer their analysis of Jeremy Swayman's bout with the Lightning's Andre Vasilevskiy.`\
-https://nytimes.com/athletic/7019281/2026/02/03/nhl-goalie-fight-review-swayman-vasilevskiy/
 

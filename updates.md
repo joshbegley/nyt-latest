@@ -1,3 +1,15 @@
+**2026 Winter Olympics events schedule**\
+``\
+https://nytimes.com/athletic/7002240/2026/02/03/2026-winter-olympics-events-schedule/
+
+**Lindsey Vonn will try to race the Olympics on a torn ACL. She wouldn't be the first**\
+`"The dirty secret is that it happens in skiing," said Breezy Johnson, a teammate of Vonn's on racing without an ACL.`\
+https://nytimes.com/athletic/7019098/2026/02/03/lindsey-vonn-acl-winter-olympics/
+
+**Arsenal 1 Chelsea 0 (4-2 on agg): Mikel Arteta's side reach first final for six years**\
+`Our writers break down the talking points from the Carabao Cup semi-final second leg at the Emirates.`\
+https://nytimes.com/athletic/7006951/2026/02/03/arsenal-chelsea-carabao-cup-arteta/
+
 **All About the Epstein Files**\
 `Everyone seems to have questions about the sprawling scandal, so we talked to a reporter who’s been following the case for years.`\
 https://nytimes.com/2026/02/03/world/epstein-files-russia-ukraine-venezuela.html
