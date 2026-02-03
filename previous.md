@@ -14,7 +14,7 @@ https://nytimes.com/2026/02/03/style/street-style-look-vintage-fur-coats.html
 `Nancy Guthrie, 84, the “Today” show host’s mother, was last seen on Saturday night, the authorities said. The disappearance is being investigated as a crime.`\
 https://nytimes.com/2026/02/03/us/savannah-guthrie-mom-missing.html
 
-**How a Judge Weaponized Wit to Free 5-Year-Old Liam**\
+**How a Judge Weaponized Wit to Free the 5-Year-Old Detained by ICE**\
 `Our critic annotates the barbed wordplay of a decision challenging the Trump administration’s theory of executive power.`\
 https://nytimes.com/interactive/2026/02/03/books/judge-ruling-liam-conejo-ramos-analysis.html
 

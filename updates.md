@@ -1,3 +1,7 @@
+**How a Judge Weaponized Wit to Free the 5-Year-Old Detained by ICE**\
+`Our critic annotates the barbed wordplay of a decision challenging the Trump administration’s theory of executive power.`\
+https://nytimes.com/interactive/2026/02/03/books/judge-ruling-liam-conejo-ramos-analysis.html
+
 **Williams finally gets going in F1 2026. But it's chasing precious lost ground on rivals**\
 `Williams has revealed its 2026 car livery, but faces a bigger challenge as F1's new era starts after missing the first test`\
 https://nytimes.com/athletic/7017802/2026/02/03/williams-2026-f1-car-livery/
