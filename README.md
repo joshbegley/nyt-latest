@@ -1,3 +1,7 @@
+**Russia Launches Major Strike on Ukraine Day Before Peace Talks**\
+`Russia struck residential buildings and power plants in several regions of Ukraine a day before the two countries were scheduled to hold peace talks brokered by the United States.`\
+https://nytimes.com/video/world/europe/100000010686597/russia-ukraine-attack-energy-peace-negotiations.html
+
 **Williams finally gets going in F1 2026. But it's chasing precious lost ground on rivals**\
 `Williams has revealed its 2026 car livery, but faces a bigger challenge as F1's new era starts after missing the first test`\
 https://nytimes.com/athletic/7017802/2026/02/03/williams-2026-f1-car-livery/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/03/business/disney-damaro-ceo.html
 **TST introduces $1 million mixed-gender event, featuring Hope Solo and Wrexham**\
 `Solo wants to "make history" with two teams in the tournament.`\
 https://nytimes.com/athletic/7017071/2026/02/03/tst-1-million-mixed-gender-event-hope-solo-wrexham/
-
-**The Numbers, and Questions, Behind Musk’s Mega-Merger**\
-`The combination of SpaceX and xAI will create a rocket-and-A.I. giant. But investors and experts have concerns about the consequences of the deal.`\
-https://nytimes.com/2026/02/03/business/dealbook/spacex-xai-merger.html
 
