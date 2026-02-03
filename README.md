@@ -1,3 +1,7 @@
+**How a Judge Weaponized Wit to Free 5-Year-Old Liam**\
+`Our critic annotates the barbed wordplay of a decision challenging the Trump administration’s theory of executive power.`\
+https://nytimes.com/interactive/2026/02/03/books/judge-ruling-liam-conejo-ramos-analysis.html
+
 **Robert Kraft, Patriots owner during 6 Super Bowl wins, not voted into Pro Football Hall of Fame: Source**\
 `Kraft was a finalist via the contributor committee. Belichick was a finalist via the coach committee.`\
 https://nytimes.com/athletic/7018024/2026/02/03/robert-kraft-hall-of-fame-not-voted/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7016387/2026/02/03/sec-college-football-playoff-pla
 **'Philly Special' film spotlights Super Bowl play that embodies the city**\
 `The story of the "Philly Special" is told from the perspective of the four players and the coach who made it happen.`\
 https://nytimes.com/athletic/7016632/2026/02/03/eagles-philly-special-super-bowl-documentary/
-
-**Trump Administration Live Updates: President to Meet Colombia’s Leader After Months of Tensions**\
-``\
-https://nytimes.com/live/2026/02/03/us/trump-news
 
