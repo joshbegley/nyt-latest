@@ -1,3 +1,19 @@
+**Gruda's RB Leipzig loan leaves Brighton worryingly short in wide areas**\
+`Gruda may not yet be a consistent performer at Premier League level, but Brighton may now be leaving themselves short`\
+https://nytimes.com/athletic/7015266/2026/02/03/brajan-grudas-rb-leipzig-loan-leaves-brighton-worryingly-short-in-wide-areas/
+
+**What Sarr will bring to Chelsea and why Rosenior might have wanted him back**\
+`The central defender has returned to Chelsea after his Strasbourg loan was cut short. He could end up being more than a squad player`\
+https://nytimes.com/athletic/7015638/2026/02/03/mamadou-sarr-chelsea-analysis-liam-rosenior/
+
+**Ranking all 32 Premier League transfers this winter window from worst to best**\
+`The January transfer window is over, and The Athletic has put together a comprehensive ranking of all the signings`\
+https://nytimes.com/athletic/6985041/2026/02/03/premier-league-january-transfers-2026-ranked/
+
+**Why did Leeds not spend the money they had earmarked for Strand Larsen?**\
+`The club were prepared to spend big to buy the Wolves striker, so what has happened to that money and why did they not look elsewhere?`\
+https://nytimes.com/athletic/7016715/2026/02/03/leeds-jorgen-strand-larsen-money/
+
 **How Liverpool landed Jacquet - and what he will offer**\
 `Liverpool have been tracking the French defender for at least 18 months and see him as a future star at Anfield`\
 https://nytimes.com/athletic/7016085/2026/02/03/how-liverpool-signed-jeremy-jacquet-and-what-he-will-offer/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7006749/2026/02/03/tottenham-arsenal-west-ham-crowd
 **Bundesliga Briefing: Bayern held in thriller, goals for Guirassy and change at Bremen**\
 `Dortmund cut the gap at the top to six points following their win and Bayern’s draw, while Hoffenheim sail into third and Frankfurt falter`\
 https://nytimes.com/athletic/7015232/2026/02/03/bundesliga-bayern-munich-kane-dortmund-bremen/
-
-**Immigration Officers in Minneapolis to be Equipped With Body Cameras**\
-`The homeland security secretary, Kristi Noem, ordered all immigration officers in Minneapolis to wear body cameras. The move comes after fatal shootings where federal accounts conflicted with local officials and witness videos.`\
-https://nytimes.com/video/us/100000010685966/immigration-body-cameras-noem.html
-
-**China’s Disappearing Generals**\
-`For three years, Xi Jinping has been cleaning out the Chinese military elite, bringing high-level dismissals and disappearances to nearly every arm of the military.`\
-https://nytimes.com/interactive/2026/02/03/world/asia/china-xi-military-purge.html
-
-**Quote of the Day: To Feel Fulfilled, Star Must Finish With Tank Empty**\
-`Quotation of the Day for Tuesday, February 3, 2026.`\
-https://nytimes.com/2026/02/03/pageoneplus/quote-of-the-day-to-feel-fulfilled-star-must-finish-with-tank-empty.html
-
-**Connections: Sports Edition Coach: Hints for Feb. 3, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7017255/2026/02/03/connections-sports-edition-hints-for-feb-3-2026/
 
