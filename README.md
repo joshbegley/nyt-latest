@@ -1,3 +1,7 @@
+**Son of Norway’s Crown Princess Goes on Trial, Charged With Rape**\
+`The trial of Marius Borg Hoiby, who has also been accused of assault and other crimes, began as his mother came under pressure over her ties to Jeffrey Epstein.`\
+https://nytimes.com/2026/02/03/world/europe/norway-princess-son-rape-trial-marius-borg-hoiby.html
+
 **Is the SEC slipping? Players share their thoughts at the Senior Bowl**\
 `“There’s parity everywhere. There’s no specific conference that’s good. Everybody’s good everywhere now — especially with NIL."`\
 https://nytimes.com/athletic/7016387/2026/02/03/sec-college-football-playoff-player-thoughts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7017672/2026/02/03/nba-trade-deadline-james-harden-
 **Will the surprising young Pistons stand pat at trade deadline? What I'm hearing**\
 `Will Detroit make a big move to go for a shot at the title this year or see what this young group can do in the playoffs?`\
 https://nytimes.com/athletic/7014922/2026/02/03/pistons-nba-trade-deadline-tobias-harris-jaden-ivey/
-
-**James Harden trade talks 'shocking,' but the Clippers aim to stay of sound mind**\
-`The Clippers expressed surprise following Monday's loss to the Philadelphia 76ers that Harden is now appearing in trade rumors.`\
-https://nytimes.com/athletic/7017613/2026/02/03/james-harden-clippers-nba-trade-deadline/
 
