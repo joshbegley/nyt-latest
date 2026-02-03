@@ -1,3 +1,11 @@
+**Giants to hire Matt Nagy as offensive coordinator: Source**\
+`A former Bears head coach, Nagy also did two stints as Andy Reid's OC in Kansas City.`\
+https://nytimes.com/athletic/6999876/2026/02/03/matt-nagy-new-york-giants-oc/
+
+**New York Attorney General to Deploy Observers to Document ICE Raids**\
+`Letitia James, the state’s top law official, said staffers from her office would serve as “neutral witnesses” amid recent backlash to President Trump’s deportation campaign.`\
+https://nytimes.com/2026/02/03/nyregion/letitia-james-ice-observers-new-york.html
+
 **The Bounce: The latest trade deadline buzz. Are Giannis, Harden on the move?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7018170/2026/02/03/nba-trade-rumors-giannis-harden-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010686597/russia-ukraine-attack-ene
 **Williams finally gets going in F1 2026. But it's chasing precious lost ground on rivals**\
 `Williams has revealed its 2026 car livery, but faces a bigger challenge as F1's new era starts after missing the first test`\
 https://nytimes.com/athletic/7017802/2026/02/03/williams-2026-f1-car-livery/
-
-**Review: This is Your Grandparents’ ‘Muppet Show,’ Fortunately**\
-`Nobody put too much thought into reinventing the gonzo variety classic for its revival. That’s what makes it a delight.`\
-https://nytimes.com/2026/02/03/arts/television/review-the-muppet-show.html
-
-**Throwback Furs for Him and Her**\
-`A couple strolling through London were sporting fuzzy secondhand coats.`\
-https://nytimes.com/2026/02/03/style/street-style-look-vintage-fur-coats.html
 
