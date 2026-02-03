@@ -1,3 +1,19 @@
+**China’s Disappearing Generals**\
+`For three years, Xi Jinping has been cleaning out the Chinese military elite, bringing high-level dismissals and disappearances to nearly every arm of the military.`\
+https://nytimes.com/interactive/2026/02/03/world/asia/china-xi-military-purge.html
+
+**Quote of the Day: To Feel Fulfilled, Star Must Finish With Tank Empty**\
+`Quotation of the Day for Tuesday, February 3, 2026.`\
+https://nytimes.com/2026/02/03/pageoneplus/quote-of-the-day-to-feel-fulfilled-star-must-finish-with-tank-empty.html
+
+**Connections: Sports Edition Coach: Hints for Feb. 3, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7017255/2026/02/03/connections-sports-edition-hints-for-feb-3-2026/
+
+**Editors’ Note: Feb. 3, 2026**\
+`The following Editors’ Note and corrections appeared in print on Tuesday, Feb. 3, 2026.`\
+https://nytimes.com/2026/02/03/pageoneplus/editors-note-feb-3-2026.html
+
 **Minions copyright decision drives Spanish Olympic figure skater bananas**\
 `Tomàs-Llorenç Guarino Sabaté was told only days before Milan that he didn't have permission to perform his routines to the Minions music.`\
 https://nytimes.com/athletic/7017310/2026/02/02/spanish-olympic-figure-skater-minion-copyright/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/02/nyregion/hudson-river-tunnel-lawsuit-gateway.html
 **What I'm hearing about the Timberwolves' very real pursuit of Giannis**\
 `The Timberwolves' place in the Giannis Antetokounmpo sweepstakes is very real. So are the risks. `\
 https://nytimes.com/athletic/7007574/2026/02/02/giannis-antetokounmpo-trade-timberwolves-latest/
-
-**Weekly Student News Quiz: Minnesota, Homicides, 'Heated Rivalry'**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2026/02/02/learning/02StudentNewsQuiz.html
-
-**Spilled the Beans**\
-`Nate Cardin’s puzzle invites you to listen closely.`\
-https://nytimes.com/2026/02/02/crosswords/daily-puzzle-2026-02-03.html
-
-**From ‘Hamilton’ to Issa Rae to Philip Glass: Here’s a List of Kennedy Center Cancellations**\
-`More than two dozen musicians, dancers, theater companies and other creative groups have pulled out of performing at the Kennedy Center since President Trump returned to the White House.`\
-https://nytimes.com/2026/02/02/arts/kennedy-center-performance-cancellations.html
-
-**Three junior hockey players killed in motor vehicle crash south of Calgary**\
-`“There are no words that can adequately express the depth of our grief,” the Southern Alberta Mustangs said in a statement.`\
-https://nytimes.com/athletic/7017237/2026/02/02/junior-hockey-players-crash-southern-alberta-mustangs/
 
