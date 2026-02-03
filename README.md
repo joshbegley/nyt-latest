@@ -1,3 +1,7 @@
+**Pep Guardiola's political commitment has a long history**\
+`The Manchester City manager has long-held political views, dating back to his time as a supporter of Catalan independence `\
+https://nytimes.com/athletic/7018508/2026/02/03/pep-guardiola-politics-history/
+
 **Virginia Oliver, Maine’s ‘Lobster Lady’ and Folk Hero, Dies at 105**\
 `She fished off the New England coast for more than 80 years, and intended to continue until she died. “It’s not hard work for me,” she said at 101.`\
 https://nytimes.com/2026/02/03/business/virginia-oliver-dead.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7002240/2026/02/03/2026-winter-olympics-events-sche
 **Lindsey Vonn will try to race the Olympics on a torn ACL. She wouldn't be the first**\
 `"The dirty secret is that it happens in skiing," said Breezy Johnson, a teammate of Vonn's on racing without an ACL.`\
 https://nytimes.com/athletic/7019098/2026/02/03/lindsey-vonn-acl-winter-olympics/
-
-**All About the Epstein Files**\
-`Everyone seems to have questions about the sprawling scandal, so we talked to a reporter who’s been following the case for years.`\
-https://nytimes.com/2026/02/03/world/epstein-files-russia-ukraine-venezuela.html
 
