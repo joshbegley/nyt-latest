@@ -1,3 +1,15 @@
+**Walmart Joins Tech Giants With $1 Trillion Market Valuation**\
+`The company’s rapid e-commerce growth and push into automation and artificial intelligence propelled its stock into the trillion-dollar club.`\
+https://nytimes.com/2026/02/03/business/walmart-trillion-market-value.html
+
+**Woman Wins Malpractice Suit Over Gender Surgery as a Minor**\
+`In a legal first, a jury in New York awarded $2 million to a patient who said that doctors had deviated from accepted medical standards.`\
+https://nytimes.com/2026/02/03/health/gender-surgery-malpractice-varian.html
+
+**Ice House no more: U.S. to change name of Olympics space to Winter House**\
+`The decision comes after widespread protests in both the United States and Milan over the presence and conduct of ICE agents.`\
+https://nytimes.com/athletic/7019180/2026/02/03/winter-olympics-united-states-ice-house/
+
 **U.K. Police Investigating Former Ambassador to U.S. Over Epstein Ties**\
 `Peter Mandelson, a prominent British political figure, faces allegations of “misconduct in public office offenses” over his dealings with Jeffrey Epstein.`\
 https://nytimes.com/2026/02/03/world/europe/peter-mandelson-uk-epstein.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7019184/2026/02/03/hawks-vs-heat-stream-how-to-watc
 **How to watch Magic vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7019178/2026/02/03/magic-vs-thunder-stream-how-to-watch-feb-3/
-
-**How to watch Saint Louis vs. Davidson men's basketball: Time, TV, streaming**\
-`Find out how to watch the Saint Louis Billikens play the Davidson Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7019176/2026/02/03/saint-louis-vs-davidson-stream-how-to-watch-feb-3/
-
-**How to watch Celtics vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7019171/2026/02/03/celtics-vs-mavericks-stream-how-to-watch-feb-3/
-
-**How to watch Suns vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7019169/2026/02/03/suns-vs-trail-blazers-stream-how-to-watch-feb-3/
 
