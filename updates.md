@@ -1,3 +1,23 @@
+**Williams finally gets going in F1 2026. But it's chasing precious lost ground on rivals**\
+`Williams has revealed its 2026 car livery, but faces a bigger challenge as F1's new era starts after missing the first test`\
+https://nytimes.com/athletic/7017802/2026/02/03/williams-2026-f1-car-livery/
+
+**Review: This is Your Grandparents’ ‘Muppet Show,’ Fortunately**\
+`Nobody put too much thought into reinventing the gonzo variety classic for its revival. That’s what makes it a delight.`\
+https://nytimes.com/2026/02/03/arts/television/review-the-muppet-show.html
+
+**Throwback Furs for Him and Her**\
+`A couple strolling through London were sporting fuzzy secondhand coats.`\
+https://nytimes.com/2026/02/03/style/street-style-look-vintage-fur-coats.html
+
+**What We Know About the Disappearance of Savannah Guthrie’s Mother**\
+`Nancy Guthrie, 84, the “Today” show host’s mother, was last seen on Saturday night, the authorities said. The disappearance is being investigated as a crime.`\
+https://nytimes.com/2026/02/03/us/savannah-guthrie-mom-missing.html
+
+**How a Judge Weaponized Wit to Free 5-Year-Old Liam**\
+`Our critic annotates the barbed wordplay of a decision challenging the Trump administration’s theory of executive power.`\
+https://nytimes.com/interactive/2026/02/03/books/judge-ruling-liam-conejo-ramos-analysis.html
+
 **Trump Administration Live Updates: President to Meet Colombia’s Leader After Months of Tensions**\
 ``\
 https://nytimes.com/live/2026/02/03/us/trump-news
