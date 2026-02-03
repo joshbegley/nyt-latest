@@ -1,3 +1,7 @@
+**Jaren Jackson Jr. traded to Jazz in multi-player deal involving draft picks: Source**\
+`The Jazz are making a major acquisition of a former Defensive Player of the Year.`\
+https://nytimes.com/athletic/7018918/2026/02/03/jaren-jackson-jr-trade-jazz-grizzlies/
+
 **Does ICE Need a Warrant to Enter Your Home?**\
 `Up until now, immigration officers were trained that they cannot enter homes without a judicial warrant. But, as our immigration reporter Hamed Aleaziz explains, the Trump administration has a different idea.`\
 https://nytimes.com/video/us/100000010661260/does-ice-need-a-warrant-to-enter-your-home.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/03/business/super-bowl-guardian-cap-helmet.html
 **Jill Biden’s Ex-Husband Is Accused of Killing His Current Wife**\
 `William Stevenson was arrested after being indicted on charges of first-degree murder in the death of his wife in December. He was married to Dr. Biden in the 1970s.`\
 https://nytimes.com/2026/02/03/us/william-stevenson-jill-biden-homicide.html
-
-**Prime Tire: Welcome to F1 tech hypocrisy**\
-`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
-https://nytimes.com/athletic/7018689/2026/02/03/toto-wolff-mercedes-tech-feud-prime-tire/
 
