@@ -1,3 +1,7 @@
+**Polls Show Strong G.O.P. Support for Trump on Immigration**\
+`A small, but growing, share of Republicans say that enforcement has gone too far, after the killing of two Minneapolis protesters.`\
+https://nytimes.com/2026/02/03/us/politics/trump-ice-immigration-polls-republicans.html
+
 **Giants to hire Matt Nagy as offensive coordinator: Source**\
 `A former Bears head coach, Nagy also did two stints as Andy Reid's OC in Kansas City.`\
 https://nytimes.com/athletic/6999876/2026/02/03/matt-nagy-new-york-giants-oc/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/03/business/pepsi-doritos-cheetos-prices.html
 **Russia Launches Major Strike on Ukraine Day Before Peace Talks**\
 `Russia struck residential buildings and power plants in several regions of Ukraine a day before the two countries were scheduled to hold peace talks brokered by the United States.`\
 https://nytimes.com/video/world/europe/100000010686597/russia-ukraine-attack-energy-peace-negotiations.html
-
-**Williams finally gets going in F1 2026. But it's chasing precious lost ground on rivals**\
-`Williams has revealed its 2026 car livery, but faces a bigger challenge as F1's new era starts after missing the first test`\
-https://nytimes.com/athletic/7017802/2026/02/03/williams-2026-f1-car-livery/
 
