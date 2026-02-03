@@ -1,3 +1,7 @@
+**U.S. Fighter Jet Shoots Down Iranian Drone Amid Heightened Tensions**\
+`A U.S. fighter jet shot down the Iranian drone after it “unnecessarily maneuvered” toward the Abraham Lincoln aircraft carrier.`\
+https://nytimes.com/2026/02/03/us/politics/us-iran-drone-downing.html
+
 **Can Romero keep criticising the Spurs hierarchy and remain club captain?**\
 `Spurs fans may love to see their captain criticise the board, but it is putting Thomas Frank and the club in an awkward position`\
 https://nytimes.com/athletic/7018202/2026/02/03/cristian-romero-spurs-board-enic/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7018799/2026/02/03/canada-hockey-olympics-sam-benne
 **Footage in Police Shooting of Queens Man to Be Released Amid Criticism**\
 `Critics have questioned why officers were called to respond to an apparent mental health crisis. The shooting has increased pressure on Mayor Zohran Mamdani.`\
 https://nytimes.com/2026/02/03/nyregion/nypd-shooting-chakraborty-queens.html
-
-**Palestinians Return to Gaza for the First Time in Nearly Two Years**\
-`A small number of Palestinians were allowed to return to Gaza for the first time in nearly two years after the Rafah crossing with Egypt reopened on Monday.`\
-https://nytimes.com/video/world/middleeast/100000010686567/palestinians-return-gaza-rafah-crossing.html
 
