@@ -1,3 +1,8 @@
+**Man City manager Guardiola speaks out on Minnesota killings, Palestine in news conference**\
+`“Humanity is better than ever in terms of possibilities, but still right now we kill each other, for what?” Guardiola said.
+`\
+https://nytimes.com/athletic/7018382/2026/02/03/man-city-pep-guardiola-ice-minnesota-palestine/
+
 **Trump Releases Latest Rendering of White House Ballroom Project**\
 `President Trump emphasized that the ballroom would not be taller than the Executive Mansion of the White House, as he faces criticism over the size of the project.`\
 https://nytimes.com/2026/02/03/us/trump-white-house-ballroom-rendering.html
