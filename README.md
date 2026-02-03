@@ -1,3 +1,7 @@
+**Tennis player retires injured after accidentally volleying ball into own eye**\
+`Giovanni Mpetshi Perricard suffered the unfortunate injury at the Occitanie Open in France.`\
+https://nytimes.com/athletic/7017538/2026/02/03/tennis-ball-eye-mpetshi-perricard-injury-retired-open-occitanie/
+
 **Jon Stewart Can’t Believe Elon Musk’s Choice of Holiday Party Venue**\
 `“You’re asking if Jeff Epstein has got any parties planned on the island on Christmas Day?” Stewart asked on Monday’s “Daily Show.”`\
 https://nytimes.com/2026/02/03/arts/television/musk-epstein-island.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7017549/2026/02/03/clippers-cavs-trade-james-harden
 **The New York Times in Print for Tuesday, Feb. 3, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/03/todays-new-york-times
-
-**What Xi’s Military Purge Means for Taiwan**\
-`His sweeping military shake-up may look like weakness but it’s clearing the way for a more dangerous force under his full control.`\
-https://nytimes.com/2026/02/03/opinion/china-military-purge-taiwan.html
 
