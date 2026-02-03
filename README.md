@@ -1,3 +1,23 @@
+**A Club for Team USA in Milan Will No Longer Be Called ‘Ice House’**\
+`U.S. Olympic officials are changing the name to Winter House, as Italians protest the similarly named federal agency’s presence at the Games in Italy.`\
+https://nytimes.com/2026/02/03/sports/olympics-ice-house-name.html
+
+**L.A. Olympic committee chairman says he 'deeply regrets' emails released in Epstein files**\
+`In a statement, Casey Wasserman said he is "terribly sorry" for his association with Jeffrey Epstein and Ghislaine Maxwell.`\
+https://nytimes.com/athletic/7018074/2026/02/03/l-a-olympic-committee-chairman-wasserman-says-he-deeply-regrets-emails-released-in-epstein-files/
+
+**Scoop City: How Mike Vrabel overhauled the Patriots in one offseason**\
+`How the Patriots rapidly built a contender through a coaching purge, free agency and the draft`\
+https://nytimes.com/athletic/7019014/2026/02/03/mike-vrabel-patriots-built-offseason-super-bowl/
+
+**Successes on Ian Cunningham's resume make Falcons believe he can reverse their fortunes**\
+`Cunningham looks forward to "earning everybody's respect" after being hired as the Falcons' new general manager.`\
+https://nytimes.com/athletic/7018782/2026/02/03/ian-cunningham-falcons-general-manager-hired/
+
+**Why U.S. Car Companies Want to Make Giant Batteries**\
+`Even as American automakers have scaled back their ambitions for electric vehicles, some are pivoting to a technology that could help boost renewable energy.`\
+https://nytimes.com/2026/02/03/climate/us-automakers-battery-manufacturing.html
+
 **CFP bowl lineup keeps Rose Bowl in New Year's Day slot for next two years**\
 `The Rose Bowl has lobbied to keep its traditional Jan. 1 date and time slot while remaining part of the six-bowl rotation.`\
 https://nytimes.com/athletic/7018694/2026/02/03/college-football-playoff-bowls-schedule-rose/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7018202/2026/02/03/cristian-romero-spurs-board-enic
 **7 Great Grammy Winners You Didn’t Hear on TV**\
 `Standouts from the preshow ceremony including Turnstile, I’m With Her, Durand Bernarr and more.`\
 https://nytimes.com/2026/02/03/arts/music/grammy-winners-playlist.html
-
-**Man charged with allegedly flying drone above Levi's Stadium during NFL game**\
-`According to prosecutors, the man operated the drone 2,300 feet above Levi's Stadium during a Rams-49ers game in November 2025.`\
-https://nytimes.com/athletic/7018723/2026/02/03/drone-operator-charged-levis-stadium/
-
-**Jaren Jackson Jr. traded to Jazz for 3 first-round picks, players: Source**\
-`The Jazz are making a major acquisition of a former Defensive Player of the Year.`\
-https://nytimes.com/athletic/7018918/2026/02/03/jaren-jackson-jr-trade-jazz-grizzlies/
-
-**Does ICE Need a Warrant to Enter Your Home?**\
-`Up until now, immigration officers were trained that they cannot enter homes without a judicial warrant. But, as our immigration reporter Hamed Aleaziz explains, the Trump administration has a different idea.`\
-https://nytimes.com/video/us/100000010661260/does-ice-need-a-warrant-to-enter-your-home.html
-
-**Northwestern to open new Ryan Field vs. Penn State on Oct. 2**\
-`Northwestern will host South Dakota State and Colorado at its temporary stadium in September before the new Ryan Field opens on Oct. 2.`\
-https://nytimes.com/athletic/7018817/2026/02/03/northwestern-new-football-stadium-opening-penn-state/
-
-**Sam Bennett to replace injured Anthony Cirelli on Team Canada roster**\
-`The Florida Panthers center was one of the more surprising omissions from the original 25-man roster named in late December.`\
-https://nytimes.com/athletic/7018799/2026/02/03/canada-hockey-olympics-sam-bennett-anthony-cirelli/
 
