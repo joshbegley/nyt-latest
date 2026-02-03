@@ -1,3 +1,11 @@
+**All About the Epstein Files**\
+`Everyone seems to have questions about the sprawling scandal, so we talked to a reporter who’s been following the case for years.`\
+https://nytimes.com/2026/02/03/world/epstein-files-russia-ukraine-venezuela.html
+
+**Tom Brady won’t back Patriots in Super Bowl: ‘May the best team win’**\
+`Tom Brady stays neutral ahead of the Super Bowl, supporting people over teams. `\
+https://nytimes.com/athletic/7019286/2026/02/03/tom-brady-patriots-super-bowl-seahawks/
+
 **Will Newsom Be the Democrats’ Next Mistake?**\
 `The California governor’s record is exactly what Republicans want to run against.`\
 https://nytimes.com/2026/02/03/opinion/gavin-newsom-memoir-president-2028.html

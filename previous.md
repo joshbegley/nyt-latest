@@ -1,3 +1,11 @@
+**All About the Epstein Files**\
+`Everyone seems to have questions about the sprawling scandal, so we talked to a reporter who’s been following the case for years.`\
+https://nytimes.com/2026/02/03/world/epstein-files-russia-ukraine-venezuela.html
+
+**Tom Brady won’t back Patriots in Super Bowl: ‘May the best team win’**\
+`Tom Brady stays neutral ahead of the Super Bowl, supporting people over teams. `\
+https://nytimes.com/athletic/7019286/2026/02/03/tom-brady-patriots-super-bowl-seahawks/
+
 **Will Newsom Be the Democrats’ Next Mistake?**\
 `The California governor’s record is exactly what Republicans want to run against.`\
 https://nytimes.com/2026/02/03/opinion/gavin-newsom-memoir-president-2028.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/03/us/ucla-gynecologist-sexual-abuse-new-trial.html
 **NBA trade grades: Pistons part with Jaden Ivey; Wolves save money, add flexibility**\
 `East-leading Detroit has needed more shooting. It may find some with Kevin Huerter. And the Bulls are revamping their backcourt.`\
 https://nytimes.com/athletic/7019064/2026/02/03/bulls-wolves-pistons-ivey-conley-trade/
-
-**Why the Future of the Movies Lives on Letterboxd**\
-`The entertainment industry is in crisis, but a social platform for film enthusiasts is thriving. Is it changing the way we watch?`\
-https://nytimes.com/interactive/2026/02/03/magazine/letterboxd-film-discussion-site-streaming-movies.html
-
-**It’s official: Carlos Beltrán will represent the Mets in Cooperstown**\
-`Beltrán played seven seasons with both the Royals and Mets, but appeared in 44 more games with New York. `\
-https://nytimes.com/athletic/7019273/2026/02/03/carlos-beltran-mets-cap-hall-of-fame/
 
