@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, Feb. 3, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/03/todays-new-york-times
+
+**The Long Game Behind Xi Jinping’s P.L.A. Purge**\
+`His sweeping military shake-up may look like weakness but it’s clearing the way for a more dangerous force under his full control.`\
+https://nytimes.com/2026/02/03/opinion/china-military-purge-taiwan.html
+
 **Potential No. 1 pick Darryn Peterson sparks late rally in Kansas' road win**\
 `The freshman sensation finished with 19 points to lead the Jayhawks, who finished the game on a 14-2 run.`\
 https://nytimes.com/athletic/7017467/2026/02/03/darryn-peterson-kansas-texas-tech-basketball/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7016085/2026/02/03/how-liverpool-signed-jeremy-jacq
 **Inside Villa's transfer window: Garner, Mbaye interest, Gallagher saga and old boys return**\
 `We spoke to those involved in the deals to break down what happened in Villa's winter transfer window`\
 https://nytimes.com/athletic/7009718/2026/02/03/inside-aston-villa-transfer-window-abraham-gallagher/
-
-**A day with Albacete, the team who shocked Real Madrid. Now, Barcelona are in their sights: 'Why not again?'**\
-`The Athletic went behind the scenes with the second-division Spanish side out to cause another huge upset in the Copa del Rey`\
-https://nytimes.com/athletic/7015975/2026/02/03/barcelona-real-madrid-albacete-copa-del-rey/
-
-**Arsenal and Tottenham's race for Scotland teenager James Wilson - the most unlikely deadline-day saga**\
-`The 18-year-old striker has played only 77 minutes in the Scottish Premiership this season but was targeted by both north London clubs`\
-https://nytimes.com/athletic/7015969/2026/02/03/arsenal-tottenham-james-wilson-loan-transfer/
 

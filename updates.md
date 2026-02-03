@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, Feb. 3, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/03/todays-new-york-times
+
+**The Long Game Behind Xi Jinping’s P.L.A. Purge**\
+`His sweeping military shake-up may look like weakness but it’s clearing the way for a more dangerous force under his full control.`\
+https://nytimes.com/2026/02/03/opinion/china-military-purge-taiwan.html
+
 **Potential No. 1 pick Darryn Peterson sparks late rally in Kansas' road win**\
 `The freshman sensation finished with 19 points to lead the Jayhawks, who finished the game on a 14-2 run.`\
 https://nytimes.com/athletic/7017467/2026/02/03/darryn-peterson-kansas-texas-tech-basketball/
