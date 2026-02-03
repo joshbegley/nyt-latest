@@ -1,3 +1,15 @@
+**The Antidote to Authoritarianism**\
+`A lack of community can be “devastating” not just for our social lives but also for our democracy, the conflict resolution facilitator Priya Parker tells Ezra Klein.`\
+https://nytimes.com/video/opinion/100000010630288/the-antidote-to-authoritarianism.html
+
+**How to watch Pittsburgh vs. Virginia men's basketball: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Panthers play the Virginia Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7019144/2026/02/03/pittsburgh-vs-virginia-stream-how-to-watch-feb-3/
+
+**How to watch St. John's vs. DePaul men's basketball: Time, TV, streaming**\
+`Find out how to watch the St. John's Red Storm play the DePaul Blue Demons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7019141/2026/02/03/st-john-s-vs-depaul-stream-how-to-watch-feb-3/
+
 **Welcome to Late-Stage Individualism**\
 `In our era of individualism, Priya Parker, the author of “The Art of Gathering,” reminds us on “The Ezra Klein Show” that “the individual also needs group life.”`\
 https://nytimes.com/video/opinion/100000010630279/welcome-to-late-stage-individualism.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7019027/2026/02/03/browns-todd-monken-news-conferen
 **Ivey, Conley traded to Bulls in 3-team trade with Pistons, Timberwolves: Sources**\
 `The Pistons receive Kevin Huerter in the deal, while Minnesota sends a 2026 first-round pick swap to Detroit to create more flexibility.`\
 https://nytimes.com/athletic/7019076/2026/02/03/jaden-ivey-mike-conley-bulls-pistons-timberwolves-trade/
-
-**Song of the Week: ‘Ever Since U Left Me (I Went Deaf)’**\
-`Our pop music critic Jon Caramanica explains how French Montana and Max B’s new song fits into an expanding New York rap sound.`\
-https://nytimes.com/video/podcasts/100000010687157/song-of-the-week-ever-since-u-left-me-i-went-deaf.html
-
-**Heavy Snowfall in Japan Kills Dozens**\
-`Two weeks of heavy snowfall has buried homes, caused deadly accidents and stranded travelers, with local officials warning that the death toll could rise.`\
-https://nytimes.com/video/world/asia/100000010686677/japan-snow-deaths.html
-
-**Colombians Rally During Their President’s Meeting with Trump**\
-`President Gustavo Petro had asked Colombians to gather around the country during his meeting with President Trump on Tuesday.`\
-https://nytimes.com/2026/02/03/us/politics/colombians-rally-during-their-presidents-meeting-with-trump.html
 

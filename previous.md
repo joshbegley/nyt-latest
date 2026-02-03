@@ -19,7 +19,7 @@ https://nytimes.com/2026/02/03/arts/television/netflix-new-february.html
 https://nytimes.com/2026/02/03/arts/design/tom-britt-dead.html
 
 **Browns coach Todd Monken: 'I didn’t take this job because of Jim Schwartz'**\
-`In his introductory news conference, Monken said the talented defensive players, not Schwartz, were a big reason he took the job. `\
+`In his introductory news conference, Monken said the talented defensive players, not Schwartz, were a big reason he took the Browns job. `\
 https://nytimes.com/athletic/7019027/2026/02/03/browns-todd-monken-news-conference-jim-schwartz/
 
 **Ivey, Conley traded to Bulls in 3-team trade with Pistons, Timberwolves: Sources**\

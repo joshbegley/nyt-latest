@@ -1,3 +1,7 @@
+**Browns coach Todd Monken: 'I didn’t take this job because of Jim Schwartz'**\
+`In his introductory news conference, Monken said the talented defensive players, not Schwartz, were a big reason he took the Browns job. `\
+https://nytimes.com/athletic/7019027/2026/02/03/browns-todd-monken-news-conference-jim-schwartz/
+
 **Welcome to Late-Stage Individualism**\
 `In our era of individualism, Priya Parker, the author of “The Art of Gathering,” reminds us on “The Ezra Klein Show” that “the individual also needs group life.”`\
 https://nytimes.com/video/opinion/100000010630279/welcome-to-late-stage-individualism.html
