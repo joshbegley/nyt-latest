@@ -1,8 +1,12 @@
+**Why the Future of the Movies Lives on Letterboxd**\
+`The entertainment industry is in crisis, but a social platform for film enthusiasts is thriving. Is it changing the way we watch?`\
+https://nytimes.com/interactive/2026/02/03/magazine/letterboxd-film-discussion-site-streaming-movies.html
+
 **It’s official: Carlos Beltrán will represent the Mets in Cooperstown**\
 `Beltrán played seven seasons with both the Royals and Mets, but appeared in 44 more games with New York. `\
 https://nytimes.com/athletic/7019273/2026/02/03/carlos-beltran-mets-cap-hall-of-fame/
 
-**Why haven't Rangers traded Artemi Panarin yet?: Latest as NHL roster freeze nears**\
+**Why haven't Rangers traded Artemi Panarin yet? Latest as NHL roster freeze nears**\
 `The situation surrounding the 34-year-old star winger is complex and fluid.`\
 https://nytimes.com/athletic/7019214/2026/02/03/rangers-artemi-panarin-trade-rumors-nhl/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7019263/2026/02/03/nikola-vucevic-trade-celtics-bul
 **NBA trade grades: Jaren Jackson Jr. gets new home as Grizzlies turn to future**\
 `With this move, the Jazz are clearly taking a step toward being more competitive.`\
 https://nytimes.com/athletic/7018890/2026/02/03/jaren-jackson-jazz-grizzlies-trade-grades/
-
-**Paris Court Deals Family Blow in Battle for Rent From the French Embassy in Iraq**\
-`The court said it was not the right authority to handle the lawsuit for unpaid rent, and the case should be heard in Iraq, where the family’s ancestors had fled persecution.`\
-https://nytimes.com/2026/02/03/world/europe/france-embassy-iraq.html
 
