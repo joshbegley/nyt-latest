@@ -2,8 +2,8 @@
 `Nate Cardin’s puzzle invites you to listen closely.`\
 https://nytimes.com/2026/02/02/crosswords/daily-puzzle-2026-02-03.html
 
-**Here Are the Artists Who Have Canceled Performances at the Kennedy Center**\
-`The list so far includes more than two dozen musicians, dancers, theater companies and other creative groups.`\
+**From ‘Hamilton’ to Issa Rae to Philip Glass: Here’s a List of Kennedy Center Cancellations**\
+`More than two dozen musicians, dancers, theater companies and other creative groups have pulled out of performing at the Kennedy Center since President Trump returned to the White House.`\
 https://nytimes.com/2026/02/02/arts/kennedy-center-performance-cancellations.html
 
 **Three junior hockey players killed in motor vehicle crash south of Calgary**\

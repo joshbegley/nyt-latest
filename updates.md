@@ -1,3 +1,7 @@
+**Spilled the Beans**\
+`Nate Cardin’s puzzle invites you to listen closely.`\
+https://nytimes.com/2026/02/02/crosswords/daily-puzzle-2026-02-03.html
+
 **Here Are the Artists Who Have Canceled Performances at the Kennedy Center**\
 `The list so far includes more than two dozen musicians, dancers, theater companies and other creative groups.`\
 https://nytimes.com/2026/02/02/arts/kennedy-center-performance-cancellations.html
