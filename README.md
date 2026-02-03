@@ -1,3 +1,11 @@
+**Trump Administration Sued Over Cutting Off Funds for $16 Billion Tunnel**\
+`The Gateway Development Commission said that if the federal government continued to withhold funding for a rail link under the Hudson River, it would have to stop construction this week.`\
+https://nytimes.com/2026/02/02/nyregion/hudson-river-tunnel-lawsuit-gateway.html
+
+**What I'm hearing about the Timberwolves' very real pursuit of Giannis**\
+`The Timberwolves' place in the Giannis Antetokounmpo sweepstakes is very real. So are the risks. `\
+https://nytimes.com/athletic/7007574/2026/02/02/giannis-antetokounmpo-trade-timberwolves-latest/
+
 **Weekly Student News Quiz: Minnesota, Homicides, 'Heated Rivalry'**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2026/02/02/learning/02StudentNewsQuiz.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/02/02/us/haitians-tps-ruling.html
 **‘I’m Not Ripping It Down’: Trump Says He’s Only Renovating the Kennedy Center**\
 `Even though President Trump held a movie premiere for his wife’s new film there last week, he said the state of the building was “actually sort of dangerous.”`\
 https://nytimes.com/2026/02/02/us/politics/trump-kennedy-center-renovation.html
-
-**Woman’s Dismembered Body Is Found in a Brooklyn Basement, Officials Say**\
-`The police are investigating the death of Michelle Montgomery, whose remains were found in a public housing building in the Williamsburg neighborhood.`\
-https://nytimes.com/2026/02/02/nyregion/brooklyn-dismembered-body-found-basement.html
-
-**H.H.S. to Expand Faith-Based Addiction Programs for Homeless**\
-`Health Secretary Robert F. Kennedy Jr. said addiction is a “spiritual disease” that calls out for the involvement of religious organizations.`\
-https://nytimes.com/2026/02/02/health/hhs-rfk-faith-based-addiction-programs.html
 
