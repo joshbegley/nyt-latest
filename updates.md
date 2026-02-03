@@ -1,3 +1,19 @@
+**Jon Stewart Can’t Believe Elon Musk’s Choice of Holiday Party Venue**\
+`“You’re asking if Jeff Epstein has got any parties planned on the island on Christmas Day?” Stewart asked on Monday’s “Daily Show.”`\
+https://nytimes.com/2026/02/03/arts/television/musk-epstein-island.html
+
+**A Role Model for How to Die**\
+`What if you really did live every day as if it were your last? That was Brian’s plan.`\
+https://nytimes.com/2026/02/03/nyregion/cancer-friend-death-role-model.html
+
+**2016**\
+`What year in your life would you want to go back to?`\
+https://nytimes.com/2026/02/03/learning/2016.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/03/crosswords/spelling-bee-forum.html
+
 **Russia Resumes Attacks on Ukraine’s Energy System Ahead of Peace Talks**\
 `Missiles overnight targeted power plants in Kyiv and other parts of the country, according to local authorities, despite President Trump’s request for a pause.`\
 https://nytimes.com/2026/02/03/world/europe/ukraine-missiles-attack.html
