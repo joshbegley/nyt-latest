@@ -1,3 +1,11 @@
+**Palestinians Return to Gaza for the First Time in Nearly Two Years**\
+`A small number of Palestinians were allowed to return to Gaza for the first time in nearly two years after the Rafah crossing with Egypt reopened on Monday.`\
+https://nytimes.com/video/world/middleeast/100000010686567/palestinians-return-gaza-rafah-crossing.html
+
+**Lawsuit Argues Trump Gold Card Visa Program Prioritizes Wealth Over Ability**\
+`The suit asks that a judge find the pay-for-play visa program unlawful, casting it as another example of the Trump administration’s seeking to bypass Congress.`\
+https://nytimes.com/2026/02/03/us/politics/trump-gold-card-visa-lawsuit.html
+
 **The Questionable Science Behind the Odd-Looking Football Helmets**\
 `The N.F.L. claims Guardian Caps reduce the risk of concussions. The company that makes them says, “It has nothing to do with concussions.”`\
 https://nytimes.com/2026/02/03/business/super-bowl-guardian-cap-helmet.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7017431/2026/02/03/mountain-west-tv-deal-broadcast-
 **Search Continues for Savannah Guthrie’s Mother, Nancy Guthrie**\
 `Ms. Guthrie, 84, was last seen on Saturday at her home in Tucson, Ariz. A sheriff said that investigators were treating her disappearance as a crime.`\
 https://nytimes.com/2026/02/03/us/savannah-guthrie-mom-nancy-guthrie-search-updates.html
-
-**Trump’s Call to ‘Nationalize’ Voting**\
-`Readers fear how far the president will go to ensure Republican victories in the midterms. Also: What it means to be a naturalized American.`\
-https://nytimes.com/2026/02/03/opinion/trump-nationalize-elections.html
-
-**LA28 Olympics announce six more venues across U.S. for soccer events**\
-`Both men's and women's competitions will play their final stages at the 90,000-capacity Rose Bowl in Pasadena.`\
-https://nytimes.com/athletic/7018699/2026/02/03/la28-olympics-soccer-venues-announcement-stadiums/
 
