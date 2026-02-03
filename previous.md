@@ -1,3 +1,11 @@
+**TAFC – Palace's turbulent transfer window. Plus: Liverpool's £55m gamble and Ukraine's Infantino criticism**\
+`Unsettled players, botched signings and a manager on the way out — how did it go so wrong for last season's FA Cup winners?`\
+https://nytimes.com/athletic/7017791/2026/02/03/crystal-palace-transfer-window-liverpool-infantino-tafc/
+
+**A Lifeline for Gaza**\
+`We look at the significance of the Rafah border crossing.`\
+https://nytimes.com/2026/02/03/briefing/a-lifeline-for-gaza.html
+
 **The Eagles let Milton Williams go to the Patriots. He's in the Super Bowl anyway**\
 `After four seasons and two Super Bowls with Philadelphia, Williams brought his big-game acumen to New England.`\
 https://nytimes.com/athletic/7017715/2026/02/03/patriots-milton-williams-eagles-super-bowl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7016462/2026/02/03/james-harden-giannis-antetokounm
 **Texas Rangers 2026 top 20 prospects: Sebastian Walcott, Caden Scarborough lead the way**\
 `The Rangers have a potential superstar in Walcott but the depth of the system took a huge hit with the MacKenzie Gore trade.`\
 https://nytimes.com/athletic/7011286/2026/02/03/texas-rangers-2026-top-20-prospects-keith-law/
-
-**Will the Celtics move Anfernee Simons at the trade deadline? What I'm hearing**\
-`With the NBA trade deadline approaching, Jay King has the latest he's hearing from around the league as it pertains to the Celtics.`\
-https://nytimes.com/athletic/7016884/2026/02/03/celtics-nba-trade-deadline-anfernee-simons/
-
-**Athletics 2026 top 20 prospects: Leo De Vries, Gage Jump lead the way**\
-`The A's system has improved in part because of an in flux of talent from a few trades, as well as the most recent draft.`\
-https://nytimes.com/athletic/7010316/2026/02/03/athletics-2026-top-20-prospects-keith-law/
 

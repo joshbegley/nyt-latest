@@ -1,3 +1,11 @@
+**TAFC – Palace's turbulent transfer window. Plus: Liverpool's £55m gamble and Ukraine's Infantino criticism**\
+`Unsettled players, botched signings and a manager on the way out — how did it go so wrong for last season's FA Cup winners?`\
+https://nytimes.com/athletic/7017791/2026/02/03/crystal-palace-transfer-window-liverpool-infantino-tafc/
+
+**A Lifeline for Gaza**\
+`We look at the significance of the Rafah border crossing.`\
+https://nytimes.com/2026/02/03/briefing/a-lifeline-for-gaza.html
+
 **The Eagles let Milton Williams go to the Patriots. He's in the Super Bowl anyway**\
 `After four seasons and two Super Bowls with Philadelphia, Williams brought his big-game acumen to New England.`\
 https://nytimes.com/athletic/7017715/2026/02/03/patriots-milton-williams-eagles-super-bowl/
