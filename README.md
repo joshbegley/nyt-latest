@@ -1,3 +1,7 @@
+**Scoop City: How the Russell Wilson trade began Seattle's Super Bowl journey**\
+`How John Schneider built these Seahawks through a series of bold subtractions and savvy additions`\
+https://nytimes.com/athletic/7017025/2026/02/02/seahawks-roster-super-bowl-starters/
+
 **Maryland Moves to Give Democrats Extra House Seat, but Big Hurdles Remain**\
 `The state’s House of Delegates passed a new map that would be likely to eliminate Maryland’s lone remaining Republican seat in the U.S. House, but the State Senate may well block the measure.`\
 https://nytimes.com/2026/02/02/us/politics/maryland-house-redistricting-democrats-seat.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6424289/2026/02/02/west-ham-transfers-disasi-chelse
 **2026 Winter Olympics medal count**\
 ``\
 https://nytimes.com/athletic/7002227/2026/02/02/2026-winter-olympics-medal-count/
-
-**Justice Dept. Sidelines Ed Martin as Chief of Weaponization Group**\
-`The move represents a consolidation of the authority of the deputy attorney general, Todd Blanche, in bringing Mr. Martin’s operation inside his office.`\
-https://nytimes.com/2026/02/02/us/politics/justice-dept-ed-martin-weaponization-group.html
 
