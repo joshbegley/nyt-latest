@@ -1,3 +1,7 @@
+**Chuck Negron, Singer With Three Dog Night, Is Dead at 83**\
+`His tenor anchored generational hits like “Joy to the World” and “One.”`\
+https://nytimes.com/2026/02/03/arts/music/chuck-negron-three-dog-night-dead.html
+
 **How to watch Nuggets vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7018490/2026/02/03/nuggets-vs-pistons-stream-how-to-watch-feb-3/
