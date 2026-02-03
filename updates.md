@@ -1,3 +1,11 @@
+**Scoop City: How the Russell Wilson trade began Seattle's Super Bowl journey**\
+`How John Schneider built these Seahawks through a series of bold subtractions and savvy additions`\
+https://nytimes.com/athletic/7017025/2026/02/02/seahawks-roster-super-bowl-starters/
+
+**Maryland Moves to Give Democrats Extra House Seat, but Big Hurdles Remain**\
+`The state’s House of Delegates passed a new map that would be likely to eliminate Maryland’s lone remaining Republican seat in the U.S. House, but the State Senate may well block the measure.`\
+https://nytimes.com/2026/02/02/us/politics/maryland-house-redistricting-democrats-seat.html
+
 **Third Candidate Enters Heated Race for Open House Seat**\
 `Julie Won, a New York City councilwoman, will face two other Democrats, one backed by the departing incumbent, Nydia Velázquez, and the other by Mayor Zohran Mamdani.`\
 https://nytimes.com/2026/02/02/nyregion/julie-won-house-candidate.html
