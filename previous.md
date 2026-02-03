@@ -1,3 +1,7 @@
+**Paris Court Deals Family Blow in Battle for Rent From the French Embassy in Iraq**\
+`The court said it was not the right authority to handle the lawsuit for unpaid rent, and the case should be heard in Iraq, where the family’s ancestors had fled persecution.`\
+https://nytimes.com/2026/02/03/world/europe/france-embassy-iraq.html
+
 **How to watch Lakers vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7019188/2026/02/03/lakers-vs-nets-stream-how-to-watch-feb-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7019162/2026/02/03/bulls-vs-bucks-stream-how-to-wat
 **How to watch 76ers vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7019159/2026/02/03/76ers-vs-warriors-stream-how-to-watch-feb-3/
-
-**How to watch Sabres vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7019156/2026/02/03/sabres-vs-lightning-stream-how-to-watch-feb-3/
 

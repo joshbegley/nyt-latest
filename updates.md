@@ -1,3 +1,7 @@
+**Paris Court Deals Family Blow in Battle for Rent From the French Embassy in Iraq**\
+`The court said it was not the right authority to handle the lawsuit for unpaid rent, and the case should be heard in Iraq, where the family’s ancestors had fled persecution.`\
+https://nytimes.com/2026/02/03/world/europe/france-embassy-iraq.html
+
 **How to watch Lakers vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7019188/2026/02/03/lakers-vs-nets-stream-how-to-watch-feb-3/
