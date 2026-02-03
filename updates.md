@@ -1,3 +1,7 @@
+**How a Judge Weaponized Wit to Free 5-Year-Old Liam**\
+`Our critic annotates the barbed wordplay of a decision challenging the Trump administration’s theory of executive power.`\
+https://nytimes.com/interactive/2026/02/03/books/judge-ruling-liam-conejo-ramos-analysis.html
+
 **Robert Kraft, Patriots owner during 6 Super Bowl wins, not voted into Pro Football Hall of Fame: Source**\
 `Kraft was a finalist via the contributor committee. Belichick was a finalist via the coach committee.`\
 https://nytimes.com/athletic/7018024/2026/02/03/robert-kraft-hall-of-fame-not-voted/

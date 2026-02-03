@@ -1,3 +1,7 @@
+**What We Know About the Disappearance of Savannah Guthrie’s Mother**\
+`Nancy Guthrie, 84, the “Today” show host’s mother, was last seen on Saturday night, the authorities said. The disappearance is being investigated as a crime.`\
+https://nytimes.com/2026/02/03/us/savannah-guthrie-mom-missing.html
+
 **How a Judge Weaponized Wit to Free 5-Year-Old Liam**\
 `Our critic annotates the barbed wordplay of a decision challenging the Trump administration’s theory of executive power.`\
 https://nytimes.com/interactive/2026/02/03/books/judge-ruling-liam-conejo-ramos-analysis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/03/world/europe/norway-princess-son-rape-trial-mariu
 **Is the SEC slipping? Players share their thoughts at the Senior Bowl**\
 `“There’s parity everywhere. There’s no specific conference that’s good. Everybody’s good everywhere now — especially with NIL."`\
 https://nytimes.com/athletic/7016387/2026/02/03/sec-college-football-playoff-player-thoughts/
-
-**'Philly Special' film spotlights Super Bowl play that embodies the city**\
-`The story of the "Philly Special" is told from the perspective of the four players and the coach who made it happen.`\
-https://nytimes.com/athletic/7016632/2026/02/03/eagles-philly-special-super-bowl-documentary/
 
