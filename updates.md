@@ -1,3 +1,7 @@
+**The Health Food Store That Raised a Generation of Angelenos**\
+`Before everyone in town was queuing for smoothies, Simply Wholesome was juicing wheatgrass — and fostering community — in the city’s View Park-Windsor Hills.`\
+https://nytimes.com/2026/02/03/t-magazine/simply-wholesome-health-food-los-angeles.html
+
 **Walmart Joins Tech Giants With $1 Trillion Market Valuation**\
 `The company’s rapid e-commerce growth and push into automation and artificial intelligence propelled its stock into the trillion-dollar club.`\
 https://nytimes.com/2026/02/03/business/walmart-trillion-market-value.html

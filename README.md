@@ -1,3 +1,11 @@
+**It’s official: Carlos Beltrán will represent the Mets in Cooperstown**\
+`Beltrán played seven seasons with both the Royals and Mets, but appeared in 44 more games with New York. `\
+https://nytimes.com/athletic/7019273/2026/02/03/carlos-beltran-mets-cap-hall-of-fame/
+
+**Why haven't Rangers traded Artemi Panarin yet?: Latest as NHL roster freeze nears**\
+`The situation surrounding the 34-year-old star winger is complex and fluid.`\
+https://nytimes.com/athletic/7019214/2026/02/03/rangers-artemi-panarin-trade-rumors-nhl/
+
 **The Health Food Store That Raised a Generation of Angelenos**\
 `Before everyone in town was queuing for smoothies, Simply Wholesome was juicing wheatgrass — and fostering community — in the city’s View Park-Windsor Hills.`\
 https://nytimes.com/2026/02/03/t-magazine/simply-wholesome-health-food-los-angeles.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7018890/2026/02/03/jaren-jackson-jazz-grizzlies-tra
 **Paris Court Deals Family Blow in Battle for Rent From the French Embassy in Iraq**\
 `The court said it was not the right authority to handle the lawsuit for unpaid rent, and the case should be heard in Iraq, where the family’s ancestors had fled persecution.`\
 https://nytimes.com/2026/02/03/world/europe/france-embassy-iraq.html
-
-**How to watch Lakers vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7019188/2026/02/03/lakers-vs-nets-stream-how-to-watch-feb-3/
-
-**How to watch Hawks vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7019184/2026/02/03/hawks-vs-heat-stream-how-to-watch-feb-3/
 
