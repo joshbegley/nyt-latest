@@ -1,3 +1,15 @@
+**Why the Future of the Movies Lives on Letterboxd**\
+`The entertainment industry is in crisis, but a social platform for film enthusiasts is thriving. Is it changing the way we watch?`\
+https://nytimes.com/interactive/2026/02/03/magazine/letterboxd-film-discussion-site-streaming-movies.html
+
+**It’s official: Carlos Beltrán will represent the Mets in Cooperstown**\
+`Beltrán played seven seasons with both the Royals and Mets, but appeared in 44 more games with New York. `\
+https://nytimes.com/athletic/7019273/2026/02/03/carlos-beltran-mets-cap-hall-of-fame/
+
+**Why haven't Rangers traded Artemi Panarin yet? Latest as NHL roster freeze nears**\
+`The situation surrounding the 34-year-old star winger is complex and fluid.`\
+https://nytimes.com/athletic/7019214/2026/02/03/rangers-artemi-panarin-trade-rumors-nhl/
+
 **The Health Food Store That Raised a Generation of Angelenos**\
 `Before everyone in town was queuing for smoothies, Simply Wholesome was juicing wheatgrass — and fostering community — in the city’s View Park-Windsor Hills.`\
 https://nytimes.com/2026/02/03/t-magazine/simply-wholesome-health-food-los-angeles.html
