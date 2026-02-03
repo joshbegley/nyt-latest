@@ -1,3 +1,15 @@
+**Knies reveals extent of injury: 'Sucks when you don’t feel like yourself'**\
+`Knies revealed the reason for the three missed games in November was due to a knee injury sustained earlier this season.`\
+https://nytimes.com/athletic/7018292/2026/02/03/matthew-knies-maple-leafs-injury-2/
+
+**Mountain West finalizes new TV deal for first season post-Pac-12 exodus**\
+`For all the drama around the two conferences’ fight for members, the Mountain West and Pac-12's new TV deals are quite similar in exposure.`\
+https://nytimes.com/athletic/7017431/2026/02/03/mountain-west-tv-deal-broadcast-rights/
+
+**Search Continues for Savannah Guthrie’s Mother, Nancy Guthrie**\
+`Ms. Guthrie, 84, was last seen on Saturday at her home in Tucson, Ariz. A sheriff said that investigators were treating her disappearance as a crime.`\
+https://nytimes.com/2026/02/03/us/savannah-guthrie-mom-nancy-guthrie-search-updates.html
+
 **Trump’s Call to ‘Nationalize’ Voting**\
 `Readers fear how far the president will go to ensure Republican victories in the midterms. Also: What it means to be a naturalized American.`\
 https://nytimes.com/2026/02/03/opinion/trump-nationalize-elections.html
@@ -25,12 +37,4 @@ https://nytimes.com/2026/02/03/us/politics/clintons-epstein-testify.html
 **House Moves Toward Passing Deal to End Partial Shutdown**\
 `Republican leaders eked out enough votes to bring up a spending measure that would reopen the government and fund the Department of Homeland Security for two weeks.`\
 https://nytimes.com/2026/02/03/us/politics/government-shutdown-2026-house-vote.html
-
-**In Today’s Forecast: The Future of Work**\
-`If you had a crystal ball, predicting the hiring trends of tomorrow would be a breeze.`\
-https://nytimes.com/paidpost/indeed/in-todays-forecast-the-future-of-work.html
-
-**Inter fans banned for three away games after flare incident**\
-`During Inter's 2-0 win over Cremonese on Sunday, a flare appeared to explode next to goalkeeper Emil Audero, who immediately went to ground.`\
-https://nytimes.com/athletic/7018582/2026/02/03/inter-fans-ban-flare/
 

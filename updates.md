@@ -1,3 +1,11 @@
+**Trump’s Call to ‘Nationalize’ Voting**\
+`Readers fear how far the president will go to ensure Republican victories in the midterms. Also: What it means to be a naturalized American.`\
+https://nytimes.com/2026/02/03/opinion/trump-nationalize-elections.html
+
+**LA28 Olympics announce six more venues across U.S. for soccer events**\
+`Both men's and women's competitions will play their final stages at the 90,000-capacity Rose Bowl in Pasadena.`\
+https://nytimes.com/athletic/7018699/2026/02/03/la28-olympics-soccer-venues-announcement-stadiums/
+
 **LA28 Olympics announce six more venues across U.S for soccer events**\
 `But both competitions will play their final stages at the 90,000-capacity Rose Bowl in Pasadena.`\
 https://nytimes.com/athletic/7018699/2026/02/03/la28-olympics-soccer-venues-announcement-stadiums/
