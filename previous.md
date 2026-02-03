@@ -1,3 +1,20 @@
+**Pep Guardiola's political commitment has a long history**\
+`The Manchester City manager has long-held political views, dating back to his time as a supporter of Catalan independence `\
+https://nytimes.com/athletic/7018508/2026/02/03/pep-guardiola-politics-history/
+
+**Virginia Oliver, Maine’s ‘Lobster Lady’ and Folk Hero, Dies at 105**\
+`She fished off the New England coast for more than 80 years, and intended to continue until she died. “It’s not hard work for me,” she said at 101.`\
+https://nytimes.com/2026/02/03/business/virginia-oliver-dead.html
+
+**Jazz end the tank and bet big on reshaped roster with Jaren Jackson Jr.**\
+`The Jazz could have waited until this summer to improve the roster. Instead, Utah moved now. `\
+https://nytimes.com/athletic/7019106/2026/02/03/jaren-jackson-jr-utah-jazz-grizzlies-trade/
+
+**Man City manager Guardiola speaks out on Minnesota killings, Palestine in news conference**\
+`“Humanity is better than ever in terms of possibilities, but still right now we kill each other, for what?” Guardiola said.
+`\
+https://nytimes.com/athletic/7018382/2026/02/03/man-city-pep-guardiola-ice-minnesota-palestine/
+
 **NFLPA: Players have 'no appetite for an 18th regular-season game'**\
 `The union also wants to figure for a more uniform policy on how teams handle international travel.`\
 https://nytimes.com/athletic/7019521/2026/02/03/nflpa-18-games-international-david-white/
@@ -21,20 +38,4 @@ https://nytimes.com/athletic/7002240/2026/02/03/2026-winter-olympics-events-sche
 **Lindsey Vonn will try to race the Olympics on a torn ACL. She wouldn't be the first**\
 `"The dirty secret is that it happens in skiing," said Breezy Johnson, a teammate of Vonn's on racing without an ACL.`\
 https://nytimes.com/athletic/7019098/2026/02/03/lindsey-vonn-acl-winter-olympics/
-
-**All About the Epstein Files**\
-`Everyone seems to have questions about the sprawling scandal, so we talked to a reporter who’s been following the case for years.`\
-https://nytimes.com/2026/02/03/world/epstein-files-russia-ukraine-venezuela.html
-
-**Tom Brady won’t back Patriots in Super Bowl: ‘May the best team win’**\
-`Tom Brady stays neutral ahead of the Super Bowl, supporting people over teams. `\
-https://nytimes.com/athletic/7019286/2026/02/03/tom-brady-patriots-super-bowl-seahawks/
-
-**Will Newsom Be the Democrats’ Next Mistake?**\
-`The California governor’s record is exactly what Republicans want to run against.`\
-https://nytimes.com/2026/02/03/opinion/gavin-newsom-memoir-president-2028.html
-
-**Arsenal 1 Chelsea 0 (4-2 on agg): Mikel Arteta's side reach first final for six years**\
-`Our writers break down the talking points from the Carabao Cup semi-final second leg at the Emirates.`\
-https://nytimes.com/athletic/7006951/2026/02/03/arsenal-chelsea-carabao-cup-arteta/
 
