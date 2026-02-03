@@ -1,3 +1,7 @@
+**Penguins' best players have a night to forget in loss against Senators**\
+`A lack of effort and a surplus of attempting fancy moves doomed the Penguins to a loss that was much worse than the score implied.`\
+https://nytimes.com/athletic/7017293/2026/02/02/penguins-karlsson-silovs-effort-crosby-senators/
+
 **Trump Administration Sued Over Cutting Off Funds for $16 Billion Tunnel**\
 `The Gateway Development Commission said that if the federal government continued to withhold funding for a rail link under the Hudson River, it would have to stop construction this week.`\
 https://nytimes.com/2026/02/02/nyregion/hudson-river-tunnel-lawsuit-gateway.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7017180/2026/02/02/lsu-investigation-nil-reporting/
 **Read the Decision**\
 `A federal judge temporarily blocked the Trump administration from ending Temporary Protected Status for more than 350,000 Haitians in the United States.`\
 https://nytimes.com/interactive/2026/02/02/us/haitians-tps-ruling.html
-
-**‘I’m Not Ripping It Down’: Trump Says He’s Only Renovating the Kennedy Center**\
-`Even though President Trump held a movie premiere for his wife’s new film there last week, he said the state of the building was “actually sort of dangerous.”`\
-https://nytimes.com/2026/02/02/us/politics/trump-kennedy-center-renovation.html
 

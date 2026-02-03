@@ -1,3 +1,7 @@
+**Penguins' best players have a night to forget in loss against Senators**\
+`A lack of effort and a surplus of attempting fancy moves doomed the Penguins to a loss that was much worse than the score implied.`\
+https://nytimes.com/athletic/7017293/2026/02/02/penguins-karlsson-silovs-effort-crosby-senators/
+
 **Trump Administration Sued Over Cutting Off Funds for $16 Billion Tunnel**\
 `The Gateway Development Commission said that if the federal government continued to withhold funding for a rail link under the Hudson River, it would have to stop construction this week.`\
 https://nytimes.com/2026/02/02/nyregion/hudson-river-tunnel-lawsuit-gateway.html
