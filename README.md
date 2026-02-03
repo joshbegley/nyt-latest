@@ -6,7 +6,7 @@ https://nytimes.com/2026/02/03/technology/trump-statue-don-colossus.html
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7018090/2026/02/03/lindsey-vonn-acl-tear-olympics-skiing-games-briefing/
 
-**Quakes in China’s Leadership Could Be Due to Paranoia and Power Plays**\
+**Ruptures in China’s Leadership Could Be Due to Paranoia and Power Plays**\
 `U.S. intelligence analysts say that Xi Jinping, China’s leader, has a remarkable level of fear. He has carried out mass purges, and surprised many by removing his top general.`\
 https://nytimes.com/2026/02/03/us/politics/china-xi-military-purge.html
 
