@@ -1,3 +1,7 @@
+**Welcome to Late-Stage Individualism**\
+`In our era of individualism, Priya Parker, the author of “The Art of Gathering,” reminds us on “The Ezra Klein Show” that “the individual also needs group life.”`\
+https://nytimes.com/video/opinion/100000010630279/welcome-to-late-stage-individualism.html
+
 **NFL security chief 'confident' there are no planned ICE operations around Super Bowl 60**\
 `Cathy L. Lanier said there are no known specific or credible threats to the Super Bowl or any of its related events.`\
 https://nytimes.com/athletic/7018980/2026/02/03/super-bowl-ice-agents-homeland-security/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010686677/japan-snow-deaths.html
 **Colombians Rally During Their President’s Meeting with Trump**\
 `President Gustavo Petro had asked Colombians to gather around the country during his meeting with President Trump on Tuesday.`\
 https://nytimes.com/2026/02/03/us/politics/colombians-rally-during-their-presidents-meeting-with-trump.html
-
-**WATCH: Seahawks put on masterclass in building an NFL contender**\
-`Did you notice how the NFC Champion Seahawks were built? With Seattle one win from another Super Bowl title, let’s dig into it.`\
-https://nytimes.com/athletic/7018753/2026/02/03/seahawks-super-bowl-contender-nfl-video/
 
