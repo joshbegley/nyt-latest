@@ -1,3 +1,15 @@
+**Will Newsom Be the Democrats’ Next Mistake?**\
+`The California governor’s record is exactly what Republicans want to run against.`\
+https://nytimes.com/2026/02/03/opinion/gavin-newsom-memoir-president-2028.html
+
+**Arsenal 1 Chelsea 0 (4-2 on agg): Mikel Arteta's side reach first final for six years after seeing off London rivals**\
+`Our writers break down the talking points from the Carabao Cup semi-final second leg at the Emirates.`\
+https://nytimes.com/athletic/7006951/2026/02/03/arsenal-chelsea-carabao-cup-arteta/
+
+**Trade Grades: Nikola Vučević solves Celtics' big man issue, Bulls land Anfernee Simons**\
+`The Celtics added some much-needed size to their roster, while the Bulls added some offense.`\
+https://nytimes.com/athletic/7019259/2026/02/03/bulls-trade-nikola-vucevic-celtics-anfernee-simons/
+
 **NASA Delays Artemis II Rocket Launch Until at Least March**\
 `NASA delayed the Artemis II mission on Tuesday after detecting hydrogen leaks. The mission was scheduled to circle the moon with four astronauts.`\
 https://nytimes.com/video/us/100000010687240/nasa-artemis-rocket-launch-moon-delay.html
