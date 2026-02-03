@@ -1,3 +1,11 @@
+**Robert Kraft, Patriots owner during 6 Super Bowl wins, not voted into Pro Football Hall of Fame: Source**\
+`Kraft was a finalist via the contributor committee. Belichick was a finalist via the coach committee.`\
+https://nytimes.com/athletic/7018024/2026/02/03/robert-kraft-hall-of-fame-not-voted/
+
+**Offseason resolution: Mariners front office completes Donovan trade while visiting state capitol**\
+`The team was being honored by the Washington state senate when Jerry Dipoto and Justin Hollander received a group text from Chaim Bloom.`\
+https://nytimes.com/athletic/7017969/2026/02/03/seattle-mariners-brendan-donovan-trade-state-senate/
+
 **Disney Names Josh D’Amaro as Next C.E.O.**\
 `Mr. D’Amaro, 54, has most recently served as chairman of Disney Experiences, a division that includes theme parks, cruise vacations and consumer products.`\
 https://nytimes.com/2026/02/03/business/disney-damaro-ceo.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7016632/2026/02/03/eagles-philly-special-super-bowl
 **Trump Administration Live Updates: President to Meet Colombia’s Leader After Months of Tensions**\
 ``\
 https://nytimes.com/live/2026/02/03/us/trump-news
-
-**Everton's transfer window: George the sole addition, but McNeil endures cruel late twist**\
-`David Moyes welcomed the young Chelsea winger to Merseyside on loan, but must now reintegrate McNeil after the collapse of his own late move`\
-https://nytimes.com/athletic/7017725/2026/02/03/everton-george-mcneil-january-window/
-
-**Research Finds Interaction With Father, Not Mother, Affects Child Health**\
-`A long-term study of 292 families linked fathers’ parenting style to their children’s heart health years later. To researchers’ surprise, no such link was found with mothers.`\
-https://nytimes.com/2026/02/03/health/fathers-child-health.html
 
