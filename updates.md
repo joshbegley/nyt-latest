@@ -1,3 +1,11 @@
+**NASA Delays Artemis II Rocket Launch Until at Least March**\
+`NASA delayed the Artemis II mission on Tuesday after detecting hydrogen leaks. The mission was scheduled to circle the moon with four astronauts.`\
+https://nytimes.com/video/us/100000010687240/nasa-artemis-rocket-launch-moon-delay.html
+
+**A New Word Game Brings Competition, and Trash Talk**\
+`Crossplay, the first of its kind from The Times, pits puzzlers against each other on a shared board.`\
+https://nytimes.com/2026/02/03/insider/crossplay-new-york-times-games.html
+
 **Two NHL heavyweights review goalie fight: ‘Swing and hope it hits’**\
 `The Bruins' resident fighting experts offer their analysis of Jeremy Swayman's bout with the Lightning's Andre Vasilevskiy.`\
 https://nytimes.com/athletic/7019281/2026/02/03/nhl-goalie-fight-review-swayman-vasilevskiy/
