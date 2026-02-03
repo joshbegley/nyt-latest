@@ -1,40 +1,40 @@
-**Epstein Files Reveal Name of Woman Who Accused Alexander Brothers**\
-`Defense lawyers unsuccessfully asked for a mistrial after the brothers appeared in the latest batch of Epstein emails. The Alexanders have not been linked to Jeffrey Epstein’s crimes.`\
-https://nytimes.com/2026/02/03/nyregion/alexanders-brothers-trial-epstein.html
+**How to watch Nuggets vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7018490/2026/02/03/nuggets-vs-pistons-stream-how-to-watch-feb-3/
 
-**‘Biblical Diseases’ Could Resurge in Africa, Health Officials Fear**\
-`Parasites and infections that cause blindness and other disabilities were nearly eliminated in some countries, but drug distribution to prevent and treat them was derailed in many places in 2025 after the U.S. cut aid.`\
-https://nytimes.com/2026/02/03/health/neglected-tropical-diseases-usaid-ntds-river-blindness.html
+**Chuck Negron, Singer With of Three Dog Night, Is Dead at 83**\
+`His tenor anchored generational hits like “Joy to the World” and “One.”`\
+https://nytimes.com/2026/02/03/arts/music/chuck-negron-three-dog-night-dead.html
 
-**Former Farming Leaders Warn U.S. Agriculture Could Face ‘Widespread Collapse’**\
-`A group of past government officials and the former heads of farming associations issued a dire warning to members of Congress.`\
-https://nytimes.com/2026/02/03/us/politics/us-agriculture-warning.html
+**How to watch Capitals vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7018476/2026/02/03/capitals-vs-flyers-stream-how-to-watch-feb-3/
 
-**Sabres' Ukko-Pekka Luukkonen out for Olympics, will be replaced by Bruins' Joonas Korpisalo**\
-`Team Finland announced Tuesday that Buffalo Sabres goalie Ukko-Pekka Luukkonen will miss the Olympics with a lower-body injury.`\
-https://nytimes.com/athletic/7018363/2026/02/03/olympics-finland-ukko-pekka-luukkonen-joonas-korpisalo/
+**How to watch Senators vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7018472/2026/02/03/senators-vs-hurricanes-stream-how-to-watch-feb-3/
 
-**10 Movies to Stream for Black History Month**\
-`Watch these selections that highlight the range and evolution of Black film.`\
-https://nytimes.com/2026/02/03/movies/black-history-month-movies-streaming.html
+**How to watch Knicks vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7018468/2026/02/03/knicks-vs-wizards-stream-how-to-watch-feb-3/
 
-**How to watch Boston College vs. Duke men's basketball: Time, TV, streaming**\
-`Find out how to watch the Boston College Eagles play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7018418/2026/02/03/boston-college-vs-duke-stream-how-to-watch-feb-3/
+**Sources: Raptors interested in Sabonis but Poeltl's contract an obstacle**\
+`The Raptors' interest in the Kings' big man is real, but a pathway to a potential deal remains complicated.`\
+https://nytimes.com/athletic/7018466/2026/02/03/nba-trade-domantas-sabonis-raptors-salary/
 
-**How to watch Miami (OH) vs. Buffalo men's basketball: Time, TV, streaming**\
-`Find out how to watch the Miami (OH) RedHawks play the Buffalo Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7018415/2026/02/03/miami-oh-vs-buffalo-stream-how-to-watch-feb-3/
+**How to watch Jazz vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7018459/2026/02/03/jazz-vs-pacers-stream-how-to-watch-feb-3/
 
-**How to watch Xavier vs. UConn men's basketball: Time, TV, streaming**\
-`Find out how to watch the Xavier Musketeers play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7018413/2026/02/03/xavier-vs-uconn-stream-how-to-watch-feb-3/
+**How to watch Blue Jackets vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7018457/2026/02/03/blue-jackets-vs-devils-stream-how-to-watch-feb-3/
 
-**More Parents Are Rejecting a Lifesaving Vitamin Shot for Newborns**\
-`For decades, hospitals have given babies a vitamin K injection to protect against bleeding. Now, the shot appears to be facing resistance.`\
-https://nytimes.com/2026/02/03/well/vitamin-k-shots-parents.html
+**Weeks of Heavy Snowfall in Japan Kills at Least 30**\
+`Snowfall in parts of Japan has also left about 200 people injured. One city recorded 72 inches of snow, the highest in almost 40 years.`\
+https://nytimes.com/2026/02/03/world/asia/japan-snow-deaths.html
 
-**Christy Tanner Named C.E.O. of New York Public Radio**\
-`Ms. Tanner was previously an executive at CBS News and serves on the board of Audacy, a major U.S. broadcaster and podcast producer.`\
-https://nytimes.com/2026/02/03/business/media/christy-tanner-nypr-ceo-wnyc-wqxr.html
+**Nepal Arrests 6 Officials, Accusing Them of Fraudulent Everest Rescues**\
+`The officials from mountain rescue agencies are accused of carrying out unnecessary helicopter rescues to defraud international insurance companies of nearly $20 million.`\
+https://nytimes.com/2026/02/03/world/asia/mount-everest-helicopter-insurance-fraud.html
 
