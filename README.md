@@ -1,3 +1,7 @@
+**One Thing Trump Can’t Do to Us**\
+`People often misunderstand nonviolent protest. It is not merely eschewing violence.`\
+https://nytimes.com/2026/02/03/opinion/america-ice-trump-minneapolis.html
+
 **The Best Movies and TV Shows Coming to Netflix in February**\
 `A new series from the creator of “Derry Girls” and an inside look at the world of competitive ice dancing are among the highlights this month.`\
 https://nytimes.com/2026/02/03/arts/television/netflix-new-february.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7018753/2026/02/03/seahawks-super-bowl-contender-nf
 **A Club for Team USA in Milan Will No Longer Be Called ‘Ice House’**\
 `U.S. Olympic officials are changing the name to Winter House, as Italians protest the similarly named federal agency’s presence at the Games in Italy.`\
 https://nytimes.com/2026/02/03/sports/olympics-ice-house-name.html
-
-**L.A. Olympic committee chairman says he 'deeply regrets' emails released in Epstein files**\
-`In a statement, Casey Wasserman said he is "terribly sorry" for his association with Jeffrey Epstein and Ghislaine Maxwell.`\
-https://nytimes.com/athletic/7018074/2026/02/03/casey-wasserman-los-angeles-olympics-epstein-release/
 

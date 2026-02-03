@@ -1,3 +1,19 @@
+**The Best Movies and TV Shows Coming to Netflix in February**\
+`A new series from the creator of “Derry Girls” and an inside look at the world of competitive ice dancing are among the highlights this month.`\
+https://nytimes.com/2026/02/03/arts/television/netflix-new-february.html
+
+**Tom Britt, Designer of Larger-Than-Life Interiors, Dies at 89**\
+`A master of the grand gesture, he was as theatrical as his rooms, which were inspired by French chateaus and Italian palazzos. As he put it, “Why be ordinary?”`\
+https://nytimes.com/2026/02/03/arts/design/tom-britt-dead.html
+
+**Browns coach Todd Monken: 'I didn’t take this job because of Jim Schwartz'**\
+`In his introductory news conference, Monken said the talented defensive players, not Schwartz, were a big reason he took the job. `\
+https://nytimes.com/athletic/7019027/2026/02/03/browns-todd-monken-news-conference-jim-schwartz/
+
+**Ivey, Conley traded to Bulls in 3-team trade with Pistons, Timberwolves: Sources**\
+`The Pistons receive Kevin Huerter in the deal, while Minnesota sends a 2026 first-round pick swap to Detroit to create more flexibility.`\
+https://nytimes.com/athletic/7019076/2026/02/03/jaden-ivey-mike-conley-bulls-pistons-timberwolves-trade/
+
 **Song of the Week: ‘Ever Since U Left Me (I Went Deaf)’**\
 `Our pop music critic Jon Caramanica explains how French Montana and Max B’s new song fits into an expanding New York rap sound.`\
 https://nytimes.com/video/podcasts/100000010687157/song-of-the-week-ever-since-u-left-me-i-went-deaf.html
