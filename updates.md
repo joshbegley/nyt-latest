@@ -1,3 +1,7 @@
+**Timberwolves fall flat in Memphis. Is urgency needed before trade deadline?**\
+`Minnesota's maddening habit of playing down to its competition caught up to it again in Memphis. `\
+https://nytimes.com/athletic/7017440/2026/02/03/timberwolves-trade-deadline-rumors-grizzlies/
+
 **Police Search X’s Premises in France as Prosecutors Summon Elon Musk**\
 `The move followed a yearlong investigation into X and escalated a wider standoff between European officials and American tech companies over the regulation of social media.`\
 https://nytimes.com/2026/02/03/world/europe/musk-x-france-police-search.html
