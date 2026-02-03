@@ -10,7 +10,7 @@ https://nytimes.com/athletic/7017082/2026/02/02/mlb-trade-grades-brendan-donovan
 `The Justice Department did not address a 1980 law that generally bars warrants for reporting material when it sought to seize a Washington Post reporter’s devices, an unsealed filing shows.`\
 https://nytimes.com/2026/02/02/us/politics/doj-press-law-warrant-application-washington-post-journalist.html
 
-**Federal Judge Blocks End of Protection for Haitians in U.S.**\
+**Federal Judge Temporarily Blocks End of Protection for Haitians in U.S.**\
 `The ruling pauses the Trump administration’s plan to end a program that has allowed more than 350,000 people from Haiti to remain in the United States.`\
 https://nytimes.com/2026/02/02/us/haitians-temporary-protected-status-trump.html
 

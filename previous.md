@@ -1,9 +1,17 @@
+**White Sox's Munetaka Murakami is latest Japanese player to request bidet**\
+`Murakami isn't alone in asking for a bidet to be installed in the locker room.`\
+https://nytimes.com/athletic/7017114/2026/02/02/chicago-white-sox-munetaka-murakami-bidet/
+
+**Everybody gets what they want in three-team swap for Brendan Donovan: MLB Trade Grades**\
+`The Mariners got better. The Cardinals got prospects. The Rays got themselves involved. Good for everyone. `\
+https://nytimes.com/athletic/7017082/2026/02/02/mlb-trade-grades-brendan-donovan-mariners-cardinals-rays/
+
 **U.S. Failed to Alert Judge to Press Law in Application to Search Reporter’s Home**\
 `The Justice Department did not address a 1980 law that generally bars warrants for reporting material when it sought to seize a Washington Post reporter’s devices, an unsealed filing shows.`\
 https://nytimes.com/2026/02/02/us/politics/doj-press-law-warrant-application-washington-post-journalist.html
 
 **Federal Judge Blocks End of Protection for Haitians in U.S.**\
-`The ruling pauses the Trump administration’s plan to end a program that has allowed more than 330,000 people from Haiti to remain in the United States.`\
+`The ruling pauses the Trump administration’s plan to end a program that has allowed more than 350,000 people from Haiti to remain in the United States.`\
 https://nytimes.com/2026/02/02/us/haitians-temporary-protected-status-trump.html
 
 **Ukraine condemns 'moral degenerate' Infantino over Russia ban comments**\
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010685779/rafah-crossing-gaza-e
 **Waymo Raises $16 Billion to Fuel Global Ambitions**\
 `The self-driving car company, an arm of Google’s parent company, is rapidly expanding its service beyond a handful of cities.`\
 https://nytimes.com/2026/02/02/business/waymo-funding-growth.html
-
-**Immigration Officers in Minneapolis Will Wear Body Cameras, Noem Says**\
-`The change comes as the federal government has provided accounts of fatal shootings that have sometimes conflicted with local officials and witness videos.`\
-https://nytimes.com/2026/02/02/us/politics/immigration-body-cameras-noem.html
-
-**Scoop City: How the Russell Wilson trade began Seattle's Super Bowl journey**\
-`How John Schneider built these Seahawks through a series of bold subtractions and savvy additions`\
-https://nytimes.com/athletic/7017025/2026/02/02/seahawks-roster-super-bowl-starters/
 

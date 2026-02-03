@@ -1,3 +1,15 @@
+**White Sox's Munetaka Murakami is latest Japanese player to request bidet**\
+`Murakami isn't alone in asking for a bidet to be installed in the locker room.`\
+https://nytimes.com/athletic/7017114/2026/02/02/chicago-white-sox-munetaka-murakami-bidet/
+
+**Everybody gets what they want in three-team swap for Brendan Donovan: MLB Trade Grades**\
+`The Mariners got better. The Cardinals got prospects. The Rays got themselves involved. Good for everyone. `\
+https://nytimes.com/athletic/7017082/2026/02/02/mlb-trade-grades-brendan-donovan-mariners-cardinals-rays/
+
+**Federal Judge Blocks End of Protection for Haitians in U.S.**\
+`The ruling pauses the Trump administration’s plan to end a program that has allowed more than 350,000 people from Haiti to remain in the United States.`\
+https://nytimes.com/2026/02/02/us/haitians-temporary-protected-status-trump.html
+
 **U.S. Failed to Alert Judge to Press Law in Application to Search Reporter’s Home**\
 `The Justice Department did not address a 1980 law that generally bars warrants for reporting material when it sought to seize a Washington Post reporter’s devices, an unsealed filing shows.`\
 https://nytimes.com/2026/02/02/us/politics/doj-press-law-warrant-application-washington-post-journalist.html
