@@ -1,3 +1,7 @@
+**NFL security chief 'confident' there are no planned ICE operations around Super Bowl 60**\
+`Cathy L. Lanier said there are no known specific or credible threats to the Super Bowl or any of its related events.`\
+https://nytimes.com/athletic/7018980/2026/02/03/super-bowl-ice-agents-homeland-security/
+
 **One Thing Trump Can’t Do to Us**\
 `People often misunderstand nonviolent protest. It is not merely eschewing violence.`\
 https://nytimes.com/2026/02/03/opinion/america-ice-trump-minneapolis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/03/us/politics/colombians-rally-during-their-preside
 **WATCH: Seahawks put on masterclass in building an NFL contender**\
 `Did you notice how the NFC Champion Seahawks were built? With Seattle one win from another Super Bowl title, let’s dig into it.`\
 https://nytimes.com/athletic/7018753/2026/02/03/seahawks-super-bowl-contender-nfl-video/
-
-**A Club for Team USA in Milan Will No Longer Be Called ‘Ice House’**\
-`U.S. Olympic officials are changing the name to Winter House, as Italians protest the similarly named federal agency’s presence at the Games in Italy.`\
-https://nytimes.com/2026/02/03/sports/olympics-ice-house-name.html
 
