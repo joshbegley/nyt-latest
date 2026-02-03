@@ -1,3 +1,15 @@
+**West Ham can dismiss Nuno without compensation if they get relegated**\
+`The London Stadium club are 18th in the Premier League, six points off safety, with 14 games remaining.`\
+https://nytimes.com/athletic/7017774/2026/02/03/west-ham-nuno-espirito-santo-compensation/
+
+**Palestinians Return to Gaza for First Time in Nearly Two Years**\
+`The returnees reunited with families but also said their homecomings carried symbolic weight — defying any schemes to permanently displace Gazans.`\
+https://nytimes.com/2026/02/03/world/middleeast/palestinians-gaza-return.html
+
+**Iran’s President Backs ‘Fair’ Talks With U.S. as Confrontation Looms**\
+`President Masoud Pezeshkian said on Tuesday that he supported “equitable negotiations.” Talks are expected on Friday, as diplomats work to defuse the crisis.`\
+https://nytimes.com/2026/02/03/world/middleeast/iran-president-talks-istanbul-witkoff-kushner.html
+
 **TAFC – Palace's turbulent transfer window. Plus: Liverpool's £55m gamble and Ukraine's Infantino criticism**\
 `Unsettled players, botched signings and a manager on the way out — how did it go so wrong for last season's FA Cup winners?`\
 https://nytimes.com/athletic/7017791/2026/02/03/crystal-palace-transfer-window-liverpool-infantino-tafc/
