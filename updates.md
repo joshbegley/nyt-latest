@@ -1,3 +1,7 @@
+**NBA Trade Board 3.0: After flurry of deals, 10 players who could be on the move**\
+`With the Bucks officially listening to offers on Giannis Antetokounmpo, there is no one else who can top this list.`\
+https://nytimes.com/athletic/7019611/2026/02/03/nba-trade-deadline-players-available-giannis-antetokounmpo/
+
 **Netflix Leader Pushes Warner Deal Before Skeptical Lawmakers**\
 `Senators asked Ted Sarandos about whether the acquisition would raise prices, squeeze talent and degrade the moviegoing experience.`\
 https://nytimes.com/2026/02/03/business/media/netflix-sarandos-warner-senate-hearing.html
