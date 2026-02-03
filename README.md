@@ -1,3 +1,7 @@
+**Everybody gets what they want in three-team swap for Brendan Donovan: MLB Trade Grades**\
+`The Mariners got better. The Cardinals got prospects. The Rays got themselves involved. Good for everyone. `\
+https://nytimes.com/athletic/7017082/2026/02/02/mlb-trade-grades-brendan-donovan-mariners-cardinals-rays/
+
 **U.S. Failed to Alert Judge to Press Law in Application to Search Reporter’s Home**\
 `The Justice Department did not address a 1980 law that generally bars warrants for reporting material when it sought to seize a Washington Post reporter’s devices, an unsealed filing shows.`\
 https://nytimes.com/2026/02/02/us/politics/doj-press-law-warrant-application-washington-post-journalist.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/02/business/waymo-funding-growth.html
 **Immigration Officers in Minneapolis Will Wear Body Cameras, Noem Says**\
 `The change comes as the federal government has provided accounts of fatal shootings that have sometimes conflicted with local officials and witness videos.`\
 https://nytimes.com/2026/02/02/us/politics/immigration-body-cameras-noem.html
-
-**Scoop City: How the Russell Wilson trade began Seattle's Super Bowl journey**\
-`How John Schneider built these Seahawks through a series of bold subtractions and savvy additions`\
-https://nytimes.com/athletic/7017025/2026/02/02/seahawks-roster-super-bowl-starters/
 
