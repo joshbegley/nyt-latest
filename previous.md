@@ -1,9 +1,17 @@
+**How to watch Miami (OH) vs. Buffalo men's basketball: Time, TV, streaming**\
+`Find out how to watch the Miami (OH) RedHawks play the Buffalo Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7018415/2026/02/03/miami-oh-vs-buffalo-stream-how-to-watch-feb-3/
+
+**How to watch Xavier vs. UConn men's basketball: Time, TV, streaming**\
+`Find out how to watch the Xavier Musketeers play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7018413/2026/02/03/xavier-vs-uconn-stream-how-to-watch-feb-3/
+
 **More Parents Are Rejecting a Lifesaving Vitamin Shot for Newborns**\
 `For decades, hospitals have given babies a vitamin K injection to protect against bleeding. Now, the shot appears to be facing resistance.`\
 https://nytimes.com/2026/02/03/well/vitamin-k-shots-parents.html
 
 **Christy Tanner Named C.E.O. of New York Public Radio**\
-`Ms. Tanner was previously an executive at CBS News and serves on the board of Audacity, a major U.S. broadcaster and podcast producer.`\
+`Ms. Tanner was previously an executive at CBS News and serves on the board of Audacy, a major U.S. broadcaster and podcast producer.`\
 https://nytimes.com/2026/02/03/business/media/christy-tanner-named-ceo-of-new-york-public-radio.html
 
 **Here’s what to know.**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/03/style/melania-movie-brand.html
 **Giannis Antetokounmpo trade offers remain underwhelming: Sources**\
 `As of Monday, it appears increasingly likely the Giannis Antetokounmpo saga will extend into the summer. But things can change.`\
 https://nytimes.com/athletic/7018332/2026/02/03/nba-giannis-trade-bucks-offers-predictions/
-
-**Was the Bruins-Lightning Stadium Series the best NHL outdoor game ever?**\
-`Plus: What the heck is going on in Nashville?`\
-https://nytimes.com/athletic/7018287/2026/02/03/nhl-best-outdoor-games-bruins-lightning/
-
-**Why Canucks don't measure up to Utah, and what it should mean for the rebuild**\
-`The Canucks lost decisively, 6-2, to the upstart Utah Mammoth on Monday night in Salt Lake City.`\
-https://nytimes.com/athletic/7017560/2026/02/03/canucks-mammoth-score-highlights-news-rebuild/
 

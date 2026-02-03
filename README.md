@@ -1,3 +1,27 @@
+**Epstein Files Reveal Name of Woman Who Accused Alexander Brothers**\
+`Defense lawyers unsuccessfully asked for a mistrial after the brothers appeared in the latest batch of Epstein emails. The Alexanders have not been linked to Jeffrey Epstein’s crimes.`\
+https://nytimes.com/2026/02/03/nyregion/alexanders-brothers-trial-epstein.html
+
+**‘Biblical Diseases’ Could Resurge in Africa, Health Officials Fear**\
+`Parasites and infections that cause blindness and other disabilities were nearly eliminated in some countries, but drug distribution to prevent and treat them was derailed in many places in 2025 after the U.S. cut aid.`\
+https://nytimes.com/2026/02/03/health/neglected-tropical-diseases-usaid-ntds-river-blindness.html
+
+**Former Farming Leaders Warn U.S. Agriculture Could Face ‘Widespread Collapse’**\
+`A group of past government officials and the former heads of farming associations issued a dire warning to members of Congress.`\
+https://nytimes.com/2026/02/03/us/politics/us-agriculture-warning.html
+
+**Sabres' Ukko-Pekka Luukkonen out for Olympics, will be replaced by Bruins' Joonas Korpisalo**\
+`Team Finland announced Tuesday that Buffalo Sabres goalie Ukko-Pekka Luukkonen will miss the Olympics with a lower-body injury.`\
+https://nytimes.com/athletic/7018363/2026/02/03/olympics-finland-ukko-pekka-luukkonen-joonas-korpisalo/
+
+**10 Movies to Stream for Black History Month**\
+`Watch these selections that highlight the range and evolution of Black film.`\
+https://nytimes.com/2026/02/03/movies/black-history-month-movies-streaming.html
+
+**How to watch Boston College vs. Duke men's basketball: Time, TV, streaming**\
+`Find out how to watch the Boston College Eagles play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7018418/2026/02/03/boston-college-vs-duke-stream-how-to-watch-feb-3/
+
 **How to watch Miami (OH) vs. Buffalo men's basketball: Time, TV, streaming**\
 `Find out how to watch the Miami (OH) RedHawks play the Buffalo Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7018415/2026/02/03/miami-oh-vs-buffalo-stream-how-to-watch-feb-3/
@@ -12,29 +36,5 @@ https://nytimes.com/2026/02/03/well/vitamin-k-shots-parents.html
 
 **Christy Tanner Named C.E.O. of New York Public Radio**\
 `Ms. Tanner was previously an executive at CBS News and serves on the board of Audacy, a major U.S. broadcaster and podcast producer.`\
-https://nytimes.com/2026/02/03/business/media/christy-tanner-named-ceo-of-new-york-public-radio.html
-
-**Here’s what to know.**\
-`By Mitch Smith`\
-https://nytimes.com/live/2026/02/03/us/minneapolis-ice-immigration/heres-what-to-know
-
-**Minneapolis Live Updates: Courts and Congress Consider Fallout of Trump’s Immigration Crackdown**\
-`Relatives of Renee Good, who was killed by an ICE agent in Minneapolis last month, are expected to testify in Washington. Another man shot by federal agents will be in court.`\
-https://nytimes.com/live/2026/02/03/us/minneapolis-ice-immigration
-
-**Are These Bots Plotting a Marxist Revolution, or Just Telling Stories?**\
-`“A Reddit for A.I.” social media platform has taken the internet by storm. But we’re not having the right conversations about it.`\
-https://nytimes.com/2026/02/03/opinion/ai-agents-moltbook.html
-
-**Chilly? Chili.**\
-`Melissa Clark’s five-star vegetarian chili is the pantriest pantry recipe of them all — a quick-simmered jumble of canned tomatoes, beans, garlic, onion and spices.`\
-https://nytimes.com/2026/02/03/dining/chilly-chili.html
-
-**Everyone Is Missing the Point About the ‘Melania’ Movie**\
-`It’s not really a movie at all. It’s a marketing deck.`\
-https://nytimes.com/2026/02/03/style/melania-movie-brand.html
-
-**Giannis Antetokounmpo trade offers remain underwhelming: Sources**\
-`As of Monday, it appears increasingly likely the Giannis Antetokounmpo saga will extend into the summer. But things can change.`\
-https://nytimes.com/athletic/7018332/2026/02/03/nba-giannis-trade-bucks-offers-predictions/
+https://nytimes.com/2026/02/03/business/media/christy-tanner-nypr-ceo-wnyc-wqxr.html
 

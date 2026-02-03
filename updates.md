@@ -1,3 +1,15 @@
+**How to watch Miami (OH) vs. Buffalo men's basketball: Time, TV, streaming**\
+`Find out how to watch the Miami (OH) RedHawks play the Buffalo Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7018415/2026/02/03/miami-oh-vs-buffalo-stream-how-to-watch-feb-3/
+
+**How to watch Xavier vs. UConn men's basketball: Time, TV, streaming**\
+`Find out how to watch the Xavier Musketeers play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7018413/2026/02/03/xavier-vs-uconn-stream-how-to-watch-feb-3/
+
+**Christy Tanner Named C.E.O. of New York Public Radio**\
+`Ms. Tanner was previously an executive at CBS News and serves on the board of Audacy, a major U.S. broadcaster and podcast producer.`\
+https://nytimes.com/2026/02/03/business/media/christy-tanner-named-ceo-of-new-york-public-radio.html
+
 **More Parents Are Rejecting a Lifesaving Vitamin Shot for Newborns**\
 `For decades, hospitals have given babies a vitamin K injection to protect against bleeding. Now, the shot appears to be facing resistance.`\
 https://nytimes.com/2026/02/03/well/vitamin-k-shots-parents.html
