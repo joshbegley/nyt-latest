@@ -1,3 +1,7 @@
+**Arsenal 1 Chelsea 0 (4-2 on agg): Mikel Arteta's side reach first final for six years**\
+`Our writers break down the talking points from the Carabao Cup semi-final second leg at the Emirates.`\
+https://nytimes.com/athletic/7006951/2026/02/03/arsenal-chelsea-carabao-cup-arteta/
+
 **Man City manager Guardiola speaks out on Minnesota killings, Palestine in news conference**\
 `“Humanity is better than ever in terms of possibilities, but still right now we kill each other, for what?” Guardiola said.
 `\
