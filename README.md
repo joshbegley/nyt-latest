@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Minnesota, Homicides, 'Heated Rivalry'**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2026/02/02/learning/02StudentNewsQuiz.html
+
 **Spilled the Beans**\
 `Nate Cardin’s puzzle invites you to listen closely.`\
 https://nytimes.com/2026/02/02/crosswords/daily-puzzle-2026-02-03.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/02/nyregion/brooklyn-dismembered-body-found-basement
 **H.H.S. to Expand Faith-Based Addiction Programs for Homeless**\
 `Health Secretary Robert F. Kennedy Jr. said addiction is a “spiritual disease” that calls out for the involvement of religious organizations.`\
 https://nytimes.com/2026/02/02/health/hhs-rfk-faith-based-addiction-programs.html
-
-**N.F.L. Says It Will Look Into Steve Tisch’s Ties to Epstein**\
-`Recently released emails reveal that Jeffrey Epstein sought to connect Mr. Tisch, whose family is a part-owner of the New York Giants, with multiple women.`\
-https://nytimes.com/2026/02/02/sports/nfl-steve-tisch-epstein-giants.html
 
