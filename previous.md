@@ -1,3 +1,15 @@
+**U.S. Failed to Alert Judge to Press Law in Application to Search Reporter’s Home**\
+`The Justice Department did not address a 1980 law that generally bars warrants for reporting material when it sought to seize a Washington Post reporter’s devices, an unsealed filing shows.`\
+https://nytimes.com/2026/02/02/us/politics/doj-press-law-warrant-application-washington-post-journalist.html
+
+**Federal Judge Blocks End of Protection for Haitians in U.S.**\
+`The ruling pauses the Trump administration’s plan to end a program that has allowed more than 330,000 people from Haiti to remain in the United States.`\
+https://nytimes.com/2026/02/02/us/haitians-temporary-protected-status-trump.html
+
+**Ukraine condemns 'moral degenerate' Infantino over Russia ban comments**\
+`The president of world football's governing body has been described as a "moral degenerate" by Ukraine's foreign minister Andrii Sybiha.`\
+https://nytimes.com/athletic/7016812/2026/02/02/russia-ukraine-football-ban-fifa-infantino/
+
 **Epstein Victims Ask Judge to Shut D.O.J. Website After Names Disclosed**\
 `A judge will hold a hearing on Wednesday after attorneys for victims in the Epstein case said the recent batch of documents released by the government included their names.`\
 https://nytimes.com/2026/02/02/nyregion/epstein-victims-names-doj-website-hearing.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/02/us/politics/immigration-body-cameras-noem.html
 **Scoop City: How the Russell Wilson trade began Seattle's Super Bowl journey**\
 `How John Schneider built these Seahawks through a series of bold subtractions and savvy additions`\
 https://nytimes.com/athletic/7017025/2026/02/02/seahawks-roster-super-bowl-starters/
-
-**Maryland Moves to Give Democrats Extra House Seat, but Big Hurdles Remain**\
-`The state’s House of Delegates passed a new map that would be likely to eliminate Maryland’s lone remaining Republican seat in the U.S. House, but the State Senate may well block the measure.`\
-https://nytimes.com/2026/02/02/us/politics/maryland-house-redistricting-democrats-seat.html
-
-**Wall St. Lawyer Brad Karp Says He Regrets Epstein Interactions**\
-`Newly released emails between Mr. Karp, the chairman of Paul Weiss, and Jeffrey Epstein reveal a number of social interactions between them.`\
-https://nytimes.com/2026/02/02/business/karp-epstein-paul-weiss.html
-
-**Full Time: Split results for Americans abroad**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/7016880/2026/02/02/uswnt-wsl-england-results-full-time/
 
