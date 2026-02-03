@@ -1,3 +1,7 @@
+**Maryland Moves to Give Democrats Extra House Seat, but Big Hurdles Remain**\
+`The state’s House of Delegates passed a new map that would be likely to eliminate Maryland’s lone remaining Republican seat in the U.S. House, but the State Senate may well block the measure.`\
+https://nytimes.com/2026/02/02/us/politics/maryland-house-redistricting-democrats-seat.html
+
 **Wall St. Lawyer Brad Karp Says He Regrets Epstein Interactions**\
 `Newly released emails between Mr. Karp, the chairman of Paul Weiss, and Jeffrey Epstein reveal a number of social interactions between them.`\
 https://nytimes.com/2026/02/02/business/karp-epstein-paul-weiss.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7002227/2026/02/02/2026-winter-olympics-medal-count
 **Justice Dept. Sidelines Ed Martin as Chief of Weaponization Group**\
 `The move represents a consolidation of the authority of the deputy attorney general, Todd Blanche, in bringing Mr. Martin’s operation inside his office.`\
 https://nytimes.com/2026/02/02/us/politics/justice-dept-ed-martin-weaponization-group.html
-
-**ICE has no planned immigration operations at Super Bowl, host committee says**\
-`The federal security presence at Super Bowl 60 will be comparable to past Super Bowls, according to the game's host committee.`\
-https://nytimes.com/athletic/7016806/2026/02/02/super-bowl-ice-immigration-operations/
 

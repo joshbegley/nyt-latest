@@ -1,3 +1,7 @@
+**Third Candidate Enters Heated Race for Open House Seat**\
+`Julie Won, a New York City councilwoman, will face two other Democrats, one backed by the departing incumbent, Nydia Velázquez, and the other by Mayor Zohran Mamdani.`\
+https://nytimes.com/2026/02/02/nyregion/julie-won-house-candidate.html
+
 **Wall St. Lawyer Brad Karp Says He Regrets Epstein Interactions**\
 `Newly released emails between Mr. Karp, the chairman of Paul Weiss, and Jeffrey Epstein reveal a number of social interactions between them.`\
 https://nytimes.com/2026/02/02/business/karp-epstein-paul-weiss.html
