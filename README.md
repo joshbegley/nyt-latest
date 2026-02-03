@@ -1,3 +1,11 @@
+**Pirro Threatens Jail Time for Lawful Gun Owners Who Travel to D.C. With Firearms**\
+`The remarks by Jeannine Pirro, the U.S. attorney for the District of Columbia, prompted swift pushback from the Republican Party’s pro-Second Amendment wing.`\
+https://nytimes.com/2026/02/02/us/politics/pirro-dc-guns.html
+
+**Which transfer windows are still open? Which free agents are available?**\
+`Just because the Premier League, La Liga, and other key European transfer windows are shut, does not mean deals cannot still be done.`\
+https://nytimes.com/athletic/7006833/2026/02/02/transfer-windows-open-world-close-when/
+
 **Penguins' best players have a night to forget in loss against Senators**\
 `A lack of effort and a surplus of attempting fancy moves doomed the Penguins to a loss that was much worse than the score implied.`\
 https://nytimes.com/athletic/7017293/2026/02/02/penguins-karlsson-silovs-effort-crosby-senators/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7017237/2026/02/02/junior-hockey-players-crash-sout
 **Roger Goodell on lack of diversity in hiring cycle, technology in officiating, 18th game**\
 `Goodell said "we're re-evaluating everything we're doing" to ensure the NFL promotes diversity in its head coach hiring.`\
 https://nytimes.com/athletic/7017172/2026/02/02/roger-goodell-super-bowl-diversity-officiating-18-games/
-
-**LSU will not be disciplined after investigation into its NIL reporting**\
-`The first publicly known inquiry by the College Sports Commission, which did not involve LSU football, lasted two and a half weeks.`\
-https://nytimes.com/athletic/7017180/2026/02/02/lsu-investigation-nil-reporting/
-
-**Read the Decision**\
-`A federal judge temporarily blocked the Trump administration from ending Temporary Protected Status for more than 350,000 Haitians in the United States.`\
-https://nytimes.com/interactive/2026/02/02/us/haitians-tps-ruling.html
 
