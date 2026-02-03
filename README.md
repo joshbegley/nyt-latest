@@ -1,8 +1,3 @@
-**Man City manager Guardiola speaks out on Minnesota killings, Palestine in news conference**\
-`“Humanity is better than ever in terms of possibilities, but still right now we kill each other, for what?” Guardiola said.
-`\
-https://nytimes.com/athletic/7018382/2026/02/03/man-city-pep-guardiola-ice-minnesota-palestine/
-
 **NFLPA: Players have 'no appetite for an 18th regular-season game'**\
 `The union also wants to figure for a more uniform policy on how teams handle international travel.`\
 https://nytimes.com/athletic/7019521/2026/02/03/nflpa-18-games-international-david-white/
@@ -38,4 +33,8 @@ https://nytimes.com/athletic/7019286/2026/02/03/tom-brady-patriots-super-bowl-se
 **Will Newsom Be the Democrats’ Next Mistake?**\
 `The California governor’s record is exactly what Republicans want to run against.`\
 https://nytimes.com/2026/02/03/opinion/gavin-newsom-memoir-president-2028.html
+
+**Arsenal 1 Chelsea 0 (4-2 on agg): Mikel Arteta's side reach first final for six years**\
+`Our writers break down the talking points from the Carabao Cup semi-final second leg at the Emirates.`\
+https://nytimes.com/athletic/7006951/2026/02/03/arsenal-chelsea-carabao-cup-arteta/
 

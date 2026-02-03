@@ -1,3 +1,8 @@
+**Man City manager Guardiola speaks out on Minnesota killings, Palestine in news conference**\
+`“Humanity is better than ever in terms of possibilities, but still right now we kill each other, for what?” Guardiola said.
+`\
+https://nytimes.com/athletic/7018382/2026/02/03/man-city-pep-guardiola-ice-minnesota-palestine/
+
 **NFLPA: Players have 'no appetite for an 18th regular-season game'**\
 `The union also wants to figure for a more uniform policy on how teams handle international travel.`\
 https://nytimes.com/athletic/7019521/2026/02/03/nflpa-18-games-international-david-white/
