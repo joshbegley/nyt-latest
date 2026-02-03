@@ -1,3 +1,23 @@
+**Meat Processors Take a Hit as Cattle Prices Remain High**\
+`Tyson Foods said its beef business could lose up to $500 million this year as the supply of cattle hits a 75-year low.`\
+https://nytimes.com/2026/02/03/business/tyson-beef-prices-meat-processors.html
+
+**Live Updates: Westminster Dog Show Will Crown the Nation’s Best Dog**\
+`Tonight, the 2,500 dogs who started in the competition on Monday will be winnowed to seven, and then to one. Next up for judgment: the sporting, working and terrier groups.`\
+https://nytimes.com/live/2026/02/03/style/westminster-dog-show
+
+**Here’s the latest.**\
+`By Sarah Lyall`\
+https://nytimes.com/live/2026/02/03/style/westminster-dog-show/heres-the-latest
+
+**Four dogs have already advanced to best in show judging.**\
+`The winners of Monday’s hound, toy, non-sporting and herding group judging will return on Tuesday night.`\
+https://nytimes.com/live/2026/02/03/style/westminster-dog-show/four-dogs-have-already-advanced-to-best-in-show-judging
+
+**Last year, Monty trounced the competition.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2026/02/03/style/westminster-dog-show/last-year-monty-trounced-the-competition
+
 **Trump Releases Latest Rendering of White House Ballroom Project**\
 `President Trump emphasized that the ballroom would not be taller than the Executive Mansion of the White House, as he faces criticism over the size of the project.`\
 https://nytimes.com/2026/02/03/us/trump-white-house-ballroom-rendering.html
@@ -13,29 +33,4 @@ https://nytimes.com/2026/02/03/briefing/shutdown-ice-funding-iran-drone.html
 **Pep Guardiola's political commitment has a long history**\
 `The Manchester City manager has long-held political views, dating back to his time as a supporter of Catalan independence `\
 https://nytimes.com/athletic/7018508/2026/02/03/pep-guardiola-politics-history/
-
-**Virginia Oliver, Maine’s ‘Lobster Lady’ and Folk Hero, Dies at 105**\
-`She fished off the New England coast for more than 80 years, and intended to continue until she died. “It’s not hard work for me,” she said at 101.`\
-https://nytimes.com/2026/02/03/business/virginia-oliver-dead.html
-
-**Jazz end the tank and bet big on reshaped roster with Jaren Jackson Jr.**\
-`The Jazz could have waited until this summer to improve the roster. Instead, Utah moved now. `\
-https://nytimes.com/athletic/7019106/2026/02/03/jaren-jackson-jr-utah-jazz-grizzlies-trade/
-
-**Man City manager Guardiola speaks out on Minnesota killings, Palestine in news conference**\
-`“Humanity is better than ever in terms of possibilities, but still right now we kill each other, for what?” Guardiola said.
-`\
-https://nytimes.com/athletic/7018382/2026/02/03/man-city-pep-guardiola-ice-minnesota-palestine/
-
-**NFLPA: Players have 'no appetite for an 18th regular-season game'**\
-`The union also wants to figure for a more uniform policy on how teams handle international travel.`\
-https://nytimes.com/athletic/7019521/2026/02/03/nflpa-18-games-international-david-white/
-
-**Renee Good’s Brothers Testify After Fatal Minneapolis Shooting**\
-`Luke Ganger and Brent Ganger called their sister, Renee Good, “unapologetically hopeful” during a public forum on the use of force by federal agents at the U.S. Capitol on Tuesday. Ms. Good was fatally shot by a federal agent in Minneapolis in January.`\
-https://nytimes.com/video/us/100000010688070/renee-good-brothers-testify-minneapolis-shooting.html
-
-**Vice and the Crisis of Liberalism**\
-`Is there a political prescription for our era of addiction?`\
-https://nytimes.com/2026/02/03/opinion/vice-liberalism-addiction-gambling-drugs.html
 
