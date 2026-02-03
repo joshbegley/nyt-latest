@@ -1,3 +1,7 @@
+**‘I’m Not Ripping It Down’: Trump Says He’s Only Renovating the Kennedy Center**\
+`Even though President Trump held a movie premiere for his wife’s new film there last week, he said the state of the building was “actually sort of dangerous.”`\
+https://nytimes.com/2026/02/02/us/politics/trump-kennedy-center-renovation.html
+
 **Woman’s Dismembered Body Is Found in a Brooklyn Basement, Officials Say**\
 `The police are investigating the death of Michelle Montgomery, whose remains were found in a public housing building in the Williamsburg neighborhood.`\
 https://nytimes.com/2026/02/02/nyregion/brooklyn-dismembered-body-found-basement.html
