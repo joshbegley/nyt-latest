@@ -1,3 +1,11 @@
+**‘Don Colossus,’ a Golden Statue of President Trump, Waits for Its Home**\
+`A group of cryptocurrency investors backing a memecoin hopes the statue will soon be installed at one of Mr. Trump’s golf courses in Florida.`\
+https://nytimes.com/2026/02/03/technology/trump-statue-don-colossus.html
+
+**Games Briefing: Lindsey Vonn plans to ski through injury at Olympics**\
+`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7018090/2026/02/03/lindsey-vonn-acl-tear-olympics-skiing-games-briefing/
+
 **Quakes in China’s Leadership Could Be Due to Paranoia and Power Plays**\
 `U.S. intelligence analysts say that Xi Jinping, China’s leader, has a remarkable level of fear. He has carried out mass purges, and surprised many by removing his top general.`\
 https://nytimes.com/2026/02/03/us/politics/china-xi-military-purge.html
@@ -19,7 +27,7 @@ https://nytimes.com/athletic/7015299/2026/02/03/kante-transfer-fenerbahce-saudi/
 https://nytimes.com/athletic/7018387/2026/02/03/arne-slot-richard-hughes-transfers-tactics/
 
 **Epstein’s Trust Reveals Who Would Inherit His Fortune**\
-`Jeffrey Epstein wanted most of his money to go to his girlfriend, a native of Belarus. Mr. Epstein’s brother and a Harvard math professor were also named beneficiaries.`\
+`Jeffrey Epstein wanted most of his money to go to his girlfriend. Mr. Epstein’s brother and a Harvard math professor were also named beneficiaries.`\
 https://nytimes.com/2026/02/03/business/jeffrey-epstein-trust-inherit-karyna-shuliak.html
 
 **How to watch Nuggets vs. Pistons: Time, TV, streaming**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7018490/2026/02/03/nuggets-vs-pistons-stream-how-to
 **Chuck Negron, Singer With Three Dog Night, Is Dead at 83**\
 `His tenor anchored generational hits like “Joy to the World” and “One.”`\
 https://nytimes.com/2026/02/03/arts/music/chuck-negron-three-dog-night-dead.html
-
-**How to watch Capitals vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Washington Capitals play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7018476/2026/02/03/capitals-vs-flyers-stream-how-to-watch-feb-3/
-
-**How to watch Senators vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7018472/2026/02/03/senators-vs-hurricanes-stream-how-to-watch-feb-3/
 
