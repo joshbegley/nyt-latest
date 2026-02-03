@@ -1,3 +1,15 @@
+**LA28 Olympics announce six more venues across U.S for soccer events**\
+`But both competitions will play their final stages at the 90,000-capacity Rose Bowl in Pasadena.`\
+https://nytimes.com/athletic/7018699/2026/02/03/la28-olympics-soccer-venues-announcement-stadiums/
+
+**Fanatics apologizes amidst backlash over Super Bowl LX team jerseys**\
+`Patriots and Seahawks fans have voiced dissatisfaction with the quality and availability of jerseys ahead of the Super Bowl.  `\
+https://nytimes.com/athletic/7018670/2026/02/03/fanatics-apology-super-bowl-lx-jerseys-patriots-seahawks/
+
+**Team USA names flag bearers for Winter Olympics opening ceremony**\
+`Speedskater Erin Jackson and bobsledder Frank Del Duca were chosen for the honor by a vote of fellow Team USA athletes.`\
+https://nytimes.com/athletic/7018121/2026/02/03/milan-cortina-olympics-usa-flag-bearers/
+
 **A partial victory: LIV granted OWGR points for its top 10 finishers**\
 `The OWGR decision will provide a better pathway to majors for elite LIV performers, but it’s still fewer points than other comparable tours.`\
 https://nytimes.com/athletic/7018462/2026/02/03/liv-golf-owgr-world-ranking-points-72-holes-majors/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/7018582/2026/02/03/inter-fans-ban-flare/
 **‘The Devil Wears Prada’ Sequel Looks Like a Nostalgia Trip**\
 `But will it be delightful or depressing to watch Andy and Miranda navigate the current fashion media landscape?`\
 https://nytimes.com/2026/02/03/style/devil-wears-prada-sequel-trailer-chat.html
-
-**Sources: James Rodriguez, Minnesota United in talks over shocking deal**\
-`The Colombian star is a free agent after leaving Club León in Mexico`\
-https://nytimes.com/athletic/7018576/2026/02/03/james-rodriguez-minnesota-united-mls/
-
-**Super Bowl Gatorade shower odds: Orange is favored, but should it be?**\
-`Let's get weird with it: In-depth analysis of which Gatorade color could be chosen after this Super Bowl.`\
-https://nytimes.com/athletic/7007240/2026/02/03/super-bowl-gatorade-odds-betting-colors-favorites/
-
-**‘Don Colossus,’ a Golden Statue of President Trump, Waits for Its Home**\
-`A group of cryptocurrency investors backing a memecoin hopes the statue will soon be installed at one of Mr. Trump’s golf courses in Florida.`\
-https://nytimes.com/2026/02/03/technology/trump-statue-don-colossus.html
 
