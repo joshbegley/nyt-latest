@@ -1,3 +1,11 @@
+**House Moves Toward Passing Deal to End Partial Shutdown**\
+`Republican leaders eked out enough votes to bring up a spending measure that would reopen the government and fund the Department of Homeland Security for two weeks.`\
+https://nytimes.com/2026/02/03/us/politics/government-shutdown-2026-house-vote.html
+
+**In Today’s Forecast: The Future of Work**\
+`If you had a crystal ball, predicting the hiring trends of tomorrow would be a breeze.`\
+https://nytimes.com/paidpost/indeed/in-todays-forecast-the-future-of-work.html
+
 **Inter fans banned for three away games after flare incident**\
 `During Inter's 2-0 win over Cremonese on Sunday, a flare appeared to explode next to goalkeeper Emil Audero, who immediately went to ground.`\
 https://nytimes.com/athletic/7018582/2026/02/03/inter-fans-ban-flare/
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/7018090/2026/02/03/lindsey-vonn-acl-tear-olympics-s
 **Ruptures in China’s Leadership Could Be Due to Paranoia and Power Plays**\
 `U.S. intelligence analysts say that Xi Jinping, China’s leader, has a remarkable level of fear. He has carried out mass purges, and surprised many by removing his top general.`\
 https://nytimes.com/2026/02/03/us/politics/china-xi-military-purge.html
-
-**Shopping Sprees and a Penthouse: Public Defender Pleads Guilty to Fraud**\
-`Lori Zeno, the former head of the Queens Defenders, faces around five years in prison for stealing public money to pay for international vacations and teeth whitening.`\
-https://nytimes.com/2026/02/03/nyregion/queens-defenders-corruption-lori-zeno.html
-
-**Giulietta Conjures Coastal Italy During a Bleak New York Winter**\
-`Keep the comfort dining going with Delos Greek Restaurant, the reopened Confidant and more.`\
-https://nytimes.com/2026/02/03/dining/nyc-restaurant-news.html
-
-**Fenerbahce blame N'Golo Kante transfer collapse on Al Ittihad**\
-`The 34-year-old is one of the most decorated midfielders ever, having won three league titles, the Champions League and the World Cup.`\
-https://nytimes.com/athletic/7015299/2026/02/03/kante-transfer-fenerbahce-saudi/
 

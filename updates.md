@@ -1,3 +1,11 @@
+**House Moves Toward Passing Deal to End Partial Shutdown**\
+`Republican leaders eked out enough votes to bring up a spending measure that would reopen the government and fund the Department of Homeland Security for two weeks.`\
+https://nytimes.com/2026/02/03/us/politics/government-shutdown-2026-house-vote.html
+
+**In Today’s Forecast: The Future of Work**\
+`If you had a crystal ball, predicting the hiring trends of tomorrow would be a breeze.`\
+https://nytimes.com/paidpost/indeed/in-todays-forecast-the-future-of-work.html
+
 **Inter fans banned for three away games after flare incident**\
 `During Inter's 2-0 win over Cremonese on Sunday, a flare appeared to explode next to goalkeeper Emil Audero, who immediately went to ground.`\
 https://nytimes.com/athletic/7018582/2026/02/03/inter-fans-ban-flare/
