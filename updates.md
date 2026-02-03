@@ -1,3 +1,7 @@
+**Potential No. 1 pick Darryn Peterson sparks late rally in Kansas' road win**\
+`The freshman sensation finished with 19 points to lead the Jayhawks, who finished the game on a 14-2 run.`\
+https://nytimes.com/athletic/7017467/2026/02/03/darryn-peterson-kansas-texas-tech-basketball/
+
 **Harry Brook and Brendon McCullum's positions are untenable – even if England win the T20 World Cup**\
 `The white-ball captain admitted last week that he lied to England's management about the night when he clashed with a bouncer in Wellington`\
 https://nytimes.com/athletic/7015319/2026/02/03/harry-brook-brendon-mccullum-england-t20-world-cup/
