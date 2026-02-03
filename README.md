@@ -1,3 +1,7 @@
+**Woman’s Dismembered Body Is Found in a Brooklyn Basement, Officials Say**\
+`The police are investigating the death of Michelle Montgomery, whose remains were found in a public housing building in the Williamsburg neighborhood.`\
+https://nytimes.com/2026/02/02/nyregion/brooklyn-dismembered-body-found-basement.html
+
 **H.H.S. to Expand Faith-Based Addiction Programs for Homeless**\
 `Health Secretary Robert F. Kennedy Jr. said addiction is a “spiritual disease” that calls out for the involvement of religious organizations.`\
 https://nytimes.com/2026/02/02/health/hhs-rfk-faith-based-addiction-programs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/02/nyregion/epstein-victims-names-doj-website-hearin
 **Why Texas Is the Wildest Story in U.S. Politics Right Now**\
 `First came a remarkable State Senate upset. Next up: two high-octane U.S. Senate primaries.`\
 https://nytimes.com/2026/02/02/us/politics/texas-senate-talarico-crockett-allred-cornyn-paxton.html
-
-**NFL to hold regular-season games in Mexico City for next three years**\
-`The NFL will have nine international games next season, the most ever for the league.`\
-https://nytimes.com/athletic/7017038/2026/02/02/nfl-mexico-city-2026/
 
