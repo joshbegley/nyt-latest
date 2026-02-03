@@ -1,7 +1,3 @@
-**Wall St. Lawyer Brad Karp Says He Regrets Epstein Interactions**\
-`Newly released emails between Mr. Karp, the chairman of Paul Weiss, and Jeffrey Epstein reveal a number of social interactions between them.`\
-https://nytimes.com/2026/02/02/business/karp-epstein-paul-weiss.html
-
 **Full Time: Split results for Americans abroad**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/7016880/2026/02/02/uswnt-wsl-england-results-full-time/
@@ -37,4 +33,8 @@ https://nytimes.com/2026/02/02/us/politics/justice-dept-ed-martin-weaponization-
 **ICE has no planned immigration operations at Super Bowl, host committee says**\
 `The federal security presence at Super Bowl 60 will be comparable to past Super Bowls, according to the game's host committee.`\
 https://nytimes.com/athletic/7016806/2026/02/02/super-bowl-ice-immigration-operations/
+
+**Giannis to the Bulls? Why you shouldn't take those DraftKings odds too seriously**\
+`While DraftKings lists the Bulls as having the best odds to land Giannis Antetokounmpo, it's probably not because anything has changed.`\
+https://nytimes.com/athletic/7016935/2026/02/02/giannis-antetokounmpo-betting-odds-chicago-bulls/
 
