@@ -1,3 +1,11 @@
+**Sources: James Rodriguez, Minnesota United in talks over shocking deal**\
+`The Colombian star is a free agent after leaving Club León in Mexico`\
+https://nytimes.com/athletic/7018576/2026/02/03/james-rodriguez-minnesota-united-mls/
+
+**Super Bowl Gatorade shower odds: Orange is favored, but should it be?**\
+`Let's get weird with it: In-depth analysis of which Gatorade color could be chosen after this Super Bowl.`\
+https://nytimes.com/athletic/7007240/2026/02/03/super-bowl-gatorade-odds-betting-colors-favorites/
+
 **‘Don Colossus,’ a Golden Statue of President Trump, Waits for Its Home**\
 `A group of cryptocurrency investors backing a memecoin hopes the statue will soon be installed at one of Mr. Trump’s golf courses in Florida.`\
 https://nytimes.com/2026/02/03/technology/trump-statue-don-colossus.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7018387/2026/02/03/arne-slot-richard-hughes-transfe
 **Epstein’s Trust Reveals Who Would Inherit His Fortune**\
 `Jeffrey Epstein wanted most of his money to go to his girlfriend. Mr. Epstein’s brother and a Harvard math professor were also named beneficiaries.`\
 https://nytimes.com/2026/02/03/business/jeffrey-epstein-trust-inherit-karyna-shuliak.html
-
-**How to watch Nuggets vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7018490/2026/02/03/nuggets-vs-pistons-stream-how-to-watch-feb-3/
-
-**Chuck Negron, Singer With Three Dog Night, Is Dead at 83**\
-`His tenor anchored generational hits like “Joy to the World” and “One.”`\
-https://nytimes.com/2026/02/03/arts/music/chuck-negron-three-dog-night-dead.html
 
