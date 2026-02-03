@@ -1,3 +1,11 @@
+**Palestinians Return to Gaza for the First Time in Nearly Two Years**\
+`A small number of Palestinians were allowed to return to Gaza for the first time in nearly two years after the Rafah crossing with Egypt reopened on Monday.`\
+https://nytimes.com/video/world/middleeast/100000010686567/palestinians-return-gaza-rafah-crossing.html
+
+**Lawsuit Argues Trump Gold Card Visa Program Prioritizes Wealth Over Ability**\
+`The suit asks that a judge find the pay-for-play visa program unlawful, casting it as another example of the Trump administration’s seeking to bypass Congress.`\
+https://nytimes.com/2026/02/03/us/politics/trump-gold-card-visa-lawsuit.html
+
 **The Questionable Science Behind the Odd-Looking Football Helmets**\
 `The N.F.L. claims Guardian Caps reduce the risk of concussions. The company that makes them says, “It has nothing to do with concussions.”`\
 https://nytimes.com/2026/02/03/business/super-bowl-guardian-cap-helmet.html

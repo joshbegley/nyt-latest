@@ -1,3 +1,7 @@
+**Host a Super Bowl Party That Lets You Enjoy the Game, Too**\
+`Don’t miss a second of the halftime show with these expert tips.`\
+https://nytimes.com/2026/02/03/dining/super-bowl-cooking-tips.html
+
 **Palestinians Return to Gaza for the First Time in Nearly Two Years**\
 `A small number of Palestinians were allowed to return to Gaza for the first time in nearly two years after the Rafah crossing with Egypt reopened on Monday.`\
 https://nytimes.com/video/world/middleeast/100000010686567/palestinians-return-gaza-rafah-crossing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7018292/2026/02/03/matthew-knies-maple-leafs-injury
 **Mountain West finalizes new TV deal for first season post-Pac-12 exodus**\
 `For all the drama around the two conferences’ fight for members, the Mountain West and Pac-12's new TV deals are quite similar in exposure.`\
 https://nytimes.com/athletic/7017431/2026/02/03/mountain-west-tv-deal-broadcast-rights/
-
-**Search Continues for Savannah Guthrie’s Mother, Nancy Guthrie**\
-`Ms. Guthrie, 84, was last seen on Saturday at her home in Tucson, Ariz. A sheriff said that investigators were treating her disappearance as a crime.`\
-https://nytimes.com/2026/02/03/us/savannah-guthrie-mom-nancy-guthrie-search-updates.html
 
