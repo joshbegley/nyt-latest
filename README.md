@@ -1,3 +1,11 @@
+**Houston Astros 2026 top 20 prospects: Brice Matthews, Ethan Pecko lead the way**\
+`The Astros have dipped heavily into their farm system to trade for pieces to remain playoff contenders and the cupboard is a bit bare now.`\
+https://nytimes.com/athletic/7010781/2026/02/03/astros-2026-top-20-prospects-keith-law/
+
+**The Pulse: A late-night NBA trade rumbling**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7016462/2026/02/03/james-harden-giannis-antetokounmpo-trade-the-pulse/
+
 **Texas Rangers 2026 top 20 prospects: Sebastian Walcott, Caden Scarborough lead the way**\
 `The Rangers have a potential superstar in Walcott but the depth of the system took a huge hit with the MacKenzie Gore trade.`\
 https://nytimes.com/athletic/7011286/2026/02/03/texas-rangers-2026-top-20-prospects-keith-law/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7016685/2026/02/03/olympic-hockey-predictions-milan
 **USC has the No.1 recruiting class and the same question: Can Lincoln Riley deliver?**\
 `USC has an infusion of young talent and Playoff-or-bust expectations heading into Lincoln Riley's fifth season`\
 https://nytimes.com/athletic/7017355/2026/02/03/usc-lincoln-riley-playoff-recruiting/
-
-**A history of hockey's international superpowers and their paths to gold in 2026**\
-`Here are five questions regarding the current state of each participating Big Six hockey nation ahead of the Olympics.`\
-https://nytimes.com/athletic/7008202/2026/02/03/olympic-hockey-superpowers-canada-united-states-history/
-
-**What I'm hearing about the Mavericks in the final hours of the NBA trade deadline**\
-`What moves will the Mavericks make ahead of Thursday’s NBA trade deadline — if any?`\
-https://nytimes.com/athletic/7016468/2026/02/03/mavericks-nba-trade-deadline-anthony-davis-naji-marshall/
 
