@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: President to Meet Colombia’s Leader After Months of Tensions**\
+``\
+https://nytimes.com/live/2026/02/03/us/trump-news
+
 **How a Judge Weaponized Wit to Free 5-Year-Old Liam**\
 `Our critic annotates the barbed wordplay of a decision challenging the Trump administration’s theory of executive power.`\
 https://nytimes.com/interactive/2026/02/03/books/judge-ruling-liam-conejo-ramos-analysis.html
