@@ -1,3 +1,7 @@
+**Research Finds Interaction With Father, Not Mother, Affects Child Health**\
+`A long-term study of 292 families linked fathers’ parenting style to their children’s heart health years later. To researchers’ surprise, no such link was found with mothers.`\
+https://nytimes.com/2026/02/03/health/fathers-child-health.html
+
 **Timberwolves fall flat in Memphis. Is urgency needed before trade deadline?**\
 `Minnesota's maddening habit of playing down to its competition caught up to it again in Memphis. `\
 https://nytimes.com/athletic/7017440/2026/02/03/timberwolves-trade-deadline-rumors-grizzlies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7017502/2026/02/03/super-bowl-opening-night-fans-me
 **Rempe building confidence, mobility in journey back from thumb injury**\
 `The young forward's hand hasn't been the same since an early-season fight with Ryan Reaves.`\
 https://nytimes.com/athletic/7016565/2026/02/03/rangers-matt-rempe-thumb-injury-recovery/
-
-**Mikel Brown Jr. is an old-school tape head. Is a he a top-10 draft pick, too?**\
-`The Louisville prospect is "obsessed with just watching basketball." That film study may lead toward the top of draft boards.`\
-https://nytimes.com/athletic/7015102/2026/02/03/mikel-brown-louisville-nba-draft/
 
