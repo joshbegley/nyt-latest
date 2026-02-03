@@ -1,5 +1,9 @@
-**LA28 Olympics announce six more venues across U.S for soccer events**\
-`But both competitions will play their final stages at the 90,000-capacity Rose Bowl in Pasadena.`\
+**Trump’s Call to ‘Nationalize’ Voting**\
+`Readers fear how far the president will go to ensure Republican victories in the midterms. Also: What it means to be a naturalized American.`\
+https://nytimes.com/2026/02/03/opinion/trump-nationalize-elections.html
+
+**LA28 Olympics announce six more venues across U.S. for soccer events**\
+`Both men's and women's competitions will play their final stages at the 90,000-capacity Rose Bowl in Pasadena.`\
 https://nytimes.com/athletic/7018699/2026/02/03/la28-olympics-soccer-venues-announcement-stadiums/
 
 **Fanatics apologizes amidst backlash over Super Bowl LX team jerseys**\
@@ -29,8 +33,4 @@ https://nytimes.com/paidpost/indeed/in-todays-forecast-the-future-of-work.html
 **Inter fans banned for three away games after flare incident**\
 `During Inter's 2-0 win over Cremonese on Sunday, a flare appeared to explode next to goalkeeper Emil Audero, who immediately went to ground.`\
 https://nytimes.com/athletic/7018582/2026/02/03/inter-fans-ban-flare/
-
-**‘The Devil Wears Prada’ Sequel Looks Like a Nostalgia Trip**\
-`But will it be delightful or depressing to watch Andy and Miranda navigate the current fashion media landscape?`\
-https://nytimes.com/2026/02/03/style/devil-wears-prada-sequel-trailer-chat.html
 

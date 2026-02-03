@@ -1,3 +1,15 @@
+**LA28 Olympics announce six more venues across U.S for soccer events**\
+`But both competitions will play their final stages at the 90,000-capacity Rose Bowl in Pasadena.`\
+https://nytimes.com/athletic/7018699/2026/02/03/la28-olympics-soccer-venues-announcement-stadiums/
+
+**Fanatics apologizes amidst backlash over Super Bowl LX team jerseys**\
+`Patriots and Seahawks fans have voiced dissatisfaction with the quality and availability of jerseys ahead of the Super Bowl.  `\
+https://nytimes.com/athletic/7018670/2026/02/03/fanatics-apology-super-bowl-lx-jerseys-patriots-seahawks/
+
+**Team USA names flag bearers for Winter Olympics opening ceremony**\
+`Speedskater Erin Jackson and bobsledder Frank Del Duca were chosen for the honor by a vote of fellow Team USA athletes.`\
+https://nytimes.com/athletic/7018121/2026/02/03/milan-cortina-olympics-usa-flag-bearers/
+
 **A partial victory: LIV granted OWGR points for its top 10 finishers**\
 `The OWGR decision will provide a better pathway to majors for elite LIV performers, but it’s still fewer points than other comparable tours.`\
 https://nytimes.com/athletic/7018462/2026/02/03/liv-golf-owgr-world-ranking-points-72-holes-majors/
