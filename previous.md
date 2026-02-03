@@ -1,3 +1,15 @@
+**Trump Releases Latest Rendering of White House Ballroom Project**\
+`President Trump emphasized that the ballroom would not be taller than the Executive Mansion of the White House, as he faces criticism over the size of the project.`\
+https://nytimes.com/2026/02/03/us/trump-white-house-ballroom-rendering.html
+
+**Inside One Minneapolis Church, a Different Type of Protest**\
+`In the weeks since ICE agents began conducting operations across the city, Westminster Presbyterian has given its members a place to protest on their own terms.`\
+https://nytimes.com/2026/02/03/us/westminster-presbyterian-minneapolis-ice-protest.html
+
+**The Shutdown Is Over, but Not the Clash Over ICE Funding**\
+`Also, colleges saw notable racial shifts in student enrollment. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/02/03/briefing/shutdown-ice-funding-iran-drone.html
+
 **Pep Guardiola's political commitment has a long history**\
 `The Manchester City manager has long-held political views, dating back to his time as a supporter of Catalan independence `\
 https://nytimes.com/athletic/7018508/2026/02/03/pep-guardiola-politics-history/
@@ -26,16 +38,4 @@ https://nytimes.com/video/us/100000010688070/renee-good-brothers-testify-minneap
 **Vice and the Crisis of Liberalism**\
 `Is there a political prescription for our era of addiction?`\
 https://nytimes.com/2026/02/03/opinion/vice-liberalism-addiction-gambling-drugs.html
-
-**Savannah Guthrie’s Mom Was Taken ‘Against Her Will,’ Authorities Say**\
-`Authorities say Savannah Guthrie’s mother, Nancy Guthrie, was taken “against her will” in a Tuesday news conference. The Pima County sheriff says submitted DNA samples have not indicated any suspects.`\
-https://nytimes.com/video/us/100000010687937/savannah-guthrie-mother-nancy-kidnapped.html
-
-**2026 Winter Olympics events schedule**\
-``\
-https://nytimes.com/athletic/7002240/2026/02/03/2026-winter-olympics-events-schedule/
-
-**Lindsey Vonn will try to race the Olympics on a torn ACL. She wouldn't be the first**\
-`"The dirty secret is that it happens in skiing," said Breezy Johnson, a teammate of Vonn's on racing without an ACL.`\
-https://nytimes.com/athletic/7019098/2026/02/03/lindsey-vonn-acl-winter-olympics/
 

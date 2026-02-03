@@ -1,3 +1,20 @@
+**Trump Releases Latest Rendering of White House Ballroom Project**\
+`President Trump emphasized that the ballroom would not be taller than the Executive Mansion of the White House, as he faces criticism over the size of the project.`\
+https://nytimes.com/2026/02/03/us/trump-white-house-ballroom-rendering.html
+
+**Inside One Minneapolis Church, a Different Type of Protest**\
+`In the weeks since ICE agents began conducting operations across the city, Westminster Presbyterian has given its members a place to protest on their own terms.`\
+https://nytimes.com/2026/02/03/us/westminster-presbyterian-minneapolis-ice-protest.html
+
+**The Shutdown Is Over, but Not the Clash Over ICE Funding**\
+`Also, colleges saw notable racial shifts in student enrollment. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/02/03/briefing/shutdown-ice-funding-iran-drone.html
+
+**Man City manager Guardiola speaks out on Minnesota killings, Palestine in news conference**\
+`“Humanity is better than ever in terms of possibilities, but still right now we kill each other, for what?” Guardiola said.
+`\
+https://nytimes.com/athletic/7018382/2026/02/03/man-city-pep-guardiola-ice-minnesota-palestine/
+
 **Man City manager Guardiola speaks out on Minnesota killings, Palestine in news conference**\
 `“Humanity is better than ever in terms of possibilities, but still right now we kill each other, for what?” Guardiola said.
 `\
