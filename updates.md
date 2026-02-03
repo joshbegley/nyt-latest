@@ -1,3 +1,7 @@
+**Welcome to Late-Stage Individualism**\
+`In our era of individualism, Priya Parker, the author of “The Art of Gathering,” reminds us on “The Ezra Klein Show” that “the individual also needs group life.”`\
+https://nytimes.com/video/opinion/100000010630279/welcome-to-late-stage-individualism.html
+
 **NFL security chief 'confident' there are no planned ICE operations around Super Bowl 60**\
 `Cathy L. Lanier said there are no known specific or credible threats to the Super Bowl or any of its related events.`\
 https://nytimes.com/athletic/7018980/2026/02/03/super-bowl-ice-agents-homeland-security/
