@@ -1,3 +1,7 @@
+**Seattle Mariners 2026 top 20 prospects: Colt Emerson, Ryan Sloan lead the way**\
+`The Mariners have a strong system with a number of elite talents at the top of their ranking but it thins out quickly toward the middle.`\
+https://nytimes.com/athletic/7011006/2026/02/03/mariners-2026-top-20-prospects-keith-law/
+
 **Houston Astros 2026 top 20 prospects: Brice Matthews, Ethan Pecko lead the way**\
 `The Astros have dipped heavily into their farm system to trade for pieces to remain playoff contenders and the cupboard is a bit bare now.`\
 https://nytimes.com/athletic/7010781/2026/02/03/astros-2026-top-20-prospects-keith-law/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7017447/2026/02/03/sabres-krebs-benson-injury-panth
 **Bold Olympic hockey predictions: Jordan Binnington's excellence, USA’s medal hopes and more**\
 `With puck drop around the corner, The Athletic asked its hockey staff for their bold predictions for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7016685/2026/02/03/olympic-hockey-predictions-milan-canada-usa/
-
-**USC has the No.1 recruiting class and the same question: Can Lincoln Riley deliver?**\
-`USC has an infusion of young talent and Playoff-or-bust expectations heading into Lincoln Riley's fifth season`\
-https://nytimes.com/athletic/7017355/2026/02/03/usc-lincoln-riley-playoff-recruiting/
 

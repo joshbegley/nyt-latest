@@ -1,3 +1,11 @@
+**Houston Astros 2026 top 20 prospects: Brice Matthews, Ethan Pecko lead the way**\
+`The Astros have dipped heavily into their farm system to trade for pieces to remain playoff contenders and the cupboard is a bit bare now.`\
+https://nytimes.com/athletic/7010781/2026/02/03/astros-2026-top-20-prospects-keith-law/
+
+**The Pulse: A late-night NBA trade rumbling**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7016462/2026/02/03/james-harden-giannis-antetokounmpo-trade-the-pulse/
+
 **Texas Rangers 2026 top 20 prospects: Sebastian Walcott, Caden Scarborough lead the way**\
 `The Rangers have a potential superstar in Walcott but the depth of the system took a huge hit with the MacKenzie Gore trade.`\
 https://nytimes.com/athletic/7011286/2026/02/03/texas-rangers-2026-top-20-prospects-keith-law/
