@@ -1,3 +1,19 @@
+**Texas Rangers 2026 top 20 prospects: Sebastian Walcott, Caden Scarborough lead the way**\
+`The Rangers have a potential superstar in Walcott but the depth of the system took a huge hit with the MacKenzie Gore trade.`\
+https://nytimes.com/athletic/7011286/2026/02/03/texas-rangers-2026-top-20-prospects-keith-law/
+
+**Will the Celtics move Anfernee Simons at the trade deadline? What I'm hearing**\
+`With the NBA trade deadline approaching, Jay King has the latest he's hearing from around the league as it pertains to the Celtics.`\
+https://nytimes.com/athletic/7016884/2026/02/03/celtics-nba-trade-deadline-anfernee-simons/
+
+**Athletics 2026 top 20 prospects: Leo De Vries, Gage Jump lead the way**\
+`The A's system has improved in part because of an in flux of talent from a few trades, as well as the most recent draft.`\
+https://nytimes.com/athletic/7010316/2026/02/03/athletics-2026-top-20-prospects-keith-law/
+
+**Who are the Vikings' top GM candidates? 12 names to replace Kwesi Adofo-Mensah**\
+`The Vikings say they won't begin the official search for a new GM until after the draft. But some potential candidates have emerged.`\
+https://nytimes.com/athletic/6944571/2026/02/03/vikings-gm-candidates-kwesi-adofo-mensah/
+
 **Bedard vs. Celebrini: Who's better? Who cares? Just sit back and enjoy the show**\
 `The two young stars are more friends than rivals, and their first matchup this season proved what a treat NHL fans are in for.`\
 https://nytimes.com/athletic/7017465/2026/02/03/nhl-bedard-vs-celebrini-blackhawks-sharks-rebuild/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7008202/2026/02/03/olympic-hockey-superpowers-canad
 **What I'm hearing about the Mavericks in the final hours of the NBA trade deadline**\
 `What moves will the Mavericks make ahead of Thursday’s NBA trade deadline — if any?`\
 https://nytimes.com/athletic/7016468/2026/02/03/mavericks-nba-trade-deadline-anthony-davis-naji-marshall/
-
-**The scariest walk in the NHL: Tales from the terrifying ceiling-high Calgary catwalk**\
-`The Scotiabank Saddledome is one of the oldest rinks in the NHL. The catwalk atop of the arena has struck fear in many broadcasters.`\
-https://nytimes.com/athletic/7002654/2026/02/03/calgary-flames-arena-scotiabank-saddledome-catwalk-nhl/
-
-**The Athletic's top 25 portal classes: LSU, Indiana and other top January hauls**\
-`Lane Kiffin switched jobs — jumping from Ole Miss to LSU — and proved once again why he's the Portal King.`\
-https://nytimes.com/athletic/7015521/2026/02/03/college-football-transfer-portal-class-rankings-lsu-indiana/
-
-**Meet John Streicher, the guy behind the guy most responsible for the Patriots' turnaround**\
-`Though he prefers to remain behind the scenes, Mike Vrabel's right-hand man has played a huge role in the Patriots' success this season.`\
-https://nytimes.com/athletic/7015555/2026/02/03/john-streicher-patriots-mike-vrabel-super-bowl-60/
-
-**How do the Eagles' defense and special teams compare to those in Super Bowl 60?**\
-`The Eagles, despite this season's disappointing finish, still had a Super Bowl-caliber roster, like those in this season's biggest game.`\
-https://nytimes.com/athletic/7009878/2026/02/03/eagles-roster-defense-special-teams-super-bowl-patriots-seahawks/
 
