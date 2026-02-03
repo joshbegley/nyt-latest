@@ -1,3 +1,15 @@
+**U.S. Fighter Jet Shoots Down Iranian Drone Amid Heightened Tensions**\
+`A U.S. fighter jet shot down the Iranian drone after it “unnecessarily maneuvered” toward the Abraham Lincoln aircraft carrier.`\
+https://nytimes.com/2026/02/03/us/politics/us-iran-drone-downing.html
+
+**Can Romero keep criticising the Spurs hierarchy and remain club captain?**\
+`Spurs fans may love to see their captain criticise the board, but it is putting Thomas Frank and the club in an awkward position`\
+https://nytimes.com/athletic/7018202/2026/02/03/cristian-romero-spurs-board-enic/
+
+**7 Great Grammy Winners You Didn’t Hear on TV**\
+`Standouts from the preshow ceremony including Turnstile, I’m With Her, Durand Bernarr and more.`\
+https://nytimes.com/2026/02/03/arts/music/grammy-winners-playlist.html
+
 **Man charged with allegedly flying drone above Levi's Stadium during NFL game**\
 `According to prosecutors, the man operated the drone 2,300 feet above Levi's Stadium during a Rams-49ers game in November 2025.`\
 https://nytimes.com/athletic/7018723/2026/02/03/drone-operator-charged-levis-stadium/
