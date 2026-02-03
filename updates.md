@@ -1,3 +1,11 @@
+**India Walton Will Return to Politics to Oppose Hochul as Delgado’s No. 2**\
+`Lt. Gov. Antonio Delgado’s choice of Ms. Walton may strengthen his bid to position himself as a left-leaning alternative to Gov. Kathy Hochul of New York.`\
+https://nytimes.com/2026/02/03/nyregion/india-walton-lieutenant-governor.html
+
+**Grammy Awards Audience Declines by a Million Viewers**\
+`The show on Sunday drew about 14.4 million people. It is the second consecutive year that the awards ceremony attracted a smaller audience.`\
+https://nytimes.com/2026/02/03/business/media/grammy-awards-ratings-audience.html
+
 **Meat Processors Take a Hit as Cattle Prices Remain High**\
 `Tyson Foods said its beef business could lose up to $500 million this year as the supply of cattle hits a 75-year low.`\
 https://nytimes.com/2026/02/03/business/tyson-beef-prices-meat-processors.html
