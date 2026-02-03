@@ -1,3 +1,11 @@
+**The Numbers, and Questions, Behind Musk’s Mega-Merger**\
+`The combination of SpaceX and xAI will create a rocket-and-A.I. giant. But investors and experts have concerns about the consequences of the deal.`\
+https://nytimes.com/2026/02/03/business/dealbook/spacex-xai-merger.html
+
+**Women's FA Cup changes proposed: Seeding, World Cup bracket, draw scrapped**\
+`The FA’s plans have faced fierce pushback from clubs, who said teams made clear their opposition during a consultation process.`\
+https://nytimes.com/athletic/7017773/2026/02/03/womens-fa-cup-reforms-explained/
+
 **Son of Norway’s Crown Princess Goes on Trial, Charged With Rape**\
 `The trial of Marius Borg Hoiby, who has also been accused of assault and other crimes, began as his mother came under pressure over her ties to Jeffrey Epstein.`\
 https://nytimes.com/2026/02/03/world/europe/norway-princess-son-rape-trial-marius-borg-hoiby.html
