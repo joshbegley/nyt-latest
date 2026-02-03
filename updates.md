@@ -1,3 +1,7 @@
+**Russia Resumes Attacks on Ukraine’s Energy System Ahead of Peace Talks**\
+`Missiles overnight targeted power plants in Kyiv and other parts of the country, according to local authorities, despite President Trump’s request for a pause.`\
+https://nytimes.com/2026/02/03/world/europe/ukraine-missiles-attack.html
+
 **Word of the Day: sporadic**\
 `This word has appeared in 282 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/03/learning/word-of-the-day-sporadic.html
