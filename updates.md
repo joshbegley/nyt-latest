@@ -1,3 +1,11 @@
+**Lindsey Vonn says she tore ACL in crash, still hopes to compete in Olympics**\
+`The American Alpine star updated her status at a press conference Tuesday, vowing to "do everything in my power" to compete next week.`\
+https://nytimes.com/athletic/7018163/2026/02/03/lindsey-vonn-torn-acl-olympics-crash-world-cup/
+
+**This year's trade deadline could be no big deal. Here's why**\
+`Plus: Checking in on rookie Ace Bailey, who's putting together a respectable first season in Utah.`\
+https://nytimes.com/athletic/7017332/2026/02/03/nba-trade-deadline-rumors-ace-bailey-jazz/
+
 **Polls Show Strong G.O.P. Support for Trump on Immigration**\
 `A small, but growing, share of Republicans say that enforcement has gone too far, after the killing of two Minneapolis protesters.`\
 https://nytimes.com/2026/02/03/us/politics/trump-ice-immigration-polls-republicans.html
