@@ -34,7 +34,7 @@ https://nytimes.com/athletic/7017549/2026/02/03/clippers-cavs-trade-james-harden
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/03/todays-new-york-times
 
-**The Long Game Behind Xi Jinping’s P.L.A. Purge**\
+**What Xi’s Military Purge Means for Taiwan**\
 `His sweeping military shake-up may look like weakness but it’s clearing the way for a more dangerous force under his full control.`\
 https://nytimes.com/2026/02/03/opinion/china-military-purge-taiwan.html
 

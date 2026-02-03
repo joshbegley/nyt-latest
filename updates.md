@@ -1,3 +1,7 @@
+**What Xi’s Military Purge Means for Taiwan**\
+`His sweeping military shake-up may look like weakness but it’s clearing the way for a more dangerous force under his full control.`\
+https://nytimes.com/2026/02/03/opinion/china-military-purge-taiwan.html
+
 **Jon Stewart Can’t Believe Elon Musk’s Choice of Holiday Party Venue**\
 `“You’re asking if Jeff Epstein has got any parties planned on the island on Christmas Day?” Stewart asked on Monday’s “Daily Show.”`\
 https://nytimes.com/2026/02/03/arts/television/musk-epstein-island.html
