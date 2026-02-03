@@ -1,3 +1,11 @@
+**Inter fans banned for three away games after flare incident**\
+`During Inter's 2-0 win over Cremonese on Sunday, a flare appeared to explode next to goalkeeper Emil Audero, who immediately went to ground.`\
+https://nytimes.com/athletic/7018582/2026/02/03/inter-fans-ban-flare/
+
+**‘The Devil Wears Prada’ Sequel Looks Like a Nostalgia Trip**\
+`But will it be delightful or depressing to watch Andy and Miranda navigate the current fashion media landscape?`\
+https://nytimes.com/2026/02/03/style/devil-wears-prada-sequel-trailer-chat.html
+
 **Sources: James Rodriguez, Minnesota United in talks over shocking deal**\
 `The Colombian star is a free agent after leaving Club León in Mexico`\
 https://nytimes.com/athletic/7018576/2026/02/03/james-rodriguez-minnesota-united-mls/
