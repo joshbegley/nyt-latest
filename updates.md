@@ -1,3 +1,11 @@
+**New Trial Ordered for Former U.C.L.A. Gynecologist Convicted of Sex Abuse**\
+`James M. Heaps was sentenced to 11 years in prison in April 2023. A note from the jury to the judge during deliberations was never disclosed, and an appeals court said the case must be retried.`\
+https://nytimes.com/2026/02/03/us/ucla-gynecologist-sexual-abuse-new-trial.html
+
+**NBA trade grades: Pistons part with Jaden Ivey; Wolves save money, add flexibility**\
+`East-leading Detroit has needed more shooting. It may find some with Kevin Huerter. And the Bulls are revamping their backcourt.`\
+https://nytimes.com/athletic/7019064/2026/02/03/bulls-wolves-pistons-ivey-conley-trade/
+
 **Why the Future of the Movies Lives on Letterboxd**\
 `The entertainment industry is in crisis, but a social platform for film enthusiasts is thriving. Is it changing the way we watch?`\
 https://nytimes.com/interactive/2026/02/03/magazine/letterboxd-film-discussion-site-streaming-movies.html
