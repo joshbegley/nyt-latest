@@ -1,3 +1,7 @@
+**Raptors' Rajaković named coach for Team World at NBA All-Star Game**\
+`San Antonio’s Mitch Johnson and Detroit’s J.B. Bickerstaff were previously named as coaches for the two American teams.`\
+https://nytimes.com/athletic/7018728/2026/02/03/raptors-darko-rajakovic-coach-nba-all-star-game/
+
 **Knies reveals extent of injury: 'Sucks when you don’t feel like yourself'**\
 `Knies revealed the reason for the three missed games in November was due to a knee injury sustained earlier this season.`\
 https://nytimes.com/athletic/7018292/2026/02/03/matthew-knies-maple-leafs-injury-2/
@@ -18,7 +22,7 @@ https://nytimes.com/2026/02/03/opinion/trump-nationalize-elections.html
 `Both men's and women's competitions will play their final stages at the 90,000-capacity Rose Bowl in Pasadena.`\
 https://nytimes.com/athletic/7018699/2026/02/03/la28-olympics-soccer-venues-announcement-stadiums/
 
-**Fanatics apologizes amidst backlash over Super Bowl LX team jerseys**\
+**Fanatics apologizes amid backlash over Super Bowl 60 team jerseys**\
 `Patriots and Seahawks fans have voiced dissatisfaction with the quality and availability of jerseys ahead of the Super Bowl.  `\
 https://nytimes.com/athletic/7018670/2026/02/03/fanatics-apology-super-bowl-lx-jerseys-patriots-seahawks/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7018462/2026/02/03/liv-golf-owgr-world-ranking-poin
 **Clintons Ask to Testify in Public in House Epstein Inquiry**\
 `The request was an effort by Bill and Hillary Clinton, who finally agreed to be deposed, to prevent selective leaks by Republicans of their testimony.`\
 https://nytimes.com/2026/02/03/us/politics/clintons-epstein-testify.html
-
-**House Moves Toward Passing Deal to End Partial Shutdown**\
-`Republican leaders eked out enough votes to bring up a spending measure that would reopen the government and fund the Department of Homeland Security for two weeks.`\
-https://nytimes.com/2026/02/03/us/politics/government-shutdown-2026-house-vote.html
 
