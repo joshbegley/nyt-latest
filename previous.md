@@ -1,3 +1,7 @@
+**Man charged with allegedly flying drone above Levi's Stadium during NFL game**\
+`According to prosecutors, the man operated the drone 2,300 feet above Levi's Stadium during a Rams-49ers game in November 2025.`\
+https://nytimes.com/athletic/7018723/2026/02/03/drone-operator-charged-levis-stadium/
+
 **Jaren Jackson Jr. traded to Jazz in multi-player deal involving draft picks: Source**\
 `The Jazz are making a major acquisition of a former Defensive Player of the Year.`\
 https://nytimes.com/athletic/7018918/2026/02/03/jaren-jackson-jr-trade-jazz-grizzlies/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/03/us/politics/trump-gold-card-visa-lawsuit.html
 **The Questionable Science Behind the Odd-Looking Football Helmets**\
 `The N.F.L. claims Guardian Caps reduce the risk of concussions. The company that makes them says, “It has nothing to do with concussions.”`\
 https://nytimes.com/2026/02/03/business/super-bowl-guardian-cap-helmet.html
-
-**Jill Biden’s Ex-Husband Is Accused of Killing His Current Wife**\
-`William Stevenson was arrested after being indicted on charges of first-degree murder in the death of his wife in December. He was married to Dr. Biden in the 1970s.`\
-https://nytimes.com/2026/02/03/us/william-stevenson-jill-biden-homicide.html
 

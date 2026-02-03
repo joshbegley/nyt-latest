@@ -1,3 +1,7 @@
+**Man charged with allegedly flying drone above Levi's Stadium during NFL game**\
+`According to prosecutors, the man operated the drone 2,300 feet above Levi's Stadium during a Rams-49ers game in November 2025.`\
+https://nytimes.com/athletic/7018723/2026/02/03/drone-operator-charged-levis-stadium/
+
 **Jaren Jackson Jr. traded to Jazz in multi-player deal involving draft picks: Source**\
 `The Jazz are making a major acquisition of a former Defensive Player of the Year.`\
 https://nytimes.com/athletic/7018918/2026/02/03/jaren-jackson-jr-trade-jazz-grizzlies/
