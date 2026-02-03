@@ -1,3 +1,15 @@
+**Seif al-Islam el-Qaddafi, Son of Libyan Dictator, Is Killed in Attack, Lawyer Says**\
+`Mr. el-Qaddafi, 53, a politician and a son of Col. Muammar el-Qaddafi, was killed after four men stormed his house, the lawyer said. No other details were released.`\
+https://nytimes.com/2026/02/03/world/middleeast/libya-seif-al-islam-el-qaddafi-killed.html
+
+**Trump Scolds CNN’s Kaitlan Collins for ‘Not Smiling’**\
+`Testy remarks from a president who has frequently singled out female journalists for criticism and personal attacks.`\
+https://nytimes.com/2026/02/03/us/politics/kaitlan-collins-smile-trump.html
+
+**Renee Good’s Brothers Call on Congress to Rein In Immigration Crackdown**\
+`At a forum on Capitol Hill held by congressional Democrats, the brothers of the 37-year-old American citizen fatally shot by an ICE agent said immigration enforcement tactics must be dialed back.`\
+https://nytimes.com/2026/02/03/us/renee-good-brothers-ice-congress.html
+
 **India Walton Will Return to Politics to Oppose Hochul as Delgado’s No. 2**\
 `Lt. Gov. Antonio Delgado’s choice of Ms. Walton may strengthen his bid to position himself as a left-leaning alternative to Gov. Kathy Hochul of New York.`\
 https://nytimes.com/2026/02/03/nyregion/india-walton-lieutenant-governor.html
@@ -11,22 +23,10 @@ https://nytimes.com/2026/02/03/business/media/grammy-awards-ratings-audience.htm
 https://nytimes.com/2026/02/03/business/tyson-beef-prices-meat-processors.html
 
 **Live Updates: Westminster Dog Show Will Crown the Nation’s Best Dog**\
-`Tonight, the 2,500 dogs who started in the competition on Monday will be winnowed to seven, and then to one. Next up for judgment: the sporting, working and terrier groups.`\
+`The sporting, working and terrier groups will take to the ring tonight, whittling the field of best in show contenders down from 2,500 on Monday to seven. The elaborate grooming rituals are underway backstage.`\
 https://nytimes.com/live/2026/02/03/style/westminster-dog-show
 
 **Here’s the latest.**\
 `By Sarah Lyall`\
 https://nytimes.com/live/2026/02/03/style/westminster-dog-show/heres-the-latest
-
-**Four dogs have already advanced to best in show judging.**\
-`The winners of Monday’s hound, toy, non-sporting and herding group judging will return on Tuesday night.`\
-https://nytimes.com/live/2026/02/03/style/westminster-dog-show/four-dogs-have-already-advanced-to-best-in-show-judging
-
-**Last year, Monty trounced the competition.**\
-`By Callie Holtermann`\
-https://nytimes.com/live/2026/02/03/style/westminster-dog-show/last-year-monty-trounced-the-competition
-
-**Trump Releases Latest Rendering of White House Ballroom Project**\
-`President Trump emphasized that the ballroom would not be taller than the Executive Mansion of the White House, as he faces criticism over the size of the project.`\
-https://nytimes.com/2026/02/03/us/trump-white-house-ballroom-rendering.html
 
