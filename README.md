@@ -1,3 +1,7 @@
+**Russia Resumes Attacks on Ukraine’s Energy System Ahead of Peace Talks**\
+`Missiles overnight targeted power plants in Kyiv and other parts of the country, according to local authorities, despite President Trump’s request for a pause.`\
+https://nytimes.com/2026/02/03/world/europe/ukraine-missiles-attack.html
+
 **Word of the Day: sporadic**\
 `This word has appeared in 282 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/03/learning/word-of-the-day-sporadic.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7009677/2026/02/03/tottenham-hotspur-january-transf
 **Gruda's RB Leipzig loan leaves Brighton worryingly short in wide areas**\
 `Gruda may not yet be a consistent performer at Premier League level, but Brighton may now be leaving themselves short`\
 https://nytimes.com/athletic/7015266/2026/02/03/brajan-grudas-rb-leipzig-loan-leaves-brighton-worryingly-short-in-wide-areas/
-
-**What Sarr will bring to Chelsea and why Rosenior might have wanted him back**\
-`The central defender has returned to Chelsea after his Strasbourg loan was cut short. He could end up being more than a squad player`\
-https://nytimes.com/athletic/7015638/2026/02/03/mamadou-sarr-chelsea-analysis-liam-rosenior/
 
