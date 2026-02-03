@@ -1,3 +1,11 @@
+**Inter fans banned for three away games after flare incident**\
+`During Inter's 2-0 win over Cremonese on Sunday, a flare appeared to explode next to goalkeeper Emil Audero, who immediately went to ground.`\
+https://nytimes.com/athletic/7018582/2026/02/03/inter-fans-ban-flare/
+
+**‘The Devil Wears Prada’ Sequel Looks Like a Nostalgia Trip**\
+`But will it be delightful or depressing to watch Andy and Miranda navigate the current fashion media landscape?`\
+https://nytimes.com/2026/02/03/style/devil-wears-prada-sequel-trailer-chat.html
+
 **Sources: James Rodriguez, Minnesota United in talks over shocking deal**\
 `The Colombian star is a free agent after leaving Club León in Mexico`\
 https://nytimes.com/athletic/7018576/2026/02/03/james-rodriguez-minnesota-united-mls/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/03/dining/nyc-restaurant-news.html
 **Fenerbahce blame N'Golo Kante transfer collapse on Al Ittihad**\
 `The 34-year-old is one of the most decorated midfielders ever, having won three league titles, the Champions League and the World Cup.`\
 https://nytimes.com/athletic/7015299/2026/02/03/kante-transfer-fenerbahce-saudi/
-
-**Transfers, tactics and a plea for patience: Analysing the Slot-Hughes interview**\
-`Liverpool's head coach and sporting director conducted a rare interview with the club's media. This is what we learned`\
-https://nytimes.com/athletic/7018387/2026/02/03/arne-slot-richard-hughes-transfers-tactics/
-
-**Epstein’s Trust Reveals Who Would Inherit His Fortune**\
-`Jeffrey Epstein wanted most of his money to go to his girlfriend. Mr. Epstein’s brother and a Harvard math professor were also named beneficiaries.`\
-https://nytimes.com/2026/02/03/business/jeffrey-epstein-trust-inherit-karyna-shuliak.html
 
