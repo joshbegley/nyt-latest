@@ -1,3 +1,7 @@
+**U.K. Police Investigating Former Ambassador to U.S. Over Epstein Ties**\
+`Peter Mandelson, a prominent British political figure, faces allegations of “misconduct in public office offenses” over his dealings with Jeffrey Epstein.`\
+https://nytimes.com/2026/02/03/world/europe/peter-mandelson-uk-epstein.html
+
 **Nikola Vučević traded to Celtics for Anfernee Simons: Source**\
 `The Celtics acquire some big man help while trimming some salary off their luxury-tax bill.`\
 https://nytimes.com/athletic/7019263/2026/02/03/nikola-vucevic-trade-celtics-bulls/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7019171/2026/02/03/celtics-vs-mavericks-stream-how-
 **How to watch Suns vs. Trail Blazers: Time, TV, streaming**\
 `Find out how to watch the Phoenix Suns play the Portland Trail Blazers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7019169/2026/02/03/suns-vs-trail-blazers-stream-how-to-watch-feb-3/
-
-**How to watch Maple Leafs vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7019165/2026/02/03/maple-leafs-vs-oilers-stream-how-to-watch-feb-3/
 

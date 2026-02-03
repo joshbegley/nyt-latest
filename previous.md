@@ -1,3 +1,11 @@
+**Nikola Vučević traded to Celtics for Anfernee Simons: Source**\
+`The Celtics acquire some big man help while trimming some salary off their luxury-tax bill.`\
+https://nytimes.com/athletic/7019263/2026/02/03/nikola-vucevic-trade-celtics-bulls/
+
+**NBA trade grades: Jaren Jackson Jr. gets new home as Grizzlies turn to future**\
+`With this move, the Jazz are clearly taking a step toward being more competitive.`\
+https://nytimes.com/athletic/7018890/2026/02/03/jaren-jackson-jazz-grizzlies-trade-grades/
+
 **Paris Court Deals Family Blow in Battle for Rent From the French Embassy in Iraq**\
 `The court said it was not the right authority to handle the lawsuit for unpaid rent, and the case should be heard in Iraq, where the family’s ancestors had fled persecution.`\
 https://nytimes.com/2026/02/03/world/europe/france-embassy-iraq.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7019169/2026/02/03/suns-vs-trail-blazers-stream-how
 **How to watch Maple Leafs vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Toronto Maple Leafs play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7019165/2026/02/03/maple-leafs-vs-oilers-stream-how-to-watch-feb-3/
-
-**How to watch Bulls vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7019162/2026/02/03/bulls-vs-bucks-stream-how-to-watch-feb-3/
-
-**How to watch 76ers vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7019159/2026/02/03/76ers-vs-warriors-stream-how-to-watch-feb-3/
 

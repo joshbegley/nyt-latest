@@ -1,3 +1,11 @@
+**Nikola Vučević traded to Celtics for Anfernee Simons: Source**\
+`The Celtics acquire some big man help while trimming some salary off their luxury-tax bill.`\
+https://nytimes.com/athletic/7019263/2026/02/03/nikola-vucevic-trade-celtics-bulls/
+
+**NBA trade grades: Jaren Jackson Jr. gets new home as Grizzlies turn to future**\
+`With this move, the Jazz are clearly taking a step toward being more competitive.`\
+https://nytimes.com/athletic/7018890/2026/02/03/jaren-jackson-jazz-grizzlies-trade-grades/
+
 **Paris Court Deals Family Blow in Battle for Rent From the French Embassy in Iraq**\
 `The court said it was not the right authority to handle the lawsuit for unpaid rent, and the case should be heard in Iraq, where the family’s ancestors had fled persecution.`\
 https://nytimes.com/2026/02/03/world/europe/france-embassy-iraq.html
