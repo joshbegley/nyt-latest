@@ -1,3 +1,7 @@
+**CFP bowl lineup keeps Rose Bowl in New Year's Day slot for next two years**\
+`The Rose Bowl has lobbied to keep its traditional Jan. 1 date and time slot while remaining part of the six-bowl rotation.`\
+https://nytimes.com/athletic/7018694/2026/02/03/college-football-playoff-bowls-schedule-rose/
+
 **How long Jerry Jones, other prominent NFL owners waited to get into the Hall of Fame**\
 `There was a rush of owners getting the call to the Hall of Fame in the late 2010s, but historically, team owners have had to be patient.`\
 https://nytimes.com/athletic/7018524/2026/02/03/prominent-nfl-owners-hall-of-fame/
@@ -18,7 +22,7 @@ https://nytimes.com/2026/02/03/arts/music/grammy-winners-playlist.html
 `According to prosecutors, the man operated the drone 2,300 feet above Levi's Stadium during a Rams-49ers game in November 2025.`\
 https://nytimes.com/athletic/7018723/2026/02/03/drone-operator-charged-levis-stadium/
 
-**Jaren Jackson Jr. traded to Jazz in multi-player deal involving draft picks: Source**\
+**Jaren Jackson Jr. traded to Jazz for 3 first-round picks, players: Source**\
 `The Jazz are making a major acquisition of a former Defensive Player of the Year.`\
 https://nytimes.com/athletic/7018918/2026/02/03/jaren-jackson-jr-trade-jazz-grizzlies/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7018817/2026/02/03/northwestern-new-football-stadiu
 **Sam Bennett to replace injured Anthony Cirelli on Team Canada roster: Sources**\
 `The Florida Panthers center was one of the more surprising omissions from the original 25-man roster named in late December.`\
 https://nytimes.com/athletic/7018799/2026/02/03/canada-hockey-olympics-sam-bennett-anthony-cirelli/
-
-**Footage in Police Shooting of Queens Man to Be Released Amid Criticism**\
-`Critics have questioned why officers were called to respond to an apparent mental health crisis. The shooting has increased pressure on Mayor Zohran Mamdani.`\
-https://nytimes.com/2026/02/03/nyregion/nypd-shooting-chakraborty-queens.html
 

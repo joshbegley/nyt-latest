@@ -34,7 +34,7 @@ https://nytimes.com/video/us/100000010661260/does-ice-need-a-warrant-to-enter-yo
 `Northwestern will host South Dakota State and Colorado at its temporary stadium in September before the new Ryan Field opens on Oct. 2.`\
 https://nytimes.com/athletic/7018817/2026/02/03/northwestern-new-football-stadium-opening-penn-state/
 
-**Sam Bennett to replace injured Anthony Cirelli on Team Canada roster: Sources**\
+**Sam Bennett to replace injured Anthony Cirelli on Team Canada roster**\
 `The Florida Panthers center was one of the more surprising omissions from the original 25-man roster named in late December.`\
 https://nytimes.com/athletic/7018799/2026/02/03/canada-hockey-olympics-sam-bennett-anthony-cirelli/
 

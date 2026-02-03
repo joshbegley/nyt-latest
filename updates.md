@@ -1,3 +1,11 @@
+**CFP bowl lineup keeps Rose Bowl in New Year's Day slot for next two years**\
+`The Rose Bowl has lobbied to keep its traditional Jan. 1 date and time slot while remaining part of the six-bowl rotation.`\
+https://nytimes.com/athletic/7018694/2026/02/03/college-football-playoff-bowls-schedule-rose/
+
+**Jaren Jackson Jr. traded to Jazz for 3 first-round picks, players: Source**\
+`The Jazz are making a major acquisition of a former Defensive Player of the Year.`\
+https://nytimes.com/athletic/7018918/2026/02/03/jaren-jackson-jr-trade-jazz-grizzlies/
+
 **How long Jerry Jones, other prominent NFL owners waited to get into the Hall of Fame**\
 `There was a rush of owners getting the call to the Hall of Fame in the late 2010s, but historically, team owners have had to be patient.`\
 https://nytimes.com/athletic/7018524/2026/02/03/prominent-nfl-owners-hall-of-fame/
