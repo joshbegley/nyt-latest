@@ -1,3 +1,8 @@
+**Man City manager Guardiola speaks out on Minnesota killings, Palestine in news conference**\
+`“Humanity is better than ever in terms of possibilities, but still right now we kill each other, for what?” Guardiola said.
+`\
+https://nytimes.com/athletic/7018382/2026/02/03/man-city-pep-guardiola-ice-minnesota-palestine/
+
 **Pep Guardiola's political commitment has a long history**\
 `The Manchester City manager has long-held political views, dating back to his time as a supporter of Catalan independence `\
 https://nytimes.com/athletic/7018508/2026/02/03/pep-guardiola-politics-history/
