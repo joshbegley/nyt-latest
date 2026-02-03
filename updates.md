@@ -1,3 +1,7 @@
+**Wall St. Lawyer Brad Karp Says He Regrets Epstein Interactions**\
+`Newly released emails between Mr. Karp, the chairman of Paul Weiss, and Jeffrey Epstein reveal a number of social interactions between them.`\
+https://nytimes.com/2026/02/02/business/karp-epstein-paul-weiss.html
+
 **Full Time: Split results for Americans abroad**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/7016880/2026/02/02/uswnt-wsl-england-results-full-time/

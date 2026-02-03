@@ -6,7 +6,7 @@ https://nytimes.com/2026/02/02/business/karp-epstein-paul-weiss.html
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/7016880/2026/02/02/uswnt-wsl-england-results-full-time/
 
-**Third Candidate Scrambles Heated Race for Open House Seat**\
+**Third Candidate Enters Heated Race for Open House Seat**\
 `Julie Won, a New York City councilwoman, will face two other Democrats, one backed by the departing incumbent, Nydia Velázquez, and the other by Mayor Zohran Mamdani.`\
 https://nytimes.com/2026/02/02/nyregion/julie-won-house-candidate.html
 
