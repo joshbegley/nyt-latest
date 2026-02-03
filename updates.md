@@ -1,3 +1,11 @@
+**A partial victory: LIV granted OWGR points for its top 10 finishers**\
+`The OWGR decision will provide a better pathway to majors for elite LIV performers, but it’s still fewer points than other comparable tours.`\
+https://nytimes.com/athletic/7018462/2026/02/03/liv-golf-owgr-world-ranking-points-72-holes-majors/
+
+**Clintons Ask to Testify in Public in House Epstein Inquiry**\
+`The request was an effort by Bill and Hillary Clinton, who finally agreed to be deposed, to prevent selective leaks by Republicans of their testimony.`\
+https://nytimes.com/2026/02/03/us/politics/clintons-epstein-testify.html
+
 **House Moves Toward Passing Deal to End Partial Shutdown**\
 `Republican leaders eked out enough votes to bring up a spending measure that would reopen the government and fund the Department of Homeland Security for two weeks.`\
 https://nytimes.com/2026/02/03/us/politics/government-shutdown-2026-house-vote.html
