@@ -1,3 +1,11 @@
+**N.F.L. Said It Will Look Into Steve Tisch’s Ties to Epstein**\
+`Recently released emails reveal that Jeffrey Epstein sought to connect Mr. Tisch, whose family is a part-owner of N.Y. Giants, with multiple women.`\
+https://nytimes.com/2026/02/02/sports/nfl-steve-tisch-epstein-giants.html
+
+**Federal Judge Temporarily Blocks End of Protection for Haitians in U.S.**\
+`The ruling pauses the Trump administration’s plan to end a program that has allowed more than 350,000 people from Haiti to remain in the United States.`\
+https://nytimes.com/2026/02/02/us/haitians-temporary-protected-status-trump.html
+
 **White Sox's Munetaka Murakami is latest Japanese player to request bidet**\
 `Murakami isn't alone in asking for a bidet to be installed in the locker room.`\
 https://nytimes.com/athletic/7017114/2026/02/02/chicago-white-sox-munetaka-murakami-bidet/
