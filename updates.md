@@ -1,3 +1,7 @@
+**Epstein’s Trust Reveals Who Would Inherit His Fortune**\
+`Jeffrey Epstein wanted most of his money to go to his girlfriend, a native of Belarus. Mr. Epstein’s brother and a Harvard math professor were also named beneficiaries.`\
+https://nytimes.com/2026/02/03/business/jeffrey-epstein-trust-inherit-karyna-shuliak.html
+
 **Chuck Negron, Singer With Three Dog Night, Is Dead at 83**\
 `His tenor anchored generational hits like “Joy to the World” and “One.”`\
 https://nytimes.com/2026/02/03/arts/music/chuck-negron-three-dog-night-dead.html
