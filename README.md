@@ -1,3 +1,7 @@
+**NBA Trade Board 3.0: After flurry of deals, 10 players who could be on the move**\
+`With the Bucks officially listening to offers on Giannis Antetokounmpo, there is no one else who can top this list.`\
+https://nytimes.com/athletic/7019611/2026/02/03/nba-trade-deadline-players-available-giannis-antetokounmpo/
+
 **Netflix Leader Pushes Warner Deal Before Skeptical Lawmakers**\
 `Senators asked Ted Sarandos about whether the acquisition would raise prices, squeeze talent and degrade the moviegoing experience.`\
 https://nytimes.com/2026/02/03/business/media/netflix-sarandos-warner-senate-hearing.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/03/business/media/grammy-awards-ratings-audience.htm
 **Meat Processors Take a Hit as Cattle Prices Remain High**\
 `Tyson Foods said its beef business could lose up to $500 million this year as the supply of cattle reaches a 75-year low.`\
 https://nytimes.com/2026/02/03/business/tyson-beef-prices-meat-processors.html
-
-**Live Updates: Westminster Dog Show Will Crown the Nation’s Best Dog**\
-`The sporting, working and terrier groups will take to the ring tonight, whittling the field of best in show contenders down from 2,500 on Monday to seven. The elaborate grooming rituals are underway backstage.`\
-https://nytimes.com/live/2026/02/03/style/westminster-dog-show
 

@@ -1,3 +1,11 @@
+**Netflix Leader Pushes Warner Deal Before Skeptical Lawmakers**\
+`Senators asked Ted Sarandos about whether the acquisition would raise prices, squeeze talent and degrade the moviegoing experience.`\
+https://nytimes.com/2026/02/03/business/media/netflix-sarandos-warner-senate-hearing.html
+
+**Stephen Miran Resigns From White House as Fed Term Stretches On**\
+`Mr. Miran had taken a leave of absence from advising the president after adding a role at the Federal Reserve, drawing criticism from Democrats.`\
+https://nytimes.com/2026/02/03/business/stephen-miran-resigns-white-house-fed.html
+
 **Seif al-Islam el-Qaddafi, Son of Libyan Dictator, Is Killed in Attack, Lawyer Says**\
 `Mr. el-Qaddafi, 53, a politician and a son of Col. Muammar el-Qaddafi, was killed after four men stormed his house, the lawyer said. No other details were released.`\
 https://nytimes.com/2026/02/03/world/middleeast/libya-seif-al-islam-el-qaddafi-killed.html
@@ -19,14 +27,10 @@ https://nytimes.com/2026/02/03/nyregion/india-walton-lieutenant-governor.html
 https://nytimes.com/2026/02/03/business/media/grammy-awards-ratings-audience.html
 
 **Meat Processors Take a Hit as Cattle Prices Remain High**\
-`Tyson Foods said its beef business could lose up to $500 million this year as the supply of cattle hits a 75-year low.`\
+`Tyson Foods said its beef business could lose up to $500 million this year as the supply of cattle reaches a 75-year low.`\
 https://nytimes.com/2026/02/03/business/tyson-beef-prices-meat-processors.html
 
 **Live Updates: Westminster Dog Show Will Crown the Nation’s Best Dog**\
 `The sporting, working and terrier groups will take to the ring tonight, whittling the field of best in show contenders down from 2,500 on Monday to seven. The elaborate grooming rituals are underway backstage.`\
 https://nytimes.com/live/2026/02/03/style/westminster-dog-show
-
-**Here’s the latest.**\
-`By Sarah Lyall`\
-https://nytimes.com/live/2026/02/03/style/westminster-dog-show/heres-the-latest
 
