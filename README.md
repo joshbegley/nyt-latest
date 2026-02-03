@@ -1,3 +1,11 @@
+**India Walton Will Return to Politics to Oppose Hochul as Delgado’s No. 2**\
+`Lt. Gov. Antonio Delgado’s choice of Ms. Walton may strengthen his bid to position himself as a left-leaning alternative to Gov. Kathy Hochul of New York.`\
+https://nytimes.com/2026/02/03/nyregion/india-walton-lieutenant-governor.html
+
+**Grammy Awards Audience Declines by a Million Viewers**\
+`The show on Sunday drew about 14.4 million people. It is the second consecutive year that the awards ceremony attracted a smaller audience.`\
+https://nytimes.com/2026/02/03/business/media/grammy-awards-ratings-audience.html
+
 **Meat Processors Take a Hit as Cattle Prices Remain High**\
 `Tyson Foods said its beef business could lose up to $500 million this year as the supply of cattle hits a 75-year low.`\
 https://nytimes.com/2026/02/03/business/tyson-beef-prices-meat-processors.html
@@ -21,16 +29,4 @@ https://nytimes.com/live/2026/02/03/style/westminster-dog-show/last-year-monty-t
 **Trump Releases Latest Rendering of White House Ballroom Project**\
 `President Trump emphasized that the ballroom would not be taller than the Executive Mansion of the White House, as he faces criticism over the size of the project.`\
 https://nytimes.com/2026/02/03/us/trump-white-house-ballroom-rendering.html
-
-**Inside One Minneapolis Church, a Different Type of Protest**\
-`In the weeks since ICE agents began conducting operations across the city, Westminster Presbyterian has given its members a place to protest on their own terms.`\
-https://nytimes.com/2026/02/03/us/westminster-presbyterian-minneapolis-ice-protest.html
-
-**The Shutdown Is Over, but Not the Clash Over ICE Funding**\
-`Also, colleges saw notable racial shifts in student enrollment. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2026/02/03/briefing/shutdown-ice-funding-iran-drone.html
-
-**Pep Guardiola's political commitment has a long history**\
-`The Manchester City manager has long-held political views, dating back to his time as a supporter of Catalan independence `\
-https://nytimes.com/athletic/7018508/2026/02/03/pep-guardiola-politics-history/
 
