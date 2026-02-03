@@ -1,3 +1,7 @@
+**The Numbers, and Questions, Behind Musk’s Mega-Merger**\
+`The combination of SpaceX and xAI will create a rocket-and-A.I. giant. But investors and experts have concerns about the consequences of the deal.`\
+https://nytimes.com/2026/02/03/business/dealbook/spacex-xai-merger.html
+
 **Women's FA Cup changes proposed: Seeding, World Cup bracket, draw scrapped**\
 `The FA’s plans have faced fierce pushback from clubs, who said teams made clear their opposition during a consultation process.`\
 https://nytimes.com/athletic/7017773/2026/02/03/womens-fa-cup-reforms-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7017440/2026/02/03/timberwolves-trade-deadline-rumo
 **Police Search X’s Premises in France as Prosecutors Summon Elon Musk**\
 `The move followed a yearlong investigation into X and escalated a wider standoff between European officials and American tech companies over the regulation of social media.`\
 https://nytimes.com/2026/02/03/world/europe/musk-x-france-police-search.html
-
-**What I'm hearing on James Harden, Giannis and more as NBA trade deadline nears**\
-`Harden could be on the move again before Thursday's deadline while Giannis watch continues.`\
-https://nytimes.com/athletic/7017672/2026/02/03/nba-trade-deadline-james-harden-giannis/
 
