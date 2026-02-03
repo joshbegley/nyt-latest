@@ -1,3 +1,7 @@
+**LSU will not be disciplined after investigation into its NIL reporting**\
+`The first publicly known inquiry by the College Sports Commission, which did not involve LSU football, lasted two and a half weeks.`\
+https://nytimes.com/athletic/7017180/2026/02/02/lsu-investigation-nil-reporting/
+
 **Roger Goodell on lack of diversity in hiring cycle, technology in officiating, 18th game**\
 `Goodell said "we're re-evaluating everything we're doing" to ensure the NFL promotes diversity in its head coach hiring.`\
 https://nytimes.com/athletic/7017172/2026/02/02/roger-goodell-super-bowl-diversity-officiating-18-games/
