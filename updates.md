@@ -1,3 +1,15 @@
+**Minions copyright decision drives Spanish Olympic figure skater bananas**\
+`Tomàs-Llorenç Guarino Sabaté was told only days before Milan that he didn't have permission to perform his routines to the Minions music.`\
+https://nytimes.com/athletic/7017310/2026/02/02/spanish-olympic-figure-skater-minion-copyright/
+
+**Pirro Threatens Jail Time for Lawful Gun Owners Who Travel to D.C. With Firearms**\
+`The remarks by Jeannine Pirro, the U.S. attorney for the District of Columbia, prompted swift pushback from the Republican Party’s pro-Second Amendment wing.`\
+https://nytimes.com/2026/02/02/us/politics/pirro-dc-guns.html
+
+**Which transfer windows are still open? Which free agents are available?**\
+`Just because the Premier League, La Liga, and other key European transfer windows are shut, does not mean deals cannot still be done.`\
+https://nytimes.com/athletic/7006833/2026/02/02/transfer-windows-open-world-close-when/
+
 **Penguins' best players have a night to forget in loss against Senators**\
 `A lack of effort and a surplus of attempting fancy moves doomed the Penguins to a loss that was much worse than the score implied.`\
 https://nytimes.com/athletic/7017293/2026/02/02/penguins-karlsson-silovs-effort-crosby-senators/
