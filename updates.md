@@ -1,3 +1,23 @@
+**Why Texas Is the Wildest Story in U.S. Politics Right Now**\
+`First came a remarkable State Senate upset. Next up: two high-octane U.S. Senate primaries.`\
+https://nytimes.com/2026/02/02/us/politics/texas-senate-talarico-crockett-allred-cornyn-paxton.html
+
+**NFL to hold regular-season games in Mexico City for next three years**\
+`The NFL will have nine international games next season, the most ever for the league.`\
+https://nytimes.com/athletic/7017038/2026/02/02/nfl-mexico-city-2026/
+
+**First Vehicles Cross Reopened Gaza Border**\
+`The Rafah border crossing between Gaza and Egypt reopened Monday after having been largely closed since May 2024. It allowed some Gazans who had fled during the war to return. Sick and wounded people waiting for treatment abroad were able to cross into Egypt.`\
+https://nytimes.com/video/world/middleeast/100000010685779/rafah-crossing-gaza-egypt-border-open.html
+
+**Waymo Raises $16 Billion to Fuel Global Ambitions**\
+`The self-driving car company, an arm of Google’s parent company, is rapidly expanding its service beyond a handful of cities.`\
+https://nytimes.com/2026/02/02/business/waymo-funding-growth.html
+
+**Immigration Officers in Minneapolis Will Wear Body Cameras, Noem Says**\
+`The change comes as the federal government has provided accounts of fatal shootings that have sometimes conflicted with local officials and witness videos.`\
+https://nytimes.com/2026/02/02/us/politics/immigration-body-cameras-noem.html
+
 **Scoop City: How the Russell Wilson trade began Seattle's Super Bowl journey**\
 `How John Schneider built these Seahawks through a series of bold subtractions and savvy additions`\
 https://nytimes.com/athletic/7017025/2026/02/02/seahawks-roster-super-bowl-starters/
