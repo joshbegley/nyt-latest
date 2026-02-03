@@ -1,40 +1,40 @@
-**Tennis player retires injured after accidentally volleying ball into own eye**\
-`Giovanni Mpetshi Perricard suffered the unfortunate injury at the Occitanie Open in France.`\
-https://nytimes.com/athletic/7017538/2026/02/03/tennis-ball-eye-mpetshi-perricard-injury-retired-open-occitanie/
+**The Falcons have QB questions aplenty this offseason. Here are 18 options that could help**\
+`The Falcons have two quarterbacks currently under contract for 2026, but veteran Kirk Cousins could be on his way out.`\
+https://nytimes.com/athletic/7016242/2026/02/03/falcons-qb-questions-kirk-cousins-free-agency-draft/
 
-**Jon Stewart Can’t Believe Elon Musk’s Choice of Holiday Party Venue**\
-`“You’re asking if Jeff Epstein has got any parties planned on the island on Christmas Day?” Stewart asked on Monday’s “Daily Show.”`\
-https://nytimes.com/2026/02/03/arts/television/musk-epstein-island.html
+**Trump’s Kennedy Center Shutdown Plan Jolts Workers and Performers**\
+`The administration’s announcement to shut the center for a major overhaul led to a swirl of confusion and anxiety among performers and patrons about its future.`\
+https://nytimes.com/2026/02/03/arts/music/trumps-kennedy-center-shutdown-plan-jolts-workers-and-performers.html
 
-**A Role Model for How to Die**\
-`What if you really did live every day as if it were your last? That was Brian’s plan.`\
-https://nytimes.com/2026/02/03/nyregion/cancer-friend-death-role-model.html
+**‘Melania’ the Book Was Bad. ‘Melania’ the Movie Is Somehow Worse.**\
+`The surface is all there is.`\
+https://nytimes.com/2026/02/03/opinion/melania-trump-movie-memoir.html
 
-**2016**\
-`What year in your life would you want to go back to?`\
-https://nytimes.com/2026/02/03/learning/2016.html
+**Let’s Start Project 2028**\
+`An outline of items in a hypothetical Democratic Party platform.`\
+https://nytimes.com/2026/02/03/opinion/project-2028-democratic-party-platform.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/03/crosswords/spelling-bee-forum.html
+**Democracy Dies by Database**\
+`ICE knows that it cannot shoot us all. But the Department of Homeland Security is close to being able to track us all.`\
+https://nytimes.com/2026/02/03/opinion/ice-surveillance-protesters.html
 
-**On Eve of Peace Talks, Russia Hits Power Plants in Frigid Ukraine**\
-`Missiles overnight targeted electrical facilities in Kyiv and other parts of the country, according to local authorities, despite President Trump’s request for a pause.`\
-https://nytimes.com/2026/02/03/world/europe/ukraine-missiles-attack.html
+**It Was 33 Degrees on Monday. That’s Still Cold.**\
+`Though the temperature edged above freezing for the first time in 10 days, the weather barely felt warmer.`\
+https://nytimes.com/2026/02/03/nyregion/weather-cold-nyc-monday.html
 
-**Word of the Day: sporadic**\
-`This word has appeared in 282 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/02/03/learning/word-of-the-day-sporadic.html
+**Venezuela’s Authoritarian Grip Eases. But for How Long?**\
+`A sweeping amnesty proposal, tests of censorship limits and opposition leaders emerging from hiding are fueling hopes for democratic changes. But skepticism abounds.`\
+https://nytimes.com/2026/02/03/world/americas/venezuela-rodriguez-maduro-authoritarian.html
 
-**Trump and India Call Off Their Trade War, but the Terms of Peace Are Murky**\
-`Officials and business leaders sighed with relief at lower tariffs, as they wait to see what the rest of it means.`\
-https://nytimes.com/2026/02/03/business/us-india-trade-tariffs.html
+**What Do You Get When You Put a Mummy Through a CT Scan?**\
+`Experts are using high-res scanners and 3-D printers to illuminate ancient ailments and injuries.`\
+https://nytimes.com/2026/02/03/health/mummy-virtual-autopsy.html
 
-**Clippers, Cavs have talked James Harden-Darius Garland deal: Sources**\
-`Harden has missed LA's last two games due to "personal reasons." Garland has missed time, too.`\
-https://nytimes.com/athletic/7017549/2026/02/03/clippers-cavs-trade-james-harden-darius-garland/
+**Jewish Heirs Say Met Museum Pissarro Was Sold Under Nazi-Era Duress**\
+`The museum says a Jewish art dealer received a fair price for the work in 1941. The heirs say sales from that time are considered to have been forced and void under French law.`\
+https://nytimes.com/2026/02/03/arts/jewish-heirs-say-met-museum-pissarro-was-sold-under-nazi-era-duress.html
 
-**The New York Times in Print for Tuesday, Feb. 3, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/02/03/todays-new-york-times
+**Chaos in Minneapolis Exposes an Internet at War With Truth**\
+`Technological advances and an erosion of trust have transformed the way news unfolds online, distorting shared reality.`\
+https://nytimes.com/2026/02/03/technology/minneapolis-ai-disinformation-misinformation-truth.html
 
