@@ -1,3 +1,11 @@
+**Can Romero keep criticising the Spurs hierarchy and remain club captain?**\
+`Spurs fans may love to see their captain criticise the board, but it is putting Thomas Frank and the club in an awkward position`\
+https://nytimes.com/athletic/7018202/2026/02/03/cristian-romero-spurs-board-enic/
+
+**7 Great Grammy Winners You Didn’t Hear on TV**\
+`Standouts from the preshow ceremony including Turnstile, I’m With Her, Durand Bernarr and more.`\
+https://nytimes.com/2026/02/03/arts/music/grammy-winners-playlist.html
+
 **Man charged with allegedly flying drone above Levi's Stadium during NFL game**\
 `According to prosecutors, the man operated the drone 2,300 feet above Levi's Stadium during a Rams-49ers game in November 2025.`\
 https://nytimes.com/athletic/7018723/2026/02/03/drone-operator-charged-levis-stadium/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/02/03/nyregion/nypd-shooting-chakraborty-queens.html
 **Palestinians Return to Gaza for the First Time in Nearly Two Years**\
 `A small number of Palestinians were allowed to return to Gaza for the first time in nearly two years after the Rafah crossing with Egypt reopened on Monday.`\
 https://nytimes.com/video/world/middleeast/100000010686567/palestinians-return-gaza-rafah-crossing.html
-
-**Lawsuit Argues Trump Gold Card Visa Program Prioritizes Wealth Over Ability**\
-`The suit asks that a judge find the pay-for-play visa program unlawful, casting it as another example of the Trump administration’s seeking to bypass Congress.`\
-https://nytimes.com/2026/02/03/us/politics/trump-gold-card-visa-lawsuit.html
-
-**The Questionable Science Behind the Odd-Looking Football Helmets**\
-`The N.F.L. claims Guardian Caps reduce the risk of concussions. The company that makes them says, “It has nothing to do with concussions.”`\
-https://nytimes.com/2026/02/03/business/super-bowl-guardian-cap-helmet.html
 
