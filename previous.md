@@ -1,3 +1,11 @@
+**The Bounce: The latest trade deadline buzz. Are Giannis, Harden on the move?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7018170/2026/02/03/nba-trade-rumors-giannis-harden-the-bounce/
+
+**Spain Aims to Ban Social Media for Children Under 16, Prime Minister Says**\
+`The announcement is part of a broader push by countries to curb access to online platforms for minors. It also points to Europe’s stricter approach to regulating social media.`\
+https://nytimes.com/2026/02/03/world/europe/spain-social-media-ban-under-16.html
+
 **Before a Rape Trial, a Theater Piece Passes Its Own Judgment**\
 `A new work by the director Lorraine de Sagazan looks at a high-profile case that will soon be heard in a French court.`\
 https://nytimes.com/2026/02/03/theater/dogs-lorraine-de-sagazan.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/03/arts/television/review-the-muppet-show.html
 **Throwback Furs for Him and Her**\
 `A couple strolling through London were sporting fuzzy secondhand coats.`\
 https://nytimes.com/2026/02/03/style/street-style-look-vintage-fur-coats.html
-
-**What We Know About the Disappearance of Savannah Guthrie’s Mother**\
-`Nancy Guthrie, 84, the “Today” show host’s mother, was last seen on Saturday night, the authorities said. The disappearance is being investigated as a crime.`\
-https://nytimes.com/2026/02/03/us/savannah-guthrie-mom-missing.html
-
-**How a Judge Weaponized Wit to Free the 5-Year-Old Detained by ICE**\
-`Our critic annotates the barbed wordplay of a decision challenging the Trump administration’s theory of executive power.`\
-https://nytimes.com/interactive/2026/02/03/books/judge-ruling-liam-conejo-ramos-analysis.html
 
