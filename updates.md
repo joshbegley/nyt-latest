@@ -1,3 +1,11 @@
+**Weekly Student News Quiz: Minnesota, Homicides, 'Heated Rivalry'**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2026/02/02/learning/02StudentNewsQuiz.html
+
+**From ‘Hamilton’ to Issa Rae to Philip Glass: Here’s a List of Kennedy Center Cancellations**\
+`More than two dozen musicians, dancers, theater companies and other creative groups have pulled out of performing at the Kennedy Center since President Trump returned to the White House.`\
+https://nytimes.com/2026/02/02/arts/kennedy-center-performance-cancellations.html
+
 **Spilled the Beans**\
 `Nate Cardin’s puzzle invites you to listen closely.`\
 https://nytimes.com/2026/02/02/crosswords/daily-puzzle-2026-02-03.html
