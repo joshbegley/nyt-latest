@@ -1,3 +1,7 @@
+**Son of Norway’s Crown Princess Goes on Trial, Charged With Rape**\
+`The trial of Marius Borg Hoiby, who has also been accused of assault and other crimes, began as his mother came under pressure over her ties to Jeffrey Epstein.`\
+https://nytimes.com/2026/02/03/world/europe/norway-princess-son-rape-trial-marius-borg-hoiby.html
+
 **Is the SEC slipping? Players share their thoughts at the Senior Bowl**\
 `“There’s parity everywhere. There’s no specific conference that’s good. Everybody’s good everywhere now — especially with NIL."`\
 https://nytimes.com/athletic/7016387/2026/02/03/sec-college-football-playoff-player-thoughts/
