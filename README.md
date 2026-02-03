@@ -1,3 +1,11 @@
+**Lindsey Vonn says she tore ACL in crash, still hopes to compete in Olympics**\
+`The American Alpine star updated her status at a press conference Tuesday, vowing to "do everything in my power" to compete next week.`\
+https://nytimes.com/athletic/7018163/2026/02/03/lindsey-vonn-torn-acl-olympics-crash-world-cup/
+
+**This year's trade deadline could be no big deal. Here's why**\
+`Plus: Checking in on rookie Ace Bailey, who's putting together a respectable first season in Utah.`\
+https://nytimes.com/athletic/7017332/2026/02/03/nba-trade-deadline-rumors-ace-bailey-jazz/
+
 **Polls Show Strong G.O.P. Support for Trump on Immigration**\
 `A small, but growing, share of Republicans say that enforcement has gone too far, after the killing of two Minneapolis protesters.`\
 https://nytimes.com/2026/02/03/us/politics/trump-ice-immigration-polls-republicans.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7017962/2026/02/03/topps-alter-ego-shohei-ohtani-ca
 **NASA Delays Artemis II Moon Launch to March After Hydrogen Leaks**\
 `The agency did not complete a practice countdown for a mission that would be the first to send people around the moon in more than 50 years.`\
 https://nytimes.com/2026/02/03/science/nasa-artemis-moon-launch-delayed.html
-
-**After Years of Increases, Pepsi Pledges to Cut Prices on Snacks**\
-`The food and beverage giant said that consumers were facing “affordability limitations.”`\
-https://nytimes.com/2026/02/03/business/pepsi-doritos-cheetos-prices.html
-
-**Russia Launches Major Strike on Ukraine Day Before Peace Talks**\
-`Russia struck residential buildings and power plants in several regions of Ukraine a day before the two countries were scheduled to hold peace talks brokered by the United States.`\
-https://nytimes.com/video/world/europe/100000010686597/russia-ukraine-attack-energy-peace-negotiations.html
 
