@@ -1,3 +1,11 @@
+**Howe holds Tonali talks: 'He's absolutely focused' on Newcastle**\
+`The Athletic reported Tonali’s representatives had offered the midfielder to Arsenal’s sporting director Andrea Berta.`\
+https://nytimes.com/athletic/7017734/2026/02/03/sandro-tonali-newcastle-eddie-howe/
+
+**Rev. James Martin on Our Moral Duty in Turbulent Times**\
+`The author and Jesuit priest discusses human dignity, political divides and how he sees the role of the Catholic Church.`\
+https://nytimes.com/2026/02/03/magazine/father-james-martin-interview.html
+
 **Rev. James Martin on Our Moral Duty in Turbulent Times**\
 `The Rev. James Martin, an author and Jesuit priest, discusses human dignity, political divides and how he sees the role of the Catholic Church.`\
 https://nytimes.com/video/podcasts/100000010686316/rev-james-martin-on-our-moral-duty-in-turbulent-times.html
