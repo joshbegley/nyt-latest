@@ -1,40 +1,40 @@
-**Howe holds Tonali talks: 'He's absolutely focused' on Newcastle**\
-`The Athletic reported Tonali’s representatives had offered the midfielder to Arsenal’s sporting director Andrea Berta.`\
-https://nytimes.com/athletic/7017734/2026/02/03/sandro-tonali-newcastle-eddie-howe/
+**Trump to Meet With Colombia’s President at White House**\
+`President Trump was expected to meet privately with President Gustavo Petro of Colombia on Tuesday. They have clashed in the past, but there are signs that tensions are easing.`\
+https://nytimes.com/2026/02/03/us/politics/colombia-petro-trump-meeting.html
 
-**Rev. James Martin on Our Moral Duty in Turbulent Times**\
-`The author and Jesuit priest discusses human dignity, political divides and how he sees the role of the Catholic Church.`\
-https://nytimes.com/2026/02/03/magazine/father-james-martin-interview.html
+**Will Shedeur Sanders be QB1 under Todd Monken? Only time will tell**\
+`Sanders started the final seven games of his rookie year. Will he begin the 2026 season No. 1 on Cleveland's QB depth chart?`\
+https://nytimes.com/athletic/7016855/2026/02/03/browns-shedeur-sanders-starter-todd-monken/
 
-**Rev. James Martin on Our Moral Duty in Turbulent Times**\
-`The Rev. James Martin, an author and Jesuit priest, discusses human dignity, political divides and how he sees the role of the Catholic Church.`\
-https://nytimes.com/video/podcasts/100000010686316/rev-james-martin-on-our-moral-duty-in-turbulent-times.html
+**The Super Bowl halftime show — told from behind the camera**\
+`A 60- to 70-person camera crew brings the Super Bowl halftime show to television screens. These are their behind-the-scenes stories.`\
+https://nytimes.com/athletic/7011225/2026/02/03/super-bowl-halftime-show-history-camera-operators/
 
-**The Falcons have QB questions aplenty this offseason. Here are 18 options that could help**\
-`The Falcons have two quarterbacks currently under contract for 2026, but veteran Kirk Cousins could be on his way out.`\
-https://nytimes.com/athletic/7016242/2026/02/03/falcons-qb-questions-kirk-cousins-free-agency-draft/
+**Eno Sarris’ 2026 MLB starting pitcher fantasy rankings with Stuff+ powered projections**\
+`In time for your league drafts, here are Eno Sarris' first starting pitcher ranks for the 2026 fantasy baseball season.`\
+https://nytimes.com/athletic/7010771/2026/02/03/mlb-starting-pitcher-rankings-2026-fantasy-baseball/
 
-**Trump’s Kennedy Center Shutdown Plan Jolts Workers and Performers**\
-`The administration’s announcement to shut the center for a major overhaul led to a swirl of confusion and anxiety among performers and patrons about its future.`\
-https://nytimes.com/2026/02/03/arts/music/trumps-kennedy-center-shutdown-plan-jolts-workers-and-performers.html
+**Who would you pick for the U.S. Olympic flag football team? NFL players make their selections**\
+`Mobile quarterbacks and speed were the themes when respondents made their selections in our anonymous player poll.`\
+https://nytimes.com/athletic/7014713/2026/02/03/nfl-us-olympic-flag-football-player-picks/
 
-**‘Melania’ the Book Was Bad. ‘Melania’ the Movie Is Somehow Worse.**\
-`The surface is all there is.`\
-https://nytimes.com/2026/02/03/opinion/melania-trump-movie-memoir.html
+**How does someone get into Olympic skeleton? For Mystique Ro, it wasn't love at first sled**\
+`Ro says that skeleton is the ultimate example of doing something because you love it — even if at first, you thought you hated it.`\
+https://nytimes.com/athletic/7016367/2026/02/03/mystique-ro-skeleton-olympics/
 
-**Let’s Start Project 2028**\
-`An outline of items in a hypothetical Democratic Party platform.`\
-https://nytimes.com/2026/02/03/opinion/project-2028-democratic-party-platform.html
+**Where does John Harbaugh's rebooted offensive coordinator search stand now?**\
+`With Todd Monken taking the top job in Cleveland, Harbaugh has pivoted to Plan B.`\
+https://nytimes.com/athletic/7017393/2026/02/03/new-york-giants-offensive-coordinator-search/
 
-**Democracy Dies by Database**\
-`ICE knows that it cannot shoot us all. But the Department of Homeland Security is close to being able to track us all.`\
-https://nytimes.com/2026/02/03/opinion/ice-surveillance-protesters.html
+**Mike Macdonald’s play calling 'makes him special.' It could also make Super Bowl history**\
+`No head coach — not even Bill Belichick — has called defensive plays for a Super Bowl champion. Macdonald could change that Sunday.`\
+https://nytimes.com/athletic/7017457/2026/02/03/seahawks-super-bowl-60-coach-mike-macdonald/
 
-**It Was 33 Degrees on Monday. That’s Still Cold.**\
-`Though the temperature edged above freezing for the first time in 10 days, the weather barely felt warmer.`\
-https://nytimes.com/2026/02/03/nyregion/weather-cold-nyc-monday.html
+**Why is it so much harder to get into the Pro Football Hall of Fame now?**\
+`Bill Belichick's snub highlighted issues with the Hall's new rules. Here's how they work, and why there could be another surprise Thursday.`\
+https://nytimes.com/athletic/6998530/2026/02/03/nfl-hall-of-fame-process-rules/
 
-**Venezuela’s Authoritarian Grip Eases. But for How Long?**\
-`A sweeping amnesty proposal, tests of censorship limits and opposition leaders emerging from hiding are fueling hopes for democratic changes. But skepticism abounds.`\
-https://nytimes.com/2026/02/03/world/americas/venezuela-rodriguez-maduro-authoritarian.html
+**What sports will reveal about America in 2026**\
+`As millions of sports fans gather for a period of universal connection, the backdrop could not be more conflicted. And it's just beginning.`\
+https://nytimes.com/athletic/7016575/2026/02/03/athlete-activism-america-ice-breanna-stewart-super-bowl-olympics/
 
