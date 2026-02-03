@@ -1,3 +1,7 @@
+**Footage in Police Shooting of Queens Man to Be Released Amid Criticism**\
+`Critics have questioned why officers were called to respond to an apparent mental health crisis. The shooting has increased pressure on Mayor Zohran Mamdani.`\
+https://nytimes.com/2026/02/03/nyregion/nypd-shooting-chakraborty-queens.html
+
 **Host a Super Bowl Party That Lets You Enjoy the Game, Too**\
 `Don’t miss a second of the halftime show with these expert tips.`\
 https://nytimes.com/2026/02/03/dining/super-bowl-cooking-tips.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7018728/2026/02/03/raptors-darko-rajakovic-coach-nb
 **Knies reveals extent of injury: 'Sucks when you don’t feel like yourself'**\
 `Knies revealed the reason for the three missed games in November was due to a knee injury sustained earlier this season.`\
 https://nytimes.com/athletic/7018292/2026/02/03/matthew-knies-maple-leafs-injury-2/
-
-**Mountain West finalizes new TV deal for first season post-Pac-12 exodus**\
-`For all the drama around the two conferences’ fight for members, the Mountain West and Pac-12's new TV deals are quite similar in exposure.`\
-https://nytimes.com/athletic/7017431/2026/02/03/mountain-west-tv-deal-broadcast-rights/
 

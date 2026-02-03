@@ -1,3 +1,7 @@
+**Host a Super Bowl Party That Lets You Enjoy the Game, Too**\
+`Don’t miss a second of the halftime show with these expert tips.`\
+https://nytimes.com/2026/02/03/dining/super-bowl-cooking-tips.html
+
 **Palestinians Return to Gaza for the First Time in Nearly Two Years**\
 `A small number of Palestinians were allowed to return to Gaza for the first time in nearly two years after the Rafah crossing with Egypt reopened on Monday.`\
 https://nytimes.com/video/world/middleeast/100000010686567/palestinians-return-gaza-rafah-crossing.html
