@@ -1,3 +1,7 @@
+**The Health Food Store That Raised a Generation of Angelenos**\
+`Before everyone in town was queuing for smoothies, Simply Wholesome was juicing wheatgrass — and fostering community — in the city’s View Park-Windsor Hills.`\
+https://nytimes.com/2026/02/03/t-magazine/simply-wholesome-health-food-los-angeles.html
+
 **Walmart Joins Tech Giants With $1 Trillion Market Valuation**\
 `The company’s rapid e-commerce growth and push into automation and artificial intelligence propelled its stock into the trillion-dollar club.`\
 https://nytimes.com/2026/02/03/business/walmart-trillion-market-value.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7019188/2026/02/03/lakers-vs-nets-stream-how-to-wat
 **How to watch Hawks vs. Heat: Time, TV, streaming**\
 `Find out how to watch the Atlanta Hawks play the Miami Heat, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7019184/2026/02/03/hawks-vs-heat-stream-how-to-watch-feb-3/
-
-**How to watch Magic vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7019178/2026/02/03/magic-vs-thunder-stream-how-to-watch-feb-3/
 
