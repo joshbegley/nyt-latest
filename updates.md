@@ -1,3 +1,19 @@
+**Does ICE Need a Warrant to Enter Your Home?**\
+`Up until now, immigration officers were trained that they cannot enter homes without a judicial warrant. But, as our immigration reporter Hamed Aleaziz explains, the Trump administration has a different idea.`\
+https://nytimes.com/video/us/100000010661260/does-ice-need-a-warrant-to-enter-your-home.html
+
+**Northwestern to open new Ryan Field vs. Penn State on Oct. 2**\
+`Northwestern will host South Dakota State and Colorado at its temporary stadium in September before the new Ryan Field opens on Oct. 2.`\
+https://nytimes.com/athletic/7018817/2026/02/03/northwestern-new-football-stadium-opening-penn-state/
+
+**Sam Bennett to replace injured Anthony Cirelli on Team Canada roster: Sources**\
+`The Florida Panthers center was one of the more surprising omissions from the original 25-man roster named in late December.`\
+https://nytimes.com/athletic/7018799/2026/02/03/canada-hockey-olympics-sam-bennett-anthony-cirelli/
+
+**Footage in Police Shooting of Queens Man to Be Released Amid Criticism**\
+`Critics have questioned why officers were called to respond to an apparent mental health crisis. The shooting has increased pressure on Mayor Zohran Mamdani.`\
+https://nytimes.com/2026/02/03/nyregion/nypd-shooting-chakraborty-queens.html
+
 **Host a Super Bowl Party That Lets You Enjoy the Game, Too**\
 `Don’t miss a second of the halftime show with these expert tips.`\
 https://nytimes.com/2026/02/03/dining/super-bowl-cooking-tips.html
