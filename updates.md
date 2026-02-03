@@ -1,3 +1,7 @@
+**Sam Bennett to replace injured Anthony Cirelli on Team Canada roster**\
+`The Florida Panthers center was one of the more surprising omissions from the original 25-man roster named in late December.`\
+https://nytimes.com/athletic/7018799/2026/02/03/canada-hockey-olympics-sam-bennett-anthony-cirelli/
+
 **CFP bowl lineup keeps Rose Bowl in New Year's Day slot for next two years**\
 `The Rose Bowl has lobbied to keep its traditional Jan. 1 date and time slot while remaining part of the six-bowl rotation.`\
 https://nytimes.com/athletic/7018694/2026/02/03/college-football-playoff-bowls-schedule-rose/
