@@ -1,3 +1,7 @@
+**Epstein’s Trust Reveals Who Would Inherit His Fortune**\
+`Jeffrey Epstein wanted most of his money to go to his girlfriend, a native of Belarus. Mr. Epstein’s brother and a Harvard math professor were also named beneficiaries.`\
+https://nytimes.com/2026/02/03/business/jeffrey-epstein-trust-inherit-karyna-shuliak.html
+
 **How to watch Nuggets vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7018490/2026/02/03/nuggets-vs-pistons-stream-how-to-watch-feb-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7018457/2026/02/03/blue-jackets-vs-devils-stream-ho
 **Weeks of Heavy Snowfall in Japan Kills at Least 30**\
 `Snowfall in parts of Japan has also left about 200 people injured. One city recorded 72 inches of snow, the highest in almost 40 years.`\
 https://nytimes.com/2026/02/03/world/asia/japan-snow-deaths.html
-
-**Nepal Arrests 6 Officials, Accusing Them of Fraudulent Everest Rescues**\
-`The officials from mountain rescue agencies are accused of carrying out unnecessary helicopter rescues to defraud international insurance companies of nearly $20 million.`\
-https://nytimes.com/2026/02/03/world/asia/mount-everest-helicopter-insurance-fraud.html
 
