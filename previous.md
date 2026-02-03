@@ -1,3 +1,7 @@
+**Three junior hockey players killed in motor vehicle crash south of Calgary**\
+`“There are no words that can adequately express the depth of our grief,” the Southern Alberta Mustangs said in a statement.`\
+https://nytimes.com/athletic/7017237/2026/02/02/junior-hockey-players-crash-southern-alberta-mustangs/
+
 **Roger Goodell on lack of diversity in hiring cycle, technology in officiating, 18th game**\
 `Goodell said "we're re-evaluating everything we're doing" to ensure the NFL promotes diversity in its head coach hiring.`\
 https://nytimes.com/athletic/7017172/2026/02/02/roger-goodell-super-bowl-diversity-officiating-18-games/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7017114/2026/02/02/chicago-white-sox-munetaka-murak
 **Everybody gets what they want in three-team swap for Brendan Donovan: MLB Trade Grades**\
 `The Mariners got better. The Cardinals got prospects. The Rays got themselves involved. Good for everyone. `\
 https://nytimes.com/athletic/7017082/2026/02/02/mlb-trade-grades-brendan-donovan-mariners-cardinals-rays/
-
-**U.S. Failed to Alert Judge to Press Law in Application to Search Reporter’s Home**\
-`The Justice Department did not address a 1980 law that generally bars warrants for reporting material when it sought to seize a Washington Post reporter’s devices, an unsealed filing shows.`\
-https://nytimes.com/2026/02/02/us/politics/doj-press-law-warrant-application-washington-post-journalist.html
 

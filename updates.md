@@ -1,3 +1,7 @@
+**Three junior hockey players killed in motor vehicle crash south of Calgary**\
+`“There are no words that can adequately express the depth of our grief,” the Southern Alberta Mustangs said in a statement.`\
+https://nytimes.com/athletic/7017237/2026/02/02/junior-hockey-players-crash-southern-alberta-mustangs/
+
 **LSU will not be disciplined after investigation into its NIL reporting**\
 `The first publicly known inquiry by the College Sports Commission, which did not involve LSU football, lasted two and a half weeks.`\
 https://nytimes.com/athletic/7017180/2026/02/02/lsu-investigation-nil-reporting/
