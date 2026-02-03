@@ -1,3 +1,11 @@
+**Roger Goodell on lack of diversity in hiring cycle, technology in officiating, 18th game**\
+`Goodell said "we're re-evaluating everything we're doing" to ensure the NFL promotes diversity in its head coach hiring.`\
+https://nytimes.com/athletic/7017172/2026/02/02/roger-goodell-super-bowl-diversity-officiating-18-games/
+
+**LSU will not be disciplined after investigation into its NIL reporting**\
+`The first publicly known inquiry by the College Sports Commission, which did not involve football, lasted just two and a half weeks.`\
+https://nytimes.com/athletic/7017180/2026/02/02/lsu-investigation-nil-reporting/
+
 **Read the Decision**\
 `A federal judge temporarily blocked the Trump administration from ending Temporary Protected Status for more than 350,000 Haitians in the United States.`\
 https://nytimes.com/interactive/2026/02/02/us/haitians-tps-ruling.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7017082/2026/02/02/mlb-trade-grades-brendan-donovan
 **U.S. Failed to Alert Judge to Press Law in Application to Search Reporter’s Home**\
 `The Justice Department did not address a 1980 law that generally bars warrants for reporting material when it sought to seize a Washington Post reporter’s devices, an unsealed filing shows.`\
 https://nytimes.com/2026/02/02/us/politics/doj-press-law-warrant-application-washington-post-journalist.html
-
-**Federal Judge Temporarily Blocks End of Protection for Haitians in U.S.**\
-`The ruling pauses the Trump administration’s plan to end a program that has allowed more than 350,000 people from Haiti to remain in the United States.`\
-https://nytimes.com/2026/02/02/us/haitians-temporary-protected-status-trump.html
-
-**Ukraine condemns 'moral degenerate' Infantino over Russia ban comments**\
-`The president of world football's governing body has been described as a "moral degenerate" by Ukraine's foreign minister Andrii Sybiha.`\
-https://nytimes.com/athletic/7016812/2026/02/02/russia-ukraine-football-ban-fifa-infantino/
 
