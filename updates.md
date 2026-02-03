@@ -1,3 +1,7 @@
+**Tennis player retires injured after accidentally volleying ball into own eye**\
+`Giovanni Mpetshi Perricard suffered the unfortunate injury at the Occitanie Open in France.`\
+https://nytimes.com/athletic/7017538/2026/02/03/tennis-ball-eye-mpetshi-perricard-injury-retired-open-occitanie/
+
 **What Xi’s Military Purge Means for Taiwan**\
 `His sweeping military shake-up may look like weakness but it’s clearing the way for a more dangerous force under his full control.`\
 https://nytimes.com/2026/02/03/opinion/china-military-purge-taiwan.html
