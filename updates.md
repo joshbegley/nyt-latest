@@ -1,3 +1,7 @@
+**Research Finds Interaction With Father, Not Mother, Affects Child Health**\
+`A long-term study of 292 families linked fathers’ parenting style to their children’s heart health years later. To researchers’ surprise, no such link was found with mothers.`\
+https://nytimes.com/2026/02/03/health/fathers-child-health.html
+
 **Timberwolves fall flat in Memphis. Is urgency needed before trade deadline?**\
 `Minnesota's maddening habit of playing down to its competition caught up to it again in Memphis. `\
 https://nytimes.com/athletic/7017440/2026/02/03/timberwolves-trade-deadline-rumors-grizzlies/
