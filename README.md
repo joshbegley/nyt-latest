@@ -1,3 +1,7 @@
+**Potential No. 1 pick Darryn Peterson sparks late rally in Kansas' road win**\
+`The freshman sensation finished with 19 points to lead the Jayhawks, who finished the game on a 14-2 run.`\
+https://nytimes.com/athletic/7017467/2026/02/03/darryn-peterson-kansas-texas-tech-basketball/
+
 **Harry Brook and Brendon McCullum's positions are untenable – even if England win the T20 World Cup**\
 `The white-ball captain admitted last week that he lied to England's management about the night when he clashed with a bouncer in Wellington`\
 https://nytimes.com/athletic/7015319/2026/02/03/harry-brook-brendon-mccullum-england-t20-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7015975/2026/02/03/barcelona-real-madrid-albacete-c
 **Arsenal and Tottenham's race for Scotland teenager James Wilson - the most unlikely deadline-day saga**\
 `The 18-year-old striker has played only 77 minutes in the Scottish Premiership this season but was targeted by both north London clubs`\
 https://nytimes.com/athletic/7015969/2026/02/03/arsenal-tottenham-james-wilson-loan-transfer/
-
-**How much can crowd tensions inside a stadium affect player performance?**\
-`Crowds airing their frustration is nothing new - but what parts of a players' game can be affected by adverse reactions in a stadium?`\
-https://nytimes.com/athletic/7006749/2026/02/03/tottenham-arsenal-west-ham-crowd-stadiums/
 

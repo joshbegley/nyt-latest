@@ -1,3 +1,7 @@
+**Harry Brook and Brendon McCullum's positions are untenable – even if England win the T20 World Cup**\
+`The white-ball captain admitted last week that he lied to England's management about the night when he clashed with a bouncer in Wellington`\
+https://nytimes.com/athletic/7015319/2026/02/03/harry-brook-brendon-mccullum-england-t20-world-cup/
+
 **Gruda's RB Leipzig loan leaves Brighton worryingly short in wide areas**\
 `Gruda may not yet be a consistent performer at Premier League level, but Brighton may now be leaving themselves short`\
 https://nytimes.com/athletic/7015266/2026/02/03/brajan-grudas-rb-leipzig-loan-leaves-brighton-worryingly-short-in-wide-areas/
