@@ -1,3 +1,7 @@
+**Here Are the Artists Who Have Canceled Performances at the Kennedy Center**\
+`The list so far includes more than two dozen musicians, dancers, theater companies and other creative groups.`\
+https://nytimes.com/2026/02/02/arts/kennedy-center-performance-cancellations.html
+
 **Three junior hockey players killed in motor vehicle crash south of Calgary**\
 `“There are no words that can adequately express the depth of our grief,” the Southern Alberta Mustangs said in a statement.`\
 https://nytimes.com/athletic/7017237/2026/02/02/junior-hockey-players-crash-southern-alberta-mustangs/
@@ -26,15 +30,11 @@ https://nytimes.com/2026/02/02/nyregion/brooklyn-dismembered-body-found-basement
 `Health Secretary Robert F. Kennedy Jr. said addiction is a “spiritual disease” that calls out for the involvement of religious organizations.`\
 https://nytimes.com/2026/02/02/health/hhs-rfk-faith-based-addiction-programs.html
 
-**N.F.L. Said It Will Look Into Steve Tisch’s Ties to Epstein**\
-`Recently released emails reveal that Jeffrey Epstein sought to connect Mr. Tisch, whose family is a part-owner of N.Y. Giants, with multiple women.`\
+**N.F.L. Says It Will Look Into Steve Tisch’s Ties to Epstein**\
+`Recently released emails reveal that Jeffrey Epstein sought to connect Mr. Tisch, whose family is a part-owner of the New York Giants, with multiple women.`\
 https://nytimes.com/2026/02/02/sports/nfl-steve-tisch-epstein-giants.html
 
 **White Sox's Munetaka Murakami is latest Japanese player to request bidet**\
 `Murakami isn't alone in asking for a bidet to be installed in the locker room.`\
 https://nytimes.com/athletic/7017114/2026/02/02/chicago-white-sox-munetaka-murakami-bidet/
-
-**Everybody gets what they want in three-team swap for Brendan Donovan: MLB Trade Grades**\
-`The Mariners got better. The Cardinals got prospects. The Rays got themselves involved. Good for everyone. `\
-https://nytimes.com/athletic/7017082/2026/02/02/mlb-trade-grades-brendan-donovan-mariners-cardinals-rays/
 

@@ -1,3 +1,11 @@
+**Here Are the Artists Who Have Canceled Performances at the Kennedy Center**\
+`The list so far includes more than two dozen musicians, dancers, theater companies and other creative groups.`\
+https://nytimes.com/2026/02/02/arts/kennedy-center-performance-cancellations.html
+
+**N.F.L. Says It Will Look Into Steve Tisch’s Ties to Epstein**\
+`Recently released emails reveal that Jeffrey Epstein sought to connect Mr. Tisch, whose family is a part-owner of the New York Giants, with multiple women.`\
+https://nytimes.com/2026/02/02/sports/nfl-steve-tisch-epstein-giants.html
+
 **Three junior hockey players killed in motor vehicle crash south of Calgary**\
 `“There are no words that can adequately express the depth of our grief,” the Southern Alberta Mustangs said in a statement.`\
 https://nytimes.com/athletic/7017237/2026/02/02/junior-hockey-players-crash-southern-alberta-mustangs/
