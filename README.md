@@ -1,3 +1,11 @@
+**Howe holds Tonali talks: 'He's absolutely focused' on Newcastle**\
+`The Athletic reported Tonali’s representatives had offered the midfielder to Arsenal’s sporting director Andrea Berta.`\
+https://nytimes.com/athletic/7017734/2026/02/03/sandro-tonali-newcastle-eddie-howe/
+
+**Rev. James Martin on Our Moral Duty in Turbulent Times**\
+`The author and Jesuit priest discusses human dignity, political divides and how he sees the role of the Catholic Church.`\
+https://nytimes.com/2026/02/03/magazine/father-james-martin-interview.html
+
 **Rev. James Martin on Our Moral Duty in Turbulent Times**\
 `The Rev. James Martin, an author and Jesuit priest, discusses human dignity, political divides and how he sees the role of the Catholic Church.`\
 https://nytimes.com/video/podcasts/100000010686316/rev-james-martin-on-our-moral-duty-in-turbulent-times.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/03/nyregion/weather-cold-nyc-monday.html
 **Venezuela’s Authoritarian Grip Eases. But for How Long?**\
 `A sweeping amnesty proposal, tests of censorship limits and opposition leaders emerging from hiding are fueling hopes for democratic changes. But skepticism abounds.`\
 https://nytimes.com/2026/02/03/world/americas/venezuela-rodriguez-maduro-authoritarian.html
-
-**What Do You Get When You Put a Mummy Through a CT Scan?**\
-`Experts are using high-res scanners and 3-D printers to illuminate ancient ailments and injuries.`\
-https://nytimes.com/2026/02/03/health/mummy-virtual-autopsy.html
-
-**Jewish Heirs Say Met Museum Pissarro Was Sold Under Nazi-Era Duress**\
-`The museum says a Jewish art dealer received a fair price for the work in 1941. The heirs say sales from that time are considered to have been forced and void under French law.`\
-https://nytimes.com/2026/02/03/arts/jewish-heirs-say-met-museum-pissarro-was-sold-under-nazi-era-duress.html
 

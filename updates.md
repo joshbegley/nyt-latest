@@ -1,3 +1,7 @@
+**Rev. James Martin on Our Moral Duty in Turbulent Times**\
+`The Rev. James Martin, an author and Jesuit priest, discusses human dignity, political divides and how he sees the role of the Catholic Church.`\
+https://nytimes.com/video/podcasts/100000010686316/rev-james-martin-on-our-moral-duty-in-turbulent-times.html
+
 **The Falcons have QB questions aplenty this offseason. Here are 18 options that could help**\
 `The Falcons have two quarterbacks currently under contract for 2026, but veteran Kirk Cousins could be on his way out.`\
 https://nytimes.com/athletic/7016242/2026/02/03/falcons-qb-questions-kirk-cousins-free-agency-draft/
