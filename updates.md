@@ -1,3 +1,7 @@
+**Two NHL heavyweights review goalie fight: ‘Swing and hope it hits’**\
+`The Bruins' resident fighting experts offer their analysis of Jeremy Swayman's bout with the Lightning's Andre Vasilevskiy.`\
+https://nytimes.com/athletic/7019281/2026/02/03/nhl-goalie-fight-review-swayman-vasilevskiy/
+
 **New Trial Ordered for Former U.C.L.A. Gynecologist Convicted of Sex Abuse**\
 `James M. Heaps was sentenced to 11 years in prison in April 2023. A note from the jury to the judge during deliberations was never disclosed, and an appeals court said the case must be retried.`\
 https://nytimes.com/2026/02/03/us/ucla-gynecologist-sexual-abuse-new-trial.html

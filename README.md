@@ -1,3 +1,11 @@
+**NASA Delays Artemis II Rocket Launch Until at Least March**\
+`NASA delayed the Artemis II mission on Tuesday after detecting hydrogen leaks. The mission was scheduled to circle the moon with four astronauts.`\
+https://nytimes.com/video/us/100000010687240/nasa-artemis-rocket-launch-moon-delay.html
+
+**A New Word Game Brings Competition, and Trash Talk**\
+`Crossplay, the first of its kind from The Times, pits puzzlers against each other on a shared board.`\
+https://nytimes.com/2026/02/03/insider/crossplay-new-york-times-games.html
+
 **Two NHL heavyweights review goalie fight: ‘Swing and hope it hits’**\
 `The Bruins' resident fighting experts offer their analysis of Jeremy Swayman's bout with the Lightning's Andre Vasilevskiy.`\
 https://nytimes.com/athletic/7019281/2026/02/03/nhl-goalie-fight-review-swayman-vasilevskiy/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/03/t-magazine/simply-wholesome-health-food-los-angel
 **Walmart Joins Tech Giants With $1 Trillion Market Valuation**\
 `The company’s rapid e-commerce growth and push into automation and artificial intelligence propelled its stock into the trillion-dollar club.`\
 https://nytimes.com/2026/02/03/business/walmart-trillion-market-value.html
-
-**Woman Wins Malpractice Suit Over Gender Surgery as a Minor**\
-`In a legal first, a jury in New York awarded $2 million to a patient who said that doctors had deviated from accepted medical standards.`\
-https://nytimes.com/2026/02/03/health/gender-surgery-malpractice-varian.html
-
-**Ice House no more: U.S. to change name of Olympics space to Winter House**\
-`The decision comes after widespread protests in both the United States and Milan over the presence and conduct of ICE agents.`\
-https://nytimes.com/athletic/7019180/2026/02/03/winter-olympics-united-states-ice-house/
 
