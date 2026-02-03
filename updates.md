@@ -1,3 +1,11 @@
+**Woman’s Dismembered Body Is Found in a Brooklyn Basement, Officials Say**\
+`The police are investigating the death of Michelle Montgomery, whose remains were found in a public housing building in the Williamsburg neighborhood.`\
+https://nytimes.com/2026/02/02/nyregion/brooklyn-dismembered-body-found-basement.html
+
+**H.H.S. to Expand Faith-Based Addiction Programs for Homeless**\
+`Health Secretary Robert F. Kennedy Jr. said addiction is a “spiritual disease” that calls out for the involvement of religious organizations.`\
+https://nytimes.com/2026/02/02/health/hhs-rfk-faith-based-addiction-programs.html
+
 **N.F.L. Said It Will Look Into Steve Tisch’s Ties to Epstein**\
 `Recently released emails reveal that Jeffrey Epstein sought to connect Mr. Tisch, whose family is a part-owner of N.Y. Giants, with multiple women.`\
 https://nytimes.com/2026/02/02/sports/nfl-steve-tisch-epstein-giants.html
