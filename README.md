@@ -18,8 +18,8 @@ https://nytimes.com/2026/02/03/learning/2016.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/02/03/crosswords/spelling-bee-forum.html
 
-**Russia Resumes Attacks on Ukraine’s Energy System Ahead of Peace Talks**\
-`Missiles overnight targeted power plants in Kyiv and other parts of the country, according to local authorities, despite President Trump’s request for a pause.`\
+**On Eve of Peace Talks, Russia Hits Power Plants in Frigid Ukraine**\
+`Missiles overnight targeted electrical facilities in Kyiv and other parts of the country, according to local authorities, despite President Trump’s request for a pause.`\
 https://nytimes.com/2026/02/03/world/europe/ukraine-missiles-attack.html
 
 **Word of the Day: sporadic**\
