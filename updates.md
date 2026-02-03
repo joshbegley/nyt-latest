@@ -1,3 +1,7 @@
+**On Eve of Peace Talks, Russia Hits Power Plants in Frigid Ukraine**\
+`Missiles overnight targeted electrical facilities in Kyiv and other parts of the country, according to local authorities, despite President Trump’s request for a pause.`\
+https://nytimes.com/2026/02/03/world/europe/ukraine-missiles-attack.html
+
 **Tennis player retires injured after accidentally volleying ball into own eye**\
 `Giovanni Mpetshi Perricard suffered the unfortunate injury at the Occitanie Open in France.`\
 https://nytimes.com/athletic/7017538/2026/02/03/tennis-ball-eye-mpetshi-perricard-injury-retired-open-occitanie/
