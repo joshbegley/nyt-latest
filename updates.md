@@ -1,3 +1,11 @@
+**Son of Norway’s Future Queen Goes on Trial**\
+`Marius Borg Hoiby, the son of Crown Princess Mette-Marit of Norway, pleaded not guilty on Tuesday to rape and filming women without their consent during the opening of a trial in which he faces several other charges.`\
+https://nytimes.com/video/world/europe/100000010686513/norway-princess-son-rape-trial-epstein.html
+
+**Sources: Moussa Sylla move from Schalke to NYCFC falls through**\
+`NYCFC must turn to alternatives as the club looks to boost its attack for the 2026 MLS season`\
+https://nytimes.com/athletic/7018230/2026/02/03/moussa-sylla-schalke-nycfc-transfer-off/
+
 **Lindsey Vonn says she tore ACL in crash, still hopes to compete in Olympics**\
 `The American Alpine star updated her status at a press conference Tuesday, vowing to "do everything in my power" to compete next week.`\
 https://nytimes.com/athletic/7018163/2026/02/03/lindsey-vonn-torn-acl-olympics-crash-world-cup/
