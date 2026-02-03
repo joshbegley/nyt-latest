@@ -1,3 +1,11 @@
+**Disney Names Josh D’Amaro as Next C.E.O.**\
+`Mr. D’Amaro, 54, has most recently served as chairman of Disney Experiences, a division that includes theme parks, cruise vacations and consumer products.`\
+https://nytimes.com/2026/02/03/business/disney-damaro-ceo.html
+
+**TST introduces $1 million mixed-gender event, featuring Hope Solo and Wrexham**\
+`Solo wants to "make history" with two teams in the tournament.`\
+https://nytimes.com/athletic/7017071/2026/02/03/tst-1-million-mixed-gender-event-hope-solo-wrexham/
+
 **The Numbers, and Questions, Behind Musk’s Mega-Merger**\
 `The combination of SpaceX and xAI will create a rocket-and-A.I. giant. But investors and experts have concerns about the consequences of the deal.`\
 https://nytimes.com/2026/02/03/business/dealbook/spacex-xai-merger.html

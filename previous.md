@@ -1,3 +1,11 @@
+**Disney Names Josh D’Amaro as Next C.E.O.**\
+`Mr. D’Amaro, 54, has most recently served as chairman of Disney Experiences, a division that includes theme parks, cruise vacations and consumer products.`\
+https://nytimes.com/2026/02/03/business/disney-damaro-ceo.html
+
+**TST introduces $1 million mixed-gender event, featuring Hope Solo and Wrexham**\
+`Solo wants to "make history" with two teams in the tournament.`\
+https://nytimes.com/athletic/7017071/2026/02/03/tst-1-million-mixed-gender-event-hope-solo-wrexham/
+
 **The Numbers, and Questions, Behind Musk’s Mega-Merger**\
 `The combination of SpaceX and xAI will create a rocket-and-A.I. giant. But investors and experts have concerns about the consequences of the deal.`\
 https://nytimes.com/2026/02/03/business/dealbook/spacex-xai-merger.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7017725/2026/02/03/everton-george-mcneil-january-wi
 **Research Finds Interaction With Father, Not Mother, Affects Child Health**\
 `A long-term study of 292 families linked fathers’ parenting style to their children’s heart health years later. To researchers’ surprise, no such link was found with mothers.`\
 https://nytimes.com/2026/02/03/health/fathers-child-health.html
-
-**Timberwolves fall flat in Memphis. Is urgency needed before trade deadline?**\
-`Minnesota's maddening habit of playing down to its competition caught up to it again in Memphis. `\
-https://nytimes.com/athletic/7017440/2026/02/03/timberwolves-trade-deadline-rumors-grizzlies/
-
-**Police Search X’s Premises in France as Prosecutors Summon Elon Musk**\
-`The move followed a yearlong investigation into X and escalated a wider standoff between European officials and American tech companies over the regulation of social media.`\
-https://nytimes.com/2026/02/03/world/europe/musk-x-france-police-search.html
 
