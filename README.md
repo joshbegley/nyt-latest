@@ -1,40 +1,40 @@
-**West Ham can dismiss Nuno without compensation if they get relegated**\
-`The London Stadium club are 18th in the Premier League, six points off safety, with 14 games remaining.`\
-https://nytimes.com/athletic/7017774/2026/02/03/west-ham-nuno-espirito-santo-compensation/
+**What I'm hearing on James Harden, Giannis and more as NBA trade deadline nears**\
+`Harden could be on the move again before Thursday's deadline while Giannis watch continues.`\
+https://nytimes.com/athletic/7017672/2026/02/03/nba-trade-deadline-james-harden-giannis/
 
-**Palestinians Return to Gaza for First Time in Nearly Two Years**\
-`The returnees reunited with families but also said their homecomings carried symbolic weight — defying any schemes to permanently displace Gazans.`\
-https://nytimes.com/2026/02/03/world/middleeast/palestinians-gaza-return.html
+**Will the surprising young Pistons stand pat at trade deadline? What I'm hearing**\
+`Will Detroit make a big move to go for a shot at the title this year or see what this young group can do in the playoffs?`\
+https://nytimes.com/athletic/7014922/2026/02/03/pistons-nba-trade-deadline-tobias-harris-jaden-ivey/
 
-**Iran’s President Backs ‘Fair’ Talks With U.S. as Confrontation Looms**\
-`President Masoud Pezeshkian said on Tuesday that he supported “equitable negotiations.” Talks are expected on Friday, as diplomats work to defuse the crisis.`\
-https://nytimes.com/2026/02/03/world/middleeast/iran-president-talks-istanbul-witkoff-kushner.html
+**James Harden trade talks 'shocking,' but the Clippers aim to stay of sound mind**\
+`The Clippers expressed surprise following Monday's loss to the Philadelphia 76ers that Harden is now appearing in trade rumors.`\
+https://nytimes.com/athletic/7017613/2026/02/03/james-harden-clippers-nba-trade-deadline/
 
-**TAFC – Palace's turbulent transfer window. Plus: Liverpool's £55m gamble and Ukraine's Infantino criticism**\
-`Unsettled players, botched signings and a manager on the way out — how did it go so wrong for last season's FA Cup winners?`\
-https://nytimes.com/athletic/7017791/2026/02/03/crystal-palace-transfer-window-liverpool-infantino-tafc/
+**Yankees' 3 key roster questions as spring training nears**\
+`For all the talk about running it back with much of last year's roster, there are still quite a few questions about how this will work.`\
+https://nytimes.com/athletic/7017139/2026/02/03/yankees-roster-questions-spring-training/
 
-**A Lifeline for Gaza**\
-`We look at the significance of the Rafah border crossing.`\
-https://nytimes.com/2026/02/03/briefing/a-lifeline-for-gaza.html
+**Harvey Elliott: What now?**\
+`A move that was meant to propel the attacking midfielder into England's World Cup plans has backfired horribly`\
+https://nytimes.com/athletic/7016020/2026/02/03/harvey-elliott-what-now/
 
-**The Eagles let Milton Williams go to the Patriots. He's in the Super Bowl anyway**\
-`After four seasons and two Super Bowls with Philadelphia, Williams brought his big-game acumen to New England.`\
-https://nytimes.com/athletic/7017715/2026/02/03/patriots-milton-williams-eagles-super-bowl/
+**The value of Super Bowl Opening Night: A strange truce between fans and media**\
+`The annual spectacle was a unifier for one night. Players, journalists and fans all played their parts, knowingly performing for each other.`\
+https://nytimes.com/athletic/7017502/2026/02/03/super-bowl-opening-night-fans-media/
 
-**Lascelles brings Newcastle career to an end with Leicester move**\
-`Lascelles made 253 appearances for Newcastle, leading them to promotion as captain in 2016-17.`\
-https://nytimes.com/athletic/7017833/2026/02/03/newcastle-jamaal-lascelles-leicester-transfer-confirmed/
+**Rempe building confidence, mobility in journey back from thumb injury**\
+`The young forward's hand hasn't been the same since an early-season fight with Ryan Reaves.`\
+https://nytimes.com/athletic/7016565/2026/02/03/rangers-matt-rempe-thumb-injury-recovery/
 
-**Another Maple Leafs win sparks optimism and hope, but context is key**\
-`The Leafs are feeling good after a pair of wins out west, but there is still much to be determined before next month's trade deadline.`\
-https://nytimes.com/athletic/7017601/2026/02/03/maple-leafs-win-hope-context/
+**Mikel Brown Jr. is an old-school tape head. Is a he a top-10 draft pick, too?**\
+`The Louisville prospect is "obsessed with just watching basketball." That film study may lead toward the top of draft boards.`\
+https://nytimes.com/athletic/7015102/2026/02/03/mikel-brown-louisville-nba-draft/
 
-**Pro Bowl Games 2026 explained: How to watch, start time, participants and events**\
-`Here's what to know ahead of Tuesday's flag football all-star scrimmage, with standouts like Jalen Hurts, Jahmyr Gibbs and CeeDee Lamb.`\
-https://nytimes.com/athletic/7016492/2026/02/03/pro-bowl-2026-games-how-to-watch/
+**Carrick knows the importance of being boring – and that's a good thing**\
+`The former Manchester United midfielder knew the value of risk-free football as a player and is the same as a head coach`\
+https://nytimes.com/athletic/7017824/2026/02/03/michael-carrick-knows-the-importance-of-being-boring-and-thats-a-good-thing/
 
-**Seattle Mariners 2026 top 20 prospects: Colt Emerson, Ryan Sloan lead the way**\
-`The Mariners have a strong system with a number of elite talents at the top of their ranking but it thins out quickly toward the middle.`\
-https://nytimes.com/athletic/7011006/2026/02/03/mariners-2026-top-20-prospects-keith-law/
+**£397m in winter, more than £3.5bn spent overall – The Premier League window in numbers**\
+`After the excess of the summer, with over £3bn spent for the first time, this was a reacquaintance with moderation for most top-flight clubs`\
+https://nytimes.com/athletic/7016975/2026/02/03/january-window-numbers-premier-league/
 
