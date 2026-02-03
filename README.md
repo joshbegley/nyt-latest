@@ -1,3 +1,19 @@
+**The Best Movies and TV Shows Coming to Netflix in February**\
+`A new series from the creator of “Derry Girls” and an inside look at the world of competitive ice dancing are among the highlights this month.`\
+https://nytimes.com/2026/02/03/arts/television/netflix-new-february.html
+
+**Tom Britt, Designer of Larger-Than-Life Interiors, Dies at 89**\
+`A master of the grand gesture, he was as theatrical as his rooms, which were inspired by French chateaus and Italian palazzos. As he put it, “Why be ordinary?”`\
+https://nytimes.com/2026/02/03/arts/design/tom-britt-dead.html
+
+**Browns coach Todd Monken: 'I didn’t take this job because of Jim Schwartz'**\
+`In his introductory news conference, Monken said the talented defensive players, not Schwartz, were a big reason he took the job. `\
+https://nytimes.com/athletic/7019027/2026/02/03/browns-todd-monken-news-conference-jim-schwartz/
+
+**Ivey, Conley traded to Bulls in 3-team trade with Pistons, Timberwolves: Sources**\
+`The Pistons receive Kevin Huerter in the deal, while Minnesota sends a 2026 first-round pick swap to Detroit to create more flexibility.`\
+https://nytimes.com/athletic/7019076/2026/02/03/jaden-ivey-mike-conley-bulls-pistons-timberwolves-trade/
+
 **Song of the Week: ‘Ever Since U Left Me (I Went Deaf)’**\
 `Our pop music critic Jon Caramanica explains how French Montana and Max B’s new song fits into an expanding New York rap sound.`\
 https://nytimes.com/video/podcasts/100000010687157/song-of-the-week-ever-since-u-left-me-i-went-deaf.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/03/sports/olympics-ice-house-name.html
 **L.A. Olympic committee chairman says he 'deeply regrets' emails released in Epstein files**\
 `In a statement, Casey Wasserman said he is "terribly sorry" for his association with Jeffrey Epstein and Ghislaine Maxwell.`\
 https://nytimes.com/athletic/7018074/2026/02/03/casey-wasserman-los-angeles-olympics-epstein-release/
-
-**Scoop City: How Mike Vrabel overhauled the Patriots in one offseason**\
-`How the Patriots rapidly built a contender through a coaching purge, free agency and the draft`\
-https://nytimes.com/athletic/7019014/2026/02/03/mike-vrabel-patriots-built-offseason-super-bowl/
-
-**Successes on Ian Cunningham's resume make Falcons believe he can reverse their fortunes**\
-`Cunningham looks forward to "earning everybody's respect" after being hired as the Falcons' new general manager.`\
-https://nytimes.com/athletic/7018782/2026/02/03/ian-cunningham-falcons-general-manager-hired/
-
-**Why U.S. Car Companies Want to Make Giant Batteries**\
-`Even as American automakers have scaled back their ambitions for electric vehicles, some are pivoting to a technology that could help boost renewable energy.`\
-https://nytimes.com/2026/02/03/climate/us-automakers-battery-manufacturing.html
-
-**CFP bowl lineup keeps Rose Bowl in New Year's Day slot for next two years**\
-`The Rose Bowl has lobbied to keep its traditional Jan. 1 date and time slot while remaining part of the six-bowl rotation.`\
-https://nytimes.com/athletic/7018694/2026/02/03/college-football-playoff-bowls-schedule-rose/
 
