@@ -1,3 +1,7 @@
+**How long Jerry Jones, other prominent NFL owners waited to get into the Hall of Fame**\
+`There was a rush of owners getting the call to the Hall of Fame in the late 2010s, but historically, team owners have had to be patient.`\
+https://nytimes.com/athletic/7018524/2026/02/03/prominent-nfl-owners-hall-of-fame/
+
 **U.S. Fighter Jet Shoots Down Iranian Drone Amid Heightened Tensions**\
 `A U.S. fighter jet shot down the Iranian drone after it “unnecessarily maneuvered” toward the Abraham Lincoln aircraft carrier.`\
 https://nytimes.com/2026/02/03/us/politics/us-iran-drone-downing.html
