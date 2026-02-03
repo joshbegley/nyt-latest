@@ -1,3 +1,7 @@
+**Word of the Day: sporadic**\
+`This word has appeared in 282 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/03/learning/word-of-the-day-sporadic.html
+
 **Trump and India Call Off Their Trade War, but the Terms of Peace Are Murky**\
 `Officials and business leaders sighed with relief at lower tariffs, as they wait to see what the rest of it means.`\
 https://nytimes.com/2026/02/03/business/us-india-trade-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7015266/2026/02/03/brajan-grudas-rb-leipzig-loan-le
 **What Sarr will bring to Chelsea and why Rosenior might have wanted him back**\
 `The central defender has returned to Chelsea after his Strasbourg loan was cut short. He could end up being more than a squad player`\
 https://nytimes.com/athletic/7015638/2026/02/03/mamadou-sarr-chelsea-analysis-liam-rosenior/
-
-**Ranking all 32 Premier League transfers this winter window from worst to best**\
-`The January transfer window is over, and The Athletic has put together a comprehensive ranking of all the signings`\
-https://nytimes.com/athletic/6985041/2026/02/03/premier-league-january-transfers-2026-ranked/
 

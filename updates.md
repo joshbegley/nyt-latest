@@ -1,3 +1,7 @@
+**Word of the Day: sporadic**\
+`This word has appeared in 282 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/03/learning/word-of-the-day-sporadic.html
+
 **Trump and India Call Off Their Trade War, but the Terms of Peace Are Murky**\
 `Officials and business leaders sighed with relief at lower tariffs, as they wait to see what the rest of it means.`\
 https://nytimes.com/2026/02/03/business/us-india-trade-tariffs.html
