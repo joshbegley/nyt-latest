@@ -1,3 +1,7 @@
+**Games Briefing: Let the curling begin**\
+`Welcome to Games Briefing, The Athletic's daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7021586/2026/02/04/curling-mixed-doubles-olympic-games-briefing/
+
 **NBC's plan to win the sports year: Super Bowl, Olympics, then every Sunday: MoneyCall**\
 `Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
 https://nytimes.com/athletic/7021536/2026/02/04/nbc-super-bowl-60-winter-olympics-moneycall/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/04/us/jeffrey-epstein-woody-allen-daughter-bard-coll
 **Giants to hire Dawn Aponte, former league exec, in VP role: Source**\
 `Aponte has also worked in the front offices of the Jets, Browns and Dolphins.`\
 https://nytimes.com/athletic/7021524/2026/02/04/dawn-aponte-vp-new-york-giants/
-
-**Melinda French Gates Addresses New References to Bill Gates in Epstein Files**\
-`Messages in the latest Epstein files suggesting that Bill Gates had engaged in extramarital sex brought up “painful” memories, his former wife said in an interview. Mr. Gates has denied the claims.`\
-https://nytimes.com/2026/02/04/us/melinda-bill-gates-epstein-files.html
 
