@@ -1,3 +1,27 @@
+**Patriots Robert Spillane and K'Lavon Chaisson hit jackpot after leaving Las Vegas**\
+`Almost overnight, Spillane has gone from a 4-13 season with the Raiders to being a captain on a Super Bowl Patriots team.`\
+https://nytimes.com/athletic/7022158/2026/02/04/robert-spillane-klavon-chaisson-patriots-raiders-super-bowl/
+
+**The Briefing - Man City 3 Newcastle 1 (5-1 agg): Pep's team set up final with Arsenal. Will Howe ever win at Etihad?**\
+`Marmoush scored twice as City sealed their spot in the final, where they will face Mikel Arteta's Arsenal on March 22`\
+https://nytimes.com/athletic/7006952/2026/02/04/man-city-carabao-cup-final-arsenal-newcastle/
+
+**Carolyn Bessette Kennedy and John F. Kennedy Jr. Embraced at ‘Love Story’ Premiere**\
+`A party for Ryan Murphy’s new TV show about the couple drew a crowd that included Naomi Watts, Martha Stewart and Grace Gummer.`\
+https://nytimes.com/2026/02/04/style/love-story-ryan-murphy-carolyn-bessette-kennedy-jfk-jr.html
+
+**Blanche Marvin, 100, Dies; Critic Was, Maybe, ‘Streetcar’ Inspiration**\
+`She was a ubiquitous presence at London theaters and claimed to have inspired the name — and final words — of Tennessee Williams’s Blanche DuBois.`\
+https://nytimes.com/2026/02/04/theater/blanche-marvin-dead.html
+
+**The Inside Story of My 11 Interviews With Susie Wiles**\
+`What did her unguarded remarks reveal about the Trump White House?`\
+https://nytimes.com/2026/02/04/opinion/susie-wiles-trump-white-house.html
+
+**Tiny Love Stories: ‘I Mistook Her Optimism for an Act’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/02/04/style/tiny-modern-love-stories-i-mistook-her-optimism-for-an-act.html
+
 **Coby White trade grades: Hornets swing deal with Bulls to bolster postseason push**\
 `On paper, Collin Sexton and Coby White seem to do almost identical things. So which team won the trade?`\
 https://nytimes.com/athletic/7021970/2026/02/04/coby-white-trade-grades-hornets-bulls/
@@ -13,24 +37,4 @@ https://nytimes.com/2026/02/04/business/media/washington-post-layoffs-sports-sec
 **Google Profit Jumps 30 Percent on A.I. Gains**\
 `Profits rose to $34.5 billion last quarter, as the tech giant gained ground with its Gemini system, bolstering its search business and YouTube.`\
 https://nytimes.com/2026/02/04/business/google-earnings-ai.html
-
-**Five minutes into the Winter Olympics' first event, the lights went out on curling**\
-`It was unclear what caused the brief blip as players joked and killed time before the lights came on and action resumed.`\
-https://nytimes.com/athletic/7021730/2026/02/04/olympics-2026-curling-power-outage-blackout-lights/
-
-**Penguins' Caleb Jones suspended for 20 games**\
-`The Penguins signed Jones, who will be eligible to return versus Tampa Bay on April 2, to a two-year, $1.8 million contract last summer.`\
-https://nytimes.com/athletic/7022199/2026/02/04/penguins-defenseman-caleb-jones-suspended/
-
-**In Forcing the Clintons to Testify on Epstein, Comer Sets a New Precedent**\
-`The Republican chairman’s successful targeting of a former president who faces no charge of wrongdoing was the sort of tactic typical in an autocracy where leaders fear being jailed when they are out of power.`\
-https://nytimes.com/2026/02/04/us/politics/james-comer-clintons-epstein.html
-
-**Is ‘Wuthering Heights’ Actually the Greatest Love Story of All Time?**\
-`Catherine and Heathcliff are returning to the screen, but their passion burns brightest in a handful of sentences from Emily Brontë’s novel.`\
-https://nytimes.com/interactive/2026/02/04/books/wuthering-heights-emily-bronte-romance.html
-
-**Babies, Robots and Climate Change**\
-`It’s often assumed that lower birthrates could help slow climate change and A.I. disruption. The reality is more complex.`\
-https://nytimes.com/2026/02/04/world/population-decline-climate-change-ukraine-minneapolis.html
 
