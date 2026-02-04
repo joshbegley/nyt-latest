@@ -1,3 +1,15 @@
+**Israeli Strikes Kill At Least 21 Palestinians Across Gaza**\
+`Israel struck Gaza on Wednesday killing at least 21 Palestinians, according to local officials. The Israeli military said it was responding to an attack on its forces in Gaza that left one soldier severely wounded.`\
+https://nytimes.com/video/world/middleeast/100000010689367/israeli-strikes-kill-palestinians-gaza.html
+
+**WATCH: Patriots' free-agency spending set the table for Super Bowl run**\
+`Did you notice how the AFC Champion Patriots were built? With New England one win away from another Super Bowl title, let’s find out.`\
+https://nytimes.com/athletic/7018985/2026/02/04/patriots-free-agency-spending-super-bowl-video/
+
+**Film Club: ‘Dear ICE: Letters From Students Living in Fear’**\
+`What would you like to say to ICE agents, and to the children who are detained in immigration detention centers?`\
+https://nytimes.com/2026/02/04/learning/film-club-dear-ice-letters-from-students-living-in-fear.html
+
 **Man Convicted of Trying to Assassinate Trump Gets Life Sentence**\
 `Federal prosecutors told the judge that Ryan Routh had “plotted painstakingly” to ambush Donald J. Trump in 2024 at his golf course near West Palm Beach.`\
 https://nytimes.com/2026/02/04/us/man-convicted-of-trying-to-assassinate-trump-gets-life-sentence.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7021586/2026/02/04/curling-mixed-doubles-olympic-ga
 **NBC's plan to win the sports year: Super Bowl, Olympics, then every Sunday: MoneyCall**\
 `Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
 https://nytimes.com/athletic/7021536/2026/02/04/nbc-super-bowl-60-winter-olympics-moneycall/
-
-**How sportsbooks build Super Bowl bets: 'Every year, we find a couple new ones'**\
-`The Super Bowl is the biggest single betting game of the year. How do sportsbooks put together such an extensive list of bets?`\
-https://nytimes.com/athletic/7019995/2026/02/04/how-sportsbook-build-super-bowl-bets/
-
-**Does Framber Valdez fit with the Blue Jays? Breaking down the complications**\
-`For a team as deep as the Jays, Valdez is still a clear upgrade. But he's not an easy fit.`\
-https://nytimes.com/athletic/7021424/2026/02/04/blue-jays-framber-valdez-rumors-analysis/
-
-**Hochul Chooses Adrienne Adams to Join Her Re-election Ticket**\
-`Gov. Kathy Hochul announced that Ms. Adams, the former New York City Council speaker who recently ran for mayor, will be her running mate as lieutenant governor.`\
-https://nytimes.com/2026/02/04/nyregion/kathy-hochul-adrienne-adams-lieutenant-governor.html
 

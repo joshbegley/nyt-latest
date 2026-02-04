@@ -1,3 +1,7 @@
+**Keys and Gray to leave beIN Sports after current season**\
+`While there has been no fall-out between the parties, the pair's deal is not expected to be extended beyond the end of the season.`\
+https://nytimes.com/athletic/7021663/2026/02/04/keys-gray-bein-sports-leave/
+
 **Israeli Strikes Kill At Least 21 Palestinians Across Gaza**\
 `Israel struck Gaza on Wednesday killing at least 21 Palestinians, according to local officials. The Israeli military said it was responding to an attack on its forces in Gaza that left one soldier severely wounded.`\
 https://nytimes.com/video/world/middleeast/100000010689367/israeli-strikes-kill-palestinians-gaza.html
@@ -29,12 +33,4 @@ https://nytimes.com/2026/02/04/opinion/national-parks-us-history-trump.html
 **Prosecutor Fired After Voicing Frustration With Immigration Caseload**\
 `The prosecutor, Julie T. Le, told a judge that she and her colleagues in the U.S. attorney’s office were overwhelmed by the White House’s immigration operation in Minnesota.`\
 https://nytimes.com/2026/02/04/us/politics/prosecutor-immigration-outburst.html
-
-**Games Briefing: Let the curling begin**\
-`Welcome to Games Briefing, The Athletic's daily newsletter for the Milan Cortina Olympics.`\
-https://nytimes.com/athletic/7021586/2026/02/04/curling-mixed-doubles-olympic-games-briefing/
-
-**NBC's plan to win the sports year: Super Bowl, Olympics, then every Sunday: MoneyCall**\
-`Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
-https://nytimes.com/athletic/7021536/2026/02/04/nbc-super-bowl-60-winter-olympics-moneycall/
 
