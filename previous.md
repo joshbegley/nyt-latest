@@ -1,3 +1,19 @@
+**How the Thunder are winning the NBA trade deadline without doing anything**\
+`The Clippers' James Harden trade and the Jazz's decision to go in on Jaren Jackson Jr. could each significantly benefi the defending champs.`\
+https://nytimes.com/athletic/7021453/2026/02/04/nba-trade-deadline-thunder-james-harden-success/
+
+**State Fiscal Chiefs Protest Federal Immigration Chaos**\
+`Sixteen elected treasury officials, all Democrats, wrote to President Trump that ICE crackdowns are bad for business and for tax revenues: “People must feel safe to go to work.”`\
+https://nytimes.com/2026/02/04/business/economy/state-fiscal-protest-ice.html
+
+**Texas A&M Lecturer Who Was Fired Over Gender Lesson Sues University**\
+`In a federal lawsuit, the lecturer, Melissa McCoul, accused the university of violating the First Amendment.`\
+https://nytimes.com/2026/02/04/us/texas-am-lecturer-gender-lesson-lawsuit.html
+
+**Panthers’ Sam Bennett on last-minute Olympic call: ‘Really meant the world’**\
+`"In the end, it worked out for me. I’m very grateful for that," Bennett said of joining Team Canada for the Olympics.`\
+https://nytimes.com/athletic/7021335/2026/02/04/panthers-sam-bennett-olympics-team-canada/
+
 **How to watch Canadiens vs. Jets: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the Winnipeg Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7021414/2026/02/04/canadiens-vs-jets-stream-how-to-watch-feb-4/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7021392/2026/02/04/maryland-vs-michigan-state-strea
 **How to watch Michigan State vs. Minnesota men's basketball: Time, TV, streaming**\
 `Find out how to watch the Michigan State Spartans play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7021378/2026/02/04/michigan-state-vs-minnesota-stream-how-to-watch-feb-4/
-
-**How to watch Nebraska vs. Michigan women's basketball: Time, TV, streaming**\
-`Find out how to watch the Nebraska Cornhuskers play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7021376/2026/02/04/nebraska-vs-michigan-stream-how-to-watch-feb-4/
-
-**How to watch Notre Dame vs. Louisville men's basketball: Time, TV, streaming**\
-`Find out how to watch the Notre Dame Fighting Irish play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7021374/2026/02/04/notre-dame-vs-louisville-stream-how-to-watch-feb-4/
-
-**How to watch UCF vs. Houston men's basketball: Time, TV, streaming**\
-`Find out how to watch the UCF Knights play the Houston Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7021372/2026/02/04/ucf-vs-houston-stream-how-to-watch-feb-4/
-
-**How to watch Baylor vs. Cincinnati women's basketball: Time, TV, streaming**\
-`Find out how to watch the Baylor Bears play the Cincinnati Bearcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7021368/2026/02/04/baylor-vs-cincinnati-stream-how-to-watch-feb-4/
 
