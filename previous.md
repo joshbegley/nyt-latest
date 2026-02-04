@@ -1,3 +1,7 @@
+**How to Light a Room Like a Swede**\
+`Tips from experts who know dark winter days — and design — like no others.`\
+https://nytimes.com/2026/02/03/t-magazine/dark-winter-lighting-swedish-design.html
+
 **As Yasiel Puig trial wraps up, a prominent agent could face contempt charges**\
 `Baseball agent Danny Horwits is being ordered to testify in the federal government’s criminal trial against Puig.`\
 https://nytimes.com/athletic/7020148/2026/02/03/yasiel-puig-dodgers-trial-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7020110/2026/02/03/cincinnati-reds-eugenio-suarez-r
 **Penny, a Doberman pinscher, wins the working group.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2026/02/03/style/westminster-dog-show/penny-a-doberman-pinscher-wins-the-working-group
-
-**Proposed Utah bill would allow concealed carry at Jazz, Mammoth games**\
-`The politician who introduced the bill said its aim is to foster "a constructive dialogue" around constitutional rights and public funding.`\
-https://nytimes.com/athletic/7019867/2026/02/03/guns-utah-bill-jazz-mammoth-games/
 
