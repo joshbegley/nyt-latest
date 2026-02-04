@@ -1,3 +1,15 @@
+**Two Chinese Journalists Are Detained for Reporting on Corruption**\
+`The move against the men, who wrote an article that was critical of a local official, demonstrates how the space for independent voices has shrunk in China.`\
+https://nytimes.com/2026/02/04/world/asia/china-journalists-liu-hu-detained.html
+
+**What's next for Pistons after they traded Jaden Ivey in three-team deal**\
+`Detroit hopes Kevin Huerter can offer more outside shooting, and the team might have more moves to make before Thursday's deadline.`\
+https://nytimes.com/athletic/7020494/2026/02/04/pistons-nba-trade-deadline-jaden-ivey-kevin-huerter/
+
+**What I'm hearing on Isaac Paredes, Christian Walker and the infield surplus**\
+`Plus, insight into how Houston plans to keep Jose Altuve healthy and in the lineup, as well as plans for Cam Smith and the outfield.`\
+https://nytimes.com/athletic/7019650/2026/02/04/houston-astros-isaac-paredes-spring-training-insight/
+
 **New York Times Added 1.4 Million Digital Subscribers in 2025**\
 `The company reported total revenue of $802.3 million for the fourth quarter of 2025, up 10.4 percent from a year earlier.`\
 https://nytimes.com/2026/02/04/business/media/new-york-times-earnings.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7019126/2026/02/04/wsl-deadline-day-window-womens-f
 **Alabama, Georgia and trying to buck the national trend in the transfer portal**\
 `For both, their offseason approach and how they do in 2026 is a test case for college football roster-building.`\
 https://nytimes.com/athletic/7019759/2026/02/04/alabama-georgia-college-football-transfer-portal-classes/
-
-**College basketball teams are playing bigger than ever — and winning doing it**\
-`Michigan, Illinois and Duke are among the national title contenders that have gone all in on lineups with size.`\
-https://nytimes.com/athletic/7019565/2026/02/04/college-basketball-teams-height-michigan-duke/
-
-**Blackhawks insider: Mikheyev not worrying about future as trade deadline approaches**\
-`The pending UFA is beloved on the ice and in the locker room in Chicago, but contenders might make a deal too good to refuse.`\
-https://nytimes.com/athletic/7019056/2026/02/04/blackhawks-mikheyev-trade-deadline-levshunov-sorenson-olympics/
-
-**Moltbook Mania Explained**\
-`Is this the year the internet changes forever?`\
-https://nytimes.com/2026/02/04/podcasts/moltbook-mania-explained.html
 

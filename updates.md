@@ -1,3 +1,15 @@
+**Two Chinese Journalists Are Detained for Reporting on Corruption**\
+`The move against the men, who wrote an article that was critical of a local official, demonstrates how the space for independent voices has shrunk in China.`\
+https://nytimes.com/2026/02/04/world/asia/china-journalists-liu-hu-detained.html
+
+**What's next for Pistons after they traded Jaden Ivey in three-team deal**\
+`Detroit hopes Kevin Huerter can offer more outside shooting, and the team might have more moves to make before Thursday's deadline.`\
+https://nytimes.com/athletic/7020494/2026/02/04/pistons-nba-trade-deadline-jaden-ivey-kevin-huerter/
+
+**What I'm hearing on Isaac Paredes, Christian Walker and the infield surplus**\
+`Plus, insight into how Houston plans to keep Jose Altuve healthy and in the lineup, as well as plans for Cam Smith and the outfield.`\
+https://nytimes.com/athletic/7019650/2026/02/04/houston-astros-isaac-paredes-spring-training-insight/
+
 **New York Times Added 1.4 Million Digital Subscribers in 2025**\
 `The company reported total revenue of $802.3 million for the fourth quarter of 2025, up 10.4 percent from a year earlier.`\
 https://nytimes.com/2026/02/04/business/media/new-york-times-earnings.html
