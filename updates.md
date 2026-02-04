@@ -1,3 +1,7 @@
+**Cota, a Chesapeake Bay retriever, wins the sporting group.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2026/02/03/style/westminster-dog-show/cota-a-chesapeake-bay-retriever-wins-the-sporting-group
+
 **Racial Debate Rattles Texas Democratic Primary for Senate**\
 `State Representative James Talarico used the word “mediocre” to describe a former House member who is Black. The controversy has repercussions for a key contest.`\
 https://nytimes.com/2026/02/03/us/politics/texas-democratic-primary-senate.html
