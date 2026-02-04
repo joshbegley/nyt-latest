@@ -1,3 +1,11 @@
+**'Rick Tocchet wants Matvei to succeed': The latest on Michkov's complicated season**\
+`Michkov's production and ice time are down, and his coach still sounds frustrated about his lack of offseason training.`\
+https://nytimes.com/athletic/7019567/2026/02/03/matvei-michkov-tocchet-flyers-briere/
+
+**A Defiant Don Lemon Appears in New York Days After His Arrest**\
+`The anchorman, who was arrested over a protest in Minnesota, told an audience in Manhattan, “I’m not going to let them turn me around,” and sang lines from a civil rights era freedom song.`\
+https://nytimes.com/2026/02/03/nyregion/don-lemon-city-winery.html
+
 **Catherine O’Hara, Star of ‘Best in Show,’ Honored in Westminster Dog Show Tribute**\
 `Fans remembered the actress, who died last week at 71, for her role as the doting owner of a Norwich terrier destined for glory in the cult-classic sendup of dog show culture.`\
 https://nytimes.com/2026/02/03/style/catherine-ohara-westminster-dog-show.html
