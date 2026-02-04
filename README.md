@@ -1,40 +1,40 @@
-**Brian Scalabrine not surprised by Cooper Flagg's ascent in the NBA: 'He's the same kid'**\
-`"His ability to play through contact is the same as when he was 14," Scalabrine said of the Mavericks' 19-year-old rookie.`\
-https://nytimes.com/athletic/7020436/2026/02/04/cooper-flagg-brian-scalabrine-mavericks-celtics-nba/
+**New York Times Added 1.4 Million Digital Subscribers in 2025**\
+`The company reported total revenue of $802.3 million for the fourth quarter of 2025, up 10.4 percent from a year earlier.`\
+https://nytimes.com/2026/02/04/business/media/new-york-times-earnings.html
 
-**Remembering 10 stars who lost their best Olympic opportunity in 2018 and 2022**\
-`With all the excitement around the NHL returning to the Olympics, let's take a moment to remember those who never got the chance.`\
-https://nytimes.com/athletic/7019384/2026/02/04/nhl-olympics-stars-players-best-opportunities/
+**This Week in Sports Trivia: Super Bowl 60 edition**\
+`Think you know the Seahawks, the Patriots and Super Bowl history? Test your knowledge in this special edition of The Athletic's weekly quiz.`\
+https://nytimes.com/athletic/7019055/2026/02/04/this-week-in-sports-trivia-super-bowl-60/
 
-**Inside the Lakers' decision room ahead of Thursday's NBA trade deadline**\
-`Rival teams say the Lakers are active heading into Thursday's trade deadline, but their reality is shaped by their long-term cap plans. `\
-https://nytimes.com/athletic/7019025/2026/02/04/lakers-nba-trade-deadline-intel/
+**Maple Leafs fan survey: How did we get here? What should come next?**\
+`Have your say on the state of the team and where the focus should be going forward.`\
+https://nytimes.com/athletic/7020024/2026/02/04/maple-leafs-fan-survey-retool-offseason-trade-deadline/
 
-**Bears offseason primer: 5 key questions ahead of free agency and the draft**\
-`From the assessment of in-house free agents to positional priorities to salary-cap decisions, Ben Johnson and Ryan Poles face a heavy lift.`\
-https://nytimes.com/athletic/7018545/2026/02/04/bears-free-agency-draft-questions/
+**Quinn Hughes continues to root for Hutson's success: 'He's been fun to watch'**\
+`Lane Hutson has always looked up to Quinn Hughes, and the star Minnesota Wild defenceman made it clear the appreciation is mutual.`\
+https://nytimes.com/athletic/7020385/2026/02/04/canadiens-lane-hutson-olympics-hughes/
 
-**Eagles mailbag, Part II: A.J. Brown's future, decisions at TE, Super Bowl window**\
-`The Eagles' offseason plans could depend heavily on A.J. Brown and Lane Johnson.`\
-https://nytimes.com/athletic/7019688/2026/02/04/eagles-aj-brown-future-tight-ends-super-bowl-window/
+**Portal superlatives: Favorite college football transfer classes, underrated fits and more**\
+`Texas was one of the clear winners of the transfer portal window. Who else did well? Which teams didn't do enough? `\
+https://nytimes.com/athletic/7018579/2026/02/04/college-football-transfer-portal-favorite-classes-best-fits/
 
-**At Least 15 Die in Rare Collision Between Migrant Boat and Greek Patrol Vessel**\
-`Deadly shipwrecks often occur in the Aegean Sea, which is one of the main maritime routes to Europe, but they generally involve migrant boats sinking in stormy weather.`\
-https://nytimes.com/2026/02/04/world/europe/15-dead-migrant-clash-collision-greece.html
+**Who won the WSL's winter transfer window? A better question: does it matter?**\
+`The league's winter transfer window was quiet this year. That's not necessarily a bad thing`\
+https://nytimes.com/athletic/7019126/2026/02/04/wsl-deadline-day-window-womens-football/
 
-**Newell's Old Boys planning Messi return in 2027, vice president says**\
-`The eight-time Ballon d'Or winner scored 234 goals in the Argentinian club's youth system before moving to Barcelona at 13.`\
-https://nytimes.com/athletic/7020697/2026/02/04/lionel-messi-newells-old-boys-return/
+**Alabama, Georgia and trying to buck the national trend in the transfer portal**\
+`For both, their offseason approach and how they do in 2026 is a test case for college football roster-building.`\
+https://nytimes.com/athletic/7019759/2026/02/04/alabama-georgia-college-football-transfer-portal-classes/
 
-**St. Louis Cardinals 2026 top 20 prospects: JJ Wetherholt, Liam Doyle lead the way**\
-`The Cardinals' system has already made great strides under their new player development regime, though injuries dinged them some in 2025.`\
-https://nytimes.com/athletic/7016055/2026/02/04/st-louis-cardinals-2026-top-20-prospects-keith-law/
+**College basketball teams are playing bigger than ever — and winning doing it**\
+`Michigan, Illinois and Duke are among the national title contenders that have gone all in on lineups with size.`\
+https://nytimes.com/athletic/7019565/2026/02/04/college-basketball-teams-height-michigan-duke/
 
-**Williams sacrificed 2025 for 2026, so why is its F1 horizon still murky?**\
-`The Williams F1 team ended 2025 riding the high of its best championship result in eight years. Suddenly, that narrative is gone`\
-https://nytimes.com/athletic/7020542/2026/02/04/williams-f1-preview-murky-horizon/
+**Blackhawks insider: Mikheyev not worrying about future as trade deadline approaches**\
+`The pending UFA is beloved on the ice and in the locker room in Chicago, but contenders might make a deal too good to refuse.`\
+https://nytimes.com/athletic/7019056/2026/02/04/blackhawks-mikheyev-trade-deadline-levshunov-sorenson-olympics/
 
-**Pittsburgh Pirates 2026 top 20 prospects: Konnor Griffin, Bubba Chandler lead the way**\
-`The Pirates' system is on the rise and currently boasts MLB's top overall prospect and MLB's top pitching prospect.`\
-https://nytimes.com/athletic/7014818/2026/02/04/pittsburgh-pirates-2026-top-20-prospects-keith-law/
+**Moltbook Mania Explained**\
+`Is this the year the internet changes forever?`\
+https://nytimes.com/2026/02/04/podcasts/moltbook-mania-explained.html
 
