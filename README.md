@@ -1,3 +1,11 @@
+**Spurs fans' satisfaction with ownership at 'all-time low' - survey**\
+`More than 4,500 fans responded to THST's Five Principles Survey, the first since Daniel Levy was sacked as executive chairman.`\
+https://nytimes.com/athletic/7021716/2026/02/04/tottenham-fan-survey-ownership/
+
+**Islanders' Bo Horvat startled by bird on the ice during NHL game**\
+`Bo Horvat and the Islanders were playing against the Penguins on Tuesday but it was a different bird that became an obstacle on the ice. `\
+https://nytimes.com/athletic/7021690/2026/02/04/bo-horvat-bird-nhl-game/
+
 **Officials Say ICE Won’t Conduct a Super Bowl Surge. The Bay Area Is Skeptical.**\
 `Leaders in the San Francisco Bay Area have passed “anti-ICE” ordinances, and activists have planned protests and rapid response efforts ahead of the big game.`\
 https://nytimes.com/2026/02/04/us/super-bowl-san-francisco-ice.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/04/us/minnesota-educators-immigration-agents-lawsuit
 **In Spending Talks, Senators Clash Over Immigration Crackdown**\
 `Democrats’ push to rein in federal agents, and Republican opposition, reflect opposite views of whether the deportation drive should be bound by standard law enforcement rules.`\
 https://nytimes.com/2026/02/04/us/politics/senate-homeland-security-funding.html
-
-**Why the Grizzlies and Jazz were both winners in the Jaren Jackson Jr. trade**\
-`The 2027 NBA Draft class had an affect on both teams' decisions.`\
-https://nytimes.com/athletic/7019430/2026/02/04/jaren-jackson-jr-trade-grizzlies-jazz-winners/
-
-**Chevron to Explore Oil and Gas Work in Syria**\
-`Chevron has signed an initial agreement to start working in Syria, weeks after the Syrian government seized control of key oil and gas fields in the north of the country.`\
-https://nytimes.com/2026/02/04/world/middleeast/chevron-syria-gas-oil.html
 

@@ -1,3 +1,19 @@
+**Officials Say ICE Won’t Conduct a Super Bowl Surge. The Bay Area Is Skeptical.**\
+`Leaders in the San Francisco Bay Area have passed “anti-ICE” ordinances, and activists have planned protests and rapid response efforts ahead of the big game.`\
+https://nytimes.com/2026/02/04/us/super-bowl-san-francisco-ice.html
+
+**Read the Emails Between Jeffrey Epstein and Soon-Yi**\
+`Emails released by the U.S. Department of Justice show that Jeffrey Epstein helped Woody Allen and Soon-Yi Previn as one of their daughters was applying to colleges, connecting the family with the president of Bard College.`\
+https://nytimes.com/interactive/2026/02/04/us/jeffrey-epstein-woody-allen-soon-yi-bard-emails.html
+
+**Will the Lakers make a move? What's fixable and what isn't ahead of NBA trade deadline**\
+`As the NBA trade deadline looms, the Lakers must contront their roster truths. `\
+https://nytimes.com/athletic/7021668/2026/02/04/lakers-nba-trade-deadline-moves-predictions-latest/
+
+**Federal Agency Investigates Nike for Discrimination Against White Workers**\
+`The Equal Employment Opportunity Commission has worked under President Trump to dismantle diversity, equity and inclusion policies.`\
+https://nytimes.com/2026/02/04/business/eeoc-nike-white-employee-discrimination.html
+
 **Employment Commission Probes Nike for Discrimination Against White Workers**\
 `The Equal Employment Commission has worked under President Trump to dismantle diversity, equity and inclusion policies.`\
 https://nytimes.com/2026/02/04/business/eeoc-nike-white-employee-discrimination.html
