@@ -1,3 +1,7 @@
+**Employment Commission Probes Nike for Discrimination Against White Workers**\
+`The Equal Employment Commission has worked under President Trump to dismantle diversity, equity and inclusion policies.`\
+https://nytimes.com/2026/02/04/business/eeoc-nike-white-employee-discrimination.html
+
 **Supreme Court Clears Way for California Voting Map**\
 `The state’s Republican Party had asked the justices to step in and block the new congressional maps, which give an advantage to Democrats, before the midterms.`\
 https://nytimes.com/2026/02/04/us/politics/supreme-court-california-congressional-map.html
