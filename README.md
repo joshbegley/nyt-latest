@@ -1,3 +1,7 @@
+**Employment Commission Probes Nike for Discrimination Against White Workers**\
+`The Equal Employment Commission has worked under President Trump to dismantle diversity, equity and inclusion policies.`\
+https://nytimes.com/2026/02/04/business/eeoc-nike-white-employee-discrimination.html
+
 **Supreme Court Clears Way for California Voting Map**\
 `The state’s Republican Party had asked the justices to step in and block the new congressional maps, which give an advantage to Democrats, before the midterms.`\
 https://nytimes.com/2026/02/04/us/politics/supreme-court-california-congressional-map.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7021669/2026/02/04/denny-hamlin-injury-nascar/
 **Mickey Lolich, Tigers great and 1968 World Series MVP, dies at 85**\
 `Lolich leaves a legacy as one of the best left-handers in MLB history.`\
 https://nytimes.com/athletic/7021667/2026/02/04/tigers-mickey-lolich-mlb-death/
-
-**Have You Been Impacted by the Affordability Crisis? Tell Us.**\
-`We want to hear about how costs are having an impact on your life.`\
-https://nytimes.com/2026/02/04/us/affordability-callout.html
 
