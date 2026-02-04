@@ -1,3 +1,7 @@
+**Former Prince Andrew Moves Out of Royal Home Amid Fresh Epstein Revelations**\
+`Andrew Mountbatten-Windsor was stripped of his titles last year and told to give up his grand residence because of growing concern over his links to Jeffrey Epstein.`\
+https://nytimes.com/2026/02/04/world/europe/andrew-epstein-uk-home-windsor-sandringham.html
+
 **Giannis on likelihood of Bucks trade: 'I want to be here, but I want to be here to win'**\
 `“On what planet, on what Earth, would somebody want to leave this?” Giannis said when asked about finishing his career in Milwaukee.`\
 https://nytimes.com/athletic/7020803/2026/02/04/giannis-antetokounmpo-bucks-nba-trade-deadline/
