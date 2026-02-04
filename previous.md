@@ -1,3 +1,27 @@
+**Steve Kerr on Draymond Green, Warriors trade rumors: 'It puts guys on edge, for sure'**\
+`Kerr was asked prior to Tuesday's game whether he also felt Green wasn't concerned about whatever may happen in the coming days.`\
+https://nytimes.com/athletic/7020050/2026/02/03/draymond-green-trade-rumors-warriors-steve-kerr/
+
+**Tyler Robinson’s Lawyers Press to Remove Prosecutors From Kirk Murder Case**\
+`Mr. Robinson’s lawyers argue that the entire prosecution team has a conflict of interest because one prosecutor’s daughter was present when Charlie Kirk was killed.`\
+https://nytimes.com/2026/02/03/us/tyler-robinson-prosecutors-kirk-murder.html
+
+**NBA trade grades: Can James Harden and Donovan Mitchell fit together?**\
+`The deal involving Darius Garland is Harden's fourth in-season trade since 2020-21. Does it make sense for Cleveland?`\
+https://nytimes.com/athletic/7018552/2026/02/03/james-harden-trade-grades-darius-garland-clippers-cavs/
+
+**Backed by Mamdani, D.S.A. Candidate Wins Election for Mayor’s Old Seat**\
+`Diana Moreno will serve the remainder of Mayor Zohran Mamdani’s term in the New York State Assembly in one of four special legislative elections decided on Tuesday.`\
+https://nytimes.com/2026/02/03/nyregion/moreno-assembly-mamdani-election.html
+
+**Judge releases Venezuelan men charged in ICE shooting in Minneapolis, with conditions.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2026/02/03/us/minneapolis-ice-immigration/venezuelan-men-released-ice-shooting
+
+**Bryce James, LeBron’s son, to redshirt freshman season at Arizona**\
+`James has yet to see any game action, but was not expected to be a contributor as the 324th-ranked player in the 2025 class.`\
+https://nytimes.com/athletic/7020018/2026/02/03/bryce-james-arizona-redshirt-freshman-lebron/
+
 **Racial Debate Rattles Texas Democratic Primary for Senate**\
 `State Representative James Talarico used the word “mediocre” in connection with a former House member who is Black. The controversy has repercussions for a key contest.`\
 https://nytimes.com/2026/02/03/us/politics/texas-democratic-primary-senate.html
@@ -9,28 +33,4 @@ https://nytimes.com/athletic/7019859/2026/02/03/chargers-chris-oleary-jesse-mint
 **Cota, a Chesapeake Bay retriever, wins the sporting group.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2026/02/03/style/westminster-dog-show/cota-a-chesapeake-bay-retriever-wins-the-sporting-group
-
-**Trump, Changing Course, Throws Harvard Deal Talks Into Chaos**\
-`In the latest example of his mercurial negotiating style, President Trump went from dropping his ask for a $200 million fine to demanding $1 billion from the university.`\
-https://nytimes.com/2026/02/03/us/politics/trump-changing-course-throws-harvard-deal-talks-into-chaos.html
-
-**Harden traded to Cavaliers, Clippers get Garland in return: Sources**\
-`Trade talks moved quickly. The Cavaliers receive the veteran Harden, while LA gets the younger Garland.`\
-https://nytimes.com/athletic/7018896/2026/02/03/james-harden-trade-clippers-cavs-darius-garland/
-
-**2026 NBA All-Star Game format: What are the changes this season?**\
-`The NBA All-Star Game will have two U.S. teams and one squad of international players, and the setup includes a prize pool of $1.8 million.`\
-https://nytimes.com/athletic/7002284/2026/02/03/nba-all-star-format-explained-2026/
-
-**Amid trade rumors, Giannis holds rehab session before Bucks game**\
-`The Bucks' star went through a 30-minute pregame workout as he works back from a calf injury.`\
-https://nytimes.com/athletic/7019920/2026/02/03/giannis-antetokounmpo-trade-rumors-injury-update-bucks/
-
-**In Ohio, I Caught a Glimpse of the New Resistance**\
-`It’s not just blue America where people are readying themselves for disaster.`\
-https://nytimes.com/2026/02/03/opinion/ohio-resistance-trump-ice.html
-
-**Jazz scramble trade deadline and show they want to win again with Jaren Jackson Jr. deal**\
-`The biggest remaining question: What other dominoes might fall from this trade at the deadline and this offseason?`\
-https://nytimes.com/athletic/7019146/2026/02/03/jazz-jaren-jackson-nba-trade-deadline/
 
