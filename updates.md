@@ -1,3 +1,7 @@
+**Harden traded to Cavaliers, Clippers get Garland in return: Sources**\
+`Trade talks moved quickly. The Cavaliers receive the veteran Harden, while LA gets the younger Garland.`\
+https://nytimes.com/athletic/7018896/2026/02/03/james-harden-trade-clippers-cavs-darius-garland/
+
 **2026 NBA All-Star Game format: What are the changes this season?**\
 `The NBA All-Star Game will have two U.S. teams and one squad of international players, and the setup includes a prize pool of $1.8 million.`\
 https://nytimes.com/athletic/7002284/2026/02/03/nba-all-star-format-explained-2026/

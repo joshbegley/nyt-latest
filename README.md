@@ -1,3 +1,11 @@
+**Racial Debate Rattles Texas Democratic Primary for Senate**\
+`State Representative James Talarico used the word “mediocre” to describe a former House member who is Black. The controversy has repercussions for a key contest.`\
+https://nytimes.com/2026/02/03/us/politics/texas-democratic-primary-senate.html
+
+**Trump, Changing Course, Throws Harvard Deal Talks Into Chaos**\
+`In the latest example of his mercurial negotiating style, President Trump went from dropping his ask for a $200 million fine to demanding $1 billion from the university.`\
+https://nytimes.com/2026/02/03/us/politics/trump-changing-course-throws-harvard-deal-talks-into-chaos.html
+
 **Harden traded to Cavaliers, Clippers get Garland in return: Sources**\
 `Trade talks moved quickly. The Cavaliers receive the veteran Harden, while LA gets the younger Garland.`\
 https://nytimes.com/athletic/7018896/2026/02/03/james-harden-trade-clippers-cavs-darius-garland/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7019320/2026/02/03/cardinals-mike-lafleur-coach-imp
 **Kawhi Leonard added to NBA All-Star Game U.S. player pool by commissioner Adam Silver**\
 `Leonard’s All-Star selection is the seventh of his career, his fourth as a Clipper. Leonard won the All-Star Game MVP in 2020.`\
 https://nytimes.com/athletic/7019772/2026/02/03/kawhi-leonard-nba-all-star-game-selection-adam-silver/
-
-**The top judge is partial to Pekingese, but only at home.**\
-`David Fitzpatrick has led two Pekingese to Westminster glory, but when it comes time to select best in show, he knows “how to appreciate all dogs.”`\
-https://nytimes.com/live/2026/02/03/style/westminster-dog-show/the-top-judge-is-partial-to-pekingese-but-only-at-home
-
-**New Mission for a Pro-Business Agency in New York: Fighting for Workers**\
-`According to a Jan. 2 memo obtained by The New York Times, Mayor Zohran Mamdani wants to remake the Economic Development Corporation to address affordability and workers’ rights.`\
-https://nytimes.com/2026/02/03/nyregion/mamdani-economic-development-corporation-nyc.html
 
