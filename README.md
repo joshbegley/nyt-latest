@@ -1,3 +1,7 @@
+**Penny, a Doberman Pinscher, Wins 150th Westminster Dog Show**\
+`Penny, an easygoing Doberman pinscher with a rich, shiny black coat, won the 150th Westminster Kennel Club Dog Show, becoming the fifth member of her breed to ever win best in show.`\
+https://nytimes.com/video/style/100000010689477/westminster-dog-show-penny-doberman.html
+
 **Former Prince Andrew Moves Out of Royal Home Amid Fresh Epstein Revelations**\
 `Andrew Mountbatten-Windsor was stripped of his titles last year and told to give up his grand residence because of growing concern over his links to Jeffrey Epstein.`\
 https://nytimes.com/2026/02/04/world/europe/andrew-epstein-uk-home-windsor-sandringham.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010689304/trump-kaitlan-collins-cnn-
 **The Washington Post eliminates sports section as part of wider layoffs**\
 `The Post's sports section was a longstanding foundation for sports fans in the D.C. region.`\
 https://nytimes.com/athletic/7019090/2026/02/04/washington-post-sports-layoffs/
-
-**The Israeli Politician Fighting to Keep the Two-State Solution Alive**\
-`To many Israelis, he’s a war hero. To others, he’s a traitor guilty of “blood libel.” Can Yair Golan change politics in Israel?`\
-https://nytimes.com/2026/02/04/magazine/yair-golan-israel-palestine-gaza-war.html
 
