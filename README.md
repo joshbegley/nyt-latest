@@ -1,5 +1,17 @@
-**Employment Commission Probes Nike for Discrimination Against White Workers**\
-`The Equal Employment Commission has worked under President Trump to dismantle diversity, equity and inclusion policies.`\
+**Officials Say ICE Won’t Conduct a Super Bowl Surge. The Bay Area Is Skeptical.**\
+`Leaders in the San Francisco Bay Area have passed “anti-ICE” ordinances, and activists have planned protests and rapid response efforts ahead of the big game.`\
+https://nytimes.com/2026/02/04/us/super-bowl-san-francisco-ice.html
+
+**Read the Emails Between Jeffrey Epstein and Soon-Yi**\
+`Emails released by the U.S. Department of Justice show that Jeffrey Epstein helped Woody Allen and Soon-Yi Previn as one of their daughters was applying to colleges, connecting the family with the president of Bard College.`\
+https://nytimes.com/interactive/2026/02/04/us/jeffrey-epstein-woody-allen-soon-yi-bard-emails.html
+
+**Will the Lakers make a move? What's fixable and what isn't ahead of NBA trade deadline**\
+`As the NBA trade deadline looms, the Lakers must contront their roster truths. `\
+https://nytimes.com/athletic/7021668/2026/02/04/lakers-nba-trade-deadline-moves-predictions-latest/
+
+**Federal Agency Investigates Nike for Discrimination Against White Workers**\
+`The Equal Employment Opportunity Commission has worked under President Trump to dismantle diversity, equity and inclusion policies.`\
 https://nytimes.com/2026/02/04/business/eeoc-nike-white-employee-discrimination.html
 
 **Supreme Court Clears Way for California Voting Map**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7019430/2026/02/04/jaren-jackson-jr-trade-grizzlies
 **Chevron to Explore Oil and Gas Work in Syria**\
 `Chevron has signed an initial agreement to start working in Syria, weeks after the Syrian government seized control of key oil and gas fields in the north of the country.`\
 https://nytimes.com/2026/02/04/world/middleeast/chevron-syria-gas-oil.html
-
-**France’s Raid on X Escalates Trans-Atlantic Showdown Over Social Media**\
-`The French investigation into Elon Musk’s X illustrated a fundamental divide between European and American leaders about how to regulate social media — or whether to restrict it at all.`\
-https://nytimes.com/2026/02/04/world/europe/social-media-free-speech.html
-
-**Denny Hamlin reveals injured shoulder, speaks for first time since father's death**\
-`The driver will attempt to race through the injury this season.`\
-https://nytimes.com/athletic/7021669/2026/02/04/denny-hamlin-injury-nascar/
-
-**Mickey Lolich, Tigers great and 1968 World Series MVP, dies at 85**\
-`Lolich leaves a legacy as one of the best left-handers in MLB history.`\
-https://nytimes.com/athletic/7021667/2026/02/04/tigers-mickey-lolich-mlb-death/
 
