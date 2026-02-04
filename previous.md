@@ -1,3 +1,7 @@
+**Austin Reaves' 19-game absence from Lakers ends with blowout win vs. Nets**\
+`Reaves, who hadn’t played since Dec. 25 with a grade 2 calf strain, scored 15 points in 20 minutes off the bench in the Lakers’ blowout win.`\
+https://nytimes.com/athletic/7020208/2026/02/03/lakers-austin-reaves-injury-update-calf/
+
 **Strong Point**\
 `Hanh Huynh and Ted Mayer make their collaboration debut in the New York Times Crossword.`\
 https://nytimes.com/2026/02/03/crosswords/daily-puzzle-2026-02-04.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7020050/2026/02/03/draymond-green-trade-rumors-warr
 **Tyler Robinson’s Lawyers Press to Remove Prosecutors From Kirk Murder Case**\
 `Mr. Robinson’s lawyers argue that the entire prosecution team has a conflict of interest because one prosecutor’s daughter was present when Charlie Kirk was killed.`\
 https://nytimes.com/2026/02/03/us/tyler-robinson-prosecutors-kirk-murder.html
-
-**Trade grades: Clippers, Cavs shake things up ahead of deadline**\
-`The deal involving Darius Garland is Harden's fourth in-season trade since 2020-21. Does it make sense for Cleveland?`\
-https://nytimes.com/athletic/7018552/2026/02/03/james-harden-trade-grades-darius-garland-clippers-cavs/
 

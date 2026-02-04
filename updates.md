@@ -1,3 +1,7 @@
+**Austin Reaves' 19-game absence from Lakers ends with blowout win vs. Nets**\
+`Reaves, who hadn’t played since Dec. 25 with a grade 2 calf strain, scored 15 points in 20 minutes off the bench in the Lakers’ blowout win.`\
+https://nytimes.com/athletic/7020208/2026/02/03/lakers-austin-reaves-injury-update-calf/
+
 **Strong Point**\
 `Hanh Huynh and Ted Mayer make their collaboration debut in the New York Times Crossword.`\
 https://nytimes.com/2026/02/03/crosswords/daily-puzzle-2026-02-04.html
