@@ -1,3 +1,7 @@
+**Trump’s Call to ‘Nationalize’ Elections Adds to State Officials’ Alarm**\
+`Some top state election officials, who run voting across the country, worry that the federal government has become hostile to them and their work.`\
+https://nytimes.com/2026/02/04/us/politics/trump-election-states-midterms.html
+
 **Penny, a Doberman Pinscher, Wins 150th Westminster Dog Show**\
 `Penny, an easygoing Doberman pinscher with a rich, shiny black coat, won the 150th Westminster Kennel Club Dog Show, becoming the fifth member of her breed to ever win best in show.`\
 https://nytimes.com/video/style/100000010689477/westminster-dog-show-penny-doberman.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7007779/2026/02/04/frank-reich-new-york-jets-oc/
 **Trump Berates Female Reporter Pressing Him on Epstein for Not Smiling**\
 `President Trump scolded CNN’s chief White House correspondent, Kaitlan Collins, after she asked about the latest release of files related to Jeffrey Epstein, calling her “the worst reporter.”`\
 https://nytimes.com/video/us/politics/100000010689304/trump-kaitlan-collins-cnn-smile.html
-
-**The Washington Post eliminates sports section as part of wider layoffs**\
-`The Post's sports section was a longstanding foundation for sports fans in the D.C. region.`\
-https://nytimes.com/athletic/7019090/2026/02/04/washington-post-sports-layoffs/
 

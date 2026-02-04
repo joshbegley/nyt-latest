@@ -1,3 +1,11 @@
+**Penny, a Doberman Pinscher, Wins 150th Westminster Dog Show**\
+`Penny, an easygoing Doberman pinscher with a rich, shiny black coat, won the 150th Westminster Kennel Club Dog Show, becoming the fifth member of her breed to ever win best in show.`\
+https://nytimes.com/video/style/100000010689477/westminster-dog-show-penny-doberman.html
+
+**Trump Berates Female Reporter Pressing Him on Epstein for Not Smiling**\
+`President Trump scolded CNN’s chief White House correspondent, Kaitlan Collins, after she asked about the latest release of files related to Jeffrey Epstein, calling her “the worst reporter.”`\
+https://nytimes.com/video/us/politics/100000010689304/trump-kaitlan-collins-cnn-smile.html
+
 **Former Prince Andrew Moves Out of Royal Home Amid Fresh Epstein Revelations**\
 `Andrew Mountbatten-Windsor was stripped of his titles last year and told to give up his grand residence because of growing concern over his links to Jeffrey Epstein.`\
 https://nytimes.com/2026/02/04/world/europe/andrew-epstein-uk-home-windsor-sandringham.html
