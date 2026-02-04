@@ -1,3 +1,7 @@
+**Team GB goes to CAS over skeleton helmet ban at Winter Olympics**\
+`The IBSF says the aerodynamic shape of the British helmets does not comply with the rules.`\
+https://nytimes.com/athletic/7021446/2026/02/04/skeleton-helmet-team-gb-cas-olympics/
+
 **Are You ‘Biohacking’ to Perform Better at Work? We Want to Hear From You.**\
 `Please tell us what changes you’ve made to your health and wellness practices to improve your brain function and job performance. We may include your experiences in an article.`\
 https://nytimes.com/2026/02/04/business/are-you-biohacking-to-perform-better-at-work-we-want-to-hear-from-you.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7021414/2026/02/04/canadiens-vs-jets-stream-how-to-
 **How to watch Blackhawks vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7021411/2026/02/04/blackhawks-vs-blue-jackets-stream-how-to-watch-feb-4/
-
-**How to watch Bruins vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7021407/2026/02/04/bruins-vs-panthers-stream-how-to-watch-feb-4/
 

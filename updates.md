@@ -1,3 +1,7 @@
+**Team GB goes to CAS over skeleton helmet ban at Winter Olympics**\
+`The IBSF says the aerodynamic shape of the British helmets does not comply with the rules.`\
+https://nytimes.com/athletic/7021446/2026/02/04/skeleton-helmet-team-gb-cas-olympics/
+
 **Are You ‘Biohacking’ to Perform Better at Work? We Want to Hear From You.**\
 `Please tell us what changes you’ve made to your health and wellness practices to improve your brain function and job performance. We may include your experiences in an article.`\
 https://nytimes.com/2026/02/04/business/are-you-biohacking-to-perform-better-at-work-we-want-to-hear-from-you.html
