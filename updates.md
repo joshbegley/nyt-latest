@@ -1,3 +1,8 @@
+**The Bounce: Ranking Tuesday's NBA trades on impact, Harden's exits on comedy**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7021211/2026/02/04/the-bounce-james-harden-nba-trade-deadline/
+
 **Border Czar Says He Is Pulling 700 Immigration Agents Out of Minneapolis**\
 `About 2,000 personnel will be left in the city, where the killings of two protesters against President Trump’s immigration crackdown by federal agents have generated outrage.`\
 https://nytimes.com/2026/02/04/us/politics/homan-minnesota-dhs-immigration-agents.html
