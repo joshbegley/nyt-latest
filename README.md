@@ -1,3 +1,7 @@
+**University of Southern California Names a Lawyer as Its New President**\
+`The president, Beong-Soo Kim, had served on an interim basis and already faced pressure from the Trump administration to join a higher education compact to follow a set of conservative ideas. He refused.`\
+https://nytimes.com/2026/02/04/us/usc-new-president-kim.html
+
 **Lane Kiffin has high expectations for top-ranked portal class: 'They need to produce'**\
 `Kiffin said that transfer quarterback Sam Leavitt will be limited in spring practice while recovering from injury.`\
 https://nytimes.com/athletic/7021787/2026/02/04/lane-kiffin-lsu-transfer-portal-class/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/04/style/love-story-ryan-murphy-carolyn-bessette-ken
 **Blanche Marvin, 100, Dies; Critic Was, Maybe, ‘Streetcar’ Inspiration**\
 `She was a ubiquitous presence at London theaters and claimed to have inspired the name — and final words — of Tennessee Williams’s Blanche DuBois.`\
 https://nytimes.com/2026/02/04/theater/blanche-marvin-dead.html
-
-**This Is the Real Reason Susie Wiles Talked to Me 11 Times**\
-`What did her unguarded remarks reveal about the Trump White House?`\
-https://nytimes.com/2026/02/04/opinion/susie-wiles-trump-white-house.html
 
