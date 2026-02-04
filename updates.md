@@ -1,3 +1,11 @@
+**College basketball mailbag: Which coaches will be top candidates in carousel season?**\
+`Saint Louis' Josh Schertz is the hottest name in the carousel this season, but will he leave?`\
+https://nytimes.com/athletic/7020898/2026/02/04/college-basketball-mailbag-coaching-carousel-josh-schertz/
+
+**Inside the Cavs' bold decision to swap Darius Garland for James Harden**\
+`Cleveland's dramatic shakeup began with a January staff-wide Zoom call and included pressure from Donovan Mitchell.`\
+https://nytimes.com/athletic/7020852/2026/02/04/james-harden-darius-garland-cavaliers-trade/
+
 **Inside the Cavs' bold decision to swap Darius Garland for James Harden**\
 `As the Cleveland Cavaliers were wrecked with injuries last month and hovering around .`\
 https://nytimes.com/athletic/7020852/2026/02/04/james-harden-darius-garland-cavaliers-trade/

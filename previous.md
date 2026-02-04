@@ -1,5 +1,9 @@
+**College basketball mailbag: Which coaches will be top candidates in carousel season?**\
+`Saint Louis' Josh Schertz is the hottest name in the carousel this season, but will he leave?`\
+https://nytimes.com/athletic/7020898/2026/02/04/college-basketball-mailbag-coaching-carousel-josh-schertz/
+
 **Inside the Cavs' bold decision to swap Darius Garland for James Harden**\
-`As the Cleveland Cavaliers were wrecked with injuries last month and hovering around .`\
+`Cleveland's dramatic shakeup began with a January staff-wide Zoom call and included pressure from Donovan Mitchell.`\
 https://nytimes.com/athletic/7020852/2026/02/04/james-harden-darius-garland-cavaliers-trade/
 
 **Why A.I. Fears Are Battering Stocks, Again**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7017351/2026/02/04/edmonton-oilers-bold-predictions
 **Trump Administration Live Updates: Ukraine and Russia Talks Resume, After Bombardment by Moscow**\
 ``\
 https://nytimes.com/live/2026/02/04/us/trump-news
-
-**Does Rock Music Still Matter?**\
-`Does the growing popularity of bands like Geese mean rock is still alive and well? Or, from the point of view of Gen Z, is rock dead?`\
-https://nytimes.com/2026/02/04/learning/does-rock-music-still-matter.html
 
