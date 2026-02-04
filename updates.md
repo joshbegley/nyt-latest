@@ -1,3 +1,7 @@
+**Giannis on likelihood of Bucks trade: 'I want to be here, but I want to be here to win'**\
+`“On what planet, on what Earth, would somebody want to leave this?” Giannis said when asked about finishing his career in Milwaukee.`\
+https://nytimes.com/athletic/7020803/2026/02/04/giannis-antetokounmpo-bucks-nba-trade-deadline/
+
 **Anton Stach expected to miss Leeds' next two matches with hip injury**\
 `Jaka Bijol, who has missed the last three games with a hamstring issue, could make a return to the matchday squad.`\
 https://nytimes.com/athletic/7021073/2026/02/04/leeds-team-news-stach-bijol/
