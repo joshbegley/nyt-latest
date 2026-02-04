@@ -1,3 +1,19 @@
+**Impressions of new Cardinals coach Mike LaFleur start with youth, end with intelligence**\
+`The coach who never ages was hired at a place that ages everyone, making the Cardinals' hire an interesting juxtaposition.`\
+https://nytimes.com/athletic/7019320/2026/02/03/cardinals-mike-lafleur-coach-impressions-intelligence/
+
+**Kawhi Leonard added to NBA All-Star Game U.S. player pool by commissioner Adam Silver**\
+`Leonard’s All-Star selection is the seventh of his career, and fourth as a Clipper. Leonard won the All-Star Game MVP in 2020.`\
+https://nytimes.com/athletic/7019772/2026/02/03/kawhi-leonard-nba-all-star-game-selection-adam-silver/
+
+**The top judge is partial to Pekingese, but only at home.**\
+`David Fitzpatrick has led two Pekingese to Westminster glory, but when it comes time to select best in show, he knows “how to appreciate all dogs.”`\
+https://nytimes.com/live/2026/02/03/style/westminster-dog-show/the-top-judge-is-partial-to-pekingese-but-only-at-home
+
+**A New Mission for a N.Y.C. Development Agency: Economic Justice**\
+`According to a Jan. 2 memo obtained by The New York Times, Mayor Zohran Mamdani wants to remake the agency as part of his vow to address affordability and workers’ rights.`\
+https://nytimes.com/2026/02/03/nyregion/mamdani-economic-development-corporation-nyc.html
+
 **How to watch Seahawks at Patriots: Super Bowl Time, TV, streaming**\
 `Find out how to watch the Seattle Seahawks play the New England Patriots, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7019851/2026/02/03/seahawks-vs-patriots-stream-how-to-watch-feb-8/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/03/nyregion/epstein-files-victim-names.html
 **Plastic Surgeons’ Group Advises Delaying Gender-Affirming Procedures Until Age 19**\
 `The organization’s latest guidance is a departure from the prevailing views of several other major medical organizations.`\
 https://nytimes.com/2026/02/03/health/plastic-surgery-gender-affirming-procedures.html
-
-**NBA Trade Board 3.0: After flurry of deals, 10 players who could be on the move**\
-`With the Bucks officially listening to offers on Giannis Antetokounmpo, there is no one else who can top this list.`\
-https://nytimes.com/athletic/7019611/2026/02/03/nba-trade-deadline-players-available-giannis-antetokounmpo/
-
-**Netflix Leader Pushes Warner Deal Before Skeptical Lawmakers**\
-`Senators asked Ted Sarandos about whether the acquisition would raise prices, squeeze talent and degrade the moviegoing experience.`\
-https://nytimes.com/2026/02/03/business/media/netflix-sarandos-warner-senate-hearing.html
-
-**Stephen Miran Resigns From White House as Fed Term Stretches On**\
-`Mr. Miran had taken a leave of absence from advising the president after adding a role at the Federal Reserve, drawing criticism from Democrats.`\
-https://nytimes.com/2026/02/03/business/stephen-miran-resigns-white-house-fed.html
-
-**Seif al-Islam el-Qaddafi, Son of Libyan Dictator, Is Killed in Attack, Lawyer Says**\
-`Mr. el-Qaddafi, 53, a politician and a son of Col. Muammar el-Qaddafi, was killed after four men stormed his house, the lawyer said. No other details were released.`\
-https://nytimes.com/2026/02/03/world/middleeast/libya-seif-al-islam-el-qaddafi-killed.html
 
