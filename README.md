@@ -1,3 +1,11 @@
+**Why A.I. Fears Are Battering Stocks, Again**\
+`New tools by artificial intelligence companies like Anthropic have reignited worries that businesses will pare down their subscriptions to software services.`\
+https://nytimes.com/2026/02/04/business/dealbook/ai-software-stocks-anthropic.html
+
+**Novo Nordisk Warns of First Sales Drop Since Start of Ozempic**\
+`The once high-flying Danish drugmaker has struggled to fend off rivals in the weight-loss industry and faces lower prices for its medicines under a deal with President Trump.`\
+https://nytimes.com/2026/02/04/business/novo-nordisk-wegovy-sales-earnings.html
+
 **Bedrock, an A.I. Start-Up for Construction, Raises $270 Million**\
 `The year-old company, founded by veterans of the autonomous vehicle business Waymo, is seeking to automate excavators and other building equipment.`\
 https://nytimes.com/2026/02/04/business/dealbook/bedrock-robotics-ai-fundraise.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/04/learning/does-rock-music-still-matter.html
 **Ex-England striker Carroll pleads not guilty to breaching non-molestation order**\
 `The 37-year-old will next appear at Chelmsford Crown Court on March 4 for a plea and trial preparation hearing.`\
 https://nytimes.com/athletic/7020879/2026/02/04/andy-carroll-court-case-not-guilty/
-
-**Mandel's Mailbag: NCAA's eligibility mess spirals and how a new CFP field would look**\
-`Plus, will Kyle Whittingham and Michigan reach the Playoff? And why fans should get used to chaotic CFP outcomes.`\
-https://nytimes.com/athletic/7020069/2026/02/04/college-football-playoff-format-ncaa-eligibility/
-
-**Two Chinese Journalists Are Detained for Reporting on Corruption**\
-`The move against the men, who wrote an article that was critical of a local official, demonstrates how the space for independent voices has shrunk in China.`\
-https://nytimes.com/2026/02/04/world/asia/china-journalists-liu-hu-detained.html
 

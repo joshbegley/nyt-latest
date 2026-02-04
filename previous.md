@@ -1,3 +1,7 @@
+**Bedrock, an A.I. Start-Up for Construction, Raises $270 Million**\
+`The year-old company, founded by veterans of the autonomous vehicle business Waymo, is seeking to automate excavators and other building equipment.`\
+https://nytimes.com/2026/02/04/business/dealbook/bedrock-robotics-ai-fundraise.html
+
 **Investigators Scramble for Clues as Search for Nancy Guthrie Enters 4th Day**\
 `The authorities made urgent pleas for help from the public as they tried to locate Ms. Guthrie, the 84-year-old mother of the “Today” anchor Savannah Guthrie.`\
 https://nytimes.com/2026/02/04/us/savannah-nancy-guthrie-mom-missing-updates.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7020069/2026/02/04/college-football-playoff-format-
 **Two Chinese Journalists Are Detained for Reporting on Corruption**\
 `The move against the men, who wrote an article that was critical of a local official, demonstrates how the space for independent voices has shrunk in China.`\
 https://nytimes.com/2026/02/04/world/asia/china-journalists-liu-hu-detained.html
-
-**What's next for Pistons after they traded Jaden Ivey in three-team deal**\
-`Detroit hopes Kevin Huerter can offer more outside shooting, and the team might have more moves to make before Thursday's deadline.`\
-https://nytimes.com/athletic/7020494/2026/02/04/pistons-nba-trade-deadline-jaden-ivey-kevin-huerter/
 

@@ -1,3 +1,7 @@
+**Bedrock, an A.I. Start-Up for Construction, Raises $270 Million**\
+`The year-old company, founded by veterans of the autonomous vehicle business Waymo, is seeking to automate excavators and other building equipment.`\
+https://nytimes.com/2026/02/04/business/dealbook/bedrock-robotics-ai-fundraise.html
+
 **Investigators Scramble for Clues as Search for Nancy Guthrie Enters 4th Day**\
 `The authorities made urgent pleas for help from the public as they tried to locate Ms. Guthrie, the 84-year-old mother of the “Today” anchor Savannah Guthrie.`\
 https://nytimes.com/2026/02/04/us/savannah-nancy-guthrie-mom-missing-updates.html
