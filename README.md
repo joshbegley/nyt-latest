@@ -1,3 +1,7 @@
+**Have You Been Impacted by the Affordability Crisis? Tell Us.**\
+`We want to hear about how costs are having an impact on your life.`\
+https://nytimes.com/2026/02/04/us/affordability-callout.html
+
 **Keys and Gray to leave beIN Sports after current season**\
 `While there has been no fall-out between the parties, the pair's deal is not expected to be extended beyond the end of the season.`\
 https://nytimes.com/athletic/7021663/2026/02/04/keys-gray-bein-sports-leave/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/04/nyregion/bright-horizons-child-abuse-nyc.html
 **Erasing American History, the Trump Way**\
 `Readers object to the National Park Service’s deletions at historic sites ordered by the Trump administration. Also: David Brooks’s farewell column.`\
 https://nytimes.com/2026/02/04/opinion/national-parks-us-history-trump.html
-
-**Prosecutor Fired After Voicing Frustration With Immigration Caseload**\
-`The prosecutor, Julie T. Le, told a judge that she and her colleagues in the U.S. attorney’s office were overwhelmed by the White House’s immigration operation in Minnesota.`\
-https://nytimes.com/2026/02/04/us/politics/prosecutor-immigration-outburst.html
 
