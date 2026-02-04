@@ -1,3 +1,11 @@
+**In Spending Talks, Senators Clash Over Immigration Crackdown**\
+`Democrats’ push to rein in federal agents, and Republican opposition, reflect opposite views of whether the deportation drive should be bound by standard law enforcement rules.`\
+https://nytimes.com/2026/02/04/us/politics/senate-homeland-security-funding.html
+
+**Why the Grizzlies and Jazz were both winners in the Jaren Jackson Jr. trade**\
+`The 2027 NBA Draft class had an affect on both teams' decisions.`\
+https://nytimes.com/athletic/7019430/2026/02/04/jaren-jackson-jr-trade-grizzlies-jazz-winners/
+
 **Chevron to Explore Oil and Gas Work in Syria**\
 `Chevron has signed an initial agreement to start working in Syria, weeks after the Syrian government seized control of key oil and gas fields in the north of the country.`\
 https://nytimes.com/2026/02/04/world/middleeast/chevron-syria-gas-oil.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7021663/2026/02/04/keys-gray-bein-sports-leave/
 **Israeli Strikes Kill At Least 21 Palestinians Across Gaza**\
 `Israel struck Gaza on Wednesday killing at least 21 Palestinians, according to local officials. The Israeli military said it was responding to an attack on its forces in Gaza that left one soldier severely wounded.`\
 https://nytimes.com/video/world/middleeast/100000010689367/israeli-strikes-kill-palestinians-gaza.html
-
-**WATCH: Patriots' free-agency spending set the table for Super Bowl run**\
-`Did you notice how the AFC Champion Patriots were built? With New England one win away from another Super Bowl title, let’s find out.`\
-https://nytimes.com/athletic/7018985/2026/02/04/patriots-free-agency-spending-super-bowl-video/
-
-**Film Club: ‘Dear ICE: Letters From Students Living in Fear’**\
-`What would you like to say to ICE agents, and to the children who are detained in immigration detention centers?`\
-https://nytimes.com/2026/02/04/learning/film-club-dear-ice-letters-from-students-living-in-fear.html
 
