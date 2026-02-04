@@ -1,3 +1,11 @@
+**Lane Kiffin has high expectations for top-ranked portal class: 'They need to produce'**\
+`Kiffin said that transfer quarterback Sam Leavitt will be limited in spring practice while recovering from injury.`\
+https://nytimes.com/athletic/7021787/2026/02/04/lane-kiffin-lsu-transfer-portal-class/
+
+**Dutch Queen Joins Armed Forces in Symbolic Move of Support for Military**\
+`Queen Máxima of the Netherlands enlisted as a reservist, the Royal House said, because the country’s security “can no longer be taken for granted.”`\
+https://nytimes.com/2026/02/04/world/europe/netherlands-queen-maxima-military.html
+
 **Lonzo Ball traded to Jazz as Cavaliers continue to clear salary: Sources**\
 `Utah is expected to waive Ball, while the Cavaliers clear his $10 million salary from their books. `\
 https://nytimes.com/athletic/7022413/2026/02/04/lonzo-ball-trade-jazz-cavs-nba-deadline/
