@@ -1,3 +1,11 @@
+**Could Bobby McMann trade Leafs blue and white for Oilers blue and orange?**\
+`Edmonton wants to play fast, and McMann is the player who can do just that.`\
+https://nytimes.com/athletic/7020490/2026/02/04/leafs-win-oilers-bobby-mcmann-edmonton-move/
+
+**Word of the Day: covert**\
+`This word has appeared in 339 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/04/learning/word-of-the-day-covert.html
+
 **Michael Kosta Blasts the Super Bowl Halftime Alternative**\
 `“Man, that is a real who’s who of ‘Who?’” Kosta mused about Turning Point USA’s concert as opposed to the halftime show led by Bad Bunny.`\
 https://nytimes.com/2026/02/04/arts/television/michael-kosta-super-bowl-halftime.html
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/7020095/2026/02/04/liam-rosenior-chelsea-arsenal-ta
 https://nytimes.com/video/us/politics/100000010688971/trump-government-shutdown-house-vote.html
 
 **Arsenal are here to win, not entertain. And that's just what they're doing**\
-`The nervousness of previous weeks was banished on a night that ended in euphoria - and the sense that this was just the start`\
+`The nervousness of prior weeks was banished on a Carabao Cup semi-final night that ended in euphoria - and the sense this is just the start`\
 https://nytimes.com/athletic/7020034/2026/02/04/arsenal-chelsea-carabao-cup-report/
 
 **After fight for control of Padres, late owner's widow and brothers reach agreement**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/04/opinion/iran-protests-death-toll.html
 **Lions fan files $100 million defamation lawsuit against Steelers' DK Metcalf, others**\
 `The fan, Ryan Kennedy, seeks damages over claims he used a racial slur during an altercation with the receiver at a Dec. 21 game in Detroit.`\
 https://nytimes.com/athletic/7020085/2026/02/04/dk-metcalf-lions-fan-lawsuit/
-
-**Liverpool's transfer window: No short-term signings represents a major gamble**\
-`While Arne Slot's side were not expected to be make major moves in January, no new first-team signings leaves the squad short`\
-https://nytimes.com/athletic/7010166/2026/02/04/liverpool-transfer-window-no-signings/
-
-**NFC rallies to beat AFC in Pro Bowl with stars, scooters and trick plays**\
-`The game was more of a casual scrimmage than a true competition as Micah Parsons rolled around in a scooter. `\
-https://nytimes.com/athletic/7020349/2026/02/04/nfl-pro-bowl-2026-flag-plays-micah-parsons/
 
