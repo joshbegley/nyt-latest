@@ -1,3 +1,7 @@
+**As Yasiel Puig trial wraps up, a prominent agent could face contempt charges**\
+`Baseball agent Danny Horwits is being ordered to testify in the federal government’s criminal trial against Puig.`\
+https://nytimes.com/athletic/7020148/2026/02/03/yasiel-puig-dodgers-trial-update/
+
 **Wager, a smooth fox terrier, wins the terrier group.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2026/02/03/style/westminster-dog-show/wager-a-smooth-fox-terrier-wins-the-terrier-group
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/03/style/westminster-dog-show/penny-a-doberman-
 **Proposed Utah bill would allow concealed carry at Jazz, Mammoth games**\
 `The politician who introduced the bill said its aim is to foster "a constructive dialogue" around constitutional rights and public funding.`\
 https://nytimes.com/athletic/7019867/2026/02/03/guns-utah-bill-jazz-mammoth-games/
-
-**Steve Kerr on Draymond Green, Warriors trade rumors: 'It puts guys on edge, for sure'**\
-`Kerr was asked prior to Tuesday's game whether he also felt Green wasn't concerned about whatever may happen in the coming days.`\
-https://nytimes.com/athletic/7020050/2026/02/03/draymond-green-trade-rumors-warriors-steve-kerr/
 
