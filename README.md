@@ -8,10 +8,10 @@ https://nytimes.com/2026/02/04/business/google-earnings-ai.html
 
 **Five minutes into the Winter Olympics' first event, the lights went out on curling**\
 `It was unclear what caused the brief blip as players joked and killed time before the lights came on and action resumed.`\
-https://nytimes.com/athletic/7021730/2026/02/04/winter-olympics-curling-lights-out-cortina-stadium/
+https://nytimes.com/athletic/7021730/2026/02/04/olympics-2026-curling-power-outage-blackout-lights/
 
 **Penguins' Caleb Jones suspended for 20 games**\
-`The Penguins signed Jones, who will be eligible to return versus Tampa on April 2, to a two-year, $1.8 million contract last summer.`\
+`The Penguins signed Jones, who will be eligible to return versus Tampa Bay on April 2, to a two-year, $1.8 million contract last summer.`\
 https://nytimes.com/athletic/7022199/2026/02/04/penguins-defenseman-caleb-jones-suspended/
 
 **In Forcing the Clintons to Testify on Epstein, Comer Sets a New Precedent**\
