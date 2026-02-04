@@ -1,3 +1,15 @@
+**Inside the Cavs' bold decision to swap Darius Garland for James Harden**\
+`As the Cleveland Cavaliers were wrecked with injuries last month and hovering around .`\
+https://nytimes.com/athletic/7020852/2026/02/04/james-harden-darius-garland-cavaliers-trade/
+
+**Why A.I. Fears Are Battering Stocks, Again**\
+`New tools by artificial intelligence companies like Anthropic have reignited worries that businesses will pare down their subscriptions to software services.`\
+https://nytimes.com/2026/02/04/business/dealbook/ai-software-stocks-anthropic.html
+
+**Novo Nordisk Warns of First Sales Drop Since Start of Ozempic**\
+`The once high-flying Danish drugmaker has struggled to fend off rivals in the weight-loss industry and faces lower prices for its medicines under a deal with President Trump.`\
+https://nytimes.com/2026/02/04/business/novo-nordisk-wegovy-sales-earnings.html
+
 **Bedrock, an A.I. Start-Up for Construction, Raises $270 Million**\
 `The year-old company, founded by veterans of the autonomous vehicle business Waymo, is seeking to automate excavators and other building equipment.`\
 https://nytimes.com/2026/02/04/business/dealbook/bedrock-robotics-ai-fundraise.html
