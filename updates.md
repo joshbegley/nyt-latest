@@ -1,3 +1,7 @@
+**Waste Management Phoenix Open odds, DFS picks: Who will thrive in the People's Open?**\
+`Dennis Esser breaks down his betting picks and daily fantasy plays for the WM Phoenix Open.`\
+https://nytimes.com/athletic/7018927/2026/02/04/2026-waste-management-phoenix-open-odds-dfs-picks-scottie-scheffler-vs-the-field/
+
 **Amber Glenn, U.S. figure skating Olympic gold hopeful, got here the only way she could**\
 `Most figure skaters don't find their best form at 26. Glenn isn't most skaters. She just needed to find her way on her time.`\
 https://nytimes.com/athletic/7011826/2026/02/04/amber-glenn-olympics-figure-skating-usa/

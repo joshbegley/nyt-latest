@@ -1,3 +1,7 @@
+**Waste Management Phoenix Open odds, DFS picks: Who will thrive in the People's Open?**\
+`Dennis Esser breaks down his betting picks and daily fantasy plays for the WM Phoenix Open.`\
+https://nytimes.com/athletic/7018927/2026/02/04/2026-waste-management-phoenix-open-odds-dfs-picks-scottie-scheffler-vs-the-field/
+
 **Amber Glenn, U.S. figure skating Olympic gold hopeful, got here the only way she could**\
 `Most figure skaters don't find their best form at 26. Glenn isn't most skaters. She just needed to find her way on her time.`\
 https://nytimes.com/athletic/7011826/2026/02/04/amber-glenn-olympics-figure-skating-usa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7019370/2026/02/04/little-league-copper-thieves-bas
 **The New York Times International Edition in Print for Thursday, Feb. 5, 2026**\
 ``\
 https://nytimes.com/issue/todaysinyt/2026/02/04/todays-new-york-times-international-edition
-
-**How Johannes Høsflot Klæbo made himself the world's best cross-country skier**\
-`An "average Joe" as a teen, Klæbo will one day retire as the best cross-country skier ever. It just took work and a little "friluftsliv."`\
-https://nytimes.com/athletic/7018986/2026/02/04/winter-olympics-johannes-klaebo-cross-country-skiing/
 
