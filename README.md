@@ -1,3 +1,11 @@
+**NFC rallies to beat AFC in Pro Bowl with stars, scooters and trick plays**\
+`The game was more of a casual scrimmage than a true competition as Micah Parsons rolled around in a scooter. `\
+https://nytimes.com/athletic/7020349/2026/02/04/nfl-pro-bowl-2026-flag-plays-micah-parsons/
+
+**Forest's transfer window: Did they do enough? PSR, UEFA latest? Summer plans?**\
+`Forest strengthened their options in goal, defence and up front, but were frustrated in their efforts to make further additions`\
+https://nytimes.com/athletic/7017960/2026/02/04/nottingham-forest-transfer-review-2/
+
 **What does Newcastle's lack of transfer activity tell us about where the club is?**\
 `Analysing the impact of another transfer window closing without the first team being strengthened`\
 https://nytimes.com/athletic/7017859/2026/02/04/newcastle-january-transfers-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/04/world/europe/winter-olympics-security-milan-corti
 **In South Korea, Questions About Cram Schools, Success and Happiness**\
 `Academic pressure has become so intense that even preschoolers are taking private extracurricular classes, raising worries about children’s rights.`\
 https://nytimes.com/2026/02/04/world/asia/south-korea-cram-schools-childhood-stress.html
-
-**‘Neoroyalism’ and What It Says About Trump**\
-`Experts are reaching to divine the president’s approach to global policy and economics, with one theory seeing antecedents in centuries-old dynastic rule.`\
-https://nytimes.com/2026/02/04/business/economy/trump-history-newroyalism.html
-
-**Connections: Sports Edition Coach: Hints for Feb. 4, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7019901/2026/02/04/connections-sports-edition-hints-for-feb-4-2026/
 

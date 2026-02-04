@@ -1,3 +1,19 @@
+**What does Newcastle's lack of transfer activity tell us about where the club is?**\
+`Analysing the impact of another transfer window closing without the first team being strengthened`\
+https://nytimes.com/athletic/7017859/2026/02/04/newcastle-january-transfers-analysis/
+
+**In praise of Pep Guardiola for speaking out, regardless of the inevitable 'Whataboutery' accusations**\
+`For someone in his position to speak on difficult subjects is welcome. The fact he is ultimately employed by Abu Dhabi doesn’t negate that`\
+https://nytimes.com/athletic/7018841/2026/02/04/pep-guardiola-palestine-sudan-ukraine/
+
+**Meet the owner, coach and captain of Lens: Ligue 1's David taking on PSG's Goliath**\
+`We visit northern France to speak to the key figures at a small club taking on the might of a team funded by a nation state`\
+https://nytimes.com/athletic/7017685/2026/02/04/lens-sage-thomasson-psg-ligue-1/
+
+**Row Z: Pochettino picks sides, no place for generosity and Burnley’s admin disappoints**\
+`Tim Spiers shines a light on the bonkers side of football, this week featuring the USMNT manager and one of his star players`\
+https://nytimes.com/athletic/7017661/2026/02/04/row-z-pochettino-weah-burnley/
+
 **Eight Premier League clubs spent nothing in January. Why?**\
 `The £405m of fees agreed in the January window was less than 13 per cent of this season's total spend`\
 https://nytimes.com/athletic/7017769/2026/02/04/why-some-premier-league-clubs-choose-to-spend-nothing-in-january/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/04/business/economy/trump-history-newroyalism.html
 **Connections: Sports Edition Coach: Hints for Feb. 4, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7019901/2026/02/04/connections-sports-edition-hints-for-feb-4-2026/
-
-**Corrections: Feb. 4, 2026**\
-`Corrections that appeared in print on Wednesday, Feb. 4, 2026.`\
-https://nytimes.com/2026/02/04/pageoneplus/corrections-feb-4-2026.html
-
-**Quote of the Day: Minneapolis and an Internet at War With Truth**\
-`Quotation of the Day for Wednesday, February 4, 2026.`\
-https://nytimes.com/2026/02/03/pageoneplus/quote-of-the-day-minneapolis-and-an-internet-at-war-with-truth.html
-
-**Blue Jackets win sixth straight behind Merzlikins' first shutout of the season**\
-`The Blue Jackets are now 9-1-0 since hiring Rick Bowness and firmly back in the playoff hunt.`\
-https://nytimes.com/athletic/7020268/2026/02/03/blue-jackets-merzlikins-shutout-win-streak/
-
-**How to Light a Room Like a Swede**\
-`Tips from experts who know dark winter days — and design — like no others.`\
-https://nytimes.com/2026/02/03/t-magazine/dark-winter-lighting-swedish-design.html
 
