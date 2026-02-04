@@ -1,3 +1,7 @@
+**NFL executive Troy Vincent says tush push is 'difficult' to officiate**\
+`NFL executives are weighing the viability of the tush push due to prior controversial calls, but players are less concerned about the play.`\
+https://nytimes.com/athletic/7022445/2026/02/04/tush-push-troy-vincent-nfl-officiating/
+
 **Senators Accuse Equifax of ‘Price-Gouging’ Medicaid Programs**\
 `The company’s data will be essential for many states to comply with new work requirements for the health insurance program that take effect next year.`\
 https://nytimes.com/2026/02/04/health/equifax-medicaid-states-senators.html

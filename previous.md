@@ -1,3 +1,7 @@
+**NFL executive Troy Vincent says tush push is 'difficult' to officiate**\
+`NFL executives are weighing the viability of the tush push due to prior controversial calls, but players are less concerned about the play.`\
+https://nytimes.com/athletic/7022445/2026/02/04/tush-push-troy-vincent-nfl-officiating/
+
 **Senators Accuse Equifax of ‘Price-Gouging’ Medicaid Programs**\
 `The company’s data will be essential for many states to comply with new work requirements for the health insurance program that take effect next year.`\
 https://nytimes.com/2026/02/04/health/equifax-medicaid-states-senators.html
@@ -34,8 +38,4 @@ https://nytimes.com/2026/02/04/world/europe/netherlands-queen-maxima-military.ht
 **Steelers hire former Vikings assistant Brian Angelichio as offensive coordinator**\
 `Ex-Commanders defensive coordinator Joe Whitt Jr., who will be a defensive backs coach for Pittsburgh, was also among the assistants hired.`\
 https://nytimes.com/athletic/7021739/2026/02/04/brian-angelichio-pittsburgh-steelers-oc/
-
-**Jersey City Faces a Stunning Budget Deficit, Report Shows**\
-`The city’s new mayor, James Solomon, is blaming his predecessor, Steven Fulop, who just became the head of an influential business advocacy group in New York City.`\
-https://nytimes.com/2026/02/04/nyregion/jersey-city-budget-deficit.html
 
