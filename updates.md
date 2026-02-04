@@ -1,3 +1,15 @@
+**Rangers trade Artemi Panarin to Los Angeles Kings for conditional third-round pick, prospect: Reports**\
+`Panarin is the Rangers' franchise leader in points per game and twice finished in the top five of Hart Trophy voting in New York.`\
+https://nytimes.com/athletic/6987117/2026/02/04/artemi-panarin-trade-rangers-kings-nhl/
+
+**ICE’s New Surveillance State Isn’t Tracking Only Immigrants**\
+`The nationwide nativist dragnet has a long list of targets.`\
+https://nytimes.com/2026/02/04/opinion/ice-surveillance.html
+
+**Blues trade center Nick Bjugstad to Devils: What it means for both teams**\
+`Bjugstad has six goals and seven points in 35 games this season for the Blues.`\
+https://nytimes.com/athletic/7021852/2026/02/04/blues-devils-nick-bjugstad-trade/
+
 **Read the document**\
 `David A. Ross said he remained “ashamed” for having been “taken in” by Jeffrey Epstein. Mr. Ross resigned his position at the School of Visual Arts in New York.`\
 https://nytimes.com/interactive/2026/02/04/nyregion/davdrossletter.html
