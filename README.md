@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘I Mistook Her Optimism for an Act’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/02/04/style/tiny-modern-love-stories-i-mistook-her-optimism-for-an-act.html
+
 **Coby White trade grades: Hornets swing deal with Bulls to bolster postseason push**\
 `On paper, Collin Sexton and Coby White seem to do almost identical things. So which team won the trade?`\
 https://nytimes.com/athletic/7021970/2026/02/04/coby-white-trade-grades-hornets-bulls/
