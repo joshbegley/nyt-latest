@@ -1,4 +1,4 @@
-**Hornets-Bulls trade grades: Charlotte gearing up for postseason push**\
+**Coby White trade grades: Hornets swing deal with Bulls to bolster postseason push**\
 `On paper, Collin Sexton and Coby White seem to do almost identical things. So which team won the trade?`\
 https://nytimes.com/athletic/7021970/2026/02/04/coby-white-trade-grades-hornets-bulls/
 

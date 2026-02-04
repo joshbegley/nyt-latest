@@ -1,3 +1,11 @@
+**Hornets-Bulls trade grades: Charlotte gearing up for postseason push**\
+`On paper, Collin Sexton and Coby White seem to do almost identical things. So which team won the trade?`\
+https://nytimes.com/athletic/7021970/2026/02/04/coby-white-trade-grades-hornets-bulls/
+
+**A.M.A. Endorses Restrictions on Gender-Related Surgery for Minors**\
+`The announcement followed a similar recommendation from the American Society of Plastic Surgeons. But other medical groups argued for a more personalized approach.`\
+https://nytimes.com/2026/02/04/health/gender-surgery-minors-ama.html
+
 **Washington Post Sports Department Was Among Last of Its Kind**\
 `The Post is laying off or reassigning all the reporters and editors in its sports section, days before the Super Bowl and the Winter Olympics in Italy.`\
 https://nytimes.com/2026/02/04/business/media/washington-post-layoffs-sports-section.html
