@@ -1,3 +1,11 @@
+**The Actress Who Disappeared Twice**\
+`Libby Howes was an imposing presence onstage with the Wooster Group. But after abruptly leaving New York in 1981 she became a theater world mystery. What happened?`\
+https://nytimes.com/2026/02/04/theater/wooster-group-libby-howes-theater.html
+
+**Fulton County in Georgia Challenges the F.B.I.’s Seizure of 2020 Ballots**\
+`The county filed a motion demanding the return of ballots and other election materials that were seized by the F.B.I. in a highly unusual move by the Trump administration.`\
+https://nytimes.com/2026/02/04/us/politics/fulton-county-fbi-raid-trump-gabbard.html
+
 **Jets to hire Frank Reich as new offensive coordinator: Sources**\
 `Reich, a former Jets quarterback, last coached in the NFL in 2023.`\
 https://nytimes.com/athletic/7007779/2026/02/04/frank-reich-new-york-jets-oc/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7019789/2026/02/04/dodgers-mlb-bobby-miller-prospec
 **Welcome to the Resistance, Public School Parents**\
 `School communities are central to organizing against federal harassment.`\
 https://nytimes.com/2026/02/04/opinion/minnesota-maine-schools.html
-
-**Should I Reach Out to a Young Person Who Ghosted My Elderly Mother?**\
-`A reader weighs getting involved in her 88-year-old mother’s withered friendship with a younger woman, who abruptly stopped making plans with her three years ago.`\
-https://nytimes.com/2026/02/04/style/elderly-parents-friendships.html
-
-**Washington Post Begins Sweeping Layoffs**\
-`The layoffs are slated to shrink the newsroom by hundreds of journalists, cutting into The Post’s local, international and sports coverage.`\
-https://nytimes.com/2026/02/04/business/media/washington-post-layoffs.html
 
