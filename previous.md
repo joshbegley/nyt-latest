@@ -1,40 +1,40 @@
-**Waste Management Phoenix Open odds, DFS picks: Who will thrive in the People's Open?**\
-`Dennis Esser breaks down his betting picks and daily fantasy plays for the WM Phoenix Open.`\
-https://nytimes.com/athletic/7018927/2026/02/04/2026-waste-management-phoenix-open-odds-dfs-picks-scottie-scheffler-vs-the-field/
+**West Ham transfer window: Firepower added but centre-back issue remains - will it be enough?**\
+`West Ham signed five players, moved out nine others but will Nuno have the players to lift his team to Premier League safety?`\
+https://nytimes.com/athletic/6988955/2026/02/04/west-ham-transfer-window-nuno-paqueta/
 
-**Amber Glenn, U.S. figure skating Olympic gold hopeful, got here the only way she could**\
-`Most figure skaters don't find their best form at 26. Glenn isn't most skaters. She just needed to find her way on her time.`\
-https://nytimes.com/athletic/7011826/2026/02/04/amber-glenn-olympics-figure-skating-usa/
+**McCullum defends 'outstanding leader' Brook: 'He has work to do off the field'**\
+`Brook, the white-ball captain, was disciplined for a late-night altercation with a bouncer in Wellington, New Zealand in October.`\
+https://nytimes.com/athletic/7020745/2026/02/04/england-brendon-mccullum-harry-brook/
 
-**Roger Craig ran The Hill. Now he looks poised to reach the Hall of Fame mountaintop**\
-`The NFL's first 1,000-1,000 player led teammates up a challenging incline. Here's how to follow in their footsteps.`\
-https://nytimes.com/athletic/7015072/2026/02/04/49ers-roger-craig-hall-of-fame-the-hill/
+**Cincinnati Reds 2026 top 20 prospects: Sal Stewart, Tyson Lewis lead the way**\
+`The Reds' system has been excellent at producing pitching for the past decade, but now the system is slanted more towards hitters.`\
+https://nytimes.com/athletic/7012855/2026/02/04/cincinnati-reds-2026-top-20-prospects-keith-law/
 
-**What was Mike Vrabel like in high school? A legendary competitor and 'genuine as hell'**\
-`Northeast Ohio is a football-mad part of the country, and the locals are abuzz about one of their own leading the Patriots to Super Bowl 60.`\
-https://nytimes.com/athletic/7018391/2026/02/04/mike-vrabel-patriots-high-school-super-bowl-60/
+**Why Chiefs special teams struggled in 2025 — and a big-picture question ahead**\
+`The Chiefs have to feel good about two areas of their special teams — while also facing a big-picture decision ahead.`\
+https://nytimes.com/athletic/7018337/2026/02/04/chiefs-special-teams-what-went-wrong/
 
-**Darnold, Vrabel, and how the Jets became the Super Bowl's third team**\
-`On Sunday, Jets fans will watch the quarterback won wasn't and the coach who almost was in Super Bowl LX.`\
-https://nytimes.com/athletic/7018881/2026/02/04/sam-darnold-mike-vrabel-super-bowl-jets-connections/
+**Women’s Olympic hockey predictions: Gold medal winner? MVP? Canada vs. USA?**\
+`The women's tournament brings high stakes, incredible talent and one of the best rivalries in sports to Milan. Who will come out on top?`\
+https://nytimes.com/athletic/7017213/2026/02/04/olympic-womens-hockey-predictions-canada-usa-medals/
 
-**Matt Nagy is John Harbaugh's type of offensive coordinator — will it work?**\
-`The longtime Chiefs assistant and former Bears head coach checks a lot of the boxes Harbaugh likes.`\
-https://nytimes.com/athletic/7020028/2026/02/04/new-york-giants-oc-hire-matt-nagy-analysis/
+**Penguins bounce back and dominate Islanders before stumbling in OT**\
+`The Penguins outshot the Islanders on Tuesday but fell 5-4 in overtime.`\
+https://nytimes.com/athletic/7020282/2026/02/04/penguins-islanders-overtime-sidney-crosby/
 
-**Colts star Kenny Moore II became 'Mr. Kenny' and changed the lives of local eighth-graders**\
-`Through an initiative started by his foundation, Moore volunteers his time to help students at Cardinal Ritter High with life skills.`\
-https://nytimes.com/athletic/7019676/2026/02/04/colts-kenny-moore-nfl-man-of-the-year/
+**Disappointing OT loss to Lightning a sign of rising expectations: 5 thoughts**\
+`It's a mark of how far the Sabres have come that a 3-point swing through Florida is cause for consternation.`\
+https://nytimes.com/athletic/7020431/2026/02/04/sabres-overtime-loss-expectations-samuelsson-lightning/
 
-**Amid war, Ukrainian athletes pursue Olympic glory in Milan Cortina**\
-`Ukraine’s 103-member Olympic delegation aims to make its mark in Italy amid the ongoing war.`\
-https://nytimes.com/athletic/7013524/2026/02/04/ukraine-war-milan-cortina-olympics-russia/
+**Twins owner Tom Pohlad on new baseball ops head: 'We lucked out with Jeremy Zoll'**\
+`With Derek Falvey's sudden departure, the Twins head into the season with a new head of baseball operations as well as a new manager.`\
+https://nytimes.com/athletic/7020059/2026/02/04/twins-jeremy-zoll-tom-pohlad/
 
-**How copper thieves are putting Southern California Little League seasons in jeopardy**\
-`Copper prices are rising due to various reasons, and thieves are targeting Little League fields for the valuable metal.`\
-https://nytimes.com/athletic/7019370/2026/02/04/little-league-copper-thieves-baseball-southern-california/
+**Bettors all over Seahawks, Jaxon Smith-Njigba early, as it's 'all Seattle money'**\
+`What's the early Super Bowl action looking like? Who are the pros betting on? What's the most popular prop bets? Doug checks in from Vegas.`\
+https://nytimes.com/athletic/7020075/2026/02/04/super-bowl-betting-big-bets-patriots-seahawks/
 
-**The New York Times International Edition in Print for Thursday, Feb. 5, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/02/04/todays-new-york-times-international-edition
+**NHL player poll: Next expansion city? How big is too big? Fan Venmo requests? Worst chirps?**\
+`In polling 118 players, a familiar name was the top pick for worst chirps, while one city has emerged as the runaway favorite for expansion.`\
+https://nytimes.com/athletic/7016013/2026/02/04/nhl-player-poll-chirps-expansion-venmo/
 
