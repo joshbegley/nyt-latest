@@ -1,3 +1,7 @@
+**Blue Jackets win sixth straight behind Merzlikins' first shutout of the season**\
+`The Blue Jackets are now 9-1-0 since hiring Rick Bowness and firmly back in the playoff hunt.`\
+https://nytimes.com/athletic/7020268/2026/02/03/blue-jackets-merzlikins-shutout-win-streak/
+
 **How to Light a Room Like a Swede**\
 `Tips from experts who know dark winter days — and design — like no others.`\
 https://nytimes.com/2026/02/03/t-magazine/dark-winter-lighting-swedish-design.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/03/style/catherine-ohara-westminster-dog-show.html
 **Reds, Eugenio Suárez excited about 'perfect' reunion and 'nightmare fuel' lineup**\
 `Suárez, a native of Venezuela who began his career with the Detroit Tigers before seven seasons with the Reds, called Cincinnati "home."`\
 https://nytimes.com/athletic/7020110/2026/02/03/cincinnati-reds-eugenio-suarez-reunion/
-
-**Penny, a Doberman pinscher, wins the working group.**\
-`By Callie Holtermann`\
-https://nytimes.com/live/2026/02/03/style/westminster-dog-show/penny-a-doberman-pinscher-wins-the-working-group
 

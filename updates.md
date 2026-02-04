@@ -1,3 +1,7 @@
+**Blue Jackets win sixth straight behind Merzlikins' first shutout of the season**\
+`The Blue Jackets are now 9-1-0 since hiring Rick Bowness and firmly back in the playoff hunt.`\
+https://nytimes.com/athletic/7020268/2026/02/03/blue-jackets-merzlikins-shutout-win-streak/
+
 **Austin Reaves' 19-game absence from Lakers ends with blowout win vs. Nets**\
 `Reaves, who hadn’t played since Dec. 25 with a grade-2 calf strain, scored 15 points in 20 minutes off the bench in the Lakers’ blowout win.`\
 https://nytimes.com/athletic/7020208/2026/02/03/lakers-austin-reaves-injury-update-calf/
