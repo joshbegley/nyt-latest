@@ -1,3 +1,19 @@
+**How to watch Northwestern vs. Illinois men's basketball: Time, TV, streaming**\
+`Find out how to watch the Northwestern Wildcats play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7022061/2026/02/04/northwestern-vs-illinois-stream-how-to-watch-feb-4/
+
+**Lakers' Jaxson Hayes suspended one game after shoving Wizards mascot**\
+`Hayes' pregame run-in with the Wizards' mascot somehow crossed the line. `\
+https://nytimes.com/athletic/7022009/2026/02/04/jaxson-hayes-lakers-wizards-mascot/
+
+**Coby White traded to Hornets; Bulls receive Collin Sexton, more: Sources**\
+`The Hornets upgrade at guard, while Chicago moves on from its longest-tenured player. The Hornets will also receive Mike Conley in the deal.`\
+https://nytimes.com/athletic/7022058/2026/02/04/coby-white-trade-bulls-hornets-collin-sexton-nba-deadline/
+
+**How to watch Rutgers vs. UCLA women's basketball: Time, TV, streaming**\
+`Find out how to watch the Rutgers Scarlet Knights play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7022050/2026/02/04/rutgers-vs-ucla-stream-how-to-watch-feb-4/
+
 **How to watch UConn vs. DePaul women's basketball: Time, TV, streaming**\
 `Find out how to watch the UConn Huskies play the DePaul Blue Demons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7022045/2026/02/04/uconn-vs-depaul-stream-how-to-watch-feb-4/
