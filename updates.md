@@ -1,3 +1,7 @@
+**As Yasiel Puig trial wraps up, a prominent agent could face contempt charges**\
+`Baseball agent Danny Horwits is being ordered to testify in the federal government’s criminal trial against Puig.`\
+https://nytimes.com/athletic/7020148/2026/02/03/yasiel-puig-dodgers-trial-update/
+
 **Wager, a smooth fox terrier, wins the terrier group.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2026/02/03/style/westminster-dog-show/wager-a-smooth-fox-terrier-wins-the-terrier-group
