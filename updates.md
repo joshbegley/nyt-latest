@@ -1,3 +1,7 @@
+**2026 NBA All-Star Game format: What are the changes this season?**\
+`The NBA All-Star Game will have two U.S. teams and one squad of international players, and the setup includes a prize pool of $1.8 million.`\
+https://nytimes.com/athletic/7002284/2026/02/03/nba-all-star-format-explained-2026/
+
 **Amid trade rumors, Giannis holds rehab session before Bucks game**\
 `The Bucks' star went through a 30-minute pregame workout as he works back from a calf injury.`\
 https://nytimes.com/athletic/7019920/2026/02/03/giannis-antetokounmpo-trade-rumors-injury-update-bucks/
