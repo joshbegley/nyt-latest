@@ -1,3 +1,7 @@
+**Catherine O’Hara, Star of ‘Best in Show,’ Honored in Westminster Dog Show Tribute**\
+`Fans remembered the actress, who died last week at 71, for her role as the doting owner of a Norwich terrier destined for glory in the cult-classic sendup of dog show culture.`\
+https://nytimes.com/2026/02/03/style/catherine-ohara-westminster-dog-show.html
+
 **Catherine O’Hara, star of ‘Best in Show,’ is honored in a tribute at the Garden.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2026/02/03/style/westminster-dog-show/catherine-ohara-star-of-best-in-show-is-honored-in-a-tribute-at-the-garden
