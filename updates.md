@@ -1,3 +1,11 @@
+**Nikola Vučević's run with Bulls is over, but the 'Vooch Era' never amounted to much**\
+`Vučević played in 378 regular-season games for the Bulls, and they went 185-193. He played in five postseason games and won one.`\
+https://nytimes.com/athletic/7020086/2026/02/04/bulls-trade-nikola-vucevics-celtics-magic/
+
+**Payton Pritchard embraces bench role as Celtics adapt after Anfernee Simons trade**\
+`The first ripple effect of the trade showed up in a starting lineup change before Boston's win in Dallas.`\
+https://nytimes.com/athletic/7020510/2026/02/04/payton-pritchard-celtics-bench-role-anfernee-simons-trade/
+
 **For Peace, More Ukrainians Consider the Once Unthinkable: Surrendering Land**\
 `Polls show a growing acceptance of territorial concessions among a war-weary public, if Ukraine receives strong security guarantees.`\
 https://nytimes.com/2026/02/04/world/europe/ukraine-russia-war-donbas-region.html

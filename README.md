@@ -1,3 +1,7 @@
+**Everton sack head coach Sorensen**\
+`Assistant coach Stephen Nilgen has also been dismissed and Jennifer Foster is set to be placed in interim charge.`\
+https://nytimes.com/athletic/7020689/2026/02/04/brian-sorensen-everton-women-future/
+
 **Nikola Vučević's run with Bulls is over, but the 'Vooch Era' never amounted to much**\
 `Vučević played in 378 regular-season games for the Bulls, and they went 185-193. He played in five postseason games and won one.`\
 https://nytimes.com/athletic/7020086/2026/02/04/bulls-trade-nikola-vucevics-celtics-magic/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/04/world/europe/bulgaria-euro-lev-european-union.htm
 **They Made the Basement the Most Attractive Part of the House**\
 `An architect transformed the unfinished basement in his family’s Washington, D.C. rowhouse into a luxurious in-law suite.`\
 https://nytimes.com/2026/02/04/realestate/they-made-the-basement-the-most-attractive-part-of-the-house.html
-
-**Republicans Make a Costly Push to Try to Save Cornyn in Texas**\
-`Senator John Cornyn, once seen as a potential Republican leader in his chamber, is now depending on wealthy party donors to survive a right-wing challenge.`\
-https://nytimes.com/2026/02/04/us/politics/john-cornyn-ken-paxton-texas-senate-race.html
 
