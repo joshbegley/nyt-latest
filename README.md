@@ -1,3 +1,11 @@
+**West Ham transfer window: Firepower added but centre-back issue remains - will it be enough?**\
+`West Ham signed five players, moved out nine others but will Nuno have the players to lift his team to Premier League safety?`\
+https://nytimes.com/athletic/6988955/2026/02/04/west-ham-transfer-window-nuno-paqueta/
+
+**McCullum defends 'outstanding leader' Brook: 'He has work to do off the field'**\
+`Brook, the white-ball captain, was disciplined for a late-night altercation with a bouncer in Wellington, New Zealand in October.`\
+https://nytimes.com/athletic/7020745/2026/02/04/england-brendon-mccullum-harry-brook/
+
 **Cincinnati Reds 2026 top 20 prospects: Sal Stewart, Tyson Lewis lead the way**\
 `The Reds' system has been excellent at producing pitching for the past decade, but now the system is slanted more towards hitters.`\
 https://nytimes.com/athletic/7012855/2026/02/04/cincinnati-reds-2026-top-20-prospects-keith-law/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7020075/2026/02/04/super-bowl-betting-big-bets-patr
 **NHL player poll: Next expansion city? How big is too big? Fan Venmo requests? Worst chirps?**\
 `In polling 118 players, a familiar name was the top pick for worst chirps, while one city has emerged as the runaway favorite for expansion.`\
 https://nytimes.com/athletic/7016013/2026/02/04/nhl-player-poll-chirps-expansion-venmo/
-
-**How ready are the Bills for a switch in defensive scheme under Jim Leonhard?**\
-`Some players on the roster would be great fits for a new scheme.`\
-https://nytimes.com/athletic/7018668/2026/02/04/bills-dc-jim-leonhard-defensive-scheme/
-
-**Mental, physical hurdles Lindsey Vonn must navigate after ACL tear**\
-`Lindsey Vonn will try to "inspire" and race in the 2026 Milan-Cortina Olympic games on a ruptured ACL`\
-https://nytimes.com/athletic/7019077/2026/02/04/lindsey-vonn-acl-tear-olympics-mental-physical/
 
