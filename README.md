@@ -1,3 +1,7 @@
+**Amid trade rumors, Giannis Antetokounmpo holds rehab session before Bucks game**\
+`The Bucks' star went through a 30-minute pregame workout as he works back from a calf injury.`\
+https://nytimes.com/athletic/7019920/2026/02/03/giannis-antetokounmpo-trade-rumors-injury-update-bucks/
+
 **In Ohio, I Caught a Glimpse of the New Resistance**\
 `It’s not just blue America where people are readying themselves for disaster.`\
 https://nytimes.com/2026/02/03/opinion/ohio-resistance-trump-ice.html
@@ -22,8 +26,8 @@ https://nytimes.com/athletic/7019772/2026/02/03/kawhi-leonard-nba-all-star-game-
 `David Fitzpatrick has led two Pekingese to Westminster glory, but when it comes time to select best in show, he knows “how to appreciate all dogs.”`\
 https://nytimes.com/live/2026/02/03/style/westminster-dog-show/the-top-judge-is-partial-to-pekingese-but-only-at-home
 
-**A New Mission for a N.Y.C. Development Agency: Economic Justice**\
-`According to a Jan. 2 memo obtained by The New York Times, Mayor Zohran Mamdani wants to remake the agency as part of his vow to address affordability and workers’ rights.`\
+**New Mission for a Pro-Business Agency in New York: Fighting for Workers**\
+`According to a Jan. 2 memo obtained by The New York Times, Mayor Zohran Mamdani wants to remake the Economic Development Corporation to address affordability and workers’ rights.`\
 https://nytimes.com/2026/02/03/nyregion/mamdani-economic-development-corporation-nyc.html
 
 **How to watch Seahawks at Patriots: Super Bowl Time, TV, streaming**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7019851/2026/02/03/seahawks-vs-patriots-stream-how-
 **What Is the Democrats’ Game Plan on ICE?**\
 `After nearly four days of a partial government shutdown, the House voted to temporarily continue funding the Department of Homeland Security.`\
 https://nytimes.com/video/opinion/100000010679102/what-is-the-democrats-game-plan-on-ice.html
-
-**Trump Repeats Call to ‘Nationalize’ Elections, as White House Walks It Back**\
-`President Trump’s extraordinary comments were the latest iteration of his unsubstantiated claims that U.S. elections are rigged as Republicans face potentially big losses next year.`\
-https://nytimes.com/2026/02/03/us/politics/trump-save-act-elections.html
 
