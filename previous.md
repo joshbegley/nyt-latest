@@ -1,3 +1,19 @@
+**Israel Launches Deadly Strikes on Gaza, Saying Militants Attacked Its Soldiers**\
+`Gaza officials said the Israeli airstrikes killed at least 21 Palestinians. Israel said one of its soldiers was critically wounded in the attack by Palestinian gunmen.`\
+https://nytimes.com/2026/02/04/world/middleeast/israel-gaza-strikes-palestinian-deaths.html
+
+**Alvin Ailey Company to Get $10 Million Endowment to Fund Top Job**\
+`The gift from Daria Wallach, a retired leader in the financial services industry, is to endow the company’s artistic director.`\
+https://nytimes.com/2026/02/04/arts/dance/alvin-ailey-dance-artistic-director.html
+
+**My Neighbors Are Running an Auto Shop in Their Driveway. What Should I Do?**\
+`I’m afraid that even a code violation could draw attention from ICE.`\
+https://nytimes.com/2026/02/04/magazine/neighbors-auto-shop-ethics.html
+
+**How the Justice Department Failed Epstein’s Victims — Again**\
+`Molly Jong-Fast argues that the Trump administration’s sloppy release of the Epstein files is more than just incompetence; it’s a betrayal of the victims.`\
+https://nytimes.com/video/opinion/100000010688566/how-the-justice-department-failed-epsteins-victims-again.html
+
 **Team GB goes to CAS over skeleton helmet ban at Winter Olympics**\
 `The IBSF says the aerodynamic shape of the British helmets does not comply with the rules.`\
 https://nytimes.com/athletic/7021446/2026/02/04/skeleton-helmet-team-gb-cas-olympics/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7021453/2026/02/04/nba-trade-deadline-thunder-james
 **State Fiscal Chiefs Protest Federal Immigration Chaos**\
 `Sixteen elected treasury officials, all Democrats, wrote to President Trump to say ICE crackdowns are bad for business and tax revenues: “People must feel safe to go to work.”`\
 https://nytimes.com/2026/02/04/business/economy/state-fiscal-protest-ice.html
-
-**Texas A&M Lecturer Who Was Fired Over Gender Lesson Sues University**\
-`In a federal lawsuit, the lecturer, Melissa McCoul, accused the university of violating the First Amendment.`\
-https://nytimes.com/2026/02/04/us/texas-am-lecturer-gender-lesson-lawsuit.html
-
-**Panthers’ Sam Bennett on last-minute Olympic call: ‘Really meant the world’**\
-`"In the end, it worked out for me. I’m very grateful for that," Bennett said of joining Team Canada for the Olympics.`\
-https://nytimes.com/athletic/7021335/2026/02/04/panthers-sam-bennett-olympics-team-canada/
-
-**How to watch Canadiens vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7021414/2026/02/04/canadiens-vs-jets-stream-how-to-watch-feb-4/
-
-**How to watch Blackhawks vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7021411/2026/02/04/blackhawks-vs-blue-jackets-stream-how-to-watch-feb-4/
 

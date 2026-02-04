@@ -1,3 +1,7 @@
+**A Bernie Bro Writes a Fawning Biography of His Hero**\
+`In “Bernie for Burlington,” Dan Chiasson’s affection for his subject risks turning history into a sales pitch.`\
+https://nytimes.com/2026/02/04/books/review/bernie-for-burlington-dan-chiasson.html
+
 **Israel Launches Deadly Strikes on Gaza, Saying Militants Attacked Its Soldiers**\
 `Gaza officials said the Israeli airstrikes killed at least 21 Palestinians. Israel said one of its soldiers was critically wounded in the attack by Palestinian gunmen.`\
 https://nytimes.com/2026/02/04/world/middleeast/israel-gaza-strikes-palestinian-deaths.html
@@ -31,10 +35,6 @@ https://nytimes.com/video/opinion/100000010684773/trump-has-lost-the-country.htm
 https://nytimes.com/athletic/7021343/2026/02/04/chelsea-west-ham-charged-fa/
 
 **How the Thunder are winning the NBA trade deadline without doing anything**\
-`The Clippers' James Harden trade and the Jazz's decision to go in on Jaren Jackson Jr. could each significantly benefi the defending champs.`\
+`The Clippers' James Harden trade and the Jazz's acquisition of Jaren Jackson Jr. could each significantly benefit the defending champs.`\
 https://nytimes.com/athletic/7021453/2026/02/04/nba-trade-deadline-thunder-james-harden-success/
-
-**State Fiscal Chiefs Protest Federal Immigration Chaos**\
-`Sixteen elected treasury officials, all Democrats, wrote to President Trump to say ICE crackdowns are bad for business and tax revenues: “People must feel safe to go to work.”`\
-https://nytimes.com/2026/02/04/business/economy/state-fiscal-protest-ice.html
 
