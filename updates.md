@@ -1,3 +1,15 @@
+**Top NHL Draft prospect Gavin McKenna charged with felony assault**\
+`McKenna, who turned 18 on Dec. 20, is also facing a misdemeanor assault charge and summary charges of harassment and disorderly conduct.`\
+https://nytimes.com/athletic/7022474/2026/02/04/gavin-mckenna-felony-charges-arrested-penn-state-hockey/
+
+**Trump Says His Unpredictable Style Gives Him Leverage. But It Has a Cost.**\
+`A year into President Trump’s second term, his threats, retreats, twists and turns appear to be wearing on allies and adversaries.`\
+https://nytimes.com/2026/02/04/us/politics/trump-says-his-unpredictable-style-gives-him-leverage-but-it-has-a-cost.html
+
+**Newsom, Shapiro and Other Democrats Whip Up the 2028 Book Buzz**\
+`A number of potential presidential candidates are releasing memoirs as the shadow primary heats up.`\
+https://nytimes.com/2026/02/04/us/politics/newsom-shapiro-democrats-2028-memoirs.html
+
 **NFL executive Troy Vincent says tush push is 'difficult' to officiate**\
 `NFL executives are weighing the viability of the tush push due to prior controversial calls, but players are less concerned about the play.`\
 https://nytimes.com/athletic/7022445/2026/02/04/tush-push-troy-vincent-nfl-officiating/
