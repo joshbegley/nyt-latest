@@ -1,9 +1,17 @@
+**‘Bridgerton’ Tackles the Orgasm Gap**\
+`Sex therapists say a character’s struggle to reach her “pinnacle” could help viewers better understand women’s sexuality.`\
+https://nytimes.com/2026/02/04/well/bridgerton-orgasm-pinnacle.html
+
+**Six More Weeks of Stews**\
+`More winter means more opportunities for burbling pots of comfort, like my classic beef Bourguignon.`\
+https://nytimes.com/2026/02/04/dining/six-more-weeks-of-stews.html
+
 **Red Wings questions? Submit them here for Max Bultman's mailbag**\
 `Send in your burning Red Wings questions, and Max may answer them in an upcoming mailbag.`\
 https://nytimes.com/athletic/7021256/2026/02/04/red-wings-questions-max-bultman-mailbag/
 
 **Border Czar Says He Is Pulling 700 Immigration Agents Out of Minneapolis**\
-`About 2,000 personnel will be left in the city, where the killings of two protesters against President Trump’s immigration crackdown by federal agents have generated outrage.`\
+`About 2,000 personnel will be left in the city, where the killings of two protesters against President Trump’s immigration crackdown by federal officers have generated outrage.`\
 https://nytimes.com/2026/02/04/us/politics/homan-minnesota-dhs-immigration-agents.html
 
 **The Bounce: Ranking Tuesday's NBA trades on impact, Harden's exits on comedy**\
@@ -30,12 +38,4 @@ https://nytimes.com/video/style/100000010689477/westminster-dog-show-penny-dober
 **Former Prince Andrew Moves Out of Royal Home Amid Fresh Epstein Revelations**\
 `Andrew Mountbatten-Windsor was stripped of his titles last year and told to give up his grand residence because of growing concern over his links to Jeffrey Epstein.`\
 https://nytimes.com/2026/02/04/world/europe/andrew-epstein-uk-home-windsor-sandringham.html
-
-**Giannis on likelihood of Bucks trade: 'I want to be here, but I want to be here to win'**\
-`“On what planet, on what Earth, would somebody want to leave this?” Giannis said when asked about finishing his career in Milwaukee.`\
-https://nytimes.com/athletic/7020803/2026/02/04/giannis-antetokounmpo-bucks-nba-trade-deadline/
-
-**Anton Stach expected to miss Leeds' next two matches with hip injury**\
-`Jaka Bijol, who has missed the last three games with a hamstring issue, could make a return to the matchday squad.`\
-https://nytimes.com/athletic/7021073/2026/02/04/leeds-team-news-stach-bijol/
 
