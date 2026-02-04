@@ -1,3 +1,15 @@
+**Is ‘Wuthering Heights’ Actually the Greatest Love Story of All Time?**\
+`Catherine and Heathcliff are returning to the screen, but their passion burns brightest in a handful of sentences from Emily Brontë’s novel.`\
+https://nytimes.com/interactive/2026/02/04/books/wuthering-heights-emily-bronte-romance.html
+
+**Babies, Robots and Climate Change**\
+`It’s often assumed that lower birthrates could help slow climate change and A.I. disruption. The reality is more complex.`\
+https://nytimes.com/2026/02/04/world/population-decline-climate-change-ukraine-minneapolis.html
+
+**Chris Paul traded to Raptors, ending two-month exile from Clippers: Source**\
+`It's unlikely the 40-year-old Paul, who has not played since the Clippers sent him home in December, will stay with the Raptors.`\
+https://nytimes.com/athletic/7022228/2026/02/04/chris-paul-raptors-trade-clippers-cp3/
+
 **New York and New Jersey Governors Resolve Fight Over Appointees**\
 `The board of the Port Authority of New York and New Jersey will vote this week to confirm Kathryn Garcia as the executive director and Jean Roehrenbeck as the deputy executive director of the agency.`\
 https://nytimes.com/2026/02/04/nyregion/hochul-sherrill-port-authority-leadership-dispute-resolved.html

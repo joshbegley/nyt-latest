@@ -1,3 +1,11 @@
+**Is ‘Wuthering Heights’ Actually the Greatest Love Story of All Time?**\
+`Catherine and Heathcliff are returning to the screen, but their passion burns brightest in a handful of sentences from Emily Brontë’s novel.`\
+https://nytimes.com/interactive/2026/02/04/books/wuthering-heights-emily-bronte-romance.html
+
+**Babies, Robots and Climate Change**\
+`It’s often assumed that lower birthrates could help slow climate change and A.I. disruption. The reality is more complex.`\
+https://nytimes.com/2026/02/04/world/population-decline-climate-change-ukraine-minneapolis.html
+
 **New York and New Jersey Governors Resolve Fight Over Appointees**\
 `The board of the Port Authority of New York and New Jersey will vote this week to confirm Kathryn Garcia as the executive director and Jean Roehrenbeck as the deputy executive director of the agency.`\
 https://nytimes.com/2026/02/04/nyregion/hochul-sherrill-port-authority-leadership-dispute-resolved.html
@@ -11,7 +19,7 @@ https://nytimes.com/2026/02/04/us/politics/james-comer-clintons-epstein.html
 https://nytimes.com/2026/02/04/learning/how-ai-is-reshaping-our-world-a-live-webinar-for-students-on-march-4.html
 
 **Chris Paul traded to Raptors, ending two-month exile from Clippers: Source**\
-`It's unclear ihe 40-year-old Paul, who has not played since the Clippers sent him home in December, will stay with the Raptors.`\
+`It's unlikely the 40-year-old Paul, who has not played since the Clippers sent him home in December, will stay with the Raptors.`\
 https://nytimes.com/athletic/7022228/2026/02/04/chris-paul-raptors-trade-clippers-cp3/
 
 **Artemi Panarin’s Rangers legacy defined by electric playmaking and a hollow ending**\
@@ -25,12 +33,4 @@ https://nytimes.com/video/us/100000010690543/homan-minnesota-immigration-agents.
 **Fulton County in Georgia Demands Return of 2020 Election Materials**\
 `Fulton County, Ga., filed a motion on Wednesday demanding the return of ballots and other election materials that were seized by the F.B.I.`\
 https://nytimes.com/video/us/elections/100000010689850/georgia-2020-election-ballots.html
-
-**NHL trade grades: Artemi Panarin is the offensive threat the Kings needed**\
-`The Rangers had a lot working against them in an Artemi Panarin trade but the return from the Kings is still underwhelming.`\
-https://nytimes.com/athletic/7022002/2026/02/04/nhl-trade-grades-artemi-panarin-kings-rangers/
-
-**Thunder-76ers trade grades: Which Jared McCain is OKC getting (and Philly giving up)?**\
-`At times, the guard has looked like two different players across his first couple of seasons.`\
-https://nytimes.com/athletic/7021875/2026/02/04/jared-mccain-trade-grades-thunder-sixers/
 
