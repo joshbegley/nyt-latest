@@ -1,3 +1,7 @@
+**Strong Point**\
+`Hanh Huynh and Ted Mayer make their collaboration debut in the New York Times Crossword.`\
+https://nytimes.com/2026/02/03/crosswords/daily-puzzle-2026-02-04.html
+
 **'Rick Tocchet wants Matvei to succeed': The latest on Michkov's complicated season**\
 `Michkov's production and ice time are down, and his coach still sounds frustrated about his lack of offseason training.`\
 https://nytimes.com/athletic/7019567/2026/02/03/matvei-michkov-tocchet-flyers-briere/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/03/us/tyler-robinson-prosecutors-kirk-murder.html
 **Trade grades: Clippers, Cavs shake things up ahead of deadline**\
 `The deal involving Darius Garland is Harden's fourth in-season trade since 2020-21. Does it make sense for Cleveland?`\
 https://nytimes.com/athletic/7018552/2026/02/03/james-harden-trade-grades-darius-garland-clippers-cavs/
-
-**Backed by Mamdani, D.S.A. Candidate Wins Election for Mayor’s Old Seat**\
-`Diana Moreno will serve the remainder of Mayor Zohran Mamdani’s term in the New York State Assembly in one of four special legislative elections decided on Tuesday.`\
-https://nytimes.com/2026/02/03/nyregion/moreno-assembly-mamdani-election.html
 
