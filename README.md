@@ -1,3 +1,7 @@
+**Educators Sue to Keep Immigration Agents From Schools and Bus Stops**\
+`The lawsuit is challenging a Trump administration policy allowing federal agents near locations such as schools, churches and hospitals.`\
+https://nytimes.com/2026/02/04/us/minnesota-educators-immigration-agents-lawsuit-schools-bus-stops.html
+
 **In Spending Talks, Senators Clash Over Immigration Crackdown**\
 `Democrats’ push to rein in federal agents, and Republican opposition, reflect opposite views of whether the deportation drive should be bound by standard law enforcement rules.`\
 https://nytimes.com/2026/02/04/us/politics/senate-homeland-security-funding.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/04/us/affordability-callout.html
 **Keys and Gray to leave beIN Sports after current season**\
 `While there has been no fall-out between the parties, the pair's deal is not expected to be extended beyond the end of the season.`\
 https://nytimes.com/athletic/7021663/2026/02/04/keys-gray-bein-sports-leave/
-
-**Israeli Strikes Kill At Least 21 Palestinians Across Gaza**\
-`Israel struck Gaza on Wednesday killing at least 21 Palestinians, according to local officials. The Israeli military said it was responding to an attack on its forces in Gaza that left one soldier severely wounded.`\
-https://nytimes.com/video/world/middleeast/100000010689367/israeli-strikes-kill-palestinians-gaza.html
 

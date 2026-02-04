@@ -1,3 +1,27 @@
+**In Spending Talks, Senators Clash Over Immigration Crackdown**\
+`Democrats’ push to rein in federal agents, and Republican opposition, reflect opposite views of whether the deportation drive should be bound by standard law enforcement rules.`\
+https://nytimes.com/2026/02/04/us/politics/senate-homeland-security-funding.html
+
+**Why the Grizzlies and Jazz were both winners in the Jaren Jackson Jr. trade**\
+`The 2027 NBA Draft class had an affect on both teams' decisions.`\
+https://nytimes.com/athletic/7019430/2026/02/04/jaren-jackson-jr-trade-grizzlies-jazz-winners/
+
+**Chevron to Explore Oil and Gas Work in Syria**\
+`Chevron has signed an initial agreement to start working in Syria, weeks after the Syrian government seized control of key oil and gas fields in the north of the country.`\
+https://nytimes.com/2026/02/04/world/middleeast/chevron-syria-gas-oil.html
+
+**France’s Raid on X Escalates Trans-Atlantic Showdown Over Social Media**\
+`The French investigation into Elon Musk’s X illustrated a fundamental divide between European and American leaders about how to regulate social media — or whether to restrict it at all.`\
+https://nytimes.com/2026/02/04/world/europe/social-media-free-speech.html
+
+**Denny Hamlin reveals injured shoulder, speaks for first time since father's death**\
+`The driver will attempt to race through the injury this season.`\
+https://nytimes.com/athletic/7021669/2026/02/04/denny-hamlin-injury-nascar/
+
+**Mickey Lolich, Tigers great and 1968 World Series MVP, dies at 85**\
+`Lolich leaves a legacy as one of the best left-handers in MLB history.`\
+https://nytimes.com/athletic/7021667/2026/02/04/tigers-mickey-lolich-mlb-death/
+
 **Have You Been Impacted by the Affordability Crisis? Tell Us.**\
 `We want to hear about how costs are having an impact on your life.`\
 https://nytimes.com/2026/02/04/us/affordability-callout.html
@@ -9,28 +33,4 @@ https://nytimes.com/athletic/7021663/2026/02/04/keys-gray-bein-sports-leave/
 **Israeli Strikes Kill At Least 21 Palestinians Across Gaza**\
 `Israel struck Gaza on Wednesday killing at least 21 Palestinians, according to local officials. The Israeli military said it was responding to an attack on its forces in Gaza that left one soldier severely wounded.`\
 https://nytimes.com/video/world/middleeast/100000010689367/israeli-strikes-kill-palestinians-gaza.html
-
-**WATCH: Patriots' free-agency spending set the table for Super Bowl run**\
-`Did you notice how the AFC Champion Patriots were built? With New England one win away from another Super Bowl title, let’s find out.`\
-https://nytimes.com/athletic/7018985/2026/02/04/patriots-free-agency-spending-super-bowl-video/
-
-**Film Club: ‘Dear ICE: Letters From Students Living in Fear’**\
-`What would you like to say to ICE agents, and to the children who are detained in immigration detention centers?`\
-https://nytimes.com/2026/02/04/learning/film-club-dear-ice-letters-from-students-living-in-fear.html
-
-**Man Convicted of Trying to Assassinate Trump Gets Life Sentence**\
-`Federal prosecutors told the judge that Ryan Routh had “plotted painstakingly” to ambush Donald J. Trump in 2024 at his golf course near West Palm Beach.`\
-https://nytimes.com/2026/02/04/us/man-convicted-of-trying-to-assassinate-trump-gets-life-sentence.html
-
-**South African Party Leader Bows Out, Stirring Fears for Government’s Future**\
-`John Steenhuisen, who led a party supporting the A.N.C. in a coalition government, is leaving after controversies about his handling of a livestock virus and Uber Eats orders.`\
-https://nytimes.com/2026/02/04/world/africa/john-steenhuisen-democratic-alliance-anc-south-africa.html
-
-**Bright Horizons Child Care Centers Face Dozens of Alarming Complaints**\
-`In New York City, health officials have moved to shut down one center where workers were charged with child abuse. Records show that problems extend across the network.`\
-https://nytimes.com/2026/02/04/nyregion/bright-horizons-child-abuse-nyc.html
-
-**Erasing American History, the Trump Way**\
-`Readers object to the National Park Service’s deletions at historic sites ordered by the Trump administration. Also: David Brooks’s farewell column.`\
-https://nytimes.com/2026/02/04/opinion/national-parks-us-history-trump.html
 
