@@ -18,7 +18,7 @@ https://nytimes.com/athletic/7017960/2026/02/04/nottingham-forest-transfer-revie
 `Analysing the impact of another transfer window closing without the first team being strengthened`\
 https://nytimes.com/athletic/7017859/2026/02/04/newcastle-january-transfers-analysis/
 
-**In praise of Pep Guardiola for speaking out, regardless of the inevitable 'Whataboutery' accusations**\
+**Ignore 'Whataboutery' accusations: Guardiola should be praised for speaking out**\
 `For someone in his position to speak on difficult subjects is welcome. The fact he is ultimately employed by Abu Dhabi doesn’t negate that`\
 https://nytimes.com/athletic/7018841/2026/02/04/pep-guardiola-palestine-sudan-ukraine/
 

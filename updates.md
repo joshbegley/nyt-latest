@@ -1,3 +1,7 @@
+**Ignore 'Whataboutery' accusations: Guardiola should be praised for speaking out**\
+`For someone in his position to speak on difficult subjects is welcome. The fact he is ultimately employed by Abu Dhabi doesn’t negate that`\
+https://nytimes.com/athletic/7018841/2026/02/04/pep-guardiola-palestine-sudan-ukraine/
+
 **Lions fan files $100 million defamation lawsuit against Steelers' DK Metcalf, others**\
 `The fan, Ryan Kennedy, seeks damages over claims he used a racial slur during an altercation with the receiver at a Dec. 21 game in Detroit.`\
 https://nytimes.com/athletic/7020085/2026/02/04/dk-metcalf-lions-fan-lawsuit/
