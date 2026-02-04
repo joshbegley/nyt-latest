@@ -1,3 +1,11 @@
+**Anton Stach expected to miss Leeds' next two matches with hip injury**\
+`Jaka Bijol, who has missed the last three games with a hamstring issue, could make a return to the matchday squad.`\
+https://nytimes.com/athletic/7021073/2026/02/04/leeds-team-news-stach-bijol/
+
+**Mystery of Guthrie’s Mother Has Nation Fixated on a Desert Subdivision**\
+`The disappearance of Nancy Guthrie, mother of the news anchor Savannah Guthrie, has reporters, neighbors and drones flooding streets and foothills in Tucson, Ariz.`\
+https://nytimes.com/2026/02/04/us/savannah-guthrie-missing-mother-arizona.html
+
 **The Actress Who Disappeared Twice**\
 `Libby Howes was an imposing presence onstage with the Wooster Group. But after abruptly leaving New York in 1981 she became a theater world mystery. What happened?`\
 https://nytimes.com/2026/02/04/theater/wooster-group-libby-howes-theater.html
