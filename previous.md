@@ -1,3 +1,7 @@
+**Fenerbahce sign Kante from Al Ittihad after previously announcing failed deal**\
+`The Turkish club said on Tuesday that the transfer had not been completed, blaming the Saudi Pro League side for it falling through. `\
+https://nytimes.com/athletic/7020618/2026/02/04/ngolo-kante-fenerbahce-al-ittihad-transfer-news/
+
 **Ukraine Talks Set to Resume, Following a Huge Attack by Moscow**\
 `U.S., Russian and Ukrainian negotiators are meeting in the United Arab Emirates, but Russia continues to pummel Ukraine and has not softened demands that Kyiv calls unacceptable.`\
 https://nytimes.com/2026/02/04/world/europe/ukraine-russia-us-peace-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7010350/2026/02/04/leeds-united-january-transfer-wi
 **Manchester City's transfer window: Guehi and Semenyo represent fine January work**\
 `Pep Guardiola expressed his happiness as City secured two of the best players on the market to complete an eye-catching winter window`\
 https://nytimes.com/athletic/7006689/2026/02/04/manchester-city-guehi-semenyo-bobb-transfers-window/
-
-**Barcelona's winter transfer window: Why did Dro leave? Does Cancelo's signing make sense?**\
-`La Liga's defending champions are still restricted by rules on salary spending, but they did manage to reinforce their defence`\
-https://nytimes.com/athletic/7017806/2026/02/04/barcelona-transfer-window-recap-cancelo-dro/
 

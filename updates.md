@@ -1,3 +1,7 @@
+**Fenerbahce sign Kante from Al Ittihad after previously announcing failed deal**\
+`The Turkish club said on Tuesday that the transfer had not been completed, blaming the Saudi Pro League side for it falling through. `\
+https://nytimes.com/athletic/7020618/2026/02/04/ngolo-kante-fenerbahce-al-ittihad-transfer-news/
+
 **Ukraine Talks Set to Resume, Following a Huge Attack by Moscow**\
 `U.S., Russian and Ukrainian negotiators are meeting in the United Arab Emirates, but Russia continues to pummel Ukraine and has not softened demands that Kyiv calls unacceptable.`\
 https://nytimes.com/2026/02/04/world/europe/ukraine-russia-us-peace-talks.html
