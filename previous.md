@@ -1,3 +1,7 @@
+**Racial Debate Rattles Texas Democratic Primary for Senate**\
+`State Representative James Talarico used the word “mediocre” in connection with a former House member who is Black. The controversy has repercussions for a key contest.`\
+https://nytimes.com/2026/02/03/us/politics/texas-democratic-primary-senate.html
+
 **New Chargers DC Chris O'Leary is the first branch of Jesse Minter's coaching tree**\
 `The Chargers lost Jesse Minter. To replace him, they went to Jesse Minter’s tree.`\
 https://nytimes.com/athletic/7019859/2026/02/03/chargers-chris-oleary-jesse-minter-coaching-tree/
@@ -5,10 +9,6 @@ https://nytimes.com/athletic/7019859/2026/02/03/chargers-chris-oleary-jesse-mint
 **Cota, a Chesapeake Bay retriever, wins the sporting group.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2026/02/03/style/westminster-dog-show/cota-a-chesapeake-bay-retriever-wins-the-sporting-group
-
-**Racial Debate Rattles Texas Democratic Primary for Senate**\
-`State Representative James Talarico used the word “mediocre” to describe a former House member who is Black. The controversy has repercussions for a key contest.`\
-https://nytimes.com/2026/02/03/us/politics/texas-democratic-primary-senate.html
 
 **Trump, Changing Course, Throws Harvard Deal Talks Into Chaos**\
 `In the latest example of his mercurial negotiating style, President Trump went from dropping his ask for a $200 million fine to demanding $1 billion from the university.`\
