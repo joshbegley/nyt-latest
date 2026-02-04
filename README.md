@@ -1,3 +1,19 @@
+**South African Party Leader Bows Out, Stirring Fears for Government’s Future**\
+`John Steenhuisen, who led a party supporting the A.N.C. in a coalition government, is leaving after controversies about his handling of a livestock virus and Uber Eats orders.`\
+https://nytimes.com/2026/02/04/world/africa/john-steenhuisen-democratic-alliance-anc-south-africa.html
+
+**Bright Horizons Child Care Centers Face Dozens of Alarming Complaints**\
+`In New York City, health officials have moved to shut down one center where workers were charged with child abuse. Records show that problems extend across the network.`\
+https://nytimes.com/2026/02/04/nyregion/bright-horizons-child-abuse-nyc.html
+
+**Erasing American History, the Trump Way**\
+`Readers object to the National Park Service’s deletions at historic sites ordered by the Trump administration. Also: David Brooks’s farewell column.`\
+https://nytimes.com/2026/02/04/opinion/national-parks-us-history-trump.html
+
+**Prosecutor Fired After Voicing Frustration With Immigration Caseload**\
+`The prosecutor, Julie T. Le, told a judge that she and her colleagues in the U.S. attorney’s office were overwhelmed by the White House’s immigration operation in Minnesota.`\
+https://nytimes.com/2026/02/04/us/politics/prosecutor-immigration-outburst.html
+
 **Games Briefing: Let the curling begin**\
 `Welcome to Games Briefing, The Athletic's daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7021586/2026/02/04/curling-mixed-doubles-olympic-games-briefing/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/04/nyregion/kathy-hochul-adrienne-adams-lieutenant-g
 **Pro Line Portraits NFL cards: A fond look back at an early '90s time capsule**\
 `If you only look at 19 old football cards today, these need to be it. `\
 https://nytimes.com/athletic/7008092/2026/02/04/an-ode-to-pro-line-portraits-nfl-cards-starter-jackets-zubaz-and-early-90s-absurdity/
-
-**Pirates emerge as aggressive suitor for Framber Valdez: Sources**\
-`Thwarted in various attempts to find additional offense, the Bucs would enhance their biggest strength – their rotation – by adding Valdez.`\
-https://nytimes.com/athletic/7021444/2026/02/04/framber-valdez-free-agency-pirates/
-
-**7 Unforgettable Dogs at Westminster**\
-`Antenna ears, floofy coats, glittery barrettes and more.`\
-https://nytimes.com/2026/02/04/style/westminster-dog-show-best-in-show.html
-
-**Epstein Helped Woody Allen’s Daughter Get Into College, Emails Show**\
-`Bard College’s president, Leon Botstein, agreed to help Woody Allen and Soon-Yi Previn’s daughter after Jeffrey Epstein connected them, emails released by the Justice Department show.`\
-https://nytimes.com/2026/02/04/us/jeffrey-epstein-woody-allen-daughter-bard-college-leon-botstein.html
-
-**Giants to hire Dawn Aponte, former league exec, in VP role: Source**\
-`Aponte has also worked in the front offices of the Jets, Browns and Dolphins.`\
-https://nytimes.com/athletic/7021524/2026/02/04/dawn-aponte-vp-new-york-giants/
 
