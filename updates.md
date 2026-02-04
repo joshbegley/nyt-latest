@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Feb. 4, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/04/todays-new-york-times
+
+**In Counting the Dead in Iran, a Picture of Ferocity**\
+`The high number of dead and wounded demonstrates the depths of the regime’s fears.`\
+https://nytimes.com/2026/02/04/opinion/iran-protests-death-toll.html
+
 **Ignore 'Whataboutery' accusations: Guardiola should be praised for speaking out**\
 `For someone in his position to speak on difficult subjects is welcome. The fact he is ultimately employed by Abu Dhabi doesn’t negate that`\
 https://nytimes.com/athletic/7018841/2026/02/04/pep-guardiola-palestine-sudan-ukraine/
