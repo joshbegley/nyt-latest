@@ -1,3 +1,15 @@
+**Trump Berates CNN Reporter for ‘Not Smiling’**\
+`President Trump scolded CNN’s chief White House correspondent, Kaitlan Collins, after she asked about the latest release of files related to Jeffrey Epstein, calling her “the worst reporter.”`\
+https://nytimes.com/video/us/politics/100000010689304/trump-kaitlan-collins-cnn-smile.html
+
+**The Washington Post eliminates sports section as part of wider layoffs**\
+`The Post's sports section was a longstanding foundation for sports fans in the D.C. region.`\
+https://nytimes.com/athletic/7019090/2026/02/04/washington-post-sports-layoffs/
+
+**The Israeli Politician Fighting to Keep the Two-State Solution Alive**\
+`To many Israelis, he’s a war hero. To others, he’s a traitor guilty of “blood libel.” Can Yair Golan change politics in Israel?`\
+https://nytimes.com/2026/02/04/magazine/yair-golan-israel-palestine-gaza-war.html
+
 **What I'm hearing about Canucks' plans as Olympic roster freeze looms**\
 `Vancouver has been active in trade talks, but the team doesn't feel much pressure to execute a deal before Wednesday's freeze.`\
 https://nytimes.com/athletic/7019710/2026/02/04/vancouver-canucks-trade-deadline-2026-olympics-roster/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/04/business/media/washington-post-layoffs.html
 **College basketball mailbag: Which coaches will be top candidates in carousel season?**\
 `Saint Louis' Josh Schertz is the hottest name in the carousel this season, but will he leave?`\
 https://nytimes.com/athletic/7020898/2026/02/04/college-basketball-mailbag-coaching-carousel-josh-schertz/
-
-**Inside the Cavs' bold decision to swap Darius Garland for James Harden**\
-`Cleveland's dramatic shakeup began with a January staff-wide Zoom call and included pressure from Donovan Mitchell.`\
-https://nytimes.com/athletic/7020852/2026/02/04/james-harden-darius-garland-cavaliers-trade/
-
-**Why A.I. Fears Are Battering Stocks, Again**\
-`New tools by artificial intelligence companies like Anthropic have reignited worries that businesses will pare down their subscriptions to software services.`\
-https://nytimes.com/2026/02/04/business/dealbook/ai-software-stocks-anthropic.html
-
-**Novo Nordisk Warns of First Sales Drop Since Start of Ozempic**\
-`The once high-flying Danish drugmaker has struggled to fend off rivals in the weight-loss industry and faces lower prices for its medicines under a deal with President Trump.`\
-https://nytimes.com/2026/02/04/business/novo-nordisk-wegovy-sales-earnings.html
 
