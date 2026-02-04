@@ -1,3 +1,7 @@
+**Quote of the Day: Minneapolis and an Internet at War With Truth**\
+`Quotation of the Day for Wednesday, February 4, 2026.`\
+https://nytimes.com/2026/02/03/pageoneplus/quote-of-the-day-minneapolis-and-an-internet-at-war-with-truth.html
+
 **Blue Jackets win sixth straight behind Merzlikins' first shutout of the season**\
 `The Blue Jackets are now 9-1-0 since hiring Rick Bowness and firmly back in the playoff hunt.`\
 https://nytimes.com/athletic/7020268/2026/02/03/blue-jackets-merzlikins-shutout-win-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/03/nyregion/don-lemon-city-winery.html
 **Catherine O’Hara, Star of ‘Best in Show,’ Honored in Westminster Dog Show Tribute**\
 `Fans remembered the actress, who died last week at 71, for her role as the doting owner of a Norwich terrier destined for glory in the cult-classic sendup of dog show culture.`\
 https://nytimes.com/2026/02/03/style/catherine-ohara-westminster-dog-show.html
-
-**Reds, Eugenio Suárez excited about 'perfect' reunion and 'nightmare fuel' lineup**\
-`Suárez, a native of Venezuela who began his career with the Detroit Tigers before seven seasons with the Reds, called Cincinnati "home."`\
-https://nytimes.com/athletic/7020110/2026/02/03/cincinnati-reds-eugenio-suarez-reunion/
 
