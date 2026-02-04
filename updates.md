@@ -1,3 +1,11 @@
+**Blues trade center Nick Bjugstad to Devils for mid-round draft pick, AHL player**\
+`Bjugstad has six goals and seven points in 35 games this season for the Blues.`\
+https://nytimes.com/athletic/7021852/2026/02/04/blues-devils-nick-bjugstad-trade/
+
+**F.T.C. Settles With Express Scripts Over High Insulin Prices**\
+`The Trump administration announced that the company, a pharmacy benefit manager, had agreed to make significant changes to its practices.`\
+https://nytimes.com/2026/02/04/health/insulin-prices-express-scripts-ftc.html
+
 **Mickey Lolich, Hero of the 1968 World Series, Dies at 85**\
 `A Detroit Tigers pitcher, he was famous for his ample waistline — and for his three complete-game wins in defeating the Cardinals, making him the Series’ M.V.P.`\
 https://nytimes.com/2026/02/04/sports/baseball/mickey-lolich-dead.html
