@@ -1,3 +1,7 @@
+**Anthony Davis traded from Mavericks to Wizards, capping Dončić deal fallout: Sources**\
+`The Mavericks move on from Davis, while the Wizards continue to add veteran talent after acquiring Trae Young earlier this season. `\
+https://nytimes.com/athletic/7021765/2026/02/04/anthony-davis-trade-mavericks-wizards-nba-deadline/
+
 **Educators Sue to Keep Immigration Agents From Schools and Bus Stops**\
 `The lawsuit is challenging a Trump administration policy allowing federal agents near locations such as schools, churches and hospitals.`\
 https://nytimes.com/2026/02/04/us/minnesota-educators-immigration-agents-lawsuit-schools-bus-stops.html
