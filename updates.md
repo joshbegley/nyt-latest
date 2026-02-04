@@ -1,3 +1,12 @@
+**I’m the Prime Minister of Spain. This Is Why the West Needs Migrants.**\
+`In Spain, it is our duty to become the welcoming and tolerant society our ancestors would have hoped to find on the other side of our borders.`\
+https://nytimes.com/2026/02/04/opinion/spain-migrants-europe.html
+
+**2026 Winter Olympics women’s hockey standings and forecast**\
+`<p>Women’s Olympic hockey begins Thursday, with 10 nations competing in this year’s tournament. But medal-watchers will mostly be paying attention to the two perennial powerhouses: Canada and the United States.</p>
+`\
+https://nytimes.com/athletic/7002270/2026/02/04/2026-winter-olympics-womens-hockey-standings-and-forecast/
+
 **Man City to ask EFL to allow Guehi to play in Carabao Cup final - Guardiola**\
 `The England defender joined City after the semi-final first leg and will therefore be ineligible to face Arsenal in the final on March 22.`\
 https://nytimes.com/athletic/7022482/2026/02/04/man-city-guardiola-carabao-cup-marc-guehi-arsenal-inelgible-final/

@@ -1,3 +1,7 @@
+**Senators Accuse Equifax of ‘Price-Gouging’ Medicaid Programs**\
+`The company’s data will be essential for many states to comply with new work requirements for the health insurance program that take effect next year.`\
+https://nytimes.com/2026/02/04/health/equifax-medicaid-states-senators.html
+
 **I’m the Prime Minister of Spain. This Is Why the West Needs Migrants.**\
 `In Spain, it is our duty to become the welcoming and tolerant society our ancestors would have hoped to find on the other side of our borders.`\
 https://nytimes.com/2026/02/04/opinion/spain-migrants-europe.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7021739/2026/02/04/brian-angelichio-pittsburgh-stee
 **Jersey City Faces a Stunning Budget Deficit, Report Shows**\
 `The city’s new mayor, James Solomon, is blaming his predecessor, Steven Fulop, who just became the head of an influential business advocacy group in New York City.`\
 https://nytimes.com/2026/02/04/nyregion/jersey-city-budget-deficit.html
-
-**Lonzo Ball traded to Jazz as Cavaliers continue to clear salary: Sources**\
-`Utah is expected to waive Ball, while the Cavaliers clear his $10 million salary from their books. `\
-https://nytimes.com/athletic/7022413/2026/02/04/lonzo-ball-trade-jazz-cavs-nba-deadline/
 
