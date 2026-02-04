@@ -1,3 +1,7 @@
+**Wager, a smooth fox terrier, wins the terrier group.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2026/02/03/style/westminster-dog-show/wager-a-smooth-fox-terrier-wins-the-terrier-group
+
 **Reds, Eugenio Suárez excited about 'perfect' reunion and 'nightmare fuel' lineup**\
 `Suárez, a native of Venezuela who began his career with the Detroit Tigers before seven seasons with the Reds, called Cincinnati "home."`\
 https://nytimes.com/athletic/7020110/2026/02/03/cincinnati-reds-eugenio-suarez-reunion/

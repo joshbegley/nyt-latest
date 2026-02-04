@@ -1,3 +1,7 @@
+**Wager, a smooth fox terrier, wins the terrier group.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2026/02/03/style/westminster-dog-show/wager-a-smooth-fox-terrier-wins-the-terrier-group
+
 **Austin Reaves' 19-game absence from Lakers ends with blowout win vs. Nets**\
 `Reaves, who hadn’t played since Dec. 25 with a grade 2 calf strain, scored 15 points in 20 minutes off the bench in the Lakers’ blowout win.`\
 https://nytimes.com/athletic/7020208/2026/02/03/lakers-austin-reaves-injury-update-calf/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7019867/2026/02/03/guns-utah-bill-jazz-mammoth-game
 **Steve Kerr on Draymond Green, Warriors trade rumors: 'It puts guys on edge, for sure'**\
 `Kerr was asked prior to Tuesday's game whether he also felt Green wasn't concerned about whatever may happen in the coming days.`\
 https://nytimes.com/athletic/7020050/2026/02/03/draymond-green-trade-rumors-warriors-steve-kerr/
-
-**Tyler Robinson’s Lawyers Press to Remove Prosecutors From Kirk Murder Case**\
-`Mr. Robinson’s lawyers argue that the entire prosecution team has a conflict of interest because one prosecutor’s daughter was present when Charlie Kirk was killed.`\
-https://nytimes.com/2026/02/03/us/tyler-robinson-prosecutors-kirk-murder.html
 
