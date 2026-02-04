@@ -1,3 +1,23 @@
+**Pregnant Women in Minneapolis Hiding From ICE Face Impossible Choice**\
+`Health care providers across Minnesota have reported federal immigration agents present in and around medical centers. As arrests continue across the state, expecting mothers are afraid to go to their appointments — and reconsidering their birth plans.`\
+https://nytimes.com/video/us/100000010671101/pregnant-minneapolis-ice.html
+
+**Birthrates Are Down. That Can Be a Sign of Progress**\
+`The first in a weekly series exploring where we’re headed one number at a time.`\
+https://nytimes.com/2026/02/04/headway/birthrates-progress-newsletter.html
+
+**What’s in Our Queue? ‘Baby’ and More**\
+`Text by Brian Josephs`\
+https://nytimes.com/card/2026/02/04/arts/editors-recommendations-baby
+
+**How to watch Blues vs. Stars: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7022121/2026/02/04/blues-vs-stars-stream-how-to-watch-feb-4/
+
+**How to watch Thunder vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Oklahoma City Thunder play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7022118/2026/02/04/thunder-vs-spurs-stream-how-to-watch-feb-4/
+
 **How to watch Cavaliers vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7022114/2026/02/04/cavaliers-vs-clippers-stream-how-to-watch-feb-4/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7022107/2026/02/04/celtics-vs-rockets-stream-how-to
 **How to watch Timberwolves vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the Minnesota Timberwolves play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7022105/2026/02/04/timberwolves-vs-raptors-stream-how-to-watch-feb-4/
-
-**How to watch Pelicans vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7022102/2026/02/04/pelicans-vs-bucks-stream-how-to-watch-feb-4/
-
-**How to watch Canucks vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7022100/2026/02/04/canucks-vs-golden-knights-stream-how-to-watch-feb-4/
-
-**How to watch Grizzlies vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7022094/2026/02/04/grizzlies-vs-kings-stream-how-to-watch-feb-4/
-
-**How to watch Red Wings vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7022092/2026/02/04/red-wings-vs-mammoth-stream-how-to-watch-feb-4/
-
-**How to watch Wild vs. Predators: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7022088/2026/02/04/wild-vs-predators-stream-how-to-watch-feb-4/
 

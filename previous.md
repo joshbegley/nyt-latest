@@ -1,40 +1,40 @@
-**How to watch Northwestern vs. Illinois men's basketball: Time, TV, streaming**\
-`Find out how to watch the Northwestern Wildcats play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7022061/2026/02/04/northwestern-vs-illinois-stream-how-to-watch-feb-4/
+**How to watch Cavaliers vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7022114/2026/02/04/cavaliers-vs-clippers-stream-how-to-watch-feb-4/
 
-**Lakers' Jaxson Hayes suspended one game after shoving Wizards mascot**\
-`Hayes' pregame run-in with the Wizards' mascot somehow crossed the line. `\
-https://nytimes.com/athletic/7022009/2026/02/04/jaxson-hayes-lakers-wizards-mascot/
+**How to watch Sharks vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7022110/2026/02/04/sharks-vs-avalanche-stream-how-to-watch-feb-4/
 
-**Coby White traded to Hornets; Bulls receive Collin Sexton, more: Sources**\
-`The Hornets upgrade at guard, while Chicago moves on from its longest-tenured player. The Hornets will also receive Mike Conley in the deal.`\
-https://nytimes.com/athletic/7022058/2026/02/04/coby-white-trade-bulls-hornets-collin-sexton-nba-deadline/
+**Mamdani Chooses a Liberal Jewish Leader to Run Antisemitism Office**\
+`Phylisa Wisdom, who runs the New York Jewish Agenda, shares Mayor Zohran Mamdani’s criticism of Israel’s treatment of Gaza, but supports its right to exist as a Jewish state.`\
+https://nytimes.com/2026/02/04/nyregion/mamdani-antisemitism-wisdom.html
 
-**How to watch Rutgers vs. UCLA women's basketball: Time, TV, streaming**\
-`Find out how to watch the Rutgers Scarlet Knights play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7022050/2026/02/04/rutgers-vs-ucla-stream-how-to-watch-feb-4/
+**How to watch Celtics vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7022107/2026/02/04/celtics-vs-rockets-stream-how-to-watch-feb-4/
 
-**How to watch UConn vs. DePaul women's basketball: Time, TV, streaming**\
-`Find out how to watch the UConn Huskies play the DePaul Blue Demons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7022045/2026/02/04/uconn-vs-depaul-stream-how-to-watch-feb-4/
+**How to watch Timberwolves vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7022105/2026/02/04/timberwolves-vs-raptors-stream-how-to-watch-feb-4/
 
-**How to watch BYU vs. Oklahoma State men's basketball: Time, TV, streaming**\
-`Find out how to watch the BYU Cougars play the Oklahoma State Cowboys, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7022041/2026/02/04/byu-vs-oklahoma-state-stream-how-to-watch-feb-4/
+**How to watch Pelicans vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7022102/2026/02/04/pelicans-vs-bucks-stream-how-to-watch-feb-4/
 
-**How to watch Clemson vs. Stanford men's basketball: Time, TV, streaming**\
-`Find out how to watch the Clemson Tigers play the Stanford Cardinal, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7022039/2026/02/04/clemson-vs-stanford-stream-how-to-watch-feb-4/
+**How to watch Canucks vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7022100/2026/02/04/canucks-vs-golden-knights-stream-how-to-watch-feb-4/
 
-**How to watch West Virginia vs. Colorado women's basketball: Time, TV, streaming**\
-`Find out how to watch the West Virginia Mountaineers play the Colorado Buffaloes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7022033/2026/02/04/west-virginia-vs-colorado-stream-how-to-watch-feb-4/
+**How to watch Grizzlies vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7022094/2026/02/04/grizzlies-vs-kings-stream-how-to-watch-feb-4/
 
-**Thunder star SGA sidelined until after All-Star break with abdominal injury**\
-`The NBA's reigning MVP was injured in Oklahoma City’s blowout win Tuesday against the Orlando Magic.`\
-https://nytimes.com/athletic/7021922/2026/02/04/shai-gilgeous-alexander-injury-all-star-break/
+**How to watch Red Wings vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7022092/2026/02/04/red-wings-vs-mammoth-stream-how-to-watch-feb-4/
 
-**How to watch Houston vs. TCU women's basketball: Time, TV, streaming**\
-`Find out how to watch the Houston Cougars play the TCU Horned Frogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7022031/2026/02/04/houston-vs-tcu-stream-how-to-watch-feb-4/
+**How to watch Wild vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7022088/2026/02/04/wild-vs-predators-stream-how-to-watch-feb-4/
 
