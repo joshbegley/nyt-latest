@@ -8,6 +8,11 @@ https://nytimes.com/athletic/7021211/2026/02/04/the-bounce-james-harden-nba-trad
 `\
 https://nytimes.com/athletic/7021211/2026/02/04/the-bounce-james-harden-nba-trade-deadline/
 
+**The Bounce: Ranking Tuesday's NBA trades on impact, Harden's exits on comedy**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7021211/2026/02/04/the-bounce-james-harden-nba-trade-deadline/
+
 **Red Wings questions? Submit them here for Max Bultman's mailbag**\
 `Send in your burning Red Wings questions, and Max may answer them in an upcoming mailbag.`\
 https://nytimes.com/athletic/7021256/2026/02/04/red-wings-questions-max-bultman-mailbag/
