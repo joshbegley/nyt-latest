@@ -1,3 +1,19 @@
+**Are You ‘Biohacking’ to Perform Better at Work? We Want to Hear From You.**\
+`Please tell us what changes you’ve made to your health and wellness practices to improve your brain function and job performance. We may include your experiences in an article.`\
+https://nytimes.com/2026/02/04/business/are-you-biohacking-to-perform-better-at-work-we-want-to-hear-from-you.html
+
+**‘Trump Has Lost the Country’**\
+`Columnist Ross Douthat on “the truth that you won’t hear” when it comes to Trump’s vanishing coalition.`\
+https://nytimes.com/video/opinion/100000010684773/trump-has-lost-the-country.html
+
+**Chelsea, West Ham charged after stoppage-time mass altercation**\
+`The charges relate to an incident in the 95th minute of Chelsea's 3-2 win at Stamford Bridge.`\
+https://nytimes.com/athletic/7021343/2026/02/04/chelsea-west-ham-charged-fa/
+
+**State Fiscal Chiefs Protest Federal Immigration Chaos**\
+`Sixteen elected treasury officials, all Democrats, wrote to President Trump to say ICE crackdowns are bad for business and tax revenues: “People must feel safe to go to work.”`\
+https://nytimes.com/2026/02/04/business/economy/state-fiscal-protest-ice.html
+
 **How the Thunder are winning the NBA trade deadline without doing anything**\
 `The Clippers' James Harden trade and the Jazz's decision to go in on Jaren Jackson Jr. could each significantly benefi the defending champs.`\
 https://nytimes.com/athletic/7021453/2026/02/04/nba-trade-deadline-thunder-james-harden-success/
