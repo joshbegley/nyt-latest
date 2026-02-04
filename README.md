@@ -1,3 +1,31 @@
+**Williams sacrificed 2025 for 2026, so why is its F1 horizon still murky?**\
+`The Williams F1 team ended 2025 riding the high of its best championship result in eight years. Suddenly, that narrative is gone`\
+https://nytimes.com/athletic/7020542/2026/02/04/williams-f1-preview-murky-horizon/
+
+**Pittsburgh Pirates 2026 top 20 prospects: Konnor Griffin, Bubba Chandler lead the way**\
+`The Pirates' system is on the rise and currently boasts MLB's top overall prospect and MLB's top pitching prospect.`\
+https://nytimes.com/athletic/7014818/2026/02/04/pittsburgh-pirates-2026-top-20-prospects-keith-law/
+
+**The Pulse: An unexpected flurry of NBA trades**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7018632/2026/02/04/nba-trades-james-harden-jaren-jackson-the-pulse/
+
+**What will Mike McCarthy's Steelers offense look like? Pages from his old playbook hold some clues**\
+`You can count on at least some West Coast concepts on Pittsburgh's North Shore in 2026.`\
+https://nytimes.com/athletic/7014565/2026/02/04/mike-mccarthy-pittsburgh-steelers-offensive-system-playbook/
+
+**NBA Awards Watch: Nikola Jokić is back in the MVP conversation, for now**\
+`The Joker recently returned from injury, but he can only miss one more game to remain eligible for postseason honors.`\
+https://nytimes.com/athletic/7012352/2026/02/04/nba-awards-watch-mvp-odds-nikola-jokic-sga/
+
+**Tarik Skubal’s arbitration outcome could influence Tigers' search for another starter**\
+`The Tigers' pursuit of another pitcher could ramp up if they avoid paying Tarik Skubal $32 million next season. `\
+https://nytimes.com/athletic/7019240/2026/02/04/tarik-skubal-arbitration-outcome-free-agent-starter/
+
+**Milwaukee Brewers 2026 top 20 prospects: Jesús Made, Luis Peña lead the way**\
+`The Brewers have the top-ranked farm system, and they feature high-upside prospects on both sides of the ball.`\
+https://nytimes.com/athletic/7014766/2026/02/04/brewers-2026-top-20-prospects-keith-law/
+
 **West Ham transfer window: Firepower added but centre-back issue remains - will it be enough?**\
 `West Ham signed five players, moved out nine others but will Nuno have the players to lift his team to Premier League safety?`\
 https://nytimes.com/athletic/6988955/2026/02/04/west-ham-transfer-window-nuno-paqueta/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7020745/2026/02/04/england-brendon-mccullum-harry-b
 **Cincinnati Reds 2026 top 20 prospects: Sal Stewart, Tyson Lewis lead the way**\
 `The Reds' system has been excellent at producing pitching for the past decade, but now the system is slanted more towards hitters.`\
 https://nytimes.com/athletic/7012855/2026/02/04/cincinnati-reds-2026-top-20-prospects-keith-law/
-
-**Why Chiefs special teams struggled in 2025 — and a big-picture question ahead**\
-`The Chiefs have to feel good about two areas of their special teams — while also facing a big-picture decision ahead.`\
-https://nytimes.com/athletic/7018337/2026/02/04/chiefs-special-teams-what-went-wrong/
-
-**Women’s Olympic hockey predictions: Gold medal winner? MVP? Canada vs. USA?**\
-`The women's tournament brings high stakes, incredible talent and one of the best rivalries in sports to Milan. Who will come out on top?`\
-https://nytimes.com/athletic/7017213/2026/02/04/olympic-womens-hockey-predictions-canada-usa-medals/
-
-**Penguins bounce back and dominate Islanders before stumbling in OT**\
-`The Penguins outshot the Islanders on Tuesday but fell 5-4 in overtime.`\
-https://nytimes.com/athletic/7020282/2026/02/04/penguins-islanders-overtime-sidney-crosby/
-
-**Disappointing OT loss to Lightning a sign of rising expectations: 5 thoughts**\
-`It's a mark of how far the Sabres have come that a 3-point swing through Florida is cause for consternation.`\
-https://nytimes.com/athletic/7020431/2026/02/04/sabres-overtime-loss-expectations-samuelsson-lightning/
-
-**Twins owner Tom Pohlad on new baseball ops head: 'We lucked out with Jeremy Zoll'**\
-`With Derek Falvey's sudden departure, the Twins head into the season with a new head of baseball operations as well as a new manager.`\
-https://nytimes.com/athletic/7020059/2026/02/04/twins-jeremy-zoll-tom-pohlad/
-
-**Bettors all over Seahawks, Jaxon Smith-Njigba early, as it's 'all Seattle money'**\
-`What's the early Super Bowl action looking like? Who are the pros betting on? What's the most popular prop bets? Doug checks in from Vegas.`\
-https://nytimes.com/athletic/7020075/2026/02/04/super-bowl-betting-big-bets-patriots-seahawks/
-
-**NHL player poll: Next expansion city? How big is too big? Fan Venmo requests? Worst chirps?**\
-`In polling 118 players, a familiar name was the top pick for worst chirps, while one city has emerged as the runaway favorite for expansion.`\
-https://nytimes.com/athletic/7016013/2026/02/04/nhl-player-poll-chirps-expansion-venmo/
 
