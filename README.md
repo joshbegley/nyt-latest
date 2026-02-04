@@ -34,7 +34,7 @@ https://nytimes.com/2026/02/04/style/love-story-ryan-murphy-carolyn-bessette-ken
 `She was a ubiquitous presence at London theaters and claimed to have inspired the name — and final words — of Tennessee Williams’s Blanche DuBois.`\
 https://nytimes.com/2026/02/04/theater/blanche-marvin-dead.html
 
-**The Inside Story of My 11 Interviews With Susie Wiles**\
+**This Is the Real Reason Susie Wiles Talked to Me 11 Times**\
 `What did her unguarded remarks reveal about the Trump White House?`\
 https://nytimes.com/2026/02/04/opinion/susie-wiles-trump-white-house.html
 
