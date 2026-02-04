@@ -1,3 +1,19 @@
+**Trump Repeats Call to ‘Nationalize’ Elections, as White House Walks It Back**\
+`President Trump’s extraordinary comments were the latest iteration of his unsubstantiated claims that U.S. elections are rigged as Republicans face potentially big losses next year.`\
+https://nytimes.com/2026/02/03/us/politics/trump-save-act-elections.html
+
+**Mike Conley exits Minnesota after making a quiet but significant impact with the Wolves**\
+`The end of Minnesota Mike and what comes next for the Timberwolves.`\
+https://nytimes.com/athletic/7019135/2026/02/03/mike-conley-minnesota-timberwolves-bulls-trade/
+
+**Judge Says U.S. Has Agreed to Fix Redaction Errors in Epstein Files**\
+`Judge Richard M. Berman canceled a hearing set for Wednesday and said he was “pleased but not surprised” that the issues had been resolved to protect victims in the Jeffrey Epstein case.`\
+https://nytimes.com/2026/02/03/nyregion/epstein-files-victim-names.html
+
+**Plastic Surgeons’ Group Advises Delaying Gender-Affirming Procedures Until Age 19**\
+`The organization’s latest guidance is a departure from the prevailing views of several other major medical organizations.`\
+https://nytimes.com/2026/02/03/health/plastic-surgeons-group-advises-delaying-gender-affirming-procedures-until-age-19.html
+
 **NBA Trade Board 3.0: After flurry of deals, 10 players who could be on the move**\
 `With the Bucks officially listening to offers on Giannis Antetokounmpo, there is no one else who can top this list.`\
 https://nytimes.com/athletic/7019611/2026/02/03/nba-trade-deadline-players-available-giannis-antetokounmpo/

@@ -12,7 +12,7 @@ https://nytimes.com/2026/02/03/nyregion/epstein-files-victim-names.html
 
 **Plastic Surgeons’ Group Advises Delaying Gender-Affirming Procedures Until Age 19**\
 `The organization’s latest guidance is a departure from the prevailing views of several other major medical organizations.`\
-https://nytimes.com/2026/02/03/health/plastic-surgeons-group-advises-delaying-gender-affirming-procedures-until-age-19.html
+https://nytimes.com/2026/02/03/health/plastic-surgery-gender-affirming-procedures.html
 
 **NBA Trade Board 3.0: After flurry of deals, 10 players who could be on the move**\
 `With the Bucks officially listening to offers on Giannis Antetokounmpo, there is no one else who can top this list.`\
