@@ -1,3 +1,11 @@
+**What Is the Democrats’ Game Plan on ICE?**\
+`After nearly four days of a partial government shutdown, the House voted to temporarily continue funding the Department of Homeland Security.`\
+https://nytimes.com/video/opinion/100000010679102/what-is-the-democrats-game-plan-on-ice.html
+
+**Plastic Surgeons’ Group Advises Delaying Gender-Affirming Procedures Until Age 19**\
+`The organization’s latest guidance is a departure from the prevailing views of several other major medical organizations.`\
+https://nytimes.com/2026/02/03/health/plastic-surgery-gender-affirming-procedures.html
+
 **Trump Repeats Call to ‘Nationalize’ Elections, as White House Walks It Back**\
 `President Trump’s extraordinary comments were the latest iteration of his unsubstantiated claims that U.S. elections are rigged as Republicans face potentially big losses next year.`\
 https://nytimes.com/2026/02/03/us/politics/trump-save-act-elections.html

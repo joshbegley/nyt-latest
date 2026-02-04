@@ -1,3 +1,7 @@
+**What Is the Democrats’ Game Plan on ICE?**\
+`After nearly four days of a partial government shutdown, the House voted to temporarily continue funding the Department of Homeland Security.`\
+https://nytimes.com/video/opinion/100000010679102/what-is-the-democrats-game-plan-on-ice.html
+
 **Trump Repeats Call to ‘Nationalize’ Elections, as White House Walks It Back**\
 `President Trump’s extraordinary comments were the latest iteration of his unsubstantiated claims that U.S. elections are rigged as Republicans face potentially big losses next year.`\
 https://nytimes.com/2026/02/03/us/politics/trump-save-act-elections.html
@@ -12,7 +16,7 @@ https://nytimes.com/2026/02/03/nyregion/epstein-files-victim-names.html
 
 **Plastic Surgeons’ Group Advises Delaying Gender-Affirming Procedures Until Age 19**\
 `The organization’s latest guidance is a departure from the prevailing views of several other major medical organizations.`\
-https://nytimes.com/2026/02/03/health/plastic-surgeons-group-advises-delaying-gender-affirming-procedures-until-age-19.html
+https://nytimes.com/2026/02/03/health/plastic-surgery-gender-affirming-procedures.html
 
 **NBA Trade Board 3.0: After flurry of deals, 10 players who could be on the move**\
 `With the Bucks officially listening to offers on Giannis Antetokounmpo, there is no one else who can top this list.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/03/world/middleeast/libya-seif-al-islam-el-qaddafi-k
 **Trump Scolds CNN’s Kaitlan Collins for ‘Not Smiling’**\
 `Testy remarks from a president who has frequently singled out female journalists for criticism and personal attacks.`\
 https://nytimes.com/2026/02/03/us/politics/kaitlan-collins-smile-trump.html
-
-**Renee Good’s Brothers Call on Congress to Rein In Immigration Crackdown**\
-`At a forum on Capitol Hill held by congressional Democrats, the brothers of the 37-year-old American citizen fatally shot by an ICE agent said immigration enforcement tactics must be dialed back.`\
-https://nytimes.com/2026/02/03/us/renee-good-brothers-ice-congress.html
 
