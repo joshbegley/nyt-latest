@@ -1,3 +1,7 @@
+**2026 NBA All-Star Game format: What are the changes this season?**\
+`The NBA All-Star Game will have two U.S. teams and one squad of international players, and the setup includes a prize pool of $1.8 million.`\
+https://nytimes.com/athletic/7002284/2026/02/03/nba-all-star-format-explained-2026/
+
 **Amid trade rumors, Giannis holds rehab session before Bucks game**\
 `The Bucks' star went through a 30-minute pregame workout as he works back from a calf injury.`\
 https://nytimes.com/athletic/7019920/2026/02/03/giannis-antetokounmpo-trade-rumors-injury-update-bucks/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/03/nyregion/mamdani-economic-development-corporation
 **How to watch Seahawks at Patriots: Super Bowl Time, TV, streaming**\
 `Find out how to watch the Seattle Seahawks play the New England Patriots, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7019851/2026/02/03/seahawks-vs-patriots-stream-how-to-watch-feb-8/
-
-**What Is the Democrats’ Game Plan on ICE?**\
-`After nearly four days of a partial government shutdown, the House voted to temporarily continue funding the Department of Homeland Security.`\
-https://nytimes.com/video/opinion/100000010679102/what-is-the-democrats-game-plan-on-ice.html
 
