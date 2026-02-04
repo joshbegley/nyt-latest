@@ -1,3 +1,7 @@
+**Giannis on likelihood of Bucks trade: 'I want to be here, but I want to be here to win'**\
+`“On what planet, on what Earth, would somebody want to leave this?” Giannis said when asked about finishing his career in Milwaukee.`\
+https://nytimes.com/athletic/7020803/2026/02/04/giannis-antetokounmpo-bucks-nba-trade-deadline/
+
 **Anton Stach expected to miss Leeds' next two matches with hip injury**\
 `Jaka Bijol, who has missed the last three games with a hamstring issue, could make a return to the matchday squad.`\
 https://nytimes.com/athletic/7021073/2026/02/04/leeds-team-news-stach-bijol/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/04/magazine/yair-golan-israel-palestine-gaza-war.htm
 **What I'm hearing about Canucks' plans as Olympic roster freeze looms**\
 `Vancouver has been active in trade talks, but the team doesn't feel much pressure to execute a deal before Wednesday's freeze.`\
 https://nytimes.com/athletic/7019710/2026/02/04/vancouver-canucks-trade-deadline-2026-olympics-roster/
-
-**Beckett Sennecke has 'a chance to be off the charts.' The Ducks already like what they see**\
-`Anaheim surprised many — including Sennecke — when they drafted him at No. 3. He's already justifying it in his rookie season.`\
-https://nytimes.com/athletic/7017023/2026/02/04/beckett-sennecke-anaheim-ducks-rookie-season-calder/
 
