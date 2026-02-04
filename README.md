@@ -1,40 +1,40 @@
-**Could Bobby McMann trade Leafs blue and white for Oilers blue and orange?**\
-`Edmonton wants to play fast, and McMann is the player who can do just that.`\
-https://nytimes.com/athletic/7020490/2026/02/04/leafs-win-oilers-bobby-mcmann-edmonton-move/
+**Wolves' transfer window: Strand Larsen sale raises funds as groundwork starts for next season**\
+`Rob Edwards had hoped to freshen up his options in the team's fight against relegation, but they have started planning for the Championship`\
+https://nytimes.com/athletic/7016044/2026/02/04/wolves-transfer-window-strand-larsen-sale-raises-funds-as-groundwork-starts-for-the-second-tier/
 
-**Word of the Day: covert**\
-`This word has appeared in 339 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/02/04/learning/word-of-the-day-covert.html
+**Real Madrid's 'failed' transfer window: Why no signings? Will that change in summer?**\
+`Despite concerns over squad depth and an injury crisis at the back, the Spanish giants decided against new signings`\
+https://nytimes.com/athletic/7018135/2026/02/04/real-madrid-transfer-window-endrick-garcia/
 
-**Michael Kosta Blasts the Super Bowl Halftime Alternative**\
-`“Man, that is a real who’s who of ‘Who?’” Kosta mused about Turning Point USA’s concert as opposed to the halftime show led by Bad Bunny.`\
-https://nytimes.com/2026/02/04/arts/television/michael-kosta-super-bowl-halftime.html
+**Leeds United January window review — and what they are planning for the summer**\
+`Leeds allowed one senior player to leave on loan and brought another in. The Athletic reviews the window`\
+https://nytimes.com/athletic/7010350/2026/02/04/leeds-united-january-transfer-window-review-summer-latest/
 
-**Rosenior's pragmatism was a recognition of Chelsea's reality - for now**\
-`Head coach's tactics were criticised by pundits but were designed to give Chelsea the best chance of progress against a stronger side`\
-https://nytimes.com/athletic/7020095/2026/02/04/liam-rosenior-chelsea-arsenal-tactics/
+**Manchester City's transfer window: Guehi and Semenyo represent fine January work**\
+`Pep Guardiola expressed his happiness as City secured two of the best players on the market to complete an eye-catching winter window`\
+https://nytimes.com/athletic/7006689/2026/02/04/manchester-city-guehi-semenyo-bobb-transfers-window/
 
-**Trump Signs Bill to End Partial Government Shutdown**\
-`President Trump signed a spending package on Tuesday that reopened major parts of the government, as well as fund the Department of Homeland Security as negotiations over restrictions on the administration’s immigration crackdown continue.`\
-https://nytimes.com/video/us/politics/100000010688971/trump-government-shutdown-house-vote.html
+**Barcelona's winter transfer window: Why did Dro leave? Does Cancelo's signing make sense?**\
+`La Liga's defending champions are still restricted by rules on salary spending, but they did manage to reinforce their defence`\
+https://nytimes.com/athletic/7017806/2026/02/04/barcelona-transfer-window-recap-cancelo-dro/
 
-**Arsenal are here to win, not entertain. And that's just what they're doing**\
-`The nervousness of prior weeks was banished on a Carabao Cup semi-final night that ended in euphoria - and the sense this is just the start`\
-https://nytimes.com/athletic/7020034/2026/02/04/arsenal-chelsea-carabao-cup-report/
+**Chelsea January window review - and what they are planning for the summer**\
+`Chelsea had a quiet window on an incoming front but will be happy with the outcome of it`\
+https://nytimes.com/athletic/7016835/2026/02/04/chelsea-transfer-window-january-review-latest/
 
-**After fight for control of Padres, late owner's widow and brothers reach agreement**\
-`The family feud over control of the San Diego Padres appears to be over, according to a court filing on Monday.`\
-https://nytimes.com/athletic/7020149/2026/02/04/after-fight-for-control-of-padres-late-owners-widow-and-brothers-reach-agreement/
+**Arsenal January transfer window review – and what they are planning in the summer**\
+`Arsenal did not bring in a senior signing during the winter window, but this might not have been much of a surprise`\
+https://nytimes.com/athletic/7017910/2026/02/04/arsenal-january-window-review-summer-plans/
 
-**The New York Times in Print for Wednesday, Feb. 4, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/02/04/todays-new-york-times
+**Crystal Palace's chaotic window: Record signings, Guehi gone, but are they stronger?**\
+`The south London club were the second-highest spenders in the Premier League in the window as they sought to stop their season unravelling`\
+https://nytimes.com/athletic/7013812/2026/02/04/crystal-palace-larsen-mateta-mcneil-guessand-window/
 
-**In Counting the Dead in Iran, a Picture of Ferocity**\
-`The high number of dead and wounded demonstrates the depths of the regime’s fears.`\
-https://nytimes.com/2026/02/04/opinion/iran-protests-death-toll.html
+**Manchester United's winter transfer window review - and their summer priority**\
+`A new head coach and an upturn in form but no mid-season player incomings at Old Trafford`\
+https://nytimes.com/athletic/7009533/2026/02/04/manchester-united-transfer-latest-january-summer-2026-2/
 
-**Lions fan files $100 million defamation lawsuit against Steelers' DK Metcalf, others**\
-`The fan, Ryan Kennedy, seeks damages over claims he used a racial slur during an altercation with the receiver at a Dec. 21 game in Detroit.`\
-https://nytimes.com/athletic/7020085/2026/02/04/dk-metcalf-lions-fan-lawsuit/
+**Brighton January transfer window review — and summer priority**\
+`Brighton had a quiet window in terms of incomings, making just one permanent addition and bringing a player back from loan`\
+https://nytimes.com/athletic/6993601/2026/02/04/brighton-january-transfer-latest-summer-window-review/
 
