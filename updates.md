@@ -1,3 +1,7 @@
+**Senators Accuse Equifax of ‘Price-Gouging’ Medicaid Programs**\
+`The company’s data will be essential for many states to comply with new work requirements for the health insurance program that take effect next year.`\
+https://nytimes.com/2026/02/04/health/equifax-medicaid-states-senators.html
+
 **I’m the Prime Minister of Spain. This Is Why the West Needs Migrants.**\
 `In Spain, it is our duty to become the welcoming and tolerant society our ancestors would have hoped to find on the other side of our borders.`\
 https://nytimes.com/2026/02/04/opinion/spain-migrants-europe.html
