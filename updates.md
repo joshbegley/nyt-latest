@@ -1,3 +1,11 @@
+**NFC rallies to beat AFC in Pro Bowl with stars, scooters and trick plays**\
+`The game was more of a casual scrimmage than a true competition as Micah Parsons rolled around in a scooter. `\
+https://nytimes.com/athletic/7020349/2026/02/04/nfl-pro-bowl-2026-flag-plays-micah-parsons/
+
+**Forest's transfer window: Did they do enough? PSR, UEFA latest? Summer plans?**\
+`Forest strengthened their options in goal, defence and up front, but were frustrated in their efforts to make further additions`\
+https://nytimes.com/athletic/7017960/2026/02/04/nottingham-forest-transfer-review-2/
+
 **What does Newcastle's lack of transfer activity tell us about where the club is?**\
 `Analysing the impact of another transfer window closing without the first team being strengthened`\
 https://nytimes.com/athletic/7017859/2026/02/04/newcastle-january-transfers-analysis/

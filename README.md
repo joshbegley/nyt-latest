@@ -1,3 +1,7 @@
+**Liverpool's transfer window: No short-term signings represents a major gamble**\
+`While Arne Slot's side were not expected to be make major moves in January, no new first-team signings leaves the squad short`\
+https://nytimes.com/athletic/7010166/2026/02/04/liverpool-transfer-window-no-signings/
+
 **NFC rallies to beat AFC in Pro Bowl with stars, scooters and trick plays**\
 `The game was more of a casual scrimmage than a true competition as Micah Parsons rolled around in a scooter. `\
 https://nytimes.com/athletic/7020349/2026/02/04/nfl-pro-bowl-2026-flag-plays-micah-parsons/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6998977/2026/02/04/aleksander-aamodt-kilde-crash-re
 **Security at the Winter Olympics: Robots, Drones and a Cyber Command Center**\
 `Thousands of police and security officers will work during the Milan-Cortina Games’ opening ceremony. The involvement of some U.S. ICE personnel has stirred opposition.`\
 https://nytimes.com/2026/02/04/world/europe/winter-olympics-security-milan-cortina.html
-
-**In South Korea, Questions About Cram Schools, Success and Happiness**\
-`Academic pressure has become so intense that even preschoolers are taking private extracurricular classes, raising worries about children’s rights.`\
-https://nytimes.com/2026/02/04/world/asia/south-korea-cram-schools-childhood-stress.html
 
