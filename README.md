@@ -1,3 +1,11 @@
+**Man City to ask EFL to allow Guehi to play in Carabao Cup final - Guardiola**\
+`The England defender joined City after the semi-final first leg and will therefore be ineligible to face Arsenal in the final on March 22.`\
+https://nytimes.com/athletic/7022482/2026/02/04/man-city-guardiola-carabao-cup-marc-guehi-arsenal-inelgible-final/
+
+**Justices Allow California to Use a Voting Map That Helps Democrats**\
+`Also, hundreds of federal agents are set to withdraw from Minneapolis. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2026/02/04/briefing/supreme-court-california-federal-agents-minnesota.html
+
 **University of Southern California Names a Lawyer as Its New President**\
 `The president, Beong-Soo Kim, had served on an interim basis and already faced pressure from the Trump administration to join a higher education compact to follow a set of conservative ideas. He refused.`\
 https://nytimes.com/2026/02/04/us/usc-new-president-kim.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7022158/2026/02/04/robert-spillane-klavon-chaisson-
 **The Briefing - Man City 3 Newcastle 1 (5-1 agg): Guardiola's team set up final with Arsenal. Will Howe ever win at Etihad?**\
 `Marmoush scored twice as City sealed their spot in the final, where they will face Mikel Arteta's Arsenal on March 22`\
 https://nytimes.com/athletic/7006952/2026/02/04/man-city-carabao-cup-final-arsenal-newcastle/
-
-**Carolyn Bessette Kennedy and John F. Kennedy Jr. Embraced at ‘Love Story’ Premiere**\
-`A party for Ryan Murphy’s new TV show about the couple drew a crowd that included Naomi Watts, Martha Stewart and Grace Gummer.`\
-https://nytimes.com/2026/02/04/style/love-story-ryan-murphy-carolyn-bessette-kennedy-jfk-jr.html
-
-**Blanche Marvin, 100, Dies; Critic Was, Maybe, ‘Streetcar’ Inspiration**\
-`She was a ubiquitous presence at London theaters and claimed to have inspired the name — and final words — of Tennessee Williams’s Blanche DuBois.`\
-https://nytimes.com/2026/02/04/theater/blanche-marvin-dead.html
 
