@@ -1,3 +1,24 @@
+**How to watch Baylor vs. Cincinnati women's basketball: Time, TV, streaming**\
+`Find out how to watch the Baylor Bears play the Cincinnati Bearcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7021368/2026/02/04/baylor-vs-cincinnati-stream-how-to-watch-feb-4/
+
+**‘Bridgerton’ Tackles the Orgasm Gap**\
+`Sex therapists say a character’s struggle to reach her “pinnacle” could help viewers better understand women’s sexuality.`\
+https://nytimes.com/2026/02/04/well/bridgerton-orgasm-pinnacle.html
+
+**Six More Weeks of Stews**\
+`More winter means more opportunities for burbling pots of comfort, like my classic beef Bourguignon.`\
+https://nytimes.com/2026/02/04/dining/six-more-weeks-of-stews.html
+
+**Border Czar Says He Is Pulling 700 Immigration Agents Out of Minneapolis**\
+`About 2,000 personnel will be left in the city, where the killings of two protesters against President Trump’s immigration crackdown by federal officers have generated outrage.`\
+https://nytimes.com/2026/02/04/us/politics/homan-minnesota-dhs-immigration-agents.html
+
+**The Bounce: Ranking Tuesday's NBA trades on impact, Harden's exits on comedy**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7021211/2026/02/04/the-bounce-james-harden-nba-trade-deadline/
+
 **The Bounce: Ranking Tuesday's NBA trades on impact, Harden's exits on comedy**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.
 `\
