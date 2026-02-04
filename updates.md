@@ -1,3 +1,7 @@
+**Strong Point**\
+`Hanh Huynh and Ted Mayer make their collaboration debut in the New York Times Crossword.`\
+https://nytimes.com/2026/02/03/crosswords/daily-puzzle-2026-02-04.html
+
 **'Rick Tocchet wants Matvei to succeed': The latest on Michkov's complicated season**\
 `Michkov's production and ice time are down, and his coach still sounds frustrated about his lack of offseason training.`\
 https://nytimes.com/athletic/7019567/2026/02/03/matvei-michkov-tocchet-flyers-briere/
