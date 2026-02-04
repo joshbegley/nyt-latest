@@ -1,3 +1,7 @@
+**The Transfer DealSheet: Winter window review for your club — and summer window plans**\
+`Welcome to The Athletic's final Transfer DealSheet for the winter window — and a look at what lies ahead for the summer`\
+https://nytimes.com/athletic/7010600/2026/02/04/transfer-latest-winter-review-manchester-united-arsenal-liverpool-summer-plans/
+
 **Wolves' transfer window: Strand Larsen sale raises funds as groundwork starts for next season**\
 `Rob Edwards had hoped to freshen up his options in the team's fight against relegation, but they have started planning for the Championship`\
 https://nytimes.com/athletic/7016044/2026/02/04/wolves-transfer-window-strand-larsen-sale-raises-funds-as-groundwork-starts-for-the-second-tier/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7013812/2026/02/04/crystal-palace-larsen-mateta-mcn
 **Manchester United's winter transfer window review - and their summer priority**\
 `A new head coach and an upturn in form but no mid-season player incomings at Old Trafford`\
 https://nytimes.com/athletic/7009533/2026/02/04/manchester-united-transfer-latest-january-summer-2026-2/
-
-**Brighton January transfer window review — and summer priority**\
-`Brighton had a quiet window in terms of incomings, making just one permanent addition and bringing a player back from loan`\
-https://nytimes.com/athletic/6993601/2026/02/04/brighton-january-transfer-latest-summer-window-review/
 
