@@ -1,3 +1,7 @@
+**Anton Stach expected to miss Leeds' next two matches with hip injury**\
+`Jaka Bijol, who has missed the last three games with a hamstring issue, could make a return to the matchday squad.`\
+https://nytimes.com/athletic/7021073/2026/02/04/leeds-team-news-stach-bijol/
+
 **Mystery of Guthrie’s Mother Has Nation Fixated on a Desert Subdivision**\
 `The disappearance of Nancy Guthrie, mother of the news anchor Savannah Guthrie, has reporters, neighbors and drones flooding streets and foothills in Tucson, Ariz.`\
 https://nytimes.com/2026/02/04/us/savannah-guthrie-missing-mother-arizona.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7019710/2026/02/04/vancouver-canucks-trade-deadline
 **Beckett Sennecke has 'a chance to be off the charts.' The Ducks already like what they see**\
 `Anaheim surprised many — including Sennecke — when they drafted him at No. 3. He's already justifying it in his rookie season.`\
 https://nytimes.com/athletic/7017023/2026/02/04/beckett-sennecke-anaheim-ducks-rookie-season-calder/
-
-**Can Dodgers' former top prospect Bobby Miller recapture his sizzle?**\
-`"Starting from rock bottom and working my way back up, just like I did before," Miller said.`\
-https://nytimes.com/athletic/7019789/2026/02/04/dodgers-mlb-bobby-miller-prospect/
 
