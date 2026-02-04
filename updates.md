@@ -1,3 +1,7 @@
+**Ukraine Talks Set to Resume, Following a Huge Attack by Moscow**\
+`U.S., Russian and Ukrainian negotiators are meeting in the United Arab Emirates, but Russia continues to pummel Ukraine and has not softened demands that Kyiv calls unacceptable.`\
+https://nytimes.com/2026/02/04/world/europe/ukraine-russia-us-peace-talks.html
+
 **How a Routine Drug Bust Turned Deadly**\
 `In a Bronx courtroom, detectives and other witnesses have described how an undercover drug operation in 2023 led to a death and the criminal trial of a sergeant. A verdict is expected later this week.`\
 https://nytimes.com/2026/02/04/nyregion/duran-duprey-cooler-death.html
