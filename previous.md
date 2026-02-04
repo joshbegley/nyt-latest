@@ -1,3 +1,15 @@
+**Steelers hire former Vikings assistant Brian Angelichio as offensive coordinator**\
+`Ex-Commanders defensive coordinator Joe Whitt Jr., who will be a defensive backs coach for Pittsburgh, was also among the assistants hired.`\
+https://nytimes.com/athletic/7021739/2026/02/04/brian-angelichio-pittsburgh-steelers-oc/
+
+**Jersey City Faces a Stunning Budget Deficit, Report Shows**\
+`The city’s new mayor, James Solomon, is blaming his predecessor, Steven Fulop, who just became the head of an influential business advocacy group in New York City.`\
+https://nytimes.com/2026/02/04/nyregion/jersey-city-budget-deficit.html
+
+**Lonzo Ball traded to Jazz as Cavaliers continue to clear salary: Sources**\
+`Trading Ball clears his $10 million salary from Cleveland's books and gets the Cavaliers closer to getting under the second apron.`\
+https://nytimes.com/athletic/7022413/2026/02/04/lonzo-ball-trade-jazz-cavs-nba-deadline/
+
 **Patriots Robert Spillane and K'Lavon Chaisson hit jackpot after leaving Las Vegas**\
 `Almost overnight, Spillane has gone from a 4-13 season with the Raiders to being a captain on a Super Bowl Patriots team.`\
 https://nytimes.com/athletic/7022158/2026/02/04/robert-spillane-klavon-chaisson-patriots-raiders-super-bowl/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/04/style/tiny-modern-love-stories-i-mistook-her-opti
 **Coby White trade grades: Hornets swing deal with Bulls to bolster postseason push**\
 `On paper, Collin Sexton and Coby White seem to do almost identical things. So which team won the trade?`\
 https://nytimes.com/athletic/7021970/2026/02/04/coby-white-trade-grades-hornets-bulls/
-
-**A.M.A. Endorses Restrictions on Gender-Related Surgery for Minors**\
-`The announcement followed a similar recommendation from the American Society of Plastic Surgeons. But other medical groups argued for a more personalized approach.`\
-https://nytimes.com/2026/02/04/health/gender-surgery-minors-ama.html
-
-**Washington Post Sports Department Was Among Last of Its Kind**\
-`The Post is laying off or reassigning all the reporters and editors in its sports section, days before the Super Bowl and the Winter Olympics in Italy.`\
-https://nytimes.com/2026/02/04/business/media/washington-post-layoffs-sports-section.html
-
-**Google Profit Jumps 30 Percent on A.I. Gains**\
-`Profits rose to $34.5 billion last quarter, as the tech giant gained ground with its Gemini system, bolstering its search business and YouTube.`\
-https://nytimes.com/2026/02/04/business/google-earnings-ai.html
 

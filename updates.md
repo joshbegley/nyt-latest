@@ -1,3 +1,15 @@
+**Steelers hire former Vikings assistant Brian Angelichio as offensive coordinator**\
+`Ex-Commanders defensive coordinator Joe Whitt Jr., who will be a defensive backs coach for Pittsburgh, was also among the assistants hired.`\
+https://nytimes.com/athletic/7021739/2026/02/04/brian-angelichio-pittsburgh-steelers-oc/
+
+**Jersey City Faces a Stunning Budget Deficit, Report Shows**\
+`The city’s new mayor, James Solomon, is blaming his predecessor, Steven Fulop, who just became the head of an influential business advocacy group in New York City.`\
+https://nytimes.com/2026/02/04/nyregion/jersey-city-budget-deficit.html
+
+**Lonzo Ball traded to Jazz as Cavaliers continue to clear salary: Sources**\
+`Trading Ball clears his $10 million salary from Cleveland's books and gets the Cavaliers closer to getting under the second apron.`\
+https://nytimes.com/athletic/7022413/2026/02/04/lonzo-ball-trade-jazz-cavs-nba-deadline/
+
 **Patriots Robert Spillane and K'Lavon Chaisson hit jackpot after leaving Las Vegas**\
 `Almost overnight, Spillane has gone from a 4-13 season with the Raiders to being a captain on a Super Bowl Patriots team.`\
 https://nytimes.com/athletic/7022158/2026/02/04/robert-spillane-klavon-chaisson-patriots-raiders-super-bowl/
