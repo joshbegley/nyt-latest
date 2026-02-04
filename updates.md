@@ -1,3 +1,15 @@
+**Melinda French Gates Addresses New References to Bill Gates in Epstein Files**\
+`Messages in the latest Epstein files suggesting that Bill Gates had engaged in extramarital sex brought up “painful” memories, his former wife said in an interview. Mr. Gates has denied the claims.`\
+https://nytimes.com/2026/02/04/us/melinda-bill-gates-epstein-files.html
+
+**A Trump ‘Blockade’ Is Stalling Hundreds of Wind and Solar Projects Nationwide**\
+`Federal agencies are delaying approvals for renewable energy projects on both federal land and private property at a time when electricity demand is going up.`\
+https://nytimes.com/2026/02/04/climate/a-trump-blockade-is-stalling-hundreds-of-wind-and-solar-projects-nationwide.html
+
+**A Bernie Bro Writes a Fawning Biography of His Hero**\
+`In “Bernie for Burlington,” Dan Chiasson’s affection for his subject risks turning history into a sales pitch.`\
+https://nytimes.com/2026/02/04/books/review/bernie-for-burlington-dan-chiasson.html
+
 **Israel Launches Deadly Strikes on Gaza, Saying Militants Attacked Its Soldiers**\
 `Gaza officials said the Israeli airstrikes killed at least 21 Palestinians. Israel said one of its soldiers was critically wounded in the attack by Palestinian gunmen.`\
 https://nytimes.com/2026/02/04/world/middleeast/israel-gaza-strikes-palestinian-deaths.html
