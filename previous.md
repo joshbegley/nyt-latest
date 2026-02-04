@@ -1,3 +1,7 @@
+**76ers trade Jared McCain traded to Thunder for multiple draft picks: Sources**\
+`The 76ers move on from their 2024 first-round pick in exchange for additional draft capital.`\
+https://nytimes.com/athletic/7021889/2026/02/04/jared-mccain-trade-76ers-thunder-nba/
+
 **Blues trade center Nick Bjugstad to Devils for mid-round draft pick, AHL player**\
 `Bjugstad has six goals and seven points in 35 games this season for the Blues.`\
 https://nytimes.com/athletic/7021852/2026/02/04/blues-devils-nick-bjugstad-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/02/04/us/jeffrey-epstein-woody-allen-soon-y
 **Will the Lakers make a move? What's fixable and what isn't ahead of NBA trade deadline**\
 `As the NBA trade deadline looms, the Lakers must contront their roster truths. `\
 https://nytimes.com/athletic/7021668/2026/02/04/lakers-nba-trade-deadline-moves-predictions-latest/
-
-**Federal Agency Investigates Nike for Discrimination Against White Workers**\
-`The Equal Employment Opportunity Commission has worked under President Trump to dismantle diversity, equity and inclusion policies.`\
-https://nytimes.com/2026/02/04/business/eeoc-nike-white-employee-discrimination.html
 

@@ -1,3 +1,7 @@
+**76ers trade Jared McCain traded to Thunder for multiple draft picks: Sources**\
+`The 76ers move on from their 2024 first-round pick in exchange for additional draft capital.`\
+https://nytimes.com/athletic/7021889/2026/02/04/jared-mccain-trade-76ers-thunder-nba/
+
 **Blues trade center Nick Bjugstad to Devils for mid-round draft pick, AHL player**\
 `Bjugstad has six goals and seven points in 35 games this season for the Blues.`\
 https://nytimes.com/athletic/7021852/2026/02/04/blues-devils-nick-bjugstad-trade/
