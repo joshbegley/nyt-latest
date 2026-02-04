@@ -1,3 +1,7 @@
+**Gloves Come Off in Gulf as Trump’s Closest Arab Allies Clash**\
+`A feud between Saudi Arabia and the United Arab Emirates is reshaping conflicts and alliances across the Middle East and Africa.`\
+https://nytimes.com/2026/02/04/world/middleeast/emirates-saudi-arabia-rift.html
+
 **Fenerbahce sign Kante from Al Ittihad after previously announcing failed deal**\
 `The Turkish club said on Tuesday that the transfer had not been completed, blaming the Saudi Pro League side for it falling through. `\
 https://nytimes.com/athletic/7020618/2026/02/04/ngolo-kante-fenerbahce-al-ittihad-transfer-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7018135/2026/02/04/real-madrid-transfer-window-endr
 **Leeds United January window review — and what they are planning for the summer**\
 `Leeds allowed one senior player to leave on loan and brought another in. The Athletic reviews the window`\
 https://nytimes.com/athletic/7010350/2026/02/04/leeds-united-january-transfer-window-review-summer-latest/
-
-**Manchester City's transfer window: Guehi and Semenyo represent fine January work**\
-`Pep Guardiola expressed his happiness as City secured two of the best players on the market to complete an eye-catching winter window`\
-https://nytimes.com/athletic/7006689/2026/02/04/manchester-city-guehi-semenyo-bobb-transfers-window/
 

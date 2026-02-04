@@ -1,3 +1,7 @@
+**Gloves Come Off in Gulf as Trump’s Closest Arab Allies Clash**\
+`A feud between Saudi Arabia and the United Arab Emirates is reshaping conflicts and alliances across the Middle East and Africa.`\
+https://nytimes.com/2026/02/04/world/middleeast/emirates-saudi-arabia-rift.html
+
 **Fenerbahce sign Kante from Al Ittihad after previously announcing failed deal**\
 `The Turkish club said on Tuesday that the transfer had not been completed, blaming the Saudi Pro League side for it falling through. `\
 https://nytimes.com/athletic/7020618/2026/02/04/ngolo-kante-fenerbahce-al-ittihad-transfer-news/
