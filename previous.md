@@ -1,3 +1,23 @@
+**How to watch Maryland vs. Michigan State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7021392/2026/02/04/maryland-vs-michigan-state-stream-how-to-watch-feb-4/
+
+**How to watch Michigan State vs. Minnesota men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7021378/2026/02/04/michigan-state-vs-minnesota-stream-how-to-watch-feb-4/
+
+**How to watch Nebraska vs. Michigan women's basketball: Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7021376/2026/02/04/nebraska-vs-michigan-stream-how-to-watch-feb-4/
+
+**How to watch Notre Dame vs. Louisville men's basketball: Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7021374/2026/02/04/notre-dame-vs-louisville-stream-how-to-watch-feb-4/
+
+**How to watch UCF vs. Houston men's basketball: Time, TV, streaming**\
+`Find out how to watch the UCF Knights play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7021372/2026/02/04/ucf-vs-houston-stream-how-to-watch-feb-4/
+
 **How to watch Baylor vs. Cincinnati women's basketball: Time, TV, streaming**\
 `Find out how to watch the Baylor Bears play the Cincinnati Bearcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7021368/2026/02/04/baylor-vs-cincinnati-stream-how-to-watch-feb-4/
@@ -17,25 +37,4 @@ https://nytimes.com/athletic/7021256/2026/02/04/red-wings-questions-max-bultman-
 **Border Czar Says He Is Pulling 700 Immigration Agents Out of Minneapolis**\
 `About 2,000 personnel will be left in the city, where the killings of two protesters against President Trump’s immigration crackdown by federal officers have generated outrage.`\
 https://nytimes.com/2026/02/04/us/politics/homan-minnesota-dhs-immigration-agents.html
-
-**The Bounce: Ranking Tuesday's NBA trades on impact, Harden's exits on comedy**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.
-`\
-https://nytimes.com/athletic/7021211/2026/02/04/the-bounce-james-harden-nba-trade-deadline/
-
-**Lee H. Hamilton, a Foreign Policy Power in Congress, Dies at 94**\
-`A moderate Democrat from Indiana for 34 years, he led the House Foreign Affairs and Intelligence committees and helped investigate the Iran-contra scandal and the Sept. 11 attacks.`\
-https://nytimes.com/2026/02/04/us/politics/lee-h-hamilton-dead.html
-
-**U.S. Flu Cases Are Rising Again**\
-`Cases may have peaked in December, but flu season isn’t over just yet.`\
-https://nytimes.com/2026/02/04/well/flu-spread-symptoms.html
-
-**Trump’s Call to ‘Nationalize’ Elections Adds to State Officials’ Alarm**\
-`Some top state election officials, who run voting across the country, worry that the federal government has become hostile to them and their work.`\
-https://nytimes.com/2026/02/04/us/politics/trump-election-states-midterms.html
-
-**Penny, a Doberman Pinscher, Wins 150th Westminster Dog Show**\
-`Penny, an easygoing Doberman pinscher with a rich, shiny black coat, won the 150th Westminster Kennel Club Dog Show, becoming the fifth member of her breed to ever win best in show.`\
-https://nytimes.com/video/style/100000010689477/westminster-dog-show-penny-doberman.html
 
