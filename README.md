@@ -1,3 +1,7 @@
+**Supreme Court Clears Way for California Voting Map**\
+`The state’s Republican Party had asked the justices to step in and block the new congressional maps, which give an advantage to Democrats, before the midterms.`\
+https://nytimes.com/2026/02/04/us/politics/supreme-court-california-congressional-map.html
+
 **Anthony Davis traded from Mavericks to Wizards, capping Dončić deal fallout: Sources**\
 `The Mavericks move on from Davis, while the Wizards continue to add veteran talent after acquiring Trae Young earlier this season. `\
 https://nytimes.com/athletic/7021765/2026/02/04/anthony-davis-trade-mavericks-wizards-nba-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7021667/2026/02/04/tigers-mickey-lolich-mlb-death/
 **Have You Been Impacted by the Affordability Crisis? Tell Us.**\
 `We want to hear about how costs are having an impact on your life.`\
 https://nytimes.com/2026/02/04/us/affordability-callout.html
-
-**Keys and Gray to leave beIN Sports after current season**\
-`While there has been no fall-out between the parties, the pair's deal is not expected to be extended beyond the end of the season.`\
-https://nytimes.com/athletic/7021663/2026/02/04/keys-gray-bein-sports-leave/
 
