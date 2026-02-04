@@ -1,3 +1,7 @@
+**What I'm hearing on Isaac Paredes, Christian Walker and the infield surplus**\
+`Plus, insight into how Houston plans to keep Jose Altuve healthy and in the lineup, as well as plans for Cam Smith and the outfield.`\
+https://nytimes.com/athletic/7019650/2026/02/04/houston-astros-isaac-paredes-spring-training-insight/
+
 **New York Times Added 1.4 Million Digital Subscribers in 2025**\
 `The company reported total revenue of $802.3 million for the fourth quarter of 2025, up 10.4 percent from a year earlier.`\
 https://nytimes.com/2026/02/04/business/media/new-york-times-earnings.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7019565/2026/02/04/college-basketball-teams-height-
 **Blackhawks insider: Mikheyev not worrying about future as trade deadline approaches**\
 `The pending UFA is beloved on the ice and in the locker room in Chicago, but contenders might make a deal too good to refuse.`\
 https://nytimes.com/athletic/7019056/2026/02/04/blackhawks-mikheyev-trade-deadline-levshunov-sorenson-olympics/
-
-**Moltbook Mania Explained**\
-`Is this the year the internet changes forever?`\
-https://nytimes.com/2026/02/04/podcasts/moltbook-mania-explained.html
 
