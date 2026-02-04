@@ -1,3 +1,7 @@
+**Giants to hire Dawn Aponte, former league exec, in VP role: Source**\
+`Aponte has also worked in the front offices of the Jets, Browns and Dolphins.`\
+https://nytimes.com/athletic/7021524/2026/02/04/dawn-aponte-vp-new-york-giants/
+
 **Melinda French Gates Addresses New References to Bill Gates in Epstein Files**\
 `Messages in the latest Epstein files suggesting that Bill Gates had engaged in extramarital sex brought up “painful” memories, his former wife said in an interview. Mr. Gates has denied the claims.`\
 https://nytimes.com/2026/02/04/us/melinda-bill-gates-epstein-files.html
