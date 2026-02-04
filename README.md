@@ -1,3 +1,7 @@
+**Are You ‘Biohacking’ to Perform Better at Work? We Want to Hear From You.**\
+`Please tell us what changes you’ve made to your health and wellness practices to improve your brain function and job performance. We may include your experiences in an article.`\
+https://nytimes.com/2026/02/04/business/are-you-biohacking-to-perform-better-at-work-we-want-to-hear-from-you.html
+
 **‘Trump Has Lost the Country’**\
 `Columnist Ross Douthat on “the truth that you won’t hear” when it comes to Trump’s vanishing coalition.`\
 https://nytimes.com/video/opinion/100000010684773/trump-has-lost-the-country.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7021411/2026/02/04/blackhawks-vs-blue-jackets-strea
 **How to watch Bruins vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7021407/2026/02/04/bruins-vs-panthers-stream-how-to-watch-feb-4/
-
-**How to watch Nuggets vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7021405/2026/02/04/nuggets-vs-knicks-stream-how-to-watch-feb-4/
 
