@@ -1,3 +1,11 @@
+**Mickey Lolich, Hero of the 1968 World Series, Dies at 85**\
+`A Detroit Tigers pitcher, he was famous for his ample waistline — and for his three complete-game wins in defeating the Cardinals, making him the Series’ M.V.P.`\
+https://nytimes.com/2026/02/04/sports/baseball/mickey-lolich-dead.html
+
+**Former Whitney Chief Resigns From Art School After Epstein Email Release**\
+`David A. Ross said he remained “ashamed” for having been “taken in” by Jeffrey Epstein. Mr. Ross resigned his position at the School of Visual Arts in New York.`\
+https://nytimes.com/2026/02/04/nyregion/epstein-emails-david-ross-school-visual-arts.html
+
 **Spurs fans' satisfaction with ownership at 'all-time low' - survey**\
 `More than 4,500 fans responded to THST's Five Principles Survey, the first since Daniel Levy was sacked as executive chairman.`\
 https://nytimes.com/athletic/7021716/2026/02/04/tottenham-fan-survey-ownership/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/04/us/politics/supreme-court-california-congressiona
 **Anthony Davis traded from Mavericks to Wizards, capping Dončić deal fallout: Sources**\
 `The Mavericks move on from Davis, while the Wizards continue to add veteran talent after acquiring Trae Young earlier this season. `\
 https://nytimes.com/athletic/7021765/2026/02/04/anthony-davis-trade-mavericks-wizards-nba-deadline/
-
-**Educators Sue to Keep Immigration Agents From Schools and Bus Stops**\
-`The lawsuit is challenging a Trump administration policy allowing federal agents near locations such as schools, churches and hospitals.`\
-https://nytimes.com/2026/02/04/us/minnesota-educators-immigration-agents-lawsuit-schools-bus-stops.html
-
-**In Spending Talks, Senators Clash Over Immigration Crackdown**\
-`Democrats’ push to rein in federal agents, and Republican opposition, reflect opposite views of whether the deportation drive should be bound by standard law enforcement rules.`\
-https://nytimes.com/2026/02/04/us/politics/senate-homeland-security-funding.html
 
