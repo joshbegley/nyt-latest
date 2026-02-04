@@ -1,3 +1,7 @@
+**Ukraine Talks Set to Resume, Following a Huge Attack by Moscow**\
+`U.S., Russian and Ukrainian negotiators are meeting in the United Arab Emirates, but Russia continues to pummel Ukraine and has not softened demands that Kyiv calls unacceptable.`\
+https://nytimes.com/2026/02/04/world/europe/ukraine-russia-us-peace-talks.html
+
 **How a Routine Drug Bust Turned Deadly**\
 `In a Bronx courtroom, detectives and other witnesses have described how an undercover drug operation in 2023 led to a death and the criminal trial of a sergeant. A verdict is expected later this week.`\
 https://nytimes.com/2026/02/04/nyregion/duran-duprey-cooler-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7006689/2026/02/04/manchester-city-guehi-semenyo-bo
 **Barcelona's winter transfer window: Why did Dro leave? Does Cancelo's signing make sense?**\
 `La Liga's defending champions are still restricted by rules on salary spending, but they did manage to reinforce their defence`\
 https://nytimes.com/athletic/7017806/2026/02/04/barcelona-transfer-window-recap-cancelo-dro/
-
-**Chelsea January window review - and what they are planning for the summer**\
-`Chelsea had a quiet window on an incoming front but will be happy with the outcome of it`\
-https://nytimes.com/athletic/7016835/2026/02/04/chelsea-transfer-window-january-review-latest/
 
