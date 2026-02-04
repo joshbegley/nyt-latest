@@ -1,3 +1,23 @@
+**South African Party Leader Bows Out, Stirring Fears for Government’s Future**\
+`John Steenhuisen, who led a party supporting the A.N.C. in a coalition government, is leaving after controversies about his handling of a livestock virus and Uber Eats orders.`\
+https://nytimes.com/2026/02/04/world/africa/john-steenhuisen-democratic-alliance-anc-south-africa.html
+
+**Bright Horizons Child Care Centers Face Dozens of Alarming Complaints**\
+`In New York City, health officials have moved to shut down one center where workers were charged with child abuse. Records show that problems extend across the network.`\
+https://nytimes.com/2026/02/04/nyregion/bright-horizons-child-abuse-nyc.html
+
+**Erasing American History, the Trump Way**\
+`Readers object to the National Park Service’s deletions at historic sites ordered by the Trump administration. Also: David Brooks’s farewell column.`\
+https://nytimes.com/2026/02/04/opinion/national-parks-us-history-trump.html
+
+**Prosecutor Fired After Voicing Frustration With Immigration Caseload**\
+`The prosecutor, Julie T. Le, told a judge that she and her colleagues in the U.S. attorney’s office were overwhelmed by the White House’s immigration operation in Minnesota.`\
+https://nytimes.com/2026/02/04/us/politics/prosecutor-immigration-outburst.html
+
+**Games Briefing: Let the curling begin**\
+`Welcome to Games Briefing, The Athletic's daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7021586/2026/02/04/curling-mixed-doubles-olympic-games-briefing/
+
 **NBC's plan to win the sports year: Super Bowl, Olympics, then every Sunday: MoneyCall**\
 `Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
 https://nytimes.com/athletic/7021536/2026/02/04/nbc-super-bowl-60-winter-olympics-moneycall/
