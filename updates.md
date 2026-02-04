@@ -1,3 +1,7 @@
+**The Transfer DealSheet: Winter window review for your club — and summer window plans**\
+`Welcome to The Athletic's final Transfer DealSheet for the winter window — and a look at what lies ahead for the summer`\
+https://nytimes.com/athletic/7010600/2026/02/04/transfer-latest-winter-review-manchester-united-arsenal-liverpool-summer-plans/
+
 **Wolves' transfer window: Strand Larsen sale raises funds as groundwork starts for next season**\
 `Rob Edwards had hoped to freshen up his options in the team's fight against relegation, but they have started planning for the Championship`\
 https://nytimes.com/athletic/7016044/2026/02/04/wolves-transfer-window-strand-larsen-sale-raises-funds-as-groundwork-starts-for-the-second-tier/
