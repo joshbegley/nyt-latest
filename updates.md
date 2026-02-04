@@ -1,3 +1,7 @@
+**New Chargers DC Chris O'Leary is the first branch of Jesse Minter's coaching tree**\
+`The Chargers lost Jesse Minter. To replace him, they went to Jesse Minter’s tree.`\
+https://nytimes.com/athletic/7019859/2026/02/03/chargers-chris-oleary-jesse-minter-coaching-tree/
+
 **Cota, a Chesapeake Bay retriever, wins the sporting group.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2026/02/03/style/westminster-dog-show/cota-a-chesapeake-bay-retriever-wins-the-sporting-group

@@ -1,3 +1,7 @@
+**New Chargers DC Chris O'Leary is the first branch of Jesse Minter's coaching tree**\
+`The Chargers lost Jesse Minter. To replace him, they went to Jesse Minter’s tree.`\
+https://nytimes.com/athletic/7019859/2026/02/03/chargers-chris-oleary-jesse-minter-coaching-tree/
+
 **Cota, a Chesapeake Bay retriever, wins the sporting group.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2026/02/03/style/westminster-dog-show/cota-a-chesapeake-bay-retriever-wins-the-sporting-group
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/03/opinion/ohio-resistance-trump-ice.html
 **Jazz scramble trade deadline and show they want to win again with Jaren Jackson Jr. deal**\
 `The biggest remaining question: What other dominoes might fall from this trade at the deadline and this offseason?`\
 https://nytimes.com/athletic/7019146/2026/02/03/jazz-jaren-jackson-nba-trade-deadline/
-
-**Judge Appears Likely to Curtail Hegseth’s Power to Penalize Kelly for Video**\
-`Attorneys for Democratic Senator Mark Kelly argued that Defense Secretary Pete Hegseth was brazenly violating the separation of powers by seeking to punish a member of Congress for public statements.`\
-https://nytimes.com/2026/02/03/us/politics/judge-block-pete-hegseth-mark-kelly.html
 
