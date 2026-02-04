@@ -1,3 +1,19 @@
+**Chevron to Explore Oil and Gas Work in Syria**\
+`Chevron has signed an initial agreement to start working in Syria, weeks after the Syrian government seized control of key oil and gas fields in the north of the country.`\
+https://nytimes.com/2026/02/04/world/middleeast/chevron-syria-gas-oil.html
+
+**France’s Raid on X Escalates Trans-Atlantic Showdown Over Social Media**\
+`The French investigation into Elon Musk’s X illustrated a fundamental divide between European and American leaders about how to regulate social media — or whether to restrict it at all.`\
+https://nytimes.com/2026/02/04/world/europe/social-media-free-speech.html
+
+**Denny Hamlin reveals injured shoulder, speaks for first time since father's death**\
+`The driver will attempt to race through the injury this season.`\
+https://nytimes.com/athletic/7021669/2026/02/04/denny-hamlin-injury-nascar/
+
+**Mickey Lolich, Tigers great and 1968 World Series MVP, dies at 85**\
+`Lolich leaves a legacy as one of the best left-handers in MLB history.`\
+https://nytimes.com/athletic/7021667/2026/02/04/tigers-mickey-lolich-mlb-death/
+
 **Have You Been Impacted by the Affordability Crisis? Tell Us.**\
 `We want to hear about how costs are having an impact on your life.`\
 https://nytimes.com/2026/02/04/us/affordability-callout.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/7018985/2026/02/04/patriots-free-agency-spending-su
 **Film Club: ‘Dear ICE: Letters From Students Living in Fear’**\
 `What would you like to say to ICE agents, and to the children who are detained in immigration detention centers?`\
 https://nytimes.com/2026/02/04/learning/film-club-dear-ice-letters-from-students-living-in-fear.html
-
-**Man Convicted of Trying to Assassinate Trump Gets Life Sentence**\
-`Federal prosecutors told the judge that Ryan Routh had “plotted painstakingly” to ambush Donald J. Trump in 2024 at his golf course near West Palm Beach.`\
-https://nytimes.com/2026/02/04/us/man-convicted-of-trying-to-assassinate-trump-gets-life-sentence.html
-
-**South African Party Leader Bows Out, Stirring Fears for Government’s Future**\
-`John Steenhuisen, who led a party supporting the A.N.C. in a coalition government, is leaving after controversies about his handling of a livestock virus and Uber Eats orders.`\
-https://nytimes.com/2026/02/04/world/africa/john-steenhuisen-democratic-alliance-anc-south-africa.html
-
-**Bright Horizons Child Care Centers Face Dozens of Alarming Complaints**\
-`In New York City, health officials have moved to shut down one center where workers were charged with child abuse. Records show that problems extend across the network.`\
-https://nytimes.com/2026/02/04/nyregion/bright-horizons-child-abuse-nyc.html
-
-**Erasing American History, the Trump Way**\
-`Readers object to the National Park Service’s deletions at historic sites ordered by the Trump administration. Also: David Brooks’s farewell column.`\
-https://nytimes.com/2026/02/04/opinion/national-parks-us-history-trump.html
 
