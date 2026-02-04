@@ -1,3 +1,7 @@
+**Jets to hire Frank Reich as new offensive coordinator: Sources**\
+`Reich, a former Jets quarterback, last coached in the NFL in 2023.`\
+https://nytimes.com/athletic/7007779/2026/02/04/frank-reich-new-york-jets-oc/
+
 **Trump Berates CNN Reporter for ‘Not Smiling’**\
 `President Trump scolded CNN’s chief White House correspondent, Kaitlan Collins, after she asked about the latest release of files related to Jeffrey Epstein, calling her “the worst reporter.”`\
 https://nytimes.com/video/us/politics/100000010689304/trump-kaitlan-collins-cnn-smile.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/04/style/elderly-parents-friendships.html
 **Washington Post Begins Sweeping Layoffs**\
 `The layoffs are slated to shrink the newsroom by hundreds of journalists, cutting into The Post’s local, international and sports coverage.`\
 https://nytimes.com/2026/02/04/business/media/washington-post-layoffs.html
-
-**College basketball mailbag: Which coaches will be top candidates in carousel season?**\
-`Saint Louis' Josh Schertz is the hottest name in the carousel this season, but will he leave?`\
-https://nytimes.com/athletic/7020898/2026/02/04/college-basketball-mailbag-coaching-carousel-josh-schertz/
 

@@ -1,3 +1,7 @@
+**Jets to hire Frank Reich as new offensive coordinator: Sources**\
+`Reich, a former Jets quarterback, last coached in the NFL in 2023.`\
+https://nytimes.com/athletic/7007779/2026/02/04/frank-reich-new-york-jets-oc/
+
 **Trump Berates CNN Reporter for ‘Not Smiling’**\
 `President Trump scolded CNN’s chief White House correspondent, Kaitlan Collins, after she asked about the latest release of files related to Jeffrey Epstein, calling her “the worst reporter.”`\
 https://nytimes.com/video/us/politics/100000010689304/trump-kaitlan-collins-cnn-smile.html
