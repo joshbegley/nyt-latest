@@ -1,3 +1,7 @@
+**Man Convicted of Trying to Assassinate Trump Gets Life Sentence**\
+`Federal prosecutors told the judge that Ryan Routh had “plotted painstakingly” to ambush Donald J. Trump in 2024 at his golf course near West Palm Beach.`\
+https://nytimes.com/2026/02/04/us/man-convicted-of-trying-to-assassinate-trump-gets-life-sentence.html
+
 **South African Party Leader Bows Out, Stirring Fears for Government’s Future**\
 `John Steenhuisen, who led a party supporting the A.N.C. in a coalition government, is leaving after controversies about his handling of a livestock virus and Uber Eats orders.`\
 https://nytimes.com/2026/02/04/world/africa/john-steenhuisen-democratic-alliance-anc-south-africa.html

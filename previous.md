@@ -1,3 +1,7 @@
+**Man Convicted of Trying to Assassinate Trump Gets Life Sentence**\
+`Federal prosecutors told the judge that Ryan Routh had “plotted painstakingly” to ambush Donald J. Trump in 2024 at his golf course near West Palm Beach.`\
+https://nytimes.com/2026/02/04/us/man-convicted-of-trying-to-assassinate-trump-gets-life-sentence.html
+
 **South African Party Leader Bows Out, Stirring Fears for Government’s Future**\
 `John Steenhuisen, who led a party supporting the A.N.C. in a coalition government, is leaving after controversies about his handling of a livestock virus and Uber Eats orders.`\
 https://nytimes.com/2026/02/04/world/africa/john-steenhuisen-democratic-alliance-anc-south-africa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7021424/2026/02/04/blue-jays-framber-valdez-rumors-
 **Hochul Chooses Adrienne Adams to Join Her Re-election Ticket**\
 `Gov. Kathy Hochul announced that Ms. Adams, the former New York City Council speaker who recently ran for mayor, will be her running mate as lieutenant governor.`\
 https://nytimes.com/2026/02/04/nyregion/kathy-hochul-adrienne-adams-lieutenant-governor.html
-
-**Pro Line Portraits NFL cards: A fond look back at an early '90s time capsule**\
-`If you only look at 19 old football cards today, these need to be it. `\
-https://nytimes.com/athletic/7008092/2026/02/04/an-ode-to-pro-line-portraits-nfl-cards-starter-jackets-zubaz-and-early-90s-absurdity/
 
