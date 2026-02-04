@@ -1,3 +1,19 @@
+**Lonzo Ball traded to Jazz as Cavaliers continue to clear salary: Sources**\
+`Utah is expected to waive Ball, while the Cavaliers clear his $10 million salary from their books. `\
+https://nytimes.com/athletic/7022413/2026/02/04/lonzo-ball-trade-jazz-cavs-nba-deadline/
+
+**Patriots' Robert Spillane and K'Lavon Chaisson hit jackpot after leaving Las Vegas**\
+`Almost overnight, Spillane has gone from a 4-13 season with the Raiders to being a captain on a Super Bowl Patriots team.`\
+https://nytimes.com/athletic/7022158/2026/02/04/robert-spillane-klavon-chaisson-patriots-raiders-super-bowl/
+
+**The Briefing - Man City 3 Newcastle 1 (5-1 agg): Guardiola's team set up final with Arsenal. Will Howe ever win at Etihad?**\
+`Marmoush scored twice as City sealed their spot in the final, where they will face Mikel Arteta's Arsenal on March 22`\
+https://nytimes.com/athletic/7006952/2026/02/04/man-city-carabao-cup-final-arsenal-newcastle/
+
+**League Cup final: What does Arsenal vs Manchester City mean for Champions League places?**\
+`Manchester City have set up an EFL Cup final with Arsenal in March. But what does this mean for Premier League matches and European places?`\
+https://nytimes.com/athletic/7021025/2026/02/04/efl-cup-final-arsenal-man-city-champions-league-places/
+
 **Steelers hire former Vikings assistant Brian Angelichio as offensive coordinator**\
 `Ex-Commanders defensive coordinator Joe Whitt Jr., who will be a defensive backs coach for Pittsburgh, was also among the assistants hired.`\
 https://nytimes.com/athletic/7021739/2026/02/04/brian-angelichio-pittsburgh-steelers-oc/

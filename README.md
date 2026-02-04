@@ -1,3 +1,11 @@
+**Lane Kiffin has high expectations for top-ranked portal class: 'They need to produce'**\
+`Kiffin said that transfer quarterback Sam Leavitt will be limited in spring practice while recovering from injury.`\
+https://nytimes.com/athletic/7021787/2026/02/04/lane-kiffin-lsu-transfer-portal-class/
+
+**Dutch Queen Joins Armed Forces in Symbolic Move of Support for Military**\
+`Queen Máxima of the Netherlands enlisted as a reservist, the Royal House said, because the country’s security “can no longer be taken for granted.”`\
+https://nytimes.com/2026/02/04/world/europe/netherlands-queen-maxima-military.html
+
 **Steelers hire former Vikings assistant Brian Angelichio as offensive coordinator**\
 `Ex-Commanders defensive coordinator Joe Whitt Jr., who will be a defensive backs coach for Pittsburgh, was also among the assistants hired.`\
 https://nytimes.com/athletic/7021739/2026/02/04/brian-angelichio-pittsburgh-steelers-oc/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/04/theater/blanche-marvin-dead.html
 **The Inside Story of My 11 Interviews With Susie Wiles**\
 `What did her unguarded remarks reveal about the Trump White House?`\
 https://nytimes.com/2026/02/04/opinion/susie-wiles-trump-white-house.html
-
-**League Cup final: What does Arsenal vs Manchester City mean for Champions League places?**\
-`Manchester City have set up an EFL Cup final with Arsenal in March. But what does this mean for Premier League matches and European places?`\
-https://nytimes.com/athletic/7021025/2026/02/04/efl-cup-final-arsenal-man-city-champions-league-places/
-
-**Tiny Love Stories: ‘I Mistook Her Optimism for an Act’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2026/02/04/style/tiny-modern-love-stories-i-mistook-her-optimism-for-an-act.html
 
