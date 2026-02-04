@@ -1,3 +1,7 @@
+**Brian Scalabrine not surprised by Cooper Flagg's ascent in the NBA: 'He's the same kid'**\
+`"His ability to play through contact is the same as when he was 14," Scalabrine said of the Mavericks' 19-year-old rookie.`\
+https://nytimes.com/athletic/7020436/2026/02/04/cooper-flagg-brian-scalabrine-mavericks-celtics-nba/
+
 **Remembering 10 stars who lost their best Olympic opportunity in 2018 and 2022**\
 `With all the excitement around the NHL returning to the Olympics, let's take a moment to remember those who never got the chance.`\
 https://nytimes.com/athletic/7019384/2026/02/04/nhl-olympics-stars-players-best-opportunities/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7020542/2026/02/04/williams-f1-preview-murky-horizo
 **Pittsburgh Pirates 2026 top 20 prospects: Konnor Griffin, Bubba Chandler lead the way**\
 `The Pirates' system is on the rise and currently boasts MLB's top overall prospect and MLB's top pitching prospect.`\
 https://nytimes.com/athletic/7014818/2026/02/04/pittsburgh-pirates-2026-top-20-prospects-keith-law/
-
-**The Pulse: An unexpected flurry of NBA trades**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7018632/2026/02/04/nba-trades-james-harden-jaren-jackson-the-pulse/
 
