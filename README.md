@@ -1,3 +1,7 @@
+**Film Club: ‘Dear ICE: Letters From Students Living in Fear’**\
+`What would you like to say to ICE agents, and to the children who are detained in immigration detention centers?`\
+https://nytimes.com/2026/02/04/learning/film-club-dear-ice-letters-from-students-living-in-fear.html
+
 **Man Convicted of Trying to Assassinate Trump Gets Life Sentence**\
 `Federal prosecutors told the judge that Ryan Routh had “plotted painstakingly” to ambush Donald J. Trump in 2024 at his golf course near West Palm Beach.`\
 https://nytimes.com/2026/02/04/us/man-convicted-of-trying-to-assassinate-trump-gets-life-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7019995/2026/02/04/how-sportsbook-build-super-bowl-
 **Does Framber Valdez fit with the Blue Jays? Breaking down the complications**\
 `For a team as deep as the Jays, Valdez is still a clear upgrade. But he's not an easy fit.`\
 https://nytimes.com/athletic/7021424/2026/02/04/blue-jays-framber-valdez-rumors-analysis/
-
-**Hochul Chooses Adrienne Adams to Join Her Re-election Ticket**\
-`Gov. Kathy Hochul announced that Ms. Adams, the former New York City Council speaker who recently ran for mayor, will be her running mate as lieutenant governor.`\
-https://nytimes.com/2026/02/04/nyregion/kathy-hochul-adrienne-adams-lieutenant-governor.html
 
