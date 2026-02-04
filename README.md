@@ -1,3 +1,11 @@
+**Nikola Vučević's run with Bulls is over, but the 'Vooch Era' never amounted to much**\
+`Vučević played in 378 regular-season games for the Bulls, and they went 185-193. He played in five postseason games and won one.`\
+https://nytimes.com/athletic/7020086/2026/02/04/bulls-trade-nikola-vucevics-celtics-magic/
+
+**Payton Pritchard embraces bench role as Celtics adapt after Anfernee Simons trade**\
+`The first ripple effect of the trade showed up in a starting lineup change before Boston's win in Dallas.`\
+https://nytimes.com/athletic/7020510/2026/02/04/payton-pritchard-celtics-bench-role-anfernee-simons-trade/
+
 **For Peace, More Ukrainians Consider the Once Unthinkable: Surrendering Land**\
 `Polls show a growing acceptance of territorial concessions among a war-weary public, if Ukraine receives strong security guarantees.`\
 https://nytimes.com/2026/02/04/world/europe/ukraine-russia-war-donbas-region.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/04/realestate/they-made-the-basement-the-most-attrac
 **Republicans Make a Costly Push to Try to Save Cornyn in Texas**\
 `Senator John Cornyn, once seen as a potential Republican leader in his chamber, is now depending on wealthy party donors to survive a right-wing challenge.`\
 https://nytimes.com/2026/02/04/us/politics/john-cornyn-ken-paxton-texas-senate-race.html
-
-**A.I. Loves Fake Images. But They’ve Been a Thing Since Photography Began.**\
-`An exhibition at the Rijksmuseum in Amsterdam reminds us that photography has always had a complicated relationship with the truth.`\
-https://nytimes.com/2026/02/04/arts/design/fakes-rijksmuseum-photo-manipulation.html
-
-**An Engrossing Memoir Asks: Is Telling the Truth a Betrayal?**\
-`In “The Family Snitch,” the reporter Francesca Fontana delves into her father’s criminal history — and their complicated, painful relationship.`\
-https://nytimes.com/2026/02/04/books/review/the-family-snitch-francesca-fontana.html
 
