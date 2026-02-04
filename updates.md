@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Ukraine and Russia Talks Resume, After Bombardment by Moscow**\
+``\
+https://nytimes.com/live/2026/02/04/us/trump-news
+
+**Does Rock Music Still Matter?**\
+`Does the growing popularity of bands like Geese mean rock is still alive and well? Or, from the point of view of Gen Z, is rock dead?`\
+https://nytimes.com/2026/02/04/learning/does-rock-music-still-matter.html
+
 **Ex-England striker Carroll pleads not guilty to breaching non-molestation order**\
 `The 37-year-old will next appear at Chelmsford Crown Court on March 4 for a plea and trial preparation hearing.`\
 https://nytimes.com/athletic/7020879/2026/02/04/andy-carroll-court-case-not-guilty/

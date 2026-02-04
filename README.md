@@ -1,3 +1,19 @@
+**Investigators Scramble for Clues as Search for Nancy Guthrie Enters 4th Day**\
+`The authorities made urgent pleas for help from the public as they tried to locate Ms. Guthrie, the 84-year-old mother of the “Today” anchor Savannah Guthrie.`\
+https://nytimes.com/2026/02/04/us/savannah-nancy-guthrie-mom-missing-updates.html
+
+**How to watch the U.S. curling teams at the 2026 Winter Olympics**\
+`USA Curling faces stiff competition entering the 2026 Winter Olympics. Find out how to watch the men's, women's and mixed doubles teams.`\
+https://nytimes.com/athletic/6982918/2026/02/04/winter-olympics-2026-usa-curling-how-to-watch/
+
+**A deeper look at the boring practicality of the Giants' offseason**\
+`The Giants shouldn't fall through the floor. It's the ceiling they have to worry about now.`\
+https://nytimes.com/athletic/7019559/2026/02/04/giants-offseason-practicality-arraez-posey/
+
+**Six bold Oilers predictions for 2026: Is this Edmonton's year to win the Stanley Cup?**\
+`This is a younger, faster Oilers team than the ones that made it to the final in 2024 and 2025.`\
+https://nytimes.com/athletic/7017351/2026/02/04/edmonton-oilers-bold-predictions-2026-stats/
+
 **Trump Administration Live Updates: Ukraine and Russia Talks Resume, After Bombardment by Moscow**\
 ``\
 https://nytimes.com/live/2026/02/04/us/trump-news
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/04/world/asia/china-journalists-liu-hu-detained.html
 **What's next for Pistons after they traded Jaden Ivey in three-team deal**\
 `Detroit hopes Kevin Huerter can offer more outside shooting, and the team might have more moves to make before Thursday's deadline.`\
 https://nytimes.com/athletic/7020494/2026/02/04/pistons-nba-trade-deadline-jaden-ivey-kevin-huerter/
-
-**What I'm hearing on Isaac Paredes, Christian Walker and the infield surplus**\
-`Plus, insight into how Houston plans to keep Jose Altuve healthy and in the lineup, as well as plans for Cam Smith and the outfield.`\
-https://nytimes.com/athletic/7019650/2026/02/04/houston-astros-isaac-paredes-spring-training-insight/
-
-**New York Times Added 1.4 Million Digital Subscribers in 2025**\
-`The company reported total revenue of $802.3 million for the fourth quarter of 2025, up 10.4 percent from a year earlier.`\
-https://nytimes.com/2026/02/04/business/media/new-york-times-earnings.html
-
-**This Week in Sports Trivia: Super Bowl 60 edition**\
-`Think you know the Seahawks, the Patriots and Super Bowl history? Test your knowledge in this special edition of The Athletic's weekly quiz.`\
-https://nytimes.com/athletic/7019055/2026/02/04/this-week-in-sports-trivia-super-bowl-60/
-
-**Maple Leafs fan survey: How did we get here? What should come next?**\
-`Have your say on the state of the team and where the focus should be going forward.`\
-https://nytimes.com/athletic/7020024/2026/02/04/maple-leafs-fan-survey-retool-offseason-trade-deadline/
 
