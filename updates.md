@@ -1,3 +1,15 @@
+**Could Bobby McMann trade Leafs blue and white for Oilers blue and orange?**\
+`Edmonton wants to play fast, and McMann is the player who can do just that.`\
+https://nytimes.com/athletic/7020490/2026/02/04/leafs-win-oilers-bobby-mcmann-edmonton-move/
+
+**Word of the Day: covert**\
+`This word has appeared in 339 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/04/learning/word-of-the-day-covert.html
+
+**Arsenal are here to win, not entertain. And that's just what they're doing**\
+`The nervousness of prior weeks was banished on a Carabao Cup semi-final night that ended in euphoria - and the sense this is just the start`\
+https://nytimes.com/athletic/7020034/2026/02/04/arsenal-chelsea-carabao-cup-report/
+
 **Michael Kosta Blasts the Super Bowl Halftime Alternative**\
 `“Man, that is a real who’s who of ‘Who?’” Kosta mused about Turning Point USA’s concert as opposed to the halftime show led by Bad Bunny.`\
 https://nytimes.com/2026/02/04/arts/television/michael-kosta-super-bowl-halftime.html
