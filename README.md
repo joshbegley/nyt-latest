@@ -1,3 +1,12 @@
+**I’m the Prime Minister of Spain. This Is Why the West Needs Migrants.**\
+`In Spain, it is our duty to become the welcoming and tolerant society our ancestors would have hoped to find on the other side of our borders.`\
+https://nytimes.com/2026/02/04/opinion/spain-migrants-europe.html
+
+**2026 Winter Olympics women’s hockey standings and forecast**\
+`<p>Women’s Olympic hockey begins Thursday, with 10 nations competing in this year’s tournament. But medal-watchers will mostly be paying attention to the two perennial powerhouses: Canada and the United States.</p>
+`\
+https://nytimes.com/athletic/7002270/2026/02/04/2026-winter-olympics-womens-hockey-standings-and-forecast/
+
 **Man City to ask EFL to allow Guehi to play in Carabao Cup final - Guardiola**\
 `The England defender joined City after the semi-final first leg and will therefore be ineligible to face Arsenal in the final on March 22.`\
 https://nytimes.com/athletic/7022482/2026/02/04/man-city-guardiola-carabao-cup-marc-guehi-arsenal-inelgible-final/
@@ -29,12 +38,4 @@ https://nytimes.com/2026/02/04/nyregion/jersey-city-budget-deficit.html
 **Lonzo Ball traded to Jazz as Cavaliers continue to clear salary: Sources**\
 `Utah is expected to waive Ball, while the Cavaliers clear his $10 million salary from their books. `\
 https://nytimes.com/athletic/7022413/2026/02/04/lonzo-ball-trade-jazz-cavs-nba-deadline/
-
-**Patriots' Robert Spillane and K'Lavon Chaisson hit jackpot after leaving Las Vegas**\
-`Almost overnight, Spillane has gone from a 4-13 season with the Raiders to being a captain on a Super Bowl Patriots team.`\
-https://nytimes.com/athletic/7022158/2026/02/04/robert-spillane-klavon-chaisson-patriots-raiders-super-bowl/
-
-**The Briefing - Man City 3 Newcastle 1 (5-1 agg): Guardiola's team set up final with Arsenal. Will Howe ever win at Etihad?**\
-`Marmoush scored twice as City sealed their spot in the final, where they will face Mikel Arteta's Arsenal on March 22`\
-https://nytimes.com/athletic/7006952/2026/02/04/man-city-carabao-cup-final-arsenal-newcastle/
 

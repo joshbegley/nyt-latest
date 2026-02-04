@@ -1,3 +1,11 @@
+**Man City to ask EFL to allow Guehi to play in Carabao Cup final - Guardiola**\
+`The England defender joined City after the semi-final first leg and will therefore be ineligible to face Arsenal in the final on March 22.`\
+https://nytimes.com/athletic/7022482/2026/02/04/man-city-guardiola-carabao-cup-marc-guehi-arsenal-inelgible-final/
+
+**Justices Allow California to Use a Voting Map That Helps Democrats**\
+`Also, hundreds of federal agents are set to withdraw from Minneapolis. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2026/02/04/briefing/supreme-court-california-federal-agents-minnesota.html
+
 **University of Southern California Names a Lawyer as Its New President**\
 `The president, Beong-Soo Kim, had served on an interim basis and already faced pressure from the Trump administration to join a higher education compact to follow a set of conservative ideas. He refused.`\
 https://nytimes.com/2026/02/04/us/usc-new-president-kim.html
