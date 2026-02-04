@@ -1,3 +1,11 @@
+**Arsenal are here to win, not entertain. And that's just what they're doing**\
+`The nervousness of previous weeks was banished on a night that ended in euphoria - and the sense that this was just the start`\
+https://nytimes.com/athletic/7020034/2026/02/04/arsenal-chelsea-carabao-cup-report/
+
+**After fight for control of Padres, late owner's widow and brothers reach agreement**\
+`The family feud over control of the San Diego Padres appears to be over, according to a court filing on Monday.`\
+https://nytimes.com/athletic/7020149/2026/02/04/after-fight-for-control-of-padres-late-owners-widow-and-brothers-reach-agreement/
+
 **The New York Times in Print for Wednesday, Feb. 4, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/04/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7017859/2026/02/04/newcastle-january-transfers-anal
 **Ignore 'Whataboutery' accusations: Guardiola should be praised for speaking out**\
 `For someone in his position to speak on difficult subjects is welcome. The fact he is ultimately employed by Abu Dhabi doesn’t negate that`\
 https://nytimes.com/athletic/7018841/2026/02/04/pep-guardiola-palestine-sudan-ukraine/
-
-**Meet the owner, coach and captain of Lens: Ligue 1's David taking on PSG's Goliath**\
-`We visit northern France to speak to the key figures at a small club taking on the might of a team funded by a nation state`\
-https://nytimes.com/athletic/7017685/2026/02/04/lens-sage-thomasson-psg-ligue-1/
-
-**Row Z: Pochettino picks sides, no place for generosity and Burnley’s admin disappoints**\
-`Tim Spiers shines a light on the bonkers side of football, this week featuring the USMNT manager and one of his star players`\
-https://nytimes.com/athletic/7017661/2026/02/04/row-z-pochettino-weah-burnley/
 

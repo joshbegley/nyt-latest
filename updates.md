@@ -1,3 +1,11 @@
+**Arsenal are here to win, not entertain. And that's just what they're doing**\
+`The nervousness of previous weeks was banished on a night that ended in euphoria - and the sense that this was just the start`\
+https://nytimes.com/athletic/7020034/2026/02/04/arsenal-chelsea-carabao-cup-report/
+
+**After fight for control of Padres, late owner's widow and brothers reach agreement**\
+`The family feud over control of the San Diego Padres appears to be over, according to a court filing on Monday.`\
+https://nytimes.com/athletic/7020149/2026/02/04/after-fight-for-control-of-padres-late-owners-widow-and-brothers-reach-agreement/
+
 **The New York Times in Print for Wednesday, Feb. 4, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/04/todays-new-york-times
