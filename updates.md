@@ -1,3 +1,7 @@
+**Washington Post Begins Sweeping Layoffs**\
+`The layoffs are slated to shrink the newsroom by hundreds of journalists, cutting into The Post’s local, international and sports coverage.`\
+https://nytimes.com/2026/02/04/business/media/washington-post-layoffs.html
+
 **College basketball mailbag: Which coaches will be top candidates in carousel season?**\
 `Saint Louis' Josh Schertz is the hottest name in the carousel this season, but will he leave?`\
 https://nytimes.com/athletic/7020898/2026/02/04/college-basketball-mailbag-coaching-carousel-josh-schertz/

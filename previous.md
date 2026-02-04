@@ -1,3 +1,7 @@
+**Washington Post Begins Sweeping Layoffs**\
+`The layoffs are slated to shrink the newsroom by hundreds of journalists, cutting into The Post’s local, international and sports coverage.`\
+https://nytimes.com/2026/02/04/business/media/washington-post-layoffs.html
+
 **College basketball mailbag: Which coaches will be top candidates in carousel season?**\
 `Saint Louis' Josh Schertz is the hottest name in the carousel this season, but will he leave?`\
 https://nytimes.com/athletic/7020898/2026/02/04/college-basketball-mailbag-coaching-carousel-josh-schertz/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7019559/2026/02/04/giants-offseason-practicality-ar
 **Six bold Oilers predictions for 2026: Is this Edmonton's year to win the Stanley Cup?**\
 `This is a younger, faster Oilers team than the ones that made it to the final in 2024 and 2025.`\
 https://nytimes.com/athletic/7017351/2026/02/04/edmonton-oilers-bold-predictions-2026-stats/
-
-**Trump Administration Live Updates: Ukraine and Russia Talks Resume, After Bombardment by Moscow**\
-``\
-https://nytimes.com/live/2026/02/04/us/trump-news
 
