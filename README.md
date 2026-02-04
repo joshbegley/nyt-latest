@@ -1,3 +1,15 @@
+**At Least 15 Die in Rare Collision Between Migrant Boat and Greek Patrol Vessel**\
+`Deadly shipwrecks often occur in the Aegean Sea, which is one of the main maritime routes to Europe, but they generally involve migrant boats sinking in stormy weather.`\
+https://nytimes.com/2026/02/04/world/europe/15-dead-migrant-clash-collision-greece.html
+
+**Newell's Old Boys planning Messi return in 2027, vice president says**\
+`The eight-time Ballon d'Or winner scored 234 goals in the Argentinian club's youth system before moving to Barcelona at 13.`\
+https://nytimes.com/athletic/7020697/2026/02/04/lionel-messi-newells-old-boys-return/
+
+**St. Louis Cardinals 2026 top 20 prospects: JJ Wetherholt, Liam Doyle lead the way**\
+`The Cardinals' system has already made great strides under their new player development regime, though injuries dinged them some in 2025.`\
+https://nytimes.com/athletic/7016055/2026/02/04/st-louis-cardinals-2026-top-20-prospects-keith-law/
+
 **Williams sacrificed 2025 for 2026, so why is its F1 horizon still murky?**\
 `The Williams F1 team ended 2025 riding the high of its best championship result in eight years. Suddenly, that narrative is gone`\
 https://nytimes.com/athletic/7020542/2026/02/04/williams-f1-preview-murky-horizon/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7019240/2026/02/04/tarik-skubal-arbitration-outcome
 **Milwaukee Brewers 2026 top 20 prospects: Jesús Made, Luis Peña lead the way**\
 `The Brewers have the top-ranked farm system, and they feature high-upside prospects on both sides of the ball.`\
 https://nytimes.com/athletic/7014766/2026/02/04/brewers-2026-top-20-prospects-keith-law/
-
-**West Ham transfer window: Firepower added but centre-back issue remains - will it be enough?**\
-`West Ham signed five players, moved out nine others but will Nuno have the players to lift his team to Premier League safety?`\
-https://nytimes.com/athletic/6988955/2026/02/04/west-ham-transfer-window-nuno-paqueta/
-
-**McCullum defends 'outstanding leader' Brook: 'He has work to do off the field'**\
-`Brook, the white-ball captain, was disciplined for a late-night altercation with a bouncer in Wellington, New Zealand in October.`\
-https://nytimes.com/athletic/7020745/2026/02/04/england-brendon-mccullum-harry-brook/
-
-**Cincinnati Reds 2026 top 20 prospects: Sal Stewart, Tyson Lewis lead the way**\
-`The Reds' system has been excellent at producing pitching for the past decade, but now the system is slanted more towards hitters.`\
-https://nytimes.com/athletic/7012855/2026/02/04/cincinnati-reds-2026-top-20-prospects-keith-law/
 
