@@ -1,3 +1,7 @@
+**Cota, a Chesapeake Bay retriever, wins the sporting group.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2026/02/03/style/westminster-dog-show/cota-a-chesapeake-bay-retriever-wins-the-sporting-group
+
 **Racial Debate Rattles Texas Democratic Primary for Senate**\
 `State Representative James Talarico used the word “mediocre” to describe a former House member who is Black. The controversy has repercussions for a key contest.`\
 https://nytimes.com/2026/02/03/us/politics/texas-democratic-primary-senate.html
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/7019146/2026/02/03/jazz-jaren-jackson-nba-trade-dea
 **Judge Appears Likely to Curtail Hegseth’s Power to Penalize Kelly for Video**\
 `Attorneys for Democratic Senator Mark Kelly argued that Defense Secretary Pete Hegseth was brazenly violating the separation of powers by seeking to punish a member of Congress for public statements.`\
 https://nytimes.com/2026/02/03/us/politics/judge-block-pete-hegseth-mark-kelly.html
-
-**Impressions of new Cardinals coach Mike LaFleur start with youth, end with intelligence**\
-`The coach who never ages was hired at a place that ages everyone, making the Cardinals' hire an interesting juxtaposition.`\
-https://nytimes.com/athletic/7019320/2026/02/03/cardinals-mike-lafleur-coach-impressions-intelligence/
-
-**Kawhi Leonard added to NBA All-Star Game U.S. player pool by commissioner Adam Silver**\
-`Leonard’s All-Star selection is the seventh of his career, his fourth as a Clipper. Leonard won the All-Star Game MVP in 2020.`\
-https://nytimes.com/athletic/7019772/2026/02/03/kawhi-leonard-nba-all-star-game-selection-adam-silver/
 
