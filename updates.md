@@ -1,3 +1,15 @@
+**How a Routine Drug Bust Turned Deadly**\
+`In a Bronx courtroom, detectives and other witnesses have described how an undercover drug operation in 2023 led to a death and the criminal trial of a sergeant. A verdict is expected later this week.`\
+https://nytimes.com/2026/02/04/nyregion/duran-duprey-cooler-death.html
+
+**Winter Olympics**\
+`Which events and athletes are you excited about?`\
+https://nytimes.com/2026/02/04/learning/winter-olympics.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/04/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet: Winter window review for your club — and summer window plans**\
 `Welcome to The Athletic's final Transfer DealSheet for the winter window — and a look at what lies ahead for the summer`\
 https://nytimes.com/athletic/7010600/2026/02/04/transfer-latest-winter-review-manchester-united-arsenal-liverpool-summer-plans/

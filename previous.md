@@ -1,3 +1,15 @@
+**How a Routine Drug Bust Turned Deadly**\
+`In a Bronx courtroom, detectives and other witnesses have described how an undercover drug operation in 2023 led to a death and the criminal trial of a sergeant. A verdict is expected later this week.`\
+https://nytimes.com/2026/02/04/nyregion/duran-duprey-cooler-death.html
+
+**Winter Olympics**\
+`Which events and athletes are you excited about?`\
+https://nytimes.com/2026/02/04/learning/winter-olympics.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/04/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet: Winter window review for your club — and summer window plans**\
 `Welcome to The Athletic's final Transfer DealSheet for the winter window — and a look at what lies ahead for the summer`\
 https://nytimes.com/athletic/7010600/2026/02/04/transfer-latest-winter-review-manchester-united-arsenal-liverpool-summer-plans/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7017806/2026/02/04/barcelona-transfer-window-recap-
 **Chelsea January window review - and what they are planning for the summer**\
 `Chelsea had a quiet window on an incoming front but will be happy with the outcome of it`\
 https://nytimes.com/athletic/7016835/2026/02/04/chelsea-transfer-window-january-review-latest/
-
-**Arsenal January transfer window review – and what they are planning in the summer**\
-`Arsenal did not bring in a senior signing during the winter window, but this might not have been much of a surprise`\
-https://nytimes.com/athletic/7017910/2026/02/04/arsenal-january-window-review-summer-plans/
-
-**Crystal Palace's chaotic window: Record signings, Guehi gone, but are they stronger?**\
-`The south London club were the second-highest spenders in the Premier League in the window as they sought to stop their season unravelling`\
-https://nytimes.com/athletic/7013812/2026/02/04/crystal-palace-larsen-mateta-mcneil-guessand-window/
-
-**Manchester United's winter transfer window review - and their summer priority**\
-`A new head coach and an upturn in form but no mid-season player incomings at Old Trafford`\
-https://nytimes.com/athletic/7009533/2026/02/04/manchester-united-transfer-latest-january-summer-2026-2/
 
