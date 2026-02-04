@@ -1,3 +1,11 @@
+**Read the document**\
+`David A. Ross said he remained “ashamed” for having been “taken in” by Jeffrey Epstein. Mr. Ross resigned his position at the School of Visual Arts in New York.`\
+https://nytimes.com/interactive/2026/02/04/nyregion/davdrossletter.html
+
+**Gunmen in Nigeria Kill More Than 160, Aid Official Says**\
+`The raiders stormed a rural community in central Nigeria, killing dozens and setting homes on fire in one of the country’s worst recent attacks.`\
+https://nytimes.com/2026/02/04/world/africa/nigeria-attack-woro-nuku.html
+
 **76ers trade Jared McCain traded to Thunder for multiple draft picks: Sources**\
 `The 76ers move on from their 2024 first-round pick in exchange for additional draft capital.`\
 https://nytimes.com/athletic/7021889/2026/02/04/jared-mccain-trade-76ers-thunder-nba/

@@ -1,3 +1,11 @@
+**Read the document**\
+`David A. Ross said he remained “ashamed” for having been “taken in” by Jeffrey Epstein. Mr. Ross resigned his position at the School of Visual Arts in New York.`\
+https://nytimes.com/interactive/2026/02/04/nyregion/davdrossletter.html
+
+**Gunmen in Nigeria Kill More Than 160, Aid Official Says**\
+`The raiders stormed a rural community in central Nigeria, killing dozens and setting homes on fire in one of the country’s worst recent attacks.`\
+https://nytimes.com/2026/02/04/world/africa/nigeria-attack-woro-nuku.html
+
 **76ers trade Jared McCain traded to Thunder for multiple draft picks: Sources**\
 `The 76ers move on from their 2024 first-round pick in exchange for additional draft capital.`\
 https://nytimes.com/athletic/7021889/2026/02/04/jared-mccain-trade-76ers-thunder-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7021690/2026/02/04/bo-horvat-bird-nhl-game/
 **Officials Say ICE Won’t Conduct a Super Bowl Surge. The Bay Area Is Skeptical.**\
 `Leaders in the San Francisco Bay Area have passed “anti-ICE” ordinances, and activists have planned protests and rapid response efforts ahead of the big game.`\
 https://nytimes.com/2026/02/04/us/super-bowl-san-francisco-ice.html
-
-**Read the Emails Between Jeffrey Epstein and Soon-Yi**\
-`Emails released by the U.S. Department of Justice show that Jeffrey Epstein helped Woody Allen and Soon-Yi Previn as one of their daughters was applying to colleges, connecting the family with the president of Bard College.`\
-https://nytimes.com/interactive/2026/02/04/us/jeffrey-epstein-woody-allen-soon-yi-bard-emails.html
-
-**Will the Lakers make a move? What's fixable and what isn't ahead of NBA trade deadline**\
-`As the NBA trade deadline looms, the Lakers must contront their roster truths. `\
-https://nytimes.com/athletic/7021668/2026/02/04/lakers-nba-trade-deadline-moves-predictions-latest/
 
