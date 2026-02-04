@@ -34,7 +34,3 @@ https://nytimes.com/athletic/7022002/2026/02/04/nhl-trade-grades-artemi-panarin-
 `At times, the guard has looked like two different players across his first couple of seasons.`\
 https://nytimes.com/athletic/7021875/2026/02/04/jared-mccain-trade-grades-thunder-sixers/
 
-**Pregnant Women in Minneapolis Hiding From ICE Face Impossible Choice**\
-`Health care providers across Minnesota have reported federal immigration agents present in and around medical centers. As arrests continue across the state, expecting mothers are afraid to go to their appointments — and reconsidering their birth plans.`\
-https://nytimes.com/video/us/100000010671101/pregnant-minneapolis-ice.html
-
