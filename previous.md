@@ -1,4 +1,4 @@
-**Amid trade rumors, Giannis Antetokounmpo holds rehab session before Bucks game**\
+**Amid trade rumors, Giannis holds rehab session before Bucks game**\
 `The Bucks' star went through a 30-minute pregame workout as he works back from a calf injury.`\
 https://nytimes.com/athletic/7019920/2026/02/03/giannis-antetokounmpo-trade-rumors-injury-update-bucks/
 
