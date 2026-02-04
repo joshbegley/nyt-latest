@@ -1,3 +1,7 @@
+**How to watch Seahawks at Patriots: Super Bowl Time, TV, streaming**\
+`Find out how to watch the Seattle Seahawks play the New England Patriots, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7019851/2026/02/03/seahawks-vs-patriots-stream-how-to-watch-feb-8/
+
 **What Is the Democrats’ Game Plan on ICE?**\
 `After nearly four days of a partial government shutdown, the House voted to temporarily continue funding the Department of Homeland Security.`\
 https://nytimes.com/video/opinion/100000010679102/what-is-the-democrats-game-plan-on-ice.html

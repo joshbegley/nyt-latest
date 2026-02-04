@@ -1,3 +1,7 @@
+**How to watch Seahawks at Patriots: Super Bowl Time, TV, streaming**\
+`Find out how to watch the Seattle Seahawks play the New England Patriots, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7019851/2026/02/03/seahawks-vs-patriots-stream-how-to-watch-feb-8/
+
 **What Is the Democrats’ Game Plan on ICE?**\
 `After nearly four days of a partial government shutdown, the House voted to temporarily continue funding the Department of Homeland Security.`\
 https://nytimes.com/video/opinion/100000010679102/what-is-the-democrats-game-plan-on-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/03/business/stephen-miran-resigns-white-house-fed.ht
 **Seif al-Islam el-Qaddafi, Son of Libyan Dictator, Is Killed in Attack, Lawyer Says**\
 `Mr. el-Qaddafi, 53, a politician and a son of Col. Muammar el-Qaddafi, was killed after four men stormed his house, the lawyer said. No other details were released.`\
 https://nytimes.com/2026/02/03/world/middleeast/libya-seif-al-islam-el-qaddafi-killed.html
-
-**Trump Scolds CNN’s Kaitlan Collins for ‘Not Smiling’**\
-`Testy remarks from a president who has frequently singled out female journalists for criticism and personal attacks.`\
-https://nytimes.com/2026/02/03/us/politics/kaitlan-collins-smile-trump.html
 
