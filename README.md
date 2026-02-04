@@ -1,3 +1,15 @@
+**Michael Kosta Blasts the Super Bowl Halftime Alternative**\
+`“Man, that is a real who’s who of ‘Who?’” Kosta mused about Turning Point USA’s concert as opposed to the halftime show led by Bad Bunny.`\
+https://nytimes.com/2026/02/04/arts/television/michael-kosta-super-bowl-halftime.html
+
+**Rosenior's pragmatism was a recognition of Chelsea's reality - for now**\
+`Head coach's tactics were criticised by pundits but were designed to give Chelsea the best chance of progress against a stronger side`\
+https://nytimes.com/athletic/7020095/2026/02/04/liam-rosenior-chelsea-arsenal-tactics/
+
+**Trump Signs Bill to End Partial Government Shutdown**\
+`President Trump signed a spending package on Tuesday that reopened major parts of the government, as well as fund the Department of Homeland Security as negotiations over restrictions on the administration’s immigration crackdown continue.`\
+https://nytimes.com/video/us/politics/100000010688971/trump-government-shutdown-house-vote.html
+
 **Arsenal are here to win, not entertain. And that's just what they're doing**\
 `The nervousness of previous weeks was banished on a night that ended in euphoria - and the sense that this was just the start`\
 https://nytimes.com/athletic/7020034/2026/02/04/arsenal-chelsea-carabao-cup-report/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7010166/2026/02/04/liverpool-transfer-window-no-sig
 **NFC rallies to beat AFC in Pro Bowl with stars, scooters and trick plays**\
 `The game was more of a casual scrimmage than a true competition as Micah Parsons rolled around in a scooter. `\
 https://nytimes.com/athletic/7020349/2026/02/04/nfl-pro-bowl-2026-flag-plays-micah-parsons/
-
-**Forest's transfer window: Did they do enough? PSR, UEFA latest? Summer plans?**\
-`Forest strengthened their options in goal, defence and up front, but were frustrated in their efforts to make further additions`\
-https://nytimes.com/athletic/7017960/2026/02/04/nottingham-forest-transfer-review-2/
-
-**What does Newcastle's lack of transfer activity tell us about where the club is?**\
-`Analysing the impact of another transfer window closing without the first team being strengthened`\
-https://nytimes.com/athletic/7017859/2026/02/04/newcastle-january-transfers-analysis/
-
-**Ignore 'Whataboutery' accusations: Guardiola should be praised for speaking out**\
-`For someone in his position to speak on difficult subjects is welcome. The fact he is ultimately employed by Abu Dhabi doesn’t negate that`\
-https://nytimes.com/athletic/7018841/2026/02/04/pep-guardiola-palestine-sudan-ukraine/
 
