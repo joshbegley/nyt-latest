@@ -14,7 +14,7 @@ https://nytimes.com/athletic/7020050/2026/02/03/draymond-green-trade-rumors-warr
 `Mr. Robinson’s lawyers argue that the entire prosecution team has a conflict of interest because one prosecutor’s daughter was present when Charlie Kirk was killed.`\
 https://nytimes.com/2026/02/03/us/tyler-robinson-prosecutors-kirk-murder.html
 
-**NBA trade grades: Can James Harden and Donovan Mitchell fit together?**\
+**Trade grades: Can James Harden and Donovan Mitchell fit together?**\
 `The deal involving Darius Garland is Harden's fourth in-season trade since 2020-21. Does it make sense for Cleveland?`\
 https://nytimes.com/athletic/7018552/2026/02/03/james-harden-trade-grades-darius-garland-clippers-cavs/
 

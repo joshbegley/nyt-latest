@@ -1,3 +1,11 @@
+**Penny, a Doberman pinscher, wins the working group.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2026/02/03/style/westminster-dog-show/penny-a-doberman-pinscher-wins-the-working-group
+
+**Proposed Utah bill would allow concealed carry at Jazz, Mammoth games**\
+`The politician who introduced the bill said its aim is to foster "a constructive dialogue" around constitutional rights and public funding.`\
+https://nytimes.com/athletic/7019867/2026/02/03/guns-utah-bill-jazz-mammoth-games/
+
 **Steve Kerr on Draymond Green, Warriors trade rumors: 'It puts guys on edge, for sure'**\
 `Kerr was asked prior to Tuesday's game whether he also felt Green wasn't concerned about whatever may happen in the coming days.`\
 https://nytimes.com/athletic/7020050/2026/02/03/draymond-green-trade-rumors-warriors-steve-kerr/
