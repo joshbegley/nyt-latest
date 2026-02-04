@@ -1,3 +1,19 @@
+**Remembering 10 stars who lost their best Olympic opportunity in 2018 and 2022**\
+`With all the excitement around the NHL returning to the Olympics, let's take a moment to remember those who never got the chance.`\
+https://nytimes.com/athletic/7019384/2026/02/04/nhl-olympics-stars-players-best-opportunities/
+
+**Inside the Lakers' decision room ahead of Thursday's NBA trade deadline**\
+`Rival teams say the Lakers are active heading into Thursday's trade deadline, but their reality is shaped by their long-term cap plans. `\
+https://nytimes.com/athletic/7019025/2026/02/04/lakers-nba-trade-deadline-intel/
+
+**Bears offseason primer: 5 key questions ahead of free agency and the draft**\
+`From the assessment of in-house free agents to positional priorities to salary-cap decisions, Ben Johnson and Ryan Poles face a heavy lift.`\
+https://nytimes.com/athletic/7018545/2026/02/04/bears-free-agency-draft-questions/
+
+**Eagles mailbag, Part II: A.J. Brown's future, decisions at TE, Super Bowl window**\
+`The Eagles' offseason plans could depend heavily on A.J. Brown and Lane Johnson.`\
+https://nytimes.com/athletic/7019688/2026/02/04/eagles-aj-brown-future-tight-ends-super-bowl-window/
+
 **At Least 15 Die in Rare Collision Between Migrant Boat and Greek Patrol Vessel**\
 `Deadly shipwrecks often occur in the Aegean Sea, which is one of the main maritime routes to Europe, but they generally involve migrant boats sinking in stormy weather.`\
 https://nytimes.com/2026/02/04/world/europe/15-dead-migrant-clash-collision-greece.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7014818/2026/02/04/pittsburgh-pirates-2026-top-20-p
 **The Pulse: An unexpected flurry of NBA trades**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7018632/2026/02/04/nba-trades-james-harden-jaren-jackson-the-pulse/
-
-**What will Mike McCarthy's Steelers offense look like? Pages from his old playbook hold some clues**\
-`You can count on at least some West Coast concepts on Pittsburgh's North Shore in 2026.`\
-https://nytimes.com/athletic/7014565/2026/02/04/mike-mccarthy-pittsburgh-steelers-offensive-system-playbook/
-
-**NBA Awards Watch: Nikola Jokić is back in the MVP conversation, for now**\
-`The Joker recently returned from injury, but he can only miss one more game to remain eligible for postseason honors.`\
-https://nytimes.com/athletic/7012352/2026/02/04/nba-awards-watch-mvp-odds-nikola-jokic-sga/
-
-**Tarik Skubal’s arbitration outcome could influence Tigers' search for another starter**\
-`The Tigers' pursuit of another pitcher could ramp up if they avoid paying Tarik Skubal $32 million next season. `\
-https://nytimes.com/athletic/7019240/2026/02/04/tarik-skubal-arbitration-outcome-free-agent-starter/
-
-**Milwaukee Brewers 2026 top 20 prospects: Jesús Made, Luis Peña lead the way**\
-`The Brewers have the top-ranked farm system, and they feature high-upside prospects on both sides of the ball.`\
-https://nytimes.com/athletic/7014766/2026/02/04/brewers-2026-top-20-prospects-keith-law/
 
