@@ -1,3 +1,7 @@
+**Quote of the Day: Minneapolis and an Internet at War With Truth**\
+`Quotation of the Day for Wednesday, February 4, 2026.`\
+https://nytimes.com/2026/02/03/pageoneplus/quote-of-the-day-minneapolis-and-an-internet-at-war-with-truth.html
+
 **Blue Jackets win sixth straight behind Merzlikins' first shutout of the season**\
 `The Blue Jackets are now 9-1-0 since hiring Rick Bowness and firmly back in the playoff hunt.`\
 https://nytimes.com/athletic/7020268/2026/02/03/blue-jackets-merzlikins-shutout-win-streak/
