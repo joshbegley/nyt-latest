@@ -1,4 +1,4 @@
-**Lions fans files $100 million defamation lawsuit against Steelers' DK Metcalf, others**\
+**Lions fan files $100 million defamation lawsuit against Steelers' DK Metcalf, others**\
 `The fan, Ryan Kennedy, seeks damages over claims he used a racial slur during an altercation with the receiver at a Dec. 21 game in Detroit.`\
 https://nytimes.com/athletic/7020085/2026/02/04/dk-metcalf-lions-fan-lawsuit/
 

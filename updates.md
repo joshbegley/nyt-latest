@@ -1,3 +1,11 @@
+**Lions fans files $100 million defamation lawsuit against Steelers' DK Metcalf, others**\
+`The fan, Ryan Kennedy, seeks damages over claims he used a racial slur during an altercation with the receiver at a Dec. 21 game in Detroit.`\
+https://nytimes.com/athletic/7020085/2026/02/04/dk-metcalf-lions-fan-lawsuit/
+
+**Liverpool's transfer window: No short-term signings represents a major gamble**\
+`While Arne Slot's side were not expected to be make major moves in January, no new first-team signings leaves the squad short`\
+https://nytimes.com/athletic/7010166/2026/02/04/liverpool-transfer-window-no-signings/
+
 **NFC rallies to beat AFC in Pro Bowl with stars, scooters and trick plays**\
 `The game was more of a casual scrimmage than a true competition as Micah Parsons rolled around in a scooter. `\
 https://nytimes.com/athletic/7020349/2026/02/04/nfl-pro-bowl-2026-flag-plays-micah-parsons/
