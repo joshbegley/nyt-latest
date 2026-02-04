@@ -1,3 +1,7 @@
+**New York and New Jersey Governors Resolve Fight Over Appointees**\
+`The board of the Port Authority of New York and New Jersey will vote this week to confirm Kathryn Garcia as the executive director and Jean Roehrenbeck as the deputy executive director of the agency.`\
+https://nytimes.com/2026/02/04/nyregion/hochul-sherrill-port-authority-leadership-dispute-resolved.html
+
 **In Forcing the Clintons to Testify on Epstein, Comer Sets a New Precedent**\
 `The Republican chairman’s successful targeting of a former president who faces no charge of wrongdoing was the sort of tactic typical in an autocracy where leaders fear being jailed when they are out of power.`\
 https://nytimes.com/2026/02/04/us/politics/james-comer-clintons-epstein.html
@@ -6,7 +10,7 @@ https://nytimes.com/2026/02/04/us/politics/james-comer-clintons-epstein.html
 `Hear from journalists who are covering how this technology is changing life in and out of school. Teachers should submit students’ video questions using the form below.`\
 https://nytimes.com/2026/02/04/learning/how-ai-is-reshaping-our-world-a-live-webinar-for-students-on-march-4.html
 
-**Clippers trade Chris Paul to Raptors, ending two-month exile from team: Sources**\
+**Chris Paul traded to Raptors, ending two-month exile from Clippers: Source**\
 `It's unclear ihe 40-year-old Paul, who has not played since the Clippers sent him home in December, will stay with the Raptors.`\
 https://nytimes.com/athletic/7022228/2026/02/04/chris-paul-raptors-trade-clippers-cp3/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7021875/2026/02/04/jared-mccain-trade-grades-thunde
 **Pregnant Women in Minneapolis Hiding From ICE Face Impossible Choice**\
 `Health care providers across Minnesota have reported federal immigration agents present in and around medical centers. As arrests continue across the state, expecting mothers are afraid to go to their appointments — and reconsidering their birth plans.`\
 https://nytimes.com/video/us/100000010671101/pregnant-minneapolis-ice.html
-
-**Birthrates Are Down. That Can Be a Sign of Progress**\
-`The first in a weekly series exploring where we’re headed one number at a time.`\
-https://nytimes.com/2026/02/04/headway/birthrates-progress-newsletter.html
 
