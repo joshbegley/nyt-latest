@@ -1,3 +1,15 @@
+**What we're hearing about the Cardinals' offseason and the Pirates' interest in Marcell Ozuna**\
+`Plus Boston's search for a right-handed hitter, and a positional request for Ty France. `\
+https://nytimes.com/athletic/7020113/2026/02/04/mlb-cardinals-offseason-pirates-interest/
+
+**From the London Stadium to the Grammys: Can West Ham tap into Olivia Dean's star power?**\
+`On Sunday, West Ham fan Olivia Dean won a Grammy, catapulting her into superstardom. Could a collaboration boost West Ham's global appeal?`\
+https://nytimes.com/athletic/7017901/2026/02/04/olivia-dean-grammy-awards-west-ham-united/
+
+**Everton sack head coach Sorensen**\
+`Assistant coach Stephen Nilgen has also been dismissed.`\
+https://nytimes.com/athletic/7020689/2026/02/04/brian-sorensen-everton-women-future/
+
 **Nikola Vučević's run with Bulls is over, but the 'Vooch Era' never amounted to much**\
 `Vučević played in 378 regular-season games for the Bulls, and they went 185-193. He played in five postseason games and won one.`\
 https://nytimes.com/athletic/7020086/2026/02/04/bulls-trade-nikola-vucevics-celtics-magic/
