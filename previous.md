@@ -1,3 +1,7 @@
+**Red Wings questions? Submit them here for Max Bultman's mailbag**\
+`Send in your burning Red Wings questions, and Max may answer them in an upcoming mailbag.`\
+https://nytimes.com/athletic/7021256/2026/02/04/red-wings-questions-max-bultman-mailbag/
+
 **Border Czar Says He Is Pulling 700 Immigration Agents Out of Minneapolis**\
 `About 2,000 personnel will be left in the city, where the killings of two protesters against President Trump’s immigration crackdown by federal agents have generated outrage.`\
 https://nytimes.com/2026/02/04/us/politics/homan-minnesota-dhs-immigration-agents.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7020803/2026/02/04/giannis-antetokounmpo-bucks-nba-
 **Anton Stach expected to miss Leeds' next two matches with hip injury**\
 `Jaka Bijol, who has missed the last three games with a hamstring issue, could make a return to the matchday squad.`\
 https://nytimes.com/athletic/7021073/2026/02/04/leeds-team-news-stach-bijol/
-
-**Mystery of Guthrie’s Mother Has Nation Fixated on a Desert Subdivision**\
-`The disappearance of Nancy Guthrie, mother of the news anchor Savannah Guthrie, has reporters, neighbors and drones flooding streets and foothills in Tucson, Ariz.`\
-https://nytimes.com/2026/02/04/us/savannah-guthrie-missing-mother-arizona.html
 
