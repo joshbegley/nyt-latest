@@ -1,3 +1,7 @@
+**Reds, Eugenio Suárez excited about 'perfect' reunion and 'nightmare fuel' lineup**\
+`Suárez, a native of Venezuela who began his career with the Detroit Tigers before seven seasons with the Reds, called Cincinnati "home."`\
+https://nytimes.com/athletic/7020110/2026/02/03/cincinnati-reds-eugenio-suarez-reunion/
+
 **Austin Reaves' 19-game absence from Lakers ends with blowout win vs. Nets**\
 `Reaves, who hadn’t played since Dec. 25 with a grade 2 calf strain, scored 15 points in 20 minutes off the bench in the Lakers’ blowout win.`\
 https://nytimes.com/athletic/7020208/2026/02/03/lakers-austin-reaves-injury-update-calf/
