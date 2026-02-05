@@ -1,3 +1,11 @@
+**F.D.A. Relaxes Labeling Rules on Food Dyes as Kennedy Pushes Protein**\
+`Food makers will now be able to claim that their products have “no artificial colors,” so long as they use dyes that are not petroleum based.`\
+https://nytimes.com/2026/02/05/us/politics/kennedy-fda-food-dyes-protein.html
+
+**Iranian Nobel Peace Laureate Starts New Hunger Strike in Prison**\
+`The rights activist Narges Mohammadi is protesting her continued detention, her family said. She was arrested again in December after being given leave from prison for medical treatment.`\
+https://nytimes.com/2026/02/05/world/middleeast/iran-narges-mohammadi-prison-hunger-strike.html
+
 **A Top Lawyer’s Fall Shows Growing Fallout From Epstein Files**\
 `Brad Karp’s resignation as chairman of the law firm Paul Weiss underscores a further reflection in the corporate world over the latest revelations.`\
 https://nytimes.com/2026/02/05/business/dealbook/karp-paul-weiss-epstein.html
