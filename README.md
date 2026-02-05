@@ -1,3 +1,11 @@
+**2 Dead After Police Helicopter Crashes in Arizona**\
+`The helicopter went down near Flagstaff, Ariz., while assisting the police in their response to an active shooter on the ground.`\
+https://nytimes.com/2026/02/05/us/helicopter-crash-flagstaff-arizona.html
+
+**The Epstein Files**\
+`We look into the relationships powerful people had with the convicted sex offender.`\
+https://nytimes.com/2026/02/05/briefing/the-epstein-files.html
+
 **From Michael Fulmer to Caleb Kilian: Previewing the pitchers on the Giants' NRI list**\
 `The Giants have some familiar names among the pitchers they are bringing into camp as non-roster invitees.`\
 https://nytimes.com/athletic/7023131/2026/02/05/sf-giants-non-roster-invitees-pitchers-2026/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7016814/2026/02/05/guardians-2026-top-20-prospects-
 **Premier League launches new LGBTQ+ initiative for next two gameweeks**\
 `The Athletic revealed plans for the league's new campaign last month, including a pride-themed football which could be used next season.`\
 https://nytimes.com/athletic/7023579/2026/02/05/premier-league-lgbtq-switchboard/
-
-**Our 10-step plan to fix the Vikings this offseason**\
-`Our plan for cutting salary and making the playoffs in 2026 involves trading WR Jordan Addison and dealing for a veteran quarterback.`\
-https://nytimes.com/athletic/7022003/2026/02/05/vikings-offseason-plan-jordan-addison-free-agency-nfl-draft/
-
-**What to know about NFL Honors: MVP announcement, award nominees, Jon Hamm and more**\
-`The NFL rolls out the red carpet for full award show treatment, from MVP to the brand-new "Protector of the Year" to Bay Area rap classics.`\
-https://nytimes.com/athletic/7019480/2026/02/05/nfl-honors-awards-2026-how-to-watch/
 
