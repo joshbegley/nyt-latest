@@ -1,3 +1,7 @@
+**This Giant Phantom Jelly Won’t Eat You. Maybe.**\
+`During a dive off Argentina, scientists documented a rare jellyfish discovered a little over a century ago and seldom seen since, as well as the fish that keep it company.`\
+https://nytimes.com/2026/02/05/science/giant-phantom-jellyfish-sighting-video.html
+
 **The G.O.P. Senator Who Can’t Stop Thinking About the Boy ICE Detained**\
 `Katie Britt is uniquely positioned to reason with the Trump administration — when she chooses to speak up.`\
 https://nytimes.com/2026/02/05/us/politics/katie-britt.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/05/us/politics/democrats-dhs-funding-immigration.htm
 **Leading sports investment firm Arctos acquired by private equity giant**\
 `The acquisition gives KKR a range of ownership across virtually every major pro sports league.`\
 https://nytimes.com/athletic/7024061/2026/02/05/arctos-partners-kkr-private-equity-investment/
-
-**'Fiorentina have a serious set of owners': Paratici on why he left Spurs**\
-`Paratici has revealed Fiorentina’s late owner Rocco Commisso didn’t persuade him to leave Tottenham. It was the other way around.`\
-https://nytimes.com/athletic/7024030/2026/02/05/fabio-paratici-tottenham-fiorentina-sporting-director/
 
