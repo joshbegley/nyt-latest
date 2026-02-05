@@ -1,3 +1,11 @@
+**Knicks Outlast Nuggets in Double Overtime**\
+`In the N.B.A. on Wednesday, the New York Knicks beat the Denver Nuggets in double overtime, and Victor Wembanyama led the San Antonio Spurs to another win over the reigning league champion, the Oklahoma City Thunder.`\
+https://nytimes.com/video/sports/basketball/100000010691630/knicks-outlast-nuggets-in-double-overtime.html
+
+**Khelif willing to undergo sex testing to return to boxing for LA28**\
+`The 26-year-old, assigned female at birth, did not compete in last year's World Championship after sex testing was introduced.`\
+https://nytimes.com/athletic/7023512/2026/02/05/imane-khelif-boxing-sex-testing/
+
 **Trump Brings Out the Worst in Everyone**\
 `Us included.`\
 https://nytimes.com/2026/02/05/opinion/trump-iran-ice-stephen-miller.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/05/business/media/washington-post-martin-weil-metro.
 **When You’re Undocumented, Turning 18 Is Different**\
 `When turning 18 brings its own set of pressures.`\
 https://nytimes.com/interactive/2026/02/05/opinion/ice-family-separation-birthday-chapter4.html
-
-**Surge in Immigration Cases in Minnesota Pushes Prosecutors and Judges to Brink**\
-`Remarks by a prosecutor opened a revealing window onto how the courts in the state are buckling under the weight of a deluge of cases arising from the Trump administration’s campaign.`\
-https://nytimes.com/2026/02/05/us/politics/minnesota-immigration-crackdown.html
-
-**Outside the Art World’s Echo Chamber, at Art Basel Qatar**\
-`More than half the exhibited artists were from the Middle East, North Africa or South Asia, giving visitors an opportunity to discover fresh voices.`\
-https://nytimes.com/2026/02/05/arts/design/art-basel-qatar.html
 
