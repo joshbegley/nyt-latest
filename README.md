@@ -1,3 +1,7 @@
+**Cleveland Guardians 2026 top 20 prospects: Angel Genao, Travis Bazzana lead the way**\
+`The Guardians still have a top-five farm system thanks to a balance of promising position players and pitchers.`\
+https://nytimes.com/athletic/7016814/2026/02/05/guardians-2026-top-20-prospects-keith-law/
+
 **Premier League launches new LGBTQ+ initiative for next two gameweeks**\
 `The Athletic revealed plans for the league's new campaign last month, including a pride-themed football which could be used next season.`\
 https://nytimes.com/athletic/7023579/2026/02/05/premier-league-lgbtq-switchboard/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7023061/2026/02/05/blue-jackets-blackhawks-olympic-
 **Fixing the Bengals' pass-rush problem, Part 3: Defensive tackle requires unique solutions**\
 `A scarcity of pass-rushing defensive tackles in the draft and free agency limits how Cincinnati can address the position.`\
 https://nytimes.com/athletic/7022384/2026/02/05/fixing-bengals-pass-rush-defensive-tackle/
-
-**Chicago White Sox 2026 top 20 prospects: Braden Montgomery, Caleb Bonemer lead the way**\
-`The White Sox have a top-10 system thanks to their last two drafts and multiple trades of veterans for prospects.`\
-https://nytimes.com/athletic/7016215/2026/02/05/white-sox-2026-top-20-prospects-keith-law/
 
