@@ -1,3 +1,7 @@
+**TrumpRx Is Set to Go Live on Thursday**\
+`The government website is meant to connect Americans with drug companies to buy prescriptions directly with their own money. It is not clear how many patients will save money.`\
+https://nytimes.com/2026/02/05/us/politics/trumprx-website.html
+
 **How I Learned to Ice Skate in Middle Age**\
 `Inspired by graceful Olympic spins and leaps, one writer takes to the ice to try her hand at figure skating.`\
 https://nytimes.com/2026/02/05/well/move/ice-skate-lesson-middle-age.html
