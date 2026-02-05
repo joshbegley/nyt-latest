@@ -1,3 +1,7 @@
+**Senators Clash Over Immigration Enforcement, Risking a D.H.S. Shutdown**\
+`With eight days until a deadline to keep the Department of Homeland Security running, bipartisan talks on reining in federal immigration agents’ tactics appeared to sputter before they had even gotten underway.`\
+https://nytimes.com/2026/02/05/us/politics/senate-immigration-enforcement-dhs-shutdown.html
+
 **‘Moulin Rouge!’ Musical Will End Its Broadway Run This Summer**\
 `The final New York performance will be July 26, seven years after it opened; international and touring productions continue.`\
 https://nytimes.com/2026/02/05/theater/moulin-rouge-broadway-closing.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/05/arts/television/savannah-guthrie-mother-video.htm
 **WADA chief 'uncomfortable' with Kamila Valieva's ex-coach at Olympics**\
 `Eteri Tutberidze is once again inside the Winter Olympics bubble, a reality that isn't sitting well with WADA president Witold Bańka.`\
 https://nytimes.com/athletic/7025132/2026/02/05/wada-president-russian-skater-valieva-tutberidze-olympics/
-
-**Art Gallery Shows to See in February**\
-`This week in Newly Reviewed, Andrew Russeth covers Keith Haring’s rollicking murals, John Duff’s gritty inventiveness and a group show focused on the human body.`\
-https://nytimes.com/2026/02/05/arts/art-gallery-shows-to-see-in-february.html
 

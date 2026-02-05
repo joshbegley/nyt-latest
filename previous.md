@@ -1,3 +1,7 @@
+**‘Moulin Rouge!’ Musical Will End Its Broadway Run This Summer**\
+`The final New York performance will be July 26, seven years after it opened; international and touring productions continue.`\
+https://nytimes.com/2026/02/05/theater/moulin-rouge-broadway-closing.html
+
 **2026 NBA Finals odds: Harden trade creates 4 main contenders in East**\
 `James Harden's move to Cleveland made the Eastern Conference incredibly tight, but Oklahoma City remains the betting favorite to win it all.`\
 https://nytimes.com/athletic/7025311/2026/02/05/nba-finals-odds-thunder-nuggets-harden-cavs/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7025132/2026/02/05/wada-president-russian-skater-va
 **Art Gallery Shows to See in February**\
 `This week in Newly Reviewed, Andrew Russeth covers Keith Haring’s rollicking murals, John Duff’s gritty inventiveness and a group show focused on the human body.`\
 https://nytimes.com/2026/02/05/arts/art-gallery-shows-to-see-in-february.html
-
-**What Teenagers Are Saying About the Killings in Minneapolis**\
-`In the wake of two fatal shootings of U.S. citizens by federal agents, we invited students to share what they are feeling about America.`\
-https://nytimes.com/2026/02/05/learning/what-teenagers-are-saying-about-the-killings-in-minneapolis.html
 

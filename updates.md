@@ -1,3 +1,7 @@
+**‘Moulin Rouge!’ Musical Will End Its Broadway Run This Summer**\
+`The final New York performance will be July 26, seven years after it opened; international and touring productions continue.`\
+https://nytimes.com/2026/02/05/theater/moulin-rouge-broadway-closing.html
+
 **2026 NBA Finals odds: Harden trade creates 4 main contenders in East**\
 `James Harden's move to Cleveland made the Eastern Conference incredibly tight, but Oklahoma City remains the betting favorite to win it all.`\
 https://nytimes.com/athletic/7025311/2026/02/05/nba-finals-odds-thunder-nuggets-harden-cavs/
