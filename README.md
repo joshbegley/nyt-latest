@@ -1,3 +1,27 @@
+**Pablo Fornals interview: 'I've set up West Ham notifications so I don't miss the score'**\
+`The midfielder may have left the club two years ago but he's still a huge fan. He is also in fine form and is back in the Spain squad`\
+https://nytimes.com/athletic/7015949/2026/02/05/pablo-fornals-west-ham-interview/
+
+**Seahawks safety Nick Emmanwori injures ankle during Super Bowl practice**\
+`Mike Macdonald said the team will figure out the "next steps," with the game against the Patriots only days away.`\
+https://nytimes.com/athletic/7023179/2026/02/05/seahawks-nick-emmanwori-injures-ankle/
+
+**Why Man Utd have commercial concerns - and what they're doing about them**\
+`The Premier League giants are being caught up or even eclipsed by their rivals after years of financial supremacy `\
+https://nytimes.com/athletic/7015588/2026/02/05/manchester-united-commercial-revenue/
+
+**Explained: Cristiano Ronaldo's Al Nassr absence, transfer frustrations and €50m release clause**\
+`The 41-year-old forward missed Al Nassr's game on Monday and is disappointed with the club's lack of movement in the transfer market`\
+https://nytimes.com/athletic/7021027/2026/02/05/cristiano-ronaldo-al-nassr-transfers-release-clause/
+
+**Florian Wirtz finally looks like Florian Wirtz**\
+`The German is flourishing after a slow start at Anfield — with Hugo Ekitike one of the main beneficiaries`\
+https://nytimes.com/athletic/7017924/2026/02/05/florian-wirtz-liverpool-form/
+
+**Spectacular and sustainable? Why the Premier League is feasting on long-range goals**\
+`Why we need to look beyond expected goals to explain a better conversion rate from outside the box this season`\
+https://nytimes.com/athletic/7020923/2026/02/05/premier-league-long-range-goals-analysis-rogers/
+
 **The Alternative Premier League Table: No 25 – Goals from summer signings**\
 `In the week the winter transfer window shut, this week's table looks at the impact made by new faces brought in last summer`\
 https://nytimes.com/athletic/7020985/2026/02/05/the-alternative-premier-league-table-no-25-goals-from-summer-signings/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7018177/2026/02/05/luke-shaw-england-manchester-uni
 **As Olympics Arrive, Everyone in This Town Is Annoyed About Something**\
 `In Cortina d’Ampezzo, a hub for the Games in northern Italy, some residents, including a former Olympian, are annoyed about all the construction. Others are annoyed that they’re annoyed.`\
 https://nytimes.com/2026/02/05/world/europe/cortina-olympics-construction-italy.html
-
-**‘My Crazy Friend’: The Royals Who Stayed Close to Epstein**\
-`Emails, texts, photos and videos show how Jeffrey Epstein, even after becoming a convicted sex offender, burnished his ties to royal family members from several countries and their advisers.`\
-https://nytimes.com/2026/02/05/world/europe/epstein-royal-friends-prince-andrew-sarah-ferguson-mette-marit.html
-
-**Connections: Sports Edition Coach: Hints for Feb. 5, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7019911/2026/02/05/connections-sports-edition-hints-for-feb-5-2026/
-
-**Corrections: Feb. 5, 2026**\
-`Corrections that appeared in print on Thursday, Feb. 5, 2026.`\
-https://nytimes.com/2026/02/05/pageoneplus/corrections-feb-5-2026.html
-
-**Rethinking Shakespeare in Shanghai**\
-`A recent production of “Othello” proves that small creative flowers can grow between the dreary slabs of cultural concrete laid by the Communist Party.`\
-https://nytimes.com/2026/02/05/world/asia/rethinking-shakespeare-in-shanghai.html
-
-**Jeffrey Epstein’s Money Mingled With Silicon Valley Start-Ups**\
-`The disgraced financier regularly courted tech industry figures not just for their prestige but also for access to promising companies.`\
-https://nytimes.com/2026/02/05/business/epstein-investments-palantir-coinbase-thiel.html
-
-**Quote of the Day: Wonder Drug Keeps Sports In Its Clutches**\
-`Quotation of the Day for Thursday, February 5, 2025.`\
-https://nytimes.com/2026/02/04/pageoneplus/quote-of-the-day-wonder-drug-keeps-sports-in-its-clutches.html
 
