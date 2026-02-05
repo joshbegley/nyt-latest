@@ -1,3 +1,15 @@
+**How to watch Ole Miss vs. Alabama women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7025223/2026/02/05/ole-miss-vs-alabama-stream-how-to-watch-feb-5/
+
+**How to watch Ohio State vs. Washington women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the Washington Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7025215/2026/02/05/ohio-state-vs-washington-stream-how-to-watch-feb-5/
+
+**Nets to waive Cam Thomas after trade deadline passes: Sources**\
+`This ends a saga that began after the two teams could not agree to a long-term deal last summer.`\
+https://nytimes.com/athletic/7025211/2026/02/05/cam-thomas-waived-nets-nba-trade-deadline/
+
 **Facing a Democratic Blitz, Susan Collins Scores a Super Bowl Ad in Maine**\
 `The ad is part of a multimillion dollar effort by a Republican-aligned group to help Ms. Collins, who is seen as one of the party’s most vulnerable incumbents.`\
 https://nytimes.com/2026/02/05/us/politics/susan-collins-super-bowl-ad.html
