@@ -1,3 +1,7 @@
+**Bad Bunny on Super Bowl halftime show: 'It’s going to be fun, it’s going to be easy'**\
+`Fresh off winning a Grammy Award for Album of the Year, Bad Bunny is now preparing to headline the Super Bowl halftime show on Sunday.`\
+https://nytimes.com/athletic/7025357/2026/02/05/bad-bunny-super-bowl-halftime-show-grammy-awards/
+
 **Amazon Plans to Spend $200 Billion on A.I. and Other Projects This Year**\
 `The company reported a strong holiday quarter on Thursday. But its big spending on things like artificial intelligence and satellites is starting to make investors nervous.`\
 https://nytimes.com/2026/02/05/technology/amazon-200-billion-ai.html
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/7025440/2026/02/05/brayden-point-seth-jarvis-canada
 **Police details of Gavin McKenna's arrest outlined in criminal complaint**\
 `A probable cause affidavit alleges that McKenna punched a man twice after "an exchange of words."`\
 https://nytimes.com/athletic/7025219/2026/02/05/gavin-mckenna-arrest-police-details-criminal-complaint/
-
-**With Kawhi Leonard still standing, Clippers pivot to what's next**\
-`The Clippers left the trade deadline with Kawhi Leonard still in place and a clearer picture of their future. `\
-https://nytimes.com/athletic/7025266/2026/02/05/kawhi-leonard-clippers-trade-deadline/
-
-**Kennedy Makes Unfounded Claim That Keto Diet Can ‘Cure’ Schizophrenia**\
-`The claim vastly overstates preliminary research into whether the high-fat, low-carbohydrate diet might help people with the disorder, experts said.`\
-https://nytimes.com/2026/02/05/us/politics/kennedy-keto-diet-schizophrenia.html
 
