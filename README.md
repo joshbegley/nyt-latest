@@ -1,3 +1,7 @@
+**TrumpRx Is Set to Go Live on Thursday**\
+`The government website is meant to connect Americans with drug companies to buy prescriptions directly with their own money. It is not clear how many patients will save money.`\
+https://nytimes.com/2026/02/05/us/politics/trumprx-website.html
+
 **How I Learned to Ice Skate in Middle Age**\
 `Inspired by graceful Olympic spins and leaps, one writer takes to the ice to try her hand at figure skating.`\
 https://nytimes.com/2026/02/05/well/move/ice-skate-lesson-middle-age.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7024083/2026/02/05/bill-belichick-hall-of-fame-repu
 **Tom Stoppard Is Gone. In ‘Arcadia,’ His Wit Still Sparkles.**\
 `A new London production of the playwright’s masterpiece has extra poignancy just months after his death.`\
 https://nytimes.com/2026/02/05/theater/arcadia-tom-stoppard-old-vic-london.html
-
-**Carnegie Hall’s New Season: What We Want to Hear**\
-`Highlights include the hall’s first “Ring,” cycles of sonatas by Beethoven and Mozart and a birthday celebration for Steve Reich.`\
-https://nytimes.com/2026/02/05/arts/music/carnegie-hall-2026-2027-season.html
 

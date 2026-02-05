@@ -1,3 +1,11 @@
+**How I Learned to Ice Skate in Middle Age**\
+`Inspired by graceful Olympic spins and leaps, one writer takes to the ice to try her hand at figure skating.`\
+https://nytimes.com/2026/02/05/well/move/ice-skate-lesson-middle-age.html
+
+**Rare Giant Phantom Jelly Spotted in Deep Waters Near Argentina**\
+`Scientists had a rare encounter with a giant phantom jelly during a dive off of Argentina in the Atlantic Ocean.`\
+https://nytimes.com/video/science/earth/100000010692136/phantom-jellyfish-argentina-video.html
+
 **Cristian Romero outburst 'dealt with internally' by Spurs - Frank**\
 `In an Instagram post, Romero described it as "disgraceful" that Spurs "only had 11 players available" for Sunday's draw with Man City.`\
 https://nytimes.com/athletic/7024394/2026/02/05/cristian-romero-outburst-dealt-with-internally-by-tottenham-thomas-frank/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/05/theater/arcadia-tom-stoppard-old-vic-london.html
 **Carnegie Hall’s New Season: What We Want to Hear**\
 `Highlights include the hall’s first “Ring,” cycles of sonatas by Beethoven and Mozart and a birthday celebration for Steve Reich.`\
 https://nytimes.com/2026/02/05/arts/music/carnegie-hall-2026-2027-season.html
-
-**Secretary Rubio Gives Up Role as Acting U.S. Archivist**\
-`Mr. Rubio had been the acting head of the National Archives since early 2025, after President Trump fired its previous chief. His tenure was limited to 300 days by law.`\
-https://nytimes.com/2026/02/05/us/politics/rubio-national-archives.html
-
-**How to watch Senators vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7024558/2026/02/05/senators-vs-flyers-stream-how-to-watch-feb-5/
 
