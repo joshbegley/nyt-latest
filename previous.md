@@ -1,40 +1,40 @@
-**Russia-Ukraine Peace Talks Stretch Into a Second Day**\
-`Little has been made public so far, but negotiators were expected to talk about the fate of Ukrainian territory in the east and security guarantees for Ukraine.`\
-https://nytimes.com/2026/02/05/world/europe/russia-ukraine-peace-talks.html
+**Is the Nuclear Arms Control Era Over?**\
+`The last major nuclear treaty between the United States and Russia just expired. Our national security correspondent David E. Sanger explains how we got here.`\
+https://nytimes.com/video/us/politics/100000010686038/is-the-nuclear-arms-control-era-over.html
 
-**Warriors relieved, hopeful as they make a deal while keeping Giannis door open**\
-`The Warriors finally moved on from Jonathan Kuminga, adding a measure of relief to their continued hopes of acquiring the biggest prize.`\
-https://nytimes.com/athletic/7023464/2026/02/05/warriors-trades-giannis-deal/
+**Who Is That Masked Man? The Orchids Aren’t Telling.**\
+`Mr. Flower Fantastic, guest designer for the New York Botanical Garden’s Orchid Show, lets his art speak for itself, never showing his face.`\
+https://nytimes.com/2026/02/05/arts/design/orchid-show-mr-flower-fantastic-new-york-botanical-garden.html
 
-**Which states and colleges have produced Super Bowl talent for Seahawks and Patriots**\
-`Alabama and LSU lead the pack among colleges, while Texas, California and Florida are the states with the most Super Bowl players.`\
-https://nytimes.com/athletic/7019115/2026/02/05/super-bowl-colleges-states-patriots-seahawks/
+**Homes for Sale in Manhattan and Queens**\
+`This week’s properties are in the Financial District, Hamilton Heights and Long Island City.`\
+https://nytimes.com/2026/02/05/realestate/homes-apartments-for-sale-nyc.html
 
-**Best in Show?**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2026/02/05/learning/best-in-show.html
+**And One for Mahler … Experiments in Drunk Music Making**\
+`In “DWI: Drinking With Instruments,” musicians played some thorny new music twice: the first sober, the second under the influence.`\
+https://nytimes.com/2026/02/05/arts/music/drinking-with-instruments-drunk-music-making.html
 
-**When the Cold Turns Deadly, What Should New York City Do?**\
-`Seventeen New Yorkers have died after exposure to frigid temperatures since Jan. 24, raising questions about how Mayor Zohran Mamdani has managed the crisis.`\
-https://nytimes.com/2026/02/05/nyregion/nyc-cold-homeless-deaths.html
+**The Churn of Fast Fashion, Slowed Down**\
+`A group exhibition at Pioneer Works in Brooklyn takes an idiosyncratic look at the global textile trade.`\
+https://nytimes.com/2026/02/05/arts/design/endless-garment-pioneer-works.html
 
-**Primary for New Jersey House Seat Is First Race of Pivotal Midterms**\
-`Eleven candidates are running in a special primary election on Thursday to fill Gov. Mikie Sherrill’s former seat. They include a former member of Congress and the former lieutenant governor.`\
-https://nytimes.com/2026/02/05/nyregion/new-jersey-special-election-congress.html
+**Canceled Home Purchases Rise, Reflecting Buyers’ Increased Power**\
+`Over 40,000 home purchase agreements were canceled in December, a 14.9 percent increase from the year before.`\
+https://nytimes.com/2026/02/05/realestate/canceled-home-purchases-buyers-market.html
 
-**Can Arsenal win the quadruple? Gunners' odds of making history this season assessed**\
-`Arsenal are still in with a chance to make history, with four trophies still up for grabs.`\
-https://nytimes.com/athletic/7020905/2026/02/05/arsenal-quadruple-odds-gunners-favourites-in-all-four-competitions-and-have-5-chance-of-making-history/
+**A Stunning ‘King Lear’ That Reveals, Finally, a King in Full**\
+`Ten actors wear the crowns in Karin Coonrod’s production, which is rich with twilight revelation, at La MaMa in Manhattan.`\
+https://nytimes.com/2026/02/05/theater/king-lear-michael-potts-la-mama.html
 
-**After Taking on Trump and Backing Mamdani, Hochul Sees Her Star Rise**\
-`Gov. Kathy Hochul has warded off most serious challenges to her re-election, but still faces a primary contest against her lieutenant governor, Antonio Delgado.`\
-https://nytimes.com/2026/02/05/nyregion/hochul-democratic-convention-delgado.html
+**I Was Arrested for Doing My Job as a Reporter. Who’s Next?**\
+`I covered the Minnesota church protest. Press credentials didn’t protect me.`\
+https://nytimes.com/2026/02/05/opinion/minnesota-protest-arrested-press-journalism.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/05/crosswords/spelling-bee-forum.html
+**How Trump Brought the Fight Over American History to Philadelphia**\
+`The administration took a crowbar to a site that focused on George Washington and slavery. But can the contradictions of the Founding Era be erased?`\
+https://nytimes.com/2026/02/05/arts/george-washington-slavery-trump-history.html
 
-**Thousands Displaced for a Military Operation That Pakistan Says It Didn’t Order**\
-`Some 60,000 evacuees have been left in limbo by confusion and political disputes as Pakistan battles insurgents on its border with Afghanistan.`\
-https://nytimes.com/2026/02/05/world/asia/pakistan-military-operation-displaced-people.html
+**Should Nazi Sympathizers Be Honored on City Sidewalks?**\
+`Markers on Lower Broadway recognize leaders who received ticker-tape parades. Some of them are now regarded as war criminals.`\
+https://nytimes.com/2026/02/05/nyregion/sidewalk-markers-lower-broadway-nazi-sympathizers.html
 
