@@ -1,3 +1,7 @@
+**How to watch Penn State vs. Michigan men's basketball: Time, TV, streaming**\
+`Find out how to watch the Penn State Nittany Lions play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7024517/2026/02/05/penn-state-vs-michigan-stream-how-to-watch-feb-5/
+
 **Wolves-Bulls trade grades: Minnesota solves backup PG position with Ayo Dosunmu**\
 `Is Chicago a good spot for Rob Dillingham to develop and turn his career around?`\
 https://nytimes.com/athletic/7024328/2026/02/05/nba-trade-grades-wolves-bulls-ayo-dosunmu/

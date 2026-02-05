@@ -1,3 +1,7 @@
+**How to watch Penn State vs. Michigan men's basketball: Time, TV, streaming**\
+`Find out how to watch the Penn State Nittany Lions play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7024517/2026/02/05/penn-state-vs-michigan-stream-how-to-watch-feb-5/
+
 **Wolves-Bulls trade grades: Minnesota solves backup PG position with Ayo Dosunmu**\
 `Is Chicago a good spot for Rob Dillingham to develop and turn his career around?`\
 https://nytimes.com/athletic/7024328/2026/02/05/nba-trade-grades-wolves-bulls-ayo-dosunmu/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/05/well/mind/touch-starved-skin-hunger.html
 **Trump Strips Job Protections From Thousands of Federal Workers**\
 `The policy change makes it easier for the president to discipline or remove up to 50,000 employees, another push in the administration’s campaign to reshape the federal work force.`\
 https://nytimes.com/2026/02/05/us/politics/trump-federal-workers-protections.html
-
-**Congress Nixes Visas for Afghan Partners, Closing Off a Key Path**\
-`President Trump froze a program to allow Afghans who had worked with American troops to come to the United States. Now Congress has quietly scrapped the visas, leaving little hope of reviving them.`\
-https://nytimes.com/2026/02/05/us/politics/congress-afghan-partners-visas.html
 
