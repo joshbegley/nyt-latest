@@ -1,3 +1,11 @@
+**Twins roster projection 2.0: Weak spots and position battles as spring training nears**\
+`It's a disjointed Twins roster, with a logjam of left-handed corner bats, a lack of reliable relievers and plenty of big question marks.`\
+https://nytimes.com/athletic/7023830/2026/02/05/twins-2026-roster-projection-spring-training/
+
+**Ukraine Peace Talks End With Little Progress**\
+`Russian, Ukrainian and American officials ended a second day of peace talks in Abu Dhabi after only a few hours, with little to show for the discussions other than a promise to exchange prisoners of war.`\
+https://nytimes.com/video/world/europe/100000010691631/russia-ukraine-talks.html
+
 **Kit man banned for homophobic comment towards referee**\
 `A out a six-match stadium suspension was handed out after the comment in the League One match between Reading and Huddersfield.`\
 https://nytimes.com/athletic/7023922/2026/02/05/reading-kit-man-ban-homophobic/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/05/business/dealbook/karp-paul-weiss-epstein.html
 **Why a quiet NBA trade deadline may be the best thing for the Rockets**\
 `A quiet approach to the NBA trade deadline may be the smartest way for a Rockets team looking at building its future.`\
 https://nytimes.com/athletic/7023608/2026/02/05/rockets-nba-trade-deadline-quiet/
-
-**Trump Administration Live Updates: Democrats to Lay Out Demands For Restrictions on Immigration Agents**\
-``\
-https://nytimes.com/live/2026/02/05/us/trump-news
-
-**The moments that made Matthew Stafford an MVP finalist at age 37**\
-`Stafford had a back issue that caused him to miss training camp. Then, in Year 17, he played every single game and put up career numbers. `\
-https://nytimes.com/athletic/7022629/2026/02/05/matthew-stafford-rams-mvp-finalist/
 

@@ -1,3 +1,11 @@
+**Twins roster projection 2.0: Weak spots and position battles as spring training nears**\
+`It's a disjointed Twins roster, with a logjam of left-handed corner bats, a lack of reliable relievers and plenty of big question marks.`\
+https://nytimes.com/athletic/7023830/2026/02/05/twins-2026-roster-projection-spring-training/
+
+**Ukraine Peace Talks End With Little Progress**\
+`Russian, Ukrainian and American officials ended a second day of peace talks in Abu Dhabi after only a few hours, with little to show for the discussions other than a promise to exchange prisoners of war.`\
+https://nytimes.com/video/world/europe/100000010691631/russia-ukraine-talks.html
+
 **Kit man banned for homophobic comment towards referee**\
 `A out a six-match stadium suspension was handed out after the comment in the League One match between Reading and Huddersfield.`\
 https://nytimes.com/athletic/7023922/2026/02/05/reading-kit-man-ban-homophobic/
