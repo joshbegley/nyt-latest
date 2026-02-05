@@ -1,3 +1,11 @@
+**Sources: James Rodríguez finalizing deal with Minnesota United**\
+`The Colombian superstar appears headed to an unexpected landing spot as he aims to return to form before the World Cup`\
+https://nytimes.com/athletic/7021223/2026/02/05/james-rodriguez-minnesota-united-colombia-mls-signing/
+
+**Madrid's Rodrygo to miss Champions League play-off games due to two-match ban**\
+`The Brazil international was dismissed after showing dissent to Italian referee Davide Massa.`\
+https://nytimes.com/athletic/7024654/2026/02/05/real-madrid-news-rodrygo-suspension-champions-league-benfica/
+
 **TrumpRx Is Set to Go Live on Thursday**\
 `The government website is meant to connect Americans with drug companies to buy prescriptions directly with their own money. It is not clear how many patients will save money.`\
 https://nytimes.com/2026/02/05/us/politics/trumprx-website.html

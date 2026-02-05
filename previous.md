@@ -1,3 +1,11 @@
+**Sources: James Rodríguez finalizing deal with Minnesota United**\
+`The Colombian superstar appears headed to an unexpected landing spot as he aims to return to form before the World Cup`\
+https://nytimes.com/athletic/7021223/2026/02/05/james-rodriguez-minnesota-united-colombia-mls-signing/
+
+**Madrid's Rodrygo to miss Champions League play-off games due to two-match ban**\
+`The Brazil international was dismissed after showing dissent to Italian referee Davide Massa.`\
+https://nytimes.com/athletic/7024654/2026/02/05/real-madrid-news-rodrygo-suspension-champions-league-benfica/
+
 **TrumpRx Is Set to Go Live on Thursday**\
 `The government website is meant to connect Americans with drug companies to buy prescriptions directly with their own money. It is not clear how many patients will save money.`\
 https://nytimes.com/2026/02/05/us/politics/trumprx-website.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7024576/2026/02/05/framber-valdez-contract-the-wind
 **Leicester get six-point deduction for breaching PSR**\
 `The sanction was handed down by an independent commission and relates to the three-year period ending with the 2023-24 season.`\
 https://nytimes.com/athletic/7024569/2026/02/05/leicester-points-deduction-psr/
-
-**The Bill Belichick fiasco 'wounded' the Pro Football Hall of Fame. Now what?**\
-`Could the Bill Belichick Blunder tarnish Canton’s hallowed halls? Or will this be a momentary blip that is rectified with rule changes?`\
-https://nytimes.com/athletic/7024083/2026/02/05/bill-belichick-hall-of-fame-reputation-damage-nfl/
-
-**Tom Stoppard Is Gone. In ‘Arcadia,’ His Wit Still Sparkles.**\
-`A new London production of the playwright’s masterpiece has extra poignancy just months after his death.`\
-https://nytimes.com/2026/02/05/theater/arcadia-tom-stoppard-old-vic-london.html
 
