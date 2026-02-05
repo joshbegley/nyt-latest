@@ -1,3 +1,7 @@
+**Savannah Guthrie Addresses Mother’s Abductor: ‘We Are Ready to Talk’**\
+`Ms. Guthrie, the television anchor, and her siblings spoke out in a video on Wednesday night, asking for proof that their mother, Nancy, is alive.`\
+https://nytimes.com/2026/02/04/us/savannah-guthrie-plea-statement.html
+
 **Brad Karp Resigns as Paul Weiss Chairman Amid Epstein Fallout**\
 `The decision followed the release of a series of embarrassing emails between Mr. Karp and Jeffrey Epstein.`\
 https://nytimes.com/2026/02/04/business/brad-karp-paul-weiss-resigns-epstein.html

@@ -1,3 +1,7 @@
+**Savannah Guthrie Addresses Mother’s Abductor: ‘We Are Ready to Talk’**\
+`Ms. Guthrie, the television anchor, and her siblings spoke out in a video on Wednesday night, asking for proof that their mother, Nancy, is alive.`\
+https://nytimes.com/2026/02/04/us/savannah-guthrie-plea-statement.html
+
 **Brad Karp Resigns as Paul Weiss Chairman Amid Epstein Fallout**\
 `The decision followed the release of a series of embarrassing emails between Mr. Karp and Jeffrey Epstein.`\
 https://nytimes.com/2026/02/04/business/brad-karp-paul-weiss-resigns-epstein.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/04/world/middleeast/iran-us-talks-oman.html
 **As NBA trade deadline looms, what do terms like 'apron' actually mean?**\
 `Here’s a quick (but far from complete) guide to what a few of those terms mean and how they impact team building.`\
 https://nytimes.com/athletic/7022525/2026/02/04/nba-tax-apron-glossary-cba/
-
-**The NBA trade deadline has suddenly gotten busy. Here's why teams got active**\
-`Teams are swinging deals 72, 48 hours before the arrival of the trade deadline, scheduled for 3 p.m. ET on Feb. 5.`\
-https://nytimes.com/athletic/7022709/2026/02/04/nba-trade-deadline-front-office-moves-timing/
 
