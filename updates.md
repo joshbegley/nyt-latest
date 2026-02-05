@@ -1,3 +1,7 @@
+**Finland-Canada Olympic women's hockey game postponed after norovirus breakout**\
+`MILAN — The women’s Olympic hockey game between Canada and Finland scheduled for Thursday night has been postponed after members of Team Finland contracted norovirus.`\
+https://nytimes.com/athletic/7023859/2026/02/05/winter-olympics-women-hockey-finland-canada-postponed-sick-roster-norovirus/
+
 **Trump Administration Live Updates: Democrats to Lay Out Demands For Restrictions on Immigration Agents**\
 ``\
 https://nytimes.com/live/2026/02/05/us/trump-news
