@@ -1,3 +1,7 @@
+**Red Sox add defense with Isiah Kiner-Falefa but still in need of offensive boost**\
+`Kiner-Falefa doesn't fill the need for more power in the lineup but does bring Gold Glove-level defense to the infield.`\
+https://nytimes.com/athletic/7022957/2026/02/04/boston-red-sox-isiah-kiner-falefa-signing/
+
 **Luka Garza has a 'conspiracy theory' about Michigan State's tougher rim**\
 `The former Iowa center says he thinks the Spartans have one tight rim that moves around.`\
 https://nytimes.com/athletic/7022735/2026/02/04/luka-garza-michigan-state-rim-tampering-allegations/
