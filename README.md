@@ -1,3 +1,7 @@
+**Bitcoin Slides as Industry Frets About Another ‘Crypto Winter’**\
+`Despite strong support from the White House, the price of Bitcoin is now lower than when President Trump was elected in 2024.`\
+https://nytimes.com/2026/02/05/technology/bitcoin-price-drop-crypto-market.html
+
 **The Flour Tortilla Revolution is Here**\
 `And for some reason the best ones are in Brooklyn. Apologies to the other boroughs.`\
 https://nytimes.com/2026/02/05/dining/the-flour-tortilla-revolution-is-here.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/05/world/europe/starlink-blocks-russian-troops-acces
 **How Much Do You Know About the Winter Olympics? Take Our Quiz.**\
 `As top athletes prepare to test their limits in Milan and Cortina d’Ampezzo, why not take a minute to test your knowledge of Winter Olympics trivia?`\
 https://nytimes.com/2026/02/05/travel/winter-olympics-games-quiz.html
-
-**At Winter Olympics, Italy's remarkable mixed doubles curling winning streak ends**\
-`Italy's team lost for the first time at a major international event after perfect runs at the 2022 Olympics and 2025 world championships.`\
-https://nytimes.com/athletic/7024993/2026/02/05/winter-olympics-italy-mixed-doubles-curling-winning-streak/
 

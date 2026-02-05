@@ -1,3 +1,19 @@
+**The Flour Tortilla Revolution is Here**\
+`And for some reason the best ones are in Brooklyn. Apologies to the other boroughs.`\
+https://nytimes.com/2026/02/05/dining/the-flour-tortilla-revolution-is-here.html
+
+**Giannis posts message after Bucks elect not to trade him: 'Legends don't chase'**\
+`The Bucks' superstar made his feelings clear after the team chose to keep him past the 2026 NBA trade deadline.`\
+https://nytimes.com/athletic/7025354/2026/02/05/giannis-antetokounmpo-reaction-bucks-social-media/
+
+**Villa's Watkins and Onana expected to be available for Bournemouth game**\
+`Both players featured in Unai Emery’s training session on Thursday, having missed Villa’s 1-0 home defeat to Brentford the previous week.`\
+https://nytimes.com/athletic/7025276/2026/02/05/aston-villa-watkins-onana-injury-update/
+
+**As NBA trade deadline passes, Knicks ready for championship push**\
+`With the distractions now behind them, the red-hot Knicks can focus on making a run at the NBA Finals.`\
+https://nytimes.com/athletic/7024917/2026/02/05/nba-trade-deadline-knicks/
+
 **Italy Toughens Protest Laws, Hours Before Planned Rallies at Winter Olympics**\
 `The restrictions could affect people demonstrating this weekend outside Olympic events in northern Italy.`\
 https://nytimes.com/2026/02/05/world/europe/italy-olympics-security-law-protests.html
