@@ -1,3 +1,7 @@
+**Thousands Displaced for a Military Operation That Pakistan Says Won’t Happen**\
+`Some 60,000 evacuees have been left in limbo by confusion and political disputes as Pakistan battles insurgents on its  border with Afghanistan.`\
+https://nytimes.com/2026/02/05/world/asia/pakistan-military-operation-displaced-people.html
+
 **Newcastle United and a deflating, 'painful' concession of the trophy that meant so much**\
 `Winning the Carabao Cup last season meant so much to everyone at St James' Park. Elimination this time raises plenty of questions`\
 https://nytimes.com/athletic/7020713/2026/02/05/newcastle-carabao-cup-manchester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7023383/2026/02/05/guerschon-yabusele-trade-knicks-
 **Tate McRae responds to backlash over Team USA ad: 'I'm Canada down'**\
 `McRae wrote the message and posted a photo of herself as a child holding a mini Canadian flag on Instagram. `\
 https://nytimes.com/athletic/7022987/2026/02/05/tate-mcrae-olympics-backlash-promoting-team-usa/
-
-**The rise of cricket in Nepal: 'The T20 World Cup is an opportunity. The expectation is Test cricket'**\
-`Cricket has overtaken football in terms of popularity in Nepal with the national team now hoping to go deep into the T20 World Cup`\
-https://nytimes.com/athletic/7017923/2026/02/05/nepal-cricket-t20-world-cup-test-law/
 

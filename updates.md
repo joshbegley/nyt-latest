@@ -1,3 +1,7 @@
+**Thousands Displaced for a Military Operation That Pakistan Says Won’t Happen**\
+`Some 60,000 evacuees have been left in limbo by confusion and political disputes as Pakistan battles insurgents on its  border with Afghanistan.`\
+https://nytimes.com/2026/02/05/world/asia/pakistan-military-operation-displaced-people.html
+
 **It’s Not the Cartels That Worry Claudia Sheinbaum**\
 `Trump wants total war on Mexico’s cartels. Sheinbaum won’t give it to him.`\
 https://nytimes.com/2026/02/05/opinion/mexico-sheinbaum-trump-cartels.html
