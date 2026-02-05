@@ -1,3 +1,11 @@
+**Giannis, Ja Morant are staying put. Let's grade those non-moves (for now)**\
+`These non-trades made as much noise as the big transactions we actually saw.`\
+https://nytimes.com/athletic/7025006/2026/02/05/giannis-ja-morant-nba-trade-grades/
+
+**C.I.A. World Factbook Ends Publication After 6 Decades**\
+`The Factbook, a version of which dates to 1962, provided facts, figures, maps and more to generations of economists, professors, journalists and others.`\
+https://nytimes.com/2026/02/05/us/world-factbook-cia.html
+
 **Trump Calls for New Treaty as Nuclear Arms Control Era Ends**\
 `Also, Trump expanded his power to fire federal workers. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2026/02/05/briefing/us-russia-nuclear-treaty-federal-workers.html
@@ -6,7 +14,7 @@ https://nytimes.com/2026/02/05/briefing/us-russia-nuclear-treaty-federal-workers
 `Sankey asked the court to uphold the NCAA’s eligibility rules and deny Bediako a preliminary injunction, advocating against Alabama.`\
 https://nytimes.com/athletic/7025472/2026/02/05/greg-sankey-sec-commissioner-charles-bediako-alabama/
 
-**Movin' on up (or down): Winners and losers from every NBA deadline deal**\
+**Movin' on up (or down): Fantasy basketball winners and losers from every NBA deadline deal**\
 `Stan Son offers his fantasy hoops spin for every deal consummated leading up to the NBA trade deadline.`\
 https://nytimes.com/athletic/7025199/2026/02/05/fantasy-basketball-nba-trade-deadline-winners-losers/
 
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/africa/100000010692986/nigeria-gunmen-attack-kwa
 **Family Sues Egypt Over Beating of 2 Brothers at U.N. Mission in New York**\
 `The brothers claim four security guards beat and detained them during a protest in August 2025 outside Egypt’s mission to the United Nations.`\
 https://nytimes.com/2026/02/05/nyregion/brothers-lawsuit-egyptian-government.html
-
-**Why the Brooklyn Nets waived Cam Thomas months after signing him to a new deal**\
-`The Nets tried but could not find a taker for Thomas, a volume scorer who has averaged 21.4 points over the past three seasons.`\
-https://nytimes.com/athletic/7025545/2026/02/05/nba-cam-thomas-nets-waived-free-agent/
-
-**3 Killed as Vehicle Crashes Into Grocery Store in Los Angeles**\
-`Four other people were taken to a hospital, two with serious injuries and two with minor injuries, officials said.`\
-https://nytimes.com/2026/02/05/us/crash-la-grocery-store-deaths.html
 
