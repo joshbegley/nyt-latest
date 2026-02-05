@@ -1,3 +1,19 @@
+**The Best Ski Racers Often Don’t Win Gold**\
+`Unlike many Olympic sports, the best Alpine skiers often don’t win gold. Two-time Olympic champion Ted Ligety explains why the sport is so unpredictable.`\
+https://nytimes.com/interactive/2026/02/05/sports/skiing/ski-racing-olympics-ted-ligety.html
+
+**Suns trade Richards, Hayes-Davis to Bucks for Anthony, Coffey: Source**\
+`Phoenix gets under the luxury tax for the first time since the 2021-22 season.`\
+https://nytimes.com/athletic/7024847/2026/02/05/suns-bucks-trade-nick-richards-cole-anthony/
+
+**USA downs Czech Republic 5-1 as Olympic women's hockey tournament opens: Takeaways**\
+`The Olympic women's hockey tournament began Thursday with the U.S. easily defeating Team Czechia.`\
+https://nytimes.com/athletic/7024335/2026/02/05/usa-czechia-olympic-womens-hockey-results/
+
+**The Essential Toni Morrison**\
+`Her novels reveal a deeply American desire for freedom and adventure, and one of her work’s great joys lies in always finding something new to discover. Here’s where to start.`\
+https://nytimes.com/article/best-toni-morrison-books.html
+
 **‘Sirat’ Review: A Shocker in the Desert**\
 `The Galician director Oliver Laxe delivers a mesmerizing thriller about a man’s search for his lost daughter, set amid raves in the punishing Sahara.`\
 https://nytimes.com/2026/02/05/movies/sirat-review-oliver-laxe.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7024688/2026/02/05/ski-jump-penis-enhancement-wada/
 **Giannis Antetokounmpo trade not expected at NBA deadline, Bucks to revisit in summer: Sources**\
 `This was the closest Milwaukee has gotten to parting with the two-time MVP, and deals will again be discussed in the offseason.`\
 https://nytimes.com/athletic/7023866/2026/02/05/nba-giannis-antetokounmpo-staying-bucks-trade-deadline/
-
-**Knicks trade for Jose Alvarado, send Dalen Terry, 2nd-round picks to Pelicans: Sources**\
-`The deal marks a homecoming for Alvarado. New York will send Dalen Terry and two second-round picks to New Orleans.`\
-https://nytimes.com/athletic/7024775/2026/02/05/knicks-trade-jose-alvarado-pelicans-nba/
-
-**The Louvre Thieves Dropped This Priceless Crown. Now It Looks Like This.**\
-`Empress Eugénie’s crown was left lying on the sidewalk after the Louvre Museum heist in October. The museum has now released pictures of the damage.`\
-https://nytimes.com/2026/02/05/world/europe/louvre-heist-crown-damage-eugenie-empress.html
-
-**Q&A: How Israel's first Olympic bobsled team came together**\
-`Team captain AJ Edelman opens up about creating Israel’s first Olympic bobsled team for the Milano Cortina Games.`\
-https://nytimes.com/athletic/7024454/2026/02/05/israel-bobsled-first-olympics-milano-cortina/
-
-**Sources: James Rodríguez finalizing deal with Minnesota United**\
-`The Colombian superstar appears headed to an unexpected landing spot as he aims to return to form before the World Cup`\
-https://nytimes.com/athletic/7021223/2026/02/05/james-rodriguez-minnesota-united-colombia-mls-signing/
 
