@@ -1,3 +1,7 @@
+**Ivica Zubac traded from Clippers to Pacers, filling Indiana's void at center: Source**\
+`The Clippers will acquire Bennedict Mathurin, Isaiah Jackson and multiple first-round picks in the trade.`\
+https://nytimes.com/athletic/7025072/2026/02/05/clippers-trade-ivica-zubac-bennedict-mathurin-pacers-nba/
+
 **Tarik Skubal awarded $32 million in landmark arbitration victory**\
 `Skubal’s case could serve as a landmark victory for players in a time of greater labor uncertainty.`\
 https://nytimes.com/athletic/7019362/2026/02/05/tarik-skubal-arbitration-32-million-victory/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/05/us/politics/trump-gabbard-georgia-election-raid.h
 **Montana coach retires amid CFB changes: 'I kind of got tired of all that'**\
 `Hauck, 61, won eight Big Sky championships at Montana but said he's gotten tired of the increasingly transient nature of college football.`\
 https://nytimes.com/athletic/7024977/2026/02/05/montana-bobby-hauck-retires-college-football/
-
-**At a Bonobo’s ‘Tea Party,’ Scientists Find Hints of Imagination**\
-`By playing pretend with an ape, scientists found a human hallmark in our closest living relative: the capacity for make-believe.`\
-https://nytimes.com/2026/02/05/science/bonobos-apes-imagination.html
 
