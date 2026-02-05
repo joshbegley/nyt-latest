@@ -27,7 +27,7 @@ https://nytimes.com/2026/02/05/nyregion/hochul-democratic-convention-delgado.htm
 https://nytimes.com/2026/02/05/crosswords/spelling-bee-forum.html
 
 **Thousands Displaced for a Military Operation That Pakistan Says Won’t Happen**\
-`Some 60,000 evacuees have been left in limbo by confusion and political disputes as Pakistan battles insurgents on its  border with Afghanistan.`\
+`Some 60,000 evacuees have been left in limbo by confusion and political disputes as Pakistan battles insurgents on its border with Afghanistan.`\
 https://nytimes.com/2026/02/05/world/asia/pakistan-military-operation-displaced-people.html
 
 **Newcastle United and a deflating, 'painful' concession of the trophy that meant so much**\
