@@ -1,3 +1,15 @@
+**Why Timberwolves' Giannis Antetokounmpo pursuit fizzled, and the pivot to Ayo Dosunmu**\
+`After exploring a potential blockbuster for Giannis Antetokounmpo, the Timberwolves instead found a way to bolster their bench. `\
+https://nytimes.com/athletic/7024347/2026/02/05/giannis-timberwolves-ayo-dosunmu-trade/
+
+**Ted Berger, Indefatigable Patron of Artists and Schools, Dies at 85**\
+`As head of the New York Foundation for the Arts, he oversaw almost $23 million in grants and helped bring arts education to struggling schools.`\
+https://nytimes.com/2026/02/05/arts/ted-berger-dead.html
+
+**Leicester were Premier League champions a decade ago. Now they are scrambling to avoid the third tier**\
+`The six-point deduction imposed on the Championship club for PSR breach leaves them outside the relegation zone on goal difference alone`\
+https://nytimes.com/athletic/6985948/2026/02/05/leicester-city-points-deduction-top-relegation/
+
 **Leicester City were Premier League champions a decade ago. Now they are scrambling to avoid the third tier**\
 `The six-point deduction imposed on the Championship club for PSR breach leaves them outside the relegation zone on goal difference alone`\
 https://nytimes.com/athletic/6985948/2026/02/05/leicester-city-points-deduction-top-relegation/
