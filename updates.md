@@ -1,3 +1,15 @@
+**China’s Xi Presses Trump on Taiwan in Phone Call**\
+`Both leaders gave versions of what they discussed, but the Chinese president’s take made clear the issue of the island was front and center.`\
+https://nytimes.com/2026/02/04/us/politics/xi-phone-call-taiwan.html
+
+**What the Anthony Davis trade means for the Wizards' future**\
+`If Davis and Young remain healthy and embrace their roles, the “Wiz Kids” could develop and play competitive basketball at the same time.`\
+https://nytimes.com/athletic/7022655/2026/02/04/anthony-davis-trade-wizards-future/
+
+**Man Who Falsely Claimed He Killed Charlie Kirk Is Sentenced to Prison**\
+`The authorities said the man, George Zinn, tried to derail their search for Mr. Kirk’s actual killer. He faces up to 15 years in prison on obstruction of justice and other charges.`\
+https://nytimes.com/2026/02/04/us/false-confession-charlie-kirk-shooting-prison.html
+
 **U.S. and Iran to Hold Talks in Oman on Friday**\
 `The White House confirmed a meeting would take place after days of conflicting reports on the talks’ timing, location and format.`\
 https://nytimes.com/2026/02/04/world/middleeast/iran-us-talks-oman.html
