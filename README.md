@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7025610/2026/02/05/san-diego-padres-sale-process-bids/
 
 **The Raptors finally stopped chasing their tail at the NBA trade deadline**\
-`After years of boxing themselves in with deadline moves, the Raptors finally broke free — for now`\
+`After years of boxing themselves in with trade deadline moves, the Raptors finally broke free — for now.`\
 https://nytimes.com/athletic/7025249/2026/02/05/raptors-2026-nba-trade-deadline/
 
 **Giannis, Ja Morant are staying put. Let's grade those non-moves (for now)**\
