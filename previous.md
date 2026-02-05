@@ -1,40 +1,40 @@
-**Is the Nuclear Arms Control Era Over?**\
-`The last major nuclear treaty between the United States and Russia just expired. Our national security correspondent David E. Sanger explains how we got here.`\
-https://nytimes.com/video/us/politics/100000010686038/is-the-nuclear-arms-control-era-over.html
+**Trump Brings Out the Worst in Everyone**\
+`Us included.`\
+https://nytimes.com/2026/02/05/opinion/trump-iran-ice-stephen-miller.html
 
-**Who Is That Masked Man? The Orchids Aren’t Telling.**\
-`Mr. Flower Fantastic, guest designer for the New York Botanical Garden’s Orchid Show, lets his art speak for itself, never showing his face.`\
-https://nytimes.com/2026/02/05/arts/design/orchid-show-mr-flower-fantastic-new-york-botanical-garden.html
+**If a Fiber Campaign Costs Millions, It Has to Be a Super Bowel Ad**\
+`WK Kellogg is promoting Raisin Bran with William Shatner during the big game as cereal sales decline. It’s also tapping the latest health and wellness trend.`\
+https://nytimes.com/2026/02/05/business/raisin-bran-super-bowl-ad-william-shatner.html
 
-**Homes for Sale in Manhattan and Queens**\
-`This week’s properties are in the Financial District, Hamilton Heights and Long Island City.`\
-https://nytimes.com/2026/02/05/realestate/homes-apartments-for-sale-nyc.html
+**Heads? MAGA Wins. Tails? I Win.**\
+`A law that just might save the midterms.`\
+https://nytimes.com/2026/02/05/opinion/trump-nationalize-elections-midterms.html
 
-**And One for Mahler … Experiments in Drunk Music Making**\
-`In “DWI: Drinking With Instruments,” musicians played some thorny new music twice: the first sober, the second under the influence.`\
-https://nytimes.com/2026/02/05/arts/music/drinking-with-instruments-drunk-music-making.html
+**‘The Pitt’ Is Giving a Dose of Humanity**\
+`And it’s just what the doctor ordered.`\
+https://nytimes.com/2026/02/05/podcasts/the-pitt-is-giving-a-dose-of-humanity.html
 
-**The Churn of Fast Fashion, Slowed Down**\
-`A group exhibition at Pioneer Works in Brooklyn takes an idiosyncratic look at the global textile trade.`\
-https://nytimes.com/2026/02/05/arts/design/endless-garment-pioneer-works.html
+**A Father’s Wish Becomes a Daughter’s Fulfillment on the Upper West Side**\
+`A longtime Manhattan renter, now a first-time buyer, looked for a one-bedroom close to Central Park for less than $1 million. Here’s what she found.`\
+https://nytimes.com/interactive/2026/02/05/realestate/upper-west-side-one-bedrooms-sale.html
 
-**Canceled Home Purchases Rise, Reflecting Buyers’ Increased Power**\
-`Over 40,000 home purchase agreements were canceled in December, a 14.9 percent increase from the year before.`\
-https://nytimes.com/2026/02/05/realestate/canceled-home-purchases-buyers-market.html
+**Why Ending Roe Wasn’t Enough for the Pro-Life Movement**\
+`Activists won the legal battle. Are they losing the culture war?`\
+https://nytimes.com/2026/02/05/opinion/pro-life-roe-v-wade-lila-rose.html
 
-**A Stunning ‘King Lear’ That Reveals, Finally, a King in Full**\
-`Ten actors wear the crowns in Karin Coonrod’s production, which is rich with twilight revelation, at La MaMa in Manhattan.`\
-https://nytimes.com/2026/02/05/theater/king-lear-michael-potts-la-mama.html
+**A 60-Year Arc at The Washington Post, From Watergate to the Weather**\
+`Martin Weil, one of hundreds being laid off at The Post, has worked on local news there since 1965, witnessing the paper’s rise and now retrenchment.`\
+https://nytimes.com/2026/02/05/business/media/washington-post-martin-weil-metro.html
 
-**I Was Arrested for Doing My Job as a Reporter. Who’s Next?**\
-`I covered the Minnesota church protest. Press credentials didn’t protect me.`\
-https://nytimes.com/2026/02/05/opinion/minnesota-protest-arrested-press-journalism.html
+**When You’re Undocumented, Turning 18 Is Different**\
+`When turning 18 brings its own set of pressures.`\
+https://nytimes.com/interactive/2026/02/05/opinion/ice-family-separation-birthday-chapter4.html
 
-**How Trump Brought the Fight Over American History to Philadelphia**\
-`The administration took a crowbar to a site that focused on George Washington and slavery. But can the contradictions of the Founding Era be erased?`\
-https://nytimes.com/2026/02/05/arts/george-washington-slavery-trump-history.html
+**Surge in Immigration Cases in Minnesota Pushes Prosecutors and Judges to Brink**\
+`Remarks by a prosecutor opened a revealing window onto how the courts in the state are buckling under the weight of a deluge of cases arising from the Trump administration’s campaign.`\
+https://nytimes.com/2026/02/05/us/politics/minnesota-immigration-crackdown.html
 
-**Should Nazi Sympathizers Be Honored on City Sidewalks?**\
-`Markers on Lower Broadway recognize leaders who received ticker-tape parades. Some of them are now regarded as war criminals.`\
-https://nytimes.com/2026/02/05/nyregion/sidewalk-markers-lower-broadway-nazi-sympathizers.html
+**Outside the Art World’s Echo Chamber, at Art Basel Qatar**\
+`More than half the exhibited artists were from the Middle East, North Africa or South Asia, giving visitors an opportunity to discover fresh voices.`\
+https://nytimes.com/2026/02/05/arts/design/art-basel-qatar.html
 
