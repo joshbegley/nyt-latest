@@ -1,3 +1,15 @@
+**Minnesota Twins 2026 top 20 prospects: Walker Jenkins, Emmanuel Rodriguez lead the way**\
+`Injuries had a significant impact on the Twins system in 2025, but there are still plenty of players with significant upside on their list.`\
+https://nytimes.com/athletic/7018621/2026/02/05/minnesota-twins-2026-top-20-prospects-keith-law/
+
+**The Pulse: The NBA is punking the NFL**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7021968/2026/02/05/nba-trade-deadline-davis-kuminga-the-pulse/
+
+**Kansas City Royals 2026 top 20 prospects: Carter Jensen, Blake Mitchell lead the way**\
+`The Royals' list is solid now and could get significantly better soon as their younger prospects come into their own.`\
+https://nytimes.com/athletic/7017406/2026/02/05/kansas-city-royals-2026-top-20-prospects-keith-law/
+
 **Detroit Tigers 2026 top 20 prospects: Kevin McGonigle, Max Clark lead the way**\
 `The Tigers' system is extremely top heavy, but the players at the top of the system have star ceilings.`\
 https://nytimes.com/athletic/7017277/2026/02/05/detroit-tigers-2026-top-20-prospects-keith-law/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7021307/2026/02/05/crystal-dunn-uswnt-retirement-ca
 **Did Nebraska's roster improve? Assessing the Huskers after offseason overhaul**\
 `The Huskers added a lot of experience this offseason and will look to take a step forward after a poor end to last season.`\
 https://nytimes.com/athletic/7022588/2026/02/05/nebraska-offseason-recruiting-transfer-portal/
-
-**Patriots assistant Zak Kuhr has his defense playing like a Super Bowl champ**\
-`The defensive play caller stepped in for Terrell Williams and hasn't missed a beat. Now, his stingy unit has the Pats in the Super Bowl.`\
-https://nytimes.com/athletic/7021755/2026/02/05/zak-kuhr-patriots-defense-super-bowl-60/
-
-**Winter Olympics gold medal odds: 5 factors that will shape medal table**\
-`The United States has the most athletes competing in the Winter Olympics, but is not favored to win the gold medal race.`\
-https://nytimes.com/athletic/7018201/2026/02/05/winter-olympics-gold-medal-factors/
-
-**Blue Jackets blow past Blackhawks, arrive at Olympic break as NHL's hottest club**\
-`The Blue Jackets hit the break with a 4-0 win over the Blackhawks and extended their winning streak to seven games.`\
-https://nytimes.com/athletic/7023061/2026/02/05/blue-jackets-blackhawks-olympic-break-nhl/
 

@@ -1,3 +1,7 @@
+**Detroit Tigers 2026 top 20 prospects: Kevin McGonigle, Max Clark lead the way**\
+`The Tigers' system is extremely top heavy, but the players at the top of the system have star ceilings.`\
+https://nytimes.com/athletic/7017277/2026/02/05/detroit-tigers-2026-top-20-prospects-keith-law/
+
 **Cleveland Guardians 2026 top 20 prospects: Angel Genao, Travis Bazzana lead the way**\
 `The Guardians still have a top-five farm system thanks to a balance of promising position players and pitchers.`\
 https://nytimes.com/athletic/7016814/2026/02/05/guardians-2026-top-20-prospects-keith-law/

@@ -1,3 +1,7 @@
+**Detroit Tigers 2026 top 20 prospects: Kevin McGonigle, Max Clark lead the way**\
+`The Tigers' system is extremely top heavy, but the players at the top of the system have star ceilings.`\
+https://nytimes.com/athletic/7017277/2026/02/05/detroit-tigers-2026-top-20-prospects-keith-law/
+
 **Cleveland Guardians 2026 top 20 prospects: Angel Genao, Travis Bazzana lead the way**\
 `The Guardians still have a top-five farm system thanks to a balance of promising position players and pitchers.`\
 https://nytimes.com/athletic/7016814/2026/02/05/guardians-2026-top-20-prospects-keith-law/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7018201/2026/02/05/winter-olympics-gold-medal-facto
 **Blue Jackets blow past Blackhawks, arrive at Olympic break as NHL's hottest club**\
 `The Blue Jackets hit the break with a 4-0 win over the Blackhawks and extended their winning streak to seven games.`\
 https://nytimes.com/athletic/7023061/2026/02/05/blue-jackets-blackhawks-olympic-break-nhl/
-
-**Fixing the Bengals' pass-rush problem, Part 3: Defensive tackle requires unique solutions**\
-`A scarcity of pass-rushing defensive tackles in the draft and free agency limits how Cincinnati can address the position.`\
-https://nytimes.com/athletic/7022384/2026/02/05/fixing-bengals-pass-rush-defensive-tackle/
 
