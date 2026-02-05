@@ -1,3 +1,5 @@
+
+
 **Keir Starmer Apologizes to Epstein’s Victims For Appointing Mandelson**\
 `Prime Minister Keir Starmer of Britain apologized for having picked Peter Mandelson to be his ambassador to the United States despite being aware that he was friends with Jeffrey Epstein, the convicted sex offender.`\
 https://nytimes.com/video/world/europe/100000010692429/keir-starmer-apology-mandelson-epstein.html
