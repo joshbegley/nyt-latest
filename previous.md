@@ -1,3 +1,7 @@
+**Brad Karp Resigns as Paul Weiss Chairman Amid Epstein Fallout**\
+`The decision followed the release of a series of embarrassing emails between Mr. Karp and Jeffrey Epstein.`\
+https://nytimes.com/2026/02/04/business/brad-karp-paul-weiss-resigns-epstein.html
+
 **The Long Goodbye: A California Couple Self-Deports to Mexico**\
 `Enrique Castillejos and his wife, Maria Elena Hernandez, raised a family in California. But they were undocumented immigrants, and after President Trump’s crackdown began, they decided to return to Mexico.`\
 https://nytimes.com/interactive/2026/02/04/us/self-deport-immigration-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7022525/2026/02/04/nba-tax-apron-glossary-cba/
 **The NBA trade deadline has suddenly gotten busy. Here's why teams got active**\
 `Teams are swinging deals 72, 48 hours before the arrival of the trade deadline, scheduled for 3 p.m. ET on Feb. 5.`\
 https://nytimes.com/athletic/7022709/2026/02/04/nba-trade-deadline-front-office-moves-timing/
-
-**New York City Partners with W.H.O. as U.S. Withdraws From Global Effort**\
-`City health authorities are joining a network that counters new pathogens and emerging outbreaks.`\
-https://nytimes.com/2026/02/04/nyregion/nyc-health-world-health-organization.html
 
