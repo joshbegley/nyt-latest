@@ -1,3 +1,11 @@
+**Facing a Democratic Blitz, Susan Collins Scores a Super Bowl Ad in Maine**\
+`The ad is part of a multimillion dollar effort by a Republican-aligned group to help Ms. Collins, who is seen as one of the party’s most vulnerable incumbents.`\
+https://nytimes.com/2026/02/05/us/politics/susan-collins-super-bowl-ad.html
+
+**Ja Morant to stay with Grizzlies after team unable to find trade partner**\
+`While the Grizzlies searched for ways to trade their former franchise player, they elected to keep him past Thursday's trade deadline.`\
+https://nytimes.com/athletic/7024466/2026/02/05/ja-morant-staying-grizzlies-nba-trade-deadline/
+
 **How Do You Write About a Slur?**\
 `President Trump, Elon Musk and Joe Rogan have recently used the “R-word.” Reporting on its use can be uncomfortable.`\
 https://nytimes.com/2026/02/05/insider/reporting-slurs-journalism-best-practices.html
@@ -25,16 +33,4 @@ https://nytimes.com/2026/02/05/learning/whats-going-on-in-this-graph-feb-11-2026
 **49ers, Rams will play NFL's first game in Australia next season**\
 `The league announced the matchup Thursday — one of nine international games to be played in 2026.`\
 https://nytimes.com/athletic/7025002/2026/02/05/49ers-rams-melbourne-australia-game-nfl/
-
-**New Jersey 11th Congressional District Special Primary Election Results**\
-`Get live results and maps from the 2026 New Jersey special primary election.`\
-https://nytimes.com/interactive/2026/02/05/us/elections/results-new-jersey-us-house-11-special.html
-
-**Ivica Zubac traded from Clippers to Pacers, filling Indiana's void at center: Source**\
-`The Clippers will acquire Bennedict Mathurin, Isaiah Jackson and multiple first-round picks in the trade.`\
-https://nytimes.com/athletic/7025072/2026/02/05/clippers-trade-ivica-zubac-bennedict-mathurin-pacers-nba/
-
-**Tarik Skubal awarded $32 million in landmark arbitration victory**\
-`Skubal’s case could serve as a landmark victory for players in a time of greater labor uncertainty.`\
-https://nytimes.com/athletic/7019362/2026/02/05/tarik-skubal-arbitration-32-million-victory/
 

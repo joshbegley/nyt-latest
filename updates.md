@@ -1,3 +1,11 @@
+**Facing a Democratic Blitz, Susan Collins Scores a Super Bowl Ad in Maine**\
+`The ad is part of a multimillion dollar effort by a Republican-aligned group to help Ms. Collins, who is seen as one of the party’s most vulnerable incumbents.`\
+https://nytimes.com/2026/02/05/us/politics/susan-collins-super-bowl-ad.html
+
+**Ja Morant to stay with Grizzlies after team unable to find trade partner**\
+`While the Grizzlies searched for ways to trade their former franchise player, they elected to keep him past Thursday's trade deadline.`\
+https://nytimes.com/athletic/7024466/2026/02/05/ja-morant-staying-grizzlies-nba-trade-deadline/
+
 **How Do You Write About a Slur?**\
 `President Trump, Elon Musk and Joe Rogan have recently used the “R-word.” Reporting on its use can be uncomfortable.`\
 https://nytimes.com/2026/02/05/insider/reporting-slurs-journalism-best-practices.html
