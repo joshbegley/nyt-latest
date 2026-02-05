@@ -1,3 +1,11 @@
+**U.S. and Iran to Hold Talks in Oman on Friday**\
+`The White House confirmed a meeting would take place after days of conflicting reports on the talks’ timing, location and format.`\
+https://nytimes.com/2026/02/04/world/middleeast/iran-us-talks-oman.html
+
+**As NBA trade deadline looms, what do terms like 'apron' actually mean?**\
+`Here’s a quick (but far from complete) guide to what a few of those terms mean and how they impact team building.`\
+https://nytimes.com/athletic/7022525/2026/02/04/nba-tax-apron-glossary-cba/
+
 **The NBA trade deadline has suddenly gotten busy. Here's why teams got active**\
 `Teams are swinging deals 72, 48 hours before the arrival of the trade deadline, scheduled for 3 p.m. ET on Feb. 5.`\
 https://nytimes.com/athletic/7022709/2026/02/04/nba-trade-deadline-front-office-moves-timing/
