@@ -1,3 +1,7 @@
+**Carrick: Man Utd to use schedule gaps in 'different ways' after friendly talks**\
+`United have been exploring options to play mid-season friendlies since the autumn, as revealed by The Athletic in October.`\
+https://nytimes.com/athletic/7024255/2026/02/05/manchester-united-schedule-gaps-friendlies/
+
 **This Giant Phantom Jelly Won’t Eat You. Maybe.**\
 `During a dive off Argentina, scientists documented a rare jellyfish discovered a little over a century ago and seldom seen since, as well as the fish that keep it company.`\
 https://nytimes.com/2026/02/05/science/giant-phantom-jellyfish-sighting-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7024023/2026/02/05/college-basketball-byu-anti-morm
 **What Restrictions Are Democrats Demanding for Immigration Agents?**\
 `Democrats say they will not support a spending bill to keep the Homeland Security Department running without new restrictions on federal agents.`\
 https://nytimes.com/2026/02/05/us/politics/democrats-dhs-funding-immigration.html
-
-**Leading sports investment firm Arctos acquired by private equity giant**\
-`The acquisition gives KKR a range of ownership across virtually every major pro sports league.`\
-https://nytimes.com/athletic/7024061/2026/02/05/arctos-partners-kkr-private-equity-investment/
 
