@@ -1,3 +1,15 @@
+**The 5 issues with college football's calendar, including one with 'a lot of traction'**\
+`Here's a primer on the calendar issues, including momentum for moving the start of the season up a week for most teams.`\
+https://nytimes.com/athletic/7023732/2026/02/05/college-football-calendar-week-0-cfp/
+
+**With Eugenio Suárez aboard, Reds complete their offseason checklist**\
+`The Reds' front office outlined three goals at the beginning of the offseason, and each of those three needs were addressed.`\
+https://nytimes.com/athletic/7022550/2026/02/05/cincinnati-reds-offseason-checklist-complete/
+
+**The biomechnical secrets behind Matheus Cunha's explosive shooting**\
+`Breaking down the four key elements of the Brazilian's exceptional technique`\
+https://nytimes.com/athletic/7017810/2026/02/05/matheus-cunha-manchester-united-shooting-technique/
+
 **Anthony Edwards' heroics lift Timberwolves out of trade rumor-induced fog**\
 `Distracted by the Giannis rumors and saddened by the trade of Mike Conley, the Wolves needed Wednesday's win in Toronto.`\
 https://nytimes.com/athletic/7022136/2026/02/05/anthony-edwards-timberwolves-trade-rumors-toronto/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7021171/2026/02/05/wild-jesper-wallstedt-trade-mail
 **With James Harden gone, Darius Garland gives the Clippers a strong alternative**\
 `With Garland in the fold, the Clippers will be a much different looking team than they were with Harden.`\
 https://nytimes.com/athletic/7023530/2026/02/05/james-harden-darius-garland-clippers-alternative/
-
-**The Seahawks’ last bridge to the Legion of Boom, Jarran Reed remains the defense’s lead voice**\
-`Reed's role has shrunk, but his presence certainly hasn't. "We're all dogs, man," he said. "But, you know, I'm the biggest dog on the yard."`\
-https://nytimes.com/athletic/7022923/2026/02/05/seahawks-super-bowl-60-jarran-reed/
-
-**Goals, and questions, in sight: Where Detroit stands at the Olympic break**\
-`With the NHL pausing play for three weeks and three Red Wings headed to Milan, it's time to take stock of a promising season.`\
-https://nytimes.com/athletic/7016529/2026/02/05/detroit-red-wings-olympic-break-todd-mclellan/
-
-**Why didn't the Rangers get more for Artemi Panarin?**\
-`There's no guarantee waiting to trade Panarin would have led to a better return for the Rangers, who didn't have any leverage.`\
-https://nytimes.com/athletic/7022718/2026/02/05/artemi-panarin-trade-rangers-drury-criticism/
 
