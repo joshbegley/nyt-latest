@@ -1,3 +1,5 @@
+
+
 **FIFPRO Europe set to be given UEFA ExCo voting rights**\
 `The continental division of the world players’ union is expected to be ratified as a voting member of the committee on February 12.`\
 https://nytimes.com/athletic/7024902/2026/02/05/fifpro-europe-uefa-voting-rights/
