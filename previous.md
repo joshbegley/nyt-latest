@@ -1,4 +1,12 @@
-**Carney Stakes Canada’s Auto Future on E.V.s as it Pulls Away from the U.S.**\
+**Games Briefing: Olympic hockey arrives, ready or not**\
+`Welcome to Games Briefing, The Athletic's daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7024899/2026/02/05/hockey-play-start-winter-olympics-games-briefing/
+
+**When Venezuelan Oil Comes to the U.S.**\
+`In Mississippi, neighbors of a Chevron plant worry that an influx of Venezuelan oil could increase pollution. They want the company to pay to move them out.`\
+https://nytimes.com/2026/02/05/climate/when-venezuelan-oil-comes-to-the-us.html
+
+**Carney Stakes Canada’s Auto Future on E.V.s as It Pulls Away From the U.S.**\
 `Prime Minister Mark Carney announced several measures Thursday aimed at making Canada a global leader in electric vehicles and rescuing an industry ravaged by U.S. trade policy.`\
 https://nytimes.com/2026/02/05/world/canada/carney-canada-electric-vehicles-trump-trade.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/02/05/sports/skiing/ski-racing-olympics-ted
 **Suns trade Richards, Hayes-Davis to Bucks for Anthony, Coffey: Source**\
 `Phoenix gets under the luxury tax for the first time since the 2021-22 season.`\
 https://nytimes.com/athletic/7024847/2026/02/05/suns-bucks-trade-nick-richards-cole-anthony/
-
-**USA downs Czech Republic 5-1 as Olympic women's hockey tournament opens: Takeaways**\
-`With Canada's game versus Finland postponed due to a norovirus outbreak, the U.S. and Czechia opened the Olympic women's hockey tournament.`\
-https://nytimes.com/athletic/7024335/2026/02/05/usa-czechia-olympic-womens-hockey-results/
-
-**The Essential Toni Morrison**\
-`Her novels reveal a deeply American desire for freedom and adventure, and one of her work’s great joys lies in always finding something new to discover. Here’s where to start.`\
-https://nytimes.com/article/best-toni-morrison-books.html
 

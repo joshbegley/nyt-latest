@@ -1,3 +1,15 @@
+**Games Briefing: Olympic hockey arrives, ready or not**\
+`Welcome to Games Briefing, The Athletic's daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7024899/2026/02/05/hockey-play-start-winter-olympics-games-briefing/
+
+**When Venezuelan Oil Comes to the U.S.**\
+`In Mississippi, neighbors of a Chevron plant worry that an influx of Venezuelan oil could increase pollution. They want the company to pay to move them out.`\
+https://nytimes.com/2026/02/05/climate/when-venezuelan-oil-comes-to-the-us.html
+
+**Carney Stakes Canada’s Auto Future on E.V.s as It Pulls Away From the U.S.**\
+`Prime Minister Mark Carney announced several measures Thursday aimed at making Canada a global leader in electric vehicles and rescuing an industry ravaged by U.S. trade policy.`\
+https://nytimes.com/2026/02/05/world/canada/carney-canada-electric-vehicles-trump-trade.html
+
 **Carney Stakes Canada’s Auto Future on E.V.s as it Pulls Away from the U.S.**\
 `Prime Minister Mark Carney announced several measures Thursday aimed at making Canada a global leader in electric vehicles and rescuing an industry ravaged by U.S. trade policy.`\
 https://nytimes.com/2026/02/05/world/canada/carney-canada-electric-vehicles-trump-trade.html
