@@ -1,3 +1,23 @@
+**Trump Administration Live Updates: Democrats to Lay Out Demands For Restrictions on Immigration Agents**\
+``\
+https://nytimes.com/live/2026/02/05/us/trump-news
+
+**The moments that made Matthew Stafford an MVP finalist at age 37**\
+`Stafford had a back issue that caused him to miss training camp. Then, in Year 17, he played every single game and put up career numbers. `\
+https://nytimes.com/athletic/7022629/2026/02/05/matthew-stafford-rams-mvp-finalist/
+
+**How to watch figure skating at the 2026 Winter Olympics**\
+`A deep U.S. Figure Skating roster can contend across all disciplines, but the nation won't have an easy path to gold. `\
+https://nytimes.com/athletic/6997207/2026/02/05/figure-skating-winter-olympics-2026-how-to-watch/
+
+**Finland-Canada Olympic women's hockey game postponed after norovirus breakout**\
+`MILAN – The women’s Olympic hockey game between Canada and Finland scheduled for Thursday night has been postponed after members of Team Finland contracted norovirus.`\
+https://nytimes.com/athletic/7023859/2026/02/05/winter-olympics-women-hockey-finland-canada-postponed-sick-roster-norovirus/
+
+**Starmer Faces Storm of Criticism Over Ties Between Ex-Ambassador and Epstein**\
+`Newly released documents detailed connections between the convicted sex offender Jeffrey Epstein and Peter Mandelson, who was picked to be the U.S. envoy by the British prime minister, Keir Starmer.`\
+https://nytimes.com/2026/02/05/world/europe/epstein-files-mandelson-starmer-uk.html
+
 **The 5 issues with college football's calendar, including one with 'a lot of traction'**\
 `Here's a primer on the calendar issues, including momentum for moving the start of the season up a week for most teams.`\
 https://nytimes.com/athletic/7023732/2026/02/05/college-football-calendar-week-0-cfp/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7022136/2026/02/05/anthony-edwards-timberwolves-tra
 **Breaking down the Yankees' key position battles heading into spring training**\
 `Much of the roster appears set. However, the bench and — to a greater extent — the bullpen remain unsettled.`\
 https://nytimes.com/athletic/7022546/2026/02/05/yankees-position-battles-spring-training/
-
-**After trading Bjugstad, what's next for the Blues after Olympic freeze?**\
-`St. Louis sent Nick Bjugstad to the Devils for a conditional fourth-round pick and AHL prospect Thomas Bordeleau. What — or who — is next?`\
-https://nytimes.com/athletic/7021684/2026/02/05/blues-bjugstad-trade-deadline-olympic-freeze/
-
-**Super Bowl 60 best bets: Expect a low-scoring game with lots of Patriots passing**\
-`To cap off his winning NFL season, Austin Mock takes a stab at some player prop bets for Super Bowl 60.`\
-https://nytimes.com/athletic/7021728/2026/02/05/super-bowl-best-bets-model-projections-stevenson/
-
-**College softball preseason top 25: Texas Tech edges rival Texas for the top spot**\
-`The Red Raiders loaded up with a star-studded transfer portal class to complement All-American pitcher NiJaree Canady.`\
-https://nytimes.com/athletic/7019000/2026/02/05/college-softball-preseason-top-25-rankings-2/
-
-**Could Wild trade Wallstedt for Trocheck? Or Thomas? Hughes? Hischier? Tkachuk? Ask Russo and Smith**\
-`In the first installment of Ask Russo and Smith, we tackle your trade questions — many of them involving the Wild's young goaltender.`\
-https://nytimes.com/athletic/7021171/2026/02/05/wild-jesper-wallstedt-trade-mailbag/
-
-**With James Harden gone, Darius Garland gives the Clippers a strong alternative**\
-`With Garland in the fold, the Clippers will be a much different looking team than they were with Harden.`\
-https://nytimes.com/athletic/7023530/2026/02/05/james-harden-darius-garland-clippers-alternative/
 
