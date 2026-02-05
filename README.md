@@ -1,3 +1,7 @@
+**What we learned from Chris Drury's comments, plus an inside look at the Panarin trade**\
+`The Rangers GM made his first public comments since training camp after trading Artemi Panarin to the Kings.`\
+https://nytimes.com/athletic/7022854/2026/02/04/rangers-chris-drury-gm-comments-panarin-trade/
+
 **Padres, Miguel Andujar agree to 1-year deal, add proven bat against LHP: Source**\
 `Andujar makes for a logical fit on a Padres team that produced only a .690 OPS last season against lefties.`\
 https://nytimes.com/athletic/7023077/2026/02/04/padres-miguel-andujar-signing-source/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7022783/2026/02/04/desmond-williams-washington-qb-t
 **Savannah Guthrie Addresses Mother’s Abductor: ‘We Are Ready to Talk’**\
 `Ms. Guthrie, the television anchor, and her siblings released a video on Wednesday night asking for proof that their mother, Nancy, is alive.`\
 https://nytimes.com/2026/02/04/us/savannah-guthrie-plea-statement.html
-
-**Brad Karp Resigns as Paul Weiss Chairman Amid Epstein Fallout**\
-`The decision followed the release of a series of embarrassing emails between Mr. Karp and Jeffrey Epstein.`\
-https://nytimes.com/2026/02/04/business/brad-karp-paul-weiss-resigns-epstein.html
 
