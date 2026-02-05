@@ -1,3 +1,11 @@
+**Why the Brooklyn Nets waived Cam Thomas months after signing him to a new deal**\
+`The Nets tried but could not find a taker for Thomas, a volume scorer who has averaged 21.4 points over the past three seasons.`\
+https://nytimes.com/athletic/7025545/2026/02/05/nba-cam-thomas-nets-waived-free-agent/
+
+**3 Killed as Vehicle Crashes Into Grocery Store in Los Angeles**\
+`Four other people were taken to a hospital, officials said. The severity of their injuries was not immediately known.`\
+https://nytimes.com/2026/02/05/us/crash-la-grocery-store-deaths.html
+
 **Senators Clash Over Immigration Enforcement, Risking a D.H.S. Shutdown**\
 `With eight days until a deadline to keep the Department of Homeland Security running, bipartisan talks on reining in federal immigration agents’ tactics appeared to sputter before they had even gotten underway.`\
 https://nytimes.com/2026/02/05/us/politics/senate-immigration-enforcement-dhs-shutdown.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/02/05/technology/amazon-200-billion-ai.html
 **Investigators Say Doorbell Camera Was Disconnected Before Nancy Guthrie’s Kidnapping**\
 `More details and a timeline were released on the kidnapping of Nancy Guthrie, the mother of the NBC anchor Savannah Guthrie.`\
 https://nytimes.com/video/us/100000010692836/nancy-guthrie-missing-savannah-mother.html
-
-**Savannah Guthrie’s Video Shows a Rare and Anguished Reality**\
-`Morning show hosts have shown a vulnerable, candid side to their audiences before, but not like this.`\
-https://nytimes.com/2026/02/05/arts/television/savannah-guthrie-mother-video.html
-
-**WADA chief 'uncomfortable' with Kamila Valieva's ex-coach at Olympics**\
-`Eteri Tutberidze is once again inside the Winter Olympics bubble, a reality that isn't sitting well with WADA president Witold Bańka.`\
-https://nytimes.com/athletic/7025132/2026/02/05/wada-president-russian-skater-valieva-tutberidze-olympics/
 
