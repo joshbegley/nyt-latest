@@ -1,3 +1,7 @@
+**Drake Maye a full participant in Patriots practice on Wednesday**\
+`The 23-year-old Maye was a full participant in practice Wednesday. He is expected to play in Sunday's Super Bowl against the Seahawks.`\
+https://nytimes.com/athletic/7022888/2026/02/04/drake-maye-patriots-injury-status-robert-spillane-super-bowl/
+
 **China’s Xi Presses Trump on Taiwan in Phone Call**\
 `Both leaders gave versions of what they discussed, but the Chinese president’s take made clear the issue of the island was front and center.`\
 https://nytimes.com/2026/02/04/us/politics/xi-phone-call-taiwan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7022563/2026/02/04/mark-mcmorris-crash-snowboard-ol
 **Eagles OL coach Jeff Stoutland, a Philly mainstay, is leaving the organization**\
 `Stoutland, who helped guide one of the NFL's best lines, called his 13 years with the Eagles 'the great privilege of my coaching career.'`\
 https://nytimes.com/athletic/7022673/2026/02/04/eagles-ol-coach-jeff-stoutland-leaving/
-
-**Anthony Davis deal makes one thing clear — the Mavericks are Cooper Flagg's team**\
-`Dallas may take a step back in the present. But moving Davis means the future is all about the 19-year-old, as it should be.`\
-https://nytimes.com/athletic/7022423/2026/02/04/anthony-davis-trade-cooper-flagg-mavericks/
 

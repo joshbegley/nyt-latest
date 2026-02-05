@@ -1,3 +1,7 @@
+**Drake Maye a full participant in Patriots practice on Wednesday**\
+`The 23-year-old Maye was a full participant in practice Wednesday. He is expected to play in Sunday's Super Bowl against the Seahawks.`\
+https://nytimes.com/athletic/7022888/2026/02/04/drake-maye-patriots-injury-status-robert-spillane-super-bowl/
+
 **China’s Xi Presses Trump on Taiwan in Phone Call**\
 `Both leaders gave versions of what they discussed, but the Chinese president’s take made clear the issue of the island was front and center.`\
 https://nytimes.com/2026/02/04/us/politics/xi-phone-call-taiwan.html

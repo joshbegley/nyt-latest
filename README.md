@@ -1,3 +1,7 @@
+**Tigers, Framber Valdez agree to three-year, $115 million deal: Sources**\
+`At his best, Valdez is an ace, a man nicknamed "La Grasa" for the designer clothes and colognes he wears between starts.`\
+https://nytimes.com/athletic/6838675/2026/02/04/mlb-framber-valdez-free-agency-tigers/
+
 **Drake Maye a full participant in Patriots practice on Wednesday**\
 `The 23-year-old Maye was a full participant in practice Wednesday. He is expected to play in Sunday's Super Bowl against the Seahawks.`\
 https://nytimes.com/athletic/7022888/2026/02/04/drake-maye-patriots-injury-status-robert-spillane-super-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/04/nyregion/nyc-health-world-health-organization.htm
 **Canadian snowboarder leaves on stretcher after Olympic training injury**\
 `The three-time Olympic snowboarding medalist was injured during big air training in Livigno, Italy.`\
 https://nytimes.com/athletic/7022563/2026/02/04/mark-mcmorris-crash-snowboard-olympics-training/
-
-**Eagles OL coach Jeff Stoutland, a Philly mainstay, is leaving the organization**\
-`Stoutland, who helped guide one of the NFL's best lines, called his 13 years with the Eagles 'the great privilege of my coaching career.'`\
-https://nytimes.com/athletic/7022673/2026/02/04/eagles-ol-coach-jeff-stoutland-leaving/
 
