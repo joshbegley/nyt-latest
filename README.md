@@ -34,7 +34,7 @@ https://nytimes.com/2026/02/05/nyregion/hochul-democratic-convention-delgado.htm
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/02/05/crosswords/spelling-bee-forum.html
 
-**Thousands Displaced for a Military Operation That Pakistan Says Won’t Happen**\
+**Thousands Displaced for a Military Operation That Pakistan Says It Didn’t Order**\
 `Some 60,000 evacuees have been left in limbo by confusion and political disputes as Pakistan battles insurgents on its border with Afghanistan.`\
 https://nytimes.com/2026/02/05/world/asia/pakistan-military-operation-displaced-people.html
 

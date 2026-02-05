@@ -1,3 +1,7 @@
+**Russia-Ukraine Peace Talks Stretch Into a Second Day**\
+`Little has been made public so far, but negotiators were expected to talk about the fate of Ukrainian territory in the east and security guarantees for Ukraine.`\
+https://nytimes.com/2026/02/05/world/europe/russia-ukraine-peace-talks.html
+
 **Warriors relieved, hopeful as they make a deal while keeping Giannis door open**\
 `The Warriors finally moved on from Jonathan Kuminga, adding a measure of relief to their continued hopes of acquiring the biggest prize.`\
 https://nytimes.com/athletic/7023464/2026/02/05/warriors-trades-giannis-deal/
