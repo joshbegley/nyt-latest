@@ -1,3 +1,7 @@
+**New York City Partners with W.H.O. as U.S. Withdraws From Global Effort**\
+`City health authorities are joining a network that counters new pathogens and emerging outbreaks.`\
+https://nytimes.com/2026/02/04/nyregion/nyc-health-world-health-organization.html
+
 **Canadian snowboarder leaves on stretcher after Olympic training injury**\
 `The three-time Olympic snowboarding medalist was injured during big air training in Livigno, Italy.`\
 https://nytimes.com/athletic/7022563/2026/02/04/mark-mcmorris-crash-snowboard-olympics-training/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/04/us/politics/newsom-shapiro-democrats-2028-memoirs
 **NFL executive Troy Vincent says tush push is 'difficult' to officiate**\
 `NFL executives are weighing the viability of the tush push due to prior controversial calls, but players are less concerned about the play.`\
 https://nytimes.com/athletic/7022445/2026/02/04/tush-push-troy-vincent-nfl-officiating/
-
-**Senators Accuse Equifax of ‘Price-Gouging’ Medicaid Programs**\
-`The company’s data will be essential for many states to comply with new work requirements for the health insurance program that take effect next year.`\
-https://nytimes.com/2026/02/04/health/equifax-medicaid-states-senators.html
 

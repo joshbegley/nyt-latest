@@ -1,3 +1,7 @@
+**New York City Partners with W.H.O. as U.S. Withdraws From Global Effort**\
+`City health authorities are joining a network that counters new pathogens and emerging outbreaks.`\
+https://nytimes.com/2026/02/04/nyregion/nyc-health-world-health-organization.html
+
 **Canadian snowboarder leaves on stretcher after Olympic training injury**\
 `The three-time Olympic snowboarding medalist was injured during big air training in Livigno, Italy.`\
 https://nytimes.com/athletic/7022563/2026/02/04/mark-mcmorris-crash-snowboard-olympics-training/
