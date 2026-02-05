@@ -1,3 +1,27 @@
+**How Do You Write About a Slur?**\
+`President Trump, Elon Musk and Joe Rogan have recently used the “R-word.” Reporting on its use can be uncomfortable.`\
+https://nytimes.com/2026/02/05/insider/reporting-slurs-journalism-best-practices.html
+
+**Ivica Zubac trade grades: Pacers get their big man; what's up with Clippers?**\
+`The Pacers give up potentially some major draft capital, but this fills a need they weren't going to find a better solution to.`\
+https://nytimes.com/athletic/7025058/2026/02/05/nba-trade-grades-clippers-pacers-ivica-zubac/
+
+**Every deal made during the late-breaking 2026 NBA trade season**\
+`From the massive to the mundane, a look at the players, picks and money on the move.`\
+https://nytimes.com/athletic/6954587/2026/02/05/nba-trade-wrapup-2026-anthony-davis-kuminga-harden/
+
+**Maid in Hollywood**\
+`The dazzling Randolph sisters were far bigger than the roles they were relegated to. Watching them now offers important lessons — and delightful entertainment.`\
+https://nytimes.com/2026/02/05/opinion/lillian-amanda-randolph-hollywood-black.html
+
+**What’s Going On in This Picture? | Feb. 9, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2026/02/05/learning/whats-going-on-in-this-picture-feb-9-2026.html
+
+**What’s Going On in This Graph? | Feb. 11, 2026**\
+`Are W.N.B.A. players being compensated fairly?`\
+https://nytimes.com/2026/02/05/learning/whats-going-on-in-this-graph-feb-11-2026.html
+
 **49ers, Rams will play NFL's first game in Australia next season**\
 `The league announced the matchup Thursday — one of nine international games to be played in 2026.`\
 https://nytimes.com/athletic/7025002/2026/02/05/49ers-rams-melbourne-australia-game-nfl/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7025072/2026/02/05/clippers-trade-ivica-zubac-benne
 **Tarik Skubal awarded $32 million in landmark arbitration victory**\
 `Skubal’s case could serve as a landmark victory for players in a time of greater labor uncertainty.`\
 https://nytimes.com/athletic/7019362/2026/02/05/tarik-skubal-arbitration-32-million-victory/
-
-**After Failed Rebrand, Philadelphia Museum of Art Returns to Its Old Name**\
-`After an unpopular name change, and its firing of the director responsible for it, the museum is working to rehabilitate its image.`\
-https://nytimes.com/2026/02/05/arts/design/philadelphia-art-museum-rebrand-sasha-suda.html
-
-**Why Timberwolves' Giannis Antetokounmpo pursuit fizzled, and the pivot to Ayo Dosunmu**\
-`After exploring a potential blockbuster for Giannis Antetokounmpo, the Timberwolves instead found a way to bolster their bench. `\
-https://nytimes.com/athletic/7024347/2026/02/05/giannis-timberwolves-ayo-dosunmu-trade/
-
-**Ted Berger, Indefatigable Patron of Artists and Schools, Dies at 85**\
-`As head of the New York Foundation for the Arts, he oversaw almost $23 million in grants and helped bring arts education to struggling schools.`\
-https://nytimes.com/2026/02/05/arts/ted-berger-dead.html
-
-**Leicester were Premier League champions a decade ago. Now they are scrambling to avoid the third tier**\
-`The six-point deduction imposed on the Championship club for PSR breach leaves them outside the relegation zone on goal difference alone`\
-https://nytimes.com/athletic/6985948/2026/02/05/leicester-city-points-deduction-top-relegation/
-
-**Seahawks' Nick Emmanwori to play in Super Bowl despite ankle injury**\
-`Emmanwori suffered a low-ankle sprain late in Wednesday's practice but does not expect to be limited on Sunday.`\
-https://nytimes.com/athletic/7024987/2026/02/05/nick-emmanwori-injury-seahawks-super-bowl/
-
-**White House Offers Shifting Story on Gabbard’s Presence at Georgia Raid**\
-`President Trump said Thursday that Attorney General Pam Bondi had directed Tulsi Gabbard to be present for an operation at an election center. It was the administration’s fourth explanation for her presence.`\
-https://nytimes.com/2026/02/05/us/politics/trump-gabbard-georgia-election-raid.html
 
