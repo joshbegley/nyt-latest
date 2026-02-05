@@ -1,3 +1,11 @@
+**A Top Lawyer’s Fall Shows Growing Fallout From Epstein Files**\
+`Brad Karp’s resignation as chairman of the law firm Paul Weiss underscores a further reflection in the corporate world over the latest revelations.`\
+https://nytimes.com/2026/02/05/business/dealbook/karp-paul-weiss-epstein.html
+
+**Finland-Canada Olympic women's hockey game postponed after norovirus breakout**\
+`MILAN — A women’s Olympic hockey game between Canada and Finland, the debut for both teams at the Milan Cortina Games, was postponed Thursday after members of the Finland team contracted norovirus.`\
+https://nytimes.com/athletic/7023859/2026/02/05/winter-olympics-women-hockey-finland-canada-postponed-sick-roster-norovirus/
+
 **Why a quiet NBA trade deadline may be the best thing for the Rockets**\
 `A quiet approach to the NBA trade deadline may be the smartest way for a Rockets team looking at building its future.`\
 https://nytimes.com/athletic/7023608/2026/02/05/rockets-nba-trade-deadline-quiet/
