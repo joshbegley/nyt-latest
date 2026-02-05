@@ -1,3 +1,7 @@
+**Warriors trading Jonathan Kuminga, Buddy Hield to Hawks for Kristaps Porziņģis: Sources**\
+`Kuminga finally moves on after his relationship with Steve Kerr and the Warriors’ front office had largely soured.`\
+https://nytimes.com/athletic/7023218/2026/02/04/warriors-hawks-nba-trade-jonathan-kuminga-buddy-hield-kristaps-porzingis/
+
 **Blackhawks stumble into Olympic break: 10 thoughts**\
 `The Blackhawks fell in a 4-0 shutout to the suddenly surging Blue Jackets in their final game before the Olympics.`\
 https://nytimes.com/athletic/7022670/2026/02/04/blackhawks-olympic-break-reset-bedard-blue-jackets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7022735/2026/02/04/luka-garza-michigan-state-rim-ta
 **NCAA denies Ole Miss' appeal for 6th year for QB Trinidad Chambliss**\
 `Decision puts the quarterback’s future in the hands of a Mississippi court.`\
 https://nytimes.com/athletic/7023047/2026/02/04/trinidad-chambliss-waiver-appeal-denied-ncaa-ole-miss/
-
-**Red Sox add defense with Isiah Kiner-Falefa but still in need of offensive boost**\
-`Kiner-Falefa doesn't fill the need for more power in the lineup but does bring Gold Glove-level defense to the infield.`\
-https://nytimes.com/athletic/7022957/2026/02/04/boston-red-sox-isiah-kiner-falefa-signing/
 

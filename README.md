@@ -1,3 +1,7 @@
+**'Brutal hit': Bruins furious about minor penalty for an elbow to McAvoy's head**\
+`"With Charlie, you never want to see that. … He's our best D-man and a huge part of this team. We were worried, for sure."`\
+https://nytimes.com/athletic/7023195/2026/02/04/bruins-charlie-mcavoy-elbow-to-head-panthers/
+
 **Warriors trading Jonathan Kuminga, Buddy Hield to Hawks for Kristaps Porziņģis: Sources**\
 `Kuminga finally moves on after his relationship with Steve Kerr and the Warriors’ front office had largely soured.`\
 https://nytimes.com/athletic/7023218/2026/02/04/warriors-hawks-nba-trade-jonathan-kuminga-buddy-hield-kristaps-porzingis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7023077/2026/02/04/padres-miguel-andujar-signing-so
 **Luka Garza has a 'conspiracy theory' about Michigan State's tougher rim**\
 `The former Iowa center says he thinks the Spartans have one tight rim that moves around.`\
 https://nytimes.com/athletic/7022735/2026/02/04/luka-garza-michigan-state-rim-tampering-allegations/
-
-**NCAA denies Ole Miss' appeal for 6th year for QB Trinidad Chambliss**\
-`Decision puts the quarterback’s future in the hands of a Mississippi court.`\
-https://nytimes.com/athletic/7023047/2026/02/04/trinidad-chambliss-waiver-appeal-denied-ncaa-ole-miss/
 

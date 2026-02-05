@@ -1,3 +1,7 @@
+**Warriors trading Jonathan Kuminga, Buddy Hield to Hawks for Kristaps Porziņģis: Sources**\
+`Kuminga finally moves on after his relationship with Steve Kerr and the Warriors’ front office had largely soured.`\
+https://nytimes.com/athletic/7023218/2026/02/04/warriors-hawks-nba-trade-jonathan-kuminga-buddy-hield-kristaps-porzingis/
+
 **Blackhawks stumble into Olympic break: 10 thoughts**\
 `The Blackhawks fell in a 4-0 shutout to the suddenly surging Blue Jackets in their final game before the Olympics.`\
 https://nytimes.com/athletic/7022670/2026/02/04/blackhawks-olympic-break-reset-bedard-blue-jackets/
