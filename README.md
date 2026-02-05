@@ -1,3 +1,7 @@
+**Brayden Point out for Team Canada at Olympics, will be replaced by Seth Jarvis**\
+`Point was ruled out of the Olympics because of an injury.`\
+https://nytimes.com/athletic/7025440/2026/02/05/brayden-point-seth-jarvis-canada-olympics-roster/
+
 **Police details of Gavin McKenna's arrest outlined in criminal complaint**\
 `A probable cause affidavit alleges that McKenna punched a man twice after "an exchange of words."`\
 https://nytimes.com/athletic/7025219/2026/02/05/gavin-mckenna-arrest-police-details-criminal-complaint/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/05/t-magazine/chocolate-without-cacao-beans.html
 **Federal Judge Blocks Texas Law Targeting Critics of Fossil Fuels**\
 `The court ruled that it was unconstitutional to bar state agencies from investing with firms that the state had accused of boycotting the oil industry.`\
 https://nytimes.com/2026/02/05/climate/texas-esg-lawsuit.html
-
-**Crypto Takes a Deep Slide Despite Trump’s Support**\
-`The price of Bitcoin is now lower than when President Trump was elected in 2024, raising concerns of a new ‘crypto winter’ in the industry.`\
-https://nytimes.com/2026/02/05/technology/bitcoin-price-drop-crypto-market.html
 

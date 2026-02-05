@@ -1,3 +1,7 @@
+**Police details of Gavin McKenna's arrest outlined in criminal complaint**\
+`A probable cause affidavit alleges that McKenna punched a man twice after "an exchange of words."`\
+https://nytimes.com/athletic/7025219/2026/02/05/gavin-mckenna-arrest-police-details-criminal-complaint/
+
 **With Kawhi Leonard still standing, Clippers pivot to what's next**\
 `The Clippers left the trade deadline with Kawhi Leonard still in place and a clearer picture of their future. `\
 https://nytimes.com/athletic/7025266/2026/02/05/kawhi-leonard-clippers-trade-deadline/
