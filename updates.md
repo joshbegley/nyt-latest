@@ -1,3 +1,19 @@
+**The Best Ski Racers Often Don’t Win Gold**\
+`Unlike many Olympic sports, the best Alpine skiers often don’t win gold. Two-time Olympic champion Ted Ligety explains why the sport is so unpredictable.`\
+https://nytimes.com/interactive/2026/02/05/sports/skiing/ski-racing-olympics-ted-ligety.html
+
+**Suns trade Richards, Hayes-Davis to Bucks for Anthony, Coffey: Source**\
+`Phoenix gets under the luxury tax for the first time since the 2021-22 season.`\
+https://nytimes.com/athletic/7024847/2026/02/05/suns-bucks-trade-nick-richards-cole-anthony/
+
+**USA downs Czech Republic 5-1 as Olympic women's hockey tournament opens: Takeaways**\
+`The Olympic women's hockey tournament began Thursday with the U.S. easily defeating Team Czechia.`\
+https://nytimes.com/athletic/7024335/2026/02/05/usa-czechia-olympic-womens-hockey-results/
+
+**The Essential Toni Morrison**\
+`Her novels reveal a deeply American desire for freedom and adventure, and one of her work’s great joys lies in always finding something new to discover. Here’s where to start.`\
+https://nytimes.com/article/best-toni-morrison-books.html
+
 **‘Sirat’ Review: A Shocker in the Desert**\
 `The Galician director Oliver Laxe delivers a mesmerizing thriller about a man’s search for his lost daughter, set amid raves in the punishing Sahara.`\
 https://nytimes.com/2026/02/05/movies/sirat-review-oliver-laxe.html
