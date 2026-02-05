@@ -1,9 +1,13 @@
-**Giannis makes emphatic statement on social media**\
+**The Flour Tortilla Revolution is Here**\
+`And for some reason the best ones are in Brooklyn. Apologies to the other boroughs.`\
+https://nytimes.com/2026/02/05/dining/the-flour-tortilla-revolution-is-here.html
+
+**Giannis posts message after Bucks elect not to trade him: 'Legends don't chase'**\
 `The Bucks' superstar made his feelings clear after the team chose to keep him past the 2026 NBA trade deadline.`\
 https://nytimes.com/athletic/7025354/2026/02/05/giannis-antetokounmpo-reaction-bucks-social-media/
 
 **Villa's Watkins and Onana expected to be available for Bournemouth game**\
-`Both players featured in Unai Emery’s session on Thursday, having missed Villa’s 1-0 home defeat to Brentford the previous week.`\
+`Both players featured in Unai Emery’s training session on Thursday, having missed Villa’s 1-0 home defeat to Brentford the previous week.`\
 https://nytimes.com/athletic/7025276/2026/02/05/aston-villa-watkins-onana-injury-update/
 
 **As NBA trade deadline passes, Knicks ready for championship push**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/05/travel/winter-olympics-games-quiz.html
 **At Winter Olympics, Italy's remarkable mixed doubles curling winning streak ends**\
 `Italy's team lost for the first time at a major international event after perfect runs at the 2022 Olympics and 2025 world championships.`\
 https://nytimes.com/athletic/7024993/2026/02/05/winter-olympics-italy-mixed-doubles-curling-winning-streak/
-
-**How to watch 76ers vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7025265/2026/02/05/76ers-vs-lakers-stream-how-to-watch-feb-5/
 
