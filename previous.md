@@ -1,9 +1,17 @@
+**How to Survive a Fall Through the Ice**\
+`The cardinal rule? Don’t panic. You actually have more time than you think to self-extricate or wait for help to arrive, an expert said.`\
+https://nytimes.com/2026/02/05/us/fall-through-ice-frozen-water-rescue.html
+
+**The Windup: Framber Valdez's big payday**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7024576/2026/02/05/framber-valdez-contract-the-windup/
+
 **Leicester get six-point deduction for breaching PSR**\
-`Leicester City have been given an immediate six-point deduction for breaching profit and sustainability rules (PSR).`\
+`The sanction was handed down by an independent commission and relates to the three-year period ending with the 2023-24 season.`\
 https://nytimes.com/athletic/7024569/2026/02/05/leicester-points-deduction-psr/
 
 **The Bill Belichick fiasco 'wounded' the Pro Football Hall of Fame. Now what?**\
-`Could the Bill Belichick Blunder tarnish Canton’s hallowed halls? Or will this be a momentarily blip that is rectified with rule changes?`\
+`Could the Bill Belichick Blunder tarnish Canton’s hallowed halls? Or will this be a momentary blip that is rectified with rule changes?`\
 https://nytimes.com/athletic/7024083/2026/02/05/bill-belichick-hall-of-fame-reputation-damage-nfl/
 
 **Tom Stoppard Is Gone. In ‘Arcadia,’ His Wit Still Sparkles.**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7024553/2026/02/05/wizards-vs-pistons-stream-how-to
 **How to watch Predators vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7024551/2026/02/05/predators-vs-capitals-stream-how-to-watch-feb-5/
-
-**How to watch Penguins vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Penguins play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7024547/2026/02/05/penguins-vs-sabres-stream-how-to-watch-feb-5/
-
-**How to watch Nets vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7024545/2026/02/05/nets-vs-magic-stream-how-to-watch-feb-5/
 
