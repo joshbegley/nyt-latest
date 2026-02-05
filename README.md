@@ -1,13 +1,13 @@
-**Bitcoin Slides as Industry Frets About Another ‘Crypto Winter’**\
-`Despite strong support from the White House, the price of Bitcoin is now lower than when President Trump was elected in 2024.`\
+**Crypto Takes a Deep Slide Despite Trump’s Support**\
+`Despite strong backing from the White House, the price of Bitcoin is now lower than when President Trump was elected in 2024.`\
 https://nytimes.com/2026/02/05/technology/bitcoin-price-drop-crypto-market.html
 
 **The Flour Tortilla Revolution is Here**\
 `And for some reason the best ones are in Brooklyn. Apologies to the other boroughs.`\
 https://nytimes.com/2026/02/05/dining/the-flour-tortilla-revolution-is-here.html
 
-**Giannis posts message after Bucks elect not to trade him: 'Legends don't chase'**\
-`The Bucks' superstar made his feelings clear after the team chose to keep him past the 2026 NBA trade deadline.`\
+**Giannis after Bucks elect not to trade him: 'Legends don't chase'**\
+`The Bucks superstar made his feelings clear after the team chose to keep him past the 2026 NBA trade deadline.`\
 https://nytimes.com/athletic/7025354/2026/02/05/giannis-antetokounmpo-reaction-bucks-social-media/
 
 **Villa's Watkins and Onana expected to be available for Bournemouth game**\
