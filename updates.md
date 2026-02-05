@@ -1,3 +1,7 @@
+**He Built a Server to Protect Indigenous Health Data**\
+`Joseph Yracheta was in charge of a repository that compiled and protected tribal health data. Then its funding was cut.`\
+https://nytimes.com/2026/02/05/science/lost-science-yracheta-indigenous.html
+
 **How Epstein Used Luxury Goods to Curry Favor**\
 `Goyard wallets, Apple Watches and cashmere sweaters were just some of the items sent to friends and associates.`\
 https://nytimes.com/2026/02/05/style/esptein-files-luxury-brands-gifts-fashion.html

@@ -1,3 +1,7 @@
+**He Built a Server to Protect Indigenous Health Data**\
+`Joseph Yracheta was in charge of a repository that compiled and protected tribal health data. Then its funding was cut.`\
+https://nytimes.com/2026/02/05/science/lost-science-yracheta-indigenous.html
+
 **How Epstein Used Luxury Goods to Curry Favor**\
 `Goyard wallets, Apple Watches and cashmere sweaters were just some of the items sent to friends and associates.`\
 https://nytimes.com/2026/02/05/style/esptein-files-luxury-brands-gifts-fashion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7023830/2026/02/05/twins-2026-roster-projection-spr
 **Ukraine Peace Talks End With Little Progress**\
 `Russian, Ukrainian and American officials ended a second day of peace talks in Abu Dhabi after only a few hours, with little to show for the discussions other than a promise to exchange prisoners of war.`\
 https://nytimes.com/video/world/europe/100000010691631/russia-ukraine-talks.html
-
-**Kit man banned for homophobic comment towards referee**\
-`A out a six-match stadium suspension was handed out after the comment in the League One match between Reading and Huddersfield.`\
-https://nytimes.com/athletic/7023922/2026/02/05/reading-kit-man-ban-homophobic/
 
