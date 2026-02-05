@@ -1,3 +1,31 @@
+**Which states and colleges have produced Super Bowl talent for Seahawks and Patriots**\
+`Alabama and LSU lead the pack among colleges, while Texas, California and Florida are the states with the most Super Bowl players.`\
+https://nytimes.com/athletic/7019115/2026/02/05/super-bowl-colleges-states-patriots-seahawks/
+
+**Best in Show?**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2026/02/05/learning/best-in-show.html
+
+**When the Cold Turns Deadly, What Should New York City Do?**\
+`Seventeen New Yorkers have died after exposure to frigid temperatures since Jan. 24, raising questions about how Mayor Zohran Mamdani has managed the crisis.`\
+https://nytimes.com/2026/02/05/nyregion/nyc-cold-homeless-deaths.html
+
+**Primary for New Jersey House Seat Is First Race of Pivotal Midterms**\
+`Eleven candidates are running in a special primary election on Thursday to fill Gov. Mikie Sherrill’s former seat. They include a former member of Congress and the former lieutenant governor.`\
+https://nytimes.com/2026/02/05/nyregion/new-jersey-special-election-congress.html
+
+**Can Arsenal win the quadruple? Gunners' odds of making history this season assessed**\
+`Arsenal are still in with a chance to make history, with four trophies still up for grabs.`\
+https://nytimes.com/athletic/7020905/2026/02/05/arsenal-quadruple-odds-gunners-favourites-in-all-four-competitions-and-have-5-chance-of-making-history/
+
+**After Taking on Trump and Backing Mamdani, Hochul Sees Her Star Rise**\
+`Gov. Kathy Hochul has warded off most serious challenges to her re-election, but still faces a primary contest against her lieutenant governor, Antonio Delgado.`\
+https://nytimes.com/2026/02/05/nyregion/hochul-democratic-convention-delgado.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/05/crosswords/spelling-bee-forum.html
+
 **Thousands Displaced for a Military Operation That Pakistan Says Won’t Happen**\
 `Some 60,000 evacuees have been left in limbo by confusion and political disputes as Pakistan battles insurgents on its  border with Afghanistan.`\
 https://nytimes.com/2026/02/05/world/asia/pakistan-military-operation-displaced-people.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7020713/2026/02/05/newcastle-carabao-cup-manchester
 **Word of the Day: commiserate**\
 `This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/05/learning/word-of-the-day-commiserate.html
-
-**Boldy's quick hat trick helps send Wild streaking into Olympic break: Takeaways**\
-`Boldy's three goals came in the first 12:58, the fastest hat trick to start a game in Wild history.`\
-https://nytimes.com/athletic/7023280/2026/02/05/matt-boldy-hat-trick-wild-predators-takeaways/
-
-**Manchester City vs Arsenal promises to be a Carabao Cup final filled with intriguing subplots**\
-`A trophy is at stake, but there may also be significant implications for the title race when the two teams meet at Wembley in March`\
-https://nytimes.com/athletic/7022597/2026/02/05/manchester-city-arsenal-carabao-cup-final/
-
-**'We both want a championship': Donovan Mitchell opens up about the Cavs' bet on James Harden**\
-`Cleveland believes trading for Harden can change its season. Harden's partnership with Mitchell will decide if it actually does. `\
-https://nytimes.com/athletic/7023034/2026/02/05/james-harden-donovan-mitchell-cavaliers-trade/
-
-**The New York Times in Print for Thursday, Feb. 5, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/02/05/todays-new-york-times
-
-**It’s Not the Cartels That Worry Claudia Sheinbaum**\
-`Trump wants total war on Mexico’s cartels. Sheinbaum won’t give it to him.`\
-https://nytimes.com/2026/02/05/opinion/mexico-sheinbaum-trump-cartels.html
-
-**Knicks trading Guerschon Yabusele to Bulls for Dalen Terry: Sources**\
-`Yabusele was the Knicks' biggest free agent signing this summer.`\
-https://nytimes.com/athletic/7023383/2026/02/05/guerschon-yabusele-trade-knicks-bulls/
-
-**Tate McRae responds to backlash over Team USA ad: 'I'm Canada down'**\
-`McRae wrote the message and posted a photo of herself as a child holding a mini Canadian flag on Instagram. `\
-https://nytimes.com/athletic/7022987/2026/02/05/tate-mcrae-olympics-backlash-promoting-team-usa/
 
