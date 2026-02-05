@@ -1,3 +1,7 @@
+**Framber Valdez's signing could be the statement move the Tigers needed**\
+`Signing Valdez marks the biggest free-agent deal of Scott Harris' tenure as Tigers president of baseball operations.`\
+https://nytimes.com/athletic/7023082/2026/02/04/detroit-tigers-framber-valdez-signing-impact/
+
 **NASCAR Clash takeaways: Ryan Preece grabs first NASCAR win at Bowman Gray Stadium**\
 `Preece prevailed in a race where the best drivers were going all out in a physical, no-holds-barred way.`\
 https://nytimes.com/athletic/7023151/2026/02/04/nascar-clash-takeaways-ryan-preece-wins-bowman-gray/

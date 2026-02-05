@@ -1,3 +1,7 @@
+**Blackhawks stumble into Olympic break: 10 thoughts**\
+`The Blackhawks fell in a 4-0 shutout to the suddenly surging Blue Jackets in their final game before the Olympics.`\
+https://nytimes.com/athletic/7022670/2026/02/04/blackhawks-olympic-break-reset-bedard-blue-jackets/
+
 **NASCAR Clash takeaways: Ryan Preece grabs first NASCAR win at Bowman Gray Stadium**\
 `Preece prevailed in a race where the best drivers were going all out in a physical, no-holds-barred way.`\
 https://nytimes.com/athletic/7023151/2026/02/04/nascar-clash-takeaways-ryan-preece-wins-bowman-gray/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7023047/2026/02/04/trinidad-chambliss-waiver-appeal
 **Red Sox add defense with Isiah Kiner-Falefa but still in need of offensive boost**\
 `Kiner-Falefa doesn't fill the need for more power in the lineup but does bring Gold Glove-level defense to the infield.`\
 https://nytimes.com/athletic/7022957/2026/02/04/boston-red-sox-isiah-kiner-falefa-signing/
-
-**Nikola Jokić ties Oscar Robertson on NBA's triple-double list vs. Knicks**\
-`Jokić continues to cement his place among basketball's all-time greats.`\
-https://nytimes.com/athletic/6927796/2026/02/04/nikola-jokic-triple-double-ties-oscar-robertson/
 
