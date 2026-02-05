@@ -1,3 +1,15 @@
+**FIFPRO Europe set to be given UEFA ExCo voting rights**\
+`The continental division of the world players’ union is expected to be ratified as a voting member of the committee on February 12.`\
+https://nytimes.com/athletic/7024902/2026/02/05/fifpro-europe-uefa-voting-rights/
+
+**Knicks' Miles McBride to undergo surgery, could miss rest of regular season: Sources**\
+`New York agreed just before Thursday’s NBA trade deadline to acquire New Orleans Pelicans guard Jose Alvarado.`\
+https://nytimes.com/athletic/7024878/2026/02/05/knicks-miles-mcbride-surgery-trade-jose-alverado/
+
+**Celtics trade Chris Boucher to Jazz to reduce luxury tax bill: Sources**\
+`The 33-year-old Boucher had played sparingly for Boston this season.`\
+https://nytimes.com/athletic/7024919/2026/02/05/chris-boucher-celtics-jazz-trade-nba/
+
 **Games Briefing: Olympic hockey arrives, ready or not**\
 `Welcome to Games Briefing, The Athletic's daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7024899/2026/02/05/hockey-play-start-winter-olympics-games-briefing/
