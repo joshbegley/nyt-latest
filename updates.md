@@ -1,3 +1,7 @@
+**Cristian Romero outburst 'dealt with internally' by Spurs - Frank**\
+`In an Instagram post, Romero described it as "disgraceful" that Spurs "only had 11 players available" for Sunday's draw with Man City.`\
+https://nytimes.com/athletic/7024394/2026/02/05/cristian-romero-outburst-dealt-with-internally-by-tottenham-thomas-frank/
+
 **Submit a question for Pete Sampson's Notre Dame mailbag**\
 `It's the time of the offseason when Week 1 can feel farthest away, but there's rarely a dull moment around Notre Dame football.`\
 https://nytimes.com/athletic/7019038/2026/02/05/submit-a-question-for-pete-sampsons-notre-dame-mailbag-109/
