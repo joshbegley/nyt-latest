@@ -1,36 +1,40 @@
-**How to watch Ole Miss vs. Alabama women's basketball: Time, TV, streaming**\
-`Find out how to watch the Ole Miss Rebels play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7025223/2026/02/05/ole-miss-vs-alabama-stream-how-to-watch-feb-5/
+**At Winter Olympics, Italy's remarkable mixed doubles curling winning streak ends**\
+`Italy's team lost for the first time at a major international event after perfect runs at the 2022 Olympics and 2025 world championships.`\
+https://nytimes.com/athletic/7024993/2026/02/05/winter-olympics-italy-mixed-doubles-curling-winning-streak/
 
-**How to watch Ohio State vs. Washington women's basketball: Time, TV, streaming**\
-`Find out how to watch the Ohio State Buckeyes play the Washington Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7025215/2026/02/05/ohio-state-vs-washington-stream-how-to-watch-feb-5/
+**How to watch 76ers vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7025265/2026/02/05/76ers-vs-lakers-stream-how-to-watch-feb-5/
 
-**Nets to waive Cam Thomas after trade deadline passes: Sources**\
-`This ends a saga that began after the two teams could not agree to a long-term deal last summer.`\
-https://nytimes.com/athletic/7025211/2026/02/05/cam-thomas-waived-nets-nba-trade-deadline/
+**How to watch LSU vs. Texas women's basketball: Time, TV, streaming**\
+`Find out how to watch the LSU Tigers play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7025261/2026/02/05/lsu-vs-texas-stream-how-to-watch-feb-5/
 
-**Facing a Democratic Blitz, Susan Collins Scores a Super Bowl Ad in Maine**\
-`The ad is part of a multimillion dollar effort by a Republican-aligned group to help Ms. Collins, who is seen as one of the party’s most vulnerable incumbents.`\
-https://nytimes.com/2026/02/05/us/politics/susan-collins-super-bowl-ad.html
+**How to watch Bulls vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7025257/2026/02/05/bulls-vs-raptors-stream-how-to-watch-feb-5/
 
-**Ja Morant to stay with Grizzlies after team unable to find trade partner**\
-`While the Grizzlies searched for ways to trade their former franchise player, they elected to keep him past Thursday's trade deadline.`\
-https://nytimes.com/athletic/7024466/2026/02/05/ja-morant-staying-grizzlies-nba-trade-deadline/
+**How to watch Jazz vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7025255/2026/02/05/jazz-vs-hawks-stream-how-to-watch-feb-5/
 
-**How Do You Write About a Slur?**\
-`President Trump, Elon Musk and Joe Rogan have recently used the “R-word.” Reporting on its use can be uncomfortable.`\
-https://nytimes.com/2026/02/05/insider/reporting-slurs-journalism-best-practices.html
+**How to watch Spurs vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7025251/2026/02/05/spurs-vs-mavericks-stream-how-to-watch-feb-5/
 
-**Ivica Zubac trade grades: Pacers get their big man; what's up with Clippers?**\
-`The Pacers give up potentially some major draft capital, but this fills a need they weren't going to find a better solution to.`\
-https://nytimes.com/athletic/7025058/2026/02/05/nba-trade-grades-clippers-pacers-ivica-zubac/
+**How to watch Warriors vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7025246/2026/02/05/warriors-vs-suns-stream-how-to-watch-feb-5/
 
-**Every deal made during the late-breaking 2026 NBA trade season**\
-`From the massive to the mundane, a look at the players, picks and money on the move.`\
-https://nytimes.com/athletic/6954587/2026/02/05/nba-trade-wrapup-2026-anthony-davis-kuminga-harden/
+**How to watch Hornets vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7025243/2026/02/05/hornets-vs-rockets-stream-how-to-watch-feb-5/
 
-**Maid in Hollywood**\
-`The dazzling Randolph sisters were far bigger than the roles they were relegated to. Watching them now offers important lessons — and delightful entertainment.`\
-https://nytimes.com/2026/02/05/opinion/lillian-amanda-randolph-hollywood-black.html
+**Mayor of Tequila, Mexico, Is Accused of Shaking Down Tequila Companies**\
+`The mayor of the city that is the birthplace of the bottled spirit is the latest official to be arrested as Mexico targets cartel-related corruption.`\
+https://nytimes.com/2026/02/05/world/americas/mexico-tequila-mayor-arrested.html
+
+**Penguins rallying behind former GM Craig Patrick after recent stroke**\
+`Penguins past and present are supporting the former general manager, who remains in the hospital after a severe stroke.`\
+https://nytimes.com/athletic/7024015/2026/02/05/penguins-craig-patrick-stroke-nhl/
 
