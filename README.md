@@ -7,7 +7,7 @@ https://nytimes.com/athletic/7023151/2026/02/04/nascar-clash-takeaways-ryan-pree
 https://nytimes.com/athletic/7022938/2026/02/04/floyd-mayweather-showtime-lawsuit-haymon-espinoza/
 
 **Framber Valdez's signing could be the statement move the Tigers needed**\
-`Signing Valdez marks the biggest free-agent deal of Scott Harris' tenure as Tigers president of baseball operations`\
+`Signing Valdez marks the biggest free-agent deal of Scott Harris' tenure as Tigers president of baseball operations.`\
 https://nytimes.com/athletic/7023082/2026/02/04/detroit-tigers-framber-valdez-signing-impact/
 
 **Dodgers expected to visit White House to celebrate World Series win: Source**\
