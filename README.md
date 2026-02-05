@@ -1,3 +1,15 @@
+**How to watch Ole Miss vs. Alabama women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7025223/2026/02/05/ole-miss-vs-alabama-stream-how-to-watch-feb-5/
+
+**How to watch Ohio State vs. Washington women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the Washington Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7025215/2026/02/05/ohio-state-vs-washington-stream-how-to-watch-feb-5/
+
+**Nets to waive Cam Thomas after trade deadline passes: Sources**\
+`This ends a saga that began after the two teams could not agree to a long-term deal last summer.`\
+https://nytimes.com/athletic/7025211/2026/02/05/cam-thomas-waived-nets-nba-trade-deadline/
+
 **Facing a Democratic Blitz, Susan Collins Scores a Super Bowl Ad in Maine**\
 `The ad is part of a multimillion dollar effort by a Republican-aligned group to help Ms. Collins, who is seen as one of the party’s most vulnerable incumbents.`\
 https://nytimes.com/2026/02/05/us/politics/susan-collins-super-bowl-ad.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6954587/2026/02/05/nba-trade-wrapup-2026-anthony-da
 **Maid in Hollywood**\
 `The dazzling Randolph sisters were far bigger than the roles they were relegated to. Watching them now offers important lessons — and delightful entertainment.`\
 https://nytimes.com/2026/02/05/opinion/lillian-amanda-randolph-hollywood-black.html
-
-**What’s Going On in This Picture? | Feb. 9, 2026**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2026/02/05/learning/whats-going-on-in-this-picture-feb-9-2026.html
-
-**What’s Going On in This Graph? | Feb. 11, 2026**\
-`Are W.N.B.A. players being compensated fairly?`\
-https://nytimes.com/2026/02/05/learning/whats-going-on-in-this-graph-feb-11-2026.html
-
-**49ers, Rams will play NFL's first game in Australia next season**\
-`The league announced the matchup Thursday — one of nine international games to be played in 2026.`\
-https://nytimes.com/athletic/7025002/2026/02/05/49ers-rams-melbourne-australia-game-nfl/
 
