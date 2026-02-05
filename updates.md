@@ -1,3 +1,15 @@
+**Bad Bunny on Super Bowl halftime show: 'It’s going to be fun, it’s going to be easy'**\
+`Fresh off winning a Grammy Award for Album of the Year, Bad Bunny is now preparing to headline the Super Bowl halftime show on Sunday.`\
+https://nytimes.com/athletic/7025357/2026/02/05/bad-bunny-super-bowl-halftime-show-grammy-awards/
+
+**Amazon Plans to Spend $200 Billion on A.I. and Other Projects This Year**\
+`The company reported a strong holiday quarter on Thursday. But its big spending on things like artificial intelligence and satellites is starting to make investors nervous.`\
+https://nytimes.com/2026/02/05/technology/amazon-200-billion-ai.html
+
+**Seth Jarvis to replace Brayden Point on Team Canada at Olympics**\
+`Point was ruled out of the Olympics because of an injury.`\
+https://nytimes.com/athletic/7025440/2026/02/05/brayden-point-seth-jarvis-canada-olympics-roster/
+
 **Amazon Plans to Spend $200 Billion on A.I. and Other Projects This Year**\
 `The company reported a strong holiday quarter on Thursday. But its big spending on things like artificial intelligence and satellites is starting to make investors nervous.`\
 https://nytimes.com/2026/02/05/technology/amazon-plans-to-spend-200-billion-on-ai-and-other-projects-this-year.html
