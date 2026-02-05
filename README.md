@@ -1,3 +1,11 @@
+**Newcastle United and a deflating, 'painful' concession of the trophy that meant so much**\
+`Winning the Carabao Cup last season meant so much to everyone at St James' Park. Elimination this time raises plenty of questions`\
+https://nytimes.com/athletic/7020713/2026/02/05/newcastle-carabao-cup-manchester-city/
+
+**Word of the Day: commiserate**\
+`This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/05/learning/word-of-the-day-commiserate.html
+
 **Boldy's quick hat trick helps send Wild streaking into Olympic break: Takeaways**\
 `Boldy's three goals came in the first 12:58, the fastest hat trick to start a game in Wild history.`\
 https://nytimes.com/athletic/7023280/2026/02/05/matt-boldy-hat-trick-wild-predators-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7022987/2026/02/05/tate-mcrae-olympics-backlash-pro
 **The rise of cricket in Nepal: 'The T20 World Cup is an opportunity. The expectation is Test cricket'**\
 `Cricket has overtaken football in terms of popularity in Nepal with the national team now hoping to go deep into the T20 World Cup`\
 https://nytimes.com/athletic/7017923/2026/02/05/nepal-cricket-t20-world-cup-test-law/
-
-**Kai Havertz and the importance of being a 'floater' at Arsenal**\
-`The German attacker's ability to fulfil different roles could be pivotal to his side's chances of success this season`\
-https://nytimes.com/athletic/7017904/2026/02/05/kai-havertz-arsenal-position/
-
-**Adding Panarin signals ambition from the Kings — and possibly hubris**\
-`The Kings got a star offensive winger for a song thanks to his no-move clause. But it still left a fairly bare cupboard emptier than before.`\
-https://nytimes.com/athletic/7023170/2026/02/05/kings-artemi-panarin-trade-holland-playoffs/
 
