@@ -1,5 +1,9 @@
+**Demond Williams Jr. cites ‘really bad’ advice when addressing transfer saga**\
+`Williams became a polarizing figure in college football when he announced his intention to transfer but two days later said he'd stay put.`\
+https://nytimes.com/athletic/7022783/2026/02/04/desmond-williams-washington-qb-transfer-advice/
+
 **Savannah Guthrie Addresses Mother’s Abductor: ‘We Are Ready to Talk’**\
-`Ms. Guthrie, the television anchor, and her siblings spoke out in a video on Wednesday night, asking for proof that their mother, Nancy, is alive.`\
+`Ms. Guthrie, the television anchor, and her siblings released a video on Wednesday night asking for proof that their mother, Nancy, is alive.`\
 https://nytimes.com/2026/02/04/us/savannah-guthrie-plea-statement.html
 
 **Brad Karp Resigns as Paul Weiss Chairman Amid Epstein Fallout**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/04/us/false-confession-charlie-kirk-shooting-prison.
 **U.S. and Iran to Hold Talks in Oman on Friday**\
 `The White House confirmed a meeting would take place after days of conflicting reports on the talks’ timing, location and format.`\
 https://nytimes.com/2026/02/04/world/middleeast/iran-us-talks-oman.html
-
-**As NBA trade deadline looms, what do terms like 'apron' actually mean?**\
-`Here’s a quick (but far from complete) guide to what a few of those terms mean and how they impact team building.`\
-https://nytimes.com/athletic/7022525/2026/02/04/nba-tax-apron-glossary-cba/
 
