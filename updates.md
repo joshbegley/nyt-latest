@@ -1,3 +1,7 @@
+**Submit a question for Pete Sampson's Notre Dame mailbag**\
+`It's the time of the offseason when Week 1 can feel farthest away, but there's rarely a dull moment around Notre Dame football.`\
+https://nytimes.com/athletic/7019038/2026/02/05/submit-a-question-for-pete-sampsons-notre-dame-mailbag-109/
+
 **How to Survive a Fall Through the Ice**\
 `The cardinal rule? Don’t panic. You actually have more time than you think to self-extricate or wait for help to arrive, an expert said.`\
 https://nytimes.com/2026/02/05/us/fall-through-ice-frozen-water-rescue.html
