@@ -1,3 +1,15 @@
+**With Kawhi Leonard still standing, Clippers pivot to what's next**\
+`The Clippers left the trade deadline with Kawhi Leonard still in place and a clearer picture of their future. `\
+https://nytimes.com/athletic/7025266/2026/02/05/kawhi-leonard-clippers-trade-deadline/
+
+**Kennedy Makes Unfounded Claim That Keto Diet Can ‘Cure’ Schizophrenia**\
+`The claim vastly overstates preliminary research into whether the high-fat, low-carbohydrate diet might help people with the disorder, experts said.`\
+https://nytimes.com/2026/02/05/us/politics/kennedy-keto-diet-schizophrenia.html
+
+**Myra MacPherson, Who Wrote Wrenchingly About Vietnam Vets, Dies at 91**\
+`A political reporter at The Washington Post, she also wrote “Long Time Passing,” about the Vietnam War’s social, political and psychological aftereffects.`\
+https://nytimes.com/2026/02/05/us/politics/myra-macpherson-dead.html
+
 **Test Your Internet Brain. Can You Use ‘Choppelganger’ in a Sentence?**\
 `This is a series about the mysteries of internet speak.`\
 https://nytimes.com/2026/02/05/style/internet-gen-z-slang-choppelganger.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/05/technology/bitcoin-price-drop-crypto-market.html
 **The Flour Tortilla Revolution is Here**\
 `And for some reason the best ones are in Brooklyn. Apologies to the other boroughs.`\
 https://nytimes.com/2026/02/05/dining/the-flour-tortilla-revolution-is-here.html
-
-**Giannis after Bucks elect not to trade him: 'Legends don't chase'**\
-`The Bucks superstar made his feelings clear after the team chose to keep him past the 2026 NBA trade deadline.`\
-https://nytimes.com/athletic/7025354/2026/02/05/giannis-antetokounmpo-reaction-bucks-social-media/
-
-**Villa's Watkins and Onana expected to be available for Bournemouth game**\
-`Both players featured in Unai Emery’s training session on Thursday, having missed Villa’s 1-0 home defeat to Brentford the previous week.`\
-https://nytimes.com/athletic/7025276/2026/02/05/aston-villa-watkins-onana-injury-update/
-
-**As NBA trade deadline passes, Knicks ready for championship push**\
-`With the distractions now behind them, the red-hot Knicks can focus on making a run at the NBA Finals.`\
-https://nytimes.com/athletic/7024917/2026/02/05/nba-trade-deadline-knicks/
 
