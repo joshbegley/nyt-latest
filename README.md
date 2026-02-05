@@ -1,3 +1,7 @@
+**Tate McRae responds to backlash over Team USA ad: 'I'm Canada down'**\
+`McRae wrote the message and posted a photo of herself as a child holding a mini Canadian flag on Instagram. `\
+https://nytimes.com/athletic/7022987/2026/02/05/tate-mcrae-olympics-backlash-promoting-team-usa/
+
 **The rise of cricket in Nepal: 'The T20 World Cup is an opportunity. The expectation is Test cricket'**\
 `Cricket has overtaken football in terms of popularity in Nepal with the national team now hoping to go deep into the T20 World Cup`\
 https://nytimes.com/athletic/7017923/2026/02/05/nepal-cricket-t20-world-cup-test-law/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7015949/2026/02/05/pablo-fornals-west-ham-interview
 **Seahawks safety Nick Emmanwori injures ankle during Super Bowl practice**\
 `Mike Macdonald said the team will figure out the "next steps," with the game against the Patriots only days away.`\
 https://nytimes.com/athletic/7023179/2026/02/05/seahawks-nick-emmanwori-injures-ankle/
-
-**Why Man Utd have commercial concerns - and what they're doing about them**\
-`The Premier League giants are being caught up or even eclipsed by their rivals after years of financial supremacy `\
-https://nytimes.com/athletic/7015588/2026/02/05/manchester-united-commercial-revenue/
 
