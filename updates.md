@@ -1,3 +1,15 @@
+**Giannis, Ja Morant are staying put. Let's grade those non-moves (for now)**\
+`These non-trades made as much noise as the big transactions we actually saw.`\
+https://nytimes.com/athletic/7025006/2026/02/05/giannis-ja-morant-nba-trade-grades/
+
+**C.I.A. World Factbook Ends Publication After 6 Decades**\
+`The Factbook, a version of which dates to 1962, provided facts, figures, maps and more to generations of economists, professors, journalists and others.`\
+https://nytimes.com/2026/02/05/us/world-factbook-cia.html
+
+**Movin' on up (or down): Fantasy basketball winners and losers from every NBA deadline deal**\
+`Stan Son offers his fantasy hoops spin for every deal consummated leading up to the NBA trade deadline.`\
+https://nytimes.com/athletic/7025199/2026/02/05/fantasy-basketball-nba-trade-deadline-winners-losers/
+
 **Trump Calls for New Treaty as Nuclear Arms Control Era Ends**\
 `Also, Trump expanded his power to fire federal workers. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2026/02/05/briefing/us-russia-nuclear-treaty-federal-workers.html
