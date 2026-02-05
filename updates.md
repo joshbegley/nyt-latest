@@ -1,3 +1,11 @@
+**From Michael Fulmer to Caleb Kilian: Previewing the pitchers on the Giants' NRI list**\
+`The Giants have some familiar names among the pitchers they are bringing into camp as non-roster invitees.`\
+https://nytimes.com/athletic/7023131/2026/02/05/sf-giants-non-roster-invitees-pitchers-2026/
+
+**A question for WNBA and players union during CBA talks: Where's the urgency?**\
+`Enough of the staring contest. Without progress in negotiations, the WNBA's positive momentum could be at risk.`\
+https://nytimes.com/athletic/7022940/2026/02/05/wnba-collective-bargaining-agreement-deal-urgency/
+
 **Minnesota Twins 2026 top 20 prospects: Walker Jenkins, Emmanuel Rodriguez lead the way**\
 `Injuries had a significant impact on the Twins system in 2025, but there are still plenty of players with significant upside on their list.`\
 https://nytimes.com/athletic/7018621/2026/02/05/minnesota-twins-2026-top-20-prospects-keith-law/

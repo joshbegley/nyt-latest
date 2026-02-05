@@ -1,3 +1,11 @@
+**From Michael Fulmer to Caleb Kilian: Previewing the pitchers on the Giants' NRI list**\
+`The Giants have some familiar names among the pitchers they are bringing into camp as non-roster invitees.`\
+https://nytimes.com/athletic/7023131/2026/02/05/sf-giants-non-roster-invitees-pitchers-2026/
+
+**A question for WNBA and players union during CBA talks: Where's the urgency?**\
+`Enough of the staring contest. Without progress in negotiations, the WNBA's positive momentum could be at risk.`\
+https://nytimes.com/athletic/7022940/2026/02/05/wnba-collective-bargaining-agreement-deal-urgency/
+
 **Minnesota Twins 2026 top 20 prospects: Walker Jenkins, Emmanuel Rodriguez lead the way**\
 `Injuries had a significant impact on the Twins system in 2025, but there are still plenty of players with significant upside on their list.`\
 https://nytimes.com/athletic/7018621/2026/02/05/minnesota-twins-2026-top-20-prospects-keith-law/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7022003/2026/02/05/vikings-offseason-plan-jordan-ad
 **What to know about NFL Honors: MVP announcement, award nominees, Jon Hamm and more**\
 `The NFL rolls out the red carpet for full award show treatment, from MVP to the brand-new "Protector of the Year" to Bay Area rap classics.`\
 https://nytimes.com/athletic/7019480/2026/02/05/nfl-honors-awards-2026-how-to-watch/
-
-**To celebrate ex-USWNT Crystal Dunn's career is to also acknowledge how others failed her**\
-`The midfielder's impact on the sport extends far beyond her versatility. `\
-https://nytimes.com/athletic/7021307/2026/02/05/crystal-dunn-uswnt-retirement-carrer/
-
-**Did Nebraska's roster improve? Assessing the Huskers after offseason overhaul**\
-`The Huskers added a lot of experience this offseason and will look to take a step forward after a poor end to last season.`\
-https://nytimes.com/athletic/7022588/2026/02/05/nebraska-offseason-recruiting-transfer-portal/
 
