@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7024902/2026/02/05/fifpro-europe-uefa-voting-rights/
 
 **Knicks' Miles McBride to undergo surgery, could miss rest of regular season: Sources**\
-`The Knicks could be without McBride until the playoffs after surgery. `\
+`New York agreed just before Thursday’s NBA trade deadline to acquire New Orleans Pelicans guard Jose Alvarado.`\
 https://nytimes.com/athletic/7024878/2026/02/05/knicks-miles-mcbride-surgery-trade-jose-alverado/
 
 **Games Briefing: Olympic hockey arrives, ready or not**\
