@@ -1,3 +1,19 @@
+**Keir Starmer Apologizes to Epstein’s Victims For Appointing Mandelson**\
+`Prime Minister Keir Starmer of Britain apologized for having picked Peter Mandelson to be his ambassador to the United States despite being aware that he was friends with Jeffrey Epstein, the convicted sex offender.`\
+https://nytimes.com/video/world/europe/100000010692429/keir-starmer-apology-mandelson-epstein.html
+
+**Are ski jumpers enhancing their penises to fly further? WADA is ready to investigate**\
+`World sport's anti-doping body has vowed to look into the lurid claims that first surfaced in a German newspaper in January.`\
+https://nytimes.com/athletic/7024688/2026/02/05/ski-jump-penis-enhancement-wada/
+
+**Giannis Antetokounmpo trade not expected at NBA deadline, Bucks to revisit in summer: Sources**\
+`This was the closest Milwaukee has gotten to parting with the two-time MVP, and deals will again be discussed in the offseason.`\
+https://nytimes.com/athletic/7023866/2026/02/05/nba-giannis-antetokounmpo-staying-bucks-trade-deadline/
+
+**Knicks trade for Jose Alvarado, send Dalen Terry, 2nd-round picks to Pelicans: Sources**\
+`The deal marks a homecoming for Alvarado. New York will send Dalen Terry and two second-round picks to New Orleans.`\
+https://nytimes.com/athletic/7024775/2026/02/05/knicks-trade-jose-alvarado-pelicans-nba/
+
 **The Louvre Thieves Dropped This Priceless Crown. Now It Looks Like This.**\
 `Empress Eugénie’s crown was left lying on the sidewalk after the Louvre Museum heist in October. The museum has now released pictures of the damage.`\
 https://nytimes.com/2026/02/05/world/europe/louvre-heist-crown-damage-eugenie-empress.html
