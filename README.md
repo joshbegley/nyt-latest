@@ -1,3 +1,7 @@
+**Dodgers expected to visit White House to celebrate World Series win: Source**\
+`The Dodgers have previously visited the White House in 2021 with President Joe Biden and last April with President Donald J. Trump.`\
+https://nytimes.com/athletic/7023024/2026/02/04/los-angeles-dodgers-white-house-visit/
+
 **What we learned from Chris Drury's comments, plus an inside look at the Panarin trade**\
 `The Rangers GM made his first public comments since training camp after trading Artemi Panarin to the Kings.`\
 https://nytimes.com/athletic/7022854/2026/02/04/rangers-chris-drury-gm-comments-panarin-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/04/crosswords/daily-puzzle-2026-02-05.html
 **Demond Williams Jr. cites ‘really bad’ advice when addressing transfer saga**\
 `Williams became a polarizing figure in college football when he announced his intention to transfer but two days later said he'd stay put.`\
 https://nytimes.com/athletic/7022783/2026/02/04/desmond-williams-washington-qb-transfer-advice/
-
-**Savannah Guthrie Addresses Mother’s Abductor: ‘We Are Ready to Talk’**\
-`Ms. Guthrie, the television anchor, and her siblings released a video on Wednesday night asking for proof that their mother, Nancy, is alive.`\
-https://nytimes.com/2026/02/04/us/savannah-guthrie-plea-statement.html
 

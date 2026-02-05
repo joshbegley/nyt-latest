@@ -1,3 +1,11 @@
+**What we learned from Chris Drury's comments, plus an inside look at the Panarin trade**\
+`The Rangers GM made his first public comments since training camp after trading Artemi Panarin to the Kings.`\
+https://nytimes.com/athletic/7022854/2026/02/04/rangers-chris-drury-gm-comments-panarin-trade/
+
+**Padres, Miguel Andujar agree to 1-year deal, add proven bat against LHP: Source**\
+`Andujar makes for a logical fit on a Padres team that produced only a .690 OPS last season against lefties.`\
+https://nytimes.com/athletic/7023077/2026/02/04/padres-miguel-andujar-signing-source/
+
 **Padres, Miguel Andujar agree to one-year deal, add proven LHP hitter: Source**\
 `Andujar makes for a logical fit on a Padres team that produced only a .690 OPS last season against lefties.`\
 https://nytimes.com/athletic/7023077/2026/02/04/padres-miguel-andujar-signing-source/
