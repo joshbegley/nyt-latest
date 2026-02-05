@@ -1,3 +1,19 @@
+**Kit man banned for homophobic comment towards referee**\
+`A out a six-match stadium suspension was handed out after the comment in the League One match between Reading and Huddersfield.`\
+https://nytimes.com/athletic/7023922/2026/02/05/reading-kit-man-ban-homophobic/
+
+**Scottie Pippen's collection, including gift from Michael Jordan, to be auctioned**\
+`Pippen has decided it's time to part ways with more than 50 meaningful items from his personal collection. `\
+https://nytimes.com/athletic/7022409/2026/02/05/scottie-pippen-memorabilia-auction/
+
+**What's next for the Rangers after trading Panarin? A to-do list for Drury**\
+`With Panarin and Carson Soucy both traded, here are the next major steps on the Rangers GM's list if he wants to successfully retool.`\
+https://nytimes.com/athletic/7023157/2026/02/05/rangers-drury-to-do-list-panarin-trade-deadline/
+
+**People in This San Francisco Suburb Would Like the Earth to Just Stop Shaking, Please**\
+`San Ramon, Calif., has been rattled by dozens of small earthquakes in recent months. Even in a region used to regular shaking, it’s been a lot.`\
+https://nytimes.com/2026/02/05/us/san-ramon-california-earthquake-swarm.html
+
 **F.D.A. Relaxes Labeling Rules on Food Dyes as Kennedy Pushes Protein**\
 `Food makers will now be able to claim that their products have “no artificial colors,” so long as they use dyes that are not petroleum based.`\
 https://nytimes.com/2026/02/05/us/politics/kennedy-fda-food-dyes-protein.html

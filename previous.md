@@ -1,3 +1,19 @@
+**Kit man banned for homophobic comment towards referee**\
+`A out a six-match stadium suspension was handed out after the comment in the League One match between Reading and Huddersfield.`\
+https://nytimes.com/athletic/7023922/2026/02/05/reading-kit-man-ban-homophobic/
+
+**Scottie Pippen's collection, including gift from Michael Jordan, to be auctioned**\
+`Pippen has decided it's time to part ways with more than 50 meaningful items from his personal collection. `\
+https://nytimes.com/athletic/7022409/2026/02/05/scottie-pippen-memorabilia-auction/
+
+**What's next for the Rangers after trading Panarin? A to-do list for Drury**\
+`With Panarin and Carson Soucy both traded, here are the next major steps on the Rangers GM's list if he wants to successfully retool.`\
+https://nytimes.com/athletic/7023157/2026/02/05/rangers-drury-to-do-list-panarin-trade-deadline/
+
+**People in This San Francisco Suburb Would Like the Earth to Just Stop Shaking, Please**\
+`San Ramon, Calif., has been rattled by dozens of small earthquakes in recent months. Even in a region used to regular shaking, it’s been a lot.`\
+https://nytimes.com/2026/02/05/us/san-ramon-california-earthquake-swarm.html
+
 **F.D.A. Relaxes Labeling Rules on Food Dyes as Kennedy Pushes Protein**\
 `Food makers will now be able to claim that their products have “no artificial colors,” so long as they use dyes that are not petroleum based.`\
 https://nytimes.com/2026/02/05/us/politics/kennedy-fda-food-dyes-protein.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2026/02/05/us/trump-news
 **The moments that made Matthew Stafford an MVP finalist at age 37**\
 `Stafford had a back issue that caused him to miss training camp. Then, in Year 17, he played every single game and put up career numbers. `\
 https://nytimes.com/athletic/7022629/2026/02/05/matthew-stafford-rams-mvp-finalist/
-
-**How to watch figure skating at the 2026 Winter Olympics**\
-`A deep U.S. Figure Skating roster can contend across all disciplines, but the nation won't have an easy path to gold. `\
-https://nytimes.com/athletic/6997207/2026/02/05/figure-skating-winter-olympics-2026-how-to-watch/
-
-**Finland-Canada Olympic women's hockey game postponed after norovirus breakout**\
-`MILAN — A women’s Olympic hockey game between Canada and Finland, the debut for both teams at the Milan Cortina Games, was postponed Thursday after members of the Finland team contracted norovirus.`\
-https://nytimes.com/athletic/7023859/2026/02/05/winter-olympics-women-hockey-finland-canada-postponed-sick-roster-norovirus/
-
-**Starmer Faces Storm of Criticism Over Ties Between Ex-Ambassador and Epstein**\
-`Newly released documents detailed connections between the convicted sex offender Jeffrey Epstein and Peter Mandelson, who was picked to be the U.S. envoy by the British prime minister, Keir Starmer.`\
-https://nytimes.com/2026/02/05/world/europe/epstein-files-mandelson-starmer-uk.html
-
-**The 5 issues with college football's calendar, including one with 'a lot of traction'**\
-`Here's a primer on the calendar issues, including momentum for moving the start of the season up a week for most teams.`\
-https://nytimes.com/athletic/7023732/2026/02/05/college-football-calendar-week-0-cfp/
 
