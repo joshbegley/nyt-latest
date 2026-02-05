@@ -1,40 +1,40 @@
-**2 Dead After Police Helicopter Crashes in Arizona**\
-`The helicopter went down near Flagstaff, Ariz., while assisting the police in their response to an active shooter on the ground.`\
-https://nytimes.com/2026/02/05/us/helicopter-crash-flagstaff-arizona.html
+**Breaking down the Yankees' key position battles heading into spring training**\
+`Much of the roster appears set. However, the bench and — to a greater extent — the bullpen remain unsettled.`\
+https://nytimes.com/athletic/7022546/2026/02/05/yankees-position-battles-spring-training/
 
-**The Epstein Files**\
-`We look into the relationships powerful people had with the convicted sex offender.`\
-https://nytimes.com/2026/02/05/briefing/the-epstein-files.html
+**After trading Bjugstad, what's next for the Blues after Olympic freeze?**\
+`St. Louis sent Nick Bjugstad to the Devils for a conditional fourth-round pick and AHL prospect Thomas Bordeleau. What — or who — is next?`\
+https://nytimes.com/athletic/7021684/2026/02/05/blues-bjugstad-trade-deadline-olympic-freeze/
 
-**From Michael Fulmer to Caleb Kilian: Previewing the pitchers on the Giants' NRI list**\
-`The Giants have some familiar names among the pitchers they are bringing into camp as non-roster invitees.`\
-https://nytimes.com/athletic/7023131/2026/02/05/sf-giants-non-roster-invitees-pitchers-2026/
+**Super Bowl 60 best bets: Expect a low-scoring game with lots of Patriots passing**\
+`To cap off his winning NFL season, Austin Mock takes a stab at some player prop bets for Super Bowl 60.`\
+https://nytimes.com/athletic/7021728/2026/02/05/super-bowl-best-bets-model-projections-stevenson/
 
-**A question for WNBA and players union during CBA talks: Where's the urgency?**\
-`Enough of the staring contest. Without progress in negotiations, the WNBA's positive momentum could be at risk.`\
-https://nytimes.com/athletic/7022940/2026/02/05/wnba-collective-bargaining-agreement-deal-urgency/
+**College softball preseason top 25: Texas Tech edges rival Texas for the top spot**\
+`The Red Raiders loaded up with a star-studded transfer portal class to complement All-American pitcher NiJaree Canady.`\
+https://nytimes.com/athletic/7019000/2026/02/05/college-softball-preseason-top-25-rankings-2/
 
-**Minnesota Twins 2026 top 20 prospects: Walker Jenkins, Emmanuel Rodriguez lead the way**\
-`Injuries had a significant impact on the Twins system in 2025, but there are still plenty of players with significant upside on their list.`\
-https://nytimes.com/athletic/7018621/2026/02/05/minnesota-twins-2026-top-20-prospects-keith-law/
+**Could Wild trade Wallstedt for Trocheck? Or Thomas? Hughes? Hischier? Tkachuk? Ask Russo and Smith**\
+`In the first installment of Ask Russo and Smith, we tackle your trade questions — many of them involving the Wild's young goaltender.`\
+https://nytimes.com/athletic/7021171/2026/02/05/wild-jesper-wallstedt-trade-mailbag/
 
-**The Pulse: The NBA is punking the NFL**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7021968/2026/02/05/nba-trade-deadline-davis-kuminga-the-pulse/
+**With James Harden gone, Darius Garland gives the Clippers a strong alternative**\
+`With Garland in the fold, the Clippers will be a much different looking team than they were with Harden.`\
+https://nytimes.com/athletic/7023530/2026/02/05/james-harden-darius-garland-clippers-alternative/
 
-**Kansas City Royals 2026 top 20 prospects: Carter Jensen, Blake Mitchell lead the way**\
-`The Royals' list is solid now and could get significantly better soon as their younger prospects come into their own.`\
-https://nytimes.com/athletic/7017406/2026/02/05/kansas-city-royals-2026-top-20-prospects-keith-law/
+**The Seahawks’ last bridge to the Legion of Boom, Jarran Reed remains the defense’s lead voice**\
+`Reed's role has shrunk, but his presence certainly hasn't. "We're all dogs, man," he said. "But, you know, I'm the biggest dog on the yard."`\
+https://nytimes.com/athletic/7022923/2026/02/05/seahawks-super-bowl-60-jarran-reed/
 
-**Detroit Tigers 2026 top 20 prospects: Kevin McGonigle, Max Clark lead the way**\
-`The Tigers' system is extremely top heavy, but the players at the top of the system have star ceilings.`\
-https://nytimes.com/athletic/7017277/2026/02/05/detroit-tigers-2026-top-20-prospects-keith-law/
+**Goals, and questions, in sight: Where Detroit stands at the Olympic break**\
+`With the NHL pausing play for three weeks and three Red Wings headed to Milan, it's time to take stock of a promising season.`\
+https://nytimes.com/athletic/7016529/2026/02/05/detroit-red-wings-olympic-break-todd-mclellan/
 
-**Cleveland Guardians 2026 top 20 prospects: Angel Genao, Travis Bazzana lead the way**\
-`The Guardians still have a top-five farm system thanks to a balance of promising position players and pitchers.`\
-https://nytimes.com/athletic/7016814/2026/02/05/guardians-2026-top-20-prospects-keith-law/
+**Why didn't the Rangers get more for Artemi Panarin?**\
+`There's no guarantee waiting to trade Panarin would have led to a better return for the Rangers, who didn't have any leverage.`\
+https://nytimes.com/athletic/7022718/2026/02/05/artemi-panarin-trade-rangers-drury-criticism/
 
-**Premier League launches new LGBTQ+ initiative for next two gameweeks**\
-`The Athletic revealed plans for the league's new campaign last month, including a pride-themed football which could be used next season.`\
-https://nytimes.com/athletic/7023579/2026/02/05/premier-league-lgbtq-switchboard/
+**49ers rookie review: Plenty of contributors, but are any foundational pieces?**\
+`Six 49ers rookies played at least 275 snaps on offense or defense this season, but none made the All-Rookie team.`\
+https://nytimes.com/athletic/7009096/2026/02/05/49ers-rookie-draft-picks-mykel-williams-upton-stout/
 
