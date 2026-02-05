@@ -1,3 +1,7 @@
+**Carnegie Hall’s New Season: What We Want to Hear**\
+`Highlights include the hall’s first “Ring,” cycles of sonatas by Beethoven and Mozart and a birthday celebration for Steve Reich.`\
+https://nytimes.com/2026/02/05/arts/music/carnegie-hall-2026-2027-season.html
+
 **Secretary Rubio Gives Up Role as Acting U.S. Archivist**\
 `Mr. Rubio had been the acting head of the National Archives since early 2025, after President Trump fired its previous chief. His tenure was limited to 300 days by law.`\
 https://nytimes.com/2026/02/05/us/politics/rubio-national-archives.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7024539/2026/02/05/hurricanes-vs-rangers-stream-how
 **How to watch Penn State vs. Michigan men's basketball: Time, TV, streaming**\
 `Find out how to watch the Penn State Nittany Lions play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7024517/2026/02/05/penn-state-vs-michigan-stream-how-to-watch-feb-5/
-
-**Wolves-Bulls trade grades: Minnesota solves backup PG position with Ayo Dosunmu**\
-`Is Chicago a good spot for Rob Dillingham to develop and turn his career around?`\
-https://nytimes.com/athletic/7024328/2026/02/05/nba-trade-grades-wolves-bulls-ayo-dosunmu/
 
