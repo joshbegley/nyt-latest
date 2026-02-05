@@ -1,3 +1,7 @@
+**Russia-Ukraine Peace Talks Stretch Into a Second Day**\
+`Little has been made public so far, but negotiators were expected to talk about the fate of Ukrainian territory in the east and security guarantees for Ukraine.`\
+https://nytimes.com/2026/02/05/world/europe/russia-ukraine-peace-talks.html
+
 **Warriors relieved, hopeful as they make a deal while keeping Giannis door open**\
 `The Warriors finally moved on from Jonathan Kuminga, adding a measure of relief to their continued hopes of acquiring the biggest prize.`\
 https://nytimes.com/athletic/7023464/2026/02/05/warriors-trades-giannis-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/05/crosswords/spelling-bee-forum.html
 **Thousands Displaced for a Military Operation That Pakistan Says Won’t Happen**\
 `Some 60,000 evacuees have been left in limbo by confusion and political disputes as Pakistan battles insurgents on its border with Afghanistan.`\
 https://nytimes.com/2026/02/05/world/asia/pakistan-military-operation-displaced-people.html
-
-**Newcastle United and a deflating, 'painful' concession of the trophy that meant so much**\
-`Winning the Carabao Cup last season meant so much to everyone at St James' Park. Elimination this time raises plenty of questions`\
-https://nytimes.com/athletic/7020713/2026/02/05/newcastle-carabao-cup-manchester-city/
 
