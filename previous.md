@@ -1,3 +1,11 @@
+**NASCAR Clash takeaways: Ryan Preece grabs first NASCAR win at Bowman Gray Stadium**\
+`Preece prevailed in a race where the best drivers were going all out in a physical, no-holds-barred way.`\
+https://nytimes.com/athletic/7023151/2026/02/04/nascar-clash-takeaways-ryan-preece-wins-bowman-gray/
+
+**Floyd Mayweather Jr. files $340M lawsuit against Showtime, former exec**\
+`Mayweather alleges Showtime conspired to help cover up nearly a decade of fraud by his former business advisor.`\
+https://nytimes.com/athletic/7022938/2026/02/04/floyd-mayweather-showtime-lawsuit-haymon-espinoza/
+
 **Framber Valdez's signing could be the statement move the Tigers needed**\
 `Signing Valdez marks the biggest free-agent deal of Scott Harris' tenure as Tigers president of baseball operations`\
 https://nytimes.com/athletic/7023082/2026/02/04/detroit-tigers-framber-valdez-signing-impact/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7022957/2026/02/04/boston-red-sox-isiah-kiner-falef
 **Nikola Jokić ties Oscar Robertson on NBA's triple-double list vs. Knicks**\
 `Jokić continues to cement his place among basketball's all-time greats.`\
 https://nytimes.com/athletic/6927796/2026/02/04/nikola-jokic-triple-double-ties-oscar-robertson/
-
-**Venezuela Said to Detain Maduro Allies Targeted by the U.S.**\
-`The questioning of the politically connected businessmen, Raúl Gorrín and Alex Saab, signaled deepening cooperation between the two nations.`\
-https://nytimes.com/2026/02/04/world/americas/venezuela-said-to-detain-maduro-allies-targeted-by-the-us.html
-
-**Source of a Large Print**\
-`Dario Salvucci makes his New York Times Crossword debut.`\
-https://nytimes.com/2026/02/04/crosswords/daily-puzzle-2026-02-05.html
 
