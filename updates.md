@@ -1,3 +1,7 @@
+**Knicks trading Guerschon Yabusele to Bulls for Dalen Terry: Sources**\
+`Guerschon Yabusele was the Knicks' biggest free agent signing this summer, and he's already on the move.`\
+https://nytimes.com/athletic/7023383/2026/02/05/guerschon-yabusele-trade-knicks-bulls/
+
 **Tate McRae responds to backlash over Team USA ad: 'I'm Canada down'**\
 `McRae wrote the message and posted a photo of herself as a child holding a mini Canadian flag on Instagram. `\
 https://nytimes.com/athletic/7022987/2026/02/05/tate-mcrae-olympics-backlash-promoting-team-usa/
