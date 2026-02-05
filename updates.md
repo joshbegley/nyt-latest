@@ -1,3 +1,15 @@
+**With Kawhi Leonard still standing, Clippers pivot to what's next**\
+`The Clippers left the trade deadline with Kawhi Leonard still in place and a clearer picture of their future. `\
+https://nytimes.com/athletic/7025266/2026/02/05/kawhi-leonard-clippers-trade-deadline/
+
+**Kennedy Makes Unfounded Claim That Keto Diet Can ‘Cure’ Schizophrenia**\
+`The claim vastly overstates preliminary research into whether the high-fat, low-carbohydrate diet might help people with the disorder, experts said.`\
+https://nytimes.com/2026/02/05/us/politics/kennedy-keto-diet-schizophrenia.html
+
+**Myra MacPherson, Who Wrote Wrenchingly About Vietnam Vets, Dies at 91**\
+`A political reporter at The Washington Post, she also wrote “Long Time Passing,” about the Vietnam War’s social, political and psychological aftereffects.`\
+https://nytimes.com/2026/02/05/us/politics/myra-macpherson-dead.html
+
 **Test Your Internet Brain. Can You Use ‘Choppelganger’ in a Sentence?**\
 `This is a series about the mysteries of internet speak.`\
 https://nytimes.com/2026/02/05/style/internet-gen-z-slang-choppelganger.html
