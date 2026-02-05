@@ -1,3 +1,19 @@
+**Why Building Alone Won’t Solve the Housing Crisis**\
+`An imbalance in the kind of housing getting built and rising insurance costs are impeding housing progress, according to two new reports.`\
+https://nytimes.com/2026/02/05/realestate/affordable-housing-insurance-studies.html
+
+**Science Practice | A Study on Cow Tool Use**\
+`Can cows use tools in purposeful, flexible ways? This one can.`\
+https://nytimes.com/2026/02/05/learning/science-practice-a-study-on-cow-tool-use.html
+
+**Ranking the best 2026 Super Bowl commercials: For Papa! Will Shat and more**\
+`In the aftermath of every Super Bowl, we talk about the game and the halftime show, but we&#8217;re also eager to discuss the commercials.`\
+https://nytimes.com/athletic/7016254/2026/02/05/super-bowl-commercials-2026-ranking-shatner-instacart-skittles/
+
+**Woman Charged With Assaulting 3 Muslims in Brooklyn, Including Girl, 12**\
+`A 34-year-old Staten Island woman has been arrested and charged with hate crimes in connection with attacks that happened in a span of 11 minutes.`\
+https://nytimes.com/2026/02/05/nyregion/hate-crimes-brooklyn-hijab.html
+
 **Flames' Jonathan Huberdeau to have hip resurfacing surgery, will miss rest of season**\
 `The forward scored 10 goals and 25 points in 50 games with the Flames this season, including a goal versus Edmonton on Wednesday night.`\
 https://nytimes.com/athletic/7024224/2026/02/05/huberdeau-flames-hip-injury/

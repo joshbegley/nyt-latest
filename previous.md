@@ -1,3 +1,19 @@
+**Why Building Alone Won’t Solve the Housing Crisis**\
+`An imbalance in the kind of housing getting built and rising insurance costs are impeding housing progress, according to two new reports.`\
+https://nytimes.com/2026/02/05/realestate/affordable-housing-insurance-studies.html
+
+**Science Practice | A Study on Cow Tool Use**\
+`Can cows use tools in purposeful, flexible ways? This one can.`\
+https://nytimes.com/2026/02/05/learning/science-practice-a-study-on-cow-tool-use.html
+
+**Ranking the best 2026 Super Bowl commercials: For Papa! Will Shat and more**\
+`In the aftermath of every Super Bowl, we talk about the game and the halftime show, but we&#8217;re also eager to discuss the commercials.`\
+https://nytimes.com/athletic/7016254/2026/02/05/super-bowl-commercials-2026-ranking-shatner-instacart-skittles/
+
+**Woman Charged With Assaulting 3 Muslims in Brooklyn, Including Girl, 12**\
+`A 34-year-old Staten Island woman has been arrested and charged with hate crimes in connection with attacks that happened in a span of 11 minutes.`\
+https://nytimes.com/2026/02/05/nyregion/hate-crimes-brooklyn-hijab.html
+
 **Flames' Jonathan Huberdeau to have hip resurfacing surgery, will miss rest of season**\
 `The forward scored 10 goals and 25 points in 50 games with the Flames this season, including a goal versus Edmonton on Wednesday night.`\
 https://nytimes.com/athletic/7024224/2026/02/05/huberdeau-flames-hip-injury/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7023942/2026/02/05/olympic-hockey-laila-edwards-deb
 **Team Canada's Brad Marchand 'ready to go' as Brayden Point decision looms**\
 `"There’s no rush to this right now, so we’re not rushing,’’ Team Canada GM Doug Armstrong said of making a final call on Point. `\
 https://nytimes.com/athletic/7024250/2026/02/05/canada-olympics-brad-marchand-brayden-point-injury/
-
-**Carrick: Man Utd to use schedule gaps in 'different ways' after friendly talks**\
-`United have been exploring options to play mid-season friendlies since the autumn, as revealed by The Athletic in October.`\
-https://nytimes.com/athletic/7024255/2026/02/05/manchester-united-schedule-gaps-friendlies/
-
-**This Giant Phantom Jelly Won’t Eat You. Maybe.**\
-`During a dive off Argentina, scientists documented a rare jellyfish discovered a little over a century ago and seldom seen since, as well as the fish that keep it company.`\
-https://nytimes.com/2026/02/05/science/giant-phantom-jellyfish-sighting-video.html
-
-**The G.O.P. Senator Who Can’t Stop Thinking About the Boy ICE Detained**\
-`Katie Britt is uniquely positioned to reason with the Trump administration — when she chooses to speak up.`\
-https://nytimes.com/2026/02/05/us/politics/katie-britt.html
-
-**Trump’s Migrant Detention Pipeline Extends From Minnesota to El Paso**\
-`Immigrants apprehended in Minnesota are being sent to a gigantic West Texas detention center where lawyers and detainees say conditions are deplorable, then released in El Paso to find their way home.`\
-https://nytimes.com/2026/02/05/us/minnesota-el-paso-ice-immigration.html
 
