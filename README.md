@@ -1,3 +1,7 @@
+**The Long Goodbye: A California Couple Self-Deports to Mexico**\
+`Enrique Castillejos and his wife, Maria Elena Hernandez, raised a family in California. But they were undocumented immigrants, and after President Trump’s crackdown began, they decided to return to Mexico.`\
+https://nytimes.com/interactive/2026/02/04/us/self-deport-immigration-california.html
+
 **Tigers, Framber Valdez agree to three-year, $115 million deal: Sources**\
 `At his best, Valdez is an ace, a man nicknamed "La Grasa" for the designer clothes and colognes he wears between starts.`\
 https://nytimes.com/athletic/6838675/2026/02/04/mlb-framber-valdez-free-agency-tigers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7022709/2026/02/04/nba-trade-deadline-front-office-
 **New York City Partners with W.H.O. as U.S. Withdraws From Global Effort**\
 `City health authorities are joining a network that counters new pathogens and emerging outbreaks.`\
 https://nytimes.com/2026/02/04/nyregion/nyc-health-world-health-organization.html
-
-**Canadian snowboarder leaves on stretcher after Olympic training injury**\
-`The three-time Olympic snowboarding medalist was injured during big air training in Livigno, Italy.`\
-https://nytimes.com/athletic/7022563/2026/02/04/mark-mcmorris-crash-snowboard-olympics-training/
 

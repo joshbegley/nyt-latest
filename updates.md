@@ -1,3 +1,7 @@
+**Tigers, Framber Valdez agree to three-year, $115 million deal: Sources**\
+`At his best, Valdez is an ace, a man nicknamed "La Grasa" for the designer clothes and colognes he wears between starts.`\
+https://nytimes.com/athletic/6838675/2026/02/04/mlb-framber-valdez-free-agency-tigers/
+
 **Drake Maye a full participant in Patriots practice on Wednesday**\
 `The 23-year-old Maye was a full participant in practice Wednesday. He is expected to play in Sunday's Super Bowl against the Seahawks.`\
 https://nytimes.com/athletic/7022888/2026/02/04/drake-maye-patriots-injury-status-robert-spillane-super-bowl/
