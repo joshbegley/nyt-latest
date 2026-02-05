@@ -1,3 +1,7 @@
+**NBA trade deadline winners and losers: Bucks, Cavs, Wizards top list**\
+`It was a chaotic deadline, especially at the end, with former All-Stars switching teams and two of the biggest names staying put.`\
+https://nytimes.com/athletic/7024796/2026/02/05/nba-trade-deadline-winners-cavaliers-bucks-wizards/
+
 **How Chefs Are Making Chocolate Without Cacao Beans**\
 `Plus: Swedish rugs with curves, Jeremy Liebman’s domestic portraits and more recommendations from T Magazine.`\
 https://nytimes.com/2026/02/05/t-magazine/chocolate-without-cacao-beans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/05/world/europe/italy-olympics-security-law-protests
 **SEC distributes record $1.03 billion to schools in 2024-25 fiscal year**\
 `The 2024-25 fiscal year was the SEC’s first in its new ESPN contract, as well as the first with Oklahoma and Texas in the conference.`\
 https://nytimes.com/athletic/7025202/2026/02/05/sec-football-sports-revenue-billion-dollars/
-
-**At Least 67 People Are Rescued From Stuck Gondolas at a New York Ski Resort**\
-`A mechanical failure at the Gore Mountain resort in the Adirondacks left guests in about 20 gondolas hovering above the snow for several hours.`\
-https://nytimes.com/2026/02/05/nyregion/skiers-gondola-new-york-gore-mountain.html
 

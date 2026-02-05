@@ -1,13 +1,21 @@
-**Bitcoin Slides as Industry Frets About Another ‘Crypto Winter’**\
-`Despite strong support from the White House, the price of Bitcoin is now lower than when President Trump was elected in 2024.`\
+**How Chefs Are Making Chocolate Without Cacao Beans**\
+`Plus: Swedish rugs with curves, Jeremy Liebman’s domestic portraits and more recommendations from T Magazine.`\
+https://nytimes.com/2026/02/05/t-magazine/chocolate-without-cacao-beans.html
+
+**Federal Judge Blocks Texas Law Targeting Critics of Fossil Fuels**\
+`The court ruled that it was unconstitutional to bar state agencies from investing with firms that the state had accused of boycotting the oil industry.`\
+https://nytimes.com/2026/02/05/climate/texas-esg-lawsuit.html
+
+**Crypto Takes a Deep Slide Despite Trump’s Support**\
+`Despite strong backing from the White House, the price of Bitcoin is now lower than when President Trump was elected in 2024.`\
 https://nytimes.com/2026/02/05/technology/bitcoin-price-drop-crypto-market.html
 
 **The Flour Tortilla Revolution is Here**\
 `And for some reason the best ones are in Brooklyn. Apologies to the other boroughs.`\
 https://nytimes.com/2026/02/05/dining/the-flour-tortilla-revolution-is-here.html
 
-**Giannis posts message after Bucks elect not to trade him: 'Legends don't chase'**\
-`The Bucks' superstar made his feelings clear after the team chose to keep him past the 2026 NBA trade deadline.`\
+**Giannis after Bucks elect not to trade him: 'Legends don't chase'**\
+`The Bucks superstar made his feelings clear after the team chose to keep him past the 2026 NBA trade deadline.`\
 https://nytimes.com/athletic/7025354/2026/02/05/giannis-antetokounmpo-reaction-bucks-social-media/
 
 **Villa's Watkins and Onana expected to be available for Bournemouth game**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7025202/2026/02/05/sec-football-sports-revenue-bill
 **At Least 67 People Are Rescued From Stuck Gondolas at a New York Ski Resort**\
 `A mechanical failure at the Gore Mountain resort in the Adirondacks left guests in about 20 gondolas hovering above the snow for several hours.`\
 https://nytimes.com/2026/02/05/nyregion/skiers-gondola-new-york-gore-mountain.html
-
-**Musk’s Starlink Blocks Russian Troops’ Internet Access, at Ukraine’s Request**\
-`Moscow’s forces fighting in Ukraine are experiencing outages on the front, Russian military bloggers said, days after Elon Musk said his satellite service had cut them off.`\
-https://nytimes.com/2026/02/05/world/europe/starlink-blocks-russian-troops-access.html
-
-**How Much Do You Know About the Winter Olympics? Take Our Quiz.**\
-`As top athletes prepare to test their limits in Milan and Cortina d’Ampezzo, why not take a minute to test your knowledge of Winter Olympics trivia?`\
-https://nytimes.com/2026/02/05/travel/winter-olympics-games-quiz.html
 

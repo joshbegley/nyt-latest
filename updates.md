@@ -1,3 +1,19 @@
+**How Chefs Are Making Chocolate Without Cacao Beans**\
+`Plus: Swedish rugs with curves, Jeremy Liebman’s domestic portraits and more recommendations from T Magazine.`\
+https://nytimes.com/2026/02/05/t-magazine/chocolate-without-cacao-beans.html
+
+**Federal Judge Blocks Texas Law Targeting Critics of Fossil Fuels**\
+`The court ruled that it was unconstitutional to bar state agencies from investing with firms that the state had accused of boycotting the oil industry.`\
+https://nytimes.com/2026/02/05/climate/texas-esg-lawsuit.html
+
+**Crypto Takes a Deep Slide Despite Trump’s Support**\
+`Despite strong backing from the White House, the price of Bitcoin is now lower than when President Trump was elected in 2024.`\
+https://nytimes.com/2026/02/05/technology/bitcoin-price-drop-crypto-market.html
+
+**Giannis after Bucks elect not to trade him: 'Legends don't chase'**\
+`The Bucks superstar made his feelings clear after the team chose to keep him past the 2026 NBA trade deadline.`\
+https://nytimes.com/athletic/7025354/2026/02/05/giannis-antetokounmpo-reaction-bucks-social-media/
+
 **Bitcoin Slides as Industry Frets About Another ‘Crypto Winter’**\
 `Despite strong support from the White House, the price of Bitcoin is now lower than when President Trump was elected in 2024.`\
 https://nytimes.com/2026/02/05/technology/bitcoin-price-drop-crypto-market.html
