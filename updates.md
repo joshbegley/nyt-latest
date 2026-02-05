@@ -1,3 +1,7 @@
+**Cleveland Guardians 2026 top 20 prospects: Angel Genao, Travis Bazzana lead the way**\
+`The Guardians still have a top-five farm system thanks to a balance of promising position players and pitchers.`\
+https://nytimes.com/athletic/7016814/2026/02/05/guardians-2026-top-20-prospects-keith-law/
+
 **Premier League launches new LGBTQ+ initiative for next two gameweeks**\
 `The Athletic revealed plans for the league's new campaign last month, including a pride-themed football which could be used next season.`\
 https://nytimes.com/athletic/7023579/2026/02/05/premier-league-lgbtq-switchboard/
