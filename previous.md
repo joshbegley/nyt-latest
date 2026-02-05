@@ -1,3 +1,11 @@
+**Anthony Davis deal makes one thing clear — the Mavericks are Cooper Flagg's team**\
+`Dallas may take a step back in the present. But moving Davis means the future is all about the 19-year-old, as it should be.`\
+https://nytimes.com/athletic/7022423/2026/02/04/anthony-davis-trade-cooper-flagg-mavericks/
+
+**A Canadian Pop Star’s New Olympics Ad Has Some Elbows Up**\
+`Tate McRae’s promotional video for NBC, in which she name checks Team USA athletes, has drawn the ire of some Canadians as the country’s relationship with the United States hits new lows.`\
+https://nytimes.com/2026/02/04/world/canada/tate-mcrae-olympics-ad-team-usa.html
+
 **NBA Trade Board 4.0: After flurry of deals, 10 players who could be on the move**\
 `With the Bucks officially listening to offers on Giannis Antetokounmpo, there is no one else who can top this list.`\
 https://nytimes.com/athletic/7019611/2026/02/04/nba-trade-deadline-players-available-giannis-antetokounmpo/
@@ -30,12 +38,4 @@ https://nytimes.com/2026/02/04/opinion/spain-migrants-europe.html
 `<p>Women’s Olympic hockey begins Thursday, with 10 nations competing in this year’s tournament. But medal-watchers will mostly be paying attention to the two perennial powerhouses: Canada and the United States.</p>
 `\
 https://nytimes.com/athletic/7002270/2026/02/04/2026-winter-olympics-womens-hockey-standings-and-forecast/
-
-**Man City to ask EFL to allow Guehi to play in Carabao Cup final - Guardiola**\
-`The England defender joined City after the semi-final first leg and will therefore be ineligible to face Arsenal in the final on March 22.`\
-https://nytimes.com/athletic/7022482/2026/02/04/man-city-guardiola-carabao-cup-marc-guehi-arsenal-inelgible-final/
-
-**Justices Allow California to Use a Voting Map That Helps Democrats**\
-`Also, hundreds of federal agents are set to withdraw from Minneapolis. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2026/02/04/briefing/supreme-court-california-federal-agents-minnesota.html
 

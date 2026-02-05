@@ -1,3 +1,11 @@
+**Anthony Davis deal makes one thing clear — the Mavericks are Cooper Flagg's team**\
+`Dallas may take a step back in the present. But moving Davis means the future is all about the 19-year-old, as it should be.`\
+https://nytimes.com/athletic/7022423/2026/02/04/anthony-davis-trade-cooper-flagg-mavericks/
+
+**A Canadian Pop Star’s New Olympics Ad Has Some Elbows Up**\
+`Tate McRae’s promotional video for NBC, in which she name checks Team USA athletes, has drawn the ire of some Canadians as the country’s relationship with the United States hits new lows.`\
+https://nytimes.com/2026/02/04/world/canada/tate-mcrae-olympics-ad-team-usa.html
+
 **NBA Trade Board 4.0: After flurry of deals, 10 players who could be on the move**\
 `With the Bucks officially listening to offers on Giannis Antetokounmpo, there is no one else who can top this list.`\
 https://nytimes.com/athletic/7019611/2026/02/04/nba-trade-deadline-players-available-giannis-antetokounmpo/
