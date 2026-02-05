@@ -1,3 +1,11 @@
+**Canadian snowboarder leaves on stretcher after Olympic training injury**\
+`The three-time Olympic snowboarding medalist was injured during big air training in Livigno, Italy.`\
+https://nytimes.com/athletic/7022563/2026/02/04/mark-mcmorris-crash-snowboard-olympics-training/
+
+**Eagles OL coach Jeff Stoutland, a Philly mainstay, is leaving the organization**\
+`Stoutland, who helped guide one of the NFL's best lines, called his 13 years with the Eagles 'the great privilege of my coaching career.'`\
+https://nytimes.com/athletic/7022673/2026/02/04/eagles-ol-coach-jeff-stoutland-leaving/
+
 **Anthony Davis deal makes one thing clear — the Mavericks are Cooper Flagg's team**\
 `Dallas may take a step back in the present. But moving Davis means the future is all about the 19-year-old, as it should be.`\
 https://nytimes.com/athletic/7022423/2026/02/04/anthony-davis-trade-cooper-flagg-mavericks/
@@ -16,7 +24,7 @@ https://nytimes.com/athletic/7022474/2026/02/04/gavin-mckenna-felony-charges-arr
 
 **Trump Says His Unpredictable Style Gives Him Leverage. But It Has a Cost.**\
 `A year into President Trump’s second term, his threats, retreats, twists and turns appear to be wearing on allies and adversaries.`\
-https://nytimes.com/2026/02/04/us/politics/trump-says-his-unpredictable-style-gives-him-leverage-but-it-has-a-cost.html
+https://nytimes.com/2026/02/04/us/politics/trump-deals-allies-adversaries.html
 
 **Newsom, Shapiro and Other Democrats Whip Up the 2028 Book Buzz**\
 `A number of potential presidential candidates are releasing memoirs as the shadow primary heats up.`\
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/7022445/2026/02/04/tush-push-troy-vincent-nfl-offic
 **Senators Accuse Equifax of ‘Price-Gouging’ Medicaid Programs**\
 `The company’s data will be essential for many states to comply with new work requirements for the health insurance program that take effect next year.`\
 https://nytimes.com/2026/02/04/health/equifax-medicaid-states-senators.html
-
-**I’m the Prime Minister of Spain. This Is Why the West Needs Migrants.**\
-`In Spain, it is our duty to become the welcoming and tolerant society our ancestors would have hoped to find on the other side of our borders.`\
-https://nytimes.com/2026/02/04/opinion/spain-migrants-europe.html
-
-**2026 Winter Olympics women’s hockey standings and forecast**\
-`<p>Women’s Olympic hockey begins Thursday, with 10 nations competing in this year’s tournament. But medal-watchers will mostly be paying attention to the two perennial powerhouses: Canada and the United States.</p>
-`\
-https://nytimes.com/athletic/7002270/2026/02/04/2026-winter-olympics-womens-hockey-standings-and-forecast/
 

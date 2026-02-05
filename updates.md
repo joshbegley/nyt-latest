@@ -1,3 +1,15 @@
+**Canadian snowboarder leaves on stretcher after Olympic training injury**\
+`The three-time Olympic snowboarding medalist was injured during big air training in Livigno, Italy.`\
+https://nytimes.com/athletic/7022563/2026/02/04/mark-mcmorris-crash-snowboard-olympics-training/
+
+**Eagles OL coach Jeff Stoutland, a Philly mainstay, is leaving the organization**\
+`Stoutland, who helped guide one of the NFL's best lines, called his 13 years with the Eagles 'the great privilege of my coaching career.'`\
+https://nytimes.com/athletic/7022673/2026/02/04/eagles-ol-coach-jeff-stoutland-leaving/
+
+**Trump Says His Unpredictable Style Gives Him Leverage. But It Has a Cost.**\
+`A year into President Trump’s second term, his threats, retreats, twists and turns appear to be wearing on allies and adversaries.`\
+https://nytimes.com/2026/02/04/us/politics/trump-deals-allies-adversaries.html
+
 **Anthony Davis deal makes one thing clear — the Mavericks are Cooper Flagg's team**\
 `Dallas may take a step back in the present. But moving Davis means the future is all about the 19-year-old, as it should be.`\
 https://nytimes.com/athletic/7022423/2026/02/04/anthony-davis-trade-cooper-flagg-mavericks/
