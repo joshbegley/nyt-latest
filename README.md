@@ -1,3 +1,15 @@
+**What Teenagers Are Saying About the Killings in Minneapolis**\
+`In the wake of two fatal shootings of U.S. citizens by federal agents, we invited students to share what they are feeling about America.`\
+https://nytimes.com/2026/02/05/learning/what-teenagers-are-saying-about-the-killings-in-minneapolis.html
+
+**Brayden Point out for Team Canada at Olympics, will be replaced by Seth Jarvis**\
+`Point was ruled out of the Olympics because of an injury.`\
+https://nytimes.com/athletic/7025440/2026/02/05/brayden-point-seth-jarvis-canada-olympics-roster/
+
+**Police details of Gavin McKenna's arrest outlined in criminal complaint**\
+`A probable cause affidavit alleges that McKenna punched a man twice after "an exchange of words."`\
+https://nytimes.com/athletic/7025219/2026/02/05/gavin-mckenna-arrest-police-details-criminal-complaint/
+
 **With Kawhi Leonard still standing, Clippers pivot to what's next**\
 `The Clippers left the trade deadline with Kawhi Leonard still in place and a clearer picture of their future. `\
 https://nytimes.com/athletic/7025266/2026/02/05/kawhi-leonard-clippers-trade-deadline/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7024796/2026/02/05/nba-trade-deadline-winners-caval
 **How Chefs Are Making Chocolate Without Cacao Beans**\
 `Plus: Swedish rugs with curves, Jeremy Liebman’s domestic portraits and more recommendations from T Magazine.`\
 https://nytimes.com/2026/02/05/t-magazine/chocolate-without-cacao-beans.html
-
-**Federal Judge Blocks Texas Law Targeting Critics of Fossil Fuels**\
-`The court ruled that it was unconstitutional to bar state agencies from investing with firms that the state had accused of boycotting the oil industry.`\
-https://nytimes.com/2026/02/05/climate/texas-esg-lawsuit.html
-
-**Crypto Takes a Deep Slide Despite Trump’s Support**\
-`The price of Bitcoin is now lower than when President Trump was elected in 2024, raising concerns of a new ‘crypto winter’ in the industry.`\
-https://nytimes.com/2026/02/05/technology/bitcoin-price-drop-crypto-market.html
-
-**The Flour Tortilla Revolution is Here**\
-`And for some reason the best ones are in Brooklyn. Apologies to the other boroughs.`\
-https://nytimes.com/2026/02/05/dining/the-flour-tortilla-revolution-is-here.html
 

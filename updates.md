@@ -1,3 +1,7 @@
+**The Flour Tortilla Revolution is Here**\
+`And for some reason the best ones are in Brooklyn. Apologies to the other boroughs.`\
+https://nytimes.com/2026/02/05/dining/the-flour-tortilla-revolution-is-here.html
+
 **Police details of Gavin McKenna's arrest outlined in criminal complaint**\
 `A probable cause affidavit alleges that McKenna punched a man twice after "an exchange of words."`\
 https://nytimes.com/athletic/7025219/2026/02/05/gavin-mckenna-arrest-police-details-criminal-complaint/

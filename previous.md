@@ -1,7 +1,3 @@
-**Police details of Gavin McKenna's arrest outlined in criminal complaint**\
-`A probable cause affidavit alleges that McKenna punched a man twice after "an exchange of words."`\
-https://nytimes.com/athletic/7025219/2026/02/05/gavin-mckenna-arrest-police-details-criminal-complaint/
-
 **With Kawhi Leonard still standing, Clippers pivot to what's next**\
 `The Clippers left the trade deadline with Kawhi Leonard still in place and a clearer picture of their future. `\
 https://nytimes.com/athletic/7025266/2026/02/05/kawhi-leonard-clippers-trade-deadline/
@@ -37,4 +33,8 @@ https://nytimes.com/2026/02/05/climate/texas-esg-lawsuit.html
 **Crypto Takes a Deep Slide Despite Trump’s Support**\
 `The price of Bitcoin is now lower than when President Trump was elected in 2024, raising concerns of a new ‘crypto winter’ in the industry.`\
 https://nytimes.com/2026/02/05/technology/bitcoin-price-drop-crypto-market.html
+
+**The Flour Tortilla Revolution is Here**\
+`And for some reason the best ones are in Brooklyn. Apologies to the other boroughs.`\
+https://nytimes.com/2026/02/05/dining/the-flour-tortilla-revolution-is-here.html
 
