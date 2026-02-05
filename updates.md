@@ -1,3 +1,7 @@
+**Silver Is So Pricey That the World’s Largest Jeweler Is Switching to Platinum**\
+`Pandora, known for its charm bracelets, is trying to reduce its exposure to the volatility in silver prices, the latest setback for a company also facing wary consumers and steep tariffs.`\
+https://nytimes.com/2026/02/05/business/pandora-silver-platinum.html
+
 **Mavs' Luka Dončić trade will never make sense, but dealing Anthony Davis turns a page**\
 `A year after the Dončić trade, three months after firing Nico Harrison, this was Dallas' only path forward. To start over.`\
 https://nytimes.com/athletic/7023173/2026/02/05/mavericks-anthony-davis-trade-luka-doncic-closure/
