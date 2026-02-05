@@ -1,3 +1,7 @@
+**How Much Do You Know About the Winter Olympics? Take Our Quiz.**\
+`As top athletes prepare to test their limits in Milan and Cortina d’Ampezzo, why not take a minute to test your knowledge of Winter Olympics trivia?`\
+https://nytimes.com/2026/02/05/travel/winter-olympics-games-quiz.html
+
 **At Winter Olympics, Italy's remarkable mixed doubles curling winning streak ends**\
 `Italy's team lost for the first time at a major international event after perfect runs at the 2022 Olympics and 2025 world championships.`\
 https://nytimes.com/athletic/7024993/2026/02/05/winter-olympics-italy-mixed-doubles-curling-winning-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7025243/2026/02/05/hornets-vs-rockets-stream-how-to
 **Mayor of Tequila, Mexico, Is Accused of Shaking Down Tequila Companies**\
 `The mayor of the city that is the birthplace of the bottled spirit is the latest official to be arrested as Mexico targets cartel-related corruption.`\
 https://nytimes.com/2026/02/05/world/americas/mexico-tequila-mayor-arrested.html
-
-**Penguins rallying behind former GM Craig Patrick after recent stroke**\
-`Penguins past and present are supporting the former general manager, who remains in the hospital after a severe stroke.`\
-https://nytimes.com/athletic/7024015/2026/02/05/penguins-craig-patrick-stroke-nhl/
 
