@@ -1,3 +1,7 @@
+**New Jersey 11th Congressional District Special Primary Election Results**\
+`Get live results and maps from the 2026 New Jersey special primary election.`\
+https://nytimes.com/interactive/2026/02/05/us/elections/results-new-jersey-us-house-11-special.html
+
 **Ivica Zubac traded from Clippers to Pacers, filling Indiana's void at center: Source**\
 `The Clippers will acquire Bennedict Mathurin, Isaiah Jackson and multiple first-round picks in the trade.`\
 https://nytimes.com/athletic/7025072/2026/02/05/clippers-trade-ivica-zubac-bennedict-mathurin-pacers-nba/
@@ -9,10 +13,6 @@ https://nytimes.com/athletic/7019362/2026/02/05/tarik-skubal-arbitration-32-mill
 **After Failed Rebrand, Philadelphia Museum of Art Returns to Its Old Name**\
 `After an unpopular name change, and its firing of the director responsible for it, the museum is working to rehabilitate its image.`\
 https://nytimes.com/2026/02/05/arts/design/philadelphia-art-museum-rebrand-sasha-suda.html
-
-**New Jersey 11th Congressional District Special Primary Election Results**\
-`Get live results and maps from the 2026 New Jersey special primary election.`\
-https://nytimes.com/interactive/2026/02/05/us/elections/results-new-jersey-us-house-11-special.html
 
 **Why Timberwolves' Giannis Antetokounmpo pursuit fizzled, and the pivot to Ayo Dosunmu**\
 `After exploring a potential blockbuster for Giannis Antetokounmpo, the Timberwolves instead found a way to bolster their bench. `\
