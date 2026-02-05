@@ -1,5 +1,5 @@
 **Luka Garza has a 'conspiracy theory' about Michigan State's tougher rim**\
-`The Celtics center and 2021 National Player of the Years the Spartans move the rim around to affect how games go.`\
+`The former Iowa center says he thinks the Spartans have one tight rim that moves around.`\
 https://nytimes.com/athletic/7022735/2026/02/04/luka-garza-michigan-state-rim-tampering-allegations/
 
 **NCAA denies Ole Miss' appeal for 6th year for QB Trinidad Chambliss**\
