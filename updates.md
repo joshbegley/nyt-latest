@@ -1,3 +1,23 @@
+**What Restrictions Are Democrats Demanding for Immigration Agents?**\
+`Democrats say they will not support a spending bill to keep the Homeland Security Department running without new restrictions on federal agents.`\
+https://nytimes.com/2026/02/05/us/politics/democrats-dhs-funding-immigration.html
+
+**Leading sports investment firm Arctos acquired by private equity giant**\
+`The acquisition gives KKR a range of ownership across virtually every major pro sports league.`\
+https://nytimes.com/athletic/7024061/2026/02/05/arctos-partners-kkr-private-equity-investment/
+
+**'Fiorentina have a serious set of owners': Paratici on why he left Spurs**\
+`Paratici has revealed Fiorentina’s late owner Rocco Commisso didn’t persuade him to leave Tottenham. It was the other way around.`\
+https://nytimes.com/athletic/7024030/2026/02/05/fabio-paratici-tottenham-fiorentina-sporting-director/
+
+**Jack Hughes expected to be available for Team USA at Olympics: Sources**\
+`Hughes is expected to be available for the Americans in Milan after suffering a minor lower-body injury last month.`\
+https://nytimes.com/athletic/7024042/2026/02/05/jack-hughes-team-usa-olympics/
+
+**Chelsea's Gittens set for 'long-term' absence after hamstring tear**\
+`Head coach Liam Rosenior confirmed the injury at a news conference on Thursday ahead of Saturday's trip to Wolves.`\
+https://nytimes.com/athletic/7024036/2026/02/05/jamie-gittens-injury-chelsea/
+
 **Twins roster projection 2.0: Weak spots and position battles as spring training nears**\
 `It's a disjointed Twins roster, with a logjam of left-handed corner bats, a lack of reliable relievers and plenty of big question marks.`\
 https://nytimes.com/athletic/7023830/2026/02/05/twins-2026-roster-projection-spring-training/
