@@ -1,3 +1,7 @@
+**Dodgers expected to visit White House to celebrate World Series win: Source**\
+`The Dodgers have previously visited the White House in 2021 with President Joe Biden and last April with President Donald J. Trump.`\
+https://nytimes.com/athletic/7023024/2026/02/04/los-angeles-dodgers-white-house-visit/
+
 **What we learned from Chris Drury's comments, plus an inside look at the Panarin trade**\
 `The Rangers GM made his first public comments since training camp after trading Artemi Panarin to the Kings.`\
 https://nytimes.com/athletic/7022854/2026/02/04/rangers-chris-drury-gm-comments-panarin-trade/
