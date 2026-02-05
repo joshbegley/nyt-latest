@@ -1,3 +1,15 @@
+**Nancy Guthrie Kidnapping Shows Limits of Tracking Pacemakers in Police Work**\
+`The heart devices do not track location, nor do they transmit across large distances.`\
+https://nytimes.com/2026/02/05/health/savannah-guthrie-mom-nancy-missing-pacemaker.html
+
+**Bad Bunny on Super Bowl halftime show: 'It’s going to be fun, it’s going to be easy'**\
+`Fresh off winning a Grammy Award for Album of the Year, Bad Bunny discussed headlining the Super Bowl halftime show on Sunday.`\
+https://nytimes.com/athletic/7025357/2026/02/05/bad-bunny-super-bowl-halftime-show-grammy-awards/
+
+**Seth Jarvis to replace Brayden Point on Team Canada at Olympics**\
+`Jarvis secured a late invite to join Team Canada at the Olympics after Point was forced to pull out of the event due to a knee injury.`\
+https://nytimes.com/athletic/7025440/2026/02/05/brayden-point-seth-jarvis-canada-olympics-roster/
+
 **Bad Bunny on Super Bowl halftime show: 'It’s going to be fun, it’s going to be easy'**\
 `Fresh off winning a Grammy Award for Album of the Year, Bad Bunny is now preparing to headline the Super Bowl halftime show on Sunday.`\
 https://nytimes.com/athletic/7025357/2026/02/05/bad-bunny-super-bowl-halftime-show-grammy-awards/
