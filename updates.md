@@ -1,3 +1,7 @@
+**The NBA trade deadline has suddenly gotten busy. Here's why teams got active**\
+`Teams are swinging deals 72, 48 hours before the arrival of the trade deadline, scheduled for 3 p.m. ET on Feb. 5.`\
+https://nytimes.com/athletic/7022709/2026/02/04/nba-trade-deadline-front-office-moves-timing/
+
 **New York City Partners with W.H.O. as U.S. Withdraws From Global Effort**\
 `City health authorities are joining a network that counters new pathogens and emerging outbreaks.`\
 https://nytimes.com/2026/02/04/nyregion/nyc-health-world-health-organization.html

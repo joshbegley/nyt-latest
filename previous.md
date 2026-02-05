@@ -1,3 +1,7 @@
+**The NBA trade deadline has suddenly gotten busy. Here's why teams got active**\
+`Teams are swinging deals 72, 48 hours before the arrival of the trade deadline, scheduled for 3 p.m. ET on Feb. 5.`\
+https://nytimes.com/athletic/7022709/2026/02/04/nba-trade-deadline-front-office-moves-timing/
+
 **New York City Partners with W.H.O. as U.S. Withdraws From Global Effort**\
 `City health authorities are joining a network that counters new pathogens and emerging outbreaks.`\
 https://nytimes.com/2026/02/04/nyregion/nyc-health-world-health-organization.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/04/us/politics/trump-deals-allies-adversaries.html
 **Newsom, Shapiro and Other Democrats Whip Up the 2028 Book Buzz**\
 `A number of potential presidential candidates are releasing memoirs as the shadow primary heats up.`\
 https://nytimes.com/2026/02/04/us/politics/newsom-shapiro-democrats-2028-memoirs.html
-
-**NFL executive Troy Vincent says tush push is 'difficult' to officiate**\
-`NFL executives are weighing the viability of the tush push due to prior controversial calls, but players are less concerned about the play.`\
-https://nytimes.com/athletic/7022445/2026/02/04/tush-push-troy-vincent-nfl-officiating/
 
