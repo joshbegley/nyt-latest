@@ -1,3 +1,23 @@
+**Trump Administration Live Updates: Democrats to Lay Out Demands For Restrictions on Immigration Agents**\
+``\
+https://nytimes.com/live/2026/02/05/us/trump-news
+
+**The moments that made Matthew Stafford an MVP finalist at age 37**\
+`Stafford had a back issue that caused him to miss training camp. Then, in Year 17, he played every single game and put up career numbers. `\
+https://nytimes.com/athletic/7022629/2026/02/05/matthew-stafford-rams-mvp-finalist/
+
+**How to watch figure skating at the 2026 Winter Olympics**\
+`A deep U.S. Figure Skating roster can contend across all disciplines, but the nation won't have an easy path to gold. `\
+https://nytimes.com/athletic/6997207/2026/02/05/figure-skating-winter-olympics-2026-how-to-watch/
+
+**Finland-Canada Olympic women's hockey game postponed after norovirus breakout**\
+`MILAN – The women’s Olympic hockey game between Canada and Finland scheduled for Thursday night has been postponed after members of Team Finland contracted norovirus.`\
+https://nytimes.com/athletic/7023859/2026/02/05/winter-olympics-women-hockey-finland-canada-postponed-sick-roster-norovirus/
+
+**Starmer Faces Storm of Criticism Over Ties Between Ex-Ambassador and Epstein**\
+`Newly released documents detailed connections between the convicted sex offender Jeffrey Epstein and Peter Mandelson, who was picked to be the U.S. envoy by the British prime minister, Keir Starmer.`\
+https://nytimes.com/2026/02/05/world/europe/epstein-files-mandelson-starmer-uk.html
+
 **The 5 issues with college football's calendar, including one with 'a lot of traction'**\
 `Here's a primer on the calendar issues, including momentum for moving the start of the season up a week for most teams.`\
 https://nytimes.com/athletic/7023732/2026/02/05/college-football-calendar-week-0-cfp/

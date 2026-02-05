@@ -11,7 +11,7 @@ https://nytimes.com/athletic/7022629/2026/02/05/matthew-stafford-rams-mvp-finali
 https://nytimes.com/athletic/6997207/2026/02/05/figure-skating-winter-olympics-2026-how-to-watch/
 
 **Finland-Canada Olympic women's hockey game postponed after norovirus breakout**\
-`MILAN – The women’s Olympic hockey game between Canada and Finland scheduled for Thursday night has been postponed after members of Team Finland contracted norovirus.`\
+`MILAN — The women’s Olympic hockey game between Canada and Finland scheduled for Thursday night has been postponed after members of Team Finland contracted norovirus.`\
 https://nytimes.com/athletic/7023859/2026/02/05/winter-olympics-women-hockey-finland-canada-postponed-sick-roster-norovirus/
 
 **Starmer Faces Storm of Criticism Over Ties Between Ex-Ambassador and Epstein**\
