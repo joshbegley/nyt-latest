@@ -1,3 +1,7 @@
+**Blackhawks stumble into Olympic break: 10 thoughts**\
+`The Blackhawks fell in a 4-0 shutout to the suddenly surging Blue Jackets in their final game before the Olympics.`\
+https://nytimes.com/athletic/7022670/2026/02/04/blackhawks-olympic-break-reset-bedard-blue-jackets/
+
 **Framber Valdez's signing could be the statement move the Tigers needed**\
 `Signing Valdez marks the biggest free-agent deal of Scott Harris' tenure as Tigers president of baseball operations.`\
 https://nytimes.com/athletic/7023082/2026/02/04/detroit-tigers-framber-valdez-signing-impact/
