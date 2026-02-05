@@ -1,3 +1,11 @@
+**Laila Edwards becomes first Black woman to play for USA at Olympic hockey tournament**\
+`Edwards has broken a barrier that had stood since women's hockey debuted at the Olympics in 1998.`\
+https://nytimes.com/athletic/7023942/2026/02/05/olympic-hockey-laila-edwards-debut-usa/
+
+**Team Canada's Brad Marchand 'ready to go' as Brayden Point decision looms**\
+`"There’s no rush to this right now, so we’re not rushing,’’ Team Canada GM Doug Armstrong said of making a final call on Point. `\
+https://nytimes.com/athletic/7024250/2026/02/05/canada-olympics-brad-marchand-brayden-point-injury/
+
 **Carrick: Man Utd to use schedule gaps in 'different ways' after friendly talks**\
 `United have been exploring options to play mid-season friendlies since the autumn, as revealed by The Athletic in October.`\
 https://nytimes.com/athletic/7024255/2026/02/05/manchester-united-schedule-gaps-friendlies/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/05/science/lost-science-yracheta-indigenous.html
 **How Epstein Used Luxury Goods to Curry Favor**\
 `Goyard wallets, Apple Watches and cashmere sweaters were just some of the items sent to friends and associates.`\
 https://nytimes.com/2026/02/05/style/esptein-files-luxury-brands-gifts-fashion.html
-
-**BYU coach condemns anti-Mormon chants at Oklahoma State game**\
-`The derogatory, three-word chant has been a recurring issue during road games for BYU athletics.`\
-https://nytimes.com/athletic/7024023/2026/02/05/college-basketball-byu-anti-mormon-chants-big-12/
-
-**What Restrictions Are Democrats Demanding for Immigration Agents?**\
-`Democrats say they will not support a spending bill to keep the Homeland Security Department running without new restrictions on federal agents.`\
-https://nytimes.com/2026/02/05/us/politics/democrats-dhs-funding-immigration.html
 
