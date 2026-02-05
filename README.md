@@ -1,3 +1,11 @@
+**‘It’s Collective Punishment’: Iran Exacts Heavy Price on Protest Supporters**\
+`The authorities are making mass arrests, seizing assets and hunting down doctors who treated protesters. Some Iranians keep showing defiance anyway.`\
+https://nytimes.com/2026/02/05/world/middleeast/iran-protests-crackdown.html
+
+**Deadline rewind: How do those deals for Luka, Jimmy Butler and others look now?**\
+`With a year of hindsight, here's a reassessment of the 25 deals that led up to the 2025 deadline.`\
+https://nytimes.com/athletic/6936016/2026/02/05/nba-trade-deadline-rewind-luka-doncic-jimmy-butler/
+
 **Knicks Outlast Nuggets in Double Overtime**\
 `In the N.B.A. on Wednesday, the New York Knicks beat the Denver Nuggets in double overtime, and Victor Wembanyama led the San Antonio Spurs to another win over the reigning league champion, the Oklahoma City Thunder.`\
 https://nytimes.com/video/sports/basketball/100000010691630/knicks-outlast-nuggets-in-double-overtime.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/02/05/realestate/upper-west-side-one-bedroo
 **Why Ending Roe Wasn’t Enough for the Pro-Life Movement**\
 `Activists won the legal battle. Are they losing the culture war?`\
 https://nytimes.com/2026/02/05/opinion/pro-life-roe-v-wade-lila-rose.html
-
-**A 60-Year Arc at The Washington Post, From Watergate to the Weather**\
-`Martin Weil, one of hundreds being laid off at The Post, has worked on local news there since 1965, witnessing the paper’s rise and now retrenchment.`\
-https://nytimes.com/2026/02/05/business/media/washington-post-martin-weil-metro.html
-
-**When You’re Undocumented, Turning 18 Is Different**\
-`When turning 18 brings its own set of pressures.`\
-https://nytimes.com/interactive/2026/02/05/opinion/ice-family-separation-birthday-chapter4.html
 
