@@ -1,3 +1,11 @@
+**U.S. and Iran to Hold Talks in Oman on Friday**\
+`The White House confirmed a meeting would take place after days of conflicting reports on the talks’ timing, location and format.`\
+https://nytimes.com/2026/02/04/world/middleeast/iran-us-talks-oman.html
+
+**As NBA trade deadline looms, what do terms like 'apron' actually mean?**\
+`Here’s a quick (but far from complete) guide to what a few of those terms mean and how they impact team building.`\
+https://nytimes.com/athletic/7022525/2026/02/04/nba-tax-apron-glossary-cba/
+
 **The NBA trade deadline has suddenly gotten busy. Here's why teams got active**\
 `Teams are swinging deals 72, 48 hours before the arrival of the trade deadline, scheduled for 3 p.m. ET on Feb. 5.`\
 https://nytimes.com/athletic/7022709/2026/02/04/nba-trade-deadline-front-office-moves-timing/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7019611/2026/02/04/nba-trade-deadline-players-avail
 **Top NHL Draft prospect Gavin McKenna charged with felony assault**\
 `McKenna, who turned 18 on Dec. 20, is also facing a misdemeanor assault charge and summary charges of harassment and disorderly conduct.`\
 https://nytimes.com/athletic/7022474/2026/02/04/gavin-mckenna-felony-charges-arrested-penn-state-hockey/
-
-**Trump Says His Unpredictable Style Gives Him Leverage. But It Has a Cost.**\
-`A year into President Trump’s second term, his threats, retreats, twists and turns appear to be wearing on allies and adversaries.`\
-https://nytimes.com/2026/02/04/us/politics/trump-deals-allies-adversaries.html
-
-**Newsom, Shapiro and Other Democrats Whip Up the 2028 Book Buzz**\
-`A number of potential presidential candidates are releasing memoirs as the shadow primary heats up.`\
-https://nytimes.com/2026/02/04/us/politics/newsom-shapiro-democrats-2028-memoirs.html
 
