@@ -1,3 +1,7 @@
+**Iranian Nobel Peace Laureate Starts New Hunger Strike in Prison**\
+`The rights activist Narges Mohammadi is protesting her continued detention, her family said. She was arrested again in December after being given leave from prison for medical treatment.`\
+https://nytimes.com/2026/02/05/world/middleeast/iran-narges-mohammadi-prison-hunger-strike.html
+
 **A Top Lawyer’s Fall Shows Growing Fallout From Epstein Files**\
 `Brad Karp’s resignation as chairman of the law firm Paul Weiss underscores a further reflection in the corporate world over the latest revelations.`\
 https://nytimes.com/2026/02/05/business/dealbook/karp-paul-weiss-epstein.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7023732/2026/02/05/college-football-calendar-week-0
 **With Eugenio Suárez aboard, Reds complete their offseason checklist**\
 `The Reds' front office outlined three goals at the beginning of the offseason, and each of those three needs were addressed.`\
 https://nytimes.com/athletic/7022550/2026/02/05/cincinnati-reds-offseason-checklist-complete/
-
-**The biomechnical secrets behind Matheus Cunha's explosive shooting**\
-`Breaking down the four key elements of the Brazilian's exceptional technique`\
-https://nytimes.com/athletic/7017810/2026/02/05/matheus-cunha-manchester-united-shooting-technique/
 
