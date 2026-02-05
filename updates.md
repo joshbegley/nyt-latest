@@ -1,3 +1,19 @@
+**'We both want a championship': Donovan Mitchell opens up about the Cavs' bet on James Harden**\
+`Cleveland believes trading for Harden can change its season. Harden's partnership with Mitchell will decide if it actually does. `\
+https://nytimes.com/athletic/7023034/2026/02/05/james-harden-donovan-mitchell-cavaliers-trade/
+
+**The New York Times in Print for Thursday, Feb. 5, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/05/todays-new-york-times
+
+**How Much Longer Can Mexico Walk Trump’s Tightrope?**\
+`Trump wants total war on Mexico’s cartels. Sheinbaum won’t give it to him.`\
+https://nytimes.com/2026/02/05/opinion/mexico-sheinbaum-trump-cartels.html
+
+**Knicks trading Guerschon Yabusele to Bulls for Dalen Terry: Sources**\
+`Yabusele was the Knicks' biggest free agent signing this summer.`\
+https://nytimes.com/athletic/7023383/2026/02/05/guerschon-yabusele-trade-knicks-bulls/
+
 **Knicks trading Guerschon Yabusele to Bulls for Dalen Terry: Sources**\
 `Guerschon Yabusele was the Knicks' biggest free agent signing this summer, and he's already on the move.`\
 https://nytimes.com/athletic/7023383/2026/02/05/guerschon-yabusele-trade-knicks-bulls/

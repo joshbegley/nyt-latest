@@ -1,5 +1,17 @@
+**'We both want a championship': Donovan Mitchell opens up about the Cavs' bet on James Harden**\
+`Cleveland believes trading for Harden can change its season. Harden's partnership with Mitchell will decide if it actually does. `\
+https://nytimes.com/athletic/7023034/2026/02/05/james-harden-donovan-mitchell-cavaliers-trade/
+
+**The New York Times in Print for Thursday, Feb. 5, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/05/todays-new-york-times
+
+**How Much Longer Can Mexico Walk Trump’s Tightrope?**\
+`Trump wants total war on Mexico’s cartels. Sheinbaum won’t give it to him.`\
+https://nytimes.com/2026/02/05/opinion/mexico-sheinbaum-trump-cartels.html
+
 **Knicks trading Guerschon Yabusele to Bulls for Dalen Terry: Sources**\
-`Guerschon Yabusele was the Knicks' biggest free agent signing this summer, and he's already on the move.`\
+`Yabusele was the Knicks' biggest free agent signing this summer.`\
 https://nytimes.com/athletic/7023383/2026/02/05/guerschon-yabusele-trade-knicks-bulls/
 
 **Tate McRae responds to backlash over Team USA ad: 'I'm Canada down'**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7020688/2026/02/05/fantasy-premier-league-fpl-tips-
 **Warriors-Hawks trade grades: Kristaps Porziņģis is a curious move after Kuminga saga**\
 `It's a very low-stakes move for the Hawks with some considerable upside. Does it make sense for the Warriors?`\
 https://nytimes.com/athletic/7023217/2026/02/05/nba-trade-grades-warriors-hawks-kristaps-porzingis-jonathan-kuminga/
-
-**What will Tyrique George bring to Everton?**\
-`Pacy and direct, the hope is he will stretch play and provide more goal-scoring threat than other wide options, most likely from left wing`\
-https://nytimes.com/athletic/7020882/2026/02/05/tyrique-george-everton-chelsea-profile/
-
-**Back-post crosses: Chelsea's most reliable route to goal in 2025-26**\
-`A tactic that was honed under Enzo Maresca is being successfully utilised by Liam Rosenior too`\
-https://nytimes.com/athletic/7017673/2026/02/05/chelsea-back-post-crosses-maresca-rosenior/
-
-**Pablo Fornals interview: 'I've set up West Ham notifications so I don't miss the score'**\
-`The midfielder may have left the club two years ago but he's still a huge fan. He is also in fine form and is back in the Spain squad`\
-https://nytimes.com/athletic/7015949/2026/02/05/pablo-fornals-west-ham-interview/
 
