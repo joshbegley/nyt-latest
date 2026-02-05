@@ -1,3 +1,7 @@
+**F.D.A. Relaxes Labeling Rules on Food Dyes as Kennedy Pushes Protein**\
+`Food makers will now be able to claim that their products have “no artificial colors,” so long as they use dyes that are not petroleum based.`\
+https://nytimes.com/2026/02/05/us/politics/kennedy-fda-food-dyes-protein.html
+
 **Iranian Nobel Peace Laureate Starts New Hunger Strike in Prison**\
 `The rights activist Narges Mohammadi is protesting her continued detention, her family said. She was arrested again in December after being given leave from prison for medical treatment.`\
 https://nytimes.com/2026/02/05/world/middleeast/iran-narges-mohammadi-prison-hunger-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/05/world/europe/epstein-files-mandelson-starmer-uk.h
 **The 5 issues with college football's calendar, including one with 'a lot of traction'**\
 `Here's a primer on the calendar issues, including momentum for moving the start of the season up a week for most teams.`\
 https://nytimes.com/athletic/7023732/2026/02/05/college-football-calendar-week-0-cfp/
-
-**With Eugenio Suárez aboard, Reds complete their offseason checklist**\
-`The Reds' front office outlined three goals at the beginning of the offseason, and each of those three needs were addressed.`\
-https://nytimes.com/athletic/7022550/2026/02/05/cincinnati-reds-offseason-checklist-complete/
 
