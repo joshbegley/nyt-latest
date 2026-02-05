@@ -1,3 +1,19 @@
+**Mavs' Luka Dončić trade will never make sense, but dealing Anthony Davis turns a page**\
+`A year after the Dončić trade, three months after firing Nico Harrison, this was Dallas' only path forward. To start over.`\
+https://nytimes.com/athletic/7023173/2026/02/05/mavericks-anthony-davis-trade-luka-doncic-closure/
+
+**Jimmy Kimmel Hints ‘Melania’ Box Office Was a ‘Rigged Outcome’**\
+`Late night hosts were skeptical of a $7 million opening weekend for the new Amazon film about the first lady.`\
+https://nytimes.com/2026/02/05/arts/television/late-night-melania-movie.html
+
+**Carabao Cup final odds and favourites: Arsenal slight favourites over Man City**\
+`Arsenal and Manchester City have booked their place in the Carabao Cup final. But who will come out on top?`\
+https://nytimes.com/athletic/7023580/2026/02/05/carabao-cup-final-odds-arsenal-manchester-city/
+
+**Liverpool's Jacquet part of long-term plan after Van Dijk, Slot says**\
+`Van Dijk turns 35 in July and, like fellow defender Joe Gomez, his current deal runs until 2027.`\
+https://nytimes.com/athletic/7023623/2026/02/05/liverpool-news-jacquet-van-dijk-future-plan/
+
 **Liverpool's Jacquet part of plan to prepare for life after Van Dijk - Slot**\
 `Van Dijk turns 35 in July and, like fellow defender Joe Gomez, his current deal runs until 2027.`\
 https://nytimes.com/athletic/7023623/2026/02/05/liverpool-news-jacquet-van-dijk-future-plan/

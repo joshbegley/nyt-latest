@@ -1,3 +1,7 @@
+**Silver Is So Pricey That the World’s Largest Jeweler Is Switching to Platinum**\
+`Pandora, known for its charm bracelets, is trying to reduce its exposure to the volatility in silver prices, the latest setback for a company also facing wary consumers and steep tariffs.`\
+https://nytimes.com/2026/02/05/business/pandora-silver-platinum.html
+
 **Mavs' Luka Dončić trade will never make sense, but dealing Anthony Davis turns a page**\
 `A year after the Dončić trade, three months after firing Nico Harrison, this was Dallas' only path forward. To start over.`\
 https://nytimes.com/athletic/7023173/2026/02/05/mavericks-anthony-davis-trade-luka-doncic-closure/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7016225/2026/02/05/new-york-giants-seven-round-mock
 **Inside Patriots-Seahawks Super Bowl matchup: What to watch when New England has the ball**\
 `Drake Maye's scrambling ability could exploit a Seattle weakness, but zero blitzes may force the QB to hurry decisions.`\
 https://nytimes.com/athletic/7019593/2026/02/05/seahawks-patriots-super-bowl-film-what-to-watch/
-
-**Connecting with Lamar Jackson will be Jesse Minter's biggest task as Ravens' head coach**\
-`There might be no topic more pressing for Minter and OC Declan Doyle than building a rapport with the two-time league MVP.`\
-https://nytimes.com/athletic/7021441/2026/02/05/ravens-coach-jesse-minter-lamar-jackson-declan-doyle/
 
