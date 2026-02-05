@@ -1,3 +1,7 @@
+**The Raptors finally stopped chasing their tail at the NBA trade deadline**\
+`After years of boxing themselves in with deadline moves, the Raptors finally broke free — for now`\
+https://nytimes.com/athletic/7025249/2026/02/05/raptors-2026-nba-trade-deadline/
+
 **Giannis, Ja Morant are staying put. Let's grade those non-moves (for now)**\
 `These non-trades made as much noise as the big transactions we actually saw.`\
 https://nytimes.com/athletic/7025006/2026/02/05/giannis-ja-morant-nba-trade-grades/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/05/movies/the-strangers-chapter-3-review.html
 **At Least 160 Killed in Rural Nigeria Villages, Aid Official Says**\
 `Gunmen killed more than 160 people in two rural villages in Nigeria, according to the Nigerian branch of the Red Cross. The attack was one of the country’s deadliest in recent years.`\
 https://nytimes.com/video/world/africa/100000010692986/nigeria-gunmen-attack-kwara.html
-
-**Family Sues Egypt Over Beating of 2 Brothers at U.N. Mission in New York**\
-`The brothers claim four security guards beat and detained them during a protest in August 2025 outside Egypt’s mission to the United Nations.`\
-https://nytimes.com/2026/02/05/nyregion/brothers-lawsuit-egyptian-government.html
 

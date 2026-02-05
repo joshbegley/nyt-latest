@@ -1,3 +1,7 @@
+**The Raptors finally stopped chasing their tail at the NBA trade deadline**\
+`After years of boxing themselves in with deadline moves, the Raptors finally broke free — for now`\
+https://nytimes.com/athletic/7025249/2026/02/05/raptors-2026-nba-trade-deadline/
+
 **Giannis, Ja Morant are staying put. Let's grade those non-moves (for now)**\
 `These non-trades made as much noise as the big transactions we actually saw.`\
 https://nytimes.com/athletic/7025006/2026/02/05/giannis-ja-morant-nba-trade-grades/
