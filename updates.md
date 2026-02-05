@@ -1,3 +1,7 @@
+**Why a quiet NBA trade deadline may be the best thing for the Rockets**\
+`A quiet approach to the NBA trade deadline may be the smartest way for a Rockets team looking at building its future.`\
+https://nytimes.com/athletic/7023608/2026/02/05/rockets-nba-trade-deadline-quiet/
+
 **Finland-Canada Olympic women's hockey game postponed after norovirus breakout**\
 `MILAN — The women’s Olympic hockey game between Canada and Finland scheduled for Thursday night has been postponed after members of Team Finland contracted norovirus.`\
 https://nytimes.com/athletic/7023859/2026/02/05/winter-olympics-women-hockey-finland-canada-postponed-sick-roster-norovirus/

@@ -1,3 +1,7 @@
+**Why a quiet NBA trade deadline may be the best thing for the Rockets**\
+`A quiet approach to the NBA trade deadline may be the smartest way for a Rockets team looking at building its future.`\
+https://nytimes.com/athletic/7023608/2026/02/05/rockets-nba-trade-deadline-quiet/
+
 **Trump Administration Live Updates: Democrats to Lay Out Demands For Restrictions on Immigration Agents**\
 ``\
 https://nytimes.com/live/2026/02/05/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7017810/2026/02/05/matheus-cunha-manchester-united-
 **Anthony Edwards' heroics lift Timberwolves out of trade rumor-induced fog**\
 `Distracted by the Giannis rumors and saddened by the trade of Mike Conley, the Wolves needed Wednesday's win in Toronto.`\
 https://nytimes.com/athletic/7022136/2026/02/05/anthony-edwards-timberwolves-trade-rumors-toronto/
-
-**Breaking down the Yankees' key position battles heading into spring training**\
-`Much of the roster appears set. However, the bench and — to a greater extent — the bullpen remain unsettled.`\
-https://nytimes.com/athletic/7022546/2026/02/05/yankees-position-battles-spring-training/
 
