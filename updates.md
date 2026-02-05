@@ -1,3 +1,11 @@
+**49ers, Rams will play NFL's first game in Australia next season**\
+`The league announced the matchup Thursday — one of nine international games to be played in 2026.`\
+https://nytimes.com/athletic/7025002/2026/02/05/49ers-rams-melbourne-australia-game-nfl/
+
+**Seahawks' Nick Emmanwori to play in Super Bowl despite ankle injury**\
+`Emmanwori suffered a low-ankle sprain late in Wednesday's practice but does not expect to be limited on Sunday.`\
+https://nytimes.com/athletic/7024987/2026/02/05/nick-emmanwori-injury-seahawks-super-bowl/
+
 **Ivica Zubac traded from Clippers to Pacers, filling Indiana's void at center: Source**\
 `The Clippers will acquire Bennedict Mathurin, Isaiah Jackson and multiple first-round picks in the trade.`\
 https://nytimes.com/athletic/7025072/2026/02/05/clippers-trade-ivica-zubac-bennedict-mathurin-pacers-nba/
