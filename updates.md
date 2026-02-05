@@ -1,3 +1,15 @@
+**Minnesota Twins 2026 top 20 prospects: Walker Jenkins, Emmanuel Rodriguez lead the way**\
+`Injuries had a significant impact on the Twins system in 2025, but there are still plenty of players with significant upside on their list.`\
+https://nytimes.com/athletic/7018621/2026/02/05/minnesota-twins-2026-top-20-prospects-keith-law/
+
+**The Pulse: The NBA is punking the NFL**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7021968/2026/02/05/nba-trade-deadline-davis-kuminga-the-pulse/
+
+**Kansas City Royals 2026 top 20 prospects: Carter Jensen, Blake Mitchell lead the way**\
+`The Royals' list is solid now and could get significantly better soon as their younger prospects come into their own.`\
+https://nytimes.com/athletic/7017406/2026/02/05/kansas-city-royals-2026-top-20-prospects-keith-law/
+
 **Detroit Tigers 2026 top 20 prospects: Kevin McGonigle, Max Clark lead the way**\
 `The Tigers' system is extremely top heavy, but the players at the top of the system have star ceilings.`\
 https://nytimes.com/athletic/7017277/2026/02/05/detroit-tigers-2026-top-20-prospects-keith-law/
