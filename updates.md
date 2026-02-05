@@ -1,3 +1,7 @@
+**Anthony Edwards' heroics lift Timberwolves out of trade rumor-induced fog**\
+`Distracted by the Giannis rumors and saddened by the trade of Mike Conley, the Wolves needed Wednesday's win in Toronto.`\
+https://nytimes.com/athletic/7022136/2026/02/05/anthony-edwards-timberwolves-trade-rumors-toronto/
+
 **Breaking down the Yankees' key position battles heading into spring training**\
 `Much of the roster appears set. However, the bench and — to a greater extent — the bullpen remain unsettled.`\
 https://nytimes.com/athletic/7022546/2026/02/05/yankees-position-battles-spring-training/
