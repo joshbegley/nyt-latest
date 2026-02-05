@@ -1,3 +1,7 @@
+**Padres, Miguel Andujar agree to one-year deal, add proven LHP hitter: Source**\
+`Andujar makes for a logical fit on a Padres team that produced only a .690 OPS last season against lefties.`\
+https://nytimes.com/athletic/7023077/2026/02/04/padres-miguel-andujar-signing-source/
+
 **Red Sox add defense with Isiah Kiner-Falefa but still in need of offensive boost**\
 `Kiner-Falefa doesn't fill the need for more power in the lineup but does bring Gold Glove-level defense to the infield.`\
 https://nytimes.com/athletic/7022957/2026/02/04/boston-red-sox-isiah-kiner-falefa-signing/

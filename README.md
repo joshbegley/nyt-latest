@@ -1,4 +1,4 @@
-**Padres, Miguel Andujar agree to one-year deal, add proven LHP hitter: Source**\
+**Padres, Miguel Andujar agree to 1-year deal, add proven bat against LHP: Source**\
 `Andujar makes for a logical fit on a Padres team that produced only a .690 OPS last season against lefties.`\
 https://nytimes.com/athletic/7023077/2026/02/04/padres-miguel-andujar-signing-source/
 

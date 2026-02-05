@@ -1,3 +1,7 @@
+**Padres, Miguel Andujar agree to one-year deal, add proven LHP hitter: Source**\
+`Andujar makes for a logical fit on a Padres team that produced only a .690 OPS last season against lefties.`\
+https://nytimes.com/athletic/7023077/2026/02/04/padres-miguel-andujar-signing-source/
+
 **Luka Garza has a 'conspiracy theory' about Michigan State's tougher rim**\
 `The former Iowa center says he thinks the Spartans have one tight rim that moves around.`\
 https://nytimes.com/athletic/7022735/2026/02/04/luka-garza-michigan-state-rim-tampering-allegations/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/04/us/savannah-guthrie-plea-statement.html
 **Brad Karp Resigns as Paul Weiss Chairman Amid Epstein Fallout**\
 `The decision followed the release of a series of embarrassing emails between Mr. Karp and Jeffrey Epstein.`\
 https://nytimes.com/2026/02/04/business/brad-karp-paul-weiss-resigns-epstein.html
-
-**The Long Goodbye: A California Couple Self-Deports to Mexico**\
-`Enrique Castillejos and his wife, Maria Elena Hernandez, raised a family in California. But they were undocumented immigrants, and after President Trump’s crackdown began, they decided to return to Mexico.`\
-https://nytimes.com/interactive/2026/02/04/us/self-deport-immigration-california.html
 
