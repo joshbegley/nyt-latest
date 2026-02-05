@@ -1,3 +1,7 @@
+**2026 NBA Finals odds: Harden trade creates 4 main contenders in East**\
+`James Harden's move to Cleveland made the Eastern Conference incredibly tight, but Oklahoma City remains the betting favorite to win it all.`\
+https://nytimes.com/athletic/7025311/2026/02/05/nba-finals-odds-thunder-nuggets-harden-cavs/
+
 **Nancy Guthrie Kidnapping Shows Limits of Tracking Pacemakers in Police Work**\
 `The heart devices do not track location, nor do they transmit across large distances.`\
 https://nytimes.com/2026/02/05/health/savannah-guthrie-mom-nancy-missing-pacemaker.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/05/arts/art-gallery-shows-to-see-in-february.html
 **What Teenagers Are Saying About the Killings in Minneapolis**\
 `In the wake of two fatal shootings of U.S. citizens by federal agents, we invited students to share what they are feeling about America.`\
 https://nytimes.com/2026/02/05/learning/what-teenagers-are-saying-about-the-killings-in-minneapolis.html
-
-**Seth Jarvis to replace Brayden Point on Team Canada at Olympics**\
-`Jarvis secured a late invite to join Team Canada at the Olympics after Point was forced to pull out of the event due to a knee injury.`\
-https://nytimes.com/athletic/7025440/2026/02/05/brayden-point-seth-jarvis-canada-olympics-roster/
 

@@ -1,3 +1,7 @@
+**2026 NBA Finals odds: Harden trade creates 4 main contenders in East**\
+`James Harden's move to Cleveland made the Eastern Conference incredibly tight, but Oklahoma City remains the betting favorite to win it all.`\
+https://nytimes.com/athletic/7025311/2026/02/05/nba-finals-odds-thunder-nuggets-harden-cavs/
+
 **Nancy Guthrie Kidnapping Shows Limits of Tracking Pacemakers in Police Work**\
 `The heart devices do not track location, nor do they transmit across large distances.`\
 https://nytimes.com/2026/02/05/health/savannah-guthrie-mom-nancy-missing-pacemaker.html
