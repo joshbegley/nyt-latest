@@ -1,3 +1,19 @@
+**Is it time to sell Haaland or other FPL premiums?**\
+`With many FPL managers now comfortable moving the armband away from the Man City striker, it raises questions about his place in our squads`\
+https://nytimes.com/athletic/7020688/2026/02/05/fantasy-premier-league-fpl-tips-gameweek-25-haaland/
+
+**Warriors-Hawks trade grades: Kristaps Porziņģis is a curious move after Kuminga saga**\
+`It's a very low-stakes move for the Hawks with some considerable upside. Does it make sense for the Warriors?`\
+https://nytimes.com/athletic/7023217/2026/02/05/nba-trade-grades-warriors-hawks-kristaps-porzingis-jonathan-kuminga/
+
+**What will Tyrique George bring to Everton?**\
+`Pacy and direct, the hope is he will stretch play and provide more goal-scoring threat than other wide options, most likely from left wing`\
+https://nytimes.com/athletic/7020882/2026/02/05/tyrique-george-everton-chelsea-profile/
+
+**Back-post crosses: Chelsea's most reliable route to goal in 2025-26**\
+`A tactic that was honed under Enzo Maresca is being successfully utilised by Liam Rosenior too`\
+https://nytimes.com/athletic/7017673/2026/02/05/chelsea-back-post-crosses-maresca-rosenior/
+
 **Pablo Fornals interview: 'I've set up West Ham notifications so I don't miss the score'**\
 `The midfielder may have left the club two years ago but he's still a huge fan. He is also in fine form and is back in the Spain squad`\
 https://nytimes.com/athletic/7015949/2026/02/05/pablo-fornals-west-ham-interview/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7017924/2026/02/05/florian-wirtz-liverpool-form/
 **Spectacular and sustainable? Why the Premier League is feasting on long-range goals**\
 `Why we need to look beyond expected goals to explain a better conversion rate from outside the box this season`\
 https://nytimes.com/athletic/7020923/2026/02/05/premier-league-long-range-goals-analysis-rogers/
-
-**The Alternative Premier League Table: No 25 – Goals from summer signings**\
-`In the week the winter transfer window shut, this week's table looks at the impact made by new faces brought in last summer`\
-https://nytimes.com/athletic/7020985/2026/02/05/the-alternative-premier-league-table-no-25-goals-from-summer-signings/
-
-**How Jimenez became the Premier League's penalty king**\
-`The Mexican has taken 12 spot kicks in England's top flight, scoring all of them. What is it that makes him so effective?`\
-https://nytimes.com/athletic/7015228/2026/02/05/raul-jimenez-penalty-record/
-
-**Could Luke Shaw's return to form and fitness earn him an England recall for World Cup?**\
-`The 30-year-old defender, who has previously struggled with injury, has started every Manchester United Premier League game this season`\
-https://nytimes.com/athletic/7018177/2026/02/05/luke-shaw-england-manchester-united-world-cup/
-
-**As Olympics Arrive, Everyone in This Town Is Annoyed About Something**\
-`In Cortina d’Ampezzo, a hub for the Games in northern Italy, some residents, including a former Olympian, are annoyed about all the construction. Others are annoyed that they’re annoyed.`\
-https://nytimes.com/2026/02/05/world/europe/cortina-olympics-construction-italy.html
 
