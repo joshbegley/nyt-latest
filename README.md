@@ -1,3 +1,11 @@
+**Test Your Internet Brain. Can You Use ‘Choppelganger’ in a Sentence?**\
+`This is a series about the mysteries of internet speak.`\
+https://nytimes.com/2026/02/05/style/internet-gen-z-slang-choppelganger.html
+
+**It’s Time for the Olympics**\
+`The Games are supposed to bring people from around the globe together, but there’s no escaping politics.`\
+https://nytimes.com/2026/02/05/world/winter-olympics-security-ice-italy-esptein.html
+
 **NBA trade deadline winners and losers: Bucks, Cavs, Wizards top list**\
 `It was a chaotic deadline, especially at the end, with former All-Stars switching teams and two of the biggest names staying put.`\
 https://nytimes.com/athletic/7024796/2026/02/05/nba-trade-deadline-winners-cavaliers-bucks-wizards/
@@ -11,7 +19,7 @@ https://nytimes.com/2026/02/05/t-magazine/chocolate-without-cacao-beans.html
 https://nytimes.com/2026/02/05/climate/texas-esg-lawsuit.html
 
 **Crypto Takes a Deep Slide Despite Trump’s Support**\
-`Despite strong backing from the White House, the price of Bitcoin is now lower than when President Trump was elected in 2024.`\
+`The price of Bitcoin is now lower than when President Trump was elected in 2024, raising concerns of a new ‘crypto winter’ in the industry.`\
 https://nytimes.com/2026/02/05/technology/bitcoin-price-drop-crypto-market.html
 
 **The Flour Tortilla Revolution is Here**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7025276/2026/02/05/aston-villa-watkins-onana-injury
 **As NBA trade deadline passes, Knicks ready for championship push**\
 `With the distractions now behind them, the red-hot Knicks can focus on making a run at the NBA Finals.`\
 https://nytimes.com/athletic/7024917/2026/02/05/nba-trade-deadline-knicks/
-
-**Italy Toughens Protest Laws, Hours Before Planned Rallies at Winter Olympics**\
-`The restrictions could affect people demonstrating this weekend outside Olympic events in northern Italy.`\
-https://nytimes.com/2026/02/05/world/europe/italy-olympics-security-law-protests.html
-
-**SEC distributes record $1.03 billion to schools in 2024-25 fiscal year**\
-`The 2024-25 fiscal year was the SEC’s first in its new ESPN contract, as well as the first with Oklahoma and Texas in the conference.`\
-https://nytimes.com/athletic/7025202/2026/02/05/sec-football-sports-revenue-billion-dollars/
 
