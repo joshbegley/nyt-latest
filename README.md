@@ -1,3 +1,11 @@
+**China’s Xi Presses Trump on Taiwan in Phone Call**\
+`Both leaders gave versions of what they discussed, but the Chinese president’s take made clear the issue of the island was front and center.`\
+https://nytimes.com/2026/02/04/us/politics/xi-phone-call-taiwan.html
+
+**What the Anthony Davis trade means for the Wizards' future**\
+`If Davis and Young remain healthy and embrace their roles, the “Wiz Kids” could develop and play competitive basketball at the same time.`\
+https://nytimes.com/athletic/7022655/2026/02/04/anthony-davis-trade-wizards-future/
+
 **Man Who Falsely Claimed He Killed Charlie Kirk Is Sentenced to Prison**\
 `The authorities said the man, George Zinn, tried to derail their search for Mr. Kirk’s actual killer. He faces up to 15 years in prison on obstruction of justice and other charges.`\
 https://nytimes.com/2026/02/04/us/false-confession-charlie-kirk-shooting-prison.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7022673/2026/02/04/eagles-ol-coach-jeff-stoutland-l
 **Anthony Davis deal makes one thing clear — the Mavericks are Cooper Flagg's team**\
 `Dallas may take a step back in the present. But moving Davis means the future is all about the 19-year-old, as it should be.`\
 https://nytimes.com/athletic/7022423/2026/02/04/anthony-davis-trade-cooper-flagg-mavericks/
-
-**A Canadian Pop Star’s New Olympics Ad Has Some Elbows Up**\
-`Tate McRae’s promotional video for NBC, in which she name checks Team USA athletes, has drawn the ire of some Canadians as the country’s relationship with the United States hits new lows.`\
-https://nytimes.com/2026/02/04/world/canada/tate-mcrae-olympics-ad-team-usa.html
-
-**NBA Trade Board 4.0: After flurry of deals, 10 players who could be on the move**\
-`With the Bucks officially listening to offers on Giannis Antetokounmpo, there is no one else who can top this list.`\
-https://nytimes.com/athletic/7019611/2026/02/04/nba-trade-deadline-players-available-giannis-antetokounmpo/
 
