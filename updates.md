@@ -1,3 +1,5 @@
+
+
 **Why Building Alone Won’t Solve the Housing Crisis**\
 `An imbalance in the kind of housing getting built and rising insurance costs are impeding housing progress, according to two new reports.`\
 https://nytimes.com/2026/02/05/realestate/affordable-housing-insurance-studies.html
