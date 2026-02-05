@@ -1,3 +1,15 @@
+**Leicester get six-point deduction for breaching PSR**\
+`Leicester City have been given an immediate six-point deduction for breaching profit and sustainability rules (PSR).`\
+https://nytimes.com/athletic/7024569/2026/02/05/leicester-points-deduction-psr/
+
+**The Bill Belichick fiasco 'wounded' the Pro Football Hall of Fame. Now what?**\
+`Could the Bill Belichick Blunder tarnish Canton’s hallowed halls? Or will this be a momentarily blip that is rectified with rule changes?`\
+https://nytimes.com/athletic/7024083/2026/02/05/bill-belichick-hall-of-fame-reputation-damage-nfl/
+
+**Tom Stoppard Is Gone. In ‘Arcadia,’ His Wit Still Sparkles.**\
+`A new London production of the playwright’s masterpiece has extra poignancy just months after his death.`\
+https://nytimes.com/2026/02/05/theater/arcadia-tom-stoppard-old-vic-london.html
+
 **Carnegie Hall’s New Season: What We Want to Hear**\
 `Highlights include the hall’s first “Ring,” cycles of sonatas by Beethoven and Mozart and a birthday celebration for Steve Reich.`\
 https://nytimes.com/2026/02/05/arts/music/carnegie-hall-2026-2027-season.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7024547/2026/02/05/penguins-vs-sabres-stream-how-to
 **How to watch Nets vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7024545/2026/02/05/nets-vs-magic-stream-how-to-watch-feb-5/
-
-**How to watch Islanders vs. Devils: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7024542/2026/02/05/islanders-vs-devils-stream-how-to-watch-feb-5/
-
-**How to watch Hurricanes vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7024539/2026/02/05/hurricanes-vs-rangers-stream-how-to-watch-feb-5/
-
-**How to watch Penn State vs. Michigan men's basketball: Time, TV, streaming**\
-`Find out how to watch the Penn State Nittany Lions play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7024517/2026/02/05/penn-state-vs-michigan-stream-how-to-watch-feb-5/
 
