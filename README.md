@@ -1,3 +1,7 @@
+**Framber Valdez's signing could be the statement move the Tigers needed**\
+`Signing Valdez marks the biggest free-agent deal of Scott Harris' tenure as Tigers president of baseball operations`\
+https://nytimes.com/athletic/7023082/2026/02/04/detroit-tigers-framber-valdez-signing-impact/
+
 **Dodgers expected to visit White House to celebrate World Series win: Source**\
 `The Dodgers have previously visited the White House in 2021 with President Joe Biden and last April with President Donald J. Trump.`\
 https://nytimes.com/athletic/7023024/2026/02/04/los-angeles-dodgers-white-house-visit/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/04/world/americas/venezuela-said-to-detain-maduro-al
 **Source of a Large Print**\
 `Dario Salvucci makes his New York Times Crossword debut.`\
 https://nytimes.com/2026/02/04/crosswords/daily-puzzle-2026-02-05.html
-
-**Demond Williams Jr. cites ‘really bad’ advice when addressing transfer saga**\
-`Williams became a polarizing figure in college football when he announced his intention to transfer but two days later said he'd stay put.`\
-https://nytimes.com/athletic/7022783/2026/02/04/desmond-williams-washington-qb-transfer-advice/
 
