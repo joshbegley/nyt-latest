@@ -1,3 +1,11 @@
+**A Gilded Age Illusion: What ‘Melania’ Is Really Selling**\
+`The columnists decode ‘Melania’ — the film and the person.`\
+https://nytimes.com/video/opinion/100000010689863/a-gilded-age-illusion-what-melania-is-really-selling.html
+
+**‘The Pitt’ Is Giving a Dose of Humanity**\
+`Wesley Morris and Sasha Weiss, the culture editor at The New York Times Magazine, on the return of the acclaimed emergency room drama.`\
+https://nytimes.com/video/podcasts/100000010687335/the-pitt-is-giving-a-dose-of-humanity.html
+
 **Russia-Ukraine Peace Talks Stretch Into a Second Day**\
 `Little has been made public so far, but negotiators were expected to talk about the fate of Ukrainian territory in the east and security guarantees for Ukraine.`\
 https://nytimes.com/2026/02/05/world/europe/russia-ukraine-peace-talks.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7020905/2026/02/05/arsenal-quadruple-odds-gunners-f
 **After Taking on Trump and Backing Mamdani, Hochul Sees Her Star Rise**\
 `Gov. Kathy Hochul has warded off most serious challenges to her re-election, but still faces a primary contest against her lieutenant governor, Antonio Delgado.`\
 https://nytimes.com/2026/02/05/nyregion/hochul-democratic-convention-delgado.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/05/crosswords/spelling-bee-forum.html
-
-**Thousands Displaced for a Military Operation That Pakistan Says It Didn’t Order**\
-`Some 60,000 evacuees have been left in limbo by confusion and political disputes as Pakistan battles insurgents on its border with Afghanistan.`\
-https://nytimes.com/2026/02/05/world/asia/pakistan-military-operation-displaced-people.html
 
