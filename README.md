@@ -1,3 +1,7 @@
+**Initial bids in Padres' sale process expected near end of February: Sources**\
+`An eventual sale of the Padres has been widely expected since Peter Seidler’s death in November 2023. `\
+https://nytimes.com/athletic/7025610/2026/02/05/san-diego-padres-sale-process-bids/
+
 **The Raptors finally stopped chasing their tail at the NBA trade deadline**\
 `After years of boxing themselves in with deadline moves, the Raptors finally broke free — for now`\
 https://nytimes.com/athletic/7025249/2026/02/05/raptors-2026-nba-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/americas/100000010692482/toronto-police-corrupti
 **‘The Strangers: Chapter 3’ Review: Devils in Disguise**\
 `The final installment in the trilogy reboot of “The Strangers,” a genuinely terrifying 2008 home invasion film, brings the masked nonsense to a close.`\
 https://nytimes.com/2026/02/05/movies/the-strangers-chapter-3-review.html
-
-**At Least 160 Killed in Rural Nigeria Villages, Aid Official Says**\
-`Gunmen killed more than 160 people in two rural villages in Nigeria, according to the Nigerian branch of the Red Cross. The attack was one of the country’s deadliest in recent years.`\
-https://nytimes.com/video/world/africa/100000010692986/nigeria-gunmen-attack-kwara.html
 
