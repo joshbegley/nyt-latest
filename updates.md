@@ -1,3 +1,15 @@
+**The 5 issues with college football's calendar, including one with 'a lot of traction'**\
+`Here's a primer on the calendar issues, including momentum for moving the start of the season up a week for most teams.`\
+https://nytimes.com/athletic/7023732/2026/02/05/college-football-calendar-week-0-cfp/
+
+**With Eugenio Suárez aboard, Reds complete their offseason checklist**\
+`The Reds' front office outlined three goals at the beginning of the offseason, and each of those three needs were addressed.`\
+https://nytimes.com/athletic/7022550/2026/02/05/cincinnati-reds-offseason-checklist-complete/
+
+**The biomechnical secrets behind Matheus Cunha's explosive shooting**\
+`Breaking down the four key elements of the Brazilian's exceptional technique`\
+https://nytimes.com/athletic/7017810/2026/02/05/matheus-cunha-manchester-united-shooting-technique/
+
 **Anthony Edwards' heroics lift Timberwolves out of trade rumor-induced fog**\
 `Distracted by the Giannis rumors and saddened by the trade of Mike Conley, the Wolves needed Wednesday's win in Toronto.`\
 https://nytimes.com/athletic/7022136/2026/02/05/anthony-edwards-timberwolves-trade-rumors-toronto/
