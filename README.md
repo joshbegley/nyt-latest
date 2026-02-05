@@ -1,3 +1,7 @@
+**NBA Trade Board 4.0: After flurry of deals, 10 players who could be on the move**\
+`With the Bucks officially listening to offers on Giannis Antetokounmpo, there is no one else who can top this list.`\
+https://nytimes.com/athletic/7019611/2026/02/04/nba-trade-deadline-players-available-giannis-antetokounmpo/
+
 **Top NHL Draft prospect Gavin McKenna charged with felony assault**\
 `McKenna, who turned 18 on Dec. 20, is also facing a misdemeanor assault charge and summary charges of harassment and disorderly conduct.`\
 https://nytimes.com/athletic/7022474/2026/02/04/gavin-mckenna-felony-charges-arrested-penn-state-hockey/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7022482/2026/02/04/man-city-guardiola-carabao-cup-m
 **Justices Allow California to Use a Voting Map That Helps Democrats**\
 `Also, hundreds of federal agents are set to withdraw from Minneapolis. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2026/02/04/briefing/supreme-court-california-federal-agents-minnesota.html
-
-**University of Southern California Names a Lawyer as Its New President**\
-`The president, Beong-Soo Kim, had served on an interim basis and already faced pressure from the Trump administration to join a higher education compact to follow a set of conservative ideas. He refused.`\
-https://nytimes.com/2026/02/04/us/usc-new-president-kim.html
 
