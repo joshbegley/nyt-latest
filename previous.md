@@ -1,3 +1,11 @@
+**The Louvre Thieves Dropped This Priceless Crown. Now It Looks Like This.**\
+`Empress Eugénie’s crown was left lying on the sidewalk after the Louvre Museum heist in October. The museum has now released pictures of the damage.`\
+https://nytimes.com/2026/02/05/world/europe/louvre-heist-crown-damage-eugenie-empress.html
+
+**Q&A: How Israel's first Olympic bobsled team came together**\
+`Team captain AJ Edelman opens up about creating Israel’s first Olympic bobsled team for the Milano Cortina Games.`\
+https://nytimes.com/athletic/7024454/2026/02/05/israel-bobsled-first-olympics-milano-cortina/
+
 **Sources: James Rodríguez finalizing deal with Minnesota United**\
 `The Colombian superstar appears headed to an unexpected landing spot as he aims to return to form before the World Cup`\
 https://nytimes.com/athletic/7021223/2026/02/05/james-rodriguez-minnesota-united-colombia-mls-signing/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7019038/2026/02/05/submit-a-question-for-pete-samps
 **How to Survive a Fall Through the Ice**\
 `The cardinal rule? Don’t panic. You actually have more time than you think to self-extricate or wait for help to arrive, an expert said.`\
 https://nytimes.com/2026/02/05/us/fall-through-ice-frozen-water-rescue.html
-
-**The Windup: Framber Valdez's big payday**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7024576/2026/02/05/framber-valdez-contract-the-windup/
-
-**Leicester get six-point deduction for breaching PSR**\
-`The sanction was handed down by an independent commission and relates to the three-year period ending with the 2023-24 season.`\
-https://nytimes.com/athletic/7024569/2026/02/05/leicester-points-deduction-psr/
 

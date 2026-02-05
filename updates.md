@@ -1,3 +1,11 @@
+**The Louvre Thieves Dropped This Priceless Crown. Now It Looks Like This.**\
+`Empress Eugénie’s crown was left lying on the sidewalk after the Louvre Museum heist in October. The museum has now released pictures of the damage.`\
+https://nytimes.com/2026/02/05/world/europe/louvre-heist-crown-damage-eugenie-empress.html
+
+**Q&A: How Israel's first Olympic bobsled team came together**\
+`Team captain AJ Edelman opens up about creating Israel’s first Olympic bobsled team for the Milano Cortina Games.`\
+https://nytimes.com/athletic/7024454/2026/02/05/israel-bobsled-first-olympics-milano-cortina/
+
 **Sources: James Rodríguez finalizing deal with Minnesota United**\
 `The Colombian superstar appears headed to an unexpected landing spot as he aims to return to form before the World Cup`\
 https://nytimes.com/athletic/7021223/2026/02/05/james-rodriguez-minnesota-united-colombia-mls-signing/
