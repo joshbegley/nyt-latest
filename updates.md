@@ -1,3 +1,7 @@
+**Leicester City were Premier League champions a decade ago. Now they are scrambling to avoid the third tier**\
+`The six-point deduction imposed on the Championship club for PSR breach leaves them outside the relegation zone on goal difference alone`\
+https://nytimes.com/athletic/6985948/2026/02/05/leicester-city-points-deduction-top-relegation/
+
 **Seahawks expect Nick Emmanwori to play in Super Bowl despite ankle injury**\
 `Emmanwori suffered a low-ankle sprain late in Wednesday's practice, coach Mike Macdonald said.`\
 https://nytimes.com/athletic/7024987/2026/02/05/nick-emmanwori-injury-seahawks-super-bowl/

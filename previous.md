@@ -1,3 +1,7 @@
+**Leicester City were Premier League champions a decade ago. Now they are scrambling to avoid the third tier**\
+`The six-point deduction imposed on the Championship club for PSR breach leaves them outside the relegation zone on goal difference alone`\
+https://nytimes.com/athletic/6985948/2026/02/05/leicester-city-points-deduction-top-relegation/
+
 **Seahawks expect Nick Emmanwori to play in Super Bowl despite ankle injury**\
 `Emmanwori suffered a low-ankle sprain late in Wednesday's practice, coach Mike Macdonald said.`\
 https://nytimes.com/athletic/7024987/2026/02/05/nick-emmanwori-injury-seahawks-super-bowl/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7024393/2026/02/05/rio-ngumoha-liverpool-chelsea-fe
 **Kelvin Sampson laments Houston's lack of resources and 'poor' athletic department**\
 `Houston joined the Big 12 in 2023 with the lowest athletics budget among power conference schools and remains at the bottom of that list.`\
 https://nytimes.com/athletic/7024980/2026/02/05/kelvin-sampson-houston-basketball-nil/
-
-**Bad News for New Yorkers Weary of Winter: More Snow and More Cold Are Likely**\
-`A fast-moving storm this weekend could drop new snow on the grimy piles that have accumulated across the city. Bitter cold will follow.`\
-https://nytimes.com/2026/02/05/weather/new-york-city-cold-snow-forecast.html
 
