@@ -1,3 +1,7 @@
+**Carrick: Man Utd to use schedule gaps in 'different ways' after friendly talks**\
+`United have been exploring options to play mid-season friendlies since the autumn, as revealed by The Athletic in October.`\
+https://nytimes.com/athletic/7024255/2026/02/05/manchester-united-schedule-gaps-friendlies/
+
 **This Giant Phantom Jelly Won’t Eat You. Maybe.**\
 `During a dive off Argentina, scientists documented a rare jellyfish discovered a little over a century ago and seldom seen since, as well as the fish that keep it company.`\
 https://nytimes.com/2026/02/05/science/giant-phantom-jellyfish-sighting-video.html
