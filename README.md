@@ -1,3 +1,7 @@
+**Luka Garza has a 'conspiracy theory' about Michigan State's tougher rim**\
+`The Celtics center and 2021 National Player of the Years the Spartans move the rim around to affect how games go.`\
+https://nytimes.com/athletic/7022735/2026/02/04/luka-garza-michigan-state-rim-tampering-allegations/
+
 **NCAA denies Ole Miss' appeal for 6th year for QB Trinidad Chambliss**\
 `Decision puts the quarterback’s future in the hands of a Mississippi court.`\
 https://nytimes.com/athletic/7023047/2026/02/04/trinidad-chambliss-waiver-appeal-denied-ncaa-ole-miss/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/04/business/brad-karp-paul-weiss-resigns-epstein.htm
 **The Long Goodbye: A California Couple Self-Deports to Mexico**\
 `Enrique Castillejos and his wife, Maria Elena Hernandez, raised a family in California. But they were undocumented immigrants, and after President Trump’s crackdown began, they decided to return to Mexico.`\
 https://nytimes.com/interactive/2026/02/04/us/self-deport-immigration-california.html
-
-**Tigers, Framber Valdez agree to three-year, $115 million deal: Sources**\
-`At his best, Valdez is an ace, a man nicknamed "La Grasa" for the designer clothes and colognes he wears between starts.`\
-https://nytimes.com/athletic/6838675/2026/02/04/mlb-framber-valdez-free-agency-tigers/
 
