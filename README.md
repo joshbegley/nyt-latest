@@ -1,3 +1,15 @@
+**'Fiorentina have a serious set of owners': Paratici on why he left Spurs**\
+`Paratici has revealed Fiorentina’s late owner Rocco Commisso didn’t persuade him to leave Tottenham. It was the other way around.`\
+https://nytimes.com/athletic/7024030/2026/02/05/fabio-paratici-tottenham-fiorentina-sporting-director/
+
+**Jack Hughes expected to be available for Team USA at Olympics: Sources**\
+`Hughes is expected to be available for the Americans in Milan after suffering a minor lower-body injury last month.`\
+https://nytimes.com/athletic/7024042/2026/02/05/jack-hughes-team-usa-olympics/
+
+**Chelsea's Gittens set for 'long-term' absence after hamstring tear**\
+`Head coach Liam Rosenior confirmed the injury at a news conference on Thursday ahead of Saturday's trip to Wolves.`\
+https://nytimes.com/athletic/7024036/2026/02/05/jamie-gittens-injury-chelsea/
+
 **Twins roster projection 2.0: Weak spots and position battles as spring training nears**\
 `It's a disjointed Twins roster, with a logjam of left-handed corner bats, a lack of reliable relievers and plenty of big question marks.`\
 https://nytimes.com/athletic/7023830/2026/02/05/twins-2026-roster-projection-spring-training/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/05/us/san-ramon-california-earthquake-swarm.html
 **F.D.A. Relaxes Labeling Rules on Food Dyes as Kennedy Pushes Protein**\
 `Food makers will now be able to claim that their products have “no artificial colors,” so long as they use dyes that are not petroleum based.`\
 https://nytimes.com/2026/02/05/us/politics/kennedy-fda-food-dyes-protein.html
-
-**Iranian Nobel Peace Laureate Starts New Hunger Strike in Prison**\
-`The rights activist Narges Mohammadi is protesting her continued detention, her family said. She was arrested again in December after being given leave from prison for medical treatment.`\
-https://nytimes.com/2026/02/05/world/middleeast/iran-narges-mohammadi-prison-hunger-strike.html
-
-**A Top Lawyer’s Fall Shows Growing Fallout From Epstein Files**\
-`Brad Karp’s resignation as chairman of the law firm Paul Weiss underscores a further reflection in the corporate world over the latest revelations.`\
-https://nytimes.com/2026/02/05/business/dealbook/karp-paul-weiss-epstein.html
-
-**Why a quiet NBA trade deadline may be the best thing for the Rockets**\
-`A quiet approach to the NBA trade deadline may be the smartest way for a Rockets team looking at building its future.`\
-https://nytimes.com/athletic/7023608/2026/02/05/rockets-nba-trade-deadline-quiet/
 
