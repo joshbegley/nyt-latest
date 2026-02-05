@@ -22,7 +22,7 @@ https://nytimes.com/athletic/7023034/2026/02/05/james-harden-donovan-mitchell-ca
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/05/todays-new-york-times
 
-**How Much Longer Can Mexico Walk Trump’s Tightrope?**\
+**It’s Not the Cartels That Worry Claudia Sheinbaum**\
 `Trump wants total war on Mexico’s cartels. Sheinbaum won’t give it to him.`\
 https://nytimes.com/2026/02/05/opinion/mexico-sheinbaum-trump-cartels.html
 

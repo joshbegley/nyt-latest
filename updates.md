@@ -1,3 +1,7 @@
+**It’s Not the Cartels That Worry Claudia Sheinbaum**\
+`Trump wants total war on Mexico’s cartels. Sheinbaum won’t give it to him.`\
+https://nytimes.com/2026/02/05/opinion/mexico-sheinbaum-trump-cartels.html
+
 **Newcastle United and a deflating, 'painful' concession of the trophy that meant so much**\
 `Winning the Carabao Cup last season meant so much to everyone at St James' Park. Elimination this time raises plenty of questions`\
 https://nytimes.com/athletic/7020713/2026/02/05/newcastle-carabao-cup-manchester-city/
