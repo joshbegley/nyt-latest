@@ -1,3 +1,7 @@
+**NBA Trade Board 4.0: After flurry of deals, 10 players who could be on the move**\
+`With the Bucks officially listening to offers on Giannis Antetokounmpo, there is no one else who can top this list.`\
+https://nytimes.com/athletic/7019611/2026/02/04/nba-trade-deadline-players-available-giannis-antetokounmpo/
+
 **Top NHL Draft prospect Gavin McKenna charged with felony assault**\
 `McKenna, who turned 18 on Dec. 20, is also facing a misdemeanor assault charge and summary charges of harassment and disorderly conduct.`\
 https://nytimes.com/athletic/7022474/2026/02/04/gavin-mckenna-felony-charges-arrested-penn-state-hockey/
