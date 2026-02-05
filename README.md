@@ -1,3 +1,11 @@
+**Boldy's quick hat trick helps send Wild streaking into Olympic break: Takeaways**\
+`Boldy's three goals came in the first 12:58, the fastest hat trick to start a game in Wild history.`\
+https://nytimes.com/athletic/7023280/2026/02/05/matt-boldy-hat-trick-wild-predators-takeaways/
+
+**Manchester City vs Arsenal promises to be a Carabao Cup final filled with intriguing subplots**\
+`A trophy is at stake, but there may also be significant implications for the title race when the two teams meet at Wembley in March`\
+https://nytimes.com/athletic/7022597/2026/02/05/manchester-city-arsenal-carabao-cup-final/
+
 **'We both want a championship': Donovan Mitchell opens up about the Cavs' bet on James Harden**\
 `Cleveland believes trading for Harden can change its season. Harden's partnership with Mitchell will decide if it actually does. `\
 https://nytimes.com/athletic/7023034/2026/02/05/james-harden-donovan-mitchell-cavaliers-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7017904/2026/02/05/kai-havertz-arsenal-position/
 **Adding Panarin signals ambition from the Kings — and possibly hubris**\
 `The Kings got a star offensive winger for a song thanks to his no-move clause. But it still left a fairly bare cupboard emptier than before.`\
 https://nytimes.com/athletic/7023170/2026/02/05/kings-artemi-panarin-trade-holland-playoffs/
-
-**Is it time to sell Haaland or other FPL premiums?**\
-`With many FPL managers now comfortable moving the armband away from the Man City striker, it raises questions about his place in our squads`\
-https://nytimes.com/athletic/7020688/2026/02/05/fantasy-premier-league-fpl-tips-gameweek-25-haaland/
-
-**Warriors-Hawks trade grades: Kristaps Porziņģis is a curious move after Kuminga saga**\
-`It's a very low-stakes move for the Hawks with some considerable upside. Does it make sense for the Warriors?`\
-https://nytimes.com/athletic/7023217/2026/02/05/nba-trade-grades-warriors-hawks-kristaps-porzingis-jonathan-kuminga/
 
