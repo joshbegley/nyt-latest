@@ -1,9 +1,17 @@
+**At Least 160 Killed in Rural Nigeria Villages, Aid Official Says**\
+`Gunmen killed more than 160 people in two rural villages in Nigeria, according to the Nigerian branch of the Red Cross. The attack was one of the country’s deadliest in recent years.`\
+https://nytimes.com/video/world/africa/100000010692986/nigeria-gunmen-attack-kwara.html
+
+**Family Sues Egypt Over Beating of 2 Brothers at U.N. Mission in New York**\
+`The brothers claim four security guards beat and detained them during a protest in August 2025 outside Egypt’s mission to the United Nations.`\
+https://nytimes.com/2026/02/05/nyregion/brothers-lawsuit-egyptian-government.html
+
 **Why the Brooklyn Nets waived Cam Thomas months after signing him to a new deal**\
 `The Nets tried but could not find a taker for Thomas, a volume scorer who has averaged 21.4 points over the past three seasons.`\
 https://nytimes.com/athletic/7025545/2026/02/05/nba-cam-thomas-nets-waived-free-agent/
 
 **3 Killed as Vehicle Crashes Into Grocery Store in Los Angeles**\
-`Four other people were taken to a hospital, officials said. The severity of their injuries was not immediately known.`\
+`Four other people were taken to a hospital, two with serious injuries and two with minor injuries, officials said.`\
 https://nytimes.com/2026/02/05/us/crash-la-grocery-store-deaths.html
 
 **Senators Clash Over Immigration Enforcement, Risking a D.H.S. Shutdown**\
@@ -25,12 +33,4 @@ https://nytimes.com/2026/02/05/health/savannah-guthrie-mom-nancy-missing-pacemak
 **Bad Bunny on Super Bowl halftime show: 'It’s going to be fun, it’s going to be easy'**\
 `Fresh off winning a Grammy Award for Album of the Year, Bad Bunny discussed headlining the Super Bowl halftime show on Sunday.`\
 https://nytimes.com/athletic/7025357/2026/02/05/bad-bunny-super-bowl-halftime-show-grammy-awards/
-
-**Amazon Plans to Spend $200 Billion on A.I. and Other Projects This Year**\
-`The company reported a strong holiday quarter on Thursday. But its big spending on things like artificial intelligence and satellites is starting to make investors nervous.`\
-https://nytimes.com/2026/02/05/technology/amazon-200-billion-ai.html
-
-**Investigators Say Doorbell Camera Was Disconnected Before Nancy Guthrie’s Kidnapping**\
-`More details and a timeline were released on the kidnapping of Nancy Guthrie, the mother of the NBC anchor Savannah Guthrie.`\
-https://nytimes.com/video/us/100000010692836/nancy-guthrie-missing-savannah-mother.html
 

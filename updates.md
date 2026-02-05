@@ -1,3 +1,15 @@
+**Why the Brooklyn Nets waived Cam Thomas months after signing him to a new deal**\
+`The Nets tried but could not find a taker for Thomas, a volume scorer who has averaged 21.4 points over the past three seasons.`\
+https://nytimes.com/athletic/7025545/2026/02/05/nba-cam-thomas-nets-waived-free-agent/
+
+**3 Killed as Vehicle Crashes Into Grocery Store in Los Angeles**\
+`Four other people were taken to a hospital, officials said. The severity of their injuries was not immediately known.`\
+https://nytimes.com/2026/02/05/us/crash-la-grocery-store-deaths.html
+
+**Senators Clash Over Immigration Enforcement, Risking a D.H.S. Shutdown**\
+`With eight days until a deadline to keep the Department of Homeland Security running, bipartisan talks on reining in federal immigration agents’ tactics appeared to sputter before they had even gotten underway.`\
+https://nytimes.com/2026/02/05/us/politics/senate-immigration-enforcement-dhs-shutdown.html
+
 **‘Moulin Rouge!’ Musical Will End Its Broadway Run This Summer**\
 `The final New York performance will be July 26, seven years after it opened; international and touring productions continue.`\
 https://nytimes.com/2026/02/05/theater/moulin-rouge-broadway-closing.html
