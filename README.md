@@ -1,3 +1,7 @@
+**Warriors relieved, hopeful as they make a deal while keeping Giannis door open**\
+`The Warriors finally moved on from Jonathan Kuminga, adding a measure of relief to their continued hopes of acquiring the biggest prize.`\
+https://nytimes.com/athletic/7023464/2026/02/05/warriors-trades-giannis-deal/
+
 **Which states and colleges have produced Super Bowl talent for Seahawks and Patriots**\
 `Alabama and LSU lead the pack among colleges, while Texas, California and Florida are the states with the most Super Bowl players.`\
 https://nytimes.com/athletic/7019115/2026/02/05/super-bowl-colleges-states-patriots-seahawks/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/05/world/asia/pakistan-military-operation-displaced-
 **Newcastle United and a deflating, 'painful' concession of the trophy that meant so much**\
 `Winning the Carabao Cup last season meant so much to everyone at St James' Park. Elimination this time raises plenty of questions`\
 https://nytimes.com/athletic/7020713/2026/02/05/newcastle-carabao-cup-manchester-city/
-
-**Word of the Day: commiserate**\
-`This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/02/05/learning/word-of-the-day-commiserate.html
 

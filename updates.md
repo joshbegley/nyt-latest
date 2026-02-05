@@ -1,3 +1,7 @@
+**Thousands Displaced for a Military Operation That Pakistan Says Won’t Happen**\
+`Some 60,000 evacuees have been left in limbo by confusion and political disputes as Pakistan battles insurgents on its border with Afghanistan.`\
+https://nytimes.com/2026/02/05/world/asia/pakistan-military-operation-displaced-people.html
+
 **Which states and colleges have produced Super Bowl talent for Seahawks and Patriots**\
 `Alabama and LSU lead the pack among colleges, while Texas, California and Florida are the states with the most Super Bowl players.`\
 https://nytimes.com/athletic/7019115/2026/02/05/super-bowl-colleges-states-patriots-seahawks/
