@@ -1,40 +1,40 @@
-**'Brutal hit': Bruins furious about minor penalty for an elbow to McAvoy's head**\
-`"With Charlie, you never want to see that. … He's our best D-man and a huge part of this team. We were worried, for sure."`\
-https://nytimes.com/athletic/7023195/2026/02/04/bruins-charlie-mcavoy-elbow-to-head-panthers/
+**The Alternative Premier League Table: No 25 – Goals from summer signings**\
+`In the week the winter transfer window shut, this week's table looks at the impact made by new faces brought in last summer`\
+https://nytimes.com/athletic/7020985/2026/02/05/the-alternative-premier-league-table-no-25-goals-from-summer-signings/
 
-**Warriors trading Jonathan Kuminga, Buddy Hield to Hawks for Kristaps Porziņģis: Sources**\
-`Kuminga finally moves on after his relationship with Steve Kerr and the Warriors’ front office had largely soured.`\
-https://nytimes.com/athletic/7023218/2026/02/04/warriors-hawks-nba-trade-jonathan-kuminga-buddy-hield-kristaps-porzingis/
+**How Jimenez became the Premier League's penalty king**\
+`The Mexican has taken 12 spot kicks in England's top flight, scoring all of them. What is it that makes him so effective?`\
+https://nytimes.com/athletic/7015228/2026/02/05/raul-jimenez-penalty-record/
 
-**Blackhawks stumble into Olympic break: 10 thoughts**\
-`The Blackhawks fell in a 4-0 shutout to the suddenly surging Blue Jackets in their final game before the Olympics.`\
-https://nytimes.com/athletic/7022670/2026/02/04/blackhawks-olympic-break-reset-bedard-blue-jackets/
+**Could Luke Shaw's return to form and fitness earn him an England recall for World Cup?**\
+`The 30-year-old defender, who has previously struggled with injury, has started every Manchester United Premier League game this season`\
+https://nytimes.com/athletic/7018177/2026/02/05/luke-shaw-england-manchester-united-world-cup/
 
-**NASCAR Clash takeaways: Ryan Preece grabs first NASCAR win at Bowman Gray Stadium**\
-`Preece prevailed in a race where the best drivers were going all out in a physical, no-holds-barred way.`\
-https://nytimes.com/athletic/7023151/2026/02/04/nascar-clash-takeaways-ryan-preece-wins-bowman-gray/
+**As Olympics Arrive, Everyone in This Town Is Annoyed About Something**\
+`In Cortina d’Ampezzo, a hub for the Games in northern Italy, some residents, including a former Olympian, are annoyed about all the construction. Others are annoyed that they’re annoyed.`\
+https://nytimes.com/2026/02/05/world/europe/cortina-olympics-construction-italy.html
 
-**Floyd Mayweather Jr. files $340M lawsuit against Showtime, former exec**\
-`Mayweather alleges Showtime conspired to help cover up nearly a decade of fraud by his former business advisor.`\
-https://nytimes.com/athletic/7022938/2026/02/04/floyd-mayweather-showtime-lawsuit-haymon-espinoza/
+**‘My Crazy Friend’: The Royals Who Stayed Close to Epstein**\
+`Emails, texts, photos and videos show how Jeffrey Epstein, even after becoming a convicted sex offender, burnished his ties to royal family members from several countries and their advisers.`\
+https://nytimes.com/2026/02/05/world/europe/epstein-royal-friends-prince-andrew-sarah-ferguson-mette-marit.html
 
-**Framber Valdez's signing could be the statement move the Tigers needed**\
-`Signing Valdez marks the biggest free-agent deal of Scott Harris' tenure as Tigers president of baseball operations.`\
-https://nytimes.com/athletic/7023082/2026/02/04/detroit-tigers-framber-valdez-signing-impact/
+**Connections: Sports Edition Coach: Hints for Feb. 5, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7019911/2026/02/05/connections-sports-edition-hints-for-feb-5-2026/
 
-**Dodgers expected to visit White House to celebrate World Series win: Source**\
-`The Dodgers have previously visited the White House in 2021 with President Joe Biden and last April with President Donald J. Trump.`\
-https://nytimes.com/athletic/7023024/2026/02/04/los-angeles-dodgers-white-house-visit/
+**Corrections: Feb. 5, 2026**\
+`Corrections that appeared in print on Thursday, Feb. 5, 2026.`\
+https://nytimes.com/2026/02/05/pageoneplus/corrections-feb-5-2026.html
 
-**What we learned from Chris Drury's comments, plus an inside look at the Panarin trade**\
-`The Rangers GM made his first public comments since training camp after trading Artemi Panarin to the Kings.`\
-https://nytimes.com/athletic/7022854/2026/02/04/rangers-chris-drury-gm-comments-panarin-trade/
+**Rethinking Shakespeare in Shanghai**\
+`A recent production of “Othello” proves that small creative flowers can grow between the dreary slabs of cultural concrete laid by the Communist Party.`\
+https://nytimes.com/2026/02/05/world/asia/rethinking-shakespeare-in-shanghai.html
 
-**Padres, Miguel Andujar agree to 1-year deal, add proven bat against LHP: Source**\
-`Andujar makes for a logical fit on a Padres team that produced only a .690 OPS last season against lefties.`\
-https://nytimes.com/athletic/7023077/2026/02/04/padres-miguel-andujar-signing-source/
+**Jeffrey Epstein’s Money Mingled With Silicon Valley Start-Ups**\
+`The disgraced financier regularly courted tech industry figures not just for their prestige but also for access to promising companies.`\
+https://nytimes.com/2026/02/05/business/epstein-investments-palantir-coinbase-thiel.html
 
-**Luka Garza has a 'conspiracy theory' about Michigan State's tougher rim**\
-`The former Iowa center says he thinks the Spartans have one tight rim that moves around.`\
-https://nytimes.com/athletic/7022735/2026/02/04/luka-garza-michigan-state-rim-tampering-allegations/
+**Quote of the Day: Wonder Drug Keeps Sports In Its Clutches**\
+`Quotation of the Day for Thursday, February 5, 2025.`\
+https://nytimes.com/2026/02/04/pageoneplus/quote-of-the-day-wonder-drug-keeps-sports-in-its-clutches.html
 

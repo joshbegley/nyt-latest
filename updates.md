@@ -1,3 +1,7 @@
+**'Brutal hit': Bruins furious about minor penalty for an elbow to McAvoy's head**\
+`"With Charlie, you never want to see that. … He's our best D-man and a huge part of this team. We were worried, for sure."`\
+https://nytimes.com/athletic/7023195/2026/02/04/bruins-charlie-mcavoy-elbow-to-head-panthers/
+
 **Warriors trading Jonathan Kuminga, Buddy Hield to Hawks for Kristaps Porziņģis: Sources**\
 `Kuminga finally moves on after his relationship with Steve Kerr and the Warriors’ front office had largely soured.`\
 https://nytimes.com/athletic/7023218/2026/02/04/warriors-hawks-nba-trade-jonathan-kuminga-buddy-hield-kristaps-porzingis/
