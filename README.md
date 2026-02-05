@@ -1,3 +1,7 @@
+**Anthony Edwards' heroics lift Timberwolves out of trade rumor-induced fog**\
+`Distracted by the Giannis rumors and saddened by the trade of Mike Conley, the Wolves needed Wednesday's win in Toronto.`\
+https://nytimes.com/athletic/7022136/2026/02/05/anthony-edwards-timberwolves-trade-rumors-toronto/
+
 **Breaking down the Yankees' key position battles heading into spring training**\
 `Much of the roster appears set. However, the bench and — to a greater extent — the bullpen remain unsettled.`\
 https://nytimes.com/athletic/7022546/2026/02/05/yankees-position-battles-spring-training/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7016529/2026/02/05/detroit-red-wings-olympic-break-
 **Why didn't the Rangers get more for Artemi Panarin?**\
 `There's no guarantee waiting to trade Panarin would have led to a better return for the Rangers, who didn't have any leverage.`\
 https://nytimes.com/athletic/7022718/2026/02/05/artemi-panarin-trade-rangers-drury-criticism/
-
-**49ers rookie review: Plenty of contributors, but are any foundational pieces?**\
-`Six 49ers rookies played at least 275 snaps on offense or defense this season, but none made the All-Rookie team.`\
-https://nytimes.com/athletic/7009096/2026/02/05/49ers-rookie-draft-picks-mykel-williams-upton-stout/
 
