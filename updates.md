@@ -1,3 +1,7 @@
+**Warriors relieved, hopeful as they make a deal while keeping Giannis door open**\
+`The Warriors finally moved on from Jonathan Kuminga, adding a measure of relief to their continued hopes of acquiring the biggest prize.`\
+https://nytimes.com/athletic/7023464/2026/02/05/warriors-trades-giannis-deal/
+
 **Thousands Displaced for a Military Operation That Pakistan Says Won’t Happen**\
 `Some 60,000 evacuees have been left in limbo by confusion and political disputes as Pakistan battles insurgents on its border with Afghanistan.`\
 https://nytimes.com/2026/02/05/world/asia/pakistan-military-operation-displaced-people.html
