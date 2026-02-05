@@ -1,3 +1,23 @@
+**'It starts with coaches': Leon Draisaitl calls out Oilers after loss to Flames**\
+`Draisaitl vented his frustration by calling out to his team and coaching staff after a 4-3 loss to the Flames on Wednesday.`\
+https://nytimes.com/athletic/7024794/2026/02/05/leon-draisaitl-oilers-flames-coaches-comments/
+
+**ICE’s ‘Reckless, Xenophobic Mission’**\
+`Readers suggest steps to take in response to federal actions that have terrorized some communities. Also: When the president is rude; imperfect marriages.`\
+https://nytimes.com/2026/02/05/opinion/minneapolis-ice.html
+
+**Police search House of Doge-owned Triestina in alleged money laundering investigation**\
+`The offices of Triestina, one of Italy’s most historic clubs, were among a series of properties searched by police on Wednesday.`\
+https://nytimes.com/athletic/7023798/2026/02/05/triestina-house-of-doge-police-investigation/
+
+**I Need Herbs and I Need Citrus**\
+`Ultrabright recipes like green goddess chickpea sauté and preserved lemon pasta are the antidote to this cold winter.`\
+https://nytimes.com/2026/02/05/dining/i-need-herbs-and-i-need-citrus.html
+
+**USA downs Czech Republic 5-1 as Olympic women's hockey tournament opens: Takeaways**\
+`With Canada's game versus Finland postponed due to a norovirus outbreak, the U.S. and Czechia opened the Olympic women's hockey tournament.`\
+https://nytimes.com/athletic/7024335/2026/02/05/usa-czechia-olympic-womens-hockey-results/
+
 **The Best Ski Racers Often Don’t Win Gold**\
 `Unlike many Olympic sports, the best Alpine skiers often don’t win gold. Two-time Olympic champion Ted Ligety explains why the sport is so unpredictable.`\
 https://nytimes.com/interactive/2026/02/05/sports/skiing/ski-racing-olympics-ted-ligety.html
