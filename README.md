@@ -1,3 +1,23 @@
+**NCAA denies Ole Miss' appeal for 6th year for QB Trinidad Chambliss**\
+`Decision puts the quarterback’s future in the hands of a Mississippi court.`\
+https://nytimes.com/athletic/7023047/2026/02/04/trinidad-chambliss-waiver-appeal-denied-ncaa-ole-miss/
+
+**Red Sox add defense with Isiah Kiner-Falefa, but still in need of offensive boost**\
+`Kiner-Falefa doesn’t fill the need for more power in the lineup, but does bring Gold Glove level defense to the infield.`\
+https://nytimes.com/athletic/7022957/2026/02/04/boston-red-sox-isiah-kiner-falefa-signing/
+
+**Nikola Jokić ties Oscar Robertson on NBA's triple-double list vs. Knicks**\
+`Jokić continues to cement his place among basketball's all-time greats.`\
+https://nytimes.com/athletic/6927796/2026/02/04/nikola-jokic-triple-double-ties-oscar-robertson/
+
+**Venezuela Said to Detain Maduro Allies Targeted by the U.S.**\
+`The questioning of the politically connected businessmen, Raúl Gorrín and Alex Saab, signaled deepening cooperation between the two nations.`\
+https://nytimes.com/2026/02/04/world/americas/venezuela-said-to-detain-maduro-allies-targeted-by-the-us.html
+
+**Source of a Large Print**\
+`Dario Salvucci makes his New York Times Crossword debut.`\
+https://nytimes.com/2026/02/04/crosswords/daily-puzzle-2026-02-05.html
+
 **Demond Williams Jr. cites ‘really bad’ advice when addressing transfer saga**\
 `Williams became a polarizing figure in college football when he announced his intention to transfer but two days later said he'd stay put.`\
 https://nytimes.com/athletic/7022783/2026/02/04/desmond-williams-washington-qb-transfer-advice/
@@ -17,24 +37,4 @@ https://nytimes.com/interactive/2026/02/04/us/self-deport-immigration-california
 **Tigers, Framber Valdez agree to three-year, $115 million deal: Sources**\
 `At his best, Valdez is an ace, a man nicknamed "La Grasa" for the designer clothes and colognes he wears between starts.`\
 https://nytimes.com/athletic/6838675/2026/02/04/mlb-framber-valdez-free-agency-tigers/
-
-**Drake Maye a full participant in Patriots practice on Wednesday**\
-`The 23-year-old Maye was a full participant in practice Wednesday. He is expected to play in Sunday's Super Bowl against the Seahawks.`\
-https://nytimes.com/athletic/7022888/2026/02/04/drake-maye-patriots-injury-status-robert-spillane-super-bowl/
-
-**China’s Xi Presses Trump on Taiwan in Phone Call**\
-`Both leaders gave versions of what they discussed, but the Chinese president’s take made clear the issue of the island was front and center.`\
-https://nytimes.com/2026/02/04/us/politics/xi-phone-call-taiwan.html
-
-**What the Anthony Davis trade means for the Wizards' future**\
-`If Davis and Young remain healthy and embrace their roles, the “Wiz Kids” could develop and play competitive basketball at the same time.`\
-https://nytimes.com/athletic/7022655/2026/02/04/anthony-davis-trade-wizards-future/
-
-**Man Who Falsely Claimed He Killed Charlie Kirk Is Sentenced to Prison**\
-`The authorities said the man, George Zinn, tried to derail their search for Mr. Kirk’s actual killer. He faces up to 15 years in prison on obstruction of justice and other charges.`\
-https://nytimes.com/2026/02/04/us/false-confession-charlie-kirk-shooting-prison.html
-
-**U.S. and Iran to Hold Talks in Oman on Friday**\
-`The White House confirmed a meeting would take place after days of conflicting reports on the talks’ timing, location and format.`\
-https://nytimes.com/2026/02/04/world/middleeast/iran-us-talks-oman.html
 
