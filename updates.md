@@ -1,3 +1,15 @@
+**The rise of cricket in Nepal: 'The T20 World Cup is an opportunity. The expectation is Test cricket'**\
+`Cricket has overtaken football in terms of popularity in Nepal with the national team now hoping to go deep into the T20 World Cup`\
+https://nytimes.com/athletic/7017923/2026/02/05/nepal-cricket-t20-world-cup-test-law/
+
+**Kai Havertz and the importance of being a 'floater' at Arsenal**\
+`The German attacker's ability to fulfil different roles could be pivotal to his side's chances of success this season`\
+https://nytimes.com/athletic/7017904/2026/02/05/kai-havertz-arsenal-position/
+
+**Adding Panarin signals ambition from the Kings — and possibly hubris**\
+`The Kings got a star offensive winger for a song thanks to his no-move clause. But it still left a fairly bare cupboard emptier than before.`\
+https://nytimes.com/athletic/7023170/2026/02/05/kings-artemi-panarin-trade-holland-playoffs/
+
 **Is it time to sell Haaland or other FPL premiums?**\
 `With many FPL managers now comfortable moving the armband away from the Man City striker, it raises questions about his place in our squads`\
 https://nytimes.com/athletic/7020688/2026/02/05/fantasy-premier-league-fpl-tips-gameweek-25-haaland/
