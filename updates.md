@@ -1,3 +1,5 @@
+
+
 **What Restrictions Are Democrats Demanding for Immigration Agents?**\
 `Democrats say they will not support a spending bill to keep the Homeland Security Department running without new restrictions on federal agents.`\
 https://nytimes.com/2026/02/05/us/politics/democrats-dhs-funding-immigration.html
