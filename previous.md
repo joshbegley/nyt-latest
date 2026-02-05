@@ -1,3 +1,7 @@
+**Pentagon Official Rejects Plea Deal in U.S.S. Cole Bombing Case**\
+`The decision clears the way for the first death-penalty trial at Guantánamo Bay to start this summer, more than 25 years after the attack.`\
+https://nytimes.com/2026/02/05/us/politics/cole-bombing-plea-deal-rejected.html
+
 **Initial bids in Padres' sale process expected near end of February: Sources**\
 `An eventual sale of the Padres has been widely expected since Peter Seidler’s death in November 2023. `\
 https://nytimes.com/athletic/7025610/2026/02/05/san-diego-padres-sale-process-bids/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/05/world/canada/toronto-police-arrested-drugs-corrup
 **Toronto Police Officers Charged in Drug and Corruption Investigation**\
 `Eight Toronto police officers were charged in an investigation, which began after a prison manager was targeted by three hit men.`\
 https://nytimes.com/video/world/americas/100000010692482/toronto-police-corruption-investigation.html
-
-**‘The Strangers: Chapter 3’ Review: Devils in Disguise**\
-`The final installment in the trilogy reboot of “The Strangers,” a genuinely terrifying 2008 home invasion film, brings the masked nonsense to a close.`\
-https://nytimes.com/2026/02/05/movies/the-strangers-chapter-3-review.html
 

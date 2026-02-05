@@ -1,3 +1,7 @@
+**Pentagon Official Rejects Plea Deal in U.S.S. Cole Bombing Case**\
+`The decision clears the way for the first death-penalty trial at Guantánamo Bay to start this summer, more than 25 years after the attack.`\
+https://nytimes.com/2026/02/05/us/politics/cole-bombing-plea-deal-rejected.html
+
 **Initial bids in Padres' sale process expected near end of February: Sources**\
 `An eventual sale of the Padres has been widely expected since Peter Seidler’s death in November 2023. `\
 https://nytimes.com/athletic/7025610/2026/02/05/san-diego-padres-sale-process-bids/
