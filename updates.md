@@ -1,3 +1,7 @@
+**Thousands Displaced for a Military Operation That Pakistan Says It Didn’t Order**\
+`Some 60,000 evacuees have been left in limbo by confusion and political disputes as Pakistan battles insurgents on its border with Afghanistan.`\
+https://nytimes.com/2026/02/05/world/asia/pakistan-military-operation-displaced-people.html
+
 **Russia-Ukraine Peace Talks Stretch Into a Second Day**\
 `Little has been made public so far, but negotiators were expected to talk about the fate of Ukrainian territory in the east and security guarantees for Ukraine.`\
 https://nytimes.com/2026/02/05/world/europe/russia-ukraine-peace-talks.html
