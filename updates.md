@@ -1,3 +1,7 @@
+**(Non) trade grades: Giannis, Ja Morant are staying put. Are those the right calls?**\
+`These non-trades made as much noise as the big transactions we actually saw.`\
+https://nytimes.com/athletic/7025006/2026/02/05/giannis-ja-morant-nba-trade-grades/
+
 **12 Columbia Professors and Students Are Arrested at Anti-ICE Protest**\
 `Demonstrators, who were demanding that the university provide more protection for international students, blocked Broadway.`\
 https://nytimes.com/2026/02/05/nyregion/columbia-professors-students-protest-arrests.html
