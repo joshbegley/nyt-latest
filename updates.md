@@ -1,3 +1,11 @@
+**Villa's Unai Emery asks Liverpool to change Harvey Elliott loan terms**\
+`The manager said the situation was "damaging" for the 22-year-old, who has played only five times this season.`\
+https://nytimes.com/athletic/7027580/2026/02/06/harvey-elliott-aston-villa-liverpool-loan-change-emery/
+
+**Moderates Pitch Tough-on-Crime Message for Democrats Amid Immigration Talks**\
+`A polling memo circulated among centrist senators urged Democrats to talk tougher on crime, an issue where they lag Republicans, while noting an opportunity for the party to appeal to voters with criticism of ICE.`\
+https://nytimes.com/2026/02/06/us/politics/moderates-pitch-tough-on-crime-message-for-democrats-amid-immigration-talks.html
+
 **Amazon’s ‘Top Choice Is the Worst Choice’**\
 `What does Amazon’s top choice product designation really mean? The authors Cory Doctorow and Tim Wu describe how the ranking is not based on quality but on the extraction of our attention and money.`\
 https://nytimes.com/video/opinion/100000010591096/amazons-top-choice-is-the-worst-choice.html
