@@ -26,7 +26,7 @@ https://nytimes.com/2026/02/06/opinion/bad-bunny-super-bowl.html
 `This month’s picks include a Korean political satire, an Indian thriller set in the world of dog-breeding, a biopic of a Czech athlete-turned-porn star and more.`\
 https://nytimes.com/2026/02/06/movies/international-movies-streaming.html
 
-**Sources: LAFC signing Canada's Eustáquio from Porto**\
+**LAFC signs Canada's Eustáquio on loan from Porto**\
 `The Canadian veteran is headed to MLS after a few years spent with the Portuguese power`\
 https://nytimes.com/athletic/7016504/2026/02/06/stephen-eustaquio-lafc-porto-transfer-mls-canada/
 
