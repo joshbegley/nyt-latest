@@ -1,3 +1,7 @@
+**Mike Conley on path to return to Wolves after trade, thanks to CBA loophole**\
+`For a moment, Mike Conley's time in Minnesota appeared done. Thanks to a CBA loophole, the 38-year-old will return to the Wolves. `\
+https://nytimes.com/athletic/7027598/2026/02/06/mike-conley-minnesota-timberwolves-trade-return-cba/
+
 **Scattered protests occurred in Milan before the ceremonies began.**\
 `By Ashley Ahn and Tariq Panja`\
 https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/milan-olympics-protests-immigration-agents-housing
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7027249/2026/02/06/sonny-jurgensen-death-washington
 **Deion Sanders on coaching in the NFL: 'Ain't no way in the world'**\
 `Sanders said after "what transpired with my son last year" that he has no interest in coaching in the NFL.`\
 https://nytimes.com/athletic/7027663/2026/02/06/deion-sanders-nfl-coach-shedeur/
-
-**Who will light the Olympic cauldrons?**\
-`By Victor Mather`\
-https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/who-will-light-the-olympic-cauldrons
 
