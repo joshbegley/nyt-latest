@@ -1,40 +1,40 @@
-**Iran Is at Work on Missile and Nuclear Sites, Satellite Images Show**\
-`Repairs at key missile sites began soon after they were hit by Israeli and U.S. strikes last year, but work at Iran’s nuclear facilities has been slower.`\
-https://nytimes.com/2026/02/06/world/middleeast/iran-missile-nuclear-repairs.html
+**World Cup 2026 – what we’re hearing: McDonald's opts out of selling food and drink at official Fan Fests**\
+`No McDonald's food or drink at Fan Fests, Infantino's appearance at 'Melania' premiere and cities shocked by prices for suite guests`\
+https://nytimes.com/athletic/7024467/2026/02/06/mcdonalds-world-cup-fan-fest/
 
-**Women's Olympic downhill: Why Tofane, Cortina's famed track, is 'the most perfect'**\
-`After several Olympics on unfamiliar slopes, Cortina's Olympia delle Tofane is a popular host for women's Alpine's top skiers.`\
-https://nytimes.com/athletic/7024755/2026/02/06/winter-olympics-womens-downhill-tofane-track-cortina/
+**Miami Marlins 2026 top 20 prospects: Aiva Arquette, Thomas White lead the way**\
+`The Marlins system has a lot of players who project to some big-league value, but it's very light on impact players.`\
+https://nytimes.com/athletic/7021729/2026/02/06/miami-marlins-2026-top-20-prospects-keith-law/
 
-**To some, Bad Bunny is a target. To the NFL, he's the future**\
-`The NFL didn't choose Bad Bunny to make a political statement. It did it to help its global ambitions — and to make the world dance.`\
-https://nytimes.com/athletic/7025806/2026/02/06/bad-bunny-super-bowl-halftime-show-nfl-global-ambition/
+**From Nikola Vučević to luxury tax dodging: How did Celtics fare at trade deadline?**\
+`Celtics GM Brad Stevens was busy making deals that helped Boston's financial future. `\
+https://nytimes.com/athletic/7025867/2026/02/06/celtics-nba-trade-deadline-nikola-vucevic/
 
-**Jaxon Smith-Njigba is the 'best in the world.' He also personifies the Seahawks' attitude**\
-`Smith-Njigba lets his game speak for itself, and the whole world saw it this season. What's harder to see is his impact as a leader.`\
-https://nytimes.com/athletic/7025676/2026/02/06/jaxon-smith-njigba-jsn-opoy/
+**How Vladar has become the Flyers' irreplaceable leader in more ways than one**\
+`The goalie is clearly the Flyers' MVP of the season during play, but what happens between whistles sets him apart.`\
+https://nytimes.com/athletic/7026114/2026/02/06/flyers-dan-vladar-leadership-goalie-olympics/
 
-**The men's downhill course is formidable. Skiers must be brave and a 'little bit crazy'**\
-`On Saturday, the daunting downhill course in Bormio will challenge the world's best male Alpine skiers. `\
-https://nytimes.com/athletic/7023553/2026/02/06/stelvio-mens-downhill-2026-winter-olympics/
+**Artemi Panarin — and former Rangers teammates — reflect on his departure**\
+`“I’ve had a lot of friends get traded over the years, and this one is no easier,” said former teammate Vincent Trocheck.`\
+https://nytimes.com/athletic/7026168/2026/02/06/artemi-panarin-rangers-teammates-reflect-sullivan-hurricanes/
 
-**Drew Brees would be a Hall of Famer anywhere, but in New Orleans, he’s one of a kind**\
-`Despite being benched three times and shredding his shoulder, Brees revitalized a whole city. There will never be anything else like it.`\
-https://nytimes.com/athletic/7024397/2026/02/06/drew-brees-hall-of-fame-saints/
+**Avery Hayes' unforgettable night provides Penguins with latest dose of magic**\
+`Avery Hayes woke up Thursday not expecting a call to the NHL. He finished the first period against the Sabres with two goals.`\
+https://nytimes.com/athletic/7025794/2026/02/06/penguins-avery-hayes-nhl-debut-kindel-sabres/
 
-**Tapping into Sam Darnold's mind: How abandoning pursuit of perfection elevated Seahawks QB**\
-`Darnold has thoroughly shed the bust label, in large part due to a new, freeing mindset.`\
-https://nytimes.com/athletic/7022865/2026/02/06/sam-darnold-seahawks-super-bowl-ghosts-mind/
+**Sabres' ugly home loss to Penguins puts trade-deadline needs on full display**\
+`Buffalo's game has slipped a bit over the past four games, with potential areas for reinforcement clearly visible.`\
+https://nytimes.com/athletic/7026246/2026/02/06/sabres-trade-deadline-bryson-defensive-depth-penguins/
 
-**The Year of the Coach: Why this NFL season was different from the rest**\
-`Mike Vrabel won the coach of the year award, but plenty of others deserve attention, from Sean Payton to rookies Liam Coen and Ben Johnson.`\
-https://nytimes.com/athletic/7021175/2026/02/06/nfl-year-of-the-coach-mike-vrabel-mike-macdonald/
+**Panthers great Luke Kuechly is a Hall of Famer, just like his teammates knew he would be**\
+`Kuechly is the seventh player or executive with Panthers’ ties to make the Hall, but the first who spent his entire career with the team.`\
+https://nytimes.com/athletic/7025273/2026/02/06/luke-kuechly-hall-of-fame-panthers/
 
-**Josh McDaniels' winding road back to another Super Bowl with the Patriots**\
-`The veteran offensive coordinator is back for his third run in New England armed with new teachings from some of the country's best coaches.`\
-https://nytimes.com/athletic/7022608/2026/02/06/josh-mcdaniels-patriots-super-bowl-60/
+**Jeremy Sochan trade saga ends as Spurs stand pat at NBA trade deadline**\
+`After Jeremy Sochan tried to find a new home, the Spurs ended up keeping him at the NBA trade deadline. So, what comes next?`\
+https://nytimes.com/athletic/7026045/2026/02/06/jeremy-sochan-spurs-nba-trade-deadline/
 
-**These aren't quite the 2001 Patriots, but you'd be forgiven for confusing the two**\
-`A surprise Patriots team led by a poised second-year QB is now in the Super Bowl after surviving a playoff snow game. Sound familiar?`\
-https://nytimes.com/athletic/7025498/2026/02/06/super-bowl-patriots-2001-drake-maye-tom-brady/
+**The Knicks did right at the trade deadline — now a championship run is on them**\
+`Knicks president Leon Rose was smart to stay with the team's core and add Jose Alvarado, a New York City point guard out of central casting.`\
+https://nytimes.com/athletic/7025705/2026/02/06/knicks-trade-deadline-jose-alvardo-nba-finals/
 
