@@ -1,3 +1,27 @@
+**How shape-shifting Sunderland are using wide combinations to chase a top-half finish**\
+`The tactical flexibility of Regis Le Bris' squad is the primary reason they have readapted to Premier League life so successfully`\
+https://nytimes.com/athletic/7020802/2026/02/06/sunderland-tactics-premier-league/
+
+**The Pascal Struijk expected goals quirk – and why Leeds need more from him**\
+`If Leeds want to turn draws into wins at a crucial point of the season then they need to be more clinical with their set-pieces`\
+https://nytimes.com/athletic/7024159/2026/02/06/struijk-leeds-expected-goals-underperformance/
+
+**Why did Crystal Palace buy Jorgen Strand Larsen?**\
+`The London club paid an eye-watering fee to sign the Norway striker but, given his qualities, there was a logic to their pursuit`\
+https://nytimes.com/athletic/7018434/2026/02/06/crystal-palace-strand-larsen-wolves-analysis/
+
+**Can Lorenzo Lucca be the centre-forward Nottingham Forest need?**\
+`The on-loan forward, affectionately nicknamed 'Pizza Crouch', is looking to reboot his career under the guidance of Sean Dyche `\
+https://nytimes.com/athletic/7023828/2026/02/06/lorenzo-lucca-nottingham-forest-napoli/
+
+**Spurs allow shots from the edge of the box, but do not take many - it's costing them**\
+`Tottenham have conceded eight goals from outside their penalty area this season - the second-worst record in the Premier League`\
+https://nytimes.com/athletic/7024172/2026/02/06/spurs-shots-edge-of-box-data/
+
+**Dani Carvajal embodies Real Madrid — so why is his future uncertain?**\
+`He has been at Madrid for 23 years, but his contract runs out this summer — so where does he stand? And what are the club thinking?`\
+https://nytimes.com/athletic/7021560/2026/02/06/dani-carvajal-real-madrid-contract-future/
+
 **Luka Dončić ruled out of Lakers-Sixers game after apparent leg injury**\
 `Dončić appeared to grab at the back of his leg in the second quarter. He stayed in the game but was limping and needed to be taken out.`\
 https://nytimes.com/athletic/7026272/2026/02/06/luka-doncic-leg-injury-lakers-sixers/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7004491/2026/02/06/alejandro-garnacho-chelsea-man-u
 **New Jersey House Primary Remains Too Close to Call**\
 `Two Democrats, Analilia Mejia and Tom Malinowski, were leading in a race for their party’s nomination to replace Gov. Mikie Sherrill in the House.`\
 https://nytimes.com/2026/02/06/nyregion/new-jersey-special-election-results-congress.html
-
-**What's Liverpool's transfer strategy and where must they strengthen?**\
-`Analysing the depth of Arne Slot's squad after a quiet transfer window, and what will inform their summer transfer strategy`\
-https://nytimes.com/athletic/7018314/2026/02/06/liverpool-transfer-strategy-squad-audit/
-
-**Premier League predictions: Man Utd vs Spurs, Liverpool vs City and rest of matchday 25**\
-`A change at the top? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 25?`\
-https://nytimes.com/athletic/7021655/2026/02/06/premier-league-predictions-md25/
-
-**Welcome to Arsenal's old south-London stadium, with its terraces hidden away in back gardens**\
-`Arsenal played at the Invicta Ground between 1890 and 1893, and parts of it have survived behind houses on a street in Plumstead`\
-https://nytimes.com/athletic/6991197/2026/02/06/arsenal-old-stadium-plumstead/
-
-**Tom Lockyer, a Wrexham fan, and why every EFL match this weekend kicks off a minute late**\
-`Former Luton Town captain Lockyer, who suffered a cardiac arrest on the pitch in 2023, is backing the Every Minute Matters campaign`\
-https://nytimes.com/athletic/7020685/2026/02/06/tom-lockyer-wrexham-championship/
-
-**There's a key factor behind the calm at Barcelona: Hansi Flick and Deco’s alliance**\
-`The relationship between Barcelona's manager and sporting director has helped produce a settled period of success at the Catalan club`\
-https://nytimes.com/athletic/7024068/2026/02/06/barcelona-flick-deco-transfers-calm-laporta/
-
-**Howe, Newcastle's 'full faith in him', and the question of longevity**\
-`The club's CEO says there is 'aligment' over the club's long-term plan and Newcastle are a rare example of stability, but for how long?`\
-https://nytimes.com/athletic/7023789/2026/02/06/eddie-howe-newcastle-longevity/
 
