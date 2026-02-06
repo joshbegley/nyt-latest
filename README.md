@@ -1,3 +1,7 @@
+**Moderates Pitch Tough-on-Crime Message for Democrats Amid Immigration Talks**\
+`A polling memo circulated among centrist senators urged Democrats to talk tougher on crime, an issue where they lag Republicans, while noting an opportunity for the party to appeal to voters with criticism of ICE.`\
+https://nytimes.com/2026/02/06/us/politics/moderates-pitch-tough-on-crime-message-for-democrats-amid-immigration-talks.html
+
 **Amazon’s ‘Top Choice Is the Worst Choice’**\
 `What does Amazon’s top choice product designation really mean? The authors Cory Doctorow and Tim Wu describe how the ranking is not based on quality but on the extraction of our attention and money.`\
 https://nytimes.com/video/opinion/100000010591096/amazons-top-choice-is-the-worst-choice.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/06/arts/design/smithsonian-national-portrait-gallery
 **James Rodriguez signing could boost Minnesota amid political turmoil, exec says**\
 `It is hoped the Colombian star's arrival can reenergize the Minnesota region`\
 https://nytimes.com/athletic/7028084/2026/02/06/james-rodriguez-minnesota-ice-trump-good-pretti/
-
-**Swiss women's Olympic hockey team in isolation after player diagnosed with norovirus**\
-`Switzerland is scheduled to play Canada — whose Olympic debut was already delayed because of a norovirus outbreak — on Saturday.`\
-https://nytimes.com/athletic/7028066/2026/02/06/switzerland-womens-hockey-olympics-norovirus/
 

@@ -1,3 +1,15 @@
+**Amazon’s ‘Top Choice Is the Worst Choice’**\
+`What does Amazon’s top choice product designation really mean? The authors Cory Doctorow and Tim Wu describe how the ranking is not based on quality but on the extraction of our attention and money.`\
+https://nytimes.com/video/opinion/100000010591096/amazons-top-choice-is-the-worst-choice.html
+
+**The Internet Feels Miserable ‘By Design’**\
+`Slop, rage bait, brain rot. The authors Cory Doctorow and Tim Wu explain how today’s internet keeps us hooked and makes us angry, and what we can do about it.`\
+https://nytimes.com/video/opinion/100000010591092/the-internet-feels-miserable-by-design.html
+
+**The Lakers are lining up for a Giannis chase, but the real plan must be bigger**\
+`The Lakers will have three first-round picks at their disposal on draft night. They can and should pursue Giannis Antetokounmpo.`\
+https://nytimes.com/athletic/7027963/2026/02/06/lakers-giannis-antetokounmpo-trade-deadline/
+
 **Yasiel Puig found guilty of obstruction of justice, false statements**\
 `A jury found the former Dodgers star guilty of lying to federal investigators about his knowledge of an illegal gambling operation.`\
 https://nytimes.com/athletic/7024828/2026/02/06/yasiel-puig-trial-guilty-gambling-obstruction/
