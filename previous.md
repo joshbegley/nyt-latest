@@ -1,3 +1,15 @@
+**Stellantis’s Shift Away From Electric Cars Will Cost It $26 Billion**\
+`The company, which owns Chrysler, Fiat, Jeep and Peugeot, is changing its strategy to gasoline and hybrid vehicles in an effort to revive weak sales.`\
+https://nytimes.com/2026/02/06/business/stellantis-writedown-electric-vehicles.html
+
+**Argentina's new rule that would have barred Messi from the national team**\
+`The move by the Argentine Football Association (AFA) is designed to protect domestic clubs from losing young players to teams abroad.`\
+https://nytimes.com/athletic/6994127/2026/02/06/argentina-youth-players-rule-messi/
+
+**A Reprieve for Veterans Applying for V.A. Mortgages**\
+`House Republicans have scaled back a proposal to charge higher fees for the loans after opposition from veterans groups. But it still includes a higher fee for refinancings.`\
+https://nytimes.com/2026/02/06/your-money/veterans-mortgages-fees-republicans.html
+
 **A Reprieve for the Markets, but for How Long?**\
 `Technology stocks and Bitcoin are showing signs of a rebound after a disastrous week. But investors remain on edge about whether more pain is in store.`\
 https://nytimes.com/2026/02/06/business/dealbook/software-stocks-ai-crypto.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/06/us/politics/trump-obamas-video-apes-truth-social.
 **NBA post-trades watch guide: Warriors-Lakers, Knicks-Celtics, Harden's Cavs debut**\
 `After a frenzied trade deadline, the NBA pulls up to its full weekend slate.`\
 https://nytimes.com/athletic/7022232/2026/02/06/nba-trade-deadline-james-harden-cavs-debut-tv/
-
-**Trump Administration Live Updates: U.S. and Iran Prepare for Talks**\
-``\
-https://nytimes.com/live/2026/02/06/us/trump-news
-
-**Cristiano Ronaldo is now 41, so here are 41 stats you (probably) don't know about him**\
-`Forty-one facts and pieces of trivia about the Portuguese forward's remarkable achievements`\
-https://nytimes.com/athletic/7018113/2026/02/06/cristiano-ronaldo-is-41-so-here-are-41-stats-you-probably-dont-know-about-him/
-
-**Savannah Guthrie’s Brother Renews Plea for Their Missing Mother’s Return**\
-`The search for Nancy Guthrie has entered its sixth day. The F.B.I. has offered a $50,000 reward for information.`\
-https://nytimes.com/2026/02/06/us/savannah-nancy-guthrie-missing-updates.html
 

@@ -1,3 +1,15 @@
+**Stellantis’s Shift Away From Electric Cars Will Cost It $26 Billion**\
+`The company, which owns Chrysler, Fiat, Jeep and Peugeot, is changing its strategy to gasoline and hybrid vehicles in an effort to revive weak sales.`\
+https://nytimes.com/2026/02/06/business/stellantis-writedown-electric-vehicles.html
+
+**Argentina's new rule that would have barred Messi from the national team**\
+`The move by the Argentine Football Association (AFA) is designed to protect domestic clubs from losing young players to teams abroad.`\
+https://nytimes.com/athletic/6994127/2026/02/06/argentina-youth-players-rule-messi/
+
+**A Reprieve for Veterans Applying for V.A. Mortgages**\
+`House Republicans have scaled back a proposal to charge higher fees for the loans after opposition from veterans groups. But it still includes a higher fee for refinancings.`\
+https://nytimes.com/2026/02/06/your-money/veterans-mortgages-fees-republicans.html
+
 **As Olympics Open, Pope Leo Warns Against Using Sports for ‘Propaganda or National Supremacy’**\
 `The Milan-Cortina Games are overlapping with a moment of geopolitical turbulence as conflicts rage, national leaders issue threats and alliances are strained.`\
 https://nytimes.com/2026/02/06/world/europe/pope-leo-milan-olympics-letter.html
