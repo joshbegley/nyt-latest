@@ -1,3 +1,7 @@
+**Facing Threats From Both America and China, Toyota Changes C.E.O.s**\
+`The world’s biggest automaker has navigated the industry’s turbulent E.V. transition, but is looking to new leadership to manage complex geopolitical challenges.`\
+https://nytimes.com/2026/02/06/business/toyota-ceo-kenta-kon.html
+
 **Ronaldo told 'nobody makes decisions beyond their club' by Saudi league**\
 `There are doubts over whether he will play against Al Ittihad on Friday after missing out on the win over Al Riyadh on Monday night.`\
 https://nytimes.com/athletic/7026457/2026/02/06/cristiano-ronaldo-not-playing-saudi/
