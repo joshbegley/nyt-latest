@@ -1,3 +1,15 @@
+**How ‘The Pitt’ Nails the High Moral Stakes of the E.R.**\
+`Sasha Weiss, the culture editor at The New York Times Magazine, joined Wesley Morris, host of “Cannonball,” to talk about the acclaimed hospital drama “The Pitt.” They discussed how the show develops its characters via the ethical practice of their work.`\
+https://nytimes.com/video/podcasts/100000010687348/the-pitt-character-development.html
+
+**Alysa Liu back on the Olympic stage, this time truly herself**\
+`Liu put her U.S. team in prime position to repeat its gold medal performance from 2022, by placing second in the women's short program.`\
+https://nytimes.com/athletic/7027486/2026/02/06/olympics-figure-skating-alysa-liu-usa/
+
+**How to Tell if You Will Save Money Using TrumpRx**\
+`People may be able to pay less for prescriptions with their insurance rather than via the new government website. The Trump drugstore is meant to help people buy medications using their own money.`\
+https://nytimes.com/2026/02/06/health/trumprx-prescription-drug-prices-consumers.html
+
 **Super Bowl betting for (by) dummies: Drafting the best bets for Seahawks vs. Patriots**\
 `Jon Greenberg and Zac Jackson draft their favorite bets for Super Bowl 60.`\
 https://nytimes.com/athletic/7027326/2026/02/06/super-bowl-betting-for-by-dummies-seahawks-patriots/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/06/opinion/free-fair-elections.html
 **Is Catholicism Having a Moment With Gen Z?**\
 `Why are some young adults seeking out the Catholic Church? “They want a sense of meaning, they want a sense of mystery,” Father James Martin said on “The Interview.”`\
 https://nytimes.com/video/podcasts/100000010686844/catholic-church-gen-z-james-martin.html
-
-**Rev. James Martin: Why I Advocate for L.G.B.T.Q. Catholics**\
-`Father James Martin is known for his advocacy on behalf of gay and lesbian Catholics. On “The Interview,” he talks about how the 2016 mass shooting at the Pulse nightclub in Orlando, Fla., compelled him to speak up.`\
-https://nytimes.com/video/podcasts/100000010686811/father-james-martin-lgbtq-catholics.html
-
-**Rev. James Martin on Trump’s Immigration Crackdown**\
-`Over the past year, American Catholic bishops and clergy have spoken out against President Trump’s immigration policies. On “The Interview,” Father James Martin, a Jesuit priest and best-selling author, shared his view.`\
-https://nytimes.com/video/podcasts/100000010686828/father-james-martin-trump-immigration.html
-
-**These ceremonies have a tough act to follow: Italy’s last Olympics spectacle.**\
-`By Alex Marshall`\
-https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/these-ceremonies-have-a-tough-act-to-follow-italys-last-olympics-spectacle
 
