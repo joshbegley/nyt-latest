@@ -2,7 +2,7 @@
 `By Ashley Ahn and Tariq Panja`\
 https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/milan-olympics-protests-immigration-agents-housing
 
-**Chelsea head coach Bompastor agrees contract extension**\
+**Chelsea head coach Bompastor agrees contract extension to 2030**\
 `The 43-year-old joined in 2024 on an initial four-year deal and oversaw their sixth league title in a row last season. `\
 https://nytimes.com/athletic/7027712/2026/02/06/sonia-bompastor-chelsea-women-contract-extension/
 

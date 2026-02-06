@@ -1,3 +1,11 @@
+**Scattered protests occurred in Milan before the ceremonies began.**\
+`By Ashley Ahn and Tariq Panja`\
+https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/milan-olympics-protests-immigration-agents-housing
+
+**Chelsea head coach Bompastor agrees contract extension**\
+`The 43-year-old joined in 2024 on an initial four-year deal and oversaw their sixth league title in a row last season. `\
+https://nytimes.com/athletic/7027712/2026/02/06/sonia-bompastor-chelsea-women-contract-extension/
+
 **What Lakers' post-trade deadline game vs. 76ers revealed about their roster**\
 `The Lakers quiet trade deadline leaves JJ Redick and the Lakers to solve the roster questions themselves. `\
 https://nytimes.com/athletic/7026433/2026/02/06/lakers-sixers-trade-deadline-nba/
