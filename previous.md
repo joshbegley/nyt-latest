@@ -1,3 +1,19 @@
+**Muslims Move to Assert Political Power in New York City**\
+`Zohran Mamdani’s ascension to mayor has given Muslim organizers and faith leaders the impetus to insert themselves into more formal political alliances and networks.`\
+https://nytimes.com/2026/02/05/nyregion/muslims-nyc-political-power.html
+
+**Steve Kerr admits he 'could have done a better job' of helping Jonathan Kuminga**\
+`"I really want to see him succeed and I'm sorry that it didn't happen here," Kerr said. "We all take ownership of that."`\
+https://nytimes.com/athletic/7026051/2026/02/05/steve-kerr-jonathan-kuminga-trade-warriors/
+
+**Patriots' Mike Vrabel named NFL Coach of the Year**\
+`After leading the Patriots to a 14-3 regular-season record and a berth in Super Bowl 60, Vrabel has been named the Coach of the Year.`\
+https://nytimes.com/athletic/7024104/2026/02/05/mike-vrabel-coach-of-the-year-2025-nfl/
+
+**Team USA's roster is stacked, and Puerto Rico's run is ending: WBC roster takeaways**\
+`Plus, why the Dominican Republic could make a run to the championship on the back of its strong roster.`\
+https://nytimes.com/athletic/7025729/2026/02/05/wbc-2026-roster-reveal-takeaways/
+
 **Myles Garrett is NFL Defensive Player of the Year after record 23-sack season**\
 `Garrett, who was a wrecking ball for offenses during the 2025 regular season, was named Defensive Player of the Year for the second time.`\
 https://nytimes.com/athletic/7025648/2026/02/05/nfl-honors-awards-roundup-dpoy-opoy-comeback-player-rookie/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/05/pageoneplus/no-corrections-feb-6-2026.html
 **Dallas Cowboys to play in NFL's first game in Rio de Janeiro**\
 `The Cowboys will play a regular-season game in Rio de Janeiro next season as the NFL continues to expand its international slate of games.`\
 https://nytimes.com/athletic/7025790/2026/02/05/dallas-cowboys-rio-de-janeiro-brazil-2026/
-
-**Trump’s Online Drugstore Opens for Business**\
-`TrumpRx is aimed at helping patients use their own money to buy medicines. But researchers who study drug pricing warned that many patients could pay too much if they use the site.`\
-https://nytimes.com/2026/02/05/health/trumprx-online-drugstore-prices.html
-
-**N.Y. House Democrats Unite to Endorse Hochul on Eve of Convention**\
-`Gov. Kathy Hochul is expected to receive the Democratic nomination at the party’s state convention on Friday, even as her running-mate selection has drawn some debate.`\
-https://nytimes.com/2026/02/05/nyregion/hochul-endorsement-convention.html
-
-**Tigers' Javier Baéz suspended from 2026 WBC for marijuana usage: Source**\
-`Báez, who has a Puerto Rican flag tattooed on one of his arms, played for Team Puerto Rico in both 2017 and 2023.`\
-https://nytimes.com/athletic/7025845/2026/02/05/tigers-javier-baez-team-puerto-rico-wbc/
-
-**Nuggets' Peyton Watson to miss extended time with hamstring strain: Sources**\
-`Watson is one of four prominent Nuggets players who have missed extended time this season with an injury.`\
-https://nytimes.com/athletic/7025841/2026/02/05/peyton-watson-injury-update-hamstring-nuggets/
 

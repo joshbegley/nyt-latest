@@ -1,3 +1,19 @@
+**Muslims Move to Assert Political Power in New York City**\
+`Zohran Mamdani’s ascension to mayor has given Muslim organizers and faith leaders the impetus to insert themselves into more formal political alliances and networks.`\
+https://nytimes.com/2026/02/05/nyregion/muslims-nyc-political-power.html
+
+**Steve Kerr admits he 'could have done a better job' of helping Jonathan Kuminga**\
+`"I really want to see him succeed and I'm sorry that it didn't happen here," Kerr said. "We all take ownership of that."`\
+https://nytimes.com/athletic/7026051/2026/02/05/steve-kerr-jonathan-kuminga-trade-warriors/
+
+**Patriots' Mike Vrabel named NFL Coach of the Year**\
+`After leading the Patriots to a 14-3 regular-season record and a berth in Super Bowl 60, Vrabel has been named the Coach of the Year.`\
+https://nytimes.com/athletic/7024104/2026/02/05/mike-vrabel-coach-of-the-year-2025-nfl/
+
+**Team USA's roster is stacked, and Puerto Rico's run is ending: WBC roster takeaways**\
+`Plus, why the Dominican Republic could make a run to the championship on the back of its strong roster.`\
+https://nytimes.com/athletic/7025729/2026/02/05/wbc-2026-roster-reveal-takeaways/
+
 **Nuggets' Peyton Watson to miss extended time with hamstring strain: Sources**\
 `Watson is one of four prominent Nuggets players who have missed extended time this season with an injury.`\
 https://nytimes.com/athletic/7025841/2026/02/05/peyton-watson-injury-update-hamstring-nuggets/
