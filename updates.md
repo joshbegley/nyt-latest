@@ -1,3 +1,7 @@
+**Virginia Democrats Propose New Congressional Maps Ahead of Midterms**\
+`As they appeal a ruling blocking their redistricting efforts, the state’s Democrats proposed redrawing districts in a way that would strongly favor them.`\
+https://nytimes.com/2026/02/05/us/politics/virginia-redistricting-maps-midterms.html
+
 **For Giannis, Bucks stick to Plan A(ntetokounmpo), but it’s about to get complicated**\
 `When so many believed Antetokounmpo might finally be moved, the Bucks and their fans got to keep the Giannis dream alive.`\
 https://nytimes.com/athletic/7025635/2026/02/05/for-giannis-bucks-stick-to-plan-antetokounmpo-but-its-about-to-get-complicated-again/
