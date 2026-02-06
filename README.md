@@ -1,3 +1,11 @@
+**Blue Jackets at the break: What's changed under Bowness, and how they can still improve**\
+`The Blue Jackets are 10-1-0 since they made a coaching change from Dean Evason to Rick Bowness.`\
+https://nytimes.com/athletic/7024944/2026/02/06/blue-jackets-bowness-streak-break/
+
+**$16 Billion Hudson River Tunnel Project Begins to Wind Down**\
+`Nearly all of the work was scheduled to stop on Friday unless federal officials agreed to restore funding that had been halted last year or a court ordered them to.`\
+https://nytimes.com/2026/02/06/nyregion/gateway-tunnel-project-funding-trump.html
+
 **The NBA trade deadline is over. Now comes an all-time race to the bottom**\
 `A loaded draft looms, and a third of the league has little incentive to win. How bad will it get, and will this prompt reform?`\
 https://nytimes.com/athletic/7025775/2026/02/06/nba-tanking-trade-deadline-draft-reform/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7026732/2026/02/06/wolves-emmanuel-agbadou-besiktas
 **Stellantis’s Shift Away From Electric Cars Will Cost It $26 Billion**\
 `The company, which owns Chrysler, Fiat, Jeep and Peugeot, is changing its strategy to gasoline and hybrid vehicles in an effort to revive weak sales.`\
 https://nytimes.com/2026/02/06/business/stellantis-writedown-electric-vehicles.html
-
-**Argentina's new rule that would have barred Messi from the national team**\
-`The move by the Argentine Football Association (AFA) is designed to protect domestic clubs from losing young players to teams abroad.`\
-https://nytimes.com/athletic/6994127/2026/02/06/argentina-youth-players-rule-messi/
-
-**A Reprieve for Veterans Applying for V.A. Mortgages**\
-`House Republicans have scaled back a proposal to charge higher fees for the loans after opposition from veterans groups. But it still includes a higher fee for refinancings.`\
-https://nytimes.com/2026/02/06/your-money/veterans-mortgages-fees-republicans.html
 
