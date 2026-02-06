@@ -1,3 +1,7 @@
+**As Olympics Open, Pope Leo Warns Against Using Sports for ‘Propaganda or National Supremacy’**\
+`The Milan-Cortina Games are overlapping with a moment of geopolitical turbulence as conflicts rage, national leaders issue threats and alliances are strained.`\
+https://nytimes.com/2026/02/06/world/europe/pope-leo-milan-olympics-letter.html
+
 **A Reprieve for the Markets, but for How Long?**\
 `Technology stocks and Bitcoin are showing signs of a rebound after a disastrous week. But investors remain on edge about whether more pain is in store.`\
 https://nytimes.com/2026/02/06/business/dealbook/software-stocks-ai-crypto.html
