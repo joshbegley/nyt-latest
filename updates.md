@@ -1,3 +1,7 @@
+**Games Briefing: Light the cauldrons**\
+`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7027658/2026/02/06/opening-ceremony-olympic-games-briefing/
+
 **Where is Dejan Kulusevski?**\
 `The Swedish star has been injured since May, with no sign of an imminent return - so what's going on?`\
 https://nytimes.com/athletic/7014133/2026/02/06/where-is-dejan-kulusevski-tottenham/

@@ -1,7 +1,3 @@
-**Games Briefing: Light the cauldrons**\
-`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
-https://nytimes.com/athletic/7027658/2026/02/06/opening-ceremony-olympic-games-briefing/
-
 **Where is Dejan Kulusevski?**\
 `The Swedish star has been injured since May, with no sign of an imminent return - so what's going on?`\
 https://nytimes.com/athletic/7014133/2026/02/06/where-is-dejan-kulusevski-tottenham/
@@ -37,4 +33,8 @@ https://nytimes.com/2026/02/06/nyregion/girl-hit-killed-school-bus-brooklyn.html
 **To Study Antarctic Ice Rifts, You Have to Throw a Few ‘Bombs’**\
 `The fastest way into the gaps between gigantic blocks of a broken-up glacier is by lowering instruments from above, through the door of a helicopter.`\
 https://nytimes.com/2026/02/06/climate/antarctica-thwaites-glacier-rifts.html
+
+**A Lightweight, Minimalist Torch Design Helps Kick Off the Winter Games**\
+`The opening ceremonies will also have two cauldron lightings for the first time. One will be in Milan, the other in Cortina d’Ampezzo.`\
+https://nytimes.com/2026/02/06/world/europe/milan-winter-olympics-torch-design.html
 
