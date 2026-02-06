@@ -1,3 +1,7 @@
+**Newly minted Olympian Seth Jarvis reacts to late Team Canada addition**\
+`Jarvis has 25 goals and 43 points in 49 games this year, and he was part of Canada’s gold medal-winning team at the 4 Nations Face-Off.`\
+https://nytimes.com/athletic/7026206/2026/02/05/seth-jarvis-reacts-team-canada-olympics/
+
 **Amid Kings' and Artemi Panarin's excitement, focus turns to perfecting fit**\
 `The Kings needed a star who can put pucks in the net. Now they have one, but there may be a mutual adjustment period.`\
 https://nytimes.com/athletic/7026120/2026/02/05/kings-artemi-panarin-fit-trade-scoring/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/05/world/americas/argentina-us-trade-deal-trump-mile
 **American snowboarding star Red Gerard did not qualify for big air finals. He's OK with that**\
 `"Honestly, I don’t understand why we’re forced to do this," Gerard said. "I don’t like to do this."`\
 https://nytimes.com/athletic/7025846/2026/02/05/american-snowboarding-star-red-gerard-big-air/
-
-**‘The Pitt’ Season 2, Episode 5 Recap: Reunited**\
-`Robby and Langdon finally collide, and the vibe is predictably tense. That sabbatical can’t some soon enough.`\
-https://nytimes.com/2026/02/05/arts/television/the-pitt-recap-season-2-episode-5.html
 

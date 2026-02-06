@@ -1,3 +1,7 @@
+**Newly minted Olympian Seth Jarvis reacts to late Team Canada addition**\
+`Jarvis has 25 goals and 43 points in 49 games this year, and he was part of Canada’s gold medal-winning team at the 4 Nations Face-Off.`\
+https://nytimes.com/athletic/7026206/2026/02/05/seth-jarvis-reacts-team-canada-olympics/
+
 **Rams' Matthew Stafford edges Patriots' Drake Maye for MVP in closest race since 2003**\
 `Stafford says he's coming back to the Rams next season after throwing for an NFL-leading 4,707 yards and 46 touchdown passes in 2025.`\
 https://nytimes.com/athletic/7025135/2026/02/05/rams-matthew-stafford-2025-nfl-mvp/
