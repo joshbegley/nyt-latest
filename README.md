@@ -1,3 +1,7 @@
+**A Pro-Israel Group’s Move Backfires as Gaza Tensions Flare in Midterms**\
+`A surprising twist in a New Jersey primary race showed how questions about Israel continue to roil American politics in unpredictable ways.`\
+https://nytimes.com/2026/02/06/us/politics/aipac-new-jersey-malinowski-mejia-israel-gaza-democrats.html
+
 **Restaurant Review: Mister Jiu’s**\
 `Mister Jiu’s, Brandon Jew’s flagship San Francisco restaurant, brings a distinctly Californian point of view to his Chinese American fine dining.`\
 https://nytimes.com/video/dining/100000010689574/mister-jius-san-francisco-restaurant-review.html
