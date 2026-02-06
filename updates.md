@@ -1,3 +1,7 @@
+**What to Expect at the Olympic Opening Ceremonies, From the Man Behind Them**\
+`Marco Balich has helped design grand spectacles at more than half a dozen Olympics. On Friday, he’ll do it again, on home turf in Italy.`\
+https://nytimes.com/2026/02/06/world/europe/milan-olympic-opening-ceremony-director-balich.html
+
 **Russian General Is Shot in Moscow**\
 `The attack bore the hallmark of several assassination attempts on top military officers in the Russian capital.`\
 https://nytimes.com/2026/02/06/world/europe/russian-general-shot-moscow-alekseyev.html
