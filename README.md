@@ -1,4 +1,4 @@
-**Netanyahu Suggests Top Officials to Blame for Oct. 7 Failings**\
+**Netanyahu Suggests Other Officials to Blame for Oct. 7 Failings**\
 `In a document released on Thursday night, the Israeli leader sought to distance himself from responsibility for intelligence and security failings before the Hamas-led attack.`\
 https://nytimes.com/2026/02/06/world/middleeast/netanyahu-blame-oct-7.html
 
