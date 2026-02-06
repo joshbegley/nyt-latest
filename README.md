@@ -1,3 +1,7 @@
+**N.Y. House Democrats Unite to Endorse Hochul on Eve of Convention**\
+`Gov. Kathy Hochul is expected to receive the Democratic nomination at the party’s state convention on Friday, even as her running-mate selection has drawn some debate.`\
+https://nytimes.com/2026/02/05/nyregion/hochul-endorsement-convention.html
+
 **Tigers' Javier Baéz suspended from 2026 WBC for marijuana usage: Source**\
 `Báez, who has a Puerto Rican flag tattooed on one of his arms, played for Team Puerto Rico in both 2017 and 2023.`\
 https://nytimes.com/athletic/7025845/2026/02/05/tigers-javier-baez-team-puerto-rico-wbc/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7025635/2026/02/05/for-giannis-bucks-stick-to-plan-
 **Failure to Alert Judge to Press Law for Reporter Search Draws Ethical Scrutiny**\
 `The Justice Department may have violated a candor rule by not disclosing a 1980 law when seeking a warrant for a Washington Post reporter’s home.`\
 https://nytimes.com/2026/02/05/us/washington-post-reporter-home-search.html
-
-**Lawmakers Say They Will Not Cooperate With Inquiry Into Illegal Orders Video**\
-`The Justice Department investigation was an escalation in the administration’s response to a video that President Trump said was “punishable by death.”`\
-https://nytimes.com/2026/02/05/us/politics/lawmakers-pirro-illegal-orders-video.html
 
