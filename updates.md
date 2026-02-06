@@ -1,3 +1,11 @@
+**America’s Game**\
+`We tell you everything you need to know about this year’s Super Bowl.`\
+https://nytimes.com/2026/02/06/briefing/americas-game.html
+
+**The Athletic staff's favorite Super Bowl memories, from the Helmet Catch to 28-3**\
+`Our staff rewinds and reminisces on past Super Bowls.`\
+https://nytimes.com/athletic/7022336/2026/02/06/best-super-bowl-moments-plays-calls-the-athletic/
+
 **What did your NBA team's trade-deadline moves say about its future?**\
 `Some teams blew it up, others stood pat or looked to save some cash. Then there were the Kings.`\
 https://nytimes.com/athletic/7026385/2026/02/06/nba-team-trade-deadline-moves-future/
