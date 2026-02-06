@@ -1,3 +1,15 @@
+**The New York Times in Print for Friday, Feb. 6, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/06/todays-new-york-times
+
+**America’s Rare-Earths Solution Is Hiding in Plain Sight**\
+`The real threat to a secure and sustainable supply of rare earths is not that they are scarce, but that so much is wasted.`\
+https://nytimes.com/2026/02/06/opinion/china-us-rare-earths.html
+
+**We’re All Canadian Now**\
+`The world is angry. Canada’s been there all along.`\
+https://nytimes.com/2026/02/06/opinion/canada-america-anger-carney.html
+
 **Analysing the T20 stars who could light up the World Cup in India and Sri Lanka**\
 `The Athletic pinpoints 10 players who could make an impression at the tournament alongside a guide to the fixtures for the group stages `\
 https://nytimes.com/athletic/7021136/2026/02/06/t20-world-cup-stars-india-sri-lanka/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7023828/2026/02/06/lorenzo-lucca-nottingham-forest-
 **Spurs allow shots from the edge of the box, but do not take many - it's costing them**\
 `Tottenham have conceded eight goals from outside their penalty area this season - the second-worst record in the Premier League`\
 https://nytimes.com/athletic/7024172/2026/02/06/spurs-shots-edge-of-box-data/
-
-**Dani Carvajal embodies Real Madrid — so why is his future uncertain?**\
-`He has been at Madrid for 23 years, but his contract runs out this summer — so where does he stand? And what are the club thinking?`\
-https://nytimes.com/athletic/7021560/2026/02/06/dani-carvajal-real-madrid-contract-future/
-
-**Luka Dončić ruled out of Lakers-Sixers game after apparent leg injury**\
-`Dončić appeared to grab at the back of his leg in the second quarter. He stayed in the game but was limping and needed to be taken out.`\
-https://nytimes.com/athletic/7026272/2026/02/06/luka-doncic-leg-injury-lakers-sixers/
-
-**Baptiste, the ex-West Ham defender compared to Rio Ferdinand: 'I need to show they weren't wrong'**\
-`The 22-year-old has dropped down to the third tier but he is performing well and has his sights set on making his way back to the top flight`\
-https://nytimes.com/athletic/7023576/2026/02/06/jamal-baptiste-west-ham-rotherham/
 

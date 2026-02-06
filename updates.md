@@ -1,3 +1,15 @@
+**The New York Times in Print for Friday, Feb. 6, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/06/todays-new-york-times
+
+**America’s Rare-Earths Solution Is Hiding in Plain Sight**\
+`The real threat to a secure and sustainable supply of rare earths is not that they are scarce, but that so much is wasted.`\
+https://nytimes.com/2026/02/06/opinion/china-us-rare-earths.html
+
+**We’re All Canadian Now**\
+`The world is angry. Canada’s been there all along.`\
+https://nytimes.com/2026/02/06/opinion/canada-america-anger-carney.html
+
 **Analysing the T20 stars who could light up the World Cup in India and Sri Lanka**\
 `The Athletic pinpoints 10 players who could make an impression at the tournament alongside a guide to the fixtures for the group stages `\
 https://nytimes.com/athletic/7021136/2026/02/06/t20-world-cup-stars-india-sri-lanka/
