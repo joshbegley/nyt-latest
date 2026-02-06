@@ -1,3 +1,7 @@
+**Late Night Finds Trump Out of Place at Prayer Breakfast**\
+`The annual National Prayer Breakfast “is supposed to be a normal, nonpartisan event,” Seth Meyers said, “but, of course, Donald Trump is incapable of being normal.”`\
+https://nytimes.com/2026/02/06/arts/television/late-night-trump-prayer-breakfast.html
+
 **Word of the Day: heinous**\
 `This word has appeared in 144 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/06/learning/word-of-the-day-heinous.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7020802/2026/02/06/sunderland-tactics-premier-leagu
 **The Pascal Struijk expected goals quirk – and why Leeds need more from him**\
 `If Leeds want to turn draws into wins at a crucial point of the season then they need to be more clinical with their set-pieces`\
 https://nytimes.com/athletic/7024159/2026/02/06/struijk-leeds-expected-goals-underperformance/
-
-**Why did Crystal Palace buy Jorgen Strand Larsen?**\
-`The London club paid an eye-watering fee to sign the Norway striker but, given his qualities, there was a logic to their pursuit`\
-https://nytimes.com/athletic/7018434/2026/02/06/crystal-palace-strand-larsen-wolves-analysis/
 

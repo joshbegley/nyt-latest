@@ -1,3 +1,7 @@
+**Late Night Finds Trump Out of Place at Prayer Breakfast**\
+`The annual National Prayer Breakfast “is supposed to be a normal, nonpartisan event,” Seth Meyers said, “but, of course, Donald Trump is incapable of being normal.”`\
+https://nytimes.com/2026/02/06/arts/television/late-night-trump-prayer-breakfast.html
+
 **Word of the Day: heinous**\
 `This word has appeared in 144 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/06/learning/word-of-the-day-heinous.html
