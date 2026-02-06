@@ -1,3 +1,11 @@
+**Libyan Man Is Arrested in Deaths of 4 Americans in 2012 Benghazi Attack**\
+`The man, Zubayar al-Bakoush, is the third suspect apprehended for the 2012 attack on U.S. facilities that killed four Americans.`\
+https://nytimes.com/2026/02/06/us/politics/libyan-arrested-benghazi.html
+
+**The Olympics Could Be One of the Last Big Events for an Iconic Milan Stadium**\
+`The San Siro stadium is a temple of soccer and one of the city’s most beloved monuments, but its days may be numbered.`\
+https://nytimes.com/2026/02/06/world/europe/the-olympics-could-be-one-of-the-last-big-events-for-an-iconic-milan-stadium.html
+
 **Tom Brady's apology to Eagles trio on Super Bowl 39 ticket up for auction**\
 `Items from Brady and Peyton and Eli Manning's collections are currently on the auction block. `\
 https://nytimes.com/athletic/7027120/2026/02/06/tom-brady-super-bowl-39-eagles-patriots/
