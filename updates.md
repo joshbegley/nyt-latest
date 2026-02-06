@@ -1,3 +1,11 @@
+**Dodgers reshuffle back end of roster with series of moves: Takeaways**\
+`However inconsequential the moves may seem at the moment, they are worth keeping tabs on.`\
+https://nytimes.com/athletic/7027976/2026/02/06/los-angeles-dodgers-roster-reshuffle-takeaways/
+
+**Saalumarada Thimmakka Dies; Planted and Nurtured Thousands of Trees**\
+`Believed to be 113, she spent decades building an environmental legacy in India, inspired by her grief at being unable to conceive children.`\
+https://nytimes.com/2026/02/06/world/asia/saalumarada-thimmakka-dead.html
+
 **Celtics GM Brad Stevens: Jayson Tatum's potential return had 'little impact' on deadline deals**\
 `"When he's ready, he's ready," GM Brad Stevens says of Tatum's possible return. `\
 https://nytimes.com/athletic/7027847/2026/02/06/brad-stevens-jayson-tatum-return-trade-deadline/
