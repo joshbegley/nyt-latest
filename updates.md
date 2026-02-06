@@ -1,3 +1,7 @@
+**James Rodriguez signing could boost Minnesota amid political turmoil, exec says**\
+`It is hoped the Colombian star's arrival can reenergize the Minnesota region`\
+https://nytimes.com/athletic/7028084/2026/02/06/james-rodriguez-minnesota-ice-trump-good-pretti/
+
 **Swiss women's Olympic hockey team in insolation after player diagnosed with norovirus**\
 `Switzerland is scheduled to play Canada — whose Olympic debut was already delayed because of a norovirus outbreak — on Saturday.`\
 https://nytimes.com/athletic/7028066/2026/02/06/switzerland-womens-hockey-olympics-norovirus/

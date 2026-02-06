@@ -1,3 +1,7 @@
+**James Rodriguez signing could boost Minnesota amid political turmoil, exec says**\
+`It is hoped the Colombian star's arrival can reenergize the Minnesota region`\
+https://nytimes.com/athletic/7028084/2026/02/06/james-rodriguez-minnesota-ice-trump-good-pretti/
+
 **Swiss women's Olympic hockey team in insolation after player diagnosed with norovirus**\
 `Switzerland is scheduled to play Canada — whose Olympic debut was already delayed because of a norovirus outbreak — on Saturday.`\
 https://nytimes.com/athletic/7028066/2026/02/06/switzerland-womens-hockey-olympics-norovirus/
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/7027847/2026/02/06/brad-stevens-jayson-tatum-return
 **A dozen U.S. figure skaters marched in the ceremony, some fresh off competing.**\
 `By Juliet Macur`\
 https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/a-dozen-us-figure-skaters-marched-in-the-ceremony-some-fresh-off-competing
-
-**How Nintendo Became the Most Fun Video Game Company**\
-`Video games are big business, and the company behind Mario, Zelda and Pokémon may be the most important player, says the author of a new corporate history.`\
-https://nytimes.com/2026/02/06/books/review/podcast-keza-macdonald-nintendo.html
-
-**The U.S. flag bearers are a renowned speedskater and a bobsledder, both previous Olympians.**\
-`By Juliet Macur`\
-https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/the-us-flag-bearers-are-a-renowned-speedskater-and-a-bobsledder-both-previous-olympians
 
