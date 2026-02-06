@@ -1,3 +1,7 @@
+**Wasteful, disjointed, beatable: What's to blame for Chelsea's back-to-back defeats?**\
+`Is the serial WSL champions' formation to blame for their recent dip in form? `\
+https://nytimes.com/athletic/7020753/2026/02/06/chelsea-women-sonia-bompastor-tactics/
+
 **The New York Times in Print for Friday, Feb. 6, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/06/todays-new-york-times
