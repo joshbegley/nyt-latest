@@ -1,3 +1,19 @@
+**Here’s the latest.**\
+`By Victor Mather`\
+https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/heres-the-latest
+
+**Live Updates: Italy Opens the Winter Olympics**\
+`For the first time, the ceremonial start of the Games will be held in four different locations. Mariah Carey will help kick off the festivities.`\
+https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony
+
+**ITV uses in-game adverts during Six Nations in UK first**\
+`An advert was shown in each half of France's victory over Ireland in a 'double-box' format, lasting for 20 seconds.`\
+https://nytimes.com/athletic/7027347/2026/02/06/six-nations-adverts-in-game-itv/
+
+**Arsenal, Man City and a collision course that could see them play five times in a month**\
+`With two games set in stone — the Carabao Cup final and a Premier League clash in mid-April — both teams are in the mix on all four fronts`\
+https://nytimes.com/athletic/7024287/2026/02/06/arsenal-man-city-fixtures-four-competitions/
+
 **A Top Russian General Is Shot in Moscow**\
 `Lt. Gen. Vladimir Alekseyev, a top general who serves as deputy head of the Russian military intelligence agency, was hospitalized after being shot in Moscow. Russia’s foreign minister blamed Ukraine for the attack without providing evidence.`\
 https://nytimes.com/video/world/europe/100000010695087/russian-general-alekseyev-shot-moscow.html

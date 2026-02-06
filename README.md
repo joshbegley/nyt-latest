@@ -2,8 +2,8 @@
 `By Victor Mather`\
 https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/heres-the-latest
 
-**Live Updates: Italy Opens the Winter Olympics**\
-`For the first time, the ceremonial start of the Games will be held in four different locations. Mariah Carey will help kick off the festivities.`\
+**Live Updates: Opening Ceremonies Are Set to Begin at Winter Olympics in Italy**\
+`For the first time, the ceremonial start of the Games will be held in four different locations. Mariah Carey will help kick off the festivities in Milan.`\
 https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony
 
 **ITV uses in-game adverts during Six Nations in UK first**\
