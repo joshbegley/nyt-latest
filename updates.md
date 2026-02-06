@@ -1,3 +1,11 @@
+**In the Grip of Gangs, Haiti Faces Another Crisis: A Leadership Vacuum**\
+`The tenure of a presidential council that has been running Haiti expires on Saturday. It’s unclear what will come next.`\
+https://nytimes.com/2026/02/06/world/americas/haiti-crisis-leadership-gangs.html
+
+**Milan Cortina Olympics open with a ceremonial attempt at harmony**\
+`MILAN — Four locations, one Olympic heartbeat.`\
+https://nytimes.com/athletic/7028050/2026/02/06/milan-cortina-olympics-opening-ceremony/
+
 **Record-Breaking 244-Pound Atlantic Halibut Caught in Quebec**\
 `A huge Atlantic halibut caught in Quebec weighed in at a record-breaking 244 pounds.`\
 https://nytimes.com/video/world/canada/100000010695717/record-atlantic-halibut-fishing-quebec.html

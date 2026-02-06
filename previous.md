@@ -1,3 +1,11 @@
+**In the Grip of Gangs, Haiti Faces Another Crisis: A Leadership Vacuum**\
+`The tenure of a presidential council that has been running Haiti expires on Saturday. It’s unclear what will come next.`\
+https://nytimes.com/2026/02/06/world/americas/haiti-crisis-leadership-gangs.html
+
+**Milan Cortina Olympics open with a ceremonial attempt at harmony**\
+`MILAN — Four locations, one Olympic heartbeat.`\
+https://nytimes.com/athletic/7028050/2026/02/06/milan-cortina-olympics-opening-ceremony/
+
 **Record-Breaking 244-Pound Atlantic Halibut Caught in Quebec**\
 `A huge Atlantic halibut caught in Quebec weighed in at a record-breaking 244 pounds.`\
 https://nytimes.com/video/world/canada/100000010695717/record-atlantic-halibut-fishing-quebec.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7024828/2026/02/06/yasiel-puig-trial-guilty-gamblin
 **The Briefing: Leeds 3 Nottingham Forest 1 - Wing-back threat, Gruev masterclass and nine points clear of trouble**\
 `Daniel Farke's side thumped the team immediately below them in the table as they moved well clear of the bottom three ahead of the weekend`\
 https://nytimes.com/athletic/7015742/2026/02/06/leeds-gruev-bogle-nottingham-forest-briefing/
-
-**4 Easy Ways to Make Sure No One Can Read Your Text Messages**\
-`Text by Max Eddy`\
-https://nytimes.com/card/2026/02/06/smarter-living/wirecutter/
-
-**White House Suggests Smithsonian Add a Trump Display**\
-`Administration officials met with staff at the Smithsonian’s National Portrait Gallery and discussed putting multiple artworks of the president in a section of the museum.`\
-https://nytimes.com/2026/02/06/arts/design/smithsonian-national-portrait-gallery-trump-display.html
 
