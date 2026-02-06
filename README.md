@@ -1,3 +1,7 @@
+**Tigers' Javier Baéz suspended from 2026 WBC for marijuana usage: Source**\
+`Báez, who has a Puerto Rican flag tattooed on one of his arms, played for Team Puerto Rico in both 2017 and 2023.`\
+https://nytimes.com/athletic/7025845/2026/02/05/tigers-javier-baez-team-puerto-rico-wbc/
+
 **Nuggets' Peyton Watson to miss extended time with hamstring strain: Sources**\
 `Watson's injury adds to the Nuggets' misfortunes, as he had been a breakout star for the team.`\
 https://nytimes.com/athletic/7025841/2026/02/05/peyton-watson-injury-update-hamstring-nuggets/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/05/us/washington-post-reporter-home-search.html
 **Lawmakers Say They Will Not Cooperate With Inquiry Into Illegal Orders Video**\
 `The Justice Department investigation was an escalation in the administration’s response to a video that President Trump said was “punishable by death.”`\
 https://nytimes.com/2026/02/05/us/politics/lawmakers-pirro-illegal-orders-video.html
-
-**The Tarik Skubal-Tigers saga comes to amicable end, and now they chase a title together**\
-`Tarik Skubal won his arbitration hearing, and the Tigers signed Framber Valdez. All's well that ends well? Especially if it ends in a title.`\
-https://nytimes.com/athletic/7025520/2026/02/05/tarik-skubal-tigers-arbitration-season/
 

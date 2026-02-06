@@ -1,3 +1,7 @@
+**Nuggets' Peyton Watson to miss extended time with hamstring strain: Sources**\
+`Watson's injury adds to the Nuggets' misfortunes, as he had been a breakout star for the team.`\
+https://nytimes.com/athletic/7025841/2026/02/05/peyton-watson-injury-update-hamstring-nuggets/
+
 **Hundreds of Agents Left Minnesota, but Residents Are Seeing Little Change**\
 `The Trump administration announced that its deployment of immigration agents in the Twin Cities was diminishing, but many agents remain.`\
 https://nytimes.com/2026/02/05/us/minnesota-ice-agents-deployment.html
