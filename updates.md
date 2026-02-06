@@ -1,3 +1,11 @@
+**A Top Russian General Is Shot in Moscow**\
+`Lt. Gen. Vladimir Alekseyev, a top general who serves as deputy head of the Russian military intelligence agency, was hospitalized after being shot in Moscow. Russia’s foreign minister blamed Ukraine for the attack without providing evidence.`\
+https://nytimes.com/video/world/europe/100000010695087/russian-general-alekseyev-shot-moscow.html
+
+**Manhattan Judge Says Mangione State Trial Will Start in June**\
+`Justice Gregory Carro of State Supreme Court in Manhattan said the start date would only be changed if a federal case against Luigi Mangione was moved up.`\
+https://nytimes.com/2026/02/06/nyregion/luigi-mangione-unitedhealthcare-manhattan-trial.html
+
 **Timothy Busfield Is Indicted on Charges of Child Sexual Abuse**\
 `A grand jury in New Mexico heard allegations that Mr. Busfield, the actor and director, had sexual contact with a child actor. He has denied the charges.`\
 https://nytimes.com/2026/02/06/arts/television/timothy-busfield-indicted-child-sexual-abuse.html
