@@ -1,3 +1,11 @@
+**Uber Is Responsible for Rape by Driver, Jury Finds**\
+`In the first of thousands of forthcoming sexual assault cases, the ride-hailing giant was ordered to pay $8.5 million to Jaylynn Dean, who said a driver raped her in 2023.`\
+https://nytimes.com/2026/02/05/business/uber-safety-rape-verdict.html
+
+**Rosenthal: The Tigers and MLB picked a fight with Tarik Skubal. Now they’re paying for it**\
+`Skubal brought his Cy Young Awards to his hearing — just as Tim Lincecum did years ago. But the pitcher did not need the props to win.`\
+https://nytimes.com/athletic/7025747/2026/02/05/tigers-mlb-tarik-skubal-salary/
+
 **(Non) trade grades: Giannis, Ja Morant are staying put. Are those the right calls?**\
 `These non-trades made as much noise as the big transactions we actually saw.`\
 https://nytimes.com/athletic/7025006/2026/02/05/giannis-ja-morant-nba-trade-grades/

@@ -1,3 +1,11 @@
+**Uber Is Responsible for Rape by Driver, Jury Finds**\
+`In the first of thousands of forthcoming sexual assault cases, the ride-hailing giant was ordered to pay $8.5 million to Jaylynn Dean, who said a driver raped her in 2023.`\
+https://nytimes.com/2026/02/05/business/uber-safety-rape-verdict.html
+
+**Rosenthal: The Tigers and MLB picked a fight with Tarik Skubal. Now they’re paying for it**\
+`Skubal brought his Cy Young Awards to his hearing — just as Tim Lincecum did years ago. But the pitcher did not need the props to win.`\
+https://nytimes.com/athletic/7025747/2026/02/05/tigers-mlb-tarik-skubal-salary/
+
 **12 Columbia Professors and Students Are Arrested at Anti-ICE Protest**\
 `Demonstrators, who were demanding that the university provide more protection for international students, blocked Broadway.`\
 https://nytimes.com/2026/02/05/nyregion/columbia-professors-students-protest-arrests.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/05/us/politics/cole-bombing-plea-deal-rejected.html
 **Initial bids in Padres' sale process expected near end of February: Sources**\
 `An eventual sale of the Padres has been widely expected since Peter Seidler’s death in November 2023. `\
 https://nytimes.com/athletic/7025610/2026/02/05/san-diego-padres-sale-process-bids/
-
-**The Raptors finally stopped chasing their tail at the NBA trade deadline**\
-`After years of boxing themselves in with trade deadline moves, the Raptors finally broke free — for now.`\
-https://nytimes.com/athletic/7025249/2026/02/05/raptors-2026-nba-trade-deadline/
-
-**(Non) trade grades: Giannis, Ja Morant are staying put. Are those the right calls?**\
-`These non-trades made as much noise as the big transactions we actually saw.`\
-https://nytimes.com/athletic/7025006/2026/02/05/giannis-ja-morant-nba-trade-grades/
 
