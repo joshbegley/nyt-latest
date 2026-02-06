@@ -1,3 +1,7 @@
+**Hundreds of Agents Left Minnesota, but Residents Are Seeing Little Change**\
+`The Trump administration announced that its deployment of immigration agents in the Twin Cities was diminishing, but many agents remain.`\
+https://nytimes.com/2026/02/05/us/minnesota-ice-agents-deployment.html
+
 **Uber Is Responsible for Rape by Driver, Jury Finds**\
 `In the first of thousands of forthcoming sexual assault cases, the ride-hailing giant was ordered to pay $8.5 million to Jaylynn Dean, who said a driver raped her in 2023.`\
 https://nytimes.com/2026/02/05/business/uber-safety-rape-verdict.html
