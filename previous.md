@@ -1,3 +1,7 @@
+**Tel & Gallagher added to Spurs' European squad, Bissouma & Kulusevski remain out**\
+`Radu Dragusin was also named in the squad but James Maddison, Yves Bissouma, Dejan Kulusevski, Ben Davies and Rodrigo Bentancur miss out.`\
+https://nytimes.com/athletic/7023890/2026/02/06/tel-and-gallagher-added-to-tottenhams-champions-league-squad-bissouma-and-kulusevski-remain-out/
+
 **What to Expect at the Olympic Opening Ceremonies, From the Man Behind Them**\
 `Marco Balich has helped design grand spectacles at more than half a dozen Olympics. On Friday, he’ll do it again, on home turf in Italy.`\
 https://nytimes.com/2026/02/06/world/europe/milan-olympic-opening-ceremony-director-balich.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/06/crosswords/spelling-bee-forum.html
 **When Prison Body Scanners Mistake Tampons and Piercings for Contraband**\
 `Women hoping to visit their loved ones at New York prisons are being turned away after scanners pick up what they say are menstrual products. Some have had their visitation rights suspended.`\
 https://nytimes.com/2026/02/06/nyregion/new-york-prison-body-scanners-women.html
-
-**New York Grants Pregnant Workers Paid Leave. How Many Know That?**\
-`The state is the first in the United States to require paid leave for prenatal care. While some women are using the time off for medical appointments, others don’t know that it’s available.`\
-https://nytimes.com/2026/02/06/nyregion/paid-prenatal-leave.html
 
