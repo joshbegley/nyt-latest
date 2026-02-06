@@ -1,3 +1,7 @@
+**Trump’s Online Drugstore Opens for Business**\
+`TrumpRx is aimed at helping patients use their own money to buy medicines. But researchers who study drug pricing warned that many patients could pay too much if they use the site.`\
+https://nytimes.com/2026/02/05/health/trumprx-online-drugstore-prices.html
+
 **N.Y. House Democrats Unite to Endorse Hochul on Eve of Convention**\
 `Gov. Kathy Hochul is expected to receive the Democratic nomination at the party’s state convention on Friday, even as her running-mate selection has drawn some debate.`\
 https://nytimes.com/2026/02/05/nyregion/hochul-endorsement-convention.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/05/us/politics/virginia-redistricting-maps-midterms.
 **For Giannis, Bucks stick to Plan A(ntetokounmpo), but it’s about to get complicated**\
 `When so many believed Antetokounmpo might finally be moved, the Bucks and their fans got to keep the Giannis dream alive.`\
 https://nytimes.com/athletic/7025635/2026/02/05/for-giannis-bucks-stick-to-plan-antetokounmpo-but-its-about-to-get-complicated-again/
-
-**Failure to Alert Judge to Press Law for Reporter Search Draws Ethical Scrutiny**\
-`The Justice Department may have violated a candor rule by not disclosing a 1980 law when seeking a warrant for a Washington Post reporter’s home.`\
-https://nytimes.com/2026/02/05/us/washington-post-reporter-home-search.html
 
