@@ -1,3 +1,7 @@
+**Facing Threats From Both America and China, Toyota Changes C.E.O.s**\
+`The world’s biggest automaker has navigated the industry’s turbulent E.V. transition, but is looking to new leadership to manage complex geopolitical challenges.`\
+https://nytimes.com/2026/02/06/business/toyota-ceo-kenta-kon.html
+
 **Ronaldo told 'nobody makes decisions beyond their club' by Saudi league**\
 `There are doubts over whether he will play against Al Ittihad on Friday after missing out on the win over Al Riyadh on Monday night.`\
 https://nytimes.com/athletic/7026457/2026/02/06/cristiano-ronaldo-not-playing-saudi/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7023845/2026/02/06/michael-carrick-mannchester-unit
 **Late Night Finds Trump Out of Place at Prayer Breakfast**\
 `The annual National Prayer Breakfast “is supposed to be a normal, nonpartisan event,” Seth Meyers said, “but, of course, Donald Trump is incapable of being normal.”`\
 https://nytimes.com/2026/02/06/arts/television/late-night-trump-prayer-breakfast.html
-
-**Word of the Day: heinous**\
-`This word has appeared in 144 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/02/06/learning/word-of-the-day-heinous.html
 
