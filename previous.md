@@ -1,3 +1,11 @@
+**Where is Dejan Kulusevski?**\
+`The Swedish star has been injured since May, with no sign of an imminent return - so what's going on?`\
+https://nytimes.com/athletic/7014133/2026/02/06/where-is-dejan-kulusevski-tottenham/
+
+**Milan Athletes Welcome Return of Winter Olympics Spectators**\
+`At the last Winter Games, in 2022 in Beijing, the coronavirus pandemic meant that spectators were largely absent and competing was a lonely experience.`\
+https://nytimes.com/2026/02/06/world/europe/2026-olympics-opening-ceremony-crowd-athletes.html
+
 **How ‘The Pitt’ Nails the High Moral Stakes of the E.R.**\
 `Sasha Weiss, the culture editor at The New York Times Magazine, joined Wesley Morris, host of “Cannonball,” to talk about the acclaimed hospital drama “The Pitt.” They discussed how the show develops its characters via the ethical practice of their work.`\
 https://nytimes.com/video/podcasts/100000010687348/the-pitt-character-development.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/06/climate/antarctica-thwaites-glacier-rifts.html
 **A Lightweight, Minimalist Torch Design Helps Kick Off the Winter Games**\
 `The opening ceremonies will also have two cauldron lightings for the first time. One will be in Milan, the other in Cortina d’Ampezzo.`\
 https://nytimes.com/2026/02/06/world/europe/milan-winter-olympics-torch-design.html
-
-**Fighting Threats to Free and Fair Elections**\
-`Readers add their own suggestions in response to an editorial about ways to defend the election system. Also: President Trump’s racist post about the Obamas.`\
-https://nytimes.com/2026/02/06/opinion/free-fair-elections.html
-
-**Is Catholicism Having a Moment With Gen Z?**\
-`Why are some young adults seeking out the Catholic Church? “They want a sense of meaning, they want a sense of mystery,” Father James Martin said on “The Interview.”`\
-https://nytimes.com/video/podcasts/100000010686844/catholic-church-gen-z-james-martin.html
 

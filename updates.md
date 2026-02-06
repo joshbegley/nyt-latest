@@ -1,3 +1,11 @@
+**Where is Dejan Kulusevski?**\
+`The Swedish star has been injured since May, with no sign of an imminent return - so what's going on?`\
+https://nytimes.com/athletic/7014133/2026/02/06/where-is-dejan-kulusevski-tottenham/
+
+**Milan Athletes Welcome Return of Winter Olympics Spectators**\
+`At the last Winter Games, in 2022 in Beijing, the coronavirus pandemic meant that spectators were largely absent and competing was a lonely experience.`\
+https://nytimes.com/2026/02/06/world/europe/2026-olympics-opening-ceremony-crowd-athletes.html
+
 **How ‘The Pitt’ Nails the High Moral Stakes of the E.R.**\
 `Sasha Weiss, the culture editor at The New York Times Magazine, joined Wesley Morris, host of “Cannonball,” to talk about the acclaimed hospital drama “The Pitt.” They discussed how the show develops its characters via the ethical practice of their work.`\
 https://nytimes.com/video/podcasts/100000010687348/the-pitt-character-development.html
