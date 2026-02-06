@@ -1,3 +1,7 @@
+**Wes Moore on 2028, His Party’s Problems and His Favorite Crab Cake**\
+`The Maryland governor discussed Trump, the country’s divisions and his workout routine.`\
+https://nytimes.com/2026/02/06/us/politics/wes-moore-maryland.html
+
 **Lil Jon’s Son Is Found Dead in a Georgia Pond, Police Say**\
 `Nathan Smith, whose stage name is DJ Young Slade, was reported missing on Tuesday after running out of his home in a community north of Atlanta.`\
 https://nytimes.com/2026/02/06/arts/music/lil-jon-son-dead.html

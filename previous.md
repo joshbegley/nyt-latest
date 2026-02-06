@@ -1,3 +1,7 @@
+**Wes Moore on 2028, His Party’s Problems and His Favorite Crab Cake**\
+`The Maryland governor discussed Trump, the country’s divisions and his workout routine.`\
+https://nytimes.com/2026/02/06/us/politics/wes-moore-maryland.html
+
 **Lil Jon’s Son Is Found Dead in a Georgia Pond, Police Say**\
 `Nathan Smith, whose stage name is DJ Young Slade, was reported missing on Tuesday after running out of his home in a community north of Atlanta.`\
 https://nytimes.com/2026/02/06/arts/music/lil-jon-son-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7028050/2026/02/06/milan-cortina-olympics-opening-c
 **Record-Breaking 244-Pound Atlantic Halibut Caught in Quebec**\
 `A huge Atlantic halibut caught in Quebec weighed in at a record-breaking 244 pounds.`\
 https://nytimes.com/video/world/canada/100000010695717/record-atlantic-halibut-fishing-quebec.html
-
-**Villa's Unai Emery asks Liverpool to change Harvey Elliott loan terms**\
-`The manager said the situation was "damaging" for the 22-year-old, who has played only five times this season.`\
-https://nytimes.com/athletic/7027580/2026/02/06/harvey-elliott-aston-villa-liverpool-loan-change-emery/
 
