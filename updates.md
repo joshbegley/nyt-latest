@@ -1,3 +1,19 @@
+**Smithsonian Folklife Festival Gives Way to Trump’s Patriotic Fair**\
+`The summer festival, held annually since 1967, will not take place as usual on the National Mall, which will instead host the president’s Great American State Fair.`\
+https://nytimes.com/2026/02/05/arts/smithsonian-folklife-festival-gives-way-to-trumps-patriotic-fair.html
+
+**‘The Mistake of Feminism’**\
+`Is it possible to support women while also opposing abortion? The pro-life activist Lila Rose argues yes. The key, she says, is to acknowledge that men and women are inherently different.`\
+https://nytimes.com/video/opinion/100000010679996/the-mistake-of-feminism.html
+
+**Who Decides When a Pregnancy Is Life-Threatening?**\
+`Strict abortion bans can be at odds with emergency medical care. The pro-life activist Lila Rose argues they can coexist.`\
+https://nytimes.com/video/opinion/100000010679959/who-decides-when-a-pregnancy-is-life-threatening.html
+
+**No Corrections: Feb. 6, 2026**\
+`No corrections appeared in print on Friday, Feb. 6, 2026.`\
+https://nytimes.com/2026/02/05/pageoneplus/no-corrections-feb-6-2026.html
+
 **Dallas Cowboys to play in NFL's first game in Rio de Janeiro**\
 `The Cowboys will play a regular-season game in Rio de Janeiro next season as the NFL continues to expand its international slate of games.`\
 https://nytimes.com/athletic/7025790/2026/02/05/dallas-cowboys-rio-de-janeiro-brazil-2026/

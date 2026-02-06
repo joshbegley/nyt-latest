@@ -1,3 +1,19 @@
+**Smithsonian Folklife Festival Gives Way to Trump’s Patriotic Fair**\
+`The summer festival, held annually since 1967, will not take place as usual on the National Mall, which will instead host the president’s Great American State Fair.`\
+https://nytimes.com/2026/02/05/arts/smithsonian-folklife-festival-gives-way-to-trumps-patriotic-fair.html
+
+**‘The Mistake of Feminism’**\
+`Is it possible to support women while also opposing abortion? The pro-life activist Lila Rose argues yes. The key, she says, is to acknowledge that men and women are inherently different.`\
+https://nytimes.com/video/opinion/100000010679996/the-mistake-of-feminism.html
+
+**Who Decides When a Pregnancy Is Life-Threatening?**\
+`Strict abortion bans can be at odds with emergency medical care. The pro-life activist Lila Rose argues they can coexist.`\
+https://nytimes.com/video/opinion/100000010679959/who-decides-when-a-pregnancy-is-life-threatening.html
+
+**No Corrections: Feb. 6, 2026**\
+`No corrections appeared in print on Friday, Feb. 6, 2026.`\
+https://nytimes.com/2026/02/05/pageoneplus/no-corrections-feb-6-2026.html
+
 **Dallas Cowboys to play in NFL's first game in Rio de Janeiro**\
 `The Cowboys will play a regular-season game in Rio de Janeiro next season as the NFL continues to expand its international slate of games.`\
 https://nytimes.com/athletic/7025790/2026/02/05/dallas-cowboys-rio-de-janeiro-brazil-2026/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7025841/2026/02/05/peyton-watson-injury-update-hams
 **Hundreds of Agents Left Minnesota, but Residents Are Seeing Little Change**\
 `The Trump administration announced that its deployment of immigration agents in the Twin Cities was diminishing, but many agents remain.`\
 https://nytimes.com/2026/02/05/us/minnesota-ice-agents-deployment.html
-
-**Uber Is Responsible for Rape by Driver, Jury Finds**\
-`In the first of federal trial of thousands of sexual assault cases, the ride-hailing giant was ordered to pay $8.5 million to Jaylynn Dean, who said a driver raped her in 2023.`\
-https://nytimes.com/2026/02/05/business/uber-safety-rape-verdict.html
-
-**Rosenthal: The Tigers and MLB picked a fight with Tarik Skubal. Now they’re paying for it**\
-`Skubal brought his Cy Young Awards to his hearing — just as Tim Lincecum did years ago. But the pitcher did not need the props to win.`\
-https://nytimes.com/athletic/7025747/2026/02/05/tigers-mlb-tarik-skubal-salary/
-
-**12 Columbia Professors and Students Are Arrested at Anti-ICE Protest**\
-`Demonstrators, who were demanding that the university provide more protection for international students, blocked Broadway.`\
-https://nytimes.com/2026/02/05/nyregion/columbia-professors-students-protest-arrests.html
-
-**Virginia Democrats Propose New Congressional Maps Ahead of Midterms**\
-`As they appeal a ruling blocking their redistricting efforts, the state’s Democrats proposed redrawing districts in a way that would strongly favor them.`\
-https://nytimes.com/2026/02/05/us/politics/virginia-redistricting-maps-midterms.html
 
