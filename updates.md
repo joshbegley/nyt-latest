@@ -1,4 +1,8 @@
 **Myles Garrett is NFL Defensive Player of the Year after record 23-sack season**\
+`Garrett, who was a wrecking ball for offenses during the 2025 regular season, was named Defensive Player of the Year for the second time.`\
+https://nytimes.com/athletic/7025648/2026/02/05/nfl-honors-awards-roundup-dpoy-opoy-comeback-player-rookie/
+
+**Myles Garrett is NFL Defensive Player of the Year after record 23-sack season**\
 `Cleveland Browns' defensive end was a wrecking ball for offenses during the 2025 regular season`\
 https://nytimes.com/athletic/7025648/2026/02/05/nfl-honors-awards-roundup-dpoy-opoy-comeback-player-rookie/
 
