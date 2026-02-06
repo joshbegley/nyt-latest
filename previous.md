@@ -1,3 +1,7 @@
+**Rams quarterback Matthew Stafford named NFL MVP for first time**\
+`Stafford, a 2025 first-team All-Pro, wins the MVP award after throwing for an NFL-leading 4,707 yards and 46 touchdown passes this season.`\
+https://nytimes.com/athletic/7025135/2026/02/05/rams-matthew-stafford-2025-nfl-mvp/
+
 **Texas Surgeon Faces Federal Charges That He Falsified Patient Records**\
 `Prosecutors said the doctor, John Stevenson Bynon Jr., had cut five patients off from liver transplant eligibility for months without their knowledge. He has pleaded not guilty.`\
 https://nytimes.com/2026/02/05/us/houston-surgeon-records-transplants.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/05/arts/television/the-pitt-recap-season-2-episode-5
 **Edge of a Snifter**\
 `Geoffrey Schorkopf and Rafael Musa open our solving weekend.`\
 https://nytimes.com/2026/02/05/crosswords/daily-puzzle-2026-02-06.html
-
-**Steve Kerr admits he 'could have done a better job' of helping Jonathan Kuminga**\
-`"I really want to see him succeed, and I'm sorry that it didn't happen here," Kerr said. "We all take ownership of that."`\
-https://nytimes.com/athletic/7026051/2026/02/05/steve-kerr-jonathan-kuminga-trade-warriors/
 

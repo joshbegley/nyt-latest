@@ -1,3 +1,7 @@
+**Rams quarterback Matthew Stafford named NFL MVP for first time**\
+`Stafford, a 2025 first-team All-Pro, wins the MVP award after throwing for an NFL-leading 4,707 yards and 46 touchdown passes this season.`\
+https://nytimes.com/athletic/7025135/2026/02/05/rams-matthew-stafford-2025-nfl-mvp/
+
 **Texas Surgeon Faces Federal Charges That He Falsified Patient Records**\
 `Prosecutors said the doctor, John Stevenson Bynon Jr., had cut five patients off from liver transplant eligibility for months without their knowledge. He has pleaded not guilty.`\
 https://nytimes.com/2026/02/05/us/houston-surgeon-records-transplants.html
