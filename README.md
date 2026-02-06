@@ -1,3 +1,7 @@
+**What did your NBA team's trade-deadline moves say about its future?**\
+`Some teams blew it up, others stood pat or looked to save some cash. Then there were the Kings.`\
+https://nytimes.com/athletic/7026385/2026/02/06/nba-team-trade-deadline-moves-future/
+
 **England captain Ben Stokes left with facial injuries after being hit by ball**\
 `Stokes called the player responsible from hospital and told him 'not to worry' after conceding he was at fault for turning his back.`\
 https://nytimes.com/athletic/7026660/2026/02/06/ben-stokes-hit-face-hospital-durham-england/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7021729/2026/02/06/miami-marlins-2026-top-20-prospe
 **From Nikola Vučević to luxury tax dodging: How did Celtics fare at trade deadline?**\
 `Celtics GM Brad Stevens was busy making deals that helped Boston's financial future. `\
 https://nytimes.com/athletic/7025867/2026/02/06/celtics-nba-trade-deadline-nikola-vucevic/
-
-**How Vladar has become the Flyers' irreplaceable leader in more ways than one**\
-`The goalie is clearly the Flyers' MVP of the season during play, but what happens between whistles sets him apart.`\
-https://nytimes.com/athletic/7026114/2026/02/06/flyers-dan-vladar-leadership-goalie-olympics/
 
