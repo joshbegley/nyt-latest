@@ -1,3 +1,15 @@
+**American snowboarding star Red Gerard did not qualify for big air finals. He's OK with that**\
+`"Honestly, I don’t understand why we’re forced to do this," Gerard said. "I don’t like to do this."`\
+https://nytimes.com/athletic/7025846/2026/02/05/american-snowboarding-star-red-gerard-big-air/
+
+**‘The Pitt’ Season 2, Episode 5 Recap: Reunited**\
+`Robby and Langdon finally collide, and the vibe is predictably tense. That sabbatical can’t some soon enough.`\
+https://nytimes.com/2026/02/05/arts/television/the-pitt-recap-season-2-episode-5.html
+
+**Edge of a Snifter**\
+`Geoffrey Schorkopf and Rafael Musa open our solving weekend.`\
+https://nytimes.com/2026/02/05/crosswords/daily-puzzle-2026-02-06.html
+
 **Muslims Move to Assert Political Power in New York City**\
 `Zohran Mamdani’s ascension to mayor has given Muslim organizers and faith leaders the impetus to insert themselves into more formal political alliances and networks.`\
 https://nytimes.com/2026/02/05/nyregion/muslims-nyc-political-power.html
@@ -15,7 +27,7 @@ https://nytimes.com/athletic/7024104/2026/02/05/mike-vrabel-coach-of-the-year-20
 https://nytimes.com/athletic/7025729/2026/02/05/wbc-2026-roster-reveal-takeaways/
 
 **Myles Garrett is NFL Defensive Player of the Year after record 23-sack season**\
-`Garrett, who was a wrecking ball for offenses during the 2025 regular season, was named Defensive Player of the Year for the second time.`\
+`Garrett, who was a wrecking ball for offenses during the Browns' regular season, was named Defensive Player of the Year for the second time.`\
 https://nytimes.com/athletic/7025648/2026/02/05/nfl-honors-awards-roundup-dpoy-opoy-comeback-player-rookie/
 
 **Smithsonian Folklife Festival Gives Way to Trump’s Patriotic Fair**\
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/05/arts/smithsonian-folklife-festival-great-american
 **‘The Mistake of Feminism’**\
 `Is it possible to support women while also opposing abortion? The pro-life activist Lila Rose argues yes. The key, she says, is to acknowledge that men and women are inherently different.`\
 https://nytimes.com/video/opinion/100000010679996/the-mistake-of-feminism.html
-
-**Who Decides When a Pregnancy Is Life-Threatening?**\
-`Strict abortion bans can be at odds with emergency medical care. The pro-life activist Lila Rose argues they can coexist.`\
-https://nytimes.com/video/opinion/100000010679959/who-decides-when-a-pregnancy-is-life-threatening.html
-
-**No Corrections: Feb. 6, 2026**\
-`No corrections appeared in print on Friday, Feb. 6, 2026.`\
-https://nytimes.com/2026/02/05/pageoneplus/no-corrections-feb-6-2026.html
-
-**Dallas Cowboys to play in NFL's first game in Rio de Janeiro**\
-`The Cowboys will play a regular-season game in Rio de Janeiro next season as the NFL continues to expand its international slate of games.`\
-https://nytimes.com/athletic/7025790/2026/02/05/dallas-cowboys-rio-de-janeiro-brazil-2026/
 
