@@ -1,3 +1,19 @@
+**The Briefing: Leeds 3 Nottingham Forest 1 - Wing-back threat, Gruev masterclass and nine points clear of trouble**\
+`Daniel Farke's side thumped the team immediately below them in the table as they moved well clear of the bottom three ahead of the weekend`\
+https://nytimes.com/athletic/7015742/2026/02/06/leeds-gruev-bogle-nottingham-forest-briefing/
+
+**4 Easy Ways to Make Sure No One Can Read Your Text Messages**\
+`Text by Max Eddy`\
+https://nytimes.com/card/2026/02/06/smarter-living/wirecutter/
+
+**White House Suggests Smithsonian Add a Trump Display**\
+`Administration officials met with staff at the Smithsonian’s National Portrait Gallery and discussed putting multiple artworks of the president in a section of the museum.`\
+https://nytimes.com/2026/02/06/arts/design/smithsonian-national-portrait-gallery-trump-display.html
+
+**Swiss women's Olympic hockey team in isolation after player diagnosed with norovirus**\
+`Switzerland is scheduled to play Canada — whose Olympic debut was already delayed because of a norovirus outbreak — on Saturday.`\
+https://nytimes.com/athletic/7028066/2026/02/06/switzerland-womens-hockey-olympics-norovirus/
+
 **James Rodriguez signing could boost Minnesota amid political turmoil, exec says**\
 `It is hoped the Colombian star's arrival can reenergize the Minnesota region`\
 https://nytimes.com/athletic/7028084/2026/02/06/james-rodriguez-minnesota-ice-trump-good-pretti/
