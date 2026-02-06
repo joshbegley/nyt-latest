@@ -1,3 +1,11 @@
+**N.Y. House Democrats Unite to Endorse Hochul on Eve of Convention**\
+`Gov. Kathy Hochul is expected to receive the Democratic nomination at the party’s state convention on Friday, even as her running-mate selection has drawn some debate.`\
+https://nytimes.com/2026/02/05/nyregion/hochul-endorsement-convention.html
+
+**Tigers' Javier Baéz suspended from 2026 WBC for marijuana usage: Source**\
+`Báez, who has a Puerto Rican flag tattooed on one of his arms, played for Team Puerto Rico in both 2017 and 2023.`\
+https://nytimes.com/athletic/7025845/2026/02/05/tigers-javier-baez-team-puerto-rico-wbc/
+
 **Nuggets' Peyton Watson to miss extended time with hamstring strain: Sources**\
 `Watson's injury adds to the Nuggets' misfortunes, as he had been a breakout star for the team.`\
 https://nytimes.com/athletic/7025841/2026/02/05/peyton-watson-injury-update-hamstring-nuggets/
