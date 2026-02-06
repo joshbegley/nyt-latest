@@ -1,3 +1,15 @@
+**The NBA trade deadline is over. Now comes an all-time race to the bottom**\
+`A loaded draft looms, and a third of the league has little incentive to win. How bad will it get, and will this prompt reform?`\
+https://nytimes.com/athletic/7025775/2026/02/06/nba-tanking-trade-deadline-draft-reform/
+
+**The Bounce: Trade deadline winners and losers. And the Bucks' bizarre victory lap**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7027000/2026/02/06/nba-trade-deadline-winners-losers-giannis-kuminga-the-bounce/
+
+**Federal Vaccine Advisers Take Aim at Covid Shots**\
+`One panelist accused the F.D.A. of withholding data on potential harms. The advisers also are reviewing research on vaccines given to pregnant women.`\
+https://nytimes.com/2026/02/06/health/vaccines-covid-acip-malone-kennedy.html
+
 **Odegaard 'a matter of days' and Saka to make Arsenal return 'soon' - Arteta**\
 `Saka pulled out of the warm-up before the Leeds victory while Odegaard missed Tuesday's win over Chelsea with a muscle issue.`\
 https://nytimes.com/athletic/7027050/2026/02/06/arsenal-news-odegaard-timber-saka-injury-sunderland/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6994127/2026/02/06/argentina-youth-players-rule-mes
 **A Reprieve for Veterans Applying for V.A. Mortgages**\
 `House Republicans have scaled back a proposal to charge higher fees for the loans after opposition from veterans groups. But it still includes a higher fee for refinancings.`\
 https://nytimes.com/2026/02/06/your-money/veterans-mortgages-fees-republicans.html
-
-**A Reprieve for the Markets, but for How Long?**\
-`Technology stocks and Bitcoin are showing signs of a rebound after a disastrous week. But investors remain on edge about whether more pain is in store.`\
-https://nytimes.com/2026/02/06/business/dealbook/software-stocks-ai-crypto.html
-
-**The Bulls are finally rebuilding, even if they won't say the word**\
-`After years of middling results, Arturas Karnišovas and the Bulls tore down the roster at the trade deadline. Is there a plan in place? `\
-https://nytimes.com/athletic/7026657/2026/02/06/chicago-bulls-rebuild-plan-arturas-karnisovas/
-
-**As Olympics Open, Pope Leo Warns Against Using Sports for ‘Propaganda or National Supremacy’**\
-`The Milan-Cortina Games are overlapping with a moment of geopolitical turbulence as conflicts rage, national leaders issue threats and alliances are strained.`\
-https://nytimes.com/2026/02/06/world/europe/pope-leo-milan-olympics-letter.html
 
