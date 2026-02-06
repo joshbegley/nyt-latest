@@ -1,3 +1,19 @@
+**American snowboarding star Red Gerard did not qualify for big air finals. He's OK with that**\
+`"Honestly, I don’t understand why we’re forced to do this," Gerard said. "I don’t like to do this."`\
+https://nytimes.com/athletic/7025846/2026/02/05/american-snowboarding-star-red-gerard-big-air/
+
+**‘The Pitt’ Season 2, Episode 5 Recap: Reunited**\
+`Robby and Langdon finally collide, and the vibe is predictably tense. That sabbatical can’t some soon enough.`\
+https://nytimes.com/2026/02/05/arts/television/the-pitt-recap-season-2-episode-5.html
+
+**Edge of a Snifter**\
+`Geoffrey Schorkopf and Rafael Musa open our solving weekend.`\
+https://nytimes.com/2026/02/05/crosswords/daily-puzzle-2026-02-06.html
+
+**Myles Garrett is NFL Defensive Player of the Year after record 23-sack season**\
+`Garrett, who was a wrecking ball for offenses during the Browns' regular season, was named Defensive Player of the Year for the second time.`\
+https://nytimes.com/athletic/7025648/2026/02/05/nfl-honors-awards-roundup-dpoy-opoy-comeback-player-rookie/
+
 **Muslims Move to Assert Political Power in New York City**\
 `Zohran Mamdani’s ascension to mayor has given Muslim organizers and faith leaders the impetus to insert themselves into more formal political alliances and networks.`\
 https://nytimes.com/2026/02/05/nyregion/muslims-nyc-political-power.html
