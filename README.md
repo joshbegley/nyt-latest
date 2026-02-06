@@ -1,3 +1,7 @@
+**Netanyahu Suggests Top Officials to Blame for Oct. 7 Failings**\
+`In a document released on Thursday night, the Israeli leader sought to distance himself from responsibility for intelligence and security failings before the Hamas-led attack.`\
+https://nytimes.com/2026/02/06/world/middleeast/netanyahu-blame-oct-7.html
+
 **Suicide Bombing Kills 31 at Mosque in Pakistan’s Capital**\
 `The bombing, during Friday Prayers, was the second major attack in recent months in Islamabad, where large-scale violence had been relatively rare.`\
 https://nytimes.com/2026/02/06/world/asia/pakistan-mosque-attack-islamabad.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/06/world/europe/pope-leo-milan-olympics-letter.html
 **How did The Athletic's CFB staff do in our annual Heisman draft? One word: Yikes**\
 `It wasn't our finest performance in our 2025 Heisman Trophy fantasy draft. Which reporter came out on top? `\
 https://nytimes.com/athletic/7022134/2026/02/06/heisman-predictions-draft-the-athletic-2025-results/
-
-**Lowetide: Is Oilers forward Jack Roslovic worthy of a long-term contract?**\
-`Roslovic has been highly productive for the Oilers this season as a skill winger and a third-line centre.`\
-https://nytimes.com/athletic/7022530/2026/02/06/edmonton-oilers-jack-roslovic-stats-contract-projection/
 
