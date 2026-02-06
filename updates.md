@@ -1,3 +1,7 @@
+**Netanyahu Suggests Top Officials to Blame for Oct. 7 Failings**\
+`In a document released on Thursday night, the Israeli leader sought to distance himself from responsibility for intelligence and security failings before the Hamas-led attack.`\
+https://nytimes.com/2026/02/06/world/middleeast/netanyahu-blame-oct-7.html
+
 **Suicide Bombing Kills 31 at Mosque in Pakistan’s Capital**\
 `The bombing, during Friday Prayers, was the second major attack in recent months in Islamabad, where large-scale violence had been relatively rare.`\
 https://nytimes.com/2026/02/06/world/asia/pakistan-mosque-attack-islamabad.html
