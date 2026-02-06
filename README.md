@@ -7,8 +7,8 @@ https://nytimes.com/2026/02/06/business/dealbook/software-stocks-ai-crypto.html
 https://nytimes.com/athletic/7026657/2026/02/06/chicago-bulls-rebuild-plan-arturas-karnisovas/
 
 **As Olympics Open, Pope Leo Warns Against Using Sports for ‘Propaganda or National Supremacy’**\
-`The Milan-Cortina Games are overlapping with a moment of geopolitical turbulence, as conflicts rage, national leaders issue threats and alliances are strained.`\
-https://nytimes.com/2026/02/06/world/asia/pope-leo-milan-olympics-letter.html
+`The Milan-Cortina Games are overlapping with a moment of geopolitical turbulence as conflicts rage, national leaders issue threats and alliances are strained.`\
+https://nytimes.com/2026/02/06/world/europe/pope-leo-milan-olympics-letter.html
 
 **How did The Athletic's CFB staff do in our annual Heisman draft? One word: Yikes**\
 `It wasn't our finest performance in our 2025 Heisman Trophy fantasy draft. Which reporter came out on top? `\

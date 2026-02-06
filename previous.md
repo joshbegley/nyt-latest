@@ -1,3 +1,15 @@
+**A Reprieve for the Markets, but for How Long?**\
+`Technology stocks and Bitcoin are showing signs of a rebound after a disastrous week. But investors remain on edge about whether more pain is in store.`\
+https://nytimes.com/2026/02/06/business/dealbook/software-stocks-ai-crypto.html
+
+**The Bulls are finally rebuilding, even if they won't say the word**\
+`After years of middling results, Arturas Karnišovas and the Bulls tore down the roster at the trade deadline. Is there a plan in place? `\
+https://nytimes.com/athletic/7026657/2026/02/06/chicago-bulls-rebuild-plan-arturas-karnisovas/
+
+**As Olympics Open, Pope Leo Warns Against Using Sports for ‘Propaganda or National Supremacy’**\
+`The Milan-Cortina Games are overlapping with a moment of geopolitical turbulence, as conflicts rage, national leaders issue threats and alliances are strained.`\
+https://nytimes.com/2026/02/06/world/asia/pope-leo-milan-olympics-letter.html
+
 **How did The Athletic's CFB staff do in our annual Heisman draft? One word: Yikes**\
 `It wasn't our finest performance in our 2025 Heisman Trophy fantasy draft. Which reporter came out on top? `\
 https://nytimes.com/athletic/7022134/2026/02/06/heisman-predictions-draft-the-athletic-2025-results/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7018113/2026/02/06/cristiano-ronaldo-is-41-so-here-
 **Savannah Guthrie’s Brother Renews Plea for Their Missing Mother’s Return**\
 `The search for Nancy Guthrie has entered its sixth day. The F.B.I. has offered a $50,000 reward for information.`\
 https://nytimes.com/2026/02/06/us/savannah-nancy-guthrie-missing-updates.html
-
-**Mixed doubles team ties best-ever U.S. Olympic curling start, with Snoop watching**\
-`Cory Thiesse and Korey Dropkin are 3-0 at the mixed doubles tournament and earned a visit from NBC's most famous correspondent.`\
-https://nytimes.com/athletic/7026699/2026/02/06/winter-olympics-curling-us-snoop-dogg-mixed-doubles/
-
-**Lindsey Vonn, with torn ACL, completes training run ahead of Olympic downhill**\
-`Despite a torn ACL, Vonn completed the training run Friday with no apparent issues. She's aiming to start the downhill on Sunday.`\
-https://nytimes.com/athletic/7026802/2026/02/06/lindsey-vonn-olympics-downhill-torn-acl-training/
-
-**Fantasy Premier League live Q&A: Gameweek 25 advice from Ben Dinnery**\
-`Ben Dinnery is on hand to offer his expert advice on the players to target, who to avoid, and the fitness doubts you need to be aware of`\
-https://nytimes.com/athletic/7026676/2026/02/06/fantasy-premier-league-live-qa-gameweek-25-advice-from-ben-dinnery/
 
