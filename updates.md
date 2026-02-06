@@ -1,3 +1,7 @@
+**The Tarik Skubal-Tigers saga comes to amicable end, and now they chase a title together**\
+`Tarik Skubal won his arbitration hearing, and the Tigers signed Framber Valdez. All's well that ends well? Especially if it ends in a title.`\
+https://nytimes.com/athletic/7025520/2026/02/05/tarik-skubal-tigers-arbitration-season/
+
 **Pentagon Official Rejects Plea Deal in U.S.S. Cole Bombing Case**\
 `The decision clears the way for the first death-penalty trial at Guantánamo Bay to start this summer, more than 25 years after the attack.`\
 https://nytimes.com/2026/02/05/us/politics/cole-bombing-plea-deal-rejected.html

@@ -1,3 +1,7 @@
+**The Tarik Skubal-Tigers saga comes to amicable end, and now they chase a title together**\
+`Tarik Skubal won his arbitration hearing, and the Tigers signed Framber Valdez. All's well that ends well? Especially if it ends in a title.`\
+https://nytimes.com/athletic/7025520/2026/02/05/tarik-skubal-tigers-arbitration-season/
+
 **Pentagon Official Rejects Plea Deal in U.S.S. Cole Bombing Case**\
 `The decision clears the way for the first death-penalty trial at Guantánamo Bay to start this summer, more than 25 years after the attack.`\
 https://nytimes.com/2026/02/05/us/politics/cole-bombing-plea-deal-rejected.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7025199/2026/02/05/fantasy-basketball-nba-trade-dea
 **Toronto Police Officers Are Charged in Sweeping Drug and Corruption Case**\
 `After hit men targeted the home of a prison manager in June, investigators say, the schemes of a criminal network involving the police unraveled.`\
 https://nytimes.com/2026/02/05/world/canada/toronto-police-arrested-drugs-corruption.html
-
-**Toronto Police Officers Charged in Drug and Corruption Investigation**\
-`Eight Toronto police officers were charged in an investigation, which began after a prison manager was targeted by three hit men.`\
-https://nytimes.com/video/world/americas/100000010692482/toronto-police-corruption-investigation.html
 
