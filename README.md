@@ -1,3 +1,7 @@
+**Russian General Is Shot in Moscow**\
+`The attack bore the hallmark of several assassination attempts on top military officers in the Russian capital.`\
+https://nytimes.com/2026/02/06/world/europe/russian-general-shot-moscow-alexeyev.html
+
 **Facing Threats From Both America and China, Toyota Changes C.E.O.s**\
 `The world’s biggest automaker has navigated the industry’s turbulent E.V. transition, but is looking to new leadership to manage complex geopolitical challenges.`\
 https://nytimes.com/2026/02/06/business/toyota-ceo-kenta-kon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/06/insider/living-in.html
 **Inside Carrick's revolution: Holland's 'homework', new matchday routines and a sense of calm**\
 `United's interim head coach changed coaching sessions, arrival times and the training ground vibe — and it's paying off`\
 https://nytimes.com/athletic/7023845/2026/02/06/michael-carrick-mannchester-united-manager/
-
-**Late Night Finds Trump Out of Place at Prayer Breakfast**\
-`The annual National Prayer Breakfast “is supposed to be a normal, nonpartisan event,” Seth Meyers said, “but, of course, Donald Trump is incapable of being normal.”`\
-https://nytimes.com/2026/02/06/arts/television/late-night-trump-prayer-breakfast.html
 
