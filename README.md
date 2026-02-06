@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Feb. 6, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://nytimes.com/2026/02/06/podcasts/the-headlines/the-headlines-news-quiz-feb-6-2026.html
+
 **Deadline tension fuels Draymond Green, Warriors for one of their best wins of the year**\
 `Green was as relieved as anyone to see the deadline pass before helping the Warriors to a 101-97 comeback win over the Phoenix Suns.`\
 https://nytimes.com/athletic/7026512/2026/02/06/warriors-win-draymond-green-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7021084/2026/02/06/20-best-cleveland-guardians-pros
 **Mack Hollins' production keeps him in the NFL and away from being called 'a weirdo'**\
 `The receiver's on-field performance for the Patriots speaks louder than his habit of always walking barefoot and his desire to be a farmer.`\
 https://nytimes.com/athletic/7026019/2026/02/06/patriots-seahawks-mack-hollins-super-bowl/
-
-**‘We will all take it’: How the Bruins are goalie-ing and power play-ing toward the playoffs**\
-`With 32 games left in the regular season, the Bruins are among the East’s top eight — a spot they'll take all day after last season.`\
-https://nytimes.com/athletic/7025492/2026/02/06/bruins-power-play-goalies-olympic-break/
 
