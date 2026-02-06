@@ -1,3 +1,15 @@
+**Lindsey Vonn, with torn ACL, completes training run ahead of Olympic downhill**\
+`Despite a torn ACL, Vonn completed the training run Friday with no apparent issues. She's aiming to start the downhill on Sunday.`\
+https://nytimes.com/athletic/7026802/2026/02/06/lindsey-vonn-olympics-downhill-torn-acl-training/
+
+**Fantasy Premier League live Q&A: Gameweek 25 advice from Ben Dinnery**\
+`Ben Dinnery is on hand to offer his expert advice on the players to target, who to avoid, and the fitness doubts you need to be aware of`\
+https://nytimes.com/athletic/7026676/2026/02/06/fantasy-premier-league-live-qa-gameweek-25-advice-from-ben-dinnery/
+
+**Bulls rebuilding again after wild trade deadline, but don't expect turnaround anytime soon**\
+`Artūras Karnišovas couldn’t come out and say tanking was the goal when he spoke about Chicago's flurry of moves, but it’s pretty obvious.`\
+https://nytimes.com/athletic/7026399/2026/02/06/bulls-nba-trade-deadline-rebuild/
+
 **‘The Headlines’ News Quiz: Feb. 6, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://nytimes.com/2026/02/06/podcasts/the-headlines/the-headlines-news-quiz-feb-6-2026.html
