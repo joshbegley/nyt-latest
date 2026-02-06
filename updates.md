@@ -1,3 +1,7 @@
+**USMNT's road to 2030 World Cup set as Concacaf confirms qualifying format**\
+`After not having to qualify for the 2026 World Cup, the U.S. has learned what it'll take to participate in 2030's 48-team event`\
+https://nytimes.com/athletic/7027932/2026/02/06/2030-world-cup-qualifying-concacaf-usmnt-mexico/
+
 **Dodgers reshuffle back end of roster with series of moves: Takeaways**\
 `However inconsequential the moves may seem at the moment, they are worth keeping tabs on.`\
 https://nytimes.com/athletic/7027976/2026/02/06/los-angeles-dodgers-roster-reshuffle-takeaways/
