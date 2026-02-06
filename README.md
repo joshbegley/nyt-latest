@@ -1,3 +1,11 @@
+**England captain Ben Stokes left with facial injuries after being hit by ball**\
+`Stokes called the player responsible from hospital and told him 'not to worry' after conceding he was at fault for turning his back.`\
+https://nytimes.com/athletic/7026660/2026/02/06/ben-stokes-hit-face-hospital-durham-england/
+
+**New York Mets 2026 top 20 prospects: Nolan McLean, Carson Benge lead the way**\
+`The Mets have built a solid farm system through excellent drafting and solid player development, especially of their pitchers.`\
+https://nytimes.com/athletic/7021795/2026/02/06/mets-2026-top-20-prospects-keith-law/
+
 **How Kevin Huerter plans on fitting with the Pistons: 'I've got to find my way'**\
 `Huerter debuted with Detroit in limited minutes during Thursday's loss to the Wizards. Can he help the team's 3-point shooting and spacing?`\
 https://nytimes.com/athletic/7026334/2026/02/06/kevin-huerter-pistons-trade-fit/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7025867/2026/02/06/celtics-nba-trade-deadline-nikol
 **How Vladar has become the Flyers' irreplaceable leader in more ways than one**\
 `The goalie is clearly the Flyers' MVP of the season during play, but what happens between whistles sets him apart.`\
 https://nytimes.com/athletic/7026114/2026/02/06/flyers-dan-vladar-leadership-goalie-olympics/
-
-**Artemi Panarin — and former Rangers teammates — reflect on his departure**\
-`“I’ve had a lot of friends get traded over the years, and this one is no easier,” said former teammate Vincent Trocheck.`\
-https://nytimes.com/athletic/7026168/2026/02/06/artemi-panarin-rangers-teammates-reflect-sullivan-hurricanes/
-
-**Avery Hayes' unforgettable night provides Penguins with latest dose of magic**\
-`Avery Hayes woke up Thursday not expecting a call to the NHL. He finished the first period against the Sabres with two goals.`\
-https://nytimes.com/athletic/7025794/2026/02/06/penguins-avery-hayes-nhl-debut-kindel-sabres/
 
