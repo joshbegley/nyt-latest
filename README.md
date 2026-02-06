@@ -1,3 +1,7 @@
+**Word of the Day: heinous**\
+`This word has appeared in 144 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/06/learning/word-of-the-day-heinous.html
+
 **Wasteful, disjointed, beatable: What's to blame for Chelsea's back-to-back defeats?**\
 `Is the serial WSL champions' formation to blame for their recent dip in form? `\
 https://nytimes.com/athletic/7020753/2026/02/06/chelsea-women-sonia-bompastor-tactics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7024159/2026/02/06/struijk-leeds-expected-goals-und
 **Why did Crystal Palace buy Jorgen Strand Larsen?**\
 `The London club paid an eye-watering fee to sign the Norway striker but, given his qualities, there was a logic to their pursuit`\
 https://nytimes.com/athletic/7018434/2026/02/06/crystal-palace-strand-larsen-wolves-analysis/
-
-**Can Lorenzo Lucca be the centre-forward Nottingham Forest need?**\
-`The on-loan forward, affectionately nicknamed 'Pizza Crouch', is looking to reboot his career under the guidance of Sean Dyche `\
-https://nytimes.com/athletic/7023828/2026/02/06/lorenzo-lucca-nottingham-forest-napoli/
 
