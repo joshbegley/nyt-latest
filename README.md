@@ -1,4 +1,8 @@
-**Rams quarterback Matthew Stafford named NFL MVP for first time**\
+**Amid Kings and Artemi Panarin's excitement, focus turns to perfecting fit**\
+`The Kings needed a star who can put pucks in the net. Now they have one, but there may be a mutual adjustment period.`\
+https://nytimes.com/athletic/7026120/2026/02/05/kings-artemi-panarin-fit-trade-scoring/
+
+**Rams' Matthew Stafford edges Patriots' Drake Maye for MVP in closest race since 2003**\
 `Stafford, a 2025 first-team All-Pro, wins the MVP award after throwing for an NFL-leading 4,707 yards and 46 touchdown passes this season.`\
 https://nytimes.com/athletic/7025135/2026/02/05/rams-matthew-stafford-2025-nfl-mvp/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7025846/2026/02/05/american-snowboarding-star-red-g
 **‘The Pitt’ Season 2, Episode 5 Recap: Reunited**\
 `Robby and Langdon finally collide, and the vibe is predictably tense. That sabbatical can’t some soon enough.`\
 https://nytimes.com/2026/02/05/arts/television/the-pitt-recap-season-2-episode-5.html
-
-**Edge of a Snifter**\
-`Geoffrey Schorkopf and Rafael Musa open our solving weekend.`\
-https://nytimes.com/2026/02/05/crosswords/daily-puzzle-2026-02-06.html
 
