@@ -1,3 +1,7 @@
+**Mixed doubles team ties best-ever U.S. Olympic curling start, with Snoop watching**\
+`Cory Thiesse and Korey Dropkin are 3-0 at the mixed doubles tournament and earned a visit from NBC's most famous correspondent.`\
+https://nytimes.com/athletic/7026699/2026/02/06/winter-olympics-curling-us-snoop-dogg-mixed-doubles/
+
 **Lindsey Vonn, with torn ACL, completes training run ahead of Olympic downhill**\
 `Despite a torn ACL, Vonn completed the training run Friday with no apparent issues. She's aiming to start the downhill on Sunday.`\
 https://nytimes.com/athletic/7026802/2026/02/06/lindsey-vonn-olympics-downhill-torn-acl-training/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7025147/2026/02/06/the-athletics-friday-football-qu
 **Grading the ACC’s transfer portal classes, from Miami's 'A' to Florida State 'D-'**\
 `Four ACC schools made The Athletic’s ranking of the top 25 transfer portal classes, but several others received poor grades from Manny.`\
 https://nytimes.com/athletic/7024208/2026/02/06/acc-transfer-portal-grades-miami-florida-state/
-
-**Why Cavs, Donovan Mitchell and James Harden were the biggest winners at trade deadline**\
-`The Cavs were unable to get out of the second apron, but they shed significant tax penalties and improved the roster with a dynamic player.`\
-https://nytimes.com/athletic/7026355/2026/02/06/cavaliers-james-harden-trade-deadline-donovan-mitchell/
 

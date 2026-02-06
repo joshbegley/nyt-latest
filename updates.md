@@ -1,3 +1,7 @@
+**Mixed doubles team ties best-ever U.S. Olympic curling start, with Snoop watching**\
+`Cory Thiesse and Korey Dropkin are 3-0 at the mixed doubles tournament and earned a visit from NBC's most famous correspondent.`\
+https://nytimes.com/athletic/7026699/2026/02/06/winter-olympics-curling-us-snoop-dogg-mixed-doubles/
+
 **Lindsey Vonn, with torn ACL, completes training run ahead of Olympic downhill**\
 `Despite a torn ACL, Vonn completed the training run Friday with no apparent issues. She's aiming to start the downhill on Sunday.`\
 https://nytimes.com/athletic/7026802/2026/02/06/lindsey-vonn-olympics-downhill-torn-acl-training/
