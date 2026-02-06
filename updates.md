@@ -1,3 +1,11 @@
+**Nancy Guthrie’s Abduction Set Off a Storm. This Sheriff Is Riding It Out.**\
+`Sheriff Chris Nanos is surrounded by chaos but is trying to keep his cool as the search for a celebrity news anchor’s mother grinds on.`\
+https://nytimes.com/2026/02/06/us/nancy-guthrie-pima-county-sheriff-chris-nanos.html
+
+**No Fashion Focus in Milan After France Made It Part of Summer Olympics**\
+`In Paris, the fashion powerhouse LVMH was a headline sponsor and helped design the medals and the athletes’ apparel.`\
+https://nytimes.com/2026/02/06/world/europe/no-fashion-focus-in-milan-after-france-made-it-part-of-summer-olympics.html
+
 **Games Briefing: Light the cauldrons**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7027658/2026/02/06/opening-ceremony-olympic-games-briefing/

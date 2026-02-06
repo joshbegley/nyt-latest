@@ -1,3 +1,11 @@
+**Nancy Guthrie’s Abduction Set Off a Storm. This Sheriff Is Riding It Out.**\
+`Sheriff Chris Nanos is surrounded by chaos but is trying to keep his cool as the search for a celebrity news anchor’s mother grinds on.`\
+https://nytimes.com/2026/02/06/us/nancy-guthrie-pima-county-sheriff-chris-nanos.html
+
+**No Fashion Focus in Milan After France Made It Part of Summer Olympics**\
+`In Paris, the fashion powerhouse LVMH was a headline sponsor and helped design the medals and the athletes’ apparel.`\
+https://nytimes.com/2026/02/06/world/europe/no-fashion-focus-in-milan-after-france-made-it-part-of-summer-olympics.html
+
 **Games Briefing: Light the cauldrons**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7027658/2026/02/06/opening-ceremony-olympic-games-briefing/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7027326/2026/02/06/super-bowl-betting-for-by-dummie
 **The Best Ski Racers Often Don’t Win Gold**\
 `Unlike many Olympic sports, the best Alpine skiers often don’t win gold. The two-time Olympic champion Ted Ligety explains why the sport is so unpredictable.`\
 https://nytimes.com/video/sports/skiing/100000010683547/the-best-ski-racers-often-dont-win-gold.html
-
-**School Bus Driver Charged in Brooklyn Hit-and-Run That Killed Girl, 11**\
-`The driver is accused of leaving the scene after the collision and faces misdemeanor charges.`\
-https://nytimes.com/2026/02/06/nyregion/girl-hit-killed-school-bus-brooklyn.html
-
-**To Study Antarctic Ice Rifts, You Have to Throw a Few ‘Bombs’**\
-`The fastest way into the gaps between gigantic blocks of a broken-up glacier is by lowering instruments from above, through the door of a helicopter.`\
-https://nytimes.com/2026/02/06/climate/antarctica-thwaites-glacier-rifts.html
 
