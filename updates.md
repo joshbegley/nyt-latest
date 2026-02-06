@@ -1,3 +1,11 @@
+**Myles Garrett is NFL Defensive Player of the Year after record 23-sack season**\
+`Cleveland Browns' defensive end was a wrecking ball for offenses during the 2025 regular season`\
+https://nytimes.com/athletic/7025648/2026/02/05/nfl-honors-awards-roundup-dpoy-opoy-comeback-player-rookie/
+
+**Smithsonian Folklife Festival Gives Way to Trump’s Patriotic Fair**\
+`The summer festival, held annually since 1967, will not take place as usual on the National Mall, which will instead host the president’s Great American State Fair.`\
+https://nytimes.com/2026/02/05/arts/smithsonian-folklife-festival-great-american-state-fair.html
+
 **Smithsonian Folklife Festival Gives Way to Trump’s Patriotic Fair**\
 `The summer festival, held annually since 1967, will not take place as usual on the National Mall, which will instead host the president’s Great American State Fair.`\
 https://nytimes.com/2026/02/05/arts/smithsonian-folklife-festival-gives-way-to-trumps-patriotic-fair.html

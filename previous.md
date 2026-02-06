@@ -1,6 +1,10 @@
+**Myles Garrett is NFL Defensive Player of the Year after record 23-sack season**\
+`Cleveland Browns' defensive end was a wrecking ball for offenses during the 2025 regular season`\
+https://nytimes.com/athletic/7025648/2026/02/05/nfl-honors-awards-roundup-dpoy-opoy-comeback-player-rookie/
+
 **Smithsonian Folklife Festival Gives Way to Trump’s Patriotic Fair**\
 `The summer festival, held annually since 1967, will not take place as usual on the National Mall, which will instead host the president’s Great American State Fair.`\
-https://nytimes.com/2026/02/05/arts/smithsonian-folklife-festival-gives-way-to-trumps-patriotic-fair.html
+https://nytimes.com/2026/02/05/arts/smithsonian-folklife-festival-great-american-state-fair.html
 
 **‘The Mistake of Feminism’**\
 `Is it possible to support women while also opposing abortion? The pro-life activist Lila Rose argues yes. The key, she says, is to acknowledge that men and women are inherently different.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7025845/2026/02/05/tigers-javier-baez-team-puerto-r
 **Nuggets' Peyton Watson to miss extended time with hamstring strain: Sources**\
 `Watson's injury adds to the Nuggets' misfortunes, as he had been a breakout star for the team.`\
 https://nytimes.com/athletic/7025841/2026/02/05/peyton-watson-injury-update-hamstring-nuggets/
-
-**Hundreds of Agents Left Minnesota, but Residents Are Seeing Little Change**\
-`The Trump administration announced that its deployment of immigration agents in the Twin Cities was diminishing, but many agents remain.`\
-https://nytimes.com/2026/02/05/us/minnesota-ice-agents-deployment.html
 
