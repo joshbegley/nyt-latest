@@ -1,3 +1,11 @@
+**China Reverses Death Penalty for Canadian in Drug-Smuggling Case**\
+`The ruling by China’s highest court followed a recent meeting between China and Canada’s top leaders led to a thaw in the two countries’ relations.`\
+https://nytimes.com/2026/02/06/world/asia/china-canada-death-sentence-overturned.html
+
+**Prosecutors withdraw felony assault charge against Gavin McKenna**\
+`Video evidence in the case against McKenna doesn't support the charge, the Centre County District Attorney's Office said in a media release.`\
+https://nytimes.com/athletic/7027746/2026/02/06/gavin-mckenna-felony-assault-charge-dropped/
+
 **Mike Conley on path to return to Wolves after trade, thanks to CBA loophole**\
 `For a moment, Mike Conley's time in Minnesota appeared done. Thanks to a CBA loophole, the 38-year-old will return to the Wolves. `\
 https://nytimes.com/athletic/7027598/2026/02/06/mike-conley-minnesota-timberwolves-trade-return-cba/
@@ -10,7 +18,7 @@ https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony
 `The 43-year-old joined in 2024 on an initial four-year deal and oversaw their sixth league title in a row last season. `\
 https://nytimes.com/athletic/7027712/2026/02/06/sonia-bompastor-chelsea-women-contract-extension/
 
-**What Lakers' post-trade deadline game vs. 76ers revealed about their roster**\
+**What we learned about the Lakers' roster in their first post-trade deadline game**\
 `The Lakers quiet trade deadline leaves JJ Redick and the Lakers to solve the roster questions themselves. `\
 https://nytimes.com/athletic/7026433/2026/02/06/lakers-sixers-trade-deadline-nba/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7027771/2026/02/06/nfl-awards-stafford-mvp-2025-sup
 **Mariah Carey Performs at Winter Games Opening Ceremony**\
 `The singer-songwriter “perfectly embodies the emotional spirit of the Games,” Olympic organizers said.`\
 https://nytimes.com/2026/02/06/world/europe/mariah-carey-performance-winter-olympics-opening-ceremony.html
-
-**Sonny Jurgensen, in word and deed, was a majestic figure in Washington sports history**\
-`Virtually no one in the history of Washington, D.C. pro sports has had Sonny Jurgensen's mixture of electricity and personality.`\
-https://nytimes.com/athletic/7027249/2026/02/06/sonny-jurgensen-death-washington-d-c-sports/
-
-**Deion Sanders on coaching in the NFL: 'Ain't no way in the world'**\
-`Sanders said after "what transpired with my son last year" that he has no interest in coaching in the NFL.`\
-https://nytimes.com/athletic/7027663/2026/02/06/deion-sanders-nfl-coach-shedeur/
 

@@ -1,3 +1,15 @@
+**China Reverses Death Penalty for Canadian in Drug-Smuggling Case**\
+`The ruling by China’s highest court followed a recent meeting between China and Canada’s top leaders led to a thaw in the two countries’ relations.`\
+https://nytimes.com/2026/02/06/world/asia/china-canada-death-sentence-overturned.html
+
+**Prosecutors withdraw felony assault charge against Gavin McKenna**\
+`Video evidence in the case against McKenna doesn't support the charge, the Centre County District Attorney's Office said in a media release.`\
+https://nytimes.com/athletic/7027746/2026/02/06/gavin-mckenna-felony-assault-charge-dropped/
+
+**What we learned about the Lakers' roster in their first post-trade deadline game**\
+`The Lakers quiet trade deadline leaves JJ Redick and the Lakers to solve the roster questions themselves. `\
+https://nytimes.com/athletic/7026433/2026/02/06/lakers-sixers-trade-deadline-nba/
+
 **Mike Conley on path to return to Wolves after trade, thanks to CBA loophole**\
 `For a moment, Mike Conley's time in Minnesota appeared done. Thanks to a CBA loophole, the 38-year-old will return to the Wolves. `\
 https://nytimes.com/athletic/7027598/2026/02/06/mike-conley-minnesota-timberwolves-trade-return-cba/
