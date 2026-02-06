@@ -1,3 +1,11 @@
+**What Lakers' post-trade deadline game vs. 76ers revealed about their roster**\
+`The Lakers quiet trade deadline leaves JJ Redick and the Lakers to solve the roster questions themselves. `\
+https://nytimes.com/athletic/7026433/2026/02/06/lakers-sixers-trade-deadline-nba/
+
+**After Mariah Carey, Italian Stars Take the Stage at Olympics Opening Ceremony**\
+`The performers include an Italian tenor who is one of the most successful singers in the world and an actress who has had roles in “The White Lotus” and “The Paper.”`\
+https://nytimes.com/2026/02/06/world/europe/milan-winter-olympics-opening-ceremony-performers.html
+
 **Prime Tire: Lessons to learn from Toto Wolff's pessimism**\
 `Welcome to Prime Tire, The Athletic’s F1 newsletter.`\
 https://nytimes.com/athletic/7027785/2026/02/06/toto-wolff-f1-super-bowl-prime-tire/
