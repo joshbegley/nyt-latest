@@ -1,3 +1,7 @@
+**Lil Jon’s Son Is Found Dead in a Georgia Pond, Police Say**\
+`Nathan Smith, whose stage name is DJ Young Slade, was reported missing on Tuesday after running out of his home in a community north of Atlanta.`\
+https://nytimes.com/2026/02/06/arts/music/lil-jon-son-dead.html
+
 **Let the Games Begin**\
 `Also, mass market paperbacks are heading toward extinction. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2026/02/06/briefing/let-the-games-begin.html
