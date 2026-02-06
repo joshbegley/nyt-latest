@@ -1,3 +1,11 @@
+**Super Bowl betting for (by) dummies: Drafting the best bets for Seahawks vs. Patriots**\
+`Jon Greenberg and Zac Jackson draft their favorite bets for Super Bowl 60.`\
+https://nytimes.com/athletic/7027326/2026/02/06/super-bowl-betting-for-by-dummies-seahawks-patriots/
+
+**School Bus Driver Charged in Brooklyn Hit-and-Run That Killed Girl, 11**\
+`The driver is accused of leaving the scene after the collision and faces misdemeanor charges.`\
+https://nytimes.com/2026/02/06/nyregion/girl-hit-killed-school-bus-brooklyn.html
+
 **The Best Ski Racers Often Don’t Win Gold**\
 `Unlike many Olympic sports, the best Alpine skiers often don’t win gold. The two-time Olympic champion Ted Ligety explains why the sport is so unpredictable.`\
 https://nytimes.com/video/sports/skiing/100000010683547/the-best-ski-racers-often-dont-win-gold.html
