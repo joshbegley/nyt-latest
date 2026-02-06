@@ -1,3 +1,7 @@
+**How to watch Grizzlies vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7027961/2026/02/06/grizzlies-vs-trail-blazers-stream-how-to-watch-feb-6/
+
 **Icy Conditions Have Put New York’s Citywide Ferry Service, Well, on Ice**\
 `Ice has clogged the East River, suspending NYC Ferry service for thousands of commuters. More cold and snow is expected this weekend.`\
 https://nytimes.com/2026/02/06/nyregion/nyc-ferry-service-suspension-cold-weather.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7027935/2026/02/06/heat-vs-celtics-stream-how-to-wa
 **A Trump Deal With Iran May Hinge on the Number Zero**\
 `Can the two sides get past Iran’s claim that it has a “right” to enrich uranium?`\
 https://nytimes.com/2026/02/06/us/politics/trump-iran-nuclear.html
-
-**Can You Use the Ocean as a Bathroom?**\
-`A ruling on a timeless dispute.`\
-https://nytimes.com/interactive/2026/02/06/magazine/08mag-hodgmanquiz.html
 
