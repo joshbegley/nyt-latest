@@ -1,3 +1,11 @@
+**What to Expect at the Olympic Opening Ceremony, From the Man Behind It**\
+`Marco Balich has helped design grand spectacles at more than half a dozen Olympics. On Friday, he’ll do it again, on home turf in Italy.`\
+https://nytimes.com/2026/02/06/world/europe/milan-olympic-opening-ceremony-director-balich.html
+
+**The Olympics opening ceremonies are at 4 sites. Here's why, and how to watch**\
+`With the largest geographic footprint in Olympic history at roughly 10,000 square miles, the 2026 Games had to get creative.`\
+https://nytimes.com/athletic/7025934/2026/02/06/milan-cortina-olympics-opening-ceremonies-how-to-watch/
+
 **Russian General Is Shot in Moscow**\
 `The attack bore the hallmark of several assassination attempts on top military officers in the Russian capital.`\
 https://nytimes.com/2026/02/06/world/europe/russian-general-shot-moscow-alexeyev.html
