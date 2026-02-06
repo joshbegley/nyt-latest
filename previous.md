@@ -1,3 +1,7 @@
+**L.A. Lakers Survive Philadelphia 76ers in Closely Contested N.B.A. Matchup**\
+`In other action around the league, the Washington Wizards stunned the Detroit Pistons and the San Antonio Spurs handled the Dallas Mavericks.`\
+https://nytimes.com/video/sports/basketball/100000010694388/la-lakers-survive-philadelphia-76ers-in-closely-contested-nba-matchup.html
+
 **Gordon set to miss Brentford game, Guimaraes 'closer' to return**\
 `Gordon was forced off in the first half of the Carabao Cup semi-final defeat to Man City, while Guimaraes has missed his side's last three.`\
 https://nytimes.com/athletic/7026573/2026/02/06/gordon-guimaraes-newcastle-injury-latest/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/06/opinion/washington-post-bezos-layoffs.html
 **Trump’s Stifling of Dissent Reaches a New Level**\
 `Measuring America’s slide toward democratic erosion.`\
 https://nytimes.com/interactive/2026/02/06/opinion/ice-minnesota-democracy-america.html
-
-**As Minnesota Reels Amid Immigration Crackdown, a Sheriff Agonizes Over Her Role**\
-`Sheriff Dawanna Witt of Hennepin County says she thinks she could help end the crackdown by allowing some measure of cooperation with ICE. She also knows that could cost her re-election.`\
-https://nytimes.com/2026/02/06/us/dawanna-witt-hennepin-sheriff.html
 
