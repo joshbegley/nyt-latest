@@ -1,3 +1,11 @@
+**Failure to Alert Judge to Press Law for Reporter Search Draws Ethical Scrutiny**\
+`The Justice Department may have violated a candor rule by not disclosing a 1980 law when seeking a warrant for a Washington Post reporter’s home.`\
+https://nytimes.com/2026/02/05/us/washington-post-reporter-home-search.html
+
+**Lawmakers Say They Will Not Cooperate With Inquiry Into Illegal Orders Video**\
+`The Justice Department investigation was an escalation in the administration’s response to a video that President Trump said was “punishable by death.”`\
+https://nytimes.com/2026/02/05/us/politics/lawmakers-pirro-illegal-orders-video.html
+
 **The Tarik Skubal-Tigers saga comes to amicable end, and now they chase a title together**\
 `Tarik Skubal won his arbitration hearing, and the Tigers signed Framber Valdez. All's well that ends well? Especially if it ends in a title.`\
 https://nytimes.com/athletic/7025520/2026/02/05/tarik-skubal-tigers-arbitration-season/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/05/briefing/us-russia-nuclear-treaty-federal-workers
 **SEC commissioner Greg Sankey sides with NCAA against Charles Bediako**\
 `Sankey asked the court to uphold the NCAA’s eligibility rules and deny Bediako a preliminary injunction, advocating against Alabama.`\
 https://nytimes.com/athletic/7025472/2026/02/05/greg-sankey-sec-commissioner-charles-bediako-alabama/
-
-**Movin' on up (or down): Fantasy basketball winners and losers from every NBA deadline deal**\
-`Stan Son offers his fantasy hoops spin for every deal consummated leading up to the NBA trade deadline.`\
-https://nytimes.com/athletic/7025199/2026/02/05/fantasy-basketball-nba-trade-deadline-winners-losers/
-
-**Toronto Police Officers Are Charged in Sweeping Drug and Corruption Case**\
-`After hit men targeted the home of a prison manager in June, investigators say, the schemes of a criminal network involving the police unraveled.`\
-https://nytimes.com/2026/02/05/world/canada/toronto-police-arrested-drugs-corruption.html
 
