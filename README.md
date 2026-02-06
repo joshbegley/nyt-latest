@@ -1,3 +1,15 @@
+**Trump administration continues freeze of U.S. funding to WADA**\
+`This measure is a rare point of bipartisan agreement. Under the Biden administration, the U.S. was already withholding its '25 dues to WADA.`\
+https://nytimes.com/athletic/7027299/2026/02/06/trump-freezes-us-funding-wada/
+
+**WR Jahmal Edrine charged with rape, abduction; no longer on Virginia roster**\
+`Edrine was arrested and charged following a five-month investigation, police said.`\
+https://nytimes.com/athletic/7027359/2026/02/06/virginia-football-jahmal-edrine-charged/
+
+**Italy’s Occult Capital Keeps Its Secrets Hidden**\
+`Turin has Baroque architecture, ‘light-as-an-angel’ pizza and a flourishing contemporary art scene.`\
+https://nytimes.com/2026/02/06/t-magazine/turin-italy-guide-hotels-restaurants.html
+
 **A Pro-Israel Group’s Move Backfires as Gaza Tensions Flare in Midterms**\
 `A surprising twist in a New Jersey primary race showed how questions about Israel continue to roil American politics in unpredictable ways.`\
 https://nytimes.com/2026/02/06/us/politics/aipac-new-jersey-malinowski-mejia-israel-gaza-democrats.html
@@ -23,18 +35,6 @@ https://nytimes.com/video/us/politics/100000010692316/donald-trump-discriminatio
 https://nytimes.com/2026/02/06/us/california-children-hospital-transgender-care.html
 
 **Aston Villa forward Rory Wilson set for Sturm Graz loan**\
-`With the Austrian transfer window still open, Sturm Graz have won the race for the 20-year-old.`\
+`The 20-year-old signed a new two-year deal in April but has been firmly down the pecking order for Unai Emery.`\
 https://nytimes.com/athletic/7027404/2026/02/06/rory-wilson-sturm-graz-aston-villa-loan/
-
-**Until Saturday: From Tattoogate to Super Bowl 60**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/7027231/2026/02/06/mike-vrabel-ohio-state-tattoogate-until-saturday/
-
-**Officials Pressed Schumer to Help Name Penn Station, Dulles for Trump**\
-`Administration officials told the top Senate Democrat the president would release frozen funding for the Gateway project if the transportation hubs were renamed for him.`\
-https://nytimes.com/2026/02/06/us/politics/trump-schumer-penn-station-dulles-airport-renaming.html
-
-**Harvard Proposes Capping A’s to Curb Grade Inflation**\
-`A recent report found that a majority of grades given out at Harvard were A’s. Professors will vote on a proposal to limit the number to around 20 percent.`\
-https://nytimes.com/2026/02/06/us/harvard-grade-inflation.html
 
