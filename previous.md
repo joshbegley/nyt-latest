@@ -1,4 +1,4 @@
-**Amid Kings and Artemi Panarin's excitement, focus turns to perfecting fit**\
+**Amid Kings' and Artemi Panarin's excitement, focus turns to perfecting fit**\
 `The Kings needed a star who can put pucks in the net. Now they have one, but there may be a mutual adjustment period.`\
 https://nytimes.com/athletic/7026120/2026/02/05/kings-artemi-panarin-fit-trade-scoring/
 
