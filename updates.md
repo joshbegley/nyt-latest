@@ -1,3 +1,15 @@
+**Sonny Jurgensen, Hall of Fame quarterback and beloved broadcaster, dies at 91**\
+`Jurgensen won an NFL championship with the Eagles and is second in Washington franchise history in passing yards and passing touchdowns.`\
+https://nytimes.com/athletic/7027230/2026/02/06/sonny-jurgensen-death-nfl-quarterback-broadcaster/
+
+**How the Lightning reopened their Cup window and re-emerged as the NHL's 'modern-day dynasty'**\
+`After beating the back-to-back champs in another bloody, brutal Battle of Florida on Thursday, Tampa Bay hits the break on a 19-1-1 tear.`\
+https://nytimes.com/athletic/7025153/2026/02/06/lightning-nhl-dynasty-cup-window/
+
+**Five must-watch Olympic hockey games as the hunt for gold begins**\
+`Plus: Making sense of the Artemi Panarin trade and deals still to come.`\
+https://nytimes.com/athletic/7027198/2026/02/06/olympics-hockey-schedule-best-games/
+
 **How to watch Pennsylvania vs. Princeton women's basketball: Time, TV, streaming**\
 `Find out how to watch the Pennsylvania Quakers play the Princeton Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7027286/2026/02/06/pennsylvania-vs-princeton-stream-how-to-watch-feb-6/

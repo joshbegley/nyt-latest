@@ -1,3 +1,15 @@
+**Sonny Jurgensen, Hall of Fame quarterback and beloved broadcaster, dies at 91**\
+`Jurgensen won an NFL championship with the Eagles and is second in Washington franchise history in passing yards and passing touchdowns.`\
+https://nytimes.com/athletic/7027230/2026/02/06/sonny-jurgensen-death-nfl-quarterback-broadcaster/
+
+**How the Lightning reopened their Cup window and re-emerged as the NHL's 'modern-day dynasty'**\
+`After beating the back-to-back champs in another bloody, brutal Battle of Florida on Thursday, Tampa Bay hits the break on a 19-1-1 tear.`\
+https://nytimes.com/athletic/7025153/2026/02/06/lightning-nhl-dynasty-cup-window/
+
+**Five must-watch Olympic hockey games as the hunt for gold begins**\
+`Plus: Making sense of the Artemi Panarin trade and deals still to come.`\
+https://nytimes.com/athletic/7027198/2026/02/06/olympics-hockey-schedule-best-games/
+
 **How to watch Pennsylvania vs. Princeton women's basketball: Time, TV, streaming**\
 `Find out how to watch the Pennsylvania Quakers play the Princeton Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7027286/2026/02/06/pennsylvania-vs-princeton-stream-how-to-watch-feb-6/
@@ -17,20 +29,4 @@ https://nytimes.com/video/world/asia/100000010694769/suicide-bombing-mosque-paki
 **Climate ‘Superfund’ Bills Spread Nationwide, Despite Legal Battles**\
 `The laws aim to force oil companies to help pay for damage from global warming. Industry is gearing up for state-by-state battles.`\
 https://nytimes.com/2026/02/06/climate/climate-superfund-laws-bills.html
-
-**Wrexham's Humphrey Ker on the 'hare-brained scheme' to buy the club, five years on**\
-`Wrexham's executive director tells The Athletic about the 'surreal' five years he has spent at the club alongside Ryan Reynolds and Rob Mac`\
-https://nytimes.com/athletic/6991124/2026/02/06/wrexhams-humphrey-ker-on-the-hare-brained-scheme-to-buy-the-club-five-years-on/
-
-**Google Workers Demand End to Cloud Services for Immigration Agencies**\
-`More than 800 employees delivered a petition to management, condemning the Trump administration’s use of Google technology in immigration enforcement.`\
-https://nytimes.com/2026/02/06/business/google-employees-protest.html
-
-**Make Sancocho This Sunday**\
-`Also: Our best Super Bowl recipes, and reader favorites from this week.`\
-https://nytimes.com/2026/02/06/dining/make-sancocho-this-sunday.html
-
-**The Culture War Is Over. Bad Bunny Won.**\
-`American pop culture is global pop culture, and vice versa.`\
-https://nytimes.com/2026/02/06/opinion/bad-bunny-super-bowl.html
 
