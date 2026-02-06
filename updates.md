@@ -1,3 +1,15 @@
+**How Nintendo Became the Most Fun Video Game Company**\
+`Video games are big business, and the company behind Mario, Zelda and Pokémon may be the most important player, says the author of a new corporate history.`\
+https://nytimes.com/2026/02/06/books/review/podcast-keza-macdonald-nintendo.html
+
+**The U.S. flag bearers are a renowned speedskater and a bobsledder, both previous Olympians.**\
+`By Juliet Macur`\
+https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/the-us-flag-bearers-are-a-renowned-speedskater-and-a-bobsledder-both-previous-olympians
+
+**Besides Stars and Stripes, a Few New Flags Are Flying in Greenland**\
+`Greenland’s mini diplomatic scene is about to get more lively as Canada and France set up consulates, following threats by President Trump to take over the island.`\
+https://nytimes.com/2026/02/06/world/europe/besides-stars-and-stripes-a-few-new-flags-are-flying-in-greenland.html
+
 **Charles Woodson chooses his liquor brand over a stake in the Browns**\
 `"We respect the decision by Charles and wish him well," the Browns said in a statement to The Athletic.`\
 https://nytimes.com/athletic/7027814/2026/02/06/charles-woodson-browns-stake-liquor-brand/
