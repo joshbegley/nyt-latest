@@ -1,3 +1,7 @@
+**How to watch UConn vs. St. John's men's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7027925/2026/02/06/uconn-vs-st-john-s-stream-how-to-watch-feb-6/
+
 **Trump’s Big, Beautiful Arms Control Proposal Is Anything But**\
 `The president’s new plan is aspirational at best and, at worst, disingenuous.`\
 https://nytimes.com/2026/02/06/opinion/trump-nuclear-arms-control-proposal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7027598/2026/02/06/mike-conley-minnesota-timberwolv
 **Scattered protests occur in Milan before the ceremonies begin.**\
 `By Ashley Ahn and Tariq Panja`\
 https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/milan-olympics-protests-immigration-agents-housing
-
-**Chelsea head coach Bompastor agrees contract extension to 2030**\
-`The 43-year-old joined in 2024 on an initial four-year deal and oversaw their sixth league title in a row last season. `\
-https://nytimes.com/athletic/7027712/2026/02/06/sonia-bompastor-chelsea-women-contract-extension/
 
