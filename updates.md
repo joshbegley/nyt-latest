@@ -1,3 +1,23 @@
+**Trump administration continues freeze of U.S. funding to WADA**\
+`This measure is a rare point of bipartisan agreement. Under the Biden administration, the U.S. was already withholding its '25 dues to WADA.`\
+https://nytimes.com/athletic/7027299/2026/02/06/trump-freezes-us-funding-wada/
+
+**WR Jahmal Edrine charged with rape, abduction; no longer on Virginia roster**\
+`Edrine was arrested and charged following a five-month investigation, police said.`\
+https://nytimes.com/athletic/7027359/2026/02/06/virginia-football-jahmal-edrine-charged/
+
+**Italy’s Occult Capital Keeps Its Secrets Hidden**\
+`Turin has Baroque architecture, ‘light-as-an-angel’ pizza and a flourishing contemporary art scene.`\
+https://nytimes.com/2026/02/06/t-magazine/turin-italy-guide-hotels-restaurants.html
+
+**A Pro-Israel Group’s Move Backfires as Gaza Tensions Flare in Midterms**\
+`A surprising twist in a New Jersey primary race showed how questions about Israel continue to roil American politics in unpredictable ways.`\
+https://nytimes.com/2026/02/06/us/politics/aipac-new-jersey-malinowski-mejia-israel-gaza-democrats.html
+
+**Aston Villa forward Rory Wilson set for Sturm Graz loan**\
+`The 20-year-old signed a new two-year deal in April but has been firmly down the pecking order for Unai Emery.`\
+https://nytimes.com/athletic/7027404/2026/02/06/rory-wilson-sturm-graz-aston-villa-loan/
+
 **Restaurant Review: Mister Jiu’s**\
 `Mister Jiu’s, Brandon Jew’s flagship San Francisco restaurant, brings a distinctly Californian point of view to his Chinese American fine dining.`\
 https://nytimes.com/video/dining/100000010689574/mister-jius-san-francisco-restaurant-review.html
