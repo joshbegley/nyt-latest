@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7026120/2026/02/05/kings-artemi-panarin-fit-trade-scoring/
 
 **Rams' Matthew Stafford edges Patriots' Drake Maye for MVP in closest race since 2003**\
-`Stafford, a 2025 first-team All-Pro, wins the MVP award after throwing for an NFL-leading 4,707 yards and 46 touchdown passes this season.`\
+`Stafford says he's coming back to the Rams next season after throwing for an NFL-leading 4,707 yards and 46 touchdown passes in 2025.`\
 https://nytimes.com/athletic/7025135/2026/02/05/rams-matthew-stafford-2025-nfl-mvp/
 
 **Texas Surgeon Faces Federal Charges That He Falsified Patient Records**\
