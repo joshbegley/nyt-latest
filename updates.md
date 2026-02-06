@@ -1,3 +1,11 @@
+**Mike Conley on path to return to Wolves after trade, thanks to CBA loophole**\
+`For a moment, Mike Conley's time in Minnesota appeared done. Thanks to a CBA loophole, the 38-year-old will return to the Wolves. `\
+https://nytimes.com/athletic/7027598/2026/02/06/mike-conley-minnesota-timberwolves-trade-return-cba/
+
+**Chelsea head coach Bompastor agrees contract extension to 2030**\
+`The 43-year-old joined in 2024 on an initial four-year deal and oversaw their sixth league title in a row last season. `\
+https://nytimes.com/athletic/7027712/2026/02/06/sonia-bompastor-chelsea-women-contract-extension/
+
 **Scattered protests occurred in Milan before the ceremonies began.**\
 `By Ashley Ahn and Tariq Panja`\
 https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/milan-olympics-protests-immigration-agents-housing

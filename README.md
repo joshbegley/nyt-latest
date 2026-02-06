@@ -1,3 +1,7 @@
+**Prosecutors withdraw felony assault charge against Gavin McKenna**\
+`Video evidence in the case against McKenna doesn't support the charge, the Centre County District Attorney's Office said in a media release.`\
+https://nytimes.com/athletic/7027746/2026/02/06/gavin-mckenna-felony-assault-charge-dropped/
+
 **Mike Conley on path to return to Wolves after trade, thanks to CBA loophole**\
 `For a moment, Mike Conley's time in Minnesota appeared done. Thanks to a CBA loophole, the 38-year-old will return to the Wolves. `\
 https://nytimes.com/athletic/7027598/2026/02/06/mike-conley-minnesota-timberwolves-trade-return-cba/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/06/world/europe/mariah-carey-performance-winter-olym
 **Sonny Jurgensen, in word and deed, was a majestic figure in Washington sports history**\
 `Virtually no one in the history of Washington, D.C. pro sports has had Sonny Jurgensen's mixture of electricity and personality.`\
 https://nytimes.com/athletic/7027249/2026/02/06/sonny-jurgensen-death-washington-d-c-sports/
-
-**Deion Sanders on coaching in the NFL: 'Ain't no way in the world'**\
-`Sanders said after "what transpired with my son last year" that he has no interest in coaching in the NFL.`\
-https://nytimes.com/athletic/7027663/2026/02/06/deion-sanders-nfl-coach-shedeur/
 
