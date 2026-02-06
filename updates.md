@@ -1,3 +1,7 @@
+**The Globalization of Canadian Rage**\
+`The world is angry. Canada’s been there all along.`\
+https://nytimes.com/2026/02/06/opinion/canada-america-anger-carney.html
+
 **Wasteful, disjointed, beatable: What's to blame for Chelsea's back-to-back defeats?**\
 `Is the serial WSL champions' formation to blame for their recent dip in form? `\
 https://nytimes.com/athletic/7020753/2026/02/06/chelsea-women-sonia-bompastor-tactics/
