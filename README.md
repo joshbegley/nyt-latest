@@ -1,3 +1,7 @@
+**Lindsey Vonn, with torn ACL, completes training run ahead of Olympic downhill**\
+`Despite a torn ACL, Vonn completed the training run Friday with no apparent issues. She's aiming to start the downhill on Sunday.`\
+https://nytimes.com/athletic/7026802/2026/02/06/lindsey-vonn-olympics-downhill-torn-acl-training/
+
 **Fantasy Premier League live Q&A: Gameweek 25 advice from Ben Dinnery**\
 `Ben Dinnery is on hand to offer his expert advice on the players to target, who to avoid, and the fitness doubts you need to be aware of`\
 https://nytimes.com/athletic/7026676/2026/02/06/fantasy-premier-league-live-qa-gameweek-25-advice-from-ben-dinnery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7024208/2026/02/06/acc-transfer-portal-grades-miami
 **Why Cavs, Donovan Mitchell and James Harden were the biggest winners at trade deadline**\
 `The Cavs were unable to get out of the second apron, but they shed significant tax penalties and improved the roster with a dynamic player.`\
 https://nytimes.com/athletic/7026355/2026/02/06/cavaliers-james-harden-trade-deadline-donovan-mitchell/
-
-**Transfer portal classes under the most pressure in 2026**\
-`Some transfer portal classes will be tasked with getting a team over the hump. Others need to perform to save a coach's job. `\
-https://nytimes.com/athletic/7025224/2026/02/06/college-football-transfer-portal-colorado-texas-north-carolina/
 
