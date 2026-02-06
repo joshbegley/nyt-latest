@@ -1,5 +1,5 @@
 **F.B.I. Investigates Links to Biological Labs in Las Vegas and California**\
-`The Las Vegas home lab had vials of a “reddish liquid,” the police said. The California lab, uncovered in 2023, had materials “possibly associated with infectious diseases,” officials said.`\
+`The Las Vegas lab had vials of a “reddish liquid,” the police said. The California lab, uncovered in 2023, had materials “possibly associated with infectious diseases,” officials said.`\
 https://nytimes.com/2026/02/06/us/biolab-las-vegas-california.html
 
 **A First Look Below Antarctica’s Most Menacing Glacier**\
