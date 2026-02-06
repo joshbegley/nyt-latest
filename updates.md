@@ -1,3 +1,7 @@
+**Word of the Day: heinous**\
+`This word has appeared in 144 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/06/learning/word-of-the-day-heinous.html
+
 **The Globalization of Canadian Rage**\
 `The world is angry. Canada’s been there all along.`\
 https://nytimes.com/2026/02/06/opinion/canada-america-anger-carney.html
