@@ -1,3 +1,7 @@
+**Texas Surgeon Faces Federal Charges That He Falsified Patient Records**\
+`Prosecutors said the doctor, John Stevenson Bynon Jr., had cut five patients off from liver transplant eligibility for months without their knowledge. He has pleaded not guilty.`\
+https://nytimes.com/2026/02/05/us/houston-surgeon-records-transplants.html
+
 **Muslims Move to Assert Political Power in New York City**\
 `Zohran Mamdani’s ascension to mayor has given Muslim organizers and faith leaders the impetus to insert themselves into more formal political alliances and networks.`\
 https://nytimes.com/2026/02/05/nyregion/muslims-nyc-political-power.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/05/crosswords/daily-puzzle-2026-02-06.html
 **Steve Kerr admits he 'could have done a better job' of helping Jonathan Kuminga**\
 `"I really want to see him succeed, and I'm sorry that it didn't happen here," Kerr said. "We all take ownership of that."`\
 https://nytimes.com/athletic/7026051/2026/02/05/steve-kerr-jonathan-kuminga-trade-warriors/
-
-**Patriots' Mike Vrabel named NFL Coach of the Year**\
-`After leading the Patriots to a 14-3 regular-season record and a berth in Super Bowl 60, Vrabel has been named the Coach of the Year.`\
-https://nytimes.com/athletic/7024104/2026/02/05/mike-vrabel-coach-of-the-year-2025-nfl/
 

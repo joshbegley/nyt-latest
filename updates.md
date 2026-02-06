@@ -1,3 +1,11 @@
+**Duke's season turnaround is official after taking down No. 6 Louisville**\
+`Duke's defense stifled the Cardinals in Thursday's victory.`\
+https://nytimes.com/athletic/7026098/2026/02/05/dukes-season-turnaround-is-official-after-taking-down-no-6-louisville/
+
+**The best players on the market who weren't dealt at the trade deadline**\
+`These names were in trade rumors for weeks. In the end, their addresses aren't changing. At least not yet.`\
+https://nytimes.com/athletic/7025784/2026/02/05/nba-trade-deadline-giannis-morant-michael-porter/
+
 **Steve Kerr admits he 'could have done a better job' of helping Jonathan Kuminga**\
 `"I really want to see him succeed, and I'm sorry that it didn't happen here," Kerr said. "We all take ownership of that."`\
 https://nytimes.com/athletic/7026051/2026/02/05/steve-kerr-jonathan-kuminga-trade-warriors/
