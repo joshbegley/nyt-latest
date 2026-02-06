@@ -1,6 +1,14 @@
+**Super Bowl betting for (by) dummies: Drafting the best bets for Seahawks vs. Patriots**\
+`Jon Greenberg and Zac Jackson draft their favorite bets for Super Bowl 60.`\
+https://nytimes.com/athletic/7027326/2026/02/06/super-bowl-betting-for-by-dummies-seahawks-patriots/
+
 **The Best Ski Racers Often Don’t Win Gold**\
 `Unlike many Olympic sports, the best Alpine skiers often don’t win gold. The two-time Olympic champion Ted Ligety explains why the sport is so unpredictable.`\
 https://nytimes.com/video/sports/skiing/100000010683547/the-best-ski-racers-often-dont-win-gold.html
+
+**School Bus Driver Charged in Brooklyn Hit-and-Run That Killed Girl, 11**\
+`The driver is accused of leaving the scene after the collision and faces misdemeanor charges.`\
+https://nytimes.com/2026/02/06/nyregion/girl-hit-killed-school-bus-brooklyn.html
 
 **To Study Antarctic Ice Rifts, You Have to Throw a Few ‘Bombs’**\
 `The fastest way into the gaps between gigantic blocks of a broken-up glacier is by lowering instruments from above, through the door of a helicopter.`\
@@ -29,12 +37,4 @@ https://nytimes.com/video/podcasts/100000010686828/father-james-martin-trump-imm
 **These ceremonies have a tough act to follow: Italy’s last Olympics spectacle.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/these-ceremonies-have-a-tough-act-to-follow-italys-last-olympics-spectacle
-
-**Libyan Man Is Arrested in Deaths of 4 Americans in 2012 Benghazi Attack**\
-`The man, Zubayar al-Bakoush, is the third suspect apprehended for the 2012 attack on U.S. facilities that killed four Americans.`\
-https://nytimes.com/2026/02/06/us/politics/libyan-arrested-benghazi.html
-
-**The Olympics Could Be One of the Last Big Events for an Iconic Milan Stadium**\
-`The San Siro stadium is a temple of soccer and one of the city’s most beloved monuments, but its days may be numbered.`\
-https://nytimes.com/2026/02/06/world/europe/milan-olympics-san-siro-stadium.html
 
