@@ -4,7 +4,7 @@ https://nytimes.com/athletic/7025648/2026/02/05/nfl-honors-awards-roundup-dpoy-o
 
 **Smithsonian Folklife Festival Gives Way to Trump’s Patriotic Fair**\
 `The summer festival, held annually since 1967, will not take place as usual on the National Mall, which will instead host the president’s Great American State Fair.`\
-https://nytimes.com/2026/02/05/arts/smithsonian-folklife-festival-gives-way-to-trumps-patriotic-fair.html
+https://nytimes.com/2026/02/05/arts/smithsonian-folklife-festival-great-american-state-fair.html
 
 **‘The Mistake of Feminism’**\
 `Is it possible to support women while also opposing abortion? The pro-life activist Lila Rose argues yes. The key, she says, is to acknowledge that men and women are inherently different.`\
