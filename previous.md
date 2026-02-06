@@ -1,40 +1,40 @@
-**Newly minted Olympian Seth Jarvis reacts to late Team Canada addition**\
-`Jarvis has 25 goals and 43 points in 49 games this year, and he was part of Canada’s gold medal-winning team at the 4 Nations Face-Off.`\
-https://nytimes.com/athletic/7026206/2026/02/05/seth-jarvis-reacts-team-canada-olympics/
+**She’s Upending Japanese Politics With Two Words: ‘I’m Pregnant’**\
+`Hikaru Fujita, who’s running in Sunday’s parliamentary election, is a standout in a country where expectant mothers rarely enter national politics.`\
+https://nytimes.com/2026/02/06/world/asia/japan-election-pregnant-candidate.html
 
-**Amid Kings' and Artemi Panarin's excitement, focus turns to perfecting fit**\
-`The Kings needed a star who can put pucks in the net. Now they have one, but there may be a mutual adjustment period.`\
-https://nytimes.com/athletic/7026120/2026/02/05/kings-artemi-panarin-fit-trade-scoring/
+**The Olympics Are a Show of Global Harmony. The World Is Anything But.**\
+`The Winter Games, which officially open in Italy on Friday, are rooted in international cooperation. That feels out of place to some in a world where old rules no longer apply.`\
+https://nytimes.com/2026/02/06/world/europe/olympics-world-order-war.html
 
-**Rams' Matthew Stafford edges Patriots' Drake Maye for MVP in closest race since 2003**\
-`Stafford says he's coming back to the Rams next season after throwing for an NFL-leading 4,707 yards and 46 touchdown passes in 2025.`\
-https://nytimes.com/athletic/7025135/2026/02/05/rams-matthew-stafford-2025-nfl-mvp/
+**Bollywood Embraces a Taj Mahal Conspiracy Theory**\
+`The internet and a new film have breathed life into old conspiracy theories about one of the world’s most famous landmarks.`\
+https://nytimes.com/2026/02/06/business/the-taj-story-conspiracy-taj-mahal-hindu.html
 
-**Texas Surgeon Faces Federal Charges That He Falsified Patient Records**\
-`Prosecutors said the doctor, John Stevenson Bynon Jr., had cut five patients off from liver transplant eligibility for months without their knowledge. He has pleaded not guilty.`\
-https://nytimes.com/2026/02/05/us/houston-surgeon-records-transplants.html
+**How to Watch the Opening Ceremonies of the Milan Winter Olympics**\
+`They will take place at 2 p.m. Eastern on Friday across four separate venues in Northern Italy.`\
+https://nytimes.com/2026/02/06/world/europe/milan-winter-olympics-opening-ceremony-how-to-watch.html
 
-**Muslims Move to Assert Political Power in New York City**\
-`Zohran Mamdani’s ascension to mayor has given Muslim organizers and faith leaders the impetus to insert themselves into more formal political alliances and networks.`\
-https://nytimes.com/2026/02/05/nyregion/muslims-nyc-political-power.html
+**U.S. and Iran Set for Talks in Oman as Regional Leaders Seek to Prevent War**\
+`Middle Eastern diplomats see a chance for negotiations on Iran’s nuclear program but have slim hopes for progress on other U.S. demands.`\
+https://nytimes.com/2026/02/06/world/europe/us-and-iran-set-for-talks-in-oman-as-regional-leaders-seek-to-prevent-war.html
 
-**Duke's season turnaround is official after taking down No. 6 Louisville**\
-`Duke's defense stifled the Cardinals in Thursday's victory.`\
-https://nytimes.com/athletic/7026098/2026/02/05/dukes-season-turnaround-is-official-after-taking-down-no-6-louisville/
+**When They Were Broken Up, They Communicated Through Playlists**\
+`Daniel Schwaycer quietly made playlists about Elise Shanholtz. It took two years for her to realize they were about her.`\
+https://nytimes.com/2026/02/06/style/elise-shanholtz-daniel-schwaycer-wedding.html
 
-**The best players on the market who weren't dealt at the trade deadline**\
-`These names were in trade rumors for weeks. In the end, their addresses aren't changing. At least not yet.`\
-https://nytimes.com/athletic/7025784/2026/02/05/nba-trade-deadline-giannis-morant-michael-porter/
+**Seeking a Man Who Doesn’t Throw Tantrums**\
+`I had set my bar for relationships so low that any man who didn’t yell easily cleared it.`\
+https://nytimes.com/2026/02/06/style/modern-love-seeking-a-man-who-doesnt-throw-tantrums.html
 
-**Brees, Fitzgerald, Vinatieri lead starry, Belichick-less Hall of Fame class**\
-`Vinatieri gives the Patriots representation after Bill Belichick and Robert Kraft missed out. Two first-ballot choices joined him.`\
-https://nytimes.com/athletic/7026054/2026/02/05/nfl-hall-of-fame-class-of-2026-drew-brees-adam-vinatieri/
+**Heated? Yes. Rivalry? No.**\
+`Brock McGillis, a former professional hockey player who came out as gay in 2016, married Matthew Ward after a decade of ups and downs.`\
+https://nytimes.com/2026/02/06/style/brock-mcgillis-matthew-ward-hockey-player-wedding.html
 
-**Argentina and U.S. Sign Sweeping Trade Deal as Alliance Deepens**\
-`The deal reduces reciprocal tariffs and expands quotas for key trading goods, including Argentine beef — a flashpoint for American ranchers.`\
-https://nytimes.com/2026/02/05/world/americas/argentina-us-trade-deal-trump-milei.html
+**Lost in the Woods, They Found Their Way Into Each Other’s Hearts**\
+`Nina Russell and Mainak Ghosh met at a literary club at Yale. They wouldn’t become a couple until more than a decade later.`\
+https://nytimes.com/2026/02/06/style/nina-russell-mainak-ghosh-wedding.html
 
-**American snowboarding star Red Gerard did not qualify for big air finals. He's OK with that**\
-`"Honestly, I don’t understand why we’re forced to do this," Gerard said. "I don’t like to do this."`\
-https://nytimes.com/athletic/7025846/2026/02/05/american-snowboarding-star-red-gerard-big-air/
+**They Were Always On the Right Path**\
+`Dr. Peter Anderson, who had hiked 1,000 miles of the Appalachian Trail, helped Olivia Bergen prepare for her 2,200-mile solo trek.`\
+https://nytimes.com/2026/02/06/style/they-were-always-on-the-right-path.html
 
