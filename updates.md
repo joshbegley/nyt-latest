@@ -1,3 +1,7 @@
+**NBA buyout market tiers: Russell Westbrook, Chris Paul and more names to watch**\
+`Now that the trade deadline has passed, here are the players most likely to switch rosters before the playoffs. `\
+https://nytimes.com/athletic/7026542/2026/02/06/nba-buyout-market-tiers-russell-westbrook-chris-paul-2026/
+
 **Oxlade-Chamberlain set for Celtic medical, O'Neill confirms**\
 `The 32-year-old told The Athletic in December: “I want to play. I don’t feel old. I’m fit, and I’ve still got that hunger.”`\
 https://nytimes.com/athletic/7024005/2026/02/06/oxlade-chamberlain-celtic-transfer-medical/

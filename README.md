@@ -30,11 +30,3 @@ https://nytimes.com/athletic/7025775/2026/02/06/nba-tanking-trade-deadline-draft
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7027000/2026/02/06/nba-trade-deadline-winners-losers-giannis-kuminga-the-bounce/
 
-**Federal Vaccine Advisers Take Aim at Covid Shots**\
-`One panelist accused the F.D.A. of withholding data on potential harms. The advisers also are reviewing research on vaccines given to pregnant women.`\
-https://nytimes.com/2026/02/06/health/vaccines-covid-acip-malone-kennedy.html
-
-**Odegaard 'a matter of days' and Saka to make Arsenal return 'soon' - Arteta**\
-`Saka pulled out of the warm-up before the Leeds victory while Odegaard missed Tuesday's win over Chelsea with a muscle issue.`\
-https://nytimes.com/athletic/7027050/2026/02/06/arsenal-news-odegaard-timber-saka-injury-sunderland/
-
