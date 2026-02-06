@@ -1,3 +1,7 @@
+**Yasiel Puig found guilty of obstruction of justice, false statements**\
+`A jury found the former Dodgers star guilty of lying to federal investigators about his knowledge of an illegal gambling operation.`\
+https://nytimes.com/athletic/7024828/2026/02/06/yasiel-puig-trial-guilty-gambling-obstruction/
+
 **The Briefing: Leeds 3 Nottingham Forest 1 - Wing-back threat, Gruev masterclass and nine points clear of trouble**\
 `Daniel Farke's side thumped the team immediately below them in the table as they moved well clear of the bottom three ahead of the weekend`\
 https://nytimes.com/athletic/7015742/2026/02/06/leeds-gruev-bogle-nottingham-forest-briefing/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/06/us/politics/trump-republican-governors-white-hous
 **USMNT's road to 2030 World Cup set as Concacaf confirms qualifying format**\
 `After not having to qualify for the 2026 World Cup, the U.S. has learned what it'll take to participate in 2030's 48-team event`\
 https://nytimes.com/athletic/7027932/2026/02/06/2030-world-cup-qualifying-concacaf-usmnt-mexico/
-
-**Dodgers reshuffle back end of roster with series of moves: Takeaways**\
-`However inconsequential the moves may seem at the moment, they are worth keeping tabs on.`\
-https://nytimes.com/athletic/7027976/2026/02/06/los-angeles-dodgers-roster-reshuffle-takeaways/
 

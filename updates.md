@@ -1,3 +1,7 @@
+**Yasiel Puig found guilty of obstruction of justice, false statements**\
+`A jury found the former Dodgers star guilty of lying to federal investigators about his knowledge of an illegal gambling operation.`\
+https://nytimes.com/athletic/7024828/2026/02/06/yasiel-puig-trial-guilty-gambling-obstruction/
+
 **The Briefing: Leeds 3 Nottingham Forest 1 - Wing-back threat, Gruev masterclass and nine points clear of trouble**\
 `Daniel Farke's side thumped the team immediately below them in the table as they moved well clear of the bottom three ahead of the weekend`\
 https://nytimes.com/athletic/7015742/2026/02/06/leeds-gruev-bogle-nottingham-forest-briefing/
