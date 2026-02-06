@@ -1,3 +1,11 @@
+**Analysing the T20 stars who could light up the World Cup in India and Sri Lanka**\
+`The Athletic pinpoints 10 players who could make an impression at the tournament alongside a guide to the fixtures for the group stages `\
+https://nytimes.com/athletic/7021136/2026/02/06/t20-world-cup-stars-india-sri-lanka/
+
+**How the Carabao Cup final might alter FPL planning**\
+`Arsenal’s win over Chelsea and Manchester City’s defeat of Newcastle have left big implications on where we should invest`\
+https://nytimes.com/athletic/7022243/2026/02/06/fantasy-premier-league-fpl-tips-carabao-cup-final/
+
 **How shape-shifting Sunderland are using wide combinations to chase a top-half finish**\
 `The tactical flexibility of Regis Le Bris' squad is the primary reason they have readapted to Premier League life so successfully`\
 https://nytimes.com/athletic/7020802/2026/02/06/sunderland-tactics-premier-league/

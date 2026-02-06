@@ -1,3 +1,11 @@
+**Analysing the T20 stars who could light up the World Cup in India and Sri Lanka**\
+`The Athletic pinpoints 10 players who could make an impression at the tournament alongside a guide to the fixtures for the group stages `\
+https://nytimes.com/athletic/7021136/2026/02/06/t20-world-cup-stars-india-sri-lanka/
+
+**How the Carabao Cup final might alter FPL planning**\
+`Arsenal’s win over Chelsea and Manchester City’s defeat of Newcastle have left big implications on where we should invest`\
+https://nytimes.com/athletic/7022243/2026/02/06/fantasy-premier-league-fpl-tips-carabao-cup-final/
+
 **How shape-shifting Sunderland are using wide combinations to chase a top-half finish**\
 `The tactical flexibility of Regis Le Bris' squad is the primary reason they have readapted to Premier League life so successfully`\
 https://nytimes.com/athletic/7020802/2026/02/06/sunderland-tactics-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7026272/2026/02/06/luka-doncic-leg-injury-lakers-si
 **Baptiste, the ex-West Ham defender compared to Rio Ferdinand: 'I need to show they weren't wrong'**\
 `The 22-year-old has dropped down to the third tier but he is performing well and has his sights set on making his way back to the top flight`\
 https://nytimes.com/athletic/7023576/2026/02/06/jamal-baptiste-west-ham-rotherham/
-
-**The enigma of Alejandro Garnacho: When does potential have to become something more?**\
-`Football is an impatient business. Manchester United ran out of it with the winger, now he's made a slow start to his Chelsea career too`\
-https://nytimes.com/athletic/7004491/2026/02/06/alejandro-garnacho-chelsea-man-united-form-talent/
-
-**New Jersey House Primary Remains Too Close to Call**\
-`Two Democrats, Analilia Mejia and Tom Malinowski, were leading in a race for their party’s nomination to replace Gov. Mikie Sherrill in the House.`\
-https://nytimes.com/2026/02/06/nyregion/new-jersey-special-election-results-congress.html
 
