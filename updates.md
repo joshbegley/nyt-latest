@@ -1,3 +1,7 @@
+**Nuggets' Peyton Watson to miss extended time with hamstring strain: Sources**\
+`Watson is one of four prominent Nuggets players who have missed extended time this season with an injury.`\
+https://nytimes.com/athletic/7025841/2026/02/05/peyton-watson-injury-update-hamstring-nuggets/
+
 **Myles Garrett is NFL Defensive Player of the Year after record 23-sack season**\
 `Garrett, who was a wrecking ball for offenses during the 2025 regular season, was named Defensive Player of the Year for the second time.`\
 https://nytimes.com/athletic/7025648/2026/02/05/nfl-honors-awards-roundup-dpoy-opoy-comeback-player-rookie/
