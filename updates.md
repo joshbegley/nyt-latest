@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Feb. 6, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://nytimes.com/2026/02/06/podcasts/the-headlines/the-headlines-news-quiz-feb-6-2026.html
+
 **Deadline tension fuels Draymond Green, Warriors for one of their best wins of the year**\
 `Green was as relieved as anyone to see the deadline pass before helping the Warriors to a 101-97 comeback win over the Phoenix Suns.`\
 https://nytimes.com/athletic/7026512/2026/02/06/warriors-win-draymond-green-trade-deadline/
