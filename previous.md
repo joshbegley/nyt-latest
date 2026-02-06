@@ -1,3 +1,7 @@
+**Savannah Guthrie’s Brother Renews Plea for Their Missing Mother’s Return**\
+`The search for Nancy Guthrie has entered its sixth day. The F.B.I. has offered a $50,000 reward for information.`\
+https://nytimes.com/2026/02/06/us/savannah-nancy-guthrie-missing-updates.html
+
 **Mixed doubles team ties best-ever U.S. Olympic curling start, with Snoop watching**\
 `Cory Thiesse and Korey Dropkin are 3-0 at the mixed doubles tournament and earned a visit from NBC's most famous correspondent.`\
 https://nytimes.com/athletic/7026699/2026/02/06/winter-olympics-curling-us-snoop-dogg-mixed-doubles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7023655/2026/02/06/casemiro-manchester-united-leavi
 **The Athletic’s Friday football quiz question #92**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/7025147/2026/02/06/the-athletics-friday-football-quiz-question-92/
-
-**Grading the ACC’s transfer portal classes, from Miami's 'A' to Florida State 'D-'**\
-`Four ACC schools made The Athletic’s ranking of the top 25 transfer portal classes, but several others received poor grades from Manny.`\
-https://nytimes.com/athletic/7024208/2026/02/06/acc-transfer-portal-grades-miami-florida-state/
 

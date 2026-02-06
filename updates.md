@@ -1,3 +1,7 @@
+**Savannah Guthrie’s Brother Renews Plea for Their Missing Mother’s Return**\
+`The search for Nancy Guthrie has entered its sixth day. The F.B.I. has offered a $50,000 reward for information.`\
+https://nytimes.com/2026/02/06/us/savannah-nancy-guthrie-missing-updates.html
+
 **Mixed doubles team ties best-ever U.S. Olympic curling start, with Snoop watching**\
 `Cory Thiesse and Korey Dropkin are 3-0 at the mixed doubles tournament and earned a visit from NBC's most famous correspondent.`\
 https://nytimes.com/athletic/7026699/2026/02/06/winter-olympics-curling-us-snoop-dogg-mixed-doubles/
