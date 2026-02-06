@@ -1,3 +1,7 @@
+**Netz, Ortega not in Forest's Europa League squad, Hutchinson, Lucca added**\
+`Hutchinson was surprisingly not included in the squad by Nuno at the beginning of the season. `\
+https://nytimes.com/athletic/7026710/2026/02/06/nottingham-forest-europa-league-squad/
+
 **America’s Game**\
 `We tell you everything you need to know about this year’s Super Bowl.`\
 https://nytimes.com/2026/02/06/briefing/americas-game.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7025366/2026/02/06/super-bowl-preview-the-pulse/
 **Washington Nationals 2026 top 100 prospects: Eli Willits, Gavin Fien lead the way**\
 `The Nationals have a lot of talent at the top of their list, but some underperformed last year and are in need of bounce-back seasons.`\
 https://nytimes.com/athletic/7022510/2026/02/06/washington-nationals-2026-top-100-prospects-keith-law/
-
-**World Cup 2026 – what we’re hearing: McDonald's opts out of selling food and drink at official Fan Fests**\
-`No McDonald's food or drink at Fan Fests, Infantino's appearance at 'Melania' premiere and cities shocked by prices for suite guests`\
-https://nytimes.com/athletic/7024467/2026/02/06/mcdonalds-world-cup-fan-fest/
 
