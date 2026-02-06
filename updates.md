@@ -1,3 +1,11 @@
+**F.B.I. Investigates Links to Biological Labs in Las Vegas and California**\
+`The Las Vegas lab had vials of a “reddish liquid,” the police said. The California lab, uncovered in 2023, had materials “possibly associated with infectious diseases,” officials said.`\
+https://nytimes.com/2026/02/06/us/biolab-las-vegas-california.html
+
+**A First Look Below Antarctica’s Most Menacing Glacier**\
+`Scientists on the Thwaites Glacier attempted to install equipment beneath the ice to better understand how it is melting. Our climate reporter Raymond Zhong walks us through their landmark experiment and the bittersweet outcome.`\
+https://nytimes.com/video/climate/100000010684396/a-first-look-below-antarcticas-most-menacing-glacier.html
+
 **Outgoing Leader of N.Y.C. Antisemitism Office Criticizes His Replacement**\
 `The criticism from the former head of the Office to Combat Antisemitism, Moshe Davis, reflects the social and political divide among Jewish New Yorkers over Mayor Zohran Mamdani.`\
 https://nytimes.com/2026/02/06/nyregion/antisemitism-office-replacement-leader-criticism.html
