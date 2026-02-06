@@ -1,3 +1,7 @@
+**NHL Power Rankings: Who needs to step up for each team after the Olympic break?**\
+`The Olympics are a chance to rest up, reflect and recharge for the stretch drive. Some guys really need it after the seasons they’ve had.`\
+https://nytimes.com/athletic/7026947/2026/02/06/nhl-power-rankings-underperforming-players/
+
 **NBA buyout market tiers: Russell Westbrook, Chris Paul and more names to watch**\
 `Now that the trade deadline has passed, here are the players most likely to switch rosters before the playoffs. `\
 https://nytimes.com/athletic/7026542/2026/02/06/nba-buyout-market-tiers-russell-westbrook-chris-paul-2026/

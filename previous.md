@@ -1,3 +1,7 @@
+**NHL Power Rankings: Who needs to step up for each team after the Olympic break?**\
+`The Olympics are a chance to rest up, reflect and recharge for the stretch drive. Some guys really need it after the seasons they’ve had.`\
+https://nytimes.com/athletic/7026947/2026/02/06/nhl-power-rankings-underperforming-players/
+
 **Oxlade-Chamberlain set for Celtic medical, O'Neill confirms**\
 `The 32-year-old told The Athletic in December: “I want to play. I don’t feel old. I’m fit, and I’ve still got that hunger.”`\
 https://nytimes.com/athletic/7024005/2026/02/06/oxlade-chamberlain-celtic-transfer-medical/
@@ -25,16 +29,4 @@ https://nytimes.com/2026/02/06/nyregion/gateway-tunnel-project-funding-trump.htm
 **The NBA trade deadline is over. Now comes an all-time race to the bottom**\
 `A loaded draft looms, and a third of the league has little incentive to win. How bad will it get, and will this prompt reform?`\
 https://nytimes.com/athletic/7025775/2026/02/06/nba-tanking-trade-deadline-draft-reform/
-
-**The Bounce: Trade deadline winners and losers. And the Bucks' bizarre victory lap**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7027000/2026/02/06/nba-trade-deadline-winners-losers-giannis-kuminga-the-bounce/
-
-**Federal Vaccine Advisers Take Aim at Covid Shots**\
-`One panelist accused the F.D.A. of withholding data on potential harms. The advisers also are reviewing research on vaccines given to pregnant women.`\
-https://nytimes.com/2026/02/06/health/vaccines-covid-acip-malone-kennedy.html
-
-**Odegaard 'a matter of days' and Saka to make Arsenal return 'soon' - Arteta**\
-`Saka pulled out of the warm-up before the Leeds victory while Odegaard missed Tuesday's win over Chelsea with a muscle issue.`\
-https://nytimes.com/athletic/7027050/2026/02/06/arsenal-news-odegaard-timber-saka-injury-sunderland/
 

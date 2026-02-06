@@ -1,3 +1,15 @@
+**U.S. and Iranian Officials Meet in Oman for Talks**\
+`Iran’s foreign minister said that talks in Oman with U.S. officials aimed at preventing another conflict in the region were off to a “good start.”`\
+https://nytimes.com/video/world/middleeast/100000010694583/us-iran-talks-oman.html
+
+**A Super Bowl Message From MAHA and Mike Tyson: ‘Processed Food Kills’**\
+`A provocative new ad featuring the boxer makes the case for Americans to “eat real food.”`\
+https://nytimes.com/2026/02/06/well/super-bowl-ad-mike-tyson-maha.html
+
+**Mateta weighing up surgery options with World Cup hopes - Glasner**\
+`Glasner says a call on whether to continue managing the knee injury or seek a longer-term solution will be taken by Mateta.`\
+https://nytimes.com/athletic/7026962/2026/02/06/jean-philippe-mateta-world-cup-injury/
+
 **NHL Power Rankings: Who needs to step up for each team after the Olympic break?**\
 `The Olympics are a chance to rest up, reflect and recharge for the stretch drive. Some guys really need it after the seasons they’ve had.`\
 https://nytimes.com/athletic/7026947/2026/02/06/nhl-power-rankings-underperforming-players/
@@ -17,16 +29,4 @@ https://nytimes.com/2026/02/06/us/politics/us-boat-strike-pacific-deaths.html
 **Eight Eagles Thoughts: Jeff Stoutland's departure, coaching staff changes, Super Bowl connections**\
 `Stoutland leaving the organization is a big loss for the Eagles.`\
 https://nytimes.com/athletic/7026735/2026/02/06/eagles-coaches-jeff-stoutland-super-bowl/
-
-**Blue Jackets at the break: What's changed under Bowness, and how they can still improve**\
-`The Blue Jackets are 10-1-0 since they made a coaching change from Dean Evason to Rick Bowness.`\
-https://nytimes.com/athletic/7024944/2026/02/06/blue-jackets-bowness-streak-break/
-
-**$16 Billion Hudson River Tunnel Project Begins to Wind Down**\
-`Nearly all of the work was scheduled to stop on Friday unless federal officials agreed to restore funding that had been halted last year or a court ordered them to.`\
-https://nytimes.com/2026/02/06/nyregion/gateway-tunnel-project-funding-trump.html
-
-**The NBA trade deadline is over. Now comes an all-time race to the bottom**\
-`A loaded draft looms, and a third of the league has little incentive to win. How bad will it get, and will this prompt reform?`\
-https://nytimes.com/athletic/7025775/2026/02/06/nba-tanking-trade-deadline-draft-reform/
 
