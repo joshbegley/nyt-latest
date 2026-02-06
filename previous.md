@@ -1,3 +1,19 @@
+**How to watch UConn vs. St. John's men's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7027925/2026/02/06/uconn-vs-st-john-s-stream-how-to-watch-feb-6/
+
+**Trump’s Big, Beautiful Arms Control Proposal Is Anything But**\
+`The president’s new plan is aspirational at best and, at worst, disingenuous.`\
+https://nytimes.com/2026/02/06/opinion/trump-nuclear-arms-control-proposal.html
+
+**N.Y.P.D Sergeant Found Guilty in Death of Bronx Man He Threw Cooler At**\
+`The officer, Erik Duran, was found guilty of second-degree manslaughter for throwing a cooler at a man on a motorbike.`\
+https://nytimes.com/2026/02/06/nyregion/duran-nypd-bronx-manslaughter-cooler.html
+
+**Paul Weiss Partners Turned on Brad Karp After Learning Extent of His Epstein Ties**\
+`Mr. Karp resigned as chairman of the elite law firm after senior partners met to decide his future.`\
+https://nytimes.com/2026/02/06/business/brad-karp-paul-weiss-epstein.html
+
 **Nancy Guthrie’s Disappearance Rekindles Kidnapping Fears**\
 `High-profile abductions, like those of Patty Hearst and J. Paul Getty III, have captured the nation’s attention, but experts say kidnappings by strangers are exceedingly rare.`\
 https://nytimes.com/2026/02/06/us/famous-kidnapping-cases-abduction-numbers.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7027598/2026/02/06/mike-conley-minnesota-timberwolv
 **Scattered protests occur in Milan before the ceremonies begin.**\
 `By Ashley Ahn and Tariq Panja`\
 https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/milan-olympics-protests-immigration-agents-housing
-
-**Chelsea head coach Bompastor agrees contract extension to 2030**\
-`The 43-year-old joined in 2024 on an initial four-year deal and oversaw their sixth league title in a row last season. `\
-https://nytimes.com/athletic/7027712/2026/02/06/sonia-bompastor-chelsea-women-contract-extension/
-
-**What we learned about the Lakers' roster in their first post-trade deadline game**\
-`The Lakers quiet trade deadline leaves JJ Redick and the Lakers to solve the roster questions themselves. `\
-https://nytimes.com/athletic/7026433/2026/02/06/lakers-sixers-trade-deadline-nba/
-
-**After Mariah Carey, Italian Stars Take the Stage at Olympics Opening Ceremony**\
-`The performers include an Italian tenor who is one of the most successful singers in the world and an actress who has had roles in “The White Lotus” and “The Paper.”`\
-https://nytimes.com/2026/02/06/world/europe/milan-winter-olympics-opening-ceremony-performers.html
-
-**Prime Tire: Lessons to learn from Toto Wolff's pessimism**\
-`Welcome to Prime Tire, The Athletic’s F1 newsletter.`\
-https://nytimes.com/athletic/7027785/2026/02/06/toto-wolff-f1-super-bowl-prime-tire/
 
