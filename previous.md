@@ -1,3 +1,11 @@
+**Sources: LAFC signing Canada's Eustáquio from Porto**\
+`The Canadian veteran is headed to MLS after a few years spent with the Portuguese power`\
+https://nytimes.com/athletic/7016504/2026/02/06/stephen-eustaquio-lafc-porto-transfer-mls-canada/
+
+**U.S. Seeks to Expedite Deportation of 5-Year-Old Liam Conejo Ramos**\
+`Liam was detained last month in Minneapolis during an immigration enforcement operation in which his father was also detained by federal agents.`\
+https://nytimes.com/2026/02/06/us/us-deportation-liam-conejo-ramos-minnesota.html
+
 **U.S. and Iranian Officials Meet in Oman for Talks**\
 `Iran’s foreign minister said that talks in Oman with U.S. officials aimed at preventing another conflict in the region were off to a “good start.”`\
 https://nytimes.com/video/world/middleeast/100000010694583/us-iran-talks-oman.html
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/7024005/2026/02/06/oxlade-chamberlain-celtic-transf
 **NBA buyout market tiers: Russell Westbrook, Chris Paul and more names to watch**\
 `Now that the trade deadline has passed, here are the players most likely to switch rosters before the playoffs. `\
 https://nytimes.com/athletic/7026542/2026/02/06/nba-buyout-market-tiers-russell-westbrook-chris-paul-2026/
-
-**Latest U.S. Boat Strike Kills 2 in Pacific**\
-`The operation was authorized by the Marine general who took command of military operations in Latin America and the Caribbean earlier in the day.`\
-https://nytimes.com/2026/02/06/us/politics/us-boat-strike-pacific-deaths.html
-
-**Eight Eagles Thoughts: Jeff Stoutland's departure, coaching staff changes, Super Bowl connections**\
-`Stoutland leaving the organization is a big loss for the Eagles.`\
-https://nytimes.com/athletic/7026735/2026/02/06/eagles-coaches-jeff-stoutland-super-bowl/
 

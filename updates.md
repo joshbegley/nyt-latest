@@ -1,3 +1,11 @@
+**Sources: LAFC signing Canada's Eustáquio from Porto**\
+`The Canadian veteran is headed to MLS after a few years spent with the Portuguese power`\
+https://nytimes.com/athletic/7016504/2026/02/06/stephen-eustaquio-lafc-porto-transfer-mls-canada/
+
+**U.S. Seeks to Expedite Deportation of 5-Year-Old Liam Conejo Ramos**\
+`Liam was detained last month in Minneapolis during an immigration enforcement operation in which his father was also detained by federal agents.`\
+https://nytimes.com/2026/02/06/us/us-deportation-liam-conejo-ramos-minnesota.html
+
 **U.S. and Iranian Officials Meet in Oman for Talks**\
 `Iran’s foreign minister said that talks in Oman with U.S. officials aimed at preventing another conflict in the region were off to a “good start.”`\
 https://nytimes.com/video/world/middleeast/100000010694583/us-iran-talks-oman.html
