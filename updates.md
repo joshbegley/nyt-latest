@@ -1,3 +1,15 @@
+**Tom Brady's apology to Eagles trio on Super Bowl 39 ticket up for auction**\
+`Items from Brady and Peyton and Eli Manning's collections are currently on the auction block. `\
+https://nytimes.com/athletic/7027120/2026/02/06/tom-brady-super-bowl-39-eagles-patriots/
+
+**Review: Ballet’s King of Comedy Fights Back**\
+`At New York City Ballet, Alexei Ratmansky exposes the current moment with a political satire based on “The Emperor’s New Clothes.”`\
+https://nytimes.com/2026/02/06/arts/dance/review-naked-king-ratmansky-new-york-city-ballet.html
+
+**Judge Allows Release of Evidence From Border Patrol Shooting**\
+`A Border Patrol agent shot Marimar Martinez five times. Video from the October incident in Chicago could now be released as early as Monday.`\
+https://nytimes.com/2026/02/06/us/politics/border-patrol-shooting-evidence-release.html
+
 **Trump administration continues freeze of U.S. funding to WADA**\
 `This measure is a rare point of bipartisan agreement. Under the Biden administration, the U.S. was already withholding its '25 dues to WADA.`\
 https://nytimes.com/athletic/7027299/2026/02/06/trump-freezes-us-funding-wada/
