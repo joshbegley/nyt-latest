@@ -1,3 +1,15 @@
+**How to watch Pennsylvania vs. Princeton women's basketball: Time, TV, streaming**\
+`Find out how to watch the Pennsylvania Quakers play the Princeton Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7027286/2026/02/06/pennsylvania-vs-princeton-stream-how-to-watch-feb-6/
+
+**The Empty Propaganda of ‘Melania’**\
+`President Trump is a master of creating false realities, and the new “Melania” film reveals that the first lady is too, Maureen Dowd, an opinion columnist, argues on “The Opinions.” She and her fellow columnist Carlos Lozada unpack how the documentary serves as a piece of propaganda.`\
+https://nytimes.com/video/opinion/100000010689876/the-empty-propaganda-of-melania.html
+
+**Vaibhav Suryavanshi, 14, propels India to U19s World Cup win with record-breaking hundred**\
+`The teenager hit a sensational 175 off 80 balls, the highest score in an ICC tournament final, as India beat England by 100 runs in Harare`\
+https://nytimes.com/athletic/7027130/2026/02/06/vaibhav-suryavanshi-u19s-world-cup-record-14/
+
 **Suicide Bombing at Shiite Mosque in Pakistan’s Capital Kills Dozens**\
 `A suicide bombing outside a Shiite mosque during Friday Prayers in Islamabad killed and injured dozens of people, according to local police and hospital officials.`\
 https://nytimes.com/video/world/asia/100000010694769/suicide-bombing-mosque-pakistan-capital.html
@@ -21,16 +33,4 @@ https://nytimes.com/2026/02/06/dining/make-sancocho-this-sunday.html
 **The Culture War Is Over. Bad Bunny Won.**\
 `American pop culture is global pop culture, and vice versa.`\
 https://nytimes.com/2026/02/06/opinion/bad-bunny-super-bowl.html
-
-**Five International Movies to Stream Now**\
-`This month’s picks include a Korean political satire, an Indian thriller set in the world of dog-breeding, a biopic of a Czech athlete-turned-porn star and more.`\
-https://nytimes.com/2026/02/06/movies/international-movies-streaming.html
-
-**LAFC signs Canada's Eustáquio on loan from Porto**\
-`The Canadian veteran is headed to MLS after a few years spent with the Portuguese power`\
-https://nytimes.com/athletic/7016504/2026/02/06/stephen-eustaquio-lafc-porto-transfer-mls-canada/
-
-**U.S. Seeks to Expedite Deportation of 5-Year-Old Liam Conejo Ramos**\
-`Liam was detained last month in Minneapolis during an immigration enforcement operation in which his father was also detained by federal agents.`\
-https://nytimes.com/2026/02/06/us/us-deportation-liam-conejo-ramos-minnesota.html
 
