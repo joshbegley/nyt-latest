@@ -1,3 +1,7 @@
+**Netz, Ortega not in Forest's Europa League squad, Hutchinson, Lucca added**\
+`Hutchinson was surprisingly not included in the squad by Nuno at the beginning of the season. `\
+https://nytimes.com/athletic/7026710/2026/02/06/nottingham-forest-europa-league-squad/
+
 **America’s Game**\
 `We tell you everything you need to know about this year’s Super Bowl.`\
 https://nytimes.com/2026/02/06/briefing/americas-game.html
