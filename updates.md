@@ -1,3 +1,15 @@
+**U.S. and Iranian Officials Meet in Oman for Talks**\
+`Iran’s foreign minister said that talks in Oman with U.S. officials aimed at preventing another conflict in the region were off to a “good start.”`\
+https://nytimes.com/video/world/middleeast/100000010694583/us-iran-talks-oman.html
+
+**A Super Bowl Message From MAHA and Mike Tyson: ‘Processed Food Kills’**\
+`A provocative new ad featuring the boxer makes the case for Americans to “eat real food.”`\
+https://nytimes.com/2026/02/06/well/super-bowl-ad-mike-tyson-maha.html
+
+**Mateta weighing up surgery options with World Cup hopes - Glasner**\
+`Glasner says a call on whether to continue managing the knee injury or seek a longer-term solution will be taken by Mateta.`\
+https://nytimes.com/athletic/7026962/2026/02/06/jean-philippe-mateta-world-cup-injury/
+
 **NHL Power Rankings: Who needs to step up for each team after the Olympic break?**\
 `The Olympics are a chance to rest up, reflect and recharge for the stretch drive. Some guys really need it after the seasons they’ve had.`\
 https://nytimes.com/athletic/7026947/2026/02/06/nhl-power-rankings-underperforming-players/
