@@ -1,3 +1,15 @@
+**Let the Games Begin**\
+`Also, mass market paperbacks are heading toward extinction. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2026/02/06/briefing/let-the-games-begin.html
+
+**Hochul Takes Aim at Trump as She Wins N.Y. Democrats’ Nomination**\
+`Gov. Kathy Hochul seemed eager to portray herself as a leader ready to stand up to the Trump administration, as she vies for re-election in November.`\
+https://nytimes.com/2026/02/06/nyregion/hochul-convention-nomination.html
+
+**Cuban Deportees Who Were Transferred to Guantánamo Sent Back to U.S.**\
+`Dozens of men appear to be caught up in a political standoff between the Trump administration and Cuba.`\
+https://nytimes.com/2026/02/06/us/politics/cuban-deportees-guantanamo.html
+
 **Kliff Kingsbury joining Los Angeles Rams' coaching staff: Source**\
 `Kingsbury spent the past two years as the Washington Commanders' offensive coordinator.`\
 https://nytimes.com/athletic/7028145/2026/02/06/kliff-kingsbury-los-angeles-rams-coaching-staff-hired/

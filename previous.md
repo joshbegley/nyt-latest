@@ -1,3 +1,15 @@
+**Let the Games Begin**\
+`Also, mass market paperbacks are heading toward extinction. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2026/02/06/briefing/let-the-games-begin.html
+
+**Hochul Takes Aim at Trump as She Wins N.Y. Democrats’ Nomination**\
+`Gov. Kathy Hochul seemed eager to portray herself as a leader ready to stand up to the Trump administration, as she vies for re-election in November.`\
+https://nytimes.com/2026/02/06/nyregion/hochul-convention-nomination.html
+
+**Cuban Deportees Who Were Transferred to Guantánamo Sent Back to U.S.**\
+`Dozens of men appear to be caught up in a political standoff between the Trump administration and Cuba.`\
+https://nytimes.com/2026/02/06/us/politics/cuban-deportees-guantanamo.html
+
 **Kliff Kingsbury joining Los Angeles Rams' coaching staff: Source**\
 `Kingsbury spent the past two years as the Washington Commanders' offensive coordinator.`\
 https://nytimes.com/athletic/7028145/2026/02/06/kliff-kingsbury-los-angeles-rams-coaching-staff-hired/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7027580/2026/02/06/harvey-elliott-aston-villa-liver
 **Moderates Pitch Tough-on-Crime Message for Democrats Amid Immigration Talks**\
 `A polling memo circulated among centrist senators urged Democrats to talk tougher on crime, an issue where they lag Republicans, while noting an opportunity for the party to appeal to voters with criticism of ICE.`\
 https://nytimes.com/2026/02/06/us/politics/moderates-pitch-tough-on-crime-message-for-democrats-amid-immigration-talks.html
-
-**Amazon’s ‘Top Choice Is the Worst Choice’**\
-`What does Amazon’s top choice product designation really mean? The authors Cory Doctorow and Tim Wu describe how the ranking is not based on quality but on the extraction of our attention and money.`\
-https://nytimes.com/video/opinion/100000010591096/amazons-top-choice-is-the-worst-choice.html
-
-**The Internet Feels Miserable ‘By Design’**\
-`Slop, rage bait, brain rot. The authors Cory Doctorow and Tim Wu explain how today’s internet keeps us hooked and makes us angry, and what we can do about it.`\
-https://nytimes.com/video/opinion/100000010591092/the-internet-feels-miserable-by-design.html
-
-**The Lakers are lining up for a Giannis chase, but the real plan must be bigger**\
-`The Lakers will have three first-round picks at their disposal on draft night. They can and should pursue Giannis Antetokounmpo.`\
-https://nytimes.com/athletic/7027963/2026/02/06/lakers-giannis-antetokounmpo-trade-deadline/
 
