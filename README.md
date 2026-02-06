@@ -1,3 +1,7 @@
+**Wasteful, disjointed, beatable: What's to blame for Chelsea's back-to-back defeats?**\
+`Is the serial WSL champions' formation to blame for their recent dip in form? `\
+https://nytimes.com/athletic/7020753/2026/02/06/chelsea-women-sonia-bompastor-tactics/
+
 **The New York Times in Print for Friday, Feb. 6, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/06/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7018434/2026/02/06/crystal-palace-strand-larsen-wol
 **Can Lorenzo Lucca be the centre-forward Nottingham Forest need?**\
 `The on-loan forward, affectionately nicknamed 'Pizza Crouch', is looking to reboot his career under the guidance of Sean Dyche `\
 https://nytimes.com/athletic/7023828/2026/02/06/lorenzo-lucca-nottingham-forest-napoli/
-
-**Spurs allow shots from the edge of the box, but do not take many - it's costing them**\
-`Tottenham have conceded eight goals from outside their penalty area this season - the second-worst record in the Premier League`\
-https://nytimes.com/athletic/7024172/2026/02/06/spurs-shots-edge-of-box-data/
 
