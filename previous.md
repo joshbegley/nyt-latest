@@ -1,3 +1,11 @@
+**Timothy Busfield Is Indicted on Charges of Child Sexual Abuse**\
+`A grand jury in New Mexico heard allegations that Mr. Busfield, the actor and director, had sexual contact with a child actor. He has denied the charges.`\
+https://nytimes.com/2026/02/06/arts/television/timothy-busfield-indicted-child-sexual-abuse.html
+
+**Justice Dept. Pursues Many Officer Assault Cases in Minnesota as Misdemeanors**\
+`It is a pattern that has played out in other cities where the administration has conducted immigration surges and taken a muscular stance against those accused of impeding federal officers.`\
+https://nytimes.com/2026/02/06/us/justice-dept-minnesota-immigration-crackdown-misdemeanors.html
+
 **Melania Is the ‘Only Immigrant Trump Likes’**\
 `“Here is Melania, the only immigrant Trump likes, in her satin-lined cage. It’s an incredibly unpleasant juxtaposition,” the columnist Maureen Dowd says about the film “Melania” on “The Opinions.” The movie debuted as ICE raids rippled through places like Minneapolis.`\
 https://nytimes.com/video/opinion/100000010689870/melania-is-the-only-immigrant-trump-likes.html
@@ -22,15 +30,7 @@ https://nytimes.com/athletic/7027207/2026/02/06/buck-martinez-blue-jays-retireme
 `Here's what I'm hearing about the Blackhawks' plans to add to their cupboard with early-round prospects in 2026.`\
 https://nytimes.com/athletic/7027074/2026/02/06/blackhawks-2026-nhl-draft-projections/
 
-**Jim Schwartz resigns as Browns defensive coordinator: Sources**\
+**Jim Schwartz resigns as Browns defensive coordinator**\
 `Schwartz, who spent the past three seasons as Cleveland's defensive coordinator, was a finalist for the team's head-coaching job. `\
 https://nytimes.com/athletic/7015013/2026/02/06/jim-schwartz-resign-browns/
-
-**Sonny Jurgensen, Hall of Fame quarterback and beloved broadcaster, dies at 91**\
-`Jurgensen won an NFL championship with the Eagles and is second in Washington franchise history in passing yards and passing touchdowns.`\
-https://nytimes.com/athletic/7027230/2026/02/06/sonny-jurgensen-death-nfl-quarterback-broadcaster/
-
-**How the Lightning reopened their Cup window and re-emerged as the NHL's 'modern-day dynasty'**\
-`After beating the back-to-back champs in another bloody, brutal Battle of Florida on Thursday, Tampa Bay hits the break on a 19-1-1 tear.`\
-https://nytimes.com/athletic/7025153/2026/02/06/lightning-nhl-dynasty-cup-window/
 

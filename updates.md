@@ -1,3 +1,15 @@
+**Timothy Busfield Is Indicted on Charges of Child Sexual Abuse**\
+`A grand jury in New Mexico heard allegations that Mr. Busfield, the actor and director, had sexual contact with a child actor. He has denied the charges.`\
+https://nytimes.com/2026/02/06/arts/television/timothy-busfield-indicted-child-sexual-abuse.html
+
+**Justice Dept. Pursues Many Officer Assault Cases in Minnesota as Misdemeanors**\
+`It is a pattern that has played out in other cities where the administration has conducted immigration surges and taken a muscular stance against those accused of impeding federal officers.`\
+https://nytimes.com/2026/02/06/us/justice-dept-minnesota-immigration-crackdown-misdemeanors.html
+
+**Jim Schwartz resigns as Browns defensive coordinator**\
+`Schwartz, who spent the past three seasons as Cleveland's defensive coordinator, was a finalist for the team's head-coaching job. `\
+https://nytimes.com/athletic/7015013/2026/02/06/jim-schwartz-resign-browns/
+
 **Melania Is the ‘Only Immigrant Trump Likes’**\
 `“Here is Melania, the only immigrant Trump likes, in her satin-lined cage. It’s an incredibly unpleasant juxtaposition,” the columnist Maureen Dowd says about the film “Melania” on “The Opinions.” The movie debuted as ICE raids rippled through places like Minneapolis.`\
 https://nytimes.com/video/opinion/100000010689870/melania-is-the-only-immigrant-trump-likes.html
