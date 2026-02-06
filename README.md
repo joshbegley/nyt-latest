@@ -1,3 +1,7 @@
+**Saalumarada Thimmakka Dies; Planted and Nurtured Thousands of Trees**\
+`Believed to be 113, she spent decades building an environmental legacy in India, inspired by her grief at being unable to conceive children.`\
+https://nytimes.com/2026/02/06/world/asia/saalumarada-thimmakka-dead.html
+
 **Celtics GM Brad Stevens: Jayson Tatum's potential return had 'little impact' on deadline deals**\
 `"When he's ready, he's ready," GM Brad Stevens says of Tatum's possible return. `\
 https://nytimes.com/athletic/7027847/2026/02/06/brad-stevens-jayson-tatum-return-trade-deadline/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/06/world/europe/2026-olympics-one-athlete-countries-
 **How to watch Grizzlies vs. Trail Blazers: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Portland Trail Blazers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7027961/2026/02/06/grizzlies-vs-trail-blazers-stream-how-to-watch-feb-6/
-
-**Icy Conditions Have Put New York’s Citywide Ferry Service, Well, on Ice**\
-`Ice has clogged the East River, suspending NYC Ferry service for thousands of commuters. More cold and snow is expected this weekend.`\
-https://nytimes.com/2026/02/06/nyregion/nyc-ferry-service-suspension-cold-weather.html
 

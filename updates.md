@@ -1,3 +1,11 @@
+**Celtics GM Brad Stevens: Jayson Tatum's potential return had 'little impact' on deadline deals**\
+`"When he's ready, he's ready," GM Brad Stevens says of Tatum's possible return. `\
+https://nytimes.com/athletic/7027847/2026/02/06/brad-stevens-jayson-tatum-return-trade-deadline/
+
+**A dozen U.S. figure skaters marched in the ceremony, some fresh off competing.**\
+`By Juliet Macur`\
+https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/a-dozen-us-figure-skaters-marched-in-the-ceremony-some-fresh-off-competing
+
 **How Nintendo Became the Most Fun Video Game Company**\
 `Video games are big business, and the company behind Mario, Zelda and Pokémon may be the most important player, says the author of a new corporate history.`\
 https://nytimes.com/2026/02/06/books/review/podcast-keza-macdonald-nintendo.html
