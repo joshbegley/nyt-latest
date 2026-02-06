@@ -1,3 +1,11 @@
+**Nancy Guthrie’s Disappearance Rekindles Kidnapping Fears**\
+`High-profile abductions, like those of Patty Hearst and J. Paul Getty III, have captured the nation’s attention, but experts say kidnappings by strangers are exceedingly rare.`\
+https://nytimes.com/2026/02/06/us/famous-kidnapping-cases-abduction-numbers.html
+
+**The ghost of Giorgio Armani hovers over the Games.**\
+`By Vanessa Friedman`\
+https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/giorgio-armani-olympics-milan
+
 **China Reverses Death Penalty for Canadian in Drug-Smuggling Case**\
 `The ruling by China’s highest court followed a recent meeting between China and Canada’s top leaders led to a thaw in the two countries’ relations.`\
 https://nytimes.com/2026/02/06/world/asia/china-canada-death-sentence-overturned.html
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/7027746/2026/02/06/gavin-mckenna-felony-assault-cha
 `For a moment, Mike Conley's time in Minnesota appeared done. Thanks to a CBA loophole, the 38-year-old will return to the Wolves. `\
 https://nytimes.com/athletic/7027598/2026/02/06/mike-conley-minnesota-timberwolves-trade-return-cba/
 
-**Scattered protests occurred in Milan before the ceremonies began.**\
+**Scattered protests occur in Milan before the ceremonies begin.**\
 `By Ashley Ahn and Tariq Panja`\
 https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/milan-olympics-protests-immigration-agents-housing
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/06/world/europe/milan-winter-olympics-opening-ceremo
 **Prime Tire: Lessons to learn from Toto Wolff's pessimism**\
 `Welcome to Prime Tire, The Athletic’s F1 newsletter.`\
 https://nytimes.com/athletic/7027785/2026/02/06/toto-wolff-f1-super-bowl-prime-tire/
-
-**Scoop City: MVP Stafford's not done, other award notes**\
-`Recapping last night's NFL awards, plus final Super Bowl prep: matchups, recipes and predictions`\
-https://nytimes.com/athletic/7027771/2026/02/06/nfl-awards-stafford-mvp-2025-super-bowl/
-
-**Mariah Carey Performs at Winter Games Opening Ceremony**\
-`The singer-songwriter “perfectly embodies the emotional spirit of the Games,” Olympic organizers said.`\
-https://nytimes.com/2026/02/06/world/europe/mariah-carey-performance-winter-olympics-opening-ceremony.html
 

@@ -1,3 +1,15 @@
+**Nancy Guthrie’s Disappearance Rekindles Kidnapping Fears**\
+`High-profile abductions, like those of Patty Hearst and J. Paul Getty III, have captured the nation’s attention, but experts say kidnappings by strangers are exceedingly rare.`\
+https://nytimes.com/2026/02/06/us/famous-kidnapping-cases-abduction-numbers.html
+
+**The ghost of Giorgio Armani hovers over the Games.**\
+`By Vanessa Friedman`\
+https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/giorgio-armani-olympics-milan
+
+**Scattered protests occur in Milan before the ceremonies begin.**\
+`By Ashley Ahn and Tariq Panja`\
+https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/milan-olympics-protests-immigration-agents-housing
+
 **China Reverses Death Penalty for Canadian in Drug-Smuggling Case**\
 `The ruling by China’s highest court followed a recent meeting between China and Canada’s top leaders led to a thaw in the two countries’ relations.`\
 https://nytimes.com/2026/02/06/world/asia/china-canada-death-sentence-overturned.html
