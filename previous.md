@@ -1,3 +1,19 @@
+**Outgoing Leader of N.Y.C. Antisemitism Office Criticizes His Replacement**\
+`The criticism from the former head of the Office to Combat Antisemitism, Moshe Davis, reflects the social and political divide among Jewish New Yorkers over Mayor Zohran Mamdani.`\
+https://nytimes.com/2026/02/06/nyregion/antisemitism-office-replacement-leader-criticism.html
+
+**Halle Berry and Van Hunt’s Engagement Comes With a Nod to Vintage Elegance**\
+`The actress and producer confirmed her engagement on “The Tonight Show Starring Jimmy Fallon,” unveiling an heirloom-style ring.`\
+https://nytimes.com/2026/02/06/style/halle-berry-van-hunt-engaged.html
+
+**Stocks Rebound After Volatile Week as Dow Hits Record High**\
+`The Dow Jones industrial average surpassed 50,000 points for the first time, as old line stocks come back into vogue.`\
+https://nytimes.com/2026/02/06/business/stock-market-rebound-dow-50000.html
+
+**E.P.A. Re-approves Controversial Herbicide That Drifts to Nearby Land**\
+`The chemical, dicamba, is used to control weeds on genetically engineered crops. Courts previously had restricted its use.`\
+https://nytimes.com/2026/02/06/climate/epa-dicamba-drifting-herbicide-approval.html
+
 **Wes Moore on 2028, His Party’s Problems and His Favorite Crab Cake**\
 `The Maryland governor discussed Trump, the country’s divisions and his workout routine.`\
 https://nytimes.com/2026/02/06/us/politics/wes-moore-maryland.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/06/us/politics/cuban-deportees-guantanamo.html
 **Kliff Kingsbury joining Los Angeles Rams' coaching staff: Source**\
 `Kingsbury spent the past two years as the Washington Commanders' offensive coordinator.`\
 https://nytimes.com/athletic/7028145/2026/02/06/kliff-kingsbury-los-angeles-rams-coaching-staff-hired/
-
-**JD Vance Booed at Olympic Opening Ceremony in Milan**\
-`Before the event, protesters marched in Milan in opposition to U.S. Immigration and Customs Enforcement, whose personnel are in Italy to advise local officials in securing the Winter Games.`\
-https://nytimes.com/2026/02/06/world/europe/jd-vance-olympics-opening-ceremony.html
-
-**In the Grip of Gangs, Haiti Faces Another Crisis: A Leadership Vacuum**\
-`The tenure of a presidential council that has been running Haiti expires on Saturday. It’s unclear what will come next.`\
-https://nytimes.com/2026/02/06/world/americas/haiti-crisis-leadership-gangs.html
-
-**Milan Cortina Olympics open with a ceremonial attempt at harmony**\
-`MILAN — Four locations, one Olympic heartbeat.`\
-https://nytimes.com/athletic/7028050/2026/02/06/milan-cortina-olympics-opening-ceremony/
-
-**Record-Breaking 244-Pound Atlantic Halibut Caught in Quebec**\
-`A huge Atlantic halibut caught in Quebec weighed in at a record-breaking 244 pounds.`\
-https://nytimes.com/video/world/canada/100000010695717/record-atlantic-halibut-fishing-quebec.html
 
