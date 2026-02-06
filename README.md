@@ -1,3 +1,11 @@
+**Celtics GM Brad Stevens: Jayson Tatum's potential return had 'little impact' on deadline deals**\
+`"When he's ready, he's ready," GM Brad Stevens says of Tatum's possible return. `\
+https://nytimes.com/athletic/7027847/2026/02/06/brad-stevens-jayson-tatum-return-trade-deadline/
+
+**A dozen U.S. figure skaters marched in the ceremony, some fresh off competing.**\
+`By Juliet Macur`\
+https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/a-dozen-us-figure-skaters-marched-in-the-ceremony-some-fresh-off-competing
+
 **How Nintendo Became the Most Fun Video Game Company**\
 `Video games are big business, and the company behind Mario, Zelda and Pokémon may be the most important player, says the author of a new corporate history.`\
 https://nytimes.com/2026/02/06/books/review/podcast-keza-macdonald-nintendo.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7027961/2026/02/06/grizzlies-vs-trail-blazers-strea
 **Icy Conditions Have Put New York’s Citywide Ferry Service, Well, on Ice**\
 `Ice has clogged the East River, suspending NYC Ferry service for thousands of commuters. More cold and snow is expected this weekend.`\
 https://nytimes.com/2026/02/06/nyregion/nyc-ferry-service-suspension-cold-weather.html
-
-**A $50,000 Watch and Friendly Notes: One College Leader’s Ties to Epstein**\
-`Bard College’s president, Leon Botstein, said his school needed cash. But a rare watch and a Caribbean visit show how his relationship with Jeffrey Epstein sometimes veered into the personal.`\
-https://nytimes.com/2026/02/06/us/leon-botstein-bard-college-epstein.html
-
-**Haiti Just Won the Fashion Game at the Opening Ceremonies**\
-`The athletes from the Caribbean nation wanted their appearances to honor their country’s heritage. The result is looks that stand out.`\
-https://nytimes.com/2026/02/06/world/europe/haiti-olympics-fashion.html
 
