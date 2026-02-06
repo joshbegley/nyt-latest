@@ -1,3 +1,11 @@
+**Latest U.S. Boat Strike Kills 2 in Pacific**\
+`The operation was authorized by the Marine general who took command of military operations in Latin America and the Caribbean earlier in the day.`\
+https://nytimes.com/2026/02/06/us/politics/us-boat-strike-pacific-deaths.html
+
+**Eight Eagles Thoughts: Jeff Stoutland's departure, coaching staff changes, Super Bowl connections**\
+`Stoutland leaving the organization is a big loss for the Eagles.`\
+https://nytimes.com/athletic/7026735/2026/02/06/eagles-coaches-jeff-stoutland-super-bowl/
+
 **Blue Jackets at the break: What's changed under Bowness, and how they can still improve**\
 `The Blue Jackets are 10-1-0 since they made a coaching change from Dean Evason to Rick Bowness.`\
 https://nytimes.com/athletic/7024944/2026/02/06/blue-jackets-bowness-streak-break/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/06/world/middleeast/netanyahu-blame-oct-7.html
 **Suicide Bombing Kills 31 at Mosque in Pakistan’s Capital**\
 `The bombing, during Friday Prayers, was the second major attack in recent months in Islamabad, where large-scale violence had been relatively rare.`\
 https://nytimes.com/2026/02/06/world/asia/pakistan-mosque-attack-islamabad.html
-
-**Edwards: Agbadou nearing Besiktas move, Arias close to Palmeiras transfer**\
-`Agbadou joined Wolves in January 2025 from Reims while Arias arrived in the summer from Fluminense.`\
-https://nytimes.com/athletic/7026732/2026/02/06/wolves-emmanuel-agbadou-besiktas-jhon-arias-palmeiras/
-
-**Stellantis’s Shift Away From Electric Cars Will Cost It $26 Billion**\
-`The company, which owns Chrysler, Fiat, Jeep and Peugeot, is changing its strategy to gasoline and hybrid vehicles in an effort to revive weak sales.`\
-https://nytimes.com/2026/02/06/business/stellantis-writedown-electric-vehicles.html
 
