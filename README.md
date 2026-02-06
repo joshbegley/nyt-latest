@@ -1,3 +1,7 @@
+**Dodgers reshuffle back end of roster with series of moves: Takeaways**\
+`However inconsequential the moves may seem at the moment, they are worth keeping tabs on.`\
+https://nytimes.com/athletic/7027976/2026/02/06/los-angeles-dodgers-roster-reshuffle-takeaways/
+
 **Saalumarada Thimmakka Dies; Planted and Nurtured Thousands of Trees**\
 `Believed to be 113, she spent decades building an environmental legacy in India, inspired by her grief at being unable to conceive children.`\
 https://nytimes.com/2026/02/06/world/asia/saalumarada-thimmakka-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7027814/2026/02/06/charles-woodson-browns-stake-liq
 **Flying Solo: Some Olympic Athletes Are Their Country’s Whole Team**\
 `At the Winter Games, athletes from 15 different nations are the only competitor from their countries.`\
 https://nytimes.com/2026/02/06/world/europe/2026-olympics-one-athlete-countries-malaysia.html
-
-**How to watch Grizzlies vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7027961/2026/02/06/grizzlies-vs-trail-blazers-stream-how-to-watch-feb-6/
 
