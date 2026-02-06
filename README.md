@@ -1,3 +1,7 @@
+**Virginia Democrats Propose New Congressional Maps Ahead of Midterms**\
+`As they appeal a ruling blocking their redistricting efforts, the state’s Democrats proposed redrawing districts in a way that would strongly favor them.`\
+https://nytimes.com/2026/02/05/us/politics/virginia-redistricting-maps-midterms.html
+
 **For Giannis, Bucks stick to Plan A(ntetokounmpo), but it’s about to get complicated**\
 `When so many believed Antetokounmpo might finally be moved, the Bucks and their fans got to keep the Giannis dream alive.`\
 https://nytimes.com/athletic/7025635/2026/02/05/for-giannis-bucks-stick-to-plan-antetokounmpo-but-its-about-to-get-complicated-again/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7025006/2026/02/05/giannis-ja-morant-nba-trade-grad
 **C.I.A. World Factbook Ends Publication After 6 Decades**\
 `The Factbook, a version of which dates to 1962, provided facts, figures, maps and more to generations of economists, professors, journalists and others.`\
 https://nytimes.com/2026/02/05/us/world-factbook-cia.html
-
-**Trump Calls for New Treaty as Nuclear Arms Control Era Ends**\
-`Also, Trump expanded his power to fire federal workers. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2026/02/05/briefing/us-russia-nuclear-treaty-federal-workers.html
 

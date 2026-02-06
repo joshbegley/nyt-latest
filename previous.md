@@ -1,3 +1,7 @@
+**For Giannis, Bucks stick to Plan A(ntetokounmpo), but it’s about to get complicated**\
+`When so many believed Antetokounmpo might finally be moved, the Bucks and their fans got to keep the Giannis dream alive.`\
+https://nytimes.com/athletic/7025635/2026/02/05/for-giannis-bucks-stick-to-plan-antetokounmpo-but-its-about-to-get-complicated-again/
+
 **Failure to Alert Judge to Press Law for Reporter Search Draws Ethical Scrutiny**\
 `The Justice Department may have violated a candor rule by not disclosing a 1980 law when seeking a warrant for a Washington Post reporter’s home.`\
 https://nytimes.com/2026/02/05/us/washington-post-reporter-home-search.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/05/us/world-factbook-cia.html
 **Trump Calls for New Treaty as Nuclear Arms Control Era Ends**\
 `Also, Trump expanded his power to fire federal workers. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2026/02/05/briefing/us-russia-nuclear-treaty-federal-workers.html
-
-**SEC commissioner Greg Sankey sides with NCAA against Charles Bediako**\
-`Sankey asked the court to uphold the NCAA’s eligibility rules and deny Bediako a preliminary injunction, advocating against Alabama.`\
-https://nytimes.com/athletic/7025472/2026/02/05/greg-sankey-sec-commissioner-charles-bediako-alabama/
 
