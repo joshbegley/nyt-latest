@@ -1,3 +1,7 @@
+**Texas Surgeon Faces Federal Charges That He Falsified Patient Records**\
+`Prosecutors said the doctor, John Stevenson Bynon Jr., had cut five patients off from liver transplant eligibility for months without their knowledge. He has pleaded not guilty.`\
+https://nytimes.com/2026/02/05/us/houston-surgeon-records-transplants.html
+
 **Duke's season turnaround is official after taking down No. 6 Louisville**\
 `Duke's defense stifled the Cardinals in Thursday's victory.`\
 https://nytimes.com/athletic/7026098/2026/02/05/dukes-season-turnaround-is-official-after-taking-down-no-6-louisville/
