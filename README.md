@@ -1,3 +1,11 @@
+**Restaurant Review: Mister Jiu’s**\
+`Mister Jiu’s, Brandon Jew’s flagship San Francisco restaurant, brings a distinctly Californian point of view to his Chinese American fine dining.`\
+https://nytimes.com/video/dining/100000010689574/mister-jius-san-francisco-restaurant-review.html
+
+**Naturally, Italy’s Song for the Olympics Is About Love**\
+`The 1977 classic “Ti Amo” was so popular that it was recorded in several languages. Now, it takes a spin as the official song for the 2026 Winter Olympics.`\
+https://nytimes.com/2026/02/06/world/europe/italy-song-olympics-ti-amo.html
+
 **Restaurant Review: Maze**\
 `In the first starred New York Times review from the Hawaiian islands, our chief restaurant critic Ligaya Mishan finds intriguing twists on a cuisine that’s already fluid with Asian influences.`\
 https://nytimes.com/video/admin/100000010689613/maze-honolulu-restaurant-review.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/02/06/us/politics/trump-schumer-penn-station-dulles-air
 **Harvard Proposes Capping A’s to Curb Grade Inflation**\
 `A recent report found that a majority of grades given out at Harvard were A’s. Professors will vote on a proposal to limit the number to around 20 percent.`\
 https://nytimes.com/2026/02/06/us/harvard-grade-inflation.html
-
-**Here’s the latest.**\
-`By Victor Mather`\
-https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony/heres-the-latest
-
-**Live Updates: Opening Ceremonies Are Set to Begin at Winter Olympics in Italy**\
-`For the first time, the ceremonial start of the Games will be held in four different locations. Mariah Carey will help kick off the festivities in Milan.`\
-https://nytimes.com/live/2026/02/06/world/milan-winter-olympics-opening-ceremony
 
