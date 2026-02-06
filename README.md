@@ -1,3 +1,7 @@
+**Iran Is at Work on Missile and Nuclear Sites, Satellite Images Show**\
+`Repairs at key missile sites began soon after they were hit by Israeli and U.S. strikes last year, but work at Iran’s nuclear facilities has been slower.`\
+https://nytimes.com/2026/02/06/world/middleeast/iran-missile-nuclear-repairs.html
+
 **Women's Olympic downhill: Why Tofane, Cortina's famed track, is 'the most perfect'**\
 `After several Olympics on unfamiliar slopes, Cortina's Olympia delle Tofane is a popular host for women's Alpine's top skiers.`\
 https://nytimes.com/athletic/7024755/2026/02/06/winter-olympics-womens-downhill-tofane-track-cortina/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7022608/2026/02/06/josh-mcdaniels-patriots-super-bo
 **These aren't quite the 2001 Patriots, but you'd be forgiven for confusing the two**\
 `A surprise Patriots team led by a poised second-year QB is now in the Super Bowl after surviving a playoff snow game. Sound familiar?`\
 https://nytimes.com/athletic/7025498/2026/02/06/super-bowl-patriots-2001-drake-maye-tom-brady/
-
-**For Marshawn Lynch, that Super Bowl play was about far more than 1 yard**\
-`Perhaps the most infamous play in the Super Bowl's six-decade history left aftershocks that are still being felt.`\
-https://nytimes.com/athletic/7026143/2026/02/06/marshawn-lynch-super-bowl-playcall-seahawks-patriots/
 
