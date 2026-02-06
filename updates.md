@@ -1,3 +1,7 @@
+**How did The Athletic's CFB staff do in our annual Heisman draft? One word: Yikes**\
+`It wasn't our finest performance in our 2025 Heisman Trophy fantasy draft. Which reporter came out on top? `\
+https://nytimes.com/athletic/7022134/2026/02/06/heisman-predictions-draft-the-athletic-2025-results/
+
 **Lowetide: Is Oilers forward Jack Roslovic worthy of a long-term contract?**\
 `Roslovic has been highly productive for the Oilers this season as a skill winger and a third-line centre.`\
 https://nytimes.com/athletic/7022530/2026/02/06/edmonton-oilers-jack-roslovic-stats-contract-projection/

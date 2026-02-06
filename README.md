@@ -1,3 +1,7 @@
+**As Olympics Open, Pope Leo Warns Against Using Sports for ‘Propaganda or National Supremacy’**\
+`The Milan-Cortina Games are overlapping with a moment of geopolitical turbulence, as conflicts rage, national leaders issue threats and alliances are strained.`\
+https://nytimes.com/2026/02/06/world/asia/pope-leo-milan-olympics-letter.html
+
 **How did The Athletic's CFB staff do in our annual Heisman draft? One word: Yikes**\
 `It wasn't our finest performance in our 2025 Heisman Trophy fantasy draft. Which reporter came out on top? `\
 https://nytimes.com/athletic/7022134/2026/02/06/heisman-predictions-draft-the-athletic-2025-results/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7026699/2026/02/06/winter-olympics-curling-us-snoop
 **Lindsey Vonn, with torn ACL, completes training run ahead of Olympic downhill**\
 `Despite a torn ACL, Vonn completed the training run Friday with no apparent issues. She's aiming to start the downhill on Sunday.`\
 https://nytimes.com/athletic/7026802/2026/02/06/lindsey-vonn-olympics-downhill-torn-acl-training/
-
-**Fantasy Premier League live Q&A: Gameweek 25 advice from Ben Dinnery**\
-`Ben Dinnery is on hand to offer his expert advice on the players to target, who to avoid, and the fitness doubts you need to be aware of`\
-https://nytimes.com/athletic/7026676/2026/02/06/fantasy-premier-league-live-qa-gameweek-25-advice-from-ben-dinnery/
 
