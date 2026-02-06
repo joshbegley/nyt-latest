@@ -1,3 +1,15 @@
+**Howe, Newcastle's 'full faith in him', and the question of longevity**\
+`The club's CEO says there is 'aligment' over the club's long-term plan and Newcastle are a rare example of stability, but for how long?`\
+https://nytimes.com/athletic/7023789/2026/02/06/eddie-howe-newcastle-longevity/
+
+**Treats, transfers and Bowen bond: How my cat became an FPL genius**\
+`There are nearly 13 million people playing Fantasy Premier League this season. Yet Victor the cat finds himself ranked inside the top 250`\
+https://nytimes.com/athletic/7017634/2026/02/06/fantasy-premier-league-fpl-cat-victor/
+
+**The Prospects: Luka Lynch, Aston Villa**\
+`Our weekly column on the prospects emerging through Premier League academies focuses on a young talent who has switched flanks at Villa`\
+https://nytimes.com/athletic/7021195/2026/02/06/luka-lynch-aston-villa-prospects/
+
 **She’s Upending Japanese Politics With Two Words: ‘I’m Pregnant’**\
 `Hikaru Fujita, who’s running in Sunday’s parliamentary election, is a standout in a country where expectant mothers rarely enter national politics.`\
 https://nytimes.com/2026/02/06/world/asia/japan-election-pregnant-candidate.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/06/style/elise-shanholtz-daniel-schwaycer-wedding.ht
 **Seeking a Man Who Doesn’t Throw Tantrums**\
 `I had set my bar for relationships so low that any man who didn’t yell easily cleared it.`\
 https://nytimes.com/2026/02/06/style/modern-love-seeking-a-man-who-doesnt-throw-tantrums.html
-
-**Heated? Yes. Rivalry? No.**\
-`Brock McGillis, a former professional hockey player who came out as gay in 2016, married Matthew Ward after a decade of ups and downs.`\
-https://nytimes.com/2026/02/06/style/brock-mcgillis-matthew-ward-hockey-player-wedding.html
-
-**Lost in the Woods, They Found Their Way Into Each Other’s Hearts**\
-`Nina Russell and Mainak Ghosh met at a literary club at Yale. They wouldn’t become a couple until more than a decade later.`\
-https://nytimes.com/2026/02/06/style/nina-russell-mainak-ghosh-wedding.html
-
-**They Were Always On the Right Path**\
-`Dr. Peter Anderson, who had hiked 1,000 miles of the Appalachian Trail, helped Olivia Bergen prepare for her 2,200-mile solo trek.`\
-https://nytimes.com/2026/02/06/style/they-were-always-on-the-right-path.html
 
