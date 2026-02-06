@@ -1,3 +1,23 @@
+**How to watch Pacers vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7027937/2026/02/06/pacers-vs-bucks-stream-how-to-watch-feb-6/
+
+**How to watch Heat vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7027935/2026/02/06/heat-vs-celtics-stream-how-to-watch-feb-6/
+
+**A Trump Deal With Iran May Hinge on the Number Zero**\
+`Can the two sides get past Iran’s claim that it has a “right” to enrich uranium?`\
+https://nytimes.com/2026/02/06/us/politics/trump-iran-nuclear.html
+
+**Can You Use the Ocean as a Bathroom?**\
+`A ruling on a timeless dispute.`\
+https://nytimes.com/interactive/2026/02/06/magazine/08mag-hodgmanquiz.html
+
+**Tom Izzo has ‘come to Jesus’ with Jeremy Fears after series of scrutinized plays**\
+`Fears is more important than ever after the Spartans lost backup guard Divine Ugochukwu to a season-ending injury. `\
+https://nytimes.com/athletic/7027869/2026/02/06/jeremy-fears-tom-izzo-kick-trip/
+
 **How to watch UConn vs. St. John's men's basketball: Time, TV, streaming**\
 `Find out how to watch the UConn Huskies play the St. John's Red Storm, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7027925/2026/02/06/uconn-vs-st-john-s-stream-how-to-watch-feb-6/
