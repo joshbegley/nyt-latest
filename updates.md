@@ -1,3 +1,7 @@
+**Record-Breaking 244-Pound Atlantic Halibut Caught in Quebec**\
+`A huge Atlantic halibut caught in Quebec weighed in at a record-breaking 244 pounds.`\
+https://nytimes.com/video/world/canada/100000010695717/record-atlantic-halibut-fishing-quebec.html
+
 **Villa's Unai Emery asks Liverpool to change Harvey Elliott loan terms**\
 `The manager said the situation was "damaging" for the 22-year-old, who has played only five times this season.`\
 https://nytimes.com/athletic/7027580/2026/02/06/harvey-elliott-aston-villa-liverpool-loan-change-emery/
