@@ -1,3 +1,7 @@
+**Odegaard 'a matter of days' and Saka to make Arsenal return 'soon' - Arteta**\
+`Saka pulled out of the warm-up before the Leeds victory while Odegaard missed Tuesday's win over Chelsea with a muscle issue.`\
+https://nytimes.com/athletic/7027050/2026/02/06/arsenal-news-odegaard-timber-saka-injury-sunderland/
+
 **Netanyahu Suggests Other Officials to Blame for Oct. 7 Failings**\
 `In a document released on Thursday night, the Israeli leader sought to distance himself from responsibility for intelligence and security failings before the Hamas-led attack.`\
 https://nytimes.com/2026/02/06/world/middleeast/netanyahu-blame-oct-7.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7026657/2026/02/06/chicago-bulls-rebuild-plan-artur
 **As Olympics Open, Pope Leo Warns Against Using Sports for ‘Propaganda or National Supremacy’**\
 `The Milan-Cortina Games are overlapping with a moment of geopolitical turbulence as conflicts rage, national leaders issue threats and alliances are strained.`\
 https://nytimes.com/2026/02/06/world/europe/pope-leo-milan-olympics-letter.html
-
-**How did The Athletic's CFB staff do in our annual Heisman draft? One word: Yikes**\
-`It wasn't our finest performance in our 2025 Heisman Trophy fantasy draft. Which reporter came out on top? `\
-https://nytimes.com/athletic/7022134/2026/02/06/heisman-predictions-draft-the-athletic-2025-results/
 
