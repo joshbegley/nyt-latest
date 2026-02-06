@@ -1,40 +1,40 @@
-**Tel & Gallagher added to Spurs' European squad, Bissouma & Kulusevski remain out**\
-`Radu Dragusin was also named in the squad but James Maddison, Yves Bissouma, Dejan Kulusevski, Ben Davies and Rodrigo Bentancur miss out.`\
-https://nytimes.com/athletic/7023890/2026/02/06/tel-and-gallagher-added-to-tottenhams-champions-league-squad-bissouma-and-kulusevski-remain-out/
+**Gordon set to miss Brentford game, Guimaraes 'closer' to return**\
+`Gordon was forced off in the first half of the Carabao Cup semi-final defeat to Man City, while Guimaraes has missed his side's last three.`\
+https://nytimes.com/athletic/7026573/2026/02/06/gordon-guimaraes-newcastle-injury-latest/
 
-**What to Expect at the Olympic Opening Ceremonies, From the Man Behind Them**\
-`Marco Balich has helped design grand spectacles at more than half a dozen Olympics. On Friday, he’ll do it again, on home turf in Italy.`\
-https://nytimes.com/2026/02/06/world/europe/milan-olympic-opening-ceremony-director-balich.html
+**Norway Rallies Behind Royals, Despite Dismay Over Epstein Links**\
+`The future queen’s links to Jeffrey Epstein, and her son’s rape trial, have disappointed many Norwegians. But there is still widespread support for the monarchy.`\
+https://nytimes.com/2026/02/06/world/europe/epstein-revelations-norway-royal-support.html
 
-**The Olympics opening ceremonies are at 4 sites. Here's why, and how to watch**\
-`With the largest geographic footprint in Olympic history at roughly 10,000 square miles, the 2026 Games had to get creative.`\
-https://nytimes.com/athletic/7025934/2026/02/06/milan-cortina-olympics-opening-ceremonies-how-to-watch/
+**Mailbag: How will Falcons' new regime approach Michael Penix Jr. and the QB questions?**\
+`In the latest Falcons mailbag, we try to figure out how Matt Ryan and the new people in charge really feel about Penix Jr.`\
+https://nytimes.com/athletic/7024396/2026/02/06/falcons-mailbag-michael-penix-qb-kevin-stefanski/
 
-**Russian General Is Shot in Moscow**\
-`The attack bore the hallmark of several assassination attempts on top military officers in the Russian capital.`\
-https://nytimes.com/2026/02/06/world/europe/russian-general-shot-moscow-alekseyev.html
+**The New York Times News Quiz, Feb. 6, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2026/02/06/briefing/quiz-olympics-epstein-bad-bunny.html
 
-**Facing Threats From Both America and China, Toyota Changes C.E.O.s**\
-`The world’s biggest automaker has navigated the industry’s turbulent E.V. transition, but is looking to new leadership to manage complex geopolitical challenges.`\
-https://nytimes.com/2026/02/06/business/toyota-ceo-kenta-kon.html
+**An Overlooked Prescription for Happiness**\
+`This “fifth pillar of health” is often dismissed as entertainment.`\
+https://nytimes.com/2026/02/06/well/art-craft-physical-mental-health.html
 
-**Ronaldo told 'nobody makes decisions beyond their club' by Saudi league**\
-`There are doubts over whether he will play against Al Ittihad on Friday after missing out on the win over Al Riyadh on Monday night.`\
-https://nytimes.com/athletic/7026457/2026/02/06/cristiano-ronaldo-not-playing-saudi/
+**The Dark Side of A.I. Weighs on the Stock Market**\
+`The prospect of disruptions from artificial intelligence has hung over the economy for years. But this week advances in software tools precipitated a sell-off on Wall Street.`\
+https://nytimes.com/2026/02/06/business/the-dark-side-of-ai-weighs-on-the-stock-market.html
 
-**Price Tags**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2026/02/06/learning/price-tags.html
+**At These Olympics, Which America Are We Cheering For?**\
+`Although the actions of those in power have filled me with sadness, I love the people of this country.`\
+https://nytimes.com/2026/02/06/opinion/olympics-america-pride.html
 
-**New York’s Next Archbishop Introduces Himself to ‘the Parish of America’**\
-`On the eve of his installation, Bishop Ronald A. Hicks led a Vespers prayer service, conscious of the weight of representing more than 2.5 million Catholics.`\
-https://nytimes.com/2026/02/06/nyregion/archbishop-hicks.html
+**An Elegy for My Washington Post**\
+`Seven governing principles still hang in the newsroom, but now as more reproach than reminder.`\
+https://nytimes.com/2026/02/06/opinion/washington-post-bezos-layoffs.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/06/crosswords/spelling-bee-forum.html
+**Trump’s Stifling of Dissent Reaches a New Level**\
+`Measuring America’s slide toward democratic erosion.`\
+https://nytimes.com/interactive/2026/02/06/opinion/ice-minnesota-democracy-america.html
 
-**When Prison Body Scanners Mistake Tampons and Piercings for Contraband**\
-`Women hoping to visit their loved ones at New York prisons are being turned away after scanners pick up what they say are menstrual products. Some have had their visitation rights suspended.`\
-https://nytimes.com/2026/02/06/nyregion/new-york-prison-body-scanners-women.html
+**As Minnesota Reels Amid Immigration Crackdown, a Sheriff Agonizes Over Her Role**\
+`Sheriff Dawanna Witt of Hennepin County says she thinks she could help end the crackdown by allowing some measure of cooperation with ICE. She also knows that could cost her re-election.`\
+https://nytimes.com/2026/02/06/us/dawanna-witt-hennepin-sheriff.html
 
