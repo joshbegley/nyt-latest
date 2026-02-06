@@ -1,3 +1,11 @@
+**Suicide Bombing Kills 31 at Mosque in Pakistan’s Capital**\
+`The bombing, during Friday Prayers, was the second major attack in recent months in Islamabad, where large-scale violence had been relatively rare.`\
+https://nytimes.com/2026/02/06/world/asia/pakistan-mosque-attack-islamabad.html
+
+**Edwards: Agbadou nearing Besiktas move, Arias close to Palmeiras transfer**\
+`Agbadou joined Wolves in January 2025 from Reims while Arias arrived in the summer from Fluminense.`\
+https://nytimes.com/athletic/7026732/2026/02/06/wolves-emmanuel-agbadou-besiktas-jhon-arias-palmeiras/
+
 **Stellantis’s Shift Away From Electric Cars Will Cost It $26 Billion**\
 `The company, which owns Chrysler, Fiat, Jeep and Peugeot, is changing its strategy to gasoline and hybrid vehicles in an effort to revive weak sales.`\
 https://nytimes.com/2026/02/06/business/stellantis-writedown-electric-vehicles.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7022134/2026/02/06/heisman-predictions-draft-the-at
 **Lowetide: Is Oilers forward Jack Roslovic worthy of a long-term contract?**\
 `Roslovic has been highly productive for the Oilers this season as a skill winger and a third-line centre.`\
 https://nytimes.com/athletic/7022530/2026/02/06/edmonton-oilers-jack-roslovic-stats-contract-projection/
-
-**Trump Posts Video Portraying the Obamas as Apes**\
-`The video, shared by the president’s Truth Social account, contains a brief clip of the faces of former President Barack Obama and his wife, Michelle, on the bodies of apes.`\
-https://nytimes.com/2026/02/06/us/politics/trump-obamas-video-apes-truth-social.html
-
-**NBA post-trades watch guide: Warriors-Lakers, Knicks-Celtics, Harden's Cavs debut**\
-`After a frenzied trade deadline, the NBA pulls up to its full weekend slate.`\
-https://nytimes.com/athletic/7022232/2026/02/06/nba-trade-deadline-james-harden-cavs-debut-tv/
 
