@@ -1,3 +1,11 @@
+**Suicide Bombing Kills 31 at Mosque in Pakistan’s Capital**\
+`The bombing, during Friday Prayers, was the second major attack in recent months in Islamabad, where large-scale violence had been relatively rare.`\
+https://nytimes.com/2026/02/06/world/asia/pakistan-mosque-attack-islamabad.html
+
+**Edwards: Agbadou nearing Besiktas move, Arias close to Palmeiras transfer**\
+`Agbadou joined Wolves in January 2025 from Reims while Arias arrived in the summer from Fluminense.`\
+https://nytimes.com/athletic/7026732/2026/02/06/wolves-emmanuel-agbadou-besiktas-jhon-arias-palmeiras/
+
 **Stellantis’s Shift Away From Electric Cars Will Cost It $26 Billion**\
 `The company, which owns Chrysler, Fiat, Jeep and Peugeot, is changing its strategy to gasoline and hybrid vehicles in an effort to revive weak sales.`\
 https://nytimes.com/2026/02/06/business/stellantis-writedown-electric-vehicles.html
