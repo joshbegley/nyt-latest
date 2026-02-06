@@ -1,3 +1,7 @@
+**What to Expect at the Olympic Opening Ceremony, From the Man Behind It**\
+`Marco Balich has helped design grand spectacles at more than half a dozen Olympics. On Friday, he’ll do it again, on home turf in Italy.`\
+https://nytimes.com/2026/02/06/world/europe/milan-olympic-opening-ceremony-director-balich.html
+
 **The Olympics opening ceremonies are at 4 sites. Here's why, and how to watch**\
 `With the largest geographic footprint in Olympic history at roughly 10,000 square miles, the 2026 Games had to get creative.`\
 https://nytimes.com/athletic/7025934/2026/02/06/milan-cortina-olympics-opening-ceremonies-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/06/nyregion/new-york-prison-body-scanners-women.html
 **New York Grants Pregnant Workers Paid Leave. How Many Know That?**\
 `The state is the first in the United States to require paid leave for prenatal care. While some women are using the time off for medical appointments, others don’t know that it’s available.`\
 https://nytimes.com/2026/02/06/nyregion/paid-prenatal-leave.html
-
-**Treasure Hunting for Cities With a Story to Tell**\
-`How does the recently revamped Living In series uncover the best-kept secrets of America’s ever-changing towns and neighborhoods?`\
-https://nytimes.com/2026/02/06/insider/living-in.html
 
