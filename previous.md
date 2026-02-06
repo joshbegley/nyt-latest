@@ -8,7 +8,7 @@ https://nytimes.com/athletic/7025934/2026/02/06/milan-cortina-olympics-opening-c
 
 **Russian General Is Shot in Moscow**\
 `The attack bore the hallmark of several assassination attempts on top military officers in the Russian capital.`\
-https://nytimes.com/2026/02/06/world/europe/russian-general-shot-moscow-alexeyev.html
+https://nytimes.com/2026/02/06/world/europe/russian-general-shot-moscow-alekseyev.html
 
 **Facing Threats From Both America and China, Toyota Changes C.E.O.s**\
 `The world’s biggest automaker has navigated the industry’s turbulent E.V. transition, but is looking to new leadership to manage complex geopolitical challenges.`\
