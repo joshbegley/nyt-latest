@@ -1,3 +1,15 @@
+**Dallas Cowboys to play in NFL's first game in Rio de Janeiro**\
+`The Cowboys will play a regular-season game in Rio de Janeiro next season as the NFL continues to expand its international slate of games.`\
+https://nytimes.com/athletic/7025790/2026/02/05/dallas-cowboys-rio-de-janeiro-brazil-2026/
+
+**Trump’s Online Drugstore Opens for Business**\
+`TrumpRx is aimed at helping patients use their own money to buy medicines. But researchers who study drug pricing warned that many patients could pay too much if they use the site.`\
+https://nytimes.com/2026/02/05/health/trumprx-online-drugstore-prices.html
+
+**Uber Is Responsible for Rape by Driver, Jury Finds**\
+`In the first of federal trial of thousands of sexual assault cases, the ride-hailing giant was ordered to pay $8.5 million to Jaylynn Dean, who said a driver raped her in 2023.`\
+https://nytimes.com/2026/02/05/business/uber-safety-rape-verdict.html
+
 **N.Y. House Democrats Unite to Endorse Hochul on Eve of Convention**\
 `Gov. Kathy Hochul is expected to receive the Democratic nomination at the party’s state convention on Friday, even as her running-mate selection has drawn some debate.`\
 https://nytimes.com/2026/02/05/nyregion/hochul-endorsement-convention.html
