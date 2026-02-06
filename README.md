@@ -1,3 +1,15 @@
+**Tom Brady's apology to Eagles trio on Super Bowl 39 ticket up for auction**\
+`Items from Brady and Peyton and Eli Manning's collections are currently on the auction block. `\
+https://nytimes.com/athletic/7027120/2026/02/06/tom-brady-super-bowl-39-eagles-patriots/
+
+**Review: Ballet’s King of Comedy Fights Back**\
+`At New York City Ballet, Alexei Ratmansky exposes the current moment with a political satire based on “The Emperor’s New Clothes.”`\
+https://nytimes.com/2026/02/06/arts/dance/review-naked-king-ratmansky-new-york-city-ballet.html
+
+**Judge Allows Release of Evidence From Border Patrol Shooting**\
+`A Border Patrol agent shot Marimar Martinez five times. Video from the October incident in Chicago could now be released as early as Monday.`\
+https://nytimes.com/2026/02/06/us/politics/border-patrol-shooting-evidence-release.html
+
 **Trump administration continues freeze of U.S. funding to WADA**\
 `This measure is a rare point of bipartisan agreement. Under the Biden administration, the U.S. was already withholding its '25 dues to WADA.`\
 https://nytimes.com/athletic/7027299/2026/02/06/trump-freezes-us-funding-wada/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/06/world/europe/italy-song-olympics-ti-amo.html
 **Restaurant Review: Maze**\
 `In the first starred New York Times review from the Hawaiian islands, our chief restaurant critic Ligaya Mishan finds intriguing twists on a cuisine that’s already fluid with Asian influences.`\
 https://nytimes.com/video/admin/100000010689613/maze-honolulu-restaurant-review.html
-
-**What to Know About the Federal Investigation Into Nike**\
-`The federal agency that safeguards hiring practices is investigating Nike for what the agency said amounted to discrimination against white workers.`\
-https://nytimes.com/video/us/politics/100000010692316/donald-trump-discrimination-nike.html
-
-**California Sues a Children’s Hospital to Maintain Transgender Health Care**\
-`As the Trump administration pushes to end such care, this is the first time a state has sued a hospital to preserve it, legal experts say.`\
-https://nytimes.com/2026/02/06/us/california-children-hospital-transgender-care.html
-
-**Aston Villa forward Rory Wilson set for Sturm Graz loan**\
-`The 20-year-old signed a new two-year deal in April but has been firmly down the pecking order for Unai Emery.`\
-https://nytimes.com/athletic/7027404/2026/02/06/rory-wilson-sturm-graz-aston-villa-loan/
 
