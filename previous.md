@@ -1,3 +1,11 @@
+**Kliff Kingsbury joining Los Angeles Rams' coaching staff: Source**\
+`Kingsbury spent the past two years as the Washington Commanders' offensive coordinator.`\
+https://nytimes.com/athletic/7028145/2026/02/06/kliff-kingsbury-los-angeles-rams-coaching-staff-hired/
+
+**JD Vance Booed at Olympic Opening Ceremony in Milan**\
+`Before the event, protesters marched in Milan in opposition to U.S. Immigration and Customs Enforcement, whose personnel are in Italy to advise local officials in securing the Winter Games.`\
+https://nytimes.com/2026/02/06/world/europe/jd-vance-olympics-opening-ceremony.html
+
 **In the Grip of Gangs, Haiti Faces Another Crisis: A Leadership Vacuum**\
 `The tenure of a presidential council that has been running Haiti expires on Saturday. It’s unclear what will come next.`\
 https://nytimes.com/2026/02/06/world/americas/haiti-crisis-leadership-gangs.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/opinion/100000010591092/the-internet-feels-miserable-b
 **The Lakers are lining up for a Giannis chase, but the real plan must be bigger**\
 `The Lakers will have three first-round picks at their disposal on draft night. They can and should pursue Giannis Antetokounmpo.`\
 https://nytimes.com/athletic/7027963/2026/02/06/lakers-giannis-antetokounmpo-trade-deadline/
-
-**Yasiel Puig found guilty of obstruction of justice, false statements**\
-`A jury found the former Dodgers star guilty of lying to federal investigators about his knowledge of an illegal gambling operation.`\
-https://nytimes.com/athletic/7024828/2026/02/06/yasiel-puig-trial-guilty-gambling-obstruction/
-
-**The Briefing: Leeds 3 Nottingham Forest 1 - Wing-back threat, Gruev masterclass and nine points clear of trouble**\
-`Daniel Farke's side thumped the team immediately below them in the table as they moved well clear of the bottom three ahead of the weekend`\
-https://nytimes.com/athletic/7015742/2026/02/06/leeds-gruev-bogle-nottingham-forest-briefing/
 

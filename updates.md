@@ -1,3 +1,11 @@
+**Kliff Kingsbury joining Los Angeles Rams' coaching staff: Source**\
+`Kingsbury spent the past two years as the Washington Commanders' offensive coordinator.`\
+https://nytimes.com/athletic/7028145/2026/02/06/kliff-kingsbury-los-angeles-rams-coaching-staff-hired/
+
+**JD Vance Booed at Olympic Opening Ceremony in Milan**\
+`Before the event, protesters marched in Milan in opposition to U.S. Immigration and Customs Enforcement, whose personnel are in Italy to advise local officials in securing the Winter Games.`\
+https://nytimes.com/2026/02/06/world/europe/jd-vance-olympics-opening-ceremony.html
+
 **In the Grip of Gangs, Haiti Faces Another Crisis: A Leadership Vacuum**\
 `The tenure of a presidential council that has been running Haiti expires on Saturday. It’s unclear what will come next.`\
 https://nytimes.com/2026/02/06/world/americas/haiti-crisis-leadership-gangs.html
