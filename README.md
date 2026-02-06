@@ -1,3 +1,7 @@
+**Lil Jon’s Son Is Found Dead in a Georgia Pond, Police Say**\
+`Nathan Smith, whose stage name is DJ Young Slade, was reported missing on Tuesday after running out of his home in a community north of Atlanta.`\
+https://nytimes.com/2026/02/06/arts/music/lil-jon-son-dead.html
+
 **Let the Games Begin**\
 `Also, mass market paperbacks are heading toward extinction. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2026/02/06/briefing/let-the-games-begin.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/canada/100000010695717/record-atlantic-halibut-f
 **Villa's Unai Emery asks Liverpool to change Harvey Elliott loan terms**\
 `The manager said the situation was "damaging" for the 22-year-old, who has played only five times this season.`\
 https://nytimes.com/athletic/7027580/2026/02/06/harvey-elliott-aston-villa-liverpool-loan-change-emery/
-
-**Moderates Pitch Tough-on-Crime Message for Democrats Amid Immigration Talks**\
-`A polling memo circulated among centrist senators urged Democrats to talk tougher on crime, an issue where they lag Republicans, while noting an opportunity for the party to appeal to voters with criticism of ICE.`\
-https://nytimes.com/2026/02/06/us/politics/moderates-pitch-tough-on-crime-message-for-democrats-amid-immigration-talks.html
 
