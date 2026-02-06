@@ -1,3 +1,7 @@
+**Inside Carrick's revolution: Holland's 'homework', new matchday routines and a sense of calm**\
+`United's interim head coach changed coaching sessions, arrival times and the training ground vibe — and it's paying off`\
+https://nytimes.com/athletic/7023845/2026/02/06/michael-carrick-mannchester-united-manager/
+
 **Late Night Finds Trump Out of Place at Prayer Breakfast**\
 `The annual National Prayer Breakfast “is supposed to be a normal, nonpartisan event,” Seth Meyers said, “but, of course, Donald Trump is incapable of being normal.”`\
 https://nytimes.com/2026/02/06/arts/television/late-night-trump-prayer-breakfast.html

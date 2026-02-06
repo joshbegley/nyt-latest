@@ -1,3 +1,7 @@
+**Inside Carrick's revolution: Holland's 'homework', new matchday routines and a sense of calm**\
+`United's interim head coach changed coaching sessions, arrival times and the training ground vibe — and it's paying off`\
+https://nytimes.com/athletic/7023845/2026/02/06/michael-carrick-mannchester-united-manager/
+
 **Late Night Finds Trump Out of Place at Prayer Breakfast**\
 `The annual National Prayer Breakfast “is supposed to be a normal, nonpartisan event,” Seth Meyers said, “but, of course, Donald Trump is incapable of being normal.”`\
 https://nytimes.com/2026/02/06/arts/television/late-night-trump-prayer-breakfast.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7022243/2026/02/06/fantasy-premier-league-fpl-tips-
 **How shape-shifting Sunderland are using wide combinations to chase a top-half finish**\
 `The tactical flexibility of Regis Le Bris' squad is the primary reason they have readapted to Premier League life so successfully`\
 https://nytimes.com/athletic/7020802/2026/02/06/sunderland-tactics-premier-league/
-
-**The Pascal Struijk expected goals quirk – and why Leeds need more from him**\
-`If Leeds want to turn draws into wins at a crucial point of the season then they need to be more clinical with their set-pieces`\
-https://nytimes.com/athletic/7024159/2026/02/06/struijk-leeds-expected-goals-underperformance/
 
