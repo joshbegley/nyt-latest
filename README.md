@@ -1,3 +1,19 @@
+**Prime Tire: Lessons to learn from Toto Wolff's pessimism**\
+`Welcome to Prime Tire, The Athletic’s F1 newsletter.`\
+https://nytimes.com/athletic/7027785/2026/02/06/toto-wolff-f1-super-bowl-prime-tire/
+
+**Scoop City: MVP Stafford's not done, other award notes**\
+`Recapping last night's NFL awards, plus final Super Bowl prep: matchups, recipes and predictions`\
+https://nytimes.com/athletic/7027771/2026/02/06/nfl-awards-stafford-mvp-2025-super-bowl/
+
+**Mariah Carey Performs at Winter Games Opening Ceremony**\
+`The singer-songwriter “perfectly embodies the emotional spirit of the Games,” Olympic organizers said.`\
+https://nytimes.com/2026/02/06/world/europe/mariah-carey-performance-winter-olympics-opening-ceremony.html
+
+**Sonny Jurgensen, in word and deed, was a majestic figure in Washington sports history**\
+`Virtually no one in the history of Washington, D.C. pro sports has had Sonny Jurgensen's mixture of electricity and personality.`\
+https://nytimes.com/athletic/7027249/2026/02/06/sonny-jurgensen-death-washington-d-c-sports/
+
 **Deion Sanders on coaching in the NFL: 'Ain't no way in the world'**\
 `Sanders said after "what transpired with my son last year" that he has no interest in coaching in the NFL.`\
 https://nytimes.com/athletic/7027663/2026/02/06/deion-sanders-nfl-coach-shedeur/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/06/world/europe/no-fashion-focus-in-milan-after-fran
 **Games Briefing: Light the cauldrons**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7027658/2026/02/06/opening-ceremony-olympic-games-briefing/
-
-**Where is Dejan Kulusevski?**\
-`The Swedish star has been injured since May, with no sign of an imminent return - so what's going on?`\
-https://nytimes.com/athletic/7014133/2026/02/06/where-is-dejan-kulusevski-tottenham/
-
-**Milan Athletes Welcome Return of Winter Olympics Spectators**\
-`At the last Winter Games, in 2022 in Beijing, the coronavirus pandemic meant that spectators were largely absent and competing was a lonely experience.`\
-https://nytimes.com/2026/02/06/world/europe/2026-olympics-opening-ceremony-crowd-athletes.html
-
-**How ‘The Pitt’ Nails the High Moral Stakes of the E.R.**\
-`Sasha Weiss, the culture editor at The New York Times Magazine, joined Wesley Morris, host of “Cannonball,” to talk about the acclaimed hospital drama “The Pitt.” They discussed how the show develops its characters via the ethical practice of their work.`\
-https://nytimes.com/video/podcasts/100000010687348/the-pitt-character-development.html
-
-**Alysa Liu back on the Olympic stage, this time truly herself**\
-`Liu put her U.S. team in prime position to repeat its gold medal performance from 2022, by placing second in the women's short program.`\
-https://nytimes.com/athletic/7027486/2026/02/06/olympics-figure-skating-alysa-liu-usa/
 
