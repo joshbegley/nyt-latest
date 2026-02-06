@@ -1,3 +1,11 @@
+**Brees, Fitzgerald, Vinatieri lead starry, Belichick-less Hall of Fame class**\
+`Vinatieri gives the Patriots representation after Bill Belichick and Robert Kraft missed out. Two first-ballot choices joined him.`\
+https://nytimes.com/athletic/7026054/2026/02/05/nfl-hall-of-fame-class-of-2026-drew-brees-adam-vinatieri/
+
+**Argentina and U.S. Sign Sweeping Trade Deal as Alliance Deepens**\
+`The deal reduces reciprocal tariffs and expands quotas for key trading goods, including Argentine beef — a flashpoint for American ranchers.`\
+https://nytimes.com/2026/02/05/world/americas/argentina-us-trade-deal-trump-milei.html
+
 **American snowboarding star Red Gerard did not qualify for big air finals. He's OK with that**\
 `"Honestly, I don’t understand why we’re forced to do this," Gerard said. "I don’t like to do this."`\
 https://nytimes.com/athletic/7025846/2026/02/05/american-snowboarding-star-red-gerard-big-air/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7025729/2026/02/05/wbc-2026-roster-reveal-takeaways
 **Myles Garrett is NFL Defensive Player of the Year after record 23-sack season**\
 `Garrett, who was a wrecking ball for offenses during the Browns' regular season, was named Defensive Player of the Year for the second time.`\
 https://nytimes.com/athletic/7025648/2026/02/05/nfl-honors-awards-roundup-dpoy-opoy-comeback-player-rookie/
-
-**Smithsonian Folklife Festival Gives Way to Trump’s Patriotic Fair**\
-`The summer festival, held annually since 1967, will not take place as usual on the National Mall, which will instead host the president’s Great American State Fair.`\
-https://nytimes.com/2026/02/05/arts/smithsonian-folklife-festival-great-american-state-fair.html
-
-**‘The Mistake of Feminism’**\
-`Is it possible to support women while also opposing abortion? The pro-life activist Lila Rose argues yes. The key, she says, is to acknowledge that men and women are inherently different.`\
-https://nytimes.com/video/opinion/100000010679996/the-mistake-of-feminism.html
 

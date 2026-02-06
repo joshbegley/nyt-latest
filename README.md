@@ -23,7 +23,7 @@ https://nytimes.com/2026/02/05/crosswords/daily-puzzle-2026-02-06.html
 https://nytimes.com/2026/02/05/nyregion/muslims-nyc-political-power.html
 
 **Steve Kerr admits he 'could have done a better job' of helping Jonathan Kuminga**\
-`"I really want to see him succeed and I'm sorry that it didn't happen here," Kerr said. "We all take ownership of that."`\
+`"I really want to see him succeed, and I'm sorry that it didn't happen here," Kerr said. "We all take ownership of that."`\
 https://nytimes.com/athletic/7026051/2026/02/05/steve-kerr-jonathan-kuminga-trade-warriors/
 
 **Patriots' Mike Vrabel named NFL Coach of the Year**\

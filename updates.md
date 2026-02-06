@@ -1,3 +1,11 @@
+**Brees, Fitzgerald, Vinatieri lead starry, Belichick-less Hall of Fame class**\
+`Vinatieri gives the Patriots representation after Bill Belichick and Robert Kraft missed out. Two first-ballot choices joined him.`\
+https://nytimes.com/athletic/7026054/2026/02/05/nfl-hall-of-fame-class-of-2026-drew-brees-adam-vinatieri/
+
+**Argentina and U.S. Sign Sweeping Trade Deal as Alliance Deepens**\
+`The deal reduces reciprocal tariffs and expands quotas for key trading goods, including Argentine beef — a flashpoint for American ranchers.`\
+https://nytimes.com/2026/02/05/world/americas/argentina-us-trade-deal-trump-milei.html
+
 **American snowboarding star Red Gerard did not qualify for big air finals. He's OK with that**\
 `"Honestly, I don’t understand why we’re forced to do this," Gerard said. "I don’t like to do this."`\
 https://nytimes.com/athletic/7025846/2026/02/05/american-snowboarding-star-red-gerard-big-air/
