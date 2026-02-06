@@ -10,7 +10,7 @@ https://nytimes.com/issue/todayspaper/2026/02/06/todays-new-york-times
 `The real threat to a secure and sustainable supply of rare earths is not that they are scarce, but that so much is wasted.`\
 https://nytimes.com/2026/02/06/opinion/china-us-rare-earths.html
 
-**We’re All Canadian Now**\
+**The Globalization of Canadian Rage**\
 `The world is angry. Canada’s been there all along.`\
 https://nytimes.com/2026/02/06/opinion/canada-america-anger-carney.html
 
