@@ -1,3 +1,7 @@
+**12 Columbia Professors and Students Are Arrested at Anti-ICE Protest**\
+`Demonstrators, who were demanding that the university provide more protection for international students, blocked Broadway.`\
+https://nytimes.com/2026/02/05/nyregion/columbia-professors-students-protest-arrests.html
+
 **Virginia Democrats Propose New Congressional Maps Ahead of Midterms**\
 `As they appeal a ruling blocking their redistricting efforts, the state’s Democrats proposed redrawing districts in a way that would strongly favor them.`\
 https://nytimes.com/2026/02/05/us/politics/virginia-redistricting-maps-midterms.html

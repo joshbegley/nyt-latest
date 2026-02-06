@@ -34,7 +34,7 @@ https://nytimes.com/athletic/7025610/2026/02/05/san-diego-padres-sale-process-bi
 `After years of boxing themselves in with trade deadline moves, the Raptors finally broke free — for now.`\
 https://nytimes.com/athletic/7025249/2026/02/05/raptors-2026-nba-trade-deadline/
 
-**Giannis, Ja Morant are staying put. Let's grade those non-moves (for now)**\
+**(Non) trade grades: Giannis, Ja Morant are staying put. Are those the right calls?**\
 `These non-trades made as much noise as the big transactions we actually saw.`\
 https://nytimes.com/athletic/7025006/2026/02/05/giannis-ja-morant-nba-trade-grades/
 
