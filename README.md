@@ -1,3 +1,7 @@
+**How did The Athletic's CFB staff do in our annual Heisman draft? One word: Yikes**\
+`It wasn't our finest performance in our 2025 Heisman Trophy fantasy draft. Which reporter came out on top? `\
+https://nytimes.com/athletic/7022134/2026/02/06/heisman-predictions-draft-the-athletic-2025-results/
+
 **Lowetide: Is Oilers forward Jack Roslovic worthy of a long-term contract?**\
 `Roslovic has been highly productive for the Oilers this season as a skill winger and a third-line centre.`\
 https://nytimes.com/athletic/7022530/2026/02/06/edmonton-oilers-jack-roslovic-stats-contract-projection/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7026802/2026/02/06/lindsey-vonn-olympics-downhill-t
 **Fantasy Premier League live Q&A: Gameweek 25 advice from Ben Dinnery**\
 `Ben Dinnery is on hand to offer his expert advice on the players to target, who to avoid, and the fitness doubts you need to be aware of`\
 https://nytimes.com/athletic/7026676/2026/02/06/fantasy-premier-league-live-qa-gameweek-25-advice-from-ben-dinnery/
-
-**Bulls rebuilding again after wild trade deadline, but don't expect turnaround anytime soon**\
-`Artūras Karnišovas couldn’t come out and say tanking was the goal when he spoke about Chicago's flurry of moves, but it’s pretty obvious.`\
-https://nytimes.com/athletic/7026399/2026/02/06/bulls-nba-trade-deadline-rebuild/
 

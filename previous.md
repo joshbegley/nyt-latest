@@ -1,3 +1,23 @@
+**Lowetide: Is Oilers forward Jack Roslovic worthy of a long-term contract?**\
+`Roslovic has been highly productive for the Oilers this season as a skill winger and a third-line centre.`\
+https://nytimes.com/athletic/7022530/2026/02/06/edmonton-oilers-jack-roslovic-stats-contract-projection/
+
+**Trump Posts Video Portraying the Obamas as Apes**\
+`The video, shared by the president’s Truth Social account, contains a brief clip of the faces of former President Barack Obama and his wife, Michelle, on the bodies of apes.`\
+https://nytimes.com/2026/02/06/us/politics/trump-obamas-video-apes-truth-social.html
+
+**NBA post-trades watch guide: Warriors-Lakers, Knicks-Celtics, Harden's Cavs debut**\
+`After a frenzied trade deadline, the NBA pulls up to its full weekend slate.`\
+https://nytimes.com/athletic/7022232/2026/02/06/nba-trade-deadline-james-harden-cavs-debut-tv/
+
+**Trump Administration Live Updates: U.S. and Iran Prepare for Talks**\
+``\
+https://nytimes.com/live/2026/02/06/us/trump-news
+
+**Cristiano Ronaldo is now 41, so here are 41 stats you (probably) don't know about him**\
+`Forty-one facts and pieces of trivia about the Portuguese forward's remarkable achievements`\
+https://nytimes.com/athletic/7018113/2026/02/06/cristiano-ronaldo-is-41-so-here-are-41-stats-you-probably-dont-know-about-him/
+
 **Savannah Guthrie’s Brother Renews Plea for Their Missing Mother’s Return**\
 `The search for Nancy Guthrie has entered its sixth day. The F.B.I. has offered a $50,000 reward for information.`\
 https://nytimes.com/2026/02/06/us/savannah-nancy-guthrie-missing-updates.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7026676/2026/02/06/fantasy-premier-league-live-qa-g
 **Bulls rebuilding again after wild trade deadline, but don't expect turnaround anytime soon**\
 `Artūras Karnišovas couldn’t come out and say tanking was the goal when he spoke about Chicago's flurry of moves, but it’s pretty obvious.`\
 https://nytimes.com/athletic/7026399/2026/02/06/bulls-nba-trade-deadline-rebuild/
-
-**‘The Headlines’ News Quiz: Feb. 6, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://nytimes.com/2026/02/06/podcasts/the-headlines/the-headlines-news-quiz-feb-6-2026.html
-
-**Deadline tension fuels Draymond Green, Warriors for one of their best wins of the year**\
-`Green was as relieved as anyone to see the deadline pass before helping the Warriors to a 101-97 comeback win over the Phoenix Suns.`\
-https://nytimes.com/athletic/7026512/2026/02/06/warriors-win-draymond-green-trade-deadline/
-
-**Seahawks assistant, wronged out of ring at Michigan, on cusp of Super Bowl title: Mandel**\
-`The NCAA’s Committee on Infractions issued its final verdict on Michigan last August, and it generally cleared Partridge.`\
-https://nytimes.com/athletic/7025789/2026/02/06/seahawks-chris-patridge-michigan-scandal-column/
-
-**Why Casemiro will be missed greatly - and why his farewell tour will be fun**\
-`This week in TOTD: Hold on tight for the Casemiro Farewell Tour. Plus: Bruno Fernandes on cusp of stunning stat and transfer window fallout`\
-https://nytimes.com/athletic/7023655/2026/02/06/casemiro-manchester-united-leaving/
-
-**The Athletic’s Friday football quiz question #92**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/7025147/2026/02/06/the-athletics-friday-football-quiz-question-92/
 

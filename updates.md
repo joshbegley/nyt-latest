@@ -1,3 +1,23 @@
+**Lowetide: Is Oilers forward Jack Roslovic worthy of a long-term contract?**\
+`Roslovic has been highly productive for the Oilers this season as a skill winger and a third-line centre.`\
+https://nytimes.com/athletic/7022530/2026/02/06/edmonton-oilers-jack-roslovic-stats-contract-projection/
+
+**Trump Posts Video Portraying the Obamas as Apes**\
+`The video, shared by the president’s Truth Social account, contains a brief clip of the faces of former President Barack Obama and his wife, Michelle, on the bodies of apes.`\
+https://nytimes.com/2026/02/06/us/politics/trump-obamas-video-apes-truth-social.html
+
+**NBA post-trades watch guide: Warriors-Lakers, Knicks-Celtics, Harden's Cavs debut**\
+`After a frenzied trade deadline, the NBA pulls up to its full weekend slate.`\
+https://nytimes.com/athletic/7022232/2026/02/06/nba-trade-deadline-james-harden-cavs-debut-tv/
+
+**Trump Administration Live Updates: U.S. and Iran Prepare for Talks**\
+``\
+https://nytimes.com/live/2026/02/06/us/trump-news
+
+**Cristiano Ronaldo is now 41, so here are 41 stats you (probably) don't know about him**\
+`Forty-one facts and pieces of trivia about the Portuguese forward's remarkable achievements`\
+https://nytimes.com/athletic/7018113/2026/02/06/cristiano-ronaldo-is-41-so-here-are-41-stats-you-probably-dont-know-about-him/
+
 **Savannah Guthrie’s Brother Renews Plea for Their Missing Mother’s Return**\
 `The search for Nancy Guthrie has entered its sixth day. The F.B.I. has offered a $50,000 reward for information.`\
 https://nytimes.com/2026/02/06/us/savannah-nancy-guthrie-missing-updates.html
