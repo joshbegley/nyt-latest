@@ -1,3 +1,11 @@
+**America’s Game**\
+`We tell you everything you need to know about this year’s Super Bowl.`\
+https://nytimes.com/2026/02/06/briefing/americas-game.html
+
+**The Athletic staff's favorite Super Bowl memories, from the Helmet Catch to 28-3**\
+`Our staff rewinds and reminisces on past Super Bowls.`\
+https://nytimes.com/athletic/7022336/2026/02/06/best-super-bowl-moments-plays-calls-the-athletic/
+
 **What did your NBA team's trade-deadline moves say about its future?**\
 `Some teams blew it up, others stood pat or looked to save some cash. Then there were the Kings.`\
 https://nytimes.com/athletic/7026385/2026/02/06/nba-team-trade-deadline-moves-future/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7022510/2026/02/06/washington-nationals-2026-top-10
 **World Cup 2026 – what we’re hearing: McDonald's opts out of selling food and drink at official Fan Fests**\
 `No McDonald's food or drink at Fan Fests, Infantino's appearance at 'Melania' premiere and cities shocked by prices for suite guests`\
 https://nytimes.com/athletic/7024467/2026/02/06/mcdonalds-world-cup-fan-fest/
-
-**Miami Marlins 2026 top 20 prospects: Aiva Arquette, Thomas White lead the way**\
-`The Marlins system has a lot of players who project to some big-league value, but it's very light on impact players.`\
-https://nytimes.com/athletic/7021729/2026/02/06/miami-marlins-2026-top-20-prospects-keith-law/
-
-**From Nikola Vučević to luxury tax dodging: How did Celtics fare at trade deadline?**\
-`Celtics GM Brad Stevens was busy making deals that helped Boston's financial future. `\
-https://nytimes.com/athletic/7025867/2026/02/06/celtics-nba-trade-deadline-nikola-vucevic/
 
