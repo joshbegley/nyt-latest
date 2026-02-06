@@ -1,3 +1,7 @@
+**Russian General Is Shot in Moscow**\
+`The attack bore the hallmark of several assassination attempts on top military officers in the Russian capital.`\
+https://nytimes.com/2026/02/06/world/europe/russian-general-shot-moscow-alexeyev.html
+
 **Facing Threats From Both America and China, Toyota Changes C.E.O.s**\
 `The world’s biggest automaker has navigated the industry’s turbulent E.V. transition, but is looking to new leadership to manage complex geopolitical challenges.`\
 https://nytimes.com/2026/02/06/business/toyota-ceo-kenta-kon.html
