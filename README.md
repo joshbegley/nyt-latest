@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7029291/2026/02/07/lindsey-vonn-winter-olympics-downhill-acl-medal/
 
 **Top ICE Lawyer in Minnesota Departs as Immigration Lawsuits Overwhelm Courts**\
-`Jim Stolley, the chief counsel for U.S. Immigration and Customs Enforcement in Minnesota, is leaving as government prosecutors grapple with a crush of cases.`\
+`Jim Stolley, the chief counsel for U.S. Immigration and Customs Enforcement in Minnesota, has left as government prosecutors grapple with a crush of cases.`\
 https://nytimes.com/2026/02/07/us/ice-lawyer-quits-minnesota.html
 
 **The Briefing: Newcastle 2 Brentford 3 – Why can't Howe's team hold on to leads? What's happened to summer signings?**\
