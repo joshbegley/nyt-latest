@@ -1,3 +1,7 @@
+**Barcelona 'formally withdraws' from European Super League project**\
+`The 20-team, closed-shop ESL was initially launched in April 2021, but fell apart following a substantial backlash from supporters.`\
+https://nytimes.com/athletic/7028881/2026/02/07/barcelona-european-super-league-teams/
+
 **Trump Reverts to Diplomacy With Iran, but the Road Is Narrow**\
 `Iran is skilled at prolonging negotiations over its nuclear program, and seems to be hoping President Trump is out for a quick win, rather than a prolonged regional war.`\
 https://nytimes.com/2026/02/07/world/europe/iran-us-trump-diplomacy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/07/opinion/trump-nationalize-elections.html
 **A Simple Fix to Curb Federal Power**\
 `On “The Opinions,” the columnist David French explains how federal immunity makes it nearly impossible to sue over civil rights violations — and why a simple change to the law could finally hold agencies like ICE accountable.`\
 https://nytimes.com/video/opinion/100000010693272/a-simple-fix-to-curb-federal-power.html
-
-**Rangers insider: Answering lingering questions about Artemi Panarin trade**\
-`Why didn't the Rangers match the Kings' extension, and what was the rush? Here's what I'm hearing.`\
-https://nytimes.com/athletic/7027926/2026/02/07/rangers-artemi-panarin-trade-extension-match/
 
