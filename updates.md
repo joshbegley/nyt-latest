@@ -1,3 +1,7 @@
+**Colorado Funeral Home Director Is Sentenced to 40 Years in Corpse Abuse Case**\
+`“I deserve every word you have said and every day that I will sit in prison,” Jon Hallford said in court on Friday. Investigators found nearly 200 decomposing bodies stored improperly.`\
+https://nytimes.com/2026/02/06/us/colorado-funeral-home-scandal-owner.html
+
 **Trump Opens Marine National Monument in Atlantic to Commercial Fishing**\
 `Off the coast of Cape Cod, the Northeast Canyons and Seamounts Marine National Monument is a unique stretch of ocean that had been protected for a decade.`\
 https://nytimes.com/2026/02/06/climate/trump-monument-fishing-northeast-canyons.html

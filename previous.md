@@ -1,3 +1,7 @@
+**Colorado Funeral Home Director Is Sentenced to 40 Years in Corpse Abuse Case**\
+`“I deserve every word you have said and every day that I will sit in prison,” Jon Hallford said in court on Friday. Investigators found nearly 200 decomposing bodies stored improperly.`\
+https://nytimes.com/2026/02/06/us/colorado-funeral-home-scandal-owner.html
+
 **Trump Opens Marine National Monument in Atlantic to Commercial Fishing**\
 `Off the coast of Cape Cod, the Northeast Canyons and Seamounts Marine National Monument is a unique stretch of ocean that had been protected for a decade.`\
 https://nytimes.com/2026/02/06/climate/trump-monument-fishing-northeast-canyons.html
@@ -34,8 +38,4 @@ https://nytimes.com/video/climate/100000010684396/a-first-look-below-antarcticas
 **Outgoing Leader of N.Y.C. Antisemitism Office Criticizes His Replacement**\
 `The criticism from the former head of the Office to Combat Antisemitism, Moshe Davis, reflects the social and political divide among Jewish New Yorkers over Mayor Zohran Mamdani.`\
 https://nytimes.com/2026/02/06/nyregion/antisemitism-office-replacement-leader-criticism.html
-
-**Halle Berry and Van Hunt’s Engagement Comes With a Nod to Vintage Elegance**\
-`The actress and producer confirmed her engagement on “The Tonight Show Starring Jimmy Fallon,” unveiling an heirloom-style ring.`\
-https://nytimes.com/2026/02/06/style/halle-berry-van-hunt-engaged.html
 
