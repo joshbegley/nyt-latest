@@ -1,3 +1,7 @@
+**How Hard Is It to Rig an American Election, Really?**\
+`The round table convenes to debate whether we need to worry about the midterms being free and fair.`\
+https://nytimes.com/video/opinion/100000010693264/how-hard-is-it-to-rig-an-american-election-really.html
+
 **Russian Strikes Pummel Ukraine’s Power Grid**\
 `The drone and missile bombardments were the latest attacks on Ukrainian energy infrastructure during a winter freeze, as peace talks have made little progress.`\
 https://nytimes.com/2026/02/07/world/europe/russia-strikes-ukraine-energy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7028836/2026/02/07/louisville-vs-wake-forest-stream
 **How to watch Baylor vs. Iowa State men's basketball: Time, TV, streaming**\
 `Find out how to watch the Baylor Bears play the Iowa State Cyclones, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7028833/2026/02/07/baylor-vs-iowa-state-stream-how-to-watch-feb-7/
-
-**How to watch Maryland vs. Nebraska women's basketball: Time, TV, streaming**\
-`Find out how to watch the Maryland Terrapins play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7028831/2026/02/07/maryland-vs-nebraska-stream-how-to-watch-feb-7/
 
