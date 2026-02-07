@@ -1,3 +1,7 @@
+**Anthony Davis' first visit with Wizards was 'great,' but he's got questions**\
+`Davis wants to have more detailed discussions with the Wizards' braintrust about how it plans to get the franchise to contender level.`\
+https://nytimes.com/athletic/7028119/2026/02/06/anthony-davis-trade-response-wizards-nba/
+
 **Exclusive: Anthony Davis' first visit with Wizards was 'great,' but he's got questions**\
 `Davis wants to have more detailed discussions with the Wizards' braintrust about how it plans to get the franchise to contender level.`\
 https://nytimes.com/athletic/7028119/2026/02/06/anthony-davis-trade-response-wizards-nba/
