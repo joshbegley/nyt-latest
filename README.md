@@ -1,3 +1,7 @@
+**Michael Pollan Says Humanity Is About to Undergo a Revolutionary Change**\
+`The best-selling author grapples with big questions about A.I., consciousness and the distractions polluting our minds.`\
+https://nytimes.com/2026/02/07/magazine/michael-pollan-interview.html
+
 **What’s Up With This Big Freeze? Some Scientists See Climate Change Link**\
 `A warming Arctic can stretch the polar vortex, a high-altitude air ribbon, one says. The “wobble” can disrupt the jet stream, causing extreme cold in the East.`\
 https://nytimes.com/2026/02/07/climate/whats-up-with-this-big-freeze-some-scientists-see-climate-change-link.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/07/us/santa-clara-super-bowl.html
 **Sullen and Sunburned: The Tradition of Castaways at the Movies**\
 `“Send Help” is just the latest take on a survivalist premise that dates to the 1719 novel “Robinson Crusoe.” These six movies offer fascinating twists.`\
 https://nytimes.com/2026/02/07/movies/send-help-castaway-movies.html
-
-**Elon Musk Is Betting Another Tech Conglomerate (His) Can Win Over Wall St.**\
-`The billionaire’s decision to merge his A.I. start-up with his rocket company will test investors’ interest in giant combinations of unalike businesses.`\
-https://nytimes.com/2026/02/07/technology/elon-musk-spacex-xai.html
 
