@@ -1,3 +1,11 @@
+**Why Manchester United remembering the Munich Air Disaster matters**\
+`Andy Mitten was asked to speak at the memorial service marking the 68th anniversary of the disaster. This is what he read to those present`\
+https://nytimes.com/athletic/7027570/2026/02/07/manchester-united-munich-memorial-manchesterplatz/
+
+**What to watch on Day 1 at the Winter Olympics: Ilia Malinin, Jessie Diggins and the first medals**\
+`The men's figure skating team event continues with the short program, which will feature American superstar Malinin.`\
+https://nytimes.com/athletic/6655810/2026/02/07/milan-cortina-winter-olympics-what-to-watch-day-1/
+
 **Fernandez's evolution into a Lampard-esque goal threat and how Chelsea benefit**\
 `Fernandez has become a much bigger goal threat for Chelsea — this is how he's done it`\
 https://nytimes.com/athletic/7026562/2026/02/07/enzo-fernandes-chelsea-goals-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7023799/2026/02/07/curtis-jones-liverpool-contract-
 **The Party’s Over When Charli XCX Says So**\
 `The “Brat” pop star isn’t afraid to lean into her party-girl persona. But moving into film with “The Moment” has given her brand-new perspective.`\
 https://nytimes.com/2026/02/07/movies/charli-xcx-the-moment-sundance.html
-
-**Russia’s Time as a Sporting Pariah May Be Coming to an End**\
-`In Milan this week, Olympics officials signaled a willingness to ease years of restrictions imposed on the country over its state-backed doping program and invasion of Ukraine.`\
-https://nytimes.com/2026/02/07/world/europe/russia-olympics-sports-sanctions-ukraine.html
-
-**Connections: Sports Edition Coach: Hints and answers for Feb. 7, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7028049/2026/02/07/connections-sports-edition-hints-answers-feb-7-2026/
 

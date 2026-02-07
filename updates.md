@@ -1,3 +1,11 @@
+**Why Manchester United remembering the Munich Air Disaster matters**\
+`Andy Mitten was asked to speak at the memorial service marking the 68th anniversary of the disaster. This is what he read to those present`\
+https://nytimes.com/athletic/7027570/2026/02/07/manchester-united-munich-memorial-manchesterplatz/
+
+**What to watch on Day 1 at the Winter Olympics: Ilia Malinin, Jessie Diggins and the first medals**\
+`The men's figure skating team event continues with the short program, which will feature American superstar Malinin.`\
+https://nytimes.com/athletic/6655810/2026/02/07/milan-cortina-winter-olympics-what-to-watch-day-1/
+
 **Fernandez's evolution into a Lampard-esque goal threat and how Chelsea benefit**\
 `Fernandez has become a much bigger goal threat for Chelsea — this is how he's done it`\
 https://nytimes.com/athletic/7026562/2026/02/07/enzo-fernandes-chelsea-goals-analysis/
