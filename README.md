@@ -1,3 +1,7 @@
+**This Is Just Who Trump Is**\
+`The birther of a nation.`\
+https://nytimes.com/2026/02/07/opinion/trump-obama-video-apes.html
+
 **Kenan Yildiz extends Juventus contract through to 2030**\
 `Yildiz was handed the iconic No 10 shirt by Juventus in the summer of 2024 and is his side's top goal scorer this campaign.`\
 https://nytimes.com/athletic/7029175/2026/02/07/kenan-yildiz-juventus-contract-new/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029086/2026/02/07/team-usa-olympics-winter-house-h
 **Al Horford on NBA trade deadline, Steph experience, playing with Porziņģis and more**\
 `Horford also discusses how he'll be attending the Super Bowl and rooting for the New England Patriots.`\
 https://nytimes.com/athletic/7028746/2026/02/07/al-horford-trade-deadline-kristaps-porzingis-steph-curry/
-
-**Why ICE Raids in Minneapolis Are Driving Up Demand for Guns**\
-`Gun permit applications have surged in Minnesota since ICE raids began across the state in December.`\
-https://nytimes.com/video/us/100000010682068/minneapolis-ice-raids-guns-safety.html
 

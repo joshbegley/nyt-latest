@@ -1,3 +1,7 @@
+**Kenan Yildiz extends Juventus contract through to 2030**\
+`Yildiz was handed the iconic No 10 shirt by Juventus in the summer of 2024 and is his side's top goal scorer this campaign.`\
+https://nytimes.com/athletic/7029175/2026/02/07/kenan-yildiz-juventus-contract-new/
+
 **Is this Junk Wax Era 2.0 for sports cards? We did the math**\
 `There are growing concerns among collectors around rising print runs, but how do they compare to the most overprinted era? `\
 https://nytimes.com/athletic/7028558/2026/02/07/sports-cards-junk-wax/
