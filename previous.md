@@ -1,6 +1,10 @@
-**McCullough: Terrence Gore embraced his role to become a 3-time World Series champion**\
+**The Briefing: Newcastle 2 Brentford 3 – Why can't Howe's team hold on to leads? What's happened to summer signings?**\
+`Newcastle blew another lead to extend their losing run to three - The Athletic analyses the talking points from St James' Park`\
+https://nytimes.com/athletic/7026766/2026/02/07/newcastle-2-brentford-3-eddie-howe-leads-summer-signings/
+
+**McCullough: Terrance Gore embraced his role to become a 3-time World Series champion**\
 `For Royals fans, Gore represents a connection to an era where the team made consecutive World Series and won a championship.`\
-https://nytimes.com/athletic/7029497/2026/02/07/terrence-gore-death-mlb-career-world-series-champion/
+https://nytimes.com/athletic/7029497/2026/02/07/terrance-gore-death-mlb-career-world-series-champion/
 
 **Jaxson Hayes, Jase Richardson among 2026 NBA Slam Dunk competitors**\
 `The league has not revealed the participants in the 3-point shooting contest at NBA All-Star Weekend at the Intuit Dome in Inglewood, Calif.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029268/2026/02/07/francesca-lollobrigida-winter-ol
 **We Love You, Snow. Now Go Away.**\
 `Ah, those first wondrous hours of a snowstorm in New York. Two weeks later, the sidewalks are sooty and treacherous, and the parked cars are frozen in surrender.`\
 https://nytimes.com/2026/02/07/nyregion/nyc-snow-ice-dirt.html
-
-**How to watch Mavericks vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7029337/2026/02/07/mavericks-vs-spurs-stream-how-to-watch-feb-7/
 

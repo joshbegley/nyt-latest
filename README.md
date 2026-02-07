@@ -1,3 +1,11 @@
+**At the Olympics, it's all eyes on Lindsey Vonn. How will her unreal story end?**\
+`Vonn will race Sunday's Olympic downhill with a torn ACL in her left knee. What'll happen is anyone's guess, but it's the talk of the Games.`\
+https://nytimes.com/athletic/7029291/2026/02/07/lindsey-vonn-winter-olympics-downhill-acl-medal/
+
+**Top ICE Lawyer in Minnesota Departs as Immigration Lawsuits Overwhelm Courts**\
+`Jim Stolley, the chief counsel for U.S. Immigration and Customs Enforcement in Minnesota, is leaving as government prosecutors grapple with a crush of cases.`\
+https://nytimes.com/2026/02/07/us/ice-lawyer-quits-minnesota.html
+
 **The Briefing: Newcastle 2 Brentford 3 – Why can't Howe's team hold on to leads? What's happened to summer signings?**\
 `Newcastle blew another lead to extend their losing run to three - The Athletic analyses the talking points from St James' Park`\
 https://nytimes.com/athletic/7026766/2026/02/07/newcastle-2-brentford-3-eddie-howe-leads-summer-signings/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7029186/2026/02/07/usa-womens-hockey-finland-2026-o
 **Suzannah Lessard Dies at 81; Stanford White Descendant Who Wrote a Haunting Family Memoir**\
 `Growing up in a family of secrets, on a compound designed by her great-grandfather, made her a writer who investigated the built world with a wary eye.`\
 https://nytimes.com/2026/02/07/books/suzannah-lessard-dead.html
-
-**Francesca Lollobrigida delivers Italy a Winter Olympic gold and day's best moment**\
-`On her 35th birthday, Lollobrigida set an Olympic record to win gold, setting off a raucous celebration with her team and son, Tomasso.`\
-https://nytimes.com/athletic/7029268/2026/02/07/francesca-lollobrigida-winter-olympics-italy-speedskating-gold-son/
-
-**We Love You, Snow. Now Go Away.**\
-`Ah, those first wondrous hours of a snowstorm in New York. Two weeks later, the sidewalks are sooty and treacherous, and the parked cars are frozen in surrender.`\
-https://nytimes.com/2026/02/07/nyregion/nyc-snow-ice-dirt.html
 
