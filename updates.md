@@ -1,3 +1,27 @@
+**How to watch Warriors vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029661/2026/02/07/warriors-vs-lakers-stream-how-to-watch-feb-7/
+
+**How to watch Grizzlies vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029659/2026/02/07/grizzlies-vs-trail-blazers-stream-how-to-watch-feb-7/
+
+**How to watch 76ers vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029657/2026/02/07/76ers-vs-suns-stream-how-to-watch-feb-7/
+
+**How to watch Cavaliers vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029655/2026/02/07/cavaliers-vs-kings-stream-how-to-watch-feb-7/
+
+**Olympic women's ski jumping opens with a surprise gold-medal winner**\
+`Norway's Anna Odine Stroem shocked favorite Nika Prevc to take gold in the individual normal hill competition on Saturday.`\
+https://nytimes.com/athletic/7029608/2026/02/07/winter-olympics-ski-jumping-anna-odine-stroem-gold/
+
+**Japan's Kira Kimura wins gold in men's snowboard big air with US teen Ollie Martin fourth**\
+`American teen Ollie Martin, 17, finishes fourth on his Olympic debut as Kira Kimura wins the men's snowboard big air gold. `\
+https://nytimes.com/athletic/7029413/2026/02/07/mens-big-air-final-kira-kimura-ollie-martin-2026-winter-olympics/
+
 **Olympic women's ski jumping opens with a surprise gold-medal winner**\
 `Norway's Anna Odine Stroem shocked favorite Nika Prevc of gold in the individual normal hill competition on Saturday.`\
 https://nytimes.com/athletic/7029608/2026/02/07/winter-olympics-ski-jumping-anna-odine-stroem-gold/
