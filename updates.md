@@ -1,3 +1,11 @@
+**At the Olympics, it's all eyes on Lindsey Vonn. How will her unreal story end?**\
+`Vonn will race Sunday's Olympic downhill with a torn ACL in her left knee. What'll happen is anyone's guess, but it's the talk of the Games.`\
+https://nytimes.com/athletic/7029291/2026/02/07/lindsey-vonn-winter-olympics-downhill-acl-medal/
+
+**Top ICE Lawyer in Minnesota Departs as Immigration Lawsuits Overwhelm Courts**\
+`Jim Stolley, the chief counsel for U.S. Immigration and Customs Enforcement in Minnesota, has left as government prosecutors grapple with a crush of cases.`\
+https://nytimes.com/2026/02/07/us/ice-lawyer-quits-minnesota.html
+
 **The Briefing: Newcastle 2 Brentford 3 – Why can't Howe's team hold on to leads? What's happened to summer signings?**\
 `Newcastle blew another lead to extend their losing run to three - The Athletic analyses the talking points from St James' Park`\
 https://nytimes.com/athletic/7026766/2026/02/07/newcastle-2-brentford-3-eddie-howe-leads-summer-signings/
