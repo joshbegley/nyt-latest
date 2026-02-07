@@ -15,7 +15,7 @@ https://nytimes.com/athletic/7029657/2026/02/07/76ers-vs-suns-stream-how-to-watc
 https://nytimes.com/athletic/7029655/2026/02/07/cavaliers-vs-kings-stream-how-to-watch-feb-7/
 
 **Olympic women's ski jumping opens with a surprise gold-medal winner**\
-`Norway's Anna Odine Stroem shocked favorite Nika Prevc of gold in the individual normal hill competition on Saturday.`\
+`Norway's Anna Odine Stroem shocked favorite Nika Prevc to take gold in the individual normal hill competition on Saturday.`\
 https://nytimes.com/athletic/7029608/2026/02/07/winter-olympics-ski-jumping-anna-odine-stroem-gold/
 
 **How to watch Florida vs. Texas A&M men's basketball: Time, TV, streaming**\
