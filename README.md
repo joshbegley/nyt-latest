@@ -1,3 +1,7 @@
+**How to watch Jazz vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029324/2026/02/07/jazz-vs-magic-stream-how-to-watch-feb-7/
+
 **How to watch Arizona State vs. Baylor women's basketball: Time, TV, streaming**\
 `Find out how to watch the Arizona State Sun Devils play the Baylor Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029309/2026/02/07/arizona-state-vs-baylor-stream-how-to-watch-feb-7/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/07/us/politics/pelosi-endorse-schlossberg-kennedy.ht
 **The Briefing: Wolves 1 Chelsea 3 - Is Cole Palmer back? Does Rosenior now know his best XI?**\
 `Cole Palmer's first-half hat-trick powered Chelsea to a comfortable victory over rock-bottom Wolves - we analyse the talking points`\
 https://nytimes.com/athletic/7016454/2026/02/07/wolves-chelsea-score-result-report-analysis/
-
-**The Briefing: Arsenal 3 Sunderland 0 — What extra does Zubimendi offer? Is Gyokeres finding his role?**\
-`We break down the action as Arsenal went nine points clear of Manchester City with victory at the Emirates.`\
-https://nytimes.com/athletic/7016453/2026/02/07/arsenal-sunderland-zubimendi-gyokeres/
 
