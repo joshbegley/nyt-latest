@@ -1,3 +1,27 @@
+**How to watch Baylor vs. Iowa State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Baylor Bears play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7028833/2026/02/07/baylor-vs-iowa-state-stream-how-to-watch-feb-7/
+
+**How to watch Maryland vs. Nebraska women's basketball: Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7028831/2026/02/07/maryland-vs-nebraska-stream-how-to-watch-feb-7/
+
+**How to watch Michigan State vs. Penn State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Penn State Lady Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7028829/2026/02/07/michigan-state-vs-penn-state-stream-how-to-watch-feb-7/
+
+**How to watch Nebraska vs. Rutgers men's basketball: Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the Rutgers Scarlet Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7028827/2026/02/07/nebraska-vs-rutgers-stream-how-to-watch-feb-7/
+
+**How to watch Oregon vs. Purdue men's basketball: Time, TV, streaming**\
+`Find out how to watch the Oregon Ducks play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7028825/2026/02/07/oregon-vs-purdue-stream-how-to-watch-feb-7/
+
+**Lindsey Vonn completes second training run, teeing up Olympic downhill try on torn ACL**\
+`Vonn finished another training run with a few technical issues but no apparent injury difficulties. The women's downhill is Sunday.`\
+https://nytimes.com/athletic/7028810/2026/02/07/lindsey-vonn-olympics-downhill-training-second-run-cortina/
+
 **A quirky British NFL show is attempting to introduce the sport to new fans. Does it work?**\
 `The Athletic joined the audience during the live filming of the UK's newest NFL Sunday show`\
 https://nytimes.com/athletic/7009597/2026/02/07/big-game-night-behind-the-scenes/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7028351/2026/02/07/trade-deadline-clippers-harden-r
 **Seven NHL teams that need to make a move by the trade deadline**\
 `Here are the seven clubs — four buyers and three sellers — that are most likely to wheel and deal.`\
 https://nytimes.com/athletic/7022814/2026/02/07/nhl-trade-deadline-teams-moves/
-
-**She raised 3 NHL stars. Now Ellen Hughes hopes to help the U.S. women's hockey team win gold**\
-`Hughes, mother to Quinn, Jack and Luke, is a player development consultant working with the U.S. women's team vying for gold in Milan.`\
-https://nytimes.com/athletic/7023503/2026/02/07/olympics-ellen-hughes-usa-womens-hockey-nhl/
-
-**My Cousin Is About to Become Homeless. How Much Should I Give Up for Him?**\
-`I’ve eaten PB&Js for 35 years in an effort to have a retirement where I can do what I want.`\
-https://nytimes.com/2026/02/07/magazine/cousin-homeless-ethics.html
-
-**Wordle Review No. 1,695**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Feb. 8, 2026.`\
-https://nytimes.com/2026/02/07/crosswords/wordle-review-1695.html
-
-**Canada’s Olympians Take the World Stage**\
-`Beating America has always felt good, especially on the ice. Since President Trump began issuing tariffs and threats against Canada, sports feels extra personal.`\
-https://nytimes.com/2026/02/07/world/canada/2026-olympics-canada-us-hockey-carney.html
-
-**What Russia's hockey team would look like and how its absence affects the Olympics**\
-`Russia would have been bronze medal favorites at the Olympics and the team most likely to upset Canada or the United States.`\
-https://nytimes.com/athletic/7016493/2026/02/07/olympic-hockey-team-russia-players/
-
-**NFL players craving connection with fans find it at Twitch's Streamer Bowl**\
-`Streaming video games brings Cam Skattebo, Shedeur Sanders, Tetairoa McMillan and others closer to the public, at times to their detriment.`\
-https://nytimes.com/athletic/7025755/2026/02/07/nfl-players-fans-twitch-streamers/
 
