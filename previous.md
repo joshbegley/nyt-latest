@@ -1,3 +1,15 @@
+**Crash disrupts Jessie Diggins as Frida Karlsson wins Olympic skiathlon gold**\
+`Karlsson cruised to her second Olympic medal as the cross-country program began. A first-lap crash hindered the American Diggins' chances.`\
+https://nytimes.com/athletic/7028905/2026/02/07/winter-olympics-jessie-diggins-skiathlon-frida-karlsson/
+
+**A Mosque Bombing Undercuts Pakistan’s Bid for Security**\
+`Pakistan has made headway against the Islamic State and other militants, but a bloody suicide attack showed how fragile its progress has been.`\
+https://nytimes.com/2026/02/07/world/asia/pakistan-mosque-bombing.html
+
+**Prediction Markets and Casinos Go to War Over Sports Betting**\
+`Kalshi and Polymarket say their prediction markets are not subject to gambling laws and taxes. The casino industry is lobbying to shut them down as a wave of court cases take on the question.`\
+https://nytimes.com/2026/02/07/business/dealbook/prediction-markets-sports-betting.html
+
 **How is Lindsey Vonn skiing on a torn ACL? Why downhill is different than other sports**\
 `A perfect recipe of circumstances makes downhill skiing doable — though still quite remarkable — for Vonn, even with a torn ACL.`\
 https://nytimes.com/athletic/7028848/2026/02/07/lindsey-vonn-torn-acl-winter-olympics-explained/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7027334/2026/02/07/nba-trade-deadline-best-worst-de
 **Submit your Blackhawks questions for Scott Powers' mailbag**\
 `Have a question about the Blackhawks? Send it in here, and Scott may answer it in an upcoming mailbag.`\
 https://nytimes.com/athletic/7027466/2026/02/07/blackhawks-questions-scott-powers-mailbag/
-
-**Jeffrey Epstein, the Devil’s Concierge**\
-`He knew how to give self-important people what they thought they deserved.`\
-https://nytimes.com/2026/02/07/opinion/epstein-files-gifts-rich.html
-
-**The President’s Personal Spy Chief**\
-`From joining an F.B.I. search of an election center to allegedly suppressing a whistleblower complaint, Tulsi Gabbard, the director of national intelligence, is eroding the independence of our intelligence community, argues Times Opinion’s editor, Kathleen Kingsbury.`\
-https://nytimes.com/video/opinion/100000010694134/the-presidents-personal-spy-chief.html
-
-**The Real Threat Isn’t Trump. It’s the MAGA Apparatus.**\
-`The round table convenes to debate whether we need to worry about the midterms being free and fair.`\
-https://nytimes.com/2026/02/07/opinion/trump-nationalize-elections.html
 

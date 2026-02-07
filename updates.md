@@ -1,3 +1,15 @@
+**Crash disrupts Jessie Diggins as Frida Karlsson wins Olympic skiathlon gold**\
+`Karlsson cruised to her second Olympic medal as the cross-country program began. A first-lap crash hindered the American Diggins' chances.`\
+https://nytimes.com/athletic/7028905/2026/02/07/winter-olympics-jessie-diggins-skiathlon-frida-karlsson/
+
+**A Mosque Bombing Undercuts Pakistan’s Bid for Security**\
+`Pakistan has made headway against the Islamic State and other militants, but a bloody suicide attack showed how fragile its progress has been.`\
+https://nytimes.com/2026/02/07/world/asia/pakistan-mosque-bombing.html
+
+**Prediction Markets and Casinos Go to War Over Sports Betting**\
+`Kalshi and Polymarket say their prediction markets are not subject to gambling laws and taxes. The casino industry is lobbying to shut them down as a wave of court cases take on the question.`\
+https://nytimes.com/2026/02/07/business/dealbook/prediction-markets-sports-betting.html
+
 **The Real Threat Isn’t Trump. It’s the MAGA Apparatus.**\
 `The round table convenes to debate whether we need to worry about the midterms being free and fair.`\
 https://nytimes.com/2026/02/07/opinion/trump-nationalize-elections.html
