@@ -1,3 +1,7 @@
+**2026 World Cup base camps: Where each nation is setting up in North America**\
+`FIFA has made a number of locations available to each of the competing nations, with the competition for prime real estate fierce.`\
+https://nytimes.com/athletic/6974353/2026/02/07/world-cup-2026-training-bases-tracker/
+
 **She's a U.S. Olympic skier and also a Stanford soccer player: Meet Sammy Smith**\
 `After Stanford's run to the national title game, Smith had one shot to make the U.S. Olympic cross-country skiing team. And she made it.`\
 https://nytimes.com/athletic/7024677/2026/02/07/shes-an-olympic-skier-and-also-a-stanford-soccer-player-meet-sammy-smith/
@@ -35,8 +39,4 @@ https://nytimes.com/2026/02/07/nyregion/mamdani-nyc-class-size.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/02/07/crosswords/spelling-bee-forum.html
-
-**Nottingham Forest need to rediscover their defensive solidity after Leeds loss**\
-`Forest had a makeshift defence against Leeds and struggled as a result`\
-https://nytimes.com/athletic/7028281/2026/02/07/nottingham-forest-leeds-analysis/
 
