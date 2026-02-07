@@ -34,7 +34,7 @@ https://nytimes.com/athletic/7028119/2026/02/06/anthony-davis-trade-response-wiz
 `The list of coaches who will report to Vitello went public just four days before the team will report to spring training.`\
 https://nytimes.com/athletic/7028338/2026/02/06/sf-giants-coaching-staff-tony-vitello/
 
-**Trading Jared McCain was smart, but can the Sixers' front office live with it?**\
+**Inside the Sixers’ Jared McCain trade and the dangers of getting it wrong**\
 `McCain’s departure strengthens long-term assets, but leaves the Sixers thin in the backcourt for the postseason.`\
 https://nytimes.com/athletic/7027455/2026/02/06/jared-mccain-trade-sixers-front-office/
 

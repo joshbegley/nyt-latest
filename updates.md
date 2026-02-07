@@ -1,3 +1,7 @@
+**Patriots’ Spillane, Landry questionable for Super Bowl; Emmanwori will play**\
+`Seahawks coach Mike McDonald previously said Emmanwori would play in Sunday's game.`\
+https://nytimes.com/athletic/7028405/2026/02/06/patriots-super-bowl-seahawks-injury/
+
 **In a Close Election, Voters Send a Sharp Anti-Trump Message**\
 `The Democratic primary to replace Gov. Mikie Sherrill of New Jersey in Congress is still too close to call. Much of the advertising focused on opposition to the president and his immigration policies.`\
 https://nytimes.com/2026/02/06/nyregion/new-jersey-special-election-malinowski-mejia.html
