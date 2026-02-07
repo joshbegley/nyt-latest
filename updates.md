@@ -1,3 +1,7 @@
+**North Dakota State in talks to join Mountain West for 2026 season: Source**\
+`NDSU has long considered a move up to the Football Bowl Subdivision since rivals such as James Madison and Sam Houston moved to FBS.`\
+https://nytimes.com/athletic/7028539/2026/02/06/north-dakota-state-mountain-west-conference-football/
+
 **Philippe Morillon, General Who Made Fateful Protection Promise, Dies at 90**\
 `“I will never abandon you,” he told residents of Srebrenica amid sectarian armed conflict in Bosnia. The town later suffered the worst massacre in Europe since World War II.`\
 https://nytimes.com/2026/02/06/world/europe/philippe-morillon-dead.html

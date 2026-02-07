@@ -1,3 +1,7 @@
+**North Dakota State in talks to join Mountain West for 2026 season: Source**\
+`NDSU has long considered a move up to the Football Bowl Subdivision since rivals such as James Madison and Sam Houston moved to FBS.`\
+https://nytimes.com/athletic/7028539/2026/02/06/north-dakota-state-mountain-west-conference-football/
+
 **Philippe Morillon, General Who Made Fateful Protection Promise, Dies at 90**\
 `“I will never abandon you,” he told residents of Srebrenica amid sectarian armed conflict in Bosnia. The town later suffered the worst massacre in Europe since World War II.`\
 https://nytimes.com/2026/02/06/world/europe/philippe-morillon-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/06/nyregion/new-jersey-special-election-malinowski-m
 **Fans' boos, cheers at Olympic opening ceremony deliver message in own way**\
 `Rooting for the underdog is still a thing, and it was the underdog that thousands of Olympic fans were rooting for at the opening ceremony.`\
 https://nytimes.com/athletic/7028222/2026/02/06/olympic-opening-ceremony-fans/
-
-**Super Bowl Visitors Find San Francisco Better Than Its Apocalyptic Image**\
-`Problems with homelessness and open-air drug use have been widely broadcast, but many visitors this week said they found the city surprisingly pleasant.`\
-https://nytimes.com/2026/02/06/us/san-francisco-super-bowl.html
 
