@@ -1,3 +1,7 @@
+**Giannis Antetokounmpo joins prediction-market company Kalshi as investor**\
+`The Bucks forward is believed to be first basketball player to partner with a prediction-market company.`\
+https://nytimes.com/athletic/7028388/2026/02/06/giannis-antetokounmpo-kalshi-nba-prediction-market/
+
 **Patriots’ Spillane, Landry questionable for Super Bowl; Emmanwori will play**\
 `Seahawks coach Mike McDonald previously said Emmanwori would play in Sunday's game.`\
 https://nytimes.com/athletic/7028405/2026/02/06/patriots-super-bowl-seahawks-injury/

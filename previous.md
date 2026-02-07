@@ -1,3 +1,7 @@
+**Giannis Antetokounmpo joins prediction-market company Kalshi as investor**\
+`The Bucks forward is believed to be first basketball player to partner with a prediction-market company.`\
+https://nytimes.com/athletic/7028388/2026/02/06/giannis-antetokounmpo-kalshi-nba-prediction-market/
+
 **Patriots’ Spillane, Landry questionable for Super Bowl; Emmanwori will play**\
 `Seahawks coach Mike McDonald previously said Emmanwori would play in Sunday's game.`\
 https://nytimes.com/athletic/7028405/2026/02/06/patriots-super-bowl-seahawks-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7028119/2026/02/06/anthony-davis-trade-response-wiz
 **Giants (finally!) announce Tony Vitello's coaching staff**\
 `The list of coaches who will report to Vitello went public just four days before the team will report to spring training.`\
 https://nytimes.com/athletic/7028338/2026/02/06/sf-giants-coaching-staff-tony-vitello/
-
-**Trading Jared McCain was smart, but can the Sixers' front office live with it?**\
-`McCain’s departure strengthens long-term assets, but leaves the Sixers thin in the backcourt for the postseason.`\
-https://nytimes.com/athletic/7027455/2026/02/06/jared-mccain-trade-sixers-front-office/
 
