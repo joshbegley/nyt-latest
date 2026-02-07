@@ -1,3 +1,7 @@
+**The Real Threat Isn’t Trump. It’s the MAGA Apparatus.**\
+`The round table convenes to debate whether we need to worry about the midterms being free and fair.`\
+https://nytimes.com/2026/02/07/opinion/trump-nationalize-elections.html
+
 **How is Lindsey Vonn skiing on a torn ACL? Why downhill is different than other sports**\
 `A perfect recipe of circumstances makes downhill skiing doable — though still quite remarkable — for Vonn, even with a torn ACL.`\
 https://nytimes.com/athletic/7028848/2026/02/07/lindsey-vonn-torn-acl-winter-olympics-explained/

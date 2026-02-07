@@ -34,7 +34,7 @@ https://nytimes.com/2026/02/07/opinion/epstein-files-gifts-rich.html
 `From joining an F.B.I. search of an election center to allegedly suppressing a whistleblower complaint, Tulsi Gabbard, the director of national intelligence, is eroding the independence of our intelligence community, argues Times Opinion’s editor, Kathleen Kingsbury.`\
 https://nytimes.com/video/opinion/100000010694134/the-presidents-personal-spy-chief.html
 
-**How Hard Is It to Rig an American Election, Really?**\
+**The Real Threat Isn’t Trump. It’s the MAGA Apparatus.**\
 `The round table convenes to debate whether we need to worry about the midterms being free and fair.`\
 https://nytimes.com/2026/02/07/opinion/trump-nationalize-elections.html
 
