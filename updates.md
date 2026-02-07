@@ -1,3 +1,11 @@
+**How is Lindsey Vonn skiing on a torn ACL? Why downhill is different than other sports**\
+`A perfect recipe of circumstances makes downhill skiing doable — though still quite remarkable — for Vonn, even with a torn ACL.`\
+https://nytimes.com/athletic/7028848/2026/02/07/lindsey-vonn-torn-acl-winter-olympics-explained/
+
+**Barcelona 'formally withdraw' from European Super League project**\
+`The 20-team, closed-shop ESL was initially launched in April 2021, but fell apart following a substantial backlash from supporters.`\
+https://nytimes.com/athletic/7028881/2026/02/07/barcelona-european-super-league-teams/
+
 **Barcelona 'formally withdraws' from European Super League project**\
 `The 20-team, closed-shop ESL was initially launched in April 2021, but fell apart following a substantial backlash from supporters.`\
 https://nytimes.com/athletic/7028881/2026/02/07/barcelona-european-super-league-teams/

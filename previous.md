@@ -1,4 +1,8 @@
-**Barcelona 'formally withdraws' from European Super League project**\
+**How is Lindsey Vonn skiing on a torn ACL? Why downhill is different than other sports**\
+`A perfect recipe of circumstances makes downhill skiing doable — though still quite remarkable — for Vonn, even with a torn ACL.`\
+https://nytimes.com/athletic/7028848/2026/02/07/lindsey-vonn-torn-acl-winter-olympics-explained/
+
+**Barcelona 'formally withdraw' from European Super League project**\
 `The 20-team, closed-shop ESL was initially launched in April 2021, but fell apart following a substantial backlash from supporters.`\
 https://nytimes.com/athletic/7028881/2026/02/07/barcelona-european-super-league-teams/
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010694134/the-presidents-personal-spy-ch
 **How Hard Is It to Rig an American Election, Really?**\
 `The round table convenes to debate whether we need to worry about the midterms being free and fair.`\
 https://nytimes.com/2026/02/07/opinion/trump-nationalize-elections.html
-
-**A Simple Fix to Curb Federal Power**\
-`On “The Opinions,” the columnist David French explains how federal immunity makes it nearly impossible to sue over civil rights violations — and why a simple change to the law could finally hold agencies like ICE accountable.`\
-https://nytimes.com/video/opinion/100000010693272/a-simple-fix-to-curb-federal-power.html
 
