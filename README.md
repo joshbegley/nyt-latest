@@ -1,3 +1,7 @@
+**Trump Reverts to Diplomacy With Iran, but the Road Is Narrow**\
+`Iran is skilled at prolonging negotiations over its nuclear program, and seems to be hoping President Trump is out for a quick win, rather than a prolonged regional war.`\
+https://nytimes.com/2026/02/07/world/europe/iran-us-trump-diplomacy.html
+
 **First gold of 2026 Olympics goes to Switzerland's Franjo von Allmen in men's downhill**\
 `Von Allmen tamed the formidable Stelvio course to become Olympic champion in the men's downhill. `\
 https://nytimes.com/athletic/7028783/2026/02/07/mens-2026-olympic-downhill-franjo-von-allmen/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010693272/a-simple-fix-to-curb-federal-p
 **Rangers insider: Answering lingering questions about Artemi Panarin trade**\
 `Why didn't the Rangers match the Kings' extension, and what was the rush? Here's what I'm hearing.`\
 https://nytimes.com/athletic/7027926/2026/02/07/rangers-artemi-panarin-trade-extension-match/
-
-**Are We Giving Trump Too Much Credit?**\
-`We obsess over what Trump and MAGA want, the columnist Jamelle Bouie says, but why do we assume they’re the only forces with agency? He discusses with Michelle Cottle and David French on “The Opinions.”`\
-https://nytimes.com/video/opinion/100000010693269/are-we-giving-trump-too-much-credit.html
 
