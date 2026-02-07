@@ -1,3 +1,11 @@
+**Rising Progressive Star Shakes Up Race for Los Angeles Mayor**\
+`Nithya Raman, who has been compared to Mayor Zohran Mamdani of New York, presents a significant challenge to the incumbent, Mayor Karen Bass.`\
+https://nytimes.com/2026/02/07/us/rising-progressive-star-shakes-up-race-for-los-angeles-mayor.html
+
+**Emma Raducanu loses first final since U.S. Open 2021 to Sorana Cîrstea**\
+`Raducanu's comeback wins earlier in the Transylvania Open appeared to catch up with her in a straight-sets loss.`\
+https://nytimes.com/athletic/7029085/2026/02/07/tennis-raducanu-cirstea-result-analysis-wta/
+
 **Kenan Yildiz extends Juventus contract through to 2030**\
 `Yildiz was handed the iconic No 10 shirt by Juventus in the summer of 2024 and is his side's top goalscorer this campaign.`\
 https://nytimes.com/athletic/7029175/2026/02/07/kenan-yildiz-juventus-contract-new/

@@ -1,3 +1,7 @@
+**Rising Progressive Star Shakes Up Race for Los Angeles Mayor**\
+`Nithya Raman, who has been compared to Mayor Zohran Mamdani of New York, presents a significant challenge to the incumbent, Mayor Karen Bass.`\
+https://nytimes.com/2026/02/07/us/rising-progressive-star-shakes-up-race-for-los-angeles-mayor.html
+
 **This Is Just Who Trump Is**\
 `The birther of a nation.`\
 https://nytimes.com/2026/02/07/opinion/trump-obama-video-apes.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/7028558/2026/02/07/sports-cards-junk-wax/
 `Cold-weary New Yorkers will get hit by another blast of frigid weather. Here’s what to expect, and what the city is doing to protect the vulnerable.`\
 https://nytimes.com/2026/02/07/nyregion/nyc-weather-extreme-cold-warning.html
 
-**Emma Raducanu loses first final since U.S. Open 2021 to Sorana Cirstea**\
+**Emma Raducanu loses first final since U.S. Open 2021 to Sorana Cîrstea**\
 `Raducanu's comeback wins earlier in the Transylvania Open appeared to catch up with her in a straight-sets loss.`\
 https://nytimes.com/athletic/7029085/2026/02/07/tennis-raducanu-cirstea-result-analysis-wta/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029140/2026/02/07/cuiabano-nottingham-forest-vasco
 **Inside USA's Winter House in Milan, a private space for athletes to enjoy the Olympics**\
 `The Winter House is a joint venture between USA Hockey, U.S. Figure Skating and U.S. Speedskating.`\
 https://nytimes.com/athletic/7029086/2026/02/07/team-usa-olympics-winter-house-hockey-figure-skating-speedskating/
-
-**Al Horford on NBA trade deadline, Steph experience, playing with Porziņģis and more**\
-`Horford also discusses how he'll be attending the Super Bowl and rooting for the New England Patriots.`\
-https://nytimes.com/athletic/7028746/2026/02/07/al-horford-trade-deadline-kristaps-porzingis-steph-curry/
 

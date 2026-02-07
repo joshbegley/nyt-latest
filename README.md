@@ -1,6 +1,10 @@
+**The Briefing: Arsenal 3 Sunderland 0 - What extra does Zubimendi offer? Is Gyokeres finding his role?**\
+`We break down the action as Arsenal went nine points clear of Manchester City with victory at the Emirates.`\
+https://nytimes.com/athletic/7016453/2026/02/07/arsenal-sunderland-zubimendi-gyokeres/
+
 **Rising Progressive Star Shakes Up Race for Los Angeles Mayor**\
 `Nithya Raman, who has been compared to Mayor Zohran Mamdani of New York, presents a significant challenge to the incumbent, Mayor Karen Bass.`\
-https://nytimes.com/2026/02/07/us/rising-progressive-star-shakes-up-race-for-los-angeles-mayor.html
+https://nytimes.com/2026/02/07/us/nithya-raman-los-angeles-mayor.html
 
 **This Is Just Who Trump Is**\
 `The birther of a nation.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/07/world/middleeast/saudi-arabia-investment-syria-al
 **Forest's Cuiabano moves to Vasco da Gama on loan until 2027**\
 `The 22-year-old signed in the summer but is yet to make a first-team appearance for Sean Dyche's side. `\
 https://nytimes.com/athletic/7029140/2026/02/07/cuiabano-nottingham-forest-vasco-da-gama-loan/
-
-**Inside USA's Winter House in Milan, a private space for athletes to enjoy the Olympics**\
-`The Winter House is a joint venture between USA Hockey, U.S. Figure Skating and U.S. Speedskating.`\
-https://nytimes.com/athletic/7029086/2026/02/07/team-usa-olympics-winter-house-hockey-figure-skating-speedskating/
 
