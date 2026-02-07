@@ -1,3 +1,7 @@
+**Inside USA's Winter House in Milan, a private space for athletes to enjoy the Olympics**\
+`The Winter House is a joint venture between USA Hockey, U.S. Figure Skating and U.S. Speedskating.`\
+https://nytimes.com/athletic/7029086/2026/02/07/team-usa-olympics-winter-house-hockey-figure-skating-speedskating/
+
 **Al Horford on NBA trade deadline, Steph experience, playing with Porziņģis and more**\
 `Horford also discusses how he'll be attending the Super Bowl and rooting for the New England Patriots.`\
 https://nytimes.com/athletic/7028746/2026/02/07/al-horford-trade-deadline-kristaps-porzingis-steph-curry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7015743/2026/02/07/man-utd-tottenham-result-score-r
 **How to watch Rockets vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029028/2026/02/07/rockets-vs-thunder-stream-how-to-watch-feb-7/
-
-**How to watch Wizards vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7029024/2026/02/07/wizards-vs-nets-stream-how-to-watch-feb-7/
 
