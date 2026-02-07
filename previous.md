@@ -1,10 +1,18 @@
+**Warriors convert Pat Spencer to full NBA contract after breakout performance**\
+`The 29-year-old point guard has become popular within the Warriors' locker room because of his attitude and work ethic.`\
+https://nytimes.com/athletic/7029709/2026/02/07/warriors-pat-spencer-full-nba-contract/
+
+**Whistle-Blower Report Involved Intelligence About a Trump Contact**\
+`Tulsi Gabbard, the director of national intelligence, moved to lock down an intelligence intercept that referred to someone close to President Trump, the report said.`\
+https://nytimes.com/2026/02/07/us/politics/whistle-blower-gabbard-trump.html
+
 **See the biggest moments from the 2026 Olympics in Italy.**\
 ``\
 https://nytimes.com/live/2026/02/07/world/olympics-italy-photos
 
-**Ilia Malinin, the ‘Quad God,’ leaves an ace in his sleeve.**\
+**Ilia Malinin, the ‘Quad God,’ leaves an ace up his sleeve.**\
 `Summary`\
-https://nytimes.com/2026/02/07/world/ilia-malinin-short-program.html
+https://nytimes.com/2026/02/07/world/olympics-ilia-malinin-short-program.html
 
 **Ohio Man Is Charged With Threatening to Kill JD Vance**\
 `During the investigation, the man was found to have child sex abuse materials on his phone, federal prosecutors said.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7029655/2026/02/07/cavaliers-vs-kings-stream-how-to
 **Olympic women's ski jumping opens with a surprise gold-medal winner**\
 `Norway's Anna Odine Stroem shocked favorite Nika Prevc to take gold in the individual normal hill competition on Saturday.`\
 https://nytimes.com/athletic/7029608/2026/02/07/winter-olympics-ski-jumping-anna-odine-stroem-gold/
-
-**How to watch Florida vs. Texas A&M men's basketball: Time, TV, streaming**\
-`Find out how to watch the Florida Gators play the Texas A&M Aggies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7029650/2026/02/07/florida-vs-texas-a-m-stream-how-to-watch-feb-7/
-
-**How to watch Houston vs. BYU men's basketball: Time, TV, streaming**\
-`Find out how to watch the Houston Cougars play the BYU Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7029648/2026/02/07/houston-vs-byu-stream-how-to-watch-feb-7/
 

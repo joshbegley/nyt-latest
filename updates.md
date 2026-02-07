@@ -1,3 +1,15 @@
+**Warriors convert Pat Spencer to full NBA contract after breakout performance**\
+`The 29-year-old point guard has become popular within the Warriors' locker room because of his attitude and work ethic.`\
+https://nytimes.com/athletic/7029709/2026/02/07/warriors-pat-spencer-full-nba-contract/
+
+**Whistle-Blower Report Involved Intelligence About a Trump Contact**\
+`Tulsi Gabbard, the director of national intelligence, moved to lock down an intelligence intercept that referred to someone close to President Trump, the report said.`\
+https://nytimes.com/2026/02/07/us/politics/whistle-blower-gabbard-trump.html
+
+**Ilia Malinin, the ‘Quad God,’ leaves an ace up his sleeve.**\
+`Summary`\
+https://nytimes.com/2026/02/07/world/olympics-ilia-malinin-short-program.html
+
 **See the biggest moments from the 2026 Olympics in Italy.**\
 ``\
 https://nytimes.com/live/2026/02/07/world/olympics-italy-photos
