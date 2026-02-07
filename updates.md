@@ -1,3 +1,11 @@
+**Fernandez's evolution into a Lampard-esque goal threat and how Chelsea benefit**\
+`Fernandez has become a much bigger goal threat for Chelsea — this is how he's done it`\
+https://nytimes.com/athletic/7026562/2026/02/07/enzo-fernandes-chelsea-goals-analysis/
+
+**The reintegration of Dwight McNeil**\
+`The 26-year-old forward was on the verge of moving to south London on deadline day only for radio silence to set in as the clock ticked down`\
+https://nytimes.com/athletic/7027234/2026/02/07/dwight-mcneil-everton-palace-transfer-fallout/
+
 **Cristiano Ronaldo is post-football within football. It matters more when he doesn’t play**\
 `Ronaldo has crossed the Beckham threshold, evolving from being famous for football to being famous for being famous`\
 https://nytimes.com/athletic/7027013/2026/02/07/cristiano-ronaldo-saudi/
