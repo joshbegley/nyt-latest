@@ -1,5 +1,9 @@
-**Former Jets first-round pick Darron Lee charged in girlfriend's murder**\
-`The New York Jets selected Lee with the No. 20 pick in the 2016 draft.`\
+**Hegseth Says Defense Department Will Cut Ties With Harvard**\
+`Mr. Hegseth’s order appeared to target his alma mater, Harvard’s Kennedy School for public policy.`\
+https://nytimes.com/2026/02/06/us/politics/hegseth-defense-harvard.html
+
+**Jets' 2016 first-round pick, Darron Lee, charged in girlfriend's murder**\
+`The New York Jets selected Lee with the No. 20 pick in the 2016 NFL Draft.`\
 https://nytimes.com/athletic/7028469/2026/02/06/darron-lee-jets-charged-murder/
 
 **Giannis Antetokounmpo joins prediction-market company Kalshi as investor**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/100000010687900/how-is-security-different-at-the
 **Psychiatrist Says Kennedy Was ‘Not Accurate’ in Discussing His Keto Studies**\
 `Dr. Christopher M. Palmer said in an interview that the keto diet, while promising, did not “cure” schizophrenia as the health secretary had claimed.`\
 https://nytimes.com/2026/02/06/us/politics/christopher-palmer-kennedy-schizophrenia-keto.html
-
-**Exclusive: Anthony Davis' first visit with Wizards was 'great,' but he's got questions**\
-`Davis wants to have more detailed discussions with the Wizards' braintrust about how it plans to get the franchise to contender level.`\
-https://nytimes.com/athletic/7028119/2026/02/06/anthony-davis-trade-response-wizards-nba/
 

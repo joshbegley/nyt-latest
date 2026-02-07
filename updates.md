@@ -1,3 +1,11 @@
+**Hegseth Says Defense Department Will Cut Ties With Harvard**\
+`Mr. Hegseth’s order appeared to target his alma mater, Harvard’s Kennedy School for public policy.`\
+https://nytimes.com/2026/02/06/us/politics/hegseth-defense-harvard.html
+
+**Jets' 2016 first-round pick, Darron Lee, charged in girlfriend's murder**\
+`The New York Jets selected Lee with the No. 20 pick in the 2016 NFL Draft.`\
+https://nytimes.com/athletic/7028469/2026/02/06/darron-lee-jets-charged-murder/
+
 **Former Jets first-round pick Darron Lee charged in girlfriend's murder**\
 `The New York Jets selected Lee with the No. 20 pick in the 2016 draft.`\
 https://nytimes.com/athletic/7028469/2026/02/06/darron-lee-jets-charged-murder/
