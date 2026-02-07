@@ -1,3 +1,11 @@
+**Why Ice Raids in Minneapolis Are Driving Up Demand for Guns**\
+`Gun permit applications have surged in Minnesota since ICE raids began across the state in December.`\
+https://nytimes.com/video/us/100000010682068/minneapolis-ice-raids-guns-safety.html
+
+**Roland Huntford, Lore-Debunking Historian of Polar Exploration, Dies at 98**\
+`He caused an uproar by challenging the heroic status of Robert Falcon Scott, the Briton who led a doomed quest to the South Pole in 1912.`\
+https://nytimes.com/2026/02/07/world/roland-huntford-dead.html
+
 **Unrivaled's lucrative 1-on-1 tournament is back. Here's who's playing who**\
 `With a modified format and some of the biggest names in women's basketball, the Unrivaled 1-on-1 tournament promises a show. `\
 https://nytimes.com/athletic/7028406/2026/02/07/unrivaled-1-on-1-tournament-bracket-2026/
@@ -5,6 +13,10 @@ https://nytimes.com/athletic/7028406/2026/02/07/unrivaled-1-on-1-tournament-brac
 **Valentine’s Day Treats to Fall in Love With Again and Again**\
 `Raspberry and cream éclairs, chocolate lava cake and turtle bars, to name a few.`\
 https://nytimes.com/2026/02/07/dining/valentines-day-treats-to-fall-in-love-with-again-and-again.html
+
+**Ranking the best 2026 Super Bowl commercials: For Papa! Will Shat and more**\
+`In the aftermath of every Super Bowl, we talk about the game and the halftime show, but we&#8217;re also eager to discuss the commercials.`\
+https://nytimes.com/athletic/7016254/2026/02/07/super-bowl-commercials-2026-ranking-shatner-instacart-skittles/
 
 **Pistons' dismantling of Knicks shows why Detroit believes in its talent and team chemistry**\
 `The Eastern Conference's best team has "the perfect world of both" when it comes to talent and team chemistry coach J.B. Bickerstaff said.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7029024/2026/02/07/wizards-vs-nets-stream-how-to-wa
 **'It starts with me': Rudy Gobert says Wolves should bench players who aren't giving effort**\
 `After blowing an 18-point lead to the Pelicans, the Wolves' center called out the overall effort in a shocking loss.`\
 https://nytimes.com/athletic/7028536/2026/02/07/rudy-gobert-chris-finch-bench-players-timberwolves/
-
-**How to watch La Salle vs. Saint Louis men's basketball: Time, TV, streaming**\
-`Find out how to watch the La Salle Explorers play the Saint Louis Billikens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7029008/2026/02/07/la-salle-vs-saint-louis-stream-how-to-watch-feb-7/
-
-**How to watch Miami (OH) vs. Marshall men's basketball: Time, TV, streaming**\
-`Find out how to watch the Miami (OH) RedHawks play the Marshall Thundering Herd, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7029006/2026/02/07/miami-oh-vs-marshall-stream-how-to-watch-feb-7/
-
-**How to watch Oklahoma State vs. Arizona men's basketball: Time, TV, streaming**\
-`Find out how to watch the Oklahoma State Cowboys play the Arizona Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7029004/2026/02/07/oklahoma-state-vs-arizona-stream-how-to-watch-feb-7/
 

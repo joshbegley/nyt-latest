@@ -1,3 +1,15 @@
+**Why Ice Raids in Minneapolis Are Driving Up Demand for Guns**\
+`Gun permit applications have surged in Minnesota since ICE raids began across the state in December.`\
+https://nytimes.com/video/us/100000010682068/minneapolis-ice-raids-guns-safety.html
+
+**Roland Huntford, Lore-Debunking Historian of Polar Exploration, Dies at 98**\
+`He caused an uproar by challenging the heroic status of Robert Falcon Scott, the Briton who led a doomed quest to the South Pole in 1912.`\
+https://nytimes.com/2026/02/07/world/roland-huntford-dead.html
+
+**Ranking the best 2026 Super Bowl commercials: For Papa! Will Shat and more**\
+`In the aftermath of every Super Bowl, we talk about the game and the halftime show, but we&#8217;re also eager to discuss the commercials.`\
+https://nytimes.com/athletic/7016254/2026/02/07/super-bowl-commercials-2026-ranking-shatner-instacart-skittles/
+
 **Unrivaled's lucrative 1-on-1 tournament is back. Here's who's playing who**\
 `With a modified format and some of the biggest names in women's basketball, the Unrivaled 1-on-1 tournament promises a show. `\
 https://nytimes.com/athletic/7028406/2026/02/07/unrivaled-1-on-1-tournament-bracket-2026/
