@@ -1,3 +1,7 @@
+**Super Bowl Visitors Find San Francisco Better Than Its Apocalyptic Image**\
+`Problems with homelessness and open-air drug use have been widely broadcast, but many visitors this week said they found the city surprisingly pleasant.`\
+https://nytimes.com/2026/02/06/us/san-francisco-super-bowl.html
+
 **The 2.8.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/02/06/the-2826-issue

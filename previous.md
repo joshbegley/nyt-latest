@@ -1,3 +1,7 @@
+**Super Bowl Visitors Find San Francisco Better Than Its Apocalyptic Image**\
+`Problems with homelessness and open-air drug use have been widely broadcast, but many visitors this week said they found the city surprisingly pleasant.`\
+https://nytimes.com/2026/02/06/us/san-francisco-super-bowl.html
+
 **The 2.8.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/02/06/the-2826-issue
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/06/climate/trump-monument-fishing-northeast-canyons.
 **‘Melania’ and the Missing First Lady**\
 `The documentary highlights a few notable predecessors in the role, burnishing Mrs. Trump’s image by extension. But one apt comparison is pointedly left out.`\
 https://nytimes.com/2026/02/06/movies/melania-documentary-nancy-reagan.html
-
-**Bad Bunny Explains His ‘Purpose’ in Life**\
-`Bad Bunny sat down with Jon Caramanica and Joe Coscarelli, the hosts of Popcast, prior to releasing his Grammy-winning magnum opus, “Debí Tirar Más Fotos,” to discuss how working with young Puerto Rican musicians in his home country ranks among his life’s greatest achievements.`\
-https://nytimes.com/video/podcasts/100000010696585/bad-bunny-explains-his-purpose-in-life.html
 
