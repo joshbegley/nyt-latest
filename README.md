@@ -6,8 +6,8 @@ https://nytimes.com/issue/magazine/2026/02/06/the-2826-issue
 `Our sports correspondent Tariq Panja talks with Katrin Bennhold about the security at the Olympics in Italy, including the presence of Immigration and Customs Enforcement agents, who the U.S. says are there only in an advisory role.`\
 https://nytimes.com/video/world/100000010687900/how-is-security-different-at-these-olympic-games.html
 
-**Keto and Schizophrenia Researcher Says Kennedy Mischaracterized His Work**\
-`Dr. Christopher M. Palmer said in an interview that the keto diet, while promising, did not “cure” the mental disorder as the health secretary had claimed.`\
+**Psychiatrist Says Kennedy Was ‘Not Accurate’ in Discussing His Keto Studies**\
+`Dr. Christopher M. Palmer said in an interview that the keto diet, while promising, did not “cure” schizophrenia as the health secretary had claimed.`\
 https://nytimes.com/2026/02/06/us/politics/christopher-palmer-kennedy-schizophrenia-keto.html
 
 **Exclusive: Anthony Davis' first visit with Wizards was 'great,' but he's got questions**\
