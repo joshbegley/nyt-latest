@@ -1,3 +1,7 @@
+**Pistons' dismantling of Knicks shows why Detroit believes in its talent and team chemistry**\
+`The Eastern Conference's best team has "the perfect world of both" when it comes to talent and team chemistry coach J.B. Bickerstaff said.`\
+https://nytimes.com/athletic/7028528/2026/02/07/pistons-team-chemistry-knicks-win/
+
 **The Briefing: Man Utd 2 Tottenham 0 - Is this turning into a good season? Romero loses hero status?**\
 `Manchester United beat Tottenham Hotspur 2-0 on Saturday afternoon. The Athletic's experts break down the game`\
 https://nytimes.com/athletic/7015743/2026/02/07/man-utd-tottenham-result-score-report-analysis/
