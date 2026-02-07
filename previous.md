@@ -1,3 +1,7 @@
+**The goal worthy of winning any Premier League game**\
+`Jayden Bogle's opening goal for Leeds against Nottingham Forest was perfect — and straight from the training ground`\
+https://nytimes.com/athletic/7028582/2026/02/07/leeds-united-nottingham-forest-ilia-gruev/
+
 **The New York Times in Print for Saturday, Feb. 7, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/07/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7026770/2026/02/07/liverpool-manchester-city-premie
 **Stick to football? Guardiola, Rosenior and the risks and rewards of talking politics**\
 `Lending their voice to non-football issues is not always a straightforward decision for managers and players - it can lead to a backlash`\
 https://nytimes.com/athletic/7023570/2026/02/07/guardiola-rosenior-managers-talking-politics/
-
-**Contract talks, World Cup hopes and a stop-start season – Curtis Jones is at a crossroads**\
-`The midfielder has only started 10 Premier League games this season, leading to speculation over his future`\
-https://nytimes.com/athletic/7023799/2026/02/07/curtis-jones-liverpool-contract-england-world-cup/
 

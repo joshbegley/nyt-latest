@@ -1,3 +1,7 @@
+**The goal worthy of winning any Premier League game**\
+`Jayden Bogle's opening goal for Leeds against Nottingham Forest was perfect — and straight from the training ground`\
+https://nytimes.com/athletic/7028582/2026/02/07/leeds-united-nottingham-forest-ilia-gruev/
+
 **The New York Times in Print for Saturday, Feb. 7, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/07/todays-new-york-times
