@@ -1,3 +1,19 @@
+**Super Bowl LX watch guide: TV info, broadcast predictions, history for Patriots-Seahawks**\
+`The Patriots and Seahawks and Bad Bunny await. Here's what to know about the Super Bowl LX telecast.`\
+https://nytimes.com/athletic/7022436/2026/02/07/super-bowl-2026-watch-guide-best-viewing-options/
+
+**NFL coaches pick the Super Bowl: Seahawks clear favorite, but Patriots have paths to victory**\
+`Five coaches broke down the matchup, and while all favored the Seahawks, they also see how the Patriots could pull the upset.`\
+https://nytimes.com/athletic/7028505/2026/02/07/super-bowl-60-picks-seahawks-patriots-coaches/
+
+**More Snow in Florida Than Utah? Why Weird Weather Has Dominated This Year.**\
+`While iguanas were stunned by freezing cold in Florida, would-be skiers were looking at dirt on Utah’s slopes. Here’s what’s going on, and when it will finally end.`\
+https://nytimes.com/2026/02/07/weather/cold-snow-forecast-us.html
+
+**A hated pair of cleats and a near-benching led to the Super Bowl's greatest defensive play**\
+`The Malcolm Butler play you know, and some of the stories behind it you don't.`\
+https://nytimes.com/athletic/7025978/2026/02/07/malcolm-butler-interception-super-bowl-49/
+
 **Michael Pollan Says Humanity Is About to Undergo a Revolutionary Change**\
 `The best-selling author grapples with big questions about A.I., consciousness and the distractions polluting our minds.`\
 https://nytimes.com/2026/02/07/magazine/michael-pollan-interview.html
@@ -21,20 +37,4 @@ https://nytimes.com/article/trumps-nationalize-voting-elections-midterms-explain
 **Stop Pretending You ‘Need’ Your Phone ‘for Work’**\
 `Plus, summoning the courage to loaf off as flagrantly as the person in the next cubicle.`\
 https://nytimes.com/2026/02/07/business/stop-pretending-you-need-your-phone-for-work.html
-
-**Japan Ocean-Mining Test Successfully Hauls Up Potentially Valuable Mud**\
-`It’s the latest twist in the controversial global race to mine the deep sea for rare-earth elements and other valuable resources.`\
-https://nytimes.com/2026/02/07/climate/ocean-seabed-mining-japan-rare-earths.html
-
-**These Mathematicians Are Putting A.I. to the Test**\
-`Large language models struggle to solve research-level math questions. It takes a human to measure just how poorly they perform.`\
-https://nytimes.com/2026/02/07/science/mathematics-ai-proof-hairer.html
-
-**As Super Bowl Host, Santa Clara Gets the Spotlight. Well, Sort Of.**\
-`Beyond Northern California, fans may not realize that the Super Bowl is actually in this tidy Silicon Valley suburb 45 miles south of San Francisco.`\
-https://nytimes.com/2026/02/07/us/santa-clara-super-bowl.html
-
-**Sullen and Sunburned: The Tradition of Castaways at the Movies**\
-`“Send Help” is just the latest take on a survivalist premise that dates to the 1719 novel “Robinson Crusoe.” These six movies offer fascinating twists.`\
-https://nytimes.com/2026/02/07/movies/send-help-castaway-movies.html
 
