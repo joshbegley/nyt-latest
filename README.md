@@ -1,3 +1,7 @@
+**Team GB loses CAS appeal against skeleton helmet ban for Olympics**\
+`Competition for GB's five sliders begins on February 12 but they will not be able to wear the "novel design".`\
+https://nytimes.com/athletic/7029516/2026/02/07/team-gb-skeleton-helmets-ban-winter-olympics/
+
 **At the Olympics, it's all eyes on Lindsey Vonn. How will her unreal story end?**\
 `Vonn will race Sunday's Olympic downhill with a torn ACL in her left knee. What'll happen is anyone's guess, but it's the talk of the Games.`\
 https://nytimes.com/athletic/7029291/2026/02/07/lindsey-vonn-winter-olympics-downhill-acl-medal/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/7029291/2026/02/07/lindsey-vonn-winter-olympics-dow
 https://nytimes.com/2026/02/07/us/ice-lawyer-quits-minnesota.html
 
 **The Briefing: Newcastle 2 Brentford 3 – Why can't Howe's team hold on to leads? What's happened to summer signings?**\
-`Newcastle blew another lead to extend their losing run to three - The Athletic analyses the talking points from St James' Park`\
+`Newcastle blew another lead to extend their losing run to three – The Athletic analyses the talking points from St James' Park`\
 https://nytimes.com/athletic/7026766/2026/02/07/newcastle-2-brentford-3-eddie-howe-leads-summer-signings/
 
 **McCullough: Terrance Gore embraced his role to become a 3-time World Series champion**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/07/business/trump-truth-social-fake-post-obamas.html
 **USA women's hockey defeats Finland, whose debut was delayed by norovirus outbreak**\
 `The Americans took a decisive 5-0 win Saturday in their second game at the 2026 Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7029186/2026/02/07/usa-womens-hockey-finland-2026-olympics/
-
-**Suzannah Lessard Dies at 81; Stanford White Descendant Who Wrote a Haunting Family Memoir**\
-`Growing up in a family of secrets, on a compound designed by her great-grandfather, made her a writer who investigated the built world with a wary eye.`\
-https://nytimes.com/2026/02/07/books/suzannah-lessard-dead.html
 
