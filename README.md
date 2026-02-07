@@ -1,3 +1,7 @@
+**McCullough: Terrence Gore embraced his role to become a 3-time World Series champion**\
+`For Royals fans, Gore represents a connection to an era where the team made consecutive World Series and won a championship.`\
+https://nytimes.com/athletic/7029497/2026/02/07/terrence-gore-death-mlb-career-world-series-champion/
+
 **Jaxson Hayes, Jase Richardson among 2026 NBA Slam Dunk competitors**\
 `The league has not revealed the participants in the 3-point shooting contest at NBA All-Star Weekend at the Intuit Dome in Inglewood, Calif.`\
 https://nytimes.com/athletic/7029345/2026/02/07/nba-all-star-dunk-contest-shooting-stars-3-point/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/07/nyregion/nyc-snow-ice-dirt.html
 **How to watch Mavericks vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029337/2026/02/07/mavericks-vs-spurs-stream-how-to-watch-feb-7/
-
-**How to watch Hornets vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7029328/2026/02/07/hornets-vs-hawks-stream-how-to-watch-feb-7/
 
