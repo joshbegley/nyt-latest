@@ -1,3 +1,15 @@
+**Exclusive: Anthony Davis' first visit with Wizards was 'great,' but he's got questions**\
+`Davis wants to have more detailed discussions with the Wizards' braintrust about how it plans to get the franchise to contender level.`\
+https://nytimes.com/athletic/7028119/2026/02/06/anthony-davis-trade-response-wizards-nba/
+
+**Giants (finally!) announce Tony Vitello's coaching staff**\
+`The list of coaches who will report to Vitello went public just four days before the team will report to spring training.`\
+https://nytimes.com/athletic/7028338/2026/02/06/sf-giants-coaching-staff-tony-vitello/
+
+**Trading Jared McCain was smart, but can the Sixers' front office live with it?**\
+`McCain’s departure strengthens long-term assets, but leaves the Sixers thin in the backcourt for the postseason.`\
+https://nytimes.com/athletic/7027455/2026/02/06/jared-mccain-trade-sixers-front-office/
+
 **Colorado Funeral Home Director Is Sentenced to 40 Years in Corpse Abuse Case**\
 `“I deserve every word you have said and every day that I will sit in prison,” Jon Hallford said in court on Friday. Investigators found nearly 200 decomposing bodies stored improperly.`\
 https://nytimes.com/2026/02/06/us/colorado-funeral-home-scandal-owner.html
