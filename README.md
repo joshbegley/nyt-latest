@@ -1,10 +1,14 @@
+**Whistle-Blower Report Involved Intelligence About a Trump Contact**\
+`Tulsi Gabbard, the director of national intelligence, moved to lock down an intelligence intercept that referred to someone close to President Trump, the report said.`\
+https://nytimes.com/2026/02/07/us/politics/whistle-blower-gabbard-trump.html
+
 **See the biggest moments from the 2026 Olympics in Italy.**\
 ``\
 https://nytimes.com/live/2026/02/07/world/olympics-italy-photos
 
 **Ilia Malinin, the ‘Quad God,’ leaves an ace in his sleeve.**\
 `Summary`\
-https://nytimes.com/2026/02/07/world/ilia-malinin-short-program.html
+https://nytimes.com/2026/02/07/world/olympics-ilia-malinin-short-program.html
 
 **Ohio Man Is Charged With Threatening to Kill JD Vance**\
 `During the investigation, the man was found to have child sex abuse materials on his phone, federal prosecutors said.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029608/2026/02/07/winter-olympics-ski-jumping-anna
 **How to watch Florida vs. Texas A&M men's basketball: Time, TV, streaming**\
 `Find out how to watch the Florida Gators play the Texas A&M Aggies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029650/2026/02/07/florida-vs-texas-a-m-stream-how-to-watch-feb-7/
-
-**How to watch Houston vs. BYU men's basketball: Time, TV, streaming**\
-`Find out how to watch the Houston Cougars play the BYU Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7029648/2026/02/07/houston-vs-byu-stream-how-to-watch-feb-7/
 
