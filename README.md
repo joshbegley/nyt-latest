@@ -1,3 +1,7 @@
+**Patriots’ Spillane, Landry questionable for Super Bowl; Emmanwori will play**\
+`Seahawks coach Mike McDonald previously said Emmanwori would play in Sunday's game.`\
+https://nytimes.com/athletic/7028405/2026/02/06/patriots-super-bowl-seahawks-injury/
+
 **In a Close Election, Voters Send a Sharp Anti-Trump Message**\
 `The Democratic primary to replace Gov. Mikie Sherrill of New Jersey in Congress is still too close to call. Much of the advertising focused on opposition to the president and his immigration policies.`\
 https://nytimes.com/2026/02/06/nyregion/new-jersey-special-election-malinowski-mejia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7028338/2026/02/06/sf-giants-coaching-staff-tony-vi
 **Trading Jared McCain was smart, but can the Sixers' front office live with it?**\
 `McCain’s departure strengthens long-term assets, but leaves the Sixers thin in the backcourt for the postseason.`\
 https://nytimes.com/athletic/7027455/2026/02/06/jared-mccain-trade-sixers-front-office/
-
-**Colorado Funeral Home Director Is Sentenced to 40 Years in Corpse Abuse Case**\
-`“I deserve every word you have said and every day that I will sit in prison,” Jon Hallford said in court on Friday. Investigators found nearly 200 decomposing bodies stored improperly.`\
-https://nytimes.com/2026/02/06/us/colorado-funeral-home-scandal-owner.html
 
