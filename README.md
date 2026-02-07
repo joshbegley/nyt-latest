@@ -1,3 +1,7 @@
+**Forest's Cuiabano moves to Vasco da Gama on loan until 2027**\
+`The 22-year-old signed in the summer but is yet to make a first-team appearance for Sean Dyche's side. `\
+https://nytimes.com/athletic/7029140/2026/02/07/cuiabano-nottingham-forest-vasco-da-gama-loan/
+
 **Inside USA's Winter House in Milan, a private space for athletes to enjoy the Olympics**\
 `The Winter House is a joint venture between USA Hockey, U.S. Figure Skating and U.S. Speedskating.`\
 https://nytimes.com/athletic/7029086/2026/02/07/team-usa-olympics-winter-house-hockey-figure-skating-speedskating/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7028528/2026/02/07/pistons-team-chemistry-knicks-wi
 **The Briefing: Man Utd 2 Tottenham 0 — Is this turning into a good season? Frank's situation? Has Romero lost his hero status?**\
 `Manchester United beat Tottenham Hotspur 2-0 on Saturday afternoon. The Athletic's experts break down the game`\
 https://nytimes.com/athletic/7015743/2026/02/07/man-utd-tottenham-result-score-report-analysis/
-
-**How to watch Rockets vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7029028/2026/02/07/rockets-vs-thunder-stream-how-to-watch-feb-7/
 
