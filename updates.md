@@ -1,3 +1,11 @@
+**USA women's hockey defeats Finland, whose debut was delayed by norovirus outbreak**\
+`The Americans took a decisive 5-0 win on Saturday in their second game at the 2026 Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7029186/2026/02/07/usa-womens-hockey-finland-2026-olympics/
+
+**Suzannah Lessard Dies at 81; Stanford White Descendant Who Wrote a Haunting Family Memoir**\
+`Growing up in a family of secrets, on a compound designed by her great-grandfather, made her a writer who investigated the built world with a wary eye.`\
+https://nytimes.com/2026/02/07/books/suzannah-lessard-dead.html
+
 **Francesca Lollobrigida delivers Italy a Winter Olympic gold and day's best moment**\
 `On her 35th birthday, Lollobrigida set an Olympic record to win gold, setting off a raucous celebration with her team and son, Tomasso.`\
 https://nytimes.com/athletic/7029268/2026/02/07/francesca-lollobrigida-winter-olympics-italy-speedskating-gold-son/
