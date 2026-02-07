@@ -1,3 +1,7 @@
+**Why ICE Raids in Minneapolis Are Driving Up Demand for Guns**\
+`Gun permit applications have surged in Minnesota since ICE raids began across the state in December.`\
+https://nytimes.com/video/us/100000010682068/minneapolis-ice-raids-guns-safety.html
+
 **Forest's Cuiabano moves to Vasco da Gama on loan until 2027**\
 `The 22-year-old signed in the summer but is yet to make a first-team appearance for Sean Dyche's side. `\
 https://nytimes.com/athletic/7029140/2026/02/07/cuiabano-nottingham-forest-vasco-da-gama-loan/

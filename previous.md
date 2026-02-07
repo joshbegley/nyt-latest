@@ -10,7 +10,7 @@ https://nytimes.com/athletic/7029086/2026/02/07/team-usa-olympics-winter-house-h
 `Horford also discusses how he'll be attending the Super Bowl and rooting for the New England Patriots.`\
 https://nytimes.com/athletic/7028746/2026/02/07/al-horford-trade-deadline-kristaps-porzingis-steph-curry/
 
-**Why Ice Raids in Minneapolis Are Driving Up Demand for Guns**\
+**Why ICE Raids in Minneapolis Are Driving Up Demand for Guns**\
 `Gun permit applications have surged in Minnesota since ICE raids began across the state in December.`\
 https://nytimes.com/video/us/100000010682068/minneapolis-ice-raids-guns-safety.html
 
