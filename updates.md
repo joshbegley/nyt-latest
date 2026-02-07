@@ -1,3 +1,7 @@
+**How Hard Is It to Rig an American Election, Really?**\
+`The round table convenes to debate whether we need to worry about the midterms being free and fair.`\
+https://nytimes.com/video/opinion/100000010693264/how-hard-is-it-to-rig-an-american-election-really.html
+
 **Russian Strikes Pummel Ukraine’s Power Grid**\
 `The drone and missile bombardments were the latest attacks on Ukrainian energy infrastructure during a winter freeze, as peace talks have made little progress.`\
 https://nytimes.com/2026/02/07/world/europe/russia-strikes-ukraine-energy.html
