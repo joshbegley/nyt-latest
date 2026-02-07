@@ -1,3 +1,7 @@
+**Former Jets first-round pick Darron Lee charged in girlfriend's murder**\
+`The New York Jets selected Lee with the No. 20 pick in the 2016 draft.`\
+https://nytimes.com/athletic/7028469/2026/02/06/darron-lee-jets-charged-murder/
+
 **Giannis Antetokounmpo joins prediction-market company Kalshi as investor**\
 `The Bucks forward is believed to be first basketball player to partner with a prediction-market company.`\
 https://nytimes.com/athletic/7028388/2026/02/06/giannis-antetokounmpo-kalshi-nba-prediction-market/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/06/us/politics/christopher-palmer-kennedy-schizophre
 **Exclusive: Anthony Davis' first visit with Wizards was 'great,' but he's got questions**\
 `Davis wants to have more detailed discussions with the Wizards' braintrust about how it plans to get the franchise to contender level.`\
 https://nytimes.com/athletic/7028119/2026/02/06/anthony-davis-trade-response-wizards-nba/
-
-**Giants (finally!) announce Tony Vitello's coaching staff**\
-`The list of coaches who will report to Vitello went public just four days before the team will report to spring training.`\
-https://nytimes.com/athletic/7028338/2026/02/06/sf-giants-coaching-staff-tony-vitello/
 
