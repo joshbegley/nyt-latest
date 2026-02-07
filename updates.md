@@ -1,3 +1,15 @@
+**Unrivaled's lucrative 1-on-1 tournament is back. Here's who's playing who**\
+`With a modified format and some of the biggest names in women's basketball, the Unrivaled 1-on-1 tournament promises a show. `\
+https://nytimes.com/athletic/7028406/2026/02/07/unrivaled-1-on-1-tournament-bracket-2026/
+
+**Valentine’s Day Treats to Fall in Love With Again and Again**\
+`Raspberry and cream éclairs, chocolate lava cake and turtle bars, to name a few.`\
+https://nytimes.com/2026/02/07/dining/valentines-day-treats-to-fall-in-love-with-again-and-again.html
+
+**The Briefing: Man Utd 2 Tottenham 0 — Is this turning into a good season? Frank's situation? Has Romero lost his hero status?**\
+`Manchester United beat Tottenham Hotspur 2-0 on Saturday afternoon. The Athletic's experts break down the game`\
+https://nytimes.com/athletic/7015743/2026/02/07/man-utd-tottenham-result-score-report-analysis/
+
 **Pistons' dismantling of Knicks shows why Detroit believes in its talent and team chemistry**\
 `The Eastern Conference's best team has "the perfect world of both" when it comes to talent and team chemistry coach J.B. Bickerstaff said.`\
 https://nytimes.com/athletic/7028528/2026/02/07/pistons-team-chemistry-knicks-win/
