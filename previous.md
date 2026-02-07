@@ -1,3 +1,7 @@
+**The Pulse: Music steals the show at opening ceremony**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7028664/2026/02/07/music-steals-the-show-at-opening-ceremony-plus-vonn-trains-without-issue/
+
 **Crash disrupts Jessie Diggins as Frida Karlsson wins Olympic skiathlon gold**\
 `Karlsson cruised to her second Olympic medal as the cross-country program began. A first-lap crash hindered the American Diggins' chances.`\
 https://nytimes.com/athletic/7028905/2026/02/07/winter-olympics-jessie-diggins-skiathlon-frida-karlsson/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/07/opinion/trump-obama-apes-post-video.html
 **The best and most jarring decisions made at the trade deadline**\
 `An astounding 28 deals were made in the seven days preceding this year's deadline.`\
 https://nytimes.com/athletic/7027334/2026/02/07/nba-trade-deadline-best-worst-decisions/
-
-**Submit your Blackhawks questions for Scott Powers' mailbag**\
-`Have a question about the Blackhawks? Send it in here, and Scott may answer it in an upcoming mailbag.`\
-https://nytimes.com/athletic/7027466/2026/02/07/blackhawks-questions-scott-powers-mailbag/
 

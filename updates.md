@@ -1,3 +1,7 @@
+**The Pulse: Music steals the show at opening ceremony**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7028664/2026/02/07/music-steals-the-show-at-opening-ceremony-plus-vonn-trains-without-issue/
+
 **Crash disrupts Jessie Diggins as Frida Karlsson wins Olympic skiathlon gold**\
 `Karlsson cruised to her second Olympic medal as the cross-country program began. A first-lap crash hindered the American Diggins' chances.`\
 https://nytimes.com/athletic/7028905/2026/02/07/winter-olympics-jessie-diggins-skiathlon-frida-karlsson/
