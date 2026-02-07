@@ -1,3 +1,11 @@
+**Ilia Malinin, the ‘Quad God,’ leaves an ace in his sleeve.**\
+`Summary`\
+https://nytimes.com/2026/02/07/world/ilia-malinin-short-program.html
+
+**Ohio Man Is Charged With Threatening to Kill JD Vance**\
+`During the investigation, the man was found to have child sex abuse materials on his phone, federal prosecutors said.`\
+https://nytimes.com/2026/02/07/us/politics/jd-vance-threat-charged-ohio.html
+
 **How to watch Warriors vs. Lakers: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Los Angeles Lakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029661/2026/02/07/warriors-vs-lakers-stream-how-to-watch-feb-7/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7029648/2026/02/07/houston-vs-byu-stream-how-to-wat
 **Wizards' Anthony Davis is unlikely to play again this season: Source**\
 `The Wizards acquired the 10-time All-Star from the Dallas Mavericks just before this year's NBA trade deadline.`\
 https://nytimes.com/athletic/7029498/2026/02/07/anthony-davis-washington-wizards-injury-rehab/
-
-**Japan's Kira Kimura wins gold in men's snowboard big air with US teen Ollie Martin fourth**\
-`American teen Ollie Martin, 17, finishes fourth on his Olympic debut as Kira Kimura wins the men's snowboard big air gold. `\
-https://nytimes.com/athletic/7029413/2026/02/07/mens-big-air-final-kira-kimura-ollie-martin-2026-winter-olympics/
-
-**Team GB loses CAS appeal against skeleton helmet ban for Olympics**\
-`Competition for GB's five sliders begins on February 12 but they will not be able to wear the "novel design".`\
-https://nytimes.com/athletic/7029516/2026/02/07/team-gb-skeleton-helmets-ban-winter-olympics/
 

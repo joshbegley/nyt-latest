@@ -1,3 +1,11 @@
+**Ilia Malinin, the ‘Quad God,’ leaves an ace in his sleeve.**\
+`Summary`\
+https://nytimes.com/2026/02/07/world/ilia-malinin-short-program.html
+
+**Ohio Man Is Charged With Threatening to Kill JD Vance**\
+`During the investigation, the man was found to have child sex abuse materials on his phone, federal prosecutors said.`\
+https://nytimes.com/2026/02/07/us/politics/jd-vance-threat-charged-ohio.html
+
 **How to watch Warriors vs. Lakers: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Los Angeles Lakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029661/2026/02/07/warriors-vs-lakers-stream-how-to-watch-feb-7/
