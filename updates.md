@@ -1,3 +1,7 @@
+**Barcelona 'formally withdraws' from European Super League project**\
+`The 20-team, closed-shop ESL was initially launched in April 2021, but fell apart following a substantial backlash from supporters.`\
+https://nytimes.com/athletic/7028881/2026/02/07/barcelona-european-super-league-teams/
+
 **Trump Reverts to Diplomacy With Iran, but the Road Is Narrow**\
 `Iran is skilled at prolonging negotiations over its nuclear program, and seems to be hoping President Trump is out for a quick win, rather than a prolonged regional war.`\
 https://nytimes.com/2026/02/07/world/europe/iran-us-trump-diplomacy.html
