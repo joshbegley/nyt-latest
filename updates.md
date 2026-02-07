@@ -1,3 +1,7 @@
+**Russian Strikes Pummel Ukraine’s Power Grid**\
+`The drone and missile bombardments were the latest attacks on Ukrainian energy infrastructure during a winter freeze, as peace talks have made little progress.`\
+https://nytimes.com/2026/02/07/world/europe/russia-strikes-ukraine-energy.html
+
 **Oviedo to 'pursue legal actions' after game at Rayo called off**\
 `The game was scheduled to be played on Saturday afternoon at 2pm local time, but was postponed less than four hours before kick-off.`\
 https://nytimes.com/athletic/7028812/2026/02/07/rayo-vallecano-oviedo-postponed-la-liga/
