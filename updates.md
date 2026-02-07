@@ -1,3 +1,7 @@
+**Former Jets first-round pick Darron Lee charged in girlfriend's murder**\
+`The New York Jets selected Lee with the No. 20 pick in the 2016 draft.`\
+https://nytimes.com/athletic/7028469/2026/02/06/darron-lee-jets-charged-murder/
+
 **Giannis Antetokounmpo joins prediction-market company Kalshi as investor**\
 `The Bucks forward is believed to be first basketball player to partner with a prediction-market company.`\
 https://nytimes.com/athletic/7028388/2026/02/06/giannis-antetokounmpo-kalshi-nba-prediction-market/
