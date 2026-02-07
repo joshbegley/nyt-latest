@@ -1,3 +1,11 @@
+**Exclusive: Anthony Davis' first visit with Wizards was 'great,' but he's got questions**\
+`Davis wants to have more detailed discussions with the Wizards' braintrust about how it plans to get the franchise to contender level.`\
+https://nytimes.com/athletic/7028119/2026/02/06/anthony-davis-trade-response-wizards-nba/
+
+**Giants (finally!) announce Tony Vitello's coaching staff**\
+`The list of coaches who will report to Vitello went public just four days before the team will report to spring training.`\
+https://nytimes.com/athletic/7028338/2026/02/06/sf-giants-coaching-staff-tony-vitello/
+
 **Trading Jared McCain was smart, but can the Sixers' front office live with it?**\
 `McCain’s departure strengthens long-term assets, but leaves the Sixers thin in the backcourt for the postseason.`\
 https://nytimes.com/athletic/7027455/2026/02/06/jared-mccain-trade-sixers-front-office/
@@ -30,12 +38,4 @@ https://nytimes.com/2026/02/06/us/politics/amodei-republican-nevada-congress.htm
 `How long will “The Star-Spangled Banner” be? Will the coin toss come up heads or tails? Will the Gatorade dumped on the winning coach be lemon-lime, orange or another flavor altogether?
 Guessing the outcome of mostly trivial Super Bowl-related events, known as “prop bets” to fans, has long been a party game, whether or not real money is on the line.`\
 https://nytimes.com/athletic/7007032/2026/02/06/play-the-athletics-2026-super-bowl-predictions-party-game/
-
-**F.B.I. Investigates Links to Biological Labs in Las Vegas and California**\
-`The Las Vegas lab had vials of a “reddish liquid,” the police said. The California lab, uncovered in 2023, had materials “possibly associated with infectious diseases,” officials said.`\
-https://nytimes.com/2026/02/06/us/biolab-las-vegas-california.html
-
-**A First Look Below Antarctica’s Most Menacing Glacier**\
-`Scientists on the Thwaites Glacier attempted to install equipment beneath the ice to better understand how it is melting. Our climate reporter Raymond Zhong walks us through their landmark experiment and the bittersweet outcome.`\
-https://nytimes.com/video/climate/100000010684396/a-first-look-below-antarcticas-most-menacing-glacier.html
 
