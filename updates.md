@@ -1,3 +1,11 @@
+**Man Pleads Guilty to Arson in 2019 Attack on Tennessee Civil Rights Center**\
+`The man also pleaded guilty this week to a charge of attempting to provide material support to a foreign terrorist organization, Hezbollah.`\
+https://nytimes.com/2026/02/07/us/tennessee-arson-guilty-plea-landmark.html
+
+**Washington Post C.E.O. Will Lewis Steps Down After Stormy Tenure**\
+`His departure came days after the company cut 30 percent of the staff. He will be replaced in the interim by Jeff D’Onofrio, the chief financial officer, the company said.`\
+https://nytimes.com/2026/02/07/technology/washington-post-will-lewis.html
+
 **Facing Regulatory Scrutiny, Hims & Hers Withdraws Knockoff Obesity Pill**\
 `Federal officials had warned that the new product from the online provider of weight loss drugs might be illegal.`\
 https://nytimes.com/2026/02/07/health/hims-obesity-pill-wegovy-novo-nordisk.html
