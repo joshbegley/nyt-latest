@@ -1,3 +1,7 @@
+**Who’s in Charge Here?**\
+`Chloe Revery’s first Sunday puzzle aces its performance review.`\
+https://nytimes.com/2026/02/07/crosswords/daily-puzzle-2026-02-08.html
+
 **Washington Post C.E.O. Will Lewis Steps Down After Stormy Tenure**\
 `Mr. Lewis will be replaced in the interim by Jeff D’Onofrio, formerly the chief financial officer, the company said.`\
 https://nytimes.com/2026/02/07/technology/washington-post-will-lewis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029685/2026/02/07/hull-bristol-city-squirrel-stopp
 **Warriors convert Pat Spencer to full NBA contract after breakout performance**\
 `The 29-year-old point guard has become popular within the Warriors' locker room because of his attitude and work ethic.`\
 https://nytimes.com/athletic/7029709/2026/02/07/warriors-pat-spencer-full-nba-contract/
-
-**Whistle-Blower Report Involved Intelligence About a Trump Contact**\
-`Tulsi Gabbard, the director of national intelligence, moved to lock down an intelligence intercept that referred to someone close to President Trump, the report said.`\
-https://nytimes.com/2026/02/07/us/politics/whistle-blower-gabbard-trump.html
 
