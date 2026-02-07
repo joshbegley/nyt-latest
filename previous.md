@@ -1,3 +1,15 @@
+**The Briefing: Man Utd 2 Tottenham 0 - Is this turning into a good season? Romero loses hero status?**\
+`Manchester United beat Tottenham Hotspur 2-0 on Saturday afternoon. The Athletic's experts break down the game`\
+https://nytimes.com/athletic/7015743/2026/02/07/man-utd-tottenham-result-score-report-analysis/
+
+**How to watch Rockets vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029028/2026/02/07/rockets-vs-thunder-stream-how-to-watch-feb-7/
+
+**How to watch Wizards vs. Nets: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029024/2026/02/07/wizards-vs-nets-stream-how-to-watch-feb-7/
+
 **'It starts with me': Rudy Gobert says Wolves should bench players who aren't giving effort**\
 `After blowing an 18-point lead to the Pelicans, the Wolves' center called out the overall effort in a shocking loss.`\
 https://nytimes.com/athletic/7028536/2026/02/07/rudy-gobert-chris-finch-bench-players-timberwolves/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7028998/2026/02/07/oklahoma-vs-vanderbilt-stream-ho
 **Scoot Henderson, finally back on the court for Blazers, finds peace amid a raging storm**\
 `An interesting thing happened while Scoot Henderson missed 51 games recovering from a hamstring injury: He recommitted to his faith.`\
 https://nytimes.com/athletic/7028803/2026/02/07/scoot-henderson-nba-season-debut-blazers-faith/
-
-**What's next for the Los Angeles Rams now that Matthew Stafford is back for 2026?**\
-`One way or another, it’s going to be a more aggressive offseason in Los Angeles, with all eyes on a return to the Super Bowl.`\
-https://nytimes.com/athletic/7028364/2026/02/07/whats-next-rams-stafford-mvp-2026/
-
-**Peter Attia, the Epstein Files and the Lie Propping Up Big Wellness**\
-`Health influencers sell themselves as iconoclasts, but many have cozy, uncritical relationships with the rich and powerful.`\
-https://nytimes.com/2026/02/07/opinion/peter-attia-epstein-health-influencer.html
-
-**Take a peek inside the athletes' village at the Milan Olympics**\
-`The village hosts roughly 1,500 athletes in dormitory-style rooms for this year's Winter Games.`\
-https://nytimes.com/athletic/7028796/2026/02/07/milan-winter-olympics-athletes-village-inside-tour/
 
