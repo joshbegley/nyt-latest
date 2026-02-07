@@ -1,3 +1,11 @@
+**‘These Were the Best Wings We’ve Ever Had’**\
+`These chipotle honey chicken wings are a fast reader favorite, easy for Sunday’s big game.`\
+https://nytimes.com/2026/02/07/dining/these-were-the-best-wings-weve-ever-had.html
+
+**Saudis Announce New Investments in Syria, a Sign of Deepening Ties**\
+`Saudi and Syrian officials announced deals ranging from aviation to telecommunications, offering a much-needed boost to Syria’s battered economy.`\
+https://nytimes.com/2026/02/07/world/middleeast/saudi-arabia-investment-syria-al-sharaa.html
+
 **Why ICE Raids in Minneapolis Are Driving Up Demand for Guns**\
 `Gun permit applications have surged in Minnesota since ICE raids began across the state in December.`\
 https://nytimes.com/video/us/100000010682068/minneapolis-ice-raids-guns-safety.html

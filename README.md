@@ -1,3 +1,15 @@
+**Is this Junk Wax Era 2.0 for sports cards? We did the math**\
+`There are growing concerns among collectors around rising print runs, but how do they compare to the most overprinted era? `\
+https://nytimes.com/athletic/7028558/2026/02/07/sports-cards-junk-wax/
+
+**What to Know About the Cold Snap in New York This Weekend**\
+`Cold-weary New Yorkers will get hit by another blast of frigid weather. Here’s what to expect, and what the city is doing to protect the vulnerable.`\
+https://nytimes.com/2026/02/07/nyregion/nyc-weather-extreme-cold-warning.html
+
+**Emma Raducanu loses first final since U.S. Open 2021 to Sorana Cirstea**\
+`Raducanu's comeback wins earlier in the Transylvania Open appeared to catch up with her in a straight-sets loss.`\
+https://nytimes.com/athletic/7029085/2026/02/07/tennis-raducanu-cirstea-result-analysis-wta/
+
 **‘These Were the Best Wings We’ve Ever Had’**\
 `These chipotle honey chicken wings are a fast reader favorite, easy for Sunday’s big game.`\
 https://nytimes.com/2026/02/07/dining/these-were-the-best-wings-weve-ever-had.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/100000010682068/minneapolis-ice-raids-guns-safety.h
 **Roland Huntford, Lore-Debunking Historian of Polar Exploration, Dies at 98**\
 `He caused an uproar by challenging the heroic status of Robert Falcon Scott, the Briton who led a doomed quest to the South Pole in 1912.`\
 https://nytimes.com/2026/02/07/world/roland-huntford-dead.html
-
-**Unrivaled's lucrative 1-on-1 tournament is back. Here's who's playing who**\
-`With a modified format and some of the biggest names in women's basketball, the Unrivaled 1-on-1 tournament promises a show. `\
-https://nytimes.com/athletic/7028406/2026/02/07/unrivaled-1-on-1-tournament-bracket-2026/
-
-**Valentine’s Day Treats to Fall in Love With Again and Again**\
-`Raspberry and cream éclairs, chocolate lava cake and turtle bars, to name a few.`\
-https://nytimes.com/2026/02/07/dining/valentines-day-treats-to-fall-in-love-with-again-and-again.html
-
-**Ranking the best 2026 Super Bowl commercials: For Papa! Will Shat and more**\
-`In the aftermath of every Super Bowl, we talk about the game and the halftime show, but we&#8217;re also eager to discuss the commercials.`\
-https://nytimes.com/athletic/7016254/2026/02/07/super-bowl-commercials-2026-ranking-shatner-instacart-skittles/
 

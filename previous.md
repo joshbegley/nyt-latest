@@ -1,3 +1,11 @@
+**‘These Were the Best Wings We’ve Ever Had’**\
+`These chipotle honey chicken wings are a fast reader favorite, easy for Sunday’s big game.`\
+https://nytimes.com/2026/02/07/dining/these-were-the-best-wings-weve-ever-had.html
+
+**Saudis Announce New Investments in Syria, a Sign of Deepening Ties**\
+`Saudi and Syrian officials announced deals ranging from aviation to telecommunications, offering a much-needed boost to Syria’s battered economy.`\
+https://nytimes.com/2026/02/07/world/middleeast/saudi-arabia-investment-syria-al-sharaa.html
+
 **Forest's Cuiabano moves to Vasco da Gama on loan until 2027**\
 `The 22-year-old signed in the summer but is yet to make a first-team appearance for Sean Dyche's side. `\
 https://nytimes.com/athletic/7029140/2026/02/07/cuiabano-nottingham-forest-vasco-da-gama-loan/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/07/dining/valentines-day-treats-to-fall-in-love-with
 **Ranking the best 2026 Super Bowl commercials: For Papa! Will Shat and more**\
 `In the aftermath of every Super Bowl, we talk about the game and the halftime show, but we&#8217;re also eager to discuss the commercials.`\
 https://nytimes.com/athletic/7016254/2026/02/07/super-bowl-commercials-2026-ranking-shatner-instacart-skittles/
-
-**Pistons' dismantling of Knicks shows why Detroit believes in its talent and team chemistry**\
-`The Eastern Conference's best team has "the perfect world of both" when it comes to talent and team chemistry coach J.B. Bickerstaff said.`\
-https://nytimes.com/athletic/7028528/2026/02/07/pistons-team-chemistry-knicks-win/
-
-**The Briefing: Man Utd 2 Tottenham 0 — Is this turning into a good season? Frank's situation? Has Romero lost his hero status?**\
-`Manchester United beat Tottenham Hotspur 2-0 on Saturday afternoon. The Athletic's experts break down the game`\
-https://nytimes.com/athletic/7015743/2026/02/07/man-utd-tottenham-result-score-report-analysis/
 
