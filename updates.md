@@ -1,3 +1,16 @@
+**Yankees agree with Paul Goldschmidt on 1-year deal: Source**\
+`Goldschmidt, 38, posted a 169 wRC+ against lefties, but only a 74 wRC+ against righties with the Yankees in 2025. `\
+https://nytimes.com/athletic/6808588/2026/02/06/mlb-paul-goldschmidt-free-agency-signing-yankees/
+
+**Republican Chairman of Homeland Security Spending Panel to Exit Congress**\
+`Representative Mark Amodei of Nevada added his name to the growing list of Republicans planning to give up their seats as their party faces losses that could cost them the House.`\
+https://nytimes.com/2026/02/06/us/politics/amodei-republican-nevada-congress.html
+
+**Play The Athletic’s 2026 Super Bowl predictions party game**\
+`How long will “The Star-Spangled Banner” be? Will the coin toss come up heads or tails? Will the Gatorade dumped on the winning coach be lemon-lime, orange or another flavor altogether?
+Guessing the outcome of mostly trivial Super Bowl-related events, known as “prop bets” to fans, has long been a party game, whether or not real money is on the line.`\
+https://nytimes.com/athletic/7007032/2026/02/06/play-the-athletics-2026-super-bowl-predictions-party-game/
+
 **F.B.I. Investigates Links to Biological Labs in Las Vegas and California**\
 `The Las Vegas lab had vials of a “reddish liquid,” the police said. The California lab, uncovered in 2023, had materials “possibly associated with infectious diseases,” officials said.`\
 https://nytimes.com/2026/02/06/us/biolab-las-vegas-california.html
