@@ -1,3 +1,7 @@
+**USA women's hockey defeats Finland, whose debut was delayed by norovirus outbreak**\
+`The Americans took a decisive 5-0 win Saturday in their second game at the 2026 Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7029186/2026/02/07/usa-womens-hockey-finland-2026-olympics/
+
 **Fake Post, Which Looked to Be Trump’s on Truth Social, Spreads Widely**\
 `The post appeared to describe the president’s rationale for deleting a racist video about the Obamas that he had shared.`\
 https://nytimes.com/2026/02/07/business/trump-truth-social-fake-post-obamas.html

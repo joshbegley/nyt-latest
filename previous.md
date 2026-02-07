@@ -3,7 +3,7 @@
 https://nytimes.com/2026/02/07/business/trump-truth-social-fake-post-obamas.html
 
 **USA women's hockey defeats Finland, whose debut was delayed by norovirus outbreak**\
-`The Americans took a decisive 5-0 win on Saturday in their second game at the 2026 Milan Cortina Olympics.`\
+`The Americans took a decisive 5-0 win Saturday in their second game at the 2026 Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7029186/2026/02/07/usa-womens-hockey-finland-2026-olympics/
 
 **Suzannah Lessard Dies at 81; Stanford White Descendant Who Wrote a Haunting Family Memoir**\
