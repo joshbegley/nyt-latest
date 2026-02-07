@@ -1,3 +1,15 @@
+**How to watch Mavericks vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029337/2026/02/07/mavericks-vs-spurs-stream-how-to-watch-feb-7/
+
+**How to watch Hornets vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029328/2026/02/07/hornets-vs-hawks-stream-how-to-watch-feb-7/
+
+**How to watch Nuggets vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029326/2026/02/07/nuggets-vs-bulls-stream-how-to-watch-feb-7/
+
 **How to watch Jazz vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029324/2026/02/07/jazz-vs-magic-stream-how-to-watch-feb-7/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7029298/2026/02/07/illinois-vs-michigan-state-strea
 **How to watch Clemson vs. Cal men's basketball: Time, TV, streaming**\
 `Find out how to watch the Clemson Tigers play the California Golden Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029296/2026/02/07/clemson-vs-cal-stream-how-to-watch-feb-7/
-
-**After a fall in qualifying, Eileen Gu welcomes pressure ahead of slopestyle final**\
-`Gu didn't let a fall on her first qualifying run in the slopestyle skiing event stop her from rallying for an impressive second run.`\
-https://nytimes.com/athletic/7029046/2026/02/07/eileen-gu-freestyle-skiing-winter-olympics/
-
-**Pelosi to Endorse Jack Schlossberg, Again Backing a Kennedy for Congress**\
-`The former speaker, a prodigious fund-raiser and shrewd campaign strategist, seldom intervenes in primaries but has made an exception for a Kennedy before.`\
-https://nytimes.com/2026/02/07/us/politics/pelosi-endorse-schlossberg-kennedy.html
-
-**The Briefing: Wolves 1 Chelsea 3 - Is Cole Palmer back? Does Rosenior now know his best XI?**\
-`Cole Palmer's first-half hat-trick powered Chelsea to a comfortable victory over rock-bottom Wolves - we analyse the talking points`\
-https://nytimes.com/athletic/7016454/2026/02/07/wolves-chelsea-score-result-report-analysis/
 
