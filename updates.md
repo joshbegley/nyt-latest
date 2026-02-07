@@ -1,3 +1,11 @@
+**The Briefing: Arsenal 3 Sunderland 0 - What extra does Zubimendi offer? Is Gyokeres finding his role?**\
+`We break down the action as Arsenal went nine points clear of Manchester City with victory at the Emirates.`\
+https://nytimes.com/athletic/7016453/2026/02/07/arsenal-sunderland-zubimendi-gyokeres/
+
+**Rising Progressive Star Shakes Up Race for Los Angeles Mayor**\
+`Nithya Raman, who has been compared to Mayor Zohran Mamdani of New York, presents a significant challenge to the incumbent, Mayor Karen Bass.`\
+https://nytimes.com/2026/02/07/us/nithya-raman-los-angeles-mayor.html
+
 **Rising Progressive Star Shakes Up Race for Los Angeles Mayor**\
 `Nithya Raman, who has been compared to Mayor Zohran Mamdani of New York, presents a significant challenge to the incumbent, Mayor Karen Bass.`\
 https://nytimes.com/2026/02/07/us/rising-progressive-star-shakes-up-race-for-los-angeles-mayor.html

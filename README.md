@@ -1,3 +1,11 @@
+**Pelosi to Endorse Jack Schlossberg, Again Backing a Kennedy for Congress**\
+`The former speaker, a prodigious fund-raiser and shrewd campaign strategist, seldom intervenes in primaries but has made an exception for a Kennedy before.`\
+https://nytimes.com/2026/02/07/us/politics/pelosi-endorse-schlossberg-kennedy.html
+
+**The Briefing: Wolves 1 Chelsea 3 - Is Cole Palmer back? Does Rosenior now know his best XI?**\
+`Chelsea managed to beat Wolves 3-1 on Saturday afternoon, with Palmer scoring a hat-trick`\
+https://nytimes.com/athletic/7016454/2026/02/07/wolves-chelsea-score-result-report-analysis/
+
 **The Briefing: Arsenal 3 Sunderland 0 - What extra does Zubimendi offer? Is Gyokeres finding his role?**\
 `We break down the action as Arsenal went nine points clear of Manchester City with victory at the Emirates.`\
 https://nytimes.com/athletic/7016453/2026/02/07/arsenal-sunderland-zubimendi-gyokeres/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7029085/2026/02/07/tennis-raducanu-cirstea-result-a
 **‘These Were the Best Wings We’ve Ever Had’**\
 `These chipotle honey chicken wings are a fast reader favorite, easy for Sunday’s big game.`\
 https://nytimes.com/2026/02/07/dining/these-were-the-best-wings-weve-ever-had.html
-
-**Saudis Announce New Investments in Syria, a Sign of Deepening Ties**\
-`Saudi and Syrian officials announced deals ranging from aviation to telecommunications, offering a much-needed boost to Syria’s battered economy.`\
-https://nytimes.com/2026/02/07/world/middleeast/saudi-arabia-investment-syria-al-sharaa.html
-
-**Forest's Cuiabano moves to Vasco da Gama on loan until 2027**\
-`The 22-year-old signed in the summer but is yet to make a first-team appearance for Sean Dyche's side. `\
-https://nytimes.com/athletic/7029140/2026/02/07/cuiabano-nottingham-forest-vasco-da-gama-loan/
 
