@@ -1,4 +1,4 @@
-**The Briefing: Newcastle 2 Brentford 3 - Why can't Howe's team hold on to leads? What's happened to summer signings?**\
+**The Briefing: Newcastle 2 Brentford 3 – Why can't Howe's team hold on to leads? What's happened to summer signings?**\
 `Newcastle blew another lead to extend their losing run to three - The Athletic analyses the talking points from St James' Park`\
 https://nytimes.com/athletic/7026766/2026/02/07/newcastle-2-brentford-3-eddie-howe-leads-summer-signings/
 
