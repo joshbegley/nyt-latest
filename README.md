@@ -1,3 +1,7 @@
+**USA women's hockey defeats Finland, whose debut was delayed by norovirus outbreak**\
+`The Americans took a decisive 5-0 win on Saturday in their second game at the 2026 Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7029186/2026/02/07/usa-womens-hockey-finland-2026-olympics/
+
 **Suzannah Lessard Dies at 81; Stanford White Descendant Who Wrote a Haunting Family Memoir**\
 `Growing up in a family of secrets, on a compound designed by her great-grandfather, made her a writer who investigated the built world with a wary eye.`\
 https://nytimes.com/2026/02/07/books/suzannah-lessard-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029309/2026/02/07/arizona-state-vs-baylor-stream-h
 **How to watch Gonzaga vs. Oregon State men's basketball: Time, TV, streaming**\
 `Find out how to watch the Gonzaga Bulldogs play the Oregon State Beavers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029306/2026/02/07/gonzaga-vs-oregon-state-stream-how-to-watch-feb-7/
-
-**How to watch Texas Tech vs. Houston women's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Tech Lady Raiders play the Houston Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7029304/2026/02/07/texas-tech-vs-houston-stream-how-to-watch-feb-7/
 
