@@ -38,6 +38,16 @@ https://nytimes.com/athletic/7022455/2026/02/07/quarterback-cadences-play-calls-
 `\
 https://nytimes.com/athletic/7022180/2026/02/07/prop-bets-super-bowl-seahawks-patriots/
 
+**WATCH: Why do quarterbacks shout "Blue 42?"**\
+`Signal calling, as it's known is so old that most modern players probably don't know why they do it. So, let's dive in.
+`\
+https://nytimes.com/athletic/7022455/2026/02/07/quarterback-cadences-play-calls-color-number/
+
+**The history of Super Bowl prop bets**\
+`Did you know that Super Bowl prop bets were popularized because the game itself, at the time, was too boring? Here's how it happened.
+`\
+https://nytimes.com/athletic/7022180/2026/02/07/prop-bets-super-bowl-seahawks-patriots/
+
 **2026 World Cup base camps: Where each nation is setting up in North America**\
 `FIFA has made a number of locations available to each of the competing nations, with the competition for prime real estate fierce.`\
 https://nytimes.com/athletic/6974353/2026/02/07/world-cup-2026-training-bases-tracker/
