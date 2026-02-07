@@ -1,3 +1,7 @@
+**Japan's Kira Kimura wins gold in men's snowboard big air with US teen Ollie Martin fourth**\
+`American teen Ollie Martin, 17, finishes fourth on his Olympic debut as Kira Kimura wins Olympic big air gold. `\
+https://nytimes.com/athletic/7029413/2026/02/07/mens-big-air-final-kira-kimura-ollie-martin-2026-winter-olympics/
+
 **Team GB loses CAS appeal against skeleton helmet ban for Olympics**\
 `Competition for GB's five sliders begins on February 12 but they will not be able to wear the "novel design".`\
 https://nytimes.com/athletic/7029516/2026/02/07/team-gb-skeleton-helmets-ban-winter-olympics/

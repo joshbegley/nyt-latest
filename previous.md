@@ -1,3 +1,7 @@
+**Japan's Kira Kimura wins gold in men's snowboard big air with US teen Ollie Martin fourth**\
+`American teen Ollie Martin, 17, finishes fourth on his Olympic debut as Kira Kimura wins Olympic big air gold. `\
+https://nytimes.com/athletic/7029413/2026/02/07/mens-big-air-final-kira-kimura-ollie-martin-2026-winter-olympics/
+
 **Team GB loses CAS appeal against skeleton helmet ban for Olympics**\
 `Competition for GB's five sliders begins on February 12 but they will not be able to wear the "novel design".`\
 https://nytimes.com/athletic/7029516/2026/02/07/team-gb-skeleton-helmets-ban-winter-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/07/business/super-bowl-tickets-billionaires.html
 **Fake Post, Which Looked to Be Trump’s on Truth Social, Spreads Widely**\
 `The post appeared to describe the president’s rationale for deleting a racist video about the Obamas that he had shared.`\
 https://nytimes.com/2026/02/07/business/trump-truth-social-fake-post-obamas.html
-
-**USA women's hockey defeats Finland, whose debut was delayed by norovirus outbreak**\
-`The Americans took a decisive 5-0 win Saturday in their second game at the 2026 Milan Cortina Olympics.`\
-https://nytimes.com/athletic/7029186/2026/02/07/usa-womens-hockey-finland-2026-olympics/
 
