@@ -1,3 +1,11 @@
+**How to watch Utah vs. Kansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Utah Utes play the Kansas Jayhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029000/2026/02/07/utah-vs-kansas-stream-how-to-watch-feb-7/
+
+**How to watch Oklahoma vs. Vanderbilt men's basketball: Time, TV, streaming**\
+`Find out how to watch the Oklahoma Sooners play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7028998/2026/02/07/oklahoma-vs-vanderbilt-stream-how-to-watch-feb-7/
+
 **Scoot Henderson, finally back on the court for Blazers, finds peace amid a raging storm**\
 `An interesting thing happened while Scoot Henderson missed 51 games recovering from a hamstring injury: He recommitted to his faith.`\
 https://nytimes.com/athletic/7028803/2026/02/07/scoot-henderson-nba-season-debut-blazers-faith/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/07/world/asia/pakistan-mosque-bombing.html
 **Prediction Markets and Casinos Go to War Over Sports Betting**\
 `Kalshi and Polymarket say their prediction markets are not subject to gambling laws and taxes. The casino industry is lobbying to shut them down as a wave of court cases take on the question.`\
 https://nytimes.com/2026/02/07/business/dealbook/prediction-markets-sports-betting.html
-
-**How is Lindsey Vonn skiing on a torn ACL? Why downhill is different than other sports**\
-`A perfect recipe of circumstances makes downhill skiing doable — though still quite remarkable — for Vonn, even with a torn ACL.`\
-https://nytimes.com/athletic/7028848/2026/02/07/lindsey-vonn-torn-acl-winter-olympics-explained/
-
-**Barcelona 'formally withdraw' from European Super League project**\
-`The 20-team, closed-shop ESL was initially launched in April 2021, but fell apart following a substantial backlash from supporters.`\
-https://nytimes.com/athletic/7028881/2026/02/07/barcelona-european-super-league-teams/
 

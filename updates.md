@@ -1,3 +1,11 @@
+**How to watch Utah vs. Kansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Utah Utes play the Kansas Jayhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029000/2026/02/07/utah-vs-kansas-stream-how-to-watch-feb-7/
+
+**How to watch Oklahoma vs. Vanderbilt men's basketball: Time, TV, streaming**\
+`Find out how to watch the Oklahoma Sooners play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7028998/2026/02/07/oklahoma-vs-vanderbilt-stream-how-to-watch-feb-7/
+
 **Scoot Henderson, finally back on the court for Blazers, finds peace amid a raging storm**\
 `An interesting thing happened while Scoot Henderson missed 51 games recovering from a hamstring injury: He recommitted to his faith.`\
 https://nytimes.com/athletic/7028803/2026/02/07/scoot-henderson-nba-season-debut-blazers-faith/
