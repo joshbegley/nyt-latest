@@ -1,3 +1,29 @@
+**She's a U.S. Olympic skier and also a Stanford soccer player: Meet Sammy Smith**\
+`After Stanford's run to the national title game, Smith had one shot to make the U.S. Olympic cross-country skiing team. And she made it.`\
+https://nytimes.com/athletic/7024677/2026/02/07/shes-an-olympic-skier-and-also-a-stanford-soccer-player-meet-sammy-smith/
+
+**WATCH: Why do quarterbacks shout "Blue 42?"**\
+`Signal calling, as it's known is so old that most modern players probably don't know why they do it. So, let's dive in.
+`\
+https://nytimes.com/athletic/7022455/2026/02/07/quarterback-cadences-play-calls-color-number/
+
+**The history of Super Bowl prop bets**\
+`Did you know that Super Bowl prop bets were popularized because the game itself, at the time, was too boring? Here's how it happened.
+`\
+https://nytimes.com/athletic/7022180/2026/02/07/prop-bets-super-bowl-seahawks-patriots/
+
+**Why do they sweep the ice in curling?**\
+`Want to learn more about what that sweeping in front of the stone really accomplishes in Olympic curling? Let us explain.`\
+https://nytimes.com/athletic/7027221/2026/02/07/why-sweep-ice-curling-olympics/
+
+**WATCH: Does the Super Bowl break sewage systems?**\
+`In 1984, a pipe burst during the halftime show of Super Bowl XVIII. It was theorized to be due to the "super flush" phenomenon. But was it?`\
+https://nytimes.com/athletic/7021821/2026/02/07/super-bowl-sewer-system-super-flush/
+
+**Transfer window analysis: Who were the best statical fits to improve their new team?**\
+`Picking the three Premier League January window transfers that made the most statistical sense`\
+https://nytimes.com/athletic/7026353/2026/02/07/numbers-to-know-transfer-window-man-citys-home-run-and-semenyos-replacement/
+
 **Landlord Accused of Offering Rent-Stabilized Apartments as Hotel Rooms**\
 `The city filed a lawsuit on Friday against Mark David Militana, the owner of two brownstones on the Upper West Side, claiming he had made $550,000 from the illegal rentals.`\
 https://nytimes.com/2026/02/07/nyregion/landlord-accused-of-offering-rent-stabilized-apartments-as-hotel-rooms.html
@@ -13,28 +39,4 @@ https://nytimes.com/2026/02/07/crosswords/spelling-bee-forum.html
 **Nottingham Forest need to rediscover their defensive solidity after Leeds loss**\
 `Forest had a makeshift defence against Leeds and struggled as a result`\
 https://nytimes.com/athletic/7028281/2026/02/07/nottingham-forest-leeds-analysis/
-
-**The goal worthy of winning any Premier League game**\
-`Jayden Bogle's opening goal for Leeds against Nottingham Forest was perfect — and straight from the training ground`\
-https://nytimes.com/athletic/7028582/2026/02/07/leeds-united-nottingham-forest-ilia-gruev/
-
-**The New York Times in Print for Saturday, Feb. 7, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/02/07/todays-new-york-times
-
-**Why Manchester United remembering the Munich Air Disaster matters**\
-`Andy Mitten was asked to speak at the memorial service marking the 68th anniversary of the disaster. This is what he read to those present`\
-https://nytimes.com/athletic/7027570/2026/02/07/manchester-united-munich-memorial-manchesterplatz/
-
-**What to watch on Day 1 at the Winter Olympics: Ilia Malinin, Jessie Diggins and the first medals**\
-`The men's figure skating team event continues with the short program, which will feature American superstar Malinin.`\
-https://nytimes.com/athletic/6655810/2026/02/07/milan-cortina-winter-olympics-what-to-watch-day-1/
-
-**Fernandez's evolution into a Lampard-esque goal threat and how Chelsea benefit**\
-`Fernandez has become a much bigger goal threat for Chelsea — this is how he's done it`\
-https://nytimes.com/athletic/7026562/2026/02/07/enzo-fernandes-chelsea-goals-analysis/
-
-**The reintegration of Dwight McNeil**\
-`The 26-year-old forward was on the verge of moving to south London on deadline day only for radio silence to set in as the clock ticked down`\
-https://nytimes.com/athletic/7027234/2026/02/07/dwight-mcneil-everton-palace-transfer-fallout/
 
