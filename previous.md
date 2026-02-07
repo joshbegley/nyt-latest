@@ -1,3 +1,7 @@
+**Take a peek inside the athletes' village at the Milan Olympics**\
+`The village hosts roughly 1,500 athletes in dormitory-style rooms for this year's Winter Games.`\
+https://nytimes.com/athletic/7028796/2026/02/07/milan-winter-olympics-athletes-village-inside-tour/
+
 **The Pulse: Music steals the show at opening ceremony**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7028664/2026/02/07/music-steals-the-show-at-opening-ceremony-plus-vonn-trains-without-issue/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7028783/2026/02/07/mens-2026-olympic-downhill-franj
 **Trump’s Obama Derangement Syndrome**\
 `The president shows, once again, that he shouldn’t be anywhere near the Oval.`\
 https://nytimes.com/2026/02/07/opinion/trump-obama-apes-post-video.html
-
-**The best and most jarring decisions made at the trade deadline**\
-`An astounding 28 deals were made in the seven days preceding this year's deadline.`\
-https://nytimes.com/athletic/7027334/2026/02/07/nba-trade-deadline-best-worst-decisions/
 

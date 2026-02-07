@@ -1,3 +1,7 @@
+**Take a peek inside the athletes' village at the Milan Olympics**\
+`The village hosts roughly 1,500 athletes in dormitory-style rooms for this year's Winter Games.`\
+https://nytimes.com/athletic/7028796/2026/02/07/milan-winter-olympics-athletes-village-inside-tour/
+
 **The Pulse: Music steals the show at opening ceremony**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7028664/2026/02/07/music-steals-the-show-at-opening-ceremony-plus-vonn-trains-without-issue/
