@@ -1,3 +1,7 @@
+**Man Pleads Guilty to Arson in 2019 Attack on Tennessee Civil Rights Center**\
+`The man also pleaded guilty this week to a charge of attempting to provide material support to a foreign terrorist organization, Hezbollah.`\
+https://nytimes.com/2026/02/07/us/tennessee-arson-guilty-plea-landmark.html
+
 **Facing Regulatory Scrutiny, Hims & Hers Withdraws Knockoff Obesity Pill**\
 `Federal officials had warned that the new product from the online provider of weight loss drugs might be illegal.`\
 https://nytimes.com/2026/02/07/health/hims-obesity-pill-wegovy-novo-nordisk.html
@@ -7,7 +11,7 @@ https://nytimes.com/2026/02/07/health/hims-obesity-pill-wegovy-novo-nordisk.html
 https://nytimes.com/2026/02/07/crosswords/daily-puzzle-2026-02-08.html
 
 **Washington Post C.E.O. Will Lewis Steps Down After Stormy Tenure**\
-`Mr. Lewis will be replaced in the interim by Jeff D’Onofrio, formerly the chief financial officer, the company said.`\
+`His departure came days after the company cut 30 percent of the staff. He will be replaced in the interim by Jeff D’Onofrio, the chief financial officer, the company said.`\
 https://nytimes.com/2026/02/07/technology/washington-post-will-lewis.html
 
 **Athletes and Protesters Criticize U.S. Policies at Winter Games in Milan**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/07/us/mississippi-power-outages-winter-storm.html
 **6 Fishermen Reel In a 244-Pound Atlantic Halibut, Setting a Local Record**\
 `The fish, hooked as part of a study on the halibut population around the Ha! Ha! Bay in the Canadian province of Quebec, measured more than 6.5 feet long, researchers said.`\
 https://nytimes.com/2026/02/07/world/canada/atlantic-halibut-fishing-record-quebec.html
-
-**Squirrel gets on the pitch and halts Championship game. Twice. Before comedy attempts to catch it**\
-`A squirrel caused chaos in Hull City's home match with fellow promotion chasers Bristol City`\
-https://nytimes.com/athletic/7029685/2026/02/07/hull-bristol-city-squirrel-stopped-play/
 
