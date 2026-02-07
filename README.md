@@ -1,3 +1,7 @@
+**Nottingham Forest need to rediscover their defensive solidity after Leeds loss**\
+`Forest had a makeshift defence against Leeds and struggled as a result`\
+https://nytimes.com/athletic/7028281/2026/02/07/nottingham-forest-leeds-analysis/
+
 **The goal worthy of winning any Premier League game**\
 `Jayden Bogle's opening goal for Leeds against Nottingham Forest was perfect — and straight from the training ground`\
 https://nytimes.com/athletic/7028582/2026/02/07/leeds-united-nottingham-forest-ilia-gruev/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7025464/2026/02/07/haaland-form-premier-league-man-
 **Liverpool vs Man City: State of the rivalry, who needs the points more, and predictions**\
 `There is considerable pressure on both sides as they head into this match — pressure which will hopefully lead to another memorable meeting`\
 https://nytimes.com/athletic/7026770/2026/02/07/liverpool-manchester-city-premier-league-predictions-rivalry/
-
-**Stick to football? Guardiola, Rosenior and the risks and rewards of talking politics**\
-`Lending their voice to non-football issues is not always a straightforward decision for managers and players - it can lead to a backlash`\
-https://nytimes.com/athletic/7023570/2026/02/07/guardiola-rosenior-managers-talking-politics/
 
