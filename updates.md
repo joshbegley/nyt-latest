@@ -1,3 +1,7 @@
+**See the biggest moments from the 2026 Olympics in Italy.**\
+``\
+https://nytimes.com/live/2026/02/07/world/olympics-italy-photos
+
 **Ilia Malinin, the ‘Quad God,’ leaves an ace in his sleeve.**\
 `Summary`\
 https://nytimes.com/2026/02/07/world/ilia-malinin-short-program.html

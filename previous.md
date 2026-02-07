@@ -1,3 +1,7 @@
+**See the biggest moments from the 2026 Olympics in Italy.**\
+``\
+https://nytimes.com/live/2026/02/07/world/olympics-italy-photos
+
 **Ilia Malinin, the ‘Quad God,’ leaves an ace in his sleeve.**\
 `Summary`\
 https://nytimes.com/2026/02/07/world/ilia-malinin-short-program.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029650/2026/02/07/florida-vs-texas-a-m-stream-how-
 **How to watch Houston vs. BYU men's basketball: Time, TV, streaming**\
 `Find out how to watch the Houston Cougars play the BYU Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029648/2026/02/07/houston-vs-byu-stream-how-to-watch-feb-7/
-
-**Wizards' Anthony Davis is unlikely to play again this season: Source**\
-`The Wizards acquired the 10-time All-Star from the Dallas Mavericks just before this year's NBA trade deadline.`\
-https://nytimes.com/athletic/7029498/2026/02/07/anthony-davis-washington-wizards-injury-rehab/
 
