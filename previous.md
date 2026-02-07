@@ -1,3 +1,7 @@
+**Facing Regulatory Scrutiny, Hims & Hers Withdraws Knockoff Obesity Pill**\
+`Federal officials had warned that the new product from the online provider of weight loss drugs might be illegal.`\
+https://nytimes.com/2026/02/07/health/hims-obesity-pill-wegovy-novo-nordisk.html
+
 **Who’s in Charge Here?**\
 `Chloe Revery’s first Sunday puzzle aces its performance review.`\
 https://nytimes.com/2026/02/07/crosswords/daily-puzzle-2026-02-08.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/07/world/canada/atlantic-halibut-fishing-record-queb
 **Squirrel gets on the pitch and halts Championship game. Twice. Before comedy attempts to catch it**\
 `A squirrel caused chaos in Hull City's home match with fellow promotion chasers Bristol City`\
 https://nytimes.com/athletic/7029685/2026/02/07/hull-bristol-city-squirrel-stopped-play/
-
-**Warriors convert Pat Spencer to full NBA contract after breakout performance**\
-`The 29-year-old point guard has become popular within the Warriors' locker room because of his attitude and work ethic.`\
-https://nytimes.com/athletic/7029709/2026/02/07/warriors-pat-spencer-full-nba-contract/
 

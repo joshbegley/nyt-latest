@@ -1,3 +1,7 @@
+**Facing Regulatory Scrutiny, Hims & Hers Withdraws Knockoff Obesity Pill**\
+`Federal officials had warned that the new product from the online provider of weight loss drugs might be illegal.`\
+https://nytimes.com/2026/02/07/health/hims-obesity-pill-wegovy-novo-nordisk.html
+
 **Who’s in Charge Here?**\
 `Chloe Revery’s first Sunday puzzle aces its performance review.`\
 https://nytimes.com/2026/02/07/crosswords/daily-puzzle-2026-02-08.html
