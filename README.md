@@ -1,3 +1,15 @@
+**Landlord Accused of Offering Rent-Stabilized Apartments as Hotel Rooms**\
+`The city filed a lawsuit on Friday against Mark David Militana, the owner of two brownstones on the Upper West Side, claiming he had made $550,000 from the illegal rentals.`\
+https://nytimes.com/2026/02/07/nyregion/landlord-accused-of-offering-rent-stabilized-apartments-as-hotel-rooms.html
+
+**Smaller N.Y.C. Classes Will Cost Millions. Can Mamdani Pull It Off?**\
+`Mayor Zohran Mamdani wants to make classes smaller across the largest U.S. school system. Like other parts of his agenda, it’s a costly task.`\
+https://nytimes.com/2026/02/07/nyregion/mamdani-nyc-class-size.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/07/crosswords/spelling-bee-forum.html
+
 **Nottingham Forest need to rediscover their defensive solidity after Leeds loss**\
 `Forest had a makeshift defence against Leeds and struggled as a result`\
 https://nytimes.com/athletic/7028281/2026/02/07/nottingham-forest-leeds-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7026562/2026/02/07/enzo-fernandes-chelsea-goals-ana
 **The reintegration of Dwight McNeil**\
 `The 26-year-old forward was on the verge of moving to south London on deadline day only for radio silence to set in as the clock ticked down`\
 https://nytimes.com/athletic/7027234/2026/02/07/dwight-mcneil-everton-palace-transfer-fallout/
-
-**Cristiano Ronaldo is post-football within football. It matters more when he doesn’t play**\
-`Ronaldo has crossed the Beckham threshold, evolving from being famous for football to being famous for being famous`\
-https://nytimes.com/athletic/7027013/2026/02/07/cristiano-ronaldo-saudi/
-
-**What's going on with Erling Haaland?**\
-`The Manchester City striker is enduring a mid-season slump – and not for the first time in his career`\
-https://nytimes.com/athletic/7025464/2026/02/07/haaland-form-premier-league-man-city/
-
-**Liverpool vs Man City: State of the rivalry, who needs the points more, and predictions**\
-`There is considerable pressure on both sides as they head into this match — pressure which will hopefully lead to another memorable meeting`\
-https://nytimes.com/athletic/7026770/2026/02/07/liverpool-manchester-city-premier-league-predictions-rivalry/
 
