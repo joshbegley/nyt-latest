@@ -1,3 +1,15 @@
+**After a fall in qualifying, Eileen Gu welcomes pressure ahead of slopestyle final**\
+`Gu didn't let a fall on her first qualifying run in the slopestyle skiing event stop her from rallying for an impressive second run.`\
+https://nytimes.com/athletic/7029046/2026/02/07/eileen-gu-freestyle-skiing-winter-olympics/
+
+**Pelosi to Endorse Jack Schlossberg, Again Backing a Kennedy for Congress**\
+`The former speaker, a prodigious fund-raiser and shrewd campaign strategist, seldom intervenes in primaries but has made an exception for a Kennedy before.`\
+https://nytimes.com/2026/02/07/us/politics/pelosi-endorse-schlossberg-kennedy.html
+
+**The Briefing: Wolves 1 Chelsea 3 - Is Cole Palmer back? Does Rosenior now know his best XI?**\
+`Cole Palmer's first-half hat-trick powered Chelsea to a comfortable victory over rock-bottom Wolves - we analyse the talking points`\
+https://nytimes.com/athletic/7016454/2026/02/07/wolves-chelsea-score-result-report-analysis/
+
 **The Briefing: Arsenal 3 Sunderland 0 - What extra does Zubimendi offer? Is Gyokeres finding his role?**\
 `We break down the action as Arsenal went nine points clear of Manchester City with victory at the Emirates.`\
 https://nytimes.com/athletic/7016453/2026/02/07/arsenal-sunderland-zubimendi-gyokeres/

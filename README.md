@@ -1,3 +1,7 @@
+**How to watch Clemson vs. Cal men's basketball: Time, TV, streaming**\
+`Find out how to watch the Clemson Tigers play the California Golden Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029296/2026/02/07/clemson-vs-cal-stream-how-to-watch-feb-7/
+
 **After a fall in qualifying, Eileen Gu welcomes pressure ahead of slopestyle final**\
 `Gu didn't let a fall on her first qualifying run in the slopestyle skiing event stop her from rallying for an impressive second run.`\
 https://nytimes.com/athletic/7029046/2026/02/07/eileen-gu-freestyle-skiing-winter-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7028558/2026/02/07/sports-cards-junk-wax/
 **What to Know About the Cold Snap in New York This Weekend**\
 `Cold-weary New Yorkers will get hit by another blast of frigid weather. Here’s what to expect, and what the city is doing to protect the vulnerable.`\
 https://nytimes.com/2026/02/07/nyregion/nyc-weather-extreme-cold-warning.html
-
-**Emma Raducanu loses first final since U.S. Open 2021 to Sorana Cîrstea**\
-`Raducanu's comeback wins earlier in the Transylvania Open appeared to catch up with her in a straight-sets loss.`\
-https://nytimes.com/athletic/7029085/2026/02/07/tennis-raducanu-cirstea-result-analysis-wta/
 

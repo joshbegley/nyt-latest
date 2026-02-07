@@ -1,3 +1,15 @@
+**After a fall in qualifying, Eileen Gu welcomes pressure ahead of slopestyle final**\
+`Gu didn't let a fall on her first qualifying run in the slopestyle skiing event stop her from rallying for an impressive second run.`\
+https://nytimes.com/athletic/7029046/2026/02/07/eileen-gu-freestyle-skiing-winter-olympics/
+
+**Pelosi to Endorse Jack Schlossberg, Again Backing a Kennedy for Congress**\
+`The former speaker, a prodigious fund-raiser and shrewd campaign strategist, seldom intervenes in primaries but has made an exception for a Kennedy before.`\
+https://nytimes.com/2026/02/07/us/politics/pelosi-endorse-schlossberg-kennedy.html
+
+**The Briefing: Wolves 1 Chelsea 3 - Is Cole Palmer back? Does Rosenior now know his best XI?**\
+`Cole Palmer's first-half hat-trick powered Chelsea to a comfortable victory over rock-bottom Wolves - we analyse the talking points`\
+https://nytimes.com/athletic/7016454/2026/02/07/wolves-chelsea-score-result-report-analysis/
+
 **The Briefing: Arsenal 3 Sunderland 0 - What extra does Zubimendi offer? Is Gyokeres finding his role?**\
 `We break down the action as Arsenal went nine points clear of Manchester City with victory at the Emirates.`\
 https://nytimes.com/athletic/7016453/2026/02/07/arsenal-sunderland-zubimendi-gyokeres/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/07/nyregion/nyc-weather-extreme-cold-warning.html
 **Emma Raducanu loses first final since U.S. Open 2021 to Sorana Cîrstea**\
 `Raducanu's comeback wins earlier in the Transylvania Open appeared to catch up with her in a straight-sets loss.`\
 https://nytimes.com/athletic/7029085/2026/02/07/tennis-raducanu-cirstea-result-analysis-wta/
-
-**‘These Were the Best Wings We’ve Ever Had’**\
-`These chipotle honey chicken wings are a fast reader favorite, easy for Sunday’s big game.`\
-https://nytimes.com/2026/02/07/dining/these-were-the-best-wings-weve-ever-had.html
-
-**Saudis Announce New Investments in Syria, a Sign of Deepening Ties**\
-`Saudi and Syrian officials announced deals ranging from aviation to telecommunications, offering a much-needed boost to Syria’s battered economy.`\
-https://nytimes.com/2026/02/07/world/middleeast/saudi-arabia-investment-syria-al-sharaa.html
-
-**Forest's Cuiabano moves to Vasco da Gama on loan until 2027**\
-`The 22-year-old signed in the summer but is yet to make a first-team appearance for Sean Dyche's side. `\
-https://nytimes.com/athletic/7029140/2026/02/07/cuiabano-nottingham-forest-vasco-da-gama-loan/
 
