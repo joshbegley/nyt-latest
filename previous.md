@@ -1,3 +1,7 @@
+**St. John's holds off UConn's late rally to snap Huskies' 18-game winning streak**\
+`St. John's swept two regular-season games against UConn last season on the way to a Big East title and conference tournament championship.`\
+https://nytimes.com/athletic/7028527/2026/02/06/uconn-st-johns-ncaa-basketball-rick-pitino/
+
 **North Dakota State in talks to join Mountain West for 2026 season: Source**\
 `NDSU has long considered a move up to the Football Bowl Subdivision since rivals such as James Madison and Sam Houston moved to FBS.`\
 https://nytimes.com/athletic/7028539/2026/02/06/north-dakota-state-mountain-west-conference-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7028405/2026/02/06/patriots-super-bowl-seahawks-inj
 **In a Close Election, Voters Send a Sharp Anti-Trump Message**\
 `The Democratic primary to replace Gov. Mikie Sherrill of New Jersey in Congress is still too close to call. Much of the advertising focused on opposition to the president and his immigration policies.`\
 https://nytimes.com/2026/02/06/nyregion/new-jersey-special-election-malinowski-mejia.html
-
-**Fans' boos, cheers at Olympic opening ceremony deliver message in own way**\
-`Rooting for the underdog is still a thing, and it was the underdog that thousands of Olympic fans were rooting for at the opening ceremony.`\
-https://nytimes.com/athletic/7028222/2026/02/06/olympic-opening-ceremony-fans/
 

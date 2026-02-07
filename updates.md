@@ -1,3 +1,7 @@
+**St. John's holds off UConn's late rally to snap Huskies' 18-game winning streak**\
+`St. John's swept two regular-season games against UConn last season on the way to a Big East title and conference tournament championship.`\
+https://nytimes.com/athletic/7028527/2026/02/06/uconn-st-johns-ncaa-basketball-rick-pitino/
+
 **North Dakota State in talks to join Mountain West for 2026 season: Source**\
 `NDSU has long considered a move up to the Football Bowl Subdivision since rivals such as James Madison and Sam Houston moved to FBS.`\
 https://nytimes.com/athletic/7028539/2026/02/06/north-dakota-state-mountain-west-conference-football/
