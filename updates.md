@@ -1,3 +1,7 @@
+**A Super Bowl in Silicon Valley Filled With Valley Billionaires**\
+`A who’s who of celebrities will join them Just a little over 25 percent of the seats for the game will be for regular fans, with the cheapest ticket now selling for more than $4,000.`\
+https://nytimes.com/2026/02/07/business/super-bowl-tickets-billionaires.html
+
 **USA women's hockey defeats Finland, whose debut was delayed by norovirus outbreak**\
 `The Americans took a decisive 5-0 win Saturday in their second game at the 2026 Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7029186/2026/02/07/usa-womens-hockey-finland-2026-olympics/

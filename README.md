@@ -1,3 +1,7 @@
+**Former MLB, Royals outfielder Terrance Gore dies at 34**\
+`Gore was a speedster who stole 43 bases in the majors and was a member of three teams that won the World Series.`\
+https://nytimes.com/athletic/7029314/2026/02/07/terrance-gore-death-royals-cubs-mets-braves-dodgers/
+
 **A Super Bowl in Silicon Valley Filled With Valley Billionaires**\
 `A who’s who of celebrities will join them Just a little over 25 percent of the seats for the game will be for regular fans, with the cheapest ticket now selling for more than $4,000.`\
 https://nytimes.com/2026/02/07/business/super-bowl-tickets-billionaires.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029328/2026/02/07/hornets-vs-hawks-stream-how-to-w
 **How to watch Nuggets vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029326/2026/02/07/nuggets-vs-bulls-stream-how-to-watch-feb-7/
-
-**How to watch Jazz vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7029324/2026/02/07/jazz-vs-magic-stream-how-to-watch-feb-7/
 

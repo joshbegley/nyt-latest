@@ -1,3 +1,7 @@
+**A Super Bowl in Silicon Valley Filled With Valley Billionaires**\
+`A who’s who of celebrities will join them Just a little over 25 percent of the seats for the game will be for regular fans, with the cheapest ticket now selling for more than $4,000.`\
+https://nytimes.com/2026/02/07/business/super-bowl-tickets-billionaires.html
+
 **Fake Post, Which Looked to Be Trump’s on Truth Social, Spreads Widely**\
 `The post appeared to describe the president’s rationale for deleting a racist video about the Obamas that he had shared.`\
 https://nytimes.com/2026/02/07/business/trump-truth-social-fake-post-obamas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029326/2026/02/07/nuggets-vs-bulls-stream-how-to-w
 **How to watch Jazz vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029324/2026/02/07/jazz-vs-magic-stream-how-to-watch-feb-7/
-
-**How to watch Arizona State vs. Baylor women's basketball: Time, TV, streaming**\
-`Find out how to watch the Arizona State Sun Devils play the Baylor Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7029309/2026/02/07/arizona-state-vs-baylor-stream-how-to-watch-feb-7/
 
