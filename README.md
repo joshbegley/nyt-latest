@@ -1,3 +1,7 @@
+**Washington Post C.E.O. Will Lewis Steps Down After Stormy Tenure**\
+`Mr. Lewis will be replaced in the interim by Jeff D’Onofrio, formerly the chief financial officer, the company said.`\
+https://nytimes.com/2026/02/07/technology/washington-post-will-lewis.html
+
 **Athletes and Protesters Criticize U.S. Policies at Winter Games in Milan**\
 `Displays of anti-U.S. sentiment have turned up at the Milan Winter Games. Vice President JD Vance was booed at the Olympics opening ceremony, and anti-ICE protesters took to the streets to demonstrate.`\
 https://nytimes.com/video/world/100000010697078/olympics-milan-italy-protests-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029709/2026/02/07/warriors-pat-spencer-full-nba-co
 **Whistle-Blower Report Involved Intelligence About a Trump Contact**\
 `Tulsi Gabbard, the director of national intelligence, moved to lock down an intelligence intercept that referred to someone close to President Trump, the report said.`\
 https://nytimes.com/2026/02/07/us/politics/whistle-blower-gabbard-trump.html
-
-**See the biggest moments from the 2026 Olympics in Italy.**\
-``\
-https://nytimes.com/live/2026/02/07/world/olympics-italy-photos
 
