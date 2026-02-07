@@ -1,40 +1,40 @@
-**Winter Olympics opening ceremonies in photos, from Milan to Cortina**\
-`A visual look at the best of the Winter Olympic opening ceremonies, spread out across Northern Italy in four venues.`\
-https://nytimes.com/athletic/7028320/2026/02/07/winter-olympics-opening-ceremonies-photos-milan-cortina/
+**A quirky British NFL show is attempting to introduce the sport to new fans. Does it work?**\
+`The Athletic joined the audience during the live filming of the UK's newest NFL Sunday show`\
+https://nytimes.com/athletic/7009597/2026/02/07/big-game-night-behind-the-scenes/
 
-**Super Bowl LX watch guide: TV info, broadcast predictions, history for Patriots-Seahawks**\
-`The Patriots and Seahawks and Bad Bunny await. Here's what to know about the Super Bowl LX telecast.`\
-https://nytimes.com/athletic/7022436/2026/02/07/super-bowl-2026-watch-guide-best-viewing-options/
+**Super Bowl halftime shows ranked: Prince, U2, Kendrick Lamar — and Bad Bunny on deck**\
+`Bad Bunny will get his shot at Super Bowl halftime show greatness on Sunday. Before he takes the stage, which shows rank among the greatest?`\
+https://nytimes.com/athletic/7024793/2026/02/07/super-bowl-bad-bunny-halftime-show-rankings/
 
-**NFL coaches pick the Super Bowl: Seahawks clear favorite, but Patriots have paths to victory**\
-`Five coaches broke down the matchup, and while all favored the Seahawks, they also see how the Patriots could pull the upset.`\
-https://nytimes.com/athletic/7028505/2026/02/07/super-bowl-60-picks-seahawks-patriots-coaches/
+**The Clippers go young (yay!) while the Rockets go quiet: NBA trade deadline roundtable**\
+`Our writers discuss the trade deadline, with the steep price Indiana paid for Ivica Zubac causing head scratches. `\
+https://nytimes.com/athletic/7028351/2026/02/07/trade-deadline-clippers-harden-rockets-roundtable/
 
-**More Snow in Florida Than Utah? Why Weird Weather Has Dominated This Year.**\
-`While iguanas were stunned by freezing cold in Florida, would-be skiers were looking at dirt on Utah’s slopes. Here’s what’s going on, and when it will finally end.`\
-https://nytimes.com/2026/02/07/weather/cold-snow-forecast-us.html
+**Seven NHL teams that need to make a move by the trade deadline**\
+`Here are the seven clubs — four buyers and three sellers — that are most likely to wheel and deal.`\
+https://nytimes.com/athletic/7022814/2026/02/07/nhl-trade-deadline-teams-moves/
 
-**A hated pair of cleats and a near-benching led to the Super Bowl's greatest defensive play**\
-`The Malcolm Butler play you know, and some of the stories behind it you don't.`\
-https://nytimes.com/athletic/7025978/2026/02/07/malcolm-butler-interception-super-bowl-49/
+**She raised 3 NHL stars. Now Ellen Hughes hopes to help the U.S. women's hockey team win gold**\
+`Hughes, mother to Quinn, Jack and Luke, is a player development consultant working with the U.S. women's team vying for gold in Milan.`\
+https://nytimes.com/athletic/7023503/2026/02/07/olympics-ellen-hughes-usa-womens-hockey-nhl/
 
-**Michael Pollan Says Humanity Is About to Undergo a Revolutionary Change**\
-`The best-selling author grapples with big questions about A.I., consciousness and the distractions polluting our minds.`\
-https://nytimes.com/2026/02/07/magazine/michael-pollan-interview.html
+**My Cousin Is About to Become Homeless. How Much Should I Give Up for Him?**\
+`I’ve eaten PB&Js for 35 years in an effort to have a retirement where I can do what I want.`\
+https://nytimes.com/2026/02/07/magazine/cousin-homeless-ethics.html
 
-**What’s Up With This Big Freeze? Some Scientists See Climate Change Link**\
-`A warming Arctic can stretch the polar vortex, a high-altitude air ribbon, one says. The “wobble” can disrupt the jet stream, causing extreme cold in the East.`\
-https://nytimes.com/2026/02/07/climate/whats-up-with-this-big-freeze-some-scientists-see-climate-change-link.html
+**Wordle Review No. 1,695**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Feb. 8, 2026.`\
+https://nytimes.com/2026/02/07/crosswords/wordle-review-1695.html
 
-**What an Olympic Medal Is Worth**\
-`The market value of Olympic medals has more than doubled since the 2024 Paris Games because of a surge in precious metal prices.`\
-https://nytimes.com/interactive/2026/02/07/business/olympic-medal-value.html
+**Canada’s Olympians Take the World Stage**\
+`Beating America has always felt good, especially on the ice. Since President Trump began issuing tariffs and threats against Canada, sports feels extra personal.`\
+https://nytimes.com/2026/02/07/world/canada/2026-olympics-canada-us-hockey-carney.html
 
-**9 Songs We’re Talking About This Week**\
-`Ejae and Sombr chased the Grammys with new releases, and Peter Gabriel began unfurling his next album.`\
-https://nytimes.com/2026/02/07/arts/music/ejae-sombr-new-songs.html
+**What Russia's hockey team would look like and how its absence affects the Olympics**\
+`Russia would have been bronze medal favorites at the Olympics and the team most likely to upset Canada or the United States.`\
+https://nytimes.com/athletic/7016493/2026/02/07/olympic-hockey-team-russia-players/
 
-**Why Trump’s Calls to ‘Nationalize’ Voting Have Raised Midterm Fears**\
-`The president has escalated his language as his administration takes steps to involve itself more in election matters.`\
-https://nytimes.com/article/trumps-nationalize-voting-elections-midterms-explainer.html
+**NFL players craving connection with fans find it at Twitch's Streamer Bowl**\
+`Streaming video games brings Cam Skattebo, Shedeur Sanders, Tetairoa McMillan and others closer to the public, at times to their detriment.`\
+https://nytimes.com/athletic/7025755/2026/02/07/nfl-players-fans-twitch-streamers/
 

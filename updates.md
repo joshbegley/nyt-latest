@@ -1,3 +1,7 @@
+**Winter Olympics opening ceremonies in photos, from Milan to Cortina**\
+`A visual look at the best of the Winter Olympic opening ceremonies, spread out across Northern Italy in four venues.`\
+https://nytimes.com/athletic/7028320/2026/02/07/winter-olympics-opening-ceremonies-photos-milan-cortina/
+
 **Super Bowl LX watch guide: TV info, broadcast predictions, history for Patriots-Seahawks**\
 `The Patriots and Seahawks and Bad Bunny await. Here's what to know about the Super Bowl LX telecast.`\
 https://nytimes.com/athletic/7022436/2026/02/07/super-bowl-2026-watch-guide-best-viewing-options/
