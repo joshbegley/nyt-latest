@@ -1,3 +1,7 @@
+**Athletes and Protesters Criticize U.S. Policies at Winter Games in Milan**\
+`Displays of anti-U.S. sentiment have turned up at the Milan Winter Games. Vice President JD Vance was booed at the Olympics opening ceremony, and anti-ICE protesters took to the streets to demonstrate.`\
+https://nytimes.com/video/world/100000010697078/olympics-milan-italy-protests-ice.html
+
 **After 48-hour delay, Canada begins bid for Olympic hockey gold with win over Switzerland**\
 `The Canadians finally began their Olympic tournament on Saturday after a norovirus outbreak on Team Finland postponed their first game.`\
 https://nytimes.com/athletic/7029478/2026/02/07/canada-womens-hockey-switzerland-2026-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/07/us/politics/whistle-blower-gabbard-trump.html
 **See the biggest moments from the 2026 Olympics in Italy.**\
 ``\
 https://nytimes.com/live/2026/02/07/world/olympics-italy-photos
-
-**Ilia Malinin, the ‘Quad God,’ leaves an ace up his sleeve.**\
-`Summary`\
-https://nytimes.com/2026/02/07/world/olympics-ilia-malinin-short-program.html
 
