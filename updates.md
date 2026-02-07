@@ -1,3 +1,11 @@
+**How to watch Houston vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Houston Cougars play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029648/2026/02/07/houston-vs-byu-stream-how-to-watch-feb-7/
+
+**Wizards' Anthony Davis is unlikely to play again this season: Source**\
+`The Wizards acquired the 10-time All-Star from the Dallas Mavericks just before this year's NBA trade deadline.`\
+https://nytimes.com/athletic/7029498/2026/02/07/anthony-davis-washington-wizards-injury-rehab/
+
 **Japan's Kira Kimura wins gold in men's snowboard big air with US teen Ollie Martin fourth**\
 `American teen Ollie Martin, 17, finishes fourth on his Olympic debut as Kira Kimura wins Olympic big air gold. `\
 https://nytimes.com/athletic/7029413/2026/02/07/mens-big-air-final-kira-kimura-ollie-martin-2026-winter-olympics/

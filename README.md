@@ -1,3 +1,11 @@
+**Olympic women's ski jumping opens with a surprise gold-medal winner**\
+`Norway's Anna Odine Stroem shocked favorite Nika Prevc of gold in the individual normal hill competition on Saturday.`\
+https://nytimes.com/athletic/7029608/2026/02/07/winter-olympics-ski-jumping-anna-odine-stroem-gold/
+
+**How to watch Florida vs. Texas A&M men's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the Texas A&M Aggies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029650/2026/02/07/florida-vs-texas-a-m-stream-how-to-watch-feb-7/
+
 **How to watch Houston vs. BYU men's basketball: Time, TV, streaming**\
 `Find out how to watch the Houston Cougars play the BYU Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029648/2026/02/07/houston-vs-byu-stream-how-to-watch-feb-7/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7026766/2026/02/07/newcastle-2-brentford-3-eddie-ho
 **McCullough: Terrance Gore embraced his role to become a 3-time World Series champion**\
 `For Royals fans, Gore represents a connection to an era where the team made consecutive World Series and won a championship.`\
 https://nytimes.com/athletic/7029497/2026/02/07/terrance-gore-death-mlb-career-world-series-champion/
-
-**Jaxson Hayes, Jase Richardson among 2026 NBA Slam Dunk competitors**\
-`The league has not revealed the participants in the 3-point shooting contest at NBA All-Star Weekend at the Intuit Dome in Inglewood, Calif.`\
-https://nytimes.com/athletic/7029345/2026/02/07/nba-all-star-dunk-contest-shooting-stars-3-point/
-
-**Former MLB, Royals outfielder Terrance Gore dies at 34**\
-`Gore was a speedster who stole 43 bases in the majors and was a member of three teams that won the World Series.`\
-https://nytimes.com/athletic/7029314/2026/02/07/terrance-gore-death-royals-cubs-mets-braves-dodgers/
 
