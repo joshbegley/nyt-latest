@@ -1,3 +1,11 @@
+**The 2.8.26 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/02/06/the-2826-issue
+
+**Psychiatrist Says Kennedy Was ‘Not Accurate’ in Discussing His Keto Studies**\
+`Dr. Christopher M. Palmer said in an interview that the keto diet, while promising, did not “cure” schizophrenia as the health secretary had claimed.`\
+https://nytimes.com/2026/02/06/us/politics/christopher-palmer-kennedy-schizophrenia-keto.html
+
 **How Is Security Different at These Olympic Games?**\
 `Our sports correspondent Tariq Panja talks with Katrin Bennhold about the security at the Olympics in Italy, including the presence of Immigration and Customs Enforcement agents, who the U.S. says are there only in an advisory role.`\
 https://nytimes.com/video/world/100000010687900/how-is-security-different-at-these-olympic-games.html
