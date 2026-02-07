@@ -1,3 +1,11 @@
+**Use for a Yew**\
+`Mark Diehl dishes out a spicy themeless puzzle.`\
+https://nytimes.com/2026/02/06/crosswords/daily-puzzle-2026-02-07.html
+
+**Judge Extends Block on Trump Officials Slashing Funds to Democratic States**\
+`The decision kept at bay a freeze of nearly $10 billion in child care and other social service funds destined for Minnesota and four other Democratic-led states.`\
+https://nytimes.com/2026/02/06/us/politics/blue-states-trump-funding-lawsuit.html
+
 **Hegseth Says Defense Department Will Cut Ties With Harvard**\
 `Mr. Hegseth’s order appeared to target his alma mater, Harvard’s Kennedy School for public policy.`\
 https://nytimes.com/2026/02/06/us/politics/hegseth-defense-harvard.html
