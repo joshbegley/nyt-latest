@@ -1,3 +1,7 @@
+**Oviedo to 'pursue legal actions' after game at Rayo called off**\
+`The game was scheduled to be played on Saturday afternoon at 2pm local time, but was postponed less than four hours before kick-off.`\
+https://nytimes.com/athletic/7028812/2026/02/07/rayo-vallecano-oviedo-postponed-la-liga/
+
 **Vanity Fair**\
 `Behind the scenes at the Westminster Dog Show, the entrants were affectionate. Or at least they acted like it.`\
 https://nytimes.com/2026/02/07/briefing/vanity-fair.html

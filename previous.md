@@ -1,3 +1,7 @@
+**Oviedo to 'pursue legal actions' after game at Rayo called off**\
+`The game was scheduled to be played on Saturday afternoon at 2pm local time, but was postponed less than four hours before kick-off.`\
+https://nytimes.com/athletic/7028812/2026/02/07/rayo-vallecano-oviedo-postponed-la-liga/
+
 **Vanity Fair**\
 `Behind the scenes at the Westminster Dog Show, the entrants were affectionate. Or at least they acted like it.`\
 https://nytimes.com/2026/02/07/briefing/vanity-fair.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7028831/2026/02/07/maryland-vs-nebraska-stream-how-
 **How to watch Michigan State vs. Penn State women's basketball: Time, TV, streaming**\
 `Find out how to watch the Michigan State Spartans play the Penn State Lady Lions, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7028829/2026/02/07/michigan-state-vs-penn-state-stream-how-to-watch-feb-7/
-
-**How to watch Nebraska vs. Rutgers men's basketball: Time, TV, streaming**\
-`Find out how to watch the Nebraska Cornhuskers play the Rutgers Scarlet Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7028827/2026/02/07/nebraska-vs-rutgers-stream-how-to-watch-feb-7/
 
