@@ -3,7 +3,7 @@
 https://nytimes.com/2026/02/07/opinion/trump-obama-video-apes.html
 
 **Kenan Yildiz extends Juventus contract through to 2030**\
-`Yildiz was handed the iconic No 10 shirt by Juventus in the summer of 2024 and is his side's top goal scorer this campaign.`\
+`Yildiz was handed the iconic No 10 shirt by Juventus in the summer of 2024 and is his side's top goalscorer this campaign.`\
 https://nytimes.com/athletic/7029175/2026/02/07/kenan-yildiz-juventus-contract-new/
 
 **Is this Junk Wax Era 2.0 for sports cards? We did the math**\
