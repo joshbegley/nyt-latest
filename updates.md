@@ -1,3 +1,11 @@
+**Francesca Lollobrigida delivers Italy a Winter Olympic gold and day's best moment**\
+`On her 35th birthday, Lollobrigida set an Olympic record to win gold, setting off a raucous celebration with her team and son, Tomasso.`\
+https://nytimes.com/athletic/7029268/2026/02/07/francesca-lollobrigida-winter-olympics-italy-speedskating-gold-son/
+
+**We Love You, Snow. Now Go Away.**\
+`Ah, those first wondrous hours of a snowstorm in New York. Two weeks later, the sidewalks are sooty and treacherous, and the parked cars are frozen in surrender.`\
+https://nytimes.com/2026/02/07/nyregion/nyc-snow-ice-dirt.html
+
 **How to watch Mavericks vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029337/2026/02/07/mavericks-vs-spurs-stream-how-to-watch-feb-7/
