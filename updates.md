@@ -1,3 +1,11 @@
+**Olympic women's ski jumping opens with a surprise gold-medal winner**\
+`Norway's Anna Odine Stroem shocked favorite Nika Prevc of gold in the individual normal hill competition on Saturday.`\
+https://nytimes.com/athletic/7029608/2026/02/07/winter-olympics-ski-jumping-anna-odine-stroem-gold/
+
+**How to watch Florida vs. Texas A&M men's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the Texas A&M Aggies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029650/2026/02/07/florida-vs-texas-a-m-stream-how-to-watch-feb-7/
+
 **How to watch Houston vs. BYU men's basketball: Time, TV, streaming**\
 `Find out how to watch the Houston Cougars play the BYU Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029648/2026/02/07/houston-vs-byu-stream-how-to-watch-feb-7/
