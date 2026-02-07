@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Feb. 7, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/07/todays-new-york-times
+
 **Why Manchester United remembering the Munich Air Disaster matters**\
 `Andy Mitten was asked to speak at the memorial service marking the 68th anniversary of the disaster. This is what he read to those present`\
 https://nytimes.com/athletic/7027570/2026/02/07/manchester-united-munich-memorial-manchesterplatz/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7023570/2026/02/07/guardiola-rosenior-managers-talk
 **Contract talks, World Cup hopes and a stop-start season – Curtis Jones is at a crossroads**\
 `The midfielder has only started 10 Premier League games this season, leading to speculation over his future`\
 https://nytimes.com/athletic/7023799/2026/02/07/curtis-jones-liverpool-contract-england-world-cup/
-
-**The Party’s Over When Charli XCX Says So**\
-`The “Brat” pop star isn’t afraid to lean into her party-girl persona. But moving into film with “The Moment” has given her brand-new perspective.`\
-https://nytimes.com/2026/02/07/movies/charli-xcx-the-moment-sundance.html
 

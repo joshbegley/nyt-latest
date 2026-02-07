@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Feb. 7, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/07/todays-new-york-times
+
 **Why Manchester United remembering the Munich Air Disaster matters**\
 `Andy Mitten was asked to speak at the memorial service marking the 68th anniversary of the disaster. This is what he read to those present`\
 https://nytimes.com/athletic/7027570/2026/02/07/manchester-united-munich-memorial-manchesterplatz/
