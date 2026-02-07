@@ -1,3 +1,7 @@
+**‘Melania’ and the Missing First Lady**\
+`The documentary highlights a few notable predecessors in the role, burnishing Mrs. Trump’s image by extension. But one apt comparison is pointedly left out.`\
+https://nytimes.com/2026/02/06/movies/melania-documentary-nancy-reagan.html
+
 **Fans' boos, cheers at Olympic opening ceremony deliver message in own way**\
 `Rooting for the underdog is still a thing, and it was the underdog that thousands of Olympic fans were rooting for at the opening ceremony.`\
 https://nytimes.com/athletic/7028222/2026/02/06/olympic-opening-ceremony-fans/

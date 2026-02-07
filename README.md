@@ -1,3 +1,11 @@
+**In a Close Election, Voters Send a Sharp Anti-Trump Message**\
+`The Democratic primary to replace Gov. Mikie Sherrill of New Jersey in Congress is still too close to call. Much of the advertising focused on opposition to the president and his immigration policies.`\
+https://nytimes.com/2026/02/06/nyregion/new-jersey-special-election-malinowski-mejia.html
+
+**Fans' boos, cheers at Olympic opening ceremony deliver message in own way**\
+`Rooting for the underdog is still a thing, and it was the underdog that thousands of Olympic fans were rooting for at the opening ceremony.`\
+https://nytimes.com/athletic/7028222/2026/02/06/olympic-opening-ceremony-fans/
+
 **Super Bowl Visitors Find San Francisco Better Than Its Apocalyptic Image**\
 `Problems with homelessness and open-air drug use have been widely broadcast, but many visitors this week said they found the city surprisingly pleasant.`\
 https://nytimes.com/2026/02/06/us/san-francisco-super-bowl.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7027455/2026/02/06/jared-mccain-trade-sixers-front-
 **Colorado Funeral Home Director Is Sentenced to 40 Years in Corpse Abuse Case**\
 `“I deserve every word you have said and every day that I will sit in prison,” Jon Hallford said in court on Friday. Investigators found nearly 200 decomposing bodies stored improperly.`\
 https://nytimes.com/2026/02/06/us/colorado-funeral-home-scandal-owner.html
-
-**Trump Opens Marine National Monument in Atlantic to Commercial Fishing**\
-`Off the coast of Cape Cod, the Northeast Canyons and Seamounts Marine National Monument is a unique stretch of ocean that had been protected for a decade.`\
-https://nytimes.com/2026/02/06/climate/trump-monument-fishing-northeast-canyons.html
-
-**‘Melania’ and the Missing First Lady**\
-`The documentary highlights a few notable predecessors in the role, burnishing Mrs. Trump’s image by extension. But one apt comparison is pointedly left out.`\
-https://nytimes.com/2026/02/06/movies/melania-documentary-nancy-reagan.html
 
