@@ -1,3 +1,7 @@
+**Kenan Yildiz extends Juventus contract through to 2030**\
+`Yildiz was handed the iconic No 10 shirt by Juventus in the summer of 2024 and is his side's top goal scorer this campaign.`\
+https://nytimes.com/athletic/7029175/2026/02/07/kenan-yildiz-juventus-contract-new/
+
 **Is this Junk Wax Era 2.0 for sports cards? We did the math**\
 `There are growing concerns among collectors around rising print runs, but how do they compare to the most overprinted era? `\
 https://nytimes.com/athletic/7028558/2026/02/07/sports-cards-junk-wax/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7028746/2026/02/07/al-horford-trade-deadline-krista
 **Why ICE Raids in Minneapolis Are Driving Up Demand for Guns**\
 `Gun permit applications have surged in Minnesota since ICE raids began across the state in December.`\
 https://nytimes.com/video/us/100000010682068/minneapolis-ice-raids-guns-safety.html
-
-**Roland Huntford, Lore-Debunking Historian of Polar Exploration, Dies at 98**\
-`He caused an uproar by challenging the heroic status of Robert Falcon Scott, the Briton who led a doomed quest to the South Pole in 1912.`\
-https://nytimes.com/2026/02/07/world/roland-huntford-dead.html
 
