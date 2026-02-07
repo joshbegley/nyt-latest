@@ -1,3 +1,5 @@
+
+
 **Warriors convert Pat Spencer to full NBA contract after breakout performance**\
 `The 29-year-old point guard has become popular within the Warriors' locker room because of his attitude and work ethic.`\
 https://nytimes.com/athletic/7029709/2026/02/07/warriors-pat-spencer-full-nba-contract/
