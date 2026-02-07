@@ -1,3 +1,7 @@
+**Winter Olympics opening ceremonies in photos, from Milan to Cortina**\
+`A visual look at the best of the Winter Olympic opening ceremonies, spread out across Northern Italy in four venues.`\
+https://nytimes.com/athletic/7028320/2026/02/07/winter-olympics-opening-ceremonies-photos-milan-cortina/
+
 **Super Bowl LX watch guide: TV info, broadcast predictions, history for Patriots-Seahawks**\
 `The Patriots and Seahawks and Bad Bunny await. Here's what to know about the Super Bowl LX telecast.`\
 https://nytimes.com/athletic/7022436/2026/02/07/super-bowl-2026-watch-guide-best-viewing-options/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/07/arts/music/ejae-sombr-new-songs.html
 **Why Trump’s Calls to ‘Nationalize’ Voting Have Raised Midterm Fears**\
 `The president has escalated his language as his administration takes steps to involve itself more in election matters.`\
 https://nytimes.com/article/trumps-nationalize-voting-elections-midterms-explainer.html
-
-**Stop Pretending You ‘Need’ Your Phone ‘for Work’**\
-`Plus, summoning the courage to loaf off as flagrantly as the person in the next cubicle.`\
-https://nytimes.com/2026/02/07/business/stop-pretending-you-need-your-phone-for-work.html
 
