@@ -1,3 +1,7 @@
+**Nottingham Forest need to rediscover their defensive solidity after Leeds loss**\
+`Forest had a makeshift defence against Leeds and struggled as a result`\
+https://nytimes.com/athletic/7028281/2026/02/07/nottingham-forest-leeds-analysis/
+
 **The goal worthy of winning any Premier League game**\
 `Jayden Bogle's opening goal for Leeds against Nottingham Forest was perfect — and straight from the training ground`\
 https://nytimes.com/athletic/7028582/2026/02/07/leeds-united-nottingham-forest-ilia-gruev/
