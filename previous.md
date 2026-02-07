@@ -1,3 +1,7 @@
+**Fake Post, Which Looked to Be Trump’s on Truth Social, Spreads Widely**\
+`The post appeared to describe the president’s rationale for deleting a racist video about the Obamas that he had shared.`\
+https://nytimes.com/2026/02/07/business/trump-truth-social-fake-post-obamas.html
+
 **USA women's hockey defeats Finland, whose debut was delayed by norovirus outbreak**\
 `The Americans took a decisive 5-0 win on Saturday in their second game at the 2026 Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7029186/2026/02/07/usa-womens-hockey-finland-2026-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029324/2026/02/07/jazz-vs-magic-stream-how-to-watc
 **How to watch Arizona State vs. Baylor women's basketball: Time, TV, streaming**\
 `Find out how to watch the Arizona State Sun Devils play the Baylor Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029309/2026/02/07/arizona-state-vs-baylor-stream-how-to-watch-feb-7/
-
-**How to watch Gonzaga vs. Oregon State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Gonzaga Bulldogs play the Oregon State Beavers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7029306/2026/02/07/gonzaga-vs-oregon-state-stream-how-to-watch-feb-7/
 
