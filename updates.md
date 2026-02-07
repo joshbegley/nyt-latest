@@ -1,3 +1,11 @@
+**In a Close Election, Voters Send a Sharp Anti-Trump Message**\
+`The Democratic primary to replace Gov. Mikie Sherrill of New Jersey in Congress is still too close to call. Much of the advertising focused on opposition to the president and his immigration policies.`\
+https://nytimes.com/2026/02/06/nyregion/new-jersey-special-election-malinowski-mejia.html
+
+**Fans' boos, cheers at Olympic opening ceremony deliver message in own way**\
+`Rooting for the underdog is still a thing, and it was the underdog that thousands of Olympic fans were rooting for at the opening ceremony.`\
+https://nytimes.com/athletic/7028222/2026/02/06/olympic-opening-ceremony-fans/
+
 **‘Melania’ and the Missing First Lady**\
 `The documentary highlights a few notable predecessors in the role, burnishing Mrs. Trump’s image by extension. But one apt comparison is pointedly left out.`\
 https://nytimes.com/2026/02/06/movies/melania-documentary-nancy-reagan.html
