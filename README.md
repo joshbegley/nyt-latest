@@ -1,3 +1,7 @@
+**Bad Bunny Explains His ‘Purpose’ in Life**\
+`Bad Bunny sat down with Jon Caramanica and Joe Coscarelli, the hosts of Popcast, prior to releasing his Grammy-winning magnum opus, “Debí Tirar Más Fotos,” to discuss how working with young Puerto Rican musicians in his home country ranks among his life’s greatest achievements.`\
+https://nytimes.com/video/podcasts/100000010696585/bad-bunny-explains-his-purpose-in-life.html
+
 **Yankees agree with Paul Goldschmidt on 1-year deal: Source**\
 `Goldschmidt, 38, posted a 169 wRC+ against lefties, but only a 74 wRC+ against righties with the Yankees in 2025. `\
 https://nytimes.com/athletic/6808588/2026/02/06/mlb-paul-goldschmidt-free-agency-signing-yankees/
@@ -34,8 +38,4 @@ https://nytimes.com/2026/02/06/business/stock-market-rebound-dow-50000.html
 **E.P.A. Re-approves Controversial Herbicide That Drifts to Nearby Land**\
 `The chemical, dicamba, is used to control weeds on genetically engineered crops. Courts previously had restricted its use.`\
 https://nytimes.com/2026/02/06/climate/epa-dicamba-drifting-herbicide-approval.html
-
-**Wes Moore on 2028, His Party’s Problems and His Favorite Crab Cake**\
-`The Maryland governor discussed Trump, the country’s divisions and his workout routine.`\
-https://nytimes.com/2026/02/06/us/politics/wes-moore-maryland.html
 
