@@ -1,42 +1,40 @@
-**2026 World Cup base camps: Where each nation is setting up in North America**\
-`FIFA has made a number of locations available to each of the competing nations, with the competition for prime real estate fierce.`\
-https://nytimes.com/athletic/6974353/2026/02/07/world-cup-2026-training-bases-tracker/
+**What’s Up With This Big Freeze? Some Scientists See Climate Change Link**\
+`A warming Arctic can stretch the polar vortex, a high-altitude air ribbon, one says. The “wobble” can disrupt the jet stream, causing extreme cold in the East.`\
+https://nytimes.com/2026/02/07/climate/whats-up-with-this-big-freeze-some-scientists-see-climate-change-link.html
 
-**She's a U.S. Olympic skier and also a Stanford soccer player: Meet Sammy Smith**\
-`After Stanford's run to the national title game, Smith had one shot to make the U.S. Olympic cross-country skiing team. And she made it.`\
-https://nytimes.com/athletic/7024677/2026/02/07/shes-an-olympic-skier-and-also-a-stanford-soccer-player-meet-sammy-smith/
+**What an Olympic Medal Is Worth**\
+`The market value of Olympic medals has more than doubled since the 2024 Paris Games because of a surge in precious metal prices.`\
+https://nytimes.com/interactive/2026/02/07/business/olympic-medal-value.html
 
-**WATCH: Why do quarterbacks shout "Blue 42?"**\
-`Signal calling, as it's known is so old that most modern players probably don't know why they do it. So, let's dive in.
-`\
-https://nytimes.com/athletic/7022455/2026/02/07/quarterback-cadences-play-calls-color-number/
+**9 Songs We’re Talking About This Week**\
+`Ejae and Sombr chased the Grammys with new releases, and Peter Gabriel began unfurling his next album.`\
+https://nytimes.com/2026/02/07/arts/music/ejae-sombr-new-songs.html
 
-**The history of Super Bowl prop bets**\
-`Did you know that Super Bowl prop bets were popularized because the game itself, at the time, was too boring? Here's how it happened.
-`\
-https://nytimes.com/athletic/7022180/2026/02/07/prop-bets-super-bowl-seahawks-patriots/
+**Why Trump’s Calls to ‘Nationalize’ Voting Have Raised Midterm Fears**\
+`The president has escalated his language as his administration takes steps to involve itself more in election matters.`\
+https://nytimes.com/article/trumps-nationalize-voting-elections-midterms-explainer.html
 
-**Why do they sweep the ice in curling?**\
-`Want to learn more about what that sweeping in front of the stone really accomplishes in Olympic curling? Let us explain.`\
-https://nytimes.com/athletic/7027221/2026/02/07/why-sweep-ice-curling-olympics/
+**Stop Pretending You ‘Need’ Your Phone ‘for Work’**\
+`Plus, summoning the courage to loaf off as flagrantly as the person in the next cubicle.`\
+https://nytimes.com/2026/02/07/business/stop-pretending-you-need-your-phone-for-work.html
 
-**WATCH: Does the Super Bowl break sewage systems?**\
-`In 1984, a pipe burst during the halftime show of Super Bowl XVIII. It was theorized to be due to the "super flush" phenomenon. But was it?`\
-https://nytimes.com/athletic/7021821/2026/02/07/super-bowl-sewer-system-super-flush/
+**Japan Ocean-Mining Test Successfully Hauls Up Potentially Valuable Mud**\
+`It’s the latest twist in the controversial global race to mine the deep sea for rare-earth elements and other valuable resources.`\
+https://nytimes.com/2026/02/07/climate/ocean-seabed-mining-japan-rare-earths.html
 
-**Transfer window analysis: Who were the best statical fits to improve their new team?**\
-`Picking the three Premier League January window transfers that made the most statistical sense`\
-https://nytimes.com/athletic/7026353/2026/02/07/numbers-to-know-transfer-window-man-citys-home-run-and-semenyos-replacement/
+**These Mathematicians Are Putting A.I. to the Test**\
+`Large language models struggle to solve research-level math questions. It takes a human to measure just how poorly they perform.`\
+https://nytimes.com/2026/02/07/science/mathematics-ai-proof-hairer.html
 
-**Landlord Accused of Offering Rent-Stabilized Apartments as Hotel Rooms**\
-`The city filed a lawsuit on Friday against Mark David Militana, the owner of two brownstones on the Upper West Side, claiming he had made $550,000 from the illegal rentals.`\
-https://nytimes.com/2026/02/07/nyregion/landlord-accused-of-offering-rent-stabilized-apartments-as-hotel-rooms.html
+**As Super Bowl Host, Santa Clara Gets the Spotlight. Well, Sort Of.**\
+`Beyond Northern California, fans may not realize that the Super Bowl is actually in this tidy Silicon Valley suburb 45 miles south of San Francisco.`\
+https://nytimes.com/2026/02/07/us/santa-clara-super-bowl.html
 
-**Smaller N.Y.C. Classes Will Cost Millions. Can Mamdani Pull It Off?**\
-`Mayor Zohran Mamdani wants to make classes smaller across the largest U.S. school system. Like other parts of his agenda, it’s a costly task.`\
-https://nytimes.com/2026/02/07/nyregion/mamdani-nyc-class-size.html
+**Sullen and Sunburned: The Tradition of Castaways at the Movies**\
+`“Send Help” is just the latest take on a survivalist premise that dates to the 1719 novel “Robinson Crusoe.” These six movies offer fascinating twists.`\
+https://nytimes.com/2026/02/07/movies/send-help-castaway-movies.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/07/crosswords/spelling-bee-forum.html
+**Elon Musk Is Betting Another Tech Conglomerate (His) Can Win Over Wall St.**\
+`The billionaire’s decision to merge his A.I. start-up with his rocket company will test investors’ interest in giant combinations of unalike businesses.`\
+https://nytimes.com/2026/02/07/technology/elon-musk-spacex-xai.html
 
