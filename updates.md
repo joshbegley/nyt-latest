@@ -38,6 +38,16 @@ https://nytimes.com/athletic/7022455/2026/02/07/quarterback-cadences-play-calls-
 `\
 https://nytimes.com/athletic/7022180/2026/02/07/prop-bets-super-bowl-seahawks-patriots/
 
+**WATCH: Why do quarterbacks shout "Blue 42?"**\
+`Signal calling, as it's known is so old that most modern players probably don't know why they do it. So, let's dive in.
+`\
+https://nytimes.com/athletic/7022455/2026/02/07/quarterback-cadences-play-calls-color-number/
+
+**The history of Super Bowl prop bets**\
+`Did you know that Super Bowl prop bets were popularized because the game itself, at the time, was too boring? Here's how it happened.
+`\
+https://nytimes.com/athletic/7022180/2026/02/07/prop-bets-super-bowl-seahawks-patriots/
+
 **She's a U.S. Olympic skier and also a Stanford soccer player: Meet Sammy Smith**\
 `After Stanford's run to the national title game, Smith had one shot to make the U.S. Olympic cross-country skiing team. And she made it.`\
 https://nytimes.com/athletic/7024677/2026/02/07/shes-an-olympic-skier-and-also-a-stanford-soccer-player-meet-sammy-smith/
