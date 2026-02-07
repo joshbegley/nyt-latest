@@ -1,3 +1,7 @@
+**Al Horford on NBA trade deadline, Steph experience, playing with Porziņģis and more**\
+`Horford also discusses how he'll be attending the Super Bowl and rooting for the New England Patriots.`\
+https://nytimes.com/athletic/7028746/2026/02/07/al-horford-trade-deadline-kristaps-porzingis-steph-curry/
+
 **Why Ice Raids in Minneapolis Are Driving Up Demand for Guns**\
 `Gun permit applications have surged in Minnesota since ICE raids began across the state in December.`\
 https://nytimes.com/video/us/100000010682068/minneapolis-ice-raids-guns-safety.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029028/2026/02/07/rockets-vs-thunder-stream-how-to
 **How to watch Wizards vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029024/2026/02/07/wizards-vs-nets-stream-how-to-watch-feb-7/
-
-**'It starts with me': Rudy Gobert says Wolves should bench players who aren't giving effort**\
-`After blowing an 18-point lead to the Pelicans, the Wolves' center called out the overall effort in a shocking loss.`\
-https://nytimes.com/athletic/7028536/2026/02/07/rudy-gobert-chris-finch-bench-players-timberwolves/
 
