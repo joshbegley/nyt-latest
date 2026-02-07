@@ -1,9 +1,13 @@
+**Jaxson Hayes, Jase Richardson among 2026 NBA Slam Dunk competitors**\
+`The league has not revealed the participants in the 3-point shooting contest at NBA All-Star Weekend at the Intuit Dome in Inglewood, Calif.`\
+https://nytimes.com/athletic/7029345/2026/02/07/nba-all-star-dunk-contest-shooting-stars-3-point/
+
 **Former MLB, Royals outfielder Terrance Gore dies at 34**\
 `Gore was a speedster who stole 43 bases in the majors and was a member of three teams that won the World Series.`\
 https://nytimes.com/athletic/7029314/2026/02/07/terrance-gore-death-royals-cubs-mets-braves-dodgers/
 
 **A Super Bowl in Silicon Valley Filled With Valley Billionaires**\
-`A who’s who of celebrities will join them Just a little over 25 percent of the seats for the game will be for regular fans, with the cheapest ticket now selling for more than $4,000.`\
+`A who’s who of celebrities will join them. Just a little over 25 percent of the seats for the game will be for regular fans, with the cheapest ticket now selling for more than $4,000.`\
 https://nytimes.com/2026/02/07/business/super-bowl-tickets-billionaires.html
 
 **Fake Post, Which Looked to Be Trump’s on Truth Social, Spreads Widely**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029337/2026/02/07/mavericks-vs-spurs-stream-how-to
 **How to watch Hornets vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029328/2026/02/07/hornets-vs-hawks-stream-how-to-watch-feb-7/
-
-**How to watch Nuggets vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7029326/2026/02/07/nuggets-vs-bulls-stream-how-to-watch-feb-7/
 
