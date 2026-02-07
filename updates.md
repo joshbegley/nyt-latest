@@ -1,3 +1,7 @@
+**Thousands in Mississippi Remain Without Power Two Weeks After Winter Storm**\
+`A majority of those who lost service have had their power restored. But thousands in more rural areas remain in darkness, according to a local utility.`\
+https://nytimes.com/2026/02/07/us/mississippi-power-outages-winter-storm.html
+
 **6 Fishermen Reel In a 244-Pound Atlantic Halibut, Setting a Local Record**\
 `The fish, hooked as part of a study on the halibut population around the Ha! Ha! Bay in the Canadian province of Quebec, measured more than 6.5 feet long, researchers said.`\
 https://nytimes.com/2026/02/07/world/canada/atlantic-halibut-fishing-record-quebec.html
