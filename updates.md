@@ -1,3 +1,11 @@
+**Trump Opens Marine National Monument in Atlantic to Commercial Fishing**\
+`Off the coast of Cape Cod, the Northeast Canyons and Seamounts Marine National Monument is a unique stretch of ocean that had been protected for a decade.`\
+https://nytimes.com/2026/02/06/climate/trump-monument-fishing-northeast-canyons.html
+
+**‘Melania’ and the Missing First Lady**\
+`The documentary highlights a few notable predecessors in the role, burnishing Mrs. Trump’s image by extension. But one apt comparison is pointedly left out.`\
+https://nytimes.com/2026/02/06/movies/melania-documentary-nancy-reagan.html
+
 **Bad Bunny Explains His ‘Purpose’ in Life**\
 `Bad Bunny sat down with Jon Caramanica and Joe Coscarelli, the hosts of Popcast, prior to releasing his Grammy-winning magnum opus, “Debí Tirar Más Fotos,” to discuss how working with young Puerto Rican musicians in his home country ranks among his life’s greatest achievements.`\
 https://nytimes.com/video/podcasts/100000010696585/bad-bunny-explains-his-purpose-in-life.html
