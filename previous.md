@@ -1,40 +1,40 @@
+**Trump Reverts to Diplomacy With Iran, but the Road Is Narrow**\
+`Iran is skilled at prolonging negotiations over its nuclear program, and seems to be hoping President Trump is out for a quick win, rather than a prolonged regional war.`\
+https://nytimes.com/2026/02/07/world/europe/iran-us-trump-diplomacy.html
+
+**First gold of 2026 Olympics goes to Switzerland's Franjo von Allmen in men's downhill**\
+`Von Allmen tamed the formidable Stelvio course to become Olympic champion in the men's downhill. `\
+https://nytimes.com/athletic/7028783/2026/02/07/mens-2026-olympic-downhill-franjo-von-allmen/
+
+**Trump’s Obama Derangement Syndrome**\
+`The president shows, once again, that he shouldn’t be anywhere near the Oval.`\
+https://nytimes.com/2026/02/07/opinion/trump-obama-apes-post-video.html
+
+**The best and most jarring decisions made at the trade deadline**\
+`An astounding 28 deals were made in the seven days preceding this year's deadline.`\
+https://nytimes.com/athletic/7027334/2026/02/07/nba-trade-deadline-best-worst-decisions/
+
+**Submit your Blackhawks questions for Scott Powers' mailbag**\
+`Have a question about the Blackhawks? Send it in here, and Scott may answer it in an upcoming mailbag.`\
+https://nytimes.com/athletic/7027466/2026/02/07/blackhawks-questions-scott-powers-mailbag/
+
+**Jeffrey Epstein, the Devil’s Concierge**\
+`He knew how to give self-important people what they thought they deserved.`\
+https://nytimes.com/2026/02/07/opinion/epstein-files-gifts-rich.html
+
+**The President’s Personal Spy Chief**\
+`From joining an F.B.I. search of an election center to allegedly suppressing a whistleblower complaint, Tulsi Gabbard, the director of national intelligence, is eroding the independence of our intelligence community, argues Times Opinion’s editor, Kathleen Kingsbury.`\
+https://nytimes.com/video/opinion/100000010694134/the-presidents-personal-spy-chief.html
+
 **How Hard Is It to Rig an American Election, Really?**\
 `The round table convenes to debate whether we need to worry about the midterms being free and fair.`\
-https://nytimes.com/video/opinion/100000010693264/how-hard-is-it-to-rig-an-american-election-really.html
+https://nytimes.com/2026/02/07/opinion/trump-nationalize-elections.html
 
-**Russian Strikes Pummel Ukraine’s Power Grid**\
-`The drone and missile bombardments were the latest attacks on Ukrainian energy infrastructure during a winter freeze, as peace talks have made little progress.`\
-https://nytimes.com/2026/02/07/world/europe/russia-strikes-ukraine-energy.html
+**A Simple Fix to Curb Federal Power**\
+`On “The Opinions,” the columnist David French explains how federal immunity makes it nearly impossible to sue over civil rights violations — and why a simple change to the law could finally hold agencies like ICE accountable.`\
+https://nytimes.com/video/opinion/100000010693272/a-simple-fix-to-curb-federal-power.html
 
-**Oviedo to 'pursue legal actions' after game at Rayo called off**\
-`The game was scheduled to be played on Saturday afternoon at 2pm local time, but was postponed less than four hours before kick-off.`\
-https://nytimes.com/athletic/7028812/2026/02/07/rayo-vallecano-oviedo-postponed-la-liga/
-
-**Vanity Fair**\
-`Behind the scenes at the Westminster Dog Show, the entrants were affectionate. Or at least they acted like it.`\
-https://nytimes.com/2026/02/07/briefing/vanity-fair.html
-
-**How to watch Butler vs. UConn women's basketball: Time, TV, streaming**\
-`Find out how to watch the Butler Bulldogs play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7028845/2026/02/07/butler-vs-uconn-stream-how-to-watch-feb-7/
-
-**How to watch Syracuse vs. Virginia men's basketball: Time, TV, streaming**\
-`Find out how to watch the Syracuse Orange play the Virginia Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7028843/2026/02/07/syracuse-vs-virginia-stream-how-to-watch-feb-7/
-
-**How to watch Arkansas vs. Mississippi State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Arkansas Razorbacks play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7028840/2026/02/07/arkansas-vs-mississippi-state-stream-how-to-watch-feb-7/
-
-**How to watch Arizona vs. West Virginia women's basketball: Time, TV, streaming**\
-`Find out how to watch the Arizona Wildcats play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7028838/2026/02/07/arizona-vs-west-virginia-stream-how-to-watch-feb-7/
-
-**How to watch Louisville vs. Wake Forest men's basketball: Time, TV, streaming**\
-`Find out how to watch the Louisville Cardinals play the Wake Forest Demon Deacons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7028836/2026/02/07/louisville-vs-wake-forest-stream-how-to-watch-feb-7/
-
-**How to watch Baylor vs. Iowa State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Baylor Bears play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7028833/2026/02/07/baylor-vs-iowa-state-stream-how-to-watch-feb-7/
+**Rangers insider: Answering lingering questions about Artemi Panarin trade**\
+`Why didn't the Rangers match the Kings' extension, and what was the rush? Here's what I'm hearing.`\
+https://nytimes.com/athletic/7027926/2026/02/07/rangers-artemi-panarin-trade-extension-match/
 
