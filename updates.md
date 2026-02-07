@@ -1,3 +1,15 @@
+**One Month After Renee Good’s Killing, Her Partner Makes First Public Appearance**\
+`Becca Good attended a memorial for Renee Good, offering words of compassion and resilience to the crowd gathered in a snow-covered Minneapolis park.`\
+https://nytimes.com/2026/02/07/us/renee-good-partner-memorial-minneapolis.html
+
+**Trump’s ‘Board of Peace’ Sets Date to Meet in Washington, Officials Say**\
+`The group, which has prompted skepticism from some U.S. allies, is scheduled to meet on Feb. 19, according to the officials.`\
+https://nytimes.com/2026/02/07/world/middleeast/trump-board-of-peace-meeting.html
+
+**Squirrel gets on the pitch and halts Championship game. Twice. Before comedy attempts to catch it**\
+`A squirrel caused chaos in Hull City's home match with fellow promotion chasers Bristol City`\
+https://nytimes.com/athletic/7029685/2026/02/07/hull-bristol-city-squirrel-stopped-play/
+
 **Thousands in Mississippi Remain Without Power Two Weeks After Winter Storm**\
 `A majority of those who lost service have had their power restored. But thousands in more rural areas remain in darkness, according to a local utility.`\
 https://nytimes.com/2026/02/07/us/mississippi-power-outages-winter-storm.html

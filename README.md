@@ -1,3 +1,7 @@
+**After 48-hour delay, Canada begins bid for Olympic hockey gold with win over Switzerland**\
+`The Canadians finally began their Olympic tournament on Saturday after a norovirus outbreak on Team Finland postponed their first game.`\
+https://nytimes.com/athletic/7029478/2026/02/07/canada-womens-hockey-switzerland-2026-olympics/
+
 **One Month After Renee Good’s Killing, Her Partner Makes First Public Appearance**\
 `Becca Good attended a memorial for Renee Good, offering words of compassion and resilience to the crowd gathered in a snow-covered Minneapolis park.`\
 https://nytimes.com/2026/02/07/us/renee-good-partner-memorial-minneapolis.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/07/world/olympics-italy-photos
 **Ilia Malinin, the ‘Quad God,’ leaves an ace up his sleeve.**\
 `Summary`\
 https://nytimes.com/2026/02/07/world/olympics-ilia-malinin-short-program.html
-
-**Ohio Man Is Charged With Threatening to Kill JD Vance**\
-`During the investigation, the man was found to have child sex abuse materials on his phone, federal prosecutors said.`\
-https://nytimes.com/2026/02/07/us/politics/jd-vance-threat-charged-ohio.html
 
