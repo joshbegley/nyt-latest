@@ -1,3 +1,19 @@
+**'It starts with me': Rudy Gobert says Wolves should bench players who aren't giving effort**\
+`After blowing an 18-point lead to the Pelicans, the Wolves' center called out the overall effort in a shocking loss.`\
+https://nytimes.com/athletic/7028536/2026/02/07/rudy-gobert-chris-finch-bench-players-timberwolves/
+
+**How to watch La Salle vs. Saint Louis men's basketball: Time, TV, streaming**\
+`Find out how to watch the La Salle Explorers play the Saint Louis Billikens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029008/2026/02/07/la-salle-vs-saint-louis-stream-how-to-watch-feb-7/
+
+**How to watch Miami (OH) vs. Marshall men's basketball: Time, TV, streaming**\
+`Find out how to watch the Miami (OH) RedHawks play the Marshall Thundering Herd, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029006/2026/02/07/miami-oh-vs-marshall-stream-how-to-watch-feb-7/
+
+**How to watch Oklahoma State vs. Arizona men's basketball: Time, TV, streaming**\
+`Find out how to watch the Oklahoma State Cowboys play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7029004/2026/02/07/oklahoma-state-vs-arizona-stream-how-to-watch-feb-7/
+
 **How to watch Utah vs. Kansas men's basketball: Time, TV, streaming**\
 `Find out how to watch the Utah Utes play the Kansas Jayhawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7029000/2026/02/07/utah-vs-kansas-stream-how-to-watch-feb-7/
