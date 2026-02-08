@@ -1,3 +1,7 @@
+**Brad Arnold, Rocker Who Fronted 3 Doors Down, Dies at 47**\
+`He wrote the band’s breakout hit, “Kryptonite,” in a high school math class, and would go on to be nominated for three Grammy Awards.`\
+https://nytimes.com/2026/02/07/arts/music/brad-arnold-three-doors-down-dead.html
+
 **Files Detail Epstein’s Dealings With Commerce Secretary Howard Lutnick**\
 `Mr. Lutnick had claimed to have distanced himself from Jeffrey Epstein even before the disgraced financier was convicted of a sex crime in Florida.`\
 https://nytimes.com/2026/02/07/nyregion/lutnick-epstein-files-dealings.html
