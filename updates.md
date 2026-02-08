@@ -1,3 +1,7 @@
+**The Pulse: Bad Bunny, big money**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7030368/2026/02/08/bad-bunny-means-big-money-plus-lindsey-vonn-crashes/
+
 **Talk to Your Parents**\
 `Today, some advice on having conversations with aging parents about their health.`\
 https://nytimes.com/2026/02/08/briefing/talk-to-your-parents.html

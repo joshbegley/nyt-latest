@@ -1,3 +1,7 @@
+**The Pulse: Bad Bunny, big money**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7030368/2026/02/08/bad-bunny-means-big-money-plus-lindsey-vonn-crashes/
+
 **Talk to Your Parents**\
 `Today, some advice on having conversations with aging parents about their health.`\
 https://nytimes.com/2026/02/08/briefing/talk-to-your-parents.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/08/opinion/ai-democrats-jobs-economy.html
 **How to watch the Super Bowl national anthem and other pregame festivities**\
 `The buildup to Super Bowl LX features Green Day, Alcatraz Island, the most-watched national anthem and much more. `\
 https://nytimes.com/athletic/7030081/2026/02/08/super-bowl-2026-national-anthem-charlie-puth-green-day/
-
-**Five Cubs players in the spotlight with spring training about to start**\
-`The organization has clear expectations for October baseball at Wrigley Field, a time and place where seemingly anything can happen.`\
-https://nytimes.com/athletic/7028045/2026/02/08/chicago-cubs-spring-training-spotlight/
 
