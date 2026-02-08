@@ -1,3 +1,15 @@
+**Charlie McAvoy's Olympic diary: On the opening ceremony, his jaw and, yes, his Tweet**\
+`From dealing with a swollen face to preparing for Thursday's game, McAvoy chronicles his time with Team USA for The Athletic.`\
+https://nytimes.com/athletic/7031283/2026/02/08/charlie-mcavoy-olympics-hockey-jaw-tweet/
+
+**4 Dead in Mushroom Poisoning Outbreak in California**\
+`State health officials discouraged foraging this year, saying that toxic mushrooms can easily be confused with safe ones to eat.`\
+https://nytimes.com/2026/02/08/us/california-mushrooms-deaths.html
+
+**Celtics' Jayson Tatum progresses to 5-on-5 workouts: Source**\
+`Celtics general manager Brad Stevens said Friday that the team will not pressure Tatum one way or another about returning this season.`\
+https://nytimes.com/athletic/7031244/2026/02/08/celtics-jayson-tatum-injury-update/
+
 **Israeli bobsled team loses passports and 'thousands of dollars' in robbery before Milan Cortina Olympics**\
 `The robbery occurred in the Czech Republic, where the team is training before heading to Italy, according to the New York Post.`\
 https://nytimes.com/athletic/7030968/2026/02/08/israeli-bobsled-robbed-milan-cortina-olympics/

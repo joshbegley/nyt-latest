@@ -1,3 +1,11 @@
+**‘We Will Pay’: Savannah Guthrie Addresses Mother’s Captor in New Video**\
+`Nancy Guthrie’s children shared a new video message to their mother’s purported abductor on Saturday evening. In the video, posted to the “Today” show anchor Savannah Guthrie’s Instagram account, the siblings said they were willing to pay for their mother’s return.`\
+https://nytimes.com/video/us/100000010698061/savannah-guthrie-mother-nancy-kidnapped.html
+
+**Big 12 fines Oklahoma State $50K for anti-Mormon chants during BYU game**\
+`An Oklahoma State investigation determined the chant was directed at officials and the “reference to religion did not meet our standards.”`\
+https://nytimes.com/athletic/7031284/2026/02/08/oklahoma-state-byu-anti-mormon-chants-big-12-fine/
+
 **Charlie McAvoy's Olympic diary: On the opening ceremony, his jaw and, yes, his Tweet**\
 `From dealing with a swollen face to preparing for Thursday's game, McAvoy chronicles his time with Team USA for The Athletic.`\
 https://nytimes.com/athletic/7031283/2026/02/08/charlie-mcavoy-olympics-hockey-jaw-tweet/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/08/arts/music/super-bowl-halftime-sign-language.html
 **Rockets' Şengün to replace injured Shai Gilgeous-Alexander in NBA All-Star Game**\
 `Şengün will join "Team World" under the All-Star Game's new USA vs. the World format.`\
 https://nytimes.com/athletic/7031086/2026/02/08/alperen-sengun-nba-all-star-rockets/
-
-**7 Days, No Suspects: The Disappearance of Nancy Guthrie**\
-`The mother of the “Today” show host Savannah Guthrie has not been heard from since an evening of dinner and games with family members.`\
-https://nytimes.com/2026/02/08/us/nancy-guthrie-savannah-guthrie-family.html
-
-**The U.S. Skiing Star Lindsey Vonn Crashes in Olympic Women’s Downhill**\
-`Lindsey Vonn’s dream of reclaiming the downhill gold medal despite a torn A.C.L. ended in disappointment on Sunday when she crashed 13 seconds into her race and was airlifted off the course.`\
-https://nytimes.com/video/sports/skiing/100000010698159/winter-olympics-skiing-lindsey-vonn-crash.html
 
