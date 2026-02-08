@@ -1,3 +1,7 @@
+**Results and outcomes for Super Bowl 2026 prop bets**\
+`A look at the Super Bowl prop bets that hit and the ones that missed the mark.`\
+https://nytimes.com/athletic/7021269/2026/02/08/super-bowl-2026-prop-bets-results-outcomes/
+
 **Reports: Lindsey Vonn fractured leg in Olympic downhill crash, had surgery**\
 `Vonn was airlifted off the mountain after her crash Sunday in the Olympic women's downhill and was recovering at a local hospital.`\
 https://nytimes.com/athletic/7031603/2026/02/08/lindsey-vonn-winter-olympics-crash-injury-surgery-fractured-leg/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7031234/2026/02/08/president-trump-hunter-hess-2026
 **Mets, outfielder MJ Melendez in agreement on 1-year, $1.5 million deal: Sources**\
 `The Mets think Melendez, who came up as a catcher and has mostly played in the outfield in the majors, can occasionally handle first base. `\
 https://nytimes.com/athletic/7031523/2026/02/08/mlb-mets-mj-melendez-contract/
-
-**Jaylen Brown: Celtics must figure out chemistry after Nikola Vučević trade**\
-`Despite the lopsided outcome in a playoff rematch, the Celtics didn’t overreact to a loss to the New York Knicks.`\
-https://nytimes.com/athletic/7031526/2026/02/08/nikola-vucevic-trade-celtics-chemistry-jaylen-brown/
 
