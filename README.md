@@ -1,3 +1,7 @@
+**Wizards GM Will Dawkins anticipates Anthony Davis playing again this season**\
+`Dawkins said he anticipates Anthony Davis making his debut before the end of this season after a doctor visit. `\
+https://nytimes.com/athletic/7031230/2026/02/08/wizards-anthony-davis-will-dawkins/
+
 **Lindsey Vonn has always gone all-in, and these Olympics were no different**\
 `​​"I have always pushed the limits," Vonn said this week. She was always going to do it again on Sunday, risks be damned.`\
 https://nytimes.com/athletic/7031150/2026/02/08/lindsey-vonn-winter-olympics-crash-cortina/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7031244/2026/02/08/celtics-jayson-tatum-injury-upda
 **Israeli bobsled team loses passports and 'thousands of dollars' in robbery before Milan Cortina Olympics**\
 `The robbery occurred in the Czech Republic, where the team is training before heading to Italy, according to the New York Post.`\
 https://nytimes.com/athletic/7030968/2026/02/08/israeli-bobsled-robbed-milan-cortina-olympics/
-
-**The Briefing: Liverpool 1 Man City 2 - Where does this leave the title race? Was the late red card right?**\
-`Our writers break down the action from a dramatic finish in the Premier League at Anfield`\
-https://nytimes.com/athletic/7026767/2026/02/08/liverpool-man-city-premier-league-szoboszlai/
 
