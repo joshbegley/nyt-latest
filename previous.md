@@ -1,3 +1,27 @@
+**Heavy Snow Disrupts Japan Election, Forcing Polling Stations to Close Early**\
+`The government said that about 40 percent of all polling stations closed earlier than planned because of heavy snow on Sunday.`\
+https://nytimes.com/2026/02/08/world/asia/japan-heavy-snow-polling-stations.html
+
+**How to watch U.S. figure skating team compete for gold in 2026 Winter Olympics**\
+`The first Olympic medals for figure skating will be awarded Sunday in the team event.`\
+https://nytimes.com/athletic/7028152/2026/02/08/usa-figure-skating-winter-olympics-how-to-watch-2026/
+
+**A Movie About America Broke My Heart**\
+`I am not a Shaker. That didn’t stop me from tearing up at “The Testament of Ann Lee.”`\
+https://nytimes.com/2026/02/08/opinion/shakers-quakers-testament-ann-lee.html
+
+**The Secret History of the Deep State**\
+`Seven pages of grand jury testimony from Richard Nixon were deemed so incendiary that they were hidden from the public for years.`\
+https://nytimes.com/2026/02/08/opinion/trump-nixon-watergate-radford.html
+
+**What's on after Super Bowl LX? Winter Olympic schedule, events following the big game**\
+`Mike Tirico makes history, and high-stakes sports keep on coming. Here's what's airing right after Super Bowl 60.`\
+https://nytimes.com/athletic/7028139/2026/02/08/super-bowl-2026-winter-olympics-post-game/
+
+**It’s the A.I. Economy, Stupid**\
+`The Democratic Party needs to prepare for the coming tech revolution.`\
+https://nytimes.com/2026/02/08/opinion/ai-democrats-jobs-economy.html
+
 **How to watch the Super Bowl national anthem and other pregame festivities**\
 `The buildup to Super Bowl LX features Green Day, Alcatraz Island, the most-watched national anthem and much more. `\
 https://nytimes.com/athletic/7030081/2026/02/08/super-bowl-2026-national-anthem-charlie-puth-green-day/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7025788/2026/02/08/how-to-watch-kitten-bowl-rescue-
 **Lindsey Vonn crashes in Olympic women's downhill, airlifted off course**\
 `Vonn crashed during Sunday’s Olympic women’s downhill and was airlifted off the mountain. Her status is unclear. `\
 https://nytimes.com/athletic/7030495/2026/02/08/lindsey-vonn-winter-olympics-downhill-crash-torn-acl/
-
-**How to watch Puppy Bowl 2026: Streaming, format and dogs to know**\
-`The 22nd edition of the Puppy Bowl features 150 adoptable dogs playing for a shot at the Lombarky Trophy.`\
-https://nytimes.com/athletic/7016839/2026/02/08/how-to-watch-puppy-bowl-2026-tv-channel/
-
-**The best Drake Maye rookie cards to collect**\
-`Maye has been the hottest name in the football card world this season. `\
-https://nytimes.com/athletic/7030076/2026/02/08/drake-maye-best-rookie-cards-patriots/
-
-**Seth Trimble sees his dream come true with game-winner against Duke**\
-`Seth Trimble, a four-year Tar Heel, put his stamp on North Carolina's rivalry with Duke in stunning fashion Saturday night in Chapel Hill.`\
-https://nytimes.com/athletic/7030381/2026/02/08/unc-seth-trimble-game-winner-duke/
-
-**At the Super Bowl, It’s Nice Guy vs. Underdog**\
-`Your guide to today’s matchup.`\
-https://nytimes.com/2026/02/08/podcasts/the-daily/at-the-super-bowl-its-nice-guy-vs-underdog.html
-
-**Bad Bunny's Super Bowl halftime show a must-watch in Puerto Rico. The game comes second**\
-`Puerto Rico is ready for the Super Bowl halftime show. Sunday also could be an opportunity for Bad Buddy fans to simply appreciate football.`\
-https://nytimes.com/athletic/7029780/2026/02/08/super-bowl-bad-bunny-puerto-rico-halftime-show/
-
-**Wordle Review No. 1,696**\
-`Scroll down for hints and conversation about the puzzle for Monday, Feb. 9, 2026.`\
-https://nytimes.com/2026/02/08/crosswords/wordle-review-1696.html
 
