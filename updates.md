@@ -1,3 +1,11 @@
+**Files Detail Epstein’s Dealings With Commerce Secretary Howard Lutnick**\
+`Mr. Lutnick had claimed to have distanced himself from Jeffrey Epstein even before the disgraced financier was convicted of a sex crime in Florida.`\
+https://nytimes.com/2026/02/07/nyregion/lutnick-epstein-files-dealings.html
+
+**Big Air, Big Tricks. How Kira Kimura Won Snowboarding Gold.**\
+`Kira Kimura clinched the top spot on the podium after landing two tricks with five and a half rotations.`\
+https://nytimes.com/interactive/2026/02/07/sports/kira-kimura-snowboarding-big-air-milan-olympics.html
+
 **Man Pleads Guilty to Arson in 2019 Attack on Tennessee Civil Rights Center**\
 `The man also pleaded guilty this week to a charge of attempting to provide material support to a foreign terrorist organization, Hezbollah.`\
 https://nytimes.com/2026/02/07/us/tennessee-arson-guilty-plea-landmark.html
