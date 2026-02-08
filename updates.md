@@ -1,3 +1,7 @@
+**Mets, outfielder MJ Melendez in agreement on 1-year, $1.5 million deal: Sources**\
+`The Mets think Melendez, who came up as a catcher and has mostly played in the outfield in the majors, can occasionally handle first base. `\
+https://nytimes.com/athletic/7031523/2026/02/08/mlb-mets-mj-melendez-contract/
+
 **Jaylen Brown: Celtics must figure out chemistry after Nikola Vučević trade**\
 `Despite the lopsided outcome in a playoff rematch, the Celtics didn’t overreact to a loss to the New York Knicks.`\
 https://nytimes.com/athletic/7031526/2026/02/08/nikola-vucevic-trade-celtics-chemistry-jaylen-brown/

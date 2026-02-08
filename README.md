@@ -1,3 +1,7 @@
+**Trump calls Olympian ‘a real loser’ over comments on representing U.S.**\
+`President Trump responds to Hunter Hess' comments on representing the U.S. at the Winter Olympics. `\
+https://nytimes.com/athletic/7031234/2026/02/08/president-trump-hunter-hess-2026-winter-olympics/
+
 **Mets, outfielder MJ Melendez in agreement on 1-year, $1.5 million deal: Sources**\
 `The Mets think Melendez, who came up as a catcher and has mostly played in the outfield in the majors, can occasionally handle first base. `\
 https://nytimes.com/athletic/7031523/2026/02/08/mlb-mets-mj-melendez-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/08/world/nuclear-arms-control-japan-election.html
 **Damian Lillard a surprise addition to 3-point contest at NBA All-Star Weekend**\
 `The NBA announced that the Trail Blazers star will participate despite not playing at all this season after tearing an Achilles. `\
 https://nytimes.com/athletic/7031428/2026/02/08/damian-lillard-3-point-contest-2026-nba/
-
-**Mark Marquess, Who Made Stanford a Baseball Powerhouse, Dies at 78**\
-`Over 41 seasons as head coach, he won two national titles and sent more than 200 players to the major leagues, including Mike Mussina and Jack McDowell.`\
-https://nytimes.com/2026/02/08/obituaries/mark-marquess-dead.html
 

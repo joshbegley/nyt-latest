@@ -1,3 +1,7 @@
+**Mets, outfielder MJ Melendez in agreement on 1-year, $1.5 million deal: Sources**\
+`The Mets think Melendez, who came up as a catcher and has mostly played in the outfield in the majors, can occasionally handle first base. `\
+https://nytimes.com/athletic/7031523/2026/02/08/mlb-mets-mj-melendez-contract/
+
 **Jaylen Brown: Celtics must figure out chemistry after Nikola Vučević trade**\
 `Despite the lopsided outcome in a playoff rematch, the Celtics didn’t overreact to a loss to the New York Knicks.`\
 https://nytimes.com/athletic/7031526/2026/02/08/nikola-vucevic-trade-celtics-chemistry-jaylen-brown/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7031428/2026/02/08/damian-lillard-3-point-contest-2
 **Mark Marquess, Who Made Stanford a Baseball Powerhouse, Dies at 78**\
 `Over 41 seasons as head coach, he won two national titles and sent more than 200 players to the major leagues, including Mike Mussina and Jack McDowell.`\
 https://nytimes.com/2026/02/08/obituaries/mark-marquess-dead.html
-
-**See How Breezy Johnson Won Downhill Gold by 0.04 Seconds**\
-`Breezy Johnson of the United States beat Emma Aicher of Germany by a split-second after her teammate Lindsey Vonn crashed early in her run.`\
-https://nytimes.com/interactive/2026/02/08/sports/breezy-johnson-womens-downhill-ski-winter-olympics.html
 
