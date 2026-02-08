@@ -1,3 +1,11 @@
+**What to Know About Thailand’s Election**\
+`The progressive People’s Party was leading in surveys conducted before Sunday’s election but the country has a history of overturning voters’ will.`\
+https://nytimes.com/2026/02/07/world/asia/thailand-election-what-to-know.html
+
+**In Bid to Lead Thailand, a Progressive Party Softens Its Image**\
+`Sunday’s election is a test for the progressive, pro-democracy movement in Thailand, which has repeatedly been blocked from taking power despite success at the polls.`\
+https://nytimes.com/2026/02/07/world/asia/thailand-election-peoples-party.html
+
 **'We just can’t stop’: Inside Auburn's rivalry prep and start to the Steven Pearl era**\
 `Bruce Pearl made Auburn basketball nationally relevant. Can his son, Steven, keep the momentum going? `\
 https://nytimes.com/athletic/7029249/2026/02/07/auburn-alabama-basketball-steven-pearl/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/07/us/tennessee-arson-guilty-plea-landmark.html
 **Facing Regulatory Scrutiny, Hims & Hers Withdraws Knockoff Obesity Pill**\
 `Federal officials had warned that the new product from the online provider of weight loss drugs might be illegal.`\
 https://nytimes.com/2026/02/07/health/hims-obesity-pill-wegovy-novo-nordisk.html
-
-**Who’s in Charge Here?**\
-`Chloe Revery’s first Sunday puzzle aces its performance review.`\
-https://nytimes.com/2026/02/07/crosswords/daily-puzzle-2026-02-08.html
-
-**Washington Post C.E.O. Will Lewis Steps Down After Stormy Tenure**\
-`His departure came days after the company cut 30 percent of the staff. He will be replaced in the interim by Jeff D’Onofrio, the chief financial officer, the company said.`\
-https://nytimes.com/2026/02/07/technology/washington-post-will-lewis.html
 
