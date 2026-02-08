@@ -1,6 +1,6 @@
-**How Team U.S.A held off Japan to win gold.**\
+**How the American skaters held off Japan to win team gold.**\
 `And summary goes here`\
-https://nytimes.com/2026/02/08/world/how-the-american-skaters-held-off-japan-to-win-team-gold.html
+https://nytimes.com/live/2026/02/07/world/olympics-italy-photos/how-the-american-skaters-held-off-japan-to-win-team-gold
 
 **Cam Thomas signs with Bucks for rest of season after being waived by Nets: Source**\
 `Thomas averaged 15.6 points and 3.1 assists in 24.3 minutes per game in 24 appearances (eight starts) with the Brooklyn Nets this season.`\
@@ -10,7 +10,7 @@ https://nytimes.com/athletic/7031647/2026/02/08/cam-thomas-bucks-free-agent-sign
 `Authorities launch terrorism investigation into railway sabotage in northern Italy, police skirmish with demonstrators in Milan.`\
 https://nytimes.com/athletic/7031362/2026/02/08/meloni-condemns-anti-olympics-acts-in-milan-protests/
 
-**Carlsen beats Firouzja to win fifth Speed Chess Championship**\
+**Carlsen beats Firouzja to win SCC for fifth in the time**\
 `Carlsen banked $25,000 plus an additional split based on winning percentage by beating Alireza Firouzja. `\
 https://nytimes.com/athletic/7031577/2026/02/08/magnus-carlsen-wins-scc-chess-london/
 
