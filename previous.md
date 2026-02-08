@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 1 Man City 2 - Where does this leave the title race? Was the late red card right?**\
+`Our writers break down the action from a dramatic finish in the Premier League at Anfield.`\
+https://nytimes.com/athletic/7026767/2026/02/08/liverpool-man-city-premier-league-szoboszlai/
+
 **Seeking Stability, Thai Voters Decisively Reject Progressive Party**\
 `It was the first time in years that a conservative party preaching nationalism, patriotism and respect for the monarchy came out on top.`\
 https://nytimes.com/2026/02/08/world/asia/thailand-election-opposition-conservatives.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7030948/2026/02/08/breezy-johnson-lindsey-vonn-olym
 **Talks on Immigration Enforcement Limits Still Stuck With Deadline Nearing**\
 `Democrats’ demands include that immigration officers be required to show visible identification and have judicial warrants when they enter private property to make arrests.`\
 https://nytimes.com/2026/02/08/us/politics/dhs-funding-immigration-shutdown.html
-
-**Arsenal's Gyokeres says he has room for improvement**\
-`The Sweden international has scored six times in his last eight appearances but said he is not the complete player.`\
-https://nytimes.com/athletic/7029636/2026/02/08/viktor-gyokeres-arsenal-goals-improvement/
 

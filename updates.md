@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 1 Man City 2 - Where does this leave the title race? Was the late red card right?**\
+`Our writers break down the action from a dramatic finish in the Premier League at Anfield.`\
+https://nytimes.com/athletic/7026767/2026/02/08/liverpool-man-city-premier-league-szoboszlai/
+
 **Seeking Stability, Thai Voters Decisively Reject Progressive Party**\
 `It was the first time in years that a conservative party preaching nationalism, patriotism and respect for the monarchy came out on top.`\
 https://nytimes.com/2026/02/08/world/asia/thailand-election-opposition-conservatives.html
