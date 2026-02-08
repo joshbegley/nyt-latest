@@ -14,13 +14,13 @@ https://nytimes.com/2026/02/08/briefing/the-church-of-molt.html
 ``\
 https://nytimes.com/live/2026/02/08/us/trump-news
 
-**Republican Leaders Used to Camp and Hunt. Now They Golf and Meme.**\
-`Before MAGA, conservatives’ affinity for wilderness was a powerful force in American politics.`\
-https://nytimes.com/2026/02/08/opinion/republicans-hunting-wilderness-nature.html
-
 **We Are Raising Our Voices in Protest**\
 `Readers urge Americans to speak up but decry the terror tactics being used against protesters. Also: The Heritage Foundation responds to a critique.`\
 https://nytimes.com/2026/02/08/opinion/minneapolis-protests.html
+
+**MAGA Elites Are Indoor Cats**\
+`Before MAGA, conservatives’ affinity for wilderness was a powerful force in American politics.`\
+https://nytimes.com/2026/02/08/opinion/republicans-hunting-wilderness-nature.html
 
 **Takaichi is poised to push Japan further to the right.**\
 `By Javier C. Hernández`\
