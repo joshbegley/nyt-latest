@@ -1,3 +1,7 @@
+**Luke Kennard makes Lakers debut, vows to shoot more 3s after settling into lineup**\
+`The new Lakers guard showed his shooting touch and a willingness and ability to make the right play in his debut against the Warriors.`\
+https://nytimes.com/athletic/7030373/2026/02/08/luke-kennard-lakers-debut-three-point-shooting/
+
 **The Church of Molt**\
 `A.I. agents are creating religions. What does that mean for us?`\
 https://nytimes.com/2026/02/08/briefing/the-church-of-molt.html
