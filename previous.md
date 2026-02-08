@@ -1,40 +1,40 @@
-**A Grammy Award winner and her Super Bowl moment: A highlight with a fashion legend's help**\
-`Grammy Award-winning artist Coco Jones will be the latest to showcase Karl Kani's clothing as she sings before the start of the Super Bowl.`\
-https://nytimes.com/athletic/7025869/2026/02/08/coco-jones-super-bowl-karl-kani-whitney-houston-fashion/
+**How to watch the Super Bowl national anthem and other pregame festivities**\
+`The buildup to Super Bowl LX features Green Day, Alcatraz Island, the most-watched national anthem and much more. `\
+https://nytimes.com/athletic/7030081/2026/02/08/super-bowl-2026-national-anthem-charlie-puth-green-day/
 
-**NBA star Antetokounmpo joins Chelsea Women ownership group**\
-`The Milwaukee Bucks forward is partnering with Reddit founder Alexis Ohanian, who paid around £20m for a 10 per cent stake in the club.`\
-https://nytimes.com/athletic/7030503/2026/02/08/giannis-antetokounmpo-chelsea-women/
+**Five Cubs players in the spotlight with spring training about to start**\
+`The organization has clear expectations for October baseball at Wrigley Field, a time and place where seemingly anything can happen.`\
+https://nytimes.com/athletic/7028045/2026/02/08/chicago-cubs-spring-training-spotlight/
 
-**Here’s the latest.**\
-`By Javier C. Hernández`\
-https://nytimes.com/live/2026/02/08/world/japan-election-takaichi/heres-the-latest
+**How to watch Rescue Bowl 2026: Start time, TV channel and streaming info**\
+`Dozens of adoptable dogs and cats will take the field on Super Bowl Sunday in the Rescue Bowl, once known as the Kitten Bowl.`\
+https://nytimes.com/athletic/7025788/2026/02/08/how-to-watch-kitten-bowl-rescue-2026-tv-channel/
 
-**Live Updates: Japan’s Leader Targets a Big Win in Snap Election**\
-`People across Japan braved snowstorms to vote in the election, a major test of Prime Minister Sanae Takaichi’s leadership. It will determine whether her party gets enough seats in Parliament to push her conservative agenda.`\
-https://nytimes.com/live/2026/02/08/world/japan-election-takaichi
+**Lindsey Vonn crashes in Olympic women's downhill, airlifted off course**\
+`Vonn crashed during Sunday’s Olympic women’s downhill and was airlifted off the mountain. Her status is unclear. `\
+https://nytimes.com/athletic/7030495/2026/02/08/lindsey-vonn-winter-olympics-downhill-crash-torn-acl/
 
-**I won two Olympic medals in luge. What's the secret? Embrace imperfection**\
-`Brian Martin competed in two Olympics in men’s doubles luge, winning bronze in 1998 and silver in 2002.`\
-https://nytimes.com/athletic/7029333/2026/02/08/luge-olympics-medals-brian-martin/
+**How to watch Puppy Bowl 2026: Streaming, format and dogs to know**\
+`The 22nd edition of the Puppy Bowl features 150 adoptable dogs playing for a shot at the Lombarky Trophy.`\
+https://nytimes.com/athletic/7016839/2026/02/08/how-to-watch-puppy-bowl-2026-tv-channel/
 
-**How to watch the Super Bowl 2026 halftime show, featuring Bad Bunny**\
-`Here's what to know for Sunday, including recent halftime set lengths and start times.`\
-https://nytimes.com/athletic/7022792/2026/02/08/super-bowl-halftime-show-2026-bad-bunny/
+**The best Drake Maye rookie cards to collect**\
+`Maye has been the hottest name in the football card world this season. `\
+https://nytimes.com/athletic/7030076/2026/02/08/drake-maye-best-rookie-cards-patriots/
 
-**The New York Times International Edition in Print for Monday, Feb. 9, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/02/08/todays-new-york-times-international-edition
+**Seth Trimble sees his dream come true with game-winner against Duke**\
+`Seth Trimble, a four-year Tar Heel, put his stamp on North Carolina's rivalry with Duke in stunning fashion Saturday night in Chapel Hill.`\
+https://nytimes.com/athletic/7030381/2026/02/08/unc-seth-trimble-game-winner-duke/
 
-**How to watch Knicks vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7030520/2026/02/08/knicks-vs-celtics-stream-how-to-watch-feb-8/
+**At the Super Bowl, It’s Nice Guy vs. Underdog**\
+`Your guide to today’s matchup.`\
+https://nytimes.com/2026/02/08/podcasts/the-daily/at-the-super-bowl-its-nice-guy-vs-underdog.html
 
-**How to watch Louisville vs. Syracuse women's basketball: Time, TV, streaming**\
-`Find out how to watch the Louisville Cardinals play the Syracuse Orange, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7030509/2026/02/08/louisville-vs-syracuse-stream-how-to-watch-feb-8/
+**Bad Bunny's Super Bowl halftime show a must-watch in Puerto Rico. The game comes second**\
+`Puerto Rico is ready for the Super Bowl halftime show. Sunday also could be an opportunity for Bad Buddy fans to simply appreciate football.`\
+https://nytimes.com/athletic/7029780/2026/02/08/super-bowl-bad-bunny-puerto-rico-halftime-show/
 
-**China’s Presence Looms Large in Japanese Election**\
-`Prime Minister Sanae Takaichi’s handling of bilateral relations has become a campaign issue. Her earlier comments on Taiwan brought reprisals from Beijing.`\
-https://nytimes.com/2026/02/08/world/asia/japan-election-china.html
+**Wordle Review No. 1,696**\
+`Scroll down for hints and conversation about the puzzle for Monday, Feb. 9, 2026.`\
+https://nytimes.com/2026/02/08/crosswords/wordle-review-1696.html
 
