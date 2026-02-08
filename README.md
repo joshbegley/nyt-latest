@@ -34,7 +34,7 @@ https://nytimes.com/2026/02/08/crosswords/wordle-review-1696.html
 `Japn`\
 https://nytimes.com/live/2026/02/08/world/japan-election-takaichi/japan-candidates-challenges
 
-**This year's Super Bowl coin is actually a medal — with a Benjamin Franklin connection**\
-`For a few moments Sunday, numismatics, the study of coins, currency and medals, will take center stage.`\
-https://nytimes.com/athletic/7027699/2026/02/08/super-bowl-coin-toss-2026-benjamin-franklin/
+**She quit hockey twice. Now, with no prior international experience, she's an Olympian**\
+`Defender Kati Tabin took a winding path to the national team, becoming the oldest player since 2002 to debut for Canada at the Olympics.`\
+https://nytimes.com/athletic/7020919/2026/02/08/olympics-canada-womens-hockey-kati-tabin/
 
