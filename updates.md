@@ -1,3 +1,7 @@
+**Savannah Guthrie, in New Video Message, Promises to Pay for Return of Her Mother**\
+`The “Today” show anchor, in a message on social media with her siblings, said the return of their mother Nancy “is the only way we will have peace.”`\
+https://nytimes.com/2026/02/07/us/savannah-guthrie-nancy-guthrie-video-message.html
+
 **Brad Arnold, Rocker Who Fronted 3 Doors Down, Dies at 47**\
 `He wrote the band’s breakout hit, “Kryptonite,” in a high school math class, and would go on to be nominated for three Grammy Awards.`\
 https://nytimes.com/2026/02/07/arts/music/brad-arnold-three-doors-down-dead.html
