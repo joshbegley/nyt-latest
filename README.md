@@ -1,3 +1,11 @@
+**Japan’s Leader Wins in a Landslide, Clearing Way for Hard-Line Agenda**\
+`Prime Minister Sanae Takaichi won a sweeping mandate from voters for her economic agenda and tough stances on immigration and China.`\
+https://nytimes.com/2026/02/08/world/asia/japan-takaichi-election-landslide.html
+
+**A preview of The Athletic’s live coverage this week**\
+`The Athletic's live coverage this week includes the Winter Olympics, NBA All-Star game and Daytona 500.`\
+https://nytimes.com/athletic/7030869/2026/02/08/winter-olympics-nba-daytona-500-live/
+
 **How to watch Alabama vs. Texas A&M women's basketball: Time, TV, streaming**\
 `Find out how to watch the Alabama Crimson Tide play the Texas A&M Aggies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7031012/2026/02/08/alabama-vs-texas-a-m-stream-how-to-watch-feb-8/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/7031012/2026/02/08/alabama-vs-texas-a-m-stream-how-
 https://nytimes.com/2026/02/08/world/europe/portugal-president-elections-chega-seguro-ventura.html
 
 **Madonna, soccer mom: Why the Queen of Pop was watching Tottenham's Under-14 girls' team**\
-`Madonna's social media post from the touchline of a Spurs academy match was eye-catching, so what was going on?`\
+`Madonna's social-media post from the touchline of a Spurs academy match was eye-catching, so what was going on?`\
 https://nytimes.com/athletic/7030813/2026/02/08/madonna-twins-tottenham-academy/
 
 **Dip It, Dip It Good**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6943623/2026/02/08/sidney-crosby-canada-captain-oly
 **Kid Rock headlines Turning Point USA's Super Bowl halftime show**\
 `Turning Point USA had previously announced plans for a show after the NFL chose Bad Bunny as its halftime performer.`\
 https://nytimes.com/athletic/7016481/2026/02/08/turning-point-usa-super-bowl-kid-rock-halftime/
-
-**Starmer’s Chief of Staff Resigns, Citing Role in Hiring Friend of Epstein**\
-`The Labour official was ensnared in a scandal after helping appoint Peter Mandelson as Britain’s ambassador to the U.S.`\
-https://nytimes.com/2026/02/08/world/europe/keir-starmer-chief-of-staff-resigns.html
-
-**Ben Johnson promoting Press Taylor to Bears offensive coordinator: Sources**\
-`The Bears' offense made huge leaps this season under first-year head coach Ben Johnson. Taylor steps into the important OC role.`\
-https://nytimes.com/athletic/7030790/2026/02/08/bears-offensive-coordinator-press-taylor-ben-johnson/
 
