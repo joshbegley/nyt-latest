@@ -1,4 +1,4 @@
-**Alperen Şengün apologizes for making sexist comment to female referee**\
+**Alperen Şengün apologizes for making sexist comments to female referee**\
 `In his first comments about the incident, Şengün called his actions “immature” and something he hopes to learn from.`\
 https://nytimes.com/athletic/7030103/2026/02/07/alperen-sengun-apologizes-sexist-comment-rockets-nba/
 
