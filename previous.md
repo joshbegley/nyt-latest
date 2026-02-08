@@ -1,3 +1,7 @@
+**Italy PM condemns anti-Olympics acts, including alleged sabotage of railway line**\
+`Authorities launch terrorism investigation into railway sabotage in northern Italy, police skirmish with demonstrators in Milan.`\
+https://nytimes.com/athletic/7031362/2026/02/08/meloni-condemns-anti-olympics-acts-in-milan-protests/
+
 **Carlsen beats Firouzja to win SCC for fifth in the time in a row**\
 `Carlsen banked $25,000 plus an additional split based on winning percentage by beating Alireza Firouzja. `\
 https://nytimes.com/athletic/7031577/2026/02/08/magnus-carlsen-wins-scc-chess-london/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7031409/2026/02/08/michael-bay-lawsuit-cadillac-f1-
 **Why the N.F.L. Booked Bad Bunny for the Super Bowl**\
 `League executives may be nervous about the Latin superstar’s outspoken stance on immigration, but their priority is attracting popular halftime performers.`\
 https://nytimes.com/2026/02/08/business/bad-bunny-super-bowl-nfl.html
-
-**On the Brink of a New Arms Race**\
-`For the first time in decades, the U.S. and Russia no longer have a nuclear arms control agreement.`\
-https://nytimes.com/2026/02/08/world/nuclear-arms-control-japan-election.html
 

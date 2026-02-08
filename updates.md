@@ -1,3 +1,7 @@
+**Italy PM condemns anti-Olympics acts, including alleged sabotage of railway line**\
+`Authorities launch terrorism investigation into railway sabotage in northern Italy, police skirmish with demonstrators in Milan.`\
+https://nytimes.com/athletic/7031362/2026/02/08/meloni-condemns-anti-olympics-acts-in-milan-protests/
+
 **Carlsen beats Firouzja to win SCC for fifth in the time in a row**\
 `Carlsen banked $25,000 plus an additional split based on winning percentage by beating Alireza Firouzja. `\
 https://nytimes.com/athletic/7031577/2026/02/08/magnus-carlsen-wins-scc-chess-london/
