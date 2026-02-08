@@ -1,3 +1,15 @@
+**How to watch Clippers vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030742/2026/02/08/clippers-vs-timberwolves-stream-how-to-watch-feb-8/
+
+**How to watch Pacers vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030740/2026/02/08/pacers-vs-raptors-stream-how-to-watch-feb-8/
+
+**How to watch Ohio State vs. Oregon women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030733/2026/02/08/ohio-state-vs-oregon-stream-how-to-watch-feb-8/
+
 **How to watch TCU vs. Colorado women's basketball: Time, TV, streaming**\
 `Find out how to watch the TCU Horned Frogs play the Colorado Buffaloes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7030730/2026/02/08/tcu-vs-colorado-stream-how-to-watch-feb-8/
@@ -15,7 +27,7 @@ https://nytimes.com/athletic/7030725/2026/02/08/ucla-vs-michigan-stream-how-to-w
 https://nytimes.com/athletic/7030723/2026/02/08/tennessee-vs-south-carolina-stream-how-to-watch-feb-8/
 
 **Two-time champions England survive huge Nepal scare in T20 World Cup thriller**\
-`The result set up Group C, which also contains two-time winners West Indies, Scotland and Italy.`\
+`Cricketing minnows push England all the way before Sam Curran secures victory with superb last over`\
 https://nytimes.com/athletic/7030694/2026/02/08/t20-world-cup-nepal-england/
 
 **How to watch Washington vs. Wisconsin women's basketball: Time, TV, streaming**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7030720/2026/02/08/washington-vs-wisconsin-stream-h
 **How to watch SMU vs. Duke women's basketball: Time, TV, streaming**\
 `Find out how to watch the SMU Mustangs play the Duke Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7030718/2026/02/08/smu-vs-duke-stream-how-to-watch-feb-8/
-
-**Why won't Bad Bunny get paid to perform at the Super Bowl?**\
-`The performer will actually get union scale, which is about $1,000 a day. He'll also receive a priceless amount of exposure.`\
-https://nytimes.com/athletic/7027186/2026/02/08/bad-bunny-halftime-super-bowl-pay/
-
-**Lowetide: Oilers prospect Damien Carfagna appears close to NHL-ready**\
-`Carfagna is among the top-performing defencemen for the Bakersfield Condors, and he could be an NHL recall in 2026.`\
-https://nytimes.com/athletic/7029417/2026/02/08/edmonton-oilers-prospect-damien-carfagna-nhl/
-
-**College basketball observations: Saturday's big winners and NCAA Tournament bubble impact**\
-`Plus: Florida wins a battle for the top of the SEC — and here comes Kentucky.`\
-https://nytimes.com/athletic/7030614/2026/02/08/college-basketball-scores-results-takeaways-unc-michigan-state-houston/
 
