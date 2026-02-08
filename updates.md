@@ -1,3 +1,7 @@
+**Lindsey Vonn has always gone all-in, and these Olympics were no different**\
+`​​"I have always pushed the limits," Vonn said this week. She was always going to do it again on Sunday, risks be damned.`\
+https://nytimes.com/athletic/7031150/2026/02/08/lindsey-vonn-winter-olympics-crash-cortina/
+
 **Iranian Nobel Laureate Gets Second Prison Sentence and Ends Hunger Strike**\
 `The activist Narges Mohammadi was sentenced to another seven years, bringing the total she must serve to 17 years, her foundation said.`\
 https://nytimes.com/2026/02/08/world/middleeast/iran-narges-mohammadi-second-sentence.html
