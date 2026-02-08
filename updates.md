@@ -1,3 +1,23 @@
+**Reports: Lindsey Vonn fractured leg in Olympic downhill crash, had surgery**\
+`Vonn was airlifted off the mountain after her crash Sunday in the Olympic women's downhill and was recovering at a local hospital.`\
+https://nytimes.com/athletic/7031603/2026/02/08/lindsey-vonn-winter-olympics-crash-injury-surgery-fractured-leg/
+
+**Green Day Condemns ICE as Part of Super Bowl Festivities**\
+`The band’s frontman, Billie Joe Armstrong, urged Immigration and Customs Enforcement agents to quit their jobs, warning that the Trump administration would inevitably abandon them.`\
+https://nytimes.com/2026/02/08/arts/music/green-day-ice-super-bowl.html
+
+**Apply, as a New Skill**\
+`Enjoy this savory puzzle from Matthew Stock.`\
+https://nytimes.com/2026/02/08/crosswords/daily-puzzle-2026-02-09.html
+
+**How Team U.S.A held off Japan to win gold.**\
+`And summary goes here`\
+https://nytimes.com/2026/02/08/world/how-the-american-skaters-held-off-japan-to-win-team-gold.html
+
+**Carlsen beats Firouzja to win fifth Speed Chess Championship**\
+`Carlsen banked $25,000 plus an additional split based on winning percentage by beating Alireza Firouzja. `\
+https://nytimes.com/athletic/7031577/2026/02/08/magnus-carlsen-wins-scc-chess-london/
+
 **How the American skaters held off Japan to win team gold.**\
 `And summary goes here`\
 https://nytimes.com/live/2026/02/07/world/olympics-italy-photos/how-the-american-skaters-held-off-japan-to-win-team-gold

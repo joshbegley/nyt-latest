@@ -14,7 +14,7 @@ https://nytimes.com/2026/02/08/crosswords/daily-puzzle-2026-02-09.html
 `And summary goes here`\
 https://nytimes.com/2026/02/08/world/how-the-american-skaters-held-off-japan-to-win-team-gold.html
 
-**Cam Thomas signs with Bucks for rest of season after being waived by Nets: Source**\
+**Cam Thomas signs with Bucks for rest of season after being waived by Nets: Sources**\
 `Thomas averaged 15.6 points and 3.1 assists in 24.3 minutes per game in 24 appearances (eight starts) with the Brooklyn Nets this season.`\
 https://nytimes.com/athletic/7031647/2026/02/08/cam-thomas-bucks-free-agent-signing-nets/
 
