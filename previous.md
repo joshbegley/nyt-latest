@@ -1,3 +1,7 @@
+**India, Pakistan, Bangladesh and the political tensions undermining cricket's T20 World Cup**\
+`This year’s tournament is being overshadowed by diplomatic tensions between India, Pakistan and Bangladesh`\
+https://nytimes.com/athletic/7029406/2026/02/08/cricket-t20-world-cup-india-pakistan-bangladesh/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/02/08/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/08/movies/paul-thomas-anderson-directors-guild-of-am
 **What to watch on Day 2 at Winter Olympics: Lindsey Vonn, figure skating's first medals**\
 `As you wait for Super Bowl Sunday kickoff, here's what to expect from Day 2 at the Olympics.`\
 https://nytimes.com/athletic/6911673/2026/02/08/milan-cortina-winter-olympics-what-to-watch-day-2/
-
-**Ryan Reynolds and Rob Mac exclusive: 'Phil Parkinson has the job for life'**\
-`Wrexham remain in the final Championship play-off spot, which emphasises the remarkable job done by Parkinson`\
-https://nytimes.com/athletic/7026531/2026/02/08/ryan-reynolds-rob-mac-wrexham-phil-parkinson-job-for-life/
 

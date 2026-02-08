@@ -1,3 +1,7 @@
+**India, Pakistan, Bangladesh and the political tensions undermining cricket's T20 World Cup**\
+`This year’s tournament is being overshadowed by diplomatic tensions between India, Pakistan and Bangladesh`\
+https://nytimes.com/athletic/7029406/2026/02/08/cricket-t20-world-cup-india-pakistan-bangladesh/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/02/08/crosswords/spelling-bee-forum.html
