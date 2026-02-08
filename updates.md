@@ -1,4 +1,12 @@
 **Why the N.F.L. Booked Bad Bunny for the Super Bowl**\
+`League executives may be nervous about the Latin superstar’s outspoken stance on immigration, but their priority is attracting popular halftime performers.`\
+https://nytimes.com/2026/02/08/business/bad-bunny-super-bowl-nfl.html
+
+**Astros, Cardinals, Red Sox discussed trade involving Isaac Paredes, Brendan Donovan: Sources**\
+`The Astros coveted Donovan, who ended up going to the team that broke Houston's streak of AL West titles.`\
+https://nytimes.com/athletic/7031423/2026/02/08/trade-talks-isaac-paredes-brendan-donovan-astros-red-sox-cardinals/
+
+**Why the N.F.L. Booked Bad Bunny for the Super Bowl**\
 `League executives are nervous about the Latin superstar’s outspoken stance on immigration, but their priority is attracting popular halftime performers.`\
 https://nytimes.com/2026/02/08/business/bad-bunny-super-bowl-nfl.html
 
