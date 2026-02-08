@@ -1,3 +1,11 @@
+**Polar Plunge Persists in the Northeast as Low-Temperature Records Are Set**\
+`Punishing winds have combined with low temperatures to produce dangerously cold conditions across the Northeast. Forecasters say, though, that relief is on the horizon.`\
+https://nytimes.com/2026/02/08/weather/extreme-cold-wind-chills.html
+
+**Ranking the best 2026 Super Bowl commercials: For Papa! Will Shat and more**\
+`The Athletic has live coverage of the Super Bowl LX halftime show featuring Bad Bunny.`\
+https://nytimes.com/athletic/7016254/2026/02/08/super-bowl-commercials-2026-ranking-shatner-instacart-skittles/
+
 **Games Briefing: U.S. triumph and heartbreak in downhill**\
 `Welcome to the Games Briefing, The Athletic's newsletter for the Milan Cortina Olympics. `\
 https://nytimes.com/athletic/7030948/2026/02/08/breezy-johnson-lindsey-vonn-olympics-games-briefing/

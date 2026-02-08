@@ -1,3 +1,7 @@
+**Polar Plunge Persists in the Northeast as Low-Temperature Records Are Set**\
+`Punishing winds have combined with low temperatures to produce dangerously cold conditions across the Northeast. Forecasters say, though, that relief is on the horizon.`\
+https://nytimes.com/2026/02/08/weather/extreme-cold-wind-chills.html
+
 **Games Briefing: U.S. triumph and heartbreak in downhill**\
 `Welcome to the Games Briefing, The Athletic's newsletter for the Milan Cortina Olympics. `\
 https://nytimes.com/athletic/7030948/2026/02/08/breezy-johnson-lindsey-vonn-olympics-games-briefing/
@@ -9,6 +13,10 @@ https://nytimes.com/2026/02/08/us/politics/dhs-funding-immigration-shutdown.html
 **Arsenal's Gyokeres says he has room for improvement**\
 `The Sweden international has scored six times in his last eight appearances but said he is not the complete player.`\
 https://nytimes.com/athletic/7029636/2026/02/08/viktor-gyokeres-arsenal-goals-improvement/
+
+**Ranking the best 2026 Super Bowl commercials: For Papa! Will Shat and more**\
+`The Athletic has live coverage of the Super Bowl LX halftime show featuring Bad Bunny.`\
+https://nytimes.com/athletic/7016254/2026/02/08/super-bowl-commercials-2026-ranking-shatner-instacart-skittles/
 
 **Japan’s Leader Wins in a Landslide, Clearing Way for Hard-Line Agenda**\
 `Prime Minister Sanae Takaichi won a sweeping mandate from voters for her economic agenda and tough stances on immigration and China.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/08/world/europe/portugal-president-elections-chega-s
 **Madonna, soccer mom: Why the Queen of Pop was watching Tottenham's Under-14 girls' team**\
 `Madonna's social-media post from the touchline of a Spurs academy match was eye-catching, so what was going on?`\
 https://nytimes.com/athletic/7030813/2026/02/08/madonna-twins-tottenham-academy/
-
-**Dip It, Dip It Good**\
-`Buffalo cauliflower dip; bacon-Cheddar dip; spinach, artichoke and yogurt dip. Happy Super Bowl Sunday!`\
-https://nytimes.com/2026/02/08/dining/dip-it-dip-it-good.html
-
-**As Lindsey Vonn crashes and Breezy Johnson wins, a roller coaster of agony and joy**\
-`A day that was both jubilant and terrible for U.S. skiing left broadcasters, fans and even the American skiers unsure how to process it all.`\
-https://nytimes.com/athletic/7030823/2026/02/08/lindsey-vonn-crash-breezy-johnson-winter-olympics-cortina/
 
