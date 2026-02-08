@@ -1,3 +1,7 @@
+**Jaylen Brown: Celtics must figure out chemistry after Nikola Vučević trade**\
+`Despite the lopsided outcome in a playoff rematch, the Celtics didn’t overreact to a loss to the New York Knicks.`\
+https://nytimes.com/athletic/7031526/2026/02/08/nikola-vucevic-trade-celtics-chemistry-jaylen-brown/
+
 **An Ilia Malinin Olympic blitz delivers U.S. team figure skating gold**\
 `Malinin didn't have his best possible performance in the team finale, but he also didn't need it to dominate.`\
 https://nytimes.com/athletic/7030880/2026/02/08/winter-olympics-ilia-malinin-figure-skating-united-states-gold/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/08/obituaries/mark-marquess-dead.html
 **See How Breezy Johnson Won Downhill Gold by 0.04 Seconds**\
 `Breezy Johnson of the United States beat Emma Aicher of Germany by a split-second after her teammate Lindsey Vonn crashed early in her run.`\
 https://nytimes.com/interactive/2026/02/08/sports/breezy-johnson-womens-downhill-ski-winter-olympics.html
-
-**Astros, Cardinals, Red Sox discussed trade involving Isaac Paredes, Brendan Donovan: Sources**\
-`The Astros coveted Donovan, who ended up going to the team that broke Houston's streak of AL West titles.`\
-https://nytimes.com/athletic/7031423/2026/02/08/trade-talks-isaac-paredes-brendan-donovan-astros-red-sox-cardinals/
 
