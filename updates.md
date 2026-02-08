@@ -1,3 +1,7 @@
+**Kristaps Porziņģis on joining Warriors: 'I think it's a great, great opportunity'**\
+`Porziņģis said the deal came as a "surprise," but once he found out where he was going, he was excited.`\
+https://nytimes.com/athletic/7029993/2026/02/07/kristaps-porzingis-trade-warriors-hawks-nba-steph-curry/
+
 **Duke coach Jon Scheyer says staff was 'punched in the face' after UNC fans storm court**\
 `UNC beat Duke with less than a second remaining Saturday, leading to a court-storming not once, but twice.`\
 https://nytimes.com/athletic/7030200/2026/02/07/duke-coach-jon-scheyer-says-staff-was-punched-in-the-face-after-unc-fans-storm-court/

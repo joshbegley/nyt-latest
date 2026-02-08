@@ -1,3 +1,7 @@
+**How Japan’s Leader Wants to Shape the Economy**\
+`Prime Minister Sanae Takaichi pushed through a record supplemental budget and is proposing tax cuts, raising questions about how the government will pay for it all.`\
+https://nytimes.com/2026/02/07/business/japan-election-sanae-takaichi-inflation.html
+
 **Kristaps Porziņģis on joining Warriors: 'I think it's a great, great opportunity'**\
 `Porziņģis said the deal came as a "surprise," but once he found out where he was going, he was excited.`\
 https://nytimes.com/athletic/7029993/2026/02/07/kristaps-porzingis-trade-warriors-hawks-nba-steph-curry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029781/2026/02/07/winter-olympics-2026-day-1-best-
 **Alperen Şengün apologizes for making sexist comments to female referee**\
 `In his first comments about the incident, Şengün called his actions “immature” and something he hopes to learn from.`\
 https://nytimes.com/athletic/7030103/2026/02/07/alperen-sengun-apologizes-sexist-comment-rockets-nba/
-
-**Ilia Malinin dazzles in Olympic debut, but invincibility? Not quite yet**\
-`Expect a more locked-in version of Malinin on Sunday as he makes a run at gold and becoming the breakout star of the Games.`\
-https://nytimes.com/athletic/7029461/2026/02/07/olympics-ilia-malinin-figure-skating-usa/
 
