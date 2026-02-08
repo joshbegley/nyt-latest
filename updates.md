@@ -1,3 +1,7 @@
+**Talk to Your Parents**\
+`Today, some advice on having conversations with aging parents about their health.`\
+https://nytimes.com/2026/02/08/briefing/talk-to-your-parents.html
+
 **Breezy Johnson wins gold in women's downhill, first U.S. medal of Olympics**\
 `Breezy Johnson became the first American since Lindsey Vonn in 2010 to win gold in the Olympic women's downhill.`\
 https://nytimes.com/athletic/7030597/2026/02/08/breezy-johnson-winter-olympics-downhill-gold-lindsey-vonn/
