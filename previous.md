@@ -1,5 +1,13 @@
-**Mike Ditka's Super Bowl 20 sweater vest sells for $183,000**\
-`The Bears sweater vest became a lasting symbol of a dominant team.`\
+**Mike Dunleavy on Draymond Green trade rumors: 'His name was not in conversations'**\
+`The only person who felt safe on the roster was Stephen Curry; Green knew there was a chance he might get moved.`\
+https://nytimes.com/athletic/7030240/2026/02/07/mike-dunleavy-draymond-green-trade-rumors-warriors-nba/
+
+**Buzz growing in Charlotte: Hornets win ninth straight, close gap on Hawks**\
+`Charlotte (25-28) is now just half a game behind Atlanta for ninth place in the East.`\
+https://nytimes.com/athletic/7030182/2026/02/07/hornets-win-streak-nba-stats-lamelo-ball-kon-knueppel/
+
+**Mike Ditka's Super Bowl 20 sweater-vest sells for $183,000**\
+`The Bears sweater-vest became a lasting symbol of a dominant team.`\
 https://nytimes.com/athletic/7029684/2026/02/07/mike-ditka-bears-super-bowl-xx-sweater-vest/
 
 **How Japan’s Leader Wants to Shape the Economy**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/07/us/minneapolis-immigration-protesters-arrested-wh
 **UNC beats Duke on Seth Trimble buzzer-beater as fans storm court early**\
 `UNC beat Duke with its first game-winning shot with less than a second left since Luke Maye's Elite 8 dagger against Kentucky in 2017.`\
 https://nytimes.com/athletic/7030100/2026/02/07/unc-duke-seth-trimble-buzzer-beater-court-storming/
-
-**Cowboys intend to use franchise tag on WR George Pickens: Source**\
-`The Cowboys acquired Pickens via a trade with the Pittsburgh Steelers last May.`\
-https://nytimes.com/athletic/7030105/2026/02/07/cowboys-franchise-tag-george-pickens/
-
-**Best of 2026 Olympics Day 1: Speed skater celebrates gold with son, 'Quad God' has mixed day**\
-`There were several big performances as athletes won the first medals of the 2026 Milan Cortina Winter Olympics on Saturday.`\
-https://nytimes.com/athletic/7029781/2026/02/07/winter-olympics-2026-day-1-best-moments-francesca-lollobrigida/
 

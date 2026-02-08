@@ -1,3 +1,15 @@
+**Mike Dunleavy on Draymond Green trade rumors: 'His name was not in conversations'**\
+`The only person who felt safe on the roster was Stephen Curry; Green knew there was a chance he might get moved.`\
+https://nytimes.com/athletic/7030240/2026/02/07/mike-dunleavy-draymond-green-trade-rumors-warriors-nba/
+
+**Buzz growing in Charlotte: Hornets win ninth straight, close gap on Hawks**\
+`Charlotte (25-28) is now just half a game behind Atlanta for ninth place in the East.`\
+https://nytimes.com/athletic/7030182/2026/02/07/hornets-win-streak-nba-stats-lamelo-ball-kon-knueppel/
+
+**Mike Ditka's Super Bowl 20 sweater-vest sells for $183,000**\
+`The Bears sweater-vest became a lasting symbol of a dominant team.`\
+https://nytimes.com/athletic/7029684/2026/02/07/mike-ditka-bears-super-bowl-xx-sweater-vest/
+
 **Mike Ditka's Super Bowl 20 sweater vest sells for $183,000**\
 `The Bears sweater vest became a lasting symbol of a dominant team.`\
 https://nytimes.com/athletic/7029684/2026/02/07/mike-ditka-bears-super-bowl-xx-sweater-vest/
