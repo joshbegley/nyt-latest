@@ -1,3 +1,7 @@
+**Mackenzie Hughes 'didn't lose much sleep' over fan yelling in backswing**\
+`The "Happy Gilmore"-inspired incident was the result of internet personality Jack Doherty paying a fan $100 to yell.`\
+https://nytimes.com/athletic/7029892/2026/02/07/jack-doherty-wmopen-mackenzie-hughes-backswing/
+
 **Savannah Guthrie, in New Video Message, Promises to Pay for Return of Her Mother**\
 `The “Today” show anchor, in a message on social media with her siblings, said the return of their mother Nancy “is the only way we will have peace.”`\
 https://nytimes.com/2026/02/07/us/savannah-guthrie-nancy-guthrie-video-message.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/07/technology/washington-post-will-lewis.html
 **Athletes and Protesters Criticize U.S. Policies at Winter Games in Milan**\
 `Displays of anti-U.S. sentiment have turned up at the Milan Winter Games. Vice President JD Vance was booed at the Olympics opening ceremony, and anti-ICE protesters took to the streets to demonstrate.`\
 https://nytimes.com/video/world/100000010697078/olympics-milan-italy-protests-ice.html
-
-**After 48-hour delay, Canada begins bid for Olympic hockey gold with win over Switzerland**\
-`The Canadians finally began their Olympic tournament on Saturday after a norovirus outbreak on Team Finland postponed their first game.`\
-https://nytimes.com/athletic/7029478/2026/02/07/canada-womens-hockey-switzerland-2026-olympics/
 
