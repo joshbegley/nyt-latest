@@ -1,3 +1,11 @@
+**‘We Will Pay’: Savannah Guthrie Addresses Mother’s Captor in New Video**\
+`Nancy Guthrie’s children shared a new video message to their mother’s purported abductor on Saturday evening. In the video, posted to the “Today” show anchor Savannah Guthrie’s Instagram account, the siblings said they were willing to pay for their mother’s return.`\
+https://nytimes.com/video/us/100000010698061/savannah-guthrie-mother-nancy-kidnapped.html
+
+**Big 12 fines Oklahoma State $50K for anti-Mormon chants during BYU game**\
+`An Oklahoma State investigation determined the chant was directed at officials and the “reference to religion did not meet our standards.”`\
+https://nytimes.com/athletic/7031284/2026/02/08/oklahoma-state-byu-anti-mormon-chants-big-12-fine/
+
 **Charlie McAvoy's Olympic diary: On the opening ceremony, his jaw and, yes, his Tweet**\
 `From dealing with a swollen face to preparing for Thursday's game, McAvoy chronicles his time with Team USA for The Athletic.`\
 https://nytimes.com/athletic/7031283/2026/02/08/charlie-mcavoy-olympics-hockey-jaw-tweet/
