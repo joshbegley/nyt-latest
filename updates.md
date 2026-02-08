@@ -1,4 +1,12 @@
 **The Briefing: Liverpool 1 Man City 2 - Where does this leave the title race? Was the late red card right?**\
+`Our writers break down the action from a dramatic finish in the Premier League at Anfield`\
+https://nytimes.com/athletic/7026767/2026/02/08/liverpool-man-city-premier-league-szoboszlai/
+
+**7 Days, No Suspects: The Disappearance of Nancy Guthrie**\
+`The mother of the “Today” show host Savannah Guthrie has not been heard from since an evening of dinner and games with family members.`\
+https://nytimes.com/2026/02/08/us/nancy-guthrie-savannah-guthrie-family.html
+
+**The Briefing: Liverpool 1 Man City 2 - Where does this leave the title race? Was the late red card right?**\
 `Our writers break down the action from a dramatic finish in the Premier League at Anfield.`\
 https://nytimes.com/athletic/7026767/2026/02/08/liverpool-man-city-premier-league-szoboszlai/
 
