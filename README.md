@@ -1,3 +1,11 @@
+**Takaichi is poised to push Japan further to the right.**\
+`By Javier C. Hernández`\
+https://nytimes.com/live/2026/02/08/world/japan-election-takaichi/takaichi-is-poised-to-push-japan-further-to-the-right
+
+**Johannes Høsflot Klaebo wins skiathlon gold, continuing dominance in men's cross-country skiing**\
+`Klaebo made a striking move on the final climb and left no question about his status as the favorite at these Games.`\
+https://nytimes.com/athletic/7030708/2026/02/08/johannes-klaebo-skiathlon-gold-winter-olympics/
+
 **Americans at the Olympics Can’t Escape the Politics at Home**\
 `Opposition to President Trump’s policies has followed the U.S. team to Italy, and athletes, coaches and American fans are facing the backlash.`\
 https://nytimes.com/2026/02/08/world/europe/winter-olympics-trump-us-politics.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7030727/2026/02/08/lsu-vs-auburn-stream-how-to-watc
 **How to watch UCLA vs. Michigan women's basketball: Time, TV, streaming**\
 `Find out how to watch the UCLA Bruins play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7030725/2026/02/08/ucla-vs-michigan-stream-how-to-watch-feb-8/
-
-**How to watch Tennessee vs. South Carolina women's basketball: Time, TV, streaming**\
-`Find out how to watch the Tennessee Lady Volunteers play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7030723/2026/02/08/tennessee-vs-south-carolina-stream-how-to-watch-feb-8/
-
-**Two-time champions England survive huge Nepal scare in T20 World Cup thriller**\
-`Cricketing minnows push England all the way before Sam Curran secures victory with superb last over`\
-https://nytimes.com/athletic/7030694/2026/02/08/t20-world-cup-nepal-england/
 
