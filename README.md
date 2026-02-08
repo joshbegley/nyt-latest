@@ -1,3 +1,7 @@
+**UNC beats Duke on Seth Trimble buzzer-beater as early court storming**\
+`UNC beat Duke with its first game-winning shot with less than a second left since Luke Maye’s Elite 8 dagger against Kentucky in 2017.`\
+https://nytimes.com/athletic/7030100/2026/02/07/unc-duke-seth-trimble-buzzer-beater-court-storming/
+
 **Cowboys intend to use franchise tag on WR George Pickens: Source**\
 `The Cowboys acquired Pickens via a trade with the Pittsburgh Steelers last May.`\
 https://nytimes.com/athletic/7030105/2026/02/07/cowboys-franchise-tag-george-pickens/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/07/world/asia/thailand-election-what-to-know.html
 **In Bid to Lead Thailand, a Progressive Party Softens Its Image**\
 `Sunday’s election is a test for the progressive, pro-democracy movement in Thailand, which has been blocked from taking power despite success at the polls.`\
 https://nytimes.com/2026/02/07/world/asia/thailand-election-peoples-party.html
-
-**'We just can’t stop’: Inside Auburn's rivalry prep and start to the Steven Pearl era**\
-`Bruce Pearl made Auburn basketball nationally relevant. Can his son, Steven, keep the momentum going? `\
-https://nytimes.com/athletic/7029249/2026/02/07/auburn-alabama-basketball-steven-pearl/
 
