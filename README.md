@@ -1,3 +1,11 @@
+**Ryan Reynolds and Rob Mac exclusive: 'Phil Parkinson has the job for life'**\
+`Wrexham remain in the final Championship play-off spot, which emphasises the remarkable job done by Parkinson`\
+https://nytimes.com/athletic/7026531/2026/02/08/ryan-reynolds-rob-mac-wrexham-phil-parkinson-job-for-life/
+
+**Is it time for Spurs to move on from Romero?**\
+`The 27-year-old has moments of magic, but does not have the tactical or emotional discipline required to be an effective captain`\
+https://nytimes.com/athletic/7029330/2026/02/08/tottenham-cristian-romero-future/
+
 **Cole Palmer has returned to a new Chelsea reality – and might have finally cracked it**\
 `Rosenior does not want Palmer’s role to change, and on paper it may well look the same — but improvements around him make a difference`\
 https://nytimes.com/athletic/7029558/2026/02/08/cole-palmer-chelsea-hat-trick/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7028223/2026/02/08/matt-ryan-the-athletic-show-supe
 **Haruki Murakami Isn’t Afraid of the Dark**\
 `The author, who brought Japanese literature into the global mainstream, grapples with aging and his place in the world of letters.`\
 https://nytimes.com/2026/02/08/books/haruki-murakami-profile.html
-
-**Quote of the Day: Another Danish Territory Feels Trump-Induced Anxiety**\
-`Quotation of the Day for Sunday, February 8, 2026.`\
-https://nytimes.com/2026/02/08/pageoneplus/quote-of-the-day-another-danish-territory-feels-trump-induced-anxiety.html
-
-**Connections: Sports Edition Coach: Hints and answers for Feb. 8, 2026 — Super Bowl edition**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7030318/2026/02/08/connections-sports-edition-hints-answers-feb-8-2026/
 
