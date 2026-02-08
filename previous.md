@@ -1,3 +1,7 @@
+**Alperen Şengün apologizes for making sexist comments to female referee**\
+`In his first comments about the incident, Şengün called his actions “immature” and something he hopes to learn from.`\
+https://nytimes.com/athletic/7030103/2026/02/07/alperen-sengun-apologizes-sexist-comment-rockets-nba/
+
 **Ilia Malinin dazzles in Olympic debut, but invincibility? Not quite yet**\
 `Expect a more locked-in version of Malinin on Sunday as he makes a run at gold and becoming the breakout star of these Games.`\
 https://nytimes.com/athletic/7029461/2026/02/07/olympics-ilia-malinin-figure-skating-usa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029892/2026/02/07/jack-doherty-wmopen-mackenzie-hu
 **Savannah Guthrie, in New Video Message, Promises to Pay for Return of Her Mother**\
 `The “Today” show anchor, in a message on social media with her siblings, said the return of their mother Nancy “is the only way we will have peace.”`\
 https://nytimes.com/2026/02/07/us/savannah-guthrie-nancy-guthrie-video-message.html
-
-**Brad Arnold, Rocker Who Fronted 3 Doors Down, Dies at 47**\
-`He wrote the band’s breakout hit, “Kryptonite,” in a high school math class, and would go on to be nominated for three Grammy Awards.`\
-https://nytimes.com/2026/02/07/arts/music/brad-arnold-three-doors-down-dead.html
 

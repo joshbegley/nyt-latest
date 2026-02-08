@@ -23,7 +23,7 @@ https://nytimes.com/athletic/7029840/2026/02/07/winter-olympics-politics-us-athl
 https://nytimes.com/2026/02/07/world/asia/thailand-election-what-to-know.html
 
 **In Bid to Lead Thailand, a Progressive Party Softens Its Image**\
-`Sunday’s election is a test for the progressive, pro-democracy movement in Thailand, which has repeatedly been blocked from taking power despite success at the polls.`\
+`Sunday’s election is a test for the progressive, pro-democracy movement in Thailand, which has been blocked from taking power despite success at the polls.`\
 https://nytimes.com/2026/02/07/world/asia/thailand-election-peoples-party.html
 
 **'We just can’t stop’: Inside Auburn's rivalry prep and start to the Steven Pearl era**\

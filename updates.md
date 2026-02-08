@@ -1,3 +1,7 @@
+**Alperen Şengün apologizes for making sexist comments to female referee**\
+`In his first comments about the incident, Şengün called his actions “immature” and something he hopes to learn from.`\
+https://nytimes.com/athletic/7030103/2026/02/07/alperen-sengun-apologizes-sexist-comment-rockets-nba/
+
 **Ilia Malinin dazzles in Olympic debut, but invincibility? Not quite yet**\
 `Expect a more locked-in version of Malinin on Sunday as he makes a run at gold and becoming the breakout star of these Games.`\
 https://nytimes.com/athletic/7029461/2026/02/07/olympics-ilia-malinin-figure-skating-usa/
