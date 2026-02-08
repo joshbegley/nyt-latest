@@ -1,6 +1,14 @@
+**As Lindsey Vonn crashes and Breezy Johnson wins, a roller coaster of agony and joy**\
+`A day that was both jubilant and terrible for U.S. skiing left broadcasters, fans and even the American skiers unsure how to process it all.`\
+https://nytimes.com/athletic/7030823/2026/02/08/lindsey-vonn-crash-breezy-johnson-winter-olympics-cortina/
+
 **Canada names Sidney Crosby captain of Olympic men's hockey team**\
 `It's the fourth straight best-on-best men's tournament at which Crosby has captained Team Canada, and they've won the previous three.`\
 https://nytimes.com/athletic/6943623/2026/02/08/sidney-crosby-canada-captain-olympics/
+
+**Kid Rock headlines Turning Point USA's Super Bowl halftime show**\
+`Turning Point USA had previously announced plans for a show after the NFL chose Bad Bunny as its halftime performer.`\
+https://nytimes.com/athletic/7016481/2026/02/08/turning-point-usa-super-bowl-kid-rock-halftime/
 
 **Starmer’s Chief of Staff Resigns, Citing Role in Mandelson Appointment**\
 `The chief of staff, Morgan McSweeney, was caught up in the scandal engulfing Britain’s former ambassador to the United States and his ties to Jeffrey Epstein.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/08/opinion/minneapolis-protests.html
 **MAGA Elites Are Indoor Cats**\
 `Before MAGA, conservatives’ affinity for wilderness was a powerful force in American politics.`\
 https://nytimes.com/2026/02/08/opinion/republicans-hunting-wilderness-nature.html
-
-**Takaichi is poised to push Japan further to the right.**\
-`By Javier C. Hernández`\
-https://nytimes.com/live/2026/02/08/world/japan-election-takaichi/takaichi-is-poised-to-push-japan-further-to-the-right
-
-**Johannes Høsflot Klaebo wins skiathlon gold, continuing dominance in men's cross-country skiing**\
-`Klaebo made a striking move on the final climb and left no question about his status as the favorite at these Games.`\
-https://nytimes.com/athletic/7030708/2026/02/08/johannes-klaebo-skiathlon-gold-winter-olympics/
 
