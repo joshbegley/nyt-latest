@@ -1,3 +1,19 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/08/crosswords/spelling-bee-forum.html
+
+**As American Views of ICE Dim, Warehouses Become a Symbol of Resistance**\
+`Plans to confine migrants in retrofitted buildings have ignited bipartisan dissent as the country has grown more critical of immigration officials.`\
+https://nytimes.com/2026/02/08/nyregion/ice-warehouse-new-york-opposition.html
+
+**‘As They Crested the Peak, the Skater Let Go and Swooped Left’**\
+`A little help up a Brooklyn hill in the rain, loose shoes in Gramercy and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2026/02/08/nyregion/metropolitan-diary.html
+
+**The Aftermath of Feeding America’s Credibility Into the Woodchipper**\
+`The brutality of U.S.A.I.D.’s closure and the disregard for the human toll betrayed a vision of a crueler, meaner, more insular world.`\
+https://nytimes.com/2026/02/08/opinion/usaid-humanitarian-aid-america.html
+
 **To the sound of boos, Eddie Howe admits: ‘I'm not doing my job well enough’**\
 `Oldcastle Disunited are back and it is not pretty viewing. Eddie Howe is all too aware of Newcastle's many problems`\
 https://nytimes.com/athletic/7029866/2026/02/08/newcastle-united-eddie-howe-losing-boos/
