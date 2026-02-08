@@ -1,3 +1,7 @@
+**Breezy Johnson wins gold in women's downhill, first U.S. medal of Olympics**\
+`Breezy Johnson became the first American since Lindsey Vonn in 2010 to win gold in the Olympic women's downhill.`\
+https://nytimes.com/athletic/7030597/2026/02/08/breezy-johnson-winter-olympics-downhill-gold-lindsey-vonn/
+
 **Heavy Snow Disrupts Japan Election, Forcing Polling Stations to Close Early**\
 `The government said that about 40 percent of all polling stations closed earlier than planned because of heavy snow on Sunday.`\
 https://nytimes.com/2026/02/08/world/asia/japan-heavy-snow-polling-stations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7028045/2026/02/08/chicago-cubs-spring-training-spo
 **How to watch Rescue Bowl 2026: Start time, TV channel and streaming info**\
 `Dozens of adoptable dogs and cats will take the field on Super Bowl Sunday in the Rescue Bowl, once known as the Kitten Bowl.`\
 https://nytimes.com/athletic/7025788/2026/02/08/how-to-watch-kitten-bowl-rescue-2026-tv-channel/
-
-**Lindsey Vonn crashes in Olympic women's downhill, airlifted off course**\
-`Vonn crashed during Sunday’s Olympic women’s downhill and was airlifted off the mountain. Her status is unclear. `\
-https://nytimes.com/athletic/7030495/2026/02/08/lindsey-vonn-winter-olympics-downhill-crash-torn-acl/
 
