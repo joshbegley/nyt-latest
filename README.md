@@ -1,3 +1,11 @@
+**An Ilia Malinin Olympic blitz delivers U.S. team figure skating gold**\
+`Malinin didn't have his best possible performance in the team finale, but he also didn't need it to dominate.`\
+https://nytimes.com/athletic/7030880/2026/02/08/winter-olympics-ilia-malinin-figure-skating-united-states-gold/
+
+**North Dakota State to join Mountain West in 2026 for football: Sources**\
+`North Dakota State is making the move from FCS to the Mountain West and will pay over $15 million to the conference and NCAA.`\
+https://nytimes.com/athletic/7031531/2026/02/08/north-dakota-state-football-mountain-west/
+
 **What we saw as Team USA took the ice for first men's Olympic hockey practice**\
 `Coach Mike Sullivan said foward lines and defense pairings are still a work in progress on Sunday as his team practice in Milan.`\
 https://nytimes.com/athletic/7031377/2026/02/08/team-usa-olympics-mens-hockey-first-practice/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/02/08/sports/breezy-johnson-womens-downhill
 **Astros, Cardinals, Red Sox discussed trade involving Isaac Paredes, Brendan Donovan: Sources**\
 `The Astros coveted Donovan, who ended up going to the team that broke Houston's streak of AL West titles.`\
 https://nytimes.com/athletic/7031423/2026/02/08/trade-talks-isaac-paredes-brendan-donovan-astros-red-sox-cardinals/
-
-**Wizards GM Will Dawkins anticipates Anthony Davis playing again this season**\
-`Dawkins said he anticipates Anthony Davis making his debut before the end of this season after a doctor visit. `\
-https://nytimes.com/athletic/7031230/2026/02/08/wizards-anthony-davis-will-dawkins/
-
-**Lindsey Vonn has always gone all-in, and these Olympics were no different**\
-`​​"I have always pushed the limits," Vonn said this week. She was always going to do it again on Sunday, risks be damned.`\
-https://nytimes.com/athletic/7031150/2026/02/08/lindsey-vonn-winter-olympics-crash-cortina/
 
