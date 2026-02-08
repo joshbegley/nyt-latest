@@ -1,6 +1,26 @@
+**Madonna, soccer mom: Why the Queen of Pop was watching Tottenham's Under-14 girls' team**\
+`Madonna's social media post from the touchline of a Spurs academy match was eye-catching, so what was going on?`\
+https://nytimes.com/athletic/7030813/2026/02/08/madonna-twins-tottenham-academy/
+
+**Dip It, Dip It Good**\
+`Buffalo cauliflower dip; bacon-Cheddar dip; spinach, artichoke and yogurt dip. Happy Super Bowl Sunday!`\
+https://nytimes.com/2026/02/08/dining/dip-it-dip-it-good.html
+
+**As Lindsey Vonn crashes and Breezy Johnson wins, a roller coaster of agony and joy**\
+`A day that was both jubilant and terrible for U.S. skiing left broadcasters, fans and even the American skiers unsure how to process it all.`\
+https://nytimes.com/athletic/7030823/2026/02/08/lindsey-vonn-crash-breezy-johnson-winter-olympics-cortina/
+
+**How Lindsey Vonn's crash in the Olympic women's downhill unfolded**\
+`Vonn crashed early in her attempt to win an Olympic medal and was airlifted off the mountain. Here's a look at how it happened.`\
+https://nytimes.com/athletic/7030679/2026/02/08/lindsey-vonn-crash-olympics-downhill-photos/
+
 **Canada names Sidney Crosby captain of Olympic men's hockey team**\
 `It's the fourth straight best-on-best men's tournament at which Crosby has captained Team Canada, and they've won the previous three.`\
 https://nytimes.com/athletic/6943623/2026/02/08/sidney-crosby-canada-captain-olympics/
+
+**Kid Rock headlines Turning Point USA's Super Bowl halftime show**\
+`Turning Point USA had previously announced plans for a show after the NFL chose Bad Bunny as its halftime performer.`\
+https://nytimes.com/athletic/7016481/2026/02/08/turning-point-usa-super-bowl-kid-rock-halftime/
 
 **Starmer’s Chief of Staff Resigns, Citing Role in Mandelson Appointment**\
 `The chief of staff, Morgan McSweeney, was caught up in the scandal engulfing Britain’s former ambassador to the United States and his ties to Jeffrey Epstein.`\
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7030373/2026/02/08/luke-kennard-lakers-debut-three-
 **The Church of Molt**\
 `A.I. agents are creating religions. What does that mean for us?`\
 https://nytimes.com/2026/02/08/briefing/the-church-of-molt.html
-
-**Trump Administration Live Updates: President Faces Fallout From Racist Obama Post**\
-``\
-https://nytimes.com/live/2026/02/08/us/trump-news
-
-**We Are Raising Our Voices in Protest**\
-`Readers urge Americans to speak up but decry the terror tactics being used against protesters. Also: The Heritage Foundation responds to a critique.`\
-https://nytimes.com/2026/02/08/opinion/minneapolis-protests.html
-
-**MAGA Elites Are Indoor Cats**\
-`Before MAGA, conservatives’ affinity for wilderness was a powerful force in American politics.`\
-https://nytimes.com/2026/02/08/opinion/republicans-hunting-wilderness-nature.html
-
-**Takaichi is poised to push Japan further to the right.**\
-`By Javier C. Hernández`\
-https://nytimes.com/live/2026/02/08/world/japan-election-takaichi/takaichi-is-poised-to-push-japan-further-to-the-right
-
-**Johannes Høsflot Klaebo wins skiathlon gold, continuing dominance in men's cross-country skiing**\
-`Klaebo made a striking move on the final climb and left no question about his status as the favorite at these Games.`\
-https://nytimes.com/athletic/7030708/2026/02/08/johannes-klaebo-skiathlon-gold-winter-olympics/
 

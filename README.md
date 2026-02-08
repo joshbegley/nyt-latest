@@ -1,3 +1,7 @@
+**Portugal Votes for President, With Leftist Set to Beat Surging Far Right**\
+`Polls predict a comfortable victory for António José Seguro, but a nationalist’s presence in the runoff showed that Portugal is not immune to Europe’s rising nationalist tide.`\
+https://nytimes.com/2026/02/08/world/europe/portugal-president-elections-chega-seguro-ventura.html
+
 **Madonna, soccer mom: Why the Queen of Pop was watching Tottenham's Under-14 girls' team**\
 `Madonna's social media post from the touchline of a Spurs academy match was eye-catching, so what was going on?`\
 https://nytimes.com/athletic/7030813/2026/02/08/madonna-twins-tottenham-academy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7030790/2026/02/08/bears-offensive-coordinator-pres
 **Luke Kennard makes Lakers debut, vows to shoot more 3s after settling into lineup**\
 `The new Lakers guard showed his shooting touch and a willingness and ability to make the right play in his debut against the Warriors.`\
 https://nytimes.com/athletic/7030373/2026/02/08/luke-kennard-lakers-debut-three-point-shooting/
-
-**The Church of Molt**\
-`A.I. agents are creating religions. What does that mean for us?`\
-https://nytimes.com/2026/02/08/briefing/the-church-of-molt.html
 
