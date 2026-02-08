@@ -1,3 +1,11 @@
+**Reaction to Trump’s Racist Post Shows He Is Not Always Immune to Politics**\
+`With the midterm elections nearing, President Trump has found himself in the uncomfortable position of backtracking, even if only by degrees, at key moments.`\
+https://nytimes.com/2026/02/07/us/politics/trump-social-post-reaction.html
+
+**As political talk rages in Milan, U.S. athletes are answering for their country**\
+`The Olympics have always been a political crucible. What's different about this one is that it's the United States that's taking heat.`\
+https://nytimes.com/athletic/7029840/2026/02/07/winter-olympics-politics-us-athletes-protests/
+
 **What to Know About Thailand’s Election**\
 `The progressive People’s Party was leading in surveys conducted before Sunday’s election but the country has a history of overturning voters’ will.`\
 https://nytimes.com/2026/02/07/world/asia/thailand-election-what-to-know.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/07/nyregion/lutnick-epstein-files-dealings.html
 **Big Air, Big Tricks. How Kira Kimura Won Snowboarding Gold.**\
 `Kira Kimura clinched the top spot on the podium after landing two tricks with five and a half rotations.`\
 https://nytimes.com/interactive/2026/02/07/sports/kira-kimura-snowboarding-big-air-milan-olympics.html
-
-**Man Pleads Guilty to Arson in 2019 Attack on Tennessee Civil Rights Center**\
-`The man also pleaded guilty this week to a charge of attempting to provide material support to a foreign terrorist organization, Hezbollah.`\
-https://nytimes.com/2026/02/07/us/tennessee-arson-guilty-plea-landmark.html
-
-**Facing Regulatory Scrutiny, Hims & Hers Withdraws Knockoff Obesity Pill**\
-`Federal officials had warned that the new product from the online provider of weight loss drugs might be illegal.`\
-https://nytimes.com/2026/02/07/health/hims-obesity-pill-wegovy-novo-nordisk.html
 
