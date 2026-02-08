@@ -1,9 +1,17 @@
+**Cowboys intend to use franchise tag on WR George Pickens: Source**\
+`The Cowboys acquired Pickens via a trade with the Pittsburgh Steelers last May.`\
+https://nytimes.com/athletic/7030105/2026/02/07/cowboys-franchise-tag-george-pickens/
+
+**Best of 2026 Olympics Day 1: Speed skater celebrates gold with son, 'Quad God' has mixed day**\
+`There were several big performances as athletes won the first medals of the 2026 Milan Cortina Winter Olympics on Saturday.`\
+https://nytimes.com/athletic/7029781/2026/02/07/winter-olympics-2026-day-1-best-moments-francesca-lollobrigida/
+
 **Alperen Şengün apologizes for making sexist comments to female referee**\
 `In his first comments about the incident, Şengün called his actions “immature” and something he hopes to learn from.`\
 https://nytimes.com/athletic/7030103/2026/02/07/alperen-sengun-apologizes-sexist-comment-rockets-nba/
 
 **Ilia Malinin dazzles in Olympic debut, but invincibility? Not quite yet**\
-`Expect a more locked-in version of Malinin on Sunday as he makes a run at gold and becoming the breakout star of these Games.`\
+`Expect a more locked-in version of Malinin on Sunday as he makes a run at gold and becoming the breakout star of the Games.`\
 https://nytimes.com/athletic/7029461/2026/02/07/olympics-ilia-malinin-figure-skating-usa/
 
 **Japan’s Leader Makes a Bold Election Bet. Here’s What to Know.**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/07/world/asia/thailand-election-peoples-party.html
 **'We just can’t stop’: Inside Auburn's rivalry prep and start to the Steven Pearl era**\
 `Bruce Pearl made Auburn basketball nationally relevant. Can his son, Steven, keep the momentum going? `\
 https://nytimes.com/athletic/7029249/2026/02/07/auburn-alabama-basketball-steven-pearl/
-
-**Mackenzie Hughes 'didn't lose much sleep' over fan yelling in backswing**\
-`The "Happy Gilmore"-inspired incident was the result of internet personality Jack Doherty paying a fan $100 to yell.`\
-https://nytimes.com/athletic/7029892/2026/02/07/jack-doherty-wmopen-mackenzie-hughes-backswing/
-
-**Savannah Guthrie, in New Video Message, Promises to Pay for Return of Her Mother**\
-`The “Today” show anchor, in a message on social media with her siblings, said the return of their mother Nancy “is the only way we will have peace.”`\
-https://nytimes.com/2026/02/07/us/savannah-guthrie-nancy-guthrie-video-message.html
 
