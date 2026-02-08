@@ -1,3 +1,7 @@
+**Ilia Malinin dazzles in Olympic debut, but invincibility? Not quite yet**\
+`Expect a more locked-in version of Malinin on Sunday as he makes a run at gold and becoming the breakout star of these Games.`\
+https://nytimes.com/athletic/7029461/2026/02/07/olympics-ilia-malinin-figure-skating-usa/
+
 **Japan’s Leader Makes a Bold Election Bet. Here’s What to Know.**\
 `Sanae Takaichi, who has proved popular as the first woman to lead Japan as prime minister, hopes to bolster her power in a snap election. But she faces hurdles.`\
 https://nytimes.com/2026/02/07/world/asia/japan-election-takaichi-what-to-know.html
