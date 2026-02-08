@@ -1,3 +1,11 @@
+**7 Days, No Suspects: The Disappearance of Nancy Guthrie**\
+`The mother of the “Today” show host Savannah Guthrie has not been heard from since an evening of dinner and games with family members.`\
+https://nytimes.com/2026/02/08/us/7-days-no-suspects-the-disappearance-of-nancy-guthrie.html
+
+**The U.S. Skiing Star Lindsey Vonn Crashes in Olympic Women’s Downhill**\
+`Lindsey Vonn’s dream of reclaiming the downhill gold medal despite a torn A.C.L. ended in disappointment on Sunday when she crashed 13 seconds into her race and was airlifted off the course.`\
+https://nytimes.com/video/sports/skiing/100000010698159/winter-olympics-skiing-lindsey-vonn-crash.html
+
 **Ester Ledecka fails to retain Olympic parallel giant slalom title, lashes out at IOC**\
 `Ledecka strongly criticized the IOC for even considering scrapping her event at the next Winter Olympics.`\
 https://nytimes.com/athletic/7030862/2026/02/08/ester-ledecka-ioc-parallel-giant-slalom-winter-olympics/
