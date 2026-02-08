@@ -1,3 +1,7 @@
+**Israeli bobsled team loses passports and 'thousands of dollars' in robbery before Milan Cortina Olympics**\
+`The robbery occurred in the Czech Republic, where the team is training before heading to Italy, according to the New York Post.`\
+https://nytimes.com/athletic/7030968/2026/02/08/israeli-bobsled-robbed-milan-cortina-olympics/
+
 **The Briefing: Liverpool 1 Man City 2 - Where does this leave the title race? Was the late red card right?**\
 `Our writers break down the action from a dramatic finish in the Premier League at Anfield`\
 https://nytimes.com/athletic/7026767/2026/02/08/liverpool-man-city-premier-league-szoboszlai/
