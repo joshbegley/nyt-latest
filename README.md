@@ -1,3 +1,19 @@
+**I won two Olympic medals in luge. What's the secret? Embrace imperfection**\
+`Brian Martin competed in two Olympics in men’s doubles luge, winning bronze in 1998 and silver in 2002.`\
+https://nytimes.com/athletic/7029333/2026/02/08/luge-olympics-medals-brian-martin/
+
+**How to watch the Super Bowl 2026 halftime show, featuring Bad Bunny**\
+`Here's what to know for Sunday, including recent halftime set lengths and start times.`\
+https://nytimes.com/athletic/7022792/2026/02/08/super-bowl-halftime-show-2026-bad-bunny/
+
+**The New York Times International Edition in Print for Monday, Feb. 9, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/02/08/todays-new-york-times-international-edition
+
+**How to watch Knicks vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030520/2026/02/08/knicks-vs-celtics-stream-how-to-watch-feb-8/
+
 **How to watch Louisville vs. Syracuse women's basketball: Time, TV, streaming**\
 `Find out how to watch the Louisville Cardinals play the Syracuse Orange, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7030509/2026/02/08/louisville-vs-syracuse-stream-how-to-watch-feb-8/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/08/us/los-angeles-mayor-race.html
 **Bad Bunny Fans Are Ready for ‘Benito Bowl’**\
 `For some viewers, the Super Bowl game is simply a prelude to a historic halftime show.`\
 https://nytimes.com/2026/02/08/style/bad-bunny-fans-are-ready-for-benito-bowl.html
-
-**How Bad Bunny Gives Voice to Puerto Rico’s ‘Crisis Generation’**\
-`Young Puerto Ricans say the star has opened the world’s eyes to their challenges, and to the island’s fraught territorial relationship with the U.S. government.`\
-https://nytimes.com/2026/02/08/us/how-bad-bunny-gives-voice-to-puerto-ricos-crisis-generation.html
-
-**For $1 Million, Donors to U.S.A. Birthday Group Offered Access to Trump**\
-`A new organization blessed by the president is raising money for events and projects that will put a Trumpian spin on the nation’s semiquincentennial.`\
-https://nytimes.com/2026/02/08/us/politics/freedom-250-trump-donors.html
-
-**The Moments That Made Bad Bunny a Super Bowl Halftime Headliner**\
-`He’s had big hits, won awards, co-starred with Adam Sandler and even came out on top at WrestleMania. Here’s how the 31-year-old star got to music’s biggest stage.`\
-https://nytimes.com/2026/02/08/arts/music/bad-bunny-timeline.html
-
-**Cuba’s Government Has Lasted 67 Years. Will It Fall Under Trump?**\
-`The Trump administration, which has tightened the U.S. chokehold on Cuba by cutting off foreign oil, is betting that this is the Cuban communist revolution’s last year.`\
-https://nytimes.com/2026/02/08/world/americas/cuba-communist-government-trump.html
 
