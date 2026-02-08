@@ -1,3 +1,7 @@
+**Canada names Sidney Crosby captain of Olympic men's hockey team**\
+`It's the fourth straight best-on-best men's tournament at which Crosby has captained Team Canada, and they've won the previous three.`\
+https://nytimes.com/athletic/6943623/2026/02/08/sidney-crosby-canada-captain-olympics/
+
 **Starmer’s Chief of Staff Resigns, Citing Role in Mandelson Appointment**\
 `The chief of staff, Morgan McSweeney, was caught up in the scandal engulfing Britain’s former ambassador to the United States and his ties to Jeffrey Epstein.`\
 https://nytimes.com/2026/02/08/world/europe/keir-starmer-chief-of-staff-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/08/world/japan-election-takaichi/takaichi-is-po
 **Johannes Høsflot Klaebo wins skiathlon gold, continuing dominance in men's cross-country skiing**\
 `Klaebo made a striking move on the final climb and left no question about his status as the favorite at these Games.`\
 https://nytimes.com/athletic/7030708/2026/02/08/johannes-klaebo-skiathlon-gold-winter-olympics/
-
-**Americans at the Olympics Can’t Escape the Politics at Home**\
-`Opposition to President Trump’s policies has followed the U.S. team to Italy, and athletes, coaches and American fans are facing the backlash.`\
-https://nytimes.com/2026/02/08/world/europe/winter-olympics-trump-us-politics.html
 
