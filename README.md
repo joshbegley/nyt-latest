@@ -10,7 +10,7 @@ https://nytimes.com/2026/02/08/arts/music/green-day-ice-super-bowl.html
 `Enjoy this savory puzzle from Matthew Stock.`\
 https://nytimes.com/2026/02/08/crosswords/daily-puzzle-2026-02-09.html
 
-**How Team U.S.A held off Japan to win gold.**\
+**How Team U.S.A. held off Japan to win gold.**\
 `And summary goes here`\
 https://nytimes.com/2026/02/08/world/how-the-american-skaters-held-off-japan-to-win-team-gold.html
 
