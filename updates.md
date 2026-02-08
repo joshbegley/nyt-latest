@@ -1,3 +1,7 @@
+**Cam Thomas signs with Bucks for rest of season after being waived by Nets: Sources**\
+`Thomas averaged 15.6 points and 3.1 assists in 24.3 minutes per game in 24 appearances (eight starts) with the Brooklyn Nets this season.`\
+https://nytimes.com/athletic/7031647/2026/02/08/cam-thomas-bucks-free-agent-signing-nets/
+
 **Reports: Lindsey Vonn fractured leg in Olympic downhill crash, had surgery**\
 `Vonn was airlifted off the mountain after her crash Sunday in the Olympic women's downhill and was recovering at a local hospital.`\
 https://nytimes.com/athletic/7031603/2026/02/08/lindsey-vonn-winter-olympics-crash-injury-surgery-fractured-leg/
