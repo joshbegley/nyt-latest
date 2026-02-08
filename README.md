@@ -1,3 +1,11 @@
+**Games Briefing: U.S. triumph and heartbreak in downhill**\
+`Welcome to the Games Briefing, The Athletic's newsletter for the Milan Cortina Olympics. `\
+https://nytimes.com/athletic/7030948/2026/02/08/breezy-johnson-lindsey-vonn-olympics-games-briefing/
+
+**Talks on Immigration Enforcement Limits Still Stuck With Deadline Nearing**\
+`Democrats’ demands include that immigration officers be required to show visible identification and have judicial warrants when they enter private property to make arrests.`\
+https://nytimes.com/2026/02/08/us/politics/dhs-funding-immigration-shutdown.html
+
 **Arsenal's Gyokeres says he has room for improvement**\
 `The Sweden international has scored six times in his last eight appearances but said he is not the complete player.`\
 https://nytimes.com/athletic/7029636/2026/02/08/viktor-gyokeres-arsenal-goals-improvement/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/08/dining/dip-it-dip-it-good.html
 **As Lindsey Vonn crashes and Breezy Johnson wins, a roller coaster of agony and joy**\
 `A day that was both jubilant and terrible for U.S. skiing left broadcasters, fans and even the American skiers unsure how to process it all.`\
 https://nytimes.com/athletic/7030823/2026/02/08/lindsey-vonn-crash-breezy-johnson-winter-olympics-cortina/
-
-**How Lindsey Vonn's crash in the Olympic women's downhill unfolded**\
-`Vonn crashed early in her attempt to win an Olympic medal and was airlifted off the mountain. Here's a look at how it happened.`\
-https://nytimes.com/athletic/7030679/2026/02/08/lindsey-vonn-crash-olympics-downhill-photos/
-
-**Canada names Sidney Crosby captain of Olympic men's hockey team**\
-`It's the fourth straight best-on-best men's tournament at which Crosby has captained Team Canada, and they've won the previous three.`\
-https://nytimes.com/athletic/6943623/2026/02/08/sidney-crosby-canada-captain-olympics/
 
