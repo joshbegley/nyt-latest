@@ -1,3 +1,7 @@
+**How millions of Americans experienced Vonn’s heart-wrenching crash – after they woke up**\
+`The 41-year-old's bid to reclaim the downhill gold came to an end in dramatic circumstances… all while most of her compatriots were in bed`\
+https://nytimes.com/athletic/7031282/2026/02/08/lindsey-vonn-crash-winter-olympics/
+
 **‘We Will Pay’: Savannah Guthrie Addresses Mother’s Captor in New Video**\
 `Nancy Guthrie’s children shared a new video message to their mother’s purported abductor on Saturday evening. In the video, posted to the “Today” show anchor Savannah Guthrie’s Instagram account, the siblings said they were willing to pay for their mother’s return.`\
 https://nytimes.com/video/us/100000010698061/savannah-guthrie-mother-nancy-kidnapped.html
@@ -6,7 +10,7 @@ https://nytimes.com/video/us/100000010698061/savannah-guthrie-mother-nancy-kidna
 `An Oklahoma State investigation determined the chant was directed at officials and the “reference to religion did not meet our standards.”`\
 https://nytimes.com/athletic/7031284/2026/02/08/oklahoma-state-byu-anti-mormon-chants-big-12-fine/
 
-**Charlie McAvoy's Olympic diary: On the opening ceremony, his jaw and, yes, his Tweet**\
+**Charlie McAvoy's Olympic diary: On the opening ceremony, his jaw and, yes, his tweet**\
 `From dealing with a swollen face to preparing for Thursday's game, McAvoy chronicles his time with Team USA for The Athletic.`\
 https://nytimes.com/athletic/7031283/2026/02/08/charlie-mcavoy-olympics-hockey-jaw-tweet/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/08/world/asia/thailand-election-opposition-conservat
 **Bad Bunny’s Sign Language Interpreter Will Make Super Bowl History, Too**\
 `Puerto Rican Sign Language is not the same as American Sign Language. Celimar Rivera Cosme will uniquely capture the rapper’s slang for the game’s deaf viewers.`\
 https://nytimes.com/2026/02/08/arts/music/super-bowl-halftime-sign-language.html
-
-**Rockets' Şengün to replace injured Shai Gilgeous-Alexander in NBA All-Star Game**\
-`Şengün will join "Team World" under the All-Star Game's new USA vs. the World format.`\
-https://nytimes.com/athletic/7031086/2026/02/08/alperen-sengun-nba-all-star-rockets/
 
