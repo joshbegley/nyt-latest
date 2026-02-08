@@ -1,3 +1,11 @@
+**How the American skaters held off Japan to win team gold.**\
+`And summary goes here`\
+https://nytimes.com/live/2026/02/07/world/olympics-italy-photos/how-the-american-skaters-held-off-japan-to-win-team-gold
+
+**Carlsen beats Firouzja to win SCC for fifth in the time**\
+`Carlsen banked $25,000 plus an additional split based on winning percentage by beating Alireza Firouzja. `\
+https://nytimes.com/athletic/7031577/2026/02/08/magnus-carlsen-wins-scc-chess-london/
+
 **How Team U.S.A held off Japan to win gold.**\
 `And summary goes here`\
 https://nytimes.com/2026/02/08/world/how-the-american-skaters-held-off-japan-to-win-team-gold.html
