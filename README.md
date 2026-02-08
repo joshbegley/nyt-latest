@@ -1,3 +1,7 @@
+**Brad Arnold, Rocker Who Fronted 3 Doors Down, Dies at 47**\
+`He wrote the band’s breakout hit, “Kryptonite,” in a high school math class, and would go on to be nominated for three Grammy Awards.`\
+https://nytimes.com/2026/02/07/arts/music/brad-arnold-three-doors-down-dead.html
+
 **Files Detail Epstein’s Dealings With Commerce Secretary Howard Lutnick**\
 `Mr. Lutnick had claimed to have distanced himself from Jeffrey Epstein even before the disgraced financier was convicted of a sex crime in Florida.`\
 https://nytimes.com/2026/02/07/nyregion/lutnick-epstein-files-dealings.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029478/2026/02/07/canada-womens-hockey-switzerland
 **One Month After Renee Good’s Killing, Her Partner Makes First Public Appearance**\
 `Becca Good attended a memorial for Renee Good, offering words of compassion and resilience to the crowd gathered in a snow-covered Minneapolis park.`\
 https://nytimes.com/2026/02/07/us/renee-good-partner-memorial-minneapolis.html
-
-**Trump’s ‘Board of Peace’ Sets Date to Meet in Washington, Officials Say**\
-`The group, which has prompted skepticism from some U.S. allies, is scheduled to meet on Feb. 19, according to the officials.`\
-https://nytimes.com/2026/02/07/world/middleeast/trump-board-of-peace-meeting.html
 
