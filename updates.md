@@ -1,3 +1,7 @@
+**Jaylen Brown: Celtics must figure out chemistry after Nikola Vučević trade**\
+`Despite the lopsided outcome in a playoff rematch, the Celtics didn’t overreact to a loss to the New York Knicks.`\
+https://nytimes.com/athletic/7031526/2026/02/08/nikola-vucevic-trade-celtics-chemistry-jaylen-brown/
+
 **An Ilia Malinin Olympic blitz delivers U.S. team figure skating gold**\
 `Malinin didn't have his best possible performance in the team finale, but he also didn't need it to dominate.`\
 https://nytimes.com/athletic/7030880/2026/02/08/winter-olympics-ilia-malinin-figure-skating-united-states-gold/
