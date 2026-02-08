@@ -1,3 +1,7 @@
+**Arsenal's Gyokeres says he has room for improvement**\
+`The Sweden international has scored six times in his last eight appearances but said he is not the complete player.`\
+https://nytimes.com/athletic/7029636/2026/02/08/viktor-gyokeres-arsenal-goals-improvement/
+
 **Japan’s Leader Wins in a Landslide, Clearing Way for Hard-Line Agenda**\
 `Prime Minister Sanae Takaichi won a sweeping mandate from voters for her economic agenda and tough stances on immigration and China.`\
 https://nytimes.com/2026/02/08/world/asia/japan-takaichi-election-landslide.html
