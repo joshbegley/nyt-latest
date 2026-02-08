@@ -1,3 +1,15 @@
+**The New York Times in Print for Sunday, Feb. 8, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/08/todays-new-york-times
+
+**The Demise of U.S.A.I.D. Was a Warning**\
+`The brutality of U.S.A.I.D.’s closure and the disregard for the human toll betrayed a vision of a crueler, meaner, more insular world.`\
+https://nytimes.com/2026/02/08/opinion/usaid-humanitarian-aid-america.html
+
+**Almost All Food Is Industrial Food. That’s a Good Thing.**\
+`We can’t feed 340 million Americans with local, organic and low-tech dishes.`\
+https://nytimes.com/2026/02/08/opinion/food-industrial-local-organic.html
+
 **Paul Thomas Anderson Wins Directors Guild Award for ‘One Battle After Another’**\
 `The filmmaker beat out Ryan Coogler, Guillermo del Toro, Josh Safdie and Chloé Zhao. The prize is a strong predictor of the Oscars.`\
 https://nytimes.com/2026/02/08/movies/paul-thomas-anderson-directors-guild-of-america-dga-one-battle-after-another.html
