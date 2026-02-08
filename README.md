@@ -2,7 +2,7 @@
 `SAN ANTONIO — Stephon Castle recorded the first 40-point triple-double of his career in the Spurs’ 138-125 win over the Dallas Mavericks on Saturday.`\
 https://nytimes.com/athletic/7030139/2026/02/07/stephon-castle-joins-david-robinson-as-only-spurs-with-40-point-triple-double/
 
-**Falcons' James Pearce Jr. arrested on battery charges after police chase**\
+**Falcons' James Pearce Jr. arrested on battery charges after alleged police chase**\
 `Pearce recently appeared in San Francisco on Thursday to attend the pre-Super Bowl NFL Honors.`\
 https://nytimes.com/athletic/7030169/2026/02/07/falcons-james-pearce-arrested-battery-charges-police-chase/
 
