@@ -1,3 +1,11 @@
+**The Church of Molt**\
+`A.I. agents are creating religions. What does that mean for us?`\
+https://nytimes.com/2026/02/08/briefing/the-church-of-molt.html
+
+**Trump Administration Live Updates: President Faces Fallout From Racist Obama Post**\
+``\
+https://nytimes.com/live/2026/02/08/us/trump-news
+
 **Republican Leaders Used to Camp and Hunt. Now They Golf and Meme.**\
 `Before MAGA, conservatives’ affinity for wilderness was a powerful force in American politics.`\
 https://nytimes.com/2026/02/08/opinion/republicans-hunting-wilderness-nature.html

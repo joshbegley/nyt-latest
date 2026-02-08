@@ -1,3 +1,11 @@
+**The Church of Molt**\
+`A.I. agents are creating religions. What does that mean for us?`\
+https://nytimes.com/2026/02/08/briefing/the-church-of-molt.html
+
+**Trump Administration Live Updates: President Faces Fallout From Racist Obama Post**\
+``\
+https://nytimes.com/live/2026/02/08/us/trump-news
+
 **Republican Leaders Used to Camp and Hunt. Now They Golf and Meme.**\
 `Before MAGA, conservatives’ affinity for wilderness was a powerful force in American politics.`\
 https://nytimes.com/2026/02/08/opinion/republicans-hunting-wilderness-nature.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7030742/2026/02/08/clippers-vs-timberwolves-stream-
 **How to watch Pacers vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the Indiana Pacers play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7030740/2026/02/08/pacers-vs-raptors-stream-how-to-watch-feb-8/
-
-**How to watch Ohio State vs. Oregon women's basketball: Time, TV, streaming**\
-`Find out how to watch the Ohio State Buckeyes play the Oregon Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7030733/2026/02/08/ohio-state-vs-oregon-stream-how-to-watch-feb-8/
-
-**How to watch TCU vs. Colorado women's basketball: Time, TV, streaming**\
-`Find out how to watch the TCU Horned Frogs play the Colorado Buffaloes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7030730/2026/02/08/tcu-vs-colorado-stream-how-to-watch-feb-8/
 
