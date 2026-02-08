@@ -1,3 +1,7 @@
+**Mike Ditka's Super Bowl 20 sweater vest sells for $183,000**\
+`The Bears sweater vest became a lasting symbol of a dominant team.`\
+https://nytimes.com/athletic/7029684/2026/02/07/mike-ditka-bears-super-bowl-xx-sweater-vest/
+
 **How Japan’s Leader Wants to Shape the Economy**\
 `Prime Minister Sanae Takaichi pushed through a record supplemental budget and is proposing tax cuts, raising questions about how the government will pay for it all.`\
 https://nytimes.com/2026/02/07/business/japan-election-sanae-takaichi-inflation.html
