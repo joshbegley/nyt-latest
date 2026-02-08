@@ -1,3 +1,15 @@
+**A Grammy Award winner and her Super Bowl moment: A highlight with a fashion legend's help**\
+`Grammy Award-winning artist Coco Jones will be the latest to showcase Karl Kani's clothing as she sings before the start of the Super Bowl.`\
+https://nytimes.com/athletic/7025869/2026/02/08/coco-jones-super-bowl-karl-kani-whitney-houston-fashion/
+
+**NBA star Antetokounmpo joins Chelsea Women ownership group**\
+`The Milwaukee Bucks forward is partnering with Reddit founder Alexis Ohanian, who paid around £20m for a 10 per cent stake in the club.`\
+https://nytimes.com/athletic/7030503/2026/02/08/giannis-antetokounmpo-chelsea-women/
+
+**Live Updates: Japan’s Leader Targets a Big Win in Snap Election**\
+`People across Japan braved snowstorms to vote in the election, a major test of Prime Minister Sanae Takaichi’s leadership. It will determine whether her party gets enough seats in Parliament to push her conservative agenda.`\
+https://nytimes.com/live/2026/02/08/world/japan-election-takaichi
+
 **Here’s the latest.**\
 `By Javier C. Hernández`\
 https://nytimes.com/live/2026/02/08/world/japan-election-takaichi/heres-the-latest
