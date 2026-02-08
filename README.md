@@ -1,3 +1,7 @@
+**Charlie McAvoy's Olympic diary: On the opening ceremony, his jaw and, yes, his Tweet**\
+`From dealing with a swollen face to preparing for Thursday's game, McAvoy chronicles his time with Team USA for The Athletic.`\
+https://nytimes.com/athletic/7031283/2026/02/08/charlie-mcavoy-olympics-hockey-jaw-tweet/
+
 **4 Dead in Mushroom Poisoning Outbreak in California**\
 `State health officials discouraged foraging this year, saying that toxic mushrooms can easily be confused with safe ones to eat.`\
 https://nytimes.com/2026/02/08/us/california-mushrooms-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/08/us/nancy-guthrie-savannah-guthrie-family.html
 **The U.S. Skiing Star Lindsey Vonn Crashes in Olympic Women’s Downhill**\
 `Lindsey Vonn’s dream of reclaiming the downhill gold medal despite a torn A.C.L. ended in disappointment on Sunday when she crashed 13 seconds into her race and was airlifted off the course.`\
 https://nytimes.com/video/sports/skiing/100000010698159/winter-olympics-skiing-lindsey-vonn-crash.html
-
-**Ester Ledecka fails to retain Olympic parallel giant slalom title, lashes out at IOC**\
-`Ledecka strongly criticized the IOC for even considering scrapping her event at the next Winter Olympics.`\
-https://nytimes.com/athletic/7030862/2026/02/08/ester-ledecka-ioc-parallel-giant-slalom-winter-olympics/
 
