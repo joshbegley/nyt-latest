@@ -1,5 +1,5 @@
 **Stephon Castle joins David Robinson as only Spurs with 40-point triple-double**\
-`SAN ANTONIO — Stephon Castle recorded the first 40-point triple-double of his career in the Spurs’ 138-125 win over the Dallas Mavericks on Saturday.`\
+`Castle finished with 40 points, 12 assists and 12 rebounds.`\
 https://nytimes.com/athletic/7030139/2026/02/07/stephon-castle-joins-david-robinson-as-only-spurs-with-40-point-triple-double/
 
 **Falcons' James Pearce Jr. arrested on battery charges after alleged police chase**\
