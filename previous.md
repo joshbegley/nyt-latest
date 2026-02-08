@@ -30,8 +30,8 @@ https://nytimes.com/athletic/6943623/2026/02/08/sidney-crosby-canada-captain-oly
 `Turning Point USA had previously announced plans for a show after the NFL chose Bad Bunny as its halftime performer.`\
 https://nytimes.com/athletic/7016481/2026/02/08/turning-point-usa-super-bowl-kid-rock-halftime/
 
-**Starmer’s Chief of Staff Resigns, Citing Role in Mandelson Appointment**\
-`The chief of staff, Morgan McSweeney, was caught up in the scandal engulfing Britain’s former ambassador to the United States and his ties to Jeffrey Epstein.`\
+**Starmer’s Chief of Staff Resigns, Citing Role in Hiring Friend of Epstein**\
+`The Labour official was ensnared in a scandal after helping appoint Peter Mandelson as Britain’s ambassador to the U.S.`\
 https://nytimes.com/2026/02/08/world/europe/keir-starmer-chief-of-staff-resigns.html
 
 **Ben Johnson promoting Press Taylor to Bears offensive coordinator: Sources**\

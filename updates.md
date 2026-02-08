@@ -1,3 +1,7 @@
+**Starmer’s Chief of Staff Resigns, Citing Role in Hiring Friend of Epstein**\
+`The Labour official was ensnared in a scandal after helping appoint Peter Mandelson as Britain’s ambassador to the U.S.`\
+https://nytimes.com/2026/02/08/world/europe/keir-starmer-chief-of-staff-resigns.html
+
 **How to watch Alabama vs. Texas A&M women's basketball: Time, TV, streaming**\
 `Find out how to watch the Alabama Crimson Tide play the Texas A&M Aggies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7031012/2026/02/08/alabama-vs-texas-a-m-stream-how-to-watch-feb-8/
