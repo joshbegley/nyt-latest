@@ -1,3 +1,11 @@
+**Carlsen beats Firouzja to win SCC for fifth in the time in a row**\
+`Carlsen banked $25,000 plus an additional split based on winning percentage by beating Alireza Firouzja. `\
+https://nytimes.com/athletic/7031577/2026/02/08/magnus-carlsen-wins-scc-chess-london/
+
+**Trump calls Olympian ‘a real loser’ over comments on representing U.S.**\
+`President Trump responds to Hunter Hess' comments on representing the U.S. at the Winter Olympics. `\
+https://nytimes.com/athletic/7031234/2026/02/08/president-trump-hunter-hess-2026-winter-olympics/
+
 **Mets, outfielder MJ Melendez in agreement on 1-year, $1.5 million deal: Sources**\
 `The Mets think Melendez, who came up as a catcher and has mostly played in the outfield in the majors, can occasionally handle first base. `\
 https://nytimes.com/athletic/7031523/2026/02/08/mlb-mets-mj-melendez-contract/
