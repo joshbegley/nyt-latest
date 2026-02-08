@@ -1,40 +1,40 @@
-**WATCH: All the positions in the NFL explained**\
-`Let's take a look at each position in football to outline what their responsibilities are and how they all work together.`\
-https://nytimes.com/athletic/7021960/2026/02/08/nfl-positions-football-definitions/
+**Here’s What To Know About the Los Angeles Mayor’s Race**\
+`The week leading up to the filing deadline saw candidates dropping from the field and a surprise last-minute challenge to the incumbent mayor, Karen Bass.`\
+https://nytimes.com/2026/02/08/us/los-angeles-mayor-race.html
 
-**Three things we learned about Mike Vrabel from high school**\
-`We stopped in Cuyahoga Falls, Ohio, where Vrabel grew up, to uncover more about the Patriots' head coach.`\
-https://nytimes.com/athletic/7022389/2026/02/08/mike-vrabel-wiki-bio-facts/
+**Bad Bunny Fans Are Ready for ‘Benito Bowl’**\
+`For some viewers, the Super Bowl game is simply a prelude to a historic halftime show.`\
+https://nytimes.com/2026/02/08/style/bad-bunny-fans-are-ready-for-benito-bowl.html
 
-**Why is the Super Bowl written in Roman numerals?**\
-`Deciphering what number Super Bowl it is can be tricky, but the irony is, Roman numerals were introduced to make things clearer.`\
-https://nytimes.com/athletic/7021771/2026/02/08/super-bowl-roman-numerals-numbers/
+**How Bad Bunny Gives Voice to Puerto Rico’s ‘Crisis Generation’**\
+`Young Puerto Ricans say the star has opened the world’s eyes to their challenges, and to the island’s fraught territorial relationship with the U.S. government.`\
+https://nytimes.com/2026/02/08/us/how-bad-bunny-gives-voice-to-puerto-ricos-crisis-generation.html
 
-**You don't have to like Bill Guerin's Olympic roster decisions to respect his guts in making them**\
-`In two weeks, the American GM will either be the man who built the perfect roster or the one who squandered the golden age of U.S. hockey.`\
-https://nytimes.com/athletic/7029101/2026/02/08/usa-olympic-hockey-roster-bill-guerin-decisions/
+**For $1 Million, Donors to U.S.A. Birthday Group Offered Access to Trump**\
+`A new organization blessed by the president is raising money for events and projects that will put a Trumpian spin on the nation’s semiquincentennial.`\
+https://nytimes.com/2026/02/08/us/politics/freedom-250-trump-donors.html
 
-**How to watch Lindsey Vonn chase Olympic medals with a torn ACL**\
-`Despite tearing the ACL in her left knee, 41-year-old skiing legend Lindsey Vonn is still competing in the Winter Olympics.`\
-https://nytimes.com/athletic/7025511/2026/02/08/how-to-watch-lindsey-vonn-2026-olympics-ski/
+**The Moments That Made Bad Bunny a Super Bowl Halftime Headliner**\
+`He’s had big hits, won awards, co-starred with Adam Sandler and even came out on top at WrestleMania. Here’s how the 31-year-old star got to music’s biggest stage.`\
+https://nytimes.com/2026/02/08/arts/music/bad-bunny-timeline.html
 
-**India, Pakistan, Bangladesh and the political tensions undermining cricket's T20 World Cup**\
-`This year’s tournament is being overshadowed by diplomatic tensions between India, Pakistan and Bangladesh`\
-https://nytimes.com/athletic/7029406/2026/02/08/cricket-t20-world-cup-india-pakistan-bangladesh/
+**Cuba’s Government Has Lasted 67 Years. Will It Fall Under Trump?**\
+`The Trump administration, which has tightened the U.S. chokehold on Cuba by cutting off foreign oil, is betting that this is the Cuban communist revolution’s last year.`\
+https://nytimes.com/2026/02/08/world/americas/cuba-communist-government-trump.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/08/crosswords/spelling-bee-forum.html
+**A New American Fashion Lineage**\
+`With the help of some of her nieces, the New York designer Anna Sui is steering her 45-year-old label into the future.`\
+https://nytimes.com/2026/02/08/style/anna-sui-fashion-label-gen-z-nieces.html
 
-**As American Views of ICE Dim, Warehouses Become a Symbol of Resistance**\
-`Plans to confine migrants in retrofitted buildings have ignited bipartisan dissent as the country has grown more critical of immigration officials.`\
-https://nytimes.com/2026/02/08/nyregion/ice-warehouse-new-york-opposition.html
+**She’s the Olympics’ Hometown Hero. To Her Neighbors, She’s Just ‘Stefi.’**\
+`Stefania Constantini worked in a clothes shop until her sports career took off. The champion curler is now one of Italy’s best hopes at the Winter Games.`\
+https://nytimes.com/2026/02/08/world/europe/winter-olympics-milan-cortina-stefi-constantini-italy.html
 
-**‘As They Crested the Peak, the Skater Let Go and Swooped Left’**\
-`A little help up a Brooklyn hill in the rain, loose shoes in Gramercy and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2026/02/08/nyregion/metropolitan-diary.html
+**War Came to Ukraine and Its Dogs Are Not the Same**\
+`Researchers discovered surprising changes to former pets along the front line of combat with Russia.`\
+https://nytimes.com/2026/02/08/science/ukraine-dogs-war.html
 
-**To the sound of boos, Eddie Howe admits: ‘I'm not doing my job well enough’**\
-`Oldcastle Disunited are back and it is not pretty viewing. Eddie Howe is all too aware of Newcastle's many problems`\
-https://nytimes.com/athletic/7029866/2026/02/08/newcastle-united-eddie-howe-losing-boos/
+**Epstein Files Reveal Scope of Ghislaine Maxwell’s Role in Clinton Circle**\
+`Jeffrey Epstein’s longtime companion helped advise on the kickoff of the Clinton Global Initiative and arranged for $1 million in funding for it, emails show.`\
+https://nytimes.com/2026/02/08/us/politics/epstein-clintons-maxwell.html
 
