@@ -1,3 +1,7 @@
+**Lindsey Vonn crashes in Olympic women's downhill attempt on torn ACL**\
+`Vonn crashed during Sunday’s Olympic women’s downhill. Her status is unclear. `\
+https://nytimes.com/athletic/7030495/2026/02/08/lindsey-vonn-winter-olympics-downhill-crash-torn-acl/
+
 **How to watch Puppy Bowl 2026: Streaming, format and dogs to know**\
 `The 22nd edition of the Puppy Bowl features 150 adoptable dogs playing for a shot at the Lombarky Trophy.`\
 https://nytimes.com/athletic/7016839/2026/02/08/how-to-watch-puppy-bowl-2026-tv-channel/
@@ -26,15 +30,11 @@ https://nytimes.com/2026/02/08/crosswords/wordle-review-1696.html
 `Japn`\
 https://nytimes.com/live/2026/02/08/world/japan-election-takaichi/japan-candidates-challenges
 
-**This year's Super Bowl coin is actually a medal — with a Benjamin Franklin connection**\
-`For a few moments Sunday, numismatics, the study of coins, currency and medals, will take center stage.`\
-https://nytimes.com/athletic/7027699/2026/02/08/super-bowl-coin-toss-2026-benjamin-franklin/
-
 **She quit hockey twice. Now, with no prior international experience, she's an Olympian**\
 `Defender Kati Tabin took a winding path to the national team, becoming the oldest player since 2002 to debut for Canada at the Olympics.`\
 https://nytimes.com/athletic/7020919/2026/02/08/olympics-canada-womens-hockey-kati-tabin/
 
-**Connections Companion No. 974**\
-`Scroll down for hints and conversation about the puzzle for Monday, Feb. 9, 2026.`\
-https://nytimes.com/2026/02/08/crosswords/connections-companion-974.html
+**This year's Super Bowl coin is actually a medal — with a Benjamin Franklin connection**\
+`For a few moments Sunday, numismatics, the study of coins, currency and medals, will take center stage.`\
+https://nytimes.com/athletic/7027699/2026/02/08/super-bowl-coin-toss-2026-benjamin-franklin/
 
