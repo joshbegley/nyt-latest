@@ -1,3 +1,15 @@
+**Japan’s Leader Wins in a Landslide, Clearing Way for Hard-Line Agenda**\
+`Prime Minister Sanae Takaichi won a sweeping mandate from voters for her economic agenda and tough stances on immigration and China.`\
+https://nytimes.com/2026/02/08/world/asia/japan-takaichi-election-landslide.html
+
+**A preview of The Athletic’s live coverage this week**\
+`The Athletic's live coverage this week includes the Winter Olympics, NBA All-Star game and Daytona 500.`\
+https://nytimes.com/athletic/7030869/2026/02/08/winter-olympics-nba-daytona-500-live/
+
+**Madonna, soccer mom: Why the Queen of Pop was watching Tottenham's Under-14 girls' team**\
+`Madonna's social-media post from the touchline of a Spurs academy match was eye-catching, so what was going on?`\
+https://nytimes.com/athletic/7030813/2026/02/08/madonna-twins-tottenham-academy/
+
 **Starmer’s Chief of Staff Resigns, Citing Role in Hiring Friend of Epstein**\
 `The Labour official was ensnared in a scandal after helping appoint Peter Mandelson as Britain’s ambassador to the U.S.`\
 https://nytimes.com/2026/02/08/world/europe/keir-starmer-chief-of-staff-resigns.html
