@@ -1,3 +1,19 @@
+**An Ilia Malinin Olympic blitz delivers U.S. team figure skating gold**\
+`Malinin didn't have his best possible performance in the team finale, but he also didn't need it to dominate.`\
+https://nytimes.com/athletic/7030880/2026/02/08/winter-olympics-ilia-malinin-figure-skating-united-states-gold/
+
+**North Dakota State to join Mountain West in 2026 for football: Sources**\
+`North Dakota State is making the move from FCS to the Mountain West and will pay over $15 million to the conference and NCAA.`\
+https://nytimes.com/athletic/7031531/2026/02/08/north-dakota-state-football-mountain-west/
+
+**What we saw as Team USA took the ice for first men's Olympic hockey practice**\
+`Coach Mike Sullivan said foward lines and defense pairings are still a work in progress on Sunday as his team practice in Milan.`\
+https://nytimes.com/athletic/7031377/2026/02/08/team-usa-olympics-mens-hockey-first-practice/
+
+**Michael Bay sues Cadillac F1 for $1.5 Million, claims Super Bowl ad stole his ideas**\
+`Cadillac will unveil its debut F1 livery through a Super Bowl ad on Feb. 8. `\
+https://nytimes.com/athletic/7031409/2026/02/08/michael-bay-lawsuit-cadillac-f1-super-bowl-ad/
+
 **Damian Lillard a surprise addition to 3-point contest at NBA All-Star Weekend**\
 `The NBA announced that the Trail Blazers star will participate despite not playing at all this season after tearing an Achilles. `\
 https://nytimes.com/athletic/7031428/2026/02/08/damian-lillard-3-point-contest-2026-nba/
