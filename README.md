@@ -1,3 +1,7 @@
+**Lindsey Vonn has always gone all-in, and these Olympics were no different**\
+`​​"I have always pushed the limits," Vonn said this week. She was always going to do it again on Sunday, risks be damned.`\
+https://nytimes.com/athletic/7031150/2026/02/08/lindsey-vonn-winter-olympics-crash-cortina/
+
 **Iranian Nobel Laureate Gets Second Prison Sentence and Ends Hunger Strike**\
 `The activist Narges Mohammadi was sentenced to another seven years, bringing the total she must serve to 17 years, her foundation said.`\
 https://nytimes.com/2026/02/08/world/middleeast/iran-narges-mohammadi-second-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7030968/2026/02/08/israeli-bobsled-robbed-milan-cor
 **The Briefing: Liverpool 1 Man City 2 - Where does this leave the title race? Was the late red card right?**\
 `Our writers break down the action from a dramatic finish in the Premier League at Anfield`\
 https://nytimes.com/athletic/7026767/2026/02/08/liverpool-man-city-premier-league-szoboszlai/
-
-**Seeking Stability, Thai Voters Decisively Reject Progressive Party**\
-`It was the first time in years that a conservative party preaching nationalism, patriotism and respect for the monarchy came out on top.`\
-https://nytimes.com/2026/02/08/world/asia/thailand-election-opposition-conservatives.html
 

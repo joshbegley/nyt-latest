@@ -1,3 +1,7 @@
+**Iranian Nobel Laureate Gets Second Prison Sentence and Ends Hunger Strike**\
+`The activist Narges Mohammadi was sentenced to another seven years, bringing the total she must serve to 17 years, her foundation said.`\
+https://nytimes.com/2026/02/08/world/middleeast/iran-narges-mohammadi-second-sentence.html
+
 **How millions of Americans experienced Vonn’s heart-wrenching crash – after they woke up**\
 `The 41-year-old's bid to reclaim the downhill gold came to an end in dramatic circumstances… all while most of her compatriots were in bed`\
 https://nytimes.com/athletic/7031282/2026/02/08/lindsey-vonn-crash-winter-olympics/
