@@ -1,3 +1,7 @@
+**Starmer’s Chief of Staff Resigns, Citing Role in Mandelson Appointment**\
+`The chief of staff, Morgan McSweeney, was caught up in the scandal engulfing Britain’s former ambassador to the United States and his ties to Jeffrey Epstein.`\
+https://nytimes.com/2026/02/08/world/europe/keir-starmer-chief-of-staff-resigns.html
+
 **Ben Johnson promoting Press Taylor to Bears offensive coordinator: Sources**\
 `The Bears' offense made huge leaps this season under first-year head coach Ben Johnson. Taylor steps into the important OC role.`\
 https://nytimes.com/athletic/7030790/2026/02/08/bears-offensive-coordinator-press-taylor-ben-johnson/

@@ -1,3 +1,7 @@
+**Starmer’s Chief of Staff Resigns, Citing Role in Mandelson Appointment**\
+`The chief of staff, Morgan McSweeney, was caught up in the scandal engulfing Britain’s former ambassador to the United States and his ties to Jeffrey Epstein.`\
+https://nytimes.com/2026/02/08/world/europe/keir-starmer-chief-of-staff-resigns.html
+
 **Ben Johnson promoting Press Taylor to Bears offensive coordinator: Sources**\
 `The Bears' offense made huge leaps this season under first-year head coach Ben Johnson. Taylor steps into the important OC role.`\
 https://nytimes.com/athletic/7030790/2026/02/08/bears-offensive-coordinator-press-taylor-ben-johnson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7030708/2026/02/08/johannes-klaebo-skiathlon-gold-w
 **Americans at the Olympics Can’t Escape the Politics at Home**\
 `Opposition to President Trump’s policies has followed the U.S. team to Italy, and athletes, coaches and American fans are facing the backlash.`\
 https://nytimes.com/2026/02/08/world/europe/winter-olympics-trump-us-politics.html
-
-**How to watch Heat vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7030745/2026/02/08/heat-vs-wizards-stream-how-to-watch-feb-8/
 
