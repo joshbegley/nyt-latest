@@ -1,5 +1,5 @@
 **To the sound of boos, Eddie Howe admits: ‘I'm not doing my job well enough’**\
-`Oldcastle Disunited are back and it is not pretty viewing. Eddie Howe is all too wary of Newcastle's many problems`\
+`Oldcastle Disunited are back and it is not pretty viewing. Eddie Howe is all too aware of Newcastle's many problems`\
 https://nytimes.com/athletic/7029866/2026/02/08/newcastle-united-eddie-howe-losing-boos/
 
 **The New York Times in Print for Sunday, Feb. 8, 2026**\
