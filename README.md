@@ -1,3 +1,7 @@
+**Seeking Stability, Thai Voters Decisively Reject Progressive Party**\
+`It was the first time in years that a conservative party preaching nationalism, patriotism and respect for the monarchy came out on top.`\
+https://nytimes.com/2026/02/08/world/asia/thailand-election-opposition-conservatives.html
+
 **Bad Bunny’s Sign Language Interpreter Will Make Super Bowl History, Too**\
 `Puerto Rican Sign Language is not the same as American Sign Language. Celimar Rivera Cosme will uniquely capture the rapper’s slang for the game’s deaf viewers.`\
 https://nytimes.com/2026/02/08/arts/music/super-bowl-halftime-sign-language.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/08/us/politics/dhs-funding-immigration-shutdown.html
 **Arsenal's Gyokeres says he has room for improvement**\
 `The Sweden international has scored six times in his last eight appearances but said he is not the complete player.`\
 https://nytimes.com/athletic/7029636/2026/02/08/viktor-gyokeres-arsenal-goals-improvement/
-
-**Ranking the best 2026 Super Bowl commercials: For Papa! Will Shat and more**\
-`The Athletic has live coverage of the Super Bowl LX halftime show featuring Bad Bunny.`\
-https://nytimes.com/athletic/7016254/2026/02/08/super-bowl-commercials-2026-ranking-shatner-instacart-skittles/
 
