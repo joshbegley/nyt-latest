@@ -1,3 +1,7 @@
+**Canada names Sidney Crosby captain of Olympic men's hockey team**\
+`It's the fourth straight best-on-best men's tournament at which Crosby has captained Team Canada, and they've won the previous three.`\
+https://nytimes.com/athletic/6943623/2026/02/08/sidney-crosby-canada-captain-olympics/
+
 **Starmer’s Chief of Staff Resigns, Citing Role in Mandelson Appointment**\
 `The chief of staff, Morgan McSweeney, was caught up in the scandal engulfing Britain’s former ambassador to the United States and his ties to Jeffrey Epstein.`\
 https://nytimes.com/2026/02/08/world/europe/keir-starmer-chief-of-staff-resigns.html
