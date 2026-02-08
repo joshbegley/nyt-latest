@@ -1,3 +1,7 @@
+**Savannah Guthrie, in New Video Message, Promises to Pay for Return of Her Mother**\
+`The “Today” show anchor, in a message on social media with her siblings, said the return of their mother Nancy “is the only way we will have peace.”`\
+https://nytimes.com/2026/02/07/us/savannah-guthrie-nancy-guthrie-video-message.html
+
 **Brad Arnold, Rocker Who Fronted 3 Doors Down, Dies at 47**\
 `He wrote the band’s breakout hit, “Kryptonite,” in a high school math class, and would go on to be nominated for three Grammy Awards.`\
 https://nytimes.com/2026/02/07/arts/music/brad-arnold-three-doors-down-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/100000010697078/olympics-milan-italy-protests-ic
 **After 48-hour delay, Canada begins bid for Olympic hockey gold with win over Switzerland**\
 `The Canadians finally began their Olympic tournament on Saturday after a norovirus outbreak on Team Finland postponed their first game.`\
 https://nytimes.com/athletic/7029478/2026/02/07/canada-womens-hockey-switzerland-2026-olympics/
-
-**One Month After Renee Good’s Killing, Her Partner Makes First Public Appearance**\
-`Becca Good attended a memorial for Renee Good, offering words of compassion and resilience to the crowd gathered in a snow-covered Minneapolis park.`\
-https://nytimes.com/2026/02/07/us/renee-good-partner-memorial-minneapolis.html
 
