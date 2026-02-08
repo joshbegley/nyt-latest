@@ -1,3 +1,7 @@
+**Ester Ledecka fails to retain Olympic parallel giant slalom title, lashes out at IOC**\
+`Ledecka strongly criticized the IOC for even considering scrapping her event at the next Winter Olympics.`\
+https://nytimes.com/athletic/7030862/2026/02/08/ester-ledecka-ioc-parallel-giant-slalom-winter-olympics/
+
 **Polar Plunge Persists in the Northeast as Low-Temperature Records Are Set**\
 `Punishing winds have combined with low temperatures to produce dangerously cold conditions across the Northeast. Forecasters say, though, that relief is on the horizon.`\
 https://nytimes.com/2026/02/08/weather/extreme-cold-wind-chills.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7031012/2026/02/08/alabama-vs-texas-a-m-stream-how-
 **Portugal Votes for President, With Leftist Set to Beat Surging Far Right**\
 `Polls predict a comfortable victory for António José Seguro, but a nationalist’s presence in the runoff showed that Portugal is not immune to Europe’s rising nationalist tide.`\
 https://nytimes.com/2026/02/08/world/europe/portugal-president-elections-chega-seguro-ventura.html
-
-**Madonna, soccer mom: Why the Queen of Pop was watching Tottenham's Under-14 girls' team**\
-`Madonna's social-media post from the touchline of a Spurs academy match was eye-catching, so what was going on?`\
-https://nytimes.com/athletic/7030813/2026/02/08/madonna-twins-tottenham-academy/
 
