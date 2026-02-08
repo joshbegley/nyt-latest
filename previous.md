@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Javier C. Hernández`\
+https://nytimes.com/live/2026/02/08/world/japan-election-takaichi/heres-the-latest
+
+**Live Updates: Japan’s Leader Targets a Big Win in Snap Election**\
+`People across Japan braved snowstorms to decide whether to grant Prime Minister Sanae Takaichi’s party enough seats in Parliament to push her conservative agenda. It’s a major test of her leadership.`\
+https://nytimes.com/live/2026/02/08/world/japan-election-takaichi
+
 **I won two Olympic medals in luge. What's the secret? Embrace imperfection**\
 `Brian Martin competed in two Olympics in men’s doubles luge, winning bronze in 1998 and silver in 2002.`\
 https://nytimes.com/athletic/7029333/2026/02/08/luge-olympics-medals-brian-martin/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7030507/2026/02/08/michigan-vs-ohio-state-stream-ho
 **How to watch Texas Tech vs. West Virginia men's basketball: Time, TV, streaming**\
 `Find out how to watch the Texas Tech Red Raiders play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7030505/2026/02/08/texas-tech-vs-west-virginia-stream-how-to-watch-feb-8/
-
-**Here’s What To Know About the Los Angeles Mayor’s Race**\
-`The week leading up to the filing deadline saw candidates dropping from the field and a surprise last-minute challenge to the incumbent mayor, Karen Bass.`\
-https://nytimes.com/2026/02/08/us/los-angeles-mayor-race.html
-
-**Bad Bunny Fans Are Ready for ‘Benito Bowl’**\
-`For some viewers, the Super Bowl game is simply a prelude to a historic halftime show.`\
-https://nytimes.com/2026/02/08/style/bad-bunny-fans-are-ready-for-benito-bowl.html
 

@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Javier C. Hernández`\
+https://nytimes.com/live/2026/02/08/world/japan-election-takaichi/heres-the-latest
+
+**Live Updates: Japan’s Leader Targets a Big Win in Snap Election**\
+`People across Japan braved snowstorms to decide whether to grant Prime Minister Sanae Takaichi’s party enough seats in Parliament to push her conservative agenda. It’s a major test of her leadership.`\
+https://nytimes.com/live/2026/02/08/world/japan-election-takaichi
+
 **I won two Olympic medals in luge. What's the secret? Embrace imperfection**\
 `Brian Martin competed in two Olympics in men’s doubles luge, winning bronze in 1998 and silver in 2002.`\
 https://nytimes.com/athletic/7029333/2026/02/08/luge-olympics-medals-brian-martin/
