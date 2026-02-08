@@ -1,3 +1,19 @@
+**How to watch Louisville vs. Syracuse women's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Syracuse Orange, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030509/2026/02/08/louisville-vs-syracuse-stream-how-to-watch-feb-8/
+
+**China’s Presence Looms Large in Japanese Election**\
+`Prime Minister Sanae Takaichi’s handling of bilateral relations has become a campaign issue. Her earlier comments on Taiwan brought reprisals from Beijing.`\
+https://nytimes.com/2026/02/08/world/asia/japan-election-china.html
+
+**How to watch Michigan vs. Ohio State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030507/2026/02/08/michigan-vs-ohio-state-stream-how-to-watch-feb-8/
+
+**How to watch Texas Tech vs. West Virginia men's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Red Raiders play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030505/2026/02/08/texas-tech-vs-west-virginia-stream-how-to-watch-feb-8/
+
 **Here’s What To Know About the Los Angeles Mayor’s Race**\
 `The week leading up to the filing deadline saw candidates dropping from the field and a surprise last-minute challenge to the incumbent mayor, Karen Bass.`\
 https://nytimes.com/2026/02/08/us/los-angeles-mayor-race.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/08/arts/music/bad-bunny-timeline.html
 **Cuba’s Government Has Lasted 67 Years. Will It Fall Under Trump?**\
 `The Trump administration, which has tightened the U.S. chokehold on Cuba by cutting off foreign oil, is betting that this is the Cuban communist revolution’s last year.`\
 https://nytimes.com/2026/02/08/world/americas/cuba-communist-government-trump.html
-
-**A New American Fashion Lineage**\
-`With the help of some of her nieces, the New York designer Anna Sui is steering her 45-year-old label into the future.`\
-https://nytimes.com/2026/02/08/style/anna-sui-fashion-label-gen-z-nieces.html
-
-**She’s the Olympics’ Hometown Hero. To Her Neighbors, She’s Just ‘Stefi.’**\
-`Stefania Constantini worked in a clothes shop until her sports career took off. The champion curler is now one of Italy’s best hopes at the Winter Games.`\
-https://nytimes.com/2026/02/08/world/europe/winter-olympics-milan-cortina-stefi-constantini-italy.html
-
-**War Came to Ukraine and Its Dogs Are Not the Same**\
-`Researchers discovered surprising changes to former pets along the front line of combat with Russia.`\
-https://nytimes.com/2026/02/08/science/ukraine-dogs-war.html
-
-**Epstein Files Reveal Scope of Ghislaine Maxwell’s Role in Clinton Circle**\
-`Jeffrey Epstein’s longtime companion helped advise on the kickoff of the Clinton Global Initiative and arranged for $1 million in funding for it, emails show.`\
-https://nytimes.com/2026/02/08/us/politics/epstein-clintons-maxwell.html
 

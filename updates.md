@@ -1,3 +1,19 @@
+**How to watch Louisville vs. Syracuse women's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Syracuse Orange, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030509/2026/02/08/louisville-vs-syracuse-stream-how-to-watch-feb-8/
+
+**China’s Presence Looms Large in Japanese Election**\
+`Prime Minister Sanae Takaichi’s handling of bilateral relations has become a campaign issue. Her earlier comments on Taiwan brought reprisals from Beijing.`\
+https://nytimes.com/2026/02/08/world/asia/japan-election-china.html
+
+**How to watch Michigan vs. Ohio State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030507/2026/02/08/michigan-vs-ohio-state-stream-how-to-watch-feb-8/
+
+**How to watch Texas Tech vs. West Virginia men's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Red Raiders play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030505/2026/02/08/texas-tech-vs-west-virginia-stream-how-to-watch-feb-8/
+
 **Here’s What To Know About the Los Angeles Mayor’s Race**\
 `The week leading up to the filing deadline saw candidates dropping from the field and a surprise last-minute challenge to the incumbent mayor, Karen Bass.`\
 https://nytimes.com/2026/02/08/us/los-angeles-mayor-race.html
