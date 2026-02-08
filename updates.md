@@ -1,3 +1,7 @@
+**She quit hockey twice. Now, with no prior international experience, she's an Olympian**\
+`Defender Kati Tabin took a winding path to the national team, becoming the oldest player since 2002 to debut for Canada at the Olympics.`\
+https://nytimes.com/athletic/7020919/2026/02/08/olympics-canada-womens-hockey-kati-tabin/
+
 **Lindsey Vonn crashes in Olympic women's downhill, airlifted off course**\
 `Vonn crashed during Sunday’s Olympic women’s downhill and was airlifted off the mountain. Her status is unclear. `\
 https://nytimes.com/athletic/7030495/2026/02/08/lindsey-vonn-winter-olympics-downhill-crash-torn-acl/

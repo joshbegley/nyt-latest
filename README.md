@@ -1,3 +1,11 @@
+**How to watch the Super Bowl national anthem and other pregame festivities**\
+`The buildup to Super Bowl LX features Green Day, Alcatraz Island, the most-watched national anthem and much more. `\
+https://nytimes.com/athletic/7030081/2026/02/08/super-bowl-2026-national-anthem-charlie-puth-green-day/
+
+**Five Cubs players in the spotlight with spring training about to start**\
+`The organization has clear expectations for October baseball at Wrigley Field, a time and place where seemingly anything can happen.`\
+https://nytimes.com/athletic/7028045/2026/02/08/chicago-cubs-spring-training-spotlight/
+
 **How to watch Rescue Bowl 2026: Start time, TV channel and streaming info**\
 `Dozens of adoptable dogs and cats will take the field on Super Bowl Sunday in the Rescue Bowl, once known as the Kitten Bowl.`\
 https://nytimes.com/athletic/7025788/2026/02/08/how-to-watch-kitten-bowl-rescue-2026-tv-channel/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7029780/2026/02/08/super-bowl-bad-bunny-puerto-rico
 **Wordle Review No. 1,696**\
 `Scroll down for hints and conversation about the puzzle for Monday, Feb. 9, 2026.`\
 https://nytimes.com/2026/02/08/crosswords/wordle-review-1696.html
-
-**Shortages of posters and trucks add to candidates’ challenges.**\
-`Japn`\
-https://nytimes.com/live/2026/02/08/world/japan-election-takaichi/japan-candidates-challenges
-
-**She quit hockey twice. Now, with no prior international experience, she's an Olympian**\
-`Defender Kati Tabin took a winding path to the national team, becoming the oldest player since 2002 to debut for Canada at the Olympics.`\
-https://nytimes.com/athletic/7020919/2026/02/08/olympics-canada-womens-hockey-kati-tabin/
 
