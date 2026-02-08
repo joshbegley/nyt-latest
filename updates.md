@@ -1,3 +1,11 @@
+**What to Know About Thailand’s Election**\
+`The progressive People’s Party was leading in surveys conducted before Sunday’s election but the country has a history of overturning voters’ will.`\
+https://nytimes.com/2026/02/07/world/asia/thailand-election-what-to-know.html
+
+**In Bid to Lead Thailand, a Progressive Party Softens Its Image**\
+`Sunday’s election is a test for the progressive, pro-democracy movement in Thailand, which has repeatedly been blocked from taking power despite success at the polls.`\
+https://nytimes.com/2026/02/07/world/asia/thailand-election-peoples-party.html
+
 **'We just can’t stop’: Inside Auburn's rivalry prep and start to the Steven Pearl era**\
 `Bruce Pearl made Auburn basketball nationally relevant. Can his son, Steven, keep the momentum going? `\
 https://nytimes.com/athletic/7029249/2026/02/07/auburn-alabama-basketball-steven-pearl/
