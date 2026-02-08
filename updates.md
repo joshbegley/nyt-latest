@@ -1,3 +1,7 @@
+**How Japan’s Leader Wants to Shape the Economy**\
+`Prime Minister Sanae Takaichi pushed through a record supplemental budget and is proposing tax cuts, raising questions about how the government will pay for it all.`\
+https://nytimes.com/2026/02/07/business/japan-election-sanae-takaichi-inflation.html
+
 **Kristaps Porziņģis on joining Warriors: 'I think it's a great, great opportunity'**\
 `Porziņģis said the deal came as a "surprise," but once he found out where he was going, he was excited.`\
 https://nytimes.com/athletic/7029993/2026/02/07/kristaps-porzingis-trade-warriors-hawks-nba-steph-curry/
