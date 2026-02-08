@@ -1,3 +1,11 @@
+**Why the N.F.L. Booked Bad Bunny for the Super Bowl**\
+`League executives are nervous about the Latin superstar’s outspoken stance on immigration, but their priority is attracting popular halftime performers.`\
+https://nytimes.com/2026/02/08/business/bad-bunny-super-bowl-nfl.html
+
+**On the Brink of a New Arms Race**\
+`For the first time in decades, the U.S. and Russia no longer have a nuclear arms control agreement.`\
+https://nytimes.com/2026/02/08/world/nuclear-arms-control-japan-election.html
+
 **Damian Lillard surprise addition to 3-point contest at NBA All-Star Weekend**\
 `The NBA announced that the Trail Blazers star will participate despite not playing at all this season after tearing an Achilles. `\
 https://nytimes.com/athletic/7031428/2026/02/08/damian-lillard-3-point-contest-2026-nba/
