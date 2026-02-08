@@ -1,3 +1,23 @@
+**Matt Ryan talks Super Bowl quarterbacks on the latest episode of 'The Athletic Show'**\
+`Ryan joins Sunday's show to break down Super Bowl LX and the expectations for next season after a winter of change across the league.`\
+https://nytimes.com/athletic/7028223/2026/02/08/matt-ryan-the-athletic-show-super-bowl-quarterbacks/
+
+**Haruki Murakami Isn’t Afraid of the Dark**\
+`The author, who brought Japanese literature into the global mainstream, grapples with aging and his place in the world of letters.`\
+https://nytimes.com/2026/02/08/books/haruki-murakami-profile.html
+
+**Quote of the Day: Another Danish Territory Feels Trump-Induced Anxiety**\
+`Quotation of the Day for Sunday, February 8, 2026.`\
+https://nytimes.com/2026/02/08/pageoneplus/quote-of-the-day-another-danish-territory-feels-trump-induced-anxiety.html
+
+**Connections: Sports Edition Coach: Hints and answers for Feb. 8, 2026 — Super Bowl edition**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7030318/2026/02/08/connections-sports-edition-hints-answers-feb-8-2026/
+
+**Corrections: Feb. 8, 2026**\
+`Corrections that appeared in print on Sunday, Feb. 8, 2026.`\
+https://nytimes.com/2026/02/08/pageoneplus/corrections-feb-8-2026.html
+
 **Lakers' Rob Pelinka eyes Dodgers-esque vision for front office's future**\
 `The Lakers have what’s regarded as one of the NBA’s leanest front offices, with needs in scouting, analytics, biomechanics and other areas.`\
 https://nytimes.com/athletic/7030313/2026/02/07/lakers-rob-pelinka-dodgers-mark-walter-nba/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7029684/2026/02/07/mike-ditka-bears-super-bowl-xx-s
 **How Japan’s Leader Wants to Shape the Economy**\
 `Prime Minister Sanae Takaichi pushed through a record supplemental budget and is proposing tax cuts, raising questions about how the government will pay for it all.`\
 https://nytimes.com/2026/02/07/business/japan-election-sanae-takaichi-inflation.html
-
-**Kristaps Porziņģis on joining Warriors: 'I think it's a great, great opportunity'**\
-`Porziņģis said the deal came as a "surprise," but once he found out where he was going, he was excited.`\
-https://nytimes.com/athletic/7029993/2026/02/07/kristaps-porzingis-trade-warriors-hawks-nba-steph-curry/
-
-**Duke coach Jon Scheyer says staff was 'punched in the face' after UNC fans storm court**\
-`UNC beat Duke with less than a second remaining Saturday, leading to a court-storming not once, but twice.`\
-https://nytimes.com/athletic/7030200/2026/02/07/duke-coach-jon-scheyer-says-staff-was-punched-in-the-face-after-unc-fans-storm-court/
-
-**Stephon Castle joins David Robinson as only Spurs with 40-point triple-double**\
-`Castle finished with 40 points, 12 assists and 12 rebounds.`\
-https://nytimes.com/athletic/7030139/2026/02/07/stephon-castle-joins-david-robinson-as-only-spurs-with-40-point-triple-double/
-
-**Falcons' James Pearce Jr. arrested on battery charges after alleged police chase**\
-`Pearce recently appeared in San Francisco on Thursday to attend the pre-Super Bowl NFL Honors.`\
-https://nytimes.com/athletic/7030169/2026/02/07/falcons-james-pearce-arrested-battery-charges-police-chase/
-
-**At Least 50 Arrested After Protests Escalate Outside Minnesota Federal Building**\
-`The Whipple Federal Building has become both a staging ground for immigration agents and a hub for demonstrations against the crackdown in the Twin Cities.`\
-https://nytimes.com/2026/02/07/us/minneapolis-immigration-protesters-arrested-whipple-building.html
 

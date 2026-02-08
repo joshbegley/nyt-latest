@@ -1,3 +1,7 @@
+**Lakers' Rob Pelinka eyes Dodgers-esque vision for front office's future**\
+`The Lakers have what’s regarded as one of the NBA’s leanest front offices, with needs in scouting, analytics, biomechanics and other areas.`\
+https://nytimes.com/athletic/7030313/2026/02/07/lakers-rob-pelinka-dodgers-mark-walter-nba/
+
 **Mike Dunleavy on Draymond Green trade rumors: 'His name was not in conversations'**\
 `The only person who felt safe on the roster was Stephen Curry; Green knew there was a chance he might get moved.`\
 https://nytimes.com/athletic/7030240/2026/02/07/mike-dunleavy-draymond-green-trade-rumors-warriors-nba/
