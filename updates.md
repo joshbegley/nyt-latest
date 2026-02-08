@@ -1,3 +1,7 @@
+**Japan’s Leader Makes a Bold Election Bet. Here’s What to Know.**\
+`Sanae Takaichi, who has proved popular as the first woman to lead Japan as prime minister, hopes to bolster her power in a snap election. But she faces hurdles.`\
+https://nytimes.com/2026/02/07/world/asia/japan-election-takaichi-what-to-know.html
+
 **Reaction to Trump’s Racist Post Shows He Is Not Always Immune to Politics**\
 `With the midterm elections nearing, President Trump has found himself in the uncomfortable position of backtracking, even if only by degrees, at key moments.`\
 https://nytimes.com/2026/02/07/us/politics/trump-social-post-reaction.html

@@ -1,3 +1,7 @@
+**Japan’s Leader Makes a Bold Election Bet. Here’s What to Know.**\
+`Sanae Takaichi, who has proved popular as the first woman to lead Japan as prime minister, hopes to bolster her power in a snap election. But she faces hurdles.`\
+https://nytimes.com/2026/02/07/world/asia/japan-election-takaichi-what-to-know.html
+
 **Reaction to Trump’s Racist Post Shows He Is Not Always Immune to Politics**\
 `With the midterm elections nearing, President Trump has found himself in the uncomfortable position of backtracking, even if only by degrees, at key moments.`\
 https://nytimes.com/2026/02/07/us/politics/trump-social-post-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/07/arts/music/brad-arnold-three-doors-down-dead.html
 **Files Detail Epstein’s Dealings With Commerce Secretary Howard Lutnick**\
 `Mr. Lutnick had claimed to have distanced himself from Jeffrey Epstein even before the disgraced financier was convicted of a sex crime in Florida.`\
 https://nytimes.com/2026/02/07/nyregion/lutnick-epstein-files-dealings.html
-
-**Big Air, Big Tricks. How Kira Kimura Won Snowboarding Gold.**\
-`Kira Kimura clinched the top spot on the podium after landing two tricks with five and a half rotations.`\
-https://nytimes.com/interactive/2026/02/07/sports/kira-kimura-snowboarding-big-air-milan-olympics.html
 
