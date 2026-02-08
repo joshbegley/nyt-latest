@@ -1,3 +1,7 @@
+**To the sound of boos, Eddie Howe admits: "I'm not doing my job well enough"**\
+`Oldcastle Disunited are back and it is not pretty viewing. Eddie Howe is all too wary of Newcastle's many problems`\
+https://nytimes.com/athletic/7029866/2026/02/08/newcastle-united-eddie-howe-losing-boos/
+
 **The New York Times in Print for Sunday, Feb. 8, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/08/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029558/2026/02/08/cole-palmer-chelsea-hat-trick/
 **In search of the next Semenyo: How clubs are turning to non-League in the hunt for elite talent**\
 `Clubs are increasingly looking outside of English football's professional leagues to unearth hidden gems`\
 https://nytimes.com/athletic/7018122/2026/02/08/non-league-semenyo-scouting/
-
-**John Carew, Premier League striker turned Netflix star: 'I want to be a Bond villain'**\
-`The former Premier League striker is now an actor and has appeared alongside Angelina Jolie, Michelle Pfeiffer and Chiwetel Ejiofor`\
-https://nytimes.com/athletic/7026809/2026/02/08/john-carew-netflix-actor/
 
