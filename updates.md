@@ -1,3 +1,7 @@
+**What to watch on Day 2 at Winter Olympics: Lindsey Vonn, figure skating's first medals**\
+`As you wait for Super Bowl Sunday kickoff, here's what to expect from Day 2 at the Olympics.`\
+https://nytimes.com/athletic/6911673/2026/02/08/milan-cortina-winter-olympics-what-to-watch-day-2/
+
 **Ryan Reynolds and Rob Mac exclusive: 'Phil Parkinson has the job for life'**\
 `Wrexham remain in the final Championship play-off spot, which emphasises the remarkable job done by Parkinson`\
 https://nytimes.com/athletic/7026531/2026/02/08/ryan-reynolds-rob-mac-wrexham-phil-parkinson-job-for-life/
