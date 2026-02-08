@@ -1,3 +1,11 @@
+**How to watch Alabama vs. Texas A&M women's basketball: Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the Texas A&M Aggies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7031012/2026/02/08/alabama-vs-texas-a-m-stream-how-to-watch-feb-8/
+
+**Portugal Votes for President, With Leftist Set to Beat Surging Far Right**\
+`Polls predict a comfortable victory for António José Seguro, but a nationalist’s presence in the runoff showed that Portugal is not immune to Europe’s rising nationalist tide.`\
+https://nytimes.com/2026/02/08/world/europe/portugal-president-elections-chega-seguro-ventura.html
+
 **Madonna, soccer mom: Why the Queen of Pop was watching Tottenham's Under-14 girls' team**\
 `Madonna's social media post from the touchline of a Spurs academy match was eye-catching, so what was going on?`\
 https://nytimes.com/athletic/7030813/2026/02/08/madonna-twins-tottenham-academy/

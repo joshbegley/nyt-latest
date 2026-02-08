@@ -1,3 +1,11 @@
+**How to watch Alabama vs. Texas A&M women's basketball: Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the Texas A&M Aggies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7031012/2026/02/08/alabama-vs-texas-a-m-stream-how-to-watch-feb-8/
+
+**Portugal Votes for President, With Leftist Set to Beat Surging Far Right**\
+`Polls predict a comfortable victory for António José Seguro, but a nationalist’s presence in the runoff showed that Portugal is not immune to Europe’s rising nationalist tide.`\
+https://nytimes.com/2026/02/08/world/europe/portugal-president-elections-chega-seguro-ventura.html
+
 **Madonna, soccer mom: Why the Queen of Pop was watching Tottenham's Under-14 girls' team**\
 `Madonna's social media post from the touchline of a Spurs academy match was eye-catching, so what was going on?`\
 https://nytimes.com/athletic/7030813/2026/02/08/madonna-twins-tottenham-academy/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/08/world/europe/keir-starmer-chief-of-staff-resigns.
 **Ben Johnson promoting Press Taylor to Bears offensive coordinator: Sources**\
 `The Bears' offense made huge leaps this season under first-year head coach Ben Johnson. Taylor steps into the important OC role.`\
 https://nytimes.com/athletic/7030790/2026/02/08/bears-offensive-coordinator-press-taylor-ben-johnson/
-
-**Luke Kennard makes Lakers debut, vows to shoot more 3s after settling into lineup**\
-`The new Lakers guard showed his shooting touch and a willingness and ability to make the right play in his debut against the Warriors.`\
-https://nytimes.com/athletic/7030373/2026/02/08/luke-kennard-lakers-debut-three-point-shooting/
-
-**The Church of Molt**\
-`A.I. agents are creating religions. What does that mean for us?`\
-https://nytimes.com/2026/02/08/briefing/the-church-of-molt.html
 
