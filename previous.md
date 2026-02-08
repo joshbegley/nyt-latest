@@ -1,5 +1,5 @@
-**UNC beats Duke on Seth Trimble buzzer-beater as early court storming**\
-`UNC beat Duke with its first game-winning shot with less than a second left since Luke Maye’s Elite 8 dagger against Kentucky in 2017.`\
+**UNC beats Duke on Seth Trimble buzzer-beater as fans storm court early**\
+`UNC beat Duke with its first game-winning shot with less than a second left since Luke Maye's Elite 8 dagger against Kentucky in 2017.`\
 https://nytimes.com/athletic/7030100/2026/02/07/unc-duke-seth-trimble-buzzer-beater-court-storming/
 
 **Cowboys intend to use franchise tag on WR George Pickens: Source**\
