@@ -1,3 +1,19 @@
+**I won two Olympic medals in luge. What's the secret? Embrace imperfection**\
+`Brian Martin competed in two Olympics in men’s doubles luge, winning bronze in 1998 and silver in 2002.`\
+https://nytimes.com/athletic/7029333/2026/02/08/luge-olympics-medals-brian-martin/
+
+**How to watch the Super Bowl 2026 halftime show, featuring Bad Bunny**\
+`Here's what to know for Sunday, including recent halftime set lengths and start times.`\
+https://nytimes.com/athletic/7022792/2026/02/08/super-bowl-halftime-show-2026-bad-bunny/
+
+**The New York Times International Edition in Print for Monday, Feb. 9, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/02/08/todays-new-york-times-international-edition
+
+**How to watch Knicks vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030520/2026/02/08/knicks-vs-celtics-stream-how-to-watch-feb-8/
+
 **How to watch Louisville vs. Syracuse women's basketball: Time, TV, streaming**\
 `Find out how to watch the Louisville Cardinals play the Syracuse Orange, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7030509/2026/02/08/louisville-vs-syracuse-stream-how-to-watch-feb-8/
