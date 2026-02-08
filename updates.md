@@ -1,3 +1,11 @@
+**Takaichi is poised to push Japan further to the right.**\
+`By Javier C. Hernández`\
+https://nytimes.com/live/2026/02/08/world/japan-election-takaichi/takaichi-is-poised-to-push-japan-further-to-the-right
+
+**Johannes Høsflot Klaebo wins skiathlon gold, continuing dominance in men's cross-country skiing**\
+`Klaebo made a striking move on the final climb and left no question about his status as the favorite at these Games.`\
+https://nytimes.com/athletic/7030708/2026/02/08/johannes-klaebo-skiathlon-gold-winter-olympics/
+
 **Americans at the Olympics Can’t Escape the Politics at Home**\
 `Opposition to President Trump’s policies has followed the U.S. team to Italy, and athletes, coaches and American fans are facing the backlash.`\
 https://nytimes.com/2026/02/08/world/europe/winter-olympics-trump-us-politics.html

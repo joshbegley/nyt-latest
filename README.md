@@ -1,3 +1,11 @@
+**Republican Leaders Used to Camp and Hunt. Now They Golf and Meme.**\
+`Before MAGA, conservatives’ affinity for wilderness was a powerful force in American politics.`\
+https://nytimes.com/2026/02/08/opinion/republicans-hunting-wilderness-nature.html
+
+**We Are Raising Our Voices in Protest**\
+`Readers urge Americans to speak up but decry the terror tactics being used against protesters. Also: The Heritage Foundation responds to a critique.`\
+https://nytimes.com/2026/02/08/opinion/minneapolis-protests.html
+
 **Takaichi is poised to push Japan further to the right.**\
 `By Javier C. Hernández`\
 https://nytimes.com/live/2026/02/08/world/japan-election-takaichi/takaichi-is-poised-to-push-japan-further-to-the-right
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7030733/2026/02/08/ohio-state-vs-oregon-stream-how-
 **How to watch TCU vs. Colorado women's basketball: Time, TV, streaming**\
 `Find out how to watch the TCU Horned Frogs play the Colorado Buffaloes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7030730/2026/02/08/tcu-vs-colorado-stream-how-to-watch-feb-8/
-
-**How to watch LSU vs. Auburn women's basketball: Time, TV, streaming**\
-`Find out how to watch the LSU Tigers play the Auburn Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7030727/2026/02/08/lsu-vs-auburn-stream-how-to-watch-feb-8/
-
-**How to watch UCLA vs. Michigan women's basketball: Time, TV, streaming**\
-`Find out how to watch the UCLA Bruins play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7030725/2026/02/08/ucla-vs-michigan-stream-how-to-watch-feb-8/
 
