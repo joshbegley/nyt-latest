@@ -1,3 +1,11 @@
+**How to watch Rescue Bowl 2026: Start time, TV channel and streaming info**\
+`Dozens of adoptable dogs and cats will take the field on Super Bowl Sunday in the Rescue Bowl, once known as the Kitten Bowl.`\
+https://nytimes.com/athletic/7025788/2026/02/08/how-to-watch-kitten-bowl-rescue-2026-tv-channel/
+
+**Lindsey Vonn crashes in Olympic women's downhill attempt on torn ACL**\
+`Vonn crashed during Sunday’s Olympic women’s downhill. Her status is unclear. `\
+https://nytimes.com/athletic/7030495/2026/02/08/lindsey-vonn-winter-olympics-downhill-crash-torn-acl/
+
 **How to watch Puppy Bowl 2026: Streaming, format and dogs to know**\
 `The 22nd edition of the Puppy Bowl features 150 adoptable dogs playing for a shot at the Lombarky Trophy.`\
 https://nytimes.com/athletic/7016839/2026/02/08/how-to-watch-puppy-bowl-2026-tv-channel/
