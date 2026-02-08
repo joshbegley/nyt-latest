@@ -1,3 +1,7 @@
+**'We just can’t stop’: Inside Auburn's rivalry prep and start to the Steven Pearl era**\
+`Bruce Pearl made Auburn basketball nationally relevant. Can his son, Steven, keep the momentum going? `\
+https://nytimes.com/athletic/7029249/2026/02/07/auburn-alabama-basketball-steven-pearl/
+
 **Mackenzie Hughes 'didn't lose much sleep' over fan yelling in backswing**\
 `The "Happy Gilmore"-inspired incident was the result of internet personality Jack Doherty paying a fan $100 to yell.`\
 https://nytimes.com/athletic/7029892/2026/02/07/jack-doherty-wmopen-mackenzie-hughes-backswing/
