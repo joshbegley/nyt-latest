@@ -1,3 +1,7 @@
+**Wizards GM Will Dawkins anticipates Anthony Davis playing again this season**\
+`Dawkins said he anticipates Anthony Davis making his debut before the end of this season after a doctor visit. `\
+https://nytimes.com/athletic/7031230/2026/02/08/wizards-anthony-davis-will-dawkins/
+
 **Lindsey Vonn has always gone all-in, and these Olympics were no different**\
 `​​"I have always pushed the limits," Vonn said this week. She was always going to do it again on Sunday, risks be damned.`\
 https://nytimes.com/athletic/7031150/2026/02/08/lindsey-vonn-winter-olympics-crash-cortina/
