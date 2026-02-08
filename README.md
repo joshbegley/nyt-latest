@@ -2,7 +2,7 @@
 `Plus: Florida wins a battle for the top of the SEC — and here comes Kentucky.`\
 https://nytimes.com/athletic/7030614/2026/02/08/college-basketball-scores-results-takeaways-unc-michigan-state-houston/
 
-**Breezy Johnson’s celebration is muted by Vonn’s crash.**\
+**Breezy Johnson’s celebration is muted by Lindsey Vonn’s crash.**\
 `Johnson won her first Olympic gold medal after her teammate Vonn crashed early in her run. `\
 https://nytimes.com/2026/02/08/world/breezy-johnson-downhill.html
 
