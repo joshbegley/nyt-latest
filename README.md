@@ -1,3 +1,11 @@
+**How to watch Washington vs. Wisconsin women's basketball: Time, TV, streaming**\
+`Find out how to watch the Washington Huskies play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030720/2026/02/08/washington-vs-wisconsin-stream-how-to-watch-feb-8/
+
+**How to watch SMU vs. Duke women's basketball: Time, TV, streaming**\
+`Find out how to watch the SMU Mustangs play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030718/2026/02/08/smu-vs-duke-stream-how-to-watch-feb-8/
+
 **Why won't Bad Bunny get paid to perform at the Super Bowl?**\
 `The performer will actually get union scale, which is about $1,000 a day. He'll also receive a priceless amount of exposure.`\
 https://nytimes.com/athletic/7027186/2026/02/08/bad-bunny-halftime-super-bowl-pay/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7030597/2026/02/08/breezy-johnson-winter-olympics-d
 **Heavy Snow Disrupts Japan Election, Forcing Polling Stations to Close Early**\
 `The government said that about 40 percent of all polling stations closed earlier than planned because of heavy snow on Sunday.`\
 https://nytimes.com/2026/02/08/world/asia/japan-heavy-snow-polling-stations.html
-
-**How to watch U.S. figure skating team compete for gold in 2026 Winter Olympics**\
-`The first Olympic medals for figure skating will be awarded Sunday in the team event.`\
-https://nytimes.com/athletic/7028152/2026/02/08/usa-figure-skating-winter-olympics-how-to-watch-2026/
-
-**A Movie About America Broke My Heart**\
-`I am not a Shaker. That didn’t stop me from tearing up at “The Testament of Ann Lee.”`\
-https://nytimes.com/2026/02/08/opinion/shakers-quakers-testament-ann-lee.html
 
