@@ -1,3 +1,11 @@
+**Bad Bunny’s Sign Language Interpreter Will Make Super Bowl History, Too**\
+`Puerto Rican Sign Language is not the same as American Sign Language. Celimar Rivera Cosme will uniquely capture the rapper’s slang for the game’s deaf viewers.`\
+https://nytimes.com/2026/02/08/arts/music/super-bowl-halftime-sign-language.html
+
+**Rockets' Şengün to replace injured Shai Gilgeous-Alexander in NBA All-Star Game**\
+`Şengün will join "Team World" under the All-Star Game's new USA vs. the World format.`\
+https://nytimes.com/athletic/7031086/2026/02/08/alperen-sengun-nba-all-star-rockets/
+
 **7 Days, No Suspects: The Disappearance of Nancy Guthrie**\
 `The mother of the “Today” show host Savannah Guthrie has not been heard from since an evening of dinner and games with family members.`\
 https://nytimes.com/2026/02/08/us/7-days-no-suspects-the-disappearance-of-nancy-guthrie.html
