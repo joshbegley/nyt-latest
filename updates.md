@@ -1,3 +1,11 @@
+**Ben Johnson promoting Press Taylor to Bears offensive coordinator: Sources**\
+`The Bears' offense made huge leaps this season under first-year head coach Ben Johnson. Taylor steps into the important OC role.`\
+https://nytimes.com/athletic/7030790/2026/02/08/bears-offensive-coordinator-press-taylor-ben-johnson/
+
+**MAGA Elites Are Indoor Cats**\
+`Before MAGA, conservatives’ affinity for wilderness was a powerful force in American politics.`\
+https://nytimes.com/2026/02/08/opinion/republicans-hunting-wilderness-nature.html
+
 **Luke Kennard makes Lakers debut, vows to shoot more 3s after settling into lineup**\
 `The new Lakers guard showed his shooting touch and a willingness and ability to make the right play in his debut against the Warriors.`\
 https://nytimes.com/athletic/7030373/2026/02/08/luke-kennard-lakers-debut-three-point-shooting/
