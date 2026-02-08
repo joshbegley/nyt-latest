@@ -1,3 +1,7 @@
+**Paul Thomas Anderson Wins Directors Guild Award for ‘One Battle After Another’**\
+`The filmmaker beat out Ryan Coogler, Guillermo del Toro, Josh Safdie and Chloé Zhao. The prize is a strong predictor of the Oscars.`\
+https://nytimes.com/2026/02/08/movies/paul-thomas-anderson-directors-guild-of-america-dga-one-battle-after-another.html
+
 **What to watch on Day 2 at Winter Olympics: Lindsey Vonn, figure skating's first medals**\
 `As you wait for Super Bowl Sunday kickoff, here's what to expect from Day 2 at the Olympics.`\
 https://nytimes.com/athletic/6911673/2026/02/08/milan-cortina-winter-olympics-what-to-watch-day-2/
