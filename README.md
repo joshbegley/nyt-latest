@@ -1,3 +1,7 @@
+**'We just can’t stop’: Inside Auburn's rivalry prep and start to the Steven Pearl era**\
+`Bruce Pearl made Auburn basketball nationally relevant. Can his son, Steven, keep the momentum going? `\
+https://nytimes.com/athletic/7029249/2026/02/07/auburn-alabama-basketball-steven-pearl/
+
 **Mackenzie Hughes 'didn't lose much sleep' over fan yelling in backswing**\
 `The "Happy Gilmore"-inspired incident was the result of internet personality Jack Doherty paying a fan $100 to yell.`\
 https://nytimes.com/athletic/7029892/2026/02/07/jack-doherty-wmopen-mackenzie-hughes-backswing/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/07/crosswords/daily-puzzle-2026-02-08.html
 **Washington Post C.E.O. Will Lewis Steps Down After Stormy Tenure**\
 `His departure came days after the company cut 30 percent of the staff. He will be replaced in the interim by Jeff D’Onofrio, the chief financial officer, the company said.`\
 https://nytimes.com/2026/02/07/technology/washington-post-will-lewis.html
-
-**Athletes and Protesters Criticize U.S. Policies at Winter Games in Milan**\
-`Displays of anti-U.S. sentiment have turned up at the Milan Winter Games. Vice President JD Vance was booed at the Olympics opening ceremony, and anti-ICE protesters took to the streets to demonstrate.`\
-https://nytimes.com/video/world/100000010697078/olympics-milan-italy-protests-ice.html
 

@@ -1,3 +1,7 @@
+**Mackenzie Hughes 'didn't lose much sleep' over fan yelling in backswing**\
+`The "Happy Gilmore"-inspired incident was the result of internet personality Jack Doherty paying a fan $100 to yell.`\
+https://nytimes.com/athletic/7029892/2026/02/07/jack-doherty-wmopen-mackenzie-hughes-backswing/
+
 **Savannah Guthrie, in New Video Message, Promises to Pay for Return of Her Mother**\
 `The “Today” show anchor, in a message on social media with her siblings, said the return of their mother Nancy “is the only way we will have peace.”`\
 https://nytimes.com/2026/02/07/us/savannah-guthrie-nancy-guthrie-video-message.html
