@@ -1,3 +1,11 @@
+**Why won't Bad Bunny get paid to perform at the Super Bowl?**\
+`The performer will actually get union scale, which is about $1,000 a day. He'll also receive a priceless amount of exposure.`\
+https://nytimes.com/athletic/7027186/2026/02/08/bad-bunny-halftime-super-bowl-pay/
+
+**Lowetide: Oilers prospect Damien Carfagna appears close to NHL-ready**\
+`Carfagna is among the top-performing defencemen for the Bakersfield Condors, and he could be an NHL recall in 2026.`\
+https://nytimes.com/athletic/7029417/2026/02/08/edmonton-oilers-prospect-damien-carfagna-nhl/
+
 **College basketball observations: Saturday's big winners and NCAA Tournament bubble impact**\
 `Plus: Florida wins a battle for the top of the SEC — and here comes Kentucky.`\
 https://nytimes.com/athletic/7030614/2026/02/08/college-basketball-scores-results-takeaways-unc-michigan-state-houston/
