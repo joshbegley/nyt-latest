@@ -1,3 +1,11 @@
+**Americans at the Olympics Can’t Escape the Politics at Home**\
+`Opposition to President Trump’s policies has followed the U.S. team to Italy, and athletes, coaches and American fans are facing the backlash.`\
+https://nytimes.com/2026/02/08/world/europe/winter-olympics-trump-us-politics.html
+
+**How to watch Heat vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030745/2026/02/08/heat-vs-wizards-stream-how-to-watch-feb-8/
+
 **How to watch Clippers vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7030742/2026/02/08/clippers-vs-timberwolves-stream-how-to-watch-feb-8/

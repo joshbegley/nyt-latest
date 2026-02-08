@@ -1,3 +1,11 @@
+**Americans at the Olympics Can’t Escape the Politics at Home**\
+`Opposition to President Trump’s policies has followed the U.S. team to Italy, and athletes, coaches and American fans are facing the backlash.`\
+https://nytimes.com/2026/02/08/world/europe/winter-olympics-trump-us-politics.html
+
+**How to watch Heat vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030745/2026/02/08/heat-vs-wizards-stream-how-to-watch-feb-8/
+
 **How to watch Clippers vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7030742/2026/02/08/clippers-vs-timberwolves-stream-how-to-watch-feb-8/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7030723/2026/02/08/tennessee-vs-south-carolina-stre
 **Two-time champions England survive huge Nepal scare in T20 World Cup thriller**\
 `Cricketing minnows push England all the way before Sam Curran secures victory with superb last over`\
 https://nytimes.com/athletic/7030694/2026/02/08/t20-world-cup-nepal-england/
-
-**How to watch Washington vs. Wisconsin women's basketball: Time, TV, streaming**\
-`Find out how to watch the Washington Huskies play the Wisconsin Badgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7030720/2026/02/08/washington-vs-wisconsin-stream-how-to-watch-feb-8/
-
-**How to watch SMU vs. Duke women's basketball: Time, TV, streaming**\
-`Find out how to watch the SMU Mustangs play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7030718/2026/02/08/smu-vs-duke-stream-how-to-watch-feb-8/
 
