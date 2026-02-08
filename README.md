@@ -1,3 +1,7 @@
+**Carlsen beats Firouzja to win SCC for fifth in the time in a row**\
+`Carlsen banked $25,000 plus an additional split based on winning percentage by beating Alireza Firouzja. `\
+https://nytimes.com/athletic/7031577/2026/02/08/magnus-carlsen-wins-scc-chess-london/
+
 **Trump calls Olympian ‘a real loser’ over comments on representing U.S.**\
 `President Trump responds to Hunter Hess' comments on representing the U.S. at the Winter Olympics. `\
 https://nytimes.com/athletic/7031234/2026/02/08/president-trump-hunter-hess-2026-winter-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/08/business/bad-bunny-super-bowl-nfl.html
 **On the Brink of a New Arms Race**\
 `For the first time in decades, the U.S. and Russia no longer have a nuclear arms control agreement.`\
 https://nytimes.com/2026/02/08/world/nuclear-arms-control-japan-election.html
-
-**Damian Lillard a surprise addition to 3-point contest at NBA All-Star Weekend**\
-`The NBA announced that the Trail Blazers star will participate despite not playing at all this season after tearing an Achilles. `\
-https://nytimes.com/athletic/7031428/2026/02/08/damian-lillard-3-point-contest-2026-nba/
 
