@@ -1,3 +1,7 @@
+**Breezy Johnson wins gold in women's downhill, first U.S. medal of Olympics**\
+`Breezy Johnson became the first American since Lindsey Vonn in 2010 to win gold in the Olympic women's downhill.`\
+https://nytimes.com/athletic/7030597/2026/02/08/breezy-johnson-winter-olympics-downhill-gold-lindsey-vonn/
+
 **Heavy Snow Disrupts Japan Election, Forcing Polling Stations to Close Early**\
 `The government said that about 40 percent of all polling stations closed earlier than planned because of heavy snow on Sunday.`\
 https://nytimes.com/2026/02/08/world/asia/japan-heavy-snow-polling-stations.html

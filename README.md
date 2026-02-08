@@ -1,3 +1,7 @@
+**Talk to Your Parents**\
+`Today, some advice on having conversations with aging parents about their health.`\
+https://nytimes.com/2026/02/08/briefing/talk-to-your-parents.html
+
 **Breezy Johnson wins gold in women's downhill, first U.S. medal of Olympics**\
 `Breezy Johnson became the first American since Lindsey Vonn in 2010 to win gold in the Olympic women's downhill.`\
 https://nytimes.com/athletic/7030597/2026/02/08/breezy-johnson-winter-olympics-downhill-gold-lindsey-vonn/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7030081/2026/02/08/super-bowl-2026-national-anthem-
 **Five Cubs players in the spotlight with spring training about to start**\
 `The organization has clear expectations for October baseball at Wrigley Field, a time and place where seemingly anything can happen.`\
 https://nytimes.com/athletic/7028045/2026/02/08/chicago-cubs-spring-training-spotlight/
-
-**How to watch Rescue Bowl 2026: Start time, TV channel and streaming info**\
-`Dozens of adoptable dogs and cats will take the field on Super Bowl Sunday in the Rescue Bowl, once known as the Kitten Bowl.`\
-https://nytimes.com/athletic/7025788/2026/02/08/how-to-watch-kitten-bowl-rescue-2026-tv-channel/
 
