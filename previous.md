@@ -1,3 +1,19 @@
+**Damian Lillard surprise addition to 3-point contest at NBA All-Star Weekend**\
+`The NBA announced that the Trail Blazers star will participate despite not playing at all this season after tearing an Achilles. `\
+https://nytimes.com/athletic/7031428/2026/02/08/damian-lillard-3-point-contest-2026-nba/
+
+**Mark Marquess, Who Made Stanford a Baseball Powerhouse, Dies at 78**\
+`Over 41 seasons as head coach, he won two national titles and sent more than 200 players to the major leagues, including Mike Mussina and Jack McDowell.`\
+https://nytimes.com/2026/02/08/obituaries/mark-marquess-dead.html
+
+**See How Breezy Johnson Won Downhill Gold by 0.04 Seconds**\
+`Breezy Johnson of the United States beat Emma Aicher of Germany by a split-second after her teammate Lindsey Vonn crashed early in her run.`\
+https://nytimes.com/interactive/2026/02/08/sports/breezy-johnson-womens-downhill-ski-winter-olympics.html
+
+**Astros, Cardinals, Red Sox discussed trade involving Isaac Paredes, Brendan Donovan: Sources**\
+`The Astros coveted Donovan, who ultimately ended up going to the team that broke Houston's streak of AL West titles.`\
+https://nytimes.com/athletic/7031423/2026/02/08/trade-talks-isaac-paredes-brendan-donovan-astros-red-sox-cardinals/
+
 **Wizards GM Will Dawkins anticipates Anthony Davis playing again this season**\
 `Dawkins said he anticipates Anthony Davis making his debut before the end of this season after a doctor visit. `\
 https://nytimes.com/athletic/7031230/2026/02/08/wizards-anthony-davis-will-dawkins/
@@ -21,20 +37,4 @@ https://nytimes.com/video/us/100000010698061/savannah-guthrie-mother-nancy-kidna
 **Big 12 fines Oklahoma State $50K for anti-Mormon chants during BYU game**\
 `An Oklahoma State investigation determined the chant was directed at officials and the “reference to religion did not meet our standards.”`\
 https://nytimes.com/athletic/7031284/2026/02/08/oklahoma-state-byu-anti-mormon-chants-big-12-fine/
-
-**Charlie McAvoy's Olympic diary: On the opening ceremony, his jaw and, yes, his tweet**\
-`From dealing with a swollen face to preparing for Thursday's game, McAvoy chronicles his time with Team USA for The Athletic.`\
-https://nytimes.com/athletic/7031283/2026/02/08/charlie-mcavoy-olympics-hockey-jaw-tweet/
-
-**4 Dead in Mushroom Poisoning Outbreak in California**\
-`State health officials discouraged foraging this year, saying that toxic mushrooms can easily be confused with safe ones to eat.`\
-https://nytimes.com/2026/02/08/us/california-mushrooms-deaths.html
-
-**Celtics' Jayson Tatum progresses to 5-on-5 workouts: Source**\
-`Celtics general manager Brad Stevens said Friday that the team will not pressure Tatum one way or another about returning this season.`\
-https://nytimes.com/athletic/7031244/2026/02/08/celtics-jayson-tatum-injury-update/
-
-**Israeli bobsled team loses passports and 'thousands of dollars' in robbery before Milan Cortina Olympics**\
-`The robbery occurred in the Czech Republic, where the team is training before heading to Italy, according to the New York Post.`\
-https://nytimes.com/athletic/7030968/2026/02/08/israeli-bobsled-robbed-milan-cortina-olympics/
 
