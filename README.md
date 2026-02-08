@@ -1,3 +1,11 @@
+**Is Bruno Fernandes the best player in the Premier League right now?**\
+`The Manchester United captain is revelling in the freedom he has been granted by Michael Carrick `\
+https://nytimes.com/athletic/7029692/2026/02/08/bruno-fernandes-man-united-michael-carrick/
+
+**Viktor Gyokeres and the importance of confidence**\
+`The Sweden striker has eight goal contributions in as many games in all competitions — and he is finding his place in Arteta's squad`\
+https://nytimes.com/athletic/7029570/2026/02/08/arsenal-viktor-gyokeres-sunderland/
+
 **Matt Ryan talks Super Bowl quarterbacks on the latest episode of 'The Athletic Show'**\
 `Ryan joins Sunday's show to break down Super Bowl LX and the expectations for next season after a winter of change across the league.`\
 https://nytimes.com/athletic/7028223/2026/02/08/matt-ryan-the-athletic-show-super-bowl-quarterbacks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7030240/2026/02/07/mike-dunleavy-draymond-green-tra
 **Buzz growing in Charlotte: Hornets win ninth straight, close gap on Hawks**\
 `Charlotte (25-28) is now just half a game behind Atlanta for ninth place in the East.`\
 https://nytimes.com/athletic/7030182/2026/02/07/hornets-win-streak-nba-stats-lamelo-ball-kon-knueppel/
-
-**Mike Ditka's Super Bowl 20 sweater-vest sells for $183,000**\
-`The Bears sweater-vest became a lasting symbol of a dominant team.`\
-https://nytimes.com/athletic/7029684/2026/02/07/mike-ditka-bears-super-bowl-xx-sweater-vest/
-
-**How Japan’s Leader Wants to Shape the Economy**\
-`Prime Minister Sanae Takaichi pushed through a record supplemental budget and is proposing tax cuts, raising questions about how the government will pay for it all.`\
-https://nytimes.com/2026/02/07/business/japan-election-sanae-takaichi-inflation.html
 
