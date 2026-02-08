@@ -1,3 +1,7 @@
+**Seeking Stability, Thai Voters Decisively Reject Progressive Party**\
+`It was the first time in years that a conservative party preaching nationalism, patriotism and respect for the monarchy came out on top.`\
+https://nytimes.com/2026/02/08/world/asia/thailand-election-opposition-conservatives.html
+
 **Bad Bunny’s Sign Language Interpreter Will Make Super Bowl History, Too**\
 `Puerto Rican Sign Language is not the same as American Sign Language. Celimar Rivera Cosme will uniquely capture the rapper’s slang for the game’s deaf viewers.`\
 https://nytimes.com/2026/02/08/arts/music/super-bowl-halftime-sign-language.html
