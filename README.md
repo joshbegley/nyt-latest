@@ -1,3 +1,11 @@
+**What we saw as Team USA took the ice for first men's Olympic hockey practice**\
+`Coach Mike Sullivan said foward lines and defense pairings are still a work in progress on Sunday as his team practice in Milan.`\
+https://nytimes.com/athletic/7031377/2026/02/08/team-usa-olympics-mens-hockey-first-practice/
+
+**Michael Bay sues Cadillac F1 for $1.5 Million, claims Super Bowl ad stole his ideas**\
+`Cadillac will unveil its debut F1 livery through a Super Bowl ad on Feb. 8. `\
+https://nytimes.com/athletic/7031409/2026/02/08/michael-bay-lawsuit-cadillac-f1-super-bowl-ad/
+
 **Why the N.F.L. Booked Bad Bunny for the Super Bowl**\
 `League executives may be nervous about the Latin superstar’s outspoken stance on immigration, but their priority is attracting popular halftime performers.`\
 https://nytimes.com/2026/02/08/business/bad-bunny-super-bowl-nfl.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7031230/2026/02/08/wizards-anthony-davis-will-dawki
 **Lindsey Vonn has always gone all-in, and these Olympics were no different**\
 `​​"I have always pushed the limits," Vonn said this week. She was always going to do it again on Sunday, risks be damned.`\
 https://nytimes.com/athletic/7031150/2026/02/08/lindsey-vonn-winter-olympics-crash-cortina/
-
-**Iranian Nobel Laureate Gets Second Prison Sentence and Ends Hunger Strike**\
-`The activist Narges Mohammadi was sentenced to another seven years, bringing the total she must serve to 17 years, her foundation said.`\
-https://nytimes.com/2026/02/08/world/middleeast/iran-narges-mohammadi-second-sentence.html
-
-**How millions of Americans experienced Vonn’s heart-wrenching crash – after they woke up**\
-`The 41-year-old's bid to reclaim the downhill gold came to an end in dramatic circumstances… all while most of her compatriots were in bed`\
-https://nytimes.com/athletic/7031282/2026/02/08/lindsey-vonn-crash-winter-olympics/
 

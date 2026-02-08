@@ -1,3 +1,7 @@
+**Damian Lillard a surprise addition to 3-point contest at NBA All-Star Weekend**\
+`The NBA announced that the Trail Blazers star will participate despite not playing at all this season after tearing an Achilles. `\
+https://nytimes.com/athletic/7031428/2026/02/08/damian-lillard-3-point-contest-2026-nba/
+
 **Why the N.F.L. Booked Bad Bunny for the Super Bowl**\
 `League executives may be nervous about the Latin superstar’s outspoken stance on immigration, but their priority is attracting popular halftime performers.`\
 https://nytimes.com/2026/02/08/business/bad-bunny-super-bowl-nfl.html
