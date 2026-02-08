@@ -1,3 +1,7 @@
+**Mike Ditka's Super Bowl 20 sweater vest sells for $183,000**\
+`The Bears sweater vest became a lasting symbol of a dominant team.`\
+https://nytimes.com/athletic/7029684/2026/02/07/mike-ditka-bears-super-bowl-xx-sweater-vest/
+
 **How Japan’s Leader Wants to Shape the Economy**\
 `Prime Minister Sanae Takaichi pushed through a record supplemental budget and is proposing tax cuts, raising questions about how the government will pay for it all.`\
 https://nytimes.com/2026/02/07/business/japan-election-sanae-takaichi-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7030105/2026/02/07/cowboys-franchise-tag-george-pic
 **Best of 2026 Olympics Day 1: Speed skater celebrates gold with son, 'Quad God' has mixed day**\
 `There were several big performances as athletes won the first medals of the 2026 Milan Cortina Winter Olympics on Saturday.`\
 https://nytimes.com/athletic/7029781/2026/02/07/winter-olympics-2026-day-1-best-moments-francesca-lollobrigida/
-
-**Alperen Şengün apologizes for making sexist comments to female referee**\
-`In his first comments about the incident, Şengün called his actions “immature” and something he hopes to learn from.`\
-https://nytimes.com/athletic/7030103/2026/02/07/alperen-sengun-apologizes-sexist-comment-rockets-nba/
 
