@@ -1,3 +1,7 @@
+**Ben Johnson promoting Press Taylor to Bears offensive coordinator: Sources**\
+`The Bears' offense made huge leaps this season under first-year head coach Ben Johnson. Taylor steps into the important OC role.`\
+https://nytimes.com/athletic/7030790/2026/02/08/bears-offensive-coordinator-press-taylor-ben-johnson/
+
 **Luke Kennard makes Lakers debut, vows to shoot more 3s after settling into lineup**\
 `The new Lakers guard showed his shooting touch and a willingness and ability to make the right play in his debut against the Warriors.`\
 https://nytimes.com/athletic/7030373/2026/02/08/luke-kennard-lakers-debut-three-point-shooting/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/08/world/europe/winter-olympics-trump-us-politics.ht
 **How to watch Heat vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Miami Heat play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7030745/2026/02/08/heat-vs-wizards-stream-how-to-watch-feb-8/
-
-**How to watch Clippers vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7030742/2026/02/08/clippers-vs-timberwolves-stream-how-to-watch-feb-8/
 
