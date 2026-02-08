@@ -1,3 +1,11 @@
+**College basketball observations: Saturday's big winners and NCAA Tournament bubble impact**\
+`Plus: Florida wins a battle for the top of the SEC — and here comes Kentucky.`\
+https://nytimes.com/athletic/7030614/2026/02/08/college-basketball-scores-results-takeaways-unc-michigan-state-houston/
+
+**Breezy Johnson’s celebration is muted by Lindsey Vonn’s crash.**\
+`Johnson won her first Olympic gold medal after her teammate Vonn crashed early in her run. `\
+https://nytimes.com/2026/02/08/world/breezy-johnson-downhill.html
+
 **The Pulse: Bad Bunny, big money**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7030368/2026/02/08/bad-bunny-means-big-money-plus-lindsey-vonn-crashes/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/08/opinion/trump-nixon-watergate-radford.html
 **What's on after Super Bowl LX? Winter Olympic schedule, events following the big game**\
 `Mike Tirico makes history, and high-stakes sports keep on coming. Here's what's airing right after Super Bowl 60.`\
 https://nytimes.com/athletic/7028139/2026/02/08/super-bowl-2026-winter-olympics-post-game/
-
-**It’s the A.I. Economy, Stupid**\
-`The Democratic Party needs to prepare for the coming tech revolution.`\
-https://nytimes.com/2026/02/08/opinion/ai-democrats-jobs-economy.html
-
-**How to watch the Super Bowl national anthem and other pregame festivities**\
-`The buildup to Super Bowl LX features Green Day, Alcatraz Island, the most-watched national anthem and much more. `\
-https://nytimes.com/athletic/7030081/2026/02/08/super-bowl-2026-national-anthem-charlie-puth-green-day/
 

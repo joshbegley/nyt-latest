@@ -1,3 +1,11 @@
+**Why won't Bad Bunny get paid to perform at the Super Bowl?**\
+`The performer will actually get union scale, which is about $1,000 a day. He'll also receive a priceless amount of exposure.`\
+https://nytimes.com/athletic/7027186/2026/02/08/bad-bunny-halftime-super-bowl-pay/
+
+**Lowetide: Oilers prospect Damien Carfagna appears close to NHL-ready**\
+`Carfagna is among the top-performing defencemen for the Bakersfield Condors, and he could be an NHL recall in 2026.`\
+https://nytimes.com/athletic/7029417/2026/02/08/edmonton-oilers-prospect-damien-carfagna-nhl/
+
 **College basketball observations: Saturday's big winners and NCAA Tournament bubble impact**\
 `Plus: Florida wins a battle for the top of the SEC — and here comes Kentucky.`\
 https://nytimes.com/athletic/7030614/2026/02/08/college-basketball-scores-results-takeaways-unc-michigan-state-houston/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7028152/2026/02/08/usa-figure-skating-winter-olympi
 **A Movie About America Broke My Heart**\
 `I am not a Shaker. That didn’t stop me from tearing up at “The Testament of Ann Lee.”`\
 https://nytimes.com/2026/02/08/opinion/shakers-quakers-testament-ann-lee.html
-
-**The Secret History of the Deep State**\
-`Seven pages of grand jury testimony from Richard Nixon were deemed so incendiary that they were hidden from the public for years.`\
-https://nytimes.com/2026/02/08/opinion/trump-nixon-watergate-radford.html
-
-**What's on after Super Bowl LX? Winter Olympic schedule, events following the big game**\
-`Mike Tirico makes history, and high-stakes sports keep on coming. Here's what's airing right after Super Bowl 60.`\
-https://nytimes.com/athletic/7028139/2026/02/08/super-bowl-2026-winter-olympics-post-game/
 

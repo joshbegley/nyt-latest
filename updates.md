@@ -1,3 +1,11 @@
+**College basketball observations: Saturday's big winners and NCAA Tournament bubble impact**\
+`Plus: Florida wins a battle for the top of the SEC — and here comes Kentucky.`\
+https://nytimes.com/athletic/7030614/2026/02/08/college-basketball-scores-results-takeaways-unc-michigan-state-houston/
+
+**Breezy Johnson’s celebration is muted by Lindsey Vonn’s crash.**\
+`Johnson won her first Olympic gold medal after her teammate Vonn crashed early in her run. `\
+https://nytimes.com/2026/02/08/world/breezy-johnson-downhill.html
+
 **The Pulse: Bad Bunny, big money**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7030368/2026/02/08/bad-bunny-means-big-money-plus-lindsey-vonn-crashes/
