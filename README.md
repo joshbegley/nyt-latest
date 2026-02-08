@@ -1,3 +1,7 @@
+**Israeli bobsled team loses passports and 'thousands of dollars' in robbery before Milan Cortina Olympics**\
+`The robbery occurred in the Czech Republic, where the team is training before heading to Italy, according to the New York Post.`\
+https://nytimes.com/athletic/7030968/2026/02/08/israeli-bobsled-robbed-milan-cortina-olympics/
+
 **The Briefing: Liverpool 1 Man City 2 - Where does this leave the title race? Was the late red card right?**\
 `Our writers break down the action from a dramatic finish in the Premier League at Anfield`\
 https://nytimes.com/athletic/7026767/2026/02/08/liverpool-man-city-premier-league-szoboszlai/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/08/weather/extreme-cold-wind-chills.html
 **Games Briefing: U.S. triumph and heartbreak in downhill**\
 `Welcome to the Games Briefing, The Athletic's newsletter for the Milan Cortina Olympics. `\
 https://nytimes.com/athletic/7030948/2026/02/08/breezy-johnson-lindsey-vonn-olympics-games-briefing/
-
-**Talks on Immigration Enforcement Limits Still Stuck With Deadline Nearing**\
-`Democrats’ demands include that immigration officers be required to show visible identification and have judicial warrants when they enter private property to make arrests.`\
-https://nytimes.com/2026/02/08/us/politics/dhs-funding-immigration-shutdown.html
 
