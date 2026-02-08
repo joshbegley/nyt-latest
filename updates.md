@@ -1,3 +1,19 @@
+**How to watch Clippers vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030742/2026/02/08/clippers-vs-timberwolves-stream-how-to-watch-feb-8/
+
+**How to watch Pacers vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030740/2026/02/08/pacers-vs-raptors-stream-how-to-watch-feb-8/
+
+**How to watch Ohio State vs. Oregon women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030733/2026/02/08/ohio-state-vs-oregon-stream-how-to-watch-feb-8/
+
+**Two-time champions England survive huge Nepal scare in T20 World Cup thriller**\
+`Cricketing minnows push England all the way before Sam Curran secures victory with superb last over`\
+https://nytimes.com/athletic/7030694/2026/02/08/t20-world-cup-nepal-england/
+
 **How to watch TCU vs. Colorado women's basketball: Time, TV, streaming**\
 `Find out how to watch the TCU Horned Frogs play the Colorado Buffaloes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7030730/2026/02/08/tcu-vs-colorado-stream-how-to-watch-feb-8/
