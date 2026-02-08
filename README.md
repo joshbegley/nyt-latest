@@ -1,3 +1,7 @@
+**Arsenal's Gyokeres says he has room for improvement**\
+`The Sweden international has scored six times in his last eight appearances but said he is not the complete player.`\
+https://nytimes.com/athletic/7029636/2026/02/08/viktor-gyokeres-arsenal-goals-improvement/
+
 **Japan’s Leader Wins in a Landslide, Clearing Way for Hard-Line Agenda**\
 `Prime Minister Sanae Takaichi won a sweeping mandate from voters for her economic agenda and tough stances on immigration and China.`\
 https://nytimes.com/2026/02/08/world/asia/japan-takaichi-election-landslide.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7030679/2026/02/08/lindsey-vonn-crash-olympics-down
 **Canada names Sidney Crosby captain of Olympic men's hockey team**\
 `It's the fourth straight best-on-best men's tournament at which Crosby has captained Team Canada, and they've won the previous three.`\
 https://nytimes.com/athletic/6943623/2026/02/08/sidney-crosby-canada-captain-olympics/
-
-**Kid Rock headlines Turning Point USA's Super Bowl halftime show**\
-`Turning Point USA had previously announced plans for a show after the NFL chose Bad Bunny as its halftime performer.`\
-https://nytimes.com/athletic/7016481/2026/02/08/turning-point-usa-super-bowl-kid-rock-halftime/
 
