@@ -1,3 +1,11 @@
+**How to watch Washington vs. Wisconsin women's basketball: Time, TV, streaming**\
+`Find out how to watch the Washington Huskies play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030720/2026/02/08/washington-vs-wisconsin-stream-how-to-watch-feb-8/
+
+**How to watch SMU vs. Duke women's basketball: Time, TV, streaming**\
+`Find out how to watch the SMU Mustangs play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7030718/2026/02/08/smu-vs-duke-stream-how-to-watch-feb-8/
+
 **Why won't Bad Bunny get paid to perform at the Super Bowl?**\
 `The performer will actually get union scale, which is about $1,000 a day. He'll also receive a priceless amount of exposure.`\
 https://nytimes.com/athletic/7027186/2026/02/08/bad-bunny-halftime-super-bowl-pay/
