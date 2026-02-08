@@ -1,3 +1,11 @@
+**How Team U.S.A held off Japan to win gold.**\
+`And summary goes here`\
+https://nytimes.com/2026/02/08/world/how-the-american-skaters-held-off-japan-to-win-team-gold.html
+
+**Carlsen beats Firouzja to win fifth Speed Chess Championship**\
+`Carlsen banked $25,000 plus an additional split based on winning percentage by beating Alireza Firouzja. `\
+https://nytimes.com/athletic/7031577/2026/02/08/magnus-carlsen-wins-scc-chess-london/
+
 **How the American skaters held off Japan to win team gold.**\
 `And summary goes here`\
 https://nytimes.com/live/2026/02/07/world/olympics-italy-photos/how-the-american-skaters-held-off-japan-to-win-team-gold
