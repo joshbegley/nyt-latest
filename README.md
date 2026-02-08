@@ -6,7 +6,7 @@ https://nytimes.com/2026/02/08/business/bad-bunny-super-bowl-nfl.html
 `For the first time in decades, the U.S. and Russia no longer have a nuclear arms control agreement.`\
 https://nytimes.com/2026/02/08/world/nuclear-arms-control-japan-election.html
 
-**Damian Lillard surprise addition to 3-point contest at NBA All-Star Weekend**\
+**Damian Lillard a surprise addition to 3-point contest at NBA All-Star Weekend**\
 `The NBA announced that the Trail Blazers star will participate despite not playing at all this season after tearing an Achilles. `\
 https://nytimes.com/athletic/7031428/2026/02/08/damian-lillard-3-point-contest-2026-nba/
 
