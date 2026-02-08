@@ -1,3 +1,11 @@
+**Ryan Reynolds and Rob Mac exclusive: 'Phil Parkinson has the job for life'**\
+`Wrexham remain in the final Championship play-off spot, which emphasises the remarkable job done by Parkinson`\
+https://nytimes.com/athletic/7026531/2026/02/08/ryan-reynolds-rob-mac-wrexham-phil-parkinson-job-for-life/
+
+**Is it time for Spurs to move on from Romero?**\
+`The 27-year-old has moments of magic, but does not have the tactical or emotional discipline required to be an effective captain`\
+https://nytimes.com/athletic/7029330/2026/02/08/tottenham-cristian-romero-future/
+
 **Cole Palmer has returned to a new Chelsea reality – and might have finally cracked it**\
 `Rosenior does not want Palmer’s role to change, and on paper it may well look the same — but improvements around him make a difference`\
 https://nytimes.com/athletic/7029558/2026/02/08/cole-palmer-chelsea-hat-trick/
