@@ -1,3 +1,15 @@
+**The New York Times in Print for Sunday, Feb. 8, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/08/todays-new-york-times
+
+**The Demise of U.S.A.I.D. Was a Warning**\
+`The brutality of U.S.A.I.D.’s closure and the disregard for the human toll betrayed a vision of a crueler, meaner, more insular world.`\
+https://nytimes.com/2026/02/08/opinion/usaid-humanitarian-aid-america.html
+
+**Almost All Food Is Industrial Food. That’s a Good Thing.**\
+`We can’t feed 340 million Americans with local, organic and low-tech dishes.`\
+https://nytimes.com/2026/02/08/opinion/food-industrial-local-organic.html
+
 **Paul Thomas Anderson Wins Directors Guild Award for ‘One Battle After Another’**\
 `The filmmaker beat out Ryan Coogler, Guillermo del Toro, Josh Safdie and Chloé Zhao. The prize is a strong predictor of the Oscars.`\
 https://nytimes.com/2026/02/08/movies/paul-thomas-anderson-directors-guild-of-america-dga-one-battle-after-another.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7018122/2026/02/08/non-league-semenyo-scouting/
 **John Carew, Premier League striker turned Netflix star: 'I want to be a Bond villain'**\
 `The former Premier League striker is now an actor and has appeared alongside Angelina Jolie, Michelle Pfeiffer and Chiwetel Ejiofor`\
 https://nytimes.com/athletic/7026809/2026/02/08/john-carew-netflix-actor/
-
-**A footballer suffered homophobic abuse after painting his nails. The reaction was overwhelming**\
-`Celta Vigo players and thousands of their fans painted their own nails to show solidarity with striker Borja Iglesias after homophobic abuse`\
-https://nytimes.com/athletic/7021257/2026/02/08/borja-iglesias-celta-vigo-nail-painting/
-
-**Is Bruno Fernandes the best player in the Premier League right now?**\
-`The Manchester United captain is revelling in the freedom he has been granted by Michael Carrick `\
-https://nytimes.com/athletic/7029692/2026/02/08/bruno-fernandes-man-united-michael-carrick/
-
-**Viktor Gyokeres and the importance of confidence**\
-`The Sweden striker has eight goal contributions in as many games in all competitions — and he is finding his place in Arteta's squad`\
-https://nytimes.com/athletic/7029570/2026/02/08/arsenal-viktor-gyokeres-sunderland/
 
