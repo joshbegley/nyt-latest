@@ -1,3 +1,7 @@
+**Duke coach Jon Scheyer says staff was 'punched in the face' after UNC fans storm court**\
+`UNC beat Duke with less than a second remaining Saturday, leading to a court-storming not once, but twice.`\
+https://nytimes.com/athletic/7030200/2026/02/07/duke-coach-jon-scheyer-says-staff-was-punched-in-the-face-after-unc-fans-storm-court/
+
 **Stephon Castle joins David Robinson as only Spurs with 40-point triple-double**\
 `Castle finished with 40 points, 12 assists and 12 rebounds.`\
 https://nytimes.com/athletic/7030139/2026/02/07/stephon-castle-joins-david-robinson-as-only-spurs-with-40-point-triple-double/
