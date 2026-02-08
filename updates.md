@@ -1,3 +1,7 @@
+**In Bid to Lead Thailand, a Progressive Party Softens Its Image**\
+`Sunday’s election is a test for the progressive, pro-democracy movement in Thailand, which has been blocked from taking power despite success at the polls.`\
+https://nytimes.com/2026/02/07/world/asia/thailand-election-peoples-party.html
+
 **Alperen Şengün apologizes for making sexist comments to female referee**\
 `In his first comments about the incident, Şengün called his actions “immature” and something he hopes to learn from.`\
 https://nytimes.com/athletic/7030103/2026/02/07/alperen-sengun-apologizes-sexist-comment-rockets-nba/

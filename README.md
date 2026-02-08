@@ -1,3 +1,7 @@
+**Best of 2026 Olympics Day 1: Speed skater celebrates gold with son, 'Quad God' has mixed day**\
+`There were several big performances as athletes won the first medals of the 2026 Milan Cortina Winter Olympics on Saturday.`\
+https://nytimes.com/athletic/7029781/2026/02/07/winter-olympics-2026-day-1-best-moments-francesca-lollobrigida/
+
 **Alperen Şengün apologizes for making sexist comments to female referee**\
 `In his first comments about the incident, Şengün called his actions “immature” and something he hopes to learn from.`\
 https://nytimes.com/athletic/7030103/2026/02/07/alperen-sengun-apologizes-sexist-comment-rockets-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029249/2026/02/07/auburn-alabama-basketball-steven
 **Mackenzie Hughes 'didn't lose much sleep' over fan yelling in backswing**\
 `The "Happy Gilmore"-inspired incident was the result of internet personality Jack Doherty paying a fan $100 to yell.`\
 https://nytimes.com/athletic/7029892/2026/02/07/jack-doherty-wmopen-mackenzie-hughes-backswing/
-
-**Savannah Guthrie, in New Video Message, Promises to Pay for Return of Her Mother**\
-`The “Today” show anchor, in a message on social media with her siblings, said the return of their mother Nancy “is the only way we will have peace.”`\
-https://nytimes.com/2026/02/07/us/savannah-guthrie-nancy-guthrie-video-message.html
 
