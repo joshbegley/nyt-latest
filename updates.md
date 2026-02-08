@@ -1,3 +1,11 @@
+**How millions of Americans experienced Vonn’s heart-wrenching crash – after they woke up**\
+`The 41-year-old's bid to reclaim the downhill gold came to an end in dramatic circumstances… all while most of her compatriots were in bed`\
+https://nytimes.com/athletic/7031282/2026/02/08/lindsey-vonn-crash-winter-olympics/
+
+**Charlie McAvoy's Olympic diary: On the opening ceremony, his jaw and, yes, his tweet**\
+`From dealing with a swollen face to preparing for Thursday's game, McAvoy chronicles his time with Team USA for The Athletic.`\
+https://nytimes.com/athletic/7031283/2026/02/08/charlie-mcavoy-olympics-hockey-jaw-tweet/
+
 **‘We Will Pay’: Savannah Guthrie Addresses Mother’s Captor in New Video**\
 `Nancy Guthrie’s children shared a new video message to their mother’s purported abductor on Saturday evening. In the video, posted to the “Today” show anchor Savannah Guthrie’s Instagram account, the siblings said they were willing to pay for their mother’s return.`\
 https://nytimes.com/video/us/100000010698061/savannah-guthrie-mother-nancy-kidnapped.html
