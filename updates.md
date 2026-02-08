@@ -1,3 +1,7 @@
+**We Shouldn’t Want to Eat Like Our Great-Great-Grandparents**\
+`They were at a much higher risk of malnutrition and missed out on the joy of a fresh Sumo orange in February.`\
+https://nytimes.com/2026/02/08/opinion/food-industrial-local-organic.html
+
 **The New York Times in Print for Sunday, Feb. 8, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/08/todays-new-york-times

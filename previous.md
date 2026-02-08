@@ -6,8 +6,8 @@ https://nytimes.com/issue/todayspaper/2026/02/08/todays-new-york-times
 `The brutality of U.S.A.I.D.’s closure and the disregard for the human toll betrayed a vision of a crueler, meaner, more insular world.`\
 https://nytimes.com/2026/02/08/opinion/usaid-humanitarian-aid-america.html
 
-**Almost All Food Is Industrial Food. That’s a Good Thing.**\
-`We can’t feed 340 million Americans with local, organic and low-tech dishes.`\
+**We Shouldn’t Want to Eat Like Our Great-Great-Grandparents**\
+`They were at a much higher risk of malnutrition and missed out on the joy of a fresh Sumo orange in February.`\
 https://nytimes.com/2026/02/08/opinion/food-industrial-local-organic.html
 
 **Paul Thomas Anderson Wins Directors Guild Award for ‘One Battle After Another’**\
