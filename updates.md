@@ -1,3 +1,11 @@
+**Games Briefing: U.S. triumph and heartbreak in downhill**\
+`Welcome to the Games Briefing, The Athletic's newsletter for the Milan Cortina Olympics. `\
+https://nytimes.com/athletic/7030948/2026/02/08/breezy-johnson-lindsey-vonn-olympics-games-briefing/
+
+**Talks on Immigration Enforcement Limits Still Stuck With Deadline Nearing**\
+`Democrats’ demands include that immigration officers be required to show visible identification and have judicial warrants when they enter private property to make arrests.`\
+https://nytimes.com/2026/02/08/us/politics/dhs-funding-immigration-shutdown.html
+
 **Arsenal's Gyokeres says he has room for improvement**\
 `The Sweden international has scored six times in his last eight appearances but said he is not the complete player.`\
 https://nytimes.com/athletic/7029636/2026/02/08/viktor-gyokeres-arsenal-goals-improvement/
