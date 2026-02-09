@@ -1,3 +1,7 @@
+**Seahawks Win Super Bowl, and Bad Bunny Shines at Halftime Show**\
+`The Seattle Seahawks beat the New England Patriots on Sunday to become the Super Bowl champions. Bad Bunny performed the first mostly Spanish-language halftime show.`\
+https://nytimes.com/video/sports/100000010698888/super-bowl-halftime-seahawks-bad-bunny.html
+
 **Why Slovenia, a nation of 2 million, is one of sport's biggest overperformers**\
 `From the ski jumping sensations at the Winter Olympics to Luka Dončić, Slovenia is punching above its weight with sports stars.`\
 https://nytimes.com/athletic/7031154/2026/02/09/slovenia-winter-olympics-ski-jumping-prevc-luka-doncic/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/09/crosswords/spelling-bee-forum.html
 **Billionaire Called Epstein a ‘Blessing’ as They Made Deals**\
 `Andrew Farkas has repeatedly played down ties to Jeffrey Epstein. But they swapped business favors in the Virgin Islands, and in nearly 2,000 emails, the two expressed admiration for each other.`\
 https://nytimes.com/2026/02/09/nyregion/farkas-epstein-lawsuit-ties.html
-
-**Struggles continue for Drake Maye, Patriots offense in Super Bowl loss to Seahawks**\
-`The New England offense looked off again, getting shut out for three quarters, and never really got going against the Seattle defense.`\
-https://nytimes.com/athletic/7032347/2026/02/09/drake-maye-patriots-offense-super-bowl-60-seahawks/
 

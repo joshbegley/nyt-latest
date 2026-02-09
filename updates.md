@@ -1,3 +1,7 @@
+**Seahawks Win Super Bowl, and Bad Bunny Shines at Halftime Show**\
+`The Seattle Seahawks beat the New England Patriots on Sunday to become the Super Bowl champions. Bad Bunny performed the first mostly Spanish-language halftime show.`\
+https://nytimes.com/video/sports/100000010698888/super-bowl-halftime-seahawks-bad-bunny.html
+
 **Why Slovenia, a nation of 2 million, is one of sport's biggest overperformers**\
 `From the ski jumping sensations at the Winter Olympics to Luka Dončić, Slovenia is punching above its weight with sports stars.`\
 https://nytimes.com/athletic/7031154/2026/02/09/slovenia-winter-olympics-ski-jumping-prevc-luka-doncic/
