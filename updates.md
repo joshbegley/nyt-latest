@@ -1,3 +1,7 @@
+**Olympic Athletes Jump For Joy and Break Their Medals**\
+`As Olympians report their medals detaching from their ribbons, game organizers are scrambling to fix the issue. This is not the first time that Olympic medals have had issues. Over a 100 athletes from the Paris Olympics in 2024 reported that their medals deteriorated.`\
+https://nytimes.com/video/world/europe/100000010699778/olympian-medals-breaking-milan.html
+
 **Two Senegalese Celebrities Are Arrested in Crackdown on Homosexuality**\
 `A TV presenter and one of Senegal’s best-known musicians appeared in court on Monday in one of the country’s most high-profile, anti-gay cases in years.`\
 https://nytimes.com/2026/02/09/world/africa/senegal-gay-arrests-diallo-drame.html
