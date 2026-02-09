@@ -1,3 +1,15 @@
+**U.S., in dramatic finish, beats Italy to reach mixed doubles curling final vs. Sweden**\
+`Cory Thiesse and Korey Dropkin scored five in the final three ends to win, 9-8, and knock off the defending Olympic champs. `\
+https://nytimes.com/athletic/7033718/2026/02/09/winter-olympics-mixed-doubles-curling-us-italy-sweden-semifinals/
+
+**MAHA Group Pledges $1 Million to Help Defeat Senator Cassidy in Louisiana Primary**\
+`Tony Lyons, a co-founder of the group MAHA PAC, said his group would support the congresswoman who has been endorsed by President Trump.`\
+https://nytimes.com/2026/02/09/us/politics/maha-cassidy-primary-louisiana.html
+
+**What Does a Wailing, Electric Take on ‘The Star-Spangled Banner’ Mean?**\
+`Turning Point USA’s “All-American” halftime opened with a guitar-solo national anthem. It was a striking contrast to Jimi Hendrix’s rendition at Woodstock.`\
+https://nytimes.com/2026/02/09/arts/music/star-spangled-banner-all-american-halftime.html
+
 **Pilots and Flight Attendants Criticize American Airlines’ Performance**\
 `The unions representing pilots and flight attendants have in recent days publicly criticized American for falling behind Delta Air Lines and United Airlines.`\
 https://nytimes.com/2026/02/09/business/american-airlines-pilots-flight-attendants-unions.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7033798/2026/02/09/seahawks-mike-macdonald-super-bo
 **AP men's basketball Top 25: Arizona unanimous No. 1 again, Houston rockets to No. 3**\
 `Eight of the top 10 teams came from the Big 12 or Big Ten.`\
 https://nytimes.com/athletic/7033754/2026/02/09/ap-mens-basketball-poll-arizona-michigan-houston/
-
-**Jutta Leerdam sets Olympic record in 1,000-meter speed skating race**\
-`MILAN — Speed skater Jutta Leerdam set an Olympic record in the women’s 1,000-meter race just minutes after her teammate Femke Kok lowered the record, giving the Netherlands a gold-silver finish and knocking one of the best American contenders off the podium.`\
-https://nytimes.com/athletic/7033765/2026/02/09/jutta-leerdam-olympic-speed-skating-record-1000-meter/
-
-**Why Canada and Sweden closed practices, and U.S. flip-flopped: Latest on Olympic men's hockey**\
-`Also from the Games on Monday: How the U.S. and Canada asked players to prepare for tournament, and who starts in goal for Sweden?`\
-https://nytimes.com/athletic/7033411/2026/02/09/canada-sweden-close-practices-olympic-hockey/
-
-**WSL and clubs monitoring X's Grok over generation of sexualised images**\
-`Some WSL teams are monitoring the evolving social media landscape and will take action accordingly.`\
-https://nytimes.com/athletic/7032797/2026/02/09/wsl-grok-x-soccer/
 
