@@ -1,3 +1,7 @@
+**Canada’s Nathan MacKinnon is not at the Olympics to enjoy himself**\
+`MacKinnon is not in Milan to soak up the Olympic experience. He is focused on one thing: leading Canada to men's ice hockey gold.`\
+https://nytimes.com/athletic/7033216/2026/02/09/olympics-mens-hockey-2026-canada-nathan-mackinnon-nhl/
+
 **Duke staffer injured in UNC court storm 'doing better,' Tar Heels fined by ACC**\
 `UNC coach Hubert Davis and Duke coach Jon Scheyer have talked since Saturday's incident that followed the Tar Heels' game-winning shot.`\
 https://nytimes.com/athletic/7033317/2026/02/09/duke-unc-basketball-court-storming/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7033298/2026/02/09/nc-state-vs-louisville-stream-ho
 **How to watch Xavier vs. St. John's men's basketball: Time, TV, streaming**\
 `Find out how to watch the Xavier Musketeers play the St. John's Red Storm, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7033296/2026/02/09/xavier-vs-st-john-s-stream-how-to-watch-feb-9/
-
-**N.Y.C. Nurses Reach Deal to End Strike at Some Hospitals**\
-`A tentative agreement was reached between the New York State Nurses Association and the Mount Sinai Health System and Montefiore Medical Center.`\
-https://nytimes.com/2026/02/09/nyregion/nyc-nurses-strike-ends.html
 
