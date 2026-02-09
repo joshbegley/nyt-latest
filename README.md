@@ -1,3 +1,15 @@
+**Trump Is a Global ‘Wrecking Ball,’ European Security Experts Say**\
+`The organizers of the Munich Security Conference, Europe’s main defense-related forum, said in a report that President Trump is helping destroy the postwar international order.`\
+https://nytimes.com/2026/02/09/world/europe/trump-munich-conference-security-report.html
+
+**3 Affordable Lip Liners We Love**\
+`You don’t need to spend a lot of money to get a great quality lip liner. Our panel of testers identified exceptional drugstore products that outperformed many higher-end options.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010700029/3-affordable-lip-liners-we-love.html
+
+**YouTube TV launching lower-cost sports-only package of channels**\
+`"Sports Plus" will be priced about $20 less than YouTube TV's existing 100-channel service.`\
+https://nytimes.com/athletic/7033336/2026/02/09/youtubetv-sports-plan-espn-unlimited/
+
 **Stop Using Liquid Dishwasher Detergent**\
 `Think your dishwasher sucks? Your detergent might actually be the issue.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010699991/stop-using-liquid-dishwasher-detergent.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7033330/2026/02/09/pistons-vs-hornets-stream-how-to
 **Olympic P.S.A.: Do Not Jump for Joy While Wearing Your Medal**\
 `Several athletes have had their medals fall off their ribbons while celebrating their victories. Organizers are looking into it: “This is something we want to be perfect.”`\
 https://nytimes.com/2026/02/09/sports/olympics-medals-broken-breezy-johnson.html
-
-**Health Advice From A.I. Chatbots Is Frequently Wrong, Study Shows**\
-`In part, the problem has to do with how users are asking their questions.`\
-https://nytimes.com/2026/02/09/well/chatgpt-health-advice.html
-
-**The Windup: Tarik $kubal, history-making arbitration winner**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7033288/2026/02/09/tarik-skubal-arbitration-history-the-windup/
-
-**McLaren reveals 2026 F1 car, prepared for a spirited title defense as regulations reset**\
-`McLaren made an intentional choice to keep the car looking similar to its recent dominant predecessors`\
-https://nytimes.com/athletic/7033132/2026/02/09/mclaren-f1-car-livery-2026/
 
