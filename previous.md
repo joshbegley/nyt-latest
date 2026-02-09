@@ -1,3 +1,7 @@
+**Why Slovenia, a nation of 2 million, is one of sport's biggest overperformers**\
+`From the ski jumping sensations at the Winter Olympics to Luka Dončić, Slovenia is punching above its weight with sports stars.`\
+https://nytimes.com/athletic/7031154/2026/02/09/slovenia-winter-olympics-ski-jumping-prevc-luka-doncic/
+
 **Mike Macdonald is a defensive mastermind — to win a Super Bowl, he became so much more**\
 `In Year 2, Macdonald figured out how to connect more effectively with and lead his entire roster.`\
 https://nytimes.com/athletic/7032434/2026/02/09/mike-macdonald-seattle-seahawks-coaching-style/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/09/nyregion/farkas-epstein-lawsuit-ties.html
 **Struggles continue for Drake Maye, Patriots offense in Super Bowl loss to Seahawks**\
 `The New England offense looked off again, getting shut out for three quarters, and never really got going against the Seattle defense.`\
 https://nytimes.com/athletic/7032347/2026/02/09/drake-maye-patriots-offense-super-bowl-60-seahawks/
-
-**Word of the Day: resilience**\
-`This word has appeared in 1,286 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/02/09/learning/word-of-the-day-resilience.html
 

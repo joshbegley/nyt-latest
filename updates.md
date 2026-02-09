@@ -1,3 +1,7 @@
+**Why Slovenia, a nation of 2 million, is one of sport's biggest overperformers**\
+`From the ski jumping sensations at the Winter Olympics to Luka Dončić, Slovenia is punching above its weight with sports stars.`\
+https://nytimes.com/athletic/7031154/2026/02/09/slovenia-winter-olympics-ski-jumping-prevc-luka-doncic/
+
 **Mike Macdonald is a defensive mastermind — to win a Super Bowl, he became so much more**\
 `In Year 2, Macdonald figured out how to connect more effectively with and lead his entire roster.`\
 https://nytimes.com/athletic/7032434/2026/02/09/mike-macdonald-seattle-seahawks-coaching-style/
