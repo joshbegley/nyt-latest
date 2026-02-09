@@ -1,3 +1,7 @@
+**Seahawks’ Defense Swamps the Patriots: Images From the Super Bowl**\
+`Sam Darnold’s steady Seattle offense controlled the game, but it was the defensive side that put another title out of reach for New England. Photographers followed the action.`\
+https://nytimes.com/2026/02/09/us/super-bowl-photos.html
+
 **Claudia Riegler, 52, just competed in her fifth Winter Olympics: 'We set our own limits'**\
 `Riegler reached the round of 16 in the snowboard parallel giant slalom in Milan Cortina.`\
 https://nytimes.com/athletic/7031339/2026/02/09/claudia-riegler-2026-winter-olympics-parallel-giant-slalom/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7032057/2026/02/09/bad-bunny-super-bowl-halftime-sh
 **Wolves and four at the back just doesn't work**\
 `Rob Edwards gambled against Chelsea. As his predecessors could have told him, Wolves have to play with three centre-backs`\
 https://nytimes.com/athletic/7029826/2026/02/09/wolves-rob-edwards-four-at-the-back/
-
-**After 12 winless games, will beating Brighton prove a turning point for Palace?**\
-`At the end, it was Brighton fans booing their own team and questioning the head coach - it could easily have been the other way around`\
-https://nytimes.com/athletic/7031109/2026/02/09/crystal-palace-brighton-turning-point/
 
