@@ -1,3 +1,27 @@
+**Tisch to Name Leaders of Catholic and Black Churches as N.Y.P.D. Chaplains**\
+`Cardinal Timothy Dolan and the Rev. A.R. Bernard are to be announced as co-heads of the Police Department’s chaplains’ unit.`\
+https://nytimes.com/2026/02/09/us/nypd-chaplains-tisch-dolan-bernard.html
+
+**Jerrold Nadler Has Picked a Successor. Will That Matter to Voters?**\
+`The retiring congressman hopes his endorsement will carry Assemblyman Micah Lasher past a crowded primary field, including a Kennedy.`\
+https://nytimes.com/2026/02/09/nyregion/nadler-lasher-endorsement.html
+
+**Takeaways From the Second Week of the Alexander Brothers Trial**\
+`The judge denied a request for a mistrial and jurors heard from a woman who accused one of the brothers of filming her when she was a minor. The sex-trafficking trial resumes on Monday.`\
+https://nytimes.com/2026/02/09/nyregion/alexander-brothers-trial-takeaways.html
+
+**Will This High School Coach Get to 973 Wins Before He Gets Fired?**\
+`After 45 years at a high school in Queens, Ron Naclerio was closing in on the record for most wins in New York State, but was suspended for improperly recruiting players. Would he make it to No. 973 before he got fired?`\
+https://nytimes.com/2026/02/09/nyregion/ron-naclerio-basketball-cardozo-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/09/crosswords/spelling-bee-forum.html
+
+**Billionaire Called Epstein a ‘Blessing’ as They Made Deals**\
+`Andrew Farkas has repeatedly played down ties to Jeffrey Epstein. But they swapped business favors in the Virgin Islands, and in nearly 2,000 emails, the two expressed admiration for each other.`\
+https://nytimes.com/2026/02/09/nyregion/farkas-epstein-lawsuit-ties.html
+
 **Struggles continue for Drake Maye, Patriots offense in Super Bowl loss to Seahawks**\
 `The New England offense looked off again, getting shut out for three quarters, and never really got going against the Seattle defense.`\
 https://nytimes.com/athletic/7032347/2026/02/09/drake-maye-patriots-offense-super-bowl-60-seahawks/
@@ -13,28 +37,4 @@ https://nytimes.com/2026/02/09/opinion/patriots-seahawks-bad-bunny-super-bowl.ht
 **Kubiak confirms he will be the next Raiders head coach**\
 `Kubiak joined the Seahawks last offseason, leading an offense that brought home the Offensive Player of the Year and Super Bowl MVP awards.`\
 https://nytimes.com/athletic/7032313/2026/02/09/klint-kubiak-raiders-next-head-coach/
-
-**The New York Times in Print for Monday, Feb. 9, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/02/09/todays-new-york-times
-
-**Death, Undocumented**\
-`A decade or so after the peak of Europe’s migrant crisis, one of the busiest and deadliest entry points to the continent has devolved from crisis to something more chronic.`\
-https://nytimes.com/2026/02/09/opinion/lampedusa-migrants-europe.html
-
-**‘Love Story,’ Plus 6 Things to Watch on TV This Week**\
-`The Ryan Murphy series about John F. Kennedy Jr. and Carolyn Bessette premieres, and a new A24 non-scripted series airs.`\
-https://nytimes.com/2026/02/09/arts/television/love-story-watch-on-tv-this-week.html
-
-**Super Bowl 60 by the numbers: Breaking down Seahawks' defensive dominance vs. Patriots**\
-`Seattle's defensive mastery stymied the Patriots and produced an avalanche of impressive statistics.`\
-https://nytimes.com/athletic/7032264/2026/02/09/seahawks-patriots-super-bowl-60-numbers-records/
-
-**Seahawks’ Defense Swamps the Patriots: Images From the Super Bowl**\
-`Sam Darnold’s steady Seattle offense controlled the game, but it was the defensive side that put another title out of reach for New England. Photographers followed the action.`\
-https://nytimes.com/2026/02/09/us/super-bowl-photos.html
-
-**Claudia Riegler, 52, just competed in her fifth Winter Olympics: 'We set our own limits'**\
-`Riegler reached the round of 16 in the snowboard parallel giant slalom in Milan Cortina.`\
-https://nytimes.com/athletic/7031339/2026/02/09/claudia-riegler-2026-winter-olympics-parallel-giant-slalom/
 
