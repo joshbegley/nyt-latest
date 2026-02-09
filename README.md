@@ -22,8 +22,8 @@ https://nytimes.com/video/world/europe/100000010699778/olympian-medals-breaking-
 `A TV presenter and one of Senegal’s best-known musicians appeared in court on Monday in one of the country’s most high-profile, anti-gay cases in years.`\
 https://nytimes.com/2026/02/09/world/africa/senegal-gay-arrests-diallo-drame.html
 
-**‘We Believe Our Mom Is Still Out There,’ Savannah Guthrie Says**\
-`The television host released a video pleading for the public’s help in finding her mother, Nancy, who disappeared from her Arizona home last week. “We are at an hour of desperation,” she said.`\
+**‘We Believe Our Mom Is Still Out There,’ Savannah Guthrie Says in New Video**\
+`The television host pleaded for the public’s help in finding her mother, Nancy, who disappeared from her Arizona home last week. “We are at an hour of desperation,” she said.`\
 https://nytimes.com/2026/02/09/us/savannah-guthrie-kidnapping-video.html
 
 **Ray Handley, Ill-Fated Giants Coach, Is Dead at 81**\
