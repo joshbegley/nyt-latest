@@ -1,3 +1,7 @@
+**Why the rest of this season for Giannis Antetokounmpo and the Bucks is worth watching closely**\
+`An interesting plotline as Giannis and Bucks stick together for now: The team's best path is to tank. The star likely won't accept that.`\
+https://nytimes.com/athletic/7026801/2026/02/09/giannis-bucks-injury-management-nba-trade/
+
 **The state of the Premier League title race as Man City stay in contention… just**\
 `Arsenal were dreaming of a nine-point lead in the Premier League title race. Then Erling Haaland made his late intervention at Anfield `\
 https://nytimes.com/athletic/7032432/2026/02/09/premier-league-title-race-md25/
@@ -10,7 +14,7 @@ https://nytimes.com/2026/02/09/us/trump-bad-bunny-super-bowl-halftime-show.html
 `Did you watch? What was your favorite part? The game? The commercials? The halftime show? The snacks?`\
 https://nytimes.com/2026/02/09/learning/whats-your-reaction-to-super-bowl-lx.html
 
-**Trump Administration Live Updates: Congress at Impasse Over Immigration Enforcement Talks**\
+**Trump Administration Live Updates: Lawmakers to View Unredacted Epstein Files**\
 ``\
 https://nytimes.com/live/2026/02/09/us/president-trump-news
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7030762/2026/02/09/cubs-spring-training-preview-off
 **Will Trevor Story be a bust in 2026? Fantasy baseball shortstop rundown**\
 `Eno Sarris and Derek VanRiper preview the shortstop position ahead of the 2026-27 fantasy baseball season. `\
 https://nytimes.com/athletic/6992542/2026/02/09/fantasy-baseball-2026-shortstop-preview-trevor-story/
-
-**Mathilde Gremaud makes history as she beats Eileen Gu to Olympic gold once again**\
-`Mathilde Gremaud retained the title she won in Beijing four years ago, with Eileen Gu once again in silver`\
-https://nytimes.com/athletic/7032654/2026/02/09/eileen-gu-freeski-slopestyle-final-2026-winter-olympics/
 

@@ -1,3 +1,11 @@
+**Why the rest of this season for Giannis Antetokounmpo and the Bucks is worth watching closely**\
+`An interesting plotline as Giannis and Bucks stick together for now: The team's best path is to tank. The star likely won't accept that.`\
+https://nytimes.com/athletic/7026801/2026/02/09/giannis-bucks-injury-management-nba-trade/
+
+**Trump Administration Live Updates: Lawmakers to View Unredacted Epstein Files**\
+``\
+https://nytimes.com/live/2026/02/09/us/president-trump-news
+
 **The state of the Premier League title race as Man City stay in contention… just**\
 `Arsenal were dreaming of a nine-point lead in the Premier League title race. Then Erling Haaland made his late intervention at Anfield `\
 https://nytimes.com/athletic/7032432/2026/02/09/premier-league-title-race-md25/
