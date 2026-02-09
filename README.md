@@ -1,3 +1,19 @@
+**Jutta Leerdam sets Olympic record in 1,000-meter speed skating race**\
+`MILAN — Speed skater Jutta Leerdam set an Olympic record in the women’s 1,000-meter race just minutes after her teammate Femke Kok lowered the record, giving the Netherlands a gold-silver finish and knocking one of the best American contenders off the podium.`\
+https://nytimes.com/athletic/7033765/2026/02/09/jutta-leerdam-olympic-speed-skating-record-1000-meter/
+
+**Why Canada and Sweden closed practices, and U.S. flip-flopped: Latest on Olympic men's hockey**\
+`Also from the Games on Monday: How the U.S. and Canada asked players to prepare for tournament, and who starts in goal for Sweden?`\
+https://nytimes.com/athletic/7033411/2026/02/09/canada-sweden-close-practices-olympic-hockey/
+
+**WSL and clubs monitoring X's Grok over generation of sexualised images**\
+`Some WSL teams are monitoring the evolving social media landscape and will take action accordingly.`\
+https://nytimes.com/athletic/7032797/2026/02/09/wsl-grok-x-soccer/
+
+**Can This 21-Year-Old Make America Fall in Love With Figure Skating?**\
+`Ilia Malinin, who led the United States to a team gold medal at the Winter Olympics and will now vie for his own, is testing the physical limits of what is possible on the ice.`\
+https://nytimes.com/2026/02/09/world/olympics/ilia-malinin-ice-skating-winter-olympics.html
+
 **Amanda Anisimova retires from Qatar Open with physical issues, ending title defense at first hurdle**\
 `The American had her blood pressure checked early in the third set of her match against Karolína Plíšková, before retiring two games later.`\
 https://nytimes.com/athletic/7033708/2026/02/09/amanda-anisimova-qatar-open-karolina-pliskova/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7033046/2026/02/09/college-women-basketball-nyu-win
 **I was at a Super Bowl watch party in Puerto Rico. All eyes were on the halftime show**\
 `Being in Puerto Rico watching the Super Bowl and the Bad Bunny halftime show was a once-in-a-lifetime experience. Here are some takeaways.`\
 https://nytimes.com/athletic/7033294/2026/02/09/bad-bunny-super-bowl-puerto-rico-watch-party/
-
-**Israel Gives Itself More Control Over West Bank, Clearing Barriers to Settlement**\
-`Actions by the security cabinet make it easier for Jews to buy land from Palestinians. Critics say the changes violate the Oslo Accords and international law and accelerate attempts to annex the territory.`\
-https://nytimes.com/2026/02/09/world/middleeast/israel-settlements-west-bank.html
-
-**With Lindsey Vonn out, U.S. women's Alpine enters team event still with high hopes**\
-`The top pairings still give the U.S. a great shot at one or more medals in Tuesday's team combined.`\
-https://nytimes.com/athletic/7033407/2026/02/09/winter-olympics-lindsey-vonn-us-alpine-skiing-team-combined/
-
-**Games Briefing: That repeat glow**\
-`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
-https://nytimes.com/athletic/7033511/2026/02/09/mathilde-gremaud-eileen-gu-freeski-slopestyle-medal-games-briefing/
-
-**Hungry Families, ICE and Secret Grocery Networks in Minneapolis**\
-`As immigrants become increasingly afraid to leave their homes for fear of being detained, access to food, including free school lunches, is being cut off.`\
-https://nytimes.com/2026/02/09/dining/minneapolis-ice-grocery-stores-hunger.html
 
