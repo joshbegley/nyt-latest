@@ -1,3 +1,15 @@
+**U.S., in dramatic finish, beats Italy to reach mixed doubles curling final vs. Sweden**\
+`Cory Thiesse and Korey Dropkin scored five in the final three ends to win, 9-8, and knock off the defending Olympic champs. `\
+https://nytimes.com/athletic/7033718/2026/02/09/winter-olympics-mixed-doubles-curling-us-italy-sweden-semifinals/
+
+**MAHA Group Pledges $1 Million to Help Defeat Senator Cassidy in Louisiana Primary**\
+`Tony Lyons, a co-founder of the group MAHA PAC, said his group would support the congresswoman who has been endorsed by President Trump.`\
+https://nytimes.com/2026/02/09/us/politics/maha-cassidy-primary-louisiana.html
+
+**What Does a Wailing, Electric Take on ‘The Star-Spangled Banner’ Mean?**\
+`Turning Point USA’s “All-American” halftime opened with a guitar-solo national anthem. It was a striking contrast to Jimi Hendrix’s rendition at Woodstock.`\
+https://nytimes.com/2026/02/09/arts/music/star-spangled-banner-all-american-halftime.html
+
 **Breezy Johnson, other athletes see their Olympic medals break during celebrations**\
 `Olympic organizers are working to resolve the medal issue as quickly as possible.`\
 https://nytimes.com/athletic/7033707/2026/02/09/2026-olympic-medals-breaking-celebrations-breezy-johnson/
