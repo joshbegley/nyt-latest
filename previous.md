@@ -1,5 +1,13 @@
+**The Bounce: Will Anthony Davis play for the Wizards? Plus, two dunks you must see**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7033023/2026/02/09/anthony-davis-wizards-dunks-bam-adebayo-anthony-edwards-the-bounce/
+
+**Venezuela Rearrests Key Opposition Leader Hours After Releasing Him**\
+`Hours after releasing Juan Pablo Guanipa, a centrist opposition party leader, the Venezuelan interim government took him back into custody after it said he breached the terms of his release conditions.`\
+https://nytimes.com/video/world/americas/100000010699751/venezuela-opposition-leader-guanipa-released-arrested.html
+
 **Iran Detains Prominent Opposition Figures, Expanding Crackdown on Dissent**\
-`The detentions of figures from Iran’s opposition follow mass arrests and a string of repression tactics aimed at preventing further anti-government unrest.`\
+`The detentions of politicians from Iran’s opposition follow mass arrests and a string of repression tactics aimed at preventing further anti-government unrest.`\
 https://nytimes.com/2026/02/09/world/europe/iran-detains-prominent-opposition-figures-expanding-crackdown-on-dissent.html
 
 **Canucks trade targets: 10 reclamation projects that fit for a rebuilding team**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7033059/2026/02/09/red-sox-caleb-durbin-trade-brewe
 **Submit your college basketball questions for our mailbag**\
 `With five weeks until Selection Sunday, what's on your mind?`\
 https://nytimes.com/athletic/7033113/2026/02/09/college-basketball-mailbag-questions/
-
-**Premier League data notebook: Arsenal's offside sorcery, Newcastle's trouble with leads, Spurs' card frenzy**\
-`The Athletic's data writers break down the key storylines from the weekend's action`\
-https://nytimes.com/athletic/7032599/2026/02/09/premier-league-data-notebook-md25-arsenal-newcastle-spurs/
-
-**The resignation of a key Starmer aide has accelerated the scandal.**\
-`By Michael D. Shear and Stephen Castle`\
-https://nytimes.com/live/2026/02/09/world/uk-starmer-resign-epstein-mandelson/the-resignation-of-a-key-starmer-aide-has-accelerated-the-scandal
 

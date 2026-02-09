@@ -1,3 +1,15 @@
+**The Bounce: Will Anthony Davis play for the Wizards? Plus, two dunks you must see**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7033023/2026/02/09/anthony-davis-wizards-dunks-bam-adebayo-anthony-edwards-the-bounce/
+
+**Venezuela Rearrests Key Opposition Leader Hours After Releasing Him**\
+`Hours after releasing Juan Pablo Guanipa, a centrist opposition party leader, the Venezuelan interim government took him back into custody after it said he breached the terms of his release conditions.`\
+https://nytimes.com/video/world/americas/100000010699751/venezuela-opposition-leader-guanipa-released-arrested.html
+
+**Iran Detains Prominent Opposition Figures, Expanding Crackdown on Dissent**\
+`The detentions of politicians from Iran’s opposition follow mass arrests and a string of repression tactics aimed at preventing further anti-government unrest.`\
+https://nytimes.com/2026/02/09/world/europe/iran-detains-prominent-opposition-figures-expanding-crackdown-on-dissent.html
+
 **Iran Detains Prominent Opposition Figures, Expanding Crackdown on Dissent**\
 `The detentions of figures from Iran’s opposition follow mass arrests and a string of repression tactics aimed at preventing further anti-government unrest.`\
 https://nytimes.com/2026/02/09/world/europe/iran-detains-prominent-opposition-figures-expanding-crackdown-on-dissent.html
