@@ -1,3 +1,11 @@
+**Duke staffer injured in UNC court storm 'doing better,' Tar Heels fined by ACC**\
+`UNC coach Hubert Davis and Duke coach Jon Scheyer have talked since Saturday's incident that followed the Tar Heels' game-winning shot.`\
+https://nytimes.com/athletic/7033317/2026/02/09/duke-unc-basketball-court-storming/
+
+**How to watch Pistons vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7033330/2026/02/09/pistons-vs-hornets-stream-how-to-watch-feb-9/
+
 **Olympic P.S.A.: Do Not Jump for Joy While Wearing Your Medal**\
 `Several athletes have had their medals fall off their ribbons while celebrating their victories. Organizers are looking into it: “This is something we want to be perfect.”`\
 https://nytimes.com/2026/02/09/sports/olympics-medals-broken-breezy-johnson.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7033296/2026/02/09/xavier-vs-st-john-s-stream-how-t
 **N.Y.C. Nurses Reach Deal to End Strike at Some Hospitals**\
 `A tentative agreement was reached between the New York State Nurses Association and the Mount Sinai Health System and Montefiore Medical Center.`\
 https://nytimes.com/2026/02/09/nyregion/nyc-nurses-strike-ends.html
-
-**Are Tottenham actually in a relegation battle? The odds suggest… maybe**\
-`Spurs have won just two of their last 16 league games, stretching back to October, and they are just six points above West Ham in 18th place`\
-https://nytimes.com/athletic/7033090/2026/02/09/tottenham-relegation-odds-spurs-still-outsiders-to-go-down-despite-struggles/
-
-**Dyche says his Forest future will not be decided by 'one game'**\
-`Forest had been unbeaten in four games in a run that included wins over West Ham and Brentford before losing 3-1 to Leeds on Friday.`\
-https://nytimes.com/athletic/7033188/2026/02/09/sean-dyche-nottingham-forest-future-latest/
 
