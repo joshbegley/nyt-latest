@@ -1,3 +1,7 @@
+**At Milan sports bar, Super Bowl 60 packs house with Winter Olympic nomads**\
+`If you happened to be in Milan early Monday and had to watch Super Bowl 60, the place to be was Offside Sports Pub.`\
+https://nytimes.com/athletic/7032085/2026/02/08/super-bowl-lx-milan-cortina-olympics-bar/
+
 **The Child in Bad Bunny’s Halftime Show Was an Actor**\
 `There was much speculation about the boy’s identity. The young actor posted on social media about his experience as part of Bad Bunny’s performance.`\
 https://nytimes.com/2026/02/08/arts/music/child-actor-bad-bunny-halftime.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7030353/2026/02/08/super-bowl-2026-winner-score-res
 **The Seahawks blocked out the BS. Now they're Super Bowl champions**\
 `The Seahawks were on a mission, brushing aside anything that could distract from their goal. And now? Mission accomplished.`\
 https://nytimes.com/athletic/7030470/2026/02/08/super-bowl-seahawks-champions-winning-strategy/
-
-**Jimmy Lai’s 20-Year Term Follows a China Playbook For Punishing Critics**\
-`The heavy sentence for the Hong Kong publisher aligns with mainland cases where influential critics of the Communist Party have been sent to prison for many years.`\
-https://nytimes.com/2026/02/08/world/asia/jimmy-lai-china-critics.html
 
