@@ -1,3 +1,11 @@
+**Cardi B, Lady Gaga and Ricky Martin Join Bad Bunny at Halftime**\
+`The Super Bowl headliner brought out stars to join the celebration.`\
+https://nytimes.com/2026/02/08/us/bad-bunny-super-bowl-lady-gaga-ricky-martin-cardi-b.html
+
+**Turning Point USA's All-American Halftime Show draws 6.1 concurrent viewers on YouTube**\
+`The stream was unavailable on X due to licensing issues, after Turning Point USA had announced it would be available there previously.`\
+https://nytimes.com/athletic/7031946/2026/02/08/turning-point-usa-halftime-show-pete-hegseth/
+
 **Seahawks' Jaxon Smith-Njigba being examined for concussion at Super Bowl**\
 `Jaxon Smith-Njigba, the NFL's Offensive Player of the Year, went to the locker room to be examined during the Super Bowl's third quarter.`\
 https://nytimes.com/athletic/7032011/2026/02/08/jaxon-smith-njigba-concussion-seahawks-super-bowl/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/08/business/japan-stocks-sanae-takaichi.html
 **Jimmy Lai’s conviction was years in the making.**\
 `By Andrew Higgins and Alexandra Stevenson`\
 https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong/jimmy-lai-conviction-hong-kong
-
-**Here’s the latest.**\
-`By David Pierson and Francesca Regalado`\
-https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong/heres-the-latest
-
-**Live Updates: Hong Kong Court Sentences Jimmy Lai to 20 Years**\
-`The media tycoon and pro-democracy activist was found guilty of colluding with foreign governments. The sentence is the harshest penalty so far under a national security law imposed by Beijing.`\
-https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong
 
