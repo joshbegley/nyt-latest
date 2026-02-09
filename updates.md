@@ -1,3 +1,7 @@
+**Amber Glenn sees mixed emotions in Olympic U.S. gold win, her performance and critics**\
+`Glenn said the backlash she received following political comments was stunning but not a hindrance to her performance. `\
+https://nytimes.com/athletic/7031453/2026/02/08/amber-glenn-figure-skating-olympics-politics-lgbtq-donald-trump/
+
 **Jimmy Lai’s children have led a global campaign for him.**\
 `By David Pierson`\
 https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong/jimmy-lais-children-have-led-a-global-campaign-for-him
