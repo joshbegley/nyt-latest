@@ -1,3 +1,11 @@
+**Red Wings, Tigers partnering with MLB for TV, streaming broadcasts**\
+`FanDuel Sports Network has carried Red Wings and Tigers games since October 2024, but the teams are moving on.`\
+https://nytimes.com/athletic/7028036/2026/02/09/red-wings-tigers-tv-future-mlb-partnership/
+
+**Chelsea part ways with head of women's football Paul Green**\
+`Green first joined Chelsea in February 2013 as part of Emma Hayes’ coaching staff, arriving from Doncaster Rovers Belles.`\
+https://nytimes.com/athletic/7033938/2026/02/09/chelsea-women-paul-green-leaves/
+
 **Chargers to hire Adam Gase as passing game assistant: Source**\
 `Gase, 47, was last the head coach of the New York Jets during the 2019 and 2020 seasons. `\
 https://nytimes.com/athletic/7033942/2026/02/09/chargers-adam-gase-passing-game-assistant/

@@ -1,3 +1,11 @@
+**Red Wings, Tigers partnering with MLB for TV, streaming broadcasts**\
+`FanDuel Sports Network has carried Red Wings and Tigers games since October 2024, but the teams are moving on.`\
+https://nytimes.com/athletic/7028036/2026/02/09/red-wings-tigers-tv-future-mlb-partnership/
+
+**Chelsea part ways with head of women's football Paul Green**\
+`Green first joined Chelsea in February 2013 as part of Emma Hayes’ coaching staff, arriving from Doncaster Rovers Belles.`\
+https://nytimes.com/athletic/7033938/2026/02/09/chelsea-women-paul-green-leaves/
+
 **Chargers to hire Adam Gase as passing game assistant: Source**\
 `Gase, 47, was last the head coach of the New York Jets during the 2019 and 2020 seasons. `\
 https://nytimes.com/athletic/7033942/2026/02/09/chargers-adam-gase-passing-game-assistant/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7033707/2026/02/09/2026-olympic-medals-breaking-cel
 **Gronk on Brady cards vs. Maye cards and the memorabilia he would never sell**\
 `Rob Gronkowski and his family have been getting back into collecting. `\
 https://nytimes.com/athletic/7033083/2026/02/09/gronkowski-brady-maye-football-cards/
-
-**Gateway Funding Doesn’t Have to Be Immediately Restored, Judge Says**\
-`U.S. District Judge Jeannette Vargas had ordered the funding for a $16 billion tunnel project restored last week, but on Monday granted a temporary stay after the federal government appealed her decision.`\
-https://nytimes.com/2026/02/09/nyregion/gateway-rail-tunnel-funding-new-york.html
-
-**Submit your questions for The Athletic's transfer portal mailbag**\
-`<p>The transfer portal is closed.`\
-https://nytimes.com/athletic/7033852/2026/02/09/submit-your-questions-for-the-athletics-transfer-portal-mailbag/
 
