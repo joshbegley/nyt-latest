@@ -1,3 +1,7 @@
+**‘Popcast’ breaks down Bad Bunny’s halftime performance.**\
+`By Jon Caramanica`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/popcast-breaks-down-bad-bunnys-halftime-performance
+
 **Amber Glenn sees mixed emotions in Olympic U.S. gold win, her performance and critics**\
 `Glenn said the backlash she received following political comments was stunning but not a hindrance to her performance. `\
 https://nytimes.com/athletic/7031453/2026/02/08/amber-glenn-figure-skating-olympics-politics-lgbtq-donald-trump/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/the-nfl-has
 **Bad Bunny’s halftime appearance became a political flashpoint.**\
 `By Ben Sisario`\
 https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/bad-bunnys-halftime-appearance-became-a-political-flashpoint
-
-**Cold Deaths in New York Climb to 18 as Frigid Winds Linger**\
-`A person was found dead in the Bronx on Saturday morning, the police said. An 81-year-old man was also found dead on a rooftop, though it was unclear whether the cold was to blame.`\
-https://nytimes.com/2026/02/08/nyregion/extreme-cold-weather-deaths-nyc.html
 
