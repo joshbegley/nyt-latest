@@ -1,3 +1,11 @@
+**A.I. Is Making Doctors Answer a Question: What Are They Really Good For?**\
+`Many physicians find chatbots threatening, but that doesn’t mean they’re giving up on medicine.`\
+https://nytimes.com/2026/02/09/health/ai-chatbots-doctors-medicine.html
+
+**The Elusive Beef Cut Some Chefs Can’t Resist**\
+`Beef shanks are largely absent from major U.S. grocery stores, but that won’t stop those who crave the collagen-rich cut from finding them.`\
+https://nytimes.com/2026/02/09/dining/beef-shanks.html
+
 **Eagles hire Chris Kuper as offensive line coach to replace Jeff Stoutland**\
 `Kuper replaces Stoutland, who had the job for 13 years.`\
 https://nytimes.com/athletic/7033344/2026/02/09/eagles-hire-offensive-line-coach-chris-kuper-jeff-stoutland/
