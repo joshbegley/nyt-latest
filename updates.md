@@ -1,3 +1,11 @@
+**Bar Complaint Filed Over Search of Washington Post Reporter’s Home**\
+`A press group says a prosecutor broke ethics rules by not flagging a law that limits searches for reporting materials.`\
+https://nytimes.com/2026/02/09/us/politics/justice-department-search-washington-post.html
+
+**Denver Broncos mailbag: Submit questions for beat writer Nick Kosmider**\
+`Let us know what's on your mind as the Broncos head toward the draft and free agency.`\
+https://nytimes.com/athletic/7033711/2026/02/09/denver-broncos-mailbag-questions/
+
 **NYU women's basketball breaks Division III record with 82nd straight win**\
 `During NYU's nearly three-year undefeated stretch, only four opponents have lost to the Violets by single digits.`\
 https://nytimes.com/athletic/7033046/2026/02/09/college-women-basketball-nyu-winning-record-diii/
