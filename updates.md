@@ -1,3 +1,15 @@
+**16-year-old American Payton Westcott to represent Mercedes in 2026 F1 Academy season**\
+`Westcott will compete for PREMA Racing in the series and will also continue racing in Italian F4 this year.`\
+https://nytimes.com/athletic/7033517/2026/02/09/payton-westcott-mercedes-f1-academy/
+
+**Seahawks to hold Super Bowl parade Wednesday: What you need to know**\
+`A free, but ticketed trophy celebration will be held at Lumen Field before a two-hour parade through downtown Seattle.`\
+https://nytimes.com/athletic/7033602/2026/02/09/seahawks-super-bowl-60-parade-time-location-details/
+
+**Lamenting ‘Our President’s Overt Racism’**\
+`Readers find the president’s posting of a racist video shameful and in keeping with his previous appeals to white supremacy. Also: Bad Bunny; Trump vs. Harvard; medical A.I.`\
+https://nytimes.com/2026/02/09/opinion/trump-obama-racist-video.html
+
 **NBA Power Rankings: East teams soar into contenders tier; post-deadline roster reset**\
 `Let's examine the familiar faces in new places and how rotations and chemistry may be affected going forward.`\
 https://nytimes.com/athletic/7032989/2026/02/09/nba-power-rankings-knicks-celtics-trade-deadline/
