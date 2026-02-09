@@ -1,3 +1,11 @@
+**Chargers to hire Adam Gase as passing game assistant: Source**\
+`Gase, 47, was last the head coach of the New York Jets during the 2019 and 2020 seasons. `\
+https://nytimes.com/athletic/7033942/2026/02/09/chargers-adam-gase-passing-game-assistant/
+
+**In an astonishing final, Kokomo Murase wins women's snowboard big air gold**\
+`Kokomo Murase added the Olympic title to the World Championship gold she won in 2025. `\
+https://nytimes.com/athletic/7033876/2026/02/09/womens-big-air-final-kokomo-murase-2026-winter-olympics/
+
 **U.S., in dramatic finish, beats Italy to reach mixed doubles curling final vs. Sweden**\
 `Cory Thiesse and Korey Dropkin scored five in the final three ends to win, 9-8, and knock off the defending Olympic champs. `\
 https://nytimes.com/athletic/7033718/2026/02/09/winter-olympics-mixed-doubles-curling-us-italy-sweden-semifinals/

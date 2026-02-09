@@ -1,3 +1,11 @@
+**Chargers to hire Adam Gase as passing game assistant: Source**\
+`Gase, 47, was last the head coach of the New York Jets during the 2019 and 2020 seasons. `\
+https://nytimes.com/athletic/7033942/2026/02/09/chargers-adam-gase-passing-game-assistant/
+
+**In an astonishing final, Kokomo Murase wins women's snowboard big air gold**\
+`Kokomo Murase added the Olympic title to the World Championship gold she won in 2025. `\
+https://nytimes.com/athletic/7033876/2026/02/09/womens-big-air-final-kokomo-murase-2026-winter-olympics/
+
 **U.S., in dramatic finish, beats Italy to reach mixed doubles curling final vs. Sweden**\
 `Cory Thiesse and Korey Dropkin scored five in the final three ends to win, 9-8, and knock off the defending Olympic champs. `\
 https://nytimes.com/athletic/7033718/2026/02/09/winter-olympics-mixed-doubles-curling-us-italy-sweden-semifinals/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/09/nyregion/gateway-rail-tunnel-funding-new-york.htm
 **Submit your questions for The Athletic's transfer portal mailbag**\
 `<p>The transfer portal is closed.`\
 https://nytimes.com/athletic/7033852/2026/02/09/submit-your-questions-for-the-athletics-transfer-portal-mailbag/
-
-**Seahawks embracing role as 'target No. 1' a day after winning Super Bowl 60**\
-`The Seahawks' dominant Super Bowl win already has them as the early betting favorite for next year's title.`\
-https://nytimes.com/athletic/7033798/2026/02/09/seahawks-mike-macdonald-super-bowl-target/
-
-**AP men's basketball Top 25: Arizona unanimous No. 1 again, Houston rockets to No. 3**\
-`Eight of the top 10 teams came from the Big 12 or Big Ten.`\
-https://nytimes.com/athletic/7033754/2026/02/09/ap-mens-basketball-poll-arizona-michigan-houston/
 
