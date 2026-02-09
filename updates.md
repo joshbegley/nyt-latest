@@ -1,3 +1,11 @@
+**Submit your questions for The Athletic's transfer portal mailbag**\
+`<p>The transfer portal is closed.`\
+https://nytimes.com/athletic/7033852/2026/02/09/submit-your-questions-for-the-athletics-transfer-portal-mailbag/
+
+**Seahawks embracing role as 'target No. 1' a day after winning Super Bowl 60**\
+`The Seahawks' dominant Super Bowl win already has them as the early betting favorite for next year's title.`\
+https://nytimes.com/athletic/7033798/2026/02/09/seahawks-mike-macdonald-super-bowl-target/
+
 **Seahawks embracing role as 'target No. 1' a day after winning Super Bowl 60**\
 `The Seahawks' dominant Super Bowl win already has them as the early betting favorite for next year's title.`\
 https://nytimes.com/athletic/7033798/2026/02/09/seahawks-embracing-role-as-target-no-1-a-day-after-winning-super-bowl-60/

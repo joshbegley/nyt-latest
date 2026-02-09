@@ -1,6 +1,10 @@
+**Submit your questions for The Athletic's transfer portal mailbag**\
+`<p>The transfer portal is closed.`\
+https://nytimes.com/athletic/7033852/2026/02/09/submit-your-questions-for-the-athletics-transfer-portal-mailbag/
+
 **Seahawks embracing role as 'target No. 1' a day after winning Super Bowl 60**\
 `The Seahawks' dominant Super Bowl win already has them as the early betting favorite for next year's title.`\
-https://nytimes.com/athletic/7033798/2026/02/09/seahawks-embracing-role-as-target-no-1-a-day-after-winning-super-bowl-60/
+https://nytimes.com/athletic/7033798/2026/02/09/seahawks-mike-macdonald-super-bowl-target/
 
 **AP men's basketball Top 25: Arizona unanimous No. 1 again, Houston rockets to No. 3**\
 `Eight of the top 10 teams came from the Big 12 or Big Ten.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/09/us/bomb-threats-springfield-ohio-haitians.html
 **Bar Complaint Filed Over Search of Washington Post Reporter’s Home**\
 `A press group says a prosecutor broke ethics rules by not flagging a law that limits searches for reporting materials.`\
 https://nytimes.com/2026/02/09/us/politics/justice-department-search-washington-post.html
-
-**Denver Broncos mailbag: Submit questions for beat writer Nick Kosmider**\
-`Let us know what's on your mind as the Broncos head toward the draft and free agency.`\
-https://nytimes.com/athletic/7033711/2026/02/09/denver-broncos-mailbag-questions/
 
