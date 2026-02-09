@@ -1,3 +1,7 @@
+**Mike Macdonald is a defensive mastermind — to win a Super Bowl, he became so much more**\
+`SANTA CLARA, Calif.`\
+https://nytimes.com/athletic/7032434/2026/02/09/mike-macdonald-seattle-seahawks-coaching-style/
+
 **Apple Daily Sentences Show a New Era of Media Peril in Hong Kong**\
 `Two editors and an opinion writer from Jimmy Lai’s now-shuttered newspaper were each sentenced to 10 years in prison, a significant escalation in media prosecution in the once freewheeling city.`\
 https://nytimes.com/2026/02/09/world/asia/jimmy-lai-apple-daily-media.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7032347/2026/02/09/drake-maye-patriots-offense-supe
 **Word of the Day: resilience**\
 `This word has appeared in 1,286 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/09/learning/word-of-the-day-resilience.html
-
-**‘You Cannot Feel Remotely Sorry for the Patriots’: Opinion Writers Tackle the Super Bowl**\
-`Super Bowl LX is in the books. An Opinion round table breaks down the game, the entertainment — and the commercials.`\
-https://nytimes.com/2026/02/09/opinion/patriots-seahawks-bad-bunny-super-bowl.html
 
