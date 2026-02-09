@@ -1,3 +1,23 @@
+**The 2026 Milan-Cortina Olympics in Pictures**\
+`As the athletes soared through the air and spun above the ice, New York Times photographers were there to capture the action in Italy.`\
+https://nytimes.com/interactive/2026/02/09/world/olympics/winter-olympics-milano-cortina-photos.html
+
+**Jayson Tatum to practice with Celtics' G League team before recall to NBA**\
+`Brad Stevens said Friday Tatum still has 'a ways to go' in his rehabilitation process, but has 'hit a lot of the thresholds'`\
+https://nytimes.com/athletic/7034451/2026/02/09/jayson-tatum-practice-main-red-claws-g-league/
+
+**Red Sox manager Alex Cora on Bad Bunny's Super Bowl show: 'There were tears'**\
+`Cora, a native of Puerto Rico, praises performance for how it represented his culture.`\
+https://nytimes.com/athletic/7034397/2026/02/09/alex-cora-bad-bunny-super-bowl-show/
+
+**The Latest Victim of a Snowless West: Dog Sledding**\
+`Organizers of the Idaho Dog Sled Challenge said they would no longer hold a major competition after snow conditions forced its cancellation for a third straight year.`\
+https://nytimes.com/2026/02/09/travel/sled-dog-races-canceled-western-united-states.html
+
+**Starmer Pressured to Resign Over Ambassador’s Ties to Epstein**\
+`The British Prime Minister Keir Starmer has been left on politically unstable ground as more political figures call for his resignation over his appointment of the former ambassador to the United States, Peter Mandelson, who has close ties to Jeffrey Epstein.`\
+https://nytimes.com/video/world/europe/100000010700165/prime-minister-starmer-resign.html
+
 **Lindsey Vonn confirms tibia fracture in Olympic crash: 'I tried. I dreamt. I jumped.'**\
 `Vonn confirmed she had a "complex tibia fracture" in a post on Instagram on Monday but said she had no regrets about her Olympic attempt.`\
 https://nytimes.com/athletic/7034483/2026/02/09/lindsey-vonn-injury-update-fracture-olympics-post/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7034366/2026/02/09/world-baseball-classic-abs-pitch
 **Love or Hate Valentine’s Day?**\
 `Whether you’re thrilled about the holiday or ready to kiss it goodbye, we have great picks for you.`\
 https://nytimes.com/interactive/2026/02/09/movies/cul-valentines-day-movies-love-hate.html
-
-**Meta and YouTube Created ‘Digital Casinos,’ Lawyers Argue in Landmark Trial**\
-`Opening statements began in a trial claiming social media companies design addictive products that cause personal injury.`\
-https://nytimes.com/2026/02/09/technology/social-media-addiction-trial.html
-
-**New Email Shows Bard’s President Thanked Epstein for Caribbean Trip**\
-`Leon Botstein, Bard’s president, also invited Jeffrey Epstein to visit a high school linked to Bard College and sent him well wishes after stories were published about his sexual abuse of minors.`\
-https://nytimes.com/2026/02/09/us/bard-leon-botstein-jeffrey-epstein-relationship.html
-
-**USA women’s hockey defeats Switzerland, improving to 3-0 as Canada matchup looms**\
-`The Americans remain undefeated in the preliminary round of the Olympics after a 5-0 win over Switzerland on the eve of Canada vs. USA.`\
-https://nytimes.com/athletic/7033962/2026/02/09/usa-womens-hockey-switzerland-2026-olympics/
-
-**Air Canada Cancels Flights as Cuba Runs Out of Jet Fuel**\
-`The Trump administration’s crackdown on oil shipments to Cuba is beginning to wreak havoc on the Caribbean island’s travel industry.`\
-https://nytimes.com/2026/02/09/world/americas/air-canada-flight-cancellations-cuba-jet-fuel.html
-
-**Catherine O’Hara Died From Pulmonary Embolism, Death Certificate Says**\
-`A death certificate released on Monday also said rectal cancer was an underlying cause for the comedic actress’s death on Jan. 30 at 71.`\
-https://nytimes.com/2026/02/09/movies/catherine-ohara-cause-of-death.html
 
