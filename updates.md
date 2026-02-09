@@ -1,3 +1,11 @@
+**Pilots and Flight Attendants Criticize American Airlines’ Performance**\
+`The unions representing pilots and flight attendants have in recent days publicly criticized American for falling behind Delta Air Lines and United Airlines.`\
+https://nytimes.com/2026/02/09/business/american-airlines-pilots-flight-attendants-unions.html
+
+**Gronk on Brady cards vs. Maye cards and the memorabilia he would never sell**\
+`Rob Gronkowski and his family have been getting back into collecting. `\
+https://nytimes.com/athletic/7033083/2026/02/09/gronkowski-brady-maye-football-cards/
+
 **Gateway Funding Doesn’t Have to Be Immediately Restored, Judge Says**\
 `U.S. District Judge Jeannette Vargas had ordered the funding for a $16 billion tunnel project restored last week, but on Monday granted a temporary stay after the federal government appealed her decision.`\
 https://nytimes.com/2026/02/09/nyregion/gateway-rail-tunnel-funding-new-york.html
