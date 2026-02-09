@@ -1,3 +1,7 @@
+**The N.F.L. has a 10-second delay at its disposal for halftime.**\
+`By Ken Belson`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/the-nfl-has-a-10-second-delay-at-its-disposal-for-halftime
+
 **Bad Bunny’s halftime appearance became a political flashpoint.**\
 `By Ben Sisario`\
 https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/bad-bunnys-halftime-appearance-became-a-political-flashpoint
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/08/world/americas/venezuela-opposition-leaders-relea
 **A liberal group is hosting ‘Bad Bunny Bowl’ watch parties.**\
 `By Marc Tracy`\
 https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/a-liberal-group-is-hosting-bad-bunny-bowl-watch-parties
-
-**Kid Rock is set to offer a halftime alternative.**\
-`By Marc Tracy`\
-https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/kid-rock-is-set-to-offer-a-halftime-alternative
 
