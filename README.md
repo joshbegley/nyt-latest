@@ -1,3 +1,11 @@
+**Mathilde Gremaud beats Eileen Gu to Olympic gold once again in women’s freeski slopestyle**\
+`Mathilde Gremaud retained the title she won in Beijing four years ago, with Eileen Gu once again in silver`\
+https://nytimes.com/athletic/7032654/2026/02/09/eileen-gu-freeski-slopestyle-final-2026-winter-olympics/
+
+**Super Bowl halftime show rankings: Where does Bad Bunny fall among the greats?**\
+`Bad Bunny entertained the Levi's Stadium crowd on Sunday, but where does his Super Bowl halftime show rank among the greats?`\
+https://nytimes.com/athletic/7024793/2026/02/09/super-bowl-bad-bunny-halftime-show-rankings/
+
 **Struijk to miss Chelsea vs. Leeds with hip injury**\
 `Struijk, 26, reported the issue after Friday’s win over Nottingham Forest.`\
 https://nytimes.com/athletic/7032843/2026/02/09/pascal-struijk-leeds-injury-update-chelsea/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7004646/2026/02/09/jhon-duran-zenit-st-petersburg/
 **Is Chris Gotterup the PGA Tour's next big star? The WM Phoenix Open suggested so**\
 `Gotterup won the Sony Open to start 2026 and then beat Hideki Matsuyama in a playoff on Sunday.`\
 https://nytimes.com/athletic/7031974/2026/02/09/chris-gotterup-pga-tour-star-wm-phoenix-open/
-
-**The Seahawks didn't bury the past. They outgrew it**\
-`Seahawks' win wasn't a healing. It was a warning. With their dominant win, they announced themselves as a team that could reign for a while.`\
-https://nytimes.com/athletic/7032415/2026/02/09/seahawks-bright-future-super-bowl-60-patriots/
-
-**How to watch ice dancers Madison Chock and Evan Bates at the 2026 Winter Olympics**\
-`Married ice dance partners Madison Chock and Evan Bates seek their first ever individual Olympic medal.`\
-https://nytimes.com/athletic/7028285/2026/02/09/chock-bates-figure-skating-winter-olympics-how-to-watch/
 
