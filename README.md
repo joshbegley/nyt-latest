@@ -1,3 +1,7 @@
+**Amber Glenn sees mixed emotions in Olympic U.S. gold win, her performance and critics**\
+`Glenn said the backlash she received following political comments was stunning but not a hindrance to her performance. `\
+https://nytimes.com/athletic/7031453/2026/02/08/amber-glenn-figure-skating-olympics-politics-lgbtq-donald-trump/
+
 **Jimmy Lai’s children have led a global campaign for him.**\
 `By David Pierson`\
 https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong/jimmy-lais-children-have-led-a-global-campaign-for-him
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/bad-bunnys-
 **Cold Deaths in New York Climb to 18 as Frigid Winds Linger**\
 `A person was found dead in the Bronx on Saturday morning, the police said. An 81-year-old man was also found dead on a rooftop, though it was unclear whether the cold was to blame.`\
 https://nytimes.com/2026/02/08/nyregion/extreme-cold-weather-deaths-nyc.html
-
-**The Impossible Jump, for All but One**\
-`Ilia Malinin of the United States is the only figure skater to land a quadruple axel in competition. We break down why it’s so hard.`\
-https://nytimes.com/interactive/2026/02/08/sports/ilia-malinin-mens-figure-skating-winter-olympics.html
 
