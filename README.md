@@ -1,6 +1,6 @@
 **Red Wings, Tigers partnering with MLB for TV, streaming broadcasts**\
 `FanDuel Sports Network has carried Red Wings and Tigers games since October 2024, but the teams are moving on.`\
-https://nytimes.com/athletic/7028036/2026/02/09/red-wings-tv-future-mlb-partnership/
+https://nytimes.com/athletic/7028036/2026/02/09/red-wings-tigers-tv-future-mlb-partnership/
 
 **Chelsea part ways with head of women's football Paul Green**\
 `Green first joined Chelsea in February 2013 as part of Emma Hayes’ coaching staff, arriving from Doncaster Rovers Belles.`\
