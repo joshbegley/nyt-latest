@@ -1,3 +1,15 @@
+**‘We Believe Our Mom Is Still Out There,’ Savannah Guthrie Says**\
+`The television host released a video pleading for the public’s help in finding her mother, Nancy, who disappeared from her Arizona home last week. “We are at an hour of desperation,” she said.`\
+https://nytimes.com/2026/02/09/us/savannah-guthrie-kidnapping-video.html
+
+**Milan-Cortina Olympics: Who Leads the Medal Count?**\
+`It can depend on who’s counting — and how.`\
+https://nytimes.com/interactive/2026/02/09/upshot/olympics-medal-table-milan-cortina.html
+
+**Harry Kane's 500 goals: The numbers behind a record-breaking milestone**\
+`The Bayern Munich striker has become the first Englishman to hit 500 goals for club and country`\
+https://nytimes.com/athletic/7004343/2026/02/09/harry-kane-500-goals-bayern-tottenham-england/
+
 **Germany's Philipp Raimund, ski jumper with a fear of heights, wins Olympic gold**\
 `Raimund had never won a World Cup or been to the Olympics, and he has a notable issue for a ski jumper. Still, he's now an Olympic champion.`\
 https://nytimes.com/athletic/7034219/2026/02/09/winter-olympics-philipp-raimund-ski-jumper-fear-of-heights-gold/

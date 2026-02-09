@@ -1,11 +1,3 @@
-**Germany's Philipp Raimund, ski jumper with a fear of heights, wins Olympic gold**\
-`Raimund had never won a World Cup or been to the Olympics, and he has a notable issue for a ski jumper. Still, he's now an Olympic champion.`\
-https://nytimes.com/athletic/7034219/2026/02/09/winter-olympics-philipp-raimund-ski-jumper-fear-of-heights-gold/
-
-**High school classmates Mike Macdonald and Maria Taylor reunite on Super Bowl stage**\
-`Macdonald and Taylor both hail from Roswell, Ga., and she was the more accomplished athlete.`\
-https://nytimes.com/athletic/7034013/2026/02/09/mike-macdonald-maria-taylor-super-bowl/
-
 **Starmer’s Epstein Crisis**\
 `Among the powerful men facing fallout from the files, the one in deepest trouble appears to have never met Epstein: the British prime minister.`\
 https://nytimes.com/2026/02/09/world/starmer-epstein-israel-west-bank.html
@@ -22,8 +14,8 @@ https://nytimes.com/video/world/europe/100000010699778/olympian-medals-breaking-
 `A TV presenter and one of Senegal’s best-known musicians appeared in court on Monday in one of the country’s most high-profile, anti-gay cases in years.`\
 https://nytimes.com/2026/02/09/world/africa/senegal-gay-arrests-diallo-drame.html
 
-**‘We Believe Our Mom Is Still Out There,’ Savannah Guthrie Says in New Video**\
-`The television host pleaded for the public’s help in finding her mother, Nancy, who disappeared from her Arizona home last week. “We are at an hour of desperation,” she said.`\
+**‘We Believe Our Mom Is Still Out There,’ Savannah Guthrie Says**\
+`The television host released a video pleading for the public’s help in finding her mother, Nancy, who disappeared from her Arizona home last week. “We are at an hour of desperation,” she said.`\
 https://nytimes.com/2026/02/09/us/savannah-guthrie-kidnapping-video.html
 
 **Ray Handley, Ill-Fated Giants Coach, Is Dead at 81**\
@@ -37,4 +29,12 @@ https://nytimes.com/2026/02/09/nyregion/tonita-bad-bunny-super-bowl.html
 **Israeli President’s Visit to Australia Prompts Protests and Arrests**\
 `Amid activists’ objections, Prime Minister Anthony Albanese had invited President Isaac Herzog to visit to honor the victims of the Bondi Beach shooting.`\
 https://nytimes.com/2026/02/09/world/australia/israel-herzog-visit-protests.html
+
+**Milan-Cortina Olympics: Who Leads the Medal Count?**\
+`It can depend on who’s counting — and how.`\
+https://nytimes.com/interactive/2026/02/09/upshot/olympics-medal-table-milan-cortina.html
+
+**Harry Kane's 500 goals: The numbers behind a record-breaking milestone**\
+`The Bayern Munich striker has become the first Englishman to hit 500 goals for club and country`\
+https://nytimes.com/athletic/7004343/2026/02/09/harry-kane-500-goals-bayern-tottenham-england/
 
