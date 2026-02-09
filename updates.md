@@ -1,3 +1,7 @@
+**Lai has been held in solitary confinement for more than 1,800 days.**\
+`By Alexandra Stevenson`\
+https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong/lai-has-been-held-in-solitary-confinement-for-more-than-1800-days
+
 **2026 Olympics, Day 2 recap: Lindsey Vonn crashes, U.S. skaters, Breezy Johnson win gold**\
 `It was a day of tragedy and elation for athletes from the U.S. and Italy at the Milan Cortina Winter Olympics on Sunday.`\
 https://nytimes.com/athletic/7031760/2026/02/08/olympics-2026-day-2-recap-lindsey-vonn-ilia-malinin/
