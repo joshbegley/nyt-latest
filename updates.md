@@ -1,3 +1,7 @@
+**Kubiak confirms he will be the next Raiders head coach**\
+`Kubiak joined the Seahawks last offseason, leading an offense that brought home the Offensive Player of the Year and Super Bowl MVP awards.`\
+https://nytimes.com/athletic/7032313/2026/02/09/klint-kubiak-raiders-next-head-coach/
+
 **The New York Times in Print for Monday, Feb. 9, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/09/todays-new-york-times

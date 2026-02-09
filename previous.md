@@ -1,3 +1,7 @@
+**Kubiak confirms he will be the next Raiders head coach**\
+`Kubiak joined the Seahawks last offseason, leading an offense that brought home the Offensive Player of the Year and Super Bowl MVP awards.`\
+https://nytimes.com/athletic/7032313/2026/02/09/klint-kubiak-raiders-next-head-coach/
+
 **The New York Times in Print for Monday, Feb. 9, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/09/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7031003/2026/02/09/brighton-hurzeler-premier-league
 **The many sides of Everton**\
 `Everton are still in the race for Europe — but significant questions remain for David Moyes and his squad`\
 https://nytimes.com/athletic/7029704/2026/02/09/everton-david-moyes-many-sides/
-
-**Arsenal and Martin Zubimendi know how to break open tight games - from distance**\
-`Mikel Arteta often refers to different 'weapons' his side possess - his Spanish midfielder is proving his point `\
-https://nytimes.com/athletic/7029702/2026/02/09/arsenal-martin-zubimendi-goals-outside-the-box/
 
