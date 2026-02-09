@@ -1,3 +1,7 @@
+**Apple Daily Sentences Show a New Era of Media Peril in Hong Kong**\
+`Two editors and an opinion writer from Jimmy Lai’s now-shuttered newspaper were each sentenced to 10 years in prison, a significant escalation in media prosecution in the once freewheeling city.`\
+https://nytimes.com/2026/02/09/world/asia/jimmy-lai-apple-daily-media.html
+
 **Tisch to Name Leaders of Catholic and Black Churches as N.Y.P.D. Chaplains**\
 `Cardinal Timothy Dolan and the Rev. A.R. Bernard are to be announced as co-heads of the Police Department’s chaplains’ unit.`\
 https://nytimes.com/2026/02/09/us/nypd-chaplains-tisch-dolan-bernard.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/09/learning/word-of-the-day-resilience.html
 **‘You Cannot Feel Remotely Sorry for the Patriots’: Opinion Writers Tackle the Super Bowl**\
 `Super Bowl LX is in the books. An Opinion round table breaks down the game, the entertainment — and the commercials.`\
 https://nytimes.com/2026/02/09/opinion/patriots-seahawks-bad-bunny-super-bowl.html
-
-**Kubiak confirms he will be the next Raiders head coach**\
-`Kubiak joined the Seahawks last offseason, leading an offense that brought home the Offensive Player of the Year and Super Bowl MVP awards.`\
-https://nytimes.com/athletic/7032313/2026/02/09/klint-kubiak-raiders-next-head-coach/
 

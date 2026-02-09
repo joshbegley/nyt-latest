@@ -1,3 +1,7 @@
+**Apple Daily Sentences Show a New Era of Media Peril in Hong Kong**\
+`Two editors and an opinion writer from Jimmy Lai’s now-shuttered newspaper were each sentenced to 10 years in prison, a significant escalation in media prosecution in the once freewheeling city.`\
+https://nytimes.com/2026/02/09/world/asia/jimmy-lai-apple-daily-media.html
+
 **Tisch to Name Leaders of Catholic and Black Churches as N.Y.P.D. Chaplains**\
 `Cardinal Timothy Dolan and the Rev. A.R. Bernard are to be announced as co-heads of the Police Department’s chaplains’ unit.`\
 https://nytimes.com/2026/02/09/us/nypd-chaplains-tisch-dolan-bernard.html
