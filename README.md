@@ -1,3 +1,7 @@
+**Bad Bunny delivers a love letter to Puerto Rico and the power of song.**\
+`By Jon Pareles, Ben Sisario and Lindsay Zoladz`\
+https://nytimes.com/2026/02/08/arts/music/bad-bunny-delivers-a-love-letter-to-puerto-rico-and-the-power-of-song.html
+
 **An alternative halftime show pays tribute to Charlie Kirk.**\
 `By Marc Tracy`\
 https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/an-alternative-halftime-show-pays-tribute-to-charlie-kirk
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7031453/2026/02/08/amber-glenn-figure-skating-olymp
 **Jimmy Lai’s children have led a global campaign for him.**\
 `By David Pierson`\
 https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong/jimmy-lais-children-have-led-a-global-campaign-for-him
-
-**In Japan, Investors Give an Exuberant Welcome to Takaichi’s Big Win**\
-`Stocks climbed on Monday as investors cheered a result seen as a mandate for the prime minister’s high-spending economic agenda.`\
-https://nytimes.com/2026/02/08/business/japan-stocks-sanae-takaichi.html
 
