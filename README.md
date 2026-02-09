@@ -1,3 +1,7 @@
+**Which Bad Bunny Halftime Show Did You See?**\
+`We weren’t prepared for the emotional roller coaster Bad Bunny Benito Antonio Martínez Ocasio, took us on.`\
+https://nytimes.com/2026/02/09/opinion/bad-bunny-super-bowl-americans.html
+
 **Pockets of Republican Pushback to ICE Facilities Point to MAGA Fissures**\
 `Signs of fractures on the right, often fueled by the Trump administration’s actions, keep stacking up.`\
 https://nytimes.com/2026/02/09/us/politics/ice-detention-centers-republicans-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010700165/prime-minister-starmer-re
 **Lindsey Vonn confirms tibia fracture in Olympic crash: 'I tried. I dreamt. I jumped.'**\
 `Vonn confirmed she had a "complex tibia fracture" in a post on Instagram on Monday but said she had no regrets about her Olympic attempt.`\
 https://nytimes.com/athletic/7034483/2026/02/09/lindsey-vonn-injury-update-fracture-olympics-post/
-
-**Canada's win over Czech Republic in Olympic women's hockey overshadowed by Poulin's exit**\
-`Marie-Philip Poulin's status for Canada's highly anticipated matchup with the United States on Tuesday is unknown.`\
-https://nytimes.com/athletic/7034109/2026/02/09/canada-czechia-olympics-womens-hockey-2026/
 
