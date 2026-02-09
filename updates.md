@@ -1,3 +1,11 @@
+**At Milan sports bar, Super Bowl 60 packs house with Winter Olympic nomads**\
+`If you happened to be in Milan early Monday and had to watch Super Bowl 60, the place to be was Offside Sports Pub.`\
+https://nytimes.com/athletic/7032085/2026/02/08/super-bowl-lx-milan-cortina-olympics-bar/
+
+**The Child in Bad Bunny’s Halftime Show Was an Actor**\
+`There was much speculation about the boy’s identity. The young actor posted on social media about his experience as part of Bad Bunny’s performance.`\
+https://nytimes.com/2026/02/08/arts/music/child-actor-bad-bunny-halftime.html
+
 **Cadillac F1 team unveils livery, dual-color car design in Super Bowl commercial**\
 `For Cadillac's first few years in F1, it will use Ferrari engines.`\
 https://nytimes.com/athletic/7032042/2026/02/08/cadillac-f1-car-livery-super-bowl-2026-commercial/
