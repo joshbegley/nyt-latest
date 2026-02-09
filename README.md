@@ -1,3 +1,11 @@
+**Bar Complaint Filed Over Search of Washington Post Reporter’s Home**\
+`A press group says a prosecutor broke ethics rules by not flagging a law that limits searches for reporting materials.`\
+https://nytimes.com/2026/02/09/us/politics/justice-department-search-washington-post.html
+
+**Denver Broncos mailbag: Submit questions for beat writer Nick Kosmider**\
+`Let us know what's on your mind as the Broncos head toward the draft and free agency.`\
+https://nytimes.com/athletic/7033711/2026/02/09/denver-broncos-mailbag-questions/
+
 **NYU women's basketball breaks Division III record with 82nd straight win**\
 `During NYU's nearly three-year undefeated stretch, only four opponents have lost to the Violets by single digits.`\
 https://nytimes.com/athletic/7033046/2026/02/09/college-women-basketball-nyu-winning-record-diii/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7033517/2026/02/09/payton-westcott-mercedes-f1-acad
 **Seahawks to hold Super Bowl parade Wednesday: What you need to know**\
 `A free, but ticketed trophy celebration will be held at Lumen Field before a two-hour parade through downtown Seattle.`\
 https://nytimes.com/athletic/7033602/2026/02/09/seahawks-super-bowl-60-parade-time-location-details/
-
-**Lamenting ‘Our President’s Overt Racism’**\
-`Readers find the president’s posting of a racist video shameful and in keeping with his previous appeals to white supremacy. Also: Bad Bunny; Trump vs. Harvard; medical A.I.`\
-https://nytimes.com/2026/02/09/opinion/trump-obama-racist-video.html
-
-**NBA Power Rankings: East teams soar into contenders tier; post-deadline roster reset**\
-`Let's examine the familiar faces in new places and how rotations and chemistry may be affected going forward.`\
-https://nytimes.com/athletic/7032989/2026/02/09/nba-power-rankings-knicks-celtics-trade-deadline/
 
