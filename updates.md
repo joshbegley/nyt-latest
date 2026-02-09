@@ -1,3 +1,19 @@
+**FPL Gameweek 26 preview: Irrepressible Rogers, Palmer punt and Sarr the star**\
+`With fixtures beginning to swing for several sides, this feels like one of those pivotal moments where one smart move can set you up well`\
+https://nytimes.com/athletic/7031527/2026/02/09/fantasy-premier-league-fpl-tips-gameweek-26/
+
+**Liverpool's naivety cost them against Manchester City – but it made the game a classic**\
+`Arne Slot's Liverpool just want to play, they don’t want to think. That's great news for neutrals`\
+https://nytimes.com/athletic/7032612/2026/02/09/liverpool-naivety-manchester-city-premier-league/
+
+**Cowboys survey results: Who is Dallas' most overrated player? Grading recent DC hire**\
+`You shared your thoughts on Schottenheimer's first season, the DC hire, Dak Prescott and the Cowboys' two first-round draft picks.`\
+https://nytimes.com/athletic/7031536/2026/02/09/cowboys-survey-schottenheimer-prescott-dc/
+
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`Post your questions to our Newcastle writer Chris Waugh, who will endeavour to answer as many as possible`\
+https://nytimes.com/athletic/7032607/2026/02/09/inside-newcastle-qa-premier-league-eddie-howe/
+
 **Inside Barcelona: Laporta eyeing another term as elections begin. Plus: Bernal is back**\
 `Joan Laporta is the strong favourite as Barca's elections kick off, while Marc Bernal made up for lost time against Real Mallorca`\
 https://nytimes.com/athletic/7032653/2026/02/09/inside-barcelona-laporta-bernal-analysis/

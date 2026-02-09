@@ -1,3 +1,19 @@
+**FPL Gameweek 26 preview: Irrepressible Rogers, Palmer punt and Sarr the star**\
+`With fixtures beginning to swing for several sides, this feels like one of those pivotal moments where one smart move can set you up well`\
+https://nytimes.com/athletic/7031527/2026/02/09/fantasy-premier-league-fpl-tips-gameweek-26/
+
+**Liverpool's naivety cost them against Manchester City – but it made the game a classic**\
+`Arne Slot's Liverpool just want to play, they don’t want to think. That's great news for neutrals`\
+https://nytimes.com/athletic/7032612/2026/02/09/liverpool-naivety-manchester-city-premier-league/
+
+**Cowboys survey results: Who is Dallas' most overrated player? Grading recent DC hire**\
+`You shared your thoughts on Schottenheimer's first season, the DC hire, Dak Prescott and the Cowboys' two first-round draft picks.`\
+https://nytimes.com/athletic/7031536/2026/02/09/cowboys-survey-schottenheimer-prescott-dc/
+
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`Post your questions to our Newcastle writer Chris Waugh, who will endeavour to answer as many as possible`\
+https://nytimes.com/athletic/7032607/2026/02/09/inside-newcastle-qa-premier-league-eddie-howe/
+
 **Inside Barcelona: Laporta eyeing another term as elections begin. Plus: Bernal is back**\
 `Joan Laporta is the strong favourite as Barca's elections kick off, while Marc Bernal made up for lost time against Real Mallorca`\
 https://nytimes.com/athletic/7032653/2026/02/09/inside-barcelona-laporta-bernal-analysis/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7028285/2026/02/09/chock-bates-figure-skating-winte
 **Luke Clanton, Neal Shipley make TGL debuts. What does it mean for the odds?**\
 `With the PGA Tour in California both teams will rely on substitutes to fill out their gameday lineups.`\
 https://nytimes.com/athletic/7031588/2026/02/09/tgl-match-8-lineups-luke-clanton-neal-shipley-debut/
-
-**Ryan Reynolds and Rob Mac on five years at Wrexham: 'We've just got started'**\
-`The co-owners reflected on their five years in charge of Wrexham — and the importance of building a sustainable future`\
-https://nytimes.com/athletic/7026874/2026/02/09/ryan-reynolds-rob-mac-wrexham-five-years-anniversary/
-
-**Maple Leafs trade deadline tiers: Who's likely to stay? Who's likely to go?**\
-`The Toronto Maple Leafs were in the midst of a last-place season the last time they sold at the trade deadline.`\
-https://nytimes.com/athletic/7024854/2026/02/09/maple-leafs-trade-deadline-tiers-laughton-mcmann/
-
-**Inside Real Madrid: Why is Dani Carvajal 'p****d off'?**\
-`Sunday's 2-0 victory at Valencia brought several positives for Real Madrid, but the future of 34-year-old captain Carvajal is up in the air`\
-https://nytimes.com/athletic/7032580/2026/02/09/real-madrid-carvajal-future-valencia-la-liga/
-
-**The Death Toll in Ukraine**\
-`We are covering the latest from the war.`\
-https://nytimes.com/2026/02/09/briefing/the-death-toll-in-ukraine.html
 
