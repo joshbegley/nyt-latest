@@ -1,3 +1,7 @@
+**Bomb Threats Disrupt Ohio City in Immigration Spotlight**\
+`Schools, city offices and businesses were locked down in Springfield, Ohio, where more than 10,000 Haitians have settled in recent years.`\
+https://nytimes.com/2026/02/09/us/bomb-threats-springfield-ohio-haitians.html
+
 **Bar Complaint Filed Over Search of Washington Post Reporter’s Home**\
 `A press group says a prosecutor broke ethics rules by not flagging a law that limits searches for reporting materials.`\
 https://nytimes.com/2026/02/09/us/politics/justice-department-search-washington-post.html

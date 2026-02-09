@@ -1,3 +1,7 @@
+**Bomb Threats Disrupt Ohio City in Immigration Spotlight**\
+`Schools, city offices and businesses were locked down in Springfield, Ohio, where more than 10,000 Haitians have settled in recent years.`\
+https://nytimes.com/2026/02/09/us/bomb-threats-springfield-ohio-haitians.html
+
 **Bar Complaint Filed Over Search of Washington Post Reporter’s Home**\
 `A press group says a prosecutor broke ethics rules by not flagging a law that limits searches for reporting materials.`\
 https://nytimes.com/2026/02/09/us/politics/justice-department-search-washington-post.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/09/dining/minneapolis-ice-grocery-stores-hunger.html
 **16-year-old American Payton Westcott to represent Mercedes in 2026 F1 Academy season**\
 `Westcott will compete for PREMA Racing in the series and will also continue racing in Italian F4 this year.`\
 https://nytimes.com/athletic/7033517/2026/02/09/payton-westcott-mercedes-f1-academy/
-
-**Seahawks to hold Super Bowl parade Wednesday: What you need to know**\
-`A free, but ticketed trophy celebration will be held at Lumen Field before a two-hour parade through downtown Seattle.`\
-https://nytimes.com/athletic/7033602/2026/02/09/seahawks-super-bowl-60-parade-time-location-details/
 

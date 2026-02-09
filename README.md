@@ -1,3 +1,7 @@
+**Amanda Anisimova retires from Qatar Open with physical issues, ending title defense at first hurdle**\
+`The American had her blood pressure checked early in the third set of her match against Karolína Plíšková, before retiring two games later.`\
+https://nytimes.com/athletic/7033708/2026/02/09/amanda-anisimova-qatar-open-karolina-pliskova/
+
 **Bomb Threats Disrupt Ohio City in Immigration Spotlight**\
 `Schools, city offices and businesses were locked down in Springfield, Ohio, where more than 10,000 Haitians have settled in recent years.`\
 https://nytimes.com/2026/02/09/us/bomb-threats-springfield-ohio-haitians.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7033511/2026/02/09/mathilde-gremaud-eileen-gu-frees
 **Hungry Families, ICE and Secret Grocery Networks in Minneapolis**\
 `As immigrants become increasingly afraid to leave their homes for fear of being detained, access to food, including free school lunches, is being cut off.`\
 https://nytimes.com/2026/02/09/dining/minneapolis-ice-grocery-stores-hunger.html
-
-**16-year-old American Payton Westcott to represent Mercedes in 2026 F1 Academy season**\
-`Westcott will compete for PREMA Racing in the series and will also continue racing in Italian F4 this year.`\
-https://nytimes.com/athletic/7033517/2026/02/09/payton-westcott-mercedes-f1-academy/
 
