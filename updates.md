@@ -1,3 +1,7 @@
+**Bad Bunny delivers a love letter to Puerto Rico and the power of song.**\
+`By Jon Pareles, Ben Sisario and Lindsay Zoladz`\
+https://nytimes.com/2026/02/08/arts/music/bad-bunny-delivers-a-love-letter-to-puerto-rico-and-the-power-of-song.html
+
 **An alternative halftime show pays tribute to Charlie Kirk.**\
 `By Marc Tracy`\
 https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/an-alternative-halftime-show-pays-tribute-to-charlie-kirk
