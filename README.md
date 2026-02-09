@@ -1,3 +1,7 @@
+**Bad Bunny’s Halftime Show: Our Instant Reactions**\
+`Popcast’s immediate thoughts after Bad Bunny took the stage for a tribute to his native Puerto Rico.`\
+https://nytimes.com/2026/02/08/arts/music/bad-bunny-super-bowl-halftime-reactions.html
+
 **At Milan sports bar, Super Bowl 60 packs house with Winter Olympic nomads**\
 `If you happened to be in Milan early Monday and had to watch Super Bowl 60, the place to be was Offside Sports Pub.`\
 https://nytimes.com/athletic/7032085/2026/02/08/super-bowl-lx-milan-cortina-olympics-bar/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029177/2026/02/08/super-bowl-61-location-logo-host
 **Seahawks bully Drake Maye, Patriots on way to dominant Super Bowl 60 win**\
 `Seattle won its second championship with a 29-13 victory Sunday, forcing three turnovers while thwarting New England's upset bid.`\
 https://nytimes.com/athletic/7030353/2026/02/08/super-bowl-2026-winner-score-results-seahawks-patriots/
-
-**The Seahawks blocked out the BS. Now they're Super Bowl champions**\
-`The Seahawks were on a mission, brushing aside anything that could distract from their goal. And now? Mission accomplished.`\
-https://nytimes.com/athletic/7030470/2026/02/08/super-bowl-seahawks-champions-winning-strategy/
 
