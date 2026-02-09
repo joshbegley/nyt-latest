@@ -1,3 +1,15 @@
+**Mathilde Gremaud beats Eileen Gu to Olympic gold once again in women’s freeski slopestyle**\
+`Mathilde Gremaud retained the title she won in Beijing four years ago, with Eileen Gu once again in silver`\
+https://nytimes.com/athletic/7032654/2026/02/09/eileen-gu-freeski-slopestyle-final-2026-winter-olympics/
+
+**Super Bowl halftime show rankings: Where does Bad Bunny fall among the greats?**\
+`Bad Bunny entertained the Levi's Stadium crowd on Sunday, but where does his Super Bowl halftime show rank among the greats?`\
+https://nytimes.com/athletic/7024793/2026/02/09/super-bowl-bad-bunny-halftime-show-rankings/
+
+**Struijk to miss Chelsea vs. Leeds with hip injury**\
+`Struijk, 26, reported the issue after Friday’s win over Nottingham Forest.`\
+https://nytimes.com/athletic/7032843/2026/02/09/pascal-struijk-leeds-injury-update-chelsea/
+
 **FPL Gameweek 26 preview: Irrepressible Rogers, Palmer punt and Sarr the star**\
 `With fixtures beginning to swing for several sides, this feels like one of those pivotal moments where one smart move can set you up well`\
 https://nytimes.com/athletic/7031527/2026/02/09/fantasy-premier-league-fpl-tips-gameweek-26/
