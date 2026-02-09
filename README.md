@@ -1,3 +1,11 @@
+**Venezuela Frees Key Opposition Figures as Government Courts U.S. Support**\
+`The release of around 35 political prisoners comes amid closer cooperation between Washington and the interim government.`\
+https://nytimes.com/2026/02/08/world/americas/venezuela-opposition-leaders-released.html
+
+**A liberal group is hosting ‘Bad Bunny Bowl’ watch parties.**\
+`By Marc Tracy`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/a-liberal-group-is-hosting-bad-bunny-bowl-watch-parties
+
 **Kid Rock is set to offer a halftime alternative.**\
 `By Marc Tracy`\
 https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/kid-rock-is-set-to-offer-a-halftime-alternative
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny
 **Bad Bunny made history one week ago at the Grammys.**\
 `By David Browne`\
 https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/bad-bunny-made-history-one-week-ago-at-the-grammys
-
-**Here’s the latest.**\
-`By Ben Sisario`\
-https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/heres-the-latest
-
-**How Canada’s Olympic men's hockey initial practice lines showcase planned identity**\
-`Tom Wilson and Macklin Celebrini were not at the 4 Nations Face-Off. Now they are on Canada's top line at the Olympics. It says a lot.`\
-https://nytimes.com/athletic/7031830/2026/02/08/olympic-mens-hockey-2026-team-canada-practice-lines-identity/
 
