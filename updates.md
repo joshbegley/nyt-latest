@@ -1,3 +1,11 @@
+**Starmer’s Epstein Crisis**\
+`Among the powerful men facing fallout from the files, the one in deepest trouble appears to have never met Epstein: the British prime minister.`\
+https://nytimes.com/2026/02/09/world/starmer-epstein-israel-west-bank.html
+
+**Canada's Marie-Philip Poulin exits game after taking hit by Czech Republic's Kaltounková**\
+`Poulin, the greatest women's hockey player of all time, exited Monday's group-stage game against the Czech Republic and has not returned.`\
+https://nytimes.com/athletic/7034161/2026/02/09/canada-womens-hockey-marie-philip-poulin-czech-republic/
+
 **Olympic Athletes Jump For Joy and Break Their Medals**\
 `As Olympians report their medals detaching from their ribbons, game organizers are scrambling to fix the issue. This is not the first time that Olympic medals have had issues. Over a 100 athletes from the Paris Olympics in 2024 reported that their medals deteriorated.`\
 https://nytimes.com/video/world/europe/100000010699778/olympian-medals-breaking-milan.html
