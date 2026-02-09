@@ -1,3 +1,17 @@
+**Family Court Is Flooded by Cases It Can’t Address, Top N.Y. Judge Says**\
+`Judge Rowan D. Wilson says poverty and issues like mental illness, which the courts struggle to deal with, drive many of the cases that end up in family court.`\
+https://nytimes.com/2026/02/09/nyregion/new-york-family-court-reform.html
+
+**Review: Finding the Clarity in Mahler’s Enigmatic Third Symphony**\
+`Iván Fischer and the Budapest Festival Orchestra led an illuminating journey through one of Mahler’s less heard symphonies at Carnegie Hall.`\
+https://nytimes.com/2026/02/09/arts/music/review-mahler-ivan-fischer-budapest-festival-orchestra.html
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Nothing like a little February conference realignment news &#8212; welcome to the Show, North Dakota State.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/7033549/2026/02/09/submit-a-question-for-stewart-mandels-college-football-mailbag-334/
+
 **A.I. Is Making Doctors Answer a Question: What Are They Really Good For?**\
 `Many physicians find chatbots threatening, but that doesn’t mean they’re giving up on medicine.`\
 https://nytimes.com/2026/02/09/health/ai-chatbots-doctors-medicine.html
