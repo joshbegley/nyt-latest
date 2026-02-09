@@ -1,3 +1,7 @@
+**Kenneth Walker III named Super Bowl 60 MVP after Seahawks defeat Patriots**\
+`The running back helped the Seattle offense control much of the game on a day when Jaxon Smith-Njigba was held in check.`\
+https://nytimes.com/athletic/7031979/2026/02/08/super-bowl-2026-mvp-kenneth-walker-seahawks/
+
 **Cadillac F1 team unveils livery, dual-color car design for 2026 in Super Bowl commercial**\
 `Cadillac unveiled a silver-and-black livery with an ad staking its claim as America's F1 team. `\
 https://nytimes.com/athletic/7032042/2026/02/08/cadillac-f1-car-livery-super-bowl-2026-commercial/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/08/arts/music/bad-bunny-super-bowl-halftime-puerto-r
 **Turning Point USA’s Halftime Show Pays Tribute to Charlie Kirk**\
 `Kid Rock was the headliner at the streamed concert pitched as a conservative alternative to Bad Bunny’s main event at the Super Bowl on Sunday night.`\
 https://nytimes.com/2026/02/08/us/politics/turning-point-usa-super-bowl-halftime-charlie-kirk.html
-
-**Cardi B, Lady Gaga and Ricky Martin Join Bad Bunny at Halftime**\
-`The Super Bowl headliner brought out stars to join the celebration.`\
-https://nytimes.com/2026/02/08/us/bad-bunny-super-bowl-lady-gaga-ricky-martin-cardi-b.html
 
