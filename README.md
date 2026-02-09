@@ -1,3 +1,7 @@
+**The Bounce: Will Anthony Davis play for the Wizards? Plus, two dunks you must see**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7033023/2026/02/09/anthony-davis-wizards-dunks-bam-adebayo-anthony-edwards-the-bounce/
+
 **Venezuela Rearrests Key Opposition Leader Hours After Releasing Him**\
 `Hours after releasing Juan Pablo Guanipa, a centrist opposition party leader, the Venezuelan interim government took him back into custody after it said he breached the terms of his release conditions.`\
 https://nytimes.com/video/world/americas/100000010699751/venezuela-opposition-leader-guanipa-released-arrested.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7033059/2026/02/09/red-sox-caleb-durbin-trade-brewe
 **Submit your college basketball questions for our mailbag**\
 `With five weeks until Selection Sunday, what's on your mind?`\
 https://nytimes.com/athletic/7033113/2026/02/09/college-basketball-mailbag-questions/
-
-**Premier League data notebook: Arsenal's offside sorcery, Newcastle's trouble with leads, Spurs' card frenzy**\
-`The Athletic's data writers break down the key storylines from the weekend's action`\
-https://nytimes.com/athletic/7032599/2026/02/09/premier-league-data-notebook-md25-arsenal-newcastle-spurs/
 
