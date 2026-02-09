@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2026/02/09/world/olympics/winter-olympics-milano-cortina-photos.html
 
 **Jayson Tatum to practice with Celtics' G League team before recall to NBA**\
-`Brad Stevens said Friday Tatum still has 'a ways to go' in his rehabilitation process, but has 'hit a lot of the thresholds'`\
+`Brad Stevens said Friday Tatum still has 'a ways to go' in his rehabilitation process, but has 'hit a lot of the thresholds.'`\
 https://nytimes.com/athletic/7034451/2026/02/09/jayson-tatum-practice-main-red-claws-g-league/
 
 **Red Sox manager Alex Cora on Bad Bunny's Super Bowl show: 'There were tears'**\
