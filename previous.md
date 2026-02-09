@@ -1,3 +1,7 @@
+**Duran joins Zenit St. Petersburg on loan from Al Nassr**\
+`Duran cut short his season-long loan at Fenerbahce and will spend the second half of the season at the Russian club.`\
+https://nytimes.com/athletic/7004646/2026/02/09/jhon-duran-zenit-st-petersburg/
+
 **Is Chris Gotterup the PGA Tour's next big star? The WM Phoenix Open suggested so**\
 `Gotterup won the Sony Open to start 2026 and then beat Hideki Matsuyama in a playoff on Sunday.`\
 https://nytimes.com/athletic/7031974/2026/02/09/chris-gotterup-pga-tour-star-wm-phoenix-open/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/09/briefing/the-death-toll-in-ukraine.html
 **The journey didn't break Sam Darnold; it made him into a Super Bowl champion**\
 `The quarterback's career turnaround was an exercise in patience and belief.`\
 https://nytimes.com/athletic/7032480/2026/02/09/sam-darnold-super-bowl-career-turnaround/
-
-**Mike Vrabel's leadership got the Patriots to the Super Bowl, but it wasn’t enough to win**\
-`The NFL's Coach of the Year made all the right moves during the season, but little seemed to work on Sunday against the Seahawks.`\
-https://nytimes.com/athletic/7032318/2026/02/09/mike-vrabel-patriots-seahawks-super-bowl-60/
 

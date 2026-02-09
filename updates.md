@@ -1,3 +1,7 @@
+**Duran joins Zenit St. Petersburg on loan from Al Nassr**\
+`Duran cut short his season-long loan at Fenerbahce and will spend the second half of the season at the Russian club.`\
+https://nytimes.com/athletic/7004646/2026/02/09/jhon-duran-zenit-st-petersburg/
+
 **Is Chris Gotterup the PGA Tour's next big star? The WM Phoenix Open suggested so**\
 `Gotterup won the Sony Open to start 2026 and then beat Hideki Matsuyama in a playoff on Sunday.`\
 https://nytimes.com/athletic/7031974/2026/02/09/chris-gotterup-pga-tour-star-wm-phoenix-open/

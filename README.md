@@ -1,4 +1,8 @@
-**Duran joins Zenit St. Petersburg on loan from Al Nassr**\
+**Inside Barcelona: Laporta eyeing another term as elections begin. Plus: Bernal is back**\
+`Joan Laporta is the strong favourite as Barca's elections kick off, while Marc Bernal made up for lost time against Real Mallorca`\
+https://nytimes.com/athletic/7032653/2026/02/09/inside-barcelona-laporta-bernal-analysis/
+
+**Duran joins Zenit on loan from Al Nassr**\
 `Duran cut short his season-long loan at Fenerbahce and will spend the second half of the season at the Russian club.`\
 https://nytimes.com/athletic/7004646/2026/02/09/jhon-duran-zenit-st-petersburg/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7032580/2026/02/09/real-madrid-carvajal-future-vale
 **The Death Toll in Ukraine**\
 `We are covering the latest from the war.`\
 https://nytimes.com/2026/02/09/briefing/the-death-toll-in-ukraine.html
-
-**The journey didn't break Sam Darnold; it made him into a Super Bowl champion**\
-`The quarterback's career turnaround was an exercise in patience and belief.`\
-https://nytimes.com/athletic/7032480/2026/02/09/sam-darnold-super-bowl-career-turnaround/
 
