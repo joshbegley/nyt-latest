@@ -1,3 +1,19 @@
+**Watch Bad Bunny talk about his ‘most Puerto Rican album.’**\
+`By Joe Coscarelli and Jon Caramanica`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/watch-bad-bunny-talk-about-his-most-puerto-rican-album
+
+**A burger is selling for $180 at the Super Bowl. I ate it to bring you all the details**\
+`The LX Burger includes braised veal shank, mire poix demi-glace, point reyes blue fondue and a house-baked brioche bun. It serves four.`\
+https://nytimes.com/athletic/7031832/2026/02/08/burger-180-dollars-super-bowl-food/
+
+**Bad Bunny’s singular stage name? Blame it on a childhood snapshot.**\
+`By Derrick Bryson Taylor`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/bad-bunny-name
+
+**Activists hand out 'ICE OUT' towels before Super Bowl near Levi's Stadium**\
+`The towel distributors are part of the group "Contra-ICE."`\
+https://nytimes.com/athletic/7031887/2026/02/08/ice-out-towels-super-bowl-levis-stadium/
+
 **Live Updates: Bad Bunny Set to Take Super Bowl Halftime Stage**\
 `The Puerto Rican musician won album of the year at the Grammy Awards. It will be the first halftime show to be performed entirely in Spanish, and his appearance has become a political flashpoint amid his criticism of ICE.`\
 https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny
