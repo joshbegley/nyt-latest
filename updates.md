@@ -1,3 +1,11 @@
+**Hong Kong Court Sentences Jimmy Lai to 20 Years in Prison**\
+`A Hong Kong court on Monday sentenced the pro-democracy media mogul Jimmy Lai to 20 years in prison in a trial that has set a new standard for the city’s limits on press freedom.`\
+https://nytimes.com/video/world/asia/100000010699286/jimmy-lai-prison-sentence-hong-kong.html
+
+**Students had Antarctica questions. We answered them.**\
+`Students sent in questions about our reporter’s journey to Antarctica, covering data recovery, clothing and more.`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/students-had-antarctica-questions-we-answered-them
+
 **Starmer’s Communications Chief Quits, Adding to British Leader’s Woes**\
 `Tim Allan is the second senior member of Prime Minister Keir Starmer’s team to depart in less than 24 hours. The latest resignation increases the pressure on Mr. Starmer’s premiership.`\
 https://nytimes.com/2026/02/09/world/europe/keir-starmer-uk-communications-resigns.html
