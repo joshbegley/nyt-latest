@@ -1,3 +1,15 @@
+**Serena Williams, a tale of two Super Bowl appearances, and a tennis comeback in-waiting**\
+`12 months on from her appearance with Kendrick Lamar, the 23-time Grand Slam champion took a very different role.`\
+https://nytimes.com/athletic/7027170/2026/02/09/serena-williams-super-bowl-ad-performance/
+
+**Reacting to Bad Bunny’s Halftime Show**\
+`Jon Caramanica and Joe Coscarelli, the hosts of “Popcast,” share their immediate reactions to Bad Bunny’s Super Bowl halftime show.`\
+https://nytimes.com/video/podcasts/100000010699095/reacting-to-bad-bunnys-halftime-show.html
+
+**Best and Worst of Bad Bunny’s Super Bowl Halftime Show**\
+`The Puerto Rican superstar’s set included cameos, stunts and powerful statements.`\
+https://nytimes.com/2026/02/09/arts/music/bad-bunny-super-bowl-halftime-show-best-worst.html
+
 **Respite From Wind-Driven, Bone-Chilling Cold Weather Is in Sight**\
 `Wind chills below zero were expected to persist across parts of the Northeast and New England on Monday but should finally ease, forecasters said.`\
 https://nytimes.com/2026/02/09/us/extreme-cold-weather-northeast.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/09/realestate/greenwich-village-condo-kyle-odonnell.
 **$2.5 Million Homes in California**\
 `This week’s properties include a ranch house in San Rafael, a Rudolph Schindler design in Los Angeles and a contemporary waterfront home in Lake Arrowhead.`\
 https://nytimes.com/2026/02/09/realestate/los-angeles-san-rafael-lake-arrowhead-home-sales.html
-
-**They’re Just Wild About Harry Styles**\
-`The singer is doing a 30-night residency at Madison Square Garden this summer and fans across the U.S. have already made their travel plans.`\
-https://nytimes.com/2026/02/09/travel/harry-styles-tour-msg-nyc.html
-
-**The Intimate, Luminous Poems Found in Iris Murdoch’s Attic**\
-`The formidable novelist and philosopher, who died in 1999, thought her poetry was mediocre. It’s not.`\
-https://nytimes.com/2026/02/09/books/review/iris-murdoch-poems-from-an-attic.html
-
-**Monks Walk Across a Weary Country, Drawing Crowds With Words of Peace**\
-`A diverse swath of Americans searching for calmness and clarity said they found some, thanks to the Buddhist monks on a 2,300-mile trek from Texas to Washington.`\
-https://nytimes.com/2026/02/09/us/monks-peace-walk.html
 

@@ -1,40 +1,40 @@
-**Seahawks Win Super Bowl, and Bad Bunny Shines at Halftime Show**\
-`The Seattle Seahawks beat the New England Patriots on Sunday to become the Super Bowl champions. Bad Bunny performed the first mostly Spanish-language halftime show.`\
-https://nytimes.com/video/sports/100000010698888/super-bowl-halftime-seahawks-bad-bunny.html
+**Respite From Wind-Driven, Bone-Chilling Cold Weather Is in Sight**\
+`Wind chills below zero were expected to persist across parts of the Northeast and New England on Monday but should finally ease, forecasters said.`\
+https://nytimes.com/2026/02/09/us/extreme-cold-weather-northeast.html
 
-**Why Slovenia, a nation of 2 million, is one of sport's biggest overperformers**\
-`From the ski jumping sensations at the Winter Olympics to Luka Dončić, Slovenia is punching above its weight with sports stars.`\
-https://nytimes.com/athletic/7031154/2026/02/09/slovenia-winter-olympics-ski-jumping-prevc-luka-doncic/
+**Hollywood Braces for New Round of Labor Talks**\
+`The last time writers and actors negotiated contracts, in 2023, dual strikes froze the industry.`\
+https://nytimes.com/2026/02/09/business/media/hollywood-actors-writers-contract-talks.html
 
-**Mike Macdonald is a defensive mastermind — to win a Super Bowl, he became so much more**\
-`In Year 2, Macdonald figured out how to connect more effectively with and lead his entire roster.`\
-https://nytimes.com/athletic/7032434/2026/02/09/mike-macdonald-seattle-seahawks-coaching-style/
+**The Glorious Spectacle of a Republican Gone Rogue**\
+`Thom Tillis vs. the Trump administration.`\
+https://nytimes.com/2026/02/09/opinion/melania-trump-tillis-noem.html
 
-**Apple Daily Sentences Show a New Era of Media Peril in Hong Kong**\
-`Two editors and an opinion writer from Jimmy Lai’s now-shuttered newspaper were each sentenced to 10 years in prison, a significant escalation in media prosecution in the once freewheeling city.`\
-https://nytimes.com/2026/02/09/world/asia/jimmy-lai-apple-daily-media.html
+**Does It Matter What I Wear to Work Out?**\
+`Our critic offers advice on choosing your gear — and thoughts on whether it really affects your performance.`\
+https://nytimes.com/2026/02/09/fashion/workout-clothes-brands-exercise.html
 
-**Tisch to Name Leaders of Catholic and Black Churches as N.Y.P.D. Chaplains**\
-`Cardinal Timothy Dolan and the Rev. A.R. Bernard are to be announced as co-heads of the Police Department’s chaplains’ unit.`\
-https://nytimes.com/2026/02/09/us/nypd-chaplains-tisch-dolan-bernard.html
+**Howe has 'no doubt' he is right for Newcastle**\
+`Howe said he would "never put myself before the club" when asked if his side's form had placed any doubts in his mind over his suitability.`\
+https://nytimes.com/athletic/7032575/2026/02/09/eddie-howe-newcastle-head-coach/
 
-**Jerrold Nadler Has Picked a Successor. Will That Matter to Voters?**\
-`The retiring congressman hopes his endorsement will carry Assemblyman Micah Lasher past a crowded primary field, including a Kennedy.`\
-https://nytimes.com/2026/02/09/nyregion/nadler-lasher-endorsement.html
+**A Designer Moves Upstairs — and Starts Over**\
+`When a sunnier apartment became available in his Greenwich Village condo, Kyle O’Donnell leaped at it, and executed a meticulous renovation filled with bespoke details.`\
+https://nytimes.com/2026/02/09/realestate/greenwich-village-condo-kyle-odonnell.html
 
-**Takeaways From the Second Week of the Alexander Brothers Trial**\
-`The judge denied a request for a mistrial and jurors heard from a woman who accused one of the brothers of filming her when she was a minor. The sex-trafficking trial resumes on Monday.`\
-https://nytimes.com/2026/02/09/nyregion/alexander-brothers-trial-takeaways.html
+**$2.5 Million Homes in California**\
+`This week’s properties include a ranch house in San Rafael, a Rudolph Schindler design in Los Angeles and a contemporary waterfront home in Lake Arrowhead.`\
+https://nytimes.com/2026/02/09/realestate/los-angeles-san-rafael-lake-arrowhead-home-sales.html
 
-**Will This High School Coach Get to 973 Wins Before He Gets Fired?**\
-`After 45 years at a high school in Queens, Ron Naclerio was closing in on the record for most wins in New York State, but was suspended for improperly recruiting players. Would he make it to No. 973 before he got fired?`\
-https://nytimes.com/2026/02/09/nyregion/ron-naclerio-basketball-cardozo-nyc.html
+**They’re Just Wild About Harry Styles**\
+`The singer is doing a 30-night residency at Madison Square Garden this summer and fans across the U.S. have already made their travel plans.`\
+https://nytimes.com/2026/02/09/travel/harry-styles-tour-msg-nyc.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/09/crosswords/spelling-bee-forum.html
+**The Intimate, Luminous Poems Found in Iris Murdoch’s Attic**\
+`The formidable novelist and philosopher, who died in 1999, thought her poetry was mediocre. It’s not.`\
+https://nytimes.com/2026/02/09/books/review/iris-murdoch-poems-from-an-attic.html
 
-**Billionaire Called Epstein a ‘Blessing’ as They Made Deals**\
-`Andrew Farkas has repeatedly played down ties to Jeffrey Epstein. But they swapped business favors in the Virgin Islands, and in nearly 2,000 emails, the two expressed admiration for each other.`\
-https://nytimes.com/2026/02/09/nyregion/farkas-epstein-lawsuit-ties.html
+**Monks Walk Across a Weary Country, Drawing Crowds With Words of Peace**\
+`A diverse swath of Americans searching for calmness and clarity said they found some, thanks to the Buddhist monks on a 2,300-mile trek from Texas to Washington.`\
+https://nytimes.com/2026/02/09/us/monks-peace-walk.html
 
