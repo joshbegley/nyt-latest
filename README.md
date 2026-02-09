@@ -1,3 +1,7 @@
+**‘We Believe Our Mom Is Still Out There,’ Savannah Guthrie Says**\
+`The television host released a video pleading for the public’s help in finding her mother, Nancy, who disappeared from her Arizona home last week. “We are at an hour of desperation,” she said.`\
+https://nytimes.com/2026/02/09/us/savannah-guthrie-kidnapping-video.html
+
 **Ray Handley, Ill-Fated Giants Coach, Is Dead at 81**\
 `He took over a champion N.F.L. team, succeeding the popular Bill Parcells, then led it to two disappointing seasons, drawing the ire of players and fans.`\
 https://nytimes.com/2026/02/09/sports/football/ray-handley-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7034151/2026/02/09/bucks-vs-magic-stream-how-to-wat
 **Scoop City: Defense can still win championships**\
 `The NFL wants to be defined by its quarterbacks and receivers. Last night was about everything else.`\
 https://nytimes.com/athletic/7033969/2026/02/09/seahawks-defense-special-teams-super-bowl-scoop-city/
-
-**How to watch Jazz vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7034144/2026/02/09/jazz-vs-heat-stream-how-to-watch-feb-9/
 
