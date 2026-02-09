@@ -1,3 +1,7 @@
+**Live Updates: Hong Kong Court Sentences Jimmy Lai to 20 Years**\
+`The media tycoon and pro-democracy activist was found guilty of colluding with foreign governments. He could have received life in prison, the harshest penalty under a national security law imposed by Beijing.`\
+https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong
+
 **Lai has been held in solitary confinement for more than 1,800 days.**\
 `By Alexandra Stevenson`\
 https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong/lai-has-been-held-in-solitary-confinement-for-more-than-1800-days

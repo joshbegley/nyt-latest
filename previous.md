@@ -30,8 +30,8 @@ https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong/jimmy-la
 `By David Pierson and Francesca Regalado`\
 https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong/heres-the-latest
 
-**Live Updates: Hong Kong Court to Sentence Jimmy Lai**\
-`The media tycoon and pro-democracy activist was found guilty of colluding with foreign governments. He could receive life in prison, the harshest penalty under a national security law imposed by Beijing.`\
+**Live Updates: Hong Kong Court Sentences Jimmy Lai to 20 Years**\
+`The media tycoon and pro-democracy activist was found guilty of colluding with foreign governments. He could have received life in prison, the harshest penalty under a national security law imposed by Beijing.`\
 https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong
 
 **What Was the Jumpsuit That Mack Hollins Wore?**\
