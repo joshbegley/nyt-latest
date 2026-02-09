@@ -1,3 +1,11 @@
+**A.I. Is Making Doctors Answer a Question: What Are They Really Good For?**\
+`Many physicians find chatbots threatening, but that doesn’t mean they’re giving up on medicine.`\
+https://nytimes.com/2026/02/09/health/ai-chatbots-doctors-medicine.html
+
+**The Elusive Beef Cut Some Chefs Can’t Resist**\
+`Beef shanks are largely absent from major U.S. grocery stores, but that won’t stop those who crave the collagen-rich cut from finding them.`\
+https://nytimes.com/2026/02/09/dining/beef-shanks.html
+
 **Eagles hire Chris Kuper as offensive line coach to replace Jeff Stoutland**\
 `Kuper replaces Stoutland, who had the job for 13 years.`\
 https://nytimes.com/athletic/7033344/2026/02/09/eagles-hire-offensive-line-coach-chris-kuper-jeff-stoutland/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7033183/2026/02/09/daniil-medvedev-tennis-balls-not
 **Trump Is a Global ‘Wrecking Ball,’ European Security Experts Say**\
 `The organizers of the Munich Security Conference, Europe’s main defense-related forum, said in a report that President Trump is helping destroy the postwar international order.`\
 https://nytimes.com/2026/02/09/world/europe/trump-munich-conference-security-report.html
-
-**3 Affordable Lip Liners We Love**\
-`You don’t need to spend a lot of money to get a great quality lip liner. Our panel of testers identified exceptional drugstore products that outperformed many higher-end options.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010700029/3-affordable-lip-liners-we-love.html
-
-**YouTube TV launching lower-cost sports-only package of channels**\
-`"Sports Plus" will be priced about $20 less than YouTube TV's existing 100-channel service.`\
-https://nytimes.com/athletic/7033336/2026/02/09/youtubetv-sports-plan-espn-unlimited/
 

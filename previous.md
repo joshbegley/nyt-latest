@@ -1,3 +1,11 @@
+**Eagles hire Chris Kuper as offensive line coach to replace Jeff Stoutland**\
+`Kuper replaces Stoutland, who had the job for 13 years.`\
+https://nytimes.com/athletic/7033344/2026/02/09/eagles-hire-offensive-line-coach-chris-kuper-jeff-stoutland/
+
+**Which NHL teams are losing their 2026 first-round draft picks? Checking in on trade conditions**\
+`The Maple Leafs, Panthers and Oilers are among teams that may be sending out their first-round picks this year if conditions are met.`\
+https://nytimes.com/athletic/7031347/2026/02/09/nhl-draft-first-round-trade-conditions/
+
 **Court TV, Known for Live Trial Coverage, Is Getting a New Owner**\
 `The E.W. Scripps Company is selling the channel to the parent company of Law&Crime, which wants Court TV to have a bigger streaming presence.`\
 https://nytimes.com/2026/02/09/business/dealbook/court-tv-ew-scripps-sale.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010700029/3-affordable
 **YouTube TV launching lower-cost sports-only package of channels**\
 `"Sports Plus" will be priced about $20 less than YouTube TV's existing 100-channel service.`\
 https://nytimes.com/athletic/7033336/2026/02/09/youtubetv-sports-plan-espn-unlimited/
-
-**Stop Using Liquid Dishwasher Detergent**\
-`Think your dishwasher sucks? Your detergent might actually be the issue.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010699991/stop-using-liquid-dishwasher-detergent.html
-
-**These Birds Are of Different Feathers, but They Flock Together**\
-`Researchers and volunteers in Texas documented birds of different species preening one another. Experts say the behavior may be more common than documented.`\
-https://nytimes.com/2026/02/09/science/birds-preening-species-texas.html
 
