@@ -1,3 +1,11 @@
+**Starmer’s Epstein Crisis**\
+`Among the powerful men facing fallout from the files, the one in deepest trouble appears to have never met Epstein: the British prime minister.`\
+https://nytimes.com/2026/02/09/world/starmer-epstein-israel-west-bank.html
+
+**Canada's Marie-Philip Poulin exits game after taking hit by Czech Republic's Kaltounková**\
+`Poulin, the greatest women's hockey player of all time, exited Monday's group-stage game against the Czech Republic and has not returned.`\
+https://nytimes.com/athletic/7034161/2026/02/09/canada-womens-hockey-marie-philip-poulin-czech-republic/
+
 **Olympic Athletes Jump For Joy and Break Their Medals**\
 `As Olympians report their medals detaching from their ribbons, game organizers are scrambling to fix the issue. This is not the first time that Olympic medals have had issues. Over a 100 athletes from the Paris Olympics in 2024 reported that their medals deteriorated.`\
 https://nytimes.com/video/world/europe/100000010699778/olympian-medals-breaking-milan.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/02/09/upshot/olympics-medal-table-milan-cor
 **Harry Kane's 500 goals: The numbers behind a record-breaking milestone**\
 `The Bayern Munich striker has become the first Englishman to hit 500 goals for club and country`\
 https://nytimes.com/athletic/7004343/2026/02/09/harry-kane-500-goals-bayern-tottenham-england/
-
-**What to Know About Measles as the Virus Spreads**\
-`Here’s why we’re seeing so many cases now, and what to know about the risks of infection.`\
-https://nytimes.com/2026/02/09/well/measles-symptoms-vaccine.html
-
-**Oz Offers Forceful Call for Vaccination as Measles Becomes More Dire**\
-`The comments by the Centers for Medicare and Medicaid Services director come as South Carolina grapples with a large measles outbreak.`\
-https://nytimes.com/2026/02/09/well/dr-mehmet-oz-measles-vaccine.html
 
