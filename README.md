@@ -1,3 +1,19 @@
+**Milan-Cortina Olympics: Who Leads the Medal Count?**\
+`It can depend on who’s counting — and how.`\
+https://nytimes.com/interactive/2026/02/09/upshot/olympics-medal-table-milan-cortina.html
+
+**Harry Kane's 500 goals: The numbers behind a record-breaking milestone**\
+`The Bayern Munich striker has become the first Englishman to hit 500 goals for club and country`\
+https://nytimes.com/athletic/7004343/2026/02/09/harry-kane-500-goals-bayern-tottenham-england/
+
+**What to Know About Measles as the Virus Spreads**\
+`Here’s why we’re seeing so many cases now, and what to know about the risks of infection.`\
+https://nytimes.com/2026/02/09/well/measles-symptoms-vaccine.html
+
+**Oz Offers Forceful Call for Vaccination as Measles Becomes More Dire**\
+`The comments by the Centers for Medicare and Medicaid Services director come as South Carolina grapples with a large measles outbreak.`\
+https://nytimes.com/2026/02/09/well/dr-mehmet-oz-measles-vaccine.html
+
 **How to watch Bucks vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7034151/2026/02/09/bucks-vs-magic-stream-how-to-watch-feb-9/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7034139/2026/02/09/thunder-vs-lakers-stream-how-to-
 **How to watch Kings vs. Pelicans: Time, TV, streaming**\
 `Find out how to watch the Sacramento Kings play the New Orleans Pelicans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7034134/2026/02/09/kings-vs-pelicans-stream-how-to-watch-feb-9/
-
-**How to watch 76ers vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7034132/2026/02/09/76ers-vs-trail-blazers-stream-how-to-watch-feb-9/
-
-**How to watch Hawks vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7034130/2026/02/09/hawks-vs-timberwolves-stream-how-to-watch-feb-9/
-
-**How to watch Grizzlies vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7034128/2026/02/09/grizzlies-vs-warriors-stream-how-to-watch-feb-9/
-
-**Cooking Fancy Isn’t About Expensive Ingredients. It’s a Mind-Set.**\
-`You don’t have to try the latest trendy meal at the hottest new restaurant, quit your job or move to another country to live a better life.`\
-https://nytimes.com/2026/02/09/dining/cooking-fancy.html
 
