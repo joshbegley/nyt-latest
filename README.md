@@ -1,3 +1,11 @@
+**Aston Martin reveals 2026 F1 car design, Adrian Newey's first as team principal**\
+`The team held its season launch on Monday at Ithra, a cultural center in Dhahran, Saudi Arabia`\
+https://nytimes.com/athletic/7033128/2026/02/09/aston-martin-2026-car-livery-adrian-newey/
+
+**How to watch Oklahoma vs. Vanderbilt women's basketball: Time, TV, streaming**\
+`Find out how to watch the Oklahoma Sooners play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7034100/2026/02/09/oklahoma-vs-vanderbilt-stream-how-to-watch-feb-9/
+
 **How to watch Arizona vs. Kansas men's basketball: Time, TV, streaming**\
 `Find out how to watch the Arizona Wildcats play the Kansas Jayhawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7034091/2026/02/09/arizona-vs-kansas-stream-how-to-watch-feb-9/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7033876/2026/02/09/womens-big-air-final-kokomo-mura
 **U.S., in dramatic finish, beats Italy to reach mixed doubles curling final vs. Sweden**\
 `Cory Thiesse and Korey Dropkin scored five in the final three ends to win, 9-8, and knock off the defending Olympic champs. `\
 https://nytimes.com/athletic/7033718/2026/02/09/winter-olympics-mixed-doubles-curling-us-italy-sweden-semifinals/
-
-**MAHA Group Pledges $1 Million to Help Defeat Senator Cassidy in Louisiana Primary**\
-`Tony Lyons, a co-founder of the group MAHA PAC, said his group would support the congresswoman who has been endorsed by President Trump.`\
-https://nytimes.com/2026/02/09/us/politics/maha-cassidy-primary-louisiana.html
-
-**What Does a Wailing, Electric Take on ‘The Star-Spangled Banner’ Mean?**\
-`Turning Point USA’s “All-American” halftime opened with a guitar-solo national anthem. It was a striking contrast to Jimi Hendrix’s rendition at Woodstock.`\
-https://nytimes.com/2026/02/09/arts/music/star-spangled-banner-all-american-halftime.html
 

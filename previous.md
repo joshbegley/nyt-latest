@@ -1,3 +1,15 @@
+**How to watch Arizona vs. Kansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the Kansas Jayhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7034091/2026/02/09/arizona-vs-kansas-stream-how-to-watch-feb-9/
+
+**How to watch Kentucky vs. Texas women's basketball: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7034089/2026/02/09/kentucky-vs-texas-stream-how-to-watch-feb-9/
+
+**How Are Health Care Costs Affecting You?**\
+`We want to hear from readers who are trying to manage their medical bills and their health insurance costs.`\
+https://nytimes.com/2026/02/09/health/health-care-affordability.html
+
 **Red Wings, Tigers partnering with MLB for TV, streaming broadcasts**\
 `FanDuel Sports Network has carried Red Wings and Tigers games since October 2024, but the teams are moving on.`\
 https://nytimes.com/athletic/7028036/2026/02/09/red-wings-tigers-tv-future-mlb-partnership/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/09/us/politics/maha-cassidy-primary-louisiana.html
 **What Does a Wailing, Electric Take on ‘The Star-Spangled Banner’ Mean?**\
 `Turning Point USA’s “All-American” halftime opened with a guitar-solo national anthem. It was a striking contrast to Jimi Hendrix’s rendition at Woodstock.`\
 https://nytimes.com/2026/02/09/arts/music/star-spangled-banner-all-american-halftime.html
-
-**Pilots and Flight Attendants Criticize American Airlines’ Performance**\
-`The unions representing pilots and flight attendants have in recent days publicly criticized American for falling behind Delta Air Lines and United Airlines.`\
-https://nytimes.com/2026/02/09/business/american-airlines-pilots-flight-attendants-unions.html
-
-**Breezy Johnson, other athletes see their Olympic medals break during celebrations**\
-`Olympic organizers are working to resolve the medal issue as quickly as possible.`\
-https://nytimes.com/athletic/7033707/2026/02/09/2026-olympic-medals-breaking-celebrations-breezy-johnson/
-
-**Gronk on Brady cards vs. Maye cards and the memorabilia he would never sell**\
-`Rob Gronkowski and his family have been getting back into collecting. `\
-https://nytimes.com/athletic/7033083/2026/02/09/gronkowski-brady-maye-football-cards/
 

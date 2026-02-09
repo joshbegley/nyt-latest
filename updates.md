@@ -1,3 +1,15 @@
+**How to watch Arizona vs. Kansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the Kansas Jayhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7034091/2026/02/09/arizona-vs-kansas-stream-how-to-watch-feb-9/
+
+**How to watch Kentucky vs. Texas women's basketball: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7034089/2026/02/09/kentucky-vs-texas-stream-how-to-watch-feb-9/
+
+**How Are Health Care Costs Affecting You?**\
+`We want to hear from readers who are trying to manage their medical bills and their health insurance costs.`\
+https://nytimes.com/2026/02/09/health/health-care-affordability.html
+
 **Red Wings, Tigers partnering with MLB for TV, streaming broadcasts**\
 `FanDuel Sports Network has carried Red Wings and Tigers games since October 2024, but the teams are moving on.`\
 https://nytimes.com/athletic/7028036/2026/02/09/red-wings-tigers-tv-future-mlb-partnership/
