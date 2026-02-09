@@ -1,3 +1,15 @@
+**Serena Williams, a tale of two Super Bowl appearances, and a tennis comeback in-waiting**\
+`12 months on from her appearance with Kendrick Lamar, the 23-time Grand Slam champion took a very different role.`\
+https://nytimes.com/athletic/7027170/2026/02/09/serena-williams-super-bowl-ad-performance/
+
+**Reacting to Bad Bunny’s Halftime Show**\
+`Jon Caramanica and Joe Coscarelli, the hosts of “Popcast,” share their immediate reactions to Bad Bunny’s Super Bowl halftime show.`\
+https://nytimes.com/video/podcasts/100000010699095/reacting-to-bad-bunnys-halftime-show.html
+
+**Best and Worst of Bad Bunny’s Super Bowl Halftime Show**\
+`The Puerto Rican superstar’s set included cameos, stunts and powerful statements.`\
+https://nytimes.com/2026/02/09/arts/music/bad-bunny-super-bowl-halftime-show-best-worst.html
+
 **Respite From Wind-Driven, Bone-Chilling Cold Weather Is in Sight**\
 `Wind chills below zero were expected to persist across parts of the Northeast and New England on Monday but should finally ease, forecasters said.`\
 https://nytimes.com/2026/02/09/us/extreme-cold-weather-northeast.html
