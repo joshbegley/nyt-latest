@@ -1,3 +1,11 @@
+**The state of the Premier League title race as Man City stay in contention… just**\
+`Arsenal were dreaming of a nine-point lead in the Premier League title race. Then Erling Haaland made his late intervention at Anfield `\
+https://nytimes.com/athletic/7032432/2026/02/09/premier-league-title-race-md25/
+
+**Trump Criticizes Bad Bunny’s Super Bowl Halftime Show**\
+`Bad Bunny, the Puerto Rican superstar who has denounced ICE, celebrated Latino heritage in his largely Spanish-language performance.`\
+https://nytimes.com/2026/02/09/us/trump-bad-bunny-super-bowl-halftime-show.html
+
 **What’s Your Reaction to Super Bowl LX?**\
 `Did you watch? What was your favorite part? The game? The commercials? The halftime show? The snacks?`\
 https://nytimes.com/2026/02/09/learning/whats-your-reaction-to-super-bowl-lx.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6992542/2026/02/09/fantasy-baseball-2026-shortstop-
 **Mathilde Gremaud makes history as she beats Eileen Gu to Olympic gold once again**\
 `Mathilde Gremaud retained the title she won in Beijing four years ago, with Eileen Gu once again in silver`\
 https://nytimes.com/athletic/7032654/2026/02/09/eileen-gu-freeski-slopestyle-final-2026-winter-olympics/
-
-**Super Bowl halftime show rankings: Where does Bad Bunny fall among the greats?**\
-`Bad Bunny entertained the Levi's Stadium crowd on Sunday, but where does his Super Bowl halftime show rank among the greats?`\
-https://nytimes.com/athletic/7024793/2026/02/09/super-bowl-bad-bunny-halftime-show-rankings/
-
-**Struijk to miss Chelsea vs. Leeds with hip injury**\
-`Struijk, 26, reported the issue after Friday’s win over Nottingham Forest.`\
-https://nytimes.com/athletic/7032843/2026/02/09/pascal-struijk-leeds-injury-update-chelsea/
 

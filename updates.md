@@ -1,3 +1,7 @@
+**Mathilde Gremaud makes history as she beats Eileen Gu to Olympic gold once again**\
+`Mathilde Gremaud retained the title she won in Beijing four years ago, with Eileen Gu once again in silver`\
+https://nytimes.com/athletic/7032654/2026/02/09/eileen-gu-freeski-slopestyle-final-2026-winter-olympics/
+
 **What’s Your Reaction to Super Bowl LX?**\
 `Did you watch? What was your favorite part? The game? The commercials? The halftime show? The snacks?`\
 https://nytimes.com/2026/02/09/learning/whats-your-reaction-to-super-bowl-lx.html

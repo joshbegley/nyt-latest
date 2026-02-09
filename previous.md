@@ -26,7 +26,7 @@ https://nytimes.com/athletic/7030762/2026/02/09/cubs-spring-training-preview-off
 `Eno Sarris and Derek VanRiper preview the shortstop position ahead of the 2026-27 fantasy baseball season. `\
 https://nytimes.com/athletic/6992542/2026/02/09/fantasy-baseball-2026-shortstop-preview-trevor-story/
 
-**Mathilde Gremaud beats Eileen Gu to Olympic gold once again in women’s freeski slopestyle**\
+**Mathilde Gremaud makes history as she beats Eileen Gu to Olympic gold once again**\
 `Mathilde Gremaud retained the title she won in Beijing four years ago, with Eileen Gu once again in silver`\
 https://nytimes.com/athletic/7032654/2026/02/09/eileen-gu-freeski-slopestyle-final-2026-winter-olympics/
 
