@@ -1,3 +1,7 @@
+**Jake Paul criticised by over description of Bad Bunny as 'fake American'**\
+`Paul described Bad Bunny, a Puerta Rican artist, as "a fake American citizen...who publicly hates America."`\
+https://nytimes.com/athletic/7032794/2026/02/09/jake-paul-amanda-serrano-bad-bunny-fake-american/
+
 **NBA Rewind: How the trade deadline shook up the playoff (and tanking) picture**\
 `All-Star Weekend is almost here. Is that still a good thing?`\
 https://nytimes.com/athletic/7026380/2026/02/09/nba-rewind-trade-deadline-playoffs-all-star-weekend/
