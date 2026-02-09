@@ -14,7 +14,7 @@ https://nytimes.com/2026/02/09/briefing/britain-keir-starmer-mountain-lions-cali
 `As the athletes soared through the air and spun above the ice, New York Times photographers were there to capture the action in Italy.`\
 https://nytimes.com/interactive/2026/02/09/world/olympics/winter-olympics-milano-cortina-photos.html
 
-**Jayson Tatum to practice with Celtics' G League team before recall to NBA**\
+**Jayson Tatum to practice with Celtics' G League team to continue Achilles rehab**\
 `Brad Stevens said Friday Tatum still has 'a ways to go' in his rehabilitation process, but has 'hit a lot of the thresholds.'`\
 https://nytimes.com/athletic/7034451/2026/02/09/jayson-tatum-practice-main-red-claws-g-league/
 

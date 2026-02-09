@@ -1,3 +1,7 @@
+**Jayson Tatum to practice with Celtics' G League team to continue Achilles rehab**\
+`Brad Stevens said Friday Tatum still has 'a ways to go' in his rehabilitation process, but has 'hit a lot of the thresholds.'`\
+https://nytimes.com/athletic/7034451/2026/02/09/jayson-tatum-practice-main-red-claws-g-league/
+
 **Pockets of Republican Pushback to ICE Facilities Point to MAGA Fissures**\
 `Signs of fractures on the right, often fueled by the Trump administration’s actions, keep stacking up.`\
 https://nytimes.com/2026/02/09/us/politics/ice-detention-centers-republicans-trump.html
