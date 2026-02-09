@@ -1,3 +1,5 @@
+
+
 **Judge Strikes Down California’s Ban on Masks for Federal Agents**\
 `The state can require federal agents to display identification, the judge said. The Trump administration had asked the court to block both laws, which were designed to help identify federal agents.`\
 https://nytimes.com/2026/02/09/us/judge-rejects-california-mask-ban-ice.html
