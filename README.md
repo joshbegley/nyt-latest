@@ -1,3 +1,11 @@
+**N.Y.C. Nurses Reach Deal to End Strike at Some Hospitals**\
+`A tentative agreement was reached between the New York State Nurses Association and the Mount Sinai Health System and Montefiore Medical Center.`\
+https://nytimes.com/2026/02/09/nyregion/nyc-nurses-strike-ends.html
+
+**Are Tottenham actually in a relegation battle? The odds suggest… maybe**\
+`Spurs have won just two of their last 16 league games, stretching back to October, and they are just six points above West Ham in 18th place`\
+https://nytimes.com/athletic/7033090/2026/02/09/tottenham-relegation-odds-spurs-still-outsiders-to-go-down-despite-struggles/
+
 **Dyche says his Forest future will not be decided by 'one game'**\
 `Forest had been unbeaten in four games in a run that included wins over West Ham and Brentford before losing 3-1 to Leeds on Friday.`\
 https://nytimes.com/athletic/7033188/2026/02/09/sean-dyche-nottingham-forest-future-latest/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/09/arts/markiplier-iron-lung-movie.html
 **Want More Babies? Abolish Commutes.**\
 `About 290,000 extra children a year have been born in the U.S. since the Covid pandemic fueled more work-from-home opportunities.`\
 https://nytimes.com/2026/02/09/opinion/fertility-rate-baby-work-from-home.html
-
-**53 Migrants Missing After Boat Capsizes Off Libya, U.N. Agency Says**\
-`The victims are among at least 484 migrants who have died or gone missing in the central Mediterranean this year, according to the International Organization for Migration.`\
-https://nytimes.com/2026/02/09/world/europe/migrant-boat-capsize-libya-deaths.html
-
-**Japan’s Hard-Line Prime Minister Wins Snap Election in a Landslide**\
-`Prime Minister Sanae Takaichi saw over the biggest electoral victory in her hard-line party’s history in a snap election, according to results published by Japan’s public broadcaster.`\
-https://nytimes.com/video/world/asia/100000010699380/japan-election-win-takaichi.html
 
