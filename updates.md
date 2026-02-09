@@ -1,3 +1,7 @@
+**Kenneth Walker III named Super Bowl 60 MVP after Seahawks defeat Patriots**\
+`The running back helped the Seattle offense control much of the game on a day when Jaxon Smith-Njigba was held in check.`\
+https://nytimes.com/athletic/7031979/2026/02/08/super-bowl-2026-mvp-kenneth-walker-seahawks/
+
 **Cadillac F1 team unveils livery, dual-color car design for 2026 in Super Bowl commercial**\
 `Cadillac unveiled a silver-and-black livery with an ad staking its claim as America's F1 team. `\
 https://nytimes.com/athletic/7032042/2026/02/08/cadillac-f1-car-livery-super-bowl-2026-commercial/
