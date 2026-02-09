@@ -1,3 +1,19 @@
+**Tottenham's Udogie out for 'four to five weeks' - Frank**\
+`The Italy international pulled up in the second half of Spurs’ 2-0 defeat to Manchester United last Saturday.`\
+https://nytimes.com/athletic/7033053/2026/02/09/tottenham-destiny-udogie-injury-frank/
+
+**Here’s the latest.**\
+`By Stephen Castle`\
+https://nytimes.com/live/2026/02/09/world/uk-starmer-resign-epstein-mandelson/heres-the-latest
+
+**Prince William Visits Saudi Arabia for Delicate Diplomacy**\
+`The heir to the British throne will meet with Crown Prince Mohammed bin Salman, as Britain and Saudi Arabia look to strengthen ties.`\
+https://nytimes.com/2026/02/09/world/europe/prince-william-saudi-arabia-diplomacy.html
+
+**Live Updates: Keir Starmer Under Pressure to Resign as Prime Minister of Britain**\
+`Two of Mr. Starmer’s key aides have resigned within the last two days amid a scandal involving the appointment of an ambassador to the U.S. who had close ties to Jeffrey Epstein.`\
+https://nytimes.com/live/2026/02/09/world/uk-starmer-resign-epstein-mandelson
+
 **Hong Kong Court Sentences Jimmy Lai to 20 Years in Prison**\
 `A Hong Kong court on Monday sentenced the pro-democracy media mogul Jimmy Lai to 20 years in prison in a trial that has set a new standard for the city’s limits on press freedom.`\
 https://nytimes.com/video/world/asia/100000010699286/jimmy-lai-prison-sentence-hong-kong.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/09/world/europe/keir-starmer-uk-communications-resig
 **Pirates to sign Marcell Ozuna after missing on big bats this offseason: Source**\
 `The Pirates targeted multiple options this offseason to improve their league-worst offense before landing Ozuna.`\
 https://nytimes.com/athletic/6838995/2026/02/09/mlb-marcell-ozuna-free-agency-signing-pirates/
-
-**Jake Paul criticised over description of Bad Bunny as 'fake American'**\
-`Paul described Bad Bunny, a Puerta Rican artist, as "a fake American citizen...who publicly hates America."`\
-https://nytimes.com/athletic/7032794/2026/02/09/jake-paul-amanda-serrano-bad-bunny-fake-american/
-
-**NBA Rewind: How the trade deadline shook up the playoff (and tanking) picture**\
-`All-Star Weekend is almost here. Is that still a good thing?`\
-https://nytimes.com/athletic/7026380/2026/02/09/nba-rewind-trade-deadline-playoffs-all-star-weekend/
-
-**Five things I think about the stumbling Timberwolves as the All-Star break approaches**\
-`Minnesota looks disconnected and discombobulated. What's gone wrong, and can it be fixed before the playoffs?`\
-https://nytimes.com/athletic/7031384/2026/02/09/timberwolves-struggles-julius-randle-anthony-edwards/
-
-**How Artists Beat the Blues**\
-`Ten creative people share their strategies for thriving, or at least getting by, in difficult times.`\
-https://nytimes.com/2026/02/09/t-magazine/winter-blues-stress-tips.html
 

@@ -1,3 +1,19 @@
+**Tottenham's Udogie out for 'four to five weeks' - Frank**\
+`The Italy international pulled up in the second half of Spurs’ 2-0 defeat to Manchester United last Saturday.`\
+https://nytimes.com/athletic/7033053/2026/02/09/tottenham-destiny-udogie-injury-frank/
+
+**Here’s the latest.**\
+`By Stephen Castle`\
+https://nytimes.com/live/2026/02/09/world/uk-starmer-resign-epstein-mandelson/heres-the-latest
+
+**Prince William Visits Saudi Arabia for Delicate Diplomacy**\
+`The heir to the British throne will meet with Crown Prince Mohammed bin Salman, as Britain and Saudi Arabia look to strengthen ties.`\
+https://nytimes.com/2026/02/09/world/europe/prince-william-saudi-arabia-diplomacy.html
+
+**Live Updates: Keir Starmer Under Pressure to Resign as Prime Minister of Britain**\
+`Two of Mr. Starmer’s key aides have resigned within the last two days amid a scandal involving the appointment of an ambassador to the U.S. who had close ties to Jeffrey Epstein.`\
+https://nytimes.com/live/2026/02/09/world/uk-starmer-resign-epstein-mandelson
+
 **Hong Kong Court Sentences Jimmy Lai to 20 Years in Prison**\
 `A Hong Kong court on Monday sentenced the pro-democracy media mogul Jimmy Lai to 20 years in prison in a trial that has set a new standard for the city’s limits on press freedom.`\
 https://nytimes.com/video/world/asia/100000010699286/jimmy-lai-prison-sentence-hong-kong.html
