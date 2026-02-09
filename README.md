@@ -1,3 +1,7 @@
+**Struijk to miss Chelsea vs. Leeds with hip injury**\
+`Struijk, 26, reported the issue after Friday’s win over Nottingham Forest.`\
+https://nytimes.com/athletic/7032843/2026/02/09/pascal-struijk-leeds-injury-update-chelsea/
+
 **FPL Gameweek 26 preview: Irrepressible Rogers, Palmer punt and Sarr the star**\
 `With fixtures beginning to swing for several sides, this feels like one of those pivotal moments where one smart move can set you up well`\
 https://nytimes.com/athletic/7031527/2026/02/09/fantasy-premier-league-fpl-tips-gameweek-26/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7032415/2026/02/09/seahawks-bright-future-super-bow
 **How to watch ice dancers Madison Chock and Evan Bates at the 2026 Winter Olympics**\
 `Married ice dance partners Madison Chock and Evan Bates seek their first ever individual Olympic medal.`\
 https://nytimes.com/athletic/7028285/2026/02/09/chock-bates-figure-skating-winter-olympics-how-to-watch/
-
-**Luke Clanton, Neal Shipley make TGL debuts. What does it mean for the odds?**\
-`With the PGA Tour in California both teams will rely on substitutes to fill out their gameday lineups.`\
-https://nytimes.com/athletic/7031588/2026/02/09/tgl-match-8-lineups-luke-clanton-neal-shipley-debut/
 
