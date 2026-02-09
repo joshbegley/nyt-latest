@@ -1,3 +1,7 @@
+**'We should not promote them': Daniil Medvedev criticizes not round' tennis balls at Rotterdam Open**\
+`Medvedev, who has a litany of tennis-ball complaints, singled out manufacturer Head for criticism. It is yet to respond.`\
+https://nytimes.com/athletic/7033183/2026/02/09/daniil-medvedev-criticizes-head-tennis-balls/
+
 **Trump Is a Global ‘Wrecking Ball,’ European Security Experts Say**\
 `The organizers of the Munich Security Conference, Europe’s main defense-related forum, said in a report that President Trump is helping destroy the postwar international order.`\
 https://nytimes.com/2026/02/09/world/europe/trump-munich-conference-security-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7033317/2026/02/09/duke-unc-basketball-court-stormi
 **How to watch Pistons vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7033330/2026/02/09/pistons-vs-hornets-stream-how-to-watch-feb-9/
-
-**Olympic P.S.A.: Do Not Jump for Joy While Wearing Your Medal**\
-`Several athletes have had their medals fall off their ribbons while celebrating their victories. Organizers are looking into it: “This is something we want to be perfect.”`\
-https://nytimes.com/2026/02/09/sports/olympics-medals-broken-breezy-johnson.html
 
