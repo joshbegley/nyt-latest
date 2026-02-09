@@ -1,3 +1,7 @@
+**NBA Power Rankings: East teams soar into contenders tier; post-deadline roster reset**\
+`Let's examine the familiar faces in new places and how rotations and chemistry may be affected going forward.`\
+https://nytimes.com/athletic/7032989/2026/02/09/nba-power-rankings-knicks-celtics-trade-deadline/
+
 **Family Court Is Flooded by Cases It Can’t Address, Top N.Y. Judge Says**\
 `Judge Rowan D. Wilson says poverty and issues like mental illness, which the courts struggle to deal with, drive many of the cases that end up in family court.`\
 https://nytimes.com/2026/02/09/nyregion/new-york-family-court-reform.html
@@ -35,8 +39,4 @@ https://nytimes.com/2026/02/09/business/dealbook/court-tv-ew-scripps-sale.html
 **Maxwell Refuses to Answer Questions in House Deposition**\
 `Ghislaine Maxwell, the longtime companion of the convicted sex offender Jeffrey Epstein, invoked her right against self-incrimination in an Oversight Committee deposition.`\
 https://nytimes.com/2026/02/09/us/politics/ghislaine-maxwell-house-jeffrey-epstein-trump.html
-
-**Like Fireworks: When Masters of Two Dance Traditions Meet**\
-`American tap greats collaborating with kathak dancers discover how to communicate through rhythm.`\
-https://nytimes.com/2026/02/09/arts/dance/tap-kathak-what-flows-between-us.html
 
