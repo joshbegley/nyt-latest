@@ -1,3 +1,7 @@
+**Olympic Feats and Tailgating Feasts at 100-Year-Old Ski Jump in Connecticut**\
+`Salisbury, Conn., has been hosting ski jumping competitions since 1926, when the Satre brothers from Norway brought the sport to Litchfield County.`\
+https://nytimes.com/2026/02/09/nyregion/salisbury-jumpfest-2026-connecticut-ski-jump.html
+
 **USMNT Player Tracker: McKennie on the mark again as Robinson yearns for form**\
 `Our round up of the weekend action involving USMNT's Europe-based players and hopefuls also takes in the youngsters who seized their chance`\
 https://nytimes.com/athletic/7032828/2026/02/09/usmnt-mckennie-juventus-robinson-tracker/

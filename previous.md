@@ -1,3 +1,7 @@
+**Olympic Feats and Tailgating Feasts at 100-Year-Old Ski Jump in Connecticut**\
+`Salisbury, Conn., has been hosting ski jumping competitions since 1926, when the Satre brothers from Norway brought the sport to Litchfield County.`\
+https://nytimes.com/2026/02/09/nyregion/salisbury-jumpfest-2026-connecticut-ski-jump.html
+
 **USMNT Player Tracker: McKennie on the mark again as Robinson yearns for form**\
 `Our round up of the weekend action involving USMNT's Europe-based players and hopefuls also takes in the youngsters who seized their chance`\
 https://nytimes.com/athletic/7032828/2026/02/09/usmnt-mckennie-juventus-robinson-tracker/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/09/world/uk-starmer-resign-epstein-mandelson/he
 **Prince William Visits Saudi Arabia for Delicate Diplomacy**\
 `The heir to the British throne will meet with Crown Prince Mohammed bin Salman, as Britain and Saudi Arabia look to strengthen ties.`\
 https://nytimes.com/2026/02/09/world/europe/prince-william-saudi-arabia-diplomacy.html
-
-**Live Updates: Keir Starmer Under Pressure to Resign as Prime Minister of Britain**\
-`The leader of the Scottish Labour Party called on Mr. Starmer to stand down, saying that political turmoil over an ambassador with close ties to Jeffrey Epstein had become a “huge distraction.”`\
-https://nytimes.com/live/2026/02/09/world/uk-starmer-resign-epstein-mandelson
 
