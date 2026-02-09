@@ -1,3 +1,7 @@
+**2026 NFL Mock Draft: After Super Bowl LX, how might first three rounds look?**\
+`Fernando Mendoza seems destined to be a Raider, but how many other quarterbacks will crack the top 100?`\
+https://nytimes.com/athletic/7021113/2026/02/09/nfl-mock-draft-2026-fernando-mendoza-quarterbacks/
+
 **Crosby on 2026 Olympics and the weight of Team Canada gold medal aspirations**\
 `Crosby is no stranger to pressure, but captaining Team Canada in possibly his final Olympics is new. Here's how he handles it.`\
 https://nytimes.com/athletic/7029106/2026/02/09/olympic-mens-hockey-2026-team-canada-sidney-crosby/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7027170/2026/02/09/serena-williams-super-bowl-ad-pe
 **Reacting to Bad Bunny’s Halftime Show**\
 `Jon Caramanica and Joe Coscarelli, the hosts of “Popcast,” share their immediate reactions to Bad Bunny’s Super Bowl halftime show.`\
 https://nytimes.com/video/podcasts/100000010699095/reacting-to-bad-bunnys-halftime-show.html
-
-**Best and Worst of Bad Bunny’s Super Bowl Halftime Show**\
-`The Puerto Rican superstar’s set included cameos, stunts and powerful statements.`\
-https://nytimes.com/2026/02/09/arts/music/bad-bunny-super-bowl-halftime-show-best-worst.html
 
