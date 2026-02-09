@@ -1,3 +1,11 @@
+**Seahawks to hold Super Bowl parade on Wednesday: What you need to know**\
+`A free, but ticketed trophy celebration will be held at Lumen Field before a two-hour parade through downtown Seattle.`\
+https://nytimes.com/athletic/7033602/2026/02/09/seahawks-super-bowl-60-parade-time-location-details/
+
+**Lamenting ‘Our President’s Overt Racism’**\
+`Readers find the president’s posting of a racist video shameful and in keeping with his previous appeals to white supremacy. Also: Bad Bunny; Trump vs. Harvard; medical A.I.`\
+https://nytimes.com/2026/02/09/opinion/trump-obama-racist-video.html
+
 **NBA Power Rankings: East teams soar into contenders tier; post-deadline roster reset**\
 `Let's examine the familiar faces in new places and how rotations and chemistry may be affected going forward.`\
 https://nytimes.com/athletic/7032989/2026/02/09/nba-power-rankings-knicks-celtics-trade-deadline/
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/7033344/2026/02/09/eagles-hire-offensive-line-coach
 **Which NHL teams are losing their 2026 first-round draft picks? Checking in on trade conditions**\
 `The Maple Leafs, Panthers and Oilers are among teams that may be sending out their first-round picks this year if conditions are met.`\
 https://nytimes.com/athletic/7031347/2026/02/09/nhl-draft-first-round-trade-conditions/
-
-**Court TV, Known for Live Trial Coverage, Is Getting a New Owner**\
-`The E.W. Scripps Company is selling the channel to the parent company of Law&Crime, which wants Court TV to have a bigger streaming presence.`\
-https://nytimes.com/2026/02/09/business/dealbook/court-tv-ew-scripps-sale.html
-
-**Maxwell Refuses to Answer Questions in House Deposition**\
-`Ghislaine Maxwell, the longtime companion of the convicted sex offender Jeffrey Epstein, invoked her right against self-incrimination in an Oversight Committee deposition.`\
-https://nytimes.com/2026/02/09/us/politics/ghislaine-maxwell-house-jeffrey-epstein-trump.html
 
