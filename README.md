@@ -1,3 +1,11 @@
+**Where’s the next Super Bowl? Everything to know about future host cities**\
+`Super Bowl LXI is scheduled to be played on Valentine's Day for the first time in NFL history.`\
+https://nytimes.com/athletic/7029177/2026/02/08/super-bowl-61-location-logo-host-city/
+
+**Seahawks bully Drake Maye, Patriots on way to dominant Super Bowl 60 win**\
+`Seattle won its second championship with a 29-13 victory on Sunday, thwarting New England's upset bid in a low-scoring Super Bowl.`\
+https://nytimes.com/athletic/7030353/2026/02/08/super-bowl-2026-winner-score-results-seahawks-patriots/
+
 **The Seahawks blocked out the BS. Now they're Super Bowl champions**\
 `The Seahawks were on a mission, brushing aside anything that could distract from their goal. And now? Mission accomplished.`\
 https://nytimes.com/athletic/7030470/2026/02/08/super-bowl-seahawks-champions-winning-strategy/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7032011/2026/02/08/jaxon-smith-njigba-concussion-se
 **Lai has been held in solitary confinement for more than 1,800 days.**\
 `By Alexandra Stevenson`\
 https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong/lai-has-been-held-in-solitary-confinement-for-more-than-1800-days
-
-**2026 Olympics, Day 2 recap: Lindsey Vonn crashes, U.S. skaters, Breezy Johnson win gold**\
-`It was a day of tragedy and elation for athletes from the U.S. and Italy at the Milan Cortina Winter Olympics on Sunday.`\
-https://nytimes.com/athletic/7031760/2026/02/08/olympics-2026-day-2-recap-lindsey-vonn-ilia-malinin/
-
-**‘Popcast’ breaks down Bad Bunny’s halftime performance.**\
-`By Jon Caramanica`\
-https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/popcast-breaks-down-bad-bunnys-halftime-performance
 
