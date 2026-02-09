@@ -1,3 +1,7 @@
+**Word of the Day: resilience**\
+`This word has appeared in 1,286 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/09/learning/word-of-the-day-resilience.html
+
 **‘You Cannot Feel Remotely Sorry for the Patriots’: Opinion Writers Tackle the Super Bowl**\
 `Super Bowl LX is in the books. An Opinion round table breaks down the game, the entertainment — and the commercials.`\
 https://nytimes.com/2026/02/09/opinion/patriots-seahawks-bad-bunny-super-bowl.html
