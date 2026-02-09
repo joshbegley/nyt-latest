@@ -1,3 +1,7 @@
+**Word of the Day: resilience**\
+`This word has appeared in 1,286 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/09/learning/word-of-the-day-resilience.html
+
 **‘You Cannot Feel Remotely Sorry for the Patriots’: Opinion Writers Tackle the Super Bowl**\
 `Super Bowl LX is in the books. An Opinion round table breaks down the game, the entertainment — and the commercials.`\
 https://nytimes.com/2026/02/09/opinion/patriots-seahawks-bad-bunny-super-bowl.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7031339/2026/02/09/claudia-riegler-2026-winter-olym
 **What to watch on Day 3 at the Winter Olympics: Figure skating and 5 more medals**\
 `A must-see ice dance, two hockey powerhouses and medal events in Alpine skiing, freestyle skiing, speedskating, snowboard and ski jumping.`\
 https://nytimes.com/athletic/6917591/2026/02/09/milan-cortina-winter-olympics-what-to-watch-day-3/
-
-**Brighton looking down rather than up for first time in years - and the anti-Hurzeler brigade is growing**\
-`With one win in 12 games there is a seething discontent on home soil. But the head coach should be fine until his summer review`\
-https://nytimes.com/athletic/7031003/2026/02/09/brighton-hurzeler-premier-league/
 
