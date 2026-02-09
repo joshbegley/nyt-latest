@@ -1,4 +1,8 @@
-**In Japan, Investors Give an Exuberant Welcome to Takaichi’s Landslide Win**\
+**Jimmy Lai’s children have led a global campaign for him.**\
+`By David Pierson`\
+https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong/jimmy-lais-children-have-led-a-global-campaign-for-him
+
+**In Japan, Investors Give an Exuberant Welcome to Takaichi’s Big Win**\
 `Stocks climbed on Monday as investors cheered a result seen as a mandate for the prime minister’s high-spending economic agenda.`\
 https://nytimes.com/2026/02/08/business/japan-stocks-sanae-takaichi.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/08/nyregion/extreme-cold-weather-deaths-nyc.html
 **The Impossible Jump, for All but One**\
 `Ilia Malinin of the United States is the only figure skater to land a quadruple axel in competition. We break down why it’s so hard.`\
 https://nytimes.com/interactive/2026/02/08/sports/ilia-malinin-mens-figure-skating-winter-olympics.html
-
-**The Super Bowl halftime is the world’s biggest stage. He designs it.**\
-`By Emmanuel Morgan`\
-https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/the-super-bowl-halftime-is-the-worlds-biggest-stage-he-designs-it
 
