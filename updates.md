@@ -1,3 +1,23 @@
+**What to Know About Measles as the Virus Spreads**\
+`Here’s why we’re seeing so many cases now, and what to know about the risks of infection.`\
+https://nytimes.com/2026/02/09/well/measles-symptoms-vaccine.html
+
+**Oz Offers Forceful Call for Vaccination as Measles Becomes More Dire**\
+`The comments by the Centers for Medicare and Medicaid Services director come as South Carolina grapples with a large measles outbreak.`\
+https://nytimes.com/2026/02/09/well/dr-mehmet-oz-measles-vaccine.html
+
+**How to watch Bucks vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7034151/2026/02/09/bucks-vs-magic-stream-how-to-watch-feb-9/
+
+**Scoop City: Defense can still win championships**\
+`The NFL wants to be defined by its quarterbacks and receivers. Last night was about everything else.`\
+https://nytimes.com/athletic/7033969/2026/02/09/seahawks-defense-special-teams-super-bowl-scoop-city/
+
+**How to watch Jazz vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7034144/2026/02/09/jazz-vs-heat-stream-how-to-watch-feb-9/
+
 **Starmer’s Epstein Crisis**\
 `Among the powerful men facing fallout from the files, the one in deepest trouble appears to have never met Epstein: the British prime minister.`\
 https://nytimes.com/2026/02/09/world/starmer-epstein-israel-west-bank.html

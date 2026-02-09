@@ -1,23 +1,3 @@
-**Starmer’s Epstein Crisis**\
-`Among the powerful men facing fallout from the files, the one in deepest trouble appears to have never met Epstein: the British prime minister.`\
-https://nytimes.com/2026/02/09/world/starmer-epstein-israel-west-bank.html
-
-**Canada's Marie-Philip Poulin exits game after taking hit by Czech Republic's Kaltounková**\
-`Poulin, the greatest women's hockey player of all time, exited Monday's group-stage game against the Czech Republic and has not returned.`\
-https://nytimes.com/athletic/7034161/2026/02/09/canada-womens-hockey-marie-philip-poulin-czech-republic/
-
-**Olympic Athletes Jump For Joy and Break Their Medals**\
-`As Olympians report their medals detaching from their ribbons, game organizers are scrambling to fix the issue. This is not the first time that Olympic medals have had issues. Over a 100 athletes from the Paris Olympics in 2024 reported that their medals deteriorated.`\
-https://nytimes.com/video/world/europe/100000010699778/olympian-medals-breaking-milan.html
-
-**Two Senegalese Celebrities Are Arrested in Crackdown on Homosexuality**\
-`A TV presenter and one of Senegal’s best-known musicians appeared in court on Monday in one of the country’s most high-profile, anti-gay cases in years.`\
-https://nytimes.com/2026/02/09/world/africa/senegal-gay-arrests-diallo-drame.html
-
-**‘We Believe Our Mom Is Still Out There,’ Savannah Guthrie Says**\
-`The television host released a video pleading for the public’s help in finding her mother, Nancy, who disappeared from her Arizona home last week. “We are at an hour of desperation,” she said.`\
-https://nytimes.com/2026/02/09/us/savannah-guthrie-kidnapping-video.html
-
 **Ray Handley, Ill-Fated Giants Coach, Is Dead at 81**\
 `He took over a champion N.F.L. team, succeeding the popular Bill Parcells, then led it to two disappointing seasons, drawing the ire of players and fans.`\
 https://nytimes.com/2026/02/09/sports/football/ray-handley-dead.html
@@ -37,4 +17,24 @@ https://nytimes.com/interactive/2026/02/09/upshot/olympics-medal-table-milan-cor
 **Harry Kane's 500 goals: The numbers behind a record-breaking milestone**\
 `The Bayern Munich striker has become the first Englishman to hit 500 goals for club and country`\
 https://nytimes.com/athletic/7004343/2026/02/09/harry-kane-500-goals-bayern-tottenham-england/
+
+**What to Know About Measles as the Virus Spreads**\
+`Here’s why we’re seeing so many cases now, and what to know about the risks of infection.`\
+https://nytimes.com/2026/02/09/well/measles-symptoms-vaccine.html
+
+**Oz Offers Forceful Call for Vaccination as Measles Becomes More Dire**\
+`The comments by the Centers for Medicare and Medicaid Services director come as South Carolina grapples with a large measles outbreak.`\
+https://nytimes.com/2026/02/09/well/dr-mehmet-oz-measles-vaccine.html
+
+**How to watch Bucks vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7034151/2026/02/09/bucks-vs-magic-stream-how-to-watch-feb-9/
+
+**Scoop City: Defense can still win championships**\
+`The NFL wants to be defined by its quarterbacks and receivers. Last night was about everything else.`\
+https://nytimes.com/athletic/7033969/2026/02/09/seahawks-defense-special-teams-super-bowl-scoop-city/
+
+**How to watch Jazz vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7034144/2026/02/09/jazz-vs-heat-stream-how-to-watch-feb-9/
 
