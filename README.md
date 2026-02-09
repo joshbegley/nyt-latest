@@ -1,3 +1,11 @@
+**Hong Kong Court Sentences Jimmy Lai to 20 Years in Prison**\
+`A Hong Kong court on Monday sentenced the pro-democracy media mogul Jimmy Lai to 20 years in prison in a trial that has set a new standard for the city’s limits on press freedom.`\
+https://nytimes.com/video/world/asia/100000010699286/jimmy-lai-prison-sentence-hong-kong.html
+
+**Students had Antarctica questions. We answered them.**\
+`Students sent in questions about our reporter’s journey to Antarctica, covering data recovery, clothing and more.`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/students-had-antarctica-questions-we-answered-them
+
 **Bad Bunny’s Halftime History Lesson**\
 `The superstar showcased Puerto Rican pride during a 13-minute set that turned a global opportunity into an intimate, personal performance.`\
 https://nytimes.com/2026/02/09/arts/music/bad-bunny-super-bowl-halftime-show-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7031384/2026/02/09/timberwolves-struggles-julius-ra
 **How Artists Beat the Blues**\
 `Ten creative people share their strategies for thriving, or at least getting by, in difficult times.`\
 https://nytimes.com/2026/02/09/t-magazine/winter-blues-stress-tips.html
-
-**A.I. Blitzes the Big Game**\
-`Ads pitching artificial intelligence companies dominated the Super Bowl broadcast. Their huge cost probably didn’t ease investor worries about spending.`\
-https://nytimes.com/2026/02/09/business/dealbook/super-bowl-ads-ai.html
-
-**Why the rest of this season for Giannis Antetokounmpo and the Bucks is worth watching closely**\
-`An interesting plotline as Giannis and the Bucks stick together for now: The team's best path is to tank. The star likely won't accept that.`\
-https://nytimes.com/athletic/7026801/2026/02/09/giannis-bucks-injury-management-nba-trade/
 

@@ -1,3 +1,7 @@
+**Starmer’s Communications Chief Quits, Adding to British Leader’s Woes**\
+`Tim Allan is the second senior member of Prime Minister Keir Starmer’s team to depart in less than 24 hours. The latest resignation increases the pressure on Mr. Starmer’s premiership.`\
+https://nytimes.com/2026/02/09/world/europe/keir-starmer-uk-communications-resigns.html
+
 **Bad Bunny’s Halftime History Lesson**\
 `The superstar showcased Puerto Rican pride during a 13-minute set that turned a global opportunity into an intimate, personal performance.`\
 https://nytimes.com/2026/02/09/arts/music/bad-bunny-super-bowl-halftime-show-review.html
