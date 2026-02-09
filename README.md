@@ -1,5 +1,17 @@
+**Five things I think about the stumbling Timberwolves as the All-Star break approaches**\
+`Minnesota looks disconnected and discombobulated. What's gone wrong, and can it be fixed before the playoffs?`\
+https://nytimes.com/athletic/7031384/2026/02/09/timberwolves-struggles-julius-randle-anthony-edwards/
+
+**How Artists Beat the Blues**\
+`Ten creative people share their strategies for thriving, or at least getting by, in difficult times.`\
+https://nytimes.com/2026/02/09/t-magazine/winter-blues-stress-tips.html
+
+**A.I. Blitzes the Big Game**\
+`Ads pitching artificial intelligence companies dominated the Super Bowl broadcast. Their huge cost probably didn’t ease investor worries about spending.`\
+https://nytimes.com/2026/02/09/business/dealbook/super-bowl-ads-ai.html
+
 **Why the rest of this season for Giannis Antetokounmpo and the Bucks is worth watching closely**\
-`An interesting plotline as Giannis and Bucks stick together for now: The team's best path is to tank. The star likely won't accept that.`\
+`An interesting plotline as Giannis and the Bucks stick together for now: The team's best path is to tank. The star likely won't accept that.`\
 https://nytimes.com/athletic/7026801/2026/02/09/giannis-bucks-injury-management-nba-trade/
 
 **The state of the Premier League title race as Man City stay in contention… just**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7032826/2026/02/09/usmnt-jesus-perez-mauricio-poche
 **'This one hits pretty close to home,' says Chloe Kim of President Trump's criticism of Hunter Hess**\
 `Kim and three of her Team USA snowboarding teammates were asked Monday about President Trump's comments on Hunter Hess.`\
 https://nytimes.com/athletic/7032765/2026/02/09/chloe-kim-president-trump-hunter-hess/
-
-**Lowetide: Oilers face the deadline with a limited budget. What are their options?**\
-`The NHL is under a trade freeze during the Olympics, but GM Stan Bowman should use the break to get realistic about his path forward.`\
-https://nytimes.com/athletic/7031040/2026/02/09/oilers-nhl-trade-deadline-bowman-condors/
-
-**Cubs spring training preview: Players feel primed to contend after banner offseason**\
-`“We’re a better ballclub,” Matthew Boyd said. “With the moves that were made, I think it’s obvious.”`\
-https://nytimes.com/athletic/7030762/2026/02/09/cubs-spring-training-preview-offseason-additions/
-
-**Will Trevor Story be a bust in 2026? Fantasy baseball shortstop rundown**\
-`Eno Sarris and Derek VanRiper preview the shortstop position ahead of the 2026-27 fantasy baseball season. `\
-https://nytimes.com/athletic/6992542/2026/02/09/fantasy-baseball-2026-shortstop-preview-trevor-story/
 
