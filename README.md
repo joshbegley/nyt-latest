@@ -1,3 +1,23 @@
+**How far away are Tottenham from catching up with the WSL's elite?**\
+`Spurs are on an upward trajectory but their record against the regular title challengers shows how much work there is still to do`\
+https://nytimes.com/athletic/7031494/2026/02/09/tottenham-chelsea-martin-ho-wsl/
+
+**What age profiles do Premier League clubs spend their money on – and what does that tell us?**\
+`Premier League clubs signed players from different age profiles over the summer and January windows. The numbers tell a story`\
+https://nytimes.com/athletic/7022605/2026/02/09/premier-league-age-signings-analysis/
+
+**Man City's comeback was incredible – this is what they look like when it clicks**\
+`They are not the finished article yet, but you can see what they are trying to build`\
+https://nytimes.com/athletic/7031259/2026/02/09/man-city-comeback-guardiola/
+
+**Bundesliga Briefing: Decisive Diaz and Riera's unusual managerial methods**\
+`Little has changed in the title race, but a new manager is making an impact at Eintracht Frankfurt`\
+https://nytimes.com/athletic/7031191/2026/02/09/bundesliga-briefing-diaz-riera/
+
+**How Man Utd are smartly using their players outside the box from corners**\
+`Manchester United have dedicated time to working on set pieces — but it is players outside the box having an impact from corners`\
+https://nytimes.com/athletic/7030487/2026/02/09/manchester-united-corners-outside-box-analysis/
+
 **Five Years After Myanmar Coup, ‘Even Hope Has Become a Risk’**\
 `The country’s cities have been spared the violence of a hard-fought civil war. But as the economy has hollowed out, many urbanites have become desperate.`\
 https://nytimes.com/2026/02/09/world/asia/myanmar-coup-anniversary.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/02/09/world/africa/congo-goma-m23-photos.html
 **From Fishing Nets to Furniture: Turning Ocean Plastic Into Usable Products**\
 `A brother-and-sister team in Spain started a sustainable business model recycling old and damaged nets into stadium seating and decorations.`\
 https://nytimes.com/2026/02/09/business/gravity-wave-conservation.html
-
-**Connections: Sports Edition Coach: Hints and answers for Feb. 9, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7032055/2026/02/09/connections-sports-edition-hints-answers-feb-9-2026/
-
-**No Corrections: Feb. 9, 2026**\
-`No corrections appeared in print on Monday, Feb. 9, 2026.`\
-https://nytimes.com/2026/02/09/pageoneplus/no-corrections-feb-9-2026.html
-
-**Bad Bunny’s Halftime Show: Our Instant Reactions**\
-`Popcast’s immediate thoughts after Bad Bunny took the stage for a tribute to his native Puerto Rico.`\
-https://nytimes.com/2026/02/08/arts/music/bad-bunny-super-bowl-halftime-reactions.html
-
-**At Milan sports bar, Super Bowl 60 packs house with Winter Olympic nomads**\
-`If you happened to be in Milan early Monday and had to watch Super Bowl 60, the place to be was Offside Sports Pub.`\
-https://nytimes.com/athletic/7032085/2026/02/08/super-bowl-lx-milan-cortina-olympics-bar/
-
-**The Child in Bad Bunny’s Halftime Show Was an Actor**\
-`There was much speculation about the boy’s identity. The young actor posted on social media about his experience as part of Bad Bunny’s performance.`\
-https://nytimes.com/2026/02/08/arts/music/child-actor-bad-bunny-halftime.html
 

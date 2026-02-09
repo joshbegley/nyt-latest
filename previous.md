@@ -1,3 +1,31 @@
+**Five Years After Myanmar Coup, ‘Even Hope Has Become a Risk’**\
+`The country’s cities have been spared the violence of a hard-fought civil war. But as the economy has hollowed out, many urbanites have become desperate.`\
+https://nytimes.com/2026/02/09/world/asia/myanmar-coup-anniversary.html
+
+**Quote of the Day: For U.S. Athletes at Olympics, No Escaping American Politics**\
+`Quotation of the Day for Monday, February 9, 2026.`\
+https://nytimes.com/2026/02/09/pageoneplus/quote-of-the-day-for-us-athletes-at-olympics-no-escaping-american-politics.html
+
+**In Pakistan, a Kite Festival Returns to Troubled Skies**\
+`The vibrant celebration, banned for two decades, brightened the eastern city of Lahore, where residents face alarming levels of air pollution and political restrictions.`\
+https://nytimes.com/2026/02/09/world/asia/pakistan-kite-lahore.html
+
+**A City, Taken**\
+`A year after a rebel takeover, residents of Goma, in eastern Democratic Republic of Congo, carry violent memories and signs of hope.`\
+https://nytimes.com/2026/02/09/world/africa/congo-goma-m23-photos.html
+
+**From Fishing Nets to Furniture: Turning Ocean Plastic Into Usable Products**\
+`A brother-and-sister team in Spain started a sustainable business model recycling old and damaged nets into stadium seating and decorations.`\
+https://nytimes.com/2026/02/09/business/gravity-wave-conservation.html
+
+**Connections: Sports Edition Coach: Hints and answers for Feb. 9, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7032055/2026/02/09/connections-sports-edition-hints-answers-feb-9-2026/
+
+**No Corrections: Feb. 9, 2026**\
+`No corrections appeared in print on Monday, Feb. 9, 2026.`\
+https://nytimes.com/2026/02/09/pageoneplus/no-corrections-feb-9-2026.html
+
 **Bad Bunny’s Halftime Show: Our Instant Reactions**\
 `Popcast’s immediate thoughts after Bad Bunny took the stage for a tribute to his native Puerto Rico.`\
 https://nytimes.com/2026/02/08/arts/music/bad-bunny-super-bowl-halftime-reactions.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7032085/2026/02/08/super-bowl-lx-milan-cortina-olym
 **The Child in Bad Bunny’s Halftime Show Was an Actor**\
 `There was much speculation about the boy’s identity. The young actor posted on social media about his experience as part of Bad Bunny’s performance.`\
 https://nytimes.com/2026/02/08/arts/music/child-actor-bad-bunny-halftime.html
-
-**Seahawks open as Super Bowl favorites to repeat after dominant triumph**\
-`Underdogs no more: The Seahawks are favored to repeat after winning the championship as preseason longshots.`\
-https://nytimes.com/athletic/7032067/2026/02/08/super-bowl-2027-odds-seahawks-repeat-favorites-rams/
-
-**Kenneth Walker III named Super Bowl 60 MVP after Seahawks defeat Patriots**\
-`The running back helped the Seattle offense control much of the game on a day when Jaxon Smith-Njigba was held in check.`\
-https://nytimes.com/athletic/7031979/2026/02/08/super-bowl-2026-mvp-kenneth-walker-seahawks/
-
-**Cadillac F1 team unveils livery, dual-color car design in Super Bowl commercial**\
-`For Cadillac's first few years in F1, it will use Ferrari engines.`\
-https://nytimes.com/athletic/7032042/2026/02/08/cadillac-f1-car-livery-super-bowl-2026-commercial/
-
-**What Does the Number 64 Mean on Bad Bunny’s Super Bowl Look?**\
-`And where did his suit come from? The answers may surprise.`\
-https://nytimes.com/2026/02/08/style/bad-bunny-ocasio-64-super-bowl-halftime-outfit.html
-
-**Updated 2026 NFL Draft order: First two rounds set after Super Bowl LX**\
-`The Patriots and Seahawks will hold picks Nos. 31 and 32, respectively, after Seattle's win in Super Bowl LX.`\
-https://nytimes.com/athletic/7031103/2026/02/08/nfl-draft-order-2026-rounds-1-2/
-
-**Where's the next Super Bowl? Everything to know about future host cities**\
-`Super Bowl LXI is scheduled to be played on Valentine's Day for the first time in NFL history.`\
-https://nytimes.com/athletic/7029177/2026/02/08/super-bowl-61-location-logo-host-city/
-
-**Seahawks bully Drake Maye, Patriots on way to dominant Super Bowl 60 win**\
-`Seattle won its second championship with a 29-13 victory Sunday, forcing three turnovers while thwarting New England's upset bid.`\
-https://nytimes.com/athletic/7030353/2026/02/08/super-bowl-2026-winner-score-results-seahawks-patriots/
 
