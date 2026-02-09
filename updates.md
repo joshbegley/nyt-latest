@@ -1,3 +1,7 @@
+**NBA Rewind: How the trade deadline shook up the playoff (and tanking) picture**\
+`All-Star Weekend is almost here. Is that still a good thing?`\
+https://nytimes.com/athletic/7026380/2026/02/09/nba-rewind-trade-deadline-playoffs-all-star-weekend/
+
 **Five things I think about the stumbling Timberwolves as the All-Star break approaches**\
 `Minnesota looks disconnected and discombobulated. What's gone wrong, and can it be fixed before the playoffs?`\
 https://nytimes.com/athletic/7031384/2026/02/09/timberwolves-struggles-julius-randle-anthony-edwards/
