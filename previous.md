@@ -2,6 +2,10 @@
 `The unions representing pilots and flight attendants have in recent days publicly criticized American for falling behind Delta Air Lines and United Airlines.`\
 https://nytimes.com/2026/02/09/business/american-airlines-pilots-flight-attendants-unions.html
 
+**Breezy Johnson, other athletes see their Olympic medals break during celebrations**\
+`Olympic organizers are working to resolve the medal issue as quickly as possible.`\
+https://nytimes.com/athletic/7033707/2026/02/09/2026-olympic-medals-breaking-celebrations-breezy-johnson/
+
 **Gronk on Brady cards vs. Maye cards and the memorabilia he would never sell**\
 `Rob Gronkowski and his family have been getting back into collecting. `\
 https://nytimes.com/athletic/7033083/2026/02/09/gronkowski-brady-maye-football-cards/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7033411/2026/02/09/canada-sweden-close-practices-ol
 **WSL and clubs monitoring X's Grok over generation of sexualised images**\
 `Some WSL teams are monitoring the evolving social media landscape and will take action accordingly.`\
 https://nytimes.com/athletic/7032797/2026/02/09/wsl-grok-x-soccer/
-
-**Can This 21-Year-Old Make America Fall in Love With Figure Skating?**\
-`Ilia Malinin, who led the United States to a team gold medal at the Winter Olympics and will now vie for his own, is testing the physical limits of what is possible on the ice.`\
-https://nytimes.com/2026/02/09/world/olympics/ilia-malinin-ice-skating-winter-olympics.html
 

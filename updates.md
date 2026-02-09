@@ -1,3 +1,7 @@
+**Breezy Johnson, other athletes see their Olympic medals break during celebrations**\
+`Olympic organizers are working to resolve the medal issue as quickly as possible.`\
+https://nytimes.com/athletic/7033707/2026/02/09/2026-olympic-medals-breaking-celebrations-breezy-johnson/
+
 **Pilots and Flight Attendants Criticize American Airlines’ Performance**\
 `The unions representing pilots and flight attendants have in recent days publicly criticized American for falling behind Delta Air Lines and United Airlines.`\
 https://nytimes.com/2026/02/09/business/american-airlines-pilots-flight-attendants-unions.html
