@@ -1,3 +1,7 @@
+**'We should not promote them': Daniil Medvedev criticizes not round' tennis balls at Rotterdam Open**\
+`Medvedev, who has a litany of tennis-ball complaints, singled out manufacturer Head for criticism. It is yet to respond.`\
+https://nytimes.com/athletic/7033183/2026/02/09/daniil-medvedev-criticizes-head-tennis-balls/
+
 **Trump Is a Global ‘Wrecking Ball,’ European Security Experts Say**\
 `The organizers of the Munich Security Conference, Europe’s main defense-related forum, said in a report that President Trump is helping destroy the postwar international order.`\
 https://nytimes.com/2026/02/09/world/europe/trump-munich-conference-security-report.html

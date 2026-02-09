@@ -1,3 +1,7 @@
+**The London Warriors: The amateur team that changes lives and has produced a Super Bowl winner**\
+`The London Warriors has yielded some of Britain's brightest American football talents - and now a Super Bowl-winning coach.`\
+https://nytimes.com/athletic/7032803/2026/02/09/london-warriors-aden-durde-super-bowl-seattle-seahawks/
+
 **'We should not promote them': Daniil Medvedev criticizes not round' tennis balls at Rotterdam Open**\
 `Medvedev, who has a litany of tennis-ball complaints, singled out manufacturer Head for criticism. It is yet to respond.`\
 https://nytimes.com/athletic/7033183/2026/02/09/daniil-medvedev-criticizes-head-tennis-balls/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7033216/2026/02/09/olympics-mens-hockey-2026-canada
 **Duke staffer injured in UNC court storm 'doing better,' Tar Heels fined by ACC**\
 `UNC coach Hubert Davis and Duke coach Jon Scheyer have talked since Saturday's incident that followed the Tar Heels' game-winning shot.`\
 https://nytimes.com/athletic/7033317/2026/02/09/duke-unc-basketball-court-storming/
-
-**How to watch Pistons vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7033330/2026/02/09/pistons-vs-hornets-stream-how-to-watch-feb-9/
 
