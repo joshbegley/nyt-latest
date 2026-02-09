@@ -1,3 +1,12 @@
+**Seahawks open as Super Bowl favorites to repeat after dominant triumph**\
+`Underdogs no more: The Seahawks are favored to repeat after winning the championship as preseason longshots.`\
+https://nytimes.com/athletic/7032067/2026/02/08/super-bowl-2027-odds-seahawks-repeat-favorites-rams/
+
+**Cadillac F1 team unveils livery, dual-color car design for 2026 in Super Bowl commercial**\
+`For Cadillac's first few years in F1, it will use Ferrari engines.
+`\
+https://nytimes.com/athletic/7032042/2026/02/08/cadillac-f1-car-livery-super-bowl-2026-commercial/
+
 **Kenneth Walker III named Super Bowl 60 MVP after Seahawks defeat Patriots**\
 `The running back helped the Seattle offense control much of the game on a day when Jaxon Smith-Njigba was held in check.`\
 https://nytimes.com/athletic/7031979/2026/02/08/super-bowl-2026-mvp-kenneth-walker-seahawks/

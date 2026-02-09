@@ -7,8 +7,7 @@ https://nytimes.com/athletic/7032067/2026/02/08/super-bowl-2027-odds-seahawks-re
 https://nytimes.com/athletic/7031979/2026/02/08/super-bowl-2026-mvp-kenneth-walker-seahawks/
 
 **Cadillac F1 team unveils livery, dual-color car design for 2026 in Super Bowl commercial**\
-`For Cadillac's first few years in F1, it will use Ferrari engines.
-`\
+`For Cadillac's first few years in F1, it will use Ferrari engines.`\
 https://nytimes.com/athletic/7032042/2026/02/08/cadillac-f1-car-livery-super-bowl-2026-commercial/
 
 **What Does the Number 64 Mean on Bad Bunny’s Super Bowl Look?**\
