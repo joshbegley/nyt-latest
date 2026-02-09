@@ -1,3 +1,7 @@
+**The Child in Bad Bunny’s Halftime Show Was an Actor**\
+`There was much speculation about the boy’s identity. The young actor posted on social media about his experience as part of Bad Bunny’s performance.`\
+https://nytimes.com/2026/02/08/arts/music/child-actor-bad-bunny-halftime.html
+
 **Seahawks open as Super Bowl favorites to repeat after dominant triumph**\
 `Underdogs no more: The Seahawks are favored to repeat after winning the championship as preseason longshots.`\
 https://nytimes.com/athletic/7032067/2026/02/08/super-bowl-2027-odds-seahawks-repeat-favorites-rams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7030470/2026/02/08/super-bowl-seahawks-champions-wi
 **Jimmy Lai’s 20-Year Term Follows a China Playbook For Punishing Critics**\
 `The heavy sentence for the Hong Kong publisher aligns with mainland cases where influential critics of the Communist Party have been sent to prison for many years.`\
 https://nytimes.com/2026/02/08/world/asia/jimmy-lai-china-critics.html
-
-**Bad Bunny Delivers a Love Letter to Puerto Rico at Super Bowl Halftime**\
-`His performance featured a sugar cane field, a wedding seemingly officiated onstage and a New York-style street scene, along with appearances by Lady Gaga and Ricky Martin.`\
-https://nytimes.com/2026/02/08/arts/music/bad-bunny-super-bowl-halftime-puerto-rico.html
 

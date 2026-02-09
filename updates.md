@@ -1,3 +1,7 @@
+**Cadillac F1 team unveils livery, dual-color car design in Super Bowl commercial**\
+`For Cadillac's first few years in F1, it will use Ferrari engines.`\
+https://nytimes.com/athletic/7032042/2026/02/08/cadillac-f1-car-livery-super-bowl-2026-commercial/
+
 **Cadillac F1 team unveils livery, dual-color car design for 2026 in Super Bowl commercial**\
 `For Cadillac's first few years in F1, it will use Ferrari engines.
 `\
