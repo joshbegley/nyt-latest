@@ -1,3 +1,7 @@
+**In Bad Bunny’s Halftime Show, a Real Wedding With 70,000 Guests**\
+`The couple married on the field had invited the Puerto Rican singer to their wedding, but instead received an invitation to appear onstage with him, his management said.`\
+https://nytimes.com/2026/02/09/us/super-bowl-wedding-real-halftime-show.html
+
 **2026 NFL Mock Draft: After Super Bowl LX, how might first three rounds look?**\
 `Fernando Mendoza seems destined to be a Raider, but how many other quarterbacks will crack the top 100?`\
 https://nytimes.com/athletic/7021113/2026/02/09/nfl-mock-draft-2026-fernando-mendoza-quarterbacks/

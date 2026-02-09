@@ -1,40 +1,40 @@
-**In Bad Bunny’s Halftime Show, a Real Wedding With 70,000 Guests**\
-`The couple married on the field had invited the Puerto Rican singer to their wedding, but instead received an invitation to appear onstage with him, his management said.`\
-https://nytimes.com/2026/02/09/us/super-bowl-wedding-real-halftime-show.html
+**Falcons mailbag: How will Atlanta handle looming contract issues across the offense?**\
+`The Falcons have three key offensive weapons with contract questions to be answered in the near future. How will the new regime handle them?`\
+https://nytimes.com/athletic/7030812/2026/02/09/falcons-mailbag-kyle-pitts-contract-bijan-robinson/
 
-**2026 NFL Mock Draft: After Super Bowl LX, how might first three rounds look?**\
-`Fernando Mendoza seems destined to be a Raider, but how many other quarterbacks will crack the top 100?`\
-https://nytimes.com/athletic/7021113/2026/02/09/nfl-mock-draft-2026-fernando-mendoza-quarterbacks/
+**Jesse Minter's first coaching hires: Deeper look at the Ravens' moves**\
+`With more hires to make, Minter has not always prioritized NFL coaching experience, particularly on the offensive side of the ball.`\
+https://nytimes.com/athletic/7030752/2026/02/09/ravens-jesse-minter-coaching-staff-hires-analysis/
 
-**Crosby on 2026 Olympics and the weight of Team Canada gold medal aspirations**\
-`Crosby is no stranger to pressure, but captaining Team Canada in possibly his final Olympics is new. Here's how he handles it.`\
-https://nytimes.com/athletic/7029106/2026/02/09/olympic-mens-hockey-2026-team-canada-sidney-crosby/
+**Ranking Panthers' unrestricted free agents: Does Rico Dowdle bolt? Cade Mays a priority?**\
+`The Panthers don't have a star-powered group of UFAs and could bring back some key contributors on team-friendly deals.`\
+https://nytimes.com/athletic/7030958/2026/02/09/panthers-unrestricted-free-agents-ranking-rico-dowdle/
 
-**The New York Times International Edition in Print for Tuesday, Feb. 10, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/02/09/todays-new-york-times-international-edition
+**Canada can't risk starting Jordan Binnington over Logan Thompson at the Olympics**\
+`There should be no question who Canada’s starter is at the Olympics. That it’s even up for debate feels like the country is being gaslit.`\
+https://nytimes.com/athletic/7024085/2026/02/09/canada-olympics-jordan-binnington-logan-thompson/
 
-**Seahawks' title underscores how to win in the modern NFL. There's no going back: Pick Six**\
-`Great QBs have ruled the NFL for decades, but increasingly, even they are living in a league driven by the active, opportunistic GM.`\
-https://nytimes.com/athletic/6997529/2026/02/09/seahawks-super-bowl-champions-gm-john-schneider/
+**How do we feel about the Knicks going into final stretch of season?**\
+`To examine the Knicks' final stretch of the season, James L. Edwards III and Fred Katz discussed the franchise’s last 20 games.`\
+https://nytimes.com/athletic/7031260/2026/02/09/knicks-nba-trade-deadline-kat-brunson-alvarado/
 
-**Jimmy Lai’s 20-Year Sentence Follows Beijing’s Playbook on Dissent**\
-`The sentence for the media mogul, along with long prison terms for his editors, shows how Hong Kong enforces Xi Jinping’s red lines with a new severity.`\
-https://nytimes.com/2026/02/09/world/asia/jimmy-lai-sentence-analysis.html
+**In a boring Super Bowl, NBC's Mike Tirico was the best quarterback**\
+`Super Bowl 60's play-by-play voice elevated what was otherwise mostly a tedious game on the field.`\
+https://nytimes.com/athletic/7032159/2026/02/09/super-bowl-60-nbc-mike-tirico/
 
-**It's officially baseball season: 8 reasons to get excited about 2026 spring training**\
-`From stars in new places to rookies competing for roster spots to the ABS challenge system rollout, there's lots to watch this spring.`\
-https://nytimes.com/athletic/7025279/2026/02/09/spring-training-2026-exciting-storylines/
+**'Like a kid living my dream': NHL stars take Olympic ice for the first time**\
+`Some of the best players in the world are just now experiencing the Olympics for the first time, and the reality is sinking in.`\
+https://nytimes.com/athletic/7031808/2026/02/09/olympics-mens-hockey-2026-nhl-players/
 
-**Seahawks’ Defense Dominates in Super Bowl Victory Over Patriots**\
-`The Seattle Seahawks sacked the New England Patriots quarterback Drake Maye six times and forced three turnovers to win their second Super Bowl, 29-13.`\
-https://nytimes.com/video/sports/football/100000010699276/seahawks-defense-dominates-in-super-bowl-victory-over-patriots.html
+**The Athletic's men's hoops Top 25: Are Arizona and Michigan in a tier of their own?**\
+`Arizona and Michigan could be on a collision course for one of the most epic national title games ever.`\
+https://nytimes.com/athletic/7031573/2026/02/09/mens-college-basketball-top-25-arizona-michigan-houston/
 
-**San Francisco Teachers Walk Out for the First Time Since 1979**\
-`The strike closed public schools for more than 50,000 students in the city and had no end date. Health care costs are a key issue in negotiations.`\
-https://nytimes.com/2026/02/09/us/san-francisco-teachers-strike.html
+**The New Way Trump Allies Are Offering Access to the President, and the Flood of U.S. Ammo to Mexican Cartels**\
+`Plus, Super Bowl and Olympics highlights.`\
+https://nytimes.com/2026/02/09/podcasts/the-headlines/trump-allies-offering-access-president-american-ammo-mexico.html
 
-**Serena Williams, a tale of two Super Bowl appearances, and a tennis comeback in-waiting**\
-`12 months on from her appearance with Kendrick Lamar, the 23-time Grand Slam champion took a very different role.`\
-https://nytimes.com/athletic/7027170/2026/02/09/serena-williams-super-bowl-ad-performance/
+**Could the Czech Republic's goaltending make it an Olympic dark horse?**\
+`Lukáš Dostál has heard plenty about Dominik Hašek's gold medal in 1998. Can he help his country pull off the upset this month?`\
+https://nytimes.com/athletic/6936827/2026/02/09/olympics-mens-hockey-2026-czech-republic-czechia-goaltending/
 
