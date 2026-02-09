@@ -1,3 +1,7 @@
+**It's officially baseball season: 8 reasons to get excited about 2026 spring training**\
+`From stars in new places to rookies competing for roster spots to the ABS challenge system rollout, there's lots to watch this spring.`\
+https://nytimes.com/athletic/7025279/2026/02/09/spring-training-2026-exciting-storylines/
+
 **Seahawks’ Defense Dominates in Super Bowl Victory Over Patriots**\
 `The Seattle Seahawks sacked the New England Patriots quarterback Drake Maye six times and forced three turnovers to win their second Super Bowl, 29-13.`\
 https://nytimes.com/video/sports/football/100000010699276/seahawks-defense-dominates-in-super-bowl-victory-over-patriots.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/09/opinion/melania-trump-tillis-noem.html
 **Does It Matter What I Wear to Work Out?**\
 `Our critic offers advice on choosing your gear — and thoughts on whether it really affects your performance.`\
 https://nytimes.com/2026/02/09/fashion/workout-clothes-brands-exercise.html
-
-**Howe has 'no doubt' he is right for Newcastle**\
-`Howe said he would "never put myself before the club" when asked if his side's form had placed any doubts in his mind over his suitability.`\
-https://nytimes.com/athletic/7032575/2026/02/09/eddie-howe-newcastle-head-coach/
 

@@ -1,3 +1,7 @@
+**It's officially baseball season: 8 reasons to get excited about 2026 spring training**\
+`From stars in new places to rookies competing for roster spots to the ABS challenge system rollout, there's lots to watch this spring.`\
+https://nytimes.com/athletic/7025279/2026/02/09/spring-training-2026-exciting-storylines/
+
 **Seahawks’ Defense Dominates in Super Bowl Victory Over Patriots**\
 `The Seattle Seahawks sacked the New England Patriots quarterback Drake Maye six times and forced three turnovers to win their second Super Bowl, 29-13.`\
 https://nytimes.com/video/sports/football/100000010699276/seahawks-defense-dominates-in-super-bowl-victory-over-patriots.html
