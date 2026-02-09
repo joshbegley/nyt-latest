@@ -1,3 +1,15 @@
+**Live Updates: Bad Bunny Set to Take Super Bowl Halftime Stage**\
+`The Puerto Rican musician won album of the year at the Grammy Awards. It will be the first halftime show to be performed entirely in Spanish, and his appearance has become a political flashpoint amid his criticism of ICE.`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny
+
+**Bad Bunny made history one week ago at the Grammys.**\
+`By David Browne`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/bad-bunny-made-history-one-week-ago-at-the-grammys
+
+**Here’s the latest.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/heres-the-latest
+
 **How Canada’s Olympic men's hockey initial practice lines showcase planned identity**\
 `Tom Wilson and Macklin Celebrini were not at the 4 Nations Face-Off. Now they are on Canada's top line at the Olympics. It says a lot.`\
 https://nytimes.com/athletic/7031830/2026/02/08/olympic-mens-hockey-2026-team-canada-practice-lines-identity/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/08/world/how-the-american-skaters-held-off-japan-to-
 **Cam Thomas signs with Bucks for rest of season after being waived by Nets: Sources**\
 `Thomas averaged 15.6 points and 3.1 assists in 24.3 minutes per game in 24 appearances (eight starts) with the Brooklyn Nets this season.`\
 https://nytimes.com/athletic/7031647/2026/02/08/cam-thomas-bucks-free-agent-signing-nets/
-
-**Italy PM condemns anti-Olympics acts, including alleged sabotage of railway line**\
-`Authorities launch terrorism investigation into railway sabotage in northern Italy, police skirmish with demonstrators in Milan.`\
-https://nytimes.com/athletic/7031362/2026/02/08/meloni-condemns-anti-olympics-acts-in-milan-protests/
-
-**Carlsen beats Firouzja to win fifth Speed Chess Championship**\
-`Carlsen banked $25,000 plus an additional split based on winning percentage by beating Alireza Firouzja. `\
-https://nytimes.com/athletic/7031577/2026/02/08/magnus-carlsen-wins-scc-chess-london/
-
-**Trump calls Olympian ‘a real loser’ over comments on representing U.S.**\
-`President Trump responds to Hunter Hess' comments on representing the U.S. at the Winter Olympics. `\
-https://nytimes.com/athletic/7031234/2026/02/08/president-trump-hunter-hess-2026-winter-olympics/
 
