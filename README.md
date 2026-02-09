@@ -1,9 +1,13 @@
+**Updated 2026 NFL Draft order: First two rounds set after Super Bowl LX**\
+`The Patriots and Seahawks will hold picks Nos. 31 and 32, respectively, after Seattle's win in Super Bowl LX.`\
+https://nytimes.com/athletic/7031103/2026/02/08/nfl-draft-order-2026-rounds-1-2/
+
 **Where’s the next Super Bowl? Everything to know about future host cities**\
 `Super Bowl LXI is scheduled to be played on Valentine's Day for the first time in NFL history.`\
 https://nytimes.com/athletic/7029177/2026/02/08/super-bowl-61-location-logo-host-city/
 
 **Seahawks bully Drake Maye, Patriots on way to dominant Super Bowl 60 win**\
-`Seattle won its second championship with a 29-13 victory on Sunday, thwarting New England's upset bid in a low-scoring Super Bowl.`\
+`Seattle won its second championship with a 29-13 victory Sunday, thwarting New England's upset bid with three turnovers.`\
 https://nytimes.com/athletic/7030353/2026/02/08/super-bowl-2026-winner-score-results-seahawks-patriots/
 
 **The Seahawks blocked out the BS. Now they're Super Bowl champions**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7031946/2026/02/08/turning-point-usa-halftime-show-
 **Seahawks' Jaxon Smith-Njigba returns to Super Bowl after being examined for concussion**\
 `Jaxon Smith-Njigba, the NFL's Offensive Player of the Year, went to the locker room to be examined before returning to the game.`\
 https://nytimes.com/athletic/7032011/2026/02/08/jaxon-smith-njigba-concussion-seahawks-super-bowl/
-
-**Lai has been held in solitary confinement for more than 1,800 days.**\
-`By Alexandra Stevenson`\
-https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong/lai-has-been-held-in-solitary-confinement-for-more-than-1800-days
 

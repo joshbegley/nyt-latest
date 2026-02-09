@@ -1,6 +1,22 @@
-**Bad Bunny delivers a love letter to Puerto Rico and the power of song.**\
-`By Jon Pareles, Ben Sisario and Lindsay Zoladz`\
-https://nytimes.com/2026/02/08/arts/music/bad-bunny-delivers-a-love-letter-to-puerto-rico-and-the-power-of-song.html
+**Where’s the next Super Bowl? Everything to know about future host cities**\
+`Super Bowl LXI is scheduled to be played on Valentine's Day for the first time in NFL history.`\
+https://nytimes.com/athletic/7029177/2026/02/08/super-bowl-61-location-logo-host-city/
+
+**Seahawks bully Drake Maye, Patriots on way to dominant Super Bowl 60 win**\
+`Seattle won its second championship with a 29-13 victory on Sunday, thwarting New England's upset bid in a low-scoring Super Bowl.`\
+https://nytimes.com/athletic/7030353/2026/02/08/super-bowl-2026-winner-score-results-seahawks-patriots/
+
+**The Seahawks blocked out the BS. Now they're Super Bowl champions**\
+`The Seahawks were on a mission, brushing aside anything that could distract from their goal. And now? Mission accomplished.`\
+https://nytimes.com/athletic/7030470/2026/02/08/super-bowl-seahawks-champions-winning-strategy/
+
+**Jimmy Lai’s 20-Year Term Follows a China Playbook For Punishing Critics**\
+`The heavy sentence for the Hong Kong publisher aligns with mainland cases where influential critics of the Communist Party have been sent to prison for many years.`\
+https://nytimes.com/2026/02/08/world/asia/jimmy-lai-china-critics.html
+
+**Bad Bunny Delivers a Love Letter to Puerto Rico at Super Bowl Halftime**\
+`His performance featured a sugar cane field, a wedding seemingly officiated onstage and a New York-style street scene, along with appearances by Lady Gaga and Ricky Martin.`\
+https://nytimes.com/2026/02/08/arts/music/bad-bunny-super-bowl-halftime-puerto-rico.html
 
 **An alternative halftime show pays tribute to Charlie Kirk.**\
 `By Marc Tracy`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7032011/2026/02/08/jaxon-smith-njigba-concussion-se
 **Lai has been held in solitary confinement for more than 1,800 days.**\
 `By Alexandra Stevenson`\
 https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong/lai-has-been-held-in-solitary-confinement-for-more-than-1800-days
-
-**2026 Olympics, Day 2 recap: Lindsey Vonn crashes, U.S. skaters, Breezy Johnson win gold**\
-`It was a day of tragedy and elation for athletes from the U.S. and Italy at the Milan Cortina Winter Olympics on Sunday.`\
-https://nytimes.com/athletic/7031760/2026/02/08/olympics-2026-day-2-recap-lindsey-vonn-ilia-malinin/
-
-**‘Popcast’ breaks down Bad Bunny’s halftime performance.**\
-`By Jon Caramanica`\
-https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/popcast-breaks-down-bad-bunnys-halftime-performance
-
-**Amber Glenn sees mixed emotions in Olympic U.S. gold win, her performance and critics**\
-`Glenn said the backlash she received following political comments was stunning but not a hindrance to her performance. `\
-https://nytimes.com/athletic/7031453/2026/02/08/amber-glenn-figure-skating-olympics-politics-lgbtq-donald-trump/
-
-**Jimmy Lai’s children have led a global campaign for him.**\
-`By David Pierson`\
-https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong/jimmy-lais-children-have-led-a-global-campaign-for-him
 

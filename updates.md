@@ -1,3 +1,23 @@
+**Where’s the next Super Bowl? Everything to know about future host cities**\
+`Super Bowl LXI is scheduled to be played on Valentine's Day for the first time in NFL history.`\
+https://nytimes.com/athletic/7029177/2026/02/08/super-bowl-61-location-logo-host-city/
+
+**Seahawks bully Drake Maye, Patriots on way to dominant Super Bowl 60 win**\
+`Seattle won its second championship with a 29-13 victory on Sunday, thwarting New England's upset bid in a low-scoring Super Bowl.`\
+https://nytimes.com/athletic/7030353/2026/02/08/super-bowl-2026-winner-score-results-seahawks-patriots/
+
+**The Seahawks blocked out the BS. Now they're Super Bowl champions**\
+`The Seahawks were on a mission, brushing aside anything that could distract from their goal. And now? Mission accomplished.`\
+https://nytimes.com/athletic/7030470/2026/02/08/super-bowl-seahawks-champions-winning-strategy/
+
+**Jimmy Lai’s 20-Year Term Follows a China Playbook For Punishing Critics**\
+`The heavy sentence for the Hong Kong publisher aligns with mainland cases where influential critics of the Communist Party have been sent to prison for many years.`\
+https://nytimes.com/2026/02/08/world/asia/jimmy-lai-china-critics.html
+
+**Bad Bunny Delivers a Love Letter to Puerto Rico at Super Bowl Halftime**\
+`His performance featured a sugar cane field, a wedding seemingly officiated onstage and a New York-style street scene, along with appearances by Lady Gaga and Ricky Martin.`\
+https://nytimes.com/2026/02/08/arts/music/bad-bunny-super-bowl-halftime-puerto-rico.html
+
 **Bad Bunny delivers a love letter to Puerto Rico and the power of song.**\
 `By Jon Pareles, Ben Sisario and Lindsay Zoladz`\
 https://nytimes.com/2026/02/08/arts/music/bad-bunny-delivers-a-love-letter-to-puerto-rico-and-the-power-of-song.html
