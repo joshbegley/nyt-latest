@@ -1,3 +1,11 @@
+**The state of the Premier League title race as Man City stay in contention… just**\
+`Arsenal were dreaming of a nine-point lead in the Premier League title race. Then Erling Haaland made his late intervention at Anfield `\
+https://nytimes.com/athletic/7032432/2026/02/09/premier-league-title-race-md25/
+
+**Trump Criticizes Bad Bunny’s Super Bowl Halftime Show**\
+`Bad Bunny, the Puerto Rican superstar who has denounced ICE, celebrated Latino heritage in his largely Spanish-language performance.`\
+https://nytimes.com/2026/02/09/us/trump-bad-bunny-super-bowl-halftime-show.html
+
 **Mathilde Gremaud makes history as she beats Eileen Gu to Olympic gold once again**\
 `Mathilde Gremaud retained the title she won in Beijing four years ago, with Eileen Gu once again in silver`\
 https://nytimes.com/athletic/7032654/2026/02/09/eileen-gu-freeski-slopestyle-final-2026-winter-olympics/
