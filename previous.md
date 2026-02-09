@@ -1,3 +1,19 @@
+**Iran Detains Prominent Opposition Figures, Expanding Crackdown on Dissent**\
+`The detentions of figures from Iran’s opposition follow mass arrests and a string of repression tactics aimed at preventing further anti-government unrest.`\
+https://nytimes.com/2026/02/09/world/europe/iran-detains-prominent-opposition-figures-expanding-crackdown-on-dissent.html
+
+**Canucks trade targets: 10 reclamation projects that fit for a rebuilding team**\
+`Here are 10 reclamation projects for the Canucks to consider as they begin to look to the future.`\
+https://nytimes.com/athletic/7020596/2026/02/09/canucks-trade-targets-reclamation-projects/
+
+**2025 Super Mega Crossword Answers**\
+`2025 Super Mega Crossword Answers`\
+https://nytimes.com/interactive/2026/02/09/crosswords/iverson-2025-super-mega-clued-solution.html
+
+**Franjo von Allmen is 2026 Olympics' first athlete to win two gold medals after men's team combined**\
+`Downhiller Franjo von Allmen teamed with slalom skier Tanguy Nef to win gold, his second of these Games.`\
+https://nytimes.com/athletic/7033042/2026/02/09/olympics-franjo-von-allmen-gold-mens-team-combined/
+
 **Olympic Feats and Tailgating Feasts at 100-Year-Old Ski Jump in Connecticut**\
 `Salisbury, Conn., has been hosting ski jumping competitions since 1926, when the Satre brothers from Norway brought the sport to Litchfield County.`\
 https://nytimes.com/2026/02/09/nyregion/salisbury-jumpfest-2026-connecticut-ski-jump.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7032599/2026/02/09/premier-league-data-notebook-md2
 **The resignation of a key Starmer aide has accelerated the scandal.**\
 `By Michael D. Shear and Stephen Castle`\
 https://nytimes.com/live/2026/02/09/world/uk-starmer-resign-epstein-mandelson/the-resignation-of-a-key-starmer-aide-has-accelerated-the-scandal
-
-**How Democrats Are Trying to Rein in ICE**\
-`Michael Gold, a reporter for The New York Times, describes the fight in Congress over funding the Department of Homeland Security, as Democrats push for restrictions on federal immigration agents.`\
-https://nytimes.com/video/us/politics/100000010690129/congress-department-homeland-security-funding-federal-immigration-agents.html
-
-**Tottenham's Udogie out for 'four to five weeks' - Frank**\
-`The Italy international pulled up in the second half of Spurs’ 2-0 defeat to Manchester United last Saturday.`\
-https://nytimes.com/athletic/7033053/2026/02/09/tottenham-destiny-udogie-injury-frank/
-
-**Here’s the latest.**\
-`By Stephen Castle`\
-https://nytimes.com/live/2026/02/09/world/uk-starmer-resign-epstein-mandelson/heres-the-latest
-
-**Prince William Visits Saudi Arabia for Delicate Diplomacy**\
-`The heir to the British throne will meet with Crown Prince Mohammed bin Salman, as Britain and Saudi Arabia look to strengthen ties.`\
-https://nytimes.com/2026/02/09/world/europe/prince-william-saudi-arabia-diplomacy.html
 
