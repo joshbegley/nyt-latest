@@ -1,3 +1,15 @@
+**With Lindsey Vonn out, U.S. women's Alpine enters team event still with high hopes**\
+`The top pairings still give the U.S. a great shot at one or more medals in Tuesday's team combined.`\
+https://nytimes.com/athletic/7033407/2026/02/09/winter-olympics-lindsey-vonn-us-alpine-skiing-team-combined/
+
+**Games Briefing: That repeat glow**\
+`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7033511/2026/02/09/mathilde-gremaud-eileen-gu-freeski-slopestyle-medal-games-briefing/
+
+**Hungry Families, ICE and Secret Grocery Networks in Minneapolis**\
+`As immigrants become increasingly afraid to leave their homes for fear of being detained, access to food, including free school lunches, is being cut off.`\
+https://nytimes.com/2026/02/09/dining/minneapolis-ice-grocery-stores-hunger.html
+
 **16-year-old American Payton Westcott to represent Mercedes in 2026 F1 Academy season**\
 `Westcott will compete for PREMA Racing in the series and will also continue racing in Italian F4 this year.`\
 https://nytimes.com/athletic/7033517/2026/02/09/payton-westcott-mercedes-f1-academy/
@@ -27,16 +39,4 @@ https://nytimes.com/2026/02/09/arts/music/review-mahler-ivan-fischer-budapest-fe
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/7033549/2026/02/09/submit-a-question-for-stewart-mandels-college-football-mailbag-334/
-
-**A.I. Is Making Doctors Answer a Question: What Are They Really Good For?**\
-`Many physicians find chatbots threatening, but that doesn’t mean they’re giving up on medicine.`\
-https://nytimes.com/2026/02/09/health/ai-chatbots-doctors-medicine.html
-
-**The Elusive Beef Cut Some Chefs Can’t Resist**\
-`Beef shanks are largely absent from major U.S. grocery stores, but that won’t stop those who crave the collagen-rich cut from finding them.`\
-https://nytimes.com/2026/02/09/dining/beef-shanks.html
-
-**Eagles hire Chris Kuper as offensive line coach to replace Jeff Stoutland**\
-`Kuper replaces Stoutland, who had the job for 13 years.`\
-https://nytimes.com/athletic/7033344/2026/02/09/eagles-hire-offensive-line-coach-chris-kuper-jeff-stoutland/
 
