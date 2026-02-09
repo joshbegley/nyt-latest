@@ -1,4 +1,8 @@
 **Mike Macdonald is a defensive mastermind — to win a Super Bowl, he became so much more**\
+`Macdonald lifted the Lombardi Trophy in his second season with the Seahawks.`\
+https://nytimes.com/athletic/7032434/2026/02/09/mike-macdonald-seattle-seahawks-coaching-style/
+
+**Mike Macdonald is a defensive mastermind — to win a Super Bowl, he became so much more**\
 `SANTA CLARA, Calif.`\
 https://nytimes.com/athletic/7032434/2026/02/09/mike-macdonald-seattle-seahawks-coaching-style/
 
