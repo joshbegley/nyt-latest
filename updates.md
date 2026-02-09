@@ -1,3 +1,11 @@
+**Inside Barcelona: Laporta eyeing another term as elections begin. Plus: Bernal is back**\
+`Joan Laporta is the strong favourite as Barca's elections kick off, while Marc Bernal made up for lost time against Real Mallorca`\
+https://nytimes.com/athletic/7032653/2026/02/09/inside-barcelona-laporta-bernal-analysis/
+
+**Duran joins Zenit on loan from Al Nassr**\
+`Duran cut short his season-long loan at Fenerbahce and will spend the second half of the season at the Russian club.`\
+https://nytimes.com/athletic/7004646/2026/02/09/jhon-duran-zenit-st-petersburg/
+
 **Duran joins Zenit St. Petersburg on loan from Al Nassr**\
 `Duran cut short his season-long loan at Fenerbahce and will spend the second half of the season at the Russian club.`\
 https://nytimes.com/athletic/7004646/2026/02/09/jhon-duran-zenit-st-petersburg/
