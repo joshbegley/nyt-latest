@@ -6,8 +6,8 @@ https://nytimes.com/2026/02/09/arts/music/bad-bunny-super-bowl-halftime-show-rev
 `Mathilde Gremaud edges out Eileen Gu to win slopestyle gold.`\
 https://nytimes.com/2026/02/09/world/slopestyle-eileen-gu-mathilde-gremaud.html
 
-**Starmer’s Communications Chief Resigns, Adding to British Leader’s Woes**\
-`Tim Allan is the second senior member of Prime Minister Keir Starmer’s team to depart in less than 24 hours.`\
+**Starmer’s Communications Chief Quits, Adding to British Leader’s Woes**\
+`Tim Allan is the second senior member of Prime Minister Keir Starmer’s team to depart in less than 24 hours. The latest resignation increases the pressure on Mr. Starmer’s premiership.`\
 https://nytimes.com/2026/02/09/world/europe/keir-starmer-uk-communications-resigns.html
 
 **Pirates to sign Marcell Ozuna after missing on big bats this offseason: Source**\

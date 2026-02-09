@@ -1,3 +1,15 @@
+**Bad Bunny’s Halftime History Lesson**\
+`The superstar showcased Puerto Rican pride during a 13-minute set that turned a global opportunity into an intimate, personal performance.`\
+https://nytimes.com/2026/02/09/arts/music/bad-bunny-super-bowl-halftime-show-review.html
+
+**The difference between gold and silver: a sliver.**\
+`Mathilde Gremaud edges out Eileen Gu to win slopestyle gold.`\
+https://nytimes.com/2026/02/09/world/slopestyle-eileen-gu-mathilde-gremaud.html
+
+**Starmer’s Communications Chief Resigns, Adding to British Leader’s Woes**\
+`Tim Allan is the second senior member of Prime Minister Keir Starmer’s team to depart in less than 24 hours.`\
+https://nytimes.com/2026/02/09/world/europe/keir-starmer-uk-communications-resigns.html
+
 **Pirates to sign Marcell Ozuna after missing on big bats this offseason: Source**\
 `The Pirates targeted multiple options this offseason to improve their league-worst offense before landing Ozuna.`\
 https://nytimes.com/athletic/6838995/2026/02/09/mlb-marcell-ozuna-free-agency-signing-pirates/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/09/business/dealbook/super-bowl-ads-ai.html
 **Why the rest of this season for Giannis Antetokounmpo and the Bucks is worth watching closely**\
 `An interesting plotline as Giannis and the Bucks stick together for now: The team's best path is to tank. The star likely won't accept that.`\
 https://nytimes.com/athletic/7026801/2026/02/09/giannis-bucks-injury-management-nba-trade/
-
-**The state of the Premier League title race as Man City stay in contention… just**\
-`Arsenal were dreaming of a nine-point lead in the Premier League title race. Then Erling Haaland made his late intervention at Anfield `\
-https://nytimes.com/athletic/7032432/2026/02/09/premier-league-title-race-md25/
-
-**Trump Criticizes Bad Bunny’s Super Bowl Halftime Show**\
-`Bad Bunny, the Puerto Rican superstar who has denounced ICE, celebrated Latino heritage in his largely Spanish-language performance.`\
-https://nytimes.com/2026/02/09/us/trump-bad-bunny-super-bowl-halftime-show.html
-
-**What’s Your Reaction to Super Bowl LX?**\
-`Did you watch? What was your favorite part? The game? The commercials? The halftime show? The snacks?`\
-https://nytimes.com/2026/02/09/learning/whats-your-reaction-to-super-bowl-lx.html
 

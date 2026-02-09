@@ -1,3 +1,15 @@
+**Bad Bunny’s Halftime History Lesson**\
+`The superstar showcased Puerto Rican pride during a 13-minute set that turned a global opportunity into an intimate, personal performance.`\
+https://nytimes.com/2026/02/09/arts/music/bad-bunny-super-bowl-halftime-show-review.html
+
+**The difference between gold and silver: a sliver.**\
+`Mathilde Gremaud edges out Eileen Gu to win slopestyle gold.`\
+https://nytimes.com/2026/02/09/world/slopestyle-eileen-gu-mathilde-gremaud.html
+
+**Starmer’s Communications Chief Resigns, Adding to British Leader’s Woes**\
+`Tim Allan is the second senior member of Prime Minister Keir Starmer’s team to depart in less than 24 hours.`\
+https://nytimes.com/2026/02/09/world/europe/keir-starmer-uk-communications-resigns.html
+
 **Pirates to sign Marcell Ozuna after missing on big bats this offseason: Source**\
 `The Pirates targeted multiple options this offseason to improve their league-worst offense before landing Ozuna.`\
 https://nytimes.com/athletic/6838995/2026/02/09/mlb-marcell-ozuna-free-agency-signing-pirates/
