@@ -1,3 +1,7 @@
+**Submit your college basketball questions for our mailbag**\
+`With five weeks until Selection Sunday, what's on your mind?`\
+https://nytimes.com/athletic/7033113/2026/02/09/college-basketball-mailbag-questions/
+
 **Premier League data notebook: Arsenal's offside sorcery, Newcastle's trouble with leads, Spurs' card frenzy**\
 `The Athletic's data writers break down the key storylines from the weekend's action`\
 https://nytimes.com/athletic/7032599/2026/02/09/premier-league-data-notebook-md25-arsenal-newcastle-spurs/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010699286/jimmy-lai-prison-sentence-h
 **Students had Antarctica questions. We answered them.**\
 `Students sent in questions about our reporter’s journey to Antarctica, covering data recovery, clothing and more.`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/students-had-antarctica-questions-we-answered-them
-
-**Bad Bunny’s Halftime History Lesson**\
-`The superstar showcased Puerto Rican pride during a 13-minute set that turned a global opportunity into an intimate, personal performance.`\
-https://nytimes.com/2026/02/09/arts/music/bad-bunny-super-bowl-halftime-show-review.html
 
