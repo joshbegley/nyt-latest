@@ -1,3 +1,19 @@
+**Venezuela Frees Key Opposition Figures as Government Courts U.S. Support**\
+`The release of around 35 political prisoners comes amid closer cooperation between Washington and the interim government.`\
+https://nytimes.com/2026/02/08/world/americas/venezuela-opposition-leaders-released.html
+
+**A liberal group is hosting ‘Bad Bunny Bowl’ watch parties.**\
+`By Marc Tracy`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/a-liberal-group-is-hosting-bad-bunny-bowl-watch-parties
+
+**Kid Rock is set to offer a halftime alternative.**\
+`By Marc Tracy`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/kid-rock-is-set-to-offer-a-halftime-alternative
+
+**Fred Smith, Who Left Blondie for the Band Television, Dies at 77**\
+`In the 70s, New York’s bohemia was devoted to hostile yet arty rock. Mr. Smith had two qualities rare in the scene: personal and musical understatement.`\
+https://nytimes.com/2026/02/08/obituaries/fred-smith-dead.html
+
 **Watch Bad Bunny talk about his ‘most Puerto Rican album.’**\
 `By Joe Coscarelli and Jon Caramanica`\
 https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/watch-bad-bunny-talk-about-his-most-puerto-rican-album
@@ -21,20 +37,4 @@ https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny
 **Bad Bunny made history one week ago at the Grammys.**\
 `By David Browne`\
 https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/bad-bunny-made-history-one-week-ago-at-the-grammys
-
-**Here’s the latest.**\
-`By Ben Sisario`\
-https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/heres-the-latest
-
-**How Canada’s Olympic men's hockey initial practice lines showcase planned identity**\
-`Tom Wilson and Macklin Celebrini were not at the 4 Nations Face-Off. Now they are on Canada's top line at the Olympics. It says a lot.`\
-https://nytimes.com/athletic/7031830/2026/02/08/olympic-mens-hockey-2026-team-canada-practice-lines-identity/
-
-**Results and outcomes for Super Bowl 2026 prop bets**\
-`A look at the Super Bowl prop bets that hit and the ones that missed the mark.`\
-https://nytimes.com/athletic/7021269/2026/02/08/super-bowl-2026-prop-bets-results-outcomes/
-
-**Reports: Lindsey Vonn fractured leg in Olympic downhill crash, had surgery**\
-`Vonn was airlifted off the mountain after her crash Sunday in the Olympic women's downhill and was recovering at a local hospital.`\
-https://nytimes.com/athletic/7031603/2026/02/08/lindsey-vonn-winter-olympics-crash-injury-surgery-fractured-leg/
 

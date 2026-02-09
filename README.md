@@ -1,3 +1,11 @@
+**Bad Bunny’s love of sports runs deep.**\
+`By James Wagner`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/bad-bunnys-love-of-sports-runs-deep
+
+**Halftime shows have incited heated conversations.**\
+`By Marc Hogan`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/halftime-shows-have-incited-heated-conversations
+
 **Venezuela Frees Key Opposition Figures as Government Courts U.S. Support**\
 `The release of around 35 political prisoners comes amid closer cooperation between Washington and the interim government.`\
 https://nytimes.com/2026/02/08/world/americas/venezuela-opposition-leaders-released.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/bad-bunny-n
 **Activists hand out 'ICE OUT' towels before Super Bowl near Levi's Stadium**\
 `The towel distributors are part of the group "Contra-ICE."`\
 https://nytimes.com/athletic/7031887/2026/02/08/ice-out-towels-super-bowl-levis-stadium/
-
-**Live Updates: Bad Bunny Set to Take Super Bowl Halftime Stage**\
-`The Puerto Rican musician won album of the year at the Grammy Awards. It will be the first halftime show to be performed entirely in Spanish, and his appearance has become a political flashpoint amid his criticism of ICE.`\
-https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny
-
-**Bad Bunny made history one week ago at the Grammys.**\
-`By David Browne`\
-https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/bad-bunny-made-history-one-week-ago-at-the-grammys
 

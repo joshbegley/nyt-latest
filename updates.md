@@ -1,3 +1,19 @@
+**Venezuela Frees Key Opposition Figures as Government Courts U.S. Support**\
+`The release of around 35 political prisoners comes amid closer cooperation between Washington and the interim government.`\
+https://nytimes.com/2026/02/08/world/americas/venezuela-opposition-leaders-released.html
+
+**A liberal group is hosting ‘Bad Bunny Bowl’ watch parties.**\
+`By Marc Tracy`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/a-liberal-group-is-hosting-bad-bunny-bowl-watch-parties
+
+**Kid Rock is set to offer a halftime alternative.**\
+`By Marc Tracy`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/kid-rock-is-set-to-offer-a-halftime-alternative
+
+**Fred Smith, Who Left Blondie for the Band Television, Dies at 77**\
+`In the 70s, New York’s bohemia was devoted to hostile yet arty rock. Mr. Smith had two qualities rare in the scene: personal and musical understatement.`\
+https://nytimes.com/2026/02/08/obituaries/fred-smith-dead.html
+
 **Watch Bad Bunny talk about his ‘most Puerto Rican album.’**\
 `By Joe Coscarelli and Jon Caramanica`\
 https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/watch-bad-bunny-talk-about-his-most-puerto-rican-album
