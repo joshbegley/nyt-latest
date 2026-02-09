@@ -1,3 +1,7 @@
+**Red Sox acquire third baseman Caleb Durbin, 2 others in trade with Brewers: Sources**\
+`Boston recently added infield depth but traded Kyle Harrison, the last piece remaining of the Rafael Devers trade, and two others for more.`\
+https://nytimes.com/athletic/7033059/2026/02/09/red-sox-caleb-durbin-trade-brewers/
+
 **Submit your college basketball questions for our mailbag**\
 `With five weeks until Selection Sunday, what's on your mind?`\
 https://nytimes.com/athletic/7033113/2026/02/09/college-basketball-mailbag-questions/
@@ -27,14 +31,10 @@ https://nytimes.com/live/2026/02/09/world/uk-starmer-resign-epstein-mandelson/he
 https://nytimes.com/2026/02/09/world/europe/prince-william-saudi-arabia-diplomacy.html
 
 **Live Updates: Keir Starmer Under Pressure to Resign as Prime Minister of Britain**\
-`Two of Mr. Starmer’s key aides have resigned within the last two days amid a scandal involving the appointment of an ambassador to the U.S. who had close ties to Jeffrey Epstein.`\
+`The leader of the Scottish Labour Party called on Mr. Starmer to stand down, saying that political turmoil over an ambassador with close ties to Jeffrey Epstein had become a “huge distraction.”`\
 https://nytimes.com/live/2026/02/09/world/uk-starmer-resign-epstein-mandelson
 
 **Hong Kong Court Sentences Jimmy Lai to 20 Years in Prison**\
 `A Hong Kong court on Monday sentenced the pro-democracy media mogul Jimmy Lai to 20 years in prison in a trial that has set a new standard for the city’s limits on press freedom.`\
 https://nytimes.com/video/world/asia/100000010699286/jimmy-lai-prison-sentence-hong-kong.html
-
-**Students had Antarctica questions. We answered them.**\
-`Students sent in questions about our reporter’s journey to Antarctica, covering data recovery, clothing and more.`\
-https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/students-had-antarctica-questions-we-answered-them
 

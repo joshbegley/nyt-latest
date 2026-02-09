@@ -1,3 +1,7 @@
+**Submit your college basketball questions for our mailbag**\
+`With five weeks until Selection Sunday, what's on your mind?`\
+https://nytimes.com/athletic/7033113/2026/02/09/college-basketball-mailbag-questions/
+
 **Premier League data notebook: Arsenal's offside sorcery, Newcastle's trouble with leads, Spurs' card frenzy**\
 `The Athletic's data writers break down the key storylines from the weekend's action`\
 https://nytimes.com/athletic/7032599/2026/02/09/premier-league-data-notebook-md25-arsenal-newcastle-spurs/
