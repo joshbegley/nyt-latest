@@ -1,3 +1,7 @@
+**Bad Bunny’s Halftime Show: Our Instant Reactions**\
+`Popcast’s immediate thoughts after Bad Bunny took the stage for a tribute to his native Puerto Rico.`\
+https://nytimes.com/2026/02/08/arts/music/bad-bunny-super-bowl-halftime-reactions.html
+
 **At Milan sports bar, Super Bowl 60 packs house with Winter Olympic nomads**\
 `If you happened to be in Milan early Monday and had to watch Super Bowl 60, the place to be was Offside Sports Pub.`\
 https://nytimes.com/athletic/7032085/2026/02/08/super-bowl-lx-milan-cortina-olympics-bar/
