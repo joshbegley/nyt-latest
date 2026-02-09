@@ -1,3 +1,15 @@
+**How to watch Hawks vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7034130/2026/02/09/hawks-vs-timberwolves-stream-how-to-watch-feb-9/
+
+**How to watch Grizzlies vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7034128/2026/02/09/grizzlies-vs-warriors-stream-how-to-watch-feb-9/
+
+**Cooking Fancy Isn’t About Expensive Ingredients. It’s a Mind-Set.**\
+`You don’t have to try the latest trendy meal at the hottest new restaurant, quit your job or move to another country to live a better life.`\
+https://nytimes.com/2026/02/09/dining/cooking-fancy.html
+
 **Aston Martin reveals 2026 F1 car design, Adrian Newey's first as team principal**\
 `The team held its season launch on Monday at Ithra, a cultural center in Dhahran, Saudi Arabia`\
 https://nytimes.com/athletic/7033128/2026/02/09/aston-martin-2026-car-livery-adrian-newey/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7028036/2026/02/09/red-wings-tigers-tv-future-mlb-p
 **Chelsea part ways with head of women's football Paul Green**\
 `Green first joined Chelsea in February 2013 as part of Emma Hayes’ coaching staff, arriving from Doncaster Rovers Belles.`\
 https://nytimes.com/athletic/7033938/2026/02/09/chelsea-women-paul-green-leaves/
-
-**Chargers to hire Adam Gase as passing game assistant: Source**\
-`Gase, 47, was last the head coach of the New York Jets during the 2019 and 2020 seasons. `\
-https://nytimes.com/athletic/7033942/2026/02/09/chargers-adam-gase-passing-game-assistant/
-
-**In an astonishing final, Kokomo Murase wins women's snowboard big air gold**\
-`Kokomo Murase added the Olympic title to the World Championship gold she won in 2025. `\
-https://nytimes.com/athletic/7033876/2026/02/09/womens-big-air-final-kokomo-murase-2026-winter-olympics/
-
-**U.S., in dramatic finish, beats Italy to reach mixed doubles curling final vs. Sweden**\
-`Cory Thiesse and Korey Dropkin scored five in the final three ends to win, 9-8, and knock off the defending Olympic champs. `\
-https://nytimes.com/athletic/7033718/2026/02/09/winter-olympics-mixed-doubles-curling-us-italy-sweden-semifinals/
 
