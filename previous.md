@@ -1,3 +1,7 @@
+**Premier League data notebook: Arsenal's offside sorcery, Newcastle's trouble with leads, Spurs' card frenzy**\
+`The Athletic's data writers break down the key storylines from the weekend's action`\
+https://nytimes.com/athletic/7032599/2026/02/09/premier-league-data-notebook-md25-arsenal-newcastle-spurs/
+
 **The resignation of a key Starmer aide has accelerated the scandal.**\
 `By Michael D. Shear and Stephen Castle`\
 https://nytimes.com/live/2026/02/09/world/uk-starmer-resign-epstein-mandelson/the-resignation-of-a-key-starmer-aide-has-accelerated-the-scandal
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/students-had-a
 **Bad Bunny’s Halftime History Lesson**\
 `The superstar showcased Puerto Rican pride during a 13-minute set that turned a global opportunity into an intimate, personal performance.`\
 https://nytimes.com/2026/02/09/arts/music/bad-bunny-super-bowl-halftime-show-review.html
-
-**The difference between gold and silver: a sliver.**\
-`Mathilde Gremaud edges out Eileen Gu to win slopestyle gold.`\
-https://nytimes.com/2026/02/09/world/slopestyle-eileen-gu-mathilde-gremaud.html
 
