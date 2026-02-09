@@ -1,3 +1,7 @@
+**Struggles continue for Drake Maye, Patriots offense in Super Bowl loss to Seahawks**\
+`The New England offense looked off again, getting shut out for three quarters, and never really got going against the Seattle defense.`\
+https://nytimes.com/athletic/7032347/2026/02/09/drake-maye-patriots-offense-super-bowl-60-seahawks/
+
 **Word of the Day: resilience**\
 `This word has appeared in 1,286 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/09/learning/word-of-the-day-resilience.html

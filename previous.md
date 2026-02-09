@@ -1,3 +1,7 @@
+**Struggles continue for Drake Maye, Patriots offense in Super Bowl loss to Seahawks**\
+`The New England offense looked off again, getting shut out for three quarters, and never really got going against the Seattle defense.`\
+https://nytimes.com/athletic/7032347/2026/02/09/drake-maye-patriots-offense-super-bowl-60-seahawks/
+
 **Word of the Day: resilience**\
 `This word has appeared in 1,286 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/09/learning/word-of-the-day-resilience.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/09/us/super-bowl-photos.html
 **Claudia Riegler, 52, just competed in her fifth Winter Olympics: 'We set our own limits'**\
 `Riegler reached the round of 16 in the snowboard parallel giant slalom in Milan Cortina.`\
 https://nytimes.com/athletic/7031339/2026/02/09/claudia-riegler-2026-winter-olympics-parallel-giant-slalom/
-
-**What to watch on Day 3 at the Winter Olympics: Figure skating and 5 more medals**\
-`A must-see ice dance, two hockey powerhouses and medal events in Alpine skiing, freestyle skiing, speedskating, snowboard and ski jumping.`\
-https://nytimes.com/athletic/6917591/2026/02/09/milan-cortina-winter-olympics-what-to-watch-day-3/
 
