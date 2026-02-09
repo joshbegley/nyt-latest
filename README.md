@@ -7,7 +7,7 @@ https://nytimes.com/athletic/7031103/2026/02/08/nfl-draft-order-2026-rounds-1-2/
 https://nytimes.com/athletic/7029177/2026/02/08/super-bowl-61-location-logo-host-city/
 
 **Seahawks bully Drake Maye, Patriots on way to dominant Super Bowl 60 win**\
-`Seattle won its second championship with a 29-13 victory Sunday, thwarting New England's upset bid with three turnovers.`\
+`Seattle won its second championship with a 29-13 victory Sunday, forcing three turnovers while thwarting New England's upset bid.`\
 https://nytimes.com/athletic/7030353/2026/02/08/super-bowl-2026-winner-score-results-seahawks-patriots/
 
 **The Seahawks blocked out the BS. Now they're Super Bowl champions**\
