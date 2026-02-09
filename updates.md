@@ -1,3 +1,15 @@
+**Lowetide: Oilers face the deadline with a limited budget. What are their options?**\
+`The NHL is under a trade freeze during the Olympics, but GM Stan Bowman should use the break to get realistic about his path forward.`\
+https://nytimes.com/athletic/7031040/2026/02/09/oilers-nhl-trade-deadline-bowman-condors/
+
+**Cubs spring training preview: Players feel primed to contend after banner offseason**\
+`“We’re a better ballclub,” Matthew Boyd said. “With the moves that were made, I think it’s obvious.”`\
+https://nytimes.com/athletic/7030762/2026/02/09/cubs-spring-training-preview-offseason-additions/
+
+**Will Trevor Story be a bust in 2026? Fantasy baseball shortstop rundown**\
+`Eno Sarris and Derek VanRiper preview the shortstop position ahead of the 2026-27 fantasy baseball season. `\
+https://nytimes.com/athletic/6992542/2026/02/09/fantasy-baseball-2026-shortstop-preview-trevor-story/
+
 **Mathilde Gremaud beats Eileen Gu to Olympic gold once again in women’s freeski slopestyle**\
 `Mathilde Gremaud retained the title she won in Beijing four years ago, with Eileen Gu once again in silver`\
 https://nytimes.com/athletic/7032654/2026/02/09/eileen-gu-freeski-slopestyle-final-2026-winter-olympics/

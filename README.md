@@ -1,3 +1,19 @@
+**What’s Your Reaction to Super Bowl LX?**\
+`Did you watch? What was your favorite part? The game? The commercials? The halftime show? The snacks?`\
+https://nytimes.com/2026/02/09/learning/whats-your-reaction-to-super-bowl-lx.html
+
+**Trump Administration Live Updates: Congress at Impasse Over Immigration Enforcement Talks**\
+``\
+https://nytimes.com/live/2026/02/09/us/president-trump-news
+
+**Pochettino's assistant says USMNT lacked 'basics' before taking charge in 2024**\
+`In a joint interview on a podcast, Pochettino also said he believes the U.S. can win this summer's home World Cup.`\
+https://nytimes.com/athletic/7032826/2026/02/09/usmnt-jesus-perez-mauricio-pochettino/
+
+**'This one hits pretty close to home,' says Chloe Kim of President Trump's criticism of Hunter Hess**\
+`Kim and three of her Team USA snowboarding teammates were asked Monday about President Trump's comments on Hunter Hess.`\
+https://nytimes.com/athletic/7032765/2026/02/09/chloe-kim-president-trump-hunter-hess/
+
 **Lowetide: Oilers face the deadline with a limited budget. What are their options?**\
 `The NHL is under a trade freeze during the Olympics, but GM Stan Bowman should use the break to get realistic about his path forward.`\
 https://nytimes.com/athletic/7031040/2026/02/09/oilers-nhl-trade-deadline-bowman-condors/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7024793/2026/02/09/super-bowl-bad-bunny-halftime-sh
 **Struijk to miss Chelsea vs. Leeds with hip injury**\
 `Struijk, 26, reported the issue after Friday’s win over Nottingham Forest.`\
 https://nytimes.com/athletic/7032843/2026/02/09/pascal-struijk-leeds-injury-update-chelsea/
-
-**FPL Gameweek 26 preview: Irrepressible Rogers, Palmer punt and Sarr the star**\
-`With fixtures beginning to swing for several sides, this feels like one of those pivotal moments where one smart move can set you up well`\
-https://nytimes.com/athletic/7031527/2026/02/09/fantasy-premier-league-fpl-tips-gameweek-26/
-
-**Liverpool's naivety cost them against Manchester City – but it made the game a classic**\
-`Arne Slot's Liverpool just want to play, they don’t want to think. That's great news for neutrals`\
-https://nytimes.com/athletic/7032612/2026/02/09/liverpool-naivety-manchester-city-premier-league/
-
-**Cowboys survey results: Who is Dallas' most overrated player? Grading recent DC hire**\
-`You shared your thoughts on Schottenheimer's first season, the DC hire, Dak Prescott and the Cowboys' two first-round draft picks.`\
-https://nytimes.com/athletic/7031536/2026/02/09/cowboys-survey-schottenheimer-prescott-dc/
-
-**Inside Newcastle Q&A: Chris Waugh answers your questions**\
-`Post your questions to our Newcastle writer Chris Waugh, who will endeavour to answer as many as possible`\
-https://nytimes.com/athletic/7032607/2026/02/09/inside-newcastle-qa-premier-league-eddie-howe/
 
