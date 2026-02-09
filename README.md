@@ -1,3 +1,27 @@
+**The journey didn't break Sam Darnold; it made him into a Super Bowl champion**\
+`The quarterback's career turnaround was an exercise in patience and belief.`\
+https://nytimes.com/athletic/7032480/2026/02/09/sam-darnold-super-bowl-career-turnaround/
+
+**Mike Vrabel's leadership got the Patriots to the Super Bowl, but it wasn’t enough to win**\
+`The NFL's Coach of the Year made all the right moves during the season, but little seemed to work on Sunday against the Seahawks.`\
+https://nytimes.com/athletic/7032318/2026/02/09/mike-vrabel-patriots-seahawks-super-bowl-60/
+
+**NHL weekend rankings: A blockbuster trade, a midseason rankings reset and more**\
+`With the NHL season on hiatus and only a partial week of games to cover, it's a good time to take stock of the rankings season so far.`\
+https://nytimes.com/athletic/7031504/2026/02/09/nhl-weekend-rankings-panarin-oilers-kings/
+
+**Women's college basketball power rankings: Tennessee's troubling tumble, Texas impresses**\
+`Sabreena Merchant also contemplates Player of the Year race. Could Mikayla Blakes displace Sarah Strong as the lead contender?`\
+https://nytimes.com/athletic/7032177/2026/02/09/womens-college-basketball-power-rankings-tennessee-texas/
+
+**NASCAR president Steve O'Donnell resets for 2026 season: ‘Just be who we are’**\
+`NASCAR's president prides himself on straight talk. His approach will help define the league in its new season.`\
+https://nytimes.com/athletic/7028345/2026/02/09/nascar-president-steve-odonnell-2026-chase/
+
+**Drake Maye's Super Bowl disaster left him in tears. And now comes the hard part**\
+`Drake Maye was the MVP runner-up in his second season, but against a dominant defense in the Super Bowl, he failed to measure up.`\
+https://nytimes.com/athletic/7032636/2026/02/09/drake-maye-super-bowl-struggles-patriots-seahawks/
+
 **Michael Pollan Says Humanity Is About to Undergo a Revolutionary Change**\
 `The best-selling author Michael Pollan grapples with big questions about A.I., consciousness and the distractions polluting our minds.`\
 https://nytimes.com/video/podcasts/100000010699275/michael-pollan-says-humanity-is-about-to-undergo-a-revolutionary-change.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7030328/2026/02/09/toronto-blue-jays-2026-top-20-pr
 **How Japan’s Leader Rescued Her Party from the Abyss**\
 `Sanae Takaichi, Japan’s first female prime minister, harnessed her personal popularity and a shift to the right among voters to achieve a record election win.`\
 https://nytimes.com/2026/02/09/world/asia/japan-election-takaichi-analysis.html
-
-**Tampa Bay Rays 2026 top 20 prospects: Carson Williams, Theo Gillen lead the way**\
-`The Rays system lacks potential superstars at the moment but it is very deep with players who should be useful major leaguers.`\
-https://nytimes.com/athletic/7028412/2026/02/09/tampa-bay-rays-2026-top-20-prospects-keith-law/
-
-**TAFC: City's 10 minutes of chaos that saved title race. Plus: Five years of Hollywood at Wrexham**\
-`Today in TAFC: Man City leave it late to keep title race alive. Plus: Five years of Hollywood at Wrexham, and Madonna's Spurs interest.`\
-https://nytimes.com/athletic/7032546/2026/02/09/man-city-liverpool-title-race-wrexham-five-years/
-
-**New York Yankees 2026 top 20 prospects: George Lombard Jr., Carlos Lagrange lead the way**\
-`The Yankees have a strong start to their prospect list, but the overall list is pretty thin thanks to several trades.`\
-https://nytimes.com/athletic/7027581/2026/02/09/new-york-yankees-2026-top-20-prospects-keith-law/
-
-**What's changing for NASCAR in 2026: Return to roots, engine boosts and more**\
-`The Chase, Chicagoland and more horsepower are back, and a race at a Navy base will debut.`\
-https://nytimes.com/athletic/7029378/2026/02/09/nascar-2026-chase-next-gen-san-diego/
-
-**Boston Red Sox 2026 top 20 prospects: Franklin Arias, Payton Tolle lead the way**\
-`The Red Sox are one of the best organizations at developing pitching, and they have a nice balance in the system of hitters and pitchers.`\
-https://nytimes.com/athletic/7027413/2026/02/09/boston-red-sox-2026-top-20-prospects-keith-law/
-
-**Bears salary-cap analysis: Tough decisions for Ryan Poles ahead of free agency**\
-`Now that the Bears have a competitive roster, it's also an expensive one, which means tough decisions ahead for the general manager.`\
-https://nytimes.com/athletic/7024759/2026/02/09/bears-salary-cap-analysis-tough-decisions-for-ryan-poles-ahead-of-free-agency/
 
