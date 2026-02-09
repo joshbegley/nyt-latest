@@ -1,3 +1,15 @@
+**USMNT Player Tracker: McKennie on the mark again as Robinson yearns for form**\
+`Our round up of the weekend action involving USMNT's Europe-based players and hopefuls also takes in the youngsters who seized their chance`\
+https://nytimes.com/athletic/7032828/2026/02/09/usmnt-mckennie-juventus-robinson-tracker/
+
+**Red Sox acquire third baseman Caleb Durbin, 2 others in trade with Brewers: Sources**\
+`Boston recently added infield depth but traded Kyle Harrison, the last piece remaining of the Rafael Devers trade, and two others for more.`\
+https://nytimes.com/athletic/7033059/2026/02/09/red-sox-caleb-durbin-trade-brewers/
+
+**Live Updates: Keir Starmer Under Pressure to Resign as Prime Minister of Britain**\
+`The leader of the Scottish Labour Party called on Mr. Starmer to stand down, saying that political turmoil over an ambassador with close ties to Jeffrey Epstein had become a “huge distraction.”`\
+https://nytimes.com/live/2026/02/09/world/uk-starmer-resign-epstein-mandelson
+
 **Submit your college basketball questions for our mailbag**\
 `With five weeks until Selection Sunday, what's on your mind?`\
 https://nytimes.com/athletic/7033113/2026/02/09/college-basketball-mailbag-questions/
