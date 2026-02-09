@@ -1,3 +1,7 @@
+**How Democrats Are Trying to Rein in ICE**\
+`Michael Gold, a reporter for The New York Times, describes the fight in Congress over funding the Department of Homeland Security, as Democrats push for restrictions on federal immigration agents.`\
+https://nytimes.com/video/us/politics/100000010690129/congress-department-homeland-security-funding-federal-immigration-agents.html
+
 **Tottenham's Udogie out for 'four to five weeks' - Frank**\
 `The Italy international pulled up in the second half of Spurs’ 2-0 defeat to Manchester United last Saturday.`\
 https://nytimes.com/athletic/7033053/2026/02/09/tottenham-destiny-udogie-injury-frank/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/09/world/slopestyle-eileen-gu-mathilde-gremaud.html
 **Starmer’s Communications Chief Quits, Adding to British Leader’s Woes**\
 `Tim Allan is the second senior member of Prime Minister Keir Starmer’s team to depart in less than 24 hours. The latest resignation increases the pressure on Mr. Starmer’s premiership.`\
 https://nytimes.com/2026/02/09/world/europe/keir-starmer-uk-communications-resigns.html
-
-**Pirates to sign Marcell Ozuna after missing on big bats this offseason: Source**\
-`The Pirates targeted multiple options this offseason to improve their league-worst offense before landing Ozuna.`\
-https://nytimes.com/athletic/6838995/2026/02/09/mlb-marcell-ozuna-free-agency-signing-pirates/
 

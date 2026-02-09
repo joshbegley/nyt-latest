@@ -1,3 +1,7 @@
+**How Democrats Are Trying to Rein in ICE**\
+`Michael Gold, a reporter for The New York Times, describes the fight in Congress over funding the Department of Homeland Security, as Democrats push for restrictions on federal immigration agents.`\
+https://nytimes.com/video/us/politics/100000010690129/congress-department-homeland-security-funding-federal-immigration-agents.html
+
 **Tottenham's Udogie out for 'four to five weeks' - Frank**\
 `The Italy international pulled up in the second half of Spurs’ 2-0 defeat to Manchester United last Saturday.`\
 https://nytimes.com/athletic/7033053/2026/02/09/tottenham-destiny-udogie-injury-frank/

@@ -1,3 +1,7 @@
+**The resignation of a key Starmer aide has accelerated the scandal.**\
+`By Michael D. Shear and Stephen Castle`\
+https://nytimes.com/live/2026/02/09/world/uk-starmer-resign-epstein-mandelson/the-resignation-of-a-key-starmer-aide-has-accelerated-the-scandal
+
 **How Democrats Are Trying to Rein in ICE**\
 `Michael Gold, a reporter for The New York Times, describes the fight in Congress over funding the Department of Homeland Security, as Democrats push for restrictions on federal immigration agents.`\
 https://nytimes.com/video/us/politics/100000010690129/congress-department-homeland-security-funding-federal-immigration-agents.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/09/arts/music/bad-bunny-super-bowl-halftime-show-rev
 **The difference between gold and silver: a sliver.**\
 `Mathilde Gremaud edges out Eileen Gu to win slopestyle gold.`\
 https://nytimes.com/2026/02/09/world/slopestyle-eileen-gu-mathilde-gremaud.html
-
-**Starmer’s Communications Chief Quits, Adding to British Leader’s Woes**\
-`Tim Allan is the second senior member of Prime Minister Keir Starmer’s team to depart in less than 24 hours. The latest resignation increases the pressure on Mr. Starmer’s premiership.`\
-https://nytimes.com/2026/02/09/world/europe/keir-starmer-uk-communications-resigns.html
 
