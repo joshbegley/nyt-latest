@@ -1,3 +1,19 @@
+**The Pulse: Boring game, great stories**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7031889/2026/02/09/super-bowl-seahawks-bad-bunny-the-pulse/
+
+**Toronto Blue Jays 2026 top 20 prospects: Trey Yesavage, JoJo Parker lead the way**\
+`The Blue Jays' system is thin right now, but for a good reason — they used it to build a team that nearly won a World Series.`\
+https://nytimes.com/athletic/7030328/2026/02/09/toronto-blue-jays-2026-top-20-prospects-keith-law/
+
+**How Japan’s Leader Rescued Her Party from the Abyss**\
+`Sanae Takaichi, Japan’s first female prime minister, harnessed her personal popularity and a shift to the right among voters to achieve a record election win.`\
+https://nytimes.com/2026/02/09/world/asia/japan-election-takaichi-analysis.html
+
+**Tampa Bay Rays 2026 top 20 prospects: Carson Williams, Theo Gillen lead the way**\
+`The Rays system lacks potential superstars at the moment but it is very deep with players who should be useful major leaguers.`\
+https://nytimes.com/athletic/7028412/2026/02/09/tampa-bay-rays-2026-top-20-prospects-keith-law/
+
 **TAFC: City's 10 minutes of chaos that saved title race. Plus: Five years of Hollywood at Wrexham**\
 `Today in TAFC: Man City leave it late to keep title race alive. Plus: Five years of Hollywood at Wrexham, and Madonna's Spurs interest.`\
 https://nytimes.com/athletic/7032546/2026/02/09/man-city-liverpool-title-race-wrexham-five-years/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7024759/2026/02/09/bears-salary-cap-analysis-tough-
 **Chiefs offseason: 5 key questions ahead of free agency and the draft**\
 `Chiefs coach Andy Reid and general manager Brett Veach have face big decisions as they look to get K.C. back in Super Bowl contention.`\
 https://nytimes.com/athletic/7026157/2026/02/09/chiefs-offseason-questions-free-agency-draft/
-
-**Falcons mailbag: How will Atlanta handle looming contract issues across the offense?**\
-`The Falcons have three key offensive weapons with contract questions to be answered in the near future. How will the new regime handle them?`\
-https://nytimes.com/athletic/7030812/2026/02/09/falcons-mailbag-kyle-pitts-contract-bijan-robinson/
-
-**Jesse Minter's first coaching hires: Deeper look at the Ravens' moves**\
-`With more hires to make, Minter has not always prioritized NFL coaching experience, particularly on the offensive side of the ball.`\
-https://nytimes.com/athletic/7030752/2026/02/09/ravens-jesse-minter-coaching-staff-hires-analysis/
-
-**Ranking Panthers' unrestricted free agents: Does Rico Dowdle bolt? Cade Mays a priority?**\
-`The Panthers don't have a star-powered group of UFAs and could bring back some key contributors on team-friendly deals.`\
-https://nytimes.com/athletic/7030958/2026/02/09/panthers-unrestricted-free-agents-ranking-rico-dowdle/
-
-**Canada can't risk starting Jordan Binnington over Logan Thompson at the Olympics**\
-`There should be no question who Canada’s starter is at the Olympics. That it’s even up for debate feels like the country is being gaslit.`\
-https://nytimes.com/athletic/7024085/2026/02/09/canada-olympics-jordan-binnington-logan-thompson/
 

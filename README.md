@@ -1,3 +1,7 @@
+**Michael Pollan Says Humanity Is About to Undergo a Revolutionary Change**\
+`The best-selling author Michael Pollan grapples with big questions about A.I., consciousness and the distractions polluting our minds.`\
+https://nytimes.com/video/podcasts/100000010699275/michael-pollan-says-humanity-is-about-to-undergo-a-revolutionary-change.html
+
 **The Pulse: Boring game, great stories**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7031889/2026/02/09/super-bowl-seahawks-bad-bunny-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7027413/2026/02/09/boston-red-sox-2026-top-20-prosp
 **Bears salary-cap analysis: Tough decisions for Ryan Poles ahead of free agency**\
 `Now that the Bears have a competitive roster, it's also an expensive one, which means tough decisions ahead for the general manager.`\
 https://nytimes.com/athletic/7024759/2026/02/09/bears-salary-cap-analysis-tough-decisions-for-ryan-poles-ahead-of-free-agency/
-
-**Chiefs offseason: 5 key questions ahead of free agency and the draft**\
-`Chiefs coach Andy Reid and general manager Brett Veach have face big decisions as they look to get K.C. back in Super Bowl contention.`\
-https://nytimes.com/athletic/7026157/2026/02/09/chiefs-offseason-questions-free-agency-draft/
 
