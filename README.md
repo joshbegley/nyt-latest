@@ -1,3 +1,7 @@
+**USMNT Player Tracker: McKennie on the mark again as Robinson yearns for form**\
+`Our round up of the weekend action involving USMNT's Europe-based players and hopefuls also takes in the youngsters who seized their chance`\
+https://nytimes.com/athletic/7032828/2026/02/09/usmnt-mckennie-juventus-robinson-tracker/
+
 **Red Sox acquire third baseman Caleb Durbin, 2 others in trade with Brewers: Sources**\
 `Boston recently added infield depth but traded Kyle Harrison, the last piece remaining of the Rafael Devers trade, and two others for more.`\
 https://nytimes.com/athletic/7033059/2026/02/09/red-sox-caleb-durbin-trade-brewers/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/09/world/europe/prince-william-saudi-arabia-diplomac
 **Live Updates: Keir Starmer Under Pressure to Resign as Prime Minister of Britain**\
 `The leader of the Scottish Labour Party called on Mr. Starmer to stand down, saying that political turmoil over an ambassador with close ties to Jeffrey Epstein had become a “huge distraction.”`\
 https://nytimes.com/live/2026/02/09/world/uk-starmer-resign-epstein-mandelson
-
-**Hong Kong Court Sentences Jimmy Lai to 20 Years in Prison**\
-`A Hong Kong court on Monday sentenced the pro-democracy media mogul Jimmy Lai to 20 years in prison in a trial that has set a new standard for the city’s limits on press freedom.`\
-https://nytimes.com/video/world/asia/100000010699286/jimmy-lai-prison-sentence-hong-kong.html
 
