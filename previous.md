@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, Feb. 9, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/09/todays-new-york-times
+
+**Death, Undocumented**\
+`A decade or so after the peak of Europe’s migrant crisis, one of the busiest and deadliest entry points to the continent has devolved from crisis to something more chronic.`\
+https://nytimes.com/2026/02/09/opinion/lampedusa-migrants-europe.html
+
+**‘Love Story,’ Plus 6 Things to Watch on TV This Week**\
+`The Ryan Murphy series about John F. Kennedy Jr. and Carolyn Bessette premieres, and a new A24 non-scripted series airs.`\
+https://nytimes.com/2026/02/09/arts/television/love-story-watch-on-tv-this-week.html
+
 **Super Bowl 60 by the numbers: Breaking down Seahawks' defensive dominance vs. Patriots**\
 `Seattle's defensive mastery stymied the Patriots and produced an avalanche of impressive statistics.`\
 https://nytimes.com/athletic/7032264/2026/02/09/seahawks-patriots-super-bowl-60-numbers-records/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7029704/2026/02/09/everton-david-moyes-many-sides/
 **Arsenal and Martin Zubimendi know how to break open tight games - from distance**\
 `Mikel Arteta often refers to different 'weapons' his side possess - his Spanish midfielder is proving his point `\
 https://nytimes.com/athletic/7029702/2026/02/09/arsenal-martin-zubimendi-goals-outside-the-box/
-
-**Onana can be the glue to hold Villa's midfield together. As long as he stays fit**\
-`The necessity of Villa's record signing staying fit has grown in importance. He has all the attributes a modern midfielder needs`\
-https://nytimes.com/athletic/7029032/2026/02/09/amadou-onana-aston-villa-midfield-fitness/
-
-**Nuno made a bold call bringing back Hermansen. West Ham were rewarded with a clean-sheet win**\
-`Fellow relegation candidates Burnley were beaten 2-0 at Turf Moor on Saturday - with a surprise selection in the visitors' goal`\
-https://nytimes.com/athletic/7029002/2026/02/09/west-ham-burnley-mads-hermansen-analysis/
-
-**A review of Bad Bunny's Super Bowl halftime show: Grading the performance**\
-`The first-ever all-Spanish-language halftime show was a party — with nods to Puerto Rico, family, football and a real-life wedding.`\
-https://nytimes.com/athletic/7032057/2026/02/09/bad-bunny-super-bowl-halftime-show-review/
 

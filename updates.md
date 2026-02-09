@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, Feb. 9, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/09/todays-new-york-times
+
+**Death, Undocumented**\
+`A decade or so after the peak of Europe’s migrant crisis, one of the busiest and deadliest entry points to the continent has devolved from crisis to something more chronic.`\
+https://nytimes.com/2026/02/09/opinion/lampedusa-migrants-europe.html
+
+**‘Love Story,’ Plus 6 Things to Watch on TV This Week**\
+`The Ryan Murphy series about John F. Kennedy Jr. and Carolyn Bessette premieres, and a new A24 non-scripted series airs.`\
+https://nytimes.com/2026/02/09/arts/television/love-story-watch-on-tv-this-week.html
+
 **Super Bowl 60 by the numbers: Breaking down Seahawks' defensive dominance vs. Patriots**\
 `Seattle's defensive mastery stymied the Patriots and produced an avalanche of impressive statistics.`\
 https://nytimes.com/athletic/7032264/2026/02/09/seahawks-patriots-super-bowl-60-numbers-records/
