@@ -1,3 +1,7 @@
+**Court TV, Known for Live Trial Coverage, Is Getting a New Owner**\
+`The E.W. Scripps Company is selling the channel to the parent company of Law&Crime, which wants Court TV to have a bigger streaming presence.`\
+https://nytimes.com/2026/02/09/business/dealbook/court-tv-ew-scripps-sale.html
+
 **Maxwell Refuses to Answer Questions in House Deposition**\
 `Ghislaine Maxwell, the longtime companion of the convicted sex offender Jeffrey Epstein, invoked her right against self-incrimination in an Oversight Committee deposition.`\
 https://nytimes.com/2026/02/09/us/politics/ghislaine-maxwell-house-jeffrey-epstein-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010699991/stop-using-l
 **These Birds Are of Different Feathers, but They Flock Together**\
 `Researchers and volunteers in Texas documented birds of different species preening one another. Experts say the behavior may be more common than documented.`\
 https://nytimes.com/2026/02/09/science/birds-preening-species-texas.html
-
-**Get Rid of Lingering Garlic Smells**\
-`The lingering smell of garlic on your skin after cooking is ruthless. Determined to find a solution, kitchen writer Maki Yazawa tried six deodorizing hacks with the help of her colleagues.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010699954/get-rid-of-lingering-garlic-smells.html
 

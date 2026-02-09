@@ -1,3 +1,7 @@
+**Court TV, Known for Live Trial Coverage, Is Getting a New Owner**\
+`The E.W. Scripps Company is selling the channel to the parent company of Law&Crime, which wants Court TV to have a bigger streaming presence.`\
+https://nytimes.com/2026/02/09/business/dealbook/court-tv-ew-scripps-sale.html
+
 **Maxwell Refuses to Answer Questions in House Deposition**\
 `Ghislaine Maxwell, the longtime companion of the convicted sex offender Jeffrey Epstein, invoked her right against self-incrimination in an Oversight Committee deposition.`\
 https://nytimes.com/2026/02/09/us/politics/ghislaine-maxwell-house-jeffrey-epstein-trump.html
