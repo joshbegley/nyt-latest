@@ -1,3 +1,7 @@
+**Super Bowl 60 by the numbers: Breaking down Seahawks' defensive dominance vs. Patriots**\
+`Seattle's defensive mastery stymied the Patriots and produced an avalanche of impressive statistics.`\
+https://nytimes.com/athletic/7032264/2026/02/09/seahawks-patriots-super-bowl-60-numbers-records/
+
 **Seahawks’ Defense Swamps the Patriots: Images From the Super Bowl**\
 `Sam Darnold’s steady Seattle offense controlled the game, but it was the defensive side that put another title out of reach for New England. Photographers followed the action.`\
 https://nytimes.com/2026/02/09/us/super-bowl-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029002/2026/02/09/west-ham-burnley-mads-hermansen-
 **A review of Bad Bunny's Super Bowl halftime show: Grading the performance**\
 `The first-ever all-Spanish-language halftime show was a party — with nods to Puerto Rico, family, football and a real-life wedding.`\
 https://nytimes.com/athletic/7032057/2026/02/09/bad-bunny-super-bowl-halftime-show-review/
-
-**Wolves and four at the back just doesn't work**\
-`Rob Edwards gambled against Chelsea. As his predecessors could have told him, Wolves have to play with three centre-backs`\
-https://nytimes.com/athletic/7029826/2026/02/09/wolves-rob-edwards-four-at-the-back/
 
