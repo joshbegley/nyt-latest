@@ -1,3 +1,7 @@
+**How Canada’s Olympic men's hockey initial practice lines showcase planned identity**\
+`Tom Wilson and Macklin Celebrini were not at the 4 Nations Face-Off. Now they are on Canada's top line at the Olympics. It says a lot.`\
+https://nytimes.com/athletic/7031830/2026/02/08/olympic-mens-hockey-2026-team-canada-practice-lines-identity/
+
 **Results and outcomes for Super Bowl 2026 prop bets**\
 `A look at the Super Bowl prop bets that hit and the ones that missed the mark.`\
 https://nytimes.com/athletic/7021269/2026/02/08/super-bowl-2026-prop-bets-results-outcomes/
