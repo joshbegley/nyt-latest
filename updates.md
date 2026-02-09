@@ -1,3 +1,15 @@
+**Live Updates: Bad Bunny Set to Take Super Bowl Halftime Stage**\
+`The Puerto Rican musician won album of the year at the Grammy Awards. It will be the first halftime show to be performed entirely in Spanish, and his appearance has become a political flashpoint amid his criticism of ICE.`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny
+
+**Bad Bunny made history one week ago at the Grammys.**\
+`By David Browne`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/bad-bunny-made-history-one-week-ago-at-the-grammys
+
+**Here’s the latest.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/heres-the-latest
+
 **How Canada’s Olympic men's hockey initial practice lines showcase planned identity**\
 `Tom Wilson and Macklin Celebrini were not at the 4 Nations Face-Off. Now they are on Canada's top line at the Olympics. It says a lot.`\
 https://nytimes.com/athletic/7031830/2026/02/08/olympic-mens-hockey-2026-team-canada-practice-lines-identity/
