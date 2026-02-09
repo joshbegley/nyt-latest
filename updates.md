@@ -1,3 +1,15 @@
+**Love or Hate Valentine’s Day?**\
+`Whether you’re thrilled about the holiday or ready to kiss it goodbye, we have great picks for you.`\
+https://nytimes.com/interactive/2026/02/09/movies/cul-valentines-day-movies-love-hate.html
+
+**Meta and YouTube Created ‘Digital Casinos,’ Lawyers Argue in Landmark Trial**\
+`Opening statements began in a trial claiming social media companies design addictive products that cause personal injury.`\
+https://nytimes.com/2026/02/09/technology/social-media-addiction-trial.html
+
+**New Email Shows Bard’s President Thanked Epstein for Caribbean Trip**\
+`Leon Botstein, Bard’s president, also invited Jeffrey Epstein to visit a high school linked to Bard College and sent him well wishes after stories were published about his sexual abuse of minors.`\
+https://nytimes.com/2026/02/09/us/bard-leon-botstein-jeffrey-epstein-relationship.html
+
 **USA women’s hockey defeats Switzerland, improving to 3-0 as Canada matchup looms**\
 `The Americans remain undefeated in the preliminary round of the Olympics after a 5-0 win over Switzerland on the eve of Canada vs. USA.`\
 https://nytimes.com/athletic/7033962/2026/02/09/usa-womens-hockey-switzerland-2026-olympics/

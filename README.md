@@ -1,3 +1,11 @@
+**Zack Wheeler likely to miss Opening Day but could return early in the season**\
+`Wheeler had surgery late last season to address vascular thoracic outlet syndrome and his return was projected at six-to-eight months.`\
+https://nytimes.com/athletic/7034364/2026/02/09/phillies-zack-wheeler-opening-day-update/
+
+**World Baseball Classic will feature pitch clock but no ABS challenge system**\
+`The tournament will use the same pitch-timer rules in place in MLB but won't feature the Automated Ball-Strike System challenge system. `\
+https://nytimes.com/athletic/7034366/2026/02/09/world-baseball-classic-abs-pitch-clock/
+
 **Love or Hate Valentine’s Day?**\
 `Whether you’re thrilled about the holiday or ready to kiss it goodbye, we have great picks for you.`\
 https://nytimes.com/interactive/2026/02/09/movies/cul-valentines-day-movies-love-hate.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7034219/2026/02/09/winter-olympics-philipp-raimund-
 **High school classmates Mike Macdonald and Maria Taylor reunite on Super Bowl stage**\
 `Macdonald and Taylor both hail from Roswell, Ga., and she was the more accomplished athlete.`\
 https://nytimes.com/athletic/7034013/2026/02/09/mike-macdonald-maria-taylor-super-bowl/
-
-**Starmer’s Epstein Crisis**\
-`Among the powerful men facing fallout from the files, the one in deepest trouble appears to have never met Epstein: the British prime minister.`\
-https://nytimes.com/2026/02/09/world/starmer-epstein-israel-west-bank.html
-
-**Canada's Marie-Philip Poulin exits game after taking hit by Czech Republic's Kaltounková**\
-`Poulin, the greatest women's hockey player of all time, exited Monday's group-stage game against the Czech Republic and did not return.`\
-https://nytimes.com/athletic/7034161/2026/02/09/canada-womens-hockey-marie-philip-poulin-czech-republic/
 
