@@ -1,3 +1,15 @@
+**Canada’s Nathan MacKinnon is not at the Olympics to enjoy himself**\
+`MacKinnon is not in Milan to soak up the Olympic experience. He is focused on one thing: leading Canada to men's ice hockey gold.`\
+https://nytimes.com/athletic/7033216/2026/02/09/olympics-mens-hockey-2026-canada-nathan-mackinnon-nhl/
+
+**Duke staffer injured in UNC court storm 'doing better,' Tar Heels fined by ACC**\
+`UNC coach Hubert Davis and Duke coach Jon Scheyer have talked since Saturday's incident that followed the Tar Heels' game-winning shot.`\
+https://nytimes.com/athletic/7033317/2026/02/09/duke-unc-basketball-court-storming/
+
+**How to watch Pistons vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7033330/2026/02/09/pistons-vs-hornets-stream-how-to-watch-feb-9/
+
 **Olympic P.S.A.: Do Not Jump for Joy While Wearing Your Medal**\
 `Several athletes have had their medals fall off their ribbons while celebrating their victories. Organizers are looking into it: “This is something we want to be perfect.”`\
 https://nytimes.com/2026/02/09/sports/olympics-medals-broken-breezy-johnson.html
