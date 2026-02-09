@@ -1,3 +1,19 @@
+**Crosby on 2026 Olympics and the weight of Team Canada gold medal aspirations**\
+`Crosby is no stranger to pressure, but captaining Team Canada in possibly his final Olympics is new. Here's how he handles it.`\
+https://nytimes.com/athletic/7029106/2026/02/09/olympic-mens-hockey-2026-team-canada-sidney-crosby/
+
+**The New York Times International Edition in Print for Tuesday, Feb. 10, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/02/09/todays-new-york-times-international-edition
+
+**Seahawks' title underscores how to win in the modern NFL. There's no going back: Pick Six**\
+`Great QBs have ruled the NFL for decades, but increasingly, even they are living in a league driven by the active, opportunistic GM.`\
+https://nytimes.com/athletic/6997529/2026/02/09/seahawks-super-bowl-champions-gm-john-schneider/
+
+**Jimmy Lai’s 20-Year Sentence Follows Beijing’s Playbook on Dissent**\
+`The sentence for the media mogul, along with long prison terms for his editors, shows how Hong Kong enforces Xi Jinping’s red lines with a new severity.`\
+https://nytimes.com/2026/02/09/world/asia/jimmy-lai-sentence-analysis.html
+
 **It's officially baseball season: 8 reasons to get excited about 2026 spring training**\
 `From stars in new places to rookies competing for roster spots to the ABS challenge system rollout, there's lots to watch this spring.`\
 https://nytimes.com/athletic/7025279/2026/02/09/spring-training-2026-exciting-storylines/

@@ -1,3 +1,19 @@
+**Crosby on 2026 Olympics and the weight of Team Canada gold medal aspirations**\
+`Crosby is no stranger to pressure, but captaining Team Canada in possibly his final Olympics is new. Here's how he handles it.`\
+https://nytimes.com/athletic/7029106/2026/02/09/olympic-mens-hockey-2026-team-canada-sidney-crosby/
+
+**The New York Times International Edition in Print for Tuesday, Feb. 10, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/02/09/todays-new-york-times-international-edition
+
+**Seahawks' title underscores how to win in the modern NFL. There's no going back: Pick Six**\
+`Great QBs have ruled the NFL for decades, but increasingly, even they are living in a league driven by the active, opportunistic GM.`\
+https://nytimes.com/athletic/6997529/2026/02/09/seahawks-super-bowl-champions-gm-john-schneider/
+
+**Jimmy Lai’s 20-Year Sentence Follows Beijing’s Playbook on Dissent**\
+`The sentence for the media mogul, along with long prison terms for his editors, shows how Hong Kong enforces Xi Jinping’s red lines with a new severity.`\
+https://nytimes.com/2026/02/09/world/asia/jimmy-lai-sentence-analysis.html
+
 **It's officially baseball season: 8 reasons to get excited about 2026 spring training**\
 `From stars in new places to rookies competing for roster spots to the ABS challenge system rollout, there's lots to watch this spring.`\
 https://nytimes.com/athletic/7025279/2026/02/09/spring-training-2026-exciting-storylines/
@@ -21,20 +37,4 @@ https://nytimes.com/video/podcasts/100000010699095/reacting-to-bad-bunnys-halfti
 **Best and Worst of Bad Bunny’s Super Bowl Halftime Show**\
 `The Puerto Rican superstar’s set included cameos, stunts and powerful statements.`\
 https://nytimes.com/2026/02/09/arts/music/bad-bunny-super-bowl-halftime-show-best-worst.html
-
-**Respite From Wind-Driven, Bone-Chilling Cold Weather Is in Sight**\
-`Wind chills below zero were expected to persist across parts of the Northeast and New England on Monday but should finally ease, forecasters said.`\
-https://nytimes.com/2026/02/09/us/extreme-cold-weather-northeast.html
-
-**Hollywood Braces for New Round of Labor Talks**\
-`The last time writers and actors negotiated contracts, in 2023, dual strikes froze the industry.`\
-https://nytimes.com/2026/02/09/business/media/hollywood-actors-writers-contract-talks.html
-
-**The Glorious Spectacle of a Republican Gone Rogue**\
-`Thom Tillis vs. the Trump administration.`\
-https://nytimes.com/2026/02/09/opinion/melania-trump-tillis-noem.html
-
-**Does It Matter What I Wear to Work Out?**\
-`Our critic offers advice on choosing your gear — and thoughts on whether it really affects your performance.`\
-https://nytimes.com/2026/02/09/fashion/workout-clothes-brands-exercise.html
 
