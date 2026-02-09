@@ -1,3 +1,7 @@
+**Inside Real Madrid: Why is Dani Carvajal 'p****d off'?**\
+`Sunday's 2-0 victory at Valencia brought several positives for Real Madrid, but the future of 34-year-old captain Carvajal is up in the air`\
+https://nytimes.com/athletic/7032580/2026/02/09/real-madrid-carvajal-future-valencia-la-liga/
+
 **The Death Toll in Ukraine**\
 `We are covering the latest from the war.`\
 https://nytimes.com/2026/02/09/briefing/the-death-toll-in-ukraine.html
