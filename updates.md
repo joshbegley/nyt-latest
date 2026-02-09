@@ -1,3 +1,11 @@
+**Seahawks’ Defense Dominates in Super Bowl Victory Over Patriots**\
+`The Seattle Seahawks sacked the New England Patriots quarterback Drake Maye six times and forced three turnovers to win their second Super Bowl, 29-13.`\
+https://nytimes.com/video/sports/football/100000010699276/seahawks-defense-dominates-in-super-bowl-victory-over-patriots.html
+
+**San Francisco Teachers Walk Out for the First Time Since 1979**\
+`The strike closed public schools for more than 50,000 students in the city and had no end date. Health care costs are a key issue in negotiations.`\
+https://nytimes.com/2026/02/09/us/san-francisco-teachers-strike.html
+
 **Serena Williams, a tale of two Super Bowl appearances, and a tennis comeback in-waiting**\
 `12 months on from her appearance with Kendrick Lamar, the 23-time Grand Slam champion took a very different role.`\
 https://nytimes.com/athletic/7027170/2026/02/09/serena-williams-super-bowl-ad-performance/

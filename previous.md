@@ -1,3 +1,11 @@
+**Seahawks’ Defense Dominates in Super Bowl Victory Over Patriots**\
+`The Seattle Seahawks sacked the New England Patriots quarterback Drake Maye six times and forced three turnovers to win their second Super Bowl, 29-13.`\
+https://nytimes.com/video/sports/football/100000010699276/seahawks-defense-dominates-in-super-bowl-victory-over-patriots.html
+
+**San Francisco Teachers Walk Out for the First Time Since 1979**\
+`The strike closed public schools for more than 50,000 students in the city and had no end date. Health care costs are a key issue in negotiations.`\
+https://nytimes.com/2026/02/09/us/san-francisco-teachers-strike.html
+
 **Serena Williams, a tale of two Super Bowl appearances, and a tennis comeback in-waiting**\
 `12 months on from her appearance with Kendrick Lamar, the 23-time Grand Slam champion took a very different role.`\
 https://nytimes.com/athletic/7027170/2026/02/09/serena-williams-super-bowl-ad-performance/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/09/fashion/workout-clothes-brands-exercise.html
 **Howe has 'no doubt' he is right for Newcastle**\
 `Howe said he would "never put myself before the club" when asked if his side's form had placed any doubts in his mind over his suitability.`\
 https://nytimes.com/athletic/7032575/2026/02/09/eddie-howe-newcastle-head-coach/
-
-**A Designer Moves Upstairs — and Starts Over**\
-`When a sunnier apartment became available in his Greenwich Village condo, Kyle O’Donnell leaped at it, and executed a meticulous renovation filled with bespoke details.`\
-https://nytimes.com/2026/02/09/realestate/greenwich-village-condo-kyle-odonnell.html
-
-**$2.5 Million Homes in California**\
-`This week’s properties include a ranch house in San Rafael, a Rudolph Schindler design in Los Angeles and a contemporary waterfront home in Lake Arrowhead.`\
-https://nytimes.com/2026/02/09/realestate/los-angeles-san-rafael-lake-arrowhead-home-sales.html
 
