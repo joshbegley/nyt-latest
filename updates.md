@@ -1,3 +1,11 @@
+**2026 Olympics, Day 2 recap: Lindsey Vonn crashes, U.S. skaters, Breezy Johnson win gold**\
+`It was a day of tragedy and elation for athletes from the U.S. and Italy at the Milan Cortina Winter Olympics on Sunday.`\
+https://nytimes.com/athletic/7031760/2026/02/08/olympics-2026-day-2-recap-lindsey-vonn-ilia-malinin/
+
+**‘Popcast’ breaks down Bad Bunny’s halftime performance.**\
+`By Jon Caramanica`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/popcast-breaks-down-bad-bunnys-halftime-performance
+
 **Amber Glenn sees mixed emotions in Olympic U.S. gold win, her performance and critics**\
 `Glenn said the backlash she received following political comments was stunning but not a hindrance to her performance. `\
 https://nytimes.com/athletic/7031453/2026/02/08/amber-glenn-figure-skating-olympics-politics-lgbtq-donald-trump/
