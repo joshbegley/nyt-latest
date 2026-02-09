@@ -1,3 +1,7 @@
+**The resignation of a key Starmer aide has accelerated the scandal.**\
+`By Michael D. Shear and Stephen Castle`\
+https://nytimes.com/live/2026/02/09/world/uk-starmer-resign-epstein-mandelson/the-resignation-of-a-key-starmer-aide-has-accelerated-the-scandal
+
 **How Democrats Are Trying to Rein in ICE**\
 `Michael Gold, a reporter for The New York Times, describes the fight in Congress over funding the Department of Homeland Security, as Democrats push for restrictions on federal immigration agents.`\
 https://nytimes.com/video/us/politics/100000010690129/congress-department-homeland-security-funding-federal-immigration-agents.html
