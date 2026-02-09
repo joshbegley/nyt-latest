@@ -1,3 +1,19 @@
+**Maxwell Refuses to Answer Questions in House Deposition**\
+`Ghislaine Maxwell, the longtime companion of the convicted sex offender Jeffrey Epstein, invoked her right against self-incrimination in an Oversight Committee deposition.`\
+https://nytimes.com/2026/02/09/us/politics/ghislaine-maxwell-house-jeffrey-epstein-trump.html
+
+**Like Fireworks: When Masters of Two Dance Traditions Meet**\
+`American tap greats collaborating with kathak dancers discover how to communicate through rhythm.`\
+https://nytimes.com/2026/02/09/arts/dance/tap-kathak-what-flows-between-us.html
+
+**The London Warriors: The amateur team that changes lives and has produced a Super Bowl winner**\
+`The London Warriors has yielded some of Britain's brightest American football talents - and now a Super Bowl-winning coach.`\
+https://nytimes.com/athletic/7032803/2026/02/09/london-warriors-aden-durde-super-bowl-seattle-seahawks/
+
+**'We should not promote them': Daniil Medvedev criticizes 'not round' tennis balls at Rotterdam Open**\
+`Medvedev, who has a litany of tennis-ball complaints, singled out manufacturer Head for criticism. It is yet to respond.`\
+https://nytimes.com/athletic/7033183/2026/02/09/daniil-medvedev-tennis-balls-not-round-rotterdam-open/
+
 **'We should not promote them': Daniil Medvedev criticizes not round' tennis balls at Rotterdam Open**\
 `Medvedev, who has a litany of tennis-ball complaints, singled out manufacturer Head for criticism. It is yet to respond.`\
 https://nytimes.com/athletic/7033183/2026/02/09/daniil-medvedev-criticizes-head-tennis-balls/
