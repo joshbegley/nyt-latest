@@ -1,3 +1,7 @@
+**What Was the Jumpsuit That Mack Hollins Wore?**\
+`The Super Bowl tunnel walk is the show before the show. Athletes arrived in head-to-toe monograms, shackles and leather.`\
+https://nytimes.com/2026/02/08/style/what-was-the-jumpsuit-that-mack-hollins-wore.html
+
 **The N.F.L. has a 10-second delay at its disposal for halftime.**\
 `By Ken Belson`\
 https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/the-nfl-has-a-10-second-delay-at-its-disposal-for-halftime
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/halftime-sh
 **Venezuela Frees Key Opposition Figures as Government Courts U.S. Support**\
 `The release of around 35 political prisoners comes amid closer cooperation between Washington and the interim government.`\
 https://nytimes.com/2026/02/08/world/americas/venezuela-opposition-leaders-released.html
-
-**A liberal group is hosting ‘Bad Bunny Bowl’ watch parties.**\
-`By Marc Tracy`\
-https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/a-liberal-group-is-hosting-bad-bunny-bowl-watch-parties
 

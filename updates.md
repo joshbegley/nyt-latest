@@ -1,3 +1,15 @@
+**The N.F.L. has a 10-second delay at its disposal for halftime.**\
+`By Ken Belson`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/the-nfl-has-a-10-second-delay-at-its-disposal-for-halftime
+
+**Bad Bunny’s halftime appearance became a political flashpoint.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/bad-bunnys-halftime-appearance-became-a-political-flashpoint
+
+**Ranking the best 2026 Super Bowl commercials: Good Will Dunkin, 50 Cent beef, 'Will Shat'**\
+`The Athletic has live coverage of the Super Bowl LX halftime show featuring Bad Bunny.`\
+https://nytimes.com/athletic/7016254/2026/02/08/super-bowl-commercials-2026-ranking-shatner-instacart-skittles/
+
 **Cold Deaths in New York Climb to 18 as Frigid Winds Linger**\
 `A person was found dead in the Bronx on Saturday morning, the police said. An 81-year-old man was also found dead on a rooftop, though it was unclear whether the cold was to blame.`\
 https://nytimes.com/2026/02/08/nyregion/extreme-cold-weather-deaths-nyc.html

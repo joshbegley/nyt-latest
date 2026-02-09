@@ -1,3 +1,11 @@
+**The N.F.L. has a 10-second delay at its disposal for halftime.**\
+`By Ken Belson`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/the-nfl-has-a-10-second-delay-at-its-disposal-for-halftime
+
+**Bad Bunny’s halftime appearance became a political flashpoint.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/bad-bunnys-halftime-appearance-became-a-political-flashpoint
+
 **Cold Deaths in New York Climb to 18 as Frigid Winds Linger**\
 `A person was found dead in the Bronx on Saturday morning, the police said. An 81-year-old man was also found dead on a rooftop, though it was unclear whether the cold was to blame.`\
 https://nytimes.com/2026/02/08/nyregion/extreme-cold-weather-deaths-nyc.html
@@ -9,6 +17,10 @@ https://nytimes.com/interactive/2026/02/08/sports/ilia-malinin-mens-figure-skati
 **The Super Bowl halftime is the world’s biggest stage. He designs it.**\
 `By Emmanuel Morgan`\
 https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/the-super-bowl-halftime-is-the-worlds-biggest-stage-he-designs-it
+
+**Ranking the best 2026 Super Bowl commercials: Good Will Dunkin, 50 Cent beef, 'Will Shat'**\
+`The Athletic has live coverage of the Super Bowl LX halftime show featuring Bad Bunny.`\
+https://nytimes.com/athletic/7016254/2026/02/08/super-bowl-commercials-2026-ranking-shatner-instacart-skittles/
 
 **Bad Bunny’s love of sports runs deep.**\
 `By James Wagner`\
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/08/world/americas/venezuela-opposition-leaders-relea
 **A liberal group is hosting ‘Bad Bunny Bowl’ watch parties.**\
 `By Marc Tracy`\
 https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/a-liberal-group-is-hosting-bad-bunny-bowl-watch-parties
-
-**Kid Rock is set to offer a halftime alternative.**\
-`By Marc Tracy`\
-https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/kid-rock-is-set-to-offer-a-halftime-alternative
-
-**Fred Smith, Who Left Blondie for the Band Television, Dies at 77**\
-`In the 70s, New York’s bohemia was devoted to hostile yet arty rock. Mr. Smith had two qualities rare in the scene: personal and musical understatement.`\
-https://nytimes.com/2026/02/08/obituaries/fred-smith-dead.html
-
-**Watch Bad Bunny talk about his ‘most Puerto Rican album.’**\
-`By Joe Coscarelli and Jon Caramanica`\
-https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/watch-bad-bunny-talk-about-his-most-puerto-rican-album
 
