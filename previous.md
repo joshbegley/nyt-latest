@@ -1,3 +1,7 @@
+**‘You Cannot Feel Remotely Sorry for the Patriots’: Opinion Writers Tackle the Super Bowl**\
+`Super Bowl LX is in the books. An Opinion round table breaks down the game, the entertainment — and the commercials.`\
+https://nytimes.com/2026/02/09/opinion/patriots-seahawks-bad-bunny-super-bowl.html
+
 **Kubiak confirms he will be the next Raiders head coach**\
 `Kubiak joined the Seahawks last offseason, leading an offense that brought home the Offensive Player of the Year and Super Bowl MVP awards.`\
 https://nytimes.com/athletic/7032313/2026/02/09/klint-kubiak-raiders-next-head-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6917591/2026/02/09/milan-cortina-winter-olympics-wh
 **Brighton looking down rather than up for first time in years - and the anti-Hurzeler brigade is growing**\
 `With one win in 12 games there is a seething discontent on home soil. But the head coach should be fine until his summer review`\
 https://nytimes.com/athletic/7031003/2026/02/09/brighton-hurzeler-premier-league/
-
-**The many sides of Everton**\
-`Everton are still in the race for Europe — but significant questions remain for David Moyes and his squad`\
-https://nytimes.com/athletic/7029704/2026/02/09/everton-david-moyes-many-sides/
 

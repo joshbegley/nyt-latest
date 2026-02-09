@@ -1,3 +1,7 @@
+**‘You Cannot Feel Remotely Sorry for the Patriots’: Opinion Writers Tackle the Super Bowl**\
+`Super Bowl LX is in the books. An Opinion round table breaks down the game, the entertainment — and the commercials.`\
+https://nytimes.com/2026/02/09/opinion/patriots-seahawks-bad-bunny-super-bowl.html
+
 **Kubiak confirms he will be the next Raiders head coach**\
 `Kubiak joined the Seahawks last offseason, leading an offense that brought home the Offensive Player of the Year and Super Bowl MVP awards.`\
 https://nytimes.com/athletic/7032313/2026/02/09/klint-kubiak-raiders-next-head-coach/
