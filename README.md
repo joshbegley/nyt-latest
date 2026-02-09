@@ -1,3 +1,7 @@
+**Seahawks embracing role as 'target No. 1' a day after winning Super Bowl 60**\
+`The Seahawks' dominant Super Bowl win already has them as the early betting favorite for next year's title.`\
+https://nytimes.com/athletic/7033798/2026/02/09/seahawks-embracing-role-as-target-no-1-a-day-after-winning-super-bowl-60/
+
 **AP men's basketball Top 25: Arizona unanimous No. 1 again, Houston rockets to No. 3**\
 `Eight of the top 10 teams came from the Big 12 or Big Ten.`\
 https://nytimes.com/athletic/7033754/2026/02/09/ap-mens-basketball-poll-arizona-michigan-houston/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/09/us/politics/justice-department-search-washington-
 **Denver Broncos mailbag: Submit questions for beat writer Nick Kosmider**\
 `Let us know what's on your mind as the Broncos head toward the draft and free agency.`\
 https://nytimes.com/athletic/7033711/2026/02/09/denver-broncos-mailbag-questions/
-
-**NYU women's basketball breaks Division III record with 82nd straight win**\
-`During NYU's nearly three-year undefeated stretch, only four opponents have lost to the Violets by single digits.`\
-https://nytimes.com/athletic/7033046/2026/02/09/college-women-basketball-nyu-winning-record-diii/
 

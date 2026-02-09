@@ -1,3 +1,7 @@
+**AP men's basketball Top 25: Arizona unanimous No. 1 again, Houston rockets to No. 3**\
+`Eight of the top 10 teams came from the Big 12 or Big Ten.`\
+https://nytimes.com/athletic/7033754/2026/02/09/ap-mens-basketball-poll-arizona-michigan-houston/
+
 **Jutta Leerdam sets Olympic record in 1,000-meter speed skating race**\
 `MILAN — Speed skater Jutta Leerdam set an Olympic record in the women’s 1,000-meter race just minutes after her teammate Femke Kok lowered the record, giving the Netherlands a gold-silver finish and knocking one of the best American contenders off the podium.`\
 https://nytimes.com/athletic/7033765/2026/02/09/jutta-leerdam-olympic-speed-skating-record-1000-meter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7033711/2026/02/09/denver-broncos-mailbag-questions
 **NYU women's basketball breaks Division III record with 82nd straight win**\
 `During NYU's nearly three-year undefeated stretch, only four opponents have lost to the Violets by single digits.`\
 https://nytimes.com/athletic/7033046/2026/02/09/college-women-basketball-nyu-winning-record-diii/
-
-**I was at a Super Bowl watch party in Puerto Rico. All eyes were on the halftime show**\
-`Being in Puerto Rico watching the Super Bowl and the Bad Bunny halftime show was a once-in-a-lifetime experience. Here are some takeaways.`\
-https://nytimes.com/athletic/7033294/2026/02/09/bad-bunny-super-bowl-puerto-rico-watch-party/
 

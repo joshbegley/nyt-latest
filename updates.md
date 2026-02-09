@@ -1,3 +1,7 @@
+**AP men's basketball Top 25: Arizona unanimous No. 1 again, Houston rockets to No. 3**\
+`Eight of the top 10 teams came from the Big 12 or Big Ten.`\
+https://nytimes.com/athletic/7033754/2026/02/09/ap-mens-basketball-poll-arizona-michigan-houston/
+
 **Jutta Leerdam sets Olympic record in 1,000-meter speed skating race**\
 `MILAN — Speed skater Jutta Leerdam set an Olympic record in the women’s 1,000-meter race just minutes after her teammate Femke Kok lowered the record, giving the Netherlands a gold-silver finish and knocking one of the best American contenders off the podium.`\
 https://nytimes.com/athletic/7033765/2026/02/09/jutta-leerdam-olympic-speed-skating-record-1000-meter/
