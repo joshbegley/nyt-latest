@@ -1,3 +1,7 @@
+**An alternative halftime show pays tribute to Charlie Kirk.**\
+`By Marc Tracy`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/an-alternative-halftime-show-pays-tribute-to-charlie-kirk
+
 **Turning Point USA's All-American Halftime Show draws 6.1M concurrent viewers on YouTube**\
 `The stream was unavailable on X due to licensing issues, after Turning Point USA had announced it would be available there previously.`\
 https://nytimes.com/athletic/7031946/2026/02/08/turning-point-usa-halftime-show-pete-hegseth/
