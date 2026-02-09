@@ -1,3 +1,15 @@
+**Pockets of Republican Pushback to ICE Facilities Point to MAGA Fissures**\
+`Signs of fractures on the right, often fueled by the Trump administration’s actions, keep stacking up.`\
+https://nytimes.com/2026/02/09/us/politics/ice-detention-centers-republicans-trump.html
+
+**Trump Administration to Cut $600 Million in Health Funding From Four States**\
+`The states, all led by Democrats, used the grants to support a wide variety of functions, including H.I.V. prevention and surveillance.`\
+https://nytimes.com/2026/02/09/health/trump-public-health-cuts-california.html
+
+**Britain’s Leader Faces Pressure Over Epstein Turmoil**\
+`Also, California tries to help its mountain lions. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2026/02/09/briefing/britain-keir-starmer-mountain-lions-california.html
+
 **The 2026 Milan-Cortina Olympics in Pictures**\
 `As the athletes soared through the air and spun above the ice, New York Times photographers were there to capture the action in Italy.`\
 https://nytimes.com/interactive/2026/02/09/world/olympics/winter-olympics-milano-cortina-photos.html
@@ -7,7 +19,7 @@ https://nytimes.com/interactive/2026/02/09/world/olympics/winter-olympics-milano
 https://nytimes.com/athletic/7034451/2026/02/09/jayson-tatum-practice-main-red-claws-g-league/
 
 **Red Sox manager Alex Cora on Bad Bunny's Super Bowl show: 'There were tears'**\
-`Cora, a native of Puerto Rico, praises performance for how it represented his culture.`\
+`Cora, a native of Puerto Rico, praised the performance for how it represented his culture.`\
 https://nytimes.com/athletic/7034397/2026/02/09/alex-cora-bad-bunny-super-bowl-show/
 
 **The Latest Victim of a Snowless West: Dog Sledding**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7034483/2026/02/09/lindsey-vonn-injury-update-fract
 **Canada's win over Czech Republic in Olympic women's hockey overshadowed by Poulin's exit**\
 `Marie-Philip Poulin's status for Canada's highly anticipated matchup with the United States on Tuesday is unknown.`\
 https://nytimes.com/athletic/7034109/2026/02/09/canada-czechia-olympics-womens-hockey-2026/
-
-**Zack Wheeler likely to miss Opening Day but could return early in the season**\
-`Wheeler had surgery late last season to address vascular thoracic outlet syndrome and his return was projected at six-to-eight months.`\
-https://nytimes.com/athletic/7034364/2026/02/09/phillies-zack-wheeler-opening-day-update/
-
-**World Baseball Classic will feature pitch clock but no ABS challenge system**\
-`The tournament will use the same pitch-timer rules in place in MLB but won't feature the Automated Ball-Strike System challenge system. `\
-https://nytimes.com/athletic/7034366/2026/02/09/world-baseball-classic-abs-pitch-clock/
-
-**Love or Hate Valentine’s Day?**\
-`Whether you’re thrilled about the holiday or ready to kiss it goodbye, we have great picks for you.`\
-https://nytimes.com/interactive/2026/02/09/movies/cul-valentines-day-movies-love-hate.html
 
