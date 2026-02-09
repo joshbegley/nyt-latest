@@ -1,3 +1,11 @@
+**Pilots and Flight Attendants Criticize American Airlines’ Performance**\
+`The unions representing pilots and flight attendants have in recent days publicly criticized American for falling behind Delta Air Lines and United Airlines.`\
+https://nytimes.com/2026/02/09/business/american-airlines-pilots-flight-attendants-unions.html
+
+**Gronk on Brady cards vs. Maye cards and the memorabilia he would never sell**\
+`Rob Gronkowski and his family have been getting back into collecting. `\
+https://nytimes.com/athletic/7033083/2026/02/09/gronkowski-brady-maye-football-cards/
+
 **Gateway Funding Doesn’t Have to Be Immediately Restored, Judge Says**\
 `U.S. District Judge Jeannette Vargas had ordered the funding for a $16 billion tunnel project restored last week, but on Monday granted a temporary stay after the federal government appealed her decision.`\
 https://nytimes.com/2026/02/09/nyregion/gateway-rail-tunnel-funding-new-york.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7032797/2026/02/09/wsl-grok-x-soccer/
 **Can This 21-Year-Old Make America Fall in Love With Figure Skating?**\
 `Ilia Malinin, who led the United States to a team gold medal at the Winter Olympics and will now vie for his own, is testing the physical limits of what is possible on the ice.`\
 https://nytimes.com/2026/02/09/world/olympics/ilia-malinin-ice-skating-winter-olympics.html
-
-**Amanda Anisimova retires from Qatar Open with physical issues, ending title defense at first hurdle**\
-`The American had her blood pressure checked early in the third set of her match against Karolína Plíšková, before retiring two games later.`\
-https://nytimes.com/athletic/7033708/2026/02/09/amanda-anisimova-qatar-open-karolina-pliskova/
-
-**Bomb Threats Disrupt Ohio City in Immigration Spotlight**\
-`Schools, city offices and businesses were locked down in Springfield, Ohio, where more than 10,000 Haitians have settled in recent years.`\
-https://nytimes.com/2026/02/09/us/bomb-threats-springfield-ohio-haitians.html
 

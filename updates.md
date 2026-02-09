@@ -1,3 +1,7 @@
+**Gateway Funding Doesn’t Have to Be Immediately Restored, Judge Says**\
+`U.S. District Judge Jeannette Vargas had ordered the funding for a $16 billion tunnel project restored last week, but on Monday granted a temporary stay after the federal government appealed her decision.`\
+https://nytimes.com/2026/02/09/nyregion/gateway-rail-tunnel-funding-new-york.html
+
 **Submit your questions for The Athletic's transfer portal mailbag**\
 `<p>The transfer portal is closed.`\
 https://nytimes.com/athletic/7033852/2026/02/09/submit-your-questions-for-the-athletics-transfer-portal-mailbag/
