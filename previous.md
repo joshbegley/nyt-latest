@@ -1,3 +1,7 @@
+**The Death Toll in Ukraine**\
+`We are covering the latest from the war.`\
+https://nytimes.com/2026/02/09/briefing/the-death-toll-in-ukraine.html
+
 **The journey didn't break Sam Darnold; it made him into a Super Bowl champion**\
 `The quarterback's career turnaround was an exercise in patience and belief.`\
 https://nytimes.com/athletic/7032480/2026/02/09/sam-darnold-super-bowl-career-turnaround/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7031889/2026/02/09/super-bowl-seahawks-bad-bunny-th
 **Toronto Blue Jays 2026 top 20 prospects: Trey Yesavage, JoJo Parker lead the way**\
 `The Blue Jays' system is thin right now, but for a good reason — they used it to build a team that nearly won a World Series.`\
 https://nytimes.com/athletic/7030328/2026/02/09/toronto-blue-jays-2026-top-20-prospects-keith-law/
-
-**How Japan’s Leader Rescued Her Party from the Abyss**\
-`Sanae Takaichi, Japan’s first female prime minister, harnessed her personal popularity and a shift to the right among voters to achieve a record election win.`\
-https://nytimes.com/2026/02/09/world/asia/japan-election-takaichi-analysis.html
 

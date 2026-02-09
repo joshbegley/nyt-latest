@@ -1,3 +1,7 @@
+**The Death Toll in Ukraine**\
+`We are covering the latest from the war.`\
+https://nytimes.com/2026/02/09/briefing/the-death-toll-in-ukraine.html
+
 **The journey didn't break Sam Darnold; it made him into a Super Bowl champion**\
 `The quarterback's career turnaround was an exercise in patience and belief.`\
 https://nytimes.com/athletic/7032480/2026/02/09/sam-darnold-super-bowl-career-turnaround/
