@@ -1,3 +1,7 @@
+**Olympic Athletes Jump For Joy and Break Their Medals**\
+`As Olympians report their medals detaching from their ribbons, game organizers are scrambling to fix the issue. This is not the first time that Olympic medals have had issues. Over a 100 athletes from the Paris Olympics in 2024 reported that their medals deteriorated.`\
+https://nytimes.com/video/world/europe/100000010699778/olympian-medals-breaking-milan.html
+
 **Two Senegalese Celebrities Are Arrested in Crackdown on Homosexuality**\
 `A TV presenter and one of Senegal’s best-known musicians appeared in court on Monday in one of the country’s most high-profile, anti-gay cases in years.`\
 https://nytimes.com/2026/02/09/world/africa/senegal-gay-arrests-diallo-drame.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/09/well/measles-symptoms-vaccine.html
 **Oz Offers Forceful Call for Vaccination as Measles Becomes More Dire**\
 `The comments by the Centers for Medicare and Medicaid Services director come as South Carolina grapples with a large measles outbreak.`\
 https://nytimes.com/2026/02/09/well/dr-mehmet-oz-measles-vaccine.html
-
-**How to watch Bucks vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7034151/2026/02/09/bucks-vs-magic-stream-how-to-watch-feb-9/
 
