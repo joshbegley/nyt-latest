@@ -1,3 +1,7 @@
+**An alternative halftime show pays tribute to Charlie Kirk.**\
+`By Marc Tracy`\
+https://nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny/an-alternative-halftime-show-pays-tribute-to-charlie-kirk
+
 **Cardi B, Lady Gaga and Ricky Martin Join Bad Bunny at Halftime**\
 `The Super Bowl headliner brought out stars to join the celebration.`\
 https://nytimes.com/2026/02/08/us/bad-bunny-super-bowl-lady-gaga-ricky-martin-cardi-b.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong/jimmy-la
 **In Japan, Investors Give an Exuberant Welcome to Takaichi’s Big Win**\
 `Stocks climbed on Monday as investors cheered a result seen as a mandate for the prime minister’s high-spending economic agenda.`\
 https://nytimes.com/2026/02/08/business/japan-stocks-sanae-takaichi.html
-
-**Jimmy Lai’s conviction was years in the making.**\
-`By Andrew Higgins and Alexandra Stevenson`\
-https://nytimes.com/live/2026/02/08/world/jimmy-lai-sentenced-hong-kong/jimmy-lai-conviction-hong-kong
 
