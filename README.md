@@ -1,3 +1,15 @@
+**NYU women's basketball breaks Division III record with 82nd straight win**\
+`During NYU's nearly three-year undefeated stretch, only four opponents have lost to the Violets by single digits.`\
+https://nytimes.com/athletic/7033046/2026/02/09/college-women-basketball-nyu-winning-record-diii/
+
+**I was at a Super Bowl watch party in Puerto Rico. All eyes were on the halftime show**\
+`Being in Puerto Rico watching the Super Bowl and the Bad Bunny halftime show was a once-in-a-lifetime experience. Here are some takeaways.`\
+https://nytimes.com/athletic/7033294/2026/02/09/bad-bunny-super-bowl-puerto-rico-watch-party/
+
+**Israel Gives Itself More Control Over West Bank, Clearing Barriers to Settlement**\
+`Actions by the security cabinet make it easier for Jews to buy land from Palestinians. Critics say the changes violate the Oslo Accords and international law and accelerate attempts to annex the territory.`\
+https://nytimes.com/2026/02/09/world/middleeast/israel-settlements-west-bank.html
+
 **With Lindsey Vonn out, U.S. women's Alpine enters team event still with high hopes**\
 `The top pairings still give the U.S. a great shot at one or more medals in Tuesday's team combined.`\
 https://nytimes.com/athletic/7033407/2026/02/09/winter-olympics-lindsey-vonn-us-alpine-skiing-team-combined/
@@ -25,18 +37,4 @@ https://nytimes.com/2026/02/09/opinion/trump-obama-racist-video.html
 **NBA Power Rankings: East teams soar into contenders tier; post-deadline roster reset**\
 `Let's examine the familiar faces in new places and how rotations and chemistry may be affected going forward.`\
 https://nytimes.com/athletic/7032989/2026/02/09/nba-power-rankings-knicks-celtics-trade-deadline/
-
-**Family Court Is Flooded by Cases It Can’t Address, Top N.Y. Judge Says**\
-`Judge Rowan D. Wilson says poverty and issues like mental illness, which the courts struggle to deal with, drive many of the cases that end up in family court.`\
-https://nytimes.com/2026/02/09/nyregion/new-york-family-court-reform.html
-
-**Review: Finding the Clarity in Mahler’s Enigmatic Third Symphony**\
-`Iván Fischer and the Budapest Festival Orchestra led an illuminating journey through one of Mahler’s less heard symphonies at Carnegie Hall.`\
-https://nytimes.com/2026/02/09/arts/music/review-mahler-ivan-fischer-budapest-festival-orchestra.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Nothing like a little February conference realignment news &#8212; welcome to the Show, North Dakota State.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/7033549/2026/02/09/submit-a-question-for-stewart-mandels-college-football-mailbag-334/
 
