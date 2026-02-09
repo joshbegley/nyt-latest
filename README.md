@@ -1,3 +1,7 @@
+**Two Senegalese Celebrities Are Arrested in Crackdown on Homosexuality**\
+`A TV presenter and one of Senegal’s best-known musicians appeared in court on Monday in one of the country’s most high-profile, anti-gay cases in years.`\
+https://nytimes.com/2026/02/09/world/africa/senegal-gay-arrests-diallo-drame.html
+
 **‘We Believe Our Mom Is Still Out There,’ Savannah Guthrie Says**\
 `The television host released a video pleading for the public’s help in finding her mother, Nancy, who disappeared from her Arizona home last week. “We are at an hour of desperation,” she said.`\
 https://nytimes.com/2026/02/09/us/savannah-guthrie-kidnapping-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/09/well/dr-mehmet-oz-measles-vaccine.html
 **How to watch Bucks vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7034151/2026/02/09/bucks-vs-magic-stream-how-to-watch-feb-9/
-
-**Scoop City: Defense can still win championships**\
-`The NFL wants to be defined by its quarterbacks and receivers. Last night was about everything else.`\
-https://nytimes.com/athletic/7033969/2026/02/09/seahawks-defense-special-teams-super-bowl-scoop-city/
 
