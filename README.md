@@ -1,3 +1,7 @@
+**Starmer’s Communications Chief Resigns, Adding to British Leader’s Woes**\
+`Tim Allan is the second senior member of Prime Minister Keir Starmer’s team to depart in less than 24 hours.`\
+https://nytimes.com/2026/02/09/world/europe/keir-starmer-uk-communications-resigns.html
+
 **Pirates to sign Marcell Ozuna after missing on big bats this offseason: Source**\
 `The Pirates targeted multiple options this offseason to improve their league-worst offense before landing Ozuna.`\
 https://nytimes.com/athletic/6838995/2026/02/09/mlb-marcell-ozuna-free-agency-signing-pirates/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7032432/2026/02/09/premier-league-title-race-md25/
 **Trump Criticizes Bad Bunny’s Super Bowl Halftime Show**\
 `Bad Bunny, the Puerto Rican superstar who has denounced ICE, celebrated Latino heritage in his largely Spanish-language performance.`\
 https://nytimes.com/2026/02/09/us/trump-bad-bunny-super-bowl-halftime-show.html
-
-**What’s Your Reaction to Super Bowl LX?**\
-`Did you watch? What was your favorite part? The game? The commercials? The halftime show? The snacks?`\
-https://nytimes.com/2026/02/09/learning/whats-your-reaction-to-super-bowl-lx.html
 

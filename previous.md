@@ -1,4 +1,8 @@
-**Jake Paul criticised by over description of Bad Bunny as 'fake American'**\
+**Pirates to sign Marcell Ozuna after missing on big bats this offseason: Source**\
+`The Pirates targeted multiple options this offseason to improve their league-worst offense before landing Ozuna.`\
+https://nytimes.com/athletic/6838995/2026/02/09/mlb-marcell-ozuna-free-agency-signing-pirates/
+
+**Jake Paul criticised over description of Bad Bunny as 'fake American'**\
 `Paul described Bad Bunny, a Puerta Rican artist, as "a fake American citizen...who publicly hates America."`\
 https://nytimes.com/athletic/7032794/2026/02/09/jake-paul-amanda-serrano-bad-bunny-fake-american/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/09/us/trump-bad-bunny-super-bowl-halftime-show.html
 **What’s Your Reaction to Super Bowl LX?**\
 `Did you watch? What was your favorite part? The game? The commercials? The halftime show? The snacks?`\
 https://nytimes.com/2026/02/09/learning/whats-your-reaction-to-super-bowl-lx.html
-
-**Trump Administration Live Updates: Lawmakers to View Unredacted Epstein Files**\
-``\
-https://nytimes.com/live/2026/02/09/us/president-trump-news
 
