@@ -1,3 +1,7 @@
+**NBA Rewind: How the trade deadline shook up the playoff (and tanking) picture**\
+`All-Star Weekend is almost here. Is that still a good thing?`\
+https://nytimes.com/athletic/7026380/2026/02/09/nba-rewind-trade-deadline-playoffs-all-star-weekend/
+
 **Five things I think about the stumbling Timberwolves as the All-Star break approaches**\
 `Minnesota looks disconnected and discombobulated. What's gone wrong, and can it be fixed before the playoffs?`\
 https://nytimes.com/athletic/7031384/2026/02/09/timberwolves-struggles-julius-randle-anthony-edwards/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/09/us/president-trump-news
 **Pochettino's assistant says USMNT lacked 'basics' before taking charge in 2024**\
 `In a joint interview on a podcast, Pochettino also said he believes the U.S. can win this summer's home World Cup.`\
 https://nytimes.com/athletic/7032826/2026/02/09/usmnt-jesus-perez-mauricio-pochettino/
-
-**'This one hits pretty close to home,' says Chloe Kim of President Trump's criticism of Hunter Hess**\
-`Kim and three of her Team USA snowboarding teammates were asked Monday about President Trump's comments on Hunter Hess.`\
-https://nytimes.com/athletic/7032765/2026/02/09/chloe-kim-president-trump-hunter-hess/
 

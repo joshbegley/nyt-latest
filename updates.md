@@ -1,3 +1,19 @@
+**Five things I think about the stumbling Timberwolves as the All-Star break approaches**\
+`Minnesota looks disconnected and discombobulated. What's gone wrong, and can it be fixed before the playoffs?`\
+https://nytimes.com/athletic/7031384/2026/02/09/timberwolves-struggles-julius-randle-anthony-edwards/
+
+**How Artists Beat the Blues**\
+`Ten creative people share their strategies for thriving, or at least getting by, in difficult times.`\
+https://nytimes.com/2026/02/09/t-magazine/winter-blues-stress-tips.html
+
+**A.I. Blitzes the Big Game**\
+`Ads pitching artificial intelligence companies dominated the Super Bowl broadcast. Their huge cost probably didn’t ease investor worries about spending.`\
+https://nytimes.com/2026/02/09/business/dealbook/super-bowl-ads-ai.html
+
+**Why the rest of this season for Giannis Antetokounmpo and the Bucks is worth watching closely**\
+`An interesting plotline as Giannis and the Bucks stick together for now: The team's best path is to tank. The star likely won't accept that.`\
+https://nytimes.com/athletic/7026801/2026/02/09/giannis-bucks-injury-management-nba-trade/
+
 **Why the rest of this season for Giannis Antetokounmpo and the Bucks is worth watching closely**\
 `An interesting plotline as Giannis and Bucks stick together for now: The team's best path is to tank. The star likely won't accept that.`\
 https://nytimes.com/athletic/7026801/2026/02/09/giannis-bucks-injury-management-nba-trade/
