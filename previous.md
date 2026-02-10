@@ -1,3 +1,15 @@
+**The Briefing: Tottenham 1 Newcastle 2 - Where does Thomas Frank go from here? Has Jacob Ramsey finally arrived?**\
+`The Athletic's writers analyse Tuesday evening's game at the Tottenham Hotspur Stadium`\
+https://nytimes.com/athletic/7030957/2026/02/10/tottenham-newcastle-premier-league-analysis-frank-howe/
+
+**Lakers' LeBron James to sit out 18th game, ending 21-year All-NBA streak**\
+`With James set to miss his 18th game, he will be ineligble for postseason awards due to the NBA's 65-game rule. `\
+https://nytimes.com/athletic/7037151/2026/02/10/lebron-james-all-nba-streak-miss-18th-game-lakers/
+
+**A Crucial Step in Trump’s Gaza Plan**\
+`Persuading Hamas to give up its weapons is the “linchpin of everything” in the president’s plan.`\
+https://nytimes.com/2026/02/10/world/trump-gaza-hamas-disarm-ukraine-epstein.html
+
 **The Conservative Activists Behind One of Trump’s Biggest Climate Moves**\
 `Four Trump allies have been a driving force behind the administration’s efforts to rollback a key climate regulation.`\
 https://nytimes.com/2026/02/10/climate/the-conservative-activists-behind-one-of-trumps-biggest-climate-moves.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/10/us/politics/congress-white-house-spending-law.htm
 **Isiah Kiner-Falefa addresses World Series play; says Jays preferred Yankees ALDS match-up**\
 `Kiner-Falefa discussed being thrown out at home plate in Game 7 and why the Jays preferred a Yankees matchup over the Red Sox.`\
 https://nytimes.com/athletic/7036882/2026/02/10/isiah-kiner-falefa-world-series-game-seven-yankees-blue-jays-red-sox/
-
-**Doing the Dishes Is Romantic**\
-`But not fun. Which is why I have five delightful, one-pan dinner options for your Valentine’s Day (or any weeknight).`\
-https://nytimes.com/2026/02/10/dining/doing-the-dishes-is-romantic.html
-
-**YouTube Argues It Isn’t Social Media in Landmark Tech Addiction Trial**\
-`The app said in opening statements that it was more of an entertainment platform. The lawsuit claims social media companies design products that cause personal injury.`\
-https://nytimes.com/2026/02/10/technology/youtube-social-media-addiction-trial.html
-
-**Michael Imperioli Will Tell His Great-Grandchildren About Dining With Bourdain**\
-`“I remember getting there and he was standing outside, smoking. It was hours of white wine and fish,” says the “Sopranos” actor.`\
-https://nytimes.com/2026/02/10/dining/white-lotus-michael-imperioli-restaurants.html
 

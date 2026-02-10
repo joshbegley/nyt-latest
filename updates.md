@@ -1,3 +1,15 @@
+**The Briefing: Tottenham 1 Newcastle 2 - Where does Thomas Frank go from here? Has Jacob Ramsey finally arrived?**\
+`The Athletic's writers analyse Tuesday evening's game at the Tottenham Hotspur Stadium`\
+https://nytimes.com/athletic/7030957/2026/02/10/tottenham-newcastle-premier-league-analysis-frank-howe/
+
+**Lakers' LeBron James to sit out 18th game, ending 21-year All-NBA streak**\
+`With James set to miss his 18th game, he will be ineligble for postseason awards due to the NBA's 65-game rule. `\
+https://nytimes.com/athletic/7037151/2026/02/10/lebron-james-all-nba-streak-miss-18th-game-lakers/
+
+**A Crucial Step in Trump’s Gaza Plan**\
+`Persuading Hamas to give up its weapons is the “linchpin of everything” in the president’s plan.`\
+https://nytimes.com/2026/02/10/world/trump-gaza-hamas-disarm-ukraine-epstein.html
+
 **The Conservative Activists Behind One of Trump’s Biggest Climate Moves**\
 `Four Trump allies have been a driving force behind the administration’s efforts to rollback a key climate regulation.`\
 https://nytimes.com/2026/02/10/climate/the-conservative-activists-behind-one-of-trumps-biggest-climate-moves.html
