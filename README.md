@@ -1,5 +1,5 @@
 **Confrontation between Jalen Duren, Moussa Diabaté sparks Pistons-Hornets fight**\
-`Stewart, Duren, Diabate and Bridges were all ejected. Suspensions are likely to follow.`\
+`Stewart, Duren, Diabaté and Bridges were all ejected. Suspensions are likely to follow.`\
 https://nytimes.com/athletic/7034892/2026/02/09/pistons-hornets-fight-diabate-duren-bridges-stewart/
 
 **How a Decision to Use Whistles as a Prop Cost Eric Adams $4,000**\
