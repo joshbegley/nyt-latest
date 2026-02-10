@@ -1,3 +1,7 @@
+**How to watch Mikaela Shiffrin chase gold at the 2026 Winter Olympics**\
+`The winningest Alpine skier ever seeks redemption after failing to podium at the 2022 Winter Olympics. `\
+https://nytimes.com/athletic/7031162/2026/02/10/mikaela-shiffrin-events-olympics-how-to-watch-2026/
+
 **Downed Wire Disrupts Amtrak and NJ Transit Service Along Northeast Corridor**\
 `The disruption stranded passengers in bitter cold. Amtrak restored service, but NJ Transit was operating reduced service out of New York Penn Station early Tuesday.`\
 https://nytimes.com/2026/02/10/nyregion/amtrak-nj-transit-train-cancellations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/10/arts/television/late-night-bad-bunny.html
 **Word of the Day: indigent**\
 `This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/10/learning/word-of-the-day-indigent.html
-
-**Tracy Scroggins, Lions' No. 3 sack leader, dies at 56**\
-`Scroggins' 60.5 sacks rank third on the Lions' career sack list, and he helped Detroit reach the playoffs five times in his 10 seasons.`\
-https://nytimes.com/athletic/7034931/2026/02/10/lions-tracy-scroggins-dead/
 
