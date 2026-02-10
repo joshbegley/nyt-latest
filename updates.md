@@ -1,3 +1,19 @@
+**Bad Bunny halftime performer goes viral for sharing workout stats as sugarcane plant**\
+`Austin Klapman, a 26-year-old tech worker, walked 1,198 steps while dressed as a sugarcane plant during the Super Bowl halftime show.`\
+https://nytimes.com/athletic/7036752/2026/02/10/bad-bunny-super-bowl-halftime-sugarcane-performer/
+
+**The Everyday People Who Made Bad Bunny’s Halftime Authentic**\
+`A priest from Sacramento. A bar owner from New York. A taquero from Los Angeles. Puerto Rico came alive at the Super Bowl because of hundreds of non-famous performers.`\
+https://nytimes.com/2026/02/10/arts/music/bad-bunny-super-bowl-show-everyday-people.html
+
+**Barcelona's Araujo took football break after experiencing anxiety, depression**\
+`Araujo, 26, was granted indefinite leave by Barcelona at the beginning of December.`\
+https://nytimes.com/athletic/7036887/2026/02/10/ronald-araujo-barcelona-anxiety-depression/
+
+**Congress Quietly Used Funding Law to Try to Rein In Trump on Spending**\
+`Dozens of measures sprinkled throughout the recently enacted spending package seek to tie the Trump administration’s hands on funding, an act of quiet bipartisan resistance to efforts to trample congressional power.`\
+https://nytimes.com/2026/02/10/us/politics/congress-white-house-spending-law.html
+
 **Seven People Died at Private Homes in N.Y.C. Cold Snap, Officials Say**\
 `It was not immediately clear whether any of the buildings in question had faulty heating systems.`\
 https://nytimes.com/2026/02/10/nyregion/nyc-cold-snap-deaths.html
