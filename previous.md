@@ -1,3 +1,35 @@
+**How to watch North Carolina vs. Miami (FL) men's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Miami Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7036189/2026/02/10/north-carolina-vs-miami-fl-stream-how-to-watch-feb-10/
+
+**How to watch Purdue vs. Nebraska men's basketball: Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7036178/2026/02/10/purdue-vs-nebraska-stream-how-to-watch-feb-10/
+
+**How to watch Kansas vs. Texas Tech women's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the Texas Tech Lady Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7036176/2026/02/10/kansas-vs-texas-tech-stream-how-to-watch-feb-10/
+
+**How to watch Vanderbilt vs. Auburn men's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Auburn Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7036172/2026/02/10/vanderbilt-vs-auburn-stream-how-to-watch-feb-10/
+
+**How to watch BYU vs. Baylor men's basketball: Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7036170/2026/02/10/byu-vs-baylor-stream-how-to-watch-feb-10/
+
+**How to watch Virginia vs. Florida State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Virginia Cavaliers play the Florida State Seminoles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7036168/2026/02/10/virginia-vs-florida-state-stream-how-to-watch-feb-10/
+
+**Malinowski Concedes to Analilia Mejia in New Jersey House Primary**\
+`Tom Malinowski, a former member of Congress, congratulated Analilia Mejia, a political organizer, on a “hard-won victory.”`\
+https://nytimes.com/2026/02/10/nyregion/new-jersey-special-election-winner.html
+
+**Oddly specific Olympic men's hockey predictions as NHL players return to the Games**\
+`Plus: A potentially seismic injury to a Canadian star.`\
+https://nytimes.com/athletic/7036049/2026/02/10/olympic-mens-hockey-2026-predictions-red-light/
+
 **Israelis Protest Surge in Gun Crime Within Arab Community**\
 `Palestinian and Jewish citizens of Israel joined forces to demand government action in the face of a spiraling death toll from criminal violence among Arabs.`\
 https://nytimes.com/2026/02/10/world/middleeast/israelis-protest-surge-in-gun-crime-within-arab-community.html
@@ -5,36 +37,4 @@ https://nytimes.com/2026/02/10/world/middleeast/israelis-protest-surge-in-gun-cr
 **Epstein Directed Aide to Obtain Hidden Video Cameras**\
 `“I’m installing them into Kleenex boxes now,” the aide replied in the 2014 email exchange.`\
 https://nytimes.com/2026/02/10/us/epstein-hidden-cameras.html
-
-**The nomadic career of Jhon Duran and his fifth club in three years — Zenit St Petersburg**\
-`Jhon Duran has moved to Russia with Zenit St Petersburg his fifth club in three years. But why have there been so many transfers?`\
-https://nytimes.com/athletic/7033029/2026/02/10/jhon-duran-zenit-st-petersburg-fenerbahce/
-
-**What’s the Secret to Happiness? These Researchers Have a Theory.**\
-`A new book, “How to Feel Loved,” links our social skills to how content we are.`\
-https://nytimes.com/2026/02/10/well/lyubomirsky-reis-how-to-feel-loved.html
-
-**Canucks trade targets: 9 teams with incentive to buy and future assets to spare**\
-`Let's profile nine teams with surplus draft capital and the incentive to use it.`\
-https://nytimes.com/athletic/7035271/2026/02/10/canucks-trade-targets/
-
-**Olympic Officials Ban Ukrainian’s Helmet Honoring War Dead**\
-`Vladyslav Heraskevych called it a tribute to athletes killed in the war with Russia. The International Olympic Committee said it defied a ban on political speech and allowed a black armband instead.`\
-https://nytimes.com/2026/02/10/world/europe/ukraine-winter-olympics-skeleton-helmet-war.html
-
-**Pride Flag Is Taken Down From Stonewall Monument**\
-`The removal of the flag from the Manhattan monument, the symbolic heart of the gay rights movement, came after a Trump administration directive about flags at national park sites.`\
-https://nytimes.com/2026/02/10/us/pride-flag-stonewall-inn-monument.html
-
-**Clippers have revamped their roster but insist goals haven't changed**\
-`When it comes to the Aspiration probe: "We know it's out there. We know at some point there'll be a decision made," Lawrence Frank said.`\
-https://nytimes.com/athletic/7035087/2026/02/10/nba-darius-garland-clippers-trade-kawhi-aspiration/
-
-**How Tennessee's Nate Ament has rebuilt his status as a likely NBA lottery pick**\
-`The 6-foot-10 sharpshooter struggled early in his freshman season but has recently shown what all the preseason top-5 buzz was about.`\
-https://nytimes.com/athletic/7035971/2026/02/10/nate-ament-tennessee-nba-draft/
-
-**The Sublime and Subversive Desire Paths of a Snowy New York**\
-`With the snow sticking around, New Yorkers have had to navigate new, temporary terrain.`\
-https://nytimes.com/2026/02/10/realestate/desire-paths-new-york-city-snow-storm.html
 
