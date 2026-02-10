@@ -1,3 +1,7 @@
+**F.D.A. Refuses to Review Moderna Flu Vaccine**\
+`The vaccine maker said the U.S. regulator rejected its request to seek approval for a new product using mRNA technology, which Health Secretary Robert F. Kennedy Jr. has sharply criticized.`\
+https://nytimes.com/2026/02/10/health/fda-moderna-mrna-flu-vaccine.html
+
 **Song of The Week: Is This Zach Bryan’s Redemption Era?**\
 `On this edition of Popcast’s Song of the Week, our critic Jon Caramanica dives into Zach Bryan’s “Appetite,” a redemptive and contemplative track about “the horrors that you visited upon yourself.”`\
 https://nytimes.com/video/podcasts/100000010704052/song-of-the-week-is-this-zach-bryans-redemption-era.html
@@ -29,12 +33,4 @@ https://nytimes.com/2026/02/10/business/ford-earnings-electric-vehicles.html
 **The Left Needs a Sharper A.I. Politics**\
 `The future may put progressive theories of work and human nature to the test.`\
 https://nytimes.com/2026/02/10/opinion/ai-politics-left-progressive.html
-
-**Peter Attia’s Ties to Epstein Spark a Backlash From Doctors**\
-`What started as a rebuke of Dr. Attia has become a discussion about his credentials, longevity medicine and whom patients should trust.`\
-https://nytimes.com/2026/02/10/well/peter-attia-jeffrey-epstein-doctors-backlash.html
-
-**Justin Verlander makes a poetic Tigers homecoming as new spring begins**\
-`Justin Verlander's Detroit homecoming is packed with nostalgia, and — the Tigers hope — a chance at a postseason run.`\
-https://nytimes.com/athletic/7037199/2026/02/10/justin-verlander-detroit-tigers-return/
 

@@ -1,3 +1,7 @@
+**F.D.A. Refuses to Review Moderna Flu Vaccine**\
+`The vaccine maker said the U.S. regulator rejected its request to seek approval for a new product using mRNA technology, which Health Secretary Robert F. Kennedy Jr. has sharply criticized.`\
+https://nytimes.com/2026/02/10/health/fda-moderna-mrna-flu-vaccine.html
+
 **Song of The Week: Is This Zach Bryan’s Redemption Era?**\
 `On this edition of Popcast’s Song of the Week, our critic Jon Caramanica dives into Zach Bryan’s “Appetite,” a redemptive and contemplative track about “the horrors that you visited upon yourself.”`\
 https://nytimes.com/video/podcasts/100000010704052/song-of-the-week-is-this-zach-bryans-redemption-era.html
