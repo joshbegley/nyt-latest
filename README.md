@@ -1,3 +1,7 @@
+**Are Matt Chapman and Miguel Vargas undervalued? Fantasy baseball third base rundown**\
+`Eno Sarris and Derek VanRiper preview third base ahead of the 2026 fantasy baseball season. `\
+https://nytimes.com/athletic/6994290/2026/02/10/fantasy-baseball-third-base-preview-matt-chapman/
+
 **Breezy Johnson puts U.S. in Olympic team combined lead; Mikaela Shiffrin still to come**\
 `The American Johnson topped the downhill field to kick off Tuesday’s team combined event, setting up Mikaela Shiffrin in the slalom.`\
 https://nytimes.com/athletic/7035461/2026/02/10/winter-olympics-mikaela-shiffrin-breezy-johnson-alpine-team-combined/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7033931/2026/02/10/olympics-nordic-combined-mental-
 **NFL insiders rank head coach hires: John Harbaugh among 4 to receive first-place votes**\
 `The Athletic asked nine NFL coaches and team executives to rate the 10 head-coaching hires this offseason.`\
 https://nytimes.com/athletic/7034727/2026/02/10/best-nfl-head-coach-hires-2026-harbaugh/
-
-**2026 Olympic men's hockey rules vs. NHL rules: How they differ and what's changed**\
-`There are minor changes from the way NHL games are run, mostly involving overtime rules.`\
-https://nytimes.com/athletic/7021678/2026/02/10/olympics-mens-hockey-2026-rules-nhl-differences/
 
