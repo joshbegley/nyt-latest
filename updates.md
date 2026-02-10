@@ -1,3 +1,7 @@
+**Doing the Dishes Is Romantic**\
+`But not fun. Which is why I have five delightful, one-pan dinner options for your Valentine’s Day (or any weeknight).`\
+https://nytimes.com/2026/02/10/dining/doing-the-dishes-is-romantic.html
+
 **YouTube Argues It Isn’t Social Media in Landmark Tech Addiction Trial**\
 `The app said in opening statements that it was more of an entertainment platform. The lawsuit claims social media companies design products that cause personal injury.`\
 https://nytimes.com/2026/02/10/technology/youtube-social-media-addiction-trial.html
