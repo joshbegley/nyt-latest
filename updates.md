@@ -1,3 +1,15 @@
+**The Athletic's college softball Top 25: Texas Tech stays at No.1, Tennessee rises, Oregon falls**\
+`Texas Tech remains unscathed while Tennessee rose after going undefeated. Oregon dropped after losing three of their first five games. `\
+https://nytimes.com/athletic/7034491/2026/02/10/college-softball-power-rankings-texas-tech-texas/
+
+**Knicks buyout market: Who should New York add with open roster spot?**\
+`The Knicks have the financial flexibility to add one more player to the roster. Who makes the most sense?`\
+https://nytimes.com/athletic/7033008/2026/02/10/knicks-buyout-market-candidates/
+
+**Joey Logano on shaving his head and how NASCAR racing has evolved**\
+`The three-time NASCAR Cup Series champ kicks off the 8th season of Jeff Gluck's "12 Questions" series.`\
+https://nytimes.com/athletic/7029447/2026/02/10/joey-logano-nascar-daytona-500-12-questions/
+
 **Assessing the Lions' 22 unrestricted free agents: Tough calls ahead on defense**\
 `Analyzing the starting-tier players, along with key reserves and others who potentially could play roles in 2026.`\
 https://nytimes.com/athletic/7034793/2026/02/10/lions-unrestricted-free-agents-analysis/
