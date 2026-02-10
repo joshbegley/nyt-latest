@@ -1,3 +1,7 @@
+**Tracy Scroggins, Lions' No. 3 sack leader, dies at 56**\
+`Scroggins' 60.5 sacks rank third on the Lions' career sack list, and he helped Detroit reach the playoffs five times in his 10 seasons.`\
+https://nytimes.com/athletic/7034931/2026/02/10/lions-tracy-scroggins-dead/
+
 **The New York Times in Print for Tuesday, Feb. 10, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/10/todays-new-york-times
