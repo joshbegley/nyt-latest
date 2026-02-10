@@ -1,3 +1,7 @@
+**Trump Allies Near ‘Total Victory’ in Wiping Out U.S. Climate Regulation**\
+`A small group of conservative activists has worked for 16 years to stop all government efforts to fight climate change. Their efforts seem poised to pay off.`\
+https://nytimes.com/2026/02/09/climate/endangerment-finding.html
+
 **Injured Damian Lillard on returning to 3-point contest: 'All-Star Weekend needs stars'**\
 `Late last week, Levine called Lillard back. The 3-point field had a competitor drop out, and Levine wanted to revisit their earlier “joke.”`\
 https://nytimes.com/athletic/7034404/2026/02/09/damian-lillard-reaction-all-star-3-point-contest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7034892/2026/02/09/pistons-hornets-fight-diabate-du
 **How a Decision to Use Whistles as a Prop Cost Eric Adams $4,000**\
 `The former New York mayor paid a Conflicts of Interest Board fine for having City Hall employees assist in attacking former Gov. Andrew Cuomo over sexual harassment allegations.`\
 https://nytimes.com/2026/02/09/nyregion/eric-adams-whistles.html
-
-**U.S. Archbishop Will Be Beatified, One Step Away From Sainthood**\
-`The move involving Archbishop Fulton J. Sheen, who hosted a popular midcentury radio and TV show and died in 1979, ends a six-year delay.`\
-https://nytimes.com/2026/02/09/us/archbishop-sheen-beatification-saint.html
 
