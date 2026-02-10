@@ -1,3 +1,15 @@
+**Mikaela Shiffrin's latest Olympic head-scratcher leaves her plenty to figure out**\
+`Tuesday was lining up to be the end of Shiffrin's Olympic hex. Instead, it's back to the drawing board before the giant slalom and slalom.`\
+https://nytimes.com/athletic/7036385/2026/02/10/mikaela-shiffrin-winter-olympics-team-combined-slalom/
+
+**Megan Thee Stallion to join Winter Olympics coverage, ready to 'merge two audiences'**\
+`Grammy Award-winning rapper Megan Thee Stallion NBC Milan Cortina Creator Collective and YouTube for Winter Olympics coverage.`\
+https://nytimes.com/athletic/7035074/2026/02/10/olympics-2026-megan-thee-stallion-hockey-figure-skating/
+
+**Homeland Security Shutdown Nears Amid Stalemate on Immigration Agent Curbs**\
+`Republicans have so far spurned most of Democrats’ demands to rein in federal agents carrying out President Trump’s immigration crackdown, threatening a homeland security funding bill ahead of a Friday deadline.`\
+https://nytimes.com/2026/02/10/us/politics/homeland-security-shutdown-nears-amid-stalemate-on-immigration-agent-curbs.html
+
 **Former Police Chief Said Trump Told Him ‘Everyone’ Knew of Epstein’s Actions**\
 `Michael Reiter, a former Palm Beach police chief, described a 2006 conversation with Donald Trump to the F.B.I. years later, according to a newly released document.`\
 https://nytimes.com/2026/02/10/us/politics/trump-epstein.html

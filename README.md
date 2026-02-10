@@ -1,3 +1,15 @@
+**Games Briefing: It's USA-Canada time**\
+`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7036442/2026/02/10/usa-canada-womens-hockey-olympics-games-briefing/
+
+**Lost Soviet Moon Lander May Have Been Found**\
+`Two research teams have identified possible landing sites for Luna 9, the first human-made object to safely reach the lunar surface. “One of them is wrong,” an expert said.`\
+https://nytimes.com/2026/02/10/science/luna-9-moon-lander-soviet.html
+
+**Charleston Open doubles prize money in move to equalize with men's events of same level**\
+`The $2.5 million compensation pool is a step toward the 2033 target of equal prize money at all 500-level tournaments.`\
+https://nytimes.com/athletic/7036191/2026/02/10/tennis-prize-money-womens-mens-equal-charleston-open/
+
 **Mikaela Shiffrin's latest Olympic head-scratcher leaves her plenty to figure out**\
 `Tuesday was lining up to be the end of Shiffrin's Olympic hex. Instead, it's back to the drawing board before the giant slalom and slalom.`\
 https://nytimes.com/athletic/7036385/2026/02/10/mikaela-shiffrin-winter-olympics-team-combined-slalom/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7036352/2026/02/10/grand-slam-track-2026-bankruptcy
 **The Ties That Bound the ‘Prince of Darkness’ of U.K. Politics to Epstein**\
 `For years Peter Mandelson, a senior British politician, concealed the depth of his friendship with the convicted sex offender Jeffrey Epstein, until new files were released.`\
 https://nytimes.com/2026/02/10/world/europe/ties-peter-mandelson-jeffrey-epstein.html
-
-**Epstein’s Cash and Influence Helped Women Attend Columbia and N.Y.U.**\
-`Federal records show that Jeffrey Epstein used donations and connections as he sought to gain college admission for young women in his orbit.`\
-https://nytimes.com/2026/02/10/nyregion/epstein-columbia-nyu-donations-admission-young-women.html
-
-**Chelsea Women in crisis: A critical departure, player confusion and men's executives overstepping**\
-`The departure of Paul Green as head of women's football is a major moment for the club, who have endured an unusually difficult season`\
-https://nytimes.com/athletic/7034334/2026/02/10/chelsea-women-paul-green-crisis/
-
-**Mariah? Matilda? Italy’s Olympics Anchor Couldn’t Tell the Difference. Now His Reporters Plan to Strike.**\
-`Paolo Petrecca made numerous gaffes while commentating on the Olympics opening ceremonies for Italy’s public broadcaster. Journalists are incensed.`\
-https://nytimes.com/2026/02/10/world/europe/olympics-italy-rai-broadcaster-gaffe-strike.html
 

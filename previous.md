@@ -1,3 +1,15 @@
+**Mikaela Shiffrin's latest Olympic head-scratcher leaves her plenty to figure out**\
+`Tuesday was lining up to be the end of Shiffrin's Olympic hex. Instead, it's back to the drawing board before the giant slalom and slalom.`\
+https://nytimes.com/athletic/7036385/2026/02/10/mikaela-shiffrin-winter-olympics-team-combined-slalom/
+
+**Megan Thee Stallion to join Winter Olympics coverage, ready to 'merge two audiences'**\
+`Grammy Award-winning rapper Megan Thee Stallion NBC Milan Cortina Creator Collective and YouTube for Winter Olympics coverage.`\
+https://nytimes.com/athletic/7035074/2026/02/10/olympics-2026-megan-thee-stallion-hockey-figure-skating/
+
+**Homeland Security Shutdown Nears Amid Stalemate on Immigration Agent Curbs**\
+`Republicans have so far spurned most of Democrats’ demands to rein in federal agents carrying out President Trump’s immigration crackdown, threatening a homeland security funding bill ahead of a Friday deadline.`\
+https://nytimes.com/2026/02/10/us/politics/homeland-security-shutdown-nears-amid-stalemate-on-immigration-agent-curbs.html
+
 **Former Police Chief Said Trump Told Him ‘Everyone’ Knew of Epstein’s Actions**\
 `Michael Reiter, a former Palm Beach police chief, described a 2006 conversation with Donald Trump to the F.B.I. years later, according to a newly released document.`\
 https://nytimes.com/2026/02/10/us/politics/trump-epstein.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7034334/2026/02/10/chelsea-women-paul-green-crisis/
 **Mariah? Matilda? Italy’s Olympics Anchor Couldn’t Tell the Difference. Now His Reporters Plan to Strike.**\
 `Paolo Petrecca made numerous gaffes while commentating on the Olympics opening ceremonies for Italy’s public broadcaster. Journalists are incensed.`\
 https://nytimes.com/2026/02/10/world/europe/olympics-italy-rai-broadcaster-gaffe-strike.html
-
-**Big Ten athletes commission urges NCAA to continue push to eliminate college prop bets**\
-`The Big Ten commission includes 22 athletes representing all 18 Big Ten universities.`\
-https://nytimes.com/athletic/7036310/2026/02/10/ncaa-prop-bets-big-ten-charlie-baker/
-
-**What Rhymes With Heretic? A Galileo Musical Is Broadway Bound.**\
-`The musical, called “Galileo,” will star Raúl Esparza, and is scheduled to open in December at the Shubert Theater.`\
-https://nytimes.com/2026/02/10/theater/galileo-broadway-raul-esparza.html
-
-**Why are Olympic figure skaters having issues with their music selections?**\
-`The International Skating Union eased its rules in 2014, permitting skaters to perform to contemporary songs with lyrics.`\
-https://nytimes.com/athletic/7034724/2026/02/10/olympics-figure-skating-music-copyright/
 
