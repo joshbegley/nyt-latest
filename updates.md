@@ -1,3 +1,11 @@
+**Gabbard’s 2020 Election Claims Put Her Back in Favor With Trump**\
+`Tulsi Gabbard has focused on attacking the so-called deep state after an uneven first year as the director of national intelligence.`\
+https://nytimes.com/2026/02/09/us/politics/tulsi-gabbard-2020-election.html
+
+**Israeli President’s Visit to Australia Sets Off Protests**\
+`A visit by the Israeli president, Isaac Herzog, to Australia on Monday to commemorate the victims of the Bondi Beach attack set off protests in Sydney.`\
+https://nytimes.com/video/world/australia/100000010701019/israel-president-australia-protests.html
+
 **How Laura Loomer and a Sheriff Upended G.O.P. Plans for the N.Y. Ticket**\
 `Bruce Blakeman, the likely Republican candidate for governor of New York, had decided on his running mate, but things quickly got complicated.`\
 https://nytimes.com/2026/02/09/nyregion/bruce-blakeman-new-york-governor.html
