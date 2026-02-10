@@ -1,5 +1,13 @@
+**Six former Pitt players sue, alleging abusive coaching methods**\
+`Lawsuits also allege Title IX violations and a failure by the school to act after abuses were reported to multiple university officials.`\
+https://nytimes.com/athletic/7036473/2026/02/10/pitt-tory-verdi-lawsuit-womens-basketball-abuse/
+
+**Blue Jays' Anthony Santander to miss 5 to 6 months; Shane Bieber to open on IL**\
+`Following a seven-game World Series, many players are coming off career-highs in workload and a shortened offseason. `\
+https://nytimes.com/athletic/7037341/2026/02/10/blue-jays-injuries-santander-bieber/
+
 **Pentagon to Send 200 Troops to Nigeria**\
-`The U.S. forces will help train the Nigerians to fight militants, but will not be involved in combat operations.`\
+`The troops will help train Nigerians to fight militants, but will not be involved in combat. U.S. forces have been assisting local soldiers with identifying potential terrorist targets.`\
 https://nytimes.com/2026/02/10/us/politics/us-troops-nigeria.html
 
 **Tigers' Reese Olson to miss 2026 season after right shoulder surgery**\
@@ -22,15 +30,7 @@ https://nytimes.com/video/podcasts/100000010704052/song-of-the-week-is-this-zach
 `Spurs were beaten 2-1 by Newcastle on Tuesday and are now only five points above the relegation zone.`\
 https://nytimes.com/athletic/7037355/2026/02/10/thomas-frank-tottenham-future-newcastle/
 
-**Tiger Woods' son Charlie Woods commits to Florida State golf program**\
+**Tiger Woods' son, Charlie, commits to Florida State golf program**\
 `Woods, a high school junior, is the No. 9 player in his class and No. 21 in the American Junior Golf Association’s rankings.`\
 https://nytimes.com/athletic/7037249/2026/02/10/tiger-woods-charlie-woods-florida-state-golf/
-
-**NBA's tanking topic isn't easy for Steve Kerr: 'It's not good for the fans'**\
-`As the NBA assesses steps to combat tanking, some organizations keep showing on a nightly basis their most important goal isn't winning.`\
-https://nytimes.com/athletic/7037366/2026/02/10/steve-kerr-comments-tanking-nba/
-
-**Britney Spears Sells Her Song Catalog**\
-`The pop hitmaker, who hasn’t released a new album in 10 years, sold the rights to her music to Primary Wave.`\
-https://nytimes.com/2026/02/10/arts/music/britney-spears-catalog-deal.html
 

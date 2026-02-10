@@ -1,3 +1,19 @@
+**Six former Pitt players sue, alleging abusive coaching methods**\
+`Lawsuits also allege Title IX violations and a failure by the school to act after abuses were reported to multiple university officials.`\
+https://nytimes.com/athletic/7036473/2026/02/10/pitt-tory-verdi-lawsuit-womens-basketball-abuse/
+
+**Blue Jays' Anthony Santander to miss 5 to 6 months; Shane Bieber to open on IL**\
+`Following a seven-game World Series, many players are coming off career-highs in workload and a shortened offseason. `\
+https://nytimes.com/athletic/7037341/2026/02/10/blue-jays-injuries-santander-bieber/
+
+**Pentagon to Send 200 Troops to Nigeria**\
+`The troops will help train Nigerians to fight militants, but will not be involved in combat. U.S. forces have been assisting local soldiers with identifying potential terrorist targets.`\
+https://nytimes.com/2026/02/10/us/politics/us-troops-nigeria.html
+
+**Tiger Woods' son, Charlie, commits to Florida State golf program**\
+`Woods, a high school junior, is the No. 9 player in his class and No. 21 in the American Junior Golf Association’s rankings.`\
+https://nytimes.com/athletic/7037249/2026/02/10/tiger-woods-charlie-woods-florida-state-golf/
+
 **Pentagon to Send 200 Troops to Nigeria**\
 `The U.S. forces will help train the Nigerians to fight militants, but will not be involved in combat operations.`\
 https://nytimes.com/2026/02/10/us/politics/us-troops-nigeria.html
