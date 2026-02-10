@@ -3,7 +3,7 @@
 https://nytimes.com/2026/02/09/climate/endangerment-finding.html
 
 **Injured Damian Lillard on returning to 3-point contest: 'All-Star Weekend needs stars'**\
-`Late last week, Levine called Lillard back. The 3-point field had a competitor drop out, and Levine wanted to revisit their earlier “joke.”`\
+`Less than 24 hours after getting clearance from Cronin and assurance from Lillard, the NBA announced Sunday Lillard would be in the field. `\
 https://nytimes.com/athletic/7034404/2026/02/09/damian-lillard-reaction-all-star-3-point-contest/
 
 **2026 Olympics, Day 3 recap: Lindsey Vonn speaks, and U.S. chases curling gold**\

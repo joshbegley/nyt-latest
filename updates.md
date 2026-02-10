@@ -1,3 +1,7 @@
+**Injured Damian Lillard on returning to 3-point contest: 'All-Star Weekend needs stars'**\
+`Less than 24 hours after getting clearance from Cronin and assurance from Lillard, the NBA announced Sunday Lillard would be in the field. `\
+https://nytimes.com/athletic/7034404/2026/02/09/damian-lillard-reaction-all-star-3-point-contest/
+
 **Trump Allies Near ‘Total Victory’ in Wiping Out U.S. Climate Regulation**\
 `A small group of conservative activists has worked for 16 years to stop all government efforts to fight climate change. Their efforts seem poised to pay off.`\
 https://nytimes.com/2026/02/09/climate/endangerment-finding.html
