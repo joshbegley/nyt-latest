@@ -1,3 +1,11 @@
+**How a Decision to Use Whistles as a Prop Cost Eric Adams $4,000**\
+`The former New York mayor paid a Conflicts of Interest Board fine for having City Hall employees assist in attacking former Gov. Andrew Cuomo over sexual harassment allegations.`\
+https://nytimes.com/2026/02/09/nyregion/eric-adams-whistles.html
+
+**A Gray Wolf’s Visit to Los Angeles County Is a First in Nearly a Century**\
+`The wolf, known as BEY03F, roamed more than 500 miles from Northern California, signaling that the species continues to rebound after being nearly wiped out in the 1920s.`\
+https://nytimes.com/2026/02/09/us/gray-wolf-los-angeles-california.html
+
 **U.S. Archbishop Will Be Beatified, One Step Away From Sainthood**\
 `The move involving Archbishop Fulton J. Sheen, who hosted a popular midcentury radio and TV show and died in 1979, ends a six-year delay.`\
 https://nytimes.com/2026/02/09/us/archbishop-sheen-beatification-saint.html
