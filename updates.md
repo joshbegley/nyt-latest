@@ -1,3 +1,11 @@
+**Tigers' Reese Olson to miss 2026 season after right shoulder surgery**\
+`Olson’s injury is the downside to an otherwise exciting flurry of moves before the Tigers officially report to spring training. `\
+https://nytimes.com/athletic/7037473/2026/02/10/detroit-tigers-reese-olson-labral-surgery/
+
+**Immigration Officials Refuse to Discuss Minnesota Shootings**\
+`During a House congressional hearing, top immigration officials repeatedly declined to answer questions about the fatal shootings of two U.S. citizens in Minnesota by federal agents.`\
+https://nytimes.com/video/us/100000010703485/dhs-dc-ice-pretti-minnesota.html
+
 **Song of the Week: Is This Zach Bryan’s Redemption Era?**\
 `On this edition of the “Popcast” Song of the Week, our critic Jon Caramanica dives into Zach Bryan’s “Appetite,” a redemptive and contemplative track about “the horrors that you visited upon yourself.”`\
 https://nytimes.com/video/podcasts/100000010704052/song-of-the-week-is-this-zach-bryans-redemption-era.html

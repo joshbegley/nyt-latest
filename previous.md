@@ -1,3 +1,11 @@
+**Tigers' Reese Olson to miss 2026 season after right shoulder surgery**\
+`Olson’s injury is the downside to an otherwise exciting flurry of moves before the Tigers officially report to spring training. `\
+https://nytimes.com/athletic/7037473/2026/02/10/detroit-tigers-reese-olson-labral-surgery/
+
+**Immigration Officials Refuse to Discuss Minnesota Shootings**\
+`During a House congressional hearing, top immigration officials repeatedly declined to answer questions about the fatal shootings of two U.S. citizens in Minnesota by federal agents.`\
+https://nytimes.com/video/us/100000010703485/dhs-dc-ice-pretti-minnesota.html
+
 **F.D.A. Refuses to Review Moderna Flu Vaccine**\
 `The vaccine maker said the U.S. regulator rejected its request to seek approval for a new product using mRNA technology, which Health Secretary Robert F. Kennedy Jr. has sharply criticized.`\
 https://nytimes.com/2026/02/10/health/fda-moderna-mrna-flu-vaccine.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/02/10/arts/music/britney-spears-catalog-deal.html
 **Surveillance Video Shows Masked Person at Guthrie’s Doorstep**\
 `Newly released photos and videos show a masked suspect at Nancy Guthrie’s doorstep on the night she was abducted.`\
 https://nytimes.com/video/us/100000010703950/nancy-guthrie-video-fbi-suspect.html
-
-**Ford Says Electric Vehicle Losses Will Continue for Three More Years**\
-`Ford Motor reported a big loss for 2025 because of its troubled electric vehicle division, which it has significantly scaled back.`\
-https://nytimes.com/2026/02/10/business/ford-earnings-electric-vehicles.html
-
-**The Left Needs a Sharper A.I. Politics**\
-`The future may put progressive theories of work and human nature to the test.`\
-https://nytimes.com/2026/02/10/opinion/ai-politics-left-progressive.html
 
