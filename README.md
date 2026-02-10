@@ -1,3 +1,7 @@
+**Epstein Files Reveal Efforts to Build Ties With Officials in Russia**\
+`New documents detail Jeffrey Epstein’s efforts to foster strategic, sometimes reciprocal relationships with Russian officials.`\
+https://nytimes.com/2026/02/10/business/epstein-files-russia-putin.html
+
 **Gabor Boritt, Refugee Who Became Expert on Lincoln, Dies at 86**\
 `He survived the Holocaust and Communist rule in Hungary, arrived penniless in New York and made himself into a pre-eminent Civil War scholar.`\
 https://nytimes.com/2026/02/10/books/gabor-s-boritt-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6982882/2026/02/10/justin-verlander-mlb-free-agency
 **Mamdani Hires Groundbreaking Computer Scientist as Chief Tech Officer**\
 `Lisa Gelobter, whose worked helped shape the modern web, was also on the launch team at Hulu.`\
 https://nytimes.com/2026/02/10/nyregion/mamdani-lisa-gelobter-gif.html
-
-**Wild at the Olympics: A punchable face, hanging with Snoop Dogg and a chance at a pile of medals**\
-`Quinn Hughes on 10 Wild players being in the Olympics: "It says a lot about our team and maybe why we've been so good."`\
-https://nytimes.com/athletic/7036458/2026/02/10/wild-olympics-punchable-snoop-dogg/
 
