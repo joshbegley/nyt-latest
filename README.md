@@ -1,3 +1,11 @@
+**Sweden beats U.S. on final stone to win Olympic mixed doubles curling gold**\
+`Cory Thiesse and Korey Dropkin took the silver after Tuesday's loss to Sweden's Isabella and Rasmus Wranå.`\
+https://nytimes.com/athletic/7036230/2026/02/10/winter-olympics-mixed-doubles-curling-gold-sweden-usa/
+
+**Braves to open season with starter Spencer Schwellenbach on 60-day IL**\
+`The Braves' 2025 campaign was marred by starting pitcher injuries. They'll open 2026 with at least one hole in the rotation.`\
+https://nytimes.com/athletic/7036462/2026/02/10/braves-spencer-schwellenbach-elbow-inflammation-update/
+
 **EFL clubs to vote on expanding Championship play-offs**\
 `The 72 clubs in the EFL will vote on increasing the number of spots from four to six at a meeting in March.`\
 https://nytimes.com/athletic/7036443/2026/02/10/championship-playoffs-vote-efl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7036469/2026/02/10/brandon-ingram-all-star-raptors/
 **Until Saturday: North Dakota State, finally FBS**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/7036568/2026/02/10/north-dakota-state-fbs-until-saturday/
-
-**Masked Person Came to Guthrie’s Doorstep Before Abduction, Images Show**\
-`The Pima County sheriff and F.B.I. released several images of the person, who wore a ski mask and appeared to be carrying a holstered pistol.`\
-https://nytimes.com/2026/02/10/us/nancy-guthrie-masked-person-doorstep-images.html
-
-**Top Labor Regulator Dismisses Charges Against SpaceX**\
-`The National Labor Relations Board, having accused the company of unfair retaliation in 2024, now says it has no jurisdiction over Elon Musk’s space company.`\
-https://nytimes.com/2026/02/10/business/spacex-nlrb-labor-elon-musk.html
 
