@@ -1,3 +1,7 @@
+**Pentagon to Send 200 Troops to Nigeria**\
+`The U.S. forces will help train the Nigerians to fight militants, but will not be involved in combat operations.`\
+https://nytimes.com/2026/02/10/us/politics/us-troops-nigeria.html
+
 **Tigers' Reese Olson to miss 2026 season after right shoulder surgery**\
 `Olson’s injury is the downside to an otherwise exciting flurry of moves before the Tigers officially report to spring training. `\
 https://nytimes.com/athletic/7037473/2026/02/10/detroit-tigers-reese-olson-labral-surgery/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7037366/2026/02/10/steve-kerr-comments-tanking-nba/
 **Britney Spears Sells Her Song Catalog**\
 `The pop hitmaker, who hasn’t released a new album in 10 years, sold the rights to her music to Primary Wave.`\
 https://nytimes.com/2026/02/10/arts/music/britney-spears-catalog-deal.html
-
-**Surveillance Video Shows Masked Person at Guthrie’s Doorstep**\
-`Newly released photos and videos show a masked suspect at Nancy Guthrie’s doorstep on the night she was abducted.`\
-https://nytimes.com/video/us/100000010703950/nancy-guthrie-video-fbi-suspect.html
 

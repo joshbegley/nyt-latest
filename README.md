@@ -1,5 +1,9 @@
+**Blue Jays' Anthony Santander to miss 5 to 6 months; Shane Bieber to open on IL**\
+`Following a seven-game World Series, many players are coming off career-highs in workload and a shortened offseason. `\
+https://nytimes.com/athletic/7037341/2026/02/10/blue-jays-injuries-santander-bieber/
+
 **Pentagon to Send 200 Troops to Nigeria**\
-`The U.S. forces will help train the Nigerians to fight militants, but will not be involved in combat operations.`\
+`The troops will help train Nigerians to fight militants, but will not be involved in combat. U.S. forces have been assisting local soldiers with identifying potential terrorist targets.`\
 https://nytimes.com/2026/02/10/us/politics/us-troops-nigeria.html
 
 **Tigers' Reese Olson to miss 2026 season after right shoulder surgery**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7037249/2026/02/10/tiger-woods-charlie-woods-florid
 **NBA's tanking topic isn't easy for Steve Kerr: 'It's not good for the fans'**\
 `As the NBA assesses steps to combat tanking, some organizations keep showing on a nightly basis their most important goal isn't winning.`\
 https://nytimes.com/athletic/7037366/2026/02/10/steve-kerr-comments-tanking-nba/
-
-**Britney Spears Sells Her Song Catalog**\
-`The pop hitmaker, who hasn’t released a new album in 10 years, sold the rights to her music to Primary Wave.`\
-https://nytimes.com/2026/02/10/arts/music/britney-spears-catalog-deal.html
 

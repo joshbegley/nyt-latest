@@ -1,3 +1,7 @@
+**Pentagon to Send 200 Troops to Nigeria**\
+`The U.S. forces will help train the Nigerians to fight militants, but will not be involved in combat operations.`\
+https://nytimes.com/2026/02/10/us/politics/us-troops-nigeria.html
+
 **Tigers' Reese Olson to miss 2026 season after right shoulder surgery**\
 `Olson’s injury is the downside to an otherwise exciting flurry of moves before the Tigers officially report to spring training. `\
 https://nytimes.com/athletic/7037473/2026/02/10/detroit-tigers-reese-olson-labral-surgery/
