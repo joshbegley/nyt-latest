@@ -1,3 +1,11 @@
+**Sex, Love and Real Estate**\
+`How the questions of love, sex, divorce and marriage define our real estate and design lives.`\
+https://nytimes.com/spotlight/sex-love-and-real-estate
+
+**Immigration Judge Says Trump Administration Cannot Deport Tufts Student**\
+`The student, Rumeysa Ozturk, who is from Turkey, was detained by immigration agents last year after she co-wrote a pro-Palestinian opinion article for her student newspaper.`\
+https://nytimes.com/2026/02/10/us/immigration-judge-tufts-student-rumeysa-ozturk.html
+
 **What to know about every pitcher in Dodgers spring camp**\
 `From Cy Young candidates to non-roster invitees, the defending champs have no shortage of compelling options. `\
 https://nytimes.com/athletic/7035092/2026/02/10/dodgers-pitchers-spring-training-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/10/style/street-style-look-voluminous-curly-hair-bag
 **Juraj Slafkovský, Slovakia’s most adored athlete, is embracing pressure at the Olympics**\
 `While on a vastly different scale, Slafkovský is like the Sidney Crosby of Slovakia, and this could be his breakout moment.`\
 https://nytimes.com/athletic/7035671/2026/02/10/olympics-hockey-juraj-slafkovsky-slovakia/
-
-**Three burning questions facing the 2026 Twins as spring training opens**\
-`Besides the bullpen, the Twins will spend spring answering questions about Brooks Lee at short, Bailey Ober's progress and trade options.`\
-https://nytimes.com/athletic/7035295/2026/02/10/minnesota-twins-spring-training-questions/
-
-**Sweden sweep cross-country sprint as Jessie Diggins knocked out early**\
-`Linn Svahn won a dominant gold ahead of team-mates Jonna Sundling and Maja Dahlqvist.`\
-https://nytimes.com/athletic/7035689/2026/02/10/sweden-wins-cross-country-sprint-result/
 

@@ -1,3 +1,11 @@
+**Premier League sack race: Thomas Frank and Eddie Howe among favourites ahead of showdown**\
+`The Premier League season is heading towards a crescendo. But will all managers make it to the finish line?`\
+https://nytimes.com/athletic/7035530/2026/02/10/premier-league-sack-race-thomas-frank-and-eddie-howe-under-pressure-ahead-of-key-match/
+
+**Palace's Mateta will not have knee surgery - Glasner**\
+`Mateta has been managing the problem since sustaining it in November.`\
+https://nytimes.com/athletic/7035856/2026/02/10/mateta-knee-surgery-crystal-palace-glasner/
+
 **Sex, Love and Real Estate**\
 `How the questions of love, sex, divorce and marriage define our real estate and design lives.`\
 https://nytimes.com/spotlight/sex-love-and-real-estate
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/10/style/marc-jacobs-new-york-fashion-week.html
 **Return of the bundle? ESPN's new baseball play goes local**\
 `ESPN is now selling the MLB.tv package, and hopes to sell local broadcasts for a slew of MLB teams next season. `\
 https://nytimes.com/athletic/7035166/2026/02/10/espn-mlb-tv-bundle-broadcast-rights/
-
-**Vibrant Curls and Clothes With Volume**\
-`Striking hair drew attention to the baggy layers worn by a student whose style inspirations include Helena Bonham Carter.`\
-https://nytimes.com/2026/02/10/style/street-style-look-voluminous-curly-hair-baggy-clothes.html
-
-**Juraj Slafkovský, Slovakia’s most adored athlete, is embracing pressure at the Olympics**\
-`While on a vastly different scale, Slafkovský is like the Sidney Crosby of Slovakia, and this could be his breakout moment.`\
-https://nytimes.com/athletic/7035671/2026/02/10/olympics-hockey-juraj-slafkovsky-slovakia/
 

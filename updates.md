@@ -1,3 +1,11 @@
+**Sex, Love and Real Estate**\
+`How the questions of love, sex, divorce and marriage define our real estate and design lives.`\
+https://nytimes.com/spotlight/sex-love-and-real-estate
+
+**Immigration Judge Says Trump Administration Cannot Deport Tufts Student**\
+`The student, Rumeysa Ozturk, who is from Turkey, was detained by immigration agents last year after she co-wrote a pro-Palestinian opinion article for her student newspaper.`\
+https://nytimes.com/2026/02/10/us/immigration-judge-tufts-student-rumeysa-ozturk.html
+
 **What to know about every pitcher in Dodgers spring camp**\
 `From Cy Young candidates to non-roster invitees, the defending champs have no shortage of compelling options. `\
 https://nytimes.com/athletic/7035092/2026/02/10/dodgers-pitchers-spring-training-analysis/
