@@ -1,3 +1,7 @@
+**Film Club: ‘Dear ICE: Letters From Students Living in Fear’**\
+`What would you like to say to ICE agents, and to the children who are detained in immigration detention centers?`\
+https://nytimes.com/2026/02/10/learning/film-club-dear-ice-letters-from-students-living-in-fear.html
+
 **Changing of the guards: Bulls' new-look backcourt tries to make an impression**\
 `Chicago added seven new players at the trade deadline, most of them guards. Can Anfernee Simons, Collin Sexton and others find a home?`\
 https://nytimes.com/athletic/7035459/2026/02/10/nba-bulls-guards-collin-sexton-anfernee-simons/
