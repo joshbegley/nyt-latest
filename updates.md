@@ -1,3 +1,19 @@
+**Boston announces World Cup Fan Fest plans as entertainment license dispute persists**\
+`The FIFA World Cup host committee for Boston has announced plans to host a Fan Fest at City Hall Plaza for "up to 16 days".`\
+https://nytimes.com/athletic/7036819/2026/02/10/boston-world-cup-fan-fests/
+
+**Don Lemon Hires Federal Prosecutor Who Quit Over Immigration Crackdown**\
+`Facing charges over his role at a church protest, Mr. Lemon, a journalist, retained a veteran litigator who recently resigned from the U.S. attorney’s office in Minnesota.`\
+https://nytimes.com/2026/02/10/us/joseph-thompson-don-lemon-minneapolis-protest.html
+
+**Bridge Owner Lobbied Administration Before Trump Blasted Competing Span to Canada**\
+`A Detroit billionaire met with Howard Lutnick, the commerce secretary, hours before President Trump said he would block the opening of a new bridge connecting Detroit to Canada, officials said.`\
+https://nytimes.com/2026/02/10/world/canada/bridge-owner-trump-lutnick.html
+
+**The Briefing: Chelsea 2 Leeds 2 - Wasteful hosts made to pay by summon stunning two-goal comeback**\
+`Liam Rosenior's side appeared to be cruising after establishing a two-goal advantage only to be hauled back by a stubborn and defiant Leeds`\
+https://nytimes.com/athletic/7030956/2026/02/10/chelsea-leeds-bogle-palmer-acheampong-briefing/
+
 **Jimmy Lai and the Future of Freedom**\
 `The West has abandoned dissidents as a public cause.`\
 https://nytimes.com/2026/02/10/opinion/jimmy-lai-hong-kong-freedom.html
