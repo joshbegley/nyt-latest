@@ -1,3 +1,15 @@
+**U.S. Archbishop Will Be Beatified, One Step Away From Sainthood**\
+`The move involving Archbishop Fulton J. Sheen, who hosted a popular midcentury radio and TV show and died in 1979, ends a six-year delay.`\
+https://nytimes.com/2026/02/09/us/archbishop-sheen-beatification-saint.html
+
+**49ers DL Keion White shot in ankle, expected to be OK**\
+`According to police, there was an altercation between two groups, but White was not believed to be involved in the altercation.`\
+https://nytimes.com/athletic/7034778/2026/02/09/keion-white-shot-ankle-49ers-dl-super-bowl/
+
+**Red Sox takeaways: What Caleb Durbin acquisition means for offense, infield configuration**\
+`After Boston added Durbin in a trade with the Brewers, manager Alex Cora said the team seems "more complete" than last season's club.`\
+https://nytimes.com/athletic/7034341/2026/02/09/caleb-durbin-trade-red-sox-roster/
+
 **Judge Dismisses Case Over Georgia Ballots That Were Seized by Justice Dept.**\
 `A state judge made clear his frustration with the federal seizure of ballots from the 2020 presidential election in Fulton County, Ga.`\
 https://nytimes.com/2026/02/09/us/georgia-2020-election-case-ballots.html
