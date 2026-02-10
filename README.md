@@ -1,3 +1,7 @@
+**What to Know About Canada’s New Bridge to Detroit That Trump Hates**\
+`President Trump’s threat to block the opening of the new crossing is the latest in a long string of challenges for the project.`\
+https://nytimes.com/2026/02/10/world/canada/trump-carney-gordie-howe-bridge-detroit.html
+
 **Hudson Talbott Dies at 76; Wrote and Illustrated Wide-Ranging Children’s Books**\
 `His book about time-traveling dinosaurs became a movie. He also adapted the Broadway show “Into the Woods” for young readers and wrote about his struggles with dyslexia.`\
 https://nytimes.com/2026/02/10/books/hudson-talbott-dead.html
@@ -29,12 +33,4 @@ https://nytimes.com/2026/02/10/arts/music/amplifier-newsletter-beatles-covers-bl
 **Hamas Would Keep Some Arms Initially in Draft Gaza Plan, Officials Say**\
 `Israel is unlikely to withdraw its troops from the enclave before Hamas and other militant groups lay down their arms.`\
 https://nytimes.com/2026/02/10/world/middleeast/hamas-weapons-draft-plan.html
-
-**Sweden beats U.S. on final stone to win Olympic mixed doubles curling gold**\
-`Cory Thiesse and Korey Dropkin took the silver after Tuesday's loss to Sweden's Isabella and Rasmus Wranå.`\
-https://nytimes.com/athletic/7036230/2026/02/10/winter-olympics-mixed-doubles-curling-gold-sweden-usa/
-
-**Braves to open season with starter Spencer Schwellenbach on 60-day IL**\
-`The Braves' 2025 campaign was marred by starting pitcher injuries. They'll open 2026 with at least one hole in the rotation.`\
-https://nytimes.com/athletic/7036462/2026/02/10/braves-spencer-schwellenbach-elbow-inflammation-update/
 

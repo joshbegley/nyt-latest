@@ -1,3 +1,7 @@
+**Hudson Talbott Dies at 76; Wrote and Illustrated Wide-Ranging Children’s Books**\
+`His book about time-traveling dinosaurs became a movie. He also adapted the Broadway show “Into the Woods” for young readers and wrote about his struggles with dyslexia.`\
+https://nytimes.com/2026/02/10/books/hudson-talbott-dead.html
+
 **The E.P.A. Is Barreling Toward a Supreme Court Climate Showdown**\
 `The agency is racing to repeal a scientific finding that requires it to fight global warming. Experts say the goal is to get the matter before the justices while President Trump is still in office.`\
 https://nytimes.com/2026/02/10/climate/epa-endangerment-supreme-court.html

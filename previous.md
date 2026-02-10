@@ -1,3 +1,7 @@
+**Hudson Talbott Dies at 76; Wrote and Illustrated Wide-Ranging Children’s Books**\
+`His book about time-traveling dinosaurs became a movie. He also adapted the Broadway show “Into the Woods” for young readers and wrote about his struggles with dyslexia.`\
+https://nytimes.com/2026/02/10/books/hudson-talbott-dead.html
+
 **The E.P.A. Is Barreling Toward a Supreme Court Climate Showdown**\
 `The agency is racing to repeal a scientific finding that requires it to fight global warming. Experts say the goal is to get the matter before the justices while President Trump is still in office.`\
 https://nytimes.com/2026/02/10/climate/epa-endangerment-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7036230/2026/02/10/winter-olympics-mixed-doubles-cu
 **Braves to open season with starter Spencer Schwellenbach on 60-day IL**\
 `The Braves' 2025 campaign was marred by starting pitcher injuries. They'll open 2026 with at least one hole in the rotation.`\
 https://nytimes.com/athletic/7036462/2026/02/10/braves-spencer-schwellenbach-elbow-inflammation-update/
-
-**EFL clubs to vote on expanding Championship play-offs**\
-`The 72 clubs in the EFL will vote on increasing the number of spots from four to six at a meeting in March.`\
-https://nytimes.com/athletic/7036443/2026/02/10/championship-playoffs-vote-efl/
 
