@@ -1,3 +1,7 @@
+**Olympic Officials Ban Ukrainian’s Helmet Honoring War Dead**\
+`Vladyslav Heraskevych called it a tribute to athletes killed in the war with Russia. The International Olympic Committee said it defied a ban on political speech and allowed a black armband instead.`\
+https://nytimes.com/2026/02/10/world/europe/ukraine-winter-olympics-skeleton-helmet-war.html
+
 **Pride Flag Is Taken Down From Stonewall Monument**\
 `The removal of the flag from the Manhattan monument, the symbolic heart of the gay rights movement, came after a Trump administration directive about flags at national park sites.`\
 https://nytimes.com/2026/02/10/us/pride-flag-stonewall-inn-monument.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7031989/2026/02/10/padres-spring-training-preview-a
 **Drinking Is a ‘Social Lubricant.’ That’s Not Always a Good Thing.**\
 `Explaining why officials dropped limits, Dr. Mehmet Oz said alcohol “brings people together.” But social drinking also can lead to health problems, studies show.`\
 https://nytimes.com/2026/02/10/health/social-drinking-risks-alcohol.html
-
-**Nikola Topić makes G League debut after being treated for testicular cancer**\
-`"We're all just collectively thrilled that he's back playing basketball," Thunder coach Mark Daigneault said.`\
-https://nytimes.com/athletic/7035709/2026/02/10/nba-thunder-nikola-topic-cancer-return/
 
