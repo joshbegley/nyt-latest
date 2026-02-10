@@ -2,11 +2,11 @@
 `The agency is racing to repeal a scientific finding that requires it to fight global warming. Experts say the goal is to get the matter before the justices while President Trump is still in office.`\
 https://nytimes.com/2026/02/10/climate/epa-endangerment-supreme-court.html
 
-**Francisco Lindor dealing with stress reaction in hamate bone, could require surgery**\
+**Mets' Lindor dealing with stress reaction in hamate bone, may need surgery**\
 `Even if Lindor needs surgery, he could still be ready for Opening Day. Plus, Juan Soto will move to left field for the upcoming season.`\
 https://nytimes.com/athletic/7036738/2026/02/10/mets-francisco-lindor-hamate-injury/
 
-**Sweden’s last stone topples U.S. in Curling.**\
+**Sweden’s last stone topples U.S. in curling.**\
 `Sweden’s sibling team took advantage of the hammer to edge the Americans in the final end. `\
 https://nytimes.com/live/2026/02/07/world/olympics-italy-photos/swedens-last-stone-topples-us
 
