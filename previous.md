@@ -1,11 +1,3 @@
-**What’s the Secret to Happiness? These Researchers Have a Theory.**\
-`A new book, “How to Feel Loved,” links our social skills to how content we are.`\
-https://nytimes.com/2026/02/10/well/lyubomirsky-reis-how-to-feel-loved.html
-
-**Canucks trade targets: 9 teams with incentive to buy and future assets to spare**\
-`Let's profile nine teams with surplus draft capital and the incentive to use it.`\
-https://nytimes.com/athletic/7035271/2026/02/10/canucks-trade-targets/
-
 **Olympic Officials Ban Ukrainian’s Helmet Honoring War Dead**\
 `Vladyslav Heraskevych called it a tribute to athletes killed in the war with Russia. The International Olympic Committee said it defied a ban on political speech and allowed a black armband instead.`\
 https://nytimes.com/2026/02/10/world/europe/ukraine-winter-olympics-skeleton-helmet-war.html
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/7035823/2026/02/10/sweden-olympics-hockey-william-n
 **The Bounce: The Hornets and Pistons brawl. Plus, Daryl Morey throws some shade**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7033030/2026/02/10/hornets-pistons-fight-daryl-morey-nba-the-bounce/
+
+**Three burning Padres questions as spring training opens**\
+`Potential sale timing, A.J. Preller's contract and finding spring bargains. `\
+https://nytimes.com/athletic/7031989/2026/02/10/padres-spring-training-preview-a-j-preller/
+
+**Drinking Is a ‘Social Lubricant.’ That’s Not Always a Good Thing.**\
+`Explaining why officials dropped limits, Dr. Mehmet Oz said alcohol “brings people together.” But social drinking also can lead to health problems, studies show.`\
+https://nytimes.com/2026/02/10/health/social-drinking-risks-alcohol.html
 

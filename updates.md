@@ -1,3 +1,11 @@
+**Three burning Padres questions as spring training opens**\
+`Potential sale timing, A.J. Preller's contract and finding spring bargains. `\
+https://nytimes.com/athletic/7031989/2026/02/10/padres-spring-training-preview-a-j-preller/
+
+**Drinking Is a ‘Social Lubricant.’ That’s Not Always a Good Thing.**\
+`Explaining why officials dropped limits, Dr. Mehmet Oz said alcohol “brings people together.” But social drinking also can lead to health problems, studies show.`\
+https://nytimes.com/2026/02/10/health/social-drinking-risks-alcohol.html
+
 **What’s the Secret to Happiness? These Researchers Have a Theory.**\
 `A new book, “How to Feel Loved,” links our social skills to how content we are.`\
 https://nytimes.com/2026/02/10/well/lyubomirsky-reis-how-to-feel-loved.html
