@@ -1,3 +1,7 @@
+**Sweden sweep cross-country sprint as Jessie Diggins knocked out early**\
+`Linn Svahn won a dominant gold ahead of team-mates Jonna Sundling and Maja Dahlqvist.`\
+https://nytimes.com/athletic/7035689/2026/02/10/sweden-wins-cross-country-sprint-result/
+
 **New Epstein Details Rattle Washington, Hollywood and Beyond**\
 `Commerce Secretary Howard Lutnick and Casey Wasserman, the entertainment mogul, are among facing blowback amid the release of files related to Jeffrey Epstein.`\
 https://nytimes.com/2026/02/10/business/dealbook/epstein-lutnick-wasserman-starmer.html
@@ -10,7 +14,7 @@ https://nytimes.com/live/2026/02/10/us/trump-news
 `The Reds are in a good position heading into spring training but still have pressing questions to address if they're going to see success. `\
 https://nytimes.com/athletic/7034694/2026/02/10/three-cincinnati-reds-questions-spring-training-2026/
 
-**Alex Hall wins men’s freeski slopestyle silver, Birk Ruud wins gold for Norway**\
+**Norway’s Birk Ruud ends Alex Hall men’s freeski slopestyle Olympic reign**\
 `Hall went into Milan Cortina as the defending champion but the American could not make it back-to-back Olympic titles. `\
 https://nytimes.com/athletic/7035521/2026/02/10/mens-freeski-slopestyle-2026-winter-olympics-alex-hall/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7035346/2026/02/10/federico-dimarco-inter-milan/
 **An Olympian Quest in Milan: Glimpsing a K-Pop Superstar**\
 `Celebrities abound at the Winter Games. For fans, seeing one up close can be its own grueling competition.`\
 https://nytimes.com/2026/02/10/world/europe/sunghoon-milan-winter-olympics.html
-
-**Is Ohio State ready for a tougher schedule amid roster changes? What we've learned for 2026**\
-`Thoughts on where Ohio State stands after a busy January in the portal and coaching carousel following an early CFP exit.`\
-https://nytimes.com/athletic/7033725/2026/02/10/ohio-state-football-schedule-coaches-roster-2026/
 

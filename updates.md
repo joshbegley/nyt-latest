@@ -1,3 +1,11 @@
+**Sweden sweep cross-country sprint as Jessie Diggins knocked out early**\
+`Linn Svahn won a dominant gold ahead of team-mates Jonna Sundling and Maja Dahlqvist.`\
+https://nytimes.com/athletic/7035689/2026/02/10/sweden-wins-cross-country-sprint-result/
+
+**Norway’s Birk Ruud ends Alex Hall men’s freeski slopestyle Olympic reign**\
+`Hall went into Milan Cortina as the defending champion but the American could not make it back-to-back Olympic titles. `\
+https://nytimes.com/athletic/7035521/2026/02/10/mens-freeski-slopestyle-2026-winter-olympics-alex-hall/
+
 **New Epstein Details Rattle Washington, Hollywood and Beyond**\
 `Commerce Secretary Howard Lutnick and Casey Wasserman, the entertainment mogul, are among facing blowback amid the release of files related to Jeffrey Epstein.`\
 https://nytimes.com/2026/02/10/business/dealbook/epstein-lutnick-wasserman-starmer.html
