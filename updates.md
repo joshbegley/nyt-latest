@@ -1,3 +1,7 @@
+**Canucks trade targets: 9 teams with incentive to buy and future assets to spare**\
+`Let's profile nine teams with surplus draft capital and the incentive to use it.`\
+https://nytimes.com/athletic/7035271/2026/02/10/canucks-trade-targets/
+
 **Olympic Officials Ban Ukrainian’s Helmet Honoring War Dead**\
 `Vladyslav Heraskevych called it a tribute to athletes killed in the war with Russia. The International Olympic Committee said it defied a ban on political speech and allowed a black armband instead.`\
 https://nytimes.com/2026/02/10/world/europe/ukraine-winter-olympics-skeleton-helmet-war.html
