@@ -1,3 +1,7 @@
+**Antarctica’s Best Ocean Explorers Have Whiskers and Love to Lounge**\
+`The environment is changing rapidly around the melting Thwaites Glacier. Seals can collect data in waters that ships could never reach.`\
+https://nytimes.com/2026/02/10/climate/antarctica-seal-tagging.html
+
 **Susan Collins Runs for Re-election, in One of 2026’s Top Senate Fights**\
 `The Maine Republican is one of her party’s most vulnerable senators, and her seat is crucial to Democratic hopes of retaking control of the chamber.`\
 https://nytimes.com/2026/02/10/us/politics/susan-collins-maine-senate-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7035689/2026/02/10/sweden-wins-cross-country-sprint
 **New Epstein Details Rattle Washington, Hollywood and Beyond**\
 `Commerce Secretary Howard Lutnick and Casey Wasserman, the entertainment mogul, are among facing blowback amid the release of files related to Jeffrey Epstein.`\
 https://nytimes.com/2026/02/10/business/dealbook/epstein-lutnick-wasserman-starmer.html
-
-**Trump Administration Live Updates: Top Officials to Face Questions Over Immigration Crackdown**\
-``\
-https://nytimes.com/live/2026/02/10/us/trump-news
 
