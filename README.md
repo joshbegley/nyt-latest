@@ -10,7 +10,7 @@ https://nytimes.com/2026/02/10/arts/music/bad-bunny-super-bowl-show-everyday-peo
 `It was not immediately clear whether any of the buildings in question had faulty heating systems.`\
 https://nytimes.com/2026/02/10/nyregion/nyc-cold-snap-deaths.html
 
-**Barcelona's Araujo says he took football break after experiencing anxiety, depression**\
+**Barcelona's Araujo took football break after experiencing anxiety, depression**\
 `Araujo, 26, was granted indefinite leave by Barcelona at the beginning of December.`\
 https://nytimes.com/athletic/7036887/2026/02/10/ronald-araujo-barcelona-anxiety-depression/
 
