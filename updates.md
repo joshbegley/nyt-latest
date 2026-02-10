@@ -1,3 +1,15 @@
+**Seven People Died at Private Homes in N.Y.C. Cold Snap, Officials Say**\
+`It was not immediately clear whether any of the buildings in question had faulty heating systems.`\
+https://nytimes.com/2026/02/10/nyregion/nyc-cold-snap-deaths.html
+
+**Barcelona's Araujo says he took football break after experiencing anxiety, depression**\
+`Araujo, 26, was granted indefinite leave by Barcelona at the beginning of December.`\
+https://nytimes.com/athletic/7036887/2026/02/10/ronald-araujo-barcelona-anxiety-depression/
+
+**Congress Quietly Used Funding Law to Try to Rein in Trump on Spending**\
+`Dozens of measures sprinkled throughout the recently enacted spending package seek to tie the Trump administration’s hands on funding, an act of quiet bipartisan resistance to efforts to trample congressional power.`\
+https://nytimes.com/2026/02/10/us/politics/congress-white-house-spending-law.html
+
 **Isiah Kiner-Falefa addresses World Series play; says Jays preferred Yankees ALDS match-up**\
 `Kiner-Falefa discussed being thrown out at home plate in Game 7 and why the Jays preferred a Yankees match-up over the Red Sox.`\
 https://nytimes.com/athletic/7036882/2026/02/10/isiah-kiner-falefa-world-series-game-seven-yankees-blue-jays-red-sox/

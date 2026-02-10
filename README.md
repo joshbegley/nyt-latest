@@ -1,3 +1,11 @@
+**Bad Bunny halftime performer goes viral for sharing workout stats as sugarcane plant**\
+`Austin Klapman, a 26-year-old tech worker, walked 1,198 steps while dressed as a sugarcane plant during the Super Bowl halftime show.`\
+https://nytimes.com/athletic/7036752/2026/02/10/bad-bunny-super-bowl-halftime-sugarcane-performer/
+
+**The Everyday People Who Made Bad Bunny’s Halftime Authentic**\
+`A priest from Sacramento. A bar owner from New York. A taquero from Los Angeles. Puerto Rico came alive at the Super Bowl because of hundreds of non-famous performers.`\
+https://nytimes.com/2026/02/10/arts/music/bad-bunny-super-bowl-show-everyday-people.html
+
 **Seven People Died at Private Homes in N.Y.C. Cold Snap, Officials Say**\
 `It was not immediately clear whether any of the buildings in question had faulty heating systems.`\
 https://nytimes.com/2026/02/10/nyregion/nyc-cold-snap-deaths.html
@@ -6,7 +14,7 @@ https://nytimes.com/2026/02/10/nyregion/nyc-cold-snap-deaths.html
 `Araujo, 26, was granted indefinite leave by Barcelona at the beginning of December.`\
 https://nytimes.com/athletic/7036887/2026/02/10/ronald-araujo-barcelona-anxiety-depression/
 
-**Congress Quietly Used Funding Law to Try to Rein in Trump on Spending**\
+**Congress Quietly Used Funding Law to Try to Rein In Trump on Spending**\
 `Dozens of measures sprinkled throughout the recently enacted spending package seek to tie the Trump administration’s hands on funding, an act of quiet bipartisan resistance to efforts to trample congressional power.`\
 https://nytimes.com/2026/02/10/us/politics/congress-white-house-spending-law.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/10/dining/white-lotus-michael-imperioli-restaurants.
 **Slovenia, after extra three-day wait, finally gets its Olympic ski jumping party**\
 `The dominant nation in ski jumping, Slovenia missed out on its first two chances at an Olympic gold medal this week. That changed Tuesday.`\
 https://nytimes.com/athletic/7036948/2026/02/10/winter-olympics-slovenia-ski-jumping-mixed-team-gold/
-
-**Klint Kubiak talks Maxx Crosby, Tom Brady, draft plans as Raiders introduce new coach**\
-`Kubiak on star defensive end Maxx Crosby: "We want him to be a part of our success moving forward."`\
-https://nytimes.com/athletic/7036952/2026/02/10/raiders-klint-kubiak-introduce-head-coach-maxx-crosby-tom-brady/
-
-**How to watch Spurs vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7036979/2026/02/10/spurs-vs-lakers-stream-how-to-watch-feb-10/
 
