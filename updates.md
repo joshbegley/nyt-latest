@@ -1,3 +1,7 @@
+**Confrontation between Jalen Duren, Moussa Diabaté sparks Pistons-Hornets fight**\
+`Stewart, Duren, Diabate and Bridges were all ejected. Suspensions are likely to follow.`\
+https://nytimes.com/athletic/7034892/2026/02/09/pistons-hornets-fight-diabate-duren-bridges-stewart/
+
 **In Terse Ruling, Judge Shows Frustration Over Federal Seizure of Georgia Ballots**\
 `A state judge dismissed a case after the Justice Department’s seizure of ballots from the 2020 presidential election in Fulton County, which has raised fears that they could be manipulated.`\
 https://nytimes.com/2026/02/09/us/georgia-2020-election-case-ballots.html
