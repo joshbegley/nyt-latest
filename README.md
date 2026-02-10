@@ -1,3 +1,11 @@
+**Susan Collins Runs for Re-election, in One of 2026’s Top Senate Fights**\
+`The Maine Republican is one of her party’s most vulnerable senators, and her seat is crucial to Democratic hopes of retaking control of the chamber.`\
+https://nytimes.com/2026/02/10/us/politics/susan-collins-maine-senate-2026.html
+
+**The Qatar Open is not Coco Gauff's favorite tournament. This loss was different**\
+`Gauff's 6-4, 6-2 loss to Elisabetta Cocciaretto showed why the development of one shot could define her coming season.`\
+https://nytimes.com/athletic/7035692/2026/02/10/tennis-coco-gauff-forehand-qatar-open-cocciaretto-analysis/
+
 **A Requiem for Marc Jacobs (and the 1990s)**\
 `The designer revisits his heyday — and makes clothes you can wear.`\
 https://nytimes.com/2026/02/10/style/marc-jacobs-new-york-fashion-week.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/10/business/dealbook/epstein-lutnick-wasserman-starm
 **Trump Administration Live Updates: Top Officials to Face Questions Over Immigration Crackdown**\
 ``\
 https://nytimes.com/live/2026/02/10/us/trump-news
-
-**Three burning questions for the Reds heading into spring training**\
-`The Reds are in a good position heading into spring training but still have pressing questions to address if they're going to see success. `\
-https://nytimes.com/athletic/7034694/2026/02/10/three-cincinnati-reds-questions-spring-training-2026/
-
-**Norway’s Birk Ruud ends Alex Hall men’s freeski slopestyle Olympic reign**\
-`Hall went into Milan Cortina as the defending champion but the American could not make it back-to-back Olympic titles. `\
-https://nytimes.com/athletic/7035521/2026/02/10/mens-freeski-slopestyle-2026-winter-olympics-alex-hall/
 
