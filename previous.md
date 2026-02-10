@@ -1,3 +1,7 @@
+**Former Police Chief Said Trump Told Him ‘Everyone’ Knew of Epstein’s Actions**\
+`Michael Reiter, a former Palm Beach police chief, described a 2006 conversation with Donald Trump to the F.B.I. years later, according to a newly released document.`\
+https://nytimes.com/2026/02/10/us/politics/trump-epstein.html
+
 **Lindsey Vonn’s complex tibia fracture at the Olympics: What to know**\
 `A tibia fracture is considered “complex” when the bone breaks into several pieces, damaging the soft tissues surrounding the shin.`\
 https://nytimes.com/athletic/7036231/2026/02/10/lindsey-vonn-complex-tibia-fracture-injury/
@@ -18,7 +22,7 @@ https://nytimes.com/2026/02/10/nyregion/epstein-columbia-nyu-donations-admission
 `The departure of Paul Green as head of women's football is a major moment for the club, who have endured an unusually difficult season`\
 https://nytimes.com/athletic/7034334/2026/02/10/chelsea-women-paul-green-crisis/
 
-**Mariah? Matilda? Italy’s Olympics Anchor Couldn’t Tell the Difference. Now His Reporters Plan To Strike.**\
+**Mariah? Matilda? Italy’s Olympics Anchor Couldn’t Tell the Difference. Now His Reporters Plan to Strike.**\
 `Paolo Petrecca made numerous gaffes while commentating on the Olympics opening ceremonies for Italy’s public broadcaster. Journalists are incensed.`\
 https://nytimes.com/2026/02/10/world/europe/olympics-italy-rai-broadcaster-gaffe-strike.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/10/theater/galileo-broadway-raul-esparza.html
 **Why are Olympic figure skaters having issues with their music selections?**\
 `The International Skating Union eased its rules in 2014, permitting skaters to perform to contemporary songs with lyrics.`\
 https://nytimes.com/athletic/7034724/2026/02/10/olympics-figure-skating-music-copyright/
-
-**Rename Penn Station and Dulles Airport After Trump?**\
-`Should two major transportation hubs be renamed for the president? Also: When children watch TV; a hope for long life.`\
-https://nytimes.com/2026/02/10/opinion/penn-station-dulles-trump.html
 

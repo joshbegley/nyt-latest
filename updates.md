@@ -1,3 +1,11 @@
+**Former Police Chief Said Trump Told Him ‘Everyone’ Knew of Epstein’s Actions**\
+`Michael Reiter, a former Palm Beach police chief, described a 2006 conversation with Donald Trump to the F.B.I. years later, according to a newly released document.`\
+https://nytimes.com/2026/02/10/us/politics/trump-epstein.html
+
+**Mariah? Matilda? Italy’s Olympics Anchor Couldn’t Tell the Difference. Now His Reporters Plan to Strike.**\
+`Paolo Petrecca made numerous gaffes while commentating on the Olympics opening ceremonies for Italy’s public broadcaster. Journalists are incensed.`\
+https://nytimes.com/2026/02/10/world/europe/olympics-italy-rai-broadcaster-gaffe-strike.html
+
 **Lindsey Vonn’s complex tibia fracture at the Olympics: What to know**\
 `A tibia fracture is considered “complex” when the bone breaks into several pieces, damaging the soft tissues surrounding the shin.`\
 https://nytimes.com/athletic/7036231/2026/02/10/lindsey-vonn-complex-tibia-fracture-injury/
