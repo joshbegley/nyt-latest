@@ -1,5 +1,5 @@
-**Ghislaine Maxwell Refuses to Answer Congress’s Questions**\
-`Ghislaine Maxwell, longtime associate of Jeffrey Epstein, the convicted sex offender, refused to answer questions during a virtual deposition in front of the House Oversight Committee.`\
+**Ghislaine Maxwell Refuses to Answer Questions From Congress**\
+`Ghislaine Maxwell, longtime associate of Jeffrey Epstein, the convicted sex offender, declined to answer questions during a virtual deposition in front of the House Oversight Committee.`\
 https://nytimes.com/video/us/100000010701770/ghislaine-maxwell-jeffrey-epstein-house-oversight.html
 
 **Spelling Bee Forum**\
