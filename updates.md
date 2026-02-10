@@ -1,3 +1,7 @@
+**Quote of the Day: The Cradle of Pasta Is Heaven for Olympians**\
+`Quotation of the Day for Tuesday, February 10, 2025.`\
+https://nytimes.com/2026/02/09/pageoneplus/quote-of-the-day-the-cradle-of-pasta-is-heaven-for-olympians.html
+
 **Appeals Court Lets Trump Revoke Deportation Protections for 60,000 More Migrants**\
 `The court pointed to recent rulings by the Supreme Court as precedent to allow the protections for migrants from Nepal, Honduras and Nicaragua to expire.`\
 https://nytimes.com/2026/02/09/us/politics/appeals-court-lets-trump-revoke-deportation-protections-for-60000-more-migrants.html
