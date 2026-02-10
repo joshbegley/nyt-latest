@@ -1,3 +1,19 @@
+**YouTube Argues It Isn’t Social Media in Landmark Tech Addiction Trial**\
+`The app said in opening statements that it was more of an entertainment platform. The lawsuit claims social media companies design products that cause personal injury.`\
+https://nytimes.com/2026/02/10/technology/youtube-social-media-addiction-trial.html
+
+**Michael Imperioli Will Tell His Great-Grandchildren About Dining With Bourdain**\
+`“I remember getting there and he was standing outside, smoking. It was hours of white wine and fish,” says the “Sopranos” actor.`\
+https://nytimes.com/2026/02/10/dining/white-lotus-michael-imperioli-restaurants.html
+
+**Slovenia, after extra three-day wait, finally gets its Olympic ski jumping party**\
+`The dominant nation in ski jumping, Slovenia missed out on its first two chances at an Olympic gold medal this week. That changed Tuesday.`\
+https://nytimes.com/athletic/7036948/2026/02/10/winter-olympics-slovenia-ski-jumping-mixed-team-gold/
+
+**Klint Kubiak talks Maxx Crosby, Tom Brady, draft plans as Raiders introduce new coach**\
+`Kubiak on star defensive end Maxx Crosby: "We want him to be a part of our success moving forward."`\
+https://nytimes.com/athletic/7036952/2026/02/10/raiders-klint-kubiak-introduce-head-coach-maxx-crosby-tom-brady/
+
 **How to watch Spurs vs. Lakers: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Los Angeles Lakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7036979/2026/02/10/spurs-vs-lakers-stream-how-to-watch-feb-10/

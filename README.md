@@ -1,3 +1,7 @@
+**Doing the Dishes Is Romantic**\
+`But not fun. Which is why I have five delightful, one-pan dinner options for your Valentine’s Day (or any weeknight).`\
+https://nytimes.com/2026/02/10/dining/doing-the-dishes-is-romantic.html
+
 **YouTube Argues It Isn’t Social Media in Landmark Tech Addiction Trial**\
 `The app said in opening statements that it was more of an entertainment platform. The lawsuit claims social media companies design products that cause personal injury.`\
 https://nytimes.com/2026/02/10/technology/youtube-social-media-addiction-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7036956/2026/02/10/pacers-vs-knicks-stream-how-to-w
 **Cubans Sent to U.S. Prison at Guantánamo Are Returned to Cuba**\
 `The men were repatriated on the first deportation flight of the year, which delivered 170 Cubans to Havana.`\
 https://nytimes.com/2026/02/10/us/politics/cubans-sent-to-us-prison-at-guantanamo-are-returned-to-cuba.html
-
-**Mexico's mother-son Alpine skiing duo set to make Winter Olympics history**\
-`Sarah Schleper, 46, and Lasse Gaxiola, 18, are the first mother and son to compete at the same Winter Games.`\
-https://nytimes.com/athletic/7036370/2026/02/10/olympics-mexico-mother-son-skiing-duo/
 
