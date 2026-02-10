@@ -1,3 +1,7 @@
+**Breezy Johnson puts U.S. in Olympic team combined lead; Mikaela Shiffrin still to come**\
+`The American Johnson topped the downhill field to kick off Tuesday’s team combined event, setting up Mikaela Shiffrin in the slalom.`\
+https://nytimes.com/athletic/7035461/2026/02/10/winter-olympics-mikaela-shiffrin-breezy-johnson-alpine-team-combined/
+
 **After Kershaw, Verlander and Scherzer, will there be another Hall of Fame starting pitcher?**\
 `Years from now, what will a Hall of Fame starting pitcher even look like? We asked current HOFers and considered some compelling cases. `\
 https://nytimes.com/athletic/7033895/2026/02/10/future-hall-of-fame-starting-pitchers/
