@@ -1,3 +1,7 @@
+**Jimmy Lai and the Future of Freedom**\
+`The West has abandoned dissidents as a public cause.`\
+https://nytimes.com/2026/02/10/opinion/jimmy-lai-hong-kong-freedom.html
+
 **Buddhist Monks Reach Washington D.C. in 2,300-Mile ‘Walk for Peace’**\
 `A group of Buddhist monks arrived in Washington on Tuesday, in the final stretch of their “Walk for Peace,” which began four months ago in Texas.`\
 https://nytimes.com/video/us/100000010702233/buddhist-monks-walk-for-peace-dc.html
