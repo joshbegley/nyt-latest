@@ -35,6 +35,6 @@ https://nytimes.com/athletic/7034341/2026/02/09/caleb-durbin-trade-red-sox-roste
 https://nytimes.com/athletic/7033044/2026/02/09/chloe-kim-2026-winter-olympics-history/
 
 **A Gray Wolf’s Visit to Los Angeles County Is a First in Nearly a Century**\
-`The wolf, known as BEY03F, roamed more than 500 miles from Northern California, signaling that the species continues to rebound after being nearly wiped out in the 1920s.`\
+`The wolf, known as BEY03F, roamed more than 500 miles from Northern California, signaling that the species continues to rebound after being wiped out in the state in the 1920s.`\
 https://nytimes.com/2026/02/09/us/gray-wolf-los-angeles-california.html
 
