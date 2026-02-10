@@ -1,3 +1,7 @@
+**Sterling, Coady, Phillips... How looking back at 2022 shows the speed of England's evolution**\
+`While some key players remain, the squad England take to this summer's World Cup will be very different to the one from four years ago`\
+https://nytimes.com/athletic/7032983/2026/02/10/england-2026-world-cup-watch-sterling-coady/
+
 **Radu Dragusin has been given an unlikely Spurs lifeline - they need him to grab it**\
 `A few weeks ago you may have wondered whether Radu Dragusin would ever get back in the Spurs team - now he may be getting a run in the side`\
 https://nytimes.com/athletic/7027477/2026/02/10/radu-dragusin-tottenham-2/
