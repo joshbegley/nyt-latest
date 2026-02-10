@@ -1,3 +1,7 @@
+**A Gray Wolf’s Visit to Los Angeles County Is a First in Nearly a Century**\
+`The wolf, known as BEY03F, roamed more than 500 miles from Northern California, signaling that the species continues to rebound after being wiped out in the 1920s.`\
+https://nytimes.com/2026/02/09/us/gray-wolf-los-angeles-california.html
+
 **Gabbard’s 2020 Election Claims Put Her Back in Favor With Trump**\
 `Tulsi Gabbard has focused on attacking the so-called deep state after an uneven first year as the director of national intelligence.`\
 https://nytimes.com/2026/02/09/us/politics/tulsi-gabbard-2020-election.html

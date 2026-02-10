@@ -1,3 +1,11 @@
+**Red Sox takeaways: What Caleb Durbin acquisition means for offense, infield depth**\
+`After Boston added Durbin in a trade with the Brewers, manager Alex Cora said the team seems "more complete" than last season's club.`\
+https://nytimes.com/athletic/7034341/2026/02/09/caleb-durbin-trade-red-sox-roster/
+
+**The stakes are high for her this week, but Chloe Kim is relaxed and confident**\
+`Kim is trying to become the first halfpipe snowboarder in Olympic history to win three consecutive gold medals.`\
+https://nytimes.com/athletic/7033044/2026/02/09/chloe-kim-2026-winter-olympics-history/
+
 **A Gray Wolf’s Visit to Los Angeles County Is a First in Nearly a Century**\
 `The wolf, known as BEY03F, roamed more than 500 miles from Northern California, signaling that the species continues to rebound after being wiped out in the 1920s.`\
 https://nytimes.com/2026/02/09/us/gray-wolf-los-angeles-california.html
@@ -18,7 +26,7 @@ https://nytimes.com/2026/02/09/nyregion/bruce-blakeman-new-york-governor.html
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2026/02/09/learning/09StudentNewsQuiz.html
 
-**For Homeless New Yorkers, Here’s What a Warm Night Looks Like**\
+**Here’s What a Warm Night Looks Like for Homeless New Yorkers**\
 `As weekend temperatures fell into the single digits, New York City operated 65 warming centers where people could find cots, chairs and a respite from the cold.`\
 https://nytimes.com/2026/02/09/nyregion/cold-warming-centers-homeless.html
 
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/7034556/2026/02/09/bobby-hauck-illinois-defensive-c
 **A New Jersey Primary Shows the Depth of Democratic Fury**\
 `Trump has thrust us into a new political world, and Democratic voters want leaders who can adapt.`\
 https://nytimes.com/2026/02/09/opinion/new-jersey-democratic-anger.html
-
-**Newly Unbound, Trump Weighs More Nuclear Arms and Underground Tests**\
-`It remains to be seen whether the three big nuclear powers are headed into a new arms race, or whether President Trump is trying to spur negotiations on a new accord now that a last Cold War treaty has expired.`\
-https://nytimes.com/2026/02/09/us/politics/trump-nuclear-arms-underground-tests.html
-
-**2026 Winter Olympics men’s hockey standings and forecast**\
-`<p>Men’s Olympic hockey starts Wednesday, with 12 nations competing in this year’s tournament. The NHL is allowing its players to participate for the first time since 2014, making this one of the most anticipated events of the Games.</p>
-`\
-https://nytimes.com/athletic/7002247/2026/02/09/2026-winter-olympics-mens-hockey-standings-and-forecast/
 
