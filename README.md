@@ -1,5 +1,13 @@
+**Top Labor Regulator Dismisses Charges Against SpaceX**\
+`The National Labor Relations Board, having accused the company of unfair retaliation in 2024, now says it has no jurisdiction over Elon Musk’s space company.`\
+https://nytimes.com/2026/02/10/business/spacex-nlrb-labor-elon-musk.html
+
+**The Whiskey World Is Reeling, but This Company Has Bigger Troubles**\
+`A new report paints a grim financial picture of Uncle Nearest, a high-profile brand named for an enslaved distiller. But its founder is fighting back.`\
+https://nytimes.com/2026/02/10/dining/drinks/uncle-nearest-whiskey.html
+
 **Ashley Farquharson wins bronze for second-ever U.S. Olympic medal in women's luge**\
-`Farquharson sealed it with a strong fourth run that vaulted her into medal position.`\
+`Farquharson sealed it with a strong fourth run that cemented her medal position.`\
 https://nytimes.com/athletic/7036378/2026/02/10/ashley-farquharson-winter-olympics-luge-bronze-usa/
 
 **Canada's pre-World Cup schedule and the reasons behind its opponent choices**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7036385/2026/02/10/mikaela-shiffrin-winter-olympics
 **Megan Thee Stallion to join Winter Olympics coverage, ready to 'merge two audiences'**\
 `Grammy Award-winning rapper Megan Thee Stallion NBC Milan Cortina Creator Collective and YouTube for Winter Olympics coverage.`\
 https://nytimes.com/athletic/7035074/2026/02/10/olympics-2026-megan-thee-stallion-hockey-figure-skating/
-
-**Homeland Security Shutdown Nears Amid Stalemate on Immigration Agent Curbs**\
-`Republicans have so far spurned most of Democrats’ demands to rein in federal agents carrying out President Trump’s immigration crackdown, threatening a homeland security funding bill ahead of a Friday deadline.`\
-https://nytimes.com/2026/02/10/us/politics/homeland-security-shutdown-nears-amid-stalemate-on-immigration-agent-curbs.html
-
-**Former Police Chief Said Trump Told Him ‘Everyone’ Knew of Epstein’s Actions**\
-`Michael Reiter, a former Palm Beach police chief, described a 2006 conversation with Donald Trump to the F.B.I. years later, according to a newly released document.`\
-https://nytimes.com/2026/02/10/us/politics/trump-epstein.html
 
