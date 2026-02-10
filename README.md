@@ -1,5 +1,5 @@
-**Kansas hands Arizona its first loss even without freshman star Darryn Peterson**\
-`The Jayhawks have won 40 straight games in Lawrence under Bill Self's watch.`\
+**No. 9 Kansas hands No. 1 Arizona its first loss even without freshman star Darryn Peterson**\
+`The Jayhawks have never lost at home in Allen Fieldhouse on ESPN's Big Monday games.`\
 https://nytimes.com/athletic/7035240/2026/02/10/kansas-wins-arizona-darryn-peterson-40-straight/
 
 **What to watch on Day 4 at the Winter Olympics: U.S. vs. Canada women's hockey, Shiffrin and Johnson**\

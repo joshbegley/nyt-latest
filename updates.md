@@ -1,3 +1,11 @@
+**Kansas hands Arizona its first loss even without freshman star Darryn Peterson**\
+`The Jayhawks have won 40 straight games in Lawrence under Bill Self's watch.`\
+https://nytimes.com/athletic/7035240/2026/02/10/kansas-wins-arizona-darryn-peterson-40-straight/
+
+**What to watch on Day 4 at the Winter Olympics: U.S. vs. Canada women's hockey, Shiffrin and Johnson**\
+`Our first Olympic hockey border battle is here.`\
+https://nytimes.com/athletic/6923014/2026/02/10/milan-cortina-winter-olympics-what-to-watch-day-4/
+
 **Sterling, Coady, Phillips... How looking back at 2022 shows the speed of England's evolution**\
 `While some key players remain, the squad England take to this summer's World Cup will be very different to the one from four years ago`\
 https://nytimes.com/athletic/7032983/2026/02/10/england-2026-world-cup-watch-sterling-coady/
