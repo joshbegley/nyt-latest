@@ -10,7 +10,7 @@ https://nytimes.com/live/2026/02/10/us/trump-news
 `The Reds are in a good position heading into spring training but still have pressing questions to address if they're going to see success. `\
 https://nytimes.com/athletic/7034694/2026/02/10/three-cincinnati-reds-questions-spring-training-2026/
 
-**Alex Hall wins men’s freeski slopestyle silver, Birk Ruud wins gold for Norway**\
+**Norway’s Birk Ruud ends Alex Hall men’s freeski slopestyle Olympic reign**\
 `Hall went into Milan Cortina as the defending champion but the American could not make it back-to-back Olympic titles. `\
 https://nytimes.com/athletic/7035521/2026/02/10/mens-freeski-slopestyle-2026-winter-olympics-alex-hall/
 
