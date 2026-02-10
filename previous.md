@@ -1,3 +1,7 @@
+**Appeals Court Lets Trump Revoke Deportation Protections for 60,000 More Migrants**\
+`The court pointed to recent rulings by the Supreme Court as precedent to allow the protections for migrants from Nepal, Honduras and Nicaragua to expire.`\
+https://nytimes.com/2026/02/09/us/politics/appeals-court-lets-trump-revoke-deportation-protections-for-60000-more-migrants.html
+
 **Full Time: College soccer standout skiing at the Games**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/7035136/2026/02/09/sammy-smith-stanford-olympics-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7034779/2026/02/09/steve-kerr-jimmy-butler-acl-surg
 **Trump Threatens to Block Opening of New Bridge to Canada**\
 `The Gordie Howe International Bridge, expected to open early this year, was built by Canada to ease cargo transport between Detroit and Windsor, Ontario.`\
 https://nytimes.com/2026/02/09/us/politics/trump-gordie-howe-bridge-canada.html
-
-**Confrontation between Jalen Duren, Moussa Diabaté sparks Pistons-Hornets brawl**\
-`Stewart, Duren, Diabaté and Bridges were all ejected. Suspensions are likely to follow.`\
-https://nytimes.com/athletic/7034892/2026/02/09/pistons-hornets-fight-diabate-duren-bridges-stewart/
 
