@@ -1,3 +1,15 @@
+**Gabor Boritt, Refugee Who Became Expert on Lincoln, Dies at 86**\
+`He survived the Holocaust and Communist rule in Hungary, arrived penniless in New York and made himself into a pre-eminent Civil War scholar.`\
+https://nytimes.com/2026/02/10/books/gabor-s-boritt-dead.html
+
+**13 Transcendent Beatles Covers by Black Musicians**\
+`Listen to how Tina Turner, Al Green, Beyoncé and others reinterpreted, revised and reimagined the Fab Four.`\
+https://nytimes.com/2026/02/10/arts/music/amplifier-newsletter-beatles-covers-black-musicians.html
+
+**Hamas Would Keep Some Arms Initially in Draft Gaza Plan, Officials Say**\
+`Israel is unlikely to withdraw its troops from the enclave before Hamas and other militant groups lay down their arms.`\
+https://nytimes.com/2026/02/10/world/middleeast/hamas-weapons-draft-plan.html
+
 **Sweden beats U.S. on final stone to win Olympic mixed doubles curling gold**\
 `Cory Thiesse and Korey Dropkin took the silver after Tuesday's loss to Sweden's Isabella and Rasmus Wranå.`\
 https://nytimes.com/athletic/7036230/2026/02/10/winter-olympics-mixed-doubles-curling-gold-sweden-usa/
