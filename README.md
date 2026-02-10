@@ -1,3 +1,11 @@
+**Gabbard’s 2020 Election Claims Put Her Back in Favor With Trump**\
+`Tulsi Gabbard has focused on attacking the so-called deep state after an uneven first year as the director of national intelligence.`\
+https://nytimes.com/2026/02/09/us/politics/tulsi-gabbard-2020-election.html
+
+**Israeli President’s Visit to Australia Sets Off Protests**\
+`A visit by the Israeli president, Isaac Herzog, to Australia on Monday to commemorate the victims of the Bondi Beach attack set off protests in Sydney.`\
+https://nytimes.com/video/world/australia/100000010701019/israel-president-australia-protests.html
+
 **How Laura Loomer and a Sheriff Upended G.O.P. Plans for the N.Y. Ticket**\
 `Bruce Blakeman, the likely Republican candidate for governor of New York, had decided on his running mate, but things quickly got complicated.`\
 https://nytimes.com/2026/02/09/nyregion/bruce-blakeman-new-york-governor.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/7002247/2026/02/09/2026-winter-olympics-mens-hockey
 **From the ‘Gilded Age’ to Today, a Watch Society at 160 Years**\
 `Industry figures say the friendly welcome at the Horological Society of New York has a lot to do with its longevity.`\
 https://nytimes.com/2026/02/09/fashion/watches-horological-society-new-york.html
-
-**Watch Brands Increasingly Turn to Sports for Spark**\
-`In a cooling market, makers have been putting more emphasis on sponsorships and famous athletic ambassadors, especially in the United States.`\
-https://nytimes.com/2026/02/09/fashion/watches-sports-breitling.html
-
-**Judge Strikes Down California’s Ban on Masks for Federal Agents**\
-`The state can require federal agents to display identification, the judge said. The Trump administration had asked the court to block both laws, which were designed to help identify federal agents.`\
-https://nytimes.com/2026/02/09/us/judge-rejects-california-mask-ban-ice.html
 
