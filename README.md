@@ -1,3 +1,11 @@
+**13 Transcendent Beatles Covers by Black Musicians**\
+`Listen to how Tina Turner, Al Green, Beyoncé and others reinterpreted, revised and reimagined the Fab Four.`\
+https://nytimes.com/2026/02/10/arts/music/amplifier-newsletter-beatles-covers-black-musicians.html
+
+**Hamas Would Keep Some Arms Initially in Draft Gaza Plan, Officials Say**\
+`Israel is unlikely to withdraw its troops from the enclave before Hamas and other militant groups lay down their arms.`\
+https://nytimes.com/2026/02/10/world/middleeast/hamas-weapons-draft-plan.html
+
 **Sweden beats U.S. on final stone to win Olympic mixed doubles curling gold**\
 `Cory Thiesse and Korey Dropkin took the silver after Tuesday's loss to Sweden's Isabella and Rasmus Wranå.`\
 https://nytimes.com/athletic/7036230/2026/02/10/winter-olympics-mixed-doubles-curling-gold-sweden-usa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7036458/2026/02/10/wild-olympics-punchable-snoop-do
 **A 12,000-Square-Foot Japanese Mega-Restaurant Lands in Midtown**\
 `Double Knot New York goes all out with a sushi and robata grill, Dahla brings high-end Thai to the meatpacking district and more.`\
 https://nytimes.com/2026/02/10/dining/nyc-restaurant-news.html
-
-**Brandon Ingram to replace Steph Curry in All-Star Game**\
-`Ingram, 28, will make the All-Star Game for the first time since 2019-20.`\
-https://nytimes.com/athletic/7036469/2026/02/10/brandon-ingram-all-star-raptors/
-
-**Until Saturday: North Dakota State, finally FBS**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/7036568/2026/02/10/north-dakota-state-fbs-until-saturday/
 
