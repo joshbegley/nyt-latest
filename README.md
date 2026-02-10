@@ -1,3 +1,7 @@
+**Fantasy Premier League live Q&A: Gameweek 26 advice from Ben Dinnery**\
+`Ben Dinnery of premierinjuries.com is on hand to offer his expert advice on the players to target, who to avoid, and the fitness doubts `\
+https://nytimes.com/athletic/7032806/2026/02/10/fantasy-premier-league-live-qa-gameweek-26-advice-from-ben-dinnery/
+
 **Jon Stewart Defends Bad Bunny’s Super Bowl Halftime Show**\
 `“The Daily Show” host said it shouldn’t be a performer’s job to unify the country: “Isn’t there another person whose job description is much more along those lines?”`\
 https://nytimes.com/2026/02/10/arts/television/late-night-bad-bunny.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6923014/2026/02/10/milan-cortina-winter-olympics-wh
 **Sterling, Coady, Phillips... How looking back at 2022 shows the speed of England's evolution**\
 `While some key players remain, the squad England take to this summer's World Cup will be very different to the one from four years ago`\
 https://nytimes.com/athletic/7032983/2026/02/10/england-2026-world-cup-watch-sterling-coady/
-
-**Radu Dragusin has been given an unlikely Spurs lifeline - they need him to grab it**\
-`A few weeks ago you may have wondered whether Radu Dragusin would ever get back in the Spurs team - now he may be getting a run in the side`\
-https://nytimes.com/athletic/7027477/2026/02/10/radu-dragusin-tottenham-2/
 
