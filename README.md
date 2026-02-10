@@ -1,3 +1,7 @@
+**Ashley Farquharson wins bronze for second-ever U.S. Olympic medal in women's luge**\
+`Farquharson sealed it with a strong fourth run that vaulted her into medal position.`\
+https://nytimes.com/athletic/7036378/2026/02/10/ashley-farquharson-winter-olympics-luge-bronze-usa/
+
 **Canada's pre-World Cup schedule and the reasons behind its opponent choices**\
 `On the surface, Canada's run-up to the World Cup may appear underwhelming, but there's reason for it`\
 https://nytimes.com/athletic/7036354/2026/02/10/canada-friendlies-world-cup-tunisia-iceland-uzbekistan-ireland/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/10/us/politics/homeland-security-shutdown-nears-amid
 **Former Police Chief Said Trump Told Him ‘Everyone’ Knew of Epstein’s Actions**\
 `Michael Reiter, a former Palm Beach police chief, described a 2006 conversation with Donald Trump to the F.B.I. years later, according to a newly released document.`\
 https://nytimes.com/2026/02/10/us/politics/trump-epstein.html
-
-**Lindsey Vonn’s complex tibia fracture at the Olympics: What to know**\
-`A tibia fracture is considered “complex” when the bone breaks into several pieces, damaging the soft tissues surrounding the shin.`\
-https://nytimes.com/athletic/7036231/2026/02/10/lindsey-vonn-complex-tibia-fracture-injury/
 
