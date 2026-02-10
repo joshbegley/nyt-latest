@@ -1,3 +1,11 @@
+**Steve Kerr says Steph Curry to miss NBA All-Star Game, Jimmy Butler has successful surgery**\
+`Kerr is hopeful Curry will be able to return in the Warriors' first game after the break against the Boston Celtics on Feb. 19th`\
+https://nytimes.com/athletic/7034779/2026/02/09/steve-kerr-jimmy-butler-acl-surgery-update-stephen-curry/
+
+**Trump Threatens to Block Opening of New Bridge to Canada**\
+`The Gordie Howe International Bridge, expected to open early this year, was built by Canada to ease cargo transport between Detroit and Windsor, Ontario.`\
+https://nytimes.com/2026/02/09/us/politics/trump-gordie-howe-bridge-canada.html
+
 **Confrontation between Jalen Duren, Moussa Diabaté sparks Pistons-Hornets brawl**\
 `Stewart, Duren, Diabaté and Bridges were all ejected. Suspensions are likely to follow.`\
 https://nytimes.com/athletic/7034892/2026/02/09/pistons-hornets-fight-diabate-duren-bridges-stewart/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/09/nyregion/molly-park-resignation-homeless.html
 **Trump Administration Abandons Steve Bannon Conviction**\
 `The longtime Trump ally served four months in prison on contempt of Congress charges for refusing to testify to the House committee that investigated the Jan. 6, 2021, attack on the Capitol.`\
 https://nytimes.com/2026/02/09/us/politics/bannon-trump-contempt-case.html
-
-**Red Sox takeaways: What Caleb Durbin acquisition means for offense, infield configuration**\
-`After Boston added Durbin in a trade with the Brewers, manager Alex Cora said the team seems "more complete" than last season's club.`\
-https://nytimes.com/athletic/7034341/2026/02/09/caleb-durbin-trade-red-sox-roster/
-
-**The stakes are high for her this week, but Chloe Kim is relaxed and confident**\
-`Kim is trying to become the first halfpipe snowboarder in Olympic history to win three consecutive gold medals.`\
-https://nytimes.com/athletic/7033044/2026/02/09/chloe-kim-2026-winter-olympics-history/
 

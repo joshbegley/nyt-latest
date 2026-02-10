@@ -1,3 +1,11 @@
+**Steve Kerr says Steph Curry to miss NBA All-Star Game, Jimmy Butler has successful surgery**\
+`Kerr is hopeful Curry will be able to return in the Warriors' first game after the break against the Boston Celtics on Feb. 19th`\
+https://nytimes.com/athletic/7034779/2026/02/09/steve-kerr-jimmy-butler-acl-surgery-update-stephen-curry/
+
+**Trump Threatens to Block Opening of New Bridge to Canada**\
+`The Gordie Howe International Bridge, expected to open early this year, was built by Canada to ease cargo transport between Detroit and Windsor, Ontario.`\
+https://nytimes.com/2026/02/09/us/politics/trump-gordie-howe-bridge-canada.html
+
 **Confrontation between Jalen Duren, Moussa Diabaté sparks Pistons-Hornets brawl**\
 `Stewart, Duren, Diabaté and Bridges were all ejected. Suspensions are likely to follow.`\
 https://nytimes.com/athletic/7034892/2026/02/09/pistons-hornets-fight-diabate-duren-bridges-stewart/
