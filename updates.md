@@ -1,3 +1,7 @@
+**How to watch Mikaela Shiffrin chase gold at the 2026 Winter Olympics**\
+`The winningest Alpine skier ever seeks redemption after failing to podium at the 2022 Winter Olympics. `\
+https://nytimes.com/athletic/7031162/2026/02/10/mikaela-shiffrin-events-olympics-how-to-watch-2026/
+
 **Downed Wire Disrupts Amtrak and NJ Transit Service Along Northeast Corridor**\
 `The disruption stranded passengers in bitter cold. Amtrak restored service, but NJ Transit was operating reduced service out of New York Penn Station early Tuesday.`\
 https://nytimes.com/2026/02/10/nyregion/amtrak-nj-transit-train-cancellations.html
