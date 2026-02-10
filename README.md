@@ -1,3 +1,7 @@
+**A Gray Wolf’s Visit to Los Angeles County Is a First in Nearly a Century**\
+`The wolf, known as BEY03F, roamed more than 500 miles from Northern California, signaling that the species continues to rebound after being wiped out in the 1920s.`\
+https://nytimes.com/2026/02/09/us/gray-wolf-los-angeles-california.html
+
 **Gabbard’s 2020 Election Claims Put Her Back in Favor With Trump**\
 `Tulsi Gabbard has focused on attacking the so-called deep state after an uneven first year as the director of national intelligence.`\
 https://nytimes.com/2026/02/09/us/politics/tulsi-gabbard-2020-election.html
@@ -34,8 +38,4 @@ https://nytimes.com/2026/02/09/us/politics/trump-nuclear-arms-underground-tests.
 `<p>Men’s Olympic hockey starts Wednesday, with 12 nations competing in this year’s tournament. The NHL is allowing its players to participate for the first time since 2014, making this one of the most anticipated events of the Games.</p>
 `\
 https://nytimes.com/athletic/7002247/2026/02/09/2026-winter-olympics-mens-hockey-standings-and-forecast/
-
-**From the ‘Gilded Age’ to Today, a Watch Society at 160 Years**\
-`Industry figures say the friendly welcome at the Horological Society of New York has a lot to do with its longevity.`\
-https://nytimes.com/2026/02/09/fashion/watches-horological-society-new-york.html
 
