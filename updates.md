@@ -1,3 +1,11 @@
+**Slot: No Champions League would have 'enormous impact' on Liverpool spending**\
+`The Dutch head coach says his side need to be "close to perfection" for the rest of the season to return to the Champions League.`\
+https://nytimes.com/athletic/7035529/2026/02/10/arne-slot-liverpool-champions-league/
+
+**Philippe Gaulier, Revered Clown and ‘Tormentor’ of Aspiring Comedians, Dies at 82**\
+`Gaulier often insulted his pupils, but many became stars, including Sacha Baron Cohen, Emma Thompson and Rachel Weisz.`\
+https://nytimes.com/2026/02/10/arts/philippe-gaulier-clown-dead.html
+
 **BP Suspends Share Buybacks as Profit Slumps**\
 `The British energy giant said it would put money toward new oil and gas opportunities ahead of the arrival of its new chief executive, Meg O’Neill.`\
 https://nytimes.com/2026/02/10/business/bp-oil-energy-buybacks.html

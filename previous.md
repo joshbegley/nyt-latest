@@ -1,3 +1,11 @@
+**Slot: No Champions League would have 'enormous impact' on Liverpool spending**\
+`The Dutch head coach says his side need to be "close to perfection" for the rest of the season to return to the Champions League.`\
+https://nytimes.com/athletic/7035529/2026/02/10/arne-slot-liverpool-champions-league/
+
+**Philippe Gaulier, Revered Clown and ‘Tormentor’ of Aspiring Comedians, Dies at 82**\
+`Gaulier often insulted his pupils, but many became stars, including Sacha Baron Cohen, Emma Thompson and Rachel Weisz.`\
+https://nytimes.com/2026/02/10/arts/philippe-gaulier-clown-dead.html
+
 **BP Suspends Share Buybacks as Profit Slumps**\
 `The British energy giant said it would put money toward new oil and gas opportunities ahead of the arrival of its new chief executive, Meg O’Neill.`\
 https://nytimes.com/2026/02/10/business/bp-oil-energy-buybacks.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7029441/2026/02/10/new-york-yankees-questions-sprin
 **NHL Awards Watch: Can MacKinnon and Makar hold on to early Hart and Norris leads?**\
 `Welcome to the third edition of this year’s NHL Awards Watch, conveniently timed at the league’s Olympic break.`\
 https://nytimes.com/athletic/7028020/2026/02/10/nhl-awards-watch-mackinnon-makar/
-
-**Guardians spring training burning questions: Rookies, rotation and breakout candidate**\
-`With spring training getting underway this week, here are three questions for the Guardians in their pursuit of an AL Central three-peat.`\
-https://nytimes.com/athletic/7030963/2026/02/10/guardians-spring-training-questions-rookies-rotation-offense/
-
-**The Enhanced Games are 100 days away. Here's what we know**\
-`The controversial venture allows athletes to use performance-enhancing drugs, sparking health concerns from traditional sporting bodies`\
-https://nytimes.com/athletic/7033048/2026/02/10/enhanced-games-explained-where-how-doping/
 
