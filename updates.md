@@ -1,3 +1,7 @@
+**Song of The Week: Is This Zach Bryan’s Redemption Era?**\
+`On this edition of Popcast’s Song of the Week, our critic Jon Caramanica dives into Zach Bryan’s “Appetite,” a redemptive and contemplative track about “the horrors that you visited upon yourself.”`\
+https://nytimes.com/video/podcasts/100000010704052/song-of-the-week-is-this-zach-bryans-redemption-era.html
+
 **Frank 'convinced' he will be in charge of Spurs vs. Arsenal**\
 `Spurs were beaten 2-1 by Newcastle on Tuesday and are now only five points above the relegation zone.`\
 https://nytimes.com/athletic/7037355/2026/02/10/thomas-frank-tottenham-future-newcastle/
