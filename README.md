@@ -1,3 +1,15 @@
+**Pride Flag Is Taken Down From Stonewall Monument**\
+`The removal of the flag from the Manhattan monument, the symbolic heart of the gay rights movement, came after a Trump administration directive about flags at national park sites.`\
+https://nytimes.com/2026/02/10/us/pride-flag-stonewall-inn-monument.html
+
+**Clippers have revamped their roster but insist goals haven't changed**\
+`When it comes to the Aspiration probe: "We know it's out there. We know at some point there'll be a decision made," Lawrence Frank said.`\
+https://nytimes.com/athletic/7035087/2026/02/10/nba-darius-garland-clippers-trade-kawhi-aspiration/
+
+**How Tennessee's Nate Ament has rebuilt his status as a likely NBA lottery pick**\
+`The 6-foot-10 sharpshooter struggled early in his freshman season but has recently shown what all the preseason top-5 buzz was about.`\
+https://nytimes.com/athletic/7035971/2026/02/10/nate-ament-tennessee-nba-draft/
+
 **The Sublime and Subversive Desire Paths of a Snowy New York**\
 `With the snow sticking around, New Yorkers have had to navigate new, temporary terrain.`\
 https://nytimes.com/2026/02/10/realestate/desire-paths-new-york-city-snow-storm.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/10/health/social-drinking-risks-alcohol.html
 **Nikola Topić makes G League debut after being treated for testicular cancer**\
 `"We're all just collectively thrilled that he's back playing basketball," Thunder coach Mark Daigneault said.`\
 https://nytimes.com/athletic/7035709/2026/02/10/nba-thunder-nikola-topic-cancer-return/
-
-**Marie-Philip Poulin ruled out for Canada vs. USA game with lower-body injury**\
-`Poulin, the greatest women's hockey player of all time, was injured in Monday's game versus the Czech Republic.`\
-https://nytimes.com/athletic/7035917/2026/02/10/marie-philip-poulin-injury-olympics-womens-hockey-canada-usa/
-
-**Where were contenders at the trade deadline? Plus, scouting Heat's Kasparas Jakučionis**\
-`With Jaren Jackson Jr. and Ivica Zubac being moved at the deadline, why did they go to lottery-bound teams instead of contenders?`\
-https://nytimes.com/athletic/7035225/2026/02/10/where-were-contenders-at-the-trade-deadline-scouting-heat-rookie-kasparas-jakucionis/
-
-**Chappell Roan Leaves Wasserman Agency After Founder Appears in Epstein Files**\
-`Casey Wasserman, who founded and leads the talent agency bearing his name, exchanged flirtatious emails with Ghislaine Maxwell in the early 2000s.`\
-https://nytimes.com/2026/02/10/arts/music/chappell-roan-casey-wasserman-epstein-agency.html
 
