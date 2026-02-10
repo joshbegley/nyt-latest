@@ -1,3 +1,7 @@
+**India-Pakistan to go ahead as government ends boycott ask**\
+`The fixture is expected to be watched by around 325 million people. For context, the NFL’s Super Bowl record viewership figure is 127.7m.`\
+https://nytimes.com/athletic/7035514/2026/02/10/india-pakistan-cricket-rivalry-boycott/
+
 **Slot: No Champions League would have 'enormous impact' on Liverpool spending**\
 `The Dutch head coach says his side need to be "close to perfection" for the rest of the season to return to the Champions League.`\
 https://nytimes.com/athletic/7035529/2026/02/10/arne-slot-liverpool-champions-league/

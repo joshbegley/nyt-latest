@@ -1,3 +1,7 @@
+**India-Pakistan to go ahead as government ends boycott ask**\
+`The fixture is expected to be watched by around 325 million people. For context, the NFL’s Super Bowl record viewership figure is 127.7m.`\
+https://nytimes.com/athletic/7035514/2026/02/10/india-pakistan-cricket-rivalry-boycott/
+
 **Slot: No Champions League would have 'enormous impact' on Liverpool spending**\
 `The Dutch head coach says his side need to be "close to perfection" for the rest of the season to return to the Champions League.`\
 https://nytimes.com/athletic/7035529/2026/02/10/arne-slot-liverpool-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7034793/2026/02/10/lions-unrestricted-free-agents-a
 **Three burning Yankees questions as spring training opens**\
 `The Yankees' quest for a 28th World Series championship has begun. Here are three questions surrounding the club as spring training begins.`\
 https://nytimes.com/athletic/7029441/2026/02/10/new-york-yankees-questions-spring-training/
-
-**NHL Awards Watch: Can MacKinnon and Makar hold on to early Hart and Norris leads?**\
-`Welcome to the third edition of this year’s NHL Awards Watch, conveniently timed at the league’s Olympic break.`\
-https://nytimes.com/athletic/7028020/2026/02/10/nhl-awards-watch-mackinnon-makar/
 

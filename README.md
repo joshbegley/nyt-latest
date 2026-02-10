@@ -1,3 +1,11 @@
+**Jordan Stolz saved the skates from his world record 1000m for these Olympics**\
+`The 21-year-old speedskating phenom is targeting four medals at Milan Cortina. All gold.`\
+https://nytimes.com/athletic/7035508/2026/02/10/jordan-stolz-winter-olympics-speedskating-world-record-skates/
+
+**The End of Arms Control**\
+`We look at how world superpowers are approaching nuclear weapons.`\
+https://nytimes.com/2026/02/10/briefing/the-end-of-arms-control.html
+
 **India-Pakistan to go ahead as government ends boycott ask**\
 `The fixture is expected to be watched by around 325 million people. For context, the NFL’s Super Bowl record viewership figure is 127.7m.`\
 https://nytimes.com/athletic/7035514/2026/02/10/india-pakistan-cricket-rivalry-boycott/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7033008/2026/02/10/knicks-buyout-market-candidates/
 **Joey Logano on shaving his head and how NASCAR racing has evolved**\
 `The three-time NASCAR Cup Series champ kicks off the 8th season of Jeff Gluck's "12 Questions" series.`\
 https://nytimes.com/athletic/7029447/2026/02/10/joey-logano-nascar-daytona-500-12-questions/
-
-**Assessing the Lions' 22 unrestricted free agents: Tough calls ahead on defense**\
-`Analyzing the starting-tier players, along with key reserves and others who potentially could play roles in 2026.`\
-https://nytimes.com/athletic/7034793/2026/02/10/lions-unrestricted-free-agents-analysis/
-
-**Three burning Yankees questions as spring training opens**\
-`The Yankees' quest for a 28th World Series championship has begun. Here are three questions surrounding the club as spring training begins.`\
-https://nytimes.com/athletic/7029441/2026/02/10/new-york-yankees-questions-spring-training/
 
