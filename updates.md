@@ -1,3 +1,11 @@
+**Judge Dismisses Case Over Georgia Ballots That Were Seized by Justice Dept.**\
+`A state judge made clear his frustration with the federal seizure of ballots from the 2020 presidential election in Fulton County, Ga.`\
+https://nytimes.com/2026/02/09/us/georgia-2020-election-case-ballots.html
+
+**49ers DE Keion White shot in ankle, expected to be OK: Sources**\
+`According to police, there was an altercation between two groups, but White was not believed to be involved in the altercation.`\
+https://nytimes.com/athletic/7034778/2026/02/09/keion-white-shot-ankle-49ers-dl-super-bowl/
+
 **Political talk at Olympics particularly hazardous for the not-yet-mainstream athletes**\
 `The attention of President Donald Trump on the skier Hunter Hess calls attention to the stakes of the Olympics for its athletes.`\
 https://nytimes.com/athletic/7034383/2026/02/09/winter-olympics-politics-hunter-hess-donald-trump/
