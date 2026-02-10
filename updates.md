@@ -1,3 +1,7 @@
+**What to Know About Canada’s New Bridge to Detroit That Trump Hates**\
+`President Trump’s threat to block the opening of the new crossing is the latest in a long string of challenges for the project.`\
+https://nytimes.com/2026/02/10/world/canada/trump-carney-gordie-howe-bridge-detroit.html
+
 **Hudson Talbott Dies at 76; Wrote and Illustrated Wide-Ranging Children’s Books**\
 `His book about time-traveling dinosaurs became a movie. He also adapted the Broadway show “Into the Woods” for young readers and wrote about his struggles with dyslexia.`\
 https://nytimes.com/2026/02/10/books/hudson-talbott-dead.html
