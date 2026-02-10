@@ -1,3 +1,19 @@
+**Sweden beats U.S. on final stone to win Olympic mixed doubles curling gold**\
+`Cory Thiesse and Korey Dropkin took the silver after Tuesday's loss to Sweden's Isabella and Rasmus Wranå.`\
+https://nytimes.com/athletic/7036230/2026/02/10/winter-olympics-mixed-doubles-curling-gold-sweden-usa/
+
+**Braves to open season with starter Spencer Schwellenbach on 60-day IL**\
+`The Braves' 2025 campaign was marred by starting pitcher injuries. They'll open 2026 with at least one hole in the rotation.`\
+https://nytimes.com/athletic/7036462/2026/02/10/braves-spencer-schwellenbach-elbow-inflammation-update/
+
+**EFL clubs to vote on expanding Championship play-offs**\
+`The 72 clubs in the EFL will vote on increasing the number of spots from four to six at a meeting in March.`\
+https://nytimes.com/athletic/7036443/2026/02/10/championship-playoffs-vote-efl/
+
+**Justin Verlander signs with the Tigers, bringing his career full-circle**\
+`Verlander returns to Detroit, where he spent the first 13 years of his MLB career and won 183 games.`\
+https://nytimes.com/athletic/6982882/2026/02/10/justin-verlander-mlb-free-agency-tigers/
+
 **Spain striker Aghehowa set to miss World Cup after suffering ACL injury**\
 `Aghehowa, 21, was replaced at half time during Monday's Primeira Liga fixture against Sporting CP`\
 https://nytimes.com/athletic/7036541/2026/02/10/samu-aghehowa-injury-porto-spain/
