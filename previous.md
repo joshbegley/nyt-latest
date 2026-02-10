@@ -1,5 +1,9 @@
+**U.S. Boat Strike Kills 2 in Pacific, With One Survivor**\
+`The strike in the eastern Pacific, the third on suspected drug trafficking boats this year, was the second authorized by Gen. Francis L. Donovan, the new head of the Southern Command.`\
+https://nytimes.com/2026/02/09/us/politics/us-boat-strike-pacific-ocean.html
+
 **Steve Kerr says Steph Curry to miss NBA All-Star Game, Jimmy Butler has successful surgery**\
-`Kerr is hopeful Curry will be able to return in the Warriors' first game after the break against the Boston Celtics on Feb. 19th`\
+`Kerr is hopeful Curry will be able to return in the Warriors' first game after the break against the Boston Celtics on Feb. 19th. `\
 https://nytimes.com/athletic/7034779/2026/02/09/steve-kerr-jimmy-butler-acl-surgery-update-stephen-curry/
 
 **Trump Threatens to Block Opening of New Bridge to Canada**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7034383/2026/02/09/winter-olympics-politics-hunter-
 **N.Y.C. Social Services Chief Resigns After Losing Mamdani’s Favor**\
 `Molly Wasow Park, a holdover from the Eric Adams administration, said her resignation was unrelated to the recent wave of cold-related deaths in New York City.`\
 https://nytimes.com/2026/02/09/nyregion/molly-park-resignation-homeless.html
-
-**Trump Administration Abandons Steve Bannon Conviction**\
-`The longtime Trump ally served four months in prison on contempt of Congress charges for refusing to testify to the House committee that investigated the Jan. 6, 2021, attack on the Capitol.`\
-https://nytimes.com/2026/02/09/us/politics/bannon-trump-contempt-case.html
 

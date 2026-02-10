@@ -1,3 +1,11 @@
+**U.S. Boat Strike Kills 2 in Pacific, With One Survivor**\
+`The strike in the eastern Pacific, the third on suspected drug trafficking boats this year, was the second authorized by Gen. Francis L. Donovan, the new head of the Southern Command.`\
+https://nytimes.com/2026/02/09/us/politics/us-boat-strike-pacific-ocean.html
+
+**Steve Kerr says Steph Curry to miss NBA All-Star Game, Jimmy Butler has successful surgery**\
+`Kerr is hopeful Curry will be able to return in the Warriors' first game after the break against the Boston Celtics on Feb. 19th. `\
+https://nytimes.com/athletic/7034779/2026/02/09/steve-kerr-jimmy-butler-acl-surgery-update-stephen-curry/
+
 **Steve Kerr says Steph Curry to miss NBA All-Star Game, Jimmy Butler has successful surgery**\
 `Kerr is hopeful Curry will be able to return in the Warriors' first game after the break against the Boston Celtics on Feb. 19th`\
 https://nytimes.com/athletic/7034779/2026/02/09/steve-kerr-jimmy-butler-acl-surgery-update-stephen-curry/
