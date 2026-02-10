@@ -1,3 +1,7 @@
+**How to watch Spurs vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7036979/2026/02/10/spurs-vs-lakers-stream-how-to-watch-feb-10/
+
 **How to watch Clippers vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7036965/2026/02/10/clippers-vs-rockets-stream-how-to-watch-feb-10/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7036913/2026/02/10/wisconsin-vs-illinois-stream-how
 **How to watch Washington State vs. Gonzaga men's basketball: Time, TV, streaming**\
 `Find out how to watch the Washington State Cougars play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7036911/2026/02/10/washington-state-vs-gonzaga-stream-how-to-watch-feb-10/
-
-**How to watch Iowa State vs. TCU men's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa State Cyclones play the TCU Horned Frogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7036907/2026/02/10/iowa-state-vs-tcu-stream-how-to-watch-feb-10/
 
