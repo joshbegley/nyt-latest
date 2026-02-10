@@ -1,3 +1,11 @@
+**Jon Stewart Defends Bad Bunny’s Super Bowl Halftime Show**\
+`“The Daily Show” host said it shouldn’t be a performer’s job to unify the country: “Isn’t there another person whose job description is much more along those lines?”`\
+https://nytimes.com/2026/02/10/arts/television/late-night-bad-bunny.html
+
+**Word of the Day: indigent**\
+`This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/10/learning/word-of-the-day-indigent.html
+
 **Tracy Scroggins, Lions' No. 3 sack leader, dies at 56**\
 `Scroggins' 60.5 sacks rank third on the Lions' career sack list, and he helped Detroit reach the playoffs five times in his 10 seasons.`\
 https://nytimes.com/athletic/7034931/2026/02/10/lions-tracy-scroggins-dead/
