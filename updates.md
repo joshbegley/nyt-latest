@@ -1,3 +1,11 @@
+**An Olympian Quest in Milan: Glimpsing a K-Pop Superstar**\
+`Celebrities abound at the Winter Games. For fans, seeing one up close can be its own grueling competition.`\
+https://nytimes.com/2026/02/10/world/europe/sunghoon-milan-winter-olympics.html
+
+**Is Ohio State ready for a tougher schedule amid roster changes? What we've learned for 2026**\
+`Thoughts on where Ohio State stands after a busy January in the portal and coaching carousel following an early CFP exit.`\
+https://nytimes.com/athletic/7033725/2026/02/10/ohio-state-football-schedule-coaches-roster-2026/
+
 **Three burning questions facing the 2026 Twins as spring training opens**\
 `Besides the bullpen, the Twins will spend spring answering questions about Brooks Lee at short, Bailey Ober's progress and trade options.`\
 https://nytimes.com/athletic/7035295/2026/02/10/minnesota-twins-spring-training-questions/
