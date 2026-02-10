@@ -1,3 +1,7 @@
+**Gabor Boritt, Refugee Who Became Expert on Lincoln, Dies at 86**\
+`He survived the Holocaust and Communist rule in Hungary, arrived penniless in New York and made himself into a pre-eminent Civil War scholar.`\
+https://nytimes.com/2026/02/10/books/gabor-s-boritt-dead.html
+
 **13 Transcendent Beatles Covers by Black Musicians**\
 `Listen to how Tina Turner, Al Green, Beyoncé and others reinterpreted, revised and reimagined the Fab Four.`\
 https://nytimes.com/2026/02/10/arts/music/amplifier-newsletter-beatles-covers-black-musicians.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/10/nyregion/mamdani-lisa-gelobter-gif.html
 **Wild at the Olympics: A punchable face, hanging with Snoop Dogg and a chance at a pile of medals**\
 `Quinn Hughes on 10 Wild players being in the Olympics: "It says a lot about our team and maybe why we've been so good."`\
 https://nytimes.com/athletic/7036458/2026/02/10/wild-olympics-punchable-snoop-dogg/
-
-**A 12,000-Square-Foot Japanese Mega-Restaurant Lands in Midtown**\
-`Double Knot New York goes all out with a sushi and robata grill, Dahla brings high-end Thai to the meatpacking district and more.`\
-https://nytimes.com/2026/02/10/dining/nyc-restaurant-news.html
 
