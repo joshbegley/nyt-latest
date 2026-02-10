@@ -1,3 +1,11 @@
+**New Video Shows a Masked Figure at Nancy Guthrie’s Door**\
+`Also, Republicans have a huge cash advantage. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/02/10/briefing/video-nancy-guthrie-republicans-cash-advantage.html
+
+**West Ham 1 Man Utd 1 - How good was Sesko's goal? How was Shaw caught out?**\
+`Analysis of Manchester United's dramatic Premier League draw away to West Ham`\
+https://nytimes.com/athletic/7030959/2026/02/10/sesko-manchester-united-goal-west-ham/
+
 **The Briefing: Chelsea 2 Leeds 2 - Wasteful hosts made to pay by stunning two-goal comeback**\
 `Liam Rosenior's side appeared to be cruising after establishing a two-goal advantage only to be hauled back by a stubborn and defiant Leeds`\
 https://nytimes.com/athletic/7030956/2026/02/10/chelsea-leeds-bogle-palmer-acheampong-briefing/
