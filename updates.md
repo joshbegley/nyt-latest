@@ -1,3 +1,7 @@
+**Three burning questions facing the 2026 Twins as spring training opens**\
+`Besides the bullpen, the Twins will spend spring answering questions about Brooks Lee at short, Bailey Ober's progress and trade options.`\
+https://nytimes.com/athletic/7035295/2026/02/10/minnesota-twins-spring-training-questions/
+
 **Sweden sweep cross-country sprint as Jessie Diggins knocked out early**\
 `Linn Svahn won a dominant gold ahead of team-mates Jonna Sundling and Maja Dahlqvist.`\
 https://nytimes.com/athletic/7035689/2026/02/10/sweden-wins-cross-country-sprint-result/
