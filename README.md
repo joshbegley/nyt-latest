@@ -1,3 +1,7 @@
+**New Video Shows a Masked Figure at Nancy Guthrie’s Door**\
+`Also, Republicans have a huge cash advantage. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/02/10/briefing/video-nancy-guthrie-republicans-cash-advantage.html
+
 **West Ham 1 Man Utd 1 - How good was Sesko's goal? How was Shaw caught out?**\
 `Analysis of Manchester United's dramatic Premier League draw away to West Ham`\
 https://nytimes.com/athletic/7030959/2026/02/10/sesko-manchester-united-goal-west-ham/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/10/magazine/immigration-detention-europe-busmantsi-b
 **Ilia Malinin's dominance puts him one skate away from men's Olympic gold**\
 `The Quad God, the star of these Milan Cortina Games, is in prime position to win individual men's figure skating gold.`\
 https://nytimes.com/athletic/7037080/2026/02/10/ilia-malinin-winter-olympics-figure-skating-short-program-mens/
-
-**A closer look at Luis Arraez's defense at second base**\
-`Arraez has played all over the field in his career. His time at second has been defined by sure-handedness but also very limited range.`\
-https://nytimes.com/athletic/7037121/2026/02/10/sf-giants-luis-arraez-second-base-defense/
 
