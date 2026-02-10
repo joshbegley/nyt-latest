@@ -1,3 +1,7 @@
+**Breezy Johnson puts U.S. in Olympic team combined lead; Mikaela Shiffrin still to come**\
+`The American Johnson topped the downhill field to kick off Tuesday’s team combined event, setting up Mikaela Shiffrin in the slalom.`\
+https://nytimes.com/athletic/7035461/2026/02/10/winter-olympics-mikaela-shiffrin-breezy-johnson-alpine-team-combined/
+
 **After Kershaw, Verlander and Scherzer, will there be another Hall of Fame starting pitcher?**\
 `Years from now, what will a Hall of Fame starting pitcher even look like? We asked current HOFers and considered some compelling cases. `\
 https://nytimes.com/athletic/7033895/2026/02/10/future-hall-of-fame-starting-pitchers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7034727/2026/02/10/best-nfl-head-coach-hires-2026-h
 **2026 Olympic men's hockey rules vs. NHL rules: How they differ and what's changed**\
 `There are minor changes from the way NHL games are run, mostly involving overtime rules.`\
 https://nytimes.com/athletic/7021678/2026/02/10/olympics-mens-hockey-2026-rules-nhl-differences/
-
-**The New York Times International Edition in Print for Wednesday, Feb. 11, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/02/10/todays-new-york-times-international-edition
 
