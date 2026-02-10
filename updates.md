@@ -1,3 +1,7 @@
+**Full Time: College soccer standout skiing at the Games**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/7035136/2026/02/09/sammy-smith-stanford-olympics-full-time/
+
 **Injured Damian Lillard on returning to 3-point contest: 'All-Star Weekend needs stars'**\
 `Less than 24 hours after getting clearance from Cronin and assurance from Lillard, the NBA announced Sunday Lillard would be in the field. `\
 https://nytimes.com/athletic/7034404/2026/02/09/damian-lillard-reaction-all-star-3-point-contest/
