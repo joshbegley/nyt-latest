@@ -1,3 +1,7 @@
+**Epstein Files Reveal Efforts to Build Ties With Officials in Russia**\
+`New documents detail Jeffrey Epstein’s efforts to foster strategic, sometimes reciprocal relationships with Russian officials.`\
+https://nytimes.com/2026/02/10/business/epstein-files-russia-putin.html
+
 **Gabor Boritt, Refugee Who Became Expert on Lincoln, Dies at 86**\
 `He survived the Holocaust and Communist rule in Hungary, arrived penniless in New York and made himself into a pre-eminent Civil War scholar.`\
 https://nytimes.com/2026/02/10/books/gabor-s-boritt-dead.html
