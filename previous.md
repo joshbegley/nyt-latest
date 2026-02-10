@@ -1,3 +1,11 @@
+**Lindsey Vonn’s complex tibia fracture at the Olympics: What to know**\
+`A tibia fracture is considered “complex” when the bone breaks into several pieces, damaging the soft tissues surrounding the shin.`\
+https://nytimes.com/athletic/7036231/2026/02/10/lindsey-vonn-complex-tibia-fracture-injury/
+
+**GST lays out bankruptcy plan, with vendors receiving 1.5% of fees owed**\
+`A December bankruptcy filing revealed that Michael Johnson's GST has debts of $40.68m.`\
+https://nytimes.com/athletic/7036352/2026/02/10/grand-slam-track-2026-bankruptcy/
+
 **The Ties That Bound the ‘Prince of Darkness’ of U.K. Politics to Epstein**\
 `For years Peter Mandelson, a senior British politician, concealed the depth of his friendship with the convicted sex offender Jeffrey Epstein, until new files were released.`\
 https://nytimes.com/2026/02/10/world/europe/ties-peter-mandelson-jeffrey-epstein.html
@@ -10,7 +18,7 @@ https://nytimes.com/2026/02/10/nyregion/epstein-columbia-nyu-donations-admission
 `The departure of Paul Green as head of women's football is a major moment for the club, who have endured an unusually difficult season`\
 https://nytimes.com/athletic/7034334/2026/02/10/chelsea-women-paul-green-crisis/
 
-**Mariah? Matilda? Italy’s Olympics Anchor Couldn’t Tell the Difference. Now His Reporters PlanTo Strike.**\
+**Mariah? Matilda? Italy’s Olympics Anchor Couldn’t Tell the Difference. Now His Reporters Plan To Strike.**\
 `Paolo Petrecca made numerous gaffes while commentating on the Olympics opening ceremonies for Italy’s public broadcaster. Journalists are incensed.`\
 https://nytimes.com/2026/02/10/world/europe/olympics-italy-rai-broadcaster-gaffe-strike.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7034724/2026/02/10/olympics-figure-skating-music-co
 **Rename Penn Station and Dulles Airport After Trump?**\
 `Should two major transportation hubs be renamed for the president? Also: When children watch TV; a hope for long life.`\
 https://nytimes.com/2026/02/10/opinion/penn-station-dulles-trump.html
-
-**Ahead of Jobs Report, White House Seeks to Downplay Any Slowdown**\
-`President Trump’s top aides have argued in recent days that the economy is strong, even if new data on Wednesday show sluggish hiring.`\
-https://nytimes.com/2026/02/10/us/politics/white-house-jobs.html
-
-**Latest Updates: The Search for Nancy Guthrie**\
-``\
-https://nytimes.com/live/2026/02/10/us/savannah-guthrie-mom-news
 

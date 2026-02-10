@@ -18,7 +18,7 @@ https://nytimes.com/2026/02/10/nyregion/epstein-columbia-nyu-donations-admission
 `The departure of Paul Green as head of women's football is a major moment for the club, who have endured an unusually difficult season`\
 https://nytimes.com/athletic/7034334/2026/02/10/chelsea-women-paul-green-crisis/
 
-**Mariah? Matilda? Italy’s Olympics Anchor Couldn’t Tell the Difference. Now His Reporters Plan To Strike.**\
+**Mariah? Matilda? Italy’s Olympics Anchor Couldn’t Tell the Difference. Now His Reporters Plan to Strike.**\
 `Paolo Petrecca made numerous gaffes while commentating on the Olympics opening ceremonies for Italy’s public broadcaster. Journalists are incensed.`\
 https://nytimes.com/2026/02/10/world/europe/olympics-italy-rai-broadcaster-gaffe-strike.html
 
