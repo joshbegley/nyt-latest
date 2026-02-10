@@ -1,3 +1,15 @@
+**The Sublime and Subversive Desire Paths of a Snowy New York**\
+`With the snow sticking around, New Yorkers have had to navigate new, temporary terrain.`\
+https://nytimes.com/2026/02/10/realestate/desire-paths-new-york-city-snow-storm.html
+
+**Ukrainian Olympian banned from wearing helmet commemorating victims of Russian invasion**\
+`Vladyslav Heraskevych has described the IOC's verdict as "a decision that simply breaks my heart".`\
+https://nytimes.com/athletic/7035955/2026/02/10/ukraine-skeleton-helmet-banned-olympics/
+
+**Sweden 'not overly concerned' after William Nylander misses practice**\
+`Nylander was absent from practice on the eve of Sweden’s Olympic men’s opener with what the coach called "a maintenance thing."`\
+https://nytimes.com/athletic/7035823/2026/02/10/sweden-olympics-hockey-william-nylander-injury/
+
 **The Bounce: The Hornets and Pistons brawl. Plus, Daryl Morey throws some shade**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7033030/2026/02/10/hornets-pistons-fight-daryl-morey-nba-the-bounce/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7035225/2026/02/10/where-were-contenders-at-the-tra
 **Chappell Roan Leaves Wasserman Agency After Founder Appears in Epstein Files**\
 `Casey Wasserman, who founded and leads the talent agency bearing his name, exchanged flirtatious emails with Ghislaine Maxwell in the early 2000s.`\
 https://nytimes.com/2026/02/10/arts/music/chappell-roan-casey-wasserman-epstein-agency.html
-
-**Premier League sack race: Thomas Frank and Eddie Howe among favourites ahead of showdown**\
-`The Premier League season is heading towards a crescendo. But will all managers make it to the finish line?`\
-https://nytimes.com/athletic/7035530/2026/02/10/premier-league-sack-race-thomas-frank-and-eddie-howe-under-pressure-ahead-of-key-match/
-
-**Palace's Mateta will not have knee surgery - Glasner**\
-`Mateta has been managing the problem since sustaining it in November.`\
-https://nytimes.com/athletic/7035856/2026/02/10/mateta-knee-surgery-crystal-palace-glasner/
-
-**Sex, Love and Real Estate**\
-`How the questions of love, sex, divorce and marriage define our real estate and design lives.`\
-https://nytimes.com/spotlight/sex-love-and-real-estate
 
