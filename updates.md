@@ -1,3 +1,11 @@
+**The Briefing: Chelsea 2 Leeds 2 - Wasteful hosts made to pay as Leeds summon stunning two-goal comeback**\
+`Liam Rosenior's side appeared to be cruising after establishing a two-goal advantage only to be hauled back by a stubborn and defiant Leeds`\
+https://nytimes.com/athletic/7030956/2026/02/10/chelsea-leeds-bogle-palmer-acheampong-briefing/
+
+**Russia Further Restricts Telegram, Escalating Internet Clampdown**\
+`The throttling of the communication app, used by more than 100 million Russians, endangers what remains of the country’s free internet.`\
+https://nytimes.com/2026/02/10/world/europe/telegram-throttled-internet-russia.html
+
 **House Republicans Again Seek to Stop Time to Avoid Vote on Trump’s Tariffs**\
 `For the third time this Congress, G.O.P. leaders are seeking to effectively nullify a law that requires a quick House vote on a measure demanding an end to President Trump’s tariffs.`\
 https://nytimes.com/2026/02/10/us/politics/tariffs-house-legislative-day.html
