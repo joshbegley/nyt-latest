@@ -1,4 +1,4 @@
-**Confrontation between Jalen Duren, Moussa Diabaté sparks Pistons-Hornets fight**\
+**Confrontation between Jalen Duren, Moussa Diabaté sparks Pistons-Hornets brawl**\
 `Stewart, Duren, Diabaté and Bridges were all ejected. Suspensions are likely to follow.`\
 https://nytimes.com/athletic/7034892/2026/02/09/pistons-hornets-fight-diabate-duren-bridges-stewart/
 
