@@ -1,3 +1,7 @@
+**Tracy Scroggins, Lions' No. 3 sack leader, dies at 56**\
+`Scroggins' 60.5 sacks rank third on the Lions' career sack list, and he helped Detroit reach the playoffs five times in his 10 seasons.`\
+https://nytimes.com/athletic/7034931/2026/02/10/lions-tracy-scroggins-dead/
+
 **The New York Times in Print for Tuesday, Feb. 10, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/10/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7030737/2026/02/10/brighton-premier-league-harry-ho
 **The incredible numbers behind Wrexham's Hollywood revolution**\
 `The statistics behind the Welsh club's remarkable rise over the last five years under Rob McElhenney and Ryan Reynolds' ownership`\
 https://nytimes.com/athletic/7017794/2026/02/10/the-incredible-numbers-behind-wrexhams-hollywood-revolution/
-
-**Why Chelsea's man-to-man pressing under Liam Rosenior has echoes of Bielsa**\
-`For a team with rapid forwards, plus Caicedo’s outstanding ball-winning ability, defending in this way makes the most of their capabilities`\
-https://nytimes.com/athletic/7033637/2026/02/10/chelsea-pressing-rosenior-premier-league-tactics/
 
