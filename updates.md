@@ -1,3 +1,11 @@
+**BP Suspends Share Buybacks as Profit Slumps**\
+`The British energy giant said it would put money toward new oil and gas opportunities ahead of the arrival of its new chief executive, Meg O’Neill.`\
+https://nytimes.com/2026/02/10/business/bp-oil-energy-buybacks.html
+
+**The Pulse: An NBA brawl**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7033715/2026/02/10/pistons-hornets-fight-the-pulse/
+
 **The Athletic's college softball Top 25: Texas Tech stays at No.1, Tennessee rises, Oregon falls**\
 `Texas Tech remains unscathed while Tennessee rose after going undefeated. Oregon dropped after losing three of their first five games. `\
 https://nytimes.com/athletic/7034491/2026/02/10/college-softball-power-rankings-texas-tech-texas/
