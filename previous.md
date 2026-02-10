@@ -30,7 +30,7 @@ https://nytimes.com/athletic/7037080/2026/02/10/ilia-malinin-winter-olympics-fig
 `Arraez has played all over the field in his career. His time at second has been defined by sure-handedness but also very limited range.`\
 https://nytimes.com/athletic/7037121/2026/02/10/sf-giants-luis-arraez-second-base-defense/
 
-**The Briefing: Chelsea 2 Leeds 2 - Wasteful hosts made to pay by summon stunning two-goal comeback**\
+**The Briefing: Chelsea 2 Leeds 2 - Wasteful hosts made to pay by stunning two-goal comeback**\
 `Liam Rosenior's side appeared to be cruising after establishing a two-goal advantage only to be hauled back by a stubborn and defiant Leeds`\
 https://nytimes.com/athletic/7030956/2026/02/10/chelsea-leeds-bogle-palmer-acheampong-briefing/
 
