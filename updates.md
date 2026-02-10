@@ -1,3 +1,23 @@
+**Why are Olympic figure skaters having issues with their music selections?**\
+`The International Skating Union eased its rules in 2014, permitting skaters to perform to contemporary songs with lyrics.`\
+https://nytimes.com/athletic/7034724/2026/02/10/olympics-figure-skating-music-copyright/
+
+**Rename Penn Station and Dulles Airport After Trump?**\
+`Should two major transportation hubs be renamed for the president? Also: When children watch TV; a hope for long life.`\
+https://nytimes.com/2026/02/10/opinion/penn-station-dulles-trump.html
+
+**Ahead of Jobs Report, White House Seeks to Downplay Any Slowdown**\
+`President Trump’s top aides have argued in recent days that the economy is strong, even if new data on Wednesday show sluggish hiring.`\
+https://nytimes.com/2026/02/10/us/politics/white-house-jobs.html
+
+**Latest Updates: The Search for Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/10/us/savannah-guthrie-mom-news
+
+**Delgado Drops Out of Democratic Primary for N.Y. Governor**\
+`After falling out with Gov. Kathy Hochul, Lt. Gov. Antonio Delgado mounted a challenge from the left. But his campaign failed to gain traction.`\
+https://nytimes.com/2026/02/10/nyregion/antonio-delgado-drops-out-governor-new-york.html
+
 **Republican Cash Edge Threatens to Swamp Democrats in the Midterms**\
 `“Donald Trump has 99 problems going into the midterms,” one Democratic strategist said. “But money ain’t one.”`\
 https://nytimes.com/2026/02/10/us/politics/republicans-democrats-midterms-fund-raising.html

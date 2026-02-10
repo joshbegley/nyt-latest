@@ -1,3 +1,15 @@
+**Mariah? Matilda? Italy’s Olympics Anchor Couldn’t Tell the Difference. Now His Reporters PlanTo Strike.**\
+`Paolo Petrecca made numerous gaffes while commentating on the Olympics opening ceremonies for Italy’s public broadcaster. Journalists are incensed.`\
+https://nytimes.com/2026/02/10/world/europe/olympics-italy-rai-broadcaster-gaffe-strike.html
+
+**Big Ten athletes commission urges NCAA to continue push to eliminate college prop bets**\
+`The Big Ten commission includes 22 athletes representing all 18 Big Ten universities.`\
+https://nytimes.com/athletic/7036310/2026/02/10/ncaa-prop-bets-big-ten-charlie-baker/
+
+**What Rhymes With Heretic? A Galileo Musical Is Broadway Bound.**\
+`The musical, called “Galileo,” will star Raúl Esparza, and is scheduled to open in December at the Shubert Theater.`\
+https://nytimes.com/2026/02/10/theater/galileo-broadway-raul-esparza.html
+
 **Why are Olympic figure skaters having issues with their music selections?**\
 `The International Skating Union eased its rules in 2014, permitting skaters to perform to contemporary songs with lyrics.`\
 https://nytimes.com/athletic/7034724/2026/02/10/olympics-figure-skating-music-copyright/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/10/technology/personaltech/ai-google-meta-opt-out.ht
 **The Satchel: Send your Bills questions to Tim Graham**\
 `The Satchel: Send your Bills questions to Tim Graham.`\
 https://nytimes.com/athletic/7036200/2026/02/10/bills-draft-offeseason-questions/
-
-**Delgado Drops Out of Democratic Primary for N.Y. Governor**\
-`After falling out with Gov. Kathy Hochul, Lt. Gov. Antonio Delgado mounted a challenge from the left. But his campaign failed to gain traction.`\
-https://nytimes.com/2026/02/10/nyregion/antonio-delgado-drops-out-governor-new-york.html
-
-**Michael Pollan on R.F.K. Jr. and the MAHA Movement**\
-`“Eating real food is not going to protect you from the measles,” said Michael Pollan, who’s written extensively about health and nutrition, on “The Interview.”`\
-https://nytimes.com/video/podcasts/100000010702330/michael-pollan-on-rfk-jr-and-the-maha-movement.html
-
-**A.I. Can Fool Us Into Thinking It’s Human. Now What?**\
-`And if A.I. tells us it is conscious, should we believe it? The writer Michael Pollan dug into those questions and more on “The Interview.”`\
-https://nytimes.com/video/podcasts/100000010702270/ai-can-fool-us-into-thinking-its-human-now-what.html
 
