@@ -1,3 +1,11 @@
+**Canada's pre-World Cup schedule and the reasons behind its opponent choices**\
+`On the surface, Canada's run-up to the World Cup may appear underwhelming, but there's reason for it`\
+https://nytimes.com/athletic/7036354/2026/02/10/canada-friendlies-world-cup-tunisia-iceland-uzbekistan-ireland/
+
+**Jessie Diggins says she bruised ribs in skiathlon crash, but 'no lasting injury'**\
+`The American cross-country skiing star, who is retiring after this season, says she can continue racing in the Olympics.`\
+https://nytimes.com/athletic/7036501/2026/02/10/jessie-diggins-winter-olympics-bruised-ribs-injury-cross-country/
+
 **Games Briefing: It's USA-Canada time**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7036442/2026/02/10/usa-canada-womens-hockey-olympics-games-briefing/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/10/us/politics/trump-epstein.html
 **Lindsey Vonn’s complex tibia fracture at the Olympics: What to know**\
 `A tibia fracture is considered “complex” when the bone breaks into several pieces, damaging the soft tissues surrounding the shin.`\
 https://nytimes.com/athletic/7036231/2026/02/10/lindsey-vonn-complex-tibia-fracture-injury/
-
-**GST lays out bankruptcy plan, with vendors receiving 1.5% of fees owed**\
-`A December bankruptcy filing revealed that Michael Johnson's GST has debts of $40.68m.`\
-https://nytimes.com/athletic/7036352/2026/02/10/grand-slam-track-2026-bankruptcy/
-
-**The Ties That Bound the ‘Prince of Darkness’ of U.K. Politics to Epstein**\
-`For years Peter Mandelson, a senior British politician, concealed the depth of his friendship with the convicted sex offender Jeffrey Epstein, until new files were released.`\
-https://nytimes.com/2026/02/10/world/europe/ties-peter-mandelson-jeffrey-epstein.html
 
