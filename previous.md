@@ -1,40 +1,40 @@
-**Eddie Bauer Files for Bankruptcy**\
-`The sportswear company’s operator cited a shift in consumer preferences, rising inflation and elevated tariffs. It is the third bankruptcy since Eddie Bauer’s founding in the 1920s.`\
-https://nytimes.com/2026/02/10/business/eddie-bauer-bankruptcy.html
+**After Kershaw, Verlander and Scherzer, will there be another Hall of Fame starting pitcher?**\
+`Years from now, what will a Hall of Fame starting pitcher even look like? We asked current HOFers and considered some compelling cases. `\
+https://nytimes.com/athletic/7033895/2026/02/10/future-hall-of-fame-starting-pitchers/
 
-**George Saunders on Anger, Ambition and Sin**\
-`The acclaimed writer discusses the limits of kindness and the foundations of sin.`\
-https://nytimes.com/2026/02/10/opinion/ezra-klein-podcast-george-saunders.html
+**The biggest winners and losers from MLB's offseason: From Tarik Skubal to St. Louis**\
+`The Dodgers are not an offseason winner as much as a category unto themselves. However, several other teams and players also made out big.`\
+https://nytimes.com/athletic/7034947/2026/02/10/mlb-offseason-winners-losers-free-agency/
 
-**What Should Democrats Do to Create a Durable Majority? Our Readers Have Thoughts.**\
-`We got hundreds of suggestions.`\
-https://nytimes.com/2026/02/10/opinion/project-2028-readers-respond.html
+**The Jets' 10 best free agents: Breece Hall and a pair of guards top the list**\
+`A look at the the team's pending free agents, as well as what some of them might cost to bring back.`\
+https://nytimes.com/athletic/7034975/2026/02/10/new-york-jets-free-agents/
 
-**Top Immigration Officials Set to Testify Before House Panel**\
-`The hearing comes more than two months after the Trump administration began its aggressive immigration crackdown in Minnesota.`\
-https://nytimes.com/2026/02/10/us/politics/dhs-officials-house-minnesota.html
+**The Seahawks didn’t just win the Super Bowl. They did something even more challenging**\
+`Seahawks coach Mike Macdonald managed to build on the culture the team had before his arrival while adding new ideas of his own.`\
+https://nytimes.com/athletic/7033901/2026/02/10/the-seahawks-didnt-just-win-the-super-bowl-they-did-something-even-more-challenging/
 
-**Look for Your Neighborhood in This Mini-New York City**\
-`The Museum of the City of New York will display a miniature New York built of balsa wood and Elmer’s glue. It has bridges, brownstones and One World Trade Center.`\
-https://nytimes.com/2026/02/10/nyregion/miniature-new-york-museum.html
+**Russia Nears Capture of Key Ukrainian Towns After Year of Grinding Assaults**\
+`Russian troops have advanced at a glacial pace in recent months, but gains in southern and eastern Ukraine could give Moscow an edge in U.S.-mediated peace talks.`\
+https://nytimes.com/2026/02/10/world/europe/russia-ukraine-battlefield-huliaipole-pokrovsk.html
 
-**Tempered by Turmoil, Many in Twin Cities Now Feel Empowered**\
-`Two months after federal agents began operations in the Twin Cities, residents say they have found strength in their sense of community.`\
-https://nytimes.com/2026/02/10/us/twin-cities-residents-unity-ice.html
+**NFL Power Rankings: Seahawks cement top spot, Patriots slide and other key season takeaways**\
+`The Seahawks ended the season like they played most of it — dominating on defense. They claimed the top spot in the season's final rankings.`\
+https://nytimes.com/athletic/7033954/2026/02/10/nfl-power-rankings-super-bowl-seahawks-patriots-takeaways/
 
-**George Saunders on Anger, Ambition and Sin**\
-`The acclaimed writer discusses the limits of kindness and the foundations of sin.`\
-https://nytimes.com/video/opinion/100000010695785/george-saunders-on-anger-ambition-and-sin.html
+**Nordic combined is a mental challenge unlike any other at the Olympics. Here's why**\
+`The complex challenge of Nordic combined: Who can go the fastest and who can go the farthest?`\
+https://nytimes.com/athletic/7033931/2026/02/10/olympics-nordic-combined-mental-challenge/
 
-**Trump Steaks, Trump University, Trump International Airport? This Has to Stop.**\
-`The president wants to change the public landscape to honor himself. It’s not the worst thing he’s done, but it will require fixing.`\
-https://nytimes.com/2026/02/10/opinion/trump-university-airport.html
+**NFL insiders rank head coach hires: John Harbaugh among 4 to receive first-place votes**\
+`The Athletic asked nine NFL coaches and team executives to rate the 10 head-coaching hires this offseason.`\
+https://nytimes.com/athletic/7034727/2026/02/10/best-nfl-head-coach-hires-2026-harbaugh/
 
-**In ‘Love Story,’ Sarah Pidgeon Has Big Stilettos to Fill**\
-`Playing Carolyn Bessette-Kennedy, the actress faced a backlash before filming even finished. She “had to just keep betting on myself and what my instincts were.”`\
-https://nytimes.com/2026/02/10/arts/television/love-story-sarah-pidgeon-carolyn-bessette-kennedy.html
+**2026 Olympic men's hockey rules vs. NHL rules: How they differ and what's changed**\
+`There are minor changes from the way NHL games are run, mostly involving overtime rules.`\
+https://nytimes.com/athletic/7021678/2026/02/10/olympics-mens-hockey-2026-rules-nhl-differences/
 
-**Marijuana Is Everywhere. That’s a Problem.**\
-`Legalization of the drug without much regulation has led to public health challenges.`\
-https://nytimes.com/2026/02/10/opinion/legalized-marijuana-laws-regulation.html
+**The New York Times International Edition in Print for Wednesday, Feb. 11, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/02/10/todays-new-york-times-international-edition
 
