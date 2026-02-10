@@ -23,10 +23,10 @@ https://nytimes.com/2026/02/10/us/nancy-guthrie-masked-person-doorstep-images.ht
 https://nytimes.com/2026/02/10/business/spacex-nlrb-labor-elon-musk.html
 
 **The Whiskey World Is Reeling, but This Company Has Bigger Troubles**\
-`A new report paints a grim financial picture of Uncle Nearest, a high-profile brand named for an enslaved distiller. But its founder is fighting back.`\
+`A new report paints a grim financial picture of Uncle Nearest, a high-profile brand named for an enslaved distiller. But its founder is fighting the findings.`\
 https://nytimes.com/2026/02/10/dining/drinks/uncle-nearest-whiskey.html
 
-**Ashley Farquharson wins bronze for second-ever U.S. Olympic medal in women's luge**\
+**Farquharson wins bronze for second-ever U.S. Olympic medal in women's luge**\
 `Farquharson sealed it with a strong fourth run that cemented her medal position.`\
 https://nytimes.com/athletic/7036378/2026/02/10/ashley-farquharson-winter-olympics-luge-bronze-usa/
 
