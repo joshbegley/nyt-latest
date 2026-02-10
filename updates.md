@@ -1,3 +1,23 @@
+**Israelis Protest Surge in Gun Crime Within Arab Community**\
+`Palestinian and Jewish citizens of Israel joined forces to demand government action in the face of a spiraling death toll from criminal violence among Arabs.`\
+https://nytimes.com/2026/02/10/world/middleeast/israelis-protest-surge-in-gun-crime-within-arab-community.html
+
+**Epstein Directed Aide to Obtain Hidden Video Cameras**\
+`“I’m installing them into Kleenex boxes now,” the aide replied in the 2014 email exchange.`\
+https://nytimes.com/2026/02/10/us/epstein-hidden-cameras.html
+
+**The nomadic career of Jhon Duran and his fifth club in three years — Zenit St Petersburg**\
+`Jhon Duran has moved to Russia with Zenit St Petersburg his fifth club in three years. But why have there been so many transfers?`\
+https://nytimes.com/athletic/7033029/2026/02/10/jhon-duran-zenit-st-petersburg-fenerbahce/
+
+**What’s the Secret to Happiness? These Researchers Have a Theory.**\
+`A new book, “How to Feel Loved,” links our social skills to how content we are.`\
+https://nytimes.com/2026/02/10/well/lyubomirsky-reis-how-to-feel-loved.html
+
+**Canucks trade targets: 9 teams with incentive to buy and future assets to spare**\
+`Let's profile nine teams with surplus draft capital and the incentive to use it.`\
+https://nytimes.com/athletic/7035271/2026/02/10/canucks-trade-targets/
+
 **Three burning Padres questions as spring training opens**\
 `Potential sale timing, A.J. Preller's contract and finding spring bargains. `\
 https://nytimes.com/athletic/7031989/2026/02/10/padres-spring-training-preview-a-j-preller/
