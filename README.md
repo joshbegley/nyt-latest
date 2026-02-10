@@ -1,4 +1,8 @@
-**Sweden’s last stone topples U.S.**\
+**Francisco Lindor dealing with stress reaction in hamate bone, could require surgery**\
+`Even if Lindor needs surgery, he could still be ready for Opening Day. Plus, Juan Soto will move to left field for the upcoming season.`\
+https://nytimes.com/athletic/7036738/2026/02/10/mets-francisco-lindor-hamate-injury/
+
+**Sweden’s last stone topples U.S. in Curling.**\
 `Sweden’s sibling team took advantage of the hammer to edge the Americans in the final end. `\
 https://nytimes.com/live/2026/02/07/world/olympics-italy-photos/swedens-last-stone-topples-us
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7036443/2026/02/10/championship-playoffs-vote-efl/
 **Spain striker Aghehowa set to miss World Cup after suffering ACL injury**\
 `Aghehowa, 21, was replaced at half time during Monday's Primeira Liga fixture against Sporting CP`\
 https://nytimes.com/athletic/7036541/2026/02/10/samu-aghehowa-injury-porto-spain/
-
-**Justin Verlander signs with the Tigers, bringing his career full-circle**\
-`Verlander returns to Detroit, where he spent the first 13 years of his MLB career and won 183 games.`\
-https://nytimes.com/athletic/6982882/2026/02/10/justin-verlander-mlb-free-agency-tigers/
 
