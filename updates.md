@@ -1,3 +1,15 @@
+**Trump Allies Near ‘Total Victory’ in Wiping Out U.S. Climate Regulation**\
+`A small group of conservative activists has worked for 16 years to stop all government efforts to fight climate change. Their efforts seem poised to pay off.`\
+https://nytimes.com/2026/02/09/climate/endangerment-finding.html
+
+**Injured Damian Lillard on returning to 3-point contest: 'All-Star Weekend needs stars'**\
+`Late last week, Levine called Lillard back. The 3-point field had a competitor drop out, and Levine wanted to revisit their earlier “joke.”`\
+https://nytimes.com/athletic/7034404/2026/02/09/damian-lillard-reaction-all-star-3-point-contest/
+
+**Pistons cap physical game vs. Hornets to snap Charlotte's nine-game win streak**\
+`The Pistons now have a six-game lead atop the conference over the New York Knicks and Boston Celtics.`\
+https://nytimes.com/athletic/7035019/2026/02/09/pistons-hornets-nine-game-winning-streak-fight-ejections/
+
 **2026 Olympics, Day 3 recap: Lindsey Vonn speaks, and U.S. chases curling gold**\
 `The U.S. can win its second curling gold ever, and the American women's hockey team faces Canada on Tuesday.`\
 https://nytimes.com/athletic/7034616/2026/02/09/olympics-recap-vonn-curling-gold-us-womens-hockey/
