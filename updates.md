@@ -1,3 +1,15 @@
+**Spain striker Aghehowa set to miss World Cup after suffering ACL injury**\
+`Aghehowa, 21, was replaced at half time during Monday's Primeira Liga fixture against Sporting CP`\
+https://nytimes.com/athletic/7036541/2026/02/10/samu-aghehowa-injury-porto-spain/
+
+**Justin Verlander signs with the Tigers, bringing his career full-circle**\
+`Verlander returns to Detroit, where he spent the first 13 years of his MLB career and where he won 183 games.`\
+https://nytimes.com/athletic/6982882/2026/02/10/justin-verlander-mlb-free-agency-tigers/
+
+**Mamdani Hires Groundbreaking Computer Scientist as Chief Tech Officer**\
+`Lisa Gelobter, whose worked helped shape the modern web, was also on the launch team at Hulu.`\
+https://nytimes.com/2026/02/10/nyregion/mamdani-lisa-gelobter-gif.html
+
 **Wild at the Olympics: A punchable face, hanging with Snoop Dogg and a chance at a pile of medals**\
 `Quinn Hughes on 10 Wild players being in the Olympics: "It says a lot about our team and maybe why we've been so good."`\
 https://nytimes.com/athletic/7036458/2026/02/10/wild-olympics-punchable-snoop-dogg/

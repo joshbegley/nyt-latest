@@ -1,9 +1,13 @@
+**EFL clubs to vote on expanding Championship play-offs**\
+`The 72 clubs in the EFL will vote on increasing the number of spots from four to six at a meeting in March.`\
+https://nytimes.com/athletic/7036443/2026/02/10/championship-playoffs-vote-efl/
+
 **Spain striker Aghehowa set to miss World Cup after suffering ACL injury**\
 `Aghehowa, 21, was replaced at half time during Monday's Primeira Liga fixture against Sporting CP`\
 https://nytimes.com/athletic/7036541/2026/02/10/samu-aghehowa-injury-porto-spain/
 
 **Justin Verlander signs with the Tigers, bringing his career full-circle**\
-`Verlander returns to Detroit, where he spent the first 13 years of his MLB career and where he won 183 games.`\
+`Verlander returns to Detroit, where he spent the first 13 years of his MLB career and won 183 games.`\
 https://nytimes.com/athletic/6982882/2026/02/10/justin-verlander-mlb-free-agency-tigers/
 
 **Mamdani Hires Groundbreaking Computer Scientist as Chief Tech Officer**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/10/us/nancy-guthrie-masked-person-doorstep-images.ht
 **Top Labor Regulator Dismisses Charges Against SpaceX**\
 `The National Labor Relations Board, having accused the company of unfair retaliation in 2024, now says it has no jurisdiction over Elon Musk’s space company.`\
 https://nytimes.com/2026/02/10/business/spacex-nlrb-labor-elon-musk.html
-
-**The Whiskey World Is Reeling, but This Company Has Bigger Troubles**\
-`A new report paints a grim financial picture of Uncle Nearest, a high-profile brand named for an enslaved distiller. But its founder is fighting the findings.`\
-https://nytimes.com/2026/02/10/dining/drinks/uncle-nearest-whiskey.html
 
