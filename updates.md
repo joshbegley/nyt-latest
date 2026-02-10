@@ -1,3 +1,7 @@
+**In Terse Ruling, Judge Shows Frustration Over Federal Seizure of Georgia Ballots**\
+`A state judge dismissed a case after the Justice Department’s seizure of ballots from the 2020 presidential election in Fulton County, which has raised fears that they could be manipulated.`\
+https://nytimes.com/2026/02/09/us/georgia-2020-election-case-ballots.html
+
 **A Gray Wolf’s Visit to Los Angeles County Is a First in Nearly a Century**\
 `The wolf, known as BEY03F, roamed more than 500 miles from Northern California, signaling that the species continues to rebound after being wiped out in the state in the 1920s.`\
 https://nytimes.com/2026/02/09/us/gray-wolf-los-angeles-california.html

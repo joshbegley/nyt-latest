@@ -6,8 +6,8 @@ https://nytimes.com/2026/02/09/nyregion/eric-adams-whistles.html
 `The move involving Archbishop Fulton J. Sheen, who hosted a popular midcentury radio and TV show and died in 1979, ends a six-year delay.`\
 https://nytimes.com/2026/02/09/us/archbishop-sheen-beatification-saint.html
 
-**Judge Dismisses Case Over Georgia Ballots That Were Seized by Justice Dept.**\
-`A state judge made clear his frustration with the federal seizure of ballots from the 2020 presidential election in Fulton County, Ga.`\
+**In Terse Ruling, Judge Shows Frustration Over Federal Seizure of Georgia Ballots**\
+`A state judge dismissed a case after the Justice Department’s seizure of ballots from the 2020 presidential election in Fulton County, which has raised fears that they could be manipulated.`\
 https://nytimes.com/2026/02/09/us/georgia-2020-election-case-ballots.html
 
 **49ers DL Keion White shot in ankle, expected to be OK**\
