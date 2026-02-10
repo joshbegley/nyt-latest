@@ -1,3 +1,7 @@
+**Downed Wire Disrupts Amtrak and NJ Transit Service Along Northeast Corridor**\
+`The disruption stranded passengers in bitter cold. Amtrak restored service, but NJ Transit was operating reduced service out of New York Penn Station early Tuesday.`\
+https://nytimes.com/2026/02/10/nyregion/amtrak-nj-transit-train-cancellations.html
+
 **Ghislaine Maxwell Refuses to Answer Questions From Congress**\
 `Ghislaine Maxwell, longtime associate of Jeffrey Epstein, the convicted sex offender, declined to answer questions during a virtual deposition in front of the House Oversight Committee.`\
 https://nytimes.com/video/us/100000010701770/ghislaine-maxwell-jeffrey-epstein-house-oversight.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/10/learning/word-of-the-day-indigent.html
 **Tracy Scroggins, Lions' No. 3 sack leader, dies at 56**\
 `Scroggins' 60.5 sacks rank third on the Lions' career sack list, and he helped Detroit reach the playoffs five times in his 10 seasons.`\
 https://nytimes.com/athletic/7034931/2026/02/10/lions-tracy-scroggins-dead/
-
-**The New York Times in Print for Tuesday, Feb. 10, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/02/10/todays-new-york-times
 
