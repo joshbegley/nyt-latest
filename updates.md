@@ -1,3 +1,7 @@
+**Ben Ogden ends U.S. men's 50-year Olympic medal drought in cross-country skiing**\
+`Ogden won the first U.S. men's cross-country skiing Olympic medal since Bill Koch in 1976.`\
+https://nytimes.com/athletic/7035634/2026/02/10/winter-olympics-ben-ogden-cross-country-silver-american-drought/
+
 **Film Club: ‘Dear ICE: Letters From Students Living in Fear’**\
 `What would you like to say to ICE agents, and to the children who are detained in immigration detention centers?`\
 https://nytimes.com/2026/02/10/learning/film-club-dear-ice-letters-from-students-living-in-fear.html

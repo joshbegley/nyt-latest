@@ -1,3 +1,7 @@
+**Ben Ogden ends U.S. men's 50-year Olympic medal drought in cross-country skiing**\
+`Ogden won the first U.S. men's cross-country skiing Olympic medal since Bill Koch in 1976.`\
+https://nytimes.com/athletic/7035634/2026/02/10/winter-olympics-ben-ogden-cross-country-silver-american-drought/
+
 **Film Club: ‘Dear ICE: Letters From Students Living in Fear’**\
 `What would you like to say to ICE agents, and to the children who are detained in immigration detention centers?`\
 https://nytimes.com/2026/02/10/learning/film-club-dear-ice-letters-from-students-living-in-fear.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7034585/2026/02/10/nickeil-alexander-walker-return-
 **Three burning Red Sox questions as spring training opens**\
 `With a deep stable of starters and a crowded mix of outfielders and designated hitters, is Boston done shaping its roster?`\
 https://nytimes.com/athletic/7027952/2026/02/10/red-sox-spring-training-roster-questions/
-
-**Yankees fans pray the World Series drought ends. For their kids, 'It has been a lifetime'**\
-`For Yankees fans, 16 years might as well be eons — especially for parents raising kids who have no idea what a World Series win feels like.`\
-https://nytimes.com/athletic/7020213/2026/02/10/yankees-fans-world-series-drought/
 
