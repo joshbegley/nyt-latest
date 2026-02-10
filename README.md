@@ -1,3 +1,7 @@
+**The 44 Seconds of Video That Show the Guthrie Abduction Suspect**\
+`The footage provided the first glimpse of a suspect in the kidnapping of Nancy Guthrie, the mother of the television host Savannah Guthrie who has been missing for 10 days.`\
+https://nytimes.com/2026/02/10/us/guthrie-doorbell-camera-video.html
+
 **McIlroy: Players Championship does not need to be a major**\
 `"It's the Players. Like it doesn't need to be anything else."`\
 https://nytimes.com/athletic/7037484/2026/02/10/rory-mcilroy-players-championship-major-championship-debate/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7037473/2026/02/10/detroit-tigers-reese-olson-labra
 **Immigration Officials Refuse to Discuss Minnesota Shootings**\
 `During a House congressional hearing, top immigration officials repeatedly declined to answer questions about the fatal shootings of two U.S. citizens in Minnesota by federal agents.`\
 https://nytimes.com/video/us/100000010703485/dhs-dc-ice-pretti-minnesota.html
-
-**F.D.A. Refuses to Review Moderna Flu Vaccine**\
-`The vaccine maker said the U.S. regulator rejected its request to seek approval for a new product using mRNA technology, which Health Secretary Robert F. Kennedy Jr. has sharply criticized.`\
-https://nytimes.com/2026/02/10/health/fda-moderna-mrna-flu-vaccine.html
 

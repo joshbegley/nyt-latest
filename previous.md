@@ -1,3 +1,15 @@
+**McIlroy: Players Championship does not need to be a major**\
+`"It's the Players. Like it doesn't need to be anything else."`\
+https://nytimes.com/athletic/7037484/2026/02/10/rory-mcilroy-players-championship-major-championship-debate/
+
+**Maxim Naumov emerges as a voice of reason at Olympics: 'Do things out of love, not fear'**\
+`Having dealt with his own tragedy, figure skater hopes to inspire others to "do what they've always wanted to do."`\
+https://nytimes.com/athletic/7037167/2026/02/10/maxim-naumov-voice-reason-olympics-love-not-fear/
+
+**Man Is Charged in 2021 Acid Attack Against Woman on Long Island**\
+`Terrell Campbell, 29, was charged with assaulting Nafiah Ikram outside her home. Mr. Campbell later described the assault in a rap lyric, prosecutors said.`\
+https://nytimes.com/2026/02/10/nyregion/acid-attack-long-island-charges.html
+
 **Six former Pitt players sue, alleging abusive coaching methods**\
 `Lawsuits also allege Title IX violations and a failure by the school to act after abuses were reported to multiple university officials.`\
 https://nytimes.com/athletic/7036473/2026/02/10/pitt-tory-verdi-lawsuit-womens-basketball-abuse/
@@ -11,7 +23,7 @@ https://nytimes.com/athletic/7037341/2026/02/10/blue-jays-injuries-santander-bie
 https://nytimes.com/2026/02/10/us/politics/us-troops-nigeria.html
 
 **Tigers' Reese Olson to miss 2026 season after right shoulder surgery**\
-`Olson’s injury is the downside to an otherwise exciting flurry of moves before the Tigers officially report to spring training. `\
+`The loss of Olson might have played a role in Detroit signing starting pitchers Framber Valdez and Justin Verlander.`\
 https://nytimes.com/athletic/7037473/2026/02/10/detroit-tigers-reese-olson-labral-surgery/
 
 **Immigration Officials Refuse to Discuss Minnesota Shootings**\
@@ -21,16 +33,4 @@ https://nytimes.com/video/us/100000010703485/dhs-dc-ice-pretti-minnesota.html
 **F.D.A. Refuses to Review Moderna Flu Vaccine**\
 `The vaccine maker said the U.S. regulator rejected its request to seek approval for a new product using mRNA technology, which Health Secretary Robert F. Kennedy Jr. has sharply criticized.`\
 https://nytimes.com/2026/02/10/health/fda-moderna-mrna-flu-vaccine.html
-
-**Song of the Week: Is This Zach Bryan’s Redemption Era?**\
-`On this edition of the “Popcast” Song of the Week, our critic Jon Caramanica dives into Zach Bryan’s “Appetite,” a redemptive and contemplative track about “the horrors that you visited upon yourself.”`\
-https://nytimes.com/video/podcasts/100000010704052/song-of-the-week-is-this-zach-bryans-redemption-era.html
-
-**Frank 'convinced' he will be in charge of Spurs vs. Arsenal**\
-`Spurs were beaten 2-1 by Newcastle on Tuesday and are now only five points above the relegation zone.`\
-https://nytimes.com/athletic/7037355/2026/02/10/thomas-frank-tottenham-future-newcastle/
-
-**Tiger Woods' son, Charlie, commits to Florida State golf program**\
-`Woods, a high school junior, is the No. 9 player in his class and No. 21 in the American Junior Golf Association’s rankings.`\
-https://nytimes.com/athletic/7037249/2026/02/10/tiger-woods-charlie-woods-florida-state-golf/
 

@@ -1,3 +1,19 @@
+**McIlroy: Players Championship does not need to be a major**\
+`"It's the Players. Like it doesn't need to be anything else."`\
+https://nytimes.com/athletic/7037484/2026/02/10/rory-mcilroy-players-championship-major-championship-debate/
+
+**Maxim Naumov emerges as a voice of reason at Olympics: 'Do things out of love, not fear'**\
+`Having dealt with his own tragedy, figure skater hopes to inspire others to "do what they've always wanted to do."`\
+https://nytimes.com/athletic/7037167/2026/02/10/maxim-naumov-voice-reason-olympics-love-not-fear/
+
+**Man Is Charged in 2021 Acid Attack Against Woman on Long Island**\
+`Terrell Campbell, 29, was charged with assaulting Nafiah Ikram outside her home. Mr. Campbell later described the assault in a rap lyric, prosecutors said.`\
+https://nytimes.com/2026/02/10/nyregion/acid-attack-long-island-charges.html
+
+**Tigers' Reese Olson to miss 2026 season after right shoulder surgery**\
+`The loss of Olson might have played a role in Detroit signing starting pitchers Framber Valdez and Justin Verlander.`\
+https://nytimes.com/athletic/7037473/2026/02/10/detroit-tigers-reese-olson-labral-surgery/
+
 **Six former Pitt players sue, alleging abusive coaching methods**\
 `Lawsuits also allege Title IX violations and a failure by the school to act after abuses were reported to multiple university officials.`\
 https://nytimes.com/athletic/7036473/2026/02/10/pitt-tory-verdi-lawsuit-womens-basketball-abuse/
