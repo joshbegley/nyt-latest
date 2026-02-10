@@ -1,3 +1,27 @@
+**The Ties That Bound the ‘Prince of Darkness’ of U.K. Politics to Epstein**\
+`For years Peter Mandelson, a senior British politician, concealed the depth of his friendship with the convicted sex offender Jeffrey Epstein, until new files were released.`\
+https://nytimes.com/2026/02/10/world/europe/ties-peter-mandelson-jeffrey-epstein.html
+
+**Epstein’s Cash and Influence Helped Women Attend Columbia and N.Y.U.**\
+`Federal records show that Jeffrey Epstein used donations and connections as he sought to gain college admission for young women in his orbit.`\
+https://nytimes.com/2026/02/10/nyregion/epstein-columbia-nyu-donations-admission-young-women.html
+
+**Chelsea Women in crisis: A critical departure, player confusion and men's executives overstepping**\
+`The departure of Paul Green as head of women's football is a major moment for the club, who have endured an unusually difficult season`\
+https://nytimes.com/athletic/7034334/2026/02/10/chelsea-women-paul-green-crisis/
+
+**Mariah? Matilda? Italy’s Olympics Anchor Couldn’t Tell the Difference. Now His Reporters PlanTo Strike.**\
+`Paolo Petrecca made numerous gaffes while commentating on the Olympics opening ceremonies for Italy’s public broadcaster. Journalists are incensed.`\
+https://nytimes.com/2026/02/10/world/europe/olympics-italy-rai-broadcaster-gaffe-strike.html
+
+**Big Ten athletes commission urges NCAA to continue push to eliminate college prop bets**\
+`The Big Ten commission includes 22 athletes representing all 18 Big Ten universities.`\
+https://nytimes.com/athletic/7036310/2026/02/10/ncaa-prop-bets-big-ten-charlie-baker/
+
+**What Rhymes With Heretic? A Galileo Musical Is Broadway Bound.**\
+`The musical, called “Galileo,” will star Raúl Esparza, and is scheduled to open in December at the Shubert Theater.`\
+https://nytimes.com/2026/02/10/theater/galileo-broadway-raul-esparza.html
+
 **Why are Olympic figure skaters having issues with their music selections?**\
 `The International Skating Union eased its rules in 2014, permitting skaters to perform to contemporary songs with lyrics.`\
 https://nytimes.com/athletic/7034724/2026/02/10/olympics-figure-skating-music-copyright/
@@ -13,28 +37,4 @@ https://nytimes.com/2026/02/10/us/politics/white-house-jobs.html
 **Latest Updates: The Search for Nancy Guthrie**\
 ``\
 https://nytimes.com/live/2026/02/10/us/savannah-guthrie-mom-news
-
-**Republican Cash Edge Threatens to Swamp Democrats in the Midterms**\
-`“Donald Trump has 99 problems going into the midterms,” one Democratic strategist said. “But money ain’t one.”`\
-https://nytimes.com/2026/02/10/us/politics/republicans-democrats-midterms-fund-raising.html
-
-**A.I. Is Giving You a Personalized Internet, but You Have No Say in It**\
-`The relentless addition of artificial intelligence in popular apps raises questions about what’s at stake. The answer: the future of the internet and its lifeblood, digital advertising.`\
-https://nytimes.com/2026/02/10/technology/personaltech/ai-google-meta-opt-out.html
-
-**The Satchel: Send your Bills questions to Tim Graham**\
-`The Satchel: Send your Bills questions to Tim Graham.`\
-https://nytimes.com/athletic/7036200/2026/02/10/bills-draft-offeseason-questions/
-
-**Delgado Drops Out of Democratic Primary for N.Y. Governor**\
-`After falling out with Gov. Kathy Hochul, Lt. Gov. Antonio Delgado mounted a challenge from the left. But his campaign failed to gain traction.`\
-https://nytimes.com/2026/02/10/nyregion/antonio-delgado-drops-out-governor-new-york.html
-
-**Michael Pollan on R.F.K. Jr. and the MAHA Movement**\
-`“Eating real food is not going to protect you from the measles,” said Michael Pollan, who’s written extensively about health and nutrition, on “The Interview.”`\
-https://nytimes.com/video/podcasts/100000010702330/michael-pollan-on-rfk-jr-and-the-maha-movement.html
-
-**A.I. Can Fool Us Into Thinking It’s Human. Now What?**\
-`And if A.I. tells us it is conscious, should we believe it? The writer Michael Pollan dug into those questions and more on “The Interview.”`\
-https://nytimes.com/video/podcasts/100000010702270/ai-can-fool-us-into-thinking-its-human-now-what.html
 
